@@ -1,3 +1,7 @@
+**What I'm Hearing: Jordan Love’s timeline, what’s next with Watson, Cousins’ struggles**\
+`Plus, Justin Fields’ next shot, Ja'Marr Chase and the Bengals’ vibes heading to K.C., the Tua effect and more.`\
+https://nytimes.com/athletic/5766347/2024/09/14/jordan-love-return-deshaun-watson-lawsuit-kirk-cousins-struggles/
+
 **Mets calling up Luisangel Acuña, brother of Ronald**\
 `The Mets acquired Acuña, younger brother of Atlanta Braves star Ronald Acuña, in July 2023 when they offloaded Max Scherzer to the Rangers.`\
 https://nytimes.com/athletic/5766802/2024/09/14/mets-luisangel-acuna-call-up/
