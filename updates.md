@@ -1,3 +1,7 @@
+**First-and-10: Ravens-Raiders key matchups and subplots, plus a prediction**\
+`How will Baltimore's defense perform against Las Vegas? And will the offensive line stand up to Maxx Crosby and the Raiders' pass rush?`\
+https://nytimes.com/athletic/5765501/2024/09/14/baltimore-ravens-las-vegas-raiders-week-2/
+
 **NFL Week 2 roundtable: Jordan Love's status, Cowboys hype and Bears-Texans**\
 `Three of our NFL insiders discuss some of Week 2's most interesting storylines.`\
 https://nytimes.com/athletic/5765848/2024/09/14/nfl-week-2-preview-storylines-jordan-love/

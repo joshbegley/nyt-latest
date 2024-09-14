@@ -1,3 +1,7 @@
+**First-and-10: Ravens-Raiders key matchups and subplots, plus a prediction**\
+`How will Baltimore's defense perform against Las Vegas? And will the offensive line stand up to Maxx Crosby and the Raiders' pass rush?`\
+https://nytimes.com/athletic/5765501/2024/09/14/baltimore-ravens-las-vegas-raiders-week-2/
+
 **NFL Week 2 roundtable: Jordan Love's status, Cowboys hype and Bears-Texans**\
 `Three of our NFL insiders discuss some of Week 2's most interesting storylines.`\
 https://nytimes.com/athletic/5765848/2024/09/14/nfl-week-2-preview-storylines-jordan-love/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/health/medical-practices-treatments-patients.html
 **Before Every Race, a Sprinter Gets Into Character**\
 `Kenny Bednarek isn’t as flashy as some runners, but his Olympic medals, and a vast collection of anime-themed headbands, make him stand out.`\
 https://nytimes.com/2024/09/14/style/kenny-bednarek-headbands.html
-
-**Should a ‘Diverse’ Campus Mean More Conservatives?**\
-`Republicans are demanding colleges embrace “viewpoint diversity.” They aren’t the only ones who are concerned.`\
-https://nytimes.com/2024/09/14/arts/viewpoint-diversity-universities-conservatives.html
 
