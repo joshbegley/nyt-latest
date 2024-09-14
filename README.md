@@ -1,3 +1,7 @@
+**The Briefing: Southampton 0 Manchester United 3 - Rashford off the mark, Onana's double save and glimpses from Zirkzee**\
+`The key talking points from Saturday's Premier League encounter at St Mary's `\
+https://nytimes.com/athletic/5757767/2024/09/14/southampton-manchester-united-result-analysis/
+
 **Charles Leclerc wins Azerbaijan GP pole**\
 `It's the fourth consecutive Baku pole for the Ferrari driver. `\
 https://nytimes.com/athletic/5766757/2024/09/14/charles-leclerc-f1-pole-azerbaijan-gp/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/14/us/harris-trump-election
 **Will Ferrell in attendance for Leeds vs Burnley**\
 `Hollywood actor Will Ferrell is in attendance for Leeds United&#8217;s Championship clash against Burnley.`\
 https://nytimes.com/athletic/5766725/2024/09/14/will-ferrell-leeds-burnley/
-
-**The Organizers Are Jewish. The Cause Is Palestinian. This College Won’t Be Hosting.**\
-`An event for the magazine Jewish Currents took a surprising turn.`\
-https://nytimes.com/2024/09/14/opinion/brooklyn-college-jewish-currents-gaza-war.html
 
