@@ -1,3 +1,7 @@
+**Demi Moore Is Done With the Male Gaze**\
+`The actress discusses how her relationship to her body and fame has changed after decades in the public eye.`\
+https://nytimes.com/2024/09/14/magazine/demi-moore-interview.html
+
 **First-and-10: Ravens-Raiders key matchups and subplots, plus a prediction**\
 `How will Baltimore's defense perform against Las Vegas? And will the offensive line stand up to Maxx Crosby and the Raiders' pass rush?`\
 https://nytimes.com/athletic/5765501/2024/09/14/baltimore-ravens-las-vegas-raiders-week-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/world/americas/special-election-montreal-trudeau.
 **Three Medical Practices That Older Patients Should Question**\
 `Some treatments and procedures become routine despite lacking strong evidence to show that they’re beneficial. Recent studies have called a few  into question.`\
 https://nytimes.com/2024/09/14/health/medical-practices-treatments-patients.html
-
-**Before Every Race, a Sprinter Gets Into Character**\
-`Kenny Bednarek isn’t as flashy as some runners, but his Olympic medals, and a vast collection of anime-themed headbands, make him stand out.`\
-https://nytimes.com/2024/09/14/style/kenny-bednarek-headbands.html
 
