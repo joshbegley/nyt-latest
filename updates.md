@@ -1,4 +1,8 @@
 **Prime Tire: F1's remarkable safety car drought. Plus, inside Aston Martin's 'Project Pencil'**\
+`Also, some free-of-charge Lego puns because I like you. Welcome to Prime Tire, The Athletic’s twice-weekly F1 newsletter.`\
+https://nytimes.com/athletic/5766190/2024/09/13/f1-bottas-norris-azerbaijan-gp-prime-tire/
+
+**Prime Tire: F1's remarkable safety car drought. Plus, inside Aston Martin's 'Project Pencil'**\
 `Also, some free-of-charge Lego puns because I like you. `\
 https://nytimes.com/athletic/5766190/2024/09/13/f1-bottas-norris-azerbaijan-gp-prime-tire/
 
