@@ -1,4 +1,4 @@
-**Giants to promote Bryce Eldridge, 19, yet again, this time to Triple A**\
+**Giants to promote Bryce Eldridge, 19, to Triple-A Sacramento**\
 `Eldridge has climbed four levels this season and is expected to make one more stop — the Arizona Fall League — before the year is done.`\
 https://nytimes.com/athletic/5766541/2024/09/14/bryce-eldridge-sf-giants-triple-a-promotion/
 
