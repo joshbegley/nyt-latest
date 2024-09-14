@@ -1,3 +1,7 @@
+**Mets sketch out a plan for Kodai Senga's regular-season return**\
+`Senga could make a rehab appearance for Triple-A Syracuse by the end of next week if all goes well with his next live batting practice.`\
+https://nytimes.com/athletic/5767197/2024/09/14/mets-kodai-senga-injury-update-2/
+
 **Michigan's quarterback questions continue despite win over Arkansas State**\
 `Michigan got the win it needed with USC looming next week, but the Wolverines have plenty of questions, especially at quarterback.`\
 https://nytimes.com/athletic/5766937/2024/09/14/michigan-football-quarterback-davis-warren-alex-orji/

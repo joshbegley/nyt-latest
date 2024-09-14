@@ -1,3 +1,7 @@
+**Mets sketch out a plan for Kodai Senga's regular-season return**\
+`Senga could make a rehab appearance for Triple-A Syracuse by the end of next week if all goes well with his next live batting practice.`\
+https://nytimes.com/athletic/5767197/2024/09/14/mets-kodai-senga-injury-update-2/
+
 **Michigan's quarterback questions continue despite win over Arkansas State**\
 `Michigan got the win it needed with USC looming next week, but the Wolverines have plenty of questions, especially at quarterback.`\
 https://nytimes.com/athletic/5766937/2024/09/14/michigan-football-quarterback-davis-warren-alex-orji/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/us/politics/don-jr-trump-haitian-migrants.html
 **49ers place Christian McCaffrey on IR: Source**\
 `The soonest McCaffrey can return would be Oct. 10 against the Seattle Seahawks.`\
 https://nytimes.com/athletic/5767030/2024/09/14/christian-mccaffrey-injured-reserve-injury-sf-49ers/
-
-**Nuno 'proud' as Forest secure historic Anfield win**\
-`Nuno Espirito Santo spoke of his pride at seeing Nottingham Forest register their first win at Anfield since 1969 — and praised his players for following the tactical plan.`\
-https://nytimes.com/athletic/5767005/2024/09/14/nottingham-forest-liverpool-nuno/
 
