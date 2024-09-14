@@ -1,3 +1,7 @@
+**Trump Sticks to His Favorite Jabs at Rally in Las Vegas**\
+`The former president meandered over 80 minutes from complaints about Tuesday’s debate to elevating baseless claims that have circulated on right-wing social media.`\
+https://nytimes.com/2024/09/14/us/politics/trump-rally-las-vegas.html
+
 **Was the Yankees' win over the Red Sox their best so far? 'Pretty sick'**\
 `Aaron Judge's grand slam erased a 4-1 deficit in the seventh inning of the Yankees' 5-4 win.`\
 https://nytimes.com/athletic/5766530/2024/09/14/yankees-red-sox-aaron-judge-grand-slam/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5763944/2024/09/14/manchester-city-brentford-previe
 **It's been the Premier League for 17 years - so why is 'the Premiership' still so prevalent?**\
 `There are many more important things in the world than 'The Premiership' - but once it’s been pointed out, you can’t help but see it`\
 https://nytimes.com/athletic/5710061/2024/09/14/premier-league-the-premiership/
-
-**Police Fatally Shoot Brooklyn Man Hiding in a Bathtub**\
-`The man, Vilmond Jean Baptiste, was in an apartment in Flatbush. The police said he was wanted on a warrant from 2022 and was a person of interest in three homicides this summer.`\
-https://nytimes.com/2024/09/14/nyregion/flatbush-brooklyn-police-shooting-bathtub.html
 
