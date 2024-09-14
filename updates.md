@@ -1,3 +1,7 @@
+**Donald Trump Jr. Piles On With Racist Comments About Haitians**\
+`After former President Donald J. Trump spread debunked claims that immigrants from Haiti were eating pets, his son cast more aspersions on Haitian immigrants.`\
+https://nytimes.com/2024/09/14/us/politics/don-jr-trump-haitian-migrants.html
+
 **49ers place Christian McCaffrey on IR: Source**\
 `The soonest McCaffrey can return would be Oct. 10 against the Seattle Seahawks.`\
 https://nytimes.com/athletic/5767030/2024/09/14/christian-mccaffrey-injured-reserve-injury-sf-49ers/
