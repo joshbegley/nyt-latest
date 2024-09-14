@@ -1,3 +1,7 @@
+**Teenage phenom Connor Zilisch wins debut NASCAR Xfinity Series race**\
+`Zilisch recently turned 18 — the minimum age to be licensed to drive in the Xfinity Series, which is NASCAR’s version of Triple-A baseball.`\
+https://nytimes.com/athletic/5767347/2024/09/14/connor-zilisch-nascar-xfinity-series-debut-win/
+
 **America Ferrera and Other Celebrities Join Push to Mobilize Latino Voters**\
 `Gabriel Luna and Jessica Alba also joined a $5 million effort by the Voto Latino Foundation to encourage Latino voters to cast a ballot in November.`\
 https://nytimes.com/2024/09/14/us/politics/latino-voters-america-ferrera.html
