@@ -1,3 +1,7 @@
+**Giants to promote Bryce Eldridge, 19, to Triple-A Sacramento**\
+`Eldridge has climbed four levels this season and is expected to make one more stop — the Arizona Fall League — before the year is done.`\
+https://nytimes.com/athletic/5766541/2024/09/14/bryce-eldridge-sf-giants-triple-a-promotion/
+
 **Red Sox bullpen wastes Richard Fitts' impressive spot start in another brutal loss**\
 `The Red Sox called on Fitts at the last minute, and he delivered over five innings, but the bullpen once again couldn't finish the job.`\
 https://nytimes.com/athletic/5766520/2024/09/14/red-sox-bullpen-woes-richard-fitts/
