@@ -1,3 +1,7 @@
+**Here’s what to expect.**\
+`By John Koblin`\
+https://nytimes.com/2024/09/14/arts/television/heres-what-to-expect.html
+
 **‘Nothing Left’: As California Fires Burn, Some Residents Begin to Mourn Lost Homes**\
 `Firefighters are making progress against the Bridge, Line and Airport fires to prevent more destruction, but for some, the damage is done.`\
 https://nytimes.com/2024/09/14/us/california-fires-homes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767130/2024/09/14/gerrrit-cole-yankees-rafael-deve
 **As Alabama confirmed Playoff expectations, Wisconsin showed it's still a long way off**\
 `What No. 4 Alabama's 42-10 blowout win at Wisconsin said about the Crimson Tide under Kalen DeBoer and Badgers under Luke Fickell.`\
 https://nytimes.com/athletic/5767110/2024/09/14/alabama-wisconsin-score-college-football-deboer/
-
-**Duran can be one of the best strikers in the world - Martinez**\
-`Emiliano Martinez believes Jhon Duran can become &#8220;one of the best strikers in the world&#8221; after the 20-year-old scored the winner in Aston Villa&#8217;s 3-2 victory against Everton on Saturday evening.`\
-https://nytimes.com/athletic/5767145/2024/09/14/jhon-duran-aston-villa-emiliano-martinez/
 
