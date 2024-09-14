@@ -1,11 +1,3 @@
-**How Tigers' lefty Brant Hurter turned a mechanical tweak into a no-hit bid**\
-`On July 21, Brant Hurter had a 6.44 ERA in Triple A. Friday, he led the Tigers' near no-hitter. `\
-https://nytimes.com/athletic/5766388/2024/09/13/detroit-tigers-brant-hurter-no-hitter-bid/
-
-**In Mets' throttling of Phillies, Brandon Nimmo makes the adjustment**\
-`Nimmo hit a three-run homer in the Mets' 11-3 win over the first-place Phillies on Friday.`\
-https://nytimes.com/athletic/5766381/2024/09/13/mets-phillies-brandon-nimmo/
-
 **Mets star Francisco Lindor 'day to day' after leaving game with sore back**\
 `New York's shortstop said he jammed his back stepping on second base when trying to leg out a double.`\
 https://nytimes.com/athletic/5766412/2024/09/13/mets-francisco-lindor-back-injury/
@@ -37,4 +29,12 @@ https://nytimes.com/2024/09/13/us/maui-lahaina-fire-attorney-general.html
 **Corrections: Sept. 14, 2024**\
 `Corrections that appeared in print on Saturday, Sept. 14, 2024.`\
 https://nytimes.com/2024/09/13/pageoneplus/corrections-sept-14-2024.html
+
+**Caitlin Clark sets WNBA single-season assists record**\
+`The records keep on coming for the Indiana Fever rookie guard.`\
+https://nytimes.com/athletic/5765274/2024/09/13/clark-wnba-single-season-assists-record/
+
+**Who Is Laura Loomer, the Far-Right Activist Who Traveled With Trump?**\
+`After fellow Republicans criticized her appearance on the trail, noting her history of offensive remarks, former President Donald J. Trump praised her but later said he disagreed with some of her statements.`\
+https://nytimes.com/2024/09/13/us/politics/who-is-laura-loomer.html
 
