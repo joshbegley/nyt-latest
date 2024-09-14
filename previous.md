@@ -1,3 +1,7 @@
+**Disney and DirecTV Reach Deal, Ending ESPN Blackout**\
+`The agreement ends a two-week dispute that had prevented many of DirecTV’s 11 million customers from watching programs like Monday Night Football.`\
+https://nytimes.com/2024/09/14/business/media/directv-disney-agreement.html
+
 **Disney, DirecTV strike deal to restore ESPN**\
 `The companies are working "to finalize a new, multiyear contract" and noted the timing of Saturday's college football Week 3 action.`\
 https://nytimes.com/athletic/5766776/2024/09/14/disney-directv-new-deal-espn-college-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/business/dealbook/betting-elections-odds.html
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/14/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Campaigns Look to Build on Momentum From a Busy Week**\
-`Vice President Kamala Harris, who has been in the battleground states of North Carolina and Pennsylvania the past two days, has engagements in the nation’s capital. Former President Donald J. Trump, fresh off a rally in Nevada, plans to visit Salt Lake City.`\
-https://nytimes.com/live/2024/09/14/us/harris-trump-election
 

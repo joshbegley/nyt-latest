@@ -1,3 +1,7 @@
+**Disney and DirecTV Reach Deal, Ending ESPN Blackout**\
+`The agreement ends a two-week dispute that had prevented many of DirecTV’s 11 million customers from watching programs like Monday Night Football.`\
+https://nytimes.com/2024/09/14/business/media/directv-disney-agreement.html
+
 **Disney, DirecTV strike deal to restore ESPN**\
 `The companies are working "to finalize a new, multiyear contract" and noted the timing of Saturday's college football Week 3 action.`\
 https://nytimes.com/athletic/5766776/2024/09/14/disney-directv-new-deal-espn-college-football/
