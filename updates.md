@@ -1,3 +1,19 @@
+**Paraguay Loves Mickey, the Cartoon Mouse. Just Don’t Mention the D Word.**\
+`Mickey, a homegrown food-packaging company, is famous for facing down Disney in Paraguay’s Supreme Court. As the family business turns 90, why is it still so popular?`\
+https://nytimes.com/2024/09/14/world/americas/paraguay-mickey-mouse-disney.html
+
+**Quote of the Day: They Can’t Stay This Bad Forever. Right?**\
+`Quotation of the Day for Saturday, September 14, 2024.`\
+https://nytimes.com/2024/09/14/pageoneplus/quote-of-the-day-they-cant-stay-this-bad-forever-right.html
+
+**Sexual Abuse Allegations Shatter a Crusading Priest’s Legacy**\
+`Abbé Pierre campaigned for decades against homelessness and poverty. Revelations about his treatment of women have destroyed his image as a symbol of virtue in France.`\
+https://nytimes.com/2024/09/14/world/europe/abbe-pierre-sexual-abuse-france.html
+
+**Liverpool vs Forest preview: Storylines, odds, prediction as Reds try to maintain perfect start**\
+`Liverpool have had a perfect start to the Premier League season and are heavily favored to keep that run going against Nottingham Forest.`\
+https://nytimes.com/athletic/5763001/2024/09/14/liverpool-nottingham-forest-preview-odds-prediction/
+
 **Will Tetairoa McMillan be 2025 NFL Draft's WR1? Even in blowout loss, he looks the part**\
 `Arizona couldn't keep up with Kansas State, but McMillan put together another big night in his quest to be the 2025 NFL Draft's top WR.`\
 https://nytimes.com/athletic/5766374/2024/09/13/tetairoa-mcmillan-2025-nfl-draft-scouting-report/

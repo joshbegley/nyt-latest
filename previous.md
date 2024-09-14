@@ -1,3 +1,19 @@
+**Paraguay Loves Mickey, the Cartoon Mouse. Just Don’t Mention the D Word.**\
+`Mickey, a homegrown food-packaging company, is famous for facing down Disney in Paraguay’s Supreme Court. As the family business turns 90, why is it still so popular?`\
+https://nytimes.com/2024/09/14/world/americas/paraguay-mickey-mouse-disney.html
+
+**Quote of the Day: They Can’t Stay This Bad Forever. Right?**\
+`Quotation of the Day for Saturday, September 14, 2024.`\
+https://nytimes.com/2024/09/14/pageoneplus/quote-of-the-day-they-cant-stay-this-bad-forever-right.html
+
+**Sexual Abuse Allegations Shatter a Crusading Priest’s Legacy**\
+`Abbé Pierre campaigned for decades against homelessness and poverty. Revelations about his treatment of women have destroyed his image as a symbol of virtue in France.`\
+https://nytimes.com/2024/09/14/world/europe/abbe-pierre-sexual-abuse-france.html
+
+**Liverpool vs Forest preview: Storylines, odds, prediction as Reds try to maintain perfect start**\
+`Liverpool have had a perfect start to the Premier League season and are heavily favored to keep that run going against Nottingham Forest.`\
+https://nytimes.com/athletic/5763001/2024/09/14/liverpool-nottingham-forest-preview-odds-prediction/
+
 **Will Tetairoa McMillan be 2025 NFL Draft's WR1? Even in blowout loss, he looks the part**\
 `Arizona couldn't keep up with Kansas State, but McMillan put together another big night in his quest to be the 2025 NFL Draft's top WR.`\
 https://nytimes.com/athletic/5766374/2024/09/13/tetairoa-mcmillan-2025-nfl-draft-scouting-report/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5766375/2024/09/13/phillies-aaron-nola-postseason-r
 **White Sox watch: Shutout loss puts Chicago within six losses of MLB record**\
 `The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
 https://nytimes.com/athletic/5734497/2024/09/13/white-sox-watch-most-losses-season/
-
-**Interjection of Interest**\
-`Christina Iverson presents a clean and cozy themeless puzzle.`\
-https://nytimes.com/2024/09/13/crosswords/daily-puzzle-2024-09-14.html
-
-**Tracking Investigations In Eric Adams’s Orbit**\
-`Several federal corruption inquiries have reached into the world of Mayor Eric Adams of New York, who faces re-election next year. Here is a closer look at how people with ties to Adams are related to the inquiries.`\
-https://nytimes.com/interactive/2024/nyregion/eric-adams-investigations.html
-
-**Sweeping Iraq Raid Killed 4 ISIS Leaders**\
-`The U.S. military said those killed in a joint assault by U.S. and Iraqi forces last month included the group’s top commander in Iraq and its leading bomb maker.`\
-https://nytimes.com/2024/09/13/us/politics/iraq-raid-isis-leaders-killed.html
-
-**No Criminal Charges Expected in Aftermath of Maui Wildfire**\
-`Hawaii’s attorney general released the latest findings on the 2023 fire that destroyed much of the town of Lahaina, finding a range of shortcomings in the response.`\
-https://nytimes.com/2024/09/13/us/maui-lahaina-fire-attorney-general.html
 
