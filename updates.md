@@ -1,3 +1,7 @@
+**Sweeping Iraq Raid Killed 4 ISIS Leaders**\
+`The U.S. military said those killed in a joint assault by U.S. and Iraqi forces last month included the group’s leading bomb maker and its head of operations in Iraq.`\
+https://nytimes.com/2024/09/13/us/politics/iraq-raid-isis-leaders-killed.html
+
 **No Criminal Charges Expected in Aftermath of Maui Wildfire**\
 `Hawaii’s attorney general released the latest findings on the 2023 fire that destroyed much of the town of Lahaina, finding a range of shortcomings in the response.`\
 https://nytimes.com/2024/09/13/us/maui-lahaina-fire-attorney-general.html
