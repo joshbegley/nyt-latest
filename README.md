@@ -1,3 +1,7 @@
+**America Ferrera and Other Celebrities Join Push to Mobilize Latino Voters**\
+`Gabriel Luna and Jessica Alba also joined a $5 million effort by the Voto Latino Foundation to encourage Latino voters to cast a ballot in November.`\
+https://nytimes.com/2024/09/14/us/politics/latino-voters-america-ferrera.html
+
 **Dodgers' Tyler Glasnow 'highly unlikely' to pitch again with sprained elbow**\
 `Glasnow will be shut down indefinitely from throwing.`\
 https://nytimes.com/athletic/5767315/2024/09/14/tyler-glasnow-elbow-injury-la-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758307/2024/09/14/bournemouth-chelsea-premier-leag
 **Was LSU's comeback against South Carolina a season-saving win?**\
 `South Carolina jumped out to a 17-0 lead against No. 16 LSU, but Brian Kelly's Tigers denied Shane Beamer a signature win with a comeback.`\
 https://nytimes.com/athletic/5767219/2024/09/14/lsu-south-carolina-garrett-nusssmeier-brian-kelly/
-
-**Sangare set for two months out with hamstring injury**\
-`Nottingham Forest midfielder Ibrahim Sangare is expected to be sidelined for at least two months with a hamstring injury.`\
-https://nytimes.com/athletic/5767227/2024/09/14/ibrahim-sangare-forest-injury/
 
