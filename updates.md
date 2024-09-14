@@ -1,3 +1,19 @@
+**Ian Happ on the Cubs’ direction, hitting at Wrigley Field and handling a game of failure**\
+`"The ballpark metrics have it as the second-worst homer park in the league and the second-worst doubles park in the league," Happ said.`\
+https://nytimes.com/athletic/5766466/2024/09/14/cubs-ian-happ-wrigley-field/
+
+**Churchill, Abducted From Canada, Is Found Glowering in Italy**\
+`The theft of an iconic Churchill portrait by Yousuf Karsh went unnoticed for months. But two years later, the police have tracked down the photograph.`\
+https://nytimes.com/2024/09/14/world/canada/stolen-churchill-photo-recovered.html
+
+**The Connections Companion No. 462**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 15, 2024.`\
+https://nytimes.com/2024/09/14/crosswords/connections-companion-462.html
+
+**Wordle Review No. 1,184**\
+`Scroll down for hints and conversation about the puzzle for Sunday, September 15, 2024.`\
+https://nytimes.com/2024/09/14/crosswords/wordle-review-1184.html
+
 **At Funeral in Turkey, Family Mourns American Activist Killed by Israeli Gunfire**\
 `The father of Aysenur Ezgi Eygi, a dual citizen of Turkey and the United States, said that Washington had not done enough to pressure Israel over her death.`\
 https://nytimes.com/2024/09/14/world/middleeast/turkey-us-activist-killed-israel-west-bank.html
