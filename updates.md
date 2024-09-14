@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 0 Nottingham Forest 1 - Hudson-Odoi strikes to end Slot's fine start**\
+`Liverpool suffered a shock defeat by Nottingham Forest at Anfield - here are the key talking points`\
+https://nytimes.com/athletic/5757768/2024/09/14/liverpool-nottingham-forest-hudson-odoi/
+
 **The Briefing: Manchester City 2 Brentford 1 - Visitors score after 22 seconds but Erling Haaland is unstoppable**\
 `Mark Critchley breaks down the key talking points from Saturday's game at the Etihad`\
 https://nytimes.com/athletic/5758175/2024/09/14/manchester-city-brentford-result-analysis/
