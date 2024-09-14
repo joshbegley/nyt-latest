@@ -1,3 +1,19 @@
+**Arsenal gambled going into the season with a leaner squad - has it backfired already?**\
+`The injury sustained by Martin Odegaard in Norway, coupled with other absentees, has left Arsenal feeling fragile with difficult games ahead`\
+https://nytimes.com/athletic/5765103/2024/09/14/arsenal-odegaard-arteta-tottenham/
+
+**The most interesting thing about your Premier League club's 25-man squad**\
+`We analyse the inclusions - and exclusions - of most significance in the Premier League's squad lists for 2024-25`\
+https://nytimes.com/athletic/5765225/2024/09/14/premier-league-squads-2024-25-season/
+
+**Quasimodos, mocked cyclists and The Donkey: The origins of Italian football club nicknames**\
+`Rivalries in Italy take the country’s flair for nicknames to tender and tasty places`\
+https://nytimes.com/athletic/5750317/2024/09/14/italian-football-nicknames-serie-a/
+
+**Manchester City vs Brentford preview: Storylines, odds, prediction as City try to stay top**\
+`Manchester City's perfect start to the season is on the line when Brentford visit the Etihad. Brentford won there two years ago.`\
+https://nytimes.com/athletic/5763944/2024/09/14/manchester-city-brentford-preview-odds-prediction/
+
 **It's been the Premier League for 17 years - so why is 'the Premiership' still so prevalent?**\
 `There are many more important things in the world than 'The Premiership' - but once it’s been pointed out, you can’t help but see it`\
 https://nytimes.com/athletic/5710061/2024/09/14/premier-league-the-premiership/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/14/world/americas/paraguay-mickey-mouse-disney.html
 **Alabama at Wisconsin picks, odds, how to watch: Kalen DeBoer's first test as Bama coach**\
 `It's the first tough game on the schedule in Kalen DeBoer's Alabama tenure. The Crimson Tide are heavy favorites at Wisconsin.`\
 https://nytimes.com/athletic/5765369/2024/09/14/alabama-wisconsin-picks-odds-how-to-watch/
-
-**Quote of the Day: They Can’t Stay This Bad Forever. Right?**\
-`Quotation of the Day for Saturday, September 14, 2024.`\
-https://nytimes.com/2024/09/14/pageoneplus/quote-of-the-day-they-cant-stay-this-bad-forever-right.html
-
-**LSU at South Carolina picks, odds, how to watch: Can upstart Gamecocks pull off the upset?**\
-`South Carolina is coming off a dominant performance at Kentucky, but the Gamecocks are touchdown-underdogs at home against LSU.`\
-https://nytimes.com/athletic/5765389/2024/09/14/lsu-south-carolina-picks-odds-how-to-watch/
-
-**Sexual Abuse Allegations Shatter a Crusading Priest’s Legacy**\
-`Abbé Pierre campaigned for decades against homelessness and poverty. Revelations about his treatment of women have destroyed his image as a symbol of virtue in France.`\
-https://nytimes.com/2024/09/14/world/europe/abbe-pierre-sexual-abuse-france.html
-
-**Liverpool vs Forest preview: Storylines, odds, prediction as Reds try to maintain perfect start**\
-`Liverpool have had a perfect start to the Premier League season and are heavily favored to keep that run going against Nottingham Forest.`\
-https://nytimes.com/athletic/5763001/2024/09/14/liverpool-nottingham-forest-preview-odds-prediction/
 
