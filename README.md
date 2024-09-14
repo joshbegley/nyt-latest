@@ -1,3 +1,7 @@
+**Divided Attention**\
+`On the eve of the Emmy Awards, it’s worth taking a look at what we’re actually watching.`\
+https://nytimes.com/2024/09/14/briefing/divided-attention.html
+
 **Ian Happ on the Cubs’ direction, hitting at Wrigley Field and handling a game of failure**\
 `"The ballpark metrics have it as the second-worst homer park in the league and the second-worst doubles park in the league," Happ said.`\
 https://nytimes.com/athletic/5766466/2024/09/14/cubs-ian-happ-wrigley-field/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/magazine/demi-moore-interview.html
 **First-and-10: Ravens-Raiders key matchups and subplots, plus a prediction**\
 `How will Baltimore's defense perform against Las Vegas? And will the offensive line stand up to Maxx Crosby and the Raiders' pass rush?`\
 https://nytimes.com/athletic/5765501/2024/09/14/baltimore-ravens-las-vegas-raiders-week-2/
-
-**NFL Week 2 roundtable: Jordan Love's status, Cowboys hype and Bears-Texans**\
-`Three of our NFL insiders discuss some of Week 2's most interesting storylines.`\
-https://nytimes.com/athletic/5765848/2024/09/14/nfl-week-2-preview-storylines-jordan-love/
 
