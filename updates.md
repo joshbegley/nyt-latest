@@ -1,3 +1,7 @@
+**49ers place Christian McCaffrey on IR: Source**\
+`The soonest McCaffrey can return would be Oct. 10 against the Seattle Seahawks.`\
+https://nytimes.com/athletic/5767030/2024/09/14/christian-mccaffrey-injured-reserve-injury-sf-49ers/
+
 **Nuno 'proud' as Forest secure historic Anfield win**\
 `Nuno Espirito Santo spoke of his pride at seeing Nottingham Forest register their first win at Anfield since 1969 — and praised his players for following the tactical plan.`\
 https://nytimes.com/athletic/5767005/2024/09/14/nottingham-forest-liverpool-nuno/
