@@ -1,3 +1,7 @@
+**49ers place Christian McCaffrey on IR: Source**\
+`The soonest McCaffrey can return would be Oct. 10 against the Seattle Seahawks.`\
+https://nytimes.com/athletic/5767030/2024/09/14/christian-mccaffrey-injured-reserve-injury-sf-49ers/
+
 **Nuno 'proud' as Forest secure historic Anfield win**\
 `Nuno Espirito Santo spoke of his pride at seeing Nottingham Forest register their first win at Anfield since 1969 — and praised his players for following the tactical plan.`\
 https://nytimes.com/athletic/5767005/2024/09/14/nottingham-forest-liverpool-nuno/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/insider/a-patch-of-pride.html
 **The F1 yellow flag call that cost Lando Norris in Azerbaijan GP qualifying, explained**\
 `The yellow flag was costly for Norris and, potentially, his championship hopes.`\
 https://nytimes.com/athletic/5766837/2024/09/14/lando-norris-f1-azerbaijan-gp-qualifying-yellow-flag/
-
-**In Pennsylvania, Wary Voters Wonder if Harris Can Deliver**\
-`Economic issues including soaring rents, student loan debt, supply chain issues and a stagnant minimum wage are on their minds.`\
-https://nytimes.com/2024/09/14/us/politics/kamala-harris-pennsylvania-voters-economy.html
 
