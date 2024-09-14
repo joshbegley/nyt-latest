@@ -1,3 +1,11 @@
+**Dodgers' Tyler Glasnow 'highly unlikely' to pitch again with sprained elbow**\
+`Glasnow will be shut down indefinitely from throwing.`\
+https://nytimes.com/athletic/5767315/2024/09/14/tyler-glasnow-elbow-injury-la-dodgers/
+
+**Why Thousands of Haitians Have Settled in Springfield, Ohio**\
+`Businesses needed workers, and Haitians, many already authorized to work, heard living costs were low. But the newcomers have strained resources, and that has fueled  tension.`\
+https://nytimes.com/2024/09/14/us/haitian-migrants-springfield-ohio.html
+
 **One for the Books**\
 `Aimee Lucido's Sunday puzzle has a literary lilt.`\
 https://nytimes.com/2024/09/14/crosswords/daily-puzzle-2024-09-15.html

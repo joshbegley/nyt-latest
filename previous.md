@@ -1,3 +1,11 @@
+**Dodgers' Tyler Glasnow 'highly unlikely' to pitch again with sprained elbow**\
+`Glasnow will be shut down indefinitely from throwing.`\
+https://nytimes.com/athletic/5767315/2024/09/14/tyler-glasnow-elbow-injury-la-dodgers/
+
+**Why Thousands of Haitians Have Settled in Springfield, Ohio**\
+`Businesses needed workers, and Haitians, many already authorized to work, heard living costs were low. But the newcomers have strained resources, and that has fueled  tension.`\
+https://nytimes.com/2024/09/14/us/haitian-migrants-springfield-ohio.html
+
 **One for the Books**\
 `Aimee Lucido's Sunday puzzle has a literary lilt.`\
 https://nytimes.com/2024/09/14/crosswords/daily-puzzle-2024-09-15.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5767219/2024/09/14/lsu-south-carolina-garrett-nusss
 **Sangare set for two months out with hamstring injury**\
 `Nottingham Forest midfielder Ibrahim Sangare is expected to be sidelined for at least two months with a hamstring injury.`\
 https://nytimes.com/athletic/5767227/2024/09/14/ibrahim-sangare-forest-injury/
-
-**Mets sketch out a plan for Kodai Senga's regular-season return**\
-`Senga could make a rehab appearance for Triple-A Syracuse by the end of next week if all goes well with his next live batting practice.`\
-https://nytimes.com/athletic/5767197/2024/09/14/mets-kodai-senga-injury-update-2/
-
-**Michigan's quarterback questions continue despite win over Arkansas State**\
-`Michigan got the win it needed with USC looming next week, but the Wolverines have plenty of questions, especially at quarterback.`\
-https://nytimes.com/athletic/5766937/2024/09/14/michigan-football-quarterback-davis-warren-alex-orji/
 
