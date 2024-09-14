@@ -1,3 +1,7 @@
+**Interjection of Interest**\
+`Christina Iverson presents a clean and cozy themeless puzzle.`\
+https://nytimes.com/2024/09/13/crosswords/daily-puzzle-2024-09-14.html
+
 **Sweeping Iraq Raid Killed 4 ISIS Leaders**\
 `The U.S. military said those killed in a joint assault by U.S. and Iraqi forces last month included the group’s top commander in Iraq and its leading bomb maker.`\
 https://nytimes.com/2024/09/13/us/politics/iraq-raid-isis-leaders-killed.html

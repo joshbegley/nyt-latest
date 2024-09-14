@@ -1,3 +1,7 @@
+**Interjection of Interest**\
+`Christina Iverson presents a clean and cozy themeless puzzle.`\
+https://nytimes.com/2024/09/13/crosswords/daily-puzzle-2024-09-14.html
+
 **Tracking Investigations In Eric Adams’s Orbit**\
 `Several federal corruption inquiries have reached into the world of Mayor Eric Adams of New York, who faces re-election next year. Here is a closer look at how people with ties to Adams are related to the inquiries.`\
 https://nytimes.com/interactive/2024/nyregion/eric-adams-investigations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/us/politics/trump-california-wildfire-aid-newsom.
 **California Drug Clinic Operator Convicted in $3 Million Kickback Scheme**\
 `Casey Mahoney, 48, of Los Angeles, illegally paid “body brokers” to lure clients, a federal jury found.`\
 https://nytimes.com/2024/09/13/us/addiction-facility-illegal-kickbacks.html
-
-**Shohei Ohtani not ruled out to pitch in postseason, Dave Roberts says**\
-`The last time Shohei Ohtani pitched a game was with Los Angeles Angels in Aug. 23, 2023.`\
-https://nytimes.com/athletic/5766050/2024/09/13/shohei-ohtani-pitching-playoffs-la-dodgers/
 
