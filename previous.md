@@ -1,4 +1,4 @@
-**Was Yankees' win over Red Sox on Friday their best so far? 'Pretty sick'**\
+**Was the Yankees' win over the Red Sox their best so far? 'Pretty sick'**\
 `Aaron Judge's grand slam erased a 4-1 deficit in the seventh inning of the Yankees' 5-4 win.`\
 https://nytimes.com/athletic/5766530/2024/09/14/yankees-red-sox-aaron-judge-grand-slam/
 
