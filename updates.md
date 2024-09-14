@@ -1,3 +1,7 @@
+**Mets' star Francisco Lindor 'day-to-day' after leaving game with sore back**\
+`New York's shortstop said he jammed his back awkwardly stepping on second base when trying to leg out a double.`\
+https://nytimes.com/athletic/5766412/2024/09/13/mets-francisco-lindor-back-injury/
+
 **Aaron Nola stumbles again, leading to questions about October rotation rearrangement**\
 `Nola was unable to complete five innings for the second straight start.`\
 https://nytimes.com/athletic/5766375/2024/09/13/phillies-aaron-nola-postseason-rotation/
