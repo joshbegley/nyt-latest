@@ -1,3 +1,7 @@
+**Trump’s Proposal to End Taxes on Overtime Pay Could Cost Billions**\
+`The former president left many key details about the overtime plan unaddressed, including whether the exception would apply to the payroll taxes that fund Social Security and Medicare.`\
+https://nytimes.com/2024/09/14/business/trump-tax-overtime-pay-cost.html
+
 **Whooping cough outbreak forces Portland State cancelation**\
 `According to the Centers for Disease Control and Prevention, "Those who get these coughing fits say it's the worst cough of their lives."`\
 https://nytimes.com/athletic/5767057/2024/09/14/portland-state-football-game-cancelled-illness/
