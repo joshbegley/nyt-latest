@@ -1,3 +1,7 @@
+**The Long-Range Weapons Ukraine Wants to Use on Russia, Explained**\
+`The United States and its allies are once again considering expanding the capabilities they provide to Ukraine in its fight against Russia’s invasion.`\
+https://nytimes.com/2024/09/14/world/europe/ukraine-long-range-weapons-atacms.html
+
 **After Commissioner’s Abrupt Exit, the N.Y.P.D. Struggles to Right Itself**\
 `The new top police officer will take over an agency that Mayor Eric Adams has seeded with loyalists, who have created an atmosphere of intrigue and aggression.`\
 https://nytimes.com/2024/09/14/nyregion/nypd-commissioner-caban-adams.html

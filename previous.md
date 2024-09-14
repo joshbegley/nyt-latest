@@ -1,3 +1,7 @@
+**The Long-Range Weapons Ukraine Wants to Use on Russia, Explained**\
+`The United States and its allies are once again considering expanding the capabilities they provide to Ukraine in its fight against Russia’s invasion.`\
+https://nytimes.com/2024/09/14/world/europe/ukraine-long-range-weapons-atacms.html
+
 **After Commissioner’s Abrupt Exit, the N.Y.P.D. Struggles to Right Itself**\
 `The new top police officer will take over an agency that Mayor Eric Adams has seeded with loyalists, who have created an atmosphere of intrigue and aggression.`\
 https://nytimes.com/2024/09/14/nyregion/nypd-commissioner-caban-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766530/2024/09/14/yankees-red-sox-aaron-judge-gran
 **Braves, rookie pitcher beat Dodgers as Ozzie Albies nears return from IL**\
 `Albies hopes to rejoin the team within a week and said everything feels ready except his left-handed swing. So, he'll bat righty for a bit.`\
 https://nytimes.com/athletic/5766400/2024/09/14/braves-dodgers-ozzie-albies-nears-return/
-
-**Giants to promote Bryce Eldridge, 19, to Triple-A Sacramento**\
-`Eldridge has climbed four levels this season and is expected to make one more stop — the Arizona Fall League — before the year is done.`\
-https://nytimes.com/athletic/5766541/2024/09/14/bryce-eldridge-sf-giants-triple-a-promotion/
 
