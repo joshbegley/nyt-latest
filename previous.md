@@ -1,3 +1,15 @@
+**No Criminal Charges Expected in Aftermath of Maui Wildfire**\
+`Hawaii’s attorney general released the latest findings on the 2023 fire that destroyed much of the town of Lahaina, finding a range of shortcomings in the response.`\
+https://nytimes.com/2024/09/13/us/maui-lahaina-fire-attorney-general.html
+
+**Corrections: Sept. 14, 2024**\
+`Corrections that appeared in print on Saturday, Sept. 14, 2024.`\
+https://nytimes.com/2024/09/13/pageoneplus/corrections-sept-14-2024.html
+
+**Caitlin Clark sets WNBA single-season assists record**\
+`The records keep on coming for the Indiana Fever rookie guard.`\
+https://nytimes.com/athletic/5765274/2024/09/13/clark-wnba-single-season-assists-record/
+
 **Who Is Laura Loomer, the Far-Right Activist Who Traveled With Trump?**\
 `After fellow Republicans criticized her appearance on the trail, noting her history of offensive remarks, former President Donald J. Trump praised her but later said he disagreed with some of her statements.`\
 https://nytimes.com/2024/09/13/us/politics/who-is-laura-loomer.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5766170/2024/09/13/mets-dedniel-nunez-injury/
 **Tyler Glasnow suffers elbow setback: 'It's unfortunate'**\
 `In 22 starts, Glasnow has thrown 168 strikeouts with 3.49 ERA.`\
 https://nytimes.com/athletic/5766031/2024/09/13/tyler-glasnow-injury-setback-la-dodgers/
-
-**Yankees' DJ LeMahieu (right hip) hopes to play again in 2024**\
-`Injuries have been a major nuisance for LeMahieu in recent seasons, particularly following the pandemic-shortened 2020 season.`\
-https://nytimes.com/athletic/5766130/2024/09/13/dj-lemahieu-injury-status-yankees/
-
-**Sentence for Paramedic Convicted in Elijah McClain’s Death Reduced to Probation**\
-`Peter Cichuniec was sentenced in March to five years in prison. On Friday, a judge said he reduced the sentence because of “unusual and extenuating circumstances.”`\
-https://nytimes.com/2024/09/13/us/elijah-mcclain-paramedic-probation.html
-
-**Southampton vs Man United preview: Storylines, odds, prediction as United look to end skid**\
-`Manchester United have had a slow start to the Premier League season, but Southampton have lost all three matches so far.`\
-https://nytimes.com/athletic/5763836/2024/09/13/southampton-manchester-united-preview-odds-prediction/
 

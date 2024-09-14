@@ -1,3 +1,15 @@
+**No Criminal Charges Expected in Aftermath of Maui Wildfire**\
+`Hawaii’s attorney general released the latest findings on the 2023 fire that destroyed much of the town of Lahaina, finding a range of shortcomings in the response.`\
+https://nytimes.com/2024/09/13/us/maui-lahaina-fire-attorney-general.html
+
+**Corrections: Sept. 14, 2024**\
+`Corrections that appeared in print on Saturday, Sept. 14, 2024.`\
+https://nytimes.com/2024/09/13/pageoneplus/corrections-sept-14-2024.html
+
+**Caitlin Clark sets WNBA single-season assists record**\
+`The records keep on coming for the Indiana Fever rookie guard.`\
+https://nytimes.com/athletic/5765274/2024/09/13/clark-wnba-single-season-assists-record/
+
 **Who Is Laura Loomer, the Far-Right Activist Who Traveled With Trump?**\
 `After fellow Republicans criticized her appearance on the trail, noting her history of offensive remarks, former President Donald J. Trump praised her but later said he disagreed with some of her statements.`\
 https://nytimes.com/2024/09/13/us/politics/who-is-laura-loomer.html
