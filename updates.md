@@ -1,3 +1,7 @@
+**Charles Leclerc wins Azerbaijan GP pole**\
+`It's the fourth consecutive Baku pole for the Ferrari driver. `\
+https://nytimes.com/athletic/5766757/2024/09/14/charles-leclerc-f1-pole-azerbaijan-gp/
+
 **K-State has a potential star in QB Avery Johnson, who beat Arizona with his arm and legs**\
 `This college football season is still sorting itself out. Yet, Kansas State played like a strong Big 12 contender Friday night.`\
 https://nytimes.com/athletic/5766695/2024/09/14/kansas-state-avery-johnson-quarterback-arizona/
