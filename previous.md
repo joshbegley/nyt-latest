@@ -1,3 +1,7 @@
+**Sangare set for two months out with hamstring injury**\
+`Nottingham Forest midfielder Ibrahim Sangare is expected to be sidelined for at least two months with a hamstring injury.`\
+https://nytimes.com/athletic/5767227/2024/09/14/ibrahim-sangare-forest-injury/
+
 **Mets sketch out a plan for Kodai Senga's regular-season return**\
 `Senga could make a rehab appearance for Triple-A Syracuse by the end of next week if all goes well with his next live batting practice.`\
 https://nytimes.com/athletic/5767197/2024/09/14/mets-kodai-senga-injury-update-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767057/2024/09/14/portland-state-football-game-can
 **Donald Trump Jr. Piles On With Racist Comments About Haitians**\
 `After former President Donald J. Trump spread debunked claims that immigrants from Haiti were eating pets, his son cast more aspersions on Haitian immigrants.`\
 https://nytimes.com/2024/09/14/us/politics/don-jr-trump-haitian-migrants.html
-
-**49ers place Christian McCaffrey on IR**\
-`The soonest McCaffrey can return would be Oct. 10 against the Seattle Seahawks.`\
-https://nytimes.com/athletic/5767030/2024/09/14/christian-mccaffrey-injured-reserve-injury-sf-49ers/
 
