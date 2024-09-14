@@ -1,3 +1,7 @@
+**Giants to promote Bryce Eldridge, 19, yet again, this time to Triple A**\
+`Eldridge has climbed four levels this season and is expected to make one more stop — the Arizona Fall League — before the year is done.`\
+https://nytimes.com/athletic/5766541/2024/09/14/bryce-eldridge-sf-giants-triple-a-promotion/
+
 **Red Sox bullpen wastes Richard Fitts' impressive spot start in another brutal loss**\
 `The Red Sox called on Fitts at the last minute, and he delivered over five innings, but the bullpen once again couldn't finish the job.`\
 https://nytimes.com/athletic/5766520/2024/09/14/red-sox-bullpen-woes-richard-fitts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5765367/2024/09/14/13-insights-fantasy-football-wee
 **How do Premier League teams kick off games in 2024-25?**\
 `How a team get play underway at the start of a match or a second half is an increasingly-rehearsed part of their overall tactical plan `\
 https://nytimes.com/athletic/5762182/2024/09/14/how-premier-league-teams-kick-off/
-
-**Paraguay Loves Mickey, the Cartoon Mouse. Just Don’t Mention the D Word.**\
-`Mickey, a homegrown food-packaging company, is famous for facing down Disney in Paraguay’s Supreme Court. As the family business turns 90, why is it still so popular?`\
-https://nytimes.com/2024/09/14/world/americas/paraguay-mickey-mouse-disney.html
 
