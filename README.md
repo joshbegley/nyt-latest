@@ -1,3 +1,7 @@
+**What I'm Hearing: Jordan Love’s timeline, what’s next with Watson, Cousins’ struggles**\
+`Plus, Justin Fields’ next shot, Ja'Marr Chase and the Bengals’ vibes heading to K.C., the Tua effect and more.`\
+https://nytimes.com/athletic/5766347/2024/09/14/jordan-love-return-deshaun-watson-lawsuit-kirk-cousins-struggles/
+
 **Mets calling up Luisangel Acuña, brother of Ronald**\
 `The Mets acquired Acuña, younger brother of Atlanta Braves star Ronald Acuña, in July 2023 when they offloaded Max Scherzer to the Rangers.`\
 https://nytimes.com/athletic/5766802/2024/09/14/mets-luisangel-acuna-call-up/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766206/2024/09/14/naomi-osaka-coach-fissette-moura
 **Jonathon Cooper is breaking out, 3 years after his heart put his NFL dream in doubt**\
 `The fourth-year linebacker had two sacks in Denver's season opener and could just be getting started.`\
 https://nytimes.com/athletic/5764881/2024/09/14/denver-broncos-jonathon-cooper-nfl/
-
-**Should Betting on Elections Be Legal?**\
-`Election wagers have long been banned in the United States. But for a brief period on Thursday, a regulated prediction market was permitted to offer them to Americans.`\
-https://nytimes.com/2024/09/14/business/dealbook/betting-elections-odds.html
 
