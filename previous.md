@@ -1,3 +1,7 @@
+**Was Yankees' win over Red Sox on Friday their best so far? 'Pretty sick'**\
+`Aaron Judge's grand slam erased a 4-1 deficit in the seventh inning of the Yankees' 5-4 win.`\
+https://nytimes.com/athletic/5766530/2024/09/14/yankees-red-sox-aaron-judge-grand-slam/
+
 **Braves, rookie pitcher beat Dodgers as Ozzie Albies nears return from IL**\
 `Albies hopes to rejoin the team within a week and said everything feels ready except his left-handed swing. So, he'll bat righty for a bit.`\
 https://nytimes.com/athletic/5766400/2024/09/14/braves-dodgers-ozzie-albies-nears-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5710061/2024/09/14/premier-league-the-premiership/
 **Police Fatally Shoot Brooklyn Man Hiding in a Bathtub**\
 `The man, Vilmond Jean Baptiste, was in an apartment in Flatbush. The police said he was wanted on a warrant from 2022 and was a person of interest in three homicides this summer.`\
 https://nytimes.com/2024/09/14/nyregion/flatbush-brooklyn-police-shooting-bathtub.html
-
-**13 insights fantasy football managers need to know ahead of Week 2**\
-`According to Theo Gremminger, J.K. Dobbins is the feel-good story of the early season, as he shares insights on 13 players ahead of Week 2.`\
-https://nytimes.com/athletic/5765367/2024/09/14/13-insights-fantasy-football-week-2-need-to-knows/
 
