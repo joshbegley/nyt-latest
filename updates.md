@@ -1,3 +1,7 @@
+**Where did Notre Dame's rout of Purdue come from? Takeaways after a 66-7 win**\
+`One week after a devastating loss to NIU, Notre Dame dominated Purdue in all phases, behind Riley Leonard's running and big plays on defense`\
+https://nytimes.com/athletic/5767335/2024/09/14/notre-dame-purdue-score-riley-leonard/
+
 **Tottenham vs Arsenal preview: Storylines, odds, prediction for North London derby**\
 `Tottenham host Arsenal in the first North London Derby of the season. Both teams failed to win last time out, will one bounce back?`\
 https://nytimes.com/athletic/5760663/2024/09/14/tottenham-arsenal-preview-odds-prediction/
