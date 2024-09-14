@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2024/nyregion/eric-adams-investigations.html
 
 **Sweeping Iraq Raid Killed 4 ISIS Leaders**\
-`The U.S. military said those killed in a joint assault by U.S. and Iraqi forces last month included the group’s leading bomb maker and its head of operations in Iraq.`\
+`The U.S. military said those killed in a joint assault by U.S. and Iraqi forces last month included the group’s top commander in Iraq and its leading bomb maker.`\
 https://nytimes.com/2024/09/13/us/politics/iraq-raid-isis-leaders-killed.html
 
 **No Criminal Charges Expected in Aftermath of Maui Wildfire**\
