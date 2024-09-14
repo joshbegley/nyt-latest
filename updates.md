@@ -1,3 +1,15 @@
+**In Pennsylvania, Wary Voters Wonder if Harris Can Deliver**\
+`Economic issues including soaring rents, student loan debt, supply chain issues and a stagnant minimum wage are on their minds.`\
+https://nytimes.com/2024/09/14/us/politics/kamala-harris-pennsylvania-voters-economy.html
+
+**The Plum Torte**\
+`Seven ingredients, five stars, 14,000 ratings and 41 years of being a stone-cold, stone-fruit classic.`\
+https://nytimes.com/2024/09/14/dining/plum-torte.html
+
+**JD Vance’s Blood-and-Soil Nationalism Finds Its Target**\
+`The Ohio senator’s anti-Haitian lies are putting people in danger.`\
+https://nytimes.com/2024/09/14/opinion/jd-vance-haiti-ohio-immigrants.html
+
 **Ending the Boeing Strike Won’t Be Easy. Here’s Why.**\
 `The vehemence of workers over wages and other issues caught the company and union leaders off guard.`\
 https://nytimes.com/2024/09/14/business/economy/boeing-strike-union.html

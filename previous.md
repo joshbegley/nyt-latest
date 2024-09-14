@@ -1,3 +1,15 @@
+**In Pennsylvania, Wary Voters Wonder if Harris Can Deliver**\
+`Economic issues including soaring rents, student loan debt, supply chain issues and a stagnant minimum wage are on their minds.`\
+https://nytimes.com/2024/09/14/us/politics/kamala-harris-pennsylvania-voters-economy.html
+
+**The Plum Torte**\
+`Seven ingredients, five stars, 14,000 ratings and 41 years of being a stone-cold, stone-fruit classic.`\
+https://nytimes.com/2024/09/14/dining/plum-torte.html
+
+**JD Vance’s Blood-and-Soil Nationalism Finds Its Target**\
+`The Ohio senator’s anti-Haitian lies are putting people in danger.`\
+https://nytimes.com/2024/09/14/opinion/jd-vance-haiti-ohio-immigrants.html
+
 **Ending the Boeing Strike Won’t Be Easy. Here’s Why.**\
 `The vehemence of workers over wages and other issues caught the company and union leaders off guard.`\
 https://nytimes.com/2024/09/14/business/economy/boeing-strike-union.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5757767/2024/09/14/southampton-manchester-united-re
 **Charles Leclerc wins Azerbaijan GP pole**\
 `It's the fourth consecutive Baku pole for the Ferrari driver. `\
 https://nytimes.com/athletic/5766757/2024/09/14/charles-leclerc-f1-pole-azerbaijan-gp/
-
-**K-State has a potential star in QB Avery Johnson, who beat Arizona with his arm and legs**\
-`This college football season is still sorting itself out. Yet, Kansas State played like a strong Big 12 contender Friday night.`\
-https://nytimes.com/athletic/5766695/2024/09/14/kansas-state-avery-johnson-quarterback-arizona/
-
-**Sean O'Malley, Merab Dvalishvili set for clash of contrasts inside the Sphere for UFC 306**\
-`UFC bantamweight champion Sean O'Malley and title challenger Merab Dvalishvili couldn’t have taken more different paths to reach UFC 306.`\
-https://nytimes.com/athletic/5761519/2024/09/14/ufc-306-sean-omalley-merab-dvalishvili-preview/
-
-**Naomi Osaka splits with coach Wim Fissette**\
-`The former world No. 1 and four-time Grand Slam champion appears to want results to go with her comeback progress.`\
-https://nytimes.com/athletic/5766206/2024/09/14/naomi-osaka-coach-fissette-mouratoglou/
 
