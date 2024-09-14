@@ -1,3 +1,7 @@
+**Leeds' unbeaten start ends, Ferrell watches and what next for Elland Road?**\
+`Richard Sutcliffe considers the main talking poins from Leeds' 1-0 home loss to Burnley`\
+https://nytimes.com/athletic/5764858/2024/09/14/leeds-burnley-will-ferrell/
+
 **Wisconsin's Van Dyke carted off vs. Alabama**\
 `Backup quarterback Braedyn Locke replaced Van Dyke, and the Badgers kicked a field goal on the opening drive.`\
 https://nytimes.com/athletic/5766985/2024/09/14/wisconsin-tyler-van-dyke-knee-injury/
