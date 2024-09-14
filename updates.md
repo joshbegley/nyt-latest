@@ -1,3 +1,11 @@
+**Phillies remind Mets what they still lack as Bryce Harper puts on power display**\
+`The Mets have shown that they can play with anybody, but their lack of top-end talent compared to the Phillies was evident on Saturday.`\
+https://nytimes.com/athletic/5767485/2024/09/14/mets-loss-phillies-elite-talent/
+
+**Solheim Cup Sunday pairings, tee times announced: USA has strong lead**\
+`The United States must win 4.5 points to win the Solheim Cup for the first time since 2017.`\
+https://nytimes.com/athletic/5767417/2024/09/14/solheim-cup-sunday-pairings-tee-times-usa-lead/
+
 **Solheim Cup Sunday pairings, tee times announced: USA has strong lead**\
 `This may be the Solheim Cup, but the Europeans spent Saturday afternoon name-checking Medinah.`\
 https://nytimes.com/athletic/5767417/2024/09/14/solheim-cup-sunday-pairings-tee-times-usa-lead/

@@ -1,5 +1,9 @@
+**Phillies remind Mets what they still lack as Bryce Harper puts on power display**\
+`The Mets have shown that they can play with anybody, but their lack of top-end talent compared to the Phillies was evident on Saturday.`\
+https://nytimes.com/athletic/5767485/2024/09/14/mets-loss-phillies-elite-talent/
+
 **Solheim Cup Sunday pairings, tee times announced: USA has strong lead**\
-`This may be the Solheim Cup, but the Europeans spent Saturday afternoon name-checking Medinah.`\
+`The United States must win 4.5 points to win the Solheim Cup for the first time since 2017.`\
 https://nytimes.com/athletic/5767417/2024/09/14/solheim-cup-sunday-pairings-tee-times-usa-lead/
 
 **Red Sox furious with how Gerrit Cole pitched to Rafael Devers: 'He hit him on purpose'**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5760663/2024/09/14/tottenham-arsenal-preview-odds-p
 **Gerrit Cole intentionally walks Rafael Devers, then unravels: 'Clearly that was a mistake'**\
 `As good as Devers is, Cole gave him way too much credit. He showed that Devers is in his head.`\
 https://nytimes.com/athletic/5767342/2024/09/14/gerrit-cole-rafael-devers-intentional-walk/
-
-**Paris Throws a Final Olympics Bash**\
-`Tens of thousands cheered, clapped, danced and sang to celebrate French athletes and to relive, one last time, the Games that uplifted a nation.`\
-https://nytimes.com/2024/09/14/world/europe/paris-olympics-parade.html
 
