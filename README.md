@@ -1,3 +1,7 @@
+**Shoes Off. Laptops Out. Airport Tray Photo Shoot?**\
+`A new social media trend involves creatively arranging your TSA bins, and showing them off.`\
+https://nytimes.com/2024/09/14/style/airport-tray-aesthetic-tiktok-trend-tsa.html
+
 **As Ukraine Presses Its Attack in Kursk, Russia Stiffens Its Defenses**\
 `Ukrainian soldiers and military analysts say that Ukraine is largely holding on to land it seized in its incursion into Russia, but that Moscow is rushing in reinforcements and begun a counterattack.`\
 https://nytimes.com/2024/09/14/world/europe/ukraine-russia-war-kursk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/world/middleeast/libya-floods-derna.html
 **Ella Emhoff Had a Busy New York Fashion Week**\
 `As Kamala Harris prepared for a big debate, her stepdaughter graced runways and front rows. Plus: purple hiking boots, the LVMH Prize and browsing for moisturizers.`\
 https://nytimes.com/2024/09/14/style/ella-emhoff-nyfw-lvmh-prize.html
-
-**Justin Trudeau’s Party Has a Popularity Problem: Justin Trudeau**\
-`A vote in Montreal is seen as a referendum on Canada’s prime minister, who has brushed aside calls to step down as party members fear a wipeout in the next general election.`\
-https://nytimes.com/2024/09/14/world/americas/special-election-montreal-trudeau.html
 
