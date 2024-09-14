@@ -1,5 +1,5 @@
-**Mets' star Francisco Lindor 'day-to-day' after leaving game with sore back**\
-`New York's shortstop said he jammed his back awkwardly stepping on second base when trying to leg out a double.`\
+**Mets star Francisco Lindor 'day to day' after leaving game with sore back**\
+`New York's shortstop said he jammed his back stepping on second base when trying to leg out a double.`\
 https://nytimes.com/athletic/5766412/2024/09/13/mets-francisco-lindor-back-injury/
 
 **Aaron Nola stumbles again, leading to questions about October rotation rearrangement**\
