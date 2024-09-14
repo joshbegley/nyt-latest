@@ -1,3 +1,7 @@
+**Tracking Investigations In Eric Adams’s Orbit**\
+`Several federal corruption inquiries have reached into the world of Mayor Eric Adams of New York, who faces re-election next year. Here is a closer look at how people with ties to Adams are related to the inquiries.`\
+https://nytimes.com/interactive/2024/nyregion/eric-adams-investigations.html
+
 **Mets set-up man Dedniel Núñez done for the season**\
 `Núñez sustained a flexor injury in his right arm and received an injection of platelet-rich plasma.`\
 https://nytimes.com/athletic/5766170/2024/09/13/mets-dedniel-nunez-injury/
