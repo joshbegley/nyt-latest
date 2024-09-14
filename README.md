@@ -1,3 +1,7 @@
+**Who Is Laura Loomer, the Far-Right Activist Who Traveled With Trump?**\
+`After fellow Republicans criticized her appearance on the trail, noting her history of offensive remarks, former President Donald J. Trump praised her but later said he disagreed with some of her statements.`\
+https://nytimes.com/2024/09/13/us/politics/who-is-laura-loomer.html
+
 **Prime Tire: F1's remarkable safety car drought. Plus, inside Aston Martin's 'Project Pencil'**\
 `Also, some free-of-charge Lego puns because I like you. Welcome to Prime Tire, The Athletic’s twice-weekly F1 newsletter.`\
 https://nytimes.com/athletic/5766190/2024/09/13/f1-bottas-norris-azerbaijan-gp-prime-tire/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/us/elijah-mcclain-paramedic-probation.html
 **Southampton vs Man United preview: Storylines, odds, prediction as United look to end skid**\
 `Manchester United have had a slow start to the Premier League season, but Southampton have lost all three matches so far.`\
 https://nytimes.com/athletic/5763836/2024/09/13/southampton-manchester-united-preview-odds-prediction/
-
-**Missouri Bird Flu Case Raises Prospect of Human Transmission**\
-`A close contact of someone with bird flu became ill on the same day, the C.D.C. reported. But the second person was not tested, and the cause of the illness is unknown.`\
-https://nytimes.com/2024/09/13/health/bird-flu-missouri.html
 
