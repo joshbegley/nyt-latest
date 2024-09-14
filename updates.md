@@ -1,3 +1,11 @@
+**K-State has a potential star in QB Avery Johnson, who beat Arizona with his arm and legs**\
+`This college football season is still sorting itself out. Yet, Kansas State played like a strong Big 12 contender Friday night.`\
+https://nytimes.com/athletic/5766695/2024/09/14/kansas-state-avery-johnson-quarterback-arizona/
+
+**Sean O'Malley, Merab Dvalishvili set for clash of contrasts inside the Sphere for UFC 306**\
+`UFC bantamweight champion Sean O'Malley and title challenger Merab Dvalishvili couldn’t have taken more different paths to reach UFC 306.`\
+https://nytimes.com/athletic/5761519/2024/09/14/ufc-306-sean-omalley-merab-dvalishvili-preview/
+
 **Naomi Osaka splits with coach Wim Fissette**\
 `The former world No. 1 and four-time Grand Slam champion appears to want results to go with her comeback progress.`\
 https://nytimes.com/athletic/5766206/2024/09/14/naomi-osaka-coach-fissette-mouratoglou/
