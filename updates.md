@@ -1,3 +1,11 @@
+**Red Sox furious with how Gerrit Cole pitched to Rafael Devers: 'He hit him on purpose'**\
+`“Raffy got hit. They can say whatever they want,” said Alex Cora. “The intentional walk was loud and clear, ‘I don't want to face him.’"`\
+https://nytimes.com/athletic/5767412/2024/09/14/red-sox-gerrit-cole-rafael-devers-intentional-walk/
+
+**Letting Loose With Emmy Nominees in the Hollywood Hills**\
+`Celebrities including Quinta Brunson, Selma Blair and Heidi Klum toasted the awards at a Los Angeles mansion. Who said it was too soon to party again?`\
+https://nytimes.com/2024/09/14/style/emmy-party-photos.html
+
 **Lexi Thompson's Solheim Cup legacy is almost complete. Will it include another win?**\
 `USA is up 10-6 on the Europeans entering Sunday singles, with Thompson having a chance to earn an 11th Solheim Cup point.`\
 https://nytimes.com/athletic/5767459/2024/09/14/lexi-thompson-solheim-cup-usa/
