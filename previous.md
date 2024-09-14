@@ -1,3 +1,11 @@
+**Smith: Can Alabama play to its standard against Georgia?**\
+`Alabama passed its first true test of the season against Wisconsin, but next up may be its biggest: Georgia.`\
+https://nytimes.com/athletic/5767372/2024/09/14/alabama-football-wisconsin-georgia/
+
+**Where did Notre Dame's rout of Purdue come from? Takeaways after a 66-7 win**\
+`One week after a devastating loss to NIU, Notre Dame dominated Purdue in all phases, behind Riley Leonard's running and big plays on defense`\
+https://nytimes.com/athletic/5767335/2024/09/14/notre-dame-purdue-score-riley-leonard/
+
 **Tottenham vs Arsenal preview: Storylines, odds, prediction for North London derby**\
 `Tottenham host Arsenal in the first North London Derby of the season. Both teams failed to win last time out, will one bounce back?`\
 https://nytimes.com/athletic/5760663/2024/09/14/tottenham-arsenal-preview-odds-prediction/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/14/us/haitian-migrants-springfield-ohio.html
 **One for the Books**\
 `Aimee Lucido's Sunday puzzle has a literary lilt.`\
 https://nytimes.com/2024/09/14/crosswords/daily-puzzle-2024-09-15.html
-
-**Blue Jackets ready to delve back into free agency — and not for PTO players**\
-`Don Waddell said he will look to add forwards before the start of training camp.`\
-https://nytimes.com/athletic/5767188/2024/09/14/blue-jackets-camp-free-agents/
-
-**Emmy Awards: What to Expect**\
-`By John Koblin`\
-https://nytimes.com/2024/09/14/arts/television/emmy-awards-what-to-expect.html
 

@@ -1,3 +1,11 @@
+**Smith: Can Alabama play to its standard against Georgia?**\
+`Alabama passed its first true test of the season against Wisconsin, but next up may be its biggest: Georgia.`\
+https://nytimes.com/athletic/5767372/2024/09/14/alabama-football-wisconsin-georgia/
+
+**Where did Notre Dame's rout of Purdue come from? Takeaways after a 66-7 win**\
+`One week after a devastating loss to NIU, Notre Dame dominated Purdue in all phases, behind Riley Leonard's running and big plays on defense`\
+https://nytimes.com/athletic/5767335/2024/09/14/notre-dame-purdue-score-riley-leonard/
+
 **Emmy Awards: What to Expect**\
 `By John Koblin`\
 https://nytimes.com/2024/09/14/arts/television/emmy-awards-what-to-expect.html
