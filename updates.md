@@ -1,3 +1,11 @@
+**Disney, DirecTV strike deal to restore ESPN**\
+`The companies are working "to finalize a new, multiyear contract" and noted the timing of Saturday's college football Week 3 action.`\
+https://nytimes.com/athletic/5766776/2024/09/14/disney-directv-new-deal-espn-college-football/
+
+**Should Betting on Elections Be Legal?**\
+`Election wagers have long been banned in the United States. But for a brief period on Thursday, a regulated prediction market was permitted to offer them to Americans.`\
+https://nytimes.com/2024/09/14/business/dealbook/betting-elections-odds.html
+
 **The Briefing: Southampton 0 Manchester United 3 - Rashford off the mark, Onana's double save and glimpses from Zirkzee**\
 `The key talking points from Saturday's Premier League encounter at St Mary's `\
 https://nytimes.com/athletic/5757767/2024/09/14/southampton-manchester-united-result-analysis/
