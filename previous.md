@@ -1,3 +1,11 @@
+**Navarro: Florida State’s 0-3 debacle is a product of poor evaluation, development**\
+`How does a college football team go 13-0 and turn into an absolute train wreck less than a year later?`\
+https://nytimes.com/athletic/5767256/2024/09/14/florida-state-0-3-mike-norvell-memphis/
+
+**The Briefing: Bournemouth 0 Chelsea 1 - Nkunku's winner, Sancho's debut and a yellow-card record**\
+`Chelsea writers Liam Twomey and Simon Johnson analyse the key talking points from Chelsea's victory at Bournemouth`\
+https://nytimes.com/athletic/5758307/2024/09/14/bournemouth-chelsea-premier-league-analysis/
+
 **Was LSU's comeback against South Carolina a season-saving win?**\
 `South Carolina jumped out to a 17-0 lead against No. 16 LSU, but Brian Kelly's Tigers denied Shane Beamer a signature win with a comeback.`\
 https://nytimes.com/athletic/5767219/2024/09/14/lsu-south-carolina-garrett-nusssmeier-brian-kelly/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5767145/2024/09/14/jhon-duran-aston-villa-emiliano-
 **Mary McFadden, Celebrated Designer of Shimmering Dresses, Dies at 85**\
 `She took symbols from ancient cultures and translated them into intricate embroideries, beadings and paintings on clothes worn by the likes of Jacqueline Onassis.`\
 https://nytimes.com/2024/09/14/fashion/mary-mcfadden-dead.html
-
-**Trump’s Proposal to End Taxes on Overtime Pay Could Cost Billions**\
-`The former president left many key details about the overtime plan unaddressed, including whether the exception would apply to the payroll taxes that fund Social Security and Medicare.`\
-https://nytimes.com/2024/09/14/business/trump-tax-overtime-pay-cost.html
-
-**Whooping cough outbreak forces Portland State cancelation**\
-`According to the Centers for Disease Control and Prevention, "Those who get these coughing fits say it's the worst cough of their lives."`\
-https://nytimes.com/athletic/5767057/2024/09/14/portland-state-football-game-cancelled-illness/
 
