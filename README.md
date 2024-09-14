@@ -1,3 +1,31 @@
+**The Organizers Are Jewish. The Cause Is Palestinian. This College Won’t Be Hosting.**\
+`An event for the magazine Jewish Currents took a surprising turn.`\
+https://nytimes.com/2024/09/14/opinion/brooklyn-college-jewish-currents-gaza-war.html
+
+**Elizabeth Warren: Don’t Be Fooled. Donald Trump Has a Plan.**\
+`It’s to kick millions of Americans off their health insurance.`\
+https://nytimes.com/2024/09/14/opinion/warren-trump-health-care.html
+
+**Sympathy for the Undecided Voter**\
+`2024 and the dilemmas of the elite-populist deadlock.`\
+https://nytimes.com/2024/09/14/opinion/trump-harris-undecided-voter.html
+
+**After a Record-Hot Summer, Here’s a Way to Think About Climate Peril**\
+`We often focus on doomsday scenarios, but we shouldn’t let them distract us from other consequences of climate change like impaired learning, crime, suicide — even slipping off ladders.`\
+https://nytimes.com/2024/09/14/opinion/climate-change-record-hot-summer.html
+
+**The Secret Behind the TV Show Set to Sweep the Emmys**\
+`Audiences saw a hit adaptation of the Japanese story “Shogun” back in 1980. But it was very different from today’s version, and America was different then, too.`\
+https://nytimes.com/2024/09/14/opinion/shogun-tv-emmys.html
+
+**How Democrats Treat Trumpites**\
+`Readers discuss Nicholas Kristof’s column urging Democrats not to demean Trump supporters.`\
+https://nytimes.com/2024/09/14/opinion/democrats-donald-trump-voters.html
+
+**Trump Has Crossed a Truly Unacceptable Line**\
+`There is something particularly insidious about his claim that Haitian immigrants are eating household pets.`\
+https://nytimes.com/2024/09/14/opinion/trump-debate-haitians-pets.html
+
 **John Bennett informs Rangers of intention to resign**\
 `John Bennett has informed Rangers of his intention to resign as chairman of the club.`\
 https://nytimes.com/athletic/5765909/2024/09/14/john-bennett-rangers-chairman-resign/
@@ -9,32 +37,4 @@ https://nytimes.com/2024/09/14/briefing/divided-attention.html
 **Ian Happ on the Cubs’ direction, hitting at Wrigley Field and handling a game of failure**\
 `"The ballpark metrics have it as the second-worst homer park in the league and the second-worst doubles park in the league," Happ said.`\
 https://nytimes.com/athletic/5766466/2024/09/14/cubs-ian-happ-wrigley-field/
-
-**Churchill, Abducted From Canada, Is Found Glowering in Italy**\
-`The theft of an iconic Churchill portrait by Yousuf Karsh went unnoticed for months. But two years later, the police have tracked down the photograph.`\
-https://nytimes.com/2024/09/14/world/canada/stolen-churchill-photo-recovered.html
-
-**The Connections Companion No. 462**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 15, 2024.`\
-https://nytimes.com/2024/09/14/crosswords/connections-companion-462.html
-
-**Wordle Review No. 1,184**\
-`Scroll down for hints and conversation about the puzzle for Sunday, September 15, 2024.`\
-https://nytimes.com/2024/09/14/crosswords/wordle-review-1184.html
-
-**At Funeral in Turkey, Family Mourns American Activist Killed by Israeli Gunfire**\
-`The father of Aysenur Ezgi Eygi, a dual citizen of Turkey and the United States, said that Washington had not done enough to pressure Israel over her death.`\
-https://nytimes.com/2024/09/14/world/middleeast/turkey-us-activist-killed-israel-west-bank.html
-
-**Shoes Off. Laptops Out. Airport Tray Photo Shoot?**\
-`A new social media trend involves creatively arranging your TSA bins, and showing them off.`\
-https://nytimes.com/2024/09/14/style/airport-tray-aesthetic-tiktok-trend-tsa.html
-
-**As Ukraine Presses Its Attack in Kursk, Russia Stiffens Its Defenses**\
-`Ukrainian soldiers and military analysts say that Ukraine is largely holding on to land it seized in its incursion into Russia, but that Moscow is rushing in reinforcements and begun a counterattack.`\
-https://nytimes.com/2024/09/14/world/europe/ukraine-russia-war-kursk.html
-
-**Demi Moore Is Done With the Male Gaze**\
-`The actress discusses how her relationship to her body and fame has changed after decades in the public eye.`\
-https://nytimes.com/2024/09/14/magazine/demi-moore-interview.html
 

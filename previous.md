@@ -1,3 +1,7 @@
+**John Bennett informs Rangers of intention to resign**\
+`John Bennett has informed Rangers of his intention to resign as chairman of the club.`\
+https://nytimes.com/athletic/5765909/2024/09/14/john-bennett-rangers-chairman-resign/
+
 **Divided Attention**\
 `On the eve of the Emmy Awards, it’s worth taking a look at what we’re actually watching.`\
 https://nytimes.com/2024/09/14/briefing/divided-attention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/world/europe/ukraine-russia-war-kursk.html
 **Demi Moore Is Done With the Male Gaze**\
 `The actress discusses how her relationship to her body and fame has changed after decades in the public eye.`\
 https://nytimes.com/2024/09/14/magazine/demi-moore-interview.html
-
-**First-and-10: Ravens-Raiders key matchups and subplots, plus a prediction**\
-`How will Baltimore's defense perform against Las Vegas? And will the offensive line stand up to Maxx Crosby and the Raiders' pass rush?`\
-https://nytimes.com/athletic/5765501/2024/09/14/baltimore-ravens-las-vegas-raiders-week-2/
 

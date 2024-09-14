@@ -1,3 +1,7 @@
+**John Bennett informs Rangers of intention to resign**\
+`John Bennett has informed Rangers of his intention to resign as chairman of the club.`\
+https://nytimes.com/athletic/5765909/2024/09/14/john-bennett-rangers-chairman-resign/
+
 **Divided Attention**\
 `On the eve of the Emmy Awards, it’s worth taking a look at what we’re actually watching.`\
 https://nytimes.com/2024/09/14/briefing/divided-attention.html
