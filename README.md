@@ -1,3 +1,7 @@
+**Tracking Investigations In Eric Adams’s Orbit**\
+`Several federal corruption inquiries have reached into the world of Mayor Eric Adams of New York, who faces re-election next year. Here is a closer look at how people with ties to Adams are related to the inquiries.`\
+https://nytimes.com/interactive/2024/nyregion/eric-adams-investigations.html
+
 **Sweeping Iraq Raid Killed 4 ISIS Leaders**\
 `The U.S. military said those killed in a joint assault by U.S. and Iraqi forces last month included the group’s leading bomb maker and its head of operations in Iraq.`\
 https://nytimes.com/2024/09/13/us/politics/iraq-raid-isis-leaders-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/us/addiction-facility-illegal-kickbacks.html
 **Shohei Ohtani not ruled out to pitch in postseason, Dave Roberts says**\
 `The last time Shohei Ohtani pitched a game was with Los Angeles Angels in Aug. 23, 2023.`\
 https://nytimes.com/athletic/5766050/2024/09/13/shohei-ohtani-pitching-playoffs-la-dodgers/
-
-**Mets set-up man Dedniel Núñez done for the season**\
-`Núñez sustained a flexor injury in his right arm and received an injection of platelet-rich plasma.`\
-https://nytimes.com/athletic/5766170/2024/09/13/mets-dedniel-nunez-injury/
 
