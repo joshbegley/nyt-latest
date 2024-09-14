@@ -1,3 +1,15 @@
+**Should Betting on Elections Be Legal?**\
+`Election wagers have long been banned in the United States. But for a brief period on Thursday, a regulated prediction market was permitted to offer them to Americans.`\
+https://nytimes.com/2024/09/14/business/dealbook/should-betting-on-elections-be-legal.html
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/09/14/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Campaigns Look to Build on Momentum From a Busy Week**\
+`Vice President Kamala Harris, who has been in the battleground states of North Carolina and Pennsylvania the past two days, has engagements in the nation’s capital. Former President Donald J. Trump, fresh off a rally in Nevada, plans to visit Salt Lake City.`\
+https://nytimes.com/live/2024/09/14/us/harris-trump-election
+
 **Will Ferrell in attendance for Leeds vs Burnley**\
 `Hollywood actor Will Ferrell is in attendance for Leeds United&#8217;s Championship clash against Burnley.`\
 https://nytimes.com/athletic/5766725/2024/09/14/will-ferrell-leeds-burnley/
