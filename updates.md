@@ -1,3 +1,7 @@
+**Divided Attention**\
+`On the eve of the Emmy Awards, it’s worth taking a look at what we’re actually watching.`\
+https://nytimes.com/2024/09/14/briefing/divided-attention.html
+
 **Ian Happ on the Cubs’ direction, hitting at Wrigley Field and handling a game of failure**\
 `"The ballpark metrics have it as the second-worst homer park in the league and the second-worst doubles park in the league," Happ said.`\
 https://nytimes.com/athletic/5766466/2024/09/14/cubs-ian-happ-wrigley-field/
