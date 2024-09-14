@@ -1,3 +1,7 @@
+**Michigan's quarterback questions continue despite win over Arkansas State**\
+`Michigan got the win it needed with USC looming next week, but the Wolverines have plenty of questions, especially at quarterback.`\
+https://nytimes.com/athletic/5766937/2024/09/14/michigan-football-quarterback-davis-warren-alex-orji/
+
 **Gerrit Cole intentionally walks Devers then gives up 3 runs**\
 `Cole allowed a season-high seven earned runs on five hits, three walks, and three hit batsmen.`\
 https://nytimes.com/athletic/5767130/2024/09/14/gerrrit-cole-yankees-rafael-devers/
