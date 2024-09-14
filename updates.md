@@ -1,3 +1,7 @@
+**Joao Pedro rested to avoid risk of further injury - Hurzeler**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler says he did not want to take a risk with Joao Pedro&#8217;s fitness for his side&#8217;s 0-0 home draw against Ipswich Town.`\
+https://nytimes.com/athletic/5767021/2024/09/14/joao-pedro-injury-brighton/
+
 **Leeds' unbeaten start ends, Will Ferrell in the stands - and what next for Elland Road?**\
 `Richard Sutcliffe considers the main talking poins from Leeds' 1-0 home loss to Burnley`\
 https://nytimes.com/athletic/5764858/2024/09/14/leeds-burnley-will-ferrell/
