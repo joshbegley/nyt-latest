@@ -1,7 +1,3 @@
-**Mets' star Francisco Lindor 'day-to-day' after leaving game with sore back**\
-`New York's shortstop said he jammed his back awkwardly stepping on second base when trying to leg out a double.`\
-https://nytimes.com/athletic/5766412/2024/09/13/mets-francisco-lindor-back-injury/
-
 **Aaron Nola stumbles again, leading to questions about October rotation rearrangement**\
 `Nola was unable to complete five innings for the second straight start.`\
 https://nytimes.com/athletic/5766375/2024/09/13/phillies-aaron-nola-postseason-rotation/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5765274/2024/09/13/clark-wnba-single-season-assists
 **Who Is Laura Loomer, the Far-Right Activist Who Traveled With Trump?**\
 `After fellow Republicans criticized her appearance on the trail, noting her history of offensive remarks, former President Donald J. Trump praised her but later said he disagreed with some of her statements.`\
 https://nytimes.com/2024/09/13/us/politics/who-is-laura-loomer.html
+
+**Prime Tire: F1's remarkable safety car drought. Plus, inside Aston Martin's 'Project Pencil'**\
+`Also, some free-of-charge Lego puns because I like you. Welcome to Prime Tire, The Athletic’s twice-weekly F1 newsletter.`\
+https://nytimes.com/athletic/5766190/2024/09/13/f1-bottas-norris-azerbaijan-gp-prime-tire/
 
