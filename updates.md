@@ -1,3 +1,7 @@
+**Here’s what to expect.**\
+`By John Koblin`\
+https://nytimes.com/2024/09/14/arts/television/heres-what-to-expect.html
+
 **‘Nothing Left’: As California Fires Burn, Some Residents Begin to Mourn Lost Homes**\
 `Firefighters are making progress against the Bridge, Line and Airport fires to prevent more destruction, but for some, the damage is done.`\
 https://nytimes.com/2024/09/14/us/california-fires-homes.html
