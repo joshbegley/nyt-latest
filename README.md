@@ -1,3 +1,7 @@
+**Leeds' unbeaten start ends, Ferrell watches and what next for Elland Road?**\
+`Richard Sutcliffe considers the main talking poins from Leeds' 1-0 home loss to Burnley`\
+https://nytimes.com/athletic/5764858/2024/09/14/leeds-burnley-will-ferrell/
+
 **Wisconsin's Van Dyke carted off vs. Alabama**\
 `Backup quarterback Braedyn Locke replaced Van Dyke, and the Badgers kicked a field goal on the opening drive.`\
 https://nytimes.com/athletic/5766985/2024/09/14/wisconsin-tyler-van-dyke-knee-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/dining/plum-torte.html
 **JD Vance’s Blood-and-Soil Nationalism Finds Its Target**\
 `The Ohio senator’s anti-Haitian lies are putting people in danger.`\
 https://nytimes.com/2024/09/14/opinion/jd-vance-haiti-ohio-immigrants.html
-
-**Ending the Boeing Strike Won’t Be Easy. Here’s Why.**\
-`The vehemence of workers over wages and other issues caught the company and union leaders off guard.`\
-https://nytimes.com/2024/09/14/business/economy/boeing-strike-union.html
 
