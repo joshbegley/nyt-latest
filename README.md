@@ -1,3 +1,11 @@
+**Gerrit Cole intentionally walks Devers then gives up 3 runs**\
+`Cole allowed a season-high seven earned runs on five hits, three walks, and three hit batsmen.`\
+https://nytimes.com/athletic/5767130/2024/09/14/gerrrit-cole-yankees-rafael-devers/
+
+**As Alabama confirmed Playoff expectations, Wisconsin showed it's still a long way off**\
+`What No. 4 Alabama's 42-10 blowout win at Wisconsin said about the Crimson Tide under Kalen DeBoer and Badgers under Luke Fickell.`\
+https://nytimes.com/athletic/5767110/2024/09/14/alabama-wisconsin-score-college-football-deboer/
+
 **Duran can be one of the best strikers in the world - Martinez**\
 `Emiliano Martinez believes Jhon Duran can become &#8220;one of the best strikers in the world&#8221; after the 20-year-old scored the winner in Aston Villa&#8217;s 3-2 victory against Everton on Saturday evening.`\
 https://nytimes.com/athletic/5767145/2024/09/14/jhon-duran-aston-villa-emiliano-martinez/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5767005/2024/09/14/nottingham-forest-liverpool-nuno
 **Joao Pedro rested to avoid risk of further injury - Hurzeler**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler says he did not want to take a risk with Joao Pedro&#8217;s fitness for his side&#8217;s 0-0 home draw against Ipswich Town.`\
 https://nytimes.com/athletic/5767021/2024/09/14/joao-pedro-injury-brighton/
-
-**Leeds' unbeaten start ends, Will Ferrell in the stands - and what next for Elland Road?**\
-`Richard Sutcliffe considers the main talking poins from Leeds' 1-0 home loss to Burnley`\
-https://nytimes.com/athletic/5764858/2024/09/14/leeds-burnley-will-ferrell/
-
-**Wisconsin's Van Dyke carted off vs. Alabama**\
-`Backup quarterback Braedyn Locke replaced Van Dyke, and the Badgers kicked a field goal on the opening drive.`\
-https://nytimes.com/athletic/5766985/2024/09/14/wisconsin-tyler-van-dyke-knee-injury/
 
