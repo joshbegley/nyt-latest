@@ -1,3 +1,7 @@
+**‘Nothing Left’: As California Fires Burn, Some Residents Begin to Mourn Lost Homes**\
+`Firefighters are making progress against the Bridge, Line and Airport fires to prevent more destruction, but for some, the damage is done.`\
+https://nytimes.com/2024/09/14/us/california-fires-homes.html
+
 **Navarro: Florida State’s 0-3 debacle is a product of poor evaluation, development**\
 `How does a college football team go 13-0 and turn into an absolute train wreck less than a year later?`\
 https://nytimes.com/athletic/5767256/2024/09/14/florida-state-0-3-mike-norvell-memphis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767110/2024/09/14/alabama-wisconsin-score-college-
 **Duran can be one of the best strikers in the world - Martinez**\
 `Emiliano Martinez believes Jhon Duran can become &#8220;one of the best strikers in the world&#8221; after the 20-year-old scored the winner in Aston Villa&#8217;s 3-2 victory against Everton on Saturday evening.`\
 https://nytimes.com/athletic/5767145/2024/09/14/jhon-duran-aston-villa-emiliano-martinez/
-
-**Mary McFadden, Celebrated Designer of Shimmering Dresses, Dies at 85**\
-`She took symbols from ancient cultures and translated them into intricate embroideries, beadings and paintings on clothes worn by the likes of Jacqueline Onassis.`\
-https://nytimes.com/2024/09/14/fashion/mary-mcfadden-dead.html
 
