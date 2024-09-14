@@ -1,3 +1,7 @@
+**Aaron Nola stumbles again, leading to questions about October rotation rearrangement**\
+`Nola was unable to complete five innings for the second straight start.`\
+https://nytimes.com/athletic/5766375/2024/09/13/phillies-aaron-nola-postseason-rotation/
+
 **White Sox watch: Shutout loss puts Chicago within six losses of MLB record**\
 `The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
 https://nytimes.com/athletic/5734497/2024/09/13/white-sox-watch-most-losses-season/
