@@ -1,40 +1,40 @@
-**The Long-Range Weapons Ukraine Wants to Use on Russia, Explained**\
-`The United States and its allies are once again considering expanding the capabilities they provide to Ukraine in its fight against Russia’s invasion.`\
-https://nytimes.com/2024/09/14/world/europe/ukraine-long-range-weapons-atacms.html
+**A Georgia Work Program Previews How Trump Could Reshape Medicaid**\
+`The nation’s only Medicaid work program is part of a broad Republican push to change how poor people qualify for health care. In a second Trump term, Medicaid could be a target for huge spending cuts.`\
+https://nytimes.com/2024/09/14/us/politics/georgia-trump-medicaid.html
 
-**After Commissioner’s Abrupt Exit, the N.Y.P.D. Struggles to Right Itself**\
-`The new top police officer will take over an agency that Mayor Eric Adams has seeded with loyalists, who have created an atmosphere of intrigue and aggression.`\
-https://nytimes.com/2024/09/14/nyregion/nypd-commissioner-caban-adams.html
+**The Star-Making Machine That Created ‘Donald Trump’**\
+`The inside story of how the producers of “The Apprentice” crafted a TV version of Mr. Trump — measured, thoughtful and endlessly wealthy — that ultimately fueled his path to the White House.`\
+https://nytimes.com/2024/09/14/business/donald-trump-apprentice.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/14/crosswords/spelling-bee-forum.html
+**Buried for Years in an Archive, a Novel by a Master of Horror Is Out**\
+`“Pay the Piper,” a manuscript by George A. Romero, the director of classics like “Night of the Living Dead,” was incomplete. Daniel Kraus, who studied Romero’s oeuvre, gave it a fitting finish.`\
+https://nytimes.com/2024/09/14/books/booksupdate/buried-for-years-in-an-archive-a-novel-by-a-master-of-horror-is-out.html
 
-**How a 90-Year-Old Comedian Spends Her Sundays**\
-`D’yan Forest goes swimming, plays golf and then closes her day with a 10-minute set at Gotham Comedy Club that brings her a “huge sense of happiness and success.”`\
-https://nytimes.com/2024/09/14/nyregion/dyan-forest-comedian.html
+**After a Miscarriage and a High-Risk Pregnancy, Bliss in Parenting**\
+`Elizabeth Higgins Clark and Lauren Pomerantz endured quite a bit of grief after their 2018 wedding. Despite times of doubt, loneliness and loss, their relationship remained strong.`\
+https://nytimes.com/2024/09/14/style/elizabeth-higgins-clark-lauren-pomerantz-marriage-miscarriage.html
 
-**Home Sales in Flood Zones Are Booming. Here’s Why Buyers Take the Risk.**\
-`New Yorkers are spending billions on houses in flood-prone areas despite growing awareness of the effects of climate change.`\
-https://nytimes.com/2024/09/14/nyregion/new-york-home-sales-flood-zones.html
+**Today’s Parents: ‘Exhausted, Burned Out and Perpetually Behind’**\
+`Parents’ stress has become a public health concern, the U.S. surgeon general warned.`\
+https://nytimes.com/2024/09/14/upshot/parents-stress-murthy-warning.html
 
-**Astros' Yusei Kikuchi proving doubters wrong with another win**\
-`Each of Kikuchi's eight starts as an Astro has ended in a victory, the latest a 5-3 win against the Angels on Friday.`\
-https://nytimes.com/athletic/5766664/2024/09/14/yusei-kikuchi-astros-angels/
+**Secret Tapes Reveal Nixon’s Views on Marijuana**\
+`Two years after launching the war on drugs, President Richard Nixon made a startling admission during a meeting in the Oval Office.`\
+https://nytimes.com/video/us/100000009665340/secret-tapes-reveal-nixons-views-on-marijuana.html
 
-**Byron Buxton and Carlos Correa are back, but Twins' urgency grows after another loss**\
-`Ready or not, the Twins' two injured stars are returning to the lineup, and Max Kepler could also be close to joining them.`\
-https://nytimes.com/athletic/5766059/2024/09/14/byron-buxton-carlos-correa-return-twins-urgency/
+**Nixon Started the War on Drugs. Privately, He Said Pot Was ‘Not Particularly Dangerous.’**\
+`President Richard Nixon’s remarks were captured on his secret White House recording system but had eluded the notice of leading Nixon era historians until now.`\
+https://nytimes.com/2024/09/14/us/nixon-marijuana-tapes.html
 
-**Trump Sticks to His Favorite Jabs at Rally in Las Vegas**\
-`The former president meandered over 80 minutes from complaints about Tuesday’s debate to elevating baseless claims that have circulated on right-wing social media.`\
-https://nytimes.com/2024/09/14/us/politics/trump-rally-las-vegas.html
+**The Lijadu Sisters, Nigeria’s Twin Musical Pioneers, Are Celebrated Anew**\
+`Taiwo and Kehinde were groundbreaking for their funky songs, as well as their feminism. Five years after Kehinde’s death, their albums will be reissued.`\
+https://nytimes.com/2024/09/14/arts/music/lijadu-sisters-numero-group-reissues.html
 
-**Was the Yankees' win over the Red Sox their best so far? 'Pretty sick'**\
-`Aaron Judge's grand slam erased a 4-1 deficit in the seventh inning of the Yankees' 5-4 win.`\
-https://nytimes.com/athletic/5766530/2024/09/14/yankees-red-sox-aaron-judge-grand-slam/
+**Washington State at Washington picks, odds, how to watch: New era of Apple Cup begins**\
+`The Apple Cup starts as a nonconference rivalry on Saturday when Washington and Washington State meet at Lumen Field in Seattle.`\
+https://nytimes.com/athletic/5765452/2024/09/14/washington-state-washington-picks-odds-how-to-watch/
 
-**Braves, rookie pitcher beat Dodgers as Ozzie Albies nears return from IL**\
-`Albies hopes to rejoin the team within a week and said everything feels ready except his left-handed swing. So, he'll bat righty for a bit.`\
-https://nytimes.com/athletic/5766400/2024/09/14/braves-dodgers-ozzie-albies-nears-return/
+**Matvei Michkov dazzles in Flyers rookie game: 'He's got that swag to him'**\
+`It didn't take long for Michkov to show his on-ice personality in his sort-of Flyers debut.`\
+https://nytimes.com/athletic/5766419/2024/09/14/flyers-matvei-michkov-rookie-game/
 
