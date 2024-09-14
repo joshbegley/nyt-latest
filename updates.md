@@ -1,3 +1,7 @@
+**Tottenham vs Arsenal preview: Storylines, odds, prediction for North London derby**\
+`Tottenham host Arsenal in the first North London Derby of the season. Both teams failed to win last time out, will one bounce back?`\
+https://nytimes.com/athletic/5760663/2024/09/14/tottenham-arsenal-preview-odds-prediction/
+
 **Paris Throws a Final Olympics Bash**\
 `Tens of thousands cheered, clapped, danced and sang to celebrate French athletes and to relive, one last time, the Games that uplifted a nation.`\
 https://nytimes.com/2024/09/14/world/europe/paris-olympics-parade.html

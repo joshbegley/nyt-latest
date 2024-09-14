@@ -1,3 +1,7 @@
+**Tottenham vs Arsenal preview: Storylines, odds, prediction for North London derby**\
+`Tottenham host Arsenal in the first North London Derby of the season. Both teams failed to win last time out, will one bounce back?`\
+https://nytimes.com/athletic/5760663/2024/09/14/tottenham-arsenal-preview-odds-prediction/
+
 **Gerrit Cole intentionally walks Rafael Devers, then unravels: 'Clearly that was a mistake'**\
 `As good as Devers is, Cole gave him way too much credit. He showed that Devers is in his head.`\
 https://nytimes.com/athletic/5767342/2024/09/14/gerrit-cole-rafael-devers-intentional-walk/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767188/2024/09/14/blue-jackets-camp-free-agents/
 **Emmy Awards: What to Expect**\
 `By John Koblin`\
 https://nytimes.com/2024/09/14/arts/television/emmy-awards-what-to-expect.html
-
-**‘Nothing Left’: As California Fires Burn, Some Residents Begin to Mourn Lost Homes**\
-`Firefighters are making progress against the Bridge, Line and Airport fires to prevent more destruction, but for some, the damage is done.`\
-https://nytimes.com/2024/09/14/us/california-fires-homes.html
 
