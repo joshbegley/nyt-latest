@@ -1,3 +1,7 @@
+**Teenage phenom Connor Zilisch wins debut NASCAR Xfinity Series race**\
+`Zilisch recently turned 18 — the minimum age to be licensed to drive in the Xfinity Series, which is NASCAR’s version of Triple-A baseball.`\
+https://nytimes.com/athletic/5767347/2024/09/14/connor-zilisch-nascar-xfinity-series-debut-win/
+
 **America Ferrera and Other Celebrities Join Push to Mobilize Latino Voters**\
 `Gabriel Luna and Jessica Alba also joined a $5 million effort by the Voto Latino Foundation to encourage Latino voters to cast a ballot in November.`\
 https://nytimes.com/2024/09/14/us/politics/latino-voters-america-ferrera.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767256/2024/09/14/florida-state-0-3-mike-norvell-m
 **The Briefing: Bournemouth 0 Chelsea 1 - Nkunku's winner, Sancho's debut and a yellow-card record**\
 `Chelsea writers Liam Twomey and Simon Johnson analyse the key talking points from Chelsea's victory at Bournemouth`\
 https://nytimes.com/athletic/5758307/2024/09/14/bournemouth-chelsea-premier-league-analysis/
-
-**Was LSU's comeback against South Carolina a season-saving win?**\
-`South Carolina jumped out to a 17-0 lead against No. 16 LSU, but Brian Kelly's Tigers denied Shane Beamer a signature win with a comeback.`\
-https://nytimes.com/athletic/5767219/2024/09/14/lsu-south-carolina-garrett-nusssmeier-brian-kelly/
 
