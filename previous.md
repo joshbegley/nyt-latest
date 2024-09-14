@@ -1,3 +1,7 @@
+**Braves, rookie pitcher beat Dodgers as Ozzie Albies nears return from IL**\
+`Albies hopes to rejoin the team within a week and said everything feels ready except his left-handed swing. So, he'll bat righty for a bit.`\
+https://nytimes.com/athletic/5766400/2024/09/14/braves-dodgers-ozzie-albies-nears-return/
+
 **Giants to promote Bryce Eldridge, 19, to Triple-A Sacramento**\
 `Eldridge has climbed four levels this season and is expected to make one more stop — the Arizona Fall League — before the year is done.`\
 https://nytimes.com/athletic/5766541/2024/09/14/bryce-eldridge-sf-giants-triple-a-promotion/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/nyregion/flatbush-brooklyn-police-shooting-bathtu
 **13 insights fantasy football managers need to know ahead of Week 2**\
 `According to Theo Gremminger, J.K. Dobbins is the feel-good story of the early season, as he shares insights on 13 players ahead of Week 2.`\
 https://nytimes.com/athletic/5765367/2024/09/14/13-insights-fantasy-football-week-2-need-to-knows/
-
-**How do Premier League teams kick off games in 2024-25?**\
-`How a team get play underway at the start of a match or a second half is an increasingly-rehearsed part of their overall tactical plan `\
-https://nytimes.com/athletic/5762182/2024/09/14/how-premier-league-teams-kick-off/
 
