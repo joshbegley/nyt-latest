@@ -1,3 +1,7 @@
+**Will Ferrell in attendance for Leeds vs Burnley**\
+`Hollywood actor Will Ferrell is in attendance for Leeds United&#8217;s Championship clash against Burnley.`\
+https://nytimes.com/athletic/5766725/2024/09/14/will-ferrell-leeds-burnley/
+
 **The Organizers Are Jewish. The Cause Is Palestinian. This College Won’t Be Hosting.**\
 `An event for the magazine Jewish Currents took a surprising turn.`\
 https://nytimes.com/2024/09/14/opinion/brooklyn-college-jewish-currents-gaza-war.html
