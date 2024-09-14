@@ -1,3 +1,19 @@
+**After Commissioner’s Abrupt Exit, the N.Y.P.D. Struggles to Right Itself**\
+`The new top police officer will take over an agency that Mayor Eric Adams has seeded with loyalists, who have created an atmosphere of intrigue and aggression.`\
+https://nytimes.com/2024/09/14/nyregion/nypd-commissioner-caban-adams.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/14/crosswords/spelling-bee-forum.html
+
+**How a 90-Year-Old Comedian Spends Her Sundays**\
+`D’yan Forest goes swimming, plays golf and then closes her day with a 10-minute set at Gotham Comedy Club that brings her a “huge sense of happiness and success.”`\
+https://nytimes.com/2024/09/14/nyregion/dyan-forest-comedian.html
+
+**Home Sales in Flood Zones Are Booming. Here’s Why Buyers Take the Risk.**\
+`New Yorkers are spending billions on houses in flood-prone areas despite growing awareness of the effects of climate change.`\
+https://nytimes.com/2024/09/14/nyregion/new-york-home-sales-flood-zones.html
+
 **Astros' Yusei Kikuchi proving doubters wrong with another win**\
 `Each of Kikuchi's eight starts as an Astro has ended in a victory, the latest a 5-3 win against the Angels on Friday.`\
 https://nytimes.com/athletic/5766664/2024/09/14/yusei-kikuchi-astros-angels/
