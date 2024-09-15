@@ -1,3 +1,11 @@
+**Red Sox's Cora hints team threw at Judge on purpose**\
+`"We had our chance. It didn't happen and we have to move on," Cora said.`\
+https://nytimes.com/athletic/5768647/2024/09/15/alex-cora-brayan-bello-aaron-judge-red-sox-yankees/
+
+**On Broadway, a Covid Switcheroo: Marsha Mason in for Mia Farrow**\
+`Mason, an associate director of the comedy, which opened on Broadway last week, will step in as Patti LuPone’s counterpart.`\
+https://nytimes.com/2024/09/15/theater/farrow-mason-roommate-broadway.html
+
 **Dani Olmo to be assessed after picking up injury against Girona**\
 `Barcelona attacking midfielder Dani Olmo limped off in his side&#8217;s 4-1 La Liga victory against Girona on Sunday with an apparent hamstring injury.`\
 https://nytimes.com/athletic/5768658/2024/09/15/dani-olmo-barcelona-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5767495/2024/09/15/erling-haaland-20-shots-nine-goa
 **Verstappen and Norris' latest F1 title bout in Azerbaijan looks like a draw – for now**\
 `Momentum remains with McLaren, but the reigning champion limited the damage in Baku.`\
 https://nytimes.com/athletic/5768260/2024/09/15/f1-max-verstappen-lando-norris-azerbaijan/
-
-**The Pulse: A Manning can run like this?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/5765827/2024/09/15/arch-manning-texas-florida-state-nfl-the-pulse/
-
-**Emerson: Mark Stoops' mistake wasn't punting; that came before the punt**\
-`Stoops has rebuilt the Kentucky program and kept it competitive, but a Week 2 loss to South Carolina has brought up questions.`\
-https://nytimes.com/athletic/5768292/2024/09/15/mark-stoops-kentucky-football-georgia/
 
