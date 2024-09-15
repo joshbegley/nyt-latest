@@ -1,3 +1,11 @@
+**R. Peter Munves, Master Marketer of Classical Music, Dies at 97**\
+`As an executive at Columbia and RCA Records, he popularized the classics for mass audiences by applying the same techniques used to sell pop music.`\
+https://nytimes.com/2024/09/14/arts/music/r-peter-munves-dead.html
+
+**Nebraska tunes up against UNI with Big Ten play on deck**\
+`The Huskers are 3-0 for the first time since 2016.`\
+https://nytimes.com/athletic/5767616/2024/09/14/nebraska-football-northwen-iowa-dylan-raiola/
+
 **With Quinn Ewers injured, Arch Manning creates five TDs vs. UTSA**\
 `In his most extensive action as a college QB, the redshirt freshman Manning was accurate and decisive and showed off his athleticism.`\
 https://nytimes.com/athletic/5767513/2024/09/14/quinn-ewers-injury-arch-manning-texas-football/
