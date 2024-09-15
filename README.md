@@ -1,3 +1,7 @@
+**Patriots do everything necessary to win on the fringes — but still lose to Seahawks**\
+`The Patriots ran it well didn't turn it over and dominated time of possession. But it still wasn't enough in a loss to the Seahawks.`\
+https://nytimes.com/athletic/5769502/2024/09/15/patriots-loss-seahawks-jerod-mayo-margin-for-error/
+
 **Catholic Priest Is Indicted on Sexual Assault Charges**\
 `Father Anthony Odiong was arrested in July after the police found him with child pornography while investigating a sexual assault claim, according to the Waco Police Department.`\
 https://nytimes.com/2024/09/15/us/waco-texas-priest-sexual-assault.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769363/2024/09/15/blue-jays-davis-schneider-last-p
 **2024 Emmys Red Carpet, Take 2: See the Looks From TV’s Biggest Stars**\
 `For the second time this year, Hollywood is convening to toast its work on the small screen. Here’s what the stars wore to make their entrances.`\
 https://nytimes.com/2024/09/15/style/emmys-red-carpet-photos.html
-
-**‘Shogun’ and ‘The Bear’ get a head start with Creative Arts Emmys.**\
-`By John Koblin`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/creative-arts-emmys-winners
 
