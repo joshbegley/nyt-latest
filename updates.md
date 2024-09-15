@@ -1,3 +1,7 @@
+**Longtime Red Sox radio voice Joe Castiglione announces retirement**\
+`Castiglione said he'll continue with the Red Sox in an ambassador type role.`\
+https://nytimes.com/athletic/5768686/2024/09/15/joe-castiglione-red-sox-retirement/
+
 **Eddie Howe praises Newcastle's progress following win at Wolves**\
 `Eddie Howe believes that Newcastle United are making progress with their performances and praised his side for their impressive start to the season, stating it is &#8220;a step in the right direction&#8221;.`\
 https://nytimes.com/athletic/5768866/2024/09/15/eddie-howe-progress-isak-newcastle/
