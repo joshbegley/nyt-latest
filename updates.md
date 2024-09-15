@@ -1,3 +1,7 @@
+**In Springfield, Ohio, Threats Leave Haitian Residents Shaken**\
+`Tension hangs over the city after a week of closings and lockdowns, and the strain of recent months has led some Haitian immigrants to consider moving to bigger cities.`\
+https://nytimes.com/2024/09/14/us/springfield-ohio-haitians-tension.html
+
 **Wisconsin exposed in humbling loss to Alabama: 'We got completely obliterated today'**\
 `One side possessed multiple playmakers and executed at a high level. The other side didn’t. The result was a dominant win by Alabama.`\
 https://nytimes.com/athletic/5767541/2024/09/14/wisconsin-badgers-alabama-luke-fickell/
