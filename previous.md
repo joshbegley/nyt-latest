@@ -1,3 +1,27 @@
+**Quote of the Day: Russia Stiffens Its Defenses as Ukraine Presses Its Attack in Kursk**\
+`Quotation of the Day for Sunday, September 15, 2024.`\
+https://nytimes.com/2024/09/15/pageoneplus/quote-of-the-day-russia-stiffens-its-defenses-as-ukraine-presses-its-attack-in-kursk.html
+
+**China’s Censors Are Letting Ye Perform There. His Fans Are Amazed.**\
+`The provocative artist once known as Kanye West has received approval that was denied to Maroon 5 and Bon Jovi. China’s economic woes might be why.`\
+https://nytimes.com/2024/09/15/world/asia/ye-kanye-west-china.html
+
+**Going the Distance at the Tram Driver Olympics**\
+`Europe’s public transit captains showed off their skills at an annual championship. “We have been practicing,” a Dutch competitor said. “But the other teams have also been practicing, too.”`\
+https://nytimes.com/2024/09/15/world/europe/tramdriver-competition-frankfurt-tram.html
+
+**Once Considered Foes, Iran-Backed Groups Get a Warm Welcome From Iraq**\
+`Hamas and the Houthis have opened offices in Baghdad, reflecting the two groups’ evolving relationship with Iraq as Tehran works to build a regional power bloc.`\
+https://nytimes.com/2024/09/15/world/middleeast/iran-iraq-hamas-houthis.html
+
+**White Sox watch: Shutout loss puts Chicago within six losses of MLB record**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/15/white-sox-watch-most-losses-season/
+
+**Jets vs. Titans odds, picks, how to watch: Rodgers and Jets favored on the road**\
+`The Jets need a win to settle doubts, and are favored to get it on the road against the Titans. `\
+https://nytimes.com/athletic/5763549/2024/09/15/jets-titans-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Colts vs. Packers odds, picks, how to watch: Packers are underdogs at home**\
 `With a backup QB in place, the Packers are underdogs at home against the Colts. Both teams are looking for their first win. `\
 https://nytimes.com/athletic/5763508/2024/09/14/colts-packers-odds-expert-picks-how-to-watch-predictions-betting/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5767051/2024/09/14/frank-nazar-blackhawks-prospect-
 **No. 1 Georgia survives surprise scare at Kentucky**\
 `No. 1 Georgia found itself in trouble for most of the night before barely escaping with a 13-12 win, its 15th in a row over the Wildcats.`\
 https://nytimes.com/athletic/5767620/2024/09/14/georgia-bulldogs-football-kentucky/
-
-**Saints vs. Cowboys odds, picks, how to watch: Is Saints' honeymoon over?**\
-`The Cowboys and Saints are both 0-1, but this will be a much tougher test for New Orleans in Dallas. `\
-https://nytimes.com/athletic/5763395/2024/09/14/saints-cowboys-odds-expert-picks-how-to-watch-predictions-betting/
-
-**R. Peter Munves, Master Marketer of Classical Music, Dies at 97**\
-`As an executive at Columbia and RCA Records, he popularized the classics for mass audiences by applying the same techniques used to sell pop music.`\
-https://nytimes.com/2024/09/14/arts/music/r-peter-munves-dead.html
-
-**Nebraska tunes up against UNI with Big Ten play on deck**\
-`The Huskers are 3-0 for the first time since 2016.`\
-https://nytimes.com/athletic/5767616/2024/09/14/nebraska-football-northwen-iowa-dylan-raiola/
-
-**Corrections: Sept. 15, 2024**\
-`Corrections that appeared in print on Sunday, Sept. 15, 2024.`\
-https://nytimes.com/2024/09/14/pageoneplus/corrections-sept-15-2024.html
-
-**Lionel Messi scores 2 goals in return to Inter Miami**\
-`With his goals, Messi produced 15 scores and 15 assists in his first 19 MLS games, becoming the fastest player in league history to do so.`\
-https://nytimes.com/athletic/5767567/2024/09/14/lionel-messi-scores-inter-miami-return/
-
-**Oregon State's loss a low point, but better times — with a more certain future — on the horizon**\
-`Oregon State's place in a rebuilt Pac-12 has been solidified, but future of the rivalry with the Ducks is still up in the air. `\
-https://nytimes.com/athletic/5767561/2024/09/14/oregon-state-oregon-civil-war-pac-12/
 
