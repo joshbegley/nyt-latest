@@ -1,4 +1,8 @@
 **James van Riemsdyk signs with Blue Jackets for 1 year**\
+`One day after stating publicly that the Columbus Blue Jackets were “probably two forwards short” of an NHL-worthy lineup, general manager Don Waddell took steps to remedy that.`\
+https://nytimes.com/athletic/5769249/2024/09/15/van-riemsdyk-blue-jackets-contract/
+
+**James van Riemsdyk signs with Blue Jackets for 1 year**\
 `One day after stating publicly that the Columbus Blue Jackets were “probably two forwards short” of an NHL-worthy lineup, general manager Don Waddell took steps the remedy that.`\
 https://nytimes.com/athletic/5769249/2024/09/15/van-riemsdyk-blue-jackets-contract/
 
