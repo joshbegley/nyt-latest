@@ -1,3 +1,11 @@
+**JD Vance Stands By False Pet-Eating Claims Roiling Ohio City**\
+`After Mr. Vance and former President Donald J. Trump amplified false claims that Haitian migrants in Springfield, Ohio, were eating pets, the city received numerous bomb threats.`\
+https://nytimes.com/2024/09/15/us/politics/jd-vance-springfield-pets.html
+
+**Here’s the latest on the presidential race.**\
+`By Maggie Astor and Simon J. Levien`\
+https://nytimes.com/live/2024/09/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **JD Vance Doubles Down on Debunked Pet-Eating Claims Roiling Ohio City**\
 `After Mr. Vance and former President Donald J. Trump amplified false claims that Haitian migrants in Springfield, Ohio, were eating pets, the city received numerous bomb threats.`\
 https://nytimes.com/2024/09/15/us/politics/jd-vance-springfield-pets.html
