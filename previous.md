@@ -1,3 +1,7 @@
+**China’s Risky Power Play in the South China Sea**\
+`As China pushes to dominate the South China Sea, it is increasingly willing to use force to drive out the Philippines. In recent months, China’s tactics have raised fears of a superpower showdown in the strategic waterway.`\
+https://nytimes.com/interactive/2024/09/15/world/asia/south-china-sea-philippines.html
+
 **Outs are still 'tough' for Justin Verlander as playoff decision nears**\
 `Verlander avoided being “atrocious,” against one of the sport’s worst lineups and Houston's premier defense spared him an uglier line.`\
 https://nytimes.com/athletic/5767778/2024/09/15/astros-justin-verlander-playoff-decision/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767652/2024/09/15/braves-chris-sale-dodgers/
 **From confusion to control: Why Ten Hag will hope United's season follows pattern of Southampton match**\
 `It took Manchester United 30 minutes and a penalty save to get going at St Mary's but the final hour contained plenty of cause for optimism`\
 https://nytimes.com/athletic/5755316/2024/09/15/manchester-united-patience-progress-ten-hag/
-
-**Giants vs. Commanders odds, picks, how to watch: Commanders slightly favored**\
-`The Commanders are very slight favorites at home against the Giants, who have yet to find an end zone. `\
-https://nytimes.com/athletic/5763715/2024/09/15/giants-commanders-odds-expert-picks-how-to-watch-predictions-betting/
 

@@ -1,3 +1,7 @@
+**China’s Risky Power Play in the South China Sea**\
+`As China pushes to dominate the South China Sea, it is increasingly willing to use force to drive out the Philippines. In recent months, China’s tactics have raised fears of a superpower showdown in the strategic waterway.`\
+https://nytimes.com/interactive/2024/09/15/world/asia/south-china-sea-philippines.html
+
 **Outs are still 'tough' for Justin Verlander as playoff decision nears**\
 `Verlander avoided being “atrocious,” against one of the sport’s worst lineups and Houston's premier defense spared him an uglier line.`\
 https://nytimes.com/athletic/5767778/2024/09/15/astros-justin-verlander-playoff-decision/
