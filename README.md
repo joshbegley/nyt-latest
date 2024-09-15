@@ -1,3 +1,15 @@
+**49ers vs. Vikings odds, picks, how to watch: Vikings face dominant Niners at home**\
+`The 49ers looked incredible on Monday, and now they face a road test against a Vikings team that was good ... against the Giants.`\
+https://nytimes.com/athletic/5763580/2024/09/15/49ers-vikings-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Bentancur, Son and the FA charge hanging over Tottenham ﻿going into the north London derby**\
+`Rodrigo Bentancur is likely to start for Tottenham against Arsenal but he could be facing a lengthy ban`\
+https://nytimes.com/athletic/5766709/2024/09/15/bentancur-son-tottenham-arsenal/
+
+**Birmingham City vs Wrexham: The EFL celebrity derby and a battle for U.S. fandom**\
+`A League One showdown on a Monday night doesn't usually expect to absorb fans on both sides of the pond - but Birmingham vs Wrexham will`\
+https://nytimes.com/athletic/5755555/2024/09/15/birmingham-city-vs-wrexham-the-efl-celebrity-derby-and-a-battle-for-u-s-fandom/
+
 **Quote of the Day: Russia Stiffens Its Defenses as Ukraine Presses Its Attack in Kursk**\
 `Quotation of the Day for Sunday, September 15, 2024.`\
 https://nytimes.com/2024/09/15/pageoneplus/quote-of-the-day-russia-stiffens-its-defenses-as-ukraine-presses-its-attack-in-kursk.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5763549/2024/09/15/jets-titans-odds-expert-picks-ho
 **Colts vs. Packers odds, picks, how to watch: Packers are underdogs at home**\
 `With a backup QB in place, the Packers are underdogs at home against the Colts. Both teams are looking for their first win. `\
 https://nytimes.com/athletic/5763508/2024/09/14/colts-packers-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Bucs vs. Lions odds, picks, how to watch: A playoff rematch in Detroit**\
-`The Lions are lopsided favorites at home against the Buccaneers. Can Baker Mayfield deliver against a tougher opponent?`\
-https://nytimes.com/athletic/5763470/2024/09/14/buccaneers-lions-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Frank Nazar doesn't disappoint for Blackhawks in prospect showcase, NHL camp next**\
-`“I’m really glad I was able to go through this weekend, this week and play these two games,” Nazar said. “I think it was really helpful."`\
-https://nytimes.com/athletic/5767051/2024/09/14/frank-nazar-blackhawks-prospect-showcase-nhl-camp/
-
-**No. 1 Georgia survives surprise scare at Kentucky**\
-`No. 1 Georgia found itself in trouble for most of the night before barely escaping with a 13-12 win, its 15th in a row over the Wildcats.`\
-https://nytimes.com/athletic/5767620/2024/09/14/georgia-bulldogs-football-kentucky/
 
