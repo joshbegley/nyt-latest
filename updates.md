@@ -1,4 +1,8 @@
 **Lionel Messi scores 2 goals in return to Inter Miami**\
+`With his goals, Messi produced 15 scores and 15 assists in his first 19 MLS games, becoming the fastest player in league history to do so.`\
+https://nytimes.com/athletic/5767567/2024/09/14/lionel-messi-scores-inter-miami-return/
+
+**Lionel Messi scores 2 goals in return to Inter Miami**\
 `With six regular-season games left, Inter Miami has a 10-point lead over second-place FC Cincinnati in the Eastern Conference.`\
 https://nytimes.com/athletic/5767567/2024/09/14/lionel-messi-scores-inter-miami-return/
 
