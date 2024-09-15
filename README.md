@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5767513/2024/09/14/quinn-ewers-injury-arch-manning-texas-football/
 
 **Phillies remind Mets what they still lack as Bryce Harper puts on power display**\
-`The Mets have shown that they can play with anybody, but their lack of top-end talent compared to the Phillies was evident on Saturday.`\
+`The Mets have shown that they can play with anybody, but their lack of top-end talent compared to the Phillies was evident Saturday.`\
 https://nytimes.com/athletic/5767485/2024/09/14/mets-loss-phillies-elite-talent/
 
 **Solheim Cup Sunday pairings, tee times announced: USA has strong lead**\
