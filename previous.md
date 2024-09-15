@@ -1,3 +1,7 @@
+**Outs are still 'tough' for Justin Verlander as playoff decision nears**\
+`Verlander avoided being “atrocious,” against one of the sport’s worst lineups and Houston's premier defense spared him an uglier line.`\
+https://nytimes.com/athletic/5767778/2024/09/15/astros-justin-verlander-playoff-decision/
+
 **Padres flex depth in rout, show why NL West title remains realistic goal**\
 `The Padres piled up a season-high seven doubles among 17 hits in a shutout of the Giants.`\
 https://nytimes.com/athletic/5767734/2024/09/15/padres-rout-giants-nl-west/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5755316/2024/09/15/manchester-united-patience-progr
 **Giants vs. Commanders odds, picks, how to watch: Commanders slightly favored**\
 `The Commanders are very slight favorites at home against the Giants, who have yet to find an end zone. `\
 https://nytimes.com/athletic/5763715/2024/09/15/giants-commanders-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Seahawks vs. Patriots odds, picks, how to watch: Both teams look for second win**\
-`The Seahawks and Patriots both won ugly in Week 1 and are looking to prove they can win again, perhaps with more ease this time.`\
-https://nytimes.com/athletic/5763624/2024/09/15/seahawks-patriots-odds-expert-picks-how-to-watch-predictions-betting/
 

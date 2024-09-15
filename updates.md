@@ -1,3 +1,7 @@
+**Outs are still 'tough' for Justin Verlander as playoff decision nears**\
+`Verlander avoided being “atrocious,” against one of the sport’s worst lineups and Houston's premier defense spared him an uglier line.`\
+https://nytimes.com/athletic/5767778/2024/09/15/astros-justin-verlander-playoff-decision/
+
 **Adopted From China as a Toddler, I’ve Spent My Life Searching for Home**\
 `China is ending international baby adoptions but for those who were sent overseas as infants, the search for belonging and identity goes on.`\
 https://nytimes.com/2024/09/15/opinion/china-adopted-babies-identity.html
