@@ -22,7 +22,7 @@ https://nytimes.com/live/2024/09/15/arts/emmy-awards/heres-how-to-watch-the-show
 `Inside the No. 1 debate between Texas and Georgia (and Ohio State), plus context for FSU's 0-3 start, a big moment for Nebraska and more.`\
 https://nytimes.com/athletic/5768985/2024/09/15/ap-top-25-poll-texas-ranking-fsu/
 
-**5 takeaways from Raiders-Ravens: Gardner Minshew gets hot**\
+**5 takeaways from Raiders-Ravens: Minshew gets hot, Ravens fall to 0-2**\
 `Las Vegas scored 13 straight points in the fourth quarter to drop the Ravens to 0-2.`\
 https://nytimes.com/athletic/5768349/2024/09/15/raiders-ravens-takeaways-result/
 

@@ -1,3 +1,7 @@
+**5 takeaways from Raiders-Ravens: Minshew gets hot, Ravens fall to 0-2**\
+`Las Vegas scored 13 straight points in the fourth quarter to drop the Ravens to 0-2.`\
+https://nytimes.com/athletic/5768349/2024/09/15/raiders-ravens-takeaways-result/
+
 **Arizona rookie Harrison erupts with 2 first-half touchdowns vs. Rams**\
 `Through the first half against the Los Angeles Rams, Harrison, the fourth pick in the 2024 NFL Draft, had four receptions for 130 yards.`\
 https://nytimes.com/athletic/5769248/2024/09/15/marvin-harrison-jr-cardinals-rams-takeaways-result/
