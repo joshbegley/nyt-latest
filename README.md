@@ -1,3 +1,15 @@
+**Chris Sale's many fans include Braves great Tom Glavine: 'A genius move'**\
+`Sale lowered his ERA to 2.35 and closed in on the Cy Young Award as the Braves pummeled the Dodgers.`\
+https://nytimes.com/athletic/5767652/2024/09/15/braves-chris-sale-dodgers/
+
+**From confusion to control: Why Ten Hag will hope United's season follows pattern of Southampton match**\
+`It took Manchester United 30 minutes and a penalty save to get going at St Mary's but the final hour contained plenty of cause for optimism`\
+https://nytimes.com/athletic/5755316/2024/09/15/manchester-united-patience-progress-ten-hag/
+
+**Giants vs. Commanders odds, picks, how to watch: Commanders slightly favored**\
+`The Commanders are very slight favorites at home against the Giants, who have yet to find an end zone. `\
+https://nytimes.com/athletic/5763715/2024/09/15/giants-commanders-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Seahawks vs. Patriots odds, picks, how to watch: Both teams look for second win**\
 `The Seahawks and Patriots both won ugly in Week 1 and are looking to prove they can win again, perhaps with more ease this time.`\
 https://nytimes.com/athletic/5763624/2024/09/15/seahawks-patriots-odds-expert-picks-how-to-watch-predictions-betting/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5755555/2024/09/15/birmingham-city-vs-wrexham-the-e
 **Quote of the Day: Russia Stiffens Its Defenses as Ukraine Presses Its Attack in Kursk**\
 `Quotation of the Day for Sunday, September 15, 2024.`\
 https://nytimes.com/2024/09/15/pageoneplus/quote-of-the-day-russia-stiffens-its-defenses-as-ukraine-presses-its-attack-in-kursk.html
-
-**China’s Censors Are Letting Ye Perform There. His Fans Are Amazed.**\
-`The provocative artist once known as Kanye West has received approval that was denied to Maroon 5 and Bon Jovi. China’s economic woes might be why.`\
-https://nytimes.com/2024/09/15/world/asia/ye-kanye-west-china.html
-
-**Going the Distance at the Tram Driver Olympics**\
-`Europe’s public transit captains showed off their skills at an annual championship. “We have been practicing,” a Dutch competitor said. “But the other teams have also been practicing, too.”`\
-https://nytimes.com/2024/09/15/world/europe/tramdriver-competition-frankfurt-tram.html
-
-**Once Considered Foes, Iran-Backed Groups Get a Warm Welcome From Iraq**\
-`Hamas and the Houthis have opened offices in Baghdad, reflecting the two groups’ evolving relationship with Iraq as Tehran works to build a regional power bloc.`\
-https://nytimes.com/2024/09/15/world/middleeast/iran-iraq-hamas-houthis.html
 
