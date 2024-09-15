@@ -1,3 +1,7 @@
+**Missing Yosemite National Park Backpacker Found Dead**\
+`Kirk S. Thomas Olsen, 61, was found dead after park rangers learned that he was overdue to return from backpacking in the Ostrander Lake area of the park.`\
+https://nytimes.com/2024/09/15/us/yosemite-national-park-backpacker-dead.html
+
 **Trump Safe After Shooting Reported at His Golf Course**\
 `The Palm Beach County Sheriff’s Office said there had been a shooting “on the grounds” of Mr. Trump’s course there while the former president was at the club.`\
 https://nytimes.com/2024/09/15/us/politics/trump-shooting-golf-course.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768359/2024/09/15/bournemouth-chelsea-yellow-cards
 **How F1's Azerbaijan GP led to Piastri, Leclerc battle: Misjudgment and 'half an opportunity'**\
 `Stay informed on all the biggest stories in Formula 1.`\
 https://nytimes.com/athletic/5768259/2024/09/15/f1-charles-leclerc-oscar-piastri-azerbaijan-gp/
-
-**Three Hostages Were Likely Killed in November by Israeli Strike, I.D.F. Says**\
-`An inquiry into the deaths of three Israeli hostages determined that they probably died as a result of a military airstrike targeting a Hamas commander.`\
-https://nytimes.com/2024/09/15/world/middleeast/israel-hostages-killed-strike.html
 
