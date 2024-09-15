@@ -1,3 +1,7 @@
+**Mailbag, Part 2: Why the Penguins reaching the playoffs this season isn't far-fetched**\
+`An optimistic point of view on an upcoming Penguins season that doesn't have very high expectations.`\
+https://nytimes.com/athletic/5765132/2024/09/15/penguins-playoffs-sidney-crosby-mailbag/
+
 **Could Jadon Sancho be the left-side threat Chelsea have lacked since Eden Hazard left?**\
 `It was the Sanchez and Sancho show for Enzo Maresca's side as they beat Bournemouth 1-0 `\
 https://nytimes.com/athletic/5767296/2024/09/15/jadon-sancho-chelsea-left-side-threat/
