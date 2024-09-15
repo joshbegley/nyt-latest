@@ -1,3 +1,7 @@
+**How the Packers without Jordan Love, embracing a 'who cares' mentality, bulldozed the Colts**\
+`Malik Willis, Josh Jacobs and the O-line, Green Bay's defense and even punter Daniel Whelan carried the Packers to victory.`\
+https://nytimes.com/athletic/5769336/2024/09/15/packers-win-colts-josh-jacobs-malik-willis/
+
 **It’s already clear the Canadiens should give Lane Hutson a chance to start in the NHL**\
 `Hutson's skill set already seems very obviously better suited for the NHL than the AHL.`\
 https://nytimes.com/athletic/5769704/2024/09/15/canadiens-lane-hutson-prospect/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769554/2024/09/15/carolina-panthers-bryce-young-lo
 **Emmy Winners: Updating List**\
 `The list of winners for the 76th Emmy Awards.`\
 https://nytimes.com/2024/09/15/arts/television/emmy-awards-winners.html
-
-**Father-and-son duo Eugene and Dan Levy return to host the ceremony.**\
-`By Annie Aguiar`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/eugene-dan-levy-emmys-hosts
 
