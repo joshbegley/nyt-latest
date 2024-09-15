@@ -1,3 +1,15 @@
+**Chris Sale's many fans include Braves great Tom Glavine: 'A genius move'**\
+`Sale lowered his ERA to 2.35 and closed in on the Cy Young Award as the Braves pummeled the Dodgers.`\
+https://nytimes.com/athletic/5767652/2024/09/15/braves-chris-sale-dodgers/
+
+**From confusion to control: Why Ten Hag will hope United's season follows pattern of Southampton match**\
+`It took Manchester United 30 minutes and a penalty save to get going at St Mary's but the final hour contained plenty of cause for optimism`\
+https://nytimes.com/athletic/5755316/2024/09/15/manchester-united-patience-progress-ten-hag/
+
+**Giants vs. Commanders odds, picks, how to watch: Commanders slightly favored**\
+`The Commanders are very slight favorites at home against the Giants, who have yet to find an end zone. `\
+https://nytimes.com/athletic/5763715/2024/09/15/giants-commanders-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Seahawks vs. Patriots odds, picks, how to watch: Both teams look for second win**\
 `The Seahawks and Patriots both won ugly in Week 1 and are looking to prove they can win again, perhaps with more ease this time.`\
 https://nytimes.com/athletic/5763624/2024/09/15/seahawks-patriots-odds-expert-picks-how-to-watch-predictions-betting/
