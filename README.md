@@ -1,3 +1,7 @@
+**Raiders vs. Ravens odds, picks, how to watch: These 0-1 teams are not alike**\
+`The Ravens and Raiders start their season 0-1, but the gap in their talent is wide. Baltimore is significantly favored on Sunday.`\
+https://nytimes.com/athletic/5765622/2024/09/15/raiders-ravens-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Chargers vs. Panthers odds, picks, how to watch: Harbaugh's Chargers aim for 2-0**\
 `Jim Harbaugh's Chargers head to Carolina to take on a struggling Panthers team. Our experts are of one mind on this one. `\
 https://nytimes.com/athletic/5763774/2024/09/15/chargers-panthers-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5763580/2024/09/15/49ers-vikings-odds-expert-picks-
 **Bentancur, Son and the FA charge hanging over Tottenham ﻿going into the north London derby**\
 `Rodrigo Bentancur is likely to start for Tottenham against Arsenal but he could be facing a lengthy ban`\
 https://nytimes.com/athletic/5766709/2024/09/15/bentancur-son-tottenham-arsenal/
-
-**Birmingham City vs Wrexham: The EFL celebrity derby and a battle for U.S. fandom**\
-`A League One showdown on a Monday night doesn't usually expect to absorb fans on both sides of the pond - but Birmingham vs Wrexham will`\
-https://nytimes.com/athletic/5755555/2024/09/15/birmingham-city-vs-wrexham-the-efl-celebrity-derby-and-a-battle-for-u-s-fandom/
 
