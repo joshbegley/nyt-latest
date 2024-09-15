@@ -1,3 +1,7 @@
+**Corrections: Sept. 15, 2024**\
+`Corrections that appeared in print on Sunday, Sept. 15, 2024.`\
+https://nytimes.com/2024/09/14/pageoneplus/corrections-sept-15-2024.html
+
 **Lionel Messi scores 2 goals in return to Inter Miami**\
 `With his goals, Messi produced 15 scores and 15 assists in his first 19 MLS games, becoming the fastest player in league history to do so.`\
 https://nytimes.com/athletic/5767567/2024/09/14/lionel-messi-scores-inter-miami-return/

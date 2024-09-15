@@ -1,3 +1,7 @@
+**Corrections: Sept. 15, 2024**\
+`Corrections that appeared in print on Sunday, Sept. 15, 2024.`\
+https://nytimes.com/2024/09/14/pageoneplus/corrections-sept-15-2024.html
+
 **Lionel Messi scores 2 goals in return to Inter Miami**\
 `With his goals, Messi produced 15 scores and 15 assists in his first 19 MLS games, becoming the fastest player in league history to do so.`\
 https://nytimes.com/athletic/5767567/2024/09/14/lionel-messi-scores-inter-miami-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767412/2024/09/14/red-sox-gerrit-cole-rafael-dever
 **Letting Loose With Emmy Nominees in the Hollywood Hills**\
 `Celebrities including Quinta Brunson, Selma Blair and Heidi Klum toasted the awards at a Los Angeles mansion. Who said it was too soon to party again?`\
 https://nytimes.com/2024/09/14/style/emmy-party-photos.html
-
-**Lexi Thompson's Solheim Cup legacy is almost complete. Will it include another win?**\
-`USA is up 10-6 on the Europeans entering Sunday singles, with Thompson having a chance to earn an 11th Solheim Cup point.`\
-https://nytimes.com/athletic/5767459/2024/09/14/lexi-thompson-solheim-cup-usa/
 
