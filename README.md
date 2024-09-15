@@ -1,3 +1,27 @@
+**A Season of Culture, Celebrated Over 92 Pages**\
+`Arts & Leisure’s fall preview connects readers with the season’s noteworthy cultural works. And there are many.`\
+https://nytimes.com/2024/09/15/insider/a-season-of-culture-celebrated-over-92-pages.html
+
+**What a Mayor in Crisis Means for New York City**\
+`As federal investigations swirl around Mayor Eric Adams, his political influence, his agenda and his re-election effort are at risk.`\
+https://nytimes.com/2024/09/15/nyregion/eric-adams-scandal-crisis.html
+
+**How Do I Survive the Last Mile to Retirement?**\
+`I have a crushing workload and the anger to prove it. With less than two years before I can leave, how do I avoid alienating everyone?`\
+https://nytimes.com/2024/09/15/business/retirement-work-problems-advice.html
+
+**How Roberts Shaped Trump’s Supreme Court Winning Streak**\
+`Behind the scenes, the chief justice molded three momentous Jan. 6 and election cases that helped determine the former president’s fate.`\
+https://nytimes.com/2024/09/15/us/justice-roberts-trump-supreme-court.html
+
+**‘Why Do They Have to Do This in the Middle of the Day’**\
+`A bad mood takes a turn, a mysterious voice on the subway and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/09/15/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/15/crosswords/spelling-bee-forum.html
+
 **China’s Risky Power Play in the South China Sea**\
 `As China pushes to dominate the South China Sea, it is increasingly willing to use force to drive out the Philippines. In recent months, China’s tactics have raised fears of a superpower showdown in the strategic waterway.`\
 https://nytimes.com/interactive/2024/09/15/world/asia/south-china-sea-philippines.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5767734/2024/09/15/padres-rout-giants-nl-west/
 **Browns at Jaguars odds, expert picks, how to watch: Jags slight favorites at home**\
 `The Browns and Jaguars both lost their opening games. Now, the two teams meet in Florida with the Jaguars a small favorite.`\
 https://nytimes.com/athletic/5765508/2024/09/15/cleveland-browns-jacksonville-jaguars-odds-expert-picks-how-to-watch/
-
-**Adopted From China as a Toddler, I’ve Spent My Life Searching for Home**\
-`China is ending international baby adoptions but for those who were sent overseas as infants, the search for belonging and identity goes on.`\
-https://nytimes.com/2024/09/15/opinion/china-adopted-babies-identity.html
-
-**Parents Should Ignore Their Children More Often**\
-`The case for “mindful underparenting.”`\
-https://nytimes.com/2024/09/15/opinion/parenting-helicopter-ignoring.html
-
-**Raiders vs. Ravens odds, picks, how to watch: These 0-1 teams are not alike**\
-`The Ravens and Raiders start their season 0-1, but the gap in their talent is wide. Baltimore is significantly favored on Sunday.`\
-https://nytimes.com/athletic/5765622/2024/09/15/raiders-ravens-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Chargers vs. Panthers odds, picks, how to watch: Harbaugh's Chargers aim for 2-0**\
-`Jim Harbaugh's Chargers head to Carolina to take on a struggling Panthers team. Our experts are of one mind on this one. `\
-https://nytimes.com/athletic/5763774/2024/09/15/chargers-panthers-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Chris Sale's many fans include Braves great Tom Glavine: 'A genius move'**\
-`Sale lowered his ERA to 2.35 and closed in on the Cy Young Award as the Braves pummeled the Dodgers.`\
-https://nytimes.com/athletic/5767652/2024/09/15/braves-chris-sale-dodgers/
-
-**From confusion to control: Why Ten Hag will hope United's season follows pattern of Southampton match**\
-`It took Manchester United 30 minutes and a penalty save to get going at St Mary's but the final hour contained plenty of cause for optimism`\
-https://nytimes.com/athletic/5755316/2024/09/15/manchester-united-patience-progress-ten-hag/
 
