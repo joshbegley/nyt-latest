@@ -1,3 +1,19 @@
+**James van Riemsdyk signs with Blue Jackets for 1 year**\
+`One day after stating publicly that the Columbus Blue Jackets were “probably two forwards short” of an NHL-worthy lineup, general manager Don Waddell took steps the remedy that.`\
+https://nytimes.com/athletic/5769249/2024/09/15/van-riemsdyk-blue-jackets-contract/
+
+**Conor Gallagher scores first goal for Atletico Madrid against Valencia**\
+`Conor Gallagher scored his first goal for Atletico Madrid during their 3-0 La Liga victory against Valencia.`\
+https://nytimes.com/athletic/5769163/2024/09/15/conor-gallagher-atletico-madrid-valencia/
+
+**Dr. George Berci, Whose Innovations Changed Surgery, Dies at 103**\
+`He conceived many of the techniques and tools that have revolutionized minimally invasive operations and procedures.`\
+https://nytimes.com/2024/09/15/science/george-berci-dead.html
+
+**White Sox watch: Where has this team been all season?**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/15/white-sox-watch-most-losses-season/
+
 **Morning Briefing: The Fallout of Trump’s False Claims**\
 `Plus, Ye performs in China.`\
 https://nytimes.com/2024/09/15/briefing/trump-hostages-china-adoption.html

@@ -1,6 +1,22 @@
+**James van Riemsdyk signs with Blue Jackets for 1 year**\
+`One day after stating publicly that the Columbus Blue Jackets were “probably two forwards short” of an NHL-worthy lineup, general manager Don Waddell took steps the remedy that.`\
+https://nytimes.com/athletic/5769249/2024/09/15/van-riemsdyk-blue-jackets-contract/
+
+**Conor Gallagher scores first goal for Atletico Madrid against Valencia**\
+`Conor Gallagher scored his first goal for Atletico Madrid during their 3-0 La Liga victory against Valencia.`\
+https://nytimes.com/athletic/5769163/2024/09/15/conor-gallagher-atletico-madrid-valencia/
+
+**Dr. George Berci, Whose Innovations Changed Surgery, Dies at 103**\
+`He conceived many of the techniques and tools that have revolutionized minimally invasive operations and procedures.`\
+https://nytimes.com/2024/09/15/science/george-berci-dead.html
+
 **Morning Briefing: The Fallout of Trump’s False Claims**\
 `Plus, Ye performs in China.`\
 https://nytimes.com/2024/09/15/briefing/trump-hostages-china-adoption.html
+
+**White Sox watch: Where has this team been all season?**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/15/white-sox-watch-most-losses-season/
 
 **Key takeaways from Saints-Cowboys: How good is New Orleans' offense?**\
 `The Saints' offense posted its second-straight 40-point game of the season behind another efficient performance from quarterback Derek Carr`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5768978/2024/09/15/adrien-rabiot-marseille-transfer
 **Six takeaways from Colts-Packers: Malik Willis solid replacing Love**\
 `The third-year quarterback completed 12-of-14 passes for 122 yards and a touchdown.`\
 https://nytimes.com/athletic/5768376/2024/09/15/packers-colts-takeaways-result-malik-willis/
-
-**Missing Yosemite National Park Backpacker Found Dead**\
-`Kirk S. Thomas Olsen, 61, was found dead after park rangers learned that he was overdue to return from backpacking in the Ostrander Lake area of the park.`\
-https://nytimes.com/2024/09/15/us/yosemite-national-park-backpacker-dead.html
-
-**Trump Safe After Shooting Reported at His Golf Course**\
-`The Palm Beach County Sheriff’s Office said there had been a shooting “on the grounds” of Mr. Trump’s course there while the former president was at the club.`\
-https://nytimes.com/2024/09/15/us/politics/trump-shooting-golf-course.html
-
-**Longtime Red Sox radio voice Joe Castiglione announces retirement**\
-`Castiglione said he'll continue with the Red Sox in an ambassador type role.`\
-https://nytimes.com/athletic/5768686/2024/09/15/joe-castiglione-red-sox-retirement/
-
-**Eddie Howe praises Newcastle's progress following win at Wolves**\
-`Eddie Howe believes that Newcastle United are making progress with their performances and praised his side for their impressive start to the season, stating it is &#8220;a step in the right direction&#8221;.`\
-https://nytimes.com/athletic/5768866/2024/09/15/eddie-howe-progress-isak-newcastle/
 
