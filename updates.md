@@ -1,3 +1,7 @@
+**Real Madrid briefing: Mbappe's growing influence, Vinicius Jr penalty controversy and why Kroos is missed**\
+`We break down the key talking points from Real Madrid's win against Real Sociedad on Saturday`\
+https://nytimes.com/athletic/5767576/2024/09/15/real-madrid-briefing-mbappe-vinicius-kroos/
+
 **Oscar Piastri wins F1 Azerbaijan GP, McLaren takes championship lead**\
 `Oscar Piastri won his second career grand prix to give McLaren its first title lead in years.`\
 https://nytimes.com/athletic/5768081/2024/09/15/oscar-piastri-f1-azerbaijan-gp/
