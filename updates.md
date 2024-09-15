@@ -1,3 +1,7 @@
+**JD Vance Doubles Down on Debunked Pet-Eating Claims Roiling Ohio City**\
+`After Mr. Vance and former President Donald J. Trump amplified false claims that Haitian migrants in Springfield, Ohio, were eating pets, the city received numerous bomb threats.`\
+https://nytimes.com/2024/09/15/us/politics/jd-vance-springfield-pets.html
+
 **What the Cubs’ rotation might look like in 2025 as they try to build a real contender**\
 `This is the challenge for Jed Hoyer’s front office and Craig Counsell’s coaching staff.`\
 https://nytimes.com/athletic/5767627/2024/09/15/cubs-starting-rotation-2025/

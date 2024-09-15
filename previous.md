@@ -1,3 +1,7 @@
+**JD Vance Doubles Down on Debunked Pet-Eating Claims Roiling Ohio City**\
+`After Mr. Vance and former President Donald J. Trump amplified false claims that Haitian migrants in Springfield, Ohio, were eating pets, the city received numerous bomb threats.`\
+https://nytimes.com/2024/09/15/us/politics/jd-vance-springfield-pets.html
+
 **What the Cubs’ rotation might look like in 2025 as they try to build a real contender**\
 `This is the challenge for Jed Hoyer’s front office and Craig Counsell’s coaching staff.`\
 https://nytimes.com/athletic/5767627/2024/09/15/cubs-starting-rotation-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767672/2024/09/15/kings-brandt-clarke-roster/
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/09/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Stewart Mandel's 12-team Playoff projections after Week 3**\
-`Who should be in the 12-team Playoff after Week 3? Stewart Mandel makes his picks.`\
-https://nytimes.com/athletic/5767939/2024/09/15/college-football-playoff-bracket-projections-week-3/
 
