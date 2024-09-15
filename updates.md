@@ -1,3 +1,7 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **Stewart Mandel's 12-team Playoff projections after Week 3**\
 `Who should be in the 12-team Playoff after Week 3? Stewart Mandel makes his picks.`\
 https://nytimes.com/athletic/5767939/2024/09/15/college-football-playoff-bracket-projections-week-3/

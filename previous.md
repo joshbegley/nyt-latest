@@ -1,3 +1,7 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **Stewart Mandel's 12-team Playoff projections after Week 3**\
 `Who should be in the 12-team Playoff after Week 3? Stewart Mandel makes his picks.`\
 https://nytimes.com/athletic/5767939/2024/09/15/college-football-playoff-bracket-projections-week-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767755/2024/09/15/georgia-kentucky-bulldogs-offens
 **Mandel's Final Thoughts: A gloomy Week 3 in the Sunshine State**\
 `College football's Week 3 was awfully fun to watch, so long as you weren’t in Gainesville or Tallahassee, Fla.`\
 https://nytimes.com/athletic/5767796/2024/09/15/college-football-week-3-florida-fsu/
-
-**One-on-one with Jets GM Kevin Cheveldayoff: 'Our biggest focus is on winning'**\
-`How the Jets' high-end prospects factor into their short-term plans, what the future holds for Cole Perfetti, and more.`\
-https://nytimes.com/athletic/5766205/2024/09/15/winnipeg-jets-gm-kevin-cheveldayoff/
 
