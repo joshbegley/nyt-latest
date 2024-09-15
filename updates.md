@@ -1,3 +1,7 @@
+**Polaris Dawn Astronauts Return to Earth After First Private Spacewalk**\
+`The SpaceX capsule, whose crew was led by the billionaire Jared Isaacman, splashed down near the Gulf of Mexico early Sunday.`\
+https://nytimes.com/2024/09/15/us/spacex-polaris-dawn-landing.html
+
 **A Season of Culture, Celebrated Over 92 Pages**\
 `Arts & Leisure’s fall preview connects readers with the season’s noteworthy cultural works. And there are many.`\
 https://nytimes.com/2024/09/15/insider/a-season-of-culture-celebrated-over-92-pages.html
