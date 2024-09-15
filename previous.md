@@ -1,3 +1,11 @@
+**Sideline official collapses, receives CPR at Raiders-Ravens**\
+`According to a member of the Ravens public relations, the chain gang member was alert and responsive as he was taken to a local hospital.`\
+https://nytimes.com/athletic/5768858/2024/09/15/ravens-raiders-medical-emergency-game-delayed/
+
+**United States wins Solheim Cup for first time since 2017**\
+`Lilia Vu clinched the cup for the Americans with a wonderful approach shot on No. 18 to set up birdie and earn a half-point.`\
+https://nytimes.com/athletic/5768826/2024/09/15/solheim-cup-united-states-win-europe/
+
 **AP Top 25: Texas jumps Georgia for No. 1 in poll**\
 `The Texas Longhorns are No. 1 in the AP Top 25 college football rankings for the first time since 2008, topping Georgia and Ohio State.`\
 https://nytimes.com/athletic/5768674/2024/09/15/ap-top-25-texas-number-one-georgia/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5767296/2024/09/15/jadon-sancho-chelsea-left-side-t
 **Red Sox's Cora hints team threw at Judge on purpose**\
 `"We had our chance. It didn't happen and we have to move on," Cora said.`\
 https://nytimes.com/athletic/5768647/2024/09/15/alex-cora-brayan-bello-aaron-judge-red-sox-yankees/
-
-**On Broadway, a Covid Switcheroo: Marsha Mason in for Mia Farrow**\
-`Mason, an associate director of the comedy, which opened on Broadway last week, will step in as Patti LuPone’s counterpart.`\
-https://nytimes.com/2024/09/15/theater/farrow-mason-roommate-broadway.html
-
-**Dani Olmo to be assessed after picking up injury against Girona**\
-`Barcelona attacking midfielder Dani Olmo limped off in his side&#8217;s 4-1 La Liga victory against Girona on Sunday with an apparent hamstring injury.`\
-https://nytimes.com/athletic/5768658/2024/09/15/dani-olmo-barcelona-injury/
 

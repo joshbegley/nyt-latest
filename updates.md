@@ -1,3 +1,11 @@
+**Sideline official collapses, receives CPR at Raiders-Ravens**\
+`According to a member of the Ravens public relations, the chain gang member was alert and responsive as he was taken to a local hospital.`\
+https://nytimes.com/athletic/5768858/2024/09/15/ravens-raiders-medical-emergency-game-delayed/
+
+**United States wins Solheim Cup for first time since 2017**\
+`Lilia Vu clinched the cup for the Americans with a wonderful approach shot on No. 18 to set up birdie and earn a half-point.`\
+https://nytimes.com/athletic/5768826/2024/09/15/solheim-cup-united-states-win-europe/
+
 **AP Top 25: Texas jumps Georgia for No. 1 in poll**\
 `The Texas Longhorns are No. 1 in the AP Top 25 college football rankings for the first time since 2008, topping Georgia and Ohio State.`\
 https://nytimes.com/athletic/5768674/2024/09/15/ap-top-25-texas-number-one-georgia/
