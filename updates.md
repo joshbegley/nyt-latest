@@ -1,3 +1,7 @@
+**‘The Life of Chuck’ Takes Top Prize at the Toronto Film Festival**\
+`This adaptation of a Stephen King novella stars Tom Hiddleston, Chiwetel Ejiofor and Mark Hamill. “The Substance” and a Tragically Hip documentary also won.`\
+https://nytimes.com/2024/09/15/movies/life-of-chuck-toronto-award.html
+
 **Nicolas Cage Buys $10.5 Million Malibu Beach House**\
 `The “Leaving Las Vegas” actor bought an ocean-facing home with a private beach.`\
 https://nytimes.com/2024/09/15/realestate/nicolas-cage-malibu-house.html
