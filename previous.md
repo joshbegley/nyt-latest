@@ -1,3 +1,7 @@
+**What we learned about the CFP in Week 3: How underrated is Tennessee?**\
+`The SEC looks like it could command the 12-team CFP field this season. `\
+https://nytimes.com/athletic/5767744/2024/09/15/college-football-playoff-sec-tennessee-front-runners/
+
 **Houthis Launch Missile at Central Israel**\
 `The rare attack was an illustration of the evolving conflict in the Middle East between Israel and Iranian proxies.`\
 https://nytimes.com/2024/09/15/world/middleeast/houthis-israel-yemen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/opinion/trump-debate-ukraine-russia.html
 **The Connections Companion No. 463**\
 `Scroll down for hints and conversation about the puzzle for Monday, Sept. 16, 2024.`\
 https://nytimes.com/2024/09/15/crosswords/connections-companion-463.html
-
-**If You Like Tim Walz’s Earthy Politics, You Should Know About Paul Wellstone**\
-`The Wellstone tradition of left-populism, once so central to the Democratic Party’s brand, that must be recovered.`\
-https://nytimes.com/2024/09/15/opinion/tim-walz-paul-wellstone.html
 

@@ -1,3 +1,7 @@
+**What we learned about the CFP in Week 3: How underrated is Tennessee?**\
+`The SEC looks like it could command the 12-team CFP field this season. `\
+https://nytimes.com/athletic/5767744/2024/09/15/college-football-playoff-sec-tennessee-front-runners/
+
 **Houthis Launch Missile at Central Israel**\
 `The rare attack was an illustration of the evolving conflict in the Middle East between Israel and Iranian proxies.`\
 https://nytimes.com/2024/09/15/world/middleeast/houthis-israel-yemen.html
