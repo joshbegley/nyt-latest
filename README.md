@@ -1,3 +1,7 @@
+**Chief Counsel to Eric Adams Resigns Amid Federal Investigations**\
+`The stunning departure of Lisa Zornberg, the chief counsel to Mayor Eric Adams of New York, was announced late Saturday as federal investigations into his administration expand.`\
+https://nytimes.com/2024/09/15/nyregion/lisa-zornberg-resigns-eric-adams-counsel.html
+
 **'I want more out of myself': Brandt Clarke won't be satisfied by simply making Kings' roster**\
 `"My goal isn’t just to make the NHL. It’s to excel in the NHL," Clarke said as he prepares for a crucial training camp.`\
 https://nytimes.com/athletic/5767672/2024/09/15/kings-brandt-clarke-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767744/2024/09/15/college-football-playoff-sec-ten
 **Houthis Launch Missile at Central Israel**\
 `The rare attack was an illustration of the evolving conflict in the Middle East between Israel and Iranian proxies.`\
 https://nytimes.com/2024/09/15/world/middleeast/houthis-israel-yemen.html
-
-**After another slow start, Georgia's need for better offense is getting real**\
-`There have been enough moments so far this season to show that what Georgia does have on offense can be good enough.`\
-https://nytimes.com/athletic/5767755/2024/09/15/georgia-kentucky-bulldogs-offense-mike-bobo/
 
