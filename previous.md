@@ -1,3 +1,15 @@
+**Seahawks vs. Patriots odds, picks, how to watch: Both teams look for second win**\
+`The Seahawks and Patriots both won ugly in Week 1 and are looking to prove they can win again, perhaps with more ease this time.`\
+https://nytimes.com/athletic/5763624/2024/09/15/seahawks-patriots-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Tottenham Hotspur vs Arsenal: Odegaard's injury, Solanke's home debut and… lots of goals?**\
+`The north London derby rarely disappoints and there is plenty at stake, even this early in the season`\
+https://nytimes.com/athletic/5762177/2024/09/15/tottenham-arsenal-north-london-derby-2/
+
+**How the Champions League ate football: 'It was in our DNA - the brand was sacred'**\
+`Europe's elite club competition has become the sport's dominant brand — this is how`\
+https://nytimes.com/athletic/5762454/2024/09/15/champions-league-brand/
+
 **49ers vs. Vikings odds, picks, how to watch: Vikings face dominant Niners at home**\
 `The 49ers looked incredible on Monday, and now they face a road test against a Vikings team that was good ... against the Giants.`\
 https://nytimes.com/athletic/5763580/2024/09/15/49ers-vikings-odds-expert-picks-how-to-watch-predictions-betting/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/15/world/europe/tramdriver-competition-frankfurt-tra
 **Once Considered Foes, Iran-Backed Groups Get a Warm Welcome From Iraq**\
 `Hamas and the Houthis have opened offices in Baghdad, reflecting the two groups’ evolving relationship with Iraq as Tehran works to build a regional power bloc.`\
 https://nytimes.com/2024/09/15/world/middleeast/iran-iraq-hamas-houthis.html
-
-**White Sox watch: Shutout loss puts Chicago within six losses of MLB record**\
-`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
-https://nytimes.com/athletic/5734497/2024/09/15/white-sox-watch-most-losses-season/
-
-**Jets vs. Titans odds, picks, how to watch: Rodgers and Jets favored on the road**\
-`The Jets need a win to settle doubts, and are favored to get it on the road against the Titans. `\
-https://nytimes.com/athletic/5763549/2024/09/15/jets-titans-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Colts vs. Packers odds, picks, how to watch: Packers are underdogs at home**\
-`With a backup QB in place, the Packers are underdogs at home against the Colts. Both teams are looking for their first win. `\
-https://nytimes.com/athletic/5763508/2024/09/14/colts-packers-odds-expert-picks-how-to-watch-predictions-betting/
 
