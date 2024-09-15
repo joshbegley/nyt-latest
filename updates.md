@@ -1,3 +1,7 @@
+**Colts vs. Packers odds, picks, how to watch: Packers are underdogs at home**\
+`With a backup QB in place, the Packers are underdogs at home against the Colts. Both teams are looking for their first win. `\
+https://nytimes.com/athletic/5763508/2024/09/14/colts-packers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Bucs vs. Lions odds, picks, how to watch: A playoff rematch in Detroit**\
 `The Lions are lopsided favorites at home against the Buccaneers. Can Baker Mayfield deliver against a tougher opponent?`\
 https://nytimes.com/athletic/5763470/2024/09/14/buccaneers-lions-odds-expert-picks-how-to-watch-predictions-betting/

@@ -1,3 +1,7 @@
+**Colts vs. Packers odds, picks, how to watch: Packers are underdogs at home**\
+`With a backup QB in place, the Packers are underdogs at home against the Colts. Both teams are looking for their first win. `\
+https://nytimes.com/athletic/5763508/2024/09/14/colts-packers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Bucs vs. Lions odds, picks, how to watch: A playoff rematch in Detroit**\
 `The Lions are lopsided favorites at home against the Buccaneers. Can Baker Mayfield deliver against a tougher opponent?`\
 https://nytimes.com/athletic/5763470/2024/09/14/buccaneers-lions-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767567/2024/09/14/lionel-messi-scores-inter-miami-
 **Oregon State's loss a low point, but better times — with a more certain future — on the horizon**\
 `Oregon State's place in a rebuilt Pac-12 has been solidified, but future of the rivalry with the Ducks is still up in the air. `\
 https://nytimes.com/athletic/5767561/2024/09/14/oregon-state-oregon-civil-war-pac-12/
-
-**In Springfield, Ohio, Threats Leave Haitian Residents Shaken**\
-`Tension hangs over the city after a week of closings and lockdowns, and the strain of recent months has led some Haitian immigrants to consider moving to bigger cities.`\
-https://nytimes.com/2024/09/14/us/springfield-ohio-haitians-tension.html
 
