@@ -1,3 +1,7 @@
+**Don’t consider ‘The Bear’ a shoo-in.**\
+`By John Koblin`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/dont-consider-the-bear-a-shoo-in
+
 **Nothing easy for Brock Purdy as Brandon Aiyuk, 49ers offense try to find their feet**\
 `The magic Aiyuk and Purdy had to open last season is in short supply right now for the 49ers.`\
 https://nytimes.com/athletic/5769572/2024/09/15/49ers-brock-purdy-brandon-aiyuk-vikings-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/obituaries/michaela-deprince-dead.html
 **What nominees did people actually watch?**\
 `By John Koblin`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/what-nominees-did-people-actually-watch
-
-**Houston Dash head coach Fran Alonso remains away amid the team's winless streak**\
-`Alonso has not been in-person with the Dash since June. `\
-https://nytimes.com/athletic/5769491/2024/09/15/houston-dash-coach-fran-alonso-absence/
 

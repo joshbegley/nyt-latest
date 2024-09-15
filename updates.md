@@ -1,3 +1,7 @@
+**Don’t consider ‘The Bear’ a shoo-in.**\
+`By John Koblin`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/dont-consider-the-bear-a-shoo-in
+
 **Panthers say they don't have a 'Bryce Young issue': But is it time to make a change?**\
 `Dave Canales says Young is the Panthers' quarterback as they drop to 0-2 and things look even worse than they did a season ago.`\
 https://nytimes.com/athletic/5769554/2024/09/15/carolina-panthers-bryce-young-lose-again-whats-next/
