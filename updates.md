@@ -1,3 +1,15 @@
+**Browns at Jaguars odds, expert picks, how to watch: Jags slight favorites at home**\
+`The Browns and Jaguars both lost their opening games. Now, the two teams meet in Florida with the Jaguars a small favorite.`\
+https://nytimes.com/athletic/5765508/2024/09/15/cleveland-browns-jacksonville-jaguars-odds-expert-picks-how-to-watch/
+
+**Adopted From China as a Toddler, I’ve Spent My Life Searching for Home**\
+`China is ending international baby adoptions but for those who were sent overseas as infants, the search for belonging and identity goes on.`\
+https://nytimes.com/2024/09/15/opinion/adopted-from-china-as-a-toddler-ive-spent-my-life-searching-for-home.html
+
+**Parents Should Ignore Their Children More Often**\
+`The case for “mindful underparenting.”`\
+https://nytimes.com/2024/09/15/opinion/parenting-helicopter-ignoring.html
+
 **Raiders vs. Ravens odds, picks, how to watch: These 0-1 teams are not alike**\
 `The Ravens and Raiders start their season 0-1, but the gap in their talent is wide. Baltimore is significantly favored on Sunday.`\
 https://nytimes.com/athletic/5765622/2024/09/15/raiders-ravens-odds-expert-picks-how-to-watch-predictions-betting/

@@ -1,3 +1,15 @@
+**Browns at Jaguars odds, expert picks, how to watch: Jags slight favorites at home**\
+`The Browns and Jaguars both lost their opening games. Now, the two teams meet in Florida with the Jaguars a small favorite.`\
+https://nytimes.com/athletic/5765508/2024/09/15/cleveland-browns-jacksonville-jaguars-odds-expert-picks-how-to-watch/
+
+**Adopted From China as a Toddler, I’ve Spent My Life Searching for Home**\
+`China is ending international baby adoptions but for those who were sent overseas as infants, the search for belonging and identity goes on.`\
+https://nytimes.com/2024/09/15/opinion/adopted-from-china-as-a-toddler-ive-spent-my-life-searching-for-home.html
+
+**Parents Should Ignore Their Children More Often**\
+`The case for “mindful underparenting.”`\
+https://nytimes.com/2024/09/15/opinion/parenting-helicopter-ignoring.html
+
 **Raiders vs. Ravens odds, picks, how to watch: These 0-1 teams are not alike**\
 `The Ravens and Raiders start their season 0-1, but the gap in their talent is wide. Baltimore is significantly favored on Sunday.`\
 https://nytimes.com/athletic/5765622/2024/09/15/raiders-ravens-odds-expert-picks-how-to-watch-predictions-betting/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5763624/2024/09/15/seahawks-patriots-odds-expert-pi
 **Tottenham Hotspur vs Arsenal: Odegaard's injury, Solanke's home debut and… lots of goals?**\
 `The north London derby rarely disappoints and there is plenty at stake, even this early in the season`\
 https://nytimes.com/athletic/5762177/2024/09/15/tottenham-arsenal-north-london-derby-2/
-
-**How the Champions League ate football: 'It was in our DNA - the brand was sacred'**\
-`Europe's elite club competition has become the sport's dominant brand — this is how`\
-https://nytimes.com/athletic/5762454/2024/09/15/champions-league-brand/
-
-**49ers vs. Vikings odds, picks, how to watch: Vikings face dominant Niners at home**\
-`The 49ers looked incredible on Monday, and now they face a road test against a Vikings team that was good ... against the Giants.`\
-https://nytimes.com/athletic/5763580/2024/09/15/49ers-vikings-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Bentancur, Son and the FA charge hanging over Tottenham ﻿going into the north London derby**\
-`Rodrigo Bentancur is likely to start for Tottenham against Arsenal but he could be facing a lengthy ban`\
-https://nytimes.com/athletic/5766709/2024/09/15/bentancur-son-tottenham-arsenal/
 
