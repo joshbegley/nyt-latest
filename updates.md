@@ -1,3 +1,7 @@
+**No. 1 Georgia survives surprise scare at Kentucky**\
+`No. 1 Georgia found itself in trouble for most of the night before barely escaping with a 13-12 win, its 15th in a row over the Wildcats.`\
+https://nytimes.com/athletic/5767620/2024/09/14/georgia-bulldogs-football-kentucky/
+
 **Saints vs. Cowboys odds, picks, how to watch: Is Saints' honeymoon over?**\
 `The Cowboys and Saints are both 0-1, but this will be a much tougher test for New Orleans in Dallas. `\
 https://nytimes.com/athletic/5763395/2024/09/14/saints-cowboys-odds-expert-picks-how-to-watch-predictions-betting/
