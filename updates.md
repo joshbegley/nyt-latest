@@ -1,3 +1,7 @@
+**Missing Yosemite National Park Backpacker Found Dead**\
+`Kirk S. Thomas Olsen, 61, was found dead after park rangers learned that he was overdue to return from backpacking in the Ostrander Lake area of the park.`\
+https://nytimes.com/2024/09/15/us/yosemite-national-park-backpacker-dead.html
+
 **Trump Safe After Shooting Reported at His Golf Course**\
 `The Palm Beach County Sheriff’s Office said there had been a shooting “on the grounds” of Mr. Trump’s course there while the former president was at the club.`\
 https://nytimes.com/2024/09/15/us/politics/trump-shooting-golf-course.html
