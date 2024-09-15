@@ -1,3 +1,15 @@
+**49ers vs. Vikings odds, picks, how to watch: Vikings face dominant Niners at home**\
+`The 49ers looked incredible on Monday, and now they face a road test against a Vikings team that was good ... against the Giants.`\
+https://nytimes.com/athletic/5763580/2024/09/15/49ers-vikings-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Bentancur, Son and the FA charge hanging over Tottenham ﻿going into the north London derby**\
+`Rodrigo Bentancur is likely to start for Tottenham against Arsenal but he could be facing a lengthy ban`\
+https://nytimes.com/athletic/5766709/2024/09/15/bentancur-son-tottenham-arsenal/
+
+**Birmingham City vs Wrexham: The EFL celebrity derby and a battle for U.S. fandom**\
+`A League One showdown on a Monday night doesn't usually expect to absorb fans on both sides of the pond - but Birmingham vs Wrexham will`\
+https://nytimes.com/athletic/5755555/2024/09/15/birmingham-city-vs-wrexham-the-efl-celebrity-derby-and-a-battle-for-u-s-fandom/
+
 **Quote of the Day: Russia Stiffens Its Defenses as Ukraine Presses Its Attack in Kursk**\
 `Quotation of the Day for Sunday, September 15, 2024.`\
 https://nytimes.com/2024/09/15/pageoneplus/quote-of-the-day-russia-stiffens-its-defenses-as-ukraine-presses-its-attack-in-kursk.html
