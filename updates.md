@@ -1,3 +1,7 @@
+**Could Jadon Sancho be the left-side threat Chelsea have lacked since Eden Hazard left?**\
+`It was the Sanchez and Sancho show for Enzo Maresca's side as they beat Bournemouth 1-0 `\
+https://nytimes.com/athletic/5767296/2024/09/15/jadon-sancho-chelsea-left-side-threat/
+
 **Red Sox's Cora hints team threw at Judge on purpose**\
 `"We had our chance. It didn't happen and we have to move on," Cora said.`\
 https://nytimes.com/athletic/5768647/2024/09/15/alex-cora-brayan-bello-aaron-judge-red-sox-yankees/
