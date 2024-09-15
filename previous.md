@@ -1,3 +1,7 @@
+**Stewart Mandel's 12-team Playoff projections after Week 3**\
+`Who should be in the 12-team Playoff after Week 3? Stewart Mandel makes his picks.`\
+https://nytimes.com/athletic/5767939/2024/09/15/college-football-playoff-bracket-projections-week-3/
+
 **The N.F.L. Now Allows Helmet Caps**\
 `Do they work?`\
 https://nytimes.com/2024/09/15/briefing/nfl-guardian-caps.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767796/2024/09/15/college-football-week-3-florida-
 **One-on-one with Jets GM Kevin Cheveldayoff: 'Our biggest focus is on winning'**\
 `How the Jets' high-end prospects factor into their short-term plans, what the future holds for Cole Perfetti, and more.`\
 https://nytimes.com/athletic/5766205/2024/09/15/winnipeg-jets-gm-kevin-cheveldayoff/
-
-**Harris Is Good on Abortion Rights. Now She Needs to Take It to 11.**\
-`The vice president should triple down on the issue to clench this race.`\
-https://nytimes.com/2024/09/15/opinion/kamala-harris-abortion-election.html
 
