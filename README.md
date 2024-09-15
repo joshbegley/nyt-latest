@@ -1,3 +1,19 @@
+**It’s already clear the Canadiens should give Lane Hutson a chance to start in the NHL**\
+`Hutson's skill set already seems very obviously better suited for the NHL than the AHL.`\
+https://nytimes.com/athletic/5769704/2024/09/15/canadiens-lane-hutson-prospect/
+
+**Harrison Butker's game-winning field goal pushes Chiefs past Bengals**\
+`Kansas City moved to 2-0 on the season while the Bengals, who in many ways outplayed the Chiefs, dropped to 0-2 for the third straight year.`\
+https://nytimes.com/athletic/5768399/2024/09/15/chiefs-bengals-takeaways-result/
+
+**The incident raises new questions about the Secret Service’s ability to protect candidates.**\
+`By Glenn Thrush, Eileen Sullivan and Kate Kelly`\
+https://nytimes.com/live/2024/09/15/us/harris-trump-election/secret-service-trump-shooting
+
+**Four takeaways from Steelers-Broncos as Pittsburgh improves to 2-0**\
+`Pittsburgh's defense stymied Denver rookie Bo Nix, sacking him twice and intercepting him twice, including on the game's final play.`\
+https://nytimes.com/athletic/5769474/2024/09/15/steelers-broncos-takeways-result/
+
 **Trump’s golfing has been a security challenge for the Secret Service.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/09/15/us/harris-trump-election/trumps-golfing-has-been-a-security-challenge-for-the-secret-service
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/15/arts/television/emmy-awards-winners.html
 **Father-and-son duo Eugene and Dan Levy return to host the ceremony.**\
 `By Annie Aguiar`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/eugene-dan-levy-emmys-hosts
-
-**Patriots do everything necessary to win on the fringes — but still lose to Seahawks**\
-`The Patriots ran it well didn't turn it over and dominated time of possession. But it still wasn't enough in a loss to the Seahawks.`\
-https://nytimes.com/athletic/5769502/2024/09/15/patriots-loss-seahawks-jerod-mayo-margin-for-error/
-
-**Catholic Priest Is Indicted on Sexual Assault Charges**\
-`Father Anthony Odiong was arrested in July after the police found him with child pornography while investigating a sexual assault claim, according to the Waco Police Department.`\
-https://nytimes.com/2024/09/15/us/waco-texas-priest-sexual-assault.html
-
-**Red Sox rallied around Rafael Devers, but fail to capitalize on momentum in New York**\
-`The Red Sox have repeatedly struggled to build off big wins. “It's been tough and we’ve lost games in a lot of different ways.”`\
-https://nytimes.com/athletic/5769533/2024/09/15/red-sox-rafael-devers-yankees-series/
-
-**Michaela DePrince, War Orphan Turned Leading Ballerina, Dies at 29**\
-`In an impoverished orphanage in Sierra Leone, she longed to dance ballet. After being adopted by American parents, her improbable dream came true.`\
-https://nytimes.com/2024/09/15/obituaries/michaela-deprince-dead.html
 
