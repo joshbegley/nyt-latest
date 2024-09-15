@@ -1,3 +1,7 @@
+**Key takeaways from Saints-Cowboys: How good is New Orleans' offense?**\
+`The Saints' offense posted its second-straight 40-point game of the season behind another efficient performance from quarterback Derek Carr`\
+https://nytimes.com/athletic/5768363/2024/09/15/saints-cowboys-takeaways-result/
+
 **Vikings stun 49ers, improve to 2-0 under Sam Darnold**\
 `In the second quarter, Darnold connected with Justin Jefferson on a 97-yard touchdown pass, the longest NFL play since 2022.`\
 https://nytimes.com/athletic/5769001/2024/09/15/vikings-49ers-takeaways-result-sam-darnold/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768858/2024/09/15/ravens-raiders-medical-emergency
 **United States wins Solheim Cup for first time since 2017**\
 `Lilia Vu clinched the cup for the Americans with a wonderful approach shot on No. 18 to set up birdie and earn a half-point.`\
 https://nytimes.com/athletic/5768826/2024/09/15/solheim-cup-united-states-win-europe/
-
-**AP Top 25: Texas jumps Georgia for No. 1 in poll**\
-`The Texas Longhorns are No. 1 in the AP Top 25 college football rankings for the first time since 2008, topping Georgia and Ohio State.`\
-https://nytimes.com/athletic/5768674/2024/09/15/ap-top-25-texas-number-one-georgia/
 
