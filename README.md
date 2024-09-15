@@ -34,7 +34,7 @@ https://nytimes.com/2024/09/15/crosswords/daily-puzzle-2024-09-16.html
 `Kupp limped into the locker room at halftime and did not return to the sideline as the third quarter began.`\
 https://nytimes.com/athletic/5769398/2024/09/15/rams-cooper-kupp-ankle-injury/
 
-**Arizona rookie Harrison erupts with 2 first-half touchdowns vs. Rams**\
-`Through the first half against the Los Angeles Rams, Harrison, the fourth pick in the 2024 NFL Draft, had four receptions for 130 yards.`\
+**Top takeaways as Cardinals' Marvin Harrison Jr. erupts vs. Rams**\
+`Harrison exploded for 130 receiving yards while Murray finished with a perfect 158.3 passer rating.`\
 https://nytimes.com/athletic/5769248/2024/09/15/marvin-harrison-jr-cardinals-rams-takeaways-result/
 
