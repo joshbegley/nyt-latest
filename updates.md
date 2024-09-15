@@ -1,3 +1,11 @@
+**England threatened with Euro 2028 ban over independent regulator plan**\
+`European football's governing body fears watchdog could lead to "government interference"`\
+https://nytimes.com/athletic/5767271/2024/09/15/uefa-england-euro-2028-regulator/
+
+**Bengals vs. Chiefs odds, picks, how to watch: Cincy's gut-check continues**\
+`The Bengals suffered a massive blow in Week 1 and are taking a banged-up core to the home of the reigning champs. `\
+https://nytimes.com/athletic/5765709/2024/09/15/bengals-chiefs-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Can Notre Dame handle success? Purdue win a big step forward, but NIU loss will linger**\
 `Marcus Freeman knows Notre Dame isn't as bad as the NIU loss made it seem but isn't as good as Saturday's 66-7 rout of Purdue. What's next?`\
 https://nytimes.com/athletic/5767707/2024/09/15/notre-dame-purdue-marcus-freeman-niu/
