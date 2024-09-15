@@ -1,3 +1,7 @@
+**Chargers vs. Panthers odds, picks, how to watch: Harbaugh's Chargers aim for 2-0**\
+`Jim Harbaugh's Chargers head to Carolina to take on a struggling Panthers team. Our experts are of one mind on this one. `\
+https://nytimes.com/athletic/5763774/2024/09/15/chargers-panthers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Chris Sale's many fans include Braves great Tom Glavine: 'A genius move'**\
 `Sale lowered his ERA to 2.35 and closed in on the Cy Young Award as the Braves pummeled the Dodgers.`\
 https://nytimes.com/athletic/5767652/2024/09/15/braves-chris-sale-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766709/2024/09/15/bentancur-son-tottenham-arsenal/
 **Birmingham City vs Wrexham: The EFL celebrity derby and a battle for U.S. fandom**\
 `A League One showdown on a Monday night doesn't usually expect to absorb fans on both sides of the pond - but Birmingham vs Wrexham will`\
 https://nytimes.com/athletic/5755555/2024/09/15/birmingham-city-vs-wrexham-the-efl-celebrity-derby-and-a-battle-for-u-s-fandom/
-
-**Quote of the Day: Russia Stiffens Its Defenses as Ukraine Presses Its Attack in Kursk**\
-`Quotation of the Day for Sunday, September 15, 2024.`\
-https://nytimes.com/2024/09/15/pageoneplus/quote-of-the-day-russia-stiffens-its-defenses-as-ukraine-presses-its-attack-in-kursk.html
 
