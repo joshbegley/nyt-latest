@@ -1,3 +1,11 @@
+**'Unacceptable': What went so wrong for Liverpool against Nottingham Forest?**\
+`Slot's Liverpool suffered a reality check against Nottingham Forest - what went wrong and what happens now?`\
+https://nytimes.com/athletic/5767062/2024/09/15/liverpool-nottingham-forest-van-dikj/
+
+**Lowetide: Can the Oilers become more responsible with the salary cap?**\
+`The cap room available to the Oilers now will grow over the season and into the summer.`\
+https://nytimes.com/athletic/5766840/2024/09/15/edmonton-oilers-salary-cap-responsible/
+
 **Madrid briefing: Mbappe's growing influence, Vinicius penalty controversy and why Kroos is missed**\
 `We break down the key talking points from Real Madrid's win against Real Sociedad on Saturday`\
 https://nytimes.com/athletic/5767576/2024/09/15/real-madrid-briefing-mbappe-vinicius-kroos/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/15/opinion/kamala-harris-abortion-election.html
 **The Sunday Read: ‘The For-Profit City That Might Come Crashing Down’**\
 `The dream of Próspera, founded by a U.S. corporation off the coast of Honduras, was to escape government control. The Honduran government wants it gone.`\
 https://nytimes.com/2024/09/15/podcasts/the-daily/prospera-hunduras-crypto.html
-
-**The U.S. must believe 'we can win the World Cup'? Pochettino will need all the help he can get**\
-`This was a gamble from the new head coach but also an attempt to change his team's mindset from the off`\
-https://nytimes.com/athletic/5766807/2024/09/15/usmnt-world-cup-pochettino/
-
-**Trump Dislikes Ukraine for the Most MAGA of Reasons**\
-`The country lies at the heart of overlapping conspiracy theories important to the former president.`\
-https://nytimes.com/2024/09/15/opinion/trump-debate-ukraine-russia.html
 
