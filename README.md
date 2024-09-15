@@ -1,3 +1,19 @@
+**‘Water Is Coming.’ Floods Devastate West and Central Africa**\
+`Flooding caused by heavy rains has left more than 1,000 people dead and hundreds of thousands of homes destroyed.`\
+https://nytimes.com/2024/09/15/world/africa/floods-africa.html
+
+**The Briefing: Tottenham 0 Arsenal 1 - More set-piece joy for Arteta's side in intense north London derby**\
+`Analysis of the key talking points from the north London derby`\
+https://nytimes.com/athletic/5765388/2024/09/15/tottenham-arsenal-result-analysis/
+
+**Held Involuntarily in a Psychiatric Hospital**\
+`Responses to an exposé about the Acadia Healthcare chain of psychiatric hospitals. Also: Taxes on tips; nonpartisan elections; sitting still in school.`\
+https://nytimes.com/2024/09/15/opinion/involuntary-acadia-psychiatric-hospital.html
+
+**Chicken Curry for Sunday Supper**\
+`Meera Sodha’s classic recipe, rich with deep flavors of cinnamon and cumin above a low flame of chiles, needs mopping up with naan.`\
+https://nytimes.com/2024/09/15/dining/chicken-curry-sunday-supper.html
+
 **JD Vance Stands By False Pet-Eating Claims Roiling Ohio City**\
 `After Mr. Vance and former President Donald J. Trump amplified false claims that Haitian migrants in Springfield, Ohio, were eating pets, the city received numerous bomb threats.`\
 https://nytimes.com/2024/09/15/us/politics/jd-vance-springfield-pets.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5767312/2024/09/15/arch-manning-texas-lsu-south-car
 **Data Centers Make Terrible Neighbors**\
 `Residents rarely learn how data centers and their noise and energy and water use may affect their lives until it’s too late.`\
 https://nytimes.com/2024/09/15/opinion/data-centers-ai-amazon-google-microsoft.html
-
-**Oscar Piastri wins F1 Azerbaijan GP, McLaren takes championship lead**\
-`Oscar Piastri won his second career grand prix to give McLaren its first title lead in years.`\
-https://nytimes.com/athletic/5768081/2024/09/15/oscar-piastri-f1-azerbaijan-gp/
-
-**Chief Counsel to Eric Adams Resigns Amid Federal Investigations**\
-`The stunning departure of Lisa Zornberg, the chief counsel to Mayor Eric Adams of New York, was announced late Saturday as federal investigations into his administration expand.`\
-https://nytimes.com/2024/09/15/nyregion/lisa-zornberg-resigns-eric-adams-counsel.html
-
-**'I want more out of myself': Brandt Clarke won't be satisfied by simply making Kings' roster**\
-`"My goal isn’t just to make the NHL. It’s to excel in the NHL," Clarke said as he prepares for a crucial training camp.`\
-https://nytimes.com/athletic/5767672/2024/09/15/kings-brandt-clarke-roster/
-
-**Here’s the latest on the presidential race.**\
-`By Maggie Astor and Simon J. Levien`\
-https://nytimes.com/live/2024/09/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
