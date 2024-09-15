@@ -1,3 +1,7 @@
+**What nominees did people actually watch?**\
+`By John Koblin`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/what-nominees-did-people-actually-watch
+
 **Emmys lineup reflects a contracting industry.**\
 `By John Koblin`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/emmys-lineup-reflects-a-contracting-industry
