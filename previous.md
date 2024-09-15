@@ -1,3 +1,7 @@
+**Live Q&A: Week 2 fantasy football start/sit chat with Jay Felicio, Sunday 9/15 at 11 a.m. ET**\
+`Submit your Week 2 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5763132/2024/09/15/live-qa-week-2-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-15-at-11-a-m-et/
+
 **Diaz set for two months out with abductor injury**\
 `Real Madrid midfielder Brahim Diaz is set to be out for at least two months after suffering a hip abductor injury.`\
 https://nytimes.com/athletic/5768130/2024/09/15/real-madrid-brahim-diaz-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767939/2024/09/15/college-football-playoff-bracket
 **The N.F.L. Now Allows Helmet Caps**\
 `Do they work?`\
 https://nytimes.com/2024/09/15/briefing/nfl-guardian-caps.html
-
-**'Unacceptable': What went so wrong for Liverpool against Nottingham Forest?**\
-`Slot's Liverpool suffered a reality check against Nottingham Forest - what went wrong and what happens now?`\
-https://nytimes.com/athletic/5767062/2024/09/15/liverpool-nottingham-forest-van-dikj/
 
