@@ -1,7 +1,3 @@
-**What nominees did people actually watch?**\
-`By John Koblin`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/what-nominees-did-people-actually-watch
-
 **Houston Dash head coach Fran Alonso remains away amid the team's winless streak**\
 `Alonso has not been in-person with the Dash since June. `\
 https://nytimes.com/athletic/5769491/2024/09/15/houston-dash-coach-fran-alonso-absence/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5769398/2024/09/15/rams-cooper-kupp-ankle-injury/
 **Arizona rookie Harrison erupts with 2 first-half touchdowns vs. Rams**\
 `Through the first half against the Los Angeles Rams, Harrison, the fourth pick in the 2024 NFL Draft, had four receptions for 130 yards.`\
 https://nytimes.com/athletic/5769248/2024/09/15/marvin-harrison-jr-cardinals-rams-takeaways-result/
+
+**The Mets lost a game, a series and maybe their MVP candidate. Can they rebound quickly?**\
+`Francisco Lindor will get an MRI on Monday that will determine how much more time he might miss due to lower back pain.`\
+https://nytimes.com/athletic/5769047/2024/09/15/mets-postseason-chase-francisco-lindor-injury/
 
