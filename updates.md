@@ -1,3 +1,7 @@
+**Padres flex depth in rout, show why NL West title remains realistic goal**\
+`The Padres piled up a season-high seven doubles among 17 hits in a shutout of the Giants.`\
+https://nytimes.com/athletic/5767734/2024/09/15/padres-rout-giants-nl-west/
+
 **Browns at Jaguars odds, expert picks, how to watch: Jags slight favorites at home**\
 `The Browns and Jaguars both lost their opening games. Now, the two teams meet in Florida with the Jaguars a small favorite.`\
 https://nytimes.com/athletic/5765508/2024/09/15/cleveland-browns-jacksonville-jaguars-odds-expert-picks-how-to-watch/

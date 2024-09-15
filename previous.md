@@ -1,3 +1,7 @@
+**Padres flex depth in rout, show why NL West title remains realistic goal**\
+`The Padres piled up a season-high seven doubles among 17 hits in a shutout of the Giants.`\
+https://nytimes.com/athletic/5767734/2024/09/15/padres-rout-giants-nl-west/
+
 **Browns at Jaguars odds, expert picks, how to watch: Jags slight favorites at home**\
 `The Browns and Jaguars both lost their opening games. Now, the two teams meet in Florida with the Jaguars a small favorite.`\
 https://nytimes.com/athletic/5765508/2024/09/15/cleveland-browns-jacksonville-jaguars-odds-expert-picks-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5763715/2024/09/15/giants-commanders-odds-expert-pi
 **Seahawks vs. Patriots odds, picks, how to watch: Both teams look for second win**\
 `The Seahawks and Patriots both won ugly in Week 1 and are looking to prove they can win again, perhaps with more ease this time.`\
 https://nytimes.com/athletic/5763624/2024/09/15/seahawks-patriots-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Tottenham Hotspur vs Arsenal: Odegaard's injury, Solanke's home debut and… lots of goals?**\
-`The north London derby rarely disappoints and there is plenty at stake, even this early in the season`\
-https://nytimes.com/athletic/5762177/2024/09/15/tottenham-arsenal-north-london-derby-2/
 
