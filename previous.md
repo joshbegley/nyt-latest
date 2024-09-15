@@ -1,3 +1,7 @@
+**Three Hostages Were Likely Killed in November by Israeli Strike, I.D.F. Says**\
+`An investigation into the deaths of three Israeli hostages determined that they were likely killed in a military airstrike targeting a Hamas commander.`\
+https://nytimes.com/2024/09/15/world/middleeast/israel-hostages-killed-strike.html
+
 **Mailbag, Part 2: Why the Penguins reaching the playoffs this season isn't far-fetched**\
 `An optimistic point of view on an upcoming Penguins season that doesn't have very high expectations.`\
 https://nytimes.com/athletic/5765132/2024/09/15/penguins-playoffs-sidney-crosby-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/us/politics/robert-f-kennedy-jr-trump-whale-carca
 **Eagles rule out A.J. Brown due to hamstring injury**\
 `Brown had five catches for 119 yards and a touchdown in the regular-season opener against the Green Bay Packers.`\
 https://nytimes.com/athletic/5768572/2024/09/15/aj-brown-out-injury-eagles/
-
-**Arteta hails Arsenal's 'maturity' in north London derby win**\
-`Mikel Arteta praised his Arsenal side for showing &#8220;a lot of maturity&#8221; in their victory against rivals Tottenham Hotspur on Sunday afternoon.`\
-https://nytimes.com/athletic/5768492/2024/09/15/mikel-arteta-arsenal-tottenham/
 

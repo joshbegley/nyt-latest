@@ -1,3 +1,7 @@
+**Three Hostages Were Likely Killed in November by Israeli Strike, I.D.F. Says**\
+`An investigation into the deaths of three Israeli hostages determined that they were likely killed in a military airstrike targeting a Hamas commander.`\
+https://nytimes.com/2024/09/15/world/middleeast/israel-hostages-killed-strike.html
+
 **Mailbag, Part 2: Why the Penguins reaching the playoffs this season isn't far-fetched**\
 `An optimistic point of view on an upcoming Penguins season that doesn't have very high expectations.`\
 https://nytimes.com/athletic/5765132/2024/09/15/penguins-playoffs-sidney-crosby-mailbag/
