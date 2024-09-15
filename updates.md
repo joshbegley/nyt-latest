@@ -1,3 +1,11 @@
+**Arizona rookie Harrison erupts with 2 first-half touchdowns vs. Rams**\
+`Through the first half against the Los Angeles Rams, Harrison, the fourth pick in the 2024 NFL Draft, had four receptions for 130 yards.`\
+https://nytimes.com/athletic/5769248/2024/09/15/marvin-harrison-jr-cardinals-rams-takeaways-result/
+
+**The Mets lost a game, a series and maybe their MVP candidate. Can they rebound quickly?**\
+`Francisco Lindor will get an MRI on Monday that will determine how much more time he might miss due to lower back pain.`\
+https://nytimes.com/athletic/5769047/2024/09/15/mets-postseason-chase-francisco-lindor-injury/
+
 **NFL Week 2 takeaways: What's wrong with the Ravens? And what's right with the Saints and Bucs?**\
 `Plus, sizing up San Francisco after losing to the Vikings, and rookie QB Jayden Daniels’ progress.`\
 https://nytimes.com/athletic/5769322/2024/09/15/nfl-takeaways-week-2-ravens-saints-jayden-daniels/
