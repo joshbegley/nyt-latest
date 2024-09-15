@@ -2,6 +2,10 @@
 `The Saints' offense posted its second-straight 40-point game of the season behind another efficient performance from quarterback Derek Carr`\
 https://nytimes.com/athletic/5768363/2024/09/15/saints-cowboys-takeaways-result/
 
+**3 takeaways as the Jets defeat the Titans for first win**\
+`It was often ugly for the Jets offense, but it did just enough to win — especially on a crucial scoring drive in the fourth quarter.`\
+https://nytimes.com/athletic/5768420/2024/09/15/jets-titans-takeaways-result/
+
 **Vikings stun 49ers, improve to 2-0 under Sam Darnold**\
 `In the second quarter, Darnold connected with Justin Jefferson on a 97-yard touchdown pass, the longest NFL play since 2022.`\
 https://nytimes.com/athletic/5769001/2024/09/15/vikings-49ers-takeaways-result-sam-darnold/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768866/2024/09/15/eddie-howe-progress-isak-newcast
 **Chain crew member collapses, receives CPR on Ravens sideline**\
 `According to a member of the Ravens public relations, the chain gang member was alert and responsive as he was taken to a local hospital.`\
 https://nytimes.com/athletic/5768858/2024/09/15/ravens-raiders-medical-emergency-game-delayed/
-
-**United States wins Solheim Cup for first time since 2017**\
-`Lilia Vu clinched the cup for the Americans with a wonderful approach shot on No. 18 to set up birdie and earn a half-point.`\
-https://nytimes.com/athletic/5768826/2024/09/15/solheim-cup-united-states-win-europe/
 
