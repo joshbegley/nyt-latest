@@ -1,3 +1,11 @@
+**Behold the Premier League's worst-behaved match ever: We recap all 14 bookings**\
+`All 14 bookings between Bournemouth and Chelsea examined`\
+https://nytimes.com/athletic/5768359/2024/09/15/bournemouth-chelsea-yellow-cards-record-premier-league/
+
+**Three Hostages Were Likely Killed in November by Israeli Strike, I.D.F. Says**\
+`An inquiry into the deaths of three Israeli hostages determined that they probably died as a result of a military airstrike targeting a Hamas commander.`\
+https://nytimes.com/2024/09/15/world/middleeast/israel-hostages-killed-strike.html
+
 **How F1's Azerbaijan GP led to Piastri, Leclerc battle: Misjudgment and 'half an opportunity'**\
 `Stay informed on all the biggest stories in Formula 1.`\
 https://nytimes.com/athletic/5768259/2024/09/15/f1-charles-leclerc-oscar-piastri-azerbaijan-gp/

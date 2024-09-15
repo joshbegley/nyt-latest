@@ -1,9 +1,13 @@
+**Behold the Premier League's worst-behaved match ever: We recap all 14 bookings**\
+`All 14 bookings between Bournemouth and Chelsea examined`\
+https://nytimes.com/athletic/5768359/2024/09/15/bournemouth-chelsea-yellow-cards-record-premier-league/
+
 **How F1's Azerbaijan GP led to Piastri, Leclerc battle: Misjudgment and 'half an opportunity'**\
 `Stay informed on all the biggest stories in Formula 1.`\
 https://nytimes.com/athletic/5768259/2024/09/15/f1-charles-leclerc-oscar-piastri-azerbaijan-gp/
 
 **Three Hostages Were Likely Killed in November by Israeli Strike, I.D.F. Says**\
-`An investigation into the deaths of three Israeli hostages determined that they were likely killed in a military airstrike targeting a Hamas commander.`\
+`An inquiry into the deaths of three Israeli hostages determined that they probably died as a result of a military airstrike targeting a Hamas commander.`\
 https://nytimes.com/2024/09/15/world/middleeast/israel-hostages-killed-strike.html
 
 **Mailbag, Part 2: Why the Penguins reaching the playoffs this season isn't far-fetched**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/movies/life-of-chuck-toronto-award.html
 **Nicolas Cage Buys $10.5 Million Malibu Beach House**\
 `The “Leaving Las Vegas” actor bought an ocean-facing home with a private beach.`\
 https://nytimes.com/2024/09/15/realestate/nicolas-cage-malibu-house.html
-
-**Robert F. Kennedy Jr. Says He Is Being Investigated for Whale Carcass**\
-`He made the claim at a campaign event for former President Donald J. Trump, whom he endorsed after ending his troubled independent bid for the presidency.`\
-https://nytimes.com/2024/09/15/us/politics/robert-f-kennedy-jr-trump-whale-carcass.html
 
