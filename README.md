@@ -1,3 +1,7 @@
+**Houthis Launch Missile at Central Israel**\
+`The rare attack was an illustration of the evolving conflict in the Middle East between Israel and Iranian proxies.`\
+https://nytimes.com/2024/09/15/world/middleeast/houthis-israel-yemen.html
+
 **After another slow start, Georgia's need for better offense is getting real**\
 `There have been enough moments so far this season to show that what Georgia does have on offense can be good enough.`\
 https://nytimes.com/athletic/5767755/2024/09/15/georgia-kentucky-bulldogs-offense-mike-bobo/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/crosswords/connections-companion-463.html
 **If You Like Tim Walz’s Earthy Politics, You Should Know About Paul Wellstone**\
 `The Wellstone tradition of left-populism, once so central to the Democratic Party’s brand, that must be recovered.`\
 https://nytimes.com/2024/09/15/opinion/tim-walz-paul-wellstone.html
-
-**Top NFL Week 2 storylines: Bengals-Chiefs next chapter; C.J. Stroud, Caleb Williams on SNF**\
-`Mahomes vs. Burrow could be an early preview of the AFC title winner. Meanwhile, a Bucs-Lions rematch highlights the NFC slate.`\
-https://nytimes.com/athletic/5763628/2024/09/15/nfl-week-2-storylines-bengals-chiefs-stroud-williams/
 
