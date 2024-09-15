@@ -1,3 +1,7 @@
+**With Quinn Ewers injured, Arch Manning creates five TDs vs. UTSA**\
+`In his most extensive action as a college QB, the redshirt freshman Manning was accurate and decisive and showed off his athleticism.`\
+https://nytimes.com/athletic/5767513/2024/09/14/quinn-ewers-injury-arch-manning-texas-football/
+
 **Corrections: Sept. 15, 2024**\
 `Corrections that appeared in print on Sunday, Sept. 15, 2024.`\
 https://nytimes.com/2024/09/14/pageoneplus/corrections-sept-15-2024.html
