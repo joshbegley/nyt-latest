@@ -1,3 +1,7 @@
+**Longtime Red Sox radio voice Joe Castiglione announces retirement**\
+`Castiglione said he'll continue with the Red Sox in an ambassador type role.`\
+https://nytimes.com/athletic/5768686/2024/09/15/joe-castiglione-red-sox-retirement/
+
 **Eddie Howe praises Newcastle's progress following win at Wolves**\
 `Eddie Howe believes that Newcastle United are making progress with their performances and praised his side for their impressive start to the season, stating it is &#8220;a step in the right direction&#8221;.`\
 https://nytimes.com/athletic/5768866/2024/09/15/eddie-howe-progress-isak-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/world/middleeast/israel-hostages-killed-strike.ht
 **Mailbag, Part 2: Why the Penguins reaching the playoffs this season isn't far-fetched**\
 `An optimistic point of view on an upcoming Penguins season that doesn't have very high expectations.`\
 https://nytimes.com/athletic/5765132/2024/09/15/penguins-playoffs-sidney-crosby-mailbag/
-
-**Could Jadon Sancho be the left-side threat Chelsea have lacked since Eden Hazard left?**\
-`It was the Sanchez and Sancho show for Enzo Maresca's side as they beat Bournemouth 1-0 `\
-https://nytimes.com/athletic/5767296/2024/09/15/jadon-sancho-chelsea-left-side-threat/
 
