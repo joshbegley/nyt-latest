@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5768349/2024/09/15/raiders-ravens-takeaways-result/
 
 **Tom Brady's second Fox NFL broadcast went a lot better than his first**\
-`After a rocky debut, Tom Brady sounded more poised Sunday in his second Fox NFL broadcast — a good step in the right direction.`\
+`After a rocky debut, Brady sounded more poised Sunday in his second Fox NFL broadcast — a good step in the right direction.`\
 https://nytimes.com/athletic/5763468/2024/09/15/tom-brady-fox-nfl-broadcast-cowboys-saints/
 
 **James van Riemsdyk signs with Blue Jackets for 1 year**\

@@ -1,3 +1,7 @@
+**Tom Brady's second Fox NFL broadcast went a lot better than his first**\
+`After a rocky debut, Brady sounded more poised Sunday in his second Fox NFL broadcast — a good step in the right direction.`\
+https://nytimes.com/athletic/5763468/2024/09/15/tom-brady-fox-nfl-broadcast-cowboys-saints/
+
 **5 takeaways from Raiders-Ravens: Gardner Minshew gets hot**\
 `Las Vegas scored 13 straight points in the fourth quarter to drop the Ravens to 0-2.`\
 https://nytimes.com/athletic/5768349/2024/09/15/raiders-ravens-takeaways-result/
