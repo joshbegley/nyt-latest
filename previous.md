@@ -1,40 +1,40 @@
-**How a Behind-the-Scenes ‘Kingmaker’ Developed a Talent for Diplomacy**\
-`Sonia Purnell’s biography of Pamela Harriman argues that the Democratic stalwart and former ambassador was more than the men she cultivated.`\
-https://nytimes.com/2024/09/15/books/review/kingmaker-pamela-harriman-sonia-purnell.html
+**How the Last Eight Years Made Young Women More Liberal**\
+`For a generation of girls raised to believe they could be anything, the Trump era moved their politics to the left, a new analysis shows.`\
+https://nytimes.com/2024/09/15/upshot/election-young-women-liberal.html
 
-**How a Tourist Paradise Became a Drug-Trafficking Magnet**\
-`Costa Rica’s lush rainforests, which blanket a quarter of the country, are being infiltrated by cartels on a quest to find new trafficking routes to evade the authorities.`\
-https://nytimes.com/2024/09/15/world/americas/costa-rica-drug-trafficking.html
+**How the False Story of a Gang ‘Takeover’ in Colorado Reached Trump**\
+`The claim that Aurora, Colo., has been overrun by gun-toting migrants stemmed from the city’s fight with a landlord. Now it is central to one of former President Donald J. Trump’s anti-immigrant campaign promises.`\
+https://nytimes.com/2024/09/15/us/politics/trump-aurora-colorado-immigration.html
 
-**At the Movies, the Apocalypse Has Already Arrived**\
-`In “Joker: Folie à Deux,” “Megalopolis” and more, the sense of an isolated and fearful humanity pervades this season’s films.`\
-https://nytimes.com/2024/09/15/movies/at-the-movies-the-apocalypse-has-already-arrived.html
+**This Airbnb Offers Unbeatable Views of Kamala Harris’s Past**\
+`A Silicon Valley software engineer bought a modest one-bedroom condo in San Francisco once owned by the vice president. He rents it out.`\
+https://nytimes.com/2024/09/15/us/this-airbnb-offers-unbeatable-views-of-kamala-harriss-past.html
 
-**Billy Napier doesn't blame Florida fans for boos as his prove-it season deteriorates**\
-`After Florida fell to Texas A&M at home, a season that just started feels over, with Tennessee, Georgia, Texas, LSU and Ole Miss still left.`\
-https://nytimes.com/athletic/5767589/2024/09/15/florida-gators-football-billy-napier-job/
+**3 Georgia Women, Caught Up in a Flood of Suspicion About Voting**\
+`An election skeptic challenged hundreds of voter registrations, including one for a voting rights activist. A county official is dealing with the mess.`\
+https://nytimes.com/2024/09/15/us/politics/georgia-voting-2024-election.html
 
-**Rams vs. Cardinals odds, picks, how to watch: Are wafer-thin odds misleading?**\
-`The Cardinals are favored at home against a Sean McVay-led Rams team that just seems better on paper. `\
-https://nytimes.com/athletic/5765646/2024/09/15/rams-cardinals-odds-expert-picks-how-to-watch-predictions-betting/
+**Roblox for Adults? Dress to Impress Draws a Crowd.**\
+`The online gaming platform is ubiquitous among tweens, but a popular fashion game has adults — and a few celebrities — paying attention.`\
+https://nytimes.com/2024/09/15/style/dress-to-impress-roblox.html
 
-**‘The Yellowstone Effect’: Cities Cash In on Cowboy Culture**\
-`Lands in cities and towns that were once shipping points for livestock can be low-lying, unfavorable and often prone to flooding. They’re also hotbeds for new developments.`\
-https://nytimes.com/2024/09/15/business/stockyards-redevelopment.html
+**A Couple That (Eventually) Cooked Together**\
+`Stephen Colbert and Evie McGee Colbert once had a falling out over a spoon, but their new cookbook has them in the kitchen, with love, laughter, and the right utensils.`\
+https://nytimes.com/2024/09/15/style/stephen-colbert-family-cookbook-does-this-taste-funny.html
 
-**Polaris Dawn Astronauts Return to Earth After First Private Spacewalk**\
-`The SpaceX capsule, whose crew was led by the billionaire Jared Isaacman, splashed down near the Gulf of Mexico early Sunday.`\
-https://nytimes.com/2024/09/15/us/spacex-polaris-dawn-landing.html
+**What We Learned From Talking to Undecided Voters**\
+`For the people still on the fence about whom to vote for in the 2024 presidential race, Tuesday night’s debate was an important data point.`\
+https://nytimes.com/video/us/politics/100000009686262/what-we-learned-from-talking-to-undecided-voters.html
 
-**A Season of Culture, Celebrated Over 92 Pages**\
-`Arts & Leisure’s fall preview connects readers with the season’s noteworthy cultural works. And there are many.`\
-https://nytimes.com/2024/09/15/insider/a-season-of-culture-celebrated-over-92-pages.html
+**An Era of Chinese Adoption Ends, and Families Are Torn Over Its Legacy**\
+`More than 80,000 children from China were adopted by American families. While many appreciate how the adoptions reshaped their own lives, they are also glad to see the program conclude.`\
+https://nytimes.com/2024/09/15/world/asia/chinese-american-adoption-program.html
 
-**What a Mayor in Crisis Means for New York City**\
-`As federal investigations swirl around Mayor Eric Adams, his political influence, his agenda and his re-election effort are at risk.`\
-https://nytimes.com/2024/09/15/nyregion/eric-adams-scandal-crisis.html
+**‘Beetlejuice Beetlejuice’ Hands Warner Bros. a Lifeline**\
+`The movie has made roughly $190 million in its first 10 days, giving the studio a needed hit after a summer of misfires.`\
+https://nytimes.com/2024/09/15/business/media/beetlejuice-warner-bros-lifeline.html
 
-**How Do I Survive the Last Mile to Retirement?**\
-`I have a crushing workload and the anger to prove it. With less than two years before I can leave, how do I avoid alienating everyone?`\
-https://nytimes.com/2024/09/15/business/retirement-work-problems-advice.html
+**Therapy Can Be a Financial Burden. Try Telling Your Therapist That.**\
+`Many Americans who need therapy are discouraged by the cost. But there are options to make it more affordable.`\
+https://nytimes.com/2024/09/15/business/affordable-therapy-costs.html
 
