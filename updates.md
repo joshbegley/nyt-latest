@@ -1,3 +1,7 @@
+**Cooper Kupp doubtful to return vs. Cardinals with ankle injury**\
+`Kupp limped into the locker room at halftime and did not return to the sideline as the third quarter began.`\
+https://nytimes.com/athletic/5769398/2024/09/15/rams-cooper-kupp-ankle-injury/
+
 **5 takeaways from Raiders-Ravens: Minshew gets hot, Ravens fall to 0-2**\
 `Las Vegas scored 13 straight points in the fourth quarter to drop the Ravens to 0-2.`\
 https://nytimes.com/athletic/5768349/2024/09/15/raiders-ravens-takeaways-result/

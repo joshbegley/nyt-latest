@@ -1,3 +1,7 @@
+**Cooper Kupp doubtful to return vs. Cardinals with ankle injury**\
+`Kupp limped into the locker room at halftime and did not return to the sideline as the third quarter began.`\
+https://nytimes.com/athletic/5769398/2024/09/15/rams-cooper-kupp-ankle-injury/
+
 **Arizona rookie Harrison erupts with 2 first-half touchdowns vs. Rams**\
 `Through the first half against the Los Angeles Rams, Harrison, the fourth pick in the 2024 NFL Draft, had four receptions for 130 yards.`\
 https://nytimes.com/athletic/5769248/2024/09/15/marvin-harrison-jr-cardinals-rams-takeaways-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5763468/2024/09/15/tom-brady-fox-nfl-broadcast-cowb
 **James van Riemsdyk signs with Blue Jackets for 1 year**\
 `One day after stating publicly that the Columbus Blue Jackets were “probably two forwards short” of an NHL-worthy lineup, general manager Don Waddell took steps to remedy that.`\
 https://nytimes.com/athletic/5769249/2024/09/15/van-riemsdyk-blue-jackets-contract/
-
-**Conor Gallagher scores first goal for Atletico Madrid against Valencia**\
-`Conor Gallagher scored his first goal for Atletico Madrid during their 3-0 La Liga victory against Valencia.`\
-https://nytimes.com/athletic/5769163/2024/09/15/conor-gallagher-atletico-madrid-valencia/
 
