@@ -1,3 +1,7 @@
+**Eagles rule out A.J. Brown due to hamstring injury**\
+`Brown had five catches for 119 yards and a touchdown in the regular-season opener against the Green Bay Packers.`\
+https://nytimes.com/athletic/5768572/2024/09/15/aj-brown-out-injury-eagles/
+
 **Arteta hails Arsenal's 'maturity' in north London derby win**\
 `Mikel Arteta praised his Arsenal side for showing &#8220;a lot of maturity&#8221; in their victory against rivals Tottenham Hotspur on Sunday afternoon.`\
 https://nytimes.com/athletic/5768492/2024/09/15/mikel-arteta-arsenal-tottenham/
