@@ -1,3 +1,7 @@
+**Chargers vs. Panthers odds, picks, how to watch: Harbaugh's Chargers aim for 2-0**\
+`Jim Harbaugh's Chargers head to Carolina to take on a struggling Panthers team. Our experts are of one mind on this one. `\
+https://nytimes.com/athletic/5763774/2024/09/15/chargers-panthers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Chris Sale's many fans include Braves great Tom Glavine: 'A genius move'**\
 `Sale lowered his ERA to 2.35 and closed in on the Cy Young Award as the Braves pummeled the Dodgers.`\
 https://nytimes.com/athletic/5767652/2024/09/15/braves-chris-sale-dodgers/
