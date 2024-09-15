@@ -1,3 +1,7 @@
+**In Springfield, Ohio, Threats Leave Haitian Residents Shaken**\
+`Tension hangs over the city after a week of closings and lockdowns, and the strain of recent months has led some Haitian immigrants to consider leaving for bigger cities.`\
+https://nytimes.com/2024/09/14/us/springfield-ohio-haitians-tension.html
+
 **Wisconsin exposed in humbling loss to Alabama: 'We got completely obliterated today'**\
 `One side possessed multiple playmakers and executed at a high level. The other side didn’t. The result was a dominant win by Alabama.`\
 https://nytimes.com/athletic/5767541/2024/09/14/wisconsin-badgers-alabama-luke-fickell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767344/2024/09/14/dillon-gabriel-2025-nfl-draft-qu
 **Smith: Can Alabama play to its standard against Georgia?**\
 `Alabama passed its first true test of the season against Wisconsin, but next up may be its biggest: Georgia.`\
 https://nytimes.com/athletic/5767372/2024/09/14/alabama-football-wisconsin-georgia/
-
-**Where did Notre Dame's rout of Purdue come from? Takeaways after a 66-7 win**\
-`One week after a devastating loss to NIU, Notre Dame dominated Purdue in all phases, behind Riley Leonard's running and big plays on defense`\
-https://nytimes.com/athletic/5767335/2024/09/14/notre-dame-purdue-score-riley-leonard/
 
