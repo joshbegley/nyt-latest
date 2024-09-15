@@ -1,3 +1,7 @@
+**Six takeaways from Colts-Packers: Malik Willis solid replacing Love**\
+`The third-year quarterback completed 12-of-14 passes for 122 yards and a touchdown.`\
+https://nytimes.com/athletic/5768376/2024/09/15/packers-colts-takeaways-result-malik-willis/
+
 **Missing Yosemite National Park Backpacker Found Dead**\
 `Kirk S. Thomas Olsen, 61, was found dead after park rangers learned that he was overdue to return from backpacking in the Ostrander Lake area of the park.`\
 https://nytimes.com/2024/09/15/us/yosemite-national-park-backpacker-dead.html

@@ -1,3 +1,7 @@
+**Adrien Rabiot close to joining Marseille**\
+`Former Juventus and Paris Saint-Germain midfielder Adrien Rabiot is set to join Marseille.`\
+https://nytimes.com/athletic/5768978/2024/09/15/adrien-rabiot-marseille-transfer/
+
 **Six takeaways from Colts-Packers: Malik Willis solid replacing Love**\
 `The third-year quarterback completed 12-of-14 passes for 122 yards and a touchdown.`\
 https://nytimes.com/athletic/5768376/2024/09/15/packers-colts-takeaways-result-malik-willis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768674/2024/09/15/ap-top-25-texas-number-one-georg
 **In troubling sign for Mets, Francisco Lindor leaves game vs. Phillies after one inning**\
 `PHILADELPHIA — Francisco Lindor’s return to action on Sunday lasted all of one at-bat and one defensive inning.`\
 https://nytimes.com/athletic/5768882/2024/09/15/francisco-lindor-mets-injury-leaves-game/
-
-**Behold the Premier League's worst-behaved match ever: We recap all 14 bookings**\
-`All 14 bookings between Bournemouth and Chelsea examined`\
-https://nytimes.com/athletic/5768359/2024/09/15/bournemouth-chelsea-yellow-cards-record-premier-league/
 

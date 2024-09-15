@@ -1,3 +1,7 @@
+**Six takeaways from Colts-Packers: Malik Willis solid replacing Love**\
+`The third-year quarterback completed 12-of-14 passes for 122 yards and a touchdown.`\
+https://nytimes.com/athletic/5768376/2024/09/15/packers-colts-takeaways-result-malik-willis/
+
 **Missing Yosemite National Park Backpacker Found Dead**\
 `Kirk S. Thomas Olsen, 61, was found dead after park rangers learned that he was overdue to return from backpacking in the Ostrander Lake area of the park.`\
 https://nytimes.com/2024/09/15/us/yosemite-national-park-backpacker-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768882/2024/09/15/francisco-lindor-mets-injury-lea
 **Behold the Premier League's worst-behaved match ever: We recap all 14 bookings**\
 `All 14 bookings between Bournemouth and Chelsea examined`\
 https://nytimes.com/athletic/5768359/2024/09/15/bournemouth-chelsea-yellow-cards-record-premier-league/
-
-**How F1's Azerbaijan GP led to Piastri, Leclerc battle: Misjudgment and 'half an opportunity'**\
-`Stay informed on all the biggest stories in Formula 1.`\
-https://nytimes.com/athletic/5768259/2024/09/15/f1-charles-leclerc-oscar-piastri-azerbaijan-gp/
 
