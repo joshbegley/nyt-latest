@@ -1,3 +1,7 @@
+**Dani Olmo to be assessed after picking up injury against Girona**\
+`Barcelona attacking midfielder Dani Olmo limped off in his side&#8217;s 4-1 La Liga victory against Girona on Sunday with an apparent hamstring injury.`\
+https://nytimes.com/athletic/5768658/2024/09/15/dani-olmo-barcelona-injury/
+
 **‘The Life of Chuck’ Takes Top Prize at the Toronto Film Festival**\
 `This adaptation of a Stephen King novella stars Tom Hiddleston, Chiwetel Ejiofor and Mark Hamill. “The Substance” and a Tragically Hip documentary also won.`\
 https://nytimes.com/2024/09/15/movies/life-of-chuck-toronto-award.html
