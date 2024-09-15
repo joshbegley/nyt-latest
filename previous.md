@@ -1,3 +1,7 @@
+**Bears at Texans odds, expert picks, how to watch: Will Caleb Williams improve?**\
+`The Bears and Texans both won their openers, but the Texans are favored by about a touchdown heading into this game in Houston.`\
+https://nytimes.com/athletic/5765795/2024/09/15/bears-texans-odds-expert-picks-how-to-watch-predictions-betting/
+
 **England threatened with Euro 2028 ban over independent regulator plan**\
 `European football's governing body fears watchdog could lead to "government interference"`\
 https://nytimes.com/athletic/5767271/2024/09/15/uefa-england-euro-2028-regulator/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/us/politics/georgia-voting-2024-election.html
 **Roblox for Adults? Dress to Impress Draws a Crowd.**\
 `The online gaming platform is ubiquitous among tweens, but a popular fashion game has adults — and a few celebrities — paying attention.`\
 https://nytimes.com/2024/09/15/style/dress-to-impress-roblox.html
-
-**A Couple That (Eventually) Cooked Together**\
-`Stephen Colbert and Evie McGee Colbert once had a falling out over a spoon, but their new cookbook has them in the kitchen, with love, laughter, and the right utensils.`\
-https://nytimes.com/2024/09/15/style/stephen-colbert-family-cookbook-does-this-taste-funny.html
 
