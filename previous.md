@@ -1,3 +1,7 @@
+**Nine goals from 20 shots: Breaking down Erling Haaland's record-breaking start to the season**\
+`There was no hat-trick against Brentford but the Norwegian's ferocious start to the new campaign continued nonetheless `\
+https://nytimes.com/athletic/5767495/2024/09/15/erling-haaland-20-shots-nine-goals/
+
 **Verstappen and Norris' latest F1 title bout in Azerbaijan looks like a draw – for now**\
 `Momentum remains with McLaren, but the reigning champion limited the damage in Baku.`\
 https://nytimes.com/athletic/5768260/2024/09/15/f1-max-verstappen-lando-norris-azerbaijan/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/dining/chicken-curry-sunday-supper.html
 **JD Vance Stands By False Pet-Eating Claims Roiling Ohio City**\
 `After Mr. Vance and former President Donald J. Trump amplified false claims that Haitian migrants in Springfield, Ohio, were eating pets, the city received numerous bomb threats.`\
 https://nytimes.com/2024/09/15/us/politics/jd-vance-springfield-pets.html
-
-**What the Cubs’ rotation might look like in 2025 as they try to build a real contender**\
-`This is the challenge for Jed Hoyer’s front office and Craig Counsell’s coaching staff.`\
-https://nytimes.com/athletic/5767627/2024/09/15/cubs-starting-rotation-2025/
 

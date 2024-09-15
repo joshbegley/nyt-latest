@@ -1,3 +1,7 @@
+**Nine goals from 20 shots: Breaking down Erling Haaland's record-breaking start to the season**\
+`There was no hat-trick against Brentford but the Norwegian's ferocious start to the new campaign continued nonetheless `\
+https://nytimes.com/athletic/5767495/2024/09/15/erling-haaland-20-shots-nine-goals/
+
 **Verstappen and Norris' latest F1 title bout in Azerbaijan looks like a draw – for now**\
 `Momentum remains with McLaren, but the reigning champion limited the damage in Baku.`\
 https://nytimes.com/athletic/5768260/2024/09/15/f1-max-verstappen-lando-norris-azerbaijan/
