@@ -1,3 +1,7 @@
+**Patriots do everything necessary to win on the fringes — but still lose to Seahawks**\
+`The Patriots ran it well didn't turn it over and dominated time of possession. But it still wasn't enough in a loss to the Seahawks.`\
+https://nytimes.com/athletic/5769502/2024/09/15/patriots-loss-seahawks-jerod-mayo-margin-for-error/
+
 **Catholic Priest Is Indicted on Sexual Assault Charges**\
 `Father Anthony Odiong was arrested in July after the police found him with child pornography while investigating a sexual assault claim, according to the Waco Police Department.`\
 https://nytimes.com/2024/09/15/us/waco-texas-priest-sexual-assault.html
