@@ -1,3 +1,7 @@
+**The N.F.L. Now Allows Helmet Caps**\
+`Do they work?`\
+https://nytimes.com/2024/09/15/briefing/nfl-guardian-caps.html
+
 **'Unacceptable': What went so wrong for Liverpool against Nottingham Forest?**\
 `Slot's Liverpool suffered a reality check against Nottingham Forest - what went wrong and what happens now?`\
 https://nytimes.com/athletic/5767062/2024/09/15/liverpool-nottingham-forest-van-dikj/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766205/2024/09/15/winnipeg-jets-gm-kevin-chevelday
 **Harris Is Good on Abortion Rights. Now She Needs to Take It to 11.**\
 `The vice president should triple down on the issue to clench this race.`\
 https://nytimes.com/2024/09/15/opinion/kamala-harris-abortion-election.html
-
-**The Sunday Read: ‘The For-Profit City That Might Come Crashing Down’**\
-`The dream of Próspera, founded by a U.S. corporation off the coast of Honduras, was to escape government control. The Honduran government wants it gone.`\
-https://nytimes.com/2024/09/15/podcasts/the-daily/prospera-hunduras-crypto.html
 
