@@ -1,3 +1,7 @@
+**Wisconsin exposed in humbling loss to Alabama: 'We got completely obliterated today'**\
+`One side possessed multiple playmakers and executed at a high level. The other side didn’t. The result was a dominant win by Alabama.`\
+https://nytimes.com/athletic/5767541/2024/09/14/wisconsin-badgers-alabama-luke-fickell/
+
 **Phillies remind Mets what they still lack as Bryce Harper puts on power display**\
 `The Mets have shown that they can play with anybody, but their lack of top-end talent compared to the Phillies was evident Saturday.`\
 https://nytimes.com/athletic/5767485/2024/09/14/mets-loss-phillies-elite-talent/

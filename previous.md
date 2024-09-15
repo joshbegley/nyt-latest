@@ -1,3 +1,7 @@
+**Wisconsin exposed in humbling loss to Alabama: 'We got completely obliterated today'**\
+`One side possessed multiple playmakers and executed at a high level. The other side didn’t. The result was a dominant win by Alabama.`\
+https://nytimes.com/athletic/5767541/2024/09/14/wisconsin-badgers-alabama-luke-fickell/
+
 **With Quinn Ewers injured, Arch Manning creates two quick TDs vs. UTSA**\
 `Ewers walked to the sideline under his own power for further evaluation, then left for the locker room with a towel draped over his head.`\
 https://nytimes.com/athletic/5767513/2024/09/14/quinn-ewers-injury-arch-manning-texas-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767372/2024/09/14/alabama-football-wisconsin-georg
 **Where did Notre Dame's rout of Purdue come from? Takeaways after a 66-7 win**\
 `One week after a devastating loss to NIU, Notre Dame dominated Purdue in all phases, behind Riley Leonard's running and big plays on defense`\
 https://nytimes.com/athletic/5767335/2024/09/14/notre-dame-purdue-score-riley-leonard/
-
-**Tottenham vs Arsenal preview: Storylines, odds, prediction for North London derby**\
-`Tottenham host Arsenal in the first North London Derby of the season. Both teams failed to win last time out, will one bounce back?`\
-https://nytimes.com/athletic/5760663/2024/09/14/tottenham-arsenal-preview-odds-prediction/
 
