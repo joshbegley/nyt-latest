@@ -1,3 +1,7 @@
+**The Pulse: A Manning can run like this?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5765827/2024/09/15/arch-manning-texas-florida-state-nfl-the-pulse/
+
 **Emerson: Mark Stoops' mistake wasn't punting; that came before the punt**\
 `Stoops has rebuilt the Kentucky program and kept it competitive, but a Week 2 loss to South Carolina has brought up questions.`\
 https://nytimes.com/athletic/5768292/2024/09/15/mark-stoops-kentucky-football-georgia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767627/2024/09/15/cubs-starting-rotation-2025/
 **Live Q&A: Week 2 fantasy football start/sit chat with Jay Felicio, Sunday 9/15 at 11 a.m. ET**\
 `Submit your Week 2 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5763132/2024/09/15/live-qa-week-2-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-15-at-11-a-m-et/
-
-**Diaz set for two months out with abductor injury**\
-`Real Madrid midfielder Brahim Diaz is set to be out for at least two months after suffering a hip abductor injury.`\
-https://nytimes.com/athletic/5768130/2024/09/15/real-madrid-brahim-diaz-injury/
 

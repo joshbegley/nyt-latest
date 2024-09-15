@@ -1,3 +1,7 @@
+**The Pulse: A Manning can run like this?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5765827/2024/09/15/arch-manning-texas-florida-state-nfl-the-pulse/
+
 **Emerson: Mark Stoops' mistake wasn't punting; that came before the punt**\
 `Stoops has rebuilt the Kentucky program and kept it competitive, but a Week 2 loss to South Carolina has brought up questions.`\
 https://nytimes.com/athletic/5768292/2024/09/15/mark-stoops-kentucky-football-georgia/
