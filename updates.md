@@ -1,3 +1,7 @@
+**Bucs vs. Lions odds, picks, how to watch: A playoff rematch in Detroit**\
+`The Lions are lopsided favorites at home against the Buccaneers. Can Baker Mayfield deliver against a tougher opponent?`\
+https://nytimes.com/athletic/5763470/2024/09/14/buccaneers-lions-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Frank Nazar doesn't disappoint for Blackhawks in prospect showcase, NHL camp next**\
 `“I’m really glad I was able to go through this weekend, this week and play these two games,” Nazar said. “I think it was really helpful."`\
 https://nytimes.com/athletic/5767051/2024/09/14/frank-nazar-blackhawks-prospect-showcase-nhl-camp/
