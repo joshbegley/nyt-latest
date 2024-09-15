@@ -14,8 +14,8 @@ https://nytimes.com/athletic/5769704/2024/09/15/canadiens-lane-hutson-prospect/
 `Kansas City moved to 2-0 on the season while the Bengals, who in many ways outplayed the Chiefs, dropped to 0-2 for the third straight year.`\
 https://nytimes.com/athletic/5768399/2024/09/15/chiefs-bengals-takeaways-result/
 
-**The incident raises new questions about the Secret Service’s ability to protect candidates.**\
-`By Glenn Thrush, Eileen Sullivan and Kate Kelly`\
+**Second Assassination Attempt Raises New Questions About Secret Service**\
+`That a would-be killer got close to former President Trump for the second time in about two months intensified questions about the agency’s broader protective capabilities.`\
 https://nytimes.com/2024/09/15/us/politics/secret-service-trump-shooting.html
 
 **Four takeaways from Steelers-Broncos as Pittsburgh improves to 2-0**\
