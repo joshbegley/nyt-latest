@@ -1,3 +1,11 @@
+**Nicolas Cage Buys $10.5 Million Malibu Beach House**\
+`The “Leaving Las Vegas” actor bought an ocean-facing home with a private beach.`\
+https://nytimes.com/2024/09/15/realestate/nicolas-cage-malibu-house.html
+
+**Robert F. Kennedy Jr. Says He Is Being Investigated for Whale Carcass**\
+`He made the claim at a campaign event for former President Donald J. Trump, whom he endorsed after ending his troubled independent bid for the presidency.`\
+https://nytimes.com/2024/09/15/us/politics/robert-f-kennedy-jr-trump-whale-carcass.html
+
 **Eagles rule out A.J. Brown due to hamstring injury**\
 `Brown had five catches for 119 yards and a touchdown in the regular-season opener against the Green Bay Packers.`\
 https://nytimes.com/athletic/5768572/2024/09/15/aj-brown-out-injury-eagles/

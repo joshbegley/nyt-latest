@@ -1,3 +1,11 @@
+**Nicolas Cage Buys $10.5 Million Malibu Beach House**\
+`The “Leaving Las Vegas” actor bought an ocean-facing home with a private beach.`\
+https://nytimes.com/2024/09/15/realestate/nicolas-cage-malibu-house.html
+
+**Robert F. Kennedy Jr. Says He Is Being Investigated for Whale Carcass**\
+`He made the claim at a campaign event for former President Donald J. Trump, whom he endorsed after ending his troubled independent bid for the presidency.`\
+https://nytimes.com/2024/09/15/us/politics/robert-f-kennedy-jr-trump-whale-carcass.html
+
 **Eagles rule out A.J. Brown due to hamstring injury**\
 `Brown had five catches for 119 yards and a touchdown in the regular-season opener against the Green Bay Packers.`\
 https://nytimes.com/athletic/5768572/2024/09/15/aj-brown-out-injury-eagles/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5768360/2024/09/15/chicago-sky-wnba-playoffs-angel-
 **‘Water Is Coming.’ Floods Devastate West and Central Africa**\
 `Flooding caused by heavy rains has left more than 1,000 people dead and hundreds of thousands of homes destroyed.`\
 https://nytimes.com/2024/09/15/world/africa/floods-africa.html
-
-**The Briefing: Tottenham 0 Arsenal 1 - More set-piece joy for Arteta's side in intense north London derby**\
-`Analysis of the key talking points from the Tottenham Hotspur stadium`\
-https://nytimes.com/athletic/5765388/2024/09/15/tottenham-arsenal-result-analysis/
-
-**Held Involuntarily in a Psychiatric Hospital**\
-`Responses to an exposé about the Acadia Healthcare chain of psychiatric hospitals. Also: Taxes on tips; nonpartisan elections; sitting still in school.`\
-https://nytimes.com/2024/09/15/opinion/involuntary-acadia-psychiatric-hospital.html
 
