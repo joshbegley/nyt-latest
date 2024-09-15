@@ -1,3 +1,15 @@
+**2024 Emmys Red Carpet, Take 2: See the Looks From TV’s Biggest Stars**\
+`For the second time this year, Hollywood is convening to toast its work on the small screen. Here’s what the stars wore to make their entrances.`\
+https://nytimes.com/2024/09/15/style/emmys-red-carpet-photos.html
+
+**‘Shogun’ and ‘The Bear’ get a head start with Creative Arts Emmys.**\
+`By John Koblin`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/creative-arts-emmys-winners
+
+**Poetic Foot**\
+`Robert Corridan makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/09/15/crosswords/daily-puzzle-2024-09-16.html
+
 **Cooper Kupp doubtful to return vs. Cardinals with ankle injury**\
 `Kupp limped into the locker room at halftime and did not return to the sideline as the third quarter began.`\
 https://nytimes.com/athletic/5769398/2024/09/15/rams-cooper-kupp-ankle-injury/
