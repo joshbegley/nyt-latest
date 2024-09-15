@@ -1,3 +1,15 @@
+**Eddie Howe praises Newcastle's progress following win at Wolves**\
+`Eddie Howe believes that Newcastle United are making progress with their performances and praised his side for their impressive start to the season, stating it is &#8220;a step in the right direction&#8221;.`\
+https://nytimes.com/athletic/5768866/2024/09/15/eddie-howe-progress-isak-newcastle/
+
+**Chain crew member collapses, receives CPR on Ravens sideline**\
+`According to a member of the Ravens public relations, the chain gang member was alert and responsive as he was taken to a local hospital.`\
+https://nytimes.com/athletic/5768858/2024/09/15/ravens-raiders-medical-emergency-game-delayed/
+
+**Behold the Premier League's worst-behaved match: We recap all 14 bookings**\
+`All 14 bookings between Bournemouth and Chelsea examined`\
+https://nytimes.com/athletic/5768359/2024/09/15/bournemouth-chelsea-yellow-cards-record-premier-league/
+
 **Sideline official collapses, receives CPR at Raiders-Ravens**\
 `According to a member of the Ravens public relations, the chain gang member was alert and responsive as he was taken to a local hospital.`\
 https://nytimes.com/athletic/5768858/2024/09/15/ravens-raiders-medical-emergency-game-delayed/
