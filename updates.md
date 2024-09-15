@@ -1,3 +1,7 @@
+**Saints vs. Cowboys odds, picks, how to watch: Is Saints' honeymoon over?**\
+`The Cowboys and Saints are both 0-1, but this will be a much tougher test for New Orleans in Dallas. `\
+https://nytimes.com/athletic/5763395/2024/09/14/saints-cowboys-odds-expert-picks-how-to-watch-predictions-betting/
+
 **R. Peter Munves, Master Marketer of Classical Music, Dies at 97**\
 `As an executive at Columbia and RCA Records, he popularized the classics for mass audiences by applying the same techniques used to sell pop music.`\
 https://nytimes.com/2024/09/14/arts/music/r-peter-munves-dead.html
