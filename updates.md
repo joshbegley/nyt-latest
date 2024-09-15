@@ -1,3 +1,7 @@
+**Houthis Launch Missile at Central Israel**\
+`The rare attack was an illustration of the evolving conflict in the Middle East between Israel and Iranian proxies.`\
+https://nytimes.com/2024/09/15/world/middleeast/houthis-israel-yemen.html
+
 **After another slow start, Georgia's need for better offense is getting real**\
 `There have been enough moments so far this season to show that what Georgia does have on offense can be good enough.`\
 https://nytimes.com/athletic/5767755/2024/09/15/georgia-kentucky-bulldogs-offense-mike-bobo/
