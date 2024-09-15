@@ -1,3 +1,7 @@
+**Behold the Premier League's worst-behaved match ever: We recap all 14 bookings**\
+`All 14 bookings between Bournemouth and Chelsea examined`\
+https://nytimes.com/athletic/5768359/2024/09/15/bournemouth-chelsea-yellow-cards-record-premier-league/
+
 **Longtime Red Sox radio voice Joe Castiglione announces retirement**\
 `Castiglione said he'll continue with the Red Sox in an ambassador type role.`\
 https://nytimes.com/athletic/5768686/2024/09/15/joe-castiglione-red-sox-retirement/
