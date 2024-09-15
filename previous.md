@@ -1,3 +1,7 @@
+**Diaz set for two months out with abductor injury**\
+`Real Madrid midfielder Brahim Diaz is set to be out for at least two months after suffering a hip abductor injury.`\
+https://nytimes.com/athletic/5768130/2024/09/15/real-madrid-brahim-diaz-injury/
+
 **Until Saturday: Arch Manning's first moment, plus 2 SEC close calls**\
 `Welcome to Until Saturday, the five-star college football newsletter: Manning shows what he can do as he gets his chance for Texas.`\
 https://nytimes.com/athletic/5767312/2024/09/15/arch-manning-texas-lsu-south-carolina-georgia-kentucky-until/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/briefing/nfl-guardian-caps.html
 **'Unacceptable': What went so wrong for Liverpool against Nottingham Forest?**\
 `Slot's Liverpool suffered a reality check against Nottingham Forest - what went wrong and what happens now?`\
 https://nytimes.com/athletic/5767062/2024/09/15/liverpool-nottingham-forest-van-dikj/
-
-**Lowetide: Can the Oilers become more responsible with the salary cap?**\
-`The cap room available to the Oilers now will grow over the season and into the summer.`\
-https://nytimes.com/athletic/5766840/2024/09/15/edmonton-oilers-salary-cap-responsible/
 
