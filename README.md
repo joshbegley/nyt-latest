@@ -1,3 +1,7 @@
+**Arteta hails Arsenal's 'maturity' in north London derby win**\
+`Mikel Arteta praised his Arsenal side for showing &#8220;a lot of maturity&#8221; in their victory against rivals Tottenham Hotspur on Sunday afternoon.`\
+https://nytimes.com/athletic/5768492/2024/09/15/mikel-arteta-arsenal-tottenham/
+
 **Nine goals from 20 shots: Breaking down Erling Haaland's record-breaking start to the season**\
 `There was no hat-trick against Brentford but the Norwegian's ferocious start to the new campaign continued nonetheless `\
 https://nytimes.com/athletic/5767495/2024/09/15/erling-haaland-20-shots-nine-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/opinion/involuntary-acadia-psychiatric-hospital.h
 **Chicken Curry for Sunday Supper**\
 `Meera Sodha’s classic recipe, rich with deep flavors of cinnamon and cumin above a low flame of chiles, needs mopping up with naan.`\
 https://nytimes.com/2024/09/15/dining/chicken-curry-sunday-supper.html
-
-**JD Vance Stands By False Pet-Eating Claims Roiling Ohio City**\
-`After Mr. Vance and former President Donald J. Trump amplified false claims that Haitian migrants in Springfield, Ohio, were eating pets, the city received numerous bomb threats.`\
-https://nytimes.com/2024/09/15/us/politics/jd-vance-springfield-pets.html
 
