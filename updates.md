@@ -1,3 +1,19 @@
+**NFL Week 2 takeaways: What's wrong with the Ravens? And what's right with the Saints and Bucs?**\
+`Plus, sizing up San Francisco after losing to the Vikings, and rookie QB Jayden Daniels’ progress.`\
+https://nytimes.com/athletic/5769322/2024/09/15/nfl-takeaways-week-2-ravens-saints-jayden-daniels/
+
+**Emmy Awards Live Updates: ‘Shogun,’ Off to Blazing Start, Eyes Foreign-Language Breakthrough**\
+`The FX show set in feudal Japan has already set a single-show record with 14 Creative Arts Emmys, and is poised to add more tonight. FX’s “The Bear” is the favorite to repeat as best comedy.`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards
+
+**Here’s how to watch the show.**\
+`By John Koblin`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/heres-how-to-watch-the-show
+
+**Why Texas is the right No. 1 over Georgia: Behind the AP Top 25 ballot**\
+`Inside the No. 1 debate between Texas and Georgia (and Ohio State), plus context for FSU's 0-3 start, a big moment for Nebraska and more.`\
+https://nytimes.com/athletic/5768985/2024/09/15/ap-top-25-poll-texas-ranking-fsu/
+
 **Tom Brady's second Fox NFL broadcast went a lot better than his first**\
 `After a rocky debut, Brady sounded more poised Sunday in his second Fox NFL broadcast — a good step in the right direction.`\
 https://nytimes.com/athletic/5763468/2024/09/15/tom-brady-fox-nfl-broadcast-cowboys-saints/

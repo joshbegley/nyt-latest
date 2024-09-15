@@ -1,3 +1,19 @@
+**NFL Week 2 takeaways: What's wrong with the Ravens? And what's right with the Saints and Bucs?**\
+`Plus, sizing up San Francisco after losing to the Vikings, and rookie QB Jayden Daniels’ progress.`\
+https://nytimes.com/athletic/5769322/2024/09/15/nfl-takeaways-week-2-ravens-saints-jayden-daniels/
+
+**Emmy Awards Live Updates: ‘Shogun,’ Off to Blazing Start, Eyes Foreign-Language Breakthrough**\
+`The FX show set in feudal Japan has already set a single-show record with 14 Creative Arts Emmys, and is poised to add more tonight. FX’s “The Bear” is the favorite to repeat as best comedy.`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards
+
+**Here’s how to watch the show.**\
+`By John Koblin`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/heres-how-to-watch-the-show
+
+**Why Texas is the right No. 1 over Georgia: Behind the AP Top 25 ballot**\
+`Inside the No. 1 debate between Texas and Georgia (and Ohio State), plus context for FSU's 0-3 start, a big moment for Nebraska and more.`\
+https://nytimes.com/athletic/5768985/2024/09/15/ap-top-25-poll-texas-ranking-fsu/
+
 **5 takeaways from Raiders-Ravens: Gardner Minshew gets hot**\
 `Las Vegas scored 13 straight points in the fourth quarter to drop the Ravens to 0-2.`\
 https://nytimes.com/athletic/5768349/2024/09/15/raiders-ravens-takeaways-result/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/15/science/george-berci-dead.html
 **Morning Briefing: The Fallout of Trump’s False Claims**\
 `Plus, Ye performs in China.`\
 https://nytimes.com/2024/09/15/briefing/trump-hostages-china-adoption.html
-
-**White Sox watch: Where has this team been all season?**\
-`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
-https://nytimes.com/athletic/5734497/2024/09/15/white-sox-watch-most-losses-season/
-
-**Key takeaways from Saints-Cowboys: How good is New Orleans' offense?**\
-`The Saints' offense posted its second-straight 40-point game of the season behind another efficient performance from quarterback Derek Carr`\
-https://nytimes.com/athletic/5768363/2024/09/15/saints-cowboys-takeaways-result/
-
-**3 takeaways as the Jets defeat the Titans for first win**\
-`It was often ugly for the Jets offense, but it did just enough to win — especially on a crucial scoring drive in the fourth quarter.`\
-https://nytimes.com/athletic/5768420/2024/09/15/jets-titans-takeaways-result/
-
-**Vikings stun 49ers, improve to 2-0 under Sam Darnold**\
-`In the second quarter, Darnold connected with Justin Jefferson on a 97-yard touchdown pass, the longest NFL play since 2022.`\
-https://nytimes.com/athletic/5769001/2024/09/15/vikings-49ers-takeaways-result-sam-darnold/
 
