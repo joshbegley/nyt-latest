@@ -1,3 +1,7 @@
+**How F1's Azerbaijan GP led to Piastri, Leclerc battle: Misjudgment and 'half an opportunity'**\
+`Stay informed on all the biggest stories in Formula 1.`\
+https://nytimes.com/athletic/5768259/2024/09/15/f1-charles-leclerc-oscar-piastri-azerbaijan-gp/
+
 **Three Hostages Were Likely Killed in November by Israeli Strike, I.D.F. Says**\
 `An investigation into the deaths of three Israeli hostages determined that they were likely killed in a military airstrike targeting a Hamas commander.`\
 https://nytimes.com/2024/09/15/world/middleeast/israel-hostages-killed-strike.html
