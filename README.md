@@ -1,5 +1,5 @@
-**Adrien Rabiot close to joining Marseille**\
-`Former Juventus and Paris Saint-Germain midfielder Adrien Rabiot is set to join Marseille.`\
+**Adrien Rabiot to join Marseille**\
+`Former Juventus and Paris Saint-Germain midfielder Adrien Rabiot is to join Marseille.`\
 https://nytimes.com/athletic/5768978/2024/09/15/adrien-rabiot-marseille-transfer/
 
 **Six takeaways from Colts-Packers: Malik Willis solid replacing Love**\
