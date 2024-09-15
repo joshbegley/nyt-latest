@@ -1,3 +1,7 @@
+**Madrid briefing: Mbappe's growing influence, Vinicius penalty controversy and why Kroos is missed**\
+`We break down the key talking points from Real Madrid's win against Real Sociedad on Saturday`\
+https://nytimes.com/athletic/5767576/2024/09/15/real-madrid-briefing-mbappe-vinicius-kroos/
+
 **What we learned about the CFP in Week 3: How underrated is Tennessee?**\
 `The SEC looks like it could command the 12-team CFP field this season. `\
 https://nytimes.com/athletic/5767744/2024/09/15/college-football-playoff-sec-tennessee-front-runners/
