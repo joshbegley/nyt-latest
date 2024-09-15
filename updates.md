@@ -1,5 +1,9 @@
 **Trump is safe, his campaign says, after a shooting is reported at his golf course.**\
 `By Jonathan Swan, Maggie Haberman and Patricia Mazzei`\
+https://nytimes.com/2024/09/15/us/politics/trump-shooting-golf-course.html
+
+**Trump is safe, his campaign says, after a shooting is reported at his golf course.**\
+`By Jonathan Swan, Maggie Haberman and Patricia Mazzei`\
 https://nytimes.com/live/2024/09/15/us/harris-trump-election/trump-is-safe-his-campaign-says-after-a-shooting-is-reported-at-his-golf-course
 
 **Behold the Premier League's worst-behaved match ever: We recap all 14 bookings**\
