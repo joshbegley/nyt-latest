@@ -35,6 +35,6 @@ https://nytimes.com/2024/09/15/crosswords/connections-companion-463.html
 https://nytimes.com/2024/09/15/opinion/tim-walz-paul-wellstone.html
 
 **Top NFL Week 2 storylines: Bengals-Chiefs next chapter; C.J. Stroud, Caleb Williams on SNF**\
-`Mahomes vs. Burrow could be an early preview of the AFC Championship Game. Meanwhile, a Bucs-Lions rematch highlights the NFC slate.`\
+`Mahomes vs. Burrow could be an early preview of the AFC title winner. Meanwhile, a Bucs-Lions rematch highlights the NFC slate.`\
 https://nytimes.com/athletic/5763628/2024/09/15/nfl-week-2-storylines-bengals-chiefs-stroud-williams/
 
