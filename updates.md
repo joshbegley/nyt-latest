@@ -1,3 +1,7 @@
+**Top takeaways as Cardinals' Marvin Harrison Jr. erupts vs. Rams**\
+`Harrison exploded for 130 receiving yards while Murray finished with a perfect 158.3 passer rating.`\
+https://nytimes.com/athletic/5769248/2024/09/15/marvin-harrison-jr-cardinals-rams-takeaways-result/
+
 **What nominees did people actually watch?**\
 `By John Koblin`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/what-nominees-did-people-actually-watch
