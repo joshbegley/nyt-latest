@@ -1,3 +1,15 @@
+**2024 Emmys Red Carpet, Take 2: See the Looks From TV’s Biggest Stars**\
+`For the second time this year, Hollywood is convening to toast its work on the small screen. Here’s what the stars wore to make their entrances.`\
+https://nytimes.com/2024/09/15/style/emmys-red-carpet-photos.html
+
+**‘Shogun’ and ‘The Bear’ get a head start with Creative Arts Emmys.**\
+`By John Koblin`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/creative-arts-emmys-winners
+
+**Poetic Foot**\
+`Robert Corridan makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/09/15/crosswords/daily-puzzle-2024-09-16.html
+
 **Cooper Kupp doubtful to return vs. Cardinals with ankle injury**\
 `Kupp limped into the locker room at halftime and did not return to the sideline as the third quarter began.`\
 https://nytimes.com/athletic/5769398/2024/09/15/rams-cooper-kupp-ankle-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/15/arts/emmy-awards/heres-how-to-watch-the-show
 **Why Texas is the right No. 1 over Georgia: Behind the AP Top 25 ballot**\
 `Inside the No. 1 debate between Texas and Georgia (and Ohio State), plus context for FSU's 0-3 start, a big moment for Nebraska and more.`\
 https://nytimes.com/athletic/5768985/2024/09/15/ap-top-25-poll-texas-ranking-fsu/
-
-**5 takeaways from Raiders-Ravens: Minshew gets hot, Ravens fall to 0-2**\
-`Las Vegas scored 13 straight points in the fourth quarter to drop the Ravens to 0-2.`\
-https://nytimes.com/athletic/5768349/2024/09/15/raiders-ravens-takeaways-result/
-
-**Tom Brady's second Fox NFL broadcast went a lot better than his first**\
-`After a rocky debut, Brady sounded more poised Sunday in his second Fox NFL broadcast — a good step in the right direction.`\
-https://nytimes.com/athletic/5763468/2024/09/15/tom-brady-fox-nfl-broadcast-cowboys-saints/
-
-**James van Riemsdyk signs with Blue Jackets for 1 year**\
-`One day after stating publicly that the Columbus Blue Jackets were “probably two forwards short” of an NHL-worthy lineup, general manager Don Waddell took steps to remedy that.`\
-https://nytimes.com/athletic/5769249/2024/09/15/van-riemsdyk-blue-jackets-contract/
 
