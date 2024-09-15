@@ -1,3 +1,7 @@
+**Trump’s golfing has been a security challenge for the Secret Service.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/09/15/us/harris-trump-election/trumps-golfing-has-been-a-security-challenge-for-the-secret-service
+
 **Don’t consider ‘The Bear’ a shoo-in.**\
 `By John Koblin`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/dont-consider-the-bear-a-shoo-in
