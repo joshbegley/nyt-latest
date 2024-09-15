@@ -1,3 +1,7 @@
+**How F1's Azerbaijan GP led to Piastri, Leclerc battle: Misjudgment and 'half an opportunity'**\
+`Stay informed on all the biggest stories in Formula 1.`\
+https://nytimes.com/athletic/5768259/2024/09/15/f1-charles-leclerc-oscar-piastri-azerbaijan-gp/
+
 **Three Hostages Were Likely Killed in November by Israeli Strike, I.D.F. Says**\
 `An investigation into the deaths of three Israeli hostages determined that they were likely killed in a military airstrike targeting a Hamas commander.`\
 https://nytimes.com/2024/09/15/world/middleeast/israel-hostages-killed-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/realestate/nicolas-cage-malibu-house.html
 **Robert F. Kennedy Jr. Says He Is Being Investigated for Whale Carcass**\
 `He made the claim at a campaign event for former President Donald J. Trump, whom he endorsed after ending his troubled independent bid for the presidency.`\
 https://nytimes.com/2024/09/15/us/politics/robert-f-kennedy-jr-trump-whale-carcass.html
-
-**Eagles rule out A.J. Brown due to hamstring injury**\
-`Brown had five catches for 119 yards and a touchdown in the regular-season opener against the Green Bay Packers.`\
-https://nytimes.com/athletic/5768572/2024/09/15/aj-brown-out-injury-eagles/
 
