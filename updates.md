@@ -1,3 +1,7 @@
+**The N.F.L. Now Allows Helmet Caps**\
+`Do they work?`\
+https://nytimes.com/2024/09/15/briefing/nfl-guardian-caps.html
+
 **'Unacceptable': What went so wrong for Liverpool against Nottingham Forest?**\
 `Slot's Liverpool suffered a reality check against Nottingham Forest - what went wrong and what happens now?`\
 https://nytimes.com/athletic/5767062/2024/09/15/liverpool-nottingham-forest-van-dikj/
