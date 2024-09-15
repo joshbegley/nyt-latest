@@ -1,3 +1,27 @@
+**How a Behind-the-Scenes ‘Kingmaker’ Developed a Talent for Diplomacy**\
+`Sonia Purnell’s biography of Pamela Harriman argues that the Democratic stalwart and former ambassador was more than the men she cultivated.`\
+https://nytimes.com/2024/09/15/books/review/kingmaker-pamela-harriman-sonia-purnell.html
+
+**How a Tourist Paradise Became a Drug-Trafficking Magnet**\
+`Costa Rica’s lush rainforests, which blanket a quarter of the country, are being infiltrated by cartels on a quest to find new trafficking routes to evade the authorities.`\
+https://nytimes.com/2024/09/15/world/americas/costa-rica-drug-trafficking.html
+
+**At the Movies, the Apocalypse Has Already Arrived**\
+`In “Joker: Folie à Deux,” “Megalopolis” and more, the sense of an isolated and fearful humanity pervades this season’s films.`\
+https://nytimes.com/2024/09/15/movies/at-the-movies-the-apocalypse-has-already-arrived.html
+
+**Billy Napier doesn't blame Florida fans for boos as his prove-it season deteriorates**\
+`After Florida fell to Texas A&M at home, a season that just started feels over, with Tennessee, Georgia, Texas, LSU and Ole Miss still left.`\
+https://nytimes.com/athletic/5767589/2024/09/15/florida-gators-football-billy-napier-job/
+
+**Rams vs. Cardinals odds, picks, how to watch: Are wafer-thin odds misleading?**\
+`The Cardinals are favored at home against a Sean McVay-led Rams team that just seems better on paper. `\
+https://nytimes.com/athletic/5765646/2024/09/15/rams-cardinals-odds-expert-picks-how-to-watch-predictions-betting/
+
+**‘The Yellowstone Effect’: Cities Cash In on Cowboy Culture**\
+`Lands in cities and towns that were once shipping points for livestock can be low-lying, unfavorable and often prone to flooding. They’re also hotbeds for new developments.`\
+https://nytimes.com/2024/09/15/business/stockyards-redevelopment.html
+
 **Polaris Dawn Astronauts Return to Earth After First Private Spacewalk**\
 `The SpaceX capsule, whose crew was led by the billionaire Jared Isaacman, splashed down near the Gulf of Mexico early Sunday.`\
 https://nytimes.com/2024/09/15/us/spacex-polaris-dawn-landing.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/09/15/nyregion/eric-adams-scandal-crisis.html
 **How Do I Survive the Last Mile to Retirement?**\
 `I have a crushing workload and the anger to prove it. With less than two years before I can leave, how do I avoid alienating everyone?`\
 https://nytimes.com/2024/09/15/business/retirement-work-problems-advice.html
-
-**How Roberts Shaped Trump’s Supreme Court Winning Streak**\
-`Behind the scenes, the chief justice molded three momentous Jan. 6 and election cases that helped determine the former president’s fate.`\
-https://nytimes.com/2024/09/15/us/justice-roberts-trump-supreme-court.html
-
-**‘Why Do They Have to Do This in the Middle of the Day’**\
-`A bad mood takes a turn, a mysterious voice on the subway and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/09/15/nyregion/metropolitan-diary.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/15/crosswords/spelling-bee-forum.html
-
-**China’s Risky Power Play in the South China Sea**\
-`As China pushes to dominate the South China Sea, it is increasingly willing to use force to drive out the Philippines. In recent months, China’s tactics have raised fears of a superpower showdown in the strategic waterway.`\
-https://nytimes.com/interactive/2024/09/15/world/asia/south-china-sea-philippines.html
-
-**Outs are still 'tough' for Justin Verlander as playoff decision nears**\
-`Verlander avoided being “atrocious,” against one of the sport’s worst lineups and Houston's premier defense spared him an uglier line.`\
-https://nytimes.com/athletic/5767778/2024/09/15/astros-justin-verlander-playoff-decision/
-
-**Padres flex depth in rout, show why NL West title remains realistic goal**\
-`The Padres piled up a season-high seven doubles among 17 hits in a shutout of the Giants.`\
-https://nytimes.com/athletic/5767734/2024/09/15/padres-rout-giants-nl-west/
 
