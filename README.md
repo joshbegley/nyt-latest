@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5769624/2024/09/15/seahawks-patriots-week-2-geno-smith/
 
 **How the Packers without Jordan Love, embracing a 'who cares' mentality, bulldozed the Colts**\
-`Malik Willis, Josh Jacobs and the O-line, Green Bay's defense and even punter Daniel Whelan carried the Packers to victory.`\
+`Malik Willis, Josh Jacobs, the O-line, Green Bay's defense and even punter Daniel Whelan carried the Packers to victory.`\
 https://nytimes.com/athletic/5769336/2024/09/15/packers-win-colts-josh-jacobs-malik-willis/
 
 **It’s already clear the Canadiens should give Lane Hutson a chance to start in the NHL**\
