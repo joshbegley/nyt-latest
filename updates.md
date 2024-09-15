@@ -1,3 +1,7 @@
+**Chief Counsel to Eric Adams Resigns Amid Federal Investigations**\
+`The stunning departure of Lisa Zornberg, the chief counsel to Mayor Eric Adams of New York, was announced late Saturday as federal investigations into his administration expand.`\
+https://nytimes.com/2024/09/15/nyregion/lisa-zornberg-resigns-eric-adams-counsel.html
+
 **Real Madrid briefing: Mbappe's growing influence, Vinicius penalty controversy and why Kroos is missed**\
 `We break down the key talking points from Real Madrid's win against Real Sociedad on Saturday`\
 https://nytimes.com/athletic/5767576/2024/09/15/real-madrid-briefing-mbappe-vinicius-kroos/
