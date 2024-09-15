@@ -1,3 +1,7 @@
+**Vikings stun 49ers, improve to 2-0 under Sam Darnold**\
+`In the second quarter, Darnold connected with Justin Jefferson on a 97-yard touchdown pass, the longest NFL play since 2022.`\
+https://nytimes.com/athletic/5769001/2024/09/15/vikings-49ers-takeaways-result-sam-darnold/
+
 **Adrien Rabiot to join Marseille**\
 `Former Juventus and Paris Saint-Germain midfielder Adrien Rabiot is to join Marseille.`\
 https://nytimes.com/athletic/5768978/2024/09/15/adrien-rabiot-marseille-transfer/

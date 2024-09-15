@@ -1,3 +1,7 @@
+**Vikings stun 49ers, improve to 2-0 under Sam Darnold**\
+`In the second quarter, Darnold connected with Justin Jefferson on a 97-yard touchdown pass, the longest NFL play since 2022.`\
+https://nytimes.com/athletic/5769001/2024/09/15/vikings-49ers-takeaways-result-sam-darnold/
+
 **Adrien Rabiot to join Marseille**\
 `Former Juventus and Paris Saint-Germain midfielder Adrien Rabiot is to join Marseille.`\
 https://nytimes.com/athletic/5768978/2024/09/15/adrien-rabiot-marseille-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768826/2024/09/15/solheim-cup-united-states-win-eu
 **AP Top 25: Texas jumps Georgia for No. 1 in poll**\
 `The Texas Longhorns are No. 1 in the AP Top 25 college football rankings for the first time since 2008, topping Georgia and Ohio State.`\
 https://nytimes.com/athletic/5768674/2024/09/15/ap-top-25-texas-number-one-georgia/
-
-**In troubling sign for Mets, Francisco Lindor leaves game vs. Phillies after one inning**\
-`PHILADELPHIA — Francisco Lindor’s return to action on Sunday lasted all of one at-bat and one defensive inning.`\
-https://nytimes.com/athletic/5768882/2024/09/15/francisco-lindor-mets-injury-leaves-game/
 
