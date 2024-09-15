@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5765508/2024/09/15/cleveland-browns-jacksonville-ja
 
 **Adopted From China as a Toddler, I’ve Spent My Life Searching for Home**\
 `China is ending international baby adoptions but for those who were sent overseas as infants, the search for belonging and identity goes on.`\
-https://nytimes.com/2024/09/15/opinion/adopted-from-china-as-a-toddler-ive-spent-my-life-searching-for-home.html
+https://nytimes.com/2024/09/15/opinion/china-adopted-babies-identity.html
 
 **Parents Should Ignore Their Children More Often**\
 `The case for “mindful underparenting.”`\

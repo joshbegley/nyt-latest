@@ -1,3 +1,7 @@
+**Adopted From China as a Toddler, I’ve Spent My Life Searching for Home**\
+`China is ending international baby adoptions but for those who were sent overseas as infants, the search for belonging and identity goes on.`\
+https://nytimes.com/2024/09/15/opinion/china-adopted-babies-identity.html
+
 **Padres flex depth in rout, show why NL West title remains realistic goal**\
 `The Padres piled up a season-high seven doubles among 17 hits in a shutout of the Giants.`\
 https://nytimes.com/athletic/5767734/2024/09/15/padres-rout-giants-nl-west/
