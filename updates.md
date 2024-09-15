@@ -1,3 +1,7 @@
+**Frank Nazar doesn't disappoint for Blackhawks in prospect showcase, NHL camp next**\
+`“I’m really glad I was able to go through this weekend, this week and play these two games,” Nazar said. “I think it was really helpful."`\
+https://nytimes.com/athletic/5767051/2024/09/14/frank-nazar-blackhawks-prospect-showcase-nhl-camp/
+
 **No. 1 Georgia survives surprise scare at Kentucky**\
 `No. 1 Georgia found itself in trouble for most of the night before barely escaping with a 13-12 win, its 15th in a row over the Wildcats.`\
 https://nytimes.com/athletic/5767620/2024/09/14/georgia-bulldogs-football-kentucky/
