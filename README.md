@@ -1,3 +1,11 @@
+**R. Peter Munves, Master Marketer of Classical Music, Dies at 97**\
+`As an executive at Columbia and RCA Records, he popularized the classics for mass audiences by applying the same techniques used to sell pop music.`\
+https://nytimes.com/2024/09/14/arts/music/r-peter-munves-dead.html
+
+**Nebraska tunes up against UNI with Big Ten play on deck**\
+`The Huskers are 3-0 for the first time since 2016.`\
+https://nytimes.com/athletic/5767616/2024/09/14/nebraska-football-northwen-iowa-dylan-raiola/
+
 **Corrections: Sept. 15, 2024**\
 `Corrections that appeared in print on Sunday, Sept. 15, 2024.`\
 https://nytimes.com/2024/09/14/pageoneplus/corrections-sept-15-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5767485/2024/09/14/mets-loss-phillies-elite-talent/
 **Solheim Cup Sunday pairings, tee times announced: USA has strong lead**\
 `The United States must win 4.5 points to win the Solheim Cup for the first time since 2017.`\
 https://nytimes.com/athletic/5767417/2024/09/14/solheim-cup-sunday-pairings-tee-times-usa-lead/
-
-**Red Sox furious with how Gerrit Cole pitched to Rafael Devers: 'He hit him on purpose'**\
-`“Raffy got hit. They can say whatever they want,” said Alex Cora. “The intentional walk was loud and clear, ‘I don't want to face him.’"`\
-https://nytimes.com/athletic/5767412/2024/09/14/red-sox-gerrit-cole-rafael-devers-intentional-walk/
-
-**Letting Loose With Emmy Nominees in the Hollywood Hills**\
-`Celebrities including Quinta Brunson, Selma Blair and Heidi Klum toasted the awards at a Los Angeles mansion. Who said it was too soon to party again?`\
-https://nytimes.com/2024/09/14/style/emmy-party-photos.html
 
