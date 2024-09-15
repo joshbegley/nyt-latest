@@ -1,3 +1,7 @@
+**‘The Life of Chuck’ Takes Top Prize at the Toronto Film Festival**\
+`This adaptation of a Stephen King novella stars Tom Hiddleston, Chiwetel Ejiofor and Mark Hamill. “The Substance” and a Tragically Hip documentary also won.`\
+https://nytimes.com/2024/09/15/movies/life-of-chuck-toronto-award.html
+
 **Nicolas Cage Buys $10.5 Million Malibu Beach House**\
 `The “Leaving Las Vegas” actor bought an ocean-facing home with a private beach.`\
 https://nytimes.com/2024/09/15/realestate/nicolas-cage-malibu-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768292/2024/09/15/mark-stoops-kentucky-football-ge
 **Without Angel Reese, can the Chicago Sky still make the WNBA playoffs?**\
 `The Sky have only three regular-season games left to make a push. Sabreena Merchant explains how they can do it.`\
 https://nytimes.com/athletic/5768360/2024/09/15/chicago-sky-wnba-playoffs-angel-reese/
-
-**‘Water Is Coming.’ Floods Devastate West and Central Africa**\
-`Flooding caused by heavy rains has left more than 1,000 people dead and hundreds of thousands of homes destroyed.`\
-https://nytimes.com/2024/09/15/world/africa/floods-africa.html
 
