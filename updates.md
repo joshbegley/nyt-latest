@@ -1,3 +1,7 @@
+**3 takeaways as the Jets defeat the Titans for first win**\
+`It was often ugly for the Jets offense, but it did just enough to win — especially on a crucial scoring drive in the fourth quarter.`\
+https://nytimes.com/athletic/5768420/2024/09/15/jets-titans-takeaways-result/
+
 **Key takeaways from Saints-Cowboys: How good is New Orleans' offense?**\
 `The Saints' offense posted its second-straight 40-point game of the season behind another efficient performance from quarterback Derek Carr`\
 https://nytimes.com/athletic/5768363/2024/09/15/saints-cowboys-takeaways-result/
