@@ -1,3 +1,11 @@
+**Emmy’s lineup reflects a contracting industry.**\
+`By John Koblin`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/emmys-lineup-reflects-a-contracting-industry
+
+**Blue Jays takeaways: Davis Schneider busts out of slump; Toronto tries to avoid last place**\
+`In a disappointing season for Toronto, the main goal now could be to overtake the Rays and not end up in the AL East cellar.`\
+https://nytimes.com/athletic/5769363/2024/09/15/blue-jays-davis-schneider-last-place-division/
+
 **2024 Emmys Red Carpet, Take 2: See the Looks From TV’s Biggest Stars**\
 `For the second time this year, Hollywood is convening to toast its work on the small screen. Here’s what the stars wore to make their entrances.`\
 https://nytimes.com/2024/09/15/style/emmys-red-carpet-photos.html
@@ -27,14 +35,6 @@ https://nytimes.com/athletic/5769047/2024/09/15/mets-postseason-chase-francisco-
 https://nytimes.com/athletic/5769322/2024/09/15/nfl-takeaways-week-2-ravens-saints-jayden-daniels/
 
 **Emmy Awards Live Updates: ‘Shogun,’ Off to Blazing Start, Eyes Foreign-Language Breakthrough**\
-`The FX show set in feudal Japan has already set a single-show record with 14 Creative Arts Emmys, and is poised to add more tonight. FX’s “The Bear” is the favorite to repeat as best comedy.`\
+`The FX show set in feudal Japan has already set a single-show record with 14 Creative Arts Emmys, and is poised to add more tonight. The stars are beginning to arrive on the red carpet.`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards
-
-**Here’s how to watch the show.**\
-`By John Koblin`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/heres-how-to-watch-the-show
-
-**Why Texas is the right No. 1 over Georgia: Behind the AP Top 25 ballot**\
-`Inside the No. 1 debate between Texas and Georgia (and Ohio State), plus context for FSU's 0-3 start, a big moment for Nebraska and more.`\
-https://nytimes.com/athletic/5768985/2024/09/15/ap-top-25-poll-texas-ranking-fsu/
 
