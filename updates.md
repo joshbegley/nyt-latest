@@ -1,3 +1,7 @@
+**Emerson: Mark Stoops' mistake wasn't punting; that came before the punt**\
+`Stoops has rebuilt the Kentucky program and kept it competitive, but a Week 2 loss to South Carolina has brought up questions.`\
+https://nytimes.com/athletic/5768292/2024/09/15/mark-stoops-kentucky-football-georgia/
+
 **Without Angel Reese, can the Chicago Sky still make the WNBA playoffs?**\
 `The Sky have only three regular-season games left to make a push. Sabreena Merchant explains how they can do it.`\
 https://nytimes.com/athletic/5768360/2024/09/15/chicago-sky-wnba-playoffs-angel-reese/
