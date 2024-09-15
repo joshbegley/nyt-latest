@@ -1,3 +1,7 @@
+**Frank Nazar doesn't disappoint for Blackhawks in prospect showcase, NHL camp next**\
+`“I’m really glad I was able to go through this weekend, this week and play these two games,” Nazar said. “I think it was really helpful."`\
+https://nytimes.com/athletic/5767051/2024/09/14/frank-nazar-blackhawks-prospect-showcase-nhl-camp/
+
 **No. 1 Georgia survives surprise scare at Kentucky**\
 `No. 1 Georgia found itself in trouble for most of the night before barely escaping with a 13-12 win, its 15th in a row over the Wildcats.`\
 https://nytimes.com/athletic/5767620/2024/09/14/georgia-bulldogs-football-kentucky/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/us/springfield-ohio-haitians-tension.html
 **Wisconsin exposed in humbling loss to Alabama: 'We got completely obliterated today'**\
 `One side possessed multiple playmakers and executed at a high level. The other side didn’t. The result was a dominant win by Alabama.`\
 https://nytimes.com/athletic/5767541/2024/09/14/wisconsin-badgers-alabama-luke-fickell/
-
-**With Quinn Ewers injured, Arch Manning creates five TDs vs. UTSA**\
-`In his most extensive action as a college QB, the redshirt freshman Manning was accurate and decisive and showed off his athleticism.`\
-https://nytimes.com/athletic/5767513/2024/09/14/quinn-ewers-injury-arch-manning-texas-football/
 
