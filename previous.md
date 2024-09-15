@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5769491/2024/09/15/houston-dash-coach-fran-alonso-a
 `"We had our chance. It didn't happen and we have to move on," Cora said.`\
 https://nytimes.com/athletic/5768647/2024/09/15/alex-cora-brayan-bello-aaron-judge-red-sox-yankees/
 
-**Emmy’s lineup reflects a contracting industry.**\
+**Emmys lineup reflects a contracting industry.**\
 `By John Koblin`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/emmys-lineup-reflects-a-contracting-industry
 

@@ -1,3 +1,7 @@
+**Emmys lineup reflects a contracting industry.**\
+`By John Koblin`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/emmys-lineup-reflects-a-contracting-industry
+
 **Houston Dash head coach Fran Alonso remains away amid the team's winless streak**\
 `Alonso has not been in-person with the Dash since June. `\
 https://nytimes.com/athletic/5769491/2024/09/15/houston-dash-coach-fran-alonso-absence/
