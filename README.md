@@ -1,3 +1,11 @@
+**5 takeaways from Raiders-Ravens: Gardner Minshew gets hot**\
+`Las Vegas scored 13 straight points in the fourth quarter to drop the Ravens to 0-2.`\
+https://nytimes.com/athletic/5768349/2024/09/15/raiders-ravens-takeaways-result/
+
+**Tom Brady's second Fox NFL broadcast went a lot better than his first**\
+`After a rocky debut, Tom Brady sounded more poised Sunday in his second Fox NFL broadcast — a good step in the right direction.`\
+https://nytimes.com/athletic/5763468/2024/09/15/tom-brady-fox-nfl-broadcast-cowboys-saints/
+
 **James van Riemsdyk signs with Blue Jackets for 1 year**\
 `One day after stating publicly that the Columbus Blue Jackets were “probably two forwards short” of an NHL-worthy lineup, general manager Don Waddell took steps to remedy that.`\
 https://nytimes.com/athletic/5769249/2024/09/15/van-riemsdyk-blue-jackets-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5768420/2024/09/15/jets-titans-takeaways-result/
 **Vikings stun 49ers, improve to 2-0 under Sam Darnold**\
 `In the second quarter, Darnold connected with Justin Jefferson on a 97-yard touchdown pass, the longest NFL play since 2022.`\
 https://nytimes.com/athletic/5769001/2024/09/15/vikings-49ers-takeaways-result-sam-darnold/
-
-**Adrien Rabiot to join Marseille**\
-`Former Juventus and Paris Saint-Germain midfielder Adrien Rabiot is to join Marseille.`\
-https://nytimes.com/athletic/5768978/2024/09/15/adrien-rabiot-marseille-transfer/
-
-**Six takeaways from Colts-Packers: Malik Willis solid replacing Love**\
-`The third-year quarterback completed 12-of-14 passes for 122 yards and a touchdown.`\
-https://nytimes.com/athletic/5768376/2024/09/15/packers-colts-takeaways-result-malik-willis/
 
