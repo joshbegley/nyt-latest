@@ -1,3 +1,7 @@
+**What the Cubs’ rotation might look like in 2025 as they try to build a real contender**\
+`This is the challenge for Jed Hoyer’s front office and Craig Counsell’s coaching staff.`\
+https://nytimes.com/athletic/5767627/2024/09/15/cubs-starting-rotation-2025/
+
 **Live Q&A: Week 2 fantasy football start/sit chat with Jay Felicio, Sunday 9/15 at 11 a.m. ET**\
 `Submit your Week 2 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5763132/2024/09/15/live-qa-week-2-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-15-at-11-a-m-et/
