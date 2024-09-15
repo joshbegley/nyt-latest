@@ -1,3 +1,7 @@
+**Houston Dash head coach Fran Alonso remains away amid the team's winless streak**\
+`Alonso has not been in-person with the Dash since June. `\
+https://nytimes.com/athletic/5769491/2024/09/15/houston-dash-coach-fran-alonso-absence/
+
 **Red Sox's Cora hints team threw at Judge on purpose**\
 `"We had our chance. It didn't happen and we have to move on," Cora said.`\
 https://nytimes.com/athletic/5768647/2024/09/15/alex-cora-brayan-bello-aaron-judge-red-sox-yankees/
