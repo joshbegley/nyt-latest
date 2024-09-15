@@ -1,3 +1,11 @@
+**Lionel Messi scores 2 goals in return to Inter Miami**\
+`With six regular-season games left, Inter Miami has a 10-point lead over second-place FC Cincinnati in the Eastern Conference.`\
+https://nytimes.com/athletic/5767567/2024/09/14/lionel-messi-scores-inter-miami-return/
+
+**Oregon State's loss a low point, but better times — with a more certain future — on the horizon**\
+`Oregon State's place in a rebuilt Pac-12 has been solidified, but future of the rivalry with the Ducks is still up in the air. `\
+https://nytimes.com/athletic/5767561/2024/09/14/oregon-state-oregon-civil-war-pac-12/
+
 **In Springfield, Ohio, Threats Leave Haitian Residents Shaken**\
 `Tension hangs over the city after a week of closings and lockdowns, and the strain of recent months has led some Haitian immigrants to consider moving to bigger cities.`\
 https://nytimes.com/2024/09/14/us/springfield-ohio-haitians-tension.html

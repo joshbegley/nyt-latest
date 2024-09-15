@@ -1,3 +1,11 @@
+**Lionel Messi scores 2 goals in return to Inter Miami**\
+`With six regular-season games left, Inter Miami has a 10-point lead over second-place FC Cincinnati in the Eastern Conference.`\
+https://nytimes.com/athletic/5767567/2024/09/14/lionel-messi-scores-inter-miami-return/
+
+**Oregon State's loss a low point, but better times — with a more certain future — on the horizon**\
+`Oregon State's place in a rebuilt Pac-12 has been solidified, but future of the rivalry with the Ducks is still up in the air. `\
+https://nytimes.com/athletic/5767561/2024/09/14/oregon-state-oregon-civil-war-pac-12/
+
 **In Springfield, Ohio, Threats Leave Haitian Residents Shaken**\
 `Tension hangs over the city after a week of closings and lockdowns, and the strain of recent months has led some Haitian immigrants to consider moving to bigger cities.`\
 https://nytimes.com/2024/09/14/us/springfield-ohio-haitians-tension.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/14/style/emmy-party-photos.html
 **Lexi Thompson's Solheim Cup legacy is almost complete. Will it include another win?**\
 `USA is up 10-6 on the Europeans entering Sunday singles, with Thompson having a chance to earn an 11th Solheim Cup point.`\
 https://nytimes.com/athletic/5767459/2024/09/14/lexi-thompson-solheim-cup-usa/
-
-**Is Dillon Gabriel a viable 2025 NFL Draft prospect? Oregon QB torches Oregon State**\
-`Gabriel has had a long and productive college career, but he's never generated much NFL buzz. Can he change that this season?`\
-https://nytimes.com/athletic/5767344/2024/09/14/dillon-gabriel-2025-nfl-draft-quarterbacks/
-
-**Smith: Can Alabama play to its standard against Georgia?**\
-`Alabama passed its first true test of the season against Wisconsin, but next up may be its biggest: Georgia.`\
-https://nytimes.com/athletic/5767372/2024/09/14/alabama-football-wisconsin-georgia/
 
