@@ -1,3 +1,7 @@
+**Madrid briefing: Mbappe's growing influence, Vinicius penalty controversy and why Kroos is missed**\
+`We break down the key talking points from Real Madrid's win against Real Sociedad on Saturday`\
+https://nytimes.com/athletic/5767576/2024/09/15/real-madrid-briefing-mbappe-vinicius-kroos/
+
 **What we learned about the CFP in Week 3: How underrated is Tennessee?**\
 `The SEC looks like it could command the 12-team CFP field this season. `\
 https://nytimes.com/athletic/5767744/2024/09/15/college-football-playoff-sec-tennessee-front-runners/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766807/2024/09/15/usmnt-world-cup-pochettino/
 **Trump Dislikes Ukraine for the Most MAGA of Reasons**\
 `The country lies at the heart of overlapping conspiracy theories important to the former president.`\
 https://nytimes.com/2024/09/15/opinion/trump-debate-ukraine-russia.html
-
-**The Connections Companion No. 463**\
-`Scroll down for hints and conversation about the puzzle for Monday, Sept. 16, 2024.`\
-https://nytimes.com/2024/09/15/crosswords/connections-companion-463.html
 
