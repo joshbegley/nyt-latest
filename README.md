@@ -1,3 +1,7 @@
+**Red Sox's Cora hints team threw at Judge on purpose**\
+`"We had our chance. It didn't happen and we have to move on," Cora said.`\
+https://nytimes.com/athletic/5768647/2024/09/15/alex-cora-brayan-bello-aaron-judge-red-sox-yankees/
+
 **Emmy’s lineup reflects a contracting industry.**\
 `By John Koblin`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/emmys-lineup-reflects-a-contracting-industry
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769047/2024/09/15/mets-postseason-chase-francisco-
 **NFL Week 2 takeaways: What's wrong with the Ravens? And what's right with the Saints and Bucs?**\
 `Plus, sizing up San Francisco after losing to the Vikings, and rookie QB Jayden Daniels’ progress.`\
 https://nytimes.com/athletic/5769322/2024/09/15/nfl-takeaways-week-2-ravens-saints-jayden-daniels/
-
-**Emmy Awards Live Updates: ‘Shogun,’ Off to Blazing Start, Eyes Foreign-Language Breakthrough**\
-`The FX show set in feudal Japan has already set a single-show record with 14 Creative Arts Emmys, and is poised to add more tonight. The stars are beginning to arrive on the red carpet.`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards
 
