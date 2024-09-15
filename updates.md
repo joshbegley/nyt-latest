@@ -1,3 +1,7 @@
+**Verstappen and Norris' latest F1 title bout in Azerbaijan looks like a draw – for now**\
+`Momentum remains with McLaren, but the reigning champion limited the damage in Baku.`\
+https://nytimes.com/athletic/5768260/2024/09/15/f1-max-verstappen-lando-norris-azerbaijan/
+
 **The Pulse: A Manning can run like this?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5765827/2024/09/15/arch-manning-texas-florida-state-nfl-the-pulse/
