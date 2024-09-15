@@ -1,3 +1,15 @@
+**Catholic Priest Is Indicted on Sexual Assault Charges**\
+`Father Anthony Odiong was arrested in July after the police found him with child pornography while investigating a sexual assault claim, according to the Waco Police Department.`\
+https://nytimes.com/2024/09/15/us/waco-texas-priest-sexual-assault.html
+
+**Red Sox rallied around Rafael Devers, but fail to capitalize on momentum in New York**\
+`The Red Sox have repeatedly struggled to build off big wins. “It's been tough and we’ve lost games in a lot of different ways.”`\
+https://nytimes.com/athletic/5769533/2024/09/15/red-sox-rafael-devers-yankees-series/
+
+**Michaela DePrince, War Orphan Turned Leading Ballerina, Dies at 29**\
+`In an impoverished orphanage in Sierra Leone, she longed to dance ballet. After being adopted by American parents, her improbable dream came true.`\
+https://nytimes.com/2024/09/15/obituaries/michaela-deprince-dead.html
+
 **What nominees did people actually watch?**\
 `By John Koblin`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/what-nominees-did-people-actually-watch
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/15/style/emmys-red-carpet-photos.html
 **‘Shogun’ and ‘The Bear’ get a head start with Creative Arts Emmys.**\
 `By John Koblin`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/creative-arts-emmys-winners
-
-**Poetic Foot**\
-`Robert Corridan makes his New York Times Crossword debut.`\
-https://nytimes.com/2024/09/15/crosswords/daily-puzzle-2024-09-16.html
-
-**Cooper Kupp doubtful to return vs. Cardinals with ankle injury**\
-`Kupp limped into the locker room at halftime and did not return to the sideline as the third quarter began.`\
-https://nytimes.com/athletic/5769398/2024/09/15/rams-cooper-kupp-ankle-injury/
-
-**Top takeaways as Cardinals' Marvin Harrison Jr. erupts vs. Rams**\
-`Harrison exploded for 130 receiving yards while Murray finished with a perfect 158.3 passer rating.`\
-https://nytimes.com/athletic/5769248/2024/09/15/marvin-harrison-jr-cardinals-rams-takeaways-result/
 
