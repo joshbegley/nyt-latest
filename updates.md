@@ -1,3 +1,19 @@
+**It’s already clear the Canadiens should give Lane Hutson a chance to start in the NHL**\
+`Hutson's skill set already seems very obviously better suited for the NHL than the AHL.`\
+https://nytimes.com/athletic/5769704/2024/09/15/canadiens-lane-hutson-prospect/
+
+**Harrison Butker's game-winning field goal pushes Chiefs past Bengals**\
+`Kansas City moved to 2-0 on the season while the Bengals, who in many ways outplayed the Chiefs, dropped to 0-2 for the third straight year.`\
+https://nytimes.com/athletic/5768399/2024/09/15/chiefs-bengals-takeaways-result/
+
+**The incident raises new questions about the Secret Service’s ability to protect candidates.**\
+`By Glenn Thrush, Eileen Sullivan and Kate Kelly`\
+https://nytimes.com/live/2024/09/15/us/harris-trump-election/secret-service-trump-shooting
+
+**Four takeaways from Steelers-Broncos as Pittsburgh improves to 2-0**\
+`Pittsburgh's defense stymied Denver rookie Bo Nix, sacking him twice and intercepting him twice, including on the game's final play.`\
+https://nytimes.com/athletic/5769474/2024/09/15/steelers-broncos-takeways-result/
+
 **Trump’s golfing has been a security challenge for the Secret Service.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/09/15/us/harris-trump-election/trumps-golfing-has-been-a-security-challenge-for-the-secret-service
