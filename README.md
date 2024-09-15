@@ -1,3 +1,7 @@
+**What the Cubs’ rotation might look like in 2025 as they try to build a real contender**\
+`This is the challenge for Jed Hoyer’s front office and Craig Counsell’s coaching staff.`\
+https://nytimes.com/athletic/5767627/2024/09/15/cubs-starting-rotation-2025/
+
 **Live Q&A: Week 2 fantasy football start/sit chat with Jay Felicio, Sunday 9/15 at 11 a.m. ET**\
 `Submit your Week 2 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5763132/2024/09/15/live-qa-week-2-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-15-at-11-a-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/15/us/harris-trump-election/heres-the-latest-on
 **Stewart Mandel's 12-team Playoff projections after Week 3**\
 `Who should be in the 12-team Playoff after Week 3? Stewart Mandel makes his picks.`\
 https://nytimes.com/athletic/5767939/2024/09/15/college-football-playoff-bracket-projections-week-3/
-
-**The N.F.L. Now Allows Helmet Caps**\
-`Do they work?`\
-https://nytimes.com/2024/09/15/briefing/nfl-guardian-caps.html
 
