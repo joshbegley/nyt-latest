@@ -1,3 +1,7 @@
+**Real Madrid briefing: Mbappe's growing influence, Vinicius penalty controversy and why Kroos is missed**\
+`We break down the key talking points from Real Madrid's win against Real Sociedad on Saturday`\
+https://nytimes.com/athletic/5767576/2024/09/15/real-madrid-briefing-mbappe-vinicius-kroos/
+
 **'I want more out of myself': Brandt Clarke won't be satisfied by simply making Kings' roster**\
 `"My goal isn’t just to make the NHL. It’s to excel in the NHL," Clarke said as he prepares for a crucial training camp.`\
 https://nytimes.com/athletic/5767672/2024/09/15/kings-brandt-clarke-roster/

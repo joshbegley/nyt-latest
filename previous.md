@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5767062/2024/09/15/liverpool-nottingham-forest-van-
 `The cap room available to the Oilers now will grow over the season and into the summer.`\
 https://nytimes.com/athletic/5766840/2024/09/15/edmonton-oilers-salary-cap-responsible/
 
-**Madrid briefing: Mbappe's growing influence, Vinicius penalty controversy and why Kroos is missed**\
+**Real Madrid briefing: Mbappe's growing influence, Vinicius penalty controversy and why Kroos is missed**\
 `We break down the key talking points from Real Madrid's win against Real Sociedad on Saturday`\
 https://nytimes.com/athletic/5767576/2024/09/15/real-madrid-briefing-mbappe-vinicius-kroos/
 
