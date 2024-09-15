@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5769572/2024/09/15/49ers-brock-purdy-brandon-aiyuk-vikings-loss/
 
 **Panthers say they don't have a 'Bryce Young issue': But is it time to make a change?**\
-`Dave Canales says Bryce Young is the Panthers' quarterback as they drop to 0-2 and things look even worse than they did a season ago.`\
+`Dave Canales says Young is the Panthers' quarterback as they drop to 0-2 and things look even worse than they did a season ago.`\
 https://nytimes.com/athletic/5769554/2024/09/15/carolina-panthers-bryce-young-lose-again-whats-next/
 
 **Emmy Winners: Updating List**\
