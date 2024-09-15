@@ -1,3 +1,11 @@
+**Can Notre Dame handle success? Purdue win a big step forward, but NIU loss will linger**\
+`Marcus Freeman knows Notre Dame isn't as bad as the NIU loss made it seem but isn't as good as Saturday's 66-7 rout of Purdue. What's next?`\
+https://nytimes.com/athletic/5767707/2024/09/15/notre-dame-purdue-marcus-freeman-niu/
+
+**Steelers vs. Broncos odds, picks, how to watch: Faith in Steelers holds on**\
+`The Broncos are home underdogs for just the second time ever in the Sean Payton era. `\
+https://nytimes.com/athletic/5765675/2024/09/15/steelers-broncos-odds-expert-picks-how-to-watch-predictions-betting/
+
 **How the Last Eight Years Made Young Women More Liberal**\
 `For a generation of girls raised to believe they could be anything, the Trump era moved their politics to the left, a new analysis shows.`\
 https://nytimes.com/2024/09/15/upshot/election-young-women-liberal.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009686262/what-we-learned-from-talki
 **An Era of Chinese Adoption Ends, and Families Are Torn Over Its Legacy**\
 `More than 80,000 children from China were adopted by American families. While many appreciate how the adoptions reshaped their own lives, they are also glad to see the program conclude.`\
 https://nytimes.com/2024/09/15/world/asia/chinese-american-adoption-program.html
-
-**‘Beetlejuice Beetlejuice’ Hands Warner Bros. a Lifeline**\
-`The movie has made roughly $190 million in its first 10 days, giving the studio a needed hit after a summer of misfires.`\
-https://nytimes.com/2024/09/15/business/media/beetlejuice-warner-bros-lifeline.html
-
-**Therapy Can Be a Financial Burden. Try Telling Your Therapist That.**\
-`Many Americans who need therapy are discouraged by the cost. But there are options to make it more affordable.`\
-https://nytimes.com/2024/09/15/business/affordable-therapy-costs.html
 
