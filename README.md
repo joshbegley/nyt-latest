@@ -1,3 +1,7 @@
+**Eagles rule out A.J. Brown due to hamstring injury**\
+`Brown had five catches for 119 yards and a touchdown in the regular-season opener against the Green Bay Packers.`\
+https://nytimes.com/athletic/5768572/2024/09/15/aj-brown-out-injury-eagles/
+
 **Arteta hails Arsenal's 'maturity' in north London derby win**\
 `Mikel Arteta praised his Arsenal side for showing &#8220;a lot of maturity&#8221; in their victory against rivals Tottenham Hotspur on Sunday afternoon.`\
 https://nytimes.com/athletic/5768492/2024/09/15/mikel-arteta-arsenal-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5765388/2024/09/15/tottenham-arsenal-result-analysi
 **Held Involuntarily in a Psychiatric Hospital**\
 `Responses to an exposé about the Acadia Healthcare chain of psychiatric hospitals. Also: Taxes on tips; nonpartisan elections; sitting still in school.`\
 https://nytimes.com/2024/09/15/opinion/involuntary-acadia-psychiatric-hospital.html
-
-**Chicken Curry for Sunday Supper**\
-`Meera Sodha’s classic recipe, rich with deep flavors of cinnamon and cumin above a low flame of chiles, needs mopping up with naan.`\
-https://nytimes.com/2024/09/15/dining/chicken-curry-sunday-supper.html
 
