@@ -1,3 +1,7 @@
+**Without Angel Reese, can the Chicago Sky still make the WNBA playoffs?**\
+`The Sky have only three regular-season games left to make a push. Sabreena Merchant explains how they can do it.`\
+https://nytimes.com/athletic/5768360/2024/09/15/chicago-sky-wnba-playoffs-angel-reese/
+
 **‘Water Is Coming.’ Floods Devastate West and Central Africa**\
 `Flooding caused by heavy rains has left more than 1,000 people dead and hundreds of thousands of homes destroyed.`\
 https://nytimes.com/2024/09/15/world/africa/floods-africa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768130/2024/09/15/real-madrid-brahim-diaz-injury/
 **Until Saturday: Arch Manning's first moment, plus 2 SEC close calls**\
 `Welcome to Until Saturday, the five-star college football newsletter: Manning shows what he can do as he gets his chance for Texas.`\
 https://nytimes.com/athletic/5767312/2024/09/15/arch-manning-texas-lsu-south-carolina-georgia-kentucky-until/
-
-**Data Centers Make Terrible Neighbors**\
-`Residents rarely learn how data centers and their noise and energy and water use may affect their lives until it’s too late.`\
-https://nytimes.com/2024/09/15/opinion/data-centers-ai-amazon-google-microsoft.html
 
