@@ -1,3 +1,7 @@
+**Until Saturday: Arch Manning's first moment, plus 2 SEC close calls**\
+`Welcome to Until Saturday, the five-star college football newsletter: Manning shows what he can do as he gets his chance for Texas.`\
+https://nytimes.com/athletic/5767312/2024/09/15/arch-manning-texas-lsu-south-carolina-georgia-kentucky-until/
+
 **Data Centers Make Terrible Neighbors**\
 `Residents rarely learn how data centers and their noise and energy and water use may affect their lives until it’s too late.`\
 https://nytimes.com/2024/09/15/opinion/data-centers-ai-amazon-google-microsoft.html
