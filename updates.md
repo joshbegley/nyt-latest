@@ -1,3 +1,7 @@
+**Trump Safe After Shooting Reported at His Golf Course**\
+`The Palm Beach County Sheriff’s Office said there had been a shooting “on the grounds” of Mr. Trump’s course there while the former president was at the club.`\
+https://nytimes.com/2024/09/15/us/politics/trump-shooting-golf-course.html
+
 **Trump is safe, his campaign says, after a shooting is reported at his golf course.**\
 `By Jonathan Swan, Maggie Haberman and Patricia Mazzei`\
 https://nytimes.com/2024/09/15/us/politics/trump-shooting-golf-course.html
