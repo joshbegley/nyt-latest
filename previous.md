@@ -1,40 +1,40 @@
-**Bears at Texans odds, expert picks, how to watch: Will Caleb Williams improve?**\
-`The Bears and Texans both won their openers, but the Texans are favored by about a touchdown heading into this game in Houston.`\
-https://nytimes.com/athletic/5765795/2024/09/15/bears-texans-odds-expert-picks-how-to-watch-predictions-betting/
+**After another slow start, Georgia's need for better offense is getting real**\
+`There have been enough moments so far this season to show that what Georgia does have on offense can be good enough.`\
+https://nytimes.com/athletic/5767755/2024/09/15/georgia-kentucky-bulldogs-offense-mike-bobo/
 
-**England threatened with Euro 2028 ban over independent regulator plan**\
-`European football's governing body fears watchdog could lead to "government interference"`\
-https://nytimes.com/athletic/5767271/2024/09/15/uefa-england-euro-2028-regulator/
+**Mandel's Final Thoughts: A gloomy Week 3 in the Sunshine State**\
+`College football's Week 3 was awfully fun to watch, so long as you weren’t in Gainesville or Tallahassee, Fla.`\
+https://nytimes.com/athletic/5767796/2024/09/15/college-football-week-3-florida-fsu/
 
-**Bengals vs. Chiefs odds, picks, how to watch: Cincy's gut-check continues**\
-`The Bengals suffered a massive blow in Week 1 and are taking a banged-up core to the home of the reigning champs. `\
-https://nytimes.com/athletic/5765709/2024/09/15/bengals-chiefs-odds-expert-picks-how-to-watch-predictions-betting/
+**One-on-one with Jets GM Kevin Cheveldayoff: 'Our biggest focus is on winning'**\
+`How the Jets' high-end prospects factor into their short-term plans, what the future holds for Cole Perfetti, and more.`\
+https://nytimes.com/athletic/5766205/2024/09/15/winnipeg-jets-gm-kevin-cheveldayoff/
 
-**Can Notre Dame handle success? Purdue win a big step forward, but NIU loss will linger**\
-`Marcus Freeman knows Notre Dame isn't as bad as the NIU loss made it seem but isn't as good as Saturday's 66-7 rout of Purdue. What's next?`\
-https://nytimes.com/athletic/5767707/2024/09/15/notre-dame-purdue-marcus-freeman-niu/
+**Harris Is Good on Abortion Rights. Now She Needs to Take It to 11.**\
+`The vice president should triple down on the issue to clench this race.`\
+https://nytimes.com/2024/09/15/opinion/kamala-harris-abortion-election.html
 
-**Steelers vs. Broncos odds, picks, how to watch: Faith in Steelers holds on**\
-`The Broncos are home underdogs for just the second time ever in the Sean Payton era. `\
-https://nytimes.com/athletic/5765675/2024/09/15/steelers-broncos-odds-expert-picks-how-to-watch-predictions-betting/
+**The Sunday Read: ‘The For-Profit City That Might Come Crashing Down’**\
+`The dream of Próspera, founded by a U.S. corporation off the coast of Honduras, was to escape government control. The Honduran government wants it gone.`\
+https://nytimes.com/2024/09/15/podcasts/the-daily/prospera-hunduras-crypto.html
 
-**How the Last Eight Years Made Young Women More Liberal**\
-`For a generation of girls raised to believe they could be anything, the Trump era moved their politics to the left, a new analysis shows.`\
-https://nytimes.com/2024/09/15/upshot/election-young-women-liberal.html
+**The U.S. must believe 'we can win the World Cup'? Pochettino will need all the help he can get**\
+`This was a gamble from the new head coach but also an attempt to change his team's mindset from the off`\
+https://nytimes.com/athletic/5766807/2024/09/15/usmnt-world-cup-pochettino/
 
-**How the False Story of a Gang ‘Takeover’ in Colorado Reached Trump**\
-`The claim that Aurora, Colo., has been overrun by gun-toting migrants stemmed from the city’s fight with a landlord. Now it is central to one of former President Donald J. Trump’s anti-immigrant campaign promises.`\
-https://nytimes.com/2024/09/15/us/politics/trump-aurora-colorado-immigration.html
+**Trump Dislikes Ukraine for the Most MAGA of Reasons**\
+`The country lies at the heart of overlapping conspiracy theories important to the former president.`\
+https://nytimes.com/2024/09/15/opinion/trump-debate-ukraine-russia.html
 
-**This Airbnb Offers Unbeatable Views of Kamala Harris’s Past**\
-`A Silicon Valley software engineer bought a modest one-bedroom condo in San Francisco once owned by the vice president. He rents it out.`\
-https://nytimes.com/2024/09/15/us/this-airbnb-offers-unbeatable-views-of-kamala-harriss-past.html
+**The Connections Companion No. 463**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 16, 2024.`\
+https://nytimes.com/2024/09/15/crosswords/connections-companion-463.html
 
-**3 Georgia Women, Caught Up in a Flood of Suspicion About Voting**\
-`An election skeptic challenged hundreds of voter registrations, including one for a voting rights activist. A county official is dealing with the mess.`\
-https://nytimes.com/2024/09/15/us/politics/georgia-voting-2024-election.html
+**If You Like Tim Walz’s Earthy Politics, You Should Know About Paul Wellstone**\
+`The Wellstone tradition of left-populism, once so central to the Democratic Party’s brand, that must be recovered.`\
+https://nytimes.com/2024/09/15/opinion/tim-walz-paul-wellstone.html
 
-**Roblox for Adults? Dress to Impress Draws a Crowd.**\
-`The online gaming platform is ubiquitous among tweens, but a popular fashion game has adults — and a few celebrities — paying attention.`\
-https://nytimes.com/2024/09/15/style/dress-to-impress-roblox.html
+**Top NFL Week 2 storylines: Bengals-Chiefs next chapter; C.J. Stroud, Caleb Williams on SNF**\
+`Mahomes vs. Burrow could be an early preview of the AFC title winner. Meanwhile, a Bucs-Lions rematch highlights the NFC slate.`\
+https://nytimes.com/athletic/5763628/2024/09/15/nfl-week-2-storylines-bengals-chiefs-stroud-williams/
 
