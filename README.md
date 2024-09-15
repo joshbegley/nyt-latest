@@ -18,8 +18,8 @@ https://nytimes.com/2024/09/14/us/springfield-ohio-haitians-tension.html
 `One side possessed multiple playmakers and executed at a high level. The other side didn’t. The result was a dominant win by Alabama.`\
 https://nytimes.com/athletic/5767541/2024/09/14/wisconsin-badgers-alabama-luke-fickell/
 
-**With Quinn Ewers injured, Arch Manning creates two quick TDs vs. UTSA**\
-`Ewers walked to the sideline under his own power for further evaluation, then left for the locker room with a towel draped over his head.`\
+**With Quinn Ewers injured, Arch Manning creates five TDs vs. UTSA**\
+`In his most extensive action as a college QB, the redshirt freshman Manning was accurate and decisive and showed off his athleticism.`\
 https://nytimes.com/athletic/5767513/2024/09/14/quinn-ewers-injury-arch-manning-texas-football/
 
 **Phillies remind Mets what they still lack as Bryce Harper puts on power display**\
