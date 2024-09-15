@@ -1,3 +1,7 @@
+**Trump is safe, his campaign says, after a shooting is reported at his golf course.**\
+`By Jonathan Swan, Maggie Haberman and Patricia Mazzei`\
+https://nytimes.com/live/2024/09/15/us/harris-trump-election/trump-is-safe-his-campaign-says-after-a-shooting-is-reported-at-his-golf-course
+
 **Longtime Red Sox radio voice Joe Castiglione announces retirement**\
 `Castiglione said he'll continue with the Red Sox in an ambassador type role.`\
 https://nytimes.com/athletic/5768686/2024/09/15/joe-castiglione-red-sox-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768259/2024/09/15/f1-charles-leclerc-oscar-piastri
 **Three Hostages Were Likely Killed in November by Israeli Strike, I.D.F. Says**\
 `An inquiry into the deaths of three Israeli hostages determined that they probably died as a result of a military airstrike targeting a Hamas commander.`\
 https://nytimes.com/2024/09/15/world/middleeast/israel-hostages-killed-strike.html
-
-**Mailbag, Part 2: Why the Penguins reaching the playoffs this season isn't far-fetched**\
-`An optimistic point of view on an upcoming Penguins season that doesn't have very high expectations.`\
-https://nytimes.com/athletic/5765132/2024/09/15/penguins-playoffs-sidney-crosby-mailbag/
 
