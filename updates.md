@@ -1,3 +1,11 @@
+**AP Top 25: Texas jumps Georgia for No. 1 in poll**\
+`The Texas Longhorns are No. 1 in the AP Top 25 college football rankings for the first time since 2008, topping Georgia and Ohio State.`\
+https://nytimes.com/athletic/5768674/2024/09/15/ap-top-25-texas-number-one-georgia/
+
+**In troubling sign for Mets, Francisco Lindor leaves game vs. Phillies after one inning**\
+`PHILADELPHIA — Francisco Lindor’s return to action on Sunday lasted all of one at-bat and one defensive inning.`\
+https://nytimes.com/athletic/5768882/2024/09/15/francisco-lindor-mets-injury-leaves-game/
+
 **Behold the Premier League's worst-behaved match ever: We recap all 14 bookings**\
 `All 14 bookings between Bournemouth and Chelsea examined`\
 https://nytimes.com/athletic/5768359/2024/09/15/bournemouth-chelsea-yellow-cards-record-premier-league/
