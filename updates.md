@@ -1,3 +1,7 @@
+**Data Centers Make Terrible Neighbors**\
+`Residents rarely learn how data centers and their noise and energy and water use may affect their lives until it’s too late.`\
+https://nytimes.com/2024/09/15/opinion/data-centers-ai-amazon-google-microsoft.html
+
 **Real Madrid briefing: Mbappe's growing influence, Vinicius Jr penalty controversy and why Kroos is missed**\
 `We break down the key talking points from Real Madrid's win against Real Sociedad on Saturday`\
 https://nytimes.com/athletic/5767576/2024/09/15/real-madrid-briefing-mbappe-vinicius-kroos/
