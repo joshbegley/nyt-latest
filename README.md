@@ -1,3 +1,7 @@
+**Mailbag, Part 2: Why the Penguins reaching the playoffs this season isn't far-fetched**\
+`An optimistic point of view on an upcoming Penguins season that doesn't have very high expectations.`\
+https://nytimes.com/athletic/5765132/2024/09/15/penguins-playoffs-sidney-crosby-mailbag/
+
 **Could Jadon Sancho be the left-side threat Chelsea have lacked since Eden Hazard left?**\
 `It was the Sanchez and Sancho show for Enzo Maresca's side as they beat Bournemouth 1-0 `\
 https://nytimes.com/athletic/5767296/2024/09/15/jadon-sancho-chelsea-left-side-threat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768572/2024/09/15/aj-brown-out-injury-eagles/
 **Arteta hails Arsenal's 'maturity' in north London derby win**\
 `Mikel Arteta praised his Arsenal side for showing &#8220;a lot of maturity&#8221; in their victory against rivals Tottenham Hotspur on Sunday afternoon.`\
 https://nytimes.com/athletic/5768492/2024/09/15/mikel-arteta-arsenal-tottenham/
-
-**Nine goals from 20 shots: Breaking down Erling Haaland's record-breaking start to the season**\
-`There was no hat-trick against Brentford but the Norwegian's ferocious start to the new campaign continued nonetheless `\
-https://nytimes.com/athletic/5767495/2024/09/15/erling-haaland-20-shots-nine-goals/
 
