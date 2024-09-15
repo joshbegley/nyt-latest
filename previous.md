@@ -1,3 +1,7 @@
+**Morning Briefing: The Fallout of Trump’s False Claims**\
+`Plus, Ye performs in China.`\
+https://nytimes.com/2024/09/15/briefing/trump-hostages-china-adoption.html
+
 **Key takeaways from Saints-Cowboys: How good is New Orleans' offense?**\
 `The Saints' offense posted its second-straight 40-point game of the season behind another efficient performance from quarterback Derek Carr`\
 https://nytimes.com/athletic/5768363/2024/09/15/saints-cowboys-takeaways-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768686/2024/09/15/joe-castiglione-red-sox-retireme
 **Eddie Howe praises Newcastle's progress following win at Wolves**\
 `Eddie Howe believes that Newcastle United are making progress with their performances and praised his side for their impressive start to the season, stating it is &#8220;a step in the right direction&#8221;.`\
 https://nytimes.com/athletic/5768866/2024/09/15/eddie-howe-progress-isak-newcastle/
-
-**Chain crew member collapses, receives CPR on Ravens sideline**\
-`According to a member of the Ravens public relations, the chain gang member was alert and responsive as he was taken to a local hospital.`\
-https://nytimes.com/athletic/5768858/2024/09/15/ravens-raiders-medical-emergency-game-delayed/
 

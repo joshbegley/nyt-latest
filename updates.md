@@ -1,3 +1,7 @@
+**Morning Briefing: The Fallout of Trump’s False Claims**\
+`Plus, Ye performs in China.`\
+https://nytimes.com/2024/09/15/briefing/trump-hostages-china-adoption.html
+
 **3 takeaways as the Jets defeat the Titans for first win**\
 `It was often ugly for the Jets offense, but it did just enough to win — especially on a crucial scoring drive in the fourth quarter.`\
 https://nytimes.com/athletic/5768420/2024/09/15/jets-titans-takeaways-result/
