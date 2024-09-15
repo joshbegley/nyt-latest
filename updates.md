@@ -1,3 +1,11 @@
+**5 takeaways from Raiders-Ravens: Gardner Minshew gets hot**\
+`Las Vegas scored 13 straight points in the fourth quarter to drop the Ravens to 0-2.`\
+https://nytimes.com/athletic/5768349/2024/09/15/raiders-ravens-takeaways-result/
+
+**Tom Brady's second Fox NFL broadcast went a lot better than his first**\
+`After a rocky debut, Tom Brady sounded more poised Sunday in his second Fox NFL broadcast — a good step in the right direction.`\
+https://nytimes.com/athletic/5763468/2024/09/15/tom-brady-fox-nfl-broadcast-cowboys-saints/
+
 **James van Riemsdyk signs with Blue Jackets for 1 year**\
 `One day after stating publicly that the Columbus Blue Jackets were “probably two forwards short” of an NHL-worthy lineup, general manager Don Waddell took steps to remedy that.`\
 https://nytimes.com/athletic/5769249/2024/09/15/van-riemsdyk-blue-jackets-contract/
