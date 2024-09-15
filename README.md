@@ -3,7 +3,7 @@
 https://nytimes.com/2024/09/15/world/africa/floods-africa.html
 
 **The Briefing: Tottenham 0 Arsenal 1 - More set-piece joy for Arteta's side in intense north London derby**\
-`Analysis of the key talking points from the north London derby`\
+`Analysis of the key talking points from the Tottenham Hotspur stadium`\
 https://nytimes.com/athletic/5765388/2024/09/15/tottenham-arsenal-result-analysis/
 
 **Held Involuntarily in a Psychiatric Hospital**\

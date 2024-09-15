@@ -1,3 +1,19 @@
+**‘Water Is Coming.’ Floods Devastate West and Central Africa**\
+`Flooding caused by heavy rains has left more than 1,000 people dead and hundreds of thousands of homes destroyed.`\
+https://nytimes.com/2024/09/15/world/africa/floods-africa.html
+
+**The Briefing: Tottenham 0 Arsenal 1 - More set-piece joy for Arteta's side in intense north London derby**\
+`Analysis of the key talking points from the north London derby`\
+https://nytimes.com/athletic/5765388/2024/09/15/tottenham-arsenal-result-analysis/
+
+**Held Involuntarily in a Psychiatric Hospital**\
+`Responses to an exposé about the Acadia Healthcare chain of psychiatric hospitals. Also: Taxes on tips; nonpartisan elections; sitting still in school.`\
+https://nytimes.com/2024/09/15/opinion/involuntary-acadia-psychiatric-hospital.html
+
+**Chicken Curry for Sunday Supper**\
+`Meera Sodha’s classic recipe, rich with deep flavors of cinnamon and cumin above a low flame of chiles, needs mopping up with naan.`\
+https://nytimes.com/2024/09/15/dining/chicken-curry-sunday-supper.html
+
 **JD Vance Stands By False Pet-Eating Claims Roiling Ohio City**\
 `After Mr. Vance and former President Donald J. Trump amplified false claims that Haitian migrants in Springfield, Ohio, were eating pets, the city received numerous bomb threats.`\
 https://nytimes.com/2024/09/15/us/politics/jd-vance-springfield-pets.html
