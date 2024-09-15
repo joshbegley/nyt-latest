@@ -35,6 +35,6 @@ https://nytimes.com/2024/09/15/nyregion/lisa-zornberg-resigns-eric-adams-counsel
 https://nytimes.com/athletic/5767672/2024/09/15/kings-brandt-clarke-roster/
 
 **Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
+`By Maggie Astor and Simon J. Levien`\
 https://nytimes.com/live/2024/09/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
