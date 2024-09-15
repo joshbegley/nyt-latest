@@ -1,3 +1,7 @@
+**Raiders vs. Ravens odds, picks, how to watch: These 0-1 teams are not alike**\
+`The Ravens and Raiders start their season 0-1, but the gap in their talent is wide. Baltimore is significantly favored on Sunday.`\
+https://nytimes.com/athletic/5765622/2024/09/15/raiders-ravens-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Chargers vs. Panthers odds, picks, how to watch: Harbaugh's Chargers aim for 2-0**\
 `Jim Harbaugh's Chargers head to Carolina to take on a struggling Panthers team. Our experts are of one mind on this one. `\
 https://nytimes.com/athletic/5763774/2024/09/15/chargers-panthers-odds-expert-picks-how-to-watch-predictions-betting/
