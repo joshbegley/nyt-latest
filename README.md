@@ -1,3 +1,7 @@
+**Trump’s golfing has been a security challenge for the Secret Service.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/09/15/us/harris-trump-election/trumps-golfing-has-been-a-security-challenge-for-the-secret-service
+
 **Don’t consider ‘The Bear’ a shoo-in.**\
 `By John Koblin`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/dont-consider-the-bear-a-shoo-in
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769533/2024/09/15/red-sox-rafael-devers-yankees-se
 **Michaela DePrince, War Orphan Turned Leading Ballerina, Dies at 29**\
 `In an impoverished orphanage in Sierra Leone, she longed to dance ballet. After being adopted by American parents, her improbable dream came true.`\
 https://nytimes.com/2024/09/15/obituaries/michaela-deprince-dead.html
-
-**What nominees did people actually watch?**\
-`By John Koblin`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/what-nominees-did-people-actually-watch
 
