@@ -1,3 +1,11 @@
+**Love and Friendship, Day by Day **\
+`How seven people are keeping meaningful relationships alive in a digital world.`\
+https://nytimes.com/paidpost/snapchat/love-and-friendship-day-by-day.html
+
+**Sam Darnold has earned Kevin O'Connell's trust, and the Vikings are flying high**\
+`Minnesota's head coach has put his trust in Darnold, a former first-round pick, and the QB has rewarded him with an excellent start.`\
+https://nytimes.com/athletic/5768682/2024/09/16/vikings-sam-darnold-kevin-oconnell-trust/
+
 **How could Manchester City be punished if they lose 115 charges case?**\
 `Exoneration? A settlement? A fine - or even relegation? We analyse the possible outcomes of City's fight with the Premier League`\
 https://nytimes.com/athletic/5770700/2024/09/16/manchester-city-punishment-115-premier-league/
