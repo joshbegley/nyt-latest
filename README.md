@@ -1,3 +1,7 @@
+**Falsehoods fly online after thwarted assassination attempt against Trump.**\
+`By Stuart A. Thompson`\
+https://nytimes.com/live/2024/09/16/us/trump-shooting-news/falsehoods-assassination-attempt-trump
+
 **‘Shogun’: Here’s What to Know About the Record-Breaking Emmy Hit**\
 `The FX epic ruled TV’s top honors, racking up 18 Emmys for its first season. Here is a brief guide to this saga of samurai warriors and star-crossed lovers.`\
 https://nytimes.com/2024/09/16/arts/television/shogun-fx-streaming-guide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/climate/join-the-timess-climate-event-with-jane-g
 **In ‘Agatha All Along,’ Joe Locke Works Like a Charm**\
 `A star of the Netflix hit “Heartstopper,” this actor is now joining the Marvel universe.`\
 https://nytimes.com/2024/09/16/arts/television/agatha-all-along-joe-locke.html
-
-**Tim Walz, a ‘Snowman Melting,’ Tests His Appeal in the Sun Belt**\
-`The Minnesota governor was picked for his appeal to the white working-class. The Harris campaign hopes he can reach other demographics, too.`\
-https://nytimes.com/2024/09/16/us/politics/tim-walz-sun-belt.html
 
