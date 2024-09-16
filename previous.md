@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5769336/2024/09/15/packers-win-colts-josh-jacobs-ma
 `Hutson's skill set already seems very obviously better suited for the NHL than the AHL.`\
 https://nytimes.com/athletic/5769704/2024/09/15/canadiens-lane-hutson-prospect/
 
-**Harrison Butker's game-winning field goal pushes Chiefs past Bengals**\
+**Key takeaways from Chiefs-Bengals: KC's clutch defense, Cincy's early season blues**\
 `Kansas City moved to 2-0 on the season while the Bengals, who in many ways outplayed the Chiefs, dropped to 0-2 for the third straight year.`\
 https://nytimes.com/athletic/5768399/2024/09/15/chiefs-bengals-takeaways-result/
 
