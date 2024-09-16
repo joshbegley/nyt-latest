@@ -1,3 +1,7 @@
+**How the U.S. came together and won the Solheim Cup**\
+`Unity was the theme of the week for the U.S. "From the moment this team was together, they were together."`\
+https://nytimes.com/athletic/5770065/2024/09/15/united-states-solheim-cup-win/
+
 **Commanders lean on backfied duo of Brian Robinson, Austin Ekeler to squeeze by Giants**\
 `The two running backs combined for 221 of Washington's 425 total yards and helped take some of the pressure off Jayden Daniels. `\
 https://nytimes.com/athletic/5769703/2024/09/15/commanders-giants-brian-robinson-austin-ekeler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769724/2024/09/15/jets-aaron-rodgers-first-win-def
 **Suspected Gunman Said He Was Willing to Fight and Die in Ukraine**\
 `Ryan Wesley Routh, 58, told The New York Times in 2023 that he had traveled to Ukraine and wanted to recruit Afghan soldiers to fight there.`\
 https://nytimes.com/2024/09/15/us/politics/trump-shooting-suspect-routh.html
-
-**Mexico’s Contentious Judiciary Overhaul Becomes Law**\
-`Going forward, Mexican voters will now elect judges at every level, dramatically restructuring the third branch of government.`\
-https://nytimes.com/2024/09/15/world/americas/mexico-overhaul-judiciary-law.html
 
