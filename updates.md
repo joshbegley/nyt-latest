@@ -1,3 +1,11 @@
+**Academic Plagiarism Complaint Against the Author of ‘White Fragility’ Dismissed**\
+`In a letter, the University of Washington stated that the evidence presented in the confidential complaint failed to meet the institution’s criteria for plagiarism.`\
+https://nytimes.com/2024/09/16/books/robin-diangelo-plagiarism-charge-dismissed.html
+
+**Farewell to a Lost Love of Lunches Past: Liverwurst**\
+`For me, the decision by Boar’s Head to end production is just the latest blow to a somewhat squishy slice of national and personal history.`\
+https://nytimes.com/2024/09/16/dining/liverwurst.html
+
 **Crosby's new Penguins contract is his sweetest assist yet**\
 `Crosby's contract is perfect for him and the Penguins — now and into the future.`\
 https://nytimes.com/athletic/5771489/2024/09/16/sidney-crosby-contract-penguins/
