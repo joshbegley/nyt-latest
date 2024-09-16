@@ -1,3 +1,11 @@
+**Judges Show Some Skepticism of TikTok’s Fight Against Potential U.S. Ban**\
+`TikTok on Monday pushed back against a law that would force the popular video app to sell to a non-Chinese owner or be banned, in what is shaping up to be a landmark case.`\
+https://nytimes.com/2024/09/16/technology/tiktok-ban.html
+
+**UFO 50 Is an Ingeniously Retro Advent Calendar**\
+`This compilation from a fictional ’80s video game company is constantly clever. By comparison, Atari’s latest resurrection effort, Yars Rising, is frustratingly banal.`\
+https://nytimes.com/2024/09/16/arts/ufo-50-yars-rising-review.html
+
 **Academic Plagiarism Complaint Against the Author of ‘White Fragility’ Dismissed**\
 `In a letter, the University of Washington stated that the evidence presented in the confidential complaint failed to meet the institution’s criteria for plagiarism.`\
 https://nytimes.com/2024/09/16/books/robin-diangelo-plagiarism-charge-dismissed.html
@@ -29,12 +37,4 @@ https://nytimes.com/topic/theater-for-a-new-audience
 **Panthers bench No. 1 pick QB Bryce Young**\
 `Andy Dalton will be the new starting quarterback for the Panthers.`\
 https://nytimes.com/athletic/5771715/2024/09/16/panthers-bryce-young-benched-andy-dalton/
-
-**N.Y.C. Fire Safety Chiefs Accused of Taking Bribes**\
-`Two New York Fire Department officials were arrested and accused of taking tens of thousands of dollars in bribes to speed up the fire-safety approval process for building projects throughout the city.`\
-https://nytimes.com/video/nyregion/100000009694529/new-york-fire-chiefs-bribes.html
-
-**Protecting Trump after he left office was harder than expected, the Secret Service director said in 2022.**\
-`By Eileen Sullivan`\
-https://nytimes.com/live/2024/09/16/us/trump-shooting-news/protecting-trump-after-he-left-office-was-harder-than-expected-the-secret-service-director-said-in-2022
 
