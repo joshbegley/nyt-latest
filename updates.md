@@ -1,3 +1,7 @@
+**Tense Teamsters Meeting With Harris Ends With an Endorsement Still Dangling**\
+`The Teamsters president, Sean O’Brien, indicated he could announce as soon as Wednesday which presidential candidate — if any — the union would back.`\
+https://nytimes.com/2024/09/16/us/politics/teamsters-harris.html
+
 **Justin Ishbia donates $10 million to Michigan State athletics, with baseball scoring big**\
 `A sizable chunk — $1.5 million — is specifically aimed at refurbishing and upgrading the school’s baseball stadium.`\
 https://nytimes.com/athletic/5772222/2024/09/16/justin-ishbia-michigan-state-donation/
