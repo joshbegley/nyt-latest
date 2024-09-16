@@ -1,3 +1,11 @@
+**The creative numbers that show Wilfred Ndidi is a viable No 10 for Leicester**\
+`The Leicester midfielder may look unorthodox in attack but he has as many Premier League assists as Mohamed Salah this season`\
+https://nytimes.com/athletic/5767895/2024/09/16/wilfred-ndidi-creator-assists-leicester/
+
+**The positional fluidity of Manchester United's full-backs is a welcome sign of tactical evolution**\
+`Diogo Dalot and Noussair Mazraoui took it in turns to drift inside at St Mary's - and it gave Ten Hag's team a stronger base in possession`\
+https://nytimes.com/athletic/5767830/2024/09/16/manchester-united-full-backs-southampton-fluid/
+
 **Aston Villa, 41 disgruntled fans and season tickets for seats that did not exist**\
 `Aston Villa fans affected by ticketing issues share their experiences following a problematic start to the season for the club off the field`\
 https://nytimes.com/athletic/5744104/2024/09/16/aston-villa-ticket-issues/
