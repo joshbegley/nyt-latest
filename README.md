@@ -1,3 +1,7 @@
+**Lucas Raymond signs eight-year extension with Red Wings: What it means and what's next**\
+`The Red Wings signed Raymond to a long-term deal Monday night just days before camp opens. What does the deal mean for Detroit?`\
+https://nytimes.com/athletic/5579464/2024/09/16/red-wings-lucas-raymond-contract-extension/
+
 **Tony Robbins: Motivational Speaker, Author … Hotelier?**\
 `The self-help guru is joining the hotel mogul Sam Nazarian to open a chain of luxury preventive-medicine resorts, aiming for a slice of the $5.6 trillion wellness industry.`\
 https://nytimes.com/2024/09/16/travel/tony-robbins-hotel-estate.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5772178/2024/09/16/tyler-van-dyke-injury-wisconsin-
 **North Carolina Absentee Ballots Delayed After Fight Over RFK Jr.**\
 `After dropping out of the race and endorsing Donald Trump, Robert F. Kennedy Jr. has been fighting in court to remove his name from ballots in several states.`\
 https://nytimes.com/2024/09/16/us/north-carolina-election-ballots-rfk-jr.html
-
-**Canadiens have reached a new stage of the rebuild where information is king**\
-`The intentionally vague messaging from the Canadiens to kick off the season depicts a team for which the unknown far outweighs the known.`\
-https://nytimes.com/athletic/5772136/2024/09/16/canadiens-rebuild-unknown-playoffs/
 
