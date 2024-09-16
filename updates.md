@@ -1,3 +1,7 @@
+**U.S. Awards Intel $3 Billion for Military Supply Program**\
+`The Biden administration announced an award for the struggling chipmaker as part of an effort to establish secure supply sources for the Pentagon.`\
+https://nytimes.com/2024/09/16/us/politics/intel-chips-semiconductor-grant.html
+
 **Judges Show Some Skepticism of TikTok’s Fight Against Potential U.S. Ban**\
 `TikTok on Monday pushed back against a law that would force the popular video app to sell to a non-Chinese owner or be banned, in what is shaping up to be a landmark case.`\
 https://nytimes.com/2024/09/16/technology/tiktok-us-ban-case.html
