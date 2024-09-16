@@ -1,3 +1,11 @@
+**49ers' Deebo Samuel to miss 'a couple weeks' with calf injury**\
+`Samuel sustained a calf strain late in Sunday's 23-17 loss to the Vikings, coach Kyle Shanahan said Monday.`\
+https://nytimes.com/athletic/5772330/2024/09/16/deebo-samuel-49ers-calf-injury/
+
+**Man Arrested at Trump Golf Course Had a History of Crusading for Causes**\
+`Interviews, records and a self-aggrandizing book suggest that Ryan Routh, a peripatetic builder, saw himself as an influential participant in momentous world events.`\
+https://nytimes.com/2024/09/16/us/trump-suspect-golf-course-routh.html
+
 **Lucas Raymond signs eight-year extension with Red Wings: What it means and what's next**\
 `The Red Wings signed Raymond to a long-term deal Monday night just days before camp opens. What does the deal mean for Detroit?`\
 https://nytimes.com/athletic/5579464/2024/09/16/red-wings-lucas-raymond-contract-extension/
@@ -30,12 +38,4 @@ https://nytimes.com/2024/09/16/business/media/emmy-viewership-nielsen.html
 **What We Know About the Accused Gunman**\
 `The man arrested after Secret Service agents opened fire while protecting Donald Trump was charged with two federal gun crimes on Monday.`\
 https://nytimes.com/2024/09/16/us/politics/trump-golf-course-shooting.html
-
-**Wisconsin QB Tyler Van Dyke tore ACL, will miss remainder of season: Sources**\
-`Van Dyke was carted off the field after absorbing a hit on a scramble attempt during Wisconsin's 42-10 loss to Alabama on Saturday.`\
-https://nytimes.com/athletic/5772178/2024/09/16/tyler-van-dyke-injury-wisconsin-college-football/
-
-**North Carolina Absentee Ballots Delayed After Fight Over RFK Jr.**\
-`After dropping out of the race and endorsing Donald Trump, Robert F. Kennedy Jr. has been fighting in court to remove his name from ballots in several states.`\
-https://nytimes.com/2024/09/16/us/north-carolina-election-ballots-rfk-jr.html
 
