@@ -1,3 +1,7 @@
+**Former OceanGate Employees Testify at Hearing on Titan Implosion**\
+`The Coast Guard’s first public hearing on OceanGate’s fatal Titan submersible accident revealed that the crew had sent a message saying, “All good here,” shortly before the vessel imploded.`\
+https://nytimes.com/video/us/100000009697453/titan-oceangate-hearings-safety.html
+
 **The rifle found at Trump’s golf course is relatively cheap and niche compared with the AR-15.**\
 `By Thomas Gibbons-Neff`\
 https://nytimes.com/live/2024/09/16/us/trump-shooting-news/the-rifle-found-at-trumps-golf-course-is-relatively-cheap-and-niche-compared-with-the-ar-15
