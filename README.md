@@ -1,3 +1,11 @@
+**How Notre Dame got the trains running on time again: Final thoughts on Purdue**\
+`Notre Dame bounced back in a big way against Purdue. How did that happen? And how can the Irish keep it going?`\
+https://nytimes.com/athletic/5770761/2024/09/16/notre-dame-football-purdue-riley-leonard/
+
+**Are Voters Feeling Better About the Economy?**\
+`After another tumultuous weekend in the presidential campaign, Americans are still largely focused on their finances, new surveys show. That could give an edge to Vice President Kamala Harris.`\
+https://nytimes.com/2024/09/16/business/dealbook/voters-harris-trump-economy.html
+
 **Padres takeaways: Fernando Tatis Jr.’s left leg, Brandon Lockridge’s first impression**\
 `Why Tatis' leg injury probably isn't related to one he suffered as a child, and how Lockridge developed into a base-stealing threat.`\
 https://nytimes.com/athletic/5770447/2024/09/16/padres-fernando-tatis-jr-leg-brandon-lockridge/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5766868/2024/09/16/predators-sharks-yaroslav-askaro
 **One-on-one with Flames GM Craig Conroy: 'You have to have that patience'**\
 `On evaluating the organization's prospects, what the future holds for Calgary's veteran players, the goalie battle and more.`\
 https://nytimes.com/athletic/5768315/2024/09/16/calgary-flames-gm-craig-conroy/
-
-**One-on-one with Oilers GM Stan Bowman: 'It's not for me to tell anybody how to feel'**\
-`Bowman discusses his busy first summer on the job, and what he’d tell fans who are skeptical that he deserves a leadership role in hockey.`\
-https://nytimes.com/athletic/5768480/2024/09/16/edmonton-oilers-gm-stan-bowman/
-
-**Lowetide: Previewing the Oilers’ depth chart ahead of training camp**\
-`A predictable chain of transactions is likely on the way out of Oilers camp this fall.`\
-https://nytimes.com/athletic/5768595/2024/09/16/edmonton-oilers-roster-training-camp-2024/
 
