@@ -1,3 +1,11 @@
+**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
+`Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
+https://nytimes.com/athletic/5770625/2024/09/16/newcastle-transfers-barnes-tonali/
+
+**China Frees American Pastor After Nearly 20 Years in Prison**\
+`David Lin had tried to open a Christian training center in Beijing. The United States considered him one of three Americans “wrongfully detained” by China.`\
+https://nytimes.com/2024/09/16/world/asia/china-american-pastor-david-lin.html
+
 **Say it with me, Chicago Bears fans: 'It's only Week 2'**\
 `With no running game and a line that couldn’t handle Texans' pressure, Caleb Williams and the offense were "a little bruised up" after loss.`\
 https://nytimes.com/athletic/5770508/2024/09/16/chicago-bears-texans-caleb-williams/
