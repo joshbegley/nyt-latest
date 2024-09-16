@@ -1,3 +1,7 @@
+**The Bounce: Three key questions before WNBA playoffs.**\
+`Jason Jones and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5770903/2024/09/16/wnba-aja-wilson-aces-caitlin-clark-fever-nba-boston-celtics-76ers-knicks-nuggets-bucks-the-bounce/
+
 **How Does Pregnancy Change the Brain? Clues Are Emerging.**\
 `As hormones surge, some brain areas shrink in what scientists say may be a fine-tuning that helps mothers bond with and care for their babies.`\
 https://nytimes.com/2024/09/16/health/pregnancy-brain-changes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/business/media/fx-emmy-wins.html
 **Isiah Pacheco fractures fibula in Week 2 win vs. Bengals**\
 `Kansas City's tailback tallied 90 rushing yards on 19 carries and caught five passes for 21 yards before exiting the game with the ailment.`\
 https://nytimes.com/athletic/5771097/2024/09/16/isiah-pacheco-injury-fibula-chiefs/
-
-**Monday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
-https://nytimes.com/athletic/5771123/2024/09/16/mlb-odds-best-bets-projections-september-16/
 
