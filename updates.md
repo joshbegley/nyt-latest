@@ -1,3 +1,7 @@
+**Elon Musk Writes, Then Deletes, a Post Musing About Threats to Biden and Harris**\
+`His remark, just hours after what authorities said was a second assassination attempt on Donald J. Trump, immediately drew outrage.`\
+https://nytimes.com/2024/09/16/us/politics/musk-deleted-tweet-biden-kamala.html
+
 **Harland & Wolff, Titanic Shipbuilder, Files for Bankruptcy**\
 `For the second time in five years, the parent company of the shipyard in Belfast, Northern Ireland, will enter administration, with Royal Navy contracts in the balance.`\
 https://nytimes.com/2024/09/16/business/harland-wolff-titanic-bankruptcy.html
