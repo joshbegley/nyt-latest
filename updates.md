@@ -1,3 +1,15 @@
+**LeBrun: Inside the Yaroslav Askarov trade — how the Sharks won a 5-team race for the Preds goalie**\
+`San Jose's pursuit of Askarov was "consistent," before and after his trade request. But who else was in on Nashville's top prospect?`\
+https://nytimes.com/athletic/5766868/2024/09/16/predators-sharks-yaroslav-askarov-trade/
+
+**One-on-one with Oilers GM Stan Bowman: 'It's not for me to tell anybody how to feel'**\
+`Bowman discusses his busy first summer on the job, and what he’d tell fans who are skeptical that he deserves a leadership role in hockey.`\
+https://nytimes.com/athletic/5768480/2024/09/16/edmonton-oilers-gm-stan-bowman/
+
+**Inspired by doubters, Maxx Crosby leads Raiders defense in resilient win over Ravens**\
+`Las Vegas' leader on defense had six tackles, four TFLs, two sacks and a pass breakup. And a celebratory cigar after the upset win.`\
+https://nytimes.com/athletic/5769581/2024/09/16/raiders-ravens-maxx-crosby-defense-comeback/
+
 **A Second Attempted Assassination of Donald Trump**\
 `What we know about the episode and the suspect.`\
 https://nytimes.com/2024/09/16/briefing/donald-trump-attempted-assassination.html
