@@ -10,7 +10,7 @@ https://nytimes.com/2024/09/16/us/kimberly-potter-daunte-wright-police-training.
 `The internet giant told employees on Monday that it expected them to return to the office full-time in January.`\
 https://nytimes.com/2024/09/16/technology/amazon-return-to-office.html
 
-**The Briefing: Birmingham 3 Wrexham 1 -  Brady, Beckham and the battle of the celebrity U.S. backers**\
+**The Briefing: Birmingham 3 Wrexham 1 -  Brady hosts Beckham at the battle of the celebrity U.S. backers**\
 `A big game on the pitch but an international affair off it - our writers reflect on Birmingham's win over Wrexham`\
 https://nytimes.com/athletic/5771750/2024/09/16/birmingham-wrexham-brady-beckham/
 
