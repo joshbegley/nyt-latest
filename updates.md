@@ -1,3 +1,11 @@
+**49ers' third-down defense sinks them in loss to Sam Darnold and the Vikings**\
+`Fred Warner was one of the 49ers' lone bright spots on defense. The unit struggled especially mightily on third down against Minnesota.`\
+https://nytimes.com/athletic/5769393/2024/09/15/49ers-defense-vikings-sam-darnold/
+
+**Hard to take Colts seriously after they were steamrolled by Jordan Love-less Packers**\
+`Anyone who bought what the Colts were selling before the season might want a refund now. Indy is 0-2 after its humiliating loss Sunday.`\
+https://nytimes.com/athletic/5769707/2024/09/15/colts-packers-loss-0-2-contender-doubt/
+
 **‘The Daily Show’ wins best talk series.**\
 `By Annie Aguiar`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-daily-show-wins-best-talk-series
