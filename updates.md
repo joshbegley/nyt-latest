@@ -1,3 +1,15 @@
+**In ‘Agatha All Along,’ Joe Locke Works Like a Charm**\
+`A star of the Netflix hit “Heartstopper,” this actor is now joining the Marvel universe.`\
+https://nytimes.com/2024/09/16/arts/television/agatha-all-along-joe-locke.html
+
+**Tim Walz, a ‘Snowman Melting,’ Tests His Appeal in the Sun Belt**\
+`The Minnesota governor was picked for his appeal to the white working-class. The Harris campaign hopes he can reach other demographics, too.`\
+https://nytimes.com/2024/09/16/us/politics/tim-walz-sun-belt.html
+
+**Read the Charges Against Ryan Routh, Suspect in Trump Shooting Attempt**\
+`The man suspected of trying to kill former President Trump has been charged with two firearm counts.`\
+https://nytimes.com/interactive/2024/09/16/us/ryan-routh-gun-charges-trump-shooting.html
+
 **A.I. Pioneers Call for Protections Against ‘Catastrophic Risks’**\
 `Scientists from the United States, China and other nations called for an international authority to oversee artificial intelligence.`\
 https://nytimes.com/2024/09/16/business/china-ai-safety.html
