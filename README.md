@@ -1,4 +1,4 @@
-**Penguins, Sidney Crosby agree to new 2-year contract**\
+**Penguins re-sign Sidney Crosby to new 2-year contract**\
 `PITTSBURGH — Sidney Crosby is staying with the Pittsburgh Penguins.`\
 https://nytimes.com/athletic/5686706/2024/09/16/penguins-sidney-crosby-contract-details/
 
