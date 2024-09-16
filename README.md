@@ -1,3 +1,7 @@
+**Lamine Yamal's art and graft sparks Barcelona's most impressive victory yet**\
+`The 17-year-old winger was the key figure in another impressive Barcelona victory this early season`\
+https://nytimes.com/athletic/5770535/2024/09/16/barcelona-lamine-yamal-la-liga-girona/
+
 **What We Know About the Apparent Assassination Attempt Against Trump**\
 `Secret Service agents fired on a man who had a rifle and was hiding in bushes around a Trump golf club in Florida, officials said. Former President Donald J. Trump was unhurt.`\
 https://nytimes.com/2024/09/16/us/trump-assassination-attempt-suspect.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767895/2024/09/16/wilfred-ndidi-creator-assists-le
 **This is Newcastle's best start for 29 years - but they're playing poorly. What's going on?**\
 `It is only the sixth occasion that Newcastle have managed to navigate their opening four games of a Premier League season unbeaten`\
 https://nytimes.com/athletic/5768019/2024/09/16/newcastle-wolves-best-start-in-29-years/
-
-**Aston Villa, 41 disgruntled fans and season tickets for seats that did not exist**\
-`Aston Villa fans affected by ticketing issues share their experiences following a problematic start to the season for the club off the field`\
-https://nytimes.com/athletic/5744104/2024/09/16/aston-villa-ticket-issues/
 
