@@ -1,3 +1,7 @@
+**Canadiens rookie camp: Reinbacher’s sphere of influence, Nicholas summer camp**\
+`The growth of Reinbacher's self-awareness, Josh Anderson putting in the work this summer and advice on defending Lane Hutson.`\
+https://nytimes.com/athletic/5770495/2024/09/16/canadiens-rookie-camp-david-reinbacher/
+
 **Guns and the Trump Assassination Attempt**\
 `Readers criticize the country’s lax gun laws. Also: “The Power Broker” at 50; air-conditioning; phones in school; polluting cruise ships; still summer.`\
 https://nytimes.com/2024/09/16/opinion/trump-assassination-attempt-guns.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5771316/2024/09/16/sophie-ingle-chelsea-acl-injury/
 **Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
 `Let us know what's on your mind as the Broncos prepare to embark on a two-game East Coast road trip.`\
 https://nytimes.com/athletic/5771315/2024/09/16/broncos-mailbag-questions-week-3/
-
-**The Bounce: Three key questions before WNBA playoffs.**\
-`Jason Jones and Shams Charania catch you up on leaguewide news.`\
-https://nytimes.com/athletic/5770903/2024/09/16/wnba-aja-wilson-aces-caitlin-clark-fever-nba-boston-celtics-76ers-knicks-nuggets-bucks-the-bounce/
 
