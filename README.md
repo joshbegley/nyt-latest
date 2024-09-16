@@ -19,7 +19,7 @@ https://nytimes.com/2024/09/16/us/politics/trump-assassination-suspect-book.html
 https://nytimes.com/2024/09/16/opinion/springfield-immigration.html
 
 **Jane’s Addiction to Cancel Tour After Onstage Fight**\
-`In a social media post, the rock band said it was halting its reunion tour after the group’s singer, Perry Farrell, hit  the guitarist at a Boston show.`\
+`In a social media post, the rock band said it was halting its reunion tour after the group’s singer, Perry Farrell, hit the guitarist at a Boston show.`\
 https://nytimes.com/2024/09/16/arts/music/janes-addiction-tour-canceled.html
 
 **U.S. Awards Intel $3 Billion for Military Supply Program**\
