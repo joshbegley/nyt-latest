@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5769724/2024/09/15/jets-aaron-rodgers-first-win-def
 `Ryan Wesley Routh, 58, told The New York Times in 2023 that he had traveled to Ukraine and wanted to recruit Afghan soldiers to fight there.`\
 https://nytimes.com/2024/09/15/us/politics/trump-shooting-suspect-routh.html
 
-**Mexico’s Contentious Judiciary Overhaul Judiciary Becomes Law**\
+**Mexico’s Contentious Judiciary Overhaul Becomes Law**\
 `Going forward, Mexican voters will now elect judges at every level, dramatically restructuring the third branch of government.`\
 https://nytimes.com/2024/09/15/world/americas/mexico-overhaul-judiciary-law.html
 
