@@ -1,7 +1,3 @@
-**‘The Traitors’ ends RuPaul’s reign.**\
-`By Alexis Soloski`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-traitors-ends-rupauls-reign
-
 **A kicker's life: Austin Seibert comes in from off the street to save Commanders' day**\
 `Seibert — signed off the street by Washington six days ago to replace Cade York — accounted for all of the Commanders' points.`\
 https://nytimes.com/athletic/5769294/2024/09/15/austin-seibert-commanders-giants/
@@ -12,7 +8,7 @@ https://nytimes.com/athletic/5769730/2024/09/15/vikings-49ers-brian-flores-defen
 
 **Jean Smart wins a third Emmy for ‘Hacks.’**\
 `By Alexis Soloski`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/hfo-jean-smart-wins-a-third-emmy-for-hacks
+https://nytimes.com/2024/09/15/arts/television/jean-smart-emmy-hacks.html
 
 **Zrebiec: Ravens have earned their 0-2 start, and there's plenty of blame to go around**\
 `Baltimore provided a tutorial on how to blow a 10-point fourth-quarter lead and squander a game to the Raiders it had no business losing.`\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5769633/2024/09/15/new-york-giants-brian-daboll-gra
 **Jeremy Allen White wins best actor in a comedy.**\
 `By Annie Aguiar`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/jeremy-allen-white-wins-best-actor-in-a-comedy
+
+**Chargers' evolution under Jim Harbaugh shines in blowout of Panthers**\
+`The Chargers are 2-0 for the first time since 2012 after throttling the Panthers 26-3 behind another big J.K. Dobbins performance.`\
+https://nytimes.com/athletic/5769748/2024/09/15/chargers-panthers-blowout-jim-harbaugh-running-game/
 
