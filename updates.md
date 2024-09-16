@@ -1,3 +1,7 @@
+**Tennis Briefing: Davis Cup round-up and an unlucky WTA 500 in Seoul**\
+`Brief matches of very different kinds, an unlucky WTA tournament, and international team tennis.`\
+https://nytimes.com/athletic/5768758/2024/09/16/davis-cup-results-tennis-tournaments-rankings-analysis/
+
 **Tito Jackson, Singer and Guitarist for the Jackson 5, Dies at 70**\
 `Mr. Jackson, alongside Michael and his other brothers, provided a soundtrack for a generation of young listeners in the 1970s.`\
 https://nytimes.com/2024/09/16/us/tito-jackson-dead.html
