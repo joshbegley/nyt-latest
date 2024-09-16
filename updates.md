@@ -1,3 +1,7 @@
+**Jane’s Addiction to Cancel Tour After Onstage Fight**\
+`In a social media post, the rock band said it was halting its reunion tour after the group’s singer, Perry Farrell, hit  the guitarist at a Boston show.`\
+https://nytimes.com/2024/09/16/arts/music/janes-addiction-tour-canceled.html
+
 **U.S. Awards Intel $3 Billion for Military Supply Program**\
 `The Biden administration announced an award for the struggling chipmaker as part of an effort to establish secure supply sources for the Pentagon.`\
 https://nytimes.com/2024/09/16/us/politics/intel-chips-semiconductor-grant.html
