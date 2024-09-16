@@ -24,7 +24,7 @@ https://nytimes.com/2024/09/16/technology/google-antitrust-youtube-ceo.html
 
 **Judges Show Some Skepticism of TikTok’s Fight Against Potential U.S. Ban**\
 `TikTok on Monday pushed back against a law that would force the popular video app to sell to a non-Chinese owner or be banned, in what is shaping up to be a landmark case.`\
-https://nytimes.com/2024/09/16/technology/tiktok-ban.html
+https://nytimes.com/2024/09/16/technology/tiktok-us-ban-case.html
 
 **UFO 50 Is an Ingeniously Retro Advent Calendar**\
 `This compilation from a fictional ’80s video game company is constantly clever. By comparison, Atari’s latest resurrection effort, Yars Rising, is frustratingly banal.`\

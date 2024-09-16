@@ -1,3 +1,7 @@
+**Judges Show Some Skepticism of TikTok’s Fight Against Potential U.S. Ban**\
+`TikTok on Monday pushed back against a law that would force the popular video app to sell to a non-Chinese owner or be banned, in what is shaping up to be a landmark case.`\
+https://nytimes.com/2024/09/16/technology/tiktok-us-ban-case.html
+
 **Trump, Using Harsh Language, Urges Democrats to Tone Down Theirs**\
 `The authorities have not provided information about the gunman’s motive in the apparent assassination attempt on Sunday, yet former President Donald J. Trump, who has his own history of using violent language, sought to blame Democrats.`\
 https://nytimes.com/2024/09/16/us/politics/trump-blames-democrats-gunman-golf-course.html
