@@ -1,3 +1,7 @@
+**NASCAR Watkins Glen takeaways: Tire mysteries, why Kyle Larson questions himself and more**\
+`A tire that was supposed to change the game at Watkins Glen ... definitely did not. Plus, Kyle Larson on his crashing problem and much more.`\
+https://nytimes.com/athletic/5771106/2024/09/16/nascar-watkins-glen-takeaways-tires-kyle-larson/
+
 **Knopf, Alfred A, Inc**\
 `News about Knopf, Alfred A, Inc. Commentary and archival information about Knopf, Alfred A, Inc from The New York Times.`\
 https://nytimes.com/topic/knopf-alfred-a-inc

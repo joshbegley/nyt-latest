@@ -1,3 +1,7 @@
+**NASCAR Watkins Glen takeaways: Tire mysteries, why Kyle Larson questions himself and more**\
+`A tire that was supposed to change the game at Watkins Glen ... definitely did not. Plus, Kyle Larson on his crashing problem and much more.`\
+https://nytimes.com/athletic/5771106/2024/09/16/nascar-watkins-glen-takeaways-tires-kyle-larson/
+
 **Knopf, Alfred A, Inc**\
 `News about Knopf, Alfred A, Inc. Commentary and archival information about Knopf, Alfred A, Inc from The New York Times.`\
 https://nytimes.com/topic/knopf-alfred-a-inc
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/us/politics/trump-violence-assassination-attempt.
 **NFL Week 3 odds, schedule: Saints, Bucs trending up, Ravens facing a gut check**\
 `The NFL Week 3 odds are out, with several close, competitive games on the schedule ahead. `\
 https://nytimes.com/athletic/5771496/2024/09/16/nfl-week-3-odds-spreads-schedule/
-
-**Suspect in Attempt on Trump’s Life Spent Nearly 12 Hours Near Golf Course, Phone Records Show**\
-`Ryan W. Routh’s cellphone was near the former president’s golf club in Florida beginning at 1:59 a.m. on Sunday, according to a federal criminal complaint.`\
-https://nytimes.com/2024/09/16/us/politics/trump-golf-course-shooting-suspect-phone-records.html
 
