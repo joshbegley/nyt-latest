@@ -26,9 +26,9 @@ https://nytimes.com/athletic/5769393/2024/09/15/49ers-defense-vikings-sam-darnol
 `By Annie Aguiar`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-daily-show-wins-best-talk-series
 
-**Candice Bergen lands a political jab with a ‘Murphy Brown’ quip.**\
+**Candice Bergen Lands a Political Jab With a ‘Murphy Brown’ Quip**\
 `By Matt Stevens`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/candice-bergen-lands-a-political-jab-with-a-murphy-brown-quip
+https://nytimes.com/2024/09/15/arts/television/candice-bergen-emmys.html
 
 **Raiders and Gardner Minshew learn good things happen when Davante Adams gets the ball**\
 `Antonio Pierce met with Adams at the team hotel Saturday night with a simple message: We're going to get you the ball. A lot.`\
