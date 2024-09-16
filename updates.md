@@ -1,3 +1,7 @@
+**Don't sweat Travis Kelce's slow start. But Sam LaPorta's ...**\
+`Travis Kelce may be struggling to produce fantasy points, but he's showing some encouraging statistical signs.`\
+https://nytimes.com/athletic/5770942/2024/09/16/fantasy-football-week-2-recap-dont-sweat-travis-kelces-slow-start/
+
 **Brentford's Wissa out for 'months' after suffering injury against Man City**\
 `Brentford forward Yoane Wissa is expected to be sidelined for at least two months after being forced off with an injury during Saturday&#8217;s defeat to Manchester City.`\
 https://nytimes.com/athletic/5771224/2024/09/16/yoane-wissa-injury-brentford/
