@@ -1,3 +1,11 @@
+**Penguins, Sidney Crosby agree to new 2-year contract**\
+`PITTSBURGH — Sidney Crosby is staying with the Pittsburgh Penguins.`\
+https://nytimes.com/athletic/5686706/2024/09/16/penguins-sidney-crosby-contract-details/
+
+**San Francisco Giants week in review: A splash hit for the ages and lots of lousy baseball**\
+`The Giants' median runs scored per game last week was one, but one of those runs was so glorious, it will be remembered forever.`\
+https://nytimes.com/athletic/5770372/2024/09/16/sf-giants-heliot-ramos-splash-hit-weekly-review/
+
 **Martinez, Mazraoui avoid injuries but Hojlund, Mount still out for Man Utd**\
 `Manchester United defenders Lisandro Martinez and Noussair Mazraoui are available for Tuesday’s Carabao Cup game against Barnsley.`\
 https://nytimes.com/athletic/5771353/2024/09/16/man-utd-injury-news-martinez-mazraoui/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/16/dining/crispy-chicken-breast-recipe.html
 **What We Know About the Deadly Floods in Central Europe**\
 `At least 17 people have died and thousands have been displaced. “Relief is not expected to come before tomorrow, and more likely, the day after,” an official in Austria said.`\
 https://nytimes.com/2024/09/16/world/europe/deadly-europe-floods-romania-poland-austria.html
-
-**Don't sweat Travis Kelce's slow start. But Sam LaPorta's ...**\
-`Travis Kelce may be struggling to produce fantasy points, but he's showing some encouraging statistical signs.`\
-https://nytimes.com/athletic/5770942/2024/09/16/fantasy-football-week-2-recap-dont-sweat-travis-kelces-slow-start/
-
-**Brentford's Wissa out for 'months' after suffering injury against Man City**\
-`Brentford forward Yoane Wissa is expected to be sidelined for at least two months after being forced off with an injury during Saturday&#8217;s defeat to Manchester City.`\
-https://nytimes.com/athletic/5771224/2024/09/16/yoane-wissa-injury-brentford/
 
