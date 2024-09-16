@@ -1,3 +1,19 @@
+**Say it with me, Chicago Bears fans: 'It's only Week 2'**\
+`With no running game and a line that couldn’t handle Texans' pressure, Caleb Williams and the offense were "a little bruised up" after loss.`\
+https://nytimes.com/athletic/5770508/2024/09/16/chicago-bears-texans-caleb-williams/
+
+**Broncos offense has regressed since releasing Russell Wilson. Can Sean Payton fix it?**\
+`The Broncos have scored only one touchdown through two games, their most sluggish offensive start in 18 years.`\
+https://nytimes.com/athletic/5769455/2024/09/16/broncos-offense-broken-steelers-loss-sean-payton/
+
+**One-on-one with Flames GM Craig Conroy: 'You have to have that patience'**\
+`On evaluating the organization's prospects, what the future holds for Calgary's veteran players, the goalie battle and more.`\
+https://nytimes.com/athletic/5768315/2024/09/16/calgary-flames-gm-craig-conroy/
+
+**Lowetide: Previewing the Oilers’ depth chart ahead of training camp**\
+`A predictable chain of transactions is likely on the way out of Oilers camp this fall.`\
+https://nytimes.com/athletic/5768595/2024/09/16/edmonton-oilers-roster-training-camp-2024/
+
 **LeBrun: Inside the Yaroslav Askarov trade — how the Sharks won a 5-team race for the Preds goalie**\
 `San Jose's pursuit of Askarov was "consistent," before and after his trade request. But who else was in on Nashville's top prospect?`\
 https://nytimes.com/athletic/5766868/2024/09/16/predators-sharks-yaroslav-askarov-trade/
