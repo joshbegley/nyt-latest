@@ -1,3 +1,11 @@
+**FX Outduels Bigger Rivals to Collect Huge Emmy Haul**\
+`The network has been a darling among critics for years. But it hit a new high on Sunday, with “Shogun” winning best drama and “The Bear” picking up several awards as well.`\
+https://nytimes.com/2024/09/16/business/media/fx-emmy-wins.html
+
+**Isiah Pacheco fractures fibula in Week 2 win vs. Bengals**\
+`Kansas City's tailback tallied 90 rushing yards on 19 carries and caught five passes for 21 yards before exiting the game with the ailment.`\
+https://nytimes.com/athletic/5771097/2024/09/16/isiah-pacheco-injury-fibula-chiefs/
+
 **Monday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
 https://nytimes.com/athletic/5771123/2024/09/16/mlb-odds-best-bets-projections-september-16/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/16/nyregion/nyc-fdny-bribery-arrest.html
 **Warnings Issued as Storm Looms Near the Carolinas**\
 `The storm system could become the next named storm, Helene, on Monday. Forecasters are warning of floods and storm surge along the Carolina coasts hit hard by Debby in August.`\
 https://nytimes.com/2024/09/16/weather/storm-warnings-north-south-carolina.html
-
-**Beaches Close in Maryland, Delaware and Virginia as Needles Wash Ashore**\
-`Beachgoers were urged to stay out of the water after dozens of hypodermic needles, as well as tampon applicators and other medical waste, were found on beaches over the weekend.`\
-https://nytimes.com/2024/09/16/us/beaches-closed-maryland-virginia-needles.html
-
-**The Champions League returns: Your guide to its new format, storylines, tactics and how to watch**\
-`The Champions League is back, but not as we know it - here's our guide to the new format and what to look out for in gameweek one`\
-https://nytimes.com/athletic/5757730/2024/09/16/champions-league-preview-how-to-watch/
 
