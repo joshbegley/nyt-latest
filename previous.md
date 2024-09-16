@@ -1,3 +1,7 @@
+**Brentford's Wissa out for 'months' after suffering injury against Man City**\
+`Brentford forward Yoane Wissa is expected to be sidelined for at least two months after being forced off with an injury during Saturday&#8217;s defeat to Manchester City.`\
+https://nytimes.com/athletic/5771224/2024/09/16/yoane-wissa-injury-brentford/
+
 **First Day of a ‘New Life’ for a Boy With Sickle Cell**\
 `Kendric Cromer, 12, is among the first patients to be treated with gene therapy just approved by the F.D.A. that many other patients face obstacles to receiving.`\
 https://nytimes.com/2024/09/16/health/sickle-cell-gene-therapy-kendric-cromer.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/snapchat/love-and-friendship-day-by-day.html
 **Sam Darnold has earned Kevin O'Connell's trust, and the Vikings are flying high**\
 `Minnesota's head coach has put his trust in Darnold, a former first-round pick, and the QB has rewarded him with an excellent start.`\
 https://nytimes.com/athletic/5768682/2024/09/16/vikings-sam-darnold-kevin-oconnell-trust/
-
-**How could Manchester City be punished if they lose 115 charges case?**\
-`Exoneration? A settlement? A fine - or even relegation? We analyse the possible outcomes of City's fight with the Premier League`\
-https://nytimes.com/athletic/5770700/2024/09/16/manchester-city-punishment-115-premier-league/
 

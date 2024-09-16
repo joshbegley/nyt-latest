@@ -1,3 +1,7 @@
+**Brentford's Wissa out for 'months' after suffering injury against Man City**\
+`Brentford forward Yoane Wissa is expected to be sidelined for at least two months after being forced off with an injury during Saturday&#8217;s defeat to Manchester City.`\
+https://nytimes.com/athletic/5771224/2024/09/16/yoane-wissa-injury-brentford/
+
 **First Day of a ‘New Life’ for a Boy With Sickle Cell**\
 `Kendric Cromer, 12, is among the first patients to be treated with gene therapy just approved by the F.D.A. that many other patients face obstacles to receiving.`\
 https://nytimes.com/2024/09/16/health/sickle-cell-gene-therapy-kendric-cromer.html
