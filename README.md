@@ -1,3 +1,7 @@
+**Mike Trout open to moving from CF after second meniscus tear**\
+`Trout, who's spent much of the last four years navigating different injuries, met with reporters for the first time since his re-injury.`\
+https://nytimes.com/athletic/5772476/2024/09/16/mike-trout-injury-update-angels/
+
 **Former OceanGate Employees Testify at Hearing on Titan Implosion**\
 `The Coast Guard’s first public hearing on OceanGate’s fatal Titan submersible accident revealed that the crew had sent a message saying, “All good here,” shortly before the vessel imploded.`\
 https://nytimes.com/video/us/100000009697453/titan-oceangate-hearings-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/travel/tony-robbins-hotel-estate.html
 **It Was Only a Matter of Time Before Abortion Bans Killed Someone**\
 `Why didn’t a Georgia hospital save Amber Nicole Thurman?`\
 https://nytimes.com/2024/09/16/opinion/abortion-bans-death-thurman.html
-
-**What Sherrone Moore's Michigan contract says about NCAA violations**\
-`The Michigan coach did not sign a full contract until Sept. 6. It pays him an average of $5.7 million over five years.`\
-https://nytimes.com/athletic/5772338/2024/09/16/sherrone-moore-contract-michigan-football-ncaa/
 
