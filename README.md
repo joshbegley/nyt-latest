@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/09/15/arts/emmy-awards/hiroyuki-sanada-wins-best-a
 
 **‘Baby Reindeer’ wins best limited series.**\
 `By Matt Stevens`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/baby-reindeer-emmy-limited-series
+https://nytimes.com/2024/09/15/arts/television/baby-reindeer-emmy-limited-series.html
 
 **After confronting their problems, Browns rely on defense to secure win over Jaguars**\
 `Cleveland's defense was far and away the best unit on the field as it stymied Jacksonville's offense to even its record at 1-1. `\
