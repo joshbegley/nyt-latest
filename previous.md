@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5770076/2024/09/15/marvin-harrison-jr-arizona-cardi
 
 **In a surprise win, ‘Hacks’ earns top comedy award.**\
 `By Julia Jacobs`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/hacks-wins-best-comedy-series
+https://nytimes.com/2024/09/15/arts/television/hacks-emmy-best-comedy.html
 
 **‘Shogun’ Wins Best Drama, Capping a Big Night**\
 `The win capped a successful evening for the remake, which picked up several other Emmys on the night.`\
