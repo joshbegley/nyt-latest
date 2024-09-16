@@ -1,3 +1,19 @@
+**Black Voters Matter Says It Will Spend $15 Million in Battleground States**\
+`The nonpartisan group will mount a voter mobilization effort that includes radio ads, billboards and on-the-ground canvassing operations, with a focus on early voting.`\
+https://nytimes.com/2024/09/16/us/politics/black-voters-matter-voting-ads.html
+
+**Rams' Cooper Kupp to miss 'extended period of time' with ankle injury**\
+`Kupp exited State Farm Stadium with a walking boot on his left lower leg/foot.`\
+https://nytimes.com/athletic/5772150/2024/09/16/cooper-kupp-injury-ankle-la-rams/
+
+**Chick-fil-A**\
+`News about Chick-fil-A. Commentary and archival information about Chick-fil-A from The New York Times.`\
+https://nytimes.com/topic/chick-fil-a
+
+**How the Chargers' plan for Quentin Johnston is getting the most out of the 2023 top pick**\
+`Johnson's two touchdowns Sunday against the Panthers matched his total from his entire rookie season.`\
+https://nytimes.com/athletic/5772068/2024/09/16/chargers-quentin-johnson-panthers-touchdowns/
+
 **Dolphins signing QB Huntley; no decision on IR for Tagovailoa**\
 `McDaniel added that he would let "Tua speak on Tua's career" when asked if the quarterback intended to continue playing.`\
 https://nytimes.com/athletic/5772095/2024/09/16/dolphins-tyler-huntley-tua-tagovailoa/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/16/us/kimberly-potter-daunte-wright-police-training.
 **Amazon Tells Corporate Workers to Be Back in the Office 5 Days a Week**\
 `The internet giant told employees on Monday that it expected them to return to the office full-time in January.`\
 https://nytimes.com/2024/09/16/technology/amazon-return-to-office.html
-
-**The Briefing: Birmingham 3 Wrexham 1 -  Brady hosts Beckham at the battle of the celebrity U.S. backers**\
-`A big game on the pitch but an international affair off it - our writers reflect on Birmingham's win over Wrexham`\
-https://nytimes.com/athletic/5771750/2024/09/16/birmingham-wrexham-brady-beckham/
-
-**With ‘No Ordinary’ Fans, Sade Night Turns 10**\
-`Fans of all ages slow-danced and lip-synced deep into the night, united by their shared love for Sade, an R&B star who has expanded her audience through social media.`\
-https://nytimes.com/2024/09/16/style/sade-night.html
-
-**Biden Celebrates Investments in Black Colleges While Promoting Harris**\
-`At a conference for historically Black colleges and universities in Philadelphia, the president tallied up his administration’s contributions to “H.B.C.U. excellence.”`\
-https://nytimes.com/2024/09/16/us/politics/biden-hbcu.html
-
-**Reading takeover stalls after breakdown in talks between Couhig and Yongge**\
-`Former Wycombe Wanderers owner Rob Couhig’s attempt to buy Reading has stalled following the breakdown of talks between the American lawyer and the League One side’s current owner Dai Yongge.`\
-https://nytimes.com/athletic/5771984/2024/09/16/reading-takeover-couhig-yongge/
 
