@@ -1,3 +1,7 @@
+**Shanghai Is Hit by Strongest Typhoon in Decades and Comes to a Standstill**\
+`The city canceled all flights at its two airports and closed major attractions, amid a three-day national holiday.`\
+https://nytimes.com/2024/09/16/world/asia/typhoon-bebinca-shanghai.html
+
 **The One Issue Where Israeli Extremists Are Mainstream**\
 `Israel’s annexation of the occupied West Bank is not a future prospect; it is a fact of life. Israelis and Palestinians live in a one-state reality.`\
 https://nytimes.com/2024/09/16/opinion/16el-ad.html
