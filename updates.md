@@ -1,3 +1,7 @@
+**Michigan switches to Alex Orji at QB for USC game**\
+`Alex Orji will make his first career start at quarterback for Michigan on Saturday against USC, coach Sherrone Moore said Monday.`\
+https://nytimes.com/athletic/5771503/2024/09/16/michigan-alex-orji-starting-qb-usc/
+
 **American Parents Need Much More Than Tax Credits**\
 `If American parents didn’t have to sweat, they might have the time and mental space to attend to child-rearing’s ordinary challenges.`\
 https://nytimes.com/live/2024/09/11/opinion/thepoint/parenting-costs-usa
