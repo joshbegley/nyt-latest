@@ -1,3 +1,7 @@
+**Commanders lean on backfied duo of Brian Robinson, Austin Ekeler to squeeze by Giants**\
+`The two running backs combined for 221 of Washington's 425 total yards and helped take some of the pressure off Jayden Daniels. `\
+https://nytimes.com/athletic/5769703/2024/09/15/commanders-giants-brian-robinson-austin-ekeler/
+
 **49ers' third-down defense sinks them in loss to Sam Darnold and the Vikings**\
 `Fred Warner was one of the 49ers' lone bright spots on defense. The unit struggled especially mightily on third down against Minnesota.`\
 https://nytimes.com/athletic/5769393/2024/09/15/49ers-defense-vikings-sam-darnold/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/us/politics/trump-shooting-suspect-routh.html
 **Mexico’s Contentious Judiciary Overhaul Judiciary Becomes Law**\
 `Going forward, Mexican voters will now elect judges at every level, dramatically restructuring the third branch of government.`\
 https://nytimes.com/2024/09/15/world/americas/mexico-overhaul-judiciary-law.html
-
-**It's too early to worry about Lions offense, but this group feels off compared to a year ago**\
-`The Lions are hoping their Week 2 performance serves as a wake-up call.`\
-https://nytimes.com/athletic/5769477/2024/09/15/lions-loss-buccaneers-offense-jared-goff/
 
