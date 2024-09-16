@@ -1,3 +1,15 @@
+**Suspect in Attempt on Trump’s Life Spent Nearly 12 Hours Near Golf Course, Phone Records Show**\
+`Ryan W. Routh’s cellphone was near the former president’s golf club in Florida beginning at 1:59 a.m. on Sunday, according to a federal criminal complaint.`\
+https://nytimes.com/2024/09/16/us/politics/trump-golf-course-shooting-suspect-phone-records.html
+
+**Texas QB Quinn Ewers questionable for ULM game with oblique injury**\
+`Ewers had been playing some of the best football of his career before the injury.`\
+https://nytimes.com/athletic/5771556/2024/09/16/quinn-ewers-injury-arch-manning-texas/
+
+**Iga Swiatek and Coco Gauff out of Billie Jean King Cup Finals**\
+`The proximity of the WTA Finals in Riyadh means top players like Swiatek and Gauff are missing the so-called 'World Cup of Tennis'`\
+https://nytimes.com/athletic/5771515/2024/09/16/billie-jean-king-cup-finals-squads-teams/
+
 **Mikey Varas named first coach in San Diego FC club history**\
 `Varas most recently was the interim head coach of the U.S. men's national team.`\
 https://nytimes.com/athletic/5771574/2024/09/16/mikey-varas-coach-san-diego-fc/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5771355/2024/09/16/college-football-week-4-odds-sch
 **Michigan switches to Alex Orji at QB for USC game**\
 `Alex Orji will make his first career start at quarterback for Michigan on Saturday against USC, coach Sherrone Moore said Monday.`\
 https://nytimes.com/athletic/5771503/2024/09/16/michigan-alex-orji-starting-qb-usc/
-
-**American Parents Need Much More Than Tax Credits**\
-`If American parents didn’t have to sweat, they might have the time and mental space to attend to child-rearing’s ordinary challenges.`\
-https://nytimes.com/live/2024/09/11/opinion/thepoint/parenting-costs-usa
-
-**USMNT Player Tracker: Balogun's bit-part role, star man Pulisic, and Busio calls for character**\
-`Koleosho's stunning solo effort earned Burnley an impressive win at Leeds, while Mark McKenzie continues to impress at Toulouse in Ligue 1`\
-https://nytimes.com/athletic/5771238/2024/09/16/usmnt-balogun-pulisic-busio-koleosho-tracker/
-
-**Join the Times’s Climate Event With Jane Goodall, Al Roker and Others**\
-`Sign up to watch the livestream of the Climate Forward conference on Wednesday, Sept. 25.`\
-https://nytimes.com/2024/09/16/climate/join-the-timess-climate-event-with-jane-goodall-al-roker-and-others.html
 

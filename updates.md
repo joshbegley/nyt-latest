@@ -1,3 +1,15 @@
+**Suspect in Attempt on Trump’s Life Spent Nearly 12 Hours Near Golf Course, Phone Records Show**\
+`Ryan W. Routh’s cellphone was near the former president’s golf club in Florida beginning at 1:59 a.m. on Sunday, according to a federal criminal complaint.`\
+https://nytimes.com/2024/09/16/us/politics/trump-golf-course-shooting-suspect-phone-records.html
+
+**Texas QB Quinn Ewers questionable for ULM game with oblique injury**\
+`Ewers had been playing some of the best football of his career before the injury.`\
+https://nytimes.com/athletic/5771556/2024/09/16/quinn-ewers-injury-arch-manning-texas/
+
+**Iga Swiatek and Coco Gauff out of Billie Jean King Cup Finals**\
+`The proximity of the WTA Finals in Riyadh means top players like Swiatek and Gauff are missing the so-called 'World Cup of Tennis'`\
+https://nytimes.com/athletic/5771515/2024/09/16/billie-jean-king-cup-finals-squads-teams/
+
 **Mikey Varas named first coach in San Diego FC club history**\
 `Varas most recently was the interim head coach of the U.S. men's national team.`\
 https://nytimes.com/athletic/5771574/2024/09/16/mikey-varas-coach-san-diego-fc/
