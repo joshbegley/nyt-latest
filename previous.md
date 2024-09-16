@@ -1,3 +1,11 @@
+**Is Bryce Young's benching the beginning of the end for last year's No. 1 pick?**\
+`Andy Dalton will start the Panthers' Week 3 game and Dave Canales didn't frame the change as temporary or mental break for Bryce Young.`\
+https://nytimes.com/athletic/5772321/2024/09/16/bryce-young-benched-andy-dalton-panthers/
+
+**Mike Trout open to moving from CF after second meniscus tear**\
+`Trout, who's spent much of the last four years navigating different injuries, met with reporters for the first time since his re-injury.`\
+https://nytimes.com/athletic/5772476/2024/09/16/mike-trout-injury-update-angels/
+
 **Former OceanGate Employees Testify at Hearing on Titan Implosion**\
 `The Coast Guard’s first public hearing on OceanGate’s fatal Titan submersible accident revealed that the crew had sent a message saying, “All good here,” shortly before the vessel imploded.`\
 https://nytimes.com/video/us/100000009697453/titan-oceangate-hearings-safety.html
@@ -7,7 +15,7 @@ https://nytimes.com/video/us/100000009697453/titan-oceangate-hearings-safety.htm
 https://nytimes.com/live/2024/09/16/us/trump-shooting-news/the-rifle-found-at-trumps-golf-course-is-relatively-cheap-and-niche-compared-with-the-ar-15
 
 **Suspect Never Took a Shot at Trump but Hid Undetected for 12 Hours**\
-`Ryan Wesley Routh was charged with two federal gun crimes a day after Secret Service agents fired on him as he pointed a rifle toward the golf course where former President Donald Trump was playing.`\
+`Ryan W. Routh was charged with two federal gun crimes a day after Secret Service agents fired on him as he pointed a rifle toward the golf course where former President Donald Trump was playing.`\
 https://nytimes.com/2024/09/16/us/politics/investigation-trump-assassination-attempt.html
 
 **Second Close Call for Trump Brings More Scrutiny to Secret Service**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5579464/2024/09/16/red-wings-lucas-raymond-contract
 **Tony Robbins: Motivational Speaker, Author … Hotelier?**\
 `The self-help guru is joining the hotel mogul Sam Nazarian to open a chain of luxury preventive-medicine resorts, aiming for a slice of the $5.6 trillion wellness industry.`\
 https://nytimes.com/2024/09/16/travel/tony-robbins-hotel-estate.html
-
-**It Was Only a Matter of Time Before Abortion Bans Killed Someone**\
-`Why didn’t a Georgia hospital save Amber Nicole Thurman?`\
-https://nytimes.com/2024/09/16/opinion/abortion-bans-death-thurman.html
-
-**What Sherrone Moore's Michigan contract says about NCAA violations**\
-`The Michigan coach did not sign a full contract until Sept. 6. It pays him an average of $5.7 million over five years.`\
-https://nytimes.com/athletic/5772338/2024/09/16/sherrone-moore-contract-michigan-football-ncaa/
 
