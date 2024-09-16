@@ -1,3 +1,7 @@
+**Black Voters Matter Says It Will Spend $15 Million in Battleground States**\
+`The nonpartisan group will mount a voter mobilization effort that includes radio ads, billboards and on-the-ground canvassing operations, with a focus on early voting.`\
+https://nytimes.com/2024/09/16/us/politics/black-voters-matter-voting-ads.html
+
 **Rams' Cooper Kupp to miss 'extended period of time' with ankle injury**\
 `Kupp exited State Farm Stadium with a walking boot on his left lower leg/foot.`\
 https://nytimes.com/athletic/5772150/2024/09/16/cooper-kupp-injury-ankle-la-rams/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/us/kimberly-potter-daunte-wright-police-training.
 **Amazon Tells Corporate Workers to Be Back in the Office 5 Days a Week**\
 `The internet giant told employees on Monday that it expected them to return to the office full-time in January.`\
 https://nytimes.com/2024/09/16/technology/amazon-return-to-office.html
-
-**The Briefing: Birmingham 3 Wrexham 1 -  Brady hosts Beckham at the battle of the celebrity U.S. backers**\
-`A big game on the pitch but an international affair off it - our writers reflect on Birmingham's win over Wrexham`\
-https://nytimes.com/athletic/5771750/2024/09/16/birmingham-wrexham-brady-beckham/
 
