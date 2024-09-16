@@ -1,3 +1,11 @@
+**It's too early to worry about Lions offense, but this group feels off compared to a year ago**\
+`The Lions are hoping their Week 2 performance serves as a wake-up call.`\
+https://nytimes.com/athletic/5769477/2024/09/15/lions-loss-buccaneers-offense-jared-goff/
+
+**Jean Smart Wins a Third Emmy for ‘Hacks’**\
+`The actress won for her starring role in the Max series “Hacks,” a sitcom set in the rarefied, ruthless world of stand-up comedy. It is her sixth Emmy overall.`\
+https://nytimes.com/2024/09/15/arts/television/jean-smart-emmy-hacks.html
+
 **‘The Traitors’ ends RuPaul’s reign.**\
 `By Alexis Soloski`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-traitors-ends-rupauls-reign

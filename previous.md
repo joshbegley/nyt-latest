@@ -1,3 +1,7 @@
+**It's too early to worry about Lions offense, but this group feels off compared to a year ago**\
+`The Lions are hoping their Week 2 performance serves as a wake-up call.`\
+https://nytimes.com/athletic/5769477/2024/09/15/lions-loss-buccaneers-offense-jared-goff/
+
 **‘The Traitors’ ends RuPaul’s reign.**\
 `By Alexis Soloski`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-traitors-ends-rupauls-reign
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/5769294/2024/09/15/austin-seibert-commanders-giants
 `The Vikings surprised the 49ers and might be more competitive than many experts thought they'd be this season. The defense is to thank.`\
 https://nytimes.com/athletic/5769730/2024/09/15/vikings-49ers-brian-flores-defense-analysis/
 
-**Jean Smart wins a third Emmy for ‘Hacks.’**\
-`By Alexis Soloski`\
+**Jean Smart Wins a Third Emmy for ‘Hacks’**\
+`The actress won for her starring role in the Max series “Hacks,” a sitcom set in the rarefied, ruthless world of stand-up comedy. It is her sixth Emmy overall.`\
 https://nytimes.com/2024/09/15/arts/television/jean-smart-emmy-hacks.html
 
 **Zrebiec: Ravens have earned their 0-2 start, and there's plenty of blame to go around**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/arts/television/liza-colon-zayas-emmy-the-bear.ht
 **Brian Daboll's bungling of Graham Gano's injury emblematic of mismanaged Giants in his tenure**\
 `The benefit of the doubt from this regime's Year 1 success has faded. Daboll needs to figure out how to pull the team out of this spiral.`\
 https://nytimes.com/athletic/5769633/2024/09/15/new-york-giants-brian-daboll-graham-gano-injury-blunder/
-
-**Jeremy Allen White wins best actor in a comedy.**\
-`By Annie Aguiar`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/jeremy-allen-white-wins-best-actor-in-a-comedy
 
