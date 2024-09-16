@@ -1,3 +1,15 @@
+**Suspected Gunman Said He Was Willing to Fight and Die in Ukraine**\
+`Ryan Wesley Routh, 58, told The New York Times in 2023 that he had traveled to Ukraine and wanted to recruit Afghan soldiers to fight there.`\
+https://nytimes.com/2024/09/15/us/politics/trump-shooting-suspect-routh.html
+
+**Mexico’s Contentious Judiciary Overhaul Judiciary Becomes Law**\
+`Going forward, Mexican voters will now elect judges at every level, dramatically restructuring the third branch of government.`\
+https://nytimes.com/2024/09/15/world/americas/mexico-overhaul-judiciary-law.html
+
+**It's too early to worry about Lions offense, but this group feels off compared to a year ago**\
+`The Lions are hoping their Week 2 performance serves as a wake-up call.`\
+https://nytimes.com/athletic/5769477/2024/09/15/lions-loss-buccaneers-offense-jared-goff/
+
 **‘The Traitors’ ends RuPaul’s reign.**\
 `By Alexis Soloski`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-traitors-ends-rupauls-reign
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5769739/2024/09/15/cowboys-defense-unacceptable-los
 **Trump Shaken but Upbeat After Secret Service Stops Gunman**\
 `Former President Donald J. Trump was said to be shocked by what officials described as the second attempt on his life, but sought to reassure friends with humor.`\
 https://nytimes.com/2024/09/15/us/politics/trump-reaction-golf-shooting.html
-
-**In a Surprise, Liza Colón-Zayas Wins Her First Emmy**\
-`The “Bear” star was a surprise winner over Hannah Einbinder, for “Hacks,” and Meryl Streep, for “Only Murders in the Building.”`\
-https://nytimes.com/2024/09/15/arts/television/liza-colon-zayas-emmy-the-bear.html
-
-**Brian Daboll's bungling of Graham Gano's injury emblematic of mismanaged Giants in his tenure**\
-`The benefit of the doubt from this regime's Year 1 success has faded. Daboll needs to figure out how to pull the team out of this spiral.`\
-https://nytimes.com/athletic/5769633/2024/09/15/new-york-giants-brian-daboll-graham-gano-injury-blunder/
-
-**Jeremy Allen White wins best actor in a comedy.**\
-`By Annie Aguiar`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/jeremy-allen-white-wins-best-actor-in-a-comedy
 
