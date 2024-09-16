@@ -1,3 +1,7 @@
+**Second Close Call for Trump Brings More Scrutiny to Secret Service**\
+`The agency’s acting director, Ronald L. Rowe Jr., praised his agents’ actions but conceded that there was no sweep of the golf course a gunman staked out.`\
+https://nytimes.com/2024/09/16/us/politics/secret-service-scrutiny-trump.html
+
 **49ers' Deebo Samuel to miss 'a couple weeks' with calf injury**\
 `Samuel sustained a calf strain late in Sunday's 23-17 loss to the Vikings, coach Kyle Shanahan said Monday.`\
 https://nytimes.com/athletic/5772330/2024/09/16/deebo-samuel-49ers-calf-injury/
