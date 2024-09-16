@@ -1,3 +1,11 @@
+**Padres takeaways: Fernando Tatis Jr.’s left leg, Brandon Lockridge’s first impression**\
+`Why Tatis' leg injury probably isn't related to one he suffered as a child, and how Lockridge developed into a base-stealing threat.`\
+https://nytimes.com/athletic/5770447/2024/09/16/padres-fernando-tatis-jr-leg-brandon-lockridge/
+
+**The Athletic FC: How Arsenal cornered Spurs, Man City case begins, Brady vs Reynolds**\
+`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
+https://nytimes.com/athletic/5770705/2024/09/16/arsenal-tottenham-man-city-charges-brady-reynolds/
+
 **The Athletic FC: How Arsenal cornered Spurs, Man City case begins, Brady vs Reynolds**\
 `Today in TAFC: How Arsenal cornered Tottenham, Brady vs Reynolds in EFL and Manchester City's legal battle against PL begins.`\
 https://nytimes.com/athletic/5770705/2024/09/16/arsenal-tottenham-man-city-charges-brady-reynolds/
