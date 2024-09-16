@@ -1,3 +1,7 @@
+**Smith: Oscar Piastri’s F1 win in Baku was a world class, coming-of-age drive**\
+`Piastri's masterful Azerbaijan GP win proves he's more than ready to fight for a world championship.`\
+https://nytimes.com/athletic/5768870/2024/09/16/f1-oscar-piastri-mclaren-azerbaijan-gp/
+
 **Pressure Grows on Mayor Adams as Key Officials Leave Amid Investigations**\
 `Mayor Eric Adams and his inner circle are under investigation, and two top New York City officials have resigned. Can the mayor still turn things around?`\
 https://nytimes.com/2024/09/16/nyregion/eric-adams-scandal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/us/trump-assassination-attempt-suspect.html
 **Word of the Day: prescient**\
 `This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/16/learning/word-of-the-day-prescient.html
-
-**Shanghai Is Hit by Strongest Typhoon in Decades and Comes to a Standstill**\
-`The city canceled all flights at its two airports and closed major attractions, amid a three-day national holiday.`\
-https://nytimes.com/2024/09/16/world/asia/typhoon-bebinca-shanghai.html
 
