@@ -1,3 +1,7 @@
+**What’s Your Favorite NYT Cooking Recipe? We Want to Know.**\
+`To celebrated the app’s 10th anniversary, we shared a wide-ranging list of the best recipes. Tell us which ones you love most.`\
+https://nytimes.com/2024/09/16/dining/nyt-favorite-cooking-recipes-anniversary.html
+
 **Black Voters Matter Says It Will Spend $15 Million in Battleground States**\
 `The nonpartisan group will mount a voter mobilization effort that includes radio ads, billboards and on-the-ground canvassing operations, with a focus on early voting.`\
 https://nytimes.com/2024/09/16/us/politics/black-voters-matter-voting-ads.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/briefing/trump-shooting-titan-china.html
 **Healing or Hurtful? Police Training Featuring Convicted Officer Is Canceled.**\
 `Kim Potter, who fatally shot Daunte Wright during a traffic stop, had been scheduled to talk to officers in Washington State about the use of force.`\
 https://nytimes.com/2024/09/16/us/kimberly-potter-daunte-wright-police-training.html
-
-**Amazon Tells Corporate Workers to Be Back in the Office 5 Days a Week**\
-`The internet giant told employees on Monday that it expected them to return to the office full-time in January.`\
-https://nytimes.com/2024/09/16/technology/amazon-return-to-office.html
 
