@@ -1,3 +1,7 @@
+**First Day of a ‘New Life’ for a Boy With Sickle Cell**\
+`Kendric Cromer, 12, is among the first patients to be treated with gene therapy just approved by the F.D.A. that many other patients face obstacles to receiving.`\
+https://nytimes.com/2024/09/16/health/sickle-cell-gene-therapy-kendric-cromer.html
+
 **A ‘Buena Vista Social Club’ Musical Will Open on Broadway Next Year**\
 `The show, which had a previous run at Atlantic Theater Company, is scheduled to begin previews in February at the Gerald Schoenfeld Theater.`\
 https://nytimes.com/2024/09/16/theater/buena-vista-social-club-broadway.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768682/2024/09/16/vikings-sam-darnold-kevin-oconne
 **How could Manchester City be punished if they lose 115 charges case?**\
 `Exoneration? A settlement? A fine - or even relegation? We analyse the possible outcomes of City's fight with the Premier League`\
 https://nytimes.com/athletic/5770700/2024/09/16/manchester-city-punishment-115-premier-league/
-
-**2 N.Y.C. Fire Department Chiefs Arrested on Bribery Charges**\
-`The officials, who oversaw safety inspections, are accused of taking tens of thousands of dollars in connection with building projects.`\
-https://nytimes.com/2024/09/16/nyregion/nyc-fdny-bribery-arrest.html
 
