@@ -1,3 +1,7 @@
+**Trump Shaken but Upbeat After Secret Service Stops Gunman**\
+`Former President Donald J. Trump was said to be shocked by what officials described as the second attempt on his life, but sought to reassure friends with humor.`\
+https://nytimes.com/2024/09/15/us/politics/trump-reaction-golf-shooting.html
+
 **In a surprise, Liza Colón-Zayas wins her first Emmy.**\
 `Actre`\
 https://nytimes.com/2024/09/15/arts/television/in-a-surprise-liza-colon-zayas-wins-her-first-emmy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769336/2024/09/15/packers-win-colts-josh-jacobs-ma
 **It’s already clear the Canadiens should give Lane Hutson a chance to start in the NHL**\
 `Hutson's skill set already seems very obviously better suited for the NHL than the AHL.`\
 https://nytimes.com/athletic/5769704/2024/09/15/canadiens-lane-hutson-prospect/
-
-**Harrison Butker's game-winning field goal pushes Chiefs past Bengals**\
-`Kansas City moved to 2-0 on the season while the Bengals, who in many ways outplayed the Chiefs, dropped to 0-2 for the third straight year.`\
-https://nytimes.com/athletic/5768399/2024/09/15/chiefs-bengals-takeaways-result/
 
