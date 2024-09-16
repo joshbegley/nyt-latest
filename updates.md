@@ -1,3 +1,19 @@
+**‘Baby Reindeer’ wins best limited series.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/baby-reindeer-wins-best-limited-series
+
+**After confronting their problems, Browns rely on defense to secure win over Jaguars**\
+`Cleveland's defense was far and away the best unit on the field as it stymied Jacksonville's offense to even its record at 1-1. `\
+https://nytimes.com/athletic/5769851/2024/09/15/browns-win-jaguars-defense/
+
+**With Giants ownership impatient, Buster Posey took leading role in Matt Chapman talks: Sources**\
+`Giants' ownership identified extending Chapman as a priority. When negotiations stalled, Posey went to Chapman directly to come to a deal.`\
+https://nytimes.com/athletic/5770168/2024/09/15/sf-giants-matt-chapman-buster-posey-negotiations/
+
+**Rodrigue: 'Humbling' day for Rams featured too few answers, not enough physicality**\
+`The Rams didn't have answers for Kyler Murray and the Cardinals' offense, and star receiver Cooper Kupp exited with a lower leg injury.`\
+https://nytimes.com/athletic/5769768/2024/09/15/la-rams-humbling-loss-cardinals-whats-next/
+
 **Bob Newhart, the Everyman comedian who died this year, is honored.**\
 `By Matt Stevens`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/bob-newhart-the-everyman-comedian-who-died-this-year-is-honored
