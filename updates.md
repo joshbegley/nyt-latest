@@ -1,3 +1,7 @@
+**Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
+`Let us know what's on your mind as the Broncos prepare to embark on a two-game East Coast road trip.`\
+https://nytimes.com/athletic/5771315/2024/09/16/broncos-mailbag-questions-week-3/
+
 **What We Know About the Deadly Floods in Central Europe**\
 `At least 17 people have died and thousands have been displaced. “Relief is not expected to come before tomorrow, and more likely, the day after,” an official in Austria said.`\
 https://nytimes.com/2024/09/16/world/europe/deadly-europe-floods-romania-poland-austria.html
