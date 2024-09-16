@@ -1,3 +1,11 @@
+**This Week in Mets: Is this Pete Alonso's last homestand in Queens?**\
+`Brandon Nimmo shares his insight on playing through uncertainty; he knows what Alonso might be feeling as free agency looms.`\
+https://nytimes.com/athletic/5769227/2024/09/16/mets-pete-alonso-free-agent-homestand/
+
+**Dehner Jr.: Peel back Bengals' emotion and a far more critical reality emerged vs. Chiefs**\
+`Sunday's defeat was a bitter pill for Cincinnati to swallow, but the team was back to looking like a contender in a tight affair.`\
+https://nytimes.com/athletic/5770299/2024/09/16/bengals-chiefs-loss-emotion-0-2-start/
+
 **Jones: Despite similar timelines, Texans and Bears seem light-years apart**\
 `Sunday night’s performance offered glimpses of the juggernaut that the Texans can become as early as this year.`\
 https://nytimes.com/athletic/5770580/2024/09/16/jones-texans-and-bears/
