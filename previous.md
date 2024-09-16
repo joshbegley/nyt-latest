@@ -1,3 +1,7 @@
+**The Champions League returns: Your guide to its new format, storylines, tactics and how to watch**\
+`The Champions League is back, but not as we know it - here's our guide to the new format and what to look out for in gameweek one`\
+https://nytimes.com/athletic/5757730/2024/09/16/champions-league-preview-how-to-watch/
+
 **Do You Know Where in the World These Novels Are Set?**\
 `Try this short literary geography quiz on books with settings around the globe.`\
 https://nytimes.com/interactive/2024/09/16/books/review/world-cities-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/world/europe/georgia-uproar-2008-war-russia.html
 **Bellingham & Tchouameni fit to return for Madrid in UCL**\
 `Carlo Ancelotti says Jude Bellingham is available for Real Madrid&#8217;s Champions League opener against Stuttgart on Tuesday following a spell out with a muscular injury.`\
 https://nytimes.com/athletic/5770848/2024/09/16/bellingham-tchouameni-real-madrid-injuries/
-
-**'Second to none': How did Macklin Celebrini's Sharks rookie-game teammates assess him?**\
-`Celebrini played in only one game in the Rookie Faceoff tournament, but the Sharks saw enough.`\
-https://nytimes.com/athletic/5769587/2024/09/16/macklin-celebrini-sharks-rookie/
 

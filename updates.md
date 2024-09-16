@@ -1,3 +1,7 @@
+**The Champions League returns: Your guide to its new format, storylines, tactics and how to watch**\
+`The Champions League is back, but not as we know it - here's our guide to the new format and what to look out for in gameweek one`\
+https://nytimes.com/athletic/5757730/2024/09/16/champions-league-preview-how-to-watch/
+
 **Do You Know Where in the World These Novels Are Set?**\
 `Try this short literary geography quiz on books with settings around the globe.`\
 https://nytimes.com/interactive/2024/09/16/books/review/world-cities-quiz.html
