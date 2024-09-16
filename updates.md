@@ -1,3 +1,11 @@
+**Dehner Jr.: Peel back Bengals' emotion and a far more critical reality emerged vs. Chiefs**\
+`Sunday's defeat was a bitter pill for Cincinnati to swallow, but the team was back to looking like a contender in a tight affair.`\
+https://nytimes.com/athletic/5770299/2024/09/15/bengals-chiefs-loss-emotion-0-2-start/
+
+**‘Shogun’ Wins Best Drama, Capping a Big Night**\
+`The win capped a successful evening for the mostly subtitled FX series, which picked up several major Emmys on Sunday.`\
+https://nytimes.com/2024/09/15/arts/television/shogun-emmy-best-drama.html
+
 **In a Surprise Win, ‘Hacks’ Earns Top Comedy Award**\
 `The Max series about two female comedians from different generations has been nominated for best comedy series twice before, but this is its first win.`\
 https://nytimes.com/2024/09/15/arts/television/hacks-emmy-best-comedy.html
