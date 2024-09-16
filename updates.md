@@ -1,3 +1,19 @@
+**Barcelona's Olmo to miss up to five weeks with hamstring injury**\
+`Barcelona midfielder Dani Olmo is set to miss between four and five weeks with a hamstring injury, the club have confirmed.`\
+https://nytimes.com/athletic/5770702/2024/09/16/dani-olmo-injury-barcelona/
+
+**The most 'college football' things that happened in Week 3**\
+`Work shirts, QBs passing to himself, interceptions and incompletions ... relive some of the zaniest moments of Week 3.`\
+https://nytimes.com/athletic/5769016/2024/09/16/college-football-week-3-top-moments/
+
+**Here’s the latest on the investigation.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/09/16/us/trump-shooting-news/heres-the-latest-on-the-investigation
+
+**Live Updates: Secret Service Faces Scrutiny After Trump Is Apparently Targeted Again**\
+`A suspect is in custody after the incident at one of Donald J. Trump’s Florida golf courses on Sunday. Mr. Trump was unhurt, but the episode raised new questions for the Secret Service.`\
+https://nytimes.com/live/2024/09/16/us/trump-shooting-news
+
 **Top Biden Aide to Visit Israel Amid Fears of Escalation With Hezbollah**\
 `The visit by the adviser, Amos Hochstein, comes as cross-border clashes between Israel’s military and the powerful Lebanese militia have intensified.`\
 https://nytimes.com/2024/09/16/world/middleeast/israel-hezbollah-lebanon-gaza.html
