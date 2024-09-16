@@ -1,3 +1,11 @@
+**Suspect’s Self-Published Book Said Readers Were ‘Free to Assassinate Trump’**\
+`The book, “Ukraine’s Unwinnable War,” assails the former president over Iran, but saves its most vitriolic language for President Vladimir V. Putin of Russia.`\
+https://nytimes.com/2024/09/16/us/politics/trump-assassination-suspect-book.html
+
+**Demonizing Immigrants Could Ruin the Revival of Some Heartland Cities**\
+`Immigration to small cities creates jobs for everyone.`\
+https://nytimes.com/2024/09/16/opinion/springfield-immigration.html
+
 **Jane’s Addiction to Cancel Tour After Onstage Fight**\
 `In a social media post, the rock band said it was halting its reunion tour after the group’s singer, Perry Farrell, hit  the guitarist at a Boston show.`\
 https://nytimes.com/2024/09/16/arts/music/janes-addiction-tour-canceled.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/16/arts/design/wendy-halsted-beard-fraud-sentencing.
 **YouTube CEO Says Google Faces Plenty of Ad Tech Competition**\
 `Kicking off the second week of an antitrust trial, Neal Mohan testified that Google did what was best for consumers and the ad industry.`\
 https://nytimes.com/2024/09/16/technology/google-antitrust-youtube-ceo.html
-
-**Judges Show Some Skepticism of TikTok’s Fight Against Potential U.S. Ban**\
-`TikTok on Monday pushed back against a law that would force the popular video app to sell to a non-Chinese owner or be banned, in what is shaping up to be a landmark case.`\
-https://nytimes.com/2024/09/16/technology/tiktok-us-ban-case.html
-
-**UFO 50 Is an Ingeniously Retro Advent Calendar**\
-`This compilation from a fictional ’80s video game company is constantly clever. By comparison, Atari’s latest resurrection effort, Yars Rising, is frustratingly banal.`\
-https://nytimes.com/2024/09/16/arts/ufo-50-yars-rising-review.html
 
