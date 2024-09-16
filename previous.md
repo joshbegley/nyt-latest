@@ -1,3 +1,23 @@
+**Dodgers break a rotten spell with a meeting and a massive ninth inning**\
+`Mookie Betts on the manager's message for the skidding Dodgers: “Keep fighting and things will turn eventually.”`\
+https://nytimes.com/athletic/5770352/2024/09/16/dodgers-dave-roberts-braves/
+
+**Lepers, rat-stabbers and cheese heads: The origins of football team nicknames from around the world**\
+`In the final edition of our series examining football teams' nicknames, Tim Spiers goes global...`\
+https://nytimes.com/athletic/5755424/2024/09/16/world-football-soccer-nicknames/
+
+**Meet the new managers hoping to make an impact in the WSL**\
+`Chelsea have a high-profile new manager but changes at Aston Villa, Brighton and Leicester could also have a big impact this season`\
+https://nytimes.com/athletic/5767934/2024/09/16/wsl-managers-new-season/
+
+**Fantasy football Week 2 takeaways: Kyler Murray is perfect, Braelon Allen looks like a steal and more**\
+`Michael Salfino shares his takeaways from Week 2, including his belief in the staying power of the Kyler Murray-led Arizona offense. `\
+https://nytimes.com/athletic/5770162/2024/09/16/fantasy-football-week-2-takeaways-kyler-murray-braelon-allen/
+
+**The price of success: How last season’s overperformers have rebuilt for the Champions League**\
+`How many of the success stories of last season saw their squads plundered by big-name rivals over the summer`\
+https://nytimes.com/athletic/5758252/2024/09/16/the-price-of-success-how-last-seasons-overperformers-have-had-to-rebuild-for-the-champions-league/
+
 **Why I joined - by The Athletic's new women's football writer Megan Feringa**\
 `Megan Feringa is The Athletic's new women's football writer - this is why she joined and what she hopes to achieve`\
 https://nytimes.com/athletic/5766789/2024/09/16/megan-feringa-why-i-joined/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5770011/2024/09/16/texans-bears-takeaways-result/
 **Quote of the Day: It’s Stacking Up to Be Quite A Sports Memorabilia Find**\
 `Quotation of the Day for Monday, September 16, 2024.`\
 https://nytimes.com/2024/09/16/pageoneplus/quote-of-the-day-its-stacking-up-to-be-quite-a-sports-memorabilia-find.html
-
-**A New York Times Reporter Revisits Earlier Interview With Suspect at Trump Golf Course**\
-`Ryan Wesley Routh wanted to fly Afghan veterans to fight alongside Ukraine when we met, an endeavor he seemed ill prepared to orchestrate.`\
-https://nytimes.com/2024/09/15/us/politics/trump-routh-ukraine-interview.html
-
-**Dehner Jr.: Peel back Bengals' emotion and a far more critical reality emerged vs. Chiefs**\
-`Sunday's defeat was a bitter pill for Cincinnati to swallow, but the team was back to looking like a contender in a tight affair.`\
-https://nytimes.com/athletic/5770299/2024/09/15/bengals-chiefs-loss-emotion-0-2-start/
-
-**Marvin Harrison Jr., after underwhelming debut, breaks out for Cardinals in Week 2**\
-`Harrison is a serious person who never strays from routine. Even so, his head coach admitted: "It was good to see him smile."`\
-https://nytimes.com/athletic/5770076/2024/09/15/marvin-harrison-jr-arizona-cardinals-touchdown-breakout/
-
-**In a Surprise Win, ‘Hacks’ Earns Top Comedy Award**\
-`The Max series about two female comedians from different generations has been nominated for best comedy series twice before, but this is its first win.`\
-https://nytimes.com/2024/09/15/arts/television/hacks-emmy-best-comedy.html
-
-**‘Shogun’ Wins Best Drama, Capping a Big Night**\
-`The win capped a successful evening for the mostly subtitled FX series, which picked up several major Emmys on Sunday.`\
-https://nytimes.com/2024/09/15/arts/television/shogun-emmy-best-drama.html
 
