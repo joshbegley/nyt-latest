@@ -1,3 +1,7 @@
+**Knopf, Alfred A, Inc**\
+`News about Knopf, Alfred A, Inc. Commentary and archival information about Knopf, Alfred A, Inc from The New York Times.`\
+https://nytimes.com/topic/knopf-alfred-a-inc
+
 **Theater for a New Audience**\
 `News about Theater for a New Audience. Commentary and archival information about Theater for a New Audience from The New York Times.`\
 https://nytimes.com/topic/theater-for-a-new-audience
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5771496/2024/09/16/nfl-week-3-odds-spreads-schedule
 **Suspect in Attempt on Trump’s Life Spent Nearly 12 Hours Near Golf Course, Phone Records Show**\
 `Ryan W. Routh’s cellphone was near the former president’s golf club in Florida beginning at 1:59 a.m. on Sunday, according to a federal criminal complaint.`\
 https://nytimes.com/2024/09/16/us/politics/trump-golf-course-shooting-suspect-phone-records.html
-
-**Texas QB Quinn Ewers questionable for ULM game with oblique injury**\
-`Ewers had been playing some of the best football of his career before the injury.`\
-https://nytimes.com/athletic/5771556/2024/09/16/quinn-ewers-injury-arch-manning-texas/
 

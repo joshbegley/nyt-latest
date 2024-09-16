@@ -1,3 +1,7 @@
+**Knopf, Alfred A, Inc**\
+`News about Knopf, Alfred A, Inc. Commentary and archival information about Knopf, Alfred A, Inc from The New York Times.`\
+https://nytimes.com/topic/knopf-alfred-a-inc
+
 **Theater for a New Audience**\
 `News about Theater for a New Audience. Commentary and archival information about Theater for a New Audience from The New York Times.`\
 https://nytimes.com/topic/theater-for-a-new-audience
