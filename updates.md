@@ -1,3 +1,7 @@
+**Anna Sawai wins best actress in a drama for ‘Shogun.’**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/anna-sawai-wins-best-actress-in-a-drama-for-shogun
+
 **Hiroyuki Sanada wins best actor in a drama.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/hiroyuki-sanada-wins-best-actor-in-a-drama
