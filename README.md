@@ -1,3 +1,7 @@
+**Marvin Harrison Jr., after underwhelming debut, breaks out for Cardinals in Week 2**\
+`Marvin Harrison Jr. is a serious person who never strays from routine. Even so, his head coach admitted: "It was good to see him smile."`\
+https://nytimes.com/athletic/5770076/2024/09/15/marvin-harrison-jr-arizona-cardinals-touchdown-breakout/
+
 **In a surprise win, ‘Hacks’ earns top comedy award.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/hacks-wins-best-comedy-series
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/15/arts/emmy-awards/bob-newhart-the-everyman-co
 **With Giants ownership impatient, Buster Posey took leading role in Matt Chapman talks: Sources**\
 `Giants' ownership identified extending Chapman as a priority. When negotiations stalled, Posey went to Chapman directly to come to a deal.`\
 https://nytimes.com/athletic/5770168/2024/09/15/sf-giants-matt-chapman-buster-posey-negotiations/
-
-**Rodrigue: 'Humbling' day for Rams featured too few answers, not enough physicality**\
-`The Rams didn't have answers for Kyler Murray and the Cardinals' offense, and star receiver Cooper Kupp exited with a lower leg injury.`\
-https://nytimes.com/athletic/5769768/2024/09/15/la-rams-humbling-loss-cardinals-whats-next/
 
