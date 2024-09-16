@@ -22,8 +22,8 @@ https://nytimes.com/2024/09/16/nyregion/american-transit-insurance-uber-lyft-nyc
 `The 2022 original retains its chilling power thanks to a worldview that the new version seems unwilling to embrace.`\
 https://nytimes.com/2024/09/16/movies/speak-no-evil-james-mcavoy.html
 
-**Lamine Yamal's art and graft sparks Barcelona's most impressive victory yet**\
-`The 17-year-old winger was the key figure in another impressive Barcelona victory this early season`\
+**Lamine Yamal's art and graft sparks Barcelona's most impressive win of 2024-25 yet**\
+`The 17-year-old winger was the key figure in another impressive Barcelona early-season victory`\
 https://nytimes.com/athletic/5770535/2024/09/16/barcelona-lamine-yamal-la-liga-girona/
 
 **What We Know About the Apparent Assassination Attempt Against Trump**\
