@@ -1,3 +1,23 @@
+**Brian Daboll's bungling of Graham Gano's injury emblematic of mismanaged Giants in his tenure**\
+`The benefit of the doubt from this regime's Year 1 success has faded. Daboll needs to figure out how to pull the team out of this spiral.`\
+https://nytimes.com/athletic/5769633/2024/09/15/new-york-giants-brian-daboll-graham-gano-injury-blunder/
+
+**Jeremy Allen White wins best actor in a comedy.**\
+`By Annie Aguiar`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/jeremy-allen-white-wins-best-actor-in-a-comedy
+
+**Chargers' evolution under Jim Harbaugh shines in blowout of Panthers**\
+`The Chargers are 2-0 for the first time since 2012 after throttling the Panthers 26-3 behind another big J.K. Dobbins performance.`\
+https://nytimes.com/athletic/5769748/2024/09/15/chargers-panthers-blowout-jim-harbaugh-running-game/
+
+**Tommy Cash, Country Singer and Younger Brother of Johnny, Dies at 84**\
+`While his career never approached the heights of his famous older brother’s, Tommy Cash drew inspiration from him and made his own name in country music.`\
+https://nytimes.com/2024/09/15/arts/tommy-cash-dead.html
+
+**Eugene and Dan Levy open the Emmys with playful jokes.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/eugene-daniel-levy-emmys-opening-monologue
+
 **Seahawks find their closer mentality just in time, escape New England with OT win**\
 `Two weeks into the season, the Seahawks are the only undefeated team left in the NFC West. `\
 https://nytimes.com/athletic/5769624/2024/09/15/seahawks-patriots-week-2-geno-smith/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5768399/2024/09/15/chiefs-bengals-takeaways-result/
 **Second Assassination Attempt Raises New Questions About Secret Service**\
 `That a would-be killer got close to former President Trump for the second time in about two months intensified questions about the agency’s broader protective capabilities.`\
 https://nytimes.com/2024/09/15/us/politics/secret-service-trump-shooting.html
-
-**Four takeaways from Steelers-Broncos as Pittsburgh improves to 2-0**\
-`Pittsburgh's defense stymied Denver rookie Bo Nix, sacking him twice and intercepting him twice, including on the game's final play.`\
-https://nytimes.com/athletic/5769474/2024/09/15/steelers-broncos-takeways-result/
-
-**Trump’s golfing has been a security challenge for the Secret Service.**\
-`By Alan Blinder`\
-https://nytimes.com/live/2024/09/15/us/harris-trump-election/trumps-golfing-has-been-a-security-challenge-for-the-secret-service
-
-**Don’t consider ‘The Bear’ a shoo-in.**\
-`By John Koblin`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/dont-consider-the-bear-a-shoo-in
-
-**Nothing easy for Brock Purdy as Brandon Aiyuk, 49ers offense try to find their feet**\
-`The magic Aiyuk and Purdy had to open last season is in short supply right now for the 49ers.`\
-https://nytimes.com/athletic/5769572/2024/09/15/49ers-brock-purdy-brandon-aiyuk-vikings-loss/
-
-**Panthers say they don't have a 'Bryce Young issue': But is it time to make a change?**\
-`Dave Canales says Young is the Panthers' quarterback as they drop to 0-2 and things look even worse than they did a season ago.`\
-https://nytimes.com/athletic/5769554/2024/09/15/carolina-panthers-bryce-young-lose-again-whats-next/
 
