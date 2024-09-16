@@ -1,3 +1,11 @@
+**Jean Smart wins a third Emmy for ‘Hacks.’**\
+`By Alexis Soloski`\
+https://nytimes.com/2024/09/15/arts/television/jean-smart-emmy-hacks.html
+
+**Chargers' evolution under Jim Harbaugh shines in blowout of Panthers**\
+`The Chargers are 2-0 for the first time since 2012 after throttling the Panthers 26-3 behind another big J.K. Dobbins performance.`\
+https://nytimes.com/athletic/5769748/2024/09/15/chargers-panthers-blowout-jim-harbaugh-running-game/
+
 **‘The Traitors’ ends RuPaul’s reign.**\
 `By Alexis Soloski`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-traitors-ends-rupauls-reign
