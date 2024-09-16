@@ -1,3 +1,19 @@
+**Cowboys defense has no excuse for 'unacceptable' no-show performance against Saints**\
+`A week after the defense dominated in Cleveland, that same defense was picked apart for 44 points and 432 total yards in the home opener.`\
+https://nytimes.com/athletic/5769739/2024/09/15/cowboys-defense-unacceptable-loss-saints/
+
+**Trump Shaken but Upbeat After Secret Service Stops Gunman**\
+`Former President Donald J. Trump was said to be shocked by what officials described as the second attempt on his life, but sought to reassure friends with humor.`\
+https://nytimes.com/2024/09/15/us/politics/trump-reaction-golf-shooting.html
+
+**In a Surprise, Liza Colón-Zayas Wins Her First Emmy**\
+`The “Bear” star was a surprise winner over Hannah Einbinder, for “Hacks,” and Meryl Streep, for “Only Murders in the Building.”`\
+https://nytimes.com/2024/09/15/arts/television/liza-colon-zayas-emmy-the-bear.html
+
+**Eugene and Dan Levy Open the Emmys With Playful Jokes**\
+`The father-and-son acting duo share a self-deprecating and inoffensive rapport — a fitting mix for prime-time television.`\
+https://nytimes.com/2024/09/15/arts/television/eugene-daniel-levy-emmys-opening-monologue.html
+
 **Key takeaways from Chiefs-Bengals: KC's clutch defense, Cincy's early season blues**\
 `Kansas City moved to 2-0 on the season while the Bengals, who in many ways outplayed the Chiefs, dropped to 0-2 for the third straight year.`\
 https://nytimes.com/athletic/5768399/2024/09/15/chiefs-bengals-takeaways-result/
