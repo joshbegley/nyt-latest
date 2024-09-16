@@ -1,3 +1,7 @@
+**49ers minutia minute: Deebo Samuel's injury; rookie DBs see action**\
+`A development from Sunday's game: Defensive end Yetur Gross-Matos seemed to eat into Leonard Floyd's snaps as the game went on.`\
+https://nytimes.com/athletic/5771925/2024/09/16/49ers-snap-counts-deebo-samuel-injury/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `This week brings Arch Manning&#8217;s (likely) first career start, Oklahoma&#8217;s first SEC game and USC&#8211;Michigan.
 What&#8217;s on your mind? Leave your questions here.`\
