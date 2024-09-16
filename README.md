@@ -1,3 +1,7 @@
+**Monday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
+https://nytimes.com/athletic/5771123/2024/09/16/mlb-odds-best-bets-projections-september-16/
+
 **Submit your questions for Jesse Temple's Wisconsin mailbag**\
 `<p>Wisconsin enters its idle week coming off a 42-10 loss to Alabama.`\
 https://nytimes.com/athletic/5771126/2024/09/16/submit-your-questions-for-jesse-temples-wisconsin-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/us/beaches-closed-maryland-virginia-needles.html
 **The Champions League returns: Your guide to its new format, storylines, tactics and how to watch**\
 `The Champions League is back, but not as we know it - here's our guide to the new format and what to look out for in gameweek one`\
 https://nytimes.com/athletic/5757730/2024/09/16/champions-league-preview-how-to-watch/
-
-**Do You Know Where in the World These Novels Are Set?**\
-`Try this short literary geography quiz on books with settings around the globe.`\
-https://nytimes.com/interactive/2024/09/16/books/review/world-cities-quiz.html
 
