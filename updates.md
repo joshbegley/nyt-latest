@@ -1,3 +1,15 @@
+**Can Kirk Cousins, Falcons turn things around in Monday night spotlight? 5 factors**\
+`The Falcons will play on "Monday Night Football" for the first time since 2020 when they visit the Eagles in Philadelphia.`\
+https://nytimes.com/athletic/5765490/2024/09/16/kirk-cousins-falcons-eagles-monday-night/
+
+**Caleb Williams has his 'Welcome to the Bears' moment in Houston**\
+`This Bears season was supposed to be different, but the problems — especially on offense — are all too familiar.`\
+https://nytimes.com/athletic/5770517/2024/09/16/caleb-williams-bears-texans/
+
+**Final thoughts on Michigan's quarterbacks and offensive personnel heading into USC game**\
+`Dominick Giudice and Greg Crippen saw action at center in the Arkansas State win. Will the Wolverines settle on one?`\
+https://nytimes.com/athletic/5768777/2024/09/16/michigan-quarterbacks-davis-warren-alex-orji/
+
 **How the Chiefs defense saved the day with a stellar fourth-quarter performance**\
 `Needing to support the offense, Steve Spagnuolo’s unit scored a touchdown and held the Bengals to three points in the fourth quarter.`\
 https://nytimes.com/athletic/5770360/2024/09/16/chiefs-defense-bengals-win/
