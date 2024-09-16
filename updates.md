@@ -1,3 +1,7 @@
+**Tito Jackson, Singer and Guitarist for the Jackson 5, Dies at 70**\
+`Mr. Jackson, alongside Michael and his other brothers, provided a soundtrack for a generation of young listeners in the 1970s.`\
+https://nytimes.com/2024/09/16/us/tito-jackson-dead.html
+
 **Twins takeaways: 'No Country' for sinking wild-card hopefuls and inherited problems**\
 `Despite being one of the worst teams over the past month, the Twins remain in playoff position. But can they can fix a season-long problem?`\
 https://nytimes.com/athletic/5768084/2024/09/16/twins-takeaways-wild-card-race-inherited-runners/

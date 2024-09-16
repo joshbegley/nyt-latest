@@ -1,3 +1,7 @@
+**Tito Jackson, Singer and Guitarist for the Jackson 5, Dies at 70**\
+`Mr. Jackson, alongside Michael and his other brothers, provided a soundtrack for a generation of young listeners in the 1970s.`\
+https://nytimes.com/2024/09/16/us/tito-jackson-dead.html
+
 **Twins takeaways: 'No Country' for sinking wild-card hopefuls and inherited problems**\
 `Despite being one of the worst teams over the past month, the Twins remain in playoff position. But can they can fix a season-long problem?`\
 https://nytimes.com/athletic/5768084/2024/09/16/twins-takeaways-wild-card-race-inherited-runners/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769610/2024/09/16/chicago-cubs-playoff-odds/
 **What I'm seeing from Blackhawks prospects: AJ Spellacy impresses with speed at showcase**\
 `Which Blackhawks prospects stood out most at the two-day showcase?`\
 https://nytimes.com/athletic/5768091/2024/09/16/blackhawks-prospects-showcase-aj-spellacy/
-
-**Three Undecided Voters, Two Swing States, One Big Decision**\
-`How three undecided voters saw the presidential debate.`\
-https://nytimes.com/2024/09/16/podcasts/the-daily/election-undecided-voters.html
 
