@@ -1,3 +1,11 @@
+**How Notre Dame got the trains running on time again: Final thoughts on Purdue**\
+`Notre Dame bounced back in a big way against Purdue. How did that happen? And how can the Irish keep it going?`\
+https://nytimes.com/athletic/5770761/2024/09/16/notre-dame-football-purdue-riley-leonard/
+
+**Are Voters Feeling Better About the Economy?**\
+`After another tumultuous weekend in the presidential campaign, Americans are still largely focused on their finances, new surveys show. That could give an edge to Vice President Kamala Harris.`\
+https://nytimes.com/2024/09/16/business/dealbook/voters-harris-trump-economy.html
+
 **Padres takeaways: Fernando Tatis Jr.’s left leg, Brandon Lockridge’s first impression**\
 `Why Tatis' leg injury probably isn't related to one he suffered as a child, and how Lockridge developed into a base-stealing threat.`\
 https://nytimes.com/athletic/5770447/2024/09/16/padres-fernando-tatis-jr-leg-brandon-lockridge/
