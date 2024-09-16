@@ -1,3 +1,7 @@
+**Raiders and Gardner Minshew learn good things happen when Davante Adams gets the ball**\
+`Antonio Pierce met with Adams at the team hotel Saturday night with a simple message: We're going to get you the ball. A lot.`\
+https://nytimes.com/athletic/5769674/2024/09/15/raiders-davante-adams-ravens-win-gardner-minshew/
+
 **Officer and 3 Others Injured by Police Gunfire in Subway Station Clash**\
 `When officers shot a man wielding a knife on a platform in Brooklyn, an officer and two bystanders were also hit, the police said. One bystander was in critical condition.`\
 https://nytimes.com/2024/09/15/nyregion/officer-shot-brooklyn-subway.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769294/2024/09/15/austin-seibert-commanders-giants
 **New-look Brian Flores defense perplexes 49ers, alters our expectations for Vikings**\
 `The Vikings surprised the 49ers and might be more competitive than many experts thought they'd be this season. The defense is to thank.`\
 https://nytimes.com/athletic/5769730/2024/09/15/vikings-49ers-brian-flores-defense-analysis/
-
-**Jean Smart Wins a Third Emmy for ‘Hacks’**\
-`The actress won for her starring role in the Max series “Hacks,” a sitcom set in the rarefied, ruthless world of stand-up comedy. It is her sixth Emmy overall.`\
-https://nytimes.com/2024/09/15/arts/television/jean-smart-emmy-hacks.html
 
