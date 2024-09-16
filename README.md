@@ -1,3 +1,7 @@
+**Suspect Never Took a Shot at Trump but Hid Undetected for 12 Hours**\
+`Ryan Wesley Routh was charged with two federal gun crimes a day after Secret Service agents fired on him as he pointed a rifle toward the golf course where former President Donald Trump was playing.`\
+https://nytimes.com/2024/09/16/us/politics/investigation-trump-assassination-attempt.html
+
 **Second Close Call for Trump Brings More Scrutiny to Secret Service**\
 `The agency’s acting director, Ronald L. Rowe Jr., praised his agents’ actions but conceded that there was no sweep of the golf course a gunman staked out.`\
 https://nytimes.com/2024/09/16/us/politics/secret-service-scrutiny-trump.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5772351/2024/09/16/submit-a-question-for-stewart-ma
 **49ers minutia minute: Deebo Samuel's injury; rookie DBs see action**\
 `A development from Sunday's game: Defensive end Yetur Gross-Matos seemed to eat into Leonard Floyd's snaps as the game went on.`\
 https://nytimes.com/athletic/5771925/2024/09/16/49ers-snap-counts-deebo-samuel-injury/
-
-**Emmy Viewership Rises to 6.9 Million Viewers**\
-`The uptick puts the Emmys among the award shows, such as the Oscars, that have had audience gains in the past few years.`\
-https://nytimes.com/2024/09/16/business/media/emmy-viewership-nielsen.html
 
