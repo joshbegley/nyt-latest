@@ -1,3 +1,7 @@
+**What We Know About the Apparent Assassination Attempt Against Trump**\
+`Secret Service agents fired on a man who had a rifle and was hiding in bushes around a Trump golf club in Florida, officials said. Former President Donald J. Trump was unhurt.`\
+https://nytimes.com/2024/09/16/us/trump-assassination-attempt-suspect.html
+
 **Word of the Day: prescient**\
 `This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/16/learning/word-of-the-day-prescient.html
