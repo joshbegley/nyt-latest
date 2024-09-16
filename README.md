@@ -1,3 +1,7 @@
+**Jane’s Addiction to Cancel Tour After Onstage Fight**\
+`In a social media post, the rock band said it was halting its reunion tour after the group’s singer, Perry Farrell, hit  the guitarist at a Boston show.`\
+https://nytimes.com/2024/09/16/arts/music/janes-addiction-tour-canceled.html
+
 **U.S. Awards Intel $3 Billion for Military Supply Program**\
 `The Biden administration announced an award for the struggling chipmaker as part of an effort to establish secure supply sources for the Pentagon.`\
 https://nytimes.com/2024/09/16/us/politics/intel-chips-semiconductor-grant.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/technology/tiktok-us-ban-case.html
 **UFO 50 Is an Ingeniously Retro Advent Calendar**\
 `This compilation from a fictional ’80s video game company is constantly clever. By comparison, Atari’s latest resurrection effort, Yars Rising, is frustratingly banal.`\
 https://nytimes.com/2024/09/16/arts/ufo-50-yars-rising-review.html
-
-**Academic Plagiarism Complaint Against the Author of ‘White Fragility’ Dismissed**\
-`In a letter, the University of Washington stated that the evidence presented in the confidential complaint failed to meet the institution’s criteria for plagiarism.`\
-https://nytimes.com/2024/09/16/books/robin-diangelo-plagiarism-charge-dismissed.html
 
