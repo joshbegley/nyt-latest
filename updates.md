@@ -1,3 +1,7 @@
+**Lamine Yamal's art and graft sparks Barcelona's most impressive win of 2024-25 yet**\
+`The 17-year-old winger was the key figure in another impressive Barcelona early-season victory`\
+https://nytimes.com/athletic/5770535/2024/09/16/barcelona-lamine-yamal-la-liga-girona/
+
 **Pressure Grows on Mayor Adams as Key Officials Leave Amid Investigations**\
 `Mayor Eric Adams and his inner circle are under investigation, and two top New York City officials have resigned. Can the mayor still turn things around?`\
 https://nytimes.com/2024/09/16/nyregion/eric-adams-scandal.html
