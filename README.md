@@ -1,3 +1,15 @@
+**How Does Pregnancy Change the Brain? Clues Are Emerging.**\
+`As hormones surge, some brain areas shrink in what scientists say may be a fine-tuning that helps mothers bond with and care for their babies.`\
+https://nytimes.com/2024/09/16/health/pregnancy-brain-changes.html
+
+**‘Absolutely the Juiciest and Crispiest Chicken Breasts I Have Made’**\
+`Team Chicken Breast, this Parmesan-crusted chicken is for you.`\
+https://nytimes.com/2024/09/16/dining/crispy-chicken-breast-recipe.html
+
+**What We Know About the Deadly Floods in Central Europe**\
+`At least 16 people have died and thousands have been displaced. “Relief is not expected to come before tomorrow, and more likely, the day after,” an official in Austria said.`\
+https://nytimes.com/2024/09/16/world/europe/deadly-europe-floods-romania-poland-austria.html
+
 **Don't sweat Travis Kelce's slow start. But Sam LaPorta's ...**\
 `Travis Kelce may be struggling to produce fantasy points, but he's showing some encouraging statistical signs.`\
 https://nytimes.com/athletic/5770942/2024/09/16/fantasy-football-week-2-recap-dont-sweat-travis-kelces-slow-start/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5771097/2024/09/16/isiah-pacheco-injury-fibula-chie
 **Monday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
 https://nytimes.com/athletic/5771123/2024/09/16/mlb-odds-best-bets-projections-september-16/
-
-**Submit your questions for Jesse Temple's Wisconsin mailbag**\
-`<p>Wisconsin enters its idle week coming off a 42-10 loss to Alabama.`\
-https://nytimes.com/athletic/5771126/2024/09/16/submit-your-questions-for-jesse-temples-wisconsin-mailbag/
-
-**Mixon criticizes NFL for not enforcing hip-drop tackle rule**\
-`Last March, NFL owners, with unanimous approval, voted at the annual league meetings to ban the swivel hip-drop tackle.`\
-https://nytimes.com/athletic/5770957/2024/09/16/joe-mixon-nfl-hip-drop-tackle/
-
-**Love and Friendship, Day by Day **\
-`How seven people are keeping meaningful relationships alive in a digital world.`\
-https://nytimes.com/paidpost/snapchat/love-and-friendship-day-by-day.html
 
