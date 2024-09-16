@@ -1,3 +1,7 @@
+**2 N.Y.C. Fire Department Chiefs Arrested on Bribery Charges**\
+`The officials, who oversaw safety inspections, are accused of taking tens of thousands of dollars in connection with building projects.`\
+https://nytimes.com/2024/09/16/nyregion/nyc-fdny-bribery-arrest.html
+
 **Warnings Issued as Storm Looms Near the Carolinas**\
 `The storm system could become the next named storm, Helene, on Monday. Forecasters are warning of floods and storm surge along the Carolina coasts hit hard by Debby in August.`\
 https://nytimes.com/2024/09/16/weather/storm-warnings-north-south-carolina.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769443/2024/09/16/fantasy-premier-league-gw4-joao-
 **Gary Shaw: Former Aston Villa striker dies aged 63**\
 `Gary Shaw, the former Aston Villa striker, has died at the age of 63.`\
 https://nytimes.com/athletic/5768804/2024/09/16/gary-shaw-aston-villa/
-
-**Coe, Coventry lead shortlist to be next IOC president**\
-`The International Olympic Committee (IOC) has confirmed a seven-person shortlist of candidates to succeed Thomas Bach as president.`\
-https://nytimes.com/athletic/5770878/2024/09/16/ioc-president-shortlist-next/
 
