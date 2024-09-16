@@ -1,3 +1,11 @@
+**A Top E.U. Commissioner Resigns, Citing ‘Questionable Governance’**\
+`The surprise resignation of Thierry Breton came after he accused Ursula von der Leyen, president of the European Commission, of pressuring France to nominate another candidate instead of him for commissioner.`\
+https://nytimes.com/2024/09/16/world/europe/thierry-breton-european-commissioner-resigns.html
+
+**Trump Plans to Keep Campaigning as Scheduled**\
+`Donald J. Trump’s travel schedule will not change in the aftermath of an apparent shooting attempt on Sunday, with trips this week planned to Michigan, New York and elsewhere.`\
+https://nytimes.com/2024/09/16/us/politics/trump-campaigning-shooting.html
+
 **Trump, Outrage and the Modern Era of Political Violence**\
 `The latest apparent assassination attempt against the former president indicates how much the American political landscape has been shaped by anger stirred by him and against him.`\
 https://nytimes.com/2024/09/16/us/politics/trump-violence-assassination-attempt.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/16/us/trump-shooting-news/falsehoods-assassinat
 **‘Shogun’: Here’s What to Know About the Record-Breaking Emmy Hit**\
 `The FX epic ruled TV’s top honors, racking up 18 Emmys for its first season. Here is a brief guide to this saga of samurai warriors and star-crossed lovers.`\
 https://nytimes.com/2024/09/16/arts/television/shogun-fx-streaming-guide.html
-
-**Boeing Will Cut Spending as Strike Takes Financial Toll**\
-`More than 33,000 Boeing workers went on strike last week after rejecting a tentative contract the company had negotiated with their unions.`\
-https://nytimes.com/2024/09/16/business/boeing-strike-hiring-freeze.html
-
-**Brazilian Politician Upends Debate by Hitting Opponent With Chair**\
-`The stunning attack on live television is likely to reorder the race to lead São Paulo, Latin America’s largest city.`\
-https://nytimes.com/2024/09/16/world/americas/sao-paulo-mayor-debate-violence.html
 

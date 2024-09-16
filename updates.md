@@ -1,3 +1,11 @@
+**A Top E.U. Commissioner Resigns, Citing ‘Questionable Governance’**\
+`The surprise resignation of Thierry Breton came after he accused Ursula von der Leyen, president of the European Commission, of pressuring France to nominate another candidate instead of him for commissioner.`\
+https://nytimes.com/2024/09/16/world/europe/thierry-breton-european-commissioner-resigns.html
+
+**Trump Plans to Keep Campaigning as Scheduled**\
+`Donald J. Trump’s travel schedule will not change in the aftermath of an apparent shooting attempt on Sunday, with trips this week planned to Michigan, New York and elsewhere.`\
+https://nytimes.com/2024/09/16/us/politics/trump-campaigning-shooting.html
+
 **Trump, Outrage and the Modern Era of Political Violence**\
 `The latest apparent assassination attempt against the former president indicates how much the American political landscape has been shaped by anger stirred by him and against him.`\
 https://nytimes.com/2024/09/16/us/politics/trump-violence-assassination-attempt.html
