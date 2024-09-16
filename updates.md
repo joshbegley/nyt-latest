@@ -1,3 +1,15 @@
+**Amazon Tells Corporate Workers to Be Back in the Office 5 Days a Week**\
+`The internet giant told employees on Monday that it expected them to return to the office full-time in January.`\
+https://nytimes.com/2024/09/16/technology/amazon-return-to-office.html
+
+**The Briefing: Birmingham 3 Wrexham 1 -  Brady, Beckham and the battle of the celebrity U.S. backers**\
+`A big game on the pitch but an international affair off it - our writers reflect on Birmingham's win over Wrexham`\
+https://nytimes.com/athletic/5771750/2024/09/16/birmingham-wrexham-brady-beckham/
+
+**With ‘No Ordinary’ Fans, Sade Night Turns 10**\
+`Fans of all ages slow-danced and lip-synced deep into the night, united by their shared love for Sade, an R&B star who has expanded her audience through social media.`\
+https://nytimes.com/2024/09/16/style/sade-night.html
+
 **Biden Celebrates Investments in Black Colleges While Promoting Harris**\
 `At a conference for historically Black colleges and universities in Philadelphia, the president tallied up his administration’s contributions to “H.B.C.U. excellence.”`\
 https://nytimes.com/2024/09/16/us/politics/biden-hbcu.html
