@@ -1,3 +1,7 @@
+**49ers' third-down defense sinks them in loss to Sam Darnold and the Vikings**\
+`Fred Warner was one of the 49ers' lone bright spots on defense. The unit struggled especially mightily on third down against Minnesota.`\
+https://nytimes.com/athletic/5769393/2024/09/15/49ers-defense-vikings-sam-darnold/
+
 **‘The Daily Show’ wins best talk series.**\
 `By Annie Aguiar`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-daily-show-wins-best-talk-series
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/world/americas/mexico-overhaul-judiciary-law.html
 **It's too early to worry about Lions offense, but this group feels off compared to a year ago**\
 `The Lions are hoping their Week 2 performance serves as a wake-up call.`\
 https://nytimes.com/athletic/5769477/2024/09/15/lions-loss-buccaneers-offense-jared-goff/
-
-**‘The Traitors’ ends RuPaul’s reign.**\
-`By Alexis Soloski`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-traitors-ends-rupauls-reign
 
