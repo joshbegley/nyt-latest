@@ -1,3 +1,8 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`This week brings Arch Manning&#8217;s (likely) first career start, Oklahoma&#8217;s first SEC game and USC&#8211;Michigan.
+What&#8217;s on your mind? Leave your questions here.`\
+https://nytimes.com/athletic/5772351/2024/09/16/submit-a-question-for-stewart-mandels-college-football-mailbag-273/
+
 **Former OceanGate Employees Testify at Hearing on Titan Implosion**\
 `The Coast Guard’s first public hearing on OceanGate’s fatal Titan submersible accident revealed that the crew had sent a message saying, “All good here,” shortly before the vessel imploded.`\
 https://nytimes.com/video/us/100000009697453/titan-oceangate-hearings-safety.html
