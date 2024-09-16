@@ -1,3 +1,7 @@
+**Coe, Coventry lead shortlist to be next IOC president**\
+`The International Olympic Committee (IOC) has confirmed a seven-person shortlist of candidates to succeed Thomas Bach as president.`\
+https://nytimes.com/athletic/5770878/2024/09/16/ioc-president-shortlist-next/
+
 **In Georgia, a Political Uproar Erupts Over a 2008 War With Russia**\
 `The leader of the governing party said the country should apologize for a conflict for which many Georgians blame Moscow, heightening a monthslong political battle.`\
 https://nytimes.com/2024/09/16/world/europe/georgia-uproar-2008-war-russia.html

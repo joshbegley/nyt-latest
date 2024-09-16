@@ -1,3 +1,7 @@
+**Coe, Coventry lead shortlist to be next IOC president**\
+`The International Olympic Committee (IOC) has confirmed a seven-person shortlist of candidates to succeed Thomas Bach as president.`\
+https://nytimes.com/athletic/5770878/2024/09/16/ioc-president-shortlist-next/
+
 **In Georgia, a Political Uproar Erupts Over a 2008 War With Russia**\
 `The leader of the governing party said the country should apologize for a conflict for which many Georgians blame Moscow, heightening a monthslong political battle.`\
 https://nytimes.com/2024/09/16/world/europe/georgia-uproar-2008-war-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5770447/2024/09/16/padres-fernando-tatis-jr-leg-bra
 **The Athletic FC: How Arsenal cornered Spurs, Man City case begins, Brady vs Reynolds**\
 `The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
 https://nytimes.com/athletic/5770705/2024/09/16/arsenal-tottenham-man-city-charges-brady-reynolds/
-
-**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
-`Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
-https://nytimes.com/athletic/5770625/2024/09/16/newcastle-transfers-barnes-tonali/
 
