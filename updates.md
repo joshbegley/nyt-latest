@@ -1,3 +1,11 @@
+**Florida A&M University**\
+`News about Florida A&M University. Commentary and archival information about Florida A&M University from The New York Times.`\
+https://nytimes.com/topic/florida-am-university
+
+**São Paulo Mayoral Candidate Hit With Metal Chair by Rival**\
+`Pablo Marçal, a personal development influencer turned right-wing politician, was attacked by his fellow mayoral candidate, José Luiz Datena, during a televised debate.`\
+https://nytimes.com/video/world/americas/100000009694883/brazil-chair-attack.html
+
 **Jane’s Addiction to Cancel Tour After Onstage Fight**\
 `In a social media post, the rock band said it was halting its reunion tour after the group’s singer, Perry Farrell, hit its guitarist at a Boston show.`\
 https://nytimes.com/2024/09/16/arts/music/janes-addiction-tour-canceled.html
