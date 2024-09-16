@@ -10,7 +10,7 @@ https://nytimes.com/2024/09/16/us/politics/trump-golf-course-shooting.html
 `Van Dyke was carted off the field after absorbing a hit on a scramble attempt during Wisconsin's 42-10 loss to Alabama on Saturday.`\
 https://nytimes.com/athletic/5772178/2024/09/16/tyler-van-dyke-injury-wisconsin-college-football/
 
-**North Carolina Begins Printing New Ballots, Minus Kennedy’s Name**\
+**North Carolina Absentee Ballots Delayed After Fight Over RFK Jr.**\
 `After dropping out of the race and endorsing Donald Trump, Robert F. Kennedy Jr. has been fighting in court to remove his name from ballots in several states.`\
 https://nytimes.com/2024/09/16/us/north-carolina-election-ballots-rfk-jr.html
 
