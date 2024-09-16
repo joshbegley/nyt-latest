@@ -1,3 +1,11 @@
+**The One Issue Where Israeli Extremists Are Mainstream**\
+`Israel’s annexation of the occupied West Bank is not a future prospect; it is a fact of life. Israelis and Palestinians live in a one-state reality.`\
+https://nytimes.com/2024/09/16/opinion/16el-ad.html
+
+**What’s on TV This Week: ‘Dancing With the Stars’ and ‘The Golden Bachelorette’**\
+`The dance competition and dating show are back for another season.`\
+https://nytimes.com/2024/09/16/arts/television/whats-on-tv-this-week-dancing-with-the-stars-and-the-golden-bachelorette.html
+
 **Unpicking Wolves' long search for a Premier League clean sheet**\
 `Wolves may have lost to two long-range strikes against Newcastle but their defensive issues are deep-rooted`\
 https://nytimes.com/athletic/5769060/2024/09/16/wolves-premier-league-clean-sheet/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5766772/2024/09/16/danny-ings-west-ham-ready/
 **Manchester City's pressing tweak that regained control against Brentford**\
 `In the first 30 minutes against Brentford, Man City's pressing wasn't quite working. Here's what they did to fix it`\
 https://nytimes.com/athletic/5767848/2024/09/16/manchester-citys-pressing-tweak-to-regain-control-against-brentford/
-
-**Postecoglou is adamant Spurs can win a trophy - but Arsenal showed there is a big gap to bridge**\
-`Arsenal were depleted but still had enough to beat Tottenham, which laid bare the challenge the Spurs manager faces this season`\
-https://nytimes.com/athletic/5768626/2024/09/16/tottenham-arsenal-postecoglou-trophy/
-
-**Everton are in danger of turning a football rarity into a regular failing**\
-`Sean Dyche's side turned a two-goal lead into defeat for the second game in a row - and somehow it felt inevitable `\
-https://nytimes.com/athletic/5767359/2024/09/16/everton-two-goal-lead-defeats/
 

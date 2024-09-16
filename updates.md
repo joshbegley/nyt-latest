@@ -1,3 +1,11 @@
+**The One Issue Where Israeli Extremists Are Mainstream**\
+`Israel’s annexation of the occupied West Bank is not a future prospect; it is a fact of life. Israelis and Palestinians live in a one-state reality.`\
+https://nytimes.com/2024/09/16/opinion/16el-ad.html
+
+**What’s on TV This Week: ‘Dancing With the Stars’ and ‘The Golden Bachelorette’**\
+`The dance competition and dating show are back for another season.`\
+https://nytimes.com/2024/09/16/arts/television/whats-on-tv-this-week-dancing-with-the-stars-and-the-golden-bachelorette.html
+
 **Unpicking Wolves' long search for a Premier League clean sheet**\
 `Wolves may have lost to two long-range strikes against Newcastle but their defensive issues are deep-rooted`\
 https://nytimes.com/athletic/5769060/2024/09/16/wolves-premier-league-clean-sheet/
