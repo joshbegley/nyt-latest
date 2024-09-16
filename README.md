@@ -1,3 +1,7 @@
+**Tense Teamsters Meeting With Harris Ends With an Endorsement Still Dangling**\
+`The Teamsters president, Sean O’Brien, indicated he could announce as soon as Wednesday which presidential candidate — if any — the union would back.`\
+https://nytimes.com/2024/09/16/us/politics/teamsters-harris.html
+
 **Justin Ishbia donates $10 million to Michigan State athletics, with baseball scoring big**\
 `A sizable chunk — $1.5 million — is specifically aimed at refurbishing and upgrading the school’s baseball stadium.`\
 https://nytimes.com/athletic/5772222/2024/09/16/justin-ishbia-michigan-state-donation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5772095/2024/09/16/dolphins-tyler-huntley-tua-tagov
 **The Best Recipes We've Ever Published, According to You**\
 `For the 10th anniversary of NYT Cooking, we’ve collected recipes that racked up five-star ratings, topped our charts and went viral — plus a few that lit up the comments section.`\
 https://nytimes.com/interactive/2024/dining/best-nyt-cooking-recipes.html
-
-**A farmer in Hawaii recalls a 2022 business dispute with the suspect that turned strange.**\
-`By Kurt Streeter`\
-https://nytimes.com/live/2024/09/16/us/trump-shooting-news/a-farmer-in-hawaii-recalls-a-2022-business-dispute-with-the-suspect-that-turned-strange
 
