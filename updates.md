@@ -1,3 +1,15 @@
+**A ‘Buena Vista Social Club’ Musical Will Open on Broadway Next Year**\
+`The show, which had a previous run at Atlantic Theater Company, is scheduled to begin previews in February at the Gerald Schoenfeld Theater.`\
+https://nytimes.com/2024/09/16/theater/buena-vista-social-club-broadway.html
+
+**FX Outduels Bigger Rivals to Collect Huge Emmy Haul**\
+`The network has been a darling among critics for years. But it hit a new high on Sunday, with “Shogun” winning best drama and “The Bear” picking up several awards as well.`\
+https://nytimes.com/2024/09/16/business/media/fx-emmy-wins.html
+
+**Isiah Pacheco fractures fibula in Week 2 win vs. Bengals**\
+`Kansas City's tailback tallied 90 rushing yards on 19 carries and caught five passes for 21 yards before exiting the game with the ailment.`\
+https://nytimes.com/athletic/5771097/2024/09/16/isiah-pacheco-injury-fibula-chiefs/
+
 **Monday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
 https://nytimes.com/athletic/5771123/2024/09/16/mlb-odds-best-bets-projections-september-16/
