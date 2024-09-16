@@ -1,3 +1,11 @@
+**A Second Attempted Assassination of Donald Trump**\
+`What we know about the episode and the suspect.`\
+https://nytimes.com/2024/09/16/briefing/donald-trump-attempted-assassination.html
+
+**The Pulse: What's wrong with Caleb Williams?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5769367/2024/09/16/caleb-williams-bears-texans-the-pulse/
+
 **Tennis Briefing: Davis Cup round-up and an unlucky WTA 500 in Seoul**\
 `Brief matches of very different kinds, an unlucky WTA tournament, and international team tennis.`\
 https://nytimes.com/athletic/5768758/2024/09/16/davis-cup-results-tennis-tournaments-rankings-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/16/world/middleeast/religious-holidays-israel-gaza-w
 **Bears' O-line fails to protect Caleb Williams in loss to Texans. Now what?**\
 `Williams was sacked seven times and hit 11 times in a 19-13 loss to the Texans as the Bears offense remains a mess.`\
 https://nytimes.com/athletic/5770519/2024/09/16/bears-offensive-line-caleb-williams-texans/
-
-**What are the chances Sam Darnold's Vikings resurgence is real? Sando's Pick Six**\
-`Some key pieces are coming together for the Vikings and their starting QB. Can the same be said of the Saints and Cardinals?`\
-https://nytimes.com/athletic/5768278/2024/09/16/vikings-sam-darnold-nfl-field-goals-pick-six/
-
-**Is it over yet? The Cubs have shown they’re simply not good enough**\
-`Players have maintained emotional equilibrium and kept a sharp focus, but they acknowledge their overall performance hasn't been enough.`\
-https://nytimes.com/athletic/5769610/2024/09/16/chicago-cubs-playoff-odds/
 

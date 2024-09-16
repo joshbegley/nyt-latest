@@ -1,3 +1,11 @@
+**A Second Attempted Assassination of Donald Trump**\
+`What we know about the episode and the suspect.`\
+https://nytimes.com/2024/09/16/briefing/donald-trump-attempted-assassination.html
+
+**The Pulse: What's wrong with Caleb Williams?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5769367/2024/09/16/caleb-williams-bears-texans-the-pulse/
+
 **Tennis Briefing: Davis Cup round-up and an unlucky WTA 500 in Seoul**\
 `Brief matches of very different kinds, an unlucky WTA tournament, and international team tennis.`\
 https://nytimes.com/athletic/5768758/2024/09/16/davis-cup-results-tennis-tournaments-rankings-analysis/
