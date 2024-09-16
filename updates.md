@@ -1,3 +1,7 @@
+**Twins takeaways: 'No Country' for sinking wild-card hopefuls and inherited problems**\
+`Despite being one of the worst teams over the past month, the Twins remain in playoff position. But can they can fix a season-long problem?`\
+https://nytimes.com/athletic/5768084/2024/09/16/twins-takeaways-wild-card-race-inherited-runners/
+
 **Astros takeaways: Alex Bregman at 2B, Kyle Tucker's trajectory and a rotation conundrum**\
 `Here's everything you need to know about the Astros as they get ready for a much tougher challenge after sweeping the Angels. `\
 https://nytimes.com/athletic/5769811/2024/09/16/astros-alex-bregman-kyle-tucker-rotation/
