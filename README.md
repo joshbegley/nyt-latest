@@ -1,3 +1,7 @@
+**What We Know About the Apparent Assassination Attempt Against Trump**\
+`Secret Service agents fired on a man who had a rifle and was hiding in bushes around a Trump golf club in Florida, officials said. Former President Donald J. Trump was unhurt.`\
+https://nytimes.com/2024/09/16/us/trump-assassination-attempt-suspect.html
+
 **Word of the Day: prescient**\
 `This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/16/learning/word-of-the-day-prescient.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768019/2024/09/16/newcastle-wolves-best-start-in-2
 **Aston Villa, 41 disgruntled fans and season tickets for seats that did not exist**\
 `Aston Villa fans affected by ticketing issues share their experiences following a problematic start to the season for the club off the field`\
 https://nytimes.com/athletic/5744104/2024/09/16/aston-villa-ticket-issues/
-
-**When Arsenal faced new challenges, Arteta and his players found new solutions**\
-`Arsenal were hit by absences ahead of the north London derby. Yet those who were available delivered`\
-https://nytimes.com/athletic/5768781/2024/09/16/arsenal-arteta-solutions/
 
