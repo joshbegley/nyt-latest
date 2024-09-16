@@ -1,3 +1,7 @@
+**Ranking 134 college football teams after Week 3: Texas or Georgia?**\
+`Texas moves up to No. 1 in this week’s edition of The Athletic 134, the third different No. 1 team we’ve had in four weeks.`\
+https://nytimes.com/athletic/5769877/2024/09/16/college-football-rankings-134-teams-week-3/
+
 **Smith: Oscar Piastri’s F1 win in Baku was a world class, coming-of-age drive**\
 `Piastri's masterful Azerbaijan GP win proves he's more than ready to fight for a world championship.`\
 https://nytimes.com/athletic/5768870/2024/09/16/f1-oscar-piastri-mclaren-azerbaijan-gp/
