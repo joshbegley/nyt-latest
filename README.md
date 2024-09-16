@@ -1,3 +1,15 @@
+**American Parents Need Much More Than Tax Credits**\
+`If American parents didn’t have to sweat, they might have the time and mental space to attend to child-rearing’s ordinary challenges.`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/parenting-costs-usa
+
+**USMNT Player Tracker: Balogun's bit-part role, star man Pulisic, and Busio calls for character**\
+`Koleosho's stunning solo effort earned Burnley an impressive win at Leeds, while Mark McKenzie continues to impress at Toulouse in Ligue 1`\
+https://nytimes.com/athletic/5771238/2024/09/16/usmnt-balogun-pulisic-busio-koleosho-tracker/
+
+**Join the Times’s Climate Event With Jane Goodall, Al Roker and Others**\
+`Sign up to watch the livestream of the Climate Forward conference on Wednesday, Sept. 25.`\
+https://nytimes.com/2024/09/16/climate/join-the-timess-climate-event-with-jane-goodall-al-roker-and-others.html
+
 **In ‘Agatha All Along,’ Joe Locke Works Like a Charm**\
 `A star of the Netflix hit “Heartstopper,” this actor is now joining the Marvel universe.`\
 https://nytimes.com/2024/09/16/arts/television/agatha-all-along-joe-locke.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/16/business/economy/nevada-economy-unemployment-elec
 **Canadiens rookie camp: Reinbacher’s sphere of influence, Nicholas summer camp**\
 `The growth of Reinbacher's self-awareness, Josh Anderson putting in the work this summer and advice on defending Lane Hutson.`\
 https://nytimes.com/athletic/5770495/2024/09/16/canadiens-rookie-camp-david-reinbacher/
-
-**Guns and the Trump Assassination Attempt**\
-`Readers criticize the country’s lax gun laws. Also: “The Power Broker” at 50; air-conditioning; phones in school; polluting cruise ships; still summer.`\
-https://nytimes.com/2024/09/16/opinion/trump-assassination-attempt-guns.html
-
-**State of the Race: Early Signs of a Post-Debate Bounce for Harris**\
-`It could be another week until the full scope of possible gains is evident.`\
-https://nytimes.com/2024/09/16/upshot/polls-harris-trump-debate.html
-
-**How to Conceal Under-Eye Circles**\
-`Tips from three people used to late nights: a drag queen, a musician and a makeup artist.`\
-https://nytimes.com/2024/09/16/t-magazine/under-eye-dark-circles-guide.html
 
