@@ -1,3 +1,7 @@
+**The creative numbers that show Wilfred Ndidi is a viable No 10 for Leicester**\
+`The Leicester midfielder may look unorthodox in attack but he has as many Premier League assists as Mohamed Salah this season`\
+https://nytimes.com/athletic/5767895/2024/09/16/wilfred-ndidi-creator-assists-leicester/
+
 **Aston Villa, 41 disgruntled fans and season tickets for seats that did not exist**\
 `Aston Villa fans affected by ticketing issues share their experiences following a problematic start to the season for the club off the field`\
 https://nytimes.com/athletic/5744104/2024/09/16/aston-villa-ticket-issues/
@@ -22,6 +26,10 @@ https://nytimes.com/athletic/5768626/2024/09/16/tottenham-arsenal-postecoglou-tr
 `Sean Dyche's side turned a two-goal lead into defeat for the second game in a row - and somehow it felt inevitable `\
 https://nytimes.com/athletic/5767359/2024/09/16/everton-two-goal-lead-defeats/
 
+**The positional fluidity of Manchester United's full-backs is a welcome sign of tactical evolution**\
+`Diogo Dalot and Noussair Mazraoui took it in turns to drift inside at St Mary's - and it gave Ten Hag's team a stronger base in possession`\
+https://nytimes.com/athletic/5767830/2024/09/16/manchester-united-full-backs-southampton-fluid/
+
 **Ferdi Kadioglu interview: Why he joined Brighton and what he learned from Jose Mourinho at Fenerbahce**\
 `The Turkish full-back on his journey from NEC Nijmegen to East Sussex, via an intense six-year spell in Istanbul`\
 https://nytimes.com/athletic/5733502/2024/09/16/ferdi-kadioglu-brighton-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5733502/2024/09/16/ferdi-kadioglu-brighton-intervie
 **The Briefing: Should Postecoglou be more like Arteta? Liverpool loss just a blip? And EFL chaos**\
 `The big talking points from the weekend's football - including Postecoglou's stubbornness, Slot's slip, and the beauty of EFL`\
 https://nytimes.com/athletic/5768897/2024/09/16/the-briefing-postecoglou-liverpool-efl-chaos/
-
-**Explaining the lost generation of footballers who came after Messi and Ronaldo**\
-`The 1980s and 2000s have produced plenty of star players - but it's a very different story for those born in the 1990s`\
-https://nytimes.com/athletic/5768026/2024/09/16/football-lost-generation-messi-ronaldo-ballon-dor/
-
-**City vs the Premier League - explaining the 115* charges and how long the case will take**\
-`The Premier League's case against Manchester City begins today - this is everything you need to know about what is being contested`\
-https://nytimes.com/athletic/5762324/2024/09/16/manchester-city-charges-explained/
 
