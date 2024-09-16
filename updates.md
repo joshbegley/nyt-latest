@@ -1,3 +1,19 @@
+**Marvin Harrison Jr., after underwhelming debut, breaks out for Cardinals in Week 2**\
+`Marvin Harrison Jr. is a serious person who never strays from routine. Even so, his head coach admitted: "It was good to see him smile."`\
+https://nytimes.com/athletic/5770076/2024/09/15/marvin-harrison-jr-arizona-cardinals-touchdown-breakout/
+
+**In a surprise win, ‘Hacks’ earns top comedy award.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/hacks-wins-best-comedy-series
+
+**‘Shogun’ Wins Best Drama, Capping a Big Night**\
+`The win capped a successful evening for the remake, which picked up several other Emmys on the night.`\
+https://nytimes.com/2024/09/15/arts/television/shogun-emmy-best-drama.html
+
+**16 Unforgettable Looks at the Emmys**\
+`The fashion on the red carpet ran the gamut. These 16 looks were among the most notable.`\
+https://nytimes.com/2024/09/15/style/emmys-fashion.html
+
 **Anna Sawai wins best actress in a drama for ‘Shogun.’**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/anna-sawai-wins-best-actress-in-a-drama-for-shogun
