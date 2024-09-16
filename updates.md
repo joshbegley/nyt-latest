@@ -1,3 +1,7 @@
+**North Carolina Absentee Ballots Delayed After Fight Over RFK Jr.**\
+`After dropping out of the race and endorsing Donald Trump, Robert F. Kennedy Jr. has been fighting in court to remove his name from ballots in several states.`\
+https://nytimes.com/2024/09/16/us/north-carolina-election-ballots-rfk-jr.html
+
 **Emmy Viewership Rises to 6.9 Million Viewers**\
 `The uptick puts the Emmys among the award shows, such as the Oscars, that have had audience gains in the past few years.`\
 https://nytimes.com/2024/09/16/business/media/emmy-viewership-nielsen.html
