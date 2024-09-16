@@ -1,3 +1,11 @@
+**The Best Recipes We've Ever Published, According to You**\
+`For the 10th anniversary of NYT Cooking, we’ve collected recipes that racked up five-star ratings, topped our charts and went viral — plus a few that lit up the comments section.`\
+https://nytimes.com/interactive/2024/dining/best-nyt-cooking-recipes.html
+
+**A farmer in Hawaii recalls a 2022 business dispute with the suspect that turned strange.**\
+`By Kurt Streeter`\
+https://nytimes.com/live/2024/09/16/us/trump-shooting-news/a-farmer-in-hawaii-recalls-a-2022-business-dispute-with-the-suspect-that-turned-strange
+
 **Tuesday Briefing: Suspect is Charged in Apparent Trump Shooting Attempt**\
 `Plus, why you should binge “Shogun.”`\
 https://nytimes.com/2024/09/16/briefing/trump-shooting-titan-china.html
