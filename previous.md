@@ -1,3 +1,27 @@
+**Astros takeaways: Alex Bregman at 2B, Kyle Tucker's trajectory and a rotation conundrum**\
+`Here's everything you need to know about the Astros as they get ready for a much tougher challenge after sweeping the Angels. `\
+https://nytimes.com/athletic/5769811/2024/09/16/astros-alex-bregman-kyle-tucker-rotation/
+
+**Is Rudy Gobert motivated? Is this the last dance for Timberwolves? Five burning questions**\
+`Some of these questions will go a long way in determining what kind of season Minnesota has.`\
+https://nytimes.com/athletic/5760391/2024/09/16/timberwolves-burning-questions-2024-nba-season/
+
+**Are Jalen Green and the Rockets ready to take the next step? Fan survey results**\
+`Many of you seem to think the Rockets are on the right track but need to see a lot more from Jalen Green. `\
+https://nytimes.com/athletic/5758484/2024/09/16/rockets-fan-survey-results-jalen-green/
+
+**How Rituals of Faith Became Another Casualty of War**\
+`.`\
+https://nytimes.com/2024/09/16/world/middleeast/religious-holidays-israel-gaza-war.html
+
+**Bears' O-line fails to protect Caleb Williams in loss to Texans. Now what?**\
+`Williams was sacked seven times and hit 11 times in a 19-13 loss to the Texans as the Bears offense remains a mess.`\
+https://nytimes.com/athletic/5770519/2024/09/16/bears-offensive-line-caleb-williams-texans/
+
+**What are the chances Sam Darnold's Vikings resurgence is real? Sando's Pick Six**\
+`Some key pieces are coming together for the Vikings and their starting QB. Can the same be said of the Saints and Cardinals?`\
+https://nytimes.com/athletic/5768278/2024/09/16/vikings-sam-darnold-nfl-field-goals-pick-six/
+
 **Is it over yet? The Cubs have shown they’re simply not good enough**\
 `Players have maintained emotional equilibrium and kept a sharp focus, but they acknowledge their overall performance hasn't been enough.`\
 https://nytimes.com/athletic/5769610/2024/09/16/chicago-cubs-playoff-odds/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/09/16/podcasts/the-daily/election-undecided-voters.html
 **Trump Safe After ‘Attempted Assassination,’ and TikTok Heads to Court**\
 `Plus, a record-setting Emmy haul for “Shogun.”`\
 https://nytimes.com/2024/09/16/podcasts/trump-assassination-tiktok-ban.html
-
-**Wordle Review No. 1,186**\
-`Scroll down for hints and conversation about the puzzle for September 17, 2024.`\
-https://nytimes.com/2024/09/16/crosswords/wordle-review-1186.html
-
-**The Connections Companion No. 464**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 17, 2024.`\
-https://nytimes.com/2024/09/16/crosswords/connections-companion-464.html
-
-**While crucial drop will haunt Malik Nabers, he made it clear he can carry Giants pass offense**\
-`"No matter how good of a game you can play, that last play came down to me. I’m hurt that I let those veterans down."`\
-https://nytimes.com/athletic/5769952/2024/09/16/giants-malik-nabers-breakout-day-commanders/
-
-**Barcelona's Olmo to miss up to five weeks with hamstring injury**\
-`Barcelona midfielder Dani Olmo is set to miss between four and five weeks with a hamstring injury, the club have confirmed.`\
-https://nytimes.com/athletic/5770702/2024/09/16/dani-olmo-injury-barcelona/
-
-**The most 'college football' things that happened in Week 3**\
-`Work shirts, QBs passing to himself, interceptions and incompletions ... relive some of the zaniest moments of Week 3.`\
-https://nytimes.com/athletic/5769016/2024/09/16/college-football-week-3-top-moments/
-
-**Here’s the latest on the investigation.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/09/16/us/trump-shooting-news/heres-the-latest-on-the-investigation
 
