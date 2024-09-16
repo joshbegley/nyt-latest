@@ -1,3 +1,19 @@
+**Biden Celebrates Investments in Black Colleges While Promoting Harris**\
+`At a conference for historically Black colleges and universities in Philadelphia, the president tallied up his administration’s contributions to “H.B.C.U. excellence.”`\
+https://nytimes.com/2024/09/16/us/politics/biden-hbcu.html
+
+**Reading takeover stalls after breakdown in talks between Couhig and Yongge**\
+`Former Wycombe Wanderers owner Rob Couhig’s attempt to buy Reading has stalled following the breakdown of talks between the American lawyer and the League One side’s current owner Dai Yongge.`\
+https://nytimes.com/athletic/5771984/2024/09/16/reading-takeover-couhig-yongge/
+
+**How Secret Service Details Are Assigned**\
+`Levels of protection depend on a protectee’s position and the assessment of risk.`\
+https://nytimes.com/2024/09/16/us/politics/secret-service-details.html
+
+**Gabby Giffords: It’s the Guns. It’s Always the Guns.**\
+`Political rhetoric isn’t the only problem -- it’s access to weapons.`\
+https://nytimes.com/2024/09/16/opinion/gabby-giffords-its-the-guns-its-always-the-guns.html
+
 **Body Cam Video Shows Arrest of Suspect in Apparent Trump Assassination Attempt**\
 `The video, less than a minute long, shows armed law-enforcement officers ordering the man to walk backward toward them and then handcuffing him.`\
 https://nytimes.com/2024/09/16/us/politics/trump-assassination-attempt-body-cam.html
@@ -21,20 +37,4 @@ https://nytimes.com/topic/banco-santander-s-a
 **Mets' Francisco Lindor says back MRI showed 'good news'**\
 `Lindor did not rule out returning for the series against the Philadelphia Phillies, starting Thursday.`\
 https://nytimes.com/athletic/5771936/2024/09/16/francisco-lindor-mets-back-mri/
-
-**Suspect’s Self-Published Book Assails Trump, Hinting at Approval of His Killing**\
-`The book, “Ukraine’s Unwinnable War,” calls the former president a “buffoon” and vents anger over Iran, but saves its most vitriolic language for President Vladimir V. Putin of Russia.`\
-https://nytimes.com/2024/09/16/us/politics/trump-assassination-suspect-book.html
-
-**Demonizing Immigrants Could Ruin the Revival of Some Heartland Cities**\
-`Immigration to small cities creates jobs for everyone.`\
-https://nytimes.com/2024/09/16/opinion/springfield-immigration.html
-
-**Jane’s Addiction to Cancel Tour After Onstage Fight**\
-`In a social media post, the rock band said it was halting its reunion tour after the group’s singer, Perry Farrell, hit its guitarist at a Boston show.`\
-https://nytimes.com/2024/09/16/arts/music/janes-addiction-tour-canceled.html
-
-**U.S. Awards Intel $3 Billion for Military Supply Program**\
-`The Biden administration announced an award for the struggling chipmaker as part of an effort to establish secure supply sources for the Pentagon.`\
-https://nytimes.com/2024/09/16/us/politics/intel-chips-semiconductor-grant.html
 
