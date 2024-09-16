@@ -1,3 +1,7 @@
+**Rodrigue: 'Humbling' day for Rams featured too few answers and fundamentals, not enough physicality**\
+`The Rams didn't have answers for Kyler Murray and the Cardinals' offense and star receiver Cooper Kupp exited with a lower leg injury.`\
+https://nytimes.com/athletic/5769768/2024/09/15/la-rams-humbling-loss-cardinals-whats-next/
+
 **The Emmys celebrate ‘Happy Days’ at 50.**\
 `By Jeremy Egner`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/emmys-happy-days-howard-winkler
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/nyregion/officer-shot-brooklyn-subway.html
 **Hard to take Colts seriously after they were steamrolled by Jordan Love-less Packers**\
 `Anyone who bought what the Colts were selling before the season might want a refund now. Indy is 0-2 after its humiliating loss Sunday.`\
 https://nytimes.com/athletic/5769707/2024/09/15/colts-packers-loss-0-2-contender-doubt/
-
-**Aaron Rodgers powered a gutty first Jets win — it came at a great cost**\
-`NASHVILLE — Sometimes Aaron Rodgers will simply give a look — Breece Hall calls it a long stare — to let his teammates know they messed up.`\
-https://nytimes.com/athletic/5769724/2024/09/15/jets-aaron-rodgers-first-win-defense-injuries/
 
