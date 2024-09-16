@@ -1,3 +1,7 @@
+**‘Shogun’ Wins Best Drama, Capping a Big Night**\
+`The win capped a successful evening for the remake, which picked up several other Emmys on Sunday.`\
+https://nytimes.com/2024/09/15/arts/television/shogun-emmy-best-drama.html
+
 **In a surprise win, ‘Hacks’ earns top comedy award.**\
 `By Julia Jacobs`\
 https://nytimes.com/2024/09/15/arts/television/hacks-emmy-best-comedy.html
