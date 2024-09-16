@@ -1,3 +1,19 @@
+**‘Shogun’: Here’s What to Know About the Record-Breaking Emmy Hit**\
+`The FX epic ruled TV’s top honors, racking up 18 Emmys for its first season. Here is a brief guide to this saga of samurai warriors and star-crossed lovers.`\
+https://nytimes.com/2024/09/16/arts/television/shogun-fx-streaming-guide.html
+
+**Boeing Will Cut Spending as Strike Takes Financial Toll**\
+`More than 33,000 Boeing workers went on strike last week after rejecting a tentative contract the company had negotiated with their unions.`\
+https://nytimes.com/2024/09/16/business/boeing-strike-hiring-freeze.html
+
+**Brazilian Politician Upends Debate by Hitting Opponent With Chair**\
+`The stunning attack on live television is likely to reorder the race to lead São Paulo, Latin America’s largest city.`\
+https://nytimes.com/2024/09/16/world/americas/sao-paulo-mayor-debate-violence.html
+
+**College football Week 4 odds, schedule: Oklahoma gets first SEC test against Tennessee**\
+`Four top-25 matchups highlight the Week 4 schedule in college football. Oklahoma, USC and Utah have tough games in their new conferences.`\
+https://nytimes.com/athletic/5771355/2024/09/16/college-football-week-4-odds-schedule-oklahoma-tennessee/
+
 **Michigan switches to Alex Orji at QB for USC game**\
 `Alex Orji will make his first career start at quarterback for Michigan on Saturday against USC, coach Sherrone Moore said Monday.`\
 https://nytimes.com/athletic/5771503/2024/09/16/michigan-alex-orji-starting-qb-usc/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/16/arts/television/agatha-all-along-joe-locke.html
 **Tim Walz, a ‘Snowman Melting,’ Tests His Appeal in the Sun Belt**\
 `The Minnesota governor was picked for his appeal to the white working-class. The Harris campaign hopes he can reach other demographics, too.`\
 https://nytimes.com/2024/09/16/us/politics/tim-walz-sun-belt.html
-
-**Read the Charges Against Ryan Routh, Suspect in Trump Shooting Attempt**\
-`The man suspected of trying to kill former President Trump has been charged with two firearm counts.`\
-https://nytimes.com/interactive/2024/09/16/us/ryan-routh-gun-charges-trump-shooting.html
-
-**A.I. Pioneers Call for Protections Against ‘Catastrophic Risks’**\
-`Scientists from the United States, China and other nations called for an international authority to oversee artificial intelligence.`\
-https://nytimes.com/2024/09/16/business/china-ai-safety.html
-
-**The Chinese Chipmaker at the Heart of the U.S.-China Tech War**\
-`Efforts by the Beijing-backed Semiconductor Manufacturing International Corporation, or SMIC, to break through innovation barriers have landed it in a geopolitical tech battle.`\
-https://nytimes.com/2024/09/16/technology/smic-china-us-trade-war.html
-
-**Economy Still Weighs on Nevada as Harris and Trump Seek an Edge**\
-`The state is among a handful that will decide the presidential contest, and workers have felt increased prices at the grocery store and gas station.`\
-https://nytimes.com/2024/09/16/business/economy/nevada-economy-unemployment-election.html
 
