@@ -1,3 +1,7 @@
+**Gary Shaw: Former Aston Villa striker dies aged 63**\
+`Gary Shaw, the former Aston Villa striker, has died at the age of 63.`\
+https://nytimes.com/athletic/5768804/2024/09/16/gary-shaw-aston-villa/
+
 **Coe, Coventry lead shortlist to be next IOC president**\
 `The International Olympic Committee (IOC) has confirmed a seven-person shortlist of candidates to succeed Thomas Bach as president.`\
 https://nytimes.com/athletic/5770878/2024/09/16/ioc-president-shortlist-next/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/business/dealbook/voters-harris-trump-economy.htm
 **Padres takeaways: Fernando Tatis Jr.’s left leg, Brandon Lockridge’s first impression**\
 `Why Tatis' leg injury probably isn't related to one he suffered as a child, and how Lockridge developed into a base-stealing threat.`\
 https://nytimes.com/athletic/5770447/2024/09/16/padres-fernando-tatis-jr-leg-brandon-lockridge/
-
-**The Athletic FC: How Arsenal cornered Spurs, Man City case begins, Brady vs Reynolds**\
-`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
-https://nytimes.com/athletic/5770705/2024/09/16/arsenal-tottenham-man-city-charges-brady-reynolds/
 

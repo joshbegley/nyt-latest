@@ -1,3 +1,7 @@
+**Gary Shaw: Former Aston Villa striker dies aged 63**\
+`Gary Shaw, the former Aston Villa striker, has died at the age of 63.`\
+https://nytimes.com/athletic/5768804/2024/09/16/gary-shaw-aston-villa/
+
 **Coe, Coventry lead shortlist to be next IOC president**\
 `The International Olympic Committee (IOC) has confirmed a seven-person shortlist of candidates to succeed Thomas Bach as president.`\
 https://nytimes.com/athletic/5770878/2024/09/16/ioc-president-shortlist-next/
