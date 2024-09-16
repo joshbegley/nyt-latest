@@ -1,3 +1,15 @@
+**Martinez, Mazraoui avoid injuries but Hojlund, Mount still out for Man Utd**\
+`Manchester United defenders Lisandro Martinez and Noussair Mazraoui are available for Tuesday’s Carabao Cup game against Barnsley.`\
+https://nytimes.com/athletic/5771353/2024/09/16/man-utd-injury-news-martinez-mazraoui/
+
+**The Windup: Awkward situation in San Fran**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5771378/2024/09/16/farhan-zaidi-san-francisco-giants-the-windup/
+
+**Chelsea's Ingle suffers ACL injury**\
+`Chelsea midfielder Sophie Ingle is set for an extended period on the sidelines after sustaining an anterior cruciate ligament (ACL) injury during pre-season.`\
+https://nytimes.com/athletic/5771316/2024/09/16/sophie-ingle-chelsea-acl-injury/
+
 **Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
 `Let us know what's on your mind as the Broncos prepare to embark on a two-game East Coast road trip.`\
 https://nytimes.com/athletic/5771315/2024/09/16/broncos-mailbag-questions-week-3/
