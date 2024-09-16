@@ -1,3 +1,7 @@
+**In a surprise, Liza Colón-Zayas wins her first Emmy.**\
+`Actre`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/in-a-surprise-liza-colon-zayas-wins-her-first-emmy
+
 **Brian Daboll's bungling of Graham Gano's injury emblematic of mismanaged Giants in his tenure**\
 `The benefit of the doubt from this regime's Year 1 success has faded. Daboll needs to figure out how to pull the team out of this spiral.`\
 https://nytimes.com/athletic/5769633/2024/09/15/new-york-giants-brian-daboll-graham-gano-injury-blunder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769704/2024/09/15/canadiens-lane-hutson-prospect/
 **Harrison Butker's game-winning field goal pushes Chiefs past Bengals**\
 `Kansas City moved to 2-0 on the season while the Bengals, who in many ways outplayed the Chiefs, dropped to 0-2 for the third straight year.`\
 https://nytimes.com/athletic/5768399/2024/09/15/chiefs-bengals-takeaways-result/
-
-**Second Assassination Attempt Raises New Questions About Secret Service**\
-`That a would-be killer got close to former President Trump for the second time in about two months intensified questions about the agency’s broader protective capabilities.`\
-https://nytimes.com/2024/09/15/us/politics/secret-service-trump-shooting.html
 
