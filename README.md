@@ -1,3 +1,11 @@
+**Florida A&M University**\
+`News about Florida A&M University. Commentary and archival information about Florida A&M University from The New York Times.`\
+https://nytimes.com/topic/florida-am-university
+
+**São Paulo Mayoral Candidate Hit With Metal Chair by Rival**\
+`Pablo Marçal, a personal development influencer turned right-wing politician, was attacked by his fellow mayoral candidate, José Luiz Datena, during a televised debate.`\
+https://nytimes.com/video/world/americas/100000009694883/brazil-chair-attack.html
+
 **Bang on a Can**\
 `News about Bang on a Can. Commentary and archival information about Bang on a Can from The New York Times.`\
 https://nytimes.com/topic/bang-on-a-can
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/16/us/politics/intel-chips-semiconductor-grant.html
 **Trump, Using Harsh Language, Urges Democrats to Tone Down Theirs**\
 `The authorities have not provided information about the gunman’s motive in the apparent assassination attempt on Sunday, yet former President Donald J. Trump, who has his own history of using violent language, sought to blame Democrats.`\
 https://nytimes.com/2024/09/16/us/politics/trump-blames-democrats-gunman-golf-course.html
-
-**Alisson criticises new Champions League format over welfare concerns**\
-`Liverpool goalkeeper Alisson criticised the new Champions League format and believes player welfare is being ignored.`\
-https://nytimes.com/athletic/5771839/2024/09/16/alisson-liverpool-champions-league/
-
-**For Younger Workers to Get Ahead, Do Boomers Just Need to Retire?**\
-`The pay gap between older and younger workers has widened. The solutions aren’t obvious.`\
-https://nytimes.com/2024/09/16/opinion/baby-boomers-retirement.html
 
