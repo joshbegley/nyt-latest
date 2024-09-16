@@ -1,3 +1,7 @@
+**Falsehoods fly online after thwarted assassination attempt against Trump.**\
+`By Stuart A. Thompson`\
+https://nytimes.com/live/2024/09/16/us/trump-shooting-news/falsehoods-assassination-attempt-trump
+
 **‘Shogun’: Here’s What to Know About the Record-Breaking Emmy Hit**\
 `The FX epic ruled TV’s top honors, racking up 18 Emmys for its first season. Here is a brief guide to this saga of samurai warriors and star-crossed lovers.`\
 https://nytimes.com/2024/09/16/arts/television/shogun-fx-streaming-guide.html
