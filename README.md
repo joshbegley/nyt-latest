@@ -1,3 +1,19 @@
+**Theater for a New Audience**\
+`News about Theater for a New Audience. Commentary and archival information about Theater for a New Audience from The New York Times.`\
+https://nytimes.com/topic/theater-for-a-new-audience
+
+**Panthers bench No. 1 pick QB Bryce Young**\
+`Andy Dalton will be the new starting quarterback for the Panthers.`\
+https://nytimes.com/athletic/5771715/2024/09/16/panthers-bryce-young-benched-andy-dalton/
+
+**N.Y.C. Fire Safety Chiefs Accused of Taking Bribes**\
+`Two New York Fire Department officials were arrested and accused of taking tens of thousands of dollars in bribes to speed up the fire-safety approval process for building projects throughout the city.`\
+https://nytimes.com/video/nyregion/100000009694529/new-york-fire-chiefs-bribes.html
+
+**Protecting Trump after he left office was harder than expected, the Secret Service director said in 2022.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/09/16/us/trump-shooting-news/protecting-trump-after-he-left-office-was-harder-than-expected-the-secret-service-director-said-in-2022
+
 **A Top E.U. Commissioner Resigns, Citing ‘Questionable Governance’**\
 `The surprise resignation of Thierry Breton came after he accused Ursula von der Leyen, president of the European Commission, of pressuring France to nominate another candidate instead of him for commissioner.`\
 https://nytimes.com/2024/09/16/world/europe/thierry-breton-european-commissioner-resigns.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/16/us/politics/trump-golf-course-shooting-suspect-ph
 **Texas QB Quinn Ewers questionable for ULM game with oblique injury**\
 `Ewers had been playing some of the best football of his career before the injury.`\
 https://nytimes.com/athletic/5771556/2024/09/16/quinn-ewers-injury-arch-manning-texas/
-
-**Iga Swiatek and Coco Gauff out of Billie Jean King Cup Finals**\
-`The proximity of the WTA Finals in Riyadh means top players like Swiatek and Gauff are missing the so-called 'World Cup of Tennis'`\
-https://nytimes.com/athletic/5771515/2024/09/16/billie-jean-king-cup-finals-squads-teams/
-
-**Mikey Varas named first coach in San Diego FC club history**\
-`Varas most recently was the interim head coach of the U.S. men's national team.`\
-https://nytimes.com/athletic/5771574/2024/09/16/mikey-varas-coach-san-diego-fc/
-
-**Falsehoods fly online after thwarted assassination attempt against Trump.**\
-`By Stuart A. Thompson`\
-https://nytimes.com/live/2024/09/16/us/trump-shooting-news/falsehoods-assassination-attempt-trump
-
-**‘Shogun’: Here’s What to Know About the Record-Breaking Emmy Hit**\
-`The FX epic ruled TV’s top honors, racking up 18 Emmys for its first season. Here is a brief guide to this saga of samurai warriors and star-crossed lovers.`\
-https://nytimes.com/2024/09/16/arts/television/shogun-fx-streaming-guide.html
 
