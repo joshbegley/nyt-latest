@@ -1,3 +1,15 @@
+**Seahawks find their closer mentality just in time, escape New England with OT win**\
+`Two weeks into the season, the Seahawks are the only undefeated team left in the NFC West. `\
+https://nytimes.com/athletic/5769624/2024/09/15/seahawks-patriots-week-2-geno-smith/
+
+**How the Packers without Jordan Love, embracing a 'who cares' mentality, bulldozed the Colts**\
+`Malik Willis, Josh Jacobs, the O-line, Green Bay's defense and even punter Daniel Whelan carried the Packers to victory.`\
+https://nytimes.com/athletic/5769336/2024/09/15/packers-win-colts-josh-jacobs-malik-willis/
+
+**Second Assassination Attempt Raises New Questions About Secret Service**\
+`That a would-be killer got close to former President Trump for the second time in about two months intensified questions about the agency’s broader protective capabilities.`\
+https://nytimes.com/2024/09/15/us/politics/secret-service-trump-shooting.html
+
 **How the Packers without Jordan Love, embracing a 'who cares' mentality, bulldozed the Colts**\
 `Malik Willis, Josh Jacobs and the O-line, Green Bay's defense and even punter Daniel Whelan carried the Packers to victory.`\
 https://nytimes.com/athletic/5769336/2024/09/15/packers-win-colts-josh-jacobs-malik-willis/
