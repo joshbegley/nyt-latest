@@ -1,3 +1,7 @@
+**Harland & Wolff, Titanic Shipbuilder, Files for Bankruptcy**\
+`For the second time in five years, the parent company of the shipyard in Belfast, Northern Ireland, will enter administration, with Royal Navy contracts in the balance.`\
+https://nytimes.com/2024/09/16/business/harland-wolff-titanic-bankruptcy.html
+
 **Russia Ramps Up Air Assault on Ukrainian Cities**\
 `An attack on Kyiv early Monday was the eighth on the Ukrainian capital in about two weeks, officials said, adding that most of the incoming Russian drones had been intercepted.`\
 https://nytimes.com/2024/09/16/world/europe/ukraine-russia-kyiv-drone-attack.html

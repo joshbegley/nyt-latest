@@ -1,3 +1,7 @@
+**Harland & Wolff, Titanic Shipbuilder, Files for Bankruptcy**\
+`For the second time in five years, the parent company of the shipyard in Belfast, Northern Ireland, will enter administration, with Royal Navy contracts in the balance.`\
+https://nytimes.com/2024/09/16/business/harland-wolff-titanic-bankruptcy.html
+
 **Russia Ramps Up Air Assault on Ukrainian Cities**\
 `An attack on Kyiv early Monday was the eighth on the Ukrainian capital in about two weeks, officials said, adding that most of the incoming Russian drones had been intercepted.`\
 https://nytimes.com/2024/09/16/world/europe/ukraine-russia-kyiv-drone-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762943/2024/09/16/blues-rookie-prospect-showcase-b
 **How Arsenal exploited the space Spurs leave in front of their retreating defence**\
 `Van de Van's recovery speed is useful - but if others aren't able to recover their positions, then opposition chances are merely delayed`\
 https://nytimes.com/athletic/5770651/2024/09/16/spurs-space-allowed-issue/
-
-**How Notre Dame got the trains running on time again: Final thoughts on Purdue**\
-`Notre Dame bounced back in a big way against Purdue. How did that happen? And how can the Irish keep it going?`\
-https://nytimes.com/athletic/5770761/2024/09/16/notre-dame-football-purdue-riley-leonard/
 
