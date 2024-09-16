@@ -1,3 +1,7 @@
+**Bellingham & Tchouameni fit to return for Madrid in UCL**\
+`Carlo Ancelotti says Jude Bellingham is available for Real Madrid&#8217;s Champions League opener against Stuttgart on Tuesday following a spell out with a muscular injury.`\
+https://nytimes.com/athletic/5770848/2024/09/16/bellingham-tchouameni-real-madrid-injuries/
+
 **'Second to none': How did Macklin Celebrini's Sharks rookie-game teammates assess him?**\
 `Celebrini played in only one game in the Rookie Faceoff tournament, but the Sharks saw enough.`\
 https://nytimes.com/athletic/5769587/2024/09/16/macklin-celebrini-sharks-rookie/
