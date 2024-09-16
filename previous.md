@@ -1,3 +1,23 @@
+**Alisson criticises new Champions League format over welfare concerns**\
+`Liverpool goalkeeper Alisson criticised the new Champions League format and believes player welfare is being ignored.`\
+https://nytimes.com/athletic/5771839/2024/09/16/alisson-liverpool-champions-league/
+
+**For Younger Workers to Get Ahead, Do Boomers Just Need to Retire?**\
+`The pay gap between older and younger workers has widened. The solutions aren’t obvious.`\
+https://nytimes.com/2024/09/16/opinion/baby-boomers-retirement.html
+
+**Why Kamala Harris Brought Up Polish American Voters**\
+`They’re an important political bloc in Pennsylvania, but Harris was also making a larger point.`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/kamala-harris-polish-voters
+
+**Gallery Owner Sentenced in Fine Art Photography Swindle**\
+`Wendy Halsted Beard, 59, agreed to sell photography prints on behalf of older collectors. She kept the profits for herself.`\
+https://nytimes.com/2024/09/16/arts/design/wendy-halsted-beard-fraud-sentencing.html
+
+**YouTube CEO Says Google Faces Plenty of Ad Tech Competition**\
+`Kicking off the second week of an antitrust trial, Neal Mohan testified that Google did what was best for consumers and the ad industry.`\
+https://nytimes.com/2024/09/16/technology/google-antitrust-youtube-ceo.html
+
 **Judges Show Some Skepticism of TikTok’s Fight Against Potential U.S. Ban**\
 `TikTok on Monday pushed back against a law that would force the popular video app to sell to a non-Chinese owner or be banned, in what is shaping up to be a landmark case.`\
 https://nytimes.com/2024/09/16/technology/tiktok-ban.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/16/dining/liverwurst.html
 **Crosby's new Penguins contract is his sweetest assist yet**\
 `Crosby's contract is perfect for him and the Penguins — now and into the future.`\
 https://nytimes.com/athletic/5771489/2024/09/16/sidney-crosby-contract-penguins/
-
-**Books by Rachel Kushner and Percival Everett Make Booker Prize Shortlist**\
-`For the first time in the award’s 55-year history, five of the six nominated titles are by female authors.`\
-https://nytimes.com/2024/09/16/books/booker-prize-2024-shortlist.html
-
-**NASCAR Watkins Glen takeaways: Tire mysteries, why Kyle Larson questions himself and more**\
-`A tire that was supposed to change the game at Watkins Glen ... definitely did not. Plus, Kyle Larson on his crashing problem and much more.`\
-https://nytimes.com/athletic/5771106/2024/09/16/nascar-watkins-glen-takeaways-tires-kyle-larson/
-
-**Knopf, Alfred A, Inc**\
-`News about Knopf, Alfred A, Inc. Commentary and archival information about Knopf, Alfred A, Inc from The New York Times.`\
-https://nytimes.com/topic/knopf-alfred-a-inc
-
-**Theater for a New Audience**\
-`News about Theater for a New Audience. Commentary and archival information about Theater for a New Audience from The New York Times.`\
-https://nytimes.com/topic/theater-for-a-new-audience
-
-**Panthers bench No. 1 pick QB Bryce Young**\
-`Andy Dalton will be the new starting quarterback for the Panthers.`\
-https://nytimes.com/athletic/5771715/2024/09/16/panthers-bryce-young-benched-andy-dalton/
 
