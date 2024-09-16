@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5770076/2024/09/15/marvin-harrison-jr-arizona-cardi
 https://nytimes.com/2024/09/15/arts/television/hacks-emmy-best-comedy.html
 
 **‘Shogun’ Wins Best Drama, Capping a Big Night**\
-`The win capped a successful evening for the remake, which picked up several other Emmys on Sunday.`\
+`The win capped a successful evening for the FX series, set in feudal Japan, which picked up several other major Emmys on Sunday.`\
 https://nytimes.com/2024/09/15/arts/television/shogun-emmy-best-drama.html
 
 **16 Unforgettable Looks at the Emmys**\
