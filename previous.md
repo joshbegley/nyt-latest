@@ -1,3 +1,19 @@
+**Emmy Viewership Rises to 6.9 Million Viewers**\
+`The uptick puts the Emmys among the award shows, such as the Oscars, that have had audience gains in the past few years.`\
+https://nytimes.com/2024/09/16/business/media/emmy-viewership-nielsen.html
+
+**What We Know About the Accused Gunman**\
+`The man arrested after Secret Service agents opened fire while protecting Donald Trump was charged with two federal gun crimes on Monday.`\
+https://nytimes.com/2024/09/16/us/politics/trump-golf-course-shooting.html
+
+**Wisconsin QB Tyler Van Dyke tore ACL, will miss remainder of season: Sources**\
+`Van Dyke was carted off the field after absorbing a hit on a scramble attempt during Wisconsin's 42-10 loss to Alabama on Saturday.`\
+https://nytimes.com/athletic/5772178/2024/09/16/tyler-van-dyke-injury-wisconsin-college-football/
+
+**North Carolina Begins Printing New Ballots, Minus Kennedy’s Name**\
+`After dropping out of the race and endorsing Donald Trump, Robert F. Kennedy Jr. has been fighting in court to remove his name from ballots in several states.`\
+https://nytimes.com/2024/09/16/us/north-carolina-election-ballots-rfk-jr.html
+
 **Canadiens have reached a new stage of the rebuild where information is king**\
 `The intentionally vague messaging from the Canadiens to kick off the season depicts a team where the unknown far outweighs the known.`\
 https://nytimes.com/athletic/5772136/2024/09/16/canadiens-rebuild-unknown-playoffs/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/16/dining/nyt-favorite-cooking-recipes-anniversary.h
 **Black Voters Matter Says It Will Spend $15 Million in Battleground States**\
 `The nonpartisan group will mount a voter mobilization effort that includes radio ads, billboards and on-the-ground canvassing operations, with a focus on early voting.`\
 https://nytimes.com/2024/09/16/us/politics/black-voters-matter-voting-ads.html
-
-**Rams' Cooper Kupp to miss 'extended period of time' with ankle injury**\
-`Kupp exited State Farm Stadium with a walking boot on his left lower leg/foot.`\
-https://nytimes.com/athletic/5772150/2024/09/16/cooper-kupp-injury-ankle-la-rams/
-
-**Chick-fil-A**\
-`News about Chick-fil-A. Commentary and archival information about Chick-fil-A from The New York Times.`\
-https://nytimes.com/topic/chick-fil-a
-
-**How the Chargers' plan for Quentin Johnston is getting the most out of the 2023 top pick**\
-`Johnson's two touchdowns Sunday against the Panthers matched his total from his entire rookie season.`\
-https://nytimes.com/athletic/5772068/2024/09/16/chargers-quentin-johnston-panthers-touchdowns/
-
-**Dolphins signing QB Huntley; no decision on IR for Tagovailoa**\
-`McDaniel added that he would let "Tua speak on Tua's career" when asked if the quarterback intended to continue playing.`\
-https://nytimes.com/athletic/5772095/2024/09/16/dolphins-tyler-huntley-tua-tagovailoa/
 
