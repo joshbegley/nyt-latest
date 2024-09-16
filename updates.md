@@ -1,3 +1,11 @@
+**‘The Daily Show’ wins best talk series.**\
+`By Annie Aguiar`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-daily-show-wins-best-talk-series
+
+**Candice Bergen lands a political jab with a ‘Murphy Brown’ quip.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/candice-bergen-lands-a-political-jab-with-a-murphy-brown-quip
+
 **Raiders and Gardner Minshew learn good things happen when Davante Adams gets the ball**\
 `Antonio Pierce met with Adams at the team hotel Saturday night with a simple message: We're going to get you the ball. A lot.`\
 https://nytimes.com/athletic/5769674/2024/09/15/raiders-davante-adams-ravens-win-gardner-minshew/

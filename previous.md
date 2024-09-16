@@ -1,3 +1,11 @@
+**‘The Daily Show’ wins best talk series.**\
+`By Annie Aguiar`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-daily-show-wins-best-talk-series
+
+**Candice Bergen lands a political jab with a ‘Murphy Brown’ quip.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/candice-bergen-lands-a-political-jab-with-a-murphy-brown-quip
+
 **Raiders and Gardner Minshew learn good things happen when Davante Adams gets the ball**\
 `Antonio Pierce met with Adams at the team hotel Saturday night with a simple message: We're going to get you the ball. A lot.`\
 https://nytimes.com/athletic/5769674/2024/09/15/raiders-davante-adams-ravens-win-gardner-minshew/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5769477/2024/09/15/lions-loss-buccaneers-offense-ja
 **‘The Traitors’ ends RuPaul’s reign.**\
 `By Alexis Soloski`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-traitors-ends-rupauls-reign
-
-**A kicker's life: Austin Seibert comes in from off the street to save Commanders' day**\
-`Seibert — signed off the street by Washington six days ago to replace Cade York — accounted for all of the Commanders' points.`\
-https://nytimes.com/athletic/5769294/2024/09/15/austin-seibert-commanders-giants/
-
-**New-look Brian Flores defense perplexes 49ers, alters our expectations for Vikings**\
-`The Vikings surprised the 49ers and might be more competitive than many experts thought they'd be this season. The defense is to thank.`\
-https://nytimes.com/athletic/5769730/2024/09/15/vikings-49ers-brian-flores-defense-analysis/
 

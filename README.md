@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5769674/2024/09/15/raiders-davante-adams-ravens-win
 https://nytimes.com/2024/09/15/nyregion/officer-shot-brooklyn-subway.html
 
 **Hard to take Colts seriously after they were steamrolled by Jordan Love-less Packers**\
-`Anyone who bought what the Colts were selling before the season might want a refund now. Indy is 0-2 after their humiliating loss Sunday.`\
+`Anyone who bought what the Colts were selling before the season might want a refund now. Indy is 0-2 after its humiliating loss Sunday.`\
 https://nytimes.com/athletic/5769707/2024/09/15/colts-packers-loss-0-2-contender-doubt/
 
 **Aaron Rodgers powered a gutty first Jets win — it came at a great cost**\
