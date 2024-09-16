@@ -1,3 +1,7 @@
+**Elon Musk Writes, Then Deletes, a Post Musing About Threats to Biden and Harris**\
+`His remark, just hours after what authorities said was a second assassination attempt on Donald J. Trump, immediately drew outrage.`\
+https://nytimes.com/2024/09/16/us/politics/musk-deleted-tweet-biden-kamala.html
+
 **Harland & Wolff, Titanic Shipbuilder, Files for Bankruptcy**\
 `For the second time in five years, the parent company of the shipyard in Belfast, Northern Ireland, will enter administration, with Royal Navy contracts in the balance.`\
 https://nytimes.com/2024/09/16/business/harland-wolff-titanic-bankruptcy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769587/2024/09/16/macklin-celebrini-sharks-rookie/
 **Blues' '2 Zacharys' shine at Prospect Showcase — plus 6 other players to watch in 2024-25**\
 `Zachary Bolduc, who was the captain of the Blues' prospects, scored a highlight-reel goal Sunday and was arguably the best player.`\
 https://nytimes.com/athletic/5762943/2024/09/16/blues-rookie-prospect-showcase-bolduc-dean/
-
-**How Arsenal exploited the space Spurs leave in front of their retreating defence**\
-`Van de Van's recovery speed is useful - but if others aren't able to recover their positions, then opposition chances are merely delayed`\
-https://nytimes.com/athletic/5770651/2024/09/16/spurs-space-allowed-issue/
 
