@@ -16,7 +16,7 @@ https://nytimes.com/topic/chick-fil-a
 
 **How the Chargers' plan for Quentin Johnston is getting the most out of the 2023 top pick**\
 `Johnson's two touchdowns Sunday against the Panthers matched his total from his entire rookie season.`\
-https://nytimes.com/athletic/5772068/2024/09/16/chargers-quentin-johnson-panthers-touchdowns/
+https://nytimes.com/athletic/5772068/2024/09/16/chargers-quentin-johnston-panthers-touchdowns/
 
 **Dolphins signing QB Huntley; no decision on IR for Tagovailoa**\
 `McDaniel added that he would let "Tua speak on Tua's career" when asked if the quarterback intended to continue playing.`\
