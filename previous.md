@@ -1,3 +1,11 @@
+**Jones: Despite similar timelines, Texans and Bears seem light-years apart**\
+`Sunday night’s performance offered glimpses of the juggernaut that the Texans can become as early as this year.`\
+https://nytimes.com/athletic/5770580/2024/09/16/jones-texans-and-bears/
+
+**Is WAR the answer? How one advanced metric has come to dominate MVP voting**\
+`MVP voters are increasingly voting in a way that makes the award results look like a WAR chart. `\
+https://nytimes.com/athletic/5768651/2024/09/16/mlb-mvp-voting-war-statistic/
+
 **PSG condemn 'totally unacceptable' online racist abuse towards Mendes**\
 `Paris Saint-Germain have offered their &#8220;full support&#8221; to defender Nuno Mendes after the defender was racially abused online.`\
 https://nytimes.com/athletic/5770590/2024/09/16/nuno-mendes-psg-racism/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/16/us/politics/senate-democrats-black-women.html
 **One Blue Feather. A Changed World?**\
 `In my lowest moments, I look to the people who have devoted their lives to pursuing justice no matter what.`\
 https://nytimes.com/2024/09/16/opinion/hope-social-problems-justice.html
-
-**Will Nebraska's revamped offense be enough in Big Ten play?**\
-`Is it still “bowl game or bust” in 2024? Or is Nebraska actually a dark horse candidate for the College Football Playoff?`\
-https://nytimes.com/athletic/5769003/2024/09/16/nebraska-college-football-dylan-raiola-big-ten-illinois/
-
-**We Cannot Go On Like This**\
-`Is there a way for us to make the “American berserk” a little less ... berserk?`\
-https://nytimes.com/2024/09/16/opinion/trump-harris-attempted-assassination-debate.html
 

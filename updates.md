@@ -1,3 +1,11 @@
+**Jones: Despite similar timelines, Texans and Bears seem light-years apart**\
+`Sunday night’s performance offered glimpses of the juggernaut that the Texans can become as early as this year.`\
+https://nytimes.com/athletic/5770580/2024/09/16/jones-texans-and-bears/
+
+**Is WAR the answer? How one advanced metric has come to dominate MVP voting**\
+`MVP voters are increasingly voting in a way that makes the award results look like a WAR chart. `\
+https://nytimes.com/athletic/5768651/2024/09/16/mlb-mvp-voting-war-statistic/
+
 **PSG condemn 'totally unacceptable' online racist abuse towards Mendes**\
 `Paris Saint-Germain have offered their &#8220;full support&#8221; to defender Nuno Mendes after the defender was racially abused online.`\
 https://nytimes.com/athletic/5770590/2024/09/16/nuno-mendes-psg-racism/
