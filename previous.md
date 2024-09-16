@@ -1,3 +1,12 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`This week brings Arch Manning&#8217;s (likely) first career start, Oklahoma&#8217;s first SEC game and USC&#8211;Michigan.
+What&#8217;s on your mind? Leave your questions here.`\
+https://nytimes.com/athletic/5772351/2024/09/16/submit-a-question-for-stewart-mandels-college-football-mailbag-273/
+
+**49ers minutia minute: Rookies Malik Mustapha, Renardo Green got snaps in Minnesota**\
+`A development from Sunday's game: Defensive end Yetur Gross-Matos seemed to eat into Leonard Floyd's snaps as the game went on.`\
+https://nytimes.com/athletic/5771925/2024/09/16/49ers-snap-counts-deebo-samuel-injury/
+
 **Emmy Viewership Rises to 6.9 Million Viewers**\
 `The uptick puts the Emmys among the award shows, such as the Oscars, that have had audience gains in the past few years.`\
 https://nytimes.com/2024/09/16/business/media/emmy-viewership-nielsen.html
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/5772222/2024/09/16/justin-ishbia-michigan-state-don
 **What We Know About the Trump Suspect**\
 `Plus, how FX ruled the Emmys`\
 https://nytimes.com/2024/09/16/briefing/trump-suspect-tiktok-europe-floods-titan-submersible.html
-
-**What’s Your Favorite NYT Cooking Recipe? We Want to Know.**\
-`To celebrated the app’s 10th anniversary, we shared a wide-ranging list of the best recipes. Tell us which ones you love most.`\
-https://nytimes.com/2024/09/16/dining/nyt-favorite-cooking-recipes-anniversary.html
-
-**Black Voters Matter Says It Will Spend $15 Million in Battleground States**\
-`The nonpartisan group will mount a voter mobilization effort that includes radio ads, billboards and on-the-ground canvassing operations, with a focus on early voting.`\
-https://nytimes.com/2024/09/16/us/politics/black-voters-matter-voting-ads.html
 

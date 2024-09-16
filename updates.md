@@ -1,3 +1,12 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`This week brings Arch Manning&#8217;s (likely) first career start, Oklahoma&#8217;s first SEC game and USC&#8211;Michigan.
+What&#8217;s on your mind? Leave your questions here.`\
+https://nytimes.com/athletic/5772351/2024/09/16/submit-a-question-for-stewart-mandels-college-football-mailbag-273/
+
+**49ers minutia minute: Rookies Malik Mustapha, Renardo Green got snaps in Minnesota**\
+`A development from Sunday's game: Defensive end Yetur Gross-Matos seemed to eat into Leonard Floyd's snaps as the game went on.`\
+https://nytimes.com/athletic/5771925/2024/09/16/49ers-snap-counts-deebo-samuel-injury/
+
 **North Carolina Absentee Ballots Delayed After Fight Over RFK Jr.**\
 `After dropping out of the race and endorsing Donald Trump, Robert F. Kennedy Jr. has been fighting in court to remove his name from ballots in several states.`\
 https://nytimes.com/2024/09/16/us/north-carolina-election-ballots-rfk-jr.html
