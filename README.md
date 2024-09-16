@@ -1,3 +1,7 @@
+**The Emmys celebrate ‘Happy Days’ at 50.**\
+`By Jeremy Egner`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/emmys-happy-days-howard-winkler
+
 **How the U.S. came together and won the Solheim Cup**\
 `Unity was the theme of the week for the U.S. "From the moment this team was together, they were together."`\
 https://nytimes.com/athletic/5770065/2024/09/15/united-states-solheim-cup-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769707/2024/09/15/colts-packers-loss-0-2-contender
 **Aaron Rodgers powered a gutty first Jets win — it came at a great cost**\
 `NASHVILLE — Sometimes Aaron Rodgers will simply give a look — Breece Hall calls it a long stare — to let his teammates know they messed up.`\
 https://nytimes.com/athletic/5769724/2024/09/15/jets-aaron-rodgers-first-win-defense-injuries/
-
-**Suspected Gunman Said He Was Willing to Fight and Die in Ukraine**\
-`Ryan Wesley Routh, 58, told The New York Times in 2023 that he had traveled to Ukraine and wanted to recruit Afghan soldiers to fight there.`\
-https://nytimes.com/2024/09/15/us/politics/trump-shooting-suspect-routh.html
 
