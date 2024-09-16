@@ -1,6 +1,6 @@
 **In a surprise, Liza Colón-Zayas wins her first Emmy.**\
 `Actre`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/in-a-surprise-liza-colon-zayas-wins-her-first-emmy
+https://nytimes.com/2024/09/15/arts/television/in-a-surprise-liza-colon-zayas-wins-her-first-emmy.html
 
 **Brian Daboll's bungling of Graham Gano's injury emblematic of mismanaged Giants in his tenure**\
 `The benefit of the doubt from this regime's Year 1 success has faded. Daboll needs to figure out how to pull the team out of this spiral.`\
@@ -20,7 +20,7 @@ https://nytimes.com/2024/09/15/arts/tommy-cash-dead.html
 
 **Eugene and Dan Levy open the Emmys with playful jokes.**\
 `By Julia Jacobs`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/eugene-daniel-levy-emmys-opening-monologue
+https://nytimes.com/2024/09/15/arts/television/eugene-daniel-levy-emmys-opening-monologue.html
 
 **Seahawks find their closer mentality just in time, escape New England with OT win**\
 `Two weeks into the season, the Seahawks are the only undefeated team left in the NFC West. `\
