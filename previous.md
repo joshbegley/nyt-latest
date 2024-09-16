@@ -1,3 +1,11 @@
+**The Chinese Chipmaker at the Heart of the U.S.-China Tech War**\
+`Efforts by the Beijing-backed Semiconductor Manufacturing International Corporation, or SMIC, to break through innovation barriers have landed it in a geopolitical tech battle.`\
+https://nytimes.com/2024/09/16/technology/smic-china-us-trade-war.html
+
+**Economy Still Weighs on Nevada as Harris and Trump Seek an Edge**\
+`The state is among a handful that will decide the presidential contest, and workers have felt increased prices at the grocery store and gas station.`\
+https://nytimes.com/2024/09/16/business/economy/nevada-economy-unemployment-election.html
+
 **Canadiens rookie camp: Reinbacher’s sphere of influence, Nicholas summer camp**\
 `The growth of Reinbacher's self-awareness, Josh Anderson putting in the work this summer and advice on defending Lane Hutson.`\
 https://nytimes.com/athletic/5770495/2024/09/16/canadiens-rookie-camp-david-reinbacher/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5771353/2024/09/16/man-utd-injury-news-martinez-maz
 **The Windup: Awkward situation in San Fran**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5771378/2024/09/16/farhan-zaidi-san-francisco-giants-the-windup/
-
-**Chelsea's Ingle suffers ACL injury**\
-`Chelsea midfielder Sophie Ingle is set for an extended period on the sidelines after sustaining an anterior cruciate ligament (ACL) injury during pre-season.`\
-https://nytimes.com/athletic/5771316/2024/09/16/sophie-ingle-chelsea-acl-injury/
-
-**Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
-`Let us know what's on your mind as the Broncos prepare to embark on a two-game East Coast road trip.`\
-https://nytimes.com/athletic/5771315/2024/09/16/broncos-mailbag-questions-week-3/
 

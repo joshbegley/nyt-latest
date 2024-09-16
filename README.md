@@ -1,3 +1,7 @@
+**A.I. Pioneers Call for Protections Against ‘Catastrophic Risks’**\
+`Scientists from the United States, China and other nations called for an international authority to oversee artificial intelligence.`\
+https://nytimes.com/2024/09/16/business/china-ai-safety.html
+
 **The Chinese Chipmaker at the Heart of the U.S.-China Tech War**\
 `Efforts by the Beijing-backed Semiconductor Manufacturing International Corporation, or SMIC, to break through innovation barriers have landed it in a geopolitical tech battle.`\
 https://nytimes.com/2024/09/16/technology/smic-china-us-trade-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5770372/2024/09/16/sf-giants-heliot-ramos-splash-hi
 **Martinez, Mazraoui avoid injuries but Hojlund, Mount still out for Man Utd**\
 `Manchester United defenders Lisandro Martinez and Noussair Mazraoui are available for Tuesday’s Carabao Cup game against Barnsley.`\
 https://nytimes.com/athletic/5771353/2024/09/16/man-utd-injury-news-martinez-mazraoui/
-
-**The Windup: Awkward situation in San Fran**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5771378/2024/09/16/farhan-zaidi-san-francisco-giants-the-windup/
 
