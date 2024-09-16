@@ -1,3 +1,11 @@
+**Justin Ishbia donates $10 million to Michigan State athletics, with baseball scoring big**\
+`A sizable chunk — $1.5 million — is specifically aimed at refurbishing and upgrading the school’s baseball stadium.`\
+https://nytimes.com/athletic/5772222/2024/09/16/justin-ishbia-michigan-state-donation/
+
+**What We Know About the Trump Suspect**\
+`Plus, how FX ruled the Emmys`\
+https://nytimes.com/2024/09/16/briefing/trump-suspect-tiktok-europe-floods-titan-submersible.html
+
 **What’s Your Favorite NYT Cooking Recipe? We Want to Know.**\
 `To celebrated the app’s 10th anniversary, we shared a wide-ranging list of the best recipes. Tell us which ones you love most.`\
 https://nytimes.com/2024/09/16/dining/nyt-favorite-cooking-recipes-anniversary.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/dining/best-nyt-cooking-recipes.html
 **A farmer in Hawaii recalls a 2022 business dispute with the suspect that turned strange.**\
 `By Kurt Streeter`\
 https://nytimes.com/live/2024/09/16/us/trump-shooting-news/a-farmer-in-hawaii-recalls-a-2022-business-dispute-with-the-suspect-that-turned-strange
-
-**Tuesday Briefing: Suspect is Charged in Apparent Trump Shooting Attempt**\
-`Plus, why you should binge “Shogun.”`\
-https://nytimes.com/2024/09/16/briefing/trump-shooting-titan-china.html
-
-**Healing or Hurtful? Police Training Featuring Convicted Officer Is Canceled.**\
-`Kim Potter, who fatally shot Daunte Wright during a traffic stop, had been scheduled to talk to officers in Washington State about the use of force.`\
-https://nytimes.com/2024/09/16/us/kimberly-potter-daunte-wright-police-training.html
 
