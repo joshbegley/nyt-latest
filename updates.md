@@ -1,3 +1,7 @@
+**Canadiens rookie camp: Reinbacher’s sphere of influence, Nicholas summer camp**\
+`The growth of Reinbacher's self-awareness, Josh Anderson putting in the work this summer and advice on defending Lane Hutson.`\
+https://nytimes.com/athletic/5770495/2024/09/16/canadiens-rookie-camp-david-reinbacher/
+
 **Guns and the Trump Assassination Attempt**\
 `Readers criticize the country’s lax gun laws. Also: “The Power Broker” at 50; air-conditioning; phones in school; polluting cruise ships; still summer.`\
 https://nytimes.com/2024/09/16/opinion/trump-assassination-attempt-guns.html
