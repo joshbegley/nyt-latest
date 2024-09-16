@@ -1,3 +1,7 @@
+**Dehner Jr.: Peel back Bengals' emotion and a far more critical reality emerged vs. Chiefs**\
+`Sunday's defeat was a bitter pill for Cincinnati to swallow, but the team was back to looking like a contender in a tight affair.`\
+https://nytimes.com/athletic/5770299/2024/09/15/bengals-chiefs-loss-emotion-0-2-start/
+
 **Marvin Harrison Jr., after underwhelming debut, breaks out for Cardinals in Week 2**\
 `Marvin Harrison Jr. is a serious person who never strays from routine. Even so, his head coach admitted: "It was good to see him smile."`\
 https://nytimes.com/athletic/5770076/2024/09/15/marvin-harrison-jr-arizona-cardinals-touchdown-breakout/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5770076/2024/09/15/marvin-harrison-jr-arizona-cardi
 https://nytimes.com/2024/09/15/arts/television/hacks-emmy-best-comedy.html
 
 **‘Shogun’ Wins Best Drama, Capping a Big Night**\
-`The win capped a successful evening for the FX series, set in feudal Japan, which picked up several other major Emmys on Sunday.`\
+`The win capped a successful evening for the mostly subtitled FX series, which picked up several major Emmys on Sunday.`\
 https://nytimes.com/2024/09/15/arts/television/shogun-emmy-best-drama.html
 
 **16 Unforgettable Looks at the Emmys**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769851/2024/09/15/browns-win-jaguars-defense/
 **Bob Newhart, the Everyman comedian who died this year, is honored.**\
 `By Matt Stevens`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/bob-newhart-the-everyman-comedian-who-died-this-year-is-honored
-
-**With Giants ownership impatient, Buster Posey took leading role in Matt Chapman talks: Sources**\
-`Giants' ownership identified extending Chapman as a priority. When negotiations stalled, Posey went to Chapman directly to come to a deal.`\
-https://nytimes.com/athletic/5770168/2024/09/15/sf-giants-matt-chapman-buster-posey-negotiations/
 
