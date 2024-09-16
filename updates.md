@@ -1,3 +1,15 @@
+**49ers' Deebo Samuel to miss 'a couple weeks' with calf injury**\
+`Samuel sustained a calf strain late in Sunday's 23-17 loss to the Vikings, coach Kyle Shanahan said Monday.`\
+https://nytimes.com/athletic/5772330/2024/09/16/deebo-samuel-49ers-calf-injury/
+
+**Man Arrested at Trump Golf Course Had a History of Crusading for Causes**\
+`Interviews, records and a self-aggrandizing book suggest that Ryan Routh, a peripatetic builder, saw himself as an influential participant in momentous world events.`\
+https://nytimes.com/2024/09/16/us/trump-suspect-golf-course-routh.html
+
+**Lucas Raymond signs eight-year extension with Red Wings: What it means and what's next**\
+`The Red Wings signed Raymond to a long-term deal Monday night just days before camp opens. What does the deal mean for Detroit?`\
+https://nytimes.com/athletic/5579464/2024/09/16/red-wings-lucas-raymond-contract-extension/
+
 **Tony Robbins: Motivational Speaker, Author … Hotelier?**\
 `The self-help guru is joining the hotel mogul Sam Nazarian to open a chain of luxury preventive-medicine resorts, aiming for a slice of the $5.6 trillion wellness industry.`\
 https://nytimes.com/2024/09/16/travel/tony-robbins-hotel-estate.html
