@@ -1,3 +1,7 @@
+**Bob Newhart, the Everyman comedian who died this year, is honored.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/bob-newhart-the-everyman-comedian-who-died-this-year-is-honored
+
 **Rodrigue: 'Humbling' day for Rams featured too few answers and fundamentals, not enough physicality**\
 `The Rams didn't have answers for Kyler Murray and the Cardinals' offense and star receiver Cooper Kupp exited with a lower leg injury.`\
 https://nytimes.com/athletic/5769768/2024/09/15/la-rams-humbling-loss-cardinals-whats-next/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769674/2024/09/15/raiders-davante-adams-ravens-win
 **Officer and 3 Others Injured by Police Gunfire in Subway Station Clash**\
 `When officers shot a man wielding a knife on a platform in Brooklyn, an officer and two bystanders were also hit, the police said. One bystander was in critical condition.`\
 https://nytimes.com/2024/09/15/nyregion/officer-shot-brooklyn-subway.html
-
-**Hard to take Colts seriously after they were steamrolled by Jordan Love-less Packers**\
-`Anyone who bought what the Colts were selling before the season might want a refund now. Indy is 0-2 after its humiliating loss Sunday.`\
-https://nytimes.com/athletic/5769707/2024/09/15/colts-packers-loss-0-2-contender-doubt/
 
