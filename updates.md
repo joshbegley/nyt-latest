@@ -1,3 +1,7 @@
+**Rodrigue: 'Humbling' day for Rams featured too few answers and fundamentals, not enough physicality**\
+`The Rams didn't have answers for Kyler Murray and the Cardinals' offense and star receiver Cooper Kupp exited with a lower leg injury.`\
+https://nytimes.com/athletic/5769768/2024/09/15/la-rams-humbling-loss-cardinals-whats-next/
+
 **The Emmys celebrate ‘Happy Days’ at 50.**\
 `By Jeremy Egner`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/emmys-happy-days-howard-winkler
