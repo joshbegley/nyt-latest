@@ -1,3 +1,7 @@
+**Lamine Yamal's art and graft sparks Barcelona's most impressive victory yet**\
+`The 17-year-old winger was the key figure in another impressive Barcelona victory this early season`\
+https://nytimes.com/athletic/5770535/2024/09/16/barcelona-lamine-yamal-la-liga-girona/
+
 **What We Know About the Apparent Assassination Attempt Against Trump**\
 `Secret Service agents fired on a man who had a rifle and was hiding in bushes around a Trump golf club in Florida, officials said. Former President Donald J. Trump was unhurt.`\
 https://nytimes.com/2024/09/16/us/trump-assassination-attempt-suspect.html
