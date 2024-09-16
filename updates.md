@@ -1,3 +1,11 @@
+**Trump, Outrage and the Modern Era of Political Violence**\
+`The latest apparent assassination attempt against the former president indicates how much the American political landscape has been shaped by anger stirred by him and against him.`\
+https://nytimes.com/2024/09/16/us/politics/trump-violence-assassination-attempt.html
+
+**NFL Week 3 odds, schedule: Saints, Bucs trending up, Ravens facing a gut check**\
+`The NFL Week 3 odds are out, with several close, competitive games on the schedule ahead. `\
+https://nytimes.com/athletic/5771496/2024/09/16/nfl-week-3-odds-spreads-schedule/
+
 **Suspect in Attempt on Trump’s Life Spent Nearly 12 Hours Near Golf Course, Phone Records Show**\
 `Ryan W. Routh’s cellphone was near the former president’s golf club in Florida beginning at 1:59 a.m. on Sunday, according to a federal criminal complaint.`\
 https://nytimes.com/2024/09/16/us/politics/trump-golf-course-shooting-suspect-phone-records.html
