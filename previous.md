@@ -1,3 +1,7 @@
+**The Athletic FC: How Arsenal cornered Spurs, Man City case begins, Brady vs Reynolds**\
+`Today in TAFC: How Arsenal cornered Tottenham, Brady vs Reynolds in EFL and Manchester City's legal battle against PL begins.`\
+https://nytimes.com/athletic/5770705/2024/09/16/arsenal-tottenham-man-city-charges-brady-reynolds/
+
 **Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
 `Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
 https://nytimes.com/athletic/5770625/2024/09/16/newcastle-transfers-barnes-tonali/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768595/2024/09/16/edmonton-oilers-roster-training-
 **Inspired by doubters, Maxx Crosby leads Raiders defense in resilient win over Ravens**\
 `Las Vegas' leader on defense had six tackles, four TFLs, two sacks and a pass breakup. And a celebratory cigar after the upset win.`\
 https://nytimes.com/athletic/5769581/2024/09/16/raiders-ravens-maxx-crosby-defense-comeback/
-
-**A Second Attempted Assassination of Donald Trump**\
-`What we know about the episode and the suspect.`\
-https://nytimes.com/2024/09/16/briefing/donald-trump-attempted-assassination.html
 
