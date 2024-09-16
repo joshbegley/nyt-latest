@@ -1,3 +1,11 @@
+**How could Manchester City be punished if they lose 115 charges case?**\
+`Exoneration? A settlement? A fine - or even relegation? We analyse the possible outcomes of City's fight with the Premier League`\
+https://nytimes.com/athletic/5770700/2024/09/16/manchester-city-punishment-115-premier-league/
+
+**2 N.Y.C. Fire Department Chiefs Arrested on Bribery Charges**\
+`The officials, who oversaw safety inspections, are accused of taking tens of thousands of dollars in connection with building projects.`\
+https://nytimes.com/2024/09/16/nyregion/nyc-fdny-bribery-arrest.html
+
 **Warnings Issued as Storm Looms Near the Carolinas**\
 `The storm system could become the next named storm, Helene, on Monday. Forecasters are warning of floods and storm surge along the Carolina coasts hit hard by Debby in August.`\
 https://nytimes.com/2024/09/16/weather/storm-warnings-north-south-carolina.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/16/world/europe/ukraine-russia-kyiv-drone-attack.htm
 **FPL: What we learned from Gameweek 4 - Joao Pedro pain and 'Pep Roulette'**\
 `Abdul Rehman assesses the main talking points from Gameweek 4 and what they could mean for your team `\
 https://nytimes.com/athletic/5769443/2024/09/16/fantasy-premier-league-gw4-joao-pedro-eze-watkins/
-
-**Gary Shaw: Former Aston Villa striker dies aged 63**\
-`Gary Shaw, the former Aston Villa striker, has died at the age of 63.`\
-https://nytimes.com/athletic/5768804/2024/09/16/gary-shaw-aston-villa/
-
-**Coe, Coventry lead shortlist to be next IOC president**\
-`The International Olympic Committee (IOC) has confirmed a seven-person shortlist of candidates to succeed Thomas Bach as president.`\
-https://nytimes.com/athletic/5770878/2024/09/16/ioc-president-shortlist-next/
 
