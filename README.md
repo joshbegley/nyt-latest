@@ -1,3 +1,7 @@
+**U.S. Awards Intel $3 Billion for Military Supply Program**\
+`The Biden administration announced an award for the struggling chipmaker as part of an effort to establish secure supply sources for the Pentagon.`\
+https://nytimes.com/2024/09/16/us/politics/intel-chips-semiconductor-grant.html
+
 **Trump, Using Harsh Language, Urges Democrats to Tone Down Theirs**\
 `The authorities have not provided information about the gunman’s motive in the apparent assassination attempt on Sunday, yet former President Donald J. Trump, who has his own history of using violent language, sought to blame Democrats.`\
 https://nytimes.com/2024/09/16/us/politics/trump-blames-democrats-gunman-golf-course.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/arts/ufo-50-yars-rising-review.html
 **Academic Plagiarism Complaint Against the Author of ‘White Fragility’ Dismissed**\
 `In a letter, the University of Washington stated that the evidence presented in the confidential complaint failed to meet the institution’s criteria for plagiarism.`\
 https://nytimes.com/2024/09/16/books/robin-diangelo-plagiarism-charge-dismissed.html
-
-**Farewell to a Lost Love of Lunches Past: Liverwurst**\
-`For me, the decision by Boar’s Head to end production is just the latest blow to a somewhat squishy slice of national and personal history.`\
-https://nytimes.com/2024/09/16/dining/liverwurst.html
 
