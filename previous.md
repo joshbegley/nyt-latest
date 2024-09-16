@@ -1,3 +1,11 @@
+**Russia Ramps Up Air Assault on Ukrainian Cities**\
+`An attack on Kyiv early Monday was the eighth on the Ukrainian capital in about two weeks, officials said, adding that most of the incoming Russian drones had been intercepted.`\
+https://nytimes.com/2024/09/16/world/europe/ukraine-russia-kyiv-drone-attack.html
+
+**FPL: What we learned from Gameweek 4 - Joao Pedro pain and 'Pep Roulette'**\
+`Abdul Rehman assesses the main talking points from Gameweek 4 and what they could mean for your team `\
+https://nytimes.com/athletic/5769443/2024/09/16/fantasy-premier-league-gw4-joao-pedro-eze-watkins/
+
 **Gary Shaw: Former Aston Villa striker dies aged 63**\
 `Gary Shaw, the former Aston Villa striker, has died at the age of 63.`\
 https://nytimes.com/athletic/5768804/2024/09/16/gary-shaw-aston-villa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5770651/2024/09/16/spurs-space-allowed-issue/
 **How Notre Dame got the trains running on time again: Final thoughts on Purdue**\
 `Notre Dame bounced back in a big way against Purdue. How did that happen? And how can the Irish keep it going?`\
 https://nytimes.com/athletic/5770761/2024/09/16/notre-dame-football-purdue-riley-leonard/
-
-**Are Voters Feeling Better About the Economy?**\
-`After another tumultuous weekend in the presidential campaign, Americans are still largely focused on their finances, new surveys show. That could give an edge to Vice President Kamala Harris.`\
-https://nytimes.com/2024/09/16/business/dealbook/voters-harris-trump-economy.html
-
-**Padres takeaways: Fernando Tatis Jr.’s left leg, Brandon Lockridge’s first impression**\
-`Why Tatis' leg injury probably isn't related to one he suffered as a child, and how Lockridge developed into a base-stealing threat.`\
-https://nytimes.com/athletic/5770447/2024/09/16/padres-fernando-tatis-jr-leg-brandon-lockridge/
 

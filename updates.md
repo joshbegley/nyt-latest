@@ -1,3 +1,11 @@
+**Russia Ramps Up Air Assault on Ukrainian Cities**\
+`An attack on Kyiv early Monday was the eighth on the Ukrainian capital in about two weeks, officials said, adding that most of the incoming Russian drones had been intercepted.`\
+https://nytimes.com/2024/09/16/world/europe/ukraine-russia-kyiv-drone-attack.html
+
+**FPL: What we learned from Gameweek 4 - Joao Pedro pain and 'Pep Roulette'**\
+`Abdul Rehman assesses the main talking points from Gameweek 4 and what they could mean for your team `\
+https://nytimes.com/athletic/5769443/2024/09/16/fantasy-premier-league-gw4-joao-pedro-eze-watkins/
+
 **Gary Shaw: Former Aston Villa striker dies aged 63**\
 `Gary Shaw, the former Aston Villa striker, has died at the age of 63.`\
 https://nytimes.com/athletic/5768804/2024/09/16/gary-shaw-aston-villa/
