@@ -1,3 +1,7 @@
+**PSG condemn 'totally unacceptable' online racist abuse towards Mendes**\
+`Paris Saint-Germain have offered their &#8220;full support&#8221; to defender Nuno Mendes after the defender was racially abused online.`\
+https://nytimes.com/athletic/5770590/2024/09/16/nuno-mendes-psg-racism/
+
 **Can Kirk Cousins, Falcons turn things around in Monday night spotlight? 5 factors**\
 `The Falcons will play on "Monday Night Football" for the first time since 2020 when they visit the Eagles in Philadelphia.`\
 https://nytimes.com/athletic/5765490/2024/09/16/kirk-cousins-falcons-eagles-monday-night/

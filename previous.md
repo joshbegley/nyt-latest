@@ -1,3 +1,7 @@
+**PSG condemn 'totally unacceptable' online racist abuse towards Mendes**\
+`Paris Saint-Germain have offered their &#8220;full support&#8221; to defender Nuno Mendes after the defender was racially abused online.`\
+https://nytimes.com/athletic/5770590/2024/09/16/nuno-mendes-psg-racism/
+
 **Can Kirk Cousins, Falcons turn things around in Monday night spotlight? 5 factors**\
 `The Falcons will play on "Monday Night Football" for the first time since 2020 when they visit the Eagles in Philadelphia.`\
 https://nytimes.com/athletic/5765490/2024/09/16/kirk-cousins-falcons-eagles-monday-night/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769003/2024/09/16/nebraska-college-football-dylan-
 **We Cannot Go On Like This**\
 `Is there a way for us to make the “American berserk” a little less ... berserk?`\
 https://nytimes.com/2024/09/16/opinion/trump-harris-attempted-assassination-debate.html
-
-**Here Are the 8 First-Time Acting Winners From the Emmys**\
-`Jodie Foster added to her awards collection while the stars of “Shogun” and “Baby Reindeer” helped propel their shows to big nights.`\
-https://nytimes.com/2024/09/16/arts/television/first-time-emmy-winners.html
 
