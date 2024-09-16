@@ -1,3 +1,15 @@
+**Tony Robbins: Motivational Speaker, Author … Hotelier?**\
+`The self-help guru is joining the hotel mogul Sam Nazarian to open a chain of luxury preventive-medicine resorts, aiming for a slice of the $5.6 trillion wellness industry.`\
+https://nytimes.com/2024/09/16/travel/tony-robbins-hotel-estate.html
+
+**It Was Only a Matter of Time Before Abortion Bans Killed Someone**\
+`Why didn’t a Georgia hospital save Amber Nicole Thurman?`\
+https://nytimes.com/2024/09/16/opinion/abortion-bans-death-thurman.html
+
+**What Sherrone Moore's Michigan contract says about NCAA violations**\
+`The Michigan coach did not sign a full contract until Sept. 6. It pays him an average of $5.7 million over five years.`\
+https://nytimes.com/athletic/5772338/2024/09/16/sherrone-moore-contract-michigan-football-ncaa/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `This week brings Arch Manning&#8217;s (likely) first career start, Oklahoma&#8217;s first SEC game and USC&#8211;Michigan.
 What&#8217;s on your mind? Leave your questions here.`\
@@ -24,18 +36,6 @@ https://nytimes.com/athletic/5772178/2024/09/16/tyler-van-dyke-injury-wisconsin-
 https://nytimes.com/2024/09/16/us/north-carolina-election-ballots-rfk-jr.html
 
 **Canadiens have reached a new stage of the rebuild where information is king**\
-`The intentionally vague messaging from the Canadiens to kick off the season depicts a team where the unknown far outweighs the known.`\
+`The intentionally vague messaging from the Canadiens to kick off the season depicts a team for which the unknown far outweighs the known.`\
 https://nytimes.com/athletic/5772136/2024/09/16/canadiens-rebuild-unknown-playoffs/
-
-**Tense Teamsters Meeting With Harris Ends With an Endorsement Still Dangling**\
-`The Teamsters president, Sean O’Brien, indicated he could announce as soon as Wednesday which presidential candidate — if any — the union would back.`\
-https://nytimes.com/2024/09/16/us/politics/teamsters-harris.html
-
-**Justin Ishbia donates $10 million to Michigan State athletics, with baseball scoring big**\
-`A sizable chunk — $1.5 million — is specifically aimed at refurbishing and upgrading the school’s baseball stadium.`\
-https://nytimes.com/athletic/5772222/2024/09/16/justin-ishbia-michigan-state-donation/
-
-**What We Know About the Trump Suspect**\
-`Plus, how FX ruled the Emmys`\
-https://nytimes.com/2024/09/16/briefing/trump-suspect-tiktok-europe-floods-titan-submersible.html
 

@@ -1,3 +1,19 @@
+**Tony Robbins: Motivational Speaker, Author … Hotelier?**\
+`The self-help guru is joining the hotel mogul Sam Nazarian to open a chain of luxury preventive-medicine resorts, aiming for a slice of the $5.6 trillion wellness industry.`\
+https://nytimes.com/2024/09/16/travel/tony-robbins-hotel-estate.html
+
+**It Was Only a Matter of Time Before Abortion Bans Killed Someone**\
+`Why didn’t a Georgia hospital save Amber Nicole Thurman?`\
+https://nytimes.com/2024/09/16/opinion/abortion-bans-death-thurman.html
+
+**What Sherrone Moore's Michigan contract says about NCAA violations**\
+`The Michigan coach did not sign a full contract until Sept. 6. It pays him an average of $5.7 million over five years.`\
+https://nytimes.com/athletic/5772338/2024/09/16/sherrone-moore-contract-michigan-football-ncaa/
+
+**Canadiens have reached a new stage of the rebuild where information is king**\
+`The intentionally vague messaging from the Canadiens to kick off the season depicts a team for which the unknown far outweighs the known.`\
+https://nytimes.com/athletic/5772136/2024/09/16/canadiens-rebuild-unknown-playoffs/
+
 **49ers minutia minute: Deebo Samuel's injury; rookie DBs see action**\
 `A development from Sunday's game: Defensive end Yetur Gross-Matos seemed to eat into Leonard Floyd's snaps as the game went on.`\
 https://nytimes.com/athletic/5771925/2024/09/16/49ers-snap-counts-deebo-samuel-injury/
