@@ -1,3 +1,7 @@
+**‘The Traitors’ ends RuPaul’s reign.**\
+`By Alexis Soloski`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-traitors-ends-rupauls-reign
+
 **Jean Smart wins a third Emmy for ‘Hacks.’**\
 `By Alexis Soloski`\
 https://nytimes.com/2024/09/15/arts/television/jean-smart-emmy-hacks.html
