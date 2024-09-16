@@ -1,3 +1,15 @@
+**Unpicking Wolves' long search for a Premier League clean sheet**\
+`Wolves may have lost to two long-range strikes against Newcastle but their defensive issues are deep-rooted`\
+https://nytimes.com/athletic/5769060/2024/09/16/wolves-premier-league-clean-sheet/
+
+**Ponderous Palace still searching for the patterns and rhythm of last season**\
+`Oliver Glasner wanted a restart of the season on Saturday. But this felt more like a continuation of issues from his side’s previous games`\
+https://nytimes.com/athletic/5767204/2024/09/16/crystal-palace-slow-start-continues/
+
+**This is Newcastle's best start for 29 years - but they're playing poorly. What's going on?**\
+`It is only the sixth occasion that Newcastle have managed to navigate their opening four games of a Premier League season unbeaten`\
+https://nytimes.com/athletic/5768019/2024/09/16/newcastle-wolves-best-start-in-29-years/
+
 **The creative numbers that show Wilfred Ndidi is a viable No 10 for Leicester**\
 `The Leicester midfielder may look unorthodox in attack but he has as many Premier League assists as Mohamed Salah this season`\
 https://nytimes.com/athletic/5767895/2024/09/16/wilfred-ndidi-creator-assists-leicester/
