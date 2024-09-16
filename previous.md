@@ -1,3 +1,7 @@
+**Mikey Varas named first coach in San Diego FC club history**\
+`Varas most recently was the interim head coach of the U.S. men's national team.`\
+https://nytimes.com/athletic/5771574/2024/09/16/mikey-varas-coach-san-diego-fc/
+
 **Falsehoods fly online after thwarted assassination attempt against Trump.**\
 `By Stuart A. Thompson`\
 https://nytimes.com/live/2024/09/16/us/trump-shooting-news/falsehoods-assassination-attempt-trump
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5771238/2024/09/16/usmnt-balogun-pulisic-busio-kole
 **Join the Times’s Climate Event With Jane Goodall, Al Roker and Others**\
 `Sign up to watch the livestream of the Climate Forward conference on Wednesday, Sept. 25.`\
 https://nytimes.com/2024/09/16/climate/join-the-timess-climate-event-with-jane-goodall-al-roker-and-others.html
-
-**In ‘Agatha All Along,’ Joe Locke Works Like a Charm**\
-`A star of the Netflix hit “Heartstopper,” this actor is now joining the Marvel universe.`\
-https://nytimes.com/2024/09/16/arts/television/agatha-all-along-joe-locke.html
 

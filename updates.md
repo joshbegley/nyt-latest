@@ -1,3 +1,7 @@
+**Mikey Varas named first coach in San Diego FC club history**\
+`Varas most recently was the interim head coach of the U.S. men's national team.`\
+https://nytimes.com/athletic/5771574/2024/09/16/mikey-varas-coach-san-diego-fc/
+
 **Falsehoods fly online after thwarted assassination attempt against Trump.**\
 `By Stuart A. Thompson`\
 https://nytimes.com/live/2024/09/16/us/trump-shooting-news/falsehoods-assassination-attempt-trump
