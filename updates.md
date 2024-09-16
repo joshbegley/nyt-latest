@@ -1,3 +1,7 @@
+**Jane’s Addiction to Cancel Tour After Onstage Fight**\
+`In a social media post, the rock band said it was halting its reunion tour after the group’s singer, Perry Farrell, hit its guitarist at a Boston show.`\
+https://nytimes.com/2024/09/16/arts/music/janes-addiction-tour-canceled.html
+
 **Suspect’s Self-Published Book Assails Trump, Hinting at Approval of His Killing**\
 `The book, “Ukraine’s Unwinnable War,” calls the former president a “buffoon” and vents anger over Iran, but saves its most vitriolic language for President Vladimir V. Putin of Russia.`\
 https://nytimes.com/2024/09/16/us/politics/trump-assassination-suspect-book.html
