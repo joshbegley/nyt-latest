@@ -1,3 +1,23 @@
+**The Briefing: Should Postecoglou be more like Arteta? Liverpool loss just a blip? And EFL chaos**\
+`The big talking points from the weekend's football - including Postecoglou's stubbornness, Slot's slip, and the beauty of EFL`\
+https://nytimes.com/athletic/5768897/2024/09/16/the-briefing-postecoglou-liverpool-efl-chaos/
+
+**Explaining the lost generation of footballers who came after Messi and Ronaldo**\
+`The 1980s and 2000s have produced plenty of star players - but it's a very different story for those born in the 1990s`\
+https://nytimes.com/athletic/5768026/2024/09/16/football-lost-generation-messi-ronaldo-ballon-dor/
+
+**City vs the Premier League - explaining the 115* charges and how long the case will take**\
+`The Premier League's case against Manchester City begins today - this is everything you need to know about what is being contested`\
+https://nytimes.com/athletic/5762324/2024/09/16/manchester-city-charges-explained/
+
+**How Nottingham Forest won at Liverpool for the first time since 1969**\
+`This felt like a landmark win for Nottingham Forest - here's how they did it`\
+https://nytimes.com/athletic/5767904/2024/09/16/nottingham-forest-liverpool-anfield-belief/
+
+**The Business of Football: The real story behind UEFA's Champions League video**\
+`Zlatan Ibrahimovic channels his inner John Malkovich, Dozy Mmobuosi is back, a revolutionary idea for English football and more`\
+https://nytimes.com/athletic/5755577/2024/09/16/nfl-champions-league-ibrahimovic-textor/
+
 **Dodgers break a rotten spell with a meeting and a massive ninth inning**\
 `Mookie Betts on the manager's message for the skidding Dodgers: “Keep fighting and things will turn eventually.”`\
 https://nytimes.com/athletic/5770352/2024/09/16/dodgers-dave-roberts-braves/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5770162/2024/09/16/fantasy-football-week-2-takeaway
 **The price of success: How last season’s overperformers have rebuilt for the Champions League**\
 `How many of the success stories of last season saw their squads plundered by big-name rivals over the summer`\
 https://nytimes.com/athletic/5758252/2024/09/16/the-price-of-success-how-last-seasons-overperformers-have-had-to-rebuild-for-the-champions-league/
-
-**Why I joined - by The Athletic's new women's football writer Megan Feringa**\
-`Megan Feringa is The Athletic's new women's football writer - this is why she joined and what she hopes to achieve`\
-https://nytimes.com/athletic/5766789/2024/09/16/megan-feringa-why-i-joined/
-
-**Monday Briefing**\
-`A second assassination attempt against Donald Trump.`\
-https://nytimes.com/2024/09/16/briefing/trump-assassination-hostages.html
-
-**In New York Case, Signs of a Familiar China Playbook**\
-`Linda Sun is just the latest member of the Chinese diaspora whom Beijing is accused of recruiting to influence Western democracies.`\
-https://nytimes.com/2024/09/16/world/asia/in-new-york-case-signs-of-a-familiar-china-playbook.html
-
-**Top takeaways as Texans escape Bears, stifle Caleb Williams**\
-`Williams threw his first (and second) interception of his NFL career against the Texans — and behind a wobbly Chicago offensive line.`\
-https://nytimes.com/athletic/5770011/2024/09/16/texans-bears-takeaways-result/
-
-**Quote of the Day: It’s Stacking Up to Be Quite A Sports Memorabilia Find**\
-`Quotation of the Day for Monday, September 16, 2024.`\
-https://nytimes.com/2024/09/16/pageoneplus/quote-of-the-day-its-stacking-up-to-be-quite-a-sports-memorabilia-find.html
 
