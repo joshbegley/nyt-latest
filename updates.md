@@ -1,3 +1,11 @@
+**Bob Newhart, the Everyman comedian who died this year, is honored.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/bob-newhart-the-everyman-comedian-who-died-this-year-is-honored
+
+**Candice Bergen Lands a Political Jab With a ‘Murphy Brown’ Quip**\
+`By Matt Stevens`\
+https://nytimes.com/2024/09/15/arts/television/candice-bergen-emmys.html
+
 **Rodrigue: 'Humbling' day for Rams featured too few answers and fundamentals, not enough physicality**\
 `The Rams didn't have answers for Kyler Murray and the Cardinals' offense and star receiver Cooper Kupp exited with a lower leg injury.`\
 https://nytimes.com/athletic/5769768/2024/09/15/la-rams-humbling-loss-cardinals-whats-next/
