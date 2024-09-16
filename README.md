@@ -1,3 +1,7 @@
+**The rifle found at Trump’s golf course is relatively cheap and niche compared with the AR-15.**\
+`By Thomas Gibbons-Neff`\
+https://nytimes.com/live/2024/09/16/us/trump-shooting-news/the-rifle-found-at-trumps-golf-course-is-relatively-cheap-and-niche-compared-with-the-ar-15
+
 **Suspect Never Took a Shot at Trump but Hid Undetected for 12 Hours**\
 `Ryan Wesley Routh was charged with two federal gun crimes a day after Secret Service agents fired on him as he pointed a rifle toward the golf course where former President Donald Trump was playing.`\
 https://nytimes.com/2024/09/16/us/politics/investigation-trump-assassination-attempt.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5772338/2024/09/16/sherrone-moore-contract-michigan
 `This week brings Arch Manning&#8217;s (likely) first career start, Oklahoma&#8217;s first SEC game and USC&#8211;Michigan.
 What&#8217;s on your mind? Leave your questions here.`\
 https://nytimes.com/athletic/5772351/2024/09/16/submit-a-question-for-stewart-mandels-college-football-mailbag-273/
-
-**49ers minutia minute: Deebo Samuel's injury; rookie DBs see action**\
-`A development from Sunday's game: Defensive end Yetur Gross-Matos seemed to eat into Leonard Floyd's snaps as the game went on.`\
-https://nytimes.com/athletic/5771925/2024/09/16/49ers-snap-counts-deebo-samuel-injury/
 
