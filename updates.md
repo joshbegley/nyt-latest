@@ -1,3 +1,7 @@
+**A.I. Pioneers Call for Protections Against ‘Catastrophic Risks’**\
+`Scientists from the United States, China and other nations called for an international authority to oversee artificial intelligence.`\
+https://nytimes.com/2024/09/16/business/china-ai-safety.html
+
 **The Chinese Chipmaker at the Heart of the U.S.-China Tech War**\
 `Efforts by the Beijing-backed Semiconductor Manufacturing International Corporation, or SMIC, to break through innovation barriers have landed it in a geopolitical tech battle.`\
 https://nytimes.com/2024/09/16/technology/smic-china-us-trade-war.html
