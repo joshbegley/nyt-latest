@@ -6,7 +6,7 @@ https://nytimes.com/2024/09/16/us/politics/trump-blames-democrats-gunman-golf-co
 `Liverpool goalkeeper Alisson criticised the new Champions League format and believes player welfare is being ignored.`\
 https://nytimes.com/athletic/5771839/2024/09/16/alisson-liverpool-champions-league/
 
-**For Younger Workers to Get Ahead, do Boomers Just Need to Retire?**\
+**For Younger Workers to Get Ahead, Do Boomers Just Need to Retire?**\
 `The pay gap between older and younger workers has widened. The solutions aren’t obvious.`\
 https://nytimes.com/2024/09/16/opinion/baby-boomers-retirement.html
 
