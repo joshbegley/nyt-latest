@@ -1,3 +1,7 @@
+**Mexico’s Contentious Judiciary Overhaul Becomes Law**\
+`Going forward, Mexican voters will now elect judges at every level, dramatically restructuring the third branch of government.`\
+https://nytimes.com/2024/09/15/world/americas/mexico-overhaul-judiciary-law.html
+
 **Commanders lean on backfied duo of Brian Robinson, Austin Ekeler to squeeze by Giants**\
 `The two running backs combined for 221 of Washington's 425 total yards and helped take some of the pressure off Jayden Daniels. `\
 https://nytimes.com/athletic/5769703/2024/09/15/commanders-giants-brian-robinson-austin-ekeler/
