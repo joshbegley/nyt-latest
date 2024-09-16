@@ -1,3 +1,19 @@
+**Bang on a Can**\
+`News about Bang on a Can. Commentary and archival information about Bang on a Can from The New York Times.`\
+https://nytimes.com/topic/bang-on-a-can
+
+**Banco Santander S A**\
+`News about Banco Santander S A. Commentary and archival information about Banco Santander S A from The New York Times.`\
+https://nytimes.com/topic/banco-santander-s-a
+
+**Mets' Francisco Lindor says back MRI showed 'good news'**\
+`Lindor did not rule out returning for the series against the Philadelphia Phillies, starting Thursday.`\
+https://nytimes.com/athletic/5771936/2024/09/16/francisco-lindor-mets-back-mri/
+
+**Jane’s Addiction to Cancel Tour After Onstage Fight**\
+`In a social media post, the rock band said it was halting its reunion tour after the group’s singer, Perry Farrell, hit the guitarist at a Boston show.`\
+https://nytimes.com/2024/09/16/arts/music/janes-addiction-tour-canceled.html
+
 **Suspect’s Self-Published Book Said Readers Were ‘Free to Assassinate Trump’**\
 `The book, “Ukraine’s Unwinnable War,” assails the former president over Iran, but saves its most vitriolic language for President Vladimir V. Putin of Russia.`\
 https://nytimes.com/2024/09/16/us/politics/trump-assassination-suspect-book.html
