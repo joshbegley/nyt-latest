@@ -1,3 +1,7 @@
+**Astros takeaways: Alex Bregman at 2B, Kyle Tucker's trajectory and a rotation conundrum**\
+`Here's everything you need to know about the Astros as they get ready for a much tougher challenge after sweeping the Angels. `\
+https://nytimes.com/athletic/5769811/2024/09/16/astros-alex-bregman-kyle-tucker-rotation/
+
 **Is Rudy Gobert motivated? Is this the last dance for Timberwolves? Five burning questions**\
 `Some of these questions will go a long way in determining what kind of season Minnesota has.`\
 https://nytimes.com/athletic/5760391/2024/09/16/timberwolves-burning-questions-2024-nba-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/podcasts/the-daily/election-undecided-voters.html
 **Trump Safe After ‘Attempted Assassination,’ and TikTok Heads to Court**\
 `Plus, a record-setting Emmy haul for “Shogun.”`\
 https://nytimes.com/2024/09/16/podcasts/trump-assassination-tiktok-ban.html
-
-**Wordle Review No. 1,186**\
-`Scroll down for hints and conversation about the puzzle for September 17, 2024.`\
-https://nytimes.com/2024/09/16/crosswords/wordle-review-1186.html
 
