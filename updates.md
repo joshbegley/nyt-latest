@@ -1,3 +1,11 @@
+**Tuesday Briefing: Suspect is Charged in Apparent Trump Shooting Attempt**\
+`Plus, why you should binge “Shogun.”`\
+https://nytimes.com/2024/09/16/briefing/trump-shooting-titan-china.html
+
+**The Briefing: Birmingham 3 Wrexham 1 -  Brady hosts Beckham at the battle of the celebrity U.S. backers**\
+`A big game on the pitch but an international affair off it - our writers reflect on Birmingham's win over Wrexham`\
+https://nytimes.com/athletic/5771750/2024/09/16/birmingham-wrexham-brady-beckham/
+
 **Healing or Hurtful? Police Training Featuring Convicted Officer Is Canceled.**\
 `Kim Potter, who fatally shot Daunte Wright during a traffic stop, had been scheduled to talk to officers in Washington State about the use of force.`\
 https://nytimes.com/2024/09/16/us/kimberly-potter-daunte-wright-police-training.html

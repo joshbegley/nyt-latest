@@ -1,3 +1,7 @@
+**Tuesday Briefing: Suspect is Charged in Apparent Trump Shooting Attempt**\
+`Plus, why you should binge “Shogun.”`\
+https://nytimes.com/2024/09/16/briefing/trump-shooting-titan-china.html
+
 **Healing or Hurtful? Police Training Featuring Convicted Officer Is Canceled.**\
 `Kim Potter, who fatally shot Daunte Wright during a traffic stop, had been scheduled to talk to officers in Washington State about the use of force.`\
 https://nytimes.com/2024/09/16/us/kimberly-potter-daunte-wright-police-training.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/09/16/us/kimberly-potter-daunte-wright-police-training.
 `The internet giant told employees on Monday that it expected them to return to the office full-time in January.`\
 https://nytimes.com/2024/09/16/technology/amazon-return-to-office.html
 
-**The Briefing: Birmingham 3 Wrexham 1 -  Brady, Beckham and the battle of the celebrity U.S. backers**\
+**The Briefing: Birmingham 3 Wrexham 1 -  Brady hosts Beckham at the battle of the celebrity U.S. backers**\
 `A big game on the pitch but an international affair off it - our writers reflect on Birmingham's win over Wrexham`\
 https://nytimes.com/athletic/5771750/2024/09/16/birmingham-wrexham-brady-beckham/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/opinion/gabby-giffords-its-the-guns-its-always-th
 **Body Cam Video Shows Arrest of Suspect in Apparent Trump Assassination Attempt**\
 `The video, less than a minute long, shows armed law-enforcement officers ordering the man to walk backward toward them and then handcuffing him.`\
 https://nytimes.com/2024/09/16/us/politics/trump-assassination-attempt-body-cam.html
-
-**Florida A&M University**\
-`News about Florida A&M University. Commentary and archival information about Florida A&M University from The New York Times.`\
-https://nytimes.com/topic/florida-am-university
 
