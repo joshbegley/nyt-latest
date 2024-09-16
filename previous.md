@@ -1,3 +1,11 @@
+**Warnings Issued as Storm Looms Near the Carolinas**\
+`The storm system could become the next named storm, Helene, on Monday. Forecasters are warning of floods and storm surge along the Carolina coasts hit hard by Debby in August.`\
+https://nytimes.com/2024/09/16/weather/storm-warnings-north-south-carolina.html
+
+**Beaches Close in Maryland, Delaware and Virginia as Needles Wash Ashore**\
+`Beachgoers were urged to stay out of the water after dozens of hypodermic needles, as well as tampon applicators and other medical waste, were found on beaches over the weekend.`\
+https://nytimes.com/2024/09/16/us/beaches-closed-maryland-virginia-needles.html
+
 **The Champions League returns: Your guide to its new format, storylines, tactics and how to watch**\
 `The Champions League is back, but not as we know it - here's our guide to the new format and what to look out for in gameweek one`\
 https://nytimes.com/athletic/5757730/2024/09/16/champions-league-preview-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5768804/2024/09/16/gary-shaw-aston-villa/
 **Coe, Coventry lead shortlist to be next IOC president**\
 `The International Olympic Committee (IOC) has confirmed a seven-person shortlist of candidates to succeed Thomas Bach as president.`\
 https://nytimes.com/athletic/5770878/2024/09/16/ioc-president-shortlist-next/
-
-**In Georgia, a Political Uproar Erupts Over a 2008 War With Russia**\
-`The leader of the governing party said the country should apologize for a conflict for which many Georgians blame Moscow, heightening a monthslong political battle.`\
-https://nytimes.com/2024/09/16/world/europe/georgia-uproar-2008-war-russia.html
-
-**Bellingham & Tchouameni fit to return for Madrid in UCL**\
-`Carlo Ancelotti says Jude Bellingham is available for Real Madrid&#8217;s Champions League opener against Stuttgart on Tuesday following a spell out with a muscular injury.`\
-https://nytimes.com/athletic/5770848/2024/09/16/bellingham-tchouameni-real-madrid-injuries/
 
