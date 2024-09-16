@@ -1,3 +1,15 @@
+**Can Kirk Cousins, Falcons turn things around in Monday night spotlight? 5 factors**\
+`The Falcons will play on "Monday Night Football" for the first time since 2020 when they visit the Eagles in Philadelphia.`\
+https://nytimes.com/athletic/5765490/2024/09/16/kirk-cousins-falcons-eagles-monday-night/
+
+**Caleb Williams has his 'Welcome to the Bears' moment in Houston**\
+`This Bears season was supposed to be different, but the problems — especially on offense — are all too familiar.`\
+https://nytimes.com/athletic/5770517/2024/09/16/caleb-williams-bears-texans/
+
+**Final thoughts on Michigan's quarterbacks and offensive personnel heading into USC game**\
+`Dominick Giudice and Greg Crippen saw action at center in the Arkansas State win. Will the Wolverines settle on one?`\
+https://nytimes.com/athletic/5768777/2024/09/16/michigan-quarterbacks-davis-warren-alex-orji/
+
 **How the Chiefs defense saved the day with a stellar fourth-quarter performance**\
 `Needing to support the offense, Steve Spagnuolo’s unit scored a touchdown and held the Bengals to three points in the fourth quarter.`\
 https://nytimes.com/athletic/5770360/2024/09/16/chiefs-defense-bengals-win/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/16/opinion/trump-harris-attempted-assassination-deba
 **Here Are the 8 First-Time Acting Winners From the Emmys**\
 `Jodie Foster added to her awards collection while the stars of “Shogun” and “Baby Reindeer” helped propel their shows to big nights.`\
 https://nytimes.com/2024/09/16/arts/television/first-time-emmy-winners.html
-
-**American Voters In the Shadow of Another Gunman**\
-`Their dissatisfaction with the world has left them undecided and uncertain.`\
-https://nytimes.com/live/2024/09/11/opinion/thepoint/american-voters-in-the-shadow-of-another-gunman
-
-**Hearing Could Answer Key Questions About How Titan Submersible Imploded**\
-`The deep-sea disaster killed all five people on board in 2023. The Coast Guard is set to hold its first public hearing on Monday to explore what led to the accident.`\
-https://nytimes.com/2024/09/16/us/titan-submersible-coast-guard-hearings.html
-
-**Former Uvalde School Police Chief Asks Court to Toss Charges**\
-`Investigations have singled out Pete Arredondo for the delayed police response to a 2022 school shooting in Texas. He is expected to appear in court for the first time on Monday.`\
-https://nytimes.com/2024/09/16/us/uvalde-shooting-arredondo-court.html
 
