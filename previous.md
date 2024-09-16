@@ -1,4 +1,8 @@
-**Penguins, Sidney Crosby agree to new 2-year contract**\
+**How to Conceal Under-Eye Circles**\
+`Tips from three people used to late nights: a drag queen, a musician and a makeup artist.`\
+https://nytimes.com/2024/09/16/t-magazine/under-eye-dark-circles-guide.html
+
+**Penguins re-sign Crosby to new 2-year contract**\
 `PITTSBURGH — Sidney Crosby is staying with the Pittsburgh Penguins.`\
 https://nytimes.com/athletic/5686706/2024/09/16/penguins-sidney-crosby-contract-details/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/health/pregnancy-brain-changes.html
 **‘Absolutely the Juiciest and Crispiest Chicken Breasts I Have Made’**\
 `Team Chicken Breast, this Parmesan-crusted chicken is for you.`\
 https://nytimes.com/2024/09/16/dining/crispy-chicken-breast-recipe.html
-
-**What We Know About the Deadly Floods in Central Europe**\
-`At least 17 people have died and thousands have been displaced. “Relief is not expected to come before tomorrow, and more likely, the day after,” an official in Austria said.`\
-https://nytimes.com/2024/09/16/world/europe/deadly-europe-floods-romania-poland-austria.html
 

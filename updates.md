@@ -1,3 +1,11 @@
+**How to Conceal Under-Eye Circles**\
+`Tips from three people used to late nights: a drag queen, a musician and a makeup artist.`\
+https://nytimes.com/2024/09/16/t-magazine/under-eye-dark-circles-guide.html
+
+**Penguins re-sign Crosby to new 2-year contract**\
+`PITTSBURGH — Sidney Crosby is staying with the Pittsburgh Penguins.`\
+https://nytimes.com/athletic/5686706/2024/09/16/penguins-sidney-crosby-contract-details/
+
 **Penguins, Sidney Crosby agree to new 2-year contract**\
 `PITTSBURGH — Sidney Crosby is staying with the Pittsburgh Penguins.`\
 https://nytimes.com/athletic/5686706/2024/09/16/penguins-sidney-crosby-contract-details/
