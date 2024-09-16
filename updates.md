@@ -1,3 +1,15 @@
+**Justin Ishbia donates $10 million to Michigan State athletics, with baseball scoring big**\
+`A sizable chunk — $1.5 million — is specifically aimed at refurbishing and upgrading the school’s baseball stadium.`\
+https://nytimes.com/athletic/5772222/2024/09/16/justin-ishbia-michigan-state-donation/
+
+**What We Know About the Trump Suspect**\
+`Plus, how FX ruled the Emmys`\
+https://nytimes.com/2024/09/16/briefing/trump-suspect-tiktok-europe-floods-titan-submersible.html
+
+**How the Chargers' plan for Quentin Johnston is getting the most out of the 2023 top pick**\
+`Johnson's two touchdowns Sunday against the Panthers matched his total from his entire rookie season.`\
+https://nytimes.com/athletic/5772068/2024/09/16/chargers-quentin-johnston-panthers-touchdowns/
+
 **What’s Your Favorite NYT Cooking Recipe? We Want to Know.**\
 `To celebrated the app’s 10th anniversary, we shared a wide-ranging list of the best recipes. Tell us which ones you love most.`\
 https://nytimes.com/2024/09/16/dining/nyt-favorite-cooking-recipes-anniversary.html
