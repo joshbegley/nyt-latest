@@ -1,3 +1,7 @@
+**What We Know About the Deadly Floods in Central Europe**\
+`At least 17 people have died and thousands have been displaced. “Relief is not expected to come before tomorrow, and more likely, the day after,” an official in Austria said.`\
+https://nytimes.com/2024/09/16/world/europe/deadly-europe-floods-romania-poland-austria.html
+
 **The Bounce: Three key questions before WNBA playoffs.**\
 `Jason Jones and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5770903/2024/09/16/wnba-aja-wilson-aces-caitlin-clark-fever-nba-boston-celtics-76ers-knicks-nuggets-bucks-the-bounce/

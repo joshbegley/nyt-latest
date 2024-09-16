@@ -11,7 +11,7 @@ https://nytimes.com/2024/09/16/health/pregnancy-brain-changes.html
 https://nytimes.com/2024/09/16/dining/crispy-chicken-breast-recipe.html
 
 **What We Know About the Deadly Floods in Central Europe**\
-`At least 16 people have died and thousands have been displaced. “Relief is not expected to come before tomorrow, and more likely, the day after,” an official in Austria said.`\
+`At least 17 people have died and thousands have been displaced. “Relief is not expected to come before tomorrow, and more likely, the day after,” an official in Austria said.`\
 https://nytimes.com/2024/09/16/world/europe/deadly-europe-floods-romania-poland-austria.html
 
 **Don't sweat Travis Kelce's slow start. But Sam LaPorta's ...**\
