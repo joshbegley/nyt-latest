@@ -1,3 +1,11 @@
+**How Secret Service Details Are Assigned**\
+`Levels of protection depend on a protectee’s position and the assessment of risk.`\
+https://nytimes.com/2024/09/16/us/politics/secret-service-details.html
+
+**Gabby Giffords: It’s the Guns. It’s Always the Guns.**\
+`Political rhetoric isn’t the only problem -- it’s access to weapons.`\
+https://nytimes.com/2024/09/16/opinion/gabby-giffords-its-the-guns-its-always-the-guns.html
+
 **Body Cam Video Shows Arrest of Suspect in Apparent Trump Assassination Attempt**\
 `The video, less than a minute long, shows armed law-enforcement officers ordering the man to walk backward toward them and then handcuffing him.`\
 https://nytimes.com/2024/09/16/us/politics/trump-assassination-attempt-body-cam.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/16/us/politics/trump-assassination-suspect-book.html
 **Demonizing Immigrants Could Ruin the Revival of Some Heartland Cities**\
 `Immigration to small cities creates jobs for everyone.`\
 https://nytimes.com/2024/09/16/opinion/springfield-immigration.html
-
-**Jane’s Addiction to Cancel Tour After Onstage Fight**\
-`In a social media post, the rock band said it was halting its reunion tour after the group’s singer, Perry Farrell, hit its guitarist at a Boston show.`\
-https://nytimes.com/2024/09/16/arts/music/janes-addiction-tour-canceled.html
-
-**U.S. Awards Intel $3 Billion for Military Supply Program**\
-`The Biden administration announced an award for the struggling chipmaker as part of an effort to establish secure supply sources for the Pentagon.`\
-https://nytimes.com/2024/09/16/us/politics/intel-chips-semiconductor-grant.html
 
