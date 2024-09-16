@@ -1,3 +1,11 @@
+**Hiroyuki Sanada wins best actor in a drama.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/hiroyuki-sanada-wins-best-actor-in-a-drama
+
+**‘Baby Reindeer’ wins best limited series.**\
+`By Matt Stevens`\
+https://nytimes.com/2024/09/15/arts/television/baby-reindeer-emmy-limited-series.html
+
 **‘Baby Reindeer’ wins best limited series.**\
 `By Matt Stevens`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/baby-reindeer-wins-best-limited-series
