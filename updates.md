@@ -1,3 +1,7 @@
+**Mixon criticizes NFL for not enforcing hip-drop tackle rule**\
+`Last March, NFL owners, with unanimous approval, voted at the annual league meetings to ban the swivel hip-drop tackle.`\
+https://nytimes.com/athletic/5770957/2024/09/16/joe-mixon-nfl-hip-drop-tackle/
+
 **Love and Friendship, Day by Day **\
 `How seven people are keeping meaningful relationships alive in a digital world.`\
 https://nytimes.com/paidpost/snapchat/love-and-friendship-day-by-day.html
