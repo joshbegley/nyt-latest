@@ -1,3 +1,15 @@
+**'Second to none': How did Macklin Celebrini's Sharks rookie-game teammates assess him?**\
+`Celebrini played in only one game in the Rookie Faceoff tournament, but the Sharks saw enough.`\
+https://nytimes.com/athletic/5769587/2024/09/16/macklin-celebrini-sharks-rookie/
+
+**Blues' '2 Zacharys' shine at Prospect Showcase — plus 6 other players to watch in 2024-25**\
+`Zachary Bolduc, who was the captain of the Blues' prospects, scored a highlight-reel goal Sunday and was arguably the best player.`\
+https://nytimes.com/athletic/5762943/2024/09/16/blues-rookie-prospect-showcase-bolduc-dean/
+
+**How Arsenal exploited the space Spurs leave in front of their retreating defence**\
+`Van de Van's recovery speed is useful - but if others aren't able to recover their positions, then opposition chances are merely delayed`\
+https://nytimes.com/athletic/5770651/2024/09/16/spurs-space-allowed-issue/
+
 **How Notre Dame got the trains running on time again: Final thoughts on Purdue**\
 `Notre Dame bounced back in a big way against Purdue. How did that happen? And how can the Irish keep it going?`\
 https://nytimes.com/athletic/5770761/2024/09/16/notre-dame-football-purdue-riley-leonard/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/16/world/asia/china-american-pastor-david-lin.html
 **Say it with me, Chicago Bears fans: 'It's only Week 2'**\
 `With no running game and a line that couldn’t handle Texans' pressure, Caleb Williams and the offense were "a little bruised up" after loss.`\
 https://nytimes.com/athletic/5770508/2024/09/16/chicago-bears-texans-caleb-williams/
-
-**Broncos offense has regressed since releasing Russell Wilson. Can Sean Payton fix it?**\
-`The Broncos have scored only one touchdown through two games, their most sluggish offensive start in 18 years.`\
-https://nytimes.com/athletic/5769455/2024/09/16/broncos-offense-broken-steelers-loss-sean-payton/
-
-**LeBrun: Inside the Yaroslav Askarov trade — how the Sharks won a 5-team race for the Preds goalie**\
-`San Jose's pursuit of Askarov was "consistent," before and after his trade request. But who else was in on Nashville's top prospect?`\
-https://nytimes.com/athletic/5766868/2024/09/16/predators-sharks-yaroslav-askarov-trade/
-
-**One-on-one with Flames GM Craig Conroy: 'You have to have that patience'**\
-`On evaluating the organization's prospects, what the future holds for Calgary's veteran players, the goalie battle and more.`\
-https://nytimes.com/athletic/5768315/2024/09/16/calgary-flames-gm-craig-conroy/
 
