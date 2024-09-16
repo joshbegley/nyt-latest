@@ -3,7 +3,7 @@
 What&#8217;s on your mind? Leave your questions here.`\
 https://nytimes.com/athletic/5772351/2024/09/16/submit-a-question-for-stewart-mandels-college-football-mailbag-273/
 
-**49ers minutia minute: Rookies Malik Mustapha, Renardo Green got snaps in Minnesota**\
+**49ers minutia minute: Deebo Samuel's injury; rookie DBs see action**\
 `A development from Sunday's game: Defensive end Yetur Gross-Matos seemed to eat into Leonard Floyd's snaps as the game went on.`\
 https://nytimes.com/athletic/5771925/2024/09/16/49ers-snap-counts-deebo-samuel-injury/
 
