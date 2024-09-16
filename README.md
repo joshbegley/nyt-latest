@@ -1,3 +1,7 @@
+**Healing or Hurtful? Police Training Featuring Convicted Officer Is Canceled.**\
+`Kim Potter, who fatally shot Daunte Wright during a traffic stop, had been scheduled to talk to officers in Washington State about the use of force.`\
+https://nytimes.com/2024/09/16/us/kimberly-potter-daunte-wright-police-training.html
+
 **Amazon Tells Corporate Workers to Be Back in the Office 5 Days a Week**\
 `The internet giant told employees on Monday that it expected them to return to the office full-time in January.`\
 https://nytimes.com/2024/09/16/technology/amazon-return-to-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/us/politics/trump-assassination-attempt-body-cam.
 **Florida A&M University**\
 `News about Florida A&M University. Commentary and archival information about Florida A&M University from The New York Times.`\
 https://nytimes.com/topic/florida-am-university
-
-**São Paulo Mayoral Candidate Hit With Metal Chair by Rival**\
-`Pablo Marçal, a personal development influencer turned right-wing politician, was attacked by his fellow mayoral candidate, José Luiz Datena, during a televised debate.`\
-https://nytimes.com/video/world/americas/100000009694883/brazil-chair-attack.html
 
