@@ -1,40 +1,40 @@
-**Ranking 134 college football teams after Week 3: Texas or Georgia?**\
-`Texas moves up to No. 1 in this week’s edition of The Athletic 134, the third different No. 1 team we’ve had in four weeks.`\
-https://nytimes.com/athletic/5769877/2024/09/16/college-football-rankings-134-teams-week-3/
+**How the Chiefs defense saved the day with a stellar fourth-quarter performance**\
+`Needing to support the offense, Steve Spagnuolo’s unit scored a touchdown and held the Bengals to three points in the fourth quarter.`\
+https://nytimes.com/athletic/5770360/2024/09/16/chiefs-defense-bengals-win/
 
-**Smith: Oscar Piastri’s F1 win in Baku was a world class, coming-of-age drive**\
-`Piastri's masterful Azerbaijan GP win proves he's more than ready to fight for a world championship.`\
-https://nytimes.com/athletic/5768870/2024/09/16/f1-oscar-piastri-mclaren-azerbaijan-gp/
+**Group of 5 schools are playing — and winning — more high-stakes games: CFP Bubble Watch**\
+`These early season nonconference games are more relevant to the national title race than ever, and college football will benefit.`\
+https://nytimes.com/athletic/5768917/2024/09/16/college-football-playoff-bubble-watch-group-of-five-memphis-toledo-unlv/
 
-**Pressure Grows on Mayor Adams as Key Officials Leave Amid Investigations**\
-`Mayor Eric Adams and his inner circle are under investigation, and two top New York City officials have resigned. Can the mayor still turn things around?`\
-https://nytimes.com/2024/09/16/nyregion/eric-adams-scandal.html
+**In Senate, Democrats Hope 2024 Will Be the Year of the Black Woman**\
+`With Vice President Kamala Harris at the top of the ticket and Senate seats open, Democrats could for the first time send two Black women to the chamber.`\
+https://nytimes.com/2024/09/16/us/politics/senate-democrats-black-women.html
 
-**Can New York City Street Vendors Survive a Police Crackdown?**\
-`The police have been ticketing vendors for violations over the past year, upsetting sellers who say they are just trying to earn a living.`\
-https://nytimes.com/2024/09/16/nyregion/street-wars-vendors.html
+**One Blue Feather. A Changed World?**\
+`In my lowest moments, I look to the people who have devoted their lives to pursuing justice no matter what.`\
+https://nytimes.com/2024/09/16/opinion/hope-social-problems-justice.html
 
-**Will TikTok Be Banned in January? That Question Is Headed to Court.**\
-`TikTok will be in federal court on Monday, aiming to block a new law that will ban the popular video app in the United States early next year.`\
-https://nytimes.com/2024/09/16/technology/tiktok-us-ban-court.html
+**Will Nebraska's revamped offense be enough in Big Ten play?**\
+`Is it still “bowl game or bust” in 2024? Or is Nebraska actually a dark horse candidate for the College Football Playoff?`\
+https://nytimes.com/athletic/5769003/2024/09/16/nebraska-college-football-dylan-raiola-big-ten-illinois/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/16/crosswords/spelling-bee-forum.html
+**We Cannot Go On Like This**\
+`Is there a way for us to make the “American berserk” a little less ... berserk?`\
+https://nytimes.com/2024/09/16/opinion/trump-harris-attempted-assassination-debate.html
 
-**Looming Insurance Crisis Threatens Taxis and Ubers in New York City**\
-`American Transit, the largest insurer of the city’s for-hire vehicles, is insolvent. Its collapse could create a crisis that would take thousands of cars out of service.`\
-https://nytimes.com/2024/09/16/nyregion/american-transit-insurance-uber-lyft-nyc.html
+**Here Are the 8 First-Time Acting Winners From the Emmys**\
+`Jodie Foster added to her awards collection while the stars of “Shogun” and “Baby Reindeer” helped propel their shows to big nights.`\
+https://nytimes.com/2024/09/16/arts/television/first-time-emmy-winners.html
 
-**The Ending of ‘Speak No Evil’ and the Perils of Remakes**\
-`The 2022 original retains its chilling power thanks to a worldview that the new version seems unwilling to embrace.`\
-https://nytimes.com/2024/09/16/movies/speak-no-evil-james-mcavoy.html
+**American Voters In the Shadow of Another Gunman**\
+`Their dissatisfaction with the world has left them undecided and uncertain.`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/american-voters-in-the-shadow-of-another-gunman
 
-**Lamine Yamal's art and graft sparks Barcelona's most impressive win of 2024-25 yet**\
-`The 17-year-old winger was the key figure in another impressive Barcelona early-season victory`\
-https://nytimes.com/athletic/5770535/2024/09/16/barcelona-lamine-yamal-la-liga-girona/
+**Hearing Could Answer Key Questions About How Titan Submersible Imploded**\
+`The deep-sea disaster killed all five people on board in 2023. The Coast Guard is set to hold its first public hearing on Monday to explore what led to the accident.`\
+https://nytimes.com/2024/09/16/us/titan-submersible-coast-guard-hearings.html
 
-**What We Know About the Apparent Assassination Attempt Against Trump**\
-`Secret Service agents fired on a man who had a rifle and was hiding in bushes around a Trump golf club in Florida, officials said. Former President Donald J. Trump was unhurt.`\
-https://nytimes.com/2024/09/16/us/trump-assassination-attempt-suspect.html
+**Former Uvalde School Police Chief Asks Court to Toss Charges**\
+`Investigations have singled out Pete Arredondo for the delayed police response to a 2022 school shooting in Texas. He is expected to appear in court for the first time on Monday.`\
+https://nytimes.com/2024/09/16/us/uvalde-shooting-arredondo-court.html
 
