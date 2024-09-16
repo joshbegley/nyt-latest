@@ -1,3 +1,11 @@
+**Crosby's new Penguins contract is his sweetest assist yet**\
+`Crosby's contract is perfect for him and the Penguins — now and into the future.`\
+https://nytimes.com/athletic/5771489/2024/09/16/sidney-crosby-contract-penguins/
+
+**Books by Rachel Kushner and Percival Everett Make Booker Prize Shortlist**\
+`For the first time in the award’s 55-year history, five of the six nominated titles are by female authors.`\
+https://nytimes.com/2024/09/16/books/booker-prize-2024-shortlist.html
+
 **NASCAR Watkins Glen takeaways: Tire mysteries, why Kyle Larson questions himself and more**\
 `A tire that was supposed to change the game at Watkins Glen ... definitely did not. Plus, Kyle Larson on his crashing problem and much more.`\
 https://nytimes.com/athletic/5771106/2024/09/16/nascar-watkins-glen-takeaways-tires-kyle-larson/

@@ -1,3 +1,11 @@
+**Crosby's new Penguins contract is his sweetest assist yet**\
+`Crosby's contract is perfect for him and the Penguins — now and into the future.`\
+https://nytimes.com/athletic/5771489/2024/09/16/sidney-crosby-contract-penguins/
+
+**Books by Rachel Kushner and Percival Everett Make Booker Prize Shortlist**\
+`For the first time in the award’s 55-year history, five of the six nominated titles are by female authors.`\
+https://nytimes.com/2024/09/16/books/booker-prize-2024-shortlist.html
+
 **NASCAR Watkins Glen takeaways: Tire mysteries, why Kyle Larson questions himself and more**\
 `A tire that was supposed to change the game at Watkins Glen ... definitely did not. Plus, Kyle Larson on his crashing problem and much more.`\
 https://nytimes.com/athletic/5771106/2024/09/16/nascar-watkins-glen-takeaways-tires-kyle-larson/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/16/world/europe/thierry-breton-european-commissioner
 **Trump Plans to Keep Campaigning as Scheduled**\
 `Donald J. Trump’s travel schedule will not change in the aftermath of an apparent shooting attempt on Sunday, with trips this week planned to Michigan, New York and elsewhere.`\
 https://nytimes.com/2024/09/16/us/politics/trump-campaigning-shooting.html
-
-**Trump, Outrage and the Modern Era of Political Violence**\
-`The latest apparent assassination attempt against the former president indicates how much the American political landscape has been shaped by anger stirred by him and against him.`\
-https://nytimes.com/2024/09/16/us/politics/trump-violence-assassination-attempt.html
-
-**NFL Week 3 odds, schedule: Saints, Bucs trending up, Ravens facing a gut check**\
-`The NFL Week 3 odds are out, with several close, competitive games on the schedule ahead. `\
-https://nytimes.com/athletic/5771496/2024/09/16/nfl-week-3-odds-spreads-schedule/
 
