@@ -1,3 +1,7 @@
+**Hiroyuki Sanada wins best actor in a drama.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/hiroyuki-sanada-wins-best-actor-in-a-drama
+
 **‘Baby Reindeer’ wins best limited series.**\
 `By Matt Stevens`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/baby-reindeer-wins-best-limited-series
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5769703/2024/09/15/commanders-giants-brian-robinson
 **49ers' third-down defense sinks them in loss to Sam Darnold and the Vikings**\
 `Fred Warner was one of the 49ers' lone bright spots on defense. The unit struggled especially mightily on third down against Minnesota.`\
 https://nytimes.com/athletic/5769393/2024/09/15/49ers-defense-vikings-sam-darnold/
-
-**‘The Daily Show’ wins best talk series.**\
-`By Annie Aguiar`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/the-daily-show-wins-best-talk-series
 
