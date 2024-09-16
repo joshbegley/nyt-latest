@@ -1,3 +1,11 @@
+**The Emmys celebrate ‘Happy Days’ at 50.**\
+`By Jeremy Egner`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/emmys-happy-days-howard-winkler
+
+**How the U.S. came together and won the Solheim Cup**\
+`Unity was the theme of the week for the U.S. "From the moment this team was together, they were together."`\
+https://nytimes.com/athletic/5770065/2024/09/15/united-states-solheim-cup-win/
+
 **Mexico’s Contentious Judiciary Overhaul Becomes Law**\
 `Going forward, Mexican voters will now elect judges at every level, dramatically restructuring the third branch of government.`\
 https://nytimes.com/2024/09/15/world/americas/mexico-overhaul-judiciary-law.html
