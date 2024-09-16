@@ -1,3 +1,7 @@
+**Shanghai Is Hit by Strongest Typhoon in Decades and Comes to a Standstill**\
+`The city canceled all flights at its two airports and closed major attractions, amid a three-day national holiday.`\
+https://nytimes.com/2024/09/16/world/asia/typhoon-bebinca-shanghai.html
+
 **The One Issue Where Israeli Extremists Are Mainstream**\
 `Israel’s annexation of the occupied West Bank is not a future prospect; it is a fact of life. Israelis and Palestinians live in a one-state reality.`\
 https://nytimes.com/2024/09/16/opinion/16el-ad.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768781/2024/09/16/arsenal-arteta-solutions/
 **Danny Ings, 'always ready'**\
 `The 32-year-old striker stayed at West Ham this summer, has got on with his job and was rewarded with a goal against Fulham`\
 https://nytimes.com/athletic/5766772/2024/09/16/danny-ings-west-ham-ready/
-
-**Manchester City's pressing tweak that regained control against Brentford**\
-`In the first 30 minutes against Brentford, Man City's pressing wasn't quite working. Here's what they did to fix it`\
-https://nytimes.com/athletic/5767848/2024/09/16/manchester-citys-pressing-tweak-to-regain-control-against-brentford/
 
