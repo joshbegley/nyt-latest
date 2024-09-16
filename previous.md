@@ -2,12 +2,12 @@
 `Marvin Harrison Jr. is a serious person who never strays from routine. Even so, his head coach admitted: "It was good to see him smile."`\
 https://nytimes.com/athletic/5770076/2024/09/15/marvin-harrison-jr-arizona-cardinals-touchdown-breakout/
 
-**In a surprise win, ‘Hacks’ earns top comedy award.**\
-`By Julia Jacobs`\
+**In a Surprise Win, ‘Hacks’ Earns Top Comedy Award**\
+`The Max series about two female comedians from different generations has been nominated for best comedy series twice before, but this is its first win.`\
 https://nytimes.com/2024/09/15/arts/television/hacks-emmy-best-comedy.html
 
 **‘Shogun’ Wins Best Drama, Capping a Big Night**\
-`The win capped a successful evening for the remake, which picked up several other Emmys on Sunday.`\
+`The win capped a successful evening for the FX series, set in feudal Japan, which picked up several other major Emmys on Sunday.`\
 https://nytimes.com/2024/09/15/arts/television/shogun-emmy-best-drama.html
 
 **16 Unforgettable Looks at the Emmys**\
