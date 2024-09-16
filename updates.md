@@ -1,3 +1,7 @@
+**In Georgia, a Political Uproar Erupts Over a 2008 War With Russia**\
+`The leader of the governing party said the country should apologize for a conflict for which many Georgians blame Moscow, heightening a monthslong political battle.`\
+https://nytimes.com/2024/09/16/world/europe/georgia-uproar-2008-war-russia.html
+
 **Bellingham & Tchouameni fit to return for Madrid in UCL**\
 `Carlo Ancelotti says Jude Bellingham is available for Real Madrid&#8217;s Champions League opener against Stuttgart on Tuesday following a spell out with a muscular injury.`\
 https://nytimes.com/athletic/5770848/2024/09/16/bellingham-tchouameni-real-madrid-injuries/
