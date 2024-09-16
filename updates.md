@@ -1,3 +1,7 @@
+**Smith: Oscar Piastri’s F1 win in Baku was a world class, coming-of-age drive**\
+`Piastri's masterful Azerbaijan GP win proves he's more than ready to fight for a world championship.`\
+https://nytimes.com/athletic/5768870/2024/09/16/f1-oscar-piastri-mclaren-azerbaijan-gp/
+
 **Lamine Yamal's art and graft sparks Barcelona's most impressive win of 2024-25 yet**\
 `The 17-year-old winger was the key figure in another impressive Barcelona early-season victory`\
 https://nytimes.com/athletic/5770535/2024/09/16/barcelona-lamine-yamal-la-liga-girona/
