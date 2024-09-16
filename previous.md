@@ -1,3 +1,7 @@
+**Word of the Day: prescient**\
+`This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/16/learning/word-of-the-day-prescient.html
+
 **Shanghai Is Hit by Strongest Typhoon in Decades and Comes to a Standstill**\
 `The city canceled all flights at its two airports and closed major attractions, amid a three-day national holiday.`\
 https://nytimes.com/2024/09/16/world/asia/typhoon-bebinca-shanghai.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5744104/2024/09/16/aston-villa-ticket-issues/
 **When Arsenal faced new challenges, Arteta and his players found new solutions**\
 `Arsenal were hit by absences ahead of the north London derby. Yet those who were available delivered`\
 https://nytimes.com/athletic/5768781/2024/09/16/arsenal-arteta-solutions/
-
-**Danny Ings, 'always ready'**\
-`The 32-year-old striker stayed at West Ham this summer, has got on with his job and was rewarded with a goal against Fulham`\
-https://nytimes.com/athletic/5766772/2024/09/16/danny-ings-west-ham-ready/
 

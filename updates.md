@@ -1,3 +1,7 @@
+**Word of the Day: prescient**\
+`This word has appeared in 144 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/16/learning/word-of-the-day-prescient.html
+
 **Shanghai Is Hit by Strongest Typhoon in Decades and Comes to a Standstill**\
 `The city canceled all flights at its two airports and closed major attractions, amid a three-day national holiday.`\
 https://nytimes.com/2024/09/16/world/asia/typhoon-bebinca-shanghai.html
