@@ -1,3 +1,7 @@
+**Anna Sawai wins best actress in a drama for ‘Shogun.’**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2024/09/15/arts/emmy-awards/anna-sawai-wins-best-actress-in-a-drama-for-shogun
+
 **Hiroyuki Sanada wins best actor in a drama.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2024/09/15/arts/emmy-awards/hiroyuki-sanada-wins-best-actor-in-a-drama
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5770065/2024/09/15/united-states-solheim-cup-win/
 **Commanders lean on backfied duo of Brian Robinson, Austin Ekeler to squeeze by Giants**\
 `The two running backs combined for 221 of Washington's 425 total yards and helped take some of the pressure off Jayden Daniels. `\
 https://nytimes.com/athletic/5769703/2024/09/15/commanders-giants-brian-robinson-austin-ekeler/
-
-**49ers' third-down defense sinks them in loss to Sam Darnold and the Vikings**\
-`Fred Warner was one of the 49ers' lone bright spots on defense. The unit struggled especially mightily on third down against Minnesota.`\
-https://nytimes.com/athletic/5769393/2024/09/15/49ers-defense-vikings-sam-darnold/
 
