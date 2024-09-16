@@ -1,3 +1,7 @@
+**Monday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
+https://nytimes.com/athletic/5771123/2024/09/16/mlb-odds-best-bets-projections-september-16/
+
 **Submit your questions for Jesse Temple's Wisconsin mailbag**\
 `<p>Wisconsin enters its idle week coming off a 42-10 loss to Alabama.`\
 https://nytimes.com/athletic/5771126/2024/09/16/submit-your-questions-for-jesse-temples-wisconsin-mailbag/
