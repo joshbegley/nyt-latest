@@ -1,3 +1,11 @@
+**The rifle found at Trump’s golf course is relatively cheap and niche compared with the AR-15.**\
+`By Thomas Gibbons-Neff`\
+https://nytimes.com/live/2024/09/16/us/trump-shooting-news/the-rifle-found-at-trumps-golf-course-is-relatively-cheap-and-niche-compared-with-the-ar-15
+
+**Suspect Never Took a Shot at Trump but Hid Undetected for 12 Hours**\
+`Ryan Wesley Routh was charged with two federal gun crimes a day after Secret Service agents fired on him as he pointed a rifle toward the golf course where former President Donald Trump was playing.`\
+https://nytimes.com/2024/09/16/us/politics/investigation-trump-assassination-attempt.html
+
 **Second Close Call for Trump Brings More Scrutiny to Secret Service**\
 `The agency’s acting director, Ronald L. Rowe Jr., praised his agents’ actions but conceded that there was no sweep of the golf course a gunman staked out.`\
 https://nytimes.com/2024/09/16/us/politics/secret-service-scrutiny-trump.html
