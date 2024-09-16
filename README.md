@@ -1,3 +1,7 @@
+**Second Close Call for Trump Brings More Scrutiny to Secret Service**\
+`The agency’s acting director, Ronald L. Rowe Jr., praised his agents’ actions but conceded that there was no sweep of the golf course a gunman staked out.`\
+https://nytimes.com/2024/09/16/us/politics/secret-service-scrutiny-trump.html
+
 **49ers' Deebo Samuel to miss 'a couple weeks' with calf injury**\
 `Samuel sustained a calf strain late in Sunday's 23-17 loss to the Vikings, coach Kyle Shanahan said Monday.`\
 https://nytimes.com/athletic/5772330/2024/09/16/deebo-samuel-49ers-calf-injury/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5771925/2024/09/16/49ers-snap-counts-deebo-samuel-i
 **Emmy Viewership Rises to 6.9 Million Viewers**\
 `The uptick puts the Emmys among the award shows, such as the Oscars, that have had audience gains in the past few years.`\
 https://nytimes.com/2024/09/16/business/media/emmy-viewership-nielsen.html
-
-**What We Know About the Accused Gunman**\
-`The man arrested after Secret Service agents opened fire while protecting Donald Trump was charged with two federal gun crimes on Monday.`\
-https://nytimes.com/2024/09/16/us/politics/trump-golf-course-shooting.html
 
