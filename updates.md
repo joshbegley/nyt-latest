@@ -1,3 +1,7 @@
+**Body Cam Video Shows Arrest of Suspect in Apparent Trump Assassination Attempt**\
+`The video, less than a minute long, shows armed law-enforcement officers ordering the man to walk backward toward them and then handcuffing him.`\
+https://nytimes.com/2024/09/16/us/politics/trump-assassination-attempt-body-cam.html
+
 **Florida A&M University**\
 `News about Florida A&M University. Commentary and archival information about Florida A&M University from The New York Times.`\
 https://nytimes.com/topic/florida-am-university

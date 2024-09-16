@@ -1,3 +1,7 @@
+**Body Cam Video Shows Arrest of Suspect in Apparent Trump Assassination Attempt**\
+`The video, less than a minute long, shows armed law-enforcement officers ordering the man to walk backward toward them and then handcuffing him.`\
+https://nytimes.com/2024/09/16/us/politics/trump-assassination-attempt-body-cam.html
+
 **Florida A&M University**\
 `News about Florida A&M University. Commentary and archival information about Florida A&M University from The New York Times.`\
 https://nytimes.com/topic/florida-am-university
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/arts/music/janes-addiction-tour-canceled.html
 **U.S. Awards Intel $3 Billion for Military Supply Program**\
 `The Biden administration announced an award for the struggling chipmaker as part of an effort to establish secure supply sources for the Pentagon.`\
 https://nytimes.com/2024/09/16/us/politics/intel-chips-semiconductor-grant.html
-
-**Trump, Using Harsh Language, Urges Democrats to Tone Down Theirs**\
-`The authorities have not provided information about the gunman’s motive in the apparent assassination attempt on Sunday, yet former President Donald J. Trump, who has his own history of using violent language, sought to blame Democrats.`\
-https://nytimes.com/2024/09/16/us/politics/trump-blames-democrats-gunman-golf-course.html
 
