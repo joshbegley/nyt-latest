@@ -1,3 +1,7 @@
+**Do You Know Where in the World These Novels Are Set?**\
+`Try this short literary geography quiz on books with settings around the globe.`\
+https://nytimes.com/interactive/2024/09/16/books/review/world-cities-quiz.html
+
 **Elon Musk Writes, Then Deletes, a Post Musing About Threats to Biden and Harris**\
 `His remark, just hours after what authorities said was a second assassination attempt on Donald J. Trump, immediately drew outrage.`\
 https://nytimes.com/2024/09/16/us/politics/musk-deleted-tweet-biden-kamala.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5770848/2024/09/16/bellingham-tchouameni-real-madri
 **'Second to none': How did Macklin Celebrini's Sharks rookie-game teammates assess him?**\
 `Celebrini played in only one game in the Rookie Faceoff tournament, but the Sharks saw enough.`\
 https://nytimes.com/athletic/5769587/2024/09/16/macklin-celebrini-sharks-rookie/
-
-**Blues' '2 Zacharys' shine at Prospect Showcase — plus 6 other players to watch in 2024-25**\
-`Zachary Bolduc, who was the captain of the Blues' prospects, scored a highlight-reel goal Sunday and was arguably the best player.`\
-https://nytimes.com/athletic/5762943/2024/09/16/blues-rookie-prospect-showcase-bolduc-dean/
 

@@ -1,3 +1,7 @@
+**Do You Know Where in the World These Novels Are Set?**\
+`Try this short literary geography quiz on books with settings around the globe.`\
+https://nytimes.com/interactive/2024/09/16/books/review/world-cities-quiz.html
+
 **Elon Musk Writes, Then Deletes, a Post Musing About Threats to Biden and Harris**\
 `His remark, just hours after what authorities said was a second assassination attempt on Donald J. Trump, immediately drew outrage.`\
 https://nytimes.com/2024/09/16/us/politics/musk-deleted-tweet-biden-kamala.html
