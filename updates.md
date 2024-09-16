@@ -1,3 +1,11 @@
+**Guns and the Trump Assassination Attempt**\
+`Readers criticize the country’s lax gun laws. Also: “The Power Broker” at 50; air-conditioning; phones in school; polluting cruise ships; still summer.`\
+https://nytimes.com/2024/09/16/opinion/trump-assassination-attempt-guns.html
+
+**State of the Race: Early Signs of a Post-Debate Bounce for Harris**\
+`It could be another week until the full scope of possible gains is evident.`\
+https://nytimes.com/2024/09/16/upshot/polls-harris-trump-debate.html
+
 **How to Conceal Under-Eye Circles**\
 `Tips from three people used to late nights: a drag queen, a musician and a makeup artist.`\
 https://nytimes.com/2024/09/16/t-magazine/under-eye-dark-circles-guide.html
