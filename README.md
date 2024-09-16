@@ -1,3 +1,7 @@
+**Don't sweat Travis Kelce's slow start. But Sam LaPorta's ...**\
+`Travis Kelce may be struggling to produce fantasy points, but he's showing some encouraging statistical signs.`\
+https://nytimes.com/athletic/5770942/2024/09/16/fantasy-football-week-2-recap-dont-sweat-travis-kelces-slow-start/
+
 **Brentford's Wissa out for 'months' after suffering injury against Man City**\
 `Brentford forward Yoane Wissa is expected to be sidelined for at least two months after being forced off with an injury during Saturday&#8217;s defeat to Manchester City.`\
 https://nytimes.com/athletic/5771224/2024/09/16/yoane-wissa-injury-brentford/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5770957/2024/09/16/joe-mixon-nfl-hip-drop-tackle/
 **Love and Friendship, Day by Day **\
 `How seven people are keeping meaningful relationships alive in a digital world.`\
 https://nytimes.com/paidpost/snapchat/love-and-friendship-day-by-day.html
-
-**Sam Darnold has earned Kevin O'Connell's trust, and the Vikings are flying high**\
-`Minnesota's head coach has put his trust in Darnold, a former first-round pick, and the QB has rewarded him with an excellent start.`\
-https://nytimes.com/athletic/5768682/2024/09/16/vikings-sam-darnold-kevin-oconnell-trust/
 
