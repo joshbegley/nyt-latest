@@ -1,3 +1,7 @@
+**Canadiens have reached a new stage of the rebuild where information is king**\
+`The intentionally vague messaging from the Canadiens to kick off the season depicts a team where the unknown far outweighs the known.`\
+https://nytimes.com/athletic/5772136/2024/09/16/canadiens-rebuild-unknown-playoffs/
+
 **Tense Teamsters Meeting With Harris Ends With an Endorsement Still Dangling**\
 `The Teamsters president, Sean O’Brien, indicated he could announce as soon as Wednesday which presidential candidate — if any — the union would back.`\
 https://nytimes.com/2024/09/16/us/politics/teamsters-harris.html
