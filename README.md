@@ -1,3 +1,7 @@
+**A kicker's life: Austin Seibert comes in from off the street to save Commanders' day**\
+`Seibert — signed off the street by Washington six days ago to replace Cade York — accounted for all of the Commanders' points.`\
+https://nytimes.com/athletic/5769294/2024/09/15/austin-seibert-commanders-giants/
+
 **New-look Brian Flores defense perplexes 49ers, alters our expectations for Vikings**\
 `The Vikings surprised the 49ers and might be more competitive than many experts thought they'd be this season. The defense is to thank.`\
 https://nytimes.com/athletic/5769730/2024/09/15/vikings-49ers-brian-flores-defense-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/15/arts/emmy-awards/jeremy-allen-white-wins-bes
 **Chargers' evolution under Jim Harbaugh shines in blowout of Panthers**\
 `The Chargers are 2-0 for the first time since 2012 after throttling the Panthers 26-3 behind another big J.K. Dobbins performance.`\
 https://nytimes.com/athletic/5769748/2024/09/15/chargers-panthers-blowout-jim-harbaugh-running-game/
-
-**Tommy Cash, Country Singer and Younger Brother of Johnny, Dies at 84**\
-`While his career never approached the heights of his famous older brother’s, Tommy Cash drew inspiration from him and made his own name in country music.`\
-https://nytimes.com/2024/09/15/arts/tommy-cash-dead.html
 
