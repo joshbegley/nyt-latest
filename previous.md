@@ -1,9 +1,13 @@
+**A New York Times Reporter Revisits Earlier Interview With Suspect at Trump Golf Course**\
+`Ryan Wesley Routh wanted to fly Afghan veterans to fight alongside Ukraine when we met, an endeavor he seemed ill prepared to orchestrate.`\
+https://nytimes.com/2024/09/15/us/politics/trump-routh-ukraine-interview.html
+
 **Dehner Jr.: Peel back Bengals' emotion and a far more critical reality emerged vs. Chiefs**\
 `Sunday's defeat was a bitter pill for Cincinnati to swallow, but the team was back to looking like a contender in a tight affair.`\
 https://nytimes.com/athletic/5770299/2024/09/15/bengals-chiefs-loss-emotion-0-2-start/
 
 **Marvin Harrison Jr., after underwhelming debut, breaks out for Cardinals in Week 2**\
-`Marvin Harrison Jr. is a serious person who never strays from routine. Even so, his head coach admitted: "It was good to see him smile."`\
+`Harrison is a serious person who never strays from routine. Even so, his head coach admitted: "It was good to see him smile."`\
 https://nytimes.com/athletic/5770076/2024/09/15/marvin-harrison-jr-arizona-cardinals-touchdown-breakout/
 
 **In a Surprise Win, ‘Hacks’ Earns Top Comedy Award**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/15/arts/television/baby-reindeer-emmy-limited-series
 **After confronting their problems, Browns rely on defense to secure win over Jaguars**\
 `Cleveland's defense was far and away the best unit on the field as it stymied Jacksonville's offense to even its record at 1-1. `\
 https://nytimes.com/athletic/5769851/2024/09/15/browns-win-jaguars-defense/
-
-**Bob Newhart, the Everyman comedian who died this year, is honored.**\
-`By Matt Stevens`\
-https://nytimes.com/live/2024/09/15/arts/emmy-awards/bob-newhart-the-everyman-comedian-who-died-this-year-is-honored
 
