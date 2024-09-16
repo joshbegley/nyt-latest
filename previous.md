@@ -1,3 +1,7 @@
+**Submit your questions for Jesse Temple's Wisconsin mailbag**\
+`<p>Wisconsin enters its idle week coming off a 42-10 loss to Alabama.`\
+https://nytimes.com/athletic/5771126/2024/09/16/submit-your-questions-for-jesse-temples-wisconsin-mailbag/
+
 **Mixon criticizes NFL for not enforcing hip-drop tackle rule**\
 `Last March, NFL owners, with unanimous approval, voted at the annual league meetings to ban the swivel hip-drop tackle.`\
 https://nytimes.com/athletic/5770957/2024/09/16/joe-mixon-nfl-hip-drop-tackle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5757730/2024/09/16/champions-league-preview-how-to-
 **Do You Know Where in the World These Novels Are Set?**\
 `Try this short literary geography quiz on books with settings around the globe.`\
 https://nytimes.com/interactive/2024/09/16/books/review/world-cities-quiz.html
-
-**Elon Musk Writes, Then Deletes, a Post Musing About Threats to Biden and Harris**\
-`His remark, just hours after what authorities said was a second assassination attempt on Donald J. Trump, immediately drew outrage.`\
-https://nytimes.com/2024/09/16/us/politics/musk-deleted-tweet-biden-kamala.html
 

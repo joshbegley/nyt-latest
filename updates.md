@@ -1,3 +1,7 @@
+**Submit your questions for Jesse Temple's Wisconsin mailbag**\
+`<p>Wisconsin enters its idle week coming off a 42-10 loss to Alabama.`\
+https://nytimes.com/athletic/5771126/2024/09/16/submit-your-questions-for-jesse-temples-wisconsin-mailbag/
+
 **Mixon criticizes NFL for not enforcing hip-drop tackle rule**\
 `Last March, NFL owners, with unanimous approval, voted at the annual league meetings to ban the swivel hip-drop tackle.`\
 https://nytimes.com/athletic/5770957/2024/09/16/joe-mixon-nfl-hip-drop-tackle/
