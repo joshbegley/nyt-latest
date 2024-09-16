@@ -1,3 +1,7 @@
+**Top Biden Aide to Visit Israel Amid Fears of Escalation With Hezbollah**\
+`The visit by the adviser, Amos Hochstein, comes as cross-border clashes between Israel’s military and the powerful Lebanese militia have intensified.`\
+https://nytimes.com/2024/09/16/world/middleeast/israel-hezbollah-lebanon-gaza.html
+
 **This Week in Mets: Is this Pete Alonso's last homestand in Queens?**\
 `Brandon Nimmo shares his insight on playing through uncertainty; he knows what Alonso might be feeling as free agency looms.`\
 https://nytimes.com/athletic/5769227/2024/09/16/mets-pete-alonso-free-agent-homestand/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768777/2024/09/16/michigan-quarterbacks-davis-warr
 **How the Chiefs defense saved the day with a stellar fourth-quarter performance**\
 `Needing to support the offense, Steve Spagnuolo’s unit scored a touchdown and held the Bengals to three points in the fourth quarter.`\
 https://nytimes.com/athletic/5770360/2024/09/16/chiefs-defense-bengals-win/
-
-**Group of 5 schools are playing — and winning — more high-stakes games: CFP Bubble Watch**\
-`These early season nonconference games are more relevant to the national title race than ever, and college football will benefit.`\
-https://nytimes.com/athletic/5768917/2024/09/16/college-football-playoff-bubble-watch-group-of-five-memphis-toledo-unlv/
 

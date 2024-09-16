@@ -1,3 +1,7 @@
+**Top Biden Aide to Visit Israel Amid Fears of Escalation With Hezbollah**\
+`The visit by the adviser, Amos Hochstein, comes as cross-border clashes between Israel’s military and the powerful Lebanese militia have intensified.`\
+https://nytimes.com/2024/09/16/world/middleeast/israel-hezbollah-lebanon-gaza.html
+
 **This Week in Mets: Is this Pete Alonso's last homestand in Queens?**\
 `Brandon Nimmo shares his insight on playing through uncertainty; he knows what Alonso might be feeling as free agency looms.`\
 https://nytimes.com/athletic/5769227/2024/09/16/mets-pete-alonso-free-agent-homestand/
