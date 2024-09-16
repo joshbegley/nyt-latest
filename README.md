@@ -1,3 +1,7 @@
+**Canadiens have reached a new stage of the rebuild where information is king**\
+`The intentionally vague messaging from the Canadiens to kick off the season depicts a team where the unknown far outweighs the known.`\
+https://nytimes.com/athletic/5772136/2024/09/16/canadiens-rebuild-unknown-playoffs/
+
 **Tense Teamsters Meeting With Harris Ends With an Endorsement Still Dangling**\
 `The Teamsters president, Sean O’Brien, indicated he could announce as soon as Wednesday which presidential candidate — if any — the union would back.`\
 https://nytimes.com/2024/09/16/us/politics/teamsters-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5772068/2024/09/16/chargers-quentin-johnston-panthe
 **Dolphins signing QB Huntley; no decision on IR for Tagovailoa**\
 `McDaniel added that he would let "Tua speak on Tua's career" when asked if the quarterback intended to continue playing.`\
 https://nytimes.com/athletic/5772095/2024/09/16/dolphins-tyler-huntley-tua-tagovailoa/
-
-**The Best Recipes We've Ever Published, According to You**\
-`For the 10th anniversary of NYT Cooking, we’ve collected recipes that racked up five-star ratings, topped our charts and went viral — plus a few that lit up the comments section.`\
-https://nytimes.com/interactive/2024/dining/best-nyt-cooking-recipes.html
 
