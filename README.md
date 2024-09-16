@@ -1,3 +1,7 @@
+**Padres takeaways: Fernando Tatis Jr.’s left leg, Brandon Lockridge’s first impression**\
+`Why Tatis' leg injury probably isn't related to one he suffered as a child, and how Lockridge developed into a base-stealing threat.`\
+https://nytimes.com/athletic/5770447/2024/09/16/padres-fernando-tatis-jr-leg-brandon-lockridge/
+
 **The Athletic FC: How Arsenal cornered Spurs, Man City case begins, Brady vs Reynolds**\
 `Today in TAFC: How Arsenal cornered Tottenham, Brady vs Reynolds in EFL and Manchester City's legal battle against PL begins.`\
 https://nytimes.com/athletic/5770705/2024/09/16/arsenal-tottenham-man-city-charges-brady-reynolds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768480/2024/09/16/edmonton-oilers-gm-stan-bowman/
 **Lowetide: Previewing the Oilers’ depth chart ahead of training camp**\
 `A predictable chain of transactions is likely on the way out of Oilers camp this fall.`\
 https://nytimes.com/athletic/5768595/2024/09/16/edmonton-oilers-roster-training-camp-2024/
-
-**Inspired by doubters, Maxx Crosby leads Raiders defense in resilient win over Ravens**\
-`Las Vegas' leader on defense had six tackles, four TFLs, two sacks and a pass breakup. And a celebratory cigar after the upset win.`\
-https://nytimes.com/athletic/5769581/2024/09/16/raiders-ravens-maxx-crosby-defense-comeback/
 
