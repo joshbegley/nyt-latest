@@ -1,3 +1,27 @@
+**Pressure Grows on Mayor Adams as Key Officials Leave Amid Investigations**\
+`Mayor Eric Adams and his inner circle are under investigation, and two top New York City officials have resigned. Can the mayor still turn things around?`\
+https://nytimes.com/2024/09/16/nyregion/eric-adams-scandal.html
+
+**Can New York City Street Vendors Survive a Police Crackdown?**\
+`The police have been ticketing vendors for violations over the past year, upsetting sellers who say they are just trying to earn a living.`\
+https://nytimes.com/2024/09/16/nyregion/street-wars-vendors.html
+
+**Will TikTok Be Banned in January? That Question Is Headed to Court.**\
+`TikTok will be in federal court on Monday, aiming to block a new law that will ban the popular video app in the United States early next year.`\
+https://nytimes.com/2024/09/16/technology/tiktok-us-ban-court.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/16/crosswords/spelling-bee-forum.html
+
+**Looming Insurance Crisis Threatens Taxis and Ubers in New York City**\
+`American Transit, the largest insurer of the city’s for-hire vehicles, is insolvent. Its collapse could create a crisis that would take thousands of cars out of service.`\
+https://nytimes.com/2024/09/16/nyregion/american-transit-insurance-uber-lyft-nyc.html
+
+**The Ending of ‘Speak No Evil’ and the Perils of Remakes**\
+`The 2022 original retains its chilling power thanks to a worldview that the new version seems unwilling to embrace.`\
+https://nytimes.com/2024/09/16/movies/speak-no-evil-james-mcavoy.html
+
 **Lamine Yamal's art and graft sparks Barcelona's most impressive victory yet**\
 `The 17-year-old winger was the key figure in another impressive Barcelona victory this early season`\
 https://nytimes.com/athletic/5770535/2024/09/16/barcelona-lamine-yamal-la-liga-girona/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/09/16/learning/word-of-the-day-prescient.html
 **Shanghai Is Hit by Strongest Typhoon in Decades and Comes to a Standstill**\
 `The city canceled all flights at its two airports and closed major attractions, amid a three-day national holiday.`\
 https://nytimes.com/2024/09/16/world/asia/typhoon-bebinca-shanghai.html
-
-**The One Issue Where Israeli Extremists Are Mainstream**\
-`Israel’s annexation of the occupied West Bank is not a future prospect; it is a fact of life. Israelis and Palestinians live in a one-state reality.`\
-https://nytimes.com/2024/09/16/opinion/16el-ad.html
-
-**What’s on TV This Week: ‘Dancing With the Stars’ and ‘The Golden Bachelorette’**\
-`The dance competition and dating show are back for another season.`\
-https://nytimes.com/2024/09/16/arts/television/whats-on-tv-this-week-dancing-with-the-stars-and-the-golden-bachelorette.html
-
-**Unpicking Wolves' long search for a Premier League clean sheet**\
-`Wolves may have lost to two long-range strikes against Newcastle but their defensive issues are deep-rooted`\
-https://nytimes.com/athletic/5769060/2024/09/16/wolves-premier-league-clean-sheet/
-
-**Ponderous Palace still searching for the patterns and rhythm of last season**\
-`Oliver Glasner wanted a restart of the season on Saturday. But this felt more like a continuation of issues from his side’s previous games`\
-https://nytimes.com/athletic/5767204/2024/09/16/crystal-palace-slow-start-continues/
-
-**The creative numbers that show Wilfred Ndidi is a viable No 10 for Leicester**\
-`The Leicester midfielder may look unorthodox in attack but he has as many Premier League assists as Mohamed Salah this season`\
-https://nytimes.com/athletic/5767895/2024/09/16/wilfred-ndidi-creator-assists-leicester/
-
-**This is Newcastle's best start for 29 years - but they're playing poorly. What's going on?**\
-`It is only the sixth occasion that Newcastle have managed to navigate their opening four games of a Premier League season unbeaten`\
-https://nytimes.com/athletic/5768019/2024/09/16/newcastle-wolves-best-start-in-29-years/
 
