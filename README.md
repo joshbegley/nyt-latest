@@ -1,3 +1,7 @@
+**Michigan switches to Alex Orji at QB for USC game**\
+`Alex Orji will make his first career start at quarterback for Michigan on Saturday against USC, coach Sherrone Moore said Monday.`\
+https://nytimes.com/athletic/5771503/2024/09/16/michigan-alex-orji-starting-qb-usc/
+
 **American Parents Need Much More Than Tax Credits**\
 `If American parents didn’t have to sweat, they might have the time and mental space to attend to child-rearing’s ordinary challenges.`\
 https://nytimes.com/live/2024/09/11/opinion/thepoint/parenting-costs-usa
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/technology/smic-china-us-trade-war.html
 **Economy Still Weighs on Nevada as Harris and Trump Seek an Edge**\
 `The state is among a handful that will decide the presidential contest, and workers have felt increased prices at the grocery store and gas station.`\
 https://nytimes.com/2024/09/16/business/economy/nevada-economy-unemployment-election.html
-
-**Canadiens rookie camp: Reinbacher’s sphere of influence, Nicholas summer camp**\
-`The growth of Reinbacher's self-awareness, Josh Anderson putting in the work this summer and advice on defending Lane Hutson.`\
-https://nytimes.com/athletic/5770495/2024/09/16/canadiens-rookie-camp-david-reinbacher/
 
