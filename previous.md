@@ -10,8 +10,8 @@ https://nytimes.com/topic/banco-santander-s-a
 `Lindor did not rule out returning for the series against the Philadelphia Phillies, starting Thursday.`\
 https://nytimes.com/athletic/5771936/2024/09/16/francisco-lindor-mets-back-mri/
 
-**Suspect’s Self-Published Book Said Readers Were ‘Free to Assassinate Trump’**\
-`The book, “Ukraine’s Unwinnable War,” assails the former president over Iran, but saves its most vitriolic language for President Vladimir V. Putin of Russia.`\
+**Suspect’s Self-Published Book Assails Trump, Hinting at Approval of His Killing**\
+`The book, “Ukraine’s Unwinnable War,” calls the former president a “buffoon” and vents anger over Iran, but saves its most vitriolic language for President Vladimir V. Putin of Russia.`\
 https://nytimes.com/2024/09/16/us/politics/trump-assassination-suspect-book.html
 
 **Demonizing Immigrants Could Ruin the Revival of Some Heartland Cities**\

@@ -1,3 +1,7 @@
+**Suspect’s Self-Published Book Assails Trump, Hinting at Approval of His Killing**\
+`The book, “Ukraine’s Unwinnable War,” calls the former president a “buffoon” and vents anger over Iran, but saves its most vitriolic language for President Vladimir V. Putin of Russia.`\
+https://nytimes.com/2024/09/16/us/politics/trump-assassination-suspect-book.html
+
 **Bang on a Can**\
 `News about Bang on a Can. Commentary and archival information about Bang on a Can from The New York Times.`\
 https://nytimes.com/topic/bang-on-a-can
