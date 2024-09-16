@@ -1,3 +1,11 @@
+**Love and Friendship, Day by Day **\
+`How seven people are keeping meaningful relationships alive in a digital world.`\
+https://nytimes.com/paidpost/snapchat/love-and-friendship-day-by-day.html
+
+**Sam Darnold has earned Kevin O'Connell's trust, and the Vikings are flying high**\
+`Minnesota's head coach has put his trust in Darnold, a former first-round pick, and the QB has rewarded him with an excellent start.`\
+https://nytimes.com/athletic/5768682/2024/09/16/vikings-sam-darnold-kevin-oconnell-trust/
+
 **How could Manchester City be punished if they lose 115 charges case?**\
 `Exoneration? A settlement? A fine - or even relegation? We analyse the possible outcomes of City's fight with the Premier League`\
 https://nytimes.com/athletic/5770700/2024/09/16/manchester-city-punishment-115-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/16/us/politics/musk-deleted-tweet-biden-kamala.html
 **Harland & Wolff, Titanic Shipbuilder, Files for Bankruptcy**\
 `For the second time in five years, the parent company of the shipyard in Belfast, Northern Ireland, will enter administration, with Royal Navy contracts in the balance.`\
 https://nytimes.com/2024/09/16/business/harland-wolff-titanic-bankruptcy.html
-
-**Russia Ramps Up Air Assault on Ukrainian Cities**\
-`An attack on Kyiv early Monday was the eighth on the Ukrainian capital in about two weeks, officials said, adding that most of the incoming Russian drones had been intercepted.`\
-https://nytimes.com/2024/09/16/world/europe/ukraine-russia-kyiv-drone-attack.html
-
-**FPL: What we learned from Gameweek 4 - Joao Pedro pain and 'Pep Roulette'**\
-`Abdul Rehman assesses the main talking points from Gameweek 4 and what they could mean for your team `\
-https://nytimes.com/athletic/5769443/2024/09/16/fantasy-premier-league-gw4-joao-pedro-eze-watkins/
 
