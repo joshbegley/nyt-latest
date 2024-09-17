@@ -1,3 +1,11 @@
+**A Lange & Sohne**\
+`News about A Lange & Sohne. Commentary and archival information about A Lange & Sohne from The New York Times.`\
+https://nytimes.com/topic/a-lange-sohne
+
+**In Mexico, a Time of Celebration and Protest**\
+`By Luis Antonio Rojas`\
+https://nytimes.com/card/2024/09/17/world/americas/mexico-independence-day
+
 **Fan fined, handed stadium ban for online racist abuse of Vinicius Jr**\
 `A fan has been fined €60,001 (£50,686; $66,707) and banned from sports stadiums for two years by Spain&#8217;s Superior Sports Council (CSD) for racially abusing Real Madrid forward Vinicius Junior online.`\
 https://nytimes.com/athletic/5774318/2024/09/17/vinicius-junior-online-racism-real-madrid/

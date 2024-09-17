@@ -1,3 +1,11 @@
+**A Lange & Sohne**\
+`News about A Lange & Sohne. Commentary and archival information about A Lange & Sohne from The New York Times.`\
+https://nytimes.com/topic/a-lange-sohne
+
+**In Mexico, a Time of Celebration and Protest**\
+`By Luis Antonio Rojas`\
+https://nytimes.com/card/2024/09/17/world/americas/mexico-independence-day
+
 **Fan fined, handed stadium ban for online racist abuse of Vinicius Jr**\
 `A fan has been fined €60,001 (£50,686; $66,707) and banned from sports stadiums for two years by Spain&#8217;s Superior Sports Council (CSD) for racially abusing Real Madrid forward Vinicius Junior online.`\
 https://nytimes.com/athletic/5774318/2024/09/17/vinicius-junior-online-racism-real-madrid/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/israel-attacks-c
 **Esa Lindell to sign 5-year extension with Stars**\
 `The new deal carries a $5.25 million AAV and will take him through to the 2029-30 season.`\
 https://nytimes.com/athletic/5774188/2024/09/17/esa-lindell-extension-dallas-stars/
-
-**For Duckworth, Preserving I.V.F. Access Is Personal**\
-`The Democratic senator has long pressed to safeguard the fertility treatment she used to conceive her children, which has now been thrust into the political conversation.`\
-https://nytimes.com/2024/09/17/us/politics/tammy-duckworth-ivf-bill.html
-
-**D-3 school in Springfield, Ohio cancels athletic events for security reasons**\
-`Wittenberg has yet to specify the exact security concerns.`\
-https://nytimes.com/athletic/5773898/2024/09/17/wittenberg-university-athletics-security-cancel/
 
