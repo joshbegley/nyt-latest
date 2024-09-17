@@ -1,3 +1,11 @@
+**‘I Think We Are Owed More From Harris’: 14 Undecided, Young Voters on the Race**\
+`The focus group’s participants weigh Trump and Harris in the wake of the Sept. 10 debate.`\
+https://nytimes.com/interactive/2024/09/17/opinion/politics/17focus-group-persuadable-voters-2.html
+
+**Three Braves takeaways: RISP woes, Marcell Ozuna's power outage and more**\
+`The Braves rank among the worst teams in the big leagues when it comes to hitting with runners in scoring position.`\
+https://nytimes.com/athletic/5772844/2024/09/17/braves-marcell-ozuna-ozzie-albies/
+
 **With rookies and roars, Detroit Tigers are showing anything is possible**\
 `After another dramatic victory, the Tigers are only 1 1/2 games out of the wild-card race.`\
 https://nytimes.com/athletic/5772927/2024/09/17/tigers-win-royals-rookies/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5770898/2024/09/17/levi-colwill-chelsea-defence-ana
 **Inside Newcastle Q&A: 'Clumsy' Mitchell, transfer plans and Howe's 'strongest' XI**\
 `Chris Waugh answers fans' questions about the main issues at the club this week`\
 https://nytimes.com/athletic/5770587/2024/09/17/newcastle-questions-answered-mitchell-howe/
-
-**Manchester City want Rodri to sign a new contract as soon as possible - this is why**\
-`The midfielder is very happy at City but there are outside factors which could impact the decision he makes`\
-https://nytimes.com/athletic/5770722/2024/09/17/rodri-new-contract-manchester-city/
-
-**'I took the boos, then I scored the winner' - former Forest players on the East Midlands derby**\
-`It is over 2,500 days since Forest lost to Derby, but the local rivalry's absence from the fixture list in recent seasons is a shame...`\
-https://nytimes.com/athletic/5762583/2024/09/17/nottingham-forest-derby-county-east-midlands/
 

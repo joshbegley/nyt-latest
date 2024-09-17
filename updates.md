@@ -1,3 +1,11 @@
+**‘I Think We Are Owed More From Harris’: 14 Undecided, Young Voters on the Race**\
+`The focus group’s participants weigh Trump and Harris in the wake of the Sept. 10 debate.`\
+https://nytimes.com/interactive/2024/09/17/opinion/politics/17focus-group-persuadable-voters-2.html
+
+**Three Braves takeaways: RISP woes, Marcell Ozuna's power outage and more**\
+`The Braves rank among the worst teams in the big leagues when it comes to hitting with runners in scoring position.`\
+https://nytimes.com/athletic/5772844/2024/09/17/braves-marcell-ozuna-ozzie-albies/
+
 **With rookies and roars, Detroit Tigers are showing anything is possible**\
 `After another dramatic victory, the Tigers are only 1 1/2 games out of the wild-card race.`\
 https://nytimes.com/athletic/5772927/2024/09/17/tigers-win-royals-rookies/
