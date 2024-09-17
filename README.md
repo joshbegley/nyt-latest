@@ -1,3 +1,15 @@
+**How A.I., QAnon and Falsehoods Are Reshaping the Presidential Race**\
+`Three experts on social media and disinformation share their predictions for this year’s chaotic election.`\
+https://nytimes.com/2024/09/17/technology/election-ai-qanon-disinformation.html
+
+**Tracking Tropical Storm Pulasan**\
+`See the likely path and wind arrival times for Pulasan.`\
+https://nytimes.com/interactive/2024/09/17/weather/pulasan-map-path-tracker.html
+
+**Learning to Connect With Friends — Without Alcohol**\
+`Quitting drinking was the easy part. Figuring out how to be myself was harder.`\
+https://nytimes.com/2024/09/17/well/mind/quitting-alcohol-social-life.html
+
 **‘American Crime Story’ Turns to Sports With Aaron Hernandez Saga**\
 `The buzzy FX series delves into the N.F.L. star who murdered a friend less than a year after playing in the Super Bowl.`\
 https://nytimes.com/2024/09/17/arts/television/aaron-hernandez-american-sports-story.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/17/business/ukraine-aid-g7-russian-assets.html
 **The Guardian in Talks to Sell U.K.’s Oldest Sunday Newspaper to Digital Start-Up**\
 `The Observer, first published in 1791, could be bought by Tortoise Media, an outlet founded by a British media veteran that began publishing in 2019.`\
 https://nytimes.com/2024/09/17/business/dealbook/guardian-observer-sale-tortoise.html
-
-**Michael Jordan's mansion under contract after 12 years on market**\
-`Jordan built the house in 1995 when he played with the Chicago Bulls.`\
-https://nytimes.com/athletic/5773540/2024/09/17/michael-jordan-house-sale/
-
-**Kellogg’s Diner Lives On With Jackie Carnesi at the Helm**\
-`The co-owner of Miriam opens Rafael, Brass enlists Jeremiah Stone and Fabian von Hauske Valtierra, and more restaurant news.`\
-https://nytimes.com/2024/09/17/dining/nyc-restaurant-news.html
-
-**Weekly Student News Quiz: Presidential Debate, Emmy Awards, Marmosets**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/09/17/learning/17StudentNewsQuiz.html
 
