@@ -1,3 +1,7 @@
+**Kimmel Takes Stock of Trump’s Rhetoric After Suspect’s Arrest**\
+`Jimmy Kimmel said the former president, who blamed Democrats for “highly inflammatory language,” was himself “not a calming influence.”`\
+https://nytimes.com/2024/09/17/arts/television/jimmy-kimmel-trump.html
+
 **Meta Plans to Ban the Russian TV Network RT From Its Apps**\
 `The Facebook and Instagram owner said it would bar Russian media outlets including RT, which the U.S. has accused of acting as an intelligence arm.`\
 https://nytimes.com/2024/09/17/technology/meta-rt-russian-tv.html

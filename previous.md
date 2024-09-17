@@ -1,3 +1,7 @@
+**Kimmel Takes Stock of Trump’s Rhetoric After Suspect’s Arrest**\
+`Jimmy Kimmel said the former president, who blamed Democrats for “highly inflammatory language,” was himself “not a calming influence.”`\
+https://nytimes.com/2024/09/17/arts/television/jimmy-kimmel-trump.html
+
 **Meta Plans to Ban the Russian TV Network RT From Its Apps**\
 `The Facebook and Instagram owner said it would bar Russian media outlets including RT, which the U.S. has accused of acting as an intelligence arm.`\
 https://nytimes.com/2024/09/17/technology/meta-rt-russian-tv.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5763791/2024/09/17/spurs-league-cup-postecoglou/
 **Barnsley on Champions League opening night a reminder of where Man Utd must get back to**\
 `How strongly should Man Utd attack the Carabao Cup if returning to the Champions League is of greater financial reward?`\
 https://nytimes.com/athletic/5770967/2024/09/17/manchester-united-champions-league/
-
-**Colwill is becoming Chelsea's untouchable figure at the back**\
-`Levi Colwill has firmly established himself on the left-side of Enzo Maresca's Chelsea defence`\
-https://nytimes.com/athletic/5770898/2024/09/17/levi-colwill-chelsea-defence-analysis/
 
