@@ -1,3 +1,7 @@
+**There Might Be More Than One Way to Make a Planet**\
+`Astronomers have found evidence of a process that supports an alternative, more rapid approach to planetary formation, more top down than bottom up.`\
+https://nytimes.com/2024/09/16/science/planet-formation-top-down.html
+
 **Is Bryce Young's benching the beginning of the end for last year's No. 1 pick?**\
 `Andy Dalton will start the Panthers' Week 3 game, and Dave Canales didn't frame the change as temporary or a mental break for Young.`\
 https://nytimes.com/athletic/5772321/2024/09/16/bryce-young-benched-andy-dalton-panthers/
