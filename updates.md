@@ -1,3 +1,15 @@
+**Why Eric Adams Is Resisting Pressure to Oust Members of His Inner Circle**\
+`Mayor Adams has been loyal to longtime aides despite growing calls for them to resign. It is a trait he has shown through his career.`\
+https://nytimes.com/2024/09/17/nyregion/eric-adams-resignations-scandal.html
+
+**Until Saturday: Pac-12-Mountain West drama, plus Texas moves to No. 1**\
+`Welcome to Until Saturday, the five-star college football newsletter: How the Pac-12 expansion came together and what’s next.`\
+https://nytimes.com/athletic/5772190/2024/09/17/pac-12-expansion-mountain-west-conference-until-saturday/
+
+**Exploding Pagers Targeting Hezbollah Kill 11 and Wound Thousands, Lebanon Says**\
+`The Iranian-backed militant group, which uses pagers to safeguard communications, blamed Israel for the attack. Israel declined to comment.`\
+https://nytimes.com/2024/09/17/world/middleeast/hezbollah-pager-explosions-lebanon.html
+
 **California Passes Election ‘Deepfake’ Laws, Forcing Social Media Companies to Take Action**\
 `The state joins dozens of others in regulating the A.I. fakery in ways that could impact this year’s presidential race.`\
 https://nytimes.com/2024/09/17/technology/california-deepfakes-law-social-media-newsom.html
