@@ -1,4 +1,8 @@
 **When David Beckham turned up to watch a League One game**\
+`Birmingham v Wrexham was already expected to be an unusually star-studded occasion - then the former England captain turned up`\
+https://nytimes.com/athletic/5772048/2024/09/17/david-beckham-birmingham-city-wrexham-tom-brady/
+
+**When David Beckham turned up to watch a League One game**\
 `He’s Lionel Messi’s boss.`\
 https://nytimes.com/athletic/5772048/2024/09/17/david-beckham-birmingham-city-wrexham-tom-brady/
 
