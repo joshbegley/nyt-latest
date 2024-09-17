@@ -1,3 +1,11 @@
+**Bad Bunny and Karol G Are Most Nominated Artists for Latin Grammys**\
+`These streaming titans earned eight nods apiece for the 25th annual awards, although the Mexican American songwriter and producer Edgar Barrera received the most nominations overall, with nine.`\
+https://nytimes.com/2024/09/17/arts/music/latin-grammy-nominations-2024.html
+
+**Colorado Rockies to retire City Connect uniforms at season's end**\
+`If seeing uniforms in person is your thing, you have exactly one chance left to catch the Colorado Rockies' City Connect jerseys in action.`\
+https://nytimes.com/athletic/5773464/2024/09/17/colorado-rockies-city-connect-retire/
+
 **A $5 Billion NASA Mission Looked Doomed. Could Engineers Save It?**\
 `Weeks before Europa Clipper was to be shipped for launch, scientists discovered a potentially fatal flaw that might endanger the spacecraft’s ability to study an ocean moon of Jupiter.`\
 https://nytimes.com/2024/09/17/science/nasa-europa-clipper-radiation.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/17/us/trump-harris-election/new-report-shows-fu
 **Here are the latest developments.**\
 `By Alexandra E. Petri`\
 https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt/here-are-the-latest-developments
-
-**Live Updates: Biden Says Secret Service Needs More Help as Scrutiny of Agency Mounts**\
-`Federal investigators said that a gunman staked out former President Donald J. Trump’s golf course for hours. Investigators said they are focusing on how the suspect, a felon, obtained a firearm.`\
-https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt
-
-**Thompson: Brock Purdy, they're saying you aren't built for this — time to show 'em**\
-`The detractors are lining up. So are the injuries. The 49ers need you now to steady the ship, Brock.`\
-https://nytimes.com/athletic/5772777/2024/09/17/brock-purdy-san-francisco-49ers-critics-vikings/
 
