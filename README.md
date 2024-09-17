@@ -1,3 +1,7 @@
+**Musk super PAC switches field plan again in two pivotal states.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/09/17/us/trump-harris-election/musk-super-pac-switches-field-plan-again-in-two-pivotal-states
+
 **Secret Service Scrambled After Trump’s Short Notice on Golf Outing**\
 `The agency did not sweep the area where a gunman lay in wait for the former president at his club in Florida.`\
 https://nytimes.com/2024/09/17/us/politics/secret-service-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/science/scuba-dive-lizard-anole.html
 **What Harris Must Do to Win Over Skeptics (Like Me)**\
 `It’s not enough to be “Not Trump.”`\
 https://nytimes.com/2024/09/17/opinion/kamala-harris-election.html
-
-**Why the Story of the Golf Course Shooting Will Be Told Twice**\
-`Florida’s governor says a state investigation is needed because federal agencies can’t be trusted.`\
-https://nytimes.com/2024/09/17/us/politics/trump-assassination-attempt-investigation.html
 
