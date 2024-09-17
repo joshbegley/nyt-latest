@@ -1,3 +1,7 @@
+**The Briefing: AC Milan 1 Liverpool 3 - Gakpo stars as Slot's back four all contribute to impressive comeback**\
+`Our writers break down the key talking points from Liverpool's first Champions League game since March 2023`\
+https://nytimes.com/athletic/5770772/2024/09/17/ac-milan-liverpool-result-analysis/
+
 **Feldman: Why Tennessee picked an opportune time to raise ticket prices**\
 `Danny White has taken a strategy of transparency with the Vols faithful to let them know where their money will be going.`\
 https://nytimes.com/athletic/5774100/2024/09/17/tennessee-tickets-prices-revenue-sharing-danny-white/
