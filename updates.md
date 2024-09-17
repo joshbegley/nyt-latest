@@ -1,3 +1,15 @@
+**The Fires That Could Reshape the Amazon**\
+`Vast, diverse parts of Brazil are burning at the same time, forcing officials to rethink how to protect crucial ecosystems like the Amazon.`\
+https://nytimes.com/2024/09/17/climate/the-fires-that-could-reshape-the-amazon.html
+
+**Air Mail, Digital Weekly for the Smart Set, Is Said to Be Exploring a Sale**\
+`The company, founded in 2019, is known for its weekend newsletter of deeply reported features, travel recommendations and shopping tips.`\
+https://nytimes.com/2024/09/17/business/media/air-mail-sale.html
+
+**Alaska Airlines’ Acquisition of Hawaiian Airlines Cleared by Regulator**\
+`The airlines agreed to maintain some routes and meet other conditions to secure the Transportation Department’s approval of their merger.`\
+https://nytimes.com/2024/09/17/business/alaska-airlines-hawaiian-acquisition.html
+
 **A Lange & Sohne**\
 `News about A Lange & Sohne. Commentary and archival information about A Lange & Sohne from The New York Times.`\
 https://nytimes.com/topic/a-lange-sohne
