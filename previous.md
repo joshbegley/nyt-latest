@@ -1,3 +1,11 @@
+**Prime Tire: McLaren leads the F1 standings. Sure. Plus, judging the big Baku crash**\
+`Welcome to Prime Tire, The Athletic’s twice-weekly F1 newsletter.`\
+https://nytimes.com/athletic/5771283/2024/09/17/f1-mclaren-red-bull-perez-sainz-crash-azerbaijan-prime-tire/
+
+**Word of the Day: infraction**\
+`This word has appeared in 51 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/17/learning/word-of-the-day-infraction.html
+
 **Kirk Cousins' stunning game-winning drive shows why the Falcons paid him**\
 `The Atlanta Falcons beat the Philadelphia Eagles 22-21 on "Monday Night Football" in the seventh-most improbable comeback since 2016.`\
 https://nytimes.com/athletic/5773010/2024/09/17/kirk-cousins-monday-night-football-falcons-win/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5734497/2024/09/17/white-sox-watch-most-losses-seas
 **Can Ranger Suárez recapture some of the Phillies' trust before October?**\
 `Suárez only has two more starts in the regular season to convince the Phillies he deserves a longer leash than in previous postseasons.`\
 https://nytimes.com/athletic/5772872/2024/09/17/ranger-suarez-phillies-postseason/
-
-**Skipping school, exam issues and family rows - Villa's 1982 European Cup final win through fans' eyes**\
-`Missed exams, drinks with scorer Peter Withe and sleeping in the park - fans recall their experience of Villa winning the European Cup`\
-https://nytimes.com/athletic/5759746/2024/09/17/aston-villa-european-cup-win-1982/
-
-**Postecoglou and Spurs can't afford to fritter away League Cup opportunity**\
-`There will be a temptation to try out some new players at Coventry - yet making wholesale changes feels fraught with risk`\
-https://nytimes.com/athletic/5763791/2024/09/17/spurs-league-cup-postecoglou/
 

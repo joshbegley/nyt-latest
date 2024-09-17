@@ -1,3 +1,11 @@
+**Prime Tire: McLaren leads the F1 standings. Sure. Plus, judging the big Baku crash**\
+`Welcome to Prime Tire, The Athletic’s twice-weekly F1 newsletter.`\
+https://nytimes.com/athletic/5771283/2024/09/17/f1-mclaren-red-bull-perez-sainz-crash-azerbaijan-prime-tire/
+
+**Word of the Day: infraction**\
+`This word has appeared in 51 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/17/learning/word-of-the-day-infraction.html
+
 **Kirk Cousins' stunning game-winning drive shows why the Falcons paid him**\
 `The Atlanta Falcons beat the Philadelphia Eagles 22-21 on "Monday Night Football" in the seventh-most improbable comeback since 2016.`\
 https://nytimes.com/athletic/5773010/2024/09/17/kirk-cousins-monday-night-football-falcons-win/
