@@ -1,3 +1,19 @@
+**A Look at Hezbollah and What a Wider War Would Mean for Lebanon**\
+`Lebanon and Israel have repeatedly traded strikes since the Gaza war began in October, killing civilians and combatants in Lebanon and Israel.`\
+https://nytimes.com/2024/09/17/world/middleeast/israel-hezbollah-lebanon-war-impact.html
+
+**Presidential Campaigns and Allies Plan $500 Million in TV and Radio Ads**\
+`Groups backing Vice President Kamala Harris have reserved $332 million worth of airtime. Just about $194 million in ads will come from groups backing former President Donald J. Trump.`\
+https://nytimes.com/2024/09/17/us/elections/presidential-campaign-advertising-spending.html
+
+**Rabiot completes Marseille move**\
+`Adrien Rabiot has completed his move to Marseille on a free transfer.`\
+https://nytimes.com/athletic/5773222/2024/09/17/adrien-rabiot-olympique-marseille-transfer/
+
+**Super Bowl 2025 odds: Favorites and dark-horse contenders to challenge the Chiefs**\
+`Which teams have seen their Super Bowl outlook improve since the start of the season?`\
+https://nytimes.com/athletic/5773549/2024/09/17/super-bowl-2025-odds-week-3/
+
 **Bills All-22: How Buffalo's defense sticks to a rare plan to counteract explosive offenses**\
 `The Bills kept the Dolphins in check despite key injuries.`\
 https://nytimes.com/athletic/5773631/2024/09/17/buffalo-bills-film-breakdown-miami-dolphins/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/17/style/uncrustables-painting-noah-verrier.html
 **‘Sirocco and the Kingdom of Winds’ Review: Flights of Fantasy**\
 `Two sisters get transported to a new world and transformed into cats in this whimsical and thoughtful animated feature.`\
 https://nytimes.com/2024/09/17/movies/sirocco-and-the-kingdom-of-winds-review.html
-
-**Who do I drop? Ezekiel Elliott, DeAndre Hopkins and more fantasy football cuts ahead of Week 3**\
-`Gary Davenport identifies five players rostered in a majority of fantasy football leagues who can be kicked to the curb ahead of Week 3.`\
-https://nytimes.com/athletic/5773612/2024/09/17/fantasy-football-week-3-drops-elliott-hopkins-stafford/
-
-**How A.I., QAnon and Falsehoods Are Reshaping the Presidential Race**\
-`Three experts on social media and disinformation share their predictions for this year’s chaotic election.`\
-https://nytimes.com/2024/09/17/technology/election-ai-qanon-disinformation.html
-
-**Tracking Tropical Storm Pulasan**\
-`See the likely path and wind arrival times for Pulasan.`\
-https://nytimes.com/interactive/2024/09/17/weather/pulasan-map-path-tracker.html
-
-**Learning to Connect With Friends — Without Alcohol**\
-`Quitting drinking was the easy part. Figuring out how to be myself was harder.`\
-https://nytimes.com/2024/09/17/well/mind/quitting-alcohol-social-life.html
 
