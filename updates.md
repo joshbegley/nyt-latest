@@ -1,3 +1,11 @@
+**Rutgers President Announces Resignation After a Year Rocked by Protests**\
+`Jonathan Holloway was Rutgers’ first Black president. He helped the university grow but also faced criticism and questioning in Congress over pro-Palestinian encampments on campus.`\
+https://nytimes.com/2024/09/17/us/rutgers-president-resignation-jonathan-holloway.html
+
+**The Middle East Just Got Much Harder. Who Do You Want Leading America?**\
+`The explosion of wireless devices across Lebanon casts in sharp relief the challenges of U.S. foreign policy facing Kamala Harris or Donald Trump.`\
+https://nytimes.com/2024/09/17/opinion/trump-harris-foreign-policy.html
+
 **The Fires That Could Reshape the Amazon**\
 `Vast, diverse parts of Brazil are burning at the same time, forcing officials to rethink how to protect crucial ecosystems like the Amazon.`\
 https://nytimes.com/2024/09/17/climate/the-fires-that-could-reshape-the-amazon.html
