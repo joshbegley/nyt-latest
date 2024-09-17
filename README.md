@@ -1,5 +1,5 @@
 **Violence Swirling Around Trump Alarms an Uneasy World**\
-`After a second apparent assassination attempt, there is widespread concern that the November election will not end well and that American democracy has frayed to breaking point.`\
+`After a second apparent assassination attempt, there is widespread concern that the November election will not end well and that American democracy has frayed to the breaking point.`\
 https://nytimes.com/2024/09/17/world/what-in-the-world/trump-assassination-attempt-world-reaction.html
 
 **A Wildly Popular New York Taqueria Nails Its Sequel**\
