@@ -1,3 +1,7 @@
+**After ‘a Treasure Hunt,’ a Cut-Up Masterpiece Returns to Venice**\
+`More than 200 years after a ceiling painted by the Tuscan artist Vasari was dismembered and sold on the antiquarian market, it is (almost) whole again.`\
+https://nytimes.com/2024/09/17/arts/design/vasari-ceiling-gallerie-dell-accademica.html
+
 **One-on-one with Canucks GM Patrik Allvin: 'We're not going to waste any time here'**\
 `Allvin discusses Thatcher Demko's status, the Canucks' elevated expectations, Brock Boeser's future and more.`\
 https://nytimes.com/athletic/5771939/2024/09/17/canucks-gm-patrik-allvin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5772568/2024/09/17/seattle-seahawks-reaons-behind-u
 **Dodgers takeaways: Yoshinobu Yamamoto's usage, a lineup switch and more**\
 `Of Yamamoto’s 16 starts this season, exactly half have been on five days of rest, with the others coming on six or more.`\
 https://nytimes.com/athletic/5772786/2024/09/17/dodgers-takeaways-yoshinobu-yamamotos-usage-a-lineup-switch-and-more/
-
-**Real Madrid's Bernabeu noise problem and the neighbours who forced them to postpone concerts**\
-`There is a David versus Goliath feel to the residents’ struggles against Madrid, U.S. investors and the Spanish authorities`\
-https://nytimes.com/athletic/5771412/2024/09/17/real-madrid-bernabeu-concerts-residents/
 
