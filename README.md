@@ -1,3 +1,7 @@
+**Ukraine-Russia War Updates: Moscow Hits Back in Kursk as Air War Heats Up**\
+`Moscow’s troops have retaken a few villages in a border area that Kyiv’s forces invaded last month and are also advancing steadily in eastern Ukraine.`\
+https://nytimes.com/2024/09/17/world/europe/ukraine-russia-war-kursk.html
+
 **JaKobe Walter, the fifth starter and more: Analyzing Raptors rotation and depth chart**\
 `The Raptors have a glut of ... guards? What happened?`\
 https://nytimes.com/athletic/5762995/2024/09/17/toronto-raptors-depth-chart-jakobe-walter/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/opinion/social-media-smartphones-harm-regret.html
 **In the Trump Era, the Supreme Court Can’t ‘Soar Above Politics’**\
 `Did Chief Justice John Roberts not realize his immunity ruling would be seen as a victory for Trump?`\
 https://nytimes.com/live/2024/09/11/opinion/thepoint/supreme-court-roberts-immunity
-
-**In ‘High Potential,’ Kaitlin Olson Gets Smart**\
-`The longtime star of “It’s Always Sunny in Philadelphia” is a brilliant crime-solving maid in this new ABC procedural.`\
-https://nytimes.com/2024/09/17/arts/television/in-high-potential-kaitlin-olson-gets-smart.html
 
