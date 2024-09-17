@@ -1,3 +1,7 @@
+**The Athletic FC: The £3.7bn Champions League behemoth, Brady and Beckham watch Birmingham win**\
+`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
+https://nytimes.com/athletic/5773164/2024/09/17/champions-league-rise-brady-beckham-birmingham/
+
 **Cardinals takeaways: What to watch for in the final homestand of 2024**\
 `The Cardinals fell short of their standards for the second straight year, and attendance figures suggest fans are sending a message. `\
 https://nytimes.com/athletic/5772307/2024/09/17/cardinals-takeaways-what-to-watch-for-in-the-final-homestand-of-2024/
