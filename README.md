@@ -30,7 +30,7 @@ https://nytimes.com/2024/09/17/opinion/kamala-harris-election.html
 `Florida’s governor says a state investigation is needed because federal agencies can’t be trusted.`\
 https://nytimes.com/2024/09/17/us/politics/trump-assassination-attempt-investigation.html
 
-**Exploding Pagers Targeting Hezbollah Kill 9 and Wound Thousands, Lebanon Says**\
+**Exploding Pagers Targeting Hezbollah Kill 11 and Wound Thousands, Lebanon Says**\
 `The Iranian-backed militant group, which uses pagers to safeguard communications, blamed Israel for the attack. Israel declined to comment.`\
 https://nytimes.com/2024/09/17/world/middleeast/hezbollah-pager-explosions-lebanon.html
 
