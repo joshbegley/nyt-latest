@@ -1,3 +1,11 @@
+**Former governors implore their successors to certify the November election results.**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2024/09/17/us/trump-harris-election/former-governors-implore-their-successors-to-certify-the-november-election-results
+
+**Can Milan’s Craziest Fashion Brand Grow Up?**\
+`Sunnei, at 10, has become one of the hot shows of Milan Fashion Week. Can its founders move on to the next level?`\
+https://nytimes.com/2024/09/17/style/sunnei-milan-fashion-week.html
+
 **How a Video Game Shows the Imaginative Potential of Picture Books**\
 `In the Plucky Squire, a young hero fights a villainous wizard to become “the master of his storybook,” says Jamie Turner, the co-director of the game.`\
 https://nytimes.com/2024/09/17/arts/the-plucky-squire-book-game.html
