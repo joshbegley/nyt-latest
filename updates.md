@@ -1,3 +1,7 @@
+**New report shows further crumbling of trust in American institutions.**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2024/09/17/us/trump-harris-election/new-report-shows-further-crumbling-of-trust-in-american-institutions
+
 **Here are the latest developments.**\
 `By Alexandra E. Petri`\
 https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt/here-are-the-latest-developments
