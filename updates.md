@@ -1,3 +1,7 @@
+**Ukraine-Russia War Updates: Moscow Hits Back in Kursk as Air War Heats Up**\
+`Moscow’s troops have retaken a few villages in a border area that Kyiv’s forces invaded last month and are also advancing steadily in eastern Ukraine.`\
+https://nytimes.com/2024/09/17/world/europe/ukraine-russia-war-kursk.html
+
 **JaKobe Walter, the fifth starter and more: Analyzing Raptors rotation and depth chart**\
 `The Raptors have a glut of ... guards? What happened?`\
 https://nytimes.com/athletic/5762995/2024/09/17/toronto-raptors-depth-chart-jakobe-walter/
