@@ -1,3 +1,11 @@
+**How a Video Game Shows the Imaginative Potential of Picture Books**\
+`In the Plucky Squire, a young hero fights a villainous wizard to become “the master of his storybook,” says Jamie Turner, the co-director of the game.`\
+https://nytimes.com/2024/09/17/arts/the-plucky-squire-book-game.html
+
+**Happy Anniversary to Us!**\
+`To celebrate: a collection of our 50 greatest recipes, according to you, our New York Times Cooking family.`\
+https://nytimes.com/2024/09/17/happy-anniversary-to-us.html
+
 **Serie A (Italian Soccer League)**\
 `News about Serie A (Italian Soccer League). Commentary and archival information about Serie A (Italian Soccer League) from The New York Times.`\
 https://nytimes.com/topic/serie-a-italian-soccer-league
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/17/us/titan-submersible-coast-guard-hearing.html
 **The Windup: Consequential instant classic in KC**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5773768/2024/09/17/royals-tigers-series-mlb-standings-the-windup/
-
-**Bentley signs new three-year contract with Wolves**\
-`Wolverhampton Wanderers goalkeeper Dan Bentley has signed a new three-year contract with an option for a further year.`\
-https://nytimes.com/athletic/5773719/2024/09/17/dan-bentley-wolves-contract/
-
-**How Come Manet Never Painted Uncrustables?**\
-`Noah Verrier’s painting of a sandwich (minus one bite) sold for $4,999. Accused by some of being too commercial, he said he prefers objects “connected to who we are today.”`\
-https://nytimes.com/2024/09/17/style/uncrustables-painting-noah-verrier.html
 
