@@ -1,3 +1,19 @@
+**Students for a Democratic Society**\
+`News about Students for a Democratic Society. Commentary and archival information about Students for a Democratic Society from The New York Times.`\
+https://nytimes.com/topic/students-for-a-democratic-society
+
+**$50 Billion in Aid to Ukraine Stalls Over Legal Questions**\
+`U.S. and European officials are struggling to honor their pledge to use Russian assets to aid Ukraine.`\
+https://nytimes.com/2024/09/17/business/ukraine-aid-g7-russian-assets.html
+
+**The Guardian in Talks to Sell U.K.’s Oldest Sunday Newspaper to Digital Start-Up**\
+`The Observer, first published in 1791, could be bought by Tortoise Media, an outlet founded by a British media veteran that began publishing in 2019.`\
+https://nytimes.com/2024/09/17/business/dealbook/guardian-observer-sale-tortoise.html
+
+**Michael Jordan's mansion under contract after 12 years on market**\
+`Jordan built the house in 1995 when he played with the Chicago Bulls.`\
+https://nytimes.com/athletic/5773540/2024/09/17/michael-jordan-house-sale/
+
 **Players 'close' to striking over schedule - Rodri**\
 `Manchester City midfielder Rodri says professional players are &#8220;close&#8221; to going on strike due to the growing number of matches in the football calendar.`\
 https://nytimes.com/athletic/5773405/2024/09/17/rodri-player-strike-man-city/
