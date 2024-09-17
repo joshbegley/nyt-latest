@@ -1,3 +1,11 @@
+**Patriots' Bentley expected to miss rest of season with torn pectoral muscle**\
+`Bentley sustained the injury in the team’s overtime loss to the Seattle Seahawks on Sunday.`\
+https://nytimes.com/athletic/5772486/2024/09/16/jawhaun-bentley-patriots-injury/
+
+**Secret Service Admits Not Searching Golf Course Perimeter, Drawing New Scrutiny**\
+`The agency’s acting director, Ronald L. Rowe Jr., praised his agents’ actions but conceded that there was no sweep of the course at Donald Trump’s club that a gunman had staked out.`\
+https://nytimes.com/2024/09/16/us/politics/secret-service-scrutiny-trump.html
+
 **Vance says the left is to blame for the attempts on Trump’s life.**\
 `JD Vance, the Republican`\
 https://nytimes.com/live/2024/09/16/us/trump-shooting-news/vance-says-the-left-is-to-blame-for-the-attempts-on-trumps-life
