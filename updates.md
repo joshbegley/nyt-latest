@@ -1,3 +1,7 @@
+**Why the Story of the Golf Course Shooting Will Be Told Twice**\
+`Florida’s governor says a state investigation is needed because federal agencies can’t be trusted.`\
+https://nytimes.com/2024/09/17/us/politics/trump-assassination-attempt-investigation.html
+
 **Exploding Pagers Targeting Hezbollah Kill 8 and Wound Thousands, Lebanon Says**\
 `The Iranian-backed militant group, which uses pagers to safeguard communications, blamed Israeli for the attack. Israel declined to comment.`\
 https://nytimes.com/2024/09/17/world/middleeast/hezbollah-pager-explosions-lebanon.html

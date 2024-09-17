@@ -1,3 +1,7 @@
+**Why the Story of the Golf Course Shooting Will Be Told Twice**\
+`Florida’s governor says a state investigation is needed because federal agencies can’t be trusted.`\
+https://nytimes.com/2024/09/17/us/politics/trump-assassination-attempt-investigation.html
+
 **Exploding Pagers Targeting Hezbollah Kill 8 and Wound Thousands, Lebanon Says**\
 `The Iranian-backed militant group, which uses pagers to safeguard communications, blamed Israeli for the attack. Israel declined to comment.`\
 https://nytimes.com/2024/09/17/world/middleeast/hezbollah-pager-explosions-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774561/2024/09/17/nwsl-predictions-mvp-rookie-of-y
 **Danske Bank A/S**\
 `News about Danske Bank A/S. Commentary and archival information about Danske Bank A/S from The New York Times.`\
 https://nytimes.com/topic/danske-bank-as
-
-**Ten Hag 'calm and confident' of Rashford's Man Utd goals**\
-`Erik ten Hag says he is &#8220;calm, composed and confident&#8221; of Manchester United goals with Marcus Rashford in the team.`\
-https://nytimes.com/athletic/5775095/2024/09/17/marcus-rashford-man-united-goals/
 
