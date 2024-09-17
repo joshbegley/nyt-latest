@@ -1,3 +1,7 @@
+**Kirk Cousins' stunning game-winning drive shows why the Falcons paid him**\
+`The Atlanta Falcons beat the Philadelphia Eagles 22-21 on "Monday Night Football" in the seventh-most improbable comeback since 2016.`\
+https://nytimes.com/athletic/5773010/2024/09/17/kirk-cousins-monday-night-football-falcons-win/
+
 **Kimmel Takes Stock of Trump’s Rhetoric After Suspect’s Arrest**\
 `Jimmy Kimmel said the former president, who blamed Democrats for “highly inflammatory language,” was himself “not a calming influence.”`\
 https://nytimes.com/2024/09/17/arts/television/jimmy-kimmel-trump.html
