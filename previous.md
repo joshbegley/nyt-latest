@@ -1,3 +1,15 @@
+**49ers mailbag: Jacob Cowing to the rescue? Envisioning a trade with the Dolphins**\
+`Among this week's questions: What's the backup plan at center and why was the 49ers' defense so porous on third down late in Sunday's game?`\
+https://nytimes.com/athletic/5774653/2024/09/17/49ers-mailbag-rams-week-3/
+
+**Ohio Woman Says She Regrets Sharing False Rumor About Haitians on Facebook**\
+`The woman has since deleted the post claiming that one of her Haitian neighbors might have taken a neighbor’s cat. But it took on a life of its own.`\
+https://nytimes.com/2024/09/17/us/springfield-haitians-pets-facebook-rumor.html
+
+**Assn for a Better New York**\
+`News about Assn for a Better New York. Commentary and archival information about Assn for a Better New York from The New York Times.`\
+https://nytimes.com/topic/assn-for-a-better-new-york
+
 **Real Madrid's Endrick 'a very special player' - Ancelotti**\
 `Carlo Ancelotti has hailed Real Madrid striker Endrick as a &#8220;very special player&#8221; after scoring on his Champions League debut.`\
 https://nytimes.com/athletic/5775147/2024/09/17/endrick-real-madrid-carlo-ancelotti/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/17/briefing/hezbollah-pagers-instagram-harris-trump-
 **Colts' All-Pro DT DeForest Buckner lands on IR**\
 `Buckner will miss at least the next four games. It's a huge blow to a Colts defense that's already been struggling in 2024. `\
 https://nytimes.com/athletic/5774895/2024/09/17/colts-deforest-buckner-ir-ankle-injury/
-
-**Sheriff Posts Video of 11-Year-Old Charged in Fake School Shooting Threat**\
-`Sheriff Mike Chitwood of Volusia County, Fla., said he was exasperated by children making dozens of fake school shooting threats. He has promised to name and post mug shots of every offender.`\
-https://nytimes.com/2024/09/17/us/florida-false-school-shootings-mugshots.html
-
-**Derek Boshier, British Pop Artist and Bowie Collaborator, Dies at 87**\
-`Starting in the early 1960s, he set himself apart from his contemporaries with paintings that critiqued the cultural dominance of the United States.`\
-https://nytimes.com/2024/09/17/arts/derek-boshier-dead.html
-
-**Israel Planted Explosives in Pagers Sold to Hezbollah, Officials Say**\
-`Small amounts of explosive were implanted in beepers that Hezbollah had ordered from a Taiwanese company, according to American and other officials briefed on the operation.`\
-https://nytimes.com/2024/09/17/world/middleeast/israel-hezbollah-pagers-explosives.html
 

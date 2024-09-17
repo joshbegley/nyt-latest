@@ -1,3 +1,15 @@
+**49ers mailbag: Jacob Cowing to the rescue? Envisioning a trade with the Dolphins**\
+`Among this week's questions: What's the backup plan at center and why was the 49ers' defense so porous on third down late in Sunday's game?`\
+https://nytimes.com/athletic/5774653/2024/09/17/49ers-mailbag-rams-week-3/
+
+**Ohio Woman Says She Regrets Sharing False Rumor About Haitians on Facebook**\
+`The woman has since deleted the post claiming that one of her Haitian neighbors might have taken a neighbor’s cat. But it took on a life of its own.`\
+https://nytimes.com/2024/09/17/us/springfield-haitians-pets-facebook-rumor.html
+
+**Assn for a Better New York**\
+`News about Assn for a Better New York. Commentary and archival information about Assn for a Better New York from The New York Times.`\
+https://nytimes.com/topic/assn-for-a-better-new-york
+
 **Real Madrid's Endrick 'a very special player' - Ancelotti**\
 `Carlo Ancelotti has hailed Real Madrid striker Endrick as a &#8220;very special player&#8221; after scoring on his Champions League debut.`\
 https://nytimes.com/athletic/5775147/2024/09/17/endrick-real-madrid-carlo-ancelotti/
