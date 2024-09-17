@@ -1,3 +1,15 @@
+**The Fires That Could Reshape the Amazon**\
+`Vast, diverse parts of Brazil are burning at the same time, forcing officials to rethink how to protect crucial ecosystems like the Amazon.`\
+https://nytimes.com/2024/09/17/climate/the-fires-that-could-reshape-the-amazon.html
+
+**Air Mail, Digital Weekly for the Smart Set, Is Said to Be Exploring a Sale**\
+`The company, founded in 2019, is known for its weekend newsletter of deeply reported features, travel recommendations and shopping tips.`\
+https://nytimes.com/2024/09/17/business/media/air-mail-sale.html
+
+**Alaska Airlines’ Acquisition of Hawaiian Airlines Cleared by Regulator**\
+`The airlines agreed to maintain some routes and meet other conditions to secure the Transportation Department’s approval of their merger.`\
+https://nytimes.com/2024/09/17/business/alaska-airlines-hawaiian-acquisition.html
+
 **A Lange & Sohne**\
 `News about A Lange & Sohne. Commentary and archival information about A Lange & Sohne from The New York Times.`\
 https://nytimes.com/topic/a-lange-sohne
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5771832/2024/09/17/college-football-best-bets-week-
 **Iran’s ambassador to Lebanon is injured in the apparent attack, state media reports.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/irans-ambassador-to-lebanon-is-injured-in-the-apparent-attack-state-media-reports
-
-**Secret Service Told Trump It Needs to Bolster Security if He Keeps Golfing**\
-`The agency’s acting director, Ronald L. Rowe Jr., met with Donald J. Trump on Monday in the aftermath of the apparent assassination attempt on Sunday.`\
-https://nytimes.com/2024/09/17/us/politics/trump-secret-service-golf.html
-
-**Israel attacks central Gaza, and civil officials say at least four were killed.**\
-`By Hiba Yazbek and Anushka Patil`\
-https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/israel-attacks-central-gaza-and-civil-officials-say-at-least-four-were-killed
-
-**Esa Lindell to sign 5-year extension with Stars**\
-`The new deal carries a $5.25 million AAV and will take him through to the 2029-30 season.`\
-https://nytimes.com/athletic/5774188/2024/09/17/esa-lindell-extension-dallas-stars/
 
