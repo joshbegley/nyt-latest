@@ -1,3 +1,11 @@
+**Committee for a Responsible Federal Budget**\
+`News about Committee for a Responsible Federal Budget. Commentary and archival information about Committee for a Responsible Federal Budget from The New York Times.`\
+https://nytimes.com/topic/committee-for-a-responsible-federal-budget
+
+**Emery dedicates Villa's CL victory to Gary Shaw**\
+`Aston Villa head coach Unai Emery dedicated his side&#8217;s Champions League victory at Young Boys to the club&#8217;s former striker Gary Shaw, who died on Monday.`\
+https://nytimes.com/athletic/5774765/2024/09/17/aston-villa-emery-champions-league/
+
 **Caroline Ellison, Star Witness in FTX Case, Should Receive Lenient Sentence, Prosecutors Signal**\
 `Ms. Ellison, Sam Bankman-Fried’s former girlfriend and a top executive in his empire, is set to be sentenced on Sept. 24 for her role in the collapse of the crypto exchange.`\
 https://nytimes.com/2024/09/17/technology/caroline-ellison-ftx-sentence.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/17/us/trump-harris-election/trump-tax-break
 **Instagram’s New Protections for Kids Don’t Go Far Enough**\
 `By Zeynep Tufekci`\
 https://nytimes.com/live/2024/09/11/opinion/thepoint/instagram-children-regulation
-
-**U.S. Steel C.E.O. Says Nippon Deal Will Strengthen National Security**\
-`David Burritt expressed confidence that the sale of the American manufacturer to a Japanese owner would close “on its merits” despite bipartisan backlash.`\
-https://nytimes.com/2024/09/17/us/politics/us-steel-nippon-steel-deal.html
-
-**Ten prospects — aside from Macklin Celebrini — who helped themselves at Rookie Faceoff**\
-`In Los Angeles, top prospects got a chance to prove themselves, and others got an opportunity to shine.`\
-https://nytimes.com/athletic/5773100/2024/09/17/prospects-sharks-utah-ducks-kings-kraken/
 
