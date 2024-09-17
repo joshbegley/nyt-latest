@@ -1,3 +1,31 @@
+**Here are the latest developments.**\
+`By Alexandra E. Petri`\
+https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt/here-are-the-latest-developments
+
+**Live Updates: Biden Says Secret Service Needs More Help as Scrutiny of Agency Mounts**\
+`Federal investigators said that a gunman staked out former President Donald J. Trump’s golf course for hours. Investigators said they are focusing on how the suspect, a felon, obtained a firearm.`\
+https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt
+
+**Thompson: Brock Purdy, they're saying you aren't built for this — time to show 'em**\
+`The detractors are lining up. So are the injuries. The 49ers need you now to steady the ship, Brock.`\
+https://nytimes.com/athletic/5772777/2024/09/17/brock-purdy-san-francisco-49ers-critics-vikings/
+
+**The biggest factors fueling the Seahawks' 2-0 start**\
+`Mike Macdonald's group has been resilient, but they've also had difference-makers emerge on both sides of the ball.`\
+https://nytimes.com/athletic/5772568/2024/09/17/seattle-seahawks-reaons-behind-undefeated-start/
+
+**Dodgers takeaways: Yoshinobu Yamamoto's usage, a lineup switch and more**\
+`Of Yamamoto’s 16 starts this season, exactly half have been on five days of rest, with the others coming on six or more.`\
+https://nytimes.com/athletic/5772786/2024/09/17/dodgers-takeaways-yoshinobu-yamamotos-usage-a-lineup-switch-and-more/
+
+**Real Madrid's Bernabeu noise problem and the neighbours who forced them to postpone concerts**\
+`There is a David versus Goliath feel to the residents’ struggles against Madrid, U.S. investors and the Spanish authorities`\
+https://nytimes.com/athletic/5771412/2024/09/17/real-madrid-bernabeu-concerts-residents/
+
+**8 burning questions heading into Wild training camp: John Hynes one-on-one**\
+`How will the 3-goalie rotation play out? What will the lines be? We get the Minnesota coach's pre-camp take on those questions and more.`\
+https://nytimes.com/athletic/5771679/2024/09/17/wild-training-camp-questions-john-hynes/
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/17/us/trump-harris-election/heres-the-latest-on-the-presidential-race
@@ -9,32 +37,4 @@ https://nytimes.com/live/2024/09/17/us/trump-harris-election
 **Instagram, Facing Pressure Over Child Safety Online, Unveils Sweeping Changes**\
 `The app, which is popular with teenagers, introduced new settings and features aimed at addressing inappropriate online contact and content, and improving sleep for users under 18.`\
 https://nytimes.com/2024/09/17/technology/instagram-teens-safety-privacy-changes.html
-
-**Bank Mergers May Get Tougher to Do**\
-`The F.D.I.C. is expected to vote on more stringent new rules for takeovers, while the Justice Department plans to overhaul its own guidelines.`\
-https://nytimes.com/2024/09/17/business/dealbook/fdic-bank-mergers-rules.html
-
-**Banking Deal Oversight Expected to Get a Major Revamp**\
-`The F.D.I.C. and the Justice Department are likely to change how they evaluate mergers and acquisitions in the banking industry.`\
-https://nytimes.com/2024/09/17/business/dealbook/banking-oversight-fdic-justice-department.html
-
-**Ex Liverpool & Newcastle striker Carroll close to joining fourth tier Bordeaux**\
-`Former Liverpool and Newcastle United striker Andy Carroll is close to joining French fourth tier side FC Girondins de Bordeaux.`\
-https://nytimes.com/athletic/5773166/2024/09/17/andy-carroll-bordeaux-transfer/
-
-**The Rape Trial in France of 51 Men, Explained**\
-`Prosecutors say that, for almost a decade, Dominique Pelicot drugged his wife to rape her, alongside dozens of other men he invited to abuse her.`\
-https://nytimes.com/2024/09/17/world/europe/french-rape-trial-51-men-dominique-pelicot.html
-
-**Portugal Going Through ‘Difficult Days’ as Wildfires Burn Across the Country**\
-`More than 5,000 personnel are battling a number of wildfires, the authorities said, and the prime minister called it an “extremely difficult weather situation.”`\
-https://nytimes.com/2024/09/17/world/europe/portugal-wildfires.html
-
-**The Athletic FC: The £3.7bn Champions League behemoth, Brady and Beckham watch Birmingham win**\
-`The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
-https://nytimes.com/athletic/5773164/2024/09/17/champions-league-rise-brady-beckham-birmingham/
-
-**Cardinals takeaways: What to watch for in the final homestand of 2024**\
-`The Cardinals fell short of their standards for the second straight year, and attendance figures suggest fans are sending a message. `\
-https://nytimes.com/athletic/5772307/2024/09/17/cardinals-takeaways-what-to-watch-for-in-the-final-homestand-of-2024/
 
