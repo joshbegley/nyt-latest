@@ -1,3 +1,7 @@
+**Vance says the left is to blame for the attempts on Trump’s life.**\
+`JD Vance, the Republican`\
+https://nytimes.com/live/2024/09/16/us/trump-shooting-news/vance-says-the-left-is-to-blame-for-the-attempts-on-trumps-life
+
 **There Might Be More Than One Way to Make a Planet**\
 `Astronomers have found evidence of a process that supports an alternative, more rapid approach to planetary formation, more top down than bottom up.`\
 https://nytimes.com/2024/09/16/science/planet-formation-top-down.html
