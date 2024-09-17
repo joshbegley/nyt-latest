@@ -1,40 +1,40 @@
-**The top 10 college football broadcast teams from Week 3**\
-`After watching nearly every major-network game, plus a few others, here’s how I ranked the broadcast teams of Week 3.`\
-https://nytimes.com/athletic/5771333/2024/09/17/college-football-broadcast-rankings-week-3/
+**House Tour | Espace Aygo**\
+`The artist-roommates show off their shared Brussels townhouse where they made virtually everything, including a sink fixture from a pétanque ball and a tub from urethane rubber.`\
+https://nytimes.com/video/t-magazine/100000009681897/house-tour-espace-aygo.html
 
-**Modern Goose**\
-`There’s a natural world trapped within our cities.`\
-https://nytimes.com/video/opinion/100000009550473/modern-goose.html
+**Pastel Clothes Aren’t Just for Spring**\
+`Head-to-toe sorbet hues provide a palate cleanser this season.`\
+https://nytimes.com/2024/09/17/t-magazine/pastel-fashion-fall.html
 
-**Hurzeler backs Brighton's Ferguson: 'I already know his potential'**\
-`Brighton &amp; Hove Albion head coach Fabian Hurzeler says Evan Ferguson has nothing to prove to him.`\
-https://nytimes.com/athletic/5773140/2024/09/17/evan-ferguson-fabian-hurzeler-brighton/
+**Design Doesn’t Have to Be Polite**\
+`Sometimes homes are best when you can see the rough edges.`\
+https://nytimes.com/2024/09/17/t-magazine/design-hand-made-house.html
 
-**‘She Didn’t Deserve This’: Husband Accused of Raping Wife Testifies in French Court**\
-`Dominique Pelicot, who is accused of inviting strangers to rape his wife while she was drugged and unconscious, took the stand for the first time.`\
-https://nytimes.com/2024/09/17/world/europe/she-didnt-deserve-this-husband-accused-of-raping-wife-testifies-in-french-court.html
+**Forum 3 | What Issues Matter Most to You? Why?**\
+`What are the local, national and global problems, small or large, that you most want political leaders to address?`\
+https://nytimes.com/2024/09/17/learning/forum-3-what-issues-matter-most-to-you-why.html
 
-**When David Beckham turned up to watch a League One game**\
-`Birmingham v Wrexham was already expected to be an unusually star-studded occasion - then the former England captain turned up`\
-https://nytimes.com/athletic/5772048/2024/09/17/david-beckham-birmingham-city-wrexham-tom-brady/
+**Common Ground, and Conflict, Between 2 Stars of Land Art**\
+`A retrospective pairing Teresita Fernández and Robert Smithson shows they share sympathetic, deep engagement with geology and civilization.`\
+https://nytimes.com/2024/09/17/arts/design/fernandez-smithson-site-santa-fe.html
 
-**Critics Question N.Y.P.D. Shootings After Fare Evasion Stop in Subway**\
-`Officers fired during a clash with a man carrying a knife who was first stopped for fare evasion, police said. Two bystanders, an officer and the man were struck.`\
-https://nytimes.com/2024/09/17/nyregion/nypd-shooting-brooklyn-subway.html
+**Nusrat Fateh Ali Khan’s Voice Stunned the World (and Will Again)**\
+`“Chain of Light,” an album of four qawwalis the Pakistani singer recorded in 1990, are arriving after being discovered in the vaults of Peter Gabriel’s label.`\
+https://nytimes.com/2024/09/17/arts/music/nusrat-fateh-ali-khan-chain-of-light-peter-gabriel.html
 
-**Celebrity Endorsements**\
-`Do celebrities have an obligation to speak out about politics since they have such large platforms?`\
-https://nytimes.com/2024/09/17/learning/celebrity-endorsements.html
+**Will Lower Rates Unleash a Business Boom? It’s Complicated.**\
+`For corporate America, this week’s expected interest rate cut carries risks along with rewards.`\
+https://nytimes.com/2024/09/17/business/economy/fed-rate-cut-business-effects.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/17/crosswords/spelling-bee-forum.html
+**An Old White Billionaire Mentors a Young Black Woman in the Art of Philanthropy**\
+`In Rumaan Alam’s new novel, “Entitlement,” giving away a fortune isn’t as easy as it sounds.`\
+https://nytimes.com/2024/09/17/books/review/entitlement-rumaan-alam.html
 
-**A Fungus Decimated American Bats. Now Scientists Are Fighting Back.**\
-`Researchers have found several promising ways to thwart the fungus, which causes the deadly white-nose syndrome in bats.`\
-https://nytimes.com/2024/09/17/science/bats-white-nose-syndrome.html
+**The Mother of a Transgender Child Faces Her Hometown’s Hatred**\
+`In “One Day I’ll Grow Up and Be a Beautiful Woman,” Abi Maxwell struggles to raise her daughter in a New Hampshire community that refuses to accept her.`\
+https://nytimes.com/2024/09/17/books/review/one-day-ill-grow-up-and-be-a-beautiful-woman-abi-maxwell.html
 
-**Mapping the Decline of Eelgrass Along Maine’s Coast**\
-`Researchers are studying the role of eelgrass beds for carbon capture and the health of the food habit for a variety of species.`\
-https://nytimes.com/2024/09/17/science/eelgrass-climate-change-maine.html
+**7 Beautiful Places for Fall Foliage That Aren’t in New England**\
+`As autumn sweeps in, where will you go to get your fix of fiery golds and reds? This could be the year to try Michigan or Oregon instead of Massachusetts.`\
+https://nytimes.com/2024/09/17/travel/fall-leaves-autumn-foliage-michigan-oregon.html
 
