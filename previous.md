@@ -1,3 +1,15 @@
+**The top 10 college football broadcast teams from Week 3**\
+`After watching nearly every major-network game, plus a few others, here’s how I ranked the broadcast teams of Week 3.`\
+https://nytimes.com/athletic/5771333/2024/09/17/college-football-broadcast-rankings-week-3/
+
+**Modern Goose**\
+`There’s a natural world trapped within our cities.`\
+https://nytimes.com/video/opinion/100000009550473/modern-goose.html
+
+**Hurzeler backs Brighton's Ferguson: 'I already know his potential'**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler says Evan Ferguson has nothing to prove to him.`\
+https://nytimes.com/athletic/5773140/2024/09/17/evan-ferguson-fabian-hurzeler-brighton/
+
 **‘She Didn’t Deserve This’: Husband Accused of Raping Wife Testifies in French Court**\
 `Dominique Pelicot, who is accused of inviting strangers to rape his wife while she was drugged and unconscious, took the stand for the first time.`\
 https://nytimes.com/2024/09/17/world/europe/she-didnt-deserve-this-husband-accused-of-raping-wife-testifies-in-french-court.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/17/science/bats-white-nose-syndrome.html
 **Mapping the Decline of Eelgrass Along Maine’s Coast**\
 `Researchers are studying the role of eelgrass beds for carbon capture and the health of the food habit for a variety of species.`\
 https://nytimes.com/2024/09/17/science/eelgrass-climate-change-maine.html
-
-**Pelosi Blamed New York for House Losses. Hochul Wants Another Chance.**\
-`The New York governor has rebuilt the state Democratic Party to help flip key swing seats in November. But can she stanch her own political bleeding?`\
-https://nytimes.com/2024/09/17/nyregion/hochul-democrats-house-election.html
-
-**Guardians' rallies topple Twins, who see wild-card advantage shrink again**\
-`After blowing a 3-0 lead, Minnesota leads Detroit by only 1 1/2 games and 2 games over Seattle for the final wild-card spot.`\
-https://nytimes.com/athletic/5773049/2024/09/17/twins-wild-card-advantage-dwindles/
-
-**Prime Tire: McLaren leads the F1 standings. Sure. Plus, judging the big Baku crash**\
-`Welcome to Prime Tire, The Athletic’s twice-weekly F1 newsletter.`\
-https://nytimes.com/athletic/5771283/2024/09/17/f1-mclaren-red-bull-perez-sainz-crash-azerbaijan-prime-tire/
 
