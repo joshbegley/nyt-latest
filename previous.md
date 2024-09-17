@@ -1,3 +1,15 @@
+**Ex Liverpool & Newcastle striker Carroll close to joining fourth tier Bordeaux**\
+`Former Liverpool and Newcastle United striker Andy Carroll is close to joining French fourth tier side FC Girondins de Bordeaux.`\
+https://nytimes.com/athletic/5773166/2024/09/17/andy-carroll-bordeaux-transfer/
+
+**The Rape Trial in France of 51 Men, Explained**\
+`Prosecutors say that, for almost a decade, Dominique Pelicot drugged his wife to rape her, alongside dozens of other men he invited to abuse her.`\
+https://nytimes.com/2024/09/17/world/europe/french-rape-trial-51-men-dominique-pelicot.html
+
+**Portugal Going Through ‘Difficult Days’ as Wildfires Burn Across the Country**\
+`More than 5,000 personnel are battling a number of wildfires, the authorities said, and the prime minister called it an “extremely difficult weather situation.”`\
+https://nytimes.com/2024/09/17/world/europe/portugal-wildfires.html
+
 **The Athletic FC: The £3.7bn Champions League behemoth, Brady and Beckham watch Birmingham win**\
 `The Athletic FC is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
 https://nytimes.com/athletic/5773164/2024/09/17/champions-league-rise-brady-beckham-birmingham/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5771518/2024/09/17/bruins-jeremy-swayman-negotiatio
 **Rookie Brock Bowers breaks out at vital time for struggling Raiders offense**\
 `The tight end came up big for the Raiders in their Week 2 win over the Ravens and appears to be developing a rapport with Gardner Minshew.`\
 https://nytimes.com/athletic/5771452/2024/09/17/brock-bowers-raiders-ravens-breakout/
-
-**Meet Arsenal's mascot-turned-TV-star: 'I thought, "Why are they high-fiving my players?"'**\
-`Danny, the eight-year-old Arsenal mascot, showed his Tottenham counterparts who was boss in the tunnel before the north London derby`\
-https://nytimes.com/athletic/5771821/2024/09/17/arsenal-mascot-tottenham-tunnel-danny/
-
-**The Pulse: MNF's highly improbable comeback**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5771103/2024/09/17/falcons-eagles-final-score-the-pulse/
-
-**Armed Men Attack Military Site in Mali’s Capital**\
-`The West African country’s armed forces said the assault, on a school for military police, was carried out by terrorists.`\
-https://nytimes.com/2024/09/17/world/africa/mali-capital-attack-military.html
 
