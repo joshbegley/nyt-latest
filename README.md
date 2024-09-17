@@ -1,3 +1,7 @@
+**Vance says the left is to blame for the attempts on Trump’s life.**\
+`JD Vance, the Republican`\
+https://nytimes.com/live/2024/09/16/us/trump-shooting-news/vance-says-the-left-is-to-blame-for-the-attempts-on-trumps-life
+
 **There Might Be More Than One Way to Make a Planet**\
 `Astronomers have found evidence of a process that supports an alternative, more rapid approach to planetary formation, more top down than bottom up.`\
 https://nytimes.com/2024/09/16/science/planet-formation-top-down.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5772330/2024/09/16/deebo-samuel-49ers-calf-injury/
 **Man Arrested at Trump Golf Course Had a History of Crusading for Causes**\
 `Interviews, records and a self-aggrandizing book suggest that Ryan Routh, a peripatetic builder, saw himself as an influential participant in momentous world events.`\
 https://nytimes.com/2024/09/16/us/trump-suspect-golf-course-routh.html
-
-**Lucas Raymond signs eight-year extension with Red Wings: What it means and what's next**\
-`The Red Wings signed Raymond to a long-term deal Monday night just days before camp opens. What does the deal mean for Detroit?`\
-https://nytimes.com/athletic/5579464/2024/09/16/red-wings-lucas-raymond-contract-extension/
 
