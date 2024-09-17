@@ -1,3 +1,7 @@
+**Players 'close' to striking over schedule - Rodri**\
+`Manchester City midfielder Rodri says professional players are &#8220;close&#8221; to going on strike due to the growing number of matches in the football calendar.`\
+https://nytimes.com/athletic/5773405/2024/09/17/rodri-player-strike-man-city/
+
 **Kellogg’s Diner Lives On With Jackie Carnesi at the Helm**\
 `The co-owner of Miriam opens Rafael, Brass enlists Jeremiah Stone and Fabian von Hauske Valtierra, and more restaurant news.`\
 https://nytimes.com/2024/09/17/dining/nyc-restaurant-news.html
