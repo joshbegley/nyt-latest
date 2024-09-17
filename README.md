@@ -1,3 +1,7 @@
+**Can Ranger Suárez recapture some of the Phillies' trust before October?**\
+`Suárez only has two more starts in the regular season to convince the Phillies he deserves a longer leash than in previous postseasons.`\
+https://nytimes.com/athletic/5772872/2024/09/17/ranger-suarez-phillies-postseason/
+
 **Skipping school, exam issues and family rows - Villa's 1982 European Cup final win through fans' eyes**\
 `Missed exams, drinks with scorer Peter Withe and sleeping in the park - fans recall their experience of Villa winning the European Cup`\
 https://nytimes.com/athletic/5759746/2024/09/17/aston-villa-european-cup-win-1982/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5768479/2024/09/17/arsenal-gamebreaking-goal-gabrie
 **Carlos Mendoza pressing right buttons as Mets 'continue to find a way'**\
 `Using a deep bench and grinding away is the kind of thing the Mets have proved able to handle.`\
 https://nytimes.com/athletic/5772864/2024/09/17/carlos-mendoza-pressing-right-buttons-as-mets-continue-to-find-a-way/
-
-**How Richard Hughes was made in Milan**\
-`Tonight's visit to San Siro is a homecoming for Anfield's sporting director, who was indelibly shaped by his time in Italy`\
-https://nytimes.com/athletic/5765011/2024/09/17/richard-hughes-liverpool-milan/
 
