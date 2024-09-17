@@ -1,3 +1,11 @@
+**Ten Hag 'calm and confident' of Rashford's Man Utd goals**\
+`Erik ten Hag says he is &#8220;calm, composed and confident&#8221; of Manchester United goals with Marcus Rashford in the team.`\
+https://nytimes.com/athletic/5775095/2024/09/17/marcus-rashford-man-united-goals/
+
+**The Evening: Hundreds of Pagers Explode in Lebanon**\
+`Plus, how a rate cut could affect you.`\
+https://nytimes.com/2024/09/17/briefing/hezbollah-pagers-instagram-harris-trump-sean-combs.html
+
 **Minnesota Timberwolves executive VP Sachin Gupta set to join Chelsea**\
 `Sachin Gupta, executive vice president of basketball operations for the Minnesota Timberwolves, is set to leave the NBA franchise to take a role at Chelsea.`\
 https://nytimes.com/athletic/5774909/2024/09/17/chelsea-sachin-gupta-minnesota-timberwolves/
