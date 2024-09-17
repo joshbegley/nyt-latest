@@ -1,3 +1,11 @@
+**Feldman: Why Tennessee picked an opportune time to raise ticket prices**\
+`Danny White has taken a strategy of transparency with the Vols faithful to let them know where their money will be going.`\
+https://nytimes.com/athletic/5774100/2024/09/17/tennessee-tickets-prices-revenue-sharing-danny-white/
+
+**Live Q&A: Week 3 fantasy football add/drop chat with Jay Felicio, Tuesday 9/17 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5774891/2024/09/17/live-qa-week-3-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-9-17-at-5-p-m-et/
+
 **Trumpism, Stalinism and the Tariff Debate**\
 `The spirit of Trofim Lysenko comes to trade policy.`\
 https://nytimes.com/2024/09/17/opinion/trump-tariffs-economy.html

@@ -1,3 +1,11 @@
+**Feldman: Why Tennessee picked an opportune time to raise ticket prices**\
+`Danny White has taken a strategy of transparency with the Vols faithful to let them know where their money will be going.`\
+https://nytimes.com/athletic/5774100/2024/09/17/tennessee-tickets-prices-revenue-sharing-danny-white/
+
+**Live Q&A: Week 3 fantasy football add/drop chat with Jay Felicio, Tuesday 9/17 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5774891/2024/09/17/live-qa-week-3-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-9-17-at-5-p-m-et/
+
 **Trumpism, Stalinism and the Tariff Debate**\
 `The spirit of Trofim Lysenko comes to trade policy.`\
 https://nytimes.com/2024/09/17/opinion/trump-tariffs-economy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5774635/2024/09/17/chiefs-sign-kareem-hunt/
 **Senate Republicans Block I.V.F. Protection Bill a Second Time, Breaking With Trump**\
 `Democrats brought up the measure again to highlight Republican opposition to abortion rights and make the case to voters that the G.O.P. stance threatens access to reproductive health care.`\
 https://nytimes.com/2024/09/17/us/politics/ivf-bill-senate-vote.html
-
-**We fact-checked Kamala Harris’s N.A.B.J. appearance.**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/09/17/us/trump-harris-election/we-fact-checked-kamala-harriss-nabj-appearance
-
-**Ex-Officer Testifies Against His Former Colleagues in Tyre Nichols’s Death**\
-`A former Memphis officer said he had been angry about a lack of arrests even before he began a pursuit that led to a fatal beating.`\
-https://nytimes.com/2024/09/17/us/tyre-nichols-emmitt-martin-memphis-police.html
 
