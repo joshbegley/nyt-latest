@@ -1,3 +1,7 @@
+**49ers mailbag: Jacob Cowing to the rescue? Envisioning a trade with the Dolphins**\
+`Among this week's questions: What's the backup plan at center and why was the 49ers defense so porous on third down late in Sunday's game?`\
+https://nytimes.com/athletic/5774653/2024/09/17/49ers-mailbag-rams-week-3/
+
 **Champions League Briefing - Kane and Bayern's records, Endrick's impact and two outrageous goals**\
 `There were 28 goals, including two stunners, across six matches and so many talking points as Europe's top-tier club competition returned`\
 https://nytimes.com/athletic/5774524/2024/09/17/champions-league-kane-bayern-endrick-gyokeres/
