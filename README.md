@@ -1,3 +1,7 @@
+**Oilers offseason report card: Grading all of management’s summer moves**\
+`Here’s an audit of every move the Oilers made pertaining to the NHL roster since the end of last season.`\
+https://nytimes.com/athletic/5774031/2024/09/17/oilers-offseason-moves-grade-2024/
+
 **Farley, James A, General Post Office (Manhattan, NY)**\
 `News about Farley, James A, General Post Office (Manhattan, NY). Commentary and archival information about Farley, James A, General Post Office (Manhattan, NY) from The New York Times.`\
 https://nytimes.com/topic/farley-james-a-general-post-office-manhattan-ny
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5773813/2024/09/17/tennessee-football-ticket-prices
 **Read the Indictment in the Sex Trafficking Case Against Sean Combs**\
 `Federal prosecutors issued an indictment against Sean Combs that accused the music mogul known as Diddy and Puff Daddy of running a criminal enterprise that included sex trafficking, forced labor and coercion and enticement to engage in prostitution.`\
 https://nytimes.com/interactive/2024/09/17/arts/music/sean-combs-diddy-indictment.html
-
-**Why baseball cards are still bigger than other sports cards**\
-`While the NFL and NBA have surpassed baseball in mainstream popularity, the balance in the trading card world is different `\
-https://nytimes.com/athletic/5773753/2024/09/17/baseball-cards-popularity-nfl-nba/
 
