@@ -1,3 +1,23 @@
+**Cubs takeaways: Shota Imanaga continues to impress, Michael Busch keeps bouncing back and more**\
+`Imanaga has answered questions about how he'd do coming over from NPB, Busch has made adjustments and more.`\
+https://nytimes.com/athletic/5772701/2024/09/17/cubs-shota-imanaga-success-michael-busch/
+
+**aylor not given Premier League game after showing record number of yellow cards last weekend**\
+`Anthony Taylor will not referee a Premier League fixture this weekend after issuing the most yellow cards in top-flight history during Chelsea&#8217;s clash against Bournemouth last Saturday.`\
+https://nytimes.com/athletic/5773153/2024/09/17/anthony-taylor-referee-yellow-cards/
+
+**Bears defense impressive so far, unlike offensive line: 5 takeaways**\
+`The Bears could send a message by benching one of their struggling offensive linemen. Plus, key stretch for Shane Waldron looms.`\
+https://nytimes.com/athletic/5772643/2024/09/17/bears-defense-offensive-line-texans/
+
+**Vikings' rushing attack showing massive growth behind Aaron Jones, Ty Chandler**\
+`Why is the Vikings' run game so improved? The offensive line, the running backs and Kevin O'Connell's scheme are all playing major roles.`\
+https://nytimes.com/athletic/5772084/2024/09/17/vikings-running-game-aaron-jones-ty-chandler/
+
+**Giants gashed on ground by Commanders, and there's little hope for improvement**\
+`It's hard to see the Giants run defense making dramatic strides based on the personnel in the middle of the defense.`\
+https://nytimes.com/athletic/5771989/2024/09/17/new-york-giants-run-defense-shane-bowen-commanders/
+
 **Ghiroli: Why the Royals are good for baseball**\
 `Not every move the Royals made has worked out. But, like their lineup, the Royals front office has a pretty low whiff rate.`\
 https://nytimes.com/athletic/5772016/2024/09/17/royals-success-good-for-mlb/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5751765/2024/09/17/easton-cowan-maple-leafs-nhl/
 **Sidney Crosby's new contract keeps him with Penguins — and in control**\
 `The Penguins locked up their franchise player, but there's a catch.`\
 https://nytimes.com/athletic/5772212/2024/09/17/sidney-crosby-penguins-contract-extension-analysis/
-
-**A Second Assassination Attempt and the New Era of Political Violence**\
-`A look at what we know about what appears to be a second attempt to assassinate Donald Trump.`\
-https://nytimes.com/2024/09/17/podcasts/the-daily/donald-trump-assissination-attempt.html
-
-**Wordle Review No. 1,187**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, September 18, 2024.`\
-https://nytimes.com/2024/09/17/crosswords/wordle-review-1187.html
-
-**The Connections Companion No. 465**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 18, 2024.`\
-https://nytimes.com/2024/09/17/crosswords/connections-companion-465.html
-
-**Ubben: Arch Manning transferring from Texas never would have made sense**\
-`It was easy to think Manning, who is expected to start Saturday, might transfer when Ewers returned, but there was never a good reason.`\
-https://nytimes.com/athletic/5772297/2024/09/17/arch-manning-texas-transfer-portal-ewers/
-
-**How Deshaun Watson and the Browns' offense fared in win over Jaguars**\
-`While Cleveland didn't put up many points in its Week 2 victory, Watson looked more comfortable and made some progress running the offense.`\
-https://nytimes.com/athletic/5772286/2024/09/17/browns-offense-deshaun-watson-jaguars/
 
