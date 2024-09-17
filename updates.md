@@ -1,3 +1,7 @@
+**Cardinals takeaways: What to watch for in the final homestand of 2024**\
+`The Cardinals fell short of their standards for the second straight year, and attendance figures suggest fans are sending a message. `\
+https://nytimes.com/athletic/5772307/2024/09/17/cardinals-takeaways-what-to-watch-for-in-the-final-homestand-of-2024/
+
 **Who is each MLB playoff contender's most indispensable 'under-the-radar' player? Execs weigh in**\
 `Who is the most underrated, yet indispensable player on each of the postseason contenders? What do their managers and execs say about them?`\
 https://nytimes.com/athletic/5772020/2024/09/17/mlb-playoff-contenders-2024-analysis/
