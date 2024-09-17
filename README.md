@@ -1,3 +1,15 @@
+**Skipping school, exam issues and family rows - Villa's 1982 European Cup final win through fans' eyes**\
+`Missed exams, drinks with scorer Peter Withe and sleeping in the park - fans recall their experience of Villa winning the European Cup`\
+https://nytimes.com/athletic/5759746/2024/09/17/aston-villa-european-cup-win-1982/
+
+**Postecoglou and Spurs can't afford to fritter away League Cup opportunity**\
+`There will be a temptation to try out some new players at Coventry - yet making wholesale changes feels fraught with risk`\
+https://nytimes.com/athletic/5763791/2024/09/17/spurs-league-cup-postecoglou/
+
+**Barnsley on Champions League opening night a reminder of where Man Utd must get back to**\
+`How strongly should Man Utd attack the Carabao Cup if returning to the Champions League is of greater financial reward?`\
+https://nytimes.com/athletic/5770967/2024/09/17/manchester-united-champions-league/
+
 **Colwill is becoming Chelsea's untouchable figure at the back**\
 `Levi Colwill has firmly established himself on the left-side of Enzo Maresca's Chelsea defence`\
 https://nytimes.com/athletic/5770898/2024/09/17/levi-colwill-chelsea-defence-analysis/
@@ -19,22 +31,10 @@ https://nytimes.com/athletic/5762583/2024/09/17/nottingham-forest-derby-county-e
 https://nytimes.com/athletic/5768479/2024/09/17/arsenal-gamebreaking-goal-gabriel/
 
 **Carlos Mendoza pressing right buttons as Mets 'continue to find a way'**\
-`Using a deep bench and grinding away is the kind of thing that the Mets have proven able to handle.`\
+`Using a deep bench and grinding away is the kind of thing the Mets have proved able to handle.`\
 https://nytimes.com/athletic/5772864/2024/09/17/carlos-mendoza-pressing-right-buttons-as-mets-continue-to-find-a-way/
 
 **How Richard Hughes was made in Milan**\
 `Tonight's visit to San Siro is a homecoming for Anfield's sporting director, who was indelibly shaped by his time in Italy`\
 https://nytimes.com/athletic/5765011/2024/09/17/richard-hughes-liverpool-milan/
-
-**Welcome to Clairefontaine, the French footballing wonderland that helped nurture Kylian Mbappe**\
-`The next generation of elite French footballers live in an area so beautiful it is hard to imagine. We went behind the scenes...`\
-https://nytimes.com/athletic/5765187/2024/09/17/kylian-mbappe-france-clairefontaine-real-madrid/
-
-**The complex story of Brandon Williams: His Manchester United career is over and his future uncertain**\
-`Williams joined United at seven and was once described as the club's best left-back. At 24, he is without a club after his contract expired`\
-https://nytimes.com/athletic/5764645/2024/09/17/brandon-williams-manchester-united-future/
-
-**Inside CBS's Champions League coverage: 'Henry gets asked about it more than Arsenal'**\
-`CBS's coverage of the Champions League has become a global sensation beyond its U.S. home`\
-https://nytimes.com/athletic/5770941/2024/09/17/cbs-champions-league-inside/
 
