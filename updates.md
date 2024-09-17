@@ -1,3 +1,15 @@
+**Armed Men Attack Military Site in Mali’s Capital**\
+`The West African country’s armed forces said the assault, on a school for military police, was carried out by terrorists.`\
+https://nytimes.com/2024/09/17/world/africa/mali-capital-attack-military.html
+
+**The Presidential Horse Race**\
+`Taking polls seriously can bring enormous benefits. The past few years have been a case study.`\
+https://nytimes.com/2024/09/17/briefing/donald-trump-kamala-harris-election.html
+
+**Our Reporter on Trump and a New Era of Political Violence**\
+`The latest apparent assassination attempt against Donald J. Trump indicates how much the American political landscape has been shaped by anger stirred by Mr. Trump and against him. Peter Baker, chief White House correspondent for The New York Times, explains.`\
+https://nytimes.com/video/us/elections/100000009695279/trump-new-era-political-violence.html
+
 **E.U. Leadership Team, With Several Women, Takes Shape**\
 `Ursula von der Leyen, the president of the European Commission, gave the most influential portfolios to nominees from France, Italy and Spain.`\
 https://nytimes.com/2024/09/17/world/europe/von-der-leyen-european-commission-eu-jobs.html
