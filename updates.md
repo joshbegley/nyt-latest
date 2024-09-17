@@ -1,3 +1,7 @@
+**Steelers 'readying' to start Fields again in Week 3**\
+`Fields started the season opener, an 18-10 win against the Atlanta Falcons, and Sunday's 13-6 victory against the Denver Broncos.`\
+https://nytimes.com/athletic/5774012/2024/09/17/steelers-justin-fields-russell-wilson/
+
 **Liverpool fan dies in road traffic accident before Milan game**\
 `Liverpool have paid tribute to supporter Philip Dooley, who died in a road traffic accident in Bergamo on Tuesday morning.`\
 https://nytimes.com/athletic/5774003/2024/09/17/liverpool-fan-death-italy/

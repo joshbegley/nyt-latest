@@ -1,3 +1,7 @@
+**Fantasy football market share report: Carson Steele, Ty Chandler among top Week 3 waiver wire targets**\
+`Michael Salfino runs the Week 2 workload numbers with an eye on this week's waiver wire targets, with Carson Steele emerging as the top add.`\
+https://nytimes.com/athletic/5773933/2024/09/17/fantasy-football-targets-touches-week-2-steele-chandler/
+
 **Steelers 'readying' to start Fields again in Week 3**\
 `Fields started the season opener, an 18-10 win against the Atlanta Falcons, and Sunday's 13-6 victory against the Denver Broncos.`\
 https://nytimes.com/athletic/5774012/2024/09/17/steelers-justin-fields-russell-wilson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5773958/2024/09/17/scoop-city-week-3-fantasy-prep/
 **The Republicans’ Dehumanizing Lies About Haitians**\
 `Readers discuss the harm from the lies about immigrants eating dogs and cats. Also: The guns; Americans in exile; the pope and the election; the debates.`\
 https://nytimes.com/2024/09/17/opinion/republicans-haitians-lies.html
-
-**N W A (Music Group)**\
-`News about N W A (Music Group). Commentary and archival information about N W A (Music Group) from The New York Times.`\
-https://nytimes.com/topic/n-w-a-music-group
 
