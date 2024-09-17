@@ -1,3 +1,11 @@
+**For Duckworth, Preserving I.V.F. Access Is Personal**\
+`The Democratic senator has long pressed to safeguard the fertility treatment she used to conceive her children, which now has been thrust into the political conversation.`\
+https://nytimes.com/2024/09/17/us/politics/tammy-duckworth-ivf-bill.html
+
+**D-3 school in Springfield, Ohio cancels athletic events for security reasons**\
+`Wittenberg has yet to specify the exact security concerns.`\
+https://nytimes.com/athletic/5773898/2024/09/17/wittenberg-university-athletics-security-cancel/
+
 **7 New Songs You Should Hear Now**\
 `Listen to tracks from FKA twigs, Soccer Mommy, Mustafa and more.`\
 https://nytimes.com/2024/09/17/arts/music/amplifier-newsletter-fka-twigs-soccer-mommy.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/hezbollah-starte
 **Fantasy football market share report: Carson Steele, Ty Chandler among top Week 3 waiver wire targets**\
 `Michael Salfino runs the Week 2 workload numbers with an eye on this week's waiver wire targets, with Carson Steele emerging as the top add.`\
 https://nytimes.com/athletic/5773933/2024/09/17/fantasy-football-targets-touches-week-2-steele-chandler/
-
-**Steelers 'readying' to start Fields again in Week 3**\
-`Fields started the season opener, an 18-10 win against the Atlanta Falcons, and Sunday's 13-6 victory against the Denver Broncos.`\
-https://nytimes.com/athletic/5774012/2024/09/17/steelers-justin-fields-russell-wilson/
-
-**Liverpool fan dies in road traffic accident before Milan game**\
-`Liverpool have paid tribute to supporter Philip Dooley, who died in a road traffic accident in Bergamo on Tuesday morning.`\
-https://nytimes.com/athletic/5774003/2024/09/17/liverpool-fan-death-italy/
 

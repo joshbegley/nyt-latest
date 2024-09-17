@@ -1,3 +1,11 @@
+**For Duckworth, Preserving I.V.F. Access Is Personal**\
+`The Democratic senator has long pressed to safeguard the fertility treatment she used to conceive her children, which now has been thrust into the political conversation.`\
+https://nytimes.com/2024/09/17/us/politics/tammy-duckworth-ivf-bill.html
+
+**D-3 school in Springfield, Ohio cancels athletic events for security reasons**\
+`Wittenberg has yet to specify the exact security concerns.`\
+https://nytimes.com/athletic/5773898/2024/09/17/wittenberg-university-athletics-security-cancel/
+
 **7 New Songs You Should Hear Now**\
 `Listen to tracks from FKA twigs, Soccer Mommy, Mustafa and more.`\
 https://nytimes.com/2024/09/17/arts/music/amplifier-newsletter-fka-twigs-soccer-mommy.html
