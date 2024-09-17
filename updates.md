@@ -1,3 +1,7 @@
+**White Sox watch: History on hold? Winning streak reaches 3 games**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/17/white-sox-watch-most-losses-season/
+
 **Can Ranger Suárez recapture some of the Phillies' trust before October?**\
 `Suárez only has two more starts in the regular season to convince the Phillies he deserves a longer leash than in previous postseasons.`\
 https://nytimes.com/athletic/5772872/2024/09/17/ranger-suarez-phillies-postseason/
