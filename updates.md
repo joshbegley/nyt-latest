@@ -1,3 +1,7 @@
+**F A O Schwarz**\
+`News about F A O Schwarz. Commentary and archival information about F A O Schwarz from The New York Times.`\
+https://nytimes.com/topic/f-a-o-schwarz
+
 **Tiny, Tasty Lizards Scuba-Dive for Their Survival**\
 `Almost every animal in the rainforest enjoys snacking on water anoles, but slippery skin and an ability to carry an air bubble underwater help them survive.`\
 https://nytimes.com/2024/09/17/science/scuba-dive-lizard-anole.html
