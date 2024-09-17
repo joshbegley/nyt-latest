@@ -1,3 +1,7 @@
+**‘She Didn’t Deserve This’: Husband Accused of Raping Wife Testifies in French Court**\
+`Dominique Pelicot, who is accused of inviting strangers to rape his wife while she was drugged and unconscious, took the stand for the first time.`\
+https://nytimes.com/2024/09/17/world/europe/she-didnt-deserve-this-husband-accused-of-raping-wife-testifies-in-french-court.html
+
 **When David Beckham turned up to watch a League One game**\
 `Birmingham v Wrexham was already expected to be an unusually star-studded occasion - then the former England captain turned up`\
 https://nytimes.com/athletic/5772048/2024/09/17/david-beckham-birmingham-city-wrexham-tom-brady/
