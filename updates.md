@@ -1,3 +1,11 @@
+**U.S. Steel C.E.O. Says Nippon Deal Will Strengthen National Security**\
+`David Burritt expressed confidence that the sale of the American manufacturer to a Japanese owner would close “on its merits” despite bipartisan backlash.`\
+https://nytimes.com/2024/09/17/us/politics/us-steel-nippon-steel-deal.html
+
+**Violence Swirling Around Trump Prompts International Alarm**\
+`After a second apparent assassination attempt, there is widespread concern that the November election will not end well and that American democracy has frayed to the breaking point.`\
+https://nytimes.com/2024/09/17/world/trump-assassination-attempt-world-reaction.html
+
 **Ten prospects — aside from Macklin Celebrini — who helped themselves at Rookie Faceoff**\
 `In Los Angeles, top prospects got a chance to prove themselves, and others got an opportunity to shine.`\
 https://nytimes.com/athletic/5773100/2024/09/17/prospects-sharks-utah-ducks-kings-kraken/
