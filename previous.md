@@ -1,3 +1,7 @@
+**Golf mailbag: Submit a question for Brody Miller now**\
+`<p>A fantastic Solheim Cup just ended.`\
+https://nytimes.com/athletic/5774183/2024/09/17/golf-mailbag-submit-a-question-for-brody-miller-now/
+
 **Oilers offseason report card: Grading all of management’s summer moves**\
 `Here’s an audit of every move the Oilers made pertaining to the NHL roster since the end of last season.`\
 https://nytimes.com/athletic/5774031/2024/09/17/oilers-offseason-moves-grade-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/topic/union-for-a-popular-movement
 **Tennessee includes 10 percent 'talent fee' in 2025 football ticket prices**\
 `The fee, along with an initial 4.5 percent average increase, means Vols fans will pay 14.5 percent more on average for tickets next season.`\
 https://nytimes.com/athletic/5773813/2024/09/17/tennessee-football-ticket-prices-talent-fee/
-
-**Read the Indictment in the Sex Trafficking Case Against Sean Combs**\
-`Federal prosecutors issued an indictment against Sean Combs that accused the music mogul known as Diddy and Puff Daddy of running a criminal enterprise that included sex trafficking, forced labor and coercion and enticement to engage in prostitution.`\
-https://nytimes.com/interactive/2024/09/17/arts/music/sean-combs-diddy-indictment.html
 

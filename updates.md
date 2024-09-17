@@ -1,3 +1,7 @@
+**Golf mailbag: Submit a question for Brody Miller now**\
+`<p>A fantastic Solheim Cup just ended.`\
+https://nytimes.com/athletic/5774183/2024/09/17/golf-mailbag-submit-a-question-for-brody-miller-now/
+
 **Oilers offseason report card: Grading all of management’s summer moves**\
 `Here’s an audit of every move the Oilers made pertaining to the NHL roster since the end of last season.`\
 https://nytimes.com/athletic/5774031/2024/09/17/oilers-offseason-moves-grade-2024/
