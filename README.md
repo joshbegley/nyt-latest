@@ -1,3 +1,15 @@
+**Sean Combs Indicted on Charges of Sex Trafficking and Racketeering**\
+`In charges unsealed a day after his arrest in Manhattan, the music mogul known as Diddy was accused of running a “criminal enterprise” that threatened and abused women.`\
+https://nytimes.com/2024/09/17/arts/music/sean-combs-diddy-indicted.html
+
+**Here are the latest developments.**\
+`A Lebanese official said pagers belonging to Hezbollah militants had exploded, causing a large number of injuries.`\
+https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/here-are-the-latest-developments
+
+**Live Updates: Wireless Devices Explode Across Lebanon After Israel Warns Hezbollah**\
+`A Lebanese official said pagers belonging to Hezbollah militants had exploded, causing a large number of injuries. The Israeli military declined to comment.`\
+https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news
+
 **Burning Oil Tanker in Red Sea Is Towed to Safety**\
 `The delicate rescue mission aimed to head off a major environmental disaster after the oil tanker was attacked by Houthi rebels off the coast of Yemen last month.`\
 https://nytimes.com/2024/09/17/world/middleeast/oil-tanker-red-sea-houthi-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/17/arts/design/vasari-ceiling-gallerie-dell-accademi
 **One-on-one with Canucks GM Patrik Allvin: 'We're not going to waste any time here'**\
 `Allvin discusses Thatcher Demko's status, the Canucks' elevated expectations, Brock Boeser's future and more.`\
 https://nytimes.com/athletic/5771939/2024/09/17/canucks-gm-patrik-allvin/
-
-**A rare Bjorn Borg interview: Saying goodbye to Laver Cup, retiring at 26 and watching his son Leo**\
-`Before his Laver Cup, Borg spoke about his post-tennis life, his son Leo, and which modern player reminds him most of himself...`\
-https://nytimes.com/athletic/5773226/2024/09/17/bjorn-borg-interview-laver-cup/
-
-**Instagram’s New ‘Teen Accounts’: What Parents and Kids Need to Know**\
-`The social media app says new privacy settings and features will create more age-appropriate experiences for youth under 18.`\
-https://nytimes.com/2024/09/17/technology/instagram-teen-account-settings-safety.html
-
-**New report shows further crumbling of trust in American institutions.**\
-`By Nick Corasaniti`\
-https://nytimes.com/live/2024/09/17/us/trump-harris-election/new-report-shows-further-crumbling-of-trust-in-american-institutions
 
