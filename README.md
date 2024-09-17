@@ -1,3 +1,7 @@
+**Instagram’s New Protections for Kids Don’t Go Far Enough**\
+`By Zeynep Tufekci`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/instagram-children-regulation
+
 **U.S. Steel C.E.O. Says Nippon Deal Will Strengthen National Security**\
 `David Burritt expressed confidence that the sale of the American manufacturer to a Japanese owner would close “on its merits” despite bipartisan backlash.`\
 https://nytimes.com/2024/09/17/us/politics/us-steel-nippon-steel-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/us/politics/trump-assassination-suspect-technolog
 **Tiny Love Stories: ‘This Quiet, Handsome Cowboy Would Never Notice’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/09/17/style/tiny-modern-love-stories-this-quiet-handsome-cowboy-would-never-notice.html
-
-**Rutgers President Announces Resignation After a Year Rocked by Protests**\
-`Jonathan Holloway was Rutgers’ first Black president. He helped the university grow but also faced criticism and questioning in Congress over pro-Palestinian encampments on campus.`\
-https://nytimes.com/2024/09/17/us/rutgers-president-resignation-jonathan-holloway.html
 
