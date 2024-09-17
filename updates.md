@@ -1,4 +1,8 @@
 **Players 'close' to striking over schedule - Rodri**\
+`Manchester City midfielder Rodri says professional players are &#8220;close&#8221; to going on strike over the growing number of matches in the football calendar.`\
+https://nytimes.com/athletic/5773405/2024/09/17/rodri-player-strike-man-city/
+
+**Players 'close' to striking over schedule - Rodri**\
 `Manchester City midfielder Rodri says professional players are &#8220;close&#8221; to going on strike due to the growing number of matches in the football calendar.`\
 https://nytimes.com/athletic/5773405/2024/09/17/rodri-player-strike-man-city/
 
