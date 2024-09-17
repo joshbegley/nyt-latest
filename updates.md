@@ -1,3 +1,7 @@
+**Bills All-22: How Buffalo's defense sticks to a rare plan to counteract explosive offenses**\
+`The Bills kept the Dolphins in check despite key injuries.`\
+https://nytimes.com/athletic/5773631/2024/09/17/buffalo-bills-film-breakdown-miami-dolphins/
+
 **OceanGate Founder Crashed a Submersible Years Before Titan Disaster**\
 `At a U.S. Coast Guard hearing, a pilot described a disastrous trip in which OceanGate’s founder got a submersible stuck under a shipwreck and then threw the controls at his head.`\
 https://nytimes.com/2024/09/17/us/titan-submersible-coast-guard-hearing.html
