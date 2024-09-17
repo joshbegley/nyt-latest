@@ -1,3 +1,15 @@
+**Farley, James A, General Post Office (Manhattan, NY)**\
+`News about Farley, James A, General Post Office (Manhattan, NY). Commentary and archival information about Farley, James A, General Post Office (Manhattan, NY) from The New York Times.`\
+https://nytimes.com/topic/farley-james-a-general-post-office-manhattan-ny
+
+**Hezbollah started using paging devices more widely after Oct. 7, experts say.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/hezbollah-started-using-paging-devices-more-widely-after-oct-7-experts-say
+
+**Fantasy football market share report: Carson Steele, Ty Chandler among top Week 3 waiver wire targets**\
+`Michael Salfino runs the Week 2 workload numbers with an eye on this week's waiver wire targets, with Carson Steele emerging as the top add.`\
+https://nytimes.com/athletic/5773933/2024/09/17/fantasy-football-targets-touches-week-2-steele-chandler/
+
 **Steelers 'readying' to start Fields again in Week 3**\
 `Fields started the season opener, an 18-10 win against the Atlanta Falcons, and Sunday's 13-6 victory against the Denver Broncos.`\
 https://nytimes.com/athletic/5774012/2024/09/17/steelers-justin-fields-russell-wilson/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/09/17/arts/music/sean-combs-diddy-indictmen
 **Why baseball cards are still bigger than other sports cards**\
 `While the NFL and NBA have surpassed baseball in mainstream popularity, the balance in the trading card world is different `\
 https://nytimes.com/athletic/5773753/2024/09/17/baseball-cards-popularity-nfl-nba/
-
-**Scoop City: Week 3 Fantasy Prep**\
-`A look at fantasy football takeaways after two weeks of NFL football`\
-https://nytimes.com/athletic/5773958/2024/09/17/scoop-city-week-3-fantasy-prep/
-
-**The Republicans’ Dehumanizing Lies About Haitians**\
-`Readers discuss the harm from the lies about immigrants eating dogs and cats. Also: The guns; Americans in exile; the pope and the election; the debates.`\
-https://nytimes.com/2024/09/17/opinion/republicans-haitians-lies.html
-
-**N W A (Music Group)**\
-`News about N W A (Music Group). Commentary and archival information about N W A (Music Group) from The New York Times.`\
-https://nytimes.com/topic/n-w-a-music-group
 
