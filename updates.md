@@ -1,3 +1,7 @@
+**Can Ranger Suárez recapture some of the Phillies' trust before October?**\
+`Suárez only has two more starts in the regular season to convince the Phillies he deserves a longer leash than in previous postseasons.`\
+https://nytimes.com/athletic/5772872/2024/09/17/ranger-suarez-phillies-postseason/
+
 **Skipping school, exam issues and family rows - Villa's 1982 European Cup final win through fans' eyes**\
 `Missed exams, drinks with scorer Peter Withe and sleeping in the park - fans recall their experience of Villa winning the European Cup`\
 https://nytimes.com/athletic/5759746/2024/09/17/aston-villa-european-cup-win-1982/
