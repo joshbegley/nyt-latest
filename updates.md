@@ -1,3 +1,7 @@
+**How to stage a college football game at a 100,000-seat stadium**\
+`Every game provides a new challenge at the fifth-largest football stadium in the world. What goes on behind the scenes at Ohio Stadium?`\
+https://nytimes.com/athletic/5772049/2024/09/17/ohio-state-college-football-largest-stadiums/
+
 **Ukraine-Russia War Updates: Moscow Hits Back in Kursk as Air War Heats Up**\
 `Moscow’s troops have retaken a few villages in a border area that Kyiv’s forces invaded last month and are also advancing steadily in eastern Ukraine.`\
 https://nytimes.com/2024/09/17/world/europe/ukraine-russia-war-kursk.html
