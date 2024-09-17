@@ -1,3 +1,15 @@
+**Carlos Mendoza pressing right buttons as Mets 'continue to find a way'**\
+`Using a deep bench and grinding away is the kind of thing that the Mets have proven able to handle.`\
+https://nytimes.com/athletic/5772864/2024/09/17/carlos-mendoza-pressing-right-buttons-as-mets-continue-to-find-a-way/
+
+**How Richard Hughes was made in Milan**\
+`Tonight's visit to San Siro is a homecoming for Anfield's sporting director, who was indelibly shaped by his time in Italy`\
+https://nytimes.com/athletic/5765011/2024/09/17/richard-hughes-liverpool-milan/
+
+**Welcome to Clairefontaine, the French footballing wonderland that helped nurture Kylian Mbappe**\
+`The next generation of elite French footballers live in an area so beautiful it is hard to imagine. We went behind the scenes...`\
+https://nytimes.com/athletic/5765187/2024/09/17/kylian-mbappe-france-clairefontaine-real-madrid/
+
 **The complex story of Brandon Williams: His Manchester United career is over and his future uncertain**\
 `Williams joined United at seven and was once described as the club's best left-back. At 24, he is without a club after his contract expired`\
 https://nytimes.com/athletic/5764645/2024/09/17/brandon-williams-manchester-united-future/

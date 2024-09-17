@@ -1,3 +1,15 @@
+**Carlos Mendoza pressing right buttons as Mets 'continue to find a way'**\
+`Using a deep bench and grinding away is the kind of thing that the Mets have proven able to handle.`\
+https://nytimes.com/athletic/5772864/2024/09/17/carlos-mendoza-pressing-right-buttons-as-mets-continue-to-find-a-way/
+
+**How Richard Hughes was made in Milan**\
+`Tonight's visit to San Siro is a homecoming for Anfield's sporting director, who was indelibly shaped by his time in Italy`\
+https://nytimes.com/athletic/5765011/2024/09/17/richard-hughes-liverpool-milan/
+
+**Welcome to Clairefontaine, the French footballing wonderland that helped nurture Kylian Mbappe**\
+`The next generation of elite French footballers live in an area so beautiful it is hard to imagine. We went behind the scenes...`\
+https://nytimes.com/athletic/5765187/2024/09/17/kylian-mbappe-france-clairefontaine-real-madrid/
+
 **The complex story of Brandon Williams: His Manchester United career is over and his future uncertain**\
 `Williams joined United at seven and was once described as the club's best left-back. At 24, he is without a club after his contract expired`\
 https://nytimes.com/athletic/5764645/2024/09/17/brandon-williams-manchester-united-future/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/17/briefing/trump-assassination-suspect.html
 **Fantasy football Week 3 waiver wire: Streamers, Carson Steele, Quentin Johnston**\
 `Jake Ciely highlights the top players to target on the Week 3 waiver wire, including emerging second-year wideout Quentin Johnston.`\
 https://nytimes.com/athletic/5771521/2024/09/17/fantasy-football-week-3-waiver-wire-streamers-carson-steele-quentin-johnston/
-
-**China’s ‘Silver Economy’ Is Thriving as Birthrate Plunges**\
-`The shrinking population poses threats to growth but has opened opportunities for businesses that serve seniors.`\
-https://nytimes.com/2024/09/17/business/china-economy-seniors.html
-
-**Corrections: Sept. 17, 2024**\
-`Corrections that appeared in print on Tuesday, Sept. 17, 2024.`\
-https://nytimes.com/2024/09/16/pageoneplus/corrections-sept-17-2024.html
-
-**Quote of the Day: Despite Relentless Russian Attack, Life in Kharkiv Endures Underground**\
-`Quotation of the Day for Tuesday, September 17, 2024.`\
-https://nytimes.com/2024/09/16/pageoneplus/quote-of-the-day-despite-relentless-russian-attack-life-in-kharkiv-endures-underground.html
 
