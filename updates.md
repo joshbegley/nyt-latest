@@ -1,3 +1,7 @@
+**What we learned from Falcons-Eagles: 5 takeaways**\
+`Falcons QB Kirk Cousins is now 13-20 in primetime games.`\
+https://nytimes.com/athletic/5772708/2024/09/16/eagles-falcons-monday-night-football-score-takeaways/
+
 **Full Time: NWSL MVP race and Hope Solo's new Netflix doc**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5772673/2024/09/16/nwsl-mvp-race-netflix-hope-solo-full-time/
