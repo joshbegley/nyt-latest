@@ -1,3 +1,11 @@
+**Sean Combs Arrested in Manhattan After Grand Jury Indictment**\
+`The music mogul has been under mounting scrutiny since a 2023 lawsuit by his former girlfriend, Cassie, accused him of sex trafficking and years of abuse.`\
+https://nytimes.com/2024/09/16/arts/music/sean-combs-diddy-indicted.html
+
+**Donald Trump Rolls Out His New Cryptocurrency Business**\
+`In a livestream, Mr. Trump formally introduced World Liberty Financial, a crypto venture led by a pair of digital currency enthusiasts with little experience running high-profile businesses.`\
+https://nytimes.com/2024/09/16/technology/trump-crypto-world-liberty-financial.html
+
 **Chiles takes appeal over Olympic bronze to Swiss court**\
 `Chiles' attorneys specifically asked for the previous ruling by the Court of Arbitration for Sport to be overturned.`\
 https://nytimes.com/athletic/5772257/2024/09/16/jordan-chiles-bronze-swiss-federal-tribunal-appeal/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009697453/titan-oceangate-hearings-safety.htm
 **The rifle found at Trump’s golf course is relatively cheap and niche compared with the AR-15.**\
 `By Thomas Gibbons-Neff`\
 https://nytimes.com/live/2024/09/16/us/trump-shooting-news/the-rifle-found-at-trumps-golf-course-is-relatively-cheap-and-niche-compared-with-the-ar-15
-
-**Suspect Never Took a Shot at Trump but Hid Undetected for 12 Hours**\
-`Ryan W. Routh was charged with two federal gun crimes a day after Secret Service agents fired on him as he pointed a rifle toward the golf course where former President Donald Trump was playing.`\
-https://nytimes.com/2024/09/16/us/politics/investigation-trump-assassination-attempt.html
-
-**Secret Service Admits Not Searching Golf Course Perimeter, Drawing New Scrutiny**\
-`The agency’s acting director, Ronald L. Rowe Jr., praised his agents’ actions but conceded that there was no sweep of the course at Donald Trump’s club that a gunman had staked out.`\
-https://nytimes.com/2024/09/16/us/politics/secret-service-scrutiny-trump.html
 
