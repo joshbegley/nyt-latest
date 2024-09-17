@@ -1,4 +1,4 @@
-**Man arrested for harassing and stalking UConn star Paige Bueckers**\
+**Man accused of harassing and stalking UConn star Paige Bueckers**\
 `Bueckers was contacted via Instagram by the 40-year-old Oregon man who was arrested by Connecticut police.`\
 https://nytimes.com/athletic/5772733/2024/09/16/paige-bueckers-uconn-stalker-arrest/
 
