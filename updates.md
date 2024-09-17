@@ -1,3 +1,11 @@
+**Players 'close' to striking over schedule - Rodri**\
+`Manchester City midfielder Rodri says professional players are &#8220;close&#8221; to going on strike due to the growing number of matches in the football calendar.`\
+https://nytimes.com/athletic/5773405/2024/09/17/rodri-player-strike-man-city/
+
+**Postecoglou responds to 'I always wins things' criticism: 'I just stated a fact'**\
+`Ange Postecoglou says he was surprised by the reaction to his assertion that he &#8220;always wins things&#8221; in his second year in charge of a club.`\
+https://nytimes.com/athletic/5773447/2024/09/17/ange-postecoglou-tottenham-trophy-criticism/
+
 **Sean Combs Indicted on Charges of Sex Trafficking and Racketeering**\
 `In charges unsealed a day after his arrest in Manhattan, the music mogul known as Diddy was accused of running a “criminal enterprise” that threatened and abused women.`\
 https://nytimes.com/2024/09/17/arts/music/sean-combs-diddy-indicted.html
