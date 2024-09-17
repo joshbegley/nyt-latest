@@ -1,3 +1,7 @@
+**Here’s a look at some of the key events in the conflict in the Middle East.**\
+`By Anjana Sankar`\
+https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/heres-a-look-at-some-of-the-key-events-in-the-conflict-in-the-middle-east
+
 **Harris Campaign Says She Will Meet the Press (on Her Terms)**\
 `The vice president, who has granted few interviews as the Democratic nominee, is now ramping things up. But she is likely to focus on local outlets and nontraditional venues where voters get their news.`\
 https://nytimes.com/2024/09/17/us/politics/kamala-harris-media-strategy.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news
 **Burning Oil Tanker in Red Sea Is Towed to Safety**\
 `The delicate rescue mission aimed to head off a major environmental disaster after the oil tanker was attacked by Houthi rebels off the coast of Yemen last month.`\
 https://nytimes.com/2024/09/17/world/middleeast/oil-tanker-red-sea-houthi-attack.html
-
-**Bad Bunny and Karol G Are Most Nominated Artists for Latin Grammys**\
-`These streaming titans earned eight nods apiece for the 25th annual awards, although the Mexican American songwriter and producer Edgar Barrera received the most nominations overall, with nine.`\
-https://nytimes.com/2024/09/17/arts/music/latin-grammy-nominations-2024.html
 
