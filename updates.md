@@ -1,3 +1,15 @@
+**Sean Combs Indicted on Charges of Sex Trafficking and Racketeering**\
+`In charges unsealed a day after his arrest in Manhattan, the music mogul known as Diddy was accused of running a “criminal enterprise” that threatened and abused women.`\
+https://nytimes.com/2024/09/17/arts/music/sean-combs-diddy-indicted.html
+
+**Here are the latest developments.**\
+`A Lebanese official said pagers belonging to Hezbollah militants had exploded, causing a large number of injuries.`\
+https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/here-are-the-latest-developments
+
+**Live Updates: Wireless Devices Explode Across Lebanon After Israel Warns Hezbollah**\
+`A Lebanese official said pagers belonging to Hezbollah militants had exploded, causing a large number of injuries. The Israeli military declined to comment.`\
+https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news
+
 **Burning Oil Tanker in Red Sea Is Towed to Safety**\
 `The delicate rescue mission aimed to head off a major environmental disaster after the oil tanker was attacked by Houthi rebels off the coast of Yemen last month.`\
 https://nytimes.com/2024/09/17/world/middleeast/oil-tanker-red-sea-houthi-attack.html
