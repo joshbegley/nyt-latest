@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5772733/2024/09/16/paige-bueckers-uconn-stalker-arr
 https://nytimes.com/2024/09/16/crosswords/daily-puzzle-2024-09-17.html
 
 **Sean Combs Arrested in Manhattan After Grand Jury Indictment**\
-`The music mogul has been under mounting scrutiny since a 2023 lawsuit by his former girlfriend, Cassie, accused him of sex trafficking and years of abuse.`\
+`The music mogul has been under mounting scrutiny since a 2023 lawsuit by his former girlfriend, Cassie, accused him of sex trafficking and years of abuse. Mr. Combs’s representatives called him an “innocent man.”`\
 https://nytimes.com/2024/09/16/arts/music/sean-combs-diddy-indicted.html
 
 **Donald Trump Rolls Out His New Cryptocurrency Business**\

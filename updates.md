@@ -1,3 +1,7 @@
+**Sean Combs Arrested in Manhattan After Grand Jury Indictment**\
+`The music mogul has been under mounting scrutiny since a 2023 lawsuit by his former girlfriend, Cassie, accused him of sex trafficking and years of abuse. Mr. Combs’s representatives called him an “innocent man.”`\
+https://nytimes.com/2024/09/16/arts/music/sean-combs-diddy-indicted.html
+
 **MLB sues DraftKings, FanDuel on image rights**\
 `The league argues that sports betting and fantasy sports companies are using images without permission. `\
 https://nytimes.com/athletic/5772737/2024/09/16/mlb-sues-draftkings-fanduel/
