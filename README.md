@@ -1,7 +1,3 @@
-**Violence Swirling Around Trump Alarms an Uneasy World**\
-`After a second apparent assassination attempt, there is widespread concern that the November election will not end well and that American democracy has frayed to the breaking point.`\
-https://nytimes.com/2024/09/17/world/what-in-the-world/trump-assassination-attempt-world-reaction.html
-
 **A Wildly Popular New York Taqueria Nails Its Sequel**\
 `Carnitas Ramírez, the East Village sibling of a hit restaurant in Brooklyn, turns out tacos that hark back to the dish’s working-class roots.`\
 https://nytimes.com/2024/09/17/dining/carnitas-ramirez-restaurant-review.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/17/opinion/trump-harris-foreign-policy.html
 **The Fires That Could Reshape the Amazon**\
 `Vast, diverse parts of Brazil are burning at the same time, forcing officials to rethink how to protect crucial ecosystems like the Amazon.`\
 https://nytimes.com/2024/09/17/climate/the-fires-that-could-reshape-the-amazon.html
+
+**Air Mail, Digital Weekly for the Smart Set, Is Said to Be Exploring a Sale**\
+`The company, founded in 2019, is known for its weekend newsletter of deeply reported features, travel recommendations and shopping tips.`\
+https://nytimes.com/2024/09/17/business/media/air-mail-sale.html
 
