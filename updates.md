@@ -1,3 +1,7 @@
+**Prosecutors Accuse Sean Combs of Running a ‘Criminal Enterprise’**\
+`Sean Combs, also known as Diddy, was indicted on Tuesday on three counts of sex trafficking, racketeering and transportation to engage in prostitution.`\
+https://nytimes.com/video/nyregion/100000009699054/sean-combs-indictment.html
+
 **Golf mailbag: Submit a question for Brody Miller now**\
 `<p>A fantastic Solheim Cup just ended.`\
 https://nytimes.com/athletic/5774183/2024/09/17/golf-mailbag-submit-a-question-for-brody-miller-now/

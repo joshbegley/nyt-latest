@@ -1,3 +1,7 @@
+**Prosecutors Accuse Sean Combs of Running a ‘Criminal Enterprise’**\
+`Sean Combs, also known as Diddy, was indicted on Tuesday on three counts of sex trafficking, racketeering and transportation to engage in prostitution.`\
+https://nytimes.com/video/nyregion/100000009699054/sean-combs-indictment.html
+
 **Golf mailbag: Submit a question for Brody Miller now**\
 `<p>A fantastic Solheim Cup just ended.`\
 https://nytimes.com/athletic/5774183/2024/09/17/golf-mailbag-submit-a-question-for-brody-miller-now/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/dining/five-five-star-weeknight-dishes.html
 **Union for a Popular Movement**\
 `News about Union for a Popular Movement. Commentary and archival information about Union for a Popular Movement from The New York Times.`\
 https://nytimes.com/topic/union-for-a-popular-movement
-
-**Tennessee includes 10 percent 'talent fee' in 2025 football ticket prices**\
-`The fee, along with an initial 4.5 percent average increase, means Vols fans will pay 14.5 percent more on average for tickets next season.`\
-https://nytimes.com/athletic/5773813/2024/09/17/tennessee-football-ticket-prices-talent-fee/
 
