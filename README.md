@@ -1,3 +1,11 @@
+**E.U. Leadership Team, With Several Women, Takes Shape**\
+`Ursula von der Leyen, the president of the European Commission, gave the most influential portfolios to nominees from France, Italy and Spain.`\
+https://nytimes.com/2024/09/17/world/europe/von-der-leyen-european-commission-eu-jobs.html
+
+**Another Blow to Trudeau: Liberals Lose a Long-Held Seat**\
+`The election in Montreal had been seen as a referendum on Canada’s deeply unpopular prime minister, who has faced calls from within his party to quit.`\
+https://nytimes.com/2024/09/17/world/americas/special-election-results-montreal-trudeau.html
+
 **Netanyahu Is Said to Consider Firing Israel’s Defense Minister**\
 `Dismissing the minister, Yoav Gallant, would remove a prominent voice of disagreement with Prime Minister Benjamin Netanyahu.`\
 https://nytimes.com/2024/09/17/world/middleeast/israel-gaza-netanyahu-gallant.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5772016/2024/09/17/royals-success-good-for-mlb/
 **Tucker Kraft's blocking, Eric Wilson's efficiency stand out in Packers' win over Colts**\
 `Brayden Narveson's second field goal miss and Daniel Whelan's punting prowess were also notable in Green Bay's Week 2 win.`\
 https://nytimes.com/athletic/5770421/2024/09/17/packers-win-notes-colts-week-2/
-
-**Blackhawks roster projection: Who will Bedard's linemates be?**\
-`With an influx of veterans up front, on the back end and in goal, the Blackhawks' roster calculus has changed dramatically.`\
-https://nytimes.com/athletic/5771504/2024/09/17/blackhawks-roster-projection-depth-chart/
-
-**How a life of hard work on the farm has prepared Easton Cowan for an NHL future**\
-`Easton Cowan welcomes the challenges of trying to make the Leafs because he’s been hardened by the sprawling farm where he came of age.`\
-https://nytimes.com/athletic/5751765/2024/09/17/easton-cowan-maple-leafs-nhl/
 
