@@ -1,3 +1,11 @@
+**A $5 Billion NASA Mission Looked Doomed. Could Engineers Save It?**\
+`Weeks before Europa Clipper was to be shipped for launch, scientists discovered a potentially fatal flaw that might endanger the spacecraft’s ability to study an ocean moon of Jupiter.`\
+https://nytimes.com/2024/09/17/science/nasa-europa-clipper-radiation.html
+
+**Answering Bucks questions: Unlocking Giannis-Lillard pick-and-roll; best roster of Giannis era?**\
+`If the Bucks are relentless in attacking defenses and creating looks, they can make teams consistently pay for their decisions.`\
+https://nytimes.com/athletic/5765793/2024/09/17/bucks-giannis-lillard-mailbag/
+
 **After ‘a Treasure Hunt,’ a Cut-Up Masterpiece Returns to Venice**\
 `More than 200 years after a ceiling painted by the Tuscan artist Vasari was dismembered and sold on the antiquarian market, it is (almost) whole again.`\
 https://nytimes.com/2024/09/17/arts/design/vasari-ceiling-gallerie-dell-accademica.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt
 **Thompson: Brock Purdy, they're saying you aren't built for this — time to show 'em**\
 `The detractors are lining up. So are the injuries. The 49ers need you now to steady the ship, Brock.`\
 https://nytimes.com/athletic/5772777/2024/09/17/brock-purdy-san-francisco-49ers-critics-vikings/
-
-**The biggest factors fueling the Seahawks' 2-0 start**\
-`Mike Macdonald's group has been resilient, but they've also had difference-makers emerge on both sides of the ball.`\
-https://nytimes.com/athletic/5772568/2024/09/17/seattle-seahawks-reaons-behind-undefeated-start/
-
-**Dodgers takeaways: Yoshinobu Yamamoto's usage, a lineup switch and more**\
-`Of Yamamoto’s 16 starts this season, exactly half have been on five days of rest, with the others coming on six or more.`\
-https://nytimes.com/athletic/5772786/2024/09/17/dodgers-takeaways-yoshinobu-yamamotos-usage-a-lineup-switch-and-more/
 
