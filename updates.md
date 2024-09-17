@@ -1,3 +1,7 @@
+**Oilers offseason report card: Grading all of management’s summer moves**\
+`Here’s an audit of every move the Oilers made pertaining to the NHL roster since the end of last season.`\
+https://nytimes.com/athletic/5774031/2024/09/17/oilers-offseason-moves-grade-2024/
+
 **Farley, James A, General Post Office (Manhattan, NY)**\
 `News about Farley, James A, General Post Office (Manhattan, NY). Commentary and archival information about Farley, James A, General Post Office (Manhattan, NY) from The New York Times.`\
 https://nytimes.com/topic/farley-james-a-general-post-office-manhattan-ny
