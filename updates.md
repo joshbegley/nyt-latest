@@ -1,3 +1,11 @@
+**E.U. Leadership Team, With Several Women, Takes Shape**\
+`Ursula von der Leyen, the president of the European Commission, gave the most influential portfolios to nominees from France, Italy and Spain.`\
+https://nytimes.com/2024/09/17/world/europe/von-der-leyen-european-commission-eu-jobs.html
+
+**Another Blow to Trudeau: Liberals Lose a Long-Held Seat**\
+`The election in Montreal had been seen as a referendum on Canada’s deeply unpopular prime minister, who has faced calls from within his party to quit.`\
+https://nytimes.com/2024/09/17/world/americas/special-election-results-montreal-trudeau.html
+
 **Netanyahu Is Said to Consider Firing Israel’s Defense Minister**\
 `Dismissing the minister, Yoav Gallant, would remove a prominent voice of disagreement with Prime Minister Benjamin Netanyahu.`\
 https://nytimes.com/2024/09/17/world/middleeast/israel-gaza-netanyahu-gallant.html
