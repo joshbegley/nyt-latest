@@ -6,9 +6,9 @@ https://nytimes.com/card/2024/09/18/us/wildfires-extreme-heat-firefighters
 `Despite not being able to do what makes him baseball's most unique star, Ohtani has managed to author a unicorn season.`\
 https://nytimes.com/athletic/5775322/2024/09/17/shohei-ohtani-48th-homer-dodgers/
 
-**Musk super PAC switches field plan again in two pivotal states.**\
-`By Theodore Schleifer`\
-https://nytimes.com/2024/09/17/us/politics/musk-super-pac-switches-field-plan-again-in-two-pivotal-states.html
+**Musk Super PAC Switches Field Plan Again in Arizona and Nevada**\
+`The pro-Trump group America PAC, which was founded by the billionaire Elon Musk, has cut ties with a canvassing firm in two battleground states, just seven weeks before Election Day.`\
+https://nytimes.com/2024/09/17/us/politics/elon-musk-donald-trump-super-pac.html
 
 **Secret Service Scrambled After Trump’s Short Notice on Golf Outing**\
 `The agency did not sweep the area where a gunman lay in wait for the former president at his club in Florida.`\
