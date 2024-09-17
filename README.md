@@ -1,3 +1,7 @@
+**Kirk Cousins' stunning game-winning drive shows why the Falcons paid him**\
+`The Atlanta Falcons beat the Philadelphia Eagles 22-21 on "Monday Night Football" in the seventh-most improbable comeback since 2016.`\
+https://nytimes.com/athletic/5773010/2024/09/17/kirk-cousins-monday-night-football-falcons-win/
+
 **Kimmel Takes Stock of Trump’s Rhetoric After Suspect’s Arrest**\
 `Jimmy Kimmel said the former president, who blamed Democrats for “highly inflammatory language,” was himself “not a calming influence.”`\
 https://nytimes.com/2024/09/17/arts/television/jimmy-kimmel-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5759746/2024/09/17/aston-villa-european-cup-win-198
 **Postecoglou and Spurs can't afford to fritter away League Cup opportunity**\
 `There will be a temptation to try out some new players at Coventry - yet making wholesale changes feels fraught with risk`\
 https://nytimes.com/athletic/5763791/2024/09/17/spurs-league-cup-postecoglou/
-
-**Barnsley on Champions League opening night a reminder of where Man Utd must get back to**\
-`How strongly should Man Utd attack the Carabao Cup if returning to the Champions League is of greater financial reward?`\
-https://nytimes.com/athletic/5770967/2024/09/17/manchester-united-champions-league/
 
