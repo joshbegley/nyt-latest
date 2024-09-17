@@ -1,3 +1,15 @@
+**The Harassment of Springfield Represents a Dangerous New Turn**\
+`The threats against the town are a warning by the MAGA movement to the nation.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/springfield-harassment-maga-trump
+
+**MVP, rookie of the year, coach of the year: Our experts take on NWSL's biggest awards**\
+`Who will win the league's top 2024 awards?`\
+https://nytimes.com/athletic/5774561/2024/09/17/nwsl-predictions-mvp-rookie-of-year-temwa-chawinga/
+
+**Danske Bank A/S**\
+`News about Danske Bank A/S. Commentary and archival information about Danske Bank A/S from The New York Times.`\
+https://nytimes.com/topic/danske-bank-as
+
 **Ten Hag 'calm and confident' of Rashford's Man Utd goals**\
 `Erik ten Hag says he is &#8220;calm, composed and confident&#8221; of Manchester United goals with Marcus Rashford in the team.`\
 https://nytimes.com/athletic/5775095/2024/09/17/marcus-rashford-man-united-goals/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/17/world/middleeast/israel-hezbollah-pagers-explosiv
 **Minnesota Timberwolves executive VP Sachin Gupta set to join Chelsea**\
 `Sachin Gupta, executive vice president of basketball operations for the Minnesota Timberwolves, is set to leave the NBA franchise to take a role at Chelsea.`\
 https://nytimes.com/athletic/5774909/2024/09/17/chelsea-sachin-gupta-minnesota-timberwolves/
-
-**Pret A Manger**\
-`News about Pret A Manger. Commentary and archival information about Pret A Manger from The New York Times.`\
-https://nytimes.com/topic/pret-a-manger
-
-**What does the Peyton Krebs extension mean for Sabres' depth chart, camp battles?**\
-`The Sabres spent this summer adding to the bottom six of their forward depth chart.`\
-https://nytimes.com/athletic/5774710/2024/09/17/peyton-krebs-contract-sabres-training-camp/
-
-**N.Y.C. Schools Chancellor Seeks to Project Stability as Inquiries Swirl**\
-`David C. Banks, whose phone was seized during an investigation related to his brother, largely avoided discussing his current circumstances in his annual State of Our Schools speech.`\
-https://nytimes.com/2024/09/17/nyregion/david-banks-adams-investigation.html
 
