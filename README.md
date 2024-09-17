@@ -1,3 +1,7 @@
+**The Windup: Consequential instant classic in KC**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5773768/2024/09/17/royals-tigers-series-mlb-standings-the-windup/
+
 **Bentley signs new three-year contract with Wolves**\
 `Wolverhampton Wanderers goalkeeper Dan Bentley has signed a new three-year contract with an option for a further year.`\
 https://nytimes.com/athletic/5773719/2024/09/17/dan-bentley-wolves-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/arts/television/aaron-hernandez-american-sports-s
 **New York Philharmonic Opens Its Season Amid Labor Talks and Troubles**\
 `The orchestra is working to negotiate a new contract with musicians, resolve a misconduct inquiry and hire a new chief executive.`\
 https://nytimes.com/2024/09/17/arts/music/new-york-philharmonic-labor-troubles.html
-
-**F.D.I.C. Says Banks Need to Keep a Record of Their Fintech Customers**\
-`Banks holding customer funds for money management apps should keep track of customers’ identities and balances, the agency says.`\
-https://nytimes.com/2024/09/17/business/fdic-fintech-data-banks-synapse.html
 
