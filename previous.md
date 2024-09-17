@@ -1,3 +1,11 @@
+**Secret Service Scrambled After Trump’s Short Notice on Golf Outing**\
+`The agency did not sweep the area where a gunman lay in wait for the former president at his club in Florida.`\
+https://nytimes.com/2024/09/17/us/politics/secret-service-trump.html
+
+**Cathy Merrick, Advocate for Canada’s Indigenous People, Dies at 63**\
+`She was on the front lines of dogged fights against injustices, including a recent series of murders of Indigenous women by a white man.`\
+https://nytimes.com/2024/09/17/world/canada/cathy-merrick-dead.html
+
 **Why Eric Adams Is Resisting Pressure to Oust Members of His Inner Circle**\
 `Mayor Adams has been loyal to longtime aides despite growing calls for them to resign. It is a trait he has shown through his career.`\
 https://nytimes.com/2024/09/17/nyregion/eric-adams-resignations-scandal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/17/opinion/kamala-harris-election.html
 **Why the Story of the Golf Course Shooting Will Be Told Twice**\
 `Florida’s governor says a state investigation is needed because federal agencies can’t be trusted.`\
 https://nytimes.com/2024/09/17/us/politics/trump-assassination-attempt-investigation.html
-
-**Exploding Pagers Targeting Hezbollah Kill 11 and Wound Thousands, Lebanon Says**\
-`The Iranian-backed militant group, which uses pagers to safeguard communications, blamed Israel for the attack. Israel declined to comment.`\
-https://nytimes.com/2024/09/17/world/middleeast/hezbollah-pager-explosions-lebanon.html
-
-**Canucks' Dakota Joshua diagnosed with testicular cancer: 'I encourage men to get checked'**\
-`Vancouver Canucks forward Dakota Joshua won’t be available to open training camp, the club announced on Tuesday.`\
-https://nytimes.com/athletic/5775167/2024/09/17/vancouver-canucks-dakota-joshua-testicular-cancer/
 
