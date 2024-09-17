@@ -1,3 +1,15 @@
+**Trumpism, Stalinism and the Tariff Debate**\
+`The spirit of Trofim Lysenko comes to trade policy.`\
+https://nytimes.com/2024/09/17/opinion/trump-tariffs-economy.html
+
+**Prairie View A&M University**\
+`News about Prairie View A&M University. Commentary and archival information about Prairie View A&M University from The New York Times.`\
+https://nytimes.com/topic/prairie-view-am-university
+
+**Dolphins placing Tagovailoa on IR after concussion vs. Bills: Source**\
+`The quarterback suffered a concussion in Thursday’s game against the Buffalo Bills and is currently in the league's concussion protocol`\
+https://nytimes.com/athletic/5774788/2024/09/17/tua-tagovailoa-dolphins-injured-reserve-concussion/
+
 **Instagram’s New Protections for Kids Don’t Go Far Enough**\
 `By Zeynep Tufekci`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/instagram-children-regulation
