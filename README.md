@@ -1,3 +1,7 @@
+**How to stage a college football game at a 100,000-seat stadium**\
+`Every game provides a new challenge at the fifth-largest football stadium in the world. What goes on behind the scenes at Ohio Stadium?`\
+https://nytimes.com/athletic/5772049/2024/09/17/ohio-state-college-football-largest-stadiums/
+
 **Ukraine-Russia War Updates: Moscow Hits Back in Kursk as Air War Heats Up**\
 `Moscow’s troops have retaken a few villages in a border area that Kyiv’s forces invaded last month and are also advancing steadily in eastern Ukraine.`\
 https://nytimes.com/2024/09/17/world/europe/ukraine-russia-war-kursk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/us/politics/corey-lewandowski-trump-campaign.html
 **Gen Z Has Regrets**\
 `One way to quantify the value of a product is to find out how many of the people who use it wish it had never been invented.`\
 https://nytimes.com/2024/09/17/opinion/social-media-smartphones-harm-regret.html
-
-**In the Trump Era, the Supreme Court Can’t ‘Soar Above Politics’**\
-`Did Chief Justice John Roberts not realize his immunity ruling would be seen as a victory for Trump?`\
-https://nytimes.com/live/2024/09/11/opinion/thepoint/supreme-court-roberts-immunity
 
