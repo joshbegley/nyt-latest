@@ -1,3 +1,11 @@
+**Exploding Pagers Targeting Hezbollah Kill 8 and Wound Thousands, Lebanon Says**\
+`The Iranian-backed militant group, which uses pagers to safeguard communications, blamed Israeli for the attack. Israel declined to comment.`\
+https://nytimes.com/2024/09/17/world/middleeast/hezbollah-pager-explosions-lebanon.html
+
+**Canucks' Dakota Joshua diagnosed with testicular cancer: 'I encourage men to get checked'**\
+`Vancouver Canucks forward Dakota Joshua won’t be available to open training camp, the club announced on Tuesday.`\
+https://nytimes.com/athletic/5775167/2024/09/17/vancouver-canucks-dakota-joshua-testicular-cancer/
+
 **49ers mailbag: Jacob Cowing to the rescue? Envisioning a trade with the Dolphins**\
 `Among this week's questions: What's the backup plan at center and why was the 49ers' defense so porous on third down late in Sunday's game?`\
 https://nytimes.com/athletic/5774653/2024/09/17/49ers-mailbag-rams-week-3/
@@ -29,12 +37,4 @@ https://nytimes.com/topic/danske-bank-as
 **Ten Hag 'calm and confident' of Rashford's Man Utd goals**\
 `Erik ten Hag says he is &#8220;calm, composed and confident&#8221; of Manchester United goals with Marcus Rashford in the team.`\
 https://nytimes.com/athletic/5775095/2024/09/17/marcus-rashford-man-united-goals/
-
-**The Evening: Hundreds of Pagers Explode in Lebanon**\
-`Plus, how a rate cut could affect you.`\
-https://nytimes.com/2024/09/17/briefing/hezbollah-pagers-instagram-harris-trump-sean-combs.html
-
-**Colts' All-Pro DT DeForest Buckner lands on IR**\
-`Buckner will miss at least the next four games. It's a huge blow to a Colts defense that's already been struggling in 2024. `\
-https://nytimes.com/athletic/5774895/2024/09/17/colts-deforest-buckner-ir-ankle-injury/
 
