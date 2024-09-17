@@ -1,3 +1,7 @@
+**We fact-checked Kamala Harris’s N.A.B.J. appearance.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/17/us/trump-harris-election/we-fact-checked-kamala-harriss-nabj-appearance
+
 **Ex-Officer Testifies Against His Former Colleagues in Tyre Nichols’s Death**\
 `A former Memphis officer said he had been angry about a lack of arrests even before he began a pursuit that led to a fatal beating.`\
 https://nytimes.com/2024/09/17/us/tyre-nichols-emmitt-martin-memphis-police.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/dining/carnitas-ramirez-restaurant-review.html
 **Did You Ask Your Wedding Guests to Help You Buy a Home? We Want to Know.**\
 `Forget espresso machines and new silverware. Did you put a down payment fund on your wedding registry? Are you planning to do so?`\
 https://nytimes.com/2024/09/17/realestate/wedding-registry-house-fund.html
-
-**Harris Condemns Trump’s ‘Hateful’ Claims About Springfield, Ohio**\
-`“This is exhausting, and it’s harmful,” Kamala Harris said during an interview. “And it’s hateful, and grounded in some age-old stuff that we should not have the tolerance for.”`\
-https://nytimes.com/2024/09/17/us/politics/harris-trump-haitian-migrants-pets.html
 
