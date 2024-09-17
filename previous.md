@@ -1,3 +1,35 @@
+**Ghiroli: Why the Royals are good for baseball**\
+`Not every move the Royals made has worked out. But, like their lineup, the Royals front office has a pretty low whiff rate.`\
+https://nytimes.com/athletic/5772016/2024/09/17/royals-success-good-for-mlb/
+
+**Tucker Kraft's blocking, Eric Wilson's efficiency stand out in Packers' win over Colts**\
+`Brayden Narveson's second field goal miss and Daniel Whelan's punting prowess were also notable in Green Bay's Week 2 win.`\
+https://nytimes.com/athletic/5770421/2024/09/17/packers-win-notes-colts-week-2/
+
+**Blackhawks roster projection: Who will Bedard's linemates be?**\
+`With an influx of veterans up front, on the back end and in goal, the Blackhawks' roster calculus has changed dramatically.`\
+https://nytimes.com/athletic/5771504/2024/09/17/blackhawks-roster-projection-depth-chart/
+
+**How a life of hard work on the farm has prepared Easton Cowan for an NHL future**\
+`Easton Cowan welcomes the challenges of trying to make the Leafs because he’s been hardened by the sprawling farm where he came of age.`\
+https://nytimes.com/athletic/5751765/2024/09/17/easton-cowan-maple-leafs-nhl/
+
+**Sidney Crosby's new contract keeps him with Penguins — and in control**\
+`The Penguins locked up their franchise player, but there's a catch.`\
+https://nytimes.com/athletic/5772212/2024/09/17/sidney-crosby-penguins-contract-extension-analysis/
+
+**A Second Assassination Attempt and the New Era of Political Violence**\
+`A look at what we know about what appears to be a second attempt to assassinate Donald Trump.`\
+https://nytimes.com/2024/09/17/podcasts/the-daily/donald-trump-assissination-attempt.html
+
+**Wordle Review No. 1,187**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, September 18, 2024.`\
+https://nytimes.com/2024/09/17/crosswords/wordle-review-1187.html
+
+**The Connections Companion No. 465**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 18, 2024.`\
+https://nytimes.com/2024/09/17/crosswords/connections-companion-465.html
+
 **Ubben: Arch Manning transferring from Texas never would have made sense**\
 `It was easy to think Manning, who is expected to start Saturday, might transfer when Ewers returned, but there was never a good reason.`\
 https://nytimes.com/athletic/5772297/2024/09/17/arch-manning-texas-transfer-portal-ewers/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/5772297/2024/09/17/arch-manning-texas-transfer-port
 **How Deshaun Watson and the Browns' offense fared in win over Jaguars**\
 `While Cleveland didn't put up many points in its Week 2 victory, Watson looked more comfortable and made some progress running the offense.`\
 https://nytimes.com/athletic/5772286/2024/09/17/browns-offense-deshaun-watson-jaguars/
-
-**Celebrating a Very Fashionable Middle Age**\
-`Once upon a time the London scene was wild and revolutionary. Now its fashion week is 40. What happens when the wild child of dress grows up?`\
-https://nytimes.com/2024/09/17/style/burberry-simone-rocha-jw-anderson-london-fashion-week.html
-
-**How to stage a college football game at a 100,000-seat stadium**\
-`Every game provides a new challenge at the fifth-largest football stadium in the world. What goes on behind the scenes at Ohio Stadium?`\
-https://nytimes.com/athletic/5772049/2024/09/17/ohio-state-college-football-largest-stadiums/
-
-**Ukraine-Russia War Updates: Moscow Hits Back in Kursk as Air War Heats Up**\
-`Moscow’s troops have retaken a few villages in a border area that Kyiv’s forces invaded last month and are also advancing steadily in eastern Ukraine.`\
-https://nytimes.com/2024/09/17/world/europe/ukraine-russia-war-kursk.html
-
-**JaKobe Walter, the fifth starter and more: Analyzing Raptors rotation and depth chart**\
-`The Raptors have a glut of ... guards? What happened?`\
-https://nytimes.com/athletic/5762995/2024/09/17/toronto-raptors-depth-chart-jakobe-walter/
-
-**Kirk Cousins' stunning game-winning drive shows why the Falcons paid him**\
-`The Atlanta Falcons beat the Philadelphia Eagles 22-21 on "Monday Night Football" in the seventh-most improbable comeback since 2016.`\
-https://nytimes.com/athletic/5773010/2024/09/17/kirk-cousins-monday-night-football-falcons-win/
-
-**What I saw at Sabres rookie camp: Jiří Kulich 'blew the doors off' the tournament**\
-`With little time before the Sabres leave for Europe, prospects needed to impress Lindy Ruff quickly. Jiří Kulich did just that.`\
-https://nytimes.com/athletic/5772403/2024/09/17/sabres-rookie-camp-jiri-kulich/
-
-**Patriots are being patient with Drake Maye, and Sunday's loss reminded us why**\
-`The Patriots are allowing pressure at the second-highest rate in the NFL and the wide receivers aren't doing much to help the quarterback.`\
-https://nytimes.com/athletic/5771852/2024/09/17/patriots-qb-drake-maye-jacoby-brissett/
-
-**Zadie Smith on Populists, Frauds and Flip Phones**\
-`The novelist on everything from the ‘amorphous’ self to aging and mystery.`\
-https://nytimes.com/2024/09/17/opinion/ezra-klein-podcast-zadie-smith.html
 
