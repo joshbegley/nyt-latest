@@ -1,3 +1,7 @@
+**Netanyahu Is Said to Consider Firing Israel’s Defense Minister**\
+`Dismissing the minister, Yoav Gallant, would remove a prominent voice of disagreement with Prime Minister Benjamin Netanyahu.`\
+https://nytimes.com/2024/09/17/world/middleeast/israel-gaza-netanyahu-gallant.html
+
 **Cubs takeaways: Shota Imanaga continues to impress, Michael Busch keeps bouncing back and more**\
 `Imanaga has answered questions about how he'd do coming over from NPB, Busch has made adjustments and more.`\
 https://nytimes.com/athletic/5772701/2024/09/17/cubs-shota-imanaga-success-michael-busch/
