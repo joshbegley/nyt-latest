@@ -1,3 +1,11 @@
+**Senate Republicans Block I.V.F. Protection Bill a Second Time, Breaking With Trump**\
+`Democrats brought up the measure again to highlight Republican opposition to abortion rights and make the case to voters that the G.O.P. stance threatens access to reproductive health care.`\
+https://nytimes.com/2024/09/17/us/politics/ivf-bill-senate-vote.html
+
+**We fact-checked Kamala Harris’s N.A.B.J. appearance.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/17/us/trump-harris-election/we-fact-checked-kamala-harriss-nabj-appearance
+
 **Ex-Officer Testifies Against His Former Colleagues in Tyre Nichols’s Death**\
 `A former Memphis officer said he had been angry about a lack of arrests even before he began a pursuit that led to a fatal beating.`\
 https://nytimes.com/2024/09/17/us/tyre-nichols-emmitt-martin-memphis-police.html
