@@ -1,3 +1,7 @@
+**Instagram’s New Protections for Kids Don’t Go Far Enough**\
+`By Zeynep Tufekci`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/instagram-children-regulation
+
 **U.S. Steel C.E.O. Says Nippon Deal Will Strengthen National Security**\
 `David Burritt expressed confidence that the sale of the American manufacturer to a Japanese owner would close “on its merits” despite bipartisan backlash.`\
 https://nytimes.com/2024/09/17/us/politics/us-steel-nippon-steel-deal.html
