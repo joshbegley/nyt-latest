@@ -1,3 +1,7 @@
+**Who is each MLB playoff contender's most indispensable 'under-the-radar' player? Execs weigh in**\
+`Who is the most underrated, yet indispensable player on each of the postseason contenders? What do their managers and execs say about them?`\
+https://nytimes.com/athletic/5772020/2024/09/17/mlb-playoff-contenders-2024-analysis/
+
 **Javonte Williams' lackluster play only part of rough start for Broncos' run game**\
 `Denver's fourth-year RB has been among the league's least efficient ball carriers through two weeks, but he's not the only one struggling.`\
 https://nytimes.com/athletic/5770958/2024/09/17/javonte-williams-broncos-run-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/briefing/donald-trump-kamala-harris-election.html
 **Another Blow to Trudeau: Liberals Lose a Long-Held Seat**\
 `The election in Montreal had been seen as a referendum on Canada’s deeply unpopular prime minister, who has faced calls from within his party to quit.`\
 https://nytimes.com/2024/09/17/world/americas/special-election-results-montreal-trudeau.html
-
-**E.U. Leadership Team, With Several Women, Takes Shape**\
-`Ursula von der Leyen, the president of the European Commission, gave the most influential portfolios to nominees from France, Italy and Spain.`\
-https://nytimes.com/2024/09/17/world/europe/von-der-leyen-european-commission-eu-jobs.html
 
