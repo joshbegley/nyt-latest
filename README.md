@@ -1,3 +1,7 @@
+**Netanyahu Is Said to Consider Firing Israel’s Defense Minister**\
+`Dismissing the minister, Yoav Gallant, would remove a prominent voice of disagreement with Prime Minister Benjamin Netanyahu.`\
+https://nytimes.com/2024/09/17/world/middleeast/israel-gaza-netanyahu-gallant.html
+
 **Cubs takeaways: Shota Imanaga continues to impress, Michael Busch keeps bouncing back and more**\
 `Imanaga has answered questions about how he'd do coming over from NPB, Busch has made adjustments and more.`\
 https://nytimes.com/athletic/5772701/2024/09/17/cubs-shota-imanaga-success-michael-busch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5771504/2024/09/17/blackhawks-roster-projection-dep
 **How a life of hard work on the farm has prepared Easton Cowan for an NHL future**\
 `Easton Cowan welcomes the challenges of trying to make the Leafs because he’s been hardened by the sprawling farm where he came of age.`\
 https://nytimes.com/athletic/5751765/2024/09/17/easton-cowan-maple-leafs-nhl/
-
-**Sidney Crosby's new contract keeps him with Penguins — and in control**\
-`The Penguins locked up their franchise player, but there's a catch.`\
-https://nytimes.com/athletic/5772212/2024/09/17/sidney-crosby-penguins-contract-extension-analysis/
 
