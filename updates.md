@@ -1,3 +1,7 @@
+**Barcelona's Fermin set for three more weeks out after new hamstring injury**\
+`Barcelona midfielder Fermin Lopez faces three more weeks on the sidelines after sustaining a thigh injury.`\
+https://nytimes.com/athletic/5773651/2024/09/17/fermin-lopez-injury-barcelona/
+
 **Students for a Democratic Society**\
 `News about Students for a Democratic Society. Commentary and archival information about Students for a Democratic Society from The New York Times.`\
 https://nytimes.com/topic/students-for-a-democratic-society
