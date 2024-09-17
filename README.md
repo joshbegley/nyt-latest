@@ -1,3 +1,7 @@
+**Bills All-22: How Buffalo's defense sticks to a rare plan to counteract explosive offenses**\
+`The Bills kept the Dolphins in check despite key injuries.`\
+https://nytimes.com/athletic/5773631/2024/09/17/buffalo-bills-film-breakdown-miami-dolphins/
+
 **OceanGate Founder Crashed a Submersible Years Before Titan Disaster**\
 `At a U.S. Coast Guard hearing, a pilot described a disastrous trip in which OceanGate’s founder got a submersible stuck under a shipwreck and then threw the controls at his head.`\
 https://nytimes.com/2024/09/17/us/titan-submersible-coast-guard-hearing.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/17/weather/pulasan-map-path-tracker.html
 **Learning to Connect With Friends — Without Alcohol**\
 `Quitting drinking was the easy part. Figuring out how to be myself was harder.`\
 https://nytimes.com/2024/09/17/well/mind/quitting-alcohol-social-life.html
-
-**‘American Crime Story’ Turns to Sports With Aaron Hernandez Saga**\
-`The buzzy FX series delves into the N.F.L. star who murdered a friend less than a year after playing in the Super Bowl.`\
-https://nytimes.com/2024/09/17/arts/television/aaron-hernandez-american-sports-story.html
 
