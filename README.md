@@ -1,3 +1,7 @@
+**Barcelona's Fermin set for three more weeks out after new hamstring injury**\
+`Barcelona midfielder Fermin Lopez faces three more weeks on the sidelines after sustaining a thigh injury.`\
+https://nytimes.com/athletic/5773651/2024/09/17/fermin-lopez-injury-barcelona/
+
 **Students for a Democratic Society**\
 `News about Students for a Democratic Society. Commentary and archival information about Students for a Democratic Society from The New York Times.`\
 https://nytimes.com/topic/students-for-a-democratic-society
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/us/politics/kamala-harris-media-strategy.html
 **Boeing Expected to Restart Labor Negotiations as It Seeks End to Strike**\
 `Federal mediators will help the aerospace manufacturer and leaders of the union representing more than 33,000 workers who went on strike last week reach a deal.`\
 https://nytimes.com/2024/09/17/business/boeing-strike-negotiations.html
-
-**Manchester City Case Could Rewrite Premier League History**\
-`The world’s richest soccer league accused its champion of years of financial violations. A hearing that began this week could tarnish the club’s accomplishments and reshape the competition.`\
-https://nytimes.com/2024/09/17/world/europe/man-city-case-premier-league-charges.html
 
