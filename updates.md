@@ -1,3 +1,15 @@
+**‘American Crime Story’ Turns to Sports With Aaron Hernandez Saga**\
+`The buzzy FX series delves into the N.F.L. star who murdered a friend less than a year after playing in the Super Bowl.`\
+https://nytimes.com/2024/09/17/arts/television/aaron-hernandez-american-sports-story.html
+
+**New York Philharmonic Opens Its Season Amid Labor Talks and Troubles**\
+`The orchestra is working to negotiate a new contract with musicians, resolve a misconduct inquiry and hire a new chief executive.`\
+https://nytimes.com/2024/09/17/arts/music/new-york-philharmonic-labor-troubles.html
+
+**F.D.I.C. Says Banks Need to Keep a Record of Their Fintech Customers**\
+`Banks holding customer funds for money management apps should keep track of customers’ identities and balances, the agency says.`\
+https://nytimes.com/2024/09/17/business/fdic-fintech-data-banks-synapse.html
+
 **Barcelona's Fermin set for three more weeks out after new hamstring injury**\
 `Barcelona midfielder Fermin Lopez faces three more weeks on the sidelines after sustaining a thigh injury.`\
 https://nytimes.com/athletic/5773651/2024/09/17/fermin-lopez-injury-barcelona/

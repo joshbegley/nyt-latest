@@ -1,3 +1,15 @@
+**‘American Crime Story’ Turns to Sports With Aaron Hernandez Saga**\
+`The buzzy FX series delves into the N.F.L. star who murdered a friend less than a year after playing in the Super Bowl.`\
+https://nytimes.com/2024/09/17/arts/television/aaron-hernandez-american-sports-story.html
+
+**New York Philharmonic Opens Its Season Amid Labor Talks and Troubles**\
+`The orchestra is working to negotiate a new contract with musicians, resolve a misconduct inquiry and hire a new chief executive.`\
+https://nytimes.com/2024/09/17/arts/music/new-york-philharmonic-labor-troubles.html
+
+**F.D.I.C. Says Banks Need to Keep a Record of Their Fintech Customers**\
+`Banks holding customer funds for money management apps should keep track of customers’ identities and balances, the agency says.`\
+https://nytimes.com/2024/09/17/business/fdic-fintech-data-banks-synapse.html
+
 **Barcelona's Fermin set for three more weeks out after new hamstring injury**\
 `Barcelona midfielder Fermin Lopez faces three more weeks on the sidelines after sustaining a thigh injury.`\
 https://nytimes.com/athletic/5773651/2024/09/17/fermin-lopez-injury-barcelona/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/17/dining/nyc-restaurant-news.html
 **Weekly Student News Quiz: Presidential Debate, Emmy Awards, Marmosets**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/09/17/learning/17StudentNewsQuiz.html
-
-**Here’s a look at some of the key events in the conflict in the Middle East.**\
-`By Anjana Sankar`\
-https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/heres-a-look-at-some-of-the-key-events-in-the-conflict-in-the-middle-east
-
-**Harris Campaign Says She Will Meet the Press (on Her Terms)**\
-`The vice president, who has granted few interviews as the Democratic nominee, is now ramping things up. But she is likely to focus on local outlets and nontraditional venues where voters get their news.`\
-https://nytimes.com/2024/09/17/us/politics/kamala-harris-media-strategy.html
-
-**Boeing Expected to Restart Labor Negotiations as It Seeks End to Strike**\
-`Federal mediators will help the aerospace manufacturer and leaders of the union representing more than 33,000 workers who went on strike last week reach a deal.`\
-https://nytimes.com/2024/09/17/business/boeing-strike-negotiations.html
 
