@@ -1,3 +1,7 @@
+**The suspect was a Hawaii handyman eager to help, as long as no one complained.**\
+`By Yan Zhuang and Jill Cowan`\
+https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt/the-suspect-was-a-hawaii-handyman-eager-to-help-as-long-as-no-one-complained
+
 **Prosecutors Accuse Sean Combs of Running a ‘Criminal Enterprise’**\
 `Sean Combs, also known as Diddy, was indicted on Tuesday on three counts of sex trafficking, racketeering and transportation to engage in prostitution.`\
 https://nytimes.com/video/nyregion/100000009699054/sean-combs-indictment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774003/2024/09/17/liverpool-fan-death-italy/
 **Five Five-Star Weeknight Dishes**\
 `Weeknight winners I turn to again and again: kimchi fried rice, hot honey shrimp, and pasta alla vodka.`\
 https://nytimes.com/2024/09/17/dining/five-five-star-weeknight-dishes.html
-
-**Union for a Popular Movement**\
-`News about Union for a Popular Movement. Commentary and archival information about Union for a Popular Movement from The New York Times.`\
-https://nytimes.com/topic/union-for-a-popular-movement
 

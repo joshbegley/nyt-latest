@@ -1,3 +1,7 @@
+**The suspect was a Hawaii handyman eager to help, as long as no one complained.**\
+`By Yan Zhuang and Jill Cowan`\
+https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt/the-suspect-was-a-hawaii-handyman-eager-to-help-as-long-as-no-one-complained
+
 **Prosecutors Accuse Sean Combs of Running a ‘Criminal Enterprise’**\
 `Sean Combs, also known as Diddy, was indicted on Tuesday on three counts of sex trafficking, racketeering and transportation to engage in prostitution.`\
 https://nytimes.com/video/nyregion/100000009699054/sean-combs-indictment.html
