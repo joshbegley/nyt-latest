@@ -1,3 +1,19 @@
+**Why baseball cards are still bigger than other sports cards**\
+`While the NFL and NBA have surpassed baseball in mainstream popularity, the balance in the trading card world is different `\
+https://nytimes.com/athletic/5773753/2024/09/17/baseball-cards-popularity-nfl-nba/
+
+**Scoop City: Week 3 Fantasy Prep**\
+`A look at fantasy football takeaways after two weeks of NFL football`\
+https://nytimes.com/athletic/5773958/2024/09/17/scoop-city-week-3-fantasy-prep/
+
+**The Republicans’ Dehumanizing Lies About Haitians**\
+`Readers discuss the harm from the lies about immigrants eating dogs and cats. Also: The guns; Americans in exile; the pope and the election; the debates.`\
+https://nytimes.com/2024/09/17/opinion/republicans-haitians-lies.html
+
+**N W A (Music Group)**\
+`News about N W A (Music Group). Commentary and archival information about N W A (Music Group) from The New York Times.`\
+https://nytimes.com/topic/n-w-a-music-group
+
 **Former governors implore their successors to certify the November election results.**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2024/09/17/us/trump-harris-election/former-governors-implore-their-successors-to-certify-the-november-election-results
@@ -21,20 +37,4 @@ https://nytimes.com/topic/serie-a-italian-soccer-league
 **A Look at Hezbollah and What a Wider War Would Mean for Lebanon**\
 `Lebanon and Israel have repeatedly traded strikes since the Gaza war began in October, killing civilians and combatants in Lebanon and Israel.`\
 https://nytimes.com/2024/09/17/world/middleeast/israel-hezbollah-lebanon-war-impact.html
-
-**Presidential Campaigns and Allies Plan $500 Million in TV and Radio Ads**\
-`Groups backing Vice President Kamala Harris have reserved $332 million worth of airtime. Just about $194 million in ads will come from groups backing former President Donald J. Trump.`\
-https://nytimes.com/2024/09/17/us/elections/presidential-campaign-advertising-spending.html
-
-**Rabiot completes Marseille move**\
-`Adrien Rabiot has completed his move to Marseille on a free transfer.`\
-https://nytimes.com/athletic/5773222/2024/09/17/adrien-rabiot-olympique-marseille-transfer/
-
-**Super Bowl 2025 odds: Favorites and dark-horse contenders to challenge the Chiefs**\
-`Which teams have seen their Super Bowl outlook improve since the start of the season?`\
-https://nytimes.com/athletic/5773549/2024/09/17/super-bowl-2025-odds-week-3/
-
-**Bills All-22: How Buffalo's defense sticks to a rare plan to counteract explosive offenses**\
-`The Bills kept the Dolphins in check despite key injuries.`\
-https://nytimes.com/athletic/5773631/2024/09/17/buffalo-bills-film-breakdown-miami-dolphins/
 
