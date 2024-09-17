@@ -1,7 +1,3 @@
-**Padres’ Luis Arraez ends MLB’s longest streak without a strikeout in 20 years**\
-`The two-time batting champ went 141 plate appearances without a strikeout. The Astros' Spencer Arrighetti ended the streak.`\
-https://nytimes.com/athletic/5772802/2024/09/16/luis-arraez-strikeout-streak-ends-padres/
-
 **What we learned from Falcons-Eagles: 5 takeaways**\
 `Falcons QB Kirk Cousins is now 13-20 in primetime games.`\
 https://nytimes.com/athletic/5772708/2024/09/16/eagles-falcons-monday-night-football-score-takeaways/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/16/technology/trump-crypto-world-liberty-financial.h
 **Chiles takes appeal over Olympic bronze to Swiss court**\
 `Chiles' attorneys specifically asked for the previous ruling by the Court of Arbitration for Sport to be overturned.`\
 https://nytimes.com/athletic/5772257/2024/09/16/jordan-chiles-bronze-swiss-federal-tribunal-appeal/
+
+**Patriots' Bentley expected to miss rest of season with torn pectoral muscle**\
+`Bentley sustained the injury in the team’s overtime loss to the Seattle Seahawks on Sunday.`\
+https://nytimes.com/athletic/5772486/2024/09/16/jawhaun-bentley-patriots-injury/
 
