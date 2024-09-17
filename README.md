@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Presidential Debate, Emmy Awards, Marmosets**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/09/17/learning/17StudentNewsQuiz.html
+
 **Here’s a look at some of the key events in the conflict in the Middle East.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/heres-a-look-at-some-of-the-key-events-in-the-conflict-in-the-middle-east
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/here-are-the-lat
 **Live Updates: Wireless Devices Explode Across Lebanon After Israel Warns Hezbollah**\
 `A Lebanese official said pagers belonging to Hezbollah militants had exploded, and the health minister said hundreds of people were injured. The Israeli military declined to comment.`\
 https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news
-
-**Burning Oil Tanker in Red Sea Is Towed to Safety**\
-`The delicate rescue mission aimed to head off a major environmental disaster after the oil tanker was attacked by Houthi rebels off the coast of Yemen last month.`\
-https://nytimes.com/2024/09/17/world/middleeast/oil-tanker-red-sea-houthi-attack.html
 
