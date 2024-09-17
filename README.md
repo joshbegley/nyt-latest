@@ -27,7 +27,7 @@ https://nytimes.com/2024/09/17/arts/music/sean-combs-diddy-indicted.html
 https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/here-are-the-latest-developments
 
 **Live Updates: Wireless Devices Explode Across Lebanon After Israel Warns Hezbollah**\
-`A Lebanese official said pagers belonging to Hezbollah militants had exploded, causing a large number of injuries. The Israeli military declined to comment.`\
+`A Lebanese official said pagers belonging to Hezbollah militants had exploded, and the health minister said hundreds of people were injured. The Israeli military declined to comment.`\
 https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news
 
 **Burning Oil Tanker in Red Sea Is Towed to Safety**\
