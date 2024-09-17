@@ -1,3 +1,7 @@
+**Still Standing, So to Speak**\
+`Howard Neuthaler makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/09/16/crosswords/daily-puzzle-2024-09-15.html
+
 **Sean Combs Arrested in Manhattan After Grand Jury Indictment**\
 `The music mogul has been under mounting scrutiny since a 2023 lawsuit by his former girlfriend, Cassie, accused him of sex trafficking and years of abuse.`\
 https://nytimes.com/2024/09/16/arts/music/sean-combs-diddy-indicted.html
