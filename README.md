@@ -1,3 +1,7 @@
+**F A O Schwarz**\
+`News about F A O Schwarz. Commentary and archival information about F A O Schwarz from The New York Times.`\
+https://nytimes.com/topic/f-a-o-schwarz
+
 **Tiny, Tasty Lizards Scuba-Dive for Their Survival**\
 `Almost every animal in the rainforest enjoys snacking on water anoles, but slippery skin and an ability to carry an air bubble underwater help them survive.`\
 https://nytimes.com/2024/09/17/science/scuba-dive-lizard-anole.html
@@ -33,8 +37,4 @@ https://nytimes.com/topic/assn-for-a-better-new-york
 **Real Madrid's Endrick 'a very special player' - Ancelotti**\
 `Carlo Ancelotti has hailed Real Madrid striker Endrick as a &#8220;very special player&#8221; after scoring on his Champions League debut.`\
 https://nytimes.com/athletic/5775147/2024/09/17/endrick-real-madrid-carlo-ancelotti/
-
-**The Harassment of Springfield Represents a Dangerous New Turn**\
-`The threats against the town are a warning by the MAGA movement to the nation.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/springfield-harassment-maga-trump
 
