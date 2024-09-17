@@ -1,3 +1,11 @@
+**Pret A Manger**\
+`News about Pret A Manger. Commentary and archival information about Pret A Manger from The New York Times.`\
+https://nytimes.com/topic/pret-a-manger
+
+**What does the Peyton Krebs extension mean for Sabres' depth chart, camp battles?**\
+`The Sabres spent this summer adding to the bottom six of their forward depth chart.`\
+https://nytimes.com/athletic/5774710/2024/09/17/peyton-krebs-contract-sabres-training-camp/
+
 **N.Y.C. Schools Chancellor Seeks to Project Stability as Inquiries Swirl**\
 `David C. Banks, whose phone was seized during an investigation related to his brother, largely avoided discussing his current circumstances in his annual State of Our Schools speech.`\
 https://nytimes.com/2024/09/17/nyregion/david-banks-adams-investigation.html

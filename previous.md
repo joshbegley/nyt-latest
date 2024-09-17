@@ -1,3 +1,11 @@
+**Pret A Manger**\
+`News about Pret A Manger. Commentary and archival information about Pret A Manger from The New York Times.`\
+https://nytimes.com/topic/pret-a-manger
+
+**What does the Peyton Krebs extension mean for Sabres' depth chart, camp battles?**\
+`The Sabres spent this summer adding to the bottom six of their forward depth chart.`\
+https://nytimes.com/athletic/5774710/2024/09/17/peyton-krebs-contract-sabres-training-camp/
+
 **N.Y.C. Schools Chancellor Seeks to Project Stability as Inquiries Swirl**\
 `David C. Banks, whose phone was seized during an investigation related to his brother, largely avoided discussing his current circumstances in his annual State of Our Schools speech.`\
 https://nytimes.com/2024/09/17/nyregion/david-banks-adams-investigation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5770772/2024/09/17/ac-milan-liverpool-result-analys
 **Feldman: Why Tennessee picked an opportune time to raise ticket prices**\
 `Danny White has taken a strategy of transparency with the Vols faithful to let them know where their money will be going.`\
 https://nytimes.com/athletic/5774100/2024/09/17/tennessee-tickets-prices-revenue-sharing-danny-white/
-
-**Live Q&A: Week 3 fantasy football add/drop chat with Jay Felicio, Tuesday 9/17 at 5 p.m. ET**\
-`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5774891/2024/09/17/live-qa-week-3-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-9-17-at-5-p-m-et/
-
-**Trumpism, Stalinism and the Tariff Debate**\
-`The spirit of Trofim Lysenko comes to trade policy.`\
-https://nytimes.com/2024/09/17/opinion/trump-tariffs-economy.html
 
