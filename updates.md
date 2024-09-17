@@ -1,3 +1,7 @@
+**A rare Bjorn Borg interview: Saying goodbye to Laver Cup, retiring at 26 and watching his son Leo**\
+`Before his Laver Cup, Borg spoke about his post-tennis life, his son Leo, and which modern player reminds him most of himself...`\
+https://nytimes.com/athletic/5773226/2024/09/17/bjorn-borg-interview-laver-cup/
+
 **Instagram’s New ‘Teen Accounts’: What Parents and Kids Need to Know**\
 `The social media app says new privacy settings and features will create more age-appropriate experiences for youth under 18.`\
 https://nytimes.com/2024/09/17/technology/instagram-teen-account-settings-safety.html

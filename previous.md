@@ -1,3 +1,7 @@
+**A rare Bjorn Borg interview: Saying goodbye to Laver Cup, retiring at 26 and watching his son Leo**\
+`Before his Laver Cup, Borg spoke about his post-tennis life, his son Leo, and which modern player reminds him most of himself...`\
+https://nytimes.com/athletic/5773226/2024/09/17/bjorn-borg-interview-laver-cup/
+
 **Instagram’s New ‘Teen Accounts’: What Parents and Kids Need to Know**\
 `The social media app says new privacy settings and features will create more age-appropriate experiences for youth under 18.`\
 https://nytimes.com/2024/09/17/technology/instagram-teen-account-settings-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5771412/2024/09/17/real-madrid-bernabeu-concerts-re
 **8 burning questions heading into Wild training camp: John Hynes one-on-one**\
 `How will the 3-goalie rotation play out? What will the lines be? We get the Minnesota coach's pre-camp take on those questions and more.`\
 https://nytimes.com/athletic/5771679/2024/09/17/wild-training-camp-questions-john-hynes/
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/09/17/us/trump-harris-election/heres-the-latest-on-the-presidential-race
 
