@@ -1,3 +1,11 @@
+**Rutgers President Announces Resignation After a Year Rocked by Protests**\
+`Jonathan Holloway was Rutgers’ first Black president. He helped the university grow but also faced criticism and questioning in Congress over pro-Palestinian encampments on campus.`\
+https://nytimes.com/2024/09/17/us/rutgers-president-resignation-jonathan-holloway.html
+
+**The Middle East Just Got Much Harder. Who Do You Want Leading America?**\
+`The explosion of wireless devices across Lebanon casts in sharp relief the challenges of U.S. foreign policy facing Kamala Harris or Donald Trump.`\
+https://nytimes.com/2024/09/17/opinion/trump-harris-foreign-policy.html
+
 **The Fires That Could Reshape the Amazon**\
 `Vast, diverse parts of Brazil are burning at the same time, forcing officials to rethink how to protect crucial ecosystems like the Amazon.`\
 https://nytimes.com/2024/09/17/climate/the-fires-that-could-reshape-the-amazon.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt/trump-assassi
 **With Sandbags and Team Spirit, a Polish City Fought Off a Flood**\
 `Thousands of residents of Nysa, in southern Poland, formed a human chain overnight to pass each other sandbags, building a wall along a river embankment to keep the raging waters at bay.`\
 https://nytimes.com/2024/09/17/world/europe/floods-poland-boris-nysa.html
-
-**College football best bets Week 4: Boston College, Arizona State and Notre Dame's defense**\
-`Austin Mock picks out several bets he likes for college football's Week 4 based on his model's projections.`\
-https://nytimes.com/athletic/5771832/2024/09/17/college-football-best-bets-week-4/
-
-**Iran’s ambassador to Lebanon is injured in the apparent attack, state media reports.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/irans-ambassador-to-lebanon-is-injured-in-the-apparent-attack-state-media-reports
 
