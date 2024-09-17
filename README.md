@@ -30,7 +30,7 @@ https://nytimes.com/topic/f-a-o-schwarz
 `Almost every animal in the rainforest enjoys snacking on water anoles, but slippery skin and an ability to carry an air bubble underwater help them survive.`\
 https://nytimes.com/2024/09/17/science/scuba-dive-lizard-anole.html
 
-**Kamala Harris Hasn’t Yet Earned My Vote**\
+**What Harris Must Do to Win Over Skeptics (Like Me)**\
 `It’s not enough to be “Not Trump.”`\
 https://nytimes.com/2024/09/17/opinion/kamala-harris-election.html
 
