@@ -1,5 +1,9 @@
 **Musk super PAC switches field plan again in two pivotal states.**\
 `By Theodore Schleifer`\
+https://nytimes.com/2024/09/17/us/politics/musk-super-pac-switches-field-plan-again-in-two-pivotal-states.html
+
+**Musk super PAC switches field plan again in two pivotal states.**\
+`By Theodore Schleifer`\
 https://nytimes.com/live/2024/09/17/us/trump-harris-election/musk-super-pac-switches-field-plan-again-in-two-pivotal-states
 
 **What Harris Must Do to Win Over Skeptics (Like Me)**\

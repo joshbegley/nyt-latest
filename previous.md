@@ -1,6 +1,6 @@
 **Musk super PAC switches field plan again in two pivotal states.**\
 `By Theodore Schleifer`\
-https://nytimes.com/live/2024/09/17/us/trump-harris-election/musk-super-pac-switches-field-plan-again-in-two-pivotal-states
+https://nytimes.com/2024/09/17/us/politics/musk-super-pac-switches-field-plan-again-in-two-pivotal-states.html
 
 **Secret Service Scrambled After Trump’s Short Notice on Golf Outing**\
 `The agency did not sweep the area where a gunman lay in wait for the former president at his club in Florida.`\

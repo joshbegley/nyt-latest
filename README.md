@@ -1,3 +1,11 @@
+**Extreme Heat Means More Wildfires. It’s Taking a Toll on Firefighters. **\
+`As a changing climate fuels more wildfires, experts are working to better protect firefighters on the front lines.`\
+https://nytimes.com/card/2024/09/18/us/wildfires-extreme-heat-firefighters
+
+**Dodgers star Shohei Ohtani hits 48th homer, now 2 steals and 2 homers away from 50-50**\
+`Despite not being able to do what makes him baseball's most unique star, Ohtani has managed to author a unicorn season.`\
+https://nytimes.com/athletic/5775322/2024/09/17/shohei-ohtani-48th-homer-dodgers/
+
 **Musk super PAC switches field plan again in two pivotal states.**\
 `By Theodore Schleifer`\
 https://nytimes.com/2024/09/17/us/politics/musk-super-pac-switches-field-plan-again-in-two-pivotal-states.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5774524/2024/09/17/champions-league-kane-bayern-end
 **F A O Schwarz**\
 `News about F A O Schwarz. Commentary and archival information about F A O Schwarz from The New York Times.`\
 https://nytimes.com/topic/f-a-o-schwarz
-
-**Tiny, Tasty Lizards Scuba-Dive for Their Survival**\
-`Almost every animal in the rainforest enjoys snacking on water anoles, but slippery skin and an ability to carry an air bubble underwater help them survive.`\
-https://nytimes.com/2024/09/17/science/scuba-dive-lizard-anole.html
-
-**What Harris Must Do to Win Over Skeptics (Like Me)**\
-`It’s not enough to be “Not Trump.”`\
-https://nytimes.com/2024/09/17/opinion/kamala-harris-election.html
 
