@@ -4,7 +4,7 @@ https://nytimes.com/2024/09/17/arts/derek-boshier-dead.html
 
 **Israel Planted Explosives in Pagers Sold to Hezbollah, Officials Say**\
 `Small amounts of explosive were implanted in beepers that Hezbollah had ordered from a Taiwanese company, according to American and other officials briefed on the operation.`\
-https://nytimes.com/2024/09/17/world/middleeast/israel-planted-explosives-in-pagers-sold-to-hezbollah-officials-say.html
+https://nytimes.com/2024/09/17/world/middleeast/israel-hezbollah-pagers-explosives.html
 
 **Minnesota Timberwolves executive VP Sachin Gupta set to join Chelsea**\
 `Sachin Gupta, the executive vice president of basketball operations at the Minnesota Timberwolves, is set to leave the NBA franchise to take up a role at Chelsea.`\
