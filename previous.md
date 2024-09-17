@@ -1,3 +1,15 @@
+**The Windup: Consequential instant classic in KC**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5773768/2024/09/17/royals-tigers-series-mlb-standings-the-windup/
+
+**Bentley signs new three-year contract with Wolves**\
+`Wolverhampton Wanderers goalkeeper Dan Bentley has signed a new three-year contract with an option for a further year.`\
+https://nytimes.com/athletic/5773719/2024/09/17/dan-bentley-wolves-contract/
+
+**How Come Manet Never Painted Uncrustables?**\
+`Noah Verrier’s painting of a sandwich (minus one bite) sold for $4,999. Accused by some of being too commercial, he said he prefers objects “connected to who we are today.”`\
+https://nytimes.com/2024/09/17/style/uncrustables-painting-noah-verrier.html
+
 **‘Sirocco and the Kingdom of Winds’ Review: Flights of Fantasy**\
 `Two sisters get transported to a new world and transformed into cats in this whimsical and thoughtful animated feature.`\
 https://nytimes.com/2024/09/17/movies/sirocco-and-the-kingdom-of-winds-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/17/arts/television/aaron-hernandez-american-sports-s
 **New York Philharmonic Opens Its Season Amid Labor Talks and Troubles**\
 `The orchestra is working to negotiate a new contract with musicians, resolve a misconduct inquiry and hire a new chief executive.`\
 https://nytimes.com/2024/09/17/arts/music/new-york-philharmonic-labor-troubles.html
-
-**F.D.I.C. Says Banks Need to Keep a Record of Their Fintech Customers**\
-`Banks holding customer funds for money management apps should keep track of customers’ identities and balances, the agency says.`\
-https://nytimes.com/2024/09/17/business/fdic-fintech-data-banks-synapse.html
-
-**Barcelona's Fermin set for three more weeks out after new hamstring injury**\
-`Barcelona midfielder Fermin Lopez faces three more weeks on the sidelines after sustaining a thigh injury.`\
-https://nytimes.com/athletic/5773651/2024/09/17/fermin-lopez-injury-barcelona/
-
-**Students for a Democratic Society**\
-`News about Students for a Democratic Society. Commentary and archival information about Students for a Democratic Society from The New York Times.`\
-https://nytimes.com/topic/students-for-a-democratic-society
 
