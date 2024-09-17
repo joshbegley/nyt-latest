@@ -1,3 +1,7 @@
+**Chiefs signing Kareem Hunt to practice squad**\
+`The Chiefs added Hunt with starting RB Isiah Pacheco expected to miss extended time with a leg injury.`\
+https://nytimes.com/athletic/5774635/2024/09/17/chiefs-sign-kareem-hunt/
+
 **Senate Republicans Block I.V.F. Protection Bill a Second Time, Breaking With Trump**\
 `Democrats brought up the measure again to highlight Republican opposition to abortion rights and make the case to voters that the G.O.P. stance threatens access to reproductive health care.`\
 https://nytimes.com/2024/09/17/us/politics/ivf-bill-senate-vote.html
