@@ -1,3 +1,7 @@
+**Instagram’s New ‘Teen Accounts’: What Parents and Kids Need to Know**\
+`The social media app says new privacy settings and features will create more age-appropriate experiences for youth under 18.`\
+https://nytimes.com/2024/09/17/technology/instagram-teen-account-settings-safety.html
+
 **New report shows further crumbling of trust in American institutions.**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2024/09/17/us/trump-harris-election/new-report-shows-further-crumbling-of-trust-in-american-institutions

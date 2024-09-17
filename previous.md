@@ -1,3 +1,7 @@
+**Instagram’s New ‘Teen Accounts’: What Parents and Kids Need to Know**\
+`The social media app says new privacy settings and features will create more age-appropriate experiences for youth under 18.`\
+https://nytimes.com/2024/09/17/technology/instagram-teen-account-settings-safety.html
+
 **New report shows further crumbling of trust in American institutions.**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2024/09/17/us/trump-harris-election/new-report-shows-further-crumbling-of-trust-in-american-institutions
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5771679/2024/09/17/wild-training-camp-questions-joh
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/17/us/trump-harris-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Harris to Sit for Interview With Black Journalists**\
-`Vice President Kamala Harris will speak in Philadelphia with the group that hosted a combative interview with former President Donald J. Trump. Both tickets are on the trail, with Mr. Trump holding a town hall and the vice-presidential nominees crisscrossing battlegrounds.`\
-https://nytimes.com/live/2024/09/17/us/trump-harris-election
 
