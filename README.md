@@ -1,3 +1,7 @@
+**‘She Didn’t Deserve This’: Husband Accused of Raping Wife Testifies in French Court**\
+`Dominique Pelicot, who is accused of inviting strangers to rape his wife while she was drugged and unconscious, took the stand for the first time.`\
+https://nytimes.com/2024/09/17/world/europe/she-didnt-deserve-this-husband-accused-of-raping-wife-testifies-in-french-court.html
+
 **When David Beckham turned up to watch a League One game**\
 `Birmingham v Wrexham was already expected to be an unusually star-studded occasion - then the former England captain turned up`\
 https://nytimes.com/athletic/5772048/2024/09/17/david-beckham-birmingham-city-wrexham-tom-brady/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5773049/2024/09/17/twins-wild-card-advantage-dwindl
 **Prime Tire: McLaren leads the F1 standings. Sure. Plus, judging the big Baku crash**\
 `Welcome to Prime Tire, The Athletic’s twice-weekly F1 newsletter.`\
 https://nytimes.com/athletic/5771283/2024/09/17/f1-mclaren-red-bull-perez-sainz-crash-azerbaijan-prime-tire/
-
-**Word of the Day: infraction**\
-`This word has appeared in 51 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/17/learning/word-of-the-day-infraction.html
 
