@@ -1,3 +1,7 @@
+**Violence Swirling Around Trump Alarms an Uneasy World**\
+`After a second apparent assassination attempt, there is widespread concern that the November election will not end well and that American democracy has frayed to the breaking point.`\
+https://nytimes.com/2024/09/17/world/trump-assassination-attempt-world-reaction.html
+
 **A Wildly Popular New York Taqueria Nails Its Sequel**\
 `Carnitas Ramírez, the East Village sibling of a hit restaurant in Brooklyn, turns out tacos that hark back to the dish’s working-class roots.`\
 https://nytimes.com/2024/09/17/dining/carnitas-ramirez-restaurant-review.html

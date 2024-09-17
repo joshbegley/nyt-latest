@@ -1,3 +1,7 @@
+**Ten prospects — aside from Macklin Celebrini — who helped themselves at Rookie Faceoff**\
+`In Los Angeles, top prospects got a chance to prove themselves, and others got an opportunity to shine.`\
+https://nytimes.com/athletic/5773100/2024/09/17/prospects-sharks-utah-ducks-kings-kraken/
+
 **Violence Swirling Around Trump Alarms an Uneasy World**\
 `After a second apparent assassination attempt, there is widespread concern that the November election will not end well and that American democracy has frayed to the breaking point.`\
 https://nytimes.com/2024/09/17/world/trump-assassination-attempt-world-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/us/rutgers-president-resignation-jonathan-hollowa
 **The Middle East Just Got Much Harder. Who Do You Want Leading America?**\
 `The explosion of wireless devices across Lebanon casts in sharp relief the challenges of U.S. foreign policy facing Kamala Harris or Donald Trump.`\
 https://nytimes.com/2024/09/17/opinion/trump-harris-foreign-policy.html
-
-**The Fires That Could Reshape the Amazon**\
-`Vast, diverse parts of Brazil are burning at the same time, forcing officials to rethink how to protect crucial ecosystems like the Amazon.`\
-https://nytimes.com/2024/09/17/climate/the-fires-that-could-reshape-the-amazon.html
 
