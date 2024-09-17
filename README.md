@@ -1,3 +1,11 @@
+**Ten Hag 'calm and confident' of Rashford's Man Utd goals**\
+`Erik ten Hag says he is &#8220;calm, composed and confident&#8221; of Manchester United goals with Marcus Rashford in the team.`\
+https://nytimes.com/athletic/5775095/2024/09/17/marcus-rashford-man-united-goals/
+
+**The Evening: Hundreds of Pagers Explode in Lebanon**\
+`Plus, how a rate cut could affect you.`\
+https://nytimes.com/2024/09/17/briefing/hezbollah-pagers-instagram-harris-trump-sean-combs.html
+
 **Colts' All-Pro DT DeForest Buckner lands on IR**\
 `Buckner will miss at least the next four games. It's a huge blow to a Colts defense that's already been struggling in 2024. `\
 https://nytimes.com/athletic/5774895/2024/09/17/colts-deforest-buckner-ir-ankle-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5774710/2024/09/17/peyton-krebs-contract-sabres-tra
 **N.Y.C. Schools Chancellor Seeks to Project Stability as Inquiries Swirl**\
 `David C. Banks, whose phone was seized during an investigation related to his brother, largely avoided discussing his current circumstances in his annual State of Our Schools speech.`\
 https://nytimes.com/2024/09/17/nyregion/david-banks-adams-investigation.html
-
-**Wednesday Briefing: Exploding Pagers Kill at Least 9 in Lebanon**\
-`Plus, China’s “silver economy.”`\
-https://nytimes.com/2024/09/17/briefing/pager-attack-ads-instagram.html
-
-**Yale, Princeton and Duke Are Questioned Over Decline in Asian Students**\
-`The legal group that won a Supreme Court case that ended race-based college admissions suggested it might sue schools where the percentage of Asian students fell.`\
-https://nytimes.com/2024/09/17/us/yale-princeton-duke-asian-students-affirmative-action.html
 
