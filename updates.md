@@ -1,3 +1,7 @@
+**Ten prospects — aside from Macklin Celebrini — who helped themselves at Rookie Faceoff**\
+`In Los Angeles, top prospects got a chance to prove themselves, and others got an opportunity to shine.`\
+https://nytimes.com/athletic/5773100/2024/09/17/prospects-sharks-utah-ducks-kings-kraken/
+
 **Violence Swirling Around Trump Alarms an Uneasy World**\
 `After a second apparent assassination attempt, there is widespread concern that the November election will not end well and that American democracy has frayed to the breaking point.`\
 https://nytimes.com/2024/09/17/world/trump-assassination-attempt-world-reaction.html
