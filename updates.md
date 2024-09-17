@@ -1,3 +1,7 @@
+**Real Madrid's Endrick 'a very special player' - Ancelotti**\
+`Carlo Ancelotti has hailed Real Madrid striker Endrick as a &#8220;very special player&#8221; after scoring on his Champions League debut.`\
+https://nytimes.com/athletic/5775147/2024/09/17/endrick-real-madrid-carlo-ancelotti/
+
 **The Harassment of Springfield Represents a Dangerous New Turn**\
 `The threats against the town are a warning by the MAGA movement to the nation.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/springfield-harassment-maga-trump
