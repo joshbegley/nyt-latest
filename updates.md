@@ -1,3 +1,7 @@
+**AC Milan 1 Liverpool 3 - Gakpo stars as Slot's back four inspire comeback**\
+`Our writers break down the key talking points from Liverpool's first Champions League game since March 2023`\
+https://nytimes.com/athletic/5770772/2024/09/17/ac-milan-liverpool-result-analysis/
+
 **Pret A Manger**\
 `News about Pret A Manger. Commentary and archival information about Pret A Manger from The New York Times.`\
 https://nytimes.com/topic/pret-a-manger
