@@ -1,3 +1,11 @@
+**Israel Planted Explosives in Pagers Sold to Hezbollah, Officials Say**\
+`Small amounts of explosive were implanted in beepers that Hezbollah had ordered from a Taiwanese company, according to American and other officials briefed on the operation.`\
+https://nytimes.com/2024/09/17/world/middleeast/israel-planted-explosives-in-pagers-sold-to-hezbollah-officials-say.html
+
+**Minnesota Timberwolves executive VP Sachin Gupta set to join Chelsea**\
+`Sachin Gupta, the executive vice president of basketball operations at the Minnesota Timberwolves, is set to leave the NBA franchise to take up a role at Chelsea.`\
+https://nytimes.com/athletic/5774909/2024/09/17/chelsea-sachin-gupta-minnesota-timberwolves/
+
 **Pret A Manger**\
 `News about Pret A Manger. Commentary and archival information about Pret A Manger from The New York Times.`\
 https://nytimes.com/topic/pret-a-manger
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/17/style/ohio-girl-drives-target.html
 **Real Madrid 3 Stuttgart 1 - Mbappe scores on his big night but issues remain for Ancelotti**\
 `Real Madrid eventually secured victory, but Stuttgart made them work hard for the three points. Here we break down the action.`\
 https://nytimes.com/athletic/5770773/2024/09/17/real-madrid-mbappe-stuttgart/
-
-**AC Milan 1 Liverpool 3 - Gakpo stars as Slot's back four inspire comeback**\
-`Our writers break down the key talking points from Liverpool's first Champions League game since March 2023`\
-https://nytimes.com/athletic/5770772/2024/09/17/ac-milan-liverpool-result-analysis/
-
-**Feldman: Why Tennessee picked an opportune time to raise ticket prices**\
-`Danny White has taken a strategy of transparency with the Vols faithful to let them know where their money will be going.`\
-https://nytimes.com/athletic/5774100/2024/09/17/tennessee-tickets-prices-revenue-sharing-danny-white/
 

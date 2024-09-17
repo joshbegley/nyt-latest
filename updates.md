@@ -1,3 +1,11 @@
+**Israel Planted Explosives in Pagers Sold to Hezbollah, Officials Say**\
+`Small amounts of explosive were implanted in beepers that Hezbollah had ordered from a Taiwanese company, according to American and other officials briefed on the operation.`\
+https://nytimes.com/2024/09/17/world/middleeast/israel-planted-explosives-in-pagers-sold-to-hezbollah-officials-say.html
+
+**Minnesota Timberwolves executive VP Sachin Gupta set to join Chelsea**\
+`Sachin Gupta, the executive vice president of basketball operations at the Minnesota Timberwolves, is set to leave the NBA franchise to take up a role at Chelsea.`\
+https://nytimes.com/athletic/5774909/2024/09/17/chelsea-sachin-gupta-minnesota-timberwolves/
+
 **AC Milan 1 Liverpool 3 - Gakpo stars as Slot's back four inspire comeback**\
 `Our writers break down the key talking points from Liverpool's first Champions League game since March 2023`\
 https://nytimes.com/athletic/5770772/2024/09/17/ac-milan-liverpool-result-analysis/
