@@ -1,3 +1,15 @@
+**Trumpism, Stalinism and the Tariff Debate**\
+`The spirit of Trofim Lysenko comes to trade policy.`\
+https://nytimes.com/2024/09/17/opinion/trump-tariffs-economy.html
+
+**Prairie View A&M University**\
+`News about Prairie View A&M University. Commentary and archival information about Prairie View A&M University from The New York Times.`\
+https://nytimes.com/topic/prairie-view-am-university
+
+**Dolphins placing Tagovailoa on IR after concussion vs. Bills: Source**\
+`The quarterback suffered a concussion in Thursday’s game against the Buffalo Bills and is currently in the league's concussion protocol`\
+https://nytimes.com/athletic/5774788/2024/09/17/tua-tagovailoa-dolphins-injured-reserve-concussion/
+
 **Committee for a Responsible Federal Budget**\
 `News about Committee for a Responsible Federal Budget. Commentary and archival information about Committee for a Responsible Federal Budget from The New York Times.`\
 https://nytimes.com/topic/committee-for-a-responsible-federal-budget
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/17/us/trump-harris-election/we-fact-checked-kam
 **Ex-Officer Testifies Against His Former Colleagues in Tyre Nichols’s Death**\
 `A former Memphis officer said he had been angry about a lack of arrests even before he began a pursuit that led to a fatal beating.`\
 https://nytimes.com/2024/09/17/us/tyre-nichols-emmitt-martin-memphis-police.html
-
-**‘Show Me Your Hands!’: Officer Recalls 2002 Standoff With Trump Suspect**\
-`Ryan W. Routh, who was arrested following an apparent attempted assassination of former President Donald J. Trump, was convicted on an explosives charge after the standoff in North Carolina.`\
-https://nytimes.com/2024/09/17/us/politics/trump-assassination-suspect-routh-police.html
-
-**Trump suggests restoring the state and local tax break he once limited.**\
-`Former President Donald J. Trump’s 2017 tax law capped the state and local tax deduction at $10,000. He said on Tuesday that he would lift that limit.`\
-https://nytimes.com/live/2024/09/17/us/trump-harris-election/trump-tax-break
-
-**Instagram’s New Protections for Kids Don’t Go Far Enough**\
-`By Zeynep Tufekci`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/instagram-children-regulation
 
