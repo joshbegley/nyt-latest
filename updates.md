@@ -1,3 +1,19 @@
+**Skipping school, exam issues and family rows - Villa's 1982 European Cup final win through fans' eyes**\
+`Missed exams, drinks with scorer Peter Withe and sleeping in the park - fans recall their experience of Villa winning the European Cup`\
+https://nytimes.com/athletic/5759746/2024/09/17/aston-villa-european-cup-win-1982/
+
+**Postecoglou and Spurs can't afford to fritter away League Cup opportunity**\
+`There will be a temptation to try out some new players at Coventry - yet making wholesale changes feels fraught with risk`\
+https://nytimes.com/athletic/5763791/2024/09/17/spurs-league-cup-postecoglou/
+
+**Barnsley on Champions League opening night a reminder of where Man Utd must get back to**\
+`How strongly should Man Utd attack the Carabao Cup if returning to the Champions League is of greater financial reward?`\
+https://nytimes.com/athletic/5770967/2024/09/17/manchester-united-champions-league/
+
+**Carlos Mendoza pressing right buttons as Mets 'continue to find a way'**\
+`Using a deep bench and grinding away is the kind of thing the Mets have proved able to handle.`\
+https://nytimes.com/athletic/5772864/2024/09/17/carlos-mendoza-pressing-right-buttons-as-mets-continue-to-find-a-way/
+
 **Colwill is becoming Chelsea's untouchable figure at the back**\
 `Levi Colwill has firmly established himself on the left-side of Enzo Maresca's Chelsea defence`\
 https://nytimes.com/athletic/5770898/2024/09/17/levi-colwill-chelsea-defence-analysis/
