@@ -1,6 +1,10 @@
+**Man arrested for harassing and stalking UConn star Paige Bueckers**\
+`Bueckers was contacted via Instagram by the 40-year-old Oregon man who was arrested by Connecticut police.`\
+https://nytimes.com/athletic/5772733/2024/09/16/paige-bueckers-uconn-stalker-arrest/
+
 **Still Standing, So to Speak**\
 `Howard Neuthaler makes his New York Times Crossword debut.`\
-https://nytimes.com/2024/09/16/crosswords/daily-puzzle-2024-09-15.html
+https://nytimes.com/2024/09/16/crosswords/daily-puzzle-2024-09-17.html
 
 **Sean Combs Arrested in Manhattan After Grand Jury Indictment**\
 `The music mogul has been under mounting scrutiny since a 2023 lawsuit by his former girlfriend, Cassie, accused him of sex trafficking and years of abuse.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5772321/2024/09/16/bryce-young-benched-andy-dalton-
 **Mike Trout open to moving from CF after second meniscus tear**\
 `Trout, who's spent much of the last four years navigating different injuries, met with reporters for the first time since his re-injury.`\
 https://nytimes.com/athletic/5772476/2024/09/16/mike-trout-injury-update-angels/
-
-**Former OceanGate Employees Testify at Hearing on Titan Implosion**\
-`The Coast Guard’s first public hearing on OceanGate’s fatal Titan submersible accident revealed that the crew had sent a message saying, “All good here,” shortly before the vessel imploded.`\
-https://nytimes.com/video/us/100000009697453/titan-oceangate-hearings-safety.html
 

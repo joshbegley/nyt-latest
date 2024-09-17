@@ -1,3 +1,11 @@
+**Man arrested for harassing and stalking UConn star Paige Bueckers**\
+`Bueckers was contacted via Instagram by the 40-year-old Oregon man who was arrested by Connecticut police.`\
+https://nytimes.com/athletic/5772733/2024/09/16/paige-bueckers-uconn-stalker-arrest/
+
+**Still Standing, So to Speak**\
+`Howard Neuthaler makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/09/16/crosswords/daily-puzzle-2024-09-17.html
+
 **Still Standing, So to Speak**\
 `Howard Neuthaler makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/09/16/crosswords/daily-puzzle-2024-09-15.html
