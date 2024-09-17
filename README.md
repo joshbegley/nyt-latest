@@ -1,3 +1,7 @@
+**What we learned from Falcons-Eagles: 5 takeaways**\
+`Falcons QB Kirk Cousins is now 13-20 in primetime games.`\
+https://nytimes.com/athletic/5772708/2024/09/16/eagles-falcons-monday-night-football-score-takeaways/
+
 **Full Time: NWSL MVP race and Hope Solo's new Netflix doc**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5772673/2024/09/16/nwsl-mvp-race-netflix-hope-solo-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5772257/2024/09/16/jordan-chiles-bronze-swiss-feder
 **Patriots' Bentley expected to miss rest of season with torn pectoral muscle**\
 `Bentley sustained the injury in the team’s overtime loss to the Seattle Seahawks on Sunday.`\
 https://nytimes.com/athletic/5772486/2024/09/16/jawhaun-bentley-patriots-injury/
-
-**Vance says the left is to blame for the attempts on Trump’s life.**\
-`JD Vance, the Republican`\
-https://nytimes.com/live/2024/09/16/us/trump-shooting-news/vance-says-the-left-is-to-blame-for-the-attempts-on-trumps-life
 
