@@ -1,3 +1,7 @@
+**With rookies and roars, Detroit Tigers are showing anything is possible**\
+`After another dramatic victory, the Tigers are only 1 1/2 games out of the wild-card race.`\
+https://nytimes.com/athletic/5772927/2024/09/17/tigers-win-royals-rookies/
+
 **White Sox watch: History on hold? Winning streak reaches 3 games**\
 `The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
 https://nytimes.com/athletic/5734497/2024/09/17/white-sox-watch-most-losses-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5770722/2024/09/17/rodri-new-contract-manchester-ci
 **'I took the boos, then I scored the winner' - former Forest players on the East Midlands derby**\
 `It is over 2,500 days since Forest lost to Derby, but the local rivalry's absence from the fixture list in recent seasons is a shame...`\
 https://nytimes.com/athletic/5762583/2024/09/17/nottingham-forest-derby-county-east-midlands/
-
-**Arsenal's game-breaking goals have become a superpower Arteta can rely on**\
-`When a game is tight and Arsenal are straining to find the decisive moment, set plays - particularly corners - are proving a crucial asset`\
-https://nytimes.com/athletic/5768479/2024/09/17/arsenal-gamebreaking-goal-gabriel/
 
