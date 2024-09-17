@@ -1,3 +1,11 @@
+**Why Eric Adams Is Resisting Pressure to Oust Members of His Inner Circle**\
+`Mayor Adams has been loyal to longtime aides despite growing calls for them to resign. It is a trait he has shown through his career.`\
+https://nytimes.com/2024/09/17/nyregion/eric-adams-resignations-scandal.html
+
+**Until Saturday: Pac-12-Mountain West drama, plus Texas moves to No. 1**\
+`Welcome to Until Saturday, the five-star college football newsletter: How the Pac-12 expansion came together and what’s next.`\
+https://nytimes.com/athletic/5772190/2024/09/17/pac-12-expansion-mountain-west-conference-until-saturday/
+
 **California Passes Election ‘Deepfake’ Laws, Forcing Social Media Companies to Take Action**\
 `The state joins dozens of others in regulating the A.I. fakery in ways that could impact this year’s presidential race.`\
 https://nytimes.com/2024/09/17/technology/california-deepfakes-law-social-media-newsom.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/17/world/middleeast/hezbollah-pager-explosions-leban
 **Canucks' Dakota Joshua diagnosed with testicular cancer: 'I encourage men to get checked'**\
 `Vancouver Canucks forward Dakota Joshua won’t be available to open training camp, the club announced on Tuesday.`\
 https://nytimes.com/athletic/5775167/2024/09/17/vancouver-canucks-dakota-joshua-testicular-cancer/
-
-**49ers mailbag: Jacob Cowing to the rescue? Envisioning a trade with the Dolphins**\
-`Among this week's questions: What's the backup plan at center and why was the 49ers defense so porous on third down late in Sunday's game?`\
-https://nytimes.com/athletic/5774653/2024/09/17/49ers-mailbag-rams-week-3/
-
-**Ohio Woman Says She Regrets Sharing False Rumor About Haitians on Facebook**\
-`The woman has since deleted the post claiming that one of her Haitian neighbors might have taken a neighbor’s cat. But it took on a life of its own.`\
-https://nytimes.com/2024/09/17/us/springfield-haitians-pets-facebook-rumor.html
 
