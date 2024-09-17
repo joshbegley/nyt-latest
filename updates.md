@@ -1,3 +1,7 @@
+**MLB sues DraftKings, FanDuel on image rights**\
+`The league argues that sports betting and fantasy sports companies are using images without permission. `\
+https://nytimes.com/athletic/5772737/2024/09/16/mlb-sues-draftkings-fanduel/
+
 **Ohio Governor Sending State Police to Springfield After Rash of Bomb Scares**\
 `After Donald J. Trump spread a debunked rumor about the city’s Haitian immigrants, schools have endured dozen of bomb threats.`\
 https://nytimes.com/2024/09/16/us/springfield-ohio-troopers-bomb-threats.html
