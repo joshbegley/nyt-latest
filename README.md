@@ -15,7 +15,7 @@ https://nytimes.com/2024/09/17/arts/derek-boshier-dead.html
 https://nytimes.com/2024/09/17/world/middleeast/israel-hezbollah-pagers-explosives.html
 
 **Minnesota Timberwolves executive VP Sachin Gupta set to join Chelsea**\
-`Sachin Gupta, the executive vice president of basketball operations at the Minnesota Timberwolves, is set to leave the NBA franchise to take up a role at Chelsea.`\
+`Sachin Gupta, executive vice president of basketball operations for the Minnesota Timberwolves, is set to leave the NBA franchise to take a role at Chelsea.`\
 https://nytimes.com/athletic/5774909/2024/09/17/chelsea-sachin-gupta-minnesota-timberwolves/
 
 **Pret A Manger**\
