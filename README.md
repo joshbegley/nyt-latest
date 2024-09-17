@@ -1,3 +1,7 @@
+**White Sox watch: History on hold? Winning streak reaches 3 games**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/17/white-sox-watch-most-losses-season/
+
 **Can Ranger Suárez recapture some of the Phillies' trust before October?**\
 `Suárez only has two more starts in the regular season to convince the Phillies he deserves a longer leash than in previous postseasons.`\
 https://nytimes.com/athletic/5772872/2024/09/17/ranger-suarez-phillies-postseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762583/2024/09/17/nottingham-forest-derby-county-e
 **Arsenal's game-breaking goals have become a superpower Arteta can rely on**\
 `When a game is tight and Arsenal are straining to find the decisive moment, set plays - particularly corners - are proving a crucial asset`\
 https://nytimes.com/athletic/5768479/2024/09/17/arsenal-gamebreaking-goal-gabriel/
-
-**Carlos Mendoza pressing right buttons as Mets 'continue to find a way'**\
-`Using a deep bench and grinding away is the kind of thing the Mets have proved able to handle.`\
-https://nytimes.com/athletic/5772864/2024/09/17/carlos-mendoza-pressing-right-buttons-as-mets-continue-to-find-a-way/
 
