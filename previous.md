@@ -1,3 +1,15 @@
+**Ex-Officer Testifies Against His Former Colleagues in Tyre Nichols’s Death**\
+`A former Memphis officer said he had been angry about a lack of arrests even before he began a pursuit that led to a fatal beating.`\
+https://nytimes.com/2024/09/17/us/tyre-nichols-emmitt-martin-memphis-police.html
+
+**‘Show Me Your Hands!’: Officer Recalls 2002 Standoff With Trump Suspect**\
+`Ryan W. Routh, who was arrested following an apparent attempted assassination of former President Donald J. Trump, was convicted on an explosives charge after the standoff in North Carolina.`\
+https://nytimes.com/2024/09/17/us/politics/trump-assassination-suspect-routh-police.html
+
+**Trump suggests restoring the state and local tax break he once limited.**\
+`Former President Donald J. Trump’s 2017 tax law capped the state and local tax deduction at $10,000. He said on Tuesday that he would lift that limit.`\
+https://nytimes.com/live/2024/09/17/us/trump-harris-election/trump-tax-break
+
 **Instagram’s New Protections for Kids Don’t Go Far Enough**\
 `By Zeynep Tufekci`\
 https://nytimes.com/live/2024/09/11/opinion/thepoint/instagram-children-regulation
@@ -10,8 +22,8 @@ https://nytimes.com/2024/09/17/us/politics/us-steel-nippon-steel-deal.html
 `In Los Angeles, top prospects got a chance to prove themselves, and others got an opportunity to shine.`\
 https://nytimes.com/athletic/5773100/2024/09/17/prospects-sharks-utah-ducks-kings-kraken/
 
-**Violence Swirling Around Trump Prompts International Alarm**\
-`After a second apparent assassination attempt, there is widespread concern that the November election will not end well and that American democracy has frayed to the breaking point.`\
+**Second Apparent Assassination Attempt on Trump Prompts Alarm Abroad**\
+`There is widespread concern that the November election will not end well and that American democracy has frayed to the breaking point.`\
 https://nytimes.com/2024/09/17/world/trump-assassination-attempt-world-reaction.html
 
 **A Wildly Popular New York Taqueria Nails Its Sequel**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/17/realestate/wedding-registry-house-fund.html
 **Harris Condemns Trump’s ‘Hateful’ Claims About Springfield, Ohio**\
 `“This is exhausting, and it’s harmful,” Kamala Harris said during an interview. “And it’s hateful, and grounded in some age-old stuff that we should not have the tolerance for.”`\
 https://nytimes.com/2024/09/17/us/politics/harris-trump-haitian-migrants-pets.html
-
-**NFL best bets Week 3: Fading Malik Willis again, believing in the Patriots and more**\
-`Austin Mock and his model like the Patriots, Titans and Commanders among other best bets for NFL Week 3.`\
-https://nytimes.com/athletic/5774332/2024/09/17/nfl-best-bets-week-3-patriots-titans/
-
-**Technology That Helped Catch Trump Suspect Is Proliferating**\
-`Use of license plate readers, which helped the authorities swiftly track down the man they said appeared to planning to shoot former President Donald Trump, is spreading across the country.`\
-https://nytimes.com/2024/09/17/us/politics/trump-assassination-suspect-technology.html
-
-**Tiny Love Stories: ‘This Quiet, Handsome Cowboy Would Never Notice’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/09/17/style/tiny-modern-love-stories-this-quiet-handsome-cowboy-would-never-notice.html
 

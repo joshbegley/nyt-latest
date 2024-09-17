@@ -1,3 +1,19 @@
+**Ex-Officer Testifies Against His Former Colleagues in Tyre Nichols’s Death**\
+`A former Memphis officer said he had been angry about a lack of arrests even before he began a pursuit that led to a fatal beating.`\
+https://nytimes.com/2024/09/17/us/tyre-nichols-emmitt-martin-memphis-police.html
+
+**‘Show Me Your Hands!’: Officer Recalls 2002 Standoff With Trump Suspect**\
+`Ryan W. Routh, who was arrested following an apparent attempted assassination of former President Donald J. Trump, was convicted on an explosives charge after the standoff in North Carolina.`\
+https://nytimes.com/2024/09/17/us/politics/trump-assassination-suspect-routh-police.html
+
+**Trump suggests restoring the state and local tax break he once limited.**\
+`Former President Donald J. Trump’s 2017 tax law capped the state and local tax deduction at $10,000. He said on Tuesday that he would lift that limit.`\
+https://nytimes.com/live/2024/09/17/us/trump-harris-election/trump-tax-break
+
+**Second Apparent Assassination Attempt on Trump Prompts Alarm Abroad**\
+`There is widespread concern that the November election will not end well and that American democracy has frayed to the breaking point.`\
+https://nytimes.com/2024/09/17/world/trump-assassination-attempt-world-reaction.html
+
 **Instagram’s New Protections for Kids Don’t Go Far Enough**\
 `By Zeynep Tufekci`\
 https://nytimes.com/live/2024/09/11/opinion/thepoint/instagram-children-regulation
