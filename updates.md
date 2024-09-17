@@ -1,3 +1,7 @@
+**Champions League Briefing - Kane and Bayern's records, Endrick's impact and two outrageous goals**\
+`There were 28 goals, including two stunners, across six matches and so many talking points as Europe's top-tier club competition returned`\
+https://nytimes.com/athletic/5774524/2024/09/17/champions-league-kane-bayern-endrick-gyokeres/
+
 **F A O Schwarz**\
 `News about F A O Schwarz. Commentary and archival information about F A O Schwarz from The New York Times.`\
 https://nytimes.com/topic/f-a-o-schwarz

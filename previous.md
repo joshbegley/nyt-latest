@@ -1,3 +1,7 @@
+**Champions League Briefing - Kane and Bayern's records, Endrick's impact and two outrageous goals**\
+`There were 28 goals, including two stunners, across six matches and so many talking points as Europe's top-tier club competition returned`\
+https://nytimes.com/athletic/5774524/2024/09/17/champions-league-kane-bayern-endrick-gyokeres/
+
 **F A O Schwarz**\
 `News about F A O Schwarz. Commentary and archival information about F A O Schwarz from The New York Times.`\
 https://nytimes.com/topic/f-a-o-schwarz
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/us/springfield-haitians-pets-facebook-rumor.html
 **Assn for a Better New York**\
 `News about Assn for a Better New York. Commentary and archival information about Assn for a Better New York from The New York Times.`\
 https://nytimes.com/topic/assn-for-a-better-new-york
-
-**Real Madrid's Endrick 'a very special player' - Ancelotti**\
-`Carlo Ancelotti has hailed Real Madrid striker Endrick as a &#8220;very special player&#8221; after scoring on his Champions League debut.`\
-https://nytimes.com/athletic/5775147/2024/09/17/endrick-real-madrid-carlo-ancelotti/
 
