@@ -1,3 +1,7 @@
+**Guardians' rallies topple Twins, who see wild-card advantage shrink again**\
+`After blowing a 3-0 lead, Minnesota leads Detroit by only 1 1/2 games and 2 games over Seattle for the final wild-card spot.`\
+https://nytimes.com/athletic/5773049/2024/09/17/twins-wild-card-advantage-dwindles/
+
 **Prime Tire: McLaren leads the F1 standings. Sure. Plus, judging the big Baku crash**\
 `Welcome to Prime Tire, The Athletic’s twice-weekly F1 newsletter.`\
 https://nytimes.com/athletic/5771283/2024/09/17/f1-mclaren-red-bull-perez-sainz-crash-azerbaijan-prime-tire/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5772927/2024/09/17/tigers-win-royals-rookies/
 **White Sox watch: History on hold? Winning streak reaches 3 games**\
 `The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
 https://nytimes.com/athletic/5734497/2024/09/17/white-sox-watch-most-losses-season/
-
-**Can Ranger Suárez recapture some of the Phillies' trust before October?**\
-`Suárez only has two more starts in the regular season to convince the Phillies he deserves a longer leash than in previous postseasons.`\
-https://nytimes.com/athletic/5772872/2024/09/17/ranger-suarez-phillies-postseason/
 

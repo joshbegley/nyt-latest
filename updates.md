@@ -1,3 +1,7 @@
+**Guardians' rallies topple Twins, who see wild-card advantage shrink again**\
+`After blowing a 3-0 lead, Minnesota leads Detroit by only 1 1/2 games and 2 games over Seattle for the final wild-card spot.`\
+https://nytimes.com/athletic/5773049/2024/09/17/twins-wild-card-advantage-dwindles/
+
 **Prime Tire: McLaren leads the F1 standings. Sure. Plus, judging the big Baku crash**\
 `Welcome to Prime Tire, The Athletic’s twice-weekly F1 newsletter.`\
 https://nytimes.com/athletic/5771283/2024/09/17/f1-mclaren-red-bull-perez-sainz-crash-azerbaijan-prime-tire/
