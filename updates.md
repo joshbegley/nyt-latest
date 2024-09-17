@@ -1,3 +1,15 @@
+**Liverpool fan dies in road traffic accident before Milan game**\
+`Liverpool have paid tribute to supporter Philip Dooley, who died in a road traffic accident in Bergamo on Tuesday morning.`\
+https://nytimes.com/athletic/5774003/2024/09/17/liverpool-fan-death-italy/
+
+**Five Five-Star Weeknight Dishes**\
+`Weeknight winners I turn to again and again: kimchi fried rice, hot honey shrimp, and pasta alla vodka.`\
+https://nytimes.com/2024/09/17/dining/five-five-star-weeknight-dishes.html
+
+**Union for a Popular Movement**\
+`News about Union for a Popular Movement. Commentary and archival information about Union for a Popular Movement from The New York Times.`\
+https://nytimes.com/topic/union-for-a-popular-movement
+
 **Tennessee includes 10 percent 'talent fee' in 2025 football ticket prices**\
 `The fee, along with an initial 4.5 percent average increase, means Vols fans will pay 14.5 percent more on average for tickets next season.`\
 https://nytimes.com/athletic/5773813/2024/09/17/tennessee-football-ticket-prices-talent-fee/

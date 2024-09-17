@@ -1,3 +1,15 @@
+**Liverpool fan dies in road traffic accident before Milan game**\
+`Liverpool have paid tribute to supporter Philip Dooley, who died in a road traffic accident in Bergamo on Tuesday morning.`\
+https://nytimes.com/athletic/5774003/2024/09/17/liverpool-fan-death-italy/
+
+**Five Five-Star Weeknight Dishes**\
+`Weeknight winners I turn to again and again: kimchi fried rice, hot honey shrimp, and pasta alla vodka.`\
+https://nytimes.com/2024/09/17/dining/five-five-star-weeknight-dishes.html
+
+**Union for a Popular Movement**\
+`News about Union for a Popular Movement. Commentary and archival information about Union for a Popular Movement from The New York Times.`\
+https://nytimes.com/topic/union-for-a-popular-movement
+
 **Tennessee includes 10 percent 'talent fee' in 2025 football ticket prices**\
 `The fee, along with an initial 4.5 percent average increase, means Vols fans will pay 14.5 percent more on average for tickets next season.`\
 https://nytimes.com/athletic/5773813/2024/09/17/tennessee-football-ticket-prices-talent-fee/
@@ -25,16 +37,4 @@ https://nytimes.com/topic/n-w-a-music-group
 **Former governors implore their successors to certify the November election results.**\
 `By Nick Corasaniti`\
 https://nytimes.com/live/2024/09/17/us/trump-harris-election/former-governors-implore-their-successors-to-certify-the-november-election-results
-
-**Can Milan’s Craziest Fashion Brand Grow Up?**\
-`Sunnei, at 10, has become one of the hot shows of Milan Fashion Week. Can its founders move on to the next level?`\
-https://nytimes.com/2024/09/17/style/sunnei-milan-fashion-week.html
-
-**How a Video Game Shows the Imaginative Potential of Picture Books**\
-`In the Plucky Squire, a young hero fights a villainous wizard to become “the master of his storybook,” says Jamie Turner, the co-director of the game.`\
-https://nytimes.com/2024/09/17/arts/the-plucky-squire-book-game.html
-
-**Happy Anniversary to Us!**\
-`To celebrate: a collection of our 50 greatest recipes, according to you, our New York Times Cooking family.`\
-https://nytimes.com/2024/09/17/happy-anniversary-to-us.html
 
