@@ -1,3 +1,11 @@
+**Former governors implore their successors to certify the November election results.**\
+`By Nick Corasaniti`\
+https://nytimes.com/live/2024/09/17/us/trump-harris-election/former-governors-implore-their-successors-to-certify-the-november-election-results
+
+**Can Milan’s Craziest Fashion Brand Grow Up?**\
+`Sunnei, at 10, has become one of the hot shows of Milan Fashion Week. Can its founders move on to the next level?`\
+https://nytimes.com/2024/09/17/style/sunnei-milan-fashion-week.html
+
 **How a Video Game Shows the Imaginative Potential of Picture Books**\
 `In the Plucky Squire, a young hero fights a villainous wizard to become “the master of his storybook,” says Jamie Turner, the co-director of the game.`\
 https://nytimes.com/2024/09/17/arts/the-plucky-squire-book-game.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5773549/2024/09/17/super-bowl-2025-odds-week-3/
 **Bills All-22: How Buffalo's defense sticks to a rare plan to counteract explosive offenses**\
 `The Bills kept the Dolphins in check despite key injuries.`\
 https://nytimes.com/athletic/5773631/2024/09/17/buffalo-bills-film-breakdown-miami-dolphins/
-
-**OceanGate Founder Crashed a Submersible Years Before Titan Disaster**\
-`At a U.S. Coast Guard hearing, a pilot described a disastrous trip in which OceanGate’s founder got a submersible stuck under a shipwreck and then threw the controls at his head.`\
-https://nytimes.com/2024/09/17/us/titan-submersible-coast-guard-hearing.html
-
-**The Windup: Consequential instant classic in KC**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5773768/2024/09/17/royals-tigers-series-mlb-standings-the-windup/
 
