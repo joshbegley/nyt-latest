@@ -1,3 +1,27 @@
+**Critics Question N.Y.P.D. Shootings After Fare Evasion Stop in Subway**\
+`Officers fired during a clash with a man carrying a knife who was first stopped for fare evasion, police said. Two bystanders, an officer and the man were struck.`\
+https://nytimes.com/2024/09/17/nyregion/nypd-shooting-brooklyn-subway.html
+
+**Celebrity Endorsements**\
+`Do celebrities have an obligation to speak out about politics since they have such large platforms?`\
+https://nytimes.com/2024/09/17/learning/celebrity-endorsements.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/17/crosswords/spelling-bee-forum.html
+
+**A Fungus Decimated American Bats. Now Scientists Are Fighting Back.**\
+`Researchers have found several promising ways to thwart the fungus, which causes the deadly white-nose syndrome in bats.`\
+https://nytimes.com/2024/09/17/science/bats-white-nose-syndrome.html
+
+**Mapping the Decline of Eelgrass Along Maine’s Coast**\
+`Researchers are studying the role of eelgrass beds for carbon capture and the health of the food habit for a variety of species.`\
+https://nytimes.com/2024/09/17/science/eelgrass-climate-change-maine.html
+
+**Pelosi Blamed New York for House Losses. Hochul Wants Another Chance.**\
+`The New York governor has rebuilt the state Democratic Party to help flip key swing seats in November. But can she stanch her own political bleeding?`\
+https://nytimes.com/2024/09/17/nyregion/hochul-democrats-house-election.html
+
 **Guardians' rallies topple Twins, who see wild-card advantage shrink again**\
 `After blowing a 3-0 lead, Minnesota leads Detroit by only 1 1/2 games and 2 games over Seattle for the final wild-card spot.`\
 https://nytimes.com/athletic/5773049/2024/09/17/twins-wild-card-advantage-dwindles/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/09/17/learning/word-of-the-day-infraction.html
 **Kirk Cousins' stunning game-winning drive shows why the Falcons paid him**\
 `The Atlanta Falcons beat the Philadelphia Eagles 22-21 on "Monday Night Football" in the seventh-most improbable comeback since 2016.`\
 https://nytimes.com/athletic/5773010/2024/09/17/kirk-cousins-monday-night-football-falcons-win/
-
-**Kimmel Takes Stock of Trump’s Rhetoric After Suspect’s Arrest**\
-`Jimmy Kimmel said the former president, who blamed Democrats for “highly inflammatory language,” was himself “not a calming influence.”`\
-https://nytimes.com/2024/09/17/arts/television/jimmy-kimmel-trump.html
-
-**Meta Plans to Ban the Russian TV Network RT From Its Apps**\
-`The Facebook and Instagram owner said it would bar Russian media outlets including RT, which the U.S. has accused of acting as an intelligence arm.`\
-https://nytimes.com/2024/09/17/technology/meta-rt-russian-tv.html
-
-**‘I Think We Are Owed More From Harris’: 14 Undecided, Young Voters on the Race**\
-`The focus group’s participants weigh Trump and Harris in the wake of the Sept. 10 debate.`\
-https://nytimes.com/interactive/2024/09/17/opinion/politics/17focus-group-persuadable-voters-2.html
-
-**Three Braves takeaways: RISP woes, Marcell Ozuna's power outage and more**\
-`The Braves rank among the worst teams in the big leagues when it comes to hitting with runners in scoring position.`\
-https://nytimes.com/athletic/5772844/2024/09/17/braves-marcell-ozuna-ozzie-albies/
-
-**With rookies and roars, Detroit Tigers are showing anything is possible**\
-`After another dramatic victory, the Tigers are only 1 1/2 games out of the wild-card race.`\
-https://nytimes.com/athletic/5772927/2024/09/17/tigers-win-royals-rookies/
-
-**White Sox watch: History on hold? Winning streak reaches 3 games**\
-`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
-https://nytimes.com/athletic/5734497/2024/09/17/white-sox-watch-most-losses-season/
 
