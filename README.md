@@ -1,3 +1,7 @@
+**Instagram, Facing Pressure Over Child Safety Online, Unveils Sweeping Changes**\
+`The app, which is popular with teenagers, introduced new settings and features aimed at addressing inappropriate online contact and content, and improving sleep for users under 18.`\
+https://nytimes.com/2024/09/17/technology/instagram-teens-safety-privacy-changes.html
+
 **Bank Mergers May Get Tougher to Do**\
 `The F.D.I.C. is expected to vote on more stringent new rules for takeovers, while the Justice Department plans to overhaul its own guidelines.`\
 https://nytimes.com/2024/09/17/business/dealbook/fdic-bank-mergers-rules.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5772020/2024/09/17/mlb-playoff-contenders-2024-anal
 **Javonte Williams' lackluster play only part of rough start for Broncos' run game**\
 `Denver's fourth-year RB has been among the league's least efficient ball carriers through two weeks, but he's not the only one struggling.`\
 https://nytimes.com/athletic/5770958/2024/09/17/javonte-williams-broncos-run-game/
-
-**Slot likes a settled XI but he must master the art of squad rotation**\
-`Liverpool did not look in peak condition against Nottingham Forest and will need to rotate during a busy period if they are to be successful`\
-https://nytimes.com/athletic/5771467/2024/09/17/arne-slot-liverpool-rotation/
 
