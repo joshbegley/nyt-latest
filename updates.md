@@ -1,3 +1,7 @@
+**Instagram’s New Protections for Kids Don’t Go Far Enough**\
+`By Zeynep Tufekci`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/instagram-children-regulation
+
 **Committee for a Responsible Federal Budget**\
 `News about Committee for a Responsible Federal Budget. Commentary and archival information about Committee for a Responsible Federal Budget from The New York Times.`\
 https://nytimes.com/topic/committee-for-a-responsible-federal-budget
