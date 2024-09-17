@@ -1,3 +1,7 @@
+**Banking Deal Oversight Expected to Get a Major Revamp**\
+`The F.D.I.C. and the Justice Department are likely to change how they evaluate mergers and acquisitions in the banking industry.`\
+https://nytimes.com/2024/09/17/business/dealbook/banking-oversight-fdic-justice-department.html
+
 **Ex Liverpool & Newcastle striker Carroll close to joining fourth tier Bordeaux**\
 `Former Liverpool and Newcastle United striker Andy Carroll is close to joining French fourth tier side FC Girondins de Bordeaux.`\
 https://nytimes.com/athletic/5773166/2024/09/17/andy-carroll-bordeaux-transfer/
