@@ -1,3 +1,7 @@
+**N.Y.C. Schools Chancellor Seeks to Project Stability as Inquiries Swirl**\
+`David C. Banks, whose phone was seized during an investigation related to his brother, largely avoided discussing his current circumstances in his annual State of Our Schools speech.`\
+https://nytimes.com/2024/09/17/nyregion/david-banks-adams-investigation.html
+
 **Wednesday Briefing: Exploding Pagers Kill at Least 9 in Lebanon**\
 `Plus, China’s “silver economy.”`\
 https://nytimes.com/2024/09/17/briefing/pager-attack-ads-instagram.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774891/2024/09/17/live-qa-week-3-fantasy-football-
 **Trumpism, Stalinism and the Tariff Debate**\
 `The spirit of Trofim Lysenko comes to trade policy.`\
 https://nytimes.com/2024/09/17/opinion/trump-tariffs-economy.html
-
-**Prairie View A&M University**\
-`News about Prairie View A&M University. Commentary and archival information about Prairie View A&M University from The New York Times.`\
-https://nytimes.com/topic/prairie-view-am-university
 
