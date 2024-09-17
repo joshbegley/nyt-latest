@@ -1,3 +1,7 @@
+**Instagram, Facing Pressure Over Child Safety Online, Unveils Sweeping Changes**\
+`The app, which is popular with teenagers, introduced new settings and features aimed at addressing inappropriate online contact and content, and improving sleep for users under 18.`\
+https://nytimes.com/2024/09/17/technology/instagram-teens-safety-privacy-changes.html
+
 **Bank Mergers May Get Tougher to Do**\
 `The F.D.I.C. is expected to vote on more stringent new rules for takeovers, while the Justice Department plans to overhaul its own guidelines.`\
 https://nytimes.com/2024/09/17/business/dealbook/fdic-bank-mergers-rules.html
