@@ -2,7 +2,7 @@
 `A missing girl and reports of an erratic driver turned out to be related, with police officers in Ohio finding the girl safe, and enjoying a drink.`\
 https://nytimes.com/2024/09/17/style/ohio-girl-drives-target.html
 
-**The Briefing: Real Madrid 3 Stuttgart 1 - Mbappe scores on his big night but concerns for**\
+**Real Madrid 3 Stuttgart 1 - Mbappe scores on his big night but issues remain for Ancelotti**\
 `Real Madrid eventually secured victory, but Stuttgart made them work hard for the three points. Here we break down the action.`\
 https://nytimes.com/athletic/5770773/2024/09/17/real-madrid-mbappe-stuttgart/
 
