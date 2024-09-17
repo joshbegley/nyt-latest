@@ -1,3 +1,11 @@
+**Derek Boshier, British Pop Artist and Bowie Collaborator, Dies at 87**\
+`Starting in the early 1960s, he set himself apart from his contemporaries with paintings that critiqued the cultural dominance of the United States.`\
+https://nytimes.com/2024/09/17/arts/derek-boshier-dead.html
+
+**Israel Planted Explosives in Pagers Sold to Hezbollah, Officials Say**\
+`Small amounts of explosive were implanted in beepers that Hezbollah had ordered from a Taiwanese company, according to American and other officials briefed on the operation.`\
+https://nytimes.com/2024/09/17/world/middleeast/israel-hezbollah-pagers-explosives.html
+
 **Israel Planted Explosives in Pagers Sold to Hezbollah, Officials Say**\
 `Small amounts of explosive were implanted in beepers that Hezbollah had ordered from a Taiwanese company, according to American and other officials briefed on the operation.`\
 https://nytimes.com/2024/09/17/world/middleeast/israel-planted-explosives-in-pagers-sold-to-hezbollah-officials-say.html
