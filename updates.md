@@ -1,3 +1,11 @@
+**Tuesday's MLB odds, best bets: Projections for pitching matchups, playoffs**\
+`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
+https://nytimes.com/athletic/5771954/2024/09/17/mlb-odds-best-bets-projections-september-17/
+
+**Seven WSL players to watch out for as new season kicks off**\
+`An Arsenal signing inspired by Ronaldinho, a new Liverpool recruit who is tipped for the top and an Olympic star in her first season a pro`\
+https://nytimes.com/athletic/5770999/2024/09/17/wsl-players-to-watch/
+
 **Tuesday Briefing**\
 `A suspect was charged in the apparent shooting attempt of Donald Trump.`\
 https://nytimes.com/2024/09/17/briefing/trump-assassination-suspect.html

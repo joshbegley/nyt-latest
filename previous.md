@@ -1,3 +1,11 @@
+**Tuesday's MLB odds, best bets: Projections for pitching matchups, playoffs**\
+`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
+https://nytimes.com/athletic/5771954/2024/09/17/mlb-odds-best-bets-projections-september-17/
+
+**Seven WSL players to watch out for as new season kicks off**\
+`An Arsenal signing inspired by Ronaldinho, a new Liverpool recruit who is tipped for the top and an Olympic star in her first season a pro`\
+https://nytimes.com/athletic/5770999/2024/09/17/wsl-players-to-watch/
+
 **Tuesday Briefing**\
 `A suspect was charged in the apparent shooting attempt of Donald Trump.`\
 https://nytimes.com/2024/09/17/briefing/trump-assassination-suspect.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5772708/2024/09/16/eagles-falcons-monday-night-foot
 **Full Time: NWSL MVP race and Hope Solo's new Netflix doc**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5772673/2024/09/16/nwsl-mvp-race-netflix-hope-solo-full-time/
-
-**MLB sues DraftKings, FanDuel on image rights**\
-`The league argues that sports betting and fantasy sports companies are using images without permission. `\
-https://nytimes.com/athletic/5772737/2024/09/16/mlb-sues-draftkings-fanduel/
-
-**Ohio Governor Sending State Police to Springfield After Rash of Bomb Scares**\
-`After Donald J. Trump spread a debunked rumor about the city’s Haitian immigrants, schools have endured dozen of bomb threats.`\
-https://nytimes.com/2024/09/16/us/springfield-ohio-troopers-bomb-threats.html
 
