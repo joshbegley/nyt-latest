@@ -1,3 +1,7 @@
+**California Passes Election ‘Deepfake’ Laws, Forcing Social Media Companies to Take Action**\
+`The state joins dozens of others in regulating the A.I. fakery in ways that could impact this year’s presidential race.`\
+https://nytimes.com/2024/09/17/technology/california-deepfakes-law-social-media-newsom.html
+
 **Champions League Briefing - Kane and Bayern's records, Endrick's impact and two outrageous goals**\
 `There were 28 goals, including two stunners, across six matches and so many talking points as Europe's top-tier club competition returned`\
 https://nytimes.com/athletic/5774524/2024/09/17/champions-league-kane-bayern-endrick-gyokeres/
@@ -19,7 +23,7 @@ https://nytimes.com/2024/09/17/opinion/kamala-harris-election.html
 https://nytimes.com/2024/09/17/us/politics/trump-assassination-attempt-investigation.html
 
 **Exploding Pagers Targeting Hezbollah Kill 9 and Wound Thousands, Lebanon Says**\
-`The Iranian-backed militant group, which uses pagers to safeguard communications, blamed Israeli for the attack. Israel declined to comment.`\
+`The Iranian-backed militant group, which uses pagers to safeguard communications, blamed Israel for the attack. Israel declined to comment.`\
 https://nytimes.com/2024/09/17/world/middleeast/hezbollah-pager-explosions-lebanon.html
 
 **Canucks' Dakota Joshua diagnosed with testicular cancer: 'I encourage men to get checked'**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774653/2024/09/17/49ers-mailbag-rams-week-3/
 **Ohio Woman Says She Regrets Sharing False Rumor About Haitians on Facebook**\
 `The woman has since deleted the post claiming that one of her Haitian neighbors might have taken a neighbor’s cat. But it took on a life of its own.`\
 https://nytimes.com/2024/09/17/us/springfield-haitians-pets-facebook-rumor.html
-
-**Assn for a Better New York**\
-`News about Assn for a Better New York. Commentary and archival information about Assn for a Better New York from The New York Times.`\
-https://nytimes.com/topic/assn-for-a-better-new-york
 

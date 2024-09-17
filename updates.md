@@ -1,3 +1,11 @@
+**California Passes Election ‘Deepfake’ Laws, Forcing Social Media Companies to Take Action**\
+`The state joins dozens of others in regulating the A.I. fakery in ways that could impact this year’s presidential race.`\
+https://nytimes.com/2024/09/17/technology/california-deepfakes-law-social-media-newsom.html
+
+**Exploding Pagers Targeting Hezbollah Kill 9 and Wound Thousands, Lebanon Says**\
+`The Iranian-backed militant group, which uses pagers to safeguard communications, blamed Israel for the attack. Israel declined to comment.`\
+https://nytimes.com/2024/09/17/world/middleeast/hezbollah-pager-explosions-lebanon.html
+
 **49ers mailbag: Jacob Cowing to the rescue? Envisioning a trade with the Dolphins**\
 `Among this week's questions: What's the backup plan at center and why was the 49ers defense so porous on third down late in Sunday's game?`\
 https://nytimes.com/athletic/5774653/2024/09/17/49ers-mailbag-rams-week-3/
