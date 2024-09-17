@@ -1,5 +1,5 @@
 **Is Bryce Young's benching the beginning of the end for last year's No. 1 pick?**\
-`Andy Dalton will start the Panthers' Week 3 game and Dave Canales didn't frame the change as temporary or mental break for Bryce Young.`\
+`Andy Dalton will start the Panthers' Week 3 game, and Dave Canales didn't frame the change as temporary or a mental break for Young.`\
 https://nytimes.com/athletic/5772321/2024/09/16/bryce-young-benched-andy-dalton-panthers/
 
 **Mike Trout open to moving from CF after second meniscus tear**\
