@@ -36,5 +36,5 @@ https://nytimes.com/live/2024/09/17/us/trump-harris-election/trump-tax-break
 
 **Instagram’s New Protections for Kids Don’t Go Far Enough**\
 `By Zeynep Tufekci`\
-https://nytimes.com/live/2024/09/11/opinion/thepoint/instagram-children-regulation
+https://nytimes.com/live/2024/09/17/opinion/thepoint/instagram-children-regulation
 

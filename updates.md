@@ -1,3 +1,11 @@
+**Committee for a Responsible Federal Budget**\
+`News about Committee for a Responsible Federal Budget. Commentary and archival information about Committee for a Responsible Federal Budget from The New York Times.`\
+https://nytimes.com/topic/committee-for-a-responsible-federal-budget
+
+**Emery dedicates Villa's CL victory to Gary Shaw**\
+`Aston Villa head coach Unai Emery dedicated his side&#8217;s Champions League victory at Young Boys to the club&#8217;s former striker Gary Shaw, who died on Monday.`\
+https://nytimes.com/athletic/5774765/2024/09/17/aston-villa-emery-champions-league/
+
 **Caroline Ellison, Star Witness in FTX Case, Should Receive Lenient Sentence, Prosecutors Signal**\
 `Ms. Ellison, Sam Bankman-Fried’s former girlfriend and a top executive in his empire, is set to be sentenced on Sept. 24 for her role in the collapse of the crypto exchange.`\
 https://nytimes.com/2024/09/17/technology/caroline-ellison-ftx-sentence.html
