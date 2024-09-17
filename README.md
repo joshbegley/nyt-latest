@@ -1,3 +1,7 @@
+**OceanGate Founder Crashed a Submersible Years Before Titan Disaster**\
+`At a U.S. Coast Guard hearing, a pilot described a disastrous trip in which OceanGate’s founder got a submersible stuck under a shipwreck and then threw the controls at his head.`\
+https://nytimes.com/2024/09/17/us/titan-submersible-coast-guard-hearing.html
+
 **The Windup: Consequential instant classic in KC**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5773768/2024/09/17/royals-tigers-series-mlb-standings-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/well/mind/quitting-alcohol-social-life.html
 **‘American Crime Story’ Turns to Sports With Aaron Hernandez Saga**\
 `The buzzy FX series delves into the N.F.L. star who murdered a friend less than a year after playing in the Super Bowl.`\
 https://nytimes.com/2024/09/17/arts/television/aaron-hernandez-american-sports-story.html
-
-**New York Philharmonic Opens Its Season Amid Labor Talks and Troubles**\
-`The orchestra is working to negotiate a new contract with musicians, resolve a misconduct inquiry and hire a new chief executive.`\
-https://nytimes.com/2024/09/17/arts/music/new-york-philharmonic-labor-troubles.html
 
