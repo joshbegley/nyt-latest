@@ -1,3 +1,7 @@
+**Fan fined, handed stadium ban for online racist abuse of Vinicius Jr**\
+`A fan has been fined €60,001 (£50,686; $66,707) and banned from sports stadiums for two years by Spain&#8217;s Superior Sports Council (CSD) for racially abusing Real Madrid forward Vinicius Junior online.`\
+https://nytimes.com/athletic/5774318/2024/09/17/vinicius-junior-online-racism-real-madrid/
+
 **The House task force investigating the Trump rally shooting is also looking into the golf course episode.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt/trump-assassination-house-task-force
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/us/politics/tammy-duckworth-ivf-bill.html
 **D-3 school in Springfield, Ohio cancels athletic events for security reasons**\
 `Wittenberg has yet to specify the exact security concerns.`\
 https://nytimes.com/athletic/5773898/2024/09/17/wittenberg-university-athletics-security-cancel/
-
-**7 New Songs You Should Hear Now**\
-`Listen to tracks from FKA twigs, Soccer Mommy, Mustafa and more.`\
-https://nytimes.com/2024/09/17/arts/music/amplifier-newsletter-fka-twigs-soccer-mommy.html
 
