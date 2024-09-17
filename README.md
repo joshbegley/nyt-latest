@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/09/17/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris to Sit for Interview With Black Journalists**\
+`Vice President Kamala Harris will speak in Philadelphia with the group that hosted a combative interview with former President Donald J. Trump. Both tickets are on the trail, with Mr. Trump holding a town hall and the vice-presidential nominees crisscrossing battlegrounds.`\
+https://nytimes.com/live/2024/09/17/us/trump-harris-election
+
 **Instagram, Facing Pressure Over Child Safety Online, Unveils Sweeping Changes**\
 `The app, which is popular with teenagers, introduced new settings and features aimed at addressing inappropriate online contact and content, and improving sleep for users under 18.`\
 https://nytimes.com/2024/09/17/technology/instagram-teens-safety-privacy-changes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5773164/2024/09/17/champions-league-rise-brady-beck
 **Cardinals takeaways: What to watch for in the final homestand of 2024**\
 `The Cardinals fell short of their standards for the second straight year, and attendance figures suggest fans are sending a message. `\
 https://nytimes.com/athletic/5772307/2024/09/17/cardinals-takeaways-what-to-watch-for-in-the-final-homestand-of-2024/
-
-**Who is each MLB playoff contender's most indispensable 'under-the-radar' player? Execs weigh in**\
-`Who is the most underrated, yet indispensable player on each of the postseason contenders? What do their managers and execs say about them?`\
-https://nytimes.com/athletic/5772020/2024/09/17/mlb-playoff-contenders-2024-analysis/
-
-**Javonte Williams' lackluster play only part of rough start for Broncos' run game**\
-`Denver's fourth-year RB has been among the league's least efficient ball carriers through two weeks, but he's not the only one struggling.`\
-https://nytimes.com/athletic/5770958/2024/09/17/javonte-williams-broncos-run-game/
 
