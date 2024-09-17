@@ -1,3 +1,7 @@
+**One-on-one with Canucks GM Patrik Allvin: 'We're not going to waste any time here'**\
+`Allvin discusses Thatcher Demko's status, the Canucks' elevated expectations, Brock Boeser's future and more.`\
+https://nytimes.com/athletic/5771939/2024/09/17/canucks-gm-patrik-allvin/
+
 **A rare Bjorn Borg interview: Saying goodbye to Laver Cup, retiring at 26 and watching his son Leo**\
 `Before his Laver Cup, Borg spoke about his post-tennis life, his son Leo, and which modern player reminds him most of himself...`\
 https://nytimes.com/athletic/5773226/2024/09/17/bjorn-borg-interview-laver-cup/
