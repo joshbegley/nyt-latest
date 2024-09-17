@@ -1,3 +1,7 @@
+**The House task force investigating the Trump rally shooting is also looking into the golf course episode.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt/trump-assassination-house-task-force
+
 **With Sandbags and Team Spirit, a Polish City Fought Off a Flood**\
 `Thousands of residents of Nysa, in southern Poland, formed a human chain overnight to pass each other sandbags, building a wall along a river embankment to keep the raging waters at bay.`\
 https://nytimes.com/2024/09/17/world/europe/floods-poland-boris-nysa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5773898/2024/09/17/wittenberg-university-athletics-
 **7 New Songs You Should Hear Now**\
 `Listen to tracks from FKA twigs, Soccer Mommy, Mustafa and more.`\
 https://nytimes.com/2024/09/17/arts/music/amplifier-newsletter-fka-twigs-soccer-mommy.html
-
-**The suspect was a Hawaii handyman eager to help, as long as no one complained.**\
-`By Yan Zhuang and Jill Cowan`\
-https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt/the-suspect-was-a-hawaii-handyman-eager-to-help-as-long-as-no-one-complained
 
