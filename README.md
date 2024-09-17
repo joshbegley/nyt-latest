@@ -1,3 +1,7 @@
+**Banking Deal Oversight Expected to Get a Major Revamp**\
+`The F.D.I.C. and the Justice Department are likely to change how they evaluate mergers and acquisitions in the banking industry.`\
+https://nytimes.com/2024/09/17/business/dealbook/banking-oversight-fdic-justice-department.html
+
 **Ex Liverpool & Newcastle striker Carroll close to joining fourth tier Bordeaux**\
 `Former Liverpool and Newcastle United striker Andy Carroll is close to joining French fourth tier side FC Girondins de Bordeaux.`\
 https://nytimes.com/athletic/5773166/2024/09/17/andy-carroll-bordeaux-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5771467/2024/09/17/arne-slot-liverpool-rotation/
 **Shinzawa: Why Jeremy Swayman’s megabucks pursuit has to wait**\
 `Swayman is looking for established-ace money, but while he's shown his upside as one of the NHL's top goalies, he hasn't yet been a No. 1.`\
 https://nytimes.com/athletic/5771518/2024/09/17/bruins-jeremy-swayman-negotiation/
-
-**Rookie Brock Bowers breaks out at vital time for struggling Raiders offense**\
-`The tight end came up big for the Raiders in their Week 2 win over the Ravens and appears to be developing a rapport with Gardner Minshew.`\
-https://nytimes.com/athletic/5771452/2024/09/17/brock-bowers-raiders-ravens-breakout/
 
