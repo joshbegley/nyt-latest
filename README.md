@@ -1,3 +1,7 @@
+**When David Beckham turned up to watch a League One game**\
+`He’s Lionel Messi’s boss.`\
+https://nytimes.com/athletic/5772048/2024/09/17/david-beckham-birmingham-city-wrexham-tom-brady/
+
 **Critics Question N.Y.P.D. Shootings After Fare Evasion Stop in Subway**\
 `Officers fired during a clash with a man carrying a knife who was first stopped for fare evasion, police said. Two bystanders, an officer and the man were struck.`\
 https://nytimes.com/2024/09/17/nyregion/nypd-shooting-brooklyn-subway.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5771283/2024/09/17/f1-mclaren-red-bull-perez-sainz-
 **Word of the Day: infraction**\
 `This word has appeared in 51 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/17/learning/word-of-the-day-infraction.html
-
-**Kirk Cousins' stunning game-winning drive shows why the Falcons paid him**\
-`The Atlanta Falcons beat the Philadelphia Eagles 22-21 on "Monday Night Football" in the seventh-most improbable comeback since 2016.`\
-https://nytimes.com/athletic/5773010/2024/09/17/kirk-cousins-monday-night-football-falcons-win/
 
