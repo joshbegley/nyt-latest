@@ -1,3 +1,7 @@
+**Bank Mergers May Get Tougher to Do**\
+`The F.D.I.C. is expected to vote on more stringent new rules for takeovers, while the Justice Department plans to overhaul its own guidelines.`\
+https://nytimes.com/2024/09/17/business/dealbook/fdic-bank-mergers-rules.html
+
 **Banking Deal Oversight Expected to Get a Major Revamp**\
 `The F.D.I.C. and the Justice Department are likely to change how they evaluate mergers and acquisitions in the banking industry.`\
 https://nytimes.com/2024/09/17/business/dealbook/banking-oversight-fdic-justice-department.html
