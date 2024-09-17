@@ -1,3 +1,7 @@
+**Full Time: NWSL MVP race and Hope Solo's new Netflix doc**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5772673/2024/09/16/nwsl-mvp-race-netflix-hope-solo-full-time/
+
 **MLB sues DraftKings, FanDuel on image rights**\
 `The league argues that sports betting and fantasy sports companies are using images without permission. `\
 https://nytimes.com/athletic/5772737/2024/09/16/mlb-sues-draftkings-fanduel/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5772486/2024/09/16/jawhaun-bentley-patriots-injury/
 **Vance says the left is to blame for the attempts on Trump’s life.**\
 `JD Vance, the Republican`\
 https://nytimes.com/live/2024/09/16/us/trump-shooting-news/vance-says-the-left-is-to-blame-for-the-attempts-on-trumps-life
-
-**There Might Be More Than One Way to Make a Planet**\
-`Astronomers have found evidence of a process that supports an alternative, more rapid approach to planetary formation, more top down than bottom up.`\
-https://nytimes.com/2024/09/16/science/planet-formation-top-down.html
 
