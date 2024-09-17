@@ -18,7 +18,7 @@ https://nytimes.com/2024/09/17/style/ohio-girl-drives-target.html
 `Real Madrid eventually secured victory, but Stuttgart made them work hard for the three points. Here we break down the action.`\
 https://nytimes.com/athletic/5770773/2024/09/17/real-madrid-mbappe-stuttgart/
 
-**The Briefing: AC Milan 1 Liverpool 3 - Gakpo stars as Slot's back four all contribute to impressive comeback**\
+**The Briefing: AC Milan 1 Liverpool 3 - Gakpo stars as Slot's back four inspire comeback**\
 `Our writers break down the key talking points from Liverpool's first Champions League game since March 2023`\
 https://nytimes.com/athletic/5770772/2024/09/17/ac-milan-liverpool-result-analysis/
 
