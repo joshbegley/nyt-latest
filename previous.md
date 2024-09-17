@@ -1,3 +1,7 @@
+**Caroline Ellison, Star Witness in FTX Case, Should Receive Lenient Sentence, Prosecutors Signal**\
+`Ms. Ellison, Sam Bankman-Fried’s former girlfriend and a top executive in his empire, is set to be sentenced on Sept. 24 for her role in the collapse of the crypto exchange.`\
+https://nytimes.com/2024/09/17/technology/caroline-ellison-ftx-sentence.html
+
 **Chiefs signing Kareem Hunt to practice squad**\
 `The Chiefs added Hunt with starting RB Isiah Pacheco expected to miss extended time with a leg injury.`\
 https://nytimes.com/athletic/5774635/2024/09/17/chiefs-sign-kareem-hunt/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/us/politics/us-steel-nippon-steel-deal.html
 **Ten prospects — aside from Macklin Celebrini — who helped themselves at Rookie Faceoff**\
 `In Los Angeles, top prospects got a chance to prove themselves, and others got an opportunity to shine.`\
 https://nytimes.com/athletic/5773100/2024/09/17/prospects-sharks-utah-ducks-kings-kraken/
-
-**Second Apparent Assassination Attempt on Trump Prompts Alarm Abroad**\
-`There is widespread concern that the November election will not end well and that American democracy has frayed to the breaking point.`\
-https://nytimes.com/2024/09/17/world/trump-assassination-attempt-world-reaction.html
 
