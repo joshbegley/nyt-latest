@@ -1,3 +1,7 @@
+**7 New Songs You Should Hear Now**\
+`Listen to tracks from FKA twigs, Soccer Mommy, Mustafa and more.`\
+https://nytimes.com/2024/09/17/arts/music/amplifier-newsletter-fka-twigs-soccer-mommy.html
+
 **The suspect was a Hawaii handyman eager to help, as long as no one complained.**\
 `By Yan Zhuang and Jill Cowan`\
 https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt/the-suspect-was-a-hawaii-handyman-eager-to-help-as-long-as-no-one-complained
