@@ -1,3 +1,7 @@
+**Kellogg’s Diner Lives On With Jackie Carnesi at the Helm**\
+`The co-owner of Miriam opens Rafael, Brass enlists Jeremiah Stone and Fabian von Hauske Valtierra, and more restaurant news.`\
+https://nytimes.com/2024/09/17/dining/nyc-restaurant-news.html
+
 **Weekly Student News Quiz: Presidential Debate, Emmy Awards, Marmosets**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/09/17/learning/17StudentNewsQuiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/arts/music/sean-combs-diddy-indicted.html
 **Here are the latest developments.**\
 `A Lebanese official said pagers belonging to Hezbollah militants had exploded, causing a large number of injuries.`\
 https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/here-are-the-latest-developments
-
-**Live Updates: Wireless Devices Explode Across Lebanon After Israel Warns Hezbollah**\
-`A Lebanese official said pagers belonging to Hezbollah militants had exploded, and the health minister said hundreds of people were injured. The Israeli military declined to comment.`\
-https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news
 
