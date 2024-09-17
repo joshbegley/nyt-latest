@@ -1,3 +1,11 @@
+**Sean Combs Arrested in Manhattan After Grand Jury Indictment**\
+`The music mogul has been under mounting scrutiny since a 2023 lawsuit by his former girlfriend, Cassie, accused him of sex trafficking and years of abuse.`\
+https://nytimes.com/2024/09/16/arts/music/sean-combs-diddy-indicted.html
+
+**Donald Trump Rolls Out His New Cryptocurrency Business**\
+`In a livestream, Mr. Trump formally introduced World Liberty Financial, a crypto venture led by a pair of digital currency enthusiasts with little experience running high-profile businesses.`\
+https://nytimes.com/2024/09/16/technology/trump-crypto-world-liberty-financial.html
+
 **Chiles takes appeal over Olympic bronze to Swiss court**\
 `Chiles' attorneys specifically asked for the previous ruling by the Court of Arbitration for Sport to be overturned.`\
 https://nytimes.com/athletic/5772257/2024/09/16/jordan-chiles-bronze-swiss-federal-tribunal-appeal/
