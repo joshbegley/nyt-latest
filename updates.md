@@ -1,3 +1,7 @@
+**With rookies and roars, Detroit Tigers are showing anything is possible**\
+`After another dramatic victory, the Tigers are only 1 1/2 games out of the wild-card race.`\
+https://nytimes.com/athletic/5772927/2024/09/17/tigers-win-royals-rookies/
+
 **White Sox watch: History on hold? Winning streak reaches 3 games**\
 `The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
 https://nytimes.com/athletic/5734497/2024/09/17/white-sox-watch-most-losses-season/
