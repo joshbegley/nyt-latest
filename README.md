@@ -1,3 +1,7 @@
+**Players 'close' to striking over schedule - Rodri**\
+`Manchester City midfielder Rodri says professional players are &#8220;close&#8221; to going on strike due to the growing number of matches in the football calendar.`\
+https://nytimes.com/athletic/5773405/2024/09/17/rodri-player-strike-man-city/
+
 **Postecoglou responds to 'I always wins things' criticism: 'I just stated a fact'**\
 `Ange Postecoglou says he was surprised by the reaction to his assertion that he &#8220;always wins things&#8221; in his second year in charge of a club.`\
 https://nytimes.com/athletic/5773447/2024/09/17/ange-postecoglou-tottenham-trophy-criticism/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/science/nasa-europa-clipper-radiation.html
 **Answering Bucks questions: Unlocking Giannis-Lillard pick-and-roll; best roster of Giannis era?**\
 `If the Bucks are relentless in attacking defenses and creating looks, they can make teams consistently pay for their decisions.`\
 https://nytimes.com/athletic/5765793/2024/09/17/bucks-giannis-lillard-mailbag/
-
-**After ‘a Treasure Hunt,’ a Cut-Up Masterpiece Returns to Venice**\
-`More than 200 years after a ceiling painted by the Tuscan artist Vasari was dismembered and sold on the antiquarian market, it is (almost) whole again.`\
-https://nytimes.com/2024/09/17/arts/design/vasari-ceiling-gallerie-dell-accademica.html
 
