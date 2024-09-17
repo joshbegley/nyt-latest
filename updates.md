@@ -1,3 +1,15 @@
+**Israel attacks central Gaza, and civil officials say at least four were killed.**\
+`By Hiba Yazbek and Anushka Patil`\
+https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/israel-attacks-central-gaza-and-civil-officials-say-at-least-four-were-killed
+
+**Esa Lindell to sign 5-year extension with Stars**\
+`The new deal carries a $5.25 million AAV and will take him through to the 2029-30 season.`\
+https://nytimes.com/athletic/5774188/2024/09/17/esa-lindell-extension-dallas-stars/
+
+**For Duckworth, Preserving I.V.F. Access Is Personal**\
+`The Democratic senator has long pressed to safeguard the fertility treatment she used to conceive her children, which has now been thrust into the political conversation.`\
+https://nytimes.com/2024/09/17/us/politics/tammy-duckworth-ivf-bill.html
+
 **For Duckworth, Preserving I.V.F. Access Is Personal**\
 `The Democratic senator has long pressed to safeguard the fertility treatment she used to conceive her children, which now has been thrust into the political conversation.`\
 https://nytimes.com/2024/09/17/us/politics/tammy-duckworth-ivf-bill.html

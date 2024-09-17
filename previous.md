@@ -1,5 +1,13 @@
+**Israel attacks central Gaza, and civil officials say at least four were killed.**\
+`By Hiba Yazbek and Anushka Patil`\
+https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/israel-attacks-central-gaza-and-civil-officials-say-at-least-four-were-killed
+
+**Esa Lindell to sign 5-year extension with Stars**\
+`The new deal carries a $5.25 million AAV and will take him through to the 2029-30 season.`\
+https://nytimes.com/athletic/5774188/2024/09/17/esa-lindell-extension-dallas-stars/
+
 **For Duckworth, Preserving I.V.F. Access Is Personal**\
-`The Democratic senator has long pressed to safeguard the fertility treatment she used to conceive her children, which now has been thrust into the political conversation.`\
+`The Democratic senator has long pressed to safeguard the fertility treatment she used to conceive her children, which has now been thrust into the political conversation.`\
 https://nytimes.com/2024/09/17/us/politics/tammy-duckworth-ivf-bill.html
 
 **D-3 school in Springfield, Ohio cancels athletic events for security reasons**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5774031/2024/09/17/oilers-offseason-moves-grade-202
 **Farley, James A, General Post Office (Manhattan, NY)**\
 `News about Farley, James A, General Post Office (Manhattan, NY). Commentary and archival information about Farley, James A, General Post Office (Manhattan, NY) from The New York Times.`\
 https://nytimes.com/topic/farley-james-a-general-post-office-manhattan-ny
-
-**Hezbollah started using paging devices more widely after Oct. 7, experts say.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/hezbollah-started-using-paging-devices-more-widely-after-oct-7-experts-say
-
-**Fantasy football market share report: Carson Steele, Ty Chandler among top Week 3 waiver wire targets**\
-`Michael Salfino runs the Week 2 workload numbers with an eye on this week's waiver wire targets, with Carson Steele emerging as the top add.`\
-https://nytimes.com/athletic/5773933/2024/09/17/fantasy-football-targets-touches-week-2-steele-chandler/
 
