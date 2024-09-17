@@ -1,3 +1,7 @@
+**When David Beckham turned up to watch a League One game**\
+`He’s Lionel Messi’s boss.`\
+https://nytimes.com/athletic/5772048/2024/09/17/david-beckham-birmingham-city-wrexham-tom-brady/
+
 **Critics Question N.Y.P.D. Shootings After Fare Evasion Stop in Subway**\
 `Officers fired during a clash with a man carrying a knife who was first stopped for fare evasion, police said. Two bystanders, an officer and the man were struck.`\
 https://nytimes.com/2024/09/17/nyregion/nypd-shooting-brooklyn-subway.html
