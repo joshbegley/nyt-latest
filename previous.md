@@ -1,3 +1,7 @@
+**Who do I drop? Ezekiel Elliott, DeAndre Hopkins and more fantasy football cuts ahead of Week 3**\
+`Gary Davenport identifies five players rostered in a majority of fantasy football leagues who can be kicked to the curb ahead of Week 3.`\
+https://nytimes.com/athletic/5773612/2024/09/17/fantasy-football-week-3-drops-elliott-hopkins-stafford/
+
 **How A.I., QAnon and Falsehoods Are Reshaping the Presidential Race**\
 `Three experts on social media and disinformation share their predictions for this year’s chaotic election.`\
 https://nytimes.com/2024/09/17/technology/election-ai-qanon-disinformation.html
@@ -33,8 +37,4 @@ https://nytimes.com/topic/students-for-a-democratic-society
 **$50 Billion in Aid to Ukraine Stalls Over Legal Questions**\
 `U.S. and European officials are struggling to honor their pledge to use Russian assets to aid Ukraine.`\
 https://nytimes.com/2024/09/17/business/ukraine-aid-g7-russian-assets.html
-
-**The Guardian in Talks to Sell U.K.’s Oldest Sunday Newspaper to Digital Start-Up**\
-`The Observer, first published in 1791, could be bought by Tortoise Media, an outlet founded by a British media veteran that began publishing in 2019.`\
-https://nytimes.com/2024/09/17/business/dealbook/guardian-observer-sale-tortoise.html
 

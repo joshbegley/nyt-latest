@@ -1,3 +1,7 @@
+**Who do I drop? Ezekiel Elliott, DeAndre Hopkins and more fantasy football cuts ahead of Week 3**\
+`Gary Davenport identifies five players rostered in a majority of fantasy football leagues who can be kicked to the curb ahead of Week 3.`\
+https://nytimes.com/athletic/5773612/2024/09/17/fantasy-football-week-3-drops-elliott-hopkins-stafford/
+
 **How A.I., QAnon and Falsehoods Are Reshaping the Presidential Race**\
 `Three experts on social media and disinformation share their predictions for this year’s chaotic election.`\
 https://nytimes.com/2024/09/17/technology/election-ai-qanon-disinformation.html
