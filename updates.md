@@ -1,3 +1,7 @@
+**Colts' All-Pro DT DeForest Buckner lands on IR**\
+`Buckner will miss at least the next four games. It's a huge blow to a Colts defense that's already been struggling in 2024. `\
+https://nytimes.com/athletic/5774895/2024/09/17/colts-deforest-buckner-ir-ankle-injury/
+
 **Sheriff Posts Video of 11-Year-Old Charged in Fake School Shooting Threat**\
 `Sheriff Mike Chitwood of Volusia County, Fla., said he was exasperated by children making dozens of fake school shooting threats. He has promised to name and post mug shots of every offender.`\
 https://nytimes.com/2024/09/17/us/florida-false-school-shootings-mugshots.html
