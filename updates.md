@@ -1,3 +1,11 @@
+**Tiny, Tasty Lizards Scuba-Dive for Their Survival**\
+`Almost every animal in the rainforest enjoys snacking on water anoles, but slippery skin and an ability to carry an air bubble underwater help them survive.`\
+https://nytimes.com/2024/09/17/science/scuba-dive-lizard-anole.html
+
+**Kamala Harris Hasn’t Yet Earned My Vote**\
+`It’s not enough to be “Not Trump.”`\
+https://nytimes.com/2024/09/17/opinion/kamala-harris-election.html
+
 **Exploding Pagers Targeting Hezbollah Kill 9 and Wound Thousands, Lebanon Says**\
 `The Iranian-backed militant group, which uses pagers to safeguard communications, blamed Israeli for the attack. Israel declined to comment.`\
 https://nytimes.com/2024/09/17/world/middleeast/hezbollah-pager-explosions-lebanon.html

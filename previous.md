@@ -1,3 +1,11 @@
+**Tiny, Tasty Lizards Scuba-Dive for Their Survival**\
+`Almost every animal in the rainforest enjoys snacking on water anoles, but slippery skin and an ability to carry an air bubble underwater help them survive.`\
+https://nytimes.com/2024/09/17/science/scuba-dive-lizard-anole.html
+
+**Kamala Harris Hasn’t Yet Earned My Vote**\
+`It’s not enough to be “Not Trump.”`\
+https://nytimes.com/2024/09/17/opinion/kamala-harris-election.html
+
 **Why the Story of the Golf Course Shooting Will Be Told Twice**\
 `Florida’s governor says a state investigation is needed because federal agencies can’t be trusted.`\
 https://nytimes.com/2024/09/17/us/politics/trump-assassination-attempt-investigation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5775147/2024/09/17/endrick-real-madrid-carlo-ancelo
 **The Harassment of Springfield Represents a Dangerous New Turn**\
 `The threats against the town are a warning by the MAGA movement to the nation.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/springfield-harassment-maga-trump
-
-**MVP, rookie of the year, coach of the year: Our experts take on NWSL's biggest awards**\
-`Who will win the league's top 2024 awards?`\
-https://nytimes.com/athletic/5774561/2024/09/17/nwsl-predictions-mvp-rookie-of-year-temwa-chawinga/
-
-**Danske Bank A/S**\
-`News about Danske Bank A/S. Commentary and archival information about Danske Bank A/S from The New York Times.`\
-https://nytimes.com/topic/danske-bank-as
 
