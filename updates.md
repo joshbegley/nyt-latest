@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Presidential Debate, Emmy Awards, Marmosets**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/09/17/learning/17StudentNewsQuiz.html
+
 **Here’s a look at some of the key events in the conflict in the Middle East.**\
 `By Anjana Sankar`\
 https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/heres-a-look-at-some-of-the-key-events-in-the-conflict-in-the-middle-east
