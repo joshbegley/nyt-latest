@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/09/17/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris to Sit for Interview With Black Journalists**\
+`Vice President Kamala Harris will speak in Philadelphia with the group that hosted a combative interview with former President Donald J. Trump. Both tickets are on the trail, with Mr. Trump holding a town hall and the vice-presidential nominees crisscrossing battlegrounds.`\
+https://nytimes.com/live/2024/09/17/us/trump-harris-election
+
 **Instagram, Facing Pressure Over Child Safety Online, Unveils Sweeping Changes**\
 `The app, which is popular with teenagers, introduced new settings and features aimed at addressing inappropriate online contact and content, and improving sleep for users under 18.`\
 https://nytimes.com/2024/09/17/technology/instagram-teens-safety-privacy-changes.html
