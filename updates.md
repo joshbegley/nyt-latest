@@ -1,3 +1,7 @@
+**Minnesota Timberwolves executive VP Sachin Gupta set to join Chelsea**\
+`Sachin Gupta, executive vice president of basketball operations for the Minnesota Timberwolves, is set to leave the NBA franchise to take a role at Chelsea.`\
+https://nytimes.com/athletic/5774909/2024/09/17/chelsea-sachin-gupta-minnesota-timberwolves/
+
 **Colts' All-Pro DT DeForest Buckner lands on IR**\
 `Buckner will miss at least the next four games. It's a huge blow to a Colts defense that's already been struggling in 2024. `\
 https://nytimes.com/athletic/5774895/2024/09/17/colts-deforest-buckner-ir-ankle-injury/
