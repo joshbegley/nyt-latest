@@ -1,3 +1,7 @@
+**Chiles takes appeal over Olympic bronze to Swiss court**\
+`Chiles' attorneys specifically asked for the previous ruling by the Court of Arbitration for Sport to be overturned.`\
+https://nytimes.com/athletic/5772257/2024/09/16/jordan-chiles-bronze-swiss-federal-tribunal-appeal/
+
 **Patriots' Bentley expected to miss rest of season with torn pectoral muscle**\
 `Bentley sustained the injury in the team’s overtime loss to the Seattle Seahawks on Sunday.`\
 https://nytimes.com/athletic/5772486/2024/09/16/jawhaun-bentley-patriots-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/us/politics/investigation-trump-assassination-att
 **Secret Service Admits Not Searching Golf Course Perimeter, Drawing New Scrutiny**\
 `The agency’s acting director, Ronald L. Rowe Jr., praised his agents’ actions but conceded that there was no sweep of the course at Donald Trump’s club that a gunman had staked out.`\
 https://nytimes.com/2024/09/16/us/politics/secret-service-scrutiny-trump.html
-
-**49ers' Deebo Samuel to miss 'a couple weeks' with calf injury**\
-`Samuel sustained a calf strain late in Sunday's 23-17 loss to the Vikings, coach Kyle Shanahan said Monday.`\
-https://nytimes.com/athletic/5772330/2024/09/16/deebo-samuel-49ers-calf-injury/
 
