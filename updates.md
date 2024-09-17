@@ -1,3 +1,11 @@
+**Bad Bunny and Karol G Are Most Nominated Artists for Latin Grammys**\
+`These streaming titans earned eight nods apiece for the 25th annual awards, although the Mexican American songwriter and producer Edgar Barrera received the most nominations overall, with nine.`\
+https://nytimes.com/2024/09/17/arts/music/latin-grammy-nominations-2024.html
+
+**Colorado Rockies to retire City Connect uniforms at season's end**\
+`If seeing uniforms in person is your thing, you have exactly one chance left to catch the Colorado Rockies' City Connect jerseys in action.`\
+https://nytimes.com/athletic/5773464/2024/09/17/colorado-rockies-city-connect-retire/
+
 **A $5 Billion NASA Mission Looked Doomed. Could Engineers Save It?**\
 `Weeks before Europa Clipper was to be shipped for launch, scientists discovered a potentially fatal flaw that might endanger the spacecraft’s ability to study an ocean moon of Jupiter.`\
 https://nytimes.com/2024/09/17/science/nasa-europa-clipper-radiation.html
