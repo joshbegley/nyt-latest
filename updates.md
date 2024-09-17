@@ -1,3 +1,7 @@
+**N.Y.C. Schools Chancellor Seeks to Project Stability as Inquiries Swirl**\
+`David C. Banks, whose phone was seized during an investigation related to his brother, largely avoided discussing his current circumstances in his annual State of Our Schools speech.`\
+https://nytimes.com/2024/09/17/nyregion/david-banks-adams-investigation.html
+
 **Wednesday Briefing: Exploding Pagers Kill at Least 9 in Lebanon**\
 `Plus, China’s “silver economy.”`\
 https://nytimes.com/2024/09/17/briefing/pager-attack-ads-instagram.html
