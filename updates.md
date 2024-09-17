@@ -1,3 +1,11 @@
+**Exploding Pagers Targeting Hezbollah Kill 8 and Wound Thousands, Lebanon Says**\
+`The Iranian-backed militant group, which uses pagers to safeguard communications, blamed Israeli for the attack. Israel declined to comment.`\
+https://nytimes.com/2024/09/17/world/middleeast/hezbollah-pager-explosions-lebanon.html
+
+**Canucks' Dakota Joshua diagnosed with testicular cancer: 'I encourage men to get checked'**\
+`Vancouver Canucks forward Dakota Joshua won’t be available to open training camp, the club announced on Tuesday.`\
+https://nytimes.com/athletic/5775167/2024/09/17/vancouver-canucks-dakota-joshua-testicular-cancer/
+
 **49ers mailbag: Jacob Cowing to the rescue? Envisioning a trade with the Dolphins**\
 `Among this week's questions: What's the backup plan at center and why was the 49ers' defense so porous on third down late in Sunday's game?`\
 https://nytimes.com/athletic/5774653/2024/09/17/49ers-mailbag-rams-week-3/
