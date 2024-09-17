@@ -1,3 +1,7 @@
+**OceanGate Founder Crashed a Submersible Years Before Titan Disaster**\
+`At a U.S. Coast Guard hearing, a pilot described a disastrous trip in which OceanGate’s founder got a submersible stuck under a shipwreck and then threw the controls at his head.`\
+https://nytimes.com/2024/09/17/us/titan-submersible-coast-guard-hearing.html
+
 **The Windup: Consequential instant classic in KC**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5773768/2024/09/17/royals-tigers-series-mlb-standings-the-windup/
