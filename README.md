@@ -1,3 +1,7 @@
+**Chiefs signing Kareem Hunt to practice squad**\
+`The Chiefs added Hunt with starting RB Isiah Pacheco expected to miss extended time with a leg injury.`\
+https://nytimes.com/athletic/5774635/2024/09/17/chiefs-sign-kareem-hunt/
+
 **Senate Republicans Block I.V.F. Protection Bill a Second Time, Breaking With Trump**\
 `Democrats brought up the measure again to highlight Republican opposition to abortion rights and make the case to voters that the G.O.P. stance threatens access to reproductive health care.`\
 https://nytimes.com/2024/09/17/us/politics/ivf-bill-senate-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5773100/2024/09/17/prospects-sharks-utah-ducks-king
 **Second Apparent Assassination Attempt on Trump Prompts Alarm Abroad**\
 `There is widespread concern that the November election will not end well and that American democracy has frayed to the breaking point.`\
 https://nytimes.com/2024/09/17/world/trump-assassination-attempt-world-reaction.html
-
-**A Wildly Popular New York Taqueria Nails Its Sequel**\
-`Carnitas Ramírez, the East Village sibling of a hit restaurant in Brooklyn, turns out tacos that hark back to the dish’s working-class roots.`\
-https://nytimes.com/2024/09/17/dining/carnitas-ramirez-restaurant-review.html
 
