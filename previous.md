@@ -1,3 +1,11 @@
+**Tennessee includes 10 percent 'talent fee' in 2025 football ticket prices**\
+`The fee, along with an initial 4.5 percent average increase, means Vols fans will pay 14.5 percent more on average for tickets next season.`\
+https://nytimes.com/athletic/5773813/2024/09/17/tennessee-football-ticket-prices-talent-fee/
+
+**Read the Indictment in the Sex Trafficking Case Against Sean Combs**\
+`Federal prosecutors issued an indictment against Sean Combs that accused the music mogul known as Diddy and Puff Daddy of running a criminal enterprise that included sex trafficking, forced labor and coercion and enticement to engage in prostitution.`\
+https://nytimes.com/interactive/2024/09/17/arts/music/sean-combs-diddy-indictment.html
+
 **Why baseball cards are still bigger than other sports cards**\
 `While the NFL and NBA have surpassed baseball in mainstream popularity, the balance in the trading card world is different `\
 https://nytimes.com/athletic/5773753/2024/09/17/baseball-cards-popularity-nfl-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/17/arts/the-plucky-squire-book-game.html
 **Happy Anniversary to Us!**\
 `To celebrate: a collection of our 50 greatest recipes, according to you, our New York Times Cooking family.`\
 https://nytimes.com/2024/09/17/happy-anniversary-to-us.html
-
-**Serie A (Italian Soccer League)**\
-`News about Serie A (Italian Soccer League). Commentary and archival information about Serie A (Italian Soccer League) from The New York Times.`\
-https://nytimes.com/topic/serie-a-italian-soccer-league
-
-**A Look at Hezbollah and What a Wider War Would Mean for Lebanon**\
-`Lebanon and Israel have repeatedly traded strikes since the Gaza war began in October, killing civilians and combatants in Lebanon and Israel.`\
-https://nytimes.com/2024/09/17/world/middleeast/israel-hezbollah-lebanon-war-impact.html
 
