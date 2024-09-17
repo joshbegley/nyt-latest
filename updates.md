@@ -1,3 +1,15 @@
+**The complex story of Brandon Williams: His Manchester United career is over and his future uncertain**\
+`Williams joined United at seven and was once described as the club's best left-back. At 24, he is without a club after his contract expired`\
+https://nytimes.com/athletic/5764645/2024/09/17/brandon-williams-manchester-united-future/
+
+**Inside CBS's Champions League coverage: 'Henry gets asked about it more than Arsenal'**\
+`CBS's coverage of the Champions League has become a global sensation beyond its U.S. home`\
+https://nytimes.com/athletic/5770941/2024/09/17/cbs-champions-league-inside/
+
+**Thomas Muller: The eternal Raumdeuter**\
+`Muller has the stats. He has the trophies. He also has the longevity — all underpinned by an enduring authenticity and adaptability`\
+https://nytimes.com/athletic/5771145/2024/09/17/thomas-muller-bayern-munich-record-germany/
+
 **Tuesday's MLB odds, best bets: Projections for pitching matchups, playoffs**\
 `See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
 https://nytimes.com/athletic/5771954/2024/09/17/mlb-odds-best-bets-projections-september-17/
