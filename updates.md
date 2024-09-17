@@ -1,3 +1,11 @@
+**Iran’s ambassador to Lebanon is injured in the apparent attack, state media reports.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/irans-ambassador-to-lebanon-is-injured-in-the-apparent-attack-state-media-reports
+
+**Secret Service Told Trump It Needs to Bolster Security if He Keeps Golfing**\
+`The agency’s acting director, Ronald L. Rowe Jr., met with Donald J. Trump on Monday in the aftermath of the apparent assassination attempt on Sunday.`\
+https://nytimes.com/2024/09/17/us/politics/trump-secret-service-golf.html
+
 **Israel attacks central Gaza, and civil officials say at least four were killed.**\
 `By Hiba Yazbek and Anushka Patil`\
 https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/israel-attacks-central-gaza-and-civil-officials-say-at-least-four-were-killed

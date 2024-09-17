@@ -1,3 +1,11 @@
+**Iran’s ambassador to Lebanon is injured in the apparent attack, state media reports.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/irans-ambassador-to-lebanon-is-injured-in-the-apparent-attack-state-media-reports
+
+**Secret Service Told Trump It Needs to Bolster Security if He Keeps Golfing**\
+`The agency’s acting director, Ronald L. Rowe Jr., met with Donald J. Trump on Monday in the aftermath of the apparent assassination attempt on Sunday.`\
+https://nytimes.com/2024/09/17/us/politics/trump-secret-service-golf.html
+
 **Israel attacks central Gaza, and civil officials say at least four were killed.**\
 `By Hiba Yazbek and Anushka Patil`\
 https://nytimes.com/live/2024/09/17/world/israel-hamas-war-news/israel-attacks-central-gaza-and-civil-officials-say-at-least-four-were-killed
@@ -29,12 +37,4 @@ https://nytimes.com/video/nyregion/100000009699054/sean-combs-indictment.html
 **Golf mailbag: Submit a question for Brody Miller now**\
 `<p>A fantastic Solheim Cup just ended.`\
 https://nytimes.com/athletic/5774183/2024/09/17/golf-mailbag-submit-a-question-for-brody-miller-now/
-
-**Oilers offseason report card: Grading all of management’s summer moves**\
-`Here’s an audit of every move the Oilers made pertaining to the NHL roster since the end of last season.`\
-https://nytimes.com/athletic/5774031/2024/09/17/oilers-offseason-moves-grade-2024/
-
-**Farley, James A, General Post Office (Manhattan, NY)**\
-`News about Farley, James A, General Post Office (Manhattan, NY). Commentary and archival information about Farley, James A, General Post Office (Manhattan, NY) from The New York Times.`\
-https://nytimes.com/topic/farley-james-a-general-post-office-manhattan-ny
 
