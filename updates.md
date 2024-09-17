@@ -1,3 +1,7 @@
+**Meta Plans to Ban the Russian TV Network RT From Its Apps**\
+`The Facebook and Instagram owner said it would bar Russian media outlets including RT, which the U.S. has accused of acting as an intelligence arm.`\
+https://nytimes.com/2024/09/17/technology/meta-rt-russian-tv.html
+
 **‘I Think We Are Owed More From Harris’: 14 Undecided, Young Voters on the Race**\
 `The focus group’s participants weigh Trump and Harris in the wake of the Sept. 10 debate.`\
 https://nytimes.com/interactive/2024/09/17/opinion/politics/17focus-group-persuadable-voters-2.html
