@@ -1,4 +1,8 @@
-**Man arrested for harassing and stalking UConn star Paige Bueckers**\
+**Ohio Governor Sending State Police to Springfield After Rash of Bomb Scares**\
+`After Donald J. Trump spread a debunked rumor about the city’s Haitian immigrants, schools have endured dozen of bomb threats.`\
+https://nytimes.com/2024/09/16/us/springfield-ohio-troopers-bomb-threats.html
+
+**Man accused of harassing and stalking UConn star Paige Bueckers**\
 `Bueckers was contacted via Instagram by the 40-year-old Oregon man who was arrested by Connecticut police.`\
 https://nytimes.com/athletic/5772733/2024/09/16/paige-bueckers-uconn-stalker-arrest/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/16/science/planet-formation-top-down.html
 **Is Bryce Young's benching the beginning of the end for last year's No. 1 pick?**\
 `Andy Dalton will start the Panthers' Week 3 game, and Dave Canales didn't frame the change as temporary or a mental break for Young.`\
 https://nytimes.com/athletic/5772321/2024/09/16/bryce-young-benched-andy-dalton-panthers/
-
-**Mike Trout open to moving from CF after second meniscus tear**\
-`Trout, who's spent much of the last four years navigating different injuries, met with reporters for the first time since his re-injury.`\
-https://nytimes.com/athletic/5772476/2024/09/16/mike-trout-injury-update-angels/
 
