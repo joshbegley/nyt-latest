@@ -1,3 +1,7 @@
+**7 New Songs You Should Hear Now**\
+`Listen to tracks from FKA twigs, Soccer Mommy, Mustafa and more.`\
+https://nytimes.com/2024/09/17/arts/music/amplifier-newsletter-fka-twigs-soccer-mommy.html
+
 **The suspect was a Hawaii handyman eager to help, as long as no one complained.**\
 `By Yan Zhuang and Jill Cowan`\
 https://nytimes.com/live/2024/09/17/us/trump-assassination-attempt/the-suspect-was-a-hawaii-handyman-eager-to-help-as-long-as-no-one-complained
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774012/2024/09/17/steelers-justin-fields-russell-w
 **Liverpool fan dies in road traffic accident before Milan game**\
 `Liverpool have paid tribute to supporter Philip Dooley, who died in a road traffic accident in Bergamo on Tuesday morning.`\
 https://nytimes.com/athletic/5774003/2024/09/17/liverpool-fan-death-italy/
-
-**Five Five-Star Weeknight Dishes**\
-`Weeknight winners I turn to again and again: kimchi fried rice, hot honey shrimp, and pasta alla vodka.`\
-https://nytimes.com/2024/09/17/dining/five-five-star-weeknight-dishes.html
 
