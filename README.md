@@ -1,3 +1,7 @@
+**Sheriff Posts Video of 11-Year-Old Charged in Fake School Shooting Threat**\
+`Sheriff Mike Chitwood of Volusia County, Fla., said he was exasperated by children making dozens of fake school shooting threats. He has promised to name and post mug shots of every offender.`\
+https://nytimes.com/2024/09/17/us/florida-false-school-shootings-mugshots.html
+
 **Derek Boshier, British Pop Artist and Bowie Collaborator, Dies at 87**\
 `Starting in the early 1960s, he set himself apart from his contemporaries with paintings that critiqued the cultural dominance of the United States.`\
 https://nytimes.com/2024/09/17/arts/derek-boshier-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/us/yale-princeton-duke-asian-students-affirmative
 **For Presidents, Golf Is a Refuge. For the Secret Service, It Can Be a Headache**\
 `Sitting and former presidents must be mindful of when and where they play. Ronald Reagan largely gave up the game after a man took hostages while he was at Augusta.`\
 https://nytimes.com/2024/09/17/us/politics/trump-ronald-reagan-golf-secret-service.html
-
-**A Trip to Target Caused a Stir. Why? The Driver Was 8.**\
-`A missing girl and reports of an erratic driver turned out to be related, with police officers in Ohio finding the girl safe, and enjoying a drink.`\
-https://nytimes.com/2024/09/17/style/ohio-girl-drives-target.html
 
