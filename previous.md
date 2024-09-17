@@ -1,3 +1,7 @@
+**‘Sirocco and the Kingdom of Winds’ Review: Flights of Fantasy**\
+`Two sisters get transported to a new world and transformed into cats in this whimsical and thoughtful animated feature.`\
+https://nytimes.com/2024/09/17/movies/sirocco-and-the-kingdom-of-winds-review.html
+
 **Who do I drop? Ezekiel Elliott, DeAndre Hopkins and more fantasy football cuts ahead of Week 3**\
 `Gary Davenport identifies five players rostered in a majority of fantasy football leagues who can be kicked to the curb ahead of Week 3.`\
 https://nytimes.com/athletic/5773612/2024/09/17/fantasy-football-week-3-drops-elliott-hopkins-stafford/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5773651/2024/09/17/fermin-lopez-injury-barcelona/
 **Students for a Democratic Society**\
 `News about Students for a Democratic Society. Commentary and archival information about Students for a Democratic Society from The New York Times.`\
 https://nytimes.com/topic/students-for-a-democratic-society
-
-**$50 Billion in Aid to Ukraine Stalls Over Legal Questions**\
-`U.S. and European officials are struggling to honor their pledge to use Russian assets to aid Ukraine.`\
-https://nytimes.com/2024/09/17/business/ukraine-aid-g7-russian-assets.html
 

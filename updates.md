@@ -1,3 +1,7 @@
+**‘Sirocco and the Kingdom of Winds’ Review: Flights of Fantasy**\
+`Two sisters get transported to a new world and transformed into cats in this whimsical and thoughtful animated feature.`\
+https://nytimes.com/2024/09/17/movies/sirocco-and-the-kingdom-of-winds-review.html
+
 **Who do I drop? Ezekiel Elliott, DeAndre Hopkins and more fantasy football cuts ahead of Week 3**\
 `Gary Davenport identifies five players rostered in a majority of fantasy football leagues who can be kicked to the curb ahead of Week 3.`\
 https://nytimes.com/athletic/5773612/2024/09/17/fantasy-football-week-3-drops-elliott-hopkins-stafford/
