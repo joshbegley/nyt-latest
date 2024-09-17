@@ -1,3 +1,11 @@
+**A $5 Billion NASA Mission Looked Doomed. Could Engineers Save It?**\
+`Weeks before Europa Clipper was to be shipped for launch, scientists discovered a potentially fatal flaw that might endanger the spacecraft’s ability to study an ocean moon of Jupiter.`\
+https://nytimes.com/2024/09/17/science/nasa-europa-clipper-radiation.html
+
+**Answering Bucks questions: Unlocking Giannis-Lillard pick-and-roll; best roster of Giannis era?**\
+`If the Bucks are relentless in attacking defenses and creating looks, they can make teams consistently pay for their decisions.`\
+https://nytimes.com/athletic/5765793/2024/09/17/bucks-giannis-lillard-mailbag/
+
 **After ‘a Treasure Hunt,’ a Cut-Up Masterpiece Returns to Venice**\
 `More than 200 years after a ceiling painted by the Tuscan artist Vasari was dismembered and sold on the antiquarian market, it is (almost) whole again.`\
 https://nytimes.com/2024/09/17/arts/design/vasari-ceiling-gallerie-dell-accademica.html
