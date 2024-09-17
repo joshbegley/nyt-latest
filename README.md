@@ -1,3 +1,11 @@
+**A Trip to Target Caused a Stir. Why? The Driver Was 8.**\
+`A missing girl and reports of an erratic driver turned out to be related, with police officers in Ohio finding the girl safe, and enjoying a drink.`\
+https://nytimes.com/2024/09/17/style/ohio-girl-drives-target.html
+
+**The Briefing: Real Madrid 3 Stuttgart 1 - Mbappe scores on his big night but concerns for**\
+`Real Madrid eventually secured victory, but Stuttgart made them work hard for the three points. Here we break down the action.`\
+https://nytimes.com/athletic/5770773/2024/09/17/real-madrid-mbappe-stuttgart/
+
 **The Briefing: AC Milan 1 Liverpool 3 - Gakpo stars as Slot's back four all contribute to impressive comeback**\
 `Our writers break down the key talking points from Liverpool's first Champions League game since March 2023`\
 https://nytimes.com/athletic/5770772/2024/09/17/ac-milan-liverpool-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/topic/committee-for-a-responsible-federal-budget
 **Emery dedicates Villa's CL victory to Gary Shaw**\
 `Aston Villa head coach Unai Emery dedicated his side&#8217;s Champions League victory at Young Boys to the club&#8217;s former striker Gary Shaw, who died on Monday.`\
 https://nytimes.com/athletic/5774765/2024/09/17/aston-villa-emery-champions-league/
-
-**Caroline Ellison, Star Witness in FTX Case, Should Receive Lenient Sentence, Prosecutors Signal**\
-`Ms. Ellison, Sam Bankman-Fried’s former girlfriend and a top executive in his empire, is set to be sentenced on Sept. 24 for her role in the collapse of the crypto exchange.`\
-https://nytimes.com/2024/09/17/technology/caroline-ellison-ftx-sentence.html
-
-**Chiefs signing Kareem Hunt to practice squad**\
-`The Chiefs added Hunt with starting RB Isiah Pacheco expected to miss extended time with a leg injury.`\
-https://nytimes.com/athletic/5774635/2024/09/17/chiefs-sign-kareem-hunt/
 
