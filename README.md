@@ -1,3 +1,7 @@
+**Senate Republicans Block I.V.F. Protection Bill a Second Time, Breaking With Trump**\
+`Democrats brought up the measure again to highlight Republican opposition to abortion rights and make the case to voters that the G.O.P. stance threatens access to reproductive health care.`\
+https://nytimes.com/2024/09/17/us/politics/ivf-bill-senate-vote.html
+
 **We fact-checked Kamala Harris’s N.A.B.J. appearance.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/09/17/us/trump-harris-election/we-fact-checked-kamala-harriss-nabj-appearance
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/world/trump-assassination-attempt-world-reaction.
 **A Wildly Popular New York Taqueria Nails Its Sequel**\
 `Carnitas Ramírez, the East Village sibling of a hit restaurant in Brooklyn, turns out tacos that hark back to the dish’s working-class roots.`\
 https://nytimes.com/2024/09/17/dining/carnitas-ramirez-restaurant-review.html
-
-**Did You Ask Your Wedding Guests to Help You Buy a Home? We Want to Know.**\
-`Forget espresso machines and new silverware. Did you put a down payment fund on your wedding registry? Are you planning to do so?`\
-https://nytimes.com/2024/09/17/realestate/wedding-registry-house-fund.html
 
