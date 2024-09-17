@@ -1,3 +1,15 @@
+**How A.I., QAnon and Falsehoods Are Reshaping the Presidential Race**\
+`Three experts on social media and disinformation share their predictions for this year’s chaotic election.`\
+https://nytimes.com/2024/09/17/technology/election-ai-qanon-disinformation.html
+
+**Tracking Tropical Storm Pulasan**\
+`See the likely path and wind arrival times for Pulasan.`\
+https://nytimes.com/interactive/2024/09/17/weather/pulasan-map-path-tracker.html
+
+**Learning to Connect With Friends — Without Alcohol**\
+`Quitting drinking was the easy part. Figuring out how to be myself was harder.`\
+https://nytimes.com/2024/09/17/well/mind/quitting-alcohol-social-life.html
+
 **‘American Crime Story’ Turns to Sports With Aaron Hernandez Saga**\
 `The buzzy FX series delves into the N.F.L. star who murdered a friend less than a year after playing in the Super Bowl.`\
 https://nytimes.com/2024/09/17/arts/television/aaron-hernandez-american-sports-story.html
