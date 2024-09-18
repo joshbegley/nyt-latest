@@ -1,3 +1,15 @@
+**Israel’s Pager Attack Has No Clear Strategic Goal, Analysts Say**\
+`By targeting so many pagers at the same time, Israel demonstrated technical prowess. But its long-term intent is unclear.`\
+https://nytimes.com/2024/09/18/world/middleeast/israel-hezbollah-pager-attack.html
+
+**Russia Seizes Eastern Town as Ukraine Says It Hit a Big Ammunition Depot**\
+`The capture of Ukrainsk underscored Russia’s steady advances in the Donetsk region. Ukraine is trying to counter with strikes on Russian military infrastructure.`\
+https://nytimes.com/2024/09/18/world/europe/ukraine-russia-strikes.html
+
+**Gianpiero Lambiase promoted as part of Red Bull F1 restructure**\
+`Max Verstappen’s Formula One race engineer, Gianpiero Lambiase, has been promoted as part of a restructure within Red Bull Racing following the departure of sporting director Jonathan Wheatley.`\
+https://nytimes.com/athletic/5775935/2024/09/18/gianpiero-lambiase-red-bull-formula-one/
+
 **Kashmiris Are Voting Again. But Do They Have a Voice?**\
 `An election that began on Wednesday will restore some of the self-rule India took away in 2019. But a lasting chill has fallen over Kashmir.`\
 https://nytimes.com/2024/09/18/world/asia/kashmir-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5775888/2024/09/18/oleksandr-usyk-detained-poland/
 **The Man Behind the End of Roe v. Wade Has Big Plans for America**\
 `In the world of political fund-raising, there is hard money, soft money, dark money — and Leonard Leo money.`\
 https://nytimes.com/2024/09/18/opinion/leonard-leo-fundraising-supreme-court-irs.html
-
-**Far From Ohio, Haitian Americans Feel the Sting of Threats in Springfield**\
-`They charged Donald J. Trump and JD Vance, who spread baseless rumors that Haitians in an Ohio city were eating pets, with imperiling their community for political gain.`\
-https://nytimes.com/2024/09/18/us/haitian-americans-springfield-ohio-reaction.html
-
-**What Happens in Springfield Won’t Stay in Springfield**\
-`When you start talking about people “poisoning the blood of our country,” this is where you end up. And it’s not over.`\
-https://nytimes.com/2024/09/18/opinion/trump-vance-springfield-charlottesville-haitians.html
-
-**From Domino's delivery to the NFL: How Keion White became a breakout star for the Patriots**\
-`With four sacks through two games, White is one of the NFL's breakout stars this season. But his road to this point was a winding one.`\
-https://nytimes.com/athletic/5774152/2024/09/18/keion-white-patriots-breakout-star/
 
