@@ -1,3 +1,7 @@
+**Liberty clinch No. 1 seed in WNBA playoffs; Lynx nab No. 2**\
+`This is the first time New York claimed the No. 1 seed since the 2015 WNBA playoffs.`\
+https://nytimes.com/athletic/5775146/2024/09/17/liberty-lynx-wnba-playoff-seeds/
+
 **School Workers’ Families Took Disney Trip Meant for Homeless Students**\
 `New York City school employees took their children or grandchildren to Disney World and other places through a program intended for homeless students, investigators found.`\
 https://nytimes.com/2024/09/17/nyregion/ny-schools-disney-homeless-students.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5772190/2024/09/17/pac-12-expansion-mountain-west-c
 **California Passes Election ‘Deepfake’ Laws, Forcing Social Media Companies to Take Action**\
 `The state joins dozens of others in regulating the A.I. fakery in ways that could impact this year’s presidential race.`\
 https://nytimes.com/2024/09/17/technology/california-deepfakes-law-social-media-newsom.html
-
-**Champions League Briefing - Kane and Bayern's records, Endrick's impact and two outrageous goals**\
-`There were 28 goals, including two stunners, across six matches and so many talking points as Europe's top-tier club competition returned`\
-https://nytimes.com/athletic/5774524/2024/09/17/champions-league-kane-bayern-endrick-gyokeres/
 
