@@ -1,3 +1,7 @@
+**10-Year-Old Student Is Stabbed Near Japanese School in China**\
+`The child was wounded and a 44-year-old man was in custody, the police said. Other Japanese schools in China warned parents and students to be cautious.`\
+https://nytimes.com/2024/09/18/world/asia/child-stabbed-japan-china.html
+
 **Five under-the-radar prospects in the Cubs' system**\
 `The Cubs have plenty of top-100 prospects, but they have some hidden gems too, including Christian Franklin and Brett Bateman.`\
 https://nytimes.com/athletic/5775478/2024/09/18/underrated-cubs-prospects-christian-franklin-jonathon-long/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5773891/2024/09/18/devils-offseason-overhaul-markst
 **Blackhawks' 10 biggest training camp questions**\
 `Which prospects will make the team? Will they name a captain? And how the heck can we watch CHSN?`\
 https://nytimes.com/athletic/5773884/2024/09/18/blackhawks-training-camp-questions/
-
-**Israel’s Existential Threat From Within**\
-`The growing sway of far-right settlers in the West Bank has pushed Israeli politics toward a crisis.`\
-https://nytimes.com/2024/09/18/podcasts/the-daily/israel-extremism-west-bank.html
 
