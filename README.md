@@ -1,3 +1,23 @@
+**Farke's subs have long been a bone of contention at Leeds. This is the good and the bad**\
+`There has been significant criticism of Daniel Farke's substitutions throughout his time at Elland Road`\
+https://nytimes.com/athletic/5773243/2024/09/18/leeds-daniel-farke-substitutions/
+
+**Blue Jays takeaways: What Bo Bichette can accomplish with 2 weeks left in the season**\
+`Bichette doesn't have enough games left to save his season statistically, but a strong, healthy finish would have significant benefits.`\
+https://nytimes.com/athletic/5775588/2024/09/18/blue-jays-takeaways-bo-bichette-return/
+
+**An anatomy of Arsenal's away wins in 2024: Free-flowing thrashings to contained opportunism**\
+`How Arsenal have varied their tactics away from home to put Chelsea's Premier League records in their sights`\
+https://nytimes.com/athletic/5770649/2024/09/18/anatomy-of-arsenal-away-form-2024/
+
+**Pep Guardiola's 3,000 days in charge of Manchester City - the numbers behind the dominance**\
+`Which duo have combined for the most goals? Who has received the most red cards? All the stats behind the Spanish manager's Etihad reign`\
+https://nytimes.com/athletic/5774497/2024/09/18/guardiola-3000-days-man-city/
+
+**Newcastle United's Amy Andrews is in a hurry**\
+`From losing faith in academy football to distributing her own highlights package, Andrews has fought hard to get to where she is`\
+https://nytimes.com/athletic/5771656/2024/09/18/newcastle-united-women-amy-andrews-ambition/
+
 **Brittney Griner, Rickea Jackson ejected after Sparks-Mercury kerfuffle**\
 `Security rushed onto the court, as did Mercury coach Nate Tibbetts, to help separate the players.`\
 https://nytimes.com/athletic/5775611/2024/09/18/brittney-griner-rickea-jackson-ejections-wnba/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5771350/2024/09/18/kylian-mbappe-psg-squad-analysis
 **Fantasy trends and hidden gems: A goalie draft guide, from bona fide starters to the wild cards**\
 `Shayna Goldman guides you through the fantasy hockey goalie pool for 2024-25, pointing out the need-to-knows at the position.`\
 https://nytimes.com/athletic/5772911/2024/09/18/fantasy-trends-and-hidden-gems-from-bonafide-starters-to-the-wild-cards-a-draft-guide-for-goalies/
-
-**Second-phase shooting: How Premier League teams are finding joy from loose balls**\
-`The numbers that show first-time shots from the edge of the box are extremely effective`\
-https://nytimes.com/athletic/5768258/2024/09/18/long-shots-second-phase-corners/
-
-**Milan ultras losing faith and weaknesses are plain to see - a minor miracle is needed**\
-`After disappointment against Liverpool, Milan's most ardent supporters want players to show some balls - the derby is up next.`\
-https://nytimes.com/athletic/5774685/2024/09/18/milan-liverpool-champions-league/
-
-**Twins come together in win over Guardians behind all-around effort**\
-`From outstanding defense to a combined pitching effort to key hits from multiple players, the Twins topped the Guardians on the road.`\
-https://nytimes.com/athletic/5775574/2024/09/18/twins-team-victory-over-guardians/
-
-**Are Sonia Bompastor's new-look Chelsea ready for their WSL title defence?**\
-`Sonia Bompastor is the woman hired to fill Emma Hayes’ shoes at Chelsea - the David Moyes to Hayes’ Sir Alex Ferguson - but can she deliver?`\
-https://nytimes.com/athletic/5773423/2024/09/18/chelsea-pre-season-wsl-bompastor/
-
-**'He touched people's lives': Remembering Brian Clough, 20 years since his death**\
-`From his home town of Middlesbrough to the cities he put on the map and his final resting place, Daniel Taylor goes in search of 'Cloughie'`\
-https://nytimes.com/athletic/5771694/2024/09/18/remembering-brian-clough-20-years/
 
