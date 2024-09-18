@@ -1,3 +1,15 @@
+**What Visual Evidence Shows About Israel’s Pager Attacks**\
+`Some details of how the attacks unfolded are still a mystery. But initial imagery of the attacks on Tuesday and the explosive devices offers clues.`\
+https://nytimes.com/card/2024/09/18/world/middleeast/pager-explosions-hezbollah-israel
+
+**Harris Will Give Abortion Speech in Georgia After Deaths of Two Women**\
+`The vice president has said the stories of pregnant women who have been denied or have been unable to gain access to medical care show the consequences of former President Donald J. Trump’s actions.`\
+https://nytimes.com/2024/09/18/us/politics/harris-abortion-georgia.html
+
+**Odegaard out 'for a while' with ankle ligament injury - Mikel Arteta**\
+`Mikel Arteta has said that Arsenal captain Martin Odegaard will be out &#8220;for a while&#8221; after sustaining an ankle ligament injury.`\
+https://nytimes.com/athletic/5757753/2024/09/18/odegaard-arsenal-injury-update/
+
 **2 Dead in Moscow Shooting Tied to Russia’s Richest Woman**\
 `Tatyana V. Bakalchuk, the founder of Russia’s biggest online retailer, has been locked in a dispute with her estranged husband for months over the fate of her company.`\
 https://nytimes.com/2024/09/18/world/europe/russia-shooting-wildberries-bakalchuk.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5777003/2024/09/18/bruins-jeremy-swayman-training-c
 **What’s in Our Queue? Cycladic Art and More**\
 `I’m a culture reporter for The New York Times, where I investigate the art world’s relationship to money, politics and technology. Here are five things I’m obsessed with.`\
 https://nytimes.com/interactive/2024/09/18/arts/editors-recommendations-cycladic-art.html
-
-**Boeing to Begin Temporary Layoffs Because of Strike**\
-`The aerospace giant said it would temporarily lay off tens of thousands of employees to stem losses from a walkout by the machinists’ union.`\
-https://nytimes.com/2024/09/18/business/boeing-strike-layoffs.html
-
-**Frederick Schauer, Scholar Who Scrutinized Free Speech, Dies at 78**\
-`In more than a dozen books and several hundred articles, he devoted himself, as he once said, to “questioning the unquestionable or thinking the unthinkable.”`\
-https://nytimes.com/2024/09/18/us/frederick-schauer-dies.html
-
-**Hojlund, Mount return to Man Utd training after injuries**\
-`Rasmus Hojlund and Mason Mount have both returned to Manchester United first-team training after recovering from injuries.`\
-https://nytimes.com/athletic/5776987/2024/09/18/hojlund-mount-injuries-manchester-united/
 
