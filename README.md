@@ -1,3 +1,7 @@
+**Aces' Wilson passes Reese for single-season rebound mark**\
+`Wilson grabbed her 447th rebound in Tuesday night's win over the Storm to pass Angel Reese for the record.`\
+https://nytimes.com/athletic/5776341/2024/09/18/aja-wilson-wnba-rebounding-record/
+
 **What we're hearing about the Pac-12, AAC and Mountain West's next moves**\
 `We spoke with a dozen people involved in the discussions and no one sees an easy move, making it hard to predict realignment resolution.`\
 https://nytimes.com/athletic/5776229/2024/09/18/pac-12-aac-mountain-west-realignment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5775600/2024/09/18/nwsl-gotham-white-house-celebrat
 **When a Republican Governor Couldn’t Win on Abortion, He Tried to Cheat**\
 `When ‘states’ rights’ means subverting the will of the people.`\
 https://nytimes.com/2024/09/18/opinion/desantis-amendment-4-abortion.html
-
-**My Grandniece Was Thrown Out of Her House for Being Gay. What Can I Do?**\
-`Because of a family rift, the girl is unaware that she has an uncle in a 35-year same-sex relationship who wants to help. Is it possible to reach out without creating trouble?`\
-https://nytimes.com/2024/09/18/style/coming-out-family-members-support.html
 
