@@ -1,3 +1,7 @@
+**A look at the Lions' 28th-ranked red zone efficiency and how they can fix it**\
+`The numbers are bad but show promise.`\
+https://nytimes.com/athletic/5775100/2024/09/18/detroit-lions-red-zone-dan-campbell-jared-goff/
+
 **Breaking down the highest-scoring penalty shootout in English football history**\
 `Preston and Fulham played out a 16-15 penalty shootout in the Carabao Cup on Wednesday night`\
 https://nytimes.com/athletic/5775851/2024/09/18/penalty-shootout-highest-scoring-england/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5775788/2024/09/18/edmonton-oilers-training-camp-de
 **10 Blues training camp questions: Bannister's command, Dvorský's chances, Broberg's fit, more**\
 `The Blues open training camp on Thursday and we've got 10 questions facing the team before the puck drops for the 2024-25 season. `\
 https://nytimes.com/athletic/5774040/2024/09/18/blues-training-camp-questions/
-
-**Conor Gallagher exclusive: On feeling 'wanted and appreciated' at Atletico after Chelsea limbo**\
-`Gallagher's move from Chelsea to Atletico hung in the balance for weeks. Now, he's making the most of his time in the Spanish capital`\
-https://nytimes.com/athletic/5773872/2024/09/18/conor-gallagher-chelsea-atletico-interview/
 
