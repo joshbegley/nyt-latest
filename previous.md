@@ -1,3 +1,11 @@
+**Kashmiris Are Voting Again. But Do They Have a Voice?**\
+`An election that began on Wednesday will restore some of the self-rule India took away in 2019. But a lasting chill has fallen over Kashmir.`\
+https://nytimes.com/2024/09/18/world/asia/kashmir-election.html
+
+**Schillaci, former World Cup Golden Boot winner, dies aged 59**\
+`Former Italy and Juventus forward Salvatore Schillaci has died at the age of 59.`\
+https://nytimes.com/athletic/5775889/2024/09/18/salvatore-schillaci-dies/
+
 **Abused in Public Housing, Victims Often Face a Long Wait to Move**\
 `A 2013 provision to federal law was intended to ensure that domestic violence victims living in subsidized housing could move quickly to safer homes. But they often wait in fear.`\
 https://nytimes.com/2024/09/18/us/domestic-violence-victims-affordable-housing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/opinion/trump-vance-springfield-charlottesville-h
 **From Domino's delivery to the NFL: How Keion White became a breakout star for the Patriots**\
 `With four sacks through two games, White is one of the NFL's breakout stars this season. But his road to this point was a winding one.`\
 https://nytimes.com/athletic/5774152/2024/09/18/keion-white-patriots-breakout-star/
-
-**Alexandria Ocasio-Cortez and Tina Smith: Our Solution to the Housing Crisis**\
-`Instead of treating real estate as a commodity, we can underwrite the construction of millions of permanently affordable homes and apartments.`\
-https://nytimes.com/2024/09/18/opinion/aoc-tina-smith-housing.html
-
-**Falcons revel in their improbable comeback win but must turn the page quickly**\
-`Led by Bijan Robinson, the Falcons rushed for 152 yards on Monday night. Eagles coach Nick Sirianni said that helped stymie his pass rush.`\
-https://nytimes.com/athletic/5774998/2024/09/18/falcons-improbable-comeback-eagles/
 

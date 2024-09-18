@@ -1,3 +1,11 @@
+**Kashmiris Are Voting Again. But Do They Have a Voice?**\
+`An election that began on Wednesday will restore some of the self-rule India took away in 2019. But a lasting chill has fallen over Kashmir.`\
+https://nytimes.com/2024/09/18/world/asia/kashmir-election.html
+
+**Schillaci, former World Cup Golden Boot winner, dies aged 59**\
+`Former Italy and Juventus forward Salvatore Schillaci has died at the age of 59.`\
+https://nytimes.com/athletic/5775889/2024/09/18/salvatore-schillaci-dies/
+
 **Abused in Public Housing, Victims Often Face a Long Wait to Move**\
 `A 2013 provision to federal law was intended to ensure that domestic violence victims living in subsidized housing could move quickly to safer homes. But they often wait in fear.`\
 https://nytimes.com/2024/09/18/us/domestic-violence-victims-affordable-housing.html
