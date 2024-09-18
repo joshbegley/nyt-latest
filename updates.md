@@ -1,3 +1,7 @@
+**The Democrat in North Carolina’s governor’s race has rejected debating his Republican rival.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/09/18/us/trump-harris-election/the-democrat-in-north-carolinas-governors-race-has-rejected-debating-his-republican-rival
+
 **Young 'can still be a franchise quarterback'**\
 `Panthers get back to work with Bryce Young running the scout team and Andy Dalton as QB1.`\
 https://nytimes.com/athletic/5777526/2024/09/18/bryce-young-panthers-backup-qb-andy-dalton/

@@ -1,3 +1,7 @@
+**The Democrat in North Carolina’s governor’s race has rejected debating his Republican rival.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/09/18/us/trump-harris-election/the-democrat-in-north-carolinas-governors-race-has-rejected-debating-his-republican-rival
+
 **Young 'can still be a franchise quarterback'**\
 `Panthers get back to work with Bryce Young running the scout team and Andy Dalton as QB1.`\
 https://nytimes.com/athletic/5777526/2024/09/18/bryce-young-panthers-backup-qb-andy-dalton/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/briefing/fed-rate-cut-lebanon-hezbollah-harris-tr
 **Kyle Hendricks 'absolutely' intends to pitch next season**\
 `Hendricks, the only player remaining from the 2016 World Series team, wants to prolong a career that has exceeded the wildest expectations.`\
 https://nytimes.com/athletic/5777542/2024/09/18/kyle-hendricks-intends-to-pitch-in-2025/
-
-**Will Jordan Love play Sunday? Packers QB 'hopeful' to be back for Titans Sunday**\
-`Love returned to practice Wednesday for the first time since injuring his knee in Brazil against the Eagles.`\
-https://nytimes.com/athletic/5777514/2024/09/18/jordan-love-injury-packers-titans/
 
