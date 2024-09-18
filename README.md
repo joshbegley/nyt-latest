@@ -1,3 +1,7 @@
+**Johnston: Craig Berube sets the expectation as Maple Leafs camp opens — 'there’s got to be an identity'**\
+`The new Leafs coach is bringing a new tone: "Everybody's got to be held accountable, including me. It starts with me, obviously."`\
+https://nytimes.com/athletic/5777442/2024/09/18/craig-berube-maple-leafs-identity/
+
 **Trump’s Derision of Haitians Goes Back Years**\
 `Former President Donald J. Trump’s false comments about pet-eating Haitian immigrants are the latest in a pattern of attacks against people from the Caribbean nation.`\
 https://nytimes.com/2024/09/18/us/politics/trump-haitians.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/arts/music/jd-souther-dead.html
 **In the Front Row at a MAGA Fashion Show**\
 `On the runway were ball gowns, sequined jackets and, of course, hats.`\
 https://nytimes.com/2024/09/18/style/maga-fashion-show.html
-
-**Atlantic City Mayor Indicted on Child Abuse Charges**\
-`Marty Small Sr. and his wife, the superintendent of the city’s schools, are accused of beating and punching their teenage daughter.`\
-https://nytimes.com/2024/09/18/nyregion/atlantic-city-mayor-marty-small-child-abuse.html
 
