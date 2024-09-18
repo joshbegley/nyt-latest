@@ -1,3 +1,7 @@
+**Five big questions entering Oilers training camp**\
+`The top nine seems set, as does the goalie duo and the top end of the blue line, but here are five things the Oilers still need to sort out.`\
+https://nytimes.com/athletic/5775788/2024/09/18/edmonton-oilers-training-camp-defense/
+
 **10 Blues training camp questions: Bannister's command, Dvorský's chances, Broberg's fit, more**\
 `The Blues open training camp on Thursday and we've got 10 questions facing the team before the puck drops for the 2024-25 season. `\
 https://nytimes.com/athletic/5774040/2024/09/18/blues-training-camp-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/business/dealbook/fed-interest-rates-markets.html
 **The Athletic FC: Will top players go on strike? Plus: Champions League brilliance**\
 `Today in TAFC: Is Rodri right, will players strike? Plus: Champions League round-up - including Endrick's record and goals from USMNT stars`\
 https://nytimes.com/athletic/5775961/2024/09/18/players-strike-champions-league-liverpool-endrick/
-
-**Study Reveals Bird-Migration Mystery**\
-`By outfitting blackbirds with heart-rate monitors, scientists debunked a long-held assumption about the benefits of spending the winter in warm climates.`\
-https://nytimes.com/2024/09/18/science/birds-migration-energy.html
 
