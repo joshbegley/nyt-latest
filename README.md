@@ -27,7 +27,7 @@ https://nytimes.com/live/2024/09/18/business/fed-interest-rates/fed-rate-cut-tak
 https://nytimes.com/athletic/5777110/2024/09/18/gaudreau-blue-jackets-tribute/
 
 **Teamsters Won’t Endorse a Candidate for President in 2024**\
-`The Teamsters president, Sean O’Brien, has shown an openness to former President Donald J. Trump, dividing the powerful union. Neither candidate will be the beneficiary of the considerable organizing muscle.`\
+`The Teamsters president, Sean O’Brien, has shown an openness to former President Donald J. Trump, dividing the powerful union. Neither candidate will be the beneficiary of its considerable organizing muscle.`\
 https://nytimes.com/2024/09/18/us/politics/teamsters-endorsement-2024-election.html
 
 **The ‘dot plot’ shows more rate cuts are coming, but disagreement on how many.**\
