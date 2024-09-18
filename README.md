@@ -1,3 +1,7 @@
+**More Wireless Devices Explode in Lebanon**\
+`Walkie-talkies belonging to Hezbollah members exploded across Lebanon on Wednesday, killing more than a dozen people and wounding hundreds, officials said. The Times verified footage from an explosion at a funeral that sent mourners fleeing for safety.`\
+https://nytimes.com/video/world/middleeast/100000009703738/lebanon-explosions.html
+
 **Olivia Wilde, Chloe Fineman and Rosie Perez Buzz at TriBeCa Power Lunch**\
 `Influential women in entertainment talked politics, fashion week and fall travel plans at a party to support emerging filmmakers.`\
 https://nytimes.com/2024/09/18/style/tribeca-power-lunch-female-filmmakers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/us/politics/teamsters-endorsement-2024-election.h
 **The ‘dot plot’ shows more rate cuts are coming, but disagreement on how many.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2024/09/18/business/fed-interest-rates/the-dot-plot-shows-more-rate-cuts-are-coming-but-disagreement-on-how-many
-
-**How We Forgot About the War on Terror**\
-`The global war on terror changed the course of American history. So why have we forgotten about it?`\
-https://nytimes.com/2024/09/18/opinion/war-on-terror-us-military.html
 
