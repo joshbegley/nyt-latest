@@ -1,3 +1,7 @@
+**Teamsters Won’t Endorse a Candidate for President in 2024**\
+`The Teamsters president, Sean O’Brien, has shown an openness to former President Donald J. Trump, dividing the powerful union. Neither candidate will be the beneficiary of the considerable organizing muscle.`\
+https://nytimes.com/2024/09/18/us/politics/teamsters-endorsement-2024-election.html
+
 **The ‘dot plot’ shows more rate cuts are coming, but disagreement on how many.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2024/09/18/business/fed-interest-rates/the-dot-plot-shows-more-rate-cuts-are-coming-but-disagreement-on-how-many
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5777091/2024/09/18/wojnarowski-general-manager-coll
 **Masai Ujiri's future with Raptors dicier than ever after Rogers buys out Bell: Koreen**\
 `The relationship between Masai Ujiri and Edward Rogers is now the defining one for the Raptors. `\
 https://nytimes.com/athletic/5776913/2024/09/18/rogers-bell-sale-masai-ujiri-toronto-raptors/
-
-**Tyson Faces Lawsuit Over Labeling of ‘Climate-Smart’ Beef**\
-`An environmental group said the company, a major food producer, was misleading shoppers with its claims about eco-friendly practices.`\
-https://nytimes.com/2024/09/18/climate/tyson-beef-climate-lawsuit.html
 
