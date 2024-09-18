@@ -1,3 +1,7 @@
+**Coco Gauff splits with coach Brad Gilbert**\
+`Brad Gilbert has announced that he is no longer coaching Coco Gauff.`\
+https://nytimes.com/athletic/5777105/2024/09/18/coco-gauff-brad-gilbert-coach/
+
 **Device Explosions Are Latest Covert Attack Attributed to Israel**\
 `Israel is believed to have conducted a series of clandestine attacks on adversaries linked to Iran in recent years, sometimes using highly innovative tactics. Some have involved highly innovative tactics.`\
 https://nytimes.com/2024/09/18/world/middleeast/israel-hezbollah-pager-attacks-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5777040/2024/09/18/jon-gruden-return-coaching/
 **Pioli appointed Al Nassr head coach after Milan exit**\
 `Stefano Pioli has been appointed as the new Al Nassr head coach.`\
 https://nytimes.com/athletic/5773650/2024/09/18/stefano-pioli-al-nassr/
-
-**What Visual Evidence Shows About Israel’s Pager Attacks**\
-`Some details of how the attacks unfolded are still a mystery. But initial imagery of the attacks on Tuesday and the explosive devices offers clues.`\
-https://nytimes.com/card/2024/09/18/world/middleeast/pager-explosions-hezbollah-israel
 
