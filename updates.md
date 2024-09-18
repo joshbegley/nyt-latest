@@ -1,3 +1,7 @@
+**Scoop City: Week 3 injury reports**\
+`A look at the fallout after major injuries, the best of Week 2 and why kickers are (seemingly) automatic.`\
+https://nytimes.com/athletic/5776581/2024/09/18/why-are-kickers-overperforming-plus-week-3-injury-report/
+
 **Rogers buys out Bell's ownership stake in MLSE**\
 `Rogers signed a deal to purchase Bell’s 37.5 percent ownership stake in MLSE, which owns the Maple Leafs and Raptors.`\
 https://nytimes.com/athletic/5776356/2024/09/18/rogers-mlse-stake-bell-leafs-raptors/
