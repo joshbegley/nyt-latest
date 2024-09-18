@@ -1,3 +1,7 @@
+**Why Uncertainty Still Hangs Over the Fed’s Big Decision**\
+`Investors, economists and politicians are at odds over whether the central bank should cut interest rates by a quarter-point, or more.`\
+https://nytimes.com/2024/09/18/business/dealbook/fed-interest-rates-markets.html
+
 **The Athletic FC: Will top players go on strike? Plus: Champions League brilliance**\
 `Today in TAFC: Is Rodri right, will players strike? Plus: Champions League round-up - including Endrick's record and goals from USMNT stars`\
 https://nytimes.com/athletic/5775961/2024/09/18/players-strike-champions-league-liverpool-endrick/
