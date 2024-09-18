@@ -1,3 +1,11 @@
+**Brittney Griner, Rickea Jackson ejected after Sparks-Mercury kerfuffle**\
+`Security rushed onto the court, as did Mercury coach Nate Tibbetts, to help separate the players.`\
+https://nytimes.com/athletic/5775611/2024/09/18/brittney-griner-rickea-jackson-ejections-wnba/
+
+**Wednesday Briefing**\
+`A pager attack against Hezbollah`\
+https://nytimes.com/2024/09/18/briefing/pager-pelicot-harris.html
+
 **Will Premier League players really go on strike?**\
 `With ever-increasing demands on professional footballers – especially at the top level – we assess how likely strike action might be`\
 https://nytimes.com/athletic/5775042/2024/09/18/premier-league-footballer-strike-explainer/

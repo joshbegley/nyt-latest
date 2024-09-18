@@ -1,3 +1,11 @@
+**Brittney Griner, Rickea Jackson ejected after Sparks-Mercury kerfuffle**\
+`Security rushed onto the court, as did Mercury coach Nate Tibbetts, to help separate the players.`\
+https://nytimes.com/athletic/5775611/2024/09/18/brittney-griner-rickea-jackson-ejections-wnba/
+
+**Wednesday Briefing**\
+`A pager attack against Hezbollah`\
+https://nytimes.com/2024/09/18/briefing/pager-pelicot-harris.html
+
 **Will Premier League players really go on strike?**\
 `With ever-increasing demands on professional footballers – especially at the top level – we assess how likely strike action might be`\
 https://nytimes.com/athletic/5775042/2024/09/18/premier-league-footballer-strike-explainer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5773423/2024/09/18/chelsea-pre-season-wsl-bompastor
 **'He touched people's lives': Remembering Brian Clough, 20 years since his death**\
 `From his home town of Middlesbrough to the cities he put on the map and his final resting place, Daniel Taylor goes in search of 'Cloughie'`\
 https://nytimes.com/athletic/5771694/2024/09/18/remembering-brian-clough-20-years/
-
-**These Four Common Infections Can Cause Cancer**\
-`A new report says that 13 percent of cancers are linked to bacteria or viruses. Vaccines and treatments offer powerful protection.`\
-https://nytimes.com/2024/09/18/well/cancer-infections-vaccines-treatments.html
-
-**Flooding in Central Europe a ‘Clear Reminder’ of the Threat of Extreme Weather**\
-`Climate change is influencing extreme weather events like the flooding across six European countries that has led to mass evacuations of cities as the waters continue to rise.`\
-https://nytimes.com/2024/09/18/climate/central-europe-floods-global-warming.html
 
