@@ -1,3 +1,7 @@
+**A 9-Year-Old Girl Killed in Pager Attack Is Mourned in Lebanon**\
+`“The enemy killed us using this small device!” mourners chanted at the funeral for Fatima Abdullah, a fourth grader.`\
+https://nytimes.com/2024/09/18/world/middleeast/lebanon-funeral-pager-attack.html
+
 **Cheaper Mortgages and Car Loans: Lower Rates Are on the Horizon**\
 `With the Federal Reserve expected to lower interest rates, some borrowing costs have begun to ease — signs that loans may become cheaper in the near future.`\
 https://nytimes.com/interactive/2024/09/18/business/economy/consumer-interest-rates.html
