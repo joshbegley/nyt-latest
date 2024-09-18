@@ -1,3 +1,7 @@
+**Mets ace Kodai Senga feels closer to big-league return**\
+`NEW YORK — As the Mets push for the postseason, there’s still a chance they add a significant piece to their pitching staff.`\
+https://nytimes.com/athletic/5777814/2024/09/18/mets-ace-kodai-senga-eyeing-late-season-return/
+
 **Tottenham's Odobert has 'fairly significant' injury - Postecoglou**\
 `Ange Postecoglou has said a muscular injury sustained by Tottenham Hotspur&#8217;s Wilson Odobert in Wednesday&#8217;s Carabao Cup victory at Coventry City could be &#8220;fairly significant&#8221;.`\
 https://nytimes.com/athletic/5777761/2024/09/18/wilson-odobert-tottenham-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5777514/2024/09/18/jordan-love-injury-packers-titan
 **Valarie D’Elia, Travel Reporter on TV and Radio, Dies at 64**\
 `She steered vacationers and business travelers to choice destinations, talked about the best deals, and offered up savvy tips on how to avoid vexation.`\
 https://nytimes.com/2024/09/18/business/media/valarie-delia-dead.html
-
-**Kounde supports Rodri on player strikes: 'Nobody pays attention to us'**\
-`Barcelona defender Jules Kounde &#8220;agreed with everything&#8221; said by Manchester City&#8217;s Rodri on footballers being &#8220;close&#8221; to striking over the volume of matches.`\
-https://nytimes.com/athletic/5777639/2024/09/18/jules-kounde-players-strike/
 
