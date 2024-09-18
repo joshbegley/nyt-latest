@@ -1,3 +1,7 @@
+**Word of the Day: disproportionate**\
+`This word has appeared in 283 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/18/learning/word-of-the-day-disproportionate.html
+
 **Eddie Nketiah is off the mark at Crystal Palace and impressing in a new role**\
 `The striker signed from Arsenal has been asked to operate as a No 10 in his first two games under Oliver Glasner, a role he has embraced`\
 https://nytimes.com/athletic/5767206/2024/09/18/palace-nketiah-striker-10-qpr/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5775668/2024/09/18/jose-altuve-astros-padres-ejecti
 **Blake Snell sets important tone for Giants as potentially pivotal road trip begins in Baltimore**\
 `Snell dominated Tuesday night in a 10-0 victory against the Orioles, holding them to one hit in six shutout innings and striking out 12.`\
 https://nytimes.com/athletic/5775604/2024/09/18/blake-snell-giants-orioles-pivotal-trip/
-
-**Maresca's big call at Chelsea: Jackson or Nkunku up front?**\
-`Chelsea's head coach has two compelling options as a No 9 but choosing between them is not easy`\
-https://nytimes.com/athletic/5773427/2024/09/18/chelsea-jackson-nkunku-maresca/
 
