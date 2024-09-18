@@ -1,3 +1,7 @@
+**Cathy Merrick, Advocate for Indigenous People in Canada, Dies at 63**\
+`She was on the front lines of dogged fights against injustices, including a recent series of murders of Indigenous women by a white man.`\
+https://nytimes.com/2024/09/17/world/canada/cathy-merrick-dead.html
+
 **School Workers’ Families Took Disney Trip Meant for Homeless Students**\
 `New York City school employees took their children or grandchildren to Disney World and other places through a program intended for homeless students, investigators found.`\
 https://nytimes.com/2024/09/17/nyregion/ny-schools-disney-homeless-students.html
