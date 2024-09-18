@@ -1,3 +1,11 @@
+**Rogers buys out Bell's ownership stake in MLSE**\
+`Rogers signed a deal to purchase Bell’s 37.5 percent ownership stake in MLSE, which owns the Maple Leafs and Raptors.`\
+https://nytimes.com/athletic/5776356/2024/09/18/rogers-mlse-stake-bell-leafs-raptors/
+
+**Ryan Truex on his full-time job in racing, the sponsor search and more: 12 Questions**\
+`Ryan Truex talks about what it takes to be full-time in racing, his ongoing search to secure sponsorship and much more.`\
+https://nytimes.com/athletic/5772425/2024/09/18/ryan-truex-nascar-12-questions/
+
 **Sarah Huckabee Sanders Jabs at Harris for Not Having Biological Children**\
 `“My kids keep me humble,” Ms. Sanders said at an event with former President Donald J. Trump. “Unfortunately, Kamala Harris doesn’t have anything keeping her humble.” The remark quickly drew backlash.`\
 https://nytimes.com/2024/09/18/us/politics/sanders-harris-children-backlash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5774263/2024/09/18/wnba-portland-expansion-franchis
 **A look at the Lions' 28th-ranked red zone efficiency and how they can fix it**\
 `The numbers are bad but show promise.`\
 https://nytimes.com/athletic/5775100/2024/09/18/detroit-lions-red-zone-dan-campbell-jared-goff/
-
-**Breaking down the highest-scoring penalty shootout in professional English football**\
-`Preston and Fulham played out a 16-15 penalty shootout in the Carabao Cup on Wednesday night`\
-https://nytimes.com/athletic/5775851/2024/09/18/penalty-shootout-highest-scoring-england/
-
-**California Mountain Towns Are Too Risky for Insurers, but Residents Want to Stay**\
-`In the San Bernardino Mountains, another wildfire has forced residents to flee, the latest reminder that they must accept the risks of climate change if they want to remain.`\
-https://nytimes.com/2024/09/18/us/san-bernardino-wildfire-risk.html
 

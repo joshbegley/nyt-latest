@@ -1,3 +1,11 @@
+**Rogers buys out Bell's ownership stake in MLSE**\
+`Rogers signed a deal to purchase Bell’s 37.5 percent ownership stake in MLSE, which owns the Maple Leafs and Raptors.`\
+https://nytimes.com/athletic/5776356/2024/09/18/rogers-mlse-stake-bell-leafs-raptors/
+
+**Ryan Truex on his full-time job in racing, the sponsor search and more: 12 Questions**\
+`Ryan Truex talks about what it takes to be full-time in racing, his ongoing search to secure sponsorship and much more.`\
+https://nytimes.com/athletic/5772425/2024/09/18/ryan-truex-nascar-12-questions/
+
 **Sarah Huckabee Sanders Jabs at Harris for Not Having Biological Children**\
 `“My kids keep me humble,” Ms. Sanders said at an event with former President Donald J. Trump. “Unfortunately, Kamala Harris doesn’t have anything keeping her humble.” The remark quickly drew backlash.`\
 https://nytimes.com/2024/09/18/us/politics/sanders-harris-children-backlash.html
