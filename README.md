@@ -1,3 +1,7 @@
+**Taiwan Company Tries to Distance Itself From Pagers Used in Lebanon Attack**\
+`The company, Gold Apollo, said it had not manufactured the devices, pointing to another company that has a licensing agreement to use its label.`\
+https://nytimes.com/2024/09/18/world/asia/taiwan-pagers-lebanon.html
+
 **Parker Meadows' catch saves another victory in Tigers' playoff push**\
 `Detroit is 42-23 in games when Meadows is in the starting lineup. His clutch play made the difference again Tuesday. `\
 https://nytimes.com/athletic/5775637/2024/09/18/tigers-parker-meadows/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5775619/2024/09/18/phillies-postseason-formula-bryc
 **Brighton's next step is to challenge for silverware - and they're primed for it**\
 `Finishing in the Premier League top 10 is a worthy target for club, but lifting a trophy would be an unforgettable moment for supporters`\
 https://nytimes.com/athletic/5725756/2024/09/18/brighton-trophies-carabao-fa-cup/
-
-**Farke's subs have long been a bone of contention at Leeds. This is the good and the bad**\
-`There has been significant criticism of Daniel Farke's substitutions throughout his time at Elland Road`\
-https://nytimes.com/athletic/5773243/2024/09/18/leeds-daniel-farke-substitutions/
 
