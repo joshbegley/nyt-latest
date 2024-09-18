@@ -1,3 +1,7 @@
+**Madrid's reliance on Rudiger and Militao is a worry - they don't have much choice**\
+`Madrid's starting centre-backs are in for a long season after the exits of other defenders and no new signings in that position`\
+https://nytimes.com/athletic/5775751/2024/09/18/real-madrid-antonio-rudiger-eder-militao/
+
 **Kane breaks Rooney's Champions League goal record**\
 `Harry Kane scored four goals to become England&#8217;s all-time leading goalscorer in the Champions League on a record-breaking night for the Bayern Munich striker.`\
 https://nytimes.com/athletic/5775744/2024/09/18/harry-kane-wayne-rooney-record/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/arts/television/late-night-trump.html
 **Taiwan Company Tries to Distance Itself From Pagers Used in Lebanon Attack**\
 `The company, Gold Apollo, said it had not manufactured the devices, pointing to another company that has a licensing agreement to use its label.`\
 https://nytimes.com/2024/09/18/world/asia/taiwan-pagers-lebanon.html
-
-**Parker Meadows' catch saves another victory in Tigers' playoff push**\
-`Detroit is 42-23 in games when Meadows is in the starting lineup. His clutch play made the difference again Tuesday. `\
-https://nytimes.com/athletic/5775637/2024/09/18/tigers-parker-meadows/
 
