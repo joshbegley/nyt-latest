@@ -1,3 +1,7 @@
+**Portland to become WNBA's 15th franchise in 2026**\
+`The WNBA is expanding to Portland by granting the league’s 15th franchise to the city.`\
+https://nytimes.com/athletic/5774263/2024/09/18/wnba-portland-expansion-franchise/
+
 **A look at the Lions' 28th-ranked red zone efficiency and how they can fix it**\
 `The numbers are bad but show promise.`\
 https://nytimes.com/athletic/5775100/2024/09/18/detroit-lions-red-zone-dan-campbell-jared-goff/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/18/business/economy/consumer-interest-ra
 **Five big questions entering Oilers training camp**\
 `The top nine seems set, as does the goalie duo and the top end of the blue line, but here are five things the Oilers still need to sort out.`\
 https://nytimes.com/athletic/5775788/2024/09/18/edmonton-oilers-training-camp-defense/
-
-**10 Blues training camp questions: Bannister's command, Dvorský's chances, Broberg's fit, more**\
-`The Blues open training camp on Thursday and we've got 10 questions facing the team before the puck drops for the 2024-25 season. `\
-https://nytimes.com/athletic/5774040/2024/09/18/blues-training-camp-questions/
 

@@ -1,3 +1,7 @@
+**Portland to become WNBA's 15th franchise in 2026**\
+`The WNBA is expanding to Portland by granting the league’s 15th franchise to the city.`\
+https://nytimes.com/athletic/5774263/2024/09/18/wnba-portland-expansion-franchise/
+
 **A look at the Lions' 28th-ranked red zone efficiency and how they can fix it**\
 `The numbers are bad but show promise.`\
 https://nytimes.com/athletic/5775100/2024/09/18/detroit-lions-red-zone-dan-campbell-jared-goff/
