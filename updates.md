@@ -1,3 +1,7 @@
+**How Israel Built a Modern-Day Trojan Horse: Exploding Pagers**\
+`The Israeli government did not tamper with the Hezbollah phones that exploded, defense and intelligence officials say. It manufactured them as part of an elaborate ruse.`\
+https://nytimes.com/2024/09/18/world/middleeast/israel-exploding-pagers-hezbollah.html
+
 **U.N. Body Demands Israel End Its ‘Unlawful Presence in the Occupied Palestinian Territory’**\
 `Nearly two-thirds of the U.N. General Assembly voted in favor of a nonbinding resolution calling for Israel to end its occupation within a year. The United States was among the opposition.`\
 https://nytimes.com/2024/09/18/world/middleeast/un-israel-occupation-palestinian.html

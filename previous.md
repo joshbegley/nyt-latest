@@ -1,3 +1,7 @@
+**How Israel Built a Modern-Day Trojan Horse: Exploding Pagers**\
+`The Israeli government did not tamper with the Hezbollah phones that exploded, defense and intelligence officials say. It manufactured them as part of an elaborate ruse.`\
+https://nytimes.com/2024/09/18/world/middleeast/israel-exploding-pagers-hezbollah.html
+
 **U.N. Body Demands Israel End Its ‘Unlawful Presence in the Occupied Palestinian Territory’**\
 `Nearly two-thirds of the U.N. General Assembly voted in favor of a nonbinding resolution calling for Israel to end its occupation within a year. The United States was among the opposition.`\
 https://nytimes.com/2024/09/18/world/middleeast/un-israel-occupation-palestinian.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/us/politics/trump-haitians.html
 **Second Wave of Blasts Hits Lebanon as Hand-Held Radios Explode**\
 `At least 20 people were killed and more than 450 others wounded, Lebanese officials said, a day after pagers exploded across the country and killed 12 people, in an attack widely attributed to Israel.`\
 https://nytimes.com/2024/09/18/world/middleeast/lebanon-explosions-radios.html
-
-**Dodgers' Gavin Stone 'very unlikely' to return this season**\
-`Although it had been expected Stone wouldn't pitch again this season, the news throws the Dodgers' postseason rotation into further flux.`\
-https://nytimes.com/athletic/5777594/2024/09/18/dodgers-gavin-stone-injury-update/
 
