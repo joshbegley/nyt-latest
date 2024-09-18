@@ -1,3 +1,7 @@
+**On ‘Survivor,’ Talking Politics Could Get You Voted Off the Island**\
+`The show’s 47th season, which features Jon Lovett, a former Obama speechwriter, premieres Wednesday. But even in heated election years, presidential politics rarely intrudes.`\
+https://nytimes.com/2024/09/18/us/politics/survivor-season-47-jon-lovett.html
+
 **Titan Disaster Hearing Upends Earlier Expert Theories on Crew Deaths**\
 `Two days of reporting and testifying by experts during a U.S. Coast Guard inquiry challenge the idea that the submersible’s passengers knew they were facing death.`\
 https://nytimes.com/2024/09/18/science/titan-disaster-hearing-crew-deaths-theories.html
