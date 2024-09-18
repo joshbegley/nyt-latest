@@ -1,3 +1,7 @@
+**Abused in Public Housing, Victims Often Face a Long Wait to Move**\
+`A 2013 provision to federal law was intended to ensure that domestic violence victims living in subsidized housing could move quickly to safer homes. But they often wait in fear.`\
+https://nytimes.com/2024/09/18/us/domestic-violence-victims-affordable-housing.html
+
 **Analyzing 4 MLS teams' chances at postseason glory**\
 `A look at how four MLS teams stack up heading into the season's final stretch `\
 https://nytimes.com/athletic/5774818/2024/09/18/mls-teams-to-watch-playoff-chances/

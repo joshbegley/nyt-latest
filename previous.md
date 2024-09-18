@@ -1,3 +1,7 @@
+**Abused in Public Housing, Victims Often Face a Long Wait to Move**\
+`A 2013 provision to federal law was intended to ensure that domestic violence victims living in subsidized housing could move quickly to safer homes. But they often wait in fear.`\
+https://nytimes.com/2024/09/18/us/domestic-violence-victims-affordable-housing.html
+
 **Analyzing 4 MLS teams' chances at postseason glory**\
 `A look at how four MLS teams stack up heading into the season's final stretch `\
 https://nytimes.com/athletic/5774818/2024/09/18/mls-teams-to-watch-playoff-chances/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/opinion/aoc-tina-smith-housing.html
 **Falcons revel in their improbable comeback win but must turn the page quickly**\
 `Led by Bijan Robinson, the Falcons rushed for 152 yards on Monday night. Eagles coach Nick Sirianni said that helped stymie his pass rush.`\
 https://nytimes.com/athletic/5774998/2024/09/18/falcons-improbable-comeback-eagles/
-
-**After all these years, NFL legend Fran Tarkenton is still scrambling**\
-`The Hall of Fame QB, now 84, thinks his style of play would succeed in today's NFL. "Patrick Mahomes doesn’t do anything I didn’t do."`\
-https://nytimes.com/athletic/5766363/2024/09/18/fran-tarkenton-vikings-scrambling/
 
