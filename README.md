@@ -1,3 +1,7 @@
+**Why Uncertainty Still Hangs Over the Fed’s Big Decision**\
+`Investors, economists and politicians are at odds over whether the central bank should cut interest rates by a quarter-point, or more.`\
+https://nytimes.com/2024/09/18/business/dealbook/fed-interest-rates-markets.html
+
 **The Athletic FC: Will top players go on strike? Plus: Champions League brilliance**\
 `Today in TAFC: Is Rodri right, will players strike? Plus: Champions League round-up - including Endrick's record and goals from USMNT stars`\
 https://nytimes.com/athletic/5775961/2024/09/18/players-strike-champions-league-liverpool-endrick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5772180/2024/09/18/edmonton-oilers-potential-impact
 **LeBrun: Catching up with Jim Nill on the Stars offseason, Jamie Benn's future and how Matt Dumba fits on D**\
 `Also, how Nill sees the Dallas defense shaking out and why he thinks summer signing Matt Dumba "can really change our team."`\
 https://nytimes.com/athletic/5773893/2024/09/18/stars-offseason-jim-nill/
-
-**A poised Jayden Daniels is remembering to have fun while leading Commanders**\
-`“That’s what you live for, those moments,” the rookie QB said after leading the game-winning drive against the Giants in Week 2.`\
-https://nytimes.com/athletic/5775022/2024/09/18/commanders-jayden-daniels-poise/
 
