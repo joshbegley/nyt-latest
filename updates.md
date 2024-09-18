@@ -1,3 +1,7 @@
+**Titan Disaster Hearing Upends Earlier Expert Theories on Crew Deaths**\
+`Two days of reporting and testifying by experts during a U.S. Coast Guard inquiry challenge the idea that the submersible’s passengers knew they were facing death.`\
+https://nytimes.com/2024/09/18/science/titan-disaster-hearing-crew-deaths-theories.html
+
 **To Win Votes, Trump Floats an Array of Expensive Tax Cuts**\
 `Whether he is speaking to retirees, corporate executives or tipped workers, former President Donald J. Trump has made a habit of promising tax cuts that could cost trillions.`\
 https://nytimes.com/2024/09/18/us/politics/trump-tax-cuts.html
