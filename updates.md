@@ -1,3 +1,7 @@
+**Dodgers' Bobby Miller hit hard again, leaving him with uncertain future**\
+`Miller hit 98 mph with his fastball, so why can't he get anyone out? “I think it is mental,” Dave Roberts said.`\
+https://nytimes.com/athletic/5775544/2024/09/17/dodgers-bobby-miller-rotation/
+
 **U.N. Sees ‘Human Rights Abyss’ in Myanmar as Military Kills Civilians**\
 `Three years after the military staged a coup, intensifying a civil war, civilians continue to pay the price, according to a coming United Nations report.`\
 https://nytimes.com/2024/09/17/world/asia/myanmar-human-rights-abuse-un.html
