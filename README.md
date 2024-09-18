@@ -1,3 +1,7 @@
+**The Athletic FC: Will top players go on strike? Plus: Champions League brilliance**\
+`Today in TAFC: Is Rodri right, will players strike? Plus: Champions League round-up - including Endrick's record and goals from USMNT stars`\
+https://nytimes.com/athletic/5775961/2024/09/18/players-strike-champions-league-liverpool-endrick/
+
 **Study Reveals Bird-Migration Mystery**\
 `By outfitting blackbirds with heart-rate monitors, scientists debunked a long-held assumption about the benefits of spending the winter in warm climates.`\
 https://nytimes.com/2024/09/18/science/birds-migration-energy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5773893/2024/09/18/stars-offseason-jim-nill/
 **A poised Jayden Daniels is remembering to have fun while leading Commanders**\
 `“That’s what you live for, those moments,” the rookie QB said after leading the game-winning drive against the Giants in Week 2.`\
 https://nytimes.com/athletic/5775022/2024/09/18/commanders-jayden-daniels-poise/
-
-**10-Year-Old Student Is Stabbed Near Japanese School in China**\
-`The child was wounded and a 44-year-old man was in custody, the police said. Other Japanese schools in China warned parents and students to be cautious.`\
-https://nytimes.com/2024/09/18/world/asia/child-stabbed-japan-china.html
 
