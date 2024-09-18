@@ -1,3 +1,11 @@
+**Orioles designate Craig Kimbrel for assignment**\
+`The Orioles DFA'd Craig Kimbrel on Wednesday, ending an unsuccessful tenure in Baltimore and potentially the 36-year-old veteran’s career.`\
+https://nytimes.com/athletic/5777214/2024/09/18/craig-kimbrel-dfa-orioles/
+
+**In Praise of the Chicken Braise**\
+`Bone-in chicken on a bed of olive-studded, lemony greens is at the ready for sweater season.`\
+https://nytimes.com/2024/09/18/dining/how-to-braise-chicken.html
+
 **Adrian Wojnarowski is now the GM at St. Bonaventure: What does that mean in college basketball?**\
 `The responsibilities of a general manger, which is new to the collegiate game, varies dramatically from school to school.`\
 https://nytimes.com/athletic/5777091/2024/09/18/wojnarowski-general-manager-college-basketball-st-bonaventure/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5776948/2024/09/18/penguins-kris-letang-trade-rumor
 **Trump’s Talk of Prosecution Rattles Election Officials**\
 `The former president has long claimed, despite evidence to the contrary, that elections are corrupt. What if he carries through with threats to prosecute the officials who run them?`\
 https://nytimes.com/2024/09/18/us/politics/donald-trump-2024-election-officials.html
-
-**Coco Gauff splits with coach Brad Gilbert**\
-`Brad Gilbert has announced that he is no longer coaching Coco Gauff.`\
-https://nytimes.com/athletic/5777105/2024/09/18/coco-gauff-brad-gilbert-coach/
-
-**Device Explosions Are Latest Covert Attack Attributed to Israel**\
-`Israel is believed to have conducted a series of clandestine attacks on adversaries linked to Iran in recent years, sometimes using highly innovative tactics.`\
-https://nytimes.com/2024/09/18/world/middleeast/israel-hezbollah-pager-attacks-history.html
 
