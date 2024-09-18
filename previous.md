@@ -1,3 +1,7 @@
+**Former England striker Duggan retires from football**\
+`Former England and Manchester City striker Toni Duggan has announced her retirement from football, aged 33.`\
+https://nytimes.com/athletic/5775780/2024/09/18/toni-duggan-retires/
+
 **The Police Called. He Checked the News, and His ‘Heart Dropped.’**\
 `Gregory Delpeche, a bystander, is in critical condition after being shot by a police officer at a Brooklyn subway station. His friend of decades says it never should have happened.`\
 https://nytimes.com/2024/09/18/nyregion/nypd-shooting-brooklyn-subway-bystander.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5775744/2024/09/18/harry-kane-wayne-rooney-record/
 **Juan Soto's telling free agency comment after his 200th home run**\
 `Soto's comment made it clear that the free agency process is at the forefront of his mind.`\
 https://nytimes.com/athletic/5775745/2024/09/18/yankees-juan-soto-free-agency-200-home-run/
-
-**Deep Links Between Alcohol and Cancer Are Described in New Report**\
-`Scientists continue to rethink the idea that moderate drinking offers health benefits.`\
-https://nytimes.com/2024/09/18/health/alcohol-cancer-young-adults.html
 
