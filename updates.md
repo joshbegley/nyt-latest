@@ -1,3 +1,15 @@
+**Orioles designate Craig Kimbrel for assignment**\
+`The Orioles DFA'd Craig Kimbrel on Wednesday, ending an unsuccessful tenure in Baltimore and potentially the 36-year-old veteran’s career.`\
+https://nytimes.com/athletic/5777214/2024/09/18/craig-kimbrel-dfa-orioles/
+
+**In Praise of the Chicken Braise**\
+`Bone-in chicken on a bed of olive-studded, lemony greens is at the ready for sweater season.`\
+https://nytimes.com/2024/09/18/dining/how-to-braise-chicken.html
+
+**Adrian Wojnarowski is now the GM at St. Bonaventure: What does that mean in college basketball?**\
+`The responsibilities of a general manger, which is new to the collegiate game, varies dramatically from school to school.`\
+https://nytimes.com/athletic/5777091/2024/09/18/wojnarowski-general-manager-college-basketball-st-bonaventure/
+
 **Masai Ujiri's future with Raptors dicier than ever after Rogers buys out Bell: Koreen**\
 `The relationship between Masai Ujiri and Edward Rogers is now the defining one for the Raptors. `\
 https://nytimes.com/athletic/5776913/2024/09/18/rogers-bell-sale-masai-ujiri-toronto-raptors/
