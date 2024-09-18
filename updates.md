@@ -1,3 +1,7 @@
+**Why can't the Bears run the ball? What All-22 tells us about the struggling offense**\
+`The Bears can't get the run game going, which is making things harder for Caleb Williams. Here's what the film says about the issues. `\
+https://nytimes.com/athletic/5774817/2024/09/18/bears-run-game-struggles-week-2/
+
 **What we're seeing from Canucks, Jets, Flames and Oilers prospects in Penticton**\
 `Here's what we observed at this year's Penticton Young Stars tournament and what it means for various Canadian teams and their prospects.`\
 https://nytimes.com/athletic/5771973/2024/09/18/canucks-jets-flames-oilers-prospects/

@@ -1,3 +1,7 @@
+**Why can't the Bears run the ball? What All-22 tells us about the struggling offense**\
+`The Bears can't get the run game going, which is making things harder for Caleb Williams. Here's what the film says about the issues. `\
+https://nytimes.com/athletic/5774817/2024/09/18/bears-run-game-struggles-week-2/
+
 **What we're seeing from Canucks, Jets, Flames and Oilers prospects in Penticton**\
 `Here's what we observed at this year's Penticton Young Stars tournament and what it means for various Canadian teams and their prospects.`\
 https://nytimes.com/athletic/5771973/2024/09/18/canucks-jets-flames-oilers-prospects/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774672/2024/09/18/colts-run-defense-gus-bradley-we
 **Tennis storylines to watch: Nadal's fitness, WTA finals in Saudi, and which Tiafoe will turn up?**\
 `Even with no more Grand Slams this year, there are plenty of talking points between now and the end of the season...`\
 https://nytimes.com/athletic/5773388/2024/09/18/tennis-atp-wta-finals-saudi-nadal-alcaraz/
-
-**Old Trafford task force to deliver recommendation by end of year**\
-`The Old Trafford task force is to deliver its recommendation for the future of Manchester United&#8217;s stadium by the end of December.`\
-https://nytimes.com/athletic/5775943/2024/09/18/manchester-united-stadium-plans-old-trafford/
 
