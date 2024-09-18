@@ -1,3 +1,7 @@
+**Late Night Calls Out Violence Against Trump**\
+`“Not only is it morally wrong, but you’re also just giving him more things to brag about,” Ronny Chieng said on Tuesday’s “Daily Show.”`\
+https://nytimes.com/2024/09/18/arts/television/late-night-trump.html
+
 **Taiwan Company Tries to Distance Itself From Pagers Used in Lebanon Attack**\
 `The company, Gold Apollo, said it had not manufactured the devices, pointing to another company that has a licensing agreement to use its label.`\
 https://nytimes.com/2024/09/18/world/asia/taiwan-pagers-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5771079/2024/09/18/its-time-for-west-ham-to-unleash
 **A postseason formula fuels Phillies in September as Bryce Harper and Zack Wheeler thrive**\
 `The formula is complicated until it's not. At their core, the Phillies are a team powered by stars.`\
 https://nytimes.com/athletic/5775619/2024/09/18/phillies-postseason-formula-bryce-harper-zack-wheeler/
-
-**Brighton's next step is to challenge for silverware - and they're primed for it**\
-`Finishing in the Premier League top 10 is a worthy target for club, but lifting a trophy would be an unforgettable moment for supporters`\
-https://nytimes.com/athletic/5725756/2024/09/18/brighton-trophies-carabao-fa-cup/
 
