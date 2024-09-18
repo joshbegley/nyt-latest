@@ -1,3 +1,7 @@
+**Madrid's reliance on Rudiger and Militao is a worry - they don't have much choice**\
+`Madrid's starting centre-backs are in for a long season after the exits of other defenders and no new signings in that position`\
+https://nytimes.com/athletic/5775751/2024/09/18/real-madrid-antonio-rudiger-eder-militao/
+
 **Kane breaks Rooney's Champions League goal record**\
 `Harry Kane scored four goals to become England&#8217;s all-time leading goalscorer in the Champions League on a record-breaking night for the Bayern Munich striker.`\
 https://nytimes.com/athletic/5775744/2024/09/18/harry-kane-wayne-rooney-record/
