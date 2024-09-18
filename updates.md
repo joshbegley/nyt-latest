@@ -1,3 +1,7 @@
+**Deep Links Between Alcohol and Cancer Are Described in New Report**\
+`Scientists continue to rethink the idea that moderate drinking offers health benefits.`\
+https://nytimes.com/2024/09/18/health/alcohol-cancer-young-adults.html
+
 **Word of the Day: disproportionate**\
 `This word has appeared in 283 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/18/learning/word-of-the-day-disproportionate.html

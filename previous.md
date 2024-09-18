@@ -1,3 +1,7 @@
+**Deep Links Between Alcohol and Cancer Are Described in New Report**\
+`Scientists continue to rethink the idea that moderate drinking offers health benefits.`\
+https://nytimes.com/2024/09/18/health/alcohol-cancer-young-adults.html
+
 **Word of the Day: disproportionate**\
 `This word has appeared in 283 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/18/learning/word-of-the-day-disproportionate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774550/2024/09/18/brain-games-fantasy-football-wee
 **Astros' Jose Altuve ejected vs. Padres for taking off sock and shoe**\
 `Altuve removed his left cleat, tore off his sock and began to hobble toward the umpires, earning his ejection while pointing at his toes.`\
 https://nytimes.com/athletic/5775668/2024/09/18/jose-altuve-astros-padres-ejection-shoe-sock-removal/
-
-**Blake Snell sets important tone for Giants as potentially pivotal road trip begins in Baltimore**\
-`Snell dominated Tuesday night in a 10-0 victory against the Orioles, holding them to one hit in six shutout innings and striking out 12.`\
-https://nytimes.com/athletic/5775604/2024/09/18/blake-snell-giants-orioles-pivotal-trip/
 
