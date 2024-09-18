@@ -1,3 +1,15 @@
+**Body Is Found in Kentucky Near Site of Highway Shooting**\
+`Officials are working to confirm the identity. It was not clear if the discovery was related to the shooting this month that led to an intense manhunt.`\
+https://nytimes.com/2024/09/18/us/kentucky-highway-shooting-body.html
+
+**The Evening: The Fed’s Big Rate Cut**\
+`Plus, tonight’s premiere of  “The Golden Bachelorette.”`\
+https://nytimes.com/2024/09/18/briefing/fed-rate-cut-lebanon-hezbollah-harris-trump-bulletproof-backpacks.html
+
+**Kyle Hendricks 'absolutely' intends to pitch next season**\
+`Hendricks, the only player remaining from the 2016 World Series team, wants to prolong a career that has exceeded the wildest expectations.`\
+https://nytimes.com/athletic/5777542/2024/09/18/kyle-hendricks-intends-to-pitch-in-2025/
+
 **Will Jordan Love play Sunday? Packers QB 'hopeful' to be back for Titans Sunday**\
 `Love returned to practice Wednesday for the first time since injuring his knee in Brazil against the Eagles.`\
 https://nytimes.com/athletic/5777514/2024/09/18/jordan-love-injury-packers-titans/

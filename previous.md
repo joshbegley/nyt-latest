@@ -1,3 +1,15 @@
+**Body Is Found in Kentucky Near Site of Highway Shooting**\
+`Officials are working to confirm the identity. It was not clear if the discovery was related to the shooting this month that led to an intense manhunt.`\
+https://nytimes.com/2024/09/18/us/kentucky-highway-shooting-body.html
+
+**The Evening: The Fed’s Big Rate Cut**\
+`Plus, tonight’s premiere of  “The Golden Bachelorette.”`\
+https://nytimes.com/2024/09/18/briefing/fed-rate-cut-lebanon-hezbollah-harris-trump-bulletproof-backpacks.html
+
+**Kyle Hendricks 'absolutely' intends to pitch next season**\
+`Hendricks, the only player remaining from the 2016 World Series team, wants to prolong a career that has exceeded the wildest expectations.`\
+https://nytimes.com/athletic/5777542/2024/09/18/kyle-hendricks-intends-to-pitch-in-2025/
+
 **Will Jordan Love play Sunday? Packers QB 'hopeful' to be back for Titans Sunday**\
 `Love returned to practice Wednesday for the first time since injuring his knee in Brazil against the Eagles.`\
 https://nytimes.com/athletic/5777514/2024/09/18/jordan-love-injury-packers-titans/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5777150/2024/09/18/milwaukee-brewers-playoff-clinch
 **Capitals' T.J. Oshie expected to be placed on LTIR**\
 `Oshie, Washington's alternate captain, dealt with a chronic back injury last season.`\
 https://nytimes.com/athletic/5777570/2024/09/18/tj-oshie-capitals-ltir-injury/
-
-**What Losing in 2020 Did to Trump**\
-`He can’t stop talking about it.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/stump-speech-trump-2020
-
-**Sean Combs Must Stay in Jail Until Trial After Judge Rejects Appeal**\
-`The judge said Mr. Combs posed a risk of witness tampering and was a danger to the community while awaiting his sex trafficking and racketeering conspiracy trial.`\
-https://nytimes.com/2024/09/18/arts/music/sean-combs-diddy-bail-appeal.html
-
-**Thursday Briefing: A Second Day of Explosions in Lebanon**\
-`Plus, Kamala Harris courts Latino voters.`\
-https://nytimes.com/2024/09/18/briefing/lebanon-explosions-harris-kashmir.html
 
