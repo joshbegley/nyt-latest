@@ -1,3 +1,11 @@
+**Five under-the-radar prospects in the Cubs' system**\
+`The Cubs have plenty of top-100 prospects, but they have some hidden gems too, including Christian Franklin and Brett Bateman.`\
+https://nytimes.com/athletic/5775478/2024/09/18/underrated-cubs-prospects-christian-franklin-jonathon-long/
+
+**An Interest Rate Cut**\
+`We explore the politics of today’s Fed announcement.`\
+https://nytimes.com/2024/09/18/briefing/federal-reserve-interest-rate-cut-election.html
+
 **Pager Attacks Puncture Hezbollah’s Aura as Powerful Anti-Israel Force**\
 `The coordinated attacks targeting the group’s wireless devices caused thousands of injuries, piercing the group’s rank and file and raising questions about how it will respond.`\
 https://nytimes.com/2024/09/18/world/middleeast/hezbollah-israel-pager-lebanon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5773884/2024/09/18/blackhawks-training-camp-questio
 **Israel’s Existential Threat From Within**\
 `The growing sway of far-right settlers in the West Bank has pushed Israeli politics toward a crisis.`\
 https://nytimes.com/2024/09/18/podcasts/the-daily/israel-extremism-west-bank.html
-
-**Hezbollah Blames Israel for Deadly Pager Attack, and Fed Expected to Cut Rates**\
-`Plus, gymnast Jordan Chiles’s Olympic medal fight.`\
-https://nytimes.com/2024/09/18/podcasts/lebanon-pagers-fed-rates.html
-
-**Who's to blame for Colts' abysmal run defense, and how can they fix it?**\
-`The Colts' second-half run defense in Green Bay was far better. Can they carry over those improvements against the Bears?`\
-https://nytimes.com/athletic/5774672/2024/09/18/colts-run-defense-gus-bradley-week-3/
 
