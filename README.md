@@ -1,3 +1,7 @@
+**Adrian Wojnarowski is now the GM at St. Bonaventure: What does that mean in college basketball?**\
+`The responsibilities of a general manger, which is new to the collegiate game, varies dramatically from school to school.`\
+https://nytimes.com/athletic/5777091/2024/09/18/wojnarowski-general-manager-college-basketball-st-bonaventure/
+
 **Masai Ujiri's future with Raptors dicier than ever after Rogers buys out Bell: Koreen**\
 `The relationship between Masai Ujiri and Edward Rogers is now the defining one for the Raptors. `\
 https://nytimes.com/athletic/5776913/2024/09/18/rogers-bell-sale-masai-ujiri-toronto-raptors/
@@ -31,10 +35,6 @@ https://nytimes.com/2024/09/18/us/politics/donald-trump-2024-election-officials.
 https://nytimes.com/athletic/5777105/2024/09/18/coco-gauff-brad-gilbert-coach/
 
 **Device Explosions Are Latest Covert Attack Attributed to Israel**\
-`Israel is believed to have conducted a series of clandestine attacks on adversaries linked to Iran in recent years, sometimes using highly innovative tactics. Some have involved highly innovative tactics.`\
+`Israel is believed to have conducted a series of clandestine attacks on adversaries linked to Iran in recent years, sometimes using highly innovative tactics.`\
 https://nytimes.com/2024/09/18/world/middleeast/israel-hezbollah-pager-attacks-history.html
-
-**Coast Guard Releases Video of Titan Submersible Wreck**\
-`The U.S. Coast Guard released new footage of the tail cone from the Titan submersible at the bottom of the ocean. A piece of carbon fiber is next to the tail cone.`\
-https://nytimes.com/video/science/earth/100000009704208/oceangate-titan-submersible-wreck.html
 
