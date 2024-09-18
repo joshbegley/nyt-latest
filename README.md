@@ -1,3 +1,11 @@
+**Trump’s Derision of Haitians Goes Back Years**\
+`Former President Donald J. Trump’s false comments about pet-eating Haitian immigrants are the latest in a pattern of attacks against people from the Caribbean nation.`\
+https://nytimes.com/2024/09/18/us/politics/trump-haitians.html
+
+**Second Wave of Blasts Hits Lebanon as Hand-Held Radios Explode**\
+`At least 20 people were killed and more than 450 others wounded, Lebanese officials said, a day after pagers exploded across the country and killed 12 people, in an attack widely attributed to Israel.`\
+https://nytimes.com/2024/09/18/world/middleeast/lebanon-explosions-radios.html
+
 **Dodgers' Gavin Stone 'very unlikely' to return this season**\
 `Although it had been expected Stone wouldn't pitch again this season, the news throws the Dodgers' postseason rotation into further flux.`\
 https://nytimes.com/athletic/5777594/2024/09/18/dodgers-gavin-stone-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/style/maga-fashion-show.html
 **Atlantic City Mayor Indicted on Child Abuse Charges**\
 `Marty Small Sr. and his wife, the superintendent of the city’s schools, are accused of beating and punching their teenage daughter.`\
 https://nytimes.com/2024/09/18/nyregion/atlantic-city-mayor-marty-small-child-abuse.html
-
-**Body Is Found in Kentucky Near Site of Highway Shooting**\
-`Officials are working to confirm the identity. It was not clear if the discovery was related to the shooting this month that led to an intense manhunt.`\
-https://nytimes.com/2024/09/18/us/kentucky-highway-shooting-body.html
-
-**The Evening: The Fed’s Big Rate Cut**\
-`Plus, tonight’s premiere of  “The Golden Bachelorette.”`\
-https://nytimes.com/2024/09/18/briefing/fed-rate-cut-lebanon-hezbollah-harris-trump-bulletproof-backpacks.html
 
