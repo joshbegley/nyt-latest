@@ -1,3 +1,7 @@
+**Analyzing 4 MLS teams' chances at postseason glory**\
+`A look at how four MLS teams stack up heading into the season's final stretch `\
+https://nytimes.com/athletic/5774818/2024/09/18/mls-teams-to-watch-playoff-chances/
+
 **Dear TV producers: One NHL fan's 6 small requests for the 2024-25 season**\
 `From actual faceoff shots to less goalie pulls, here are some minor tweaks I’d love to see to NHL broadcasts.`\
 https://nytimes.com/athletic/5769009/2024/09/18/nhl-tv-producers-2024-25-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774998/2024/09/18/falcons-improbable-comeback-eagl
 **After all these years, NFL legend Fran Tarkenton is still scrambling**\
 `The Hall of Fame QB, now 84, thinks his style of play would succeed in today's NFL. "Patrick Mahomes doesn’t do anything I didn’t do."`\
 https://nytimes.com/athletic/5766363/2024/09/18/fran-tarkenton-vikings-scrambling/
-
-**Steve From ‘Blues Clues’ Is Still Here for You**\
-`The former star of the beloved children’s show has a new audience: adults on TikTok.`\
-https://nytimes.com/2024/09/18/style/steve-from-blues-clues-is-still-here-for-you.html
 

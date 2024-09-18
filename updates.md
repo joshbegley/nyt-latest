@@ -1,3 +1,7 @@
+**Analyzing 4 MLS teams' chances at postseason glory**\
+`A look at how four MLS teams stack up heading into the season's final stretch `\
+https://nytimes.com/athletic/5774818/2024/09/18/mls-teams-to-watch-playoff-chances/
+
 **Dear TV producers: One NHL fan's 6 small requests for the 2024-25 season**\
 `From actual faceoff shots to less goalie pulls, here are some minor tweaks I’d love to see to NHL broadcasts.`\
 https://nytimes.com/athletic/5769009/2024/09/18/nhl-tv-producers-2024-25-season/
