@@ -1,3 +1,7 @@
+**Dodgers' Bobby Miller hit hard again, leaving him with uncertain future**\
+`Miller hit 98 mph with his fastball, so why can't he get anyone out? “I think it is mental,” Dave Roberts said.`\
+https://nytimes.com/athletic/5775544/2024/09/17/dodgers-bobby-miller-rotation/
+
 **U.N. Sees ‘Human Rights Abyss’ in Myanmar as Military Kills Civilians**\
 `Three years after the military staged a coup, intensifying a civil war, civilians continue to pay the price, according to a coming United Nations report.`\
 https://nytimes.com/2024/09/17/world/asia/myanmar-human-rights-abuse-un.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/us/politics/elon-musk-donald-trump-super-pac.html
 **Secret Service Scrambled After Trump’s Short Notice on Golf Outing**\
 `The agency did not sweep the area where a gunman lay in wait for the former president at his club in Florida.`\
 https://nytimes.com/2024/09/17/us/politics/secret-service-trump.html
-
-**Cathy Merrick, Advocate for Indigenous People in Canada, Dies at 63**\
-`She was on the front lines of dogged fights against injustices, including a recent series of murders of Indigenous women by a white man.`\
-https://nytimes.com/2024/09/17/world/canada/cathy-merrick-dead.html
 
