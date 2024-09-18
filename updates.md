@@ -1,3 +1,19 @@
+**Woman Burned After Hiking Off Trail at Yellowstone National Park**\
+`The 60-year-old was walking with her husband and dog near a geyser when she broke through the ground into scalding waters on Monday afternoon, according to the National Park Service.`\
+https://nytimes.com/2024/09/18/us/hiker-burned-yellowstone-trail.html
+
+**The Briefing: Manchester City 0 Inter Milan 0 - De Bruyne worry, a strange backheel and more attacking?**\
+`Analysis of Manchester City's Champions League league stage game at home to Inter Milan`\
+https://nytimes.com/athletic/5771234/2024/09/18/manchester-city-inter-backheel-highlights/
+
+**Israel’s Focus Shifts From Hamas in Gaza to Hezbollah in Lebanon**\
+`Daily exchanges of fire between Hezbollah and Israel have been destructive, disruptive and sometimes deadly. An escalation could risk starting a wider regional conflict.`\
+https://nytimes.com/2024/09/18/world/middleeast/israel-war-focus-hezbollah-lebanon.html
+
+**Bruins-Jeremy Swayman standoff entering no-win territory as sides dig in: ‘Hurts our team, hurts him’**\
+`Don Sweeney called out reporting around Swayman's negotiations Wednesday and twice mentioned Dec. 1, the drop-dead date for a contract.`\
+https://nytimes.com/athletic/5777530/2024/09/18/bruins-jeremy-swayman-missing-training-camp/
+
 **On ‘Survivor,’ Talking Politics Could Get You Voted Off the Island**\
 `The show’s 47th season, which features Jon Lovett, a former Obama speechwriter, premieres Wednesday. But even in heated election years, presidential politics rarely intrudes.`\
 https://nytimes.com/2024/09/18/us/politics/survivor-season-47-jon-lovett.html
