@@ -1,3 +1,7 @@
+**The Windup: Altuve got ejected for *what*?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5776784/2024/09/18/jose-altuve-foot-ejection-the-windup/
+
 **Central Banks Around the World Are Easing Their Aggressive Stance**\
 `Inflation has fallen in most developed nations, and central bank officials are now trying to steer their economies toward a so-called soft landing.`\
 https://nytimes.com/2024/09/18/business/central-banks-interest-rates-inflation.html
