@@ -1,3 +1,11 @@
+**A postseason formula fuels Phillies in September as Bryce Harper and Zack Wheeler thrive**\
+`The formula is complicated until it's not. At their core, the Phillies are a team powered by stars.`\
+https://nytimes.com/athletic/5775619/2024/09/18/phillies-postseason-formula-bryce-harper-zack-wheeler/
+
+**Brighton's next step is to challenge for silverware - and they're primed for it**\
+`Finishing in the Premier League top 10 is a worthy target for club, but lifting a trophy would be an unforgettable moment for supporters`\
+https://nytimes.com/athletic/5725756/2024/09/18/brighton-trophies-carabao-fa-cup/
+
 **Farke's subs have long been a bone of contention at Leeds. This is the good and the bad**\
 `There has been significant criticism of Daniel Farke's substitutions throughout his time at Elland Road`\
 https://nytimes.com/athletic/5773243/2024/09/18/leeds-daniel-farke-substitutions/

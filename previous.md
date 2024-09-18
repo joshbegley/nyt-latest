@@ -1,3 +1,11 @@
+**A postseason formula fuels Phillies in September as Bryce Harper and Zack Wheeler thrive**\
+`The formula is complicated until it's not. At their core, the Phillies are a team powered by stars.`\
+https://nytimes.com/athletic/5775619/2024/09/18/phillies-postseason-formula-bryce-harper-zack-wheeler/
+
+**Brighton's next step is to challenge for silverware - and they're primed for it**\
+`Finishing in the Premier League top 10 is a worthy target for club, but lifting a trophy would be an unforgettable moment for supporters`\
+https://nytimes.com/athletic/5725756/2024/09/18/brighton-trophies-carabao-fa-cup/
+
 **Farke's subs have long been a bone of contention at Leeds. This is the good and the bad**\
 `There has been significant criticism of Daniel Farke's substitutions throughout his time at Elland Road`\
 https://nytimes.com/athletic/5773243/2024/09/18/leeds-daniel-farke-substitutions/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/briefing/pager-pelicot-harris.html
 **Will Premier League players really go on strike?**\
 `With ever-increasing demands on professional footballers – especially at the top level – we assess how likely strike action might be`\
 https://nytimes.com/athletic/5775042/2024/09/18/premier-league-footballer-strike-explainer/
-
-**What are PSG without Kylian Mbappe?**\
-`PSG go into their first Champions League campaign without Kylian Mbappe on Wednesday night`\
-https://nytimes.com/athletic/5771350/2024/09/18/kylian-mbappe-psg-squad-analysis/
-
-**Fantasy trends and hidden gems: A goalie draft guide, from bona fide starters to the wild cards**\
-`Shayna Goldman guides you through the fantasy hockey goalie pool for 2024-25, pointing out the need-to-knows at the position.`\
-https://nytimes.com/athletic/5772911/2024/09/18/fantasy-trends-and-hidden-gems-from-bonafide-starters-to-the-wild-cards-a-draft-guide-for-goalies/
 
