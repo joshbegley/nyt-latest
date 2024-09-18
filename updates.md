@@ -1,3 +1,7 @@
+**How the Blue Jackets plan to honor Johnny Gaudreau this season**\
+`COLUMBUS, Ohio — On the eve of training camp, Columbus Blue Jackets players said on Wednesday they&#8217;ve embraced a simple but powerful question — &#8220;What would Johnny want?&#8221; — to help them prepare to play the 2024-25 season.`\
+https://nytimes.com/athletic/5777110/2024/09/18/gaudreau-blue-jackets-tribute/
+
 **How We Forgot About the War on Terror**\
 `The global war on terror changed the course of American history. So why have we forgotten about it?`\
 https://nytimes.com/2024/09/18/opinion/war-on-terror-us-military.html
