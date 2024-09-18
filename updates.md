@@ -1,3 +1,7 @@
+**No Deebo Samuel or Christian McCaffrey on Sunday? Here are the 49ers' options ...**\
+`A pair of former 49ers running backs, Matt Breida and Jerick McKinnon, remain available in free agency.`\
+https://nytimes.com/athletic/5777878/2024/09/18/49ers-injuries-deebo-samuel-christian-mccaffrey/
+
 **How Israel Built a Modern-Day Trojan Horse: Exploding Pagers**\
 `The Israeli government did not tamper with the Hezbollah phones that exploded, defense and intelligence officials say. It manufactured them as part of an elaborate ruse.`\
 https://nytimes.com/2024/09/18/world/middleeast/israel-exploding-pagers-hezbollah.html
