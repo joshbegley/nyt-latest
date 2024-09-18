@@ -1,3 +1,7 @@
+**Justice Department Files $100 Million Claim in Fatal Baltimore Bridge Collapse**\
+`The crash of the Dali into the Francis Scott Key Bridge killed six people. The federal government says the owner and the operator were “grossly negligent” and “reckless.”`\
+https://nytimes.com/2024/09/18/us/justice-department-suit-baltimore-bridge-collapse.html
+
 **Shaw to miss Man City's clash vs Paris FC due to visa issue**\
 `Manchester City forward Khadija Shaw will miss Wednesday night’s Champions League qualifier against Paris FC due to a visa issue.`\
 https://nytimes.com/athletic/5776531/2024/09/18/khadija-shaw-manchester-city-paris-fc/
