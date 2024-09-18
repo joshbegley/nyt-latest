@@ -1,3 +1,7 @@
+**U.N. Body Demands Israel End Its ‘Unlawful Presence in the Occupied Palestinian Territory’**\
+`Nearly two-thirds of the U.N. General Assembly voted in favor of a nonbinding resolution calling for Israel to end its occupation within a year. The United States was among the opposition.`\
+https://nytimes.com/2024/09/18/world/middleeast/un-israel-occupation-palestinian.html
+
 **It’s the Economic Vibe, Stupid**\
 `Polling shows voters feel persistently sour about the economy, a confounding dynamic for Democrats.`\
 https://nytimes.com/2024/09/18/us/politics/fed-economy-harris-trump.html
