@@ -1,3 +1,7 @@
+**21 Juveniles Charged With Making School Threats in South Carolina**\
+`The charges are part of a sprawling investigation into more than 60 threats targeting schools in 23 counties since a mass shooting on Sept. 4 in Georgia in which four people were killed at a high school.`\
+https://nytimes.com/2024/09/18/us/south-carolina-school-threats-charges.html
+
 **No Deebo Samuel or Christian McCaffrey on Sunday? Here are the 49ers' options ...**\
 `A pair of former 49ers running backs, Matt Breida and Jerick McKinnon, remain available in free agency.`\
 https://nytimes.com/athletic/5777878/2024/09/18/49ers-injuries-deebo-samuel-christian-mccaffrey/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/us/politics/mike-johnson-spending-bill-shutdown.h
 **Johnston: Craig Berube sets the expectation as Maple Leafs camp opens — 'there’s got to be an identity'**\
 `The new Leafs coach is bringing a new tone: "Everybody's got to be held accountable, including me. It starts with me, obviously."`\
 https://nytimes.com/athletic/5777442/2024/09/18/craig-berube-maple-leafs-identity/
-
-**Trump’s Derision of Haitians Goes Back Years**\
-`Former President Donald J. Trump’s false comments about pet-eating Haitian immigrants are the latest in a pattern of attacks against people from the Caribbean nation.`\
-https://nytimes.com/2024/09/18/us/politics/trump-haitians.html
 
