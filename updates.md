@@ -1,3 +1,7 @@
+**Dear TV producers: One NHL fan's 6 small requests for the 2024-25 season**\
+`From actual faceoff shots to less goalie pulls, here are some minor tweaks I’d love to see to NHL broadcasts.`\
+https://nytimes.com/athletic/5769009/2024/09/18/nhl-tv-producers-2024-25-season/
+
 **Usyk released after being detained at Polish airport**\
 `Heavyweight boxing champion Oleksandr Usyk was briefly detained at Krakow airport in Poland on Tuesday before being released, according to Ukraine President Volodymyr Zelenskyy.`\
 https://nytimes.com/athletic/5775888/2024/09/18/oleksandr-usyk-detained-poland/
