@@ -1,3 +1,11 @@
+**Aston Villa's strange, surreal and memorable return to the Champions League**\
+`Aston Villa overcame Young Boys on Tuesday night as they returned to the Champions League`\
+https://nytimes.com/athletic/5775003/2024/09/18/aston-villa-champions-league-young-boys/
+
+**Everton Briefing: Boos for Dyche, fringe players flop - but one bright spark**\
+`The main talking points on another bleak night at Goodison Park as Everton exited the Carabao Cup`\
+https://nytimes.com/athletic/5775393/2024/09/18/everton-southampton-sean-dyche-fans/
+
 **Late Night Calls Out Violence Against Trump**\
 `“Not only is it morally wrong, but you’re also just giving him more things to brag about,” Ronny Chieng said on Tuesday’s “Daily Show.”`\
 https://nytimes.com/2024/09/18/arts/television/late-night-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5773427/2024/09/18/chelsea-jackson-nkunku-maresca/
 **Lance Lynn posts a gem in what could be his final home start at Busch Stadium**\
 `Lynn went 6-0 with a 3.15 ERA in 13 home starts this season and delivered a strong outing in his potential farewell.`\
 https://nytimes.com/athletic/5775389/2024/09/18/cardinals-mlb-lance-lynn-last-start/
-
-**It's time for West Ham to unleash Crysencio Summerville**\
-`Billed as a major signing after lighting up the Championship last season, it's about time the Dutchman was given a start in the league`\
-https://nytimes.com/athletic/5771079/2024/09/18/its-time-for-west-ham-to-unleash-crysencio-summerville/
-
-**A postseason formula fuels Phillies in September as Bryce Harper and Zack Wheeler thrive**\
-`The formula is complicated until it's not. At their core, the Phillies are a team powered by stars.`\
-https://nytimes.com/athletic/5775619/2024/09/18/phillies-postseason-formula-bryce-harper-zack-wheeler/
 

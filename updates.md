@@ -1,3 +1,11 @@
+**Aston Villa's strange, surreal and memorable return to the Champions League**\
+`Aston Villa overcame Young Boys on Tuesday night as they returned to the Champions League`\
+https://nytimes.com/athletic/5775003/2024/09/18/aston-villa-champions-league-young-boys/
+
+**Everton Briefing: Boos for Dyche, fringe players flop - but one bright spark**\
+`The main talking points on another bleak night at Goodison Park as Everton exited the Carabao Cup`\
+https://nytimes.com/athletic/5775393/2024/09/18/everton-southampton-sean-dyche-fans/
+
 **Late Night Calls Out Violence Against Trump**\
 `“Not only is it morally wrong, but you’re also just giving him more things to brag about,” Ronny Chieng said on Tuesday’s “Daily Show.”`\
 https://nytimes.com/2024/09/18/arts/television/late-night-trump.html
