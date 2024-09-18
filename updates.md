@@ -1,3 +1,15 @@
+**Vance Complains About Democrats Using ‘Fascist.’ Trump Uses It Often.**\
+`The Republican vice-presidential candidate blamed Democrats for political vitriol after Sunday’s apparent assassination attempt against Donald J. Trump.`\
+https://nytimes.com/2024/09/18/us/politics/vance-trump-fascist.html
+
+**Jon Gruden wants to return to coaching: 'I'll be ready to go if needed'**\
+`Gruden held an advisor role with the Saints last year, but he hasn't had a full-time NFL coaching role since resigning from the Raiders.`\
+https://nytimes.com/athletic/5777040/2024/09/18/jon-gruden-return-coaching/
+
+**Pioli appointed Al Nassr head coach after Milan exit**\
+`Stefano Pioli has been appointed as the new Al Nassr head coach.`\
+https://nytimes.com/athletic/5773650/2024/09/18/stefano-pioli-al-nassr/
+
 **What Visual Evidence Shows About Israel’s Pager Attacks**\
 `Some details of how the attacks unfolded are still a mystery. But initial imagery of the attacks on Tuesday and the explosive devices offers clues.`\
 https://nytimes.com/card/2024/09/18/world/middleeast/pager-explosions-hezbollah-israel

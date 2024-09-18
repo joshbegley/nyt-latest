@@ -1,3 +1,15 @@
+**Vance Complains About Democrats Using ‘Fascist.’ Trump Uses It Often.**\
+`The Republican vice-presidential candidate blamed Democrats for political vitriol after Sunday’s apparent assassination attempt against Donald J. Trump.`\
+https://nytimes.com/2024/09/18/us/politics/vance-trump-fascist.html
+
+**Jon Gruden wants to return to coaching: 'I'll be ready to go if needed'**\
+`Gruden held an advisor role with the Saints last year, but he hasn't had a full-time NFL coaching role since resigning from the Raiders.`\
+https://nytimes.com/athletic/5777040/2024/09/18/jon-gruden-return-coaching/
+
+**Pioli appointed Al Nassr head coach after Milan exit**\
+`Stefano Pioli has been appointed as the new Al Nassr head coach.`\
+https://nytimes.com/athletic/5773650/2024/09/18/stefano-pioli-al-nassr/
+
 **What Visual Evidence Shows About Israel’s Pager Attacks**\
 `Some details of how the attacks unfolded are still a mystery. But initial imagery of the attacks on Tuesday and the explosive devices offers clues.`\
 https://nytimes.com/card/2024/09/18/world/middleeast/pager-explosions-hezbollah-israel
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/turn-off-y
 **What is Hezbollah, the militant group based in Lebanon?**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/what-is-hezbollah-the-militant-group-based-in-lebanon
-
-**The Gruesome Creativity of Assassinations Enters a New Phase**\
-`This time, the target wasn’t a person, but an organization.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/hezbollah-israel-pagers-assassinations
-
-**Bruins' Jeremy Swayman, still unsigned, will not be on the ice for camp's start**\
-`GM Don Sweeney said on camp's eve that Swayman "has chosen to wait, and rightfully so, until a contract is settled."`\
-https://nytimes.com/athletic/5777003/2024/09/18/bruins-jeremy-swayman-training-camp-unsigned/
-
-**What’s in Our Queue? Cycladic Art and More**\
-`I’m a culture reporter for The New York Times, where I investigate the art world’s relationship to money, politics and technology. Here are five things I’m obsessed with.`\
-https://nytimes.com/interactive/2024/09/18/arts/editors-recommendations-cycladic-art.html
 
