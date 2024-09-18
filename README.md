@@ -1,3 +1,15 @@
+**Study Reveals Bird-Migration Mystery**\
+`By outfitting blackbirds with heart-rate monitors, scientists debunked a long-held assumption about the benefits of spending the winter in warm climates.`\
+https://nytimes.com/2024/09/18/science/birds-migration-energy.html
+
+**England Introduces Buffer Zones to Ban Protest Outside Abortion Clinics**\
+`“Safe access” zones outside clinics in England and Wales will make it illegal to harass anyone seeking medical services or working there, the British government said.`\
+https://nytimes.com/2024/09/18/world/europe/abortion-clinic-safe-zones-protests-england-wales.html
+
+**Gary Neville on Old Trafford plans: 'I want to see a world of Manchester United around that stadium'**\
+`Former right-back on his Old Trafford task-force role, whether he supports redevelopment or a new stadium, and how fans will be involved`\
+https://nytimes.com/athletic/5774538/2024/09/18/gary-neville-old-trafford-task-force-interview/
+
 **Bangladesh, Struggling to Restore Order, Gives Army Policing Powers**\
 `Public disorder has continued in the country, weeks after its autocratic leader was driven out by protests. Many police officers have still not returned to work.`\
 https://nytimes.com/2024/09/18/world/asia/bangladesh-army-police.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5775022/2024/09/18/commanders-jayden-daniels-poise/
 **10-Year-Old Student Is Stabbed Near Japanese School in China**\
 `The child was wounded and a 44-year-old man was in custody, the police said. Other Japanese schools in China warned parents and students to be cautious.`\
 https://nytimes.com/2024/09/18/world/asia/child-stabbed-japan-china.html
-
-**Five under-the-radar prospects in the Cubs' system**\
-`The Cubs have plenty of top-100 prospects, but they have some hidden gems too, including Christian Franklin and Brett Bateman.`\
-https://nytimes.com/athletic/5775478/2024/09/18/underrated-cubs-prospects-christian-franklin-jonathon-long/
-
-**An Interest Rate Cut**\
-`We explore the politics of today’s Fed announcement.`\
-https://nytimes.com/2024/09/18/briefing/federal-reserve-interest-rate-cut-election.html
-
-**Pager Attacks Embarrass Hezbollah but May Not Deter It, Analysts Say**\
-`The armed group’s history suggests that the attacks targeting its pagers will not cause it to change course or seek an accommodation with Israel.`\
-https://nytimes.com/2024/09/18/world/middleeast/hezbollah-israel-pager-lebanon.html
 
