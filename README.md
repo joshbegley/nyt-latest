@@ -1,3 +1,7 @@
+**Tupperware, Food Container Pioneer, Files for Bankruptcy**\
+`The once-mighty kitchenware company has struggled financially for years. It says the direct sales model that fueled its success has become a weakness.`\
+https://nytimes.com/2024/09/18/business/tupperware-bankruptcy.html
+
 **Roma sack De Rossi after eight months in charge**\
 `Daniele de Rossi has been sacked as Roma head coach after eight months in charge.`\
 https://nytimes.com/athletic/5775802/2024/09/18/daniele-de-rossi-sacked-roma/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/insider/pollution-effects.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/09/18/crosswords/spelling-bee-forum.html
-
-**Madrid's reliance on Rudiger and Militao is a worry - they don't have much choice**\
-`Madrid's starting centre-backs are in for a long season after the exits of other defenders and no new signings in that position`\
-https://nytimes.com/athletic/5775751/2024/09/18/real-madrid-antonio-rudiger-eder-militao/
 
