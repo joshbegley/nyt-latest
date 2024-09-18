@@ -30,7 +30,7 @@ https://nytimes.com/2024/09/18/briefing/lebanon-explosions-harris-kashmir.html
 `The 60-year-old was walking with her husband and dog near a geyser when she broke through the ground into scalding waters on Monday afternoon, according to the National Park Service.`\
 https://nytimes.com/2024/09/18/us/hiker-burned-yellowstone-trail.html
 
-**The Briefing: Manchester City 0 Inter Milan 0 - De Bruyne worry, a strange backheel and more attacking?**\
+**The Briefing: Man City 0 Inter Milan 0 - De Bruyne worry, a strange backheel and bold visitors**\
 `Analysis of Manchester City's Champions League league stage game at home to Inter Milan`\
 https://nytimes.com/athletic/5771234/2024/09/18/manchester-city-inter-backheel-highlights/
 
