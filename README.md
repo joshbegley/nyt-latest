@@ -1,3 +1,15 @@
+**Twins come together in win over Guardians behind all-around effort**\
+`From outstanding defense to a combined pitching effort to key hits from multiple players, the Twins topped the Guardians on the road.`\
+https://nytimes.com/athletic/5775574/2024/09/18/twins-team-victory-over-guardians/
+
+**Are Sonia Bompastor's new-look Chelsea ready for their WSL title defence?**\
+`Sonia Bompastor is the woman hired to fill Emma Hayes’ shoes at Chelsea - the David Moyes to Hayes’ Sir Alex Ferguson - but can she deliver?`\
+https://nytimes.com/athletic/5773423/2024/09/18/chelsea-pre-season-wsl-bompastor/
+
+**'He touched people's lives': Remembering Brian Clough, 20 years since his death**\
+`From his home town of Middlesbrough to the cities he put on the map and his final resting place, Daniel Taylor goes in search of 'Cloughie'`\
+https://nytimes.com/athletic/5771694/2024/09/18/remembering-brian-clough-20-years/
+
 **These Four Common Infections Can Cause Cancer**\
 `A new report says that 13 percent of cancers are linked to bacteria or viruses. Vaccines and treatments offer powerful protection.`\
 https://nytimes.com/2024/09/18/well/cancer-infections-vaccines-treatments.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/17/pageoneplus/quote-of-the-day-as-population-shrink
 **After speaking up, Pete Alonso steps up in Mets victory: 'I'm just really fired up'**\
 `Alonso delivered an emotional push for the stretch drive: “I just wanted to say something from the heart to the fellas.”`\
 https://nytimes.com/athletic/5775567/2024/09/17/after-speaking-up-pete-alonso-steps-up-in-mets-victory-im-just-really-fired-up/
-
-**Dodgers' Bobby Miller hit hard again, leaving him with uncertain future**\
-`Miller hit 98 mph with his fastball, so why can't he get anyone out? “I think it is mental,” Dave Roberts said.`\
-https://nytimes.com/athletic/5775544/2024/09/17/dodgers-bobby-miller-rotation/
-
-**U.N. Sees ‘Human Rights Abyss’ in Myanmar as Military Kills Civilians**\
-`Three years after the military staged a coup, intensifying a civil war, civilians continue to pay the price, according to a coming United Nations report.`\
-https://nytimes.com/2024/09/17/world/asia/myanmar-human-rights-abuse-un.html
-
-**Go for a Rebound**\
-`Casey Callaghan and Will Nediger reach new heights in their collaboration debut.`\
-https://nytimes.com/2024/09/17/crosswords/daily-puzzle-2024-09-18.html
 
