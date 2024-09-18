@@ -1,3 +1,15 @@
+**Device Explosions Are Latest Covert Attack Attributed to Israel**\
+`Israel is believed to have conducted a series of clandestine attacks on adversaries linked to Iran in recent years, sometimes using highly innovative tactics. Some have involved highly innovative tactics.`\
+https://nytimes.com/2024/09/18/world/middleeast/israel-hezbollah-pager-attacks-history.html
+
+**Coast Guard Releases Video of Titan Submersible Wreck**\
+`The U.S. Coast Guard released new footage of the tail cone from the Titan submersible at the bottom of the ocean. A piece of carbon fiber is next to the tail cone.`\
+https://nytimes.com/video/science/earth/100000009704208/oceangate-titan-submersible-wreck.html
+
+**There Was Nothing Political About the Fed’s Big Interest Rate Cut**\
+`If anything, the cutting should have begun earlier.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/fed-rate-cut-political
+
 **USC's surge continues, top-50 WR Jerome Myles commits**\
 `Myles, who plays at Corner Canyon High School in Draper, Utah, is ranked No. 36 overall in the Class of 2025.`\
 https://nytimes.com/athletic/5776247/2024/09/18/usc-recruiting-jerome-myles/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5773650/2024/09/18/stefano-pioli-al-nassr/
 **What Visual Evidence Shows About Israel’s Pager Attacks**\
 `Some details of how the attacks unfolded are still a mystery. But initial imagery of the attacks on Tuesday and the explosive devices offers clues.`\
 https://nytimes.com/card/2024/09/18/world/middleeast/pager-explosions-hezbollah-israel
-
-**Harris Will Give Abortion Speech in Georgia After Deaths of Two Women**\
-`The vice president has said the stories of pregnant women who have been denied or have been unable to gain access to medical care show the consequences of former President Donald J. Trump’s actions.`\
-https://nytimes.com/2024/09/18/us/politics/harris-abortion-georgia.html
-
-**Odegaard out 'for a while' with ankle ligament injury - Mikel Arteta**\
-`Mikel Arteta has said that Arsenal captain Martin Odegaard will be out &#8220;for a while&#8221; after sustaining an ankle ligament injury.`\
-https://nytimes.com/athletic/5757753/2024/09/18/odegaard-arsenal-injury-update/
-
-**2 Dead in Moscow Shooting Tied to Russia’s Richest Woman**\
-`Tatyana V. Bakalchuk, the founder of Russia’s biggest online retailer, has been locked in a dispute with her estranged husband for months over the fate of her company.`\
-https://nytimes.com/2024/09/18/world/europe/russia-shooting-wildberries-bakalchuk.html
 
