@@ -1,3 +1,7 @@
+**Late Night Calls Out Violence Against Trump**\
+`“Not only is it morally wrong, but you’re also just giving him more things to brag about,” Ronny Chieng said on Tuesday’s “Daily Show.”`\
+https://nytimes.com/2024/09/18/arts/television/late-night-trump.html
+
 **Taiwan Company Tries to Distance Itself From Pagers Used in Lebanon Attack**\
 `The company, Gold Apollo, said it had not manufactured the devices, pointing to another company that has a licensing agreement to use its label.`\
 https://nytimes.com/2024/09/18/world/asia/taiwan-pagers-lebanon.html
