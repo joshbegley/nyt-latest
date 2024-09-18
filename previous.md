@@ -1,3 +1,27 @@
+**The Police Called. He Checked the News, and His ‘Heart Dropped.’**\
+`Gregory Delpeche, a bystander, is in critical condition after being shot by a police officer at a Brooklyn subway station. His friend of decades says it never should have happened.`\
+https://nytimes.com/2024/09/18/nyregion/nypd-shooting-brooklyn-subway-bystander.html
+
+**Trump, Hardly New York’s Favorite Son, Brings His Message to Long Island**\
+`Donald J. Trump’s rally in Nassau County on Wednesday is another sign of the area’s shift to the right, but some question his choice to spend time in a non-battleground state.`\
+https://nytimes.com/2024/09/18/nyregion/trump-long-island-nassau.html
+
+**Water Bottles**\
+`Did you get a new one to start the school year?`\
+https://nytimes.com/2024/09/18/learning/water-bottles.html
+
+**A $336 Million Plan to Build Housing, Retail and an Arts Hub in Newark**\
+`NJPAC in Newark is building apartments, retail space and a huge community center. It sees the project as key to its mission — and its future.`\
+https://nytimes.com/2024/09/18/nyregion/performing-arts-real-estate-nj.html
+
+**Plastic Waste and Toxic Sludge: A Sweep of a Messy Beat**\
+`The Climate reporter Hiroko Tabuchi is interested in all the things we take for granted about our environment.`\
+https://nytimes.com/2024/09/18/insider/pollution-effects.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/18/crosswords/spelling-bee-forum.html
+
 **Madrid's reliance on Rudiger and Militao is a worry - they don't have much choice**\
 `Madrid's starting centre-backs are in for a long season after the exits of other defenders and no new signings in that position`\
 https://nytimes.com/athletic/5775751/2024/09/18/real-madrid-antonio-rudiger-eder-militao/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5775745/2024/09/18/yankees-juan-soto-free-agency-20
 **Deep Links Between Alcohol and Cancer Are Described in New Report**\
 `Scientists continue to rethink the idea that moderate drinking offers health benefits.`\
 https://nytimes.com/2024/09/18/health/alcohol-cancer-young-adults.html
-
-**Word of the Day: disproportionate**\
-`This word has appeared in 283 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/18/learning/word-of-the-day-disproportionate.html
-
-**Eddie Nketiah is off the mark at Crystal Palace and impressing in a new role**\
-`The striker signed from Arsenal has been asked to operate as a No 10 in his first two games under Oliver Glasner, a role he has embraced`\
-https://nytimes.com/athletic/5767206/2024/09/18/palace-nketiah-striker-10-qpr/
-
-**Aston Villa's strange, surreal and memorable return to the Champions League**\
-`Aston Villa overcame Young Boys on Tuesday night as they returned to the Champions League`\
-https://nytimes.com/athletic/5775003/2024/09/18/aston-villa-champions-league-young-boys/
-
-**Everton Briefing: Boos for Dyche, fringe players flop - but one bright spark**\
-`The main talking points on another bleak night at Goodison Park as Everton exited the Carabao Cup`\
-https://nytimes.com/athletic/5775393/2024/09/18/everton-southampton-sean-dyche-fans/
-
-**Late Night Calls Out Violence Against Trump**\
-`“Not only is it morally wrong, but you’re also just giving him more things to brag about,” Ronny Chieng said on Tuesday’s “Daily Show.”`\
-https://nytimes.com/2024/09/18/arts/television/late-night-trump.html
-
-**Taiwan Company Tries to Distance Itself From Pagers Used in Lebanon Attack**\
-`The company, Gold Apollo, said it had not manufactured the devices, pointing to another company that has a licensing agreement to use its label.`\
-https://nytimes.com/2024/09/18/world/asia/taiwan-pagers-lebanon.html
 
