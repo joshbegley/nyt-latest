@@ -1,3 +1,7 @@
+**Young 'can still be a franchise quarterback'**\
+`Panthers get back to work with Bryce Young running the scout team and Andy Dalton as QB1.`\
+https://nytimes.com/athletic/5777526/2024/09/18/bryce-young-panthers-backup-qb-andy-dalton/
+
 **Mets ace Kodai Senga feels closer to big-league return**\
 `NEW YORK — As the Mets push for the postseason, there’s still a chance they add a significant piece to their pitching staff.`\
 https://nytimes.com/athletic/5777814/2024/09/18/mets-kodai-senga-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5777542/2024/09/18/kyle-hendricks-intends-to-pitch-
 **Will Jordan Love play Sunday? Packers QB 'hopeful' to be back for Titans Sunday**\
 `Love returned to practice Wednesday for the first time since injuring his knee in Brazil against the Eagles.`\
 https://nytimes.com/athletic/5777514/2024/09/18/jordan-love-injury-packers-titans/
-
-**Valarie D’Elia, Travel Reporter on TV and Radio, Dies at 64**\
-`She steered vacationers and business travelers to choice destinations, talked about the best deals, and offered up savvy tips on how to avoid vexation.`\
-https://nytimes.com/2024/09/18/business/media/valarie-delia-dead.html
 
