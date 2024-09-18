@@ -1,5 +1,5 @@
 **A poised Jayden Daniels is remembering to have fun while leading Commanders**\
-`“That’s what you live for, those moments,” the rookie QB said after leading the game-winning touchdown drive against the Giants in Week 2.`\
+`“That’s what you live for, those moments,” the rookie QB said after leading the game-winning drive against the Giants in Week 2.`\
 https://nytimes.com/athletic/5775022/2024/09/18/commanders-jayden-daniels-poise/
 
 **10-Year-Old Student Is Stabbed Near Japanese School in China**\
