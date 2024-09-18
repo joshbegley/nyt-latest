@@ -1,3 +1,7 @@
+**Trump Makes Big Promises, With Little Detail, for Michigan’s Auto Industry**\
+`At his first campaign event since the apparent assassination attempt on Sunday, Donald J. Trump used dire language to insist that if he loses in November it would crush auto jobs.`\
+https://nytimes.com/2024/09/17/us/politics/trump-michigan-town-hall-tariffs.html
+
 **Liberty clinch No. 1 seed in WNBA playoffs; Lynx nab No. 2**\
 `This is the first time New York claimed the No. 1 seed since the 2015 WNBA playoffs.`\
 https://nytimes.com/athletic/5775146/2024/09/17/liberty-lynx-wnba-playoff-seeds/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/nyregion/eric-adams-resignations-scandal.html
 **Until Saturday: Pac-12-Mountain West drama, plus Texas moves to No. 1**\
 `Welcome to Until Saturday, the five-star college football newsletter: How the Pac-12 expansion came together and what’s next.`\
 https://nytimes.com/athletic/5772190/2024/09/17/pac-12-expansion-mountain-west-conference-until-saturday/
-
-**California Passes Election ‘Deepfake’ Laws, Forcing Social Media Companies to Take Action**\
-`The state joins dozens of others in regulating the A.I. fakery in ways that could impact this year’s presidential race.`\
-https://nytimes.com/2024/09/17/technology/california-deepfakes-law-social-media-newsom.html
 

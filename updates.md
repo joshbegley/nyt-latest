@@ -1,3 +1,7 @@
+**Trump Makes Big Promises, With Little Detail, for Michigan’s Auto Industry**\
+`At his first campaign event since the apparent assassination attempt on Sunday, Donald J. Trump used dire language to insist that if he loses in November it would crush auto jobs.`\
+https://nytimes.com/2024/09/17/us/politics/trump-michigan-town-hall-tariffs.html
+
 **Liberty clinch No. 1 seed in WNBA playoffs; Lynx nab No. 2**\
 `This is the first time New York claimed the No. 1 seed since the 2015 WNBA playoffs.`\
 https://nytimes.com/athletic/5775146/2024/09/17/liberty-lynx-wnba-playoff-seeds/
