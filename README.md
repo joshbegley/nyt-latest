@@ -1,3 +1,7 @@
+**On ‘Survivor,’ Talking Politics Could Get You Voted Off the Island**\
+`The show’s 47th season, which features Jon Lovett, a former Obama speechwriter, premieres Wednesday. But even in heated election years, presidential politics rarely intrudes.`\
+https://nytimes.com/2024/09/18/us/politics/survivor-season-47-jon-lovett.html
+
 **Titan Disaster Hearing Upends Earlier Expert Theories on Crew Deaths**\
 `Two days of reporting and testifying by experts during a U.S. Coast Guard inquiry challenge the idea that the submersible’s passengers knew they were facing death.`\
 https://nytimes.com/2024/09/18/science/titan-disaster-hearing-crew-deaths-theories.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/world/americas/brazil-musk-x-ban.html
 **John Cassaday, Award-Winning Comic Book Artist, Dies at 52**\
 `In series like Planetary, of which he was a creator, and Astonishing X-Men, his drawings conveyed a sense of realism in situations that were often fantastical.`\
 https://nytimes.com/2024/09/18/arts/john-cassaday-dead.html
-
-**Federal Reserve Cuts Interest Rates for the First Time in Four Years**\
-`Jerome H. Powell, the Fed chair, said that the central bank would take future interest rate cuts “meeting by meeting” after lowering rates by a half percentage point, an unusually large move.`\
-https://nytimes.com/video/business/economy/100000009704500/federal-reserve-interest-rates-cut.html
 
