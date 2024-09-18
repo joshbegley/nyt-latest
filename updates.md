@@ -1,3 +1,11 @@
+**‘You’re Basically on a Broadway Stage, With New Friends’**\
+`At the touring dance party Broadway Rave, the playlist is all show tunes. But don’t worry, no house remixes of “I Dreamed a Dream” here.`\
+https://nytimes.com/2024/09/18/theater/broadway-rave-theater-musicals.html
+
+**Breaking down the highest-scoring penalty shootout in professional English football**\
+`Preston and Fulham played out a 16-15 penalty shootout in the Carabao Cup on Wednesday night`\
+https://nytimes.com/athletic/5775851/2024/09/18/penalty-shootout-highest-scoring-england/
+
 **Join NYT Cooking for an ‘Easy Weeknight Dinners’ Book Talk in N.Y.C.**\
 `Emily Weinstein, Melissa Clark and Eric Kim will discuss the new cookbook, recipe writing, their go-to meals and tips for simple yet delicious cooking in a special event with Taffy Brodesser-Akner on Oct. 7 at the Times Center.`\
 https://nytimes.com/2024/09/18/dining/nyt-cooking-easy-weeknight-dinners-book-talk.html

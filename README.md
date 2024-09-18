@@ -1,7 +1,3 @@
-**‘You’re Basically on a Broadway Stage, With New Friends’**\
-`At the touring dance party Broadway Rave, the playlist is all show tunes. But don’t worry, no house remixes of “I Dreamed a Dream” here.`\
-https://nytimes.com/2024/09/18/theater/broadway-rave-theater-musicals.html
-
 **Join NYT Cooking for an ‘Easy Weeknight Dinners’ Book Talk in N.Y.C.**\
 `Emily Weinstein, Melissa Clark and Eric Kim will discuss the new cookbook, recipe writing, their go-to meals and tips for simple yet delicious cooking in a special event with Taffy Brodesser-Akner on Oct. 7 at the Times Center.`\
 https://nytimes.com/2024/09/18/dining/nyt-cooking-easy-weeknight-dinners-book-talk.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/18/style/coming-out-family-members-support.html
 **A 9-Year-Old Girl Killed in Pager Attack Is Mourned in Lebanon**\
 `“The enemy killed us using this small device!” mourners chanted at the funeral for Fatima Abdullah, a fourth grader.`\
 https://nytimes.com/2024/09/18/world/middleeast/lebanon-funeral-pager-attack.html
+
+**Cheaper Mortgages and Car Loans: Lower Rates Are on the Horizon**\
+`With the Federal Reserve expected to lower interest rates, some borrowing costs have begun to ease — signs that loans may become cheaper in the near future.`\
+https://nytimes.com/interactive/2024/09/18/business/economy/consumer-interest-rates.html
 
