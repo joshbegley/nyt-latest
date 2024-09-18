@@ -1,3 +1,11 @@
+**Ivan Perisic joins PSV on free transfer**\
+`PSV Eindhoven have signed Croatia international Ivan Perisic on a free transfer.`\
+https://nytimes.com/athletic/5776697/2024/09/18/ivan-perisic-psv-transfer/
+
+**Adrian Wojnarowski retires from ESPN**\
+`By leaving his role, Wojnarowski is walking away from $20 million with ESPN, multiple people briefed on the move said.`\
+https://nytimes.com/athletic/5776705/2024/09/18/adrian-wojnarowski-espn-exit/
+
 **America’s Oil Country Increasingly Runs on Renewables**\
 `Texas, the biggest oil-producing state, has turned to solar power and battery storage to see it through extreme weather. But with demand rising, much more power will be needed.`\
 https://nytimes.com/2024/09/18/us/texas-grid-renewables-battery-storage-solar.html

@@ -1,3 +1,11 @@
+**Ivan Perisic joins PSV on free transfer**\
+`PSV Eindhoven have signed Croatia international Ivan Perisic on a free transfer.`\
+https://nytimes.com/athletic/5776697/2024/09/18/ivan-perisic-psv-transfer/
+
+**Adrian Wojnarowski retires from ESPN**\
+`By leaving his role, Wojnarowski is walking away from $20 million with ESPN, multiple people briefed on the move said.`\
+https://nytimes.com/athletic/5776705/2024/09/18/adrian-wojnarowski-espn-exit/
+
 **America’s Oil Country Increasingly Runs on Renewables**\
 `Texas, the biggest oil-producing state, has turned to solar power and battery storage to see it through extreme weather. But with demand rising, much more power will be needed.`\
 https://nytimes.com/2024/09/18/us/texas-grid-renewables-battery-storage-solar.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5776082/2024/09/18/liverpool-milan-champions-league
 **My Cauliflower Shawarma Is Worth Staying In For**\
 `And our readers agree: “One of my all time favorite NYT Cooking recipes,” one says. “Try this, you will not regret it,” another writes.`\
 https://nytimes.com/2024/09/18/dining/my-cauliflower-shawarma-is-worth-staying-in-for.html
-
-**The Final Hours of a Tastemaker’s Trove**\
-`The society fixture, decorator and philanthropist Mica Ertegun helped define the tastes of an era. Now her great collections are going on the block.`\
-https://nytimes.com/2024/09/18/style/mica-ertegun-auction-christies.html
-
-**A New Shark Joins the Tank as Mark Cuban Departs**\
-`Daniel Lubetzky, the founder of the Kind snack company, began appearing as a guest on “Shark Tank” five years ago. Soon he’ll have a permanent seat.`\
-https://nytimes.com/2024/09/18/business/daniel-lubetzky-shark-tank-mark-cuban.html
 
