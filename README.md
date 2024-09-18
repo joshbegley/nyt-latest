@@ -1,3 +1,7 @@
+**How the Blue Jackets plan to honor Johnny Gaudreau this season**\
+`COLUMBUS, Ohio — On the eve of training camp, Columbus Blue Jackets players said on Wednesday they&#8217;ve embraced a simple but powerful question — &#8220;What would Johnny want?&#8221; — to help them prepare to play the 2024-25 season.`\
+https://nytimes.com/athletic/5777110/2024/09/18/gaudreau-blue-jackets-tribute/
+
 **Teamsters Won’t Endorse a Candidate for President in 2024**\
 `The Teamsters president, Sean O’Brien, has shown an openness to former President Donald J. Trump, dividing the powerful union. Neither candidate will be the beneficiary of the considerable organizing muscle.`\
 https://nytimes.com/2024/09/18/us/politics/teamsters-endorsement-2024-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/dining/how-to-braise-chicken.html
 **Adrian Wojnarowski is now the GM at St. Bonaventure: What does that mean in college basketball?**\
 `The responsibilities of a general manger, a position new to the collegiate game, vary dramatically from school to school.`\
 https://nytimes.com/athletic/5777091/2024/09/18/wojnarowski-general-manager-college-basketball-st-bonaventure/
-
-**Masai Ujiri's future with Raptors dicier than ever after Rogers buys out Bell: Koreen**\
-`The relationship between Masai Ujiri and Edward Rogers is now the defining one for the Raptors. `\
-https://nytimes.com/athletic/5776913/2024/09/18/rogers-bell-sale-masai-ujiri-toronto-raptors/
 
