@@ -1,3 +1,7 @@
+**Roma sack De Rossi after eight months in charge**\
+`Daniele de Rossi has been sacked as Roma head coach after eight months in charge.`\
+https://nytimes.com/athletic/5775802/2024/09/18/daniele-de-rossi-sacked-roma/
+
 **Just a Really Fantastic Fashion Show**\
 `Francesco Risso creates a triumphant Marni collection.`\
 https://nytimes.com/2024/09/18/style/marni-milan-fashion-week.html
