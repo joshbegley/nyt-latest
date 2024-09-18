@@ -1,3 +1,15 @@
+**California Mountain Towns Are Too Risky for Insurers, but Residents Want to Stay**\
+`In the San Bernardino Mountains, another wildfire has forced residents to flee, the latest reminder that they must accept the risks of climate change if they want to remain.`\
+https://nytimes.com/2024/09/18/us/san-bernardino-wildfire-risk.html
+
+**When a Republican Governor Couldn’t Win on Abortion, He Tried to Cheat**\
+`When ‘states’ rights’ means subverting the will of the people.`\
+https://nytimes.com/2024/09/18/opinion/desantis-amendment-4-abortion.html
+
+**My Grandniece Was Thrown Out of Her House for Being Gay. What Can I Do?**\
+`Because of a family rift, the girl is unaware that she has an uncle in a 35-year same-sex relationship who wants to help. Is it possible to reach out without creating trouble?`\
+https://nytimes.com/2024/09/18/style/coming-out-family-members-support.html
+
 **A 9-Year-Old Girl Killed in Pager Attack Is Mourned in Lebanon**\
 `“The enemy killed us using this small device!” mourners chanted at the funeral for Fatima Abdullah, a fourth grader.`\
 https://nytimes.com/2024/09/18/world/middleeast/lebanon-funeral-pager-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/18/us/politics/republican-officials-harris-endorseme
 **G.M. Electric Vehicles Gain Access to Tesla Chargers**\
 `After a delay of several months, General Motors said owners of its battery-powered models would now be able to use Tesla charging stations with adapters.`\
 https://nytimes.com/2024/09/18/business/energy-environment/tesla-general-motors-ev-charging.html
-
-**Pagers, Once Ubiquitous, Retain Niche Appeal**\
-`Pagers lack more modern navigation technologies so can be harder to track, but are still widely used in hospitals for their reliable service.`\
-https://nytimes.com/2024/09/18/world/middleeast/what-is-pager-hezbollah.html
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/09/18/us/trump-harris-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Trump Set to Hold Rally on Long Island**\
-`Donald J. Trump will speak to a gathering in a Democratic stronghold, while Kamala Harris will address the Congressional Hispanic Caucus Institute in Washington, D.C.`\
-https://nytimes.com/live/2024/09/18/us/trump-harris-election
 
