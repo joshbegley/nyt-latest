@@ -1,40 +1,40 @@
-**Israel’s Pager Attack Has No Clear Strategic Goal, Analysts Say**\
-`By targeting so many pagers at the same time, Israel demonstrated technical prowess. But its long-term intent is unclear.`\
-https://nytimes.com/2024/09/18/world/middleeast/israel-hezbollah-pager-attack.html
+**What we're seeing from Canucks, Jets, Flames and Oilers prospects in Penticton**\
+`Here's what we observed at this year's Penticton Young Stars tournament and what it means for various Canadian teams and their prospects.`\
+https://nytimes.com/athletic/5771973/2024/09/18/canucks-jets-flames-oilers-prospects/
 
-**Russia Seizes Eastern Town as Ukraine Says It Hit a Big Ammunition Depot**\
-`The capture of Ukrainsk underscored Russia’s steady advances in the Donetsk region. Ukraine is trying to counter with strikes on Russian military infrastructure.`\
-https://nytimes.com/2024/09/18/world/europe/ukraine-russia-strikes.html
+**Panthers' rush to start Bryce Young is QB malpractice seen all too often in NFL**\
+`Teams are far too impulsive in starting their first-round QBs. Young is just the latest prospect whose future is at risk because of it.`\
+https://nytimes.com/athletic/5774441/2024/09/18/panthers-bryce-young-rookie-quarterback-struggles/
 
-**Gianpiero Lambiase promoted as part of Red Bull F1 restructure**\
-`Max Verstappen’s Formula One race engineer, Gianpiero Lambiase, has been promoted as part of a restructure within Red Bull Racing following the departure of sporting director Jonathan Wheatley.`\
-https://nytimes.com/athletic/5775935/2024/09/18/gianpiero-lambiase-red-bull-formula-one/
+**Ates: Why the Jets will be defined by how they handle a recurring obstacle**\
+`Can the Jets elevate their game down the stretch without getting too high on any early-season success?`\
+https://nytimes.com/athletic/5771665/2024/09/18/winnipeg-jets-training-camp-2024-obstacle/
 
-**Kashmiris Are Voting Again. But Do They Have a Voice?**\
-`An election that began on Wednesday will restore some of the self-rule India took away in 2019. But a lasting chill has fallen over Kashmir.`\
-https://nytimes.com/2024/09/18/world/asia/kashmir-election.html
+**Inside the Devils' offseason overhaul: How Tom Fitzgerald pulled off one of the NHL's splashiest summers**\
+`After a disappointing step back in 2023-24 and failing to get his goalie at the deadline, the Devils GM had a long to-do list.`\
+https://nytimes.com/athletic/5773891/2024/09/18/devils-offseason-overhaul-markstrom/
 
-**Schillaci, former World Cup Golden Boot winner, dies aged 59**\
-`Former Italy and Juventus forward Salvatore Schillaci has died at the age of 59.`\
-https://nytimes.com/athletic/5775889/2024/09/18/salvatore-schillaci-dies/
+**Blackhawks' 10 biggest training camp questions**\
+`Which prospects will make the team? Will they name a captain? And how the heck can we watch CHSN?`\
+https://nytimes.com/athletic/5773884/2024/09/18/blackhawks-training-camp-questions/
 
-**Abused in Public Housing, Victims Often Face a Long Wait to Move**\
-`A 2013 provision to federal law was intended to ensure that domestic violence victims living in subsidized housing could move quickly to safer homes. But they often wait in fear.`\
-https://nytimes.com/2024/09/18/us/domestic-violence-victims-affordable-housing.html
+**How Extremists Took Over Israel**\
+`The growing sway of far-right settlers in the West Bank has pushed Israeli politics toward a crisis.`\
+https://nytimes.com/2024/09/18/podcasts/the-daily/israel-extremism-west-bank.html
 
-**Analyzing 4 MLS teams' chances at postseason glory**\
-`A look at how four MLS teams stack up heading into the season's final stretch `\
-https://nytimes.com/athletic/5774818/2024/09/18/mls-teams-to-watch-playoff-chances/
+**Hezbollah Blames Israel for Deadly Pager Attack, and Fed Expected to Cut Rates**\
+`Plus, gymnast Jordan Chiles’s Olympic medal fight.`\
+https://nytimes.com/2024/09/18/podcasts/lebanon-pagers-fed-rates.html
 
-**Dear TV producers: One NHL fan's 6 small requests for the 2024-25 season**\
-`From actual faceoff shots to less goalie pulls, here are some minor tweaks I’d love to see to NHL broadcasts.`\
-https://nytimes.com/athletic/5769009/2024/09/18/nhl-tv-producers-2024-25-season/
+**Who's to blame for Colts' abysmal run defense, and how can they fix it?**\
+`The Colts' second-half run defense in Green Bay was far better. Can they carry over those improvements against the Bears?`\
+https://nytimes.com/athletic/5774672/2024/09/18/colts-run-defense-gus-bradley-week-3/
 
-**Usyk released after being detained at Polish airport**\
-`Heavyweight boxing champion Oleksandr Usyk was briefly detained at Krakow airport in Poland on Tuesday before being released, according to Ukraine President Volodymyr Zelenskyy.`\
-https://nytimes.com/athletic/5775888/2024/09/18/oleksandr-usyk-detained-poland/
+**Tennis storylines to watch: Nadal's fitness, WTA finals in Saudi, and which Tiafoe will turn up?**\
+`Even with no more Grand Slams this year, there are plenty of talking points between now and the end of the season...`\
+https://nytimes.com/athletic/5773388/2024/09/18/tennis-atp-wta-finals-saudi-nadal-alcaraz/
 
-**The Man Behind the End of Roe v. Wade Has Big Plans for America**\
-`In the world of political fund-raising, there is hard money, soft money, dark money — and Leonard Leo money.`\
-https://nytimes.com/2024/09/18/opinion/leonard-leo-fundraising-supreme-court-irs.html
+**Old Trafford task force to deliver recommendation by end of year**\
+`The Old Trafford task force is to deliver its recommendation for the future of Manchester United&#8217;s stadium by the end of December.`\
+https://nytimes.com/athletic/5775943/2024/09/18/manchester-united-stadium-plans-old-trafford/
 

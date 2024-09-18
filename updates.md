@@ -1,3 +1,43 @@
+**What we're seeing from Canucks, Jets, Flames and Oilers prospects in Penticton**\
+`Here's what we observed at this year's Penticton Young Stars tournament and what it means for various Canadian teams and their prospects.`\
+https://nytimes.com/athletic/5771973/2024/09/18/canucks-jets-flames-oilers-prospects/
+
+**Panthers' rush to start Bryce Young is QB malpractice seen all too often in NFL**\
+`Teams are far too impulsive in starting their first-round QBs. Young is just the latest prospect whose future is at risk because of it.`\
+https://nytimes.com/athletic/5774441/2024/09/18/panthers-bryce-young-rookie-quarterback-struggles/
+
+**Ates: Why the Jets will be defined by how they handle a recurring obstacle**\
+`Can the Jets elevate their game down the stretch without getting too high on any early-season success?`\
+https://nytimes.com/athletic/5771665/2024/09/18/winnipeg-jets-training-camp-2024-obstacle/
+
+**Inside the Devils' offseason overhaul: How Tom Fitzgerald pulled off one of the NHL's splashiest summers**\
+`After a disappointing step back in 2023-24 and failing to get his goalie at the deadline, the Devils GM had a long to-do list.`\
+https://nytimes.com/athletic/5773891/2024/09/18/devils-offseason-overhaul-markstrom/
+
+**Blackhawks' 10 biggest training camp questions**\
+`Which prospects will make the team? Will they name a captain? And how the heck can we watch CHSN?`\
+https://nytimes.com/athletic/5773884/2024/09/18/blackhawks-training-camp-questions/
+
+**How Extremists Took Over Israel**\
+`The growing sway of far-right settlers in the West Bank has pushed Israeli politics toward a crisis.`\
+https://nytimes.com/2024/09/18/podcasts/the-daily/israel-extremism-west-bank.html
+
+**Hezbollah Blames Israel for Deadly Pager Attack, and Fed Expected to Cut Rates**\
+`Plus, gymnast Jordan Chiles’s Olympic medal fight.`\
+https://nytimes.com/2024/09/18/podcasts/lebanon-pagers-fed-rates.html
+
+**Who's to blame for Colts' abysmal run defense, and how can they fix it?**\
+`The Colts' second-half run defense in Green Bay was far better. Can they carry over those improvements against the Bears?`\
+https://nytimes.com/athletic/5774672/2024/09/18/colts-run-defense-gus-bradley-week-3/
+
+**Tennis storylines to watch: Nadal's fitness, WTA finals in Saudi, and which Tiafoe will turn up?**\
+`Even with no more Grand Slams this year, there are plenty of talking points between now and the end of the season...`\
+https://nytimes.com/athletic/5773388/2024/09/18/tennis-atp-wta-finals-saudi-nadal-alcaraz/
+
+**Old Trafford task force to deliver recommendation by end of year**\
+`The Old Trafford task force is to deliver its recommendation for the future of Manchester United&#8217;s stadium by the end of December.`\
+https://nytimes.com/athletic/5775943/2024/09/18/manchester-united-stadium-plans-old-trafford/
+
 **Israel’s Pager Attack Has No Clear Strategic Goal, Analysts Say**\
 `By targeting so many pagers at the same time, Israel demonstrated technical prowess. But its long-term intent is unclear.`\
 https://nytimes.com/2024/09/18/world/middleeast/israel-hezbollah-pager-attack.html
