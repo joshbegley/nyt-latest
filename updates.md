@@ -1,3 +1,7 @@
+**Liberty clinch No. 1 seed in WNBA playoffs; Lynx nab No. 2**\
+`This is the first time New York claimed the No. 1 seed since the 2015 WNBA playoffs.`\
+https://nytimes.com/athletic/5775146/2024/09/17/liberty-lynx-wnba-playoff-seeds/
+
 **Cathy Merrick, Advocate for Indigenous People in Canada, Dies at 63**\
 `She was on the front lines of dogged fights against injustices, including a recent series of murders of Indigenous women by a white man.`\
 https://nytimes.com/2024/09/17/world/canada/cathy-merrick-dead.html
