@@ -1,3 +1,7 @@
+**Israel’s Existential Threat From Within**\
+`The growing sway of far-right settlers in the West Bank has pushed Israeli politics toward a crisis.`\
+https://nytimes.com/2024/09/18/podcasts/the-daily/israel-extremism-west-bank.html
+
 **Israel’s Existential Threat from Within**\
 `The growing sway of far-right settlers in the West Bank has pushed Israeli politics toward a crisis.`\
 https://nytimes.com/2024/09/18/podcasts/the-daily/israel-extremism-west-bank.html
