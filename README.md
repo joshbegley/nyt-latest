@@ -1,3 +1,11 @@
+**Dusko Doder, 87, Cold War Journalist Falsely Accused of K.G.B. Ties, Dies**\
+`His career was ruined when Time magazine reported that the Soviets had recruited him while he led The Washington Post’s Moscow bureau. Sued for libel, Time apologized.`\
+https://nytimes.com/2024/09/18/obituaries/dusko-doder-dead.html
+
+**Sabres training camp: 10 things we learned from Lindy Ruff's first practice**\
+`Ruff isn’t wasting time with nostalgia and is pushing players to practice harder.`\
+https://nytimes.com/athletic/5777325/2024/09/18/sabres-training-camp-lindy-ruff/
+
 **Adrian Wojnarowski brings a fitting end to a legendary career — one last 'Woj bomb'**\
 `Adrian Wojnarowski took a big risk in 2007. It changed his life, and the sports reporting industry, forever and made him a legend.`\
 https://nytimes.com/athletic/5777334/2024/09/18/adrian-wojnarowski-retires-espn-nba-woj-bomb/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/nyregion/harvey-weinstein-sexual-assault-charge.h
 **More Wireless Devices Explode in Lebanon**\
 `Walkie-talkies belonging to Hezbollah members exploded across Lebanon on Wednesday, killing more than a dozen people and wounding hundreds, officials said. The Times verified footage from an explosion at a funeral that sent mourners fleeing for safety.`\
 https://nytimes.com/video/world/middleeast/100000009703738/lebanon-explosions.html
-
-**Olivia Wilde, Chloe Fineman and Rosie Perez Buzz at TriBeCa Power Lunch**\
-`Influential women in entertainment talked politics, fashion week and fall travel plans at a party to support emerging filmmakers.`\
-https://nytimes.com/2024/09/18/style/tribeca-power-lunch-female-filmmakers.html
-
-**What's next for Oilers, Evander Kane as he's set for lengthy injury absence**\
-`Kane will have surgery to repair both hip adductors, two lower abdominal tears and two hernias.`\
-https://nytimes.com/athletic/5777279/2024/09/18/oilers-evander-kane-surgery/
 
