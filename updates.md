@@ -1,3 +1,7 @@
+**How to Read the Fed’s Projections Like a Pro**\
+`The Federal Reserve is expected to cut rates on Wednesday. Wall Street is focused on how much, and on what comes next.`\
+https://nytimes.com/2024/09/18/business/fed-interest-rates-forecast.html
+
 **In Georgia, a New Showdown Is Brewing Over Election Rules**\
 `The state election board was recently taken over by a conservative majority. Its latest proposals are dangerously late in the process and most likely illegal, according to the secretary of state.`\
 https://nytimes.com/2024/09/18/us/elections/georgia-elections-board-rules.html

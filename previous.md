@@ -1,3 +1,7 @@
+**How to Read the Fed’s Projections Like a Pro**\
+`The Federal Reserve is expected to cut rates on Wednesday. Wall Street is focused on how much, and on what comes next.`\
+https://nytimes.com/2024/09/18/business/fed-interest-rates-forecast.html
+
 **In Georgia, a New Showdown Is Brewing Over Election Rules**\
 `The state election board was recently taken over by a conservative majority. Its latest proposals are dangerously late in the process and most likely illegal, according to the secretary of state.`\
 https://nytimes.com/2024/09/18/us/elections/georgia-elections-board-rules.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5776705/2024/09/18/adrian-wojnarowski-espn-exit/
 **America’s Oil Country Increasingly Runs on Renewables**\
 `Texas, the biggest oil-producing state, has turned to solar power and battery storage to see it through extreme weather. But with demand rising, much more power will be needed.`\
 https://nytimes.com/2024/09/18/us/texas-grid-renewables-battery-storage-solar.html
-
-**Behind Our Reporting**\
-`With more than 230 school shootings in the United States over the past decade, and active shooter drills now a routine part of students’ lives, technologies developed to protect soldiers in combat are being adapted and marketed to parents and schools.`\
-https://nytimes.com/video/video/100000009510769/behind-our-reporting.html
 
