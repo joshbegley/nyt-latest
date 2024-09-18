@@ -1,3 +1,7 @@
+**A Fossilized Creature May Explain a Puzzling Painting on a Rock Wall**\
+`The artwork suggests that the San people of South Africa have an Indigenous knowledge of paleontology that predated Western approaches to the field.`\
+https://nytimes.com/2024/09/18/science/san-rock-art-fossil.html
+
 **Vance Complains About Democrats Using ‘Fascist.’ Trump Uses It Often.**\
 `The Republican vice-presidential candidate blamed Democrats for political vitriol after Sunday’s apparent assassination attempt against Donald J. Trump.`\
 https://nytimes.com/2024/09/18/us/politics/vance-trump-fascist.html
