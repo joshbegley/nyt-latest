@@ -1,3 +1,7 @@
+**Elias Khoury, Master of the Modern Arabic Novel, Dies at 76**\
+`In his fiction and journalism, he sought to illustrate the story of the contemporary Middle East and his native Lebanon.`\
+https://nytimes.com/2024/09/18/books/elias-khoury-dead.html
+
 **Bulletproofing America’s Classrooms**\
 `Ballistic armor companies are marketing protective products designed for the military to parents and schools. Some people see the items as unsettling but prudent; others find them infuriating.`\
 https://nytimes.com/interactive/2024/09/18/science/bulletproofing-schools.html
