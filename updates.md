@@ -1,3 +1,7 @@
+**21 Juveniles Charged With Making School Threats in South Carolina**\
+`The charges are part of a sprawling investigation into more than 60 threats targeting schools in 23 counties since a mass shooting on Sept. 4 in Georgia in which four people were killed at a high school.`\
+https://nytimes.com/2024/09/18/us/south-carolina-school-threats-charges.html
+
 **No Deebo Samuel or Christian McCaffrey on Sunday? Here are the 49ers' options ...**\
 `A pair of former 49ers running backs, Matt Breida and Jerick McKinnon, remain available in free agency.`\
 https://nytimes.com/athletic/5777878/2024/09/18/49ers-injuries-deebo-samuel-christian-mccaffrey/
