@@ -1,3 +1,7 @@
+**'One step ahead': Why Tristan Luneau could be poised to thrive with the Ducks**\
+`Free from a frustrating knee issue last season, Luneau brings something different to the Ducks' blue line.`\
+https://nytimes.com/athletic/5777156/2024/09/18/ducks-tristan-luneau-defense/
+
 **Orioles designate Craig Kimbrel for assignment**\
 `The Orioles DFA'd Craig Kimbrel on Wednesday, ending an unsuccessful tenure in Baltimore and potentially the 36-year-old veteran’s career.`\
 https://nytimes.com/athletic/5777214/2024/09/18/craig-kimbrel-dfa-orioles/
@@ -26,15 +30,11 @@ https://nytimes.com/2024/09/18/climate/global-flooding-climate-change.html
 `Caleb Williams took a beating in the Bears' loss to the Texans, and the concerns about the offense are growing. Bring on your questions.`\
 https://nytimes.com/athletic/5776973/2024/09/18/bears-mailbag-questions-32/
 
-**Chargers QB Justin Herbert not seen at practice**\
+**Chargers' Justin Herbert (ankle) misses practice**\
 `Herbert was brought down awkwardly when attempting to step up in the pocket Sunday but didn't miss a snap and finished the game.`\
 https://nytimes.com/athletic/5777136/2024/09/18/chargers-justin-herbert-ankle-injry/
 
 **What I'm seeing around the Penguins: Did Letang ask for a trade?**\
 `Letang was frustrated at the end of last season, but he says he didn't ask to be traded to another team.`\
 https://nytimes.com/athletic/5776948/2024/09/18/penguins-kris-letang-trade-rumor/
-
-**Trump’s Talk of Prosecution Rattles Election Officials**\
-`The former president has long claimed, despite evidence to the contrary, that elections are corrupt. What if he carries through with threats to prosecute the officials who run them?`\
-https://nytimes.com/2024/09/18/us/politics/donald-trump-2024-election-officials.html
 

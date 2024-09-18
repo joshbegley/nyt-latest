@@ -1,3 +1,11 @@
+**'One step ahead': Why Tristan Luneau could be poised to thrive with the Ducks**\
+`Free from a frustrating knee issue last season, Luneau brings something different to the Ducks' blue line.`\
+https://nytimes.com/athletic/5777156/2024/09/18/ducks-tristan-luneau-defense/
+
+**Chargers' Justin Herbert (ankle) misses practice**\
+`Herbert was brought down awkwardly when attempting to step up in the pocket Sunday but didn't miss a snap and finished the game.`\
+https://nytimes.com/athletic/5777136/2024/09/18/chargers-justin-herbert-ankle-injry/
+
 **Orioles designate Craig Kimbrel for assignment**\
 `The Orioles DFA'd Craig Kimbrel on Wednesday, ending an unsuccessful tenure in Baltimore and potentially the 36-year-old veteran’s career.`\
 https://nytimes.com/athletic/5777214/2024/09/18/craig-kimbrel-dfa-orioles/
