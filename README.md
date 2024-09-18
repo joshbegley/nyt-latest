@@ -1,3 +1,7 @@
+**A poised Jayden Daniels is remembering to have fun while leading Commanders**\
+`“That’s what you live for, those moments,” the rookie QB said after leading the game-winning touchdown drive against the Giants in Week 2.`\
+https://nytimes.com/athletic/5775022/2024/09/18/commanders-jayden-daniels-poise/
+
 **10-Year-Old Student Is Stabbed Near Japanese School in China**\
 `The child was wounded and a 44-year-old man was in custody, the police said. Other Japanese schools in China warned parents and students to be cautious.`\
 https://nytimes.com/2024/09/18/world/asia/child-stabbed-japan-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5771665/2024/09/18/winnipeg-jets-training-camp-2024
 **Inside the Devils' offseason overhaul: How Tom Fitzgerald pulled off one of the NHL's splashiest summers**\
 `After a disappointing step back in 2023-24 and failing to get his goalie at the deadline, the Devils GM had a long to-do list.`\
 https://nytimes.com/athletic/5773891/2024/09/18/devils-offseason-overhaul-markstrom/
-
-**Blackhawks' 10 biggest training camp questions**\
-`Which prospects will make the team? Will they name a captain? And how the heck can we watch CHSN?`\
-https://nytimes.com/athletic/5773884/2024/09/18/blackhawks-training-camp-questions/
 
