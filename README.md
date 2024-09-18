@@ -1,3 +1,19 @@
+**Woman Burned After Hiking Off Trail at Yellowstone National Park**\
+`The 60-year-old was walking with her husband and dog near a geyser when she broke through the ground into scalding waters on Monday afternoon, according to the National Park Service.`\
+https://nytimes.com/2024/09/18/us/hiker-burned-yellowstone-trail.html
+
+**The Briefing: Manchester City 0 Inter Milan 0 - De Bruyne worry, a strange backheel and more attacking?**\
+`Analysis of Manchester City's Champions League league stage game at home to Inter Milan`\
+https://nytimes.com/athletic/5771234/2024/09/18/manchester-city-0-inter-milan-0-de-bruyne-worry-a-strange-backheel-and-more-attacking/
+
+**Israel’s Focus Shifts From Hamas in Gaza to Hezbollah in Lebanon**\
+`Daily exchanges of fire between Hezbollah and Israel have been destructive, disruptive and sometimes deadly. An escalation could risk starting a wider regional conflict.`\
+https://nytimes.com/2024/09/18/world/middleeast/israel-war-focus-hezbollah-lebanon.html
+
+**Bruins-Jeremy Swayman standoff entering no-win territory as sides dig in: ‘Hurts our team, hurts him’**\
+`Don Sweeney called out reporting around Swayman's negotiations Wednesday and twice mentioned Dec. 1, the drop-dead date for a contract.`\
+https://nytimes.com/athletic/5777530/2024/09/18/bruins-jeremy-swayman-missing-training-camp/
+
 **On ‘Survivor,’ Talking Politics Could Get You Voted Off the Island**\
 `The show’s 47th season, which features Jon Lovett, a former Obama speechwriter, premieres Wednesday. But even in heated election years, presidential politics rarely intrudes.`\
 https://nytimes.com/2024/09/18/us/politics/survivor-season-47-jon-lovett.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5777325/2024/09/18/sabres-training-camp-lindy-ruff/
 **Adrian Wojnarowski brings a fitting end to a legendary career — one last 'Woj bomb'**\
 `Adrian Wojnarowski took a big risk in 2007. It changed his life, and the sports reporting industry, forever and made him a legend.`\
 https://nytimes.com/athletic/5777334/2024/09/18/adrian-wojnarowski-retires-espn-nba-woj-bomb/
-
-**TelevisaUnivision Considers Removing C.E.O. Who Knit Company Together**\
-`Wade Davis led an acquisition of Univision in 2020, buying out a consortium of private-equity owners.`\
-https://nytimes.com/2024/09/18/business/media/televisaunivision-wade-davis.html
-
-**Mets' pitching prospect Christian Scott explains his path to Tommy John surgery**\
-`Scott wanted badly to be part of the Mets’ chase for a wild-card spot or to help in some capacity in the playoffs.`\
-https://nytimes.com/athletic/5777195/2024/09/18/mets-christian-scott-tommy-john/
-
-**Musk Finds a Way Around Brazil’s X Ban**\
-`Elon Musk’s social media platform used a technical maneuver to restore service for many Brazilians after a court blocked it. Blocking it again would be difficult, experts said.`\
-https://nytimes.com/2024/09/18/world/americas/brazil-musk-x-ban.html
-
-**John Cassaday, Award-Winning Comic Book Artist, Dies at 52**\
-`In series like Planetary, of which he was a creator, and Astonishing X-Men, his drawings conveyed a sense of realism in situations that were often fantastical.`\
-https://nytimes.com/2024/09/18/arts/john-cassaday-dead.html
 
