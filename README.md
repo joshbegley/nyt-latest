@@ -1,5 +1,5 @@
 **Analysts and executives are split over the Fed’s next move.**\
-`As inflation has cooled significantly, the Federal Reserve`\
+`By Danielle Kaye`\
 https://nytimes.com/live/2024/09/18/business/fed-interest-rates/analysts-and-executives-are-split-over-the-feds-next-move
 
 **Roma appoint Juric as De Rossi's replacement**\
