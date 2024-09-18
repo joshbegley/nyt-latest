@@ -1,3 +1,7 @@
+**To Win Votes, Trump Floats an Array of Expensive Tax Cuts**\
+`Whether he is speaking to retirees, corporate executives or tipped workers, former President Donald J. Trump has made a habit of promising tax cuts that could cost trillions.`\
+https://nytimes.com/2024/09/18/us/politics/trump-tax-cuts.html
+
 **Dusko Doder, 87, Cold War Journalist Falsely Accused of K.G.B. Ties, Dies**\
 `His career was ruined when Time magazine reported that the Soviets had recruited him while he led The Washington Post’s Moscow bureau. Sued for libel, Time apologized.`\
 https://nytimes.com/2024/09/18/obituaries/dusko-doder-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/business/economy/100000009704500/federal-reserve-inter
 **Harvey Weinstein Faces New Sexual Assault Charge in Manhattan**\
 `The disgraced Hollywood producer’s 2020 sex-crime conviction was thrown out, but he will be retried on those charges as well.`\
 https://nytimes.com/2024/09/18/nyregion/harvey-weinstein-sexual-assault-charge.html
-
-**More Wireless Devices Explode in Lebanon**\
-`Walkie-talkies belonging to Hezbollah members exploded across Lebanon on Wednesday, killing more than a dozen people and wounding hundreds, officials said. The Times verified footage from an explosion at a funeral that sent mourners fleeing for safety.`\
-https://nytimes.com/video/world/middleeast/100000009703738/lebanon-explosions.html
 

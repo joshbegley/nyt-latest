@@ -1,3 +1,7 @@
+**To Win Votes, Trump Floats an Array of Expensive Tax Cuts**\
+`Whether he is speaking to retirees, corporate executives or tipped workers, former President Donald J. Trump has made a habit of promising tax cuts that could cost trillions.`\
+https://nytimes.com/2024/09/18/us/politics/trump-tax-cuts.html
+
 **Dusko Doder, 87, Cold War Journalist Falsely Accused of K.G.B. Ties, Dies**\
 `His career was ruined when Time magazine reported that the Soviets had recruited him while he led The Washington Post’s Moscow bureau. Sued for libel, Time apologized.`\
 https://nytimes.com/2024/09/18/obituaries/dusko-doder-dead.html
