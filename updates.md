@@ -1,3 +1,7 @@
+**Just a Really Fantastic Fashion Show**\
+`Francesco Risso creates a triumphant Marni collection.`\
+https://nytimes.com/2024/09/18/style/marni-milan-fashion-week.html
+
 **Former England striker Duggan retires from football**\
 `Former England and Manchester City striker Toni Duggan has announced her retirement from football, aged 33.`\
 https://nytimes.com/athletic/5775780/2024/09/18/toni-duggan-retires/
