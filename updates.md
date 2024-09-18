@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/09/18/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Set to Hold Rally on Long Island**\
+`Donald J. Trump will speak to a gathering in a Democratic stronghold, while Kamala Harris will address the Congressional Hispanic Caucus Institute in Washington, D.C.`\
+https://nytimes.com/live/2024/09/18/us/trump-harris-election
+
 **Why Uncertainty Still Hangs Over the Fed’s Big Decision**\
 `Investors, economists and politicians are at odds over whether the central bank should cut interest rates by a quarter-point, or more.`\
 https://nytimes.com/2024/09/18/business/dealbook/fed-interest-rates-markets.html
