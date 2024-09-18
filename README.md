@@ -1,3 +1,11 @@
+**Analysts and executives are split over the Fed’s next move.**\
+`As inflation has cooled significantly, the Federal Reserve`\
+https://nytimes.com/live/2024/09/18/business/fed-interest-rates/analysts-and-executives-are-split-over-the-feds-next-move
+
+**Roma appoint Juric as De Rossi's replacement**\
+`Ivan Juric has been named as head coach of Roma on a one-year contract following the sacking of Daniele de Rossi.`\
+https://nytimes.com/athletic/5776189/2024/09/18/roma-ivan-juric-head-coach/
+
 **How to Read the Fed’s Projections Like a Pro**\
 `The Federal Reserve is expected to cut rates on Wednesday. Wall Street is focused on how much, and on what comes next.`\
 https://nytimes.com/2024/09/18/business/fed-interest-rates-forecast.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/opinion/kamala-harris-bret-stephens.html
 **Ivan Perisic joins PSV on free transfer**\
 `PSV Eindhoven have signed Croatia international Ivan Perisic on a free transfer.`\
 https://nytimes.com/athletic/5776697/2024/09/18/ivan-perisic-psv-transfer/
-
-**Adrian Wojnarowski retires from ESPN**\
-`By leaving his role, Wojnarowski is walking away from $20 million with ESPN, multiple people briefed on the move said.`\
-https://nytimes.com/athletic/5776705/2024/09/18/adrian-wojnarowski-espn-exit/
-
-**America’s Oil Country Increasingly Runs on Renewables**\
-`Texas, the biggest oil-producing state, has turned to solar power and battery storage to see it through extreme weather. But with demand rising, much more power will be needed.`\
-https://nytimes.com/2024/09/18/us/texas-grid-renewables-battery-storage-solar.html
 
