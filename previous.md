@@ -1,3 +1,7 @@
+**School Workers’ Families Took Disney Trip Meant for Homeless Students**\
+`New York City school employees took their children or grandchildren to Disney World and other places through a program intended for homeless students, investigators found.`\
+https://nytimes.com/2024/09/17/nyregion/ny-schools-disney-homeless-students.html
+
 **Extreme Heat Means More Wildfires. It’s Taking a Toll on Firefighters. **\
 `As a changing climate fuels more wildfires, experts are working to better protect firefighters on the front lines.`\
 https://nytimes.com/card/2024/09/18/us/wildfires-extreme-heat-firefighters
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/technology/california-deepfakes-law-social-media-
 **Champions League Briefing - Kane and Bayern's records, Endrick's impact and two outrageous goals**\
 `There were 28 goals, including two stunners, across six matches and so many talking points as Europe's top-tier club competition returned`\
 https://nytimes.com/athletic/5774524/2024/09/17/champions-league-kane-bayern-endrick-gyokeres/
-
-**F A O Schwarz**\
-`News about F A O Schwarz. Commentary and archival information about F A O Schwarz from The New York Times.`\
-https://nytimes.com/topic/f-a-o-schwarz
 

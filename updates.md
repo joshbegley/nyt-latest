@@ -1,3 +1,7 @@
+**School Workers’ Families Took Disney Trip Meant for Homeless Students**\
+`New York City school employees took their children or grandchildren to Disney World and other places through a program intended for homeless students, investigators found.`\
+https://nytimes.com/2024/09/17/nyregion/ny-schools-disney-homeless-students.html
+
 **Extreme Heat Means More Wildfires. It’s Taking a Toll on Firefighters. **\
 `As a changing climate fuels more wildfires, experts are working to better protect firefighters on the front lines.`\
 https://nytimes.com/card/2024/09/18/us/wildfires-extreme-heat-firefighters
