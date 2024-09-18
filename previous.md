@@ -1,3 +1,7 @@
+**U.N. Sees ‘Human Rights Abyss’ in Myanmar as Military Kills Civilians**\
+`Three years after the military staged a coup, intensifying a civil war, civilians continue to pay the price, according to a coming United Nations report.`\
+https://nytimes.com/2024/09/17/world/asia/myanmar-human-rights-abuse-un.html
+
 **Go for a Rebound**\
 `Casey Callaghan and Will Nediger reach new heights in their collaboration debut.`\
 https://nytimes.com/2024/09/17/crosswords/daily-puzzle-2024-09-18.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/us/politics/secret-service-trump.html
 **Cathy Merrick, Advocate for Indigenous People in Canada, Dies at 63**\
 `She was on the front lines of dogged fights against injustices, including a recent series of murders of Indigenous women by a white man.`\
 https://nytimes.com/2024/09/17/world/canada/cathy-merrick-dead.html
-
-**Why Eric Adams Is Resisting Pressure to Oust Members of His Inner Circle**\
-`Mayor Adams has been loyal to longtime aides despite growing calls for them to resign. It is a trait he has shown through his career.`\
-https://nytimes.com/2024/09/17/nyregion/eric-adams-resignations-scandal.html
 

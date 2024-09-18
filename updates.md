@@ -1,3 +1,7 @@
+**U.N. Sees ‘Human Rights Abyss’ in Myanmar as Military Kills Civilians**\
+`Three years after the military staged a coup, intensifying a civil war, civilians continue to pay the price, according to a coming United Nations report.`\
+https://nytimes.com/2024/09/17/world/asia/myanmar-human-rights-abuse-un.html
+
 **Go for a Rebound**\
 `Casey Callaghan and Will Nediger reach new heights in their collaboration debut.`\
 https://nytimes.com/2024/09/17/crosswords/daily-puzzle-2024-09-18.html
