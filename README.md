@@ -1,6 +1,6 @@
 **Mets ace Kodai Senga feels closer to big-league return**\
 `NEW YORK — As the Mets push for the postseason, there’s still a chance they add a significant piece to their pitching staff.`\
-https://nytimes.com/athletic/5777814/2024/09/18/mets-ace-kodai-senga-eyeing-late-season-return/
+https://nytimes.com/athletic/5777814/2024/09/18/mets-kodai-senga-return/
 
 **Tottenham's Odobert has 'fairly significant' injury - Postecoglou**\
 `Ange Postecoglou has said a muscular injury sustained by Tottenham Hotspur&#8217;s Wilson Odobert in Wednesday&#8217;s Carabao Cup victory at Coventry City could be &#8220;fairly significant&#8221;.`\
