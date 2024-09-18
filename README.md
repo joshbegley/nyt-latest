@@ -4,7 +4,7 @@ https://nytimes.com/2024/09/18/us/hiker-burned-yellowstone-trail.html
 
 **The Briefing: Manchester City 0 Inter Milan 0 - De Bruyne worry, a strange backheel and more attacking?**\
 `Analysis of Manchester City's Champions League league stage game at home to Inter Milan`\
-https://nytimes.com/athletic/5771234/2024/09/18/manchester-city-0-inter-milan-0-de-bruyne-worry-a-strange-backheel-and-more-attacking/
+https://nytimes.com/athletic/5771234/2024/09/18/manchester-city-inter-backheel-highlights/
 
 **Israel’s Focus Shifts From Hamas in Gaza to Hezbollah in Lebanon**\
 `Daily exchanges of fire between Hezbollah and Israel have been destructive, disruptive and sometimes deadly. An escalation could risk starting a wider regional conflict.`\
