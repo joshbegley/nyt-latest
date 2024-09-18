@@ -1,3 +1,27 @@
+**Bulletproofing America’s Classrooms**\
+`Ballistic armor companies are marketing protective products designed for the military to parents and schools. Some people see the items as unsettling but prudent; others find them infuriating.`\
+https://nytimes.com/interactive/2024/09/18/science/bulletproofing-schools.html
+
+**After Rodri's comments, should footballers go on strike over workload? - The Debate**\
+`Midfielder Rodri has spoken of strike action by players over the number of matches they play. Here, two writers discuss the topic`\
+https://nytimes.com/athletic/5773955/2024/09/18/rodri-footballers-strike-workload/
+
+**Switching play helped Liverpool beat AC Milan - but don't get used to it**\
+`A tactic that was beloved under Jurgen Klopp does not suit Arne Slot's system so easily, even if it helped storm San Siro last night`\
+https://nytimes.com/athletic/5776082/2024/09/18/liverpool-milan-champions-league-tactics/
+
+**My Cauliflower Shawarma Is Worth Staying In For**\
+`And our readers agree: “One of my all time favorite NYT Cooking recipes,” one says. “Try this, you will not regret it,” another writes.`\
+https://nytimes.com/2024/09/18/dining/my-cauliflower-shawarma-is-worth-staying-in-for.html
+
+**The Final Hours of a Tastemaker’s Trove**\
+`The society fixture, decorator and philanthropist Mica Ertegun helped define the tastes of an era. Now her great collections are going on the block.`\
+https://nytimes.com/2024/09/18/style/mica-ertegun-auction-christies.html
+
+**A New Shark Joins the Tank as Mark Cuban Departs**\
+`Daniel Lubetzky, the founder of the Kind snack company, began appearing as a guest on “Shark Tank” five years ago. Soon he’ll have a permanent seat.`\
+https://nytimes.com/2024/09/18/business/daniel-lubetzky-shark-tank-mark-cuban.html
+
 **Fortuna Sittard to wear special kit in memory of Fernando Ricksen**\
 `Fortuna Sittard, the former club of Fernando Ricksen, will wear a special kit this week in honour of the late defender, five years on from his death.`\
 https://nytimes.com/athletic/5776638/2024/09/18/fernando-ricksen-fortuna-sittard-kit/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5776531/2024/09/18/khadija-shaw-manchester-city-par
 **Giants takeaways: How 3 homegrown players could be mainstays in the 2025 lineup**\
 `Very specific things need to happen for Heliot Ramos, Tyler Fitzgerald and Grant McCray to be regulars for the Giants next season.`\
 https://nytimes.com/athletic/5773816/2024/09/18/sf-giants-takeaways-homegrown-players-future/
-
-**Scoop City: Week 3 injury reports**\
-`A look at the fallout after major injuries, the best of Week 2 and why kickers are (seemingly) automatic.`\
-https://nytimes.com/athletic/5776581/2024/09/18/why-are-kickers-overperforming-plus-week-3-injury-report/
-
-**Rogers buys out Bell's ownership stake in MLSE**\
-`Rogers signed a deal to purchase Bell’s 37.5 percent ownership stake in MLSE, which owns the Maple Leafs and Raptors.`\
-https://nytimes.com/athletic/5776356/2024/09/18/rogers-mlse-stake-bell-leafs-raptors/
-
-**Ryan Truex on his full-time job in racing, the sponsor search and more: 12 Questions**\
-`Ryan Truex talks about what it takes to be full-time in racing, his ongoing search to secure sponsorship and much more.`\
-https://nytimes.com/athletic/5772425/2024/09/18/ryan-truex-nascar-12-questions/
-
-**Sarah Huckabee Sanders Jabs at Harris for Not Having Biological Children**\
-`“My kids keep me humble,” Ms. Sanders said at an event with former President Donald J. Trump. “Unfortunately, Kamala Harris doesn’t have anything keeping her humble.” The remark quickly drew backlash.`\
-https://nytimes.com/2024/09/18/us/politics/sanders-harris-children-backlash.html
-
-**Foligno named first Blackhawks captain since Toews**\
-`It was only a matter of time until the Blackhawks named a new captain after Jonathan Toews.`\
-https://nytimes.com/athletic/5776395/2024/09/18/blackhawks-captain-nick-foligno-jonathan-toews/
-
-**Aces' Wilson passes Reese for single-season rebound mark**\
-`Wilson grabbed her 447th rebound in Tuesday night's win over the Storm to pass Angel Reese for the record.`\
-https://nytimes.com/athletic/5776341/2024/09/18/aja-wilson-wnba-rebounding-record/
 
