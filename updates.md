@@ -1,3 +1,7 @@
+**Join NYT Cooking for an ‘Easy Weeknight Dinners’ Book Talk in N.Y.C.**\
+`Emily Weinstein, Melissa Clark and Eric Kim will discuss the new cookbook, recipe writing, their go-to meals and tips for simple yet delicious cooking in a special event with Taffy Brodesser-Akner on Oct. 7 at the Times Center.`\
+https://nytimes.com/2024/09/18/dining/nyt-cooking-easy-weeknight-dinners-book-talk.html
+
 **Portland to become WNBA's 15th franchise in 2026**\
 `The WNBA is expanding to Portland by granting the league’s 15th franchise to the city.`\
 https://nytimes.com/athletic/5774263/2024/09/18/wnba-portland-expansion-franchise/

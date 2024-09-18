@@ -1,3 +1,7 @@
+**Join NYT Cooking for an ‘Easy Weeknight Dinners’ Book Talk in N.Y.C.**\
+`Emily Weinstein, Melissa Clark and Eric Kim will discuss the new cookbook, recipe writing, their go-to meals and tips for simple yet delicious cooking in a special event with Taffy Brodesser-Akner on Oct. 7 at the Times Center.`\
+https://nytimes.com/2024/09/18/dining/nyt-cooking-easy-weeknight-dinners-book-talk.html
+
 **Portland to become WNBA's 15th franchise in 2026**\
 `The WNBA is expanding to Portland by granting the league’s 15th franchise to the city.`\
 https://nytimes.com/athletic/5774263/2024/09/18/wnba-portland-expansion-franchise/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/world/middleeast/lebanon-funeral-pager-attack.htm
 **Cheaper Mortgages and Car Loans: Lower Rates Are on the Horizon**\
 `With the Federal Reserve expected to lower interest rates, some borrowing costs have begun to ease — signs that loans may become cheaper in the near future.`\
 https://nytimes.com/interactive/2024/09/18/business/economy/consumer-interest-rates.html
-
-**Five big questions entering Oilers training camp**\
-`The top nine seems set, as does the goalie duo and the top end of the blue line, but here are five things the Oilers still need to sort out.`\
-https://nytimes.com/athletic/5775788/2024/09/18/edmonton-oilers-training-camp-defense/
 
