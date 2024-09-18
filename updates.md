@@ -1,3 +1,7 @@
+**Fortuna Sittard to wear special kit in memory of Fernando Ricksen**\
+`Fortuna Sittard, the former club of Fernando Ricksen, will wear a special kit this week in honour of the late defender, five years on from his death.`\
+https://nytimes.com/athletic/5776638/2024/09/18/fernando-ricksen-fortuna-sittard-kit/
+
 **Giants takeaways: How 3 homegrown players could be mainstays in the 2025 lineup**\
 `Very specific things need to happen for Heliot Ramos, Tyler Fitzgerald and Grant McCray to be regulars for the Giants next season.`\
 https://nytimes.com/athletic/5773816/2024/09/18/sf-giants-takeaways-homegrown-players-future/
