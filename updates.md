@@ -1,3 +1,7 @@
+**‘Beast Games’ Contestants File Lawsuit Claiming ‘Dangerous Conditions’ on Set**\
+`A group of people who participated in the reality competition show this summer are suing MrBeast’s production company.`\
+https://nytimes.com/2024/09/18/style/mrbeast-reality-show-lawsuit.html
+
 **21 Juveniles Charged With Making School Threats in South Carolina**\
 `The charges are part of a sprawling investigation into more than 60 threats targeting schools in 23 counties since a mass shooting on Sept. 4 in Georgia in which four people were killed at a high school.`\
 https://nytimes.com/2024/09/18/us/south-carolina-school-threats-charges.html
