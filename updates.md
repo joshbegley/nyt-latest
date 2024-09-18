@@ -1,3 +1,7 @@
+**Here is the latest on the pager attack.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/here-is-the-latest-on-the-pager-attack
+
 **Tupperware, Food Container Pioneer, Files for Bankruptcy**\
 `The once-mighty kitchenware company has struggled financially for years. It says the direct sales model that fueled its success has become a weakness.`\
 https://nytimes.com/2024/09/18/business/tupperware-bankruptcy.html

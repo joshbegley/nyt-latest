@@ -1,3 +1,7 @@
+**Here is the latest on the pager attack.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/here-is-the-latest-on-the-pager-attack
+
 **Tupperware, Food Container Pioneer, Files for Bankruptcy**\
 `The once-mighty kitchenware company has struggled financially for years. It says the direct sales model that fueled its success has become a weakness.`\
 https://nytimes.com/2024/09/18/business/tupperware-bankruptcy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/nyregion/performing-arts-real-estate-nj.html
 **Plastic Waste and Toxic Sludge: A Sweep of a Messy Beat**\
 `The Climate reporter Hiroko Tabuchi is interested in all the things we take for granted about our environment.`\
 https://nytimes.com/2024/09/18/insider/pollution-effects.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/18/crosswords/spelling-bee-forum.html
 
