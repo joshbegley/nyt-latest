@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/09/18/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Set to Hold Rally on Long Island**\
+`Donald J. Trump will speak to a gathering in a Democratic stronghold, while Kamala Harris will address the Congressional Hispanic Caucus Institute in Washington, D.C.`\
+https://nytimes.com/live/2024/09/18/us/trump-harris-election
+
 **Why Uncertainty Still Hangs Over the Fed’s Big Decision**\
 `Investors, economists and politicians are at odds over whether the central bank should cut interest rates by a quarter-point, or more.`\
 https://nytimes.com/2024/09/18/business/dealbook/fed-interest-rates-markets.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/world/europe/pager-explosions-lebanon-what-we-kno
 **Broncos mailbag: Is it too early to be concerned with Bo Nix's struggles?**\
 `Broncos fans want to know why an offense that is struggling in the passing game hasn't found a way to use speedsters like Marvin Mims Jr.`\
 https://nytimes.com/athletic/5773412/2024/09/18/broncos-mailbag-bo-nix-week-3/
-
-**Lowetide: Which Oilers roster spots could go to a potential impact rookie?**\
-`How many rookies could the Oilers lean on this season? Probably more than most believe.`\
-https://nytimes.com/athletic/5772180/2024/09/18/edmonton-oilers-potential-impact-rookie/
-
-**LeBrun: Catching up with Jim Nill on the Stars offseason, Jamie Benn's future and how Matt Dumba fits on D**\
-`Also, how Nill sees the Dallas defense shaking out and why he thinks summer signing Matt Dumba "can really change our team."`\
-https://nytimes.com/athletic/5773893/2024/09/18/stars-offseason-jim-nill/
 
