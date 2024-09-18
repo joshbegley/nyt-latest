@@ -1,3 +1,11 @@
+**10 Blues training camp questions: Bannister's command, Dvorský's chances, Broberg's fit, more**\
+`The Blues open training camp on Thursday and we've got 10 questions facing the team before the puck drops for the 2024-25 season. `\
+https://nytimes.com/athletic/5774040/2024/09/18/blues-training-camp-questions/
+
+**Conor Gallagher exclusive: On feeling 'wanted and appreciated' at Atletico after Chelsea limbo**\
+`Gallagher's move from Chelsea to Atletico hung in the balance for weeks. Now, he's making the most of his time in the Spanish capital`\
+https://nytimes.com/athletic/5773872/2024/09/18/conor-gallagher-chelsea-atletico-interview/
+
 **111 Former G.O.P. Officials Back Harris, Calling Trump ‘Unfit to Serve’**\
 `The signatories of a letter endorsing the Democratic vice president included former members of Congress, defense secretaries, C.I.A. directors and other national security officials.`\
 https://nytimes.com/2024/09/18/us/politics/republican-officials-harris-endorsement.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5775961/2024/09/18/players-strike-champions-league-
 **Study Reveals Bird-Migration Mystery**\
 `By outfitting blackbirds with heart-rate monitors, scientists debunked a long-held assumption about the benefits of spending the winter in warm climates.`\
 https://nytimes.com/2024/09/18/science/birds-migration-energy.html
-
-**England Introduces Buffer Zones to Ban Protest Outside Abortion Clinics**\
-`“Safe access” zones outside clinics in England and Wales will make it illegal to harass anyone seeking medical services or working there, the British government said.`\
-https://nytimes.com/2024/09/18/world/europe/abortion-clinic-safe-zones-protests-england-wales.html
-
-**Gary Neville on Old Trafford plans: 'I want to see a world of Manchester United around that stadium'**\
-`Former right-back on his Old Trafford task-force role, whether he supports redevelopment or a new stadium, and how fans will be involved`\
-https://nytimes.com/athletic/5774538/2024/09/18/gary-neville-old-trafford-task-force-interview/
 
