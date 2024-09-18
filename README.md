@@ -1,3 +1,7 @@
+**Dear TV producers: One NHL fan's 6 small requests for the 2024-25 season**\
+`From actual faceoff shots to less goalie pulls, here are some minor tweaks I’d love to see to NHL broadcasts.`\
+https://nytimes.com/athletic/5769009/2024/09/18/nhl-tv-producers-2024-25-season/
+
 **Usyk released after being detained at Polish airport**\
 `Heavyweight boxing champion Oleksandr Usyk was briefly detained at Krakow airport in Poland on Tuesday before being released, according to Ukraine President Volodymyr Zelenskyy.`\
 https://nytimes.com/athletic/5775888/2024/09/18/oleksandr-usyk-detained-poland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766363/2024/09/18/fran-tarkenton-vikings-scramblin
 **Steve From ‘Blues Clues’ Is Still Here for You**\
 `The former star of the beloved children’s show has a new audience: adults on TikTok.`\
 https://nytimes.com/2024/09/18/style/steve-from-blues-clues-is-still-here-for-you.html
-
-**Is the Comedy-Club Booking Process Broken?**\
-`The owners of a new spot say hiring comics based on referrals from other stand-ups is no guarantee the acts will be funny. Others say it’s all more nuanced.`\
-https://nytimes.com/2024/09/18/arts/television/comedy-club-booking.html
 
