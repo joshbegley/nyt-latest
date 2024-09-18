@@ -1,3 +1,11 @@
+**What Losing in 2020 Did to Trump**\
+`He can’t stop talking about it.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/stump-speech-trump-2020
+
+**Sean Combs Must Stay in Jail Until Trial After Judge Rejects Appeal**\
+`Mr. Combs’s lawyers failed to convince a judge he would not be a flight risk or danger to the community while awaiting his sex trafficking and racketeering conspiracy trial.`\
+https://nytimes.com/2024/09/18/arts/music/sean-combs-diddy-bail-appeal.html
+
 **Thursday Briefing: A Second Day of Explosions in Lebanon**\
 `Plus, Kamala Harris courts Latino voters.`\
 https://nytimes.com/2024/09/18/briefing/lebanon-explosions-harris-kashmir.html

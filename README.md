@@ -1,9 +1,13 @@
+**Capitals' T.J. Oshie expected to be placed on LTIR**\
+`Oshie, Washington's alternate captain, dealt with a chronic back injury last season.`\
+https://nytimes.com/athletic/5777570/2024/09/18/tj-oshie-capitals-ltir-injury/
+
 **What Losing in 2020 Did to Trump**\
 `He can’t stop talking about it.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/stump-speech-trump-2020
 
 **Sean Combs Must Stay in Jail Until Trial After Judge Rejects Appeal**\
-`Mr. Combs’s lawyers failed to convince a judge he would not be a flight risk or danger to the community while awaiting his sex trafficking and racketeering conspiracy trial.`\
+`The judge said Mr. Combs posed a risk of witness tampering while awaiting his sex trafficking and racketeering conspiracy trial.`\
 https://nytimes.com/2024/09/18/arts/music/sean-combs-diddy-bail-appeal.html
 
 **Thursday Briefing: A Second Day of Explosions in Lebanon**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/us/politics/survivor-season-47-jon-lovett.html
 **Titan Disaster Hearing Upends Earlier Expert Theories on Crew Deaths**\
 `Two days of reporting and testifying by experts during a U.S. Coast Guard inquiry challenge the idea that the submersible’s passengers knew they were facing death.`\
 https://nytimes.com/2024/09/18/science/titan-disaster-hearing-crew-deaths-theories.html
-
-**To Win Votes, Trump Floats an Array of Expensive Tax Cuts**\
-`Whether he is speaking to retirees, corporate executives or tipped workers, former President Donald J. Trump has made a habit of promising tax cuts that could cost trillions.`\
-https://nytimes.com/2024/09/18/us/politics/trump-tax-cuts.html
 

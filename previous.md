@@ -1,3 +1,11 @@
+**What Losing in 2020 Did to Trump**\
+`He can’t stop talking about it.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/stump-speech-trump-2020
+
+**Sean Combs Must Stay in Jail Until Trial After Judge Rejects Appeal**\
+`Mr. Combs’s lawyers failed to convince a judge he would not be a flight risk or danger to the community while awaiting his sex trafficking and racketeering conspiracy trial.`\
+https://nytimes.com/2024/09/18/arts/music/sean-combs-diddy-bail-appeal.html
+
 **Thursday Briefing: A Second Day of Explosions in Lebanon**\
 `Plus, Kamala Harris courts Latino voters.`\
 https://nytimes.com/2024/09/18/briefing/lebanon-explosions-harris-kashmir.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/science/titan-disaster-hearing-crew-deaths-theori
 **To Win Votes, Trump Floats an Array of Expensive Tax Cuts**\
 `Whether he is speaking to retirees, corporate executives or tipped workers, former President Donald J. Trump has made a habit of promising tax cuts that could cost trillions.`\
 https://nytimes.com/2024/09/18/us/politics/trump-tax-cuts.html
-
-**Dusko Doder, 87, Cold War Journalist Falsely Accused of K.G.B. Ties, Dies**\
-`His career was ruined when Time magazine reported that the Soviets had recruited him while he led The Washington Post’s Moscow bureau. Sued for libel, Time apologized.`\
-https://nytimes.com/2024/09/18/obituaries/dusko-doder-dead.html
-
-**Sabres training camp: 10 things we learned from Lindy Ruff's first practice**\
-`Ruff isn’t wasting time with nostalgia and is pushing players to practice harder.`\
-https://nytimes.com/athletic/5777325/2024/09/18/sabres-training-camp-lindy-ruff/
 
