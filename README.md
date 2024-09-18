@@ -1,3 +1,7 @@
+**U.N. Body Demands Israel End Its ‘Unlawful Presence in the Occupied Palestinian Territory’**\
+`Nearly two-thirds of the U.N. General Assembly voted in favor of a nonbinding resolution calling for Israel to end its occupation within a year. The United States was among the opposition.`\
+https://nytimes.com/2024/09/18/world/middleeast/un-israel-occupation-palestinian.html
+
 **It’s the Economic Vibe, Stupid**\
 `Polling shows voters feel persistently sour about the economy, a confounding dynamic for Democrats.`\
 https://nytimes.com/2024/09/18/us/politics/fed-economy-harris-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/world/middleeast/lebanon-explosions-radios.html
 **Dodgers' Gavin Stone 'very unlikely' to return this season**\
 `Although it had been expected Stone wouldn't pitch again this season, the news throws the Dodgers' postseason rotation into further flux.`\
 https://nytimes.com/athletic/5777594/2024/09/18/dodgers-gavin-stone-injury-update/
-
-**The Democrat in North Carolina’s governor’s race has rejected debating his Republican rival.**\
-`By Eduardo Medina`\
-https://nytimes.com/live/2024/09/18/us/trump-harris-election/the-democrat-in-north-carolinas-governors-race-has-rejected-debating-his-republican-rival
 
