@@ -1,3 +1,7 @@
+**Go for a Rebound**\
+`Casey Callaghan and Will Nediger reach new heights in their collaboration debut.`\
+https://nytimes.com/2024/09/17/crosswords/daily-puzzle-2024-09-18.html
+
 **Trump Makes Big Promises, With Little Detail, for Michigan’s Auto Industry**\
 `At his first campaign event since the apparent assassination attempt on Sunday, Donald J. Trump used dire language to insist that if he loses in November it would crush auto jobs.`\
 https://nytimes.com/2024/09/17/us/politics/trump-michigan-town-hall-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/world/canada/cathy-merrick-dead.html
 **Why Eric Adams Is Resisting Pressure to Oust Members of His Inner Circle**\
 `Mayor Adams has been loyal to longtime aides despite growing calls for them to resign. It is a trait he has shown through his career.`\
 https://nytimes.com/2024/09/17/nyregion/eric-adams-resignations-scandal.html
-
-**Until Saturday: Pac-12-Mountain West drama, plus Texas moves to No. 1**\
-`Welcome to Until Saturday, the five-star college football newsletter: How the Pac-12 expansion came together and what’s next.`\
-https://nytimes.com/athletic/5772190/2024/09/17/pac-12-expansion-mountain-west-conference-until-saturday/
 
