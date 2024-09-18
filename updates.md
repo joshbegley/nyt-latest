@@ -1,3 +1,19 @@
+**Dusko Doder, 87, Cold War Journalist Falsely Accused of K.G.B. Ties, Dies**\
+`His career was ruined when Time magazine reported that the Soviets had recruited him while he led The Washington Post’s Moscow bureau. Sued for libel, Time apologized.`\
+https://nytimes.com/2024/09/18/obituaries/dusko-doder-dead.html
+
+**Sabres training camp: 10 things we learned from Lindy Ruff's first practice**\
+`Ruff isn’t wasting time with nostalgia and is pushing players to practice harder.`\
+https://nytimes.com/athletic/5777325/2024/09/18/sabres-training-camp-lindy-ruff/
+
+**Adrian Wojnarowski brings a fitting end to a legendary career — one last 'Woj bomb'**\
+`Adrian Wojnarowski took a big risk in 2007. It changed his life, and the sports reporting industry, forever and made him a legend.`\
+https://nytimes.com/athletic/5777334/2024/09/18/adrian-wojnarowski-retires-espn-nba-woj-bomb/
+
+**TelevisaUnivision Considers Removing C.E.O. Who Knit Company Together**\
+`Wade Davis led an acquisition of Univision in 2020, buying out a consortium of private-equity owners.`\
+https://nytimes.com/2024/09/18/business/media/televisaunivision-wade-davis.html
+
 **Mets' pitching prospect Christian Scott explains his path to Tommy John surgery**\
 `Scott wanted badly to be part of the Mets’ chase for a wild-card spot or to help in some capacity in the playoffs.`\
 https://nytimes.com/athletic/5777195/2024/09/18/mets-christian-scott-tommy-john/
