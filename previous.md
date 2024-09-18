@@ -1,3 +1,11 @@
+**Husband Is Indicted in Double-Murder Case Involving an Au Pair**\
+`Prosecutors in Virginia said the case involved a hidden love affair and sex arranged over a fetish site.`\
+https://nytimes.com/article/brendan-banfield-murder-wife-au-pair.html
+
+**Melania Trump Defends Nude Modeling Work as She Promotes Book**\
+`The former first lady called her past work a “celebration of the human form” in a video, the latest in a series promoting her memoir and appearing to reflect her deeply held beliefs.`\
+https://nytimes.com/2024/09/18/us/politics/melania-trump-nude-modeling.html
+
 **Takeaways from the Fed’s rate cut decision.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/09/18/business/fed-interest-rates/fed-rate-cut-takeaways
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009694996/what-does-the-fed-interest-rate-cut
 **'One step ahead': Why Tristan Luneau could be poised to thrive with the Ducks**\
 `Free from a frustrating knee issue last season, Luneau brings something different to the Ducks' blue line.`\
 https://nytimes.com/athletic/5777156/2024/09/18/ducks-tristan-luneau-defense/
-
-**Orioles designate Craig Kimbrel for assignment**\
-`The Orioles DFA'd Craig Kimbrel on Wednesday, ending an unsuccessful tenure in Baltimore and potentially the 36-year-old veteran’s career.`\
-https://nytimes.com/athletic/5777214/2024/09/18/craig-kimbrel-dfa-orioles/
-
-**In Praise of the Chicken Braise**\
-`Bone-in chicken on a bed of olive-studded, lemony greens is at the ready for sweater season.`\
-https://nytimes.com/2024/09/18/dining/how-to-braise-chicken.html
 

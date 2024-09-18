@@ -1,3 +1,11 @@
+**Husband Is Indicted in Double-Murder Case Involving an Au Pair**\
+`Prosecutors in Virginia said the case involved a hidden love affair and sex arranged over a fetish site.`\
+https://nytimes.com/article/brendan-banfield-murder-wife-au-pair.html
+
+**Melania Trump Defends Nude Modeling Work as She Promotes Book**\
+`The former first lady called her past work a “celebration of the human form” in a video, the latest in a series promoting her memoir and appearing to reflect her deeply held beliefs.`\
+https://nytimes.com/2024/09/18/us/politics/melania-trump-nude-modeling.html
+
 **Takeaways from the Fed’s rate cut decision.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/09/18/business/fed-interest-rates/fed-rate-cut-takeaways
