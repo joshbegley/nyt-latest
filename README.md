@@ -1,3 +1,7 @@
+**Titan Disaster Hearing Upends Earlier Expert Theories on Crew Deaths**\
+`Two days of reporting and testifying by experts during a U.S. Coast Guard inquiry challenge the idea that the submersible’s passengers knew they were facing death.`\
+https://nytimes.com/2024/09/18/science/titan-disaster-hearing-crew-deaths-theories.html
+
 **To Win Votes, Trump Floats an Array of Expensive Tax Cuts**\
 `Whether he is speaking to retirees, corporate executives or tipped workers, former President Donald J. Trump has made a habit of promising tax cuts that could cost trillions.`\
 https://nytimes.com/2024/09/18/us/politics/trump-tax-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/arts/john-cassaday-dead.html
 **Federal Reserve Cuts Interest Rates for the First Time in Four Years**\
 `Jerome H. Powell, the Fed chair, said that the central bank would take future interest rate cuts “meeting by meeting” after lowering rates by a half percentage point, an unusually large move.`\
 https://nytimes.com/video/business/economy/100000009704500/federal-reserve-interest-rates-cut.html
-
-**Harvey Weinstein Faces New Sexual Assault Charge in Manhattan**\
-`The disgraced Hollywood producer’s 2020 sex-crime conviction was thrown out, but he will be retried on those charges as well.`\
-https://nytimes.com/2024/09/18/nyregion/harvey-weinstein-sexual-assault-charge.html
 
