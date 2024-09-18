@@ -1,3 +1,11 @@
+**In Georgia, a New Showdown Is Brewing Over Election Rules**\
+`The state election board was recently taken over by a conservative majority. Its latest proposals are dangerously late in the process and most likely illegal, according to the secretary of state.`\
+https://nytimes.com/2024/09/18/us/elections/georgia-elections-board-rules.html
+
+**What Trump Has Said About Rates, and Why It Matters**\
+`He has suggested that presidents should “have a say” on interest rates, though he later walked the comment back.`\
+https://nytimes.com/2024/09/18/business/economy/trump-interest-rates.html
+
 **The Windup: Altuve got ejected for *what*?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5776784/2024/09/18/jose-altuve-foot-ejection-the-windup/

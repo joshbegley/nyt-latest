@@ -1,3 +1,11 @@
+**In Georgia, a New Showdown Is Brewing Over Election Rules**\
+`The state election board was recently taken over by a conservative majority. Its latest proposals are dangerously late in the process and most likely illegal, according to the secretary of state.`\
+https://nytimes.com/2024/09/18/us/elections/georgia-elections-board-rules.html
+
+**What Trump Has Said About Rates, and Why It Matters**\
+`He has suggested that presidents should “have a say” on interest rates, though he later walked the comment back.`\
+https://nytimes.com/2024/09/18/business/economy/trump-interest-rates.html
+
 **The Windup: Altuve got ejected for *what*?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5776784/2024/09/18/jose-altuve-foot-ejection-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/us/texas-grid-renewables-battery-storage-solar.ht
 **Behind Our Reporting**\
 `With more than 230 school shootings in the United States over the past decade, and active shooter drills now a routine part of students’ lives, technologies developed to protect soldiers in combat are being adapted and marketed to parents and schools.`\
 https://nytimes.com/video/video/100000009510769/behind-our-reporting.html
-
-**M.T.A.’s Financial Needs Grow With Congestion Pricing in Purgatory**\
-`Transit leaders proposed a plan on Wednesday to spend more than $65 billion to upgrade New York City’s subway and bus system. Whether they will be able to fully fund it is unclear.`\
-https://nytimes.com/2024/09/18/nyregion/mta-capital-plan-congestion-pricing.html
-
-**Elias Khoury, Master of the Modern Arabic Novel, Dies at 76**\
-`In his fiction and journalism, he sought to illustrate the story of the contemporary Middle East and his native Lebanon.`\
-https://nytimes.com/2024/09/18/books/elias-khoury-dead.html
 
