@@ -1,3 +1,7 @@
+**Parker Meadows' catch saves another victory in Tigers' playoff push**\
+`Detroit is 42-23 in games when Meadows is in the starting lineup. His clutch play made the difference again Tuesday. `\
+https://nytimes.com/athletic/5775637/2024/09/18/tigers-parker-meadows/
+
 **Brain games: Sticking with struggling backs Rachaad White and D'Andre Swift in Week 3**\
 `Renee Miller explains the biases at play in fantasy football and why she is still backing Rachaad White and D'Andre Swift in Week 3.`\
 https://nytimes.com/athletic/5774550/2024/09/18/brain-games-fantasy-football-week-3-rachaad-white-dandre-swift/

@@ -1,3 +1,7 @@
+**Parker Meadows' catch saves another victory in Tigers' playoff push**\
+`Detroit is 42-23 in games when Meadows is in the starting lineup. His clutch play made the difference again Tuesday. `\
+https://nytimes.com/athletic/5775637/2024/09/18/tigers-parker-meadows/
+
 **Brain games: Sticking with struggling backs Rachaad White and D'Andre Swift in Week 3**\
 `Renee Miller explains the biases at play in fantasy football and why she is still backing Rachaad White and D'Andre Swift in Week 3.`\
 https://nytimes.com/athletic/5774550/2024/09/18/brain-games-fantasy-football-week-3-rachaad-white-dandre-swift/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5725756/2024/09/18/brighton-trophies-carabao-fa-cup
 **Farke's subs have long been a bone of contention at Leeds. This is the good and the bad**\
 `There has been significant criticism of Daniel Farke's substitutions throughout his time at Elland Road`\
 https://nytimes.com/athletic/5773243/2024/09/18/leeds-daniel-farke-substitutions/
-
-**Blue Jays takeaways: What Bo Bichette can accomplish with 2 weeks left in the season**\
-`Bichette doesn't have enough games left to save his season statistically, but a strong, healthy finish would have significant benefits.`\
-https://nytimes.com/athletic/5775588/2024/09/18/blue-jays-takeaways-bo-bichette-return/
 
