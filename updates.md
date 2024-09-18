@@ -1,3 +1,23 @@
+**What We Know About the Deadly Pager Explosions in Lebanon**\
+`The seemingly coordinated blasts targeting Hezbollah members stoked fears of a broadening conflict.`\
+https://nytimes.com/2024/09/18/world/europe/pager-explosions-lebanon-what-we-know.html
+
+**Broncos mailbag: Is it too early to be concerned with Bo Nix's struggles?**\
+`Broncos fans want to know why an offense that is struggling in the passing game hasn't found a way to use speedsters like Marvin Mims Jr.`\
+https://nytimes.com/athletic/5773412/2024/09/18/broncos-mailbag-bo-nix-week-3/
+
+**Lowetide: Which Oilers roster spots could go to a potential impact rookie?**\
+`How many rookies could the Oilers lean on this season? Probably more than most believe.`\
+https://nytimes.com/athletic/5772180/2024/09/18/edmonton-oilers-potential-impact-rookie/
+
+**LeBrun: Catching up with Jim Nill on the Stars offseason, Jamie Benn's future and how Matt Dumba fits on D**\
+`Also, how Nill sees the Dallas defense shaking out and why he thinks summer signing Matt Dumba "can really change our team."`\
+https://nytimes.com/athletic/5773893/2024/09/18/stars-offseason-jim-nill/
+
+**Pager Attacks Embarrass Hezbollah but May Not Deter It, Analysts Say**\
+`The armed group’s history suggests that the attacks targeting its pagers will not cause it to change course or seek an accommodation with Israel.`\
+https://nytimes.com/2024/09/18/world/middleeast/hezbollah-israel-pager-lebanon.html
+
 **A poised Jayden Daniels is remembering to have fun while leading Commanders**\
 `“That’s what you live for, those moments,” the rookie QB said after leading the game-winning drive against the Giants in Week 2.`\
 https://nytimes.com/athletic/5775022/2024/09/18/commanders-jayden-daniels-poise/
