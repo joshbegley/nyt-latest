@@ -1,3 +1,7 @@
+**What’s in Our Queue? Cycladic Art and More**\
+`I’m a culture reporter for The New York Times, where I investigate the art world’s relationship to money, politics and technology. Here are five things I’m obsessed with.`\
+https://nytimes.com/interactive/2024/09/18/arts/editors-recommendations-cycladic-art.html
+
 **Boeing to Begin Temporary Layoffs Because of Strike**\
 `The aerospace giant said it would temporarily lay off tens of thousands of employees to stem losses from a walkout by the machinists’ union.`\
 https://nytimes.com/2024/09/18/business/boeing-strike-layoffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/nyregion/harrison-j-goldin-dead.html
 **Analysts and executives are split over the Fed’s next move.**\
 `By Danielle Kaye`\
 https://nytimes.com/live/2024/09/18/business/fed-interest-rates/analysts-and-executives-are-split-over-the-feds-next-move
-
-**Roma appoint Juric as De Rossi's replacement**\
-`Ivan Juric has been named as head coach of Roma on a one-year contract following the sacking of Daniele de Rossi.`\
-https://nytimes.com/athletic/5776189/2024/09/18/roma-ivan-juric-head-coach/
 
