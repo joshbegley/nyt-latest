@@ -1,3 +1,7 @@
+**Justice Department Files $100 Million Claim in Fatal Baltimore Bridge Collapse**\
+`The crash of the Dali into the Francis Scott Key Bridge killed six people. The federal government says the owner and the operator were “grossly negligent” and “reckless.”`\
+https://nytimes.com/2024/09/18/us/justice-department-suit-baltimore-bridge-collapse.html
+
 **Shaw to miss Man City's clash vs Paris FC due to visa issue**\
 `Manchester City forward Khadija Shaw will miss Wednesday night’s Champions League qualifier against Paris FC due to a visa issue.`\
 https://nytimes.com/athletic/5776531/2024/09/18/khadija-shaw-manchester-city-paris-fc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5776341/2024/09/18/aja-wilson-wnba-rebounding-recor
 **What we're hearing about the Pac-12, AAC and Mountain West's next moves**\
 `We spoke with a dozen people involved in the discussions and no one sees an easy move, making it hard to predict realignment resolution.`\
 https://nytimes.com/athletic/5776229/2024/09/18/pac-12-aac-mountain-west-realignment/
-
-**‘You’re Basically on a Broadway Stage, With New Friends’**\
-`At the touring dance party Broadway Rave, the playlist is all show tunes. But don’t worry, no house remixes of “I Dreamed a Dream” here.`\
-https://nytimes.com/2024/09/18/theater/broadway-rave-theater-musicals.html
 
