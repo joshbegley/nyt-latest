@@ -1,3 +1,7 @@
+**The Police Called. He Checked the News, and His ‘Heart Dropped.’**\
+`Gregory Delpeche, a bystander, is in critical condition after being shot by a police officer at a Brooklyn subway station. His friend of decades says it never should have happened.`\
+https://nytimes.com/2024/09/18/nyregion/nypd-shooting-brooklyn-subway-bystander.html
+
 **Trump, Hardly New York’s Favorite Son, Brings His Message to Long Island**\
 `Donald J. Trump’s rally in Nassau County on Wednesday is another sign of the area’s shift to the right, but some question his choice to spend time in a non-battleground state.`\
 https://nytimes.com/2024/09/18/nyregion/trump-long-island-nassau.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5775745/2024/09/18/yankees-juan-soto-free-agency-20
 **Deep Links Between Alcohol and Cancer Are Described in New Report**\
 `Scientists continue to rethink the idea that moderate drinking offers health benefits.`\
 https://nytimes.com/2024/09/18/health/alcohol-cancer-young-adults.html
-
-**Word of the Day: disproportionate**\
-`This word has appeared in 283 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/18/learning/word-of-the-day-disproportionate.html
 
