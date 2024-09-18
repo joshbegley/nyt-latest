@@ -1,40 +1,40 @@
-**Here is the latest on the pager attack.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/here-is-the-latest-on-the-pager-attack
+**With Trump Sentencing Delayed, It’s an Ordinary Wednesday**\
+`In Justice Juan Merchan’s Manhattan courtroom, the wheels of justice keep turning on the day that the former president was to have been sentenced.`\
+https://nytimes.com/2024/09/18/nyregion/juan-merchan-trump-sentencing.html
 
-**Tupperware, Food Container Pioneer, Files for Bankruptcy**\
-`The once-mighty kitchenware company has struggled financially for years. It says the direct sales model that fueled its success has become a weakness.`\
-https://nytimes.com/2024/09/18/business/tupperware-bankruptcy.html
+**$600,000 Homes in Kentucky, Texas and Connecticut**\
+`A 1910 Arts and Crafts-style home in Louisville, a three-bedroom bungalow in Marfa and a Colonial Revival house in Farmington.`\
+https://nytimes.com/2024/09/18/realestate/600000-dollar-homes-kentucky-texas-connecticut.html
 
-**Roma sack De Rossi after eight months in charge**\
-`Daniele de Rossi has been sacked as Roma head coach after eight months in charge.`\
-https://nytimes.com/athletic/5775802/2024/09/18/daniele-de-rossi-sacked-roma/
+**An Irish Bishop Was Buried in a Cathedral Vault. His Secrets Were Not.**\
+`The funeral of Bishop Eamonn Casey in 2017 seemed to draw a line under his scandalous affair years before. But this summer, disturbing new allegations emerged.`\
+https://nytimes.com/2024/09/18/world/europe/ireland-bishop-eamonn-casey.html
 
-**Just a Really Fantastic Fashion Show**\
-`Francesco Risso creates a triumphant Marni collection.`\
-https://nytimes.com/2024/09/18/style/marni-milan-fashion-week.html
+**The Evolution of the BMW PGA Championship**\
+`The tournament, long a staple for European players, has become an international event for the world’s top golfers.`\
+https://nytimes.com/2024/09/18/sports/golf/bmw-pga-championship-wentworth.html
 
-**Former England striker Duggan retires from football**\
-`Former England and Manchester City striker Toni Duggan has announced her retirement from football, aged 33.`\
-https://nytimes.com/athletic/5775780/2024/09/18/toni-duggan-retires/
+**Biden Needs to Work on His Clemency Legacy**\
+`It is more important than ever in an era of grossly excessive punishments and mass incarceration.`\
+https://nytimes.com/2024/09/18/opinion/biden-record-clemency.html
 
-**The Police Called. He Checked the News, and His ‘Heart Dropped.’**\
-`Gregory Delpeche, a bystander, is in critical condition after being shot by a police officer at a Brooklyn subway station. His friend of decades says it never should have happened.`\
-https://nytimes.com/2024/09/18/nyregion/nypd-shooting-brooklyn-subway-bystander.html
+**Tommy Fleetwood’s International Success Has Not Carried Over to America … Yet**\
+`Heading into the BMW PGA Championship in his home country, the English golfer talked about the Olympics and playing in the United States.`\
+https://nytimes.com/2024/09/18/sports/golf/tommy-fleetwood-bmw-pga-championship.html
 
-**Trump, Hardly New York’s Favorite Son, Brings His Message to Long Island**\
-`Donald J. Trump’s rally in Nassau County on Wednesday is another sign of the area’s shift to the right, but some question his choice to spend time in a non-battleground state.`\
-https://nytimes.com/2024/09/18/nyregion/trump-long-island-nassau.html
+**Gillian Anderson Wants to Hear Your Sexiest Fantasies**\
+`The actor’s new book shares sexual fantasies from anonymous women around the world.`\
+https://nytimes.com/2024/09/18/podcasts/gillian-anderson-sexiest-fantasies.html
 
-**Water Bottles**\
-`Did you get a new one to start the school year?`\
-https://nytimes.com/2024/09/18/learning/water-bottles.html
+**Finding London’s Most Distinctive Shops**\
+`Sure, you can hit Harrods. But the British capital also has small specialized shops, some centuries old and still crafting items by hand. Here, a selection of singular shopping experiences.`\
+https://nytimes.com/2024/09/18/travel/london-independent-shops-stores.html
 
-**A $336 Million Plan to Build Housing, Retail and an Arts Hub in Newark**\
-`NJPAC in Newark is building apartments, retail space and a huge community center. It sees the project as key to its mission — and its future.`\
-https://nytimes.com/2024/09/18/nyregion/performing-arts-real-estate-nj.html
+**The Simple Secret to the Best Fried Rice? Mayo and Corn.**\
+`This unexpected combo will make the flavor and texture really stand out.`\
+https://nytimes.com/2024/09/18/magazine/fried-rice-corn-mayo.html
 
-**Plastic Waste and Toxic Sludge: A Sweep of a Messy Beat**\
-`The Climate reporter Hiroko Tabuchi is interested in all the things we take for granted about our environment.`\
-https://nytimes.com/2024/09/18/insider/pollution-effects.html
+**A Cape Cod Beach Shack Where Charm Takes Priority Over Air Conditioning**\
+`A minimalist Manhattan architect gets fresh air — and fresh eyes — at his family’s cluttered cabin.`\
+https://nytimes.com/2024/09/18/t-magazine/cape-cod-beach-cabin.html
 
