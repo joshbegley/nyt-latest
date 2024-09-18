@@ -1,3 +1,7 @@
+**Musk Finds a Way Around Brazil’s X Ban**\
+`Elon Musk’s social media platform used a technical maneuver to restore service for many Brazilians after a court blocked it. Regulators were trying to ban it again. Experts predicted it would be difficult.`\
+https://nytimes.com/2024/09/18/world/americas/brazil-musk-x-ban.html
+
 **John Cassaday, Award-Winning Comic Book Artist, Dies at 52**\
 `In series like Planetary, of which he was a creator, and Astonishing X-Men, his drawings conveyed a sense of realism in situations that were often fantastical.`\
 https://nytimes.com/2024/09/18/arts/john-cassaday-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/brendan-banfield-murder-wife-au-pair.html
 **Melania Trump Defends Nude Modeling Work as She Promotes Book**\
 `The former first lady called her past work a “celebration of the human form” in a video, the latest in a series promoting her memoir and appearing to reflect her deeply held beliefs.`\
 https://nytimes.com/2024/09/18/us/politics/melania-trump-nude-modeling.html
-
-**Takeaways from the Fed’s rate cut decision.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/09/18/business/fed-interest-rates/fed-rate-cut-takeaways
 
