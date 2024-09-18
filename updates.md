@@ -1,3 +1,11 @@
+**How the Secret Service Missed Chances to Halt a Tragedy at a Trump Rally**\
+`Communications gaps, unguarded warehouses and a lack of written instructions opened an opportunity for a gunman at a rally in Butler, Pa., in July.`\
+https://nytimes.com/2024/09/18/us/politics/trump-rally-secret-service.html
+
+**How 3 games in 7 days across nearly 3,000 miles has become the norm for Gotham FC**\
+`A rash of new club competitions have created a gruelling schedule for Gotham's players`\
+https://nytimes.com/athletic/5775938/2024/09/18/gotham-nwsl-match-calendar/
+
 **Harrison J. Goldin, 88, New York City Comptroller in Fiscal Crisis, Is Dead**\
 `He weathered the storm as the city’s chief financial officer for 16 years and jousted with Mayor Koch in a public feud and a losing primary bid to replace him.`\
 https://nytimes.com/2024/09/18/nyregion/harrison-j-goldin-dead.html
