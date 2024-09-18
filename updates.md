@@ -1,3 +1,19 @@
+**Tyson Faces Lawsuit Over Labeling of ‘Climate-Smart’ Beef**\
+`An environmental group said the company, a major food producer, was misleading shoppers with its claims about eco-friendly practices.`\
+https://nytimes.com/2024/09/18/climate/tyson-beef-climate-lawsuit.html
+
+**Floods Wreak Havoc Across Four Continents**\
+`Flooding events around the world share a common factor of an atmosphere made warmer by climate change. What can be done to help citizens prepare?`\
+https://nytimes.com/2024/09/18/climate/global-flooding-climate-change.html
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`Caleb Williams took a beating in the Bears' loss to the Texans, and the concerns about the offense are growing. Bring on your questions.`\
+https://nytimes.com/athletic/5776973/2024/09/18/bears-mailbag-questions-32/
+
+**Chargers QB Justin Herbert not seen at practice**\
+`Herbert was brought down awkwardly when attempting to step up in the pocket Sunday but didn't miss a snap and finished the game.`\
+https://nytimes.com/athletic/5777136/2024/09/18/chargers-justin-herbert-ankle-injry/
+
 **What I'm seeing around the Penguins: Did Letang ask for a trade?**\
 `Letang was frustrated at the end of last season, but he says he didn't ask to be traded to another team.`\
 https://nytimes.com/athletic/5776948/2024/09/18/penguins-kris-letang-trade-rumor/

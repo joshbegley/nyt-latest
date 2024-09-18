@@ -1,3 +1,19 @@
+**Tyson Faces Lawsuit Over Labeling of ‘Climate-Smart’ Beef**\
+`An environmental group said the company, a major food producer, was misleading shoppers with its claims about eco-friendly practices.`\
+https://nytimes.com/2024/09/18/climate/tyson-beef-climate-lawsuit.html
+
+**Floods Wreak Havoc Across Four Continents**\
+`Flooding events around the world share a common factor of an atmosphere made warmer by climate change. What can be done to help citizens prepare?`\
+https://nytimes.com/2024/09/18/climate/global-flooding-climate-change.html
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`Caleb Williams took a beating in the Bears' loss to the Texans, and the concerns about the offense are growing. Bring on your questions.`\
+https://nytimes.com/athletic/5776973/2024/09/18/bears-mailbag-questions-32/
+
+**Chargers QB Justin Herbert not seen at practice**\
+`Herbert was brought down awkwardly when attempting to step up in the pocket Sunday but didn't miss a snap and finished the game.`\
+https://nytimes.com/athletic/5777136/2024/09/18/chargers-justin-herbert-ankle-injry/
+
 **What I'm seeing around the Penguins: Did Letang ask for a trade?**\
 `Letang was frustrated at the end of last season, but he says he didn't ask to be traded to another team.`\
 https://nytimes.com/athletic/5776948/2024/09/18/penguins-kris-letang-trade-rumor/
@@ -21,20 +37,4 @@ https://nytimes.com/video/science/earth/100000009704208/oceangate-titan-submersi
 **There Was Nothing Political About the Fed’s Big Interest Rate Cut**\
 `If anything, the cutting should have begun earlier.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/fed-rate-cut-political
-
-**USC's surge continues, top-50 WR Jerome Myles commits**\
-`Myles, who plays at Corner Canyon High School in Draper, Utah, is ranked No. 36 overall in the Class of 2025.`\
-https://nytimes.com/athletic/5776247/2024/09/18/usc-recruiting-jerome-myles/
-
-**I Handle My Mother’s Money. Must I Donate to a Church I Disapprove of?**\
-`The magazine’s Ethicist columnist on how to perform charitable acts on behalf of an incapacitated loved one, especially when a potential beneficiary offends your own morals.`\
-https://nytimes.com/2024/09/18/magazine/donate-aide-church-homophobia.html
-
-**A Fossilized Creature May Explain a Puzzling Painting on a Rock Wall**\
-`The artwork suggests that the San people of South Africa have an Indigenous knowledge of paleontology that predated Western approaches to the field.`\
-https://nytimes.com/2024/09/18/science/san-rock-art-fossil.html
-
-**Vance Complains About Democrats Using ‘Fascist.’ Trump Uses It Often.**\
-`The Republican vice-presidential candidate blamed Democrats for political vitriol after Sunday’s apparent assassination attempt against Donald J. Trump.`\
-https://nytimes.com/2024/09/18/us/politics/vance-trump-fascist.html
 
