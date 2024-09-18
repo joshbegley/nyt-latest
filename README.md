@@ -1,3 +1,7 @@
+**Brain games: Sticking with struggling backs Rachaad White and D'Andre Swift in Week 3**\
+`Renee Miller explains the biases at play in fantasy football and why she is still backing Rachaad White and D'Andre Swift in Week 3.`\
+https://nytimes.com/athletic/5774550/2024/09/18/brain-games-fantasy-football-week-3-rachaad-white-dandre-swift/
+
 **Astros' Jose Altuve ejected vs. Padres for taking off sock and shoe**\
 `Altuve removed his left cleat, tore off his sock and began to hobble toward the umpires, earning his ejection while pointing at his toes.`\
 https://nytimes.com/athletic/5775668/2024/09/18/jose-altuve-astros-padres-ejection-shoe-sock-removal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5773243/2024/09/18/leeds-daniel-farke-substitutions
 **Blue Jays takeaways: What Bo Bichette can accomplish with 2 weeks left in the season**\
 `Bichette doesn't have enough games left to save his season statistically, but a strong, healthy finish would have significant benefits.`\
 https://nytimes.com/athletic/5775588/2024/09/18/blue-jays-takeaways-bo-bichette-return/
-
-**An anatomy of Arsenal's away wins in 2024: Free-flowing thrashings to contained opportunism**\
-`How Arsenal have varied their tactics away from home to put Chelsea's Premier League records in their sights`\
-https://nytimes.com/athletic/5770649/2024/09/18/anatomy-of-arsenal-away-form-2024/
 
