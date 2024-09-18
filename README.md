@@ -1,3 +1,11 @@
+**What I'm seeing around the Penguins: Did Letang ask for a trade?**\
+`Letang was frustrated at the end of last season, but he says he didn't ask to be traded to another team.`\
+https://nytimes.com/athletic/5776948/2024/09/18/penguins-kris-letang-trade-rumor/
+
+**Trump’s Talk of Prosecution Rattles Election Officials**\
+`The former president has long claimed, despite evidence to the contrary, that elections are corrupt. What if he carries through with threats to prosecute the officials who run them?`\
+https://nytimes.com/2024/09/18/us/politics/donald-trump-2024-election-officials.html
+
 **Coco Gauff splits with coach Brad Gilbert**\
 `Brad Gilbert has announced that he is no longer coaching Coco Gauff.`\
 https://nytimes.com/athletic/5777105/2024/09/18/coco-gauff-brad-gilbert-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/science/san-rock-art-fossil.html
 **Vance Complains About Democrats Using ‘Fascist.’ Trump Uses It Often.**\
 `The Republican vice-presidential candidate blamed Democrats for political vitriol after Sunday’s apparent assassination attempt against Donald J. Trump.`\
 https://nytimes.com/2024/09/18/us/politics/vance-trump-fascist.html
-
-**Jon Gruden wants to return to coaching: 'I'll be ready to go if needed'**\
-`Gruden held an advisor role with the Saints last year, but he hasn't had a full-time NFL coaching role since resigning from the Raiders.`\
-https://nytimes.com/athletic/5777040/2024/09/18/jon-gruden-return-coaching/
-
-**Pioli appointed Al Nassr head coach after Milan exit**\
-`Stefano Pioli has been appointed as the new Al Nassr head coach.`\
-https://nytimes.com/athletic/5773650/2024/09/18/stefano-pioli-al-nassr/
 
