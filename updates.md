@@ -1,3 +1,11 @@
+**Word of the Day: disproportionate**\
+`This word has appeared in 283 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/18/learning/word-of-the-day-disproportionate.html
+
+**Eddie Nketiah is off the mark at Crystal Palace and impressing in a new role**\
+`The striker signed from Arsenal has been asked to operate as a No 10 in his first two games under Oliver Glasner, a role he has embraced`\
+https://nytimes.com/athletic/5767206/2024/09/18/palace-nketiah-striker-10-qpr/
+
 **Aston Villa's strange, surreal and memorable return to the Champions League**\
 `Aston Villa overcame Young Boys on Tuesday night as they returned to the Champions League`\
 https://nytimes.com/athletic/5775003/2024/09/18/aston-villa-champions-league-young-boys/
