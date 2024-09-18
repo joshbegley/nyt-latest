@@ -1,3 +1,11 @@
+**Lance Lynn posts a gem in what could be his final home start at Busch Stadium**\
+`Lynn went 6-0 with a 3.15 ERA in 13 home starts this season and delivered a strong outing in his potential farewell.`\
+https://nytimes.com/athletic/5775389/2024/09/18/cardinals-mlb-lance-lynn-last-start/
+
+**It's time for West Ham to unleash Crysencio Summerville**\
+`Billed as a major signing after lighting up the Championship last season, it's about time the Dutchman was given a start in the league`\
+https://nytimes.com/athletic/5771079/2024/09/18/its-time-for-west-ham-to-unleash-crysencio-summerville/
+
 **A postseason formula fuels Phillies in September as Bryce Harper and Zack Wheeler thrive**\
 `The formula is complicated until it's not. At their core, the Phillies are a team powered by stars.`\
 https://nytimes.com/athletic/5775619/2024/09/18/phillies-postseason-formula-bryce-harper-zack-wheeler/
