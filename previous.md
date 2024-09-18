@@ -1,3 +1,11 @@
+**Champions League Briefing: De Bruyne injury, Ronaldo tributes and a late late goalkeeping blunder**\
+`The key talking points from Wednesday's Champions League action, and a reminder on how the new format works — and if losing now matters...`\
+https://nytimes.com/athletic/5776901/2024/09/18/champions-league-talking-points-de-bruyne-injury-gazzaniga-mistake/
+
+**House Defeats Johnson’s Spending Plan With Shutdown Looming**\
+`Both Republicans and Democrats opposed the stopgap funding bill, which was tied to new rules requiring proof of U.S. citizenship to register to vote.`\
+https://nytimes.com/2024/09/18/us/politics/mike-johnson-spending-bill-shutdown.html
+
 **Johnston: Craig Berube sets the expectation as Maple Leafs camp opens — 'there’s got to be an identity'**\
 `The new Leafs coach is bringing a new tone: "Everybody's got to be held accountable, including me. It starts with me, obviously."`\
 https://nytimes.com/athletic/5777442/2024/09/18/craig-berube-maple-leafs-identity/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5777814/2024/09/18/mets-kodai-senga-return/
 **Tottenham's Odobert has 'fairly significant' injury - Postecoglou**\
 `Ange Postecoglou has said a muscular injury sustained by Tottenham Hotspur&#8217;s Wilson Odobert in Wednesday&#8217;s Carabao Cup victory at Coventry City could be &#8220;fairly significant&#8221;.`\
 https://nytimes.com/athletic/5777761/2024/09/18/wilson-odobert-tottenham-injury/
-
-**JD Souther, Who Wrote Hits for the Eagles, Dies at 78**\
-`A central figure in the Southern California rock scene of the 1970s, he later had a regular role on the TV show “Nashville.”`\
-https://nytimes.com/2024/09/18/arts/music/jd-souther-dead.html
-
-**In the Front Row at a MAGA Fashion Show**\
-`On the runway were ball gowns, sequined jackets and, of course, hats.`\
-https://nytimes.com/2024/09/18/style/maga-fashion-show.html
 

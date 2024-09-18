@@ -1,3 +1,11 @@
+**Champions League Briefing: De Bruyne injury, Ronaldo tributes and a late late goalkeeping blunder**\
+`The key talking points from Wednesday's Champions League action, and a reminder on how the new format works — and if losing now matters...`\
+https://nytimes.com/athletic/5776901/2024/09/18/champions-league-talking-points-de-bruyne-injury-gazzaniga-mistake/
+
+**House Defeats Johnson’s Spending Plan With Shutdown Looming**\
+`Both Republicans and Democrats opposed the stopgap funding bill, which was tied to new rules requiring proof of U.S. citizenship to register to vote.`\
+https://nytimes.com/2024/09/18/us/politics/mike-johnson-spending-bill-shutdown.html
+
 **Johnston: Craig Berube sets the expectation as Maple Leafs camp opens — 'there’s got to be an identity'**\
 `The new Leafs coach is bringing a new tone: "Everybody's got to be held accountable, including me. It starts with me, obviously."`\
 https://nytimes.com/athletic/5777442/2024/09/18/craig-berube-maple-leafs-identity/
