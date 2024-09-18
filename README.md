@@ -1,3 +1,7 @@
+**‘Beast Games’ Contestants File Lawsuit Claiming ‘Dangerous Conditions’ on Set**\
+`A group of people who participated in the reality competition show this summer are suing MrBeast’s production company.`\
+https://nytimes.com/2024/09/18/style/mrbeast-reality-show-lawsuit.html
+
 **21 Juveniles Charged With Making School Threats in South Carolina**\
 `The charges are part of a sprawling investigation into more than 60 threats targeting schools in 23 counties since a mass shooting on Sept. 4 in Georgia in which four people were killed at a high school.`\
 https://nytimes.com/2024/09/18/us/south-carolina-school-threats-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5776901/2024/09/18/champions-league-talking-points-
 **House Defeats Johnson’s Spending Plan With Shutdown Looming**\
 `Both Republicans and Democrats opposed the stopgap funding bill, which was tied to new rules requiring proof of U.S. citizenship to register to vote.`\
 https://nytimes.com/2024/09/18/us/politics/mike-johnson-spending-bill-shutdown.html
-
-**Johnston: Craig Berube sets the expectation as Maple Leafs camp opens — 'there’s got to be an identity'**\
-`The new Leafs coach is bringing a new tone: "Everybody's got to be held accountable, including me. It starts with me, obviously."`\
-https://nytimes.com/athletic/5777442/2024/09/18/craig-berube-maple-leafs-identity/
 
