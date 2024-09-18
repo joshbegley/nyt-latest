@@ -1,3 +1,11 @@
+**Will Jordan Love play Sunday? Packers QB 'hopeful' to be back for Titans Sunday**\
+`Love returned to practice Wednesday for the first time since injuring his knee in Brazil against the Eagles.`\
+https://nytimes.com/athletic/5777514/2024/09/18/jordan-love-injury-packers-titans/
+
+**Valarie D’Elia, Travel Reporter on TV and Radio, Dies at 64**\
+`She steered vacationers and business travelers to choice destinations, talked about the best deals, and offered up savvy tips on how to avoid vexation.`\
+https://nytimes.com/2024/09/18/business/media/valarie-delia-dead.html
+
 **Kounde supports Rodri on player strikes: 'Nobody pays attention to us'**\
 `Barcelona defender Jules Kounde &#8220;agreed with everything&#8221; said by Manchester City&#8217;s Rodri on footballers being &#8220;close&#8221; to striking over the volume of matches.`\
 https://nytimes.com/athletic/5777639/2024/09/18/jules-kounde-players-strike/
