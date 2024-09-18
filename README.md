@@ -1,5 +1,5 @@
 **Musk Finds a Way Around Brazil’s X Ban**\
-`Elon Musk’s social media platform used a technical maneuver to restore service for many Brazilians after a court blocked it. Regulators were trying to ban it again. Experts predicted it would be difficult.`\
+`Elon Musk’s social media platform used a technical maneuver to restore service for many Brazilians after a court blocked it. Blocking it again would be difficult, experts said.`\
 https://nytimes.com/2024/09/18/world/americas/brazil-musk-x-ban.html
 
 **John Cassaday, Award-Winning Comic Book Artist, Dies at 52**\
