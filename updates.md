@@ -1,3 +1,11 @@
+**Analysts and executives are split over the Fed’s next move.**\
+`As inflation has cooled significantly, the Federal Reserve`\
+https://nytimes.com/live/2024/09/18/business/fed-interest-rates/analysts-and-executives-are-split-over-the-feds-next-move
+
+**Roma appoint Juric as De Rossi's replacement**\
+`Ivan Juric has been named as head coach of Roma on a one-year contract following the sacking of Daniele de Rossi.`\
+https://nytimes.com/athletic/5776189/2024/09/18/roma-ivan-juric-head-coach/
+
 **How to Read the Fed’s Projections Like a Pro**\
 `The Federal Reserve is expected to cut rates on Wednesday. Wall Street is focused on how much, and on what comes next.`\
 https://nytimes.com/2024/09/18/business/fed-interest-rates-forecast.html
