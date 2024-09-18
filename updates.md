@@ -1,3 +1,7 @@
+**Taiwan Company Tries to Distance Itself From Pagers Used in Lebanon Attack**\
+`The company, Gold Apollo, said it had not manufactured the devices, pointing to another company that has a licensing agreement to use its label.`\
+https://nytimes.com/2024/09/18/world/asia/taiwan-pagers-lebanon.html
+
 **Parker Meadows' catch saves another victory in Tigers' playoff push**\
 `Detroit is 42-23 in games when Meadows is in the starting lineup. His clutch play made the difference again Tuesday. `\
 https://nytimes.com/athletic/5775637/2024/09/18/tigers-parker-meadows/
