@@ -1,3 +1,7 @@
+**Young 'can still be a franchise quarterback'**\
+`Panthers get back to work with Bryce Young running the scout team and Andy Dalton as QB1.`\
+https://nytimes.com/athletic/5777526/2024/09/18/bryce-young-panthers-backup-qb-andy-dalton/
+
 **Mets ace Kodai Senga feels closer to big-league return**\
 `NEW YORK — As the Mets push for the postseason, there’s still a chance they add a significant piece to their pitching staff.`\
 https://nytimes.com/athletic/5777814/2024/09/18/mets-kodai-senga-return/
