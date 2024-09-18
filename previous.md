@@ -1,5 +1,9 @@
+**Mets' pitching prospect Christian Scott explains his path to Tommy John surgery**\
+`Scott wanted badly to be part of the Mets’ chase for a wild-card spot or to help in some capacity in the playoffs.`\
+https://nytimes.com/athletic/5777195/2024/09/18/mets-christian-scott-tommy-john/
+
 **Musk Finds a Way Around Brazil’s X Ban**\
-`Elon Musk’s social media platform used a technical maneuver to restore service for many Brazilians after a court blocked it. Regulators were trying to ban it again. Experts predicted it would be difficult.`\
+`Elon Musk’s social media platform used a technical maneuver to restore service for many Brazilians after a court blocked it. Blocking it again would be difficult, experts said.`\
 https://nytimes.com/2024/09/18/world/americas/brazil-musk-x-ban.html
 
 **John Cassaday, Award-Winning Comic Book Artist, Dies at 52**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/world/middleeast/hezbollah-israel-walkie-talkie-e
 **Husband Is Indicted in Double-Murder Case Involving an Au Pair**\
 `Prosecutors in Virginia said the case involved a hidden love affair and sex arranged over a fetish site.`\
 https://nytimes.com/article/brendan-banfield-murder-wife-au-pair.html
-
-**Melania Trump Defends Nude Modeling Work as She Promotes Book**\
-`The former first lady called her past work a “celebration of the human form” in a video, the latest in a series promoting her memoir and appearing to reflect her deeply held beliefs.`\
-https://nytimes.com/2024/09/18/us/politics/melania-trump-nude-modeling.html
 

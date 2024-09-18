@@ -1,3 +1,11 @@
+**Mets' pitching prospect Christian Scott explains his path to Tommy John surgery**\
+`Scott wanted badly to be part of the Mets’ chase for a wild-card spot or to help in some capacity in the playoffs.`\
+https://nytimes.com/athletic/5777195/2024/09/18/mets-christian-scott-tommy-john/
+
+**Musk Finds a Way Around Brazil’s X Ban**\
+`Elon Musk’s social media platform used a technical maneuver to restore service for many Brazilians after a court blocked it. Blocking it again would be difficult, experts said.`\
+https://nytimes.com/2024/09/18/world/americas/brazil-musk-x-ban.html
+
 **Musk Finds a Way Around Brazil’s X Ban**\
 `Elon Musk’s social media platform used a technical maneuver to restore service for many Brazilians after a court blocked it. Regulators were trying to ban it again. Experts predicted it would be difficult.`\
 https://nytimes.com/2024/09/18/world/americas/brazil-musk-x-ban.html
