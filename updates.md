@@ -1,3 +1,7 @@
+**Israel’s Existential Threat from Within**\
+`The growing sway of far-right settlers in the West Bank has pushed Israeli politics toward a crisis.`\
+https://nytimes.com/2024/09/18/podcasts/the-daily/israel-extremism-west-bank.html
+
 **Why can't the Bears run the ball? What All-22 tells us about the struggling offense**\
 `The Bears can't get the run game going, which is making things harder for Caleb Williams. Here's what the film says about the issues. `\
 https://nytimes.com/athletic/5774817/2024/09/18/bears-run-game-struggles-week-2/
