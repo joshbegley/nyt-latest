@@ -1,3 +1,7 @@
+**A look at the Lions' 28th-ranked red zone efficiency and how they can fix it**\
+`The numbers are bad but show promise.`\
+https://nytimes.com/athletic/5775100/2024/09/18/detroit-lions-red-zone-dan-campbell-jared-goff/
+
 **Breaking down the highest-scoring penalty shootout in English football history**\
 `Preston and Fulham played out a 16-15 penalty shootout in the Carabao Cup on Wednesday night`\
 https://nytimes.com/athletic/5775851/2024/09/18/penalty-shootout-highest-scoring-england/
