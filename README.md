@@ -1,3 +1,7 @@
+**A 9-Year-Old Girl Killed in Pager Attack Is Mourned in Lebanon**\
+`“The enemy killed us using this small device!” mourners chanted at the funeral for Fatima Abdullah, a fourth grader.`\
+https://nytimes.com/2024/09/18/world/middleeast/lebanon-funeral-pager-attack.html
+
 **Cheaper Mortgages and Car Loans: Lower Rates Are on the Horizon**\
 `With the Federal Reserve expected to lower interest rates, some borrowing costs have begun to ease — signs that loans may become cheaper in the near future.`\
 https://nytimes.com/interactive/2024/09/18/business/economy/consumer-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/18/us/trump-harris-election/heres-the-latest-on
 **Election Live Updates: Trump Set to Hold Rally on Long Island**\
 `Donald J. Trump will speak to a gathering in a Democratic stronghold, while Kamala Harris will address the Congressional Hispanic Caucus Institute in Washington, D.C.`\
 https://nytimes.com/live/2024/09/18/us/trump-harris-election
-
-**Why Uncertainty Still Hangs Over the Fed’s Big Decision**\
-`Investors, economists and politicians are at odds over whether the central bank should cut interest rates by a quarter-point, or more.`\
-https://nytimes.com/2024/09/18/business/dealbook/fed-interest-rates-markets.html
 
