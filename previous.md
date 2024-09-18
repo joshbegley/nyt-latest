@@ -1,3 +1,11 @@
+**USC's surge continues, top-50 WR Jerome Myles commits**\
+`Myles, who plays at Corner Canyon High School in Draper, Utah, is ranked No. 36 overall in the Class of 2025.`\
+https://nytimes.com/athletic/5776247/2024/09/18/usc-recruiting-jerome-myles/
+
+**I Handle My Mother’s Money. Must I Donate to a Church I Disapprove of?**\
+`The magazine’s Ethicist columnist on how to perform charitable acts on behalf of an incapacitated loved one, especially when a potential beneficiary offends your own morals.`\
+https://nytimes.com/2024/09/18/magazine/donate-aide-church-homophobia.html
+
 **A Fossilized Creature May Explain a Puzzling Painting on a Rock Wall**\
 `The artwork suggests that the San people of South Africa have an Indigenous knowledge of paleontology that predated Western approaches to the field.`\
 https://nytimes.com/2024/09/18/science/san-rock-art-fossil.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5757753/2024/09/18/odegaard-arsenal-injury-update/
 **2 Dead in Moscow Shooting Tied to Russia’s Richest Woman**\
 `Tatyana V. Bakalchuk, the founder of Russia’s biggest online retailer, has been locked in a dispute with her estranged husband for months over the fate of her company.`\
 https://nytimes.com/2024/09/18/world/europe/russia-shooting-wildberries-bakalchuk.html
-
-**Is it in the Maple Leafs' best interest to talk contract extension with Mitch Marner now?**\
-`Marner's regular-season performances make him worthy of being a lifetime Leaf. But the team should see playoff success before committing.`\
-https://nytimes.com/athletic/5776936/2024/09/18/mitch-marner-maple-leafs-contract/
-
-**‘Turn off your phone!’ A blast causes panic at a funeral for four victims of Tuesday’s pager attack.**\
-`By Hwaida Saad and Liam Stack`\
-https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/turn-off-your-phone-a-blast-causes-panic-at-a-funeral-for-four-victims-of-tuesdays-pager-attack
 

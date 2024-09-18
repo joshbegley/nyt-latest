@@ -1,3 +1,11 @@
+**USC's surge continues, top-50 WR Jerome Myles commits**\
+`Myles, who plays at Corner Canyon High School in Draper, Utah, is ranked No. 36 overall in the Class of 2025.`\
+https://nytimes.com/athletic/5776247/2024/09/18/usc-recruiting-jerome-myles/
+
+**I Handle My Mother’s Money. Must I Donate to a Church I Disapprove of?**\
+`The magazine’s Ethicist columnist on how to perform charitable acts on behalf of an incapacitated loved one, especially when a potential beneficiary offends your own morals.`\
+https://nytimes.com/2024/09/18/magazine/donate-aide-church-homophobia.html
+
 **A Fossilized Creature May Explain a Puzzling Painting on a Rock Wall**\
 `The artwork suggests that the San people of South Africa have an Indigenous knowledge of paleontology that predated Western approaches to the field.`\
 https://nytimes.com/2024/09/18/science/san-rock-art-fossil.html
