@@ -1,3 +1,7 @@
+**Cheaper Mortgages and Car Loans: Lower Rates Are on the Horizon**\
+`With the Federal Reserve expected to lower interest rates, some borrowing costs have begun to ease — signs that loans may become cheaper in the near future.`\
+https://nytimes.com/interactive/2024/09/18/business/economy/consumer-interest-rates.html
+
 **Five big questions entering Oilers training camp**\
 `The top nine seems set, as does the goalie duo and the top end of the blue line, but here are five things the Oilers still need to sort out.`\
 https://nytimes.com/athletic/5775788/2024/09/18/edmonton-oilers-training-camp-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/18/us/trump-harris-election
 **Why Uncertainty Still Hangs Over the Fed’s Big Decision**\
 `Investors, economists and politicians are at odds over whether the central bank should cut interest rates by a quarter-point, or more.`\
 https://nytimes.com/2024/09/18/business/dealbook/fed-interest-rates-markets.html
-
-**The Athletic FC: Will top players go on strike? Plus: Champions League brilliance**\
-`Today in TAFC: Is Rodri right, will players strike? Plus: Champions League round-up - including Endrick's record and goals from USMNT stars`\
-https://nytimes.com/athletic/5775961/2024/09/18/players-strike-champions-league-liverpool-endrick/
 

@@ -1,3 +1,7 @@
+**Cheaper Mortgages and Car Loans: Lower Rates Are on the Horizon**\
+`With the Federal Reserve expected to lower interest rates, some borrowing costs have begun to ease — signs that loans may become cheaper in the near future.`\
+https://nytimes.com/interactive/2024/09/18/business/economy/consumer-interest-rates.html
+
 **Five big questions entering Oilers training camp**\
 `The top nine seems set, as does the goalie duo and the top end of the blue line, but here are five things the Oilers still need to sort out.`\
 https://nytimes.com/athletic/5775788/2024/09/18/edmonton-oilers-training-camp-defense/
