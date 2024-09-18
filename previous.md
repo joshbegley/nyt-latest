@@ -1,3 +1,11 @@
+**In the Front Row at a MAGA Fashion Show**\
+`On the runway were ball gowns, sequined jackets and, of course, hats.`\
+https://nytimes.com/2024/09/18/style/maga-fashion-show.html
+
+**Atlantic City Mayor Indicted on Child Abuse Charges**\
+`Marty Small Sr. and his wife, the superintendent of the city’s schools, are accused of beating and punching their teenage daughter.`\
+https://nytimes.com/2024/09/18/nyregion/atlantic-city-mayor-marty-small-child-abuse.html
+
 **Body Is Found in Kentucky Near Site of Highway Shooting**\
 `Officials are working to confirm the identity. It was not clear if the discovery was related to the shooting this month that led to an intense manhunt.`\
 https://nytimes.com/2024/09/18/us/kentucky-highway-shooting-body.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/us/politics/george-clooney-trump-politics.html
 **Harris Warns of Mass Deportations and Detention Camps if Trump Is Elected**\
 `Vice President Kamala Harris is trying to build support among Latino voters as polls show Americans trust former President Donald J. Trump over Democrats on the border.`\
 https://nytimes.com/2024/09/18/us/politics/harris-immigration-deportation-trump.html
-
-**Brewers clinch playoff spot, win NL Central**\
-`The Brewers have made the playoffs in six of the past seven years and won the division four times in that span.`\
-https://nytimes.com/athletic/5777150/2024/09/18/milwaukee-brewers-playoff-clinch-cubs-loss/
-
-**Capitals' T.J. Oshie expected to be placed on LTIR**\
-`Oshie, Washington's alternate captain, dealt with a chronic back injury last season.`\
-https://nytimes.com/athletic/5777570/2024/09/18/tj-oshie-capitals-ltir-injury/
 
