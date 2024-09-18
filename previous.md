@@ -1,3 +1,11 @@
+**2 Dead in Moscow Shooting Tied to Russia’s Richest Woman**\
+`Tatyana V. Bakalchuk, the founder of Russia’s biggest online retailer, has been locked in a dispute with her estranged husband for months over the fate of her company.`\
+https://nytimes.com/2024/09/18/world/europe/russia-shooting-wildberries-bakalchuk.html
+
+**Is it in the Maple Leafs' best interest to talk contract extension with Mitch Marner now?**\
+`Marner's regular-season performances make him worthy of being a lifetime Leaf. But the team should see playoff success before committing.`\
+https://nytimes.com/athletic/5776936/2024/09/18/mitch-marner-maple-leafs-contract/
+
 **‘Turn off your phone!’ A blast causes panic at a funeral for four victims of Tuesday’s pager attack.**\
 `By Hwaida Saad and Liam Stack`\
 https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/turn-off-your-phone-a-blast-causes-panic-at-a-funeral-for-four-victims-of-tuesdays-pager-attack
@@ -11,7 +19,7 @@ https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/what-is-he
 https://nytimes.com/live/2024/09/17/opinion/thepoint/hezbollah-israel-pagers-assassinations
 
 **Bruins' Jeremy Swayman, still unsigned, will not be on the ice for camp's start**\
-`GM Don Sweeney said on camp's eve that Swayman "has chosen to wait, and rightfully so, until a contract is settled.”`\
+`GM Don Sweeney said on camp's eve that Swayman "has chosen to wait, and rightfully so, until a contract is settled."`\
 https://nytimes.com/athletic/5777003/2024/09/18/bruins-jeremy-swayman-training-camp-unsigned/
 
 **What’s in Our Queue? Cycladic Art and More**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/us/frederick-schauer-dies.html
 **Hojlund, Mount return to Man Utd training after injuries**\
 `Rasmus Hojlund and Mason Mount have both returned to Manchester United first-team training after recovering from injuries.`\
 https://nytimes.com/athletic/5776987/2024/09/18/hojlund-mount-injuries-manchester-united/
-
-**France’s Budget Problems ‘Very Serious,’ Prime Minister Says**\
-`The French government, which missed a deadline this week to set a blueprint to lower its debt and deficit, is struggling to meet fiscal requirements set by the E.U.`\
-https://nytimes.com/2024/09/18/business/france-debt-deficit-prime-minister-macron.html
-
-**Blinken Visits Egypt, but Skips a Stop in Israel**\
-`The secretary of state is making his 10th visit to the Middle East since the Oct. 7 attacks. Until now, he has met with officials in Israel each time.`\
-https://nytimes.com/2024/09/18/us/politics/blinken-egypt-israel.html
 

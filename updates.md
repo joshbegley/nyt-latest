@@ -1,3 +1,15 @@
+**2 Dead in Moscow Shooting Tied to Russia’s Richest Woman**\
+`Tatyana V. Bakalchuk, the founder of Russia’s biggest online retailer, has been locked in a dispute with her estranged husband for months over the fate of her company.`\
+https://nytimes.com/2024/09/18/world/europe/russia-shooting-wildberries-bakalchuk.html
+
+**Is it in the Maple Leafs' best interest to talk contract extension with Mitch Marner now?**\
+`Marner's regular-season performances make him worthy of being a lifetime Leaf. But the team should see playoff success before committing.`\
+https://nytimes.com/athletic/5776936/2024/09/18/mitch-marner-maple-leafs-contract/
+
+**Bruins' Jeremy Swayman, still unsigned, will not be on the ice for camp's start**\
+`GM Don Sweeney said on camp's eve that Swayman "has chosen to wait, and rightfully so, until a contract is settled."`\
+https://nytimes.com/athletic/5777003/2024/09/18/bruins-jeremy-swayman-training-camp-unsigned/
+
 **‘Turn off your phone!’ A blast causes panic at a funeral for four victims of Tuesday’s pager attack.**\
 `By Hwaida Saad and Liam Stack`\
 https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/turn-off-your-phone-a-blast-causes-panic-at-a-funeral-for-four-victims-of-tuesdays-pager-attack
