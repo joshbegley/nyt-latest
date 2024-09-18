@@ -1,3 +1,7 @@
+**The Athletic FC: Will top players go on strike? Plus: Champions League brilliance**\
+`Today in TAFC: Is Rodri right, will players strike? Plus: Champions League round-up - including Endrick's record and goals from USMNT stars`\
+https://nytimes.com/athletic/5775961/2024/09/18/players-strike-champions-league-liverpool-endrick/
+
 **Study Reveals Bird-Migration Mystery**\
 `By outfitting blackbirds with heart-rate monitors, scientists debunked a long-held assumption about the benefits of spending the winter in warm climates.`\
 https://nytimes.com/2024/09/18/science/birds-migration-energy.html
