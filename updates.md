@@ -1,3 +1,7 @@
+**Tupperware, Food Container Pioneer, Files for Bankruptcy**\
+`The once-mighty kitchenware company has struggled financially for years. It says the direct sales model that fueled its success has become a weakness.`\
+https://nytimes.com/2024/09/18/business/tupperware-bankruptcy.html
+
 **Roma sack De Rossi after eight months in charge**\
 `Daniele de Rossi has been sacked as Roma head coach after eight months in charge.`\
 https://nytimes.com/athletic/5775802/2024/09/18/daniele-de-rossi-sacked-roma/
