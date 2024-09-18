@@ -1,3 +1,7 @@
+**Harrison J. Goldin, 88, New York City Comptroller in Fiscal Crisis, Is Dead**\
+`He weathered the storm as the city’s chief financial officer for 16 years and jousted with Mayor Koch in a public feud and a losing primary bid to replace him.`\
+https://nytimes.com/2024/09/18/nyregion/harrison-j-goldin-dead.html
+
 **Analysts and executives are split over the Fed’s next move.**\
 `By Danielle Kaye`\
 https://nytimes.com/live/2024/09/18/business/fed-interest-rates/analysts-and-executives-are-split-over-the-feds-next-move

@@ -1,3 +1,7 @@
+**Harrison J. Goldin, 88, New York City Comptroller in Fiscal Crisis, Is Dead**\
+`He weathered the storm as the city’s chief financial officer for 16 years and jousted with Mayor Koch in a public feud and a losing primary bid to replace him.`\
+https://nytimes.com/2024/09/18/nyregion/harrison-j-goldin-dead.html
+
 **Analysts and executives are split over the Fed’s next move.**\
 `By Danielle Kaye`\
 https://nytimes.com/live/2024/09/18/business/fed-interest-rates/analysts-and-executives-are-split-over-the-feds-next-move
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/business/alaska-airlines-hawaiian-deal.html
 **‘Get Off the Fence,’ Bret Stephens**\
 `Readers are upset by the columnist’s uncertainty about voting for Kamala Harris. Also: Donald Trump’s “audacity”; Afghanistan; teaching the Bible; pressure on teenagers.`\
 https://nytimes.com/2024/09/18/opinion/kamala-harris-bret-stephens.html
-
-**Ivan Perisic joins PSV on free transfer**\
-`PSV Eindhoven have signed Croatia international Ivan Perisic on a free transfer.`\
-https://nytimes.com/athletic/5776697/2024/09/18/ivan-perisic-psv-transfer/
 
