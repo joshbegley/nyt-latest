@@ -1,3 +1,11 @@
+**Tottenham's Odobert has 'fairly significant' injury - Postecoglou**\
+`Ange Postecoglou has said a muscular injury sustained by Tottenham Hotspur&#8217;s Wilson Odobert in Wednesday&#8217;s Carabao Cup victory at Coventry City could be &#8220;fairly significant&#8221;.`\
+https://nytimes.com/athletic/5777761/2024/09/18/wilson-odobert-tottenham-injury/
+
+**JD Souther, Who Wrote Hits for the Eagles, Dies at 78**\
+`A central figure in the Southern California rock scene of the 1970s, he later had a regular role on the TV show “Nashville.”`\
+https://nytimes.com/2024/09/18/arts/music/jd-souther-dead.html
+
 **In the Front Row at a MAGA Fashion Show**\
 `On the runway were ball gowns, sequined jackets and, of course, hats.`\
 https://nytimes.com/2024/09/18/style/maga-fashion-show.html

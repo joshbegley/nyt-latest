@@ -1,3 +1,11 @@
+**Tottenham's Odobert has 'fairly significant' injury - Postecoglou**\
+`Ange Postecoglou has said a muscular injury sustained by Tottenham Hotspur&#8217;s Wilson Odobert in Wednesday&#8217;s Carabao Cup victory at Coventry City could be &#8220;fairly significant&#8221;.`\
+https://nytimes.com/athletic/5777761/2024/09/18/wilson-odobert-tottenham-injury/
+
+**JD Souther, Who Wrote Hits for the Eagles, Dies at 78**\
+`A central figure in the Southern California rock scene of the 1970s, he later had a regular role on the TV show “Nashville.”`\
+https://nytimes.com/2024/09/18/arts/music/jd-souther-dead.html
+
 **In the Front Row at a MAGA Fashion Show**\
 `On the runway were ball gowns, sequined jackets and, of course, hats.`\
 https://nytimes.com/2024/09/18/style/maga-fashion-show.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/business/media/valarie-delia-dead.html
 **Kounde supports Rodri on player strikes: 'Nobody pays attention to us'**\
 `Barcelona defender Jules Kounde &#8220;agreed with everything&#8221; said by Manchester City&#8217;s Rodri on footballers being &#8220;close&#8221; to striking over the volume of matches.`\
 https://nytimes.com/athletic/5777639/2024/09/18/jules-kounde-players-strike/
-
-**George Clooney Amps Up His Feud With Donald Trump**\
-`The former reality TV host this year sniped at the movie star. Mr. Clooney just swiped back.`\
-https://nytimes.com/2024/09/18/us/politics/george-clooney-trump-politics.html
-
-**Harris Warns of Mass Deportations and Detention Camps if Trump Is Elected**\
-`Vice President Kamala Harris is trying to build support among Latino voters as polls show Americans trust former President Donald J. Trump over Democrats on the border.`\
-https://nytimes.com/2024/09/18/us/politics/harris-immigration-deportation-trump.html
 
