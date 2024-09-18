@@ -1,3 +1,11 @@
+**Kane breaks Rooney's Champions League goal record**\
+`Harry Kane scored four goals to become England&#8217;s all-time leading goalscorer in the Champions League on a record-breaking night for the Bayern Munich striker.`\
+https://nytimes.com/athletic/5775744/2024/09/18/harry-kane-wayne-rooney-record/
+
+**Yankees' Juan Soto makes telling free agency comment after milestone home run**\
+`Soto's comment made it clear that the free agency process is at the forefront of his mind.`\
+https://nytimes.com/athletic/5775745/2024/09/18/yankees-juan-soto-free-agency-200-home-run/
+
 **Deep Links Between Alcohol and Cancer Are Described in New Report**\
 `Scientists continue to rethink the idea that moderate drinking offers health benefits.`\
 https://nytimes.com/2024/09/18/health/alcohol-cancer-young-adults.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/18/world/asia/taiwan-pagers-lebanon.html
 **Parker Meadows' catch saves another victory in Tigers' playoff push**\
 `Detroit is 42-23 in games when Meadows is in the starting lineup. His clutch play made the difference again Tuesday. `\
 https://nytimes.com/athletic/5775637/2024/09/18/tigers-parker-meadows/
-
-**Brain games: Sticking with struggling backs Rachaad White and D'Andre Swift in Week 3**\
-`Renee Miller explains the biases at play in fantasy football and why she is still backing Rachaad White and D'Andre Swift in Week 3.`\
-https://nytimes.com/athletic/5774550/2024/09/18/brain-games-fantasy-football-week-3-rachaad-white-dandre-swift/
-
-**Astros' Jose Altuve ejected vs. Padres for taking off sock and shoe**\
-`Altuve removed his left cleat, tore off his sock and began to hobble toward the umpires, earning his ejection while pointing at his toes.`\
-https://nytimes.com/athletic/5775668/2024/09/18/jose-altuve-astros-padres-ejection-shoe-sock-removal/
 
