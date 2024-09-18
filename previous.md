@@ -1,3 +1,7 @@
+**Kounde supports Rodri on player strikes: 'Nobody pays attention to us'**\
+`Barcelona defender Jules Kounde &#8220;agreed with everything&#8221; said by Manchester City&#8217;s Rodri on footballers being &#8220;close&#8221; to striking over the volume of matches.`\
+https://nytimes.com/athletic/5777639/2024/09/18/jules-kounde-players-strike/
+
 **George Clooney Amps Up His Feud With Donald Trump**\
 `The former reality TV host this year sniped at the movie star. Mr. Clooney just swiped back.`\
 https://nytimes.com/2024/09/18/us/politics/george-clooney-trump-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/us/hiker-burned-yellowstone-trail.html
 **The Briefing: Man City 0 Inter Milan 0 - De Bruyne worry, a strange backheel and bold visitors**\
 `Analysis of Manchester City's Champions League league stage game at home to Inter Milan`\
 https://nytimes.com/athletic/5771234/2024/09/18/manchester-city-inter-backheel-highlights/
-
-**Israel’s Focus Shifts From Hamas in Gaza to Hezbollah in Lebanon**\
-`Daily exchanges of fire between Hezbollah and Israel have been destructive, disruptive and sometimes deadly. An escalation could risk starting a wider regional conflict.`\
-https://nytimes.com/2024/09/18/world/middleeast/israel-war-focus-hezbollah-lebanon.html
 

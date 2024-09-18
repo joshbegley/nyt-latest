@@ -1,3 +1,7 @@
+**Kounde supports Rodri on player strikes: 'Nobody pays attention to us'**\
+`Barcelona defender Jules Kounde &#8220;agreed with everything&#8221; said by Manchester City&#8217;s Rodri on footballers being &#8220;close&#8221; to striking over the volume of matches.`\
+https://nytimes.com/athletic/5777639/2024/09/18/jules-kounde-players-strike/
+
 **George Clooney Amps Up His Feud With Donald Trump**\
 `The former reality TV host this year sniped at the movie star. Mr. Clooney just swiped back.`\
 https://nytimes.com/2024/09/18/us/politics/george-clooney-trump-politics.html
