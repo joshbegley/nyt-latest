@@ -1,3 +1,7 @@
+**How We Forgot About the War on Terror**\
+`The global war on terror changed the course of American history. So why have we forgotten about it?`\
+https://nytimes.com/2024/09/18/opinion/war-on-terror-us-military.html
+
 **Teamsters Won’t Endorse a Candidate for President in 2024**\
 `The Teamsters president, Sean O’Brien, has shown an openness to former President Donald J. Trump, dividing the powerful union. Neither candidate will be the beneficiary of the considerable organizing muscle.`\
 https://nytimes.com/2024/09/18/us/politics/teamsters-endorsement-2024-election.html

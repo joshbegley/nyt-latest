@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/09/18/business/fed-interest-rates/the-dot-plot-sho
 
 **How We Forgot About the War on Terror**\
 `The global war on terror changed the course of American history. So why have we forgotten about it?`\
-https://nytimes.com/2024/09/18/opinion/how-we-forgot-about-the-war-on-terror.html
+https://nytimes.com/2024/09/18/opinion/war-on-terror-us-military.html
 
 **Bubba Wallace signs multiyear extension with 23XI Racing**\
 `The news comes after 23XI Racing declined to sign NASCAR's new charter deal.`\
