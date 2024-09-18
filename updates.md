@@ -1,3 +1,7 @@
+**Pager Attacks Puncture Hezbollah’s Aura as Powerful Anti-Israel Force**\
+`The coordinated attacks targeting the group’s wireless devices caused thousands of injuries, piercing the group’s rank and file and raising questions about how it will respond.`\
+https://nytimes.com/2024/09/18/world/middleeast/hezbollah-israel-pager-lebanon.html
+
 **Israel’s Existential Threat From Within**\
 `The growing sway of far-right settlers in the West Bank has pushed Israeli politics toward a crisis.`\
 https://nytimes.com/2024/09/18/podcasts/the-daily/israel-extremism-west-bank.html

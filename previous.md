@@ -1,3 +1,7 @@
+**Pager Attacks Puncture Hezbollah’s Aura as Powerful Anti-Israel Force**\
+`The coordinated attacks targeting the group’s wireless devices caused thousands of injuries, piercing the group’s rank and file and raising questions about how it will respond.`\
+https://nytimes.com/2024/09/18/world/middleeast/hezbollah-israel-pager-lebanon.html
+
 **Why can't the Bears run the ball? What All-22 tells us about the struggling offense**\
 `The Bears can't get the run game going, which is making things harder for Caleb Williams. Here's what the film says about the issues. `\
 https://nytimes.com/athletic/5774817/2024/09/18/bears-run-game-struggles-week-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/podcasts/lebanon-pagers-fed-rates.html
 **Who's to blame for Colts' abysmal run defense, and how can they fix it?**\
 `The Colts' second-half run defense in Green Bay was far better. Can they carry over those improvements against the Bears?`\
 https://nytimes.com/athletic/5774672/2024/09/18/colts-run-defense-gus-bradley-week-3/
-
-**Tennis storylines to watch: Nadal's fitness, WTA finals in Saudi, and which Tiafoe will turn up?**\
-`Even with no more Grand Slams this year, there are plenty of talking points between now and the end of the season...`\
-https://nytimes.com/athletic/5773388/2024/09/18/tennis-atp-wta-finals-saudi-nadal-alcaraz/
 
