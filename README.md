@@ -1,3 +1,7 @@
+**A Fossilized Creature May Explain a Puzzling Painting on a Rock Wall**\
+`The artwork suggests that the San people of South Africa have an Indigenous knowledge of paleontology that predated Western approaches to the field.`\
+https://nytimes.com/2024/09/18/science/san-rock-art-fossil.html
+
 **Vance Complains About Democrats Using ‘Fascist.’ Trump Uses It Often.**\
 `The Republican vice-presidential candidate blamed Democrats for political vitriol after Sunday’s apparent assassination attempt against Donald J. Trump.`\
 https://nytimes.com/2024/09/18/us/politics/vance-trump-fascist.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5776936/2024/09/18/mitch-marner-maple-leafs-contrac
 **‘Turn off your phone!’ A blast causes panic at a funeral for four victims of Tuesday’s pager attack.**\
 `By Hwaida Saad and Liam Stack`\
 https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/turn-off-your-phone-a-blast-causes-panic-at-a-funeral-for-four-victims-of-tuesdays-pager-attack
-
-**What is Hezbollah, the militant group based in Lebanon?**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/what-is-hezbollah-the-militant-group-based-in-lebanon
 
