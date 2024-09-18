@@ -1,7 +1,3 @@
-**Thursday Briefing: A Second Day of Explosions in Lebanon**\
-`Plus, Kamala Harris courts Latino voters.`\
-https://nytimes.com/2024/09/18/briefing/lebanon-explosions-harris-kashmir.html
-
 **Woman Burned After Hiking Off Trail at Yellowstone National Park**\
 `The 60-year-old was walking with her husband and dog near a geyser when she broke through the ground into scalding waters on Monday afternoon, according to the National Park Service.`\
 https://nytimes.com/2024/09/18/us/hiker-burned-yellowstone-trail.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/18/obituaries/dusko-doder-dead.html
 **Sabres training camp: 10 things we learned from Lindy Ruff's first practice**\
 `Ruff isn’t wasting time with nostalgia and is pushing players to practice harder.`\
 https://nytimes.com/athletic/5777325/2024/09/18/sabres-training-camp-lindy-ruff/
+
+**Adrian Wojnarowski brings a fitting end to a legendary career — one last 'Woj bomb'**\
+`Adrian Wojnarowski took a big risk in 2007. It changed his life, and the sports reporting industry, forever and made him a legend.`\
+https://nytimes.com/athletic/5777334/2024/09/18/adrian-wojnarowski-retires-espn-nba-woj-bomb/
 

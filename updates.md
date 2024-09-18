@@ -1,3 +1,7 @@
+**Thursday Briefing: A Second Day of Explosions in Lebanon**\
+`Plus, Kamala Harris courts Latino voters.`\
+https://nytimes.com/2024/09/18/briefing/lebanon-explosions-harris-kashmir.html
+
 **Woman Burned After Hiking Off Trail at Yellowstone National Park**\
 `The 60-year-old was walking with her husband and dog near a geyser when she broke through the ground into scalding waters on Monday afternoon, according to the National Park Service.`\
 https://nytimes.com/2024/09/18/us/hiker-burned-yellowstone-trail.html
