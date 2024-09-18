@@ -1,3 +1,15 @@
+**It’s the Economic Vibe, Stupid**\
+`Polling shows voters feel persistently sour about the economy, a confounding dynamic for Democrats.`\
+https://nytimes.com/2024/09/18/us/politics/fed-economy-harris-trump.html
+
+**I Just Went to Darfur. Here Is What Shattered Me.**\
+`“So many men were killed, like grains of sand,” says one survivor.`\
+https://nytimes.com/2024/09/18/opinion/darfur-sudan-famine.html
+
+**Trump’s Bogus Claims About Haitians Are Part of a Bigger Agenda**\
+`The Springfield fable is part of a crusade to throw immigrants out of the country.`\
+https://nytimes.com/2024/09/18/opinion/trump-haitians-immigration-springfield.html
+
 **Champions League Briefing: De Bruyne injury, Ronaldo tributes and a late late goalkeeping blunder**\
 `The key talking points from Wednesday's Champions League action, and a reminder on how the new format works — and if losing now matters...`\
 https://nytimes.com/athletic/5776901/2024/09/18/champions-league-talking-points-de-bruyne-injury-gazzaniga-mistake/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5777594/2024/09/18/dodgers-gavin-stone-injury-updat
 **The Democrat in North Carolina’s governor’s race has rejected debating his Republican rival.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/09/18/us/trump-harris-election/the-democrat-in-north-carolinas-governors-race-has-rejected-debating-his-republican-rival
-
-**Young 'can still be a franchise quarterback'**\
-`Panthers get back to work with Bryce Young running the scout team and Andy Dalton as QB1.`\
-https://nytimes.com/athletic/5777526/2024/09/18/bryce-young-panthers-backup-qb-andy-dalton/
-
-**Mets ace Kodai Senga feels closer to big-league return**\
-`NEW YORK — As the Mets push for the postseason, there’s still a chance they add a significant piece to their pitching staff.`\
-https://nytimes.com/athletic/5777814/2024/09/18/mets-kodai-senga-return/
-
-**Tottenham's Odobert has 'fairly significant' injury - Postecoglou**\
-`Ange Postecoglou has said a muscular injury sustained by Tottenham Hotspur&#8217;s Wilson Odobert in Wednesday&#8217;s Carabao Cup victory at Coventry City could be &#8220;fairly significant&#8221;.`\
-https://nytimes.com/athletic/5777761/2024/09/18/wilson-odobert-tottenham-injury/
 
