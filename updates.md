@@ -1,3 +1,7 @@
+**Bangladesh, Struggling to Restore Order, Gives Army Policing Powers**\
+`Public disorder has continued in the country, weeks after its autocratic leader was driven out by protests. Many police officers have still not returned to work.`\
+https://nytimes.com/2024/09/18/world/asia/bangladesh-army-police.html
+
 **What We Know About the Deadly Pager Explosions in Lebanon**\
 `The seemingly coordinated blasts targeting Hezbollah members stoked fears of a broadening conflict.`\
 https://nytimes.com/2024/09/18/world/europe/pager-explosions-lebanon-what-we-know.html
