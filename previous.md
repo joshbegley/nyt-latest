@@ -1,40 +1,40 @@
-**With Trump Sentencing Delayed, It’s an Ordinary Wednesday**\
-`In Justice Juan Merchan’s Manhattan courtroom, the wheels of justice keep turning on the day that the former president was to have been sentenced.`\
-https://nytimes.com/2024/09/18/nyregion/juan-merchan-trump-sentencing.html
+**The Man Behind the End of Roe v. Wade Has Big Plans for America**\
+`In the world of political fund-raising, there is hard money, soft money, dark money — and Leonard Leo money.`\
+https://nytimes.com/2024/09/18/opinion/leonard-leo-fundraising-supreme-court-irs.html
 
-**$600,000 Homes in Kentucky, Texas and Connecticut**\
-`A 1910 Arts and Crafts-style home in Louisville, a three-bedroom bungalow in Marfa and a Colonial Revival house in Farmington.`\
-https://nytimes.com/2024/09/18/realestate/600000-dollar-homes-kentucky-texas-connecticut.html
+**Far From Ohio, Haitian Americans Feel the Sting of Threats in Springfield**\
+`They charged Donald J. Trump and JD Vance, who spread baseless rumors that Haitians in an Ohio city were eating pets, with imperiling their community for political gain.`\
+https://nytimes.com/2024/09/18/us/haitian-americans-springfield-ohio-reaction.html
 
-**An Irish Bishop Was Buried in a Cathedral Vault. His Secrets Were Not.**\
-`The funeral of Bishop Eamonn Casey in 2017 seemed to draw a line under his scandalous affair years before. But this summer, disturbing new allegations emerged.`\
-https://nytimes.com/2024/09/18/world/europe/ireland-bishop-eamonn-casey.html
+**What Happens in Springfield Won’t Stay in Springfield**\
+`When you start talking about people “poisoning the blood of our country,” this is where you end up. And it’s not over.`\
+https://nytimes.com/2024/09/18/opinion/trump-vance-springfield-charlottesville-haitians.html
 
-**The Evolution of the BMW PGA Championship**\
-`The tournament, long a staple for European players, has become an international event for the world’s top golfers.`\
-https://nytimes.com/2024/09/18/sports/golf/bmw-pga-championship-wentworth.html
+**From Domino's delivery to the NFL: How Keion White became a breakout star for the Patriots**\
+`With four sacks through two games, White is one of the NFL's breakout stars this season. But his road to this point was a winding one.`\
+https://nytimes.com/athletic/5774152/2024/09/18/keion-white-patriots-breakout-star/
 
-**Biden Needs to Work on His Clemency Legacy**\
-`It is more important than ever in an era of grossly excessive punishments and mass incarceration.`\
-https://nytimes.com/2024/09/18/opinion/biden-record-clemency.html
+**Alexandria Ocasio-Cortez and Tina Smith: Our Solution to the Housing Crisis**\
+`Instead of treating real estate as a commodity, we can underwrite the construction of millions of permanently affordable homes and apartments.`\
+https://nytimes.com/2024/09/18/opinion/aoc-tina-smith-housing.html
 
-**Tommy Fleetwood’s International Success Has Not Carried Over to America … Yet**\
-`Heading into the BMW PGA Championship in his home country, the English golfer talked about the Olympics and playing in the United States.`\
-https://nytimes.com/2024/09/18/sports/golf/tommy-fleetwood-bmw-pga-championship.html
+**Falcons revel in their improbable comeback win but must turn the page quickly**\
+`Led by Bijan Robinson, the Falcons rushed for 152 yards on Monday night. Eagles coach Nick Sirianni said that helped stymie his pass rush.`\
+https://nytimes.com/athletic/5774998/2024/09/18/falcons-improbable-comeback-eagles/
 
-**Gillian Anderson Wants to Hear Your Sexiest Fantasies**\
-`The actor’s new book shares sexual fantasies from anonymous women around the world.`\
-https://nytimes.com/2024/09/18/podcasts/gillian-anderson-sexiest-fantasies.html
+**After all these years, NFL legend Fran Tarkenton is still scrambling**\
+`The Hall of Fame QB, now 84, thinks his style of play would succeed in today's NFL. "Patrick Mahomes doesn’t do anything I didn’t do."`\
+https://nytimes.com/athletic/5766363/2024/09/18/fran-tarkenton-vikings-scrambling/
 
-**Finding London’s Most Distinctive Shops**\
-`Sure, you can hit Harrods. But the British capital also has small specialized shops, some centuries old and still crafting items by hand. Here, a selection of singular shopping experiences.`\
-https://nytimes.com/2024/09/18/travel/london-independent-shops-stores.html
+**Steve From ‘Blues Clues’ Is Still Here for You**\
+`The former star of the beloved children’s show has a new audience: adults on TikTok.`\
+https://nytimes.com/2024/09/18/style/steve-from-blues-clues-is-still-here-for-you.html
 
-**The Simple Secret to the Best Fried Rice? Mayo and Corn.**\
-`This unexpected combo will make the flavor and texture really stand out.`\
-https://nytimes.com/2024/09/18/magazine/fried-rice-corn-mayo.html
+**Is the Comedy-Club Booking Process Broken?**\
+`The owners of a new spot say hiring comics based on referrals from other stand-ups is no guarantee the acts will be funny. Others say it’s all more nuanced.`\
+https://nytimes.com/2024/09/18/arts/television/comedy-club-booking.html
 
-**A Cape Cod Beach Shack Where Charm Takes Priority Over Air Conditioning**\
-`A minimalist Manhattan architect gets fresh air — and fresh eyes — at his family’s cluttered cabin.`\
-https://nytimes.com/2024/09/18/t-magazine/cape-cod-beach-cabin.html
+**Girona's journey from Spain's fifth division to a Champions League debut at PSG**\
+`Just a few years ago, Girona were languishing in amateur football. Now they are taking on Europe’s elite`\
+https://nytimes.com/athletic/5775820/2024/09/18/girona-champions-league-psg-la-liga-michel/
 
