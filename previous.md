@@ -1,3 +1,15 @@
+**Sarah Huckabee Sanders Jabs at Harris for Not Having Biological Children**\
+`“My kids keep me humble,” Ms. Sanders said at an event with former President Donald J. Trump. “Unfortunately, Kamala Harris doesn’t have anything keeping her humble.” The remark quickly drew backlash.`\
+https://nytimes.com/2024/09/18/us/politics/sanders-harris-children-backlash.html
+
+**Foligno named first Blackhawks captain since Toews**\
+`It was only a matter of time until the Blackhawks named a new captain after Jonathan Toews.`\
+https://nytimes.com/athletic/5776395/2024/09/18/blackhawks-captain-nick-foligno-jonathan-toews/
+
+**Aces' Wilson passes Reese for single-season rebound mark**\
+`Wilson grabbed her 447th rebound in Tuesday night's win over the Storm to pass Angel Reese for the record.`\
+https://nytimes.com/athletic/5776341/2024/09/18/aja-wilson-wnba-rebounding-record/
+
 **What we're hearing about the Pac-12, AAC and Mountain West's next moves**\
 `We spoke with a dozen people involved in the discussions and no one sees an easy move, making it hard to predict realignment resolution.`\
 https://nytimes.com/athletic/5776229/2024/09/18/pac-12-aac-mountain-west-realignment/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5775851/2024/09/18/penalty-shootout-highest-scoring
 **California Mountain Towns Are Too Risky for Insurers, but Residents Want to Stay**\
 `In the San Bernardino Mountains, another wildfire has forced residents to flee, the latest reminder that they must accept the risks of climate change if they want to remain.`\
 https://nytimes.com/2024/09/18/us/san-bernardino-wildfire-risk.html
-
-**Gotham FC heads to the White House: 'This should be the standard'**\
-`Gotham executive hopes to "set the standard" with the presidential visit `\
-https://nytimes.com/athletic/5775600/2024/09/18/nwsl-gotham-white-house-celebration/
-
-**When a Republican Governor Couldn’t Win on Abortion, He Tried to Cheat**\
-`When ‘states’ rights’ means subverting the will of the people.`\
-https://nytimes.com/2024/09/18/opinion/desantis-amendment-4-abortion.html
-
-**My Grandniece Was Thrown Out of Her House for Being Gay. What Can I Do?**\
-`Because of a family rift, the girl is unaware that she has an uncle in a 35-year same-sex relationship who wants to help. Is it possible to reach out without creating trouble?`\
-https://nytimes.com/2024/09/18/style/coming-out-family-members-support.html
 

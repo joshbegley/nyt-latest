@@ -1,3 +1,15 @@
+**Sarah Huckabee Sanders Jabs at Harris for Not Having Biological Children**\
+`“My kids keep me humble,” Ms. Sanders said at an event with former President Donald J. Trump. “Unfortunately, Kamala Harris doesn’t have anything keeping her humble.” The remark quickly drew backlash.`\
+https://nytimes.com/2024/09/18/us/politics/sanders-harris-children-backlash.html
+
+**Foligno named first Blackhawks captain since Toews**\
+`It was only a matter of time until the Blackhawks named a new captain after Jonathan Toews.`\
+https://nytimes.com/athletic/5776395/2024/09/18/blackhawks-captain-nick-foligno-jonathan-toews/
+
+**Aces' Wilson passes Reese for single-season rebound mark**\
+`Wilson grabbed her 447th rebound in Tuesday night's win over the Storm to pass Angel Reese for the record.`\
+https://nytimes.com/athletic/5776341/2024/09/18/aja-wilson-wnba-rebounding-record/
+
 **What we're hearing about the Pac-12, AAC and Mountain West's next moves**\
 `We spoke with a dozen people involved in the discussions and no one sees an easy move, making it hard to predict realignment resolution.`\
 https://nytimes.com/athletic/5776229/2024/09/18/pac-12-aac-mountain-west-realignment/
