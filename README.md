@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5775751/2024/09/18/real-madrid-antonio-rudiger-eder
 `Harry Kane scored four goals to become England&#8217;s all-time leading goalscorer in the Champions League on a record-breaking night for the Bayern Munich striker.`\
 https://nytimes.com/athletic/5775744/2024/09/18/harry-kane-wayne-rooney-record/
 
-**Yankees' Juan Soto makes telling free agency comment after milestone home run**\
+**Juan Soto's telling free agency comment after his 200th home run**\
 `Soto's comment made it clear that the free agency process is at the forefront of his mind.`\
 https://nytimes.com/athletic/5775745/2024/09/18/yankees-juan-soto-free-agency-200-home-run/
 
