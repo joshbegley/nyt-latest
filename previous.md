@@ -1,3 +1,7 @@
+**Maresca's big call at Chelsea: Jackson or Nkunku up front?**\
+`Chelsea's head coach has two compelling options as a No 9 but choosing between them is not easy`\
+https://nytimes.com/athletic/5773427/2024/09/18/chelsea-jackson-nkunku-maresca/
+
 **Lance Lynn posts a gem in what could be his final home start at Busch Stadium**\
 `Lynn went 6-0 with a 3.15 ERA in 13 home starts this season and delivered a strong outing in his potential farewell.`\
 https://nytimes.com/athletic/5775389/2024/09/18/cardinals-mlb-lance-lynn-last-start/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774497/2024/09/18/guardiola-3000-days-man-city/
 **Newcastle United's Amy Andrews is in a hurry**\
 `From losing faith in academy football to distributing her own highlights package, Andrews has fought hard to get to where she is`\
 https://nytimes.com/athletic/5771656/2024/09/18/newcastle-united-women-amy-andrews-ambition/
-
-**Brittney Griner, Rickea Jackson ejected after Sparks-Mercury kerfuffle**\
-`Security rushed onto the court, as did Mercury coach Nate Tibbetts, to help separate the players.`\
-https://nytimes.com/athletic/5775611/2024/09/18/brittney-griner-rickea-jackson-ejections-wnba/
 

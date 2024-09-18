@@ -1,3 +1,7 @@
+**Maresca's big call at Chelsea: Jackson or Nkunku up front?**\
+`Chelsea's head coach has two compelling options as a No 9 but choosing between them is not easy`\
+https://nytimes.com/athletic/5773427/2024/09/18/chelsea-jackson-nkunku-maresca/
+
 **Lance Lynn posts a gem in what could be his final home start at Busch Stadium**\
 `Lynn went 6-0 with a 3.15 ERA in 13 home starts this season and delivered a strong outing in his potential farewell.`\
 https://nytimes.com/athletic/5775389/2024/09/18/cardinals-mlb-lance-lynn-last-start/

@@ -1,3 +1,7 @@
+**Blake Snell sets important tone for Giants as potentially pivotal road trip begins in Baltimore**\
+`Snell dominated Tuesday night in a 10-0 victory against the Orioles, holding them to one hit in six shutout innings and striking out 12.`\
+https://nytimes.com/athletic/5775604/2024/09/18/blake-snell-giants-pivotal-trip-baltimore/
+
 **Maresca's big call at Chelsea: Jackson or Nkunku up front?**\
 `Chelsea's head coach has two compelling options as a No 9 but choosing between them is not easy`\
 https://nytimes.com/athletic/5773427/2024/09/18/chelsea-jackson-nkunku-maresca/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5770649/2024/09/18/anatomy-of-arsenal-away-form-202
 **Pep Guardiola's 3,000 days in charge of Manchester City - the numbers behind the dominance**\
 `Which duo have combined for the most goals? Who has received the most red cards? All the stats behind the Spanish manager's Etihad reign`\
 https://nytimes.com/athletic/5774497/2024/09/18/guardiola-3000-days-man-city/
-
-**Newcastle United's Amy Andrews is in a hurry**\
-`From losing faith in academy football to distributing her own highlights package, Andrews has fought hard to get to where she is`\
-https://nytimes.com/athletic/5771656/2024/09/18/newcastle-united-women-amy-andrews-ambition/
 
