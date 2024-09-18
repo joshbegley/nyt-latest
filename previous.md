@@ -1,3 +1,7 @@
+**Astros' Jose Altuve ejected vs. Padres for taking off sock and shoe**\
+`Altuve removed his left cleat, tore off his sock and began to hobble toward the umpires, earning his ejection while pointing at his toes.`\
+https://nytimes.com/athletic/5775668/2024/09/18/jose-altuve-astros-padres-ejection-shoe-sock-removal/
+
 **Blake Snell sets important tone for Giants as potentially pivotal road trip begins in Baltimore**\
 `Snell dominated Tuesday night in a 10-0 victory against the Orioles, holding them to one hit in six shutout innings and striking out 12.`\
 https://nytimes.com/athletic/5775604/2024/09/18/blake-snell-giants-pivotal-trip-baltimore/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5775588/2024/09/18/blue-jays-takeaways-bo-bichette-
 **An anatomy of Arsenal's away wins in 2024: Free-flowing thrashings to contained opportunism**\
 `How Arsenal have varied their tactics away from home to put Chelsea's Premier League records in their sights`\
 https://nytimes.com/athletic/5770649/2024/09/18/anatomy-of-arsenal-away-form-2024/
-
-**Pep Guardiola's 3,000 days in charge of Manchester City - the numbers behind the dominance**\
-`Which duo have combined for the most goals? Who has received the most red cards? All the stats behind the Spanish manager's Etihad reign`\
-https://nytimes.com/athletic/5774497/2024/09/18/guardiola-3000-days-man-city/
 

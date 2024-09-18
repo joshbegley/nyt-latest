@@ -1,3 +1,7 @@
+**Astros' Jose Altuve ejected vs. Padres for taking off sock and shoe**\
+`Altuve removed his left cleat, tore off his sock and began to hobble toward the umpires, earning his ejection while pointing at his toes.`\
+https://nytimes.com/athletic/5775668/2024/09/18/jose-altuve-astros-padres-ejection-shoe-sock-removal/
+
 **Blake Snell sets important tone for Giants as potentially pivotal road trip begins in Baltimore**\
 `Snell dominated Tuesday night in a 10-0 victory against the Orioles, holding them to one hit in six shutout innings and striking out 12.`\
 https://nytimes.com/athletic/5775604/2024/09/18/blake-snell-giants-pivotal-trip-baltimore/
