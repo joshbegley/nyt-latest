@@ -1,3 +1,7 @@
+**Takeaways from the Fed’s rate cut decision.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/09/18/business/fed-interest-rates/fed-rate-cut-takeaways
+
 **How the Blue Jackets plan to honor Johnny Gaudreau this season**\
 `Players said Wednesday they've embraced a simple but powerful question ahead of the 2024-25 season: "What would Johnny want?"`\
 https://nytimes.com/athletic/5777110/2024/09/18/gaudreau-blue-jackets-tribute/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5777214/2024/09/18/craig-kimbrel-dfa-orioles/
 **In Praise of the Chicken Braise**\
 `Bone-in chicken on a bed of olive-studded, lemony greens is at the ready for sweater season.`\
 https://nytimes.com/2024/09/18/dining/how-to-braise-chicken.html
-
-**Adrian Wojnarowski is now the GM at St. Bonaventure: What does that mean in college basketball?**\
-`The responsibilities of a general manger, a position new to the collegiate game, vary dramatically from school to school.`\
-https://nytimes.com/athletic/5777091/2024/09/18/wojnarowski-general-manager-college-basketball-st-bonaventure/
 

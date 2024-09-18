@@ -1,4 +1,8 @@
 **How the Blue Jackets plan to honor Johnny Gaudreau this season**\
+`Players said Wednesday they've embraced a simple but powerful question ahead of the 2024-25 season: "What would Johnny want?"`\
+https://nytimes.com/athletic/5777110/2024/09/18/gaudreau-blue-jackets-tribute/
+
+**How the Blue Jackets plan to honor Johnny Gaudreau this season**\
 `COLUMBUS, Ohio — On the eve of training camp, Columbus Blue Jackets players said on Wednesday they&#8217;ve embraced a simple but powerful question — &#8220;What would Johnny want?&#8221; — to help them prepare to play the 2024-25 season.`\
 https://nytimes.com/athletic/5777110/2024/09/18/gaudreau-blue-jackets-tribute/
 
