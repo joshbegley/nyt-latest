@@ -1,3 +1,19 @@
+**Musk Finds a Way Around Brazil’s X Ban**\
+`Elon Musk’s social media platform used a technical maneuver to restore service for many Brazilians after a court blocked it. Regulators were trying to ban it again. Experts predicted it would be difficult.`\
+https://nytimes.com/2024/09/18/world/americas/brazil-musk-x-ban.html
+
+**John Cassaday, Award-Winning Comic Book Artist, Dies at 52**\
+`In series like Planetary, of which he was a creator, and Astonishing X-Men, his drawings conveyed a sense of realism in situations that were often fantastical.`\
+https://nytimes.com/2024/09/18/arts/john-cassaday-dead.html
+
+**Federal Reserve Cuts Interest Rates for the First Time in Four Years**\
+`Jerome H. Powell, the Fed chair, said that the central bank would take future interest rate cuts “meeting by meeting” after lowering rates by a half percentage point, an unusually large move.`\
+https://nytimes.com/video/business/economy/100000009704500/federal-reserve-interest-rates-cut.html
+
+**Harvey Weinstein Faces New Sexual Assault Charge in Manhattan**\
+`The disgraced Hollywood producer’s 2020 sex-crime conviction was thrown out, but he will be retried on those charges as well.`\
+https://nytimes.com/2024/09/18/nyregion/harvey-weinstein-sexual-assault-charge.html
+
 **More Wireless Devices Explode in Lebanon**\
 `Walkie-talkies belonging to Hezbollah members exploded across Lebanon on Wednesday, killing more than a dozen people and wounding hundreds, officials said. The Times verified footage from an explosion at a funeral that sent mourners fleeing for safety.`\
 https://nytimes.com/video/world/middleeast/100000009703738/lebanon-explosions.html
@@ -21,20 +37,4 @@ https://nytimes.com/article/brendan-banfield-murder-wife-au-pair.html
 **Melania Trump Defends Nude Modeling Work as She Promotes Book**\
 `The former first lady called her past work a “celebration of the human form” in a video, the latest in a series promoting her memoir and appearing to reflect her deeply held beliefs.`\
 https://nytimes.com/2024/09/18/us/politics/melania-trump-nude-modeling.html
-
-**Takeaways from the Fed’s rate cut decision.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/09/18/business/fed-interest-rates/fed-rate-cut-takeaways
-
-**How the Blue Jackets plan to honor Johnny Gaudreau this season**\
-`Players said Wednesday they've embraced a simple but powerful question ahead of the 2024-25 season: "What would Johnny want?"`\
-https://nytimes.com/athletic/5777110/2024/09/18/gaudreau-blue-jackets-tribute/
-
-**Teamsters Won’t Endorse a Candidate for President in 2024**\
-`The Teamsters president, Sean O’Brien, has shown an openness to former President Donald J. Trump, dividing the powerful union. Neither candidate will be the beneficiary of its considerable organizing muscle.`\
-https://nytimes.com/2024/09/18/us/politics/teamsters-endorsement-2024-election.html
-
-**The ‘dot plot’ shows more rate cuts are coming, but disagreement on how many.**\
-`By Ben Casselman`\
-https://nytimes.com/live/2024/09/18/business/fed-interest-rates/the-dot-plot-shows-more-rate-cuts-are-coming-but-disagreement-on-how-many
 
