@@ -1,3 +1,19 @@
+**‘Turn off your phone!’ A blast causes panic at a funeral for four victims of Tuesday’s pager attack.**\
+`By Hwaida Saad and Liam Stack`\
+https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/turn-off-your-phone-a-blast-causes-panic-at-a-funeral-for-four-victims-of-tuesdays-pager-attack
+
+**What is Hezbollah, the militant group based in Lebanon?**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/18/world/israel-hezbollah-gaza-hamas/what-is-hezbollah-the-militant-group-based-in-lebanon
+
+**The Gruesome Creativity of Assassinations Enters a New Phase**\
+`This time, the target wasn’t a person, but an organization.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/hezbollah-israel-pagers-assassinations
+
+**Bruins' Jeremy Swayman, still unsigned, will not be on the ice for camp's start**\
+`GM Don Sweeney said on camp's eve that Swayman "has chosen to wait, and rightfully so, until a contract is settled.”`\
+https://nytimes.com/athletic/5777003/2024/09/18/bruins-jeremy-swayman-training-camp-unsigned/
+
 **What’s in Our Queue? Cycladic Art and More**\
 `I’m a culture reporter for The New York Times, where I investigate the art world’s relationship to money, politics and technology. Here are five things I’m obsessed with.`\
 https://nytimes.com/interactive/2024/09/18/arts/editors-recommendations-cycladic-art.html
