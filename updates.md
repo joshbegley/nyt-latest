@@ -1,3 +1,7 @@
+**Takeaways from the Fed’s rate cut decision.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/09/18/business/fed-interest-rates/fed-rate-cut-takeaways
+
 **How the Blue Jackets plan to honor Johnny Gaudreau this season**\
 `Players said Wednesday they've embraced a simple but powerful question ahead of the 2024-25 season: "What would Johnny want?"`\
 https://nytimes.com/athletic/5777110/2024/09/18/gaudreau-blue-jackets-tribute/
