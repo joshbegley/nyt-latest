@@ -1,3 +1,7 @@
+**Usyk released after being detained at Polish airport**\
+`Heavyweight boxing champion Oleksandr Usyk was briefly detained at Krakow airport in Poland on Tuesday before being released, according to Ukraine President Volodymyr Zelenskyy.`\
+https://nytimes.com/athletic/5775888/2024/09/18/oleksandr-usyk-detained-poland/
+
 **The Man Behind the End of Roe v. Wade Has Big Plans for America**\
 `In the world of political fund-raising, there is hard money, soft money, dark money — and Leonard Leo money.`\
 https://nytimes.com/2024/09/18/opinion/leonard-leo-fundraising-supreme-court-irs.html

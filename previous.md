@@ -1,3 +1,7 @@
+**Usyk released after being detained at Polish airport**\
+`Heavyweight boxing champion Oleksandr Usyk was briefly detained at Krakow airport in Poland on Tuesday before being released, according to Ukraine President Volodymyr Zelenskyy.`\
+https://nytimes.com/athletic/5775888/2024/09/18/oleksandr-usyk-detained-poland/
+
 **The Man Behind the End of Roe v. Wade Has Big Plans for America**\
 `In the world of political fund-raising, there is hard money, soft money, dark money — and Leonard Leo money.`\
 https://nytimes.com/2024/09/18/opinion/leonard-leo-fundraising-supreme-court-irs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/style/steve-from-blues-clues-is-still-here-for-yo
 **Is the Comedy-Club Booking Process Broken?**\
 `The owners of a new spot say hiring comics based on referrals from other stand-ups is no guarantee the acts will be funny. Others say it’s all more nuanced.`\
 https://nytimes.com/2024/09/18/arts/television/comedy-club-booking.html
-
-**Girona's journey from Spain's fifth division to a Champions League debut at PSG**\
-`Just a few years ago, Girona were languishing in amateur football. Now they are taking on Europe’s elite`\
-https://nytimes.com/athletic/5775820/2024/09/18/girona-champions-league-psg-la-liga-michel/
 
