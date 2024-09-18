@@ -1,3 +1,15 @@
+**America’s Oil Country Increasingly Runs on Renewables**\
+`Texas, the biggest oil-producing state, has turned to solar power and battery storage to see it through extreme weather. But with demand rising, much more power will be needed.`\
+https://nytimes.com/2024/09/18/us/texas-grid-renewables-battery-storage-solar.html
+
+**Behind Our Reporting**\
+`With more than 230 school shootings in the United States over the past decade, and active shooter drills now a routine part of students’ lives, technologies developed to protect soldiers in combat are being adapted and marketed to parents and schools.`\
+https://nytimes.com/video/video/100000009510769/behind-our-reporting.html
+
+**M.T.A.’s Financial Needs Grow With Congestion Pricing in Purgatory**\
+`Transit leaders proposed a plan on Wednesday to spend more than $65 billion to upgrade New York City’s subway and bus system. Whether they will be able to fully fund it is unclear.`\
+https://nytimes.com/2024/09/18/nyregion/mta-capital-plan-congestion-pricing.html
+
 **Elias Khoury, Master of the Modern Arabic Novel, Dies at 76**\
 `In his fiction and journalism, he sought to illustrate the story of the contemporary Middle East and his native Lebanon.`\
 https://nytimes.com/2024/09/18/books/elias-khoury-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/18/style/mica-ertegun-auction-christies.html
 **A New Shark Joins the Tank as Mark Cuban Departs**\
 `Daniel Lubetzky, the founder of the Kind snack company, began appearing as a guest on “Shark Tank” five years ago. Soon he’ll have a permanent seat.`\
 https://nytimes.com/2024/09/18/business/daniel-lubetzky-shark-tank-mark-cuban.html
-
-**Fortuna Sittard to wear special kit in memory of Fernando Ricksen**\
-`Fortuna Sittard, the former club of Fernando Ricksen, will wear a special kit this week in honour of the late defender, five years on from his death.`\
-https://nytimes.com/athletic/5776638/2024/09/18/fernando-ricksen-fortuna-sittard-kit/
-
-**Justice Department Files $100 Million Claim in Fatal Baltimore Bridge Collapse**\
-`The crash of the Dali into the Francis Scott Key Bridge killed six people. The federal government says the owner and the operator were “grossly negligent” and “reckless.”`\
-https://nytimes.com/2024/09/18/us/justice-department-suit-baltimore-bridge-collapse.html
-
-**Shaw to miss Man City's clash vs Paris FC due to visa issue**\
-`Manchester City forward Khadija Shaw will miss Wednesday night’s Champions League qualifier against Paris FC due to a visa issue.`\
-https://nytimes.com/athletic/5776531/2024/09/18/khadija-shaw-manchester-city-paris-fc/
 
