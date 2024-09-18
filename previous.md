@@ -22,13 +22,13 @@ https://nytimes.com/2024/09/18/world/middleeast/un-israel-occupation-palestinian
 `Polling shows voters feel persistently sour about the economy, a confounding dynamic for Democrats.`\
 https://nytimes.com/2024/09/18/us/politics/fed-economy-harris-trump.html
 
-**I Just Went to Darfur. Here Is What Shattered Me.**\
-`“So many men were killed, like grains of sand,” says one survivor.`\
-https://nytimes.com/2024/09/18/opinion/darfur-sudan-famine.html
-
 **Trump’s Bogus Claims About Haitians Are Part of a Bigger Agenda**\
 `The Springfield fable is part of a crusade to throw immigrants out of the country.`\
 https://nytimes.com/2024/09/18/opinion/trump-haitians-immigration-springfield.html
+
+**I Just Went to Darfur. Here Is What Shattered Me.**\
+`“So many men were killed, like grains of sand,” says one survivor.`\
+https://nytimes.com/2024/09/18/opinion/darfur-sudan-famine.html
 
 **Champions League Briefing: De Bruyne injury, Ronaldo tributes and a late late goalkeeping blunder**\
 `The key talking points from Wednesday's Champions League action, and a reminder on how the new format works — and if losing now matters...`\
