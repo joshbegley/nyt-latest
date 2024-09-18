@@ -1,3 +1,7 @@
+**Brain games: Sticking with struggling backs Rachaad White and D'Andre Swift in Week 3**\
+`Renee Miller explains the biases at play in fantasy football and why she is still backing Rachaad White and D'Andre Swift in Week 3.`\
+https://nytimes.com/athletic/5774550/2024/09/18/brain-games-fantasy-football-week-3-rachaad-white-dandre-swift/
+
 **Blake Snell sets important tone for Giants as potentially pivotal road trip begins in Baltimore**\
 `Snell dominated Tuesday night in a 10-0 victory against the Orioles, holding them to one hit in six shutout innings and striking out 12.`\
 https://nytimes.com/athletic/5775604/2024/09/18/blake-snell-giants-orioles-pivotal-trip/
