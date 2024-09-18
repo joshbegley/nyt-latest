@@ -1,3 +1,7 @@
+**Giants takeaways: How 3 homegrown players could be mainstays in the 2025 lineup**\
+`Very specific things need to happen for Heliot Ramos, Tyler Fitzgerald and Grant McCray to be regulars for the Giants next season.`\
+https://nytimes.com/athletic/5773816/2024/09/18/sf-giants-takeaways-homegrown-players-future/
+
 **Justice Department Files $100 Million Claim in Fatal Baltimore Bridge Collapse**\
 `The crash of the Dali into the Francis Scott Key Bridge killed six people. The federal government says the owner and the operator were “grossly negligent” and “reckless.”`\
 https://nytimes.com/2024/09/18/us/justice-department-suit-baltimore-bridge-collapse.html

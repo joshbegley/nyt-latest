@@ -7,7 +7,7 @@ https://nytimes.com/2024/09/18/us/justice-department-suit-baltimore-bridge-colla
 https://nytimes.com/athletic/5776531/2024/09/18/khadija-shaw-manchester-city-paris-fc/
 
 **Giants takeaways: How 3 homegrown players could be mainstays in the 2025 lineup**\
-`Very specific things need to happen for Heliot Ramos, Tyler Fitzgerald and Grant McCray to be mainstays for the Giants next season.`\
+`Very specific things need to happen for Heliot Ramos, Tyler Fitzgerald and Grant McCray to be regulars for the Giants next season.`\
 https://nytimes.com/athletic/5773816/2024/09/18/sf-giants-takeaways-homegrown-players-future/
 
 **Scoop City: Week 3 injury reports**\
