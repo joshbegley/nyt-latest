@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5773891/2024/09/18/devils-offseason-overhaul-markst
 `Which prospects will make the team? Will they name a captain? And how the heck can we watch CHSN?`\
 https://nytimes.com/athletic/5773884/2024/09/18/blackhawks-training-camp-questions/
 
-**Israel’s Existential Threat from Within**\
+**Israel’s Existential Threat From Within**\
 `The growing sway of far-right settlers in the West Bank has pushed Israeli politics toward a crisis.`\
 https://nytimes.com/2024/09/18/podcasts/the-daily/israel-extremism-west-bank.html
 
