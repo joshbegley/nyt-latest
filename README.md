@@ -1,3 +1,15 @@
+**Central Banks Around the World Are Easing Their Aggressive Stance**\
+`Inflation has fallen in most developed nations, and central bank officials are now trying to steer their economies toward a so-called soft landing.`\
+https://nytimes.com/2024/09/18/business/central-banks-interest-rates-inflation.html
+
+**Alaska Airlines Chief Plans More Routes After a Deal With Hawaiian**\
+`The airline’s chief executive, Ben Minicucci, said in an interview that closing its acquisition of Hawaiian Airlines would allow it to expand, including on international routes.`\
+https://nytimes.com/2024/09/18/business/alaska-airlines-hawaiian-deal.html
+
+**‘Get Off the Fence,’ Bret Stephens**\
+`Readers are upset by the columnist’s uncertainty about voting for Kamala Harris. Also: Donald Trump’s “audacity”; Afghanistan; teaching the Bible; pressure on teenagers.`\
+https://nytimes.com/2024/09/18/opinion/kamala-harris-bret-stephens.html
+
 **Ivan Perisic joins PSV on free transfer**\
 `PSV Eindhoven have signed Croatia international Ivan Perisic on a free transfer.`\
 https://nytimes.com/athletic/5776697/2024/09/18/ivan-perisic-psv-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/18/books/elias-khoury-dead.html
 **Bulletproofing America’s Classrooms**\
 `Ballistic armor companies are marketing protective products designed for the military to parents and schools. Some people see the items as unsettling but prudent; others find them infuriating.`\
 https://nytimes.com/interactive/2024/09/18/science/bulletproofing-schools.html
-
-**After Rodri's comments, should footballers go on strike over workload? - The Debate**\
-`Midfielder Rodri has spoken of strike action by players over the number of matches they play. Here, two writers discuss the topic`\
-https://nytimes.com/athletic/5773955/2024/09/18/rodri-footballers-strike-workload/
-
-**Switching play helped Liverpool beat AC Milan - but don't get used to it**\
-`A tactic that was beloved under Jurgen Klopp does not suit Arne Slot's system so easily, even if it helped storm San Siro last night`\
-https://nytimes.com/athletic/5776082/2024/09/18/liverpool-milan-champions-league-tactics/
-
-**My Cauliflower Shawarma Is Worth Staying In For**\
-`And our readers agree: “One of my all time favorite NYT Cooking recipes,” one says. “Try this, you will not regret it,” another writes.`\
-https://nytimes.com/2024/09/18/dining/my-cauliflower-shawarma-is-worth-staying-in-for.html
 
