@@ -1,3 +1,7 @@
+**Fortuna Sittard to wear special kit in memory of Fernando Ricksen**\
+`Fortuna Sittard, the former club of Fernando Ricksen, will wear a special kit this week in honour of the late defender, five years on from his death.`\
+https://nytimes.com/athletic/5776638/2024/09/18/fernando-ricksen-fortuna-sittard-kit/
+
 **Justice Department Files $100 Million Claim in Fatal Baltimore Bridge Collapse**\
 `The crash of the Dali into the Francis Scott Key Bridge killed six people. The federal government says the owner and the operator were “grossly negligent” and “reckless.”`\
 https://nytimes.com/2024/09/18/us/justice-department-suit-baltimore-bridge-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5776395/2024/09/18/blackhawks-captain-nick-foligno-
 **Aces' Wilson passes Reese for single-season rebound mark**\
 `Wilson grabbed her 447th rebound in Tuesday night's win over the Storm to pass Angel Reese for the record.`\
 https://nytimes.com/athletic/5776341/2024/09/18/aja-wilson-wnba-rebounding-record/
-
-**What we're hearing about the Pac-12, AAC and Mountain West's next moves**\
-`We spoke with a dozen people involved in the discussions and no one sees an easy move, making it hard to predict realignment resolution.`\
-https://nytimes.com/athletic/5776229/2024/09/18/pac-12-aac-mountain-west-realignment/
 
