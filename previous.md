@@ -1,3 +1,23 @@
+**10 Blues training camp questions: Bannister's command, Dvorský's chances, Broberg's fit, more**\
+`The Blues open training camp on Thursday and we've got 10 questions facing the team before the puck drops for the 2024-25 season. `\
+https://nytimes.com/athletic/5774040/2024/09/18/blues-training-camp-questions/
+
+**Conor Gallagher exclusive: On feeling 'wanted and appreciated' at Atletico after Chelsea limbo**\
+`Gallagher's move from Chelsea to Atletico hung in the balance for weeks. Now, he's making the most of his time in the Spanish capital`\
+https://nytimes.com/athletic/5773872/2024/09/18/conor-gallagher-chelsea-atletico-interview/
+
+**111 Former G.O.P. Officials Back Harris, Calling Trump ‘Unfit to Serve’**\
+`The signatories of a letter endorsing the Democratic vice president included former members of Congress, defense secretaries, C.I.A. directors and other national security officials.`\
+https://nytimes.com/2024/09/18/us/politics/republican-officials-harris-endorsement.html
+
+**G.M. Electric Vehicles Gain Access to Tesla Chargers**\
+`After a delay of several months, General Motors said owners of its battery-powered models would now be able to use Tesla charging stations with adapters.`\
+https://nytimes.com/2024/09/18/business/energy-environment/tesla-general-motors-ev-charging.html
+
+**Pagers, Once Ubiquitous, Retain Niche Appeal**\
+`Pagers lack more modern navigation technologies so can be harder to track, but are still widely used in hospitals for their reliable service.`\
+https://nytimes.com/2024/09/18/world/middleeast/what-is-pager-hezbollah.html
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/18/us/trump-harris-election/heres-the-latest-on-the-presidential-race
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5775961/2024/09/18/players-strike-champions-league-
 **Study Reveals Bird-Migration Mystery**\
 `By outfitting blackbirds with heart-rate monitors, scientists debunked a long-held assumption about the benefits of spending the winter in warm climates.`\
 https://nytimes.com/2024/09/18/science/birds-migration-energy.html
-
-**England Introduces Buffer Zones to Ban Protest Outside Abortion Clinics**\
-`“Safe access” zones outside clinics in England and Wales will make it illegal to harass anyone seeking medical services or working there, the British government said.`\
-https://nytimes.com/2024/09/18/world/europe/abortion-clinic-safe-zones-protests-england-wales.html
-
-**Gary Neville on Old Trafford plans: 'I want to see a world of Manchester United around that stadium'**\
-`Former right-back on his Old Trafford task-force role, whether he supports redevelopment or a new stadium, and how fans will be involved`\
-https://nytimes.com/athletic/5774538/2024/09/18/gary-neville-old-trafford-task-force-interview/
-
-**Bangladesh, Struggling to Restore Order, Gives Army Policing Powers**\
-`Public disorder has continued in the country, weeks after its autocratic leader was driven out by protests. Many police officers have still not returned to work.`\
-https://nytimes.com/2024/09/18/world/asia/bangladesh-army-police.html
-
-**What We Know About the Deadly Pager Explosions in Lebanon**\
-`The seemingly coordinated blasts targeting Hezbollah members stoked fears of a broadening conflict.`\
-https://nytimes.com/2024/09/18/world/europe/pager-explosions-lebanon-what-we-know.html
-
-**Broncos mailbag: Is it too early to be concerned with Bo Nix's struggles?**\
-`Broncos fans want to know why an offense that is struggling in the passing game hasn't found a way to use speedsters like Marvin Mims Jr.`\
-https://nytimes.com/athletic/5773412/2024/09/18/broncos-mailbag-bo-nix-week-3/
 
