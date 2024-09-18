@@ -1,3 +1,11 @@
+**How the Secret Service Missed Chances to Halt a Tragedy at a Trump Rally**\
+`Communications gaps, unguarded warehouses and a lack of written instructions opened an opportunity for a gunman at a rally in Butler, Pa., in July.`\
+https://nytimes.com/2024/09/18/us/politics/trump-rally-secret-service.html
+
+**How 3 games in 7 days across nearly 3,000 miles has become the norm for Gotham FC**\
+`A rash of new club competitions have created a gruelling schedule for Gotham's players`\
+https://nytimes.com/athletic/5775938/2024/09/18/gotham-nwsl-match-calendar/
+
 **Harrison J. Goldin, 88, New York City Comptroller in Fiscal Crisis, Is Dead**\
 `He weathered the storm as the city’s chief financial officer for 16 years and jousted with Mayor Koch in a public feud and a losing primary bid to replace him.`\
 https://nytimes.com/2024/09/18/nyregion/harrison-j-goldin-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5776784/2024/09/18/jose-altuve-foot-ejection-the-wi
 **Central Banks Around the World Are Easing Their Aggressive Stance**\
 `Inflation has fallen in most developed nations, and central bank officials are now trying to steer their economies toward a so-called soft landing.`\
 https://nytimes.com/2024/09/18/business/central-banks-interest-rates-inflation.html
-
-**Alaska Airlines Chief Plans More Routes After a Deal With Hawaiian**\
-`The airline’s chief executive, Ben Minicucci, said in an interview that closing its acquisition of Hawaiian Airlines would allow it to expand, including on international routes.`\
-https://nytimes.com/2024/09/18/business/alaska-airlines-hawaiian-deal.html
-
-**‘Get Off the Fence,’ Bret Stephens**\
-`Readers are upset by the columnist’s uncertainty about voting for Kamala Harris. Also: Donald Trump’s “audacity”; Afghanistan; teaching the Bible; pressure on teenagers.`\
-https://nytimes.com/2024/09/18/opinion/kamala-harris-bret-stephens.html
 
