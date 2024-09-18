@@ -1,3 +1,7 @@
+**What we're hearing about the Pac-12, AAC and Mountain West's next moves**\
+`We spoke with a dozen people involved in the discussions and no one sees an easy move, making it hard to predict realignment resolution.`\
+https://nytimes.com/athletic/5776229/2024/09/18/pac-12-aac-mountain-west-realignment/
+
 **‘You’re Basically on a Broadway Stage, With New Friends’**\
 `At the touring dance party Broadway Rave, the playlist is all show tunes. But don’t worry, no house remixes of “I Dreamed a Dream” here.`\
 https://nytimes.com/2024/09/18/theater/broadway-rave-theater-musicals.html
