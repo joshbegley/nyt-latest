@@ -1,3 +1,7 @@
+**Dodgers' Gavin Stone 'very unlikely' to return this season**\
+`Although it had been expected Stone wouldn't pitch again this season, the news throws the Dodgers' postseason rotation into further flux.`\
+https://nytimes.com/athletic/5777594/2024/09/18/dodgers-gavin-stone-injury-update/
+
 **The Democrat in North Carolina’s governor’s race has rejected debating his Republican rival.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/09/18/us/trump-harris-election/the-democrat-in-north-carolinas-governors-race-has-rejected-debating-his-republican-rival
