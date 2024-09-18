@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5775668/2024/09/18/jose-altuve-astros-padres-ejecti
 
 **Blake Snell sets important tone for Giants as potentially pivotal road trip begins in Baltimore**\
 `Snell dominated Tuesday night in a 10-0 victory against the Orioles, holding them to one hit in six shutout innings and striking out 12.`\
-https://nytimes.com/athletic/5775604/2024/09/18/blake-snell-giants-pivotal-trip-baltimore/
+https://nytimes.com/athletic/5775604/2024/09/18/blake-snell-giants-orioles-pivotal-trip/
 
 **Maresca's big call at Chelsea: Jackson or Nkunku up front?**\
 `Chelsea's head coach has two compelling options as a No 9 but choosing between them is not easy`\
