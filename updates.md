@@ -1,3 +1,7 @@
+**On the Screen or in a Meme, ‘The Babadook’ Is Still an Unnerving Dream**\
+`Back in theaters for its 10th anniversary, the haunting movie never really left, with a legacy that includes an entire horror subgenre.`\
+https://nytimes.com/2024/09/19/movies/the-babadook-10th-anniversary.html
+
 **The Bounce: Why the NBA's City edition jerseys are just bad.**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5778850/2024/09/19/nba-city-jerseys-celtics-nba-finals-title-the-bounce/
