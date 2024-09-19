@@ -1,3 +1,15 @@
+**Pager Attack Highlights Tension Between Israel’s Technical Might and Strategic Fog**\
+`In Gaza, Lebanon and Iran, Israel has shown it’s capable of extraordinary acts of espionage, but is struggling to define long-term goals, according to Israeli analysts and public figures.`\
+https://nytimes.com/2024/09/19/world/middleeast/israel-hezbollah-lebanon-hamas-gaza.html
+
+**Chelsea defender Fox suffers ACL injury**\
+`Chelsea Women right-back Jorja Fox, on loan at Crystal Palace, is set for an extended period on the sidelines after sustaining an anterior cruciate ligament (ACL) injury.`\
+https://nytimes.com/athletic/5779119/2024/09/19/jorja-fox-chelsea-acl-injury/
+
+**The Author of ‘Impossible Creatures’ Tucks Big Ideas in Tales of Wonder**\
+`Katherine Rundell said children can handle hefty themes, but finds it “bad manners to offer a child a story and give them just a moral.”`\
+https://nytimes.com/2024/09/19/sports/katherine-rundell-impossible-creatures.html
+
 **F.T.C. Study Finds ‘Vast Surveillance’ of Social Media Users**\
 `Meta, YouTube and other sites collected more data than most users realized, a new report by the Federal Trade Commission finds.`\
 https://nytimes.com/2024/09/19/technology/ftc-meta-tiktok-privacy-surveillance.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/19/world/europe/mohamed-al-fayed-harrods-rape.html
 **Five of the most important questions facing the Canadiens in training camp**\
 `The Canadiens have far more than five questions facing them this training camp, but these are the five most important.`\
 https://nytimes.com/athletic/5778522/2024/09/19/canadiens-training-camp-storylines/
-
-**Saudi Crown Prince Says No to Israel Ties Without Palestinian State**\
-`His comments reflect an apparent toughening of his views on an issue that could reshape the diplomatic map of the Middle East.`\
-https://nytimes.com/2024/09/19/world/middleeast/saudi-israel-relations.html
-
-**Listen: ‘A Quest for Cookie Monster’s Cookies’**\
-`In the season premiere of our newly updated weekly feature, students will listen to the story of one reporter's humorous odyssey into the world of muppet cookies.`\
-https://nytimes.com/2024/09/19/learning/listen-a-quest-for-cookie-monsters-cookies.html
-
-**We’re Adding Podcasts to Our Long-Running Weekly Film Club for Students**\
-`Our new, updated feature will showcase both audio and video journalism from The New York Times and invite student dialogue and reflection.`\
-https://nytimes.com/2024/09/19/learning/were-adding-podcasts-to-our-long-running-weekly-film-club-for-students.html
 
