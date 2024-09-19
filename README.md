@@ -1,3 +1,7 @@
+**The Octagon Inside the Sphere: Bloody Fights and Soaring Films**\
+`To amplify the first live athletic competition at the Las Vegas landmark, the Ultimate Fighting Championship turned to Hollywood.`\
+https://nytimes.com/2024/09/19/arts/sphere-las-vegas-ufc.html
+
 **Trump Media Stock Tumbles as Big Shareholders Are Soon Free to Sell**\
 `Donald J. Trump, the company’s largest shareholder, has said he won’t sell when a lockup agreement expires on Thursday. But other large investors could.`\
 https://nytimes.com/2024/09/19/business/trump-media-lockup-expires.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5778850/2024/09/19/nba-city-jerseys-celtics-nba-fin
 **Betting For (By) Dummies: Aligned on Penn State, USC to cover, plus several NFL bets**\
 `Jon Greenberg and Zac Jackson are back with their banter and betting picks for college football and NFL. `\
 https://nytimes.com/athletic/5778420/2024/09/19/betting-picks-nfl-cfb-spread-usc-penn-state-bears-bucs/
-
-**After an Olympic Backlash, France’s Drag Queens Are Here to Stay**\
-`Answering hatred with glitter is a time-honored drag tradition that France’s answer to “RuPaul’s Drag Race” is keeping alive in a new stage spectacle.`\
-https://nytimes.com/2024/09/19/theater/drag-race-france-live.html
 
