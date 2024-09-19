@@ -1,3 +1,7 @@
+**Asphalt Schoolyards Get a Shady Makeover**\
+`Schools across the country are adding trees, tent-like structures and water to their playgrounds as temperatures soar.`\
+https://nytimes.com/2024/09/19/climate/school-playgrounds-shade-heat.html
+
 **The Windup: Playoff clinching has begun**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5779461/2024/09/19/mlb-playoffs-clinched-yankees-brewers-the-windup/
