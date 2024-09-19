@@ -1,3 +1,7 @@
+**‘A Very Royal Scandal’ Is a Juicy British Drama**\
+`This taut and serious Amazon series chronicles the time when Prince Andrew was interviewed on TV about his relationship with Jeffrey Epstein.`\
+https://nytimes.com/2024/09/19/arts/television/a-very-royal-scandal-amazon.html
+
 **In first remarks since attacks, Hezbollah leader promises to retaliate against Israel.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/in-first-remarks-since-attacks-hezbollah-leader-promises-to-retaliate-against-israel
