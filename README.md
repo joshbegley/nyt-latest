@@ -1,3 +1,7 @@
+**The Pulse: A failure that could change the NFL**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5777103/2024/09/19/bryce-young-panthers-rookie-qb-the-pulse/
+
 **The Stakes on Immigration**\
 `We cover the presidential candidates’ immigration policies.`\
 https://nytimes.com/2024/09/19/briefing/immigration-trump-harris-policies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/podcasts/the-daily/pagers-explosion-lebanon.html
 **Colts coach Shane Steichen benched Jonathan Taylor. That can't happen again**\
 `Taylor struggles in the passing game, but that's not a good enough reason to keep him off the field for the entire fourth quarter of a game.`\
 https://nytimes.com/athletic/5777416/2024/09/19/colts-shane-steichen-jonathan-taylor-fourth-quarter/
-
-**Polls Find Harris-Trump Deadlock, and Device Attacks Spread Fear in Lebanon**\
-`Plus, legal problems for MrBeast’s reality show.`\
-https://nytimes.com/2024/09/19/podcasts/harris-trump-poll-lebanon.html
 
