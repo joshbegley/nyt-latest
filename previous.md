@@ -1,3 +1,7 @@
+**Blackhawks observations: Veterans, Bedard linemates, Taylor Hall**\
+`The Blackhawks opened camp Thursday, bringing a much more serious approach to their preparation.`\
+https://nytimes.com/athletic/5779953/2024/09/19/blackhawks-training-camp-news/
+
 **Man Pleads Guilty to Falsely Accusing Fantasy Football Rival of Shooting Plans**\
 `Matthew Gabriel, 25, of Philadelphia, also admitted to a fake report of a bomb threat at the University of Iowa. The mass shooting report was made in Norway. He pleaded guilty to federal charges.`\
 https://nytimes.com/2024/09/19/us/philadelphia-fantasy-football-mass-shooting-threat.html
@@ -34,8 +38,4 @@ https://nytimes.com/video/us/100000009706898/biden-interest-rate-cuts.html
 **A New Lace-Forward Fashion Line**\
 `The London-based women’s wear brand Oiza is expanding ideas of British beauty.`\
 https://nytimes.com/2024/09/19/t-magazine/oiza-london-fashion-week.html
-
-**Ex-C.I.A. Officer Gets 30 Years for Drugging and Sexually Assaulting Women**\
-`The former officer, Brian Jeffrey Raymond, admitted that he had sexually assaulted and photographed dozens of women in the United States and overseas, prosecutors said.`\
-https://nytimes.com/2024/09/19/us/brian-jeffrey-raymond-cia-sexual-assault.html
 

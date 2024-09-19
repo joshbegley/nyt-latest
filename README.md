@@ -2,8 +2,8 @@
 `The Blackhawks opened camp Thursday, bringing a much more serious approach to their preparation.`\
 https://nytimes.com/athletic/5779953/2024/09/19/blackhawks-training-camp-news/
 
-**Man Pleads Guilty to Falsely Accusing Fantasy Football Rival of Shooting Plans**\
-`Matthew Gabriel, 25, of Philadelphia, also admitted to a fake report of a bomb threat at the University of Iowa. The mass shooting report was made in Norway. He pleaded guilty to federal charges.`\
+**Man Falsely Accused Fantasy Football Rival of Plotting Mass Shooting**\
+`Matthew Gabriel, 25, of Philadelphia, pleaded guilty to the mass shooting report made in Norway. He also admitted to a fake report of a bomb threat at the University of Iowa.`\
 https://nytimes.com/2024/09/19/us/philadelphia-fantasy-football-mass-shooting-threat.html
 
 **Maple Leafs could reap the rewards of William Nylander’s move to centre — if he can do it**\
