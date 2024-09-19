@@ -1,3 +1,15 @@
+**Monaco 2 Barcelona 1 - A comedy of errors; Yamal stars in front of Jordan; unlucky Pedri**\
+`In an eventful game at Stade Louis II, there were errors, a red card and goals - here we break down the action.`\
+https://nytimes.com/athletic/5773839/2024/09/19/monaco-barcelona-yamal-champions-league/
+
+**Anna Delvey Needs More Than a Bedazzled Ankle Monitor to Win**\
+`The former fake heiress let her tracking device steal the show in her “Dancing With the Stars” debut. To survive another week, she may need to show some emotion.`\
+https://nytimes.com/2024/09/19/style/anna-delvey-dancing-with-the-stars.html
+
+**The Briefing: Atalanta 0 Arsenal 0 - Raya's brilliance, Odegaard missed and is Serie A posing a threat?**\
+`Analysis of Arsenal's goalless Champions League opener in Italy at Atalanta - a point that may please both sides`\
+https://nytimes.com/athletic/5773783/2024/09/19/atalanta-0-arsenal-0-rayas-brilliance-odegaard-missed-and-is-serie-a-posing-a-threat/
+
 **Blackhawks observations: Veterans, Bedard linemates, Taylor Hall**\
 `The Blackhawks opened camp Thursday, bringing a much more serious approach to their preparation.`\
 https://nytimes.com/athletic/5779953/2024/09/19/blackhawks-training-camp-news/
@@ -26,16 +38,4 @@ https://nytimes.com/2024/09/19/world/middleeast/un-israel-gaza-war-children.html
 **Travel Docs Update: Online Passport Renewal and Digital Driver’s Licenses**\
 `New options have arrived, for both U.S. passports and driver’s licenses, that may give travelers more flexibility.`\
 https://nytimes.com/2024/09/19/travel/passports-real-id-travelers.html
-
-**Guardians clinch playoff spot with win vs. Twins**\
-`Cleveland has held at least a share of the American League Central lead since mid-April and can sew up a division title in the coming days.`\
-https://nytimes.com/athletic/5771454/2024/09/19/cleveland-guardians-playoff-spot-mlb/
-
-**‘Declaration of Progress’: Biden Hails Fed Rate Cuts**\
-`President Biden hailed the Federal Reserve’s move to begin cutting interest rates during a speech at the Economic Club of Washington.`\
-https://nytimes.com/video/us/100000009706898/biden-interest-rate-cuts.html
-
-**A New Lace-Forward Fashion Line**\
-`The London-based women’s wear brand Oiza is expanding ideas of British beauty.`\
-https://nytimes.com/2024/09/19/t-magazine/oiza-london-fashion-week.html
 

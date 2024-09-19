@@ -1,3 +1,20 @@
+**Monaco 2 Barcelona 1 - A comedy of errors; Yamal stars in front of Jordan; unlucky Pedri**\
+`In an eventful game at Stade Louis II, there were errors, a red card and goals - here we break down the action.`\
+https://nytimes.com/athletic/5773839/2024/09/19/monaco-barcelona-yamal-champions-league/
+
+**Anna Delvey Needs More Than a Bedazzled Ankle Monitor to Win**\
+`The former fake heiress let her tracking device steal the show in her “Dancing With the Stars” debut. To survive another week, she may need to show some emotion.`\
+https://nytimes.com/2024/09/19/style/anna-delvey-dancing-with-the-stars.html
+
+**The Briefing: Atalanta 0 Arsenal 0 - Raya's brilliance, Odegaard missed and is Serie A posing a threat?**\
+`Analysis of Arsenal's goalless Champions League opener in Italy at Atalanta - a point that may please both sides`\
+https://nytimes.com/athletic/5773783/2024/09/19/atalanta-0-arsenal-0-rayas-brilliance-odegaard-missed-and-is-serie-a-posing-a-threat/
+
+**Maple Leafs could reap the rewards of William Nylander’s move to centre — if he can do it**\
+`Nylander is more valuable to Toronto playing the more essential, demanding position of centre than wing.
+`\
+https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylander/
+
 **Maple Leafs could reap the rewards of William Nylander’s move to centre — if he can do it**\
 `Nylander is more valuable to Toronto playing the more essential, demanding position of centre than wing.
 `\
