@@ -1,3 +1,15 @@
+**MLB bullpen report: Luke Weaver's workload patterns and more intel for your fantasy playoff push**\
+`Greg Jewett offers his final look at the MLB bullpen hierarchies as fantasy baseball managers make their postseason push.`\
+https://nytimes.com/athletic/5779498/2024/09/19/mlb-bullpen-report-luke-weaver-fantasy-baseball-saves/
+
+**Leicester held Premier League talks over 'awful' VAR error - Cooper**\
+`Leicester City met with the Premier League to express their frustration over a controversial video assistant referee (VAR) decision during last weekend&#8217;s draw with Crystal Palace.`\
+https://nytimes.com/athletic/5779117/2024/09/19/leicester-var-steve-cooper/
+
+**Disney Animation Boss Steps Down to Focus on ‘Frozen’ Sequels**\
+`Walt Disney Animation Studios is replacing Jennifer Lee, its chief creative officer, after an uneven six-year tenure.`\
+https://nytimes.com/2024/09/19/business/jennifer-lee-disney-animation-frozen.html
+
 **Asphalt Schoolyards Get a Shady Makeover**\
 `Schools across the country are adding trees, tent-like structures and water to their playgrounds as temperatures soar.`\
 https://nytimes.com/2024/09/19/climate/school-playgrounds-shade-heat.html
