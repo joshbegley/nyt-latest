@@ -1,3 +1,15 @@
+**John Clements, Whose Research Saved Thousands of Babies, Dies at 101**\
+`He identified the cause of a respiratory condition behind 10,000 infant deaths a year and helped design a drug to drastically reduce mortality rates.`\
+https://nytimes.com/2024/09/19/science/dr-john-a-clements-dead.html
+
+**How Oilers hope to find ideal defence partner for Darnell Nurse**\
+`Ty Emberson is the early leader to claim the spot on the Oilers' second pair next to Nurse.`\
+https://nytimes.com/athletic/5780519/2024/09/19/edmonton-oilers-darnell-nurse-ty-emberson/
+
+**After steps taken last season, John Tortorella warns Flyers not to get complacent**\
+`For Tortorella, the familiarity between players is only the foundation for being successful. `\
+https://nytimes.com/athletic/5780429/2024/09/19/flyers-training-camp-john-tortorella/
+
 **Raya credits Arsenal goalkeeper coach Cana after Atalanta double-save**\
 `David Raya credited Arsenal&#8217;s goalkeeper coach Inaki Cana after his double-save preserved a clean sheet during Thursday&#8217;s Champions League draw against Atalanta.`\
 https://nytimes.com/athletic/5780575/2024/09/19/david-raya-penalty-save-champions-league/
