@@ -1,3 +1,7 @@
+**Julio ​​Rodríguez's big mistake helped Yankees clinch a playoff spot: 'Kind of a freak thing'**\
+`The Yankees seemed to celebrate extra hard since many of them were on last year’s team that missed the playoffs.`\
+https://nytimes.com/athletic/5778555/2024/09/19/yankees-clinch-playoff-spot/
+
 **Brighton 3-2 Wolves: Sa's struggles, what next for Hwang and Sarabia?**\
 `Their Premier League season has not started well and now Wolves are also out of the Carabao Cup after a 3-2 away loss against Brighton`\
 https://nytimes.com/athletic/5778116/2024/09/19/wolves-briefing-brighton-league-cup/
