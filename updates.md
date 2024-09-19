@@ -1,3 +1,11 @@
+**Former Bucks owner Marc Lasry in talks to purchase Courage**\
+`Lasry previously attempted to bid on a controlling interest in Angel City FC.`\
+https://nytimes.com/athletic/5780056/2024/09/19/bucks-marc-lasry-courage-nwsl/
+
+**Hezbollah Leader Says Israel Will Face Retribution After Lebanon Explosions**\
+`Hassan Nasrallah refused to say when or how Hezbollah would take revenge. As he spoke, Israeli fighter jets swooped low over Beirut.`\
+https://nytimes.com/2024/09/19/world/middleeast/hezbollah-nasrallah-israel-lebanon-explosions.html
+
 **What I’m hearing about how the Warriors are filling out their roster amid financial constraints**\
 `As the Warriors enter training camp, there will be a high bar to clear for those in the mix for a regular-season spot. `\
 https://nytimes.com/athletic/5774949/2024/09/19/warriors-training-camp-roster/
