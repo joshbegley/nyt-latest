@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5779044/2024/09/19/jarrad-branthwaite-everton-injur
 
 **Legal Watchdog Group Warns Pro-Trump Lawyers Against Subverting Democracy in November**\
 `New ads running in legal journals are warning lawyers: “Don’t lose your law license because of Trump.”`\
-https://nytimes.com/2024/09/19/us/politics/legal-watchdog-group-warns-pro-trump-lawyers-against-subverting-democracy-in-november.html
+https://nytimes.com/2024/09/19/us/politics/trump-lawyers-election-results.html
 
 **Five big questions the Kings must answer as training camp opens**\
 `Can the Kings chart a different ending this season? These are the questions that will help determine their success.`\
