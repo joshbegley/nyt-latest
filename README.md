@@ -1,3 +1,15 @@
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/09/19/books/review/new-books-recommendations.html
+
+**Jaromir Jagr, 52, says he'll retire after this season**\
+`After 37 seasons, Jaromir Jagr’s storied career as a professional hockey player may finally be coming to a close.`\
+https://nytimes.com/athletic/5780014/2024/09/19/jaromir-jagr-retirement/
+
+**Bruce Feldman's Week 4 college football picks against the spread**\
+`Several conference matchups carry a lot of intrigue this week.`\
+https://nytimes.com/athletic/5780043/2024/09/19/college-football-week-4-picks-predictions-feldman/
+
 **Former Bucks owner Marc Lasry in talks to purchase Courage**\
 `Lasry previously attempted to bid on a controlling interest in Angel City FC.`\
 https://nytimes.com/athletic/5780056/2024/09/19/bucks-marc-lasry-courage-nwsl/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/09/19/smarter-living/wirecutter/phone-last-
 **Infantino calls emergency meeting with broadcasters over lack of FIFA Club World Cup deal**\
 `FIFA president Gianni Infantino has organised an emergency briefing with global television executives for Friday as he attempts to drum up interest in the FIFA Club World Cup, with the world governing body so far failing to announce a single broadcast deal for the tournament.`\
 https://nytimes.com/athletic/5779549/2024/09/19/fifa-club-world-cup-broadcast-rights/
-
-**What I’m hearing about how the Warriors are filling out their roster amid financial constraints**\
-`As the Warriors enter training camp, there will be a high bar to clear for those in the mix for a regular-season spot. `\
-https://nytimes.com/athletic/5774949/2024/09/19/warriors-training-camp-roster/
-
-**‘A Very Royal Scandal’ Is a Juicy British Drama**\
-`This taut and serious Amazon series chronicles the time when Prince Andrew was interviewed on TV about his relationship with Jeffrey Epstein.`\
-https://nytimes.com/2024/09/19/arts/television/a-very-royal-scandal-amazon.html
-
-**Hezbollah Leader Says Israel Will Face Retribution After Lebanon Explosions**\
-`Hassan Nasrallah refused to say when or how Hezbollah would take revenge. As he spoke, Israeli fighter jets swooped low over Beirut.`\
-https://nytimes.com/2024/09/19/world/middleeast/hezbollah-nasrallah-israel-lebanon-explosions.html
 
