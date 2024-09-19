@@ -1,3 +1,7 @@
+**Red Wings training camp takeaways: Kane's return, big year for Berggren and more**\
+`The first day of Red Wings training camp featured some big news and a clear emphasis for 2024-25. `\
+https://nytimes.com/athletic/5779754/2024/09/19/red-wings-training-camp-seider-berggren-kane/
+
 **Friday Briefing: Israel Bombards Hezbollah**\
 `Plus, French drag is here to stay.`\
 https://nytimes.com/2024/09/19/briefing/israel-lebanon-hezbollah-us-polls-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5773783/2024/09/19/atalanta-arsenal-raya-champions-
 **Blackhawks observations: Veterans, Bedard linemates, Taylor Hall**\
 `The Blackhawks opened camp Thursday, bringing a much more serious approach to their preparation.`\
 https://nytimes.com/athletic/5779953/2024/09/19/blackhawks-training-camp-news/
-
-**Man Falsely Accused Fantasy Football Rival of Plotting Mass Shooting**\
-`Matthew Gabriel, 25, of Philadelphia, pleaded guilty to the mass shooting report made in Norway. He also admitted to a fake report of a bomb threat at the University of Iowa.`\
-https://nytimes.com/2024/09/19/us/philadelphia-fantasy-football-mass-shooting-threat.html
 

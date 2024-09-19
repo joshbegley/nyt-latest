@@ -1,3 +1,11 @@
+**Friday Briefing: Israel Bombards Hezbollah**\
+`Plus, French drag is here to stay.`\
+https://nytimes.com/2024/09/19/briefing/israel-lebanon-hezbollah-us-polls-ukraine.html
+
+**Texas City Opens Criminal Inquiry Into Crash That Caused Pipeline Fire**\
+`A vehicle crashed into a gas pipeline valve near Houston, exploding into a tower of flame that has burned for days. Investigators are now looking into whether it was more than an accident.`\
+https://nytimes.com/2024/09/19/us/houston-pipeline-fire-human-remains.html
+
 **Maple Leafs could reap the rewards of William Nylander’s move to centre — if he can do it**\
 `Nylander is more valuable to Toronto playing the more essential, demanding position of centre than wing.
 `\
