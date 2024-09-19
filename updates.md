@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylander/
 
+**Maple Leafs could reap the rewards of William Nylander’s move to centre — if he can do it**\
+`Nylander is more valuable to Toronto playing the more essential, demanding position of centre than wing.
+`\
+https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylander/
+
 **Blackhawks observations: Veterans, Bedard linemates, Taylor Hall**\
 `The Blackhawks opened camp Thursday, bringing a much more serious approach to their preparation.`\
 https://nytimes.com/athletic/5779953/2024/09/19/blackhawks-training-camp-news/
