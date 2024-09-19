@@ -27,7 +27,7 @@ https://nytimes.com/2024/09/19/nyregion/ny-migrants-philanthropies.html
 https://nytimes.com/athletic/5778545/2024/09/19/kevin-de-bruyne-manchester-city-injury/
 
 **Brighton 3-2 Wolves: Sa's struggles, what next for Hwang and Sarabia?**\
-`Their Premier League season has not started well and now Wolves are out of the EFL Cup after a 3-2 defeat at Brighton`\
+`Their Premier League season has not started well and now Wolves are also out of the Carabao Cup after a 3-2 away loss against Brighton`\
 https://nytimes.com/athletic/5778116/2024/09/19/wolves-briefing-brighton-league-cup/
 
 **Brighton 3 Wolves 2: Unbeaten run continues, Adingra makes his case and fifth-choice Lamptey**\
