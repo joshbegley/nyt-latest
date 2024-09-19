@@ -1,3 +1,7 @@
+**Legal Watchdog Group Warns Pro-Trump Lawyers Against Subverting Democracy in November**\
+`New ads running in legal journals are warning lawyers: “Don’t lose your law license because of Trump.”`\
+https://nytimes.com/2024/09/19/us/politics/trump-lawyers-election-results.html
+
 **Ukraine Wants Long-Range Weapons. Here’s a Look at What They Are.**\
 `Much of the public discourse about arming Ukraine has revolved around whether the United States will send “long range” weapons. But that can mean different things.`\
 https://nytimes.com/2024/09/19/us/politics/ukraine-long-range-weapons.html
