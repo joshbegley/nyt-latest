@@ -1,3 +1,7 @@
+**The Angry Old Play and the Nice Young Man**\
+`Atri Banerjee has channeled his own experiences into a new production of John Osborne’s groundbreaking 1956 work “Look Back in Anger.”`\
+https://nytimes.com/2024/09/19/theater/atri-banerjee-look-back-in-anger.html
+
 **Julio ​​Rodríguez's big mistake helped Yankees clinch a playoff spot: 'Kind of a freak thing'**\
 `The Yankees seemed to celebrate extra hard since many of them were on last year’s team that missed the playoffs.`\
 https://nytimes.com/athletic/5778555/2024/09/19/yankees-clinch-playoff-spot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5778116/2024/09/19/wolves-briefing-brighton-league-
 **Brighton 3 Wolves 2: Unbeaten run continues, Adingra makes his case and fifth-choice Lamptey**\
 `Brighton are yet to lose in six games under new head coach Fabian Hurzeler and are now into the last 16 of the Carabao Cup`\
 https://nytimes.com/athletic/5776713/2024/09/19/brighton-wolves-adingra-lamptey/
-
-**Inside Arteta's managerial mindset - Pictionary, pickpockets and 'collaboretition'**\
-`Arteta leaves no stone unturned when it comes to preparation, both on and off the pitch - as one of his former right-hand men explains`\
-https://nytimes.com/athletic/5766723/2024/09/19/arteta-arsenalmethodology-balvers/
 
