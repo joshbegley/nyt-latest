@@ -1,3 +1,11 @@
+**10-Minute Challenge: ‘Canopy’**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2024/09/19/upshot/ten-minute-challenge-canopy.html
+
+**John Clements, Whose Research Saved Thousands of Babies, Dies at 101**\
+`He identified the cause of a respiratory condition that once killed 10,000 infants annually in the United States and helped design a drug that drastically reduced mortality rates.`\
+https://nytimes.com/2024/09/19/science/dr-john-a-clements-dead.html
+
 **John Clements, Whose Research Saved Thousands of Babies, Dies at 101**\
 `He identified the cause of a respiratory condition behind 10,000 infant deaths a year and helped design a drug to drastically reduce mortality rates.`\
 https://nytimes.com/2024/09/19/science/dr-john-a-clements-dead.html
