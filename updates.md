@@ -1,3 +1,19 @@
+**Cross-Tabs: September 2024 Inquirer/Times/Siena Poll of the Pennsylvania Likely Electorate**\
+`Results of a Philadelphia Inquirer/New York Times/Siena College poll of 1,082 likely voters in Pennsylvania, including a poll of 408 voters in Philadelphia, conducted from Sept. 11 to 16, 2024.`\
+https://nytimes.com/interactive/2024/09/19/us/politics/times-siena-inquirer-poll-pennsylvania-likely-electorate.html
+
+**Cross-Tabs: September 2024 Times/Siena Poll of the Likely Electorate**\
+`Results of a nationwide New York Times/Siena College poll of 2,437 likely voters, including a poll of 1,082 voters in Pennsylvania and Philadelphia, conducted from Sept. 11 to 16, 2024.`\
+https://nytimes.com/interactive/2024/09/19/us/elections/times-siena-poll-likely-electorate-crosstabs.html
+
+**Toplines: September 2024 Inquirer/Times/Siena Poll of Pennsylvania Registered Voters**\
+`Results of a Philadelphia Inquirer/New York Times/Siena College poll of 1,082 registered voters in Pennsylvania, including a poll of 408 voters in Philadelphia, conducted from Sept. 11 to 16, 2024.`\
+https://nytimes.com/interactive/2024/09/19/us/politics/times-siena-inquirer-poll-pennsylvania-toplines.html
+
+**Toplines: September 2024 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll of 2,437 registered voters, including a poll of 1,082 voters in Pennsylvania and Philadelphia, conducted from Sept. 11 to 16, 2024.`\
+https://nytimes.com/interactive/2024/09/19/us/elections/times-siena-poll-toplines.html
+
 **The Angry Old Play and the Nice Young Man**\
 `Atri Banerjee has channeled his own experiences into a new production of John Osborne’s groundbreaking 1956 work “Look Back in Anger.”`\
 https://nytimes.com/2024/09/19/theater/atri-banerjee-look-back-in-anger.html
