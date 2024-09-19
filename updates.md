@@ -1,3 +1,7 @@
+**What we saw and learned on Day 1 of Jets training camp**\
+`Covering Scott Arniel's line combinations, Cole Perfetti's absence, key roster battles and more.`\
+https://nytimes.com/athletic/5780484/2024/09/19/winnipeg-jets-training-camp-2024-day-1/
+
 **Cris Collinsworth to remain with NBC through rest of decade**\
 `Collinsworth currently makes around $12.5 million a year, according to sources. The new contract is expected to be a four-year agreement.`\
 https://nytimes.com/athletic/5780971/2024/09/19/cris-collinsworth-contract-extension-nbc-snf/

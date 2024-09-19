@@ -1,3 +1,7 @@
+**What we saw and learned on Day 1 of Jets training camp**\
+`Covering Scott Arniel's line combinations, Cole Perfetti's absence, key roster battles and more.`\
+https://nytimes.com/athletic/5780484/2024/09/19/winnipeg-jets-training-camp-2024-day-1/
+
 **Cris Collinsworth to remain with NBC through rest of decade**\
 `Collinsworth currently makes around $12.5 million a year, according to sources. The new contract is expected to be a four-year agreement.`\
 https://nytimes.com/athletic/5780971/2024/09/19/cris-collinsworth-contract-extension-nbc-snf/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5780796/2024/09/19/cleveland-guardians-postseason-c
 **Quote of the Day: California Mountain Town Residents Defy Risks**\
 `Quotation of the Day for Thursday, September 19, 2024`\
 https://nytimes.com/2024/09/19/pageoneplus/quote-of-the-day-california-mountain-town-residents-defy-risks.html
-
-**Giants officially eliminated from the postseason in walk-off loss at Baltimore**\
-`It was a foregone conclusion for weeks, but the Giants officially saw their postseason chances reach zero in another heartbreaking loss.`\
-https://nytimes.com/athletic/5780757/2024/09/19/sf-giants-postseason-elimination/
 
