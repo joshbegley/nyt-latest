@@ -1,3 +1,7 @@
+**From a Long Island Rally, Trump Lobs Exaggerated Attacks at New York City**\
+`Donald Trump told a raucous crowd that he would soon visit Springfield, Ohio, and Aurora, Colo., two cities that are focal points of his exaggerated claims about migrants in America.`\
+https://nytimes.com/2024/09/18/us/politics/trump-long-island-rally.html
+
 **Party Animal**\
 `Josh Goodman has some good advice for us.`\
 https://nytimes.com/2024/09/18/crosswords/daily-puzzle-2024-09-19.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/world/middleeast/israel-exploding-pagers-hezbolla
 **U.N. Body Demands Israel End Its ‘Unlawful Presence in the Occupied Palestinian Territory’**\
 `Nearly two-thirds of the U.N. General Assembly voted in favor of a nonbinding resolution calling for Israel to end its occupation within a year. The United States was among the opposition.`\
 https://nytimes.com/2024/09/18/world/middleeast/un-israel-occupation-palestinian.html
-
-**It’s the Economic Vibe, Stupid**\
-`Polling shows voters feel persistently sour about the economy, a confounding dynamic for Democrats.`\
-https://nytimes.com/2024/09/18/us/politics/fed-economy-harris-trump.html
 
