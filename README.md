@@ -1,3 +1,7 @@
+**We’re Adding Podcasts to Our Long-Running Weekly Film Club for Students**\
+`Our new, updated feature will showcase both audio and video journalism from The New York Times and invite student dialogue and reflection.`\
+https://nytimes.com/2024/09/19/learning/were-adding-podcasts-to-our-long-running-weekly-film-club-for-students.html
+
 **Teachers, How Do You Handle Teaching About Information Literacy?**\
 `What has worked? What has been difficult? We’d love to hear from educators at all levels and across subject areas.`\
 https://nytimes.com/2024/09/19/learning/teachers-how-do-you-handle-teaching-about-information-literacy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5775031/2024/09/19/raiders-robert-spillane-lineback
 **The 5 biggest questions and roster battles entering Canucks training camp**\
 `As the Canucks officially take the ice for the first time this season on Thursday morning, here are five storylines to watch.`\
 https://nytimes.com/athletic/5778140/2024/09/19/canucks-training-camp-questions-battles/
-
-**Ranking the most memorable jersey numbers in Oakland A's history**\
-`From No. 4 to No. 21, these are the most memorable, non-retired jersey numbers in Oakland A's franchise history.`\
-https://nytimes.com/athletic/5772326/2024/09/19/oakland-athletics-jersey-numbers-history/
 
