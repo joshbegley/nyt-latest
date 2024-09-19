@@ -1,9 +1,13 @@
+**OMG, Could the Mets Actually Pull This Off?**\
+`Mets fans have been here before, and they don’t want to jinx anything. But the mix of good vibes and mysterious voodoo — and the inexplicable presence of Grimace — is giving fans playoffs hope.`\
+https://nytimes.com/2024/09/19/nyregion/new-york-mets.html
+
 **Ukraine Says Russia Hit Nursing Home Near Border, Killing at Least 1**\
 `A dozen other people were injured, some seriously, in the attack in the city of Sumy, which has come under increased bombardment since Ukraine’s offensive into Russia’s nearby Kursk region.`\
 https://nytimes.com/2024/09/19/world/europe/ukraine-russia-nursing-home.html
 
 **Seider signs 7-year deal to stay with Red Wings: What it means**\
-`The Red Wings finally got a deal done with their franchise defenseman Thursday. What does it mean doe Detroit?`\
+`The Red Wings finally got a deal done with their franchise defenseman Thursday. What does it mean for Detroit?`\
 https://nytimes.com/athletic/5579280/2024/09/19/red-wings-moritz-seider-contract-extension/
 
 **Should You Refinance Your Mortgage After the Fed’s Interest Rate Cut?**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/17/opinion/thepoint/pennsylvania-early-vote-cou
 **What’s Going On in This Picture? | Sept. 23, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/09/19/learning/whats-going-on-in-this-picture-sept-23-2024.html
-
-**Jacob Trouba on summer trade rumors, excitement for likely 'last crack for this core'**\
-`Asked if his feelings were hurt seeing his name in trade rumors, the Rangers captain said “not even a little bit.”`\
-https://nytimes.com/athletic/5779847/2024/09/19/rangers-jacob-trouba-nhl-trade-rumors/
 
