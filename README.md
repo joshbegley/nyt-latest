@@ -1,3 +1,7 @@
+**Vegetarian Standouts From Our List of Cooking Favorites**\
+`Jollof rice, chile crisp fettuccine Alfredo, sheet-pan gnocchi and plenty more meatless marvels.`\
+https://nytimes.com/2024/09/19/dining/vegetarian-standouts-from-our-list-of-cooking-favorites.html
+
 **The Deadly Pager Attacks in Lebanon**\
 `Readers discuss the wave of attacks in Lebanon. Also: Donald Trump’s golf outing; the state of bridges in America; the importance of voting.`\
 https://nytimes.com/2024/09/19/opinion/pager-attacks-lebanon-israel.html
@@ -22,6 +26,10 @@ https://nytimes.com/2024/09/19/business/stock-market-federal-reserve.html
 `The two are meeting in a suburb of Detroit at a virtual event called “Unite for America,” which will featured members of some of the online groups that have coalesced around Ms. Harris.`\
 https://nytimes.com/2024/09/19/us/politics/kamala-harris-oprah-winfrey.html
 
+**Texas tabs Arch Manning to make first career start vs. Louisiana-Monroe**\
+`It will be the first career start for Manning, the former No. 1 recruit in the 2023 class.`\
+https://nytimes.com/athletic/5779454/2024/09/19/arch-manning-starting-texas-louisiana-monroe/
+
 **With Retirement from ESPN, ‘Woj’ Leaves a Changed Sports Media World**\
 `At ESPN, Adrian Wojnarowski leveraged social media to get the news out quicker. That skill made him rich and famous. He will manage the basketball team at St. Bonaventure University.`\
 https://nytimes.com/2024/09/19/sports/basketball/adrian-wojnarowski-retires-espn.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/sports/basketball/adrian-wojnarowski-retires-espn
 **Have Fun, Readers: Send Us Lyrical and Poetic Letters**\
 `We invite you to get creative with your letter writing.`\
 https://nytimes.com/2024/09/19/opinion/letters/reader-callout-lyrical-letters.html
-
-**F1 drivers weigh in on FIA push to limit radio swearing: ‘What are we? Five year olds?’**\
-`The FIA wants F1 drivers to watch their language on and off the track.`\
-https://nytimes.com/athletic/5778851/2024/09/19/f1-swearing-yuki-tsunoda-max-verstappen/
-
-**‘The Rings of Power’ Season 2, Episode 6 Recap: Go Fish**\
-`Miriel tests the waters. Sauron tests everyone’s sanity.`\
-https://nytimes.com/2024/09/19/arts/television/the-rings-of-power-season-2-episode-6-recap-go-fish.html
 

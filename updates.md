@@ -1,3 +1,7 @@
+**Fantasy football rankings Week 3: Sleepers, projections, starts, sits**\
+`Jake Ciely offers up his Week 3 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
+https://nytimes.com/athletic/5775030/2024/09/19/fantasy-football-rankings-week-3-sleepers-projections-starts/
+
 **The Deadly Pager Attacks in Lebanon**\
 `Readers discuss the wave of attacks in Lebanon. Also: Donald Trump’s golf outing; the state of bridges in America; the importance of voting.`\
 https://nytimes.com/2024/09/19/opinion/pager-attacks-lebanon-israel.html
