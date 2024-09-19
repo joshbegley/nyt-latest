@@ -26,7 +26,7 @@ https://nytimes.com/2024/09/19/nyregion/ny-migrants-philanthropies.html
 `Kevin De Bruyne is to be assessed for Manchester City&#8217;s crucial Premier League clash against Arsenal after picking up an injury in their goalless Champions League draw with Inter Milan.`\
 https://nytimes.com/athletic/5778545/2024/09/19/kevin-de-bruyne-manchester-city-injury/
 
-**Wolves briefing: Sa's struggles, what next for Hwang and Sarabia?**\
+**Brighton 3-2 Wolves: Sa's struggles, what next for Hwang and Sarabia?**\
 `Their Premier League season has not started well and now Wolves are out of the EFL Cup after a 3-2 defeat at Brighton`\
 https://nytimes.com/athletic/5778116/2024/09/19/wolves-briefing-brighton-league-cup/
 
