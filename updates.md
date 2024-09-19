@@ -1,3 +1,7 @@
+**Iranian Hackers Sought to Pass Off Pilfered Information to Biden Campaign**\
+`The emails were part of a sweeping effort by Iran to steal and disseminate sensitive internal communications between aides working for former President Donald J. Trump.`\
+https://nytimes.com/2024/09/18/us/politics/iran-hacking-trump-biden.html
+
 **‘Beast Games’ Contestants File Lawsuit Claiming ‘Dangerous Conditions’ on Set**\
 `A group of people who participated in the reality competition show this summer are suing MrBeast’s production company.`\
 https://nytimes.com/2024/09/18/style/mrbeast-reality-show-lawsuit.html
