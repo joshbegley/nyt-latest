@@ -1,3 +1,11 @@
+**Raya credits Arsenal goalkeeper coach Cana after Atalanta double-save**\
+`David Raya credited Arsenal&#8217;s goalkeeper coach Inaki Cana after his double-save preserved a clean sheet during Thursday&#8217;s Champions League draw against Atalanta.`\
+https://nytimes.com/athletic/5780575/2024/09/19/david-raya-penalty-save-champions-league/
+
+**Walkie-Talkie and Pager Attacks Set Off a Legal Debate**\
+`Experts are at odds over the question of whether it violates the laws of war to hide explosives in wireless devices that may go off near civilians.`\
+https://nytimes.com/2024/09/19/world/middleeast/pagers-hezbollah-israel-attacks.html
+
 **Criminal Investigation Launched Into Texas Pipeline Fire**\
 `A car crashed into a Deer Park pipeline on Monday, causing an explosion that continued to burn days later.`\
 https://nytimes.com/video/us/100000009706780/texas-pipeline-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5780111/2024/09/19/manchester-united-under-21s-salf
 **How North Carolina Republicans Could Replace Their Governor Nominee**\
 `The deadline for a candidate to withdraw is midnight tonight, but Lt. Gov. Mark Robinson has vowed to stay in the race.`\
 https://nytimes.com/2024/09/19/us/politics/replace-governor-nominee-north-carolina.html
-
-**The Sean ‘Diddy’ Combs Charges, Explained**\
-`Our reporter on the federal case against the hip-hop mogul.`\
-https://nytimes.com/2024/09/19/podcasts/the-sean-diddy-combs-charges-explained.html
-
-**The Briefing: Monaco 2 Barcelona 1 - A comedy of errors, Yamal stars in front of Jordan, unlucky Pedri**\
-`In an eventful game at Stade Louis II, there were errors, a red card and goals. Here we break down the action`\
-https://nytimes.com/athletic/5773839/2024/09/19/monaco-barcelona-yamal-champions-league/
 

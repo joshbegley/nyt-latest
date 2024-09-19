@@ -1,3 +1,7 @@
+**Criminal Investigation Launched Into Texas Pipeline Fire**\
+`A car crashed into a Deer Park pipeline on Monday, causing an explosion that continued to burn days later.`\
+https://nytimes.com/video/us/100000009706780/texas-pipeline-fire.html
+
 **With 50th steal, Shohei Ohtani now just 2 homers away from 50-50 season**\
 `Ohtani's base running has improved in the years since his MLB debut and his abilities have been on full display this year.`\
 https://nytimes.com/athletic/5780469/2024/09/19/shohei-ohtani-50th-steal-dodgers/
