@@ -1,3 +1,7 @@
+**Inside Arteta's managerial mindset - Pictionary, pickpockets and 'collaboretition'**\
+`Arteta leaves no stone unturned when it comes to preparation, both on and off the pitch - as one of his former right-hand men explains`\
+https://nytimes.com/athletic/5766723/2024/09/19/arteta-arsenalmethodology-balvers/
+
 **Why has Guardiola started making double substitutions at half-time?**\
 `Man City manager Guardiola is sometimes criticised for a reluctance to make changes but has altered his approach in the past two games`\
 https://nytimes.com/athletic/5777868/2024/09/19/pep-guardiola-half-time-substitutions/
