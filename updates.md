@@ -1,3 +1,24 @@
+**Man Utd Under-21s to play selection of games at Salford's Peninsula Stadium**\
+`Manchester United&#8217;s under-21s are set to play a handful of games at Salford City&#8217;s Peninsula Stadium this season to ease the load on Leigh Sports Village, the team&#8217;s usual home venue.`\
+https://nytimes.com/athletic/5780111/2024/09/19/manchester-united-under-21s-salford/
+
+**How North Carolina Republicans Could Replace Their Governor Nominee**\
+`The deadline for a candidate to withdraw is midnight tonight, but Lt. Gov. Mark Robinson has vowed to stay in the race.`\
+https://nytimes.com/2024/09/19/us/politics/replace-governor-nominee-north-carolina.html
+
+**The Sean ‘Diddy’ Combs Charges, Explained**\
+`Our reporter on the federal case against the hip-hop mogul.`\
+https://nytimes.com/2024/09/19/podcasts/the-sean-diddy-combs-charges-explained.html
+
+**The Briefing: Atalanta 0 Arsenal 0 - Raya's brilliance, Odegaard missed and is Serie A posing a threat?**\
+`Analysis of Arsenal's goalless Champions League opener in Italy at Atalanta - a point that may please both sides`\
+https://nytimes.com/athletic/5773783/2024/09/19/atalanta-arsenal-raya-champions-league/
+
+**Maple Leafs could reap the rewards of William Nylander’s move to centre — if he can do it**\
+`Nylander is more valuable to Toronto playing the more essential, demanding position of centre than wing.
+`\
+https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylander/
+
 **Maple Leafs could reap the rewards of William Nylander’s move to centre — if he can do it**\
 `Nylander is more valuable to Toronto playing the more essential, demanding position of centre than wing.
 `\
