@@ -1,3 +1,7 @@
+**‘Agatha All Along’ Review: Toil and Trouble**\
+`Marvel’s “WandaVision” spinoff has more witchcraft but less magic.`\
+https://nytimes.com/2024/09/18/arts/television/agatha-all-along-review.html
+
 **Police Officials Defend Subway Shooting That Gravely Wounded Bystander**\
 `“We are not perfect,” said John Chell, the Police Department’s chief of patrol, as protesters gathered in Union Square.`\
 https://nytimes.com/2024/09/18/nyregion/nypd-shooting-brooklyn-subway.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/us/politics/fed-economy-harris-trump.html
 **Trump’s Bogus Claims About Haitians Are Part of a Bigger Agenda**\
 `The Springfield fable is part of a crusade to throw immigrants out of the country.`\
 https://nytimes.com/2024/09/18/opinion/trump-haitians-immigration-springfield.html
-
-**I Just Went to Darfur. Here Is What Shattered Me.**\
-`“So many men were killed, like grains of sand,” says one survivor.`\
-https://nytimes.com/2024/09/18/opinion/darfur-sudan-famine.html
 
