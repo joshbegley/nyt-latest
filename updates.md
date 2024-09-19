@@ -1,3 +1,15 @@
+**Top Georgia Republican’s Texts Highlight the Party’s Deep Divide on Trump**\
+`Messages sent by Lt. Gov. Burt Jones of Georgia, a Trump ally, show the state party’s leadership fracturing in real time after the 2020 election.`\
+https://nytimes.com/2024/09/19/us/georgia-burt-jones-texts-trump.html
+
+**North Carolina’s Mark Robinson has a long history of offensive remarks.**\
+`On social media and the campaign trail, the Republican candidate for governor has made inflammatory comments about abortion and condemned members of the L.G.B.T.Q. community.`\
+https://nytimes.com/live/2024/09/19/us/trump-harris-election/robinson-north-carolina
+
+**Springfield, Ohio, Braces for a Possible Trump Visit, Though Details Are Scarce**\
+`Donald Trump promised to visit the city “in the next two weeks.” Some residents welcomed a visit, but others were opposed, as officials said preparations were underway.`\
+https://nytimes.com/2024/09/19/us/politics/trump-springfield-ohio.html
+
 **Israel Bombards Hezbollah as Group’s Leader Vows Retaliation**\
 `The Hezbollah leader, Hassan Nasrallah, did not say how his group would respond to attacks on hand-held devices, which killed dozens when pagers and walkie-talkies exploded.`\
 https://nytimes.com/2024/09/19/world/middleeast/israel-bombards-hezbollah-as-groups-leader-vows-retaliation.html
