@@ -1,3 +1,11 @@
+**Ukraine Wants Long-Range Weapons. Here’s a Look at What They Are.**\
+`Much of the public discourse about arming Ukraine has revolved around whether the United States will send “long range” weapons. But that can mean different things.`\
+https://nytimes.com/2024/09/19/us/politics/ukraine-long-range-weapons.html
+
+**Trumponomics: From Trickle-Down to Upside-Down**\
+`Voodoo economics at least had a flawed theory behind it; Trump’s brand is based on some kind of brain glitch.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/krugman-trump-economics-voodoo
+
 **Pete Buttigieg Plays Vance in Walz’s Debate Prep**\
 `The transportation secretary, who acted as Mike Pence during Kamala Harris’s preparations for the 2020 vice-presidential debate, is again helping out as Tim Walz gets ready for his Oct. 1 clash.`\
 https://nytimes.com/2024/09/19/us/politics/pete-buttigieg-jd-vance-walz-debate-prep.html
