@@ -1,3 +1,7 @@
+**No dressing this up: Slumping Twins fall short yet again, drop into tie with Tigers**\
+`Just like that, what on Aug. 17 was a 10 1/2-game advantage over Detroit had vanished into thin air.`\
+https://nytimes.com/athletic/5780808/2024/09/19/twins-slump-tigers-wild-card-playoffs/
+
 **New super PAC pitches Trump to users of Zyn nicotine pouches and sports gamblers.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election/new-super-pac-pitches-trump-to-users-of-zyn-nicotine-pouches-and-sports-gamblers

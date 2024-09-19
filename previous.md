@@ -1,3 +1,7 @@
+**No dressing this up: Slumping Twins fall short yet again, drop into tie with Tigers**\
+`Just like that, what on Aug. 17 was a 10 1/2-game advantage over Detroit had vanished into thin air.`\
+https://nytimes.com/athletic/5780808/2024/09/19/twins-slump-tigers-wild-card-playoffs/
+
 **New super PAC pitches Trump to users of Zyn nicotine pouches and sports gamblers.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election/new-super-pac-pitches-trump-to-users-of-zyn-nicotine-pouches-and-sports-gamblers
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5780813/2024/09/19/dodgers-mlb-ohtani-50-50/
 **What Teenagers Are Saying About Parents Paying Their Children to Read**\
 `Can bribes instill a lifelong love of reading? Teens weigh in on a recent guest essay.`\
 https://nytimes.com/2024/09/19/learning/what-teenagers-are-saying-about-parents-paying-their-children-to-read.html
-
-**Goon Squad Violence Leads to Federal Investigation of Mississippi Sheriff’s Office**\
-`The Justice Department will determine if allegations of widespread violence and improper searches amount to a pattern  of discrimination in the department.`\
-https://nytimes.com/2024/09/19/us/goon-squad-mississippi-sheriffs-office.html
 
