@@ -1,3 +1,19 @@
+**Pete Buttigieg Plays Vance in Walz’s Debate Prep**\
+`The transportation secretary, who acted as Mike Pence during Kamala Harris’s preparations for the 2020 vice-presidential debate, is again helping out as Tim Walz gets ready for his Oct. 1 clash.`\
+https://nytimes.com/2024/09/19/us/politics/pete-buttigieg-jd-vance-walz-debate-prep.html
+
+**Branthwaite nearing return from injury - Dyche**\
+`Everton manager Sean Dyche is hopeful of a double injury boost with Jarrad Branthwaite and Nathan Patterson close to making their returns to full fitness, but resources remain very stretched ahead of this weekend&#8217;s trip to Leicester City.`\
+https://nytimes.com/athletic/5779044/2024/09/19/jarrad-branthwaite-everton-injury-sean-dyche/
+
+**Legal Watchdog Group Warns Pro-Trump Lawyers Against Subverting Democracy in November**\
+`New ads running in legal journals are warning lawyers: “Don’t lose your law license because of Trump.”`\
+https://nytimes.com/2024/09/19/us/politics/legal-watchdog-group-warns-pro-trump-lawyers-against-subverting-democracy-in-november.html
+
+**Five big questions the Kings must answer as training camp opens**\
+`Can the Kings chart a different ending this season? These are the questions that will help determine their success.`\
+https://nytimes.com/athletic/5778560/2024/09/19/la-kings-camp-preseason/
+
 **The Author of ‘Impossible Creatures’ Tucks Big Ideas in Tales of Wonder**\
 `Katherine Rundell said children can handle hefty themes, but finds it “bad manners to offer a child a story and give them just a moral.”`\
 https://nytimes.com/2024/09/19/books/katherine-rundell-impossible-creatures.html
