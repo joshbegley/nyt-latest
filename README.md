@@ -1,3 +1,11 @@
+**What’s Going On in This Graph? | Sept. 25, 2024**\
+`How have Las Vegas’s daily high summer temperatures and overnight low summer temperatures changed since 1950?`\
+https://nytimes.com/2024/09/19/learning/whats-going-on-in-this-graph-sept-25-2024.html
+
+**Why JD Vance Dropped Into My Inbox**\
+`I used to think I knew him. History has proved me wrong.`\
+https://nytimes.com/2024/09/19/opinion/jd-vance-hillbilly-elegy.html
+
 **OMG, Could the Mets Actually Pull This Off?**\
 `Mets fans have been here before, and they don’t want to jinx anything. But the mix of good vibes and mysterious voodoo — and the inexplicable presence of Grimace — is giving fans playoffs hope.`\
 https://nytimes.com/2024/09/19/nyregion/new-york-mets.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/arts/design/frick-collection-director-axel-ruger-
 **Prehistoric Earth Was Very Hot. That Offers Clues About Future Earth.**\
 `At times during the past half-billion years, carbon dioxide warmed our planet more than previously thought, according to a new reconstruction of Earth’s deep past.`\
 https://nytimes.com/2024/09/19/climate/prehistoric-earth-temperatures.html
-
-**The Biggest Swing State Counts Its Votes in the Worst Way**\
-`Only Republican partisanship is preventing Pennsylvania from counting its early votes first.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/pennsylvania-early-vote-counting
-
-**What’s Going On in This Picture? | Sept. 23, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/09/19/learning/whats-going-on-in-this-picture-sept-23-2024.html
 
