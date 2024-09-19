@@ -1,3 +1,15 @@
+**Have Fun, Readers: Send Us Lyrical and Poetic Letters**\
+`We invite you to get creative with your letter writing.`\
+https://nytimes.com/2024/09/19/opinion/letters/have-fun-readers-send-us-lyrical-and-poetic-letters.html
+
+**F1 drivers weigh in on FIA push to limit radio swearing: ‘What are we? Five year olds?’**\
+`The FIA wants F1 drivers to watch their language on and off the track.`\
+https://nytimes.com/athletic/5778851/2024/09/19/f1-swearing-yuki-tsunoda-max-verstappen/
+
+**‘The Rings of Power’ Season 2, Episode 6 Recap: Go Fish**\
+`Miriel tests the waters. Sauron tests everyone’s sanity.`\
+https://nytimes.com/2024/09/19/arts/television/the-rings-of-power-season-2-episode-6-recap-go-fish.html
+
 **30-Year Mortgage Rate Drops to 6.09% After Fed Rate Cut**\
 `The decline in mortgage costs, influenced by expectations of the Federal Reserve’s rate moves, could revive interest in buying, selling and remortgaging, economists said.`\
 https://nytimes.com/2024/09/19/business/mortgage-rates-fed-rate-cut.html
