@@ -1,3 +1,7 @@
+**Scoop City: Bills, Texans the No. 1 contender?**\
+`A look at the new No. 1 contender to the Chiefs throne, plus an update on Jordan Love and Jets-Patriots preview.`\
+https://nytimes.com/athletic/5779183/2024/09/19/scoop-city-bills-texans-the-no-1-contender/
+
 **Pager Attack Highlights Tension Between Israel’s Technical Might and Strategic Fog**\
 `In Gaza, Lebanon and Iran, Israel has shown it’s capable of extraordinary acts of espionage, but is struggling to define long-term goals, according to Israeli analysts and public figures.`\
 https://nytimes.com/2024/09/19/world/middleeast/israel-hezbollah-lebanon-hamas-gaza.html

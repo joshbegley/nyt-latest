@@ -1,3 +1,7 @@
+**Scoop City: Bills, Texans the No. 1 contender?**\
+`A look at the new No. 1 contender to the Chiefs throne, plus an update on Jordan Love and Jets-Patriots preview.`\
+https://nytimes.com/athletic/5779183/2024/09/19/scoop-city-bills-texans-the-no-1-contender/
+
 **Pager Attack Highlights Tension Between Israel’s Technical Might and Strategic Fog**\
 `In Gaza, Lebanon and Iran, Israel has shown it’s capable of extraordinary acts of espionage, but is struggling to define long-term goals, according to Israeli analysts and public figures.`\
 https://nytimes.com/2024/09/19/world/middleeast/israel-hezbollah-lebanon-hamas-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5778847/2024/09/19/usc-big-ten-realignment-impact-f
 **Mohamed al-Fayed, Former Harrods Owner, Accused of Raping 5 Women**\
 `Multiple former employees told the BBC they had been raped or sexually assaulted by the billionaire businessman, who died last year.`\
 https://nytimes.com/2024/09/19/world/europe/mohamed-al-fayed-harrods-rape.html
-
-**Five of the most important questions facing the Canadiens in training camp**\
-`The Canadiens have far more than five questions facing them this training camp, but these are the five most important.`\
-https://nytimes.com/athletic/5778522/2024/09/19/canadiens-training-camp-storylines/
 
