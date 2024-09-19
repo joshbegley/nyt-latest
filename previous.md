@@ -1,3 +1,15 @@
+**Should You Refinance Your Mortgage After the Fed’s Interest Rate Cut?**\
+`People who bought homes in the past two years may want to seek a lower interest rate. Here’s how to think it through — and how to shop.`\
+https://nytimes.com/2024/09/19/business/mortgage-rates-refinance-fed-rate-cut.html
+
+**Mark Podwal, Prolific Artist of Jewish Themes, Dies at 79**\
+`His art included cartoons for The New York Times, collaborations with Elie Wiesel and images that traced the history of antisemitism. He was also a dermatologist.`\
+https://nytimes.com/2024/09/19/arts/mark-podwal-dead.html
+
+**Venezuela’s Opposition Leader Says He Was Forced to Recognize Maduro**\
+`Edmundo González said the government made him sign a document recognizing President Nicolás Maduro as the election winner before he could flee to Spain.`\
+https://nytimes.com/2024/09/19/world/americas/venezuela-letter-edmundo-gonzalez.html
+
 **The Frick Collection Looks to London For Next Leader**\
 `Axel Rüger, the head of the Royal Academy of Arts, will replace Ian Wardropper next spring as the museum’s director.`\
 https://nytimes.com/2024/09/19/arts/design/frick-collection-director-axel-ruger-royal-academy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/19/arts/nintendo-pokemon-lawsuit-pocketpair-palworld
 **What’s the True Price of a School Lunch?**\
 `An emerging body of research aims to put dollar figures on the environmental costs of foods we eat everyday.`\
 https://nytimes.com/2024/09/19/climate/true-cost-accounting-food-prices.html
-
-**An Israeli man is charged with meeting with Iranian agents and discussing a plot to kill Netanyahu.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/an-israeli-man-is-charged-with-meeting-with-iranian-agents-and-discussing-a-plot-to-kill-netanyahu
-
-**Kyle Okposo, Stanley Cup champion, retiring after 17 seasons**\
-`Okposo, a former Sabres captain, ended his career on a high note last season when he won his first Cup as a member of the Panthers.`\
-https://nytimes.com/athletic/5779650/2024/09/19/kyle-okposo-retirement-sabres-panthers/
-
-**Interest Rates Fall, but Central Banks Are No Longer in Lock Step**\
-`Officials in some countries started cutting rates last year, but others, including those in Europe and the United States, have taken a more cautious approach.`\
-https://nytimes.com/2024/09/19/business/economy/central-bank-interest-rates.html
 
