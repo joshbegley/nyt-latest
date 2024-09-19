@@ -1,3 +1,11 @@
+**D'Onta Foreman has had his ups and downs in the NFL: 'You don't get to pick your path'**\
+`Foreman, now playing for his fifth NFL team, is grateful he's been able to fight through the tough times and prolong his career.`\
+https://nytimes.com/athletic/5777785/2024/09/19/donta-foreman-nfl-journey-browns/
+
+**Ravens can't afford their secondary to become primary concern: 'We're not consistent'**\
+`After two weeks, Baltimore's pass defense — which was expected to be one of the team's strengths — ranks last in the NFL in yards allowed.`\
+https://nytimes.com/athletic/5777635/2024/09/19/ravens-defense-secondary-concerns/
+
 **Hansi Flick has supercharged Barcelona with intensity and intelligence**\
 `The season is still at an early stage, but the German's new reign has shown many promising signs`\
 https://nytimes.com/athletic/5776601/2024/09/19/hansi-flick-has-changed-barcelona/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/upshot/harris-trump-poll-pennsylvania.html
 **After Fed Cuts Rates, Biden Will Claim Credit for Economy’s Strength**\
 `The president’s speech on Thursday won’t be a “victory lap,” officials said, but it will celebrate falling inflation and borrowing costs along with solid growth.`\
 https://nytimes.com/2024/09/19/us/politics/fed-rate-cuts-biden.html
-
-**Who Do Voters Really Like? Taylor Swift.**\
-`The pop star Taylor Swift has endorsed Vice President Kamala Harris — and is far more popular among Democrats and independents than Republicans.`\
-https://nytimes.com/2024/09/19/us/elections/taylor-swift-trump-harris-poll.html
-
-**Sneakers That Channel Venetian Textiles**\
-`Plus: a new boutique hotel in Miami, Mary Corse’s paintings and more recommendations from T Magazine.`\
-https://nytimes.com/2024/09/19/t-magazine/sneakers-that-channel-venetian-textiles.html
 
