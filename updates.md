@@ -1,3 +1,11 @@
+**A clip from Arsenal's win over Spurs went viral. The only problem? It was faked**\
+`An animation involving the Arsenal cannon shooting the Spurs cockerel went viral on Sunday - it was not an official production`\
+https://nytimes.com/athletic/5773700/2024/09/19/arsenal-tottenham-premier-league-animation-viral/
+
+**Thursday's MLB best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
+https://nytimes.com/athletic/5777368/2024/09/19/mlb-odds-best-bets-projections-september-19/
+
 **Thursday Briefing: More Device Explosions in Lebanon**\
 `Plus the thrill of the Sichuan pepper.`\
 https://nytimes.com/2024/09/18/briefing/thursday-briefing-more-device-explosions-in-lebanon.html
