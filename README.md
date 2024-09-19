@@ -1,7 +1,3 @@
-**Top Georgia Republican’s Texts Highlight the Party’s Deep Divide on Trump**\
-`Messages sent by Lt. Gov. Burt Jones of Georgia, a Trump ally, show the state party’s leadership fracturing in real time after the 2020 election.`\
-https://nytimes.com/2024/09/19/us/georgia-burt-jones-texts-trump.html
-
 **North Carolina’s Mark Robinson has a long history of offensive remarks.**\
 `On social media and the campaign trail, the Republican candidate for governor has made inflammatory comments about abortion and condemned members of the L.G.B.T.Q. community.`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election/robinson-north-carolina
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/19/science/dr-john-a-clements-dead.html
 **How Oilers hope to find ideal defence partner for Darnell Nurse**\
 `Ty Emberson is the early leader to claim the spot on the Oilers' second pair next to Nurse.`\
 https://nytimes.com/athletic/5780519/2024/09/19/edmonton-oilers-darnell-nurse-ty-emberson/
+
+**After steps taken last season, John Tortorella warns Flyers not to get complacent**\
+`For Tortorella, the familiarity between players is only the foundation for being successful. `\
+https://nytimes.com/athletic/5780429/2024/09/19/flyers-training-camp-john-tortorella/
 
