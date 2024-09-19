@@ -1,3 +1,11 @@
+**Trump Media Stock Tumbles as Big Shareholders Are Soon Free to Sell**\
+`Donald J. Trump, the company’s largest shareholder, has said he won’t sell when a lockup agreement expires on Thursday. But other large investors could.`\
+https://nytimes.com/2024/09/19/business/trump-media-lockup-expires.html
+
+**Backlash Erupts Over Europe’s Anti-Deforestation Law**\
+`Leaders around the world are asking the European Union to delay rules that would require companies to police their global supply chains.`\
+https://nytimes.com/2024/09/19/business/european-union-deforestation.html
+
 **Crispy Gnocchi Is the Best Gnocchi**\
 `Especially when it’s tossed with spinach, feta and tons of herbs.`\
 https://nytimes.com/2024/09/19/dining/crispy-gnocchi-is-the-best-gnocchi.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5778420/2024/09/19/betting-picks-nfl-cfb-spread-usc
 **After an Olympic Backlash, France’s Drag Queens Are Here to Stay**\
 `Answering hatred with glitter is a time-honored drag tradition that France’s answer to “RuPaul’s Drag Race” is keeping alive in a new stage spectacle.`\
 https://nytimes.com/2024/09/19/theater/drag-race-france-live.html
-
-**Marks: A new proposal would quiet FSU, Clemson, but the ACC holds all the leverage**\
-`Clemson and FSU saying they’ll stay in the league only under their terms is the ultimate walk-back.`\
-https://nytimes.com/athletic/5779099/2024/09/19/acc-florida-state-clemson-settlement-proposal-lawsuit/
-
-**Vance Says He Will Keep Calling Haitians Legally in Springfield ‘Illegal’**\
-`The immigrants are mainly in the United States under temporary protected status, which the executive branch can grant to people whose home countries are in crisis.`\
-https://nytimes.com/2024/09/19/us/politics/vance-haitian-immigrants-illegal.html
 
