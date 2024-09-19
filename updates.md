@@ -1,3 +1,11 @@
+**Fantasy football rankings Week 3: Sleepers, projections, starts, sits**\
+`Jake Ciely offers up his Week 3 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
+https://nytimes.com/athletic/5775030/2024/09/19/fantasy-football-rankings-week-3-sleepers-projections-starts/
+
+**A New Era in Sabotage: Turning Ordinary Devices Into Grenades, on a Mass Scale**\
+`The attacks in Lebanon required getting deep into the supply chain, which is difficult to do. But the sabotage contributes to a sense of vulnerability that ordinary devices can become a source of danger.`\
+https://nytimes.com/2024/09/19/us/politics/israel-hezbollah-pager-attacks.html
+
 **Interest Rates Fall, but Central Banks Are No Longer in Lock Step**\
 `Officials in some countries started cutting rates last year, but others, including those in Europe and the United States, have taken a more cautious approach.`\
 https://nytimes.com/2024/09/19/business/economy/central-bank-interest-rates.html
