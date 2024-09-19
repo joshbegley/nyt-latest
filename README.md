@@ -1,4 +1,4 @@
-**How the Robinson Report Could Affect the Presidential Race**\
+**How the Robinson Report Could Affect the Presidential Race in the State**\
 `A Democratic presidential candidate has not won North Carolina since 2008. But the drama around Lt. Gov. Mark Robinson, the Republican nominee for governor, is sure to bolster their hopes.`\
 https://nytimes.com/2024/09/19/us/politics/mark-robinson-cnn-report-presidential-race.html
 
