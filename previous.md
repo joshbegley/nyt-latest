@@ -1,3 +1,15 @@
+**Vance Says He Will Keep Calling Haitians Legally in Springfield ‘Illegal’**\
+`The immigrants are mainly in the United States under temporary protected status, which the executive branch can grant to people whose home countries are in crisis.`\
+https://nytimes.com/2024/09/19/us/politics/vance-haitian-immigrants-illegal.html
+
+**History Teachers Are Replacing Textbooks With the Internet**\
+`A survey of social studies teachers found that many find primary sources online for lesson plans. But a notable minority also rely on left-leaning materials, and a handful have turned to conservative options.`\
+https://nytimes.com/2024/09/19/us/social-studies-curriculum.html
+
+**Giants' Daniel Jones failed to build on momentum in 2023. He can't let that happen this year**\
+`After leading a historic comeback against Arizona last season, Jones faltered against San Francisco in Week 3 and never recovered. `\
+https://nytimes.com/athletic/5777979/2024/09/19/daniel-jones-new-york-giants-browns-week-3/
+
 **Browns' Mike Hall Jr. pleads no contest to misdemeanor disorderly conduct**\
 `The defensive tackle was fined $250 and issued a suspended 30-day jail sentence and two years probation.`\
 https://nytimes.com/athletic/5779212/2024/09/19/browns-michael-hall-disorderly-conduct/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/19/us/politics/trump-lawyers-election-results.html
 **Five big questions the Kings must answer as training camp opens**\
 `Can the Kings chart a different ending this season? These are the questions that will help determine their success.`\
 https://nytimes.com/athletic/5778560/2024/09/19/la-kings-camp-preseason/
-
-**Scoop City: Bills, Texans the No. 1 contender?**\
-`A look at the new No. 1 contender to the Chiefs throne, plus an update on Jordan Love and Jets-Patriots preview.`\
-https://nytimes.com/athletic/5779183/2024/09/19/scoop-city-bills-texans-the-no-1-contender/
-
-**Pager Attack Highlights Tension Between Israel’s Technical Might and Strategic Fog**\
-`In Gaza, Lebanon and Iran, Israel has shown it’s capable of extraordinary acts of espionage, but is struggling to define long-term goals, according to Israeli analysts and public figures.`\
-https://nytimes.com/2024/09/19/world/middleeast/israel-hezbollah-lebanon-hamas-gaza.html
-
-**Chelsea defender Fox suffers ACL injury**\
-`Chelsea Women right-back Jorja Fox, on loan at Crystal Palace, is set for an extended period on the sidelines after sustaining an anterior cruciate ligament (ACL) injury.`\
-https://nytimes.com/athletic/5779119/2024/09/19/jorja-fox-chelsea-acl-injury/
 

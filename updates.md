@@ -1,3 +1,15 @@
+**Vance Says He Will Keep Calling Haitians Legally in Springfield ‘Illegal’**\
+`The immigrants are mainly in the United States under temporary protected status, which the executive branch can grant to people whose home countries are in crisis.`\
+https://nytimes.com/2024/09/19/us/politics/vance-haitian-immigrants-illegal.html
+
+**History Teachers Are Replacing Textbooks With the Internet**\
+`A survey of social studies teachers found that many find primary sources online for lesson plans. But a notable minority also rely on left-leaning materials, and a handful have turned to conservative options.`\
+https://nytimes.com/2024/09/19/us/social-studies-curriculum.html
+
+**Giants' Daniel Jones failed to build on momentum in 2023. He can't let that happen this year**\
+`After leading a historic comeback against Arizona last season, Jones faltered against San Francisco in Week 3 and never recovered. `\
+https://nytimes.com/athletic/5777979/2024/09/19/daniel-jones-new-york-giants-browns-week-3/
+
 **Browns' Mike Hall Jr. pleads no contest to misdemeanor disorderly conduct**\
 `The defensive tackle was fined $250 and issued a suspended 30-day jail sentence and two years probation.`\
 https://nytimes.com/athletic/5779212/2024/09/19/browns-michael-hall-disorderly-conduct/
