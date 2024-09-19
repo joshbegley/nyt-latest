@@ -1,3 +1,7 @@
+**For the Tigers, a sweet sweep of the Royals and the power of belief**\
+`With Wednesday’s 4-2 win over the Royals, the Tigers are a mere half game behind the Twins in the American League wild-card race.`\
+https://nytimes.com/athletic/5778433/2024/09/19/tigers-sweep-royals-sean-guenther/
+
 **Yankees clinch American League's first postseason spot**\
 `Judge has become the face of the franchise and could win his second MVP award.`\
 https://nytimes.com/athletic/5777252/2024/09/19/new-york-yankees-clinch-playoffs/

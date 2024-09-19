@@ -1,3 +1,7 @@
+**For the Tigers, a sweet sweep of the Royals and the power of belief**\
+`With Wednesday’s 4-2 win over the Royals, the Tigers are a mere half game behind the Twins in the American League wild-card race.`\
+https://nytimes.com/athletic/5778433/2024/09/19/tigers-sweep-royals-sean-guenther/
+
 **Yankees clinch American League's first postseason spot**\
 `Judge has become the face of the franchise and could win his second MVP award.`\
 https://nytimes.com/athletic/5777252/2024/09/19/new-york-yankees-clinch-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5760730/2024/09/19/maddy-cusack-family-one-year/
 **Atletico Madrid have spent €200m - but are they really a Champions League threat?**\
 `Diego Simeone's side still suffer from the hurt of losing two finals to Real Madrid, but hope and expectations are on the rise`\
 https://nytimes.com/athletic/5776384/2024/09/19/atletico-madrid-champions-league-diego-simeone-la-liga/
-
-**A clip from Arsenal's win over Spurs went viral. The only problem? It was faked**\
-`An animation involving the Arsenal cannon shooting the Spurs cockerel went viral on Sunday - it was not an official production`\
-https://nytimes.com/athletic/5773700/2024/09/19/arsenal-tottenham-premier-league-animation-viral/
 
