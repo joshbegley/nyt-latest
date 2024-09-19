@@ -1,3 +1,7 @@
+**Twins' bullpen, lacking depth, melts down again in extra-innings loss to Guardians**\
+`The Twins find themselves in an undesirable location after a series of bullpen fiascoes.`\
+https://nytimes.com/athletic/5778472/2024/09/19/twins-lose-bullpen-depth-guardians/
+
 **For the Tigers, a sweet sweep of the Royals and the power of belief**\
 `With Wednesday’s 4-2 win over the Royals, the Tigers are a mere half game behind the Twins in the American League wild-card race.`\
 https://nytimes.com/athletic/5778433/2024/09/19/tigers-sweep-royals-sean-guenther/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774227/2024/09/19/fantasy-premier-league-selling-m
 **A year on from her death, let's talk about Maddy Cusack - and who she really was**\
 `Maddy Cusack was far more than just a footballer. She was a daughter, a sister, a friend, a force for good and, to many, an inspiration`\
 https://nytimes.com/athletic/5760730/2024/09/19/maddy-cusack-family-one-year/
-
-**Atletico Madrid have spent €200m - but are they really a Champions League threat?**\
-`Diego Simeone's side still suffer from the hurt of losing two finals to Real Madrid, but hope and expectations are on the rise`\
-https://nytimes.com/athletic/5776384/2024/09/19/atletico-madrid-champions-league-diego-simeone-la-liga/
 

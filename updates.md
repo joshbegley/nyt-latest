@@ -1,3 +1,7 @@
+**Twins' bullpen, lacking depth, melts down again in extra-innings loss to Guardians**\
+`The Twins find themselves in an undesirable location after a series of bullpen fiascoes.`\
+https://nytimes.com/athletic/5778472/2024/09/19/twins-lose-bullpen-depth-guardians/
+
 **For the Tigers, a sweet sweep of the Royals and the power of belief**\
 `With Wednesday’s 4-2 win over the Royals, the Tigers are a mere half game behind the Twins in the American League wild-card race.`\
 https://nytimes.com/athletic/5778433/2024/09/19/tigers-sweep-royals-sean-guenther/
