@@ -1,7 +1,3 @@
-**In War-Torn Ukraine, a Manicure Can Be Its Own Kind of Protest**\
-`A Times journalist reported on scores of Ukrainian women who find solace in salons.`\
-https://nytimes.com/2024/09/19/insider/in-war-torn-ukraine-a-manicure-can-be-its-own-kind-of-protest.html
-
 **10-Minute Challenge: ‘Canopy’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2024/09/19/upshot/ten-minute-challenge-canopy.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5780469/2024/09/19/shohei-ohtani-50th-steal-dodgers
 **Israel Bombards Lebanon After Hezbollah Vowed Retaliation**\
 `Plus, a record day for stocks.`\
 https://nytimes.com/2024/09/19/briefing/lebanon-israel-hezbollah-stocks-harris-trump-guantanamo.html
+
+**Red Wings training camp takeaways: Kane's return, big year for Berggren and more**\
+`The first day of Red Wings training camp featured some big news and a clear emphasis for 2024-25. `\
+https://nytimes.com/athletic/5779754/2024/09/19/red-wings-training-camp-seider-berggren-kane/
 
