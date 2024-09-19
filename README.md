@@ -1,3 +1,11 @@
+**Could this be a turning point for Ange Postecoglou's Tottenham?**\
+`Tottenham very nearly lost their League Cup tie at Coventry. They arguably deserved to lose it. Could their late victory spark a revival?`\
+https://nytimes.com/athletic/5771160/2024/09/19/tottenham-coventry-postecoglou/
+
+**Inter Milan are an anomaly among top European teams - they almost never dribble**\
+`Inter Milan are adept at counter-attacking and making direct breaks but they rarely do those things by taking opponents on one-vs-one`\
+https://nytimes.com/athletic/5777917/2024/09/19/inter-milan-manchester-city-dribbling/
+
 **Word of the Day: denigrate**\
 `This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/19/learning/word-of-the-day-denigrate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/business/icom-walkie-talkies-lebanon.html
 **Barnes, Gordon and Newcastle's left-wing dilemma**\
 `Two of Newcastle's most exciting attackers want to play in the same position, so what are Eddie Howe's options?`\
 https://nytimes.com/athletic/5775817/2024/09/19/barnes-gordon-newcastle-left-wing/
-
-**Leicester need to stop long-term trend of conceding first in bid to stay up**\
-`Leicester have struggled to avoid conceding first in games for a long time in the Premier League`\
-https://nytimes.com/athletic/5773632/2024/09/19/leicester-city-conceding-first-analysis/
-
-**Ten landmark Nottingham Forest goals (OK, 13 - we just couldn't cut any more)**\
-`Landmark goals are notable for more than beauty. These are some that changed the future for Forest`\
-https://nytimes.com/athletic/5774137/2024/09/19/nottingham-forest-landmark-goals/
 
