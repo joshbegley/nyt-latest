@@ -1,3 +1,11 @@
+**What’s Going On in This Graph? | Sept. 25, 2024**\
+`How have Las Vegas’s daily high summer temperatures and overnight low summer temperatures changed since 1950?`\
+https://nytimes.com/2024/09/19/learning/whats-going-on-in-this-graph-sept-25-2024.html
+
+**Why JD Vance Dropped Into My Inbox**\
+`I used to think I knew him. History has proved me wrong.`\
+https://nytimes.com/2024/09/19/opinion/jd-vance-hillbilly-elegy.html
+
 **OMG, Could the Mets Actually Pull This Off?**\
 `Mets fans have been here before, and they don’t want to jinx anything. But the mix of good vibes and mysterious voodoo — and the inexplicable presence of Grimace — is giving fans playoffs hope.`\
 https://nytimes.com/2024/09/19/nyregion/new-york-mets.html
