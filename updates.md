@@ -1,3 +1,11 @@
+**We Answer Your Very Specific Restaurant Questions**\
+`Pasta for carb loading, options for first dates, dinner before a concert at Madison Square Garden and more urgent needs.`\
+https://nytimes.com/2024/09/19/dining/we-answer-your-very-specific-restaurant-questions.html
+
+**Mark Robinson Called Himself a ‘black Nazi’ on a Porn Site, CNN Reports**\
+`Mr. Robinson, the Republican nominee for governor of North Carolina, vowed to stay in the race and sought to deny the report, which also said he had defended slavery in online posts years ago.`\
+https://nytimes.com/2024/09/19/us/politics/mark-robinson-north-carolina-gubernatorial-race.html
+
 **Until Saturday: Upset SEC pick, plus Week 4 viewing guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Week 4 is here, and that means upset picks and a viewers guide.`\
 https://nytimes.com/athletic/5778858/2024/09/19/arkansas-auburn-college-football-week-4-until-saturday/

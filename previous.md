@@ -1,3 +1,11 @@
+**We Answer Your Very Specific Restaurant Questions**\
+`Pasta for carb loading, options for first dates, dinner before a concert at Madison Square Garden and more urgent needs.`\
+https://nytimes.com/2024/09/19/dining/we-answer-your-very-specific-restaurant-questions.html
+
+**Mark Robinson Called Himself a ‘black Nazi’ on a Porn Site, CNN Reports**\
+`Mr. Robinson, the Republican nominee for governor of North Carolina, vowed to stay in the race and sought to deny the report, which also said he had defended slavery in online posts years ago.`\
+https://nytimes.com/2024/09/19/us/politics/mark-robinson-north-carolina-gubernatorial-race.html
+
 **Until Saturday: Upset SEC pick, plus Week 4 viewing guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Week 4 is here, and that means upset picks and a viewers guide.`\
 https://nytimes.com/athletic/5778858/2024/09/19/arkansas-auburn-college-football-week-4-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/opinion/federal-reserve-rate-cut-unemployment.htm
 **The Fed’s Big Rate Cut Wasn’t Political. It Was an Economic No-Brainer.**\
 `The cut was “jumbo.” The implications are bigger.`\
 https://nytimes.com/2024/09/19/opinion/interest-rates-federal-reserve.html
-
-**New York Philharmonic Players Reach Deal Raising Base Pay to $205,000**\
-`Under a new labor agreement, expected to be ratified Friday, the musicians will get a 30 percent raise over three years, making them among the highest paid in the country.`\
-https://nytimes.com/2024/09/19/arts/music/new-york-philharmonic-labor-deal.html
-
-**Need New York City Restaurant Advice? Send Us Your Questions.**\
-`Whether you’re looking for date night spots or birthday venues, the “Where to Eat: New York City” newsletter is here to help.`\
-https://nytimes.com/article/nyc-restaurant-questions.html
 
