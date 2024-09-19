@@ -1,3 +1,7 @@
+**Israel Bombards Lebanon After Hezbollah Vowed Retaliation**\
+`Plus, a record day for stocks.`\
+https://nytimes.com/2024/09/19/briefing/lebanon-israel-hezbollah-stocks-harris-trump-guantanamo.html
+
 **Red Wings training camp takeaways: Kane's return, big year for Berggren and more**\
 `The first day of Red Wings training camp featured some big news and a clear emphasis for 2024-25. `\
 https://nytimes.com/athletic/5779754/2024/09/19/red-wings-training-camp-seider-berggren-kane/
@@ -23,7 +27,7 @@ https://nytimes.com/2024/09/19/us/politics/replace-governor-nominee-north-caroli
 https://nytimes.com/2024/09/19/podcasts/the-sean-diddy-combs-charges-explained.html
 
 **Monaco 2 Barcelona 1 - A comedy of errors; Yamal stars in front of Jordan; unlucky Pedri**\
-`In an eventful game at Stade Louis II, there were errors, a red card and goals - here we break down the action.`\
+`In an eventful game at Stade Louis II, there were errors, a red card and goals. Here we break down the action`\
 https://nytimes.com/athletic/5773839/2024/09/19/monaco-barcelona-yamal-champions-league/
 
 **Anna Delvey Needs More Than a Bedazzled Ankle Monitor to Win**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/style/anna-delvey-dancing-with-the-stars.html
 **The Briefing: Atalanta 0 Arsenal 0 - Raya's brilliance, Odegaard missed and is Serie A posing a threat?**\
 `Analysis of Arsenal's goalless Champions League opener in Italy at Atalanta - a point that may please both sides`\
 https://nytimes.com/athletic/5773783/2024/09/19/atalanta-arsenal-raya-champions-league/
-
-**Blackhawks observations: Veterans, Bedard linemates, Taylor Hall**\
-`The Blackhawks opened camp Thursday, bringing a much more serious approach to their preparation.`\
-https://nytimes.com/athletic/5779953/2024/09/19/blackhawks-training-camp-news/
 

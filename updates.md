@@ -1,3 +1,7 @@
+**Red Wings training camp takeaways: Kane's return, big year for Berggren and more**\
+`The first day of Red Wings training camp featured some big news and a clear emphasis for 2024-25. `\
+https://nytimes.com/athletic/5779754/2024/09/19/red-wings-training-camp-seider-berggren-kane/
+
 **Friday Briefing: Israel Bombards Hezbollah**\
 `Plus, French drag is here to stay.`\
 https://nytimes.com/2024/09/19/briefing/israel-lebanon-hezbollah-us-polls-ukraine.html
