@@ -1,3 +1,19 @@
+**Cross-Tabs: September 2024 Inquirer/Times/Siena Poll of the Pennsylvania Likely Electorate**\
+`Results of a Philadelphia Inquirer/New York Times/Siena College poll of 1,082 likely voters in Pennsylvania, including a poll of 408 voters in Philadelphia, conducted from Sept. 11 to 16, 2024.`\
+https://nytimes.com/interactive/2024/09/19/us/politics/times-siena-inquirer-poll-pennsylvania-likely-electorate.html
+
+**Cross-Tabs: September 2024 Times/Siena Poll of the Likely Electorate**\
+`Results of a nationwide New York Times/Siena College poll of 2,437 likely voters, including a poll of 1,082 voters in Pennsylvania and Philadelphia, conducted from Sept. 11 to 16, 2024.`\
+https://nytimes.com/interactive/2024/09/19/us/elections/times-siena-poll-likely-electorate-crosstabs.html
+
+**Toplines: September 2024 Inquirer/Times/Siena Poll of Pennsylvania Registered Voters**\
+`Results of a Philadelphia Inquirer/New York Times/Siena College poll of 1,082 registered voters in Pennsylvania, including a poll of 408 voters in Philadelphia, conducted from Sept. 11 to 16, 2024.`\
+https://nytimes.com/interactive/2024/09/19/us/politics/times-siena-inquirer-poll-pennsylvania-toplines.html
+
+**Toplines: September 2024 Times/Siena Poll of Registered Voters Nationwide**\
+`Results of a nationwide New York Times/Siena College poll of 2,437 registered voters, including a poll of 1,082 voters in Pennsylvania and Philadelphia, conducted from Sept. 11 to 16, 2024.`\
+https://nytimes.com/interactive/2024/09/19/us/elections/times-siena-poll-toplines.html
+
 **The Angry Old Play and the Nice Young Man**\
 `Atri Banerjee has channeled his own experiences into a new production of John Osborne’s groundbreaking 1956 work “Look Back in Anger.”`\
 https://nytimes.com/2024/09/19/theater/atri-banerjee-look-back-in-anger.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/19/crosswords/spelling-bee-forum.html
 **How to Make $6,000 a Month by Moving Citi Bikes Around the Block**\
 `The bike-sharing program rewards users who help redistribute bikes around New York City. A handful of hustlers have figured out how to turn that into profit.`\
 https://nytimes.com/2024/09/19/nyregion/citi-bike-scam-nyc.html
-
-**As Public Support for Migrants Fades, Private Donors Confront the Crisis**\
-`A group of New York’s most powerful philanthropies will spend millions to help make migrants more self-sufficient.`\
-https://nytimes.com/2024/09/19/nyregion/ny-migrants-philanthropies.html
-
-**De Bruyne to be assessed for Arsenal clash after sustaining injury**\
-`Kevin De Bruyne is to be assessed for Manchester City&#8217;s crucial Premier League clash against Arsenal after picking up an injury in their goalless Champions League draw with Inter Milan.`\
-https://nytimes.com/athletic/5778545/2024/09/19/kevin-de-bruyne-manchester-city-injury/
-
-**Brighton 3-2 Wolves: Sa's struggles, what next for Hwang and Sarabia?**\
-`Their Premier League season has not started well and now Wolves are also out of the Carabao Cup after a 3-2 away loss against Brighton`\
-https://nytimes.com/athletic/5778116/2024/09/19/wolves-briefing-brighton-league-cup/
-
-**Brighton 3 Wolves 2: Unbeaten run continues, Adingra makes his case and fifth-choice Lamptey**\
-`Brighton are yet to lose in six games under new head coach Fabian Hurzeler and are now into the last 16 of the Carabao Cup`\
-https://nytimes.com/athletic/5776713/2024/09/19/brighton-wolves-adingra-lamptey/
 
