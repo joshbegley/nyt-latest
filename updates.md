@@ -1,3 +1,11 @@
+**Israel Bombards Hezbollah as Group’s Leader Vows Retaliation**\
+`The Hezbollah leader, Hassan Nasrallah, did not say how his group would respond to attacks on hand-held devices, which killed dozens when pagers and walkie-talkies exploded.`\
+https://nytimes.com/2024/09/19/world/middleeast/israel-bombards-hezbollah-as-groups-leader-vows-retaliation.html
+
+**How the Robinson Report Could Affect the Presidential Race in North Carolina**\
+`A Democratic presidential candidate has not won North Carolina since 2008. But the drama around Lt. Gov. Mark Robinson, the Republican nominee for governor, is sure to bolster their hopes.`\
+https://nytimes.com/2024/09/19/us/politics/mark-robinson-cnn-report-presidential-race.html
+
 **How the Robinson Report Could Affect the Presidential Race in the State**\
 `A Democratic presidential candidate has not won North Carolina since 2008. But the drama around Lt. Gov. Mark Robinson, the Republican nominee for governor, is sure to bolster their hopes.`\
 https://nytimes.com/2024/09/19/us/politics/mark-robinson-cnn-report-presidential-race.html
