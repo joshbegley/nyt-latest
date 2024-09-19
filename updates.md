@@ -1,3 +1,11 @@
+**Raya credits Arsenal goalkeeper coach Cana after Atalanta double-save**\
+`David Raya credited Arsenal&#8217;s goalkeeper coach Inaki Cana after his double-save preserved a clean sheet during Thursday&#8217;s Champions League draw against Atalanta.`\
+https://nytimes.com/athletic/5780575/2024/09/19/david-raya-penalty-save-champions-league/
+
+**Walkie-Talkie and Pager Attacks Set Off a Legal Debate**\
+`Experts are at odds over the question of whether it violates the laws of war to hide explosives in wireless devices that may go off near civilians.`\
+https://nytimes.com/2024/09/19/world/middleeast/pagers-hezbollah-israel-attacks.html
+
 **Criminal Investigation Launched Into Texas Pipeline Fire**\
 `A car crashed into a Deer Park pipeline on Monday, causing an explosion that continued to burn days later.`\
 https://nytimes.com/video/us/100000009706780/texas-pipeline-fire.html
