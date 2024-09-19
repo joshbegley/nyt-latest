@@ -1,3 +1,15 @@
+**New super PAC pitches Trump to users of Zyn nicotine pouches and sports gamblers.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/09/19/us/trump-harris-election/new-super-pac-pitches-trump-to-users-of-zyn-nicotine-pouches-and-sports-gamblers
+
+**Republicans Try to Block Pennsylvania Voters From Fixing Problems With Ballots**\
+`The Republican National Committee argued that counties do not have the authority to allow voters in the swing state to correct ballots that do not comply with the rules.`\
+https://nytimes.com/2024/09/19/us/politics/republicans-pennsylvania-mail-ballots-lawsuit.html
+
+**'This is the coolest thing in the world': Scenes from a Guardians champagne celebration**\
+`While celebrating a postseason berth in his first season as manager, Stephen Vogt finally accepted the team's "Winged G" championship belt.`\
+https://nytimes.com/athletic/5780796/2024/09/19/cleveland-guardians-postseason-clinching-celebration/
+
 **Quote of the Day: California Mountain Town Residents Defy Risks**\
 `Quotation of the Day for Thursday, September 19, 2024`\
 https://nytimes.com/2024/09/19/pageoneplus/quote-of-the-day-california-mountain-town-residents-defy-risks.html

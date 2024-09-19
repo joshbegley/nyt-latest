@@ -1,3 +1,15 @@
+**New super PAC pitches Trump to users of Zyn nicotine pouches and sports gamblers.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/09/19/us/trump-harris-election/new-super-pac-pitches-trump-to-users-of-zyn-nicotine-pouches-and-sports-gamblers
+
+**Republicans Try to Block Pennsylvania Voters From Fixing Problems With Ballots**\
+`The Republican National Committee argued that counties do not have the authority to allow voters in the swing state to correct ballots that do not comply with the rules.`\
+https://nytimes.com/2024/09/19/us/politics/republicans-pennsylvania-mail-ballots-lawsuit.html
+
+**'This is the coolest thing in the world': Scenes from a Guardians champagne celebration**\
+`While celebrating a postseason berth in his first season as manager, Stephen Vogt finally accepted the team's "Winged G" championship belt.`\
+https://nytimes.com/athletic/5780796/2024/09/19/cleveland-guardians-postseason-clinching-celebration/
+
 **Quote of the Day: California Mountain Town Residents Defy Risks**\
 `Quotation of the Day for Thursday, September 19, 2024`\
 https://nytimes.com/2024/09/19/pageoneplus/quote-of-the-day-california-mountain-town-residents-defy-risks.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/19/learning/what-teenagers-are-saying-about-parents-
 **Goon Squad Violence Leads to Federal Investigation of Mississippi Sheriff’s Office**\
 `The Justice Department will determine if allegations of widespread violence and improper searches amount to a pattern  of discrimination in the department.`\
 https://nytimes.com/2024/09/19/us/goon-squad-mississippi-sheriffs-office.html
-
-**Tupperware (the Brand) May Fail. Tupperware (the Word) Will Survive.**\
-`The company behind the resealable containers filed for bankruptcy, but the term outgrew its origins decades ago.`\
-https://nytimes.com/2024/09/19/style/tupperware-bankruptcy.html
-
-**Nike C.E.O. John Donahoe Abruptly Retires Amid Declining Sales**\
-`Elliott Hill, an executive who left the company after Donahoe’s appointment in 2020, will return as chief executive, Nike’s board said.`\
-https://nytimes.com/2024/09/19/business/nike-elliott-hill-john-donahoe.html
-
-**Blues roster projection: How the depth chart is shaping up after Day 1 of training camp**\
-`The Blues provided some hints as to what they're thinking for their opening-night lineup on the first day of training camp.`\
-https://nytimes.com/athletic/5779855/2024/09/19/blues-roster-projection-training-camp/
 
