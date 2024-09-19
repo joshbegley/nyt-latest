@@ -1,3 +1,7 @@
+**OMG, Could the Mets Actually Pull This Off?**\
+`Mets fans have been here before, and they don’t want to jinx anything. But the mix of good vibes and mysterious voodoo — and the inexplicable presence of Grimace — is giving fans playoffs hope.`\
+https://nytimes.com/2024/09/19/nyregion/new-york-mets.html
+
 **Ukraine Says Russia Hit Nursing Home Near Border, Killing at Least 1**\
 `A dozen other people were injured, some seriously, in the attack in the city of Sumy, which has come under increased bombardment since Ukraine’s offensive into Russia’s nearby Kursk region.`\
 https://nytimes.com/2024/09/19/world/europe/ukraine-russia-nursing-home.html
