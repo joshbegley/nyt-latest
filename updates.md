@@ -1,3 +1,7 @@
+**Behind Manny Machado, the Padres are already experiencing October baseball**\
+`"To see him go about his business the way he’s doing, it’s just beautiful,” Fernando Tatis Jr. said of Machado.`\
+https://nytimes.com/athletic/5778336/2024/09/18/padres-manny-machado-stretch-success/
+
 **From a Long Island Rally, Trump Lobs Exaggerated Attacks at New York City**\
 `Donald Trump told a raucous crowd that he would soon visit Springfield, Ohio, and Aurora, Colo., two cities that are focal points of his exaggerated claims about migrants in America.`\
 https://nytimes.com/2024/09/18/us/politics/trump-long-island-rally.html
