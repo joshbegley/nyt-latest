@@ -1,3 +1,7 @@
+**Japanese Manufacturer Investigating Radios Used in Lebanon Attacks**\
+`The Japanese company, Icom, whose name was on handheld radios that exploded in Lebanon said it had discontinued the device a decade ago.`\
+https://nytimes.com/video/world/100000009706535/japan-radios-icom-lebanon.html
+
 **What’s Going On in This Graph? | Sept. 25, 2024**\
 `How have Las Vegas’s daily high summer temperatures and overnight low summer temperatures changed since 1950?`\
 https://nytimes.com/2024/09/19/learning/whats-going-on-in-this-graph-sept-25-2024.html
