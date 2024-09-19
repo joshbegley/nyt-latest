@@ -1,3 +1,7 @@
+**Barnes, Gordon and Newcastle's left-wing dilemma**\
+`Two of Newcastle's most exciting attackers want to play in the same position, so what are Eddie Howe's options?`\
+https://nytimes.com/athletic/5775817/2024/09/19/barnes-gordon-newcastle-left-wing/
+
 **Leicester need to stop long-term trend of conceding first in bid to stay up**\
 `Leicester have struggled to avoid conceding first in games for a long time in the Premier League`\
 https://nytimes.com/athletic/5773632/2024/09/19/leicester-city-conceding-first-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5777368/2024/09/19/mlb-odds-best-bets-projections-s
 **Thursday Briefing: More Device Explosions in Lebanon**\
 `Plus the thrill of the Sichuan pepper.`\
 https://nytimes.com/2024/09/18/briefing/thursday-briefing-more-device-explosions-in-lebanon.html
-
-**Behind Manny Machado, the Padres are already experiencing October baseball**\
-`"To see him go about his business the way he’s doing, it’s just beautiful,” Fernando Tatis Jr. said of Machado.`\
-https://nytimes.com/athletic/5778336/2024/09/18/padres-manny-machado-stretch-success/
 

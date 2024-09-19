@@ -1,3 +1,7 @@
+**Barnes, Gordon and Newcastle's left-wing dilemma**\
+`Two of Newcastle's most exciting attackers want to play in the same position, so what are Eddie Howe's options?`\
+https://nytimes.com/athletic/5775817/2024/09/19/barnes-gordon-newcastle-left-wing/
+
 **Leicester need to stop long-term trend of conceding first in bid to stay up**\
 `Leicester have struggled to avoid conceding first in games for a long time in the Premier League`\
 https://nytimes.com/athletic/5773632/2024/09/19/leicester-city-conceding-first-analysis/
