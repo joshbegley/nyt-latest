@@ -1,3 +1,15 @@
+**30-Year Mortgage Rate Drops to 6.09% After Fed Rate Cut**\
+`The decline in mortgage costs, influenced by expectations of the Federal Reserve’s rate moves, could revive interest in buying, selling and remortgaging, economists said.`\
+https://nytimes.com/2024/09/19/business/mortgage-rates-fed-rate-cut.html
+
+**Why Can’t Kamala Harris Just Say This?**\
+`Here’s a script with which she could explain her evolution.`\
+https://nytimes.com/2024/09/19/opinion/kamala-harris-positions.html
+
+**Hojlund & Mount in contention to play at Palace - Ten Hag**\
+`Rasmus Hojlund and Mason Mount are in contention to feature against Crystal Palace, but Erik ten Hag will make a late call ahead of the trip to Selhurst Park.`\
+https://nytimes.com/athletic/5779571/2024/09/19/rasmus-hojlund-mason-mount-injuries/
+
 **Threats Against Haitians Land at the Doorstep of The Haitian Times**\
 `Racist emails. Swatting. Intimidated sources. The Haitian Times has been receiving some of the same threats that it has been covering in Springfield, Ohio.`\
 https://nytimes.com/2024/09/19/business/media/haitian-times-threats-springfield-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5779498/2024/09/19/mlb-bullpen-report-luke-weaver-f
 **Leicester held Premier League talks over 'awful' VAR error - Cooper**\
 `Leicester City met with the Premier League to express their frustration over a controversial video assistant referee (VAR) decision during last weekend&#8217;s draw with Crystal Palace.`\
 https://nytimes.com/athletic/5779117/2024/09/19/leicester-var-steve-cooper/
-
-**Disney Animation Boss Steps Down to Focus on ‘Frozen’ Sequels**\
-`Walt Disney Animation Studios is replacing Jennifer Lee, its chief creative officer, after an uneven six-year tenure.`\
-https://nytimes.com/2024/09/19/business/jennifer-lee-disney-animation-frozen.html
-
-**Asphalt Schoolyards Get a Shady Makeover**\
-`Schools across the country are adding trees, tent-like structures and water to their playgrounds as temperatures soar.`\
-https://nytimes.com/2024/09/19/climate/school-playgrounds-shade-heat.html
-
-**The Windup: Playoff clinching has begun**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5779461/2024/09/19/mlb-playoffs-clinched-yankees-brewers-the-windup/
 

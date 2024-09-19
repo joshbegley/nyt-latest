@@ -1,3 +1,15 @@
+**30-Year Mortgage Rate Drops to 6.09% After Fed Rate Cut**\
+`The decline in mortgage costs, influenced by expectations of the Federal Reserve’s rate moves, could revive interest in buying, selling and remortgaging, economists said.`\
+https://nytimes.com/2024/09/19/business/mortgage-rates-fed-rate-cut.html
+
+**Why Can’t Kamala Harris Just Say This?**\
+`Here’s a script with which she could explain her evolution.`\
+https://nytimes.com/2024/09/19/opinion/kamala-harris-positions.html
+
+**Hojlund & Mount in contention to play at Palace - Ten Hag**\
+`Rasmus Hojlund and Mason Mount are in contention to feature against Crystal Palace, but Erik ten Hag will make a late call ahead of the trip to Selhurst Park.`\
+https://nytimes.com/athletic/5779571/2024/09/19/rasmus-hojlund-mason-mount-injuries/
+
 **Threats Against Haitians Land at the Doorstep of The Haitian Times**\
 `Racist emails. Swatting. Intimidated sources. The Haitian Times has been receiving some of the same threats that it has been covering in Springfield, Ohio.`\
 https://nytimes.com/2024/09/19/business/media/haitian-times-threats-springfield-trump.html
