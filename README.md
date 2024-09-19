@@ -1,3 +1,7 @@
+**With Retirement from ESPN, ‘Woj’ Leaves a Changed Sports Media World**\
+`At ESPN, Adrian Wojnarowski leveraged social media to get the news out quicker. That skill made him rich and famous. He will manage the basketball team at St. Bonaventure University.`\
+https://nytimes.com/2024/09/19/sports/basketball/adrian-wojnarowski-retires-espn.html
+
 **Have Fun, Readers: Send Us Lyrical and Poetic Letters**\
 `We invite you to get creative with your letter writing.`\
 https://nytimes.com/2024/09/19/opinion/letters/reader-callout-lyrical-letters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/world/africa/mali-bamako-attack-jnim.html
 **Hamilton calls out FIA president for 'very stereotypical' comments on foul language**\
 `Lewis Hamilton may agree that the foul language expressed on Formula One team radios should be cleaned up.`\
 https://nytimes.com/athletic/5779558/2024/09/19/lewis-hamilton-mohammed-ben-sulayem-swearing/
-
-**Review: Fall for Dance Returns, Problems Intact**\
-`The 10-day festival at City Center opened with a program of works by Alexei Ratmansky, Tiler Peck and Andrea Miller.`\
-https://nytimes.com/2024/09/19/arts/dance/review-fall-for-dance-ratmansky-tiler-peck.html
 
