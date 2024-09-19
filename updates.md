@@ -1,3 +1,7 @@
+**How Israel Built a Modern-Day Trojan Horse: Exploding Pagers**\
+`The Israeli government did not tamper with the Hezbollah devices that exploded, defense and intelligence officials say. It manufactured them as part of an elaborate ruse.`\
+https://nytimes.com/2024/09/18/world/middleeast/israel-exploding-pagers-hezbollah.html
+
 **Party Animal**\
 `Josh Goodman has some good advice for us.`\
 https://nytimes.com/2024/09/18/crosswords/daily-puzzle-2024-09-19.html
