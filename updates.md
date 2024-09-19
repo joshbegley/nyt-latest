@@ -1,3 +1,7 @@
+**The Pulse: A failure that could change the NFL**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5777103/2024/09/19/bryce-young-panthers-rookie-qb-the-pulse/
+
 **The Stakes on Immigration**\
 `We cover the presidential candidates’ immigration policies.`\
 https://nytimes.com/2024/09/19/briefing/immigration-trump-harris-policies.html
