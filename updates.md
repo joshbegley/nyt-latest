@@ -1,3 +1,11 @@
+**It’s Groundhog Day. It’s Anti-Woke Week. It’s Messaging Bill Fall.**\
+`Lawmakers are forcing each other to take unpopular votes on bills destined to go nowhere.`\
+https://nytimes.com/2024/09/19/us/politics/government-shutdown-mark-robinson-election.html
+
+**Dodgers' Shohei Ohtani reaches 50-50 in spectacular style**\
+`MIAMI – In the first season of a record-setting contract, without throwing a single pitch, Shohei Ohtani found a new way to amaze.`\
+https://nytimes.com/athletic/5780813/2024/09/19/dodgers-mlb-ohtani-50-50/
+
 **What Teenagers Are Saying About Parents Paying Their Children to Read**\
 `Can bribes instill a lifelong love of reading? Teens weigh in on a recent guest essay.`\
 https://nytimes.com/2024/09/19/learning/what-teenagers-are-saying-about-parents-paying-their-children-to-read.html
