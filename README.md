@@ -1,3 +1,11 @@
+**Tina Charles becomes WNBA's all-time leading rebounder**\
+`Charles, the No. 1 pick in the 2010 WNBA Draft to the Connecticut Sun, is also the WNBA’s second-leading scorer.`\
+https://nytimes.com/athletic/5780960/2024/09/19/atlanta-dream-tina-charles-rebounding/
+
+**Hiker Is Injured in Bear Attack at Glacier National Park**\
+`Rangers and other hikers helped the man walk more than a mile in a mountainous area so that he could be taken to a hospital, the National Park Service said.`\
+https://nytimes.com/2024/09/19/us/bear-attack-glacier-national-park.html
+
 **What I'm seeing and hearing on the opening day of Canadiens training camp**\
 `A definitive taste of what the forward lines will look like, Slafkovský's search for respect and other observations from Canadiens camp.`\
 https://nytimes.com/athletic/5780898/2024/09/19/canadiens-training-camp-first-day/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5780757/2024/09/19/sf-giants-postseason-elimination
 **Trump’s Allies Try to Revive Push to Make Nebraska Winner-Take-All Electorally**\
 `Nebraska could deliver a critical electoral vote to Vice President Kamala Harris under its hybrid system of splitting votes in an otherwise red state.`\
 https://nytimes.com/2024/09/19/us/politics/trump-allies-nebraska-voting.html
-
-**It’s Groundhog Day. It’s Anti-Woke Week. It’s Messaging Bill Fall.**\
-`Lawmakers are forcing each other to take unpopular votes on bills destined to go nowhere.`\
-https://nytimes.com/2024/09/19/us/politics/government-shutdown-mark-robinson-election.html
-
-**Dodgers' Shohei Ohtani reaches 50-50 in spectacular style**\
-`Ohtani had a monster day, stealing two bags and hitting three home runs on his way to achieving history.`\
-https://nytimes.com/athletic/5780813/2024/09/19/dodgers-mlb-ohtani-50-50/
 
