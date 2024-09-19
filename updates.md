@@ -1,3 +1,7 @@
+**Until Saturday: Upset SEC pick, plus Week 4 viewing guide**\
+`Welcome to Until Saturday, the five-star college football newsletter: Week 4 is here, and that means upset picks and a viewers guide.`\
+https://nytimes.com/athletic/5778858/2024/09/19/arkansas-auburn-college-football-week-4-until-saturday/
+
 **Inside the Secretive Facility Housing Migrants at Guantánamo Bay**\
 `Reports and interviews shed new light on the holding center, where migrants’ calls with lawyers are monitored and some say they’ve been forced to wear blackout goggles.`\
 https://nytimes.com/2024/09/19/us/politics/migrants-guantanamo-bay-cuba-detention.html
