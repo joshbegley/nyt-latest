@@ -1,3 +1,11 @@
+**Ukraine Wants Long-Range Weapons. Here’s a Look at What They Are.**\
+`Much of the public discourse about arming Ukraine has revolved around whether the United States will send “long range” weapons. But that can mean different things.`\
+https://nytimes.com/2024/09/19/us/politics/ukraine-long-range-weapons.html
+
+**Trumponomics: From Trickle-Down to Upside-Down**\
+`Voodoo economics at least had a flawed theory behind it; Trump’s brand is based on some kind of brain glitch.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/krugman-trump-economics-voodoo
+
 **Pete Buttigieg Plays Vance in Walz’s Debate Prep**\
 `The transportation secretary, who acted as Mike Pence during Kamala Harris’s preparations for the 2020 vice-presidential debate, is again helping out as Tim Walz gets ready for his Oct. 1 clash.`\
 https://nytimes.com/2024/09/19/us/politics/pete-buttigieg-jd-vance-walz-debate-prep.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5779119/2024/09/19/jorja-fox-chelsea-acl-injury/
 **The Author of ‘Impossible Creatures’ Tucks Big Ideas in Tales of Wonder**\
 `Katherine Rundell said children can handle hefty themes, but finds it “bad manners to offer a child a story and give them just a moral.”`\
 https://nytimes.com/2024/09/19/books/katherine-rundell-impossible-creatures.html
-
-**F.T.C. Study Finds ‘Vast Surveillance’ of Social Media Users**\
-`Meta, YouTube and other sites collected more data than most users realized, a new report by the Federal Trade Commission finds.`\
-https://nytimes.com/2024/09/19/technology/ftc-meta-tiktok-privacy-surveillance.html
-
-**Research That Led to Obesity Drugs Wins Major Medical Prize**\
-`Three scientists were recognized by the Lasker Awards for their work on the GLP-1 hormone. Others were honored for work to stop H.I.V. and for immune system discoveries.`\
-https://nytimes.com/2024/09/19/health/2024-lasker-awards-ozempic-wegovy-glp-1.html
 
