@@ -1,3 +1,7 @@
+**The Angry Old Play and the Nice Young Man**\
+`Atri Banerjee has channeled his own experiences into a new production of John Osborne’s groundbreaking 1956 work “Look Back in Anger.”`\
+https://nytimes.com/2024/09/19/theater/atri-banerjee-look-back-in-anger.html
+
 **Julio ​​Rodríguez's big mistake helped Yankees clinch a playoff spot: 'Kind of a freak thing'**\
 `The Yankees seemed to celebrate extra hard since many of them were on last year’s team that missed the playoffs.`\
 https://nytimes.com/athletic/5778555/2024/09/19/yankees-clinch-playoff-spot/
