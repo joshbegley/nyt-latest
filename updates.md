@@ -1,3 +1,7 @@
+**‘Agatha All Along’ Review: Toil and Trouble**\
+`Marvel’s “WandaVision” spinoff has more witchcraft but less magic.`\
+https://nytimes.com/2024/09/18/arts/television/agatha-all-along-review.html
+
 **Police Officials Defend Subway Shooting That Gravely Wounded Bystander**\
 `“We are not perfect,” said John Chell, the Police Department’s chief of patrol, as protesters gathered in Union Square.`\
 https://nytimes.com/2024/09/18/nyregion/nypd-shooting-brooklyn-subway.html
