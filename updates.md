@@ -1,3 +1,7 @@
+**Thursday Briefing: More Device Explosions in Lebanon**\
+`Plus the thrill of the Sichuan pepper.`\
+https://nytimes.com/2024/09/18/briefing/thursday-briefing-more-device-explosions-in-lebanon.html
+
 **Behind Manny Machado, the Padres are already experiencing October baseball**\
 `"To see him go about his business the way he’s doing, it’s just beautiful,” Fernando Tatis Jr. said of Machado.`\
 https://nytimes.com/athletic/5778336/2024/09/18/padres-manny-machado-stretch-success/
