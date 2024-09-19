@@ -1,3 +1,11 @@
+**Nintendo and Pokémon Sue Palworld Maker for Patent Infringement**\
+`Palworld, a video game mocked as “Pokémon with guns,” became one of the most popular games in the world when it was released in January.`\
+https://nytimes.com/2024/09/19/arts/nintendo-pokemon-lawsuit-pocketpair-palworld.html
+
+**What’s the True Price of a School Lunch?**\
+`An emerging body of research aims to put dollar figures on the environmental costs of foods we eat everyday.`\
+https://nytimes.com/2024/09/19/climate/true-cost-accounting-food-prices.html
+
 **An Israeli man is charged with meeting with Iranian agents and discussing a plot to kill Netanyahu.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/an-israeli-man-is-charged-with-meeting-with-iranian-agents-and-discussing-a-plot-to-kill-netanyahu
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5779572/2024/09/19/nfl-fantasy-football-big-board-t
 **Martial completes AEK Athens move**\
 `Anthony Martial has signed for AEK Athens on a free transfer following his departure from Manchester United in the summer.`\
 https://nytimes.com/athletic/5642967/2024/09/19/anthony-martial-aek-athens/
-
-**Vegetarian Standouts From Our List of Cooking Favorites**\
-`Jollof rice, chile crisp fettuccine Alfredo, sheet-pan gnocchi and plenty more meatless marvels.`\
-https://nytimes.com/2024/09/19/dining/vegetarian-standouts-from-our-list-of-cooking-favorites.html
-
-**The Deadly Pager Attacks in Lebanon**\
-`Readers discuss the wave of attacks in Lebanon. Also: Donald Trump’s golf outing; the state of bridges in America; the importance of voting.`\
-https://nytimes.com/2024/09/19/opinion/pager-attacks-lebanon-israel.html
 
