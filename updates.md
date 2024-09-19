@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylan
 `\
 https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylander/
 
+**Maple Leafs could reap the rewards of William Nylander’s move to centre — if he can do it**\
+`Nylander is more valuable to Toronto playing the more essential, demanding position of centre than wing.
+`\
+https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylander/
+
 **Man Utd Under-21s to play selection of games at Salford's Peninsula Stadium**\
 `Manchester United&#8217;s under-21s are set to play a handful of games at Salford City&#8217;s Peninsula Stadium this season to ease the load on Leigh Sports Village, the team&#8217;s usual home venue.`\
 https://nytimes.com/athletic/5780111/2024/09/19/manchester-united-under-21s-salford/
