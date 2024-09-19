@@ -1,3 +1,7 @@
+**What Teenagers Are Saying About Parents Paying Their Children to Read**\
+`Can bribes instill a lifelong love of reading? Teens weigh in on a recent guest essay.`\
+https://nytimes.com/2024/09/19/learning/what-teenagers-are-saying-about-parents-paying-their-children-to-read.html
+
 **Goon Squad Violence Leads to Federal Investigation of Mississippi Sheriff’s Office**\
 `The Justice Department will determine if allegations of widespread violence and improper searches amount to a pattern  of discrimination in the department.`\
 https://nytimes.com/2024/09/19/us/goon-squad-mississippi-sheriffs-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/us/politics/trump-springfield-ohio.html
 **Israel Bombards Hezbollah as Group’s Leader Vows Retaliation**\
 `The Hezbollah leader, Hassan Nasrallah, did not say how his group would respond to attacks on hand-held devices, which killed dozens when pagers and walkie-talkies exploded.`\
 https://nytimes.com/2024/09/19/world/middleeast/israel-bombards-hezbollah-as-groups-leader-vows-retaliation.html
-
-**How the Robinson Report Could Affect the Presidential Race in North Carolina**\
-`A Democratic presidential candidate has not won North Carolina since 2008. But the drama around Lt. Gov. Mark Robinson, the Republican nominee for governor, is sure to bolster their hopes.`\
-https://nytimes.com/2024/09/19/us/politics/mark-robinson-cnn-report-presidential-race.html
 

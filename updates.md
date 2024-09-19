@@ -1,3 +1,7 @@
+**What Teenagers Are Saying About Parents Paying Their Children to Read**\
+`Can bribes instill a lifelong love of reading? Teens weigh in on a recent guest essay.`\
+https://nytimes.com/2024/09/19/learning/what-teenagers-are-saying-about-parents-paying-their-children-to-read.html
+
 **Goon Squad Violence Leads to Federal Investigation of Mississippi Sheriff’s Office**\
 `The Justice Department will determine if allegations of widespread violence and improper searches amount to a pattern  of discrimination in the department.`\
 https://nytimes.com/2024/09/19/us/goon-squad-mississippi-sheriffs-office.html
