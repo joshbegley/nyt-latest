@@ -1,3 +1,7 @@
+**What I'm seeing and hearing on the opening day of Canadiens training camp**\
+`A definitive taste of what the forward lines will look like, Slafkovský's search for respect and other observations from Canadiens camp.`\
+https://nytimes.com/athletic/5780898/2024/09/19/canadiens-training-camp-first-day/
+
 **No dressing this up: Slumping Twins fall short yet again, drop into tie with Tigers**\
 `Just like that, what on Aug. 17 was a 10 1/2-game advantage over Detroit had vanished into thin air.`\
 https://nytimes.com/athletic/5780808/2024/09/19/twins-slump-tigers-wild-card-playoffs/
@@ -31,10 +35,6 @@ https://nytimes.com/2024/09/19/us/politics/trump-allies-nebraska-voting.html
 https://nytimes.com/2024/09/19/us/politics/government-shutdown-mark-robinson-election.html
 
 **Dodgers' Shohei Ohtani reaches 50-50 in spectacular style**\
-`Ohtani had a monster day, stealing two bags and hitting two home runs on his way to achieving history.`\
+`Ohtani had a monster day, stealing two bags and hitting three home runs on his way to achieving history.`\
 https://nytimes.com/athletic/5780813/2024/09/19/dodgers-mlb-ohtani-50-50/
-
-**What Teenagers Are Saying About Parents Paying Their Children to Read**\
-`Can bribes instill a lifelong love of reading? Teens weigh in on a recent guest essay.`\
-https://nytimes.com/2024/09/19/learning/what-teenagers-are-saying-about-parents-paying-their-children-to-read.html
 

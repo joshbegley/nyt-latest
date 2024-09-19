@@ -1,3 +1,11 @@
+**What I'm seeing and hearing on the opening day of Canadiens training camp**\
+`A definitive taste of what the forward lines will look like, Slafkovský's search for respect and other observations from Canadiens camp.`\
+https://nytimes.com/athletic/5780898/2024/09/19/canadiens-training-camp-first-day/
+
+**Dodgers' Shohei Ohtani reaches 50-50 in spectacular style**\
+`Ohtani had a monster day, stealing two bags and hitting three home runs on his way to achieving history.`\
+https://nytimes.com/athletic/5780813/2024/09/19/dodgers-mlb-ohtani-50-50/
+
 **No dressing this up: Slumping Twins fall short yet again, drop into tie with Tigers**\
 `Just like that, what on Aug. 17 was a 10 1/2-game advantage over Detroit had vanished into thin air.`\
 https://nytimes.com/athletic/5780808/2024/09/19/twins-slump-tigers-wild-card-playoffs/
