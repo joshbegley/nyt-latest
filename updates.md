@@ -1,3 +1,11 @@
+**Could this be a turning point for Ange Postecoglou's Tottenham?**\
+`Tottenham very nearly lost their League Cup tie at Coventry. They arguably deserved to lose it. Could their late victory spark a revival?`\
+https://nytimes.com/athletic/5771160/2024/09/19/tottenham-coventry-postecoglou/
+
+**Inter Milan are an anomaly among top European teams - they almost never dribble**\
+`Inter Milan are adept at counter-attacking and making direct breaks but they rarely do those things by taking opponents on one-vs-one`\
+https://nytimes.com/athletic/5777917/2024/09/19/inter-milan-manchester-city-dribbling/
+
 **Word of the Day: denigrate**\
 `This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/19/learning/word-of-the-day-denigrate.html
