@@ -1,3 +1,7 @@
+**The Author of ‘Impossible Creatures’ Tucks Big Ideas in Tales of Wonder**\
+`Katherine Rundell said children can handle hefty themes, but finds it “bad manners to offer a child a story and give them just a moral.”`\
+https://nytimes.com/2024/09/19/books/katherine-rundell-impossible-creatures.html
+
 **Scoop City: Bills, Texans the No. 1 contender?**\
 `A look at the new No. 1 contender to the Chiefs throne, plus an update on Jordan Love and Jets-Patriots preview.`\
 https://nytimes.com/athletic/5779183/2024/09/19/scoop-city-bills-texans-the-no-1-contender/
