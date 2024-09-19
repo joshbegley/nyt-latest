@@ -1,3 +1,7 @@
+**Marks: A new proposal would quiet FSU, Clemson, but the ACC holds all the leverage**\
+`Clemson and FSU saying they’ll stay in the league only under their terms is the ultimate walk-back.`\
+https://nytimes.com/athletic/5779099/2024/09/19/acc-florida-state-clemson-settlement-proposal-lawsuit/
+
 **Vance Says He Will Keep Calling Haitians Legally in Springfield ‘Illegal’**\
 `The immigrants are mainly in the United States under temporary protected status, which the executive branch can grant to people whose home countries are in crisis.`\
 https://nytimes.com/2024/09/19/us/politics/vance-haitian-immigrants-illegal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5779044/2024/09/19/jarrad-branthwaite-everton-injur
 **Legal Watchdog Group Warns Pro-Trump Lawyers Against Subverting Democracy in November**\
 `New ads running in legal journals are warning lawyers: “Don’t lose your law license because of Trump.”`\
 https://nytimes.com/2024/09/19/us/politics/trump-lawyers-election-results.html
-
-**Five big questions the Kings must answer as training camp opens**\
-`Can the Kings chart a different ending this season? These are the questions that will help determine their success.`\
-https://nytimes.com/athletic/5778560/2024/09/19/la-kings-camp-preseason/
 
