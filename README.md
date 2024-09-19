@@ -1,3 +1,12 @@
+**Man Pleads Guilty to Falsely Accusing Fantasy Football Rival of Shooting Plans**\
+`Matthew Gabriel, 25, of Philadelphia, also admitted to a fake report of a bomb threat at the University of Iowa. The mass shooting report was made in Norway. He pleaded guilty to federal charges.`\
+https://nytimes.com/2024/09/19/us/philadelphia-fantasy-football-mass-shooting-threat.html
+
+**Maple Leafs could reap the rewards of William Nylander’s move to centre — if he can do it**\
+`Nylander is more valuable to Toronto playing the more essential, demanding position of centre than wing.
+`\
+https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylander/
+
 **Alaska Man Charged With Threatening 6 Supreme Court Justices**\
 `It remained unclear whether the man, Panos Anastasiou, came close to carrying out his threats, and public records indicate that he is not affiliated with any political party.`\
 https://nytimes.com/2024/09/19/us/politics/supreme-court-justices-threats-fbi.html
@@ -29,12 +38,4 @@ https://nytimes.com/2024/09/19/t-magazine/oiza-london-fashion-week.html
 **Ex-C.I.A. Officer Gets 30 Years for Drugging and Sexually Assaulting Women**\
 `The former officer, Brian Jeffrey Raymond, admitted that he had sexually assaulted and photographed dozens of women in the United States and overseas, prosecutors said.`\
 https://nytimes.com/2024/09/19/us/brian-jeffrey-raymond-cia-sexual-assault.html
-
-**We Answer Your Very Specific Restaurant Questions**\
-`Pasta for carb loading, options for first dates, dinner before a concert at Madison Square Garden and more urgent needs.`\
-https://nytimes.com/2024/09/19/dining/we-answer-your-very-specific-restaurant-questions.html
-
-**Mark Robinson Called Himself a ‘black Nazi’ on a Porn Site, CNN Reports**\
-`Mr. Robinson, the Republican nominee for governor of North Carolina, vowed to stay in the race and sought to deny the report, which also said he had defended slavery in online posts years ago.`\
-https://nytimes.com/2024/09/19/us/politics/mark-robinson-north-carolina-gubernatorial-race.html
 
