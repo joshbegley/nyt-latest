@@ -1,3 +1,7 @@
+**From a Long Island Rally, Trump Lobs Exaggerated Attacks at New York City**\
+`Donald Trump told a raucous crowd that he would soon visit Springfield, Ohio, and Aurora, Colo., two cities that are focal points of his exaggerated claims about migrants in America.`\
+https://nytimes.com/2024/09/18/us/politics/trump-long-island-rally.html
+
 **How Israel Built a Modern-Day Trojan Horse: Exploding Pagers**\
 `The Israeli government did not tamper with the Hezbollah devices that exploded, defense and intelligence officials say. It manufactured them as part of an elaborate ruse.`\
 https://nytimes.com/2024/09/18/world/middleeast/israel-exploding-pagers-hezbollah.html
