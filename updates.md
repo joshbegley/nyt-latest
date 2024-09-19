@@ -1,3 +1,7 @@
+**Why has Guardiola started making double substitutions at half-time?**\
+`Man City manager Guardiola is sometimes criticised for a reluctance to make changes but has altered his approach in the past two games`\
+https://nytimes.com/athletic/5777868/2024/09/19/pep-guardiola-half-time-substitutions/
+
 **Tropical Storm Pulasan Nears Shanghai, Days After Typhoon Hit City**\
 `Pulasan was expected to make landfall near the Chinese financial hub by Friday morning. Forecasters warned of potential floods and landslides.`\
 https://nytimes.com/2024/09/19/world/asia/tropical-storm-pulasan-shanghai.html
