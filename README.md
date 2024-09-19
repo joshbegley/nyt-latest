@@ -26,8 +26,8 @@ https://nytimes.com/2024/09/19/business/stock-market-federal-reserve.html
 `The two are meeting in a suburb of Detroit at a virtual event called “Unite for America,” which will featured members of some of the online groups that have coalesced around Ms. Harris.`\
 https://nytimes.com/2024/09/19/us/politics/kamala-harris-oprah-winfrey.html
 
-**Texas tabs Arch Manning to make first career start vs. Louisiana-Monroe**\
-`It will be the first career start for Manning, the former No. 1 recruit in the 2023 class.`\
+**Arch Manning to make first career start vs. ULM**\
+`Manning will start in place of Quinn Ewers, who left Texas' win over UTSA with a strained oblique last week.`\
 https://nytimes.com/athletic/5779454/2024/09/19/arch-manning-starting-texas-louisiana-monroe/
 
 **With Retirement from ESPN, ‘Woj’ Leaves a Changed Sports Media World**\
