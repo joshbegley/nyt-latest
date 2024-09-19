@@ -1,3 +1,7 @@
+**‘A Very Royal Scandal’ Is a Juicy British Drama**\
+`This taut and serious Amazon series chronicles the time when Prince Andrew was interviewed on TV about his relationship with Jeffrey Epstein.`\
+https://nytimes.com/2024/09/19/arts/television/a-very-royal-scandal-amazon.html
+
 **In first remarks since attacks, Hezbollah leader promises to retaliate against Israel.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/in-first-remarks-since-attacks-hezbollah-leader-promises-to-retaliate-against-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/business/mortgage-rates-refinance-fed-rate-cut.ht
 **Mark Podwal, Prolific Artist of Jewish Themes, Dies at 79**\
 `His art included cartoons for The New York Times, collaborations with Elie Wiesel and images that traced the history of antisemitism. He was also a dermatologist.`\
 https://nytimes.com/2024/09/19/arts/mark-podwal-dead.html
-
-**Venezuela’s Opposition Leader Says He Was Forced to Recognize Maduro**\
-`Edmundo González said the government made him sign a document recognizing President Nicolás Maduro as the election winner before he could flee to Spain.`\
-https://nytimes.com/2024/09/19/world/americas/venezuela-letter-edmundo-gonzalez.html
 
