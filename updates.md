@@ -1,3 +1,19 @@
+**Threats Against Haitians Land at the Doorstep of The Haitian Times**\
+`Racist emails. Swatting. Intimidated sources. The Haitian Times has been receiving some of the same threats that it has been covering in Springfield, Ohio.`\
+https://nytimes.com/2024/09/19/business/media/haitian-times-threats-springfield-trump.html
+
+**Assault on Mali’s Capital Killed 50 or More, but Leaders Say Little**\
+`Days after the West African country’s ruling military was ambushed by Islamist rebels, it has sought to hide the true extent of the carnage.`\
+https://nytimes.com/2024/09/19/world/africa/mali-bamako-attack-jnim.html
+
+**Hamilton calls out FIA president for 'very stereotypical' comments on foul language**\
+`Lewis Hamilton may agree that the foul language expressed on Formula One team radios should be cleaned up.`\
+https://nytimes.com/athletic/5779558/2024/09/19/lewis-hamilton-mohammed-ben-sulayem-swearing/
+
+**Review: Fall for Dance Returns, Problems Intact**\
+`The 10-day festival at City Center opened with a program of works by Alexei Ratmansky, Tiler Peck and Andrea Miller.`\
+https://nytimes.com/2024/09/19/arts/dance/review-fall-for-dance-ratmansky-tiler-peck.html
+
 **On YouTube, Major Brands’ Ads Appear Alongside Racist Falsehoods About Haitian Immigrants**\
 `Large organizations and brands saw their advertising dollars funneled to videos amplifying inflammatory narratives, underscoring how difficult it can be to maintain brand safety online.`\
 https://nytimes.com/2024/09/19/business/media/youtube-ads-haitian-immigrants-trump.html

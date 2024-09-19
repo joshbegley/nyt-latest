@@ -1,3 +1,19 @@
+**Threats Against Haitians Land at the Doorstep of The Haitian Times**\
+`Racist emails. Swatting. Intimidated sources. The Haitian Times has been receiving some of the same threats that it has been covering in Springfield, Ohio.`\
+https://nytimes.com/2024/09/19/business/media/haitian-times-threats-springfield-trump.html
+
+**Assault on Mali’s Capital Killed 50 or More, but Leaders Say Little**\
+`Days after the West African country’s ruling military was ambushed by Islamist rebels, it has sought to hide the true extent of the carnage.`\
+https://nytimes.com/2024/09/19/world/africa/mali-bamako-attack-jnim.html
+
+**Hamilton calls out FIA president for 'very stereotypical' comments on foul language**\
+`Lewis Hamilton may agree that the foul language expressed on Formula One team radios should be cleaned up.`\
+https://nytimes.com/athletic/5779558/2024/09/19/lewis-hamilton-mohammed-ben-sulayem-swearing/
+
+**Review: Fall for Dance Returns, Problems Intact**\
+`The 10-day festival at City Center opened with a program of works by Alexei Ratmansky, Tiler Peck and Andrea Miller.`\
+https://nytimes.com/2024/09/19/arts/dance/review-fall-for-dance-ratmansky-tiler-peck.html
+
 **On YouTube, Major Brands’ Ads Appear Alongside Racist Falsehoods About Haitian Immigrants**\
 `Large organizations and brands saw their advertising dollars funneled to videos amplifying inflammatory narratives, underscoring how difficult it can be to maintain brand safety online.`\
 https://nytimes.com/2024/09/19/business/media/youtube-ads-haitian-immigrants-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/19/climate/school-playgrounds-shade-heat.html
 **The Windup: Playoff clinching has begun**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5779461/2024/09/19/mlb-playoffs-clinched-yankees-brewers-the-windup/
-
-**Video shows inquiry snafu might have cost Biles gold**\
-`"Upsetting how it wasn't processed but I'm not mad at the results," Simone Biles said about the floor exercise final scoring inquiry.`\
-https://nytimes.com/athletic/5779122/2024/09/19/simone-biles-scoring-video-gold-medal-paris-olympics/
-
-**The Octagon Inside the Sphere: Bloody Fights and Soaring Films**\
-`To amplify the first live athletic competition at the Las Vegas landmark, the Ultimate Fighting Championship turned to Hollywood.`\
-https://nytimes.com/2024/09/19/arts/sphere-las-vegas-ufc.html
-
-**Trump Media Stock Tumbles as Big Shareholders Are Soon Free to Sell**\
-`Donald J. Trump, the company’s largest shareholder, has said he won’t sell when a lockup agreement expires on Thursday. But other large investors could.`\
-https://nytimes.com/2024/09/19/business/trump-media-lockup-expires.html
-
-**Backlash Erupts Over Europe’s Anti-Deforestation Law**\
-`Leaders around the world are asking the European Union to delay rules that would require companies to police their global supply chains.`\
-https://nytimes.com/2024/09/19/business/european-union-deforestation.html
 
