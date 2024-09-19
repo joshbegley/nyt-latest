@@ -1,3 +1,7 @@
+**Browns' Mike Hall Jr. pleads no contest to misdemeanor disorderly conduct**\
+`The defensive tackle was fined $250 and issued a suspended 30-day jail sentence and two years probation.`\
+https://nytimes.com/athletic/5779212/2024/09/19/browns-michael-hall-disorderly-conduct/
+
 **Legal Watchdog Group Warns Pro-Trump Lawyers Against Subverting Democracy in November**\
 `New ads running in legal journals are warning lawyers: “Don’t lose your law license because of Trump.”`\
 https://nytimes.com/2024/09/19/us/politics/trump-lawyers-election-results.html

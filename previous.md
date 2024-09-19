@@ -1,3 +1,7 @@
+**Browns' Mike Hall Jr. pleads no contest to misdemeanor disorderly conduct**\
+`The defensive tackle was fined $250 and issued a suspended 30-day jail sentence and two years probation.`\
+https://nytimes.com/athletic/5779212/2024/09/19/browns-michael-hall-disorderly-conduct/
+
 **Ukraine Wants Long-Range Weapons. Here’s a Look at What They Are.**\
 `Much of the public discourse about arming Ukraine has revolved around whether the United States will send “long range” weapons. But that can mean different things.`\
 https://nytimes.com/2024/09/19/us/politics/ukraine-long-range-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/world/middleeast/israel-hezbollah-lebanon-hamas-g
 **Chelsea defender Fox suffers ACL injury**\
 `Chelsea Women right-back Jorja Fox, on loan at Crystal Palace, is set for an extended period on the sidelines after sustaining an anterior cruciate ligament (ACL) injury.`\
 https://nytimes.com/athletic/5779119/2024/09/19/jorja-fox-chelsea-acl-injury/
-
-**The Author of ‘Impossible Creatures’ Tucks Big Ideas in Tales of Wonder**\
-`Katherine Rundell said children can handle hefty themes, but finds it “bad manners to offer a child a story and give them just a moral.”`\
-https://nytimes.com/2024/09/19/books/katherine-rundell-impossible-creatures.html
 
