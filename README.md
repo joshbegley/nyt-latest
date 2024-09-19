@@ -1,3 +1,7 @@
+**Yankees clinch American League's first postseason spot**\
+`Judge has become the face of the franchise and could win his second MVP award.`\
+https://nytimes.com/athletic/5777252/2024/09/19/new-york-yankees-clinch-playoffs/
+
 **Company Investigating Radios Targeted in Lebanon Explosions**\
 `The Japanese electronics manufacturer Icom said it stopped making the walkie-talkie model in 2014 and has warned about fake versions for several years.`\
 https://nytimes.com/2024/09/19/business/icom-walkie-talkies-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5776384/2024/09/19/atletico-madrid-champions-league
 **A clip from Arsenal's win over Spurs went viral. The only problem? It was faked**\
 `An animation involving the Arsenal cannon shooting the Spurs cockerel went viral on Sunday - it was not an official production`\
 https://nytimes.com/athletic/5773700/2024/09/19/arsenal-tottenham-premier-league-animation-viral/
-
-**Thursday's MLB best bets: Projections for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
-https://nytimes.com/athletic/5777368/2024/09/19/mlb-odds-best-bets-projections-september-19/
 
