@@ -1,3 +1,19 @@
+**De Bruyne to be assessed for Arsenal clash after sustaining injury**\
+`Kevin De Bruyne is to be assessed for Manchester City&#8217;s crucial Premier League clash against Arsenal after picking up an injury in their goalless Champions League draw with Inter Milan.`\
+https://nytimes.com/athletic/5778545/2024/09/19/kevin-de-bruyne-manchester-city-injury/
+
+**Wolves briefing: Sa's struggles, what next for Hwang and Sarabia?**\
+`Their Premier League season has not started well and now Wolves are out of the EFL Cup after a 3-2 defeat at Brighton`\
+https://nytimes.com/athletic/5778116/2024/09/19/wolves-briefing-brighton-league-cup/
+
+**Brighton 3 Wolves 2: Unbeaten run continues, Adingra makes his case and fifth-choice Lamptey**\
+`Brighton are yet to lose under new manager Fabian Hurzeler and they are now into the last 16 of the Carabao Cup`\
+https://nytimes.com/athletic/5776713/2024/09/19/brighton-wolves-adingra-lamptey/
+
+**Could this be a turning point for Ange Postecoglou's Tottenham?**\
+`Spurs very nearly lost their League Cup tie at Coventry. They arguably deserved to lose it. Could their late victory spark a revival?`\
+https://nytimes.com/athletic/5771160/2024/09/19/tottenham-coventry-postecoglou/
+
 **Inside Arteta's managerial mindset - Pictionary, pickpockets and 'collaboretition'**\
 `Arteta leaves no stone unturned when it comes to preparation, both on and off the pitch - as one of his former right-hand men explains`\
 https://nytimes.com/athletic/5766723/2024/09/19/arteta-arsenalmethodology-balvers/
