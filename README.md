@@ -1,3 +1,7 @@
+**Crispy Gnocchi Is the Best Gnocchi**\
+`Especially when it’s tossed with spinach, feta and tons of herbs.`\
+https://nytimes.com/2024/09/19/dining/crispy-gnocchi-is-the-best-gnocchi.html
+
 **Man Utd sign teenagers Lusale and Overy**\
 `Manchester United have completed the signings of teenagers Samuel Lusale and James Overy.`\
 https://nytimes.com/athletic/5779334/2024/09/19/manchester-united-transfers-lusale-overy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5779099/2024/09/19/acc-florida-state-clemson-settle
 **Vance Says He Will Keep Calling Haitians Legally in Springfield ‘Illegal’**\
 `The immigrants are mainly in the United States under temporary protected status, which the executive branch can grant to people whose home countries are in crisis.`\
 https://nytimes.com/2024/09/19/us/politics/vance-haitian-immigrants-illegal.html
-
-**History Teachers Are Replacing Textbooks With the Internet**\
-`A survey of social studies teachers found that many find primary sources online for lesson plans. But a notable minority also rely on left-leaning materials, and a handful have turned to conservative options.`\
-https://nytimes.com/2024/09/19/us/social-studies-curriculum.html
 
