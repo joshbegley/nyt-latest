@@ -1,3 +1,11 @@
+**Ukraine Says Russia Hit Nursing Home Near Border, Killing at Least 1**\
+`A dozen other people were injured, some seriously, in the attack in the city of Sumy, which has come under increased bombardment since Ukraine’s offensive into Russia’s nearby Kursk region.`\
+https://nytimes.com/2024/09/19/world/europe/ukraine-russia-nursing-home.html
+
+**Seider signs 7-year deal to stay with Red Wings: What it means**\
+`The Red Wings finally got a deal done with their franchise defenseman Thursday. What does it mean for Detroit?`\
+https://nytimes.com/athletic/5579280/2024/09/19/red-wings-moritz-seider-contract-extension/
+
 **Jacob Trouba on summer trade rumors, excitement for likely 'last crack for this core'**\
 `Asked if his feelings were hurt seeing his name in trade rumors, the Rangers captain said “not even a little bit.”`\
 https://nytimes.com/athletic/5779847/2024/09/19/rangers-jacob-trouba-nhl-trade-rumors/
