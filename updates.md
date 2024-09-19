@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylan
 `\
 https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylander/
 
+**Maple Leafs could reap the rewards of William Nylander’s move to centre — if he can do it**\
+`Nylander is more valuable to Toronto playing the more essential, demanding position of centre than wing.
+`\
+https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylander/
+
 **Man Pleads Guilty to Falsely Accusing Fantasy Football Rival of Shooting Plans**\
 `Matthew Gabriel, 25, of Philadelphia, also admitted to a fake report of a bomb threat at the University of Iowa. The mass shooting report was made in Norway. He pleaded guilty to federal charges.`\
 https://nytimes.com/2024/09/19/us/philadelphia-fantasy-football-mass-shooting-threat.html
