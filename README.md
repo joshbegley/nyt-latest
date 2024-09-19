@@ -1,3 +1,7 @@
+**Blues roster projection: How the depth chart is shaping up after Day 1 of training camp**\
+`The Blues provided some hints as to what they're thinking for their opening-night lineup on the first day of training camp.`\
+https://nytimes.com/athletic/5779855/2024/09/19/blues-roster-projection-training-camp/
+
 **Dash Cam Footage Shows an 8-Year-Old Driving to Target**\
 `The police in Bedford, Ohio, later found the girl inside the store, and her family was summoned to pick her up, according to the police report.`\
 https://nytimes.com/video/us/100000009707506/ohio-girl-target-dashcam.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/insider/in-war-torn-ukraine-a-manicure-can-be-its
 **10-Minute Challenge: ‘Canopy’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2024/09/19/upshot/ten-minute-challenge-canopy.html
-
-**John Clements, Whose Research Saved Thousands of Babies, Dies at 101**\
-`He identified the cause of a respiratory condition that once killed 10,000 infants annually in the United States and helped design a drug that drastically reduced mortality rates.`\
-https://nytimes.com/2024/09/19/science/dr-john-a-clements-dead.html
 
