@@ -1,3 +1,15 @@
+**College football Week 4 model projections: Point differentials and totals for every game**\
+`Austin Mock's model projects the point spreads and totals for every Week 4 college football game.`\
+https://nytimes.com/athletic/5779709/2024/09/19/college-football-week-4-model-projections-scores/
+
+**Radko Gudas is the Ducks' new captain — why it’s a sensible choice**\
+`The Anaheim Ducks named veteran defenseman Radko Gudas as their captain on Thursday, their first since franchise star Ryan Getzlaf retired after the 2021-22 season.`\
+https://nytimes.com/athletic/5779830/2024/09/19/radko-gudas-ducks-captain/
+
+**Big Board: Saquon Barkley, Malik Nabers among the risers in the Top 100 rest-of-season rankings**\
+`Brandon Funston provides his first in-season Big Board update, with Saquon Barkley climbing the charts in his new Philadelphia home.`\
+https://nytimes.com/athletic/5779572/2024/09/19/nfl-fantasy-football-big-board-top-100-barkley-nabers/
+
 **Martial completes AEK Athens move**\
 `Anthony Martial has signed for AEK Athens on a free transfer following his departure from Manchester United in the summer.`\
 https://nytimes.com/athletic/5642967/2024/09/19/anthony-martial-aek-athens/
