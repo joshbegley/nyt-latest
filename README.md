@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5778545/2024/09/19/kevin-de-bruyne-manchester-city-
 https://nytimes.com/athletic/5778116/2024/09/19/wolves-briefing-brighton-league-cup/
 
 **Brighton 3 Wolves 2: Unbeaten run continues, Adingra makes his case and fifth-choice Lamptey**\
-`Brighton are yet to lose under new manager Fabian Hurzeler and they are now into the last 16 of the Carabao Cup`\
+`Brighton are yet to lose in six games under new head coach Fabian Hurzeler and are now into the last 16 of the Carabao Cup`\
 https://nytimes.com/athletic/5776713/2024/09/19/brighton-wolves-adingra-lamptey/
 
 **Inside Arteta's managerial mindset - Pictionary, pickpockets and 'collaboretition'**\
