@@ -1,3 +1,7 @@
+**With Retirement from ESPN, ‘Woj’ Leaves a Changed Sports Media World**\
+`At ESPN, Adrian Wojnarowski leveraged social media to get the news out quicker. That skill made him rich and famous. He will manage the basketball team at St. Bonaventure University.`\
+https://nytimes.com/2024/09/19/sports/basketball/adrian-wojnarowski-retires-espn.html
+
 **Have Fun, Readers: Send Us Lyrical and Poetic Letters**\
 `We invite you to get creative with your letter writing.`\
 https://nytimes.com/2024/09/19/opinion/letters/reader-callout-lyrical-letters.html
