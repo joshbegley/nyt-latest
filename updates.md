@@ -1,3 +1,7 @@
+**Inside the Secretive Facility Housing Migrants at Guantánamo Bay**\
+`Reports and interviews shed new light on the holding center, where migrants’ calls with lawyers are monitored and some say they’ve been forced to wear blackout goggles.`\
+https://nytimes.com/2024/09/19/us/politics/migrants-guantanamo-bay-cuba-detention.html
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/09/19/books/review/new-books-recommendations.html

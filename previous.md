@@ -1,3 +1,7 @@
+**Inside the Secretive Facility Housing Migrants at Guantánamo Bay**\
+`Reports and interviews shed new light on the holding center, where migrants’ calls with lawyers are monitored and some say they’ve been forced to wear blackout goggles.`\
+https://nytimes.com/2024/09/19/us/politics/migrants-guantanamo-bay-cuba-detention.html
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/09/19/books/review/new-books-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/nyc-restaurant-questions.html
 **How to Make the Phone You Have Last Longer**\
 `You don't need a new phone every two years.`\
 https://nytimes.com/interactive/2024/09/19/smarter-living/wirecutter/phone-last-longer.html
-
-**Infantino calls emergency meeting with broadcasters over lack of FIFA Club World Cup deal**\
-`FIFA president Gianni Infantino has organised an emergency briefing with global television executives for Friday as he attempts to drum up interest in the FIFA Club World Cup, with the world governing body so far failing to announce a single broadcast deal for the tournament.`\
-https://nytimes.com/athletic/5779549/2024/09/19/fifa-club-world-cup-broadcast-rights/
 
