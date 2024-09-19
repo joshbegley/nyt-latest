@@ -1,7 +1,3 @@
-**Listen: ‘A Quest for Cookie Monster’s Cookies’**\
-`In the season premiere of our newly updated weekly feature, students will listen to the story of one reporter's humorous odyssey into the world of muppet cookies.`\
-https://nytimes.com/2024/09/19/learning/listen-a-quest-for-cookie-monsters-cookies.html
-
 **We’re Adding Podcasts to Our Long-Running Weekly Film Club for Students**\
 `Our new, updated feature will showcase both audio and video journalism from The New York Times and invite student dialogue and reflection.`\
 https://nytimes.com/2024/09/19/learning/were-adding-podcasts-to-our-long-running-weekly-film-club-for-students.html
@@ -14,7 +10,7 @@ https://nytimes.com/2024/09/19/learning/teachers-how-do-you-handle-teaching-abou
 `By Simon J. Levien and Maggie Astor`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election/heres-the-latest-on-the-presidential-race
 
-**Election Live Updates: Trump and Harris Hit the Campaign Trail as Race Remains Tight**\
+**Election Live Updates: Oprah Joins Harris in Michigan as Race Remains Tight**\
 `Donald J. Trump has two events planned in Washington, and Kamala Harris will join a livestream with Oprah Winfrey. The race remains extremely close, according to a new poll from The Times, The Philadelphia Inquirer and Siena College.`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election
 
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5777553/2024/09/19/bundesliga-germany-football-socc
 **How Raiders' Robert Spillane has reached the next level of linebacker play**\
 `Spillane joined the likes of Roquan Smith, Ray Lewis and Patrick Willis with his 148-tackle, 3 1/2-sack, three-interception 2023 campaign.`\
 https://nytimes.com/athletic/5775031/2024/09/19/raiders-robert-spillane-linebacker/
+
+**The 5 biggest questions and roster battles entering Canucks training camp**\
+`As the Canucks officially take the ice for the first time this season on Thursday morning, here are five storylines to watch.`\
+https://nytimes.com/athletic/5778140/2024/09/19/canucks-training-camp-questions-battles/
 
