@@ -1,3 +1,7 @@
+**A New Lace-Forward Fashion Line**\
+`The London-based women’s wear brand Oiza is expanding ideas of British beauty.`\
+https://nytimes.com/2024/09/19/t-magazine/oiza-london-fashion-week.html
+
 **Ex-C.I.A. Officer Gets 30 Years for Drugging and Sexually Assaulting Women**\
 `The former officer, Brian Jeffrey Raymond, admitted that he had sexually assaulted and photographed dozens of women in the United States and overseas, prosecutors said.`\
 https://nytimes.com/2024/09/19/us/brian-jeffrey-raymond-cia-sexual-assault.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5780043/2024/09/19/college-football-week-4-picks-pr
 **Former Bucks owner Marc Lasry in talks to purchase Courage**\
 `Lasry previously attempted to bid on a controlling interest in Angel City FC.`\
 https://nytimes.com/athletic/5780056/2024/09/19/bucks-marc-lasry-courage-nwsl/
-
-**Inflation Is Ebbing. Now the Fed Must Protect Jobs.**\
-`The agency’s bold decision to cut its policy interest rate significantly affirms its commitment to keep the labor market strong.`\
-https://nytimes.com/2024/09/19/opinion/federal-reserve-rate-cut-unemployment.html
 
