@@ -31,8 +31,8 @@ https://nytimes.com/athletic/5774949/2024/09/19/warriors-training-camp-roster/
 https://nytimes.com/2024/09/19/arts/television/a-very-royal-scandal-amazon.html
 
 **In first remarks since attacks, Hezbollah leader promises to retaliate against Israel.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/in-first-remarks-since-attacks-hezbollah-leader-promises-to-retaliate-against-israel
+`Hassan Nasrallah refused to say when or how Hezbollah would take revenge. As he spoke, Israeli fighter jets swooped low over Beirut.`\
+https://nytimes.com/2024/09/19/world/middleeast/hezbollah-nasrallah-israel-lebanon-explosions.html
 
 **Japanese Manufacturer Investigating Radios Used in Lebanon Attacks**\
 `The Japanese company, Icom, whose name was on handheld radios that exploded in Lebanon said it had discontinued the device a decade ago.`\

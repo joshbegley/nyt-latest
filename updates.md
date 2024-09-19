@@ -1,3 +1,7 @@
+**What I’m hearing about how the Warriors are filling out their roster amid financial constraints**\
+`As the Warriors enter training camp, there will be a high bar to clear for those in the mix for a regular-season spot. `\
+https://nytimes.com/athletic/5774949/2024/09/19/warriors-training-camp-roster/
+
 **Inflation Is Ebbing. Now the Fed Must Protect Jobs.**\
 `The agency’s bold decision to cut its policy interest rate significantly affirms its commitment to keep the labor market strong.`\
 https://nytimes.com/2024/09/19/opinion/federal-reserve-rate-cut-unemployment.html

@@ -22,7 +22,7 @@ https://nytimes.com/interactive/2024/09/19/smarter-living/wirecutter/phone-last-
 `FIFA president Gianni Infantino has organised an emergency briefing with global television executives for Friday as he attempts to drum up interest in the FIFA Club World Cup, with the world governing body so far failing to announce a single broadcast deal for the tournament.`\
 https://nytimes.com/athletic/5779549/2024/09/19/fifa-club-world-cup-broadcast-rights/
 
-**What I’m hearing about how the Warriors’ are filling out their roster amid financial constraints**\
+**What I’m hearing about how the Warriors are filling out their roster amid financial constraints**\
 `As the Warriors enter training camp, there will be a high bar to clear for those in the mix for a regular-season spot. `\
 https://nytimes.com/athletic/5774949/2024/09/19/warriors-training-camp-roster/
 
