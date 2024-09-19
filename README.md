@@ -1,3 +1,15 @@
+**College football Week 4 model projections: Point differentials and totals for every game**\
+`Austin Mock's model projects the point spreads and totals for every Week 4 college football game.`\
+https://nytimes.com/athletic/5779709/2024/09/19/college-football-week-4-model-projections-scores/
+
+**Radko Gudas is the Ducks' new captain — why it’s a sensible choice**\
+`The Anaheim Ducks named veteran defenseman Radko Gudas as their captain on Thursday, their first since franchise star Ryan Getzlaf retired after the 2021-22 season.`\
+https://nytimes.com/athletic/5779830/2024/09/19/radko-gudas-ducks-captain/
+
+**Big Board: Saquon Barkley, Malik Nabers among the risers in the Top 100 rest-of-season rankings**\
+`Brandon Funston provides his first in-season Big Board update, with Saquon Barkley climbing the charts in his new Philadelphia home.`\
+https://nytimes.com/athletic/5779572/2024/09/19/nfl-fantasy-football-big-board-top-100-barkley-nabers/
+
 **Martial completes AEK Athens move**\
 `Anthony Martial has signed for AEK Athens on a free transfer following his departure from Manchester United in the summer.`\
 https://nytimes.com/athletic/5642967/2024/09/19/anthony-martial-aek-athens/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/19/us/politics/israel-hezbollah-pager-attacks.html
 **Stocks Rally a Day After Fed’s Big Interest Rate Cut**\
 `The S&P 500 had already been climbing as investors grew more confident that the Federal Reserve would cut interest rates by half a percentage point. Thursday’s gain put the index in range of a closing record.`\
 https://nytimes.com/2024/09/19/business/stock-market-federal-reserve.html
-
-**Kamala Harris and Oprah Winfrey to Stream Event From Michigan**\
-`The two are meeting in a suburb of Detroit at a virtual event called “Unite for America,” which will featured members of some of the online groups that have coalesced around Ms. Harris.`\
-https://nytimes.com/2024/09/19/us/politics/kamala-harris-oprah-winfrey.html
-
-**Arch Manning to make first career start vs. ULM**\
-`Manning will start in place of Quinn Ewers, who left Texas' win over UTSA with a strained oblique last week.`\
-https://nytimes.com/athletic/5779454/2024/09/19/arch-manning-starting-texas-louisiana-monroe/
-
-**With Retirement from ESPN, ‘Woj’ Leaves a Changed Sports Media World**\
-`At ESPN, Adrian Wojnarowski leveraged social media to get the news out quicker. That skill made him rich and famous. He will manage the basketball team at St. Bonaventure University.`\
-https://nytimes.com/2024/09/19/sports/basketball/adrian-wojnarowski-retires-espn.html
 
