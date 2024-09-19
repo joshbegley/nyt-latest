@@ -27,7 +27,7 @@ https://nytimes.com/live/2024/09/17/opinion/thepoint/pennsylvania-early-vote-cou
 https://nytimes.com/2024/09/19/learning/whats-going-on-in-this-picture-sept-23-2024.html
 
 **Jacob Trouba on summer trade rumors, excitement for likely 'last crack for this core'**\
-`Asked if his feelings were hurt seeing his name in trade rumors, the Rangers captain said, “Not even a little bit.”`\
+`Asked if his feelings were hurt seeing his name in trade rumors, the Rangers captain said “not even a little bit.”`\
 https://nytimes.com/athletic/5779847/2024/09/19/rangers-jacob-trouba-nhl-trade-rumors/
 
 **Nintendo and Pokémon Sue Palworld Maker for Patent Infringement**\
