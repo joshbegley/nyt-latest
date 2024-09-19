@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien and Maggie Astor`\
+https://nytimes.com/live/2024/09/19/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump and Harris Hit the Campaign Trail as Race Remains Tight**\
+`Donald J. Trump has two events planned in the capital, and the vice-presidential nominees will speak with the Business Roundtable there. Kamala Harris will travel to Detroit for a livestream with Oprah Winfrey.`\
+https://nytimes.com/live/2024/09/19/us/trump-harris-election
+
+**What the Fed’s Big Rate Cut Reveals About the Economy**\
+`Investors have sent stocks and bonds higher on expectations of a soft landing. But some Republicans think the central bank overstepped its bounds.`\
+https://nytimes.com/2024/09/19/business/dealbook/fed-rates-soft-landing.html
+
 **Seahawks want to 'move people' in search of consistent run game**\
 `The Seahawks want the run game to be their bread and butter. They haven't seen enough success on the ground despite the 2-0 start.`\
 https://nytimes.com/athletic/5777923/2024/09/19/seattle-seahawks-miami-dolphins-week-3/

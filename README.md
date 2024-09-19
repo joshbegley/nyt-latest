@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/09/19/us/trump-harris-election/heres-the-latest-on-the-presidential-race
 
 **Election Live Updates: Trump and Harris Hit the Campaign Trail as Race Remains Tight**\
-`Donald J. Trump has two events planned in the capital, and the vice-presidential nominees will speak with the Business Roundtable there. Kamala Harris will travel to Detroit for a livestream with Oprah Winfrey.`\
+`Donald J. Trump has two events planned in Washington, and Kamala Harris will join a livestream with Oprah Winfrey. The race remains extremely close, according to a new poll from The Times, The Philadelphia Inquirer and Siena College.`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election
 
 **What the Fed’s Big Rate Cut Reveals About the Economy**\
