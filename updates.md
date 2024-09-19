@@ -1,3 +1,19 @@
+**Crispy Gnocchi Is the Best Gnocchi**\
+`Especially when it’s tossed with spinach, feta and tons of herbs.`\
+https://nytimes.com/2024/09/19/dining/crispy-gnocchi-is-the-best-gnocchi.html
+
+**Man Utd sign teenagers Lusale and Overy**\
+`Manchester United have completed the signings of teenagers Samuel Lusale and James Overy.`\
+https://nytimes.com/athletic/5779334/2024/09/19/manchester-united-transfers-lusale-overy/
+
+**After Trump Assassination Attempts, Congress Debates Secret Service Funding**\
+`Virtually everyone on Capitol Hill agrees that the Secret Service needs to do a better job. But Democrats and Republicans are at odds over whether to increase the agency’s budget.`\
+https://nytimes.com/2024/09/19/us/politics/secret-service-funding-congress.html
+
+**Arsenal's Dowman, 14, becomes youngest UEFA Youth League scorer**\
+`Arsenal midfielder Max Dowman has become the youngest player ever to score in a UEFA Youth League game.`\
+https://nytimes.com/athletic/5779247/2024/09/19/arsenal-max-dowman-record/
+
 **On the Screen or in a Meme, ‘The Babadook’ Is Still an Unnerving Dream**\
 `Back in theaters for its 10th anniversary, the haunting movie never really left, with a legacy that includes an entire horror subgenre.`\
 https://nytimes.com/2024/09/19/movies/the-babadook-10th-anniversary.html
