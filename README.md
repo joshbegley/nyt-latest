@@ -1,3 +1,11 @@
+**Bank of England Holds Rates Steady but Signals Gradual Easing**\
+`The British central bank has emphasized its intention to move steadily to ensure that inflation continues to slow.`\
+https://nytimes.com/2024/09/19/business/bank-of-england-interest-rates.html
+
+**Axel Springer Strikes Deal With KKR to Split Up Publishing Giant**\
+`The deal values all of Axel Springer at roughly $15 billion, with the company’s publishing assets worth about $4 billion.`\
+https://nytimes.com/2024/09/19/business/axel-springer-mathias-dopfner-split.html
+
 **The Athletic FC: Arteta and 'collaboretition, Champions League calamities, injury updates**\
 `Today in TAFC: How Arteta gets through to his players, a bizarre backheel in the Champions League. Plus: A tribute to Toto Schillaci.`\
 https://nytimes.com/athletic/5778693/2024/09/19/arteta-and-collaboretition-champions-league-calamities-de-bruyne-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5776965/2024/09/19/nfl-draft-2025-cam-ward-will-joh
 **‘In the Summers’ Review: Understanding a Father’s Flaws**\
 `The film, by Alessandra Lacorazza, follows two siblings as they visit their father, played by Residente, in New Mexico.`\
 https://nytimes.com/2024/09/19/movies/in-the-summers-review.html
-
-**‘The Featherweight’ Review: Boxing Is Easy. Retirement Is Hard.**\
-`In this biopic, a documentary crew follows the boxer Willie Pep during his 1960s comeback.`\
-https://nytimes.com/2024/09/19/movies/the-featherweight-review.html
-
-**‘Eureka’ Review: No More Cowboys and Indians**\
-`This intriguingly languorous Western by the Argentine director Lisandro Alonso explores the existential plight of Indigenous Americans in  three separate timelines.`\
-https://nytimes.com/2024/09/19/movies/eureka-review.html
 
