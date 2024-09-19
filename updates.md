@@ -1,3 +1,7 @@
+**Anxiety Mounts as Lebanon Reels From Attacks**\
+`People across the country were avoiding their cellphones and unplugging baby monitors and laptops, after two days of attacks on Hezbollah-owned devices that amplified fears of an all-out war with Israel.`\
+https://nytimes.com/2024/09/19/world/middleeast/lebanon-hezbollah-explosions.html
+
 **Israel and Hezbollah trade missile fire across the Lebanese border after the exploding device attacks.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/israel-and-hezbollah-trade-missile-fire-across-the-lebanese-border-after-the-exploding-device-attacks
