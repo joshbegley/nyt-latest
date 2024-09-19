@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylander/
 
+**Maple Leafs could reap the rewards of William Nylander’s move to centre — if he can do it**\
+`Nylander is more valuable to Toronto playing the more essential, demanding position of centre than wing.
+`\
+https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylander/
+
 **Monaco 2 Barcelona 1 - A comedy of errors; Yamal stars in front of Jordan; unlucky Pedri**\
 `In an eventful game at Stade Louis II, there were errors, a red card and goals - here we break down the action.`\
 https://nytimes.com/athletic/5773839/2024/09/19/monaco-barcelona-yamal-champions-league/
