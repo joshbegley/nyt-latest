@@ -1,3 +1,7 @@
+**The Stakes on Immigration**\
+`We cover the presidential candidates’ immigration policies.`\
+https://nytimes.com/2024/09/19/briefing/immigration-trump-harris-policies.html
+
 **Anxiety Mounts as Lebanon Reels From Attacks**\
 `People across the country were avoiding their cellphones and unplugging baby monitors and laptops, after two days of attacks on Hezbollah-owned devices that amplified fears of an all-out war with Israel.`\
 https://nytimes.com/2024/09/19/world/middleeast/lebanon-hezbollah-explosions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5777416/2024/09/19/colts-shane-steichen-jonathan-ta
 **Polls Find Harris-Trump Deadlock, and Device Attacks Spread Fear in Lebanon**\
 `Plus, legal problems for MrBeast’s reality show.`\
 https://nytimes.com/2024/09/19/podcasts/harris-trump-poll-lebanon.html
-
-**The Connections Companion No. 467**\
-`Scroll down for hints and conversation about the puzzle for Friday, Sept. 20, 2024.`\
-https://nytimes.com/2024/09/19/crosswords/connections-companion-467.html
 

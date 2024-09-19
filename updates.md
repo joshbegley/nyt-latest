@@ -1,3 +1,7 @@
+**The Stakes on Immigration**\
+`We cover the presidential candidates’ immigration policies.`\
+https://nytimes.com/2024/09/19/briefing/immigration-trump-harris-policies.html
+
 **Anxiety Mounts as Lebanon Reels From Attacks**\
 `People across the country were avoiding their cellphones and unplugging baby monitors and laptops, after two days of attacks on Hezbollah-owned devices that amplified fears of an all-out war with Israel.`\
 https://nytimes.com/2024/09/19/world/middleeast/lebanon-hezbollah-explosions.html
