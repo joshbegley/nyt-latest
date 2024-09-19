@@ -1,3 +1,7 @@
+**Behind Manny Machado, the Padres are already experiencing October baseball**\
+`"To see him go about his business the way he’s doing, it’s just beautiful,” Fernando Tatis Jr. said of Machado.`\
+https://nytimes.com/athletic/5778336/2024/09/18/padres-manny-machado-stretch-success/
+
 **From a Long Island Rally, Trump Lobs Exaggerated Attacks at New York City**\
 `Donald Trump told a raucous crowd that he would soon visit Springfield, Ohio, and Aurora, Colo., two cities that are focal points of his exaggerated claims about migrants in America.`\
 https://nytimes.com/2024/09/18/us/politics/trump-long-island-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5777878/2024/09/18/49ers-injuries-deebo-samuel-chri
 **How Israel Built a Modern-Day Trojan Horse: Exploding Pagers**\
 `The Israeli government did not tamper with the Hezbollah devices that exploded, defense and intelligence officials say. It manufactured them as part of an elaborate ruse.`\
 https://nytimes.com/2024/09/18/world/middleeast/israel-exploding-pagers-hezbollah.html
-
-**U.N. Body Demands Israel End Its ‘Unlawful Presence in the Occupied Palestinian Territory’**\
-`Nearly two-thirds of the U.N. General Assembly voted in favor of a nonbinding resolution calling for Israel to end its occupation within a year. The United States was among the opposition.`\
-https://nytimes.com/2024/09/18/world/middleeast/un-israel-occupation-palestinian.html
 
