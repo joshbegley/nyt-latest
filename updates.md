@@ -1,3 +1,7 @@
+**Interest Rates Fall, but Central Banks Are No Longer in Lock Step**\
+`Officials in some countries started cutting rates last year, but others, including those in Europe and the United States, have taken a more cautious approach.`\
+https://nytimes.com/2024/09/19/business/economy/central-bank-interest-rates.html
+
 **Bo Bichette lands on IL with finger injury days after return from calf strain**\
 `Injuries and underperformance have made this a trying and disappointing season for Bichette, who hit .225 with a .598 OPS.`\
 https://nytimes.com/athletic/5779796/2024/09/19/bo-bichette-blue-jays-finger-injury/
