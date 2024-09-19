@@ -1,3 +1,7 @@
+**Criminal Investigation Launched Into Texas Pipeline Fire**\
+`A car crashed into a Deer Park pipeline on Monday, causing an explosion that continued to burn days later.`\
+https://nytimes.com/video/us/100000009706780/texas-pipeline-fire.html
+
 **With 50th steal, Shohei Ohtani now just 2 homers away from 50-50 season**\
 `Ohtani's base running has improved in the years since his MLB debut and his abilities have been on full display this year.`\
 https://nytimes.com/athletic/5780469/2024/09/19/shohei-ohtani-50th-steal-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/podcasts/the-sean-diddy-combs-charges-explained.h
 **The Briefing: Monaco 2 Barcelona 1 - A comedy of errors, Yamal stars in front of Jordan, unlucky Pedri**\
 `In an eventful game at Stade Louis II, there were errors, a red card and goals. Here we break down the action`\
 https://nytimes.com/athletic/5773839/2024/09/19/monaco-barcelona-yamal-champions-league/
-
-**Anna Delvey Needs More Than a Bedazzled Ankle Monitor to Win**\
-`The former fake heiress let her tracking device steal the show in her “Dancing With the Stars” debut. To survive another week, she may need to show some emotion.`\
-https://nytimes.com/2024/09/19/style/anna-delvey-dancing-with-the-stars.html
 
