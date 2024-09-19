@@ -1,3 +1,23 @@
+**Leicester need to stop long-term trend of conceding first in bid to stay up**\
+`Leicester have struggled to avoid conceding first in games for a long time in the Premier League`\
+https://nytimes.com/athletic/5773632/2024/09/19/leicester-city-conceding-first-analysis/
+
+**Ten landmark Nottingham Forest goals (OK, 13 - we just couldn't cut any more)**\
+`Landmark goals are notable for more than beauty. These are some that changed the future for Forest`\
+https://nytimes.com/athletic/5774137/2024/09/19/nottingham-forest-landmark-goals/
+
+**Bettinelli, Chelsea's bridge between players and staff: 'I am just part of the puzzle'**\
+`Marcus Bettinelli has a leadership role at Chelsea despite his limited competitive action for the club`\
+https://nytimes.com/athletic/5773403/2024/09/19/marcus-bettinelli-chelsea-interview/
+
+**What should you do with a non-performing FPL player?**\
+`One of the biggest success factors in Fantasy Premier League is the timing of when to buy and sell players - should you keep Morgan Rogers?`\
+https://nytimes.com/athletic/5774227/2024/09/19/fantasy-premier-league-selling-morgan-rogers-goals-assists/
+
+**A year on from her death, let's talk about Maddy Cusack - and who she really was**\
+`Maddy Cusack was far more than just a footballer. She was a daughter, a sister, a friend, a force for good and, to many, an inspiration`\
+https://nytimes.com/athletic/5760730/2024/09/19/maddy-cusack-family-one-year/
+
 **Atletico Madrid have spent €200m - but are they really a Champions League threat?**\
 `Diego Simeone's side still suffer from the hurt of losing two finals to Real Madrid, but hope and expectations are on the rise`\
 https://nytimes.com/athletic/5776384/2024/09/19/atletico-madrid-champions-league-diego-simeone-la-liga/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/18/briefing/thursday-briefing-more-device-explosions
 **Behind Manny Machado, the Padres are already experiencing October baseball**\
 `"To see him go about his business the way he’s doing, it’s just beautiful,” Fernando Tatis Jr. said of Machado.`\
 https://nytimes.com/athletic/5778336/2024/09/18/padres-manny-machado-stretch-success/
-
-**From a Long Island Rally, Trump Lobs Exaggerated Attacks at New York City**\
-`Donald Trump told a raucous crowd that he would soon visit Springfield, Ohio, and Aurora, Colo., two cities that are focal points of his exaggerated claims about migrants in America.`\
-https://nytimes.com/2024/09/18/us/politics/trump-long-island-rally.html
-
-**Party Animal**\
-`Josh Goodman has some good advice for us.`\
-https://nytimes.com/2024/09/18/crosswords/daily-puzzle-2024-09-19.html
-
-**‘Agatha All Along’ Review: Toil and Trouble**\
-`Marvel’s “WandaVision” spinoff has more witchcraft but less magic.`\
-https://nytimes.com/2024/09/18/arts/television/agatha-all-along-review.html
-
-**Police Officials Defend Subway Shooting That Gravely Wounded Bystander**\
-`“We are not perfect,” said John Chell, the Police Department’s chief of patrol, as protesters gathered in Union Square.`\
-https://nytimes.com/2024/09/18/nyregion/nypd-shooting-brooklyn-subway.html
-
-**Iranian Hackers Sought to Pass Off Pilfered Information to Biden Team**\
-`The emails were part of a sweeping effort by Iran to steal and disseminate sensitive internal communications between aides working for former President Donald J. Trump.`\
-https://nytimes.com/2024/09/18/us/politics/iran-hacking-trump-biden.html
 
