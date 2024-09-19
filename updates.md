@@ -1,3 +1,11 @@
+**The Windup: Playoff clinching has begun**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5779461/2024/09/19/mlb-playoffs-clinched-yankees-brewers-the-windup/
+
+**Video shows inquiry snafu might have cost Biles gold**\
+`"Upsetting how it wasn't processed but I'm not mad at the results," Simone Biles said about the floor exercise final scoring inquiry.`\
+https://nytimes.com/athletic/5779122/2024/09/19/simone-biles-scoring-video-gold-medal-paris-olympics/
+
 **The Octagon Inside the Sphere: Bloody Fights and Soaring Films**\
 `To amplify the first live athletic competition at the Las Vegas landmark, the Ultimate Fighting Championship turned to Hollywood.`\
 https://nytimes.com/2024/09/19/arts/sphere-las-vegas-ufc.html

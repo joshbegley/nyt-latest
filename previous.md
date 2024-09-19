@@ -1,3 +1,11 @@
+**The Windup: Playoff clinching has begun**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5779461/2024/09/19/mlb-playoffs-clinched-yankees-brewers-the-windup/
+
+**Video shows inquiry snafu might have cost Biles gold**\
+`"Upsetting how it wasn't processed but I'm not mad at the results," Simone Biles said about the floor exercise final scoring inquiry.`\
+https://nytimes.com/athletic/5779122/2024/09/19/simone-biles-scoring-video-gold-medal-paris-olympics/
+
 **The Octagon Inside the Sphere: Bloody Fights and Soaring Films**\
 `To amplify the first live athletic competition at the Las Vegas landmark, the Ultimate Fighting Championship turned to Hollywood.`\
 https://nytimes.com/2024/09/19/arts/sphere-las-vegas-ufc.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5779247/2024/09/19/arsenal-max-dowman-record/
 **On the Screen or in a Meme, ‘The Babadook’ Is Still an Unnerving Dream**\
 `Back in theaters for its 10th anniversary, the haunting movie never really left, with a legacy that includes an entire horror subgenre.`\
 https://nytimes.com/2024/09/19/movies/the-babadook-10th-anniversary.html
-
-**The Bounce: Why the NBA's City edition jerseys are just bad.**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5778850/2024/09/19/nba-city-jerseys-celtics-nba-finals-title-the-bounce/
-
-**Betting For (By) Dummies: Aligned on Penn State, USC to cover, plus several NFL bets**\
-`Jon Greenberg and Zac Jackson are back with their banter and betting picks for college football and NFL. `\
-https://nytimes.com/athletic/5778420/2024/09/19/betting-picks-nfl-cfb-spread-usc-penn-state-bears-bucs/
 

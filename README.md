@@ -1,3 +1,7 @@
+**Asphalt Schoolyards Get a Shady Makeover**\
+`Schools across the country are adding trees, tent-like structures and water to their playgrounds as temperatures soar.`\
+https://nytimes.com/2024/09/19/climate/school-playgrounds-shade-heat.html
+
 **The Windup: Playoff clinching has begun**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5779461/2024/09/19/mlb-playoffs-clinched-yankees-brewers-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/us/politics/secret-service-funding-congress.html
 **Arsenal's Dowman, 14, becomes youngest UEFA Youth League scorer**\
 `Arsenal midfielder Max Dowman has become the youngest player ever to score in a UEFA Youth League game.`\
 https://nytimes.com/athletic/5779247/2024/09/19/arsenal-max-dowman-record/
-
-**On the Screen or in a Meme, ‘The Babadook’ Is Still an Unnerving Dream**\
-`Back in theaters for its 10th anniversary, the haunting movie never really left, with a legacy that includes an entire horror subgenre.`\
-https://nytimes.com/2024/09/19/movies/the-babadook-10th-anniversary.html
 
