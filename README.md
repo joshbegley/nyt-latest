@@ -1,4 +1,8 @@
-**How the Robinson Report Could Affect the Presidential Race in the State**\
+**Israel Bombards Hezbollah as Group’s Leader Vows Retaliation**\
+`The Hezbollah leader, Hassan Nasrallah, did not say how his group would respond to attacks on hand-held devices, which killed dozens when pagers and walkie-talkies exploded.`\
+https://nytimes.com/2024/09/19/world/middleeast/israel-bombards-hezbollah-as-groups-leader-vows-retaliation.html
+
+**How the Robinson Report Could Affect the Presidential Race in North Carolina**\
 `A Democratic presidential candidate has not won North Carolina since 2008. But the drama around Lt. Gov. Mark Robinson, the Republican nominee for governor, is sure to bolster their hopes.`\
 https://nytimes.com/2024/09/19/us/politics/mark-robinson-cnn-report-presidential-race.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5780575/2024/09/19/david-raya-penalty-save-champion
 **Walkie-Talkie and Pager Attacks Set Off a Legal Debate**\
 `Experts are at odds over the question of whether it violates the laws of war to hide explosives in wireless devices that may go off near civilians.`\
 https://nytimes.com/2024/09/19/world/middleeast/pagers-hezbollah-israel-attacks.html
-
-**Criminal Investigation Launched Into Texas Pipeline Fire**\
-`A car crashed into a Deer Park pipeline on Monday, causing an explosion that continued to burn days later.`\
-https://nytimes.com/video/us/100000009706780/texas-pipeline-fire.html
 
