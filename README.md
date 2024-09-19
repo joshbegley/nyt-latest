@@ -1,3 +1,7 @@
+**How voters are reacting to the latest incendiary comments attributed to Lt. Gov. Mark Robinson**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/09/19/us/trump-harris-election/how-voters-are-reacting-to-the-latest-incendiary-comments-attributed-to-lt-gov-mark-robinson
+
 **What we saw and learned on Day 1 of Jets training camp**\
 `Covering Scott Arniel's line combinations, Cole Perfetti's absence, key roster battles and more.`\
 https://nytimes.com/athletic/5780484/2024/09/19/winnipeg-jets-training-camp-2024-day-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/us/politics/republicans-pennsylvania-mail-ballots
 **'This is the coolest thing in the world': Scenes from a Guardians champagne celebration**\
 `While celebrating a postseason berth in his first season as manager, Stephen Vogt finally accepted the team's "Winged G" championship belt.`\
 https://nytimes.com/athletic/5780796/2024/09/19/cleveland-guardians-postseason-clinching-celebration/
-
-**Quote of the Day: California Mountain Town Residents Defy Risks**\
-`Quotation of the Day for Thursday, September 19, 2024`\
-https://nytimes.com/2024/09/19/pageoneplus/quote-of-the-day-california-mountain-town-residents-defy-risks.html
 
