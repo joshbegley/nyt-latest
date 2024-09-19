@@ -1,3 +1,11 @@
+**Vegetarian Standouts From Our List of Cooking Favorites**\
+`Jollof rice, chile crisp fettuccine Alfredo, sheet-pan gnocchi and plenty more meatless marvels.`\
+https://nytimes.com/2024/09/19/dining/vegetarian-standouts-from-our-list-of-cooking-favorites.html
+
+**Arch Manning to make first career start vs. ULM**\
+`Manning will start in place of Quinn Ewers, who left Texas' win over UTSA with a strained oblique last week.`\
+https://nytimes.com/athletic/5779454/2024/09/19/arch-manning-starting-texas-louisiana-monroe/
+
 **Fantasy football rankings Week 3: Sleepers, projections, starts, sits**\
 `Jake Ciely offers up his Week 3 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
 https://nytimes.com/athletic/5775030/2024/09/19/fantasy-football-rankings-week-3-sleepers-projections-starts/
