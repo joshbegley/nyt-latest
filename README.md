@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5774949/2024/09/19/warriors-training-camp-roster/
 `This taut and serious Amazon series chronicles the time when Prince Andrew was interviewed on TV about his relationship with Jeffrey Epstein.`\
 https://nytimes.com/2024/09/19/arts/television/a-very-royal-scandal-amazon.html
 
-**In first remarks since attacks, Hezbollah leader promises to retaliate against Israel.**\
+**Hezbollah Leader Says Israel Will Face Retribution After Lebanon Explosions**\
 `Hassan Nasrallah refused to say when or how Hezbollah would take revenge. As he spoke, Israeli fighter jets swooped low over Beirut.`\
 https://nytimes.com/2024/09/19/world/middleeast/hezbollah-nasrallah-israel-lebanon-explosions.html
 
