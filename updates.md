@@ -1,3 +1,7 @@
+**Jacob Trouba on summer trade rumors, excitement for likely 'last crack for this core'**\
+`Asked if his feelings were hurt seeing his name in trade rumors, the Rangers captain said, “Not even a little bit.”`\
+https://nytimes.com/athletic/5779847/2024/09/19/rangers-jacob-trouba-nhl-trade-rumors/
+
 **Nintendo and Pokémon Sue Palworld Maker for Patent Infringement**\
 `Palworld, a video game mocked as “Pokémon with guns,” became one of the most popular games in the world when it was released in January.`\
 https://nytimes.com/2024/09/19/arts/nintendo-pokemon-lawsuit-pocketpair-palworld.html
