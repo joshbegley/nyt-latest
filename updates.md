@@ -1,3 +1,15 @@
+**We’re Adding Podcasts to Our Long-Running Weekly Film Club for Students**\
+`Our new, updated feature will showcase both audio and video journalism from The New York Times and invite student dialogue and reflection.`\
+https://nytimes.com/2024/09/19/learning/were-adding-podcasts-to-our-long-running-weekly-film-club-for-students.html
+
+**Teachers, How Do You Handle Teaching About Information Literacy?**\
+`What has worked? What has been difficult? We’d love to hear from educators at all levels and across subject areas.`\
+https://nytimes.com/2024/09/19/learning/teachers-how-do-you-handle-teaching-about-information-literacy.html
+
+**Election Live Updates: Trump and Harris Hit the Campaign Trail as Race Remains Tight**\
+`Donald J. Trump has two events planned in Washington, and Kamala Harris will join a livestream with Oprah Winfrey. The race remains extremely close, according to a new poll from The Times, The Philadelphia Inquirer and Siena College.`\
+https://nytimes.com/live/2024/09/19/us/trump-harris-election
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien and Maggie Astor`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election/heres-the-latest-on-the-presidential-race
