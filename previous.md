@@ -1,3 +1,31 @@
+**Seahawks want to 'move people' in search of consistent run game**\
+`The Seahawks want the run game to be their bread and butter. They haven't seen enough success on the ground despite the 2-0 start.`\
+https://nytimes.com/athletic/5777923/2024/09/19/seattle-seahawks-miami-dolphins-week-3/
+
+**Memories converge for Jon Miller in his 50th season, as Giants visit Baltimore**\
+`Miller was let go by the Orioles nearly three decades ago, but he's still a beloved figure when he returns to the Charm City.`\
+https://nytimes.com/athletic/5778381/2024/09/19/jon-miller-sf-giants-orioles-50th-anniversary/
+
+**German football bidding to crack the U.S. market by signing up with media group Relevent**\
+`German football wants to increase TV revenue and play pre-season games in the U.S. Would this ever lead to competitive matches abroad?`\
+https://nytimes.com/athletic/5777553/2024/09/19/bundesliga-germany-football-soccer-relevent/
+
+**How Raiders' Robert Spillane has reached the next level of linebacker play**\
+`Spillane joined the likes of Roquan Smith, Ray Lewis and Patrick Willis with his 148-tackle, 3 1/2-sack, three-interception 2023 campaign.`\
+https://nytimes.com/athletic/5775031/2024/09/19/raiders-robert-spillane-linebacker/
+
+**The 5 biggest questions and roster battles entering Canucks training camp**\
+`As the Canucks officially take the ice for the first time this season on Thursday morning, here are five storylines to watch.`\
+https://nytimes.com/athletic/5778140/2024/09/19/canucks-training-camp-questions-battles/
+
+**Ranking the most memorable jersey numbers in Oakland A's history**\
+`From No. 4 to No. 21, these are the most memorable, non-retired jersey numbers in Oakland A's franchise history.`\
+https://nytimes.com/athletic/5772326/2024/09/19/oakland-athletics-jersey-numbers-history/
+
+**‘Uncommitted’ Group Says It Won’t Endorse Harris Over Gaza Concerns**\
+`As the vice president was set to travel on Thursday to Michigan, home to many Muslim and Arab Americans, a leading group protesting U.S. support of Israel said she had not done enough to win its backing.`\
+https://nytimes.com/2024/09/19/us/politics/uncommitted-kamala-harris-endorsement.html
+
 **Bowden: Early MLB award predictions for MVP, Cy Young, Rookie of the Year and more**\
 `If the season ended today, here’s who I think would take home the top prizes, from the MVPs to Cy Youngs to comeback players of the year.`\
 https://nytimes.com/athletic/5776932/2024/09/19/mlb-award-predictions-mvp-cy-young-2024/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5776157/2024/09/19/champions-league-broadcasters-cb
 **Bank of England Holds Rates Steady but Signals Gradual Easing**\
 `The British central bank has emphasized its intention to move steadily to ensure that inflation continues to slow.`\
 https://nytimes.com/2024/09/19/business/bank-of-england-interest-rates.html
-
-**Axel Springer Strikes Deal With KKR to Split Up Publishing Giant**\
-`The deal values all of Axel Springer at roughly $15 billion, with the company’s publishing assets worth about $4 billion.`\
-https://nytimes.com/2024/09/19/business/axel-springer-mathias-dopfner-split.html
-
-**The Athletic FC: Arteta and 'collaboretition, Champions League calamities, injury updates**\
-`Today in TAFC: How Arteta gets through to his players, a bizarre backheel in the Champions League. Plus: A tribute to Toto Schillaci.`\
-https://nytimes.com/athletic/5778693/2024/09/19/arteta-and-collaboretition-champions-league-calamities-de-bruyne-injury-update/
-
-**Daniel Ricciardo expects call on F1 future after Singapore amid questions about rest of season**\
-`RB is set to decide between Ricciardo and Liam Lawson for its remaining 2025 seat in the coming days.`\
-https://nytimes.com/athletic/5778745/2024/09/19/daniel-ricciardo-f1-2025-red-bull-rb/
-
-**Dinamo Zagreb sack head coach Jakirovic**\
-`Dinamo Zagreb have sacked head coach Sergej Jakirovic two days after the club lost 9-2 against Bayern Munich in the Champions League.`\
-https://nytimes.com/athletic/5778766/2024/09/19/dinamo-zagreb-sack-head-coach-jakirovic/
-
-**Broncos offensive line's early struggles now compounded by key injury**\
-`Alex Palczewski will make his first start at right tackle in Week 3 after McGlinchey landed on IR with a knee injury.`\
-https://nytimes.com/athletic/5777292/2024/09/19/mike-mcglinchey-broncos-offensive-line/
-
-**Pavel Buchnevich's new contract, willingness to play center shows his commitment to Blues**\
-`Buchnevich, 29, signed a six-year, $48 million contract extension in July and wants to help expedite the Blues' retool.`\
-https://nytimes.com/athletic/5774044/2024/09/19/pavel-buchnevichs-blues-center-contract/
-
-**‘Never Let Go’ Review: Do the Woods Have Eyes?**\
-`Halle Berry plays the ultimate helicopter parent in this new horror movie, where evil lurks in the trees beyond the family cabin.`\
-https://nytimes.com/2024/09/19/movies/never-let-go-review.html
 

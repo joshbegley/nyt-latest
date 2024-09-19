@@ -1,7 +1,3 @@
-**Seahawks want to 'move people' in search of consistent run game**\
-`The Seahawks want the run game to be their bread and butter. They haven't seen enough success on the ground despite the 2-0 start.`\
-https://nytimes.com/athletic/5777923/2024/09/19/seattle-seahawks-miami-dolphins-week-3/
-
 **Memories converge for Jon Miller in his 50th season, as Giants visit Baltimore**\
 `Miller was let go by the Orioles nearly three decades ago, but he's still a beloved figure when he returns to the Charm City.`\
 https://nytimes.com/athletic/5778381/2024/09/19/jon-miller-sf-giants-orioles-50th-anniversary/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5776157/2024/09/19/champions-league-broadcasters-cb
 **Bank of England Holds Rates Steady but Signals Gradual Easing**\
 `The British central bank has emphasized its intention to move steadily to ensure that inflation continues to slow.`\
 https://nytimes.com/2024/09/19/business/bank-of-england-interest-rates.html
+
+**Axel Springer Strikes Deal With KKR to Split Up Publishing Giant**\
+`The deal values all of Axel Springer at roughly $15 billion, with the company’s publishing assets worth about $4 billion.`\
+https://nytimes.com/2024/09/19/business/axel-springer-mathias-dopfner-split.html
 
