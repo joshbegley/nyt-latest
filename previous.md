@@ -1,3 +1,7 @@
+**Mets takeaways from a series sweep: Jose Quintana's hot streak and more**\
+`Quintana kept rolling with help from Luisangel Acuña, who looks right at home in the big leagues.`\
+https://nytimes.com/athletic/5778309/2024/09/19/mets-jose-quintana-luisangel-acuna/
+
 **Pope Francis Is Turning Certainty on Its Head**\
 `How can different religions be “like different languages in order to arrive at God”?`\
 https://nytimes.com/2024/09/19/opinion/pope-francis-god-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/opinion/liberals-trump-maga.html
 **Next evolution of Bengals, Joe Burrow's offense beginning to emerge**\
 `Tight ends Erick All, Mike Gesicki and Drew Sample have opened up some very different looks for Cincinnati this season.`\
 https://nytimes.com/athletic/5777420/2024/09/19/bengals-offense-joe-burrow-tight-ends/
-
-**Alex Orji is a 'one in a million' athlete. Now it's time to prove he can play QB**\
-`Orji, who has thrown seven passes in his collegiate career, will make his first start on Saturday against USC.`\
-https://nytimes.com/athletic/5777323/2024/09/19/alex-orji-michigan-quarterback-position-prove/
 

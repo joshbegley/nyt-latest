@@ -1,3 +1,7 @@
+**Mets takeaways from a series sweep: Jose Quintana's hot streak and more**\
+`Quintana kept rolling with help from Luisangel Acuña, who looks right at home in the big leagues.`\
+https://nytimes.com/athletic/5778309/2024/09/19/mets-jose-quintana-luisangel-acuna/
+
 **Pope Francis Is Turning Certainty on Its Head**\
 `How can different religions be “like different languages in order to arrive at God”?`\
 https://nytimes.com/2024/09/19/opinion/pope-francis-god-election.html
