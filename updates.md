@@ -1,3 +1,7 @@
+**Party Animal**\
+`Josh Goodman has some good advice for us.`\
+https://nytimes.com/2024/09/18/crosswords/daily-puzzle-2024-09-19.html
+
 **Iranian Hackers Sought to Pass Off Pilfered Information to Biden Team**\
 `The emails were part of a sweeping effort by Iran to steal and disseminate sensitive internal communications between aides working for former President Donald J. Trump.`\
 https://nytimes.com/2024/09/18/us/politics/iran-hacking-trump-biden.html
