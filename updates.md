@@ -1,3 +1,15 @@
+**The Bounce: Why the NBA's City edition jerseys are just bad.**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5778850/2024/09/19/nba-city-jerseys-celtics-nba-finals-title-the-bounce/
+
+**Betting For (By) Dummies: Aligned on Penn State, USC to cover, plus several NFL bets**\
+`Jon Greenberg and Zac Jackson are back with their banter and betting picks for college football and NFL. `\
+https://nytimes.com/athletic/5778420/2024/09/19/betting-picks-nfl-cfb-spread-usc-penn-state-bears-bucs/
+
+**After an Olympic Backlash, France’s Drag Queens Are Here to Stay**\
+`Answering hatred with glitter is a time-honored drag tradition that France’s answer to “RuPaul’s Drag Race” is keeping alive in a new stage spectacle.`\
+https://nytimes.com/2024/09/19/theater/drag-race-france-live.html
+
 **Marks: A new proposal would quiet FSU, Clemson, but the ACC holds all the leverage**\
 `Clemson and FSU saying they’ll stay in the league only under their terms is the ultimate walk-back.`\
 https://nytimes.com/athletic/5779099/2024/09/19/acc-florida-state-clemson-settlement-proposal-lawsuit/
