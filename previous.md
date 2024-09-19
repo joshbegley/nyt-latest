@@ -1,4 +1,4 @@
-**Twins' bullpen, lacking depth, melts down again in extra-innings loss to Guardians**\
+**Lack of depth costly as Twins bullpen melts down again in extra-innings loss to Guardians**\
 `The Twins find themselves in an undesirable location after a series of bullpen fiascoes.`\
 https://nytimes.com/athletic/5778472/2024/09/19/twins-lose-bullpen-depth-guardians/
 
