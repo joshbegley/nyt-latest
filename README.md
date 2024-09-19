@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5779119/2024/09/19/jorja-fox-chelsea-acl-injury/
 
 **The Author of ‘Impossible Creatures’ Tucks Big Ideas in Tales of Wonder**\
 `Katherine Rundell said children can handle hefty themes, but finds it “bad manners to offer a child a story and give them just a moral.”`\
-https://nytimes.com/2024/09/19/sports/katherine-rundell-impossible-creatures.html
+https://nytimes.com/2024/09/19/books/katherine-rundell-impossible-creatures.html
 
 **F.T.C. Study Finds ‘Vast Surveillance’ of Social Media Users**\
 `Meta, YouTube and other sites collected more data than most users realized, a new report by the Federal Trade Commission finds.`\
