@@ -1,3 +1,7 @@
+**Jacob Trouba on summer trade rumors, excitement for likely 'last crack for this core'**\
+`Asked if his feelings were hurt seeing his name in trade rumors, the Rangers captain said “not even a little bit.”`\
+https://nytimes.com/athletic/5779847/2024/09/19/rangers-jacob-trouba-nhl-trade-rumors/
+
 **Should You Refinance Your Mortgage After the Fed’s Interest Rate Cut?**\
 `People who bought homes in the past two years may want to seek a lower interest rate. Here’s how to think it through — and how to shop.`\
 https://nytimes.com/2024/09/19/business/mortgage-rates-refinance-fed-rate-cut.html
