@@ -1,40 +1,40 @@
-**D'Onta Foreman has had his ups and downs in the NFL: 'You don't get to pick your path'**\
-`Foreman, now playing for his fifth NFL team, is grateful he's been able to fight through the tough times and prolong his career.`\
-https://nytimes.com/athletic/5777785/2024/09/19/donta-foreman-nfl-journey-browns/
+**Jets training camp: Positional battles and 5 key questions**\
+`The Jets have a new-look coaching staff, a diverse group of veterans and a few talented top prospects.`\
+https://nytimes.com/athletic/5773967/2024/09/19/winnipeg-jets-training-camp-2024-roster-questions/
 
-**Ravens can't afford their secondary to become primary concern: 'We're not consistent'**\
-`After two weeks, Baltimore's pass defense — which was expected to be one of the team's strengths — ranks last in the NFL in yards allowed.`\
-https://nytimes.com/athletic/5777635/2024/09/19/ravens-defense-secondary-concerns/
+**NHL player poll: Tax and LTIR tweaks? Expansion cities? League's best captain?**\
+`We also asked players which coach they'd ike to play for, whether officials should speak to reporters after games and more.`\
+https://nytimes.com/athletic/5773736/2024/09/19/nhl-preseason-player-poll-taxes-ltir-expansion/
 
-**Hansi Flick has supercharged Barcelona with intensity and intelligence**\
-`The season is still at an early stage, but the German's new reign has shown many promising signs`\
-https://nytimes.com/athletic/5776601/2024/09/19/hansi-flick-has-changed-barcelona/
+**Stars, cards and kids: Hobby Rip Night and Topps' path forward**\
+`Deploying top athletes and entertainers to hobby shops around the world, Topps reconfigures the sports fan hierarchy `\
+https://nytimes.com/athletic/5778257/2024/09/19/fanatics-michael-rubin-topps-hobby-rip-night/
 
-**Here is the latest on the attacks in Lebanon.**\
-`By Aaron Boxerman and Euan Ward`\
-https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/here-is-the-latest-on-the-attacks-in-lebanon
+**The Day Thousands of Pagers Exploded in Lebanon**\
+`What Israel’s audacious attack accomplished, and what it cost.`\
+https://nytimes.com/2024/09/19/podcasts/the-daily/pagers-explosion-lebanon.html
 
-**Mets takeaways from a series sweep: Jose Quintana's hot streak and more**\
-`Quintana kept rolling with help from Luisangel Acuña, who looks right at home in the big leagues.`\
-https://nytimes.com/athletic/5778309/2024/09/19/mets-jose-quintana-luisangel-acuna/
+**Colts coach Shane Steichen benched Jonathan Taylor. That can't happen again**\
+`Taylor struggles in the passing game, but that's not a good enough reason to keep him off the field for the entire fourth quarter of a game.`\
+https://nytimes.com/athletic/5777416/2024/09/19/colts-shane-steichen-jonathan-taylor-fourth-quarter/
 
-**Phillies have 10 games to decide optimal lineup, outfield configurations for playoffs**\
-`Everything changes in October, and the Phillies are still debating their optimal lineup configuration as the regular season winds down. `\
-https://nytimes.com/athletic/5778439/2024/09/19/phillies-lineup-outfield-playoffs/
+**Polls Find Harris-Trump Deadlock, and Device Attacks Spread Fear in Lebanon**\
+`Plus, legal problems for MrBeast’s reality show.`\
+https://nytimes.com/2024/09/19/podcasts/harris-trump-poll-lebanon.html
 
-**Pope Francis Is Turning Certainty on Its Head**\
-`How can different religions be “like different languages in order to arrive at God”?`\
-https://nytimes.com/2024/09/19/opinion/pope-francis-god-election.html
+**The Connections Companion No. 467**\
+`Scroll down for hints and conversation about the puzzle for Friday, Sept. 20, 2024.`\
+https://nytimes.com/2024/09/19/crosswords/connections-companion-467.html
 
-**They Combed the Co-ops of Upper Manhattan With $700,000 to Spend**\
-`With their first child on the way, a couple needed more space than they could afford on the Upper West Side. So they headed north.`\
-https://nytimes.com/interactive/2024/09/19/realestate/upper-manhattan-co-op-hunt.html
+**Wordle Review No. 1,189**\
+`Scroll down for hints and conversation about the puzzle for September 20, 2024.`\
+https://nytimes.com/2024/09/19/crosswords/wordle-review-1189.html
 
-**Harris Ahead in Pennsylvania and Tied Nationally? Unpacking an Unexpected Result.**\
-`Although it could simply reflect the normal variation of polling results, it may also point to a declining Trump edge in the Electoral College.`\
-https://nytimes.com/2024/09/19/upshot/harris-trump-poll-pennsylvania.html
+**Watching the Champions League in the middle of the U.S. working day**\
+`The Champions League is increasingly popular in the States but its kick-off times mean juggling watching with your job can be a challenge`\
+https://nytimes.com/athletic/5778589/2024/09/19/champions-league-watching-united-states/
 
-**After Fed Cuts Rates, Biden Will Claim Credit for Economy’s Strength**\
-`The president’s speech on Thursday won’t be a “victory lap,” officials said, but it will celebrate falling inflation and borrowing costs along with solid growth.`\
-https://nytimes.com/2024/09/19/us/politics/fed-rate-cuts-biden.html
+**They Said the Virgin Mary Appeared. The Vatican Is Finally Weighing In.**\
+`After decades, and controversy, the Vatican has authorized public worship at a shrine in Bosnia, where a once tranquil village has become a major pilgrimage site.`\
+https://nytimes.com/2024/09/19/world/europe/medjugorje-virgin-mary-vatican.html
 
