@@ -1,3 +1,31 @@
+**Inflation Is Ebbing. Now the Fed Must Protect Jobs.**\
+`The agency’s bold decision to cut its policy interest rate significantly affirms its commitment to keep the labor market strong.`\
+https://nytimes.com/2024/09/19/opinion/federal-reserve-rate-cut-unemployment.html
+
+**The Fed’s Big Rate Cut Wasn’t Political. It Was an Economic No-Brainer.**\
+`The cut was “jumbo.” The implications are bigger.`\
+https://nytimes.com/2024/09/19/opinion/interest-rates-federal-reserve.html
+
+**New York Philharmonic Players Reach Deal Raising Base Pay to $205,000**\
+`Under a new labor agreement, expected to be ratified Friday, the musicians will get a 30 percent raise over three years, making them among the highest paid in the country.`\
+https://nytimes.com/2024/09/19/arts/music/new-york-philharmonic-labor-deal.html
+
+**Need New York City Restaurant Advice? Send Us Your Questions.**\
+`Whether you’re looking for date night spots or birthday venues, the “Where to Eat: New York City” newsletter is here to help.`\
+https://nytimes.com/article/nyc-restaurant-questions.html
+
+**How to Make the Phone You Have Last Longer**\
+`You don't need a new phone every two years.`\
+https://nytimes.com/interactive/2024/09/19/smarter-living/wirecutter/phone-last-longer.html
+
+**Infantino calls emergency meeting with broadcasters over lack of FIFA Club World Cup deal**\
+`FIFA president Gianni Infantino has organised an emergency briefing with global television executives for Friday as he attempts to drum up interest in the FIFA Club World Cup, with the world governing body so far failing to announce a single broadcast deal for the tournament.`\
+https://nytimes.com/athletic/5779549/2024/09/19/fifa-club-world-cup-broadcast-rights/
+
+**What I’m hearing about how the Warriors’ are filling out their roster amid financial constraints**\
+`As the Warriors enter training camp, there will be a high bar to clear for those in the mix for a regular-season spot. `\
+https://nytimes.com/athletic/5774949/2024/09/19/warriors-training-camp-roster/
+
 **‘A Very Royal Scandal’ Is a Juicy British Drama**\
 `This taut and serious Amazon series chronicles the time when Prince Andrew was interviewed on TV about his relationship with Jeffrey Epstein.`\
 https://nytimes.com/2024/09/19/arts/television/a-very-royal-scandal-amazon.html
@@ -9,32 +37,4 @@ https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/in-first-r
 **Japanese Manufacturer Investigating Radios Used in Lebanon Attacks**\
 `The Japanese company, Icom, whose name was on handheld radios that exploded in Lebanon said it had discontinued the device a decade ago.`\
 https://nytimes.com/video/world/100000009706535/japan-radios-icom-lebanon.html
-
-**What’s Going On in This Graph? | Sept. 25, 2024**\
-`How have Las Vegas’s daily high summer temperatures and overnight low summer temperatures changed since 1950?`\
-https://nytimes.com/2024/09/19/learning/whats-going-on-in-this-graph-sept-25-2024.html
-
-**Why JD Vance Dropped Into My Inbox**\
-`I used to think I knew him. History has proved me wrong.`\
-https://nytimes.com/2024/09/19/opinion/jd-vance-hillbilly-elegy.html
-
-**OMG, Could the Mets Actually Pull This Off?**\
-`Mets fans have been here before, and they don’t want to jinx anything. But the good vibes — and the inexplicable presence of Grimace — is giving fans playoffs hope.`\
-https://nytimes.com/2024/09/19/nyregion/new-york-mets.html
-
-**Ukraine Says Russia Hit Nursing Home Near Border, Killing at Least 1**\
-`A dozen other people were injured, some seriously, in the attack in the city of Sumy, which has come under increased bombardment since Ukraine’s offensive into Russia’s nearby Kursk region.`\
-https://nytimes.com/2024/09/19/world/europe/ukraine-russia-nursing-home.html
-
-**Seider signs 7-year deal to stay with Red Wings: What it means**\
-`The Red Wings finally got a deal done with their franchise defenseman Thursday. What does it mean for Detroit?`\
-https://nytimes.com/athletic/5579280/2024/09/19/red-wings-moritz-seider-contract-extension/
-
-**Should You Refinance Your Mortgage After the Fed’s Interest Rate Cut?**\
-`People who bought homes in the past two years may want to seek a lower interest rate. Here’s how to think it through — and how to shop.`\
-https://nytimes.com/2024/09/19/business/mortgage-rates-refinance-fed-rate-cut.html
-
-**Mark Podwal, Prolific Artist of Jewish Themes, Dies at 79**\
-`His art included cartoons for The New York Times, collaborations with Elie Wiesel and images that traced the history of antisemitism. He was also a dermatologist.`\
-https://nytimes.com/2024/09/19/arts/mark-podwal-dead.html
 
