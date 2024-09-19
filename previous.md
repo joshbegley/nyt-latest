@@ -1,3 +1,7 @@
+**Dinamo Zagreb sack head coach Jakirovic**\
+`Dinamo Zagreb have sacked head coach Sergej Jakirovic two days after the club lost 9-2 against Bayern Munich in the Champions League.`\
+https://nytimes.com/athletic/5778766/2024/09/19/dinamo-zagreb-sack-head-coach-jakirovic/
+
 **Broncos offensive line's early struggles now compounded by key injury**\
 `Alex Palczewski will make his first start at right tackle in Week 3 after McGlinchey landed on IR with a knee injury.`\
 https://nytimes.com/athletic/5777292/2024/09/19/mike-mcglinchey-broncos-offensive-line/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/movies/all-shall-be-well-review.html
 **The Chargers' 'medieval' offensive line is showing off its physical dominance**\
 `NFL defenses are on notice: When it is time to face these Chargers, buckle up the chinstrap and prepare for a grueling 60 minutes.`\
 https://nytimes.com/athletic/5777693/2024/09/19/chargers-offensive-line-medieval-physical-dominance/
-
-**With new Vegas address, longtime Sharks center Tomáš Hertl is back to his old self**\
-`It took a while for Tomáš Hertl to come to terms with the end of last season. Now he's looking to the future with the Golden Knights.`\
-https://nytimes.com/athletic/5777888/2024/09/19/tomas-hertl-offseason-golden-knights/
 

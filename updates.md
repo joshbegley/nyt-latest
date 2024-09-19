@@ -1,3 +1,7 @@
+**Dinamo Zagreb sack head coach Jakirovic**\
+`Dinamo Zagreb have sacked head coach Sergej Jakirovic two days after the club lost 9-2 against Bayern Munich in the Champions League.`\
+https://nytimes.com/athletic/5778766/2024/09/19/dinamo-zagreb-sack-head-coach-jakirovic/
+
 **Broncos offensive line's early struggles now compounded by key injury**\
 `Alex Palczewski will make his first start at right tackle in Week 3 after McGlinchey landed on IR with a knee injury.`\
 https://nytimes.com/athletic/5777292/2024/09/19/mike-mcglinchey-broncos-offensive-line/
