@@ -1,3 +1,7 @@
+**Company Says It Is Investigating Radios Targeted in Lebanon Blasts**\
+`The Japanese electronics manufacturer Icom said it stopped making the walkie-talkie model in 2014 and has warned about fake versions for several years.`\
+https://nytimes.com/2024/09/19/business/icom-walkie-talkies-lebanon.html
+
 **Lack of depth costly as Twins bullpen melts down again in extra-innings loss to Guardians**\
 `The Twins find themselves in an undesirable location after a series of bullpen fiascoes.`\
 https://nytimes.com/athletic/5778472/2024/09/19/twins-lose-bullpen-depth-guardians/
