@@ -1,3 +1,11 @@
+**Goon Squad Violence Leads to Federal Investigation of Mississippi Sheriff’s Office**\
+`The Justice Department will determine if allegations of widespread violence and improper searches amount to a pattern  of discrimination in the department.`\
+https://nytimes.com/2024/09/19/us/goon-squad-mississippi-sheriffs-office.html
+
+**Tupperware (the Brand) May Fail. Tupperware (the Word) Will Survive.**\
+`The company behind the resealable containers filed for bankruptcy, but the term outgrew its origins decades ago.`\
+https://nytimes.com/2024/09/19/style/tupperware-bankruptcy.html
+
 **Nike C.E.O. John Donahoe Abruptly Retires Amid Declining Sales**\
 `Elliott Hill, an executive who left the company after Donahoe’s appointment in 2020, will return as chief executive, Nike’s board said.`\
 https://nytimes.com/2024/09/19/business/nike-elliott-hill-john-donahoe.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/world/middleeast/israel-bombards-hezbollah-as-gro
 **How the Robinson Report Could Affect the Presidential Race in North Carolina**\
 `A Democratic presidential candidate has not won North Carolina since 2008. But the drama around Lt. Gov. Mark Robinson, the Republican nominee for governor, is sure to bolster their hopes.`\
 https://nytimes.com/2024/09/19/us/politics/mark-robinson-cnn-report-presidential-race.html
-
-**Champions League briefing: Yamal dazzles Jordan, a wonder save and 'no-look' genius**\
-`The big talking points from the final night of games on matchweek 1 of this season's Champions League`\
-https://nytimes.com/athletic/5779940/2024/09/19/champions-league-lamine-yamal-michael-jordan/
-
-**In War-Torn Ukraine, a Manicure Can Be Its Own Kind of Protest**\
-`A Times journalist reported on scores of Ukrainian women who find solace in salons.`\
-https://nytimes.com/2024/09/19/insider/in-war-torn-ukraine-a-manicure-can-be-its-own-kind-of-protest.html
 
