@@ -1,11 +1,3 @@
-**Friday Briefing: Israel Bombards Hezbollah**\
-`Plus, French drag is here to stay.`\
-https://nytimes.com/2024/09/19/briefing/israel-lebanon-hezbollah-us-polls-ukraine.html
-
-**Texas City Opens Criminal Inquiry Into Crash That Caused Pipeline Fire**\
-`A vehicle crashed into a gas pipeline valve near Houston, exploding into a tower of flame that has burned for days. Investigators are now looking into whether it was more than an accident.`\
-https://nytimes.com/2024/09/19/us/houston-pipeline-fire-human-remains.html
-
 **Man Utd Under-21s to play selection of games at Salford's Peninsula Stadium**\
 `Manchester United&#8217;s under-21s are set to play a handful of games at Salford City&#8217;s Peninsula Stadium this season to ease the load on Leigh Sports Village, the team&#8217;s usual home venue.`\
 https://nytimes.com/athletic/5780111/2024/09/19/manchester-united-under-21s-salford/
@@ -37,4 +29,13 @@ https://nytimes.com/athletic/5779953/2024/09/19/blackhawks-training-camp-news/
 **Man Falsely Accused Fantasy Football Rival of Plotting Mass Shooting**\
 `Matthew Gabriel, 25, of Philadelphia, pleaded guilty to the mass shooting report made in Norway. He also admitted to a fake report of a bomb threat at the University of Iowa.`\
 https://nytimes.com/2024/09/19/us/philadelphia-fantasy-football-mass-shooting-threat.html
+
+**Maple Leafs could reap the rewards of William Nylander’s move to centre — if he can do it**\
+`Nylander is more valuable to Toronto playing the more essential, demanding position of centre than wing.
+`\
+https://nytimes.com/athletic/5780073/2024/09/19/maple-leafs-centre-william-nylander/
+
+**Alaska Man Charged With Threatening 6 Supreme Court Justices**\
+`It remained unclear whether the man, Panos Anastasiou, came close to carrying out his threats, and public records indicate that he is not affiliated with any political party.`\
+https://nytimes.com/2024/09/19/us/politics/supreme-court-justices-threats-fbi.html
 
