@@ -1,3 +1,19 @@
+**USC superfans adjusting to travel in the new Big Ten: 'It feels like a grind this year'**\
+`Several fans who attend every away game have estimated that they will spend twice as much on travel now that USC is in the Big Ten. `\
+https://nytimes.com/athletic/5778847/2024/09/19/usc-big-ten-realignment-impact-fans/
+
+**Mohamed al-Fayed, Former Harrods Owner, Accused of Raping 5 Women**\
+`Multiple former employees told the BBC they had been raped or sexually assaulted by the billionaire businessman, who died last year.`\
+https://nytimes.com/2024/09/19/world/europe/mohamed-al-fayed-harrods-rape.html
+
+**Five of the most important questions facing the Canadiens in training camp**\
+`The Canadiens have far more than five questions facing them this training camp, but these are the five most important.`\
+https://nytimes.com/athletic/5778522/2024/09/19/canadiens-training-camp-storylines/
+
+**Saudi Crown Prince Says No to Israel Ties Without Palestinian State**\
+`His comments reflect an apparent toughening of his views on an issue that could reshape the diplomatic map of the Middle East.`\
+https://nytimes.com/2024/09/19/world/middleeast/saudi-israel-relations.html
+
 **Listen: ‘A Quest for Cookie Monster’s Cookies’**\
 `In the season premiere of our newly updated weekly feature, students will listen to the story of one reporter's humorous odyssey into the world of muppet cookies.`\
 https://nytimes.com/2024/09/19/learning/listen-a-quest-for-cookie-monsters-cookies.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/09/19/us/trump-harris-election
 **What the Fed’s Big Rate Cut Reveals About the Economy**\
 `Investors have sent stocks and bonds higher on expectations of a soft landing. But some Republicans think the central bank overstepped its bounds.`\
 https://nytimes.com/2024/09/19/business/dealbook/fed-rates-soft-landing.html
-
-**Seahawks want to 'move people' in search of consistent run game**\
-`The Seahawks want the run game to be their bread and butter. They haven't seen enough success on the ground despite the 2-0 start.`\
-https://nytimes.com/athletic/5777923/2024/09/19/seattle-seahawks-miami-dolphins-week-3/
-
-**Memories converge for Jon Miller in his 50th season, as Giants visit Baltimore**\
-`Miller was let go by the Orioles nearly three decades ago, but he's still a beloved figure when he returns to the Charm City.`\
-https://nytimes.com/athletic/5778381/2024/09/19/jon-miller-sf-giants-orioles-50th-anniversary/
-
-**German football bidding to crack the U.S. market by signing up with media group Relevent**\
-`German football wants to increase TV revenue and play pre-season games in the U.S. Would this ever lead to competitive matches abroad?`\
-https://nytimes.com/athletic/5777553/2024/09/19/bundesliga-germany-football-soccer-relevent/
-
-**How Raiders' Robert Spillane has reached the next level of linebacker play**\
-`Spillane joined the likes of Roquan Smith, Ray Lewis and Patrick Willis with his 148-tackle, 3 1/2-sack, three-interception 2023 campaign.`\
-https://nytimes.com/athletic/5775031/2024/09/19/raiders-robert-spillane-linebacker/
 
