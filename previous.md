@@ -1,3 +1,7 @@
+**Atletico Madrid have spent €200m - but are they really a Champions League threat?**\
+`Diego Simeone's side still suffer from the hurt of losing two finals to Real Madrid, but hope and expectations are on the rise`\
+https://nytimes.com/athletic/5776384/2024/09/19/atletico-madrid-champions-league-diego-simeone-la-liga/
+
 **A clip from Arsenal's win over Spurs went viral. The only problem? It was faked**\
 `An animation involving the Arsenal cannon shooting the Spurs cockerel went viral on Sunday - it was not an official production`\
 https://nytimes.com/athletic/5773700/2024/09/19/arsenal-tottenham-premier-league-animation-viral/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/nyregion/nypd-shooting-brooklyn-subway.html
 **Iranian Hackers Sought to Pass Off Pilfered Information to Biden Team**\
 `The emails were part of a sweeping effort by Iran to steal and disseminate sensitive internal communications between aides working for former President Donald J. Trump.`\
 https://nytimes.com/2024/09/18/us/politics/iran-hacking-trump-biden.html
-
-**‘Beast Games’ Contestants File Lawsuit Claiming ‘Dangerous Conditions’ on Set**\
-`A group of people who participated in the reality competition show this summer are suing MrBeast’s production company.`\
-https://nytimes.com/2024/09/18/style/mrbeast-reality-show-lawsuit.html
 

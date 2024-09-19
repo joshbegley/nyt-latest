@@ -1,3 +1,7 @@
+**Atletico Madrid have spent €200m - but are they really a Champions League threat?**\
+`Diego Simeone's side still suffer from the hurt of losing two finals to Real Madrid, but hope and expectations are on the rise`\
+https://nytimes.com/athletic/5776384/2024/09/19/atletico-madrid-champions-league-diego-simeone-la-liga/
+
 **A clip from Arsenal's win over Spurs went viral. The only problem? It was faked**\
 `An animation involving the Arsenal cannon shooting the Spurs cockerel went viral on Sunday - it was not an official production`\
 https://nytimes.com/athletic/5773700/2024/09/19/arsenal-tottenham-premier-league-animation-viral/
