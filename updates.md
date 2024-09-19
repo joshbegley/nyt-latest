@@ -1,3 +1,7 @@
+**Iranian Hackers Sought to Pass Off Pilfered Information to Biden Team**\
+`The emails were part of a sweeping effort by Iran to steal and disseminate sensitive internal communications between aides working for former President Donald J. Trump.`\
+https://nytimes.com/2024/09/18/us/politics/iran-hacking-trump-biden.html
+
 **‘Agatha All Along’ Review: Toil and Trouble**\
 `Marvel’s “WandaVision” spinoff has more witchcraft but less magic.`\
 https://nytimes.com/2024/09/18/arts/television/agatha-all-along-review.html
