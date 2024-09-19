@@ -1,3 +1,15 @@
+**The Octagon Inside the Sphere: Bloody Fights and Soaring Films**\
+`To amplify the first live athletic competition at the Las Vegas landmark, the Ultimate Fighting Championship turned to Hollywood.`\
+https://nytimes.com/2024/09/19/arts/sphere-las-vegas-ufc.html
+
+**Trump Media Stock Tumbles as Big Shareholders Are Soon Free to Sell**\
+`Donald J. Trump, the company’s largest shareholder, has said he won’t sell when a lockup agreement expires on Thursday. But other large investors could.`\
+https://nytimes.com/2024/09/19/business/trump-media-lockup-expires.html
+
+**Backlash Erupts Over Europe’s Anti-Deforestation Law**\
+`Leaders around the world are asking the European Union to delay rules that would require companies to police their global supply chains.`\
+https://nytimes.com/2024/09/19/business/european-union-deforestation.html
+
 **Crispy Gnocchi Is the Best Gnocchi**\
 `Especially when it’s tossed with spinach, feta and tons of herbs.`\
 https://nytimes.com/2024/09/19/dining/crispy-gnocchi-is-the-best-gnocchi.html
