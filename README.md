@@ -1,3 +1,7 @@
+**Julio Rodriguez's big mistake helped Yankees clinch a playoff spot: 'Kind of a freak thing'**\
+`The Yankees seemed to celebrate extra hard since many of them were on last year’s team that missed the playoffs.`\
+https://nytimes.com/athletic/5778555/2024/09/19/yankees-clinch-playoff-spot/
+
 **How to Own Something by the Punk Poet Jun Takahashi**\
 `GU, Uniqlo’s trendier sibling, is opening its first store outside Asia in SoHo, collaborating with the subversively witty Jun Takahashi of Undercover.`\
 https://nytimes.com/2024/09/19/style/jun-takahashi-collaboration-gu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5776713/2024/09/19/brighton-wolves-adingra-lamptey/
 **Inside Arteta's managerial mindset - Pictionary, pickpockets and 'collaboretition'**\
 `Arteta leaves no stone unturned when it comes to preparation, both on and off the pitch - as one of his former right-hand men explains`\
 https://nytimes.com/athletic/5766723/2024/09/19/arteta-arsenalmethodology-balvers/
-
-**Tropical Storm Pulasan Nears Shanghai, Days After Typhoon Hit City**\
-`Pulasan was expected to make landfall near the Chinese financial hub by Friday morning. Forecasters warned of potential floods and landslides.`\
-https://nytimes.com/2024/09/19/world/asia/tropical-storm-pulasan-shanghai.html
 
