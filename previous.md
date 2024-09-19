@@ -1,3 +1,7 @@
+**Trump’s Allies Try to Revive Push to Make Nebraska Winner-Take-All Electorally**\
+`Nebraska could deliver a critical electoral vote to Vice President Kamala Harris under its hybrid system of splitting votes in an otherwise red state.`\
+https://nytimes.com/2024/09/19/us/politics/trump-allies-nebraska-voting.html
+
 **It’s Groundhog Day. It’s Anti-Woke Week. It’s Messaging Bill Fall.**\
 `Lawmakers are forcing each other to take unpopular votes on bills destined to go nowhere.`\
 https://nytimes.com/2024/09/19/us/politics/government-shutdown-mark-robinson-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009707506/ohio-girl-target-dashcam.html
 **Top Georgia Republican’s Texts Highlight the Party’s Deep Divide on Trump**\
 `Messages sent by Lt. Gov. Burt Jones of Georgia, a Trump ally, show the state party’s leadership fracturing in real time after the 2020 election.`\
 https://nytimes.com/2024/09/19/us/georgia-burt-jones-texts-trump.html
-
-**North Carolina’s Mark Robinson has a long history of offensive remarks.**\
-`On social media and the campaign trail, the Republican candidate for governor has made inflammatory comments about abortion and condemned members of the L.G.B.T.Q. community.`\
-https://nytimes.com/live/2024/09/19/us/trump-harris-election/robinson-north-carolina
 

@@ -1,3 +1,11 @@
+**Quote of the Day: California Mountain Town Residents Defy Risks**\
+`Quotation of the Day for Thursday, September 19, 2024`\
+https://nytimes.com/2024/09/19/pageoneplus/quote-of-the-day-california-mountain-town-residents-defy-risks.html
+
+**Giants officially eliminated from the postseason in walk-off loss at Baltimore**\
+`It was a foregone conclusion for weeks, but the Giants officially saw their postseason chances reach zero in another heartbreaking loss.`\
+https://nytimes.com/athletic/5780757/2024/09/19/sf-giants-postseason-elimination/
+
 **Trump’s Allies Try to Revive Push to Make Nebraska Winner-Take-All Electorally**\
 `Nebraska could deliver a critical electoral vote to Vice President Kamala Harris under its hybrid system of splitting votes in an otherwise red state.`\
 https://nytimes.com/2024/09/19/us/politics/trump-allies-nebraska-voting.html
@@ -7,7 +15,7 @@ https://nytimes.com/2024/09/19/us/politics/trump-allies-nebraska-voting.html
 https://nytimes.com/2024/09/19/us/politics/government-shutdown-mark-robinson-election.html
 
 **Dodgers' Shohei Ohtani reaches 50-50 in spectacular style**\
-`MIAMI – In the first season of a record-setting contract, without throwing a single pitch, Shohei Ohtani found a new way to amaze.`\
+`Ohtani had a monster day, stealing two bags and hitting two home runs on his way to achieving history.`\
 https://nytimes.com/athletic/5780813/2024/09/19/dodgers-mlb-ohtani-50-50/
 
 **What Teenagers Are Saying About Parents Paying Their Children to Read**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/business/nike-elliott-hill-john-donahoe.html
 **Blues roster projection: How the depth chart is shaping up after Day 1 of training camp**\
 `The Blues provided some hints as to what they're thinking for their opening-night lineup on the first day of training camp.`\
 https://nytimes.com/athletic/5779855/2024/09/19/blues-roster-projection-training-camp/
-
-**Dash Cam Footage Shows an 8-Year-Old Driving to Target**\
-`The police in Bedford, Ohio, later found the girl inside the store, and her family was summoned to pick her up, according to the police report.`\
-https://nytimes.com/video/us/100000009707506/ohio-girl-target-dashcam.html
-
-**Top Georgia Republican’s Texts Highlight the Party’s Deep Divide on Trump**\
-`Messages sent by Lt. Gov. Burt Jones of Georgia, a Trump ally, show the state party’s leadership fracturing in real time after the 2020 election.`\
-https://nytimes.com/2024/09/19/us/georgia-burt-jones-texts-trump.html
 

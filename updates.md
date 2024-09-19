@@ -1,3 +1,7 @@
+**Trump’s Allies Try to Revive Push to Make Nebraska Winner-Take-All Electorally**\
+`Nebraska could deliver a critical electoral vote to Vice President Kamala Harris under its hybrid system of splitting votes in an otherwise red state.`\
+https://nytimes.com/2024/09/19/us/politics/trump-allies-nebraska-voting.html
+
 **It’s Groundhog Day. It’s Anti-Woke Week. It’s Messaging Bill Fall.**\
 `Lawmakers are forcing each other to take unpopular votes on bills destined to go nowhere.`\
 https://nytimes.com/2024/09/19/us/politics/government-shutdown-mark-robinson-election.html
