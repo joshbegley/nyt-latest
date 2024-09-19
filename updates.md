@@ -1,3 +1,7 @@
+**How voters are reacting to the latest incendiary comments attributed to Lt. Gov. Mark Robinson**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/09/19/us/trump-harris-election/how-voters-are-reacting-to-the-latest-incendiary-comments-attributed-to-lt-gov-mark-robinson
+
 **What we saw and learned on Day 1 of Jets training camp**\
 `Covering Scott Arniel's line combinations, Cole Perfetti's absence, key roster battles and more.`\
 https://nytimes.com/athletic/5780484/2024/09/19/winnipeg-jets-training-camp-2024-day-1/
