@@ -1,3 +1,7 @@
+**Martial completes AEK Athens move**\
+`Anthony Martial has signed for AEK Athens on a free transfer following his departure from Manchester United in the summer.`\
+https://nytimes.com/athletic/5642967/2024/09/19/anthony-martial-aek-athens/
+
 **Vegetarian Standouts From Our List of Cooking Favorites**\
 `Jollof rice, chile crisp fettuccine Alfredo, sheet-pan gnocchi and plenty more meatless marvels.`\
 https://nytimes.com/2024/09/19/dining/vegetarian-standouts-from-our-list-of-cooking-favorites.html
