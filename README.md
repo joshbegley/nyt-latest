@@ -1,3 +1,7 @@
+**Party Animal**\
+`Josh Goodman has some good advice for us.`\
+https://nytimes.com/2024/09/18/crosswords/daily-puzzle-2024-09-19.html
+
 **‘Agatha All Along’ Review: Toil and Trouble**\
 `Marvel’s “WandaVision” spinoff has more witchcraft but less magic.`\
 https://nytimes.com/2024/09/18/arts/television/agatha-all-along-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/world/middleeast/un-israel-occupation-palestinian
 **It’s the Economic Vibe, Stupid**\
 `Polling shows voters feel persistently sour about the economy, a confounding dynamic for Democrats.`\
 https://nytimes.com/2024/09/18/us/politics/fed-economy-harris-trump.html
-
-**Trump’s Bogus Claims About Haitians Are Part of a Bigger Agenda**\
-`The Springfield fable is part of a crusade to throw immigrants out of the country.`\
-https://nytimes.com/2024/09/18/opinion/trump-haitians-immigration-springfield.html
 
