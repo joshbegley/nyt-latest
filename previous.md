@@ -1,3 +1,7 @@
+**Jimmy Fallon: With Trump in Town, New York Is ‘a Lot More Florida’**\
+`The “Tonight Show” host quipped about the former president’s rally in Long Island on Wednesday.`\
+https://nytimes.com/2024/09/19/arts/television/jimmy-fallon-trump-long-island.html
+
 **Why has Guardiola started making double substitutions at half-time?**\
 `Pep Guardiola is sometimes criticised for his reluctance to make personnel changes but he has altered his approach in the past two games`\
 https://nytimes.com/athletic/5777868/2024/09/19/pep-guardiola-half-time-substitutions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774137/2024/09/19/nottingham-forest-landmark-goals
 **Bettinelli, Chelsea's bridge between players and staff: 'I am just part of the puzzle'**\
 `Marcus Bettinelli has a leadership role at Chelsea despite his limited competitive action for the club`\
 https://nytimes.com/athletic/5773403/2024/09/19/marcus-bettinelli-chelsea-interview/
-
-**What should you do with a non-performing FPL player?**\
-`One of the biggest success factors in Fantasy Premier League is the timing of when to buy and sell players - should you keep Morgan Rogers?`\
-https://nytimes.com/athletic/5774227/2024/09/19/fantasy-premier-league-selling-morgan-rogers-goals-assists/
 

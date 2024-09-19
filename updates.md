@@ -1,3 +1,7 @@
+**Jimmy Fallon: With Trump in Town, New York Is ‘a Lot More Florida’**\
+`The “Tonight Show” host quipped about the former president’s rally in Long Island on Wednesday.`\
+https://nytimes.com/2024/09/19/arts/television/jimmy-fallon-trump-long-island.html
+
 **Why has Guardiola started making double substitutions at half-time?**\
 `Pep Guardiola is sometimes criticised for his reluctance to make personnel changes but he has altered his approach in the past two games`\
 https://nytimes.com/athletic/5777868/2024/09/19/pep-guardiola-half-time-substitutions/
