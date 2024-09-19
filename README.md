@@ -1,3 +1,15 @@
+**A New Era in Sabotage: Turning Ordinary Devices Into Grenades, on a Mass Scale**\
+`The attacks in Lebanon required getting deep into the supply chain, which is difficult to do. But the sabotage contributes to a sense of vulnerability that ordinary devices can become a source of danger.`\
+https://nytimes.com/2024/09/19/us/politics/israel-hezbollah-pager-attacks.html
+
+**Stocks Rally a Day After Fed’s Big Interest Rate Cut**\
+`The S&P 500 had already been climbing as investors grew more confident that the Federal Reserve would cut interest rates by half a percentage point. Thursday’s gain put the index in range of a closing record.`\
+https://nytimes.com/2024/09/19/business/stock-market-federal-reserve.html
+
+**Kamala Harris and Oprah Winfrey to Stream Event From Michigan**\
+`The two are meeting in a suburb of Detroit at a virtual event called “Unite for America,” which will featured members of some of the online groups that have coalesced around Ms. Harris.`\
+https://nytimes.com/2024/09/19/us/politics/kamala-harris-oprah-winfrey.html
+
 **With Retirement from ESPN, ‘Woj’ Leaves a Changed Sports Media World**\
 `At ESPN, Adrian Wojnarowski leveraged social media to get the news out quicker. That skill made him rich and famous. He will manage the basketball team at St. Bonaventure University.`\
 https://nytimes.com/2024/09/19/sports/basketball/adrian-wojnarowski-retires-espn.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/19/opinion/kamala-harris-positions.html
 **Hojlund & Mount in contention to play at Palace - Ten Hag**\
 `Rasmus Hojlund and Mason Mount are in contention to feature against Crystal Palace, but Erik ten Hag will make a late call ahead of the trip to Selhurst Park.`\
 https://nytimes.com/athletic/5779571/2024/09/19/rasmus-hojlund-mason-mount-injuries/
-
-**Threats Against Haitians Land at the Doorstep of The Haitian Times**\
-`Racist emails. Swatting. Intimidated sources. The Haitian Times has been receiving some of the same threats that it has been covering in Springfield, Ohio.`\
-https://nytimes.com/2024/09/19/business/media/haitian-times-threats-springfield-trump.html
-
-**Assault on Mali’s Capital Killed 50 or More, but Leaders Say Little**\
-`Days after the West African country’s ruling military was ambushed by Islamist rebels, it has sought to hide the true extent of the carnage.`\
-https://nytimes.com/2024/09/19/world/africa/mali-bamako-attack-jnim.html
-
-**Hamilton calls out FIA president for 'very stereotypical' comments on foul language**\
-`Lewis Hamilton may agree that the foul language expressed on Formula One team radios should be cleaned up.`\
-https://nytimes.com/athletic/5779558/2024/09/19/lewis-hamilton-mohammed-ben-sulayem-swearing/
 
