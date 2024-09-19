@@ -1,3 +1,15 @@
+**With 50th steal, Shohei Ohtani now just 2 homers away from 50-50 season**\
+`Ohtani's base running has improved in the years since his MLB debut and his abilities have been on full display this year.`\
+https://nytimes.com/athletic/5780469/2024/09/19/shohei-ohtani-50th-steal-dodgers/
+
+**Israel Bombards Lebanon After Hezbollah Vowed Retaliation**\
+`Plus, a record day for stocks.`\
+https://nytimes.com/2024/09/19/briefing/lebanon-israel-hezbollah-stocks-harris-trump-guantanamo.html
+
+**The Briefing: Monaco 2 Barcelona 1 - A comedy of errors, Yamal stars in front of Jordan, unlucky Pedri**\
+`In an eventful game at Stade Louis II, there were errors, a red card and goals. Here we break down the action`\
+https://nytimes.com/athletic/5773839/2024/09/19/monaco-barcelona-yamal-champions-league/
+
 **Monaco 2 Barcelona 1 - A comedy of errors; Yamal stars in front of Jordan; unlucky Pedri**\
 `In an eventful game at Stade Louis II, there were errors, a red card and goals - here we break down the action.`\
 https://nytimes.com/athletic/5773839/2024/09/19/monaco-barcelona-yamal-champions-league/
