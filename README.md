@@ -1,3 +1,11 @@
+**The Athletic FC: Arteta and 'collaboretition, Champions League calamities, injury updates**\
+`Today in TAFC: How Arteta gets through to his players, a bizarre backheel in the Champions League. Plus: A tribute to Toto Schillaci.`\
+https://nytimes.com/athletic/5778693/2024/09/19/arteta-and-collaboretition-champions-league-calamities-de-bruyne-injury-update/
+
+**Daniel Ricciardo expects call on F1 future after Singapore amid questions about rest of season**\
+`RB is set to decide between Ricciardo and Liam Lawson for its remaining 2025 seat in the coming days.`\
+https://nytimes.com/athletic/5778745/2024/09/19/daniel-ricciardo-f1-2025-red-bull-rb/
+
 **Dinamo Zagreb sack head coach Jakirovic**\
 `Dinamo Zagreb have sacked head coach Sergej Jakirovic two days after the club lost 9-2 against Bayern Munich in the Champions League.`\
 https://nytimes.com/athletic/5778766/2024/09/19/dinamo-zagreb-sack-head-coach-jakirovic/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/movies/the-featherweight-review.html
 **‘Eureka’ Review: No More Cowboys and Indians**\
 `This intriguingly languorous Western by the Argentine director Lisandro Alonso explores the existential plight of Indigenous Americans in  three separate timelines.`\
 https://nytimes.com/2024/09/19/movies/eureka-review.html
-
-**‘All Shall Be Well’ Review: Aching With Absence**\
-`The indignity of being someone’s spouse while they are alive and merely a friend after their death is the theme of this extraordinarily moving Hong Kong drama.`\
-https://nytimes.com/2024/09/19/movies/all-shall-be-well-review.html
-
-**The Chargers' 'medieval' offensive line is showing off its physical dominance**\
-`NFL defenses are on notice: When it is time to face these Chargers, buckle up the chinstrap and prepare for a grueling 60 minutes.`\
-https://nytimes.com/athletic/5777693/2024/09/19/chargers-offensive-line-medieval-physical-dominance/
 
