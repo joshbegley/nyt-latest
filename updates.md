@@ -1,3 +1,15 @@
+**Pager Attack Highlights Tension Between Israel’s Technical Might and Strategic Fog**\
+`In Gaza, Lebanon and Iran, Israel has shown it’s capable of extraordinary acts of espionage, but is struggling to define long-term goals, according to Israeli analysts and public figures.`\
+https://nytimes.com/2024/09/19/world/middleeast/israel-hezbollah-lebanon-hamas-gaza.html
+
+**Chelsea defender Fox suffers ACL injury**\
+`Chelsea Women right-back Jorja Fox, on loan at Crystal Palace, is set for an extended period on the sidelines after sustaining an anterior cruciate ligament (ACL) injury.`\
+https://nytimes.com/athletic/5779119/2024/09/19/jorja-fox-chelsea-acl-injury/
+
+**The Author of ‘Impossible Creatures’ Tucks Big Ideas in Tales of Wonder**\
+`Katherine Rundell said children can handle hefty themes, but finds it “bad manners to offer a child a story and give them just a moral.”`\
+https://nytimes.com/2024/09/19/sports/katherine-rundell-impossible-creatures.html
+
 **F.T.C. Study Finds ‘Vast Surveillance’ of Social Media Users**\
 `Meta, YouTube and other sites collected more data than most users realized, a new report by the Federal Trade Commission finds.`\
 https://nytimes.com/2024/09/19/technology/ftc-meta-tiktok-privacy-surveillance.html
