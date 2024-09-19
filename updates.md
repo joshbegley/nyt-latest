@@ -1,3 +1,7 @@
+**Ex-C.I.A. Officer Gets 30 Years for Drugging and Sexually Assaulting Women**\
+`The former officer, Brian Jeffrey Raymond, admitted that he had sexually assaulted and photographed dozens of women in the United States and overseas, prosecutors said.`\
+https://nytimes.com/2024/09/19/us/brian-jeffrey-raymond-cia-sexual-assault.html
+
 **We Answer Your Very Specific Restaurant Questions**\
 `Pasta for carb loading, options for first dates, dinner before a concert at Madison Square Garden and more urgent needs.`\
 https://nytimes.com/2024/09/19/dining/we-answer-your-very-specific-restaurant-questions.html
