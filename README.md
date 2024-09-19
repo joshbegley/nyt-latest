@@ -1,3 +1,19 @@
+**Pete Buttigieg Plays Vance in Walz’s Debate Prep**\
+`The transportation secretary, who acted as Mike Pence during Kamala Harris’s preparations for the 2020 vice-presidential debate, is again helping out as Tim Walz gets ready for his Oct. 1 clash.`\
+https://nytimes.com/2024/09/19/us/politics/pete-buttigieg-jd-vance-walz-debate-prep.html
+
+**Branthwaite nearing return from injury - Dyche**\
+`Everton manager Sean Dyche is hopeful of a double injury boost with Jarrad Branthwaite and Nathan Patterson close to making their returns to full fitness, but resources remain very stretched ahead of this weekend&#8217;s trip to Leicester City.`\
+https://nytimes.com/athletic/5779044/2024/09/19/jarrad-branthwaite-everton-injury-sean-dyche/
+
+**Legal Watchdog Group Warns Pro-Trump Lawyers Against Subverting Democracy in November**\
+`New ads running in legal journals are warning lawyers: “Don’t lose your law license because of Trump.”`\
+https://nytimes.com/2024/09/19/us/politics/legal-watchdog-group-warns-pro-trump-lawyers-against-subverting-democracy-in-november.html
+
+**Five big questions the Kings must answer as training camp opens**\
+`Can the Kings chart a different ending this season? These are the questions that will help determine their success.`\
+https://nytimes.com/athletic/5778560/2024/09/19/la-kings-camp-preseason/
+
 **Scoop City: Bills, Texans the No. 1 contender?**\
 `A look at the new No. 1 contender to the Chiefs throne, plus an update on Jordan Love and Jets-Patriots preview.`\
 https://nytimes.com/athletic/5779183/2024/09/19/scoop-city-bills-texans-the-no-1-contender/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/19/technology/ftc-meta-tiktok-privacy-surveillance.h
 **Research That Led to Obesity Drugs Wins Major Medical Prize**\
 `Three scientists were recognized by the Lasker Awards for their work on the GLP-1 hormone. Others were honored for work to stop H.I.V. and for immune system discoveries.`\
 https://nytimes.com/2024/09/19/health/2024-lasker-awards-ozempic-wegovy-glp-1.html
-
-**Amazon Joins Hollywood’s Top Lobbying Group**\
-`The Motion Picture Association has been wooing the company for years. The addition gives the group a lot more muscle.`\
-https://nytimes.com/2024/09/19/business/amazon-joins-motion-picture-association.html
-
-**Former Arsenal striker Emmanuel-Thomas charged after £600,000 of cannabis seized**\
-`Former Arsenal striker Jay Emmanuel-Thomas has been charged following the seizure of cannabis worth an estimated £600,000.`\
-https://nytimes.com/athletic/5778727/2024/09/19/jay-emmanuel-thomas-arrest-cannabis-arsenal/
-
-**USC superfans adjusting to travel in the new Big Ten: 'It feels like a grind this year'**\
-`Several fans who attend every away game have estimated that they will spend twice as much on travel now that USC is in the Big Ten. `\
-https://nytimes.com/athletic/5778847/2024/09/19/usc-big-ten-realignment-impact-fans/
-
-**Mohamed al-Fayed, Former Harrods Owner, Accused of Raping 5 Women**\
-`Multiple former employees told the BBC they had been raped or sexually assaulted by the billionaire businessman, who died last year.`\
-https://nytimes.com/2024/09/19/world/europe/mohamed-al-fayed-harrods-rape.html
 
