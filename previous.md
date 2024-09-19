@@ -1,3 +1,7 @@
+**In first remarks since attacks, Hezbollah leader promises to retaliate against Israel.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/in-first-remarks-since-attacks-hezbollah-leader-promises-to-retaliate-against-israel
+
 **Japanese Manufacturer Investigating Radios Used in Lebanon Attacks**\
 `The Japanese company, Icom, whose name was on handheld radios that exploded in Lebanon said it had discontinued the device a decade ago.`\
 https://nytimes.com/video/world/100000009706535/japan-radios-icom-lebanon.html
@@ -11,7 +15,7 @@ https://nytimes.com/2024/09/19/learning/whats-going-on-in-this-graph-sept-25-202
 https://nytimes.com/2024/09/19/opinion/jd-vance-hillbilly-elegy.html
 
 **OMG, Could the Mets Actually Pull This Off?**\
-`Mets fans have been here before, and they don’t want to jinx anything. But the mix of good vibes and mysterious voodoo — and the inexplicable presence of Grimace — is giving fans playoffs hope.`\
+`Mets fans have been here before, and they don’t want to jinx anything. But the good vibes — and the inexplicable presence of Grimace — is giving fans playoffs hope.`\
 https://nytimes.com/2024/09/19/nyregion/new-york-mets.html
 
 **Ukraine Says Russia Hit Nursing Home Near Border, Killing at Least 1**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/arts/mark-podwal-dead.html
 **Venezuela’s Opposition Leader Says He Was Forced to Recognize Maduro**\
 `Edmundo González said the government made him sign a document recognizing President Nicolás Maduro as the election winner before he could flee to Spain.`\
 https://nytimes.com/2024/09/19/world/americas/venezuela-letter-edmundo-gonzalez.html
-
-**The Frick Collection Looks to London For Next Leader**\
-`Axel Rüger, the head of the Royal Academy of Arts, will replace Ian Wardropper next spring as the museum’s director.`\
-https://nytimes.com/2024/09/19/arts/design/frick-collection-director-axel-ruger-royal-academy.html
 

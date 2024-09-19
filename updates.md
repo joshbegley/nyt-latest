@@ -1,3 +1,11 @@
+**In first remarks since attacks, Hezbollah leader promises to retaliate against Israel.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/in-first-remarks-since-attacks-hezbollah-leader-promises-to-retaliate-against-israel
+
+**OMG, Could the Mets Actually Pull This Off?**\
+`Mets fans have been here before, and they don’t want to jinx anything. But the good vibes — and the inexplicable presence of Grimace — is giving fans playoffs hope.`\
+https://nytimes.com/2024/09/19/nyregion/new-york-mets.html
+
 **Japanese Manufacturer Investigating Radios Used in Lebanon Attacks**\
 `The Japanese company, Icom, whose name was on handheld radios that exploded in Lebanon said it had discontinued the device a decade ago.`\
 https://nytimes.com/video/world/100000009706535/japan-radios-icom-lebanon.html
