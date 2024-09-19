@@ -1,5 +1,9 @@
+**MLB bullpen report: Luke Weaver's workload patterns and more intel for your fantasy playoff push**\
+`Greg Jewett offers his final look at the MLB bullpen hierarchies as fantasy baseball managers make their postseason push.`\
+https://nytimes.com/athletic/5779498/2024/09/19/mlb-bullpen-report-luke-weaver-fantasy-baseball-saves/
+
 **Leicester held Premier League talks over 'awful' VAR error - Cooper**\
-`Leicester City have been in contact with the Premier League to express their frustration over a controversial video assistant referee (VAR) decision during last weekend&#8217;s 2-2 draw with Crystal Palace, according to manager Steve Cooper.`\
+`Leicester City met with the Premier League to express their frustration over a controversial video assistant referee (VAR) decision during last weekend&#8217;s draw with Crystal Palace.`\
 https://nytimes.com/athletic/5779117/2024/09/19/leicester-var-steve-cooper/
 
 **Disney Animation Boss Steps Down to Focus on ‘Frozen’ Sequels**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/business/european-union-deforestation.html
 **Crispy Gnocchi Is the Best Gnocchi**\
 `Especially when it’s tossed with spinach, feta and tons of herbs.`\
 https://nytimes.com/2024/09/19/dining/crispy-gnocchi-is-the-best-gnocchi.html
-
-**Man Utd sign teenagers Lusale and Overy**\
-`Manchester United have completed the signings of teenagers Samuel Lusale and James Overy.`\
-https://nytimes.com/athletic/5779334/2024/09/19/manchester-united-transfers-lusale-overy/
 
