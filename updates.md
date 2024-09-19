@@ -1,3 +1,11 @@
+**Goon Squad Violence Leads to Federal Investigation of Mississippi Sheriff’s Office**\
+`The Justice Department will determine if allegations of widespread violence and improper searches amount to a pattern  of discrimination in the department.`\
+https://nytimes.com/2024/09/19/us/goon-squad-mississippi-sheriffs-office.html
+
+**Tupperware (the Brand) May Fail. Tupperware (the Word) Will Survive.**\
+`The company behind the resealable containers filed for bankruptcy, but the term outgrew its origins decades ago.`\
+https://nytimes.com/2024/09/19/style/tupperware-bankruptcy.html
+
 **Nike C.E.O. John Donahoe Abruptly Retires Amid Declining Sales**\
 `Elliott Hill, an executive who left the company after Donahoe’s appointment in 2020, will return as chief executive, Nike’s board said.`\
 https://nytimes.com/2024/09/19/business/nike-elliott-hill-john-donahoe.html
