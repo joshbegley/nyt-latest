@@ -1,3 +1,7 @@
+**Tropical Storm Pulasan Nears Shanghai, Days After Typhoon Hit City**\
+`Pulasan was expected to make landfall near the Chinese financial hub by Friday morning. Forecasters warned of potential floods and landslides.`\
+https://nytimes.com/2024/09/19/world/asia/tropical-storm-pulasan-shanghai.html
+
 **Could this be a turning point for Ange Postecoglou's Tottenham?**\
 `Tottenham very nearly lost their League Cup tie at Coventry. They arguably deserved to lose it. Could their late victory spark a revival?`\
 https://nytimes.com/athletic/5771160/2024/09/19/tottenham-coventry-postecoglou/

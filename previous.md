@@ -1,3 +1,7 @@
+**Tropical Storm Pulasan Nears Shanghai, Days After Typhoon Hit City**\
+`Pulasan was expected to make landfall near the Chinese financial hub by Friday morning. Forecasters warned of potential floods and landslides.`\
+https://nytimes.com/2024/09/19/world/asia/tropical-storm-pulasan-shanghai.html
+
 **Could this be a turning point for Ange Postecoglou's Tottenham?**\
 `Tottenham very nearly lost their League Cup tie at Coventry. They arguably deserved to lose it. Could their late victory spark a revival?`\
 https://nytimes.com/athletic/5771160/2024/09/19/tottenham-coventry-postecoglou/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5777252/2024/09/19/new-york-yankees-clinch-playoffs
 **Company Says It Is Investigating Radios Targeted in Lebanon Blasts**\
 `The Japanese electronics manufacturer Icom said it stopped making the walkie-talkie model in 2014 and has warned about fake versions for several years.`\
 https://nytimes.com/2024/09/19/business/icom-walkie-talkies-lebanon.html
-
-**Barnes, Gordon and Newcastle's left-wing dilemma**\
-`Two of Newcastle's most exciting attackers want to play in the same position, so what are Eddie Howe's options?`\
-https://nytimes.com/athletic/5775817/2024/09/19/barnes-gordon-newcastle-left-wing/
 
