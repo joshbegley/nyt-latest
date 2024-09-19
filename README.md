@@ -1,3 +1,11 @@
+**Leicester held Premier League talks over 'awful' VAR error - Cooper**\
+`Leicester City have been in contact with the Premier League to express their frustration over a controversial video assistant referee (VAR) decision during last weekend&#8217;s 2-2 draw with Crystal Palace, according to manager Steve Cooper.`\
+https://nytimes.com/athletic/5779117/2024/09/19/leicester-var-steve-cooper/
+
+**Disney Animation Boss Steps Down to Focus on ‘Frozen’ Sequels**\
+`Walt Disney Animation Studios is replacing Jennifer Lee, its chief creative officer, after an uneven six-year tenure.`\
+https://nytimes.com/2024/09/19/business/jennifer-lee-disney-animation-frozen.html
+
 **Asphalt Schoolyards Get a Shady Makeover**\
 `Schools across the country are adding trees, tent-like structures and water to their playgrounds as temperatures soar.`\
 https://nytimes.com/2024/09/19/climate/school-playgrounds-shade-heat.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/dining/crispy-gnocchi-is-the-best-gnocchi.html
 **Man Utd sign teenagers Lusale and Overy**\
 `Manchester United have completed the signings of teenagers Samuel Lusale and James Overy.`\
 https://nytimes.com/athletic/5779334/2024/09/19/manchester-united-transfers-lusale-overy/
-
-**After Trump Assassination Attempts, Congress Debates Secret Service Funding**\
-`Virtually everyone on Capitol Hill agrees that the Secret Service needs to do a better job. But Democrats and Republicans are at odds over whether to increase the agency’s budget.`\
-https://nytimes.com/2024/09/19/us/politics/secret-service-funding-congress.html
-
-**Arsenal's Dowman, 14, becomes youngest UEFA Youth League scorer**\
-`Arsenal midfielder Max Dowman has become the youngest player ever to score in a UEFA Youth League game.`\
-https://nytimes.com/athletic/5779247/2024/09/19/arsenal-max-dowman-record/
 
