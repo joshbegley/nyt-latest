@@ -1,3 +1,11 @@
+**Nintendo and Pokémon Sue Palworld Maker for Patent Infringement**\
+`Palworld, a video game mocked as “Pokémon with guns,” became one of the most popular games in the world when it was released in January.`\
+https://nytimes.com/2024/09/19/arts/nintendo-pokemon-lawsuit-pocketpair-palworld.html
+
+**What’s the True Price of a School Lunch?**\
+`An emerging body of research aims to put dollar figures on the environmental costs of foods we eat everyday.`\
+https://nytimes.com/2024/09/19/climate/true-cost-accounting-food-prices.html
+
 **An Israeli man is charged with meeting with Iranian agents and discussing a plot to kill Netanyahu.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/an-israeli-man-is-charged-with-meeting-with-iranian-agents-and-discussing-a-plot-to-kill-netanyahu
