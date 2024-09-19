@@ -1,3 +1,19 @@
+**The Frick Collection Looks to London For Next Leader**\
+`Axel Rüger, the head of the Royal Academy of Arts, will replace Ian Wardropper next spring as the museum’s director.`\
+https://nytimes.com/2024/09/19/arts/design/frick-collection-director-axel-ruger-royal-academy.html
+
+**Prehistoric Earth Was Very Hot. That Offers Clues About Future Earth.**\
+`At times during the past half-billion years, carbon dioxide warmed our planet more than previously thought, according to a new reconstruction of Earth’s deep past.`\
+https://nytimes.com/2024/09/19/climate/prehistoric-earth-temperatures.html
+
+**The Biggest Swing State Counts Its Votes in the Worst Way**\
+`Only Republican partisanship is preventing Pennsylvania from counting its early votes first.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/pennsylvania-early-vote-counting
+
+**What’s Going On in This Picture? | Sept. 23, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/09/19/learning/whats-going-on-in-this-picture-sept-23-2024.html
+
 **Jacob Trouba on summer trade rumors, excitement for likely 'last crack for this core'**\
 `Asked if his feelings were hurt seeing his name in trade rumors, the Rangers captain said, “Not even a little bit.”`\
 https://nytimes.com/athletic/5779847/2024/09/19/rangers-jacob-trouba-nhl-trade-rumors/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5779650/2024/09/19/kyle-okposo-retirement-sabres-pa
 **Interest Rates Fall, but Central Banks Are No Longer in Lock Step**\
 `Officials in some countries started cutting rates last year, but others, including those in Europe and the United States, have taken a more cautious approach.`\
 https://nytimes.com/2024/09/19/business/economy/central-bank-interest-rates.html
-
-**Bo Bichette lands on IL with finger injury days after return from calf strain**\
-`Injuries and underperformance have made this a trying and disappointing season for Bichette, who hit .225 with a .598 OPS.`\
-https://nytimes.com/athletic/5779796/2024/09/19/bo-bichette-blue-jays-finger-injury/
-
-**College football Week 4 model projections: Point differentials and totals for every game**\
-`Austin Mock's model projects the point spreads and totals for every Week 4 college football game.`\
-https://nytimes.com/athletic/5779709/2024/09/19/college-football-week-4-model-projections-scores/
-
-**Radko Gudas is the Ducks' captain — why it’s a sensible choice**\
-`Gudas is the team's first captain since franchise star Ryan Getzlaf retired after the 2021-22 season.`\
-https://nytimes.com/athletic/5779830/2024/09/19/radko-gudas-ducks-captain/
-
-**Big Board: Saquon Barkley, Malik Nabers among the risers in the Top 100 rest-of-season rankings**\
-`Brandon Funston provides his first in-season Big Board update, with Saquon Barkley climbing the charts in his new Philadelphia home.`\
-https://nytimes.com/athletic/5779572/2024/09/19/nfl-fantasy-football-big-board-top-100-barkley-nabers/
 
