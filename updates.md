@@ -1,3 +1,7 @@
+**Police Officials Defend Subway Shooting That Gravely Wounded Bystander**\
+`“We are not perfect,” said John Chell, the Police Department’s chief of patrol, as protesters gathered in Union Square.`\
+https://nytimes.com/2024/09/18/nyregion/nypd-shooting-brooklyn-subway.html
+
 **Iranian Hackers Sought to Pass Off Pilfered Information to Biden Campaign**\
 `The emails were part of a sweeping effort by Iran to steal and disseminate sensitive internal communications between aides working for former President Donald J. Trump.`\
 https://nytimes.com/2024/09/18/us/politics/iran-hacking-trump-biden.html

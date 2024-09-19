@@ -1,3 +1,7 @@
+**Police Officials Defend Subway Shooting That Gravely Wounded Bystander**\
+`“We are not perfect,” said John Chell, the Police Department’s chief of patrol, as protesters gathered in Union Square.`\
+https://nytimes.com/2024/09/18/nyregion/nypd-shooting-brooklyn-subway.html
+
 **Iranian Hackers Sought to Pass Off Pilfered Information to Biden Campaign**\
 `The emails were part of a sweeping effort by Iran to steal and disseminate sensitive internal communications between aides working for former President Donald J. Trump.`\
 https://nytimes.com/2024/09/18/us/politics/iran-hacking-trump-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/opinion/trump-haitians-immigration-springfield.ht
 **I Just Went to Darfur. Here Is What Shattered Me.**\
 `“So many men were killed, like grains of sand,” says one survivor.`\
 https://nytimes.com/2024/09/18/opinion/darfur-sudan-famine.html
-
-**Champions League Briefing: De Bruyne injury, Ronaldo tributes and a late late goalkeeping blunder**\
-`The key talking points from Wednesday's Champions League action, and a reminder on how the new format works — and if losing now matters...`\
-https://nytimes.com/athletic/5776901/2024/09/18/champions-league-talking-points-de-bruyne-injury-gazzaniga-mistake/
 
