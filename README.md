@@ -1,3 +1,15 @@
+**Alaska Man Charged With Threatening 6 Supreme Court Justices**\
+`It remained unclear whether the man, Panos Anastasiou, came close to carrying out his threats, and public records indicate that he is not affiliated with any political party.`\
+https://nytimes.com/2024/09/19/us/politics/supreme-court-justices-threats-fbi.html
+
+**Big Ten reveals men's, women's basketball schedules**\
+`The league will maintain a 20-game schedule for men’s basketball. In women’s basketball, there are 18 Big Ten games. `\
+https://nytimes.com/athletic/5780313/2024/09/19/big-ten-basketball-schedule-2024/
+
+**U.N. Says Israeli War in Gaza Has ‘Catastrophic Consequences’ for Children**\
+`Israel has long blamed Hamas for civilian and children deaths, arguing that the militant group uses innocent people as human shields.`\
+https://nytimes.com/2024/09/19/world/middleeast/un-israel-gaza-war-children.html
+
 **Travel Docs Update: Online Passport Renewal and Digital Driver’s Licenses**\
 `New options have arrived, for both U.S. passports and driver’s licenses, that may give travelers more flexibility.`\
 https://nytimes.com/2024/09/19/travel/passports-real-id-travelers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/19/dining/we-answer-your-very-specific-restaurant-qu
 **Mark Robinson Called Himself a ‘black Nazi’ on a Porn Site, CNN Reports**\
 `Mr. Robinson, the Republican nominee for governor of North Carolina, vowed to stay in the race and sought to deny the report, which also said he had defended slavery in online posts years ago.`\
 https://nytimes.com/2024/09/19/us/politics/mark-robinson-north-carolina-gubernatorial-race.html
-
-**Until Saturday: Upset SEC pick, plus Week 4 viewing guide**\
-`Welcome to Until Saturday, the five-star college football newsletter: Week 4 is here, and that means upset picks and a viewers guide.`\
-https://nytimes.com/athletic/5778858/2024/09/19/arkansas-auburn-college-football-week-4-until-saturday/
-
-**Inside the Secretive Facility Housing Migrants at Guantánamo Bay**\
-`Reports and interviews shed new light on the holding center, where migrants’ calls with lawyers are monitored and some say they’ve been forced to wear blackout goggles.`\
-https://nytimes.com/2024/09/19/us/politics/migrants-guantanamo-bay-cuba-detention.html
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/09/19/books/review/new-books-recommendations.html
 

@@ -1,3 +1,15 @@
+**Travel Docs Update: Online Passport Renewal and Digital Driver’s Licenses**\
+`New options have arrived, for both U.S. passports and driver’s licenses, that may give travelers more flexibility.`\
+https://nytimes.com/2024/09/19/travel/passports-real-id-travelers.html
+
+**Guardians clinch playoff spot with win vs. Twins**\
+`Cleveland has held at least a share of the American League Central lead since mid-April and can sew up a division title in the coming days.`\
+https://nytimes.com/athletic/5771454/2024/09/19/cleveland-guardians-playoff-spot-mlb/
+
+**‘Declaration of Progress’: Biden Hails Fed Rate Cuts**\
+`President Biden hailed the Federal Reserve’s move to begin cutting interest rates during a speech at the Economic Club of Washington.`\
+https://nytimes.com/video/us/100000009706898/biden-interest-rate-cuts.html
+
 **A New Lace-Forward Fashion Line**\
 `The London-based women’s wear brand Oiza is expanding ideas of British beauty.`\
 https://nytimes.com/2024/09/19/t-magazine/oiza-london-fashion-week.html

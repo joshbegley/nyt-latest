@@ -1,3 +1,15 @@
+**Travel Docs Update: Online Passport Renewal and Digital Driver’s Licenses**\
+`New options have arrived, for both U.S. passports and driver’s licenses, that may give travelers more flexibility.`\
+https://nytimes.com/2024/09/19/travel/passports-real-id-travelers.html
+
+**Guardians clinch playoff spot with win vs. Twins**\
+`Cleveland has held at least a share of the American League Central lead since mid-April and can sew up a division title in the coming days.`\
+https://nytimes.com/athletic/5771454/2024/09/19/cleveland-guardians-playoff-spot-mlb/
+
+**‘Declaration of Progress’: Biden Hails Fed Rate Cuts**\
+`President Biden hailed the Federal Reserve’s move to begin cutting interest rates during a speech at the Economic Club of Washington.`\
+https://nytimes.com/video/us/100000009706898/biden-interest-rate-cuts.html
+
 **A New Lace-Forward Fashion Line**\
 `The London-based women’s wear brand Oiza is expanding ideas of British beauty.`\
 https://nytimes.com/2024/09/19/t-magazine/oiza-london-fashion-week.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/19/us/politics/migrants-guantanamo-bay-cuba-detentio
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/09/19/books/review/new-books-recommendations.html
-
-**Jaromir Jagr, 52, says he'll retire after this season**\
-`After 37 seasons, Jaromir Jagr’s storied career as a professional hockey player may finally be coming to a close.`\
-https://nytimes.com/athletic/5780014/2024/09/19/jaromir-jagr-retirement/
-
-**Bruce Feldman's Week 4 college football picks against the spread**\
-`Several conference matchups carry a lot of intrigue this week.`\
-https://nytimes.com/athletic/5780043/2024/09/19/college-football-week-4-picks-predictions-feldman/
-
-**Former Bucks owner Marc Lasry in talks to purchase Courage**\
-`Lasry previously attempted to bid on a controlling interest in Angel City FC.`\
-https://nytimes.com/athletic/5780056/2024/09/19/bucks-marc-lasry-courage-nwsl/
 
