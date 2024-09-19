@@ -1,3 +1,7 @@
+**Brighton 3 Wolves 2: Unbeaten run continues, Adingra makes his case and fifth-choice Lamptey**\
+`Brighton are yet to lose in six games under new head coach Fabian Hurzeler and are now into the last 16 of the Carabao Cup`\
+https://nytimes.com/athletic/5776713/2024/09/19/brighton-wolves-adingra-lamptey/
+
 **Julio Rodriguez's big mistake helped Yankees clinch a playoff spot: 'Kind of a freak thing'**\
 `The Yankees seemed to celebrate extra hard since many of them were on last year’s team that missed the playoffs.`\
 https://nytimes.com/athletic/5778555/2024/09/19/yankees-clinch-playoff-spot/
