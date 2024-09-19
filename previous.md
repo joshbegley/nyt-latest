@@ -1,3 +1,15 @@
+**An Israeli man is charged with meeting with Iranian agents and discussing a plot to kill Netanyahu.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/an-israeli-man-is-charged-with-meeting-with-iranian-agents-and-discussing-a-plot-to-kill-netanyahu
+
+**Kyle Okposo, Stanley Cup champion, retiring after 17 seasons**\
+`Okposo, a former Sabres captain, ended his career on a high note last season when he won his first Cup as a member of the Panthers.`\
+https://nytimes.com/athletic/5779650/2024/09/19/kyle-okposo-retirement-sabres-panthers/
+
+**Interest Rates Fall, but Central Banks Are No Longer in Lock Step**\
+`Officials in some countries started cutting rates last year, but others, including those in Europe and the United States, have taken a more cautious approach.`\
+https://nytimes.com/2024/09/19/business/economy/central-bank-interest-rates.html
+
 **Bo Bichette lands on IL with finger injury days after return from calf strain**\
 `Injuries and underperformance have made this a trying and disappointing season for Bichette, who hit .225 with a .598 OPS.`\
 https://nytimes.com/athletic/5779796/2024/09/19/bo-bichette-blue-jays-finger-injury/
@@ -6,8 +18,8 @@ https://nytimes.com/athletic/5779796/2024/09/19/bo-bichette-blue-jays-finger-inj
 `Austin Mock's model projects the point spreads and totals for every Week 4 college football game.`\
 https://nytimes.com/athletic/5779709/2024/09/19/college-football-week-4-model-projections-scores/
 
-**Radko Gudas is the Ducks' new captain — why it’s a sensible choice**\
-`The Anaheim Ducks named veteran defenseman Radko Gudas as their captain on Thursday, their first since franchise star Ryan Getzlaf retired after the 2021-22 season.`\
+**Radko Gudas is the Ducks' captain — why it’s a sensible choice**\
+`Gudas is the team's first captain since franchise star Ryan Getzlaf retired after the 2021-22 season.`\
 https://nytimes.com/athletic/5779830/2024/09/19/radko-gudas-ducks-captain/
 
 **Big Board: Saquon Barkley, Malik Nabers among the risers in the Top 100 rest-of-season rankings**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/19/dining/vegetarian-standouts-from-our-list-of-cook
 **The Deadly Pager Attacks in Lebanon**\
 `Readers discuss the wave of attacks in Lebanon. Also: Donald Trump’s golf outing; the state of bridges in America; the importance of voting.`\
 https://nytimes.com/2024/09/19/opinion/pager-attacks-lebanon-israel.html
-
-**Lucine Amara, 99, Dies; Familiar Soprano at the Met Saw Bias There**\
-`She sang with the Metropolitan Opera for decades, often on short notice, including after lodging a successful age discrimination complaint against the company.`\
-https://nytimes.com/2024/09/19/arts/music/lucine-amara-dead.html
-
-**Fantasy football rankings Week 3: Sleepers, projections, starts, sits**\
-`Jake Ciely offers up his Week 3 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
-https://nytimes.com/athletic/5775030/2024/09/19/fantasy-football-rankings-week-3-sleepers-projections-starts/
-
-**A New Era in Sabotage: Turning Ordinary Devices Into Grenades, on a Mass Scale**\
-`The attacks in Lebanon required getting deep into the supply chain, which is difficult to do. But the sabotage contributes to a sense of vulnerability that ordinary devices can become a source of danger.`\
-https://nytimes.com/2024/09/19/us/politics/israel-hezbollah-pager-attacks.html
 

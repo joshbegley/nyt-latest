@@ -1,3 +1,19 @@
+**An Israeli man is charged with meeting with Iranian agents and discussing a plot to kill Netanyahu.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/an-israeli-man-is-charged-with-meeting-with-iranian-agents-and-discussing-a-plot-to-kill-netanyahu
+
+**Kyle Okposo, Stanley Cup champion, retiring after 17 seasons**\
+`Okposo, a former Sabres captain, ended his career on a high note last season when he won his first Cup as a member of the Panthers.`\
+https://nytimes.com/athletic/5779650/2024/09/19/kyle-okposo-retirement-sabres-panthers/
+
+**Interest Rates Fall, but Central Banks Are No Longer in Lock Step**\
+`Officials in some countries started cutting rates last year, but others, including those in Europe and the United States, have taken a more cautious approach.`\
+https://nytimes.com/2024/09/19/business/economy/central-bank-interest-rates.html
+
+**Radko Gudas is the Ducks' captain — why it’s a sensible choice**\
+`Gudas is the team's first captain since franchise star Ryan Getzlaf retired after the 2021-22 season.`\
+https://nytimes.com/athletic/5779830/2024/09/19/radko-gudas-ducks-captain/
+
 **Fantasy football rankings Week 3: Sleepers, projections, starts, sits**\
 `Jake Ciely offers up his Week 3 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
 https://nytimes.com/athletic/5775030/2024/09/19/fantasy-football-rankings-week-3-sleepers-projections-starts/
