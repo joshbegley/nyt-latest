@@ -1,3 +1,11 @@
+**Word of the Day: denigrate**\
+`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/19/learning/word-of-the-day-denigrate.html
+
+**Jimmy Fallon: With Trump in Town, New York Is ‘a Lot More Florida’**\
+`The “Tonight Show” host quipped about the former president’s rally in Long Island on Wednesday.`\
+https://nytimes.com/2024/09/19/arts/television/jimmy-fallon-trump-long-island.html
+
 **What should you do with a non-performing FPL player?**\
 `One of the biggest success factors in Fantasy Premier League is the timing of when to buy and sell players - should you keep Morgan Rogers?`\
 https://nytimes.com/athletic/5774227/2024/09/19/fantasy-premier-league-selling-morgan-rogers-goals-assists/
