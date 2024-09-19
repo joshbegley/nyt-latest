@@ -1,3 +1,15 @@
+**Quote of the Day: California Mountain Town Residents Defy Risks**\
+`Quotation of the Day for Thursday, September 19, 2024`\
+https://nytimes.com/2024/09/19/pageoneplus/quote-of-the-day-california-mountain-town-residents-defy-risks.html
+
+**Giants officially eliminated from the postseason in walk-off loss at Baltimore**\
+`It was a foregone conclusion for weeks, but the Giants officially saw their postseason chances reach zero in another heartbreaking loss.`\
+https://nytimes.com/athletic/5780757/2024/09/19/sf-giants-postseason-elimination/
+
+**Dodgers' Shohei Ohtani reaches 50-50 in spectacular style**\
+`Ohtani had a monster day, stealing two bags and hitting two home runs on his way to achieving history.`\
+https://nytimes.com/athletic/5780813/2024/09/19/dodgers-mlb-ohtani-50-50/
+
 **Trump’s Allies Try to Revive Push to Make Nebraska Winner-Take-All Electorally**\
 `Nebraska could deliver a critical electoral vote to Vice President Kamala Harris under its hybrid system of splitting votes in an otherwise red state.`\
 https://nytimes.com/2024/09/19/us/politics/trump-allies-nebraska-voting.html
