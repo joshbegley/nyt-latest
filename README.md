@@ -1,3 +1,11 @@
+**North Carolina’s Mark Robinson has a long history of offensive remarks.**\
+`On social media and the campaign trail, the Republican candidate for governor has made inflammatory comments about abortion and condemned members of the L.G.B.T.Q. community.`\
+https://nytimes.com/live/2024/09/19/us/trump-harris-election/robinson-north-carolina
+
+**Springfield, Ohio, Braces for a Possible Trump Visit, Though Details Are Scarce**\
+`Donald Trump promised to visit the city “in the next two weeks.” Some residents welcomed a visit, but others were opposed, as officials said preparations were underway.`\
+https://nytimes.com/2024/09/19/us/politics/trump-springfield-ohio.html
+
 **Israel Bombards Hezbollah as Group’s Leader Vows Retaliation**\
 `The Hezbollah leader, Hassan Nasrallah, did not say how his group would respond to attacks on hand-held devices, which killed dozens when pagers and walkie-talkies exploded.`\
 https://nytimes.com/2024/09/19/world/middleeast/israel-bombards-hezbollah-as-groups-leader-vows-retaliation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5780519/2024/09/19/edmonton-oilers-darnell-nurse-ty
 **After steps taken last season, John Tortorella warns Flyers not to get complacent**\
 `For Tortorella, the familiarity between players is only the foundation for being successful. `\
 https://nytimes.com/athletic/5780429/2024/09/19/flyers-training-camp-john-tortorella/
-
-**Raya credits Arsenal goalkeeper coach Cana after Atalanta double-save**\
-`David Raya credited Arsenal&#8217;s goalkeeper coach Inaki Cana after his double-save preserved a clean sheet during Thursday&#8217;s Champions League draw against Atalanta.`\
-https://nytimes.com/athletic/5780575/2024/09/19/david-raya-penalty-save-champions-league/
-
-**Walkie-Talkie and Pager Attacks Set Off a Legal Debate**\
-`Experts are at odds over the question of whether it violates the laws of war to hide explosives in wireless devices that may go off near civilians.`\
-https://nytimes.com/2024/09/19/world/middleeast/pagers-hezbollah-israel-attacks.html
 
