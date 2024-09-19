@@ -1,3 +1,15 @@
+**How the Robinson Report Could Affect the Presidential Race in the State**\
+`A Democratic presidential candidate has not won North Carolina since 2008. But the drama around Lt. Gov. Mark Robinson, the Republican nominee for governor, is sure to bolster their hopes.`\
+https://nytimes.com/2024/09/19/us/politics/mark-robinson-cnn-report-presidential-race.html
+
+**Champions League briefing: Yamal dazzles Jordan, a wonder save and 'no-look' genius**\
+`The big talking points from the final night of games on matchweek 1 of this season's Champions League`\
+https://nytimes.com/athletic/5779940/2024/09/19/champions-league-lamine-yamal-michael-jordan/
+
+**In War-Torn Ukraine, a Manicure Can Be Its Own Kind of Protest**\
+`A Times journalist reported on scores of Ukrainian women who find solace in salons.`\
+https://nytimes.com/2024/09/19/insider/in-war-torn-ukraine-a-manicure-can-be-its-own-kind-of-protest.html
+
 **10-Minute Challenge: ‘Canopy’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2024/09/19/upshot/ten-minute-challenge-canopy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/19/world/middleeast/pagers-hezbollah-israel-attacks.
 **Criminal Investigation Launched Into Texas Pipeline Fire**\
 `A car crashed into a Deer Park pipeline on Monday, causing an explosion that continued to burn days later.`\
 https://nytimes.com/video/us/100000009706780/texas-pipeline-fire.html
-
-**With 50th steal, Shohei Ohtani now just 2 homers away from 50-50 season**\
-`Ohtani's base running has improved in the years since his MLB debut and his abilities have been on full display this year.`\
-https://nytimes.com/athletic/5780469/2024/09/19/shohei-ohtani-50th-steal-dodgers/
-
-**Israel Bombards Lebanon After Hezbollah Vowed Retaliation**\
-`Plus, a record day for stocks.`\
-https://nytimes.com/2024/09/19/briefing/lebanon-israel-hezbollah-stocks-harris-trump-guantanamo.html
-
-**Red Wings training camp takeaways: Kane's return, big year for Berggren and more**\
-`The first day of Red Wings training camp featured some big news and a clear emphasis for 2024-25. `\
-https://nytimes.com/athletic/5779754/2024/09/19/red-wings-training-camp-seider-berggren-kane/
 

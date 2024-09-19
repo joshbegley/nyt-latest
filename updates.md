@@ -1,3 +1,15 @@
+**How the Robinson Report Could Affect the Presidential Race in the State**\
+`A Democratic presidential candidate has not won North Carolina since 2008. But the drama around Lt. Gov. Mark Robinson, the Republican nominee for governor, is sure to bolster their hopes.`\
+https://nytimes.com/2024/09/19/us/politics/mark-robinson-cnn-report-presidential-race.html
+
+**Champions League briefing: Yamal dazzles Jordan, a wonder save and 'no-look' genius**\
+`The big talking points from the final night of games on matchweek 1 of this season's Champions League`\
+https://nytimes.com/athletic/5779940/2024/09/19/champions-league-lamine-yamal-michael-jordan/
+
+**In War-Torn Ukraine, a Manicure Can Be Its Own Kind of Protest**\
+`A Times journalist reported on scores of Ukrainian women who find solace in salons.`\
+https://nytimes.com/2024/09/19/insider/in-war-torn-ukraine-a-manicure-can-be-its-own-kind-of-protest.html
+
 **10-Minute Challenge: ‘Canopy’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2024/09/19/upshot/ten-minute-challenge-canopy.html
