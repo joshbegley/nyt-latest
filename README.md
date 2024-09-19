@@ -6,6 +6,10 @@ https://nytimes.com/2024/09/19/opinion/pager-attacks-lebanon-israel.html
 `She sang with the Metropolitan Opera for decades, often on short notice, including after lodging a successful age discrimination complaint against the company.`\
 https://nytimes.com/2024/09/19/arts/music/lucine-amara-dead.html
 
+**Fantasy football rankings Week 3: Sleepers, projections, starts, sits**\
+`Jake Ciely offers up his Week 3 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
+https://nytimes.com/athletic/5775030/2024/09/19/fantasy-football-rankings-week-3-sleepers-projections-starts/
+
 **A New Era in Sabotage: Turning Ordinary Devices Into Grenades, on a Mass Scale**\
 `The attacks in Lebanon required getting deep into the supply chain, which is difficult to do. But the sabotage contributes to a sense of vulnerability that ordinary devices can become a source of danger.`\
 https://nytimes.com/2024/09/19/us/politics/israel-hezbollah-pager-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5778851/2024/09/19/f1-swearing-yuki-tsunoda-max-ver
 **‘The Rings of Power’ Season 2, Episode 6 Recap: Go Fish**\
 `Miriel tests the waters. Sauron tests everyone’s sanity.`\
 https://nytimes.com/2024/09/19/arts/television/the-rings-of-power-season-2-episode-6-recap-go-fish.html
-
-**30-Year Mortgage Rate Drops to 6.09% After Fed Rate Cut**\
-`The decline in mortgage costs, influenced by expectations of the Federal Reserve’s rate moves, could revive interest in buying, selling and remortgaging, economists said.`\
-https://nytimes.com/2024/09/19/business/mortgage-rates-fed-rate-cut.html
 

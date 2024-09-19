@@ -1,3 +1,7 @@
+**The Deadly Pager Attacks in Lebanon**\
+`Readers discuss the wave of attacks in Lebanon. Also: Donald Trump’s golf outing; the state of bridges in America; the importance of voting.`\
+https://nytimes.com/2024/09/19/opinion/pager-attacks-lebanon-israel.html
+
 **Lucine Amara, 99, Dies; Familiar Soprano at the Met Saw Bias There**\
 `She sang with the Metropolitan Opera for decades, often on short notice, including after lodging a successful age discrimination complaint against the company.`\
 https://nytimes.com/2024/09/19/arts/music/lucine-amara-dead.html

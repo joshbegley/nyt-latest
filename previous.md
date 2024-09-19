@@ -1,3 +1,7 @@
+**The Deadly Pager Attacks in Lebanon**\
+`Readers discuss the wave of attacks in Lebanon. Also: Donald Trump’s golf outing; the state of bridges in America; the importance of voting.`\
+https://nytimes.com/2024/09/19/opinion/pager-attacks-lebanon-israel.html
+
 **Lucine Amara, 99, Dies; Familiar Soprano at the Met Saw Bias There**\
 `She sang with the Metropolitan Opera for decades, often on short notice, including after lodging a successful age discrimination complaint against the company.`\
 https://nytimes.com/2024/09/19/arts/music/lucine-amara-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/arts/television/the-rings-of-power-season-2-episo
 **30-Year Mortgage Rate Drops to 6.09% After Fed Rate Cut**\
 `The decline in mortgage costs, influenced by expectations of the Federal Reserve’s rate moves, could revive interest in buying, selling and remortgaging, economists said.`\
 https://nytimes.com/2024/09/19/business/mortgage-rates-fed-rate-cut.html
-
-**Why Can’t Kamala Harris Just Say This?**\
-`Here’s a script with which she could explain her evolution.`\
-https://nytimes.com/2024/09/19/opinion/kamala-harris-positions.html
 
