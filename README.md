@@ -1,3 +1,7 @@
+**Former Bucks owner Marc Lasry in talks to purchase Courage**\
+`Lasry previously attempted to bid on a controlling interest in Angel City FC.`\
+https://nytimes.com/athletic/5780056/2024/09/19/bucks-marc-lasry-courage-nwsl/
+
 **Inflation Is Ebbing. Now the Fed Must Protect Jobs.**\
 `The agency’s bold decision to cut its policy interest rate significantly affirms its commitment to keep the labor market strong.`\
 https://nytimes.com/2024/09/19/opinion/federal-reserve-rate-cut-unemployment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/arts/television/a-very-royal-scandal-amazon.html
 **Hezbollah Leader Says Israel Will Face Retribution After Lebanon Explosions**\
 `Hassan Nasrallah refused to say when or how Hezbollah would take revenge. As he spoke, Israeli fighter jets swooped low over Beirut.`\
 https://nytimes.com/2024/09/19/world/middleeast/hezbollah-nasrallah-israel-lebanon-explosions.html
-
-**Japanese Manufacturer Investigating Radios Used in Lebanon Attacks**\
-`The Japanese company, Icom, whose name was on handheld radios that exploded in Lebanon said it had discontinued the device a decade ago.`\
-https://nytimes.com/video/world/100000009706535/japan-radios-icom-lebanon.html
 
