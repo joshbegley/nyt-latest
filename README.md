@@ -1,6 +1,6 @@
 **Have Fun, Readers: Send Us Lyrical and Poetic Letters**\
 `We invite you to get creative with your letter writing.`\
-https://nytimes.com/2024/09/19/opinion/letters/have-fun-readers-send-us-lyrical-and-poetic-letters.html
+https://nytimes.com/2024/09/19/opinion/letters/reader-callout-lyrical-letters.html
 
 **F1 drivers weigh in on FIA push to limit radio swearing: ‘What are we? Five year olds?’**\
 `The FIA wants F1 drivers to watch their language on and off the track.`\
