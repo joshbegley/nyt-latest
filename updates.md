@@ -1,3 +1,7 @@
+**On YouTube, Major Brands’ Ads Appear Alongside Racist Falsehoods About Haitian Immigrants**\
+`Large organizations and brands saw their advertising dollars funneled to videos amplifying inflammatory narratives, underscoring how difficult it can be to maintain brand safety online.`\
+https://nytimes.com/2024/09/19/business/media/youtube-ads-haitian-immigrants-trump.html
+
 **MLB bullpen report: Luke Weaver's workload patterns and more intel for your fantasy playoff push**\
 `Greg Jewett offers his final look at the MLB bullpen hierarchies as fantasy baseball managers make their postseason push.`\
 https://nytimes.com/athletic/5779498/2024/09/19/mlb-bullpen-report-luke-weaver-fantasy-baseball-saves/
