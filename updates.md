@@ -1,3 +1,7 @@
+**Cris Collinsworth to remain with NBC through rest of decade**\
+`Collinsworth currently makes around $12.5 million a year, according to sources. The new contract is expected to be a four-year agreement.`\
+https://nytimes.com/athletic/5780971/2024/09/19/cris-collinsworth-contract-extension-nbc-snf/
+
 **Tina Charles becomes WNBA's all-time leading rebounder**\
 `Charles, the No. 1 pick in the 2010 WNBA Draft to the Connecticut Sun, is also the WNBA’s second-leading scorer.`\
 https://nytimes.com/athletic/5780960/2024/09/19/atlanta-dream-tina-charles-rebounding/
