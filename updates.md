@@ -1,3 +1,15 @@
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/09/19/books/review/new-books-recommendations.html
+
+**Jaromir Jagr, 52, says he'll retire after this season**\
+`After 37 seasons, Jaromir Jagr’s storied career as a professional hockey player may finally be coming to a close.`\
+https://nytimes.com/athletic/5780014/2024/09/19/jaromir-jagr-retirement/
+
+**Bruce Feldman's Week 4 college football picks against the spread**\
+`Several conference matchups carry a lot of intrigue this week.`\
+https://nytimes.com/athletic/5780043/2024/09/19/college-football-week-4-picks-predictions-feldman/
+
 **Former Bucks owner Marc Lasry in talks to purchase Courage**\
 `Lasry previously attempted to bid on a controlling interest in Angel City FC.`\
 https://nytimes.com/athletic/5780056/2024/09/19/bucks-marc-lasry-courage-nwsl/
