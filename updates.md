@@ -1,3 +1,7 @@
+**Company Investigating Radios Targeted in Lebanon Explosions**\
+`The Japanese electronics manufacturer Icom said it stopped making the walkie-talkie model in 2014 and has warned about fake versions for several years.`\
+https://nytimes.com/2024/09/19/business/icom-walkie-talkies-lebanon.html
+
 **Barnes, Gordon and Newcastle's left-wing dilemma**\
 `Two of Newcastle's most exciting attackers want to play in the same position, so what are Eddie Howe's options?`\
 https://nytimes.com/athletic/5775817/2024/09/19/barnes-gordon-newcastle-left-wing/
