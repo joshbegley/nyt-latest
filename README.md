@@ -1,3 +1,7 @@
+**On the Screen or in a Meme, ‘The Babadook’ Is Still an Unnerving Dream**\
+`Back in theaters for its 10th anniversary, the haunting movie never really left, with a legacy that includes an entire horror subgenre.`\
+https://nytimes.com/2024/09/19/movies/the-babadook-10th-anniversary.html
+
 **The Bounce: Why the NBA's City edition jerseys are just bad.**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5778850/2024/09/19/nba-city-jerseys-celtics-nba-finals-title-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5779212/2024/09/19/browns-michael-hall-disorderly-c
 **Ukraine Wants Long-Range Weapons. Here’s a Look at What They Are.**\
 `Much of the public discourse about arming Ukraine has revolved around whether the United States will send “long range” weapons. But that can mean different things.`\
 https://nytimes.com/2024/09/19/us/politics/ukraine-long-range-weapons.html
-
-**Trumponomics: From Trickle-Down to Upside-Down**\
-`Voodoo economics at least had a flawed theory behind it; Trump’s brand is based on some kind of brain glitch.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/krugman-trump-economics-voodoo
 
