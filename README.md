@@ -1,3 +1,11 @@
+**Ukraine Says Russia Hit Nursing Home Near Border, Killing at Least 1**\
+`A dozen other people were injured, some seriously, in the attack in the city of Sumy, which has come under increased bombardment since Ukraine’s offensive into Russia’s nearby Kursk region.`\
+https://nytimes.com/2024/09/19/world/europe/ukraine-russia-nursing-home.html
+
+**Seider signs 7-year deal to stay with Red Wings: What it means**\
+`The Red Wings finally got a deal done with their franchise defenseman Thursday. What does it mean doe Detroit?`\
+https://nytimes.com/athletic/5579280/2024/09/19/red-wings-moritz-seider-contract-extension/
+
 **Should You Refinance Your Mortgage After the Fed’s Interest Rate Cut?**\
 `People who bought homes in the past two years may want to seek a lower interest rate. Here’s how to think it through — and how to shop.`\
 https://nytimes.com/2024/09/19/business/mortgage-rates-refinance-fed-rate-cut.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/learning/whats-going-on-in-this-picture-sept-23-2
 **Jacob Trouba on summer trade rumors, excitement for likely 'last crack for this core'**\
 `Asked if his feelings were hurt seeing his name in trade rumors, the Rangers captain said “not even a little bit.”`\
 https://nytimes.com/athletic/5779847/2024/09/19/rangers-jacob-trouba-nhl-trade-rumors/
-
-**Nintendo and Pokémon Sue Palworld Maker for Patent Infringement**\
-`Palworld, a video game mocked as “Pokémon with guns,” became one of the most popular games in the world when it was released in January.`\
-https://nytimes.com/2024/09/19/arts/nintendo-pokemon-lawsuit-pocketpair-palworld.html
-
-**What’s the True Price of a School Lunch?**\
-`An emerging body of research aims to put dollar figures on the environmental costs of foods we eat everyday.`\
-https://nytimes.com/2024/09/19/climate/true-cost-accounting-food-prices.html
 
