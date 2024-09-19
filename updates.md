@@ -1,3 +1,11 @@
+**Israel and Hezbollah trade missile fire across the Lebanese border after the exploding device attacks.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/israel-and-hezbollah-trade-missile-fire-across-the-lebanese-border-after-the-exploding-device-attacks
+
+**Jahns: Seeing growth from Bears QB Caleb Williams along with the pain**\
+`It can be hard to watch a rookie quarterback learn to play in the NFL, but Williams is also showing some encouraging signs.`\
+https://nytimes.com/athletic/5777360/2024/09/19/bears-caleb-williams-growing-pains/
+
 **Jets training camp: Positional battles and 5 key questions**\
 `The Jets have a new-look coaching staff, a diverse group of veterans and a few talented top prospects.`\
 https://nytimes.com/athletic/5773967/2024/09/19/winnipeg-jets-training-camp-2024-roster-questions/

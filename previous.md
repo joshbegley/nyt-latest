@@ -1,3 +1,11 @@
+**Israel and Hezbollah trade missile fire across the Lebanese border after the exploding device attacks.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/israel-and-hezbollah-trade-missile-fire-across-the-lebanese-border-after-the-exploding-device-attacks
+
+**Jahns: Seeing growth from Bears QB Caleb Williams along with the pain**\
+`It can be hard to watch a rookie quarterback learn to play in the NFL, but Williams is also showing some encouraging signs.`\
+https://nytimes.com/athletic/5777360/2024/09/19/bears-caleb-williams-growing-pains/
+
 **Jets training camp: Positional battles and 5 key questions**\
 `The Jets have a new-look coaching staff, a diverse group of veterans and a few talented top prospects.`\
 https://nytimes.com/athletic/5773967/2024/09/19/winnipeg-jets-training-camp-2024-roster-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/crosswords/connections-companion-467.html
 **Wordle Review No. 1,189**\
 `Scroll down for hints and conversation about the puzzle for September 20, 2024.`\
 https://nytimes.com/2024/09/19/crosswords/wordle-review-1189.html
-
-**Watching the Champions League in the middle of the U.S. working day**\
-`The Champions League is increasingly popular in the States but its kick-off times mean juggling watching with your job can be a challenge`\
-https://nytimes.com/athletic/5778589/2024/09/19/champions-league-watching-united-states/
-
-**They Said the Virgin Mary Appeared. The Vatican Is Finally Weighing In.**\
-`After decades, and controversy, the Vatican has authorized public worship at a shrine in Bosnia, where a once tranquil village has become a major pilgrimage site.`\
-https://nytimes.com/2024/09/19/world/europe/medjugorje-virgin-mary-vatican.html
 
