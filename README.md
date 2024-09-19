@@ -1,3 +1,7 @@
+**Iranian Hackers Sought to Pass Off Pilfered Information to Biden Campaign**\
+`The emails were part of a sweeping effort by Iran to steal and disseminate sensitive internal communications between aides working for former President Donald J. Trump.`\
+https://nytimes.com/2024/09/18/us/politics/iran-hacking-trump-biden.html
+
 **‘Beast Games’ Contestants File Lawsuit Claiming ‘Dangerous Conditions’ on Set**\
 `A group of people who participated in the reality competition show this summer are suing MrBeast’s production company.`\
 https://nytimes.com/2024/09/18/style/mrbeast-reality-show-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/18/opinion/darfur-sudan-famine.html
 **Champions League Briefing: De Bruyne injury, Ronaldo tributes and a late late goalkeeping blunder**\
 `The key talking points from Wednesday's Champions League action, and a reminder on how the new format works — and if losing now matters...`\
 https://nytimes.com/athletic/5776901/2024/09/18/champions-league-talking-points-de-bruyne-injury-gazzaniga-mistake/
-
-**House Defeats Johnson’s Spending Plan With Shutdown Looming**\
-`Both Republicans and Democrats opposed the stopgap funding bill, which was tied to new rules requiring proof of U.S. citizenship to register to vote.`\
-https://nytimes.com/2024/09/18/us/politics/mike-johnson-spending-bill-shutdown.html
 
