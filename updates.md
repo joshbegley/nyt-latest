@@ -1,3 +1,15 @@
+**Hansi Flick has supercharged Barcelona with intensity and intelligence**\
+`The season is still at an early stage, but the German's new reign has shown many promising signs`\
+https://nytimes.com/athletic/5776601/2024/09/19/hansi-flick-has-changed-barcelona/
+
+**Here is the latest on the attacks in Lebanon.**\
+`By Aaron Boxerman and Euan Ward`\
+https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/here-is-the-latest-on-the-attacks-in-lebanon
+
+**Phillies have 10 games to decide optimal lineup, outfield configurations for playoffs**\
+`Everything changes in October, and the Phillies are still debating their optimal lineup configuration as the regular season winds down. `\
+https://nytimes.com/athletic/5778439/2024/09/19/phillies-lineup-outfield-playoffs/
+
 **Mets takeaways from a series sweep: Jose Quintana's hot streak and more**\
 `Quintana kept rolling with help from Luisangel Acuña, who looks right at home in the big leagues.`\
 https://nytimes.com/athletic/5778309/2024/09/19/mets-jose-quintana-luisangel-acuna/
