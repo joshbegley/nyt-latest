@@ -1,3 +1,7 @@
+**Election Live Updates: Oprah Joins Harris in Michigan as Race Remains Tight**\
+`Donald J. Trump has two events planned in Washington, and Kamala Harris will join a livestream with Oprah Winfrey. The race remains extremely close, according to a new poll from The Times, The Philadelphia Inquirer and Siena College.`\
+https://nytimes.com/live/2024/09/19/us/trump-harris-election
+
 **We’re Adding Podcasts to Our Long-Running Weekly Film Club for Students**\
 `Our new, updated feature will showcase both audio and video journalism from The New York Times and invite student dialogue and reflection.`\
 https://nytimes.com/2024/09/19/learning/were-adding-podcasts-to-our-long-running-weekly-film-club-for-students.html

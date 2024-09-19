@@ -10,7 +10,7 @@ https://nytimes.com/2024/09/19/learning/teachers-how-do-you-handle-teaching-abou
 `By Simon J. Levien and Maggie Astor`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election/heres-the-latest-on-the-presidential-race
 
-**Election Live Updates: Trump and Harris Hit the Campaign Trail as Race Remains Tight**\
+**Election Live Updates: Oprah Joins Harris in Michigan as Race Remains Tight**\
 `Donald J. Trump has two events planned in Washington, and Kamala Harris will join a livestream with Oprah Winfrey. The race remains extremely close, according to a new poll from The Times, The Philadelphia Inquirer and Siena College.`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election
 
