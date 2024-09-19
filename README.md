@@ -1,40 +1,40 @@
-**The Pulse: A failure that could change the NFL**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5777103/2024/09/19/bryce-young-panthers-rookie-qb-the-pulse/
+**Broncos offensive line's early struggles now compounded by key injury**\
+`Alex Palczewski will make his first start at right tackle in Week 3 after McGlinchey landed on IR with a knee injury.`\
+https://nytimes.com/athletic/5777292/2024/09/19/mike-mcglinchey-broncos-offensive-line/
 
-**The Stakes on Immigration**\
-`We cover the presidential candidates’ immigration policies.`\
-https://nytimes.com/2024/09/19/briefing/immigration-trump-harris-policies.html
+**Pavel Buchnevich's new contract, willingness to play center shows his commitment to Blues**\
+`Buchnevich, 29, signed a six-year, $48 million contract extension in July and wants to help expedite the Blues' retool.`\
+https://nytimes.com/athletic/5774044/2024/09/19/pavel-buchnevichs-blues-center-contract/
 
-**Anxiety Mounts as Lebanon Reels From Attacks**\
-`People across the country were avoiding their cellphones and unplugging baby monitors and laptops, after two days of attacks on Hezbollah-owned devices that amplified fears of an all-out war with Israel.`\
-https://nytimes.com/2024/09/19/world/middleeast/lebanon-hezbollah-explosions.html
+**‘Never Let Go’ Review: Do the Woods Have Eyes?**\
+`Halle Berry plays the ultimate helicopter parent in this new horror movie, where evil lurks in the trees beyond the family cabin.`\
+https://nytimes.com/2024/09/19/movies/never-let-go-review.html
 
-**Israel and Hezbollah trade missile fire across the Lebanese border after the exploding device attacks.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/09/19/world/israel-hezbollah-gaza-hamas/israel-and-hezbollah-trade-missile-fire-across-the-lebanese-border-after-the-exploding-device-attacks
+**NFL Draft mailbag: USC-Michigan prospects to watch, Cam Ward's rise, Iowa State's star WRs**\
+`You asked, our draft expert answered. Which prospects are gaining momentum right now? Was Caleb Williams a scouting miss? `\
+https://nytimes.com/athletic/5776965/2024/09/19/nfl-draft-2025-cam-ward-will-johnson-mailbag/
 
-**Jahns: Seeing growth from Bears QB Caleb Williams along with the pain**\
-`It can be hard to watch a rookie quarterback learn to play in the NFL, but Williams is also showing some encouraging signs.`\
-https://nytimes.com/athletic/5777360/2024/09/19/bears-caleb-williams-growing-pains/
+**‘In the Summers’ Review: Understanding a Father’s Flaws**\
+`The film, by Alessandra Lacorazza, follows two siblings as they visit their father, played by Residente, in New Mexico.`\
+https://nytimes.com/2024/09/19/movies/in-the-summers-review.html
 
-**Jets training camp: Positional battles and 5 key questions**\
-`The Jets have a new-look coaching staff, a diverse group of veterans and a few talented top prospects.`\
-https://nytimes.com/athletic/5773967/2024/09/19/winnipeg-jets-training-camp-2024-roster-questions/
+**‘The Featherweight’ Review: Boxing Is Easy. Retirement Is Hard.**\
+`In this biopic, a documentary crew follows the boxer Willie Pep during his 1960s comeback.`\
+https://nytimes.com/2024/09/19/movies/the-featherweight-review.html
 
-**NHL player poll: Tax and LTIR tweaks? Expansion cities? League's best captain?**\
-`We also asked players which coach they'd ike to play for, whether officials should speak to reporters after games and more.`\
-https://nytimes.com/athletic/5773736/2024/09/19/nhl-preseason-player-poll-taxes-ltir-expansion/
+**‘Eureka’ Review: No More Cowboys and Indians**\
+`This intriguingly languorous Western by the Argentine director Lisandro Alonso explores the existential plight of Indigenous Americans in  three separate timelines.`\
+https://nytimes.com/2024/09/19/movies/eureka-review.html
 
-**Stars, cards and kids: Hobby Rip Night and Topps' path forward**\
-`Deploying top athletes and entertainers to hobby shops around the world, Topps reconfigures the sports fan hierarchy `\
-https://nytimes.com/athletic/5778257/2024/09/19/fanatics-michael-rubin-topps-hobby-rip-night/
+**‘All Shall Be Well’ Review: Aching With Absence**\
+`The indignity of being someone’s spouse while they are alive and merely a friend after their death is the theme of this extraordinarily moving Hong Kong drama.`\
+https://nytimes.com/2024/09/19/movies/all-shall-be-well-review.html
 
-**The Day Thousands of Pagers Exploded in Lebanon**\
-`What Israel’s audacious attack accomplished, and what it cost.`\
-https://nytimes.com/2024/09/19/podcasts/the-daily/pagers-explosion-lebanon.html
+**The Chargers' 'medieval' offensive line is showing off its physical dominance**\
+`NFL defenses are on notice: When it is time to face these Chargers, buckle up the chinstrap and prepare for a grueling 60 minutes.`\
+https://nytimes.com/athletic/5777693/2024/09/19/chargers-offensive-line-medieval-physical-dominance/
 
-**Colts coach Shane Steichen benched Jonathan Taylor. That can't happen again**\
-`Taylor struggles in the passing game, but that's not a good enough reason to keep him off the field for the entire fourth quarter of a game.`\
-https://nytimes.com/athletic/5777416/2024/09/19/colts-shane-steichen-jonathan-taylor-fourth-quarter/
+**With new Vegas address, longtime Sharks center Tomáš Hertl is back to his old self**\
+`It took a while for Tomáš Hertl to come to terms with the end of last season. Now he's looking to the future with the Golden Knights.`\
+https://nytimes.com/athletic/5777888/2024/09/19/tomas-hertl-offseason-golden-knights/
 
