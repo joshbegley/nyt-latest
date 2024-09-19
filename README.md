@@ -1,3 +1,7 @@
+**Teachers, How Do You Handle Teaching About Information Literacy?**\
+`What has worked? What has been difficult? We’d love to hear from educators at all levels and across subject areas.`\
+https://nytimes.com/2024/09/19/learning/teachers-how-do-you-handle-teaching-about-information-literacy.html
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien and Maggie Astor`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5778140/2024/09/19/canucks-training-camp-questions-
 **Ranking the most memorable jersey numbers in Oakland A's history**\
 `From No. 4 to No. 21, these are the most memorable, non-retired jersey numbers in Oakland A's franchise history.`\
 https://nytimes.com/athletic/5772326/2024/09/19/oakland-athletics-jersey-numbers-history/
-
-**‘Uncommitted’ Group Says It Won’t Endorse Harris Over Gaza Concerns**\
-`As the vice president was set to travel on Thursday to Michigan, home to many Muslim and Arab Americans, a leading group protesting U.S. support of Israel said she had not done enough to win its backing.`\
-https://nytimes.com/2024/09/19/us/politics/uncommitted-kamala-harris-endorsement.html
 
