@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5778433/2024/09/19/tigers-sweep-royals-sean-guenthe
 `Judge has become the face of the franchise and could win his second MVP award.`\
 https://nytimes.com/athletic/5777252/2024/09/19/new-york-yankees-clinch-playoffs/
 
-**Company Investigating Radios Targeted in Lebanon Explosions**\
+**Company Says It Is Investigating Radios Targeted in Lebanon Blasts**\
 `The Japanese electronics manufacturer Icom said it stopped making the walkie-talkie model in 2014 and has warned about fake versions for several years.`\
 https://nytimes.com/2024/09/19/business/icom-walkie-talkies-lebanon.html
 
