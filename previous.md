@@ -1,3 +1,11 @@
+**Bowden: Early MLB award predictions for MVP, Cy Young, Rookie of the Year and more**\
+`If the season ended today, here’s who I think would take home the top prizes, from the MVPs to Cy Youngs to comeback players of the year.`\
+https://nytimes.com/athletic/5776932/2024/09/19/mlb-award-predictions-mvp-cy-young-2024/
+
+**CBS's stars, BBC's debut and Prime delivers: How the Champions League broadcasters compare so far**\
+`Nick Miller and Pablo Maurer compare the Champions League broadcasters across the UK and U.S. after the first days of matches`\
+https://nytimes.com/athletic/5776157/2024/09/19/champions-league-broadcasters-cbs-prime-bbc-tnt/
+
 **Bank of England Holds Rates Steady but Signals Gradual Easing**\
 `The British central bank has emphasized its intention to move steadily to ensure that inflation continues to slow.`\
 https://nytimes.com/2024/09/19/business/bank-of-england-interest-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5774044/2024/09/19/pavel-buchnevichs-blues-center-c
 **‘Never Let Go’ Review: Do the Woods Have Eyes?**\
 `Halle Berry plays the ultimate helicopter parent in this new horror movie, where evil lurks in the trees beyond the family cabin.`\
 https://nytimes.com/2024/09/19/movies/never-let-go-review.html
-
-**NFL Draft mailbag: USC-Michigan prospects to watch, Cam Ward's rise, Iowa State's star WRs**\
-`You asked, our draft expert answered. Which prospects are gaining momentum right now? Was Caleb Williams a scouting miss? `\
-https://nytimes.com/athletic/5776965/2024/09/19/nfl-draft-2025-cam-ward-will-johnson-mailbag/
-
-**‘In the Summers’ Review: Understanding a Father’s Flaws**\
-`The film, by Alessandra Lacorazza, follows two siblings as they visit their father, played by Residente, in New Mexico.`\
-https://nytimes.com/2024/09/19/movies/in-the-summers-review.html
 

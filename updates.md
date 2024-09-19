@@ -1,3 +1,11 @@
+**Bowden: Early MLB award predictions for MVP, Cy Young, Rookie of the Year and more**\
+`If the season ended today, here’s who I think would take home the top prizes, from the MVPs to Cy Youngs to comeback players of the year.`\
+https://nytimes.com/athletic/5776932/2024/09/19/mlb-award-predictions-mvp-cy-young-2024/
+
+**CBS's stars, BBC's debut and Prime delivers: How the Champions League broadcasters compare so far**\
+`Nick Miller and Pablo Maurer compare the Champions League broadcasters across the UK and U.S. after the first days of matches`\
+https://nytimes.com/athletic/5776157/2024/09/19/champions-league-broadcasters-cbs-prime-bbc-tnt/
+
 **Bank of England Holds Rates Steady but Signals Gradual Easing**\
 `The British central bank has emphasized its intention to move steadily to ensure that inflation continues to slow.`\
 https://nytimes.com/2024/09/19/business/bank-of-england-interest-rates.html
