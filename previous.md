@@ -1,3 +1,7 @@
+**Why has Guardiola started making double substitutions at half-time?**\
+`Pep Guardiola is sometimes criticised for his reluctance to make personnel changes but he has altered his approach in the past two games`\
+https://nytimes.com/athletic/5777868/2024/09/19/pep-guardiola-half-time-substitutions/
+
 **Lack of depth costly as Twins bullpen melts down again in extra-innings loss to Guardians**\
 `The Twins find themselves in an undesirable location after a series of bullpen fiascoes.`\
 https://nytimes.com/athletic/5778472/2024/09/19/twins-lose-bullpen-depth-guardians/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5773403/2024/09/19/marcus-bettinelli-chelsea-interv
 **What should you do with a non-performing FPL player?**\
 `One of the biggest success factors in Fantasy Premier League is the timing of when to buy and sell players - should you keep Morgan Rogers?`\
 https://nytimes.com/athletic/5774227/2024/09/19/fantasy-premier-league-selling-morgan-rogers-goals-assists/
-
-**A year on from her death, let's talk about Maddy Cusack - and who she really was**\
-`Maddy Cusack was far more than just a footballer. She was a daughter, a sister, a friend, a force for good and, to many, an inspiration`\
-https://nytimes.com/athletic/5760730/2024/09/19/maddy-cusack-family-one-year/
 
