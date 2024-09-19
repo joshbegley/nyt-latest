@@ -1,3 +1,23 @@
+**How to Own Something by the Punk Poet Jun Takahashi**\
+`GU, Uniqlo’s trendier sibling, is opening its first store outside Asia in SoHo, collaborating with the subversively witty Jun Takahashi of Undercover.`\
+https://nytimes.com/2024/09/19/style/jun-takahashi-collaboration-gu.html
+
+**Emails Suggest Cuomo Undersold His Role in Altering Covid Report**\
+`Andrew Cuomo said he could not recall seeing or revising a New York State Health Department report on how the state handled the early stages of the pandemic.`\
+https://nytimes.com/2024/09/19/nyregion/cuomo-nursing-homes-covid.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/19/crosswords/spelling-bee-forum.html
+
+**How to Make $6,000 a Month by Moving Citi Bikes Around the Block**\
+`The bike-sharing program rewards users who help redistribute bikes around New York City. A handful of hustlers have figured out how to turn that into profit.`\
+https://nytimes.com/2024/09/19/nyregion/citi-bike-scam-nyc.html
+
+**As Public Support for Migrants Fades, Private Donors Confront the Crisis**\
+`A group of New York’s most powerful philanthropies will spend millions to help make migrants more self-sufficient.`\
+https://nytimes.com/2024/09/19/nyregion/ny-migrants-philanthropies.html
+
 **De Bruyne to be assessed for Arsenal clash after sustaining injury**\
 `Kevin De Bruyne is to be assessed for Manchester City&#8217;s crucial Premier League clash against Arsenal after picking up an injury in their goalless Champions League draw with Inter Milan.`\
 https://nytimes.com/athletic/5778545/2024/09/19/kevin-de-bruyne-manchester-city-injury/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5766723/2024/09/19/arteta-arsenalmethodology-balver
 **Tropical Storm Pulasan Nears Shanghai, Days After Typhoon Hit City**\
 `Pulasan was expected to make landfall near the Chinese financial hub by Friday morning. Forecasters warned of potential floods and landslides.`\
 https://nytimes.com/2024/09/19/world/asia/tropical-storm-pulasan-shanghai.html
-
-**Could this be a turning point for Ange Postecoglou's Tottenham?**\
-`Spurs very nearly lost their League Cup tie at Coventry. They arguably deserved to lose it. Could their late victory spark a revival?`\
-https://nytimes.com/athletic/5771160/2024/09/19/tottenham-coventry-postecoglou/
-
-**Inter Milan are an anomaly among top European teams - they almost never dribble**\
-`Inter Milan are adept at counter-attacking and making direct breaks but they rarely do those things by taking opponents on one-vs-one`\
-https://nytimes.com/athletic/5777917/2024/09/19/inter-milan-manchester-city-dribbling/
-
-**Word of the Day: denigrate**\
-`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/19/learning/word-of-the-day-denigrate.html
-
-**Jimmy Fallon: With Trump in Town, New York Is ‘a Lot More Florida’**\
-`The “Tonight Show” host quipped about the former president’s rally in Long Island on Wednesday.`\
-https://nytimes.com/2024/09/19/arts/television/jimmy-fallon-trump-long-island.html
-
-**Why has Guardiola started making double substitutions at half-time?**\
-`Man City manager Guardiola is sometimes criticised for a reluctance to make changes but has altered his approach in the past two games`\
-https://nytimes.com/athletic/5777868/2024/09/19/pep-guardiola-half-time-substitutions/
 
