@@ -1,3 +1,19 @@
+**USC superfans adjusting to travel in the new Big Ten: 'It feels like a grind this year'**\
+`Several fans who attend every away game have estimated that they will spend twice as much on travel now that USC is in the Big Ten. `\
+https://nytimes.com/athletic/5778847/2024/09/19/usc-big-ten-realignment-impact-fans/
+
+**Mohamed al-Fayed, Former Harrods Owner, Accused of Raping 5 Women**\
+`Multiple former employees told the BBC they had been raped or sexually assaulted by the billionaire businessman, who died last year.`\
+https://nytimes.com/2024/09/19/world/europe/mohamed-al-fayed-harrods-rape.html
+
+**Five of the most important questions facing the Canadiens in training camp**\
+`The Canadiens have far more than five questions facing them this training camp, but these are the five most important.`\
+https://nytimes.com/athletic/5778522/2024/09/19/canadiens-training-camp-storylines/
+
+**Saudi Crown Prince Says No to Israel Ties Without Palestinian State**\
+`His comments reflect an apparent toughening of his views on an issue that could reshape the diplomatic map of the Middle East.`\
+https://nytimes.com/2024/09/19/world/middleeast/saudi-israel-relations.html
+
 **Listen: ‘A Quest for Cookie Monster’s Cookies’**\
 `In the season premiere of our newly updated weekly feature, students will listen to the story of one reporter's humorous odyssey into the world of muppet cookies.`\
 https://nytimes.com/2024/09/19/learning/listen-a-quest-for-cookie-monsters-cookies.html
