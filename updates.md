@@ -1,3 +1,7 @@
+**Listen: ‘A Quest for Cookie Monster’s Cookies’**\
+`In the season premiere of our newly updated weekly feature, students will listen to the story of one reporter's humorous odyssey into the world of muppet cookies.`\
+https://nytimes.com/2024/09/19/learning/listen-a-quest-for-cookie-monsters-cookies.html
+
 **Election Live Updates: Oprah Joins Harris in Michigan as Race Remains Tight**\
 `Donald J. Trump has two events planned in Washington, and Kamala Harris will join a livestream with Oprah Winfrey. The race remains extremely close, according to a new poll from The Times, The Philadelphia Inquirer and Siena College.`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election
