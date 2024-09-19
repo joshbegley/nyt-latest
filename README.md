@@ -1,3 +1,7 @@
+**Japanese Manufacturer Investigating Radios Used in Lebanon Attacks**\
+`The Japanese company, Icom, whose name was on handheld radios that exploded in Lebanon said it had discontinued the device a decade ago.`\
+https://nytimes.com/video/world/100000009706535/japan-radios-icom-lebanon.html
+
 **What’s Going On in This Graph? | Sept. 25, 2024**\
 `How have Las Vegas’s daily high summer temperatures and overnight low summer temperatures changed since 1950?`\
 https://nytimes.com/2024/09/19/learning/whats-going-on-in-this-graph-sept-25-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/world/americas/venezuela-letter-edmundo-gonzalez.
 **The Frick Collection Looks to London For Next Leader**\
 `Axel Rüger, the head of the Royal Academy of Arts, will replace Ian Wardropper next spring as the museum’s director.`\
 https://nytimes.com/2024/09/19/arts/design/frick-collection-director-axel-ruger-royal-academy.html
-
-**Prehistoric Earth Was Very Hot. That Offers Clues About Future Earth.**\
-`At times during the past half-billion years, carbon dioxide warmed our planet more than previously thought, according to a new reconstruction of Earth’s deep past.`\
-https://nytimes.com/2024/09/19/climate/prehistoric-earth-temperatures.html
 
