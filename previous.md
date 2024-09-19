@@ -1,3 +1,7 @@
+**Dash Cam Footage Shows an 8-Year-Old Driving to Target**\
+`The police in Bedford, Ohio, later found the girl inside the store, and her family was summoned to pick her up, according to the police report.`\
+https://nytimes.com/video/us/100000009707506/ohio-girl-target-dashcam.html
+
 **Top Georgia Republican’s Texts Highlight the Party’s Deep Divide on Trump**\
 `Messages sent by Lt. Gov. Burt Jones of Georgia, a Trump ally, show the state party’s leadership fracturing in real time after the 2020 election.`\
 https://nytimes.com/2024/09/19/us/georgia-burt-jones-texts-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/19/upshot/ten-minute-challenge-canopy.ht
 **John Clements, Whose Research Saved Thousands of Babies, Dies at 101**\
 `He identified the cause of a respiratory condition that once killed 10,000 infants annually in the United States and helped design a drug that drastically reduced mortality rates.`\
 https://nytimes.com/2024/09/19/science/dr-john-a-clements-dead.html
-
-**How Oilers hope to find ideal defence partner for Darnell Nurse**\
-`Ty Emberson is the early leader to claim the spot on the Oilers' second pair next to Nurse.`\
-https://nytimes.com/athletic/5780519/2024/09/19/edmonton-oilers-darnell-nurse-ty-emberson/
 
