@@ -1,3 +1,7 @@
+**Lucine Amara, 99, Dies; Familiar Soprano at the Met Saw Bias There**\
+`She sang with the Metropolitan Opera for decades, often on short notice, including after lodging a successful age discrimination complaint against the company.`\
+https://nytimes.com/2024/09/19/arts/music/lucine-amara-dead.html
+
 **A New Era in Sabotage: Turning Ordinary Devices Into Grenades, on a Mass Scale**\
 `The attacks in Lebanon required getting deep into the supply chain, which is difficult to do. But the sabotage contributes to a sense of vulnerability that ordinary devices can become a source of danger.`\
 https://nytimes.com/2024/09/19/us/politics/israel-hezbollah-pager-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/business/mortgage-rates-fed-rate-cut.html
 **Why Can’t Kamala Harris Just Say This?**\
 `Here’s a script with which she could explain her evolution.`\
 https://nytimes.com/2024/09/19/opinion/kamala-harris-positions.html
-
-**Hojlund & Mount in contention to play at Palace - Ten Hag**\
-`Rasmus Hojlund and Mason Mount are in contention to feature against Crystal Palace, but Erik ten Hag will make a late call ahead of the trip to Selhurst Park.`\
-https://nytimes.com/athletic/5779571/2024/09/19/rasmus-hojlund-mason-mount-injuries/
 
