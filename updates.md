@@ -1,3 +1,7 @@
+**Bo Bichette lands on IL with finger injury days after return from calf strain**\
+`Injuries and underperformance have made this a trying and disappointing season for Bichette, who hit .225 with a .598 OPS.`\
+https://nytimes.com/athletic/5779796/2024/09/19/bo-bichette-blue-jays-finger-injury/
+
 **College football Week 4 model projections: Point differentials and totals for every game**\
 `Austin Mock's model projects the point spreads and totals for every Week 4 college football game.`\
 https://nytimes.com/athletic/5779709/2024/09/19/college-football-week-4-model-projections-scores/

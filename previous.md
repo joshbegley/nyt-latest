@@ -1,3 +1,7 @@
+**Bo Bichette lands on IL with finger injury days after return from calf strain**\
+`Injuries and underperformance have made this a trying and disappointing season for Bichette, who hit .225 with a .598 OPS.`\
+https://nytimes.com/athletic/5779796/2024/09/19/bo-bichette-blue-jays-finger-injury/
+
 **College football Week 4 model projections: Point differentials and totals for every game**\
 `Austin Mock's model projects the point spreads and totals for every Week 4 college football game.`\
 https://nytimes.com/athletic/5779709/2024/09/19/college-football-week-4-model-projections-scores/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5775030/2024/09/19/fantasy-football-rankings-week-3
 **A New Era in Sabotage: Turning Ordinary Devices Into Grenades, on a Mass Scale**\
 `The attacks in Lebanon required getting deep into the supply chain, which is difficult to do. But the sabotage contributes to a sense of vulnerability that ordinary devices can become a source of danger.`\
 https://nytimes.com/2024/09/19/us/politics/israel-hezbollah-pager-attacks.html
-
-**Stocks Rally a Day After Fed’s Big Interest Rate Cut**\
-`The S&P 500 had already been climbing as investors grew more confident that the Federal Reserve would cut interest rates by half a percentage point. Thursday’s gain put the index in range of a closing record.`\
-https://nytimes.com/2024/09/19/business/stock-market-federal-reserve.html
 
