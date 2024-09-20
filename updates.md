@@ -1,3 +1,11 @@
+**Commanders WR Noah Brown, slowed by injuries, won't stop fighting: 'That's all I know'**\
+`The receiver has had a number of setbacks throughout his football career, but his resiliency allows him to keep pushing through. `\
+https://nytimes.com/athletic/5780678/2024/09/20/commanders-noah-brown-injuries/
+
+**AFC North Whiparound: Who is the favorite, who has better chance of rebounding from 0-2?**\
+`Also, what's been the biggest surprise from each team in the division after two weeks? `\
+https://nytimes.com/athletic/5779570/2024/09/20/ravens-bengals-browns-steelers-afc-north-whiparound/
+
 **All England Club set to win approval for Wimbledon expansion**\
 `The All England Club looks set to win its lengthy battle to build 39 new courts on the former Wimbledon Park golf site after the Greater London Authority (GLA) recommended that the project should be approved.`\
 https://nytimes.com/athletic/5781611/2024/09/20/wimbledon-all-england-club-expand/
