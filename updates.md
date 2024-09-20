@@ -1,3 +1,7 @@
+**A G.O.P.-Linked Group’s Contradictory Ads Cast Harris as Friend and Foe of Israel**\
+`The Future Coalition PAC is targeting voters in Pennsylvania and Michigan, both swing states, with contradictory messages about the vice president’s level of support for Israel.`\
+https://nytimes.com/2024/09/20/us/politics/trump-harris-israel-gaza-war.html
+
 **Read the Summary of the Secret Service’s Internal Review**\
 `The agency released a brief summary of its monthslong inquiry into the failures leading to the attempted assassination of former President Donald J. Trump in July. The complete report is not yet finished.`\
 https://nytimes.com/interactive/2024/09/20/us/politics/usss-mission-assurance-summaryfinal.html
