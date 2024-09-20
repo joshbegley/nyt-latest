@@ -1,3 +1,23 @@
+**Israel’s Attacks on Hezbollah Intensify but Stop Short of All-Out War**\
+`Israel is attempting a risky strategy, increasing the intensity of its attacks in an attempt to force Hezbollah to back down, while raising the chances of an aggressive response that devolves into a land war.`\
+https://nytimes.com/2024/09/20/world/middleeast/israel-lebanon-attacks-hezbollah-war.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a South Indian drama about sexual harassment, a film shot within a video game, a period coming-of-age movie and more.`\
+https://nytimes.com/2024/09/20/movies/international-movies-streaming.html
+
+**In Netflix's Hope Solo documentary, the absent voices echo the loudest**\
+`In "Hope Solo vs. U.S. Soccer", a lack of reporting to support or disprove the goalkeeper's claims means her story is told without nuance`\
+https://nytimes.com/athletic/5782048/2024/09/20/hope-solo-netflix-untold-documentary/
+
+**Anna Teresa de Keersmaeker Apologizes After Bullying Accusations**\
+`Dancers said De Keersmaeker, a “godmother of contemporary dance,” ran her company in a tyrannical style that endangered staff members’ health.`\
+https://nytimes.com/2024/09/20/arts/dance/anne-teresa-de-keersmaeker-bullying.html
+
+**Harris Praises Taylor Swift’s ‘Courage’ After Endorsement**\
+`Kamala Harris noted, however, that she still won’t be rooting for the Kansas City Chiefs: “I am a 49ers fan, but who’s mad at anyone for being loyal to their team, right?”`\
+https://nytimes.com/2024/09/20/us/politics/taylor-swift-harris-endorsement.html
+
 **The Florida group behind an abortion-rights ballot measure to report a record cash haul.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2024/09/20/us/trump-harris-election/the-florida-group-behind-an-abortion-rights-ballot-measure-to-report-a-record-cash-haul

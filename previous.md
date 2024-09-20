@@ -1,3 +1,23 @@
+**Israel’s Attacks on Hezbollah Intensify but Stop Short of All-Out War**\
+`Israel is attempting a risky strategy, increasing the intensity of its attacks in an attempt to force Hezbollah to back down, while raising the chances of an aggressive response that devolves into a land war.`\
+https://nytimes.com/2024/09/20/world/middleeast/israel-lebanon-attacks-hezbollah-war.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a South Indian drama about sexual harassment, a film shot within a video game, a period coming-of-age movie and more.`\
+https://nytimes.com/2024/09/20/movies/international-movies-streaming.html
+
+**In Netflix's Hope Solo documentary, the absent voices echo the loudest**\
+`In "Hope Solo vs. U.S. Soccer", a lack of reporting to support or disprove the goalkeeper's claims means her story is told without nuance`\
+https://nytimes.com/athletic/5782048/2024/09/20/hope-solo-netflix-untold-documentary/
+
+**Anna Teresa de Keersmaeker Apologizes After Bullying Accusations**\
+`Dancers said De Keersmaeker, a “godmother of contemporary dance,” ran her company in a tyrannical style that endangered staff members’ health.`\
+https://nytimes.com/2024/09/20/arts/dance/anne-teresa-de-keersmaeker-bullying.html
+
+**Harris Praises Taylor Swift’s ‘Courage’ After Endorsement**\
+`Kamala Harris noted, however, that she still won’t be rooting for the Kansas City Chiefs: “I am a 49ers fan, but who’s mad at anyone for being loyal to their team, right?”`\
+https://nytimes.com/2024/09/20/us/politics/taylor-swift-harris-endorsement.html
+
 **GE Vernova May Cut 900 Offshore Wind Jobs as It Scales Back**\
 `The company, a spinoff from General Electric, has been plagued by financial losses in its wind unit and, more recently, accidents involving the failure of turbine blades.`\
 https://nytimes.com/2024/09/20/business/ge-vernova-offshore-wind-layoffs.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5782306/2024/09/20/mets-luisangel-acuna-prospect/
 **F.T.C. Accuses Drug Middlemen of Inflating Insulin Prices**\
 `The case takes aim at the major pharmacy benefit managers, agency officials said, claiming that they favored more expensive insulin products and forced patients to pay more.`\
 https://nytimes.com/2024/09/20/health/ftc-drug-price-inflation-insulin.html
-
-**18 More of Our Best Recipes Ever, According to You**\
-`You let us know what we missed from our list of NYT Cooking’s 50 greatest hits.`\
-https://nytimes.com/2024/09/20/dining/reader-responses-favorite-cooking-recipes.html
-
-**Villa's Watkins '100 per cent fit' for Wolves - Emery**\
-`Aston Villa striker Ollie Watkins is &#8220;100 per cent&#8221; fit to face Wolverhampton Wanderers, his head coach Unai Emery has said.`\
-https://nytimes.com/athletic/5782338/2024/09/20/ollie-watkins-fitness-aston-villa-wolves/
-
-**Autographed Caitlin Clark trading card sells for record $84,000**\
-`A one-of-a-kind autographed Caitlin Clark WNBA Draft card sold at auction for $84,000 on Thursday night, breaking the record for the most expensive women&#8217;s basketball card ever.`\
-https://nytimes.com/athletic/5782026/2024/09/20/caitlin-clark-card-record-sale/
-
-**The Florida group behind an abortion-rights ballot measure to report a record cash haul.**\
-`By Patricia Mazzei`\
-https://nytimes.com/live/2024/09/20/us/trump-harris-election/the-florida-group-behind-an-abortion-rights-ballot-measure-to-report-a-record-cash-haul
-
-**The best NHL futures and win totals bets for the 2024-25 season**\
-`Despite playoff disappointment, the Maple Leafs should be strong once more while the Canucks' success from last season seems sustainable.`\
-https://nytimes.com/athletic/5745021/2024/09/20/nhl-futures-best-bets-win-totals-ride-the-leafs-oilers-fade-red-wings-blues/
 
