@@ -1,3 +1,7 @@
+**Newcastle set for late decision on Alexander Isak availability**\
+`Eddie Howe says Newcastle United will make a decision on Friday on Alexander Isak&#8217;s availability ahead of Saturday&#8217;s Premier League fixture against Fulham.`\
+https://nytimes.com/athletic/5781570/2024/09/20/alexander-isak-injury-update/
+
 **‘La Maison’: Like ‘Succession,’ but Better Dressed (and French)**\
 `The new Apple TV+’s new series takes the viewer inside two rival Paris fashion houses, with gorgeous people in gorgeous clothes who will do anything for power.`\
 https://nytimes.com/2024/09/20/arts/television/la-maison-apple-tv.html
