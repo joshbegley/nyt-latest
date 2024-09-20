@@ -1,3 +1,19 @@
+**The Florida group behind an abortion-rights ballot measure to report a record cash haul.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2024/09/20/us/trump-harris-election/the-florida-group-behind-an-abortion-rights-ballot-measure-to-report-a-record-cash-haul
+
+**The best NHL futures and win totals bets for the 2024-25 season**\
+`Despite playoff disappointment, the Maple Leafs should be strong once more while the Canucks' success from last season seems sustainable.`\
+https://nytimes.com/athletic/5745021/2024/09/20/nhl-futures-best-bets-win-totals-ride-the-leafs-oilers-fade-red-wings-blues/
+
+**Football Parlay Fridays Week 4: How much can we fade Kent State?**\
+`Austin Mock takes another shot at his round-robin parlays with four underdogs and an alternate spread against an historically bad FBS team.`\
+https://nytimes.com/athletic/5782183/2024/09/20/football-parlay-college-football-week-4/
+
+**Election 2024 Polls: Florida**\
+`See the latest election polls and polling averages for Florida.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-florida.html
+
 **Otis Davis, Who Overcame Racism to Win Olympic Gold, Dies at 92**\
 `At the 1960 Summer Games in Rome, he set a world record in the 400-meter race and another in the 4 x 400 relay, where he anchored the United States team’s victory.`\
 https://nytimes.com/2024/09/20/sports/otis-davis-ded.html
