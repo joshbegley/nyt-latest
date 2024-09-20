@@ -1,3 +1,7 @@
+**‘Definitely a little scary:’ Yankees' Juan Soto bangs knee just days after mentioning upcoming free agency**\
+`SEATTLE — Two days after speaking openly about his upcoming free agent bonanza, New York Yankees star right fielder Juan Soto found himself on the ground at T-Mobile Park on Thursday, having smashed his knee left on the wall while making a sliding catch.`\
+https://nytimes.com/athletic/5781027/2024/09/19/yankees-juan-soto-injury-scare/
+
 **Shohei Ohtani's path to 50-50 and beyond: Recounting the top moments**\
 `This is how Shohei Ohtani trotted and sprinted his way to an unprecedented and unthinkable baseball milestone.`\
 https://nytimes.com/athletic/5780903/2024/09/19/dodgers-shohe-ohtani-50-50-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5780808/2024/09/19/twins-slump-tigers-wild-card-pla
 **New super PAC pitches Trump to users of Zyn nicotine pouches and sports gamblers.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election/new-super-pac-pitches-trump-to-users-of-zyn-nicotine-pouches-and-sports-gamblers
-
-**Republicans Try to Block Pennsylvania Voters From Fixing Problems With Ballots**\
-`The Republican National Committee argued that counties do not have the authority to allow voters in the swing state to correct ballots that do not comply with the rules.`\
-https://nytimes.com/2024/09/19/us/politics/republicans-pennsylvania-mail-ballots-lawsuit.html
 
