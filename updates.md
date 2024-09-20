@@ -1,3 +1,7 @@
+**In Australia, an Old-Fashioned Art Is Having a Revival**\
+`Young practitioners are helping make stained glass, which fell out of fashion over two decades ago, a vibrant art form in Australia once again.`\
+https://nytimes.com/2024/09/20/world/australia/stained-glass.html
+
 **Late Night Thinks It’s Unlikely That Neighbors Ate Your Cat**\
 `Before starting rumors about Haitians, please make sure your cat is actually missing, Ronnie Chieng implored on “The Daily Show.”`\
 https://nytimes.com/2024/09/20/arts/television/late-night-cat-eating-neighbors-trump.html

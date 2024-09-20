@@ -1,3 +1,7 @@
+**In Australia, an Old-Fashioned Art Is Having a Revival**\
+`Young practitioners are helping make stained glass, which fell out of fashion over two decades ago, a vibrant art form in Australia once again.`\
+https://nytimes.com/2024/09/20/world/australia/stained-glass.html
+
 **Late Night Thinks It’s Unlikely That Neighbors Ate Your Cat**\
 `Before starting rumors about Haitians, please make sure your cat is actually missing, Ronnie Chieng implored on “The Daily Show.”`\
 https://nytimes.com/2024/09/20/arts/television/late-night-cat-eating-neighbors-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/us/california-firefighters-highway-accident.html
 **Graham Arnold resigns as head coach of Australia**\
 `Graham Arnold has stepped down as head coach of the Australian men&#8217;s national team after six years in charge.`\
 https://nytimes.com/athletic/5781522/2024/09/20/graham-arnold-australia-resign/
-
-**In Barcelona’s Champions League chaos, at least there was Marc Casado**\
-`Barcelona lost 2-1 at Monaco in their opening Champions League match, but there was a real bright spot in the performance of Marc Casado`\
-https://nytimes.com/athletic/5781503/2024/09/20/barcelona-marc-casado-champions-league-monaco/
 
