@@ -1,3 +1,7 @@
+**Harris Praises Taylor Swift’s ‘Courage’ After Endorsement**\
+`Kamala Harris noted, however, that she still won’t be rooting for the Kansas City Chiefs: “I am a 49ers fan, but who’s mad at anyone for being loyal to their team, right?”`\
+https://nytimes.com/live/2024/09/20/us/trump-harris-election/taylor-swift-harris-endorsement
+
 **GE Vernova May Cut 900 Offshore Wind Jobs as It Scales Back**\
 `The company, a spinoff from General Electric, has been plagued by financial losses in its wind unit and, more recently, accidents involving the failure of turbine blades.`\
 https://nytimes.com/2024/09/20/business/ge-vernova-offshore-wind-layoffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5782026/2024/09/20/caitlin-clark-card-record-sale/
 **The Florida group behind an abortion-rights ballot measure to report a record cash haul.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2024/09/20/us/trump-harris-election/the-florida-group-behind-an-abortion-rights-ballot-measure-to-report-a-record-cash-haul
-
-**The best NHL futures and win totals bets for the 2024-25 season**\
-`Despite playoff disappointment, the Maple Leafs should be strong once more while the Canucks' success from last season seems sustainable.`\
-https://nytimes.com/athletic/5745021/2024/09/20/nhl-futures-best-bets-win-totals-ride-the-leafs-oilers-fade-red-wings-blues/
 
