@@ -1,3 +1,7 @@
+**What’s Next for Rate Cuts? The Fed Is Watching Jobs and Prices.**\
+`A Federal Reserve official predicted quarter point rate cuts if data looked ‘fine’. But he also set out a scenario for a pause — or faster reductions.`\
+https://nytimes.com/2024/09/20/business/economy/fed-rate-cuts-jobs-inflation.html
+
 **Who Is the ‘Skinny Influencer’ Who Was Barred From TikTok?**\
 `Liv Schmidt has inspired debates with videos that some believe encourage disordered eating. One social media site tried to remove her.`\
 https://nytimes.com/2024/09/20/style/liv-schmidt-tiktok.html
