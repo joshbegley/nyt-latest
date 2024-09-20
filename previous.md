@@ -1,3 +1,11 @@
+**Senators reach agreement to build arena at LeBreton Flats**\
+`The Senators and the NCC had until Friday's deadline to reach a deal before their memorandum of understanding expired.`\
+https://nytimes.com/athletic/5782158/2024/09/20/senators-arena-agreement-lebreton-flats/
+
+**Nasal Flu Vaccine Is Approved for At-Home Use**\
+`The F.D.A. authorized AstraZeneca to prescribe the treatment online for at-home use after a study showed it was feasible.`\
+https://nytimes.com/2024/09/20/health/nasal-flu-vaccine-is-approved-for-at-home-use.html
+
 **Trump’s Suggestion That Jews Could Cost Him Race Creates Fear of Antisemitic Reprisal**\
 `Twice on Thursday, the former president said he believed “the Jewish people would have a lot to do with” a loss if Kamala Harris defeated him.`\
 https://nytimes.com/2024/09/20/us/politics/trump-jews-antisemitism.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5782559/2024/09/20/evangelos-marinakis-city-ground/
 **D-3 school in Springfield, Ohio, to resume athletic events**\
 `Schedules will resume, but the school will have additional security measures, including patrols in partnership with law enforcement.`\
 https://nytimes.com/athletic/5782420/2024/09/20/wittenberg-university-athletics-security-resume/
-
-**The Deserter**\
-`He didn’t want to fight in Putin’s war — he just wanted to survive. But to make it back to his family and live in peace, he would have to run.`\
-https://nytimes.com/interactive/2024/09/20/magazine/ukraine-russia-war-deserter.html
-
-**Airstrike in Lebanon Kills Hezbollah Commander, Israel Says**\
-`The Israeli military carried out an airstrike in Beirut that it said killed several senior Hezbollah officials, including Ibrahim Aqeel, a commander wanted by the United States for his role in bombings in the 1980s that killed hundreds.`\
-https://nytimes.com/video/world/middleeast/100000009709670/lebanon-israeli-airstrike-hezbollah.html
 

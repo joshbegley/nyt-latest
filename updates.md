@@ -1,3 +1,11 @@
+**Senators reach agreement to build arena at LeBreton Flats**\
+`The Senators and the NCC had until Friday's deadline to reach a deal before their memorandum of understanding expired.`\
+https://nytimes.com/athletic/5782158/2024/09/20/senators-arena-agreement-lebreton-flats/
+
+**Nasal Flu Vaccine Is Approved for At-Home Use**\
+`The F.D.A. authorized AstraZeneca to prescribe the treatment online for at-home use after a study showed it was feasible.`\
+https://nytimes.com/2024/09/20/health/nasal-flu-vaccine-is-approved-for-at-home-use.html
+
 **Trump’s Suggestion That Jews Could Cost Him Race Creates Fear of Antisemitic Reprisal**\
 `Twice on Thursday, the former president said he believed “the Jewish people would have a lot to do with” a loss if Kamala Harris defeated him.`\
 https://nytimes.com/2024/09/20/us/politics/trump-jews-antisemitism.html
