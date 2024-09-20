@@ -1,3 +1,11 @@
+**Trump Presses for More Support From Jewish Voters**\
+`At a campaign event aimed to denounce antisemitism in America, Trump said he believed that “Israel will be wiped off the face of the Earth” if he doesn’t win.`\
+https://nytimes.com/video/us/elections/100000009708037/trump-jewish-voters-washington.html
+
+**Phillies stuck with Taijuan Walker and his nightmare season spawned new embarrassment**\
+`Teams need someone as a mop-up man to save others from throwing. Walker couldn't even do that in Thursday's loss.`\
+https://nytimes.com/athletic/5781315/2024/09/19/phillies-taijuan-walker-failure-mets/
+
 **Shohei Ohtani delivers with ridiculous performance: 'Makes you speechless'**\
 `Ohtani finished 6-for-6 with 10 runs batted in a 20-4 romp over the Miami Marlins.`\
 https://nytimes.com/athletic/5781191/2024/09/19/dodgers-shohei-ohtani-50-50-reaction/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5781104/2024/09/19/shohei-ohtani-50-home-run-ball/
 **WNBA playoff matchups set; Atlanta Dream claim final spot**\
 `Following the 2021 season, the WNBA altered its playoff format to get rid of single-elimination games and byes to the semifinals.`\
 https://nytimes.com/athletic/5781126/2024/09/19/wnba-playoff-matchups-postseason-format/
-
-**How Trump and Harris Are Courting Pop Stars (Very Differently)**\
-`A discussion about the ways in which musicians and social media stars, both mainstream and more obscure, have figured into the current presidential campaign.`\
-https://nytimes.com/2024/09/19/arts/music/taylor-swift-trump-harris-popcast.html
-
-**Lawsuit accusing James Dolan of sex trafficking dismissed**\
-`In a statement provided to The Athletic, Croft’s attorneys Meredith Firetog and Kevin Mintzer said they plan on appealing the decision.`\
-https://nytimes.com/athletic/5781085/2024/09/19/james-dolan-lawsuit-dismissed-knicks-rangers/
 

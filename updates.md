@@ -1,3 +1,11 @@
+**Trump Presses for More Support From Jewish Voters**\
+`At a campaign event aimed to denounce antisemitism in America, Trump said he believed that “Israel will be wiped off the face of the Earth” if he doesn’t win.`\
+https://nytimes.com/video/us/elections/100000009708037/trump-jewish-voters-washington.html
+
+**Phillies stuck with Taijuan Walker and his nightmare season spawned new embarrassment**\
+`Teams need someone as a mop-up man to save others from throwing. Walker couldn't even do that in Thursday's loss.`\
+https://nytimes.com/athletic/5781315/2024/09/19/phillies-taijuan-walker-failure-mets/
+
 **Shohei Ohtani delivers with ridiculous performance: 'Makes you speechless'**\
 `Ohtani finished 6-for-6 with 10 runs batted in a 20-4 romp over the Miami Marlins.`\
 https://nytimes.com/athletic/5781191/2024/09/19/dodgers-shohei-ohtani-50-50-reaction/
