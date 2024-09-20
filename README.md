@@ -1,3 +1,7 @@
+**Aaron Rodgers drives Jets to 24-3 win over Patriots: Takeaways**\
+`Rodgers, who missed all of last season with a torn Achilles, flashed the mobility and accuracy that helped him win four MVP awards Thursday.`\
+https://nytimes.com/athletic/5781329/2024/09/19/jets-patriots-score-takeaways-thursday-night-football/
+
 **Trump Presses for More Support From Jewish Voters**\
 `At a campaign event aimed to denounce antisemitism in America, Trump said he believed that “Israel will be wiped off the face of the Earth” if he doesn’t win.`\
 https://nytimes.com/video/us/elections/100000009708037/trump-jewish-voters-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009703279/how-israels-technolog
 **Ohtani's historic 50/50 HR ball prompts chaotic scramble**\
 `Fans dove toward where the ball dropped down under a table. One man in a black T-shirt emerged from the dangerous scrum with the ball.`\
 https://nytimes.com/athletic/5781104/2024/09/19/shohei-ohtani-50-home-run-ball/
-
-**WNBA playoff matchups set; Atlanta Dream claim final spot**\
-`Following the 2021 season, the WNBA altered its playoff format to get rid of single-elimination games and byes to the semifinals.`\
-https://nytimes.com/athletic/5781126/2024/09/19/wnba-playoff-matchups-postseason-format/
 
