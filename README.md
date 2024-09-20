@@ -1,3 +1,7 @@
+**‘Forbidden Broadway’ Review: Let Them Somewhat Entertain You**\
+`From its perch way Off Broadway, the long-running satire slings its affectionate arrows at Patti, Audra and the rest.`\
+https://nytimes.com/2024/09/19/theater/forbidden-broadway-review.html
+
 **‘We should be trying to build 90-win teams here’: Cubs skipper sees ‘big gap’ to close against former club**\
 `The Cubs’ first-year manager might have been at his most animated all season in throwing down a challenge to the entire organization.`\
 https://nytimes.com/athletic/5780975/2024/09/19/craig-counsell-cubs-brewers-gap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781085/2024/09/19/james-dolan-lawsuit-dismissed-kn
 **Corrections: Sept. 20, 2024**\
 `Corrections that appeared in print on Friday, Sept. 20, 2024.`\
 https://nytimes.com/2024/09/19/pageoneplus/corrections-sept-20-2024.html
-
-**Former N.Y.C. Covid Czar Partied While Preaching Social Distancing**\
-`In a hidden-camera video posted by a conservative podcaster, Dr. Jay K. Varma boasts about flouting the public health guidelines he insisted others follow.`\
-https://nytimes.com/2024/09/19/nyregion/dr-jay-varma-nyc-covid.html
 
