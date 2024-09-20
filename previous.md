@@ -1,3 +1,11 @@
+**The Pulse: Holy s--, Shohei**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5779509/2024/09/20/shohei-ohtani-record-the-pulse/
+
+**World No. 1 Swiatek withdraws from China Open due to 'personal matters'**\
+`World No.`\
+https://nytimes.com/athletic/5781737/2024/09/20/iga-swiatek-china-open-withdraws/
+
 **Bo Nix's biggest early issue with Broncos? He can't buy a mid-range bucket**\
 `On passes 5 yards beyond the line of scrimmage, Nix has been the NFL's most inefficient QB. How are the Broncos are trying to fix it?`\
 https://nytimes.com/athletic/5779839/2024/09/20/bo-nix-broncos-passing-problems/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5777167/2024/09/20/christian-benteke-dc-united-inte
 **Inside the Panthers' offseason, from 'champagne problems' to a new hunger: Catching up with Bill Zito**\
 `The GM of the reigning champs takes The Athletic through a "hectic" short summer of critical roster decisions — and the ones coming next.`\
 https://nytimes.com/athletic/5779757/2024/09/20/panthers-offseason-bill-zito/
-
-**How Elijah Molden endured crash course to find home with Chargers**\
-`Just 17 days after arriving via trade with the Titans, Molden was starting — and delivering an interception — for the Chargers.`\
-https://nytimes.com/athletic/5780886/2024/09/20/chargers-elijah-molden/
-
-**Three Mile Island Plans to Reopen as Demand for Nuclear Power Grows**\
-`The infamous plant, closed since 2019, is getting a new lease on life after Microsoft agreed to buy its electricity to supply a growing fleet of data centers.`\
-https://nytimes.com/2024/09/20/climate/three-mile-island-reopening.html
 
