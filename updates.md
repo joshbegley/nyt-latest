@@ -1,3 +1,7 @@
+**E.U. Plans to Offer $39 Billion Loan to Ukraine Without the U.S.**\
+`European Union officials reduced a planned loan after Hungary blocked an agreement that would have satisfied U.S. requirements for a joint loan to move forward.`\
+https://nytimes.com/2024/09/20/business/ukraine-aid-russian-assets.html
+
 **Top E.U. Official Visits Ukraine to Offer Financial Reassurance**\
 `Ursula von der Leyen, the European Commission president, will meet with President Volodymyr Zelensky as stalled talks delay a $50 billion loan to Ukraine.`\
 https://nytimes.com/2024/09/20/business/ukraine-aid-russian-assets.html
