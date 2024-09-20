@@ -1,3 +1,7 @@
+**Shohei Ohtani's path to 50-50 and beyond: Recounting the top moments**\
+`This is how Shohei Ohtani trotted and sprinted his way to an unprecedented and unthinkable baseball milestone.`\
+https://nytimes.com/athletic/5780903/2024/09/19/dodgers-shohe-ohtani-50-50-highlights/
+
 **How voters are reacting to the latest incendiary comments attributed to Lt. Gov. Mark Robinson**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election/how-voters-are-reacting-to-the-latest-incendiary-comments-attributed-to-lt-gov-mark-robinson
