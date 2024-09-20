@@ -1,3 +1,7 @@
+**Earth Might Have Had a Ring 466 Million Years Ago**\
+`Impact craters found around the Earth that were made around the same time could be linked to debris falling from a ring, a new study suggests.`\
+https://nytimes.com/2024/09/20/science/earth-rings-asteroids-ordovician.html
+
 **What the U.S. Has Argued in the Google Ad Tech Antitrust Trial**\
 `As the government wraps up its case, it has built a picture of how Google has become dominant among companies that buy and sell ads online.`\
 https://nytimes.com/2024/09/20/technology/google-ad-antitrust-trial-arguments.html
