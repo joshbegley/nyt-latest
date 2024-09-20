@@ -1,3 +1,11 @@
+**Getty Apologizes for Fireworks Display Gone Awry**\
+`A planned “explosion event” in Los Angeles by the artist Cai Guo-Qiang left several injured and others shaken.`\
+https://nytimes.com/2024/09/20/arts/design/getty-apologizes-fireworks-cai-guo-qiang.html
+
+**Scoop City: Two reasons why NFL passing stats are down**\
+`A look at potential factors for a league struggling to pass the ball, plus the inside scoop on how Jim Harbaugh motivates the 2-0 Chargers`\
+https://nytimes.com/athletic/5779782/2024/09/20/scoop-city-one-reason-why-nfl-passing-stats-are-down/
+
 **Who are NASCAR's best young drivers? Here's our list of the top 10 prospects**\
 `We polled several in the NASCAR industry to find a list of the names they're most excited about. Here are our top 10 under-25 prospects.`\
 https://nytimes.com/athletic/5780806/2024/09/20/nascar-prospects-connor-zilisch-corey-day/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5782096/2024/09/20/devils-dawson-mercer-contract-ex
 **NFL Week 3 injury report: A.J. Brown, Deebo Samuel dealing with tricky lower body injuries**\
 `Greg Scholz runs through the biggest fantasy football injury worries of Week 3, leading off with A.J. Brown's precarious hamstring injury.`\
 https://nytimes.com/athletic/5782045/2024/09/20/nfl-week-3-injury-report-fantasy-football-aj-brown-deebo-samuel/
-
-**Fulham launch investigation after Al-Fayed sexual assault allegations**\
-`Fulham has initiated an investigation to determine if anyone associated with the club was impacted by allegations made against its former owner, Mohamed Al-Fayed.`\
-https://nytimes.com/athletic/5781928/2024/09/20/mohamed-al-fayed-fulham-investigation/
-
-**Trump’s Impulse After Robinson Bombshell Report: Ignore, and Power Through**\
-`CNN’s article scrambled G.O.P. plans for winning North Carolina. People close to Donald Trump are holding out hope Lt. Gov. Mark Robinson will decide to quit the governor’s race.`\
-https://nytimes.com/2024/09/20/us/politics/trump-mark-robinson.html
 
