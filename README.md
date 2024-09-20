@@ -1,3 +1,7 @@
+**What’s Next for Rate Cuts? The Fed Is Watching Jobs and Prices.**\
+`A Federal Reserve official predicted two more cuts this year if data looked ‘fine’. But he also set out reasons for fewer reductions — or more of them.`\
+https://nytimes.com/2024/09/20/business/economy/whats-next-for-rate-cuts-the-fed-is-watching-jobs-and-prices.html
+
 **Corey LaJoie, Justin Haley swapping NASCAR rides**\
 `The swap will begin at next weekend’s Cup Series race at Kansas Speedway.`\
 https://nytimes.com/athletic/5782496/2024/09/20/nascar-corey-lajoie-justin-haley-ride-swap/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/us/politics/democrats-mark-robinson-north-carolin
 **‘The Penguin’ Review: The Dark Blight**\
 `The HBO series starring an unrecognizable Colin Farrell is further proof that there is no fun in the Batman universe.`\
 https://nytimes.com/2024/09/20/arts/television/the-penguin-review.html
-
-**Courting Dark Emotions in ‘See What I Wanna See’ and a Celine Song Play**\
-`Revivals of a Michael John LaChiusa musical and an early work by the “Past Lives” filmmaker toy with and challenge audience expectations.`\
-https://nytimes.com/2024/09/20/theater/see-what-i-wanna-see-celine-song-review.html
 
