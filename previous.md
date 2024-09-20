@@ -1,3 +1,7 @@
+**Top E.U. Official Visits Ukraine to Offer Financial Reassurance**\
+`Ursula von der Leyen, the European Commission president, will meet with President Volodymyr Zelensky as stalled talks delay a $50 billion loan to Ukraine.`\
+https://nytimes.com/2024/09/20/business/ukraine-aid-russian-assets.html
+
 **What Nebraska's NCAA-record 400 consecutive sellouts mean to the Huskers and their fans**\
 `“That loyalty, that passion, as I’ve said since day one, is something that we feel humbled by,” coach Matt Rhule said.`\
 https://nytimes.com/athletic/5780871/2024/09/20/nebraska-football-sellouts-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774090/2024/09/20/blue-jackets-gaudreau-teammates-
 **Lazerus: Blackhawks need to finally turn the corner before Chicago turns its back**\
 `For the first time in a long time, there’s a lot riding on this Blackhawks season. It’s time for the team to grab Chicago’s attention again.`\
 https://nytimes.com/athletic/5780584/2024/09/20/chicago-blackhawks-season-foligno-bedard/
-
-**Wordle Review No. 1,190**\
-`Scroll down for hints and conversation about the puzzle for September 21, 2024.`\
-https://nytimes.com/2024/09/20/crosswords/wordle-review-1190.html
 
