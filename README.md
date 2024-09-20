@@ -1,3 +1,7 @@
+**Georgia Attorney General Says Election Board Is Operating Outside Its Authority**\
+`The board, with a new right-wing majority, is set to consider new election rules just 45 days before the election.`\
+https://nytimes.com/2024/09/20/us/elections/georgia-election-board-rules.html
+
 **Is It Better to Buy or Lease a Car? It Depends.**\
 `The lowest overall cost is to buy a car and keep it for a long time. But leasing usually has lower monthly costs. And leasing an E.V. may come with a tax break.`\
 https://nytimes.com/2024/09/20/your-money/buy-lease-car-cost-compared.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israel-sub
 **Odobert set for spell out with hamstring injury, Bissouma in contention to return**\
 `Tottenham Hotspur head coach Ange Postecoglou says Wilson Odobert is set for a spell on the sidelines after sustaining a hamstring injury during Wednesday&#8217;s victory over Coventry City.`\
 https://nytimes.com/athletic/5781889/2024/09/20/wilson-odobert-injury-update/
-
-**Verstappen ordered to complete public interest work for inappropriate language**\
-`Max Verstappen has been ordered to complete work of public interest after using inappropriate language during the FIA Thursday driver press conference ahead of the Formula One Singapore Grand Prix.`\
-https://nytimes.com/athletic/5781828/2024/09/20/max-verstappen-singapore-grand-prix-language/
 
