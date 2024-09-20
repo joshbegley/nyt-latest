@@ -1,3 +1,15 @@
+**Blackhawks camp observations: Connor Bedard ready to take on NHL again after satisfying offseason**\
+`Also, Kyle Davidson provided more specific injury updates for Artyom Levshunov and Laurent Brossoit.`\
+https://nytimes.com/athletic/5782735/2024/09/20/blackhawks-training-camp-connor-bedard/
+
+**Early Voting Begins in Minnesota, South Dakota and Virginia**\
+`All three states began sending out mail ballots on Friday and now give people the option of voting in person.`\
+https://nytimes.com/2024/09/20/us/politics/early-voting-south-dakota-virginia-minnesota.html
+
+**What I'm seeing at Flyers training camp: A scuffle, and Michkov and Frost link up**\
+`John Tortorella said he wasn't surprised when two of his players fought during practice.`\
+https://nytimes.com/athletic/5782763/2024/09/20/flyers-training-camp-michkov/
+
 **Israel Killed a Top Hezbollah Commander in Lebanon**\
 `Plus, a baseball game for the ages`\
 https://nytimes.com/2024/09/20/briefing/israel-hezbollah-georgia-drug-prices-flu-vaccine.html

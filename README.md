@@ -1,3 +1,7 @@
+**Even before the CNN story, Mark Robinson was behind in polls of North Carolina’s governor’s race.**\
+`By Kaleigh Rogers and Alex Lemonides`\
+https://nytimes.com/live/2024/09/20/us/trump-harris-election/even-before-the-cnn-story-mark-robinson-was-behind-in-polls-of-north-carolinas-governors-race
+
 **Blackhawks camp observations: Connor Bedard ready to take on NHL again after satisfying offseason**\
 `Also, Kyle Davidson provided more specific injury updates for Artyom Levshunov and Laurent Brossoit.`\
 https://nytimes.com/athletic/5782735/2024/09/20/blackhawks-training-camp-connor-bedard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781719/2024/09/20/manchester-united-rashford-ten-h
 **California Firefighter Is Accused of Starting 5 Fires in Wine Country**\
 `A Cal Fire employee was arrested Friday on suspicion of starting several blazes in Sonoma County.`\
 https://nytimes.com/2024/09/20/us/cal-fire-sonoma-county-arson.html
-
-**Israel’s latest military actions align with a long-signaled strategy change on its northern border.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israels-latest-military-actions-fit-a-long-signaled-promise-of-a-new-strategy-on-its-northern-border
 
