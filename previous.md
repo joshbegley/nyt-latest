@@ -1,3 +1,7 @@
+**With Robinson Candidacy, North Carolina Republicans Fear Damage to Years of Gains**\
+`Explosive posts by the Republican candidate for governor, Mark Robinson, are sending waves of anxiety through a state party that has long been tactical and disciplined.`\
+https://nytimes.com/2024/09/20/us/mark-robinson-north-carolina-republicans.html
+
 **AJ Griffin to step away from basketball after 2 seasons**\
 `As of now, the franchise has no immediate plans to fill the roster spot, a team source said.`\
 https://nytimes.com/athletic/5782871/2024/09/20/aj-girffin-retirement-duke-rockets-hawks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/science/michel-siffre-dead.html
 **Even before the CNN story, Mark Robinson was behind in polls of North Carolina’s governor’s race.**\
 `By Kaleigh Rogers and Alex Lemonides`\
 https://nytimes.com/live/2024/09/20/us/trump-harris-election/even-before-the-cnn-story-mark-robinson-was-behind-in-polls-of-north-carolinas-governors-race
-
-**Blackhawks camp observations: Connor Bedard ready to take on NHL again after satisfying offseason**\
-`Also, Kyle Davidson provided more specific injury updates for Artyom Levshunov and Laurent Brossoit.`\
-https://nytimes.com/athletic/5782735/2024/09/20/blackhawks-training-camp-connor-bedard/
 

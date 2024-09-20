@@ -1,3 +1,7 @@
+**With Robinson Candidacy, North Carolina Republicans Fear Damage to Years of Gains**\
+`Explosive posts by the Republican candidate for governor, Mark Robinson, are sending waves of anxiety through a state party that has long been tactical and disciplined.`\
+https://nytimes.com/2024/09/20/us/mark-robinson-north-carolina-republicans.html
+
 **AJ Griffin to step away from basketball after 2 seasons**\
 `As of now, the franchise has no immediate plans to fill the roster spot, a team source said.`\
 https://nytimes.com/athletic/5782871/2024/09/20/aj-girffin-retirement-duke-rockets-hawks/
