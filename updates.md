@@ -1,3 +1,7 @@
+**Canucks training camp: Thatcher Demko speaks, reading too much into lines and more**\
+`With training camp officially underway, let's break down the major trends, observations and storylines that we saw.`\
+https://nytimes.com/athletic/5780768/2024/09/19/canucks-training-camp-thatcher-demko-injury/
+
 **Kentucky Sheriff Arrested in Shooting Death of Judge**\
 `The police say a sheriff shot District Judge Kevin Mullins inside the courthouse on Thursday afternoon before turning himself in.`\
 https://nytimes.com/2024/09/19/us/sheriff-judge-shooting-kentucky.html
