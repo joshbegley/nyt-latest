@@ -1,3 +1,7 @@
+**Here’s the latest on the 2024 race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/09/20/us/trump-harris-election/heres-the-latest-on-the-2024-race
+
 **With World’s Attention Shifting, Some in Gaza Fear They Will Be Forgotten**\
 `Even as Israel signals that it is moving its focus to its northern border with Lebanon, there has been no pause to its bombardment in Gaza, where residents are facing another winter with little access to food or shelter.`\
 https://nytimes.com/2024/09/20/world/middleeast/gaza-cease-fire-talks-hezbollah-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781610/2024/09/20/the-athletic-friday-football-qui
 **WSL storylines to watch: The Bompastor era begins, but fewer women managers**\
 `As the new WSL season begins, here's what you need to watch out for `\
 https://nytimes.com/athletic/5776144/2024/09/20/wsl-storylines-to-watch-bompastor-liverpool-manchester-united/
-
-**FPL Q&A: Gameweek 5 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 5 Fantasy Premier League Q&A from 4pm UK time on Friday`\
-https://nytimes.com/athletic/5781581/2024/09/20/fantasy-premier-league-advice-injury-news-gw5/
 
