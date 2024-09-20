@@ -1,3 +1,11 @@
+**Communication Failures Plagued Deadly Trump Rally, Secret Service Finds**\
+`The summary of an internal investigation determined that the agency did not adequately prepare its local partners for their duties at the event in Butler, Pa., in July.`\
+https://nytimes.com/2024/09/20/us/politics/trump-assassination-attempt-secret-service.html
+
+**Trump’s Springfield Strategy Fits an Old Pattern**\
+`The goal is to turn a minority group into a faceless menace.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/trump-springfield-pattern
+
 **WNBA Playoffs odds, picks: Liberty aim for first title, Aces for three-peat**\
 `The WNBA is headed to the playoffs in one of the best seasons we've ever seen. Get odds and picks for the outcomes.`\
 https://nytimes.com/athletic/5780602/2024/09/20/wnba-playoff-odds-expert-picks-schedule/
