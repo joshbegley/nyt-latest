@@ -1,3 +1,11 @@
+**Who Is the ‘Skinny Influencer’ Who Was Barred From TikTok?**\
+`Liv Schmidt has inspired debates with videos that some believe encourage disordered eating. One social media site tried to remove her.`\
+https://nytimes.com/2024/09/20/style/liv-schmidt-tiktok.html
+
+**What’s Next for Rate Cuts? The Fed Is Watching Jobs and Prices.**\
+`A Federal Reserve official predicted two more cuts this year if data looked ‘fine’. But he also set out reasons for fewer reductions — or more of them.`\
+https://nytimes.com/2024/09/20/business/economy/fed-rate-cuts-jobs-inflation.html
+
 **What’s Next for Rate Cuts? The Fed Is Watching Jobs and Prices.**\
 `A Federal Reserve official predicted two more cuts this year if data looked ‘fine’. But he also set out reasons for fewer reductions — or more of them.`\
 https://nytimes.com/2024/09/20/business/economy/whats-next-for-rate-cuts-the-fed-is-watching-jobs-and-prices.html
