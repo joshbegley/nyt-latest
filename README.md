@@ -1,3 +1,7 @@
+**Shohei Ohtani's path to 50-50 and beyond: Recounting the top moments**\
+`This is how Shohei Ohtani trotted and sprinted his way to an unprecedented and unthinkable baseball milestone.`\
+https://nytimes.com/athletic/5780903/2024/09/19/dodgers-shohe-ohtani-50-50-highlights/
+
 **How voters are reacting to the latest incendiary comments attributed to Lt. Gov. Mark Robinson**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/09/19/us/trump-harris-election/how-voters-are-reacting-to-the-latest-incendiary-comments-attributed-to-lt-gov-mark-robinson
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/19/us/trump-harris-election/new-super-pac-pitch
 **Republicans Try to Block Pennsylvania Voters From Fixing Problems With Ballots**\
 `The Republican National Committee argued that counties do not have the authority to allow voters in the swing state to correct ballots that do not comply with the rules.`\
 https://nytimes.com/2024/09/19/us/politics/republicans-pennsylvania-mail-ballots-lawsuit.html
-
-**'This is the coolest thing in the world': Scenes from a Guardians champagne celebration**\
-`While celebrating a postseason berth in his first season as manager, Stephen Vogt finally accepted the team's "Winged G" championship belt.`\
-https://nytimes.com/athletic/5780796/2024/09/19/cleveland-guardians-postseason-clinching-celebration/
 
