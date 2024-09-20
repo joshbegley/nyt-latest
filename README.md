@@ -3,7 +3,7 @@
 https://nytimes.com/2024/09/20/style/liv-schmidt-tiktok.html
 
 **What’s Next for Rate Cuts? The Fed Is Watching Jobs and Prices.**\
-`A Federal Reserve official predicted two more cuts this year if data looked ‘fine’. But he also set out reasons for fewer reductions — or more of them.`\
+`A Federal Reserve official predicted quarter point rate cuts if data looked ‘fine’. But he also set out a scenario for a pause — or faster reductions.`\
 https://nytimes.com/2024/09/20/business/economy/fed-rate-cuts-jobs-inflation.html
 
 **Corey LaJoie, Justin Haley swapping NASCAR rides**\
