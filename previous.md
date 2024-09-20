@@ -1,3 +1,15 @@
+**What the U.S. Has Argued in the Google Ad Tech Antitrust Trial**\
+`As the government wraps up its case, it has built a picture of how Google has become dominant among companies that buy and sell ads online.`\
+https://nytimes.com/2024/09/20/technology/google-ad-antitrust-trial-arguments.html
+
+**Kentucky Town Is Shaken After Local Sheriff Is Charged With Killing Judge**\
+`The two men were seen getting ready to go to lunch on the day of the shooting. Hours later, Judge Kevin Mullins was dead from multiple gunshot wounds.`\
+https://nytimes.com/2024/09/20/us/kentucky-judge-sheriff-shooting.html
+
+**A Look at the Biggest Stars of Fall**\
+`Portraits of the people who will be defining the season in the arts.`\
+https://nytimes.com/card/2024/09/20/arts/fall-stars-photos
+
 **2 Stole $230 Million in Cryptocurrency and Went on a Spending Spree, U.S. Says**\
 `Malone Lam, 20, and Jeandiel Serrano, 21, schemed to obtain 4,100 Bitcoin from a single victim, federal prosecutors said.`\
 https://nytimes.com/2024/09/20/us/crypto-fraud-arrests.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/20/magazine/judge-john-hodgman-on-dangerous-odometer
 **Justin Jefferson cleared, but Vikings will be without 3 contributors**\
 `Addison, linebacker Ivan Pace Jr. and rookie edge rusher Dallas Turner will miss Sunday's matchup against the Texans.`\
 https://nytimes.com/athletic/5782624/2024/09/20/vikings-injury-justin-jefferson-jordan-addison-pace-turner/
-
-**Chargers QB Justin Herbert questionable with high ankle sprain**\
-`Herbert did not participate in Friday's practice.`\
-https://nytimes.com/athletic/5782623/2024/09/20/justin-herbert-ankle-sprain-chargers-steelers/
-
-**FIFA to announce Club World Cup venues by end of the month**\
-`FIFA president Gianni Infantino promised global broadcasters in a video call on Friday that venues in the United States for the FIFA Club World Cup next June and July will be announced by the end of September, increasing the pressure on his organisation to finalise negotiations with stadiums and cities across the country within 10 days.`\
-https://nytimes.com/athletic/5782582/2024/09/20/club-world-cup-venues-gianni-infantino/
-
-**What Is the Radwan Force, the Elite Hezbollah Unit Linked to Ibrahim Aqeel?**\
-`The Israeli military considers the force a major threat to its northern border and has portrayed Aqeel, whom it claimed to have killed on Friday, as its de facto commander.`\
-https://nytimes.com/2024/09/20/world/middleeast/hezbollah-radwan-ibrahim-aqeel.html
 

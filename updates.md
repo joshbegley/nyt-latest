@@ -1,3 +1,15 @@
+**What the U.S. Has Argued in the Google Ad Tech Antitrust Trial**\
+`As the government wraps up its case, it has built a picture of how Google has become dominant among companies that buy and sell ads online.`\
+https://nytimes.com/2024/09/20/technology/google-ad-antitrust-trial-arguments.html
+
+**Kentucky Town Is Shaken After Local Sheriff Is Charged With Killing Judge**\
+`The two men were seen getting ready to go to lunch on the day of the shooting. Hours later, Judge Kevin Mullins was dead from multiple gunshot wounds.`\
+https://nytimes.com/2024/09/20/us/kentucky-judge-sheriff-shooting.html
+
+**A Look at the Biggest Stars of Fall**\
+`Portraits of the people who will be defining the season in the arts.`\
+https://nytimes.com/card/2024/09/20/arts/fall-stars-photos
+
 **What Is the Radwan Force, the Elite Hezbollah Unit Linked to Ibrahim Aqeel?**\
 `The Israeli military considers the force a major threat to its northern border and has portrayed Aqeel, whom it claimed to have killed on Friday, as its de facto commander.`\
 https://nytimes.com/2024/09/20/world/middleeast/hezbollah-radwan-ibrahim-aqeel.html
