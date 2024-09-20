@@ -1,3 +1,7 @@
+**A G.O.P.-Linked Group’s Contradictory Ads Cast Harris as Friend and Foe of Israel**\
+`The Future Coalition PAC is targeting voters in Pennsylvania and Michigan, both swing states, with contradictory messages about the vice president’s level of support for Israel.`\
+https://nytimes.com/2024/09/20/us/politics/trump-harris-israel-gaza-war.html
+
 **Read the Summary of the Secret Service’s Internal Review**\
 `The agency released a brief summary of its monthslong inquiry into the failures leading to the attempted assassination of former President Donald J. Trump in July. The complete report is not yet finished.`\
 https://nytimes.com/interactive/2024/09/20/us/politics/usss-mission-assurance-summaryfinal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5782418/2024/09/20/shavon-revel-acl-tear-nfl-draft-
 **Israel’s Attacks on Hezbollah Intensify but Stop Short of All-Out War**\
 `Israel is attempting a risky strategy, increasing the intensity of its attacks in an attempt to force Hezbollah to back down, while raising the chances of an aggressive response that devolves into a land war.`\
 https://nytimes.com/2024/09/20/world/middleeast/israel-lebanon-attacks-hezbollah-war.html
-
-**Five International Movies to Stream Now**\
-`This month’s picks include a South Indian drama about sexual harassment, a film shot within a video game, a period coming-of-age movie and more.`\
-https://nytimes.com/2024/09/20/movies/international-movies-streaming.html
 

@@ -1,3 +1,15 @@
+**Read the Summary of the Secret Service’s Internal Review**\
+`The agency released a brief summary of its monthslong inquiry into the failures leading to the attempted assassination of former President Donald J. Trump in July. The complete report is not yet finished.`\
+https://nytimes.com/interactive/2024/09/20/us/politics/usss-mission-assurance-summaryfinal.html
+
+**Bad Bunny Commemorates a Hurricane, and 11 More New Songs**\
+`Hear tracks by Jane’s Addiction, Bon Iver, Yola and others.`\
+https://nytimes.com/2024/09/20/arts/music/playlist-bad-bunny-janes-addiction.html
+
+**Chelsea want agent's legal claim resolved out of court**\
+`Chelsea are attempting to have football agent Saif Rubie&#8217;s legal claim against the club resolved outside of court.`\
+https://nytimes.com/athletic/5782267/2024/09/20/chelsea-saif-rubie-marina-granovskaia/
+
 **Communication Failures Plagued Deadly Trump Rally, Secret Service Finds**\
 `The summary of an internal investigation determined that the agency did not adequately prepare its local partners for their duties at the event in Butler, Pa., in July.`\
 https://nytimes.com/2024/09/20/us/politics/trump-assassination-attempt-secret-service.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/20/world/middleeast/israel-lebanon-attacks-hezbollah
 **Five International Movies to Stream Now**\
 `This month’s picks include a South Indian drama about sexual harassment, a film shot within a video game, a period coming-of-age movie and more.`\
 https://nytimes.com/2024/09/20/movies/international-movies-streaming.html
-
-**In Netflix's Hope Solo documentary, the absent voices echo the loudest**\
-`In "Hope Solo vs. U.S. Soccer", a lack of reporting to support or disprove the goalkeeper's claims means her story is told without nuance`\
-https://nytimes.com/athletic/5782048/2024/09/20/hope-solo-netflix-untold-documentary/
-
-**Anna Teresa de Keersmaeker Apologizes After Bullying Accusations**\
-`Dancers said De Keersmaeker, a “godmother of contemporary dance,” ran her company in a tyrannical style that endangered staff members’ health.`\
-https://nytimes.com/2024/09/20/arts/dance/anne-teresa-de-keersmaeker-bullying.html
-
-**Harris Praises Taylor Swift’s ‘Courage’ After Endorsement**\
-`Kamala Harris noted, however, that she still won’t be rooting for the Kansas City Chiefs: “I am a 49ers fan, but who’s mad at anyone for being loyal to their team, right?”`\
-https://nytimes.com/2024/09/20/us/politics/taylor-swift-harris-endorsement.html
 

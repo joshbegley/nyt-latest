@@ -1,3 +1,15 @@
+**Read the Summary of the Secret Service’s Internal Review**\
+`The agency released a brief summary of its monthslong inquiry into the failures leading to the attempted assassination of former President Donald J. Trump in July. The complete report is not yet finished.`\
+https://nytimes.com/interactive/2024/09/20/us/politics/usss-mission-assurance-summaryfinal.html
+
+**Bad Bunny Commemorates a Hurricane, and 11 More New Songs**\
+`Hear tracks by Jane’s Addiction, Bon Iver, Yola and others.`\
+https://nytimes.com/2024/09/20/arts/music/playlist-bad-bunny-janes-addiction.html
+
+**Chelsea want agent's legal claim resolved out of court**\
+`Chelsea are attempting to have football agent Saif Rubie&#8217;s legal claim against the club resolved outside of court.`\
+https://nytimes.com/athletic/5782267/2024/09/20/chelsea-saif-rubie-marina-granovskaia/
+
 **Communication Failures Plagued Deadly Trump Rally, Secret Service Finds**\
 `The summary of an internal investigation determined that the agency did not adequately prepare its local partners for their duties at the event in Butler, Pa., in July.`\
 https://nytimes.com/2024/09/20/us/politics/trump-assassination-attempt-secret-service.html
