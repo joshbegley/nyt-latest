@@ -1,3 +1,7 @@
+**‘We should be trying to build 90-win teams here’: Cubs skipper sees ‘big gap’ to close against former club**\
+`The Cubs’ first-year manager might have been at his most animated all season in throwing down a challenge to the entire organization.`\
+https://nytimes.com/athletic/5780975/2024/09/19/craig-counsell-cubs-brewers-gap/
+
 **What an ‘X’ Might Mark**\
 `Jackson Matz opens our solving weekend.`\
 https://nytimes.com/2024/09/19/crosswords/daily-puzzle-2024-09-20.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/pageoneplus/corrections-sept-20-2024.html
 **Former N.Y.C. Covid Czar Partied While Preaching Social Distancing**\
 `In a hidden-camera video posted by a conservative podcaster, Dr. Jay K. Varma boasts about flouting the public health guidelines he insisted others follow.`\
 https://nytimes.com/2024/09/19/nyregion/dr-jay-varma-nyc-covid.html
-
-**Canucks training camp: Thatcher Demko speaks, reading too much into lines and more**\
-`With training camp officially underway, let's break down the major trends, observations and storylines that we saw.`\
-https://nytimes.com/athletic/5780768/2024/09/19/canucks-training-camp-thatcher-demko-injury/
 
