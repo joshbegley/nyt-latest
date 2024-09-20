@@ -1,3 +1,7 @@
+**Harris Hits Core Campaign Themes in Emotional Forum With Oprah Winfrey**\
+`Vice President Kamala Harris spoke off the cuff, as guests included a teenager shot at her school and the family of a woman in Georgia who died as a result of the state’s abortion ban.`\
+https://nytimes.com/2024/09/20/us/politics/kamala-harris-oprah-winfrey-event.html
+
 **Where does Nunez fit in at Liverpool?**\
 `The Uruguayan is the only forward not to have started for Arne Slot, raising more questions over his status at Anfield`\
 https://nytimes.com/athletic/5779073/2024/09/20/darwin-nunez-liverpool-arne-slot/
