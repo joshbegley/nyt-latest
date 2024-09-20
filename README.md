@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5781840/2024/09/20/mclaren-f1-rear-wing/
 
 **After the surprise pager attack, Israel and Hezbollah return to a familiar deadlock.**\
 `Israel’s attack on Hezbollah’s communication devices raised expectations of a decisive shift in their war of attrition. Instead, the fighting has returned to a standoff.`\
-https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israel-hezbollah-pager-attack-standoff
+https://nytimes.com/2024/09/20/world/middleeast/israel-hezbollah-pager-attack-standoff.html
 
 **Portuguese league to plant 200 trees for every goal after wildfires**\
 `Liga Portugal have pledged to plant 200 trees in the country for every goal scored in Primeira Liga, the top-flight of Portuguese football, on matchday six.`\
