@@ -1,3 +1,11 @@
+**Palace's Doucoure out of Man Utd match**\
+`Crystal Palace midfielder Cheick Doucoure will miss Saturday&#8217;s visit of Manchester United after injuring his toe in last week&#8217;s draw against Leicester City.`\
+https://nytimes.com/athletic/5782066/2024/09/20/cheick-doucoure-injury-crystal-palace-manchester-united/
+
+**England and USMNT in talks over pre-World Cup friendly**\
+`The Football Association (FA) and U.`\
+https://nytimes.com/athletic/5779680/2024/09/20/usmnt-england-world-cup-friendly/
+
 **Maresca supports players' complaints over intense fixture schedule**\
 `Chelsea head coach Enzo Maresca believes players are right to complain about the intense schedule and says going on strike may be one of their options to change things.`\
 https://nytimes.com/athletic/5781981/2024/09/20/enzo-maresca-player-schedule-chelsea/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5781824/2024/09/20/arvell-reese-ohio-state-defense-
 **McLaren to adjust controversial F1 rear wing design after rival concerns, FIA request**\
 `F1’s regulations limit the amount of flexibility permitted, but teams try to find ways to maximize this to improve performance.`\
 https://nytimes.com/athletic/5781840/2024/09/20/mclaren-f1-rear-wing/
-
-**After the surprise pager attack, Israel and Hezbollah return to a familiar deadlock.**\
-`Israel’s attack on Hezbollah’s communication devices raised expectations of a decisive shift in their war of attrition. Instead, the fighting has returned to a standoff.`\
-https://nytimes.com/2024/09/20/world/middleeast/israel-hezbollah-pager-attack-standoff.html
-
-**Portuguese league to plant 200 trees for every goal after wildfires**\
-`Liga Portugal have pledged to plant 200 trees in the country for every goal scored in Primeira Liga, the top-flight of Portuguese football, on matchday six.`\
-https://nytimes.com/athletic/5781847/2024/09/20/portugal-wildfires-trees-goals/
 
