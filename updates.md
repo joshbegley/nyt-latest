@@ -1,3 +1,7 @@
+**Aaron Rodgers drives Jets to 24-3 win over Patriots: Takeaways**\
+`Rodgers, who missed all of last season with a torn Achilles, flashed the mobility and accuracy that helped him win four MVP awards Thursday.`\
+https://nytimes.com/athletic/5781329/2024/09/19/jets-patriots-score-takeaways-thursday-night-football/
+
 **Phillies stuck with Taijuan Walker. His nightmare season spawned new embarrassment**\
 `Teams need someone as a mop-up man to save others from throwing. Walker couldn't even do that in Thursday's loss.`\
 https://nytimes.com/athletic/5781315/2024/09/19/phillies-taijuan-walker-failure-mets/
