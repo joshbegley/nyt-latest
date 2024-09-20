@@ -1,3 +1,15 @@
+**Sharks training camp: 5 big questions they must answer**\
+`Can Logan Couture get past his injury issues? Is Macklin Celebrini already the No. 1 center?`\
+https://nytimes.com/athletic/5781505/2024/09/20/sharks-training-camp-questions-storylines/
+
+**Supreme Court Won’t Restore Jill Stein to the Nevada Ballot**\
+`Democrats had argued that Ms. Stein, the Green Party’s presidential candidate, was ineligible because the party had failed to submit a required statement.`\
+https://nytimes.com/2024/09/20/us/politics/jill-stein-nevada-ballot-supreme-court.html
+
+**Whither Marco Luciano? The Giants' decision to bury him on the bench is puzzling**\
+`In a strange season, the Giants' decision to bury Luciano behind journeymen after the team was out of the race is the strangest.`\
+https://nytimes.com/athletic/5780543/2024/09/20/marco-luciano-sf-giants-playing-time/
+
 **Vikings pass rusher Jonathan Greenard gears up for Texans showdown with 'respect'**\
 `After the Vikings and Texans effectively swapped Greenard for veteran edge rusher Danielle Hunter, both defenses appear to be thriving.`\
 https://nytimes.com/athletic/5781028/2024/09/20/jonathan-greenard-vikings-texans-danielle-hunter/

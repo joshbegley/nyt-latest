@@ -1,3 +1,15 @@
+**Sharks training camp: 5 big questions they must answer**\
+`Can Logan Couture get past his injury issues? Is Macklin Celebrini already the No. 1 center?`\
+https://nytimes.com/athletic/5781505/2024/09/20/sharks-training-camp-questions-storylines/
+
+**Supreme Court Won’t Restore Jill Stein to the Nevada Ballot**\
+`Democrats had argued that Ms. Stein, the Green Party’s presidential candidate, was ineligible because the party had failed to submit a required statement.`\
+https://nytimes.com/2024/09/20/us/politics/jill-stein-nevada-ballot-supreme-court.html
+
+**Whither Marco Luciano? The Giants' decision to bury him on the bench is puzzling**\
+`In a strange season, the Giants' decision to bury Luciano behind journeymen after the team was out of the race is the strangest.`\
+https://nytimes.com/athletic/5780543/2024/09/20/marco-luciano-sf-giants-playing-time/
+
 **Vikings pass rusher Jonathan Greenard gears up for Texans showdown with 'respect'**\
 `After the Vikings and Texans effectively swapped Greenard for veteran edge rusher Danielle Hunter, both defenses appear to be thriving.`\
 https://nytimes.com/athletic/5781028/2024/09/20/jonathan-greenard-vikings-texans-danielle-hunter/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/20/us/politics/trump-mark-robinson.html
 **Mohamed al-Fayed ‘Was a Monster Enabled by a System,’ Lawyers Say**\
 `Attorneys for 37 women said they would sue Harrods, the luxury department store, over the rape and sexual assault they say its former owner committed.`\
 https://nytimes.com/2024/09/20/world/europe/mohamed-al-fayed-harrods.html
-
-**German football has a new controversy - about playing games in the United States**\
-`A recent deal between U.S. promoters and German football authorities might spell trouble on the pitch this weekend`\
-https://nytimes.com/athletic/5781892/2024/09/20/german-bundesliga-relevent-controversy-united-states/
-
-**The U.K.’s Anti-Immigration Party Has Big Plans. Can It See Them Through?**\
-`Nigel Farage, a Trump ally and Brexit champion, thinks his Reform U.K. party can become a major political force. At a conference on Friday, he will explain how.`\
-https://nytimes.com/2024/09/20/world/europe/nigel-farage-reform-uk-conference.html
-
-**Can an NFL team go from 0-2 to the playoffs? It's a long shot, but these 9 teams did it**\
-`Here's a look at which teams overcame a tough start to advance to the playoffs and how they did it.`\
-https://nytimes.com/athletic/5776812/2024/09/20/nfl-teams-0-2-playoffs/
 
