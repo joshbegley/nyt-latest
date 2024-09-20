@@ -1,3 +1,11 @@
+**Commanders WR Noah Brown, slowed by injuries, won't stop fighting: 'That's all I know'**\
+`The receiver has had a number of setbacks throughout his football career, but his resiliency allows him to keep pushing through. `\
+https://nytimes.com/athletic/5780678/2024/09/20/commanders-noah-brown-injuries/
+
+**AFC North Whiparound: Who is the favorite, who has better chance of rebounding from 0-2?**\
+`Also, what's been the biggest surprise from each team in the division after two weeks? `\
+https://nytimes.com/athletic/5779570/2024/09/20/ravens-bengals-browns-steelers-afc-north-whiparound/
+
 **Under the radar: 11 storylines from around the league that are worth your attention**\
 `Let's dig into some of the less-heralded great — and not-so-great — MLB stories that are worth your attention down the stretch.`\
 https://nytimes.com/athletic/5779874/2024/09/20/under-the-radar-mlb-storylines/
