@@ -1,3 +1,15 @@
+**‘The Penguin’ Review: The Dark Blight**\
+`The HBO series starring an unrecognizable Colin Farrell is further proof that there is no fun in the Batman universe.`\
+https://nytimes.com/2024/09/20/arts/television/the-penguin-review.html
+
+**Courting Dark Emotions in ‘See What I Wanna See’ and a Celine Song Play**\
+`Revivals of a Michael John LaChiusa musical and an early work by the “Past Lives” filmmaker toy with and challenge audience expectations.`\
+https://nytimes.com/2024/09/20/theater/see-what-i-wanna-see-celine-song-review.html
+
+**The Netherlands Returns Hundreds of Cultural Artifacts to Indonesia**\
+`The repatriation, the second of its kind by the Dutch, shows a working model for returning looted treasures from Europe to former colonies around the world.`\
+https://nytimes.com/2024/09/20/world/europe/netherlands-indonesia-artifacts.html
+
 **A G.O.P.-Linked Group’s Contradictory Ads Cast Harris as Friend and Foe of Israel**\
 `The Future Coalition PAC is targeting voters in Pennsylvania and Michigan, both swing states, with contradictory messages about the vice president’s level of support for Israel.`\
 https://nytimes.com/2024/09/20/us/politics/trump-harris-israel-gaza-war.html
