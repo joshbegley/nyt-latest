@@ -1,3 +1,11 @@
+**‘La Maison’: Like ‘Succession,’ but Better Dressed (and French)**\
+`The new Apple TV+’s new series takes the viewer inside two rival Paris fashion houses, with gorgeous people in gorgeous clothes who will do anything for power.`\
+https://nytimes.com/2024/09/20/arts/television/la-maison-apple-tv.html
+
+**Newcastle set for late decision on Alexander Isak availability**\
+`Eddie Howe says Newcastle United will make a decision today (Friday) on Alexander Isak&#8217;s availability ahead of Saturday&#8217;s Premier League fixture against Fulham.`\
+https://nytimes.com/athletic/5781570/2024/09/20/alexander-isak-injury-update/
+
 **Prada vs. the Algorithm**\
 `Miuccia Prada and Raf Simons take on the style echo chamber. Fendi celebrates choice.`\
 https://nytimes.com/2024/09/20/style/prada-fendi-milan-fashion-week.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/20/crosswords/spelling-bee-forum.html
 **Back from his F1 ban, Kevin Magnussen wants penalty changes: ‘It’s not the sport I love’**\
 `Magnussen feels F1’s penalty points system, introduced for the 2014 season, is no longer fit for its purpose.`\
 https://nytimes.com/athletic/5778982/2024/09/20/kevin-magnussen-f1-haas-penalty-points/
-
-**Barcelona's Bonmati says 'stagnating' Liga F must learn from WSL**\
-`Aitana Bonmati has called on Spain&#8217;s &#8220;stagnating&#8221; Liga F to improve by learning from England&#8217;s Women&#8217;s Super League (WSL).`\
-https://nytimes.com/athletic/5778868/2024/09/20/aitana-bonmati-barcelona-liga-wsl/
-
-**8 California Firefighters Injured When Their Truck Rolls Over on Highway**\
-`The firefighters were ending a 12-hour shift battling the Airport fire, one of the biggest blazes in California this year.`\
-https://nytimes.com/2024/09/20/us/california-firefighters-highway-accident.html
 
