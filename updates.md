@@ -1,3 +1,7 @@
+**Unflustered and unfussy - Raya is no longer under appreciated**\
+`David Raya seems liberated by the fact he has been through his transition season and come out the other side of battle with Aaron Ramsdale`\
+https://nytimes.com/athletic/5780950/2024/09/20/arsenal-david-raya-save-atalanta-champions-league/
+
 **Word of the Day: watershed**\
 `This word has appeared in 168 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/20/learning/word-of-the-day-watershed.html

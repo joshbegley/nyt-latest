@@ -1,3 +1,7 @@
+**Unflustered and unfussy - Raya is no longer under appreciated**\
+`David Raya seems liberated by the fact he has been through his transition season and come out the other side of battle with Aaron Ramsdale`\
+https://nytimes.com/athletic/5780950/2024/09/20/arsenal-david-raya-save-atalanta-champions-league/
+
 **Word of the Day: watershed**\
 `This word has appeared in 168 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/20/learning/word-of-the-day-watershed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5779073/2024/09/20/darwin-nunez-liverpool-arne-slot
 **'If Jamie Donley wants to play for Tottenham, this is what he needs to work on…'**\
 `The midfielder is on loan at Leyton Orient, and his manager for the season believes he can play at the top level - with a few changes...`\
 https://nytimes.com/athletic/5776587/2024/09/20/jamie-donley-tottenham-orient-loan/
-
-**Unpacking Everton's dismal start to the season - and how they might put it right**\
-`Sean Dyche has not yet found a way to shore Everton up and has yet to identify a Plan B with his team enduring their worst-ever start`\
-https://nytimes.com/athletic/5778881/2024/09/20/everton-dyche-injuries-branthwaite/
 
