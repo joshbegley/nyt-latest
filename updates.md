@@ -1,3 +1,19 @@
+**Where does Nunez fit in at Liverpool?**\
+`The Uruguayan is the only forward not to have started for Arne Slot, raising more questions over his status at Anfield`\
+https://nytimes.com/athletic/5779073/2024/09/20/darwin-nunez-liverpool-arne-slot/
+
+**'If Jamie Donley wants to play for Tottenham, this is what he needs to work on…'**\
+`The midfielder is on loan at Leyton Orient, and his manager for the season believes he can play at the top level - with a few changes...`\
+https://nytimes.com/athletic/5776587/2024/09/20/jamie-donley-tottenham-orient-loan/
+
+**Unpacking Everton's dismal start to the season - and how they might put it right**\
+`Sean Dyche has not yet found a way to shore Everton up and has yet to identify a Plan B with his team enduring their worst-ever start`\
+https://nytimes.com/athletic/5778881/2024/09/20/everton-dyche-injuries-branthwaite/
+
+**Palace and the counter-attack: Why do they look so vulnerable?**\
+`Palace have chopped and changed their back line, though it may be a lack of control in midfield that is contributing to their fragility`\
+https://nytimes.com/athletic/5775283/2024/09/20/crystal-palace-counter-glasner-defence-vulnerability/
+
 **Olivia Nuzzi, New York Magazine Writer, Put on Leave Over R.F.K. Jr. Relationship**\
 `Ms. Nuzzi told her editors about the relationship that had turned personal, the outlet said. A representative for Mr. Kennedy said the pair had met only once.`\
 https://nytimes.com/2024/09/20/business/media/olivia-nuzzi-rfk-jr.html
