@@ -1,3 +1,7 @@
+**Democrats Seize on Robinson Scandal, Hoping to Sink Trump in a Key State**\
+`Kamala Harris’s campaign quickly released a new ad to run in North Carolina featuring Donald Trump’s effusive praise for Mark Robinson, the Republican candidate for governor.`\
+https://nytimes.com/2024/09/20/us/politics/democrats-mark-robinson-north-carolina.html
+
 **‘The Penguin’ Review: The Dark Blight**\
 `The HBO series starring an unrecognizable Colin Farrell is further proof that there is no fun in the Batman universe.`\
 https://nytimes.com/2024/09/20/arts/television/the-penguin-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/us/politics/trump-assassination-attempt-secret-se
 **Trump’s Springfield Strategy Fits an Old Pattern**\
 `The goal is to turn a minority group into a faceless menace.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/trump-springfield-pattern
-
-**WNBA Playoffs odds, picks: Liberty aim for first title, Aces for three-peat**\
-`The WNBA is headed to the playoffs in one of the best seasons we've ever seen. Get odds and picks for the outcomes.`\
-https://nytimes.com/athletic/5780602/2024/09/20/wnba-playoff-odds-expert-picks-schedule/
 
