@@ -1,6 +1,14 @@
+**Otis Davis, Who Overcame Racism to Win Olympic Gold, Dies at 92**\
+`At the 1960 Summer Games in Rome, he set a world record in the 400-meter race and another in the 4 x 400 relay, where he anchored the United States team’s victory.`\
+https://nytimes.com/2024/09/20/sports/otis-davis-ded.html
+
 **What Foods Should I Have on Hand for an Emergency? And Other Disaster-Related Questions, Answered**\
 `Plan for the future for peace of mind on the other side.`\
 https://nytimes.com/2024/09/20/dining/how-to-prepare-emergency-food.html
+
+**How does Rodri score so many goals for a holding midfielder?**\
+`The Manchester City defensive midfielder offers much more attacking threat than his positional peers - as Michael Cox explains`\
+https://nytimes.com/athletic/5781585/2024/09/20/rodri-man-city-goals/
 
 **Fantasy football flex fliers: Jauan Jennings, Noah Brown and more deep sleepers to consider in Week 3**\
 `Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 3 off waivers.`\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/09/20/arts/best-of-late-night-taylor.html
 **San Francisco Symphony Chorus Goes on Strike**\
 `The work stoppage has forced a cancellation of the Verdi Requiem performances.`\
 https://nytimes.com/2024/09/20/arts/music/san-francisco-symphony-chorus-strike.html
-
-**How Raya built the technique behind his incredible double save**\
-`Raya's amazing double save against Atalanta has been rightly praised - the hard work that produced it was honed on the training pitch`\
-https://nytimes.com/athletic/5781660/2024/09/20/david-raya-double-save-arsenal/
-
-**Pulled Pork Is Party Food**\
-`Genevieve Ko’s saucy and satisfying recipe is also great fuel for a nap on the couch.`\
-https://nytimes.com/2024/09/20/dining/pulled-pork-is-party-food.html
 

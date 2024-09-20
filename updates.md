@@ -1,3 +1,11 @@
+**Otis Davis, Who Overcame Racism to Win Olympic Gold, Dies at 92**\
+`At the 1960 Summer Games in Rome, he set a world record in the 400-meter race and another in the 4 x 400 relay, where he anchored the United States team’s victory.`\
+https://nytimes.com/2024/09/20/sports/otis-davis-ded.html
+
+**How does Rodri score so many goals for a holding midfielder?**\
+`The Manchester City defensive midfielder offers much more attacking threat than his positional peers - as Michael Cox explains`\
+https://nytimes.com/athletic/5781585/2024/09/20/rodri-man-city-goals/
+
 **What Foods Should I Have on Hand for an Emergency? And Other Disaster-Related Questions, Answered**\
 `Plan for the future for peace of mind on the other side.`\
 https://nytimes.com/2024/09/20/dining/how-to-prepare-emergency-food.html
