@@ -1,3 +1,15 @@
+**Why Derek Carr may have found the right fit in Klint Kubiak's Saints offense**\
+`The veteran QB has learned a lot of new systems under eight different coordinators in his career, but this one is really clicking so far.`\
+https://nytimes.com/athletic/5778489/2024/09/20/derek-carr-saints-offense-klint-kubiak/
+
+**Liverpool's Alisson a fitness doubt for Bournemouth match**\
+`Liverpool goalkeeper Alisson is a fitness doubt for Saturday’s Premier League match with Bournemouth an Anfield.`\
+https://nytimes.com/athletic/5781603/2024/09/20/alisson-injury-liverpool-bournemouth/
+
+**Here are the latest developments.**\
+`By Liam Stack and Euan Ward`\
+https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
+
 **Brighton to make late call on Joao Pedro for Forest clash**\
 `Brighton will make a late decision on the availability of Joao Pedro for Sunday’s Premier League home game against Nottingham Forest.`\
 https://nytimes.com/athletic/5781618/2024/09/20/joao-pedro-brighton-nottingham-forest/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/17/opinion/thepoint/bad-political-behavior
 **OpenAI’s Reasoning Machine, Instagram Teen Changes and Amazon R.T.O. Drama**\
 `“They should have just called it Strawberry. At least that’s delicious.”`\
 https://nytimes.com/2024/09/20/podcasts/hardfork-o1-meta-teens-amazon.html
-
-**USC a national title contender? James Franklin due a contract extension? Big Ten mailbag**\
-`Is Indiana sneaky good or UCLA very bad? Who are the Big Ten's top RBs? How big of a role does scheduling play in an 18-team league?`\
-https://nytimes.com/athletic/5780617/2024/09/20/big-ten-usc-penn-state-james-franklin/
-
-**Biden Will Take Cancer ‘Moonshot’ Global at Summit in Delaware**\
-`The president will join the leaders of Australia, India and Japan to announce a new initiative for reducing cervical cancer in the Indo-Pacific, a region with especially high rates of the disease.`\
-https://nytimes.com/2024/09/20/us/politics/biden-cancer-moonshot-summit.html
-
-**What Trump Did to the G.O.P., Musk Did to Twitter**\
-`It’s more toxic but less relevant than ever.`\
-https://nytimes.com/2024/09/20/opinion/trump-elon-musk-twitter-x.html
 
