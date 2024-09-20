@@ -1,3 +1,27 @@
+**The Migrant Crisis Has Not Destroyed New York. But Challenges Remain.**\
+`To help migrants integrate into city life, officials should first treat their arrival as an opportunity rather than a catastrophe, advocates say.`\
+https://nytimes.com/2024/09/20/nyregion/mayor-adams-migrant-crisis-ny.html
+
+**A Mouse**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/09/20/learning/a-mouse.html
+
+**Aitana Bonmati exclusive: Barcelona's Ballon d'Or winner tells it like it is**\
+`In an exclusive interview with The Athletic, Barcelona's mercurial midfielder explains her decision to stay at the club - and more`\
+https://nytimes.com/athletic/5779268/2024/09/20/aitana-bonmati-interview-barcelona-ballon-dor/
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/20/crosswords/spelling-bee-forum.html
+
+**Back from his F1 ban, Kevin Magnussen wants penalty changes: ‘It’s not the sport I love’**\
+`Magnussen feels F1’s penalty points system, introduced for the 2014 season, is no longer fit for its purpose.`\
+https://nytimes.com/athletic/5778982/2024/09/20/kevin-magnussen-f1-haas-penalty-points/
+
+**Barcelona's Bonmati says 'stagnating' Liga F must learn from WSL**\
+`Aitana Bonmati has called on Spain&#8217;s &#8220;stagnating&#8221; Liga F to improve by learning from England&#8217;s Women&#8217;s Super League (WSL).`\
+https://nytimes.com/athletic/5778868/2024/09/20/aitana-bonmati-barcelona-liga-wsl/
+
 **8 California Firefighters Injured When Their Truck Rolls Over on Highway**\
 `The firefighters were ending a 12-hour shift battling the Airport fire, one of the biggest blazes in California this year.`\
 https://nytimes.com/2024/09/20/us/california-firefighters-highway-accident.html
@@ -10,31 +34,7 @@ https://nytimes.com/athletic/5781522/2024/09/20/graham-arnold-australia-resign/
 `Barcelona lost 2-1 at Monaco in their opening Champions League match, but there was a real bright spot in the performance of Marc Casado`\
 https://nytimes.com/athletic/5781503/2024/09/20/barcelona-marc-casado-champions-league-monaco/
 
-**Unflustered and unfussy - Raya is no longer under appreciated**\
+**Unflustered and unfussy, Raya is no longer underappreciated**\
 `David Raya seems liberated by the fact he has been through his transition season and come out the other side of battle with Aaron Ramsdale`\
 https://nytimes.com/athletic/5780950/2024/09/20/arsenal-david-raya-save-atalanta-champions-league/
-
-**Word of the Day: watershed**\
-`This word has appeared in 168 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/20/learning/word-of-the-day-watershed.html
-
-**Harris Joins Oprah at Michigan Campaign Event**\
-`The vice president answered questions from the audience, detailing her position on issues like immigration and gun control.`\
-https://nytimes.com/video/us/elections/100000009708213/kamala-harris-oprah-winfrey-detroit.html
-
-**Friday Briefing: Israel Bombarded Hezbollah**\
-`Plus, a bright new kid-lit author`\
-https://nytimes.com/2024/09/20/briefing/friday-briefing-israel-bombarded-hezbollah.html
-
-**Diana Taurasi hints at retirement after finale: 'I love you guys'**\
-`Taurasi played 18 minutes Thursday as the Mercury lost 89-70 to the Storm, where she scored nine points, two assists and one rebound.`\
-https://nytimes.com/athletic/5781439/2024/09/20/diana-taurasi-phoenix-mercury-retirement/
-
-**Dictators Die, but Their Legacies Live on Much Longer**\
-`Fujimori’s authoritarian streak lives on in Peru, even in those who claim to be against the former leader’s political movement.`\
-https://nytimes.com/2024/09/20/opinion/fujimori-peru-dictator-authoritarian.html
-
-**Aaron Rodgers on Saleh shove: Jets coach 'not a big hugger'**\
-`"I didn't know he was going for the hug, he likes to do the two-hand chest push as well," Rodgers said.`\
-https://nytimes.com/athletic/5781392/2024/09/20/aaron-rodgers-robert-saleh-shove/
 
