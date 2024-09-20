@@ -1,3 +1,7 @@
+**Prada vs. the Algorithm**\
+`Miuccia Prada and Raf Simons take on the style echo chamber. Fendi celebrates choice.`\
+https://nytimes.com/2024/09/20/style/prada-fendi-milan-fashion-week.html
+
 **In Australia, an Old-Fashioned Art Is Having a Revival**\
 `Young practitioners are helping make stained glass, which fell out of fashion over two decades ago, a vibrant art form in Australia once again.`\
 https://nytimes.com/2024/09/20/world/australia/stained-glass.html

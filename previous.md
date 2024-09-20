@@ -1,3 +1,7 @@
+**Prada vs. the Algorithm**\
+`Miuccia Prada and Raf Simons take on the style echo chamber. Fendi celebrates choice.`\
+https://nytimes.com/2024/09/20/style/prada-fendi-milan-fashion-week.html
+
 **In Australia, an Old-Fashioned Art Is Having a Revival**\
 `Young practitioners are helping make stained glass, which fell out of fashion over two decades ago, a vibrant art form in Australia once again.`\
 https://nytimes.com/2024/09/20/world/australia/stained-glass.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5778868/2024/09/20/aitana-bonmati-barcelona-liga-ws
 **8 California Firefighters Injured When Their Truck Rolls Over on Highway**\
 `The firefighters were ending a 12-hour shift battling the Airport fire, one of the biggest blazes in California this year.`\
 https://nytimes.com/2024/09/20/us/california-firefighters-highway-accident.html
-
-**Graham Arnold resigns as head coach of Australia**\
-`Graham Arnold has stepped down as head coach of the Australian men&#8217;s national team after six years in charge.`\
-https://nytimes.com/athletic/5781522/2024/09/20/graham-arnold-australia-resign/
 
