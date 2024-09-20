@@ -1,3 +1,7 @@
+**Villa's Watkins '100 per cent fit' for Wolves - Emery**\
+`Aston Villa striker Ollie Watkins is &#8220;100 per cent&#8221; fit to face Wolverhampton Wanderers, his head coach Unai Emery has said.`\
+https://nytimes.com/athletic/5782338/2024/09/20/ollie-watkins-fitness-aston-villa-wolves/
+
 **Autographed Caitlin Clark trading card sells for record $84,000**\
 `A one-of-a-kind autographed Caitlin Clark WNBA Draft card sold at auction for $84,000 on Thursday night, breaking the record for the most expensive women&#8217;s basketball card ever.`\
 https://nytimes.com/athletic/5782026/2024/09/20/caitlin-clark-card-record-sale/
