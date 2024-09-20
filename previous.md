@@ -1,3 +1,15 @@
+**49ers' George Kittle doubtful vs. Rams with hamstring soreness**\
+`Kittle likely would have had a big role Sunday if he was healthy.`\
+https://nytimes.com/athletic/5782761/2024/09/20/george-kittle-injury-update-hamstring-sf-49ers/
+
+**Nelson DeMille, Blockbuster Author Who Thrilled Millions, Dies at 81**\
+`In best seller after best seller, world-weary investigators tackled military malfeasance and Russian spies, cracking jokes and beers to the delight of legions of devoted fans`\
+https://nytimes.com/2024/09/20/books/nelson-demille-dead.html
+
+**Kamala Harris Tells Oprah ‘They’re Getting Shot’ if Somebody Breaks Into Her Home**\
+`The remarkable utterance underscored Democrats’ increasing comfort with the country’s gun culture, and how Harris is trying to use it to puncture notions about female candidates.`\
+https://nytimes.com/2024/09/20/us/politics/kamala-harris-gun-oprah.html
+
 **Harris Slams G.O.P. Abortion Bans as a Painful ‘Health Care Crisis’**\
 `“Donald Trump is the architect of this crisis,” Kamala Harris said in Georgia, where reporting this week found that the deaths of two women were a result of delayed treatment for medication abortions.`\
 https://nytimes.com/2024/09/20/us/politics/harris-gop-abortion-bans-health-care-crisis.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/20/technology/google-ad-antitrust-trial-arguments.ht
 **Kentucky Town Is Shaken After Local Sheriff Is Charged With Killing Judge**\
 `The two men were seen getting ready to go to lunch on the day of the shooting. Hours later, Judge Kevin Mullins was dead from multiple gunshot wounds.`\
 https://nytimes.com/2024/09/20/us/kentucky-judge-sheriff-shooting.html
-
-**A Look at the Biggest Stars of Fall**\
-`Portraits of the people who will be defining the season in the arts.`\
-https://nytimes.com/card/2024/09/20/arts/fall-stars-photos
-
-**2 Stole $230 Million in Cryptocurrency and Went on a Spending Spree, U.S. Says**\
-`Malone Lam, 20, and Jeandiel Serrano, 21, schemed to obtain 4,100 Bitcoin from a single victim, federal prosecutors said.`\
-https://nytimes.com/2024/09/20/us/crypto-fraud-arrests.html
-
-**Inside a Harris Ad That Tries to Saddle Trump With Mark Robinson’s Baggage**\
-`A new ad placed on Friday by Kamala Harris’s campaign, without mentioning the scandal threatening the North Carolina Republican’s run for governor, seeks to taint Donald Trump by association.`\
-https://nytimes.com/2024/09/20/us/politics/harris-ad-trump-mark-robinson.html
 

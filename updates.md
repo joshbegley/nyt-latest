@@ -1,3 +1,15 @@
+**49ers' George Kittle doubtful vs. Rams with hamstring soreness**\
+`Kittle likely would have had a big role Sunday if he was healthy.`\
+https://nytimes.com/athletic/5782761/2024/09/20/george-kittle-injury-update-hamstring-sf-49ers/
+
+**Nelson DeMille, Blockbuster Author Who Thrilled Millions, Dies at 81**\
+`In best seller after best seller, world-weary investigators tackled military malfeasance and Russian spies, cracking jokes and beers to the delight of legions of devoted fans`\
+https://nytimes.com/2024/09/20/books/nelson-demille-dead.html
+
+**Kamala Harris Tells Oprah ‘They’re Getting Shot’ if Somebody Breaks Into Her Home**\
+`The remarkable utterance underscored Democrats’ increasing comfort with the country’s gun culture, and how Harris is trying to use it to puncture notions about female candidates.`\
+https://nytimes.com/2024/09/20/us/politics/kamala-harris-gun-oprah.html
+
 **Harris Slams G.O.P. Abortion Bans as a Painful ‘Health Care Crisis’**\
 `“Donald Trump is the architect of this crisis,” Kamala Harris said in Georgia, where reporting this week found that the deaths of two women were a result of delayed treatment for medication abortions.`\
 https://nytimes.com/2024/09/20/us/politics/harris-gop-abortion-bans-health-care-crisis.html
