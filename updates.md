@@ -1,3 +1,11 @@
+**North Carolina NAACP calls on Mark Robinson to drop out of the governor’s race.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/09/20/us/trump-harris-election/north-carolina-naacp-calls-on-mark-robinson-to-drop-out-of-the-governors-race
+
+**Devils, Dawson Mercer agree to 3-year contract extension: Source**\
+`Mercer, picked No. 18 in the 2020 NHL Draft, has 131 points in 246 career games.`\
+https://nytimes.com/athletic/5782096/2024/09/20/devils-dawson-mercer-contract-extension/
+
 **NFL Week 3 injury report: A.J. Brown, Deebo Samuel dealing with tricky lower body injuries**\
 `Greg Scholz runs through the biggest fantasy football injury worries of Week 3, leading off with A.J. Brown's precarious hamstring injury.`\
 https://nytimes.com/athletic/5782045/2024/09/20/nfl-week-3-injury-report-fantasy-football-aj-brown-deebo-samuel/
