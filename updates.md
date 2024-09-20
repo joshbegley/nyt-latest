@@ -1,3 +1,11 @@
+**How Raya built the technique behind his incredible double save**\
+`Raya's amazing double save against Atalanta has been rightly praised - the hard work that produced it was honed on the training pitch`\
+https://nytimes.com/athletic/5781660/2024/09/20/david-raya-double-save-arsenal/
+
+**Pulled Pork Is Party Food**\
+`Genevieve Ko’s saucy and satisfying recipe is also great fuel for a nap on the couch.`\
+https://nytimes.com/2024/09/20/dining/pulled-pork-is-party-food.html
+
 **Getty Apologizes for Fireworks Display Gone Awry**\
 `A planned “explosion event” in Los Angeles by the artist Cai Guo-Qiang left several injured and others shaken.`\
 https://nytimes.com/2024/09/20/arts/design/getty-apologizes-fireworks-cai-guo-qiang.html
