@@ -1,3 +1,7 @@
+**Senior Hezbollah Leader Is Killed in Beirut in Israeli Airstrike**\
+`The attack, which Lebanese officials said killed at least 14 and injured more than 60, stoked fears Israel is driving toward a full-blown war on its northern border, even as the fight in Gaza goes on.`\
+https://nytimes.com/2024/09/20/world/middleeast/beirut-israel-hezbollah-airstrike.html
+
 **Israel’s airstrike in Beirut had significance for relatives of Americans killed in Beirut in 1983.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israels-airstrike-in-beirut-had-significance-for-relatives-of-americans-killed-in-beirut-in-1983
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5782631/2024/09/20/red-wings-roster-training-camp/
 `By Alissa J. Rubin`\
 https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/iraqi-armed-group-backed-by-iran-says-a-senior-member-was-killed-in-a-strike-in-syria
 
-**As Cubs approach another long offseason, Cody Bellinger hasn’t made his contract decision**\
+**As Cubs approach another long offseason, Cody Bellinger hasn’t made contract decision**\
 `The Cubs might be fine with Bellinger staying or leaving, considering their internal options and the value he brings as a two-way player.`\
 https://nytimes.com/athletic/5782825/2024/09/20/cubs-cody-bellinger-contract/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/us/politics/early-voting-south-dakota-virginia-mi
 **What I'm seeing at Flyers training camp: A scuffle, and Michkov and Frost link up**\
 `John Tortorella said he wasn't surprised when two of his players fought during practice.`\
 https://nytimes.com/athletic/5782763/2024/09/20/flyers-training-camp-michkov/
-
-**Israel Killed a Top Hezbollah Commander in Lebanon**\
-`Plus, a baseball game for the ages`\
-https://nytimes.com/2024/09/20/briefing/israel-hezbollah-georgia-drug-prices-flu-vaccine.html
 
