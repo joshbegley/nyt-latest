@@ -1,3 +1,7 @@
+**Georgia Attorney General Says Election Board Is Operating Outside Its Authority**\
+`The board, with a new right-wing majority, is set to consider new election rules just 45 days before the election.`\
+https://nytimes.com/2024/09/20/us/elections/georgia-election-board-rules.html
+
 **Is It Better to Buy or Lease a Car? It Depends.**\
 `The lowest overall cost is to buy a car and keep it for a long time. But leasing usually has lower monthly costs. And leasing an E.V. may come with a tax break.`\
 https://nytimes.com/2024/09/20/your-money/buy-lease-car-cost-compared.html

@@ -1,3 +1,11 @@
+**'We're trying to right our wrongs'; What's going on with the Eagles defense?**\
+`The Eagles are optimistic that the defense can turn things around.`\
+https://nytimes.com/athletic/5780340/2024/09/20/whats-wrong-with-the-eagles-defense/
+
+**Israel announces a ‘targeted strike’ in Beirut, as tensions with Hezbollah soar.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israel-announces-a-targeted-strike-in-beirut-as-tensions-with-hezbollah-soar
+
 **Georgia Attorney General Says Election Board Is Operating Outside Its Authority**\
 `The board, with a new right-wing majority, is set to consider new election rules just 45 days before the election.`\
 https://nytimes.com/2024/09/20/us/elections/georgia-election-board-rules.html
@@ -16,7 +24,7 @@ https://nytimes.com/athletic/5781840/2024/09/20/mclaren-f1-rear-wing/
 
 **After Surprise Pager Attack, Israel and Hezbollah Return to Familiar Deadlock**\
 `Israel’s attack on Hezbollah’s communication devices raised expectations of a decisive shift in their war of attrition. Instead, the fighting has returned to a standoff.`\
-https://nytimes.com/2024/09/20/world/middleeast/israel-hezbollah-pager-attack-standoff.html
+https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israel-hezbollah-pager-attack-standoff
 
 **Portuguese league to plant 200 trees for every goal after wildfires**\
 `Liga Portugal have pledged to plant 200 trees in the country for every goal scored in Primeira Liga, the top-flight of Portuguese football, on matchday six.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5781678/2024/09/20/sad-decline-of-long-shots-rayas-
 **Arsenal's long-ball approach against Atalanta was flawed - and failed**\
 `Mikel Arteta's team went direct against Serie A's tallest team - they will need to find more solutions in their search for silverware`\
 https://nytimes.com/athletic/5781692/2024/09/20/arsenal-long-ball-atalanta-champions-league/
-
-**Israel submits a challenge to the I.C.C. after a request for arrest warrants for Netanyahu and the defense minister.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israel-submits-a-challenge-to-the-icc-after-a-request-for-arrest-warrants-for-netanyahu-and-the-defense-minister
-
-**Odobert set for spell out with hamstring injury, Bissouma in contention to return**\
-`Tottenham Hotspur head coach Ange Postecoglou says Wilson Odobert is set for a spell on the sidelines after sustaining a hamstring injury during Wednesday&#8217;s victory over Coventry City.`\
-https://nytimes.com/athletic/5781889/2024/09/20/wilson-odobert-injury-update/
 
