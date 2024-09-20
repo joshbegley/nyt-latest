@@ -1,3 +1,7 @@
+**AJ Griffin to step away from basketball after 2 seasons**\
+`As of now, the franchise has no immediate plans to fill the roster spot, a team source said.`\
+https://nytimes.com/athletic/5782871/2024/09/20/aj-girffin-retirement-duke-rockets-hawks/
+
 **Officials Confirm Body Found Near Site of Kentucky Highway Shooting Was Suspect’s**\
 `The identification, made through DNA testing, affirmed the belief of officials. The body was discovered Wednesday after a 12-day manhunt.`\
 https://nytimes.com/2024/09/20/us/kentucky-highway-shooting-suspect.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/20/us/trump-harris-election/even-before-the-cnn
 **Blackhawks camp observations: Connor Bedard ready to take on NHL again after satisfying offseason**\
 `Also, Kyle Davidson provided more specific injury updates for Artyom Levshunov and Laurent Brossoit.`\
 https://nytimes.com/athletic/5782735/2024/09/20/blackhawks-training-camp-connor-bedard/
-
-**Early Voting Begins in Minnesota, South Dakota and Virginia**\
-`All three states began sending out mail ballots on Friday and now give people the option of voting in person.`\
-https://nytimes.com/2024/09/20/us/politics/early-voting-south-dakota-virginia-minnesota.html
 

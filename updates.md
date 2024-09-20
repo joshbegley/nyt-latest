@@ -1,3 +1,7 @@
+**AJ Griffin to step away from basketball after 2 seasons**\
+`As of now, the franchise has no immediate plans to fill the roster spot, a team source said.`\
+https://nytimes.com/athletic/5782871/2024/09/20/aj-girffin-retirement-duke-rockets-hawks/
+
 **Officials Confirm Body Found Near Site of Kentucky Highway Shooting Was Suspect’s**\
 `The identification, made through DNA testing, affirmed the belief of officials. The body was discovered Wednesday after a 12-day manhunt.`\
 https://nytimes.com/2024/09/20/us/kentucky-highway-shooting-suspect.html
