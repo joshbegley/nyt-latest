@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5782158/2024/09/20/senators-arena-agreement-lebreto
 
 **Nasal Flu Vaccine Is Approved for At-Home Use**\
 `The F.D.A. authorized AstraZeneca’s treatment to be given outside a health care setting, although it will still need a prescription.`\
-https://nytimes.com/2024/09/20/health/nasal-flu-vaccine-is-approved-for-at-home-use.html
+https://nytimes.com/2024/09/20/health/nasal-flu-vaccine-approved.html
 
 **Trump’s Suggestion That Jews Could Cost Him Race Creates Fear of Antisemitic Reprisal**\
 `Twice on Thursday, the former president said he believed “the Jewish people would have a lot to do with” a loss if Kamala Harris defeated him.`\
