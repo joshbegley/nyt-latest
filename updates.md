@@ -1,3 +1,15 @@
+**Overlooked No More: Ellen Armstrong, ‘Marvelous, Mystifying’ Magician of Mirth**\
+`Carrying on a family tradition, she brought her singular act, full of illusion and humor, to Black audiences in the segregated South and on up to Philadelphia.`\
+https://nytimes.com/2024/09/20/obituaries/ellen-armstrong-overlooked.html
+
+**A New Power Grab in Georgia Could Create a Chaotic Election Night**\
+`It’s an example of why elections should be run by nonpartisan administrators.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/georgia-election-board-nonpartisan
+
+**Remembering Toto Schillaci, Who Helped Usher Us Into the Future**\
+`For one month in 1990, Schillaci was the most beloved player in Italy, and one of the most famous players in the world.`\
+https://nytimes.com/2024/09/20/world/europe/toto-schillaci-italy.html
+
 **A Look Ahead at Autumn’s Big Books**\
 `The season’s most anticipated titles include new fiction from Sally Rooney, Richard Powers, Jean Hanff Korelitz and more, plus celebrity memoirs by Al Pacino, Cher and Ina Garten.`\
 https://nytimes.com/2024/09/20/books/review/podcast-fall-books-preview.html

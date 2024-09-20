@@ -1,3 +1,15 @@
+**Overlooked No More: Ellen Armstrong, ‘Marvelous, Mystifying’ Magician of Mirth**\
+`Carrying on a family tradition, she brought her singular act, full of illusion and humor, to Black audiences in the segregated South and on up to Philadelphia.`\
+https://nytimes.com/2024/09/20/obituaries/ellen-armstrong-overlooked.html
+
+**A New Power Grab in Georgia Could Create a Chaotic Election Night**\
+`It’s an example of why elections should be run by nonpartisan administrators.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/georgia-election-board-nonpartisan
+
+**Remembering Toto Schillaci, Who Helped Usher Us Into the Future**\
+`For one month in 1990, Schillaci was the most beloved player in Italy, and one of the most famous players in the world.`\
+https://nytimes.com/2024/09/20/world/europe/toto-schillaci-italy.html
+
 **A Look Ahead at Autumn’s Big Books**\
 `The season’s most anticipated titles include new fiction from Sally Rooney, Richard Powers, Jean Hanff Korelitz and more, plus celebrity memoirs by Al Pacino, Cher and Ina Garten.`\
 https://nytimes.com/2024/09/20/books/review/podcast-fall-books-preview.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/20/us/politics/trump-jews-antisemitism.html
 **Plagiarism Claims Are Brought Against University of Maryland’s President**\
 `The university’s president, Darryll J. Pines, who studies aerospace engineering, was accused of copying significant portions of a paper in 2002.`\
 https://nytimes.com/2024/09/20/us/plagiarism-university-of-maryland-president-darryll-pines.html
-
-**The ‘Crank Realignment’ and the Paranoid Center**\
-`By Ross Douthat`\
-https://nytimes.com/2024/09/20/opinion/liberal-conservative-crank-realignment.html
-
-**Who Is the ‘Skinny Influencer’ Who Was Barred From TikTok?**\
-`Liv Schmidt has inspired debates with videos that some believe encourage disordered eating. One social media site tried to remove her.`\
-https://nytimes.com/2024/09/20/style/liv-schmidt-tiktok.html
-
-**What’s Next for Rate Cuts? The Fed Is Watching Jobs and Prices.**\
-`A Federal Reserve official predicted quarter point rate cuts if data looked ‘fine’. But he also set out a scenario for a pause — or faster reductions.`\
-https://nytimes.com/2024/09/20/business/economy/fed-rate-cuts-jobs-inflation.html
 
