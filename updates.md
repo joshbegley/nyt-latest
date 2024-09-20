@@ -1,3 +1,7 @@
+**Trump Says That if He Loses, ‘the Jewish People Would Have a Lot to Do’ With It**\
+`Speaking at a campaign event denouncing antisemitism in America, Donald Trump again attacked Jews who vote for Democrats, saying that the party had a “hold, or curse, on you.”`\
+https://nytimes.com/2024/09/19/us/politics/trump-jews-antisemitism-israel.html
+
 **How Israel’s Technological Trojan Horse Destabilized Hezbollah**\
 `The explosion of devices carried by thousands of Hezbollah operatives sowed panic sowed panic and overwhelmed hospitals across Lebanon.`\
 https://nytimes.com/video/world/middleeast/100000009703279/how-israels-technological-trojan-horse-destabilized-hezbollah.html

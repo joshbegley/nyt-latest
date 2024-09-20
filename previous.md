@@ -1,3 +1,7 @@
+**Trump Says That if He Loses, ‘the Jewish People Would Have a Lot to Do’ With It**\
+`Speaking at a campaign event denouncing antisemitism in America, Donald Trump again attacked Jews who vote for Democrats, saying that the party had a “hold, or curse, on you.”`\
+https://nytimes.com/2024/09/19/us/politics/trump-jews-antisemitism-israel.html
+
 **How Israel’s Technological Trojan Horse Destabilized Hezbollah**\
 `The explosion of devices carried by thousands of Hezbollah operatives sowed panic sowed panic and overwhelmed hospitals across Lebanon.`\
 https://nytimes.com/video/world/middleeast/100000009703279/how-israels-technological-trojan-horse-destabilized-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5780768/2024/09/19/canucks-training-camp-thatcher-d
 **Kentucky Sheriff Arrested in Shooting Death of Judge**\
 `The police say a sheriff shot District Judge Kevin Mullins inside the courthouse on Thursday afternoon before turning himself in.`\
 https://nytimes.com/2024/09/19/us/sheriff-judge-shooting-kentucky.html
-
-**Jury Awards $116 Million to Family of Man Who Died in Helicopter Crash**\
-`When an open-door tourist helicopter crashed into the East River, Trevor Cadigan, 26, and four other passengers were unable to escape from cumbersome safety harnesses.`\
-https://nytimes.com/2024/09/19/nyregion/trevor-cadigan-helicopter-crash-lawsuit.html
 
