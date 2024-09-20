@@ -1,3 +1,7 @@
+**The Athletic FC: Sad decline of long shots? Raya's remarkable double-save, FIFA's TV trouble**\
+`Today in TAFC: Shearer explains why it's sometimes worth a pop from distance, Raya's incredible double saves, and FIFA's emergency meeting`\
+https://nytimes.com/athletic/5781678/2024/09/20/sad-decline-of-long-shots-rayas-remarkable-double-save-fifas-emergency-meeting/
+
 **Arsenal's long-ball approach against Atalanta was flawed - and failed**\
 `Mikel Arteta's team went direct against Serie A's tallest team - they will need to find more solutions in their search for silverware`\
 https://nytimes.com/athletic/5781692/2024/09/20/arsenal-long-ball-atalanta-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5779784/2024/09/20/49ers-rams-fred-warner-takeaways
 **Sophie Died in 2021. The Album She Left Behind Is Now Complete.**\
 `“Sophie,” a new LP by the visionary hyperpop producer, traces an arc from introspection to pop pleasures to thoughts of eternity. It will be her final release.`\
 https://nytimes.com/2024/09/20/arts/music/sophie-posthumous-album.html
-
-**Why Nike Just Did It**\
-`Investors are hoping that replacing John Donahoe as chief executive will lift its stock price and restore the brand’s cool factor.`\
-https://nytimes.com/2024/09/20/business/dealbook/nike-ceo-donahoe.html
 
