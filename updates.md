@@ -1,3 +1,7 @@
+**Justin Jefferson cleared, but Vikings will be without 3 contributors**\
+`Addison, linebacker Ivan Pace Jr. and rookie edge rusher Dallas Turner will miss Sunday's matchup against the Texans.`\
+https://nytimes.com/athletic/5782624/2024/09/20/vikings-injury-justin-jefferson-jordan-addison-pace-turner/
+
 **Chargers QB Justin Herbert questionable with high ankle sprain**\
 `Herbert did not participate in Friday's practice.`\
 https://nytimes.com/athletic/5782623/2024/09/20/justin-herbert-ankle-sprain-chargers-steelers/
