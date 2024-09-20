@@ -1,3 +1,11 @@
+**How good can Ohio State's defense be? Arvell Reese's growth illustrates staggering depth**\
+`Linebacker was the big question in Ohio State's bid to have the nation's top defense, but players like Reese show how deep the Buckeyes are.`\
+https://nytimes.com/athletic/5781824/2024/09/20/arvell-reese-ohio-state-defense-depth-chart/
+
+**McLaren to adjust controversial F1 rear wing design after rival concerns, FIA request**\
+`F1’s regulations limit the amount of flexibility permitted, but teams try to find ways to maximize this to improve performance.`\
+https://nytimes.com/athletic/5781840/2024/09/20/mclaren-f1-rear-wing/
+
 **After Surprise Pager Attack, Israel and Hezbollah Return to Familiar Deadlock**\
 `Israel’s attack on Hezbollah’s communication devices raised expectations of a decisive shift in their war of attrition. Instead, the fighting has returned to a standoff.`\
 https://nytimes.com/2024/09/20/world/middleeast/israel-hezbollah-pager-attack-standoff.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5781828/2024/09/20/max-verstappen-singapore-grand-p
 **Embiid, 76ers reach $301 million max extension**\
 `Joel Embiid's deal includes a player option in 2028-29, league sources said.`\
 https://nytimes.com/athletic/5781843/2024/09/20/joel-embiid-sixers-extension-contract/
-
-**Can men's pro golf work with PGA Tour, LIV still divided?**\
-`Brody Miller takes readers' questions on the future of golf, 2024 major winners and the chances of seeing a LIV fan in the wild.`\
-https://nytimes.com/athletic/5780263/2024/09/20/golf-pga-tour-liv-deal/
-
-**Wolves's Traore out until Christmas after knee surgery**\
-`Wolverhampton Wanderers midfielder Boubabcar Traore will be sidelined until Christmas following surgery to repair a knee injury.`\
-https://nytimes.com/athletic/5781838/2024/09/20/boubacar-traore-wolves-injury/
 
