@@ -1,3 +1,7 @@
+**How voters are reacting to the latest incendiary comments attributed to Lt. Gov. Mark Robinson**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/09/19/us/trump-harris-election/how-voters-are-reacting-to-the-latest-incendiary-comments-attributed-to-lt-gov-mark-robinson
+
 **WNBA playoff matchups set; Atlanta Dream claim final spot**\
 `Following the 2021 season, the WNBA altered its playoff format to get rid of single-elimination games and byes to the semifinals.`\
 https://nytimes.com/athletic/5781126/2024/09/19/wnba-playoff-matchups-postseason-format/
