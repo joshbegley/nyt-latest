@@ -1,3 +1,15 @@
+**The best NHL futures and win totals bets for the 2024-25 season**\
+`Despite playoff disappointment, the Maple Leafs should be strong once more while the Canucks' success from last season seems sustainable.`\
+https://nytimes.com/athletic/5745021/2024/09/20/nhl-futures-best-bets-win-totals-ride-the-leafs-oilers-fade-red-wings-blues/
+
+**Football Parlay Fridays Week 4: How much can we fade Kent State?**\
+`Austin Mock takes another shot at his round-robin parlays with four underdogs and an alternate spread against an historically bad FBS team.`\
+https://nytimes.com/athletic/5782183/2024/09/20/football-parlay-college-football-week-4/
+
+**Election 2024 Polls: Florida**\
+`See the latest election polls and polling averages for Florida.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-florida.html
+
 **Otis Davis, Who Overcame Racism to Win Olympic Gold, Dies at 92**\
 `At the 1960 Summer Games in Rome, he set a world record in the 400-meter race and another in the 4 x 400 relay, where he anchored the United States team’s victory.`\
 https://nytimes.com/2024/09/20/sports/otis-davis-ded.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/20/arts/dance/review-goner-marikiscrycrycry-abrons.h
 **Who Is Ibrahim Aqeel, the Hezbollah Commander Targeted by Israel?**\
 `The senior leader, who survived multiple assassination attempts, has been sought by the United States for bombings in the 1980s. Here is a closer look.`\
 https://nytimes.com/2024/09/20/world/middleeast/ibrahim-aqeel-hezbollah-commander-what-to-know.html
-
-**Trump’s Victories at the Supreme Court**\
-`Readers discuss a story about the chief justice’s role. Also: Loving children who are not your own; college football madness.`\
-https://nytimes.com/2024/09/20/opinion/trump-supreme-court-john-roberts.html
-
-**The Best of Late Night This Week**\
-`This week, the hosts focused mostly on news surrounding former President Donald Trump, including the second apparent assassination attempt against him, this time while he was golfing at a Florida club of his, as well as Trump lashing out online about Taylor Swift.`\
-https://nytimes.com/interactive/2024/09/20/arts/best-of-late-night-taylor.html
-
-**San Francisco Symphony Chorus Goes on Strike**\
-`The work stoppage has forced a cancellation of the Verdi Requiem performances.`\
-https://nytimes.com/2024/09/20/arts/music/san-francisco-symphony-chorus-strike.html
 
