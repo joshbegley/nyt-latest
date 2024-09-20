@@ -1,3 +1,7 @@
+**Late Night Thinks It’s Unlikely That Neighbors Ate Your Cat**\
+`Before starting rumors about Haitians, please make sure your cat is actually missing, Ronnie Chieng implored on “The Daily Show.”`\
+https://nytimes.com/2024/09/20/arts/television/late-night-cat-eating-neighbors-trump.html
+
 **The Migrant Crisis Has Not Destroyed New York. But Challenges Remain.**\
 `To help migrants integrate into city life, officials should first treat their arrival as an opportunity rather than a catastrophe, advocates say.`\
 https://nytimes.com/2024/09/20/nyregion/mayor-adams-migrant-crisis-ny.html

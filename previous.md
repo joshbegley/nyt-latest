@@ -1,3 +1,7 @@
+**Late Night Thinks It’s Unlikely That Neighbors Ate Your Cat**\
+`Before starting rumors about Haitians, please make sure your cat is actually missing, Ronnie Chieng implored on “The Daily Show.”`\
+https://nytimes.com/2024/09/20/arts/television/late-night-cat-eating-neighbors-trump.html
+
 **The Migrant Crisis Has Not Destroyed New York. But Challenges Remain.**\
 `To help migrants integrate into city life, officials should first treat their arrival as an opportunity rather than a catastrophe, advocates say.`\
 https://nytimes.com/2024/09/20/nyregion/mayor-adams-migrant-crisis-ny.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781522/2024/09/20/graham-arnold-australia-resign/
 **In Barcelona’s Champions League chaos, at least there was Marc Casado**\
 `Barcelona lost 2-1 at Monaco in their opening Champions League match, but there was a real bright spot in the performance of Marc Casado`\
 https://nytimes.com/athletic/5781503/2024/09/20/barcelona-marc-casado-champions-league-monaco/
-
-**Unflustered and unfussy, Raya is no longer underappreciated**\
-`David Raya seems liberated by the fact he has been through his transition season and come out the other side of battle with Aaron Ramsdale`\
-https://nytimes.com/athletic/5780950/2024/09/20/arsenal-david-raya-save-atalanta-champions-league/
 
