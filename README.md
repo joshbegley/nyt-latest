@@ -1,3 +1,7 @@
+**Villa's Watkins '100 per cent fit' for Wolves - Emery**\
+`Aston Villa striker Ollie Watkins is &#8220;100 per cent&#8221; fit to face Wolverhampton Wanderers, his head coach Unai Emery has said.`\
+https://nytimes.com/athletic/5782338/2024/09/20/ollie-watkins-fitness-aston-villa-wolves/
+
 **Autographed Caitlin Clark trading card sells for record $84,000**\
 `A one-of-a-kind autographed Caitlin Clark WNBA Draft card sold at auction for $84,000 on Thursday night, breaking the record for the most expensive women&#8217;s basketball card ever.`\
 https://nytimes.com/athletic/5782026/2024/09/20/caitlin-clark-card-record-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781585/2024/09/20/rodri-man-city-goals/
 **Fantasy football flex fliers: Jauan Jennings, Noah Brown and more deep sleepers to consider in Week 3**\
 `Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 3 off waivers.`\
 https://nytimes.com/athletic/5782210/2024/09/20/fantasy-football-week-2-flex-sleepers-jauan-jennings-noah-brown/
-
-**The Windup: Last night, the greatest game ever?**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5782282/2024/09/20/shohei-ohtani-game-stats-the-windup/
 
