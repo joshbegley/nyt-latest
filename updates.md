@@ -1,3 +1,7 @@
+**Word of the Day: watershed**\
+`This word has appeared in 168 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/20/learning/word-of-the-day-watershed.html
+
 **Harris Joins Oprah at Michigan Campaign Event**\
 `The vice president answered questions from the audience, detailing her position on issues like immigration and gun control.`\
 https://nytimes.com/video/us/elections/100000009708213/kamala-harris-oprah-winfrey-detroit.html
