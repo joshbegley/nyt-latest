@@ -1,3 +1,7 @@
+**What Is the Radwan Force, the Elite Hezbollah Unit Linked to Ibrahim Aqeel?**\
+`The Israeli military considers the force a major threat to its northern border and has portrayed Aqeel, whom it claimed to have killed on Friday, as its de facto commander.`\
+https://nytimes.com/2024/09/20/world/middleeast/hezbollah-radwan-ibrahim-aqeel.html
+
 **2 Stole $230 Million in Cryptocurrency and Went on a Spending Spree, U.S. Says**\
 `Malone Lam, 20, and Jeandiel Serrano, 21, schemed to obtain 4,100 Bitcoin from a single victim, federal prosecutors said.`\
 https://nytimes.com/2024/09/20/us/crypto-fraud-arrests.html

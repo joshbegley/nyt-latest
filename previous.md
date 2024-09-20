@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5782623/2024/09/20/justin-herbert-ankle-sprain-char
 `FIFA president Gianni Infantino promised global broadcasters in a video call on Friday that venues in the United States for the FIFA Club World Cup next June and July will be announced by the end of September, increasing the pressure on his organisation to finalise negotiations with stadiums and cities across the country within 10 days.`\
 https://nytimes.com/athletic/5782582/2024/09/20/club-world-cup-venues-gianni-infantino/
 
-**What is the Radwan force, the elite Hezbollah unit linked to Ibrahim Aqeel?**\
+**What Is the Radwan Force, the Elite Hezbollah Unit Linked to Ibrahim Aqeel?**\
 `The Israeli military considers the force a major threat to its northern border and has portrayed Aqeel, whom it claimed to have killed on Friday, as its de facto commander.`\
 https://nytimes.com/2024/09/20/world/middleeast/hezbollah-radwan-ibrahim-aqeel.html
 
