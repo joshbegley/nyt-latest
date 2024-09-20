@@ -1,3 +1,11 @@
+**Trump’s Suggestion That Jews Could Cost Him Race Creates Fear of Antisemitic Reprisal**\
+`Twice on Thursday, the former president said he believed “the Jewish people would have a lot to do with” a loss if Kamala Harris defeated him.`\
+https://nytimes.com/2024/09/20/us/politics/trump-jews-antisemitism.html
+
+**Plagiarism Claims Are Brought Against University of Maryland’s President**\
+`The university’s president, Darryll J. Pines, who studies aerospace engineering, was accused of copying significant portions of a paper in 2002.`\
+https://nytimes.com/2024/09/20/us/plagiarism-university-of-maryland-president-darryll-pines.html
+
 **The ‘Crank Realignment’ and the Paranoid Center**\
 `By Ross Douthat`\
 https://nytimes.com/2024/09/20/opinion/liberal-conservative-crank-realignment.html

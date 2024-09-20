@@ -1,3 +1,11 @@
+**Trump’s Suggestion That Jews Could Cost Him Race Creates Fear of Antisemitic Reprisal**\
+`Twice on Thursday, the former president said he believed “the Jewish people would have a lot to do with” a loss if Kamala Harris defeated him.`\
+https://nytimes.com/2024/09/20/us/politics/trump-jews-antisemitism.html
+
+**Plagiarism Claims Are Brought Against University of Maryland’s President**\
+`The university’s president, Darryll J. Pines, who studies aerospace engineering, was accused of copying significant portions of a paper in 2002.`\
+https://nytimes.com/2024/09/20/us/plagiarism-university-of-maryland-president-darryll-pines.html
+
 **The ‘Crank Realignment’ and the Paranoid Center**\
 `By Ross Douthat`\
 https://nytimes.com/2024/09/20/opinion/liberal-conservative-crank-realignment.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/09/20/magazine/ukraine-russia-war-deserter.
 **Airstrike in Lebanon Kills Hezbollah Commander, Israel Says**\
 `The Israeli military carried out an airstrike in Beirut that it said killed several senior Hezbollah officials, including Ibrahim Aqeel, a commander wanted by the United States for his role in bombings in the 1980s that killed hundreds.`\
 https://nytimes.com/video/world/middleeast/100000009709670/lebanon-israeli-airstrike-hezbollah.html
-
-**Israeli Soldiers Throw Three Seemingly Lifeless Palestinians Off a Roof**\
-`Several videos have emerged of the gruesome scene, but it remains unclear if the three were alive or dead at the time.`\
-https://nytimes.com/2024/09/20/world/middleeast/israel-soldiers-palestinian-bodies-roof.html
-
-**Video Shows Israeli Soldiers Throwing Motionless Palestinians Off Roof**\
-`The Palestinians appeared lifeless as they were thrown off a roof in the town of Qabatiya, in the occupied West Bank, where Israeli soldiers were conducting a raid. The Israeli military said it was reviewing the incident.`\
-https://nytimes.com/video/world/middleeast/100000009709013/israeli-soldiers-throwing-palestinians-off-roof.html
 
