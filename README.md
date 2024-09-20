@@ -1,3 +1,7 @@
+**Canucks training camp: Thatcher Demko speaks, reading too much into lines and more**\
+`With training camp officially underway, let's break down the major trends, observations and storylines that we saw.`\
+https://nytimes.com/athletic/5780768/2024/09/19/canucks-training-camp-thatcher-demko-injury/
+
 **Kentucky Sheriff Arrested in Shooting Death of Judge**\
 `The police say a sheriff shot District Judge Kevin Mullins inside the courthouse on Thursday afternoon before turning himself in.`\
 https://nytimes.com/2024/09/19/us/sheriff-judge-shooting-kentucky.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5780960/2024/09/19/atlanta-dream-tina-charles-rebou
 **Hiker Is Injured in Bear Attack at Glacier National Park**\
 `Rangers and other hikers helped the man walk more than a mile in a mountainous area so that he could be taken to a hospital, the National Park Service said.`\
 https://nytimes.com/2024/09/19/us/bear-attack-glacier-national-park.html
-
-**What I'm seeing and hearing on the opening day of Canadiens training camp**\
-`A definitive taste of what the forward lines will look like, Slafkovský's search for respect and other observations from Canadiens camp.`\
-https://nytimes.com/athletic/5780898/2024/09/19/canadiens-training-camp-first-day/
 
