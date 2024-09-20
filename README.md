@@ -1,3 +1,7 @@
+**WNBA Playoffs odds, picks: Liberty aim for first title, Aces for three-peat**\
+`The WNBA is headed to the playoffs in one of the best seasons we've ever seen. Get odds and picks for the outcomes.`\
+https://nytimes.com/athletic/5780602/2024/09/20/wnba-playoff-odds-expert-picks-schedule/
+
 **Arsenal have to beat Man City - Vieira**\
 `Former Arsenal captain Patrick Vieira believes his old side &#8220;have to win&#8221; against Manchester City if they are to stand any chance of toppling the reigning Premier League champions.`\
 https://nytimes.com/athletic/5782368/2024/09/20/patrick-vieira-arsenal-man-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/business/ge-vernova-offshore-wind-layoffs.html
 **Dan Campbell selling his Detroit-area home due to security concerns**\
 `When asked Friday about his safety, Campbell said, "I don't even want to go there with any of it. ... It's all good."`\
 https://nytimes.com/athletic/5782272/2024/09/20/dan-campbell-selling-home-security-concerns/
-
-**Harris Has a Polling Edge in Wisconsin, but Democrats Don’t Trust It**\
-`The vice president, who is visiting the state on Friday, has led Donald Trump there more often than not. Yet nearly everyone in Wisconsin politics believes the race will be incredibly close.`\
-https://nytimes.com/2024/09/20/us/politics/harris-polling-wisconsin.html
 
