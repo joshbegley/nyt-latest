@@ -1,3 +1,7 @@
+**Is overhauled Giants offensive line actually better? We're about to find out**\
+`There’s optimism building around the Giants’ O-line. It would be an encouraging sign if it holds up against the Browns on Sunday.`\
+https://nytimes.com/athletic/5781360/2024/09/20/new-york-giants-offensive-line-browns-week-3/
+
 **Palace's Doucoure out of Man Utd match**\
 `Crystal Palace midfielder Cheick Doucoure will miss Saturday&#8217;s visit of Manchester United after injuring his toe in last week&#8217;s draw against Leicester City.`\
 https://nytimes.com/athletic/5782066/2024/09/20/cheick-doucoure-injury-crystal-palace-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/your-money/buy-lease-car-cost-compared.html
 **How good can Ohio State's defense be? Arvell Reese's growth illustrates staggering depth**\
 `Linebacker was the big question in Ohio State's bid to have the nation's top defense, but players like Reese show how deep the Buckeyes are.`\
 https://nytimes.com/athletic/5781824/2024/09/20/arvell-reese-ohio-state-defense-depth-chart/
-
-**McLaren to adjust controversial F1 rear wing design after rival concerns, FIA request**\
-`F1’s regulations limit the amount of flexibility permitted, but teams try to find ways to maximize this to improve performance.`\
-https://nytimes.com/athletic/5781840/2024/09/20/mclaren-f1-rear-wing/
 
