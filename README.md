@@ -1,3 +1,11 @@
+**California Firefighter Is Accused of Starting 5 Fires in Wine Country**\
+`A Cal Fire employee was arrested Friday on suspicion of starting several blazes in Sonoma County.`\
+https://nytimes.com/2024/09/20/us/cal-fire-sonoma-county-arson.html
+
+**Israel’s latest military actions fit a long-signaled promise of a new strategy on its northern border.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israels-latest-military-actions-fit-a-long-signaled-promise-of-a-new-strategy-on-its-northern-border
+
 **49ers' George Kittle doubtful vs. Rams with hamstring soreness**\
 `Kittle likely would have had a big role Sunday if he was healthy.`\
 https://nytimes.com/athletic/5782761/2024/09/20/george-kittle-injury-update-hamstring-sf-49ers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/20/t-magazine/strawberry-milk-matcha.html
 **Earth Might Have Had a Ring 466 Million Years Ago**\
 `Impact craters found around the Earth that were made around the same time could be linked to debris falling from a ring, a new study suggests.`\
 https://nytimes.com/2024/09/20/science/earth-rings-asteroids-ordovician.html
-
-**What the U.S. Has Argued in the Google Ad Tech Antitrust Trial**\
-`As the government wraps up its case, it has built a picture of how Google has become dominant among companies that buy and sell ads online.`\
-https://nytimes.com/2024/09/20/technology/google-ad-antitrust-trial-arguments.html
-
-**Kentucky Town Is Shaken After Local Sheriff Is Charged With Killing Judge**\
-`The two men were seen getting ready to go to lunch on the day of the shooting. Hours later, Judge Kevin Mullins was dead from multiple gunshot wounds.`\
-https://nytimes.com/2024/09/20/us/kentucky-judge-sheriff-shooting.html
 
