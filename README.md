@@ -1,3 +1,7 @@
+**For Economists, Defending Big Business Can Be Big Business**\
+`The Justice Department’s antitrust chief thinks conflicts of interest are degrading scholarship.`\
+https://nytimes.com/2024/09/20/opinion/economists-conflict-interest-kanter.html
+
 **Senators reach agreement to build arena at LeBreton Flats**\
 `The Senators and the NCC had until Friday's deadline to reach a deal before their memorandum of understanding expired.`\
 https://nytimes.com/athletic/5782158/2024/09/20/senators-arena-agreement-lebreton-flats/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5782496/2024/09/20/nascar-corey-lajoie-justin-haley
 **Marinakis wants to keep Forest at the City Ground**\
 `Nottingham Forest owner Evangelos Marinakis has confirmed his desire to see the club remain at the City Ground.`\
 https://nytimes.com/athletic/5782559/2024/09/20/evangelos-marinakis-city-ground/
-
-**D-3 school in Springfield, Ohio, to resume athletic events**\
-`Schedules will resume, but the school will have additional security measures, including patrols in partnership with law enforcement.`\
-https://nytimes.com/athletic/5782420/2024/09/20/wittenberg-university-athletics-security-resume/
 
