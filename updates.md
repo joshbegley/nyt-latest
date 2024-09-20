@@ -1,3 +1,7 @@
+**Vikings pass rusher Jonathan Greenard gears up for Texans showdown with 'respect'**\
+`After the Vikings and Texans effectively swapped Greenard for veteran edge rusher Danielle Hunter, both defenses appear to be thriving.`\
+https://nytimes.com/athletic/5781028/2024/09/20/jonathan-greenard-vikings-texans-danielle-hunter/
+
 **North Carolina NAACP calls on Mark Robinson to drop out of the governor’s race.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/09/20/us/trump-harris-election/north-carolina-naacp-calls-on-mark-robinson-to-drop-out-of-the-governors-race
