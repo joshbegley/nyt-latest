@@ -1,3 +1,11 @@
+**California Firefighter Is Accused of Starting 5 Fires in Wine Country**\
+`A Cal Fire employee was arrested Friday on suspicion of starting several blazes in Sonoma County.`\
+https://nytimes.com/2024/09/20/us/cal-fire-sonoma-county-arson.html
+
+**Israel’s latest military actions fit a long-signaled promise of a new strategy on its northern border.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israels-latest-military-actions-fit-a-long-signaled-promise-of-a-new-strategy-on-its-northern-border
+
 **49ers' George Kittle doubtful vs. Rams with hamstring soreness**\
 `Kittle likely would have had a big role Sunday if he was healthy.`\
 https://nytimes.com/athletic/5782761/2024/09/20/george-kittle-injury-update-hamstring-sf-49ers/

@@ -2,7 +2,7 @@
 `A Cal Fire employee was arrested Friday on suspicion of starting several blazes in Sonoma County.`\
 https://nytimes.com/2024/09/20/us/cal-fire-sonoma-county-arson.html
 
-**Israel’s latest military actions fit a long-signaled promise of a new strategy on its northern border.**\
+**Israel’s latest military actions align with a long-signaled strategy change on its northern border.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israels-latest-military-actions-fit-a-long-signaled-promise-of-a-new-strategy-on-its-northern-border
 
