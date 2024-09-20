@@ -1,40 +1,40 @@
-**Bo Nix's biggest early issue with Broncos? He can't buy a mid-range bucket**\
-`On passes 5 yards beyond the line of scrimmage, Nix has been the NFL's most inefficient QB. How are the Broncos are trying to fix it?`\
-https://nytimes.com/athletic/5779839/2024/09/20/bo-nix-broncos-passing-problems/
+**‘Transformers One’ | Anatomy of a Scene**\
+`The director Josh Cooley narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000009705881/transformers-one-scene.html
 
-**The Raiders have an offensive line problem, and they need to fix it fast**\
-`The Las Vegas offensive line is struggling both in the running and passing game. The hope is that rookie Jackson Powers-Johnson can help.`\
-https://nytimes.com/athletic/5780698/2024/09/20/raiders-offensive-line-problems-kolton-miller/
+**A Surge in Breast Reductions**\
+`We explore why younger women are undergoing the cosmetic procedure.`\
+https://nytimes.com/2024/09/20/briefing/breast-reduction-gen-z.html
 
-**The Athletic’s Friday football quiz question #22**\
-`The Athletic's weekly conundrum from deep inside the trivia vaults`\
-https://nytimes.com/athletic/5781610/2024/09/20/the-athletic-friday-football-quiz-22/
+**A North Korean Trash Balloon Hits a Seoul Government Compound, Again**\
+`Debris was found more than a day after the North’s latest balloon launch. South Korea says it’s essentially impossible to track every balloon.`\
+https://nytimes.com/2024/09/20/world/asia/north-korea-trash-balloon.html
 
-**WSL storylines to watch: The Bompastor era begins, but fewer women managers**\
-`As the new WSL season begins, here's what you need to watch out for `\
-https://nytimes.com/athletic/5776144/2024/09/20/wsl-storylines-to-watch-bompastor-liverpool-manchester-united/
+**Gleeman: Twins' pitching collapse exactly what fans feared from payroll cut, inaction**\
+`The Twins' playoff odds shrank from 95 percent to basically a coin flip in a month as they ran out of pitching. Reap what you sow.`\
+https://nytimes.com/athletic/5773870/2024/09/20/twins-pitching-payroll-cut-trade-deadline/
 
-**FPL Q&A: Gameweek 5 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 5 Fantasy Premier League Q&A from 4pm UK time on Friday`\
-https://nytimes.com/athletic/5781581/2024/09/20/fantasy-premier-league-advice-injury-news-gw5/
+**E.U. Plans to Offer $39 Billion Loan to Ukraine Without the U.S.**\
+`Brussels officials reduced a planned loan after Hungary blocked an agreement that would have allowed a joint proposal with Washington to move forward.`\
+https://nytimes.com/2024/09/20/business/ukraine-aid-russian-assets.html
 
-**Christian Benteke: My game in my words**\
-`This season's top scorer in MLS analyses key moments from his career — from *that* overhead kick at Old Trafford to shining for D.C. United`\
-https://nytimes.com/athletic/5777167/2024/09/20/christian-benteke-dc-united-interview-analysis-mls/
+**What Nebraska's NCAA-record 400 consecutive sellouts mean to the Huskers and their fans**\
+`“That loyalty, that passion, as I’ve said since day one, is something that we feel humbled by,” coach Matt Rhule said.`\
+https://nytimes.com/athletic/5780871/2024/09/20/nebraska-football-sellouts-record/
 
-**Inside the Panthers' offseason, from 'champagne problems' to a new hunger: Catching up with Bill Zito**\
-`The GM of the reigning champs takes The Athletic through a "hectic" short summer of critical roster decisions — and the ones coming next.`\
-https://nytimes.com/athletic/5779757/2024/09/20/panthers-offseason-bill-zito/
+**How tough is playing Tennessee and Penn State back to back? Kent State is finding out**\
+`Kent State lost 71-0 last week to No. 6 Tennessee in Neyland Stadium. This week, it's a 49-point underdog at Penn State. `\
+https://nytimes.com/athletic/5781435/2024/09/20/penn-state-kent-state-football-tennessee/
 
-**How Elijah Molden endured crash course to find home with Chargers**\
-`Just 17 days after arriving via trade with the Titans, Molden was starting — and delivering an interception — for the Chargers.`\
-https://nytimes.com/athletic/5780886/2024/09/20/chargers-elijah-molden/
+**Montez Sweat's stat line, quick fixes for offense, RB carousel: Bears mailbag, Week 3 picks**\
+`It's another week of questions about how to fix the Bears offense, so we remember other recent "fixes" and make our picks for Sunday.`\
+https://nytimes.com/athletic/5780446/2024/09/20/bears-mailbag-offense-montez-sweat/
 
-**Three Mile Island Plans to Reopen as Demand for Nuclear Power Grows**\
-`The infamous plant, closed since 2019, is getting a new lease on life after Microsoft agreed to buy its electricity to supply a growing fleet of data centers.`\
-https://nytimes.com/2024/09/20/climate/three-mile-island-reopening.html
+**'Just pump the brakes a little bit': Flames veterans wrestle with team's rebuilding reality**\
+`If the Flames endure another season outside the playoffs, questions surrounding older core players will be unavoidable.`\
+https://nytimes.com/athletic/5780177/2024/09/20/flames-kadri-coleman-backlund/
 
-**How Optimus Prime and Megatron Learned to Transform in ‘Transformers One’**\
-`The director Josh Cooley narrates an action scene from the film.`\
-https://nytimes.com/2024/09/20/movies/transformers-one-scene.html
+**Harris Outspends Trump in Ad Battle, and Israel Bombards Hezbollah**\
+`Plus, an iconic kitchen brand files for bankruptcy.`\
+https://nytimes.com/2024/09/20/podcasts/harris-trump-spending-hezbollah.html
 
