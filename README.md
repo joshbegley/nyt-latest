@@ -1,3 +1,7 @@
+**Shohei Ohtani delivers with ridiculous performance: 'Makes you speechless'**\
+`Ohtani finished 6-for-6 with 10 runs batted in a 20-4 romp over the Miami Marlins.`\
+https://nytimes.com/athletic/5781191/2024/09/19/dodgers-shohei-ohtani-50-50-reaction/
+
 **‘Forbidden Broadway’ Review: Let Them Somewhat Entertain You**\
 `From its perch way Off Broadway, the long-running satire slings its affectionate arrows at Patti, Audra and the rest.`\
 https://nytimes.com/2024/09/19/theater/forbidden-broadway-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/arts/music/taylor-swift-trump-harris-popcast.html
 **Lawsuit accusing James Dolan of sex trafficking dismissed**\
 `In a statement provided to The Athletic, Croft’s attorneys Meredith Firetog and Kevin Mintzer said they plan on appealing the decision.`\
 https://nytimes.com/athletic/5781085/2024/09/19/james-dolan-lawsuit-dismissed-knicks-rangers/
-
-**Corrections: Sept. 20, 2024**\
-`Corrections that appeared in print on Friday, Sept. 20, 2024.`\
-https://nytimes.com/2024/09/19/pageoneplus/corrections-sept-20-2024.html
 
