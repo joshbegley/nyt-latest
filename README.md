@@ -1,3 +1,7 @@
+**Vikings pass rusher Jonathan Greenard gears up for Texans showdown with 'respect'**\
+`After the Vikings and Texans effectively swapped Greenard for veteran edge rusher Danielle Hunter, both defenses appear to be thriving.`\
+https://nytimes.com/athletic/5781028/2024/09/20/jonathan-greenard-vikings-texans-danielle-hunter/
+
 **North Carolina NAACP calls on Mark Robinson to drop out of the governor’s race.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/09/20/us/trump-harris-election/north-carolina-naacp-calls-on-mark-robinson-to-drop-out-of-the-governors-race
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/world/europe/nigel-farage-reform-uk-conference.ht
 **Can an NFL team go from 0-2 to the playoffs? It's a long shot, but these 9 teams did it**\
 `Here's a look at which teams overcame a tough start to advance to the playoffs and how they did it.`\
 https://nytimes.com/athletic/5776812/2024/09/20/nfl-teams-0-2-playoffs/
-
-**Is overhauled Giants offensive line actually better? We're about to find out**\
-`There’s optimism building around the Giants’ O-line. It would be an encouraging sign if it holds up against the Browns on Sunday.`\
-https://nytimes.com/athletic/5781360/2024/09/20/new-york-giants-offensive-line-browns-week-3/
 
