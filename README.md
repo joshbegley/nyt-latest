@@ -1,6 +1,6 @@
 **Odobert set for spell out with hamstring injury, Bissouma in contention to return**\
 `Tottenham Hotspur head coach Ange Postecoglou says Wilson Odobert is set for a spell on the sidelines after sustaining a hamstring injury during Wednesday&#8217;s victory over Coventry City.`\
-https://nytimes.com/athletic/5781889/2024/09/20/wilson-odobert-set-for-period-out-with-hamstring-injury-yves-bissouma-in-contention-to-return/
+https://nytimes.com/athletic/5781889/2024/09/20/wilson-odobert-injury-update/
 
 **Verstappen ordered to complete public interest work for inappropriate language**\
 `Max Verstappen has been ordered to complete work of public interest after using inappropriate language during the FIA Thursday driver press conference ahead of the Formula One Singapore Grand Prix.`\
