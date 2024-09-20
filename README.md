@@ -1,3 +1,11 @@
+**How Trump Tried to Prosecute His Rivals**\
+`Michael S. Schmidt, a New York Times investigative reporter, explains how Donald Trump used his power as president to intimidate and punish his rivals. Now, in the final weeks of his presidential campaign, Trump has ramped up promises to exact retribution if he returns to the White House.`\
+https://nytimes.com/video/us/politics/100000009671461/how-trump-tried-to-prosecute-his-rivals.html
+
+**Judge John Hodgman on Dangerous Odometer Photography**\
+`How good does the number have to be to justify taking your phone out to get a picture?`\
+https://nytimes.com/2024/09/20/magazine/judge-john-hodgman-on-dangerous-odometer-photography.html
+
 **Justin Jefferson cleared, but Vikings will be without 3 contributors**\
 `Addison, linebacker Ivan Pace Jr. and rookie edge rusher Dallas Turner will miss Sunday's matchup against the Texans.`\
 https://nytimes.com/athletic/5782624/2024/09/20/vikings-injury-justin-jefferson-jordan-addison-pace-turner/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/20/world/europe/toto-schillaci-italy.html
 **A Look Ahead at Autumn’s Big Books**\
 `The season’s most anticipated titles include new fiction from Sally Rooney, Richard Powers, Jean Hanff Korelitz and more, plus celebrity memoirs by Al Pacino, Cher and Ina Garten.`\
 https://nytimes.com/2024/09/20/books/review/podcast-fall-books-preview.html
-
-**Report Details Secret Service Failures Before Trump Assassination Attempt**\
-`The Secret Service’s internal review revealed that they did not adequately prepare its local partners for the July 13 event that led to former President Donald Trump’s assassination attempt.`\
-https://nytimes.com/video/us/elections/100000009709641/secret-service-communication-failures.html
-
-**For Economists, Defending Big Business Can Be Big Business**\
-`The Justice Department’s antitrust chief thinks conflicts of interest are degrading scholarship.`\
-https://nytimes.com/2024/09/20/opinion/economists-conflict-interest-kanter.html
 
