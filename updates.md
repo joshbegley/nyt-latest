@@ -1,3 +1,11 @@
+**Arsenal's long-ball approach against Atalanta was flawed - and failed**\
+`Mikel Arteta's team went direct against Serie A's tallest team - they will need to find more solutions in their search for silverware`\
+https://nytimes.com/athletic/5781692/2024/09/20/arsenal-long-ball-atalanta-champions-league/
+
+**Israel submits a challenge to the I.C.C. after a request for arrest warrants for Netanyahu and the defense minister.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israel-submits-a-challenge-to-the-icc-after-a-request-for-arrest-warrants-for-netanyahu-and-the-defense-minister
+
 **Odobert set for spell out with hamstring injury, Bissouma in contention to return**\
 `Tottenham Hotspur head coach Ange Postecoglou says Wilson Odobert is set for a spell on the sidelines after sustaining a hamstring injury during Wednesday&#8217;s victory over Coventry City.`\
 https://nytimes.com/athletic/5781889/2024/09/20/wilson-odobert-injury-update/

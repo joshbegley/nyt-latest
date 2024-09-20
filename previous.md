@@ -1,3 +1,11 @@
+**Arsenal's long-ball approach against Atalanta was flawed - and failed**\
+`Mikel Arteta's team went direct against Serie A's tallest team - they will need to find more solutions in their search for silverware`\
+https://nytimes.com/athletic/5781692/2024/09/20/arsenal-long-ball-atalanta-champions-league/
+
+**Israel submits a challenge to the I.C.C. after a request for arrest warrants for Netanyahu and the defense minister.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israel-submits-a-challenge-to-the-icc-after-a-request-for-arrest-warrants-for-netanyahu-and-the-defense-minister
+
 **Odobert set for spell out with hamstring injury, Bissouma in contention to return**\
 `Tottenham Hotspur head coach Ange Postecoglou says Wilson Odobert is set for a spell on the sidelines after sustaining a hamstring injury during Wednesday&#8217;s victory over Coventry City.`\
 https://nytimes.com/athletic/5781889/2024/09/20/wilson-odobert-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/20/arts/music/sophie-posthumous-album.html
 **Why Nike Just Did It**\
 `Investors are hoping that replacing John Donahoe as chief executive will lift its stock price and restore the brand’s cool factor.`\
 https://nytimes.com/2024/09/20/business/dealbook/nike-ceo-donahoe.html
-
-**China Says It Will ‘Gradually’ Resume Imports of Japanese Seafood**\
-`China imposed a ban last year after Japan began releasing treated water from the Fukushima nuclear plant into the sea. They have agreed to expand monitoring of the water.`\
-https://nytimes.com/2024/09/20/world/asia/china-japan-seafood-ban-fukushima.html
-
-**Giannis in the dunker spot, small-ball unit, long-range duo: 5 intriguing Bucks lineups**\
-`We propose unique bench units that could help get the Bucks through the season and, in some cases, prepare them for the postseason.`\
-https://nytimes.com/athletic/5775620/2024/09/20/bucks-5-intriguing-lineups/
 
