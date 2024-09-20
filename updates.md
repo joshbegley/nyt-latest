@@ -1,3 +1,11 @@
+**Kentucky Sheriff Arrested in Shooting Death of Judge**\
+`The police say a sheriff shot District Judge Kevin Mullins inside the courthouse on Thursday afternoon before turning himself in.`\
+https://nytimes.com/2024/09/19/us/sheriff-judge-shooting-kentucky.html
+
+**Jury Awards $116 Million to Family of Man Who Died in Helicopter Crash**\
+`When an open-door tourist helicopter crashed into the East River, Trevor Cadigan, 26, and four other passengers were unable to escape from cumbersome safety harnesses.`\
+https://nytimes.com/2024/09/19/nyregion/trevor-cadigan-helicopter-crash-lawsuit.html
+
 **‘Definitely a little scary:’ Yankees' Juan Soto bangs knee just days after mentioning upcoming free agency**\
 `SEATTLE — Two days after speaking openly about his upcoming free agent bonanza, New York Yankees star right fielder Juan Soto found himself on the ground at T-Mobile Park on Thursday, having smashed his knee left on the wall while making a sliding catch.`\
 https://nytimes.com/athletic/5781027/2024/09/19/yankees-juan-soto-injury-scare/
