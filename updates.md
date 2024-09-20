@@ -1,3 +1,11 @@
+**The U.K.’s Anti-Immigration Party Has Big Plans. Can It See Them Through?**\
+`Nigel Farage, a Trump ally and Brexit champion, thinks his Reform U.K. party can become a major political force. At a conference on Friday, he will explain how.`\
+https://nytimes.com/2024/09/20/world/europe/nigel-farage-reform-uk-conference.html
+
+**Can an NFL team go from 0-2 to the playoffs? It's a long shot, but these 9 teams did it**\
+`Here's a look at which teams overcame a tough start to advance to the playoffs and how they did it.`\
+https://nytimes.com/athletic/5776812/2024/09/20/nfl-teams-0-2-playoffs/
+
 **Is overhauled Giants offensive line actually better? We're about to find out**\
 `There’s optimism building around the Giants’ O-line. It would be an encouraging sign if it holds up against the Browns on Sunday.`\
 https://nytimes.com/athletic/5781360/2024/09/20/new-york-giants-offensive-line-browns-week-3/
