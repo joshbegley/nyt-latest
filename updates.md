@@ -1,3 +1,7 @@
+**Officials Confirm Body Found Near Site of Kentucky Highway Shooting Was Suspect’s**\
+`The identification, made through DNA testing, affirmed the belief of officials. The body was discovered Wednesday after a 12-day manhunt.`\
+https://nytimes.com/2024/09/20/us/kentucky-highway-shooting-suspect.html
+
 **Senior Hezbollah Leader Is Killed in Beirut in Israeli Airstrike**\
 `The attack, which Lebanese officials said killed at least 14 and injured more than 60, stoked fears Israel is driving toward a full-blown war on its northern border, even as the fight in Gaza goes on.`\
 https://nytimes.com/2024/09/20/world/middleeast/beirut-israel-hezbollah-airstrike.html
