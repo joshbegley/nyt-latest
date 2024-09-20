@@ -1,3 +1,11 @@
+**Kentucky Sheriff Arrested in Shooting Death of Judge**\
+`The police say a sheriff shot District Judge Kevin Mullins inside the courthouse on Thursday afternoon before turning himself in.`\
+https://nytimes.com/2024/09/19/us/sheriff-judge-shooting-kentucky.html
+
+**Jury Awards $116 Million to Family of Man Who Died in Helicopter Crash**\
+`When an open-door tourist helicopter crashed into the East River, Trevor Cadigan, 26, and four other passengers were unable to escape from cumbersome safety harnesses.`\
+https://nytimes.com/2024/09/19/nyregion/trevor-cadigan-helicopter-crash-lawsuit.html
+
 **‘Definitely a little scary:’ Yankees' Juan Soto bangs knee just days after mentioning upcoming free agency**\
 `SEATTLE — Two days after speaking openly about his upcoming free agent bonanza, New York Yankees star right fielder Juan Soto found himself on the ground at T-Mobile Park on Thursday, having smashed his knee left on the wall while making a sliding catch.`\
 https://nytimes.com/athletic/5781027/2024/09/19/yankees-juan-soto-injury-scare/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/us/bear-attack-glacier-national-park.html
 **What I'm seeing and hearing on the opening day of Canadiens training camp**\
 `A definitive taste of what the forward lines will look like, Slafkovský's search for respect and other observations from Canadiens camp.`\
 https://nytimes.com/athletic/5780898/2024/09/19/canadiens-training-camp-first-day/
-
-**No dressing this up: Slumping Twins fall short yet again, drop into tie with Tigers**\
-`Just like that, what on Aug. 17 was a 10 1/2-game advantage over Detroit had vanished into thin air.`\
-https://nytimes.com/athletic/5780808/2024/09/19/twins-slump-tigers-wild-card-playoffs/
-
-**New super PAC pitches Trump to users of Zyn nicotine pouches and sports gamblers.**\
-`By Theodore Schleifer`\
-https://nytimes.com/live/2024/09/19/us/trump-harris-election/new-super-pac-pitches-trump-to-users-of-zyn-nicotine-pouches-and-sports-gamblers
 
