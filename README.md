@@ -1,3 +1,11 @@
+**Mohamed al-Fayed ‘Was a Monster Enabled by a System,’ Lawyers Say**\
+`Attorneys for 37 women said they would sue Harrods, the luxury department store, over the rape and sexual assault they say its former owner committed.`\
+https://nytimes.com/2024/09/20/world/europe/mohamed-al-fayed-harrods.html
+
+**German football has a new controversy - about playing games in the United States**\
+`A recent deal between U.S. promoters and German football authorities might spell trouble on the pitch this weekend`\
+https://nytimes.com/athletic/5781892/2024/09/20/german-bundesliga-relevent-controversy-united-states/
+
 **The U.K.’s Anti-Immigration Party Has Big Plans. Can It See Them Through?**\
 `Nigel Farage, a Trump ally and Brexit champion, thinks his Reform U.K. party can become a major political force. At a conference on Friday, he will explain how.`\
 https://nytimes.com/2024/09/20/world/europe/nigel-farage-reform-uk-conference.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/20/us/politics/trump-jan-6-case-chutkan.html
 **'We're trying to right our wrongs'; What's going on with the Eagles defense?**\
 `The Eagles are optimistic that the defense can turn things around.`\
 https://nytimes.com/athletic/5780340/2024/09/20/whats-wrong-with-the-eagles-defense/
-
-**Israel announces a ‘targeted strike’ in Beirut, as tensions with Hezbollah soar.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israel-announces-a-targeted-strike-in-beirut-as-tensions-with-hezbollah-soar
-
-**Georgia Attorney General Says Election Board Is Operating Outside Its Authority**\
-`The board, with a new right-wing majority, is set to consider new election rules just 45 days before the election.`\
-https://nytimes.com/2024/09/20/us/elections/georgia-election-board-rules.html
 
