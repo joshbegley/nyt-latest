@@ -1,3 +1,7 @@
+**Even before the CNN story, Mark Robinson was behind in polls of North Carolina’s governor’s race.**\
+`By Kaleigh Rogers and Alex Lemonides`\
+https://nytimes.com/live/2024/09/20/us/trump-harris-election/even-before-the-cnn-story-mark-robinson-was-behind-in-polls-of-north-carolinas-governors-race
+
 **Blackhawks camp observations: Connor Bedard ready to take on NHL again after satisfying offseason**\
 `Also, Kyle Davidson provided more specific injury updates for Artyom Levshunov and Laurent Brossoit.`\
 https://nytimes.com/athletic/5782735/2024/09/20/blackhawks-training-camp-connor-bedard/
