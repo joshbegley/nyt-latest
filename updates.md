@@ -1,3 +1,11 @@
+**Graham Arnold resigns as head coach of Australia**\
+`Graham Arnold has stepped down as head coach of the Australian men&#8217;s national team after six years in charge.`\
+https://nytimes.com/athletic/5781522/2024/09/20/graham-arnold-australia-resign/
+
+**In Barcelona’s Champions League chaos, at least there was Marc Casado**\
+`Barcelona lost 2-1 at Monaco in their opening Champions League match, but there was a real bright spot in the performance of Marc Casado`\
+https://nytimes.com/athletic/5781503/2024/09/20/barcelona-marc-casado-champions-league-monaco/
+
 **Unflustered and unfussy - Raya is no longer under appreciated**\
 `David Raya seems liberated by the fact he has been through his transition season and come out the other side of battle with Aaron Ramsdale`\
 https://nytimes.com/athletic/5780950/2024/09/20/arsenal-david-raya-save-atalanta-champions-league/
