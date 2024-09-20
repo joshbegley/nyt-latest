@@ -1,3 +1,7 @@
+**A New Power Grab in Georgia Could Create a Chaotic Election Night**\
+`It’s an example of why elections should be run by nonpartisan administrators.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/georgia-election-board-nonpartisan
+
 **These Voters Don’t Want to Commit to Trump or Harris. Here’s Why.**\
 `Those still weighing their options are more likely  to be young, Black or Latino — and struggling. Many see their choice as the “lesser of two evils.”`\
 https://nytimes.com/2024/09/20/us/politics/undecided-voters-2024-election.html
