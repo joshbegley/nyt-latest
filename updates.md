@@ -1,3 +1,11 @@
+**Arsenal have to beat Man City - Vieira**\
+`Former Arsenal captain Patrick Vieira believes his old side &#8220;have to win&#8221; against Manchester City if they are to stand any chance of toppling the reigning Premier League champions.`\
+https://nytimes.com/athletic/5782368/2024/09/20/patrick-vieira-arsenal-man-city/
+
+**ECU's Shavon Revel Jr. tears ACL: What it means for his draft outlook**\
+`The cornerback was considered a top prospect for the 2025 NFL Draft.`\
+https://nytimes.com/athletic/5782418/2024/09/20/shavon-revel-acl-tear-nfl-draft-ecu/
+
 **Israel’s Attacks on Hezbollah Intensify but Stop Short of All-Out War**\
 `Israel is attempting a risky strategy, increasing the intensity of its attacks in an attempt to force Hezbollah to back down, while raising the chances of an aggressive response that devolves into a land war.`\
 https://nytimes.com/2024/09/20/world/middleeast/israel-lebanon-attacks-hezbollah-war.html
