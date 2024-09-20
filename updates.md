@@ -1,3 +1,7 @@
+**‘A dangerous Pandora’s box’: U.N. Security Council members express alarmed over device attacks.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/a-dangerous-pandoras-box-un-security-council-members-are-alarmed-by-device-attacks
+
 **‘A dangerous Pandora’s box’: U.N. Security Council members are alarmed by device attacks.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/a-dangerous-pandoras-box-un-security-council-members-are-alarmed-by-device-attacks
