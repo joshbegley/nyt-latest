@@ -1,3 +1,11 @@
+**After Surprise Pager Attack, Israel and Hezbollah Return to Familiar Deadlock**\
+`Israel’s attack on Hezbollah’s communication devices raised expectations of a decisive shift in their war of attrition. Instead, the fighting has returned to a standoff.`\
+https://nytimes.com/2024/09/20/world/middleeast/after-surprise-pager-attack-israel-and-hezbollah-return-to-familiar-deadlock.html
+
+**Portuguese league to plant 200 trees for every goal after wildfires**\
+`Liga Portugal have pledged to plant 200 trees in the country for every goal scored in Primeira Liga, the top-flight of Portuguese football, on matchday six.`\
+https://nytimes.com/athletic/5781847/2024/09/20/portugal-wildfires-trees-goals/
+
 **The Athletic FC: Sad decline of long shots? Raya's remarkable double-save, FIFA's TV trouble**\
 `Today in TAFC: Shearer explains why it's sometimes worth a pop from distance, Raya's incredible double saves, and FIFA's emergency meeting`\
 https://nytimes.com/athletic/5781678/2024/09/20/sad-decline-of-long-shots-rayas-remarkable-double-save-fifas-emergency-meeting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5780263/2024/09/20/golf-pga-tour-liv-deal/
 **Wolves's Traore out until Christmas after knee surgery**\
 `Wolverhampton Wanderers midfielder Boubabcar Traore will be sidelined until Christmas following surgery to repair a knee injury.`\
 https://nytimes.com/athletic/5781838/2024/09/20/boubacar-traore-wolves-injury/
-
-**49ers vs. Rams: How Fred Warner became a master in the way of the fist**\
-`For the first time since 2013, the 49ers will face a Rams defense that doesn't have Aaron Donald, a vast departure for them.`\
-https://nytimes.com/athletic/5779784/2024/09/20/49ers-rams-fred-warner-takeaways/
-
-**Sophie Died in 2021. The Album She Left Behind Is Now Complete.**\
-`“Sophie,” a new LP by the visionary hyperpop producer, traces an arc from introspection to pop pleasures to thoughts of eternity. It will be her final release.`\
-https://nytimes.com/2024/09/20/arts/music/sophie-posthumous-album.html
 
