@@ -1,3 +1,7 @@
+**Lawsuit accusing James Dolan of sex trafficking dismissed**\
+`In a statement provided to The Athletic, Croft’s attorneys Meredith Firetog and Kevin Mintzer said they plan on appealing the decision.`\
+https://nytimes.com/athletic/5781085/2024/09/19/james-dolan-lawsuit-dismissed-knicks-rangers/
+
 **Corrections: Sept. 20, 2024**\
 `Corrections that appeared in print on Friday, Sept. 20, 2024.`\
 https://nytimes.com/2024/09/19/pageoneplus/corrections-sept-20-2024.html
