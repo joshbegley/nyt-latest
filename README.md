@@ -1,3 +1,7 @@
+**The ‘Crank Realignment’ and the Paranoid Center**\
+`By Ross Douthat`\
+https://nytimes.com/2024/09/20/opinion/liberal-conservative-crank-realignment.html
+
 **Who Is the ‘Skinny Influencer’ Who Was Barred From TikTok?**\
 `Liv Schmidt has inspired debates with videos that some believe encourage disordered eating. One social media site tried to remove her.`\
 https://nytimes.com/2024/09/20/style/liv-schmidt-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/world/middleeast/israel-soldiers-palestinian-bodi
 **Video Shows Israeli Soldiers Throwing Motionless Palestinians Off Roof**\
 `The Palestinians appeared lifeless as they were thrown off a roof in the town of Qabatiya, in the occupied West Bank, where Israeli soldiers were conducting a raid. The Israeli military said it was reviewing the incident.`\
 https://nytimes.com/video/world/middleeast/100000009709013/israeli-soldiers-throwing-palestinians-off-roof.html
-
-**Democrats Seize on Robinson Scandal, Hoping to Sink Trump in a Key State**\
-`Kamala Harris’s campaign quickly released a new ad to run in North Carolina featuring Donald Trump’s effusive praise for Mark Robinson, the Republican candidate for governor.`\
-https://nytimes.com/2024/09/20/us/politics/democrats-mark-robinson-north-carolina.html
 
