@@ -2,6 +2,10 @@
 `On passes 5 yards beyond the line of scrimmage, Nix has been the NFL's most inefficient QB. How are the Broncos are trying to fix it?`\
 https://nytimes.com/athletic/5779839/2024/09/20/bo-nix-broncos-passing-problems/
 
+**How 36 Oilers prospects are trending ahead of the season: Stock watch**\
+`The Oilers have more substantial prospect pool that will hit the ice this winter across the hockey world.`\
+https://nytimes.com/athletic/5771349/2024/09/20/edmonton-oilers-prospects-stock-watch-2024/
+
 **The Raiders have an offensive line problem, and they need to fix it fast**\
 `The Las Vegas offensive line is struggling both in the running and passing game. The hope is that rookie Jackson Powers-Johnson can help.`\
 https://nytimes.com/athletic/5780698/2024/09/20/raiders-offensive-line-problems-kolton-miller/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5780886/2024/09/20/chargers-elijah-molden/
 **Three Mile Island Plans to Reopen as Demand for Nuclear Power Grows**\
 `The infamous plant, closed since 2019, is getting a new lease on life after Microsoft agreed to buy its electricity to supply a growing fleet of data centers.`\
 https://nytimes.com/2024/09/20/climate/three-mile-island-reopening.html
-
-**How Optimus Prime and Megatron Learned to Transform in ‘Transformers One’**\
-`The director Josh Cooley narrates an action scene from the film.`\
-https://nytimes.com/2024/09/20/movies/transformers-one-scene.html
 
