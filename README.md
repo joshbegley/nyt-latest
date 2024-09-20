@@ -1,3 +1,15 @@
+**The joy of Aston Villa's devilish left-sided attacks**\
+`Unai Emery's team are a Swiss Army knife when it comes to attacking patterns and their varied uses of the left flank are deviously effective`\
+https://nytimes.com/athletic/5775818/2024/09/20/aston-villa-left-sided-tactics-attacks/
+
+**FPL: Are Manchester United worth a look or should you wait?**\
+`Is this the time to bring in United assets or would FPL managers be wise to hold off until their fixtures improve from gameweek 8`\
+https://nytimes.com/athletic/5775916/2024/09/20/fantasy-premier-league-manchester-united/
+
+**Long-range goals are rare but this season shows why it's still worth having a pop**\
+`Alan Shearer looks at the data, decisions and techniques behind the special moment when a long-range strike crashes into the back of the net`\
+https://nytimes.com/athletic/5778802/2024/09/20/alan-shearer-long-range-goals/
+
 **Next week’s waiver wire: Cam Akers, Jalen Tolbert and more players to add now — before the Week 4 rush**\
 `John Laghezza points you towards to his top expected future waiver wire plays, which has his eyes focused on the state of Texas.`\
 https://nytimes.com/athletic/5779182/2024/09/20/week-4-fantasy-football-early-waiver-cam-akers-jalen-tolbert/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/20/world/europe/europes-new-defense-chief-a-king-wit
 **The Conversation That Changed Their Relationship Forever**\
 `When Samantha Rosensweig, who is well versed at lip reading, picked up on a chat John-Jay Pontrelli had with his cousin, she used the opening.`\
 https://nytimes.com/2024/09/20/style/the-conversation-that-changed-their-relationship-forever.html
-
-**One Week After Meeting, a Bloody Nose and an ‘I Love You’**\
-`Gregory Addicott was on another date when he met Christopher Traina. Six weeks later, they became official and began a “press tour,” introducing each other to their respective families and friends.`\
-https://nytimes.com/2024/09/20/style/christopher-traina-gregory-addicott-wedding.html
-
-**I Wanted to Crave Him, Not Have Him**\
-`Our intense connection fit no category. Would we be allowed to keep it?`\
-https://nytimes.com/2024/09/20/style/modern-love-crave-him-not-have-him.html
-
-**A Hollywood Actress Finds a Farm, and Her Leading Man in the Midwest**\
-`Torrey DeVitto, whose father was Billy Joel’s drummer and mother is Stevie Nicks’s best friend, is a famous actress in her own right. She found love with Jared LaPine in Kalamazoo, Mich.`\
-https://nytimes.com/2024/09/20/style/torrey-devitto-jared-lapine-wedding.html
 
