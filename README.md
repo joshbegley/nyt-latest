@@ -1,11 +1,3 @@
-**Iraqi armed group, backed by Iran, says a senior member was killed in a strike in Syria.**\
-`By Alissa J. Rubin`\
-https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/iraqi-armed-group-backed-by-iran-says-a-senior-member-was-killed-in-a-strike-in-syria
-
-**As Cubs approach another long offseason, Cody Bellinger hasn’t made his contract decision**\
-`The Cubs might be fine with Bellinger staying or leaving, considering their internal options and the value he brings as a two-way player.`\
-https://nytimes.com/athletic/5782825/2024/09/20/cubs-cody-bellinger-contract/
-
 **Michel Siffre, 85, Dies; Descended Into Caves to Study the Human Mind**\
 `He was a pioneer in chronobiology, the study of how our bodies understand the passage of time.`\
 https://nytimes.com/2024/09/20/science/michel-siffre-dead.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/09/20/us/politics/trump-mark-robinson-relationship.html
 **Ex-Colorado staffer wanted $10M from Saudi Arabia in exchange for tourism promotion**\
 `A former Colorado staffer sought $10 million in name, image and likeness funding from Saudi Arabia in exchange for promoting tourism. `\
 https://nytimes.com/athletic/5782435/2024/09/20/colorado-trevor-reilly-saudi-arabia-football/
+
+**Chelsea planning more transfers in January window - Maresca**\
+`Enzo Maresca says Chelsea are already intending to make more signings next year in order to bridge the gap to Manchester City and Arsenal.`\
+https://nytimes.com/athletic/5782097/2024/09/20/chelsea-transfers-january-window-enzo-maresca/
+
+**Ten Hag praises Rashford resilience: 'He is on the way back'**\
+`Erik ten Hag has praised Marcus Rashford&#8217;s resilience after the forward&#8217;s return to goalscoring form for Manchester United.`\
+https://nytimes.com/athletic/5781719/2024/09/20/manchester-united-rashford-ten-hag/
 
