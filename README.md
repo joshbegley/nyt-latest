@@ -1,7 +1,3 @@
-**Why Nike Just Did It**\
-`Investors are hoping that replacing John Donahoe as chief executive will lift its stock price and restore the brand’s cool factor.`\
-https://nytimes.com/2024/09/20/business/dealbook/nike-ceo-donahoe.html
-
 **China Says It Will ‘Gradually’ Resume Imports of Japanese Seafood**\
 `China imposed a ban last year after Japan began releasing treated water from the Fukushima nuclear plant into the sea. They have agreed to expand monitoring of the water.`\
 https://nytimes.com/2024/09/20/world/asia/china-japan-seafood-ban-fukushima.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5779839/2024/09/20/bo-nix-broncos-passing-problems/
 **How 36 Oilers prospects are trending ahead of the season: Stock watch**\
 `The Oilers have more substantial prospect pool that will hit the ice this winter across the hockey world.`\
 https://nytimes.com/athletic/5771349/2024/09/20/edmonton-oilers-prospects-stock-watch-2024/
+
+**The Raiders have an offensive line problem, and they need to fix it fast**\
+`The Las Vegas offensive line is struggling both in the running and passing game. The hope is that rookie Jackson Powers-Johnson can help.`\
+https://nytimes.com/athletic/5780698/2024/09/20/raiders-offensive-line-problems-kolton-miller/
 

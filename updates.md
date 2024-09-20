@@ -1,3 +1,11 @@
+**Why Nike Just Did It**\
+`Investors are hoping that replacing John Donahoe as chief executive will lift its stock price and restore the brand’s cool factor.`\
+https://nytimes.com/2024/09/20/business/dealbook/nike-ceo-donahoe.html
+
+**China Says It Will ‘Gradually’ Resume Imports of Japanese Seafood**\
+`China imposed a ban last year after Japan began releasing treated water from the Fukushima nuclear plant into the sea. They have agreed to expand monitoring of the water.`\
+https://nytimes.com/2024/09/20/world/asia/china-japan-seafood-ban-fukushima.html
+
 **Giannis in the dunker spot, small-ball unit, long-range duo: 5 intriguing Bucks lineups**\
 `We propose unique bench units that could help get the Bucks through the season and, in some cases, prepare them for the postseason.`\
 https://nytimes.com/athletic/5775620/2024/09/20/bucks-5-intriguing-lineups/
