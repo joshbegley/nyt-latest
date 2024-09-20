@@ -1,3 +1,7 @@
+**Is It Better to Buy or Lease a Car? It Depends.**\
+`The lowest overall cost is to buy a car and keep it for a long time. But leasing usually has lower monthly costs. And leasing an E.V. may come with a tax break.`\
+https://nytimes.com/2024/09/20/your-money/buy-lease-car-cost-compared.html
+
 **How good can Ohio State's defense be? Arvell Reese's growth illustrates staggering depth**\
 `Linebacker was the big question in Ohio State's bid to have the nation's top defense, but players like Reese show how deep the Buckeyes are.`\
 https://nytimes.com/athletic/5781824/2024/09/20/arvell-reese-ohio-state-defense-depth-chart/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781889/2024/09/20/wilson-odobert-injury-update/
 **Verstappen ordered to complete public interest work for inappropriate language**\
 `Max Verstappen has been ordered to complete work of public interest after using inappropriate language during the FIA Thursday driver press conference ahead of the Formula One Singapore Grand Prix.`\
 https://nytimes.com/athletic/5781828/2024/09/20/max-verstappen-singapore-grand-prix-language/
-
-**Embiid, 76ers reach $301 million max extension**\
-`Joel Embiid's deal includes a player option in 2028-29, league sources said.`\
-https://nytimes.com/athletic/5781843/2024/09/20/joel-embiid-sixers-extension-contract/
 
