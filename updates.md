@@ -1,3 +1,7 @@
+**In Beirut, rescue workers search for survivors while others wait for news.**\
+`By Hwaida Saad and Euan Ward`\
+https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/in-beirut-rescue-workers-search-for-survivors-while-others-wait-for-news
+
 **Move Over, Matcha. Strawberry Milk Is Here.**\
 `Long beloved in Japan, the drink is becoming a fixture on cafe menus in Hawaii and now the mainland, too.`\
 https://nytimes.com/2024/09/20/t-magazine/strawberry-milk-matcha.html

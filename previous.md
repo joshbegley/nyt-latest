@@ -1,3 +1,7 @@
+**In Beirut, rescue workers search for survivors while others wait for news.**\
+`By Hwaida Saad and Euan Ward`\
+https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/in-beirut-rescue-workers-search-for-survivors-while-others-wait-for-news
+
 **Move Over, Matcha. Strawberry Milk Is Here.**\
 `Long beloved in Japan, the drink is becoming a fixture on cafe menus in Hawaii and now the mainland, too.`\
 https://nytimes.com/2024/09/20/t-magazine/strawberry-milk-matcha.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/us/politics/undecided-voters-2024-election.html
 **Man the U.S. Says Financed Hezbollah Admits Trying to Evade Sanctions**\
 `Mohammad Ibrahim Bazzi pleaded guilty in Brooklyn federal court to conspiring to violate Treasury Department prohibitions.`\
 https://nytimes.com/2024/09/20/nyregion/mohammad-ibrahim-bazzi-hezbollah-funding-restaurants.html
-
-**Environmentalists Fear Subsidies for Carbon Capture Won’t Be Checked**\
-`Some activists are questioning whether the federal government can accurately verify a tax program for facilities that store planet-warming gases.`\
-https://nytimes.com/2024/09/20/us/politics/carbon-capture-irs-subsidies.html
 
