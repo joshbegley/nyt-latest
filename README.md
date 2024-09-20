@@ -1,7 +1,3 @@
-**China Says It Will ‘Gradually’ Resume Imports of Japanese Seafood**\
-`China imposed a ban last year after Japan began releasing treated water from the Fukushima nuclear plant into the sea. They have agreed to expand monitoring of the water.`\
-https://nytimes.com/2024/09/20/world/asia/china-japan-seafood-ban-fukushima.html
-
 **Giannis in the dunker spot, small-ball unit, long-range duo: 5 intriguing Bucks lineups**\
 `We propose unique bench units that could help get the Bucks through the season and, in some cases, prepare them for the postseason.`\
 https://nytimes.com/athletic/5775620/2024/09/20/bucks-5-intriguing-lineups/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5771349/2024/09/20/edmonton-oilers-prospects-stock-
 **The Raiders have an offensive line problem, and they need to fix it fast**\
 `The Las Vegas offensive line is struggling both in the running and passing game. The hope is that rookie Jackson Powers-Johnson can help.`\
 https://nytimes.com/athletic/5780698/2024/09/20/raiders-offensive-line-problems-kolton-miller/
+
+**The Athletic’s Friday football quiz question #22**\
+`The Athletic's weekly conundrum from deep inside the trivia vaults`\
+https://nytimes.com/athletic/5781610/2024/09/20/the-athletic-friday-football-quiz-22/
 
