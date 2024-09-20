@@ -1,3 +1,7 @@
+**8 California Firefighters Injured When Their Truck Rolls Over on Highway**\
+`The firefighters were ending a 12-hour shift battling the Airport fire, one of the biggest blazes in California this year.`\
+https://nytimes.com/2024/09/20/us/california-firefighters-highway-accident.html
+
 **Graham Arnold resigns as head coach of Australia**\
 `Graham Arnold has stepped down as head coach of the Australian men&#8217;s national team after six years in charge.`\
 https://nytimes.com/athletic/5781522/2024/09/20/graham-arnold-australia-resign/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/opinion/fujimori-peru-dictator-authoritarian.html
 **Aaron Rodgers on Saleh shove: Jets coach 'not a big hugger'**\
 `"I didn't know he was going for the hug, he likes to do the two-hand chest push as well," Rodgers said.`\
 https://nytimes.com/athletic/5781392/2024/09/20/aaron-rodgers-robert-saleh-shove/
-
-**Harris Hits Core Campaign Themes in Emotional Forum With Oprah Winfrey**\
-`Vice President Kamala Harris spoke off the cuff, as guests included a teenager shot at her school and the family of a woman in Georgia who died as a result of the state’s abortion ban.`\
-https://nytimes.com/2024/09/20/us/politics/kamala-harris-oprah-winfrey-event.html
 
