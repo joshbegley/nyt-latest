@@ -1,6 +1,10 @@
+**Who Is the ‘Skinny Influencer’ Who Was Barred From TikTok?**\
+`Liv Schmidt has inspired debates with videos that some believe encourage disordered eating. One social media site tried to remove her.`\
+https://nytimes.com/2024/09/20/style/liv-schmidt-tiktok.html
+
 **What’s Next for Rate Cuts? The Fed Is Watching Jobs and Prices.**\
 `A Federal Reserve official predicted two more cuts this year if data looked ‘fine’. But he also set out reasons for fewer reductions — or more of them.`\
-https://nytimes.com/2024/09/20/business/economy/whats-next-for-rate-cuts-the-fed-is-watching-jobs-and-prices.html
+https://nytimes.com/2024/09/20/business/economy/fed-rate-cuts-jobs-inflation.html
 
 **Corey LaJoie, Justin Haley swapping NASCAR rides**\
 `The swap will begin at next weekend’s Cup Series race at Kansas Speedway.`\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009709013/israeli-soldiers-thro
 **Democrats Seize on Robinson Scandal, Hoping to Sink Trump in a Key State**\
 `Kamala Harris’s campaign quickly released a new ad to run in North Carolina featuring Donald Trump’s effusive praise for Mark Robinson, the Republican candidate for governor.`\
 https://nytimes.com/2024/09/20/us/politics/democrats-mark-robinson-north-carolina.html
-
-**‘The Penguin’ Review: The Dark Blight**\
-`The HBO series starring an unrecognizable Colin Farrell is further proof that there is no fun in the Batman universe.`\
-https://nytimes.com/2024/09/20/arts/television/the-penguin-review.html
 
