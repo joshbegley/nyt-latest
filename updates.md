@@ -1,3 +1,15 @@
+**Why Derek Carr may have found the right fit in Klint Kubiak's Saints offense**\
+`The veteran QB has learned a lot of new systems under eight different coordinators in his career, but this one is really clicking so far.`\
+https://nytimes.com/athletic/5778489/2024/09/20/derek-carr-saints-offense-klint-kubiak/
+
+**Liverpool's Alisson a fitness doubt for Bournemouth match**\
+`Liverpool goalkeeper Alisson is a fitness doubt for Saturday’s Premier League match with Bournemouth an Anfield.`\
+https://nytimes.com/athletic/5781603/2024/09/20/alisson-injury-liverpool-bournemouth/
+
+**Here are the latest developments.**\
+`By Liam Stack and Euan Ward`\
+https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
+
 **An 'alien' is coming to Atlanta: Falcons admit Mahomes Week is different**\
 `Patrick Mahomes and the Chiefs visit the Falcons for "Sunday Night Football." Atlanta won't pretend that Mahomes is just another player.`\
 https://nytimes.com/athletic/5779399/2024/09/20/patrick-mahomes-kc-chiefs-atlanta-falcons/
