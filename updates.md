@@ -1,3 +1,15 @@
+**Is overhauled Giants offensive line actually better? We're about to find out**\
+`There’s optimism building around the Giants’ O-line. It would be an encouraging sign if it holds up against the Browns on Sunday.`\
+https://nytimes.com/athletic/5781360/2024/09/20/new-york-giants-offensive-line-browns-week-3/
+
+**Palace's Doucoure out of Man Utd match**\
+`Crystal Palace midfielder Cheick Doucoure will miss Saturday&#8217;s visit of Manchester United after injuring his toe in last week&#8217;s draw against Leicester City.`\
+https://nytimes.com/athletic/5782066/2024/09/20/cheick-doucoure-injury-crystal-palace-manchester-united/
+
+**England and USMNT in talks over pre-World Cup friendly**\
+`The Football Association (FA) and U.`\
+https://nytimes.com/athletic/5779680/2024/09/20/usmnt-england-world-cup-friendly/
+
 **Maresca supports players' complaints over intense fixture schedule**\
 `Chelsea head coach Enzo Maresca believes players are right to complain about the intense schedule and says going on strike may be one of their options to change things.`\
 https://nytimes.com/athletic/5781981/2024/09/20/enzo-maresca-player-schedule-chelsea/
