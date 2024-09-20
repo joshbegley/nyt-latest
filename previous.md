@@ -1,3 +1,27 @@
+**Europe’s New Defense Chief: ‘A King Without a Kingdom’?**\
+`The European Union has vowed to enhance its military capability. But money is scarce, responsibilities overlap and the new job is less about soldiers than arms manufacturers.`\
+https://nytimes.com/2024/09/20/world/europe/europes-new-defense-chief-a-king-without-a-kingdom.html
+
+**The Conversation That Changed Their Relationship Forever**\
+`When Samantha Rosensweig, who is well versed at lip reading, picked up on a chat John-Jay Pontrelli had with his cousin, she used the opening.`\
+https://nytimes.com/2024/09/20/style/the-conversation-that-changed-their-relationship-forever.html
+
+**One Week After Meeting, a Bloody Nose and an ‘I Love You’**\
+`Gregory Addicott was on another date when he met Christopher Traina. Six weeks later, they became official and began a “press tour,” introducing each other to their respective families and friends.`\
+https://nytimes.com/2024/09/20/style/christopher-traina-gregory-addicott-wedding.html
+
+**I Wanted to Crave Him, Not Have Him**\
+`Our intense connection fit no category. Would we be allowed to keep it?`\
+https://nytimes.com/2024/09/20/style/modern-love-crave-him-not-have-him.html
+
+**A Hollywood Actress Finds a Farm, and Her Leading Man in the Midwest**\
+`Torrey DeVitto, whose father was Billy Joel’s drummer and mother is Stevie Nicks’s best friend, is a famous actress in her own right. She found love with Jared LaPine in Kalamazoo, Mich.`\
+https://nytimes.com/2024/09/20/style/torrey-devitto-jared-lapine-wedding.html
+
+**When a Morning Person and a Night Person Fall in Love**\
+`Despite differing schedules, Kelly Downey and Gregory Harrington, a celebrated violinist, found a way to make things work.`\
+https://nytimes.com/2024/09/20/style/kelly-downey-gregory-harrington-wedding.html
+
 **Aaron Rodgers drives Jets to 24-3 win over Patriots: Takeaways**\
 `Rodgers, who missed all of last season with a torn Achilles, flashed the mobility and accuracy that helped him win four MVP awards Thursday.`\
 https://nytimes.com/athletic/5781329/2024/09/19/jets-patriots-score-takeaways-thursday-night-football/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5781315/2024/09/19/phillies-taijuan-walker-failure-
 **Shohei Ohtani delivers with ridiculous performance: 'Makes you speechless'**\
 `Ohtani finished 6-for-6 with 10 runs batted in a 20-4 romp over the Miami Marlins.`\
 https://nytimes.com/athletic/5781191/2024/09/19/dodgers-shohei-ohtani-50-50-reaction/
-
-**‘Forbidden Broadway’ Review: Let Them Somewhat Entertain You**\
-`From its perch way Off Broadway, the long-running satire slings its affectionate arrows at Patti, Audra and the rest.`\
-https://nytimes.com/2024/09/19/theater/forbidden-broadway-review.html
-
-**‘We should be trying to build 90-win teams here’: Cubs skipper sees ‘big gap’ to close against former club**\
-`The Cubs’ first-year manager might have been at his most animated all season in throwing down a challenge to the entire organization.`\
-https://nytimes.com/athletic/5780975/2024/09/19/craig-counsell-cubs-brewers-gap/
-
-**What an ‘X’ Might Mark**\
-`Jackson Matz opens our solving weekend.`\
-https://nytimes.com/2024/09/19/crosswords/daily-puzzle-2024-09-20.html
-
-**Trump Says That if He Loses, ‘the Jewish People Would Have a Lot to Do’ With It**\
-`Speaking at a campaign event denouncing antisemitism in America, Donald Trump again attacked Jews who vote for Democrats, saying that the party had a “hold, or curse, on you.”`\
-https://nytimes.com/2024/09/19/us/politics/trump-jews-antisemitism-israel.html
-
-**How Israel’s Technological Trojan Horse Destabilized Hezbollah**\
-`The explosion of devices carried by thousands of Hezbollah operatives sowed panic sowed panic and overwhelmed hospitals across Lebanon.`\
-https://nytimes.com/video/world/middleeast/100000009703279/how-israels-technological-trojan-horse-destabilized-hezbollah.html
-
-**Ohtani's historic 50/50 HR ball prompts chaotic scramble**\
-`Fans dove toward where the ball dropped down under a table. One man in a black T-shirt emerged from the dangerous scrum with the ball.`\
-https://nytimes.com/athletic/5781104/2024/09/19/shohei-ohtani-50-home-run-ball/
 
