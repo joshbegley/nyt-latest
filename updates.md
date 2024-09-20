@@ -1,3 +1,7 @@
+**What an ‘X’ Might Mark**\
+`Jackson Matz opens our solving weekend.`\
+https://nytimes.com/2024/09/19/crosswords/daily-puzzle-2024-09-20.html
+
 **Trump Says That if He Loses, ‘the Jewish People Would Have a Lot to Do’ With It**\
 `Speaking at a campaign event denouncing antisemitism in America, Donald Trump again attacked Jews who vote for Democrats, saying that the party had a “hold, or curse, on you.”`\
 https://nytimes.com/2024/09/19/us/politics/trump-jews-antisemitism-israel.html

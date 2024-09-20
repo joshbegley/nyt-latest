@@ -1,3 +1,7 @@
+**What an ‘X’ Might Mark**\
+`Jackson Matz opens our solving weekend.`\
+https://nytimes.com/2024/09/19/crosswords/daily-puzzle-2024-09-20.html
+
 **Trump Says That if He Loses, ‘the Jewish People Would Have a Lot to Do’ With It**\
 `Speaking at a campaign event denouncing antisemitism in America, Donald Trump again attacked Jews who vote for Democrats, saying that the party had a “hold, or curse, on you.”`\
 https://nytimes.com/2024/09/19/us/politics/trump-jews-antisemitism-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/19/nyregion/dr-jay-varma-nyc-covid.html
 **Canucks training camp: Thatcher Demko speaks, reading too much into lines and more**\
 `With training camp officially underway, let's break down the major trends, observations and storylines that we saw.`\
 https://nytimes.com/athletic/5780768/2024/09/19/canucks-training-camp-thatcher-demko-injury/
-
-**Kentucky Sheriff Arrested in Shooting Death of Judge**\
-`The police say a sheriff shot District Judge Kevin Mullins inside the courthouse on Thursday afternoon before turning himself in.`\
-https://nytimes.com/2024/09/19/us/sheriff-judge-shooting-kentucky.html
 
