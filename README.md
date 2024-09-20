@@ -1,3 +1,11 @@
+**How Raya built the technique behind his incredible double save**\
+`Raya's amazing double save against Atalanta has been rightly praised - the hard work that produced it was honed on the training pitch`\
+https://nytimes.com/athletic/5781660/2024/09/20/david-raya-double-save-arsenal/
+
+**Pulled Pork Is Party Food**\
+`Genevieve Ko’s saucy and satisfying recipe is also great fuel for a nap on the couch.`\
+https://nytimes.com/2024/09/20/dining/pulled-pork-is-party-food.html
+
 **Getty Apologizes for Fireworks Display Gone Awry**\
 `A planned “explosion event” in Los Angeles by the artist Cai Guo-Qiang left several injured and others shaken.`\
 https://nytimes.com/2024/09/20/arts/design/getty-apologizes-fireworks-cai-guo-qiang.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5781028/2024/09/20/jonathan-greenard-vikings-texans
 **North Carolina NAACP calls on Mark Robinson to drop out of the governor’s race.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/09/20/us/trump-harris-election/north-carolina-naacp-calls-on-mark-robinson-to-drop-out-of-the-governors-race
-
-**Devils, Dawson Mercer agree to 3-year contract extension: Source**\
-`Mercer, picked No. 18 in the 2020 NHL Draft, has 131 points in 246 career games.`\
-https://nytimes.com/athletic/5782096/2024/09/20/devils-dawson-mercer-contract-extension/
-
-**NFL Week 3 injury report: A.J. Brown, Deebo Samuel dealing with tricky lower body injuries**\
-`Greg Scholz runs through the biggest fantasy football injury worries of Week 3, leading off with A.J. Brown's precarious hamstring injury.`\
-https://nytimes.com/athletic/5782045/2024/09/20/nfl-week-3-injury-report-fantasy-football-aj-brown-deebo-samuel/
 
