@@ -1,3 +1,7 @@
+**Nasal Flu Vaccine Is Approved for At-Home Use**\
+`The F.D.A. authorized AstraZeneca’s treatment to be given outside a health care setting, although it will still need a prescription.`\
+https://nytimes.com/2024/09/20/health/nasal-flu-vaccine-is-approved-for-at-home-use.html
+
 **Senators reach agreement to build arena at LeBreton Flats**\
 `The Senators and the NCC had until Friday's deadline to reach a deal before their memorandum of understanding expired.`\
 https://nytimes.com/athletic/5782158/2024/09/20/senators-arena-agreement-lebreton-flats/
