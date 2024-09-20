@@ -1,3 +1,11 @@
+**The Florida group behind an abortion-rights ballot measure to report a record cash haul.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2024/09/20/us/trump-harris-election/the-florida-group-behind-an-abortion-rights-ballot-measure-to-report-a-record-cash-haul
+
+**The best NHL futures and win totals bets for the 2024-25 season**\
+`Despite playoff disappointment, the Maple Leafs should be strong once more while the Canucks' success from last season seems sustainable.`\
+https://nytimes.com/athletic/5745021/2024/09/20/nhl-futures-best-bets-win-totals-ride-the-leafs-oilers-fade-red-wings-blues/
+
 **Anna Teresa de Keersmaeker Apologizes After Bullying Accusations**\
 `Dancers said De Keersmaeker, a “godmother of contemporary dance,” ran her company in a tyrannical style that endangered staff members’ health.`\
 https://nytimes.com/2024/09/20/arts/dance/anne-teresa-de-keersmaeker-bullying.html
