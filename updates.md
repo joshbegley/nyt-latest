@@ -1,3 +1,7 @@
+**Chargers QB Justin Herbert questionable with high ankle sprain**\
+`Herbert did not participate in Friday's practice.`\
+https://nytimes.com/athletic/5782623/2024/09/20/justin-herbert-ankle-sprain-chargers-steelers/
+
 **FIFA to announce Club World Cup venues by end of the month**\
 `FIFA president Gianni Infantino promised global broadcasters in a video call on Friday that venues in the United States for the FIFA Club World Cup next June and July will be announced by the end of September, increasing the pressure on his organisation to finalise negotiations with stadiums and cities across the country within 10 days.`\
 https://nytimes.com/athletic/5782582/2024/09/20/club-world-cup-venues-gianni-infantino/

@@ -1,3 +1,7 @@
+**Chargers QB Justin Herbert questionable with high ankle sprain**\
+`Herbert did not participate in Friday's practice.`\
+https://nytimes.com/athletic/5782623/2024/09/20/justin-herbert-ankle-sprain-chargers-steelers/
+
 **FIFA to announce Club World Cup venues by end of the month**\
 `FIFA president Gianni Infantino promised global broadcasters in a video call on Friday that venues in the United States for the FIFA Club World Cup next June and July will be announced by the end of September, increasing the pressure on his organisation to finalise negotiations with stadiums and cities across the country within 10 days.`\
 https://nytimes.com/athletic/5782582/2024/09/20/club-world-cup-venues-gianni-infantino/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/opinion/economists-conflict-interest-kanter.html
 **Senators reach agreement to build arena at LeBreton Flats**\
 `The Senators and the NCC had until Friday's deadline to reach a deal before their memorandum of understanding expired.`\
 https://nytimes.com/athletic/5782158/2024/09/20/senators-arena-agreement-lebreton-flats/
-
-**Nasal Flu Vaccine Is Approved for At-Home Use**\
-`The F.D.A. authorized AstraZeneca’s treatment to be given outside a health care setting, although it will still need a prescription.`\
-https://nytimes.com/2024/09/20/health/nasal-flu-vaccine-approved.html
 
