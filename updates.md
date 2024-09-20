@@ -1,3 +1,7 @@
+**Newcastle set for late decision on Isak availability**\
+`Eddie Howe says Newcastle United will make a decision on Friday on Alexander Isak&#8217;s availability ahead of Saturday&#8217;s Premier League fixture against Fulham.`\
+https://nytimes.com/athletic/5781570/2024/09/20/alexander-isak-injury-update/
+
 **Newcastle set for late decision on Alexander Isak availability**\
 `Eddie Howe says Newcastle United will make a decision on Friday on Alexander Isak&#8217;s availability ahead of Saturday&#8217;s Premier League fixture against Fulham.`\
 https://nytimes.com/athletic/5781570/2024/09/20/alexander-isak-injury-update/
