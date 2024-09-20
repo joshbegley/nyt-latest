@@ -1,40 +1,40 @@
+**What Nebraska's NCAA-record 400 consecutive sellouts mean to the Huskers and their fans**\
+`“That loyalty, that passion, as I’ve said since day one, is something that we feel humbled by,” coach Matt Rhule said.`\
+https://nytimes.com/athletic/5780871/2024/09/20/nebraska-football-sellouts-record/
+
+**How tough is playing Tennessee and Penn State back to back? Kent State is finding out**\
+`Kent State lost 71-0 last week to No. 6 Tennessee in Neyland Stadium. This week, it's a 49-point underdog at Penn State. `\
+https://nytimes.com/athletic/5781435/2024/09/20/penn-state-kent-state-football-tennessee/
+
+**Montez Sweat's stat line, quick fixes for offense, RB carousel: Bears mailbag, Week 3 picks**\
+`It's another week of questions about how to fix the Bears offense, so we remember other recent "fixes" and make our picks for Sunday.`\
+https://nytimes.com/athletic/5780446/2024/09/20/bears-mailbag-offense-montez-sweat/
+
+**'Just pump the brakes a little bit': Flames veterans wrestle with team's rebuilding reality**\
+`If the Flames endure another season outside the playoffs, questions surrounding older core players will be unavoidable.`\
+https://nytimes.com/athletic/5780177/2024/09/20/flames-kadri-coleman-backlund/
+
 **Harris Outspends Trump in Ad Battle, and Israel Bombards Hezbollah**\
 `Plus, an iconic kitchen brand files for bankruptcy.`\
 https://nytimes.com/2024/09/20/podcasts/harris-trump-spending-hezbollah.html
+
+**Kirill Kaprizov and Mats Zuccarello ready to rekindle high-scoring magic for Wild**\
+`The two best buds hope to rekindle the chemistry they’ve had throughout their time in Minnesota, starting on the same line in training camp.`\
+https://nytimes.com/athletic/5780688/2024/09/20/wild-kirill-kaprizov-mats-zuccarello/
 
 **Six Weeks to Go**\
 `Our colleagues on the politics desk discuss the state of the presidential race.`\
 https://nytimes.com/2024/09/20/podcasts/the-daily/2024-election.html
 
+**Tragedy in the locker room: How 2 teams coped with situation similar to the Blue Jackets**\
+`Members of the 1993 Cleveland Indians and the 2001 Minnesota Vikings describe dealing with grief and loss.`\
+https://nytimes.com/athletic/5774090/2024/09/20/blue-jackets-gaudreau-teammates-indians-vikings/
+
+**Lazerus: Blackhawks need to finally turn the corner before Chicago turns its back**\
+`For the first time in a long time, there’s a lot riding on this Blackhawks season. It’s time for the team to grab Chicago’s attention again.`\
+https://nytimes.com/athletic/5780584/2024/09/20/chicago-blackhawks-season-foligno-bedard/
+
 **Wordle Review No. 1,190**\
 `Scroll down for hints and conversation about the puzzle for September 21, 2024.`\
 https://nytimes.com/2024/09/20/crosswords/wordle-review-1190.html
-
-**The Connections Companion No. 468**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 21, 2024.`\
-https://nytimes.com/2024/09/20/crosswords/connections-companion-468.html
-
-**Ferguson reflects on life as football manager: 'I miss it sometimes'**\
-`Eleven years on from his retirement from the game, Sir Alex Ferguson has admitted he still misses being a football manager.`\
-https://nytimes.com/athletic/5781633/2024/09/20/sir-alex-ferguson-manager-manchester-united/
-
-**Commanders WR Noah Brown, slowed by injuries, won't stop fighting: 'That's all I know'**\
-`The receiver has had a number of setbacks throughout his football career, but his resiliency allows him to keep pushing through. `\
-https://nytimes.com/athletic/5780678/2024/09/20/commanders-noah-brown-injuries/
-
-**AFC North Whiparound: Who is the favorite, who has better chance of rebounding from 0-2?**\
-`Also, what's been the biggest surprise from each team in the division after two weeks? `\
-https://nytimes.com/athletic/5779570/2024/09/20/ravens-bengals-browns-steelers-afc-north-whiparound/
-
-**All England Club set to win approval for Wimbledon expansion**\
-`The All England Club looks set to win its lengthy battle to build 39 new courts on the former Wimbledon Park golf site after the Greater London Authority (GLA) recommended that the project should be approved.`\
-https://nytimes.com/athletic/5781611/2024/09/20/wimbledon-all-england-club-expand/
-
-**Inside the Mets' revival: Grimace, OMG and a turnaround no one saw coming**\
-`They Mets stumbled out of the gate before rebounding behind a steady manager, a dramatic team meeting and a whole lot of fun.`\
-https://nytimes.com/athletic/5778162/2024/09/20/mets-turnaround-omg-analysis/
-
-**Why Derek Carr may have found the right fit in Klint Kubiak's Saints offense**\
-`The veteran QB has learned a lot of new systems under eight different coordinators in his career, but this one is really clicking so far.`\
-https://nytimes.com/athletic/5778489/2024/09/20/derek-carr-saints-offense-klint-kubiak/
 
