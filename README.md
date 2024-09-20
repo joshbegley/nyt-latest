@@ -1,7 +1,3 @@
-**GE Vernova May Cut 900 Offshore Wind Jobs as It Scales Back**\
-`The company, a spinoff from General Electric, has been plagued by financial losses in its wind unit and, more recently, accidents involving the failure of turbine blades.`\
-https://nytimes.com/2024/09/20/business/ge-vernova-offshore-wind-layoffs.html
-
 **Dan Campbell selling his Detroit-area home due to security concerns**\
 `When asked Friday about his safety, Campbell said, "I don't even want to go there with any of it. ... It's all good."`\
 https://nytimes.com/athletic/5782272/2024/09/20/dan-campbell-selling-home-security-concerns/
@@ -10,7 +6,7 @@ https://nytimes.com/athletic/5782272/2024/09/20/dan-campbell-selling-home-securi
 `The vice president, who is visiting the state on Friday, has led Donald Trump there more often than not. Yet nearly everyone in Wisconsin politics believes the race will be incredibly close.`\
 https://nytimes.com/2024/09/20/us/politics/harris-polling-wisconsin.html
 
-**Mets' Luisangel Acuña generates excitement after learning how to relax**\
+**How Luisangel Acuña has impressed while filling in for Francisco Lindor**\
 `Acuña is the first Mets player ever to record a single, double, triple and home run in his first five games with an at-bat.`\
 https://nytimes.com/athletic/5782306/2024/09/20/mets-luisangel-acuna-prospect/
 
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/09/20/us/trump-harris-election/the-florida-group-b
 **The best NHL futures and win totals bets for the 2024-25 season**\
 `Despite playoff disappointment, the Maple Leafs should be strong once more while the Canucks' success from last season seems sustainable.`\
 https://nytimes.com/athletic/5745021/2024/09/20/nhl-futures-best-bets-win-totals-ride-the-leafs-oilers-fade-red-wings-blues/
+
+**Football Parlay Fridays Week 4: How much can we fade Kent State?**\
+`Austin Mock takes another shot at his round-robin parlays with four underdogs and an alternate spread against an historically bad FBS team.`\
+https://nytimes.com/athletic/5782183/2024/09/20/football-parlay-college-football-week-4/
 
