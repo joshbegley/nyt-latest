@@ -1,3 +1,11 @@
+**Under the radar: 11 storylines from around the league that are worth your attention**\
+`Let's dig into some of the less-heralded great — and not-so-great — MLB stories that are worth your attention down the stretch.`\
+https://nytimes.com/athletic/5779874/2024/09/20/under-the-radar-mlb-storylines/
+
+**Don’t Fall Into the ‘Cynicism Trap’**\
+`Expecting the worst from others is actually bad for our health, experts say.`\
+https://nytimes.com/2024/09/20/well/cynicism-trap-health.html
+
 **Commanders WR Noah Brown, slowed by injuries, won't stop fighting: 'That's all I know'**\
 `The receiver has had a number of setbacks throughout his football career, but his resiliency allows him to keep pushing through. `\
 https://nytimes.com/athletic/5780678/2024/09/20/commanders-noah-brown-injuries/
