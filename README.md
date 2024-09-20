@@ -1,3 +1,15 @@
+**Blackhawks camp observations: Connor Bedard ready to take on NHL again after satisfying offseason**\
+`Also, Kyle Davidson provided more specific injury updates for Artyom Levshunov and Laurent Brossoit.`\
+https://nytimes.com/athletic/5782735/2024/09/20/blackhawks-training-camp-connor-bedard/
+
+**Early Voting Begins in Minnesota, South Dakota and Virginia**\
+`All three states began sending out mail ballots on Friday and now give people the option of voting in person.`\
+https://nytimes.com/2024/09/20/us/politics/early-voting-south-dakota-virginia-minnesota.html
+
+**What I'm seeing at Flyers training camp: A scuffle, and Michkov and Frost link up**\
+`John Tortorella said he wasn't surprised when two of his players fought during practice.`\
+https://nytimes.com/athletic/5782763/2024/09/20/flyers-training-camp-michkov/
+
 **Israel Killed a Top Hezbollah Commander in Lebanon**\
 `Plus, a baseball game for the ages`\
 https://nytimes.com/2024/09/20/briefing/israel-hezbollah-georgia-drug-prices-flu-vaccine.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/20/us/cal-fire-sonoma-county-arson.html
 **Israel’s latest military actions align with a long-signaled strategy change on its northern border.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israels-latest-military-actions-fit-a-long-signaled-promise-of-a-new-strategy-on-its-northern-border
-
-**49ers' George Kittle doubtful vs. Rams with hamstring soreness**\
-`Kittle likely would have had a big role Sunday if he was healthy.`\
-https://nytimes.com/athletic/5782761/2024/09/20/george-kittle-injury-update-hamstring-sf-49ers/
-
-**Nelson DeMille, Blockbuster Author Who Thrilled Millions, Dies at 81**\
-`In best seller after best seller, world-weary investigators tackled military malfeasance and Russian spies, cracking jokes and beers to the delight of legions of devoted fans`\
-https://nytimes.com/2024/09/20/books/nelson-demille-dead.html
-
-**Kamala Harris Tells Oprah ‘They’re Getting Shot’ if Somebody Breaks Into Her Home**\
-`The remarkable utterance underscored Democrats’ increasing comfort with the country’s gun culture, and how Harris is trying to use it to puncture notions about female candidates.`\
-https://nytimes.com/2024/09/20/us/politics/kamala-harris-gun-oprah.html
 
