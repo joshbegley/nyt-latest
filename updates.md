@@ -1,3 +1,7 @@
+**The Deserter**\
+`He didn’t want to fight in Putin’s war — he just wanted to survive. But to make it back to his family and live in peace, he would have to run.`\
+https://nytimes.com/interactive/2024/09/20/magazine/ukraine-russia-war-deserter.html
+
 **Airstrike in Lebanon Kills Hezbollah Commander, Israel Says**\
 `The Israeli military carried out an airstrike in Beirut that it said killed several senior Hezbollah officials, including Ibrahim Aqeel, a commander wanted by the United States for his role in bombings in the 1980s that killed hundreds.`\
 https://nytimes.com/video/world/middleeast/100000009709670/lebanon-israeli-airstrike-hezbollah.html
