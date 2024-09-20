@@ -1,3 +1,11 @@
+**‘Transformers One’ | Anatomy of a Scene**\
+`The director Josh Cooley narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000009705881/transformers-one-scene.html
+
+**A Surge in Breast Reductions**\
+`We explore why younger women are undergoing the cosmetic procedure.`\
+https://nytimes.com/2024/09/20/briefing/breast-reduction-gen-z.html
+
 **A North Korean Trash Balloon Hits a Seoul Government Compound, Again**\
 `Debris was found more than a day after the North’s latest balloon launch. South Korea says it’s essentially impossible to track every balloon.`\
 https://nytimes.com/2024/09/20/world/asia/north-korea-trash-balloon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5780177/2024/09/20/flames-kadri-coleman-backlund/
 **Harris Outspends Trump in Ad Battle, and Israel Bombards Hezbollah**\
 `Plus, an iconic kitchen brand files for bankruptcy.`\
 https://nytimes.com/2024/09/20/podcasts/harris-trump-spending-hezbollah.html
-
-**Kirill Kaprizov and Mats Zuccarello ready to rekindle high-scoring magic for Wild**\
-`The two best buds hope to rekindle the chemistry they’ve had throughout their time in Minnesota, starting on the same line in training camp.`\
-https://nytimes.com/athletic/5780688/2024/09/20/wild-kirill-kaprizov-mats-zuccarello/
-
-**Six Weeks to Go**\
-`Our colleagues on the politics desk discuss the state of the presidential race.`\
-https://nytimes.com/2024/09/20/podcasts/the-daily/2024-election.html
 
