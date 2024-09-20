@@ -1,3 +1,19 @@
+**What’s Next for Rate Cuts? The Fed Is Watching Jobs and Prices.**\
+`A Federal Reserve official predicted two more cuts this year if data looked ‘fine’. But he also set out reasons for fewer reductions — or more of them.`\
+https://nytimes.com/2024/09/20/business/economy/whats-next-for-rate-cuts-the-fed-is-watching-jobs-and-prices.html
+
+**Corey LaJoie, Justin Haley swapping NASCAR rides**\
+`The swap will begin at next weekend’s Cup Series race at Kansas Speedway.`\
+https://nytimes.com/athletic/5782496/2024/09/20/nascar-corey-lajoie-justin-haley-ride-swap/
+
+**Marinakis wants to keep Forest at the City Ground**\
+`Nottingham Forest owner Evangelos Marinakis has confirmed his desire to see the club remain at the City Ground.`\
+https://nytimes.com/athletic/5782559/2024/09/20/evangelos-marinakis-city-ground/
+
+**D-3 school in Springfield, Ohio, to resume athletic events**\
+`Schedules will resume, but the school will have additional security measures, including patrols in partnership with law enforcement.`\
+https://nytimes.com/athletic/5782420/2024/09/20/wittenberg-university-athletics-security-resume/
+
 **The Deserter**\
 `He didn’t want to fight in Putin’s war — he just wanted to survive. But to make it back to his family and live in peace, he would have to run.`\
 https://nytimes.com/interactive/2024/09/20/magazine/ukraine-russia-war-deserter.html

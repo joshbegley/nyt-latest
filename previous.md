@@ -1,3 +1,19 @@
+**What’s Next for Rate Cuts? The Fed Is Watching Jobs and Prices.**\
+`A Federal Reserve official predicted two more cuts this year if data looked ‘fine’. But he also set out reasons for fewer reductions — or more of them.`\
+https://nytimes.com/2024/09/20/business/economy/whats-next-for-rate-cuts-the-fed-is-watching-jobs-and-prices.html
+
+**Corey LaJoie, Justin Haley swapping NASCAR rides**\
+`The swap will begin at next weekend’s Cup Series race at Kansas Speedway.`\
+https://nytimes.com/athletic/5782496/2024/09/20/nascar-corey-lajoie-justin-haley-ride-swap/
+
+**Marinakis wants to keep Forest at the City Ground**\
+`Nottingham Forest owner Evangelos Marinakis has confirmed his desire to see the club remain at the City Ground.`\
+https://nytimes.com/athletic/5782559/2024/09/20/evangelos-marinakis-city-ground/
+
+**D-3 school in Springfield, Ohio, to resume athletic events**\
+`Schedules will resume, but the school will have additional security measures, including patrols in partnership with law enforcement.`\
+https://nytimes.com/athletic/5782420/2024/09/20/wittenberg-university-athletics-security-resume/
+
 **The Deserter**\
 `He didn’t want to fight in Putin’s war — he just wanted to survive. But to make it back to his family and live in peace, he would have to run.`\
 https://nytimes.com/interactive/2024/09/20/magazine/ukraine-russia-war-deserter.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/20/us/politics/democrats-mark-robinson-north-carolin
 **‘The Penguin’ Review: The Dark Blight**\
 `The HBO series starring an unrecognizable Colin Farrell is further proof that there is no fun in the Batman universe.`\
 https://nytimes.com/2024/09/20/arts/television/the-penguin-review.html
-
-**Courting Dark Emotions in ‘See What I Wanna See’ and a Celine Song Play**\
-`Revivals of a Michael John LaChiusa musical and an early work by the “Past Lives” filmmaker toy with and challenge audience expectations.`\
-https://nytimes.com/2024/09/20/theater/see-what-i-wanna-see-celine-song-review.html
-
-**The Netherlands Returns Hundreds of Cultural Artifacts to Indonesia**\
-`The repatriation, the second of its kind by the Dutch, shows a working model for returning looted treasures from Europe to former colonies around the world.`\
-https://nytimes.com/2024/09/20/world/europe/netherlands-indonesia-artifacts.html
-
-**A G.O.P.-Linked Group’s Contradictory Ads Cast Harris as Friend and Foe of Israel**\
-`The Future Coalition PAC is targeting voters in Pennsylvania and Michigan, both swing states, with contradictory messages about the vice president’s level of support for Israel.`\
-https://nytimes.com/2024/09/20/us/politics/trump-harris-israel-gaza-war.html
-
-**Read the Summary of the Secret Service’s Internal Review**\
-`The agency released a brief summary of its monthslong inquiry into the failures leading to the attempted assassination of former President Donald J. Trump in July. The complete report is not yet finished.`\
-https://nytimes.com/interactive/2024/09/20/us/politics/usss-mission-assurance-summaryfinal.html
 
