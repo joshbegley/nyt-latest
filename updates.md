@@ -1,3 +1,7 @@
+**Giannis in the dunker spot, small-ball unit, long-range duo: 5 intriguing Bucks lineups**\
+`We propose unique bench units that could help get the Bucks through the season and, in some cases, prepare them for the postseason.`\
+https://nytimes.com/athletic/5775620/2024/09/20/bucks-5-intriguing-lineups/
+
 **Here’s the latest on the 2024 race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/20/us/trump-harris-election/heres-the-latest-on-the-2024-race
