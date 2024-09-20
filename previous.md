@@ -1,3 +1,7 @@
+**Israel Killed a Top Hezbollah Commander in Lebanon**\
+`Plus, a baseball game for the ages`\
+https://nytimes.com/2024/09/20/briefing/israel-hezbollah-georgia-drug-prices-flu-vaccine.html
+
 **Timeline: What Donald Trump Has Said About Mark Robinson**\
 `The former president was an early backer of Mr. Robinson’s bid to become governor of North Carolina, a race that was jolted when CNN reported that Mr. Robinson had made disturbing posts online.`\
 https://nytimes.com/2024/09/20/us/politics/trump-mark-robinson-relationship.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/books/nelson-demille-dead.html
 **Kamala Harris Tells Oprah ‘They’re Getting Shot’ if Somebody Breaks Into Her Home**\
 `The remarkable utterance underscored Democrats’ increasing comfort with the country’s gun culture, and how Harris is trying to use it to puncture notions about female candidates.`\
 https://nytimes.com/2024/09/20/us/politics/kamala-harris-gun-oprah.html
-
-**Harris Slams G.O.P. Abortion Bans as a Painful ‘Health Care Crisis’**\
-`“Donald Trump is the architect of this crisis,” Kamala Harris said in Georgia, where reporting this week found that the deaths of two women were a result of delayed treatment for medication abortions.`\
-https://nytimes.com/2024/09/20/us/politics/harris-gop-abortion-bans-health-care-crisis.html
 

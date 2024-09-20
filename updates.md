@@ -1,3 +1,7 @@
+**Israel Killed a Top Hezbollah Commander in Lebanon**\
+`Plus, a baseball game for the ages`\
+https://nytimes.com/2024/09/20/briefing/israel-hezbollah-georgia-drug-prices-flu-vaccine.html
+
 **Timeline: What Donald Trump Has Said About Mark Robinson**\
 `The former president was an early backer of Mr. Robinson’s bid to become governor of North Carolina, a race that was jolted when CNN reported that Mr. Robinson had made disturbing posts online.`\
 https://nytimes.com/2024/09/20/us/politics/trump-mark-robinson-relationship.html
