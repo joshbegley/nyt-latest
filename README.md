@@ -1,3 +1,19 @@
+**Friday Briefing: Israel Bombarded Hezbollah**\
+`Plus, a bright new kid-lit author`\
+https://nytimes.com/2024/09/20/briefing/friday-briefing-israel-bombarded-hezbollah.html
+
+**Diana Taurasi hints at retirement after finale: 'I love you guys'**\
+`Taurasi played 18 minutes Thursday as the Mercury lost 89-70 to the Storm, where she scored nine points, two assists and one rebound.`\
+https://nytimes.com/athletic/5781439/2024/09/20/diana-taurasi-phoenix-mercury-retirement/
+
+**Dictators Die, but Their Legacies Live on Much Longer**\
+`Fujimori’s authoritarian streak lives on in Peru, even in those who claim to be against the former leader’s political movement.`\
+https://nytimes.com/2024/09/20/opinion/fujimori-peru-dictator-authoritarian.html
+
+**Aaron Rodgers on Saleh shove: Jets coach 'not a big hugger'**\
+`"I didn't know he was going for the hug, he likes to do the two-hand chest push as well," Rodgers said.`\
+https://nytimes.com/athletic/5781392/2024/09/20/aaron-rodgers-robert-saleh-shove/
+
 **Harris Hits Core Campaign Themes in Emotional Forum With Oprah Winfrey**\
 `Vice President Kamala Harris spoke off the cuff, as guests included a teenager shot at her school and the family of a woman in Georgia who died as a result of the state’s abortion ban.`\
 https://nytimes.com/2024/09/20/us/politics/kamala-harris-oprah-winfrey-event.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5775283/2024/09/20/crystal-palace-counter-glasner-d
 **Olivia Nuzzi, New York Magazine Writer, Put on Leave Over R.F.K. Jr. Relationship**\
 `Ms. Nuzzi told her editors about the relationship that had turned personal, the outlet said. A representative for Mr. Kennedy said the pair had met only once.`\
 https://nytimes.com/2024/09/20/business/media/olivia-nuzzi-rfk-jr.html
-
-**Tony Bloom is in talks to invest £10m in Hearts - what would that mean for Brighton?**\
-`Brighton & Hove Albion's owner-chairman is in negotiations about a £10million investment in the Scottish Premiership club`\
-https://nytimes.com/athletic/5773422/2024/09/20/tony-bloom-brighton-hearts/
-
-**West Ham have a forwards problem again. Shock. Surprise. Amazement. (Not)**\
-`Did West Ham need another striker this summer, or will a forward line of Antonio, Fullkrug and Ings come good?`\
-https://nytimes.com/athletic/5773635/2024/09/20/west-ham-forwards-antonio-fullkrug-ings/
-
-**Confidence. Trust. Details: How Nuno is transforming Nottingham Forest**\
-`Yes, it's only four games, but Nottingham Forest look so much better`\
-https://nytimes.com/athletic/5778895/2024/09/20/why-nottingham-forest-look-good/
-
-**Cooper's fighting talk is part of Leicester's new combative off-field approach**\
-`Leicester have shown a more aggressive approach to dealing with authority over the past 12 months and Cooper is continuing in the same vein`\
-https://nytimes.com/athletic/5779124/2024/09/20/leicester-city-cooper-premier-league/
 
