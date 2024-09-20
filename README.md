@@ -1,3 +1,7 @@
+**GE Vernova May Cut 900 Offshore Wind Jobs as It Scales Back**\
+`The company, a spinoff from General Electric, has been plagued by financial losses in its wind unit and, more recently, accidents involving the failure of turbine blades.`\
+https://nytimes.com/2024/09/20/business/ge-vernova-offshore-wind-layoffs.html
+
 **Dan Campbell selling his Detroit-area home due to security concerns**\
 `When asked Friday about his safety, Campbell said, "I don't even want to go there with any of it. ... It's all good."`\
 https://nytimes.com/athletic/5782272/2024/09/20/dan-campbell-selling-home-security-concerns/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/20/us/trump-harris-election/the-florida-group-b
 **The best NHL futures and win totals bets for the 2024-25 season**\
 `Despite playoff disappointment, the Maple Leafs should be strong once more while the Canucks' success from last season seems sustainable.`\
 https://nytimes.com/athletic/5745021/2024/09/20/nhl-futures-best-bets-win-totals-ride-the-leafs-oilers-fade-red-wings-blues/
-
-**Football Parlay Fridays Week 4: How much can we fade Kent State?**\
-`Austin Mock takes another shot at his round-robin parlays with four underdogs and an alternate spread against an historically bad FBS team.`\
-https://nytimes.com/athletic/5782183/2024/09/20/football-parlay-college-football-week-4/
 
