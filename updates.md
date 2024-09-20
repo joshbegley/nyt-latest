@@ -1,3 +1,15 @@
+**Anna Teresa de Keersmaeker Apologizes After Bullying Accusations**\
+`Dancers said De Keersmaeker, a “godmother of contemporary dance,” ran her company in a tyrannical style that endangered staff members’ health.`\
+https://nytimes.com/2024/09/20/arts/dance/anne-teresa-de-keersmaeker-bullying.html
+
+**Harris Praises Taylor Swift’s ‘Courage’ After Endorsement**\
+`Kamala Harris noted, however, that she still won’t be rooting for the Kansas City Chiefs: “I am a 49ers fan, but who’s mad at anyone for being loyal to their team, right?”`\
+https://nytimes.com/2024/09/20/us/politics/taylor-swift-harris-endorsement.html
+
+**GE Vernova May Cut 900 Offshore Wind Jobs as It Scales Back**\
+`The company, a spinoff from General Electric, has been plagued by financial losses in its wind unit and, more recently, accidents involving the failure of turbine blades.`\
+https://nytimes.com/2024/09/20/business/ge-vernova-offshore-wind-layoffs.html
+
 **Dan Campbell selling his Detroit-area home due to security concerns**\
 `When asked Friday about his safety, Campbell said, "I don't even want to go there with any of it. ... It's all good."`\
 https://nytimes.com/athletic/5782272/2024/09/20/dan-campbell-selling-home-security-concerns/
