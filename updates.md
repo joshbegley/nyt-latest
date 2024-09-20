@@ -1,3 +1,19 @@
+**Harris Outspends Trump in Ad Battle, and Israel Bombards Hezbollah**\
+`Plus, an iconic kitchen brand files for bankruptcy.`\
+https://nytimes.com/2024/09/20/podcasts/harris-trump-spending-hezbollah.html
+
+**Six Weeks to Go**\
+`Our colleagues on the politics desk discuss the state of the presidential race.`\
+https://nytimes.com/2024/09/20/podcasts/the-daily/2024-election.html
+
+**Wordle Review No. 1,190**\
+`Scroll down for hints and conversation about the puzzle for September 21, 2024.`\
+https://nytimes.com/2024/09/20/crosswords/wordle-review-1190.html
+
+**The Connections Companion No. 468**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 21, 2024.`\
+https://nytimes.com/2024/09/20/crosswords/connections-companion-468.html
+
 **Ferguson reflects on life as football manager: 'I miss it sometimes'**\
 `Eleven years on from his retirement from the game, Sir Alex Ferguson has admitted he still misses being a football manager.`\
 https://nytimes.com/athletic/5781633/2024/09/20/sir-alex-ferguson-manager-manchester-united/

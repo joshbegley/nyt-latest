@@ -1,3 +1,19 @@
+**Harris Outspends Trump in Ad Battle, and Israel Bombards Hezbollah**\
+`Plus, an iconic kitchen brand files for bankruptcy.`\
+https://nytimes.com/2024/09/20/podcasts/harris-trump-spending-hezbollah.html
+
+**Six Weeks to Go**\
+`Our colleagues on the politics desk discuss the state of the presidential race.`\
+https://nytimes.com/2024/09/20/podcasts/the-daily/2024-election.html
+
+**Wordle Review No. 1,190**\
+`Scroll down for hints and conversation about the puzzle for September 21, 2024.`\
+https://nytimes.com/2024/09/20/crosswords/wordle-review-1190.html
+
+**The Connections Companion No. 468**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 21, 2024.`\
+https://nytimes.com/2024/09/20/crosswords/connections-companion-468.html
+
 **Ferguson reflects on life as football manager: 'I miss it sometimes'**\
 `Eleven years on from his retirement from the game, Sir Alex Ferguson has admitted he still misses being a football manager.`\
 https://nytimes.com/athletic/5781633/2024/09/20/sir-alex-ferguson-manager-manchester-united/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5778162/2024/09/20/mets-turnaround-omg-analysis/
 **Why Derek Carr may have found the right fit in Klint Kubiak's Saints offense**\
 `The veteran QB has learned a lot of new systems under eight different coordinators in his career, but this one is really clicking so far.`\
 https://nytimes.com/athletic/5778489/2024/09/20/derek-carr-saints-offense-klint-kubiak/
-
-**Liverpool's Alisson a fitness doubt for Bournemouth match**\
-`Liverpool goalkeeper Alisson is a fitness doubt for Saturday’s Premier League match with Bournemouth an Anfield.`\
-https://nytimes.com/athletic/5781603/2024/09/20/alisson-injury-liverpool-bournemouth/
-
-**Here are the latest developments.**\
-`By Liam Stack and Euan Ward`\
-https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
-
-**Brighton to make late call on Joao Pedro for Forest clash**\
-`Brighton will make a late decision on the availability of Joao Pedro for Sunday’s Premier League home game against Nottingham Forest.`\
-https://nytimes.com/athletic/5781618/2024/09/20/joao-pedro-brighton-nottingham-forest/
-
-**An 'alien' is coming to Atlanta: Falcons admit Mahomes Week is different**\
-`Patrick Mahomes and the Chiefs visit the Falcons for "Sunday Night Football." Atlanta won't pretend that Mahomes is just another player.`\
-https://nytimes.com/athletic/5779399/2024/09/20/patrick-mahomes-kc-chiefs-atlanta-falcons/
 
