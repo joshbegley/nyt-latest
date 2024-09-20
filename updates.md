@@ -1,3 +1,15 @@
+**These Voters Don’t Want to Commit to Trump or Harris. Here’s Why.**\
+`Those still weighing their options are more likely  to be young, Black or Latino — and struggling. Many see their choice as the “lesser of two evils.”`\
+https://nytimes.com/2024/09/20/us/politics/undecided-voters-2024-election.html
+
+**Man the U.S. Says Financed Hezbollah Admits Trying to Evade Sanctions**\
+`Mohammad Ibrahim Bazzi pleaded guilty in Brooklyn federal court to conspiring to violate Treasury Department prohibitions.`\
+https://nytimes.com/2024/09/20/nyregion/mohammad-ibrahim-bazzi-hezbollah-funding-restaurants.html
+
+**Environmentalists Fear Subsidies for Carbon Capture Won’t Be Checked**\
+`Some activists are questioning whether the federal government can accurately verify a tax program for facilities that store planet-warming gases.`\
+https://nytimes.com/2024/09/20/us/politics/carbon-capture-irs-subsidies.html
+
 **How Trump Tried to Prosecute His Rivals**\
 `Michael S. Schmidt, a New York Times investigative reporter, explains how Donald Trump used his power as president to intimidate and punish his rivals. Now, in the final weeks of his presidential campaign, Trump has ramped up promises to exact retribution if he returns to the White House.`\
 https://nytimes.com/video/us/politics/100000009671461/how-trump-tried-to-prosecute-his-rivals.html
