@@ -1,3 +1,15 @@
+**Wolves's Traore out until Christmas after knee surgery**\
+`Wolverhampton Wanderers midfielder Boubabcar Traore will be sidelined until Christmas following surgery to repair a knee injury.`\
+https://nytimes.com/athletic/5781838/2024/09/20/boubacar-traore-wolves-injury/
+
+**49ers vs. Rams: How Fred Warner became a master in the way of the fist**\
+`For the first time since 2013, the 49ers will face a Rams defense that doesn't have Aaron Donald, a vast departure for them.`\
+https://nytimes.com/athletic/5779784/2024/09/20/49ers-rams-fred-warner-takeaways/
+
+**Sophie Died in 2021. The Album She Left Behind Is Now Complete.**\
+`“Sophie,” a new LP by the visionary hyperpop producer, traces an arc from introspection to pop pleasures to thoughts of eternity. It will be her final release.`\
+https://nytimes.com/2024/09/20/arts/music/sophie-posthumous-album.html
+
 **Why Nike Just Did It**\
 `Investors are hoping that replacing John Donahoe as chief executive will lift its stock price and restore the brand’s cool factor.`\
 https://nytimes.com/2024/09/20/business/dealbook/nike-ceo-donahoe.html
