@@ -1,3 +1,11 @@
+**A Look Ahead at Autumn’s Big Books**\
+`The season’s most anticipated titles include new fiction from Sally Rooney, Richard Powers, Jean Hanff Korelitz and more, plus celebrity memoirs by Al Pacino, Cher and Ina Garten.`\
+https://nytimes.com/2024/09/20/books/review/podcast-fall-books-preview.html
+
+**Report Details Secret Service Failures Before Trump Assassination Attempt**\
+`The Secret Service’s internal review revealed that they did not adequately prepare its local partners for the July 13 event that led to former President Donald Trump’s assassination attempt.`\
+https://nytimes.com/video/us/elections/100000009709641/secret-service-communication-failures.html
+
 **For Economists, Defending Big Business Can Be Big Business**\
 `The Justice Department’s antitrust chief thinks conflicts of interest are degrading scholarship.`\
 https://nytimes.com/2024/09/20/opinion/economists-conflict-interest-kanter.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/20/style/liv-schmidt-tiktok.html
 **What’s Next for Rate Cuts? The Fed Is Watching Jobs and Prices.**\
 `A Federal Reserve official predicted quarter point rate cuts if data looked ‘fine’. But he also set out a scenario for a pause — or faster reductions.`\
 https://nytimes.com/2024/09/20/business/economy/fed-rate-cuts-jobs-inflation.html
-
-**Corey LaJoie, Justin Haley swapping NASCAR rides**\
-`The swap will begin at next weekend’s Cup Series race at Kansas Speedway.`\
-https://nytimes.com/athletic/5782496/2024/09/20/nascar-corey-lajoie-justin-haley-ride-swap/
-
-**Marinakis wants to keep Forest at the City Ground**\
-`Nottingham Forest owner Evangelos Marinakis has confirmed his desire to see the club remain at the City Ground.`\
-https://nytimes.com/athletic/5782559/2024/09/20/evangelos-marinakis-city-ground/
 
