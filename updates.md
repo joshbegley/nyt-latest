@@ -1,3 +1,11 @@
+**Fantasy football flex fliers: Jauan Jennings, Noah Brown and more deep sleepers to consider in Week 3**\
+`Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 3 off waivers.`\
+https://nytimes.com/athletic/5782210/2024/09/20/fantasy-football-week-2-flex-sleepers-jauan-jennings-noah-brown/
+
+**The Windup: Last night, the greatest game ever?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5782282/2024/09/20/shohei-ohtani-game-stats-the-windup/
+
 **Review: Blood, Sex, Murder and Dance (No Screams)**\
 `Marikiscrycrycry examines fresh territory in “Goner,” but his ideas remain theatrically inert.`\
 https://nytimes.com/2024/09/20/arts/dance/review-goner-marikiscrycrycry-abrons.html
