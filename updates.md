@@ -1,3 +1,7 @@
+**‘Forbidden Broadway’ Review: Let Them Somewhat Entertain You**\
+`From its perch way Off Broadway, the long-running satire slings its affectionate arrows at Patti, Audra and the rest.`\
+https://nytimes.com/2024/09/19/theater/forbidden-broadway-review.html
+
 **‘We should be trying to build 90-win teams here’: Cubs skipper sees ‘big gap’ to close against former club**\
 `The Cubs’ first-year manager might have been at his most animated all season in throwing down a challenge to the entire organization.`\
 https://nytimes.com/athletic/5780975/2024/09/19/craig-counsell-cubs-brewers-gap/
