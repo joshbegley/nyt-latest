@@ -1,3 +1,7 @@
+**Can men's pro golf work with PGA Tour, LIV still divided?**\
+`Brody Miller takes readers' questions on the future of golf, 2024 major winners and the chances of seeing a LIV fan in the wild.`\
+https://nytimes.com/athletic/5780263/2024/09/20/golf-pga-tour-liv-deal/
+
 **Wolves's Traore out until Christmas after knee surgery**\
 `Wolverhampton Wanderers midfielder Boubabcar Traore will be sidelined until Christmas following surgery to repair a knee injury.`\
 https://nytimes.com/athletic/5781838/2024/09/20/boubacar-traore-wolves-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/world/middleeast/gaza-cease-fire-talks-hezbollah-
 **Simeone on new Champions League format: 'It forces us to win'**\
 `Atletico Madrid manager Diego Simeone says the new Champions League format &#8220;forces us to win&#8221;.`\
 https://nytimes.com/athletic/5781714/2024/09/20/diego-simeone-atletico-madrid-champions-league/
-
-**The Pulse: Holy s--, Shohei**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5779509/2024/09/20/shohei-ohtani-record-the-pulse/
 
