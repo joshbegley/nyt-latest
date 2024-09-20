@@ -1,6 +1,10 @@
+**Anna Teresa de Keersmaeker Apologizes After Bullying Accusations**\
+`Dancers said De Keersmaeker, a “godmother of contemporary dance,” ran her company in a tyrannical style that endangered staff members’ health.`\
+https://nytimes.com/2024/09/20/arts/dance/anne-teresa-de-keersmaeker-bullying.html
+
 **Harris Praises Taylor Swift’s ‘Courage’ After Endorsement**\
 `Kamala Harris noted, however, that she still won’t be rooting for the Kansas City Chiefs: “I am a 49ers fan, but who’s mad at anyone for being loyal to their team, right?”`\
-https://nytimes.com/live/2024/09/20/us/trump-harris-election/taylor-swift-harris-endorsement
+https://nytimes.com/2024/09/20/us/politics/taylor-swift-harris-endorsement.html
 
 **GE Vernova May Cut 900 Offshore Wind Jobs as It Scales Back**\
 `The company, a spinoff from General Electric, has been plagued by financial losses in its wind unit and, more recently, accidents involving the failure of turbine blades.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5782338/2024/09/20/ollie-watkins-fitness-aston-vill
 **Autographed Caitlin Clark trading card sells for record $84,000**\
 `A one-of-a-kind autographed Caitlin Clark WNBA Draft card sold at auction for $84,000 on Thursday night, breaking the record for the most expensive women&#8217;s basketball card ever.`\
 https://nytimes.com/athletic/5782026/2024/09/20/caitlin-clark-card-record-sale/
-
-**The Florida group behind an abortion-rights ballot measure to report a record cash haul.**\
-`By Patricia Mazzei`\
-https://nytimes.com/live/2024/09/20/us/trump-harris-election/the-florida-group-behind-an-abortion-rights-ballot-measure-to-report-a-record-cash-haul
 
