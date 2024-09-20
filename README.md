@@ -1,3 +1,19 @@
+**Next week’s waiver wire: Cam Akers, Jalen Tolbert and more players to add now — before the Week 4 rush**\
+`John Laghezza points you towards to his top expected future waiver wire plays, which has his eyes focused on the state of Texas.`\
+https://nytimes.com/athletic/5779182/2024/09/20/week-4-fantasy-football-early-waiver-cam-akers-jalen-tolbert/
+
+**Ratcliffe comments, high-profile exits and a wall - Manchester United Women's turbulent summer**\
+`High-profile exists, training-ground issues and unease over the co-owner's comments — it has been a difficult summer at Manchester United`\
+https://nytimes.com/athletic/5778831/2024/09/20/manchester-united-women-summer/
+
+**Marcus Rashford's form: Why it disappeared and the signs it's coming back**\
+`Why confidence, positioning, decision-making and the availability of Luke Shaw all influence Rashford's performance on the pitch`\
+https://nytimes.com/athletic/5778667/2024/09/20/marcus-rashford-form-manchester-united/
+
+**Row Z: Ronaldo vs Messi gets serious - and maybe referees just aren't very good?**\
+`Tim Spiers' weekly look at the lighter side of football, featuring an old rivalry and the same old Chelsea`\
+https://nytimes.com/athletic/5778852/2024/09/20/cristiano-ronaldo-lionel-messi-rivalry-saudi/
+
 **The coach who walked away from Manchester City - an interview with Brian Barry-Murphy**\
 `Brian Barry-Murphy, who observed Pep Guardiola at close quarters over three years, talks footballing philosophy and what he has learned`\
 https://nytimes.com/athletic/5776122/2024/09/20/manchester-city-brian-barry-murphy-interview/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/20/style/modern-love-crave-him-not-have-him.html
 **A Hollywood Actress Finds a Farm, and Her Leading Man in the Midwest**\
 `Torrey DeVitto, whose father was Billy Joel’s drummer and mother is Stevie Nicks’s best friend, is a famous actress in her own right. She found love with Jared LaPine in Kalamazoo, Mich.`\
 https://nytimes.com/2024/09/20/style/torrey-devitto-jared-lapine-wedding.html
-
-**When a Morning Person and a Night Person Fall in Love**\
-`Despite differing schedules, Kelly Downey and Gregory Harrington, a celebrated violinist, found a way to make things work.`\
-https://nytimes.com/2024/09/20/style/kelly-downey-gregory-harrington-wedding.html
-
-**Aaron Rodgers drives Jets to 24-3 win over Patriots: Takeaways**\
-`Rodgers, who missed all of last season with a torn Achilles, flashed the mobility and accuracy that helped him win four MVP awards Thursday.`\
-https://nytimes.com/athletic/5781329/2024/09/19/jets-patriots-score-takeaways-thursday-night-football/
-
-**Trump Presses for More Support From Jewish Voters**\
-`At a campaign event aimed to denounce antisemitism in America, Trump said he believed that “Israel will be wiped off the face of the Earth” if he doesn’t win.`\
-https://nytimes.com/video/us/elections/100000009708037/trump-jewish-voters-washington.html
-
-**Phillies stuck with Taijuan Walker. His nightmare season spawned new embarrassment**\
-`Teams need someone as a mop-up man to save others from throwing. Walker couldn't even do that in Thursday's loss.`\
-https://nytimes.com/athletic/5781315/2024/09/19/phillies-taijuan-walker-failure-mets/
 
