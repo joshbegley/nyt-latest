@@ -1,3 +1,7 @@
+**Who are NASCAR's best young drivers? Here's our list of the top 10 prospects**\
+`We polled several in the NASCAR industry to find a list of the names they're most excited about. Here are our top 10 under-25 prospects.`\
+https://nytimes.com/athletic/5780806/2024/09/20/nascar-prospects-connor-zilisch-corey-day/
+
 **Sharks training camp: 5 big questions they must answer**\
 `Can Logan Couture get past his injury issues? Is Macklin Celebrini already the No. 1 center?`\
 https://nytimes.com/athletic/5781505/2024/09/20/sharks-training-camp-questions-storylines/

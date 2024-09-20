@@ -1,3 +1,7 @@
+**Who are NASCAR's best young drivers? Here's our list of the top 10 prospects**\
+`We polled several in the NASCAR industry to find a list of the names they're most excited about. Here are our top 10 under-25 prospects.`\
+https://nytimes.com/athletic/5780806/2024/09/20/nascar-prospects-connor-zilisch-corey-day/
+
 **Sharks training camp: 5 big questions they must answer**\
 `Can Logan Couture get past his injury issues? Is Macklin Celebrini already the No. 1 center?`\
 https://nytimes.com/athletic/5781505/2024/09/20/sharks-training-camp-questions-storylines/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781928/2024/09/20/mohamed-al-fayed-fulham-investig
 **Trump’s Impulse After Robinson Bombshell Report: Ignore, and Power Through**\
 `CNN’s article scrambled G.O.P. plans for winning North Carolina. People close to Donald Trump are holding out hope Lt. Gov. Mark Robinson will decide to quit the governor’s race.`\
 https://nytimes.com/2024/09/20/us/politics/trump-mark-robinson.html
-
-**Mohamed al-Fayed ‘Was a Monster Enabled by a System,’ Lawyers Say**\
-`Attorneys for 37 women said they would sue Harrods, the luxury department store, over the rape and sexual assault they say its former owner committed.`\
-https://nytimes.com/2024/09/20/world/europe/mohamed-al-fayed-harrods.html
 
