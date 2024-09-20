@@ -1,3 +1,7 @@
+**Harris Joins Oprah at Michigan Campaign Event**\
+`The vice president answered questions from the audience, detailing her position on issues like immigration and gun control.`\
+https://nytimes.com/video/us/elections/100000009708213/kamala-harris-oprah-winfrey-detroit.html
+
 **Friday Briefing: Israel Bombarded Hezbollah**\
 `Plus, a bright new kid-lit author`\
 https://nytimes.com/2024/09/20/briefing/friday-briefing-israel-bombarded-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5778881/2024/09/20/everton-dyche-injuries-branthwai
 **Palace and the counter-attack: Why do they look so vulnerable?**\
 `Palace have chopped and changed their back line, though it may be a lack of control in midfield that is contributing to their fragility`\
 https://nytimes.com/athletic/5775283/2024/09/20/crystal-palace-counter-glasner-defence-vulnerability/
-
-**Olivia Nuzzi, New York Magazine Writer, Put on Leave Over R.F.K. Jr. Relationship**\
-`Ms. Nuzzi told her editors about the relationship that had turned personal, the outlet said. A representative for Mr. Kennedy said the pair had met only once.`\
-https://nytimes.com/2024/09/20/business/media/olivia-nuzzi-rfk-jr.html
 
