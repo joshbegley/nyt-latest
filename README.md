@@ -1,3 +1,7 @@
+**Qualcomm Asked Chip Rival Intel if It Would Consider a Sale**\
+`While Intel has struggled in recent years, other chipmakers are thriving because of a boom in demand.`\
+https://nytimes.com/2024/09/20/technology/qualcomm-intel-talks-sale.html
+
 **Canadiens training camp: Patience with Dach and Laine, Roy picks up where he left off**\
 `Kirby Dach has some good perspective on his own importance to the Canadiens' success and the roadblocks he has had in his career so far.`\
 https://nytimes.com/athletic/5782928/2024/09/20/canadiens-dach-laine-roy/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/iraqi-arme
 **As Cubs approach another long offseason, Cody Bellinger hasn’t made contract decision**\
 `The Cubs might be fine with Bellinger staying or leaving, considering their internal options and the value he brings as a two-way player.`\
 https://nytimes.com/athletic/5782825/2024/09/20/cubs-cody-bellinger-contract/
-
-**Michel Siffre, 85, Dies; Descended Into Caves to Study the Human Mind**\
-`He was a pioneer in chronobiology, the study of how our bodies understand the passage of time.`\
-https://nytimes.com/2024/09/20/science/michel-siffre-dead.html
 
