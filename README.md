@@ -1,3 +1,15 @@
+**These Voters Don’t Want to Commit to Trump or Harris. Here’s Why.**\
+`Those still weighing their options are more likely  to be young, Black or Latino — and struggling. Many see their choice as the “lesser of two evils.”`\
+https://nytimes.com/2024/09/20/us/politics/undecided-voters-2024-election.html
+
+**Man the U.S. Says Financed Hezbollah Admits Trying to Evade Sanctions**\
+`Mohammad Ibrahim Bazzi pleaded guilty in Brooklyn federal court to conspiring to violate Treasury Department prohibitions.`\
+https://nytimes.com/2024/09/20/nyregion/mohammad-ibrahim-bazzi-hezbollah-funding-restaurants.html
+
+**Environmentalists Fear Subsidies for Carbon Capture Won’t Be Checked**\
+`Some activists are questioning whether the federal government can accurately verify a tax program for facilities that store planet-warming gases.`\
+https://nytimes.com/2024/09/20/us/politics/carbon-capture-irs-subsidies.html
+
 **How Trump Tried to Prosecute His Rivals**\
 `Michael S. Schmidt, a New York Times investigative reporter, explains how Donald Trump used his power as president to intimidate and punish his rivals. Now, in the final weeks of his presidential campaign, Trump has ramped up promises to exact retribution if he returns to the White House.`\
 https://nytimes.com/video/us/politics/100000009671461/how-trump-tried-to-prosecute-his-rivals.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/hezbollah-
 **Overlooked No More: Ellen Armstrong, ‘Marvelous, Mystifying’ Magician of Mirth**\
 `Carrying on a family tradition, she brought her singular act, full of illusion and humor, to Black audiences in the segregated South and on up to Philadelphia.`\
 https://nytimes.com/2024/09/20/obituaries/ellen-armstrong-overlooked.html
-
-**A New Power Grab in Georgia Could Create a Chaotic Election Night**\
-`It’s an example of why elections should be run by nonpartisan administrators.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/georgia-election-board-nonpartisan
-
-**Remembering Toto Schillaci, Who Helped Usher Us Into the Future**\
-`For one month in 1990, Schillaci was the most beloved player in Italy, and one of the most famous players in the world.`\
-https://nytimes.com/2024/09/20/world/europe/toto-schillaci-italy.html
-
-**A Look Ahead at Autumn’s Big Books**\
-`The season’s most anticipated titles include new fiction from Sally Rooney, Richard Powers, Jean Hanff Korelitz and more, plus celebrity memoirs by Al Pacino, Cher and Ina Garten.`\
-https://nytimes.com/2024/09/20/books/review/podcast-fall-books-preview.html
 
