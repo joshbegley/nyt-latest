@@ -1,3 +1,7 @@
+**What Foods Should I Have on Hand for an Emergency? And Other Disaster-Related Questions, Answered**\
+`Plan for the future for peace of mind on the other side.`\
+https://nytimes.com/2024/09/20/dining/how-to-prepare-emergency-food.html
+
 **Fantasy football flex fliers: Jauan Jennings, Noah Brown and more deep sleepers to consider in Week 3**\
 `Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 3 off waivers.`\
 https://nytimes.com/athletic/5782210/2024/09/20/fantasy-football-week-2-flex-sleepers-jauan-jennings-noah-brown/
