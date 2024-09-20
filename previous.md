@@ -1,3 +1,7 @@
+**Odobert set for spell out with hamstring injury, Bissouma in contention to return**\
+`Tottenham Hotspur head coach Ange Postecoglou says Wilson Odobert is set for a spell on the sidelines after sustaining a hamstring injury during Wednesday&#8217;s victory over Coventry City.`\
+https://nytimes.com/athletic/5781889/2024/09/20/wilson-odobert-injury-update/
+
 **Verstappen ordered to complete public interest work for inappropriate language**\
 `Max Verstappen has been ordered to complete work of public interest after using inappropriate language during the FIA Thursday driver press conference ahead of the Formula One Singapore Grand Prix.`\
 https://nytimes.com/athletic/5781828/2024/09/20/max-verstappen-singapore-grand-prix-language/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/world/asia/china-japan-seafood-ban-fukushima.html
 **Giannis in the dunker spot, small-ball unit, long-range duo: 5 intriguing Bucks lineups**\
 `We propose unique bench units that could help get the Bucks through the season and, in some cases, prepare them for the postseason.`\
 https://nytimes.com/athletic/5775620/2024/09/20/bucks-5-intriguing-lineups/
-
-**Here’s the latest on the 2024 race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/09/20/us/trump-harris-election/heres-the-latest-on-the-2024-race
 
