@@ -1,3 +1,7 @@
+**Phillies stuck with Taijuan Walker and his nightmare season spawned new embarrassment**\
+`Teams need someone as a mop-up man to save others from throwing. Walker couldn't even do that in Thursday's loss.`\
+https://nytimes.com/athletic/5781315/2024/09/19/phillies-taijuan-walker-failure-mets/
+
 **Shohei Ohtani delivers with ridiculous performance: 'Makes you speechless'**\
 `Ohtani finished 6-for-6 with 10 runs batted in a 20-4 romp over the Miami Marlins.`\
 https://nytimes.com/athletic/5781191/2024/09/19/dodgers-shohei-ohtani-50-50-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781126/2024/09/19/wnba-playoff-matchups-postseason
 **How Trump and Harris Are Courting Pop Stars (Very Differently)**\
 `A discussion about the ways in which musicians and social media stars, both mainstream and more obscure, have figured into the current presidential campaign.`\
 https://nytimes.com/2024/09/19/arts/music/taylor-swift-trump-harris-popcast.html
-
-**Lawsuit accusing James Dolan of sex trafficking dismissed**\
-`In a statement provided to The Athletic, Croft’s attorneys Meredith Firetog and Kevin Mintzer said they plan on appealing the decision.`\
-https://nytimes.com/athletic/5781085/2024/09/19/james-dolan-lawsuit-dismissed-knicks-rangers/
 
