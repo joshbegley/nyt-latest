@@ -1,3 +1,7 @@
+**Gleeman: Twins' pitching collapse exactly what fans feared from payroll cut, inaction**\
+`The Twins' playoff odds shrank from 95 percent to basically a coin flip in a month as they ran out of pitching. Reap what you sow.`\
+https://nytimes.com/athletic/5773870/2024/09/20/twins-pitching-payroll-cut-trade-deadline/
+
 **E.U. Plans to Offer $39 Billion Loan to Ukraine Without the U.S.**\
 `European Union officials reduced a planned loan after Hungary blocked an agreement that would have satisfied U.S. requirements for a joint loan to move forward.`\
 https://nytimes.com/2024/09/20/business/ukraine-aid-russian-assets.html
