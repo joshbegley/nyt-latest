@@ -1,3 +1,11 @@
+**How Trump Tried to Prosecute His Rivals**\
+`Michael S. Schmidt, a New York Times investigative reporter, explains how Donald Trump used his power as president to intimidate and punish his rivals. Now, in the final weeks of his presidential campaign, Trump has ramped up promises to exact retribution if he returns to the White House.`\
+https://nytimes.com/video/us/politics/100000009671461/how-trump-tried-to-prosecute-his-rivals.html
+
+**Judge John Hodgman on Dangerous Odometer Photography**\
+`How good does the number have to be to justify taking your phone out to get a picture?`\
+https://nytimes.com/2024/09/20/magazine/judge-john-hodgman-on-dangerous-odometer-photography.html
+
 **Justin Jefferson cleared, but Vikings will be without 3 contributors**\
 `Addison, linebacker Ivan Pace Jr. and rookie edge rusher Dallas Turner will miss Sunday's matchup against the Texans.`\
 https://nytimes.com/athletic/5782624/2024/09/20/vikings-injury-justin-jefferson-jordan-addison-pace-turner/
