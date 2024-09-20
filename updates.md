@@ -1,3 +1,7 @@
+**Is It Better to Buy or Lease a Car? It Depends.**\
+`The lowest overall cost is to buy a car and keep it for a long time. But leasing usually has lower monthly costs. And leasing an E.V. may come with a tax break.`\
+https://nytimes.com/2024/09/20/your-money/buy-lease-car-cost-compared.html
+
 **How good can Ohio State's defense be? Arvell Reese's growth illustrates staggering depth**\
 `Linebacker was the big question in Ohio State's bid to have the nation's top defense, but players like Reese show how deep the Buckeyes are.`\
 https://nytimes.com/athletic/5781824/2024/09/20/arvell-reese-ohio-state-defense-depth-chart/
