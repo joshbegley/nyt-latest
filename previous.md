@@ -1,3 +1,7 @@
+**A North Korean Trash Balloon Hits a Seoul Government Compound, Again**\
+`Debris was found more than a day after the North’s latest balloon launch. South Korea says it’s essentially impossible to track every balloon.`\
+https://nytimes.com/2024/09/20/world/asia/north-korea-trash-balloon.html
+
 **Gleeman: Twins' pitching collapse exactly what fans feared from payroll cut, inaction**\
 `The Twins' playoff odds shrank from 95 percent to basically a coin flip in a month as they ran out of pitching. Reap what you sow.`\
 https://nytimes.com/athletic/5773870/2024/09/20/twins-pitching-payroll-cut-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5780688/2024/09/20/wild-kirill-kaprizov-mats-zuccar
 **Six Weeks to Go**\
 `Our colleagues on the politics desk discuss the state of the presidential race.`\
 https://nytimes.com/2024/09/20/podcasts/the-daily/2024-election.html
-
-**Tragedy in the locker room: How 2 teams coped with situation similar to the Blue Jackets**\
-`Members of the 1993 Cleveland Indians and the 2001 Minnesota Vikings describe dealing with grief and loss.`\
-https://nytimes.com/athletic/5774090/2024/09/20/blue-jackets-gaudreau-teammates-indians-vikings/
 
