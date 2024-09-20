@@ -1,3 +1,19 @@
+**Where does Nunez fit in at Liverpool?**\
+`The Uruguayan is the only forward not to have started for Arne Slot, raising more questions over his status at Anfield`\
+https://nytimes.com/athletic/5779073/2024/09/20/darwin-nunez-liverpool-arne-slot/
+
+**'If Jamie Donley wants to play for Tottenham, this is what he needs to work on…'**\
+`The midfielder is on loan at Leyton Orient, and his manager for the season believes he can play at the top level - with a few changes...`\
+https://nytimes.com/athletic/5776587/2024/09/20/jamie-donley-tottenham-orient-loan/
+
+**Unpacking Everton's dismal start to the season - and how they might put it right**\
+`Sean Dyche has not yet found a way to shore Everton up and has yet to identify a Plan B with his team enduring their worst-ever start`\
+https://nytimes.com/athletic/5778881/2024/09/20/everton-dyche-injuries-branthwaite/
+
+**Palace and the counter-attack: Why do they look so vulnerable?**\
+`Palace have chopped and changed their back line, though it may be a lack of control in midfield that is contributing to their fragility`\
+https://nytimes.com/athletic/5775283/2024/09/20/crystal-palace-counter-glasner-defence-vulnerability/
+
 **Olivia Nuzzi, New York Magazine Writer, Put on Leave Over R.F.K. Jr. Relationship**\
 `Ms. Nuzzi told her editors about the relationship that had turned personal, the outlet said. A representative for Mr. Kennedy said the pair had met only once.`\
 https://nytimes.com/2024/09/20/business/media/olivia-nuzzi-rfk-jr.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5779124/2024/09/20/leicester-city-cooper-premier-le
 **The joy of Aston Villa's devilish left-sided attacks**\
 `Unai Emery's team are a Swiss Army knife when it comes to attacking patterns and their varied uses of the left flank are deviously effective`\
 https://nytimes.com/athletic/5775818/2024/09/20/aston-villa-left-sided-tactics-attacks/
-
-**FPL: Are Manchester United worth a look or should you wait?**\
-`Is this the time to bring in United assets or would FPL managers be wise to hold off until their fixtures improve from gameweek 8`\
-https://nytimes.com/athletic/5775916/2024/09/20/fantasy-premier-league-manchester-united/
-
-**Long-range goals are rare but this season shows why it's still worth having a pop**\
-`Alan Shearer looks at the data, decisions and techniques behind the special moment when a long-range strike crashes into the back of the net`\
-https://nytimes.com/athletic/5778802/2024/09/20/alan-shearer-long-range-goals/
-
-**Next week’s waiver wire: Cam Akers, Jalen Tolbert and more players to add now — before the Week 4 rush**\
-`John Laghezza points you towards to his top expected future waiver wire plays, which has his eyes focused on the state of Texas.`\
-https://nytimes.com/athletic/5779182/2024/09/20/week-4-fantasy-football-early-waiver-cam-akers-jalen-tolbert/
-
-**Ratcliffe comments, high-profile exits and a wall - Manchester United Women's turbulent summer**\
-`High-profile exists, training-ground issues and unease over the co-owner's comments — it has been a difficult summer at Manchester United`\
-https://nytimes.com/athletic/5778831/2024/09/20/manchester-united-women-summer/
 
