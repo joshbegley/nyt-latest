@@ -1,3 +1,15 @@
+**‘Transformers One’ | Anatomy of a Scene**\
+`The director Josh Cooley narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000009705881/transformers-one-scene.html
+
+**A Surge in Breast Reductions**\
+`We explore why younger women are undergoing the cosmetic procedure.`\
+https://nytimes.com/2024/09/20/briefing/breast-reduction-gen-z.html
+
+**E.U. Plans to Offer $39 Billion Loan to Ukraine Without the U.S.**\
+`Brussels officials reduced a planned loan after Hungary blocked an agreement that would have allowed a joint proposal with Washington to move forward.`\
+https://nytimes.com/2024/09/20/business/ukraine-aid-russian-assets.html
+
 **A North Korean Trash Balloon Hits a Seoul Government Compound, Again**\
 `Debris was found more than a day after the North’s latest balloon launch. South Korea says it’s essentially impossible to track every balloon.`\
 https://nytimes.com/2024/09/20/world/asia/north-korea-trash-balloon.html
