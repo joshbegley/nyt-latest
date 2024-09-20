@@ -1,3 +1,11 @@
+**Verstappen ordered to complete public interest work for inappropriate language**\
+`Max Verstappen has been ordered to complete work of public interest after using inappropriate language during the FIA Thursday driver press conference ahead of the Formula One Singapore Grand Prix.`\
+https://nytimes.com/athletic/5781828/2024/09/20/max-verstappen-singapore-grand-prix-language/
+
+**Embiid, 76ers reach $301 million max extension**\
+`Joel Embiid's deal includes a player option in 2028-29, league sources said.`\
+https://nytimes.com/athletic/5781843/2024/09/20/joel-embiid-sixers-extension-contract/
+
 **Can men's pro golf work with PGA Tour, LIV still divided?**\
 `Brody Miller takes readers' questions on the future of golf, 2024 major winners and the chances of seeing a LIV fan in the wild.`\
 https://nytimes.com/athletic/5780263/2024/09/20/golf-pga-tour-liv-deal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5775620/2024/09/20/bucks-5-intriguing-lineups/
 **Here’s the latest on the 2024 race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/20/us/trump-harris-election/heres-the-latest-on-the-2024-race
-
-**With World’s Attention Shifting, Some in Gaza Fear They Will Be Forgotten**\
-`Even as Israel signals that it is moving its focus to its northern border with Lebanon, there has been no pause to its bombardment in Gaza, where residents are facing another winter with little access to food or shelter.`\
-https://nytimes.com/2024/09/20/world/middleeast/gaza-cease-fire-talks-hezbollah-lebanon.html
-
-**Simeone on new Champions League format: 'It forces us to win'**\
-`Atletico Madrid manager Diego Simeone says the new Champions League format &#8220;forces us to win&#8221;.`\
-https://nytimes.com/athletic/5781714/2024/09/20/diego-simeone-atletico-madrid-champions-league/
 
