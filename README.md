@@ -1,3 +1,11 @@
+**All England Club set to win approval for Wimbledon expansion**\
+`The All England Club looks set to win its lengthy battle to build 39 new courts on the former Wimbledon Park golf site after the Greater London Authority (GLA) recommended that the project should be approved.`\
+https://nytimes.com/athletic/5781611/2024/09/20/wimbledon-all-england-club-expand/
+
+**Inside the Mets' revival: Grimace, OMG and a turnaround no one saw coming**\
+`They Mets stumbled out of the gate before rebounding behind a steady manager, a dramatic team meeting and a whole lot of fun.`\
+https://nytimes.com/athletic/5778162/2024/09/20/mets-turnaround-omg-analysis/
+
 **Why Derek Carr may have found the right fit in Klint Kubiak's Saints offense**\
 `The veteran QB has learned a lot of new systems under eight different coordinators in his career, but this one is really clicking so far.`\
 https://nytimes.com/athletic/5778489/2024/09/20/derek-carr-saints-offense-klint-kubiak/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5779874/2024/09/20/under-the-radar-mlb-storylines/
 **Don’t Fall Into the ‘Cynicism Trap’**\
 `Expecting the worst from others is actually bad for our health, experts say.`\
 https://nytimes.com/2024/09/20/well/cynicism-trap-health.html
-
-**The Week in Bad Political Behavior**\
-`Vile remarks in North Carolina, a local indictment in Washington, and an odd defense by the first lady.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/bad-political-behavior
-
-**OpenAI’s Reasoning Machine, Instagram Teen Changes and Amazon R.T.O. Drama**\
-`“They should have just called it Strawberry. At least that’s delicious.”`\
-https://nytimes.com/2024/09/20/podcasts/hardfork-o1-meta-teens-amazon.html
 
