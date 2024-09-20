@@ -1,3 +1,7 @@
+**Michel Siffre, 85, Dies; Descended Into Caves to Study the Human Mind**\
+`He was a pioneer in chronobiology, the study of how our bodies understand the passage of time.`\
+https://nytimes.com/2024/09/20/science/michel-siffre-dead.html
+
 **Even before the CNN story, Mark Robinson was behind in polls of North Carolina’s governor’s race.**\
 `By Kaleigh Rogers and Alex Lemonides`\
 https://nytimes.com/live/2024/09/20/us/trump-harris-election/even-before-the-cnn-story-mark-robinson-was-behind-in-polls-of-north-carolinas-governors-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5782097/2024/09/20/chelsea-transfers-january-window
 **Ten Hag praises Rashford resilience: 'He is on the way back'**\
 `Erik ten Hag has praised Marcus Rashford&#8217;s resilience after the forward&#8217;s return to goalscoring form for Manchester United.`\
 https://nytimes.com/athletic/5781719/2024/09/20/manchester-united-rashford-ten-hag/
-
-**California Firefighter Is Accused of Starting 5 Fires in Wine Country**\
-`A Cal Fire employee was arrested Friday on suspicion of starting several blazes in Sonoma County.`\
-https://nytimes.com/2024/09/20/us/cal-fire-sonoma-county-arson.html
 
