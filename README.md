@@ -1,3 +1,7 @@
+**Move Over, Matcha. Strawberry Milk Is Here.**\
+`Long beloved in Japan, the drink is becoming a fixture on cafe menus in Hawaii and now the mainland, too.`\
+https://nytimes.com/2024/09/20/t-magazine/strawberry-milk-matcha.html
+
 **Earth Might Have Had a Ring 466 Million Years Ago**\
 `Impact craters found around the Earth that were made around the same time could be linked to debris falling from a ring, a new study suggests.`\
 https://nytimes.com/2024/09/20/science/earth-rings-asteroids-ordovician.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/nyregion/mohammad-ibrahim-bazzi-hezbollah-funding
 **Environmentalists Fear Subsidies for Carbon Capture Won’t Be Checked**\
 `Some activists are questioning whether the federal government can accurately verify a tax program for facilities that store planet-warming gases.`\
 https://nytimes.com/2024/09/20/us/politics/carbon-capture-irs-subsidies.html
-
-**Judge John Hodgman on Dangerous Odometer Photography**\
-`How good does the number have to be to justify taking your phone out to get a picture?`\
-https://nytimes.com/2024/09/20/magazine/judge-john-hodgman-on-dangerous-odometer-photography.html
 
