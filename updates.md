@@ -1,3 +1,7 @@
+**Autographed Caitlin Clark trading card sells for record $84,000**\
+`A one-of-a-kind autographed Caitlin Clark WNBA Draft card sold at auction for $84,000 on Thursday night, breaking the record for the most expensive women&#8217;s basketball card ever.`\
+https://nytimes.com/athletic/5782026/2024/09/20/caitlin-clark-card-record-sale/
+
 **The Florida group behind an abortion-rights ballot measure to report a record cash haul.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2024/09/20/us/trump-harris-election/the-florida-group-behind-an-abortion-rights-ballot-measure-to-report-a-record-cash-haul
