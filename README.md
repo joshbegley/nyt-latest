@@ -1,3 +1,7 @@
+**Harris Hits Core Campaign Themes in Emotional Forum With Oprah Winfrey**\
+`Vice President Kamala Harris spoke off the cuff, as guests included a teenager shot at her school and the family of a woman in Georgia who died as a result of the state’s abortion ban.`\
+https://nytimes.com/2024/09/20/us/politics/kamala-harris-oprah-winfrey-event.html
+
 **Where does Nunez fit in at Liverpool?**\
 `The Uruguayan is the only forward not to have started for Arne Slot, raising more questions over his status at Anfield`\
 https://nytimes.com/athletic/5779073/2024/09/20/darwin-nunez-liverpool-arne-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5778895/2024/09/20/why-nottingham-forest-look-good/
 **Cooper's fighting talk is part of Leicester's new combative off-field approach**\
 `Leicester have shown a more aggressive approach to dealing with authority over the past 12 months and Cooper is continuing in the same vein`\
 https://nytimes.com/athletic/5779124/2024/09/20/leicester-city-cooper-premier-league/
-
-**The joy of Aston Villa's devilish left-sided attacks**\
-`Unai Emery's team are a Swiss Army knife when it comes to attacking patterns and their varied uses of the left flank are deviously effective`\
-https://nytimes.com/athletic/5775818/2024/09/20/aston-villa-left-sided-tactics-attacks/
 
