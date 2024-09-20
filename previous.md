@@ -1,40 +1,40 @@
-**‘La Maison’: Like ‘Succession,’ but Better Dressed (and French)**\
-`The new Apple TV+’s new series takes the viewer inside two rival Paris fashion houses, with gorgeous people in gorgeous clothes who will do anything for power.`\
-https://nytimes.com/2024/09/20/arts/television/la-maison-apple-tv.html
+**Patricia Field: Her Joyful, Chaotic Fashion Sense Gets a Film to Match**\
+`“Happy Clothes” covers her work on “Emily in Paris” and “Sex and the City,” as well as her time as a tastemaker in the 1970s and ’80s underground.`\
+https://nytimes.com/2024/09/20/movies/happy-clothes-review-patricia-field-doc.html
 
-**Newcastle set for late decision on Isak availability**\
-`Eddie Howe says Newcastle United will make a decision on Friday on Alexander Isak&#8217;s availability ahead of Saturday&#8217;s Premier League fixture against Fulham.`\
-https://nytimes.com/athletic/5781570/2024/09/20/alexander-isak-injury-update/
+**How the Fastest-Growing County in Wisconsin Is Scrambling the Presidential Race**\
+`Madison, Wis., and its blossoming suburbs are drawing newcomers for tech and health care jobs. With a swing state in the balance, Democrats see promise.`\
+https://nytimes.com/2024/09/20/us/trump-harris-election-wisconsin.html
 
-**Prada vs. the Algorithm**\
-`Miuccia Prada and Raf Simons take on the style echo chamber. Fendi celebrates choice.`\
-https://nytimes.com/2024/09/20/style/prada-fendi-milan-fashion-week.html
+**Who’s the Dodo Now? A Famously Extinct Bird, Reconsidered.**\
+`A comprehensive review of dodo science offers new insights into the biology and behavior of the much-ridiculed bird.`\
+https://nytimes.com/2024/09/20/science/archaeology-dodo-extinction.html
 
-**In Australia, an Old-Fashioned Art Is Having a Revival**\
-`Young practitioners are helping make stained glass, which fell out of fashion over two decades ago, a vibrant art form in Australia once again.`\
-https://nytimes.com/2024/09/20/world/australia/stained-glass.html
+**When the Horror Is Coming From Under Your Own Skin**\
+`As “The Substance” hits theaters, here’s a look at eight other films in the goopy subgenre of body horror.`\
+https://nytimes.com/2024/09/20/movies/the-substance-body-horror-movies.html
 
-**Late Night Thinks It’s Unlikely That Neighbors Ate Your Cat**\
-`Before starting rumors about Haitians, please make sure your cat is actually missing, Ronnie Chieng implored on “The Daily Show.”`\
-https://nytimes.com/2024/09/20/arts/television/late-night-cat-eating-neighbors-trump.html
+**With Williams, Carlos Sainz Knows He’ll Need Patience**\
+`After losing his 2025 seat with Ferrari, the Spanish driver lands with a team with long-term plans.`\
+https://nytimes.com/2024/09/20/sports/autoracing/f1-williams-carlos-sainz.html
 
-**The Migrant Crisis Has Not Destroyed New York. But Challenges Remain.**\
-`To help migrants integrate into city life, officials should first treat their arrival as an opportunity rather than a catastrophe, advocates say.`\
-https://nytimes.com/2024/09/20/nyregion/mayor-adams-migrant-crisis-ny.html
+**A Concert Celebrates Jimmy Carter’s 100th Birthday, With Music and Thanks**\
+`The B-52s, BeBe Winans, Angélique Kidjo, Chuck Leavell and many others performed in Atlanta at a concert honoring the former president, who has been in hospice care.`\
+https://nytimes.com/2024/09/20/arts/music/jimmy-carter-100th-birthday-concert.html
 
-**A Mouse**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/09/20/learning/a-mouse.html
+**Kamala Harris Has Proposed an ‘Opportunity Economy.’ This Is How to Make It a Reality.**\
+`What we can learn from the science of economic opportunity.`\
+https://nytimes.com/2024/09/20/opinion/kamala-harris-opportunity-economy.html
 
-**Aitana Bonmati exclusive: Barcelona's Ballon d'Or winner tells it like it is**\
-`In an exclusive interview with The Athletic, Barcelona's mercurial midfielder explains her decision to stay at the club - and more`\
-https://nytimes.com/athletic/5779268/2024/09/20/aitana-bonmati-interview-barcelona-ballon-dor/
+**On an Italian Island, a Home That Celebrates Color and Craft**\
+`Atop the volcanic cliffs on the tranquil Salina, one woman has created a respite where art and nature reside in perfect harmony.`\
+https://nytimes.com/2024/09/20/t-magazine/italy-island-home.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/20/crosswords/spelling-bee-forum.html
+**Remember ‘Frindle’? Andrew Clements Had a Sequel Up His Sleeve.**\
+`More than 25 years later, the pen of another name meets a new generation of wordsmiths.`\
+https://nytimes.com/2024/09/20/books/review/frindle-andrew-clements-marcelo-martello-marshmallow-ruth-rocha.html
 
-**Back from his F1 ban, Kevin Magnussen wants penalty changes: ‘It’s not the sport I love’**\
-`Magnussen feels F1’s penalty points system, introduced for the 2014 season, is no longer fit for its purpose.`\
-https://nytimes.com/athletic/5778982/2024/09/20/kevin-magnussen-f1-haas-penalty-points/
+**Natasha Rothwell and Samara Joy on Finding Their Voices**\
+`The “How to Die Alone” creator and actress and the Grammy-winning jazz singer talk about genre, improvisation and romantic comedies.`\
+https://nytimes.com/2024/09/20/t-magazine/natasha-rothwell-samara-joy.html
 
