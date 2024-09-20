@@ -1,3 +1,11 @@
+**Verstappen ordered to complete public interest work for inappropriate language**\
+`Max Verstappen has been ordered to complete work of public interest after using inappropriate language during the FIA Thursday driver press conference ahead of the Formula One Singapore Grand Prix.`\
+https://nytimes.com/athletic/5781828/2024/09/20/max-verstappen-singapore-grand-prix-language/
+
+**Embiid, 76ers reach $301 million max extension**\
+`Joel Embiid's deal includes a player option in 2028-29, league sources said.`\
+https://nytimes.com/athletic/5781843/2024/09/20/joel-embiid-sixers-extension-contract/
+
 **Can men's pro golf work with PGA Tour, LIV still divided?**\
 `Brody Miller takes readers' questions on the future of golf, 2024 major winners and the chances of seeing a LIV fan in the wild.`\
 https://nytimes.com/athletic/5780263/2024/09/20/golf-pga-tour-liv-deal/
