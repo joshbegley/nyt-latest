@@ -1,3 +1,7 @@
+**Shohei Ohtani delivers with ridiculous performance: 'Makes you speechless'**\
+`Ohtani finished 6-for-6 with 10 runs batted in a 20-4 romp over the Miami Marlins.`\
+https://nytimes.com/athletic/5781191/2024/09/19/dodgers-shohei-ohtani-50-50-reaction/
+
 **‘Forbidden Broadway’ Review: Let Them Somewhat Entertain You**\
 `From its perch way Off Broadway, the long-running satire slings its affectionate arrows at Patti, Audra and the rest.`\
 https://nytimes.com/2024/09/19/theater/forbidden-broadway-review.html
