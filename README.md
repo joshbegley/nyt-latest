@@ -1,5 +1,5 @@
 **Trump Presses for More Support From Jewish Voters**\
-`At a campaign event aimed to denounce antisemitism in America, Trump said he believed that “Israel would be wiped off the face of the Earth” if he doesn’t win.`\
+`At a campaign event aimed to denounce antisemitism in America, Trump said he believed that “Israel will be wiped off the face of the Earth” if he doesn’t win.`\
 https://nytimes.com/video/us/elections/100000009708037/trump-jewish-voters-washington.html
 
 **Phillies stuck with Taijuan Walker and his nightmare season spawned new embarrassment**\
