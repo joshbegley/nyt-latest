@@ -1,6 +1,6 @@
 **After Surprise Pager Attack, Israel and Hezbollah Return to Familiar Deadlock**\
 `Israel’s attack on Hezbollah’s communication devices raised expectations of a decisive shift in their war of attrition. Instead, the fighting has returned to a standoff.`\
-https://nytimes.com/2024/09/20/world/middleeast/after-surprise-pager-attack-israel-and-hezbollah-return-to-familiar-deadlock.html
+https://nytimes.com/2024/09/20/world/middleeast/israel-hezbollah-pager-attack-standoff.html
 
 **Portuguese league to plant 200 trees for every goal after wildfires**\
 `Liga Portugal have pledged to plant 200 trees in the country for every goal scored in Primeira Liga, the top-flight of Portuguese football, on matchday six.`\
