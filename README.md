@@ -1,3 +1,7 @@
+**Giannis in the dunker spot, small-ball unit, long-range duo: 5 intriguing Bucks lineups**\
+`We propose unique bench units that could help get the Bucks through the season and, in some cases, prepare them for the postseason.`\
+https://nytimes.com/athletic/5775620/2024/09/20/bucks-5-intriguing-lineups/
+
 **Here’s the latest on the 2024 race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/20/us/trump-harris-election/heres-the-latest-on-the-2024-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5780698/2024/09/20/raiders-offensive-line-problems-
 **The Athletic’s Friday football quiz question #22**\
 `The Athletic's weekly conundrum from deep inside the trivia vaults`\
 https://nytimes.com/athletic/5781610/2024/09/20/the-athletic-friday-football-quiz-22/
-
-**WSL storylines to watch: The Bompastor era begins, but fewer women managers**\
-`As the new WSL season begins, here's what you need to watch out for `\
-https://nytimes.com/athletic/5776144/2024/09/20/wsl-storylines-to-watch-bompastor-liverpool-manchester-united/
 
