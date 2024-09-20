@@ -1,3 +1,7 @@
+**The ‘Crank Realignment’ and the Paranoid Center**\
+`By Ross Douthat`\
+https://nytimes.com/2024/09/20/opinion/liberal-conservative-crank-realignment.html
+
 **What’s Next for Rate Cuts? The Fed Is Watching Jobs and Prices.**\
 `A Federal Reserve official predicted quarter point rate cuts if data looked ‘fine’. But he also set out a scenario for a pause — or faster reductions.`\
 https://nytimes.com/2024/09/20/business/economy/fed-rate-cuts-jobs-inflation.html
