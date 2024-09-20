@@ -1,3 +1,15 @@
+**Dan Campbell selling his Detroit-area home due to security concerns**\
+`When asked Friday about his safety, Campbell said, "I don't even want to go there with any of it. ... It's all good."`\
+https://nytimes.com/athletic/5782272/2024/09/20/dan-campbell-selling-home-security-concerns/
+
+**How Luisangel Acuña has impressed while filling in for Francisco Lindor**\
+`Acuña is the first Mets player ever to record a single, double, triple and home run in his first five games with an at-bat.`\
+https://nytimes.com/athletic/5782306/2024/09/20/mets-luisangel-acuna-prospect/
+
+**18 More of Our Best Recipes Ever, According to You**\
+`You let us know what we missed from our list of NYT Cooking’s 50 greatest hits.`\
+https://nytimes.com/2024/09/20/dining/reader-responses-favorite-cooking-recipes.html
+
 **Harris Has a Polling Edge in Wisconsin, but Democrats Don’t Trust It**\
 `The vice president, who is visiting the state on Friday, has led Donald Trump there more often than not. Yet nearly everyone in Wisconsin politics believes the race will be incredibly close.`\
 https://nytimes.com/2024/09/20/us/politics/harris-polling-wisconsin.html

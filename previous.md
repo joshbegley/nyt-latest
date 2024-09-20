@@ -1,8 +1,12 @@
+**Dan Campbell selling his Detroit-area home due to security concerns**\
+`When asked Friday about his safety, Campbell said, "I don't even want to go there with any of it. ... It's all good."`\
+https://nytimes.com/athletic/5782272/2024/09/20/dan-campbell-selling-home-security-concerns/
+
 **Harris Has a Polling Edge in Wisconsin, but Democrats Don’t Trust It**\
 `The vice president, who is visiting the state on Friday, has led Donald Trump there more often than not. Yet nearly everyone in Wisconsin politics believes the race will be incredibly close.`\
 https://nytimes.com/2024/09/20/us/politics/harris-polling-wisconsin.html
 
-**Mets' Luisangel Acuña generates excitement after learning how to relax**\
+**How Luisangel Acuña has impressed while filling in for Francisco Lindor**\
 `Acuña is the first Mets player ever to record a single, double, triple and home run in his first five games with an at-bat.`\
 https://nytimes.com/athletic/5782306/2024/09/20/mets-luisangel-acuna-prospect/
 
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/5782306/2024/09/20/mets-luisangel-acuna-prospect/
 `The case takes aim at the major pharmacy benefit managers, agency officials said, claiming that they favored more expensive insulin products and forced patients to pay more.`\
 https://nytimes.com/2024/09/20/health/ftc-drug-price-inflation-insulin.html
 
-**18 of Our Readers’ Favorite NYT Cooking Recipes**\
-`A look at some of your all-timers to commemorate our 10th anniversary.`\
+**18 More of Our Best Recipes Ever, According to You**\
+`You let us know what we missed from our list of NYT Cooking’s 50 greatest hits.`\
 https://nytimes.com/2024/09/20/dining/reader-responses-favorite-cooking-recipes.html
 
 **Villa's Watkins '100 per cent fit' for Wolves - Emery**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745021/2024/09/20/nhl-futures-best-bets-win-totals
 **Football Parlay Fridays Week 4: How much can we fade Kent State?**\
 `Austin Mock takes another shot at his round-robin parlays with four underdogs and an alternate spread against an historically bad FBS team.`\
 https://nytimes.com/athletic/5782183/2024/09/20/football-parlay-college-football-week-4/
-
-**Election 2024 Polls: Florida**\
-`See the latest election polls and polling averages for Florida.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-florida.html
 
