@@ -1,3 +1,7 @@
+**The coach who walked away from Manchester City - an interview with Brian Barry-Murphy**\
+`Brian Barry-Murphy, who observed Pep Guardiola at close quarters over three years, talks footballing philosophy and what he has learned`\
+https://nytimes.com/athletic/5776122/2024/09/20/manchester-city-brian-barry-murphy-interview/
+
 **Europe’s New Defense Chief: ‘A King Without a Kingdom’?**\
 `The European Union has vowed to enhance its military capability. But money is scarce, responsibilities overlap and the new job is less about soldiers than arms manufacturers.`\
 https://nytimes.com/2024/09/20/world/europe/europes-new-defense-chief-a-king-without-a-kingdom.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009708037/trump-jewish-voters-washi
 **Phillies stuck with Taijuan Walker. His nightmare season spawned new embarrassment**\
 `Teams need someone as a mop-up man to save others from throwing. Walker couldn't even do that in Thursday's loss.`\
 https://nytimes.com/athletic/5781315/2024/09/19/phillies-taijuan-walker-failure-mets/
-
-**Shohei Ohtani delivers with ridiculous performance: 'Makes you speechless'**\
-`Ohtani finished 6-for-6 with 10 runs batted in a 20-4 romp over the Miami Marlins.`\
-https://nytimes.com/athletic/5781191/2024/09/19/dodgers-shohei-ohtani-50-50-reaction/
 

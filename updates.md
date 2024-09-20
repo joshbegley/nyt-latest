@@ -1,3 +1,7 @@
+**The coach who walked away from Manchester City - an interview with Brian Barry-Murphy**\
+`Brian Barry-Murphy, who observed Pep Guardiola at close quarters over three years, talks footballing philosophy and what he has learned`\
+https://nytimes.com/athletic/5776122/2024/09/20/manchester-city-brian-barry-murphy-interview/
+
 **Europe’s New Defense Chief: ‘A King Without a Kingdom’?**\
 `The European Union has vowed to enhance its military capability. But money is scarce, responsibilities overlap and the new job is less about soldiers than arms manufacturers.`\
 https://nytimes.com/2024/09/20/world/europe/europes-new-defense-chief-a-king-without-a-kingdom.html
