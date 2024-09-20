@@ -1,3 +1,7 @@
+**An 'alien' is coming to Atlanta: Falcons admit Mahomes Week is different**\
+`Patrick Mahomes and the Chiefs visit the Falcons for "Sunday Night Football." Atlanta won't pretend that Mahomes is just another player.`\
+https://nytimes.com/athletic/5779399/2024/09/20/patrick-mahomes-kc-chiefs-atlanta-falcons/
+
 **Brighton to make late call on Joao Pedro for Forest clash**\
 `Brighton will make a late decision on the availability of Joao Pedro for Sunday’s Premier League home game against Nottingham Forest.`\
 https://nytimes.com/athletic/5781618/2024/09/20/joao-pedro-brighton-nottingham-forest/
