@@ -1,3 +1,7 @@
+**WNBA Playoffs odds, picks: Liberty aim for first title, Aces for three-peat**\
+`The WNBA is headed to the playoffs in one of the best seasons we've ever seen. Get odds and picks for the outcomes.`\
+https://nytimes.com/athletic/5780602/2024/09/20/wnba-playoff-odds-expert-picks-schedule/
+
 **Arsenal have to beat Man City - Vieira**\
 `Former Arsenal captain Patrick Vieira believes his old side &#8220;have to win&#8221; against Manchester City if they are to stand any chance of toppling the reigning Premier League champions.`\
 https://nytimes.com/athletic/5782368/2024/09/20/patrick-vieira-arsenal-man-city/
