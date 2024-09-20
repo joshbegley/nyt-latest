@@ -1,3 +1,7 @@
+**Earth Might Have Had a Ring 466 Million Years Ago**\
+`Impact craters found around the Earth that were made around the same time could be linked to debris falling from a ring, a new study suggests.`\
+https://nytimes.com/2024/09/20/science/earth-rings-asteroids-ordovician.html
+
 **What the U.S. Has Argued in the Google Ad Tech Antitrust Trial**\
 `As the government wraps up its case, it has built a picture of how Google has become dominant among companies that buy and sell ads online.`\
 https://nytimes.com/2024/09/20/technology/google-ad-antitrust-trial-arguments.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/us/politics/carbon-capture-irs-subsidies.html
 **Judge John Hodgman on Dangerous Odometer Photography**\
 `How good does the number have to be to justify taking your phone out to get a picture?`\
 https://nytimes.com/2024/09/20/magazine/judge-john-hodgman-on-dangerous-odometer-photography.html
-
-**Justin Jefferson cleared, but Vikings will be without 3 contributors**\
-`Addison, linebacker Ivan Pace Jr. and rookie edge rusher Dallas Turner will miss Sunday's matchup against the Texans.`\
-https://nytimes.com/athletic/5782624/2024/09/20/vikings-injury-justin-jefferson-jordan-addison-pace-turner/
 
