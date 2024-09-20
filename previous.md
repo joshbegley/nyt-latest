@@ -1,3 +1,11 @@
+**Corrections: Sept. 20, 2024**\
+`Corrections that appeared in print on Friday, Sept. 20, 2024.`\
+https://nytimes.com/2024/09/19/pageoneplus/corrections-sept-20-2024.html
+
+**Former N.Y.C. Covid Czar Partied While Preaching Social Distancing**\
+`In a hidden-camera video posted by a conservative podcaster, Dr. Jay K. Varma boasts about flouting the public health guidelines he insisted others follow.`\
+https://nytimes.com/2024/09/19/nyregion/dr-jay-varma-nyc-covid.html
+
 **Canucks training camp: Thatcher Demko speaks, reading too much into lines and more**\
 `With training camp officially underway, let's break down the major trends, observations and storylines that we saw.`\
 https://nytimes.com/athletic/5780768/2024/09/19/canucks-training-camp-thatcher-demko-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5780484/2024/09/19/winnipeg-jets-training-camp-2024
 **Cris Collinsworth to remain with NBC through rest of decade**\
 `Collinsworth currently makes around $12.5 million a year, according to sources. The new contract is expected to be a four-year agreement.`\
 https://nytimes.com/athletic/5780971/2024/09/19/cris-collinsworth-contract-extension-nbc-snf/
-
-**Tina Charles becomes WNBA's all-time leading rebounder**\
-`Charles, the No. 1 pick in the 2010 WNBA Draft to the Connecticut Sun, is also the WNBA’s second-leading scorer.`\
-https://nytimes.com/athletic/5780960/2024/09/19/atlanta-dream-tina-charles-rebounding/
-
-**Hiker Is Injured in Bear Attack at Glacier National Park**\
-`Rangers and other hikers helped the man walk more than a mile in a mountainous area so that he could be taken to a hospital, the National Park Service said.`\
-https://nytimes.com/2024/09/19/us/bear-attack-glacier-national-park.html
 
