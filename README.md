@@ -1,3 +1,11 @@
+**How Israel’s Technological Trojan Horse Destabilized Hezbollah**\
+`The explosion of devices carried by thousands of Hezbollah operatives sowed panic sowed panic and overwhelmed hospitals across Lebanon.`\
+https://nytimes.com/video/world/middleeast/100000009703279/how-israels-technological-trojan-horse-destabilized-hezbollah.html
+
+**Ohtani's historic 50/50 HR ball prompts chaotic scramble**\
+`Fans dove toward where the ball dropped down under a table. One man in a black T-shirt emerged from the dangerous scrum with the ball.`\
+https://nytimes.com/athletic/5781104/2024/09/19/shohei-ohtani-50-home-run-ball/
+
 **WNBA playoff matchups set; Atlanta Dream claim final spot**\
 `Following the 2021 season, the WNBA altered its playoff format to get rid of single-elimination games and byes to the semifinals.`\
 https://nytimes.com/athletic/5781126/2024/09/19/wnba-playoff-matchups-postseason-format/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/19/us/sheriff-judge-shooting-kentucky.html
 **Jury Awards $116 Million to Family of Man Who Died in Helicopter Crash**\
 `When an open-door tourist helicopter crashed into the East River, Trevor Cadigan, 26, and four other passengers were unable to escape from cumbersome safety harnesses.`\
 https://nytimes.com/2024/09/19/nyregion/trevor-cadigan-helicopter-crash-lawsuit.html
-
-**‘Definitely a little scary:’ Yankees' Juan Soto bangs knee just days after mentioning upcoming free agency**\
-`SEATTLE — Two days after speaking openly about his upcoming free agent bonanza, New York Yankees star right fielder Juan Soto found himself on the ground at T-Mobile Park on Thursday, having smashed his knee left on the wall while making a sliding catch.`\
-https://nytimes.com/athletic/5781027/2024/09/19/yankees-juan-soto-injury-scare/
-
-**Shohei Ohtani's path to 50-50 and beyond: Recounting the top moments**\
-`This is how Shohei Ohtani trotted and sprinted his way to an unprecedented and unthinkable baseball milestone.`\
-https://nytimes.com/athletic/5780903/2024/09/19/dodgers-shohei-ohtani-50-50-highlights/
 
