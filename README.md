@@ -1,3 +1,11 @@
+**Graham Arnold resigns as head coach of Australia**\
+`Graham Arnold has stepped down as head coach of the Australian men&#8217;s national team after six years in charge.`\
+https://nytimes.com/athletic/5781522/2024/09/20/graham-arnold-australia-resign/
+
+**In Barcelona’s Champions League chaos, at least there was Marc Casado**\
+`Barcelona lost 2-1 at Monaco in their opening Champions League match, but there was a real bright spot in the performance of Marc Casado`\
+https://nytimes.com/athletic/5781503/2024/09/20/barcelona-marc-casado-champions-league-monaco/
+
 **Unflustered and unfussy - Raya is no longer under appreciated**\
 `David Raya seems liberated by the fact he has been through his transition season and come out the other side of battle with Aaron Ramsdale`\
 https://nytimes.com/athletic/5780950/2024/09/20/arsenal-david-raya-save-atalanta-champions-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5781392/2024/09/20/aaron-rodgers-robert-saleh-shove
 **Harris Hits Core Campaign Themes in Emotional Forum With Oprah Winfrey**\
 `Vice President Kamala Harris spoke off the cuff, as guests included a teenager shot at her school and the family of a woman in Georgia who died as a result of the state’s abortion ban.`\
 https://nytimes.com/2024/09/20/us/politics/kamala-harris-oprah-winfrey-event.html
-
-**Where does Nunez fit in at Liverpool?**\
-`The Uruguayan is the only forward not to have started for Arne Slot, raising more questions over his status at Anfield`\
-https://nytimes.com/athletic/5779073/2024/09/20/darwin-nunez-liverpool-arne-slot/
-
-**'If Jamie Donley wants to play for Tottenham, this is what he needs to work on…'**\
-`The midfielder is on loan at Leyton Orient, and his manager for the season believes he can play at the top level - with a few changes...`\
-https://nytimes.com/athletic/5776587/2024/09/20/jamie-donley-tottenham-orient-loan/
 
