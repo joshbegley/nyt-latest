@@ -1,3 +1,7 @@
+**Word of the Day: watershed**\
+`This word has appeared in 168 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/20/learning/word-of-the-day-watershed.html
+
 **Harris Joins Oprah at Michigan Campaign Event**\
 `The vice president answered questions from the audience, detailing her position on issues like immigration and gun control.`\
 https://nytimes.com/video/us/elections/100000009708213/kamala-harris-oprah-winfrey-detroit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5776587/2024/09/20/jamie-donley-tottenham-orient-lo
 **Unpacking Everton's dismal start to the season - and how they might put it right**\
 `Sean Dyche has not yet found a way to shore Everton up and has yet to identify a Plan B with his team enduring their worst-ever start`\
 https://nytimes.com/athletic/5778881/2024/09/20/everton-dyche-injuries-branthwaite/
-
-**Palace and the counter-attack: Why do they look so vulnerable?**\
-`Palace have chopped and changed their back line, though it may be a lack of control in midfield that is contributing to their fragility`\
-https://nytimes.com/athletic/5775283/2024/09/20/crystal-palace-counter-glasner-defence-vulnerability/
 
