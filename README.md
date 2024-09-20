@@ -1,3 +1,11 @@
+**2 Stole $230 Million in Cryptocurrency and Went on a Spending Spree, U.S. Says**\
+`Malone Lam, 20, and Jeandiel Serrano, 21, schemed to obtain 4,100 Bitcoin from a single victim, federal prosecutors said.`\
+https://nytimes.com/2024/09/20/us/crypto-fraud-arrests.html
+
+**Inside a Harris Ad That Tries to Saddle Trump With Mark Robinson’s Baggage**\
+`A new ad placed on Friday by Kamala Harris’s campaign, without mentioning the scandal threatening the North Carolina Republican’s run for governor, seeks to taint Donald Trump by association.`\
+https://nytimes.com/live/2024/09/20/us/trump-harris-election/harris-ad-trump-mark-robinson
+
 **These Voters Don’t Want to Commit to Trump or Harris. Here’s Why.**\
 `Those still weighing their options are more likely  to be young, Black or Latino — and struggling. Many see their choice as the “lesser of two evils.”`\
 https://nytimes.com/2024/09/20/us/politics/undecided-voters-2024-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5782582/2024/09/20/club-world-cup-venues-gianni-inf
 **What is the Radwan force, the elite Hezbollah unit linked to Ibrahim Aqeel?**\
 `The Israeli military considers the force a major threat to its northern border and has portrayed Aqeel, whom it claimed to have killed on Friday, as its de facto commander.`\
 https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/hezbollah-radwan-force
-
-**Overlooked No More: Ellen Armstrong, ‘Marvelous, Mystifying’ Magician of Mirth**\
-`Carrying on a family tradition, she brought her singular act, full of illusion and humor, to Black audiences in the segregated South and on up to Philadelphia.`\
-https://nytimes.com/2024/09/20/obituaries/ellen-armstrong-overlooked.html
-
-**A New Power Grab in Georgia Could Create a Chaotic Election Night**\
-`It’s an example of why elections should be run by nonpartisan administrators.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/georgia-election-board-nonpartisan
 
