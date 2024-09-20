@@ -1,3 +1,7 @@
+**Canadiens training camp: Patience with Dach and Laine, Roy picks up where he left off**\
+`Kirby Dach has some good perspective on his own importance to the Canadiens' success and the roadblocks he has had in his career so far.`\
+https://nytimes.com/athletic/5782928/2024/09/20/canadiens-dach-laine-roy/
+
 **With Robinson Candidacy, North Carolina Republicans Fear Damage to Years of Gains**\
 `Explosive posts by the Republican candidate for governor, Mark Robinson, are sending waves of anxiety through a state party that has long been tactical and disciplined.`\
 https://nytimes.com/2024/09/20/us/mark-robinson-north-carolina-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5782825/2024/09/20/cubs-cody-bellinger-contract/
 **Michel Siffre, 85, Dies; Descended Into Caves to Study the Human Mind**\
 `He was a pioneer in chronobiology, the study of how our bodies understand the passage of time.`\
 https://nytimes.com/2024/09/20/science/michel-siffre-dead.html
-
-**Even before the CNN story, Mark Robinson was behind in polls of North Carolina’s governor’s race.**\
-`By Kaleigh Rogers and Alex Lemonides`\
-https://nytimes.com/live/2024/09/20/us/trump-harris-election/even-before-the-cnn-story-mark-robinson-was-behind-in-polls-of-north-carolinas-governors-race
 
