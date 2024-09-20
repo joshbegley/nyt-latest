@@ -1,3 +1,11 @@
+**Review: Blood, Sex, Murder and Dance (No Screams)**\
+`Marikiscrycrycry examines fresh territory in “Goner,” but his ideas remain theatrically inert.`\
+https://nytimes.com/2024/09/20/arts/dance/review-goner-marikiscrycrycry-abrons.html
+
+**Who Is Ibrahim Aqeel, the Hezbollah Commander Targeted by Israel?**\
+`The senior leader, who survived multiple assassination attempts, has been sought by the United States for bombings in the 1980s. Here is a closer look.`\
+https://nytimes.com/2024/09/20/world/middleeast/ibrahim-aqeel-hezbollah-commander-what-to-know.html
+
 **Trump’s Victories at the Supreme Court**\
 `Readers discuss a story about the chief justice’s role. Also: Loving children who are not your own; college football madness.`\
 https://nytimes.com/2024/09/20/opinion/trump-supreme-court-john-roberts.html

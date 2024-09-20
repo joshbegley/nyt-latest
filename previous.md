@@ -1,3 +1,11 @@
+**Review: Blood, Sex, Murder and Dance (No Screams)**\
+`Marikiscrycrycry examines fresh territory in “Goner,” but his ideas remain theatrically inert.`\
+https://nytimes.com/2024/09/20/arts/dance/review-goner-marikiscrycrycry-abrons.html
+
+**Who Is Ibrahim Aqeel, the Hezbollah Commander Targeted by Israel?**\
+`The senior leader, who survived multiple assassination attempts, has been sought by the United States for bombings in the 1980s. Here is a closer look.`\
+https://nytimes.com/2024/09/20/world/middleeast/ibrahim-aqeel-hezbollah-commander-what-to-know.html
+
 **Trump’s Victories at the Supreme Court**\
 `Readers discuss a story about the chief justice’s role. Also: Loving children who are not your own; college football madness.`\
 https://nytimes.com/2024/09/20/opinion/trump-supreme-court-john-roberts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5779782/2024/09/20/scoop-city-one-reason-why-nfl-pa
 **Who are NASCAR's best young drivers? Here's our list of the top 10 prospects**\
 `We polled several in the NASCAR industry to find a list of the names they're most excited about. Here are our top 10 under-25 prospects.`\
 https://nytimes.com/athletic/5780806/2024/09/20/nascar-prospects-connor-zilisch-corey-day/
-
-**Sharks training camp: 5 big questions they must answer**\
-`Can Logan Couture get past his injury issues? Is Macklin Celebrini already the No. 1 center?`\
-https://nytimes.com/athletic/5781505/2024/09/20/sharks-training-camp-questions-storylines/
-
-**Supreme Court Won’t Restore Jill Stein to the Nevada Ballot**\
-`Democrats had argued that Ms. Stein, the Green Party’s presidential candidate, was ineligible because the party had failed to submit a required statement.`\
-https://nytimes.com/2024/09/20/us/politics/jill-stein-nevada-ballot-supreme-court.html
 
