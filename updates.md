@@ -1,3 +1,11 @@
+**Getty Apologizes for Fireworks Display Gone Awry**\
+`A planned “explosion event” in Los Angeles by the artist Cai Guo-Qiang left several injured and others shaken.`\
+https://nytimes.com/2024/09/20/arts/design/getty-apologizes-fireworks-cai-guo-qiang.html
+
+**Scoop City: Two reasons why NFL passing stats are down**\
+`A look at potential factors for a league struggling to pass the ball, plus the inside scoop on how Jim Harbaugh motivates the 2-0 Chargers`\
+https://nytimes.com/athletic/5779782/2024/09/20/scoop-city-one-reason-why-nfl-passing-stats-are-down/
+
 **Who are NASCAR's best young drivers? Here's our list of the top 10 prospects**\
 `We polled several in the NASCAR industry to find a list of the names they're most excited about. Here are our top 10 under-25 prospects.`\
 https://nytimes.com/athletic/5780806/2024/09/20/nascar-prospects-connor-zilisch-corey-day/
