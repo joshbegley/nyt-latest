@@ -1,3 +1,11 @@
+**With World’s Attention Shifting, Some in Gaza Fear They Will Be Forgotten**\
+`Even as Israel signals that it is moving its focus to its northern border with Lebanon, there has been no pause to its bombardment in Gaza, where residents are facing another winter with little access to food or shelter.`\
+https://nytimes.com/2024/09/20/world/middleeast/gaza-cease-fire-talks-hezbollah-lebanon.html
+
+**Simeone on new Champions League format: 'It forces us to win'**\
+`Atletico Madrid manager Diego Simeone says the new Champions League format &#8220;forces us to win&#8221;.`\
+https://nytimes.com/athletic/5781714/2024/09/20/diego-simeone-atletico-madrid-champions-league/
+
 **The Pulse: Holy s--, Shohei**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5779509/2024/09/20/shohei-ohtani-record-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5776144/2024/09/20/wsl-storylines-to-watch-bompasto
 **FPL Q&A: Gameweek 5 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 5 Fantasy Premier League Q&A from 4pm UK time on Friday`\
 https://nytimes.com/athletic/5781581/2024/09/20/fantasy-premier-league-advice-injury-news-gw5/
-
-**Christian Benteke: My game in my words**\
-`This season's top scorer in MLS analyses key moments from his career — from *that* overhead kick at Old Trafford to shining for D.C. United`\
-https://nytimes.com/athletic/5777167/2024/09/20/christian-benteke-dc-united-interview-analysis-mls/
-
-**Inside the Panthers' offseason, from 'champagne problems' to a new hunger: Catching up with Bill Zito**\
-`The GM of the reigning champs takes The Athletic through a "hectic" short summer of critical roster decisions — and the ones coming next.`\
-https://nytimes.com/athletic/5779757/2024/09/20/panthers-offseason-bill-zito/
 

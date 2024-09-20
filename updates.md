@@ -1,3 +1,11 @@
+**With World’s Attention Shifting, Some in Gaza Fear They Will Be Forgotten**\
+`Even as Israel signals that it is moving its focus to its northern border with Lebanon, there has been no pause to its bombardment in Gaza, where residents are facing another winter with little access to food or shelter.`\
+https://nytimes.com/2024/09/20/world/middleeast/gaza-cease-fire-talks-hezbollah-lebanon.html
+
+**Simeone on new Champions League format: 'It forces us to win'**\
+`Atletico Madrid manager Diego Simeone says the new Champions League format &#8220;forces us to win&#8221;.`\
+https://nytimes.com/athletic/5781714/2024/09/20/diego-simeone-atletico-madrid-champions-league/
+
 **The Pulse: Holy s--, Shohei**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5779509/2024/09/20/shohei-ohtani-record-the-pulse/
