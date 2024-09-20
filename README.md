@@ -1,3 +1,11 @@
+**Arsenal have to beat Man City - Vieira**\
+`Former Arsenal captain Patrick Vieira believes his old side &#8220;have to win&#8221; against Manchester City if they are to stand any chance of toppling the reigning Premier League champions.`\
+https://nytimes.com/athletic/5782368/2024/09/20/patrick-vieira-arsenal-man-city/
+
+**ECU's Shavon Revel Jr. tears ACL: What it means for his draft outlook**\
+`The cornerback was considered a top prospect for the 2025 NFL Draft.`\
+https://nytimes.com/athletic/5782418/2024/09/20/shavon-revel-acl-tear-nfl-draft-ecu/
+
 **Israel’s Attacks on Hezbollah Intensify but Stop Short of All-Out War**\
 `Israel is attempting a risky strategy, increasing the intensity of its attacks in an attempt to force Hezbollah to back down, while raising the chances of an aggressive response that devolves into a land war.`\
 https://nytimes.com/2024/09/20/world/middleeast/israel-lebanon-attacks-hezbollah-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5782272/2024/09/20/dan-campbell-selling-home-securi
 **Harris Has a Polling Edge in Wisconsin, but Democrats Don’t Trust It**\
 `The vice president, who is visiting the state on Friday, has led Donald Trump there more often than not. Yet nearly everyone in Wisconsin politics believes the race will be incredibly close.`\
 https://nytimes.com/2024/09/20/us/politics/harris-polling-wisconsin.html
-
-**How Luisangel Acuña has impressed while filling in for Francisco Lindor**\
-`Acuña is the first Mets player ever to record a single, double, triple and home run in his first five games with an at-bat.`\
-https://nytimes.com/athletic/5782306/2024/09/20/mets-luisangel-acuna-prospect/
-
-**F.T.C. Accuses Drug Middlemen of Inflating Insulin Prices**\
-`The case takes aim at the major pharmacy benefit managers, agency officials said, claiming that they favored more expensive insulin products and forced patients to pay more.`\
-https://nytimes.com/2024/09/20/health/ftc-drug-price-inflation-insulin.html
 
