@@ -2,6 +2,10 @@
 `Brighton will make a late decision on the availability of Joao Pedro for Sunday’s Premier League home game against Nottingham Forest.`\
 https://nytimes.com/athletic/5781618/2024/09/20/joao-pedro-brighton-nottingham-forest/
 
+**An 'alien' is coming to Atlanta: Falcons admit Mahomes Week is different**\
+`Patrick Mahomes and the Chiefs visit the Falcons for "Sunday Night Football." Atlanta won't pretend that Mahomes is just another player.`\
+https://nytimes.com/athletic/5779399/2024/09/20/patrick-mahomes-kc-chiefs-atlanta-falcons/
+
 **The New York Times News Quiz, September 20, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/09/20/briefing/hezbollah-attack-diddy-trump-fed-rates-news-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/us/politics/biden-cancer-moonshot-summit.html
 **What Trump Did to the G.O.P., Musk Did to Twitter**\
 `It’s more toxic but less relevant than ever.`\
 https://nytimes.com/2024/09/20/opinion/trump-elon-musk-twitter-x.html
-
-**How Texas is achieving rare QB harmony with Arch Manning, Quinn Ewers**\
-`On the eve of Arch Manning's first start, against the odds, Steve Sarkisian and the Longhorns have navigated this situation masterfully.`\
-https://nytimes.com/athletic/5781288/2024/09/20/arch-manning-texas-football-quinn-ewers/
 

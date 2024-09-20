@@ -1,40 +1,40 @@
-**Patricia Field: Her Joyful, Chaotic Fashion Sense Gets a Film to Match**\
-`“Happy Clothes” covers her work on “Emily in Paris” and “Sex and the City,” as well as her time as a tastemaker in the 1970s and ’80s underground.`\
-https://nytimes.com/2024/09/20/movies/happy-clothes-review-patricia-field-doc.html
+**Brighton to make late call on Joao Pedro for Forest clash**\
+`Brighton will make a late decision on the availability of Joao Pedro for Sunday’s Premier League home game against Nottingham Forest.`\
+https://nytimes.com/athletic/5781618/2024/09/20/joao-pedro-brighton-nottingham-forest/
 
-**How the Fastest-Growing County in Wisconsin Is Scrambling the Presidential Race**\
-`Madison, Wis., and its blossoming suburbs are drawing newcomers for tech and health care jobs. With a swing state in the balance, Democrats see promise.`\
-https://nytimes.com/2024/09/20/us/trump-harris-election-wisconsin.html
+**The New York Times News Quiz, September 20, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/09/20/briefing/hezbollah-attack-diddy-trump-fed-rates-news-quiz.html
 
-**Who’s the Dodo Now? A Famously Extinct Bird, Reconsidered.**\
-`A comprehensive review of dodo science offers new insights into the biology and behavior of the much-ridiculed bird.`\
-https://nytimes.com/2024/09/20/science/archaeology-dodo-extinction.html
+**Under the radar: 11 storylines from around the league that are worth your attention**\
+`Let's dig into some of the less-heralded great — and not-so-great — MLB stories that are worth your attention down the stretch.`\
+https://nytimes.com/athletic/5779874/2024/09/20/under-the-radar-mlb-storylines/
 
-**When the Horror Is Coming From Under Your Own Skin**\
-`As “The Substance” hits theaters, here’s a look at eight other films in the goopy subgenre of body horror.`\
-https://nytimes.com/2024/09/20/movies/the-substance-body-horror-movies.html
+**Don’t Fall Into the ‘Cynicism Trap’**\
+`Expecting the worst from others is actually bad for our health, experts say.`\
+https://nytimes.com/2024/09/20/well/cynicism-trap-health.html
 
-**With Williams, Carlos Sainz Knows He’ll Need Patience**\
-`After losing his 2025 seat with Ferrari, the Spanish driver lands with a team with long-term plans.`\
-https://nytimes.com/2024/09/20/sports/autoracing/f1-williams-carlos-sainz.html
+**The Week in Bad Political Behavior**\
+`Vile remarks in North Carolina, a local indictment in Washington, and an odd defense by the first lady.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/bad-political-behavior
 
-**A Concert Celebrates Jimmy Carter’s 100th Birthday, With Music and Thanks**\
-`The B-52s, BeBe Winans, Angélique Kidjo, Chuck Leavell and many others performed in Atlanta at a concert honoring the former president, who has been in hospice care.`\
-https://nytimes.com/2024/09/20/arts/music/jimmy-carter-100th-birthday-concert.html
+**OpenAI’s Reasoning Machine, Instagram Teen Changes and Amazon R.T.O. Drama**\
+`“They should have just called it Strawberry. At least that’s delicious.”`\
+https://nytimes.com/2024/09/20/podcasts/hardfork-o1-meta-teens-amazon.html
 
-**Kamala Harris Has Proposed an ‘Opportunity Economy.’ This Is How to Make It a Reality.**\
-`What we can learn from the science of economic opportunity.`\
-https://nytimes.com/2024/09/20/opinion/kamala-harris-opportunity-economy.html
+**USC a national title contender? James Franklin due a contract extension? Big Ten mailbag**\
+`Is Indiana sneaky good or UCLA very bad? Who are the Big Ten's top RBs? How big of a role does scheduling play in an 18-team league?`\
+https://nytimes.com/athletic/5780617/2024/09/20/big-ten-usc-penn-state-james-franklin/
 
-**On an Italian Island, a Home That Celebrates Color and Craft**\
-`Atop the volcanic cliffs on the tranquil Salina, one woman has created a respite where art and nature reside in perfect harmony.`\
-https://nytimes.com/2024/09/20/t-magazine/italy-island-home.html
+**Biden Will Take Cancer ‘Moonshot’ Global at Summit in Delaware**\
+`The president will join the leaders of Australia, India and Japan to announce a new initiative for reducing cervical cancer in the Indo-Pacific, a region with especially high rates of the disease.`\
+https://nytimes.com/2024/09/20/us/politics/biden-cancer-moonshot-summit.html
 
-**Remember ‘Frindle’? Andrew Clements Had a Sequel Up His Sleeve.**\
-`More than 25 years later, the pen of another name meets a new generation of wordsmiths.`\
-https://nytimes.com/2024/09/20/books/review/frindle-andrew-clements-marcelo-martello-marshmallow-ruth-rocha.html
+**What Trump Did to the G.O.P., Musk Did to Twitter**\
+`It’s more toxic but less relevant than ever.`\
+https://nytimes.com/2024/09/20/opinion/trump-elon-musk-twitter-x.html
 
-**Natasha Rothwell and Samara Joy on Finding Their Voices**\
-`The “How to Die Alone” creator and actress and the Grammy-winning jazz singer talk about genre, improvisation and romantic comedies.`\
-https://nytimes.com/2024/09/20/t-magazine/natasha-rothwell-samara-joy.html
+**How Texas is achieving rare QB harmony with Arch Manning, Quinn Ewers**\
+`On the eve of Arch Manning's first start, against the odds, Steve Sarkisian and the Longhorns have navigated this situation masterfully.`\
+https://nytimes.com/athletic/5781288/2024/09/20/arch-manning-texas-football-quinn-ewers/
 
