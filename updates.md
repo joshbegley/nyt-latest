@@ -1,3 +1,7 @@
+**Ferguson reflects on life as football manager: 'I miss it sometimes'**\
+`Eleven years on from his retirement from the game, Sir Alex Ferguson has admitted he still misses being a football manager.`\
+https://nytimes.com/athletic/5781633/2024/09/20/sir-alex-ferguson-manager-manchester-united/
+
 **Commanders WR Noah Brown, slowed by injuries, won't stop fighting: 'That's all I know'**\
 `The receiver has had a number of setbacks throughout his football career, but his resiliency allows him to keep pushing through. `\
 https://nytimes.com/athletic/5780678/2024/09/20/commanders-noah-brown-injuries/

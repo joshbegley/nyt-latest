@@ -1,3 +1,7 @@
+**Ferguson reflects on life as football manager: 'I miss it sometimes'**\
+`Eleven years on from his retirement from the game, Sir Alex Ferguson has admitted he still misses being a football manager.`\
+https://nytimes.com/athletic/5781633/2024/09/20/sir-alex-ferguson-manager-manchester-united/
+
 **Commanders WR Noah Brown, slowed by injuries, won't stop fighting: 'That's all I know'**\
 `The receiver has had a number of setbacks throughout his football career, but his resiliency allows him to keep pushing through. `\
 https://nytimes.com/athletic/5780678/2024/09/20/commanders-noah-brown-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781618/2024/09/20/joao-pedro-brighton-nottingham-f
 **An 'alien' is coming to Atlanta: Falcons admit Mahomes Week is different**\
 `Patrick Mahomes and the Chiefs visit the Falcons for "Sunday Night Football." Atlanta won't pretend that Mahomes is just another player.`\
 https://nytimes.com/athletic/5779399/2024/09/20/patrick-mahomes-kc-chiefs-atlanta-falcons/
-
-**The New York Times News Quiz, September 20, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/09/20/briefing/hezbollah-attack-diddy-trump-fed-rates-news-quiz.html
 
