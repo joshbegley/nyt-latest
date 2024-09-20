@@ -1,3 +1,11 @@
+**Harris Slams G.O.P. Abortion Bans as a Painful ‘Health Care Crisis’**\
+`“Donald Trump is the architect of this crisis,” Kamala Harris said in Georgia, where reporting this week found that the deaths of two women were a result of delayed treatment for medication abortions.`\
+https://nytimes.com/2024/09/20/us/politics/harris-gop-abortion-bans-health-care-crisis.html
+
+**Donald Trump's ex-lawyer bidding to buy Tranmere Rovers**\
+`Donald Trump’s former lawyer Joe Tacopina is leading a consortium that wants to buy English League Two side Tranmere Rovers and replicate Wrexham’s star-fuelled climb up the table.`\
+https://nytimes.com/athletic/5782726/2024/09/20/trump-lawyer-buying-tranmere-rovers-joe-tacopina/
+
 **In Beirut, rescue workers search for survivors while others wait for news.**\
 `By Hwaida Saad and Euan Ward`\
 https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/in-beirut-rescue-workers-search-for-survivors-while-others-wait-for-news
