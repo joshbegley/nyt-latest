@@ -1,3 +1,15 @@
+**Trump’s Victories at the Supreme Court**\
+`Readers discuss a story about the chief justice’s role. Also: Loving children who are not your own; college football madness.`\
+https://nytimes.com/2024/09/20/opinion/trump-supreme-court-john-roberts.html
+
+**The Best of Late Night This Week**\
+`This week, the hosts focused mostly on news surrounding former President Donald Trump, including the second apparent assassination attempt against him, this time while he was golfing at a Florida club of his, as well as Trump lashing out online about Taylor Swift.`\
+https://nytimes.com/interactive/2024/09/20/arts/best-of-late-night-taylor.html
+
+**San Francisco Symphony Chorus Goes on Strike**\
+`The work stoppage has forced a cancellation of the Verdi Requiem performances.`\
+https://nytimes.com/2024/09/20/arts/music/san-francisco-symphony-chorus-strike.html
+
 **How Raya built the technique behind his incredible double save**\
 `Raya's amazing double save against Atalanta has been rightly praised - the hard work that produced it was honed on the training pitch`\
 https://nytimes.com/athletic/5781660/2024/09/20/david-raya-double-save-arsenal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5781505/2024/09/20/sharks-training-camp-questions-s
 **Supreme Court Won’t Restore Jill Stein to the Nevada Ballot**\
 `Democrats had argued that Ms. Stein, the Green Party’s presidential candidate, was ineligible because the party had failed to submit a required statement.`\
 https://nytimes.com/2024/09/20/us/politics/jill-stein-nevada-ballot-supreme-court.html
-
-**Whither Marco Luciano? The Giants' decision to bury him on the bench is puzzling**\
-`In a strange season, the Giants' decision to bury Luciano behind journeymen after the team was out of the race is the strangest.`\
-https://nytimes.com/athletic/5780543/2024/09/20/marco-luciano-sf-giants-playing-time/
-
-**Vikings pass rusher Jonathan Greenard gears up for Texans showdown with 'respect'**\
-`After the Vikings and Texans effectively swapped Greenard for veteran edge rusher Danielle Hunter, both defenses appear to be thriving.`\
-https://nytimes.com/athletic/5781028/2024/09/20/jonathan-greenard-vikings-texans-danielle-hunter/
-
-**North Carolina NAACP calls on Mark Robinson to drop out of the governor’s race.**\
-`By Eduardo Medina`\
-https://nytimes.com/live/2024/09/20/us/trump-harris-election/north-carolina-naacp-calls-on-mark-robinson-to-drop-out-of-the-governors-race
 
