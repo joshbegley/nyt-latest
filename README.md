@@ -15,7 +15,7 @@ https://nytimes.com/2024/09/20/world/asia/north-korea-trash-balloon.html
 https://nytimes.com/athletic/5773870/2024/09/20/twins-pitching-payroll-cut-trade-deadline/
 
 **E.U. Plans to Offer $39 Billion Loan to Ukraine Without the U.S.**\
-`European Union officials reduced a planned loan after Hungary blocked an agreement that would have satisfied U.S. requirements for a joint loan to move forward.`\
+`Brussels officials reduced a planned loan after Hungary blocked an agreement that would have allowed a joint proposal with Washington to move forward.`\
 https://nytimes.com/2024/09/20/business/ukraine-aid-russian-assets.html
 
 **What Nebraska's NCAA-record 400 consecutive sellouts mean to the Huskers and their fans**\
