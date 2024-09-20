@@ -1,3 +1,11 @@
+**How Israel’s Technological Trojan Horse Destabilized Hezbollah**\
+`The explosion of devices carried by thousands of Hezbollah operatives sowed panic sowed panic and overwhelmed hospitals across Lebanon.`\
+https://nytimes.com/video/world/middleeast/100000009703279/how-israels-technological-trojan-horse-destabilized-hezbollah.html
+
+**Ohtani's historic 50/50 HR ball prompts chaotic scramble**\
+`Fans dove toward where the ball dropped down under a table. One man in a black T-shirt emerged from the dangerous scrum with the ball.`\
+https://nytimes.com/athletic/5781104/2024/09/19/shohei-ohtani-50-home-run-ball/
+
 **WNBA playoff matchups set; Atlanta Dream claim final spot**\
 `Following the 2021 season, the WNBA altered its playoff format to get rid of single-elimination games and byes to the semifinals.`\
 https://nytimes.com/athletic/5781126/2024/09/19/wnba-playoff-matchups-postseason-format/
