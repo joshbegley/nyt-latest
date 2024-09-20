@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5782631/2024/09/20/red-wings-roster-training-camp/
 `By Alissa J. Rubin`\
 https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/iraqi-armed-group-backed-by-iran-says-a-senior-member-was-killed-in-a-strike-in-syria
 
-**As Cubs approach another long offseason, Cody Bellinger hasn’t made his contract decision**\
+**As Cubs approach another long offseason, Cody Bellinger hasn’t made contract decision**\
 `The Cubs might be fine with Bellinger staying or leaving, considering their internal options and the value he brings as a two-way player.`\
 https://nytimes.com/athletic/5782825/2024/09/20/cubs-cody-bellinger-contract/
 
