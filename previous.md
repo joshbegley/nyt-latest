@@ -1,3 +1,7 @@
+**Security Firm Linked to Top Adams Aide Won Millions in N.Y.C. Business**\
+`The company received a $154 million contract to provide “emergency fire watch services” to the New York City Housing Authority. The firm was once owned by the deputy mayor for public safety.`\
+https://nytimes.com/2024/09/20/nyregion/fbi-phil-banks-contracts.html
+
 **Rallying in Two Key States, Harris Presses Her Case on Abortion Rights**\
 `Visiting Wisconsin after giving a speech in Georgia, the vice president signaled she would focus on the life-or-death risks of abortion bans in the final weeks of the race.`\
 https://nytimes.com/2024/09/20/us/politics/harris-rally-wisconsin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/technology/qualcomm-intel-talks-sale.html
 **Canadiens training camp: Patience with Dach and Laine, Roy picks up where he left off**\
 `Kirby Dach has some good perspective on his own importance to the Canadiens' success and the roadblocks he has had in his career so far.`\
 https://nytimes.com/athletic/5782928/2024/09/20/canadiens-dach-laine-roy/
-
-**With Robinson Candidacy, North Carolina Republicans Fear Damage to Years of Gains**\
-`Explosive posts by the Republican candidate for governor, Mark Robinson, are sending waves of anxiety through a state party that has long been tactical and disciplined.`\
-https://nytimes.com/2024/09/20/us/mark-robinson-north-carolina-republicans.html
 
