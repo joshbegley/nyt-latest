@@ -1,3 +1,7 @@
+**Liz Cheney Suggests a New Political Party May Be Needed**\
+`Ms. Cheney, a longtime Republican, said that the G.O.P. “has rejected the Constitution in the name of supporting Trump” and that Mike Johnson should not be speaker.`\
+https://nytimes.com/2024/09/21/us/politics/liz-cheney-republican-party.html
+
 **Wolves defender Mosquera's knee injury "doesn't look good" says O'Neil**\
 `Wolves defender Yerson Mosquera is facing scans this week amid fears he could have suffered a serious knee injury in this afternoon’s defeat at Aston Villa.`\
 https://nytimes.com/athletic/5783738/2024/09/21/wolves-aston-villa-yerson-mosquera-injury/
