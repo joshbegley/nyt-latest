@@ -7,7 +7,7 @@ https://nytimes.com/2024/09/21/magazine/sally-rooney-interview.html
 https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
 
 **Live Updates: With Death Toll Rising, Tensions Run High After Israeli Strike in Beirut**\
-`Hezbollah said a senior leader was among those killed, the day after confirming the death of a top commander wanted by the U.S. Lebanon’s Health Ministry said the death toll had risen to 31 and included women and children.`\
+`Hezbollah said a senior leader was among those killed, the day after confirming the death of a top commander wanted by the U.S. Lebanon’s Health Ministry said the death toll had risen to at least 31 and included women and children.`\
 https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah
 
 **First-and-10: Ravens-Cowboys key matchups and subplots, plus a prediction**\
