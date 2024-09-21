@@ -1,3 +1,7 @@
+**Phillies secure playoff berth for third consecutive season**\
+`From 2012 to 2021, the Phillies went a full decade without a postseason appearance, but they’ve steadily built themselves into a contender.`\
+https://nytimes.com/athletic/5777283/2024/09/20/philadelphia-phillies-clinch-playoff-spot/
+
 **Works on a Loop, Say**\
 `David Karp’s puzzle sends us up, down and all around.`\
 https://nytimes.com/2024/09/20/crosswords/daily-puzzle-2024-09-21.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5782782/2024/09/20/canucks-observations-training-ca
 **Raiders' Koonce to undergo season-ending knee surgery**\
 `Koonce suffered the injury during practice ahead of the Raiders' Week 1 matchup with the Los Angeles Chargers.`\
 https://nytimes.com/athletic/5783022/2024/09/20/raiders-malcolm-koonce-injury-out-for-season/
-
-**What Happened During the 1983 Bombings in Beirut?**\
-`One of Hezbollah’s top military commanders, who was accused of helping plan the blasts four decades ago, was killed on Friday in an Israeli airstrike.`\
-https://nytimes.com/2024/09/20/world/middleeast/1983-bombings-beirut.html
 
