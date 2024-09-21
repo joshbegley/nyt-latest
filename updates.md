@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 3 Brentford 1 - Johnson scores again but should Vicario have been punished for handball?**\
+`Spurs recovered from going behind after 23 seconds, and Johnson was on the scoresheet once more having been their midweek cup hero`\
+https://nytimes.com/athletic/5778682/2024/09/21/tottenham-brentford-johnson-vicario-handball/
+
 **Gotham's Kelley O'Hara on season-ending injury list**\
 `O’Hara, an Olympic gold medalist with the USWNT, announced her plans in May to retire from soccer at the end of the NWSL season.`\
 https://nytimes.com/athletic/5783625/2024/09/21/kelley-ohara-injury-gotham-uswnt/
