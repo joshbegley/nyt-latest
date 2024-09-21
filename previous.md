@@ -1,3 +1,7 @@
+**JD Vance to Appear With Tucker Carlson, Who Amplified False Holocaust Claims**\
+`The Republican vice-presidential nominee will share a stage with Mr. Carlson, who was criticized for interviewing a writer who falsely claimed the Holocaust was not an intentional act of genocide.`\
+https://nytimes.com/2024/09/21/us/politics/vance-tucker-carlson.html
+
 **Robert Lansdorp, Prominent Coach of Tennis Champions, Dies at 85**\
 `His students, including Tracy Austin, Maria Sharapova, Pete Sampras and Lindsay Davenport, developed their ground strokes through his regimen of intense repetition.`\
 https://nytimes.com/2024/09/21/sports/tennis/robert-lansdorp-dead.html
@@ -18,8 +22,8 @@ https://nytimes.com/2024/09/21/world/americas/kenya-haiti-ruto.html
 `A person in Ulster County has been hospitalized with Eastern equine encephalitis, health officials said. It is the first confirmed human case of the disease recorded in the state since 2015.`\
 https://nytimes.com/2024/09/21/nyregion/mosquitoes-eee-new-york.html
 
-**Harris Agrees to a CNN Debate and Pressures Trump to Join**\
-`Vice President Kamala Harris, who was widely seen as the winner of the Sept. 10 debate against former President Donald J. Trump, is seeking a rematch.`\
+**Harris Agrees to a Second Debate, but Trump Declines**\
+`Vice President Kamala Harris, who was widely seen as the winner of the Sept. 10 debate against former President Donald J. Trump, has accepted a debate invitation from CNN.`\
 https://nytimes.com/2024/09/21/us/politics/harris-trump-cnn-debate-october.html
 
 **JMU dominates North Carolina with historic 53-point first half**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/us/politics/biden-quad-summit.html
 **Macron Appoints Cabinet as He Seeks to Move France Out of Political Impasse**\
 `The government still faces two challenges in the coming weeks: the risk of a no-confidence vote and a tight budget deadline.`\
 https://nytimes.com/2024/09/21/world/europe/macron-france-cabinet.html
-
-**The Briefing: Palace 0 Man Utd 0 - Was Ten Hag right to leave out Rashford? Dalot key, Onana's wondersave**\
-`United failed to take advantage of their first-half dominance - and had Andre Onana to thank for the point. Here are the key talking points`\
-https://nytimes.com/athletic/5779419/2024/09/21/crystal-palace-0-man-utd-0-ten-hag-rashford-onana/
 

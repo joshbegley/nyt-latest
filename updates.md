@@ -1,3 +1,11 @@
+**JD Vance to Appear With Tucker Carlson, Who Amplified False Holocaust Claims**\
+`The Republican vice-presidential nominee will share a stage with Mr. Carlson, who was criticized for interviewing a writer who falsely claimed the Holocaust was not an intentional act of genocide.`\
+https://nytimes.com/2024/09/21/us/politics/vance-tucker-carlson.html
+
+**Harris Agrees to a Second Debate, but Trump Declines**\
+`Vice President Kamala Harris, who was widely seen as the winner of the Sept. 10 debate against former President Donald J. Trump, has accepted a debate invitation from CNN.`\
+https://nytimes.com/2024/09/21/us/politics/harris-trump-cnn-debate-october.html
+
 **Robert Lansdorp, Prominent Coach of Tennis Champions, Dies at 85**\
 `His students, including Tracy Austin, Maria Sharapova, Pete Sampras and Lindsay Davenport, developed their ground strokes through his regimen of intense repetition.`\
 https://nytimes.com/2024/09/21/sports/tennis/robert-lansdorp-dead.html
