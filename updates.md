@@ -1,3 +1,7 @@
+**Legendary Suns radio broadcaster Al McCoy dies at 91**\
+`McCoy called his last game for the Suns on May 11, 2023, after 51 years behind the microphone.`\
+https://nytimes.com/athletic/5784353/2024/09/21/al-mccoy-suns-broadcaster-obituary/
+
 **N.Y.P.D. Understated Woman’s Wound in Subway Shooting, Lawyer Says**\
 `Kerry Gahalal, who was struck when officers shot a knife-wielding man at a Brooklyn station, was not simply “grazed” as officials said, according to a lawyer for the woman’s family.`\
 https://nytimes.com/2024/09/21/nyregion/nypd-subway-shooting-kerry-gahalal.html
