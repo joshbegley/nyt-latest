@@ -1,3 +1,7 @@
+**F1 Singapore GP preview: Norris and Verstappen's title fight faces a crucial moment**\
+`F1's championship leaders will line up side-by-side on the front row on Sunday. `\
+https://nytimes.com/athletic/5783658/2024/09/21/f1-singapore-gp-preview-lando-norris-max-verstappen/
+
 **Another Way of Looking at Jim Crow**\
 `The purpose of segregation was as much to weaken labor as it was to institutionalize race hierarchy.`\
 https://nytimes.com/2024/09/21/opinion/jim-crow-trump-vance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/opinion/california-wildfires-west-forest-service.
 **The Briefing: Tottenham 3 Brentford 1 - Johnson scores again but should Vicario have been punished for handball?**\
 `Spurs recovered from going behind after 23 seconds, and Johnson was on the scoresheet once more having been their midweek cup hero`\
 https://nytimes.com/athletic/5778682/2024/09/21/tottenham-brentford-johnson-vicario-handball/
-
-**Earth’s Fall Equinox Ushers In Astronomical Autumn**\
-`During an equinox, places around the globe experience nearly equal amounts of daytime and nighttime. The second occurrence this year happens on Sunday.`\
-https://nytimes.com/article/fall-equinox-autumn.html
 
