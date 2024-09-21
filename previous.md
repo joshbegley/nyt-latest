@@ -35,6 +35,6 @@ https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/a-dangerou
 https://nytimes.com/2024/09/20/technology/qualcomm-intel-talks-sale.html
 
 **Canadiens training camp: Patience with Dach and Laine, Roy picks up where he left off**\
-`Kirby Dach has some good perspective on his own importance to the Canadiens' success and the roadblocks he has had in his career so far.`\
+`Dach has some good perspective on his own importance to the Canadiens' success and the roadblocks he has had in his career so far.`\
 https://nytimes.com/athletic/5782928/2024/09/20/canadiens-dach-laine-roy/
 

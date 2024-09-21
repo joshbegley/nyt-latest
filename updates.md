@@ -1,3 +1,7 @@
+**Canadiens training camp: Patience with Dach and Laine, Roy picks up where he left off**\
+`Dach has some good perspective on his own importance to the Canadiens' success and the roadblocks he has had in his career so far.`\
+https://nytimes.com/athletic/5782928/2024/09/20/canadiens-dach-laine-roy/
+
 **Security Firm Linked to Top Adams Aide Won Millions in N.Y.C. Business**\
 `The company received a $154 million contract to provide “emergency fire watch services” to the New York City Housing Authority. The firm was once owned by the deputy mayor for public safety.`\
 https://nytimes.com/2024/09/20/nyregion/fbi-phil-banks-contracts.html
