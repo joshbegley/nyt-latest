@@ -1,3 +1,7 @@
+**Harris Enters Homestretch With a Far Bigger, Costlier Campaign Than Trump**\
+`Kamala Harris is collecting more money, spending more money and sitting on more money than Donald J. Trump.`\
+https://nytimes.com/2024/09/21/us/elections/harris-trump-fundraising-fec-reports.html
+
 **What I’m hearing: Steelers ready to cook with Fields, Herbert and Love updates, Bryce Young’s reality**\
 `Plus, Kevin O’Connell’s latest success story (and the coach's contract), why it’s working for Derek Carr, kickers go long, and more.`\
 https://nytimes.com/athletic/5783024/2024/09/21/jordan-love-justin-herbert-injury-updates-justin-fields-steelers-offense-bryce-young-benching/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783484/2024/09/21/barcelona-flick-ter-stegen/
 **Mutual admiration: Matt Chapman, Logan Webb embrace long-term leadership roles with Giants**\
 `Chapman and Webb squared off as professional rookies in 2014. Now they are united in a vision for the future of the Giants as veterans.`\
 https://nytimes.com/athletic/5782117/2024/09/21/sf-giants-matt-chapman-logan-webb-leadership/
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/09/21/us/trump-harris-election/heres-the-latest-on-the-presidential-race
 
