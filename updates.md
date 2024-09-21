@@ -1,3 +1,7 @@
+**Harris Enters Homestretch With a Far Bigger, Costlier Campaign Than Trump**\
+`Kamala Harris is collecting more money, spending more money and sitting on more money than Donald J. Trump.`\
+https://nytimes.com/2024/09/21/us/elections/harris-trump-fundraising-fec-reports.html
+
 **What I’m hearing: Steelers ready to cook with Fields, Herbert and Love updates, Bryce Young’s reality**\
 `Plus, Kevin O’Connell’s latest success story (and the coach's contract), why it’s working for Derek Carr, kickers go long, and more.`\
 https://nytimes.com/athletic/5783024/2024/09/21/jordan-love-justin-herbert-injury-updates-justin-fields-steelers-offense-bryce-young-benching/
