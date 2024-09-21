@@ -1,3 +1,19 @@
+**Arteta's time at Man City and the training drill that transformed Sterling**\
+`Arteta played a key role in turning Sterling from a threatening winger into a truly dangerous goalscorer at City. Can he do it again?`\
+https://nytimes.com/athletic/5779152/2024/09/21/sterling-arteta-arsenal-man-city/
+
+**'It's like the Titanic': The decline of Girondins de Bordeaux**\
+`One of France's most famous clubs have been brought to their knees by financial chaos - is there a way back?`\
+https://nytimes.com/athletic/5781741/2024/09/21/bordeaux-girondins-decline-financial-trouble/
+
+**A tribute to Toto Schillaci, the everyman who seemed capable of everything**\
+`For generations of Italians, he came to represent the best summer of their lives. He didn't only give his best for Italy. He went beyond`\
+https://nytimes.com/athletic/5781645/2024/09/21/toto-schillaci-tribute-italy/
+
+**What is the true value of a Premier League goal?**\
+`Does Haaland score lots of his goals against the weaker teams? And does that make each of them less valuable? Read on...`\
+https://nytimes.com/athletic/5774267/2024/09/21/adjusting-the-value-of-a-premier-league-goal/
+
 **Ozzie Albies returns to Braves but momentum evaporates against Marlins**\
 `Albies went hitless in his return but the Braves hope he can bring a spark with their playoff hopes hanging by a thread.`\
 https://nytimes.com/athletic/5783154/2024/09/21/braves-ozzie-albies-returns-marlins/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/21/world/asia/sri-lanka-election.html
 **Saturday's MLB best bets: Projections for pitching matchups, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
 https://nytimes.com/athletic/5782769/2024/09/21/mlb-odds-best-bets-projections-september-21/
-
-**Quote of the Day: Couples Withstand Wrenching Plights Brought On By War**\
-`Quotation of the Day for Saturday, September 21, 2024`\
-https://nytimes.com/2024/09/20/pageoneplus/quote-of-the-day-couples-withstand-wrenching-plights-brought-on-by-war.html
-
-**N.Y.P.D.’s Release of Footage of Subway Shooting Doesn’t Quell Anger**\
-`After seeing video of officers firing at a knife-wielding man, the cousin of a bystander who was badly hurt in the shooting continued to criticize the police.`\
-https://nytimes.com/2024/09/20/nyregion/nypd-shooting-brooklyn-subway-video.html
-
-**The Mets managed Friday like a playoff game. It did not work**\
-`The decision to remove David Peterson didn't work out as the Phillies quickly put the game out reach against Adam Ottavino.`\
-https://nytimes.com/athletic/5783148/2024/09/20/mets-carlos-mendoza-david-peterson/
-
-**Trinity Rodman leaves NWSL match in wheelchair**\
-`Rodman later returned to the bench with an ice pack on her back, a positive sign for the striker who has had a history of back issuues.`\
-https://nytimes.com/athletic/5783128/2024/09/20/trinity-rodman-nwsl-injury-wheelchair/
 
