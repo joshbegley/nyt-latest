@@ -1,3 +1,7 @@
+**N.Y.P.D. Understated Woman’s Wound in Subway Shooting, Lawyer Says**\
+`Kerry Gahalal, who was struck when officers shot a knife-wielding man at a Brooklyn station, was not simply “grazed” as officials said, according to a lawyer for the woman’s family.`\
+https://nytimes.com/2024/09/21/nyregion/nypd-subway-shooting-kerry-gahalal.html
+
 **Michigan knocks off USC in classic Big Ten showdown: What this means for both teams**\
 `Michigan's recipe for success was simple: Run the ball and play defense. And the Wolverines did just enough to beat USC in a thriller. `\
 https://nytimes.com/athletic/5784092/2024/09/21/michigan-usc-alex-orji-miller-moss-big-ten/
