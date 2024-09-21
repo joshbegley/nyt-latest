@@ -1,6 +1,6 @@
 **Harris Agrees to a CNN Debate and Pressures Trump to Join**\
 `Vice President Kamala Harris, who was widely seen as the winner of the Sept. 10 debate against former President Donald J. Trump, is seeking a rematch.`\
-https://nytimes.com/2024/09/21/us/politics/harris-trump-cnn-debate-challenge.html
+https://nytimes.com/2024/09/21/us/politics/harris-trump-cnn-debate-october.html
 
 **JMU dominates North Carolina en route to historic 53-point first half**\
 `The 53 points tallied through two quarters were the most points JMU football has ever scored in a half.`\
