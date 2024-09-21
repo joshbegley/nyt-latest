@@ -1,3 +1,7 @@
+**Corrections: Sept. 21, 2024**\
+`Corrections that appeared in print on Saturday, Sept. 21, 2024.`\
+https://nytimes.com/2024/09/20/pageoneplus/corrections-sept-21-2024.html
+
 **Canadiens training camp: Patience with Dach and Laine, Roy picks up where he left off**\
 `Dach has some good perspective on his own importance to the Canadiens' success and the roadblocks he has had in his career so far.`\
 https://nytimes.com/athletic/5782928/2024/09/20/canadiens-dach-laine-roy/
