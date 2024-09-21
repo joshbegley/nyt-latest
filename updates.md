@@ -1,3 +1,11 @@
+**Raiders' Koonce to undergo season-ending knee surgery**\
+`Koonce suffered the injury during practice ahead of the Raiders' Week 1 matchup with the Los Angeles Chargers.`\
+https://nytimes.com/athletic/5783022/2024/09/20/raiders-malcolm-koonce-injury-out-for-season/
+
+**What Happened During the 1983 Bombings in Beirut?**\
+`One of Hezbollah’s top military commanders, who was accused of helping plan the blasts four decades ago, was killed on Friday in an Israeli airstrike.`\
+https://nytimes.com/2024/09/20/world/middleeast/1983-bombings-beirut.html
+
 **How One Man’s Vote in Nebraska Could Change the Presidential Election**\
 `A single Republican state senator appears to be holding back a push by Donald J. Trump to net a potentially pivotal electoral vote even before ballots are cast.`\
 https://nytimes.com/2024/09/20/us/politics/nebraska-trump-electoral-vote.html
