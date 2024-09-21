@@ -1,3 +1,19 @@
+**Arteta's time at Man City and the training drill that transformed Sterling**\
+`Arteta played a key role in turning Sterling from a threatening winger into a truly dangerous goalscorer at City. Can he do it again?`\
+https://nytimes.com/athletic/5779152/2024/09/21/sterling-arteta-arsenal-man-city/
+
+**'It's like the Titanic': The decline of Girondins de Bordeaux**\
+`One of France's most famous clubs have been brought to their knees by financial chaos - is there a way back?`\
+https://nytimes.com/athletic/5781741/2024/09/21/bordeaux-girondins-decline-financial-trouble/
+
+**A tribute to Toto Schillaci, the everyman who seemed capable of everything**\
+`For generations of Italians, he came to represent the best summer of their lives. He didn't only give his best for Italy. He went beyond`\
+https://nytimes.com/athletic/5781645/2024/09/21/toto-schillaci-tribute-italy/
+
+**What is the true value of a Premier League goal?**\
+`Does Haaland score lots of his goals against the weaker teams? And does that make each of them less valuable? Read on...`\
+https://nytimes.com/athletic/5774267/2024/09/21/adjusting-the-value-of-a-premier-league-goal/
+
 **Ozzie Albies returns to Braves but momentum evaporates against Marlins**\
 `Albies went hitless in his return but the Braves hope he can bring a spark with their playoff hopes hanging by a thread.`\
 https://nytimes.com/athletic/5783154/2024/09/21/braves-ozzie-albies-returns-marlins/
