@@ -1,3 +1,7 @@
+**Ukraine Hits 2 More Russian Munition Depots, Aiming to Disrupt War Effort**\
+`Strikes on weapons arsenals are crucial to weaken Moscow’s overwhelming superiority in battlefield firepower, analysts said.`\
+https://nytimes.com/2024/09/21/world/europe/ukraine-russia-war-ammunition-depots.html
+
 **Ukraine Hits 2 Russian Munition Depots, Aiming to Disrupt Military Operations**\
 `Strikes on weapons arsenals are crucial to weaken Moscow’s overwhelming superiority in battlefield firepower, analysts said.`\
 https://nytimes.com/2024/09/21/world/europe/ukraine-russia-war-ammunition-depots.html
