@@ -1,3 +1,11 @@
+**JMU dominates North Carolina en route to historic 53-point first half**\
+`The 53 points tallied through two quarters were the most points JMU football has ever scored in a half.`\
+https://nytimes.com/athletic/5783841/2024/09/21/james-madison-north-carolina-53-points/
+
+**Biden Hosts a Final ‘Quad Summit’ at His Delaware Home**\
+`The president has often said that “all politics is personal,” and on Saturday he opened his home in Wilmington to the leaders of Australia, India and Japan.`\
+https://nytimes.com/2024/09/21/us/politics/biden-quad-summit.html
+
 **Macron Appoints Cabinet as He Seeks to Move France Out of Political Impasse**\
 `The government still faces two challenges in the coming weeks: the risk of a no-confidence vote and a tight budget deadline.`\
 https://nytimes.com/2024/09/21/world/europe/macron-france-cabinet.html
