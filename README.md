@@ -1,7 +1,3 @@
-**The Briefing: Palace 0 Man Utd 0 - Was Ten Hag right to leave out Rashford? Dalot key, Onana's wonder save**\
-`United failed to take advantage of their first-half dominance - and had Andre Onana to thank for the point. Here are the key talking points`\
-https://nytimes.com/athletic/5779419/2024/09/21/crystal-palace-0-man-utd-0-ten-hag-rashford-onana/
-
 **WVU safety Aubrey Burks stretchered off field**\
 `Burks was placed in an ambulance and taken to a nearby hospital. It is unclear what caused the issue.`\
 https://nytimes.com/athletic/5783737/2024/09/21/aubrey-burks-injury-kansas/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/21/world/asia/travis-king-army-north-korea-guilty.ht
 **Liz Cheney Suggests a New Political Party May Be Needed**\
 `Ms. Cheney, a longtime Republican, said that the G.O.P. “has rejected the Constitution in the name of supporting Trump” and that Mike Johnson should not be speaker.`\
 https://nytimes.com/2024/09/21/us/politics/liz-cheney-republican-party.html
+
+**Wolves defender Mosquera's knee injury "doesn't look good" says O'Neil**\
+`Wolves defender Yerson Mosquera is facing scans this week amid fears he could have suffered a serious knee injury in this afternoon’s defeat at Aston Villa.`\
+https://nytimes.com/athletic/5783738/2024/09/21/wolves-aston-villa-yerson-mosquera-injury/
 
