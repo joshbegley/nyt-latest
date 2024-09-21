@@ -1,3 +1,7 @@
+**Nationals option All-Star CJ Abrams to Triple A: Source**\
+`Abrams season is effectively over after the Nationals optioned the infielder to Triple-A, a team source told The Athletic.`\
+https://nytimes.com/athletic/5783630/2024/09/21/nationals-option-all-star-cj-abrams-to-triple-a/
+
 **We Are Running Out of Firefighters at a Perilous Time**\
 `Now would be a good time for Congress to pass a federal spending bill to make a permanent pay increase a reality.`\
 https://nytimes.com/2024/09/21/opinion/california-wildfires-west-forest-service.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/world/middleeast/israel-shelter-strike-gaza.html
 **Fantasy football rankings Week 3: Sleepers, projections, starts, sits**\
 `Jake Ciely offers up his Week 3 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
 https://nytimes.com/athletic/5775030/2024/09/21/fantasy-football-rankings-week-3-sleepers-projections-starts/
-
-**Elon Musk’s X Backs Down in Brazil**\
-`In an abrupt reversal, the social network’s lawyers said it was complying with court orders that it had previously defied. Brazil’s Supreme Court could allow the site to return next week.`\
-https://nytimes.com/2024/09/21/world/americas/elon-musk-x-brazil.html
 

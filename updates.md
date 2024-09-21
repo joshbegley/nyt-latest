@@ -1,3 +1,7 @@
+**Nationals option All-Star CJ Abrams to Triple A: Source**\
+`Abrams season is effectively over after the Nationals optioned the infielder to Triple-A, a team source told The Athletic.`\
+https://nytimes.com/athletic/5783630/2024/09/21/nationals-option-all-star-cj-abrams-to-triple-a/
+
 **The Briefing: Liverpool 3 Bournemouth 0 - Keeping Alexander-Arnold is crucial and Nunez gets his season started**\
 `Liverpool beat Bournemouth 3-0 at Anfield on Saturday courtesy of two goals from Luis Diaz and one by Darwin Nunez`\
 https://nytimes.com/athletic/5778673/2024/09/21/liverpool-bournemouth-result-analysis-report/
