@@ -1,4 +1,8 @@
 **Yankees downplay Juan Soto injury concerns after yanking him from lineup**\
+`With Soto undergoing treatment after colliding with a wall Thursday in Seattle, the Yankees decided to exercise caution.`\
+https://nytimes.com/athletic/5783060/2024/09/20/yankees-juan-soto-injury-concerns/
+
+**Yankees downplay Juan Soto injury concerns after yanking him from lineup**\
 `With Soto undergoing treatment after colliding with a wall on Thursday in Seattle, the Yankees decided to exercise caution.`\
 https://nytimes.com/athletic/5783060/2024/09/20/yankees-juan-soto-injury-concerns/
 
