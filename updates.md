@@ -1,3 +1,11 @@
+**Sally Rooney Thinks Career Growth Is Overrated**\
+`The star novelist discusses her public persona, the discourse around her work and why reinvention isn’t a goal.`\
+https://nytimes.com/2024/09/21/magazine/sally-rooney-interview.html
+
+**Live Updates: With Death Toll Rising, Tensions Run High After Israeli Strike in Beirut**\
+`Hezbollah said a senior leader was among those killed, the day after confirming the death of a top commander wanted by the U.S. Lebanon’s Health Ministry said the death toll had risen to at least 31 and included women and children.`\
+https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah
+
 **Here are the latest developments.**\
 `By Erika Solomon`\
 https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
