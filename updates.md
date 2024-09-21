@@ -1,3 +1,7 @@
+**Shoulder Season**\
+`It’s still summer today, but fall arrives tomorrow. Take a minute to pause on the threshold.`\
+https://nytimes.com/2024/09/21/briefing/shoulder-season.html
+
 **Can Brian Flores' defense limit C.J. Stroud as Vikings host Texans?**\
 `Can the new-look Minnesota defense stifle Stroud and his talented receivers? And can Sam Darnold stay hot against a tough opponent?`\
 https://nytimes.com/athletic/5782693/2024/09/21/texans-vikings-preview-predictions-brian-flores-cj-stroud/
