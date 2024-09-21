@@ -1,3 +1,7 @@
+**Nats option Abrams to Triple A over 'internal issue'**\
+`Nationals manager Davey Martinez confirmed the move wasn't a performance issue.`\
+https://nytimes.com/athletic/5783630/2024/09/21/nationals-option-all-star-cj-abrams-to-triple-a/
+
 **The Briefing: Tottenham 3 Brentford 1 - Johnson scores again but should Vicario have been punished for handball?**\
 `Spurs recovered from going behind after 23 seconds, and Johnson was on the scoresheet once more having been their midweek cup hero`\
 https://nytimes.com/athletic/5778682/2024/09/21/tottenham-brentford-johnson-vicario-handball/
