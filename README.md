@@ -1,3 +1,11 @@
+**Can Riley Leonard be a true dual-threat? Notre Dame takeaways after Miami (OH)**\
+`Notre Dame pulled away to beat the RedHawks 28-3, but there were plenty of issues to clean up — including with Leonard's passing.`\
+https://nytimes.com/athletic/5784183/2024/09/21/notre-dame-riley-leonard-miami-ohio-score/
+
+**Penn State shows off offensive possibilities against overmatched Kent State**\
+`Tyler Warren solidified his status as one of the most important playmakers on the team and as one of the best tight ends in the country.`\
+https://nytimes.com/athletic/5784146/2024/09/21/penn-state-kent-state-result/
+
 **Daniel J. Evans, Stalwart of Washington State Politics, Dies at 98**\
 `A moderate Republican, he championed education, civil rights and environmental causes as a three-term governor and as a U.S. senator.`\
 https://nytimes.com/2024/09/21/obituaries/daniel-j-evans-dead.html
@@ -6,7 +14,7 @@ https://nytimes.com/2024/09/21/obituaries/daniel-j-evans-dead.html
 `The former president did not mention Mr. Robinson, the state’s embattled Republican nominee for governor, whom he once called “Martin Luther King on steroids.”`\
 https://nytimes.com/2024/09/21/us/politics/donald-trump-mark-robinson-rally.html
 
-**Canadiens training camp: Josh Anderson's transformative summer, Armia things are back and more**\
+**Canadiens training camp: Josh Anderson's transformative summer, Joel Armia things are back**\
 `Anderson wanted to move past his difficult season. To do so, he had to relive it and realize it wasn't as bad as he thought.`\
 https://nytimes.com/athletic/5784186/2024/09/21/canadiens-training-camp-josh-anderson-armia/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5784098/2024/09/21/green-day-billy-joe-armstrong-ra
 **Newsom Signs Bill That Adds Protections for Children on Social Media**\
 `The California legislation comes amid growing concerns about the impact of cellphones and social media on adolescents’ mental health.`\
 https://nytimes.com/2024/09/21/us/newsom-children-social-media-bill.html
-
-**Guardiola thinks City's rivals want them 'wiped off the face of the Earth'**\
-`Pep Guardiola says Manchester City’s rivals want the club &#8220;wiped off the face of the Earth&#8221; over their 115 Premier League charges.`\
-https://nytimes.com/athletic/5783378/2024/09/21/manchester-city-pep-guardiola-charges/
-
-**Israeli Attacks in Lebanon Mark a Sharp Strategic Shift**\
-`The events of this week seem to indicate that Israel’s leaders have decided they can no longer live with the threat of Hezbollah on their northern border, analysts say.`\
-https://nytimes.com/2024/09/21/world/middleeast/israel-lebanon-hezbollah-beirut.html
 
