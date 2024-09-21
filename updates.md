@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 3 Bournemouth 0 - Keeping Alexander-Arnold is crucial and Nunez gets his season started**\
+`Liverpool beat Bournemouth 3-0 at Anfield on Saturday courtesy of two goals from Luis Diaz and one by Darwin Nunez`\
+https://nytimes.com/athletic/5778673/2024/09/21/liverpool-bournemouth-result-analysis-report/
+
 **We Are Running Out of Firefighters at a Perilous Time**\
 `Now would be a good time for Congress to pass a federal spending bill to make a permanent pay increase a reality.`\
 https://nytimes.com/2024/09/21/opinion/california-wildfires-west-forest-service.html
