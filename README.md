@@ -22,8 +22,8 @@ https://nytimes.com/2024/09/21/world/americas/kenya-haiti-ruto.html
 `A person in Ulster County has been hospitalized with Eastern equine encephalitis, health officials said. It is the first confirmed human case of the disease recorded in the state since 2015.`\
 https://nytimes.com/2024/09/21/nyregion/mosquitoes-eee-new-york.html
 
-**Harris Agrees to a CNN Debate and Pressures Trump to Join**\
-`Vice President Kamala Harris, who was widely seen as the winner of the Sept. 10 debate against former President Donald J. Trump, is seeking a rematch.`\
+**Harris Agrees to a Second Debate, but Trump Declines**\
+`Vice President Kamala Harris, who was widely seen as the winner of the Sept. 10 debate against former President Donald J. Trump, has accepted a debate invitation from CNN.`\
 https://nytimes.com/2024/09/21/us/politics/harris-trump-cnn-debate-october.html
 
 **JMU dominates North Carolina with historic 53-point first half**\
