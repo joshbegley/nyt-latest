@@ -1,3 +1,7 @@
+**Rallying in Two Key States, Harris Presses Her Case on Abortion Rights**\
+`Visiting Wisconsin after giving a speech in Georgia, the vice president signaled she would focus on the life-or-death risks of abortion bans in the final weeks of the race.`\
+https://nytimes.com/2024/09/20/us/politics/harris-rally-wisconsin.html
+
 **Bodycam Footage Shows Police Shooting in N.Y.C. Subway**\
 `The New York Police Department released edited body camera footage that shows the moments before and after officers shot a man who they said was wielding a knife at a subway station in Brooklyn.`\
 https://nytimes.com/video/nyregion/100000009711230/nyc-subway-shooting-bodycam.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5782928/2024/09/20/canadiens-dach-laine-roy/
 **With Robinson Candidacy, North Carolina Republicans Fear Damage to Years of Gains**\
 `Explosive posts by the Republican candidate for governor, Mark Robinson, are sending waves of anxiety through a state party that has long been tactical and disciplined.`\
 https://nytimes.com/2024/09/20/us/mark-robinson-north-carolina-republicans.html
-
-**AJ Griffin to step away from basketball after 2 seasons**\
-`As of now, the franchise has no immediate plans to fill the roster spot, a team source said.`\
-https://nytimes.com/athletic/5782871/2024/09/20/aj-girffin-retirement-duke-rockets-hawks/
 
