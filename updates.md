@@ -1,3 +1,7 @@
+**Phillies secure playoff berth for third consecutive season**\
+`From 2012 to 2021, the Phillies went a full decade without a postseason appearance, but they’ve steadily built themselves into a contender.`\
+https://nytimes.com/athletic/5777283/2024/09/20/philadelphia-phillies-clinch-playoff-spot/
+
 **Works on a Loop, Say**\
 `David Karp’s puzzle sends us up, down and all around.`\
 https://nytimes.com/2024/09/20/crosswords/daily-puzzle-2024-09-21.html
