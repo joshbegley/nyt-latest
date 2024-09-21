@@ -1,3 +1,15 @@
+**What I’m hearing: Steelers ready to cook with Fields, Herbert and Love updates, Bryce Young’s reality**\
+`Plus, Kevin O’Connell’s latest success story (and the coach's contract), why it’s working for Derek Carr, kickers go long, and more.`\
+https://nytimes.com/athletic/5783024/2024/09/21/jordan-love-justin-herbert-injury-updates-justin-fields-steelers-offense-bryce-young-benching/
+
+**Who Are the Black Swing Voters?**\
+`Black voters are not monolithic.`\
+https://nytimes.com/video/us/elections/100000009710303/who-are-the-black-swing-voters.html
+
+**PSG appeal order to pay Mbappe €55m in withheld salary**\
+`Paris Saint-Germain have appealed a decision which would force them to pay former striker Kylian Mbappe €55million in withheld salary and bonuses from his time at the club.`\
+https://nytimes.com/athletic/5783375/2024/09/21/psg-kylian-mbappe-salary-dispute/
+
 **The Briefing: West Ham 0 Chelsea 3 - Co-owners in attendance and Jackson silences doubters**\
 `Chelsea overcame West Ham 3-0 on Saturday afternoon - Simon Johnson analyses the key talking points`\
 https://nytimes.com/athletic/5778672/2024/09/21/west-ham-chelsea-result-report-analysis/
