@@ -1,3 +1,7 @@
+**Justin Verlander's struggles continue in possible final start at Minute Maid Park**\
+`After allowing six runs against the Angels on Friday, Verlander's ERA rose to 5.55.`\
+https://nytimes.com/athletic/5783282/2024/09/21/justin-verlander-struggles-astros-minute-maid-park/
+
 **Red Sox lose to Twins in 12 innings, await MRI results on Rafael Devers' right shoulder**\
 `In a crucial game for their dwindling postseason hopes, the Red Sox struck out 20 times, tying a franchise record from 1974 and 2001. `\
 https://nytimes.com/athletic/5783261/2024/09/21/red-sox-rafael-devers-mri-shoulder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783154/2024/09/21/braves-ozzie-albies-returns-marl
 **Demi Vollering interview: How do you rebound from losing the closest Tour de France in history?**\
 `The Dutch star on dealing with defeat, her plans for 2025 and why women's cycling shouldn't just copy the men's sport  `\
 https://nytimes.com/athletic/5770611/2024/09/21/demi-vollering-interview-tour-de-france/
-
-**13 insights fantasy football managers need to know ahead of Week 3**\
-`According to Theo Gremminger, expect Rashid Shaheed's big-play breakout to continue, as he shares insights on 13 players ahead of Week 3.`\
-https://nytimes.com/athletic/5782344/2024/09/21/13-insights-fantasy-football-week-3-need-to-knows/
 
