@@ -1,3 +1,7 @@
+**Attacks on Hezbollah this week are the latest attributed to Israel.**\
+`Israel is believed to have conducted a series of clandestine attacks on adversaries linked to Iran in recent years, sometimes using highly innovative tactics.`\
+https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/attacks-on-hezbollah-this-week-are-the-latest-attributed-to-israel
+
 **Oilers depth chart: How the roster is shaping up for preseason**\
 `The Oilers head into Sunday's exhibition opener with few question marks pertaining to the roster.`\
 https://nytimes.com/athletic/5782877/2024/09/21/edmonton-oilers-depth-chart-preseason-2024/
