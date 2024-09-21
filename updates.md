@@ -1,3 +1,7 @@
+**The Briefing: Palace 0 Man Utd 0 - Was Ten Hag right to leave out Rashford? Dalot key, Onana's wonder save**\
+`United failed to take advantage of their first-half dominance - and had Andre Onana to thank for the point. Here are the key talking points`\
+https://nytimes.com/athletic/5779419/2024/09/21/crystal-palace-0-man-utd-0-ten-hag-rashford-onana/
+
 **WVU safety Aubrey Burks stretchered off field**\
 `Burks was placed in an ambulance and taken to a nearby hospital. It is unclear what caused the issue.`\
 https://nytimes.com/athletic/5783737/2024/09/21/aubrey-burks-injury-kansas/
