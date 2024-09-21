@@ -1,3 +1,11 @@
+**Another Way of Looking at Jim Crow**\
+`The purpose of segregation was as much to weaken labor as it was to institutionalize race hierarchy.`\
+https://nytimes.com/2024/09/21/opinion/jim-crow-trump-vance.html
+
+**U.S. Soldier Pleads Guilty to Desertion After Fleeing Into North Korea**\
+`Pvt. Travis King on Friday pleaded guilty before a military judge to desertion, among other charges, after he made an unauthorized crossing into North Korea in 2023.`\
+https://nytimes.com/2024/09/21/world/asia/travis-king-army-north-korea-guilty.html
+
 **Liz Cheney Suggests a New Political Party May Be Needed**\
 `Ms. Cheney, a longtime Republican, said that the G.O.P. “has rejected the Constitution in the name of supporting Trump” and that Mike Johnson should not be speaker.`\
 https://nytimes.com/2024/09/21/us/politics/liz-cheney-republican-party.html
