@@ -1,3 +1,7 @@
+**Utah at Oklahoma State picks, odds, how to watch: Rising injury concerns affecting spread**\
+`Utah was favored, but Cam Rising's availability has come into question after a big swing in the odds towards Oklahoma State.`\
+https://nytimes.com/athletic/5779533/2024/09/21/utah-oklahoma-state-picks-odds-predictions-how-to-watch/
+
 **Key takeaways from Sonia Bompastor's first Chelsea game**\
 `Chelsea got life under new manager Bompastor off to a winning start - but the transition from Emma Hayes isn't going entirely smoothly`\
 https://nytimes.com/athletic/5783006/2024/09/21/chelsea-sonia-bompastor-key-takeaways/
