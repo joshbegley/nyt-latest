@@ -1,3 +1,7 @@
+**Leader of Kenya, Donor to Haiti Peacekeeping Force, Makes First Visit**\
+`The trip by President William Ruto of Kenya came against a bleak backdrop in Haiti, where gangs operate with impunity and the Kenyan peacekeepers remain largely out of sight.`\
+https://nytimes.com/2024/09/21/world/americas/kenya-haiti-ruto.html
+
 **Human Case of Rare Mosquito-Borne Illness Reported in New York State**\
 `A person in Ulster County has been hospitalized with Eastern equine encephalitis, health officials said. It is the first confirmed human case of the disease recorded in the state since 2015.`\
 https://nytimes.com/2024/09/21/nyregion/mosquitoes-eee-new-york.html
