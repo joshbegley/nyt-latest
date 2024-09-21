@@ -1,3 +1,7 @@
+**Biden Hosts a Final ‘Quad Summit’ at His Delaware Home**\
+`The president has often said that “all politics is personal,” and on Saturday he opened his home in Wilmington to the leaders of Australia, India and Japan.`\
+https://nytimes.com/2024/09/21/us/politics/biden-quad-summit.html
+
 **Macron Appoints Cabinet as He Seeks to Move France Out of Political Impasse**\
 `The government still faces two challenges in the coming weeks: the risk of a no-confidence vote and a tight budget deadline.`\
 https://nytimes.com/2024/09/21/world/europe/macron-france-cabinet.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783658/2024/09/21/f1-singapore-gp-preview-lando-no
 **Another Way of Looking at Jim Crow**\
 `The purpose of segregation was as much to weaken labor as it was to institutionalize race hierarchy.`\
 https://nytimes.com/2024/09/21/opinion/jim-crow-trump-vance.html
-
-**U.S. Soldier Pleads Guilty to Desertion After Fleeing Into North Korea**\
-`Pvt. Travis King on Friday pleaded guilty before a military judge to desertion, among other charges, after he made an unauthorized crossing into North Korea in 2023.`\
-https://nytimes.com/2024/09/21/world/asia/travis-king-army-north-korea-guilty.html
 
