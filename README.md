@@ -1,4 +1,4 @@
-**Rafael Devers lands on injured list with shoulder inflammation, ending his season**\
+**Rafael Devers on IL with shoulder inflammation**\
 `Devers has battled soreness and inflammation in each shoulder throughout the season.`\
 https://nytimes.com/athletic/5783950/2024/09/21/red-sox-rafael-devers-injury/
 
