@@ -1,3 +1,7 @@
+**Works on a Loop, Say**\
+`David Karp’s puzzle sends us up, down and all around.`\
+https://nytimes.com/2024/09/20/crosswords/daily-puzzle-2024-09-21.html
+
 **Yankees downplay Juan Soto injury concerns after yanking him from lineup**\
 `With Soto undergoing treatment after colliding with a wall Thursday in Seattle, the Yankees decided to exercise caution.`\
 https://nytimes.com/athletic/5783060/2024/09/20/yankees-juan-soto-injury-concerns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783022/2024/09/20/raiders-malcolm-koonce-injury-ou
 **What Happened During the 1983 Bombings in Beirut?**\
 `One of Hezbollah’s top military commanders, who was accused of helping plan the blasts four decades ago, was killed on Friday in an Israeli airstrike.`\
 https://nytimes.com/2024/09/20/world/middleeast/1983-bombings-beirut.html
-
-**How One Man’s Vote in Nebraska Could Change the Presidential Election**\
-`A single Republican state senator appears to be holding back a push by Donald J. Trump to net a potentially pivotal electoral vote even before ballots are cast.`\
-https://nytimes.com/2024/09/20/us/politics/nebraska-trump-electoral-vote.html
 
