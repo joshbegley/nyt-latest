@@ -1,3 +1,7 @@
+**Robert Lansdorp, Prominent Coach of Tennis Champions, Dies at 85**\
+`His students, including Tracy Austin, Maria Sharapova, Pete Sampras and Lindsay Davenport, developed their ground strokes through his regimen of intense repetition.`\
+https://nytimes.com/2024/09/21/sports/tennis/robert-lansdorp-dead.html
+
 **Ohio State takeaways: Chip Kelly's offense showed just how dangerous it can be**\
 `After some early adversity, Ohio State dominated Marshall 49-14 behind huge games from Quinshon Judkins and TreVeyon Henderson.`\
 https://nytimes.com/athletic/5783922/2024/09/21/ohio-state-football-marshall-score-recap/
