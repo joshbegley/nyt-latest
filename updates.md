@@ -1,5 +1,9 @@
 **Harris Agrees to a CNN Debate and Pressures Trump to Join**\
 `Vice President Kamala Harris, who was widely seen as the winner of the Sept. 10 debate against former President Donald J. Trump, is seeking a rematch.`\
+https://nytimes.com/2024/09/21/us/politics/harris-trump-cnn-debate-october.html
+
+**Harris Agrees to a CNN Debate and Pressures Trump to Join**\
+`Vice President Kamala Harris, who was widely seen as the winner of the Sept. 10 debate against former President Donald J. Trump, is seeking a rematch.`\
 https://nytimes.com/2024/09/21/us/politics/harris-trump-cnn-debate-challenge.html
 
 **The Briefing: Palace 0 Man Utd 0 - Was Ten Hag right to leave out Rashford? Dalot key, Onana's wondersave**\
