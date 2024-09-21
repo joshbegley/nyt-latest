@@ -1,3 +1,11 @@
+**Rafael Devers on IL with shoulder inflammation**\
+`Devers has battled soreness and inflammation in each shoulder throughout the season.`\
+https://nytimes.com/athletic/5783950/2024/09/21/red-sox-rafael-devers-injury/
+
+**JMU dominates North Carolina with historic 53-point first half**\
+`The 53 points tallied through two quarters were the most points JMU football has ever scored in a half.`\
+https://nytimes.com/athletic/5783841/2024/09/21/james-madison-north-carolina-53-points/
+
 **Rafael Devers lands on injured list with shoulder inflammation, ending his season**\
 `Devers has battled soreness and inflammation in each shoulder throughout the season.`\
 https://nytimes.com/athletic/5783950/2024/09/21/red-sox-rafael-devers-injury/

@@ -1,4 +1,4 @@
-**Rafael Devers lands on injured list with shoulder inflammation, ending his season**\
+**Rafael Devers on IL with shoulder inflammation**\
 `Devers has battled soreness and inflammation in each shoulder throughout the season.`\
 https://nytimes.com/athletic/5783950/2024/09/21/red-sox-rafael-devers-injury/
 
@@ -14,7 +14,7 @@ https://nytimes.com/2024/09/21/nyregion/mosquitoes-eee-new-york.html
 `Vice President Kamala Harris, who was widely seen as the winner of the Sept. 10 debate against former President Donald J. Trump, is seeking a rematch.`\
 https://nytimes.com/2024/09/21/us/politics/harris-trump-cnn-debate-october.html
 
-**JMU dominates North Carolina en route to historic 53-point first half**\
+**JMU dominates North Carolina with historic 53-point first half**\
 `The 53 points tallied through two quarters were the most points JMU football has ever scored in a half.`\
 https://nytimes.com/athletic/5783841/2024/09/21/james-madison-north-carolina-53-points/
 
