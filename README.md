@@ -1,3 +1,11 @@
+**Who Was Ahmed Wahbi, a Hezbollah Commander Killed in Israel’s Airstrike in Beirut?**\
+`The senior Hezbollah leader trained the group’s elite fighting unit and led its support for Hamas after the Oct. 7 attacks, the Lebanese militia said.`\
+https://nytimes.com/2024/09/21/world/middleeast/who-is-ahmed-wahbi-hezbollah-commander.html
+
+**Eric Kim’s ‘Absolutely Amazing’ Pasta Alla Vodka (With Ricotta)**\
+`I adore this recipe, and so do thousands of readers.`\
+https://nytimes.com/2024/09/21/dining/eric-kims-absolutely-amazing-pasta-alla-vodka-with-ricotta.html
+
 **Biden’s national security adviser says escalation risk in the Middle East is ‘acute.’**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/bidens-national-security-adviser-says-escalation-risk-in-the-middle-east-is-acute
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5783375/2024/09/21/psg-kylian-mbappe-salary-dispute
 **Northern Israel braces for a backlash, even as the conflict remains under the radar in Tel Aviv.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/northern-israel-braces-for-a-backlash-even-as-the-conflict-remains-under-the-radar-in-tel-aviv
-
-**The Briefing: West Ham 0 Chelsea 3 - Co-owners in attendance and Jackson silences doubters**\
-`Chelsea overcame West Ham 3-0 on Saturday afternoon - Simon Johnson analyses the key talking points`\
-https://nytimes.com/athletic/5778672/2024/09/21/west-ham-chelsea-result-report-analysis/
-
-**Ukraine Hits 2 More Russian Munition Depots, Aiming to Disrupt War Effort**\
-`Strikes on weapons arsenals are crucial to weaken Moscow’s overwhelming superiority in battlefield firepower, analysts said.`\
-https://nytimes.com/2024/09/21/world/europe/ukraine-russia-war-ammunition-depots.html
 
