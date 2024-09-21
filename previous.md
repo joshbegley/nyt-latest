@@ -1,3 +1,7 @@
+**Prime Tire: Ricciardo, rear wings and ... swearing? Unpacking Singapore GP news**\
+`Welcome to Prime Tire, The Athletic's twice-weekly F1 newsletter.`\
+https://nytimes.com/athletic/5783091/2024/09/20/f1-singapore-gp-swearing-daniel-ricciardo-mclaren-wing-prime-tire/
+
 **Phillies secure playoff berth for third consecutive season**\
 `From 2012 to 2021, the Phillies went a full decade without a postseason appearance, but they’ve steadily built themselves into a contender.`\
 https://nytimes.com/athletic/5777283/2024/09/20/philadelphia-phillies-clinch-playoff-spot/
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000009711230/nyc-subway-shooting-bodycam.h
 **What we’re seeing at Canucks training camp: 10 observations after 2 days**\
 `There was subtle, telling information that we were able to gather about various players and the team itself after watching closely.`\
 https://nytimes.com/athletic/5782782/2024/09/20/canucks-observations-training-camp/
-
-**Raiders' Koonce to undergo season-ending knee surgery**\
-`Koonce suffered the injury during practice ahead of the Raiders' Week 1 matchup with the Los Angeles Chargers.`\
-https://nytimes.com/athletic/5783022/2024/09/20/raiders-malcolm-koonce-injury-out-for-season/
 

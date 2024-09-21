@@ -1,3 +1,7 @@
+**Prime Tire: Ricciardo, rear wings and ... swearing? Unpacking Singapore GP news**\
+`Welcome to Prime Tire, The Athletic's twice-weekly F1 newsletter.`\
+https://nytimes.com/athletic/5783091/2024/09/20/f1-singapore-gp-swearing-daniel-ricciardo-mclaren-wing-prime-tire/
+
 **Phillies secure playoff berth for third consecutive season**\
 `From 2012 to 2021, the Phillies went a full decade without a postseason appearance, but they’ve steadily built themselves into a contender.`\
 https://nytimes.com/athletic/5777283/2024/09/20/philadelphia-phillies-clinch-playoff-spot/
