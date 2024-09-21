@@ -2,8 +2,8 @@
 `O’Hara, an Olympic gold medalist with the USWNT, announced her plans in May to retire from soccer at the end of the NWSL season.`\
 https://nytimes.com/athletic/5783625/2024/09/21/kelley-ohara-injury-gotham-uswnt/
 
-**Nationals option All-Star CJ Abrams to Triple A: Source**\
-`Abrams season is effectively over after the Nationals optioned the infielder to Triple-A, a team source told The Athletic.`\
+**Nats option Abrams to Triple A over 'internal issue'**\
+`Nationals manager Davey Martinez confirmed the move wasn't a performance issue.`\
 https://nytimes.com/athletic/5783630/2024/09/21/nationals-option-all-star-cj-abrams-to-triple-a/
 
 **We Are Running Out of Firefighters at a Perilous Time**\
