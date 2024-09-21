@@ -1,3 +1,7 @@
+**Red Sox lose to Twins in 12 innings, await MRI results on Rafael Devers' right shoulder**\
+`In a crucial game for their dwindling postseason hopes, the Red Sox struck out 20 times, tying a franchise record from 1974 and 2001. `\
+https://nytimes.com/athletic/5783261/2024/09/21/red-sox-rafael-devers-mri-shoulder/
+
 **What we learned from Manuel Ugarte's first 79 minutes as a Manchester United player**\
 `Midfielder Ugarte was a big-money summer arrival for Manchester United and has now made two appearances - the early signs are good`\
 https://nytimes.com/athletic/5781970/2024/09/21/manuel-ugarte-manchester-united-analysis/
