@@ -1,3 +1,7 @@
+**Biden’s national security adviser says escalation risk in the Middle East is ‘acute.’**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/bidens-national-security-adviser-says-escalation-risk-in-the-middle-east-is-acute
+
 **Lando Norris wins Singapore Grand Prix pole**\
 `The two contenders for the drivers' championship will start side-by-side on Sunday. `\
 https://nytimes.com/athletic/5783524/2024/09/21/lando-norris-f1-singapore-gp-pole/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5778672/2024/09/21/west-ham-chelsea-result-report-a
 **Ukraine Hits 2 More Russian Munition Depots, Aiming to Disrupt War Effort**\
 `Strikes on weapons arsenals are crucial to weaken Moscow’s overwhelming superiority in battlefield firepower, analysts said.`\
 https://nytimes.com/2024/09/21/world/europe/ukraine-russia-war-ammunition-depots.html
-
-**Sean Combs and the Limits of the ‘Family Man’ Defense**\
-`Famous people have long tried to launder their images through their spouses and children.`\
-https://nytimes.com/2024/09/21/opinion/sean-combs-family-man-defense.html
 

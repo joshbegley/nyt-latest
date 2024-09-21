@@ -1,3 +1,7 @@
+**Biden’s national security adviser says escalation risk in the Middle East is ‘acute.’**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/bidens-national-security-adviser-says-escalation-risk-in-the-middle-east-is-acute
+
 **Lando Norris wins Singapore Grand Prix pole**\
 `The two contenders for the drivers' championship will start side-by-side on Sunday. `\
 https://nytimes.com/athletic/5783524/2024/09/21/lando-norris-f1-singapore-gp-pole/
