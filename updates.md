@@ -1,3 +1,11 @@
+**What we learned from Manuel Ugarte's first 79 minutes as a Manchester United player**\
+`Midfielder Ugarte was a big-money summer arrival for Manchester United and has now made two appearances - the early signs are good`\
+https://nytimes.com/athletic/5781970/2024/09/21/manuel-ugarte-manchester-united-analysis/
+
+**Alec Bohm shows the boost he can give playoff-bound Phillies, who have 'bigger goals'**\
+`Bohm powered the Phillies for the first few months. Better run production from the cleanup spot would help come October.`\
+https://nytimes.com/athletic/5783175/2024/09/21/alec-bohm-phillies-mlb-playoffs/
+
 **Arteta's time at Man City and the training drill that transformed Sterling**\
 `Arteta played a key role in turning Sterling from a threatening winger into a truly dangerous goalscorer at City. Can he do it again?`\
 https://nytimes.com/athletic/5779152/2024/09/21/sterling-arteta-arsenal-man-city/
