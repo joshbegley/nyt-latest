@@ -1,3 +1,7 @@
+**Human Case of Rare Mosquito-Borne Illness Reported in New York State**\
+`A person in Ulster County has been hospitalized with Eastern equine encephalitis, health officials said. It is the first confirmed human case of the disease recorded in the state since 2015.`\
+https://nytimes.com/2024/09/21/nyregion/mosquitoes-eee-new-york.html
+
 **Harris Agrees to a CNN Debate and Pressures Trump to Join**\
 `Vice President Kamala Harris, who was widely seen as the winner of the Sept. 10 debate against former President Donald J. Trump, is seeking a rematch.`\
 https://nytimes.com/2024/09/21/us/politics/harris-trump-cnn-debate-october.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/us/fbi-dali-ship-baltimore-bridge-collapse.html
 **At a Hezbollah funeral, a chaotic week brings a mix of sorrow and defiance.**\
 `By Hwaida Saad`\
 https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/at-a-hezbollah-funeral-a-chaotic-week-brings-a-mix-of-sorrow-and-defiance
-
-**Aston Villa's McGinn out "for a few weeks" with hamstring injury - Emery**\
-`Unai Emery has said that Aston Villa captain John McGinn is set to be unavailable for &#8220;a few weeks&#8221; due to a hamstring injury.`\
-https://nytimes.com/athletic/5783799/2024/09/21/aston-villa-john-mcginn-hamstring-injury/
 
