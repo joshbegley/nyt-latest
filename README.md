@@ -1,3 +1,7 @@
+**Sally Rooney Thinks Career Growth Is Overrated**\
+`The star novelist discusses her public persona, the discourse around her work and why reinvention isn’t a goal.`\
+https://nytimes.com/2024/09/21/magazine/sally-rooney-interview.html
+
 **Here are the latest developments.**\
 `By Erika Solomon`\
 https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/21/us/trump-opponents-investigations.htm
 **Drug Overdose Deaths Are Dropping. The Reasons Are Not Perfectly Clear.**\
 `The decrease across the country is a major breakthrough in efforts to reverse the effects of fentanyl. Researchers and health officials say there is no easy explanation for the trend.`\
 https://nytimes.com/2024/09/21/us/politics/drug-overdose-deaths-decrease.html
-
-**NFL Week 3 roundtable: Bryce Young's benching, Saints' hot start and unbeaten matchups**\
-`Week 3 arrives with a QB benching, surprise unbeatens and hot starts. Our NFL insiders preview Sunday's action.`\
-https://nytimes.com/athletic/5782230/2024/09/21/nfl-roundtable-week-3-bryce-young-saints/
 
