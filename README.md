@@ -1,3 +1,7 @@
+**Trump’s Base in North Carolina Still Supports Mark Robinson, but Some Doubt He Can Win**\
+`At a Trump rally in Wilmington, N.C., many said they would still vote for the embattled Republican nominee for governor.`\
+https://nytimes.com/2024/09/21/us/politics/trump-base-north-carolina-mark-robinson.html
+
 **Can Riley Leonard be a true dual-threat? Notre Dame takeaways after Miami (OH)**\
 `Notre Dame pulled away to beat the RedHawks 28-3, but there were plenty of issues to clean up — including with Leonard's passing.`\
 https://nytimes.com/athletic/5784183/2024/09/21/notre-dame-riley-leonard-miami-ohio-score/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/crosswords/daily-puzzle-2024-09-22.html
 **Green Day's Billie Joe Armstrong slams A’s owner John Fisher at San Francisco show**\
 `Armstrong proclaimed "East Bay for life" before launching a tirade against Fisher and his planned relocation to Las Vegas.`\
 https://nytimes.com/athletic/5784098/2024/09/21/green-day-billy-joe-armstrong-rant-john-fisher/
-
-**Newsom Signs Bill That Adds Protections for Children on Social Media**\
-`The California legislation comes amid growing concerns about the impact of cellphones and social media on adolescents’ mental health.`\
-https://nytimes.com/2024/09/21/us/newsom-children-social-media-bill.html
 
