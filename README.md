@@ -1,3 +1,7 @@
+**Sean Combs and the Limits of the ‘Family Man’ Defense**\
+`Famous people have long tried to launder their images through their spouses and children.`\
+https://nytimes.com/2024/09/21/opinion/sean-combs-family-man-defense.html
+
 **Flick ready to move on from Ter Stegen error: 'Water under the bridge'**\
 `Barcelona head coach Hansi Flick says he has moved on from Marc-Andre ter Stegen’s error in their Champions League defeat by Monaco on Thursday.`\
 https://nytimes.com/athletic/5783484/2024/09/21/barcelona-flick-ter-stegen/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/us/politics/donald-trump-north-carolina-mark-robi
 **2 Books for a Real-Life ‘Brilliant Friend’**\
 `Adventures in Russian literature; a novel of domestic discontent.`\
 https://nytimes.com/2024/09/21/books/read-like-wind-recommendations.html
-
-**Attacks on Hezbollah this week are the latest attributed to Israel.**\
-`Israel is believed to have conducted a series of clandestine attacks on adversaries linked to Iran in recent years, sometimes using highly innovative tactics.`\
-https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/attacks-on-hezbollah-this-week-are-the-latest-attributed-to-israel
 
