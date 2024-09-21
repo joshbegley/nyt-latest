@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5783630/2024/09/21/nationals-option-all-star-cj-abr
 https://nytimes.com/2024/09/21/opinion/california-wildfires-west-forest-service.html
 
 **The Briefing: Tottenham 3 Brentford 1 - Johnson scores again but should Vicario have been punished for handball?**\
-`Tottenham recovered from going behind after 23 seconds, and Johnson was on the scoresheet again having been the hero against Coventry`\
+`Spurs recovered from going behind after 23 seconds, and Johnson was on the scoresheet once more having been their midweek cup hero`\
 https://nytimes.com/athletic/5778682/2024/09/21/tottenham-brentford-johnson-vicario-handball/
 
 **Earth’s Fall Equinox Ushers In Astronomical Autumn**\
