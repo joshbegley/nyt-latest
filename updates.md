@@ -1,3 +1,11 @@
+**Key takeaways from Sonia Bompastor's first Chelsea game**\
+`Sonia Bompastor got life as Chelsea manager off to a winning start against Aston Villa on Friday night`\
+https://nytimes.com/athletic/5783006/2024/09/21/chelsea-sonia-bompastor-key-takeaways/
+
+**3 biggest highlights from Juan Soto's gutsy performance in huge win over A's**\
+`Earlier in the day, Soto received the best news of all: X-rays of his kneecap didn't reveal structural damage.`\
+https://nytimes.com/athletic/5783312/2024/09/21/juan-soto-pinch-hit-highlights-yankees/
+
 **3 big highlights from Juan Soto's gutsy performance in huge win over A's**\
 `Earlier in the day, Soto received the best news of all: X-rays of his kneecap didn't reveal structural damage.`\
 https://nytimes.com/athletic/5783312/2024/09/21/juan-soto-pinch-hit-highlights-yankees/

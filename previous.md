@@ -1,4 +1,8 @@
-**3 big highlights from Juan Soto's gutsy performance in huge win over A's**\
+**Key takeaways from Sonia Bompastor's first Chelsea game**\
+`Sonia Bompastor got life as Chelsea manager off to a winning start against Aston Villa on Friday night`\
+https://nytimes.com/athletic/5783006/2024/09/21/chelsea-sonia-bompastor-key-takeaways/
+
+**3 biggest highlights from Juan Soto's gutsy performance in huge win over A's**\
 `Earlier in the day, Soto received the best news of all: X-rays of his kneecap didn't reveal structural damage.`\
 https://nytimes.com/athletic/5783312/2024/09/21/juan-soto-pinch-hit-highlights-yankees/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781741/2024/09/21/bordeaux-girondins-decline-finan
 **A tribute to Toto Schillaci, the everyman who seemed capable of everything**\
 `For generations of Italians, he came to represent the best summer of their lives. He didn't only give his best for Italy. He went beyond`\
 https://nytimes.com/athletic/5781645/2024/09/21/toto-schillaci-tribute-italy/
-
-**What is the true value of a Premier League goal?**\
-`Does Haaland score lots of his goals against the weaker teams? And does that make each of them less valuable? Read on...`\
-https://nytimes.com/athletic/5774267/2024/09/21/adjusting-the-value-of-a-premier-league-goal/
 
