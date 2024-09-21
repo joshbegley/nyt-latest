@@ -1,3 +1,7 @@
+**Attacks on Hezbollah Alter Balance of Power in Long-Running Fight**\
+`A focus on mutual deterrence had kept intermittent clashes along the Lebanon-Israel border from spiraling into a major war. That changed this past week.`\
+https://nytimes.com/2024/09/21/world/middleeast/israel-hezbollah-lebanon.html
+
 **Car Parts, Fiberglass and a Dream: How a Teacher Built a Hovercraft**\
 `Robert Tymofichuk, a teacher in Alberta, Canada, spent nearly 2,000 hours building an operational hovercraft from salvaged car parts and with no blueprint.`\
 https://nytimes.com/2024/09/21/technology/diy-hovercraft-alberta-canada.html

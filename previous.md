@@ -1,3 +1,7 @@
+**Attacks on Hezbollah Alter Balance of Power in Long-Running Fight**\
+`A focus on mutual deterrence had kept intermittent clashes along the Lebanon-Israel border from spiraling into a major war. That changed this past week.`\
+https://nytimes.com/2024/09/21/world/middleeast/israel-hezbollah-lebanon.html
+
 **Car Parts, Fiberglass and a Dream: How a Teacher Built a Hovercraft**\
 `Robert Tymofichuk, a teacher in Alberta, Canada, spent nearly 2,000 hours building an operational hovercraft from salvaged car parts and with no blueprint.`\
 https://nytimes.com/2024/09/21/technology/diy-hovercraft-alberta-canada.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/21/us/politics/trump-harris-2024-electio
 **The Patriots' offensive line is a mess — so why didn't they address it this offseason?**\
 `New England has the worst pass protection in the NFL. Between injuries and a lack of talent, there's little hope it's going to improve soon.`\
 https://nytimes.com/athletic/5782249/2024/09/21/patriots-jets-week-3-offensive-line/
-
-**Here are Cases of Trump Rivals Who Were Subject to Investigation**\
-`Those who found themselves under government scrutiny after alienating President Donald J. Trump ranged from the former F.B.I. director to a onetime contestant on “The Apprentice.”`\
-https://nytimes.com/interactive/2024/09/21/us/trump-opponents-investigations.html
 
