@@ -1,3 +1,7 @@
+**Michigan knocks off USC in classic Big Ten showdown: What this means for both teams**\
+`Michigan's recipe for success was simple: Run the ball and play defense. And the Wolverines did just enough to beat USC in a thriller. `\
+https://nytimes.com/athletic/5784092/2024/09/21/michigan-usc-alex-orji-miller-moss-big-ten/
+
 **Trump’s Base in North Carolina Still Supports Mark Robinson, but Some Doubt He Can Win**\
 `At a Trump rally in Wilmington, N.C., many said they would still vote for the embattled Republican nominee for governor.`\
 https://nytimes.com/2024/09/21/us/politics/trump-base-north-carolina-mark-robinson.html

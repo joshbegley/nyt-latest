@@ -1,3 +1,7 @@
+**N.Y.P.D. Understated Woman’s Wound in Subway Shooting, Lawyer Says**\
+`Kerry Gahalal, who was struck when officers shot a knife-wielding man at a Brooklyn station, was not simply “grazed” as officials said, according to a lawyer for the woman’s family.`\
+https://nytimes.com/2024/09/21/nyregion/nypd-subway-shooting-kerry-gahalal.html
+
 **Michigan knocks off USC in classic Big Ten showdown: What this means for both teams**\
 `Michigan's recipe for success was simple: Run the ball and play defense. And the Wolverines did just enough to beat USC in a thriller. `\
 https://nytimes.com/athletic/5784092/2024/09/21/michigan-usc-alex-orji-miller-moss-big-ten/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/world/middleeast/1983-beirut-bombings-us-marine-b
 **Steelers rookie OT Troy Fautanu placed on injured reserve**\
 `Fautanu was expected to be a major part of a Steelers offensive line in flux.`\
 https://nytimes.com/athletic/5784217/2024/09/21/pittsburgh-steelers-troy-fautanu-injury/
-
-**Breakout Performance**\
-`Jeremy Newton and Tracy Gray’s puzzle offers a great escape.`\
-https://nytimes.com/2024/09/21/crosswords/daily-puzzle-2024-09-22.html
 
