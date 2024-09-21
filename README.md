@@ -1,3 +1,7 @@
+**Canadiens training camp: Josh Anderson's transformative summer, Armia things are back and more**\
+`Anderson wanted to move past his difficult season. To do so, he had to relive it and realize it wasn't as bad as he thought.`\
+https://nytimes.com/athletic/5784186/2024/09/21/canadiens-training-camp-josh-anderson-armia/
+
 **For Americans Haunted by Beirut Bombings, a Killing Resurfaces Decades of Pain**\
 `The death of a Hezbollah leader wanted for his role in the 1983 attacks drew a range of reactions from survivors and victims’ families but brought little resolution.`\
 https://nytimes.com/2024/09/21/world/middleeast/1983-beirut-bombings-us-marine-base.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/world/middleeast/lebanon-doctors-hezbollah-airstr
 **JD Vance to Appear With Tucker Carlson, Who Amplified False Holocaust Claims**\
 `The Republican vice-presidential nominee will share a stage with Mr. Carlson, who was criticized for interviewing a writer who falsely claimed the Holocaust was not an intentional act of genocide.`\
 https://nytimes.com/2024/09/21/us/politics/vance-tucker-carlson.html
-
-**Robert Lansdorp, Prominent Coach of Tennis Champions, Dies at 85**\
-`His students, including Tracy Austin, Maria Sharapova, Pete Sampras and Lindsay Davenport, developed their ground strokes through his regimen of intense repetition.`\
-https://nytimes.com/2024/09/21/sports/tennis/robert-lansdorp-dead.html
 
