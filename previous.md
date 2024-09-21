@@ -1,3 +1,7 @@
+**Nebraska disappoints 400th straight sellout crowd, losing Big Ten opener to Illinois in OT**\
+`Nebraska finished 40 yards short of a first down in overtime. It looked tired. It missed the chance to announce its return as a contender.`\
+https://nytimes.com/athletic/5782724/2024/09/21/nebraska-loses-big-ten-opener-illinois/
+
 **How Gina Torres, of ‘Suits’ and ‘9-1-1: Lonestar,’ Spends Her Sundays**\
 `Ms. Torres starts with a low-key workout, takes a dance break and ends the day with one of her favorite murder-filled TV shows.`\
 https://nytimes.com/2024/09/21/nyregion/gina-torres-suits-911-lone-star.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783261/2024/09/21/red-sox-rafael-devers-mri-should
 **What we learned from Manuel Ugarte's first 79 minutes as a Manchester United player**\
 `Midfielder Ugarte was a big-money summer arrival for Manchester United and has now made two appearances - the early signs are good`\
 https://nytimes.com/athletic/5781970/2024/09/21/manuel-ugarte-manchester-united-analysis/
-
-**Alec Bohm shows the boost he can give playoff-bound Phillies, who have 'bigger goals'**\
-`Bohm powered the Phillies for the first few months. Better run production from the cleanup spot would help come October.`\
-https://nytimes.com/athletic/5783175/2024/09/21/alec-bohm-phillies-mlb-playoffs/
 

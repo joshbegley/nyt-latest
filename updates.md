@@ -1,3 +1,7 @@
+**Nebraska disappoints 400th straight sellout crowd, losing Big Ten opener to Illinois in OT**\
+`Nebraska finished 40 yards short of a first down in overtime. It looked tired. It missed the chance to announce its return as a contender.`\
+https://nytimes.com/athletic/5782724/2024/09/21/nebraska-loses-big-ten-opener-illinois/
+
 **How Gina Torres, of ‘Suits’ and ‘9-1-1: Lonestar,’ Spends Her Sundays**\
 `Ms. Torres starts with a low-key workout, takes a dance break and ends the day with one of her favorite murder-filled TV shows.`\
 https://nytimes.com/2024/09/21/nyregion/gina-torres-suits-911-lone-star.html
