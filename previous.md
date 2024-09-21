@@ -1,3 +1,7 @@
+**Gotham's Kelley O'Hara on season-ending injury list**\
+`O’Hara, an Olympic gold medalist with the USWNT, announced her plans in May to retire from soccer at the end of the NWSL season.`\
+https://nytimes.com/athletic/5783625/2024/09/21/kelley-ohara-injury-gotham-uswnt/
+
 **Nationals option All-Star CJ Abrams to Triple A: Source**\
 `Abrams season is effectively over after the Nationals optioned the infielder to Triple-A, a team source told The Athletic.`\
 https://nytimes.com/athletic/5783630/2024/09/21/nationals-option-all-star-cj-abrams-to-triple-a/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783310/2024/09/21/ducks-training-camp-fowler-trade
 **Israeli Strike on Former School Kills 22, Gazan Health Officials Say**\
 `Gaza’s ministry of health said most of those killed in the strike on the Zeitoun School in Gaza City were women and children.`\
 https://nytimes.com/2024/09/21/world/middleeast/israel-shelter-strike-gaza.html
-
-**Fantasy football rankings Week 3: Sleepers, projections, starts, sits**\
-`Jake Ciely offers up his Week 3 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
-https://nytimes.com/athletic/5775030/2024/09/21/fantasy-football-rankings-week-3-sleepers-projections-starts/
 
