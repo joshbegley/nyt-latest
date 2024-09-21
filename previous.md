@@ -18,6 +18,10 @@ https://nytimes.com/2024/09/21/opinion/campus-protests-internet-america.html
 `Israel is using the tactics of the terrorists it condemns if it indeed was behind the wave of pager and walkie-talkie explosions in Lebanon.`\
 https://nytimes.com/2024/09/21/opinion/lebanon-pagers-israel-gaza-war-crimes.html
 
+**Oilers depth chart: How the roster is shaping up for preseason**\
+`The Oilers head into Sunday's exhibition opener with few question marks pertaining to the roster.`\
+https://nytimes.com/athletic/5782877/2024/09/21/edmonton-oilers-depth-chart-preseason-2024/
+
 **Padma Lakshmi: Why Kamala Harris’s Love of Cooking Could Help Make Her a Great President**\
 `The candidate is a proud cook, and cooking is a way to connect.`\
 https://nytimes.com/2024/09/21/opinion/padma-lakshmi-kamala-harris-cooking.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/opinion/ukraine-america-russia-freedom.html
 **Easing the Stress Parents Face**\
 `Parents discuss a guest essay by the surgeon general.`\
 https://nytimes.com/2024/09/21/opinion/parents-stress.html
-
-**How a U.S. Ally Uses Aid as a Cover in War**\
-`The United Arab Emirates is expanding a covert campaign to back a winner in Sudan’s civil war. Waving the banner of the Red Crescent, it is also smuggling weapons and deploying drones.`\
-https://nytimes.com/2024/09/21/world/africa/uae-sudan-civil-war.html
 

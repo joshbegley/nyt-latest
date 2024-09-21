@@ -1,3 +1,7 @@
+**Oilers depth chart: How the roster is shaping up for preseason**\
+`The Oilers head into Sunday's exhibition opener with few question marks pertaining to the roster.`\
+https://nytimes.com/athletic/5782877/2024/09/21/edmonton-oilers-depth-chart-preseason-2024/
+
 **What happens to the ATP Next Gen Finals in the twilight of the Big Three?**\
 `Exploring the Next Gen finals' place in tennis's ecosystem, who is in the mix, and if WTA might create a version for their rising stars...`\
 https://nytimes.com/athletic/5771636/2024/09/21/atp-next-gen-finals-jeddah-future-wta/

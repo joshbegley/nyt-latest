@@ -1,3 +1,7 @@
+**Attacks on Hezbollah this week are the latest attributed to Israel.**\
+`Israel is believed to have conducted a series of clandestine attacks on adversaries linked to Iran in recent years, sometimes using highly innovative tactics.`\
+https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/attacks-on-hezbollah-this-week-are-the-latest-attributed-to-israel
+
 **What happens to the ATP Next Gen Finals in the twilight of the Big Three?**\
 `Exploring the Next Gen finals' place in tennis's ecosystem, who is in the mix, and if WTA might create a version for their rising stars...`\
 https://nytimes.com/athletic/5771636/2024/09/21/atp-next-gen-finals-jeddah-future-wta/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/opinion/sudan-darfur-rape.html
 **Freedom Must Be for All**\
 `Freedom is not just an absence of evil. Freedom is the presence of good.`\
 https://nytimes.com/2024/09/21/opinion/ukraine-america-russia-freedom.html
-
-**Easing the Stress Parents Face**\
-`Parents discuss a guest essay by the surgeon general.`\
-https://nytimes.com/2024/09/21/opinion/parents-stress.html
 
