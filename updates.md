@@ -1,3 +1,7 @@
+**Ohio State takeaways: Chip Kelly's offense showed just how dangerous it can be**\
+`After some early adversity, Ohio State dominated Marshall 49-14 behind huge games from Quinshon Judkins and TreVeyon Henderson.`\
+https://nytimes.com/athletic/5783922/2024/09/21/ohio-state-football-marshall-score-recap/
+
 **Rafael Devers on IL with shoulder inflammation**\
 `Devers has battled soreness and inflammation in each shoulder throughout the season.`\
 https://nytimes.com/athletic/5783950/2024/09/21/red-sox-rafael-devers-injury/
