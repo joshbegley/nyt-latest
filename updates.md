@@ -1,3 +1,11 @@
+**Daniel J. Evans, Stalwart of Washington State Politics, Dies at 98**\
+`A moderate Republican, he championed education, civil rights and environmental causes as a three-term governor and as a U.S. senator.`\
+https://nytimes.com/2024/09/21/obituaries/daniel-j-evans-dead.html
+
+**At a Rally in North Carolina, Trump Avoids Topic A: Mark Robinson**\
+`The former president did not mention Mr. Robinson, the state’s embattled Republican nominee for governor, whom he once called “Martin Luther King on steroids.”`\
+https://nytimes.com/2024/09/21/us/politics/donald-trump-mark-robinson-rally.html
+
 **Canadiens training camp: Josh Anderson's transformative summer, Armia things are back and more**\
 `Anderson wanted to move past his difficult season. To do so, he had to relive it and realize it wasn't as bad as he thought.`\
 https://nytimes.com/athletic/5784186/2024/09/21/canadiens-training-camp-josh-anderson-armia/
