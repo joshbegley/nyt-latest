@@ -1,3 +1,7 @@
+**Utah at Oklahoma State picks, odds, how to watch: Rising injury concerns affecting spread**\
+`Utah was favored, but Cam Rising's availability has come into question after a big swing in the odds towards Oklahoma State.`\
+https://nytimes.com/athletic/5779533/2024/09/21/utah-oklahoma-state-picks-odds-predictions-how-to-watch/
+
 **Nebraska disappoints 400th straight sellout crowd, losing Big Ten opener to Illinois in OT**\
 `Nebraska finished 40 yards short of a first down in overtime. It looked tired. It missed the chance to announce its return as a contender.`\
 https://nytimes.com/athletic/5782724/2024/09/21/nebraska-loses-big-ten-opener-illinois/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783282/2024/09/21/justin-verlander-struggles-astro
 **Red Sox lose to Twins in 12 innings, await MRI results on Rafael Devers' right shoulder**\
 `In a crucial game for their dwindling postseason hopes, the Red Sox struck out 20 times, tying a franchise record from 1974 and 2001. `\
 https://nytimes.com/athletic/5783261/2024/09/21/red-sox-rafael-devers-mri-shoulder/
-
-**What we learned from Manuel Ugarte's first 79 minutes as a Manchester United player**\
-`Midfielder Ugarte was a big-money summer arrival for Manchester United and has now made two appearances - the early signs are good`\
-https://nytimes.com/athletic/5781970/2024/09/21/manuel-ugarte-manchester-united-analysis/
 
