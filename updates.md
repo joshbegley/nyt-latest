@@ -1,3 +1,7 @@
+**For Americans Haunted by Beirut Bombings, a Killing Resurfaces Decades of Pain**\
+`The death of a Hezbollah leader wanted for his role in the 1983 attacks drew a range of reactions from survivors and victims’ families but brought little resolution.`\
+https://nytimes.com/2024/09/21/world/middleeast/1983-beirut-bombings-us-marine-base.html
+
 **Steelers rookie OT Troy Fautanu placed on injured reserve**\
 `Fautanu was expected to be a major part of a Steelers offensive line in flux.`\
 https://nytimes.com/athletic/5784217/2024/09/21/pittsburgh-steelers-troy-fautanu-injury/
