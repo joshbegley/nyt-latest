@@ -1,3 +1,11 @@
+**Harris Agrees to a CNN Debate and Pressures Trump to Join**\
+`Vice President Kamala Harris, who was widely seen as the winner of the Sept. 10 debate against former President Donald J. Trump, is seeking a rematch.`\
+https://nytimes.com/2024/09/21/us/politics/harris-trump-cnn-debate-challenge.html
+
+**The Briefing: Palace 0 Man Utd 0 - Was Ten Hag right to leave out Rashford? Dalot key, Onana's wondersave**\
+`United failed to take advantage of their first-half dominance - and had Andre Onana to thank for the point. Here are the key talking points`\
+https://nytimes.com/athletic/5779419/2024/09/21/crystal-palace-0-man-utd-0-ten-hag-rashford-onana/
+
 **JMU dominates North Carolina en route to historic 53-point first half**\
 `The 53 points tallied through two quarters were the most points JMU football has ever scored in a half.`\
 https://nytimes.com/athletic/5783841/2024/09/21/james-madison-north-carolina-53-points/
