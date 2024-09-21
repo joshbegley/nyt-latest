@@ -1,3 +1,7 @@
+**Flick ready to move on from Ter Stegen error: 'Water under the bridge'**\
+`Barcelona head coach Hansi Flick says he has moved on from Marc-Andre ter Stegen’s error in their Champions League defeat by Monaco on Thursday.`\
+https://nytimes.com/athletic/5783484/2024/09/21/barcelona-flick-ter-stegen/
+
 **Mutual admiration: Matt Chapman, Logan Webb embrace long-term leadership roles with Giants**\
 `Chapman and Webb squared off as professional rookies in 2014. Now they are united in a vision for the future of the Giants as veterans.`\
 https://nytimes.com/athletic/5782117/2024/09/21/sf-giants-matt-chapman-logan-webb-leadership/

@@ -1,3 +1,7 @@
+**Flick ready to move on from Ter Stegen error: 'Water under the bridge'**\
+`Barcelona head coach Hansi Flick says he has moved on from Marc-Andre ter Stegen’s error in their Champions League defeat by Monaco on Thursday.`\
+https://nytimes.com/athletic/5783484/2024/09/21/barcelona-flick-ter-stegen/
+
 **Mutual admiration: Matt Chapman, Logan Webb embrace long-term leadership roles with Giants**\
 `Chapman and Webb squared off as professional rookies in 2014. Now they are united in a vision for the future of the Giants as veterans.`\
 https://nytimes.com/athletic/5782117/2024/09/21/sf-giants-matt-chapman-logan-webb-leadership/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/books/read-like-wind-recommendations.html
 **Attacks on Hezbollah this week are the latest attributed to Israel.**\
 `Israel is believed to have conducted a series of clandestine attacks on adversaries linked to Iran in recent years, sometimes using highly innovative tactics.`\
 https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/attacks-on-hezbollah-this-week-are-the-latest-attributed-to-israel
-
-**What happens to the ATP Next Gen Finals in the twilight of the Big Three?**\
-`Exploring the Next Gen finals' place in tennis's ecosystem, who is in the mix, and if WTA might create a version for their rising stars...`\
-https://nytimes.com/athletic/5771636/2024/09/21/atp-next-gen-finals-jeddah-future-wta/
 
