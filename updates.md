@@ -1,3 +1,7 @@
+**WVU safety Aubrey Burks stretchered off field**\
+`Burks was placed in an ambulance and taken to a nearby hospital. It is unclear what caused the issue.`\
+https://nytimes.com/athletic/5783737/2024/09/21/aubrey-burks-injury-kansas/
+
 **Arizona Court Allows 98,000 to Vote in State and Local Races Despite Database Glitch**\
 `Officials recently discovered that some people with driver’s licenses issued before 1996 might not have proof of citizenship on file, a state requirement since 2004.`\
 https://nytimes.com/2024/09/21/us/politics/arizona-supreme-court-vote-database-glitch.html
