@@ -1,3 +1,7 @@
+**Breakout Performance**\
+`Jeremy Newton and Tracy Gray’s puzzle offers a great escape.`\
+https://nytimes.com/2024/09/21/crosswords/daily-puzzle-2024-09-22.html
+
 **Green Day's Billy Joe Armstrong slams A’s owner John Fisher at San Francisco show**\
 `Armstrong proclaimed "East Bay for life" before launching a tirade against Fisher and his planned relocation to Las Vegas.`\
 https://nytimes.com/athletic/5784098/2024/09/21/green-day-billy-joe-armstrong-rant-john-fisher/

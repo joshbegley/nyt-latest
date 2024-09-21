@@ -1,3 +1,7 @@
+**Breakout Performance**\
+`Jeremy Newton and Tracy Gray’s puzzle offers a great escape.`\
+https://nytimes.com/2024/09/21/crosswords/daily-puzzle-2024-09-22.html
+
 **Green Day's Billy Joe Armstrong slams A’s owner John Fisher at San Francisco show**\
 `Armstrong proclaimed "East Bay for life" before launching a tirade against Fisher and his planned relocation to Las Vegas.`\
 https://nytimes.com/athletic/5784098/2024/09/21/green-day-billy-joe-armstrong-rant-john-fisher/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783922/2024/09/21/ohio-state-football-marshall-sco
 **Rafael Devers on IL with shoulder inflammation**\
 `Devers has battled soreness and inflammation in each shoulder throughout the season.`\
 https://nytimes.com/athletic/5783950/2024/09/21/red-sox-rafael-devers-injury/
-
-**Leader of Kenya, Donor to Haiti Peacekeeping Force, Makes First Visit**\
-`The trip by President William Ruto of Kenya came against a bleak backdrop in Haiti, where gangs operate with impunity and the Kenyan peacekeepers remain largely out of sight.`\
-https://nytimes.com/2024/09/21/world/americas/kenya-haiti-ruto.html
 
