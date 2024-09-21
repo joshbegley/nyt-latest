@@ -1,3 +1,7 @@
+**Billy Edd Wheeler, Songwriter Who Celebrated Rural Life, Dies at 91**\
+`His plain-spoken songs were recorded by Elvis Presley, Kenny Rogers and many others. The duo of Johnny Cash and June Carter made his “Jackson” a huge country hit.`\
+https://nytimes.com/2024/09/21/arts/music/billy-edd-wheeler-dead.html
+
 **Gotham's Kelley O'Hara on season-ending injury list**\
 `O’Hara, an Olympic gold medalist with the USWNT, announced her plans in May to retire from soccer at the end of the NWSL season.`\
 https://nytimes.com/athletic/5783625/2024/09/21/kelley-ohara-injury-gotham-uswnt/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/us/rob-rue-springfield-ohio-mayor-trump.html
 **Will Cam Fowler trade talk be a distraction? And other big questions from Ducks camp**\
 `Can a line of Trevor Zegras, Mason McTavish and Troy Terry work?`\
 https://nytimes.com/athletic/5783310/2024/09/21/ducks-training-camp-fowler-trade/
-
-**Israeli Strike on Former School Kills 22, Gazan Health Officials Say**\
-`Gaza’s ministry of health said most of those killed in the strike on the Zeitoun School in Gaza City were women and children.`\
-https://nytimes.com/2024/09/21/world/middleeast/israel-shelter-strike-gaza.html
 

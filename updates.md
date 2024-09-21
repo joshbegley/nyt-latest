@@ -1,3 +1,7 @@
+**Billy Edd Wheeler, Songwriter Who Celebrated Rural Life, Dies at 91**\
+`His plain-spoken songs were recorded by Elvis Presley, Kenny Rogers and many others. The duo of Johnny Cash and June Carter made his “Jackson” a huge country hit.`\
+https://nytimes.com/2024/09/21/arts/music/billy-edd-wheeler-dead.html
+
 **Nats option Abrams to Triple A over 'internal issue'**\
 `Nationals manager Davey Martinez confirmed the move wasn't a performance issue.`\
 https://nytimes.com/athletic/5783630/2024/09/21/nationals-option-all-star-cj-abrams-to-triple-a/
