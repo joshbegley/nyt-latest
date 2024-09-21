@@ -1,3 +1,11 @@
+**Lando Norris wins Singapore Grand Prix pole**\
+`The two contenders for the drivers' championship will start side-by-side on Sunday. `\
+https://nytimes.com/athletic/5783524/2024/09/21/lando-norris-f1-singapore-gp-pole/
+
+**For Families of Those Missing After Israeli Strike in Beirut, an Agonizing Wait**\
+`With the death toll rising and rescuers still searching for people beneath the rubble, families were keeping a desperate watch over the site of an Israeli strike in Lebanon.`\
+https://nytimes.com/2024/09/21/world/middleeast/beirut-israel-strike-families.html
+
 **Harris Enters Homestretch With a Far Bigger, Costlier Campaign Than Trump**\
 `Kamala Harris is collecting more money, spending more money and sitting on more money than Donald J. Trump.`\
 https://nytimes.com/2024/09/21/us/elections/harris-trump-fundraising-fec-reports.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/21/world/europe/ukraine-russia-war-ammunition-depots
 **Sean Combs and the Limits of the ‘Family Man’ Defense**\
 `Famous people have long tried to launder their images through their spouses and children.`\
 https://nytimes.com/2024/09/21/opinion/sean-combs-family-man-defense.html
-
-**Flick ready to move on from Ter Stegen error: 'Water under the bridge'**\
-`Barcelona head coach Hansi Flick says he has moved on from Marc-Andre ter Stegen’s error in their Champions League defeat by Monaco on Thursday.`\
-https://nytimes.com/athletic/5783484/2024/09/21/barcelona-flick-ter-stegen/
-
-**Mutual admiration: Matt Chapman, Logan Webb embrace long-term leadership roles with Giants**\
-`Chapman and Webb squared off as professional rookies in 2014. Now they are united in a vision for the future of the Giants as veterans.`\
-https://nytimes.com/athletic/5782117/2024/09/21/sf-giants-matt-chapman-logan-webb-leadership/
 
