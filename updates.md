@@ -1,3 +1,7 @@
+**Macron Appoints Cabinet as He Seeks to Move France Out of Political Impasse**\
+`The government still faces two challenges in the coming weeks: the risk of a no-confidence vote and a tight budget deadline.`\
+https://nytimes.com/2024/09/21/world/europe/macron-france-cabinet.html
+
 **The Briefing: Palace 0 Man Utd 0 - Was Ten Hag right to leave out Rashford? Dalot key, Onana's wonder save**\
 `United failed to take advantage of their first-half dominance - and had Andre Onana to thank for the point. Here are the key talking points`\
 https://nytimes.com/athletic/5779419/2024/09/21/crystal-palace-0-man-utd-0-ten-hag-rashford-onana/
