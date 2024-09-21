@@ -1,3 +1,11 @@
+**Lando Norris wins Singapore Grand Prix pole**\
+`The two contenders for the drivers' championship will start side-by-side on Sunday. `\
+https://nytimes.com/athletic/5783524/2024/09/21/lando-norris-f1-singapore-gp-pole/
+
+**For Families of Those Missing After Israeli Strike in Beirut, an Agonizing Wait**\
+`With the death toll rising and rescuers still searching for people beneath the rubble, families were keeping a desperate watch over the site of an Israeli strike in Lebanon.`\
+https://nytimes.com/2024/09/21/world/middleeast/beirut-israel-strike-families.html
+
 **Harris Enters Homestretch With a Far Bigger, Costlier Campaign Than Trump**\
 `Kamala Harris is collecting more money, spending more money and sitting on more money than Donald J. Trump.`\
 https://nytimes.com/2024/09/21/us/elections/harris-trump-fundraising-fec-reports.html
