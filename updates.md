@@ -1,3 +1,11 @@
+**How Gina Torres, of ‘Suits’ and ‘9-1-1: Lonestar,’ Spends Her Sundays**\
+`Ms. Torres starts with a low-key workout, takes a dance break and ends the day with one of her favorite murder-filled TV shows.`\
+https://nytimes.com/2024/09/21/nyregion/gina-torres-suits-911-lone-star.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/21/crosswords/spelling-bee-forum.html
+
 **Padres move closer to playoffs, but Robert Suarez's role is up for 'consideration'**\
 `In the postseason, every Padres advantage — and disadvantage — will be magnified.`\
 https://nytimes.com/athletic/5783332/2024/09/21/padres-playoffs-robert-suarez/
