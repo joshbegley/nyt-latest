@@ -1,3 +1,7 @@
+**How a U.S. Ally Uses Aid as a Cover in War**\
+`The United Arab Emirates is expanding a covert campaign to back a winner in Sudan’s civil war. Waving the banner of the Red Crescent, it is also smuggling weapons and deploying drones.`\
+https://nytimes.com/2024/09/21/world/africa/uae-sudan-civil-war.html
+
 **Shoulder Season**\
 `It’s still summer today, but fall arrives tomorrow. Take a minute to pause on the threshold.`\
 https://nytimes.com/2024/09/21/briefing/shoulder-season.html

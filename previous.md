@@ -1,3 +1,7 @@
+**How a U.S. Ally Uses Aid as a Cover in War**\
+`The United Arab Emirates is expanding a covert campaign to back a winner in Sudan’s civil war. Waving the banner of the Red Crescent, it is also smuggling weapons and deploying drones.`\
+https://nytimes.com/2024/09/21/world/africa/uae-sudan-civil-war.html
+
 **Shoulder Season**\
 `It’s still summer today, but fall arrives tomorrow. Take a minute to pause on the threshold.`\
 https://nytimes.com/2024/09/21/briefing/shoulder-season.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5782809/2024/09/21/carolina-hurricanes-roster-proje
 **Canadian Doctors Group Apologizes for Health Harms to Indigenous People**\
 `Indigenous patients faced abuse, experimental treatments and other harms in Canada’s health system, which still has disparities.`\
 https://nytimes.com/2024/09/21/world/canada/indigenous-health-medical-apology.html
-
-**Wordle Review No. 1,191**\
-`Scroll down for hints and conversation about the puzzle for September 22, 2024.`\
-https://nytimes.com/2024/09/21/crosswords/wordle-review-1191.html
 
