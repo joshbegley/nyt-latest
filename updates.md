@@ -1,3 +1,7 @@
+**Sean Combs and the Limits of the ‘Family Man’ Defense**\
+`Famous people have long tried to launder their images through their spouses and children.`\
+https://nytimes.com/2024/09/21/opinion/sean-combs-family-man-defense.html
+
 **Exploding Pagers Deliver a Supply Chain Warning**\
 `The attacks on Hezbollah in Lebanon are likely to generate greater momentum for moving factory production closer to home.`\
 https://nytimes.com/2024/09/21/business/dealbook/exploding-pagers-deliver-supply-chain-warning.html
