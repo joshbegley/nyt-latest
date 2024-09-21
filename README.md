@@ -1,4 +1,4 @@
-**The Briefing: Liverpool 3 Bournemouth 0 - Alexander-Arnold shows his worth and Nunez arrives for season**\
+**The Briefing: Liverpool 3 Bournemouth 0 - Keeping Alexander-Arnold is crucial and Nunez arrives for season**\
 `Liverpool beat Bournemouth 3-0 at Anfield on Saturday afternoon courtesy of goals from Luis Diaz and Darwin Nunez`\
 https://nytimes.com/athletic/5778673/2024/09/21/liverpool-bournemouth-result-analysis-report/
 
