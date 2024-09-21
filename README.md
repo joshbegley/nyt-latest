@@ -15,7 +15,7 @@ https://nytimes.com/2024/09/21/crosswords/spelling-bee-forum.html
 https://nytimes.com/athletic/5783332/2024/09/21/padres-playoffs-robert-suarez/
 
 **Key takeaways from Sonia Bompastor's first Chelsea game**\
-`Sonia Bompastor got life as Chelsea manager off to a winning start against Aston Villa on Friday night`\
+`Chelsea got life under new manager Bompastor off to a winning start - but the transition from Emma Hayes isn't going entirely smoothly`\
 https://nytimes.com/athletic/5783006/2024/09/21/chelsea-sonia-bompastor-key-takeaways/
 
 **3 biggest highlights from Juan Soto's gutsy performance in huge win over A's**\
