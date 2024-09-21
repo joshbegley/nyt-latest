@@ -1,3 +1,15 @@
+**He Makes Less than $15,000 and Is Trying to Hold Springfield, Ohio, Together**\
+`Mayor Rob Rue, whose job is supposed to be part time, finds himself dealing with bomb threats, false rumors and added pressures on city resources.`\
+https://nytimes.com/2024/09/21/us/rob-rue-springfield-ohio-mayor-trump.html
+
+**Will Cam Fowler trade talk be a distraction? And other big questions from Ducks camp**\
+`Can a line of Trevor Zegras, Mason McTavish and Troy Terry work?`\
+https://nytimes.com/athletic/5783310/2024/09/21/ducks-training-camp-fowler-trade/
+
+**Israeli Strike on Former School Kills 22, Gazan Health Officials Say**\
+`Gaza’s ministry of health said most of those killed in the strike on the Zeitoun School in Gaza City were women and children.`\
+https://nytimes.com/2024/09/21/world/middleeast/israel-shelter-strike-gaza.html
+
 **Elon Musk’s X Backs Down in Brazil**\
 `In an abrupt reversal, the social network’s lawyers said it was complying with court orders that it had previously defied. Brazil’s Supreme Court could allow the site to return next week.`\
 https://nytimes.com/2024/09/21/world/americas/elon-musk-x-brazil.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5783524/2024/09/21/lando-norris-f1-singapore-gp-pol
 **For Families of Those Missing After Israeli Strike in Beirut, an Agonizing Wait**\
 `With the death toll rising and rescuers still searching for people beneath the rubble, families were keeping a desperate watch over the site of an Israeli strike in Lebanon.`\
 https://nytimes.com/2024/09/21/world/middleeast/beirut-israel-strike-families.html
-
-**Harris Enters Homestretch With a Far Bigger, Costlier Campaign Than Trump**\
-`Kamala Harris is collecting more money, spending more money and sitting on more money than Donald J. Trump.`\
-https://nytimes.com/2024/09/21/us/elections/harris-trump-fundraising-fec-reports.html
-
-**What I’m hearing: Steelers ready to cook with Fields, Herbert and Love updates, Bryce Young’s reality**\
-`Plus, Kevin O’Connell’s latest success story (and the coach's contract), why it’s working for Derek Carr, kickers go long, and more.`\
-https://nytimes.com/athletic/5783024/2024/09/21/jordan-love-justin-herbert-injury-updates-justin-fields-steelers-offense-bryce-young-benching/
-
-**Who Are the Black Swing Voters?**\
-`Black voters are not monolithic.`\
-https://nytimes.com/video/us/elections/100000009710303/who-are-the-black-swing-voters.html
 
