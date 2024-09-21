@@ -1,3 +1,15 @@
+**Green Day's Billy Joe Armstrong slams A’s owner John Fisher at San Francisco show**\
+`Armstrong proclaimed "East Bay for life" before launching a tirade against Fisher and his planned relocation to Las Vegas.`\
+https://nytimes.com/athletic/5784098/2024/09/21/green-day-billy-joe-armstrong-rant-john-fisher/
+
+**Newsom Signs Bill That Adds Protections for Children on Social Media**\
+`The California legislation comes amid growing concerns about the impact of cellphones and social media on adolescents’ mental health.`\
+https://nytimes.com/2024/09/21/us/newsom-children-social-media-bill.html
+
+**A Week of Chaos Pushes Lebanon’s Doctors to the Limit**\
+`Exploding wireless devices maimed thousands. An Israeli airstrike on Friday flattened two buildings. Many doctors, exhausted, wonder how the country will cope if violence continues.`\
+https://nytimes.com/2024/09/21/world/middleeast/lebanon-doctors-hezbollah-airstrike-medical.html
+
 **Guardiola thinks City's rivals want them 'wiped off the face of the Earth'**\
 `Pep Guardiola says Manchester City’s rivals want the club &#8220;wiped off the face of the Earth&#8221; over their 115 Premier League charges.`\
 https://nytimes.com/athletic/5783378/2024/09/21/manchester-city-pep-guardiola-charges/
