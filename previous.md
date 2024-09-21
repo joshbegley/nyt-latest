@@ -1,3 +1,7 @@
+**Built with intention: F1 Academy's car was chosen with the series' goals in mind**\
+`The all-women racing series cars blend F4 tech with F1 flavor — the right choice for a series focused on driver development.`\
+https://nytimes.com/athletic/5781846/2024/09/21/f1-academy-car-breakdown/
+
 **Justin Verlander's struggles continue in possible final start at Minute Maid Park**\
 `After allowing six runs against the Angels on Friday, Verlander's ERA rose to 5.55.`\
 https://nytimes.com/athletic/5783282/2024/09/21/justin-verlander-struggles-astros-minute-maid-park/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774267/2024/09/21/adjusting-the-value-of-a-premier
 **Ozzie Albies returns to Braves but momentum evaporates against Marlins**\
 `Albies went hitless in his return but the Braves hope he can bring a spark with their playoff hopes hanging by a thread.`\
 https://nytimes.com/athletic/5783154/2024/09/21/braves-ozzie-albies-returns-marlins/
-
-**Demi Vollering interview: How do you rebound from losing the closest Tour de France in history?**\
-`The Dutch star on dealing with defeat, her plans for 2025 and why women's cycling shouldn't just copy the men's sport  `\
-https://nytimes.com/athletic/5770611/2024/09/21/demi-vollering-interview-tour-de-france/
 
