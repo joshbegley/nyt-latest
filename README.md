@@ -1,3 +1,7 @@
+**Leader of Kenya, Donor to Haiti Peacekeeping Force, Makes First Visit**\
+`The trip by President William Ruto of Kenya came against a bleak backdrop in Haiti, where gangs operate with impunity and the Kenyan peacekeepers remain largely out of sight.`\
+https://nytimes.com/2024/09/21/world/americas/kenya-haiti-ruto.html
+
 **Human Case of Rare Mosquito-Borne Illness Reported in New York State**\
 `A person in Ulster County has been hospitalized with Eastern equine encephalitis, health officials said. It is the first confirmed human case of the disease recorded in the state since 2015.`\
 https://nytimes.com/2024/09/21/nyregion/mosquitoes-eee-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/us/politics/arizona-supreme-court-vote-database-g
 **F.B.I. Agents Board Ship Managed by Company of Vessel in Baltimore Bridge Collapse**\
 `The move comes three days after the Justice Department’s civil lawsuit against the owner and operator of the Dali, which struck the Francis Scott Key Bridge in March.`\
 https://nytimes.com/2024/09/21/us/fbi-dali-ship-baltimore-bridge-collapse.html
-
-**At a Hezbollah funeral, a chaotic week brings a mix of sorrow and defiance.**\
-`By Hwaida Saad`\
-https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/at-a-hezbollah-funeral-a-chaotic-week-brings-a-mix-of-sorrow-and-defiance
 
