@@ -1,3 +1,7 @@
+**Key takeaways from Sonia Bompastor's first Chelsea game**\
+`Chelsea got life under new manager Bompastor off to a winning start - but the transition from Emma Hayes isn't going entirely smoothly`\
+https://nytimes.com/athletic/5783006/2024/09/21/chelsea-sonia-bompastor-key-takeaways/
+
 **Nebraska disappoints 400th straight sellout crowd, losing Big Ten opener to Illinois in OT**\
 `Nebraska finished 40 yards short of a first down in overtime. It looked tired. It missed the chance to announce its return as a contender.`\
 https://nytimes.com/athletic/5782724/2024/09/21/nebraska-loses-big-ten-opener-illinois/
