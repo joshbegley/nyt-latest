@@ -1,3 +1,11 @@
+**F.B.I. Agents Board Ship Managed by Company of Vessel in Baltimore Bridge Collapse**\
+`The move comes three days after the Justice Department’s civil lawsuit against the owner and operator of the Dali, which struck the Francis Scott Key Bridge in March.`\
+https://nytimes.com/2024/09/21/us/fbi-dali-ship-baltimore-bridge-collapse.html
+
+**At a Hezbollah funeral, a chaotic week brings a mix of sorrow and defiance.**\
+`By Hwaida Saad`\
+https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/at-a-hezbollah-funeral-a-chaotic-week-brings-a-mix-of-sorrow-and-defiance
+
 **Aston Villa's McGinn out "for a few weeks" with hamstring injury - Emery**\
 `Unai Emery has said that Aston Villa captain John McGinn is set to be unavailable for &#8220;a few weeks&#8221; due to a hamstring injury.`\
 https://nytimes.com/athletic/5783799/2024/09/21/aston-villa-john-mcginn-hamstring-injury/

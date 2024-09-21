@@ -1,3 +1,11 @@
+**F.B.I. Agents Board Ship Managed by Company of Vessel in Baltimore Bridge Collapse**\
+`The move comes three days after the Justice Department’s civil lawsuit against the owner and operator of the Dali, which struck the Francis Scott Key Bridge in March.`\
+https://nytimes.com/2024/09/21/us/fbi-dali-ship-baltimore-bridge-collapse.html
+
+**At a Hezbollah funeral, a chaotic week brings a mix of sorrow and defiance.**\
+`By Hwaida Saad`\
+https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/at-a-hezbollah-funeral-a-chaotic-week-brings-a-mix-of-sorrow-and-defiance
+
 **Aston Villa's McGinn out "for a few weeks" with hamstring injury - Emery**\
 `Unai Emery has said that Aston Villa captain John McGinn is set to be unavailable for &#8220;a few weeks&#8221; due to a hamstring injury.`\
 https://nytimes.com/athletic/5783799/2024/09/21/aston-villa-john-mcginn-hamstring-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/21/arts/music/billy-edd-wheeler-dead.html
 **Gotham's Kelley O'Hara on season-ending injury list**\
 `O’Hara, an Olympic gold medalist with the USWNT, announced her plans in May to retire from soccer at the end of the NWSL season.`\
 https://nytimes.com/athletic/5783625/2024/09/21/kelley-ohara-injury-gotham-uswnt/
-
-**Nats option Abrams to Triple A over 'internal issue'**\
-`Nationals manager Davey Martinez confirmed the move wasn't a performance issue.`\
-https://nytimes.com/athletic/5783630/2024/09/21/nationals-option-all-star-cj-abrams-to-triple-a/
-
-**We Are Running Out of Firefighters at a Perilous Time**\
-`Now would be a good time for Congress to pass a federal spending bill to make a permanent pay increase a reality.`\
-https://nytimes.com/2024/09/21/opinion/california-wildfires-west-forest-service.html
 
