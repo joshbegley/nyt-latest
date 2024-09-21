@@ -1,3 +1,11 @@
+**How Gina Torres, of ‘Suits’ and ‘9-1-1: Lonestar,’ Spends Her Sundays**\
+`Ms. Torres starts with a low-key workout, takes a dance break and ends the day with one of her favorite murder-filled TV shows.`\
+https://nytimes.com/2024/09/21/nyregion/gina-torres-suits-911-lone-star.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/21/crosswords/spelling-bee-forum.html
+
 **Padres move closer to playoffs, but Robert Suarez's role is up for 'consideration'**\
 `In the postseason, every Padres advantage — and disadvantage — will be magnified.`\
 https://nytimes.com/athletic/5783332/2024/09/21/padres-playoffs-robert-suarez/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5781970/2024/09/21/manuel-ugarte-manchester-united-
 **Alec Bohm shows the boost he can give playoff-bound Phillies, who have 'bigger goals'**\
 `Bohm powered the Phillies for the first few months. Better run production from the cleanup spot would help come October.`\
 https://nytimes.com/athletic/5783175/2024/09/21/alec-bohm-phillies-mlb-playoffs/
-
-**Arteta's time at Man City and the training drill that transformed Sterling**\
-`Arteta played a key role in turning Sterling from a threatening winger into a truly dangerous goalscorer at City. Can he do it again?`\
-https://nytimes.com/athletic/5779152/2024/09/21/sterling-arteta-arsenal-man-city/
-
-**'It's like the Titanic': The decline of Girondins de Bordeaux**\
-`One of France's most famous clubs have been brought to their knees by financial chaos - is there a way back?`\
-https://nytimes.com/athletic/5781741/2024/09/21/bordeaux-girondins-decline-financial-trouble/
 
