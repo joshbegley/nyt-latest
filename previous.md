@@ -1,3 +1,7 @@
+**The Mets managed Friday like a playoff game. It did not work**\
+`The decision to remove David Peterson didn't work out as the Phillies quickly put the game out reach against Adam Ottavino.`\
+https://nytimes.com/athletic/5783148/2024/09/20/mets-carlos-mendoza-david-peterson/
+
 **Trinity Rodman leaves NWSL match in wheelchair**\
 `Rodman later returned to the bench with an ice pack on her back, a positive sign for the striker who has had a history of back issuues.`\
 https://nytimes.com/athletic/5783128/2024/09/20/trinity-rodman-nwsl-injury-wheelchair/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/nyregion/fbi-phil-banks-contracts.html
 **Rallying in Two Key States, Harris Presses Her Case on Abortion Rights**\
 `Visiting Wisconsin after giving a speech in Georgia, the vice president signaled she would focus on the life-or-death risks of abortion bans in the final weeks of the race.`\
 https://nytimes.com/2024/09/20/us/politics/harris-rally-wisconsin.html
-
-**Bodycam Footage Shows Police Shooting in N.Y.C. Subway**\
-`The New York Police Department released edited body camera footage that shows the moments before and after officers shot a man who they said was wielding a knife at a subway station in Brooklyn.`\
-https://nytimes.com/video/nyregion/100000009711230/nyc-subway-shooting-bodycam.html
 

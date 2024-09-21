@@ -1,3 +1,7 @@
+**The Mets managed Friday like a playoff game. It did not work**\
+`The decision to remove David Peterson didn't work out as the Phillies quickly put the game out reach against Adam Ottavino.`\
+https://nytimes.com/athletic/5783148/2024/09/20/mets-carlos-mendoza-david-peterson/
+
 **Trinity Rodman leaves NWSL match in wheelchair**\
 `Rodman later returned to the bench with an ice pack on her back, a positive sign for the striker who has had a history of back issuues.`\
 https://nytimes.com/athletic/5783128/2024/09/20/trinity-rodman-nwsl-injury-wheelchair/
