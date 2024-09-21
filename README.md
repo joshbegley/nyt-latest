@@ -1,3 +1,7 @@
+**Car Parts, Fiberglass and a Dream: How a Teacher Built a Hovercraft**\
+`Robert Tymofichuk, a teacher in Alberta, Canada, spent nearly 2,000 hours building an operational hovercraft from salvaged car parts and with no blueprint.`\
+https://nytimes.com/2024/09/21/technology/diy-hovercraft-alberta-canada.html
+
 **Sally Rooney Thinks Career Growth Is Overrated**\
 `The star novelist discusses her public persona, the discourse around her work and why reinvention isn’t a goal.`\
 https://nytimes.com/2024/09/21/magazine/sally-rooney-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5782249/2024/09/21/patriots-jets-week-3-offensive-l
 **Here are Cases of Trump Rivals Who Were Subject to Investigation**\
 `Those who found themselves under government scrutiny after alienating President Donald J. Trump ranged from the former F.B.I. director to a onetime contestant on “The Apprentice.”`\
 https://nytimes.com/interactive/2024/09/21/us/trump-opponents-investigations.html
-
-**Drug Overdose Deaths Are Dropping. The Reasons Are Not Perfectly Clear.**\
-`The decrease across the country is a major breakthrough in efforts to reverse the effects of fentanyl. Researchers and health officials say there is no easy explanation for the trend.`\
-https://nytimes.com/2024/09/21/us/politics/drug-overdose-deaths-decrease.html
 
