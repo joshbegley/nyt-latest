@@ -1,3 +1,7 @@
+**Cleveland Guardians clinch AL Central title for second time in 3 years**\
+`Despite the division being stronger this season — apart from the White Sox — Cleveland spent all but six days in first place.`\
+https://nytimes.com/athletic/5784339/2024/09/21/cleveland-guardians-clinch-al-central/
+
 **Legendary Suns radio broadcaster Al McCoy dies at 91**\
 `McCoy called his last game for the Suns on May 11, 2023, after 51 years behind the microphone.`\
 https://nytimes.com/athletic/5784353/2024/09/21/al-mccoy-suns-broadcaster-obituary/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/us/politics/donald-trump-mark-robinson-rally.html
 **Canadiens training camp: Josh Anderson's transformative summer, Joel Armia things are back**\
 `Anderson wanted to move past his difficult season. To do so, he had to relive it and realize it wasn't as bad as he thought.`\
 https://nytimes.com/athletic/5784186/2024/09/21/canadiens-training-camp-josh-anderson-armia/
-
-**For Americans Haunted by Beirut Bombings, a Killing Resurfaces Decades of Pain**\
-`The death of a Hezbollah leader wanted for his role in the 1983 attacks drew a range of reactions from survivors and victims’ families but brought little resolution.`\
-https://nytimes.com/2024/09/21/world/middleeast/1983-beirut-bombings-us-marine-base.html
 

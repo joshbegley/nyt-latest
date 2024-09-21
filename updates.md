@@ -1,3 +1,7 @@
+**Cleveland Guardians clinch AL Central title for second time in 3 years**\
+`Despite the division being stronger this season — apart from the White Sox — Cleveland spent all but six days in first place.`\
+https://nytimes.com/athletic/5784339/2024/09/21/cleveland-guardians-clinch-al-central/
+
 **Legendary Suns radio broadcaster Al McCoy dies at 91**\
 `McCoy called his last game for the Suns on May 11, 2023, after 51 years behind the microphone.`\
 https://nytimes.com/athletic/5784353/2024/09/21/al-mccoy-suns-broadcaster-obituary/
