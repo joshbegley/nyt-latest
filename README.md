@@ -1,3 +1,7 @@
+**Red Sox lose to Twins in 12 innings, await MRI results on Rafael Devers' right shoulder**\
+`In a crucial game for their dwindling postseason hopes, the Red Sox struck out 20 times, tying a franchise record from 1974 and 2001. `\
+https://nytimes.com/athletic/5783261/2024/09/21/red-sox-rafael-devers-mri-shoulder/
+
 **What we learned from Manuel Ugarte's first 79 minutes as a Manchester United player**\
 `Midfielder Ugarte was a big-money summer arrival for Manchester United and has now made two appearances - the early signs are good`\
 https://nytimes.com/athletic/5781970/2024/09/21/manuel-ugarte-manchester-united-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5770611/2024/09/21/demi-vollering-interview-tour-de
 **13 insights fantasy football managers need to know ahead of Week 3**\
 `According to Theo Gremminger, expect Rashid Shaheed's big-play breakout to continue, as he shares insights on 13 players ahead of Week 3.`\
 https://nytimes.com/athletic/5782344/2024/09/21/13-insights-fantasy-football-week-3-need-to-knows/
-
-**USC at Michigan picks, odds, how to watch: Wolverines hope QB change will spark offense**\
-`USC heads to Michigan in a top-25 showdown in the Trojans' Big Ten debut. Michigan is starting Alex Orji at quarterback.`\
-https://nytimes.com/athletic/5779458/2024/09/21/usc-michigan-picks-odds-predictions-how-to-watch/
 
