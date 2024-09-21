@@ -1,3 +1,11 @@
+**Elon Musk’s X Backs Down in Brazil**\
+`In an abrupt reversal, the social network’s lawyers said it was complying with court orders that it had previously defied. Brazil’s Supreme Court could allow the site to return next week.`\
+https://nytimes.com/2024/09/21/world/americas/elon-musk-x-brazil.html
+
+**Lopetegui understands West Ham fans' boos after Chelsea loss**\
+`Julen Lopetegui says he understands West Ham United fans&#8217; boos after his side&#8217;s 3-0 home defeat by Chelsea.`\
+https://nytimes.com/athletic/5783521/2024/09/21/west-ham-chelsea-lopetegui/
+
 **Who Was Ahmed Wahbi, a Hezbollah Commander Killed in Israel’s Airstrike in Beirut?**\
 `The senior Hezbollah leader trained the group’s elite fighting unit and led its support for Hamas after the Oct. 7 attacks, the Lebanese militia said.`\
 https://nytimes.com/2024/09/21/world/middleeast/who-is-ahmed-wahbi-hezbollah-commander.html

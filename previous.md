@@ -1,3 +1,11 @@
+**Elon Musk’s X Backs Down in Brazil**\
+`In an abrupt reversal, the social network’s lawyers said it was complying with court orders that it had previously defied. Brazil’s Supreme Court could allow the site to return next week.`\
+https://nytimes.com/2024/09/21/world/americas/elon-musk-x-brazil.html
+
+**Lopetegui understands West Ham fans' boos after Chelsea loss**\
+`Julen Lopetegui says he understands West Ham United fans&#8217; boos after his side&#8217;s 3-0 home defeat by Chelsea.`\
+https://nytimes.com/athletic/5783521/2024/09/21/west-ham-chelsea-lopetegui/
+
 **Who Was Ahmed Wahbi, a Hezbollah Commander Killed in Israel’s Airstrike in Beirut?**\
 `The senior Hezbollah leader trained the group’s elite fighting unit and led its support for Hamas after the Oct. 7 attacks, the Lebanese militia said.`\
 https://nytimes.com/2024/09/21/world/middleeast/who-is-ahmed-wahbi-hezbollah-commander.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5783024/2024/09/21/jordan-love-justin-herbert-injur
 **Who Are the Black Swing Voters?**\
 `Black voters are not monolithic.`\
 https://nytimes.com/video/us/elections/100000009710303/who-are-the-black-swing-voters.html
-
-**PSG appeal order to pay Mbappe €55m in withheld salary**\
-`Paris Saint-Germain have appealed a decision which would force them to pay former striker Kylian Mbappe €55million in withheld salary and bonuses from his time at the club.`\
-https://nytimes.com/athletic/5783375/2024/09/21/psg-kylian-mbappe-salary-dispute/
-
-**Northern Israel braces for a backlash, even as the conflict remains under the radar in Tel Aviv.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/northern-israel-braces-for-a-backlash-even-as-the-conflict-remains-under-the-radar-in-tel-aviv
 
