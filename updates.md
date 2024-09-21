@@ -1,3 +1,19 @@
+**The Deserter: An Epic Story of Love and War**\
+`The audio feature, narrated by Liev Schreiber`\
+https://nytimes.com/2024/09/21/podcasts/russia-ukraine-deserter-audio.html
+
+**Canadian Doctors Group Apologizes for Health Harms to Indigenous People**\
+`Indigenous patients faced abuse, experimental treatments and other harms in Canada’s health system, which still has disparities.`\
+https://nytimes.com/2024/09/21/world/canada/indigenous-health-medical-apology.html
+
+**Wordle Review No. 1,191**\
+`Scroll down for hints and conversation about the puzzle for September 22, 2024.`\
+https://nytimes.com/2024/09/21/crosswords/wordle-review-1191.html
+
+**The Connections Companion No. 469**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 22, 2024.`\
+https://nytimes.com/2024/09/21/crosswords/connections-companion-469.html
+
 **Attacks on Hezbollah Alter Balance of Power in Long-Running Fight**\
 `A focus on mutual deterrence had kept intermittent clashes along the Lebanon-Israel border from spiraling into a major war. That changed this past week.`\
 https://nytimes.com/2024/09/21/world/middleeast/israel-hezbollah-lebanon.html

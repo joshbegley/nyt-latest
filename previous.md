@@ -1,3 +1,19 @@
+**The Deserter: An Epic Story of Love and War**\
+`The audio feature, narrated by Liev Schreiber`\
+https://nytimes.com/2024/09/21/podcasts/russia-ukraine-deserter-audio.html
+
+**Canadian Doctors Group Apologizes for Health Harms to Indigenous People**\
+`Indigenous patients faced abuse, experimental treatments and other harms in Canada’s health system, which still has disparities.`\
+https://nytimes.com/2024/09/21/world/canada/indigenous-health-medical-apology.html
+
+**Wordle Review No. 1,191**\
+`Scroll down for hints and conversation about the puzzle for September 22, 2024.`\
+https://nytimes.com/2024/09/21/crosswords/wordle-review-1191.html
+
+**The Connections Companion No. 469**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 22, 2024.`\
+https://nytimes.com/2024/09/21/crosswords/connections-companion-469.html
+
 **Attacks on Hezbollah Alter Balance of Power in Long-Running Fight**\
 `A focus on mutual deterrence had kept intermittent clashes along the Lebanon-Israel border from spiraling into a major war. That changed this past week.`\
 https://nytimes.com/2024/09/21/world/middleeast/israel-hezbollah-lebanon.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah
 **First-and-10: Ravens-Cowboys key matchups and subplots, plus a prediction**\
 `Plus, why Baltimore desperately needs to defeat Dallas to avoid falling to 0-3 and making its playoff hopes this season more challenging. `\
 https://nytimes.com/athletic/5782625/2024/09/21/ravens-cowboys-nfl-week-3/
-
-**Trump’s Opponents See New Ways to Cast the G.O.P. as ‘Team Misogyny’**\
-`The issue of gender dominated the campaign over a week that included a scandal in North Carolina and reporting on the fatal fallout of abortion bans.`\
-https://nytimes.com/2024/09/21/us/politics/democrats-republicans-gender-women.html
-
-**A Writer Walks Into a Rave**\
-`Party-hopping across boroughs with Emily Witt, whose new memoir takes her from literary New York to the city’s underground nightlife scenes.`\
-https://nytimes.com/2024/09/21/style/emily-witt-encounter-health-and-safety.html
-
-**Every Falsehood, Exaggeration and Untruth in Trump’s and Harris’s Stump Speeches**\
-`We fact-checked every sentence of two recent rally speeches and found that Mr. Trump spoke for almost three times as long as Ms. Harris, but told twelve times as many falsehoods or inaccurate statements.`\
-https://nytimes.com/interactive/2024/09/21/us/politics/trump-harris-2024-election-speech.html
-
-**The Patriots' offensive line is a mess — so why didn't they address it this offseason?**\
-`New England has the worst pass protection in the NFL. Between injuries and a lack of talent, there's little hope it's going to improve soon.`\
-https://nytimes.com/athletic/5782249/2024/09/21/patriots-jets-week-3-offensive-line/
 
