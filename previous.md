@@ -1,3 +1,11 @@
+**Yankees downplay Juan Soto injury concerns after yanking him from lineup**\
+`With Soto undergoing treatment after colliding with a wall on Thursday in Seattle, the Yankees decided to exercise caution.`\
+https://nytimes.com/athletic/5783060/2024/09/20/yankees-juan-soto-injury-concerns/
+
+**Motel 6 Is Sold to Oyo, an Indian Hotel Company Expanding in the U.S.**\
+`A roadside chain for more than 50 years, Motel 6 was owned by Blackstone, the private equity giant. Oyo will pay $525 million in an all-cash deal.`\
+https://nytimes.com/2024/09/20/business/motel-6-oyo-blackstone.html
+
 **Corrections: Sept. 21, 2024**\
 `Corrections that appeared in print on Saturday, Sept. 21, 2024.`\
 https://nytimes.com/2024/09/20/pageoneplus/corrections-sept-21-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/20/world/middleeast/1983-bombings-beirut.html
 **How One Man’s Vote in Nebraska Could Change the Presidential Election**\
 `A single Republican state senator appears to be holding back a push by Donald J. Trump to net a potentially pivotal electoral vote even before ballots are cast.`\
 https://nytimes.com/2024/09/20/us/politics/nebraska-trump-electoral-vote.html
-
-**‘A dangerous Pandora’s box’: U.N. Security Council members express alarm over device attacks.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/a-dangerous-pandoras-box-un-security-council-members-are-alarmed-by-device-attacks
-
-**Qualcomm Asked Chip Rival Intel if It Would Consider a Sale**\
-`While Intel has struggled in recent years, other chipmakers are thriving because of a boom in demand.`\
-https://nytimes.com/2024/09/20/technology/qualcomm-intel-talks-sale.html
 
