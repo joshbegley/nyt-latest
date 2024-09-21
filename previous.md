@@ -1,3 +1,7 @@
+**Arizona Court Allows 98,000 to Vote in State and Local Races Despite Database Glitch**\
+`Officials recently discovered that some people with driver’s licenses issued before 1996 might not have proof of citizenship on file, a state requirement since 2004.`\
+https://nytimes.com/2024/09/21/us/politics/arizona-supreme-court-vote-database-glitch.html
+
 **F.B.I. Agents Board Ship Managed by Company of Vessel in Baltimore Bridge Collapse**\
 `The move comes three days after the Justice Department’s civil lawsuit against the owner and operator of the Dali, which struck the Francis Scott Key Bridge in March.`\
 https://nytimes.com/2024/09/21/us/fbi-dali-ship-baltimore-bridge-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783738/2024/09/21/wolves-aston-villa-yerson-mosque
 **Billy Edd Wheeler, Songwriter Who Celebrated Rural Life, Dies at 91**\
 `His plain-spoken songs were recorded by Elvis Presley, Kenny Rogers and many others. The duo of Johnny Cash and June Carter made his “Jackson” a huge country hit.`\
 https://nytimes.com/2024/09/21/arts/music/billy-edd-wheeler-dead.html
-
-**Gotham's Kelley O'Hara on season-ending injury list**\
-`O’Hara, an Olympic gold medalist with the USWNT, announced her plans in May to retire from soccer at the end of the NWSL season.`\
-https://nytimes.com/athletic/5783625/2024/09/21/kelley-ohara-injury-gotham-uswnt/
 
