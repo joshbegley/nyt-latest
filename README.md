@@ -1,3 +1,7 @@
+**Ohio State takeaways: Chip Kelly's offense showed just how dangerous it can be**\
+`After some early adversity, Ohio State dominated Marshall 49-14 behind huge games from Quinshon Judkins and TreVeyon Henderson.`\
+https://nytimes.com/athletic/5783922/2024/09/21/ohio-state-football-marshall-score-recap/
+
 **Rafael Devers on IL with shoulder inflammation**\
 `Devers has battled soreness and inflammation in each shoulder throughout the season.`\
 https://nytimes.com/athletic/5783950/2024/09/21/red-sox-rafael-devers-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5779419/2024/09/21/crystal-palace-0-man-utd-0-ten-h
 **WVU safety Aubrey Burks stretchered off field**\
 `Burks was placed in an ambulance and taken to a nearby hospital. It is unclear what caused the issue.`\
 https://nytimes.com/athletic/5783737/2024/09/21/aubrey-burks-injury-kansas/
-
-**Arizona Court Allows 98,000 to Vote in State and Local Races Despite Database Glitch**\
-`Officials recently discovered that some people with driver’s licenses issued before 1996 might not have proof of citizenship on file, a state requirement since 2004.`\
-https://nytimes.com/2024/09/21/us/politics/arizona-supreme-court-vote-database-glitch.html
 
