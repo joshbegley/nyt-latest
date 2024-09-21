@@ -1,3 +1,7 @@
+**A Week of Chaos Pushes Lebanon’s Doctors to the Limit**\
+`Exploding wireless devices maimed thousands. An airstrike on Friday flattened two buildings. Many doctors, exhausted, wonder how the country will cope if violence continues.`\
+https://nytimes.com/2024/09/21/world/middleeast/lebanon-doctors-hezbollah-airstrike-medical.html
+
 **JD Vance to Appear With Tucker Carlson, Who Amplified False Holocaust Claims**\
 `The Republican vice-presidential nominee will share a stage with Mr. Carlson, who was criticized for interviewing a writer who falsely claimed the Holocaust was not an intentional act of genocide.`\
 https://nytimes.com/2024/09/21/us/politics/vance-tucker-carlson.html
