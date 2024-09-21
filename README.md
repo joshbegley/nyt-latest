@@ -1,3 +1,15 @@
+**We Are Running Out of Firefighters at a Perilous Time**\
+`Now would be a good time for Congress to pass a federal spending bill to make a permanent pay increase a reality.`\
+https://nytimes.com/2024/09/21/opinion/california-wildfires-west-forest-service.html
+
+**The Briefing: Tottenham 3 Brentford 1 - Johnson scores again but should Vicario have been punished for handball?**\
+`Tottenham recovered from going behind after 23 seconds, and Johnson was on the scoresheet again having been the hero against Coventry`\
+https://nytimes.com/athletic/5778682/2024/09/21/tottenham-brentford-johnson-vicario-handball/
+
+**Earth’s Fall Equinox Ushers In Astronomical Autumn**\
+`During an equinox, places around the globe experience nearly equal amounts of daytime and nighttime. The second occurrence this year happens on Sunday.`\
+https://nytimes.com/article/fall-equinox-autumn.html
+
 **The Briefing: Liverpool 3 Bournemouth 0 - Keeping Alexander-Arnold is crucial and Nunez arrives for season**\
 `Liverpool beat Bournemouth 3-0 at Anfield on Saturday afternoon courtesy of goals from Luis Diaz and Darwin Nunez`\
 https://nytimes.com/athletic/5778673/2024/09/21/liverpool-bournemouth-result-analysis-report/
@@ -6,7 +18,7 @@ https://nytimes.com/athletic/5778673/2024/09/21/liverpool-bournemouth-result-ana
 `Verstappen refused to answer news conference questions a day after being sanctioned for inappropriate language. `\
 https://nytimes.com/athletic/5783554/2024/09/21/max-verstappen-protest-f1-singapore-gp-fia-news-conference/
 
-**He Makes Less than $15,000 and Is Trying to Hold Springfield, Ohio, Together**\
+**He Makes Less Than $15,000 and Is Trying to Hold Springfield, Ohio, Together**\
 `Mayor Rob Rue, whose job is supposed to be part time, finds himself dealing with bomb threats, false rumors and added pressures on city resources.`\
 https://nytimes.com/2024/09/21/us/rob-rue-springfield-ohio-mayor-trump.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5775030/2024/09/21/fantasy-football-rankings-week-3
 **Elon Musk’s X Backs Down in Brazil**\
 `In an abrupt reversal, the social network’s lawyers said it was complying with court orders that it had previously defied. Brazil’s Supreme Court could allow the site to return next week.`\
 https://nytimes.com/2024/09/21/world/americas/elon-musk-x-brazil.html
-
-**Lopetegui understands West Ham fans' boos after Chelsea loss**\
-`Julen Lopetegui says he understands West Ham United fans&#8217; boos after his side&#8217;s 3-0 home defeat by Chelsea.`\
-https://nytimes.com/athletic/5783521/2024/09/21/west-ham-chelsea-lopetegui/
-
-**Who Was Ahmed Wahbi, a Hezbollah Commander Killed in Israel’s Airstrike in Beirut?**\
-`The senior Hezbollah leader trained the group’s elite fighting unit and led its support for Hamas after the Oct. 7 attacks, the Lebanese militia said.`\
-https://nytimes.com/2024/09/21/world/middleeast/who-is-ahmed-wahbi-hezbollah-commander.html
-
-**Eric Kim’s ‘Absolutely Amazing’ Pasta Alla Vodka (With Ricotta)**\
-`I adore this recipe, and so do thousands of readers.`\
-https://nytimes.com/2024/09/21/dining/eric-kims-absolutely-amazing-pasta-alla-vodka-with-ricotta.html
 
