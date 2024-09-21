@@ -1,3 +1,7 @@
+**Trinity Rodman leaves NWSL match in wheelchair**\
+`Rodman later returned to the bench with an ice pack on her back, a positive sign for the striker who has had a history of back issuues.`\
+https://nytimes.com/athletic/5783128/2024/09/20/trinity-rodman-nwsl-injury-wheelchair/
+
 **Prime Tire: Ricciardo, rear wings and ... swearing? Unpacking Singapore GP news**\
 `Welcome to Prime Tire, The Athletic's twice-weekly F1 newsletter.`\
 https://nytimes.com/athletic/5783091/2024/09/20/f1-singapore-gp-swearing-daniel-ricciardo-mclaren-wing-prime-tire/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/us/politics/harris-rally-wisconsin.html
 **Bodycam Footage Shows Police Shooting in N.Y.C. Subway**\
 `The New York Police Department released edited body camera footage that shows the moments before and after officers shot a man who they said was wielding a knife at a subway station in Brooklyn.`\
 https://nytimes.com/video/nyregion/100000009711230/nyc-subway-shooting-bodycam.html
-
-**What we’re seeing at Canucks training camp: 10 observations after 2 days**\
-`There was subtle, telling information that we were able to gather about various players and the team itself after watching closely.`\
-https://nytimes.com/athletic/5782782/2024/09/20/canucks-observations-training-camp/
 

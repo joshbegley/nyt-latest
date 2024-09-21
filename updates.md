@@ -1,3 +1,7 @@
+**Trinity Rodman leaves NWSL match in wheelchair**\
+`Rodman later returned to the bench with an ice pack on her back, a positive sign for the striker who has had a history of back issuues.`\
+https://nytimes.com/athletic/5783128/2024/09/20/trinity-rodman-nwsl-injury-wheelchair/
+
 **Prime Tire: Ricciardo, rear wings and ... swearing? Unpacking Singapore GP news**\
 `Welcome to Prime Tire, The Athletic's twice-weekly F1 newsletter.`\
 https://nytimes.com/athletic/5783091/2024/09/20/f1-singapore-gp-swearing-daniel-ricciardo-mclaren-wing-prime-tire/
