@@ -1,3 +1,7 @@
+**Israeli Attacks in Lebanon Mark a Sharp Strategic Shift**\
+`The events of this week seem to indicate that Israel’s leaders have decided they can no longer live with the threat of Hezbollah on their northern border, analysts say.`\
+https://nytimes.com/2024/09/21/world/middleeast/israel-lebanon-hezbollah-beirut.html
+
 **A Week of Chaos Pushes Lebanon’s Doctors to the Limit**\
 `Exploding wireless devices maimed thousands. An airstrike on Friday flattened two buildings. Many doctors, exhausted, wonder how the country will cope if violence continues.`\
 https://nytimes.com/2024/09/21/world/middleeast/lebanon-doctors-hezbollah-airstrike-medical.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/us/politics/harris-trump-cnn-debate-october.html
 **JMU dominates North Carolina with historic 53-point first half**\
 `The 53 points tallied through two quarters were the most points JMU football has ever scored in a half.`\
 https://nytimes.com/athletic/5783841/2024/09/21/james-madison-north-carolina-53-points/
-
-**Biden Hosts a Final ‘Quad Summit’ at His Delaware Home**\
-`The president has often said that “all politics is personal,” and on Saturday he opened his home in Wilmington to the leaders of Australia, India and Japan.`\
-https://nytimes.com/2024/09/21/us/politics/biden-quad-summit.html
 
