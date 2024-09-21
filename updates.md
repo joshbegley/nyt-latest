@@ -1,3 +1,7 @@
+**Guardiola thinks City's rivals want them 'wiped off the face of the Earth'**\
+`Pep Guardiola says Manchester City’s rivals want the club &#8220;wiped off the face of the Earth&#8221; over their 115 Premier League charges.`\
+https://nytimes.com/athletic/5783378/2024/09/21/manchester-city-pep-guardiola-charges/
+
 **JMU dominates North Carolina with historic 53-point first half**\
 `The 53 points tallied through two quarters were the most points JMU football has ever scored in a half.`\
 https://nytimes.com/athletic/5783841/2024/09/21/james-madison-north-carolina-53-points/
