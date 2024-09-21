@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/northern-israel-braces-for-a-backlash-even-as-the-conflict-remains-under-the-radar-in-tel-aviv
 
 **The Briefing: West Ham 0 Chelsea 3 - Co-owners in attendance and Jackson silences doubters**\
-`Chelsea overcame West Ham 3-0 on Saturday afternoon — Simon Johnson analyses the key talking points`\
+`Chelsea overcame West Ham 3-0 on Saturday afternoon - Simon Johnson analyses the key talking points`\
 https://nytimes.com/athletic/5778672/2024/09/21/west-ham-chelsea-result-report-analysis/
 
 **Ukraine Hits 2 More Russian Munition Depots, Aiming to Disrupt War Effort**\
