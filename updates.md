@@ -1,3 +1,7 @@
+**Exploding Pagers Deliver a Supply Chain Warning**\
+`The attacks on Hezbollah in Lebanon are likely to generate greater momentum for moving factory production closer to home.`\
+https://nytimes.com/2024/09/21/business/dealbook/exploding-pagers-deliver-supply-chain-warning.html
+
 **Flick ready to move on from Ter Stegen error: 'Water under the bridge'**\
 `Barcelona head coach Hansi Flick says he has moved on from Marc-Andre ter Stegen’s error in their Champions League defeat by Monaco on Thursday.`\
 https://nytimes.com/athletic/5783484/2024/09/21/barcelona-flick-ter-stegen/

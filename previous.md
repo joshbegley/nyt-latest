@@ -18,7 +18,7 @@ https://nytimes.com/live/2024/09/21/us/trump-harris-election
 `The Raiders have the worst running game in the NFL through two weeks but lead the league with nine explosive pass plays. `\
 https://nytimes.com/athletic/5782915/2024/09/21/raiders-panthers-explosive-offense-bowers-minshew-crosby/
 
-**Exploding Pagers Deliver Supply Chain Warning**\
+**Exploding Pagers Deliver a Supply Chain Warning**\
 `The attacks on Hezbollah in Lebanon are likely to generate greater momentum for moving factory production closer to home.`\
 https://nytimes.com/2024/09/21/business/dealbook/exploding-pagers-deliver-supply-chain-warning.html
 
