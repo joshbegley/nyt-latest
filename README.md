@@ -1,3 +1,7 @@
+**Corrections: Sept. 21, 2024**\
+`Corrections that appeared in print on Saturday, Sept. 21, 2024.`\
+https://nytimes.com/2024/09/20/pageoneplus/corrections-sept-21-2024.html
+
 **Security Firm Linked to Top Adams Aide Won Millions in N.Y.C. Business**\
 `The company received a $154 million contract to provide “emergency fire watch services” to the New York City Housing Authority. The firm was once owned by the deputy mayor for public safety.`\
 https://nytimes.com/2024/09/20/nyregion/fbi-phil-banks-contracts.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/a-dangerou
 **Qualcomm Asked Chip Rival Intel if It Would Consider a Sale**\
 `While Intel has struggled in recent years, other chipmakers are thriving because of a boom in demand.`\
 https://nytimes.com/2024/09/20/technology/qualcomm-intel-talks-sale.html
-
-**Canadiens training camp: Patience with Dach and Laine, Roy picks up where he left off**\
-`Dach has some good perspective on his own importance to the Canadiens' success and the roadblocks he has had in his career so far.`\
-https://nytimes.com/athletic/5782928/2024/09/20/canadiens-dach-laine-roy/
 
