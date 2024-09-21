@@ -1,3 +1,23 @@
+**We Are Running Out of Firefighters at a Perilous Time**\
+`Now would be a good time for Congress to pass a federal spending bill to make a permanent pay increase a reality.`\
+https://nytimes.com/2024/09/21/opinion/california-wildfires-west-forest-service.html
+
+**The Briefing: Tottenham 3 Brentford 1 - Johnson scores again but should Vicario have been punished for handball?**\
+`Tottenham recovered from going behind after 23 seconds, and Johnson was on the scoresheet again having been the hero against Coventry`\
+https://nytimes.com/athletic/5778682/2024/09/21/tottenham-brentford-johnson-vicario-handball/
+
+**Earth’s Fall Equinox Ushers In Astronomical Autumn**\
+`During an equinox, places around the globe experience nearly equal amounts of daytime and nighttime. The second occurrence this year happens on Sunday.`\
+https://nytimes.com/article/fall-equinox-autumn.html
+
+**The Briefing: Liverpool 3 Bournemouth 0 - Keeping Alexander-Arnold is crucial and Nunez arrives for season**\
+`Liverpool beat Bournemouth 3-0 at Anfield on Saturday afternoon courtesy of goals from Luis Diaz and Darwin Nunez`\
+https://nytimes.com/athletic/5778673/2024/09/21/liverpool-bournemouth-result-analysis-report/
+
+**He Makes Less Than $15,000 and Is Trying to Hold Springfield, Ohio, Together**\
+`Mayor Rob Rue, whose job is supposed to be part time, finds himself dealing with bomb threats, false rumors and added pressures on city resources.`\
+https://nytimes.com/2024/09/21/us/rob-rue-springfield-ohio-mayor-trump.html
+
 **The Briefing: Liverpool 3 Bournemouth 0 - Alexander-Arnold shows his worth and Nunez arrives for season**\
 `Liverpool beat Bournemouth 3-0 at Anfield on Saturday afternoon courtesy of goals from Luis Diaz and Darwin Nunez`\
 https://nytimes.com/athletic/5778673/2024/09/21/liverpool-bournemouth-result-analysis-report/

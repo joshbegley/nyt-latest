@@ -10,8 +10,8 @@ https://nytimes.com/athletic/5778682/2024/09/21/tottenham-brentford-johnson-vica
 `During an equinox, places around the globe experience nearly equal amounts of daytime and nighttime. The second occurrence this year happens on Sunday.`\
 https://nytimes.com/article/fall-equinox-autumn.html
 
-**The Briefing: Liverpool 3 Bournemouth 0 - Keeping Alexander-Arnold is crucial and Nunez arrives for season**\
-`Liverpool beat Bournemouth 3-0 at Anfield on Saturday afternoon courtesy of goals from Luis Diaz and Darwin Nunez`\
+**The Briefing: Liverpool 3 Bournemouth 0 - Keeping Alexander-Arnold is crucial and Nunez gets his season started**\
+`Liverpool beat Bournemouth 3-0 at Anfield on Saturday courtesy of two goals from Luis Diaz and one by Darwin Nunez`\
 https://nytimes.com/athletic/5778673/2024/09/21/liverpool-bournemouth-result-analysis-report/
 
 **Max Verstappen calls swearing sanction ‘ridiculous’ after FIA press conference protest**\
