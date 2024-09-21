@@ -1,3 +1,7 @@
+**For Americans Haunted by Beirut Bombings, a Killing Resurfaces Decades of Pain**\
+`The death of a Hezbollah leader wanted for his role in the 1983 attacks drew a range of reactions from survivors and victims’ families but brought little resolution.`\
+https://nytimes.com/2024/09/21/world/middleeast/1983-beirut-bombings-us-marine-base.html
+
 **Steelers rookie OT Troy Fautanu placed on injured reserve**\
 `Fautanu was expected to be a major part of a Steelers offensive line in flux.`\
 https://nytimes.com/athletic/5784217/2024/09/21/pittsburgh-steelers-troy-fautanu-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/us/politics/vance-tucker-carlson.html
 **Robert Lansdorp, Prominent Coach of Tennis Champions, Dies at 85**\
 `His students, including Tracy Austin, Maria Sharapova, Pete Sampras and Lindsay Davenport, developed their ground strokes through his regimen of intense repetition.`\
 https://nytimes.com/2024/09/21/sports/tennis/robert-lansdorp-dead.html
-
-**Ohio State takeaways: Chip Kelly's offense showing it can live up to hype**\
-`After some early adversity, Ohio State dominated Marshall 49-14 behind huge games from Quinshon Judkins and TreVeyon Henderson.`\
-https://nytimes.com/athletic/5783922/2024/09/21/ohio-state-football-marshall-score-recap/
 
