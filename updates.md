@@ -1,3 +1,7 @@
+**Steelers rookie OT Troy Fautanu placed on injured reserve**\
+`Fautanu was expected to be a major part of a Steelers offensive line in flux.`\
+https://nytimes.com/athletic/5784217/2024/09/21/pittsburgh-steelers-troy-fautanu-injury/
+
 **Green Day's Billie Joe Armstrong slams A’s owner John Fisher at San Francisco show**\
 `Armstrong proclaimed "East Bay for life" before launching a tirade against Fisher and his planned relocation to Las Vegas.`\
 https://nytimes.com/athletic/5784098/2024/09/21/green-day-billy-joe-armstrong-rant-john-fisher/

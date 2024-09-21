@@ -1,3 +1,7 @@
+**Steelers rookie OT Troy Fautanu placed on injured reserve**\
+`Fautanu was expected to be a major part of a Steelers offensive line in flux.`\
+https://nytimes.com/athletic/5784217/2024/09/21/pittsburgh-steelers-troy-fautanu-injury/
+
 **Breakout Performance**\
 `Jeremy Newton and Tracy Gray’s puzzle offers a great escape.`\
 https://nytimes.com/2024/09/21/crosswords/daily-puzzle-2024-09-22.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/sports/tennis/robert-lansdorp-dead.html
 **Ohio State takeaways: Chip Kelly's offense showing it can live up to hype**\
 `After some early adversity, Ohio State dominated Marshall 49-14 behind huge games from Quinshon Judkins and TreVeyon Henderson.`\
 https://nytimes.com/athletic/5783922/2024/09/21/ohio-state-football-marshall-score-recap/
-
-**Rafael Devers on IL with shoulder inflammation**\
-`Devers has battled soreness and inflammation in each shoulder throughout the season.`\
-https://nytimes.com/athletic/5783950/2024/09/21/red-sox-rafael-devers-injury/
 
