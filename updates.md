@@ -1,3 +1,7 @@
+**Rafael Devers lands on injured list with shoulder inflammation, ending his season**\
+`Devers has battled soreness and inflammation in each shoulder throughout the season.`\
+https://nytimes.com/athletic/5783950/2024/09/21/red-sox-rafael-devers-injury/
+
 **Leader of Kenya, Donor to Haiti Peacekeeping Force, Makes First Visit**\
 `The trip by President William Ruto of Kenya came against a bleak backdrop in Haiti, where gangs operate with impunity and the Kenyan peacekeepers remain largely out of sight.`\
 https://nytimes.com/2024/09/21/world/americas/kenya-haiti-ruto.html

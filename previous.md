@@ -1,3 +1,7 @@
+**Rafael Devers lands on injured list with shoulder inflammation, ending his season**\
+`Devers has battled soreness and inflammation in each shoulder throughout the season.`\
+https://nytimes.com/athletic/5783950/2024/09/21/red-sox-rafael-devers-injury/
+
 **Leader of Kenya, Donor to Haiti Peacekeeping Force, Makes First Visit**\
 `The trip by President William Ruto of Kenya came against a bleak backdrop in Haiti, where gangs operate with impunity and the Kenyan peacekeepers remain largely out of sight.`\
 https://nytimes.com/2024/09/21/world/americas/kenya-haiti-ruto.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783737/2024/09/21/aubrey-burks-injury-kansas/
 **Arizona Court Allows 98,000 to Vote in State and Local Races Despite Database Glitch**\
 `Officials recently discovered that some people with driver’s licenses issued before 1996 might not have proof of citizenship on file, a state requirement since 2004.`\
 https://nytimes.com/2024/09/21/us/politics/arizona-supreme-court-vote-database-glitch.html
-
-**F.B.I. Agents Board Ship Managed by Company of Vessel in Baltimore Bridge Collapse**\
-`The move comes three days after the Justice Department’s civil lawsuit against the owner and operator of the Dali, which struck the Francis Scott Key Bridge in March.`\
-https://nytimes.com/2024/09/21/us/fbi-dali-ship-baltimore-bridge-collapse.html
 
