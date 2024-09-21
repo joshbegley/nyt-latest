@@ -1,3 +1,7 @@
+**Padres move closer to playoffs, but Robert Suarez's role is up for 'consideration'**\
+`In the postseason, every Padres advantage — and disadvantage — will be magnified.`\
+https://nytimes.com/athletic/5783332/2024/09/21/padres-playoffs-robert-suarez/
+
 **Key takeaways from Sonia Bompastor's first Chelsea game**\
 `Sonia Bompastor got life as Chelsea manager off to a winning start against Aston Villa on Friday night`\
 https://nytimes.com/athletic/5783006/2024/09/21/chelsea-sonia-bompastor-key-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5779152/2024/09/21/sterling-arteta-arsenal-man-city
 **'It's like the Titanic': The decline of Girondins de Bordeaux**\
 `One of France's most famous clubs have been brought to their knees by financial chaos - is there a way back?`\
 https://nytimes.com/athletic/5781741/2024/09/21/bordeaux-girondins-decline-financial-trouble/
-
-**A tribute to Toto Schillaci, the everyman who seemed capable of everything**\
-`For generations of Italians, he came to represent the best summer of their lives. He didn't only give his best for Italy. He went beyond`\
-https://nytimes.com/athletic/5781645/2024/09/21/toto-schillaci-tribute-italy/
 
