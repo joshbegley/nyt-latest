@@ -1,3 +1,7 @@
+**Harris Agrees to a CNN Debate and Pressures Trump to Join**\
+`Vice President Kamala Harris, who was widely seen as the winner of the Sept. 10 debate against former President Donald J. Trump, is seeking a rematch.`\
+https://nytimes.com/2024/09/21/us/politics/harris-trump-cnn-debate-challenge.html
+
 **JMU dominates North Carolina en route to historic 53-point first half**\
 `The 53 points tallied through two quarters were the most points JMU football has ever scored in a half.`\
 https://nytimes.com/athletic/5783841/2024/09/21/james-madison-north-carolina-53-points/
@@ -10,7 +14,7 @@ https://nytimes.com/2024/09/21/us/politics/biden-quad-summit.html
 `The government still faces two challenges in the coming weeks: the risk of a no-confidence vote and a tight budget deadline.`\
 https://nytimes.com/2024/09/21/world/europe/macron-france-cabinet.html
 
-**The Briefing: Palace 0 Man Utd 0 - Was Ten Hag right to leave out Rashford? Dalot key, Onana's wonder save**\
+**The Briefing: Palace 0 Man Utd 0 - Was Ten Hag right to leave out Rashford? Dalot key, Onana's wondersave**\
 `United failed to take advantage of their first-half dominance - and had Andre Onana to thank for the point. Here are the key talking points`\
 https://nytimes.com/athletic/5779419/2024/09/21/crystal-palace-0-man-utd-0-ten-hag-rashford-onana/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/at-a-hezbo
 **Aston Villa's McGinn out "for a few weeks" with hamstring injury - Emery**\
 `Unai Emery has said that Aston Villa captain John McGinn is set to be unavailable for &#8220;a few weeks&#8221; due to a hamstring injury.`\
 https://nytimes.com/athletic/5783799/2024/09/21/aston-villa-john-mcginn-hamstring-injury/
-
-**F1 Singapore GP preview: Norris and Verstappen's title fight faces a crucial moment**\
-`F1's championship leaders will line up side-by-side on the front row on Sunday. `\
-https://nytimes.com/athletic/5783658/2024/09/21/f1-singapore-gp-preview-lando-norris-max-verstappen/
 
