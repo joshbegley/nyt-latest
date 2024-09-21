@@ -1,3 +1,7 @@
+**How One Man’s Vote in Nebraska Could Change the Presidential Election**\
+`A single Republican state senator appears to be holding back a push by Donald J. Trump to net a potentially pivotal electoral vote even before ballots are cast.`\
+https://nytimes.com/2024/09/20/us/politics/nebraska-trump-electoral-vote.html
+
 **‘A dangerous Pandora’s box’: U.N. Security Council members express alarm over device attacks.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/a-dangerous-pandoras-box-un-security-council-members-are-alarmed-by-device-attacks
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israels-ai
 **Can young Red Wings forwards push for roster spots? Training camp observations**\
 `How three young forwards pushing to win a spot on the Red Wings have looked so far, plus a note on Simon Edvinsson's expected role.`\
 https://nytimes.com/athletic/5782631/2024/09/20/red-wings-roster-training-camp/
-
-**Iraqi armed group, backed by Iran, says a senior member was killed in a strike in Syria.**\
-`By Alissa J. Rubin`\
-https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/iraqi-armed-group-backed-by-iran-says-a-senior-member-was-killed-in-a-strike-in-syria
 
