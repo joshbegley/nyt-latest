@@ -1,3 +1,7 @@
+**3 big highlights from Juan Soto's gutsy performance in huge win over A's**\
+`Earlier in the day, Soto received the best news of all: X-rays of his kneecap didn't reveal structural damage.`\
+https://nytimes.com/athletic/5783312/2024/09/21/juan-soto-pinch-hit-highlights-yankees/
+
 **Built with intention: F1 Academy's car was chosen with the series' goals in mind**\
 `The all-women racing series cars blend F4 tech with F1 flavor — the right choice for a series focused on driver development.`\
 https://nytimes.com/athletic/5781846/2024/09/21/f1-academy-car-breakdown/
