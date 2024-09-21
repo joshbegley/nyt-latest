@@ -1,3 +1,31 @@
+**Mutual admiration: Matt Chapman, Logan Webb embrace long-term leadership roles with Giants**\
+`Chapman and Webb squared off as professional rookies in 2014. Now they are united in a vision for the future of the Giants as veterans.`\
+https://nytimes.com/athletic/5782117/2024/09/21/sf-giants-matt-chapman-logan-webb-leadership/
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/09/21/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Heads to North Carolina, Where Scandal Engulfs His Party’s Candidate for Governor**\
+`Donald J. Trump will hold a rally in Wilmington, N.C., while JD Vance and Tim Walz, the vice-presidential candidates, will campaign not far from each other in Pennsylvania.`\
+https://nytimes.com/live/2024/09/21/us/trump-harris-election
+
+**Raiders and their 'explosive' offense ready for homecoming game against declawed Panthers**\
+`The Raiders have the worst running game in the NFL through two weeks but lead the league with nine explosive pass plays. `\
+https://nytimes.com/athletic/5782915/2024/09/21/raiders-panthers-explosive-offense-bowers-minshew-crosby/
+
+**Exploding Pagers Deliver Supply Chain Warning**\
+`The attacks on Hezbollah in Lebanon are likely to generate greater momentum for moving factory production closer to home.`\
+https://nytimes.com/2024/09/21/business/dealbook/exploding-pagers-deliver-supply-chain-warning.html
+
+**Women Entrepreneurs Are Hitting a Funding Wall**\
+`For women starting new businesses, early funding from venture capital firms led by other women are vital. But few are large enough to lead subsequent rounds of financing.`\
+https://nytimes.com/2024/09/21/business/women-entrepreneurs-are-hitting-a-funding-wall.html
+
+**Trump Heads to North Carolina as Mark Robinson’s Campaign Reels**\
+`The former president is holding a rally in the battleground state as Mr. Robinson, whom he endorsed for governor, deals with the fallout from a report that he made disturbing online posts.`\
+https://nytimes.com/2024/09/21/us/politics/donald-trump-north-carolina-mark-robinson.html
+
 **2 Books for a Real-Life ‘Brilliant Friend’**\
 `Adventures in Russian literature; a novel of domestic discontent.`\
 https://nytimes.com/2024/09/21/books/read-like-wind-recommendations.html
@@ -9,32 +37,4 @@ https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/attacks-on
 **What happens to the ATP Next Gen Finals in the twilight of the Big Three?**\
 `Exploring the Next Gen finals' place in tennis's ecosystem, who is in the mix, and if WTA might create a version for their rising stars...`\
 https://nytimes.com/athletic/5771636/2024/09/21/atp-next-gen-finals-jeddah-future-wta/
-
-**Bruins preseason depth chart 1.0: The top of the roster is locked in**\
-`The top line is a go. The rest of the lineup isn’t far off. Here's how we're seeing the depth chart develop at Bruins training camp so far.`\
-https://nytimes.com/athletic/5782355/2024/09/21/bruins-preseason-depth-chart-anaylsis/
-
-**The 2024 Election Is a Retreat From Ideology**\
-`Whatever the Trump-Harris election season is delivering, it isn’t a grand ideological debate.`\
-https://nytimes.com/2024/09/21/opinion/trump-harris-2024-ideology.html
-
-**How the Powerful Outmaneuvered the American Protest Movement**\
-`It’s time for organizers to invent a new model.`\
-https://nytimes.com/2024/09/21/opinion/campus-protests-internet-america.html
-
-**Israel’s Pager Bombs Have No Place in a Just War**\
-`Israel is using the tactics of the terrorists it condemns if it indeed was behind the wave of pager and walkie-talkie explosions in Lebanon.`\
-https://nytimes.com/2024/09/21/opinion/lebanon-pagers-israel-gaza-war-crimes.html
-
-**Oilers depth chart: How the roster is shaping up for preseason**\
-`The Oilers head into Sunday's exhibition opener with few question marks pertaining to the roster.`\
-https://nytimes.com/athletic/5782877/2024/09/21/edmonton-oilers-depth-chart-preseason-2024/
-
-**Padma Lakshmi: Why Kamala Harris’s Love of Cooking Could Help Make Her a Great President**\
-`The candidate is a proud cook, and cooking is a way to connect.`\
-https://nytimes.com/2024/09/21/opinion/padma-lakshmi-kamala-harris-cooking.html
-
-**When Gunmen Impose a Policy of Rape**\
-`At the U.N., will President Biden and other world leaders stand up for the victims or for the countries fueling war, rape and hunger?`\
-https://nytimes.com/2024/09/21/opinion/sudan-darfur-rape.html
 
