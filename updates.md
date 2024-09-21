@@ -1,3 +1,39 @@
+**What happens to the ATP Next Gen Finals in the twilight of the Big Three?**\
+`Exploring the Next Gen finals' place in tennis's ecosystem, who is in the mix, and if WTA might create a version for their rising stars...`\
+https://nytimes.com/athletic/5771636/2024/09/21/atp-next-gen-finals-jeddah-future-wta/
+
+**Bruins preseason depth chart 1.0: The top of the roster is locked in**\
+`The top line is a go. The rest of the lineup isn’t far off. Here's how we're seeing the depth chart develop at Bruins training camp so far.`\
+https://nytimes.com/athletic/5782355/2024/09/21/bruins-preseason-depth-chart-anaylsis/
+
+**The 2024 Election Is a Retreat From Ideology**\
+`Whatever the Trump-Harris election season is delivering, it isn’t a grand ideological debate.`\
+https://nytimes.com/2024/09/21/opinion/trump-harris-2024-ideology.html
+
+**How the Powerful Outmaneuvered the American Protest Movement**\
+`It’s time for organizers to invent a new model.`\
+https://nytimes.com/2024/09/21/opinion/campus-protests-internet-america.html
+
+**Israel’s Pager Bombs Have No Place in a Just War**\
+`Israel is using the tactics of the terrorists it condemns if it indeed was behind the wave of pager and walkie-talkie explosions in Lebanon.`\
+https://nytimes.com/2024/09/21/opinion/lebanon-pagers-israel-gaza-war-crimes.html
+
+**Padma Lakshmi: Why Kamala Harris’s Love of Cooking Could Help Make Her a Great President**\
+`The candidate is a proud cook, and cooking is a way to connect.`\
+https://nytimes.com/2024/09/21/opinion/padma-lakshmi-kamala-harris-cooking.html
+
+**When Gunmen Impose a Policy of Rape**\
+`At the U.N., will President Biden and other world leaders stand up for the victims or for the countries fueling war, rape and hunger?`\
+https://nytimes.com/2024/09/21/opinion/sudan-darfur-rape.html
+
+**Freedom Must Be for All**\
+`Freedom is not just an absence of evil. Freedom is the presence of good.`\
+https://nytimes.com/2024/09/21/opinion/ukraine-america-russia-freedom.html
+
+**Easing the Stress Parents Face**\
+`Parents discuss a guest essay by the surgeon general.`\
+https://nytimes.com/2024/09/21/opinion/parents-stress.html
+
 **How a U.S. Ally Uses Aid as a Cover in War**\
 `The United Arab Emirates is expanding a covert campaign to back a winner in Sudan’s civil war. Waving the banner of the Red Crescent, it is also smuggling weapons and deploying drones.`\
 https://nytimes.com/2024/09/21/world/africa/uae-sudan-civil-war.html

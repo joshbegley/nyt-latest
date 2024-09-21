@@ -1,40 +1,40 @@
+**What happens to the ATP Next Gen Finals in the twilight of the Big Three?**\
+`Exploring the Next Gen finals' place in tennis's ecosystem, who is in the mix, and if WTA might create a version for their rising stars...`\
+https://nytimes.com/athletic/5771636/2024/09/21/atp-next-gen-finals-jeddah-future-wta/
+
+**Bruins preseason depth chart 1.0: The top of the roster is locked in**\
+`The top line is a go. The rest of the lineup isn’t far off. Here's how we're seeing the depth chart develop at Bruins training camp so far.`\
+https://nytimes.com/athletic/5782355/2024/09/21/bruins-preseason-depth-chart-anaylsis/
+
+**The 2024 Election Is a Retreat From Ideology**\
+`Whatever the Trump-Harris election season is delivering, it isn’t a grand ideological debate.`\
+https://nytimes.com/2024/09/21/opinion/trump-harris-2024-ideology.html
+
+**How the Powerful Outmaneuvered the American Protest Movement**\
+`It’s time for organizers to invent a new model.`\
+https://nytimes.com/2024/09/21/opinion/campus-protests-internet-america.html
+
+**Israel’s Pager Bombs Have No Place in a Just War**\
+`Israel is using the tactics of the terrorists it condemns if it indeed was behind the wave of pager and walkie-talkie explosions in Lebanon.`\
+https://nytimes.com/2024/09/21/opinion/lebanon-pagers-israel-gaza-war-crimes.html
+
+**Padma Lakshmi: Why Kamala Harris’s Love of Cooking Could Help Make Her a Great President**\
+`The candidate is a proud cook, and cooking is a way to connect.`\
+https://nytimes.com/2024/09/21/opinion/padma-lakshmi-kamala-harris-cooking.html
+
+**When Gunmen Impose a Policy of Rape**\
+`At the U.N., will President Biden and other world leaders stand up for the victims or for the countries fueling war, rape and hunger?`\
+https://nytimes.com/2024/09/21/opinion/sudan-darfur-rape.html
+
+**Freedom Must Be for All**\
+`Freedom is not just an absence of evil. Freedom is the presence of good.`\
+https://nytimes.com/2024/09/21/opinion/ukraine-america-russia-freedom.html
+
+**Easing the Stress Parents Face**\
+`Parents discuss a guest essay by the surgeon general.`\
+https://nytimes.com/2024/09/21/opinion/parents-stress.html
+
 **How a U.S. Ally Uses Aid as a Cover in War**\
 `The United Arab Emirates is expanding a covert campaign to back a winner in Sudan’s civil war. Waving the banner of the Red Crescent, it is also smuggling weapons and deploying drones.`\
 https://nytimes.com/2024/09/21/world/africa/uae-sudan-civil-war.html
-
-**Shoulder Season**\
-`It’s still summer today, but fall arrives tomorrow. Take a minute to pause on the threshold.`\
-https://nytimes.com/2024/09/21/briefing/shoulder-season.html
-
-**Can Brian Flores' defense limit C.J. Stroud as Vikings host Texans?**\
-`Can the new-look Minnesota defense stifle Stroud and his talented receivers? And can Sam Darnold stay hot against a tough opponent?`\
-https://nytimes.com/athletic/5782693/2024/09/21/texans-vikings-preview-predictions-brian-flores-cj-stroud/
-
-**What to know about Arch Manning as he makes his first start for Texas**\
-`How is Arch Manning's Texas career going? What is his NFL potential? Get to know Peyton and Eli's nephew before his first college start.`\
-https://nytimes.com/athletic/5780262/2024/09/21/arch-manning-texas-draft-stock-what-to-know/
-
-**Josh Jacobs, the 'cheetah effect' and needing to protect the football**\
-`Jacobs has fumbled in each of the Packers' first two games and has 11 fumbles in the last five-plus seasons.`\
-https://nytimes.com/athletic/5782254/2024/09/21/green-bay-packers-josh-jacobs-fumbles/
-
-**What we saw and learned on Day 2 of Jets training camp**\
-`This weekend's preseason games against Minnesota and Edmonton will be important for players on the roster fringe.`\
-https://nytimes.com/athletic/5782550/2024/09/21/winnipeg-jets-training-camp-day-2-2024/
-
-**The Deserter: An Epic Story of Love and War**\
-`The audio feature, narrated by Liev Schreiber`\
-https://nytimes.com/2024/09/21/podcasts/russia-ukraine-deserter-audio.html
-
-**Wild carrying 3 goalies will be a fluid situation, but they're 'confident it'll work'**\
-`The top priority will be to get 2021 first-round pick Jesper Wallstedt more starts at the NHL level to further his development. `\
-https://nytimes.com/athletic/5782936/2024/09/21/wild-goalies-gustavsson-wallstedt-fleury/
-
-**Hurricanes roster projection: Things get interesting after the first line**\
-`Not surprisingly, Sebastian Aho was joined by two familiar faces when training camp opened.`\
-https://nytimes.com/athletic/5782809/2024/09/21/carolina-hurricanes-roster-projection/
-
-**Canadian Doctors Group Apologizes for Health Harms to Indigenous People**\
-`Indigenous patients faced abuse, experimental treatments and other harms in Canada’s health system, which still has disparities.`\
-https://nytimes.com/2024/09/21/world/canada/indigenous-health-medical-apology.html
 
