@@ -1,3 +1,15 @@
+**What I’m hearing: Steelers ready to cook with Fields, Herbert and Love updates, Bryce Young’s reality**\
+`Plus, Kevin O’Connell’s latest success story (and the coach's contract), why it’s working for Derek Carr, kickers go long, and more.`\
+https://nytimes.com/athletic/5783024/2024/09/21/jordan-love-justin-herbert-injury-updates-justin-fields-steelers-offense-bryce-young-benching/
+
+**Who Are the Black Swing Voters?**\
+`Black voters are not monolithic.`\
+https://nytimes.com/video/us/elections/100000009710303/who-are-the-black-swing-voters.html
+
+**PSG appeal order to pay Mbappe €55m in withheld salary**\
+`Paris Saint-Germain have appealed a decision which would force them to pay former striker Kylian Mbappe €55million in withheld salary and bonuses from his time at the club.`\
+https://nytimes.com/athletic/5783375/2024/09/21/psg-kylian-mbappe-salary-dispute/
+
 **Northern Israel braces for a backlash, even as the conflict remains under the radar in Tel Aviv.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/northern-israel-braces-for-a-backlash-even-as-the-conflict-remains-under-the-radar-in-tel-aviv
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5782117/2024/09/21/sf-giants-matt-chapman-logan-web
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/21/us/trump-harris-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Trump Heads to North Carolina, Where Scandal Engulfs His Party’s Candidate for Governor**\
-`Donald J. Trump will hold a rally in Wilmington, N.C., while JD Vance and Tim Walz, the vice-presidential candidates, will campaign not far from each other in Pennsylvania.`\
-https://nytimes.com/live/2024/09/21/us/trump-harris-election
-
-**Raiders and their 'explosive' offense ready for homecoming game against declawed Panthers**\
-`The Raiders have the worst running game in the NFL through two weeks but lead the league with nine explosive pass plays. `\
-https://nytimes.com/athletic/5782915/2024/09/21/raiders-panthers-explosive-offense-bowers-minshew-crosby/
-
-**Exploding Pagers Deliver a Supply Chain Warning**\
-`The attacks on Hezbollah in Lebanon are likely to generate greater momentum for moving factory production closer to home.`\
-https://nytimes.com/2024/09/21/business/dealbook/exploding-pagers-deliver-supply-chain-warning.html
 
