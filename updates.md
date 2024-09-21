@@ -1,3 +1,7 @@
+**N.Y.P.D.’s Release of Footage of Subway Shooting Doesn’t Quell Anger**\
+`After seeing video of officers firing at a knife-wielding man, the cousin of a bystander who was badly hurt in the shooting continued to criticize the police.`\
+https://nytimes.com/2024/09/20/nyregion/nypd-shooting-brooklyn-subway-video.html
+
 **The Mets managed Friday like a playoff game. It did not work**\
 `The decision to remove David Peterson didn't work out as the Phillies quickly put the game out reach against Adam Ottavino.`\
 https://nytimes.com/athletic/5783148/2024/09/20/mets-carlos-mendoza-david-peterson/

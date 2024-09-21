@@ -1,3 +1,7 @@
+**N.Y.P.D.’s Release of Footage of Subway Shooting Doesn’t Quell Anger**\
+`After seeing video of officers firing at a knife-wielding man, the cousin of a bystander who was badly hurt in the shooting continued to criticize the police.`\
+https://nytimes.com/2024/09/20/nyregion/nypd-shooting-brooklyn-subway-video.html
+
 **The Mets managed Friday like a playoff game. It did not work**\
 `The decision to remove David Peterson didn't work out as the Phillies quickly put the game out reach against Adam Ottavino.`\
 https://nytimes.com/athletic/5783148/2024/09/20/mets-carlos-mendoza-david-peterson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/20/pageoneplus/corrections-sept-21-2024.html
 **Security Firm Linked to Top Adams Aide Won Millions in N.Y.C. Business**\
 `The company received a $154 million contract to provide “emergency fire watch services” to the New York City Housing Authority. The firm was once owned by the deputy mayor for public safety.`\
 https://nytimes.com/2024/09/20/nyregion/fbi-phil-banks-contracts.html
-
-**Rallying in Two Key States, Harris Presses Her Case on Abortion Rights**\
-`Visiting Wisconsin after giving a speech in Georgia, the vice president signaled she would focus on the life-or-death risks of abortion bans in the final weeks of the race.`\
-https://nytimes.com/2024/09/20/us/politics/harris-rally-wisconsin.html
 
