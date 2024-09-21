@@ -1,3 +1,7 @@
+**Aston Villa's McGinn out "for a few weeks" with hamstring injury - Emery**\
+`Unai Emery has said that Aston Villa captain John McGinn is set to be unavailable for &#8220;a few weeks&#8221; due to a hamstring injury.`\
+https://nytimes.com/athletic/5783799/2024/09/21/aston-villa-john-mcginn-hamstring-injury/
+
 **F1 Singapore GP preview: Norris and Verstappen's title fight faces a crucial moment**\
 `F1's championship leaders will line up side-by-side on the front row on Sunday. `\
 https://nytimes.com/athletic/5783658/2024/09/21/f1-singapore-gp-preview-lando-norris-max-verstappen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783630/2024/09/21/nationals-option-all-star-cj-abr
 **We Are Running Out of Firefighters at a Perilous Time**\
 `Now would be a good time for Congress to pass a federal spending bill to make a permanent pay increase a reality.`\
 https://nytimes.com/2024/09/21/opinion/california-wildfires-west-forest-service.html
-
-**The Briefing: Tottenham 3 Brentford 1 - Johnson scores again but should Vicario have been punished for handball?**\
-`Spurs recovered from going behind after 23 seconds, and Johnson was on the scoresheet once more having been their midweek cup hero`\
-https://nytimes.com/athletic/5778682/2024/09/21/tottenham-brentford-johnson-vicario-handball/
 
