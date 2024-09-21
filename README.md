@@ -1,3 +1,7 @@
+**2 Books for a Real-Life ‘Brilliant Friend’**\
+`Adventures in Russian literature; a novel of domestic discontent.`\
+https://nytimes.com/2024/09/21/books/read-like-wind-recommendations.html
+
 **Attacks on Hezbollah this week are the latest attributed to Israel.**\
 `Israel is believed to have conducted a series of clandestine attacks on adversaries linked to Iran in recent years, sometimes using highly innovative tactics.`\
 https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/attacks-on-hezbollah-this-week-are-the-latest-attributed-to-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/opinion/padma-lakshmi-kamala-harris-cooking.html
 **When Gunmen Impose a Policy of Rape**\
 `At the U.N., will President Biden and other world leaders stand up for the victims or for the countries fueling war, rape and hunger?`\
 https://nytimes.com/2024/09/21/opinion/sudan-darfur-rape.html
-
-**Freedom Must Be for All**\
-`Freedom is not just an absence of evil. Freedom is the presence of good.`\
-https://nytimes.com/2024/09/21/opinion/ukraine-america-russia-freedom.html
 
