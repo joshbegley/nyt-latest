@@ -1,3 +1,11 @@
+**Bodycam Footage Shows Police Shooting in N.Y.C. Subway**\
+`The New York Police Department released edited body camera footage that shows the moments before and after officers shot a man who they said was wielding a knife at a subway station in Brooklyn.`\
+https://nytimes.com/video/nyregion/100000009711230/nyc-subway-shooting-bodycam.html
+
+**What we’re seeing at Canucks training camp: 10 observations after 2 days**\
+`There was subtle, telling information that we were able to gather about various players and the team itself after watching closely.`\
+https://nytimes.com/athletic/5782782/2024/09/20/canucks-observations-training-camp/
+
 **Raiders' Koonce to undergo season-ending knee surgery**\
 `Koonce suffered the injury during practice ahead of the Raiders' Week 1 matchup with the Los Angeles Chargers.`\
 https://nytimes.com/athletic/5783022/2024/09/20/raiders-malcolm-koonce-injury-out-for-season/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/20/us/mark-robinson-north-carolina-republicans.html
 **AJ Griffin to step away from basketball after 2 seasons**\
 `As of now, the franchise has no immediate plans to fill the roster spot, a team source said.`\
 https://nytimes.com/athletic/5782871/2024/09/20/aj-girffin-retirement-duke-rockets-hawks/
-
-**Officials Confirm Body Found Near Site of Kentucky Highway Shooting Was Suspect’s**\
-`The identification, made through DNA testing, affirmed the belief of officials. The body was discovered Wednesday after a 12-day manhunt.`\
-https://nytimes.com/2024/09/20/us/kentucky-highway-shooting-suspect.html
-
-**Senior Hezbollah Leader Is Killed in Beirut in Israeli Airstrike**\
-`The attack, which Lebanese officials said killed at least 14 and injured more than 60, stoked fears Israel is driving toward a full-blown war on its northern border, even as the fight in Gaza goes on.`\
-https://nytimes.com/2024/09/20/world/middleeast/beirut-israel-hezbollah-airstrike.html
 
