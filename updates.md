@@ -1,3 +1,7 @@
+**Sonny Dykes ejected vs. SMU after consecutive unsportsmanlike penalties**\
+`TCU still drove the length of the field for a touchdown on the first drive without Dykes.`\
+https://nytimes.com/athletic/5784380/2024/09/21/tcu-coach-ejected-sonny-dykes-smu/
+
 **Cleveland Guardians clinch AL Central title for second time in 3 years**\
 `Despite the division being stronger this season — apart from the White Sox — Cleveland spent all but six days in first place.`\
 https://nytimes.com/athletic/5784339/2024/09/21/cleveland-guardians-clinch-al-central/
