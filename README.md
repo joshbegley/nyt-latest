@@ -1,3 +1,11 @@
+**Raiders' Koonce to undergo season-ending knee surgery**\
+`Koonce suffered the injury during practice ahead of the Raiders' Week 1 matchup with the Los Angeles Chargers.`\
+https://nytimes.com/athletic/5783022/2024/09/20/raiders-malcolm-koonce-injury-out-for-season/
+
+**What Happened During the 1983 Bombings in Beirut?**\
+`One of Hezbollah’s top military commanders, who was accused of helping plan the blasts four decades ago, was killed on Friday in an Israeli airstrike.`\
+https://nytimes.com/2024/09/20/world/middleeast/1983-bombings-beirut.html
+
 **How One Man’s Vote in Nebraska Could Change the Presidential Election**\
 `A single Republican state senator appears to be holding back a push by Donald J. Trump to net a potentially pivotal electoral vote even before ballots are cast.`\
 https://nytimes.com/2024/09/20/us/politics/nebraska-trump-electoral-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/20/us/kentucky-highway-shooting-suspect.html
 **Senior Hezbollah Leader Is Killed in Beirut in Israeli Airstrike**\
 `The attack, which Lebanese officials said killed at least 14 and injured more than 60, stoked fears Israel is driving toward a full-blown war on its northern border, even as the fight in Gaza goes on.`\
 https://nytimes.com/2024/09/20/world/middleeast/beirut-israel-hezbollah-airstrike.html
-
-**Israel’s airstrike in Beirut had significance for relatives of Americans killed in Beirut in 1983.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/09/20/world/gaza-israel-hamas-hezbollah/israels-airstrike-in-beirut-had-significance-for-relatives-of-americans-killed-in-beirut-in-1983
-
-**Can young Red Wings forwards push for roster spots? Training camp observations**\
-`How three young forwards pushing to win a spot on the Red Wings have looked so far, plus a note on Simon Edvinsson's expected role.`\
-https://nytimes.com/athletic/5782631/2024/09/20/red-wings-roster-training-camp/
 
