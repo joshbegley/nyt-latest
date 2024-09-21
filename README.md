@@ -1,3 +1,7 @@
+**Ukraine Hits 2 Russian Munition Depots, Aiming to Disrupt Military Operations**\
+`Strikes on weapons arsenals are crucial to weaken Moscow’s overwhelming superiority in battlefield firepower, analysts said.`\
+https://nytimes.com/2024/09/21/world/europe/ukraine-russia-war-ammunition-depots.html
+
 **Sean Combs and the Limits of the ‘Family Man’ Defense**\
 `Famous people have long tried to launder their images through their spouses and children.`\
 https://nytimes.com/2024/09/21/opinion/sean-combs-family-man-defense.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/business/women-entrepreneurs-are-hitting-a-fundin
 **Trump Heads to North Carolina as Mark Robinson’s Campaign Reels**\
 `The former president is holding a rally in the battleground state as Mr. Robinson, whom he endorsed for governor, deals with the fallout from a report that he made disturbing online posts.`\
 https://nytimes.com/2024/09/21/us/politics/donald-trump-north-carolina-mark-robinson.html
-
-**2 Books for a Real-Life ‘Brilliant Friend’**\
-`Adventures in Russian literature; a novel of domestic discontent.`\
-https://nytimes.com/2024/09/21/books/read-like-wind-recommendations.html
 
