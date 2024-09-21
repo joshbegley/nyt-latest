@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 3 Bournemouth 0 - Alexander-Arnold shows his worth and Nunez arrives for season**\
+`Liverpool beat Bournemouth 3-0 at Anfield on Saturday afternoon courtesy of goals from Luis Diaz and Darwin Nunez`\
+https://nytimes.com/athletic/5778673/2024/09/21/liverpool-bournemouth-result-analysis-report/
+
 **Max Verstappen calls swearing sanction ‘ridiculous’ after FIA press conference protest**\
 `Verstappen refused to answer news conference questions a day after being sanctioned for inappropriate language. `\
 https://nytimes.com/athletic/5783554/2024/09/21/max-verstappen-protest-f1-singapore-gp-fia-news-conference/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/world/middleeast/who-is-ahmed-wahbi-hezbollah-com
 **Eric Kim’s ‘Absolutely Amazing’ Pasta Alla Vodka (With Ricotta)**\
 `I adore this recipe, and so do thousands of readers.`\
 https://nytimes.com/2024/09/21/dining/eric-kims-absolutely-amazing-pasta-alla-vodka-with-ricotta.html
-
-**Biden’s national security adviser says escalation risk in the Middle East is ‘acute.’**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/bidens-national-security-adviser-says-escalation-risk-in-the-middle-east-is-acute
 
