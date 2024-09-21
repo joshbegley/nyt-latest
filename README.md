@@ -1,3 +1,7 @@
+**Northern Israel braces for a backlash, even as the conflict remains under the radar in Tel Aviv.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/21/world/gaza-israel-hamas-hezbollah/northern-israel-braces-for-a-backlash-even-as-the-conflict-remains-under-the-radar-in-tel-aviv
+
 **The Briefing: West Ham 0 Chelsea 3 - Co-owners in attendance and Jackson silences doubters**\
 `Chelsea overcame West Ham 3-0 on Saturday afternoon — Simon Johnson analyses the key talking points`\
 https://nytimes.com/athletic/5778672/2024/09/21/west-ham-chelsea-result-report-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5782915/2024/09/21/raiders-panthers-explosive-offen
 **Exploding Pagers Deliver a Supply Chain Warning**\
 `The attacks on Hezbollah in Lebanon are likely to generate greater momentum for moving factory production closer to home.`\
 https://nytimes.com/2024/09/21/business/dealbook/exploding-pagers-deliver-supply-chain-warning.html
-
-**Women Entrepreneurs Are Hitting a Funding Wall**\
-`For women starting new businesses, early funding from venture capital firms led by other women are vital. But few are large enough to lead subsequent rounds of financing.`\
-https://nytimes.com/2024/09/21/business/women-entrepreneurs-are-hitting-a-funding-wall.html
 

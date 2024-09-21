@@ -1,3 +1,7 @@
+**The Briefing: West Ham 0 Chelsea 3 - Co-owners in attendance and Jackson silences doubters**\
+`Chelsea overcame West Ham 3-0 on Saturday afternoon — Simon Johnson analyses the key talking points`\
+https://nytimes.com/athletic/5778672/2024/09/21/west-ham-chelsea-result-report-analysis/
+
 **Ukraine Hits 2 More Russian Munition Depots, Aiming to Disrupt War Effort**\
 `Strikes on weapons arsenals are crucial to weaken Moscow’s overwhelming superiority in battlefield firepower, analysts said.`\
 https://nytimes.com/2024/09/21/world/europe/ukraine-russia-war-ammunition-depots.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/business/dealbook/exploding-pagers-deliver-supply
 **Women Entrepreneurs Are Hitting a Funding Wall**\
 `For women starting new businesses, early funding from venture capital firms led by other women are vital. But few are large enough to lead subsequent rounds of financing.`\
 https://nytimes.com/2024/09/21/business/women-entrepreneurs-are-hitting-a-funding-wall.html
-
-**Trump Heads to North Carolina as Mark Robinson’s Campaign Reels**\
-`The former president is holding a rally in the battleground state as Mr. Robinson, whom he endorsed for governor, deals with the fallout from a report that he made disturbing online posts.`\
-https://nytimes.com/2024/09/21/us/politics/donald-trump-north-carolina-mark-robinson.html
 

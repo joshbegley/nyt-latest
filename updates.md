@@ -1,3 +1,7 @@
+**The Briefing: West Ham 0 Chelsea 3 - Co-owners in attendance and Jackson silences doubters**\
+`Chelsea overcame West Ham 3-0 on Saturday afternoon — Simon Johnson analyses the key talking points`\
+https://nytimes.com/athletic/5778672/2024/09/21/west-ham-chelsea-result-report-analysis/
+
 **Ukraine Hits 2 More Russian Munition Depots, Aiming to Disrupt War Effort**\
 `Strikes on weapons arsenals are crucial to weaken Moscow’s overwhelming superiority in battlefield firepower, analysts said.`\
 https://nytimes.com/2024/09/21/world/europe/ukraine-russia-war-ammunition-depots.html
