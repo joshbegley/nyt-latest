@@ -1,3 +1,7 @@
+**Car Parts, Fiberglass and a Dream: How a Teacher Built a Hovercraft**\
+`Robert Tymofichuk, a teacher in Alberta, Canada, spent nearly 2,000 hours building an operational hovercraft from salvaged car parts and with no blueprint.`\
+https://nytimes.com/2024/09/21/technology/diy-hovercraft-alberta-canada.html
+
 **Sally Rooney Thinks Career Growth Is Overrated**\
 `The star novelist discusses her public persona, the discourse around her work and why reinvention isn’t a goal.`\
 https://nytimes.com/2024/09/21/magazine/sally-rooney-interview.html
