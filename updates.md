@@ -1,3 +1,7 @@
+**Wolves defender Mosquera's knee injury "doesn't look good" says O'Neil**\
+`Wolves defender Yerson Mosquera is facing scans this week amid fears he could have suffered a serious knee injury in this afternoon’s defeat at Aston Villa.`\
+https://nytimes.com/athletic/5783738/2024/09/21/wolves-aston-villa-yerson-mosquera-injury/
+
 **Billy Edd Wheeler, Songwriter Who Celebrated Rural Life, Dies at 91**\
 `His plain-spoken songs were recorded by Elvis Presley, Kenny Rogers and many others. The duo of Johnny Cash and June Carter made his “Jackson” a huge country hit.`\
 https://nytimes.com/2024/09/21/arts/music/billy-edd-wheeler-dead.html
