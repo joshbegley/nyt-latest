@@ -1,3 +1,11 @@
+**Controversies Erupt as Trump and G.O.P. Make Critical Push to Voters**\
+`A Republican who reportedly called himself a “Black Nazi,” a false story about migrants eating cats and dogs, and a feud with Taylor Swift bring back a sense of chaos.`\
+https://nytimes.com/2024/09/22/us/politics/controversies-erupt-as-trump-and-gop-make-critical-push-to-voters.html
+
+**Red Sox manager Alex Cora ejected after heated protest of call**\
+`Cora had to be held back by third base umpire Alan Porter.`\
+https://nytimes.com/athletic/5785439/2024/09/22/red-sox-manager-alex-cora-ejection/
+
 **Mercury Morris, Elusive Rusher on a Perfect Dolphins Team, Dies at 77**\
 `Part of a talented backfield triumvirate that also included Larry Csonka and Jim Kiick, he helped lead Miami to two Super Bowls and an undefeated season.`\
 https://nytimes.com/2024/09/22/obituaries/mercury-morris-dead.html
