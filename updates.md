@@ -1,3 +1,7 @@
+**Yankees' magic number for AL East title falls to 3, Aaron Boone gets 600th win**\
+`The Yankees could capture the American League East crown as early as Tuesday.`\
+https://nytimes.com/athletic/5784654/2024/09/22/yankees-magic-number-playoffs-aaron-boone-600-wins/
+
 **Broncos at Bucs odds, picks, how to watch: Bucs aim for 3-0, Broncos to avoid 0-3**\
 `It's a tale of two very different season so far with the 2-0 Bucs hosting the 0-2 Broncos. `\
 https://nytimes.com/athletic/5780153/2024/09/22/broncos-buccaneers-odds-expert-picks-how-to-watch-predictions-betting/
