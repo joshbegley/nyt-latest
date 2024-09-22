@@ -1,3 +1,7 @@
+**As the Mets wait on Francisco Lindor and Kodai Senga, they're oozing with confidence**\
+`The Mets bounced back from a lopsided loss the night before, riding on belief while awaiting the return of two key players.`\
+https://nytimes.com/athletic/5784416/2024/09/21/mets-francisco-lindor-kodai-senga-confidence/
+
 **Buildings in Suburban Beirut Badly Damaged by Israeli Strike**\
 `Crews in southern Lebanon sifted through rubble a day after an Israeli attack that targeted a meeting of Hezbollah commanders. The airstrike killed at least 37 people, Lebanon’s health ministry said.`\
 https://nytimes.com/video/world/middleeast/100000009711905/israel-hezbollah-beirut-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/nyregion/nypd-subway-shooting-kerry-gahalal.html
 **Michigan knocks off USC in classic Big Ten showdown: What this means for both teams**\
 `Michigan's recipe for success was simple: Run the ball and play defense. And the Wolverines did just enough to beat USC in a thriller. `\
 https://nytimes.com/athletic/5784092/2024/09/21/michigan-usc-alex-orji-miller-moss-big-ten/
-
-**Trump’s Base in North Carolina Still Supports Mark Robinson, but Some Doubt He Can Win**\
-`At a Trump rally in Wilmington, N.C., many said they would still vote for the embattled Republican nominee for governor.`\
-https://nytimes.com/2024/09/21/us/politics/trump-base-north-carolina-mark-robinson.html
 
