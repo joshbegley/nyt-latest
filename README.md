@@ -10,6 +10,10 @@ https://nytimes.com/2024/09/22/us/north-carolina-house-collapse-rodanthe.html
 `There was a lot to break down in this encounter, to say the least. Our writers analyse the action.`\
 https://nytimes.com/athletic/5782484/2024/09/22/manchester-city-arsenal-trossard-walker/
 
+**Red Sox manager Alex Cora ejected after heated protest of call**\
+`Cora had to be held back by third base umpire Alan Porter.`\
+https://nytimes.com/athletic/5785439/2024/09/22/red-sox-manager-alex-cora-ejection/
+
 **For the Children of Architects, Filmmaking as Therapy**\
 `Jim Venturi shines a light on his parents, the postmodern innovators Robert Venturi and Denise Scott Brown. How architects’ hidden lives are often revealed by kids.`\
 https://nytimes.com/2024/09/22/arts/design/robert-venturi-and-denise-scott-brown-documentary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784677/2024/09/22/nascar-bristol-night-race-takeaw
 **Explaining three red cards in a minute in Brighton and Forest's 2-2 draw**\
 `Referee Rob Jones took his time before deciding to send Gibbs-White off, with Fabian Hurzeler and Nuno Espirito Santo also shown red cards`\
 https://nytimes.com/athletic/5785302/2024/09/22/gibbs-white-red-rob-jones-anthony-taylor-why/
-
-**Alexander-Arnold discusses Liverpool future - what he said and what he meant**\
-`Alexander-Arnold's current Liverpool contract expires in the summer - he spoke about the situation after Saturday's game`\
-https://nytimes.com/athletic/5783835/2024/09/22/liverpool-trent-alexander-arnold-future/
 
