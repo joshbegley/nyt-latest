@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5783105/2024/09/21/cardinals-eliminated-paul-goldsc
 https://nytimes.com/athletic/5784435/2024/09/21/max-fried-final-braves-starts/
 
 **What Canucks' Kevin Lankinen signing means and other training camp observations after Day 3**\
-`Adding the 29-year-old goalie on a one-year, $887,000 deal gives Vancouver another experienced NHL option in net, which was sorely needed.`\
+`Adding the 29-year-old goalie on a one-year, $875,000 deal gives Vancouver another experienced NHL option in net, which was sorely needed.`\
 https://nytimes.com/athletic/5784270/2024/09/21/canucks-sign-kevin-lankinen-training-camp/
 
 **As the Mets wait on Francisco Lindor and Kodai Senga, they're oozing with confidence**\

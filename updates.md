@@ -1,3 +1,7 @@
+**What Canucks' Kevin Lankinen signing means and other training camp observations after Day 3**\
+`Adding the 29-year-old goalie on a one-year, $875,000 deal gives Vancouver another experienced NHL option in net, which was sorely needed.`\
+https://nytimes.com/athletic/5784270/2024/09/21/canucks-sign-kevin-lankinen-training-camp/
+
 **Mississippi State QB Blake Shapen out for season with shoulder injury**\
 `Shapen joined Mississippi State this year after four seasons at Baylor.`\
 https://nytimes.com/athletic/5784508/2024/09/21/mississippi-state-blake-shapen-injury/
