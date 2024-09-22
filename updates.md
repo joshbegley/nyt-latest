@@ -1,3 +1,19 @@
+**A French Fair as Workers’ Paradise, Feting Cuisine, Music and Communism**\
+`The Fête de l’Humanité, a blend of Burning Man, Woodstock and a political convention, attracts the masses with bands, lectures and food, but here K.F.C. is C.F.K.: Communist Fried Kitchen.`\
+https://nytimes.com/2024/09/22/world/europe/france-humanity-festival-communism.html
+
+**What to Watch For in a Key German State Election**\
+`The far right and far left are poised to make significant gains in state voting on Sunday, possibly affecting the stability of the national government in Berlin.`\
+https://nytimes.com/2024/09/22/world/europe/germany-election-brandenburg.html
+
+**Bears vs. Colts odds, picks, how to watch: Two young quarterbacks face off**\
+`Anthony Richardson and the Colts are looking for their first W against Caleb Williams' Bears.`\
+https://nytimes.com/athletic/5779695/2024/09/22/bears-colts-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Sunday's MLB best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
+https://nytimes.com/athletic/5782788/2024/09/22/mlb-odds-best-bets-projections-september-22/
+
 **Panthers receive Bryce Young trade inquiries: Sources**\
 `The most recent quarterback to be traded by the team that drafted them No. 1 was Baker Mayfield, who was traded to the Panthers in 2022.`\
 https://nytimes.com/athletic/5784578/2024/09/21/panthers-bryce-young-trade-interest/
