@@ -1,9 +1,13 @@
+**Rodri injury may be the most significant moment for Man City in a match of a million things**\
+`“Rodri is a strong man,” Pep Guardiola said. “If he leaves the pitch in this action it is because he felt something."`\
+https://nytimes.com/athletic/5785665/2024/09/22/rodri-injury-latest/
+
 **Justin Fields leads Steelers to 20-10 win vs. Chargers: Key takeaways**\
 `Pittsburgh quarterback Justin Fields' performance was the exclamation point in a dominant second half by the Steelers.`\
 https://nytimes.com/athletic/5785461/2024/09/22/chargers-steelers-score-takeaways/
 
 **Criticizing Oprah, Trump Falsely Claims He Appeared on Her Show’s Final Week**\
-`As he took aim at Oprah Winfrey’s interview of Vice President Kamala Harris, former President Donald J. Trump repeated a false claim that he had appeared on her show in its last week.`\
+`As he took aim at Oprah Winfrey’s interview of Vice President Kamala Harris, former President Donald J. Trump repeated a debunked claim that he was one of the show’s last guests.`\
 https://nytimes.com/2024/09/22/us/politics/criticizing-oprah-trump-falsely-claims-he-appeared-on-her-final-show.html
 
 **Astros' Yordan Alvarez leaves game due to apparent leg injury**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/residents-
 **Jimmy Johnson slams Panthers owner David Tepper: ‘That’s the problem’**\
 `The Panthers have the league's worst record (31-70) since start of 2018 season, when Tepper bought the team.`\
 https://nytimes.com/athletic/5785569/2024/09/22/david-tepper-panthers-jimmy-johnson/
-
-**Jagr's Emmy win caps off big week for Penguins legend**\
-`Days after subtly announcing his impending retirement from hockey, Jagr won a regional Emmy for “Celebrate 68: Jagr Retirement Ceremony."`\
-https://nytimes.com/athletic/5785545/2024/09/22/jaromir-jagr-emmy-win-penguins-hockey/
 
