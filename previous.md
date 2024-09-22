@@ -1,3 +1,7 @@
+**For the Children of Architects, Filmmaking as Therapy**\
+`Jim Venturi shines a light on his parents, the postmodern innovators Robert Venturi and Denise Scott Brown. How architects’ hidden lives are often revealed by kids.`\
+https://nytimes.com/2024/09/22/arts/design/robert-venturi-and-denise-scott-brown-documentary.html
+
 **In likely F1 farewell, Daniel Ricciardo helps 'old pal' Verstappen's title hopes**\
 `Ricciardo’s body language post-race and emotion in his voice made it clear. This really may be it for him in F1. `\
 https://nytimes.com/athletic/5785117/2024/09/22/daniel-ricciardo-f1-future-singapore-gp-red-bull/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/magazine/desertion-russian-army-ukraine-war.html
 **Dolphins legend 'Mercury' Morris dies at 77**\
 `Miami drafted Morris in the third round of the 1969 NFL Draft out of West Texas A&M.`\
 https://nytimes.com/athletic/5785273/2024/09/22/eugene-mercury-morris-death-dolphins/
-
-**Hezbollah’s latest barrages went deeper into Israel.**\
-`The overnight barrages appeared to be the furthest strikes by rockets into Israeli territory since Hezbollah started firing at Israel a little over a year ago in solidarity with Hamas.`\
-https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/hezbollahs-latest-barrages-went-deeper-into-israel
 

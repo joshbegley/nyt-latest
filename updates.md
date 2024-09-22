@@ -1,3 +1,7 @@
+**For the Children of Architects, Filmmaking as Therapy**\
+`Jim Venturi shines a light on his parents, the postmodern innovators Robert Venturi and Denise Scott Brown. How architects’ hidden lives are often revealed by kids.`\
+https://nytimes.com/2024/09/22/arts/design/robert-venturi-and-denise-scott-brown-documentary.html
+
 **In likely F1 farewell, Daniel Ricciardo helps 'old pal' Verstappen's title hopes**\
 `Ricciardo’s body language post-race and emotion in his voice made it clear. This really may be it for him in F1. `\
 https://nytimes.com/athletic/5785117/2024/09/22/daniel-ricciardo-f1-future-singapore-gp-red-bull/
