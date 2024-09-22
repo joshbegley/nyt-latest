@@ -1,3 +1,7 @@
+**More Than 700 Current and Former National Security Officials Back Harris**\
+`A letter signed by former secretaries of state and defense endorsed Vice President Kamala Harris and said former President Donald J. Trump poses a threat to the nation’s defense and its democratic system.`\
+https://nytimes.com/2024/09/22/us/politics/more-than-700-current-and-former-national-security-officials-back-harris.html
+
 **NASCAR Bristol takeaways: Tame Round 1 leaves top playoff drivers still standing**\
 `Thoughts on a fairly status-quo first round, Martin Truex Jr.'s elimination and more from the end of the NASCAR Cup playoffs' first round.`\
 https://nytimes.com/athletic/5784677/2024/09/22/nascar-bristol-night-race-takeaways-playoffs-martin-truex-jr/
