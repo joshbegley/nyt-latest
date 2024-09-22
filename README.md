@@ -1,3 +1,7 @@
+**F1 Singapore GP takeaways: Norris' dominant victory, Ricciardo's possible swansong**\
+`F1's eighteenth race of 2024 was long, physically challenging and consequential for the rest of the season.`\
+https://nytimes.com/athletic/5785118/2024/09/22/f1-singapore-gp-race-recap/
+
 **Residents in northern Israel recover after Sunday’s attack and fear more strikes.**\
 `By Gabby Sobelman and Alissa J. Rubin`\
 https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/residents-in-northern-israel-recover-after-sundays-attack-and-fear-more-strikes
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/us/north-carolina-house-collapse-rodanthe.html
 **The Briefing: Man City 2 Arsenal 2 - Controversial red, quick free kicks and rivalry ignited in classic**\
 `There was a lot to break down in this encounter, to say the least. Our writers analyse the action`\
 https://nytimes.com/athletic/5782484/2024/09/22/manchester-city-arsenal-trossard-walker/
-
-**Red Sox manager Alex Cora ejected after heated protest of call**\
-`Cora had to be held back by third base umpire Alan Porter.`\
-https://nytimes.com/athletic/5785439/2024/09/22/red-sox-manager-alex-cora-ejection/
 
