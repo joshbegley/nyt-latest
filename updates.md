@@ -1,3 +1,11 @@
+**Top NFL Week 3 storylines: Will Vikings or Texans go 3-0? Can Andy Dalton help Panthers?**\
+`Nine teams begin Week 3 undefeated, and nine are 0-2. The latter includes Carolina, which benched Bryce Young this week for Dalton.`\
+https://nytimes.com/athletic/5780306/2024/09/22/nfl-week-3-storylines-vikings-texans-panthers/
+
+**Explosion at an Iranian Mine Kills Dozens, State Media Says**\
+`A methane leak set off the explosion, killing at least 51 people, the country’s official media said.`\
+https://nytimes.com/2024/09/22/world/middleeast/iran-explosion-coal-mine-methane.html
+
 **In the Sean Combs and Dominique Pelicot Trials, the Dehumanization of Women Is Exhibit A**\
 `It’s easy to miss how much these cases have in common with everyday reality.`\
 https://nytimes.com/2024/09/22/opinion/sean-combs-dominique-pelicot.html
