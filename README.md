@@ -1,4 +1,8 @@
-**Criticizing Oprah, Trump Falsely Claims He Appeared on Her Final Show**\
+**Justin Fields leads Steelers to 20-10 win vs. Chargers: Key takeaways**\
+`Pittsburgh quarterback Justin Fields' performance was the exclamation point in a dominant second half by the Steelers.`\
+https://nytimes.com/athletic/5785461/2024/09/22/chargers-steelers-score-takeaways/
+
+**Criticizing Oprah, Trump Falsely Claims He Appeared on Her Show’s Final Week**\
 `As he took aim at Oprah Winfrey’s interview of Vice President Kamala Harris, former President Donald J. Trump repeated a false claim that he had appeared on her show in its last week.`\
 https://nytimes.com/2024/09/22/us/politics/criticizing-oprah-trump-falsely-claims-he-appeared-on-her-final-show.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785569/2024/09/22/david-tepper-panthers-jimmy-john
 **Jagr's Emmy win caps off big week for Penguins legend**\
 `Days after subtly announcing his impending retirement from hockey, Jagr won a regional Emmy for “Celebrate 68: Jagr Retirement Ceremony."`\
 https://nytimes.com/athletic/5785545/2024/09/22/jaromir-jagr-emmy-win-penguins-hockey/
-
-**Tongsun Park, Lobbyist Scarred by Koreagate Scandal, Dies at 89**\
-`An amiable Korean-born graduate of Georgetown University, he was imprisoned after a second scandal involving the U.N.`\
-https://nytimes.com/2024/09/22/us/politics/tongsun-park-dead.html
 
