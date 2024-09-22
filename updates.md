@@ -1,3 +1,7 @@
+**Cat Missing in Yellowstone Returns Home to California After an 800-Mile Trek**\
+`The owners of Rayne Beau, the 2-year old Siamese cat, have no idea how their cat made it back, but call his return a “miracle.”`\
+https://nytimes.com/2024/09/22/us/cat-yellowstone-california.html
+
 **Braves takeaways: Chris Sale won't start twice in final week, Matt Olson's resurgence**\
 `The Braves are focused on a pivotal series against the Mets, with Sale slated to pitch on Wednesday.`\
 https://nytimes.com/athletic/5786232/2024/09/22/braves-chris-sale-final-week/
