@@ -1,3 +1,7 @@
+**SEC vibes rankings: Auburn plummets to the bottom as QB (and coaching) woes continue**\
+`Texas, Tennessee and Ole Miss keep rolling. Florida showing signs of life. Missouri flirting with disaster. `\
+https://nytimes.com/athletic/5784869/2024/09/22/sec-football-week-3-auburn-hugh-freeze/
+
 **Charging the Parents of Mass Shooters**\
 `Readers discuss a guest essay criticizing charges against Colin Gray. Also: Jan. 6; turmoil in Central America; learning from dogs; blindness and courage.`\
 https://nytimes.com/2024/09/22/opinion/mass-shooters-parents.html
