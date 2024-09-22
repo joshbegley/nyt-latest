@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge hits 55th home run**\
+`Judge now leads the Dodgers' Shohei Ohtani by three for the most home runs in the majors. `\
+https://nytimes.com/athletic/5786099/2024/09/22/yankees-aaron-judge-home-runs/
+
 **Monday Briefing: Israel and Hezbollah Trade Threats**\
 `Plus, a Russian military officer’s story of desertion and escape.`\
 https://nytimes.com/2024/09/22/briefing/hezbollah-israel-controversy-election-sri-lanka.html
