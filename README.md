@@ -1,3 +1,7 @@
+**A’ja Wilson named unanimous WNBA MVP**\
+`Wilson is only the second player ever to win the award unanimously and the first since the Houston Comets’ Cynthia Cooper-Dyke in 1997.`\
+https://nytimes.com/athletic/5785027/2024/09/22/aja-wilson-unanimous-mvp-wnba-aces/
+
 **Videos Show Hezbollah Missile Hit Residential Area in Northern Israel**\
 `An overnight barrage included around 150 rockets, cruise missiles and drones, Israel’s military said. Air defenses intercepted most, but the town of Kiryat Bialik suffered a direct hit.`\
 https://nytimes.com/2024/09/22/world/middleeast/hezbollah-kiryat-bialik-israel-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784398/2024/09/22/man-united-crystal-palace-ten-ha
 **Watching Arch Manning: How the QB navigated his first start at Texas**\
 `With help from a pair of binoculars trained on Manning throughout the night, here’s a closer look at how the QB's starting debut went.`\
 https://nytimes.com/athletic/5784719/2024/09/22/arch-manning-texas-longhorns-qb-first-start/
-
-**Maddison hopes first Tottenham goal since March 'shuts up a few people'**\
-`James Maddison hopes his first goal since March &#8220;shuts up a few people&#8221; after scoring Tottenham Hotspur&#8217;s third in Saturday&#8217;s 3-1 win over Brentford.`\
-https://nytimes.com/athletic/5784826/2024/09/22/james-maddison-tottenham-goal/
 
