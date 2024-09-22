@@ -1,3 +1,7 @@
+**Maddison hopes first Tottenham goal since March 'shuts up a few people'**\
+`James Maddison hopes his first goal since March &#8220;shuts up a few people&#8221; after scoring Tottenham Hotspur&#8217;s third in Saturday&#8217;s 3-1 win over Brentford.`\
+https://nytimes.com/athletic/5784826/2024/09/22/james-maddison-tottenham-goal/
+
 **Congo Releases More Than 700 Inmates After a Deadly Stampede**\
 `At least 129 people died when inmates tried to escape from Makala Prison, where conditions are abysmal and overcrowding is a major problem.`\
 https://nytimes.com/2024/09/22/world/africa/congo-prison-release.html
