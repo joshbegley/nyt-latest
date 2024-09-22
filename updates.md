@@ -1,3 +1,7 @@
+**Lions at Cardinals odds, expert picks, how to watch: Can Kyler Murray deliver another gem?**\
+`The Detroit Lions are favored by a field goal at Arizona for this Week 3 clash.`\
+https://nytimes.com/athletic/5780210/2024/09/22/lions-cardinals-odds-expert-picks-how-to-watch-predictions-betting/
+
 **What we've learned about Cam Ward and Miami during its 4-0 start**\
 `Miami ran away with a 50-15 win at USF on Saturday. What does the 4-0 start mean for Mario Cristobal and the Hurricanes?`\
 https://nytimes.com/athletic/5784646/2024/09/22/miami-hurricanes-usf-cam-ward/
