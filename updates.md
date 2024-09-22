@@ -1,3 +1,7 @@
+**Panthers receive Bryce Young trade inquiries: Sources**\
+`The most recent quarterback to be traded by the team that drafted them No. 1 was Baker Mayfield, who was traded to the Panthers in 2022.`\
+https://nytimes.com/athletic/5784578/2024/09/21/panthers-bryce-young-trade-interest/
+
 **Packers vs. Titans odds, picks, how to watch: Winless Titans small favorites at home**\
 `It hasn't been pretty to be a Titans fan so far this year, and this game is close to a pick 'em in Nashville.`\
 https://nytimes.com/athletic/5779661/2024/09/21/packers-titans-odds-expert-picks-how-to-watch-predictions-betting/
