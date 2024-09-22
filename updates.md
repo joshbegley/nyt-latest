@@ -1,3 +1,7 @@
+**Corrections: Sept. 22, 2024**\
+`Corrections that appeared in print on Sunday, Sept. 22, Year.`\
+https://nytimes.com/2024/09/21/pageoneplus/corrections-sept-22-2024.html
+
 **Georgia Voters Feel Re-energized, Even as 2020 Looms Large**\
 `Many voters in the Atlanta suburbs were newly hopeful when Vice President Kamala Harris entered the race. But conservative values are still deeply rooted in the swing state.`\
 https://nytimes.com/interactive/2024/09/21/us/elections/georgia-suburbs-voters.html
