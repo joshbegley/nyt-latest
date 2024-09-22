@@ -1,3 +1,7 @@
+**Roma CEO Souloukou resigns after fan backlash to De Rossi sacking**\
+`AS Roma chief executive officer (CEO) Lina Souloukou has announced her resignation.`\
+https://nytimes.com/athletic/5784888/2024/09/22/lina-souloukou-roma-resigns/
+
 **Lowetide: Were the Oilers’ summer moves supported by analytics?**\
 `The numbers suggest Edmonton's management improved the team in the offseason.`\
 https://nytimes.com/athletic/5783591/2024/09/22/edmonton-oilers-summer-moves-analytics/
