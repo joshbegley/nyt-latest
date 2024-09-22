@@ -1,3 +1,7 @@
+**Videos Show Hezbollah Missile Hit Residential Area in Northern Israel**\
+`An overnight barrage included around 150 rockets, cruise missiles and drones, Israel’s military said. Air defenses intercepted most, but the town of Kiryat Bialik suffered a direct hit.`\
+https://nytimes.com/2024/09/22/world/middleeast/hezbollah-kiryat-bialik-israel-videos.html
+
 **Wrexham 2 Crawley Town 1: Mullin returns, an important response, Gresford remembered**\
 `Wrexham bounced back from defeat to Birmingham on an emotional day at the Racecourse. Richard Sutcliffe analyses the talking points...`\
 https://nytimes.com/athletic/5781995/2024/09/22/wrexham-crawley-mullin-gresford-parkinson/
