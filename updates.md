@@ -1,3 +1,7 @@
+**F1 Singapore GP takeaways: Norris' dominant victory, Ricciardo's possible swansong**\
+`F1's eighteenth race of 2024 was long, physically challenging and consequential for the rest of the season.`\
+https://nytimes.com/athletic/5785118/2024/09/22/f1-singapore-gp-race-recap/
+
 **Residents in northern Israel recover after Sunday’s attack and fear more strikes.**\
 `By Gabby Sobelman and Alissa J. Rubin`\
 https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/residents-in-northern-israel-recover-after-sundays-attack-and-fear-more-strikes
