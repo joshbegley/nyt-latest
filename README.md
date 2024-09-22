@@ -1,3 +1,7 @@
+**Mississippi State QB Blake Shapen out for season with shoulder injury**\
+`Shapen joined Mississippi State this year after four seasons at Baylor.`\
+https://nytimes.com/athletic/5784508/2024/09/21/mississippi-state-blake-shapen-injury/
+
 **With Cardinals eliminated, what's next for Paul Goldschmidt and Nolan Arenado?**\
 `Goldschmidt is a free agent after the season and even though Arenado is signed through 2027, there's no guarantee he'll remain in St. Louis.`\
 https://nytimes.com/athletic/5783105/2024/09/21/cardinals-eliminated-paul-goldschmidt-nolan-arenado/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784396/2024/09/21/missouri-vanderbilt-college-foot
 **Sonny Dykes ejected vs. SMU after consecutive unsportsmanlike penalties**\
 `TCU still drove the length of the field for a touchdown on the first drive without Dykes.`\
 https://nytimes.com/athletic/5784380/2024/09/21/tcu-coach-ejected-sonny-dykes-smu/
-
-**Cleveland Guardians clinch AL Central title for second time in 3 years**\
-`Despite the division being stronger this season — apart from the White Sox — Cleveland spent all but six days in first place.`\
-https://nytimes.com/athletic/5784339/2024/09/21/cleveland-guardians-clinch-al-central/
 
