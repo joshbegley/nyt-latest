@@ -1,3 +1,7 @@
+**BYU crushes No. 13 Kansas State behind epic 90-yard punt return touchdown**\
+`The Cougars, who went 5-7 last year in their Big 12 debut season, will travel to Baylor looking for their first 5-0 start since 2020.`\
+https://nytimes.com/athletic/5784665/2024/09/22/byu-kansas-state-punt-return-touchdown/
+
 **Heavy Rain in Japan Causes Deadly Flooding and Landslides**\
 `One person is dead and seven others are missing in Noto Peninsula, state media reported. The region is still recovering from a catastrophic earthquake earlier this year.`\
 https://nytimes.com/2024/09/22/world/asia/japan-rain-flooding-landslide.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5773607/2024/09/22/arsenal-man-city-rodri-comments/
 **Cardiff 0 Leeds 2: Rampaging Ramazani, Farke needs a Plan B, Piroe proves his point**\
 `Leeds cruised to victory over woeful Cardiff, who played the majority of the game with 10 men - but there were grumbles from the away end`\
 https://nytimes.com/athletic/5783516/2024/09/22/cardiff-0-leeds-2-ramazani-piroe-farke/
-
-**Interim N.Y.P.D. Commissioner Says Federal Agents Searched His Homes**\
-`Thomas G. Donlon, who recently took the interim role after Edward A. Caban resigned under a cloud, said the authorities had seized material unrelated to the Police Department.`\
-https://nytimes.com/2024/09/22/nyregion/nypd-thomas-donlon-search.html
 

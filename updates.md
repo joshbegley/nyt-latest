@@ -1,3 +1,7 @@
+**BYU crushes No. 13 Kansas State behind epic 90-yard punt return touchdown**\
+`The Cougars, who went 5-7 last year in their Big 12 debut season, will travel to Baylor looking for their first 5-0 start since 2020.`\
+https://nytimes.com/athletic/5784665/2024/09/22/byu-kansas-state-punt-return-touchdown/
+
 **Heavy Rain in Japan Causes Deadly Flooding and Landslides**\
 `One person is dead and seven others are missing in Noto Peninsula, state media reported. The region is still recovering from a catastrophic earthquake earlier this year.`\
 https://nytimes.com/2024/09/22/world/asia/japan-rain-flooding-landslide.html
