@@ -1,3 +1,7 @@
+**The Pulse: Michigan out-Harbaughs itself**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5782243/2024/09/22/michigan-usc-colorado-college-football-nfl-jordan-love-the-pulse/
+
 **SEC vibes rankings: Auburn plummets to the bottom as QB (and coaching) woes continue**\
 `Texas, Tennessee and Ole Miss keep rolling. Florida showing signs of life. Missouri flirting with disaster. `\
 https://nytimes.com/athletic/5784869/2024/09/22/sec-football-week-3-auburn-hugh-freeze/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785027/2024/09/22/aja-wilson-unanimous-mvp-wnba-ac
 **Videos Show Hezbollah Missile Hit Residential Area in Northern Israel**\
 `An overnight barrage included around 150 rockets, cruise missiles and drones, Israel’s military said. Air defenses intercepted most, but the town of Kiryat Bialik suffered a direct hit.`\
 https://nytimes.com/2024/09/22/world/middleeast/hezbollah-kiryat-bialik-israel-videos.html
-
-**Here’s the latest on the presidential race.**\
-`Vice Presid`\
-https://nytimes.com/live/2024/09/22/us/trump-harris-election/heres-the-latest-on-the-presidential-race
 
