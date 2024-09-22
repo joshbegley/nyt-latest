@@ -1,3 +1,7 @@
+**Braves takeaways: Chris Sale won't start twice in final week, Matt Olson's resurgence**\
+`The Braves are focused on a pivotal series against the Mets, with Sale slated to pitch on Wednesday.`\
+https://nytimes.com/athletic/5786232/2024/09/22/braves-chris-sale-final-week/
+
 **Top Aides Resign From Embattled North Carolina Candidate’s Campaign**\
 `Most of the senior staff members on Lt. Gov. Mark Robinson’s campaign for North Carolina governor resigned on Sunday after reports that he had made a series of disturbing online comments.`\
 https://nytimes.com/2024/09/22/us/politics/mark-robinson-staff-resigns.html
