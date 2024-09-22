@@ -1,3 +1,7 @@
+**Wrexham 2 Crawley Town 1: Mullin returns, an important response, Gresford remembered**\
+`Wrexham bounced back from defeat to Birmingham on an emotional day at the Racecourse. Richard Sutcliffe analyses the talking points...`\
+https://nytimes.com/athletic/5781995/2024/09/22/wrexham-crawley-mullin-gresford-parkinson/
+
 **Here’s the latest on the presidential race.**\
 `Vice Presid`\
 https://nytimes.com/live/2024/09/22/us/trump-harris-election/heres-the-latest-on-the-presidential-race
