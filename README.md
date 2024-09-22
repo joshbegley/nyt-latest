@@ -1,3 +1,7 @@
+**In One Hezbollah-Dominated Neighborhood, a Mix of Defiance and Unease**\
+`Many residents of Dahiya were grappling with uncertainty over what comes next.`\
+https://nytimes.com/2024/09/22/world/middleeast/beirut-funeral-ibrahim-aqeel-hezbollah.html
+
 **More Than 700 Current and Former National Security Officials Back Harris**\
 `A letter signed by former secretaries of state and defense endorsed Vice President Kamala Harris and said former President Donald J. Trump poses a threat to the nation’s defense and its democratic system.`\
 https://nytimes.com/2024/09/22/us/politics/more-than-700-current-and-former-national-security-officials-back-harris.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/5785007/2024/09/22/trent-alexander-arnold-liverpool
 `Here is what we can learn about the Russian military and its soldiers from the story of ‘Ivan’ and ‘Anna’ in The New York Times Magazine.`\
 https://nytimes.com/2024/09/22/magazine/desertion-russian-army-ukraine-war.html
 
-**Former Dolphin Eugene 'Mercury' Morris dies at 77**\
+**Dolphins legend 'Mercury' Morris dies at 77**\
 `Miami drafted Morris in the third round of the 1969 NFL Draft out of West Texas A&M.`\
 https://nytimes.com/athletic/5785273/2024/09/22/eugene-mercury-morris-death-dolphins/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/hezbollahs
 **Until Saturday: Arch Manning's first start, plus CFB contenders and pretenders**\
 `Welcome to Until Saturday, the five-star college football newsletter: Manning's first start for Texas was a mixed bag.`\
 https://nytimes.com/athletic/5785074/2024/09/22/arch-manning-texas-football-college-football-week-4-until-saturday/
-
-**FA investigating after Blackburn's Beck allegedly bitten by Preston's Osmajic**\
-`The Football Association (FA) is investigating after Blackburn Rovers left-back Owen Beck accused Preston North End forward Milutin Osmajic of biting him.`\
-https://nytimes.com/athletic/5785143/2024/09/22/milutin-osmajic-owen-beck-bite/
 
