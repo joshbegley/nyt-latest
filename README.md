@@ -1,3 +1,7 @@
+**Arteta expects '100 games' with red cards after Trossard's sending off**\
+`Arsenal manager Mikel Arteta says he expects “100 Premier League games” this season to see players sent off for delaying restarts after Leandro Trossard received a second yellow card for the offence during Sunday’s 2-2 draw with Manchester City.`\
+https://nytimes.com/athletic/5785742/2024/09/22/leandro-trossard-red-arteta-arsenal-city/
+
 **The escalating cross-border violence is raising international alarm.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/the-escalating-cross-border-violence-is-raising-international-alarm
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785489/2024/09/22/ap-top-25-college-football-ranki
 **Controversies Erupt as Trump and G.O.P. Make Critical Push to Voters**\
 `A Republican who reportedly called himself a “Black Nazi,” a false story about migrants eating cats and dogs, and a feud with Taylor Swift bring back a sense of chaos.`\
 https://nytimes.com/2024/09/22/us/politics/controversies-erupt-as-trump-and-gop-make-critical-push-to-voters.html
-
-**Mercury Morris, Elusive Rusher on a Perfect Dolphins Team, Dies at 77**\
-`Part of a talented backfield triumvirate that also included Larry Csonka and Jim Kiick, he helped lead Miami to two Super Bowls and an undefeated season.`\
-https://nytimes.com/2024/09/22/obituaries/mercury-morris-dead.html
 
