@@ -1,3 +1,11 @@
+**Top Aides Resign From Embattled North Carolina Candidate’s Campaign**\
+`Most of the senior staff members on Lt. Gov. Mark Robinson’s campaign for North Carolina governor resigned on Sunday after reports that he had made a series of disturbing online comments.`\
+https://nytimes.com/2024/09/22/us/politics/mark-robinson-staff-resigns.html
+
+**With 120 losses, White Sox join ’62 Mets for most defeats in modern MLB history**\
+`White Sox just one loss away from being the sole owners of an infamous record`\
+https://nytimes.com/athletic/5785600/2024/09/22/white-sox-most-losses-mlb-history-record/
+
 **Dolphins QB Skylar Thompson ruled out with chest injury**\
 `Thompson went 13-of-19 passing for 107 yards before exiting Sunday's game. `\
 https://nytimes.com/athletic/5786252/2024/09/22/dolphins-skylar-thompson-chest-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/22/us/gettysburg-college-racial-slur-swim-team.html
 **Israel and Hezbollah Threaten to Hit Harder, Raising Fears of All-Out War**\
 `A leader of the Iranian-backed militia said its latest barrage was “just the beginning,” and an Israeli military official said, “Our strikes will intensify.”`\
 https://nytimes.com/2024/09/22/world/middleeast/israel-hezbollah-conflict.html
-
-**The German Chancellor’s Party Ekes Out a Win Over the Far Right**\
-`The narrow win by Olaf Scholz’s party came in a state election, the third in a series that was seen as a reflection of the national mood and a snapshot of the government’s popularity.`\
-https://nytimes.com/2024/09/22/world/europe/germany-election-results-brandenburg-scholz.html
-
-**Thomas, Sun top Fever in Caitlin Clark's playoff debut**\
-`Thomas now owns four of the six triple-doubles in WNBA playoff history and collected her latest on the day she finished fifth in MVP voting.`\
-https://nytimes.com/athletic/5786108/2024/09/22/connecticut-sun-indiana-fever-caitlin-clark-alyssa-thomas/
 
