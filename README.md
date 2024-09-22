@@ -1,3 +1,7 @@
+**Braves takeaways: Chris Sale won't start twice in final week, Matt Olson's resurgence**\
+`The Braves are focused on a pivotal series against the Mets, with Sale slated to pitch on Wednesday.`\
+https://nytimes.com/athletic/5786232/2024/09/22/braves-chris-sale-final-week/
+
 **Top Aides Resign From Embattled North Carolina Candidate’s Campaign**\
 `Most of the senior staff members on Lt. Gov. Mark Robinson’s campaign for North Carolina governor resigned on Sunday after reports that he had made a series of disturbing online comments.`\
 https://nytimes.com/2024/09/22/us/politics/mark-robinson-staff-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/us/congress-spending-deal-johnson.html
 **College Investigating Report of a Student Scratching a Racial Slur on Another**\
 `A family says their son, a member of the swim team at Gettysburg College in Pennsylvania, was victimized when a teammate etched the slur across his chest with a box cutter.`\
 https://nytimes.com/2024/09/22/us/gettysburg-college-racial-slur-swim-team.html
-
-**Israel and Hezbollah Threaten to Hit Harder, Raising Fears of All-Out War**\
-`A leader of the Iranian-backed militia said its latest barrage was “just the beginning,” and an Israeli military official said, “Our strikes will intensify.”`\
-https://nytimes.com/2024/09/22/world/middleeast/israel-hezbollah-conflict.html
 
