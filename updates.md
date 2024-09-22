@@ -1,3 +1,11 @@
+**Mississippi State QB Blake Shapen out for season with shoulder injury**\
+`Shapen joined Mississippi State this year after four seasons at Baylor.`\
+https://nytimes.com/athletic/5784508/2024/09/21/mississippi-state-blake-shapen-injury/
+
+**With Cardinals eliminated, what's next for Paul Goldschmidt and Nolan Arenado?**\
+`Goldschmidt is a free agent after the season and even though Arenado is signed through 2027, there's no guarantee he'll remain in St. Louis.`\
+https://nytimes.com/athletic/5783105/2024/09/21/cardinals-eliminated-paul-goldschmidt-nolan-arenado/
+
 **Max Fried was focused on what could be his last 2 starts for Braves, and it showed**\
 `Fried tied Steve Avery for the most victories by a lefty in Braves history as Atlanta remains two games behind the Mets.`\
 https://nytimes.com/athletic/5784435/2024/09/21/max-fried-final-braves-starts/
