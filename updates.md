@@ -1,3 +1,7 @@
+**Arteta expects '100 games' with red cards after Trossard's sending off**\
+`Arsenal manager Mikel Arteta says he expects “100 Premier League games” this season to see players sent off for delaying restarts after Leandro Trossard received a second yellow card for the offence during Sunday’s 2-2 draw with Manchester City.`\
+https://nytimes.com/athletic/5785742/2024/09/22/leandro-trossard-red-arteta-arsenal-city/
+
 **The escalating cross-border violence is raising international alarm.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/the-escalating-cross-border-violence-is-raising-international-alarm
