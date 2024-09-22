@@ -1,3 +1,7 @@
+**Controversies Erupt as Trump and G.O.P. Make Critical Push to Voters**\
+`A Republican who reportedly called himself a “Black Nazi,” a false story about migrants eating cats and dogs, and a feud with Taylor Swift bring back a sense of chaos.`\
+https://nytimes.com/2024/09/22/us/politics/controversies-erupt-as-trump-and-gop-make-critical-push-to-voters.html
+
 **Mercury Morris, Elusive Rusher on a Perfect Dolphins Team, Dies at 77**\
 `Part of a talented backfield triumvirate that also included Larry Csonka and Jim Kiick, he helped lead Miami to two Super Bowls and an undefeated season.`\
 https://nytimes.com/2024/09/22/obituaries/mercury-morris-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/us/politics/more-than-700-current-and-former-nati
 **NASCAR Bristol takeaways: Tame Round 1 leaves top playoff drivers still standing**\
 `Thoughts on a fairly status-quo first round, Martin Truex Jr.'s elimination and more from the end of the NASCAR Cup playoffs' first round.`\
 https://nytimes.com/athletic/5784677/2024/09/22/nascar-bristol-night-race-takeaways-playoffs-martin-truex-jr/
-
-**Explaining three red cards in a minute in Brighton and Forest's 2-2 draw**\
-`Referee Rob Jones took his time before deciding to send Gibbs-White off, with Fabian Hurzeler and Nuno Espirito Santo also shown red cards`\
-https://nytimes.com/athletic/5785302/2024/09/22/gibbs-white-red-rob-jones-anthony-taylor-why/
 
