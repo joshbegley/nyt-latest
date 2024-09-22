@@ -1,3 +1,11 @@
+**The escalating cross-border violence is raising international alarm.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/the-escalating-cross-border-violence-is-raising-international-alarm
+
+**Chargers QB Justin Herbert exits vs. Steelers with injury**\
+`Backup quarterback Taylor Heinicke stepped in to replace Herbert.`\
+https://nytimes.com/athletic/5785713/2024/09/22/justin-herbert-injury-chargers-steelers/
+
 **F1 Singapore GP takeaways: Norris' dominant victory, Ricciardo's possible swansong**\
 `F1's eighteenth race of 2024 was long, physically challenging and consequential for the rest of the season.`\
 https://nytimes.com/athletic/5785118/2024/09/22/f1-singapore-gp-race-recap/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/22/us/politics/controversies-erupt-as-trump-and-gop-
 **Mercury Morris, Elusive Rusher on a Perfect Dolphins Team, Dies at 77**\
 `Part of a talented backfield triumvirate that also included Larry Csonka and Jim Kiick, he helped lead Miami to two Super Bowls and an undefeated season.`\
 https://nytimes.com/2024/09/22/obituaries/mercury-morris-dead.html
-
-**Two Outer Banks Homes Collapse Into the Ocean in North Carolina**\
-`Nine homes in the area have been lost to the ocean in the past four years because of rising seas and storms that erode shorelines.`\
-https://nytimes.com/2024/09/22/us/north-carolina-house-collapse-rodanthe.html
-
-**The Briefing: Man City 2 Arsenal 2 - Controversial red, quick free kicks and rivalry ignited in classic**\
-`There was a lot to break down in this encounter, to say the least. Our writers analyse the action`\
-https://nytimes.com/athletic/5782484/2024/09/22/manchester-city-arsenal-trossard-walker/
 

@@ -1,3 +1,11 @@
+**The escalating cross-border violence is raising international alarm.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/the-escalating-cross-border-violence-is-raising-international-alarm
+
+**Chargers QB Justin Herbert exits vs. Steelers with injury**\
+`Backup quarterback Taylor Heinicke stepped in to replace Herbert.`\
+https://nytimes.com/athletic/5785713/2024/09/22/justin-herbert-injury-chargers-steelers/
+
 **F1 Singapore GP takeaways: Norris' dominant victory, Ricciardo's possible swansong**\
 `F1's eighteenth race of 2024 was long, physically challenging and consequential for the rest of the season.`\
 https://nytimes.com/athletic/5785118/2024/09/22/f1-singapore-gp-race-recap/
