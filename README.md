@@ -19,7 +19,7 @@ https://nytimes.com/2024/09/22/nyregion/metropolitan-diary.html
 https://nytimes.com/athletic/5784665/2024/09/22/byu-kansas-state-punt-return-touchdown/
 
 **Heavy Rain in Japan Causes Deadly Flooding and Landslides**\
-`One person is dead and seven others are missing in Noto Peninsula, state media reported. The region is still recovering from a catastrophic earthquake earlier this year.`\
+`One person is dead and seven others are missing in Noto Peninsula, Japanese news media reported. The region is still recovering from a catastrophic earthquake.`\
 https://nytimes.com/2024/09/22/world/asia/japan-rain-flooding-landslide.html
 
 **Yankees' magic number for AL East title falls to 3, Aaron Boone gets 600th win**\
