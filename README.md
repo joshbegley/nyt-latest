@@ -1,3 +1,7 @@
+**In likely F1 farewell, Daniel Ricciardo helps 'old pal' Verstappen's title hopes**\
+`Ricciardo’s body language post-race and emotion in his voice made it clear. This really may be it for him in F1. `\
+https://nytimes.com/athletic/5785117/2024/09/22/daniel-ricciardo-f1-future-singapore-gp-red-bull/
+
 **In One Hezbollah-Dominated Neighborhood, a Mix of Defiance and Unease**\
 `Many residents of Dahiya were grappling with uncertainty over what comes next.`\
 https://nytimes.com/2024/09/22/world/middleeast/beirut-funeral-ibrahim-aqeel-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785273/2024/09/22/eugene-mercury-morris-death-dolp
 **Hezbollah’s latest barrages went deeper into Israel.**\
 `The overnight barrages appeared to be the furthest strikes by rockets into Israeli territory since Hezbollah started firing at Israel a little over a year ago in solidarity with Hamas.`\
 https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/hezbollahs-latest-barrages-went-deeper-into-israel
-
-**Until Saturday: Arch Manning's first start, plus CFB contenders and pretenders**\
-`Welcome to Until Saturday, the five-star college football newsletter: Manning's first start for Texas was a mixed bag.`\
-https://nytimes.com/athletic/5785074/2024/09/22/arch-manning-texas-football-college-football-week-4-until-saturday/
 
