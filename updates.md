@@ -1,3 +1,7 @@
+**Position of Intense Scrutiny**\
+`Freddie Cheng experiments with the initial phase of constructing.`\
+https://nytimes.com/2024/09/22/crosswords/daily-puzzle-2024-09-23.html
+
 **Congress Unveils Short-Term Spending Deal**\
 `Speaker Mike Johnson dropped his demands for proof-of-citizenship voting requirements to strike a deal that includes more money for the Secret Service and funds the government through Dec. 20.`\
 https://nytimes.com/2024/09/22/us/congress-spending-deal-johnson.html
