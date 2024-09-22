@@ -1,3 +1,7 @@
+**For Martin Truex Jr., 0.9 mph ends dream of a walk-off Cup championship**\
+`A speeding penalty on pit road cost Martin Truex Jr. crucial track position Saturday at Bristol, ultimately sinking his playoff hopes.`\
+https://nytimes.com/athletic/5784720/2024/09/22/martin-truex-jr-bristol-speeding-penalty-nascar/
+
 **A’ja Wilson named unanimous WNBA MVP**\
 `Wilson is only the second player ever to win the award unanimously and the first since the Houston Comets’ Cynthia Cooper-Dyke in 1997.`\
 https://nytimes.com/athletic/5785027/2024/09/22/aja-wilson-unanimous-mvp-wnba-aces/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781995/2024/09/22/wrexham-crawley-mullin-gresford-
 **United's pressing and passing have improved - Ten Hag's team now need a ruthless streak**\
 `Ten Hag's team were excellent for large parts of the draw with Palace — but to push on properly these are the types of game they need to win`\
 https://nytimes.com/athletic/5784398/2024/09/22/man-united-crystal-palace-ten-hag-rashford/
-
-**Watching Arch Manning: How the QB navigated his first start at Texas**\
-`With help from a pair of binoculars trained on Manning throughout the night, here’s a closer look at how the QB's starting debut went.`\
-https://nytimes.com/athletic/5784719/2024/09/22/arch-manning-texas-longhorns-qb-first-start/
 
