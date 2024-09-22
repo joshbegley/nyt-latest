@@ -1,3 +1,7 @@
+**Buildings in Suburban Beirut Badly Damaged by Israeli Strike**\
+`Crews in southern Lebanon sifted through rubble a day after an Israeli attack that targeted a meeting of Hezbollah commanders. The airstrike killed at least 37 people, Lebanon’s health ministry said.`\
+https://nytimes.com/video/world/middleeast/100000009711905/israel-hezbollah-beirut-lebanon.html
+
 **Corrections: Sept. 22, 2024**\
 `Corrections that appeared in print on Sunday, Sept. 22, Year.`\
 https://nytimes.com/2024/09/21/pageoneplus/corrections-sept-22-2024.html

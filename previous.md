@@ -1,3 +1,7 @@
+**Buildings in Suburban Beirut Badly Damaged by Israeli Strike**\
+`Crews in southern Lebanon sifted through rubble a day after an Israeli attack that targeted a meeting of Hezbollah commanders. The airstrike killed at least 37 people, Lebanon’s health ministry said.`\
+https://nytimes.com/video/world/middleeast/100000009711905/israel-hezbollah-beirut-lebanon.html
+
 **Corrections: Sept. 22, 2024**\
 `Corrections that appeared in print on Sunday, Sept. 22, Year.`\
 https://nytimes.com/2024/09/21/pageoneplus/corrections-sept-22-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784092/2024/09/21/michigan-usc-alex-orji-miller-mo
 **Trump’s Base in North Carolina Still Supports Mark Robinson, but Some Doubt He Can Win**\
 `At a Trump rally in Wilmington, N.C., many said they would still vote for the embattled Republican nominee for governor.`\
 https://nytimes.com/2024/09/21/us/politics/trump-base-north-carolina-mark-robinson.html
-
-**Can Riley Leonard be a true dual-threat? Notre Dame takeaways after Miami (OH)**\
-`Notre Dame pulled away to beat the RedHawks 28-3, but there were plenty of issues to clean up — including with Leonard's passing.`\
-https://nytimes.com/athletic/5784183/2024/09/21/notre-dame-riley-leonard-miami-ohio-score/
 
