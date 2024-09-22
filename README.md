@@ -1,3 +1,7 @@
+**Israel’s Military Closes Al Jazeera’s Office in the West Bank**\
+`The Israeli authorities have been putting pressure on the local operations of the network, saying its coverage threatens national security.`\
+https://nytimes.com/2024/09/22/world/middleeast/al-jazeera-west-bank-raid.html
+
 **Panthers at Raiders odds, expert picks, how to watch: How do Panthers look with Dalton?**\
 `The Carolina Panthers head to Las Vegas with Bryce Young not starting. Andy Dalton is starting, but the Raiders are still a solid favorite.`\
 https://nytimes.com/athletic/5780571/2024/09/22/panthers-raiders-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/world/asia/japan-rain-flooding-landslide.html
 **Yankees' magic number for AL East title falls to 3, Aaron Boone gets 600th win**\
 `The Yankees could capture the American League East crown as early as Tuesday.`\
 https://nytimes.com/athletic/5784654/2024/09/22/yankees-magic-number-playoffs-aaron-boone-600-wins/
-
-**Here are the latest developments.**\
-`By Vivek Shankar`\
-https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
 
