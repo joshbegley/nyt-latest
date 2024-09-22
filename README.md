@@ -2,6 +2,10 @@
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
 
+**Broncos at Bucs odds, picks, how to watch: Bucs aim for 3-0, Broncos to avoid 0-3**\
+`It's a tale of two very different season so far with the 2-0 Bucs hosting the 0-2 Broncos. `\
+https://nytimes.com/athletic/5780153/2024/09/22/broncos-buccaneers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Chargers vs. Steelers odds, picks: Harbaugh against Steelers' crushing defense**\
 `The Chargers and Steelers have allowed the fewest points of any teams so far. They clash on Sunday. `\
 https://nytimes.com/athletic/5779854/2024/09/22/chargers-steelers-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784621/2024/09/22/colorado-baylor-college-football
 **Eagles vs. Saints odds, picks, how to watch: Can Saints continue their march?**\
 `The Saints shattered expectations in Weeks 1 and 2. Can they keep it up against Philly at home?`\
 https://nytimes.com/athletic/5779836/2024/09/22/eagles-saints-odds-expert-picks-how-to-watch-predictions-betting/
-
-**City vs Arsenal: Dealing with Haaland, set-piece threat - and does Arteta need the three points?**\
-`Our writers discuss some of the key talking points ahead of the big Premier League encounter later today`\
-https://nytimes.com/athletic/5781956/2024/09/22/manchester-city-arsenal-preview-premier-league/
 
