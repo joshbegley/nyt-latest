@@ -1,3 +1,11 @@
+**Tongsun Park, Lobbyist Scarred by Koreagate Scandal, Dies at 89**\
+`An amiable Korean-born graduate of Georgetown University, he was imprisoned after a second scandal involving the U.N.`\
+https://nytimes.com/2024/09/22/us/politics/tongsun-park-dead.html
+
+**AP Top 25: Texas No. 1 with top-4 Georgia-Bama game on deck**\
+`Texas received 44 of 62 first-place votes in this week's AP Top 25 college football poll. No. 2 Georgia at No. 4 Alabama is next.`\
+https://nytimes.com/athletic/5785489/2024/09/22/ap-top-25-college-football-rankings/
+
 **Controversies Erupt as Trump and G.O.P. Make Critical Push to Voters**\
 `A Republican who reportedly called himself a “Black Nazi,” a false story about migrants eating cats and dogs, and a feud with Taylor Swift bring back a sense of chaos.`\
 https://nytimes.com/2024/09/22/us/politics/controversies-erupt-as-trump-and-gop-make-critical-push-to-voters.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5785117/2024/09/22/daniel-ricciardo-f1-future-singa
 **In a Hezbollah-Dominated Area of Beirut, a Mix of Defiance and Unease**\
 `Many residents of Dahiya were grappling with uncertainty over what comes next.`\
 https://nytimes.com/2024/09/22/world/middleeast/beirut-funeral-ibrahim-aqeel-hezbollah.html
-
-**More Than 700 Current and Former National Security Officials Back Harris**\
-`A letter signed by former secretaries of state and defense endorsed Vice President Kamala Harris and said former President Donald J. Trump poses a threat to the nation’s defense and its democratic system.`\
-https://nytimes.com/2024/09/22/us/politics/more-than-700-current-and-former-national-security-officials-back-harris.html
-
-**NASCAR Bristol takeaways: Tame Round 1 leaves top playoff drivers still standing**\
-`Thoughts on a fairly status-quo first round, Martin Truex Jr.'s elimination and more from the end of the NASCAR Cup playoffs' first round.`\
-https://nytimes.com/athletic/5784677/2024/09/22/nascar-bristol-night-race-takeaways-playoffs-martin-truex-jr/
 

@@ -1,3 +1,11 @@
+**Tongsun Park, Lobbyist Scarred by Koreagate Scandal, Dies at 89**\
+`An amiable Korean-born graduate of Georgetown University, he was imprisoned after a second scandal involving the U.N.`\
+https://nytimes.com/2024/09/22/us/politics/tongsun-park-dead.html
+
+**AP Top 25: Texas No. 1 with top-4 Georgia-Bama game on deck**\
+`Texas received 44 of 62 first-place votes in this week's AP Top 25 college football poll. No. 2 Georgia at No. 4 Alabama is next.`\
+https://nytimes.com/athletic/5785489/2024/09/22/ap-top-25-college-football-rankings/
+
 **In a Hezbollah-Dominated Area of Beirut, a Mix of Defiance and Unease**\
 `Many residents of Dahiya were grappling with uncertainty over what comes next.`\
 https://nytimes.com/2024/09/22/world/middleeast/beirut-funeral-ibrahim-aqeel-hezbollah.html
