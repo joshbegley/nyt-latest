@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5784888/2024/09/22/lina-souloukou-roma-resigns/
 https://nytimes.com/athletic/5783591/2024/09/22/edmonton-oilers-summer-moves-analytics/
 
 **Wrexham 2 Crawley Town 1: Mullin returns, an important response, Gresford remembered**\
-`Wrexham bounced back from defeat to Birmingham on an emotional day at the Racecourse Ground — Richard Sutcliffe analyses the talking points`\
+`Wrexham bounced back from defeat to Birmingham on an emotional day at the Racecourse. Richard Sutcliffe analyses the talking points...`\
 https://nytimes.com/athletic/5781995/2024/09/22/wrexham-crawley-mullin-gresford-parkinson/
 
 **United's pressing and passing have improved - Ten Hag's team now need a ruthless streak**\
