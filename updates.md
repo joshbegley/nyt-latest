@@ -1,3 +1,7 @@
+**49ers at Rams odds, expert picks, how to watch: Winless LA is a big home underdog**\
+`The 1-1 49ers travel south in California to take on the 0-2 Rams on Sunday. The 49ers are touchdown-favorites against the shorthanded Rams.`\
+https://nytimes.com/athletic/5780265/2024/09/22/49ers-rams-odds-expert-picks-how-to-watch-predictions-betting/
+
 **A Surprise Season of Stranger Things**\
 `Standout shows from Bally and Bottega Veneta bring Milan Fashion Week to a close. Gucci, Versace and Moschino do some recycling.`\
 https://nytimes.com/2024/09/22/style/bottega-veneta-gucci-versace-milan-fashion-week.html
