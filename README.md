@@ -1,4 +1,4 @@
-**Sam Darnold's 4 TDs power Vikings to 34-7 win vs. Texans: Key takeaways**\
+**Sam Darnold's 4 TDs power Vikings to 34-7 win vs. Texans: Takeaways**\
 `Minnesota's defense held Houston to just 4-of-14 on third down and intercepted Texans quarterback CJ Stroud twice.`\
 https://nytimes.com/athletic/5785666/2024/09/22/texans-vikings-takeaways-result/
 
