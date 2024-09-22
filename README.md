@@ -1,3 +1,7 @@
+**Congo Releases More Than 700 Inmates After a Deadly Stampede**\
+`At least 129 people died when inmates tried to escape from Makala Prison, where conditions are abysmal and overcrowding is a major problem.`\
+https://nytimes.com/2024/09/22/world/africa/congo-prison-release.html
+
 **Top NFL Week 3 storylines: Will Vikings or Texans go 3-0? Can Andy Dalton help Panthers?**\
 `Nine teams begin Week 3 undefeated, and nine are 0-2. The latter includes Carolina, which benched Bryce Young this week for Dalton.`\
 https://nytimes.com/athletic/5780306/2024/09/22/nfl-week-3-storylines-vikings-texans-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5782225/2024/09/22/wild-roster-lineup-projection-pr
 **The Connections Companion No. 477**\
 `Scroll down for hints and conversation about the puzzle for Monday, Sept. 23, 2024.`\
 https://nytimes.com/2024/09/22/crosswords/connections-companion-477.html
-
-**Cubs leaders agree with Craig Counsell: 'What can we do to frickin’ dominate?'**\
-`"Teams shouldn’t want to come in here and play the Cubs," Jameson Taillon said. "Wrigley shouldn’t be a fun road trip."`\
-https://nytimes.com/athletic/5783963/2024/09/22/cubs-leaders-craig-counsell-brewers/
 
