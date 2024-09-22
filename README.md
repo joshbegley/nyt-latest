@@ -1,3 +1,7 @@
+**The Briefing: Man City 2 Arsenal 2 - Controversial red, quick free-kicks and rivalry ignited in classic**\
+`There was a lot to break down in this encounter, to say the least. Our writers analyse the action.`\
+https://nytimes.com/athletic/5782484/2024/09/22/manchester-city-arsenal-trossard-walker/
+
 **For the Children of Architects, Filmmaking as Therapy**\
 `Jim Venturi shines a light on his parents, the postmodern innovators Robert Venturi and Denise Scott Brown. How architects’ hidden lives are often revealed by kids.`\
 https://nytimes.com/2024/09/22/arts/design/robert-venturi-and-denise-scott-brown-documentary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785007/2024/09/22/trent-alexander-arnold-liverpool
 **The Heavy Toll of Desertion From the Russian Army**\
 `Here is what we can learn about the Russian military and its soldiers from the story of ‘Ivan’ and ‘Anna’ in The New York Times Magazine.`\
 https://nytimes.com/2024/09/22/magazine/desertion-russian-army-ukraine-war.html
-
-**Dolphins legend 'Mercury' Morris dies at 77**\
-`Miami drafted Morris in the third round of the 1969 NFL Draft out of West Texas A&M.`\
-https://nytimes.com/athletic/5785273/2024/09/22/eugene-mercury-morris-death-dolphins/
 
