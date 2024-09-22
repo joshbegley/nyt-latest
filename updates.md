@@ -1,3 +1,15 @@
+**Former Hugh Freeze QB Bo Wallace: 'maybe no one wants to play' for coach**\
+`Bo Wallace blasted his former coach Hugh Freeze for not taking responsibility after Auburn lost to Arkansas.`\
+https://nytimes.com/athletic/5785795/2024/09/22/auburn-football-hugh-freeze-bo-wallace/
+
+**Bo Nix lands first win as Broncos cruise past Bucs 26-7: Takeaways**\
+`Nix, the 2024 first-round passer, rushed for a touchdown and threw for 216 yards.`\
+https://nytimes.com/athletic/5785813/2024/09/22/broncos-buccaneers-takeaways-result/
+
+**Ter Stegen sustains 'huge' knee injury in Villarreal win**\
+`Barcelona coach Hansi Flick says goalkeeper Marc-Andre ter Stegen suffered a &#8220;huge injury&#8221; during their 5-1 La Liga win over Villarreal on Sunday.`\
+https://nytimes.com/athletic/5785537/2024/09/22/marc-andre-ter-stegen-injury-knee-barcelona/
+
 **Rodri injury may be the most significant moment for Man City in a match of a million things**\
 `“Rodri is a strong man,” Pep Guardiola said. “If he leaves the pitch in this action it is because he felt something."`\
 https://nytimes.com/athletic/5785665/2024/09/22/rodri-injury-latest/
