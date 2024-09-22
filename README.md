@@ -1,3 +1,7 @@
+**What we've learned about Cam Ward and Miami during its 4-0 start**\
+`Miami ran away with a 50-15 win at USF on Saturday. What does the 4-0 start mean for Mario Cristobal and the Hurricanes?`\
+https://nytimes.com/athletic/5784646/2024/09/22/miami-hurricanes-usf-cam-ward/
+
 **49ers at Rams odds, expert picks, how to watch: Winless LA is a big home underdog**\
 `The 1-1 49ers travel south in California to take on the 0-2 Rams on Sunday. The 49ers are touchdown-favorites against the shorthanded Rams.`\
 https://nytimes.com/athletic/5780265/2024/09/22/49ers-rams-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/arts/television/kelsey-grammer-frasier.html
 **Drugs, Sex, Baby Oil: The ‘Freak Offs’ at the Core of Sean Combs’s Troubles**\
 `Prosecutors say the sexual encounters in hotel rooms were coercive and abusive and are the heart of their sex trafficking case. The music mogul’s lawyers call them consensual.`\
 https://nytimes.com/2024/09/22/arts/drugs-sex-baby-oil-the-freak-offs-at-the-core-of-sean-combss-troubles.html
-
-**U.N. Meets Amid a Backdrop of Growing Chaos and Violence**\
-`Beginning Tuesday, world leaders will discuss three wars, climate change, rising sea levels and proposals to expand representation on the Security Council.`\
-https://nytimes.com/2024/09/22/world/middleeast/un-meeting-war-climate.html
 
