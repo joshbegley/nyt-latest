@@ -1,3 +1,11 @@
+**Chargers vs. Steelers odds, picks: Harbaugh against Steelers' crushing defense**\
+`The Chargers and Steelers have allowed the fewest points of any teams so far. They clash on Sunday. `\
+https://nytimes.com/athletic/5779854/2024/09/22/chargers-steelers-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Chelsea and an unfamiliar feeling of... sheer positivity**\
+`A comfortable win. Owners showing a united front. The Athletic's Simon Johnson in high spirits - and in need of a lie down...`\
+https://nytimes.com/athletic/5783603/2024/09/22/chelsea-west-ham-maresca-boehly-eghbali-positivity/
+
 **Julen Lopetegui is right - he and West Ham need to do better. This was another bleak display**\
 `The new West Ham head coach is failing to implement a clear playing style on his team and they were dominated by visitors Chelsea`\
 https://nytimes.com/athletic/5783383/2024/09/22/west-ham-chelsea-lopetegui-reaction/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5781956/2024/09/22/manchester-city-arsenal-preview-
 **Texans at Vikings odds, picks: Darnold vs. Stroud in battle of undefeateds**\
 `Only one can remain undefeated as the Vikings host the Texans on Sunday in a matchup of 2-0 teams. `\
 https://nytimes.com/athletic/5779729/2024/09/22/texans-vikings-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Payet, Bolasie and Depay — why are so many random European players heading to Brazil?**\
-`Depay, Braithwaite and Newcastle's Jamal Lewis have joined Payet and Bolasie in Brazil. And Balotelli and Ramos have been linked too...`\
-https://nytimes.com/athletic/5779640/2024/09/22/brazil-signings-payet-bolasie-depay-lewis/
-
-**A French Fair as Workers’ Paradise, Feting Cuisine, Music and Communism**\
-`The Fête de l’Humanité, a blend of Burning Man, Woodstock and a political convention, attracts the masses with bands, lectures and food, but here K.F.C. is C.F.K.: Communist Fried Kitchen.`\
-https://nytimes.com/2024/09/22/world/europe/france-humanity-festival-communism.html
 
