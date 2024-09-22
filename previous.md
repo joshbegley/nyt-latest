@@ -1,3 +1,11 @@
+**Georgia Voters Feel Re-energized, Even as 2020 Looms Large**\
+`Many voters in the Atlanta suburbs were newly hopeful when Vice President Kamala Harris entered the race. But conservative values are still deeply rooted in the swing state.`\
+https://nytimes.com/interactive/2024/09/21/us/elections/georgia-suburbs-voters.html
+
+**No. 7 Missouri holds on against Vanderbilt in double OT: Will this hurt Tigers?**\
+`Mizzou coach Eli Drinkwitz deserves scrutiny for a pair of his fourth-down decisions. But it was both teams' kickers that changed the game.`\
+https://nytimes.com/athletic/5784396/2024/09/21/missouri-vanderbilt-college-football-score-analysis/
+
 **Sonny Dykes ejected vs. SMU after consecutive unsportsmanlike penalties**\
 `TCU still drove the length of the field for a touchdown on the first drive without Dykes.`\
 https://nytimes.com/athletic/5784380/2024/09/21/tcu-coach-ejected-sonny-dykes-smu/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5784183/2024/09/21/notre-dame-riley-leonard-miami-o
 **Penn State shows off offensive possibilities against overmatched Kent State**\
 `Tyler Warren solidified his status as one of the most important playmakers on the team and as one of the best tight ends in the country.`\
 https://nytimes.com/athletic/5784146/2024/09/21/penn-state-kent-state-result/
-
-**Daniel J. Evans, Stalwart of Washington State Politics, Dies at 98**\
-`A moderate Republican, he championed education, civil rights and environmental causes as a three-term governor and as a U.S. senator.`\
-https://nytimes.com/2024/09/21/obituaries/daniel-j-evans-dead.html
-
-**At a Rally in North Carolina, Trump Avoids Topic A: Mark Robinson**\
-`The former president did not mention Mr. Robinson, the state’s embattled Republican nominee for governor, whom he once called “Martin Luther King on steroids.”`\
-https://nytimes.com/2024/09/21/us/politics/donald-trump-mark-robinson-rally.html
 

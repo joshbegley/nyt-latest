@@ -1,3 +1,11 @@
+**Georgia Voters Feel Re-energized, Even as 2020 Looms Large**\
+`Many voters in the Atlanta suburbs were newly hopeful when Vice President Kamala Harris entered the race. But conservative values are still deeply rooted in the swing state.`\
+https://nytimes.com/interactive/2024/09/21/us/elections/georgia-suburbs-voters.html
+
+**No. 7 Missouri holds on against Vanderbilt in double OT: Will this hurt Tigers?**\
+`Mizzou coach Eli Drinkwitz deserves scrutiny for a pair of his fourth-down decisions. But it was both teams' kickers that changed the game.`\
+https://nytimes.com/athletic/5784396/2024/09/21/missouri-vanderbilt-college-football-score-analysis/
+
 **Sonny Dykes ejected vs. SMU after consecutive unsportsmanlike penalties**\
 `TCU still drove the length of the field for a touchdown on the first drive without Dykes.`\
 https://nytimes.com/athletic/5784380/2024/09/21/tcu-coach-ejected-sonny-dykes-smu/
