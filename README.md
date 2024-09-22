@@ -1,3 +1,11 @@
+**How important is Bijan Robinson to the Falcons offense? Five factors**\
+`The Falcons host Chris Jones, Travis Kelce and the Chiefs on "Sunday Night Football." Will Taylor Swift be there?`\
+https://nytimes.com/athletic/5782037/2024/09/22/bijan-robinson-falcons-chiefs/
+
+**Coaching staff's leadership, hard work spurred Guardians to second division title in 3 years**\
+`Cleveland needed a sturdy infrastructure to rebound from last year's flop.`\
+https://nytimes.com/athletic/5784574/2024/09/22/guardians-coaching-leadership-al-central-title/
+
 **The Politics of Motherhood Become a Campaign-Trail Cudgel**\
 `The presidential race has exposed a fault line in American political culture over the deeply personal decision to have children.`\
 https://nytimes.com/2024/09/22/us/politics/harris-sarah-sanders-mothers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/22/us/montana-senate-tester-sheehy.html
 **For Mideast Foes, Diplomacy Takes a Back Seat to Military Force**\
 `After years of failed deals and tit-for-tat violence, neither the Israelis nor the Palestinians believe their adversaries will ever negotiate in good faith.`\
 https://nytimes.com/2024/09/22/world/middleeast/mideast-diplomacy-hezbollah-israel.html
-
-**At a Remote Scottish Pub, a Pint Worth Hiking 20 Miles**\
-`The Old Forge on the rugged peninsula of Knoydart is a community-owned meeting point for locals and visitors — at least those willing to trek across the wilderness.`\
-https://nytimes.com/2024/09/22/world/europe/britain-remote-pub-knoydart.html
-
-**In Michigan, Democrats Hope to Benefit From a Post-Biden Surge of Youth Energy**\
-`Democrats in the battleground state are counting on a sea change in the mood of young voters that could bolster their candidates in critical races that will determine who controls Congress.`\
-https://nytimes.com/2024/09/22/us/politics/in-michigan-democrats-hope-to-benefit-from-a-post-biden-surge-of-youth-energy.html
 
