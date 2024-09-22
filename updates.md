@@ -1,3 +1,11 @@
+**FA investigating after Blackburn's Beck allegedly bitten by Preston's Osmajic**\
+`The Football Association (FA) is investigating after Blackburn Rovers left-back Owen Beck accused Preston North End forward Milutin Osmajic of biting him.`\
+https://nytimes.com/athletic/5785143/2024/09/22/milutin-osmajic-owen-beck-bite/
+
+**Stewart Mandel's 12-team Playoff projections after Week 4**\
+`Despite losing to Michigan, USC is in my 12-team Playoff bracket this week — with all at-large spots going to the SEC and Big Ten.`\
+https://nytimes.com/athletic/5785160/2024/09/22/college-football-playoff-bracket-projections-week-4/
+
 **The Pulse: Michigan out-Harbaughs itself**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5782243/2024/09/22/michigan-usc-colorado-college-football-nfl-jordan-love-the-pulse/
