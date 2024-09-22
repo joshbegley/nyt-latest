@@ -1,3 +1,11 @@
+**What we learned from Arch Manning's first college start**\
+`Manning finished 15 of 29 passing for 258 yards, with two touchdowns and two interceptions.`\
+https://nytimes.com/athletic/5784533/2024/09/21/arch-manning-highlights-texas-ulm/
+
+**Quotation of the Day: Grabbing School Gear in Case of a Shooting**\
+`Quotation of the Day for Sunday, September 22, 2024.`\
+https://nytimes.com/2024/09/21/pageoneplus/quotation-of-the-day-grabbing-school-gear-in-case-of-a-shooting.html
+
 **Marxist Leads Presidential Vote as Sri Lanka Rejects the Old Order**\
 `Anura Kumara Dissanayake’s strong showing reveals voter weariness with leadership that has led to a national economic crisis and crushing hardship for many people.`\
 https://nytimes.com/2024/09/21/world/asia/sri-lanka-election-results.html

@@ -1,3 +1,11 @@
+**What we learned from Arch Manning's first college start**\
+`Manning finished 15 of 29 passing for 258 yards, with two touchdowns and two interceptions.`\
+https://nytimes.com/athletic/5784533/2024/09/21/arch-manning-highlights-texas-ulm/
+
+**Quotation of the Day: Grabbing School Gear in Case of a Shooting**\
+`Quotation of the Day for Sunday, September 22, 2024.`\
+https://nytimes.com/2024/09/21/pageoneplus/quotation-of-the-day-grabbing-school-gear-in-case-of-a-shooting.html
+
 **Marxist Leads Presidential Vote as Sri Lanka Rejects the Old Order**\
 `Anura Kumara Dissanayake’s strong showing reveals voter weariness with leadership that has led to a national economic crisis and crushing hardship for many people.`\
 https://nytimes.com/2024/09/21/world/asia/sri-lanka-election-results.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5784416/2024/09/21/mets-francisco-lindor-kodai-seng
 **Buildings in Suburban Beirut Badly Damaged by Israeli Strike**\
 `Crews in southern Lebanon sifted through rubble a day after an Israeli attack that targeted a meeting of Hezbollah commanders. The airstrike killed at least 37 people, Lebanon’s health ministry said.`\
 https://nytimes.com/video/world/middleeast/100000009711905/israel-hezbollah-beirut-lebanon.html
-
-**Corrections: Sept. 22, 2024**\
-`Corrections that appeared in print on Sunday, Sept. 22, Year.`\
-https://nytimes.com/2024/09/21/pageoneplus/corrections-sept-22-2024.html
-
-**Georgia Voters Feel Re-energized, Even as 2020 Looms Large**\
-`Many voters in the Atlanta suburbs were newly hopeful when Vice President Kamala Harris entered the race. But conservative values are still deeply rooted in the swing state.`\
-https://nytimes.com/interactive/2024/09/21/us/elections/georgia-suburbs-voters.html
 
