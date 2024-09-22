@@ -1,3 +1,7 @@
+**Panthers at Raiders odds, expert picks, how to watch: How do Panthers look with Dalton?**\
+`The Carolina Panthers head to Las Vegas with Bryce Young not starting. Andy Dalton is starting, but the Raiders are still a solid favorite.`\
+https://nytimes.com/athletic/5780571/2024/09/22/panthers-raiders-odds-expert-picks-how-to-watch-predictions-betting/
+
 **4 Killed in Shooting Near University of Alabama’s Birmingham Campus**\
 `Multiple gunmen shot into a group of people in a popular entertainment district, the local police said. The authorities are still looking for the shooters.`\
 https://nytimes.com/2024/09/22/us/shooting-birmingham-alabama.html
