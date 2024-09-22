@@ -1,3 +1,7 @@
+**Canucks training camp scrimmage: 3 players who helped themselves and 3 who didn't**\
+`What we saw at Sunday's intrasquad scrimmage, including a look at the Canucks' new power-play mentality.`\
+https://nytimes.com/athletic/5785856/2024/09/22/canucks-training-camp-players-analysis/
+
 **Position of Intense Scrutiny**\
 `Freddie Cheng experiments with the initial phase of constructing.`\
 https://nytimes.com/2024/09/22/crosswords/daily-puzzle-2024-09-23.html
