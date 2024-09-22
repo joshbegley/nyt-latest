@@ -1,3 +1,11 @@
+**How important is Bijan Robinson to the Falcons offense? Five factors**\
+`The Falcons host Chris Jones, Travis Kelce and the Chiefs on "Sunday Night Football." Will Taylor Swift be there?`\
+https://nytimes.com/athletic/5782037/2024/09/22/bijan-robinson-falcons-chiefs/
+
+**Coaching staff's leadership, hard work spurred Guardians to second division title in 3 years**\
+`Cleveland needed a sturdy infrastructure to rebound from last year's flop.`\
+https://nytimes.com/athletic/5784574/2024/09/22/guardians-coaching-leadership-al-central-title/
+
 **The Politics of Motherhood Become a Campaign-Trail Cudgel**\
 `The presidential race has exposed a fault line in American political culture over the deeply personal decision to have children.`\
 https://nytimes.com/2024/09/22/us/politics/harris-sarah-sanders-mothers.html
