@@ -1,3 +1,7 @@
+**Giants vs. Browns odds, picks: Struggling offenses signal low-scoring affair**\
+`Daniel Jones and the Giants head to Cleveland in a game with two struggling offenses.`\
+https://nytimes.com/athletic/5779564/2024/09/21/giants-browns-odds-expert-picks-how-to-watch-predictions-betting/
+
 **What we learned from Arch Manning's first college start**\
 `Manning finished 15 of 29 passing for 258 yards, with two touchdowns and two interceptions.`\
 https://nytimes.com/athletic/5784533/2024/09/21/arch-manning-highlights-texas-ulm/
