@@ -1,3 +1,11 @@
+**How Sean Payton's coin-toss decision inspired Broncos' offense to beat the Buccaneers**\
+`The Broncos struck quickly and then slogged the game away, demonstrating a resilience that could serve as an important building block.`\
+https://nytimes.com/athletic/5786086/2024/09/22/broncos-sean-payton-offense-bucs-coin-toss/
+
+**Caitlin Clark's first WNBA playoff game was a blowout loss ... but a win for ABC viewers**\
+`Clark's first postseason game carried importance for broadcast.`\
+https://nytimes.com/athletic/5785904/2024/09/22/caitlin-clark-wnba-playoffs-abc-fever-sun/
+
 **Cat Missing in Yellowstone Returns Home to California After an 800-Mile Trek**\
 `The owners of Rayne Beau, the 2-year old Siamese cat, have no idea how their cat made it back, but call his return a “miracle.”`\
 https://nytimes.com/2024/09/22/us/cat-yellowstone-california.html
