@@ -1,3 +1,7 @@
+**Residents in northern Israel recover after Sunday’s attack and fear more strikes.**\
+`By Gabby Sobelman and Alissa J. Rubin`\
+https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/residents-in-northern-israel-recover-after-sundays-attack-and-fear-more-strikes
+
 **Jimmy Johnson slams Panthers owner David Tepper: ‘That’s the problem’**\
 `The Panthers have the league's worst record (31-70) since start of 2018 season, when Tepper bought the team.`\
 https://nytimes.com/athletic/5785569/2024/09/22/david-tepper-panthers-jimmy-johnson/
