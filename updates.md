@@ -1,4 +1,8 @@
 **Greenberg: Feeling blue? So are the Bears after wasting a chance for a win against Colts**\
+`On another wasted Sunday, Chicago gave its fans a lot of opportunities to work in some profanity during a 21-16 loss in Indianapolis.`\
+https://nytimes.com/athletic/5786264/2024/09/22/bears-colts-caleb-williams/
+
+**Greenberg: Feeling blue? So are the Bears after wasting a chance for a win against Colts**\
 `On another wasted Sunday, the Bears gave their fans a lot of opportunities to work in some profanity during a 21-16 loss to the Colts.`\
 https://nytimes.com/athletic/5786264/2024/09/22/bears-colts-caleb-williams/
 
