@@ -1,3 +1,7 @@
+**Yankees' magic number for AL East title falls to 3, Aaron Boone gets 600th win**\
+`The Yankees could capture the American League East crown as early as Tuesday.`\
+https://nytimes.com/athletic/5784654/2024/09/22/yankees-magic-number-playoffs-aaron-boone-600-wins/
+
 **Here are the latest developments.**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/nyregion/nypd-thomas-donlon-search.html
 **Colorado forces OT with Hail Mary, beats Baylor in dramatic finish**\
 `Colorado two-way star Travis Hunter forced a fumble at the goal line for a touchback to beat the Bears in overtime, 38-31.`\
 https://nytimes.com/athletic/5784621/2024/09/22/colorado-baylor-college-football-score-analysis/
-
-**Eagles vs. Saints odds, picks, how to watch: Can Saints continue their march?**\
-`The Saints shattered expectations in Weeks 1 and 2. Can they keep it up against Philly at home?`\
-https://nytimes.com/athletic/5779836/2024/09/22/eagles-saints-odds-expert-picks-how-to-watch-predictions-betting/
 
