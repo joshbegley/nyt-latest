@@ -1,3 +1,7 @@
+**Tennessee looks like a contender in wrecking Oklahoma's SEC debut: What it means for both teams**\
+`Tennessee has a team in the Playoff race — that's better than redemption for Josh Heupel. And the Sooners now have a decision to make at QB.`\
+https://nytimes.com/athletic/5784488/2024/09/21/tennessee-oklahoma-football-sec/
+
 **Giants vs. Browns odds, picks: Struggling offenses signal low-scoring affair**\
 `Daniel Jones and the Giants head to Cleveland in a game with two struggling offenses.`\
 https://nytimes.com/athletic/5779564/2024/09/21/giants-browns-odds-expert-picks-how-to-watch-predictions-betting/
