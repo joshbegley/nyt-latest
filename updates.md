@@ -1,3 +1,7 @@
+**Israel’s Military Closes Al Jazeera’s Office in the West Bank**\
+`The Israeli authorities have been putting pressure on the local operations of the network, saying its coverage threatens national security.`\
+https://nytimes.com/2024/09/22/world/middleeast/al-jazeera-west-bank-raid.html
+
 **Panthers at Raiders odds, expert picks, how to watch: How do Panthers look with Dalton?**\
 `The Carolina Panthers head to Las Vegas with Bryce Young not starting. Andy Dalton is starting, but the Raiders are still a solid favorite.`\
 https://nytimes.com/athletic/5780571/2024/09/22/panthers-raiders-odds-expert-picks-how-to-watch-predictions-betting/
