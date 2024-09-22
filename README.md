@@ -3,7 +3,7 @@
 https://nytimes.com/2024/09/22/obituaries/kathryn-crosby-dead.html
 
 **Barkley powers Eagles to sluggish 15-12 win over Saints: Takeaways**\
-`Barkley racked up 147 yards and two touchdowns on 17 carries. `\
+`Barkley racked up 147 yards and two touchdowns on 17 carries to serve as the Eagles' primary offensive weapon.`\
 https://nytimes.com/athletic/5785751/2024/09/22/eagles-saints-takeaways-result/
 
 **As race heats up, Mets won't get ace back for regular season, but hold out hope for playoffs**\
