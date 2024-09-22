@@ -1,3 +1,19 @@
+**A Note From Irving Berlin, the ‘Nation’s Songwriter’**\
+`The lyricist and composer wrote thousands of compositions — and one stern letter to The New York Times.`\
+https://nytimes.com/2024/09/22/insider/a-note-from-irving-berlin-the-nations-songwriter.html
+
+**Venezuelan Gang’s Path to U.S. Stokes Fear, Crime and Border Politics**\
+`Tren de Aragua’s emergence in New York City and elsewhere has led law enforcement officials to strategize how to stem the gang’s growth.`\
+https://nytimes.com/2024/09/22/nyregion/venezuelan-gang-aragua-crimes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/22/crosswords/spelling-bee-forum.html
+
+**‘I Told Myself Not to Judge a Book by Its Cover and Sat Down Next to Him’**\
+`Pleasantly surprised on the subway, an invisible helper appears and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/09/22/nyregion/metropolitan-diary.html
+
 **BYU crushes No. 13 Kansas State behind epic 90-yard punt return touchdown**\
 `The Cougars, who went 5-7 last year in their Big 12 debut season, will travel to Baylor looking for their first 5-0 start since 2020.`\
 https://nytimes.com/athletic/5784665/2024/09/22/byu-kansas-state-punt-return-touchdown/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5780153/2024/09/22/broncos-buccaneers-odds-expert-p
 **Chargers vs. Steelers odds, picks: Harbaugh against Steelers' crushing defense**\
 `The Chargers and Steelers have allowed the fewest points of any teams so far. They clash on Sunday. `\
 https://nytimes.com/athletic/5779854/2024/09/22/chargers-steelers-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Chelsea and an unfamiliar feeling of... sheer positivity**\
-`A comfortable win. Owners showing a united front. The Athletic's Simon Johnson in high spirits - and in need of a lie down...`\
-https://nytimes.com/athletic/5783603/2024/09/22/chelsea-west-ham-maresca-boehly-eghbali-positivity/
-
-**Julen Lopetegui is right - he and West Ham need to do better. This was another bleak display**\
-`The new West Ham head coach is failing to implement a clear playing style on his team and they were dominated by visitors Chelsea`\
-https://nytimes.com/athletic/5783383/2024/09/22/west-ham-chelsea-lopetegui-reaction/
-
-**Arsenal, ambition and whether they should react to Rodri questioning their mentality**\
-`If Arsenal step up and take the game to City at the Etihad today - and win - it would send a big message to Rodri and the reigning champions`\
-https://nytimes.com/athletic/5773607/2024/09/22/arsenal-man-city-rodri-comments/
-
-**Cardiff 0 Leeds 2: Rampaging Ramazani, Farke needs a Plan B, Piroe proves his point**\
-`Leeds cruised to victory over woeful Cardiff, who played the majority of the game with 10 men - but there were grumbles from the away end`\
-https://nytimes.com/athletic/5783516/2024/09/22/cardiff-0-leeds-2-ramazani-piroe-farke/
 
