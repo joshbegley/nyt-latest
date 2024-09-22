@@ -1,3 +1,7 @@
+**NASCAR Bristol takeaways: Tame Round 1 leaves top playoff drivers still standing**\
+`Thoughts on a fairly status-quo first round, Martin Truex Jr.'s elimination and more from the end of the NASCAR Cup playoffs' first round.`\
+https://nytimes.com/athletic/5784677/2024/09/22/nascar-bristol-night-race-takeaways-playoffs-martin-truex-jr/
+
 **Explaining three red cards in a minute in Brighton and Forest's 2-2 draw**\
 `Referee Rob Jones took his time before deciding to send Gibbs-White off, with Fabian Hurzeler and Nuno Espirito Santo also shown red cards`\
 https://nytimes.com/athletic/5785302/2024/09/22/gibbs-white-red-rob-jones-anthony-taylor-why/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785143/2024/09/22/milutin-osmajic-owen-beck-bite/
 **Stewart Mandel's 12-team Playoff projections after Week 4**\
 `Despite losing to Michigan, USC is in my 12-team Playoff bracket this week — with all at-large spots going to the SEC and Big Ten.`\
 https://nytimes.com/athletic/5785160/2024/09/22/college-football-playoff-bracket-projections-week-4/
-
-**The Pulse: Michigan out-Harbaughs itself**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/5782243/2024/09/22/michigan-usc-colorado-college-football-nfl-jordan-love-the-pulse/
 
