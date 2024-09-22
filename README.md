@@ -1,3 +1,7 @@
+**Corrections: Sept. 22, 2024**\
+`Corrections that appeared in print on Sunday, Sept. 22, Year.`\
+https://nytimes.com/2024/09/21/pageoneplus/corrections-sept-22-2024.html
+
 **Georgia Voters Feel Re-energized, Even as 2020 Looms Large**\
 `Many voters in the Atlanta suburbs were newly hopeful when Vice President Kamala Harris entered the race. But conservative values are still deeply rooted in the swing state.`\
 https://nytimes.com/interactive/2024/09/21/us/elections/georgia-suburbs-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/us/politics/trump-base-north-carolina-mark-robins
 **Can Riley Leonard be a true dual-threat? Notre Dame takeaways after Miami (OH)**\
 `Notre Dame pulled away to beat the RedHawks 28-3, but there were plenty of issues to clean up — including with Leonard's passing.`\
 https://nytimes.com/athletic/5784183/2024/09/21/notre-dame-riley-leonard-miami-ohio-score/
-
-**Penn State shows off offensive possibilities against overmatched Kent State**\
-`Tyler Warren solidified his status as one of the most important playmakers on the team and as one of the best tight ends in the country.`\
-https://nytimes.com/athletic/5784146/2024/09/21/penn-state-kent-state-result/
 
