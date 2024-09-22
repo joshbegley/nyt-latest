@@ -1,3 +1,7 @@
+**Sam Darnold's 4 TDs power Vikings to 34-7 win vs. Texans: Takeaways**\
+`Minnesota's defense held Houston to just 4-of-14 on third down and intercepted Texans quarterback CJ Stroud twice.`\
+https://nytimes.com/athletic/5785666/2024/09/22/texans-vikings-takeaways-result/
+
 **Former Hugh Freeze QB Bo Wallace: 'maybe no one wants to play' for coach**\
 `Bo Wallace blasted his former coach Hugh Freeze for not taking responsibility after Auburn lost to Arkansas.`\
 https://nytimes.com/athletic/5785795/2024/09/22/auburn-football-hugh-freeze-bo-wallace/
