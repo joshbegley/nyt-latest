@@ -1,3 +1,19 @@
+**A Note From Irving Berlin, the ‘Nation’s Songwriter’**\
+`The lyricist and composer wrote thousands of compositions — and one stern letter to The New York Times.`\
+https://nytimes.com/2024/09/22/insider/a-note-from-irving-berlin-the-nations-songwriter.html
+
+**Venezuelan Gang’s Path to U.S. Stokes Fear, Crime and Border Politics**\
+`Tren de Aragua’s emergence in New York City and elsewhere has led law enforcement officials to strategize how to stem the gang’s growth.`\
+https://nytimes.com/2024/09/22/nyregion/venezuelan-gang-aragua-crimes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/22/crosswords/spelling-bee-forum.html
+
+**‘I Told Myself Not to Judge a Book by Its Cover and Sat Down Next to Him’**\
+`Pleasantly surprised on the subway, an invisible helper appears and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/09/22/nyregion/metropolitan-diary.html
+
 **BYU crushes No. 13 Kansas State behind epic 90-yard punt return touchdown**\
 `The Cougars, who went 5-7 last year in their Big 12 debut season, will travel to Baylor looking for their first 5-0 start since 2020.`\
 https://nytimes.com/athletic/5784665/2024/09/22/byu-kansas-state-punt-return-touchdown/
