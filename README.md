@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`Vice Presid`\
+https://nytimes.com/live/2024/09/22/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Says It’s ‘Too Late’ for Another Debate**\
+`Donald Trump resisted pressure from Kamala Harris for a second debate as he rallied on Saturday in North Carolina. He also did not address a scandal surrounding the state’s G.O.P. nominee for governor.`\
+https://nytimes.com/live/2024/09/22/us/trump-harris-election
+
 **An Escape from the Front Line in Ukraine**\
 `An excerpt from one of the most ambitious stories in The Times Magazine’s history.`\
 https://nytimes.com/2024/09/22/briefing/ukraine-russia-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5784826/2024/09/22/james-maddison-tottenham-goal/
 **Congo Releases More Than 700 Inmates After a Deadly Stampede**\
 `At least 129 people died when inmates tried to escape from Makala Prison, where conditions are abysmal and overcrowding is a major problem.`\
 https://nytimes.com/2024/09/22/world/africa/congo-prison-release.html
-
-**Top NFL Week 3 storylines: Will Vikings or Texans go 3-0? Can Andy Dalton help Panthers?**\
-`Nine teams begin Week 3 undefeated, and nine are 0-2. The latter includes Carolina, which benched Bryce Young this week for Dalton.`\
-https://nytimes.com/athletic/5780306/2024/09/22/nfl-week-3-storylines-vikings-texans-panthers/
-
-**Explosion at an Iranian Mine Kills Dozens, State Media Says**\
-`A methane leak set off the explosion, the country’s official media said, and a rescue effort was underway for those believed to be trapped in the mine.`\
-https://nytimes.com/2024/09/22/world/middleeast/iran-explosion-coal-mine-methane.html
 
