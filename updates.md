@@ -1,3 +1,7 @@
+**For Martin Truex Jr., 0.9 mph ends dream of a walk-off Cup championship**\
+`A speeding penalty on pit road cost Martin Truex Jr. crucial track position Saturday at Bristol, ultimately sinking his playoff hopes.`\
+https://nytimes.com/athletic/5784720/2024/09/22/martin-truex-jr-bristol-speeding-penalty-nascar/
+
 **A’ja Wilson named unanimous WNBA MVP**\
 `Wilson is only the second player ever to win the award unanimously and the first since the Houston Comets’ Cynthia Cooper-Dyke in 1997.`\
 https://nytimes.com/athletic/5785027/2024/09/22/aja-wilson-unanimous-mvp-wnba-aces/
