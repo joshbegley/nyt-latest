@@ -1,3 +1,7 @@
+**With key series looming, Astros’ top hitter leaves game due to apparent leg injury**\
+`HOUSTON — Houston Astros star Yordan Alvarez exited Sunday’s game against the Los Angeles Angels after an awkward slide into second base during a second-inning double.`\
+https://nytimes.com/athletic/5785765/2024/09/22/yordan-alvarez-astros-injury/
+
 **Arteta expects '100 games' with red cards after Trossard's sending off**\
 `Arsenal manager Mikel Arteta says he expects “100 Premier League games” this season to see players sent off for delaying restarts after Leandro Trossard received a second yellow card for the offence during Sunday’s 2-2 draw with Manchester City.`\
 https://nytimes.com/athletic/5785742/2024/09/22/leandro-trossard-red-arteta-arsenal-city/

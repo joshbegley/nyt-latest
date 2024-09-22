@@ -1,3 +1,7 @@
+**With key series looming, Astros’ top hitter leaves game due to apparent leg injury**\
+`HOUSTON — Houston Astros star Yordan Alvarez exited Sunday’s game against the Los Angeles Angels after an awkward slide into second base during a second-inning double.`\
+https://nytimes.com/athletic/5785765/2024/09/22/yordan-alvarez-astros-injury/
+
 **Arteta expects '100 games' with red cards after Trossard's sending off**\
 `Arsenal manager Mikel Arteta says he expects “100 Premier League games” this season to see players sent off for delaying restarts after Leandro Trossard received a second yellow card for the offence during Sunday’s 2-2 draw with Manchester City.`\
 https://nytimes.com/athletic/5785742/2024/09/22/leandro-trossard-red-arteta-arsenal-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/us/politics/tongsun-park-dead.html
 **AP Top 25: Texas No. 1 with top-4 Georgia-Bama game on deck**\
 `Texas received 44 of 62 first-place votes in this week's AP Top 25 college football poll. No. 2 Georgia at No. 4 Alabama is next.`\
 https://nytimes.com/athletic/5785489/2024/09/22/ap-top-25-college-football-rankings/
-
-**Controversies Erupt as Trump and G.O.P. Make Critical Push to Voters**\
-`A Republican who reportedly called himself a “Black Nazi,” a false story about migrants eating cats and dogs, and a feud with Taylor Swift bring back a sense of chaos.`\
-https://nytimes.com/2024/09/22/us/politics/controversies-erupt-as-trump-and-gop-make-critical-push-to-voters.html
 
