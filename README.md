@@ -26,7 +26,7 @@ https://nytimes.com/2024/09/22/arts/design/robert-venturi-and-denise-scott-brown
 `Ricciardo’s body language post-race and emotion in his voice made it clear. This really may be it for him in F1. `\
 https://nytimes.com/athletic/5785117/2024/09/22/daniel-ricciardo-f1-future-singapore-gp-red-bull/
 
-**In One Hezbollah-Dominated Neighborhood, a Mix of Defiance and Unease**\
+**In a Hezbollah-Dominated Area of Beirut, a Mix of Defiance and Unease**\
 `Many residents of Dahiya were grappling with uncertainty over what comes next.`\
 https://nytimes.com/2024/09/22/world/middleeast/beirut-funeral-ibrahim-aqeel-hezbollah.html
 
