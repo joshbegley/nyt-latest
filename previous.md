@@ -1,40 +1,40 @@
-**Israel’s Military Closes Al Jazeera’s Office in the West Bank**\
-`The Israeli authorities have been putting pressure on the local operations of the network, saying its coverage threatens national security.`\
-https://nytimes.com/2024/09/22/world/middleeast/al-jazeera-west-bank-raid.html
+**The Politics of Motherhood Become a Campaign-Trail Cudgel**\
+`The presidential race has exposed a fault line in American political culture over the deeply personal decision to have children.`\
+https://nytimes.com/2024/09/22/us/politics/harris-sarah-sanders-mothers.html
 
-**Panthers at Raiders odds, expert picks, how to watch: How do Panthers look with Dalton?**\
-`The Carolina Panthers head to Las Vegas with Bryce Young not starting. Andy Dalton is starting, but the Raiders are still a solid favorite.`\
-https://nytimes.com/athletic/5780571/2024/09/22/panthers-raiders-odds-expert-picks-how-to-watch-predictions-betting/
+**A Republican and a Democrat Sit Across From Each Other. There’s No Punchline.**\
+`One Small Step, an initiative that facilitates conversations between people with opposing views, is trying to tackle political polarization.`\
+https://nytimes.com/2024/09/22/style/storycorps-partisan-divide-election.html
 
-**4 Killed in Shooting Near University of Alabama’s Birmingham Campus**\
-`Multiple gunmen shot into a group of people in a popular entertainment district, the local police said. The authorities are still looking for the shooters.`\
-https://nytimes.com/2024/09/22/us/shooting-birmingham-alabama.html
+**Kelsey Grammer Analyzes 40 Years of Frasier: ‘I Have Nothing to Regret’**\
+`The actor has been playing the snobby psychiatrist off and on since 1984 and has no plans to stop. He thinks the current “Frasier” reboot “could last another decade.”`\
+https://nytimes.com/2024/09/22/arts/television/kelsey-grammer-frasier.html
 
-**A Note From Irving Berlin, the ‘Nation’s Songwriter’**\
-`The lyricist and composer wrote thousands of compositions — and one stern letter to The New York Times.`\
-https://nytimes.com/2024/09/22/insider/a-note-from-irving-berlin-the-nations-songwriter.html
+**Drugs, Sex, Baby Oil: The ‘Freak Offs’ at the Core of Sean Combs’s Troubles**\
+`Prosecutors say the sexual encounters in hotel rooms were coercive and abusive and are the heart of their sex trafficking case. The music mogul’s lawyers call them consensual.`\
+https://nytimes.com/2024/09/22/arts/drugs-sex-baby-oil-the-freak-offs-at-the-core-of-sean-combss-troubles.html
 
-**Venezuelan Gang’s Path to U.S. Stokes Fear, Crime and Border Politics**\
-`Tren de Aragua’s emergence in New York City and elsewhere has led law enforcement officials to strategize how to stem the gang’s growth.`\
-https://nytimes.com/2024/09/22/nyregion/venezuelan-gang-aragua-crimes.html
+**U.N. Meets Amid a Backdrop of Growing Chaos and Violence**\
+`Beginning Tuesday, world leaders will discuss three wars, climate change, rising sea levels and proposals to expand representation on the Security Council.`\
+https://nytimes.com/2024/09/22/world/middleeast/un-meeting-war-climate.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/22/crosswords/spelling-bee-forum.html
+**The Surprising Reality of Political Violence in America**\
+`After two apparent assassination attempts against Donald J. Trump, it’s easy to think our politics are becoming more violent. The research is not so clear.`\
+https://nytimes.com/2024/09/22/us/politics/political-violence.html
 
-**‘I Told Myself Not to Judge a Book by Its Cover and Sat Down Next to Him’**\
-`Pleasantly surprised on the subway, an invisible helper appears and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/09/22/nyregion/metropolitan-diary.html
+**A Changed Montana May Decide Control of the U.S. Senate**\
+`Republicans are trying to seize control of the U.S. Senate by ousting Jon Tester, the last Democrat holding statewide office in a state that not long ago had many of them.`\
+https://nytimes.com/2024/09/22/us/montana-senate-tester-sheehy.html
 
-**BYU crushes No. 13 Kansas State behind epic 90-yard punt return touchdown**\
-`The Cougars, who went 5-7 last year in their Big 12 debut season, will travel to Baylor looking for their first 5-0 start since 2020.`\
-https://nytimes.com/athletic/5784665/2024/09/22/byu-kansas-state-punt-return-touchdown/
+**For Mideast Foes, Diplomacy Takes a Back Seat to Military Force**\
+`After years of failed deals and tit-for-tat violence, neither the Israelis nor the Palestinians believe their adversaries will ever negotiate in good faith.`\
+https://nytimes.com/2024/09/22/world/middleeast/mideast-diplomacy-hezbollah-israel.html
 
-**Heavy Rain in Japan Causes Deadly Flooding and Landslides**\
-`One person is dead and seven others are missing in Noto Peninsula, Japanese news media reported. The region is still recovering from a catastrophic earthquake.`\
-https://nytimes.com/2024/09/22/world/asia/japan-rain-flooding-landslide.html
+**At a Remote Scottish Pub, a Pint Worth Hiking 20 Miles**\
+`The Old Forge on the rugged peninsula of Knoydart is a community-owned meeting point for locals and visitors — at least those willing to trek across the wilderness.`\
+https://nytimes.com/2024/09/22/world/europe/britain-remote-pub-knoydart.html
 
-**Yankees' magic number for AL East title falls to 3, Aaron Boone gets 600th win**\
-`The Yankees could capture the American League East crown as early as Tuesday.`\
-https://nytimes.com/athletic/5784654/2024/09/22/yankees-magic-number-playoffs-aaron-boone-600-wins/
+**In Michigan, Democrats Hope to Benefit From a Post-Biden Surge of Youth Energy**\
+`Democrats in the battleground state are counting on a sea change in the mood of young voters that could bolster their candidates in critical races that will determine who controls Congress.`\
+https://nytimes.com/2024/09/22/us/politics/in-michigan-democrats-hope-to-benefit-from-a-post-biden-surge-of-youth-energy.html
 
