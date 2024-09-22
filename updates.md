@@ -1,3 +1,7 @@
+**Explaining three red cards in a minute in Brighton and Forest's 2-2 draw**\
+`Referee Rob Jones took his time before deciding to send Gibbs-White off, with Fabian Hurzeler and Nuno Espirito Santo also shown red cards`\
+https://nytimes.com/athletic/5785302/2024/09/22/gibbs-white-red-rob-jones-anthony-taylor-why/
+
 **Alexander-Arnold discusses Liverpool future - what he said and what he meant**\
 `Alexander-Arnold's current Liverpool contract expires in the summer - he spoke about the situation after Saturday's game`\
 https://nytimes.com/athletic/5783835/2024/09/22/liverpool-trent-alexander-arnold-future/

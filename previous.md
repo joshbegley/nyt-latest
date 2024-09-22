@@ -1,3 +1,7 @@
+**Explaining three red cards in a minute in Brighton and Forest's 2-2 draw**\
+`Referee Rob Jones took his time before deciding to send Gibbs-White off, with Fabian Hurzeler and Nuno Espirito Santo also shown red cards`\
+https://nytimes.com/athletic/5785302/2024/09/22/gibbs-white-red-rob-jones-anthony-taylor-why/
+
 **Alexander-Arnold discusses Liverpool future - what he said and what he meant**\
 `Alexander-Arnold's current Liverpool contract expires in the summer - he spoke about the situation after Saturday's game`\
 https://nytimes.com/athletic/5783835/2024/09/22/liverpool-trent-alexander-arnold-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785160/2024/09/22/college-football-playoff-bracket
 **The Pulse: Michigan out-Harbaughs itself**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5782243/2024/09/22/michigan-usc-colorado-college-football-nfl-jordan-love-the-pulse/
-
-**SEC vibes rankings: Auburn plummets to the bottom as QB (and coaching) woes continue**\
-`Texas, Tennessee and Ole Miss keep rolling. Florida showing signs of life. Missouri flirting with disaster. `\
-https://nytimes.com/athletic/5784869/2024/09/22/sec-football-week-3-auburn-hugh-freeze/
 
