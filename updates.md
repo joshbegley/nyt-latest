@@ -1,3 +1,11 @@
+**Justin Fields leads Steelers to 20-10 win vs. Chargers: Key takeaways**\
+`Pittsburgh quarterback Justin Fields' performance was the exclamation point in a dominant second half by the Steelers.`\
+https://nytimes.com/athletic/5785461/2024/09/22/chargers-steelers-score-takeaways/
+
+**Criticizing Oprah, Trump Falsely Claims He Appeared on Her Show’s Final Week**\
+`As he took aim at Oprah Winfrey’s interview of Vice President Kamala Harris, former President Donald J. Trump repeated a false claim that he had appeared on her show in its last week.`\
+https://nytimes.com/2024/09/22/us/politics/criticizing-oprah-trump-falsely-claims-he-appeared-on-her-final-show.html
+
 **Astros' Yordan Alvarez leaves game due to apparent leg injury**\
 `HOUSTON — Houston Astros star Yordan Alvarez exited Sunday’s game against the Los Angeles Angels after an awkward slide into second base during a second-inning double.`\
 https://nytimes.com/athletic/5785765/2024/09/22/yordan-alvarez-astros-injury/
