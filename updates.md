@@ -1,3 +1,11 @@
+**Top Aides Resign From Embattled North Carolina Candidate’s Campaign**\
+`Most of the senior staff members on Lt. Gov. Mark Robinson’s campaign for North Carolina governor resigned on Sunday after reports that he had made a series of disturbing online comments.`\
+https://nytimes.com/2024/09/22/us/politics/mark-robinson-staff-resigns.html
+
+**With 120 losses, White Sox join ’62 Mets for most defeats in modern MLB history**\
+`White Sox just one loss away from being the sole owners of an infamous record`\
+https://nytimes.com/athletic/5785600/2024/09/22/white-sox-most-losses-mlb-history-record/
+
 **Dolphins QB Skylar Thompson ruled out with chest injury**\
 `Thompson went 13-of-19 passing for 107 yards before exiting Sunday's game. `\
 https://nytimes.com/athletic/5786252/2024/09/22/dolphins-skylar-thompson-chest-injury/
