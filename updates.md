@@ -1,3 +1,7 @@
+**What we've learned about Cam Ward and Miami during its 4-0 start**\
+`Miami ran away with a 50-15 win at USF on Saturday. What does the 4-0 start mean for Mario Cristobal and the Hurricanes?`\
+https://nytimes.com/athletic/5784646/2024/09/22/miami-hurricanes-usf-cam-ward/
+
 **49ers at Rams odds, expert picks, how to watch: Winless LA is a big home underdog**\
 `The 1-1 49ers travel south in California to take on the 0-2 Rams on Sunday. The 49ers are touchdown-favorites against the shorthanded Rams.`\
 https://nytimes.com/athletic/5780265/2024/09/22/49ers-rams-odds-expert-picks-how-to-watch-predictions-betting/
