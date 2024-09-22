@@ -1,3 +1,7 @@
+**‘He Saved Many Lives’: Small Kentucky Community Mourns Slain Judge**\
+`The fatal shooting of the judge has rocked the town of Whitesburg. On Sunday, friends, family and community members gathered to remember the victim.`\
+https://nytimes.com/2024/09/22/us/kentucky-judge-shooting-memorial.html
+
 **How Sean Payton's coin-toss decision inspired Broncos' offense to beat the Buccaneers**\
 `The Broncos struck quickly and then slogged the game away, demonstrating a resilience that could serve as an important building block.`\
 https://nytimes.com/athletic/5786086/2024/09/22/broncos-sean-payton-offense-bucs-coin-toss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786094/2024/09/22/ap-top-25-poll-rankings-tennesse
 **Lions' Sam LaPorta exits vs. Cardinals with calf injury**\
 `He was on the field after being carted to the locker room, but immediately limped to the sideline after attempting to return.`\
 https://nytimes.com/athletic/5786196/2024/09/22/sam-laporta-calf-injury-lions-cardinals/
-
-**Canucks training camp scrimmage: 3 players who helped themselves and 3 who didn't**\
-`What we saw at Sunday's intrasquad scrimmage, including a look at the Canucks' new power-play mentality.`\
-https://nytimes.com/athletic/5785856/2024/09/22/canucks-training-camp-players-analysis/
 

@@ -1,3 +1,7 @@
+**‘He Saved Many Lives’: Small Kentucky Community Mourns Slain Judge**\
+`The fatal shooting of the judge has rocked the town of Whitesburg. On Sunday, friends, family and community members gathered to remember the victim.`\
+https://nytimes.com/2024/09/22/us/kentucky-judge-shooting-memorial.html
+
 **How Sean Payton's coin-toss decision inspired Broncos' offense to beat the Buccaneers**\
 `The Broncos struck quickly and then slogged the game away, demonstrating a resilience that could serve as an important building block.`\
 https://nytimes.com/athletic/5786086/2024/09/22/broncos-sean-payton-offense-bucs-coin-toss/
