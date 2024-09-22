@@ -1,3 +1,11 @@
+**Texans at Vikings odds, picks: Darnold vs. Stroud in battle of undefeateds**\
+`Only one can remain undefeated as the Vikings host the Texans on Sunday in a matchup of 2-0 teams. `\
+https://nytimes.com/athletic/5779729/2024/09/22/texans-vikings-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Payet, Bolasie and Depay — why are so many random European players heading to Brazil?**\
+`Depay, Braithwaite and Newcastle's Jamal Lewis have joined Payet and Bolasie in Brazil. And Balotelli and Ramos have been linked too...`\
+https://nytimes.com/athletic/5779640/2024/09/22/brazil-signings-payet-bolasie-depay-lewis/
+
 **A French Fair as Workers’ Paradise, Feting Cuisine, Music and Communism**\
 `The Fête de l’Humanité, a blend of Burning Man, Woodstock and a political convention, attracts the masses with bands, lectures and food, but here K.F.C. is C.F.K.: Communist Fried Kitchen.`\
 https://nytimes.com/2024/09/22/world/europe/france-humanity-festival-communism.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5784488/2024/09/21/tennessee-oklahoma-football-sec/
 **Giants vs. Browns odds, picks: Struggling offenses signal low-scoring affair**\
 `Daniel Jones and the Giants head to Cleveland in a game with two struggling offenses.`\
 https://nytimes.com/athletic/5779564/2024/09/21/giants-browns-odds-expert-picks-how-to-watch-predictions-betting/
-
-**What we learned from Arch Manning's first college start**\
-`Manning finished 15 of 29 passing for 258 yards, with two touchdowns and two interceptions.`\
-https://nytimes.com/athletic/5784533/2024/09/21/arch-manning-highlights-texas-ulm/
-
-**Quotation of the Day: Grabbing School Gear in Case of a Shooting**\
-`Quotation of the Day for Sunday, September 22, 2024.`\
-https://nytimes.com/2024/09/21/pageoneplus/quotation-of-the-day-grabbing-school-gear-in-case-of-a-shooting.html
 
