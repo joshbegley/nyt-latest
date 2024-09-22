@@ -1,3 +1,7 @@
+**4 Killed in Shooting Near University of Alabama’s Birmingham Campus**\
+`Multiple gunmen shot into a group of people in a popular entertainment district, the local police said. The authorities are still looking for the shooters.`\
+https://nytimes.com/2024/09/22/us/shooting-birmingham-alabama.html
+
 **Heavy Rain in Japan Causes Deadly Flooding and Landslides**\
 `One person is dead and seven others are missing in Noto Peninsula, Japanese news media reported. The region is still recovering from a catastrophic earthquake.`\
 https://nytimes.com/2024/09/22/world/asia/japan-rain-flooding-landslide.html

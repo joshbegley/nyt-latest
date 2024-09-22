@@ -1,3 +1,7 @@
+**4 Killed in Shooting Near University of Alabama’s Birmingham Campus**\
+`Multiple gunmen shot into a group of people in a popular entertainment district, the local police said. The authorities are still looking for the shooters.`\
+https://nytimes.com/2024/09/22/us/shooting-birmingham-alabama.html
+
 **A Note From Irving Berlin, the ‘Nation’s Songwriter’**\
 `The lyricist and composer wrote thousands of compositions — and one stern letter to The New York Times.`\
 https://nytimes.com/2024/09/22/insider/a-note-from-irving-berlin-the-nations-songwriter.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/here-are-t
 **Broncos at Bucs odds, picks, how to watch: Bucs aim for 3-0, Broncos to avoid 0-3**\
 `It's a tale of two very different season so far with the 2-0 Bucs hosting the 0-2 Broncos. `\
 https://nytimes.com/athletic/5780153/2024/09/22/broncos-buccaneers-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Chargers vs. Steelers odds, picks: Harbaugh against Steelers' crushing defense**\
-`The Chargers and Steelers have allowed the fewest points of any teams so far. They clash on Sunday. `\
-https://nytimes.com/athletic/5779854/2024/09/22/chargers-steelers-odds-expert-picks-how-to-watch-predictions-betting/
 
