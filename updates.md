@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
+
 **Chargers vs. Steelers odds, picks: Harbaugh against Steelers' crushing defense**\
 `The Chargers and Steelers have allowed the fewest points of any teams so far. They clash on Sunday. `\
 https://nytimes.com/athletic/5779854/2024/09/22/chargers-steelers-odds-expert-picks-how-to-watch-predictions-betting/

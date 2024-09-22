@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
+
 **Chargers vs. Steelers odds, picks: Harbaugh against Steelers' crushing defense**\
 `The Chargers and Steelers have allowed the fewest points of any teams so far. They clash on Sunday. `\
 https://nytimes.com/athletic/5779854/2024/09/22/chargers-steelers-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5779836/2024/09/22/eagles-saints-odds-expert-picks-
 **City vs Arsenal: Dealing with Haaland, set-piece threat - and does Arteta need the three points?**\
 `Our writers discuss some of the key talking points ahead of the big Premier League encounter later today`\
 https://nytimes.com/athletic/5781956/2024/09/22/manchester-city-arsenal-preview-premier-league/
-
-**Texans at Vikings odds, picks: Darnold vs. Stroud in battle of undefeateds**\
-`Only one can remain undefeated as the Vikings host the Texans on Sunday in a matchup of 2-0 teams. `\
-https://nytimes.com/athletic/5779729/2024/09/22/texans-vikings-odds-expert-picks-how-to-watch-predictions-betting/
 
