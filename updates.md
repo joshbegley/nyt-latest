@@ -1,3 +1,11 @@
+**Jimmy Johnson slams Panthers owner David Tepper: ‘That’s the problem’**\
+`The Panthers have the league's worst record (31-70) since start of 2018 season, when Tepper bought the team.`\
+https://nytimes.com/athletic/5785569/2024/09/22/david-tepper-panthers-jimmy-johnson/
+
+**Jagr's Emmy win caps off big week for Penguins legend**\
+`Days after subtly announcing his impending retirement from hockey, Jagr won a regional Emmy for “Celebrate 68: Jagr Retirement Ceremony."`\
+https://nytimes.com/athletic/5785545/2024/09/22/jaromir-jagr-emmy-win-penguins-hockey/
+
 **Tongsun Park, Lobbyist Scarred by Koreagate Scandal, Dies at 89**\
 `An amiable Korean-born graduate of Georgetown University, he was imprisoned after a second scandal involving the U.N.`\
 https://nytimes.com/2024/09/22/us/politics/tongsun-park-dead.html

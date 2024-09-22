@@ -1,3 +1,11 @@
+**Jimmy Johnson slams Panthers owner David Tepper: ‘That’s the problem’**\
+`The Panthers have the league's worst record (31-70) since start of 2018 season, when Tepper bought the team.`\
+https://nytimes.com/athletic/5785569/2024/09/22/david-tepper-panthers-jimmy-johnson/
+
+**Jagr's Emmy win caps off big week for Penguins legend**\
+`Days after subtly announcing his impending retirement from hockey, Jagr won a regional Emmy for “Celebrate 68: Jagr Retirement Ceremony."`\
+https://nytimes.com/athletic/5785545/2024/09/22/jaromir-jagr-emmy-win-penguins-hockey/
+
 **Tongsun Park, Lobbyist Scarred by Koreagate Scandal, Dies at 89**\
 `An amiable Korean-born graduate of Georgetown University, he was imprisoned after a second scandal involving the U.N.`\
 https://nytimes.com/2024/09/22/us/politics/tongsun-park-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5785439/2024/09/22/red-sox-manager-alex-cora-ejecti
 **For the Children of Architects, Filmmaking as Therapy**\
 `Jim Venturi shines a light on his parents, the postmodern innovators Robert Venturi and Denise Scott Brown. How architects’ hidden lives are often revealed by kids.`\
 https://nytimes.com/2024/09/22/arts/design/robert-venturi-and-denise-scott-brown-documentary.html
-
-**In likely F1 farewell, Daniel Ricciardo helps 'old pal' Verstappen's title hopes**\
-`Ricciardo’s body language post-race and emotion in his voice made it clear. This really may be it for him in F1. `\
-https://nytimes.com/athletic/5785117/2024/09/22/daniel-ricciardo-f1-future-singapore-gp-red-bull/
-
-**In a Hezbollah-Dominated Area of Beirut, a Mix of Defiance and Unease**\
-`Many residents of Dahiya were grappling with uncertainty over what comes next.`\
-https://nytimes.com/2024/09/22/world/middleeast/beirut-funeral-ibrahim-aqeel-hezbollah.html
 
