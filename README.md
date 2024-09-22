@@ -1,3 +1,7 @@
+**Criticizing Oprah, Trump Falsely Claims He Appeared on Her Final Show**\
+`As he took aim at Oprah Winfrey’s interview of Vice President Kamala Harris, former President Donald J. Trump repeated a false claim that he had appeared on her show in its last week.`\
+https://nytimes.com/2024/09/22/us/politics/criticizing-oprah-trump-falsely-claims-he-appeared-on-her-final-show.html
+
 **Astros' Yordan Alvarez leaves game due to apparent leg injury**\
 `HOUSTON — Houston Astros star Yordan Alvarez exited Sunday’s game against the Los Angeles Angels after an awkward slide into second base during a second-inning double.`\
 https://nytimes.com/athletic/5785765/2024/09/22/yordan-alvarez-astros-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785545/2024/09/22/jaromir-jagr-emmy-win-penguins-h
 **Tongsun Park, Lobbyist Scarred by Koreagate Scandal, Dies at 89**\
 `An amiable Korean-born graduate of Georgetown University, he was imprisoned after a second scandal involving the U.N.`\
 https://nytimes.com/2024/09/22/us/politics/tongsun-park-dead.html
-
-**AP Top 25: Texas No. 1 with top-4 Georgia-Bama game on deck**\
-`Texas received 44 of 62 first-place votes in this week's AP Top 25 college football poll. No. 2 Georgia at No. 4 Alabama is next.`\
-https://nytimes.com/athletic/5785489/2024/09/22/ap-top-25-college-football-rankings/
 
