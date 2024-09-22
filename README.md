@@ -2,7 +2,7 @@
 `“Rodri is a strong man,” Pep Guardiola said. “If he leaves the pitch in this action it is because he felt something."`\
 https://nytimes.com/athletic/5785665/2024/09/22/rodri-injury-latest/
 
-**Justin Fields leads Steelers to 20-10 win vs. Chargers: Key takeaways**\
+**Justin Fields leads Steelers to 20-10 win vs. Chargers: Takeaways**\
 `Pittsburgh quarterback Justin Fields' performance was the exclamation point in a dominant second half by the Steelers.`\
 https://nytimes.com/athletic/5785461/2024/09/22/chargers-steelers-score-takeaways/
 
