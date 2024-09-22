@@ -1,3 +1,7 @@
+**SEC vibes rankings: Auburn plummets to the bottom as QB (and coaching) woes continue**\
+`Texas, Tennessee and Ole Miss keep rolling. Florida showing signs of life. Missouri flirting with disaster. `\
+https://nytimes.com/athletic/5784869/2024/09/22/sec-football-week-3-auburn-hugh-freeze/
+
 **Charging the Parents of Mass Shooters**\
 `Readers discuss a guest essay criticizing charges against Colin Gray. Also: Jan. 6; turmoil in Central America; learning from dogs; blindness and courage.`\
 https://nytimes.com/2024/09/22/opinion/mass-shooters-parents.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/world/middleeast/hezbollah-kiryat-bialik-israel-v
 **Here’s the latest on the presidential race.**\
 `Vice Presid`\
 https://nytimes.com/live/2024/09/22/us/trump-harris-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Trump Says It’s ‘Too Late’ for Another Debate**\
-`Donald Trump resisted pressure from Kamala Harris for a second debate as he rallied on Saturday in North Carolina. He also did not address a scandal surrounding the state’s G.O.P. nominee for governor.`\
-https://nytimes.com/live/2024/09/22/us/trump-harris-election
 
