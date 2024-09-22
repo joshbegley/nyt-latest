@@ -1,3 +1,7 @@
+**More Than 700 Current and Former National Security Officials Back Harris**\
+`A letter signed by former secretaries of state and defense endorsed Vice President Kamala Harris and said former President Donald J. Trump poses a threat to the nation’s defense and its democratic system.`\
+https://nytimes.com/2024/09/22/us/politics/more-than-700-current-and-former-national-security-officials-back-harris.html
+
 **NASCAR Bristol takeaways: Tame Round 1 leaves top playoff drivers still standing**\
 `Thoughts on a fairly status-quo first round, Martin Truex Jr.'s elimination and more from the end of the NASCAR Cup playoffs' first round.`\
 https://nytimes.com/athletic/5784677/2024/09/22/nascar-bristol-night-race-takeaways-playoffs-martin-truex-jr/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785074/2024/09/22/arch-manning-texas-football-coll
 **FA investigating after Blackburn's Beck allegedly bitten by Preston's Osmajic**\
 `The Football Association (FA) is investigating after Blackburn Rovers left-back Owen Beck accused Preston North End forward Milutin Osmajic of biting him.`\
 https://nytimes.com/athletic/5785143/2024/09/22/milutin-osmajic-owen-beck-bite/
-
-**Stewart Mandel's 12-team Playoff projections after Week 4**\
-`Despite losing to Michigan, USC is in my 12-team Playoff bracket this week — with all at-large spots going to the SEC and Big Ten.`\
-https://nytimes.com/athletic/5785160/2024/09/22/college-football-playoff-bracket-projections-week-4/
 
