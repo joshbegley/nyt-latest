@@ -1,3 +1,11 @@
+**Lamar Jackson, Ravens Cowboys in 28-25 win: Takeaways**\
+`Jackson threw for a touchdown and rushed for another while relying on veteran running back Derrick Henry.`\
+https://nytimes.com/athletic/5786198/2024/09/22/ravens-cowboys-takeaways-result/
+
+**As Bears flounder on offense, it's fair to ask: Is Caleb Williams' development in good hands?**\
+`Game planning, play calling, game management. Coaches deserve a big chunk of the blame for the Bears’ 21-16 loss to the Colts on Sunday. `\
+https://nytimes.com/athletic/5786312/2024/09/22/bears-caleb-williams-development-shane-waldron/
+
 **White Sox watch: Chicago reaches infamous loss record as it's swept for 24th time**\
 `The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
 https://nytimes.com/athletic/5734497/2024/09/22/white-sox-watch-most-losses-season/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/22/us/cat-yellowstone-california.html
 **Braves takeaways: Chris Sale won't start twice in final week, Matt Olson's resurgence**\
 `The Braves are focused on a pivotal series against the Mets, with Sale slated to pitch on Wednesday.`\
 https://nytimes.com/athletic/5786232/2024/09/22/braves-chris-sale-final-week/
-
-**Top Aides Resign From Embattled North Carolina Candidate’s Campaign**\
-`Most of the senior staff members on Lt. Gov. Mark Robinson’s campaign for North Carolina governor resigned on Sunday after reports that he had made a series of disturbing online comments.`\
-https://nytimes.com/2024/09/22/us/politics/mark-robinson-staff-resigns.html
-
-**With 120 losses, White Sox join ’62 Mets for most defeats in modern MLB history**\
-`White Sox just one loss away from being the sole owners of an infamous record`\
-https://nytimes.com/athletic/5785600/2024/09/22/white-sox-most-losses-mlb-history-record/
 
