@@ -1,3 +1,11 @@
+**Israel and Hezbollah Threaten to Hit Harder, Raising Fears of All-Out War**\
+`A leader of the Iranian-backed militia said its latest barrage was “just the beginning,” and an Israeli military official said, “Our strikes will intensify.”`\
+https://nytimes.com/2024/09/22/world/middleeast/israel-hezbollah-conflict.html
+
+**The German Chancellor’s Party Ekes Out a Win Over the Far Right**\
+`The narrow win by Olaf Scholz’s party came in a state election, the third in a series that was seen as a reflection of the national mood and a snapshot of the government’s popularity.`\
+https://nytimes.com/2024/09/22/world/europe/germany-election-results-brandenburg-scholz.html
+
 **Thomas, Sun top Fever in Caitlin Clark's playoff debut**\
 `Thomas now owns four of the six triple-doubles in WNBA playoff history and collected her latest on the day she finished fifth in MVP voting.`\
 https://nytimes.com/athletic/5786108/2024/09/22/connecticut-sun-indiana-fever-caitlin-clark-alyssa-thomas/
