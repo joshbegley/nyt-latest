@@ -1,3 +1,15 @@
+**Alexander-Arnold discusses Liverpool future - what he said and what he meant**\
+`Alexander-Arnold's current Liverpool contract expires in the summer - he spoke about the situation after Saturday's game`\
+https://nytimes.com/athletic/5783835/2024/09/22/liverpool-trent-alexander-arnold-future/
+
+**Alexander-Arnold: Trophies 'the main factor' in decision on Liverpool future**\
+`Liverpool right-back Trent Alexander-Arnold says a desire to win trophies will be the biggest factor in deciding his future.`\
+https://nytimes.com/athletic/5785007/2024/09/22/trent-alexander-arnold-liverpool-contract-update/
+
+**The Heavy Toll of Desertion From the Russian Army**\
+`Here is what we can learn about the Russian military and its soldiers from the story of ‘Ivan’ and ‘Anna’ in The New York Times Magazine.`\
+https://nytimes.com/2024/09/22/magazine/desertion-russian-army-ukraine-war.html
+
 **Former Dolphin Eugene 'Mercury' Morris dies at 77**\
 `Miami drafted Morris in the third round of the 1969 NFL Draft out of West Texas A&M.`\
 https://nytimes.com/athletic/5785273/2024/09/22/eugene-mercury-morris-death-dolphins/
