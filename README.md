@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge hits 55th home run**\
+`Judge now leads the Dodgers' Shohei Ohtani by three for the most home runs in the majors. `\
+https://nytimes.com/athletic/5786099/2024/09/22/yankees-aaron-judge-home-runs/
+
 **Monday Briefing: Israel and Hezbollah Trade Threats**\
 `Plus, a Russian military officer’s story of desertion and escape.`\
 https://nytimes.com/2024/09/22/briefing/hezbollah-israel-controversy-election-sri-lanka.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785795/2024/09/22/auburn-football-hugh-freeze-bo-w
 **Bo Nix lands first win as Broncos cruise past Bucs 26-7: Takeaways**\
 `Nix, the 2024 first-round passer, rushed for a touchdown and threw for 216 yards.`\
 https://nytimes.com/athletic/5785813/2024/09/22/broncos-buccaneers-takeaways-result/
-
-**Ter Stegen sustains 'huge' knee injury in Villarreal win**\
-`Barcelona coach Hansi Flick says goalkeeper Marc-Andre ter Stegen suffered a &#8220;huge injury&#8221; during their 5-1 La Liga win over Villarreal on Sunday.`\
-https://nytimes.com/athletic/5785537/2024/09/22/marc-andre-ter-stegen-injury-knee-barcelona/
 
