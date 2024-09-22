@@ -1,3 +1,11 @@
+**Lando Norris wins F1's Singapore Grand Prix**\
+`The McLaren driver's dominant win extended his team's lead in the constructors' standings. `\
+https://nytimes.com/athletic/5785036/2024/09/22/lando-norris-f1-singapore-gp-win/
+
+**Live Q&A: Week 3 fantasy football start/sit chat with Jay Felicio, Sunday 9/22 at 11 a.m. ET**\
+`Submit your Week 3 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5779566/2024/09/22/live-qa-week-3-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-22-at-11-a-m-et/
+
 **For Martin Truex Jr., 0.9 mph ends dream of a walk-off Cup championship**\
 `A speeding penalty on pit road cost Martin Truex Jr. crucial track position Saturday at Bristol, ultimately sinking his playoff hopes.`\
 https://nytimes.com/athletic/5784720/2024/09/22/martin-truex-jr-bristol-speeding-penalty-nascar/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5784888/2024/09/22/lina-souloukou-roma-resigns/
 **Lowetide: Were the Oilers’ summer moves supported by analytics?**\
 `The numbers suggest Edmonton's management improved the team in the offseason.`\
 https://nytimes.com/athletic/5783591/2024/09/22/edmonton-oilers-summer-moves-analytics/
-
-**Wrexham 2 Crawley Town 1: Mullin returns, an important response, Gresford remembered**\
-`Wrexham bounced back from defeat to Birmingham on an emotional day at the Racecourse. Richard Sutcliffe analyses the talking points...`\
-https://nytimes.com/athletic/5781995/2024/09/22/wrexham-crawley-mullin-gresford-parkinson/
-
-**United's pressing and passing have improved - Ten Hag's team now need a ruthless streak**\
-`Ten Hag's team were excellent for large parts of the draw with Palace — but to push on properly these are the types of game they need to win`\
-https://nytimes.com/athletic/5784398/2024/09/22/man-united-crystal-palace-ten-hag-rashford/
 
