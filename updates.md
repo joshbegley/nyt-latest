@@ -1,3 +1,19 @@
+**Rodri injury may be the most significant moment for Man City in a match of a million things**\
+`“Rodri is a strong man,” Pep Guardiola said. “If he leaves the pitch in this action it is because he felt something."`\
+https://nytimes.com/athletic/5785665/2024/09/22/rodri-injury-latest/
+
+**Justin Fields leads Steelers to 20-10 win vs. Chargers: Takeaways**\
+`Pittsburgh quarterback Justin Fields' performance was the exclamation point in a dominant second half by the Steelers.`\
+https://nytimes.com/athletic/5785461/2024/09/22/chargers-steelers-score-takeaways/
+
+**Criticizing Oprah, Trump Falsely Claims He Appeared on Her Show’s Final Week**\
+`As he took aim at Oprah Winfrey’s interview of Vice President Kamala Harris, former President Donald J. Trump repeated a debunked claim that he was one of the show’s last guests.`\
+https://nytimes.com/2024/09/22/us/politics/criticizing-oprah-trump-falsely-claims-he-appeared-on-her-final-show.html
+
+**Astros' Yordan Alvarez leaves game with knee injury**\
+`The Astros announced that Alvarez sustained a right knee contusion.`\
+https://nytimes.com/athletic/5785765/2024/09/22/yordan-alvarez-astros-injury/
+
 **Justin Fields leads Steelers to 20-10 win vs. Chargers: Key takeaways**\
 `Pittsburgh quarterback Justin Fields' performance was the exclamation point in a dominant second half by the Steelers.`\
 https://nytimes.com/athletic/5785461/2024/09/22/chargers-steelers-score-takeaways/
