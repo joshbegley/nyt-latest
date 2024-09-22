@@ -1,3 +1,7 @@
+**Broncos at Bucs odds, picks, how to watch: Bucs aim for 3-0, Broncos to avoid 0-3**\
+`It's a tale of two very different season so far with the 2-0 Bucs hosting the 0-2 Broncos. `\
+https://nytimes.com/athletic/5780153/2024/09/22/broncos-buccaneers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Here are the latest developments.**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
