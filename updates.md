@@ -1,3 +1,7 @@
+**Congo Releases More Than 700 Inmates After a Deadly Stampede**\
+`At least 129 people died when inmates tried to escape from Makala Prison, where conditions are abysmal and overcrowding is a major problem.`\
+https://nytimes.com/2024/09/22/world/africa/congo-prison-release.html
+
 **Top NFL Week 3 storylines: Will Vikings or Texans go 3-0? Can Andy Dalton help Panthers?**\
 `Nine teams begin Week 3 undefeated, and nine are 0-2. The latter includes Carolina, which benched Bryce Young this week for Dalton.`\
 https://nytimes.com/athletic/5780306/2024/09/22/nfl-week-3-storylines-vikings-texans-panthers/
