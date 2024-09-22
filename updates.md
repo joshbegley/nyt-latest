@@ -1,3 +1,7 @@
+**Heavy Rain in Japan Causes Deadly Flooding and Landslides**\
+`One person is dead and seven others are missing in Noto Peninsula, Japanese news media reported. The region is still recovering from a catastrophic earthquake.`\
+https://nytimes.com/2024/09/22/world/asia/japan-rain-flooding-landslide.html
+
 **A Note From Irving Berlin, the ‘Nation’s Songwriter’**\
 `The lyricist and composer wrote thousands of compositions — and one stern letter to The New York Times.`\
 https://nytimes.com/2024/09/22/insider/a-note-from-irving-berlin-the-nations-songwriter.html
