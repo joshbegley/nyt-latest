@@ -1,3 +1,15 @@
+**Alexander-Arnold discusses Liverpool future - what he said and what he meant**\
+`Alexander-Arnold's current Liverpool contract expires in the summer - he spoke about the situation after Saturday's game`\
+https://nytimes.com/athletic/5783835/2024/09/22/liverpool-trent-alexander-arnold-future/
+
+**Alexander-Arnold: Trophies 'the main factor' in decision on Liverpool future**\
+`Liverpool right-back Trent Alexander-Arnold says a desire to win trophies will be the biggest factor in deciding his future.`\
+https://nytimes.com/athletic/5785007/2024/09/22/trent-alexander-arnold-liverpool-contract-update/
+
+**The Heavy Toll of Desertion From the Russian Army**\
+`Here is what we can learn about the Russian military and its soldiers from the story of ‘Ivan’ and ‘Anna’ in The New York Times Magazine.`\
+https://nytimes.com/2024/09/22/magazine/desertion-russian-army-ukraine-war.html
+
 **Former Dolphin Eugene 'Mercury' Morris dies at 77**\
 `Miami drafted Morris in the third round of the 1969 NFL Draft out of West Texas A&M.`\
 https://nytimes.com/athletic/5785273/2024/09/22/eugene-mercury-morris-death-dolphins/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5782243/2024/09/22/michigan-usc-colorado-college-fo
 **SEC vibes rankings: Auburn plummets to the bottom as QB (and coaching) woes continue**\
 `Texas, Tennessee and Ole Miss keep rolling. Florida showing signs of life. Missouri flirting with disaster. `\
 https://nytimes.com/athletic/5784869/2024/09/22/sec-football-week-3-auburn-hugh-freeze/
-
-**Charging the Parents of Mass Shooters**\
-`Readers discuss a guest essay criticizing charges against Colin Gray. Also: Jan. 6; turmoil in Central America; learning from dogs; blindness and courage.`\
-https://nytimes.com/2024/09/22/opinion/mass-shooters-parents.html
-
-**On the Trail, Trump and Vance Sharpen a Nativist, Anti-Immigrant Tone**\
-`From calling for mass deportations to spreading false claims about migrants’ eating pets, former President Donald J. Trump and his running mate, Senator JD Vance of Ohio, are taking a hard line.`\
-https://nytimes.com/2024/09/22/us/politics/trump-vance-nativist.html
-
-**Pan-Seared Chicken With Harissa, Dates and Citrus**\
-`Sweet and sour with a peppery kick you can mellow out with dollops of yogurt.`\
-https://nytimes.com/2024/09/22/dining/pan-seared-chicken-with-harissa-dates-and-citrus.html
 
