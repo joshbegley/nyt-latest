@@ -10,8 +10,8 @@ https://nytimes.com/athletic/5785461/2024/09/22/chargers-steelers-score-takeaway
 `As he took aim at Oprah Winfrey’s interview of Vice President Kamala Harris, former President Donald J. Trump repeated a debunked claim that he was one of the show’s last guests.`\
 https://nytimes.com/2024/09/22/us/politics/criticizing-oprah-trump-falsely-claims-he-appeared-on-her-final-show.html
 
-**Astros' Yordan Alvarez leaves game due to apparent leg injury**\
-`HOUSTON — Houston Astros star Yordan Alvarez exited Sunday’s game against the Los Angeles Angels after an awkward slide into second base during a second-inning double.`\
+**Astros' Yordan Alvarez leaves game with knee injury**\
+`The Astros announced that Alvarez sustained a right knee contusion.`\
 https://nytimes.com/athletic/5785765/2024/09/22/yordan-alvarez-astros-injury/
 
 **Arteta expects '100 games' with red cards after Trossard's sending off**\
