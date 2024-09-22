@@ -1,3 +1,7 @@
+**Monday Briefing: Israel and Hezbollah Trade Threats**\
+`Plus, a Russian military officer’s story of desertion and escape.`\
+https://nytimes.com/2024/09/22/briefing/hezbollah-israel-controversy-election-sri-lanka.html
+
 **Kathryn Crosby, Actress and Bing Crosby’s Widow, Dies at 90**\
 `She was a Texas-born starlet when she married the beloved crooner, but put aside her career at his urging.`\
 https://nytimes.com/2024/09/22/obituaries/kathryn-crosby-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785813/2024/09/22/broncos-buccaneers-takeaways-res
 **Ter Stegen sustains 'huge' knee injury in Villarreal win**\
 `Barcelona coach Hansi Flick says goalkeeper Marc-Andre ter Stegen suffered a &#8220;huge injury&#8221; during their 5-1 La Liga win over Villarreal on Sunday.`\
 https://nytimes.com/athletic/5785537/2024/09/22/marc-andre-ter-stegen-injury-knee-barcelona/
-
-**Rodri injury may be the most significant moment for Man City in a match of a million things**\
-`“Rodri is a strong man,” Pep Guardiola said. “If he leaves the pitch in this action it is because he felt something."`\
-https://nytimes.com/athletic/5785665/2024/09/22/rodri-injury-latest/
 

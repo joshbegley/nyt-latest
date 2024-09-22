@@ -1,3 +1,7 @@
+**Monday Briefing: Israel and Hezbollah Trade Threats**\
+`Plus, a Russian military officer’s story of desertion and escape.`\
+https://nytimes.com/2024/09/22/briefing/hezbollah-israel-controversy-election-sri-lanka.html
+
 **Saquon Barkley powers Eagles to sluggish 15-12 win over Saints: Takeaways**\
 `Barkley racked up 147 yards and two touchdowns on 17 carries to serve as the Eagles' primary offensive weapon.`\
 https://nytimes.com/athletic/5785751/2024/09/22/eagles-saints-takeaways-result/
