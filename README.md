@@ -1,7 +1,3 @@
-**Two Outer Banks Homes Collapse Into the Ocean in North Carolina**\
-`Nine homes in the area have been lost to the ocean in the past four years because of rising seas and storms that erode shorelines.`\
-https://nytimes.com/2024/09/22/us/north-carolina-house-collapse-rodanthe.html
-
 **The Briefing: Man City 2 Arsenal 2 - Controversial red, quick free-kicks and rivalry ignited in classic**\
 `There was a lot to break down in this encounter, to say the least. Our writers analyse the action.`\
 https://nytimes.com/athletic/5782484/2024/09/22/manchester-city-arsenal-trossard-walker/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5783835/2024/09/22/liverpool-trent-alexander-arnold
 **Alexander-Arnold: Trophies 'the main factor' in decision on Liverpool future**\
 `Liverpool right-back Trent Alexander-Arnold says a desire to win trophies will be the biggest factor in deciding his future.`\
 https://nytimes.com/athletic/5785007/2024/09/22/trent-alexander-arnold-liverpool-contract-update/
+
+**The Heavy Toll of Desertion From the Russian Army**\
+`Here is what we can learn about the Russian military and its soldiers from the story of ‘Ivan’ and ‘Anna’ in The New York Times Magazine.`\
+https://nytimes.com/2024/09/22/magazine/desertion-russian-army-ukraine-war.html
 
