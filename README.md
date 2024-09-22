@@ -1,3 +1,7 @@
+**College Investigating Report of a Student Scratching a Racial Slur on Another**\
+`A family says their son, a member of the swim team at Gettysburg College in Pennsylvania, was victimized when a teammate etched the slur across his chest with a box cutter.`\
+https://nytimes.com/2024/09/22/us/gettysburg-college-racial-slur-swim-team.html
+
 **Israel and Hezbollah Threaten to Hit Harder, Raising Fears of All-Out War**\
 `A leader of the Iranian-backed militia said its latest barrage was “just the beginning,” and an Israeli military official said, “Our strikes will intensify.”`\
 https://nytimes.com/2024/09/22/world/middleeast/israel-hezbollah-conflict.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785751/2024/09/22/eagles-saints-takeaways-result/
 **As race heats up, Mets won't get ace back for regular season, but hold out hope for playoffs**\
 `NEW YORK — Kodai Senga won’t return during the regular season after all.`\
 https://nytimes.com/athletic/5785946/2024/09/22/mets-kodai-senga-injury/
-
-**Some Palm Beach Ballots Misspelled Tim Walz’s Name as ‘Tom’**\
-`Officials in Palm Beach County, Fla., said that they had emailed 257 ballots to overseas voters before catching the error and correcting it.`\
-https://nytimes.com/2024/09/22/us/politics/florida-ballots-tim-walz-misspelled.html
 
