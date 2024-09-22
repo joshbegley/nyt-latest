@@ -1,4 +1,4 @@
-**With key series looming, Astros’ top hitter leaves game due to apparent leg injury**\
+**Astros' Yordan Alvarez leaves game due to apparent leg injury**\
 `HOUSTON — Houston Astros star Yordan Alvarez exited Sunday’s game against the Los Angeles Angels after an awkward slide into second base during a second-inning double.`\
 https://nytimes.com/athletic/5785765/2024/09/22/yordan-alvarez-astros-injury/
 
