@@ -1,3 +1,7 @@
+**Lions at Cardinals odds, expert picks, how to watch: Can Kyler Murray deliver another gem?**\
+`The Detroit Lions are favored by a field goal at Arizona for this Week 3 clash.`\
+https://nytimes.com/athletic/5780210/2024/09/22/lions-cardinals-odds-expert-picks-how-to-watch-predictions-betting/
+
 **What we've learned about Cam Ward and Miami during its 4-0 start**\
 `Miami ran away with a 50-15 win at USF on Saturday. What does the 4-0 start mean for Mario Cristobal and the Hurricanes?`\
 https://nytimes.com/athletic/5784646/2024/09/22/miami-hurricanes-usf-cam-ward/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/style/storycorps-partisan-divide-election.html
 **Kelsey Grammer Analyzes 40 Years of Frasier: ‘I Have Nothing to Regret’**\
 `The actor has been playing the snobby psychiatrist off and on since 1984 and has no plans to stop. He thinks the current “Frasier” reboot “could last another decade.”`\
 https://nytimes.com/2024/09/22/arts/television/kelsey-grammer-frasier.html
-
-**Drugs, Sex, Baby Oil: The ‘Freak Offs’ at the Core of Sean Combs’s Troubles**\
-`Prosecutors say the sexual encounters in hotel rooms were coercive and abusive and are the heart of their sex trafficking case. The music mogul’s lawyers call them consensual.`\
-https://nytimes.com/2024/09/22/arts/drugs-sex-baby-oil-the-freak-offs-at-the-core-of-sean-combss-troubles.html
 
