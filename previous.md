@@ -1,3 +1,7 @@
+**Mercury Morris, Elusive Rusher on a Perfect Dolphins Team, Dies at 77**\
+`Part of a talented backfield triumvirate that also included Larry Csonka and Jim Kiick, he helped lead Miami to two Super Bowls and an undefeated season.`\
+https://nytimes.com/2024/09/22/obituaries/mercury-morris-dead.html
+
 **Two Outer Banks Homes Collapse Into the Ocean in North Carolina**\
 `Nine homes in the area have been lost to the ocean in the past four years because of rising seas and storms that erode shorelines.`\
 https://nytimes.com/2024/09/22/us/north-carolina-house-collapse-rodanthe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785302/2024/09/22/gibbs-white-red-rob-jones-anthon
 **Alexander-Arnold discusses Liverpool future - what he said and what he meant**\
 `Alexander-Arnold's current Liverpool contract expires in the summer - he spoke about the situation after Saturday's game`\
 https://nytimes.com/athletic/5783835/2024/09/22/liverpool-trent-alexander-arnold-future/
-
-**Alexander-Arnold: Trophies 'the main factor' in decision on Liverpool future**\
-`Liverpool right-back Trent Alexander-Arnold says a desire to win trophies will be the biggest factor in deciding his future.`\
-https://nytimes.com/athletic/5785007/2024/09/22/trent-alexander-arnold-liverpool-contract-update/
 

@@ -1,3 +1,7 @@
+**Mercury Morris, Elusive Rusher on a Perfect Dolphins Team, Dies at 77**\
+`Part of a talented backfield triumvirate that also included Larry Csonka and Jim Kiick, he helped lead Miami to two Super Bowls and an undefeated season.`\
+https://nytimes.com/2024/09/22/obituaries/mercury-morris-dead.html
+
 **Two Outer Banks Homes Collapse Into the Ocean in North Carolina**\
 `Nine homes in the area have been lost to the ocean in the past four years because of rising seas and storms that erode shorelines.`\
 https://nytimes.com/2024/09/22/us/north-carolina-house-collapse-rodanthe.html
