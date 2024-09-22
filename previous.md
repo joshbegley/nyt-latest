@@ -1,3 +1,7 @@
+**Dolphins QB Skylar Thompson ruled out with chest injury**\
+`Thompson went 13-of-19 passing for 107 yards before exiting Sunday's game. `\
+https://nytimes.com/athletic/5786252/2024/09/22/dolphins-skylar-thompson-chest-injury/
+
 **AP Top 25 takeaways: Who's No. 1? Tennessee can't be dismissed in SEC-heavy debate**\
 `This week's AP Top 25 poll highlighted the big-game divergence of revived Tennessee and reeling Nebraska.`\
 https://nytimes.com/athletic/5786094/2024/09/22/ap-top-25-poll-rankings-tennessee/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/world/europe/germany-election-results-brandenburg
 **Thomas, Sun top Fever in Caitlin Clark's playoff debut**\
 `Thomas now owns four of the six triple-doubles in WNBA playoff history and collected her latest on the day she finished fifth in MVP voting.`\
 https://nytimes.com/athletic/5786108/2024/09/22/connecticut-sun-indiana-fever-caitlin-clark-alyssa-thomas/
-
-**NFL Week 3 takeaways: Vikings a Super Bowl contender? Is Sirianni's seat still hot despite win?**\
-`Plus, whether growing pains are good for Caleb Williams, and whether the Steelers have found their quarterback in Justin Fields.`\
-https://nytimes.com/athletic/5786015/2024/09/22/nfl-week-3-takeaways-vikings-contender-sirianni-eagles/
 

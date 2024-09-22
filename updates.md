@@ -1,3 +1,7 @@
+**Dolphins QB Skylar Thompson ruled out with chest injury**\
+`Thompson went 13-of-19 passing for 107 yards before exiting Sunday's game. `\
+https://nytimes.com/athletic/5786252/2024/09/22/dolphins-skylar-thompson-chest-injury/
+
 **AP Top 25 takeaways: Who's No. 1? Tennessee can't be dismissed in SEC-heavy debate**\
 `This week's AP Top 25 poll highlighted the big-game divergence of revived Tennessee and reeling Nebraska.`\
 https://nytimes.com/athletic/5786094/2024/09/22/ap-top-25-poll-rankings-tennessee/
