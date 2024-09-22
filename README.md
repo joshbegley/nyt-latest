@@ -1,3 +1,11 @@
+**FA investigating after Blackburn's Beck allegedly bitten by Preston's Osmajic**\
+`The Football Association (FA) is investigating after Blackburn Rovers left-back Owen Beck accused Preston North End forward Milutin Osmajic of biting him.`\
+https://nytimes.com/athletic/5785143/2024/09/22/milutin-osmajic-owen-beck-bite/
+
+**Stewart Mandel's 12-team Playoff projections after Week 4**\
+`Despite losing to Michigan, USC is in my 12-team Playoff bracket this week — with all at-large spots going to the SEC and Big Ten.`\
+https://nytimes.com/athletic/5785160/2024/09/22/college-football-playoff-bracket-projections-week-4/
+
 **The Pulse: Michigan out-Harbaughs itself**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5782243/2024/09/22/michigan-usc-colorado-college-football-nfl-jordan-love-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5779566/2024/09/22/live-qa-week-3-fantasy-football-
 **For Martin Truex Jr., 0.9 mph ends dream of a walk-off Cup championship**\
 `A speeding penalty on pit road cost Martin Truex Jr. crucial track position Saturday at Bristol, ultimately sinking his playoff hopes.`\
 https://nytimes.com/athletic/5784720/2024/09/22/martin-truex-jr-bristol-speeding-penalty-nascar/
-
-**A’ja Wilson named unanimous WNBA MVP**\
-`Wilson is only the second player ever to win the award unanimously and the first since the Houston Comets’ Cynthia Cooper-Dyke in 1997.`\
-https://nytimes.com/athletic/5785027/2024/09/22/aja-wilson-unanimous-mvp-wnba-aces/
-
-**Videos Show Hezbollah Missile Hit Residential Area in Northern Israel**\
-`An overnight barrage included around 150 rockets, cruise missiles and drones, Israel’s military said. Air defenses intercepted most, but the town of Kiryat Bialik suffered a direct hit.`\
-https://nytimes.com/2024/09/22/world/middleeast/hezbollah-kiryat-bialik-israel-videos.html
 
