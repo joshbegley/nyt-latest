@@ -1,3 +1,7 @@
+**USC let Michigan off the hook, and now the Trojans' margin for error is slim**\
+`USC showed some toughness, but the Trojans will need to play clean football the rest of the way if they hope to achieve their goals.`\
+https://nytimes.com/athletic/5784482/2024/09/21/usc-football-michigan-lincoln-riley/
+
 **What Canucks' Kevin Lankinen signing means and other training camp observations after Day 3**\
 `Adding the 29-year-old goalie on a one-year, $875,000 deal gives Vancouver another experienced NHL option in net, which was sorely needed.`\
 https://nytimes.com/athletic/5784270/2024/09/21/canucks-sign-kevin-lankinen-training-camp/
