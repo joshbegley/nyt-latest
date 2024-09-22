@@ -1,3 +1,7 @@
+**Position of Intense Scrutiny**\
+`Freddie Cheng experiments with the initial phase of constructing.`\
+https://nytimes.com/2024/09/22/crosswords/daily-puzzle-2024-09-23.html
+
 **Congress Unveils Short-Term Spending Deal**\
 `Speaker Mike Johnson dropped his demands for proof-of-citizenship voting requirements to strike a deal that includes more money for the Secret Service and funds the government through Dec. 20.`\
 https://nytimes.com/2024/09/22/us/congress-spending-deal-johnson.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/briefing/hezbollah-israel-controversy-election-sr
 **Kathryn Crosby, Actress and Bing Crosby’s Widow, Dies at 90**\
 `She was a Texas-born starlet when she married the beloved crooner, but put aside her career at his urging.`\
 https://nytimes.com/2024/09/22/obituaries/kathryn-crosby-dead.html
-
-**Saquon Barkley powers Eagles to sluggish 15-12 win over Saints: Takeaways**\
-`Barkley racked up 147 yards and two touchdowns on 17 carries to serve as the Eagles' primary offensive weapon.`\
-https://nytimes.com/athletic/5785751/2024/09/22/eagles-saints-takeaways-result/
 

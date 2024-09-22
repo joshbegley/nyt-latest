@@ -1,3 +1,7 @@
+**Congress Unveils Short-Term Spending Deal**\
+`Speaker Mike Johnson dropped his demands for proof-of-citizenship voting requirements to strike a deal that includes more money for the Secret Service and funds the government through Dec. 20.`\
+https://nytimes.com/2024/09/22/us/congress-spending-deal-johnson.html
+
 **College Investigating Report of a Student Scratching a Racial Slur on Another**\
 `A family says their son, a member of the swim team at Gettysburg College in Pennsylvania, was victimized when a teammate etched the slur across his chest with a box cutter.`\
 https://nytimes.com/2024/09/22/us/gettysburg-college-racial-slur-swim-team.html
