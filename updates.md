@@ -1,3 +1,7 @@
+**United's pressing and passing have improved - Ten Hag's team now need a ruthless streak**\
+`Ten Hag's team were excellent for large parts of the draw with Palace — but to push on properly these are the types of game they need to win`\
+https://nytimes.com/athletic/5784398/2024/09/22/man-united-crystal-palace-ten-hag-rashford/
+
 **An Escape from the Front Line in Ukraine**\
 `An excerpt from one of the most ambitious stories in The Times Magazine’s history.`\
 https://nytimes.com/2024/09/22/briefing/ukraine-russia-war.html

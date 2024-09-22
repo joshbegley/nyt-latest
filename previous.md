@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5783591/2024/09/22/edmonton-oilers-summer-moves-ana
 `Wrexham bounced back from defeat to Birmingham on an emotional day at the Racecourse Ground — Richard Sutcliffe analyses the talking points`\
 https://nytimes.com/athletic/5781995/2024/09/22/wrexham-crawley-mullin-gresford-parkinson/
 
-**United's pressing and passing has improved - Ten Hag's team now need a ruthless streak**\
+**United's pressing and passing have improved - Ten Hag's team now need a ruthless streak**\
 `Ten Hag's team were excellent for large parts of the draw with Palace — but to push on properly these are the types of game they need to win`\
 https://nytimes.com/athletic/5784398/2024/09/22/man-united-crystal-palace-ten-hag-rashford/
 
