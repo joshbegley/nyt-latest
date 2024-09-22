@@ -1,3 +1,7 @@
+**The Pulse: Michigan out-Harbaughs itself**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5782243/2024/09/22/michigan-usc-colorado-college-football-nfl-jordan-love-the-pulse/
+
 **SEC vibes rankings: Auburn plummets to the bottom as QB (and coaching) woes continue**\
 `Texas, Tennessee and Ole Miss keep rolling. Florida showing signs of life. Missouri flirting with disaster. `\
 https://nytimes.com/athletic/5784869/2024/09/22/sec-football-week-3-auburn-hugh-freeze/
