@@ -1,3 +1,15 @@
+**Charging the Parents of Mass Shooters**\
+`Readers discuss a guest essay criticizing charges against Colin Gray. Also: Jan. 6; turmoil in Central America; learning from dogs; blindness and courage.`\
+https://nytimes.com/2024/09/22/opinion/mass-shooters-parents.html
+
+**On the Trail, Trump and Vance Sharpen a Nativist, Anti-Immigrant Tone**\
+`From calling for mass deportations to spreading false claims about migrants’ eating pets, former President Donald J. Trump and his running mate, Senator JD Vance of Ohio, are taking a hard line.`\
+https://nytimes.com/2024/09/22/us/politics/trump-vance-nativist.html
+
+**Pan-Seared Chicken With Harissa, Dates and Citrus**\
+`Sweet and sour with a peppery kick you can mellow out with dollops of yogurt.`\
+https://nytimes.com/2024/09/22/dining/pan-seared-chicken-with-harissa-dates-and-citrus.html
+
 **Lando Norris wins F1's Singapore Grand Prix**\
 `The McLaren driver's dominant win extended his team's lead in the constructors' standings. `\
 https://nytimes.com/athletic/5785036/2024/09/22/lando-norris-f1-singapore-gp-win/
