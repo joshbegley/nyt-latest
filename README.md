@@ -1,3 +1,7 @@
+**The escalating cross-border violence is raising international alarm.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/the-escalating-cross-border-violence-is-raising-international-alarm
+
 **Chargers QB Justin Herbert exits vs. Steelers with injury**\
 `Backup quarterback Taylor Heinicke stepped in to replace Herbert.`\
 https://nytimes.com/athletic/5785713/2024/09/22/justin-herbert-injury-chargers-steelers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/us/politics/controversies-erupt-as-trump-and-gop-
 **Mercury Morris, Elusive Rusher on a Perfect Dolphins Team, Dies at 77**\
 `Part of a talented backfield triumvirate that also included Larry Csonka and Jim Kiick, he helped lead Miami to two Super Bowls and an undefeated season.`\
 https://nytimes.com/2024/09/22/obituaries/mercury-morris-dead.html
-
-**Two Outer Banks Homes Collapse Into the Ocean in North Carolina**\
-`Nine homes in the area have been lost to the ocean in the past four years because of rising seas and storms that erode shorelines.`\
-https://nytimes.com/2024/09/22/us/north-carolina-house-collapse-rodanthe.html
 
