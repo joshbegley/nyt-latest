@@ -1,3 +1,7 @@
+**Packers vs. Titans odds, picks, how to watch: Winless Titans small favorites at home**\
+`It hasn't been pretty to be a Titans fan so far this year, and this game is close to a pick 'em in Nashville.`\
+https://nytimes.com/athletic/5779661/2024/09/21/packers-titans-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Tennessee looks like a contender in wrecking Oklahoma's SEC debut: What it means for both teams**\
 `Tennessee has a team in the Playoff race — that's better than redemption for Josh Heupel. And the Sooners now have a decision to make at QB.`\
 https://nytimes.com/athletic/5784488/2024/09/21/tennessee-oklahoma-football-sec/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783105/2024/09/21/cardinals-eliminated-paul-goldsc
 **Max Fried was focused on what could be his last 2 starts for Braves, and it showed**\
 `Fried tied Steve Avery for the most victories by a lefty in Braves history as Atlanta remains two games behind the Mets.`\
 https://nytimes.com/athletic/5784435/2024/09/21/max-fried-final-braves-starts/
-
-**What Canucks' Kevin Lankinen signing means and other training camp observations after Day 3**\
-`Adding the 29-year-old goalie on a one-year, $875,000 deal gives Vancouver another experienced NHL option in net, which was sorely needed.`\
-https://nytimes.com/athletic/5784270/2024/09/21/canucks-sign-kevin-lankinen-training-camp/
 
