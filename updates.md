@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`Vice Presid`\
+https://nytimes.com/live/2024/09/22/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Says It’s ‘Too Late’ for Another Debate**\
+`Donald Trump resisted pressure from Kamala Harris for a second debate as he rallied on Saturday in North Carolina. He also did not address a scandal surrounding the state’s G.O.P. nominee for governor.`\
+https://nytimes.com/live/2024/09/22/us/trump-harris-election
+
 **United's pressing and passing have improved - Ten Hag's team now need a ruthless streak**\
 `Ten Hag's team were excellent for large parts of the draw with Palace — but to push on properly these are the types of game they need to win`\
 https://nytimes.com/athletic/5784398/2024/09/22/man-united-crystal-palace-ten-hag-rashford/
