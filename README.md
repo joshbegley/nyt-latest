@@ -1,3 +1,11 @@
+**A Surprise Season of Stranger Things**\
+`Standout shows from Bally and Bottega Veneta bring Milan Fashion Week to a close. Gucci, Versace and Moschino do some recycling.`\
+https://nytimes.com/2024/09/22/style/bottega-veneta-gucci-versace-milan-fashion-week.html
+
+**Real Madrid briefing: Is Tchouameni's future at the back? Modric excels (again), Rodrygo makes point**\
+`Real Madrid took time to stamp their mark on Espanyol — The Athletic analyses the talking points from the Bernabeu`\
+https://nytimes.com/athletic/5784323/2024/09/22/real-madrid-espanyol-tchouameni-modric-rodrygo/
+
 **How important is Bijan Robinson to the Falcons offense? Five factors**\
 `The Falcons host Chris Jones, Travis Kelce and the Chiefs on "Sunday Night Football." Will Taylor Swift be there?`\
 https://nytimes.com/athletic/5782037/2024/09/22/bijan-robinson-falcons-chiefs/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/22/world/middleeast/un-meeting-war-climate.html
 **The Surprising Reality of Political Violence in America**\
 `After two apparent assassination attempts against Donald J. Trump, it’s easy to think our politics are becoming more violent. The research is not so clear.`\
 https://nytimes.com/2024/09/22/us/politics/political-violence.html
-
-**A Changed Montana May Decide Control of the U.S. Senate**\
-`Republicans are trying to seize control of the U.S. Senate by ousting Jon Tester, the last Democrat holding statewide office in a state that not long ago had many of them.`\
-https://nytimes.com/2024/09/22/us/montana-senate-tester-sheehy.html
-
-**For Mideast Foes, Diplomacy Takes a Back Seat to Military Force**\
-`After years of failed deals and tit-for-tat violence, neither the Israelis nor the Palestinians believe their adversaries will ever negotiate in good faith.`\
-https://nytimes.com/2024/09/22/world/middleeast/mideast-diplomacy-hezbollah-israel.html
 
