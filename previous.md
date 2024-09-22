@@ -1,3 +1,19 @@
+**Chargers vs. Steelers odds, picks: Harbaugh against Steelers' crushing defense**\
+`The Chargers and Steelers have allowed the fewest points of any teams so far. They clash on Sunday. `\
+https://nytimes.com/athletic/5779854/2024/09/22/chargers-steelers-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Chelsea and an unfamiliar feeling of... sheer positivity**\
+`A comfortable win. Owners showing a united front. The Athletic's Simon Johnson in high spirits - and in need of a lie down...`\
+https://nytimes.com/athletic/5783603/2024/09/22/chelsea-west-ham-maresca-boehly-eghbali-positivity/
+
+**Julen Lopetegui is right - he and West Ham need to do better. This was another bleak display**\
+`The new West Ham head coach is failing to implement a clear playing style on his team and they were dominated by visitors Chelsea`\
+https://nytimes.com/athletic/5783383/2024/09/22/west-ham-chelsea-lopetegui-reaction/
+
+**Arsenal, ambition and whether they should react to Rodri questioning their mentality**\
+`If Arsenal step up and take the game to City at the Etihad today - and win - it would send a big message to Rodri and the reigning champions`\
+https://nytimes.com/athletic/5773607/2024/09/22/arsenal-man-city-rodri-comments/
+
 **Cardiff 0 Leeds 2: Rampaging Ramazani, Farke needs a Plan B, Piroe proves his point**\
 `Leeds cruised to victory over woeful Cardiff, who played the majority of the game with 10 men - but there were grumbles from the away end`\
 https://nytimes.com/athletic/5783516/2024/09/22/cardiff-0-leeds-2-ramazani-piroe-farke/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5781956/2024/09/22/manchester-city-arsenal-preview-
 **Texans at Vikings odds, picks: Darnold vs. Stroud in battle of undefeateds**\
 `Only one can remain undefeated as the Vikings host the Texans on Sunday in a matchup of 2-0 teams. `\
 https://nytimes.com/athletic/5779729/2024/09/22/texans-vikings-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Payet, Bolasie and Depay — why are so many random European players heading to Brazil?**\
-`Depay, Braithwaite and Newcastle's Jamal Lewis have joined Payet and Bolasie in Brazil. And Balotelli and Ramos have been linked too...`\
-https://nytimes.com/athletic/5779640/2024/09/22/brazil-signings-payet-bolasie-depay-lewis/
-
-**A French Fair as Workers’ Paradise, Feting Cuisine, Music and Communism**\
-`The Fête de l’Humanité, a blend of Burning Man, Woodstock and a political convention, attracts the masses with bands, lectures and food, but here K.F.C. is C.F.K.: Communist Fried Kitchen.`\
-https://nytimes.com/2024/09/22/world/europe/france-humanity-festival-communism.html
-
-**What to Watch For in a Key German State Election**\
-`The far right and far left are poised to make significant gains in state voting on Sunday, possibly affecting the stability of the national government in Berlin.`\
-https://nytimes.com/2024/09/22/world/europe/germany-election-brandenburg.html
-
-**Bears vs. Colts odds, picks, how to watch: Two young quarterbacks face off**\
-`Anthony Richardson and the Colts are looking for their first W against Caleb Williams' Bears.`\
-https://nytimes.com/athletic/5779695/2024/09/22/bears-colts-odds-expert-picks-how-to-watch-predictions-betting/
 
