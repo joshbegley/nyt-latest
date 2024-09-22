@@ -1,3 +1,11 @@
+**Two Outer Banks Homes Collapse Into the Ocean in North Carolina**\
+`Nine homes in the area have been lost to the ocean in the past four years because of rising seas and storms that erode shorelines.`\
+https://nytimes.com/2024/09/22/us/north-carolina-house-collapse-rodanthe.html
+
+**The Briefing: Man City 2 Arsenal 2 - Controversial red, quick free kicks and rivalry ignited in classic**\
+`There was a lot to break down in this encounter, to say the least. Our writers analyse the action.`\
+https://nytimes.com/athletic/5782484/2024/09/22/manchester-city-arsenal-trossard-walker/
+
 **The Briefing: Man City 2 Arsenal 2 - Controversial red, quick free-kicks and rivalry ignited in classic**\
 `There was a lot to break down in this encounter, to say the least. Our writers analyse the action.`\
 https://nytimes.com/athletic/5782484/2024/09/22/manchester-city-arsenal-trossard-walker/
