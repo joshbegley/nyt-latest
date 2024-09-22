@@ -1,40 +1,40 @@
-**Lions at Cardinals odds, expert picks, how to watch: Can Kyler Murray deliver another gem?**\
-`The Detroit Lions are favored by a field goal at Arizona for this Week 3 clash.`\
-https://nytimes.com/athletic/5780210/2024/09/22/lions-cardinals-odds-expert-picks-how-to-watch-predictions-betting/
+**In the Sean Combs and Dominique Pelicot Trials, the Dehumanization of Women Is Exhibit A**\
+`It’s easy to miss how much these cases have in common with everyday reality.`\
+https://nytimes.com/2024/09/22/opinion/sean-combs-dominique-pelicot.html
 
-**What we've learned about Cam Ward and Miami during its 4-0 start**\
-`Miami ran away with a 50-15 win at USF on Saturday. What does the 4-0 start mean for Mario Cristobal and the Hurricanes?`\
-https://nytimes.com/athletic/5784646/2024/09/22/miami-hurricanes-usf-cam-ward/
+**Israel’s Pager Attacks Have Changed the World**\
+`Our supply chains are vulnerable, which means that we are vulnerable.`\
+https://nytimes.com/2024/09/22/opinion/israel-pager-attacks-supply-chain.html
 
-**49ers at Rams odds, expert picks, how to watch: Winless LA is a big home underdog**\
-`The 1-1 49ers travel south in California to take on the 0-2 Rams on Sunday. The 49ers are touchdown-favorites against the shorthanded Rams.`\
-https://nytimes.com/athletic/5780265/2024/09/22/49ers-rams-odds-expert-picks-how-to-watch-predictions-betting/
+**Why Trump Can’t Shake Project 2025**\
+`The former president’s problem in the 2024 election is that he can no longer run as if he is a man alone.`\
+https://nytimes.com/2024/09/22/opinion/project-2025-trump-election.html
 
-**A Surprise Season of Stranger Things**\
-`Standout shows from Bally and Bottega Veneta bring Milan Fashion Week to a close. Gucci, Versace and Moschino do some recycling.`\
-https://nytimes.com/2024/09/22/style/bottega-veneta-gucci-versace-milan-fashion-week.html
+**MAGA Wants Transgression. Mark Robinson Is the Result.**\
+`If you favor more of this, vote for Trump.`\
+https://nytimes.com/2024/09/22/opinion/mark-robinson-maga-trump.html
 
-**Real Madrid briefing: Is Tchouameni's future at the back? Modric excels (again), Rodrygo makes point**\
-`Real Madrid took time to stamp their mark on Espanyol — The Athletic analyses the talking points from the Bernabeu`\
-https://nytimes.com/athletic/5784323/2024/09/22/real-madrid-espanyol-tchouameni-modric-rodrygo/
+**Blue Jackets Sunday Gathering: Is Rick Nash being groomed to be the next GM?**\
+`Nash got a new title this week that seems to be pointing toward something bigger.`\
+https://nytimes.com/athletic/5783565/2024/09/22/rick-nash-blue-jackets-gm/
 
-**How important is Bijan Robinson to the Falcons offense? Five factors**\
-`The Falcons host Chris Jones, Travis Kelce and the Chiefs on "Sunday Night Football." Will Taylor Swift be there?`\
-https://nytimes.com/athletic/5782037/2024/09/22/bijan-robinson-falcons-chiefs/
+**Wild roster projection: Predicting the opening-night lineup and analyzing the depth chart**\
+`Minnesota is expected to reunite Kirill Kaprizov, Ryan Hartman and Mats Zuccarello to form its top line to open the season. `\
+https://nytimes.com/athletic/5782225/2024/09/22/wild-roster-lineup-projection-prediction-analysis/
 
-**Coaching staff's leadership, hard work spurred Guardians to second division title in 3 years**\
-`Cleveland needed a sturdy infrastructure to rebound from last year's flop.`\
-https://nytimes.com/athletic/5784574/2024/09/22/guardians-coaching-leadership-al-central-title/
+**The Connections Companion No. 477**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 23, 2024.`\
+https://nytimes.com/2024/09/22/crosswords/connections-companion-477.html
 
-**The Politics of Motherhood Become a Campaign-Trail Cudgel**\
-`The presidential race has exposed a fault line in American political culture over the deeply personal decision to have children.`\
-https://nytimes.com/2024/09/22/us/politics/harris-sarah-sanders-mothers.html
+**Cubs leaders agree with Craig Counsell: 'What can we do to frickin’ dominate?'**\
+`"Teams shouldn’t want to come in here and play the Cubs," Jameson Taillon said. "Wrigley shouldn’t be a fun road trip."`\
+https://nytimes.com/athletic/5783963/2024/09/22/cubs-leaders-craig-counsell-brewers/
 
-**A Republican and a Democrat Sit Across From Each Other. There’s No Punchline.**\
-`One Small Step, an initiative that facilitates conversations between people with opposing views, is trying to tackle political polarization.`\
-https://nytimes.com/2024/09/22/style/storycorps-partisan-divide-election.html
+**Want to End Poverty? Focus on One Thing.**\
+`Electrifying the world could produce the largest development gains since the 1990s.`\
+https://nytimes.com/2024/09/22/opinion/clean-energy-electricity-poverty.html
 
-**Kelsey Grammer Analyzes 40 Years of Frasier: ‘I Have Nothing to Regret’**\
-`The actor has been playing the snobby psychiatrist off and on since 1984 and has no plans to stop. He thinks the current “Frasier” reboot “could last another decade.”`\
-https://nytimes.com/2024/09/22/arts/television/kelsey-grammer-frasier.html
+**A Princeton Professor’s Advice to Young Conservatives**\
+`Grievance is not a good foundation for an identity.`\
+https://nytimes.com/2024/09/22/opinion/college-conservatives-victims-identity.html
 
