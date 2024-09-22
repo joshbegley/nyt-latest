@@ -1,3 +1,7 @@
+**With Cardinals eliminated, what's next for Paul Goldschmidt and Nolan Arenado?**\
+`Goldschmidt is a free agent after the season and even though Arenado is signed through 2027, there's no guarantee he'll remain in St. Louis.`\
+https://nytimes.com/athletic/5783105/2024/09/21/cardinals-eliminated-paul-goldschmidt-nolan-arenado/
+
 **Max Fried was focused on what could be his last 2 starts for Braves, and it showed**\
 `Fried tied Steve Avery for the most victories by a lefty in Braves history as Atlanta remains two games behind the Mets.`\
 https://nytimes.com/athletic/5784435/2024/09/21/max-fried-final-braves-starts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784380/2024/09/21/tcu-coach-ejected-sonny-dykes-sm
 **Cleveland Guardians clinch AL Central title for second time in 3 years**\
 `Despite the division being stronger this season — apart from the White Sox — Cleveland spent all but six days in first place.`\
 https://nytimes.com/athletic/5784339/2024/09/21/cleveland-guardians-clinch-al-central/
-
-**Legendary Suns radio broadcaster Al McCoy dies at 91**\
-`McCoy called his last game for the Suns on May 11, 2023, after 51 years behind the microphone.`\
-https://nytimes.com/athletic/5784353/2024/09/21/al-mccoy-suns-broadcaster-obituary/
 
