@@ -1,3 +1,7 @@
+**Panthers receive Bryce Young trade inquiries: Sources**\
+`The most recent quarterback to be traded by the team that drafted them No. 1 was Baker Mayfield, who was traded to the Panthers in 2022.`\
+https://nytimes.com/athletic/5784578/2024/09/21/panthers-bryce-young-trade-interest/
+
 **Packers vs. Titans odds, picks, how to watch: Winless Titans small favorites at home**\
 `It hasn't been pretty to be a Titans fan so far this year, and this game is close to a pick 'em in Nashville.`\
 https://nytimes.com/athletic/5779661/2024/09/21/packers-titans-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784508/2024/09/21/mississippi-state-blake-shapen-i
 **With Cardinals eliminated, what's next for Paul Goldschmidt and Nolan Arenado?**\
 `Goldschmidt is a free agent after the season and even though Arenado is signed through 2027, there's no guarantee he'll remain in St. Louis.`\
 https://nytimes.com/athletic/5783105/2024/09/21/cardinals-eliminated-paul-goldschmidt-nolan-arenado/
-
-**Max Fried was focused on what could be his last 2 starts for Braves, and it showed**\
-`Fried tied Steve Avery for the most victories by a lefty in Braves history as Atlanta remains two games behind the Mets.`\
-https://nytimes.com/athletic/5784435/2024/09/21/max-fried-final-braves-starts/
 
