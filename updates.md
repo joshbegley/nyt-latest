@@ -1,3 +1,11 @@
+**A Surprise Season of Stranger Things**\
+`Standout shows from Bally and Bottega Veneta bring Milan Fashion Week to a close. Gucci, Versace and Moschino do some recycling.`\
+https://nytimes.com/2024/09/22/style/bottega-veneta-gucci-versace-milan-fashion-week.html
+
+**Real Madrid briefing: Is Tchouameni's future at the back? Modric excels (again), Rodrygo makes point**\
+`Real Madrid took time to stamp their mark on Espanyol — The Athletic analyses the talking points from the Bernabeu`\
+https://nytimes.com/athletic/5784323/2024/09/22/real-madrid-espanyol-tchouameni-modric-rodrygo/
+
 **How important is Bijan Robinson to the Falcons offense? Five factors**\
 `The Falcons host Chris Jones, Travis Kelce and the Chiefs on "Sunday Night Football." Will Taylor Swift be there?`\
 https://nytimes.com/athletic/5782037/2024/09/22/bijan-robinson-falcons-chiefs/
