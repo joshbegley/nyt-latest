@@ -1,3 +1,7 @@
+**In a Hezbollah-Dominated Area of Beirut, a Mix of Defiance and Unease**\
+`Many residents of Dahiya were grappling with uncertainty over what comes next.`\
+https://nytimes.com/2024/09/22/world/middleeast/beirut-funeral-ibrahim-aqeel-hezbollah.html
+
 **The Briefing: Man City 2 Arsenal 2 - Controversial red, quick free kicks and rivalry ignited in classic**\
 `There was a lot to break down in this encounter, to say the least. Our writers analyse the action`\
 https://nytimes.com/athletic/5782484/2024/09/22/manchester-city-arsenal-trossard-walker/
