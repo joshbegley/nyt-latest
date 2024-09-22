@@ -1,3 +1,7 @@
+**The Briefing: Man City 2 Arsenal 2 - Controversial red, quick free kicks and rivalry ignited in classic**\
+`There was a lot to break down in this encounter, to say the least. Our writers analyse the action`\
+https://nytimes.com/athletic/5782484/2024/09/22/manchester-city-arsenal-trossard-walker/
+
 **Controversies Erupt as Trump and G.O.P. Make Critical Push to Voters**\
 `A Republican who reportedly called himself a “Black Nazi,” a false story about migrants eating cats and dogs, and a feud with Taylor Swift bring back a sense of chaos.`\
 https://nytimes.com/2024/09/22/us/politics/controversies-erupt-as-trump-and-gop-make-critical-push-to-voters.html

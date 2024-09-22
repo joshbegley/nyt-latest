@@ -11,7 +11,7 @@ https://nytimes.com/2024/09/22/obituaries/mercury-morris-dead.html
 https://nytimes.com/2024/09/22/us/north-carolina-house-collapse-rodanthe.html
 
 **The Briefing: Man City 2 Arsenal 2 - Controversial red, quick free kicks and rivalry ignited in classic**\
-`There was a lot to break down in this encounter, to say the least. Our writers analyse the action.`\
+`There was a lot to break down in this encounter, to say the least. Our writers analyse the action`\
 https://nytimes.com/athletic/5782484/2024/09/22/manchester-city-arsenal-trossard-walker/
 
 **Red Sox manager Alex Cora ejected after heated protest of call**\
