@@ -1,3 +1,11 @@
+**In One Hezbollah-Dominated Neighborhood, a Mix of Defiance and Unease**\
+`Many residents of Dahiya were grappling with uncertainty over what comes next.`\
+https://nytimes.com/2024/09/22/world/middleeast/beirut-funeral-ibrahim-aqeel-hezbollah.html
+
+**Dolphins legend 'Mercury' Morris dies at 77**\
+`Miami drafted Morris in the third round of the 1969 NFL Draft out of West Texas A&M.`\
+https://nytimes.com/athletic/5785273/2024/09/22/eugene-mercury-morris-death-dolphins/
+
 **More Than 700 Current and Former National Security Officials Back Harris**\
 `A letter signed by former secretaries of state and defense endorsed Vice President Kamala Harris and said former President Donald J. Trump poses a threat to the nation’s defense and its democratic system.`\
 https://nytimes.com/2024/09/22/us/politics/more-than-700-current-and-former-national-security-officials-back-harris.html
