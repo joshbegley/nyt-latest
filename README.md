@@ -1,3 +1,7 @@
+**An Escape from the Front Line in Ukraine**\
+`An excerpt from one of the most ambitious stories in The Times Magazine’s history.`\
+https://nytimes.com/2024/09/22/briefing/ukraine-russia-war.html
+
 **Roma CEO Souloukou resigns after fan backlash to De Rossi sacking**\
 `AS Roma chief executive officer (CEO) Lina Souloukou has announced her resignation.`\
 https://nytimes.com/athletic/5784888/2024/09/22/lina-souloukou-roma-resigns/
@@ -31,10 +35,6 @@ https://nytimes.com/2024/09/22/world/africa/congo-prison-release.html
 https://nytimes.com/athletic/5780306/2024/09/22/nfl-week-3-storylines-vikings-texans-panthers/
 
 **Explosion at an Iranian Mine Kills Dozens, State Media Says**\
-`A methane leak set off the explosion, killing at least 51 people, the country’s official media said.`\
+`A methane leak set off the explosion, the country’s official media said, and a rescue effort was underway for those believed to be trapped in the mine.`\
 https://nytimes.com/2024/09/22/world/middleeast/iran-explosion-coal-mine-methane.html
-
-**In the Sean Combs and Dominique Pelicot Trials, the Dehumanization of Women Is Exhibit A**\
-`It’s easy to miss how much these cases have in common with everyday reality.`\
-https://nytimes.com/2024/09/22/opinion/sean-combs-dominique-pelicot.html
 
