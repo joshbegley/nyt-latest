@@ -1,3 +1,19 @@
+**Barkley powers Eagles to sluggish win over Saints: Key takeaways**\
+`Barkley racked up 147 yards and two touchdowns on 17 carries. `\
+https://nytimes.com/athletic/5785751/2024/09/22/eagles-saints-takeaways-result/
+
+**As race heats up, Mets won't get ace back for regular season, but hold out hope for playoffs**\
+`NEW YORK — Kodai Senga won’t return during the regular season after all.`\
+https://nytimes.com/athletic/5785946/2024/09/22/mets-kodai-senga-injury/
+
+**Some Palm Beach Ballots Misspelled Tim Walz’s Name as ‘Tom’**\
+`Officials in Palm Beach County, Fla., said that they had emailed 257 ballots to overseas voters before catching the error and correcting it.`\
+https://nytimes.com/2024/09/22/us/politics/florida-ballots-tim-walz-misspelled.html
+
+**Malik Nabers' 2 TDs lead Giants to 21-15 win vs. Browns: Takeaways**\
+`Nabers is the first player in NFL history with over 20 receptions, 250 receiving yards and three-plus receiving TDs in his first 3 games.`\
+https://nytimes.com/athletic/5785692/2024/09/22/giants-browns-takeaways-result-nabers/
+
 **Sam Darnold's 4 TDs power Vikings to 34-7 win vs. Texans: Takeaways**\
 `Minnesota's defense held Houston to just 4-of-14 on third down and intercepted Texans quarterback CJ Stroud twice.`\
 https://nytimes.com/athletic/5785666/2024/09/22/texans-vikings-takeaways-result/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5785665/2024/09/22/rodri-injury-latest/
 **Justin Fields leads Steelers to 20-10 win vs. Chargers: Takeaways**\
 `Pittsburgh quarterback Justin Fields' performance was the exclamation point in a dominant second half by the Steelers.`\
 https://nytimes.com/athletic/5785461/2024/09/22/chargers-steelers-score-takeaways/
-
-**Criticizing Oprah, Trump Falsely Claims He Appeared on Her Show’s Final Week**\
-`As he took aim at Oprah Winfrey’s interview of Vice President Kamala Harris, former President Donald J. Trump repeated a debunked claim that he was one of the show’s last guests.`\
-https://nytimes.com/2024/09/22/us/politics/criticizing-oprah-trump-falsely-claims-he-appeared-on-her-final-show.html
-
-**Astros' Yordan Alvarez leaves game with knee injury**\
-`The Astros announced that Alvarez sustained a right knee contusion.`\
-https://nytimes.com/athletic/5785765/2024/09/22/yordan-alvarez-astros-injury/
-
-**Arteta expects '100 games' with red cards after Trossard's sending off**\
-`Arsenal manager Mikel Arteta says he expects “100 Premier League games” this season to see players sent off for delaying restarts after Leandro Trossard received a second yellow card for the offence during Sunday’s 2-2 draw with Manchester City.`\
-https://nytimes.com/athletic/5785742/2024/09/22/leandro-trossard-red-arteta-arsenal-city/
-
-**The escalating cross-border violence is raising international alarm.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/the-escalating-cross-border-violence-is-raising-international-alarm
 
