@@ -1,3 +1,7 @@
+**Marxist Leads Presidential Vote as Sri Lanka Rejects the Old Order**\
+`Anura Kumara Dissanayake’s strong showing reveals voter weariness with leadership that has led to a national economic crisis and crushing hardship for many people.`\
+https://nytimes.com/2024/09/21/world/asia/sri-lanka-election-results.html
+
 **USC let Michigan off the hook, and now the Trojans' margin for error is slim**\
 `USC showed some toughness, but the Trojans will need to play clean football the rest of the way if they hope to achieve their goals.`\
 https://nytimes.com/athletic/5784482/2024/09/21/usc-football-michigan-lincoln-riley/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/21/pageoneplus/corrections-sept-22-2024.html
 **Georgia Voters Feel Re-energized, Even as 2020 Looms Large**\
 `Many voters in the Atlanta suburbs were newly hopeful when Vice President Kamala Harris entered the race. But conservative values are still deeply rooted in the swing state.`\
 https://nytimes.com/interactive/2024/09/21/us/elections/georgia-suburbs-voters.html
-
-**No. 7 Missouri holds on against Vanderbilt in double OT: Will this hurt Tigers?**\
-`Mizzou coach Eli Drinkwitz deserves scrutiny for a pair of his fourth-down decisions. But it was both teams' kickers that changed the game.`\
-https://nytimes.com/athletic/5784396/2024/09/21/missouri-vanderbilt-college-football-score-analysis/
 

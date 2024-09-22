@@ -1,3 +1,7 @@
+**Marxist Leads Presidential Vote as Sri Lanka Rejects the Old Order**\
+`Anura Kumara Dissanayake’s strong showing reveals voter weariness with leadership that has led to a national economic crisis and crushing hardship for many people.`\
+https://nytimes.com/2024/09/21/world/asia/sri-lanka-election-results.html
+
 **USC let Michigan off the hook, and now the Trojans' margin for error is slim**\
 `USC showed some toughness, but the Trojans will need to play clean football the rest of the way if they hope to achieve their goals.`\
 https://nytimes.com/athletic/5784482/2024/09/21/usc-football-michigan-lincoln-riley/
