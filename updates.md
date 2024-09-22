@@ -1,3 +1,7 @@
+**The Briefing: Man City 2 Arsenal 2 - Controversial red, quick free-kicks and rivalry ignited in classic**\
+`There was a lot to break down in this encounter, to say the least. Our writers analyse the action.`\
+https://nytimes.com/athletic/5782484/2024/09/22/manchester-city-arsenal-trossard-walker/
+
 **For the Children of Architects, Filmmaking as Therapy**\
 `Jim Venturi shines a light on his parents, the postmodern innovators Robert Venturi and Denise Scott Brown. How architects’ hidden lives are often revealed by kids.`\
 https://nytimes.com/2024/09/22/arts/design/robert-venturi-and-denise-scott-brown-documentary.html
