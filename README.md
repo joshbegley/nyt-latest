@@ -1,3 +1,11 @@
+**Julen Lopetegui is right - he and West Ham need to do better. This was another bleak display**\
+`The new West Ham head coach is failing to implement a clear playing style on his team and they were dominated by visitors Chelsea`\
+https://nytimes.com/athletic/5783383/2024/09/22/west-ham-chelsea-lopetegui-reaction/
+
+**Arsenal, ambition and whether they should react to Rodri questioning their mentality**\
+`If Arsenal step up and take the game to City at the Etihad today - and win - it would send a big message to Rodri and the reigning champions`\
+https://nytimes.com/athletic/5773607/2024/09/22/arsenal-man-city-rodri-comments/
+
 **Cardiff 0 Leeds 2: Rampaging Ramazani, Farke needs a Plan B, Piroe proves his point**\
 `Leeds cruised to victory over woeful Cardiff, who played the majority of the game with 10 men - but there were grumbles from the away end`\
 https://nytimes.com/athletic/5783516/2024/09/22/cardiff-0-leeds-2-ramazani-piroe-farke/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5779640/2024/09/22/brazil-signings-payet-bolasie-de
 **A French Fair as Workers’ Paradise, Feting Cuisine, Music and Communism**\
 `The Fête de l’Humanité, a blend of Burning Man, Woodstock and a political convention, attracts the masses with bands, lectures and food, but here K.F.C. is C.F.K.: Communist Fried Kitchen.`\
 https://nytimes.com/2024/09/22/world/europe/france-humanity-festival-communism.html
-
-**What to Watch For in a Key German State Election**\
-`The far right and far left are poised to make significant gains in state voting on Sunday, possibly affecting the stability of the national government in Berlin.`\
-https://nytimes.com/2024/09/22/world/europe/germany-election-brandenburg.html
-
-**Bears vs. Colts odds, picks, how to watch: Two young quarterbacks face off**\
-`Anthony Richardson and the Colts are looking for their first W against Caleb Williams' Bears.`\
-https://nytimes.com/athletic/5779695/2024/09/22/bears-colts-odds-expert-picks-how-to-watch-predictions-betting/
 
