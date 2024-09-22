@@ -1,3 +1,7 @@
+**Former Dolphin Eugene 'Mercury' Morris dies at 77**\
+`Miami drafted Morris in the third round of the 1969 NFL Draft out of West Texas A&M.`\
+https://nytimes.com/athletic/5785273/2024/09/22/eugene-mercury-morris-death-dolphins/
+
 **Hezbollah’s latest barrages went deeper into Israel.**\
 `The overnight barrages appeared to be the furthest strikes by rockets into Israeli territory since Hezbollah started firing at Israel a little over a year ago in solidarity with Hamas.`\
 https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/hezbollahs-latest-barrages-went-deeper-into-israel

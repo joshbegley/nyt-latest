@@ -1,3 +1,7 @@
+**Former Dolphin Eugene 'Mercury' Morris dies at 77**\
+`Miami drafted Morris in the third round of the 1969 NFL Draft out of West Texas A&M.`\
+https://nytimes.com/athletic/5785273/2024/09/22/eugene-mercury-morris-death-dolphins/
+
 **Hezbollah’s latest barrages went deeper into Israel.**\
 `The overnight barrages appeared to be the furthest strikes by rockets into Israeli territory since Hezbollah started firing at Israel a little over a year ago in solidarity with Hamas.`\
 https://nytimes.com/live/2024/09/22/world/gaza-israel-hamas-hezbollah/hezbollahs-latest-barrages-went-deeper-into-israel
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/us/politics/trump-vance-nativist.html
 **Pan-Seared Chicken With Harissa, Dates and Citrus**\
 `Sweet and sour with a peppery kick you can mellow out with dollops of yogurt.`\
 https://nytimes.com/2024/09/22/dining/pan-seared-chicken-with-harissa-dates-and-citrus.html
-
-**Lando Norris wins F1's Singapore Grand Prix**\
-`The McLaren driver's dominant win extended his team's lead in the constructors' standings. `\
-https://nytimes.com/athletic/5785036/2024/09/22/lando-norris-f1-singapore-gp-win/
 
