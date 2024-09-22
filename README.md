@@ -1,3 +1,7 @@
+**Heavy Rain in Japan Causes Deadly Flooding and Landslides**\
+`One person is dead and seven others are missing in Noto Peninsula, state media reported. The region is still recovering from a catastrophic earthquake earlier this year.`\
+https://nytimes.com/2024/09/22/world/asia/japan-rain-flooding-landslide.html
+
 **Yankees' magic number for AL East title falls to 3, Aaron Boone gets 600th win**\
 `The Yankees could capture the American League East crown as early as Tuesday.`\
 https://nytimes.com/athletic/5784654/2024/09/22/yankees-magic-number-playoffs-aaron-boone-600-wins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783516/2024/09/22/cardiff-0-leeds-2-ramazani-piroe
 **Interim N.Y.P.D. Commissioner Says Federal Agents Searched His Homes**\
 `Thomas G. Donlon, who recently took the interim role after Edward A. Caban resigned under a cloud, said the authorities had seized material unrelated to the Police Department.`\
 https://nytimes.com/2024/09/22/nyregion/nypd-thomas-donlon-search.html
-
-**Colorado forces OT with Hail Mary, beats Baylor in dramatic finish**\
-`Colorado two-way star Travis Hunter forced a fumble at the goal line for a touchback to beat the Bears in overtime, 38-31.`\
-https://nytimes.com/athletic/5784621/2024/09/22/colorado-baylor-college-football-score-analysis/
 
