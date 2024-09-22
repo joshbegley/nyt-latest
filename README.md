@@ -1,3 +1,7 @@
+**Max Fried was focused on what could be his last 2 starts for Braves, and it showed**\
+`Fried tied Steve Avery for the most victories by a lefty in Braves history as Atlanta remains two games behind the Mets.`\
+https://nytimes.com/athletic/5784435/2024/09/21/max-fried-final-braves-starts/
+
 **What Canucks' Kevin Lankinen signing means and other training camp observations after Day 3**\
 `Adding the 29-year-old goalie on a one-year, $887,000 deal gives Vancouver another experienced NHL option in net, which was sorely needed.`\
 https://nytimes.com/athletic/5784270/2024/09/21/canucks-sign-kevin-lankinen-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784339/2024/09/21/cleveland-guardians-clinch-al-ce
 **Legendary Suns radio broadcaster Al McCoy dies at 91**\
 `McCoy called his last game for the Suns on May 11, 2023, after 51 years behind the microphone.`\
 https://nytimes.com/athletic/5784353/2024/09/21/al-mccoy-suns-broadcaster-obituary/
-
-**N.Y.P.D. Understated Woman’s Wound in Subway Shooting, Lawyer Says**\
-`Kerry Gahalal, who was struck when officers shot a knife-wielding man at a Brooklyn station, was not simply “grazed” as officials said, according to a lawyer for the woman’s family.`\
-https://nytimes.com/2024/09/21/nyregion/nypd-subway-shooting-kerry-gahalal.html
 
