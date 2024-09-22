@@ -1,3 +1,11 @@
+**AP Top 25 takeaways: Who's No. 1? Tennessee can't be dismissed in SEC-heavy debate**\
+`This week's AP Top 25 poll highlighted the big-game divergence of revived Tennessee and reeling Nebraska.`\
+https://nytimes.com/athletic/5786094/2024/09/22/ap-top-25-poll-rankings-tennessee/
+
+**Lions' Sam LaPorta exits vs. Cardinals with calf injury**\
+`He was on the field after being carted to the locker room, but immediately limped to the sideline after attempting to return.`\
+https://nytimes.com/athletic/5786196/2024/09/22/sam-laporta-calf-injury-lions-cardinals/
+
 **Canucks training camp scrimmage: 3 players who helped themselves and 3 who didn't**\
 `What we saw at Sunday's intrasquad scrimmage, including a look at the Canucks' new power-play mentality.`\
 https://nytimes.com/athletic/5785856/2024/09/22/canucks-training-camp-players-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5786108/2024/09/22/connecticut-sun-indiana-fever-ca
 **NFL Week 3 takeaways: Vikings a Super Bowl contender? Is Sirianni's seat still hot despite win?**\
 `Plus, whether growing pains are good for Caleb Williams, and whether the Steelers have found their quarterback in Justin Fields.`\
 https://nytimes.com/athletic/5786015/2024/09/22/nfl-week-3-takeaways-vikings-contender-sirianni-eagles/
-
-**Yankees' Aaron Judge hits 55th home run**\
-`Judge now leads the Dodgers' Shohei Ohtani by three for the most home runs in the majors. `\
-https://nytimes.com/athletic/5786099/2024/09/22/yankees-aaron-judge-home-runs/
-
-**Monday Briefing: Israel and Hezbollah Trade Threats**\
-`Plus, a Russian military officer’s story of desertion and escape.`\
-https://nytimes.com/2024/09/22/briefing/hezbollah-israel-controversy-election-sri-lanka.html
 
