@@ -1,3 +1,11 @@
+**Greenberg: Feeling blue? So are the Bears after wasting a chance for a win against Colts**\
+`On another wasted Sunday, the Bears gave their fans a lot of opportunities to work in some profanity during a 21-16 loss to the Colts.`\
+https://nytimes.com/athletic/5786264/2024/09/22/bears-colts-caleb-williams/
+
+**Andy Dalton rockets Panthers to 36-22 win over Raiders: Takeaways**\
+`Dalton became the first quarterback to pass for 300 yards and three touchdowns in a game this season.`\
+https://nytimes.com/athletic/5786224/2024/09/22/panthers-raiders-takeaways-result/
+
 **‘He Saved Many Lives’: Small Kentucky Community Mourns Slain Judge**\
 `The fatal shooting of the judge has rocked the town of Whitesburg. On Sunday, friends, family and community members gathered to remember the victim.`\
 https://nytimes.com/2024/09/22/us/kentucky-judge-shooting-memorial.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5785600/2024/09/22/white-sox-most-losses-mlb-histor
 **Dolphins QB Skylar Thompson ruled out with chest injury**\
 `Thompson went 13-of-19 passing for 107 yards before exiting Sunday's game. `\
 https://nytimes.com/athletic/5786252/2024/09/22/dolphins-skylar-thompson-chest-injury/
-
-**AP Top 25 takeaways: Who's No. 1? Tennessee can't be dismissed in SEC-heavy debate**\
-`This week's AP Top 25 poll highlighted the big-game divergence of revived Tennessee and reeling Nebraska.`\
-https://nytimes.com/athletic/5786094/2024/09/22/ap-top-25-poll-rankings-tennessee/
-
-**Lions' Sam LaPorta exits vs. Cardinals with calf injury**\
-`He was on the field after being carted to the locker room, but immediately limped to the sideline after attempting to return.`\
-https://nytimes.com/athletic/5786196/2024/09/22/sam-laporta-calf-injury-lions-cardinals/
 
