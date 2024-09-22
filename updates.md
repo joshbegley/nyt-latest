@@ -1,3 +1,11 @@
+**Thomas, Sun top Fever in Caitlin Clark's playoff debut**\
+`Thomas now owns four of the six triple-doubles in WNBA playoff history and collected her latest on the day she finished fifth in MVP voting.`\
+https://nytimes.com/athletic/5786108/2024/09/22/connecticut-sun-indiana-fever-caitlin-clark-alyssa-thomas/
+
+**NFL Week 3 takeaways: Vikings a Super Bowl contender? Is Sirianni's seat still hot despite win?**\
+`Plus, whether growing pains are good for Caleb Williams, and whether the Steelers have found their quarterback in Justin Fields.`\
+https://nytimes.com/athletic/5786015/2024/09/22/nfl-week-3-takeaways-vikings-contender-sirianni-eagles/
+
 **Yankees' Aaron Judge hits 55th home run**\
 `Judge now leads the Dodgers' Shohei Ohtani by three for the most home runs in the majors. `\
 https://nytimes.com/athletic/5786099/2024/09/22/yankees-aaron-judge-home-runs/
