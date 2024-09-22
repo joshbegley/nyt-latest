@@ -1,3 +1,15 @@
+**Charging the Parents of Mass Shooters**\
+`Readers discuss a guest essay criticizing charges against Colin Gray. Also: Jan. 6; turmoil in Central America; learning from dogs; blindness and courage.`\
+https://nytimes.com/2024/09/22/opinion/mass-shooters-parents.html
+
+**On the Trail, Trump and Vance Sharpen a Nativist, Anti-Immigrant Tone**\
+`From calling for mass deportations to spreading false claims about migrants’ eating pets, former President Donald J. Trump and his running mate, Senator JD Vance of Ohio, are taking a hard line.`\
+https://nytimes.com/2024/09/22/us/politics/trump-vance-nativist.html
+
+**Pan-Seared Chicken With Harissa, Dates and Citrus**\
+`Sweet and sour with a peppery kick you can mellow out with dollops of yogurt.`\
+https://nytimes.com/2024/09/22/dining/pan-seared-chicken-with-harissa-dates-and-citrus.html
+
 **Lando Norris wins F1's Singapore Grand Prix**\
 `The McLaren driver's dominant win extended his team's lead in the constructors' standings. `\
 https://nytimes.com/athletic/5785036/2024/09/22/lando-norris-f1-singapore-gp-win/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/22/us/trump-harris-election/heres-the-latest-on
 **Election Live Updates: Trump Says It’s ‘Too Late’ for Another Debate**\
 `Donald Trump resisted pressure from Kamala Harris for a second debate as he rallied on Saturday in North Carolina. He also did not address a scandal surrounding the state’s G.O.P. nominee for governor.`\
 https://nytimes.com/live/2024/09/22/us/trump-harris-election
-
-**An Escape from the Front Line in Ukraine**\
-`An excerpt from one of the most ambitious stories in The Times Magazine’s history.`\
-https://nytimes.com/2024/09/22/briefing/ukraine-russia-war.html
-
-**Roma CEO Souloukou resigns after fan backlash to De Rossi sacking**\
-`AS Roma chief executive officer (CEO) Lina Souloukou has announced her resignation.`\
-https://nytimes.com/athletic/5784888/2024/09/22/lina-souloukou-roma-resigns/
-
-**Lowetide: Were the Oilers’ summer moves supported by analytics?**\
-`The numbers suggest Edmonton's management improved the team in the offseason.`\
-https://nytimes.com/athletic/5783591/2024/09/22/edmonton-oilers-summer-moves-analytics/
 
