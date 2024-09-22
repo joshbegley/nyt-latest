@@ -1,3 +1,7 @@
+**Giants vs. Browns odds, picks: Struggling offenses signal low-scoring affair**\
+`Daniel Jones and the Giants head to Cleveland in a game with two struggling offenses.`\
+https://nytimes.com/athletic/5779564/2024/09/21/giants-browns-odds-expert-picks-how-to-watch-predictions-betting/
+
 **What we learned from Arch Manning's first college start**\
 `Manning finished 15 of 29 passing for 258 yards, with two touchdowns and two interceptions.`\
 https://nytimes.com/athletic/5784533/2024/09/21/arch-manning-highlights-texas-ulm/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784270/2024/09/21/canucks-sign-kevin-lankinen-trai
 **As the Mets wait on Francisco Lindor and Kodai Senga, they're oozing with confidence**\
 `The Mets bounced back from a lopsided loss the night before, riding on belief while awaiting the return of two key players.`\
 https://nytimes.com/athletic/5784416/2024/09/21/mets-francisco-lindor-kodai-senga-confidence/
-
-**Buildings in Suburban Beirut Badly Damaged by Israeli Strike**\
-`Crews in southern Lebanon sifted through rubble a day after an Israeli attack that targeted a meeting of Hezbollah commanders. The airstrike killed at least 37 people, Lebanon’s health ministry said.`\
-https://nytimes.com/video/world/middleeast/100000009711905/israel-hezbollah-beirut-lebanon.html
 
