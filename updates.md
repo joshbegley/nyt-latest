@@ -1,3 +1,7 @@
+**Max Fried was focused on what could be his last 2 starts for Braves, and it showed**\
+`Fried tied Steve Avery for the most victories by a lefty in Braves history as Atlanta remains two games behind the Mets.`\
+https://nytimes.com/athletic/5784435/2024/09/21/max-fried-final-braves-starts/
+
 **What Canucks' Kevin Lankinen signing means and other training camp observations after Day 3**\
 `Adding the 29-year-old goalie on a one-year, $887,000 deal gives Vancouver another experienced NHL option in net, which was sorely needed.`\
 https://nytimes.com/athletic/5784270/2024/09/21/canucks-sign-kevin-lankinen-training-camp/
