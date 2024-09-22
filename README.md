@@ -1,3 +1,11 @@
+**Thomas, Sun top Fever in Caitlin Clark's playoff debut**\
+`Thomas now owns four of the six triple-doubles in WNBA playoff history and collected her latest on the day she finished fifth in MVP voting.`\
+https://nytimes.com/athletic/5786108/2024/09/22/connecticut-sun-indiana-fever-caitlin-clark-alyssa-thomas/
+
+**NFL Week 3 takeaways: Vikings a Super Bowl contender? Is Sirianni's seat still hot despite win?**\
+`Plus, whether growing pains are good for Caleb Williams, and whether the Steelers have found their quarterback in Justin Fields.`\
+https://nytimes.com/athletic/5786015/2024/09/22/nfl-week-3-takeaways-vikings-contender-sirianni-eagles/
+
 **Yankees' Aaron Judge hits 55th home run**\
 `Judge now leads the Dodgers' Shohei Ohtani by three for the most home runs in the majors. `\
 https://nytimes.com/athletic/5786099/2024/09/22/yankees-aaron-judge-home-runs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5785692/2024/09/22/giants-browns-takeaways-result-n
 **Sam Darnold's 4 TDs power Vikings to 34-7 win vs. Texans: Takeaways**\
 `Minnesota's defense held Houston to just 4-of-14 on third down and intercepted Texans quarterback CJ Stroud twice.`\
 https://nytimes.com/athletic/5785666/2024/09/22/texans-vikings-takeaways-result/
-
-**Former Hugh Freeze QB Bo Wallace: 'maybe no one wants to play' for coach**\
-`Bo Wallace blasted his former coach Hugh Freeze for not taking responsibility after Auburn lost to Arkansas.`\
-https://nytimes.com/athletic/5785795/2024/09/22/auburn-football-hugh-freeze-bo-wallace/
-
-**Bo Nix lands first win as Broncos cruise past Bucs 26-7: Takeaways**\
-`Nix, the 2024 first-round passer, rushed for a touchdown and threw for 216 yards.`\
-https://nytimes.com/athletic/5785813/2024/09/22/broncos-buccaneers-takeaways-result/
 
