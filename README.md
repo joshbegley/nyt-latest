@@ -1,3 +1,7 @@
+**Tennessee looks like a contender in wrecking Oklahoma's SEC debut: What it means for both teams**\
+`Tennessee has a team in the Playoff race — that's better than redemption for Josh Heupel. And the Sooners now have a decision to make at QB.`\
+https://nytimes.com/athletic/5784488/2024/09/21/tennessee-oklahoma-football-sec/
+
 **Giants vs. Browns odds, picks: Struggling offenses signal low-scoring affair**\
 `Daniel Jones and the Giants head to Cleveland in a game with two struggling offenses.`\
 https://nytimes.com/athletic/5779564/2024/09/21/giants-browns-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784435/2024/09/21/max-fried-final-braves-starts/
 **What Canucks' Kevin Lankinen signing means and other training camp observations after Day 3**\
 `Adding the 29-year-old goalie on a one-year, $875,000 deal gives Vancouver another experienced NHL option in net, which was sorely needed.`\
 https://nytimes.com/athletic/5784270/2024/09/21/canucks-sign-kevin-lankinen-training-camp/
-
-**As the Mets wait on Francisco Lindor and Kodai Senga, they're oozing with confidence**\
-`The Mets bounced back from a lopsided loss the night before, riding on belief while awaiting the return of two key players.`\
-https://nytimes.com/athletic/5784416/2024/09/21/mets-francisco-lindor-kodai-senga-confidence/
 
