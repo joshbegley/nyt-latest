@@ -1,4 +1,8 @@
-**Barkley powers Eagles to sluggish win over Saints: Key takeaways**\
+**Kathryn Crosby, Actress and Bing Crosby’s Widow, Dies at 90**\
+`She was a Texas-born starlet when she married the beloved crooner, but put aside her career at his urging.`\
+https://nytimes.com/2024/09/22/obituaries/kathryn-crosby-dead.html
+
+**Barkley powers Eagles to sluggish 15-12 win over Saints: Takeaways**\
 `Barkley racked up 147 yards and two touchdowns on 17 carries. `\
 https://nytimes.com/athletic/5785751/2024/09/22/eagles-saints-takeaways-result/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785537/2024/09/22/marc-andre-ter-stegen-injury-kne
 **Rodri injury may be the most significant moment for Man City in a match of a million things**\
 `“Rodri is a strong man,” Pep Guardiola said. “If he leaves the pitch in this action it is because he felt something."`\
 https://nytimes.com/athletic/5785665/2024/09/22/rodri-injury-latest/
-
-**Justin Fields leads Steelers to 20-10 win vs. Chargers: Takeaways**\
-`Pittsburgh quarterback Justin Fields' performance was the exclamation point in a dominant second half by the Steelers.`\
-https://nytimes.com/athletic/5785461/2024/09/22/chargers-steelers-score-takeaways/
 
