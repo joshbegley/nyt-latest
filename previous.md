@@ -1,3 +1,7 @@
+**Jones: Saints got 'hit in the mouth' in loss to Eagles. Their response will be telling**\
+`One loss does not define a season, but New Orleans will have to show against Atlanta that its first two weeks weren't fool's gold.`\
+https://nytimes.com/athletic/5786290/2024/09/22/saints-loss-eagles-derek-carr/
+
 **Lamar Jackson, Ravens Cowboys in 28-25 win: Takeaways**\
 `Jackson threw for a touchdown and rushed for another while relying on veteran running back Derrick Henry.`\
 https://nytimes.com/athletic/5786198/2024/09/22/ravens-cowboys-takeaways-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785904/2024/09/22/caitlin-clark-wnba-playoffs-abc-
 **Cat Missing in Yellowstone Returns Home to California After an 800-Mile Trek**\
 `The owners of Rayne Beau, the 2-year old Siamese cat, have no idea how their cat made it back, but call his return a “miracle.”`\
 https://nytimes.com/2024/09/22/us/cat-yellowstone-california.html
-
-**Braves takeaways: Chris Sale won't start twice in final week, Matt Olson's resurgence**\
-`The Braves are focused on a pivotal series against the Mets, with Sale slated to pitch on Wednesday.`\
-https://nytimes.com/athletic/5786232/2024/09/22/braves-chris-sale-final-week/
 
