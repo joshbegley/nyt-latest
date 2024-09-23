@@ -1,3 +1,11 @@
+**Mack Brown plans to finish 2024 season at UNC: Sources**\
+`In 2018, 10 months before being hired at North Carolina, Brown was inducted into the College Football Hall of Fame.`\
+https://nytimes.com/athletic/5784418/2024/09/23/mack-brown-unc-jmu-locker-room-speech/
+
+**Mayo: Jacoby Brissett 'still our starting quarterback'**\
+`This is the second time Mayo has endorsed Brissett as the Patriots starter since benching him in the fourth quarter of Thursday night's loss`\
+https://nytimes.com/athletic/5788728/2024/09/23/jacoby-brissett-starting-qb-patriots/
+
 **Ukraine Needs to Be Realistic About Its Goals, Czech President Says**\
 `President Petr Pavel, a former NATO general who has been vocal in his support for Ukraine, said Kyiv needed to accept that some territory could remain under Russian control, at least “temporarily.”`\
 https://nytimes.com/2024/09/23/world/europe/ukraine-war-goals-russia-czech-president.html
