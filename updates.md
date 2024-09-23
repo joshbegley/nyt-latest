@@ -1,3 +1,7 @@
+**In delivering Panthers' stunning win over Raiders, Andy Dalton validated Dave Canales' decision**\
+`The Panthers looked like a different team with Dalton running the offense Sunday in Las Vegas. `\
+https://nytimes.com/athletic/5787181/2024/09/22/panthers-andy-dalton-dave-canales-bryce-young/
+
 **Monday Briefing: Israel and Hezbollah Trade Threats**\
 `Plus, a Russian military officer’s story of desertion and escape.`\
 https://nytimes.com/2024/09/22/briefing/hezbollah-israel-trump-germany.html

@@ -1,3 +1,7 @@
+**In delivering Panthers' stunning win over Raiders, Andy Dalton validated Dave Canales' decision**\
+`The Panthers looked like a different team with Dalton running the offense Sunday in Las Vegas. `\
+https://nytimes.com/athletic/5787181/2024/09/22/panthers-andy-dalton-dave-canales-bryce-young/
+
 **Monday Briefing: Israel and Hezbollah Trade Threats**\
 `Plus, a Russian military officer’s story of desertion and escape.`\
 https://nytimes.com/2024/09/22/briefing/hezbollah-israel-trump-germany.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5787081/2024/09/22/david-bell-fired-reds-manager/
 **Kenley Jansen to the IL, Red Sox season on the brink: What to watch in the final week**\
 `The Red Sox won two games on Sunday but lost another key piece. Their playoff odds are long. These are the goals they should focus on.`\
 https://nytimes.com/athletic/5786924/2024/09/22/kenley-jansen-il-red-sox-season-goals/
-
-**Padres must wait to clinch postseason berth, but bigger goals remain within reach**\
-`“This is what Peter built. We’re just taking care of it,” Fernando Tatis Jr. said. “We’re definitely doing it for him on the front line."`\
-https://nytimes.com/athletic/5786886/2024/09/22/padres-postseason-berth-bigger-goals/
 
