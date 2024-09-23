@@ -1,3 +1,7 @@
+**WSL agree new sponsorship deal with Barclays**\
+`The Women’s Super League (WSL) have agreed a new three-year sponsorship deal with Barclays.`\
+https://nytimes.com/athletic/5787811/2024/09/23/womens-super-league-deal-barclays/
+
 **This Week in Mets: For the Mets, it all goes through Atlanta — as it should**\
 `With a wild-card spot at stake, the Mets have lined up their best arms, as have the Braves. It shouldn’t be any other way.`\
 https://nytimes.com/athletic/5787365/2024/09/23/mets-braves-wild-card-race/
