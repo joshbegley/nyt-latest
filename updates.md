@@ -1,3 +1,11 @@
+**Nixon Fought a War on Drugs He Knew Was Unjust**\
+`It was because of the worst kind of prejudice and politics.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/nixon-marijuana-unjust
+
+**A Day After Most of His Staff Resigned, Mark Robinson Is Continuing to Campaign**\
+`The Republican lieutenant governor said he would hire new staff soon, following a CNN report linking him to disturbing comments on a porn site.`\
+https://nytimes.com/2024/09/23/us/politics/mark-robinson-north-carolina-governor-campaign.html
+
 **Saints' Payton Turner denies spitting on Eagles' DeVonta Smith**\
 `It's another layer to the Eagles' 15-12 win over the Saints, which possessed contentious moments during and after the game.`\
 https://nytimes.com/athletic/5788385/2024/09/23/payton-turner-devonta-smith-spitting-saints-eagles/

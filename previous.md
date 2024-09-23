@@ -1,3 +1,11 @@
+**Nixon Fought a War on Drugs He Knew Was Unjust**\
+`It was because of the worst kind of prejudice and politics.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/nixon-marijuana-unjust
+
+**A Day After Most of His Staff Resigned, Mark Robinson Is Continuing to Campaign**\
+`The Republican lieutenant governor said he would hire new staff soon, following a CNN report linking him to disturbing comments on a porn site.`\
+https://nytimes.com/2024/09/23/us/politics/mark-robinson-north-carolina-governor-campaign.html
+
 **Saints' Payton Turner denies spitting on Eagles' DeVonta Smith**\
 `It's another layer to the Eagles' 15-12 win over the Saints, which possessed contentious moments during and after the game.`\
 https://nytimes.com/athletic/5788385/2024/09/23/payton-turner-devonta-smith-spitting-saints-eagles/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/23/us/politics/trump-president-2028.html
 **JD Vance Has Turned to a Minnesota Republican to Help Him Prepare for the Debate**\
 `Donald J. Trump’s running mate invited Representative Tom Emmer to stand in for his fellow Minnesotan, Gov. Tim Walz, ahead of the vice-presidential debate next month.`\
 https://nytimes.com/2024/09/23/us/politics/vance-debate-prep-emmer.html
-
-**Alan Sparhawk of Low Lost His Other Half. He’s Learning to Sing Again.**\
-`Alongside his wife, Mimi Parker, the musician created one of indie-rock’s most arresting bands. Two years after her death, he returns with “White Roses, My God.”`\
-https://nytimes.com/2024/09/23/arts/music/low-alan-sparkhawk-white-roses-my-god.html
-
-**NFL Week 4 odds, spreads, schedule: Should we fade the top favorites?**\
-`Some of the top favorites have fallen in the first three weeks. Will expectations and reality even out in Week 4? `\
-https://nytimes.com/athletic/5788279/2024/09/23/nfl-week-4-odds-spreads-schedule-49ers-are-biggest-favorites-but-favorites-have-been-falling/
 
