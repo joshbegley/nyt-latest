@@ -1,3 +1,11 @@
+**Browns' offense hasn't been just bad, it's been borderline hopeless**\
+`Following its latest loss to the Giants, it's not too early to declare Cleveland's offense as being in a true state of emergency.. `\
+https://nytimes.com/athletic/5786421/2024/09/22/browns-offense-loss-giants/
+
+**In spite of Anthony Richardson's ugly outing, Colts outlast Bears, avoid 0-3 start**\
+`Richardson found small ways to contribute to the Colts' win, but as a passer on Sunday, he wasn't nearly good enough.  `\
+https://nytimes.com/athletic/5786524/2024/09/22/colts-anthony-richardson-bears-win/
+
 **Another sloppy win has Eagles 2-1, but Nick Sirianni knows current play is 'unsustainable'**\
 `The Eagles won but there are still many problems to address.`\
 https://nytimes.com/athletic/5786125/2024/09/22/eagles-win-saints-nick-sirianni-unsustainable/

@@ -18,6 +18,10 @@ https://nytimes.com/2024/09/22/us/chicago-southside-whitesox.html
 `Leslie Boileau, a sheriff’s deputy in Marion County, Fla., said that he had “accidentally discharged” a loaded gun at his girlfriend, as they were cleaning and dry-firing guns during a lesson.`\
 https://nytimes.com/2024/09/22/us/florida-deputy-gun-death.html
 
+**Defiant Giants rebound from nightmare start to game, season to get desperately needed win**\
+`"Losers have a mentality. Losing happens, but we’re not going to have no loser mentality. We're going to ball."`\
+https://nytimes.com/athletic/5786438/2024/09/22/giants-win-browns-brian-daboll/
+
 **Sam Darnold's performance — and health scare — cements role in Vikings' stellar start**\
 `The narrative surrounding Darnold has clearly changed after his four-touchdown day lifts Vikings to dominant win over Texans, 3-0 start.`\
 https://nytimes.com/athletic/5786551/2024/09/22/sam-darnold-vikings-texans-week-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786238/2024/09/22/steelers-victory-chargers-justin
 **Popper: Will anyone in the Chargers organization protect Justin Herbert from himself?**\
 `There's no denying Herbert's toughness but the organization's job is to protect its greatest asset, even if it means missing a game.`\
 https://nytimes.com/athletic/5786531/2024/09/22/chargers-justin-herbert-steelers-ankle-injury/
-
-**Packers' 'ridiculous' pass rush vs. Titans showed why sights are set on Super Bowl**\
-`The Packers registered eight sacks Sunday, tied for the fourth most in a game in franchise history.`\
-https://nytimes.com/athletic/5786228/2024/09/22/packers-win-titans-sacks-defense/
 
