@@ -1,3 +1,7 @@
+**Biden Administration Proposes Ban on Chinese Software in Vehicles**\
+`Federal officials acknowledged that few Chinese vehicles were on U.S. roads now, but said that the administration wanted to take proactive measures to strengthen national security.`\
+https://nytimes.com/2024/09/23/us/politics/chinese-software-ban-cars-biden.html
+
 **Monitoreo de la tormenta tropical John, en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de John.`\
 https://nytimes.com/interactive/2024/09/23/weather/john-mapa-trayectoria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751309/2024/09/23/liam-ohgren-minnesota-wild-roste
 **The Oakland A's are leaving. What I'll carry with me after 4 decades as a fan**\
 `There is a saying, "Oakland against the world," that speaks to what it has meant to be an A’s fan.`\
 https://nytimes.com/athletic/5754764/2024/09/23/oakland-athletics-appreciation-fan-memories/
-
-**Raiders' recipe for disaster: How Las Vegas was embarrassed in loss to Panthers**\
-`Among the issues: No pressure on third down, the middle of the field was wide open, the run game stunk and Gardner Minshew was out of sync.`\
-https://nytimes.com/athletic/5787045/2024/09/23/raiders-loss-panthers-issues-minshew-pass-rush/
 

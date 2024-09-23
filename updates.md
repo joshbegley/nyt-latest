@@ -1,3 +1,7 @@
+**Biden Administration Proposes Ban on Chinese Software in Vehicles**\
+`Federal officials acknowledged that few Chinese vehicles were on U.S. roads now, but said that the administration wanted to take proactive measures to strengthen national security.`\
+https://nytimes.com/2024/09/23/us/politics/chinese-software-ban-cars-biden.html
+
 **Monitoreo de la tormenta tropical John, en vivo**\
 `Consulta la trayectoria probable y las horas de llegada de los vientos de John.`\
 https://nytimes.com/interactive/2024/09/23/weather/john-mapa-trayectoria.html
