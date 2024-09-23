@@ -1,3 +1,19 @@
+**Israel Launches Deadly Strikes Across Gaza, Local Officials Say**\
+`The latest in a series of strikes on schools being used as shelters killed three in Nuseirat, according to the Palestinian Civil Defense. Israel has said the buildings were being used by Hamas militants as a command center.`\
+https://nytimes.com/2024/09/23/world/middleeast/gaza-israel-strikes.html
+
+**Trump Says He Wouldn’t Run for President in 2028 if He Loses This Year**\
+`The former president, who is the Republican nominee for the third time, would be 82 on Election Day in 2028. That’s older than President Biden is now.`\
+https://nytimes.com/2024/09/23/us/politics/trump-president-2028.html
+
+**JD Vance Has Turned to a Minnesota Republican to Help Him Prepare for the Debate**\
+`Donald J. Trump’s running mate invited Representative Tom Emmer to stand in for his fellow Minnesotan, Gov. Tim Walz, ahead of the vice-presidential debate next month.`\
+https://nytimes.com/2024/09/23/us/politics/vance-debate-prep-emmer.html
+
+**California Sues Exxon Over Plastics Pollution and ‘Myth’ of Recycling**\
+`The lawsuit, seeking ‘multiple billions of dollars,’ opens a new front in the legal battles with oil and gas companies over climate and environmental issues.`\
+https://nytimes.com/2024/09/23/climate/california-exxon-mobil-plastics-pollution-recycling-lawsuit.html
+
 **JD Vance has turned to a Minnesota Republican to help him prepare for the debate.**\
 `By Michael C. Bender`\
 https://nytimes.com/live/2024/09/23/us/trump-harris-election/vance-debate-prep-emmer
