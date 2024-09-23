@@ -16,6 +16,12 @@ https://nytimes.com/athletic/5787397/2024/09/22/49ers-rams-loss-ronnie-bell-spec
 `\
 https://nytimes.com/athletic/5787397/2024/09/22/49ers-rams-loss-ronnie-bell-special-teams/
 
+**The Rams, long the 49ers’ ‘get right’ foe, expose all their flaws**\
+`The 49ers let a game slip through their hands — at one point, literally — and in doing so dug themselves an early-season hole.
+
+`\
+https://nytimes.com/athletic/5787397/2024/09/22/49ers-rams-loss-ronnie-bell-special-teams/
+
 **Fantasy football Week 3 takeaways: Sam Darnold is the early MVP, Miami is a mess without Tua and more**\
 `Michael Salfino shares his takeaways from Week 3, including his belief in the staying power of the Kyler Murray-led Arizona offense. `\
 https://nytimes.com/athletic/5787049/2024/09/23/fantasy-football-week-3-takeaways/

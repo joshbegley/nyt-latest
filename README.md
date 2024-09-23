@@ -1,3 +1,7 @@
+**City and Arsenal's bad blood: Clear on the pitch - and it goes right to the top of both**\
+`The issues between Manchester City and Arsenal are not just confined to the football pitch`\
+https://nytimes.com/athletic/5770847/2024/09/23/manchester-city-arsenal-rivalry/
+
 **Arsenal stood tall and left a mark on Manchester City - there was animosity and menace**\
 `It was not the victory that Arsenal so desperately wanted but given the circumstances, it was a triumph of mentality.`\
 https://nytimes.com/athletic/5786138/2024/09/23/arsenal-man-city-resilience/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/world/asia/refugees-women-soccer-myanmar-thailand
 **Quote of the Day: An Annual Festival That Is a True Communist Party**\
 `Quotation of the Day for Monday, September 22, 2024.`\
 https://nytimes.com/2024/09/23/pageoneplus/quote-of-the-day-an-annual-festival-that-is-a-true-communist-party.html
-
-**Britain’s Prime Minister, Bruised by a Dispute Over Freebies, Badly Needs a Reset**\
-`Prime Minister Keir Starmer is under pressure to give an already disillusioned public some good news when he speaks at the Labour Party conference on Tuesday.`\
-https://nytimes.com/2024/09/23/world/europe/uk-prime-minister-keir-starmer-public-opinion.html
 
