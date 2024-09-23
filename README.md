@@ -1,7 +1,3 @@
-**Parents Race to Get Children From Schools as Fear Spreads in Beirut**\
-`Lebanon’s Education Ministry ordered some schools to close amid warnings from Israel that it was intensifying strikes against Hezbollah and calls for residents to evacuate.`\
-https://nytimes.com/2024/09/23/world/middleeast/lebanon-beirut-israel-hezbollah.html
-
 **Projecting the Golden Knights' opening-night lineup after 1 week of camp**\
 `Who will get the spot alongside Ivan Barbashev and Jack Eichel on the first line?`\
 https://nytimes.com/athletic/5785336/2024/09/23/golden-knights-lines-defense/
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/09/23/us/trump-harris-election
 **Intel’s Chips on the Table**\
 `Rivals and at least one big investor are circling the embattled semiconductor giant. The Biden administration is sure to keep an eye on any deal in such a strategically important sector.`\
 https://nytimes.com/2024/09/23/business/dealbook/intels-chips-qualcomm-apollo.html
+
+**Padres takeaways: Starting pitching vs. Dodgers, Xander Bogaerts readjusting at short**\
+`The Padres already hold an important tiebreaker against the Dodgers, and their starting pitching advantage looks significant.`\
+https://nytimes.com/athletic/5787085/2024/09/23/padres-starting-pitchers-dodgers-series/
 
