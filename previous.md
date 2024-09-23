@@ -1,3 +1,7 @@
+**6 Dead in Japan After Record Rainfall Causes Flooding**\
+`The downpour drenched the Noto Peninsula on Saturday, triggering landslides and washing away people and homes, Japan’s national broadcaster said.`\
+https://nytimes.com/2024/09/23/us/japan-floods-noto-dead.html
+
 **Popovic named Socceroos head coach**\
 `Former Crystal Palace defender Tony Popovic has been appointed head coach of Australia through to the end of the 2026 World Cup.`\
 https://nytimes.com/athletic/5787637/2024/09/23/tony-popovic-australia-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah
 **Newcastle's deficiencies came to fore at Fulham - how is Howe going to fix them?**\
 `Newcastle's results this season had papered over the cracks of poor performances... until Fulham. Eddie Howe has multiple problems to solve`\
 https://nytimes.com/athletic/5783359/2024/09/23/newcastle-problems-eddie-howe-fix/
-
-**Watkins and Duran as a pair would be a lot of fun - will Emery do it?**\
-`Aston Villa now have options aplenty - but will Unai Emery let Watkins and Duran loose together up front from the start of games?`\
-https://nytimes.com/athletic/5784005/2024/09/23/ollie-watkins-jhon-duran-unai-emery-aston-villa/
 
