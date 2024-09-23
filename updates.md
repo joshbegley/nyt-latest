@@ -1,3 +1,11 @@
+**Getting Old Never Looked So Ugly**\
+`“The Substance” figures in the long line of movies about what you might call “menopausal derangement syndrome” — the ostensibly crazy-making tragedy of a woman living past 50.`\
+https://nytimes.com/2024/09/23/style/getting-old-never-looked-so-ugly.html
+
+**Fredric Jameson, Critic Who Linked Literature to Capitalism, Dies at 90**\
+`Among the world’s leading academic critics, he brought his analytical rigor to topics as diverse as German opera and sci-fi movies.`\
+https://nytimes.com/2024/09/23/books/fredric-jameson-dead.html
+
 **Mark Messier joins Amazon Prime's hockey broadcast team**\
 `John Forslund will be the play-by-play announcer while Jody Shelley, Thomas Hickey, and Shane Hnidy join the crew as analysts. `\
 https://nytimes.com/athletic/5789202/2024/09/23/mark-messier-amazon-prime-monday-night-hockey-broadcast/
