@@ -1,3 +1,11 @@
+**The Bounce: Kings' Vlade Divac explains Luka Dončić's draft-day snub.**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5788100/2024/09/23/luka-doncic-dallas-mavericks-sacramento-kings-wnba-playoffs-the-bounce-nba/
+
+**Alexander-Arnold would not be blamed for leaving Liverpool - but he may regret it**\
+`The right-back's situation has been overlooked by FSG but quitting his hometown club would not be an easy decision`\
+https://nytimes.com/athletic/5774308/2024/09/23/trent-alexander-arnold-liverpool-transfer-regret/
+
 **Alexander-Arnold would not be blamed for leaving Liverpool - but he may regret it**\
 `Defender's situation has been overlooked by FSG but quitting his hometown club would not be an easy decision`\
 https://nytimes.com/athletic/5774308/2024/09/23/trent-alexander-arnold-liverpool-transfer-regret/
