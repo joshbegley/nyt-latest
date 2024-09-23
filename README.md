@@ -1,3 +1,11 @@
+**A Leading Law Scholar Fears We’re Lurching Toward Secession**\
+`Can we fix the Constitution before it destroys us?`\
+https://nytimes.com/2024/09/23/opinion/electoral-college-presidential-election.html
+
+**Derwin James suspended following hit on Pat Freiermuth**\
+`After Sunday's game, James told reporters he didn't feel like he hit Freiermuth in the head or neck.`\
+https://nytimes.com/athletic/5789725/2024/09/23/chargers-derwin-james-suspension-pat-freiermuth/
+
 **Vance, Declining to Denounce Robinson, Lashes Out at Media Instead**\
 `JD Vance, campaigning in North Carolina, criticized journalists for asking about Mark Robinson, the embattled Republican running for governor there.`\
 https://nytimes.com/2024/09/23/us/politics/vance-robinson-north-carolina.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/23/business/dealbook/visa-lawsuit-doj.html
 **Israeli Strikes in Lebanon Kill Hundreds as Warplanes Target Hezbollah**\
 `It was the deadliest day in decades of hostilities between Israel and the militants, who stepped up their own barrage of rockets.`\
 https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-lebanon-strikes.html
-
-**How was Israel able to send text messages to people in Lebanon warning of impending strikes?**\
-`By Sheera Frenkel`\
-https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israel-cellphones-text-alerts
-
-**Penn Suspends Amy Wax, Law Professor Accused of Making Racist Statements**\
-`The case tested the limits of academic freedom and tenure.`\
-https://nytimes.com/2024/09/23/us/university-of-pennsylvania-law-school-amy-wax.html
 
