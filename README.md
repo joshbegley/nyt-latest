@@ -1,3 +1,11 @@
+**Justin Herbert's X-rays on high ankle sprain negative**\
+`Harbaugh was asked if Herbert was still wearing his walking boot Monday. “I do not know that,” he said.`\
+https://nytimes.com/athletic/5789683/2024/09/23/justin-herbert-ankle-injury-chargers/
+
+**A Church Where Mark Robinson Still Has Defenders**\
+`At a Black evangelical church in North Carolina, the candidate for governor still has support.`\
+https://nytimes.com/2024/09/23/us/politics/in-north-carolina-a-snapshot-of-mark-robinsons-enduring-support.html
+
 **Visa Faces an Antitrust Lawsuit by the Justice Dept.**\
 `The agency plans to argue that the company illegally penalizes customers that try to use rival payment processors.`\
 https://nytimes.com/2024/09/23/business/dealbook/visa-lawsuit-doj.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/23/nyregion/cecilia-gentili-fentanyl-death-guilty.ht
 **California Schools Must Restrict Phones Under New Law Signed by Newsom**\
 `Calls for crackdowns have mounted with reports of cyberbullying and studies indicating that smartphones are harmful to children’s mental health.`\
 https://nytimes.com/2024/09/23/us/california-school-cellphone-ban.html
-
-**Ravens signing pass rusher Ngakoue: Source**\
-`Baltimore Ravens who led the NFL in sacks last season, are currently ninth with 10.`\
-https://nytimes.com/athletic/5789456/2024/09/23/ravens-yannick-ngakoue-contract/
-
-**U.S. Inquiry Into N.Y. Mayor’s Foreign Ties Said to Include 6 Countries**\
-`Federal prosecutors investigating Mayor Eric Adams and his campaign’s ties to Turkey issued subpoenas in July for records related to 5 other countries.`\
-https://nytimes.com/2024/09/23/nyregion/fbi-adams-qatar-israel-china-uzbekistan-korea.html
 
