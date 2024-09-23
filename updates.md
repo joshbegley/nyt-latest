@@ -1,3 +1,7 @@
+**Reds fire manager David Bell during sixth season**\
+`Bell went 409-456 during his tenure.`\
+https://nytimes.com/athletic/5787081/2024/09/22/david-bell-fired-reds-manager/
+
 **Reds fire manager David Bell during 6th season after just 1 playoff appearance**\
 `Bell went 409-456 during his tenure.`\
 https://nytimes.com/athletic/5787081/2024/09/22/david-bell-fired-reds-manager/
