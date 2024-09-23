@@ -1,3 +1,7 @@
+**Antonio Pierce: Some Raiders made 'business decisions' in embarrassing loss to Panthers**\
+`The offense was horrid. The defense was pitiful. And Pierce felt like some players were phoning it in late in their loss to the Panthers.`\
+https://nytimes.com/athletic/5786820/2024/09/22/raiders-antonio-pierce-panthers-business-decisions/
+
 **LSU star LB Harold Perkins out for season with torn ACL: Source**\
 `Perkins is No. 20 on Dane Brugler’s Big Board for the 2025 NFL Draft. He recorded 16 tackles this season before his injury.`\
 https://nytimes.com/athletic/5786699/2024/09/22/harold-perkins-injury-lsu-college-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786125/2024/09/22/eagles-win-saints-nick-sirianni-
 **On Chicago’s South Side, White Sox Fans Know Misery. But Not Like This.**\
 `The baseball team tied the modern day record for losses on Sunday, dropping a 120th game. In the team’s most loyal neighborhood, some people couldn’t bear to watch.`\
 https://nytimes.com/2024/09/22/us/chicago-southside-whitesox.html
-
-**Florida Sheriff’s Deputy Charged in Fatal Shooting of His Girlfriend**\
-`Leslie Boileau, a sheriff’s deputy in Marion County, Fla., said that he had “accidentally discharged” a loaded gun at his girlfriend, as they were cleaning and dry-firing guns during a lesson.`\
-https://nytimes.com/2024/09/22/us/florida-deputy-gun-death.html
 
