@@ -1,3 +1,7 @@
+**World War II Airman Identified After 79 Years**\
+`Staff Sgt. John A. Tarbert of the Air Force died weeks before his son was born, but he was accounted for only this year.`\
+https://nytimes.com/2024/09/23/us/world-war-ii-airman-identified.html
+
 **Davis Cup Finals squads: Nadal for Spain, Sinner could face Alcaraz**\
 `Nadal, 38, has not played competitive tennis since the Olympics, in which he partnered Alcaraz.`\
 https://nytimes.com/athletic/5789286/2024/09/23/davis-cup-finals-squads-schedule/
