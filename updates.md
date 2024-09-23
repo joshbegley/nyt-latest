@@ -1,3 +1,7 @@
+**One Bright Spot Amid the Industry’s Gloom: Natural Wine**\
+`Young people may be drinking fewer alcoholic beverages, but natural wine appears to be among their favorite choices.`\
+https://nytimes.com/2024/09/23/dining/drinks/natural-wine.html
+
 **Wild's Matt Boldy week-to-week with lower-body injury: What it means for the PK and roster-hopefuls**\
 `ST.`\
 https://nytimes.com/athletic/5789011/2024/09/23/matt-boldy-injury-minnesota-wild/
