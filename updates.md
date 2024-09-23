@@ -1,3 +1,7 @@
+**Dynasty league football: From Ashton Jeanty to Carson Beck, an early look at the 2025 rookie draft class**\
+`Jeff Haverlack offers an early look at the 2025 draft class for dynasty leagues, noting that Ashton Jeanty headlines a strong RB group.`\
+https://nytimes.com/athletic/5788356/2024/09/23/dynasty-fantasy-football-2025-draft-rookies-ashton-jeanty-shedeur-sanders/
+
 **N.Y.P.D. Unwilling to Discipline Officers for Stop and Frisk, Report Says**\
 `The department’s discipline for illegal street detentions is lax at every level, according to an extraordinary review ordered by a federal judge.`\
 https://nytimes.com/2024/09/23/nyregion/nypd-stop-and-frisk-report.html

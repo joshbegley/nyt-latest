@@ -1,3 +1,7 @@
+**Dynasty league football: From Ashton Jeanty to Carson Beck, an early look at the 2025 rookie draft class**\
+`Jeff Haverlack offers an early look at the 2025 draft class for dynasty leagues, noting that Ashton Jeanty headlines a strong RB group.`\
+https://nytimes.com/athletic/5788356/2024/09/23/dynasty-fantasy-football-2025-draft-rookies-ashton-jeanty-shedeur-sanders/
+
 **N.Y.P.D. Unwilling to Discipline Officers for Stop and Frisk, Report Says**\
 `The department’s discipline for illegal street detentions is lax at every level, according to an extraordinary review ordered by a federal judge.`\
 https://nytimes.com/2024/09/23/nyregion/nypd-stop-and-frisk-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/arts/ai-weiwei-porcelain-cube-italy.html
 **Israel-Hezbollah Tensions Spiral in Week of Attacks: What to Know**\
 `Exploding pagers, a major Israeli strike in Beirut and Hezbollah attacks deep inside Israel have brought the two sides closer than they’ve been in years to a full-scale war.`\
 https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-war-timeline-lebanon.html
-
-**Chilwell in Chelsea matchday squad for Carabao Cup clash**\
-`Ben Chilwell has been named in a Chelsea matchday squad for the first time by Enzo Maresca since the head coach told the left-back he should try to find another club in the summer.`\
-https://nytimes.com/athletic/5788234/2024/09/23/ben-chilwell-chelsea-carabao-cup/
 
