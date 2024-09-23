@@ -1,3 +1,27 @@
+**Marc-Andre ter Stegen is out for the season - so what's Barcelona's plan?**\
+`The German goalkeeper suffered a knee ligament injury and is expected to be out for at least eight months`\
+https://nytimes.com/athletic/5788466/2024/09/23/ter-stegen-injury-barcelona-signing-replacement/
+
+**Storm Begins to Take Shape in the Caribbean**\
+`Details are still fuzzy, but the likelihood that Potential Tropical Cyclone Nine will turn into Hurricane Helene and affect the Gulf Coast later this week is increasing.`\
+https://nytimes.com/2024/09/23/weather/gulf-of-mexico-helene.html
+
+**How Milan's brave use of Christian Pulisic in a narrow position helped them defeat Inter**\
+`Paulo Fonseca was under intense pressure heading into the derby but his clever deployment of the USMNT player paid off`\
+https://nytimes.com/athletic/5787663/2024/09/23/how-milans-brave-use-of-christian-pulisic-in-a-narrow-position-helped-them-defeat-inter/
+
+**Do You Know These Villains of Classic British Literature?**\
+`Antagonists, antiheroes and just plain evil characters can really stick with you. See how many you remember from five time-honored novels.`\
+https://nytimes.com/interactive/2024/09/23/books/review/classic-lit-villains.html
+
+**Patriots mailbag: Submit your Week 4 questions for reporter Chad Graff**\
+`Let's talk about the offensive line's struggles, the wide receiver issues, when Drake Maye could start and the defense's ups and downs.`\
+https://nytimes.com/athletic/5788526/2024/09/23/patriots-mailbag-week-4-chad-graff/
+
+**Leeds announce plans to expand Elland Road capacity to 53,000**\
+`Leeds United have announced plans to expand their Elland Road stadium to hold 53,000 fans.`\
+https://nytimes.com/athletic/5788476/2024/09/23/leeds-united-elland-road-capacity/
+
 **Scoop City: Risers and fallers after Week 3**\
 `A quick look at the undefeated teams, Malik Nabers and other Week 3 risers, together with the downward trending teams.`\
 https://nytimes.com/athletic/5788552/2024/09/23/scoop-city-risers-and-fallers-after-week-3/
@@ -13,28 +37,4 @@ https://nytimes.com/live/2024/09/17/opinion/thepoint/nixon-marijuana-unjust
 **A Day After Most of His Staff Resigned, Mark Robinson Is Continuing to Campaign**\
 `The Republican lieutenant governor said he would hire new staff soon, following a CNN report linking him to disturbing comments on a porn site.`\
 https://nytimes.com/2024/09/23/us/politics/mark-robinson-north-carolina-governor-campaign.html
-
-**Saints' Payton Turner denies spitting on Eagles' DeVonta Smith**\
-`It's another layer to the Eagles' 15-12 win over the Saints, which possessed contentious moments during and after the game.`\
-https://nytimes.com/athletic/5788385/2024/09/23/payton-turner-devonta-smith-spitting-saints-eagles/
-
-**Travis Scott Has No. 1 Album, After Close Loss to Sabrina Carpenter**\
-`The “Days Before Rodeo” rerelease is the rapper’s fourth title to reach the top.`\
-https://nytimes.com/2024/09/23/arts/music/travis-scott-days-before-rodeo-billboard-chart.html
-
-**Running back Tyler Badie has earned more chances to revive Broncos' rush attack**\
-`The 2022 sixth-round pick saw the field sparingly in his first two seasons, but he's making the most of his early chances for the Broncos.`\
-https://nytimes.com/athletic/5787800/2024/09/23/tyler-badie-broncos-running-back/
-
-**Using Haitian Immigrants as a Campaign Issue**\
-`Responses to a guest essay by Gov. Mike DeWine of Ohio and a column by Jamelle Bouie. Also: Donald Trump and Jewish voters; pagers in war; airport trays.`\
-https://nytimes.com/2024/09/23/opinion/haitian-immigrants-mike-dewine.html
-
-**The colour and contradictions of James Rodriguez's surprising new start in Spain**\
-`James Rodriguez's summer move to Rayo Vallecano might seem strange on the surface - but there's history behind it`\
-https://nytimes.com/athletic/5776164/2024/09/23/james-rodriguez-copa-america-rayo-vallecano-real-madrid/
-
-**Israel Launches Deadly Strikes Across Gaza, Local Officials Say**\
-`The latest in a series of strikes on schools being used as shelters killed three in Nuseirat, according to the Palestinian Civil Defense. Israel has said the buildings were being used by Hamas militants as a command center.`\
-https://nytimes.com/2024/09/23/world/middleeast/gaza-israel-strikes.html
 
