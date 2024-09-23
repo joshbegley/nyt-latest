@@ -1,3 +1,7 @@
+**Explained: Everton's proposed takeover by The Friedkin Group**\
+`Everton appear to have new owners on the horizon after The Friedkin Group reached an agreement with Farhad Moshiri — what does it all mean?`\
+https://nytimes.com/athletic/5788555/2024/09/23/everton-takeover-the-friedkin-group/
+
 **Murder in U.S. Continues Steep Decline, F.B.I. Reports**\
 `Homicides fell 11.6 percent nationwide in 2023, and violent crime overall fell by 3 percent after a surge in crime during the pandemic.`\
 https://nytimes.com/2024/09/23/us/murder-crime-rate-fbi.html
