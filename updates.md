@@ -1,3 +1,7 @@
+**Giants week in review: A team peaking when it matters the least**\
+`The Giants played two potential playoff teams this past week and steamrolled them. It was too little, too late in a lost season.`\
+https://nytimes.com/athletic/5788427/2024/09/23/sf-giants-weekly-review-orioles-royals/
+
 **World War II Airman Identified After 79 Years**\
 `Staff Sgt. John A. Tarbert of the Air Force died weeks before his son was born, but he was accounted for only this year.`\
 https://nytimes.com/2024/09/23/us/world-war-ii-airman-identified.html
