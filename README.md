@@ -1,3 +1,15 @@
+**Ravens signing pass rusher Ngakoue: Source**\
+`Baltimore Ravens who led the NFL in sacks last season, are currently ninth with 10.`\
+https://nytimes.com/athletic/5789456/2024/09/23/ravens-yannick-ngakoue-contract/
+
+**U.S. Inquiry Into N.Y. Mayor’s Foreign Ties Said to Include 6 Countries**\
+`Federal prosecutors investigating Mayor Eric Adams and his campaign’s ties to Turkey issued subpoenas in July for records related to 5 other countries.`\
+https://nytimes.com/2024/09/23/nyregion/fbi-adams-qatar-israel-china-uzbekistan-korea.html
+
+**Conflict mounts between Israel and Hezbollah just as members of the U.N. General Assembly gather.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/un-general-assembly-hezbollah-israel
+
 **For Fredric Jameson, Marxist Criticism Was a Labor of Love**\
 `The literary critic, who died on Sunday at age 90, believed that reading was the path to revolution.`\
 https://nytimes.com/2024/09/23/books/review/fredric-jameson-appraisal.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/23/books/fredric-jameson-dead.html
 **Mark Messier joins Amazon Prime's hockey broadcast team**\
 `John Forslund will be the play-by-play announcer while Jody Shelley, Thomas Hickey, and Shane Hnidy join the crew as analysts. `\
 https://nytimes.com/athletic/5789202/2024/09/23/mark-messier-amazon-prime-monday-night-hockey-broadcast/
-
-**Janet Jackson Repeats False Claims About Kamala Harris’s Race**\
-`After Ms. Jackson told The Guardian that Ms. Harris is “not Black,” her representatives said a man who apologized on her behalf was not authorized to speak for her.`\
-https://nytimes.com/2024/09/23/arts/music/janet-jackson-kamala-harris-apology.html
-
-**Israel Launched Intense Airstrikes on Hezbollah**\
-`Also, new polls were Trump’s best in weeks. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/09/23/briefing/israel-lebanon-airstrikes-trump-harris-polls.html
-
-**At U.N. Conference, Global Crises Collide With Fraught American Politics**\
-`President Biden will speak at a time of deep uncertainty about the future of America’s role in the world.`\
-https://nytimes.com/2024/09/23/us/politics/united-nations-american-politics.html
 
