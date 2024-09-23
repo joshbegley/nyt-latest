@@ -1,3 +1,11 @@
+**On Chicago’s South Side, White Sox Fans Know Misery. But Not Like This.**\
+`The baseball team tied the modern day record for losses on Sunday, dropping a 120th game. In the team’s most loyal neighborhood, some people couldn’t bear to watch.`\
+https://nytimes.com/2024/09/22/us/chicago-southside-whitesox.html
+
+**Florida Sheriff’s Deputy Charged in Fatal Shooting of His Girlfriend**\
+`Leslie Boileau, a sheriff’s deputy in Marion County, Fla., said that he had “accidentally discharged” a loaded gun at his girlfriend, as they were cleaning and dry-firing guns during a lesson.`\
+https://nytimes.com/2024/09/22/us/florida-deputy-gun-death.html
+
 **Sam Darnold's performance — and health scare — cements role in Vikings' stellar start**\
 `The narrative surrounding Darnold has clearly changed after his four-touchdown day lifts Vikings to dominant win over Texans, 3-0 start.`\
 https://nytimes.com/athletic/5786551/2024/09/22/sam-darnold-vikings-texans-week-3/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5786370/2024/09/22/rams-49ers-takeaways-result/
 **Jones: Saints got 'hit in the mouth' in loss to Eagles. Their response will be telling**\
 `One loss does not define a season, but New Orleans will have to show against Atlanta that its first two weeks weren't fool's gold.`\
 https://nytimes.com/athletic/5786290/2024/09/22/saints-loss-eagles-derek-carr/
-
-**Lamar Jackson, Ravens thwart Cowboys' comeback in 28-25 win: Takeaways**\
-`Jackson threw for a touchdown and rushed for another while relying on veteran running back Derrick Henry.`\
-https://nytimes.com/athletic/5786198/2024/09/22/ravens-cowboys-takeaways-result/
-
-**As Bears flounder on offense, it's fair to ask: Is Caleb Williams' development in good hands?**\
-`Game planning, play calling, game management. Coaches deserve a big chunk of the blame for the Bears’ 21-16 loss to the Colts on Sunday. `\
-https://nytimes.com/athletic/5786312/2024/09/22/bears-caleb-williams-development-shane-waldron/
 

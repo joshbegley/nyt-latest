@@ -1,3 +1,11 @@
+**On Chicago’s South Side, White Sox Fans Know Misery. But Not Like This.**\
+`The baseball team tied the modern day record for losses on Sunday, dropping a 120th game. In the team’s most loyal neighborhood, some people couldn’t bear to watch.`\
+https://nytimes.com/2024/09/22/us/chicago-southside-whitesox.html
+
+**Florida Sheriff’s Deputy Charged in Fatal Shooting of His Girlfriend**\
+`Leslie Boileau, a sheriff’s deputy in Marion County, Fla., said that he had “accidentally discharged” a loaded gun at his girlfriend, as they were cleaning and dry-firing guns during a lesson.`\
+https://nytimes.com/2024/09/22/us/florida-deputy-gun-death.html
+
 **Sam Darnold's performance — and health scare — cements role in Vikings' stellar start**\
 `The narrative surrounding Darnold has clearly changed after his four-touchdown day lifts Vikings to dominant win over Texans, 3-0 start.`\
 https://nytimes.com/athletic/5786551/2024/09/22/sam-darnold-vikings-texans-week-3/
