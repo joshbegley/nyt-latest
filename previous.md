@@ -1,3 +1,7 @@
+**Quote of the Day: Where Soccer Is a Refuge for Refugees**\
+`Quotation of the Day for Tuesday, September 24, 2024`\
+https://nytimes.com/2024/09/23/pageoneplus/quote-of-the-day-where-soccer-is-a-refuge-for-refugees.html
+
 **Justin Herbert's X-rays on high ankle sprain negative**\
 `Harbaugh was asked if Herbert was still wearing his walking boot Monday. “I do not know that,” he said.`\
 https://nytimes.com/athletic/5789683/2024/09/23/justin-herbert-ankle-injury-chargers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5789591/2024/09/23/reggie-bush-lawsuit-ncaa-pac-12-
 **2 Plead Guilty in Drug-Related Death of Prominent Transgender Activist**\
 `Michael Kuilan and Antonio Venti admitted providing fentanyl-laced heroin to Cecilia Gentili, whose death prompted an outpouring of grief among L.G.B.T.Q. New Yorkers.`\
 https://nytimes.com/2024/09/23/nyregion/cecilia-gentili-fentanyl-death-guilty.html
-
-**California Schools Must Restrict Phones Under New Law Signed by Newsom**\
-`Calls for crackdowns have mounted with reports of cyberbullying and studies indicating that smartphones are harmful to children’s mental health.`\
-https://nytimes.com/2024/09/23/us/california-school-cellphone-ban.html
 

@@ -1,3 +1,7 @@
+**Quote of the Day: Where Soccer Is a Refuge for Refugees**\
+`Quotation of the Day for Tuesday, September 24, 2024`\
+https://nytimes.com/2024/09/23/pageoneplus/quote-of-the-day-where-soccer-is-a-refuge-for-refugees.html
+
 **Justin Herbert's X-rays on high ankle sprain negative**\
 `Harbaugh was asked if Herbert was still wearing his walking boot Monday. “I do not know that,” he said.`\
 https://nytimes.com/athletic/5789683/2024/09/23/justin-herbert-ankle-injury-chargers/
