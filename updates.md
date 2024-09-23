@@ -1,3 +1,15 @@
+**Mendy extends Real contract until 2027**\
+`Ferland Mendy has extended his contract at Real Madrid for three more years.`\
+https://nytimes.com/athletic/5533766/2024/09/23/ferland-mendy-real-madrid-contract-new/
+
+**Why was Pep Guardiola so passive as Manchester City struggled to break down Arsenal?**\
+`John Stones' late equaliser didn't feel like a grand plan had paid off. It felt more like Guardiola had got away with it`\
+https://nytimes.com/athletic/5787818/2024/09/23/manchester-city-passive-arsenal-premier-league/
+
+**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
+`Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
+https://nytimes.com/athletic/5787831/2024/09/23/newcastle-howe-guimaraes-tonali/
+
 **Supermarkets in Australia Sued Over Claims of Fake Discounts**\
 `In a rare case of legal action tied to rising prices, the government sued Woolworths and Coles for what it described as a pattern of deceiving consumers.`\
 https://nytimes.com/2024/09/23/world/australia/woolworths-coles-fake-discounts.html
