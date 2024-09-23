@@ -1,3 +1,7 @@
+**LSU star LB Harold Perkins out for season with torn ACL: Source**\
+`Perkins is No. 20 on Dane Brugler’s Big Board for the 2025 NFL Draft. He recorded 16 tackles this season before his injury.`\
+https://nytimes.com/athletic/5786699/2024/09/22/harold-perkins-injury-lsu-college-football/
+
 **Browns have an identity crisis; they refuse to accept who they really are**\
 `This team is built to run the ball and throw off play-action. It’s when the Browns try to be something they’re not that they get exposed.`\
 https://nytimes.com/athletic/5786492/2024/09/22/browns-giants-offense-identity-deshaun-watson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/us/chicago-southside-whitesox.html
 **Florida Sheriff’s Deputy Charged in Fatal Shooting of His Girlfriend**\
 `Leslie Boileau, a sheriff’s deputy in Marion County, Fla., said that he had “accidentally discharged” a loaded gun at his girlfriend, as they were cleaning and dry-firing guns during a lesson.`\
 https://nytimes.com/2024/09/22/us/florida-deputy-gun-death.html
-
-**Defiant Giants rebound from nightmare start to game, season to get desperately needed win**\
-`"Losers have a mentality. Losing happens, but we’re not going to have no loser mentality. We're going to ball."`\
-https://nytimes.com/athletic/5786438/2024/09/22/giants-win-browns-brian-daboll/
 
