@@ -1,3 +1,11 @@
+**Vikings' Sam Darnold expected to start vs. Packers after knee bruise**\
+`Darnold has been one of the best quarterbacks in the league through three weeks.`\
+https://nytimes.com/athletic/5788969/2024/09/23/sam-darnold-knee-injury-vikings/
+
+**Tanzania’s President Vowed Opening for Opposition, but Detained Its Leaders**\
+`The East African country’s leading opposition party said that its presidential candidate in the last election and its chairman were among dozens detained before a protest called to draw attention to the killing and abduction of government critics.`\
+https://nytimes.com/2024/09/23/world/africa/tanzania-opposition-leaders-arrested-protests.html
+
 **Texas' Quinn Ewers (oblique) questionable vs. Mississippi State**\
 `The junior QB practiced Monday and Sarkisian said he was “impressed” with where Ewers was in his recovery.`\
 https://nytimes.com/athletic/5788924/2024/09/23/quinn-ewers-texas-oblique/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5788818/2024/09/23/gaudreau-father-flyers-practice/
 **Knicks' Robinson out until at least December after ankle surgery**\
 `The Knicks' center position, already weakened by the departure of Isaiah Hartenstein, gets even shallower. `\
 https://nytimes.com/athletic/5788827/2024/09/23/knicks-mitchell-robinson-ankle-injury/
-
-**Bob Bradley leaves Norwegian club Stabaek**\
-`Former USMNT head coach Bob Bradley has departed Norwegian club Stabaek after a run of three successive defeats.`\
-https://nytimes.com/athletic/5788807/2024/09/23/bob-bradley-stabaek-exit/
-
-**Mother of Accused Apalachee Gunman Faces Elder Abuse Charges**\
-`Marcee Gray, 43, is accused of taping her mother to a chair during a drug-induced rage.`\
-https://nytimes.com/2024/09/23/us/georgia-school-shooting-gunman-mother-abuse.html
 

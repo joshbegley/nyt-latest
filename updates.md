@@ -1,3 +1,11 @@
+**Vikings' Sam Darnold expected to start vs. Packers after knee bruise**\
+`Darnold has been one of the best quarterbacks in the league through three weeks.`\
+https://nytimes.com/athletic/5788969/2024/09/23/sam-darnold-knee-injury-vikings/
+
+**Tanzania’s President Vowed Opening for Opposition, but Detained Its Leaders**\
+`The East African country’s leading opposition party said that its presidential candidate in the last election and its chairman were among dozens detained before a protest called to draw attention to the killing and abduction of government critics.`\
+https://nytimes.com/2024/09/23/world/africa/tanzania-opposition-leaders-arrested-protests.html
+
 **Texas' Quinn Ewers (oblique) questionable vs. Mississippi State**\
 `The junior QB practiced Monday and Sarkisian said he was “impressed” with where Ewers was in his recovery.`\
 https://nytimes.com/athletic/5788924/2024/09/23/quinn-ewers-texas-oblique/
