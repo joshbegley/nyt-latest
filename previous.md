@@ -1,3 +1,11 @@
+**This Week in Mets: For the Mets, it all goes through Atlanta — as it should**\
+`With a wild-card spot at stake, the Mets have lined up their best arms, as have the Braves. It shouldn’t be any other way.`\
+https://nytimes.com/athletic/5787365/2024/09/23/mets-braves-wild-card-race/
+
+**The case for Aaron Judge, Juan Soto as MLB’s greatest offensive duo since Ruth-Gehrig**\
+`What we’ve watched, over these last six months, is the two best offensive seasons, side by side, by two teammates, in most of our lifetimes.`\
+https://nytimes.com/athletic/5786310/2024/09/23/aaron-judge-juan-soto-mlb-greatest-duo/
+
 **Dismiss Clemson at your own risk: College Football Playoff Bubble Watch**\
 `After Clemson's 34-3 loss to Georgia to open the season, it was easy to write off the Tigers. But their play since calls for a reassessment.`\
 https://nytimes.com/athletic/5786197/2024/09/23/college-football-playoff-bubble-watch-clemson/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/23/opinion/donald-trump-mark-robinson-maga.html
 **What’s Behind Trump’s Best Poll Results in Weeks**\
 `In a shift from a Times/Siena survey last month, he leads in three Sun Belt battleground states.`\
 https://nytimes.com/2024/09/23/upshot/trump-harris-sun-belt-polls.html
-
-**State of the Race: A Small Debate Bounce for Harris, but It’s Still Deadlocked**\
-`She gained a point in the polls after widely being seen as the debate winner.`\
-https://nytimes.com/2024/09/23/upshot/polling-update-harris-trump.html
-
-**A Majority in Arizona Supports Establishing Right to Abortion, Poll Finds**\
-`A ballot measure codifying “the fundamental right to an abortion” is supported by 58 percent of the state’s likely voters, according to a New York Times/Siena College poll.`\
-https://nytimes.com/2024/09/23/us/politics/arizona-abortion-ballot-measure.html
 
