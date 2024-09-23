@@ -1,3 +1,11 @@
+**Man Smashes Ai Weiwei’s Porcelain Sculpture at Italian Museum**\
+`The man behind the episode, at a reception for Mr. Ai’s new exhibition in Bologna, has targeted artists before, a museum spokesman said.`\
+https://nytimes.com/2024/09/23/arts/ai-weiwei-porcelain-cube-italy.html
+
+**Israel-Hezbollah Tensions Spiral in Week of Attacks: What to Know**\
+`Exploding pagers, a major Israeli strike in Beirut and Hezbollah attacks deep inside Israel have brought the two sides closer than they’ve been in years to a full-scale war.`\
+https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-war-timeline-lebanon.html
+
 **Chilwell in Chelsea matchday squad for Carabao Cup clash**\
 `Ben Chilwell has been named in a Chelsea matchday squad for the first time by Enzo Maresca since the head coach told the left-back he should try to find another club in the summer.`\
 https://nytimes.com/athletic/5788234/2024/09/23/ben-chilwell-chelsea-carabao-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5785336/2024/09/23/golden-knights-lines-defense/
 **Suspect in Trump Assassination Attempt Outlined Plans in Note**\
 `The disclosure, included in a court filing, paints the clearest picture yet of an itinerant contractor who repeatedly said he was willing to die to defend Ukraine.`\
 https://nytimes.com/2024/09/23/us/politics/trump-assassination-attempt-routh-hearing.html
-
-**Biden Administration Proposes Ban on Chinese Software in Vehicles**\
-`Federal officials acknowledged that few Chinese vehicles were on U.S. roads now, but said that the administration wanted to take proactive measures to strengthen national security.`\
-https://nytimes.com/2024/09/23/us/politics/chinese-software-ban-cars-biden.html
-
-**Monitoreo de la tormenta tropical John, en vivo**\
-`Consulta la trayectoria probable y las horas de llegada de los vientos de John.`\
-https://nytimes.com/interactive/2024/09/23/weather/john-mapa-trayectoria.html
 
