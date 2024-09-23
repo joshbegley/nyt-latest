@@ -1,3 +1,7 @@
+**Despite Anthony Richardson's ugly outing, Colts outlast Bears, avoid 0-3 start**\
+`Richardson found small ways to contribute to the Colts' win, but as a passer on Sunday, he wasn't nearly good enough.  `\
+https://nytimes.com/athletic/5786524/2024/09/22/colts-anthony-richardson-bears-win/
+
 **Defiant Giants rebound from nightmare start to game, season to get desperately needed win**\
 `"Losers have a mentality. Losing happens, but we’re not going to have no loser mentality. We're going to ball."`\
 https://nytimes.com/athletic/5786438/2024/09/22/giants-win-browns-brian-daboll/
