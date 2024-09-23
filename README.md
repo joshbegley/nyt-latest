@@ -1,3 +1,7 @@
+**49ers' Hargrave out for season; Purdy day-to-day**\
+`The 49ers hope Purdy will be able to practice Wednesday. Meanwhile, Christian McCaffrey traveled to Germany for treatment on his Achilles.`\
+https://nytimes.com/athletic/5789651/2024/09/23/49ers-injuries-updates-javon-hargrave-brock-purdy/
+
 **Quote of the Day: Where Soccer Is a Refuge for Refugees**\
 `Quotation of the Day for Tuesday, September 24, 2024`\
 https://nytimes.com/2024/09/23/pageoneplus/quote-of-the-day-where-soccer-is-a-refuge-for-refugees.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/us/politics/faa-air-traffic-control.html
 **Reggie Bush sues NCAA, Pac-12, USC for NIL compensation**\
 `The NCAA and Pac-12 are currently co-defendants in several federal antitrust suits on behalf of former athletes seeking NIL compensation.`\
 https://nytimes.com/athletic/5789591/2024/09/23/reggie-bush-lawsuit-ncaa-pac-12-nil/
-
-**2 Plead Guilty in Drug-Related Death of Prominent Transgender Activist**\
-`Michael Kuilan and Antonio Venti admitted providing fentanyl-laced heroin to Cecilia Gentili, whose death prompted an outpouring of grief among L.G.B.T.Q. New Yorkers.`\
-https://nytimes.com/2024/09/23/nyregion/cecilia-gentili-fentanyl-death-guilty.html
 
