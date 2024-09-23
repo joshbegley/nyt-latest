@@ -1,3 +1,11 @@
+**Barcelona briefing: Ter Stegen's serious injury overshadows Villarreal rout**\
+`Barca returned to winning ways after their midweek defeat to Monaco, but how much will they miss their No 1?`\
+https://nytimes.com/athletic/5787680/2024/09/23/barcelona-villarreal-ter-stegen-injury/
+
+**'Call it clever or dirty': Stones frustrated by Arsenal 'dark arts'**\
+`Manchester City defender John Stones criticised Arsenal&#8217;s time-wasting tactics after the two sides played out a dramatic 2-2 draw on Sunday afternoon.`\
+https://nytimes.com/athletic/5787682/2024/09/23/john-stones-arsenal-dirty/
+
 **They’ve Got a Plan to Fight Global Warming. It Could Alter the Oceans.**\
 `By tweaking the chemistry of rivers and oceans, humans could remove billions of tons of carbon dioxide from the air. But huge challenges loom.`\
 https://nytimes.com/2024/09/23/climate/theyve-got-a-plan-to-fight-global-warming-it-could-alter-the-oceans.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5787554/2024/09/23/mets-win-series-phillies-edwin-d
 **Fantasy trends and hidden gems: Viktor Arvidsson, a trio of Canucks and more deep sleepers for 2024-25**\
 `Shayna Goldman highlights her favorite late-round fantasy hockey draft sleepers, starting with Edmonton offseason addition Viktor Arvidsson.`\
 https://nytimes.com/athletic/5787113/2024/09/23/fantasy-trends-and-hidden-gems-viktor-arvidsson-a-trio-of-canucks-and-more-deep-sleepers-for-2024-25/
-
-**What’s on TV This Week: Lots of Medical and Police Dramas**\
-`ABC, NBC and Fox are all premiering new shows about doctors, cops or firefighters. The Voice is also returning, with Snoop Dogg joining the judges’ panel.`\
-https://nytimes.com/2024/09/23/arts/television/whats-on-tv-this-week-lots-of-medical-and-police-dramas.html
-
-**Putin Is Doing Something Almost Nobody Is Noticing**\
-`It’s not just opposition figures who are caught in the Kremlin’s dragnet.`\
-https://nytimes.com/2024/09/23/opinion/russia-putin-kremlin.html
 
