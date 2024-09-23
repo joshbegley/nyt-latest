@@ -1,3 +1,7 @@
+**Monitoreo de la tormenta tropical John, en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de John.`\
+https://nytimes.com/interactive/2024/09/23/weather/john-mapa-trayectoria.html
+
 **Tracking Tropical Storm John**\
 `See the likely path and wind arrival times for John.`\
 https://nytimes.com/interactive/2024/09/23/weather/john-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5754764/2024/09/23/oakland-athletics-appreciation-f
 **Raiders' recipe for disaster: How Las Vegas was embarrassed in loss to Panthers**\
 `Among the issues: No pressure on third down, the middle of the field was wide open, the run game stunk and Gardner Minshew was out of sync.`\
 https://nytimes.com/athletic/5787045/2024/09/23/raiders-loss-panthers-issues-minshew-pass-rush/
-
-**WSL Briefing: Arsenal make their pitch count, hat-trick history and West Ham's captaincy call**\
-`The opening weekend of the new WSL season featured a draw between two title contenders, and a stunning debut on the South Coast`\
-https://nytimes.com/athletic/5787713/2024/09/23/wsl-column-arsenal-emirates-man-city/
 

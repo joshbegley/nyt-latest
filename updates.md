@@ -1,3 +1,7 @@
+**Monitoreo de la tormenta tropical John, en vivo**\
+`Consulta la trayectoria probable y las horas de llegada de los vientos de John.`\
+https://nytimes.com/interactive/2024/09/23/weather/john-mapa-trayectoria.html
+
 **Tracking Tropical Storm John**\
 `See the likely path and wind arrival times for John.`\
 https://nytimes.com/interactive/2024/09/23/weather/john-map-path-tracker.html
