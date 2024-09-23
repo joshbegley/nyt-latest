@@ -1,3 +1,7 @@
+**Popper: Will anyone in the Chargers organization protect Justin Herbert from himself?**\
+`There's no denying Herbert's toughness but the organization's job is to protect its greatest asset, even if it means missing a game.`\
+https://nytimes.com/athletic/5786531/2024/09/22/chargers-justin-herbert-steelers-ankle-injury/
+
 **Packers' 'ridiculous' pass rush vs. Titans showed why sights are set on Super Bowl**\
 `The Packers registered eight sacks on Sunday, tied for the fourth-most in a game in franchise history.`\
 https://nytimes.com/athletic/5786228/2024/09/22/packers-win-titans-sacks-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786264/2024/09/22/bears-colts-caleb-williams/
 **Andy Dalton rockets Panthers to 36-22 win over Raiders: Takeaways**\
 `Dalton became the first quarterback to pass for 300 yards and three touchdowns in a game this season.`\
 https://nytimes.com/athletic/5786224/2024/09/22/panthers-raiders-takeaways-result/
-
-**‘He Saved Many Lives’: Small Kentucky Community Mourns Slain Judge**\
-`The fatal shooting of the judge has rocked the town of Whitesburg. On Sunday, friends, family and community members gathered to remember the victim.`\
-https://nytimes.com/2024/09/22/us/kentucky-judge-shooting-memorial.html
 
