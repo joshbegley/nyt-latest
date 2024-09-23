@@ -1,3 +1,19 @@
+**Israeli evacuation warnings prompt fear and confusion in Lebanon.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israeli-evacuation-warnings-prompt-fear-and-confusion-in-lebanon
+
+**Here’s the latest on the presidential race.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/09/23/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Republicans’ Troubles in North Carolina Grow as Harris Expands War Chest**\
+`Top aides in Mark Robinson’s bid to become North Carolina’s governor have resigned. Vice President Kamala Harris brought in $27 million at a single fund-raiser.`\
+https://nytimes.com/live/2024/09/23/us/trump-harris-election
+
+**Intel’s Chips on the Table**\
+`Rivals and at least one big investor are circling the embattled semiconductor giant. The Biden administration is sure to keep an eye on any deal in such a strategically important sector.`\
+https://nytimes.com/2024/09/23/business/dealbook/intels-chips-qualcomm-apollo.html
+
 **Padres takeaways: Starting pitching vs. Dodgers, Xander Bogaerts readjusting at short**\
 `The Padres already hold an important tiebreaker against the Dodgers, and their starting pitching advantage looks significant.`\
 https://nytimes.com/athletic/5787085/2024/09/23/padres-starting-pitchers-dodgers-series/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5787713/2024/09/23/wsl-column-arsenal-emirates-man-
 **Sabres roster projection: Predicting opening-night lineup, final camp battles**\
 `After Buffalo's first preseason game, a rout of the Penguins, Lindy Ruff's plans for the Sabres are starting to take shape.`\
 https://nytimes.com/athletic/5786898/2024/09/23/sabres-roster-projection-camp-battle/
-
-**The Athletic FC: City vs Arsenal - An official rivalry, Friedkin Group on cusp of Everton deal**\
-`Today in TAFC: Manchester City vs Arsenal, things just got real. Plus: Trump's former lawyer leads a consortium in bid to buy Tranmere.`\
-https://nytimes.com/athletic/5787846/2024/09/23/city-vs-arsenal-rivalry-everton-friedkin-group/
-
-**FPL: What we learned from Gameweek 4 - Chelsea on the rise and Diaz worries**\
-`Abdul Rehman breaks down the main talking points from Gameweek 5 in FPL, including why he isn't getting carried away by Luis Diaz's form`\
-https://nytimes.com/athletic/5785877/2024/09/23/fantasy-premier-league-gw2-jackson-diaz-isak/
-
-**Mendy extends Real contract until 2027**\
-`Ferland Mendy has extended his contract at Real Madrid for three more years.`\
-https://nytimes.com/athletic/5533766/2024/09/23/ferland-mendy-real-madrid-contract-new/
-
-**Why was Pep Guardiola so passive as Manchester City struggled to break down Arsenal?**\
-`John Stones' late equaliser didn't feel like a grand plan had paid off. It felt more like Guardiola had got away with it`\
-https://nytimes.com/athletic/5787818/2024/09/23/manchester-city-passive-arsenal-premier-league/
 

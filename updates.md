@@ -1,3 +1,19 @@
+**Israeli evacuation warnings prompt fear and confusion in Lebanon.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israeli-evacuation-warnings-prompt-fear-and-confusion-in-lebanon
+
+**Here’s the latest on the presidential race.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/09/23/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Republicans’ Troubles in North Carolina Grow as Harris Expands War Chest**\
+`Top aides in Mark Robinson’s bid to become North Carolina’s governor have resigned. Vice President Kamala Harris brought in $27 million at a single fund-raiser.`\
+https://nytimes.com/live/2024/09/23/us/trump-harris-election
+
+**Intel’s Chips on the Table**\
+`Rivals and at least one big investor are circling the embattled semiconductor giant. The Biden administration is sure to keep an eye on any deal in such a strategically important sector.`\
+https://nytimes.com/2024/09/23/business/dealbook/intels-chips-qualcomm-apollo.html
+
 **Padres takeaways: Starting pitching vs. Dodgers, Xander Bogaerts readjusting at short**\
 `The Padres already hold an important tiebreaker against the Dodgers, and their starting pitching advantage looks significant.`\
 https://nytimes.com/athletic/5787085/2024/09/23/padres-starting-pitchers-dodgers-series/
