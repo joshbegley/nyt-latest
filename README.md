@@ -1,3 +1,11 @@
+**Patrick Mahomes' days of fantasy stardom may be over**\
+`The Chiefs' QB may be winning, but he's not winning over his fantasy managers after struggling in eight straight games.`\
+https://nytimes.com/athletic/5788179/2024/09/23/fantasy-football-week-3-recap-patrick-mahomes-fantasy-stardom-is-waning/
+
+**Khan: Can Dave Aranda come back from Baylor's collapse at Colorado?**\
+`There were encouraging signs against Colorado, but the way Baylor lost brings up a lot of questions about the Aranda era.`\
+https://nytimes.com/athletic/5788103/2024/09/23/dave-aranda-baylor-colorado/
+
 **Man Smashes Ai Weiwei’s Porcelain Sculpture at Italian Museum**\
 `The man behind the episode, at a reception for Mr. Ai’s new exhibition in Bologna, has targeted artists before, a museum spokesman said.`\
 https://nytimes.com/2024/09/23/arts/ai-weiwei-porcelain-cube-italy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5788172/2024/09/23/anthony-joshua-fight-boxing-dani
 **Parents Race to Get Children From Schools as Fear Spreads in Beirut**\
 `Lebanon’s Education Ministry ordered some schools to close amid warnings from Israel that it was intensifying strikes against Hezbollah and calls for residents to evacuate.`\
 https://nytimes.com/2024/09/23/world/middleeast/lebanon-beirut-israel-hezbollah.html
-
-**Projecting the Golden Knights' opening-night lineup after 1 week of camp**\
-`Who will get the spot alongside Ivan Barbashev and Jack Eichel on the first line?`\
-https://nytimes.com/athletic/5785336/2024/09/23/golden-knights-lines-defense/
-
-**Suspect in Trump Assassination Attempt Outlined Plans in Note**\
-`The disclosure, included in a court filing, paints the clearest picture yet of an itinerant contractor who repeatedly said he was willing to die to defend Ukraine.`\
-https://nytimes.com/2024/09/23/us/politics/trump-assassination-attempt-routh-hearing.html
 
