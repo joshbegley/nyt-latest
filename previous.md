@@ -1,3 +1,7 @@
+**A Congressman Had an Affair. Then He Put His Lover on the Payroll.**\
+`Representative Anthony D’Esposito, a New York Republican, gave part-time jobs to both his lover and his fiancée’s daughter, in possible violation of House ethics rules.`\
+https://nytimes.com/2024/09/23/nyregion/anthony-desposito-affair-congress.html
+
 **Reds' search for a new manager to replace David Bell begins immediately**\
 `The Reds aren't going to wait until the offseason as they seek a new manager. “We’re looking for somebody that can lead this clubhouse.”`\
 https://nytimes.com/athletic/5788781/2024/09/23/reds-manager-search-david-bell-begins/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/a-hospital
 **Detroit Tigers call up top prospect Jackson Jobe**\
 `Jobe, a starter, is expected to pitch out of the bullpen in Detroit for the time being.`\
 https://nytimes.com/athletic/5789315/2024/09/23/detroit-tigers-jackson-jobe-call-up/
-
-**One Bright Spot Amid the Industry’s Gloom: Natural Wine**\
-`Young people may be drinking fewer alcoholic beverages, but natural wine appears to be among their favorite choices.`\
-https://nytimes.com/2024/09/23/dining/drinks/natural-wine.html
 
