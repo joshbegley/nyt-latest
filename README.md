@@ -1,3 +1,7 @@
+**N.Y.P.D. Unwilling to Impose Discipline for Stop and Frisk, Report Says**\
+`The department’s discipline for illegal street detentions is lax at every level, according to an extraordinary review ordered by a federal judge.`\
+https://nytimes.com/2024/09/23/nyregion/nypd-stop-and-frisk-report.html
+
 **Russian Military Plane Breaches Japan’s Airspace Three Times in One Day**\
 `The infringements were the first by Russia in five years, according to the Japanese defense ministry. A fighter fired a warning flare in response.`\
 https://nytimes.com/2024/09/23/world/asia/japan-russia-plane.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-war-timeline-le
 **Chilwell in Chelsea matchday squad for Carabao Cup clash**\
 `Ben Chilwell has been named in a Chelsea matchday squad for the first time by Enzo Maresca since the head coach told the left-back he should try to find another club in the summer.`\
 https://nytimes.com/athletic/5788234/2024/09/23/ben-chilwell-chelsea-carabao-cup/
-
-**Canucks depth chart: Roster battles and where things stand after training camp**\
-`With Canucks training camp in the books, let's update the depth chart and empty our notebook on everything we saw.`\
-https://nytimes.com/athletic/5787575/2024/09/23/canucks-depth-chart-roster-training-camp/
 
