@@ -1,3 +1,7 @@
+**Barges, chair kicks and balls to the head: City vs Arsenal dark arts breakdown**\
+`Manchester City vs Arsenal was filled with drama, excellent football — and a lot of '****housery'`\
+https://nytimes.com/athletic/5788314/2024/09/23/manchester-city-arsenal-dark-arts-analysed/
+
 **Mack Brown plans to finish 2024 season at UNC: Sources**\
 `In 2018, 10 months before being hired at North Carolina, Brown was inducted into the College Football Hall of Fame.`\
 https://nytimes.com/athletic/5784418/2024/09/23/mack-brown-unc-jmu-locker-room-speech/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5788678/2024/09/23/white-sox-record-reds-fire-david
 `Folarin Balogun is off the mark for the season, while Brenden Aaronson's encouraging start back at Leeds also features in our round-up`\
 https://nytimes.com/athletic/5788091/2024/09/23/usmnt-richards-busio-pulisic-tillman-tracker/
 
-**Biden and Harris to Meet With Emirati President in Washington**\
-`The talks with the leader of the United Arab Emirates will focus on Gaza, the war in Sudan and artificial intelligence.`\
+**Biden Meets With Emirati President in Washington**\
+`The meeting with Sheikh Mohammed bin Zayed was expected to focus on Gaza, the war in Sudan and artificial intelligence. Vice President Kamala Harris is also scheduled to meet with the leader.`\
 https://nytimes.com/2024/09/23/us/politics/biden-harris-united-arab-emirates.html
 
 **Marc-Andre ter Stegen is out for the season - so what's Barcelona's plan?**\
 `The German goalkeeper suffered a knee ligament injury and is expected to be out for at least eight months`\
 https://nytimes.com/athletic/5788466/2024/09/23/ter-stegen-injury-barcelona-signing-replacement/
-
-**Storm That Could Threaten Gulf Coast Takes Shape in the Caribbean**\
-`Details are still fuzzy, but the likelihood that Potential Tropical Cyclone Nine will turn into Hurricane Helene and affect the Gulf Coast later this week is increasing.`\
-https://nytimes.com/2024/09/23/weather/gulf-of-mexico-helene.html
 
