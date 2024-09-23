@@ -1,3 +1,15 @@
+**Penn Suspends Amy Wax, Law Professor Accused of Making Racist Statements**\
+`The case tested the limits of academic freedom and tenure.`\
+https://nytimes.com/2024/09/23/us/university-of-pennsylvania-law-school-amy-wax.html
+
+**Government Watchdog Calls F.A.A. Air Traffic Control Systems Critically Outdated**\
+`A report by the Government Accountability Office said that the agency’s heavy reliance on the systems could jeopardize the safety and efficiency of the nation’s airspace.`\
+https://nytimes.com/2024/09/23/us/politics/faa-air-traffic-control.html
+
+**Reggie Bush sues NCAA, Pac-12, USC for NIL compensation**\
+`The NCAA and Pac-12 are currently co-defendants in several federal antitrust suits on behalf of former athletes seeking NIL compensation.`\
+https://nytimes.com/athletic/5789591/2024/09/23/reggie-bush-lawsuit-ncaa-pac-12-nil/
+
 **2 Plead Guilty in Drug-Related Death of Prominent Transgender Activist**\
 `Michael Kuilan and Antonio Venti admitted providing fentanyl-laced heroin to Cecilia Gentili, whose death prompted an outpouring of grief among L.G.B.T.Q. New Yorkers.`\
 https://nytimes.com/2024/09/23/nyregion/cecilia-gentili-fentanyl-death-guilty.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/23/books/review/fredric-jameson-appraisal.html
 **Grizzlies waiving Derrick Rose: Sources**\
 `Rose averaged 8.0 points, 3.3 assists and 1.9 rebounds in 16.6 minutes per game during his lone season in Memphis.`\
 https://nytimes.com/athletic/5789525/2024/09/23/derrick-rose-grizzlies-waived/
-
-**Russia’s Next-Generation Nuclear Missile Failed a Test, Evidence Suggests**\
-`Satellite photos showing a 200-foot-wide crater at a launch site indicate that the Sarmat missile, said by the Kremlin to travel at five times the speed of sound, might not be ready for duty.`\
-https://nytimes.com/2024/09/23/world/europe/russias-sarmat-missile-test.html
-
-**Biden Works Against the Clock as Violence Escalates in the Middle East**\
-`President Biden is beginning to acknowledge that he is simply running out of time to help forge a cease-fire and hostage deal with Hamas, his aides say. And the risk of a wider war has never looked greater.`\
-https://nytimes.com/2024/09/23/us/politics/biden-violence-escalates-in-middle-east.html
-
-**Getting Old Never Looked So Ugly**\
-`“The Substance” figures in the long line of movies about what you might call “menopausal derangement syndrome” — the ostensibly crazy-making tragedy of a woman living past 50.`\
-https://nytimes.com/2024/09/23/style/getting-old-never-looked-so-ugly.html
 
