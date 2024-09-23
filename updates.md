@@ -1,3 +1,19 @@
+**Newcastle's deficiencies came to fore at Fulham - how is Howe going to fix them?**\
+`Newcastle's results this season had papered over the cracks of poor performances... until Fulham. Eddie Howe has multiple problems to solve`\
+https://nytimes.com/athletic/5783359/2024/09/23/newcastle-problems-eddie-howe-fix/
+
+**Watkins and Duran as a pair would be a lot of fun - will Emery do it?**\
+`Aston Villa now have options aplenty - but will Unai Emery let Watkins and Duran loose together up front from the start of games?`\
+https://nytimes.com/athletic/5784005/2024/09/23/ollie-watkins-jhon-duran-unai-emery-aston-villa/
+
+**Everton are difficult to make sense of**\
+`Everton are finally off the mark - but yet again they let a lead slip. There were positive signs and familiar failings...`\
+https://nytimes.com/athletic/5784749/2024/09/23/everton-sean-dyche-ndiaye-leicester/
+
+**Tyler Dibling wears his socks so low Jack Grealish would blush - he's Premier League ready**\
+`Southampton head coach Russell Martin knows he has a special talent on his hands in Tyler Dibling - he looks at home in the top flight`\
+https://nytimes.com/athletic/5783969/2024/09/23/tyler-dibling-southampton-first-goal/
+
 **How Nuno's in-game management led Forest to make it five unbeaten away**\
 `Nottingham Forest have changed from the previous two seasons: they can now pick up results on the road... even with 10 men`\
 https://nytimes.com/athletic/5785410/2024/09/23/nottingham-forest-five-games-unbeaten-away/
