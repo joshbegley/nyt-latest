@@ -1,3 +1,7 @@
+**Word of the Day: conscious**\
+`This word has appeared in 792 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/23/learning/word-of-the-day-conscious.html
+
 **Putin Is Doing Something Almost Nobody Is Noticing**\
 `It’s not just opposition figures who are caught in the Kremlin’s dragnet.`\
 https://nytimes.com/2024/09/23/opinion/russia-putin-kremlin.html

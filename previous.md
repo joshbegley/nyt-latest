@@ -1,3 +1,7 @@
+**Word of the Day: conscious**\
+`This word has appeared in 792 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/23/learning/word-of-the-day-conscious.html
+
 **Mets takeaways: Francisco Lindor hopeful, Pete Alonso gets ovation, 6 outs for Edwin Díaz**\
 `Plus, Edwin Díaz records six-out save, Brandon Nimmo ends his slump in Mets' 2-1 win over Phillies. `\
 https://nytimes.com/athletic/5787554/2024/09/23/mets-win-series-phillies-edwin-diaz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784005/2024/09/23/ollie-watkins-jhon-duran-unai-em
 **Everton are difficult to make sense of**\
 `Everton are finally off the mark - but yet again they let a lead slip. There were positive signs and familiar failings...`\
 https://nytimes.com/athletic/5784749/2024/09/23/everton-sean-dyche-ndiaye-leicester/
-
-**Tyler Dibling wears his socks so low Jack Grealish would blush - he's Premier League ready**\
-`Southampton head coach Russell Martin knows he has a special talent on his hands in Tyler Dibling - he looks at home in the top flight`\
-https://nytimes.com/athletic/5783969/2024/09/23/tyler-dibling-southampton-first-goal/
 
