@@ -1,3 +1,15 @@
+**Mother of Accused Apalachee Gunman Faces Elder Abuse Charges**\
+`Marcee Gray, 43, is accused of taping her mother to a chair during a drug-induced rage.`\
+https://nytimes.com/2024/09/23/us/georgia-school-shooting-gunman-mother-abuse.html
+
+**Benny Golson, Saxophonist and Composer of Jazz Standards, Dies at 95**\
+`After forming a lauded band and writing tunes like “I Remember Clifford,” “Whisper Not” and “Killer Joe,” he had a second career composing and arranging music for television.`\
+https://nytimes.com/2024/09/23/arts/music/benny-golson-dead.html
+
+**Watching Arsenal draw 2-2 with Man City twice in the same day: 'I've never been more stressed'**\
+`Art de Roche experiences a tense day for Arsenal fans as the men and women face Manchester City within a few hours of each other`\
+https://nytimes.com/athletic/5787640/2024/09/23/watching-arsenal-manchester-city-men-women/
+
 **Biden Meets With Emirati President in Washington**\
 `The meeting with Sheikh Mohammed bin Zayed was expected to focus on Gaza, the war in Sudan and artificial intelligence. Vice President Kamala Harris is also scheduled to meet with the leader.`\
 https://nytimes.com/2024/09/23/us/politics/biden-harris-united-arab-emirates.html
