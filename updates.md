@@ -1,3 +1,7 @@
+**Barcelona briefing: Ter Stegen's injury overshadows Villarreal rout**\
+`Barca returned to winning ways after their midweek defeat to Monaco, but how much will they miss their No 1?`\
+https://nytimes.com/athletic/5787680/2024/09/23/barcelona-villarreal-ter-stegen-injury/
+
 **A World After Climate Change**\
 `A World After Climate Change`\
 https://nytimes.com/paidpost/veolia/a-world-after-climate-change.html
