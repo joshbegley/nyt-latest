@@ -1,3 +1,11 @@
+**Projecting the Golden Knights' opening-night lineup after 1 week of camp**\
+`Who will get the spot alongside Ivan Barbashev and Jack Eichel on the first line?`\
+https://nytimes.com/athletic/5785336/2024/09/23/golden-knights-lines-defense/
+
+**Suspect in Trump Assassination Attempt Outlined Plans in Note**\
+`The disclosure, included in a court filing, paints the clearest picture yet of an itinerant contractor who repeatedly said he was willing to die to defend Ukraine.`\
+https://nytimes.com/2024/09/23/us/politics/trump-assassination-attempt-routh-hearing.html
+
 **Biden Administration Proposes Ban on Chinese Software in Vehicles**\
 `Federal officials acknowledged that few Chinese vehicles were on U.S. roads now, but said that the administration wanted to take proactive measures to strengthen national security.`\
 https://nytimes.com/2024/09/23/us/politics/chinese-software-ban-cars-biden.html

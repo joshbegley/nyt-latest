@@ -1,3 +1,11 @@
+**Projecting the Golden Knights' opening-night lineup after 1 week of camp**\
+`Who will get the spot alongside Ivan Barbashev and Jack Eichel on the first line?`\
+https://nytimes.com/athletic/5785336/2024/09/23/golden-knights-lines-defense/
+
+**Suspect in Trump Assassination Attempt Outlined Plans in Note**\
+`The disclosure, included in a court filing, paints the clearest picture yet of an itinerant contractor who repeatedly said he was willing to die to defend Ukraine.`\
+https://nytimes.com/2024/09/23/us/politics/trump-assassination-attempt-routh-hearing.html
+
 **Biden Administration Proposes Ban on Chinese Software in Vehicles**\
 `Federal officials acknowledged that few Chinese vehicles were on U.S. roads now, but said that the administration wanted to take proactive measures to strengthen national security.`\
 https://nytimes.com/2024/09/23/us/politics/chinese-software-ban-cars-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/23/business/dealbook/intels-chips-qualcomm-apollo.ht
 **Padres takeaways: Starting pitching vs. Dodgers, Xander Bogaerts readjusting at short**\
 `The Padres already hold an important tiebreaker against the Dodgers, and their starting pitching advantage looks significant.`\
 https://nytimes.com/athletic/5787085/2024/09/23/padres-starting-pitchers-dodgers-series/
-
-**'I can play at this level': What's next for Wild's Liam Ohgren after strong first impression?**\
-`Wild coach John Hynes said there are plans for Ohgren to get looks up in the lineup during camp and "see what he does" with it.`\
-https://nytimes.com/athletic/5751309/2024/09/23/liam-ohgren-minnesota-wild-roster/
-
-**The Oakland A's are leaving. What I'll carry with me after 4 decades as a fan**\
-`There is a saying, "Oakland against the world," that speaks to what it has meant to be an A’s fan.`\
-https://nytimes.com/athletic/5754764/2024/09/23/oakland-athletics-appreciation-fan-memories/
 
