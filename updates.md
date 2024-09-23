@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
+
 **Newcastle's deficiencies came to fore at Fulham - how is Howe going to fix them?**\
 `Newcastle's results this season had papered over the cracks of poor performances... until Fulham. Eddie Howe has multiple problems to solve`\
 https://nytimes.com/athletic/5783359/2024/09/23/newcastle-problems-eddie-howe-fix/

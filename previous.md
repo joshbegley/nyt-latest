@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
+
 **Newcastle's deficiencies came to fore at Fulham - how is Howe going to fix them?**\
 `Newcastle's results this season had papered over the cracks of poor performances... until Fulham. Eddie Howe has multiple problems to solve`\
 https://nytimes.com/athletic/5783359/2024/09/23/newcastle-problems-eddie-howe-fix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5781745/2024/09/23/crystal-palace-need-directness/
 **Piroe, the Leeds striker who gets the job done - is it time to build around him?**\
 `Leeds managed to overcome Cardiff City 2-0 on Saturday with Joel Piroe hitting a late goal`\
 https://nytimes.com/athletic/5781713/2024/09/23/leeds-united-joel-piroe-analysis/
-
-**Cooper gets short honeymoon period as Leicester's slow start brings back painful memories**\
-`Cooper is still getting to know his players and their strengths and weaknesses. A section of Leicester's fanbase are doing the same with him`\
-https://nytimes.com/athletic/5784775/2024/09/23/leicester-fans-uncertain-steve-cooper/
 
