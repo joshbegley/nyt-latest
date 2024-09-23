@@ -16,6 +16,12 @@ https://nytimes.com/athletic/5787397/2024/09/22/49ers-rams-loss-ronnie-bell-spec
 `\
 https://nytimes.com/athletic/5787397/2024/09/22/49ers-rams-loss-ronnie-bell-special-teams/
 
+**The Rams, long the 49ers’ ‘get right’ foe, expose all their flaws in 27-24 loss**\
+`The 49ers let a game slip through their hands — at one point, literally — and in doing so dug themselves an early-season hole.
+
+`\
+https://nytimes.com/athletic/5787397/2024/09/22/49ers-rams-loss-ronnie-bell-special-teams/
+
 **Chiefs survive Falcons thanks to late no-call in 22-17 win: Takeaways**\
 `The Chiefs ended up running 72 plays to the Falcons 56 and outgaining Atlanta 349-311.`\
 https://nytimes.com/athletic/5787312/2024/09/22/chiefs-falcons-takeaways-result/
