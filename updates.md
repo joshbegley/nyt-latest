@@ -1,3 +1,11 @@
+**What’s on TV This Week: Lots of Medical and Police Dramas**\
+`ABC, NBC and Fox are all premiering new shows about doctors, cops or firefighters. The Voice is also returning, with Snoop Dogg joining the judges’ panel.`\
+https://nytimes.com/2024/09/23/arts/television/whats-on-tv-this-week-lots-of-medical-and-police-dramas.html
+
+**Putin Is Hunting Down Ordinary People**\
+`It’s not just opposition figures who are caught in the Kremlin’s dragnet.`\
+https://nytimes.com/2024/09/23/opinion/russia-putin-kremlin.html
+
 **Here are the latest developments.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
