@@ -1,3 +1,7 @@
+**Supermarkets in Australia Sued Over Claims of Fake Discounts**\
+`In a rare case of legal action tied to rising prices, the government sued Woolworths and Coles for what it described as a pattern of deceiving consumers.`\
+https://nytimes.com/2024/09/23/world/australia/woolworths-coles-fake-discounts.html
+
 **Raising the Stakes, Israel Gambles That Hezbollah Will Back Down**\
 `Israel’s intensifying strikes show how determined it is to stop Hezbollah’s cross-border attacks — and how far it is from achieving that goal.`\
 https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-escalating.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785591/2024/09/23/travis-hunter-2025-nfl-draft-col
 **Twins takeaways: Closing week playoff picture, Festa steps up, Margot makes history**\
 `After a 2-5 road trip to Cleveland and Boston, the Twins have fallen out of playoff position, narrowly, with six games remaining.`\
 https://nytimes.com/athletic/5783718/2024/09/23/minnesota-twins-playoff-picture/
-
-**Micah Parsons: 'Trust is not there' for Cowboys' struggling defense**\
-`The Ravens ran for 274 yards against the Cowboys. Jerry Jones says his confidence is defensive coordinator Mike Zimmer remains "very high."`\
-https://nytimes.com/athletic/5787532/2024/09/23/cowboys-lose-ravens-defense-struggles/
 

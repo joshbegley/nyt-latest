@@ -1,3 +1,7 @@
+**Supermarkets in Australia Sued Over Claims of Fake Discounts**\
+`In a rare case of legal action tied to rising prices, the government sued Woolworths and Coles for what it described as a pattern of deceiving consumers.`\
+https://nytimes.com/2024/09/23/world/australia/woolworths-coles-fake-discounts.html
+
 **Raising the Stakes, Israel Gambles That Hezbollah Will Back Down**\
 `Israel’s intensifying strikes show how determined it is to stop Hezbollah’s cross-border attacks — and how far it is from achieving that goal.`\
 https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-escalating.html
