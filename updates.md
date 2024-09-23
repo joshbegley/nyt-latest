@@ -1,3 +1,11 @@
+**Justin Herbert's X-rays on high ankle sprain negative**\
+`Harbaugh was asked if Herbert was still wearing his walking boot Monday. “I do not know that,” he said.`\
+https://nytimes.com/athletic/5789683/2024/09/23/justin-herbert-ankle-injury-chargers/
+
+**A Church Where Mark Robinson Still Has Defenders**\
+`At a Black evangelical church in North Carolina, the candidate for governor still has support.`\
+https://nytimes.com/2024/09/23/us/politics/in-north-carolina-a-snapshot-of-mark-robinsons-enduring-support.html
+
 **Visa Faces an Antitrust Lawsuit by the Justice Dept.**\
 `The agency plans to argue that the company illegally penalizes customers that try to use rival payment processors.`\
 https://nytimes.com/2024/09/23/business/dealbook/visa-lawsuit-doj.html
