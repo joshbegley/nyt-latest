@@ -1,3 +1,7 @@
+**Pentagon to Send More U.S. Troops to Middle East as Tensions Rise**\
+`Maj. Gen. Patrick S. Ryder, the Pentagon press secretary, declined to say exactly how many troops were deploying, citing operational security.`\
+https://nytimes.com/2024/09/23/us/politics/us-troops-mideast.html
+
 **Israeli warplanes target another top Hezbollah commander in Beirut, officials say.**\
 `By Ronen Bergman and Patrick Kingsley`\
 https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israeli-warplanes-target-another-top-hezbollah-commander-in-beirut-officials-say
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788924/2024/09/23/quinn-ewers-texas-oblique/
 **Browns' Teller to miss multiple weeks, Garrett day to day**\
 `Cleveland coach Kevin Stefanski said Teller is a candidate for IR, while Garrett could try to play through his injuries. `\
 https://nytimes.com/athletic/5788862/2024/09/23/browns-wyatt-teller-myles-garrett-injuries/
-
-**Explained: Everton's proposed takeover by The Friedkin Group**\
-`Everton appear to have new owners on the horizon after The Friedkin Group reached an agreement with Farhad Moshiri — what does it all mean?`\
-https://nytimes.com/athletic/5788555/2024/09/23/everton-takeover-the-friedkin-group/
 

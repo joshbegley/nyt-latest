@@ -1,3 +1,7 @@
+**Pentagon to Send More U.S. Troops to Middle East as Tensions Rise**\
+`Maj. Gen. Patrick S. Ryder, the Pentagon press secretary, declined to say exactly how many troops were deploying, citing operational security.`\
+https://nytimes.com/2024/09/23/us/politics/us-troops-mideast.html
+
 **Israeli warplanes target another top Hezbollah commander in Beirut, officials say.**\
 `By Ronen Bergman and Patrick Kingsley`\
 https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israeli-warplanes-target-another-top-hezbollah-commander-in-beirut-officials-say
