@@ -1,4 +1,4 @@
-**Justice Dept. Plans Antitrust Lawsuit Against Visa**\
+**Visa Faces an Antitrust Lawsuit by the Justice Dept.**\
 `The agency plans to argue that the company illegally penalizes customers that try to use rival payment processors.`\
 https://nytimes.com/2024/09/23/business/dealbook/visa-lawsuit-doj.html
 
