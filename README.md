@@ -1,3 +1,11 @@
+**The Pulse: Five NFL things we were wrong about**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5786692/2024/09/23/nfl-week-3-takeaways-the-pulse/
+
+**What else does Travis Hunter have to prove as NFL Draft prospect?**\
+`Hunter deserves to be the Heisman front-runner right now. Should he be in the conversation as the potential No. 1 pick in 2025?`\
+https://nytimes.com/athletic/5785591/2024/09/23/travis-hunter-2025-nfl-draft-colorado/
+
 **Twins takeaways: Closing week playoff picture, Festa steps up, Margot makes history**\
 `After a 2-5 road trip to Cleveland and Boston, the Twins have fallen out of playoff position, narrowly, with six games remaining.`\
 https://nytimes.com/athletic/5783718/2024/09/23/minnesota-twins-playoff-picture/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5783450/2024/09/23/agassi-laver-cup-team-world/
 **Malik Willis helps keep Packers' season afloat: 'I've never seen something like this'**\
 `In two games starting, Willis completed 25-of-35 passes for 324 yards and two touchdowns with 12 carries for 114 rushing yards and a score.`\
 https://nytimes.com/athletic/5786074/2024/09/23/malik-willis-packers-titans/
-
-**What we know and still don't know about CHSN's broadcasts**\
-`CHSN, a joint venture between the Blackhawks, Bulls and White Sox, launches in less than two weeks. Here's what viewers should know so far.`\
-https://nytimes.com/athletic/5785507/2024/09/23/chicago-sports-network-chsn-broadcast-info/
-
-**Vikings, Packers coaches make the NFC North the NFL’s best division: Sando’s Pick Six**\
-`"S---, they're for real," a coach said of the Vikings. The Packers are humming without Jordan Love. So what's wrong with the Bears?`\
-https://nytimes.com/athletic/5784021/2024/09/23/packers-vikings-nfc-north-best-division-nfl/
 
