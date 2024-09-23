@@ -1,3 +1,11 @@
+**The Pulse: Five NFL things we were wrong about**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5786692/2024/09/23/nfl-week-3-takeaways-the-pulse/
+
+**What else does Travis Hunter have to prove as NFL Draft prospect?**\
+`Hunter deserves to be the Heisman front-runner right now. Should he be in the conversation as the potential No. 1 pick in 2025?`\
+https://nytimes.com/athletic/5785591/2024/09/23/travis-hunter-2025-nfl-draft-colorado/
+
 **Twins takeaways: Closing week playoff picture, Festa steps up, Margot makes history**\
 `After a 2-5 road trip to Cleveland and Boston, the Twins have fallen out of playoff position, narrowly, with six games remaining.`\
 https://nytimes.com/athletic/5783718/2024/09/23/minnesota-twins-playoff-picture/
