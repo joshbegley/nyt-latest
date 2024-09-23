@@ -1,3 +1,11 @@
+**The Athletic FC: City vs Arsenal - an official rivalry, Friedkin Group on cusp of Everton deal**\
+`Today in TAFC: Manchester City vs Arsenal, things just got real. Plus: Trump's former lawyer leads a consortium in bid to buy Tranmere.`\
+https://nytimes.com/athletic/5787846/2024/09/23/city-vs-arsenal-rivalry-everton-friedkin-group/
+
+**FPL: What we learned from Gameweek 4 - Chelsea on the rise and Diaz worries**\
+`Abdul Rehman breaks down the main talking points from Gameweek 5 in FPL, including why he isn't getting carried away by Luis Diaz's form`\
+https://nytimes.com/athletic/5785877/2024/09/23/fantasy-premier-league-gw2-jackson-diaz-isak/
+
 **Mendy extends Real contract until 2027**\
 `Ferland Mendy has extended his contract at Real Madrid for three more years.`\
 https://nytimes.com/athletic/5533766/2024/09/23/ferland-mendy-real-madrid-contract-new/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5785112/2024/09/23/nhl-offer-sheets-gms-agents/
 **Patrick Mahomes still not playing his best, but defense keeps Chiefs undefeated**\
 `The Chiefs scored enough points in the third quarter to take the lead and the defense held the Falcons to three points in the second half.`\
 https://nytimes.com/athletic/5787643/2024/09/23/patrick-mahomes-chiefs-defense-falcons/
-
-**Friedkin Group close to agreeing Everton takeover deal**\
-`The Friedkin Group (TFG) has made significant progress in its bid to complete a takeover of Everton, just two months after dramatically pulling out of talks.`\
-https://nytimes.com/athletic/5756222/2024/09/23/friedkin-everton-takeover/
-
-**Global Threats**\
-`We explore a report that details the threats faced by the U.S.`\
-https://nytimes.com/2024/09/23/briefing/global-threats-us.html
 

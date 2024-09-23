@@ -1,3 +1,11 @@
+**The Athletic FC: City vs Arsenal - an official rivalry, Friedkin Group on cusp of Everton deal**\
+`Today in TAFC: Manchester City vs Arsenal, things just got real. Plus: Trump's former lawyer leads a consortium in bid to buy Tranmere.`\
+https://nytimes.com/athletic/5787846/2024/09/23/city-vs-arsenal-rivalry-everton-friedkin-group/
+
+**FPL: What we learned from Gameweek 4 - Chelsea on the rise and Diaz worries**\
+`Abdul Rehman breaks down the main talking points from Gameweek 5 in FPL, including why he isn't getting carried away by Luis Diaz's form`\
+https://nytimes.com/athletic/5785877/2024/09/23/fantasy-premier-league-gw2-jackson-diaz-isak/
+
 **Mendy extends Real contract until 2027**\
 `Ferland Mendy has extended his contract at Real Madrid for three more years.`\
 https://nytimes.com/athletic/5533766/2024/09/23/ferland-mendy-real-madrid-contract-new/
