@@ -1,3 +1,11 @@
+**Davis Cup Finals squads: Nadal for Spain, Sinner could face Alcaraz**\
+`Nadal, 38, has not played competitive tennis since the Olympics, in which he partnered Alcaraz.`\
+https://nytimes.com/athletic/5789286/2024/09/23/davis-cup-finals-squads-schedule/
+
+**Defendants Mostly Cleared in ‘Trump Train’ Case Over Biden Bus in 2020**\
+`A San Antonio man was found liable for his role in helping to organize a convoy of Trump supporters that closely followed a Biden-Harris campaign bus in 2020.`\
+https://nytimes.com/2024/09/23/us/trump-train-verdict.html
+
 **Tuesday Briefing: Israeli Airstrikes in Lebanon Kill Hundreds**\
 `Plus, vintage soccer jerseys and the memories they preserve.`\
 https://nytimes.com/2024/09/23/briefing/israel-lebanon-election-unga.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5789186/2024/09/23/rodri-injury-manchester-city-gua
 **Pakistan Appoints New Head of Its Powerful Spy Agency**\
 `The appointment of a top general, Lt. Gen. Muhammad Asim Malik, to the post comes as the country faces numerous internal and external challenges.`\
 https://nytimes.com/2024/09/23/world/middleeast/pakistan-spy-agency-chief.html
-
-**Trump Learned Nothing From the Obamacare Debate. Neither Did Vance.**\
-`Their “concepts” would abandon people with pre-existing conditions.`\
-https://nytimes.com/2024/09/23/opinion/trump-vance-obamacare-concepts.html
-
-**Raiders' Pierce not fully committing to Gardner Minshew as QB1**\
-`"I think we’ve got to get with the players and just evaluate everything from yesterday first,” Pierce said.`\
-https://nytimes.com/athletic/5789279/2024/09/23/raiders-antonio-pierce-gardner-minshew/
 

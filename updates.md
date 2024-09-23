@@ -1,3 +1,7 @@
+**Tuesday Briefing: Israeli Airstrikes in Lebanon Kill Hundreds**\
+`Plus, vintage soccer jerseys and the memories they preserve.`\
+https://nytimes.com/2024/09/23/briefing/israel-lebanon-election-unga.html
+
 **As Investigations Swirl, Another Adams Official Resigns**\
 `Dr. Ashwin Vasan, who led New York City out of the pandemic as its health commissioner, is the third top official to quit in recent weeks.`\
 https://nytimes.com/2024/09/23/nyregion/vasan-health-commissioner-resigns.html
