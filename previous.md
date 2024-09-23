@@ -1,3 +1,19 @@
+**City and Arsenal's bad blood: Clear on the pitch - and it goes right to the top of both**\
+`The issues between Manchester City and Arsenal are not just confined to the football pitch`\
+https://nytimes.com/athletic/5770847/2024/09/23/manchester-city-arsenal-rivalry/
+
+**Arsenal stood tall and left a mark on Manchester City - there was animosity and menace**\
+`It was not the victory that Arsenal so desperately wanted but given the circumstances, it was a triumph of mentality.`\
+https://nytimes.com/athletic/5786138/2024/09/23/arsenal-man-city-resilience/
+
+**Fulham, Mohamed Al Fayed and the 'legacy of a man who was really a monster'**\
+`Former Fulham owner Mohamed Al Fayed has been accused of sexual abuse by 37 women`\
+https://nytimes.com/athletic/5784727/2024/09/23/fulham-mohamed-al-fayed/
+
+**A 17-year-old wonderkid analyses his brilliant backheel goal**\
+`Scouts are flocking to Sunderland to watch Chris Rigg — the 17-year-old midfielder gave them something to savour against Middlesbrough`\
+https://nytimes.com/athletic/5784839/2024/09/23/chris-rigg-sunderland-17-backheel-wondergoal/
+
 **Fantasy football Week 3 takeaways: Sam Darnold is the early MVP, Miami is a mess without Tua and more**\
 `Michael Salfino shares his takeaways from Week 3, including his belief in the staying power of the Kyler Murray-led Arizona offense. `\
 https://nytimes.com/athletic/5787049/2024/09/23/fantasy-football-week-3-takeaways/
@@ -21,22 +37,4 @@ https://nytimes.com/2024/09/23/world/asia/refugees-women-soccer-myanmar-thailand
 **Quote of the Day: An Annual Festival That Is a True Communist Party**\
 `Quotation of the Day for Monday, September 22, 2024.`\
 https://nytimes.com/2024/09/23/pageoneplus/quote-of-the-day-an-annual-festival-that-is-a-true-communist-party.html
-
-**Britain’s Prime Minister, Bruised by a Dispute Over Freebies, Badly Needs a Reset**\
-`Prime Minister Keir Starmer is under pressure to give an already disillusioned public some good news when he speaks at the Labour Party conference on Tuesday.`\
-https://nytimes.com/2024/09/23/world/europe/uk-prime-minister-keir-starmer-public-opinion.html
-
-**Jaguars at Bills odds, expert picks, how to watch: Can Buffalo stay undefeated?**\
-`Josh Allen has led the Bills to a 2-0 start and Buffalo is favored against Jacksonville for a Monday night affair.`\
-https://nytimes.com/athletic/5779920/2024/09/23/jaguars-bills-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Monday's MLB best bets: Projections for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
-https://nytimes.com/athletic/5782806/2024/09/23/mlb-odds-best-bets-projections-september-23/
-
-**The Rams, long the 49ers’ ‘get right’ foe, expose all their flaws**\
-`The 49ers let a game slip through their hands — at one point, literally — and in doing so dug themselves an early-season hole.
-
-`\
-https://nytimes.com/athletic/5787397/2024/09/22/49ers-rams-loss-ronnie-bell-special-teams/
 

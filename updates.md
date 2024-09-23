@@ -1,3 +1,19 @@
+**City and Arsenal's bad blood: Clear on the pitch - and it goes right to the top of both**\
+`The issues between Manchester City and Arsenal are not just confined to the football pitch`\
+https://nytimes.com/athletic/5770847/2024/09/23/manchester-city-arsenal-rivalry/
+
+**Arsenal stood tall and left a mark on Manchester City - there was animosity and menace**\
+`It was not the victory that Arsenal so desperately wanted but given the circumstances, it was a triumph of mentality.`\
+https://nytimes.com/athletic/5786138/2024/09/23/arsenal-man-city-resilience/
+
+**Fulham, Mohamed Al Fayed and the 'legacy of a man who was really a monster'**\
+`Former Fulham owner Mohamed Al Fayed has been accused of sexual abuse by 37 women`\
+https://nytimes.com/athletic/5784727/2024/09/23/fulham-mohamed-al-fayed/
+
+**A 17-year-old wonderkid analyses his brilliant backheel goal**\
+`Scouts are flocking to Sunderland to watch Chris Rigg — the 17-year-old midfielder gave them something to savour against Middlesbrough`\
+https://nytimes.com/athletic/5784839/2024/09/23/chris-rigg-sunderland-17-backheel-wondergoal/
+
 **The Rams, long the 49ers’ ‘get right’ foe, expose all their flaws**\
 `The 49ers let a game slip through their hands — at one point, literally — and in doing so dug themselves an early-season hole.
 
