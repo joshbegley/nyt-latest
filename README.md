@@ -1,3 +1,11 @@
+**Getting Old Never Looked So Ugly**\
+`“The Substance” figures in the long line of movies about what you might call “menopausal derangement syndrome” — the ostensibly crazy-making tragedy of a woman living past 50.`\
+https://nytimes.com/2024/09/23/style/getting-old-never-looked-so-ugly.html
+
+**Fredric Jameson, Critic Who Linked Literature to Capitalism, Dies at 90**\
+`Among the world’s leading academic critics, he brought his analytical rigor to topics as diverse as German opera and sci-fi movies.`\
+https://nytimes.com/2024/09/23/books/fredric-jameson-dead.html
+
 **Mark Messier joins Amazon Prime's hockey broadcast team**\
 `John Forslund will be the play-by-play announcer while Jody Shelley, Thomas Hickey, and Shane Hnidy join the crew as analysts. `\
 https://nytimes.com/athletic/5789202/2024/09/23/mark-messier-amazon-prime-monday-night-hockey-broadcast/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5789286/2024/09/23/davis-cup-finals-squads-schedule
 **Defendants Mostly Cleared in ‘Trump Train’ Case Over Biden Bus in 2020**\
 `A San Antonio man was found liable for his role in helping to organize a convoy of Trump supporters that closely followed a Biden-Harris campaign bus in 2020.`\
 https://nytimes.com/2024/09/23/us/trump-train-verdict.html
-
-**Tuesday Briefing: Israeli Airstrikes in Lebanon Kill Hundreds**\
-`Plus, vintage soccer jerseys and the memories they preserve.`\
-https://nytimes.com/2024/09/23/briefing/israel-lebanon-election-unga.html
-
-**As Investigations Swirl, Another Adams Official Resigns**\
-`Dr. Ashwin Vasan, who led New York City out of the pandemic as its health commissioner, is the third top official to quit in recent weeks.`\
-https://nytimes.com/2024/09/23/nyregion/vasan-health-commissioner-resigns.html
 
