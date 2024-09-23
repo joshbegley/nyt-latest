@@ -1,3 +1,7 @@
+**A South Korean Shooter Gets to Play an Assassin, but Some Before Her Have Flopped**\
+`Olympians who tried the movies, especially in the 1980s, often fared poorly.`\
+https://nytimes.com/2024/09/23/sports/kim-ye-ji-korea-olympics-shooter-acting.html
+
 **Vikings' Sam Darnold expected to start vs. Packers after knee bruise**\
 `Darnold has been one of the best quarterbacks in the league through three weeks.`\
 https://nytimes.com/athletic/5788969/2024/09/23/sam-darnold-knee-injury-vikings/
