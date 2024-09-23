@@ -1,3 +1,7 @@
+**Israel Launched Intense Airstrikes on Hezbollah**\
+`Also, new polls were Trump’s best in weeks. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/09/23/briefing/israel-lebanon-airstrikes-trump-harris-polls.html
+
 **At U.N. Conference, Global Crises Collide With Fraught American Politics**\
 `President Biden will speak at a time of deep uncertainty about the future of America’s role in the world.`\
 https://nytimes.com/2024/09/23/us/politics/united-nations-american-politics.html

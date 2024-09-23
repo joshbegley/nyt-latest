@@ -1,3 +1,7 @@
+**Israel Launched Intense Airstrikes on Hezbollah**\
+`Also, new polls were Trump’s best in weeks. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/09/23/briefing/israel-lebanon-airstrikes-trump-harris-polls.html
+
 **At U.N. Conference, Global Crises Collide With Fraught American Politics**\
 `President Biden will speak at a time of deep uncertainty about the future of America’s role in the world.`\
 https://nytimes.com/2024/09/23/us/politics/united-nations-american-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/23/us/routh-detention-memo.html
 **A Congressman Had an Affair. Then He Put His Lover on the Payroll.**\
 `Representative Anthony D’Esposito, a New York Republican, gave part-time jobs to both his lover and his fiancée’s daughter, in possible violation of House ethics rules.`\
 https://nytimes.com/2024/09/23/nyregion/anthony-desposito-affair-congress.html
-
-**Reds' search for a new manager to replace David Bell begins immediately**\
-`The Reds aren't going to wait until the offseason as they seek a new manager. “We’re looking for somebody that can lead this clubhouse.”`\
-https://nytimes.com/athletic/5788781/2024/09/23/reds-manager-search-david-bell-begins/
 
