@@ -1,3 +1,7 @@
+**Browns have an identity crisis; they refuse to accept who they really are**\
+`This team is built to run the ball and throw off play-action. It’s when the Browns try to be something they’re not that they get exposed.`\
+https://nytimes.com/athletic/5786492/2024/09/22/browns-giants-offense-identity-deshaun-watson/
+
 **Reds fire manager David Bell during sixth season**\
 `Bell went 409-456 during his tenure.`\
 https://nytimes.com/athletic/5787081/2024/09/22/david-bell-fired-reds-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/22/us/florida-deputy-gun-death.html
 **Defiant Giants rebound from nightmare start to game, season to get desperately needed win**\
 `"Losers have a mentality. Losing happens, but we’re not going to have no loser mentality. We're going to ball."`\
 https://nytimes.com/athletic/5786438/2024/09/22/giants-win-browns-brian-daboll/
-
-**Sam Darnold's performance — and health scare — cements role in Vikings' stellar start**\
-`The narrative surrounding Darnold has clearly changed after his four-touchdown day lifts Vikings to dominant win over Texans, 3-0 start.`\
-https://nytimes.com/athletic/5786551/2024/09/22/sam-darnold-vikings-texans-week-3/
 

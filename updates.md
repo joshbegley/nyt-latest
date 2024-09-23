@@ -1,3 +1,7 @@
+**Browns have an identity crisis; they refuse to accept who they really are**\
+`This team is built to run the ball and throw off play-action. It’s when the Browns try to be something they’re not that they get exposed.`\
+https://nytimes.com/athletic/5786492/2024/09/22/browns-giants-offense-identity-deshaun-watson/
+
 **Reds fire manager David Bell during sixth season**\
 `Bell went 409-456 during his tenure.`\
 https://nytimes.com/athletic/5787081/2024/09/22/david-bell-fired-reds-manager/
