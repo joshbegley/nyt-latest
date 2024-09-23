@@ -1,3 +1,11 @@
+**Micah Parsons: 'Trust is not there' for Cowboys' struggling defense**\
+`The Ravens ran for 274 yards against the Cowboys. Jerry Jones says his confidence is defensive coordinator Mike Zimmer remains "very high."`\
+https://nytimes.com/athletic/5787532/2024/09/23/cowboys-lose-ravens-defense-struggles/
+
+**Five takeaways from Craig Counsell’s blunt assessment that the Cubs aren’t good enough**\
+`“We have to push each other in these situations,” Counsell said.`\
+https://nytimes.com/athletic/5786843/2024/09/23/craig-counsell-cubs-arent-good-enough/
+
 **Another Bears Sunday squandered: What went wrong in Indianapolis?**\
 `The Bears started to find life on offense only to turn it over multiple times and fail to capitalize in their second loss in a row.`\
 https://nytimes.com/athletic/5786369/2024/09/23/bears-missed-opportunities-colts/
