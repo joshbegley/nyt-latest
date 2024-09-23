@@ -1,3 +1,7 @@
+**Tuesday Briefing: Israeli Airstrikes in Lebanon Kill Hundreds**\
+`Plus, vintage soccer jerseys and the memories they preserve.`\
+https://nytimes.com/2024/09/23/briefing/israel-lebanon-election-unga.html
+
 **As Investigations Swirl, Another Adams Official Resigns**\
 `Dr. Ashwin Vasan, who led New York City out of the pandemic as its health commissioner, is the third top official to quit in recent weeks.`\
 https://nytimes.com/2024/09/23/nyregion/vasan-health-commissioner-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/opinion/trump-vance-obamacare-concepts.html
 **Raiders' Pierce not fully committing to Gardner Minshew as QB1**\
 `"I think we’ve got to get with the players and just evaluate everything from yesterday first,” Pierce said.`\
 https://nytimes.com/athletic/5789279/2024/09/23/raiders-antonio-pierce-gardner-minshew/
-
-**Oakland A's John Fisher writes letter to fans**\
-`The Oakland Coliseum will play host to a final three-game series between the A's and Rangers before the A's temporarily move to Sacramento.`\
-https://nytimes.com/athletic/5789247/2024/09/23/john-fisher-letter-oakland-as-fans/
 

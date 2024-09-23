@@ -1,3 +1,11 @@
+**As Investigations Swirl, Another Adams Official Resigns**\
+`Dr. Ashwin Vasan, who led New York City out of the pandemic as its health commissioner, is the third top official to quit in recent weeks.`\
+https://nytimes.com/2024/09/23/nyregion/vasan-health-commissioner-resigns.html
+
+**Read the prosecutors’ detention memo**\
+`The court filing included a note that prosecutors said the suspect had written suggesting that he had planned to attack former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/09/23/us/routh-detention-memo.html
+
 **A Congressman Had an Affair. Then He Put His Lover on the Payroll.**\
 `Representative Anthony D’Esposito, a New York Republican, gave part-time jobs to both his lover and his fiancée’s daughter, in possible violation of House ethics rules.`\
 https://nytimes.com/2024/09/23/nyregion/anthony-desposito-affair-congress.html
