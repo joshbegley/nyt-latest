@@ -1,3 +1,7 @@
+**Parents Race to Get Children From Schools as Fear Spreads in Beirut**\
+`Lebanon’s Education Ministry ordered some schools to close amid warnings from Israel that it was intensifying strikes against Hezbollah and calls for residents to evacuate.`\
+https://nytimes.com/2024/09/23/world/middleeast/lebanon-beirut-israel-hezbollah.html
+
 **Projecting the Golden Knights' opening-night lineup after 1 week of camp**\
 `Who will get the spot alongside Ivan Barbashev and Jack Eichel on the first line?`\
 https://nytimes.com/athletic/5785336/2024/09/23/golden-knights-lines-defense/
