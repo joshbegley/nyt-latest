@@ -1,3 +1,7 @@
+**Twins takeaways: Closing week playoff picture, Festa steps up, Margot makes history**\
+`After a 2-5 road trip to Cleveland and Boston, the Twins have fallen out of playoff position, narrowly, with six games remaining.`\
+https://nytimes.com/athletic/5783718/2024/09/23/minnesota-twins-playoff-picture/
+
 **Micah Parsons: 'Trust is not there' for Cowboys' struggling defense**\
 `The Ravens ran for 274 yards against the Cowboys. Jerry Jones says his confidence is defensive coordinator Mike Zimmer remains "very high."`\
 https://nytimes.com/athletic/5787532/2024/09/23/cowboys-lose-ravens-defense-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785507/2024/09/23/chicago-sports-network-chsn-broa
 **Vikings, Packers coaches make the NFC North the NFL’s best division: Sando’s Pick Six**\
 `"S---, they're for real," a coach said of the Vikings. The Packers are humming without Jordan Love. So what's wrong with the Bears?`\
 https://nytimes.com/athletic/5784021/2024/09/23/packers-vikings-nfc-north-best-division-nfl/
-
-**The 8 biggest things I'm tracking in Blue Jackets training camp**\
-`Even with practices underway, the Blue Jackets remain in search of a roster boost.`\
-https://nytimes.com/athletic/5785699/2024/09/23/blue-jackets-camp-season-opener/
 
