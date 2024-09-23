@@ -1,3 +1,7 @@
+**Jets risers, fallers and question marks after 2 preseason games**\
+`Here's what we're seeing after two Jets preseason games, with a small round of cuts on the immediate horizon.`\
+https://nytimes.com/athletic/5784407/2024/09/23/winnipeg-jets-2024-preseason/
+
 **One Bull Is Still Missing After 8 Escape From Massachusetts Rodeo**\
 `The bulls were part of a one-day rodeo held at the Emerald Square Mall on Sunday in North Attleboro.`\
 https://nytimes.com/2024/09/23/us/bulls-escape-rodeo-massachusetts.html
