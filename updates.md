@@ -1,3 +1,15 @@
+**Will Noah Philp's comeback land him a job with the Oilers? 'I feel as good as I ever have'**\
+`If Philp wasn’t the best Oilers forward in Sunday's preseason win, he was certainly on the short list.`\
+https://nytimes.com/athletic/5787349/2024/09/23/edmonton-oilers-noah-philp-preseason-comeback/
+
+**Is offer-sheet mania coming to the NHL? GMs and agents on whether Blues-Oilers could just be the start**\
+`"Make no mistake, the barn door has been opened," one agent said. But GMs countered that the situation has to be perfect to pull one off.`\
+https://nytimes.com/athletic/5785112/2024/09/23/nhl-offer-sheets-gms-agents/
+
+**Patrick Mahomes still not playing his best, but defense keeps Chiefs undefeated**\
+`The Chiefs scored enough points in the third quarter to take the lead and the defense held the Falcons to three points in the second half.`\
+https://nytimes.com/athletic/5787643/2024/09/23/patrick-mahomes-chiefs-defense-falcons/
+
 **Friedkin Group close to agreeing Everton takeover deal**\
 `The Friedkin Group (TFG) has made significant progress in its bid to complete a takeover of Everton, just two months after dramatically pulling out of talks.`\
 https://nytimes.com/athletic/5756222/2024/09/23/friedkin-everton-takeover/
