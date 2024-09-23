@@ -1,8 +1,4 @@
-**Sabres roster projection: Predicting opening-night lineup, final camp battles**\
-`After Buffalo's first preseason game, a rout of the Penguins, Lindy Ruff's plans for the Sabres are starting to take shape.`\
-https://nytimes.com/athletic/5786898/2024/09/23/sabres-roster-projection-camp-battle/
-
-**The Athletic FC: City vs Arsenal - an official rivalry, Friedkin Group on cusp of Everton deal**\
+**The Athletic FC: City vs Arsenal - An official rivalry, Friedkin Group on cusp of Everton deal**\
 `Today in TAFC: Manchester City vs Arsenal, things just got real. Plus: Trump's former lawyer leads a consortium in bid to buy Tranmere.`\
 https://nytimes.com/athletic/5787846/2024/09/23/city-vs-arsenal-rivalry-everton-friedkin-group/
 
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5787349/2024/09/23/edmonton-oilers-noah-philp-prese
 **Is offer-sheet mania coming to the NHL? GMs and agents on whether Blues-Oilers could just be the start**\
 `"Make no mistake, the barn door has been opened," one agent said. But GMs countered that the situation has to be perfect to pull one off.`\
 https://nytimes.com/athletic/5785112/2024/09/23/nhl-offer-sheets-gms-agents/
+
+**Patrick Mahomes still not playing his best, but defense keeps Chiefs undefeated**\
+`The Chiefs scored enough points in the third quarter to take the lead and the defense held the Falcons to three points in the second half.`\
+https://nytimes.com/athletic/5787643/2024/09/23/patrick-mahomes-chiefs-defense-falcons/
 
