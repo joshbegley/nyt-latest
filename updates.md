@@ -1,3 +1,11 @@
+**Was It Really a Hot Zone Summer?**\
+`From Covid to dengue, viral outbreaks seemed to be popping up all over. But maybe Americans are just more attuned to threats now.`\
+https://nytimes.com/2024/09/23/health/virus-outbreaks-summer.html
+
+**Lowetide: Keys for the Oilers to achieve an all-important fast start**\
+`The Oilers should at least be able to avoid the ghastly opening 10 games they endured a year ago.`\
+https://nytimes.com/athletic/5785453/2024/09/23/edmonton-oilers-keys-fast-start/
+
 **IndyCar announces 'charter system' to promote series' health**\
 `A total of 25 charters will be distributed to a group of 10 current team owners who have fielded full-time cars over the past two seasons.`\
 https://nytimes.com/athletic/5788364/2024/09/23/indycar-charter-system-nascar/
