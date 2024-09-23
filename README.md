@@ -1,3 +1,7 @@
+**2 Plead Guilty in Drug-Related Death of Prominent Transgender Activist**\
+`Michael Kuilan and Antonio Venti admitted providing fentanyl-laced heroin to Cecilia Gentili, whose death prompted an outpouring of grief among L.G.B.T.Q. New Yorkers.`\
+https://nytimes.com/2024/09/23/nyregion/cecilia-gentili-fentanyl-death-guilty.html
+
 **California Schools Must Restrict Phones Under New Law Signed by Newsom**\
 `Calls for crackdowns have mounted with reports of cyberbullying and studies indicating that smartphones are harmful to children’s mental health.`\
 https://nytimes.com/2024/09/23/us/california-school-cellphone-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/us/politics/biden-violence-escalates-in-middle-ea
 **Getting Old Never Looked So Ugly**\
 `“The Substance” figures in the long line of movies about what you might call “menopausal derangement syndrome” — the ostensibly crazy-making tragedy of a woman living past 50.`\
 https://nytimes.com/2024/09/23/style/getting-old-never-looked-so-ugly.html
-
-**Fredric Jameson, Critic Who Linked Literature to Capitalism, Dies at 90**\
-`Among the world’s leading academic critics, he brought his analytical rigor to topics as diverse as German opera and sci-fi movies.`\
-https://nytimes.com/2024/09/23/books/fredric-jameson-dead.html
 
