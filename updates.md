@@ -1,3 +1,11 @@
+**Davis Cup Finals squads: Nadal for Spain, Sinner could face Alcaraz**\
+`Nadal, 38, has not played competitive tennis since the Olympics, in which he partnered Alcaraz.`\
+https://nytimes.com/athletic/5789286/2024/09/23/davis-cup-finals-squads-schedule/
+
+**Defendants Mostly Cleared in ‘Trump Train’ Case Over Biden Bus in 2020**\
+`A San Antonio man was found liable for his role in helping to organize a convoy of Trump supporters that closely followed a Biden-Harris campaign bus in 2020.`\
+https://nytimes.com/2024/09/23/us/trump-train-verdict.html
+
 **Tuesday Briefing: Israeli Airstrikes in Lebanon Kill Hundreds**\
 `Plus, vintage soccer jerseys and the memories they preserve.`\
 https://nytimes.com/2024/09/23/briefing/israel-lebanon-election-unga.html
