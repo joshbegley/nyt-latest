@@ -1,3 +1,7 @@
+**Reds fire manager David Bell during 6th season after just 1 playoff appearance**\
+`Bell went 409-456 during his tenure.`\
+https://nytimes.com/athletic/5787081/2024/09/22/david-bell-fired-reds-manager/
+
 **Kenley Jansen to the IL, Red Sox season on the brink: What to watch in the final week**\
 `The Red Sox won two games on Sunday but lost another key piece. Their playoff odds are long. These are the goals they should focus on.`\
 https://nytimes.com/athletic/5786924/2024/09/22/kenley-jansen-il-red-sox-season-goals/

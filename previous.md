@@ -1,3 +1,7 @@
+**Reds fire manager David Bell during 6th season after just 1 playoff appearance**\
+`Bell went 409-456 during his tenure.`\
+https://nytimes.com/athletic/5787081/2024/09/22/david-bell-fired-reds-manager/
+
 **Kenley Jansen to the IL, Red Sox season on the brink: What to watch in the final week**\
 `The Red Sox won two games on Sunday but lost another key piece. Their playoff odds are long. These are the goals they should focus on.`\
 https://nytimes.com/athletic/5786924/2024/09/22/kenley-jansen-il-red-sox-season-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786438/2024/09/22/giants-win-browns-brian-daboll/
 **Sam Darnold's performance — and health scare — cements role in Vikings' stellar start**\
 `The narrative surrounding Darnold has clearly changed after his four-touchdown day lifts Vikings to dominant win over Texans, 3-0 start.`\
 https://nytimes.com/athletic/5786551/2024/09/22/sam-darnold-vikings-texans-week-3/
-
-**The Harris campaign says it took in $27 million at Wall Street fund-raiser.**\
-`By Theodore Schleifer`\
-https://nytimes.com/live/2024/09/22/us/trump-harris-election/harris-fundraiser-wall-street
 
