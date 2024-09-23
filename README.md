@@ -1,3 +1,7 @@
+**AFC Wimbledon vs Newcastle postponed due to flooding**\
+`Newcastle United&#8217;s Carabao Cup third-round tie at AFC Wimbledon has been postponed due to flooding at the Cherry Red Records Stadium.`\
+https://nytimes.com/athletic/5787769/2024/09/23/wimbledon-newcastle-postponed-carabao-cup/
+
 **A World After Climate Change**\
 `A World After Climate Change`\
 https://nytimes.com/paidpost/veolia/a-world-after-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5787637/2024/09/23/tony-popovic-australia-head-coac
 **Word of the Day: conscious**\
 `This word has appeared in 792 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/23/learning/word-of-the-day-conscious.html
-
-**Mets takeaways: Francisco Lindor hopeful, Pete Alonso gets ovation, 6 outs for Edwin Díaz**\
-`Plus, Edwin Díaz records six-out save, Brandon Nimmo ends his slump in Mets' 2-1 win over Phillies. `\
-https://nytimes.com/athletic/5787554/2024/09/23/mets-win-series-phillies-edwin-diaz/
 
