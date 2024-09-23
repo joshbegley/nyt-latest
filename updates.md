@@ -1,3 +1,7 @@
+**AFC Wimbledon vs Newcastle postponed due to flooding**\
+`Newcastle United&#8217;s Carabao Cup third-round tie at AFC Wimbledon has been postponed due to flooding at the Cherry Red Records Stadium.`\
+https://nytimes.com/athletic/5787769/2024/09/23/wimbledon-newcastle-postponed-carabao-cup/
+
 **Barcelona briefing: Ter Stegen's injury overshadows Villarreal rout**\
 `Barca returned to winning ways after their midweek defeat to Monaco, but how much will they miss their No 1?`\
 https://nytimes.com/athletic/5787680/2024/09/23/barcelona-villarreal-ter-stegen-injury/
