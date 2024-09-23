@@ -1,3 +1,7 @@
+**One Bull Is Still Missing After 8 Escape From Massachusetts Rodeo**\
+`The bulls were part of a one-day rodeo held at the Emerald Square Mall on Sunday in North Attleboro.`\
+https://nytimes.com/2024/09/23/us/bulls-escape-rodeo-massachusetts.html
+
 **Ukraine’s president criticized Trump and Vance over remarks on its war with Russia.**\
 `The president of Ukr`\
 https://nytimes.com/live/2024/09/23/us/trump-harris-election/ukraines-president-criticized-trump-and-vance-over-remarks-on-its-war-with-russia
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/sports/kim-ye-ji-korea-olympics-shooter-acting.ht
 **Vikings' Sam Darnold expected to start vs. Packers after knee bruise**\
 `Darnold has been one of the best quarterbacks in the league through three weeks.`\
 https://nytimes.com/athletic/5788969/2024/09/23/sam-darnold-knee-injury-vikings/
-
-**Tanzania’s President Vowed Opening for Opposition, but Detained Its Leaders**\
-`The East African country’s leading opposition party said that its presidential candidate in the last election and its chairman were among dozens detained before a protest called to draw attention to the killing and abduction of government critics.`\
-https://nytimes.com/2024/09/23/world/africa/tanzania-opposition-leaders-arrested-protests.html
 
