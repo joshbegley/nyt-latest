@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5786238/2024/09/22/steelers-victory-chargers-justin
 https://nytimes.com/athletic/5786531/2024/09/22/chargers-justin-herbert-steelers-ankle-injury/
 
 **Packers' 'ridiculous' pass rush vs. Titans showed why sights are set on Super Bowl**\
-`The Packers registered eight sacks on Sunday, tied for the fourth-most in a game in franchise history.`\
+`The Packers registered eight sacks Sunday, tied for the fourth most in a game in franchise history.`\
 https://nytimes.com/athletic/5786228/2024/09/22/packers-win-titans-sacks-defense/
 
 **Another Raiola is heading to Lincoln: Dayton, younger brother of Dylan, commits to Huskers**\
