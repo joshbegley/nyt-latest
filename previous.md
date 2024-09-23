@@ -1,3 +1,7 @@
+**A World After Climate Change**\
+`A World After Climate Change`\
+https://nytimes.com/paidpost/veolia/a-world-after-climate-change.html
+
 **Barcelona briefing: Ter Stegen's serious injury overshadows Villarreal rout**\
 `Barca returned to winning ways after their midweek defeat to Monaco, but how much will they miss their No 1?`\
 https://nytimes.com/athletic/5787680/2024/09/23/barcelona-villarreal-ter-stegen-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/learning/word-of-the-day-conscious.html
 **Mets takeaways: Francisco Lindor hopeful, Pete Alonso gets ovation, 6 outs for Edwin Díaz**\
 `Plus, Edwin Díaz records six-out save, Brandon Nimmo ends his slump in Mets' 2-1 win over Phillies. `\
 https://nytimes.com/athletic/5787554/2024/09/23/mets-win-series-phillies-edwin-diaz/
-
-**Fantasy trends and hidden gems: Viktor Arvidsson, a trio of Canucks and more deep sleepers for 2024-25**\
-`Shayna Goldman highlights her favorite late-round fantasy hockey draft sleepers, starting with Edmonton offseason addition Viktor Arvidsson.`\
-https://nytimes.com/athletic/5787113/2024/09/23/fantasy-trends-and-hidden-gems-viktor-arvidsson-a-trio-of-canucks-and-more-deep-sleepers-for-2024-25/
 
