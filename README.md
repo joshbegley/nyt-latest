@@ -1,3 +1,7 @@
+**Can USC's offensive line settle in, while a No. 1 wide receiver emerge?**\
+`USC's offensive line struggled against Michigan while the Trojans continue to look for a No. 1 option at wide receiver.`\
+https://nytimes.com/athletic/5788865/2024/09/23/usc-michigan-result-analysis/
+
 **The U.S. Lost the Battery Race to China. Can It Make a Comeback?**\
 `The cutting edge of American battery technology is rusty.`\
 https://nytimes.com/2024/09/23/opinion/iron-air-battery-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788555/2024/09/23/everton-takeover-the-friedkin-gr
 **Murder in U.S. Continues Steep Decline, F.B.I. Reports**\
 `Homicides fell 11.6 percent nationwide in 2023, and violent crime overall fell by 3 percent after a surge in crime during the pandemic.`\
 https://nytimes.com/2024/09/23/us/murder-crime-rate-fbi.html
-
-**Key Nebraska Republican Rejects Trump’s Push to Shake Up Electoral Map**\
-`Mike McDonnell, a state senator, said he would not support an effort to change the state’s electoral system to winner take all, an outcome that could have cost Kamala Harris an electoral vote.`\
-https://nytimes.com/2024/09/23/us/politics/nebraska-mike-mcdonnell-electoral-vote-trump.html
 
