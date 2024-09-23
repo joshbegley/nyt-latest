@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5787074/2024/09/22/seattle-seahawks-week-3-defense-dolphins/
 
 **Rodrigue: The chaos Rams are back, this time with lift from special teams and Matthew Stafford**\
-`The Rams got a big fourth quarter from Matthew Stafford, a game-winning kick from their rookie to beat NFC West rival San Francisco.`\
+`The Rams got a big fourth quarter from Stafford and a game-winning kick from their rookie to beat NFC West rival San Francisco.`\
 https://nytimes.com/athletic/5786798/2024/09/22/rams-comeback-win-49ers-chaos-matt-stafford/
 
 **Caitlin Clark and Indiana Fever show their youth in loss to Connecticut Sun**\
