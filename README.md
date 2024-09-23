@@ -1,3 +1,11 @@
+**IndyCar announces 'charter system' to promote series' health**\
+`A total of 25 charters will be distributed to a group of 10 current team owners who have fielded full-time cars over the past two seasons.`\
+https://nytimes.com/athletic/5788364/2024/09/23/indycar-charter-system-nascar/
+
+**Submit a question for Chris Vannini's Group of 5 college football mailbag**\
+`Four weeks into the 2024 season, the Group of 5 has made a ton of September headlines, from Top 25 upsets to realignment rumors.`\
+https://nytimes.com/athletic/5788445/2024/09/23/submit-a-question-for-chris-vanninis-group-of-5-college-football-mailbag-17/
+
 **Dynasty league football: From Ashton Jeanty to Carson Beck, an early look at the 2025 rookie draft class**\
 `Jeff Haverlack offers an early look at the 2025 draft class for dynasty leagues, noting that Ashton Jeanty headlines a strong RB group.`\
 https://nytimes.com/athletic/5788356/2024/09/23/dynasty-fantasy-football-2025-draft-rookies-ashton-jeanty-shedeur-sanders/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5788179/2024/09/23/fantasy-football-week-3-recap-pa
 **Khan: Can Dave Aranda come back from Baylor's collapse at Colorado?**\
 `There were encouraging signs against Colorado, but the way Baylor lost brings up a lot of questions about the Aranda era.`\
 https://nytimes.com/athletic/5788103/2024/09/23/dave-aranda-baylor-colorado/
-
-**Man Smashes Ai Weiwei’s Porcelain Sculpture at Italian Museum**\
-`The man behind the episode, at a reception for Mr. Ai’s new exhibition in Bologna, has targeted artists before, a museum spokesman said.`\
-https://nytimes.com/2024/09/23/arts/ai-weiwei-porcelain-cube-italy.html
-
-**Israel-Hezbollah Tensions Spiral in Week of Attacks: What to Know**\
-`Exploding pagers, a major Israeli strike in Beirut and Hezbollah attacks deep inside Israel have brought the two sides closer than they’ve been in years to a full-scale war.`\
-https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-war-timeline-lebanon.html
 
