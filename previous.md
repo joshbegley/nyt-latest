@@ -1,3 +1,7 @@
+**Biden Works Against the Clock as Violence Escalates in the Middle East**\
+`President Biden is beginning to acknowledge that he is simply running out of time to help forge a cease-fire and hostage deal with Hamas, his aides say. And the risk of a wider war has never looked greater.`\
+https://nytimes.com/2024/09/23/us/politics/biden-violence-escalates-in-middle-east.html
+
 **Getting Old Never Looked So Ugly**\
 `“The Substance” figures in the long line of movies about what you might call “menopausal derangement syndrome” — the ostensibly crazy-making tragedy of a woman living past 50.`\
 https://nytimes.com/2024/09/23/style/getting-old-never-looked-so-ugly.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/us/world-war-ii-airman-identified.html
 **Davis Cup Finals squads: Nadal for Spain, Sinner could face Alcaraz**\
 `Nadal, 38, has not played competitive tennis since the Olympics, in which he partnered Alcaraz.`\
 https://nytimes.com/athletic/5789286/2024/09/23/davis-cup-finals-squads-schedule/
-
-**Defendants Mostly Cleared in ‘Trump Train’ Case Over Biden Bus in 2020**\
-`A San Antonio man was found liable for his role in helping to organize a convoy of Trump supporters that closely followed a Biden-Harris campaign bus in 2020.`\
-https://nytimes.com/2024/09/23/us/trump-train-verdict.html
 
