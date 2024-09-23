@@ -1,3 +1,7 @@
+**Rodrigue: The chaos Rams are back, this time with lift from special teams and Matthew Stafford**\
+`The Rams got a big fourth quarter from Matthew Stafford, a game-winning kick from their rookie to beat NFC West rival San Francisco.`\
+https://nytimes.com/athletic/5786798/2024/09/22/rams-comeback-win-49ers-chaos-matt-stafford/
+
 **Caitlin Clark and Indiana Fever show their youth in loss to Connecticut Sun**\
 `Clark and the Fever must win Game 2 on Wednesday to keep their season alive.`\
 https://nytimes.com/athletic/5787020/2024/09/22/caitlin-clark-indiana-fever-wnba-playoff-youth/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786421/2024/09/22/browns-offense-loss-giants/
 **Despite Anthony Richardson's ugly outing, Colts outlast Bears, avoid 0-3 start**\
 `Richardson found small ways to contribute to the Colts' win, but as a passer Sunday, he wasn't nearly good enough.  `\
 https://nytimes.com/athletic/5786524/2024/09/22/colts-anthony-richardson-bears-win/
-
-**Another sloppy win has Eagles 2-1, but Nick Sirianni knows current play is 'unsustainable'**\
-`The Eagles won but there are still many problems to address.`\
-https://nytimes.com/athletic/5786125/2024/09/22/eagles-win-saints-nick-sirianni-unsustainable/
 
