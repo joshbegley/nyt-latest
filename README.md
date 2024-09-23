@@ -1,3 +1,7 @@
+**What I learned about Ohio State's offensive identity: Marshall film review**\
+`What did we learn about Ohio State's offense in its win against Marshall? Let's break down the film.`\
+https://nytimes.com/athletic/5788010/2024/09/23/ohio-state-football-offense-marshall-receivers/
+
 **Emma Raducanu misses China Open with ligament injury**\
 `Emma Raducanu is out of the first 1000-level tournament of the WTA Asian swing with a ligament injury, having deliberately &#8216;stacked&#8217; her schedule for this part of the season.`\
 https://nytimes.com/athletic/5788174/2024/09/23/raducanu-injuries-china-open-tournament-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/23/weather/john-map-path-tracker.html
 **Israeli evacuation warnings prompt fear and confusion in Lebanon.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israeli-evacuation-warnings-prompt-fear-and-confusion-in-lebanon
-
-**Here’s the latest on the presidential race.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/09/23/us/trump-harris-election/heres-the-latest-on-the-presidential-race
 
