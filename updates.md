@@ -1,3 +1,11 @@
+**Patrick Mahomes' days of fantasy stardom may be over**\
+`The Chiefs' QB may be winning, but he's not winning over his fantasy managers after struggling in eight straight games.`\
+https://nytimes.com/athletic/5788179/2024/09/23/fantasy-football-week-3-recap-patrick-mahomes-fantasy-stardom-is-waning/
+
+**Khan: Can Dave Aranda come back from Baylor's collapse at Colorado?**\
+`There were encouraging signs against Colorado, but the way Baylor lost brings up a lot of questions about the Aranda era.`\
+https://nytimes.com/athletic/5788103/2024/09/23/dave-aranda-baylor-colorado/
+
 **Man Smashes Ai Weiwei’s Porcelain Sculpture at Italian Museum**\
 `The man behind the episode, at a reception for Mr. Ai’s new exhibition in Bologna, has targeted artists before, a museum spokesman said.`\
 https://nytimes.com/2024/09/23/arts/ai-weiwei-porcelain-cube-italy.html
