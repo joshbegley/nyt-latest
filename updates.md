@@ -1,3 +1,7 @@
+**California Bans All Plastic Bags After Its First Effort Backfired**\
+`The state led the nation in 2014 by banning single-use plastic bags, but a loophole actually led to more plastic waste.`\
+https://nytimes.com/2024/09/23/us/california-plastic-bags-ban.html
+
 **Jets risers, fallers and question marks after 2 preseason games**\
 `Here's what we're seeing after two Jets preseason games, with a small round of cuts on the immediate horizon.`\
 https://nytimes.com/athletic/5784407/2024/09/23/winnipeg-jets-2024-preseason/
