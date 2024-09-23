@@ -1,3 +1,11 @@
+**Boeing Says It Has Made Its ‘Best and Final’ Offer to Striking Workers**\
+`The proposal includes raises of 30 percent over the four-year contract, up from a 25 percent offer, but it’s unclear whether it will satisfy workers.`\
+https://nytimes.com/2024/09/23/business/economy/boeing-strike-contract-offer.html
+
+**Air Force to reaffirm commitment to Mountain West despite AAC interest: Source**\
+`The American Athletic Conference had targeted Air Force and UNLV from the shrinking Mountain West as potential expansion candidates.`\
+https://nytimes.com/athletic/5789206/2024/09/23/air-force-mountain-west-aac-realignment/
+
 **Caterina Valente, Singer Who Was a Star on Two Continents, Dies at 93**\
 `Born in Paris to Italian parents and raised in Germany, she had her own show on television in the 1950s and was later a small-screen mainstay in the U.S.`\
 https://nytimes.com/2024/09/23/arts/music/caterina-valente-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/23/us/bulls-escape-rodeo-massachusetts.html
 **Ukraine’s president criticized Trump and Vance over remarks on its war with Russia.**\
 `The president of Ukr`\
 https://nytimes.com/live/2024/09/23/us/trump-harris-election/ukraines-president-criticized-trump-and-vance-over-remarks-on-its-war-with-russia
-
-**Memphis, Tulane, South Florida, UTSA staying in AAC after Pac-12 pursuit**\
-`The schools had seen presentations from the Pac-12 but ultimately felt the league’s uncertainty and travel weren’t enough to leave.`\
-https://nytimes.com/athletic/5789067/2024/09/23/memphis-tulane-usf-utsa-aac-pac-12/
-
-**Pentagon to Send More U.S. Troops to Middle East as Tensions Rise**\
-`Maj. Gen. Patrick S. Ryder, the Pentagon press secretary, declined to say exactly how many troops were deploying, citing operational security.`\
-https://nytimes.com/2024/09/23/us/politics/us-troops-mideast.html
 

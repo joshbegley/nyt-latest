@@ -1,3 +1,11 @@
+**Boeing Says It Has Made Its ‘Best and Final’ Offer to Striking Workers**\
+`The proposal includes raises of 30 percent over the four-year contract, up from a 25 percent offer, but it’s unclear whether it will satisfy workers.`\
+https://nytimes.com/2024/09/23/business/economy/boeing-strike-contract-offer.html
+
+**Air Force to reaffirm commitment to Mountain West despite AAC interest: Source**\
+`The American Athletic Conference had targeted Air Force and UNLV from the shrinking Mountain West as potential expansion candidates.`\
+https://nytimes.com/athletic/5789206/2024/09/23/air-force-mountain-west-aac-realignment/
+
 **Caterina Valente, Singer Who Was a Star on Two Continents, Dies at 93**\
 `Born in Paris to Italian parents and raised in Germany, she had her own show on television in the 1950s and was later a small-screen mainstay in the U.S.`\
 https://nytimes.com/2024/09/23/arts/music/caterina-valente-dead.html
