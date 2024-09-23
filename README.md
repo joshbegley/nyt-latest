@@ -1,3 +1,7 @@
+**After Just a Week, the N.Y.P.D. Commissioner Faces a Crisis of His Own**\
+`Thomas G. Donlon, brought in to bring stability to the Police Department when his predecessor resigned, had his homes searched by federal agents.`\
+https://nytimes.com/2024/09/23/nyregion/thomas-donlon-nypd-home-search.html
+
 **A Leading Law Scholar Fears We’re Lurching Toward Secession**\
 `Can we fix the Constitution before it destroys us?`\
 https://nytimes.com/2024/09/23/opinion/electoral-college-presidential-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/us/politics/in-north-carolina-a-snapshot-of-mark-
 **Visa Faces an Antitrust Lawsuit by the Justice Dept.**\
 `The agency plans to argue that the company illegally penalizes customers that try to use rival payment processors.`\
 https://nytimes.com/2024/09/23/business/dealbook/visa-lawsuit-doj.html
-
-**Israeli Strikes in Lebanon Kill Hundreds as Warplanes Target Hezbollah**\
-`It was the deadliest day in decades of hostilities between Israel and the militants, who stepped up their own barrage of rockets.`\
-https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-lebanon-strikes.html
 
