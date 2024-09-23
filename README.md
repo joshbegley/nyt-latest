@@ -1,40 +1,40 @@
-**Cross-Tabs: September 2024 Times/Siena Polls in Arizona, Georgia and North Carolina**\
-`Results of New York Times/Siena College polls of 2,077 likely voters in North Carolina, Georgia and Arizona conducted from Sept. 17 to 21, 2024.`\
-https://nytimes.com/interactive/2024/09/23/us/elections/times-siena-sun-belt-crosstabs.html
+**Trump Doesn’t Need ‘Concepts of a Plan’ to Destroy Obamacare**\
+`The next fights over health care won’t be legislative brawls or executive actions — they will be a deluge of battles in the courts.`\
+https://nytimes.com/2024/09/23/opinion/trump-obamacare-health-courts.html
 
-**Cross-Tabs: September 2024 Times/Siena Poll of the North Carolina Likely Electorate**\
-`Results of a New York Times/Siena College poll of 682 likely voters in North Carolina conducted from Sept. 17 to 21, 2024.`\
-https://nytimes.com/interactive/2024/09/23/us/elections/times-siena-north-carolina-crosstabs.html
+**Why Is Trump Spreading Rumors About Haitian Immigrants? Rousseau Knows.**\
+`The 18th-century philosopher knew that divisive politicians understand that those who struggle economically “look more below than above them.”`\
+https://nytimes.com/2024/09/23/opinion/trump-springfield-haitian-immigrants.html
 
-**Cross-Tabs: September 2024 Times/Siena Poll of the Georgia Likely Electorate**\
-`Results of a New York Times/Siena College poll of 682 likely voters in Georgia conducted from Sept. 17 to 21, 2024.`\
-https://nytimes.com/interactive/2024/09/23/us/elections/times-siena-georgia-crosstabs.html
+**$3.4 Million Homes in California**\
+`A modernist house in Los Angeles, a hillside retreat in San Clemente and a three-bedroom home in San Mateo.`\
+https://nytimes.com/2024/09/23/realestate/3-million-dollar-homes-california.html
 
-**Toplines: September 2024 Times/Siena Poll of North Carolina Registered Voters**\
-`Results of a New York Times/Siena College poll of 682 registered voters in North Carolina conducted from Sept. 17 to 21, 2024.`\
-https://nytimes.com/interactive/2024/09/23/us/elections/times-siena-north-carolina-toplines.html
+**What Did ‘The West Wing’ Do to Us?**\
+`As Aaron Sorkin’s political fantasy turns 25, its romance has aged better than its politics.`\
+https://nytimes.com/2024/09/23/arts/television/the-west-wing-25th-anniversary.html
 
-**Cross-Tabs: September 2024 Times/Siena Poll of the Arizona Likely Electorate**\
-`Results of a New York Times/Siena College poll of 713 likely voters in Arizona conducted from Sept. 17 to 21, 2024.`\
-https://nytimes.com/interactive/2024/09/23/us/elections/times-siena-arizona-crosstabs.html
+**‘Coppelia’ at 50: When City Ballet Took a Turn for ‘Fun and Funny’**\
+`Original cast members look back at George Balanchine and Alexandra Danilova’s staging of the 19th-century ballet. “Everyone knows when something is good,” one said.`\
+https://nytimes.com/2024/09/23/arts/coppelia-at-50-new-york-city-ballet-balanchine-danilova.html
 
-**Toplines: September 2024 Times/Siena Poll of Georgia Registered Voters**\
-`Results of a New York Times/Siena College poll of 682 likely voters in Georgia conducted from Sept. 17 to 21, 2024.`\
-https://nytimes.com/interactive/2024/09/23/us/elections/times-siena-georgia-toplines.html
+**‘I Cannot Have That Man Be My Governor’: Inside Josh Stein’s Bid to Beat Mark Robinson in North Carolina**\
+`Josh Stein is fighting to prevent a MAGA takeover of North Carolina.`\
+https://nytimes.com/2024/09/23/opinion/mark-robinson-josh-stein-north-carolina.html
 
-**Toplines: September 2024 Times/Siena Poll of Arizona Registered Voters**\
-`Results of a New York Times/Siena College poll of 713 registered voters in Arizona conducted from Sept. 17 to 21, 2024.`\
-https://nytimes.com/interactive/2024/09/23/us/elections/times-siena-arizona-toplines.html
+**Are Parents Stressed Out?**\
+`The U.S. surgeon general issued an advisory on the mental health and well-being of parents, declaring it an urgent public health issue.`\
+https://nytimes.com/2024/09/23/learning/are-parents-stressed-out.html
 
-**Ranking 134 college football teams after Week 4: Tennessee to the top 3?**\
-`After a road win that wasn’t as close as the final score, Tennessee moves up to No. 3 in this week’s edition.`\
-https://nytimes.com/athletic/5786249/2024/09/23/college-football-rankings-134-teams-week-4/
+**Tourism’s Next Battlefront: Water**\
+`As climate change brings water shortages to vacation hot spots, we look at Greece’s tourism-dependent islands, where residents sometimes compete with visitors for a dwindling supply.`\
+https://nytimes.com/2024/09/23/travel/greece-water-shortages.html
 
-**AFC Wimbledon vs Newcastle postponed due to flooding**\
-`Newcastle United&#8217;s Carabao Cup third-round tie at AFC Wimbledon has been postponed due to flooding at the Cherry Red Records Stadium.`\
-https://nytimes.com/athletic/5787769/2024/09/23/wimbledon-newcastle-postponed-carabao-cup/
+**JD Vance Is Wrong — Kamala Harris Isn’t Changing Her Accent**\
+`She’s actually doing something quite presidential.`\
+https://nytimes.com/2024/09/23/opinion/kamala-harris-code-switching.html
 
-**A World After Climate Change**\
-`A World After Climate Change`\
-https://nytimes.com/paidpost/veolia/a-world-after-climate-change.html
+**Sean Combs’s Arrest Has the Music World Asking: Is Our #MeToo Here?**\
+`Activists and survivors are hopeful for change after the industry, which has a pervasive party culture, largely avoided the accountability that swept Hollywood and politics.`\
+https://nytimes.com/2024/09/23/arts/music/sean-combs-diddy-arrest-metoo-music.html
 
