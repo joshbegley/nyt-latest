@@ -1,3 +1,19 @@
+**Reds' search for a new manager to replace David Bell begins immediately**\
+`The Reds aren't going to wait until the offseason as they seek a new manager. “We’re looking for somebody that can lead this clubhouse.”`\
+https://nytimes.com/athletic/5788781/2024/09/23/reds-manager-search-david-bell-begins/
+
+**Prime Tire: Was that Daniel Ricciardo's last F1 race?**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter. `\
+https://nytimes.com/athletic/5789296/2024/09/23/daniel-ricciardo-max-verstappen-singapore-gp-f1-prime-tire/
+
+**Coping without Rodri will be the ultimate test of Pep Guardiola's problem-solving**\
+`Few players improve a team so obviously as the Spanish midfielder — losing him could be one fine margin too far for Manchester City`\
+https://nytimes.com/athletic/5789186/2024/09/23/rodri-injury-manchester-city-guardiola-cope/
+
+**Pakistan Appoints New Head of Its Powerful Spy Agency**\
+`The appointment of a top general, Lt. Gen. Muhammad Asim Malik, to the post comes as the country faces numerous internal and external challenges.`\
+https://nytimes.com/2024/09/23/world/middleeast/pakistan-spy-agency-chief.html
+
 **Trump Learned Nothing From the Obamacare Debate. Neither Did Vance.**\
 `Their “concepts” would abandon people with pre-existing conditions.`\
 https://nytimes.com/2024/09/23/opinion/trump-vance-obamacare-concepts.html

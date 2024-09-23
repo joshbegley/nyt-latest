@@ -1,3 +1,19 @@
+**Reds' search for a new manager to replace David Bell begins immediately**\
+`The Reds aren't going to wait until the offseason as they seek a new manager. “We’re looking for somebody that can lead this clubhouse.”`\
+https://nytimes.com/athletic/5788781/2024/09/23/reds-manager-search-david-bell-begins/
+
+**Prime Tire: Was that Daniel Ricciardo's last F1 race?**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter. `\
+https://nytimes.com/athletic/5789296/2024/09/23/daniel-ricciardo-max-verstappen-singapore-gp-f1-prime-tire/
+
+**Coping without Rodri will be the ultimate test of Pep Guardiola's problem-solving**\
+`Few players improve a team so obviously as the Spanish midfielder — losing him could be one fine margin too far for Manchester City`\
+https://nytimes.com/athletic/5789186/2024/09/23/rodri-injury-manchester-city-guardiola-cope/
+
+**Pakistan Appoints New Head of Its Powerful Spy Agency**\
+`The appointment of a top general, Lt. Gen. Muhammad Asim Malik, to the post comes as the country faces numerous internal and external challenges.`\
+https://nytimes.com/2024/09/23/world/middleeast/pakistan-spy-agency-chief.html
+
 **Trump Learned Nothing From the Obamacare Debate. Neither Did Vance.**\
 `Their “concepts” would abandon people with pre-existing conditions.`\
 https://nytimes.com/2024/09/23/opinion/trump-vance-obamacare-concepts.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5789315/2024/09/23/detroit-tigers-jackson-jobe-call
 **One Bright Spot Amid the Industry’s Gloom: Natural Wine**\
 `Young people may be drinking fewer alcoholic beverages, but natural wine appears to be among their favorite choices.`\
 https://nytimes.com/2024/09/23/dining/drinks/natural-wine.html
-
-**Wild's Matt Boldy week-to-week with lower-body injury: What it means for the PK and roster-hopefuls**\
-`ST.`\
-https://nytimes.com/athletic/5789011/2024/09/23/matt-boldy-injury-minnesota-wild/
-
-**Hurricane John Threatens Mexico’s Pacific Coast**\
-`The storm is expected to continue to intensify before making landfall early Tuesday.`\
-https://nytimes.com/2024/09/23/weather/hurricane-john-mexico.html
-
-**Boeing Says It Has Made Its ‘Best and Final’ Offer to Striking Workers**\
-`The proposal includes raises of 30 percent over the four-year contract, up from a 25 percent offer, but it’s unclear whether it will satisfy workers.`\
-https://nytimes.com/2024/09/23/business/economy/boeing-strike-contract-offer.html
-
-**Air Force to reaffirm commitment to Mountain West despite AAC, Pac-12 interest: Source**\
-`The American Athletic Conference had targeted Air Force and UNLV from the shrinking Mountain West as potential expansion candidates.`\
-https://nytimes.com/athletic/5789206/2024/09/23/air-force-mountain-west-aac-realignment/
 
