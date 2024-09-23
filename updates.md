@@ -1,3 +1,11 @@
+**Man Smashes Ai Weiwei’s Porcelain Sculpture at Italian Museum**\
+`The man behind the episode, at a reception for Mr. Ai’s new exhibition in Bologna, has targeted artists before, a museum spokesman said.`\
+https://nytimes.com/2024/09/23/arts/ai-weiwei-porcelain-cube-italy.html
+
+**Israel-Hezbollah Tensions Spiral in Week of Attacks: What to Know**\
+`Exploding pagers, a major Israeli strike in Beirut and Hezbollah attacks deep inside Israel have brought the two sides closer than they’ve been in years to a full-scale war.`\
+https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-war-timeline-lebanon.html
+
 **Chilwell in Chelsea matchday squad for Carabao Cup clash**\
 `Ben Chilwell has been named in a Chelsea matchday squad for the first time by Enzo Maresca since the head coach told the left-back he should try to find another club in the summer.`\
 https://nytimes.com/athletic/5788234/2024/09/23/ben-chilwell-chelsea-carabao-cup/
