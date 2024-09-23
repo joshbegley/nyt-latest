@@ -1,3 +1,7 @@
+**Browns' Teller to miss multiple weeks, Garrett day to day**\
+`Cleveland coach Kevin Stefanski said Teller is a candidate for IR, while Garrett could try to play through his injuries. `\
+https://nytimes.com/athletic/5788862/2024/09/23/browns-wyatt-teller-myles-garrett-injuries/
+
 **Explained: Everton's proposed takeover by The Friedkin Group**\
 `Everton appear to have new owners on the horizon after The Friedkin Group reached an agreement with Farhad Moshiri — what does it all mean?`\
 https://nytimes.com/athletic/5788555/2024/09/23/everton-takeover-the-friedkin-group/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/us/georgia-school-shooting-gunman-mother-abuse.ht
 **Benny Golson, Saxophonist and Composer of Jazz Standards, Dies at 95**\
 `After forming a lauded band and writing tunes like “I Remember Clifford,” “Whisper Not” and “Killer Joe,” he had a second career composing and arranging music for television.`\
 https://nytimes.com/2024/09/23/arts/music/benny-golson-dead.html
-
-**Barges, chair kicks and balls to the head: City vs Arsenal dark arts breakdown**\
-`Manchester City vs Arsenal was filled with drama, excellent football — and a lot of '****housery'`\
-https://nytimes.com/athletic/5788314/2024/09/23/manchester-city-arsenal-dark-arts-analysed/
 
