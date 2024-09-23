@@ -1,3 +1,7 @@
+**Popovic named Socceroos head coach**\
+`Former Crystal Palace defender Tony Popovic has been appointed head coach of Australia through to the end of the 2026 World Cup.`\
+https://nytimes.com/athletic/5787637/2024/09/23/tony-popovic-australia-head-coach/
+
 **Word of the Day: conscious**\
 `This word has appeared in 792 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/23/learning/word-of-the-day-conscious.html
