@@ -1,3 +1,7 @@
+**The Bounce: Kings' Vlade Divac explains Luka Dončić's draft-day snub.**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5788100/2024/09/23/luka-doncic-dallas-mavericks-sacramento-kings-wnba-playoffs-the-bounce-nba/
+
 **Alexander-Arnold would not be blamed for leaving Liverpool - but he may regret it**\
 `Defender's situation has been overlooked by FSG but quitting his hometown club would not be an easy decision`\
 https://nytimes.com/athletic/5774308/2024/09/23/trent-alexander-arnold-liverpool-transfer-regret/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788356/2024/09/23/dynasty-fantasy-football-2025-dr
 **N.Y.P.D. Unwilling to Discipline Officers for Stop and Frisk, Report Says**\
 `The department’s discipline for illegal street detentions is lax at every level, according to an extraordinary review ordered by a federal judge.`\
 https://nytimes.com/2024/09/23/nyregion/nypd-stop-and-frisk-report.html
-
-**Russian Military Plane Breaches Japan’s Airspace Three Times in One Day**\
-`The infringements were the first by Russia in five years, according to the Japanese defense ministry. A fighter fired a warning flare in response.`\
-https://nytimes.com/2024/09/23/world/asia/japan-russia-plane.html
 
