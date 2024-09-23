@@ -1,3 +1,7 @@
+**Twins takeaways: Closing week playoff picture, Festa steps up, Margot makes history**\
+`After a 2-5 road trip to Cleveland and Boston, the Twins have fallen out of playoff position, narrowly, with six games remaining.`\
+https://nytimes.com/athletic/5783718/2024/09/23/minnesota-twins-playoff-picture/
+
 **Micah Parsons: 'Trust is not there' for Cowboys' struggling defense**\
 `The Ravens ran for 274 yards against the Cowboys. Jerry Jones says his confidence is defensive coordinator Mike Zimmer remains "very high."`\
 https://nytimes.com/athletic/5787532/2024/09/23/cowboys-lose-ravens-defense-struggles/
