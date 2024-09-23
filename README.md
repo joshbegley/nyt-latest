@@ -1,3 +1,7 @@
+**California Bans All Plastic Bags After Its First Effort Backfired**\
+`The state led the nation in 2014 by banning single-use plastic bags, but a loophole actually led to more plastic waste.`\
+https://nytimes.com/2024/09/23/us/california-plastic-bags-ban.html
+
 **Jets risers, fallers and question marks after 2 preseason games**\
 `Here's what we're seeing after two Jets preseason games, with a small round of cuts on the immediate horizon.`\
 https://nytimes.com/athletic/5784407/2024/09/23/winnipeg-jets-2024-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/opinion/iron-air-battery-china.html
 **Our Adaptation to Global Warming Is Largely Fictional**\
 `Even though the world is aware of the risks, we haven’t done nearly enough preparation.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/global-warming-adaptation
-
-**A South Korean Olympian Gets to Play an Assassin, but Some Before Her Have Flopped**\
-`Olympians who tried the movies, especially in the 1980s, often fared poorly.`\
-https://nytimes.com/2024/09/23/sports/kim-ye-ji-korea-olympics-shooter-acting.html
 
