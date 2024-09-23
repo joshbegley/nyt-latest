@@ -1,3 +1,11 @@
+**Russian Military Plane Breaches Japan’s Airspace Three Times in One Day**\
+`The infringements were the first by Russia in five years, according to the Japanese defense ministry. A fighter fired a warning flare in response.`\
+https://nytimes.com/2024/09/23/world/asia/japan-russia-plane.html
+
+**Chaos and quicksand: Vikings defense using deception and daring in 3-0 start**\
+`In their win over the Texans, the Vikings set their defensive trap early and let C.J. Stroud fall deeper and deeper into the hole.`\
+https://nytimes.com/athletic/5785480/2024/09/23/vikings-defense-brian-flores-texans/
+
 **Inside a Trump Ad Hammering Harris Over Americans’ Economic Woes**\
 `No viewer could miss the ad’s repeated connection of the vice president to Bidenomics. And as it portrays voters struggling to make ends meet, she is seen laughing gleefully.`\
 https://nytimes.com/2024/09/23/us/politics/trump-ad-harris-economy-bidenomics.html
