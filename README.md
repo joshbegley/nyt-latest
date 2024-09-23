@@ -1,3 +1,11 @@
+**Browns' offense hasn't been just bad, it's been borderline hopeless**\
+`Following its latest loss to the Giants, it's not too early to declare Cleveland's offense as being in a true state of emergency.. `\
+https://nytimes.com/athletic/5786421/2024/09/22/browns-offense-loss-giants/
+
+**In spite of Anthony Richardson's ugly outing, Colts outlast Bears, avoid 0-3 start**\
+`Richardson found small ways to contribute to the Colts' win, but as a passer on Sunday, he wasn't nearly good enough.  `\
+https://nytimes.com/athletic/5786524/2024/09/22/colts-anthony-richardson-bears-win/
+
 **Another sloppy win has Eagles 2-1, but Nick Sirianni knows current play is 'unsustainable'**\
 `The Eagles won but there are still many problems to address.`\
 https://nytimes.com/athletic/5786125/2024/09/22/eagles-win-saints-nick-sirianni-unsustainable/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5786531/2024/09/22/chargers-justin-herbert-steelers
 **Packers' 'ridiculous' pass rush vs. Titans showed why sights are set on Super Bowl**\
 `The Packers registered eight sacks Sunday, tied for the fourth most in a game in franchise history.`\
 https://nytimes.com/athletic/5786228/2024/09/22/packers-win-titans-sacks-defense/
-
-**Another Raiola is heading to Lincoln: Dayton, younger brother of Dylan, commits to Huskers**\
-`Dayton's father Dominic played for Nebraska from 1997-2000 and his uncle Donovan is the current O-line coach.`\
-https://nytimes.com/athletic/5786589/2024/09/22/dyaln-raiola-nebraska-family-dayton-recruiting/
-
-**Rams stun 49ers 27-24 despite Jauan Jennings' 3 TDs: Takeaways**\
-`Kyren Williams scored three TDs of his own, spurring a surprising finish giving the Rams their first win this season.`\
-https://nytimes.com/athletic/5786370/2024/09/22/rams-49ers-takeaways-result/
 
