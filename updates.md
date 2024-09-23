@@ -1,3 +1,7 @@
+**Despite Anthony Richardson's ugly outing, Colts outlast Bears, avoid 0-3 start**\
+`Richardson found small ways to contribute to the Colts' win, but as a passer Sunday, he wasn't nearly good enough.  `\
+https://nytimes.com/athletic/5786524/2024/09/22/colts-anthony-richardson-bears-win/
+
 **Padres must wait to clinch postseason berth, but bigger goals remain within reach**\
 `“This is what Peter built. We’re just taking care of it,” Fernando Tatis Jr. said. “We’re definitely doing it for him on the front line."`\
 https://nytimes.com/athletic/5786886/2024/09/22/padres-postseason-berth-bigger-goals/
