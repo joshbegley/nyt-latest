@@ -1,3 +1,11 @@
+**Emma Raducanu misses China Open with ligament injury**\
+`Emma Raducanu is out of the first 1000-level tournament of the WTA Asian swing with a ligament injury, having deliberately &#8216;stacked&#8217; her schedule for this part of the season.`\
+https://nytimes.com/athletic/5788174/2024/09/23/raducanu-injuries-china-open-tournament-schedule/
+
+**Joshua insists boxing career 'far from over' after Dubois defeat**\
+`Anthony Joshua insists his boxing career is &#8220;far from over&#8221; after his fifth-round knockout defeat to Daniel Dubois.`\
+https://nytimes.com/athletic/5788172/2024/09/23/anthony-joshua-fight-boxing-daniel-dubois/
+
 **Parents Race to Get Children From Schools as Fear Spreads in Beirut**\
 `Lebanon’s Education Ministry ordered some schools to close amid warnings from Israel that it was intensifying strikes against Hezbollah and calls for residents to evacuate.`\
 https://nytimes.com/2024/09/23/world/middleeast/lebanon-beirut-israel-hezbollah.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israeli-ev
 **Here’s the latest on the presidential race.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/09/23/us/trump-harris-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Republicans’ Troubles in North Carolina Grow as Harris Expands War Chest**\
-`Top aides in Mark Robinson’s bid to become North Carolina’s governor have resigned. Vice President Kamala Harris brought in $27 million at a single fund-raiser.`\
-https://nytimes.com/live/2024/09/23/us/trump-harris-election
-
-**Intel’s Chips on the Table**\
-`Rivals and at least one big investor are circling the embattled semiconductor giant. The Biden administration is sure to keep an eye on any deal in such a strategically important sector.`\
-https://nytimes.com/2024/09/23/business/dealbook/intels-chips-qualcomm-apollo.html
 
