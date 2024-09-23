@@ -1,3 +1,7 @@
+**The U.S. Lost the Battery Race to China. Can It Make a Comeback?**\
+`The cutting edge of American battery technology is rusty.`\
+https://nytimes.com/2024/09/23/opinion/iron-air-battery-china.html
+
 **Our Adaptation to Global Warming Is Largely Fictional**\
 `Even though the world is aware of the risks, we haven’t done nearly enough preparation.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/global-warming-adaptation

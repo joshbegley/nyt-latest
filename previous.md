@@ -1,3 +1,7 @@
+**The U.S. Lost the Battery Race to China. Can It Make a Comeback?**\
+`The cutting edge of American battery technology is rusty.`\
+https://nytimes.com/2024/09/23/opinion/iron-air-battery-china.html
+
 **Our Adaptation to Global Warming Is Largely Fictional**\
 `Even though the world is aware of the risks, we haven’t done nearly enough preparation.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/global-warming-adaptation
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/us/murder-crime-rate-fbi.html
 **Key Nebraska Republican Rejects Trump’s Push to Shake Up Electoral Map**\
 `Mike McDonnell, a state senator, said he would not support an effort to change the state’s electoral system to winner take all, an outcome that could have cost Kamala Harris an electoral vote.`\
 https://nytimes.com/2024/09/23/us/politics/nebraska-mike-mcdonnell-electoral-vote-trump.html
-
-**Eight Bulls Escape From Massachusetts Rodeo**\
-`Eight bulls escaped from a rodeo at a mall in North Attleboro, Mass., and charged through a parking lot.`\
-https://nytimes.com/video/us/100000009714444/massachusetts-bull-escape.html
 
