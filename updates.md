@@ -1,3 +1,11 @@
+**In a battle of dominant defenses, Justin Fields was the difference for Steelers**\
+`The quarterback made his strongest statement yet to keep the starting job.`\
+https://nytimes.com/athletic/5786238/2024/09/22/steelers-victory-chargers-justin-fields-starting-job-russell-wilson/
+
+**Packers' 'ridiculous' pass rush vs. Titans showed why sights are set on Super Bowl**\
+`The Packers registered eight sacks Sunday, tied for the fourth most in a game in franchise history.`\
+https://nytimes.com/athletic/5786228/2024/09/22/packers-win-titans-sacks-defense/
+
 **Popper: Will anyone in the Chargers organization protect Justin Herbert from himself?**\
 `There's no denying Herbert's toughness but the organization's job is to protect its greatest asset, even if it means missing a game.`\
 https://nytimes.com/athletic/5786531/2024/09/22/chargers-justin-herbert-steelers-ankle-injury/
