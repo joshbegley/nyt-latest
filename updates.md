@@ -1,3 +1,7 @@
+**Friedkin Group close to agreeing Everton takeover deal**\
+`The Friedkin Group (TFG) has made significant progress in its bid to complete a takeover of Everton, just two months after dramatically pulling out of talks.`\
+https://nytimes.com/athletic/5756222/2024/09/23/friedkin-everton-takeover/
+
 **Global Threats**\
 `We explore a report that details the threats faced by the U.S.`\
 https://nytimes.com/2024/09/23/briefing/global-threats-us.html
