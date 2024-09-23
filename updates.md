@@ -1,3 +1,11 @@
+**Sam Darnold's performance — and health scare — cements role in Vikings' stellar start**\
+`The narrative surrounding Darnold has clearly changed after his four-touchdown day lifts Vikings to dominant win over Texans, 3-0 start.`\
+https://nytimes.com/athletic/5786551/2024/09/22/sam-darnold-vikings-texans-week-3/
+
+**The Harris campaign says it took in $27 million at Wall Street fund-raiser.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/09/22/us/trump-harris-election/harris-fundraiser-wall-street
+
 **In a battle of dominant defenses, Justin Fields was the difference for Steelers**\
 `The quarterback made his strongest statement yet to keep the starting job.`\
 https://nytimes.com/athletic/5786238/2024/09/22/steelers-victory-chargers-justin-fields-starting-job-russell-wilson/
