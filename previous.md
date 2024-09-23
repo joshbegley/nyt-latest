@@ -1,3 +1,11 @@
+**Scoop City: Risers and fallers after Week 3**\
+`A quick look at the undefeated teams, Malik Nabers and other Week 3 risers, together with the downward trending teams.`\
+https://nytimes.com/athletic/5788552/2024/09/23/scoop-city-risers-and-fallers-after-week-3/
+
+**Rodri set to be out for significant period with serious knee injury**\
+`Rodri is set to be ruled out for a significant period of time after suffering a serious knee injury in the Premier League draw with Arsenal and there are fears he may not return this season.`\
+https://nytimes.com/athletic/5785327/2024/09/23/rodri-manchester-city-injury-update/
+
 **Nixon Fought a War on Drugs He Knew Was Unjust**\
 `It was because of the worst kind of prejudice and politics.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/nixon-marijuana-unjust
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5776164/2024/09/23/james-rodriguez-copa-america-ray
 **Israel Launches Deadly Strikes Across Gaza, Local Officials Say**\
 `The latest in a series of strikes on schools being used as shelters killed three in Nuseirat, according to the Palestinian Civil Defense. Israel has said the buildings were being used by Hamas militants as a command center.`\
 https://nytimes.com/2024/09/23/world/middleeast/gaza-israel-strikes.html
-
-**Trump Says He Wouldn’t Run for President in 2028 if He Loses This Year**\
-`The former president, who is the Republican nominee for the third time, would be 82 on Election Day in 2028. That’s older than President Biden is now.`\
-https://nytimes.com/2024/09/23/us/politics/trump-president-2028.html
-
-**JD Vance Has Turned to a Minnesota Republican to Help Him Prepare for the Debate**\
-`Donald J. Trump’s running mate invited Representative Tom Emmer to stand in for his fellow Minnesotan, Gov. Tim Walz, ahead of the vice-presidential debate next month.`\
-https://nytimes.com/2024/09/23/us/politics/vance-debate-prep-emmer.html
 

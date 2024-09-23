@@ -1,3 +1,11 @@
+**Scoop City: Risers and fallers after Week 3**\
+`A quick look at the undefeated teams, Malik Nabers and other Week 3 risers, together with the downward trending teams.`\
+https://nytimes.com/athletic/5788552/2024/09/23/scoop-city-risers-and-fallers-after-week-3/
+
+**Rodri set to be out for significant period with serious knee injury**\
+`Rodri is set to be ruled out for a significant period of time after suffering a serious knee injury in the Premier League draw with Arsenal and there are fears he may not return this season.`\
+https://nytimes.com/athletic/5785327/2024/09/23/rodri-manchester-city-injury-update/
+
 **Nixon Fought a War on Drugs He Knew Was Unjust**\
 `It was because of the worst kind of prejudice and politics.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/nixon-marijuana-unjust
