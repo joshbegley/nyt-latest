@@ -1,3 +1,7 @@
+**Ukraine Needs to Be Realistic About Its Goals, Czech President Says**\
+`President Petr Pavel, a former NATO general who has been vocal in his support for Ukraine, said Kyiv needed to accept that some territory could remain under Russian control, at least “temporarily.”`\
+https://nytimes.com/2024/09/23/world/europe/ukraine-war-goals-russia-czech-president.html
+
 **Storm That Could Threaten Gulf Coast Takes Shape in the Caribbean**\
 `Details are still fuzzy, but the likelihood that Potential Tropical Cyclone Nine will turn into Hurricane Helene and affect the Gulf Coast later this week is increasing.`\
 https://nytimes.com/2024/09/23/weather/gulf-of-mexico-helene.html
