@@ -1,3 +1,7 @@
+**Justice Dept. Plans Antitrust Lawsuit Against Visa**\
+`The agency plans to argue that the company illegally penalizes customers that try to use rival payment processors.`\
+https://nytimes.com/2024/09/23/business/dealbook/visa-lawsuit-doj.html
+
 **Israeli Strikes in Lebanon Kill Hundreds as Warplanes Target Hezbollah**\
 `It was the deadliest day in decades of hostilities between Israel and the militants, who stepped up their own barrage of rockets.`\
 https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-lebanon-strikes.html
