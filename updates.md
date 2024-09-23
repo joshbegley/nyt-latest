@@ -1,3 +1,7 @@
+**Live Updates: Israel Urges Civilians in Lebanon to Evacuate Ahead of Strikes on Hezbollah**\
+`Monday’s attacks follow a series of ambitious attacks on Hezbollah last week that have brought the two sides closer to all out war.`\
+https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah
+
 **Fantasy trends and hidden gems: Viktor Arvidsson, a trio of Canucks and more deep sleepers for 2024-25**\
 `Shayna Goldman highlights her favorite late-round fantasy hockey draft sleepers, starting with Edmonton offseason addition Viktor Arvidsson.`\
 https://nytimes.com/athletic/5787113/2024/09/23/fantasy-trends-and-hidden-gems-viktor-arvidsson-a-trio-of-canucks-and-more-deep-sleepers-for-2024-25/

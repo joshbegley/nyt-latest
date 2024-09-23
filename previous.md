@@ -14,6 +14,10 @@ https://nytimes.com/2024/09/23/opinion/russia-putin-kremlin.html
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
 
+**Live Updates: Israel Urges Civilians in Lebanon to Evacuate Ahead of Strikes on Hezbollah**\
+`Monday’s attacks follow a series of ambitious attacks on Hezbollah last week that have brought the two sides closer to all out war.`\
+https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah
+
 **Newcastle's deficiencies came to fore at Fulham - how is Howe going to fix them?**\
 `Newcastle's results this season had papered over the cracks of poor performances... until Fulham. Eddie Howe has multiple problems to solve`\
 https://nytimes.com/athletic/5783359/2024/09/23/newcastle-problems-eddie-howe-fix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5783969/2024/09/23/tyler-dibling-southampton-first-
 **How Nuno's in-game management led Forest to make it five unbeaten away**\
 `Nottingham Forest have changed from the previous two seasons: they can now pick up results on the road... even with 10 men`\
 https://nytimes.com/athletic/5785410/2024/09/23/nottingham-forest-five-games-unbeaten-away/
-
-**Jack Hinshelwood... midfielder? He gives Brighton edge, versatility and goals**\
-`The 19-year-old's versatility could be invaluable to Brighton - as he showed by scoring from midfield against Forest on Sunday`\
-https://nytimes.com/athletic/5784985/2024/09/23/jack-hinshelwood-the-midfielder/
 
