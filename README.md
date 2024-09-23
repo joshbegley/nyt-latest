@@ -1,3 +1,7 @@
+**Justice Dept. Plans Antitrust Lawsuit Against Visa**\
+`The agency plans to argue that the company illegally penalizes customers that try to use rival payment processors.`\
+https://nytimes.com/2024/09/23/business/dealbook/visa-lawsuit-doj.html
+
 **Israeli Strikes in Lebanon Kill Hundreds as Warplanes Target Hezbollah**\
 `It was the deadliest day in decades of hostilities between Israel and the militants, who stepped up their own barrage of rockets.`\
 https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-lebanon-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5789456/2024/09/23/ravens-yannick-ngakoue-contract/
 **U.S. Inquiry Into N.Y. Mayor’s Foreign Ties Said to Include 6 Countries**\
 `Federal prosecutors investigating Mayor Eric Adams and his campaign’s ties to Turkey issued subpoenas in July for records related to 5 other countries.`\
 https://nytimes.com/2024/09/23/nyregion/fbi-adams-qatar-israel-china-uzbekistan-korea.html
-
-**Conflict mounts between Israel and Hezbollah just as members of the U.N. General Assembly gather.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/un-general-assembly-hezbollah-israel
 
