@@ -1,3 +1,19 @@
+**Newcastle's deficiencies came to fore at Fulham - how is Howe going to fix them?**\
+`Newcastle's results this season had papered over the cracks of poor performances... until Fulham. Eddie Howe has multiple problems to solve`\
+https://nytimes.com/athletic/5783359/2024/09/23/newcastle-problems-eddie-howe-fix/
+
+**Watkins and Duran as a pair would be a lot of fun - will Emery do it?**\
+`Aston Villa now have options aplenty - but will Unai Emery let Watkins and Duran loose together up front from the start of games?`\
+https://nytimes.com/athletic/5784005/2024/09/23/ollie-watkins-jhon-duran-unai-emery-aston-villa/
+
+**Everton are difficult to make sense of**\
+`Everton are finally off the mark - but yet again they let a lead slip. There were positive signs and familiar failings...`\
+https://nytimes.com/athletic/5784749/2024/09/23/everton-sean-dyche-ndiaye-leicester/
+
+**Tyler Dibling wears his socks so low Jack Grealish would blush - he's Premier League ready**\
+`Southampton head coach Russell Martin knows he has a special talent on his hands in Tyler Dibling - he looks at home in the top flight`\
+https://nytimes.com/athletic/5783969/2024/09/23/tyler-dibling-southampton-first-goal/
+
 **How Nuno's in-game management led Forest to make it five unbeaten away**\
 `Nottingham Forest have changed from the previous two seasons: they can now pick up results on the road... even with 10 men`\
 https://nytimes.com/athletic/5785410/2024/09/23/nottingham-forest-five-games-unbeaten-away/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5781713/2024/09/23/leeds-united-joel-piroe-analysis
 **Cooper gets short honeymoon period as Leicester's slow start brings back painful memories**\
 `Cooper is still getting to know his players and their strengths and weaknesses. A section of Leicester's fanbase are doing the same with him`\
 https://nytimes.com/athletic/5784775/2024/09/23/leicester-fans-uncertain-steve-cooper/
-
-**Wolves have easier fixtures to come, but O'Neil must keep morale intact until then**\
-`Wolves have an easier run coming up, but their poor start has ramped up the pressure for those theoretically easier games`\
-https://nytimes.com/athletic/5784284/2024/09/23/wolves-hard-fixtures-to-start-season/
-
-**Cardinals overpowered in loss to Lions, but they may not be far from their next step**\
-`The Cardinals want to be a violent, physical team. They got a strong look at one in Sunday’s loss. And they think they're not far off.`\
-https://nytimes.com/athletic/5787024/2024/09/23/cardinals-lions-kyler-murray-marvin-harrison-jr/
-
-**The Briefing: Who expected a City-Arsenal thriller? Point proven for Rodri? And are Chelsea good?**\
-`The big talking points from the weekend's football – including a welcome thriller, the player workload issue, and re-evaluating Chelsea`\
-https://nytimes.com/athletic/5785885/2024/09/23/man-city-arsenal-rodri-chelsea/
-
-**City and Arsenal's bad blood: Clear on the pitch - and it goes right to the top of both**\
-`The issues between Manchester City and Arsenal are not just confined to the football pitch`\
-https://nytimes.com/athletic/5770847/2024/09/23/manchester-city-arsenal-rivalry/
 
