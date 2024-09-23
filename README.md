@@ -1,3 +1,7 @@
+**Texas' Quinn Ewers (oblique) questionable vs. Mississippi State**\
+`The junior QB practiced Monday and Sarkisian said he was “impressed” with where Ewers was in his recovery.`\
+https://nytimes.com/athletic/5788924/2024/09/23/quinn-ewers-texas-oblique/
+
 **Browns' Teller to miss multiple weeks, Garrett day to day**\
 `Cleveland coach Kevin Stefanski said Teller is a candidate for IR, while Garrett could try to play through his injuries. `\
 https://nytimes.com/athletic/5788862/2024/09/23/browns-wyatt-teller-myles-garrett-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788807/2024/09/23/bob-bradley-stabaek-exit/
 **Mother of Accused Apalachee Gunman Faces Elder Abuse Charges**\
 `Marcee Gray, 43, is accused of taping her mother to a chair during a drug-induced rage.`\
 https://nytimes.com/2024/09/23/us/georgia-school-shooting-gunman-mother-abuse.html
-
-**Benny Golson, Saxophonist and Composer of Jazz Standards, Dies at 95**\
-`After forming a lauded band and writing tunes like “I Remember Clifford,” “Whisper Not” and “Killer Joe,” he had a second career composing and arranging music for television.`\
-https://nytimes.com/2024/09/23/arts/music/benny-golson-dead.html
 
