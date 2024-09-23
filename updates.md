@@ -1,3 +1,7 @@
+**Texas' Quinn Ewers (oblique) questionable vs. Mississippi State**\
+`The junior QB practiced Monday and Sarkisian said he was “impressed” with where Ewers was in his recovery.`\
+https://nytimes.com/athletic/5788924/2024/09/23/quinn-ewers-texas-oblique/
+
 **Browns' Teller to miss multiple weeks, Garrett day to day**\
 `Cleveland coach Kevin Stefanski said Teller is a candidate for IR, while Garrett could try to play through his injuries. `\
 https://nytimes.com/athletic/5788862/2024/09/23/browns-wyatt-teller-myles-garrett-injuries/
