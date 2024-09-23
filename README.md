@@ -1,3 +1,15 @@
+**Mendy extends Real contract until 2027**\
+`Ferland Mendy has extended his contract at Real Madrid for three more years.`\
+https://nytimes.com/athletic/5533766/2024/09/23/ferland-mendy-real-madrid-contract-new/
+
+**Why was Pep Guardiola so passive as Manchester City struggled to break down Arsenal?**\
+`John Stones late equaliser didn't feel like a grand plan had paid off. It felt more like Guardiola had got away with it.`\
+https://nytimes.com/athletic/5787818/2024/09/23/manchester-city-passive-arsenal-premier-league/
+
+**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
+`Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
+https://nytimes.com/athletic/5787831/2024/09/23/newcastle-howe-guimaraes-tonali/
+
 **Supermarkets in Australia Sued Over Claims of Fake Discounts**\
 `In a rare case of legal action tied to rising prices, the government sued Woolworths and Coles for what it described as a pattern of deceiving consumers.`\
 https://nytimes.com/2024/09/23/world/australia/woolworths-coles-fake-discounts.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5756222/2024/09/23/friedkin-everton-takeover/
 **Global Threats**\
 `We explore a report that details the threats faced by the U.S.`\
 https://nytimes.com/2024/09/23/briefing/global-threats-us.html
-
-**The Pulse: Five NFL things we were wrong about**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5786692/2024/09/23/nfl-week-3-takeaways-the-pulse/
-
-**What else does Travis Hunter have to prove as NFL Draft prospect?**\
-`Hunter deserves to be the Heisman front-runner right now. Should he be in the conversation as the potential No. 1 pick in 2025?`\
-https://nytimes.com/athletic/5785591/2024/09/23/travis-hunter-2025-nfl-draft-colorado/
-
-**Twins takeaways: Closing week playoff picture, Festa steps up, Margot makes history**\
-`After a 2-5 road trip to Cleveland and Boston, the Twins have fallen out of playoff position, narrowly, with six games remaining.`\
-https://nytimes.com/athletic/5783718/2024/09/23/minnesota-twins-playoff-picture/
 
