@@ -1,3 +1,7 @@
+**Inside a Trump Ad Hammering Harris Over Americans’ Economic Woes**\
+`No viewer could miss the ad’s repeated connection of the vice president to Bidenomics. And as it portrays voters struggling to make ends meet, she is seen laughing gleefully.`\
+https://nytimes.com/2024/09/23/us/politics/trump-ad-harris-economy-bidenomics.html
+
 **Stalking the Wild Banana**\
 `One man’s “never-ending quest” for the least-known varieties of the world’s most-eaten fruit.`\
 https://nytimes.com/2024/09/23/science/bananas-sachter-smith.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788010/2024/09/23/ohio-state-football-offense-mars
 **Emma Raducanu misses China Open with ligament injury**\
 `Emma Raducanu is out of the first 1000-level tournament of the WTA Asian swing with a ligament injury, having deliberately &#8216;stacked&#8217; her schedule for this part of the season.`\
 https://nytimes.com/athletic/5788174/2024/09/23/raducanu-injuries-china-open-tournament-schedule/
-
-**Joshua insists boxing career 'far from over' after Dubois defeat**\
-`Anthony Joshua insists his boxing career is &#8220;far from over&#8221; after his fifth-round knockout defeat to Daniel Dubois.`\
-https://nytimes.com/athletic/5788172/2024/09/23/anthony-joshua-fight-boxing-daniel-dubois/
 

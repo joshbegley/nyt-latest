@@ -1,3 +1,7 @@
+**Stalking the Wild Banana**\
+`One man’s “never-ending quest” for the least-known varieties of the world’s most-eaten fruit.`\
+https://nytimes.com/2024/09/23/science/bananas-sachter-smith.html
+
 **Patrick Mahomes' days of fantasy stardom may be over**\
 `The Chiefs' QB may be winning, but he's not winning over his fantasy managers after struggling in eight straight games.`\
 https://nytimes.com/athletic/5788179/2024/09/23/fantasy-football-week-3-recap-patrick-mahomes-fantasy-stardom-is-waning/
