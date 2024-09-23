@@ -1,3 +1,7 @@
+**N.Y.P.D. Unwilling to Discipline Officers for Stop and Frisk, Report Says**\
+`The department’s discipline for illegal street detentions is lax at every level, according to an extraordinary review ordered by a federal judge.`\
+https://nytimes.com/2024/09/23/nyregion/nypd-stop-and-frisk-report.html
+
 **N.Y.P.D. Unwilling to Impose Discipline for Stop and Frisk, Report Says**\
 `The department’s discipline for illegal street detentions is lax at every level, according to an extraordinary review ordered by a federal judge.`\
 https://nytimes.com/2024/09/23/nyregion/nypd-stop-and-frisk-report.html
