@@ -1,11 +1,3 @@
-**Sam Darnold's performance — and health scare — cements role in Vikings' stellar start**\
-`The narrative surrounding Darnold has clearly changed after his four-touchdown day lifts Vikings to dominant win over Texans, 3-0 start.`\
-https://nytimes.com/athletic/5786551/2024/09/22/sam-darnold-vikings-texans-week-3/
-
-**The Harris campaign says it took in $27 million at Wall Street fund-raiser.**\
-`By Theodore Schleifer`\
-https://nytimes.com/live/2024/09/22/us/trump-harris-election/harris-fundraiser-wall-street
-
 **In a battle of dominant defenses, Justin Fields was the difference for Steelers**\
 `The quarterback made his strongest statement yet to keep the starting job.`\
 https://nytimes.com/athletic/5786238/2024/09/22/steelers-victory-chargers-justin-fields-starting-job-russell-wilson/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5786198/2024/09/22/ravens-cowboys-takeaways-result/
 **As Bears flounder on offense, it's fair to ask: Is Caleb Williams' development in good hands?**\
 `Game planning, play calling, game management. Coaches deserve a big chunk of the blame for the Bears’ 21-16 loss to the Colts on Sunday. `\
 https://nytimes.com/athletic/5786312/2024/09/22/bears-caleb-williams-development-shane-waldron/
+
+**White Sox watch: Chicago reaches infamous loss record as it's swept for 24th time**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/22/white-sox-watch-most-losses-season/
+
+**Greenberg: Feeling blue? So are the Bears after wasting a chance for a win against Colts**\
+`On another wasted Sunday, Chicago gave its fans a lot of opportunities to work in some profanity during a 21-16 loss in Indianapolis.`\
+https://nytimes.com/athletic/5786264/2024/09/22/bears-colts-caleb-williams/
 
