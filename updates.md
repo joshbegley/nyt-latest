@@ -1,3 +1,7 @@
+**Inside a Trump Ad Hammering Harris Over Americans’ Economic Woes**\
+`No viewer could miss the ad’s repeated connection of the vice president to Bidenomics. And as it portrays voters struggling to make ends meet, she is seen laughing gleefully.`\
+https://nytimes.com/2024/09/23/us/politics/trump-ad-harris-economy-bidenomics.html
+
 **Stalking the Wild Banana**\
 `One man’s “never-ending quest” for the least-known varieties of the world’s most-eaten fruit.`\
 https://nytimes.com/2024/09/23/science/bananas-sachter-smith.html
