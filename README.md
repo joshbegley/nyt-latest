@@ -1,3 +1,11 @@
+**What’s on TV This Week: Lots of Medical and Police Dramas**\
+`ABC, NBC and Fox are all premiering new shows about doctors, cops or firefighters. The Voice is also returning, with Snoop Dogg joining the judges’ panel.`\
+https://nytimes.com/2024/09/23/arts/television/whats-on-tv-this-week-lots-of-medical-and-police-dramas.html
+
+**Putin Is Hunting Down Ordinary People**\
+`It’s not just opposition figures who are caught in the Kremlin’s dragnet.`\
+https://nytimes.com/2024/09/23/opinion/russia-putin-kremlin.html
+
 **Here are the latest developments.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5784985/2024/09/23/jack-hinshelwood-the-midfielder/
 **Brennan Johnson: Feeling his team-mates' love - and silencing his Tottenham doubters**\
 `Johnson recently deleted his Instagram account after constant abuse - the 23-year-old is loved at Spurs and answering his critics`\
 https://nytimes.com/athletic/5784303/2024/09/23/brennan-johnson-tottenham-critics-response/
-
-**Crystal Palace are desperate for directness to spark them back into life**\
-`Maybe expectations do need to be reduced, but surely Palace fans are right to expect more than what has been shown so far this season`\
-https://nytimes.com/athletic/5781745/2024/09/23/crystal-palace-need-directness/
-
-**Piroe, the Leeds striker who gets the job done - is it time to build around him?**\
-`Leeds managed to overcome Cardiff City 2-0 on Saturday with Joel Piroe hitting a late goal`\
-https://nytimes.com/athletic/5781713/2024/09/23/leeds-united-joel-piroe-analysis/
 
