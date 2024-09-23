@@ -1,3 +1,7 @@
+**In a battle of dominant defenses, Justin Fields was the difference for Steelers**\
+`The quarterback made his strongest statement yet to keep the starting job.`\
+https://nytimes.com/athletic/5786238/2024/09/22/steelers-victory-chargers-justin-fields-starting-job-russell-wilson/
+
 **Popper: Will anyone in the Chargers organization protect Justin Herbert from himself?**\
 `There's no denying Herbert's toughness but the organization's job is to protect its greatest asset, even if it means missing a game.`\
 https://nytimes.com/athletic/5786531/2024/09/22/chargers-justin-herbert-steelers-ankle-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734497/2024/09/22/white-sox-watch-most-losses-seas
 **Greenberg: Feeling blue? So are the Bears after wasting a chance for a win against Colts**\
 `On another wasted Sunday, Chicago gave its fans a lot of opportunities to work in some profanity during a 21-16 loss in Indianapolis.`\
 https://nytimes.com/athletic/5786264/2024/09/22/bears-colts-caleb-williams/
-
-**Andy Dalton rockets Panthers to 36-22 win over Raiders: Takeaways**\
-`Dalton became the first quarterback to pass for 300 yards and three touchdowns in a game this season.`\
-https://nytimes.com/athletic/5786224/2024/09/22/panthers-raiders-takeaways-result/
 
