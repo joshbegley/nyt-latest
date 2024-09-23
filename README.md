@@ -1,3 +1,7 @@
+**Friedkin Group close to agreeing Everton takeover deal**\
+`The Friedkin Group (TFG) has made significant progress in its bid to complete a takeover of Everton, just two months after dramatically pulling out of talks.`\
+https://nytimes.com/athletic/5756222/2024/09/23/friedkin-everton-takeover/
+
 **Global Threats**\
 `We explore a report that details the threats faced by the U.S.`\
 https://nytimes.com/2024/09/23/briefing/global-threats-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/books/new-state-laws-are-fueling-a-surge-in-book-
 **Did David Tepper force the Panthers' QB change? Why I don't buy it**\
 `Tepper has earned his reputation as a meddler, but Bryce Young's benching looked more like a coach's decision (and a smart one, at that).`\
 https://nytimes.com/athletic/5787725/2024/09/23/andy-dalton-bryce-young-david-tepper/
-
-**How to watch tennis with Andre Agassi - Poker analogies, meat, potatoes and intimacy**\
-`Being a Laver Cup captain is part of the American's return to tennis. But how does he see a set through those famous eyes?`\
-https://nytimes.com/athletic/5783450/2024/09/23/agassi-laver-cup-team-world/
 
