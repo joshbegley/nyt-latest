@@ -1,3 +1,7 @@
+**Defiant Giants rebound from nightmare start to game, season to get desperately needed win**\
+`"Losers have a mentality. Losing happens, but we’re not going to have no loser mentality. We're going to ball."`\
+https://nytimes.com/athletic/5786438/2024/09/22/giants-win-browns-brian-daboll/
+
 **Browns' offense hasn't been just bad, it's been borderline hopeless**\
 `Following its latest loss to the Giants, it's not too early to declare Cleveland's offense as being in a true state of emergency.. `\
 https://nytimes.com/athletic/5786421/2024/09/22/browns-offense-loss-giants/
