@@ -1,3 +1,7 @@
+**Stalking the Wild Banana**\
+`One man’s “never-ending quest” for the least-known varieties of the world’s most-eaten fruit.`\
+https://nytimes.com/2024/09/23/science/bananas-sachter-smith.html
+
 **Patrick Mahomes' days of fantasy stardom may be over**\
 `The Chiefs' QB may be winning, but he's not winning over his fantasy managers after struggling in eight straight games.`\
 https://nytimes.com/athletic/5788179/2024/09/23/fantasy-football-week-3-recap-patrick-mahomes-fantasy-stardom-is-waning/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788174/2024/09/23/raducanu-injuries-china-open-tou
 **Joshua insists boxing career 'far from over' after Dubois defeat**\
 `Anthony Joshua insists his boxing career is &#8220;far from over&#8221; after his fifth-round knockout defeat to Daniel Dubois.`\
 https://nytimes.com/athletic/5788172/2024/09/23/anthony-joshua-fight-boxing-daniel-dubois/
-
-**Parents Race to Get Children From Schools as Fear Spreads in Beirut**\
-`Lebanon’s Education Ministry ordered some schools to close amid warnings from Israel that it was intensifying strikes against Hezbollah and calls for residents to evacuate.`\
-https://nytimes.com/2024/09/23/world/middleeast/lebanon-beirut-israel-hezbollah.html
 
