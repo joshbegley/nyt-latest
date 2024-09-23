@@ -1,3 +1,7 @@
+**Another sloppy win has Eagles 2-1, but Nick Sirianni knows current play is 'unsustainable'**\
+`The Eagles won but there are still many problems to address.`\
+https://nytimes.com/athletic/5786125/2024/09/22/eagles-win-saints-nick-sirianni-unsustainable/
+
 **On Chicago’s South Side, White Sox Fans Know Misery. But Not Like This.**\
 `The baseball team tied the modern day record for losses on Sunday, dropping a 120th game. In the team’s most loyal neighborhood, some people couldn’t bear to watch.`\
 https://nytimes.com/2024/09/22/us/chicago-southside-whitesox.html

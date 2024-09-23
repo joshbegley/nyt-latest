@@ -1,3 +1,7 @@
+**Another sloppy win has Eagles 2-1, but Nick Sirianni knows current play is 'unsustainable'**\
+`The Eagles won but there are still many problems to address.`\
+https://nytimes.com/athletic/5786125/2024/09/22/eagles-win-saints-nick-sirianni-unsustainable/
+
 **On Chicago’s South Side, White Sox Fans Know Misery. But Not Like This.**\
 `The baseball team tied the modern day record for losses on Sunday, dropping a 120th game. In the team’s most loyal neighborhood, some people couldn’t bear to watch.`\
 https://nytimes.com/2024/09/22/us/chicago-southside-whitesox.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786589/2024/09/22/dyaln-raiola-nebraska-family-day
 **Rams stun 49ers 27-24 despite Jauan Jennings' 3 TDs: Takeaways**\
 `Kyren Williams scored three TDs of his own, spurring a surprising finish giving the Rams their first win this season.`\
 https://nytimes.com/athletic/5786370/2024/09/22/rams-49ers-takeaways-result/
-
-**Jones: Saints got 'hit in the mouth' in loss to Eagles. Their response will be telling**\
-`One loss does not define a season, but New Orleans will have to show against Atlanta that its first two weeks weren't fool's gold.`\
-https://nytimes.com/athletic/5786290/2024/09/22/saints-loss-eagles-derek-carr/
 
