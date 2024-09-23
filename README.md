@@ -1,3 +1,7 @@
+**Packers' 'ridiculous' pass rush vs. Titans showed why sights are set on Super Bowl**\
+`The Packers registered eight sacks on Sunday, tied for the fourth-most in a game in franchise history.`\
+https://nytimes.com/athletic/5786228/2024/09/22/packers-win-titans-sacks-defense/
+
 **Another Raiola is heading to Lincoln: Dayton, younger brother of Dylan, commits to Huskers**\
 `Dayton's father Dominic played for Nebraska from 1997-2000 and his uncle Donovan is the current O-line coach.`\
 https://nytimes.com/athletic/5786589/2024/09/22/dyaln-raiola-nebraska-family-dayton-recruiting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786224/2024/09/22/panthers-raiders-takeaways-resul
 **‘He Saved Many Lives’: Small Kentucky Community Mourns Slain Judge**\
 `The fatal shooting of the judge has rocked the town of Whitesburg. On Sunday, friends, family and community members gathered to remember the victim.`\
 https://nytimes.com/2024/09/22/us/kentucky-judge-shooting-memorial.html
-
-**How Sean Payton's coin-toss decision inspired Broncos' offense to beat the Buccaneers**\
-`The Broncos struck quickly and then slogged the game away, demonstrating a resilience that could serve as an important building block.`\
-https://nytimes.com/athletic/5786086/2024/09/22/broncos-sean-payton-offense-bucs-coin-toss/
 

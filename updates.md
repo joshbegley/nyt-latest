@@ -1,3 +1,7 @@
+**Another Raiola is heading to Lincoln: Dayton, younger brother of Dylan, commits to Huskers**\
+`Dayton's father Dominic played for Nebraska from 1997-2000 and his uncle Donovan is the current O-line coach.`\
+https://nytimes.com/athletic/5786589/2024/09/22/dyaln-raiola-nebraska-family-dayton-recruiting/
+
 **Rams stun 49ers 27-24 despite Jauan Jennings' 3 TDs: Takeaways**\
 `Kyren Williams scored three TDs of his own, spurring a surprising finish giving the Rams their first win this season.`\
 https://nytimes.com/athletic/5786370/2024/09/22/rams-49ers-takeaways-result/
