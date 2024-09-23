@@ -1,3 +1,7 @@
+**Biden and Harris to Meet With Emirati President in Washington**\
+`The talks with the leader of the United Arab Emirates will focus on Gaza, the war in Sudan and artificial intelligence.`\
+https://nytimes.com/2024/09/23/us/politics/biden-harris-united-arab-emirates.html
+
 **Marc-Andre ter Stegen is out for the season - so what's Barcelona's plan?**\
 `The German goalkeeper suffered a knee ligament injury and is expected to be out for at least eight months`\
 https://nytimes.com/athletic/5788466/2024/09/23/ter-stegen-injury-barcelona-signing-replacement/

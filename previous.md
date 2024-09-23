@@ -1,3 +1,7 @@
+**Biden and Harris to Meet With Emirati President in Washington**\
+`The talks with the leader of the United Arab Emirates will focus on Gaza, the war in Sudan and artificial intelligence.`\
+https://nytimes.com/2024/09/23/us/politics/biden-harris-united-arab-emirates.html
+
 **Marc-Andre ter Stegen is out for the season - so what's Barcelona's plan?**\
 `The German goalkeeper suffered a knee ligament injury and is expected to be out for at least eight months`\
 https://nytimes.com/athletic/5788466/2024/09/23/ter-stegen-injury-barcelona-signing-replacement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785327/2024/09/23/rodri-manchester-city-injury-upd
 **Nixon Fought a War on Drugs He Knew Was Unjust**\
 `It was because of the worst kind of prejudice and politics.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/nixon-marijuana-unjust
-
-**A Day After Most of His Staff Resigned, Mark Robinson Is Continuing to Campaign**\
-`The Republican lieutenant governor said he would hire new staff soon, following a CNN report linking him to disturbing comments on a porn site.`\
-https://nytimes.com/2024/09/23/us/politics/mark-robinson-north-carolina-governor-campaign.html
 
