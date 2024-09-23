@@ -1,3 +1,11 @@
+**Is Math the Path to Chatbots That Don’t Make Stuff Up?**\
+`Chatbots like ChatGPT get stuff wrong. But researchers are building new A.I. systems that can verify their own math — and maybe more.`\
+https://nytimes.com/2024/09/23/technology/ai-chatbots-chatgpt-math.html
+
+**Will A.I. Be a Bust? A Wall Street Skeptic Rings the Alarm.**\
+`Jim Covello, Goldman Sachs’s head of stock research, warned that building too much of what the world doesn’t need “typically ends badly.”`\
+https://nytimes.com/2024/09/23/technology/ai-jim-covello-goldman-sachs.html
+
 **The Bounce: Kings' Vlade Divac explains Luka Dončić's draft-day snub.**\
 `Zach Harper and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5788100/2024/09/23/luka-doncic-dallas-mavericks-sacramento-kings-wnba-playoffs-the-bounce-nba/
