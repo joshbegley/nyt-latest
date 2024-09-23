@@ -1,40 +1,42 @@
-**Chiefs survive Falcons thanks to late no-call in 22-17 win: Takeaways**\
-`The Chiefs ended up running 72 plays to the Falcons 56 and outgaining Atlanta 349-311.`\
-https://nytimes.com/athletic/5787312/2024/09/22/chiefs-falcons-takeaways-result/
+**Fantasy football Week 3 takeaways: Sam Darnold is the early MVP, Miami is a mess without Tua and more**\
+`Michael Salfino shares his takeaways from Week 3, including his belief in the staying power of the Kyler Murray-led Arizona offense. `\
+https://nytimes.com/athletic/5787049/2024/09/23/fantasy-football-week-3-takeaways/
 
-**49ers' awful loss to Rams had been brewing — now they have to get it together**\
-`On Sunday, the 49ers couldn't rob the Rams of hope. The trick now is to get it together fast enough so they don't lose their own.`\
-https://nytimes.com/athletic/5787144/2024/09/22/49ers-rams-loss-brock-purdy-kyle-shanahan/
+**We need to talk about the Anfield atmosphere**\
+`Anfield is associated with noise and passion but that's not always the case. We spoke to regulars for their views on the experience at games`\
+https://nytimes.com/athletic/5784965/2024/09/23/liverpool-anfield-atmosphere-supporters/
 
-**Phillies leave N.Y. without NL East title, but with a reminder, as wide-open playoffs loom**\
-`A 2-5 week against two teams the Phillies could see in October served as a critical reminder: The margins are about to become a lot thinner.`\
-https://nytimes.com/athletic/5787303/2024/09/22/phillies-mets-nl-east-playoffs/
+**Miedema back at Arsenal and scoring - but for City. What a surreal start**\
+`After seven years as an Arsenal player, the Netherlands striker made an immediate return with City — Miedema made her point `\
+https://nytimes.com/athletic/5785206/2024/09/23/vivianne-miedema-arsenal-manchester-city-wsl/
 
-**In delivering Panthers' stunning win over Raiders, Andy Dalton validated Dave Canales' decision**\
-`The Panthers looked like a different team with Dalton running the offense Sunday in Las Vegas. `\
-https://nytimes.com/athletic/5787181/2024/09/22/panthers-andy-dalton-dave-canales-bryce-young/
+**Man Utd's big WSL opener at Old Trafford sold just 12,000 tickets. Why the apathy?**\
+`Why last season's final WSL match at Old Trafford sold 16,000 more tickets than United's 2024-25 opener there on Saturday did`\
+https://nytimes.com/athletic/5784958/2024/09/23/manchester-united-women-old-trafford-apathy/
 
-**Monday Briefing: Israel and Hezbollah Trade Threats**\
-`Plus, a Russian military officer’s story of desertion and escape.`\
-https://nytimes.com/2024/09/22/briefing/hezbollah-israel-trump-germany.html
+**Forced From Home by War, They Found Solace in Soccer**\
+`For dozens of women who fled Myanmar and settled in Thailand, soccer has become a refuge from both the troubles of daily life and conservative cultural norms.`\
+https://nytimes.com/2024/09/23/world/asia/refugees-women-soccer-myanmar-thailand.html
 
-**'Resilient' Seahawks defense rises to challenge, dominates Dolphins in 24-3 win**\
-`The Seahawks' offense struggled with penalties and inconsistent play Sunday, but their defense stepped up in big spots. `\
-https://nytimes.com/athletic/5787074/2024/09/22/seattle-seahawks-week-3-defense-dolphins/
+**Quote of the Day: An Annual Festival That Is a True Communist Party**\
+`Quotation of the Day for Monday, September 22, 2024.`\
+https://nytimes.com/2024/09/23/pageoneplus/quote-of-the-day-an-annual-festival-that-is-a-true-communist-party.html
 
-**Rodrigue: The chaos Rams are back, this time with lift from special teams and Matthew Stafford**\
-`The Rams got a big fourth quarter from Stafford and a game-winning kick from their rookie to beat NFC West rival San Francisco.`\
-https://nytimes.com/athletic/5786798/2024/09/22/rams-comeback-win-49ers-chaos-matt-stafford/
+**Britain’s Prime Minister, Bruised by a Dispute Over Freebies, Badly Needs a Reset**\
+`Prime Minister Keir Starmer is under pressure to give an already disillusioned public some good news when he speaks at the Labour Party conference on Tuesday.`\
+https://nytimes.com/2024/09/23/world/europe/uk-prime-minister-keir-starmer-public-opinion.html
 
-**Caitlin Clark and Indiana Fever show their youth in loss to Connecticut Sun**\
-`Clark and the Fever must win Game 2 on Wednesday to keep their season alive.`\
-https://nytimes.com/athletic/5787020/2024/09/22/caitlin-clark-indiana-fever-wnba-playoff-youth/
+**Jaguars at Bills odds, expert picks, how to watch: Can Buffalo stay undefeated?**\
+`Josh Allen has led the Bills to a 2-0 start and Buffalo is favored against Jacksonville for a Monday night affair.`\
+https://nytimes.com/athletic/5779920/2024/09/23/jaguars-bills-odds-expert-picks-how-to-watch-predictions-betting/
 
-**Antonio Pierce: Some Raiders made 'business decisions' in embarrassing loss to Panthers**\
-`The offense was horrid. The defense was pitiful. And Pierce felt like some players were phoning it in late in their loss to the Panthers.`\
-https://nytimes.com/athletic/5786820/2024/09/22/raiders-antonio-pierce-panthers-business-decisions/
+**Monday's MLB best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
+https://nytimes.com/athletic/5782806/2024/09/23/mlb-odds-best-bets-projections-september-23/
 
-**LSU star LB Harold Perkins out for season with torn ACL: Source**\
-`Perkins is No. 20 on Dane Brugler’s Big Board for the 2025 NFL Draft. He recorded 16 tackles this season before his injury.`\
-https://nytimes.com/athletic/5786699/2024/09/22/harold-perkins-injury-lsu-college-football/
+**The Rams, long the 49ers’ ‘get right’ foe, expose all their flaws**\
+`The 49ers let a game slip through their hands — at one point, literally — and in doing so dug themselves an early-season hole.
+
+`\
+https://nytimes.com/athletic/5787397/2024/09/22/49ers-rams-loss-ronnie-bell-special-teams/
 
