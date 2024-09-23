@@ -1,3 +1,15 @@
+**Chiefs survive Falcons thanks to late no-call in 22-17 win: Takeaways**\
+`The Chiefs ended up running 72 plays to the Falcons 56 and outgaining Atlanta 349-311.`\
+https://nytimes.com/athletic/5787312/2024/09/22/chiefs-falcons-takeaways-result/
+
+**49ers' awful loss to Rams had been brewing — now they have to get it together**\
+`On Sunday, the 49ers couldn't rob the Rams of hope. The trick now is to get it together fast enough so they don't lose their own.`\
+https://nytimes.com/athletic/5787144/2024/09/22/49ers-rams-loss-brock-purdy-kyle-shanahan/
+
+**Phillies leave N.Y. without NL East title, but with a reminder, as wide-open playoffs loom**\
+`A 2-5 week against two teams the Phillies could see in October served as a critical reminder: The margins are about to become a lot thinner.`\
+https://nytimes.com/athletic/5787303/2024/09/22/phillies-mets-nl-east-playoffs/
+
 **In delivering Panthers' stunning win over Raiders, Andy Dalton validated Dave Canales' decision**\
 `The Panthers looked like a different team with Dalton running the offense Sunday in Las Vegas. `\
 https://nytimes.com/athletic/5787181/2024/09/22/panthers-andy-dalton-dave-canales-bryce-young/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5786820/2024/09/22/raiders-antonio-pierce-panthers-
 **LSU star LB Harold Perkins out for season with torn ACL: Source**\
 `Perkins is No. 20 on Dane Brugler’s Big Board for the 2025 NFL Draft. He recorded 16 tackles this season before his injury.`\
 https://nytimes.com/athletic/5786699/2024/09/22/harold-perkins-injury-lsu-college-football/
-
-**Browns have an identity crisis; they refuse to accept who they really are**\
-`This team is built to run the ball and throw off play-action. It’s when the Browns try to be something they’re not that they get exposed.`\
-https://nytimes.com/athletic/5786492/2024/09/22/browns-giants-offense-identity-deshaun-watson/
-
-**Reds fire manager David Bell during sixth season**\
-`Bell went 409-456 during his tenure.`\
-https://nytimes.com/athletic/5787081/2024/09/22/david-bell-fired-reds-manager/
-
-**Kenley Jansen to the IL, Red Sox season on the brink: What to watch in the final week**\
-`The Red Sox won two games on Sunday but lost another key piece. Their playoff odds are long. These are the goals they should focus on.`\
-https://nytimes.com/athletic/5786924/2024/09/22/kenley-jansen-il-red-sox-season-goals/
 
