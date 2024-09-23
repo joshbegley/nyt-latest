@@ -1,3 +1,11 @@
+**Mark Messier joins Amazon Prime's hockey broadcast team**\
+`John Forslund will be the play-by-play announcer while Jody Shelley, Thomas Hickey, and Shane Hnidy join the crew as analysts. `\
+https://nytimes.com/athletic/5789202/2024/09/23/mark-messier-amazon-prime-monday-night-hockey-broadcast/
+
+**Janet Jackson Repeats False Claims About Kamala Harris’s Race**\
+`After Ms. Jackson told The Guardian that Ms. Harris is “not Black,” her representatives said a man who apologized on her behalf was not authorized to speak for her.`\
+https://nytimes.com/2024/09/23/arts/music/janet-jackson-kamala-harris-apology.html
+
 **Israel Launched Intense Airstrikes on Hezbollah**\
 `Also, new polls were Trump’s best in weeks. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/09/23/briefing/israel-lebanon-airstrikes-trump-harris-polls.html
