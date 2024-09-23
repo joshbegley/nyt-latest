@@ -1,3 +1,7 @@
+**Global Threats**\
+`We explore a report that details the threats faced by the U.S.`\
+https://nytimes.com/2024/09/23/briefing/global-threats-us.html
+
 **The Pulse: Five NFL things we were wrong about**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5786692/2024/09/23/nfl-week-3-takeaways-the-pulse/

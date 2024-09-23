@@ -1,3 +1,7 @@
+**Global Threats**\
+`We explore a report that details the threats faced by the U.S.`\
+https://nytimes.com/2024/09/23/briefing/global-threats-us.html
+
 **The Pulse: Five NFL things we were wrong about**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5786692/2024/09/23/nfl-week-3-takeaways-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5787725/2024/09/23/andy-dalton-bryce-young-david-te
 **How to watch tennis with Andre Agassi - Poker analogies, meat, potatoes and intimacy**\
 `Being a Laver Cup captain is part of the American's return to tennis. But how does he see a set through those famous eyes?`\
 https://nytimes.com/athletic/5783450/2024/09/23/agassi-laver-cup-team-world/
-
-**Malik Willis helps keep Packers' season afloat: 'I've never seen something like this'**\
-`In two games starting, Willis completed 25-of-35 passes for 324 yards and two touchdowns with 12 carries for 114 rushing yards and a score.`\
-https://nytimes.com/athletic/5786074/2024/09/23/malik-willis-packers-titans/
 
