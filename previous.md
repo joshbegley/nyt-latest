@@ -1,3 +1,7 @@
+**Our Adaptation to Global Warming Is Largely Fictional**\
+`Even though the world is aware of the risks, we haven’t done nearly enough preparation.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/global-warming-adaptation
+
 **A South Korean Shooter Gets to Play an Assassin, but Some Before Her Have Flopped**\
 `Olympians who tried the movies, especially in the 1980s, often fared poorly.`\
 https://nytimes.com/2024/09/23/sports/kim-ye-ji-korea-olympics-shooter-acting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/us/politics/nebraska-mike-mcdonnell-electoral-vot
 **Eight Bulls Escape From Massachusetts Rodeo**\
 `Eight bulls escaped from a rodeo at a mall in North Attleboro, Mass., and charged through a parking lot.`\
 https://nytimes.com/video/us/100000009714444/massachusetts-bull-escape.html
-
-**Johnny Gaudreau's father on ice for Flyers practice after invitation**\
-`Tortorella, who attended the funeral for the brothers, reached out to Guy by telephone and met him for the first time Monday.`\
-https://nytimes.com/athletic/5788818/2024/09/23/gaudreau-father-flyers-practice/
 

@@ -1,3 +1,7 @@
+**Our Adaptation to Global Warming Is Largely Fictional**\
+`Even though the world is aware of the risks, we haven’t done nearly enough preparation.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/global-warming-adaptation
+
 **A South Korean Shooter Gets to Play an Assassin, but Some Before Her Have Flopped**\
 `Olympians who tried the movies, especially in the 1980s, often fared poorly.`\
 https://nytimes.com/2024/09/23/sports/kim-ye-ji-korea-olympics-shooter-acting.html
