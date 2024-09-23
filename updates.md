@@ -1,3 +1,15 @@
+**Murder in U.S. Continues Steep Decline, F.B.I. Reports**\
+`Homicides fell 11.6 percent nationwide in 2023, and violent crime overall fell by 3 percent after a surge in crime during the pandemic.`\
+https://nytimes.com/2024/09/23/us/murder-crime-rate-fbi.html
+
+**Key Nebraska Republican Rejects Trump’s Push to Shake Up Electoral Map**\
+`Mike McDonnell, a state senator, said he would not support an effort to change the state’s electoral system to winner take all, an outcome that could have cost Kamala Harris an electoral vote.`\
+https://nytimes.com/2024/09/23/us/politics/nebraska-mike-mcdonnell-electoral-vote-trump.html
+
+**Eight Bulls Escape From Massachusetts Rodeo**\
+`Eight bulls escaped from a rodeo at a mall in North Attleboro, Mass., and charged through a parking lot.`\
+https://nytimes.com/video/us/100000009714444/massachusetts-bull-escape.html
+
 **Johnny Gaudreau's father on ice for Flyers practice after invitation**\
 `Tortorella, who attended the funeral for the brothers, reached out to Guy by telephone and met him for the first time Monday.`\
 https://nytimes.com/athletic/5788818/2024/09/23/gaudreau-father-flyers-practice/

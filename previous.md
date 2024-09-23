@@ -1,3 +1,15 @@
+**Murder in U.S. Continues Steep Decline, F.B.I. Reports**\
+`Homicides fell 11.6 percent nationwide in 2023, and violent crime overall fell by 3 percent after a surge in crime during the pandemic.`\
+https://nytimes.com/2024/09/23/us/murder-crime-rate-fbi.html
+
+**Key Nebraska Republican Rejects Trump’s Push to Shake Up Electoral Map**\
+`Mike McDonnell, a state senator, said he would not support an effort to change the state’s electoral system to winner take all, an outcome that could have cost Kamala Harris an electoral vote.`\
+https://nytimes.com/2024/09/23/us/politics/nebraska-mike-mcdonnell-electoral-vote-trump.html
+
+**Eight Bulls Escape From Massachusetts Rodeo**\
+`Eight bulls escaped from a rodeo at a mall in North Attleboro, Mass., and charged through a parking lot.`\
+https://nytimes.com/video/us/100000009714444/massachusetts-bull-escape.html
+
 **Johnny Gaudreau's father on ice for Flyers practice after invitation**\
 `Tortorella, who attended the funeral for the brothers, reached out to Guy by telephone and met him for the first time Monday.`\
 https://nytimes.com/athletic/5788818/2024/09/23/gaudreau-father-flyers-practice/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5788314/2024/09/23/manchester-city-arsenal-dark-art
 **Watching Arsenal draw 2-2 with Man City twice in the same day: 'I've never been more stressed'**\
 `Art de Roche experiences a tense day for Arsenal fans as the men and women face Manchester City within a few hours of each other`\
 https://nytimes.com/athletic/5787640/2024/09/23/watching-arsenal-manchester-city-men-women/
-
-**Mack Brown plans to finish 2024 season at UNC: Sources**\
-`In 2018, 10 months before being hired at North Carolina, Brown was inducted into the College Football Hall of Fame.`\
-https://nytimes.com/athletic/5784418/2024/09/23/mack-brown-unc-jmu-locker-room-speech/
-
-**Mayo: Jacoby Brissett 'still our starting quarterback'**\
-`This is the second time Mayo has endorsed Brissett as the Patriots starter since benching him in the fourth quarter of Thursday night's loss`\
-https://nytimes.com/athletic/5788728/2024/09/23/jacoby-brissett-starting-qb-patriots/
-
-**Ukraine Needs to Be Realistic About Its Goals, Czech President Says**\
-`President Petr Pavel, a former NATO general who has been vocal in his support for Ukraine, said Kyiv needed to accept that some territory could remain under Russian control, at least “temporarily.”`\
-https://nytimes.com/2024/09/23/world/europe/ukraine-war-goals-russia-czech-president.html
 
