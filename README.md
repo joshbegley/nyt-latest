@@ -1,3 +1,11 @@
+**Was It Really a Hot Zone Summer?**\
+`From Covid to dengue, viral outbreaks seemed to be popping up all over. But maybe Americans are just more attuned to threats now.`\
+https://nytimes.com/2024/09/23/health/virus-outbreaks-summer.html
+
+**Lowetide: Keys for the Oilers to achieve an all-important fast start**\
+`The Oilers should at least be able to avoid the ghastly opening 10 games they endured a year ago.`\
+https://nytimes.com/athletic/5785453/2024/09/23/edmonton-oilers-keys-fast-start/
+
 **IndyCar announces 'charter system' to promote series' health**\
 `A total of 25 charters will be distributed to a group of 10 current team owners who have fielded full-time cars over the past two seasons.`\
 https://nytimes.com/athletic/5788364/2024/09/23/indycar-charter-system-nascar/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/23/us/politics/trump-ad-harris-economy-bidenomics.ht
 **Stalking the Wild Banana**\
 `One man’s “never-ending quest” for the least-known varieties of the world’s most-eaten fruit.`\
 https://nytimes.com/2024/09/23/science/bananas-sachter-smith.html
-
-**Patrick Mahomes' days of fantasy stardom may be over**\
-`The Chiefs' QB may be winning, but he's not winning over his fantasy managers after struggling in eight straight games.`\
-https://nytimes.com/athletic/5788179/2024/09/23/fantasy-football-week-3-recap-patrick-mahomes-fantasy-stardom-is-waning/
-
-**Khan: Can Dave Aranda come back from Baylor's collapse at Colorado?**\
-`There were encouraging signs against Colorado, but the way Baylor lost brings up a lot of questions about the Aranda era.`\
-https://nytimes.com/athletic/5788103/2024/09/23/dave-aranda-baylor-colorado/
 
