@@ -1,3 +1,7 @@
+**Monday Briefing: Israel and Hezbollah Trade Threats**\
+`Plus, a Russian military officer’s story of desertion and escape.`\
+https://nytimes.com/2024/09/22/briefing/hezbollah-israel-trump-germany.html
+
 **Rodrigue: The chaos Rams are back, this time with lift from special teams and Matthew Stafford**\
 `The Rams got a big fourth quarter from Stafford and a game-winning kick from their rookie to beat NFC West rival San Francisco.`\
 https://nytimes.com/athletic/5786798/2024/09/22/rams-comeback-win-49ers-chaos-matt-stafford/

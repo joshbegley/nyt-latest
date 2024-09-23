@@ -1,3 +1,7 @@
+**Monday Briefing: Israel and Hezbollah Trade Threats**\
+`Plus, a Russian military officer’s story of desertion and escape.`\
+https://nytimes.com/2024/09/22/briefing/hezbollah-israel-trump-germany.html
+
 **'Resilient' Seahawks defense rises to challenge, dominates Dolphins in 24-3 win**\
 `The Seahawks' offense struggled with penalties and inconsistent play Sunday, but their defense stepped up in big spots. `\
 https://nytimes.com/athletic/5787074/2024/09/22/seattle-seahawks-week-3-defense-dolphins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786924/2024/09/22/kenley-jansen-il-red-sox-season-
 **Padres must wait to clinch postseason berth, but bigger goals remain within reach**\
 `“This is what Peter built. We’re just taking care of it,” Fernando Tatis Jr. said. “We’re definitely doing it for him on the front line."`\
 https://nytimes.com/athletic/5786886/2024/09/22/padres-postseason-berth-bigger-goals/
-
-**Browns' offense hasn't been just bad, it's been borderline hopeless**\
-`Following its latest loss to the Giants, it's not too early to declare Cleveland's offense as being in a true state of emergency.. `\
-https://nytimes.com/athletic/5786421/2024/09/22/browns-offense-loss-giants/
 
