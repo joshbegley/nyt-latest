@@ -1,5 +1,9 @@
 **6 Dead in Japan After Record Rainfall Causes Flooding**\
 `The downpour drenched the Noto Peninsula on Saturday, triggering landslides and washing away people and homes, Japan’s national broadcaster said.`\
+https://nytimes.com/2024/09/23/world/japan-floods-noto-dead.html
+
+**6 Dead in Japan After Record Rainfall Causes Flooding**\
+`The downpour drenched the Noto Peninsula on Saturday, triggering landslides and washing away people and homes, Japan’s national broadcaster said.`\
 https://nytimes.com/2024/09/23/us/japan-floods-noto-dead.html
 
 **Popovic named Socceroos head coach**\
