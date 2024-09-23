@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5787113/2024/09/23/fantasy-trends-and-hidden-gems-v
 `ABC, NBC and Fox are all premiering new shows about doctors, cops or firefighters. The Voice is also returning, with Snoop Dogg joining the judges’ panel.`\
 https://nytimes.com/2024/09/23/arts/television/whats-on-tv-this-week-lots-of-medical-and-police-dramas.html
 
-**Putin Is Hunting Down Ordinary People**\
+**Putin Is Doing Something Almost Nobody Is Noticing**\
 `It’s not just opposition figures who are caught in the Kremlin’s dragnet.`\
 https://nytimes.com/2024/09/23/opinion/russia-putin-kremlin.html
 
@@ -19,7 +19,7 @@ https://nytimes.com/2024/09/23/opinion/russia-putin-kremlin.html
 https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
 
 **Live Updates: Israel Urges Civilians in Lebanon to Evacuate Ahead of Strikes on Hezbollah**\
-`Monday’s attacks follow a series of ambitious attacks on Hezbollah last week that have brought the two sides closer to all out war.`\
+`Monday’s attacks follow a series of ambitious strikes on Hezbollah last week that have brought the two sides closer to all out war.`\
 https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah
 
 **Newcastle's deficiencies came to fore at Fulham - how is Howe going to fix them?**\
