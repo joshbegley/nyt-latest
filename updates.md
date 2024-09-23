@@ -1,3 +1,11 @@
+**Vance, Declining to Denounce Robinson, Lashes Out at Media Instead**\
+`JD Vance, campaigning in North Carolina, criticized journalists for asking about Mark Robinson, the embattled Republican running for governor there.`\
+https://nytimes.com/2024/09/23/us/politics/vance-robinson-north-carolina.html
+
+**The Restaurant List 2024**\
+`Our 50 favorite places in America right now.`\
+https://nytimes.com/interactive/2024/dining/best-restaurants-america.html
+
 **49ers' Hargrave out for season; Purdy day-to-day**\
 `The 49ers hope Purdy will be able to practice Wednesday. Meanwhile, Christian McCaffrey traveled to Germany for treatment on his Achilles.`\
 https://nytimes.com/athletic/5789651/2024/09/23/49ers-injuries-updates-javon-hargrave-brock-purdy/

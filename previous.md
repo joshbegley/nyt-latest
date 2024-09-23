@@ -1,3 +1,11 @@
+**Vance, Declining to Denounce Robinson, Lashes Out at Media Instead**\
+`JD Vance, campaigning in North Carolina, criticized journalists for asking about Mark Robinson, the embattled Republican running for governor there.`\
+https://nytimes.com/2024/09/23/us/politics/vance-robinson-north-carolina.html
+
+**The Restaurant List 2024**\
+`Our 50 favorite places in America right now.`\
+https://nytimes.com/interactive/2024/dining/best-restaurants-america.html
+
 **49ers' Hargrave out for season; Purdy day-to-day**\
 `The 49ers hope Purdy will be able to practice Wednesday. Meanwhile, Christian McCaffrey traveled to Germany for treatment on his Achilles.`\
 https://nytimes.com/athletic/5789651/2024/09/23/49ers-injuries-updates-javon-hargrave-brock-purdy/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israel-cel
 **Penn Suspends Amy Wax, Law Professor Accused of Making Racist Statements**\
 `The case tested the limits of academic freedom and tenure.`\
 https://nytimes.com/2024/09/23/us/university-of-pennsylvania-law-school-amy-wax.html
-
-**Government Watchdog Calls F.A.A. Air Traffic Control Systems Critically Outdated**\
-`A report by the Government Accountability Office said that the agency’s heavy reliance on the systems could jeopardize the safety and efficiency of the nation’s airspace.`\
-https://nytimes.com/2024/09/23/us/politics/faa-air-traffic-control.html
-
-**Reggie Bush sues NCAA, Pac-12, USC for NIL compensation**\
-`The NCAA and Pac-12 are currently co-defendants in several federal antitrust suits on behalf of former athletes seeking NIL compensation.`\
-https://nytimes.com/athletic/5789591/2024/09/23/reggie-bush-lawsuit-ncaa-pac-12-nil/
 
