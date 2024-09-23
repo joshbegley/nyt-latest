@@ -1,3 +1,7 @@
+**Kenley Jansen to the IL, Red Sox season on the brink: What to watch in the final week**\
+`The Red Sox won two games on Sunday but lost another key piece. Their playoff odds are long. These are the goals they should focus on.`\
+https://nytimes.com/athletic/5786924/2024/09/22/kenley-jansen-il-red-sox-season-goals/
+
 **Padres must wait to clinch postseason berth, but bigger goals remain within reach**\
 `“This is what Peter built. We’re just taking care of it,” Fernando Tatis Jr. said. “We’re definitely doing it for him on the front line."`\
 https://nytimes.com/athletic/5786886/2024/09/22/padres-postseason-berth-bigger-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786551/2024/09/22/sam-darnold-vikings-texans-week-
 **The Harris campaign says it took in $27 million at Wall Street fund-raiser.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/09/22/us/trump-harris-election/harris-fundraiser-wall-street
-
-**In a battle of dominant defenses, Justin Fields was the difference for Steelers**\
-`The quarterback made his strongest statement yet to keep the starting job.`\
-https://nytimes.com/athletic/5786238/2024/09/22/steelers-victory-chargers-justin-fields-starting-job-russell-wilson/
 
