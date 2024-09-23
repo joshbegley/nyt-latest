@@ -1,3 +1,11 @@
+**Russian Military Plane Breaches Japan’s Airspace Three Times in One Day**\
+`The infringements were the first by Russia in five years, according to the Japanese defense ministry. A fighter fired a warning flare in response.`\
+https://nytimes.com/2024/09/23/world/asia/japan-russia-plane.html
+
+**Chaos and quicksand: Vikings defense using deception and daring in 3-0 start**\
+`In their win over the Texans, the Vikings set their defensive trap early and let C.J. Stroud fall deeper and deeper into the hole.`\
+https://nytimes.com/athletic/5785480/2024/09/23/vikings-defense-brian-flores-texans/
+
 **Inside a Trump Ad Hammering Harris Over Americans’ Economic Woes**\
 `No viewer could miss the ad’s repeated connection of the vice president to Bidenomics. And as it portrays voters struggling to make ends meet, she is seen laughing gleefully.`\
 https://nytimes.com/2024/09/23/us/politics/trump-ad-harris-economy-bidenomics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5788234/2024/09/23/ben-chilwell-chelsea-carabao-cup
 **Canucks depth chart: Roster battles and where things stand after training camp**\
 `With Canucks training camp in the books, let's update the depth chart and empty our notebook on everything we saw.`\
 https://nytimes.com/athletic/5787575/2024/09/23/canucks-depth-chart-roster-training-camp/
-
-**What I learned about Ohio State's offensive identity: Marshall film review**\
-`What did we learn about Ohio State's offense in its win against Marshall? Let's break down the film.`\
-https://nytimes.com/athletic/5788010/2024/09/23/ohio-state-football-offense-marshall-receivers/
-
-**Emma Raducanu misses China Open with ligament injury**\
-`Emma Raducanu is out of the first 1000-level tournament of the WTA Asian swing with a ligament injury, having deliberately &#8216;stacked&#8217; her schedule for this part of the season.`\
-https://nytimes.com/athletic/5788174/2024/09/23/raducanu-injuries-china-open-tournament-schedule/
 
