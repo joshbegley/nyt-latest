@@ -1,3 +1,7 @@
+**Explained: Everton's proposed takeover by The Friedkin Group**\
+`Everton appear to have new owners on the horizon after The Friedkin Group reached an agreement with Farhad Moshiri — what does it all mean?`\
+https://nytimes.com/athletic/5788555/2024/09/23/everton-takeover-the-friedkin-group/
+
 **Murder in U.S. Continues Steep Decline, F.B.I. Reports**\
 `Homicides fell 11.6 percent nationwide in 2023, and violent crime overall fell by 3 percent after a surge in crime during the pandemic.`\
 https://nytimes.com/2024/09/23/us/murder-crime-rate-fbi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/arts/music/benny-golson-dead.html
 **Barges, chair kicks and balls to the head: City vs Arsenal dark arts breakdown**\
 `Manchester City vs Arsenal was filled with drama, excellent football — and a lot of '****housery'`\
 https://nytimes.com/athletic/5788314/2024/09/23/manchester-city-arsenal-dark-arts-analysed/
-
-**Watching Arsenal draw 2-2 with Man City twice in the same day: 'I've never been more stressed'**\
-`Art de Roche experiences a tense day for Arsenal fans as the men and women face Manchester City within a few hours of each other`\
-https://nytimes.com/athletic/5787640/2024/09/23/watching-arsenal-manchester-city-men-women/
 
