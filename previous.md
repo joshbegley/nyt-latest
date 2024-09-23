@@ -1,3 +1,7 @@
+**Padres must wait to clinch postseason berth, but bigger goals remain within reach**\
+`“This is what Peter built. We’re just taking care of it,” Fernando Tatis Jr. said. “We’re definitely doing it for him on the front line."`\
+https://nytimes.com/athletic/5786886/2024/09/22/padres-postseason-berth-bigger-goals/
+
 **Browns' offense hasn't been just bad, it's been borderline hopeless**\
 `Following its latest loss to the Giants, it's not too early to declare Cleveland's offense as being in a true state of emergency.. `\
 https://nytimes.com/athletic/5786421/2024/09/22/browns-offense-loss-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/22/us/trump-harris-election/harris-fundraiser-w
 **In a battle of dominant defenses, Justin Fields was the difference for Steelers**\
 `The quarterback made his strongest statement yet to keep the starting job.`\
 https://nytimes.com/athletic/5786238/2024/09/22/steelers-victory-chargers-justin-fields-starting-job-russell-wilson/
-
-**Popper: Will anyone in the Chargers organization protect Justin Herbert from himself?**\
-`There's no denying Herbert's toughness but the organization's job is to protect its greatest asset, even if it means missing a game.`\
-https://nytimes.com/athletic/5786531/2024/09/22/chargers-justin-herbert-steelers-ankle-injury/
 
