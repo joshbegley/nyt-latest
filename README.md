@@ -22,7 +22,7 @@ https://nytimes.com/2024/09/23/us/politics/biden-harris-united-arab-emirates.htm
 `The German goalkeeper suffered a knee ligament injury and is expected to be out for at least eight months`\
 https://nytimes.com/athletic/5788466/2024/09/23/ter-stegen-injury-barcelona-signing-replacement/
 
-**Storm Begins to Take Shape in the Caribbean**\
+**Storm That Could Threaten Gulf Coast Takes Shape in the Caribbean**\
 `Details are still fuzzy, but the likelihood that Potential Tropical Cyclone Nine will turn into Hurricane Helene and affect the Gulf Coast later this week is increasing.`\
 https://nytimes.com/2024/09/23/weather/gulf-of-mexico-helene.html
 
