@@ -1,3 +1,7 @@
+**WSL agree new sponsorship deal with Barclays**\
+`The Women’s Super League (WSL) have agreed a new three-year sponsorship deal with Barclays.`\
+https://nytimes.com/athletic/5787811/2024/09/23/womens-super-league-deal-barclays/
+
 **This Week in Mets: For the Mets, it all goes through Atlanta — as it should**\
 `With a wild-card spot at stake, the Mets have lined up their best arms, as have the Braves. It shouldn’t be any other way.`\
 https://nytimes.com/athletic/5787365/2024/09/23/mets-braves-wild-card-race/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/us/marcellus-williams-missouri-death-sentence.htm
 **Just When You Thought Politics Couldn’t Get Any Grosser**\
 `The Mark Robinson story is yet another case of self-declared morality being at variance with actual behavior.`\
 https://nytimes.com/2024/09/23/opinion/donald-trump-mark-robinson-maga.html
-
-**What’s Behind Trump’s Best Poll Results in Weeks**\
-`In a shift from a Times/Siena survey last month, he leads in three Sun Belt battleground states.`\
-https://nytimes.com/2024/09/23/upshot/trump-harris-sun-belt-polls.html
 
