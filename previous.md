@@ -1,3 +1,7 @@
+**Tracking Tropical Storm John**\
+`See the likely path and wind arrival times for John.`\
+https://nytimes.com/interactive/2024/09/23/weather/john-map-path-tracker.html
+
 **Israeli evacuation warnings prompt fear and confusion in Lebanon.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israeli-evacuation-warnings-prompt-fear-and-confusion-in-lebanon
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5787045/2024/09/23/raiders-loss-panthers-issues-min
 **WSL Briefing: Arsenal make their pitch count, hat-trick history and West Ham's captaincy call**\
 `The opening weekend of the new WSL season featured a draw between two title contenders, and a stunning debut on the South Coast`\
 https://nytimes.com/athletic/5787713/2024/09/23/wsl-column-arsenal-emirates-man-city/
-
-**Sabres roster projection: Predicting opening-night lineup, final camp battles**\
-`After Buffalo's first preseason game, a rout of the Penguins, Lindy Ruff's plans for the Sabres are starting to take shape.`\
-https://nytimes.com/athletic/5786898/2024/09/23/sabres-roster-projection-camp-battle/
 

@@ -1,3 +1,7 @@
+**Tracking Tropical Storm John**\
+`See the likely path and wind arrival times for John.`\
+https://nytimes.com/interactive/2024/09/23/weather/john-map-path-tracker.html
+
 **Israeli evacuation warnings prompt fear and confusion in Lebanon.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israeli-evacuation-warnings-prompt-fear-and-confusion-in-lebanon
