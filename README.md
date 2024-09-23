@@ -1,3 +1,11 @@
+**As Investigations Swirl, Another Adams Official Resigns**\
+`Dr. Ashwin Vasan, who led New York City out of the pandemic as its health commissioner, is the third top official to quit in recent weeks.`\
+https://nytimes.com/2024/09/23/nyregion/vasan-health-commissioner-resigns.html
+
+**Read the prosecutors’ detention memo**\
+`The court filing included a note that prosecutors said the suspect had written suggesting that he had planned to attack former President Donald J. Trump.`\
+https://nytimes.com/interactive/2024/09/23/us/routh-detention-memo.html
+
 **A Congressman Had an Affair. Then He Put His Lover on the Payroll.**\
 `Representative Anthony D’Esposito, a New York Republican, gave part-time jobs to both his lover and his fiancée’s daughter, in possible violation of House ethics rules.`\
 https://nytimes.com/2024/09/23/nyregion/anthony-desposito-affair-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5789279/2024/09/23/raiders-antonio-pierce-gardner-m
 **Oakland A's John Fisher writes letter to fans**\
 `The Oakland Coliseum will play host to a final three-game series between the A's and Rangers before the A's temporarily move to Sacramento.`\
 https://nytimes.com/athletic/5789247/2024/09/23/john-fisher-letter-oakland-as-fans/
-
-**A hospital in northern Israel moves its entire operation underground after rocket fire gets close.**\
-`By Gabby Sobelman`\
-https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/a-hospital-in-northern-israel-moves-its-entire-operation-underground-after-rocket-fire-gets-close
-
-**Detroit Tigers call up top prospect Jackson Jobe**\
-`Jobe, a starter, is expected to pitch out of the bullpen in Detroit for the time being.`\
-https://nytimes.com/athletic/5789315/2024/09/23/detroit-tigers-jackson-jobe-call-up/
 
