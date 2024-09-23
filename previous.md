@@ -1,3 +1,11 @@
+**Israeli warplanes target another top Hezbollah commander in Beirut, officials say.**\
+`By Ronen Bergman and Patrick Kingsley`\
+https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israeli-warplanes-target-another-top-hezbollah-commander-in-beirut-officials-say
+
+**Can USC's offensive line settle in, while a No. 1 wide receiver emerge?**\
+`USC's offensive line struggled against Michigan while the Trojans continue to look for a No. 1 option at wide receiver.`\
+https://nytimes.com/athletic/5788865/2024/09/23/usc-michigan-result-analysis/
+
 **The U.S. Lost the Battery Race to China. Can It Make a Comeback?**\
 `The cutting edge of American battery technology is rusty.`\
 https://nytimes.com/2024/09/23/opinion/iron-air-battery-china.html
@@ -6,7 +14,7 @@ https://nytimes.com/2024/09/23/opinion/iron-air-battery-china.html
 `Even though the world is aware of the risks, we haven’t done nearly enough preparation.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/global-warming-adaptation
 
-**A South Korean Shooter Gets to Play an Assassin, but Some Before Her Have Flopped**\
+**A South Korean Olympian Gets to Play an Assassin, but Some Before Her Have Flopped**\
 `Olympians who tried the movies, especially in the 1980s, often fared poorly.`\
 https://nytimes.com/2024/09/23/sports/kim-ye-ji-korea-olympics-shooter-acting.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5788862/2024/09/23/browns-wyatt-teller-myles-garret
 **Explained: Everton's proposed takeover by The Friedkin Group**\
 `Everton appear to have new owners on the horizon after The Friedkin Group reached an agreement with Farhad Moshiri — what does it all mean?`\
 https://nytimes.com/athletic/5788555/2024/09/23/everton-takeover-the-friedkin-group/
-
-**Murder in U.S. Continues Steep Decline, F.B.I. Reports**\
-`Homicides fell 11.6 percent nationwide in 2023, and violent crime overall fell by 3 percent after a surge in crime during the pandemic.`\
-https://nytimes.com/2024/09/23/us/murder-crime-rate-fbi.html
-
-**Key Nebraska Republican Rejects Trump’s Push to Shake Up Electoral Map**\
-`Mike McDonnell, a state senator, said he would not support an effort to change the state’s electoral system to winner take all, an outcome that could have cost Kamala Harris an electoral vote.`\
-https://nytimes.com/2024/09/23/us/politics/nebraska-mike-mcdonnell-electoral-vote-trump.html
 

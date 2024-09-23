@@ -1,3 +1,15 @@
+**Israeli warplanes target another top Hezbollah commander in Beirut, officials say.**\
+`By Ronen Bergman and Patrick Kingsley`\
+https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israeli-warplanes-target-another-top-hezbollah-commander-in-beirut-officials-say
+
+**Can USC's offensive line settle in, while a No. 1 wide receiver emerge?**\
+`USC's offensive line struggled against Michigan while the Trojans continue to look for a No. 1 option at wide receiver.`\
+https://nytimes.com/athletic/5788865/2024/09/23/usc-michigan-result-analysis/
+
+**A South Korean Olympian Gets to Play an Assassin, but Some Before Her Have Flopped**\
+`Olympians who tried the movies, especially in the 1980s, often fared poorly.`\
+https://nytimes.com/2024/09/23/sports/kim-ye-ji-korea-olympics-shooter-acting.html
+
 **The U.S. Lost the Battery Race to China. Can It Make a Comeback?**\
 `The cutting edge of American battery technology is rusty.`\
 https://nytimes.com/2024/09/23/opinion/iron-air-battery-china.html
