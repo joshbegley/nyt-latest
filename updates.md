@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Viktor Arvidsson, a trio of Canucks and more deep sleepers for 2024-25**\
+`Shayna Goldman highlights her favorite late-round fantasy hockey draft sleepers, starting with Edmonton offseason addition Viktor Arvidsson.`\
+https://nytimes.com/athletic/5787113/2024/09/23/fantasy-trends-and-hidden-gems-viktor-arvidsson-a-trio-of-canucks-and-more-deep-sleepers-for-2024-25/
+
 **What’s on TV This Week: Lots of Medical and Police Dramas**\
 `ABC, NBC and Fox are all premiering new shows about doctors, cops or firefighters. The Voice is also returning, with Snoop Dogg joining the judges’ panel.`\
 https://nytimes.com/2024/09/23/arts/television/whats-on-tv-this-week-lots-of-medical-and-police-dramas.html
