@@ -1,3 +1,11 @@
+**Israeli Strikes in Lebanon Kill Hundreds as Warplanes Target Hezbollah**\
+`It was the deadliest day in decades of hostilities between Israel and the militants, who stepped up their own barrage of rockets.`\
+https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-lebanon-strikes.html
+
+**How was Israel able to send text messages to people in Lebanon warning of impending strikes?**\
+`By Sheera Frenkel`\
+https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israel-cellphones-text-alerts
+
 **Penn Suspends Amy Wax, Law Professor Accused of Making Racist Statements**\
 `The case tested the limits of academic freedom and tenure.`\
 https://nytimes.com/2024/09/23/us/university-of-pennsylvania-law-school-amy-wax.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/23/nyregion/fbi-adams-qatar-israel-china-uzbekistan-
 **Conflict mounts between Israel and Hezbollah just as members of the U.N. General Assembly gather.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/un-general-assembly-hezbollah-israel
-
-**For Fredric Jameson, Marxist Criticism Was a Labor of Love**\
-`The literary critic, who died on Sunday at age 90, believed that reading was the path to revolution.`\
-https://nytimes.com/2024/09/23/books/review/fredric-jameson-appraisal.html
-
-**Grizzlies waiving Derrick Rose: Sources**\
-`Rose averaged 8.0 points, 3.3 assists and 1.9 rebounds in 16.6 minutes per game during his lone season in Memphis.`\
-https://nytimes.com/athletic/5789525/2024/09/23/derrick-rose-grizzlies-waived/
 
