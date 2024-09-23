@@ -1,3 +1,7 @@
+**Rodrigue: The chaos Rams are back, this time with lift from special teams and Matthew Stafford**\
+`The Rams got a big fourth quarter from Stafford and a game-winning kick from their rookie to beat NFC West rival San Francisco.`\
+https://nytimes.com/athletic/5786798/2024/09/22/rams-comeback-win-49ers-chaos-matt-stafford/
+
 **'Resilient' Seahawks defense rises to challenge, dominates Dolphins in 24-3 win**\
 `The Seahawks' offense struggled with penalties and inconsistent play Sunday, but their defense stepped up in big spots. `\
 https://nytimes.com/athletic/5787074/2024/09/22/seattle-seahawks-week-3-defense-dolphins/
