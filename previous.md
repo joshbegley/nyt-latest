@@ -1,3 +1,19 @@
+**JD Vance has turned to a Minnesota Republican to help him prepare for the debate.**\
+`By Michael C. Bender`\
+https://nytimes.com/live/2024/09/23/us/trump-harris-election/vance-debate-prep-emmer
+
+**Alan Sparhawk of Low Lost His Other Half. He’s Learning to Sing Again.**\
+`Alongside his wife, Mimi Parker, the musician created one of indie-rock’s most arresting bands. Two years after her death, he returns with “White Roses, My God.”`\
+https://nytimes.com/2024/09/23/arts/music/low-alan-sparkhawk-white-roses-my-god.html
+
+**NFL Week 4 odds, spreads, schedule: Should we fade the top favorites?**\
+`Some of the top favorites have fallen in the first three weeks. Will expectations and reality even out in Week 4? `\
+https://nytimes.com/athletic/5788279/2024/09/23/nfl-week-4-odds-spreads-schedule-49ers-are-biggest-favorites-but-favorites-have-been-falling/
+
+**California Sues Exxon Mobil Over Plastics Pollution and ‘Myth’ of Recycling**\
+`The lawsuit, seeking ‘multiple billions of dollars,’ opens a new front in the legal battles with oil and gas companies over climate and environmental issues.`\
+https://nytimes.com/2024/09/23/climate/california-exxon-mobil-plastics-pollution-recycling-lawsuit.html
+
 **Is Math the Path to Chatbots That Don’t Make Stuff Up?**\
 `Chatbots like ChatGPT get stuff wrong. But researchers are building new A.I. systems that can verify their own math — and maybe more.`\
 https://nytimes.com/2024/09/23/technology/ai-chatbots-chatgpt-math.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/23/science/octopuses-punching-fish.html
 **This Soup Is a Hug**\
 `My lemony white bean soup with turkey and greens is a warm hug on a crisp evening (and a New York Times Cooking classic).`\
 https://nytimes.com/2024/09/23/dining/this-soup-is-a-hug.html
-
-**Was It Really a Hot Zone Summer?**\
-`From Covid to dengue, viral outbreaks seemed to be popping up all over. But maybe Americans are just more attuned to threats now.`\
-https://nytimes.com/2024/09/23/health/virus-outbreaks-summer.html
-
-**Lowetide: Keys for the Oilers to achieve an all-important fast start**\
-`The Oilers should at least be able to avoid the ghastly opening 10 games they endured a year ago.`\
-https://nytimes.com/athletic/5785453/2024/09/23/edmonton-oilers-keys-fast-start/
-
-**IndyCar announces 'charter system' to promote series' health**\
-`A total of 25 charters will be distributed to a group of 10 current team owners who have fielded full-time cars over the past two seasons.`\
-https://nytimes.com/athletic/5788364/2024/09/23/indycar-charter-system-nascar/
-
-**Submit a question for Chris Vannini's Group of 5 college football mailbag**\
-`Four weeks into the 2024 season, the Group of 5 has made a ton of September headlines, from Top 25 upsets to realignment rumors.`\
-https://nytimes.com/athletic/5788445/2024/09/23/submit-a-question-for-chris-vanninis-group-of-5-college-football-mailbag-17/
 

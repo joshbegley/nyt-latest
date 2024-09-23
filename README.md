@@ -1,6 +1,10 @@
-**JD Vance has turned to a Minnesota Republican to help him prepare for the debate.**\
-`By Michael C. Bender`\
-https://nytimes.com/live/2024/09/23/us/trump-harris-election/vance-debate-prep-emmer
+**Trump Says He Wouldn’t Run for President in 2028 if He Loses This Year**\
+`The former president, who is the Republican nominee for the third time, would be 82 on Election Day in 2028. That’s older than President Biden is now.`\
+https://nytimes.com/2024/09/23/us/politics/trump-president-2028.html
+
+**JD Vance Has Turned to a Minnesota Republican to Help Him Prepare for the Debate**\
+`Donald J. Trump’s running mate invited Representative Tom Emmer to stand in for his fellow Minnesotan, Gov. Tim Walz, ahead of the vice-presidential debate next month.`\
+https://nytimes.com/2024/09/23/us/politics/vance-debate-prep-emmer.html
 
 **Alan Sparhawk of Low Lost His Other Half. He’s Learning to Sing Again.**\
 `Alongside his wife, Mimi Parker, the musician created one of indie-rock’s most arresting bands. Two years after her death, he returns with “White Roses, My God.”`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5774308/2024/09/23/trent-alexander-arnold-liverpool
 **Punching Octopuses Lead Fish on Hunting Parties**\
 `Octopuses and fish are routinely seen working together on the ocean floor, and now scientists say that the cephalopods are the leaders of the pack.`\
 https://nytimes.com/2024/09/23/science/octopuses-punching-fish.html
-
-**This Soup Is a Hug**\
-`My lemony white bean soup with turkey and greens is a warm hug on a crisp evening (and a New York Times Cooking classic).`\
-https://nytimes.com/2024/09/23/dining/this-soup-is-a-hug.html
 

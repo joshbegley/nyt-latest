@@ -1,3 +1,19 @@
+**JD Vance has turned to a Minnesota Republican to help him prepare for the debate.**\
+`By Michael C. Bender`\
+https://nytimes.com/live/2024/09/23/us/trump-harris-election/vance-debate-prep-emmer
+
+**Alan Sparhawk of Low Lost His Other Half. He’s Learning to Sing Again.**\
+`Alongside his wife, Mimi Parker, the musician created one of indie-rock’s most arresting bands. Two years after her death, he returns with “White Roses, My God.”`\
+https://nytimes.com/2024/09/23/arts/music/low-alan-sparkhawk-white-roses-my-god.html
+
+**NFL Week 4 odds, spreads, schedule: Should we fade the top favorites?**\
+`Some of the top favorites have fallen in the first three weeks. Will expectations and reality even out in Week 4? `\
+https://nytimes.com/athletic/5788279/2024/09/23/nfl-week-4-odds-spreads-schedule-49ers-are-biggest-favorites-but-favorites-have-been-falling/
+
+**California Sues Exxon Mobil Over Plastics Pollution and ‘Myth’ of Recycling**\
+`The lawsuit, seeking ‘multiple billions of dollars,’ opens a new front in the legal battles with oil and gas companies over climate and environmental issues.`\
+https://nytimes.com/2024/09/23/climate/california-exxon-mobil-plastics-pollution-recycling-lawsuit.html
+
 **Is Math the Path to Chatbots That Don’t Make Stuff Up?**\
 `Chatbots like ChatGPT get stuff wrong. But researchers are building new A.I. systems that can verify their own math — and maybe more.`\
 https://nytimes.com/2024/09/23/technology/ai-chatbots-chatgpt-math.html
