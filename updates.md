@@ -1,3 +1,11 @@
+**Wild's Matt Boldy week-to-week with lower-body injury: What it means for the PK and roster-hopefuls**\
+`ST.`\
+https://nytimes.com/athletic/5789011/2024/09/23/matt-boldy-injury-minnesota-wild/
+
+**Hurricane John Threatens Mexico’s Pacific Coast**\
+`The storm is expected to continue to intensify before making landfall early Tuesday.`\
+https://nytimes.com/2024/09/23/weather/hurricane-john-mexico.html
+
 **Air Force to reaffirm commitment to Mountain West despite AAC, Pac-12 interest: Source**\
 `The American Athletic Conference had targeted Air Force and UNLV from the shrinking Mountain West as potential expansion candidates.`\
 https://nytimes.com/athletic/5789206/2024/09/23/air-force-mountain-west-aac-realignment/
