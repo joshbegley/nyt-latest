@@ -1,6 +1,14 @@
+**Benny Golson, Saxophonist and Composer of Jazz Standards, Dies at 95**\
+`After forming a lauded band and writing tunes like “I Remember Clifford,” “Whisper Not” and “Killer Joe,” he had a second career composing and arranging music for television.`\
+https://nytimes.com/2024/09/23/arts/music/benny-golson-dead.html
+
 **Barges, chair kicks and balls to the head: City vs Arsenal dark arts breakdown**\
 `Manchester City vs Arsenal was filled with drama, excellent football — and a lot of '****housery'`\
 https://nytimes.com/athletic/5788314/2024/09/23/manchester-city-arsenal-dark-arts-analysed/
+
+**Watching Arsenal draw 2-2 with Man City twice in the same day: 'I've never been more stressed'**\
+`Art de Roche experiences a tense day for Arsenal fans as the men and women face Manchester City within a few hours of each other`\
+https://nytimes.com/athletic/5787640/2024/09/23/watching-arsenal-manchester-city-men-women/
 
 **Mack Brown plans to finish 2024 season at UNC: Sources**\
 `In 2018, 10 months before being hired at North Carolina, Brown was inducted into the College Football Hall of Fame.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5788678/2024/09/23/white-sox-record-reds-fire-david
 **USMNT Player Tracker: Richards blunts United, Busio's perfect day and 'special' Tillman**\
 `Folarin Balogun is off the mark for the season, while Brenden Aaronson's encouraging start back at Leeds also features in our round-up`\
 https://nytimes.com/athletic/5788091/2024/09/23/usmnt-richards-busio-pulisic-tillman-tracker/
-
-**Biden Meets With Emirati President in Washington**\
-`The meeting with Sheikh Mohammed bin Zayed was expected to focus on Gaza, the war in Sudan and artificial intelligence. Vice President Kamala Harris is also scheduled to meet with the leader.`\
-https://nytimes.com/2024/09/23/us/politics/biden-harris-united-arab-emirates.html
-
-**Marc-Andre ter Stegen is out for the season - so what's Barcelona's plan?**\
-`The German goalkeeper suffered a knee ligament injury and is expected to be out for at least eight months`\
-https://nytimes.com/athletic/5788466/2024/09/23/ter-stegen-injury-barcelona-signing-replacement/
 
