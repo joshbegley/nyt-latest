@@ -1,3 +1,11 @@
+**Saints' Payton Turner denies spitting on Eagles' DeVonta Smith**\
+`It's another layer to the Eagles' 15-12 win over the Saints, which possessed contentious moments during and after the game.`\
+https://nytimes.com/athletic/5788385/2024/09/23/payton-turner-devonta-smith-spitting-saints-eagles/
+
+**Travis Scott Has No. 1 Album, After Close Loss to Sabrina Carpenter**\
+`The “Days Before Rodeo” rerelease is the rapper’s fourth title to reach the top.`\
+https://nytimes.com/2024/09/23/arts/music/travis-scott-days-before-rodeo-billboard-chart.html
+
 **Running back Tyler Badie has earned more chances to revive Broncos' rush attack**\
 `The 2022 sixth-round pick saw the field sparingly in his first two seasons, but he's making the most of his early chances for the Broncos.`\
 https://nytimes.com/athletic/5787800/2024/09/23/tyler-badie-broncos-running-back/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/23/arts/music/low-alan-sparkhawk-white-roses-my-god.
 **NFL Week 4 odds, spreads, schedule: Should we fade the top favorites?**\
 `Some of the top favorites have fallen in the first three weeks. Will expectations and reality even out in Week 4? `\
 https://nytimes.com/athletic/5788279/2024/09/23/nfl-week-4-odds-spreads-schedule-49ers-are-biggest-favorites-but-favorites-have-been-falling/
-
-**California Sues Exxon Over Plastics Pollution and Recycling ‘Myth’**\
-`The lawsuit, seeking ‘multiple billions of dollars,’ opens a new front in the legal battles with oil and gas companies over climate and environmental issues.`\
-https://nytimes.com/2024/09/23/climate/california-exxon-mobil-plastics-pollution-recycling-lawsuit.html
-
-**Is Math the Path to Chatbots That Don’t Make Stuff Up?**\
-`Chatbots like ChatGPT get stuff wrong. But researchers are building new A.I. systems that can verify their own math — and maybe more.`\
-https://nytimes.com/2024/09/23/technology/ai-chatbots-chatgpt-math.html
 
