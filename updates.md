@@ -1,3 +1,7 @@
+**Pope Cancels Meetings, Citing Flu and With More Travel Looming**\
+`Francis, 87, is scheduled to visit Belgium and Luxembourg, meeting with sexual abuse survivors, within weeks of returning from a grueling Asia-Pacific tour.`\
+https://nytimes.com/2024/09/23/world/europe/pope-francis-flu-travel.html
+
 **Behind the scenes with Miami (OH): Not every MAC trip to Notre Dame is a fairy tale**\
 `The Athletic spent the week behind the scenes with Miami (OH) for an close look at all aspects of preparing for Notre Dame.`\
 https://nytimes.com/athletic/5786385/2024/09/23/miami-ohio-notre-dame-all-access/
