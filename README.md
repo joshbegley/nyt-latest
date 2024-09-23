@@ -1,3 +1,7 @@
+**One Bright Spot Amid the Industry’s Gloom: Natural Wine**\
+`Young people may be drinking fewer alcoholic beverages, but natural wine appears to be among their favorite choices.`\
+https://nytimes.com/2024/09/23/dining/drinks/natural-wine.html
+
 **Wild's Matt Boldy week-to-week with lower-body injury: What it means for the PK and roster-hopefuls**\
 `ST.`\
 https://nytimes.com/athletic/5789011/2024/09/23/matt-boldy-injury-minnesota-wild/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/us/colorado-boulder-shooting-king-soopers-trial-v
 **California Bans All Plastic Bags After Its First Effort Backfired**\
 `The state led the nation in 2014 by banning single-use plastic bags, but a loophole actually led to more plastic waste.`\
 https://nytimes.com/2024/09/23/us/california-plastic-bags-ban.html
-
-**Jets risers, fallers and question marks after 2 preseason games**\
-`Here's what we're seeing after two Jets preseason games, with a small round of cuts on the immediate horizon.`\
-https://nytimes.com/athletic/5784407/2024/09/23/winnipeg-jets-2024-preseason/
 
