@@ -1,4 +1,8 @@
-**Tanzania’s President Vowed Opening for Opposition, but Just Detained Its Leaders**\
+**Vikings' Sam Darnold expected to start vs. Packers after knee bruise**\
+`Darnold has been one of the best quarterbacks in the league through three weeks.`\
+https://nytimes.com/athletic/5788969/2024/09/23/sam-darnold-knee-injury-vikings/
+
+**Tanzania’s President Vowed Opening for Opposition, but Detained Its Leaders**\
 `The East African country’s leading opposition party said that its presidential candidate in the last election and its chairman were among dozens detained before a protest called to draw attention to the killing and abduction of government critics.`\
 https://nytimes.com/2024/09/23/world/africa/tanzania-opposition-leaders-arrested-protests.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788818/2024/09/23/gaudreau-father-flyers-practice/
 **Knicks' Robinson out until at least December after ankle surgery**\
 `The Knicks' center position, already weakened by the departure of Isaiah Hartenstein, gets even shallower. `\
 https://nytimes.com/athletic/5788827/2024/09/23/knicks-mitchell-robinson-ankle-injury/
-
-**Bob Bradley leaves Norwegian club Stabaek**\
-`Former USMNT head coach Bob Bradley has departed Norwegian club Stabaek after a run of three successive defeats.`\
-https://nytimes.com/athletic/5788807/2024/09/23/bob-bradley-stabaek-exit/
 
