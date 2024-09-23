@@ -1,3 +1,7 @@
+**LSU star LB Harold Perkins out for season with torn ACL: Source**\
+`Perkins is No. 20 on Dane Brugler’s Big Board for the 2025 NFL Draft. He recorded 16 tackles this season before his injury.`\
+https://nytimes.com/athletic/5786699/2024/09/22/harold-perkins-injury-lsu-college-football/
+
 **The Rams, long the 49ers’ ‘get right’ foe, expose all their flaws in 27-24 loss**\
 `The 49ers let a game slip through their hands — at one point, literally — and in doing so dug themselves an early-season hole.
 

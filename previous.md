@@ -1,9 +1,3 @@
-**The Rams, long the 49ers’ ‘get right’ foe, expose all their flaws in 27-24 loss**\
-`The 49ers let a game slip through their hands — at one point, literally — and in doing so dug themselves an early-season hole.
-
-`\
-https://nytimes.com/athletic/5787397/2024/09/22/49ers-rams-loss-ronnie-bell-special-teams/
-
 **Chiefs survive Falcons thanks to late no-call in 22-17 win: Takeaways**\
 `The Chiefs ended up running 72 plays to the Falcons 56 and outgaining Atlanta 349-311.`\
 https://nytimes.com/athletic/5787312/2024/09/22/chiefs-falcons-takeaways-result/
@@ -39,4 +33,8 @@ https://nytimes.com/athletic/5787020/2024/09/22/caitlin-clark-indiana-fever-wnba
 **Antonio Pierce: Some Raiders made 'business decisions' in embarrassing loss to Panthers**\
 `The offense was horrid. The defense was pitiful. And Pierce felt like some players were phoning it in late in their loss to the Panthers.`\
 https://nytimes.com/athletic/5786820/2024/09/22/raiders-antonio-pierce-panthers-business-decisions/
+
+**LSU star LB Harold Perkins out for season with torn ACL: Source**\
+`Perkins is No. 20 on Dane Brugler’s Big Board for the 2025 NFL Draft. He recorded 16 tackles this season before his injury.`\
+https://nytimes.com/athletic/5786699/2024/09/22/harold-perkins-injury-lsu-college-football/
 
