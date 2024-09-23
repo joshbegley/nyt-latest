@@ -1,3 +1,11 @@
+**Popper: Will anyone in the Chargers organization protect Justin Herbert from himself?**\
+`There's no denying Herbert's toughness but the organization's job is to protect its greatest asset, even if it means missing a game.`\
+https://nytimes.com/athletic/5786531/2024/09/22/chargers-justin-herbert-steelers-ankle-injury/
+
+**Packers' 'ridiculous' pass rush vs. Titans showed why sights are set on Super Bowl**\
+`The Packers registered eight sacks on Sunday, tied for the fourth-most in a game in franchise history.`\
+https://nytimes.com/athletic/5786228/2024/09/22/packers-win-titans-sacks-defense/
+
 **Another Raiola is heading to Lincoln: Dayton, younger brother of Dylan, commits to Huskers**\
 `Dayton's father Dominic played for Nebraska from 1997-2000 and his uncle Donovan is the current O-line coach.`\
 https://nytimes.com/athletic/5786589/2024/09/22/dyaln-raiola-nebraska-family-dayton-recruiting/
