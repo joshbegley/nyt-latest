@@ -18,7 +18,7 @@ https://nytimes.com/2024/09/23/arts/music/low-alan-sparkhawk-white-roses-my-god.
 `Some of the top favorites have fallen in the first three weeks. Will expectations and reality even out in Week 4? `\
 https://nytimes.com/athletic/5788279/2024/09/23/nfl-week-4-odds-spreads-schedule-49ers-are-biggest-favorites-but-favorites-have-been-falling/
 
-**California Sues Exxon Over Plastics Pollution and ‘Myth’ of Recycling**\
+**California Sues Exxon Over Plastics Pollution and Recycling‘Myth’**\
 `The lawsuit, seeking ‘multiple billions of dollars,’ opens a new front in the legal battles with oil and gas companies over climate and environmental issues.`\
 https://nytimes.com/2024/09/23/climate/california-exxon-mobil-plastics-pollution-recycling-lawsuit.html
 
