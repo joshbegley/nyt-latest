@@ -1,3 +1,7 @@
+**Caitlin Clark and Indiana Fever show their youth in loss to Connecticut Sun**\
+`Clark and the Fever must win Game 2 on Wednesday to keep their season alive.`\
+https://nytimes.com/athletic/5787020/2024/09/22/caitlin-clark-indiana-fever-wnba-playoff-youth/
+
 **Antonio Pierce: Some Raiders made 'business decisions' in embarrassing loss to Panthers**\
 `The offense was horrid. The defense was pitiful. And Pierce felt like some players were phoning it in late in their loss to the Panthers.`\
 https://nytimes.com/athletic/5786820/2024/09/22/raiders-antonio-pierce-panthers-business-decisions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786524/2024/09/22/colts-anthony-richardson-bears-w
 **Another sloppy win has Eagles 2-1, but Nick Sirianni knows current play is 'unsustainable'**\
 `The Eagles won but there are still many problems to address.`\
 https://nytimes.com/athletic/5786125/2024/09/22/eagles-win-saints-nick-sirianni-unsustainable/
-
-**On Chicago’s South Side, White Sox Fans Know Misery. But Not Like This.**\
-`The baseball team tied the modern day record for losses on Sunday, dropping a 120th game. In the team’s most loyal neighborhood, some people couldn’t bear to watch.`\
-https://nytimes.com/2024/09/22/us/chicago-southside-whitesox.html
 
