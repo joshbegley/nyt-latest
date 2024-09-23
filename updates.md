@@ -1,3 +1,11 @@
+**Chilwell in Chelsea matchday squad for Carabao Cup clash**\
+`Ben Chilwell has been named in a Chelsea matchday squad for the first time by Enzo Maresca since the head coach told the left-back he should try to find another club in the summer.`\
+https://nytimes.com/athletic/5788234/2024/09/23/ben-chilwell-chelsea-carabao-cup/
+
+**Canucks depth chart: Roster battles and where things stand after training camp**\
+`With Canucks training camp in the books, let's update the depth chart and empty our notebook on everything we saw.`\
+https://nytimes.com/athletic/5787575/2024/09/23/canucks-depth-chart-roster-training-camp/
+
 **What I learned about Ohio State's offensive identity: Marshall film review**\
 `What did we learn about Ohio State's offense in its win against Marshall? Let's break down the film.`\
 https://nytimes.com/athletic/5788010/2024/09/23/ohio-state-football-offense-marshall-receivers/
