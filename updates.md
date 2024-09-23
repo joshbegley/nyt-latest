@@ -1,3 +1,7 @@
+**After Just a Week, the N.Y.P.D. Commissioner Faces a Crisis of His Own**\
+`Thomas G. Donlon, brought in to bring stability to the Police Department when his predecessor resigned, had his homes searched by federal agents.`\
+https://nytimes.com/2024/09/23/nyregion/thomas-donlon-nypd-home-search.html
+
 **A Leading Law Scholar Fears We’re Lurching Toward Secession**\
 `Can we fix the Constitution before it destroys us?`\
 https://nytimes.com/2024/09/23/opinion/electoral-college-presidential-election.html
