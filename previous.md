@@ -1,3 +1,7 @@
+**Johnny Gaudreau's father on ice for Flyers practice after invitation**\
+`Tortorella, who attended the funeral for the brothers, reached out to Guy by telephone and met him for the first time Monday.`\
+https://nytimes.com/athletic/5788818/2024/09/23/gaudreau-father-flyers-practice/
+
 **Knicks' Robinson out until at least December after ankle surgery**\
 `The Knicks' center position, already weakened by the departure of Isaiah Hartenstein, gets even shallower. `\
 https://nytimes.com/athletic/5788827/2024/09/23/knicks-mitchell-robinson-ankle-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788728/2024/09/23/jacoby-brissett-starting-qb-patr
 **Ukraine Needs to Be Realistic About Its Goals, Czech President Says**\
 `President Petr Pavel, a former NATO general who has been vocal in his support for Ukraine, said Kyiv needed to accept that some territory could remain under Russian control, at least “temporarily.”`\
 https://nytimes.com/2024/09/23/world/europe/ukraine-war-goals-russia-czech-president.html
-
-**College football Week 5 odds, schedule: Georgia opens as a small favorite against Alabama**\
-`Georgia heads to Alabama in one of the marquee games of the season. The Bulldogs are favored by less than a field goal in Week 5's top game.`\
-https://nytimes.com/athletic/5788494/2024/09/23/college-football-week-5-odds-schedule-georgia-alabama/
 

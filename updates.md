@@ -1,3 +1,7 @@
+**Johnny Gaudreau's father on ice for Flyers practice after invitation**\
+`Tortorella, who attended the funeral for the brothers, reached out to Guy by telephone and met him for the first time Monday.`\
+https://nytimes.com/athletic/5788818/2024/09/23/gaudreau-father-flyers-practice/
+
 **Knicks' Robinson out until at least December after ankle surgery**\
 `The Knicks' center position, already weakened by the departure of Isaiah Hartenstein, gets even shallower. `\
 https://nytimes.com/athletic/5788827/2024/09/23/knicks-mitchell-robinson-ankle-injury/
