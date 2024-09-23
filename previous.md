@@ -1,3 +1,7 @@
+**At U.N. Conference, Global Crises Collide With Fraught American Politics**\
+`President Biden will speak at a time of deep uncertainty about the future of America’s role in the world.`\
+https://nytimes.com/2024/09/23/us/politics/united-nations-american-politics.html
+
 **Giants week in review: A team peaking when it matters the least**\
 `The Giants played two potential playoff teams this past week and steamrolled them. It was too little, too late in a lost season.`\
 https://nytimes.com/athletic/5788427/2024/09/23/sf-giants-weekly-review-orioles-royals/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/nyregion/anthony-desposito-affair-congress.html
 **Reds' search for a new manager to replace David Bell begins immediately**\
 `The Reds aren't going to wait until the offseason as they seek a new manager. “We’re looking for somebody that can lead this clubhouse.”`\
 https://nytimes.com/athletic/5788781/2024/09/23/reds-manager-search-david-bell-begins/
-
-**Prime Tire: Was that Daniel Ricciardo's last F1 race?**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter. `\
-https://nytimes.com/athletic/5789296/2024/09/23/daniel-ricciardo-max-verstappen-singapore-gp-f1-prime-tire/
 
