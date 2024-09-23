@@ -1,3 +1,11 @@
+**Is Math the Path to Chatbots That Don’t Make Stuff Up?**\
+`Chatbots like ChatGPT get stuff wrong. But researchers are building new A.I. systems that can verify their own math — and maybe more.`\
+https://nytimes.com/2024/09/23/technology/ai-chatbots-chatgpt-math.html
+
+**Will A.I. Be a Bust? A Wall Street Skeptic Rings the Alarm.**\
+`Jim Covello, Goldman Sachs’s head of stock research, warned that building too much of what the world doesn’t need “typically ends badly.”`\
+https://nytimes.com/2024/09/23/technology/ai-jim-covello-goldman-sachs.html
+
 **The Bounce: Kings' Vlade Divac explains Luka Dončić's draft-day snub.**\
 `Zach Harper and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5788100/2024/09/23/luka-doncic-dallas-mavericks-sacramento-kings-wnba-playoffs-the-bounce-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5788364/2024/09/23/indycar-charter-system-nascar/
 **Submit a question for Chris Vannini's Group of 5 college football mailbag**\
 `Four weeks into the 2024 season, the Group of 5 has made a ton of September headlines, from Top 25 upsets to realignment rumors.`\
 https://nytimes.com/athletic/5788445/2024/09/23/submit-a-question-for-chris-vanninis-group-of-5-college-football-mailbag-17/
-
-**Dynasty league football: From Ashton Jeanty to Carson Beck, an early look at the 2025 rookie draft class**\
-`Jeff Haverlack offers an early look at the 2025 draft class for dynasty leagues, noting that Ashton Jeanty headlines a strong RB group.`\
-https://nytimes.com/athletic/5788356/2024/09/23/dynasty-fantasy-football-2025-draft-rookies-ashton-jeanty-shedeur-sanders/
-
-**N.Y.P.D. Unwilling to Discipline Officers for Stop and Frisk, Report Says**\
-`The department’s discipline for illegal street detentions is lax at every level, according to an extraordinary review ordered by a federal judge.`\
-https://nytimes.com/2024/09/23/nyregion/nypd-stop-and-frisk-report.html
 
