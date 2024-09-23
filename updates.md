@@ -1,3 +1,11 @@
+**Saints' Payton Turner denies spitting on Eagles' DeVonta Smith**\
+`It's another layer to the Eagles' 15-12 win over the Saints, which possessed contentious moments during and after the game.`\
+https://nytimes.com/athletic/5788385/2024/09/23/payton-turner-devonta-smith-spitting-saints-eagles/
+
+**Travis Scott Has No. 1 Album, After Close Loss to Sabrina Carpenter**\
+`The “Days Before Rodeo” rerelease is the rapper’s fourth title to reach the top.`\
+https://nytimes.com/2024/09/23/arts/music/travis-scott-days-before-rodeo-billboard-chart.html
+
 **Running back Tyler Badie has earned more chances to revive Broncos' rush attack**\
 `The 2022 sixth-round pick saw the field sparingly in his first two seasons, but he's making the most of his early chances for the Broncos.`\
 https://nytimes.com/athletic/5787800/2024/09/23/tyler-badie-broncos-running-back/
