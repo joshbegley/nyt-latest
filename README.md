@@ -1,3 +1,7 @@
+**Gunman Convicted in Mass Shooting at Colorado Supermarket**\
+`Ahmad Al Aliwi Alissa, who killed 10 people in the mass shooting in 2021, had argued that he was not guilty by reason of insanity.`\
+https://nytimes.com/2024/09/23/us/colorado-boulder-shooting-king-soopers-trial-verdict.html
+
 **California Bans All Plastic Bags After Its First Effort Backfired**\
 `The state led the nation in 2014 by banning single-use plastic bags, but a loophole actually led to more plastic waste.`\
 https://nytimes.com/2024/09/23/us/california-plastic-bags-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788865/2024/09/23/usc-michigan-result-analysis/
 **The U.S. Lost the Battery Race to China. Can It Make a Comeback?**\
 `The cutting edge of American battery technology is rusty.`\
 https://nytimes.com/2024/09/23/opinion/iron-air-battery-china.html
-
-**Our Adaptation to Global Warming Is Largely Fictional**\
-`Even though the world is aware of the risks, we haven’t done nearly enough preparation.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/global-warming-adaptation
 
