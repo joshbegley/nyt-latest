@@ -1,4 +1,4 @@
-**The Athletic FC: City vs Arsenal - an official rivalry, Friedkin Group on cusp of Everton deal**\
+**The Athletic FC: City vs Arsenal - An official rivalry, Friedkin Group on cusp of Everton deal**\
 `Today in TAFC: Manchester City vs Arsenal, things just got real. Plus: Trump's former lawyer leads a consortium in bid to buy Tranmere.`\
 https://nytimes.com/athletic/5787846/2024/09/23/city-vs-arsenal-rivalry-everton-friedkin-group/
 
