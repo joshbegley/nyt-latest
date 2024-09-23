@@ -1,3 +1,7 @@
+**Raising the Stakes, Israel Gambles That Hezbollah Will Back Down**\
+`Israel’s intensifying strikes show how determined it is to stop Hezbollah’s cross-border attacks — and how far it is from achieving that goal.`\
+https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-escalating.html
+
 **Will Noah Philp's comeback land him a job with the Oilers? 'I feel as good as I ever have'**\
 `If Philp wasn’t the best Oilers forward in Sunday's preseason win, he was certainly on the short list.`\
 https://nytimes.com/athletic/5787349/2024/09/23/edmonton-oilers-noah-philp-preseason-comeback/
