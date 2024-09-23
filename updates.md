@@ -1,3 +1,7 @@
+**California Schools Must Restrict Phones Under New Law Signed by Newsom**\
+`Calls for crackdowns have mounted with reports of cyberbullying and studies indicating that smartphones are harmful to children’s mental health.`\
+https://nytimes.com/2024/09/23/us/california-school-cellphone-ban.html
+
 **Ravens signing pass rusher Ngakoue: Source**\
 `Baltimore Ravens who led the NFL in sacks last season, are currently ninth with 10.`\
 https://nytimes.com/athletic/5789456/2024/09/23/ravens-yannick-ngakoue-contract/
