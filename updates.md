@@ -1,3 +1,11 @@
+**Barcelona briefing: Ter Stegen's serious injury overshadows Villarreal rout**\
+`Barca returned to winning ways after their midweek defeat to Monaco, but how much will they miss their No 1?`\
+https://nytimes.com/athletic/5787680/2024/09/23/barcelona-villarreal-ter-stegen-injury/
+
+**'Call it clever or dirty': Stones frustrated by Arsenal 'dark arts'**\
+`Manchester City defender John Stones criticised Arsenal&#8217;s time-wasting tactics after the two sides played out a dramatic 2-2 draw on Sunday afternoon.`\
+https://nytimes.com/athletic/5787682/2024/09/23/john-stones-arsenal-dirty/
+
 **They’ve Got a Plan to Fight Global Warming. It Could Alter the Oceans.**\
 `By tweaking the chemistry of rivers and oceans, humans could remove billions of tons of carbon dioxide from the air. But huge challenges loom.`\
 https://nytimes.com/2024/09/23/climate/theyve-got-a-plan-to-fight-global-warming-it-could-alter-the-oceans.html
