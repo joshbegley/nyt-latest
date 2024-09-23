@@ -1,3 +1,11 @@
+**Rodrigue: The chaos Rams are back, this time with lift from special teams and Matthew Stafford**\
+`The Rams got a big fourth quarter from Matthew Stafford, a game-winning kick from their rookie to beat NFC West rival San Francisco.`\
+https://nytimes.com/athletic/5786798/2024/09/22/rams-comeback-win-49ers-chaos-matt-stafford/
+
+**Caitlin Clark and Indiana Fever show their youth in loss to Connecticut Sun**\
+`Clark and the Fever must win Game 2 on Wednesday to keep their season alive.`\
+https://nytimes.com/athletic/5787020/2024/09/22/caitlin-clark-indiana-fever-wnba-playoff-youth/
+
 **Antonio Pierce: Some Raiders made 'business decisions' in embarrassing loss to Panthers**\
 `The offense was horrid. The defense was pitiful. And Pierce felt like some players were phoning it in late in their loss to the Panthers.`\
 https://nytimes.com/athletic/5786820/2024/09/22/raiders-antonio-pierce-panthers-business-decisions/
