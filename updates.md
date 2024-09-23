@@ -1,3 +1,7 @@
+**Sabres roster projection: Predicting opening-night lineup, final camp battles**\
+`After Buffalo's first preseason game, a rout of the Penguins, Lindy Ruff's plans for the Sabres are starting to take shape.`\
+https://nytimes.com/athletic/5786898/2024/09/23/sabres-roster-projection-camp-battle/
+
 **The Athletic FC: City vs Arsenal - An official rivalry, Friedkin Group on cusp of Everton deal**\
 `Today in TAFC: Manchester City vs Arsenal, things just got real. Plus: Trump's former lawyer leads a consortium in bid to buy Tranmere.`\
 https://nytimes.com/athletic/5787846/2024/09/23/city-vs-arsenal-rivalry-everton-friedkin-group/
