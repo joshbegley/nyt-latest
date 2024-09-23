@@ -1,3 +1,15 @@
+**Ravens signing pass rusher Ngakoue: Source**\
+`Baltimore Ravens who led the NFL in sacks last season, are currently ninth with 10.`\
+https://nytimes.com/athletic/5789456/2024/09/23/ravens-yannick-ngakoue-contract/
+
+**U.S. Inquiry Into N.Y. Mayor’s Foreign Ties Said to Include 6 Countries**\
+`Federal prosecutors investigating Mayor Eric Adams and his campaign’s ties to Turkey issued subpoenas in July for records related to 5 other countries.`\
+https://nytimes.com/2024/09/23/nyregion/fbi-adams-qatar-israel-china-uzbekistan-korea.html
+
+**Conflict mounts between Israel and Hezbollah just as members of the U.N. General Assembly gather.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/un-general-assembly-hezbollah-israel
+
 **For Fredric Jameson, Marxist Criticism Was a Labor of Love**\
 `The literary critic, who died on Sunday at age 90, believed that reading was the path to revolution.`\
 https://nytimes.com/2024/09/23/books/review/fredric-jameson-appraisal.html
