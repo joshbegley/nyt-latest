@@ -1,3 +1,23 @@
+**Padres takeaways: Starting pitching vs. Dodgers, Xander Bogaerts readjusting at short**\
+`The Padres already hold an important tiebreaker against the Dodgers, and their starting pitching advantage looks significant.`\
+https://nytimes.com/athletic/5787085/2024/09/23/padres-starting-pitchers-dodgers-series/
+
+**'I can play at this level': What's next for Wild's Liam Ohgren after strong first impression?**\
+`Wild coach John Hynes said there are plans for Ohgren to get looks up in the lineup during camp and "see what he does" with it.`\
+https://nytimes.com/athletic/5751309/2024/09/23/liam-ohgren-minnesota-wild-roster/
+
+**The Oakland A's are leaving. What I'll carry with me after 4 decades as a fan**\
+`There is a saying, "Oakland against the world," that speaks to what it has meant to be an A’s fan.`\
+https://nytimes.com/athletic/5754764/2024/09/23/oakland-athletics-appreciation-fan-memories/
+
+**Raiders' recipe for disaster: How Las Vegas was embarrassed in loss to Panthers**\
+`Among the issues: No pressure on third down, the middle of the field was wide open, the run game stunk and Gardner Minshew was out of sync.`\
+https://nytimes.com/athletic/5787045/2024/09/23/raiders-loss-panthers-issues-minshew-pass-rush/
+
+**WSL Briefing: Arsenal make their pitch count, hat-trick history and West Ham's captaincy call**\
+`The opening weekend of the new WSL season featured a draw between two title contenders, and a stunning debut on the South Coast`\
+https://nytimes.com/athletic/5787713/2024/09/23/wsl-column-arsenal-emirates-man-city/
+
 **Sabres roster projection: Predicting opening-night lineup, final camp battles**\
 `After Buffalo's first preseason game, a rout of the Penguins, Lindy Ruff's plans for the Sabres are starting to take shape.`\
 https://nytimes.com/athletic/5786898/2024/09/23/sabres-roster-projection-camp-battle/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5533766/2024/09/23/ferland-mendy-real-madrid-contra
 **Why was Pep Guardiola so passive as Manchester City struggled to break down Arsenal?**\
 `John Stones' late equaliser didn't feel like a grand plan had paid off. It felt more like Guardiola had got away with it`\
 https://nytimes.com/athletic/5787818/2024/09/23/manchester-city-passive-arsenal-premier-league/
-
-**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
-`Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
-https://nytimes.com/athletic/5787831/2024/09/23/newcastle-howe-guimaraes-tonali/
-
-**Supermarkets in Australia Sued Over Claims of Fake Discounts**\
-`In a rare case of legal action tied to rising prices, the government sued Woolworths and Coles for what it described as a pattern of deceiving consumers.`\
-https://nytimes.com/2024/09/23/world/australia/woolworths-coles-fake-discounts.html
-
-**Raising the Stakes, Israel Gambles That Hezbollah Will Back Down**\
-`Israel’s intensifying strikes show how determined it is to stop Hezbollah’s cross-border attacks — and how far it is from achieving that goal.`\
-https://nytimes.com/2024/09/23/world/middleeast/israel-hezbollah-escalating.html
-
-**Will Noah Philp's comeback land him a job with the Oilers? 'I feel as good as I ever have'**\
-`If Philp wasn’t the best Oilers forward in Sunday's preseason win, he was certainly on the short list.`\
-https://nytimes.com/athletic/5787349/2024/09/23/edmonton-oilers-noah-philp-preseason-comeback/
-
-**Is offer-sheet mania coming to the NHL? GMs and agents on whether Blues-Oilers could just be the start**\
-`"Make no mistake, the barn door has been opened," one agent said. But GMs countered that the situation has to be perfect to pull one off.`\
-https://nytimes.com/athletic/5785112/2024/09/23/nhl-offer-sheets-gms-agents/
 
