@@ -1,3 +1,11 @@
+**Ukraine’s president criticized Trump and Vance over remarks on its war with Russia.**\
+`The president of Ukr`\
+https://nytimes.com/live/2024/09/23/us/trump-harris-election/ukraines-president-criticized-trump-and-vance-over-remarks-on-its-war-with-russia
+
+**Memphis, Tulane, South Florida, UTSA staying in AAC after Pac-12 pursuit**\
+`The schools had seen presentations from the Pac-12 but ultimately felt the league’s uncertainty and travel weren’t enough to leave.`\
+https://nytimes.com/athletic/5789067/2024/09/23/memphis-tulane-usf-utsa-aac-pac-12/
+
 **Pentagon to Send More U.S. Troops to Middle East as Tensions Rise**\
 `Maj. Gen. Patrick S. Ryder, the Pentagon press secretary, declined to say exactly how many troops were deploying, citing operational security.`\
 https://nytimes.com/2024/09/23/us/politics/us-troops-mideast.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5788969/2024/09/23/sam-darnold-knee-injury-vikings/
 **Tanzania’s President Vowed Opening for Opposition, but Detained Its Leaders**\
 `The East African country’s leading opposition party said that its presidential candidate in the last election and its chairman were among dozens detained before a protest called to draw attention to the killing and abduction of government critics.`\
 https://nytimes.com/2024/09/23/world/africa/tanzania-opposition-leaders-arrested-protests.html
-
-**Texas' Quinn Ewers (oblique) questionable vs. Mississippi State**\
-`The junior QB practiced Monday and Sarkisian said he was “impressed” with where Ewers was in his recovery.`\
-https://nytimes.com/athletic/5788924/2024/09/23/quinn-ewers-texas-oblique/
-
-**Browns' Teller to miss multiple weeks, Garrett day to day**\
-`Cleveland coach Kevin Stefanski said Teller is a candidate for IR, while Garrett could try to play through his injuries. `\
-https://nytimes.com/athletic/5788862/2024/09/23/browns-wyatt-teller-myles-garrett-injuries/
 
