@@ -1,3 +1,7 @@
+**Mets takeaways: Francisco Lindor hopeful, Pete Alonso gets ovation, 6 outs for Edwin Díaz**\
+`Plus, Edwin Díaz records six-out save, Brandon Nimmo ends his slump in Mets' 2-1 win over Phillies. `\
+https://nytimes.com/athletic/5787554/2024/09/23/mets-win-series-phillies-edwin-diaz/
+
 **Fantasy trends and hidden gems: Viktor Arvidsson, a trio of Canucks and more deep sleepers for 2024-25**\
 `Shayna Goldman highlights her favorite late-round fantasy hockey draft sleepers, starting with Edmonton offseason addition Viktor Arvidsson.`\
 https://nytimes.com/athletic/5787113/2024/09/23/fantasy-trends-and-hidden-gems-viktor-arvidsson-a-trio-of-canucks-and-more-deep-sleepers-for-2024-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784749/2024/09/23/everton-sean-dyche-ndiaye-leices
 **Tyler Dibling wears his socks so low Jack Grealish would blush - he's Premier League ready**\
 `Southampton head coach Russell Martin knows he has a special talent on his hands in Tyler Dibling - he looks at home in the top flight`\
 https://nytimes.com/athletic/5783969/2024/09/23/tyler-dibling-southampton-first-goal/
-
-**How Nuno's in-game management led Forest to make it five unbeaten away**\
-`Nottingham Forest have changed from the previous two seasons: they can now pick up results on the road... even with 10 men`\
-https://nytimes.com/athletic/5785410/2024/09/23/nottingham-forest-five-games-unbeaten-away/
 
