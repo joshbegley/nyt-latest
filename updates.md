@@ -1,3 +1,15 @@
+**They’ve Got a Plan to Fight Global Warming. It Could Alter the Oceans.**\
+`By tweaking the chemistry of rivers and oceans, humans could remove billions of tons of carbon dioxide from the air. But huge challenges loom.`\
+https://nytimes.com/2024/09/23/climate/theyve-got-a-plan-to-fight-global-warming-it-could-alter-the-oceans.html
+
+**The Secret Weapon to Fight Flooding Is Hidden in Plain Sight**\
+`It looks like and feels like a regular street. But beneath the surface, six layers are working to keep rainwater from overwhelming New York City neighborhoods.`\
+https://nytimes.com/2024/09/23/nyregion/street-wars-flooding-pavement-porous.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/23/crosswords/spelling-bee-forum.html
+
 **6 Dead in Japan After Record Rainfall Causes Flooding**\
 `The downpour drenched the Noto Peninsula on Saturday, triggering landslides and washing away people and homes, Japan’s national broadcaster said.`\
 https://nytimes.com/2024/09/23/world/japan-floods-noto-dead.html

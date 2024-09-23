@@ -1,3 +1,15 @@
+**They’ve Got a Plan to Fight Global Warming. It Could Alter the Oceans.**\
+`By tweaking the chemistry of rivers and oceans, humans could remove billions of tons of carbon dioxide from the air. But huge challenges loom.`\
+https://nytimes.com/2024/09/23/climate/theyve-got-a-plan-to-fight-global-warming-it-could-alter-the-oceans.html
+
+**The Secret Weapon to Fight Flooding Is Hidden in Plain Sight**\
+`It looks like and feels like a regular street. But beneath the surface, six layers are working to keep rainwater from overwhelming New York City neighborhoods.`\
+https://nytimes.com/2024/09/23/nyregion/street-wars-flooding-pavement-porous.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/23/crosswords/spelling-bee-forum.html
+
 **6 Dead in Japan After Record Rainfall Causes Flooding**\
 `The downpour drenched the Noto Peninsula on Saturday, triggering landslides and washing away people and homes, Japan’s national broadcaster said.`\
 https://nytimes.com/2024/09/23/world/japan-floods-noto-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/23/arts/television/whats-on-tv-this-week-lots-of-med
 **Putin Is Doing Something Almost Nobody Is Noticing**\
 `It’s not just opposition figures who are caught in the Kremlin’s dragnet.`\
 https://nytimes.com/2024/09/23/opinion/russia-putin-kremlin.html
-
-**Here are the latest developments.**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
-
-**Live Updates: Israel Urges Civilians in Lebanon to Evacuate Ahead of Strikes on Hezbollah**\
-`Monday’s attacks follow a series of ambitious strikes on Hezbollah last week that have brought the two sides closer to all out war.`\
-https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah
-
-**Newcastle's deficiencies came to fore at Fulham - how is Howe going to fix them?**\
-`Newcastle's results this season had papered over the cracks of poor performances... until Fulham. Eddie Howe has multiple problems to solve`\
-https://nytimes.com/athletic/5783359/2024/09/23/newcastle-problems-eddie-howe-fix/
 
