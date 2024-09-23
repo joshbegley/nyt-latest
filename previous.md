@@ -1,3 +1,15 @@
+**Caterina Valente, Singer Who Was a Star on Two Continents, Dies at 93**\
+`Born in Paris to Italian parents and raised in Germany, she had her own show on television in the 1950s and was later a small-screen mainstay in the U.S.`\
+https://nytimes.com/2024/09/23/arts/music/caterina-valente-dead.html
+
+**Old Trafford regeneration could inject £7.3bn into UK economy**\
+`Manchester United&#8217;s plans to regenerate Trafford Park, including the potential construction of a new 100,000-seater stadium, could inject £7.`\
+https://nytimes.com/athletic/5789107/2024/09/23/manchester-united-old-trafford-uk-economy/
+
+**Inspired by a Children’s Book, They’re Having a ‘Strega Nona September’**\
+`A pasta-making witch from a beloved 1975 fable is being hailed online as the blueprint for a very specific strain of autumnal coziness.`\
+https://nytimes.com/2024/09/23/style/strega-nona-trend-tiktok.html
+
 **Gunman Convicted in Mass Shooting at Colorado Supermarket**\
 `Ahmad Al Aliwi Alissa, who killed 10 people in the mass shooting in 2021, had argued that he was not guilty by reason of insanity.`\
 https://nytimes.com/2024/09/23/us/colorado-boulder-shooting-king-soopers-trial-verdict.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5789067/2024/09/23/memphis-tulane-usf-utsa-aac-pac-
 **Pentagon to Send More U.S. Troops to Middle East as Tensions Rise**\
 `Maj. Gen. Patrick S. Ryder, the Pentagon press secretary, declined to say exactly how many troops were deploying, citing operational security.`\
 https://nytimes.com/2024/09/23/us/politics/us-troops-mideast.html
-
-**Israeli warplanes target another top Hezbollah commander in Beirut, officials say.**\
-`By Ronen Bergman and Patrick Kingsley`\
-https://nytimes.com/live/2024/09/23/world/gaza-israel-hamas-hezbollah/israeli-warplanes-target-another-top-hezbollah-commander-in-beirut-officials-say
-
-**Can USC's offensive line settle in, while a No. 1 wide receiver emerge?**\
-`USC's offensive line struggled against Michigan while the Trojans continue to look for a No. 1 option at wide receiver.`\
-https://nytimes.com/athletic/5788865/2024/09/23/usc-michigan-result-analysis/
-
-**The U.S. Lost the Battery Race to China. Can It Make a Comeback?**\
-`The cutting edge of American battery technology is rusty.`\
-https://nytimes.com/2024/09/23/opinion/iron-air-battery-china.html
 
