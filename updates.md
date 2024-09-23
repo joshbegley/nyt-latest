@@ -1,3 +1,11 @@
+**Cardinals overpowered in loss to Lions, but they may not be far from their next step**\
+`The Cardinals want to be a violent, physical team. They got a strong look at one in Sunday’s loss. And they think they're not far off.`\
+https://nytimes.com/athletic/5787024/2024/09/23/cardinals-lions-kyler-murray-marvin-harrison-jr/
+
+**The Briefing: Who expected a City-Arsenal thriller? Point proven for Rodri? And are Chelsea good?**\
+`The big talking points from the weekend's football – including a welcome thriller, the player workload issue, and re-evaluating Chelsea`\
+https://nytimes.com/athletic/5785885/2024/09/23/man-city-arsenal-rodri-chelsea/
+
 **City and Arsenal's bad blood: Clear on the pitch - and it goes right to the top of both**\
 `The issues between Manchester City and Arsenal are not just confined to the football pitch`\
 https://nytimes.com/athletic/5770847/2024/09/23/manchester-city-arsenal-rivalry/
