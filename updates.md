@@ -1,3 +1,15 @@
+**California Sues Exxon Over Plastics Pollution and Recycling ‘Myth’**\
+`The lawsuit, seeking ‘multiple billions of dollars,’ opens a new front in the legal battles with oil and gas companies over climate and environmental issues.`\
+https://nytimes.com/2024/09/23/climate/california-exxon-mobil-plastics-pollution-recycling-lawsuit.html
+
+**Punching Octopuses Lead Fish on Hunting Parties**\
+`Octopuses and fish are routinely seen working together on the ocean floor, and now scientists say that the cephalopods are the leaders of the pack.`\
+https://nytimes.com/2024/09/23/science/octopuses-punching-fish.html
+
+**This Soup Is a Hug**\
+`My lemony white bean soup with turkey and greens is a warm hug on a crisp evening (and a New York Times Cooking classic).`\
+https://nytimes.com/2024/09/23/dining/this-soup-is-a-hug.html
+
 **Israel Launches Deadly Strikes Across Gaza, Local Officials Say**\
 `The latest in a series of strikes on schools being used as shelters killed three in Nuseirat, according to the Palestinian Civil Defense. Israel has said the buildings were being used by Hamas militants as a command center.`\
 https://nytimes.com/2024/09/23/world/middleeast/gaza-israel-strikes.html

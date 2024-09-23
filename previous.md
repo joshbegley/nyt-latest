@@ -1,11 +1,3 @@
-**Israel Launches Deadly Strikes Across Gaza, Local Officials Say**\
-`The latest in a series of strikes on schools being used as shelters killed three in Nuseirat, according to the Palestinian Civil Defense. Israel has said the buildings were being used by Hamas militants as a command center.`\
-https://nytimes.com/2024/09/23/world/middleeast/gaza-israel-strikes.html
-
-**Trump Says He Wouldn’t Run for President in 2028 if He Loses This Year**\
-`The former president, who is the Republican nominee for the third time, would be 82 on Election Day in 2028. That’s older than President Biden is now.`\
-https://nytimes.com/2024/09/23/us/politics/trump-president-2028.html
-
 **JD Vance Has Turned to a Minnesota Republican to Help Him Prepare for the Debate**\
 `Donald J. Trump’s running mate invited Representative Tom Emmer to stand in for his fellow Minnesotan, Gov. Tim Walz, ahead of the vice-presidential debate next month.`\
 https://nytimes.com/2024/09/23/us/politics/vance-debate-prep-emmer.html
@@ -18,7 +10,7 @@ https://nytimes.com/2024/09/23/arts/music/low-alan-sparkhawk-white-roses-my-god.
 `Some of the top favorites have fallen in the first three weeks. Will expectations and reality even out in Week 4? `\
 https://nytimes.com/athletic/5788279/2024/09/23/nfl-week-4-odds-spreads-schedule-49ers-are-biggest-favorites-but-favorites-have-been-falling/
 
-**California Sues Exxon Over Plastics Pollution and ‘Myth’ of Recycling**\
+**California Sues Exxon Over Plastics Pollution and Recycling ‘Myth’**\
 `The lawsuit, seeking ‘multiple billions of dollars,’ opens a new front in the legal battles with oil and gas companies over climate and environmental issues.`\
 https://nytimes.com/2024/09/23/climate/california-exxon-mobil-plastics-pollution-recycling-lawsuit.html
 
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5788100/2024/09/23/luka-doncic-dallas-mavericks-sac
 **Alexander-Arnold would not be blamed for leaving Liverpool - but he may regret it**\
 `The right-back's situation has been overlooked by FSG but quitting his hometown club would not be an easy decision`\
 https://nytimes.com/athletic/5774308/2024/09/23/trent-alexander-arnold-liverpool-transfer-regret/
+
+**Punching Octopuses Lead Fish on Hunting Parties**\
+`Octopuses and fish are routinely seen working together on the ocean floor, and now scientists say that the cephalopods are the leaders of the pack.`\
+https://nytimes.com/2024/09/23/science/octopuses-punching-fish.html
+
+**This Soup Is a Hug**\
+`My lemony white bean soup with turkey and greens is a warm hug on a crisp evening (and a New York Times Cooking classic).`\
+https://nytimes.com/2024/09/23/dining/this-soup-is-a-hug.html
 
