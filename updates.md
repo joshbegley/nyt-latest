@@ -1,3 +1,7 @@
+**Browns' Teller to miss multiple weeks, Garrett day to day**\
+`Cleveland coach Kevin Stefanski said Teller is a candidate for IR, while Garrett could try to play through his injuries. `\
+https://nytimes.com/athletic/5788862/2024/09/23/browns-wyatt-teller-myles-garrett-injuries/
+
 **Explained: Everton's proposed takeover by The Friedkin Group**\
 `Everton appear to have new owners on the horizon after The Friedkin Group reached an agreement with Farhad Moshiri — what does it all mean?`\
 https://nytimes.com/athletic/5788555/2024/09/23/everton-takeover-the-friedkin-group/
