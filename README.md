@@ -1,3 +1,7 @@
+**Jets risers, fallers and question marks after 2 preseason games**\
+`Here's what we're seeing after two Jets preseason games, with a small round of cuts on the immediate horizon.`\
+https://nytimes.com/athletic/5784407/2024/09/23/winnipeg-jets-2024-preseason/
+
 **One Bull Is Still Missing After 8 Escape From Massachusetts Rodeo**\
 `The bulls were part of a one-day rodeo held at the Emerald Square Mall on Sunday in North Attleboro.`\
 https://nytimes.com/2024/09/23/us/bulls-escape-rodeo-massachusetts.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/17/opinion/thepoint/global-warming-adaptation
 **A South Korean Olympian Gets to Play an Assassin, but Some Before Her Have Flopped**\
 `Olympians who tried the movies, especially in the 1980s, often fared poorly.`\
 https://nytimes.com/2024/09/23/sports/kim-ye-ji-korea-olympics-shooter-acting.html
-
-**Vikings' Sam Darnold expected to start vs. Packers after knee bruise**\
-`Darnold has been one of the best quarterbacks in the league through three weeks.`\
-https://nytimes.com/athletic/5788969/2024/09/23/sam-darnold-knee-injury-vikings/
 
