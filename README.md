@@ -1,3 +1,15 @@
+**For Fredric Jameson, Marxist Criticism Was a Labor of Love**\
+`The literary critic, who died on Sunday at age 90, believed that reading was the path to revolution.`\
+https://nytimes.com/2024/09/23/books/review/fredric-jameson-appraisal.html
+
+**Grizzlies waiving Derrick Rose: Sources**\
+`Rose averaged 8.0 points, 3.3 assists and 1.9 rebounds in 16.6 minutes per game during his lone season in Memphis.`\
+https://nytimes.com/athletic/5789525/2024/09/23/derrick-rose-grizzlies-waived/
+
+**Russia’s Next-Generation Nuclear Missile Failed a Test, Evidence Suggests**\
+`Satellite photos showing a 200-foot-wide crater at a launch site indicate that the Sarmat missile, said by the Kremlin to travel at five times the speed of sound, might not be ready for duty.`\
+https://nytimes.com/2024/09/23/world/europe/russias-sarmat-missile-test.html
+
 **Biden Works Against the Clock as Violence Escalates in the Middle East**\
 `President Biden is beginning to acknowledge that he is simply running out of time to help forge a cease-fire and hostage deal with Hamas, his aides say. And the risk of a wider war has never looked greater.`\
 https://nytimes.com/2024/09/23/us/politics/biden-violence-escalates-in-middle-east.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/23/briefing/israel-lebanon-airstrikes-trump-harris-p
 **At U.N. Conference, Global Crises Collide With Fraught American Politics**\
 `President Biden will speak at a time of deep uncertainty about the future of America’s role in the world.`\
 https://nytimes.com/2024/09/23/us/politics/united-nations-american-politics.html
-
-**Giants week in review: A team peaking when it matters the least**\
-`The Giants played two potential playoff teams this past week and steamrolled them. It was too little, too late in a lost season.`\
-https://nytimes.com/athletic/5788427/2024/09/23/sf-giants-weekly-review-orioles-royals/
-
-**World War II Airman Identified After 79 Years**\
-`Staff Sgt. John A. Tarbert of the Air Force died weeks before his son was born, but he was accounted for only this year.`\
-https://nytimes.com/2024/09/23/us/world-war-ii-airman-identified.html
-
-**Davis Cup Finals squads: Nadal for Spain, Sinner could face Alcaraz**\
-`Nadal, 38, has not played competitive tennis since the Olympics, in which he partnered Alcaraz.`\
-https://nytimes.com/athletic/5789286/2024/09/23/davis-cup-finals-squads-schedule/
 
