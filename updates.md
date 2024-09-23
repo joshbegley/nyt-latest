@@ -1,3 +1,15 @@
+**Penn Suspends Amy Wax, Law Professor Accused of Making Racist Statements**\
+`The case tested the limits of academic freedom and tenure.`\
+https://nytimes.com/2024/09/23/us/university-of-pennsylvania-law-school-amy-wax.html
+
+**Government Watchdog Calls F.A.A. Air Traffic Control Systems Critically Outdated**\
+`A report by the Government Accountability Office said that the agency’s heavy reliance on the systems could jeopardize the safety and efficiency of the nation’s airspace.`\
+https://nytimes.com/2024/09/23/us/politics/faa-air-traffic-control.html
+
+**Reggie Bush sues NCAA, Pac-12, USC for NIL compensation**\
+`The NCAA and Pac-12 are currently co-defendants in several federal antitrust suits on behalf of former athletes seeking NIL compensation.`\
+https://nytimes.com/athletic/5789591/2024/09/23/reggie-bush-lawsuit-ncaa-pac-12-nil/
+
 **2 Plead Guilty in Drug-Related Death of Prominent Transgender Activist**\
 `Michael Kuilan and Antonio Venti admitted providing fentanyl-laced heroin to Cecilia Gentili, whose death prompted an outpouring of grief among L.G.B.T.Q. New Yorkers.`\
 https://nytimes.com/2024/09/23/nyregion/cecilia-gentili-fentanyl-death-guilty.html
