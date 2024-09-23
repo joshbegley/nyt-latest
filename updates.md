@@ -1,3 +1,7 @@
+**Storm That Could Threaten Gulf Coast Takes Shape in the Caribbean**\
+`Details are still fuzzy, but the likelihood that Potential Tropical Cyclone Nine will turn into Hurricane Helene and affect the Gulf Coast later this week is increasing.`\
+https://nytimes.com/2024/09/23/weather/gulf-of-mexico-helene.html
+
 **College football Week 5 odds, schedule: Georgia opens as a small favorite against Alabama**\
 `Georgia heads to Alabama in one of the marquee games of the season. The Bulldogs are favored by less than a field goal in Week 5's top game.`\
 https://nytimes.com/athletic/5788494/2024/09/23/college-football-week-5-odds-schedule-georgia-alabama/
