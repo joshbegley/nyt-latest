@@ -1,3 +1,7 @@
+**49ers' Hargrave out for season; Purdy day-to-day**\
+`The 49ers hope Purdy will be able to practice Wednesday. Meanwhile, Christian McCaffrey traveled to Germany for treatment on his Achilles.`\
+https://nytimes.com/athletic/5789651/2024/09/23/49ers-injuries-updates-javon-hargrave-brock-purdy/
+
 **Quote of the Day: Where Soccer Is a Refuge for Refugees**\
 `Quotation of the Day for Tuesday, September 24, 2024`\
 https://nytimes.com/2024/09/23/pageoneplus/quote-of-the-day-where-soccer-is-a-refuge-for-refugees.html
