@@ -1,3 +1,15 @@
+**Alexander-Arnold would not be blamed for leaving Liverpool - but he may regret it**\
+`Defender's situation has been overlooked by FSG but quitting his hometown club would not be an easy decision`\
+https://nytimes.com/athletic/5774308/2024/09/23/trent-alexander-arnold-liverpool-transfer-regret/
+
+**Punching Octopuses Lead Fish on Hunting Parties**\
+`Octopuses and fish are routinely seen working together on the ocean floor, and now scientists say that the cephalopods are the leaders of the pack.`\
+https://nytimes.com/2024/09/23/science/octopuses-punching-fish.html
+
+**This Soup Is a Hug**\
+`My lemony white bean soup with turkey and greens is a warm hug on a crisp evening (and a New York Times Cooking classic).`\
+https://nytimes.com/2024/09/23/dining/this-soup-is-a-hug.html
+
 **Was It Really a Hot Zone Summer?**\
 `From Covid to dengue, viral outbreaks seemed to be popping up all over. But maybe Americans are just more attuned to threats now.`\
 https://nytimes.com/2024/09/23/health/virus-outbreaks-summer.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/23/nyregion/nypd-stop-and-frisk-report.html
 **Russian Military Plane Breaches Japan’s Airspace Three Times in One Day**\
 `The infringements were the first by Russia in five years, according to the Japanese defense ministry. A fighter fired a warning flare in response.`\
 https://nytimes.com/2024/09/23/world/asia/japan-russia-plane.html
-
-**Chaos and quicksand: Vikings defense using deception and daring in 3-0 start**\
-`In their win over the Texans, the Vikings set their defensive trap early and let C.J. Stroud fall deeper and deeper into the hole.`\
-https://nytimes.com/athletic/5785480/2024/09/23/vikings-defense-brian-flores-texans/
-
-**Inside a Trump Ad Hammering Harris Over Americans’ Economic Woes**\
-`No viewer could miss the ad’s repeated connection of the vice president to Bidenomics. And as it portrays voters struggling to make ends meet, she is seen laughing gleefully.`\
-https://nytimes.com/2024/09/23/us/politics/trump-ad-harris-economy-bidenomics.html
-
-**Stalking the Wild Banana**\
-`One man’s “never-ending quest” for the least-known varieties of the world’s most-eaten fruit.`\
-https://nytimes.com/2024/09/23/science/bananas-sachter-smith.html
 
