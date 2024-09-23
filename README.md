@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5533766/2024/09/23/ferland-mendy-real-madrid-contract-new/
 
 **Why was Pep Guardiola so passive as Manchester City struggled to break down Arsenal?**\
-`John Stones late equaliser didn't feel like a grand plan had paid off. It felt more like Guardiola had got away with it.`\
+`John Stones' late equaliser didn't feel like a grand plan had paid off. It felt more like Guardiola had got away with it`\
 https://nytimes.com/athletic/5787818/2024/09/23/manchester-city-passive-arsenal-premier-league/
 
 **Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
