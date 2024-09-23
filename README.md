@@ -1,3 +1,11 @@
+**Wild's Matt Boldy week-to-week with lower-body injury: What it means for the PK and roster-hopefuls**\
+`ST.`\
+https://nytimes.com/athletic/5789011/2024/09/23/matt-boldy-injury-minnesota-wild/
+
+**Hurricane John Threatens Mexico’s Pacific Coast**\
+`The storm is expected to continue to intensify before making landfall early Tuesday.`\
+https://nytimes.com/2024/09/23/weather/hurricane-john-mexico.html
+
 **Boeing Says It Has Made Its ‘Best and Final’ Offer to Striking Workers**\
 `The proposal includes raises of 30 percent over the four-year contract, up from a 25 percent offer, but it’s unclear whether it will satisfy workers.`\
 https://nytimes.com/2024/09/23/business/economy/boeing-strike-contract-offer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/23/us/california-plastic-bags-ban.html
 **Jets risers, fallers and question marks after 2 preseason games**\
 `Here's what we're seeing after two Jets preseason games, with a small round of cuts on the immediate horizon.`\
 https://nytimes.com/athletic/5784407/2024/09/23/winnipeg-jets-2024-preseason/
-
-**One Bull Is Still Missing After 8 Escape From Massachusetts Rodeo**\
-`The bulls were part of a one-day rodeo held at the Emerald Square Mall on Sunday in North Attleboro.`\
-https://nytimes.com/2024/09/23/us/bulls-escape-rodeo-massachusetts.html
-
-**Ukraine’s president criticized Trump and Vance over remarks on its war with Russia.**\
-`The president of Ukr`\
-https://nytimes.com/live/2024/09/23/us/trump-harris-election/ukraines-president-criticized-trump-and-vance-over-remarks-on-its-war-with-russia
 
