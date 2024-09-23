@@ -1,3 +1,11 @@
+**Mack Brown plans to finish 2024 season at UNC: Sources**\
+`In 2018, 10 months before being hired at North Carolina, Brown was inducted into the College Football Hall of Fame.`\
+https://nytimes.com/athletic/5784418/2024/09/23/mack-brown-unc-jmu-locker-room-speech/
+
+**Mayo: Jacoby Brissett 'still our starting quarterback'**\
+`This is the second time Mayo has endorsed Brissett as the Patriots starter since benching him in the fourth quarter of Thursday night's loss`\
+https://nytimes.com/athletic/5788728/2024/09/23/jacoby-brissett-starting-qb-patriots/
+
 **Ukraine Needs to Be Realistic About Its Goals, Czech President Says**\
 `President Petr Pavel, a former NATO general who has been vocal in his support for Ukraine, said Kyiv needed to accept that some territory could remain under Russian control, at least “temporarily.”`\
 https://nytimes.com/2024/09/23/world/europe/ukraine-war-goals-russia-czech-president.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5788466/2024/09/23/ter-stegen-injury-barcelona-sign
 **Storm That Could Threaten Gulf Coast Takes Shape in the Caribbean**\
 `Details are still fuzzy, but the likelihood that Potential Tropical Cyclone Nine will turn into Hurricane Helene and affect the Gulf Coast later this week is increasing.`\
 https://nytimes.com/2024/09/23/weather/gulf-of-mexico-helene.html
-
-**How Milan's brave use of Christian Pulisic in a narrow position helped them defeat Inter**\
-`Paulo Fonseca was under intense pressure heading into the derby but his clever deployment of the USMNT player paid off`\
-https://nytimes.com/athletic/5787663/2024/09/23/how-milans-brave-use-of-christian-pulisic-in-a-narrow-position-helped-them-defeat-inter/
-
-**Do You Know These Villains of Classic British Literature?**\
-`Antagonists, antiheroes and just plain evil characters can really stick with you. See how many you remember from five time-honored novels.`\
-https://nytimes.com/interactive/2024/09/23/books/review/classic-lit-villains.html
 
