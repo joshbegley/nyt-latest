@@ -1,3 +1,11 @@
+**Another Bears Sunday squandered: What went wrong in Indianapolis?**\
+`The Bears started to find life on offense only to turn it over multiple times and fail to capitalize in their second loss in a row.`\
+https://nytimes.com/athletic/5786369/2024/09/23/bears-missed-opportunities-colts/
+
+**New State Laws Are Fueling a Surge in Book Bans**\
+`Two reports from advocacy groups show that book banning continues at higher rates than before the pandemic. Newly implemented state laws are impacting the numbers this year.`\
+https://nytimes.com/2024/09/23/books/new-state-laws-are-fueling-a-surge-in-book-bans.html
+
 **Did David Tepper force the Panthers' QB change? Why I don't buy it**\
 `Tepper has earned his reputation as a meddler, but Bryce Young's benching looked more like a coach's decision (and a smart one, at that).`\
 https://nytimes.com/athletic/5787725/2024/09/23/andy-dalton-bryce-young-david-tepper/
