@@ -1,3 +1,7 @@
+**'Resilient' Seahawks defense rises to challenge, dominates Dolphins in 24-3 win**\
+`The Seahawks' offense struggled with penalties and inconsistent play Sunday, but their defense stepped up in big spots. `\
+https://nytimes.com/athletic/5787074/2024/09/22/seattle-seahawks-week-3-defense-dolphins/
+
 **Rodrigue: The chaos Rams are back, this time with lift from special teams and Matthew Stafford**\
 `The Rams got a big fourth quarter from Matthew Stafford, a game-winning kick from their rookie to beat NFC West rival San Francisco.`\
 https://nytimes.com/athletic/5786798/2024/09/22/rams-comeback-win-49ers-chaos-matt-stafford/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786886/2024/09/22/padres-postseason-berth-bigger-g
 **Browns' offense hasn't been just bad, it's been borderline hopeless**\
 `Following its latest loss to the Giants, it's not too early to declare Cleveland's offense as being in a true state of emergency.. `\
 https://nytimes.com/athletic/5786421/2024/09/22/browns-offense-loss-giants/
-
-**Despite Anthony Richardson's ugly outing, Colts outlast Bears, avoid 0-3 start**\
-`Richardson found small ways to contribute to the Colts' win, but as a passer Sunday, he wasn't nearly good enough.  `\
-https://nytimes.com/athletic/5786524/2024/09/22/colts-anthony-richardson-bears-win/
 
