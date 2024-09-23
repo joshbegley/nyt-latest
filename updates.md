@@ -1,3 +1,11 @@
+**Knicks' Robinson out until at least December after ankle surgery**\
+`The Knicks' center position, already weakened by the departure of Isaiah Hartenstein, gets even shallower. `\
+https://nytimes.com/athletic/5788827/2024/09/23/knicks-mitchell-robinson-ankle-injury/
+
+**Bob Bradley leaves Norwegian club Stabaek**\
+`Former USMNT head coach Bob Bradley has departed Norwegian club Stabaek after a run of three successive defeats.`\
+https://nytimes.com/athletic/5788807/2024/09/23/bob-bradley-stabaek-exit/
+
 **Mother of Accused Apalachee Gunman Faces Elder Abuse Charges**\
 `Marcee Gray, 43, is accused of taping her mother to a chair during a drug-induced rage.`\
 https://nytimes.com/2024/09/23/us/georgia-school-shooting-gunman-mother-abuse.html
