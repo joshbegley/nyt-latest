@@ -1,3 +1,7 @@
+**N.Y.P.D. Unwilling to Impose Discipline for Stop and Frisk, Report Says**\
+`The department’s discipline for illegal street detentions is lax at every level, according to an extraordinary review ordered by a federal judge.`\
+https://nytimes.com/2024/09/23/nyregion/nypd-stop-and-frisk-report.html
+
 **Russian Military Plane Breaches Japan’s Airspace Three Times in One Day**\
 `The infringements were the first by Russia in five years, according to the Japanese defense ministry. A fighter fired a warning flare in response.`\
 https://nytimes.com/2024/09/23/world/asia/japan-russia-plane.html
