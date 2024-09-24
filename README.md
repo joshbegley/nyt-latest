@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
+
 **Word of the Day: contrive**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/24/learning/word-of-the-day-contrive.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788375/2024/09/24/nottingham-forest-gibbs-white-fo
 **Inside Newcastle Q&A: Tonali omission, Pope's mistakes and PIF's commitment**\
 `Newcastle reporter Chris Waugh answers questions on the main talking points at the club this week`\
 https://nytimes.com/athletic/5787733/2024/09/24/inside-newcastle-tonali-pope-pif/
-
-**Rodri is a symptom of a sport at breaking point - and we're all to blame**\
-`A serious injury to one of the world's best — who had warned about the demands placed on players — should be a wake-up call`\
-https://nytimes.com/athletic/5788223/2024/09/24/rodri-manchester-city-injury-schedule/
 
