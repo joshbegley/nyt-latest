@@ -1,3 +1,7 @@
+**Hemmed In by the Hard Right, Johnson Again Turns to Democrats for Votes**\
+`The House speaker is trying to get a short-term spending agreement passed despite opposition from some conservative members of his own party.`\
+https://nytimes.com/2024/09/24/us/politics/johnson-spending-democrats-republicans.html
+
 **U.S. Accuses Visa of Monopoly in Debit Cards**\
 `The financial giant, which processes the majority of debit card spending in the United States, unfairly imposed fees on merchants and deterred rivals, the Justice Department said.`\
 https://nytimes.com/2024/09/24/business/dealbook/visa-antitrust-lawsuit-debit-cards.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/24/world/unga-2024-biden/the-us-nixes-the-secur
 **What are Your Unusual Holiday Traditions?**\
 `For many people, celebrating the winter holidays means marking it in eccentric and sometimes downright inexplicable ways.`\
 https://nytimes.com/2024/09/24/style/unusual-holiday-traditions-callout.html
-
-**U.K.’s Starmer Attempts to Sprinkle Some Harris-Style ‘Joy’ Into Speech**\
-`After a somewhat bumpy start to his premiership, Keir Starmer tried to reclaim the narrative, acknowledging voters’ desire for hope and promising change was on the way.`\
-https://nytimes.com/2024/09/24/world/europe/keir-starmer-speech-uk.html
 

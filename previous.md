@@ -1,3 +1,11 @@
+**U.S. Accuses Visa of Monopoly in Debit Cards**\
+`The financial giant, which processes the majority of debit card spending in the United States, unfairly imposed fees on merchants and deterred rivals, the Justice Department said.`\
+https://nytimes.com/2024/09/24/business/dealbook/visa-antitrust-lawsuit-debit-cards.html
+
+**Broncos' defensive front is team's biggest strength and hasn't reached its ceiling**\
+`Dondrea Tillman, an ex-UFL player who had two sacks in his NFL debut Sunday, is an example of the depth Broncos have built in front seven.`\
+https://nytimes.com/athletic/5788988/2024/09/24/broncos-defensive-front-zach-allen/
+
 **Pac-12 files lawsuit against Mountain West seeking to avoid poaching fees**\
 `The Pac-12 argues that the tens of millions it owes the Mountain West in poaching fees amount to an antitrust violation.`\
 https://nytimes.com/athletic/5791412/2024/09/24/pac-12-mountain-west-lawsuit-poaching-fees/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/24/style/unusual-holiday-traditions-callout.html
 **U.K.’s Starmer Attempts to Sprinkle Some Harris-Style ‘Joy’ Into Speech**\
 `After a somewhat bumpy start to his premiership, Keir Starmer tried to reclaim the narrative, acknowledging voters’ desire for hope and promising change was on the way.`\
 https://nytimes.com/2024/09/24/world/europe/keir-starmer-speech-uk.html
-
-**City 16-year-old Braithwaite set for Carabao Cup start**\
-`Manchester City teenager Kaden Braithwaite will become the third-youngest player in the club&#8217;s history when he makes his first-team debut later on Tuesday evening.`\
-https://nytimes.com/athletic/5791346/2024/09/24/kaden-braithwaite-man-city-carabao-cup/
-
-**Steelers preparing Justin Fields to start again**\
-`Tomlin: "I want Justin (Fields) singularly focused on starting for us and doing what's required to be ready to do that.”`\
-https://nytimes.com/athletic/5791227/2024/09/24/steelers-justin-fields-russell-wilson-status/
 

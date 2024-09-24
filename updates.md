@@ -1,3 +1,11 @@
+**U.S. Accuses Visa of Monopoly in Debit Cards**\
+`The financial giant, which processes the majority of debit card spending in the United States, unfairly imposed fees on merchants and deterred rivals, the Justice Department said.`\
+https://nytimes.com/2024/09/24/business/dealbook/visa-antitrust-lawsuit-debit-cards.html
+
+**Broncos' defensive front is team's biggest strength and hasn't reached its ceiling**\
+`Dondrea Tillman, an ex-UFL player who had two sacks in his NFL debut Sunday, is an example of the depth Broncos have built in front seven.`\
+https://nytimes.com/athletic/5788988/2024/09/24/broncos-defensive-front-zach-allen/
+
 **Pac-12 files lawsuit against Mountain West seeking to avoid poaching fees**\
 `The Pac-12 argues that the tens of millions it owes the Mountain West in poaching fees amount to an antitrust violation.`\
 https://nytimes.com/athletic/5791412/2024/09/24/pac-12-mountain-west-lawsuit-poaching-fees/
