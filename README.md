@@ -1,3 +1,7 @@
+**Zelensky Prepares for Tough Act Putting Ukraine War Back on Global Agenda**\
+`In his speech to the U.N. General Assembly on Wednesday and then a meeting with President Biden a day later, the Ukrainian president will be pleading for more military and political support.`\
+https://nytimes.com/2024/09/24/world/zelensky-general-assembly-ukraine-war.html
+
 **Wolff hits back at Horner over comments on Russell’s future**\
 `Toto Wolff has hit back at Christian Horner after the Red Bull team principal hinted at a potential move for Mercedes driver George Russell in 2026.`\
 https://nytimes.com/athletic/5790654/2024/09/24/toto-wolff-christian-horner-george-russell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788730/2024/09/24/canucks-training-camp-takeaways/
 **49ers minutia minute: Examining problems at linebacker, cornerback in loss to Rams**\
 `Brock Purdy might be the most prolific passer in the NFL right now if not for multiple drops from his wide receivers. `\
 https://nytimes.com/athletic/5789194/2024/09/24/49ers-snap-counts-loss-rams/
-
-**Rethinking ‘Checks and Balances’ for the A.I. Age**\
-`A project at Stanford points to the need for institutional innovation, especially in government, to increase the odds that A.I. enhances democracy.`\
-https://nytimes.com/2024/09/24/business/ai-democracy-government.html
 
