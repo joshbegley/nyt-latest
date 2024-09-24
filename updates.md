@@ -1,3 +1,7 @@
+**Review: A Devastated Drone Pilot Opens the Met Opera’s Season**\
+`Jeanine Tesori and George Brant’s bloodless “Grounded,” about a fighter pilot turned dissociating drone operator, stars the mezzo-soprano Emily D’Angelo.`\
+https://nytimes.com/2024/09/24/arts/review-grounded-metropolitan-opera-jeanine-tesori-george-brant.html
+
 **Ted Cruz Is Again Fighting for Political Survival in Texas**\
 `The fiery senator, who was nearly unseated in 2018, has been trying to rebrand himself in a close race against a Democratic congressman and former N.F.L. player, Colin Allred.`\
 https://nytimes.com/2024/09/24/us/politics/ted-cruz-colin-allred-texas-senate.html
