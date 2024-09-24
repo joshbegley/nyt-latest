@@ -1,3 +1,7 @@
+**What are Your Unusual Holiday Traditions?**\
+`For many people, celebrating the winter holidays means marking it in eccentric and sometimes downright inexplicable ways.`\
+https://nytimes.com/2024/09/24/style/unusual-holiday-traditions-callout.html
+
 **U.K.’s Starmer Attempts to Sprinkle Some Harris-Style ‘Joy’ Into Speech**\
 `After a somewhat bumpy start to his premiership, Keir Starmer tried to reclaim the narrative, acknowledging voters’ desire for hope and promising change was on the way.`\
 https://nytimes.com/2024/09/24/world/europe/keir-starmer-speech-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788942/2024/09/24/college-football-best-bets-week-
 **Brett Favre reveals Parkinson's diagnosis**\
 `"I've been recently diagnosed with Parkinson's," Favre said at a Congressional hearing on the misuse of welfare funds.`\
 https://nytimes.com/athletic/5791079/2024/09/24/brett-favre-parkinsons-diagnosis-congress/
-
-**Desert Racers Demolish Art Carved by Ancient People in Chile**\
-`Preservationists say governments at all levels have failed to prevent authorized and illegal off-road racers from driving through giant figures of animals, humans and objects.`\
-https://nytimes.com/2024/09/24/science/geoglyphs-atacama-desert-rallies.html
 
