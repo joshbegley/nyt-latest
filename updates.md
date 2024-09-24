@@ -1,3 +1,7 @@
+**Zelensky Prepares for Tough Act Putting Ukraine War Back on Global Agenda**\
+`In his speech to the U.N. General Assembly on Wednesday and then a meeting with President Biden a day later, the Ukrainian president will be pleading for more military and political support.`\
+https://nytimes.com/2024/09/24/world/zelensky-general-assembly-ukraine-war.html
+
 **Wolff hits back at Horner over comments on Russell’s future**\
 `Toto Wolff has hit back at Christian Horner after the Red Bull team principal hinted at a potential move for Mercedes driver George Russell in 2026.`\
 https://nytimes.com/athletic/5790654/2024/09/24/toto-wolff-christian-horner-george-russell/
