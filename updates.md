@@ -1,3 +1,7 @@
+**Liverpool's Alisson out of Carabao Cup match vs West Ham; doubt for Wolves trip**\
+`Alisson will miss Liverpool&#8217;s Carabao Cup third round tie against West Ham United and is a doubt for the Premier League fixture against Wolverhampton Wanderers through injury, head coach Arne Slot has said.`\
+https://nytimes.com/athletic/5790417/2024/09/24/alisson-injury-liverpool-return/
+
 **Jayden Daniels has near-flawless performance in prime-time debut: 'He's special'**\
 `The rookie QB was calm, cool and collected as he displayed his skills on a national stage and led Washington over a desperate Bengals team. `\
 https://nytimes.com/athletic/5790278/2024/09/24/jayden-daniels-commanders-win-bengals-monday-night-football/
