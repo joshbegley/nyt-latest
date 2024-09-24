@@ -1,3 +1,15 @@
+**Mbappe to be assessed ahead of Madrid derby after minor thigh problem**\
+`Kylian Mbappe is set to be assessed after being forced off during Real Madrid&#8217;s La Liga victory over Alaves on Tuesday with a muscular injury.`\
+https://nytimes.com/athletic/5792000/2024/09/24/kylian-mbappe-real-madrid-injury/
+
+**Jordan Chiles files second appeal in case for her Olympic bronze medal**\
+`Jordan Chiles' effort to get her bronze medal back continues with two new appeals filed in the Federal Supreme Court of Switzerland.`\
+https://nytimes.com/athletic/5791708/2024/09/24/jordan-chiles-olympics-appeal/
+
+**Bills All-22: Josh Allen is getting the ball out quicker, offensive linemen among top performers**\
+`Plus, Khalil Shakir was particularly effective in exploiting a weakness.`\
+https://nytimes.com/athletic/5791828/2024/09/24/buffalo-bills-all-22-josh-allen-khalil-shakir-jaguars/
+
 **As U.N. Meets, Israel Pounds Targets in Lebanon, Sending Civilians Fleeing**\
 `Israel said it was striking Hezbollah targets with “high intensity” to keep the campaign as short as possible, as the Lebanese militants maintained their own cross-border barrage.`\
 https://nytimes.com/2024/09/24/world/middleeast/israel-hezbollah-lebanon.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/24/sports/dick-moss-dead.html
 **CrowdStrike Executive Questioned by Lawmakers Over Global Tech Outage**\
 `Adam Meyers, a senior vice president of the cybersecurity firm, testified in front of a House Homeland Security subcommittee about the July mishap.`\
 https://nytimes.com/2024/09/24/technology/crowdstrike-outage-congress.html
-
-**What Lebanon Looks Like After Israel’s Historic Airstrikes**\
-`The destruction from one of the most intense air raids in modern warfare stretches across southern Lebanon and in pockets of the east.`\
-https://nytimes.com/2024/09/24/world/middleeast/lebanon-damage-israel-airstrikes.html
-
-**Guardiola provides Rodri update: 'He will be out for a long time'**\
-`Pep Guardiola says Rodri will likely be out for a &#8220;long time&#8221; but explained Manchester City are still waiting on a definitive prognosis and time frame on his injury, which is expected in the coming days.`\
-https://nytimes.com/athletic/5790455/2024/09/24/rodri-injury-update-manchester-city/
-
-**Judge Rejects Trump’s Last-Minute Bid to Delay Assessment of Jan. 6 Case**\
-`Federal prosecutors can come ahead with a lengthy filing containing evidence backing their argument that the indictment of the former president can survive the Supreme Court’s immunity ruling.`\
-https://nytimes.com/2024/09/24/us/politics/trump-jan-6-judge-trial.html
 
