@@ -1,3 +1,15 @@
+**Dodgers takeaways: A big week ahead with postseason implications**\
+`Dave Roberts summed it up best: “I really haven’t seen a player as locked in like Shohei is, for as long as he’s been, in quite some time.” `\
+https://nytimes.com/athletic/5789068/2024/09/24/dodgers-shohei-ohtani-playoff-scenarios/
+
+**49ers minutia minute: Examining problems at linebacker, cornerback in loss to Rams**\
+`Brock Purdy might be the most prolific passer in the NFL right now if not for multiple drops from his wide receivers. `\
+https://nytimes.com/athletic/5789194/2024/09/24/49ers-snap-counts-loss-rams/
+
+**Rethinking ‘Checks and Balances’ for the A.I. Age**\
+`A project at Stanford points to the need for institutional innovation, especially in government, to increase the odds that A.I. enhances democracy.`\
+https://nytimes.com/2024/09/24/business/ai-democracy-government.html
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/09/24/us/trump-harris-election/heres-the-latest-on-the-presidential-race
