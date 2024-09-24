@@ -1,3 +1,7 @@
+**New York Resident Dies of Eastern Equine Encephalitis Infection**\
+`Gov. Kathy Hochul declared the mosquito-borne illness a public health threat after the first confirmed case in the state in nearly a decade resulted in a death.`\
+https://nytimes.com/2024/09/23/nyregion/eastern-equine-encephalitis-death.html
+
 **Corrections: Sept. 24, 2024**\
 `Corrections that appeared in print on Tuesday, Sept. 24, 2024.`\
 https://nytimes.com/2024/09/23/pageoneplus/corrections-sept-24-2024.html
