@@ -1,3 +1,7 @@
+**Trump Gets a Lift From Arizona Ticket-Splitters Backing a Democrat for Senate**\
+`Representative Ruben Gallego, the Democratic candidate for Senate, leads in this key contest, a New York Times/Siena College poll found, while Kamala Harris trails Donald Trump.`\
+https://nytimes.com/2024/09/23/us/politics/trump-gets-a-lift-from-arizona-ticket-splitters-backing-a-democrat-for-senate.html
+
 **Harris Is Set to Visit Border, Trying to Cut Into Trump’s Immigration Edge**\
 `During a trip to Arizona, Vice President Kamala Harris is expected to make her first visit to the southern border since becoming the Democratic nominee.`\
 https://nytimes.com/2024/09/23/us/politics/kamala-harris-border-arizona-trump.html
