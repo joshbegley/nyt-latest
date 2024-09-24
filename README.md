@@ -1,3 +1,15 @@
+**Dodgers takeaways: A big week ahead with postseason implications**\
+`Dave Roberts summed it up best: “I really haven’t seen a player as locked in like Shohei is, for as long as he’s been, in quite some time.” `\
+https://nytimes.com/athletic/5789068/2024/09/24/dodgers-shohei-ohtani-playoff-scenarios/
+
+**49ers minutia minute: Examining problems at linebacker, cornerback in loss to Rams**\
+`Brock Purdy might be the most prolific passer in the NFL right now if not for multiple drops from his wide receivers. `\
+https://nytimes.com/athletic/5789194/2024/09/24/49ers-snap-counts-loss-rams/
+
+**Rethinking ‘Checks and Balances’ for the A.I. Age**\
+`A project at Stanford points to the need for institutional innovation, especially in government, to increase the odds that A.I. enhances democracy.`\
+https://nytimes.com/2024/09/24/business/ai-democracy-government.html
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/09/24/us/trump-harris-election/heres-the-latest-on-the-presidential-race
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5790456/2024/09/24/luke-shaw-erik-ten-hag-mancheste
 **Breaking down Erling Haaland's 100 City goals: Back-post menace, one-v-ones and the occasional screamer**\
 `It has taken Haaland only 105 games to register a goals century of startling variety for Manchester City, as Thom Harris details`\
 https://nytimes.com/athletic/5788696/2024/09/24/erling-haaland-100-goal-breakdown/
-
-**Thank you, Oakland A’s**\
-`The Bash Brothers' arms, Rickey Henderson's legs and Dave Stewart stare combined to forge a life-long impact. `\
-https://nytimes.com/athletic/5786246/2024/09/24/thank-you-oakland-as/
-
-**10 bold Blues predictions for 2024-25: Thomas' point total, Neighbours' contract — and playoffs?**\
-`Will the Blues make the playoffs in 2024-25? They have an improved roster, but must earn it in a competitive Western Conference.`\
-https://nytimes.com/athletic/5788820/2024/09/24/blues-bold-predictions-thomas-neighbours/
-
-**In Rare Graft Case in Singapore, Former Minister Pleads Guilty**\
-`S. Iswaran, the former transport minister, had maintained his innocence on the corruption charge for months but on Tuesday pleaded guilty to five lesser offenses.`\
-https://nytimes.com/2024/09/24/world/asia/singapore-minister-corruption-case.html
 
