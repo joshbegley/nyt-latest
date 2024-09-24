@@ -23,7 +23,7 @@ https://nytimes.com/2024/09/24/us/politics/trump-harris-undecided-voters.html
 https://nytimes.com/2024/09/24/opinion/reading-kids-parents.html
 
 **Cilic makes ATP Tour history with Hangzhou Open win**\
-`It is the Croatian's 21st tour trophy.`\
+`The Croatian becomes the lowest-ranked player to win an ATP Tour title in the Open Era.`\
 https://nytimes.com/athletic/5790904/2024/09/24/cilic-lowest-ranked-atp-title-winners/
 
 **No Plates Allowed**\
