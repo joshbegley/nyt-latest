@@ -1,3 +1,7 @@
+**A New York congressman had an affair, then put his lover on the payroll.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/09/24/us/trump-harris-election/a-new-york-congressman-had-an-affair-then-put-his-lover-on-the-payroll
+
 **How Giants' Daniel Jones looked like completely different QB in win vs. Browns**\
 `Pressure rattled Jones in the Week 1 loss to the Vikings. But in Week 3, Jones thrived under duress. `\
 https://nytimes.com/athletic/5790125/2024/09/24/new-york-giants-daniel-jones-browns-win/
