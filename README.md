@@ -1,3 +1,7 @@
+**Four-time All-Star, Rockies veteran Charlie Blackmon announces retirement**\
+`Blackmon is one of the most prolific players to put on a Colorado uniform.`\
+https://nytimes.com/athletic/5789819/2024/09/23/rockies-charlie-blackmon-announces-retirement/
+
 **5.9 Magnitude Earthquake Off Japan Coast Triggers Tsunami Advisory**\
 `The earthquake occurred off the coast of Torishima Island, which is uninhabited, at 8:14 a.m. on Tuesday, according to the Japan Meteorological Agency.`\
 https://nytimes.com/2024/09/23/world/asia/japan-earthquake-tsunami.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/pageoneplus/quote-of-the-day-where-soccer-is-a-re
 **Justin Herbert's X-rays on high ankle sprain negative**\
 `Harbaugh was asked if Herbert was still wearing his walking boot Monday. “I do not know that,” he said.`\
 https://nytimes.com/athletic/5789683/2024/09/23/justin-herbert-ankle-injury-chargers/
-
-**A Church Where Mark Robinson Still Has Defenders**\
-`At a Black evangelical church in North Carolina, the candidate for governor still has support.`\
-https://nytimes.com/2024/09/23/us/politics/in-north-carolina-a-snapshot-of-mark-robinsons-enduring-support.html
 
