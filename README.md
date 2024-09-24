@@ -1,3 +1,23 @@
+**Until Saturday: Pac-12, Mountain West drama continues**\
+`Welcome to Until Saturday, the five-star college football newsletter: The Pac-12, Mountain West drama continues.`\
+https://nytimes.com/athletic/5791286/2024/09/24/pac-12-mountain-west-realignment-until-saturday/
+
+**Dick Moss, Who Helped Usher in Baseball Free Agency, Dies at 93**\
+`A labor lawyer, he was crucial to toppling a decades-old system that bound players to teams year after year, setting the stage for their rich contracts of today.`\
+https://nytimes.com/2024/09/24/sports/dick-moss-dead.html
+
+**CrowdStrike Executive Questioned by Lawmakers Over Global Tech Outage**\
+`Adam Meyers, a senior vice president of the cybersecurity firm, testified in front of a House Homeland Security subcommittee about the July mishap.`\
+https://nytimes.com/2024/09/24/technology/crowdstrike-outage-congress.html
+
+**What Lebanon Looks Like After Israel’s Historic Airstrikes**\
+`The destruction from one of the most intense air raids in modern warfare stretches across southern Lebanon and in pockets of the east.`\
+https://nytimes.com/2024/09/24/world/middleeast/lebanon-damage-israel-airstrikes.html
+
+**Guardiola provides Rodri update: 'He will be out for a long time'**\
+`Pep Guardiola says Rodri will likely be out for a &#8220;long time&#8221; but explained Manchester City are still waiting on a definitive prognosis and time frame on his injury, which is expected in the coming days.`\
+https://nytimes.com/athletic/5790455/2024/09/24/rodri-injury-update-manchester-city/
+
 **Judge Rejects Trump’s Last-Minute Bid to Delay Assessment of Jan. 6 Case**\
 `Federal prosecutors can come ahead with a lengthy filing containing evidence backing their argument that the indictment of the former president can survive the Supreme Court’s immunity ruling.`\
 https://nytimes.com/2024/09/24/us/politics/trump-jan-6-judge-trial.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/24/us/politics/house-blinken-contempt-afghanistan.ht
 **In Manhattan, Pedaling After Cycling Hustlers**\
 `Some New Yorkers found a way to beat Citi Bike’s algorithm. And one reporter found those New Yorkers.`\
 https://nytimes.com/2024/09/24/insider/in-manhattan-pedaling-after-cycling-hustlers.html
-
-**Wednesday Briefing: The U.N. General Assembly Convenes**\
-`Plus, news outlets experiment with WhatsApp.`\
-https://nytimes.com/2024/09/24/briefing/unga-lebanon-harris-trump.html
-
-**Zelensky Addresses the Security Council, Calling for Attention to Stay on Ukraine**\
-`“Russia can only be forced into peace.” President Volodymyr Zelensky of Ukraine urged the Council members to sustain their backing for his country’s resistance to Russia’s full-scale invasion.`\
-https://nytimes.com/2024/09/24/world/europe/zelensky-un-security-council-ukraine-war.html
-
-**Israel achieved short-term aims in a week of attacks on Hezbollah, officials say, but the end goal is unclear.**\
-`By Ronen Bergman`\
-https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/israel-achieved-short-term-aims-in-a-week-of-attacks-on-hezbollah-officials-say-but-the-end-goal-is-unclear
-
-**David Banks, New York City’s Schools Chancellor, to Resign**\
-`The resignation of Mr. Banks, planned for the end of the year, comes amid a flurry of federal investigations into Mayor Eric Adams and his administration.`\
-https://nytimes.com/2024/09/24/nyregion/david-banks-resigns-nyc-schools-chancellor.html
-
-**NFL best bets Week 4: Picking the Jets to stay hot and a pair of underdogs to win**\
-`Austin Mock has a loaded betting slip for NFL Week 4, including picking a pair of underdogs to win.`\
-https://nytimes.com/athletic/5791465/2024/09/24/nfl-best-bets-week-4-jets-bills-buccaneers/
 
