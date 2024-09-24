@@ -1,3 +1,7 @@
+**More Money Urgently Needed to Reach Younger and Minority Voters, Organizers Warn Harris Donors**\
+`A new memo, released by two of the leading Democratic groups working in battleground states, lays out worrying signs for Vice President Kamala Harris among younger voters and voters of color.`\
+https://nytimes.com/2024/09/24/us/politics/young-minority-voters-harris-campaign.html
+
 **Hemmed In by the Hard Right, Johnson Again Turns to Democrats for Votes**\
 `The House speaker is trying to get a short-term spending agreement passed despite opposition from some conservative members of his own party.`\
 https://nytimes.com/2024/09/24/us/politics/johnson-spending-democrats-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/17/opinion/new-york-outdoor-dining-loss.html
 **The U.S. nixes the security detail for Haiti’s president, then restores it.**\
 `By Frances Robles`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/the-us-nixes-the-security-detail-for-haitis-president-then-restores-it
-
-**What are Your Unusual Holiday Traditions?**\
-`For many people, celebrating the winter holidays means marking it in eccentric and sometimes downright inexplicable ways.`\
-https://nytimes.com/2024/09/24/style/unusual-holiday-traditions-callout.html
 
