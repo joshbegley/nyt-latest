@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
+
 **Word of the Day: contrive**\
 `This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/24/learning/word-of-the-day-contrive.html
