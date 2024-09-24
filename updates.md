@@ -1,3 +1,7 @@
+**NFL MVP odds: Josh Allen jumps Mahomes as new favorite, Aaron Rodgers rises**\
+`Josh Allen's Monday night performance vaulted him over Patrick Mahomes to the top of the MVP odds. `\
+https://nytimes.com/athletic/5790893/2024/09/24/nfl-mvp-odds-josh-allen-patrick-mahomes-aaron-rodgers/
+
 **More Money Urgently Needed to Reach Younger and Minority Voters, Organizers Warn Harris Donors**\
 `A new memo, released by two of the leading Democratic groups working in battleground states, lays out worrying signs for Vice President Kamala Harris among younger voters and voters of color.`\
 https://nytimes.com/2024/09/24/us/politics/young-minority-voters-harris-campaign.html
