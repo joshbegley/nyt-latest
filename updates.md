@@ -1,3 +1,16 @@
+**Daniels, Commanders drop Bengals to 0-3 after 38-33 shootout**\
+`Monday's game marked the first contest since 1940 without a single punt or takeaway. `\
+https://nytimes.com/athletic/5789958/2024/09/23/bengals-commanders-result-takeaways/
+
+** A Whisky That Sustains the Journey of Water**\
+`A global leader in spirits manufacturing is on a mission to share its craftsmanship and environmental stewardship with its customers, partners and the world at large. 
+`\
+https://nytimes.com/paidpost/suntory/-a-whisky-that-sustains-the-journey-of-water.html
+
+**In a wide-open wild-card race, the Red Sox wasted a chance to be in the mix**\
+`An American League wild-card spot was there for the taking, but the Red Sox didn’t make enough big moves at the deadline to take advantage.`\
+https://nytimes.com/athletic/5790043/2024/09/23/red-sox-postseason-missed-opportunities/
+
 **Josh Allen, Bills dominate Jags in 47-10 throttling: Takeaways**\
 `For the 12th time in franchise history the Bills win start the season 3-0.`\
 https://nytimes.com/athletic/5789893/2024/09/23/bills-jaguars-result-takeaways-mnf/

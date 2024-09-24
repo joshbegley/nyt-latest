@@ -1,3 +1,16 @@
+**Daniels, Commanders drop Bengals to 0-3 after 38-33 shootout**\
+`Monday's game marked the first contest since 1940 without a single punt or takeaway. `\
+https://nytimes.com/athletic/5789958/2024/09/23/bengals-commanders-result-takeaways/
+
+** A Whisky That Sustains the Journey of Water**\
+`A global leader in spirits manufacturing is on a mission to share its craftsmanship and environmental stewardship with its customers, partners and the world at large. 
+`\
+https://nytimes.com/paidpost/suntory/-a-whisky-that-sustains-the-journey-of-water.html
+
+**In a wide-open wild-card race, the Red Sox wasted a chance to be in the mix**\
+`An American League wild-card spot was there for the taking, but the Red Sox didn’t make enough big moves at the deadline to take advantage.`\
+https://nytimes.com/athletic/5790043/2024/09/23/red-sox-postseason-missed-opportunities/
+
 **Josh Allen, Bills dominate Jags in 47-10 throttling: Takeaways**\
 `For the 12th time in franchise history the Bills win start the season 3-0.`\
 https://nytimes.com/athletic/5789893/2024/09/23/bills-jaguars-result-takeaways-mnf/
@@ -25,16 +38,4 @@ https://nytimes.com/video/world/middleeast/100000009714893/lebanon-israel-airstr
 **Oklahoma switches starting QB to Michael Hawkins after Tennessee drubbing**\
 `Arnold, a former-five star recruit, was benched for Hawkins in the Sooners' 25-15 loss against Tennessee.`\
 https://nytimes.com/athletic/5789908/2024/09/23/oklahoma-quarterback-michael-hawkins-jackson-arnold-starter/
-
-**Elon Musk Hails Italy’s Leader at Awards Ceremony**\
-`Mr. Musk described Prime Minister Giorgia Meloni as “authentic, honest and thoughtful.” She used her Atlantic Council spotlight to defend Western values.`\
-https://nytimes.com/2024/09/23/business/elon-musk-giorgia-meloni.html
-
-**Jets sign Cole Perfetti to 2-year contract**\
-`Perfetti missed the first five days of training camp as negotiations between the Jets and RFA forward dragged on.`\
-https://nytimes.com/athletic/5789860/2024/09/23/winnipeg-jets-cole-perfetti-contract/
-
-**The mindset that carried the Phillies to their first NL East title in 13 years**\
-`The Phillies' identity formed over two years as an underdog. They wielded it in a different way this season en route to a division crown.`\
-https://nytimes.com/athletic/5785322/2024/09/23/phillies-nl-east-title-2024-season/
 
