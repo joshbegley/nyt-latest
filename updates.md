@@ -1,3 +1,7 @@
+**Two fans handed football banning orders over Man United vs Liverpool tragedy chanting**\
+`Two more supporters have been handed football banning orders over tragedy chanting relating to Manchester United vs Liverpool fixtures.`\
+https://nytimes.com/athletic/5790725/2024/09/24/manchester-united-liverpool-tragedy-chanting-bans/
+
 **As Lebanon Reels From Israeli Attacks, the Future Is Murky for a Wounded Hezbollah**\
 `Some experts said that Israel’s onslaught had left Hezbollah in disarray. Others noted its large weapons stockpiles and history of adapting to battle Israel’s much more high-tech military.`\
 https://nytimes.com/2024/09/24/world/middleeast/israel-lebanon-hezbollah.html

@@ -1,3 +1,7 @@
+**Two fans handed football banning orders over Man United vs Liverpool tragedy chanting**\
+`Two more supporters have been handed football banning orders over tragedy chanting relating to Manchester United vs Liverpool fixtures.`\
+https://nytimes.com/athletic/5790725/2024/09/24/manchester-united-liverpool-tragedy-chanting-bans/
+
 **As Lebanon Reels From Israeli Attacks, the Future Is Murky for a Wounded Hezbollah**\
 `Some experts said that Israel’s onslaught had left Hezbollah in disarray. Others noted its large weapons stockpiles and history of adapting to battle Israel’s much more high-tech military.`\
 https://nytimes.com/2024/09/24/world/middleeast/israel-lebanon-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5790545/2024/09/24/everton-takeover-friedkin-hope/
 **Is Visa a Monopoly?**\
 `The Justice Department is expected to sue the global payments giant as soon as Tuesday, accusing the company of stifling competition.`\
 https://nytimes.com/2024/09/24/business/dealbook/visa-antitrust-biden-justice-department.html
-
-**Dodgers takeaways: A big week ahead with postseason implications**\
-`Dave Roberts summed it up best: “I really haven’t seen a player as locked in like Shohei is, for as long as he’s been, in quite some time.” `\
-https://nytimes.com/athletic/5789068/2024/09/24/dodgers-shohei-ohtani-playoff-scenarios/
 
