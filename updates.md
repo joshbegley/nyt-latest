@@ -1,3 +1,15 @@
+**Report on Antisemitism at CUNY Calls for Changes Across the System**\
+`The report, commissioned by New York’s governor, found that the city’s university system was ill-equipped to handle rising antisemitism. But it also said the problem was not widespread.`\
+https://nytimes.com/2024/09/24/us/cuny-antisemitism-report.html
+
+**Inside a Kamala Harris Ad Promoting Her Economic Plans**\
+`Polls show voters want to know more about what she would do. This ad, running across the battlegrounds, gives answers.`\
+https://nytimes.com/2024/09/24/us/politics/kamala-harris-ad-economy.html
+
+**Strange Cellmates in a Brooklyn Jail: Sean Combs and Sam Bankman-Fried**\
+`Mr. Combs is sleeping in the same dormitory-style room as Mr. Bankman-Fried, the crypto mogul who was convicted of fraud.`\
+https://nytimes.com/2024/09/24/arts/music/sean-combs-sam-bankman-fried-jail.html
+
 **Guterres warns that a ‘powder keg risks engulfing the world’ as he urges world leaders to take action.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/guterres-warns-that-a-powder-keg-risks-engulfing-the-world-as-he-urges-world-leaders-to-take-action
