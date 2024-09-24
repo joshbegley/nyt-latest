@@ -23,7 +23,7 @@ https://nytimes.com/2024/09/24/world/europe/zelensky-un-security-council-ukraine
 https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/israel-achieved-short-term-aims-in-a-week-of-attacks-on-hezbollah-officials-say-but-the-end-goal-is-unclear
 
 **David Banks, New York City’s Schools Chancellor, to Resign**\
-`The resignation of Mr. Banks, planned for the end of the year, comes amid a flurry of federal investigations surrounding the administration of Mayor Eric Adams.`\
+`The resignation of Mr. Banks, planned for the end of the year, comes amid a flurry of federal investigations into Mayor Eric Adams and his administration.`\
 https://nytimes.com/2024/09/24/nyregion/david-banks-resigns-nyc-schools-chancellor.html
 
 **NFL best bets Week 4: Picking the Jets to stay hot and a pair of underdogs to win**\
