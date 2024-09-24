@@ -1,3 +1,7 @@
+**Tragedy, tactics, glory and always talking - Erik ten Hag, the FC Twente years**\
+`"His heart is Twente, and it will always be," friends and team-mates of Erik ten Hag tell stories of the Manchester United manager's past`\
+https://nytimes.com/athletic/5755314/2024/09/24/ten-hag-fc-twente-years/
+
 **China Cuts Interest Rates and Mortgage Down Payments**\
 `The country’s central bank also freed commercial banks to lend more money in a package of moves aimed at rekindling growth in a stagnant economy.`\
 https://nytimes.com/2024/09/24/business/china-cuts-mortgage-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5789137/2024/09/24/mlb-odds-best-bets-projections-s
 **Fantasy football Week 4 waiver wire: Streamers, Jauan Jennings, Emanuel Wilson and more**\
 `Jauan Jennings is a tempting waiver target, particularly if Deebo Samuel and George Kittle remain out of the 49ers' lineup.`\
 https://nytimes.com/athletic/5788846/2024/09/24/fantasy-football-week-4-waiver-wire-streamers-jauan-jennings-emanuel-wilson-and-more/
-
-**China Is Striking Deals to Cement Its Role as Asia’s Trade Hub**\
-`Beijing’s leaders are working with regional neighbors on the country’s western, northern and southern borders to develop new rail and sea links.`\
-https://nytimes.com/2024/09/24/business/china-trade-russia-north-korea.html
 

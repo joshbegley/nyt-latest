@@ -1,3 +1,7 @@
+**'Mario Jr', 'Virgil': How do Premier League shirt names work?**\
+`Premier League shirts used to not have names. Now players can have surnames and even nicknames on their kits`\
+https://nytimes.com/athletic/5776249/2024/09/24/premier-league-shirt-names-surnames-nicknames/
+
 **China Cuts Interest Rates and Mortgage Down Payments**\
 `The country’s central bank also freed commercial banks to lend more money in a package of moves aimed at rekindling growth in a stagnant economy.`\
 https://nytimes.com/2024/09/24/business/china-cuts-mortgage-rates.html
