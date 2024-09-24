@@ -1,41 +1,40 @@
-**Astros' Yordan Alvarez has knee sprain, will miss Mariners series**\
-`An X-ray taken on Sunday afternoon revealed "inflammation," Astros manager Joe Espada said.`\
-https://nytimes.com/athletic/5790082/2024/09/23/astros-yordan-alvarez-knee-injury-update/
+**China Cuts Interest Rates and Mortgage Down Payments**\
+`The country’s central bank also freed commercial banks to lend more money in a package of moves aimed at rekindling growth in a stagnant economy.`\
+https://nytimes.com/2024/09/24/business/china-cuts-mortgage-rates.html
 
-**Blue Jays takeaways: Vladimir Guerrero Jr. chasing 200, Danny Jansen returns with Red Sox**\
-`Guerrero's play has been the brightest spot in this disappointing season.`\
-https://nytimes.com/athletic/5790028/2024/09/23/blue-jays-vladimir-guerrero-jr-200-hits-chase/
+**Chelsea's newest hire Gupta, one of the most highly-regarded analytical minds in the NBA**\
+`Timberwolves executive vice president of basketball operations Sachin Gupta is set to join Chelsea in the near future`\
+https://nytimes.com/athletic/5788693/2024/09/24/sachin-gupta-chelsea-profile/
 
-**Trump Tells Women That They Won’t ‘Be Thinking About Abortion’**\
-`“You will be protected, and I will be your protector,” said former President Donald J. Trump. Polls have shown he is struggling to cultivate support among women, for whom abortion rights remain a top issue.`\
-https://nytimes.com/2024/09/23/us/politics/trump-women-abortion.html
+**Arsenal's turnaround: How Mikel Arteta transformed them from soft touch to streetwise**\
+`Even if certain moments can be handled better, Arsenal are no longer easy to play against — their manager has been behind it`\
+https://nytimes.com/athletic/5787860/2024/09/24/arsenal-arteta-dark-arts/
 
-**Daniels, Commanders drop Bengals to 0-3 after 38-33 shootout**\
-`Monday's game marked the first contest since 1940 without a single punt or takeaway. `\
-https://nytimes.com/athletic/5789958/2024/09/23/bengals-commanders-result-takeaways/
+**Is there a trend of Premier League head coaches getting younger?**\
+`At 31, Fabian Hurzeler is the Premier League's youngest ever permanent manager/head coach. But is he an anomaly or part of a deeper trend?`\
+https://nytimes.com/athletic/5779649/2024/09/24/premier-league-managers-younger/
 
-** A Whisky That Sustains the Journey of Water**\
-`A global leader in spirits manufacturing is on a mission to share its craftsmanship and environmental stewardship with its customers, partners and the world at large. 
-`\
-https://nytimes.com/paidpost/suntory/-a-whisky-that-sustains-the-journey-of-water.html
+**In Lebanon’s Capital, Israel’s Strikes Stoke Fears of a Full-On War**\
+`With Monday’s attacks across southern Lebanon, the prospect of the escalating conflict enveloping the city has suddenly become real for many Beirut residents.`\
+https://nytimes.com/2024/09/24/world/middleeast/lebanon-mood-israel-strikes.html
 
-**In a wide-open wild-card race, the Red Sox wasted a chance to be in the mix**\
-`An American League wild-card spot was there for the taking, but the Red Sox didn’t make enough big moves at the deadline to take advantage.`\
-https://nytimes.com/athletic/5790043/2024/09/23/red-sox-postseason-missed-opportunities/
+**The U.S. News College Rankings Are Out. Cue the Rage and Obsession.**\
+`Every year, U.S. News & World Report publishes rankings that often change very little, though they draw attention and frustration from universities and applicants.`\
+https://nytimes.com/2024/09/24/us/us-news-rankings-colleges.html
 
-**Josh Allen, Bills dominate Jags in 47-10 throttling: Takeaways**\
-`For the 12th time in franchise history, the Bills start the season 3-0.`\
-https://nytimes.com/athletic/5789893/2024/09/23/bills-jaguars-result-takeaways-mnf/
+**Fantasy football Week 4 waiver wire: Streamers, Jauan Jennings, Emanuel Wilson and more**\
+`Jauan Jennings is a tempting waiver target, particularly if Deebo Samuel and George Kittle remain out of the 49ers' lineup.`\
+https://nytimes.com/athletic/5788846/2024/09/24/fantasy-football-week-4-waiver-wire-streamers-jauan-jennings-emanuel-wilson-and-more/
 
-**Trump Gets a Lift From Arizona Ticket-Splitters Backing a Democrat for Senate**\
-`Representative Ruben Gallego, the Democratic candidate for Senate, leads in this key contest, a New York Times/Siena College poll found, while Kamala Harris trails Donald Trump.`\
-https://nytimes.com/2024/09/23/us/politics/trump-gets-a-lift-from-arizona-ticket-splitters-backing-a-democrat-for-senate.html
+**Tuesday's MLB best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
+https://nytimes.com/athletic/5789137/2024/09/24/mlb-odds-best-bets-projections-september-24/
 
-**Harris Is Set to Visit Border, Trying to Cut Into Trump’s Immigration Edge**\
-`During a trip to Arizona, Vice President Kamala Harris is expected to make her first visit to the southern border since becoming the Democratic nominee.`\
-https://nytimes.com/2024/09/23/us/politics/kamala-harris-border-arizona-trump.html
+**China Is Striking Deals to Cement Its Role as Asia’s Trade Hub**\
+`Beijing’s leaders are working with regional neighbors on the country’s western, northern and southern borders to develop new rail and sea links.`\
+https://nytimes.com/2024/09/24/business/china-trade-russia-north-korea.html
 
-**Full Time: NWSL playoff picture taking shape**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/5789969/2024/09/23/nwsl-playoffs-gotham-white-house-full-time/
+**Spurned by Social Media, Publishers Chase Readers on WhatsApp**\
+`News outlets are experimenting with a feature in the world’s most popular messaging app that allows them to send links and headlines directly to followers.`\
+https://nytimes.com/2024/09/24/business/media/whatsapp-news-outlets.html
 
