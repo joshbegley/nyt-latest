@@ -1,3 +1,15 @@
+**Tuesday Briefing: Israeli Airstrikes in Lebanon Kill Hundreds**\
+`Plus, vintage soccer jerseys and the memories they preserve.`\
+https://nytimes.com/2024/09/24/briefing/hezbollah-israel-trump-polls-united-nations-biden.html
+
+**For Aaron Nola and NL East-winning Phillies, a reward for the grind after so many years**\
+`He is not perfect. He is often maddening. But he is always there. He is consistent. He works. Nola had to be the one on the mound Monday. `\
+https://nytimes.com/athletic/5790110/2024/09/24/aaron-nola-phillies-nl-east-title/
+
+**Why Rio Ngumoha is already the talk of Liverpool's academy**\
+`The 16-year-old has been tracked by Manchester United and Manchester City, so how did Liverpool manage to sign him from Chelsea?`\
+https://nytimes.com/athletic/5767200/2024/09/24/rio-ngumoha-liverpool-academy/
+
 **How should Nottingham Forest line up without talisman Morgan Gibbs-White?**\
 `Forest will be without their most creative player against Fulham - here how will Nuno Espirito Santo could shuffle his pack`\
 https://nytimes.com/athletic/5788375/2024/09/24/nottingham-forest-gibbs-white-formation-fulham/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5788693/2024/09/24/sachin-gupta-chelsea-profile/
 **Arsenal's turnaround: How Mikel Arteta transformed them from soft touch to streetwise**\
 `Even if certain moments can be handled better, Arsenal are no longer easy to play against — their manager has been behind it`\
 https://nytimes.com/athletic/5787860/2024/09/24/arsenal-arteta-dark-arts/
-
-**Is there a trend of Premier League head coaches getting younger?**\
-`At 31, Fabian Hurzeler is the Premier League's youngest ever permanent manager/head coach. But is he an anomaly or part of a deeper trend?`\
-https://nytimes.com/athletic/5779649/2024/09/24/premier-league-managers-younger/
-
-**'Mario Jr', 'Virgil': How do Premier League shirt names work?**\
-`Premier League shirts used to not have names. Now players can have surnames and even nicknames on their kits`\
-https://nytimes.com/athletic/5776249/2024/09/24/premier-league-shirt-names-surnames-nicknames/
-
-**In Lebanon’s Capital, Israel’s Strikes Stoke Fears of a Full-On War**\
-`With Monday’s attacks across southern Lebanon, the prospect of the escalating conflict enveloping the city has suddenly become real for many Beirut residents.`\
-https://nytimes.com/2024/09/24/world/middleeast/lebanon-mood-israel-strikes.html
 

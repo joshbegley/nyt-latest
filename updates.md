@@ -1,3 +1,15 @@
+**Tuesday Briefing: Israeli Airstrikes in Lebanon Kill Hundreds**\
+`Plus, vintage soccer jerseys and the memories they preserve.`\
+https://nytimes.com/2024/09/24/briefing/hezbollah-israel-trump-polls-united-nations-biden.html
+
+**For Aaron Nola and NL East-winning Phillies, a reward for the grind after so many years**\
+`He is not perfect. He is often maddening. But he is always there. He is consistent. He works. Nola had to be the one on the mound Monday. `\
+https://nytimes.com/athletic/5790110/2024/09/24/aaron-nola-phillies-nl-east-title/
+
+**Why Rio Ngumoha is already the talk of Liverpool's academy**\
+`The 16-year-old has been tracked by Manchester United and Manchester City, so how did Liverpool manage to sign him from Chelsea?`\
+https://nytimes.com/athletic/5767200/2024/09/24/rio-ngumoha-liverpool-academy/
+
 **How should Nottingham Forest line up without talisman Morgan Gibbs-White?**\
 `Forest will be without their most creative player against Fulham - here how will Nuno Espirito Santo could shuffle his pack`\
 https://nytimes.com/athletic/5788375/2024/09/24/nottingham-forest-gibbs-white-formation-fulham/
