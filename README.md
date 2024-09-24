@@ -1,3 +1,11 @@
+**U.K.’s Starmer Attempts to Sprinkle Some Harris-Style ‘Joy’ Into Speech**\
+`After a somewhat bumpy start to his premiership, Keir Starmer tried to reclaim the narrative, acknowledging voters’ desire for hope and promising change was on the way.`\
+https://nytimes.com/2024/09/24/world/europe/uks-starmer-attempts-to-sprinkle-some-harris-style-joy-into-speech.html
+
+**City 16-year-old Braithwaite set for Carabao Cup start**\
+`Manchester City teenager Kaden Braithwaite will become the third-youngest player in the club&#8217;s history when he makes his first-team debut later on Tuesday evening.`\
+https://nytimes.com/athletic/5791346/2024/09/24/kaden-braithwaite-manchester-city-16-year-old-kaden-braithwaite-set-for-carabao-cup/
+
 **Steelers preparing Justin Fields to start again**\
 `Tomlin: "I want Justin (Fields) singularly focused on starting for us and doing what's required to be ready to do that.”`\
 https://nytimes.com/athletic/5791227/2024/09/24/steelers-justin-fields-russell-wilson-status/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5791079/2024/09/24/brett-favre-parkinsons-diagnosis
 **Desert Racers Demolish Art Carved by Ancient People in Chile**\
 `Preservationists say governments at all levels have failed to prevent authorized and illegal off-road racers from driving through giant figures of animals, humans and objects.`\
 https://nytimes.com/2024/09/24/science/geoglyphs-atacama-desert-rallies.html
-
-**Russia Signs Satellite Deal With Three West African Military Juntas**\
-`The partnership between Russia’s space agency and the governments of Burkina Faso, Mali and Niger deepens these countries’ turn toward the Kremlin in their effort to fight off Islamist insurgencies.`\
-https://nytimes.com/2024/09/24/world/africa/russia-satellite-west-africa.html
-
-**‘End This War’: Biden Calls for Gaza Cease-fire in Final U.N. Speech**\
-`President Biden said the families of hostages in Gaza and innocent civilians in the enclave were “going through hell” and urged Israel and Hamas to sign on to a cease-fire deal.`\
-https://nytimes.com/video/world/middleeast/100000009717000/biden-cease-fire-un-speech.html
 
