@@ -1,3 +1,15 @@
+**T.I. and Tiny Awarded $71 Million Over L.O.L. Dolls’ Likeness to R&B Group**\
+`A jury found that the toy giant MGA Entertainment had violated the musicians’ intellectual property rights with its L.O.L. Surprise! O.M.G. dolls.`\
+https://nytimes.com/2024/09/24/business/omg-dolls-ti-tiny.html
+
+**How to Watch the Vance-Walz Vice-Presidential Debate**\
+`CBS News will broadcast the 90-minute debate, starting at 9 p.m. Eastern on Oct. 1. The Times will stream it alongside real-time commentary and analysis from reporters.`\
+https://nytimes.com/2024/09/24/us/politics/watch-vance-walz-vp-debate.html
+
+**Behind Kamala Harris’s Rise: Silicon Valley’s Wealthiest Woman**\
+`The alliance between Kamala Harris and Laurene Powell Jobs is a genuine friendship that has thrust the press-shy billionaire philanthropist into the political spotlight.`\
+https://nytimes.com/2024/09/24/us/politics/kamala-harris-laurene-powell-jobs.html
+
 **Live Q&A: Week 4 fantasy football add/drop chat with Jay Felicio, Tuesday 9/24 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5788657/2024/09/24/live-qa-week-4-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-9-24-at-5-p-m-et/
