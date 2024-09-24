@@ -1,3 +1,7 @@
+**As U.N. Meets, Israel Pounds Targets in Lebanon, Sending Civilians Fleeing**\
+`Israel said it was striking Hezbollah targets with “high intensity” to keep the campaign as short as possible, as the Lebanese militants maintained their own cross-border barrage.`\
+https://nytimes.com/2024/09/24/world/middleeast/israel-hezbollah-lebanon.html
+
 **In his first U.N. speech, Iran’s president aimed to defuse tensions with the West while criticizing Israel.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/in-his-first-un-speech-irans-president-aimed-to-defuse-tensions-with-the-west-while-criticizing-israel
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5790455/2024/09/24/rodri-injury-update-manchester-c
 **Judge Rejects Trump’s Last-Minute Bid to Delay Assessment of Jan. 6 Case**\
 `Federal prosecutors can come ahead with a lengthy filing containing evidence backing their argument that the indictment of the former president can survive the Supreme Court’s immunity ruling.`\
 https://nytimes.com/2024/09/24/us/politics/trump-jan-6-judge-trial.html
-
-**Woman Accuses Sean Combs of Raping Her in Filmed Attack**\
-`In a new lawsuit, the woman said Mr. Combs and his bodyguard drugged and assaulted her in his recording studio in 2001.`\
-https://nytimes.com/2024/09/24/arts/music/sean-combs-thalia-graves-lawsuit.html
 

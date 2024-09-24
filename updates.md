@@ -1,3 +1,7 @@
+**As U.N. Meets, Israel Pounds Targets in Lebanon, Sending Civilians Fleeing**\
+`Israel said it was striking Hezbollah targets with “high intensity” to keep the campaign as short as possible, as the Lebanese militants maintained their own cross-border barrage.`\
+https://nytimes.com/2024/09/24/world/middleeast/israel-hezbollah-lebanon.html
+
 **In his first U.N. speech, Iran’s president aimed to defuse tensions with the West while criticizing Israel.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/in-his-first-un-speech-irans-president-aimed-to-defuse-tensions-with-the-west-while-criticizing-israel
