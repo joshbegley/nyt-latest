@@ -1,3 +1,15 @@
+**Blue Jays takeaways: Vladimir Guerrero Jr. chasing 200, Danny Jansen returns with Red Sox**\
+`Guerrero's play has been the brightest spot in this disappointing season.`\
+https://nytimes.com/athletic/5790028/2024/09/23/blue-jays-vladimir-guerrero-jr-200-hits-chase/
+
+**Trump Tells Women That They ‘Won’t Think About Abortion’**\
+`“You will be protected, and I will be your protector,” said former President Donald J. Trump. Polls have shown he is struggling to cultivate support among women, for whom abortion rights remain a top issue.`\
+https://nytimes.com/2024/09/23/us/politics/trump-women-abortion.html
+
+**Josh Allen, Bills dominate Jags in 47-10 throttling: Takeaways**\
+`For the 12th time in franchise history, the Bills start the season 3-0.`\
+https://nytimes.com/athletic/5789893/2024/09/23/bills-jaguars-result-takeaways-mnf/
+
 **Daniels, Commanders drop Bengals to 0-3 after 38-33 shootout**\
 `Monday's game marked the first contest since 1940 without a single punt or takeaway. `\
 https://nytimes.com/athletic/5789958/2024/09/23/bengals-commanders-result-takeaways/

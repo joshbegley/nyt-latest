@@ -1,3 +1,11 @@
+**Blue Jays takeaways: Vladimir Guerrero Jr. chasing 200, Danny Jansen returns with Red Sox**\
+`Guerrero's play has been the brightest spot in this disappointing season.`\
+https://nytimes.com/athletic/5790028/2024/09/23/blue-jays-vladimir-guerrero-jr-200-hits-chase/
+
+**Trump Tells Women That They ‘Won’t Think About Abortion’**\
+`“You will be protected, and I will be your protector,” said former President Donald J. Trump. Polls have shown he is struggling to cultivate support among women, for whom abortion rights remain a top issue.`\
+https://nytimes.com/2024/09/23/us/politics/trump-women-abortion.html
+
 **Daniels, Commanders drop Bengals to 0-3 after 38-33 shootout**\
 `Monday's game marked the first contest since 1940 without a single punt or takeaway. `\
 https://nytimes.com/athletic/5789958/2024/09/23/bengals-commanders-result-takeaways/
@@ -12,7 +20,7 @@ https://nytimes.com/paidpost/suntory/-a-whisky-that-sustains-the-journey-of-wate
 https://nytimes.com/athletic/5790043/2024/09/23/red-sox-postseason-missed-opportunities/
 
 **Josh Allen, Bills dominate Jags in 47-10 throttling: Takeaways**\
-`For the 12th time in franchise history the Bills win start the season 3-0.`\
+`For the 12th time in franchise history, the Bills start the season 3-0.`\
 https://nytimes.com/athletic/5789893/2024/09/23/bills-jaguars-result-takeaways-mnf/
 
 **Trump Gets a Lift From Arizona Ticket-Splitters Backing a Democrat for Senate**\
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5789969/2024/09/23/nwsl-playoffs-gotham-white-house
 **[Not My Typo]**\
 `Kevin L. Shellito’s debut Times puzzle is hot off the presses.`\
 https://nytimes.com/2024/09/23/crosswords/daily-puzzle-2024-09-24.html
-
-**Thousands of Lebanese Are Displaced Amid Israeli Strikes**\
-`Amal Mohamed Zayyat, a resident of southern Lebanon, sought shelter in Beirut after Israel stepped up its attacks against what it said were Hezbollah targets.`\
-https://nytimes.com/video/world/middleeast/100000009714893/lebanon-israel-airstrikes-displaced.html
-
-**Oklahoma switches starting QB to Michael Hawkins after Tennessee drubbing**\
-`Arnold, a former-five star recruit, was benched for Hawkins in the Sooners' 25-15 loss against Tennessee.`\
-https://nytimes.com/athletic/5789908/2024/09/23/oklahoma-quarterback-michael-hawkins-jackson-arnold-starter/
 
