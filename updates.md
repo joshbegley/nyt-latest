@@ -1,3 +1,11 @@
+**Zelensky Says Western Allies Must Allow Ukrainian Strikes Deep Into Russia**\
+`The leaders of Ukraine and Denmark said allied nations must lift restrictions on arms, increase their production and help Ukraine build weapons inside the country.`\
+https://nytimes.com/2024/09/24/us/politics/zelensky-ukraine-russia-strikes.html
+
+**‘We Will Dance Again’ Review: Remembering Oct. 7**\
+`In this documentary by Yariv Mozer, Israelis who attended the Nova music festival near the Gaza border describe how they survived the attack last year.`\
+https://nytimes.com/2024/09/24/movies/we-will-dance-again-review.html
+
 **State Police in N.J. ‘Weaponized’ Disciplinary Investigations, Reports Find**\
 `The state’s attorney general has seized control of the agency’s human resources and equal opportunity functions after investigations into racial and gender bias.`\
 https://nytimes.com/2024/09/24/nyregion/new-jersey-internal-affairs-investigations-attorney-general.html
