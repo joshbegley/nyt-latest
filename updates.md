@@ -1,3 +1,7 @@
+**Stephen Colbert Is Tickled by Trump’s Vow to Make Women Great Again**\
+`“I‘m not sure if he’s running for president or marketing a new brand of tampon,” Colbert said on Monday.`\
+https://nytimes.com/2024/09/24/arts/television/stephen-colbert-trump-women.html
+
 **Here are the latest developments.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
