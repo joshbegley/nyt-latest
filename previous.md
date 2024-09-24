@@ -1,3 +1,7 @@
+**Britain’s National Theater Director Takes a Final Bow**\
+`As Rufus Norris prepares to leave the London playhouse he has led since 2015, he reflects on his quest to make the theater represent the audience it serves.`\
+https://nytimes.com/2024/09/24/theater/rufus-norris-national-theater.html
+
 **NHL Player Tiers 2024-25: Connor McDavid levels up again, goalies join the discussion**\
 `Our ever-growing list of the top 150 players in the NHL separated into five groups: MVPs, franchise players, all-stars, stars and support. `\
 https://nytimes.com/athletic/5750903/2024/09/24/nhl-best-players-list-2024-2025-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5789347/2024/09/24/flyers-depth-chart-lineup-roster
 **‘We’ve been through a lot’: Diamondbacks closing in on return to postseason**\
 `Arizona is going after consecutive playoff berths for just the second time in franchise history`\
 https://nytimes.com/athletic/5790177/2024/09/24/diamondbacks-postseason-chances-seeding/
-
-**Brugler's NFL Draft Film Room: Kaleb Johnson, Josaiah Stewart, others who starred in Week 4**\
-`Several Big Ten prospects played well over the weekend, as did a talented Ole Miss wide receiver. `\
-https://nytimes.com/athletic/5789033/2024/09/24/nfl-draft-2025-kaleb-johnson-josaiah-stewart-scouting/
 
