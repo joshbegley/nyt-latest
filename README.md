@@ -1,3 +1,7 @@
+**5.9 Magnitude Earthquake Off Japan Coast Triggers Tsunami Advisory**\
+`The earthquake occurred off the coast of Torishima Island, which is uninhabited, at 8:14 a.m. on Tuesday, according to the Japan Meteorological Agency.`\
+https://nytimes.com/2024/09/23/world/asia/japan-earthquake-tsunami.html
+
 **After Just a Week, the N.Y.P.D. Commissioner Faces a Crisis of His Own**\
 `Thomas G. Donlon, brought in to bring stability to the Police Department when his predecessor resigned, had his homes searched by federal agents.`\
 https://nytimes.com/2024/09/23/nyregion/thomas-donlon-nypd-home-search.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5789683/2024/09/23/justin-herbert-ankle-injury-char
 **A Church Where Mark Robinson Still Has Defenders**\
 `At a Black evangelical church in North Carolina, the candidate for governor still has support.`\
 https://nytimes.com/2024/09/23/us/politics/in-north-carolina-a-snapshot-of-mark-robinsons-enduring-support.html
-
-**Visa Faces an Antitrust Lawsuit by the Justice Dept.**\
-`The agency plans to argue that the company illegally penalizes customers that try to use rival payment processors.`\
-https://nytimes.com/2024/09/23/business/dealbook/visa-lawsuit-doj.html
 
