@@ -1,3 +1,11 @@
+**Vance and Walz Will Debate Standing Up, in a Rarity for V.P. Clashes**\
+`The vice-presidential debate will be the first without chairs since Joe Biden’s face-off against Sarah Palin in 2008. Both candidates are preparing this week, with Tim Walz heading to Northern Michigan.`\
+https://nytimes.com/2024/09/24/us/politics/vance-walz-debate-standing.html
+
+**David Banks, New York City’s Schools Chancellor, to Resign**\
+`The resignation of Mr. Banks, planned for the end of the year, comes amid a flurry of federal investigations into Mayor Eric Adams and his administration.`\
+https://nytimes.com/2024/09/24/nyregion/david-banks-resigns-nyc-schools-chancellor.html
+
 **House Panel Recommends Holding Blinken in Contempt**\
 `Democrats accused Republicans of trying to damage the Biden administration at the height of a campaign season.`\
 https://nytimes.com/2024/09/24/us/politics/house-blinken-contempt-afghanistan.html
