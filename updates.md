@@ -1,3 +1,7 @@
+**More Money Urgently Needed to Reach Younger and Minority Voters, Organizers Warn Harris Donors**\
+`A new memo, released by two of the leading Democratic groups working in battleground states, lays out worrying signs for Vice President Kamala Harris among younger voters and voters of color.`\
+https://nytimes.com/2024/09/24/us/politics/young-minority-voters-harris-campaign.html
+
 **Hemmed In by the Hard Right, Johnson Again Turns to Democrats for Votes**\
 `The House speaker is trying to get a short-term spending agreement passed despite opposition from some conservative members of his own party.`\
 https://nytimes.com/2024/09/24/us/politics/johnson-spending-democrats-republicans.html
