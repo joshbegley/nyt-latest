@@ -1,3 +1,19 @@
+**State Police in N.J. ‘Weaponized’ Disciplinary Investigations, Reports Find**\
+`The state’s attorney general has seized control of the agency’s human resources and equal opportunity functions after investigations into racial and gender bias.`\
+https://nytimes.com/2024/09/24/nyregion/new-jersey-internal-affairs-investigations-attorney-general.html
+
+**Market share report: Diontae Johnson back in play, Rome Odunze likely to be overrated for Week 4**\
+`Michael Salfino runs the Week 3 volume numbers with an eye on Week 4, suggesting Diontae Johnson is back to no-doubt fantasy starter status.`\
+https://nytimes.com/athletic/5790994/2024/09/24/fantasy-football-targets-touches-week-3-diontae-odunze/
+
+**How Does a Baseball Team Lose 120 Games? Every Way You Can Think Of.**\
+`The Chicago White Sox are poised to break the record for the most losses in modern baseball history. Watching them do it has been strangely glorious.`\
+https://nytimes.com/2024/09/24/magazine/chicago-white-sox-loss-record.html
+
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/09/24/weather/tropical-storm-helene-hurricane/here-is-the-latest-on-the-storm
+
 **Breaking down the AL wild-card race with one week to go**\
 `The Royals are collapsing. The Tigers are surging. The Twins are fading.`\
 https://nytimes.com/athletic/5789059/2024/09/24/al-wild-card-primer-royals-twins-tigers/

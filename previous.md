@@ -1,3 +1,19 @@
+**State Police in N.J. ‘Weaponized’ Disciplinary Investigations, Reports Find**\
+`The state’s attorney general has seized control of the agency’s human resources and equal opportunity functions after investigations into racial and gender bias.`\
+https://nytimes.com/2024/09/24/nyregion/new-jersey-internal-affairs-investigations-attorney-general.html
+
+**Market share report: Diontae Johnson back in play, Rome Odunze likely to be overrated for Week 4**\
+`Michael Salfino runs the Week 3 volume numbers with an eye on Week 4, suggesting Diontae Johnson is back to no-doubt fantasy starter status.`\
+https://nytimes.com/athletic/5790994/2024/09/24/fantasy-football-targets-touches-week-3-diontae-odunze/
+
+**How Does a Baseball Team Lose 120 Games? Every Way You Can Think Of.**\
+`The Chicago White Sox are poised to break the record for the most losses in modern baseball history. Watching them do it has been strangely glorious.`\
+https://nytimes.com/2024/09/24/magazine/chicago-white-sox-loss-record.html
+
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/09/24/weather/tropical-storm-helene-hurricane/here-is-the-latest-on-the-storm
+
 **Breaking down the AL wild-card race with one week to go**\
 `The Royals are collapsing. The Tigers are surging. The Twins are fading.`\
 https://nytimes.com/athletic/5789059/2024/09/24/al-wild-card-primer-royals-twins-tigers/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/here-is-ho
 **FA charges Gibbs-White & Nuno after Brighton draw**\
 `Nottingham Forest duo Nuno Espirito Santo and Morgan Gibbs-White have been charged by the Football Association (FA) following the late drama at the end of Sunday&#8217;s 2-2 draw with Brighton &amp; Hove Albion.`\
 https://nytimes.com/athletic/5790937/2024/09/24/gibbs-white-fa-charge-nottingham-forest/
-
-**Jerry Jones 'completely' accepts blame for Cowboys 1-2 start**\
-`Jones' comments come after a local Dallas news station conducted a poll where 78 percent of voters said the blame falls on the owner.`\
-https://nytimes.com/athletic/5790929/2024/09/24/jerry-jones-cowboys-start/
-
-**These Voters Are Anti-Trump, but Will They Be Pro-Harris?**\
-`Democrats see an opportunity to win over right-leaning Americans who have recoiled from Donald Trump. The challenge is coaxing them off the sidelines.`\
-https://nytimes.com/2024/09/24/us/politics/trump-harris-undecided-voters.html
-
-**Is Paying Kids to Read a Wise Strategy?**\
-`Readers discuss an essay by a parent who gave her daughter a $100 reward. Also: Donald Trump and the psychiatrists; a second debate; heartland immigrants.`\
-https://nytimes.com/2024/09/24/opinion/reading-kids-parents.html
-
-**No Plates Allowed**\
-`Tortellini soup, mushrooms and dumplings, niku udon and more spoon-friendly dishes.`\
-https://nytimes.com/2024/09/24/dining/no-plates-allowed.html
 
