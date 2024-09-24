@@ -1,3 +1,7 @@
+**In Manhattan, Pedaling After Cycling Hustlers**\
+`Some New Yorkers found a way to beat Citi Bike’s algorithm. And one reporter found those New Yorkers.`\
+https://nytimes.com/2024/09/24/insider/in-manhattan-pedaling-after-cycling-hustlers.html
+
 **Wednesday Briefing: The U.N. General Assembly Convenes**\
 `Plus, news outlets experiment with WhatsApp.`\
 https://nytimes.com/2024/09/24/briefing/unga-lebanon-harris-trump.html
