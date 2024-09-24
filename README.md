@@ -1,3 +1,7 @@
+**Harris Reiterates Support for Ending Filibuster to Protect Abortion Rights**\
+`“I’ve been very clear: I think we should eliminate the filibuster for Roe,” the vice president said in a radio interview, renewing a call she and President Biden have made in the past.`\
+https://nytimes.com/2024/09/24/us/politics/harris-senate-filibuster-abortion-rights-roe.html
+
 **Tatum says Mazzulla was ‘probably the happiest person’ with Olympic benching**\
 `Tatum previously addressed the benching, but added Tuesday that he's "a believer that everything does happen for a reason."`\
 https://nytimes.com/athletic/5791182/2024/09/24/jayson-tatum-olympics-benching-celtics/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/arts/design/milan-pirelli-hangarbicocca-tinguely.
 **Maryland Sues Shipping Companies to Cover Costs of Bridge Collapse**\
 `The lawsuit is the latest legal fallout from the disaster in March, which killed six people and halted operations at the Port of Baltimore.`\
 https://nytimes.com/2024/09/24/us/maryland-lawsuit-shipping-companies-bridge-collapse.html
-
-**Re-Examining the Cold War, Through British Eyes**\
-`Two exhibits, in London and Edinburgh, look back at the anxiety-filled era — and draw eerie parallels to the present day.`\
-https://nytimes.com/2024/09/24/arts/design/museums-edinburgh-london-cold-war.html
 
