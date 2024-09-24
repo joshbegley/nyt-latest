@@ -1,3 +1,15 @@
+**Breaking down the AL wild-card race with one week to go**\
+`The Royals are collapsing. The Tigers are surging. The Twins are fading.`\
+https://nytimes.com/athletic/5789059/2024/09/24/al-wild-card-primer-royals-twins-tigers/
+
+**Trump plans to talk about economic policy in Georgia speech.**\
+`The former president is expected to highlight his plans to increase tariffs and reduce corporate taxes for businesses that make products in the United States.`\
+https://nytimes.com/live/2024/09/24/us/trump-harris-election/trump-plans-to-talk-about-economic-policy-in-georgia-speech
+
+**Marin Cilic makes men's tennis history at Hangzhou Open**\
+`The Croatian becomes the lowest-ranked player to win an ATP Tour title in the Open Era.`\
+https://nytimes.com/athletic/5790904/2024/09/24/cilic-lowest-ranked-atp-title-winners/
+
 **What Are People Saying About the New Sally Rooney Book?**\
 `“Intermezzo,” the Irish novelist’s fourth novel, is one of this fall’s most anticipated books.`\
 https://nytimes.com/2024/09/24/books/review/intermezzo-sally-rooney-review-roundup.html
@@ -22,19 +34,7 @@ https://nytimes.com/2024/09/24/us/politics/trump-harris-undecided-voters.html
 `Readers discuss an essay by a parent who gave her daughter a $100 reward. Also: Donald Trump and the psychiatrists; a second debate; heartland immigrants.`\
 https://nytimes.com/2024/09/24/opinion/reading-kids-parents.html
 
-**Marin Cilic makes ATP Tour history at Hangzhou Open**\
-`The Croatian becomes the lowest-ranked player to win an ATP Tour title in the Open Era.`\
-https://nytimes.com/athletic/5790904/2024/09/24/cilic-lowest-ranked-atp-title-winners/
-
 **No Plates Allowed**\
 `Tortellini soup, mushrooms and dumplings, niku udon and more spoon-friendly dishes.`\
 https://nytimes.com/2024/09/24/dining/no-plates-allowed.html
-
-**Wolves' Mosquera likely out for season after ACL injury confirmed**\
-`Wolves defender Yerson Mosquera will likely miss the rest of the Premier League season after scans confirmed an injury to the anterior cruciate ligament (ACL) in his left knee.`\
-https://nytimes.com/athletic/5785834/2024/09/24/yerson-mosquera-wolves-injury/
-
-**Escalation in the Middle East looms over the General Assembly meeting.**\
-`By Eve Sampson`\
-https://nytimes.com/live/2024/09/24/world/unga-2024-biden/escalation-in-the-middle-east-looms-over-the-general-assembly-meeting
 
