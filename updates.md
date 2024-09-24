@@ -1,3 +1,7 @@
+**Harris Is Set to Visit Border, Trying to Cut Into Trump’s Immigration Edge**\
+`During a trip to Arizona, Vice President Kamala Harris is expected to make her first visit to the southern border since becoming the Democratic nominee.`\
+https://nytimes.com/2024/09/23/us/politics/kamala-harris-border-arizona-trump.html
+
 **Full Time: NWSL playoff picture taking shape**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5789969/2024/09/23/nwsl-playoffs-gotham-white-house-full-time/
