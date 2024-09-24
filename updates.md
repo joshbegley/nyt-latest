@@ -1,3 +1,7 @@
+**NHL Player Tiers 2024-25: Connor McDavid levels up again, goalies join the discussion**\
+`Our ever-growing list of the top 150 players in the NHL separated into five groups: MVPs, franchise players, all-stars, stars and support. `\
+https://nytimes.com/athletic/5750903/2024/09/24/nhl-best-players-list-2024-2025-season/
+
 **NHL Player Tiers 2024-25: Connor McDavid in a tier of his own, goalies join the discussion**\
 `Our ever-growing list of the top 150 players in the NHL separated into five groups: MVPs, franchise players, all-stars, stars and support. `\
 https://nytimes.com/athletic/5750903/2024/09/24/nhl-best-players-list-2024-2025-season/
