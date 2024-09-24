@@ -1,3 +1,7 @@
+**Liverpool's Alisson out of Carabao Cup match vs West Ham; doubt for Wolves trip**\
+`Alisson will miss Liverpool&#8217;s Carabao Cup third round tie against West Ham United and is a doubt for the Premier League fixture against Wolverhampton Wanderers through injury, head coach Arne Slot has said.`\
+https://nytimes.com/athletic/5790417/2024/09/24/alisson-injury-liverpool-return/
+
 **Jayden Daniels has near-flawless performance in prime-time debut: 'He's special'**\
 `The rookie QB was calm, cool and collected as he displayed his skills on a national stage and led Washington over a desperate Bengals team. `\
 https://nytimes.com/athletic/5790278/2024/09/24/jayden-daniels-commanders-win-bengals-monday-night-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/opinion/larry-hogan-angela-alsobrooks-maryland-se
 **A Looming East Coast Port Strike Could Shake the Economy**\
 `Businesses are preparing for a strike by dockworkers on the East and Gulf Coasts, which could begin Oct. 1 if negotiations don’t yield a new contract.`\
 https://nytimes.com/2024/09/24/business/economy/port-strike-economy.html
-
-**Arséma Thomas’s Watch**\
-`Wearing her perfectly imperfect watch helps the “She Taught Love” star feel close to her late father.`\
-https://nytimes.com/2024/09/24/style/arsema-thomass-watch.html
 
