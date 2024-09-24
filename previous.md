@@ -1,3 +1,11 @@
+**Guterres warns that a ‘powder keg risks engulfing the world’ as he urges world leaders to take action.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/24/world/unga-2024-biden/guterres-warns-that-a-powder-keg-risks-engulfing-the-world-as-he-urges-world-leaders-to-take-action
+
+**Jags' Pederson noncommittal on QB Lawrence**\
+`"There has to be changes, whether it's play design, personnel, everything," coach Doug Pederson said after Monday's 47-10 loss to the Bills.`\
+https://nytimes.com/athletic/5790690/2024/09/24/doug-pederson-trevor-lawrence-jaguars/
+
 **Crystal Palace supporters' group call for review of season ticket policy**\
 `A Crystal Palace supporters&#8217; group has called on the club to review their season ticket policy after fans faced significant issues trying to obtain physical cards.`\
 https://nytimes.com/athletic/5790542/2024/09/24/palace-digital-ticket/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5790654/2024/09/24/toto-wolff-christian-horner-geor
 **Here is the latest on the U.N. meeting.**\
 `The wars in Gaza, Ukraine and Sudan are expected to dominate`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/united-nations-general-assembly-global-turmoil
-
-**U.N. Live Updates: Biden to Address General Assembly Amid Global Turmoil**\
-`President Biden is expected to assert that his “vision for a world where countries come together to solve big problems” has “produced results” even as conflicts rage on in Ukraine, Sudan and the Middle East.`\
-https://nytimes.com/live/2024/09/24/world/unga-2024-biden
-
-**The Athletic FC: Will Rodri injury shape title race? Plus: How Everton takeover would work**\
-`Today in TAFC: How Rodri's injury could shape the title race, explaining Everton's proposed buyout, a young coach trend, and a big sink hole`\
-https://nytimes.com/athletic/5790514/2024/09/24/rodri-injury-premier-league-title-everton-takeover-friedkin/
 
