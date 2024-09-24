@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/09/24/world/unga-2024-biden/furious-over-the-conti
 
 **Both Presidential Candidates Are Ignoring American Wellness**\
 `The U.S. allows chemicals and pesticides banned by Europe, but the issue hasn’t come up in the campaign.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/chemicals-wellness-campaign-candidates
+https://nytimes.com/2024/09/17/opinion/chemicals-wellness-campaign-candidates.html
 
 **Rico set to join Al-Gharafa after life-threatening horse and cart accident**\
 `Former Paris Saint-Germain goalkeeper Sergio Rico is set to join Qatari side Al-Gharafa, five months on from receiving medical clearance to return to football after a life-threatening accident.`\
