@@ -1,3 +1,11 @@
+**FA charges Gibbs-White & Nuno after Brighton draw**\
+`Nottingham Forest duo Nuno Espirito Santo and Morgan Gibbs-White have been charged by the Football Association (FA) following the late drama at the end of Sunday&#8217;s 2-2 draw with Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/5790937/2024/09/24/gibbs-white-fa-charge-nottingham-forest/
+
+**Marin Cilic makes ATP Tour history at Hangzhou Open**\
+`The Croatian becomes the lowest-ranked player to win an ATP Tour title in the Open Era.`\
+https://nytimes.com/athletic/5790904/2024/09/24/cilic-lowest-ranked-atp-title-winners/
+
 **Cilic makes ATP Tour history with Hangzhou Open win**\
 `It is the Croatian's 21st tour trophy.`\
 https://nytimes.com/athletic/5790904/2024/09/24/cilic-lowest-ranked-atp-title-winners/
