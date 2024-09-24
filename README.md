@@ -1,3 +1,7 @@
+**In his final speech at the United Nations, Biden calls again for a cease-fire in Gaza.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/biden-united-nations-cease-fire
+
 **Review: A Devastated Drone Pilot Opens the Met Opera’s Season**\
 `Jeanine Tesori and George Brant’s bloodless “Grounded,” about a fighter pilot turned dissociating drone operator, stars the mezzo-soprano Emily D’Angelo.`\
 https://nytimes.com/2024/09/24/arts/review-grounded-metropolitan-opera-jeanine-tesori-george-brant.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/us/elections/polls-president-new-mexico.htm
 **Election 2024 Polls: Texas**\
 `See the latest election polls and polling averages for Texas.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-texas.html
-
-**Election 2024 Polls: California**\
-`See the latest election polls and polling averages for California.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-california.html
 
