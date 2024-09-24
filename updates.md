@@ -1,3 +1,15 @@
+**Send Us Your Questions About Climate Change**\
+`What should The Times ask change experts, world leaders and policymakers at its Climate Forward conference on Sept. 25?`\
+https://nytimes.com/2024/09/24/climate/climate-forward-conference-questions.html
+
+**Willie, Waylon and the Boys: the Ultimate Outlaw Country Primer**\
+`Hear songs from Willie Nelson, Waylon Jennings, Kris Kristofferson, Johnny Cash and more, inspired by a new book.`\
+https://nytimes.com/2024/09/24/arts/music/amplifier-newsletter-the-highwaymen-outlaw-country.html
+
+**The Death of Outdoor Dining Is a Blow to New York’s Vitality**\
+`All for a set of narrow, self-serving complaints about parking and noise.`\
+https://nytimes.com/2024/09/17/opinion/new-york-outdoor-dining-loss.html
+
 **Harris to More Fully Detail Economic Plans**\
 `Vice President Kamala Harris’s campaign is preparing a lengthy document laying out an economic policy vision as voters say they want to know more about her approach.`\
 https://nytimes.com/2024/09/24/us/politics/harris-to-more-fully-detail-economic-plans.html
