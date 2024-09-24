@@ -1,3 +1,11 @@
+**Escalation in the Middle East looms over the General Assembly meeting.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/09/24/world/unga-2024-biden/escalation-in-the-middle-east-looms-over-the-general-assembly-meeting
+
+**Jazzy Davidson, 5-star recruit in 2025 class, commits to USC**\
+`The 6-foot-2 guard out of Clackamas, Ore., joins All-American star JuJu Watkins at USC.`\
+https://nytimes.com/athletic/5790933/2024/09/24/jazzy-davidson-usc-womens-basketball/
+
 **The Windup: Phillies likely to get playoff rest this time**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5790940/2024/09/24/phillies-nl-east-mlb-playoffs-the-windup/

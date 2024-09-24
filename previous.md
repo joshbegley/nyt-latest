@@ -1,3 +1,11 @@
+**Escalation in the Middle East looms over the General Assembly meeting.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/09/24/world/unga-2024-biden/escalation-in-the-middle-east-looms-over-the-general-assembly-meeting
+
+**Jazzy Davidson, 5-star recruit in 2025 class, commits to USC**\
+`The 6-foot-2 guard out of Clackamas, Ore., joins All-American star JuJu Watkins at USC.`\
+https://nytimes.com/athletic/5790933/2024/09/24/jazzy-davidson-usc-womens-basketball/
+
 **The Windup: Phillies likely to get playoff rest this time**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5790940/2024/09/24/phillies-nl-east-mlb-playoffs-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/24/us/trump-harris-election/a-new-york-congress
 **How Giants' Daniel Jones looked like completely different QB in win vs. Browns**\
 `Pressure rattled Jones in the Week 1 loss to the Vikings. But in Week 3, Jones thrived under duress. `\
 https://nytimes.com/athletic/5790125/2024/09/24/new-york-giants-daniel-jones-browns-win/
-
-**That Message From Your Doctor? It May Have Been Drafted by A.I.**\
-`Overwhelmed by queries, physicians are turning to artificial intelligence to correspond with patients. Many have no clue that the replies are software-generated.`\
-https://nytimes.com/2024/09/24/health/ai-patient-messages-mychart.html
-
-**Biden to announce donation of one million vaccine doses to help fight mpox in Africa.**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2024/09/24/world/unga-2024-biden/biden-to-announce-donation-of-one-million-vaccine-doses-to-help-fight-mpox-in-africa
 
