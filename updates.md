@@ -1,3 +1,11 @@
+**Bernie Moreno Under Fire Over Comments About Suburban Women**\
+`Mr. Moreno, a Republican running for Senate in Ohio, suggested that older women shouldn’t care about abortion because they were too old to have children, comments Nikki Haley pointedly criticized.`\
+https://nytimes.com/2024/09/24/us/politics/bernie-moreno-women-haley.html
+
+**What Is Parkinson’s Disease?**\
+`Brett Favre announced his diagnosis on Tuesday. Here’s what we know about the disease and its relationship to head injuries.`\
+https://nytimes.com/article/parkinsons-disease-head-injury.html
+
 **Climber Dies After Fall at Devils Tower in Wyoming, Park Service Says**\
 `A 21-year-old rock climber from Wisconsin was descending the national monument when he fell, officials said.`\
 https://nytimes.com/2024/09/24/us/devils-tower-climber-death.html
