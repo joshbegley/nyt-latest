@@ -1,3 +1,7 @@
+**House Panel Recommends Holding Blinken in Contempt**\
+`Democrats accused Republicans of trying to damage the Biden administration at the height of a campaign season.`\
+https://nytimes.com/2024/09/24/us/politics/house-blinken-contempt-afghanistan.html
+
 **In Manhattan, Pedaling After Cycling Hustlers**\
 `Some New Yorkers found a way to beat Citi Bike’s algorithm. And one reporter found those New Yorkers.`\
 https://nytimes.com/2024/09/24/insider/in-manhattan-pedaling-after-cycling-hustlers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/weather/hurricane-hunter-aircraft-helene.html
 **Brett Favre Reveals He Has Parkinson’s Disease**\
 `Mr. Favre, the former N.F.L. quarterback who fell from grace after Mississippi officials accused him of helping divert funds meant for low-income residents, announced the diagnosis before Congress.`\
 https://nytimes.com/2024/09/24/us/politics/brett-favre-parkinsons.html
-
-**Super Bowl 2025 odds risers and fallers: Should Bengals panic yet? Plus, a futures pick**\
-`The Bengals are among this week's biggest fallers in Super Bowl odds. The Chiefs are still on top, but the Bills are climbing.`\
-https://nytimes.com/athletic/5790834/2024/09/24/super-bowl-2025-odds-risers-fallers-bills-bengals/
 
