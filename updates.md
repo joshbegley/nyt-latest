@@ -1,3 +1,7 @@
+**Josh Allen, Bills dominate Jags in 47-10 throttling: Takeaways**\
+`For the 12th time in franchise history the Bills win start the season 3-0.`\
+https://nytimes.com/athletic/5789893/2024/09/23/bills-jaguars-result-takeaways-mnf/
+
 **Trump Gets a Lift From Arizona Ticket-Splitters Backing a Democrat for Senate**\
 `Representative Ruben Gallego, the Democratic candidate for Senate, leads in this key contest, a New York Times/Siena College poll found, while Kamala Harris trails Donald Trump.`\
 https://nytimes.com/2024/09/23/us/politics/trump-gets-a-lift-from-arizona-ticket-splitters-backing-a-democrat-for-senate.html

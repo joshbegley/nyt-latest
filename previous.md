@@ -1,3 +1,7 @@
+**Josh Allen, Bills dominate Jags in 47-10 throttling: Takeaways**\
+`For the 12th time in franchise history the Bills win start the season 3-0.`\
+https://nytimes.com/athletic/5789893/2024/09/23/bills-jaguars-result-takeaways-mnf/
+
 **Trump Gets a Lift From Arizona Ticket-Splitters Backing a Democrat for Senate**\
 `Representative Ruben Gallego, the Democratic candidate for Senate, leads in this key contest, a New York Times/Siena College poll found, while Kamala Harris trails Donald Trump.`\
 https://nytimes.com/2024/09/23/us/politics/trump-gets-a-lift-from-arizona-ticket-splitters-backing-a-democrat-for-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5789860/2024/09/23/winnipeg-jets-cole-perfetti-cont
 **The mindset that carried the Phillies to their first NL East title in 13 years**\
 `The Phillies' identity formed over two years as an underdog. They wielded it in a different way this season en route to a division crown.`\
 https://nytimes.com/athletic/5785322/2024/09/23/phillies-nl-east-title-2024-season/
-
-**New York Resident Dies of Eastern Equine Encephalitis Infection**\
-`Gov. Kathy Hochul declared the mosquito-borne illness a public health threat after the first confirmed case in the state in nearly a decade resulted in a death.`\
-https://nytimes.com/2024/09/23/nyregion/eastern-equine-encephalitis-death.html
 
