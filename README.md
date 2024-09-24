@@ -1,3 +1,12 @@
+**Daniels, Commanders drop Bengals to 0-3 after 38-33 shootout**\
+`Monday's game marked the first contest since 1940 without a single punt or takeaway. `\
+https://nytimes.com/athletic/5789958/2024/09/23/bengals-commanders-result-takeaways/
+
+** A Whisky That Sustains the Journey of Water**\
+`A global leader in spirits manufacturing is on a mission to share its craftsmanship and environmental stewardship with its customers, partners and the world at large. 
+`\
+https://nytimes.com/paidpost/suntory/-a-whisky-that-sustains-the-journey-of-water.html
+
 **In a wide-open wild-card race, the Red Sox wasted a chance to be in the mix**\
 `An American League wild-card spot was there for the taking, but the Red Sox didn’t make enough big moves at the deadline to take advantage.`\
 https://nytimes.com/athletic/5790043/2024/09/23/red-sox-postseason-missed-opportunities/
@@ -29,12 +38,4 @@ https://nytimes.com/video/world/middleeast/100000009714893/lebanon-israel-airstr
 **Oklahoma switches starting QB to Michael Hawkins after Tennessee drubbing**\
 `Arnold, a former-five star recruit, was benched for Hawkins in the Sooners' 25-15 loss against Tennessee.`\
 https://nytimes.com/athletic/5789908/2024/09/23/oklahoma-quarterback-michael-hawkins-jackson-arnold-starter/
-
-**Elon Musk Hails Italy’s Leader at Awards Ceremony**\
-`Mr. Musk described Prime Minister Giorgia Meloni as “authentic, honest and thoughtful.” She used her Atlantic Council spotlight to defend Western values.`\
-https://nytimes.com/2024/09/23/business/elon-musk-giorgia-meloni.html
-
-**Jets sign Cole Perfetti to 2-year contract**\
-`Perfetti missed the first five days of training camp as negotiations between the Jets and RFA forward dragged on.`\
-https://nytimes.com/athletic/5789860/2024/09/23/winnipeg-jets-cole-perfetti-contract/
 
