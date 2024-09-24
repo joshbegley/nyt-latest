@@ -1,3 +1,7 @@
+**McDavid reacts to viral clip from Amazon docuseries**\
+`A teaser video showed McDavid unleashing in the dressing room after the Oilers lost Game 2 of the Stanley Cup Final.`\
+https://nytimes.com/athletic/5790166/2024/09/24/oilers-connor-mcdavid-amazon-clip-viral/
+
 **Trump Stokes Fears About Haitian Migrants in a Pennsylvania Community**\
 `His focus on Charleroi, Pa., comes after his debunked claims about Haitian migrants in an Ohio community helped stir a firestorm over immigration there.`\
 https://nytimes.com/2024/09/24/us/politics/trump-haitian-migrants-charleroi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5755314/2024/09/24/ten-hag-fc-twente-years/
 **China Cuts Interest Rates and Mortgage Down Payments**\
 `The country’s central bank also freed commercial banks to lend more money in a package of moves aimed at rekindling growth in a stagnant economy.`\
 https://nytimes.com/2024/09/24/business/china-cuts-mortgage-rates.html
-
-**Chelsea's newest hire Gupta, one of the most highly-regarded analytical minds in the NBA**\
-`Timberwolves executive vice president of basketball operations Sachin Gupta is set to join Chelsea in the near future`\
-https://nytimes.com/athletic/5788693/2024/09/24/sachin-gupta-chelsea-profile/
 

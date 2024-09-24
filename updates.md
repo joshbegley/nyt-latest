@@ -1,3 +1,7 @@
+**McDavid reacts to viral clip from Amazon docuseries**\
+`A teaser video showed McDavid unleashing in the dressing room after the Oilers lost Game 2 of the Stanley Cup Final.`\
+https://nytimes.com/athletic/5790166/2024/09/24/oilers-connor-mcdavid-amazon-clip-viral/
+
 **Trump Stokes Fears About Haitian Migrants in a Pennsylvania Community**\
 `His focus on Charleroi, Pa., comes after his debunked claims about Haitian migrants in an Ohio community helped stir a firestorm over immigration there.`\
 https://nytimes.com/2024/09/24/us/politics/trump-haitian-migrants-charleroi.html
