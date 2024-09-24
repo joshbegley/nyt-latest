@@ -1,3 +1,7 @@
+**Russia Signs Satellite Deal With Three West African Military Juntas**\
+`The partnership between Russia’s space agency and the governments of Burkina Faso, Mali and Niger deepens these countries’ turn toward the Kremlin in their effort to fight off Islamist insurgencies.`\
+https://nytimes.com/2024/09/24/world/africa/russia-satellite-west-africa.html
+
 **‘End This War’: Biden Calls for Gaza Cease-fire in Final U.N. Speech**\
 `President Biden said the families of hostages in Gaza and innocent civilians in the enclave were “going through hell” and urged Israel and Hamas to sign on to a cease-fire deal.`\
 https://nytimes.com/video/world/middleeast/100000009717000/biden-cease-fire-un-speech.html

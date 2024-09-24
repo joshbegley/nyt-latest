@@ -1,3 +1,19 @@
+**Tatum says Mazzulla was ‘probably the happiest person’ with Olympic benching**\
+`Tatum previously addressed the benching, but added Tuesday that he's "a believer that everything does happen for a reason."`\
+https://nytimes.com/athletic/5791182/2024/09/24/jayson-tatum-olympics-benching-celtics/
+
+**College football best bets Week 5: Picking a UNC bounce-back and more**\
+`Austin Mock's projection model has identified three spreads and one over to bet for Week 5 of college football.`\
+https://nytimes.com/athletic/5788942/2024/09/24/college-football-best-bets-week-5-north-carolina/
+
+**Brett Favre reveals Parkinson's diagnosis**\
+`"I've been recently diagnosed with Parkinson's," Favre said at a Congressional hearing on the misuse of welfare funds.`\
+https://nytimes.com/athletic/5791079/2024/09/24/brett-favre-parkinsons-diagnosis-congress/
+
+**Desert Racers Demolish Art Carved by Ancient People in Chile**\
+`Preservationists say governments at all levels have failed to prevent authorized and illegal off-road racers from driving through giant figures of animals, humans and objects.`\
+https://nytimes.com/2024/09/24/science/geoglyphs-atacama-desert-rallies.html
+
 **Russia Signs Satellite Deal With Three West African Military Juntas**\
 `The partnership between Russia’s space agency and the governments of Burkina Faso, Mali and Niger deepens these countries’ turn toward the Kremlin in their effort to fight off Islamist insurgencies.`\
 https://nytimes.com/2024/09/24/world/africa/russia-satellite-west-africa.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/24/us/maryland-lawsuit-shipping-companies-bridge-col
 **Re-Examining the Cold War, Through British Eyes**\
 `Two exhibits, in London and Edinburgh, look back at the anxiety-filled era — and draw eerie parallels to the present day.`\
 https://nytimes.com/2024/09/24/arts/design/museums-edinburgh-london-cold-war.html
-
-**YongChuan Serves Up the Seafood of Ningbo and the Spice of Sichuan**\
-`Alex Stupak serves New England fare at the Otter and Sloane’s, Bridges pulls from the larder of Europe and North America, and more restaurant news.`\
-https://nytimes.com/2024/09/24/dining/nyc-restaurant-news.html
-
-**Netanyahu, delayed by Israel’s new assault on Hezbollah, faces broad censure from gathered leaders.**\
-`By Isabel Kershner`\
-https://nytimes.com/live/2024/09/24/world/unga-2024-biden/netanyahu-delayed-by-israels-new-assault-on-hezbollah-faces-broad-censure-from-gathered-leaders
-
-**Israel’s Strikes on Lebanon Are Some of the Deadliest in Decades**\
-`What we know about the strikes, the death toll and how it is calculated.`\
-https://nytimes.com/2024/09/24/world/middleeast/israel-lebanon-strikes-deaths.html
-
-**A Montreal Museum Reckons with Its Legacy, and Uplifts Inuit Artists**\
-`This fall, the Montreal Museum of Fine Art’s Native art collection — once consigned to a far corner — will be front and center in a new show.`\
-https://nytimes.com/2024/09/24/arts/design/montreal-museum-inuit.html
 
