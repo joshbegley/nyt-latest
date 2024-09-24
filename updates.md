@@ -1,3 +1,7 @@
+**Utah State agrees to join Pac-12, league pushing for more Mountain West members: Sources**\
+`A dramatic tug-of-war between the Pac-12 and Mountain West remains in flux.`\
+https://nytimes.com/athletic/5789845/2024/09/23/utah-state-pac-12-mountain-west/
+
 **Whom will the Reds hire as manager? A look at 9 potential candidates**\
 `Candidates include Skip Schumaker, Scott Servais, Will Venable, Barry Larkin and others.`\
 https://nytimes.com/athletic/5789636/2024/09/23/reds-manager-candidates/
