@@ -1,3 +1,7 @@
+**Whom will the Reds hire as manager? A look at 9 potential candidates**\
+`Candidates include Skip Schumaker, Scott Servais, Will Venable, Barry Larkin and others.`\
+https://nytimes.com/athletic/5789636/2024/09/23/reds-manager-candidates/
+
 **Four-time All-Star, Rockies veteran Charlie Blackmon announces retirement**\
 `Blackmon is one of the most prolific players to put on a Colorado uniform.`\
 https://nytimes.com/athletic/5789819/2024/09/23/rockies-charlie-blackmon-announces-retirement/
