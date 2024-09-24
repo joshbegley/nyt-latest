@@ -1,3 +1,7 @@
+**Wolff hits back at Horner over comments on Russell’s future**\
+`Toto Wolff has hit back at Christian Horner after the Red Bull team principal hinted at a potential move for Mercedes driver George Russell in 2026.`\
+https://nytimes.com/athletic/5790654/2024/09/24/toto-wolff-christian-horner-george-russell/
+
 **Here is the latest on the U.N. meeting.**\
 `The wars in Gaza, Ukraine and Sudan are expected to dominate`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/united-nations-general-assembly-global-turmoil
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5789194/2024/09/24/49ers-snap-counts-loss-rams/
 **Rethinking ‘Checks and Balances’ for the A.I. Age**\
 `A project at Stanford points to the need for institutional innovation, especially in government, to increase the odds that A.I. enhances democracy.`\
 https://nytimes.com/2024/09/24/business/ai-democracy-government.html
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/09/24/us/trump-harris-election/heres-the-latest-on-the-presidential-race
 
