@@ -1,3 +1,19 @@
+**Furious over the continuing war in Gaza, world leaders castigate Israel.**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2024/09/24/world/unga-2024-biden/furious-over-the-continuing-war-in-gaza-world-leaders-castigate-israel
+
+**Both Presidential Candidates Are Ignoring American Wellness**\
+`The U.S. allows chemicals and pesticides banned by Europe, but the issue hasn’t come up in the campaign.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/chemicals-wellness-campaign-candidates
+
+**Rico set to join Al-Gharafa after life-threatening horse and cart accident**\
+`Former Paris Saint-Germain goalkeeper Sergio Rico is set to join Qatari side Al-Gharafa, five months on from receiving medical clearance to return to football after a life-threatening accident.`\
+https://nytimes.com/athletic/5791587/2024/09/24/sergio-rico-al-gharafa-transfer/
+
+**What we know about Lions injuries: Latest on Davenport, Laporta and how Detroit can adjust**\
+`The Lions won the game, but lost several players with injuries.`\
+https://nytimes.com/athletic/5791423/2024/09/24/lions-injuries-adjustments-week-4/
+
 **NFL MVP odds: Josh Allen jumps Mahomes as new favorite, Aaron Rodgers rises**\
 `Josh Allen's Monday night performance vaulted him over Patrick Mahomes to the top of the MVP odds. `\
 https://nytimes.com/athletic/5790893/2024/09/24/nfl-mvp-odds-josh-allen-patrick-mahomes-aaron-rodgers/
