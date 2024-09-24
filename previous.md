@@ -1,3 +1,11 @@
+**No Plates Allowed**\
+`Tortellini soup, mushrooms and dumplings, niku udon and more spoon-friendly dishes.`\
+https://nytimes.com/2024/09/24/dining/no-plates-allowed.html
+
+**Wolves' Mosquera likely out for season after ACL injury confirmed**\
+`Wolves defender Yerson Mosquera will likely miss the rest of the Premier League season after scans confirmed an injury to the anterior cruciate ligament (ACL) in his left knee.`\
+https://nytimes.com/athletic/5785834/2024/09/24/yerson-mosquera-wolves-injury/
+
 **Escalation in the Middle East looms over the General Assembly meeting.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/escalation-in-the-middle-east-looms-over-the-general-assembly-meeting
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/24/us/politics/ohio-sheriff-harris-stripped.html
 **Presidents Cup analysis: 10 notes to know on U.S. vs. International**\
 `The International team has won once in the competition, 26 years ago. But are the Americans vulnerable?`\
 https://nytimes.com/athletic/5790759/2024/09/24/presidents-cup-analysis-us-international/
-
-**A New York congressman had an affair, then put his lover on the payroll.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2024/09/24/us/trump-harris-election/a-new-york-congressman-had-an-affair-then-put-his-lover-on-the-payroll
-
-**How Giants' Daniel Jones looked like completely different QB in win vs. Browns**\
-`Pressure rattled Jones in the Week 1 loss to the Vikings. But in Week 3, Jones thrived under duress. `\
-https://nytimes.com/athletic/5790125/2024/09/24/new-york-giants-daniel-jones-browns-win/
 

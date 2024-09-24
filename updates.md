@@ -1,3 +1,11 @@
+**No Plates Allowed**\
+`Tortellini soup, mushrooms and dumplings, niku udon and more spoon-friendly dishes.`\
+https://nytimes.com/2024/09/24/dining/no-plates-allowed.html
+
+**Wolves' Mosquera likely out for season after ACL injury confirmed**\
+`Wolves defender Yerson Mosquera will likely miss the rest of the Premier League season after scans confirmed an injury to the anterior cruciate ligament (ACL) in his left knee.`\
+https://nytimes.com/athletic/5785834/2024/09/24/yerson-mosquera-wolves-injury/
+
 **Escalation in the Middle East looms over the General Assembly meeting.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/escalation-in-the-middle-east-looms-over-the-general-assembly-meeting
