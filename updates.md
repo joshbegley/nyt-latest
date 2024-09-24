@@ -1,3 +1,7 @@
+**Odegaard 'a matter of weeks' from injury return, says Arsenal manager Arteta**\
+`Mikel Arteta said that it would be a &#8220;surprise&#8221; for Martin Odegaard to return before the October international break but the Arsenal captain’s injury would be &#8220;a matter of weeks&#8221;.`\
+https://nytimes.com/athletic/5790563/2024/09/24/arsenal-odegaard-injury-update-weeks/
+
 **Ten Hag hopeful Shaw will return before October international break**\
 `Erik ten Hag says Manchester United left-back Luke Shaw could be back before the October international break.`\
 https://nytimes.com/athletic/5790456/2024/09/24/luke-shaw-erik-ten-hag-manchester-united/
