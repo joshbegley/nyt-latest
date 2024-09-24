@@ -1,3 +1,7 @@
+**Here is the latest on the U.N. meeting.**\
+`The wars in Gaza, Ukraine and Sudan are expected to dominate`\
+https://nytimes.com/live/2024/09/24/world/unga-2024-biden/united-nations-general-assembly-global-turmoil
+
 **The Athletic FC: Will Rodri injury shape title race? Plus: How Everton takeover would work**\
 `Today in TAFC: How Rodri's injury could shape the title race, explaining Everton's proposed buyout, a young coach trend, and a big sink hole`\
 https://nytimes.com/athletic/5790514/2024/09/24/rodri-injury-premier-league-title-everton-takeover-friedkin/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/business/ai-democracy-government.html
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/09/24/us/trump-harris-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Trump and Harris Battle Over Economy and the Border**\
-`Vice President Kamala Harris plans to visit the southern border during a trip to Arizona this week. Former President Donald J. Trump is zeroing in on economic issues.`\
-https://nytimes.com/live/2024/09/24/us/trump-harris-election
 

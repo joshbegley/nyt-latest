@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5790514/2024/09/24/rodri-injury-premier-league-titl
 `PVH, which owns Calvin Klein and Tommy Hilfiger, is targeted for allegedly avoiding purchases from the region where the Chinese government has cracked down on Muslim minorities.`\
 https://nytimes.com/2024/09/24/business/china-xinjiang-calvin-klein-tommy-hilfiger.html
 
-**The Friedkin's proposed takeover gives Everton hope - which has been completely absent for too long**\
+**Friedkin's proposed takeover gives Everton hope - which has been completely absent for too long**\
 `Everton fans have had to witness the slow and steady decline of the club they love - Friedkin's proposed takeover offers hope, at last`\
 https://nytimes.com/athletic/5790545/2024/09/24/everton-takeover-friedkin-hope/
 
