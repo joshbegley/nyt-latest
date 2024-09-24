@@ -1,3 +1,7 @@
+**After hazardous waste history, Bay FC's new training site is 'available for re-use by the public'**\
+`Treasure Island has been the focus of community scrutiny due to its history of hazardous waste and alleged ineffective cleanup.`\
+https://nytimes.com/athletic/5791753/2024/09/24/bay-fc-training-facility-hazardous-waste/
+
 **Hezbollah Is Everyone’s Problem**\
 `The United States must help Israel defeat it.`\
 https://nytimes.com/2024/09/24/opinion/israel-lebanon-hezbollah.html

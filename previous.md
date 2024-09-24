@@ -1,3 +1,7 @@
+**After hazardous waste history, Bay FC's new training site is 'available for re-use by the public'**\
+`Treasure Island has been the focus of community scrutiny due to its history of hazardous waste and alleged ineffective cleanup.`\
+https://nytimes.com/athletic/5791753/2024/09/24/bay-fc-training-facility-hazardous-waste/
+
 **Hezbollah Is Everyone’s Problem**\
 `The United States must help Israel defeat it.`\
 https://nytimes.com/2024/09/24/opinion/israel-lebanon-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791708/2024/09/24/jordan-chiles-olympics-appeal/
 **Bills All-22: Josh Allen is getting the ball out quicker, offensive linemen among top performers**\
 `Plus, Khalil Shakir was particularly effective in exploiting a weakness.`\
 https://nytimes.com/athletic/5791828/2024/09/24/buffalo-bills-all-22-josh-allen-khalil-shakir-jaguars/
-
-**As U.N. Meets, Israel Pounds Targets in Lebanon, Sending Civilians Fleeing**\
-`Israel said it was striking Hezbollah targets with “high intensity” to keep the campaign as short as possible, as the Lebanese militants maintained their own cross-border barrage.`\
-https://nytimes.com/2024/09/24/world/middleeast/israel-hezbollah-lebanon.html
 
