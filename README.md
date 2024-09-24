@@ -1,3 +1,7 @@
+**Former Memphis Officer Apologizes for His Role in Tyre Nichols’s Death**\
+`Desmond Mills Jr., who testified against his former colleagues, broke down in court, saying, “I made his child fatherless.”`\
+https://nytimes.com/2024/09/24/us/politics/tyre-nichols-desmond-mills-memphis.html
+
 **LeBrun rumblings: How high will Rangers go on Shesterkin? Plus latest on Kessel, Swayman, Ullmark, more**\
 `The Rangers have indicated they would top $10.5 million. Would they go to $11.5 million? Or $12 million? Or $12.5 million? Or $13 million?`\
 https://nytimes.com/athletic/5791920/2024/09/24/nhl-rumblings-shesterkin-kessel-swayman/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/briefing/biden-speech-united-nations-best-restaur
 **Until Saturday: Pac-12, Mountain West drama continues**\
 `Welcome to Until Saturday, the five-star college football newsletter: The Pac-12, Mountain West drama continues.`\
 https://nytimes.com/athletic/5791286/2024/09/24/pac-12-mountain-west-realignment-until-saturday/
-
-**Dick Moss, Who Helped Usher in Baseball Free Agency, Dies at 93**\
-`A labor lawyer, he was crucial to toppling a decades-old system that bound players to teams year after year, setting the stage for their rich contracts of today.`\
-https://nytimes.com/2024/09/24/sports/dick-moss-dead.html
 
