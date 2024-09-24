@@ -1,3 +1,15 @@
+**Harris to More Fully Detail Economic Plans**\
+`Vice President Kamala Harris’s campaign is preparing a lengthy document laying out an economic policy vision as voters say they want to know more about her approach.`\
+https://nytimes.com/2024/09/24/us/politics/harris-to-more-fully-detail-economic-plans.html
+
+**The Death of Outdoor Dining Is a Blow to New York’s Vitality**\
+`All for a set of narrow, self-serving complaints about parking and noise.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/new-york-outdoor-dining-loss
+
+**The U.S. nixes the security detail for Haiti’s president, then restores it.**\
+`By Frances Robles`\
+https://nytimes.com/live/2024/09/24/world/unga-2024-biden/the-us-nixes-the-security-detail-for-haitis-president-then-restores-it
+
 **What are Your Unusual Holiday Traditions?**\
 `For many people, celebrating the winter holidays means marking it in eccentric and sometimes downright inexplicable ways.`\
 https://nytimes.com/2024/09/24/style/unusual-holiday-traditions-callout.html
