@@ -1,3 +1,11 @@
+**Zelensky Addresses the Security Council, Calling for Attention to Stay on Ukraine**\
+`“Russia can only be forced into peace.” President Volodymyr Zelensky of Ukraine urged the Council members to sustain their backing for his country’s resistance to Russia’s full-scale invasion.`\
+https://nytimes.com/2024/09/24/world/europe/security-council-ukraine-war.html
+
+**Israel achieved short-term aims in a week of attacks on Hezbollah, officials say, but the end goal is unclear.**\
+`By Ronen Bergman`\
+https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/israel-achieved-short-term-aims-in-a-week-of-attacks-on-hezbollah-officials-say-but-the-end-goal-is-unclear
+
 **David Banks, New York City’s Schools Chancellor, to Resign**\
 `The resignation of Mr. Banks, planned for the end of the year, comes amid a flurry of federal investigations surrounding the administration of Mayor Eric Adams.`\
 https://nytimes.com/2024/09/24/nyregion/david-banks-resigns-nyc-schools-chancellor.html
