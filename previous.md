@@ -1,3 +1,11 @@
+**NHL Player Tiers 2024-25: Connor McDavid in a tier of his own, goalies join the discussion**\
+`Our ever-growing list of the top 150 players in the NHL separated into five groups: MVPs, franchise players, all-stars, stars and support. `\
+https://nytimes.com/athletic/5750903/2024/09/24/nhl-best-players-list-2024-2025-season/
+
+**Chiefs rookie Carson Steele skips sister's wedding for memorable first NFL start**\
+`Filling in for the injured Isiah Pacheco, Steele led the Chiefs with 72 rushing yards on 17 carries in just his third career game.`\
+https://nytimes.com/athletic/5789550/2024/09/24/chiefs-carson-steele-sister-wedding/
+
 **How Brian Flores and the Vikings built such a 'wild' and 'different' NFL defense**\
 `What is so unique about Flores' defense, and how are the Vikings seemingly the only team capable of playing this way?`\
 https://nytimes.com/athletic/5789481/2024/09/24/brian-flores-vikings-defense-wild-different/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5790177/2024/09/24/diamondbacks-postseason-chances-
 **Brugler's NFL Draft Film Room: Kaleb Johnson, Josaiah Stewart, others who starred in Week 4**\
 `Several Big Ten prospects played well over the weekend, as did a talented Ole Miss wide receiver. `\
 https://nytimes.com/athletic/5789033/2024/09/24/nfl-draft-2025-kaleb-johnson-josaiah-stewart-scouting/
-
-**Will Kevin Korchinski be the next Blackhawks defenseman to follow the Alex Vlasic model?**\
-`After years of struggling to produce a homegrown defenseman, the Blackhawks think they might have finally found the key.`\
-https://nytimes.com/athletic/5788920/2024/09/24/blackhawks-kevin-korchinski-rockford-defense/
-
-**How the Cost of Housing Became So Crushing**\
-`The roots of the property crisis run deep and have proved very hard to fix.`\
-https://nytimes.com/2024/09/24/podcasts/the-daily/housing-crisis-michigan.html
 
