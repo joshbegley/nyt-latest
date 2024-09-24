@@ -1,3 +1,7 @@
+**Wednesday Briefing: The U.N. General Assembly Convenes**\
+`Plus, news outlets experiment with WhatsApp.`\
+https://nytimes.com/2024/09/24/briefing/unga-lebanon-harris-trump.html
+
 **Zelensky Addresses the Security Council, Calling for Attention to Stay on Ukraine**\
 `“Russia can only be forced into peace.” President Volodymyr Zelensky of Ukraine urged the Council members to sustain their backing for his country’s resistance to Russia’s full-scale invasion.`\
 https://nytimes.com/2024/09/24/world/europe/security-council-ukraine-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5790834/2024/09/24/super-bowl-2025-odds-risers-fall
 **Here’s How the Forecast for Tropical Storm Helene Is Shaping Up**\
 `When the storm’s center was located on Tuesday, it gave meteorologists a crucial next step in firming up the storm’s forecast.`\
 https://nytimes.com/2024/09/24/weather/forecast-helene-storm.html
-
-**T.I. and Tiny Awarded $71 Million Over L.O.L. Dolls’ Likeness to R&B Group**\
-`A jury found that the toy giant MGA Entertainment had violated the musicians’ intellectual property rights with its L.O.L. Surprise! O.M.G. dolls.`\
-https://nytimes.com/2024/09/24/business/omg-dolls-ti-tiny.html
 
