@@ -1,3 +1,7 @@
+**NFL best bets Week 4: Picking the Jets to stay hot and a pair of underdogs to win**\
+`Austin Mock has a loaded betting slip for NFL Week 4, including picking a pair of underdogs to win.`\
+https://nytimes.com/athletic/5791465/2024/09/24/nfl-best-bets-week-4-jets-bills-buccaneers/
+
 **Caroline Ellison, Star Witness at FTX Trial, Is Sentenced to 2 Years in Prison**\
 `A top adviser to Sam Bankman-Fried, the disgraced founder of FTX, Ms. Ellison pleaded guilty to conspiring with him to steal $8 billion and became a crucial witness for the prosecution.`\
 https://nytimes.com/2024/09/24/technology/caroline-ellison-ftx-sentence.html
