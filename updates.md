@@ -1,3 +1,7 @@
+**Trump Stokes Fears About Haitian Migrants in a Pennsylvania Community**\
+`His focus on Charleroi, Pa., comes after his debunked claims about Haitian migrants in an Ohio community helped stir a firestorm over immigration there.`\
+https://nytimes.com/2024/09/24/us/politics/trump-haitian-migrants-charleroi.html
+
 **Tuesday Briefing: Israeli Airstrikes in Lebanon Kill Hundreds**\
 `Plus, vintage soccer jerseys and the memories they preserve.`\
 https://nytimes.com/2024/09/24/briefing/hezbollah-israel-trump-polls-united-nations-biden.html
