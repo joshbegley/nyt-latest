@@ -1,3 +1,7 @@
+**Zelensky Addresses the Security Council, Calling for Attention to Stay on Ukraine**\
+`“Russia can only be forced into peace.” President Volodymyr Zelensky of Ukraine urged the Council members to sustain their backing for his country’s resistance to Russia’s full-scale invasion.`\
+https://nytimes.com/2024/09/24/world/europe/security-council-ukraine-war.html
+
 **Israel achieved short-term aims in a week of attacks on Hezbollah, officials say, but the end goal is unclear.**\
 `By Ronen Bergman`\
 https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/israel-achieved-short-term-aims-in-a-week-of-attacks-on-hezbollah-officials-say-but-the-end-goal-is-unclear
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/weather/forecast-helene-storm.html
 **T.I. and Tiny Awarded $71 Million Over L.O.L. Dolls’ Likeness to R&B Group**\
 `A jury found that the toy giant MGA Entertainment had violated the musicians’ intellectual property rights with its L.O.L. Surprise! O.M.G. dolls.`\
 https://nytimes.com/2024/09/24/business/omg-dolls-ti-tiny.html
-
-**How to Watch the Vance-Walz Vice-Presidential Debate**\
-`CBS News will broadcast the 90-minute debate, starting at 9 p.m. Eastern on Oct. 1. The Times will stream it alongside real-time commentary and analysis from reporters.`\
-https://nytimes.com/2024/09/24/us/politics/watch-vance-walz-vp-debate.html
 
