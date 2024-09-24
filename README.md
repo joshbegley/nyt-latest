@@ -1,3 +1,7 @@
+**'He's one of one': Josh Allen slings another stunner in Bills' blowout win against Jaguars**\
+`Ten Bills players caught a pass from Josh Allen against Jacksonville.`\
+https://nytimes.com/athletic/5790139/2024/09/24/bills-blowout-win-jaguars-josh-allen/
+
 **Liverpool's Alisson out of Carabao Cup match vs West Ham; doubt for Wolves trip**\
 `Alisson will miss Liverpool&#8217;s Carabao Cup third round tie against West Ham United and is a doubt for the Premier League fixture against Wolverhampton Wanderers through injury, head coach Arne Slot has said.`\
 https://nytimes.com/athletic/5790417/2024/09/24/alisson-injury-liverpool-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788845/2024/09/24/mlb-playoffs-contenders-what-to-
 **Will Larry Hogan Score a Senate Upset in True-Blue Maryland?**\
 `How party control of the Senate may come down to Maryland Democrats taking a big gamble.`\
 https://nytimes.com/2024/09/24/opinion/larry-hogan-angela-alsobrooks-maryland-senate.html
-
-**A Looming East Coast Port Strike Could Shake the Economy**\
-`Businesses are preparing for a strike by dockworkers on the East and Gulf Coasts, which could begin Oct. 1 if negotiations don’t yield a new contract.`\
-https://nytimes.com/2024/09/24/business/economy/port-strike-economy.html
 
