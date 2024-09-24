@@ -1,3 +1,7 @@
+**NFL best bets Week 4: Picking the Jets to stay hot and a pair of underdogs to win**\
+`Austin Mock has a loaded betting slip for NFL Week 4, including picking a pair of underdogs to win.`\
+https://nytimes.com/athletic/5791465/2024/09/24/nfl-best-bets-week-4-jets-bills-buccaneers/
+
 **Caroline Ellison, Star Witness at FTX Trial, Is Sentenced to 2 Years in Prison**\
 `A top adviser to Sam Bankman-Fried, the disgraced founder of FTX, Ms. Ellison pleaded guilty to conspiring with him to steal $8 billion and became a crucial witness for the prosecution.`\
 https://nytimes.com/2024/09/24/technology/caroline-ellison-ftx-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/us/politics/kamala-harris-laurene-powell-jobs.htm
 **Live Q&A: Week 4 fantasy football add/drop chat with Jay Felicio, Tuesday 9/24 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5788657/2024/09/24/live-qa-week-4-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-9-24-at-5-p-m-et/
-
-**Israel says it killed another top leader of Hezbollah, the latest blow in a concerted campaign.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/israel-says-it-killed-another-top-leader-of-hezbollah-the-latest-blow-in-a-concerted-campaign
 
