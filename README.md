@@ -1,3 +1,23 @@
+**New Yorkers Brace for Gridlock and Headaches as U.N. Convenes**\
+`The U.N. General Assembly brings scores of world leaders to Manhattan’s East Side each year. Residents are concerned about disrupted commutes.`\
+https://nytimes.com/2024/09/24/nyregion/un-meeting-nyc-traffic.html
+
+**Recess**\
+`What memories do you have of recess?`\
+https://nytimes.com/2024/09/24/learning/recess.html
+
+**An Interview With a Master Interviewer, Robert Caro**\
+`Alexandra Alter spent time with the author at a new exhibit celebrating the 50th anniversary of his book “The Power Broker.”`\
+https://nytimes.com/2024/09/24/insider/power-broker-robert-caro.html
+
+**Rare Police Killing of Asian American Woman Has Rattled Her Community**\
+`Victoria Lee, a young Korean American woman, was fatally shot by a police officer during a mental health emergency. The event has sent shock waves through Fort Lee, N.J.`\
+https://nytimes.com/2024/09/24/nyregion/victoria-lee-shooting-new-jersey.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/24/crosswords/spelling-bee-forum.html
+
 **Stephen Colbert Is Tickled by Trump’s Vow to Make Women Great Again**\
 `“I‘m not sure if he’s running for president or marketing a new brand of tampon,” Colbert said on Monday.`\
 https://nytimes.com/2024/09/24/arts/television/stephen-colbert-trump-women.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/24/learning/word-of-the-day-patently.html
 **McDavid reacts to viral clip from Amazon docuseries**\
 `A teaser video showed McDavid unleashing in the dressing room after the Oilers lost Game 2 of the Stanley Cup Final.`\
 https://nytimes.com/athletic/5790166/2024/09/24/oilers-connor-mcdavid-amazon-clip-viral/
-
-**Trump Stokes Fears About Haitian Migrants in a Pennsylvania Community**\
-`His focus on Charleroi, Pa., comes after his debunked claims about Haitian migrants in an Ohio community helped stir a firestorm over immigration there.`\
-https://nytimes.com/2024/09/24/us/politics/trump-haitian-migrants-charleroi.html
-
-**Tuesday Briefing: Israeli Airstrikes in Lebanon Kill Hundreds**\
-`Plus, vintage soccer jerseys and the memories they preserve.`\
-https://nytimes.com/2024/09/24/briefing/hezbollah-israel-trump-polls-united-nations-biden.html
-
-**For Aaron Nola and NL East-winning Phillies, a reward for the grind after so many years**\
-`He is not perfect. He is often maddening. But he is always there. He is consistent. He works. Nola had to be the one on the mound Monday. `\
-https://nytimes.com/athletic/5790110/2024/09/24/aaron-nola-phillies-nl-east-title/
-
-**Why Rio Ngumoha is already the talk of Liverpool's academy**\
-`The 16-year-old has been tracked by Manchester United and Manchester City, so how did Liverpool manage to sign him from Chelsea?`\
-https://nytimes.com/athletic/5767200/2024/09/24/rio-ngumoha-liverpool-academy/
-
-**How should Nottingham Forest line up without talisman Morgan Gibbs-White?**\
-`Forest will be without their most creative player against Fulham - here how will Nuno Espirito Santo could shuffle his pack`\
-https://nytimes.com/athletic/5788375/2024/09/24/nottingham-forest-gibbs-white-formation-fulham/
 
