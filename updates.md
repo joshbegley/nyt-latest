@@ -1,3 +1,11 @@
+**Forum 5 | What Gives You Hope for the Future?**\
+`What do you think your generation might do better than those who came before it did?`\
+https://nytimes.com/2024/09/24/learning/forum-5-what-gives-you-hope-for-the-future.html
+
+**Blocked but not forgotten: Why Casey Schmitt might still have a place on the Giants' infield**\
+`Schmitt still has plenty of upside and might be an adjustment or two away from becoming a lineup asset.`\
+https://nytimes.com/athletic/5790321/2024/09/24/casey-schmitt-giants-infield/
+
 **Odegaard 'a matter of weeks' from injury return, says Arsenal manager Arteta**\
 `Mikel Arteta said that it would be a &#8220;surprise&#8221; for Martin Odegaard to return before the October international break but the Arsenal captain’s injury would be &#8220;a matter of weeks&#8221;.`\
 https://nytimes.com/athletic/5790563/2024/09/24/arsenal-odegaard-injury-update-weeks/

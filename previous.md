@@ -1,3 +1,11 @@
+**Forum 5 | What Gives You Hope for the Future?**\
+`What do you think your generation might do better than those who came before it did?`\
+https://nytimes.com/2024/09/24/learning/forum-5-what-gives-you-hope-for-the-future.html
+
+**Blocked but not forgotten: Why Casey Schmitt might still have a place on the Giants' infield**\
+`Schmitt still has plenty of upside and might be an adjustment or two away from becoming a lineup asset.`\
+https://nytimes.com/athletic/5790321/2024/09/24/casey-schmitt-giants-infield/
+
 **Odegaard 'a matter of weeks' from injury return, says Arsenal manager Arteta**\
 `Mikel Arteta said that it would be a &#8220;surprise&#8221; for Martin Odegaard to return before the October international break but the Arsenal captain’s injury would be &#8220;a matter of weeks&#8221;.`\
 https://nytimes.com/athletic/5790563/2024/09/24/arsenal-odegaard-injury-update-weeks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5790181/2024/09/24/jayden-daniels-joe-burrow-lsu-co
 **Partizan head coach injured by own fans after Belgrade derby defeat**\
 `Partizan Belgrade head coach Aleksandar Stanojevic was left with injuries after his club&#8217;s fans broke into the dressing room following a four-goal defeat by Red Star Belgrade.`\
 https://nytimes.com/athletic/5790487/2024/09/24/belgrade-derby-partizan-red-star/
-
-**Israel’s Strikes on Lebanon**\
-`We explore what led to the strikes, what’s happening now and what might come next.`\
-https://nytimes.com/2024/09/24/briefing/israel-hezbollah-lebanon.html
-
-**Britain’s National Theater Director Takes a Final Bow**\
-`As Rufus Norris prepares to leave the London playhouse he has led since 2015, he reflects on his quest to make the theater represent the audience it serves.`\
-https://nytimes.com/2024/09/24/theater/rufus-norris-national-theater.html
 
