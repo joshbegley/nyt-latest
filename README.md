@@ -1,3 +1,7 @@
+**Families of Hostages and Gazans Feel Forgotten as War Heats Up in Lebanon**\
+`Talks to reach a potential cease-fire in Gaza and free the remaining 100 or so hostages have stalled.`\
+https://nytimes.com/2024/09/24/world/middleeast/families-of-hostages-and-gazans-feel-forgotten-as-war-heats-up-in-lebanon.html
+
 **Guterres Urges World Leaders to Act on ‘Whirlwind’ of Crises**\
 `António Guterres, the secretary general of the United Nations, said the world was “edging towards the unimaginable” amid deepening challenges of war and climate change.`\
 https://nytimes.com/video/world/100000009716554/guterres-united-nations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5790976/2024/09/24/champions-league-final-san-siro/
 **Iran will aim to both defuse tensions with the West and criticize Israel at the assembly, officials say.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/iran-will-aim-to-both-defuse-tensions-with-the-west-and-criticize-israel-at-the-assembly-officials-say
-
-**Zelensky Says Western Allies Must Allow Ukrainian Strikes Deep Into Russia**\
-`The leaders of Ukraine and Denmark said allied nations must lift restrictions on arms, increase their production and help Ukraine build weapons inside the country.`\
-https://nytimes.com/2024/09/24/us/politics/zelensky-ukraine-russia-strikes.html
 
