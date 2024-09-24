@@ -1,24 +1,28 @@
+**Guterres Urges World Leaders to Act on ‘Whirlwind’ of Crises**\
+`António Guterres, the secretary general of the United Nations, said the world was “edging towards the unimaginable” amid deepening challenges of war and climate change.`\
+https://nytimes.com/video/world/100000009716554/guterres-united-nations.html
+
 **Baldwin, With Shapiro in Tow, Looks For ‘Trump-Tammy Voters’ in Wisconsin**\
 `The Democratic senator, who is seeking a third term in a politically competitive state, rallied with the Pennsylvania governor, who has a track record of appealing to voters in rural, conservative-leaning areas.`\
 https://nytimes.com/2024/09/24/us/politics/tammy-baldwin-josh-shapiro-trump-voters-wisconsin.html
+
+**Election 2024 Polls: Ohio**\
+`See the latest election polls and polling averages for Ohio.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-ohio.html
+
+**Election 2024 Polls: New Mexico**\
+`See the latest election polls and polling averages for New Mexico.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-new-mexico.html
 
 **Election 2024 Polls: Texas**\
 `See the latest election polls and polling averages for Texas.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-texas.html
 
-**Election 2024 Polls:Ohio**\
-`See the latest election polls and polling averages for Ohio.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-ohio.html
-
-**Election 2024 Polls:New Mexico**\
-`See the latest election polls and polling averages for New Mexico.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-new-mexico.html
-
-**Election 2024 Polls:California**\
+**Election 2024 Polls: California**\
 `See the latest election polls and polling averages for California.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-california.html
 
-**Election 2024 Polls:Maryland**\
+**Election 2024 Polls: Maryland**\
 `See the latest election polls and polling averages for Maryland.`\
 https://nytimes.com/interactive/2024/us/elections/polls-president-maryland.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/24/world/unga-2024-biden/iran-will-aim-to-both-
 **Zelensky Says Western Allies Must Allow Ukrainian Strikes Deep Into Russia**\
 `The leaders of Ukraine and Denmark said allied nations must lift restrictions on arms, increase their production and help Ukraine build weapons inside the country.`\
 https://nytimes.com/2024/09/24/us/politics/zelensky-ukraine-russia-strikes.html
-
-**‘We Will Dance Again’ Review: Remembering Oct. 7**\
-`In this documentary by Yariv Mozer, Israelis who attended the Nova music festival near the Gaza border describe how they survived the attack last year.`\
-https://nytimes.com/2024/09/24/movies/we-will-dance-again-review.html
 

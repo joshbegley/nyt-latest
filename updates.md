@@ -1,3 +1,23 @@
+**Guterres Urges World Leaders to Act on ‘Whirlwind’ of Crises**\
+`António Guterres, the secretary general of the United Nations, said the world was “edging towards the unimaginable” amid deepening challenges of war and climate change.`\
+https://nytimes.com/video/world/100000009716554/guterres-united-nations.html
+
+**Election 2024 Polls: Ohio**\
+`See the latest election polls and polling averages for Ohio.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-ohio.html
+
+**Election 2024 Polls: New Mexico**\
+`See the latest election polls and polling averages for New Mexico.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-new-mexico.html
+
+**Election 2024 Polls: California**\
+`See the latest election polls and polling averages for California.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-california.html
+
+**Election 2024 Polls: Maryland**\
+`See the latest election polls and polling averages for Maryland.`\
+https://nytimes.com/interactive/2024/us/elections/polls-president-maryland.html
+
 **Baldwin, With Shapiro in Tow, Looks For ‘Trump-Tammy Voters’ in Wisconsin**\
 `The Democratic senator, who is seeking a third term in a politically competitive state, rallied with the Pennsylvania governor, who has a track record of appealing to voters in rural, conservative-leaning areas.`\
 https://nytimes.com/2024/09/24/us/politics/tammy-baldwin-josh-shapiro-trump-voters-wisconsin.html
