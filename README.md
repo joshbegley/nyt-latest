@@ -1,3 +1,15 @@
+**Tracking a Potential Hurricane Headed Toward the U.S.**\
+`See the likely path and wind arrival times for Nine.`\
+https://nytimes.com/interactive/2024/09/24/weather/nine-map-path-tracker.html
+
+**Tennis Briefing: WTA coaching changes, Carlos Alcaraz's mojo and Marin Cilic's comeback**\
+`This week in tennis: Carlos Alcaraz's mojo, another flurry of withdrawals, and some tennis timewarps.`\
+https://nytimes.com/athletic/5787946/2024/09/24/tennis-results-analysis-alcaraz-cilic/
+
+**A Pygmy Hippo Is Stealing Hearts (and Biting Zookeepers)**\
+`Moo Deng, whose name translates to “bouncy pork,” has united the internet while following a familiar path to stardom.`\
+https://nytimes.com/2024/09/24/style/moo-deng-baby-pygmy-hippo-thailand.html
+
 **Report on Antisemitism at CUNY Calls for Changes Across the System**\
 `The report, commissioned by New York’s governor, found that the city’s university system was ill-equipped to handle rising antisemitism. But it also said the problem was not widespread.`\
 https://nytimes.com/2024/09/24/us/cuny-antisemitism-report.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5790542/2024/09/24/palace-digital-ticket/
 **Flick: Yamal won't be rested against Getafe**\
 `Barcelona head coach Hansi Flick says he will not rest Lamine Yamal during Wednesday’s La Liga game against Getafe.`\
 https://nytimes.com/athletic/5790780/2024/09/24/lamine-yamal-barcelona-rest/
-
-**Two fans handed football banning orders over Man United vs Liverpool tragedy chanting**\
-`Two more supporters have been handed football banning orders over tragedy chanting relating to Manchester United vs Liverpool fixtures.`\
-https://nytimes.com/athletic/5790725/2024/09/24/manchester-united-liverpool-tragedy-chanting-bans/
-
-**As Lebanon Reels From Israeli Attacks, the Future Is Murky for a Wounded Hezbollah**\
-`Some experts said that Israel’s onslaught had left Hezbollah in disarray. Others noted its large weapons stockpiles and history of adapting to battle Israel’s much more high-tech military.`\
-https://nytimes.com/2024/09/24/world/middleeast/israel-lebanon-hezbollah.html
-
-**Weekly Student News Quiz: Instagram, Lebanon, Baseball Record**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/09/24/learning/24StudentNewsQuiz.html
 
