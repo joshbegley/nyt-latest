@@ -1,3 +1,7 @@
+**Hemmed In by the Hard Right, Johnson Again Turns to Democrats for Votes**\
+`The House speaker is trying to get a short-term spending agreement passed despite opposition from some conservative members of his own party.`\
+https://nytimes.com/2024/09/24/us/politics/johnson-spending-democrats-republicans.html
+
 **U.S. Accuses Visa of Monopoly in Debit Cards**\
 `The financial giant, which processes the majority of debit card spending in the United States, unfairly imposed fees on merchants and deterred rivals, the Justice Department said.`\
 https://nytimes.com/2024/09/24/business/dealbook/visa-antitrust-lawsuit-debit-cards.html
