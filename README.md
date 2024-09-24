@@ -1,3 +1,7 @@
+**New York Resident Dies of Eastern Equine Encephalitis Infection**\
+`Gov. Kathy Hochul declared the mosquito-borne illness a public health threat after the first confirmed case in the state in nearly a decade resulted in a death.`\
+https://nytimes.com/2024/09/23/nyregion/eastern-equine-encephalitis-death.html
+
 **Corrections: Sept. 24, 2024**\
 `Corrections that appeared in print on Tuesday, Sept. 24, 2024.`\
 https://nytimes.com/2024/09/23/pageoneplus/corrections-sept-24-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5789725/2024/09/23/chargers-derwin-james-suspension
 **Vance, Declining to Denounce Robinson, Lashes Out at Media Instead**\
 `JD Vance, campaigning in North Carolina, criticized journalists for asking about Mark Robinson, the embattled Republican running for governor there.`\
 https://nytimes.com/2024/09/23/us/politics/vance-robinson-north-carolina.html
-
-**The Restaurant List 2024**\
-`Our 50 favorite places in America right now.`\
-https://nytimes.com/interactive/2024/dining/best-restaurants-america.html
 
