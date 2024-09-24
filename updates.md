@@ -1,3 +1,11 @@
+**Caroline Ellison, Star Witness at FTX Trial, Is Sentenced to 2 Years in Prison**\
+`A top adviser to Sam Bankman-Fried, the disgraced founder of FTX, Ms. Ellison pleaded guilty to conspiring with him to steal $8 billion and became a crucial witness for the prosecution.`\
+https://nytimes.com/2024/09/24/technology/caroline-ellison-ftx-sentence.html
+
+**Up In the Air With the Hurricane Hunters**\
+`To understand how powerful a storm might get, experts get their data by flying right into it.`\
+https://nytimes.com/2024/09/24/weather/hurricane-hunter-aircraft-helene.html
+
 **Brett Favre Reveals He Has Parkinson’s Disease**\
 `Mr. Favre, the former N.F.L. quarterback who fell from grace after Mississippi officials accused him of helping divert funds meant for low-income residents, announced the diagnosis before Congress.`\
 https://nytimes.com/2024/09/24/us/politics/brett-favre-parkinsons.html
