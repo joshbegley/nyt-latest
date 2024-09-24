@@ -1,3 +1,11 @@
+**Word of the Day: contrive**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/24/learning/word-of-the-day-contrive.html
+
+**Word of the Day: patently**\
+`This word has appeared in 55 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/24/learning/word-of-the-day-patently.html
+
 **McDavid reacts to viral clip from Amazon docuseries**\
 `A teaser video showed McDavid unleashing in the dressing room after the Oilers lost Game 2 of the Stanley Cup Final.`\
 https://nytimes.com/athletic/5790166/2024/09/24/oilers-connor-mcdavid-amazon-clip-viral/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5787733/2024/09/24/inside-newcastle-tonali-pope-pif
 **Rodri is a symptom of a sport at breaking point - and we're all to blame**\
 `A serious injury to one of the world's best — who had warned about the demands placed on players — should be a wake-up call`\
 https://nytimes.com/athletic/5788223/2024/09/24/rodri-manchester-city-injury-schedule/
-
-**Tragedy, tactics, glory and always talking - Erik ten Hag, the FC Twente years**\
-`"His heart is Twente, and it will always be," friends and team-mates of Erik ten Hag tell stories of the Manchester United manager's past`\
-https://nytimes.com/athletic/5755314/2024/09/24/ten-hag-fc-twente-years/
-
-**China Cuts Interest Rates and Mortgage Down Payments**\
-`The country’s central bank also freed commercial banks to lend more money in a package of moves aimed at rekindling growth in a stagnant economy.`\
-https://nytimes.com/2024/09/24/business/china-cuts-mortgage-rates.html
 
