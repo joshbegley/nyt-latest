@@ -1,3 +1,15 @@
+**China Cuts Interest Rates and Mortgage Down Payments**\
+`The country’s central bank also freed commercial banks to lend more money in a package of moves aimed at rekindling growth in a stagnant economy.`\
+https://nytimes.com/2024/09/24/business/china-cuts-mortgage-rates.html
+
+**Chelsea's newest hire Gupta, one of the most highly-regarded analytical minds in the NBA**\
+`Timberwolves executive vice president of basketball operations Sachin Gupta is set to join Chelsea in the near future`\
+https://nytimes.com/athletic/5788693/2024/09/24/sachin-gupta-chelsea-profile/
+
+**Arsenal's turnaround: How Mikel Arteta transformed them from soft touch to streetwise**\
+`Even if certain moments can be handled better, Arsenal are no longer easy to play against — their manager has been behind it`\
+https://nytimes.com/athletic/5787860/2024/09/24/arsenal-arteta-dark-arts/
+
 **Is there a trend of Premier League head coaches getting younger?**\
 `At 31, Fabian Hurzeler is the Premier League's youngest ever permanent manager/head coach. But is he an anomaly or part of a deeper trend?`\
 https://nytimes.com/athletic/5779649/2024/09/24/premier-league-managers-younger/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/24/business/china-trade-russia-north-korea.html
 **Spurned by Social Media, Publishers Chase Readers on WhatsApp**\
 `News outlets are experimenting with a feature in the world’s most popular messaging app that allows them to send links and headlines directly to followers.`\
 https://nytimes.com/2024/09/24/business/media/whatsapp-news-outlets.html
-
-**Astros' Yordan Alvarez has knee sprain, will miss Mariners series**\
-`An X-ray taken on Sunday afternoon revealed "inflammation," Astros manager Joe Espada said.`\
-https://nytimes.com/athletic/5790082/2024/09/23/astros-yordan-alvarez-knee-injury-update/
-
-**Blue Jays takeaways: Vladimir Guerrero Jr. chasing 200, Danny Jansen returns with Red Sox**\
-`Guerrero's play has been the brightest spot in this disappointing season.`\
-https://nytimes.com/athletic/5790028/2024/09/23/blue-jays-vladimir-guerrero-jr-200-hits-chase/
-
-**Trump Tells Women That They Won’t ‘Be Thinking About Abortion’**\
-`“You will be protected, and I will be your protector,” said former President Donald J. Trump. Polls have shown he is struggling to cultivate support among women, for whom abortion rights remain a top issue.`\
-https://nytimes.com/2024/09/23/us/politics/trump-women-abortion.html
 
