@@ -1,3 +1,11 @@
+**[Not My Typo]**\
+`Kevin L. Shellito’s debut Times puzzle is hot off the presses.`\
+https://nytimes.com/2024/09/23/crosswords/daily-puzzle-2024-09-24.html
+
+**Thousands of Lebanese Are Displaced Amid Israeli Strikes**\
+`Amal Mohamed Zayyat, a resident of southern Lebanon, sought shelter in Beirut after Israel stepped up its attacks against what it said were Hezbollah targets.`\
+https://nytimes.com/video/world/middleeast/100000009714893/lebanon-israel-airstrikes-displaced.html
+
 **Jets sign Cole Perfetti to 2-year contract**\
 `Perfetti missed the first five days of training camp as negotiations for the RFA forward dragged on.`\
 https://nytimes.com/athletic/5789860/2024/09/23/winnipeg-jets-cole-perfetti-contract/
