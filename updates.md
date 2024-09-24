@@ -1,3 +1,11 @@
+**Astros' Yordan Alvarez has knee sprain, will miss Mariners series**\
+`An X-ray taken on Sunday afternoon revealed "inflammation," Astros manager Joe Espada said.`\
+https://nytimes.com/athletic/5790082/2024/09/23/astros-yordan-alvarez-knee-injury-update/
+
+**Trump Tells Women That They Won’t ‘Be Thinking About Abortion’**\
+`“You will be protected, and I will be your protector,” said former President Donald J. Trump. Polls have shown he is struggling to cultivate support among women, for whom abortion rights remain a top issue.`\
+https://nytimes.com/2024/09/23/us/politics/trump-women-abortion.html
+
 **Blue Jays takeaways: Vladimir Guerrero Jr. chasing 200, Danny Jansen returns with Red Sox**\
 `Guerrero's play has been the brightest spot in this disappointing season.`\
 https://nytimes.com/athletic/5790028/2024/09/23/blue-jays-vladimir-guerrero-jr-200-hits-chase/
