@@ -1,3 +1,11 @@
+**Live Q&A: Week 4 fantasy football add/drop chat with Jay Felicio, Tuesday 9/24 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5788657/2024/09/24/live-qa-week-4-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-9-24-at-5-p-m-et/
+
+**Israel says it killed another top leader of Hezbollah, the latest blow in a concerted campaign.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/israel-says-it-killed-another-top-leader-of-hezbollah-the-latest-blow-in-a-concerted-campaign
+
 **Both Presidential Candidates Are Ignoring American Wellness**\
 `The U.S. allows chemicals and pesticides banned by Europe, but the issue hasn’t come up in the campaign.`\
 https://nytimes.com/2024/09/17/opinion/chemicals-wellness-campaign-candidates.html
