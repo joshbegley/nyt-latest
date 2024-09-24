@@ -1,3 +1,7 @@
+**In his first U.N. speech, Iran’s president aimed to defuse tensions with the West while criticizing Israel.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/24/world/unga-2024-biden/in-his-first-un-speech-irans-president-aimed-to-defuse-tensions-with-the-west-while-criticizing-israel
+
 **49ers mailbag: Options at defensive tackle; Why was Christian McCaffrey in Germany?**\
 `Among the questions this week: When will Ricky Pearsall be back on the field and what's the root cause of all the special teams blunders?`\
 https://nytimes.com/athletic/5791737/2024/09/24/49ers-mailbag-christian-mccaffrey-defensive-tackle/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/us/politics/trump-jan-6-judge-trial.html
 **Woman Accuses Sean Combs of Raping Her in Filmed Attack**\
 `In a new lawsuit, the woman said Mr. Combs and his bodyguard drugged and assaulted her in his recording studio in 2001.`\
 https://nytimes.com/2024/09/24/arts/music/sean-combs-thalia-graves-lawsuit.html
-
-**Vance and Walz Will Debate Standing Up, in a Rarity for V.P. Clashes**\
-`The vice-presidential debate will be the first without chairs since Joe Biden’s face-off against Sarah Palin in 2008. Both candidates are preparing this week, with Tim Walz heading to Northern Michigan.`\
-https://nytimes.com/2024/09/24/us/politics/vance-walz-debate-standing.html
 
