@@ -1,3 +1,7 @@
+**David Banks, New York City’s Schools Chancellor, to Resign**\
+`The resignation of Mr. Banks, planned for the end of the year, comes amid a flurry of federal investigations surrounding the administration of Mayor Eric Adams.`\
+https://nytimes.com/2024/09/24/nyregion/david-banks-resigns-nyc-schools-chancellor.html
+
 **NFL best bets Week 4: Picking the Jets to stay hot and a pair of underdogs to win**\
 `Austin Mock has a loaded betting slip for NFL Week 4, including picking a pair of underdogs to win.`\
 https://nytimes.com/athletic/5791465/2024/09/24/nfl-best-bets-week-4-jets-bills-buccaneers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/us/politics/watch-vance-walz-vp-debate.html
 **Behind Kamala Harris’s Rise: Silicon Valley’s Wealthiest Woman**\
 `The alliance between Kamala Harris and Laurene Powell Jobs is a genuine friendship that has thrust the press-shy billionaire philanthropist into the political spotlight.`\
 https://nytimes.com/2024/09/24/us/politics/kamala-harris-laurene-powell-jobs.html
-
-**Live Q&A: Week 4 fantasy football add/drop chat with Jay Felicio, Tuesday 9/24 at 5 p.m. ET**\
-`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5788657/2024/09/24/live-qa-week-4-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-9-24-at-5-p-m-et/
 
