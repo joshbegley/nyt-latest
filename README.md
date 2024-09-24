@@ -1,6 +1,14 @@
+**What Are People Saying About the New Sally Rooney Book?**\
+`“Intermezzo,” the Irish novelist’s fourth novel, is one of this fall’s most anticipated books.`\
+https://nytimes.com/2024/09/24/books/review/intermezzo-sally-rooney-review-roundup.html
+
+**Here is how the death toll from the first day of Israeli strikes in Lebanon compares to the toll from the 2006 war.**\
+`By Pablo Robles and Agnes Chang`\
+https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/here-is-how-the-death-toll-from-the-first-day-of-israeli-strikes-in-lebanon-compares-to-the-toll-from-the-2006-war
+
 **FA charges Gibbs-White & Nuno after Brighton draw**\
 `Nuno Espirito Santo and Morgan Gibbs-White have been charged by the Football Association (FA) following the late drama at the end of Sunday&#8217;s 2-2 draw with Brighton &amp; Hove Albion.`\
-https://nytimes.com/athletic/5790937/2024/09/24/morgan-gibbs-fa-charge-nottingham-forest/
+https://nytimes.com/athletic/5790937/2024/09/24/gibbs-white-fa-charge-nottingham-forest/
 
 **Jerry Jones 'completely' accepts blame for Cowboys 1-2 start**\
 `Jones' comments come after a local Dallas news station conducted a poll where 78 percent of voters said the blame falls on the owner.`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/24/world/unga-2024-biden/escalation-in-the-midd
 **Jazzy Davidson, 5-star recruit in 2025 class, commits to USC**\
 `The 6-foot-2 guard out of Clackamas, Ore., joins All-American star JuJu Watkins at USC.`\
 https://nytimes.com/athletic/5790933/2024/09/24/jazzy-davidson-usc-womens-basketball/
-
-**The Windup: Phillies likely to get playoff rest this time**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5790940/2024/09/24/phillies-nl-east-mlb-playoffs-the-windup/
-
-**Mark Zuckerberg Is Done With Politics**\
-`He was once a backer of liberal causes. Then everyone seemed to turn on him. Now he wants to stay away from politics — if that’s possible.`\
-https://nytimes.com/2024/09/24/technology/mark-zuckerberg-trump-politics.html
 
