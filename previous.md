@@ -1,3 +1,11 @@
+**Judge Rejects Trump’s Last-Minute Bid to Delay Assessment of Jan. 6 Case**\
+`Federal prosecutors can come ahead with a lengthy filing containing evidence backing their argument that the indictment of the former president can survive the Supreme Court’s immunity ruling.`\
+https://nytimes.com/2024/09/24/us/politics/trump-jan-6-judge-trial.html
+
+**Woman Accuses Sean Combs of Raping Her in Filmed Attack**\
+`In a new lawsuit, the woman said Mr. Combs and his bodyguard drugged and assaulted her in his recording studio in 2001.`\
+https://nytimes.com/2024/09/24/arts/music/sean-combs-thalia-graves-lawsuit.html
+
 **Vance and Walz Will Debate Standing Up, in a Rarity for V.P. Clashes**\
 `The vice-presidential debate will be the first without chairs since Joe Biden’s face-off against Sarah Palin in 2008. Both candidates are preparing this week, with Tim Walz heading to Northern Michigan.`\
 https://nytimes.com/2024/09/24/us/politics/vance-walz-debate-standing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/24/nyregion/david-banks-resigns-nyc-schools-chancell
 **NFL best bets Week 4: Picking the Jets to stay hot and a pair of underdogs to win**\
 `Austin Mock has a loaded betting slip for NFL Week 4, including picking a pair of underdogs to win.`\
 https://nytimes.com/athletic/5791465/2024/09/24/nfl-best-bets-week-4-jets-bills-buccaneers/
-
-**Caroline Ellison, Star Witness at FTX Trial, Is Sentenced to 2 Years in Prison**\
-`A top adviser to Sam Bankman-Fried, the disgraced founder of FTX, Ms. Ellison pleaded guilty to conspiring with him to steal $8 billion and became a crucial witness for the prosecution.`\
-https://nytimes.com/2024/09/24/technology/caroline-ellison-ftx-sentence.html
-
-**Up In the Air With the Hurricane Hunters**\
-`To understand how powerful a storm might get, experts get their data by flying right into it.`\
-https://nytimes.com/2024/09/24/weather/hurricane-hunter-aircraft-helene.html
 
