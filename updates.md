@@ -1,3 +1,7 @@
+**Cilic makes ATP Tour history with Hangzhou Open win**\
+`It is the Croatian's 21st tour trophy.`\
+https://nytimes.com/athletic/5790904/2024/09/24/cilic-lowest-ranked-atp-title-winners/
+
 **What Are People Saying About the New Sally Rooney Book?**\
 `“Intermezzo,” the Irish novelist’s fourth novel, is one of this fall’s most anticipated books.`\
 https://nytimes.com/2024/09/24/books/review/intermezzo-sally-rooney-review-roundup.html
