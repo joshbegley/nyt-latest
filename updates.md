@@ -1,3 +1,7 @@
+**49ers mailbag: Options at defensive tackle; Why was Christian McCaffrey in Germany?**\
+`Among the questions this week: When will Ricky Pearsall be back on the field and what's the root cause of all the special teams blunders?`\
+https://nytimes.com/athletic/5791737/2024/09/24/49ers-mailbag-christian-mccaffrey-defensive-tackle/
+
 **Biden Warned the World Is at an ‘Inflection Point’**\
 `Also, thousands are fleeing southern Lebanon. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/09/24/briefing/biden-speech-united-nations-best-restaurants.html
