@@ -1,3 +1,7 @@
+**Pac-12 files lawsuit against Mountain West seeking to avoid poaching fees**\
+`The Pac-12 argues that the tens of millions it owes the Mountain West in poaching fees amount to an antitrust violation.`\
+https://nytimes.com/athletic/5791412/2024/09/24/pac-12-mountain-west-lawsuit-poaching-fees/
+
 **Send Us Your Questions About Climate Change**\
 `What should The Times ask change experts, world leaders and policymakers at its Climate Forward conference on Sept. 25?`\
 https://nytimes.com/2024/09/24/climate/climate-forward-conference-questions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791346/2024/09/24/kaden-braithwaite-man-city-carab
 **Steelers preparing Justin Fields to start again**\
 `Tomlin: "I want Justin (Fields) singularly focused on starting for us and doing what's required to be ready to do that.”`\
 https://nytimes.com/athletic/5791227/2024/09/24/steelers-justin-fields-russell-wilson-status/
-
-**Why the Tigers called up Jackson Jobe for their playoff hunt**\
-`Top prospect Jackson Jobe will pitch out of the bullpen for the Tigers in their final six games of the season. `\
-https://nytimes.com/athletic/5791253/2024/09/24/tigers-jackson-jobe-call-up-playoffs/
 

@@ -1,3 +1,7 @@
+**Pac-12 files lawsuit against Mountain West seeking to avoid poaching fees**\
+`The Pac-12 argues that the tens of millions it owes the Mountain West in poaching fees amount to an antitrust violation.`\
+https://nytimes.com/athletic/5791412/2024/09/24/pac-12-mountain-west-lawsuit-poaching-fees/
+
 **Send Us Your Questions About Climate Change**\
 `What should The Times ask change experts, world leaders and policymakers at its Climate Forward conference on Sept. 25?`\
 https://nytimes.com/2024/09/24/climate/climate-forward-conference-questions.html
