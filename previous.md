@@ -1,3 +1,11 @@
+**In Rare Graft Case in Singapore, Former Minister Pleads Guilty**\
+`S. Iswaran, the former transport minister, had maintained his innocence on the corruption charge for months but on Tuesday pleaded guilty to five lesser offenses.`\
+https://nytimes.com/2024/09/24/world/asia/singapore-minister-corruption-case.html
+
+**The Pulse: MNF duel lived up to the hype**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5790181/2024/09/24/jayden-daniels-joe-burrow-lsu-commanders-bengals-the-pulse/
+
 **Partizan head coach injured by own fans after Belgrade derby defeat**\
 `Partizan Belgrade head coach Aleksandar Stanojevic was left with injuries after his club&#8217;s fans broke into the dressing room following a four-goal defeat by Red Star Belgrade.`\
 https://nytimes.com/athletic/5790487/2024/09/24/belgrade-derby-partizan-red-star/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5789728/2024/09/24/nba-storylines-preseason-paul-ge
 **Jed Hoyer acknowledges Cubs have work to do to close gap between them and playoff teams**\
 `Fans expect more. Apparently so does everyone involved with the Cubs. So now their job is to get it done and deliver.`\
 https://nytimes.com/athletic/5789878/2024/09/24/jed-hoyer-cubs-craig-counsell-comments/
-
-**Israeli Strikes Kill Hundreds in Lebanon, and Biden to Address U.N.**\
-`Plus, the U.S. News college rankings are out.`\
-https://nytimes.com/2024/09/24/podcasts/israeli-strikes-lebanon-biden-un.html
-
-**Aldridge: Jayden Daniels, out of central casting, looks like a leading man for Washington**\
-`It's been a long time since Washington had its own great young QB on the field with talent and potential for all of America to see.`\
-https://nytimes.com/athletic/5789400/2024/09/24/jayden-daniels-commanders-aldridge/
 
