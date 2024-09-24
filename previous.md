@@ -1,3 +1,7 @@
+**Inside Newcastle Q&A: Tonali omission, Pope's mistakes and PIF's commitment**\
+`Newcastle reporter Chris Waugh answers questions on the main talking points at the club this week`\
+https://nytimes.com/athletic/5787733/2024/09/24/inside-newcastle-tonali-pope-pif/
+
 **Rodri is a symptom of a sport at breaking point - and we're all to blame**\
 `A serious injury to one of the world's best — who had warned about the demands placed on players — should be a wake-up call`\
 https://nytimes.com/athletic/5788223/2024/09/24/rodri-manchester-city-injury-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/world/middleeast/lebanon-mood-israel-strikes.html
 **The U.S. News College Rankings Are Out. Cue the Rage and Obsession.**\
 `Every year, U.S. News & World Report publishes rankings that often change very little, though they draw attention and frustration from universities and applicants.`\
 https://nytimes.com/2024/09/24/us/us-news-rankings-colleges.html
-
-**Tuesday's MLB best bets: Projections for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
-https://nytimes.com/athletic/5789137/2024/09/24/mlb-odds-best-bets-projections-september-24/
 

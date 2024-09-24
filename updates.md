@@ -1,3 +1,7 @@
+**Inside Newcastle Q&A: Tonali omission, Pope's mistakes and PIF's commitment**\
+`Newcastle reporter Chris Waugh answers questions on the main talking points at the club this week`\
+https://nytimes.com/athletic/5787733/2024/09/24/inside-newcastle-tonali-pope-pif/
+
 **Rodri is a symptom of a sport at breaking point - and we're all to blame**\
 `A serious injury to one of the world's best — who had warned about the demands placed on players — should be a wake-up call`\
 https://nytimes.com/athletic/5788223/2024/09/24/rodri-manchester-city-injury-schedule/
