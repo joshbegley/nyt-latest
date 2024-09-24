@@ -1,3 +1,11 @@
+**[Not My Typo]**\
+`Kevin L. Shellito’s debut Times puzzle is hot off the presses.`\
+https://nytimes.com/2024/09/23/crosswords/daily-puzzle-2024-09-24.html
+
+**Thousands of Lebanese Are Displaced Amid Israeli Strikes**\
+`Amal Mohamed Zayyat, a resident of southern Lebanon, sought shelter in Beirut after Israel stepped up its attacks against what it said were Hezbollah targets.`\
+https://nytimes.com/video/world/middleeast/100000009714893/lebanon-israel-airstrikes-displaced.html
+
 **Oklahoma switches starting QB to Michael Hawkins after Tennessee drubbing**\
 `Arnold, a former-five star recruit, was benched for Hawkins in the Sooners' 25-15 loss against Tennessee.`\
 https://nytimes.com/athletic/5789908/2024/09/23/oklahoma-quarterback-michael-hawkins-jackson-arnold-starter/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5789845/2024/09/23/utah-state-pac-12-mountain-west/
 **Four-time All-Star, Rockies veteran Charlie Blackmon announces retirement**\
 `Blackmon is one of the most prolific players to put on a Colorado uniform.`\
 https://nytimes.com/athletic/5789819/2024/09/23/rockies-charlie-blackmon-announces-retirement/
-
-**Whom will the Reds hire as manager? A look at 9 potential candidates**\
-`Candidates include Skip Schumaker, Scott Servais, Will Venable, Barry Larkin and others.`\
-https://nytimes.com/athletic/5789636/2024/09/23/reds-manager-candidates/
-
-**5.9 Magnitude Earthquake Off Japan Coast Triggers Tsunami Advisory**\
-`The earthquake occurred off the coast of Torishima Island, which is uninhabited, at 8:14 a.m. on Tuesday, according to the Japan Meteorological Agency.`\
-https://nytimes.com/2024/09/23/world/asia/japan-earthquake-tsunami.html
 
