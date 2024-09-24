@@ -1,5 +1,9 @@
 **Why Debunked Falsehoods About Haitian Migrants Gained Traction**\
 `The racist and inflammatory narrative spread on the backs of memes, greed, biases and news deserts.`\
+https://nytimes.com/2024/09/24/us/politics/haitian-migrants-disinformation.html
+
+**Why Debunked Falsehoods About Haitian Migrants Gained Traction**\
+`The racist and inflammatory narrative spread on the backs of memes, greed, biases and news deserts.`\
 https://nytimes.com/2024/09/24/us/politics/haitian-migrants-disinformatiom.html
 
 **After hazardous waste history, Bay FC's new training site is 'available for re-use by the public'**\

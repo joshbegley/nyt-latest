@@ -1,6 +1,6 @@
 **Why Debunked Falsehoods About Haitian Migrants Gained Traction**\
 `The racist and inflammatory narrative spread on the backs of memes, greed, biases and news deserts.`\
-https://nytimes.com/2024/09/24/us/politics/haitian-migrants-disinformatiom.html
+https://nytimes.com/2024/09/24/us/politics/haitian-migrants-disinformation.html
 
 **After hazardous waste history, Bay FC's new training site is 'available for re-use by the public'**\
 `Treasure Island has been the focus of community scrutiny due to its history of hazardous waste and alleged ineffective cleanup.`\
