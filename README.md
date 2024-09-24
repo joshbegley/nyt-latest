@@ -1,3 +1,11 @@
+**Caroline Ellison, Star Witness at FTX Trial, Is Sentenced to 2 Years in Prison**\
+`A top adviser to Sam Bankman-Fried, the disgraced founder of FTX, Ms. Ellison pleaded guilty to conspiring with him to steal $8 billion and became a crucial witness for the prosecution.`\
+https://nytimes.com/2024/09/24/technology/caroline-ellison-ftx-sentence.html
+
+**Up In the Air With the Hurricane Hunters**\
+`To understand how powerful a storm might get, experts get their data by flying right into it.`\
+https://nytimes.com/2024/09/24/weather/hurricane-hunter-aircraft-helene.html
+
 **Brett Favre Reveals He Has Parkinson’s Disease**\
 `Mr. Favre, the former N.F.L. quarterback who fell from grace after Mississippi officials accused him of helping divert funds meant for low-income residents, announced the diagnosis before Congress.`\
 https://nytimes.com/2024/09/24/us/politics/brett-favre-parkinsons.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5788657/2024/09/24/live-qa-week-4-fantasy-football-
 **Israel says it killed another top leader of Hezbollah, the latest blow in a concerted campaign.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/israel-says-it-killed-another-top-leader-of-hezbollah-the-latest-blow-in-a-concerted-campaign
-
-**Furious over the continuing war in Gaza, world leaders castigate Israel.**\
-`By Neil MacFarquhar`\
-https://nytimes.com/live/2024/09/24/world/unga-2024-biden/furious-over-the-continuing-war-in-gaza-world-leaders-castigate-israel
-
-**Both Presidential Candidates Are Ignoring American Wellness**\
-`The U.S. allows chemicals and pesticides banned by Europe, but the issue hasn’t come up in the campaign.`\
-https://nytimes.com/2024/09/17/opinion/chemicals-wellness-campaign-candidates.html
 
