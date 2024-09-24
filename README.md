@@ -1,3 +1,7 @@
+**Vance and Walz Will Debate Standing Up, in a Rarity for V.P. Clashes**\
+`The vice-presidential debate will be the first without chairs since Joe Biden’s face-off against Sarah Palin in 2008. Both candidates are preparing this week, with Tim Walz heading to Northern Michigan.`\
+https://nytimes.com/2024/09/24/us/politics/vance-walz-debate-standing.html
+
 **House Panel Recommends Holding Blinken in Contempt**\
 `Democrats accused Republicans of trying to damage the Biden administration at the height of a campaign season.`\
 https://nytimes.com/2024/09/24/us/politics/house-blinken-contempt-afghanistan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/technology/caroline-ellison-ftx-sentence.html
 **Up In the Air With the Hurricane Hunters**\
 `To understand how powerful a storm might get, experts get their data by flying right into it.`\
 https://nytimes.com/2024/09/24/weather/hurricane-hunter-aircraft-helene.html
-
-**Brett Favre Reveals He Has Parkinson’s Disease**\
-`Mr. Favre, the former N.F.L. quarterback who fell from grace after Mississippi officials accused him of helping divert funds meant for low-income residents, announced the diagnosis before Congress.`\
-https://nytimes.com/2024/09/24/us/politics/brett-favre-parkinsons.html
 

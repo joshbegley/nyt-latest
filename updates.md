@@ -1,3 +1,7 @@
+**House Panel Recommends Holding Blinken in Contempt**\
+`Democrats accused Republicans of trying to damage the Biden administration at the height of a campaign season.`\
+https://nytimes.com/2024/09/24/us/politics/house-blinken-contempt-afghanistan.html
+
 **Zelensky Addresses the Security Council, Calling for Attention to Stay on Ukraine**\
 `“Russia can only be forced into peace.” President Volodymyr Zelensky of Ukraine urged the Council members to sustain their backing for his country’s resistance to Russia’s full-scale invasion.`\
 https://nytimes.com/2024/09/24/world/europe/zelensky-un-security-council-ukraine-war.html
