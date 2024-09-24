@@ -1,3 +1,7 @@
+**Stephen Colbert Is Tickled by Trump’s Vow to Make Women Great Again**\
+`“I‘m not sure if he’s running for president or marketing a new brand of tampon,” Colbert said on Monday.`\
+https://nytimes.com/2024/09/24/arts/television/stephen-colbert-trump-women.html
+
 **Here are the latest developments.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767200/2024/09/24/rio-ngumoha-liverpool-academy/
 **How should Nottingham Forest line up without talisman Morgan Gibbs-White?**\
 `Forest will be without their most creative player against Fulham - here how will Nuno Espirito Santo could shuffle his pack`\
 https://nytimes.com/athletic/5788375/2024/09/24/nottingham-forest-gibbs-white-formation-fulham/
-
-**Inside Newcastle Q&A: Tonali omission, Pope's mistakes and PIF's commitment**\
-`Newcastle reporter Chris Waugh answers questions on the main talking points at the club this week`\
-https://nytimes.com/athletic/5787733/2024/09/24/inside-newcastle-tonali-pope-pif/
 
