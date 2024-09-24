@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5789908/2024/09/23/oklahoma-quarterback-michael-haw
 https://nytimes.com/2024/09/23/business/elon-musk-giorgia-meloni.html
 
 **Jets sign Cole Perfetti to 2-year contract**\
-`Perfetti missed the first five days of training camp as negotiations for the RFA forward dragged on.`\
+`Perfetti missed the first five days of training camp as negotiations between the Jets and RFA forward dragged on.`\
 https://nytimes.com/athletic/5789860/2024/09/23/winnipeg-jets-cole-perfetti-contract/
 
 **The mindset that carried the Phillies to their first NL East title in 13 years**\
