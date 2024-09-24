@@ -1,3 +1,7 @@
+**Sequel to Ghost of Tsushima Expands a Fresh Sony Franchise**\
+`The anticipated game, Ghost of Yotei, will follow a woman on a quest for vengeance in the snowy reaches of northern Japan.`\
+https://nytimes.com/2024/09/24/arts/ghost-of-yotei-tsushima-sequel-playstation.html
+
 **Biden Boasts of Climate Wins and Warns of Reversals Under Trump**\
 `At an event in New York, the president said federal investments in climate action would be at risk if former President Donald J. Trump retook the White House.`\
 https://nytimes.com/2024/09/24/climate/biden-bloomberg-climate-trump.html
