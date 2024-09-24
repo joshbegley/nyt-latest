@@ -1,3 +1,15 @@
+**The Friedkin's proposed takeover gives Everton hope - which has been completely absent for too long**\
+`Everton fans have had to witness the slow and steady decline of the club they love - Friedkin's proposed takeover offers hope, at last`\
+https://nytimes.com/athletic/5790545/2024/09/24/everton-takeover-friedkin-hope/
+
+**Is Visa a Monopoly?**\
+`The Justice Department is expected to sue the global payments giant as soon as Tuesday, accusing the company of stifling competition.`\
+https://nytimes.com/2024/09/24/business/dealbook/visa-antitrust-biden-justice-department.html
+
+**What matters most for the Canucks going into preseason? 5 takeaways from training camp**\
+`On the state of the Canucks goaltending, Jonathan Lekkerimäki's readiness and more.`\
+https://nytimes.com/athletic/5788730/2024/09/24/canucks-training-camp-takeaways/
+
 **Dodgers takeaways: A big week ahead with postseason implications**\
 `Dave Roberts summed it up best: “I really haven’t seen a player as locked in like Shohei is, for as long as he’s been, in quite some time.” `\
 https://nytimes.com/athletic/5789068/2024/09/24/dodgers-shohei-ohtani-playoff-scenarios/
