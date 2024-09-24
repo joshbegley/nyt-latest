@@ -1,3 +1,11 @@
+**Zelensky Says Western Allies Must Allow Ukrainian Strikes Deep Into Russia**\
+`The leaders of Ukraine and Denmark said allied nations must lift restrictions on arms, increase their production and help Ukraine build weapons inside the country.`\
+https://nytimes.com/2024/09/24/us/politics/zelensky-ukraine-russia-strikes.html
+
+**‘We Will Dance Again’ Review: Remembering Oct. 7**\
+`In this documentary by Yariv Mozer, Israelis who attended the Nova music festival near the Gaza border describe how they survived the attack last year.`\
+https://nytimes.com/2024/09/24/movies/we-will-dance-again-review.html
+
 **State Police in N.J. ‘Weaponized’ Disciplinary Investigations, Reports Find**\
 `The state’s attorney general has seized control of the agency’s human resources and equal opportunity functions after investigations into racial and gender bias.`\
 https://nytimes.com/2024/09/24/nyregion/new-jersey-internal-affairs-investigations-attorney-general.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5790904/2024/09/24/cilic-lowest-ranked-atp-title-wi
 **What Are People Saying About the New Sally Rooney Book?**\
 `“Intermezzo,” the Irish novelist’s fourth novel, is one of this fall’s most anticipated books.`\
 https://nytimes.com/2024/09/24/books/review/intermezzo-sally-rooney-review-roundup.html
-
-**Here is how the death toll from the first day of Israeli strikes in Lebanon compares to the toll from the 2006 war.**\
-`By Pablo Robles and Agnes Chang`\
-https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/here-is-how-the-death-toll-from-the-first-day-of-israeli-strikes-in-lebanon-compares-to-the-toll-from-the-2006-war
-
-**FA charges Gibbs-White & Nuno after Brighton draw**\
-`Nottingham Forest duo Nuno Espirito Santo and Morgan Gibbs-White have been charged by the Football Association (FA) following the late drama at the end of Sunday&#8217;s 2-2 draw with Brighton &amp; Hove Albion.`\
-https://nytimes.com/athletic/5790937/2024/09/24/gibbs-white-fa-charge-nottingham-forest/
 
