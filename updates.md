@@ -1,3 +1,7 @@
+**Liverpool and West Ham supporters groups to unite against ticket price rises**\
+`Liverpool and West Ham United supporters are pulling together at Anfield on Wednesday night in a solidarity protest against ticket prices.`\
+https://nytimes.com/athletic/5790357/2024/09/24/liverpool-supporters-ticket-prices-west-ham/
+
 **New Yorkers Brace for Gridlock and Headaches as U.N. Convenes**\
 `The U.N. General Assembly brings scores of world leaders to Manhattan’s East Side each year. Residents are concerned about disrupted commutes.`\
 https://nytimes.com/2024/09/24/nyregion/un-meeting-nyc-traffic.html

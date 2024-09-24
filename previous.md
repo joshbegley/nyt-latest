@@ -1,3 +1,7 @@
+**Liverpool and West Ham supporters groups to unite against ticket price rises**\
+`Liverpool and West Ham United supporters are pulling together at Anfield on Wednesday night in a solidarity protest against ticket prices.`\
+https://nytimes.com/athletic/5790357/2024/09/24/liverpool-supporters-ticket-prices-west-ham/
+
 **New Yorkers Brace for Gridlock and Headaches as U.N. Convenes**\
 `The U.N. General Assembly brings scores of world leaders to Manhattan’s East Side each year. Residents are concerned about disrupted commutes.`\
 https://nytimes.com/2024/09/24/nyregion/un-meeting-nyc-traffic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/learning/word-of-the-day-contrive.html
 **Word of the Day: patently**\
 `This word has appeared in 55 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/24/learning/word-of-the-day-patently.html
-
-**McDavid reacts to viral clip from Amazon docuseries**\
-`A teaser video showed McDavid unleashing in the dressing room after the Oilers lost Game 2 of the Stanley Cup Final.`\
-https://nytimes.com/athletic/5790166/2024/09/24/oilers-connor-mcdavid-amazon-clip-viral/
 
