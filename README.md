@@ -1,3 +1,7 @@
+**Utah State agrees to join Pac-12, league pushing for more Mountain West members: Sources**\
+`A dramatic tug-of-war between the Pac-12 and Mountain West remains in flux.`\
+https://nytimes.com/athletic/5789845/2024/09/23/utah-state-pac-12-mountain-west/
+
 **Four-time All-Star, Rockies veteran Charlie Blackmon announces retirement**\
 `Blackmon is one of the most prolific players to put on a Colorado uniform.`\
 https://nytimes.com/athletic/5789819/2024/09/23/rockies-charlie-blackmon-announces-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/dining/best-restaurants-america.html
 **49ers' Hargrave out for season; Purdy day-to-day**\
 `The 49ers hope Purdy will be able to practice Wednesday. Meanwhile, Christian McCaffrey traveled to Germany for treatment on his Achilles.`\
 https://nytimes.com/athletic/5789651/2024/09/23/49ers-injuries-updates-javon-hargrave-brock-purdy/
-
-**Quote of the Day: Where Soccer Is a Refuge for Refugees**\
-`Quotation of the Day for Tuesday, September 24, 2024`\
-https://nytimes.com/2024/09/23/pageoneplus/quote-of-the-day-where-soccer-is-a-refuge-for-refugees.html
 
