@@ -1,3 +1,7 @@
+**Jets sign Cole Perfetti to 2-year contract**\
+`The Winnipeg Jets have signed Cole Perfetti to a two-year, $3.`\
+https://nytimes.com/athletic/5789860/2024/09/23/winnipeg-jets-cole-perfetti-contract/
+
 **The mindset that carried the Phillies to their first NL East title in 13 years**\
 `The Phillies' identity formed over two years as an underdog. They wielded it in a different way this season en route to a division crown.`\
 https://nytimes.com/athletic/5785322/2024/09/23/phillies-nl-east-title-2024-season/
