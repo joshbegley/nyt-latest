@@ -7,7 +7,7 @@ https://nytimes.com/2024/09/24/books/review/intermezzo-sally-rooney-review-round
 https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/here-is-how-the-death-toll-from-the-first-day-of-israeli-strikes-in-lebanon-compares-to-the-toll-from-the-2006-war
 
 **FA charges Gibbs-White & Nuno after Brighton draw**\
-`Nuno Espirito Santo and Morgan Gibbs-White have been charged by the Football Association (FA) following the late drama at the end of Sunday&#8217;s 2-2 draw with Brighton &amp; Hove Albion.`\
+`Nottingham Forest duo Nuno Espirito Santo and Morgan Gibbs-White have been charged by the Football Association (FA) following the late drama at the end of Sunday&#8217;s 2-2 draw with Brighton &amp; Hove Albion.`\
 https://nytimes.com/athletic/5790937/2024/09/24/gibbs-white-fa-charge-nottingham-forest/
 
 **Jerry Jones 'completely' accepts blame for Cowboys 1-2 start**\
