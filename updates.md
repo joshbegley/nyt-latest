@@ -1,3 +1,11 @@
+**Biden Boasts of Climate Wins and Warns of Reversals Under Trump**\
+`At an event in New York, the president said federal investments in climate action would be at risk if former President Donald J. Trump retook the White House.`\
+https://nytimes.com/2024/09/24/climate/biden-bloomberg-climate-trump.html
+
+**Former Memphis Officer Apologizes for His Role in Tyre Nichols’s Death**\
+`Desmond Mills Jr., who testified against his former colleagues, broke down in court, saying, “I made his child fatherless.”`\
+https://nytimes.com/2024/09/24/us/politics/tyre-nichols-desmond-mills-memphis.html
+
 **LeBrun rumblings: How high will Rangers go on Shesterkin? Plus latest on Kessel, Swayman, Ullmark, more**\
 `The Rangers have indicated they would top $10.5 million. Would they go to $11.5 million? Or $12 million? Or $12.5 million? Or $13 million?`\
 https://nytimes.com/athletic/5791920/2024/09/24/nhl-rumblings-shesterkin-kessel-swayman/
