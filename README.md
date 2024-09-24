@@ -8,7 +8,7 @@ https://nytimes.com/2024/09/24/briefing/unga-lebanon-harris-trump.html
 
 **Zelensky Addresses the Security Council, Calling for Attention to Stay on Ukraine**\
 `“Russia can only be forced into peace.” President Volodymyr Zelensky of Ukraine urged the Council members to sustain their backing for his country’s resistance to Russia’s full-scale invasion.`\
-https://nytimes.com/2024/09/24/world/europe/security-council-ukraine-war.html
+https://nytimes.com/2024/09/24/world/europe/zelensky-un-security-council-ukraine-war.html
 
 **Israel achieved short-term aims in a week of attacks on Hezbollah, officials say, but the end goal is unclear.**\
 `By Ronen Bergman`\
