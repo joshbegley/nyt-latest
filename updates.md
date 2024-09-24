@@ -1,3 +1,7 @@
+**How should Nottingham Forest line up without talisman Morgan Gibbs-White?**\
+`Forest will be without their most creative player against Fulham - here how will Nuno Espirito Santo could shuffle his pack`\
+https://nytimes.com/athletic/5788375/2024/09/24/nottingham-forest-gibbs-white-formation-fulham/
+
 **Inside Newcastle Q&A: Tonali omission, Pope's mistakes and PIF's commitment**\
 `Newcastle reporter Chris Waugh answers questions on the main talking points at the club this week`\
 https://nytimes.com/athletic/5787733/2024/09/24/inside-newcastle-tonali-pope-pif/

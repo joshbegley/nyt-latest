@@ -1,3 +1,7 @@
+**How should Nottingham Forest line up without talisman Morgan Gibbs-White?**\
+`Forest will be without their most creative player against Fulham - here how will Nuno Espirito Santo could shuffle his pack`\
+https://nytimes.com/athletic/5788375/2024/09/24/nottingham-forest-gibbs-white-formation-fulham/
+
 **Inside Newcastle Q&A: Tonali omission, Pope's mistakes and PIF's commitment**\
 `Newcastle reporter Chris Waugh answers questions on the main talking points at the club this week`\
 https://nytimes.com/athletic/5787733/2024/09/24/inside-newcastle-tonali-pope-pif/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5776249/2024/09/24/premier-league-shirt-names-surna
 **In Lebanon’s Capital, Israel’s Strikes Stoke Fears of a Full-On War**\
 `With Monday’s attacks across southern Lebanon, the prospect of the escalating conflict enveloping the city has suddenly become real for many Beirut residents.`\
 https://nytimes.com/2024/09/24/world/middleeast/lebanon-mood-israel-strikes.html
-
-**The U.S. News College Rankings Are Out. Cue the Rage and Obsession.**\
-`Every year, U.S. News & World Report publishes rankings that often change very little, though they draw attention and frustration from universities and applicants.`\
-https://nytimes.com/2024/09/24/us/us-news-rankings-colleges.html
 
