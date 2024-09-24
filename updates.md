@@ -1,3 +1,7 @@
+**Corrections: Sept. 24, 2024**\
+`Corrections that appeared in print on Tuesday, Sept. 24, 2024.`\
+https://nytimes.com/2024/09/23/pageoneplus/corrections-sept-24-2024.html
+
 **Utah State agrees to join Pac-12, league pushing for more Mountain West members: Sources**\
 `A dramatic tug-of-war between the Pac-12 and Mountain West remains in flux.`\
 https://nytimes.com/athletic/5789845/2024/09/23/utah-state-pac-12-mountain-west/
