@@ -1,3 +1,11 @@
+**Wordle Review No. 1,194**\
+`Scroll down for hints and conversation about the puzzle for September 25, 2024.`\
+https://nytimes.com/2024/09/24/crosswords/wordle-review-1194.html
+
+**The Connections Companion No. 472**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 25, 2024.`\
+https://nytimes.com/2024/09/24/crosswords/connections-companion-472.html
+
 **How a Leftist Delivered Sri Lanka’s Biggest Political Jolt in Decades**\
 `Anura Kumara Dissanayake offered his broad leftist coalition as the best hope for a different political culture, one not ruled by nepotism and corruption.`\
 https://nytimes.com/2024/09/24/world/asia/sri-lanka-election.html
