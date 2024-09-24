@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/24/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump and Harris Battle Over Economy and the Border**\
+`Vice President Kamala Harris plans to visit the southern border during a trip to Arizona this week. Former President Donald J. Trump is zeroing in on economic issues.`\
+https://nytimes.com/live/2024/09/24/us/trump-harris-election
+
 **Forum 5 | What Gives You Hope for the Future?**\
 `What do you think your generation might do better than those who came before it did?`\
 https://nytimes.com/2024/09/24/learning/forum-5-what-gives-you-hope-for-the-future.html
