@@ -1,3 +1,7 @@
+**Jets sign Cole Perfetti to 2-year contract**\
+`Perfetti missed the first five days of training camp as negotiations for the RFA forward dragged on.`\
+https://nytimes.com/athletic/5789860/2024/09/23/winnipeg-jets-cole-perfetti-contract/
+
 **Oklahoma switches starting QB to Michael Hawkins after Tennessee drubbing**\
 `Arnold, a former-five star recruit, was benched for Hawkins in the Sooners' 25-15 loss against Tennessee.`\
 https://nytimes.com/athletic/5789908/2024/09/23/oklahoma-quarterback-michael-hawkins-jackson-arnold-starter/
