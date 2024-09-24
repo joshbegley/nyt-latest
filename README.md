@@ -1,3 +1,7 @@
+**Full Time: NWSL playoff picture taking shape**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5789969/2024/09/23/nwsl-playoffs-gotham-white-house-full-time/
+
 **[Not My Typo]**\
 `Kevin L. Shellito’s debut Times puzzle is hot off the presses.`\
 https://nytimes.com/2024/09/23/crosswords/daily-puzzle-2024-09-24.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/23/pageoneplus/corrections-sept-24-2024.html
 **Utah State agrees to join Pac-12, league pushing for more Mountain West members: Sources**\
 `A dramatic tug-of-war between the Pac-12 and Mountain West remains in flux.`\
 https://nytimes.com/athletic/5789845/2024/09/23/utah-state-pac-12-mountain-west/
-
-**Four-time All-Star, Rockies veteran Charlie Blackmon announces retirement**\
-`Blackmon is one of the most prolific players to put on a Colorado uniform.`\
-https://nytimes.com/athletic/5789819/2024/09/23/rockies-charlie-blackmon-announces-retirement/
 
