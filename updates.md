@@ -1,3 +1,7 @@
+**What are Your Unusual Holiday Traditions?**\
+`For many people, celebrating the winter holidays means marking it in eccentric and sometimes downright inexplicable ways.`\
+https://nytimes.com/2024/09/24/style/unusual-holiday-traditions-callout.html
+
 **U.K.’s Starmer Attempts to Sprinkle Some Harris-Style ‘Joy’ Into Speech**\
 `After a somewhat bumpy start to his premiership, Keir Starmer tried to reclaim the narrative, acknowledging voters’ desire for hope and promising change was on the way.`\
 https://nytimes.com/2024/09/24/world/europe/keir-starmer-speech-uk.html
