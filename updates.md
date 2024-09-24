@@ -1,3 +1,7 @@
+**In his first U.N. speech, Iran’s president aimed to defuse tensions with the West while criticizing Israel.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/24/world/unga-2024-biden/in-his-first-un-speech-irans-president-aimed-to-defuse-tensions-with-the-west-while-criticizing-israel
+
 **49ers mailbag: Options at defensive tackle; Why was Christian McCaffrey in Germany?**\
 `Among the questions this week: When will Ricky Pearsall be back on the field and what's the root cause of all the special teams blunders?`\
 https://nytimes.com/athletic/5791737/2024/09/24/49ers-mailbag-christian-mccaffrey-defensive-tackle/
