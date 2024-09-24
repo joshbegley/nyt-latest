@@ -1,3 +1,7 @@
+**David Banks, New York City’s Schools Chancellor, to Resign**\
+`The resignation of Mr. Banks, planned for the end of the year, comes amid a flurry of federal investigations surrounding the administration of Mayor Eric Adams.`\
+https://nytimes.com/2024/09/24/nyregion/david-banks-resigns-nyc-schools-chancellor.html
+
 **NFL best bets Week 4: Picking the Jets to stay hot and a pair of underdogs to win**\
 `Austin Mock has a loaded betting slip for NFL Week 4, including picking a pair of underdogs to win.`\
 https://nytimes.com/athletic/5791465/2024/09/24/nfl-best-bets-week-4-jets-bills-buccaneers/
