@@ -1,3 +1,11 @@
+**Wolff hits back at Horner over comments on Russell’s future**\
+`Toto Wolff has hit back at Christian Horner after the Red Bull team principal hinted at a potential move for Mercedes driver George Russell in 2026.`\
+https://nytimes.com/athletic/5790654/2024/09/24/toto-wolff-christian-horner-george-russell/
+
+**Friedkin's proposed takeover gives Everton hope - which has been completely absent for too long**\
+`Everton fans have had to witness the slow and steady decline of the club they love - Friedkin's proposed takeover offers hope, at last`\
+https://nytimes.com/athletic/5790545/2024/09/24/everton-takeover-friedkin-hope/
+
 **Here is the latest on the U.N. meeting.**\
 `The wars in Gaza, Ukraine and Sudan are expected to dominate`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/united-nations-general-assembly-global-turmoil
