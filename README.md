@@ -1,3 +1,11 @@
+**As Lebanon Reels From Israeli Attacks, the Future Is Murky for a Wounded Hezbollah**\
+`Some experts said that Israel’s onslaught had left Hezbollah in disarray. Others noted its large weapons stockpiles and history of adapting to battle Israel’s much more high-tech military.`\
+https://nytimes.com/2024/09/24/world/middleeast/israel-lebanon-hezbollah.html
+
+**Weekly Student News Quiz: Instagram, Lebanon, Baseball Record**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/09/24/learning/24StudentNewsQuiz.html
+
 **Zelensky Prepares for Tough Act Putting Ukraine War Back on Global Agenda**\
 `In his speech to the U.N. General Assembly on Wednesday and then a meeting with President Biden a day later, the Ukrainian president will be pleading for more military and political support.`\
 https://nytimes.com/2024/09/24/world/zelensky-general-assembly-ukraine-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/24/business/dealbook/visa-antitrust-biden-justice-de
 **Dodgers takeaways: A big week ahead with postseason implications**\
 `Dave Roberts summed it up best: “I really haven’t seen a player as locked in like Shohei is, for as long as he’s been, in quite some time.” `\
 https://nytimes.com/athletic/5789068/2024/09/24/dodgers-shohei-ohtani-playoff-scenarios/
-
-**What matters most for the Canucks going into preseason? 5 takeaways from training camp**\
-`On the state of the Canucks goaltending, Jonathan Lekkerimäki's readiness and more.`\
-https://nytimes.com/athletic/5788730/2024/09/24/canucks-training-camp-takeaways/
-
-**49ers minutia minute: Examining problems at linebacker, cornerback in loss to Rams**\
-`Brock Purdy might be the most prolific passer in the NFL right now if not for multiple drops from his wide receivers. `\
-https://nytimes.com/athletic/5789194/2024/09/24/49ers-snap-counts-loss-rams/
 
