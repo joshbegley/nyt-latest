@@ -1,3 +1,7 @@
+**Missouri Man Executed After Long Fight for Exoneration**\
+`Marcellus Williams, who was convicted of a 1998 murder in suburban St. Louis, maintained he was innocent. But the courts and the governor were not persuaded.`\
+https://nytimes.com/2024/09/24/us/marcellus-williams-execution-missouri.html
+
 **Buckley: Celtics begin title defense with a lot of questions ... and lots of lint to flick**\
 `The champs made sure to have fun at media day, but Brad Stevens' message was well-crafted and blunt: These Celtics have won nothing.`\
 https://nytimes.com/athletic/5792192/2024/09/24/boston-celtics-jayson-tatum-jaylen-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/climate/biden-bloomberg-climate-trump.html
 **Former Memphis Officer Apologizes for His Role in Tyre Nichols’s Death**\
 `Desmond Mills Jr., who testified against his former colleagues, broke down in court, saying, “I made his child fatherless.”`\
 https://nytimes.com/2024/09/24/us/politics/tyre-nichols-desmond-mills-memphis.html
-
-**LeBrun rumblings: How high will Rangers go on Shesterkin? Plus latest on Kessel, Swayman, Ullmark, more**\
-`The Rangers have indicated they would top $10.5 million. Would they go to $11.5 million? Or $12 million? Or $12.5 million? Or $13 million?`\
-https://nytimes.com/athletic/5791920/2024/09/24/nhl-rumblings-shesterkin-kessel-swayman/
 

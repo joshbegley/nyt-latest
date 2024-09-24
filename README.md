@@ -1,3 +1,11 @@
+**Climber Dies After Fall at Devils Tower in Wyoming, Park Service Says**\
+`A 21-year-old rock climber from Wisconsin was descending the national monument when he fell, officials said.`\
+https://nytimes.com/2024/09/24/us/devils-tower-climber-death.html
+
+**Why Nikolay Kulemin is attempting a comeback 7 years after his last NHL game**\
+`Just as family concerns drove Kulemin's decision to leave the NHL, it is another family development that has put him on this path.`\
+https://nytimes.com/athletic/5792203/2024/09/24/nikolay-kulemin-nhl-comeback-senators/
+
 **Missouri Man Executed After Long Fight for Exoneration**\
 `Marcellus Williams, who was convicted of a 1998 murder in suburban St. Louis, maintained he was innocent. But the courts and the governor were not persuaded.`\
 https://nytimes.com/2024/09/24/us/marcellus-williams-execution-missouri.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/09/24/us/identifying-gaps-in-democratic-dig
 **Sequel to Ghost of Tsushima Expands a Fresh Sony Franchise**\
 `The anticipated game, Ghost of Yotei, will follow a woman on a quest for vengeance in the snowy reaches of northern Japan.`\
 https://nytimes.com/2024/09/24/arts/ghost-of-yotei-tsushima-sequel-playstation.html
-
-**Biden Boasts of Climate Wins and Warns of Reversals Under Trump**\
-`At an event in New York, the president said federal investments in climate action would be at risk if former President Donald J. Trump retook the White House.`\
-https://nytimes.com/2024/09/24/climate/biden-bloomberg-climate-trump.html
-
-**Former Memphis Officer Apologizes for His Role in Tyre Nichols’s Death**\
-`Desmond Mills Jr., who testified against his former colleagues, broke down in court, saying, “I made his child fatherless.”`\
-https://nytimes.com/2024/09/24/us/politics/tyre-nichols-desmond-mills-memphis.html
 

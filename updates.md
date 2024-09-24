@@ -1,3 +1,7 @@
+**Missouri Man Executed After Long Fight for Exoneration**\
+`Marcellus Williams, who was convicted of a 1998 murder in suburban St. Louis, maintained he was innocent. But the courts and the governor were not persuaded.`\
+https://nytimes.com/2024/09/24/us/marcellus-williams-execution-missouri.html
+
 **Buckley: Celtics begin title defense with a lot of questions ... and lots of lint to flick**\
 `The champs made sure to have fun at media day, but Brad Stevens' message was well-crafted and blunt: These Celtics have won nothing.`\
 https://nytimes.com/athletic/5792192/2024/09/24/boston-celtics-jayson-tatum-jaylen-brown/
