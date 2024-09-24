@@ -1,3 +1,7 @@
+**Full Time: NWSL playoff picture taking shape**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5789969/2024/09/23/nwsl-playoffs-gotham-white-house-full-time/
+
 **Jets sign Cole Perfetti to 2-year contract**\
 `Perfetti missed the first five days of training camp as negotiations between the Jets and RFA forward dragged on.`\
 https://nytimes.com/athletic/5789860/2024/09/23/winnipeg-jets-cole-perfetti-contract/
