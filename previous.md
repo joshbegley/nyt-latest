@@ -1,3 +1,7 @@
+**China to Investigate U.S. Retailer, Sending a Message Over Xinjiang**\
+`PVH, which owns Calvin Klein and Tommy Hilfiger, is targeted for allegedly avoiding purchases from the region where the Chinese government has cracked down on Muslim minorities.`\
+https://nytimes.com/2024/09/24/business/china-xinjiang-calvin-klein-tommy-hilfiger.html
+
 **The Friedkin's proposed takeover gives Everton hope - which has been completely absent for too long**\
 `Everton fans have had to witness the slow and steady decline of the club they love - Friedkin's proposed takeover offers hope, at last`\
 https://nytimes.com/athletic/5790545/2024/09/24/everton-takeover-friedkin-hope/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/24/us/trump-harris-election
 **Forum 5 | What Gives You Hope for the Future?**\
 `What do you think your generation might do better than those who came before it did?`\
 https://nytimes.com/2024/09/24/learning/forum-5-what-gives-you-hope-for-the-future.html
-
-**Blocked but not forgotten: Why Casey Schmitt might still have a place on the Giants' infield**\
-`Schmitt still has plenty of upside and might be an adjustment or two away from becoming a lineup asset.`\
-https://nytimes.com/athletic/5790321/2024/09/24/casey-schmitt-giants-infield/
 
