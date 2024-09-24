@@ -1,3 +1,7 @@
+**'He's one of one': Josh Allen slings another stunner in Bills' blowout win against Jaguars**\
+`Ten Bills players caught a pass from Josh Allen against Jacksonville.`\
+https://nytimes.com/athletic/5790139/2024/09/24/bills-blowout-win-jaguars-josh-allen/
+
 **Liverpool's Alisson out of Carabao Cup match vs West Ham; doubt for Wolves trip**\
 `Alisson will miss Liverpool&#8217;s Carabao Cup third round tie against West Ham United and is a doubt for the Premier League fixture against Wolverhampton Wanderers through injury, head coach Arne Slot has said.`\
 https://nytimes.com/athletic/5790417/2024/09/24/alisson-injury-liverpool-return/
