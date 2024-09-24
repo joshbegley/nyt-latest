@@ -1,3 +1,7 @@
+**Rare Copy of U.S. Constitution, Found in a File Cabinet, Is Up for Auction**\
+`An appraiser discovered the 1787 document before a house sale in North Carolina in 2022. It goes up for auction this week.`\
+https://nytimes.com/2024/09/24/us/us-constitution-copy-auction.html
+
 **NFL Week 3 best and worst coaching decisions: Kevin O'Connell, Vic Fangio stand out**\
 `The Eagles DC modified one of his best old game plans and the Vikings coach continues to thrive with Sam Darnold.`\
 https://nytimes.com/athletic/5787646/2024/09/24/nfl-week-3-worst-best-coaching-decisions-nguyen/

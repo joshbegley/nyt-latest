@@ -1,3 +1,7 @@
+**Rare Copy of U.S. Constitution, Found in a File Cabinet, Is Up for Auction**\
+`An appraiser discovered the 1787 document before a house sale in North Carolina in 2022. It goes up for auction this week.`\
+https://nytimes.com/2024/09/24/us/us-constitution-copy-auction.html
+
 **NFL Week 3 best and worst coaching decisions: Kevin O'Connell, Vic Fangio stand out**\
 `The Eagles DC modified one of his best old game plans and the Vikings coach continues to thrive with Sam Darnold.`\
 https://nytimes.com/athletic/5787646/2024/09/24/nfl-week-3-worst-best-coaching-decisions-nguyen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788495/2024/09/24/big-12-basketball-rankings-houst
 **Q & A: Matt Bonner on Vince Carter, his connection with Raptors fans and his new job**\
 `The new co-host of The Raptors Show is taking to the airwaves 20 years after his debut on the court with the team.`\
 https://nytimes.com/athletic/5789105/2024/09/24/raptors-matt-bonner-sportsnet-590-2024-season/
-
-**MLB playoffs temperature check: What to watch with each contender in the final week**\
-`Checking in on the 15 teams still in the playoff picture. What should you be focusing on? And which teams hold the tiebreakers?`\
-https://nytimes.com/athletic/5788845/2024/09/24/mlb-playoffs-contenders-what-to-watch/
 
