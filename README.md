@@ -1,10 +1,18 @@
+**Send Us Your Questions About Climate Change**\
+`What should The Times ask change experts, world leaders and policymakers at its Climate Forward conference on Sept. 25?`\
+https://nytimes.com/2024/09/24/climate/climate-forward-conference-questions.html
+
+**Willie, Waylon and the Boys: the Ultimate Outlaw Country Primer**\
+`Hear songs from Willie Nelson, Waylon Jennings, Kris Kristofferson, Johnny Cash and more, inspired by a new book.`\
+https://nytimes.com/2024/09/24/arts/music/amplifier-newsletter-the-highwaymen-outlaw-country.html
+
 **Harris to More Fully Detail Economic Plans**\
 `Vice President Kamala Harris’s campaign is preparing a lengthy document laying out an economic policy vision as voters say they want to know more about her approach.`\
 https://nytimes.com/2024/09/24/us/politics/harris-to-more-fully-detail-economic-plans.html
 
 **The Death of Outdoor Dining Is a Blow to New York’s Vitality**\
 `All for a set of narrow, self-serving complaints about parking and noise.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/new-york-outdoor-dining-loss
+https://nytimes.com/2024/09/17/opinion/new-york-outdoor-dining-loss.html
 
 **The U.S. nixes the security detail for Haiti’s president, then restores it.**\
 `By Frances Robles`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5791227/2024/09/24/steelers-justin-fields-russell-w
 **Why the Tigers called up Jackson Jobe for their playoff hunt**\
 `Top prospect Jackson Jobe will pitch out of the bullpen for the Tigers in their final six games of the season. `\
 https://nytimes.com/athletic/5791253/2024/09/24/tigers-jackson-jobe-call-up-playoffs/
-
-**A Night at the Opera With Jonathan Groff, Juliana Canfield and Christine Baranski**\
-`The Metropolitan Opera drew a crowd of celebrities, philanthropists and Broadway stars for the opening night of its new season.`\
-https://nytimes.com/2024/09/24/style/new-york-gala.html
-
-**Harris Reiterates Support for Ending Filibuster to Protect Abortion Rights**\
-`“I’ve been very clear: I think we should eliminate the filibuster for Roe,” the vice president said in a radio interview, renewing a call she and President Biden have made in the past.`\
-https://nytimes.com/2024/09/24/us/politics/harris-senate-filibuster-abortion-rights-roe.html
 
