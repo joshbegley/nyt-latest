@@ -1,3 +1,7 @@
+**The Athletic FC: Will Rodri injury shape title race? Plus: How Everton takeover would work**\
+`Today in TAFC: How Rodri's injury could shape the title race, explaining Everton's proposed buyout, a young coach trend, and a big sink hole`\
+https://nytimes.com/athletic/5790514/2024/09/24/rodri-injury-premier-league-title-everton-takeover-friedkin/
+
 **China to Investigate U.S. Retailer, Sending a Message Over Xinjiang**\
 `PVH, which owns Calvin Klein and Tommy Hilfiger, is targeted for allegedly avoiding purchases from the region where the Chinese government has cracked down on Muslim minorities.`\
 https://nytimes.com/2024/09/24/business/china-xinjiang-calvin-klein-tommy-hilfiger.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/24/us/trump-harris-election/heres-the-latest-on
 **Election Live Updates: Trump and Harris Battle Over Economy and the Border**\
 `Vice President Kamala Harris plans to visit the southern border during a trip to Arizona this week. Former President Donald J. Trump is zeroing in on economic issues.`\
 https://nytimes.com/live/2024/09/24/us/trump-harris-election
-
-**Forum 5 | What Gives You Hope for the Future?**\
-`What do you think your generation might do better than those who came before it did?`\
-https://nytimes.com/2024/09/24/learning/forum-5-what-gives-you-hope-for-the-future.html
 
