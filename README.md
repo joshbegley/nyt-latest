@@ -1,3 +1,7 @@
+**Sequel to Ghost of Tsushima Expands a Fresh Sony Franchise**\
+`The anticipated game, Ghost of Yotei, will follow a woman on a quest for vengeance in the snowy reaches of northern Japan.`\
+https://nytimes.com/2024/09/24/arts/ghost-of-yotei-tsushima-sequel-playstation.html
+
 **Biden Boasts of Climate Wins and Warns of Reversals Under Trump**\
 `At an event in New York, the president said federal investments in climate action would be at risk if former President Donald J. Trump retook the White House.`\
 https://nytimes.com/2024/09/24/climate/biden-bloomberg-climate-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/24/world/unga-2024-biden/in-his-first-un-speech
 **49ers mailbag: Options at defensive tackle; Why was Christian McCaffrey in Germany?**\
 `Among the questions this week: When will Ricky Pearsall be back on the field and what's the root cause of all the special teams blunders?`\
 https://nytimes.com/athletic/5791737/2024/09/24/49ers-mailbag-christian-mccaffrey-defensive-tackle/
-
-**Biden Warned the World Is at an ‘Inflection Point’**\
-`Also, thousands are fleeing southern Lebanon. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/09/24/briefing/biden-speech-united-nations-best-restaurants.html
 
