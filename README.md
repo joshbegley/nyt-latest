@@ -22,6 +22,10 @@ https://nytimes.com/2024/09/24/us/politics/trump-harris-undecided-voters.html
 `Readers discuss an essay by a parent who gave her daughter a $100 reward. Also: Donald Trump and the psychiatrists; a second debate; heartland immigrants.`\
 https://nytimes.com/2024/09/24/opinion/reading-kids-parents.html
 
+**Cilic makes ATP Tour history with Hangzhou Open win**\
+`It is the Croatian's 21st tour trophy.`\
+https://nytimes.com/athletic/5790904/2024/09/24/cilic-lowest-ranked-atp-title-winners/
+
 **No Plates Allowed**\
 `Tortellini soup, mushrooms and dumplings, niku udon and more spoon-friendly dishes.`\
 https://nytimes.com/2024/09/24/dining/no-plates-allowed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5785834/2024/09/24/yerson-mosquera-wolves-injury/
 **Escalation in the Middle East looms over the General Assembly meeting.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/escalation-in-the-middle-east-looms-over-the-general-assembly-meeting
-
-**Jazzy Davidson, 5-star recruit in 2025 class, commits to USC**\
-`The 6-foot-2 guard out of Clackamas, Ore., joins All-American star JuJu Watkins at USC.`\
-https://nytimes.com/athletic/5790933/2024/09/24/jazzy-davidson-usc-womens-basketball/
 
