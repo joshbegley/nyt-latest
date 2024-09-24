@@ -1,3 +1,7 @@
+**Trump Stokes Fears About Haitian Migrants in a Pennsylvania Community**\
+`His focus on Charleroi, Pa., comes after his debunked claims about Haitian migrants in an Ohio community helped stir a firestorm over immigration there.`\
+https://nytimes.com/2024/09/24/us/politics/trump-haitian-migrants-charleroi.html
+
 **Tuesday Briefing: Israeli Airstrikes in Lebanon Kill Hundreds**\
 `Plus, vintage soccer jerseys and the memories they preserve.`\
 https://nytimes.com/2024/09/24/briefing/hezbollah-israel-trump-polls-united-nations-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/business/china-cuts-mortgage-rates.html
 **Chelsea's newest hire Gupta, one of the most highly-regarded analytical minds in the NBA**\
 `Timberwolves executive vice president of basketball operations Sachin Gupta is set to join Chelsea in the near future`\
 https://nytimes.com/athletic/5788693/2024/09/24/sachin-gupta-chelsea-profile/
-
-**Arsenal's turnaround: How Mikel Arteta transformed them from soft touch to streetwise**\
-`Even if certain moments can be handled better, Arsenal are no longer easy to play against — their manager has been behind it`\
-https://nytimes.com/athletic/5787860/2024/09/24/arsenal-arteta-dark-arts/
 
