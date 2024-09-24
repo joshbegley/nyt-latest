@@ -1,3 +1,11 @@
+**Hezbollah Is Everyone’s Problem**\
+`The United States must help Israel defeat it.`\
+https://nytimes.com/2024/09/24/opinion/israel-lebanon-hezbollah.html
+
+**Read the document**\
+`A new memo from two of the leading Democratic groups working in battleground states.`\
+https://nytimes.com/interactive/2024/09/24/us/identifying-gaps-in-democratic-digital-investmentsdocx.html
+
 **Sequel to Ghost of Tsushima Expands a Fresh Sony Franchise**\
 `The anticipated game, Ghost of Yotei, will follow a woman on a quest for vengeance in the snowy reaches of northern Japan.`\
 https://nytimes.com/2024/09/24/arts/ghost-of-yotei-tsushima-sequel-playstation.html

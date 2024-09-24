@@ -1,3 +1,11 @@
+**Hezbollah Is Everyone’s Problem**\
+`The United States must help Israel defeat it.`\
+https://nytimes.com/2024/09/24/opinion/israel-lebanon-hezbollah.html
+
+**Read the document**\
+`A new memo from two of the leading Democratic groups working in battleground states.`\
+https://nytimes.com/interactive/2024/09/24/us/identifying-gaps-in-democratic-digital-investmentsdocx.html
+
 **Sequel to Ghost of Tsushima Expands a Fresh Sony Franchise**\
 `The anticipated game, Ghost of Yotei, will follow a woman on a quest for vengeance in the snowy reaches of northern Japan.`\
 https://nytimes.com/2024/09/24/arts/ghost-of-yotei-tsushima-sequel-playstation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5791828/2024/09/24/buffalo-bills-all-22-josh-allen-
 **As U.N. Meets, Israel Pounds Targets in Lebanon, Sending Civilians Fleeing**\
 `Israel said it was striking Hezbollah targets with “high intensity” to keep the campaign as short as possible, as the Lebanese militants maintained their own cross-border barrage.`\
 https://nytimes.com/2024/09/24/world/middleeast/israel-hezbollah-lebanon.html
-
-**In his first U.N. speech, Iran’s president aimed to defuse tensions with the West while criticizing Israel.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/09/24/world/unga-2024-biden/in-his-first-un-speech-irans-president-aimed-to-defuse-tensions-with-the-west-while-criticizing-israel
-
-**49ers mailbag: Options at defensive tackle; Why was Christian McCaffrey in Germany?**\
-`Among the questions this week: When will Ricky Pearsall be back on the field and what's the root cause of all the special teams blunders?`\
-https://nytimes.com/athletic/5791737/2024/09/24/49ers-mailbag-christian-mccaffrey-defensive-tackle/
 
