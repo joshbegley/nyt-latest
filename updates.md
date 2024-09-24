@@ -1,3 +1,7 @@
+**Jets sign Cole Perfetti to 2-year contract**\
+`Perfetti missed the first five days of training camp as negotiations between the Jets and RFA forward dragged on.`\
+https://nytimes.com/athletic/5789860/2024/09/23/winnipeg-jets-cole-perfetti-contract/
+
 **[Not My Typo]**\
 `Kevin L. Shellito’s debut Times puzzle is hot off the presses.`\
 https://nytimes.com/2024/09/23/crosswords/daily-puzzle-2024-09-24.html
