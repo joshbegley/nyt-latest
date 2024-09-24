@@ -1,3 +1,7 @@
+**Both Presidential Candidates Are Ignoring American Wellness**\
+`The U.S. allows chemicals and pesticides banned by Europe, but the issue hasn’t come up in the campaign.`\
+https://nytimes.com/2024/09/17/opinion/chemicals-wellness-campaign-candidates.html
+
 **Furious over the continuing war in Gaza, world leaders castigate Israel.**\
 `By Neil MacFarquhar`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/furious-over-the-continuing-war-in-gaza-world-leaders-castigate-israel
