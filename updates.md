@@ -1,3 +1,11 @@
+**Sheriff Who Suggested Tracking Harris Supporters Is Stripped of Election Role**\
+`The Ohio sheriff who urged his followers to record the addresses of people with yard signs supporting Vice President Kamala Harris will no longer head security at the county’s early voting location.`\
+https://nytimes.com/2024/09/24/us/politics/ohio-sheriff-harris-stripped.html
+
+**Presidents Cup analysis: 10 notes to know on U.S. vs. International**\
+`The International team has won once in the competition, 26 years ago. But are the Americans vulnerable?`\
+https://nytimes.com/athletic/5790759/2024/09/24/presidents-cup-analysis-us-international/
+
 **A New York congressman had an affair, then put his lover on the payroll.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2024/09/24/us/trump-harris-election/a-new-york-congressman-had-an-affair-then-put-his-lover-on-the-payroll
