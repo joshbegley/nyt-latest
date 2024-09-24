@@ -1,3 +1,7 @@
+**Why Debunked Falsehoods About Haitian Migrants Gained Traction**\
+`The racist and inflammatory narrative spread on the backs of memes, greed, biases and news deserts.`\
+https://nytimes.com/2024/09/24/us/politics/haitian-migrants-disinformatiom.html
+
 **After hazardous waste history, Bay FC's new training site is 'available for re-use by the public'**\
 `Treasure Island has been the focus of community scrutiny due to its history of hazardous waste and alleged ineffective cleanup.`\
 https://nytimes.com/athletic/5791753/2024/09/24/bay-fc-training-facility-hazardous-waste/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5792000/2024/09/24/kylian-mbappe-real-madrid-injury
 **Jordan Chiles files second appeal in case for her Olympic bronze medal**\
 `Jordan Chiles' effort to get her bronze medal back continues with two new appeals filed in the Federal Supreme Court of Switzerland.`\
 https://nytimes.com/athletic/5791708/2024/09/24/jordan-chiles-olympics-appeal/
-
-**Bills All-22: Josh Allen is getting the ball out quicker, offensive linemen among top performers**\
-`Plus, Khalil Shakir was particularly effective in exploiting a weakness.`\
-https://nytimes.com/athletic/5791828/2024/09/24/buffalo-bills-all-22-josh-allen-khalil-shakir-jaguars/
 
