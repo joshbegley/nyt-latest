@@ -1,3 +1,7 @@
+**Re-Examining the Cold War, Through British Eyes**\
+`Two exhibits, in London and Edinburgh, look back at the anxiety-filled era — and draw eerie parallels to the present day.`\
+https://nytimes.com/2024/09/24/arts/design/museums-edinburgh-london-cold-war.html
+
 **Harris Reiterates Support for Ending Filibuster to Protect Abortion Rights**\
 `“I’ve been very clear: I think we should eliminate the filibuster for Roe,” the vice president said in a radio interview, renewing a call she and President Biden have made in the past.`\
 https://nytimes.com/2024/09/24/us/politics/harris-senate-filibuster-abortion-rights-roe.html
