@@ -1,3 +1,7 @@
+**Partizan head coach injured by own fans after Belgrade derby defeat**\
+`Partizan Belgrade head coach Aleksandar Stanojevic was left with injuries after his club&#8217;s fans broke into the dressing room following a four-goal defeat by Red Star Belgrade.`\
+https://nytimes.com/athletic/5790487/2024/09/24/belgrade-derby-partizan-red-star/
+
 **Israel’s Strikes on Lebanon**\
 `We explore what led to the strikes, what’s happening now and what might come next.`\
 https://nytimes.com/2024/09/24/briefing/israel-hezbollah-lebanon.html
