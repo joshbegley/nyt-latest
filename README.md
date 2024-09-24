@@ -1,3 +1,7 @@
+**In Manhattan, Pedaling After Cycling Hustlers**\
+`Some New Yorkers found a way to beat Citi Bike’s algorithm. And one reporter found those New Yorkers.`\
+https://nytimes.com/2024/09/24/insider/in-manhattan-pedaling-after-cycling-hustlers.html
+
 **Wednesday Briefing: The U.N. General Assembly Convenes**\
 `Plus, news outlets experiment with WhatsApp.`\
 https://nytimes.com/2024/09/24/briefing/unga-lebanon-harris-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/us/politics/brett-favre-parkinsons.html
 **Super Bowl 2025 odds risers and fallers: Should Bengals panic yet? Plus, a futures pick**\
 `The Bengals are among this week's biggest fallers in Super Bowl odds. The Chiefs are still on top, but the Bills are climbing.`\
 https://nytimes.com/athletic/5790834/2024/09/24/super-bowl-2025-odds-risers-fallers-bills-bengals/
-
-**Here’s How the Forecast for Tropical Storm Helene Is Shaping Up**\
-`When the storm’s center was located on Tuesday, it gave meteorologists a crucial next step in firming up the storm’s forecast.`\
-https://nytimes.com/2024/09/24/weather/forecast-helene-storm.html
 
