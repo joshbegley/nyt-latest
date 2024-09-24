@@ -1,3 +1,7 @@
+**Four-time All-Star, Rockies veteran Charlie Blackmon announces retirement**\
+`Blackmon is one of the most prolific players to put on a Colorado uniform.`\
+https://nytimes.com/athletic/5789819/2024/09/23/rockies-charlie-blackmon-announces-retirement/
+
 **5.9 Magnitude Earthquake Off Japan Coast Triggers Tsunami Advisory**\
 `The earthquake occurred off the coast of Torishima Island, which is uninhabited, at 8:14 a.m. on Tuesday, according to the Japan Meteorological Agency.`\
 https://nytimes.com/2024/09/23/world/asia/japan-earthquake-tsunami.html

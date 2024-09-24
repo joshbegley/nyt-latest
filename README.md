@@ -2,6 +2,10 @@
 `Blackmon is one of the most prolific players to put on a Colorado uniform.`\
 https://nytimes.com/athletic/5789819/2024/09/23/rockies-charlie-blackmon-announces-retirement/
 
+**Whom will the Reds hire as manager? A look at 9 potential candidates**\
+`Candidates include Skip Schumaker, Scott Servais, Will Venable, Barry Larkin and others.`\
+https://nytimes.com/athletic/5789636/2024/09/23/reds-manager-candidates/
+
 **5.9 Magnitude Earthquake Off Japan Coast Triggers Tsunami Advisory**\
 `The earthquake occurred off the coast of Torishima Island, which is uninhabited, at 8:14 a.m. on Tuesday, according to the Japan Meteorological Agency.`\
 https://nytimes.com/2024/09/23/world/asia/japan-earthquake-tsunami.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5789651/2024/09/23/49ers-injuries-updates-javon-har
 **Quote of the Day: Where Soccer Is a Refuge for Refugees**\
 `Quotation of the Day for Tuesday, September 24, 2024`\
 https://nytimes.com/2024/09/23/pageoneplus/quote-of-the-day-where-soccer-is-a-refuge-for-refugees.html
-
-**Justin Herbert's X-rays on high ankle sprain negative**\
-`Harbaugh was asked if Herbert was still wearing his walking boot Monday. “I do not know that,” he said.`\
-https://nytimes.com/athletic/5789683/2024/09/23/justin-herbert-ankle-injury-chargers/
 
