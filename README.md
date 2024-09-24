@@ -1,3 +1,7 @@
+**LeBrun rumblings: How high will Rangers go on Shesterkin? Plus latest on Kessel, Swayman, Ullmark, more**\
+`The Rangers have indicated they would top $10.5 million. Would they go to $11.5 million? Or $12 million? Or $12.5 million? Or $13 million?`\
+https://nytimes.com/athletic/5791920/2024/09/24/nhl-rumblings-shesterkin-kessel-swayman/
+
 **Mbappe to be assessed ahead of Madrid derby after minor thigh problem**\
 `Kylian Mbappe is set to be assessed after being forced off during Real Madrid&#8217;s La Liga victory over Alaves on Tuesday with a muscular injury.`\
 https://nytimes.com/athletic/5792000/2024/09/24/kylian-mbappe-real-madrid-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791286/2024/09/24/pac-12-mountain-west-realignment
 **Dick Moss, Who Helped Usher in Baseball Free Agency, Dies at 93**\
 `A labor lawyer, he was crucial to toppling a decades-old system that bound players to teams year after year, setting the stage for their rich contracts of today.`\
 https://nytimes.com/2024/09/24/sports/dick-moss-dead.html
-
-**CrowdStrike Executive Questioned by Lawmakers Over Global Tech Outage**\
-`Adam Meyers, a senior vice president of the cybersecurity firm, testified in front of a House Homeland Security subcommittee about the July mishap.`\
-https://nytimes.com/2024/09/24/technology/crowdstrike-outage-congress.html
 
