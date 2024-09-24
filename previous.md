@@ -1,3 +1,7 @@
+**Flick: Yamal won't be rested against Getafe**\
+`Barcelona head coach Hansi Flick says he will not rest Lamine Yamal during Wednesday’s La Liga game against Getafe.`\
+https://nytimes.com/athletic/5790780/2024/09/24/lamine-yamal-barcelona-rest/
+
 **Two fans handed football banning orders over Man United vs Liverpool tragedy chanting**\
 `Two more supporters have been handed football banning orders over tragedy chanting relating to Manchester United vs Liverpool fixtures.`\
 https://nytimes.com/athletic/5790725/2024/09/24/manchester-united-liverpool-tragedy-chanting-bans/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/business/china-xinjiang-calvin-klein-tommy-hilfig
 **Friedkin's proposed takeover gives Everton hope - which has been completely absent for too long**\
 `Everton fans have had to witness the slow and steady decline of the club they love - Friedkin's proposed takeover offers hope, at last`\
 https://nytimes.com/athletic/5790545/2024/09/24/everton-takeover-friedkin-hope/
-
-**Is Visa a Monopoly?**\
-`The Justice Department is expected to sue the global payments giant as soon as Tuesday, accusing the company of stifling competition.`\
-https://nytimes.com/2024/09/24/business/dealbook/visa-antitrust-biden-justice-department.html
 

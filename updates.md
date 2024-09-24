@@ -1,3 +1,7 @@
+**Flick: Yamal won't be rested against Getafe**\
+`Barcelona head coach Hansi Flick says he will not rest Lamine Yamal during Wednesday’s La Liga game against Getafe.`\
+https://nytimes.com/athletic/5790780/2024/09/24/lamine-yamal-barcelona-rest/
+
 **Two fans handed football banning orders over Man United vs Liverpool tragedy chanting**\
 `Two more supporters have been handed football banning orders over tragedy chanting relating to Manchester United vs Liverpool fixtures.`\
 https://nytimes.com/athletic/5790725/2024/09/24/manchester-united-liverpool-tragedy-chanting-bans/
