@@ -1,3 +1,15 @@
+**How Giants' Daniel Jones looked like completely different QB in win vs. Browns**\
+`Pressure rattled Jones in the Week 1 loss to the Vikings. But in Week 3, Jones thrived under duress. `\
+https://nytimes.com/athletic/5790125/2024/09/24/new-york-giants-daniel-jones-browns-win/
+
+**That Message From Your Doctor? It May Have Been Drafted by A.I.**\
+`Overwhelmed by queries, physicians are turning to artificial intelligence to correspond with patients. Many have no clue that the replies are software-generated.`\
+https://nytimes.com/2024/09/24/health/ai-patient-messages-mychart.html
+
+**Biden to announce donation of one million vaccine doses to help fight mpox in Africa.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/09/24/world/unga-2024-biden/biden-to-announce-donation-of-one-million-vaccine-doses-to-help-fight-mpox-in-africa
+
 **Tracking a Potential Hurricane Headed Toward the U.S.**\
 `See the likely path and wind arrival times for Nine.`\
 https://nytimes.com/interactive/2024/09/24/weather/nine-map-path-tracker.html
