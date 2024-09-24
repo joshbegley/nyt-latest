@@ -1,3 +1,15 @@
+**T.I. and Tiny Awarded $71 Million Over L.O.L. Dolls’ Likeness to R&B Group**\
+`A jury found that the toy giant MGA Entertainment had violated the musicians’ intellectual property rights with its L.O.L. Surprise! O.M.G. dolls.`\
+https://nytimes.com/2024/09/24/business/omg-dolls-ti-tiny.html
+
+**How to Watch the Vance-Walz Vice-Presidential Debate**\
+`CBS News will broadcast the 90-minute debate, starting at 9 p.m. Eastern on Oct. 1. The Times will stream it alongside real-time commentary and analysis from reporters.`\
+https://nytimes.com/2024/09/24/us/politics/watch-vance-walz-vp-debate.html
+
+**Behind Kamala Harris’s Rise: Silicon Valley’s Wealthiest Woman**\
+`The alliance between Kamala Harris and Laurene Powell Jobs is a genuine friendship that has thrust the press-shy billionaire philanthropist into the political spotlight.`\
+https://nytimes.com/2024/09/24/us/politics/kamala-harris-laurene-powell-jobs.html
+
 **Live Q&A: Week 4 fantasy football add/drop chat with Jay Felicio, Tuesday 9/24 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5788657/2024/09/24/live-qa-week-4-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-9-24-at-5-p-m-et/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5791423/2024/09/24/lions-injuries-adjustments-week-
 **NFL MVP odds: Josh Allen jumps Mahomes as new favorite, Aaron Rodgers rises**\
 `Josh Allen's Monday night performance vaulted him over Patrick Mahomes to the top of the MVP odds. `\
 https://nytimes.com/athletic/5790893/2024/09/24/nfl-mvp-odds-josh-allen-patrick-mahomes-aaron-rodgers/
-
-**More Money Urgently Needed to Reach Younger and Minority Voters, Organizers Warn Harris Donors**\
-`A new memo, released by two of the leading Democratic groups working in battleground states, lays out worrying signs for Vice President Kamala Harris among younger voters and voters of color.`\
-https://nytimes.com/2024/09/24/us/politics/young-minority-voters-harris-campaign.html
-
-**Hemmed In by the Hard Right, Johnson Again Turns to Democrats for Votes**\
-`The House speaker is trying to get a short-term spending agreement passed despite opposition from some conservative members of his own party.`\
-https://nytimes.com/2024/09/24/us/politics/johnson-spending-democrats-republicans.html
-
-**U.S. Accuses Visa of Monopoly in Debit Cards**\
-`The financial giant, which processes the majority of debit card spending in the United States, unfairly imposed fees on merchants and deterred rivals, the Justice Department said.`\
-https://nytimes.com/2024/09/24/business/dealbook/visa-antitrust-lawsuit-debit-cards.html
 
