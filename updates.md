@@ -1,3 +1,7 @@
+**NFL Week 3 best and worst coaching decisions: Kevin O'Connell, Vic Fangio stand out**\
+`The Eagles DC modified one of his best old game plans and the Vikings coach continues to thrive with Sam Darnold.`\
+https://nytimes.com/athletic/5787646/2024/09/24/nfl-week-3-worst-best-coaching-decisions-nguyen/
+
 **'He's one of one': Josh Allen slings another stunner in Bills' blowout win against Jaguars**\
 `Ten Bills players caught a pass from Josh Allen against Jacksonville.`\
 https://nytimes.com/athletic/5790139/2024/09/24/bills-blowout-win-jaguars-josh-allen/
