@@ -1,3 +1,7 @@
+**Israel’s Strikes on Lebanon**\
+`We explore what led to the strikes, what’s happening now and what might come next.`\
+https://nytimes.com/2024/09/24/briefing/israel-hezbollah-lebanon.html
+
 **Britain’s National Theater Director Takes a Final Bow**\
 `As Rufus Norris prepares to leave the London playhouse he has led since 2015, he reflects on his quest to make the theater represent the audience it serves.`\
 https://nytimes.com/2024/09/24/theater/rufus-norris-national-theater.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5789400/2024/09/24/jayden-daniels-commanders-aldrid
 **Flyers opening-night lineup projection and depth-chart analysis**\
 `Will Owen Tippett end up on the first line, or playing opposite Matvei Michkov?`\
 https://nytimes.com/athletic/5789347/2024/09/24/flyers-depth-chart-lineup-roster/
-
-**‘We’ve been through a lot’: Diamondbacks closing in on return to postseason**\
-`Arizona is going after consecutive playoff berths for just the second time in franchise history`\
-https://nytimes.com/athletic/5790177/2024/09/24/diamondbacks-postseason-chances-seeding/
 

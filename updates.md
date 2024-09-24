@@ -1,3 +1,7 @@
+**Israel’s Strikes on Lebanon**\
+`We explore what led to the strikes, what’s happening now and what might come next.`\
+https://nytimes.com/2024/09/24/briefing/israel-hezbollah-lebanon.html
+
 **Britain’s National Theater Director Takes a Final Bow**\
 `As Rufus Norris prepares to leave the London playhouse he has led since 2015, he reflects on his quest to make the theater represent the audience it serves.`\
 https://nytimes.com/2024/09/24/theater/rufus-norris-national-theater.html
