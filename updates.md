@@ -1,3 +1,7 @@
+**Zelensky Addresses the Security Council, Calling for Attention to Stay on Ukraine**\
+`“Russia can only be forced into peace.” President Volodymyr Zelensky of Ukraine urged the Council members to sustain their backing for his country’s resistance to Russia’s full-scale invasion.`\
+https://nytimes.com/2024/09/24/world/europe/zelensky-un-security-council-ukraine-war.html
+
 **In Manhattan, Pedaling After Cycling Hustlers**\
 `Some New Yorkers found a way to beat Citi Bike’s algorithm. And one reporter found those New Yorkers.`\
 https://nytimes.com/2024/09/24/insider/in-manhattan-pedaling-after-cycling-hustlers.html
