@@ -1,3 +1,15 @@
+**Report on Antisemitism at CUNY Calls for Changes Across the System**\
+`The report, commissioned by New York’s governor, found that the city’s university system was ill-equipped to handle rising antisemitism. But it also said the problem was not widespread.`\
+https://nytimes.com/2024/09/24/us/cuny-antisemitism-report.html
+
+**Inside a Kamala Harris Ad Promoting Her Economic Plans**\
+`Polls show voters want to know more about what she would do. This ad, running across the battlegrounds, gives answers.`\
+https://nytimes.com/2024/09/24/us/politics/kamala-harris-ad-economy.html
+
+**Strange Cellmates in a Brooklyn Jail: Sean Combs and Sam Bankman-Fried**\
+`Mr. Combs is sleeping in the same dormitory-style room as Mr. Bankman-Fried, the crypto mogul who was convicted of fraud.`\
+https://nytimes.com/2024/09/24/arts/music/sean-combs-sam-bankman-fried-jail.html
+
 **Guterres warns that a ‘powder keg risks engulfing the world’ as he urges world leaders to take action.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/24/world/unga-2024-biden/guterres-warns-that-a-powder-keg-risks-engulfing-the-world-as-he-urges-world-leaders-to-take-action
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/24/world/middleeast/israel-lebanon-hezbollah.html
 **Weekly Student News Quiz: Instagram, Lebanon, Baseball Record**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/09/24/learning/24StudentNewsQuiz.html
-
-**Zelensky Prepares for Tough Act Putting Ukraine War Back on Global Agenda**\
-`In his speech to the U.N. General Assembly on Wednesday and then a meeting with President Biden a day later, the Ukrainian president will be pleading for more military and political support.`\
-https://nytimes.com/2024/09/24/world/zelensky-general-assembly-ukraine-war.html
-
-**Wolff hits back at Horner over comments on Russell’s future**\
-`Toto Wolff has hit back at Christian Horner after the Red Bull team principal hinted at a potential move for Mercedes driver George Russell in 2026.`\
-https://nytimes.com/athletic/5790654/2024/09/24/toto-wolff-christian-horner-george-russell/
-
-**Here is the latest on the U.N. meeting.**\
-`The wars in Gaza, Ukraine and Sudan are expected to dominate`\
-https://nytimes.com/live/2024/09/24/world/unga-2024-biden/united-nations-general-assembly-global-turmoil
 
