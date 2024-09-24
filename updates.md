@@ -1,3 +1,11 @@
+**Buckley: Celtics begin title defense with a lot of questions ... and lots of lint to flick**\
+`The champs made sure to have fun at media day, but Brad Stevens' message was well-crafted and blunt: These Celtics have won nothing.`\
+https://nytimes.com/athletic/5792192/2024/09/24/boston-celtics-jayson-tatum-jaylen-brown/
+
+**Sparks, Curt Miller mutually part ways after two seasons**\
+`The two-time WNBA Coach of the Year ranks 11th in regular season wins with a 165-141 record`\
+https://nytimes.com/athletic/5792264/2024/09/24/sparks-curt-miller-part-ways/
+
 **Why Debunked Falsehoods About Haitian Migrants Gained Traction**\
 `The racist and inflammatory narrative spread on the backs of memes, greed, biases and news deserts.`\
 https://nytimes.com/2024/09/24/us/politics/haitian-migrants-disinformation.html
