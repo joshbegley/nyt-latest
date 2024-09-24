@@ -1,3 +1,11 @@
+**As Lebanon Reels From Israeli Attacks, the Future Is Murky for a Wounded Hezbollah**\
+`Some experts said that Israel’s onslaught had left Hezbollah in disarray. Others noted its large weapons stockpiles and history of adapting to battle Israel’s much more high-tech military.`\
+https://nytimes.com/2024/09/24/world/middleeast/israel-lebanon-hezbollah.html
+
+**Weekly Student News Quiz: Instagram, Lebanon, Baseball Record**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/09/24/learning/24StudentNewsQuiz.html
+
 **Zelensky Prepares for Tough Act Putting Ukraine War Back on Global Agenda**\
 `In his speech to the U.N. General Assembly on Wednesday and then a meeting with President Biden a day later, the Ukrainian president will be pleading for more military and political support.`\
 https://nytimes.com/2024/09/24/world/zelensky-general-assembly-ukraine-war.html
