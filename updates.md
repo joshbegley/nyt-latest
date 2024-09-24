@@ -1,3 +1,11 @@
+**Crystal Palace supporters' group call for review of season ticket policy**\
+`A Crystal Palace supporters&#8217; group has called on the club to review their season ticket policy after fans faced significant issues trying to obtain physical cards.`\
+https://nytimes.com/athletic/5790542/2024/09/24/palace-digital-ticket/
+
+**U.N. Live Updates: Biden to Address General Assembly Amid Global Turmoil**\
+`President Biden is expected to assert that his “vision for a world where countries come together to solve big problems” has “produced results” even as conflicts rage on in Ukraine, Sudan and the Middle East.`\
+https://nytimes.com/live/2024/09/24/world/unga-2024-biden
+
 **Flick: Yamal won't be rested against Getafe**\
 `Barcelona head coach Hansi Flick says he will not rest Lamine Yamal during Wednesday’s La Liga game against Getafe.`\
 https://nytimes.com/athletic/5790780/2024/09/24/lamine-yamal-barcelona-rest/
