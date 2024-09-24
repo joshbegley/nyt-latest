@@ -1,3 +1,19 @@
+**Ten Hag hopeful Shaw will return before October international break**\
+`Erik ten Hag says Manchester United left-back Luke Shaw could be back before the October international break.`\
+https://nytimes.com/athletic/5790456/2024/09/24/luke-shaw-erik-ten-hag-manchester-united/
+
+**Breaking down Erling Haaland's 100 City goals: Back-post menace, one-v-ones and the occasional screamer**\
+`It has taken Haaland only 105 games to register a goals century of startling variety for Manchester City, as Thom Harris details`\
+https://nytimes.com/athletic/5788696/2024/09/24/erling-haaland-100-goal-breakdown/
+
+**Thank you, Oakland A’s**\
+`The Bash Brothers' arms, Rickey Henderson's legs and Dave Stewart stare combined to forge a life-long impact. `\
+https://nytimes.com/athletic/5786246/2024/09/24/thank-you-oakland-as/
+
+**10 bold Blues predictions for 2024-25: Thomas' point total, Neighbours' contract — and playoffs?**\
+`Will the Blues make the playoffs in 2024-25? They have an improved roster, but must earn it in a competitive Western Conference.`\
+https://nytimes.com/athletic/5788820/2024/09/24/blues-bold-predictions-thomas-neighbours/
+
 **In Rare Graft Case in Singapore, Former Minister Pleads Guilty**\
 `S. Iswaran, the former transport minister, had maintained his innocence on the corruption charge for months but on Tuesday pleaded guilty to five lesser offenses.`\
 https://nytimes.com/2024/09/24/world/asia/singapore-minister-corruption-case.html

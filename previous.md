@@ -1,3 +1,19 @@
+**Ten Hag hopeful Shaw will return before October international break**\
+`Erik ten Hag says Manchester United left-back Luke Shaw could be back before the October international break.`\
+https://nytimes.com/athletic/5790456/2024/09/24/luke-shaw-erik-ten-hag-manchester-united/
+
+**Breaking down Erling Haaland's 100 City goals: Back-post menace, one-v-ones and the occasional screamer**\
+`It has taken Haaland only 105 games to register a goals century of startling variety for Manchester City, as Thom Harris details`\
+https://nytimes.com/athletic/5788696/2024/09/24/erling-haaland-100-goal-breakdown/
+
+**Thank you, Oakland A’s**\
+`The Bash Brothers' arms, Rickey Henderson's legs and Dave Stewart stare combined to forge a life-long impact. `\
+https://nytimes.com/athletic/5786246/2024/09/24/thank-you-oakland-as/
+
+**10 bold Blues predictions for 2024-25: Thomas' point total, Neighbours' contract — and playoffs?**\
+`Will the Blues make the playoffs in 2024-25? They have an improved roster, but must earn it in a competitive Western Conference.`\
+https://nytimes.com/athletic/5788820/2024/09/24/blues-bold-predictions-thomas-neighbours/
+
 **In Rare Graft Case in Singapore, Former Minister Pleads Guilty**\
 `S. Iswaran, the former transport minister, had maintained his innocence on the corruption charge for months but on Tuesday pleaded guilty to five lesser offenses.`\
 https://nytimes.com/2024/09/24/world/asia/singapore-minister-corruption-case.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/24/theater/rufus-norris-national-theater.html
 **NHL Player Tiers 2024-25: Connor McDavid levels up again, goalies join the discussion**\
 `Our ever-growing list of the top 150 players in the NHL separated into five groups: MVPs, franchise players, all-stars, stars and support. `\
 https://nytimes.com/athletic/5750903/2024/09/24/nhl-best-players-list-2024-2025-season/
-
-**Chiefs rookie Carson Steele skips sister's wedding for memorable first NFL start**\
-`Filling in for the injured Isiah Pacheco, Steele led the Chiefs with 72 rushing yards on 17 carries in just his third career game.`\
-https://nytimes.com/athletic/5789550/2024/09/24/chiefs-carson-steele-sister-wedding/
-
-**How Brian Flores and the Vikings built such a 'wild' and 'different' NFL defense**\
-`What is so unique about Flores' defense, and how are the Vikings seemingly the only team capable of playing this way?`\
-https://nytimes.com/athletic/5789481/2024/09/24/brian-flores-vikings-defense-wild-different/
-
-**East storylines to watch: Celtics' rare revenge tour, Paul George's Philly fit and more**\
-`Training camps are less than a week away. Here's what we're looking forward to covering in the East this season.`\
-https://nytimes.com/athletic/5789728/2024/09/24/nba-storylines-preseason-paul-george-sixers-celtics-bucks/
-
-**Jed Hoyer acknowledges Cubs have work to do to close gap between them and playoff teams**\
-`Fans expect more. Apparently so does everyone involved with the Cubs. So now their job is to get it done and deliver.`\
-https://nytimes.com/athletic/5789878/2024/09/24/jed-hoyer-cubs-craig-counsell-comments/
 
