@@ -22,7 +22,7 @@ https://nytimes.com/2024/09/24/us/politics/trump-harris-undecided-voters.html
 `Readers discuss an essay by a parent who gave her daughter a $100 reward. Also: Donald Trump and the psychiatrists; a second debate; heartland immigrants.`\
 https://nytimes.com/2024/09/24/opinion/reading-kids-parents.html
 
-**Cilic makes ATP Tour history with Hangzhou Open win**\
+**Marin Cilic makes ATP Tour history at Hangzhou Open**\
 `The Croatian becomes the lowest-ranked player to win an ATP Tour title in the Open Era.`\
 https://nytimes.com/athletic/5790904/2024/09/24/cilic-lowest-ranked-atp-title-winners/
 
