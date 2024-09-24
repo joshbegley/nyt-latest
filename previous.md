@@ -1,3 +1,15 @@
+**Brett Favre Reveals He Has Parkinson’s Disease**\
+`Mr. Favre, the former N.F.L. quarterback who fell from grace after Mississippi officials accused him of helping divert funds meant for low-income residents, announced the diagnosis before Congress.`\
+https://nytimes.com/2024/09/24/us/politics/brett-favre-parkinsons.html
+
+**Super Bowl 2025 odds risers and fallers: Should Bengals panic yet? Plus, a futures pick**\
+`The Bengals are among this week's biggest fallers in Super Bowl odds. The Chiefs are still on top, but the Bills are climbing.`\
+https://nytimes.com/athletic/5790834/2024/09/24/super-bowl-2025-odds-risers-fallers-bills-bengals/
+
+**Here’s How the Forecast for Tropical Storm Helene Is Shaping Up**\
+`When the storm’s center was located on Tuesday, it gave meteorologists a crucial next step in firming up the storm’s forecast.`\
+https://nytimes.com/2024/09/24/weather/forecast-helene-storm.html
+
 **T.I. and Tiny Awarded $71 Million Over L.O.L. Dolls’ Likeness to R&B Group**\
 `A jury found that the toy giant MGA Entertainment had violated the musicians’ intellectual property rights with its L.O.L. Surprise! O.M.G. dolls.`\
 https://nytimes.com/2024/09/24/business/omg-dolls-ti-tiny.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/24/world/unga-2024-biden/furious-over-the-conti
 **Both Presidential Candidates Are Ignoring American Wellness**\
 `The U.S. allows chemicals and pesticides banned by Europe, but the issue hasn’t come up in the campaign.`\
 https://nytimes.com/2024/09/17/opinion/chemicals-wellness-campaign-candidates.html
-
-**Rico set to join Al-Gharafa after life-threatening horse and cart accident**\
-`Former Paris Saint-Germain goalkeeper Sergio Rico is set to join Qatari side Al-Gharafa, five months on from receiving medical clearance to return to football after a life-threatening accident.`\
-https://nytimes.com/athletic/5791587/2024/09/24/sergio-rico-al-gharafa-transfer/
-
-**What we know about Lions injuries: Latest on Davenport, Laporta and how Detroit can adjust**\
-`The Lions won the game, but lost several players with injuries.`\
-https://nytimes.com/athletic/5791423/2024/09/24/lions-injuries-adjustments-week-4/
-
-**NFL MVP odds: Josh Allen jumps Mahomes as new favorite, Aaron Rodgers rises**\
-`Josh Allen's Monday night performance vaulted him over Patrick Mahomes to the top of the MVP odds. `\
-https://nytimes.com/athletic/5790893/2024/09/24/nfl-mvp-odds-josh-allen-patrick-mahomes-aaron-rodgers/
 
