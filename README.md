@@ -1,7 +1,3 @@
-**Guardiola provides Rodri update: 'He will be out for a long time'**\
-`Pep Guardiola says Rodri will likely be out for a &#8220;long time&#8221; but explained Manchester City are still waiting on a definitive prognosis and time frame on his injury, which is expected in the coming days.`\
-https://nytimes.com/athletic/5790455/2024/09/24/rodri-injury-update-manchester-city/
-
 **Judge Rejects Trump’s Last-Minute Bid to Delay Assessment of Jan. 6 Case**\
 `Federal prosecutors can come ahead with a lengthy filing containing evidence backing their argument that the indictment of the former president can survive the Supreme Court’s immunity ruling.`\
 https://nytimes.com/2024/09/24/us/politics/trump-jan-6-judge-trial.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/israel-ach
 **David Banks, New York City’s Schools Chancellor, to Resign**\
 `The resignation of Mr. Banks, planned for the end of the year, comes amid a flurry of federal investigations into Mayor Eric Adams and his administration.`\
 https://nytimes.com/2024/09/24/nyregion/david-banks-resigns-nyc-schools-chancellor.html
+
+**NFL best bets Week 4: Picking the Jets to stay hot and a pair of underdogs to win**\
+`Austin Mock has a loaded betting slip for NFL Week 4, including picking a pair of underdogs to win.`\
+https://nytimes.com/athletic/5791465/2024/09/24/nfl-best-bets-week-4-jets-bills-buccaneers/
 
