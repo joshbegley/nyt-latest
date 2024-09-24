@@ -1,3 +1,7 @@
+**Jayden Daniels has near-flawless performance in prime-time debut: 'He's special'**\
+`The rookie QB was calm, cool and collected as he displayed his skills on a national stage and led Washington over a desperate Bengals team. `\
+https://nytimes.com/athletic/5790278/2024/09/24/jayden-daniels-commanders-win-bengals-monday-night-football/
+
 **Patriots stock report: Risers and fallers after the first 3 weeks**\
 `We examine who's exceeding expectations and who's not on the Patriots after the first three weeks of the regular season.`\
 https://nytimes.com/athletic/5788952/2024/09/24/patriots-stock-report-bryce-baringer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/business/economy/port-strike-economy.html
 **Arséma Thomas’s Watch**\
 `Wearing her perfectly imperfect watch helps the “She Taught Love” star feel close to her late father.`\
 https://nytimes.com/2024/09/24/style/arsema-thomass-watch.html
-
-**Kamala Harris Talks About ‘Joy.’ But Are Undecided Voters Feeling It?**\
-`Approximately three million undecided voters in seven battleground states will most likely decide the outcome of the 2024 presidential election, and surveys show that these voters are pessimistic about the country’s future.`\
-https://nytimes.com/video/us/politics/100000009707038/kamala-harris-talks-about-joy-but-are-undecided-voters-feeling-it.html
 

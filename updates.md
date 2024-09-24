@@ -1,3 +1,7 @@
+**Jayden Daniels has near-flawless performance in prime-time debut: 'He's special'**\
+`The rookie QB was calm, cool and collected as he displayed his skills on a national stage and led Washington over a desperate Bengals team. `\
+https://nytimes.com/athletic/5790278/2024/09/24/jayden-daniels-commanders-win-bengals-monday-night-football/
+
 **Patriots stock report: Risers and fallers after the first 3 weeks**\
 `We examine who's exceeding expectations and who's not on the Patriots after the first three weeks of the regular season.`\
 https://nytimes.com/athletic/5788952/2024/09/24/patriots-stock-report-bryce-baringer/
