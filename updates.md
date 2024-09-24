@@ -1,3 +1,15 @@
+**Tracking a Potential Hurricane Headed Toward the U.S.**\
+`See the likely path and wind arrival times for Nine.`\
+https://nytimes.com/interactive/2024/09/24/weather/nine-map-path-tracker.html
+
+**Tennis Briefing: WTA coaching changes, Carlos Alcaraz's mojo and Marin Cilic's comeback**\
+`This week in tennis: Carlos Alcaraz's mojo, another flurry of withdrawals, and some tennis timewarps.`\
+https://nytimes.com/athletic/5787946/2024/09/24/tennis-results-analysis-alcaraz-cilic/
+
+**A Pygmy Hippo Is Stealing Hearts (and Biting Zookeepers)**\
+`Moo Deng, whose name translates to “bouncy pork,” has united the internet while following a familiar path to stardom.`\
+https://nytimes.com/2024/09/24/style/moo-deng-baby-pygmy-hippo-thailand.html
+
 **Report on Antisemitism at CUNY Calls for Changes Across the System**\
 `The report, commissioned by New York’s governor, found that the city’s university system was ill-equipped to handle rising antisemitism. But it also said the problem was not widespread.`\
 https://nytimes.com/2024/09/24/us/cuny-antisemitism-report.html
