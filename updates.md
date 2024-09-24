@@ -1,3 +1,7 @@
+**How a Leftist Delivered Sri Lanka’s Biggest Political Jolt in Decades**\
+`Anura Kumara Dissanayake offered his broad leftist coalition as the best hope for a different political culture, one not ruled by nepotism and corruption.`\
+https://nytimes.com/2024/09/24/world/asia/sri-lanka-election.html
+
 **Rare Copy of U.S. Constitution, Found in a File Cabinet, Is Up for Auction**\
 `An appraiser discovered the 1787 document before a house sale in North Carolina in 2022. It goes up for auction this week.`\
 https://nytimes.com/2024/09/24/us/us-constitution-copy-auction.html

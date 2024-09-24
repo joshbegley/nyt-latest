@@ -1,3 +1,7 @@
+**How a Leftist Delivered Sri Lanka’s Biggest Political Jolt in Decades**\
+`Anura Kumara Dissanayake offered his broad leftist coalition as the best hope for a different political culture, one not ruled by nepotism and corruption.`\
+https://nytimes.com/2024/09/24/world/asia/sri-lanka-election.html
+
 **Rare Copy of U.S. Constitution, Found in a File Cabinet, Is Up for Auction**\
 `An appraiser discovered the 1787 document before a house sale in North Carolina in 2022. It goes up for auction this week.`\
 https://nytimes.com/2024/09/24/us/us-constitution-copy-auction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5789537/2024/09/24/college-football-oklahoma-kansas
 **Ranking Big 12 basketball programs — the sport's top league is only getting better**\
 `With four Pac-12 schools joining the league, here’s a refresher on the makeup of the Big 12 and what the rosters look like.`\
 https://nytimes.com/athletic/5788495/2024/09/24/big-12-basketball-rankings-houston-kansas-preseason/
-
-**Q & A: Matt Bonner on Vince Carter, his connection with Raptors fans and his new job**\
-`The new co-host of The Raptors Show is taking to the airwaves 20 years after his debut on the court with the team.`\
-https://nytimes.com/athletic/5789105/2024/09/24/raptors-matt-bonner-sportsnet-590-2024-season/
 
