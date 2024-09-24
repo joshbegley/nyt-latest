@@ -1,3 +1,15 @@
+**Netanyahu, delayed by Israel’s new assault on Hezbollah, faces broad censure from gathered leaders.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/09/24/world/unga-2024-biden/netanyahu-delayed-by-israels-new-assault-on-hezbollah-faces-broad-censure-from-gathered-leaders
+
+**Israel’s Strikes on Lebanon Are Some of the Deadliest in Decades**\
+`What we know about the strikes, the death toll and how it is calculated.`\
+https://nytimes.com/2024/09/24/world/middleeast/israel-lebanon-strikes-deaths.html
+
+**A Montreal Museum Reckons with Its Legacy, and Uplifts Inuit Artists**\
+`This fall, the Montreal Museum of Fine Art’s Native art collection — once consigned to a far corner — will be front and center in a new show.`\
+https://nytimes.com/2024/09/24/arts/design/montreal-museum-inuit.html
+
 **In his final speech at the United Nations, Biden calls again for a cease-fire in Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/biden-united-nations-cease-fire
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/100000009716554/guterres-united-nations.html
 **Baldwin, With Shapiro in Tow, Looks For ‘Trump-Tammy Voters’ in Wisconsin**\
 `The Democratic senator, who is seeking a third term in a politically competitive state, rallied with the Pennsylvania governor, who has a track record of appealing to voters in rural, conservative-leaning areas.`\
 https://nytimes.com/2024/09/24/us/politics/tammy-baldwin-josh-shapiro-trump-voters-wisconsin.html
-
-**Election 2024 Polls: Ohio**\
-`See the latest election polls and polling averages for Ohio.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-ohio.html
-
-**Election 2024 Polls: New Mexico**\
-`See the latest election polls and polling averages for New Mexico.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-new-mexico.html
-
-**Election 2024 Polls: Texas**\
-`See the latest election polls and polling averages for Texas.`\
-https://nytimes.com/interactive/2024/us/elections/polls-president-texas.html
 
