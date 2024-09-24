@@ -1,3 +1,11 @@
+**Oklahoma switches starting QB to Michael Hawkins after Tennessee drubbing**\
+`Arnold, a former-five star recruit, was benched for Hawkins in the Sooners' 25-15 loss against Tennessee.`\
+https://nytimes.com/athletic/5789908/2024/09/23/oklahoma-quarterback-michael-hawkins-jackson-arnold-starter/
+
+**Elon Musk Hails Italy’s Leader at Awards Ceremony**\
+`Mr. Musk described Prime Minister Giorgia Meloni as “authentic, honest and thoughtful.” She used her Atlantic Council spotlight to defend Western values.`\
+https://nytimes.com/2024/09/23/business/elon-musk-giorgia-meloni.html
+
 **Jets sign Cole Perfetti to 2-year contract**\
 `The Winnipeg Jets have signed Cole Perfetti to a two-year, $3.`\
 https://nytimes.com/athletic/5789860/2024/09/23/winnipeg-jets-cole-perfetti-contract/
