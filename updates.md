@@ -1,3 +1,11 @@
+**U.K.’s Starmer Attempts to Sprinkle Some Harris-Style ‘Joy’ Into Speech**\
+`After a somewhat bumpy start to his premiership, Keir Starmer tried to reclaim the narrative, acknowledging voters’ desire for hope and promising change was on the way.`\
+https://nytimes.com/2024/09/24/world/europe/keir-starmer-speech-uk.html
+
+**City 16-year-old Braithwaite set for Carabao Cup start**\
+`Manchester City teenager Kaden Braithwaite will become the third-youngest player in the club&#8217;s history when he makes his first-team debut later on Tuesday evening.`\
+https://nytimes.com/athletic/5791346/2024/09/24/kaden-braithwaite-man-city-carabao-cup/
+
 **Steelers preparing Justin Fields to start again**\
 `Tomlin: "I want Justin (Fields) singularly focused on starting for us and doing what's required to be ready to do that.”`\
 https://nytimes.com/athletic/5791227/2024/09/24/steelers-justin-fields-russell-wilson-status/
