@@ -1,3 +1,7 @@
+**Blue Jays takeaways: Vladimir Guerrero Jr. chasing 200, Danny Jansen returns with Red Sox**\
+`Guerrero's play has been the brightest spot in this disappointing season.`\
+https://nytimes.com/athletic/5790028/2024/09/23/blue-jays-vladimir-guerrero-jr-200-hits-chase/
+
 **Trump Tells Women That They ‘Won’t Think About Abortion’**\
 `“You will be protected, and I will be your protector,” said former President Donald J. Trump. Polls have shown he is struggling to cultivate support among women, for whom abortion rights remain a top issue.`\
 https://nytimes.com/2024/09/23/us/politics/trump-women-abortion.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5789969/2024/09/23/nwsl-playoffs-gotham-white-house
 **[Not My Typo]**\
 `Kevin L. Shellito’s debut Times puzzle is hot off the presses.`\
 https://nytimes.com/2024/09/23/crosswords/daily-puzzle-2024-09-24.html
-
-**Thousands of Lebanese Are Displaced Amid Israeli Strikes**\
-`Amal Mohamed Zayyat, a resident of southern Lebanon, sought shelter in Beirut after Israel stepped up its attacks against what it said were Hezbollah targets.`\
-https://nytimes.com/video/world/middleeast/100000009714893/lebanon-israel-airstrikes-displaced.html
 
