@@ -1,3 +1,7 @@
+**A New York congressman had an affair, then put his lover on the payroll.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2024/09/24/us/trump-harris-election/a-new-york-congressman-had-an-affair-then-put-his-lover-on-the-payroll
+
 **How Giants' Daniel Jones looked like completely different QB in win vs. Browns**\
 `Pressure rattled Jones in the Week 1 loss to the Vikings. But in Week 3, Jones thrived under duress. `\
 https://nytimes.com/athletic/5790125/2024/09/24/new-york-giants-daniel-jones-browns-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/us/politics/kamala-harris-ad-economy.html
 **Strange Cellmates in a Brooklyn Jail: Sean Combs and Sam Bankman-Fried**\
 `Mr. Combs is sleeping in the same dormitory-style room as Mr. Bankman-Fried, the crypto mogul who was convicted of fraud.`\
 https://nytimes.com/2024/09/24/arts/music/sean-combs-sam-bankman-fried-jail.html
-
-**Guterres warns that a ‘powder keg risks engulfing the world’ as he urges world leaders to take action.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/09/24/world/unga-2024-biden/guterres-warns-that-a-powder-keg-risks-engulfing-the-world-as-he-urges-world-leaders-to-take-action
 
