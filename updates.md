@@ -1,3 +1,11 @@
+**Ted Cruz Is Again Fighting for Political Survival in Texas**\
+`The fiery senator, who was nearly unseated in 2018, has been trying to rebrand himself in a close race against a Democratic congressman and former N.F.L. player, Colin Allred.`\
+https://nytimes.com/2024/09/24/us/politics/ted-cruz-colin-allred-texas-senate.html
+
+**Kilgore leaves USWNT to 'pursue other coaching opportunities'**\
+`Kilgore took interim charge of the team for almost a year following Vlatko Andonovski's exit after the 2023 World Cup`\
+https://nytimes.com/athletic/5791112/2024/09/24/twila-kilgore-uswnt-next/
+
 **Families of Hostages and Gazans Feel Forgotten as War Heats Up in Lebanon**\
 `Talks to reach a potential cease-fire in Gaza and free the remaining 100 or so hostages have stalled.`\
 https://nytimes.com/2024/09/24/world/middleeast/families-of-hostages-and-gazans-feel-forgotten-as-war-heats-up-in-lebanon.html
