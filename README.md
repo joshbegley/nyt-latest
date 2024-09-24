@@ -1,3 +1,7 @@
+**‘End This War’: Biden Calls for Gaza Cease-fire in Final U.N. Speech**\
+`President Biden said the families of hostages in Gaza and innocent civilians in the enclave were “going through hell” and urged Israel and Hamas to sign on to a cease-fire deal.`\
+https://nytimes.com/video/world/middleeast/100000009717000/biden-cease-fire-un-speech.html
+
 **Who do I drop? Trevor Lawrence, Javonte Williams and more fantasy football cuts ahead of Week 4**\
 `Gary Davenport identifies five players rostered in a majority of fantasy football leagues who can be justifiably cut loose ahead of Week 4.`\
 https://nytimes.com/athletic/5791158/2024/09/24/fantasy-football-week-4-drops-lawrence-gus-edwards-javonte-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/arts/design/montreal-museum-inuit.html
 **In his final speech at the United Nations, Biden calls again for a cease-fire in Gaza.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/09/24/world/gaza-israel-hamas-hezbollah/biden-united-nations-cease-fire
-
-**Review: A Devastated Drone Pilot Opens the Met Opera’s Season**\
-`Jeanine Tesori and George Brant’s bloodless “Grounded,” about a fighter pilot turned dissociating drone operator, stars the mezzo-soprano Emily D’Angelo.`\
-https://nytimes.com/2024/09/24/arts/review-grounded-metropolitan-opera-jeanine-tesori-george-brant.html
 
