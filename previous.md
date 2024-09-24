@@ -1,5 +1,21 @@
+**Steelers preparing Justin Fields to start again**\
+`Tomlin: "I want Justin (Fields) singularly focused on starting for us and doing what's required to be ready to do that.”`\
+https://nytimes.com/athletic/5791227/2024/09/24/steelers-justin-fields-russell-wilson-status/
+
+**Why the Tigers called up Jackson Jobe for their playoff hunt**\
+`Top prospect Jackson Jobe will pitch out of the bullpen for the Tigers in their final six games of the season. `\
+https://nytimes.com/athletic/5791253/2024/09/24/tigers-jackson-jobe-call-up-playoffs/
+
+**A Night at the Opera With Jonathan Groff, Juliana Canfield and Christine Baranski**\
+`The Metropolitan Opera drew a crowd of celebrities, philanthropists and Broadway stars for the opening night of its new season.`\
+https://nytimes.com/2024/09/24/style/new-york-gala.html
+
+**Harris Reiterates Support for Ending Filibuster to Protect Abortion Rights**\
+`“I’ve been very clear: I think we should eliminate the filibuster for Roe,” the vice president said in a radio interview, renewing a call she and President Biden have made in the past.`\
+https://nytimes.com/2024/09/24/us/politics/harris-senate-filibuster-abortion-rights-roe.html
+
 **Tatum says Mazzulla was ‘probably the happiest person’ with Olympic benching**\
-`Tatum previously addressed the benching, but added Tuesday that he's "a believer that everything does happen for a reason."`\
+`Tatum called Mazzulla's response 'odd,' but added: 'If you know Joe it makes sense."`\
 https://nytimes.com/athletic/5791182/2024/09/24/jayson-tatum-olympics-benching-celtics/
 
 **College football best bets Week 5: Picking a UNC bounce-back and more**\
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/24/world/africa/russia-satellite-west-africa.html
 **‘End This War’: Biden Calls for Gaza Cease-fire in Final U.N. Speech**\
 `President Biden said the families of hostages in Gaza and innocent civilians in the enclave were “going through hell” and urged Israel and Hamas to sign on to a cease-fire deal.`\
 https://nytimes.com/video/world/middleeast/100000009717000/biden-cease-fire-un-speech.html
-
-**Who do I drop? Trevor Lawrence, Javonte Williams and more fantasy football cuts ahead of Week 4**\
-`Gary Davenport identifies five players rostered in a majority of fantasy football leagues who can be justifiably cut loose ahead of Week 4.`\
-https://nytimes.com/athletic/5791158/2024/09/24/fantasy-football-week-4-drops-lawrence-gus-edwards-javonte-williams/
-
-**In Milan, a Vast — and Unlikely — Home for Contemporary Art**\
-`Twenty years ago, the tire company Pirelli decided to create an exhibition space. This fall, Jean Tinguely’s huge sculptures will take over.`\
-https://nytimes.com/2024/09/24/arts/design/milan-pirelli-hangarbicocca-tinguely.html
-
-**Maryland Sues Shipping Companies to Cover Costs of Bridge Collapse**\
-`The lawsuit is the latest legal fallout from the disaster in March, which killed six people and halted operations at the Port of Baltimore.`\
-https://nytimes.com/2024/09/24/us/maryland-lawsuit-shipping-companies-bridge-collapse.html
-
-**Re-Examining the Cold War, Through British Eyes**\
-`Two exhibits, in London and Edinburgh, look back at the anxiety-filled era — and draw eerie parallels to the present day.`\
-https://nytimes.com/2024/09/24/arts/design/museums-edinburgh-london-cold-war.html
 

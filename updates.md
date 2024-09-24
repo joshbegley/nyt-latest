@@ -1,3 +1,23 @@
+**Steelers preparing Justin Fields to start again**\
+`Tomlin: "I want Justin (Fields) singularly focused on starting for us and doing what's required to be ready to do that.”`\
+https://nytimes.com/athletic/5791227/2024/09/24/steelers-justin-fields-russell-wilson-status/
+
+**Why the Tigers called up Jackson Jobe for their playoff hunt**\
+`Top prospect Jackson Jobe will pitch out of the bullpen for the Tigers in their final six games of the season. `\
+https://nytimes.com/athletic/5791253/2024/09/24/tigers-jackson-jobe-call-up-playoffs/
+
+**A Night at the Opera With Jonathan Groff, Juliana Canfield and Christine Baranski**\
+`The Metropolitan Opera drew a crowd of celebrities, philanthropists and Broadway stars for the opening night of its new season.`\
+https://nytimes.com/2024/09/24/style/new-york-gala.html
+
+**Harris Reiterates Support for Ending Filibuster to Protect Abortion Rights**\
+`“I’ve been very clear: I think we should eliminate the filibuster for Roe,” the vice president said in a radio interview, renewing a call she and President Biden have made in the past.`\
+https://nytimes.com/2024/09/24/us/politics/harris-senate-filibuster-abortion-rights-roe.html
+
+**Tatum says Mazzulla was ‘probably the happiest person’ with Olympic benching**\
+`Tatum called Mazzulla's response 'odd,' but added: 'If you know Joe it makes sense."`\
+https://nytimes.com/athletic/5791182/2024/09/24/jayson-tatum-olympics-benching-celtics/
+
 **Re-Examining the Cold War, Through British Eyes**\
 `Two exhibits, in London and Edinburgh, look back at the anxiety-filled era — and draw eerie parallels to the present day.`\
 https://nytimes.com/2024/09/24/arts/design/museums-edinburgh-london-cold-war.html
