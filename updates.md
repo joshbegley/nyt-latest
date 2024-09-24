@@ -1,3 +1,7 @@
+**Biden Warned the World Is at an ‘Inflection Point’**\
+`Also, thousands are fleeing southern Lebanon. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/09/24/briefing/biden-speech-united-nations-best-restaurants.html
+
 **Until Saturday: Pac-12, Mountain West drama continues**\
 `Welcome to Until Saturday, the five-star college football newsletter: The Pac-12, Mountain West drama continues.`\
 https://nytimes.com/athletic/5791286/2024/09/24/pac-12-mountain-west-realignment-until-saturday/

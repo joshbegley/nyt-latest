@@ -1,3 +1,7 @@
+**Biden Warned the World Is at an ‘Inflection Point’**\
+`Also, thousands are fleeing southern Lebanon. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/09/24/briefing/biden-speech-united-nations-best-restaurants.html
+
 **Until Saturday: Pac-12, Mountain West drama continues**\
 `Welcome to Until Saturday, the five-star college football newsletter: The Pac-12, Mountain West drama continues.`\
 https://nytimes.com/athletic/5791286/2024/09/24/pac-12-mountain-west-realignment-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/us/politics/vance-walz-debate-standing.html
 **House Panel Recommends Holding Blinken in Contempt**\
 `Democrats accused Republicans of trying to damage the Biden administration at the height of a campaign season.`\
 https://nytimes.com/2024/09/24/us/politics/house-blinken-contempt-afghanistan.html
-
-**In Manhattan, Pedaling After Cycling Hustlers**\
-`Some New Yorkers found a way to beat Citi Bike’s algorithm. And one reporter found those New Yorkers.`\
-https://nytimes.com/2024/09/24/insider/in-manhattan-pedaling-after-cycling-hustlers.html
 
