@@ -1,3 +1,7 @@
+**Partizan head coach injured by own fans after Belgrade derby defeat**\
+`Partizan Belgrade head coach Aleksandar Stanojevic was left with injuries after his club&#8217;s fans broke into the dressing room following a four-goal defeat by Red Star Belgrade.`\
+https://nytimes.com/athletic/5790487/2024/09/24/belgrade-derby-partizan-red-star/
+
 **Israel’s Strikes on Lebanon**\
 `We explore what led to the strikes, what’s happening now and what might come next.`\
 https://nytimes.com/2024/09/24/briefing/israel-hezbollah-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/podcasts/israeli-strikes-lebanon-biden-un.html
 **Aldridge: Jayden Daniels, out of central casting, looks like a leading man for Washington**\
 `It's been a long time since Washington had its own great young QB on the field with talent and potential for all of America to see.`\
 https://nytimes.com/athletic/5789400/2024/09/24/jayden-daniels-commanders-aldridge/
-
-**Flyers opening-night lineup projection and depth-chart analysis**\
-`Will Owen Tippett end up on the first line, or playing opposite Matvei Michkov?`\
-https://nytimes.com/athletic/5789347/2024/09/24/flyers-depth-chart-lineup-roster/
 
