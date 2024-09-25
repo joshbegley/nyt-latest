@@ -1,3 +1,7 @@
+**Mets look sloppy in dropping critical series opener to Braves**\
+`The task gets no easier for the Mets, who are slated to face Cy Young frontrunner Chris Sale next, weather permitting.`\
+https://nytimes.com/athletic/5792725/2024/09/24/mets-sloppy-wild-card-braves/
+
 **ACC's 2024-25 men’s basketball schedule highlights Duke, UNC, 3 new members**\
 `The ACC released its 2024-25 men’s basketball schedule on Tuesday with a new 18-team lineup.`\
 https://nytimes.com/athletic/5792443/2024/09/24/acc-basketball-schedule-release/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/theater/ghost-of-john-mccain-review-trump.html
 **Brio**\
 `Peter Gordon’s puzzle comes with surround sound.`\
 https://nytimes.com/2024/09/24/crosswords/daily-puzzle-2024-09-25.html
-
-**Leadership Failures Helped Lead to FAFSA Debacle, Watchdog Finds**\
-`Two reports by the Government Accountability Office found that mismanagement and wildly unrealistic projections derailed the student aid application process this year.`\
-https://nytimes.com/2024/09/24/us/politics/watchdog-faults-leadership-fafsa-debacle.html
 
