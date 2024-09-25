@@ -1,3 +1,7 @@
+**U.S. is working to broker a temporary cease-fire between Israel and Hezbollah.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/us-cease-fire
+
 **Putin Declares Changes to Russian Nuclear Doctrine**\
 `President Vladimir V. Putin heightened his warnings against the West, asserting that Russia should be permitted to employ nuclear arms in the event of an attack by a nation backed by a nuclear power.`\
 https://nytimes.com/2024/09/25/world/europe/putin-declares-changes-to-russian-nuclear-doctrine.html

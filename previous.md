@@ -1,3 +1,7 @@
+**U.S. is working to broker a temporary cease-fire between Israel and Hezbollah.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/us-cease-fire
+
 **Putin Declares Changes to Russian Nuclear Doctrine**\
 `President Vladimir V. Putin heightened his warnings against the West, asserting that Russia should be permitted to employ nuclear arms in the event of an attack by a nation backed by a nuclear power.`\
 https://nytimes.com/2024/09/25/world/europe/putin-declares-changes-to-russian-nuclear-doctrine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/theater/roundabout-ashley.html
 **Brandeis President Steps Down Amid Budget Issues and Protests**\
 `The university has seen major drops in enrollment, even as the president invited students concerned about protests and antisemitism on other campuses to transfer.`\
 https://nytimes.com/2024/09/25/us/brandeis-university-president-resigns.html
-
-**Meta Unveils New Virtual Reality Headset as It Pursues the Metaverse**\
-`At an event in Silicon Valley, Meta exhibited a range of products meant to blend the real world and virtual reality, with a healthy dose of A.I.`\
-https://nytimes.com/2024/09/25/technology/meta-products-artificial-intelligence.html
 
