@@ -1,3 +1,7 @@
+**Los Angeles Bus Hijacked at Gunpoint**\
+`The person suspected of hijacking a bus which killed one person, was taken into custody after an hourlong pursuit by the Los Angeles Police Department early Wednesday morning.`\
+https://nytimes.com/video/us/100000009719308/los-angeles-bus-hijack.html
+
 **Exploring the Roots of Mideast Turbulence Onstage**\
 `A retrospective in Paris honors Lina Majdalanie and Rabih Mroué, whose theater works have examined the region’s troubles for decades.`\
 https://nytimes.com/2024/09/25/theater/lina-majdalanie-rabih-mroue-middle-east.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/us/politics/trump-ads-dan-newlin.html
 **How did the Pac-12 and Mountain West get here?**\
 `Conference realignment continues to rage out west, much to the confusion of many people in the rest of the country.`\
 https://nytimes.com/athletic/5793473/2024/09/25/pac-12-mountain-west-realignment-members/
-
-**At Book Release Parties, Fans Go Loony for Rooney**\
-`Sally Rooney lovers reveled, played trivia and took part in raffles to celebrate the Irish novelist’s new book, “Intermezzo.”`\
-https://nytimes.com/2024/09/25/books/sally-rooney-intermezzo.html
 
