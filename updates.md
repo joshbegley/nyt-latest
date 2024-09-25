@@ -1,3 +1,7 @@
+**Alex Bregman gets sendoff in Astros' final regular-season game at Minute Maid Park**\
+`Bregman, a free agent after this season, has spent his entire nine-year career in Houston. `\
+https://nytimes.com/athletic/5794390/2024/09/25/alex-bregman-sendoff-astros-final-home-game/
+
 **They Were Promised a Charming ‘Bridgerton’ Ball. They Got a Pole Dance.**\
 `A Detroit event evoked memories of Glasgow’s Willy Wonka debacle. We look at how they stack up against each other.`\
 https://nytimes.com/2024/09/25/us/bridgerton-ball-experience-detroit-scam-new.html

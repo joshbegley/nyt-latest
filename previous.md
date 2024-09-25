@@ -1,3 +1,7 @@
+**Alex Bregman gets sendoff in Astros' final regular-season game at Minute Maid Park**\
+`Bregman, a free agent after this season, has spent his entire nine-year career in Houston. `\
+https://nytimes.com/athletic/5794390/2024/09/25/alex-bregman-sendoff-astros-final-home-game/
+
 **They Were Promised a Charming ‘Bridgerton’ Ball. They Got a Pole Dance.**\
 `A Detroit event evoked memories of Glasgow’s Willy Wonka debacle. We look at how they stack up against each other.`\
 https://nytimes.com/2024/09/25/us/bridgerton-ball-experience-detroit-scam-new.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/style/galaxy-gas-nitrous-oxide.html
 **The Simple Stories About the Opioid Epidemic Are Wrong**\
 `Overdose deaths are finally coming down. Why?`\
 https://nytimes.com/2024/09/25/opinion/opioid-overdoses-deaths.html
-
-**CONCACAF announces venues for 2025 Gold Cup**\
-`CONCACAF, football&#8217;s governing body for North and Central America, has officially confirmed the venues for the 2025 Gold Cup.`\
-https://nytimes.com/athletic/5794170/2024/09/25/gold-cup-venues-stadiums-concacaf/
 
