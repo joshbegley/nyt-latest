@@ -26,9 +26,9 @@ https://nytimes.com/2024/09/25/nyregion/aoc-eric-adams-resign.html
 `By John Eligon and Ruth Maclean`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/abandoned-officials-say-more-must-be-done-as-war-and-famine-rips-sudan-apart
 
-**The U.S. is seeking a pause in the fighting in a bid to avert a wider war.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/us-cease-fire-israel-hezbollah
+**The U.S. Seeks to Pause Fighting Between Israel and Lebanon**\
+`With fears growing of a wider regional war in the Middle East, the United States is working to broker a short-term cease-fire agreement.`\
+https://nytimes.com/2024/09/25/world/middleeast/us-cease-fire-israel-hezbollah.html
 
 **Putin Declares Changes to Russian Nuclear Doctrine**\
 `President Vladimir V. Putin heightened his warnings against the West, asserting that Russia should be permitted to employ nuclear arms in the event of an attack by a nation backed by a nuclear power.`\
