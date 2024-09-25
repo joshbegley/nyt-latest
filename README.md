@@ -1,3 +1,15 @@
+**Zelensky Warns U.N. Against Ceding to Russia’s ‘Insane’ Desire for Land**\
+`President Volodymyr Zelensky of Ukraine told the meeting of world leaders that capitulating to Russia would only give its president, Vladimir Putin, the “political space to continue the war.”`\
+https://nytimes.com/2024/09/25/world/europe/un-zelensky-ukraine-putin.html
+
+**Mark Robinson’s Top Staff in the Lieutenant Governor’s Office Plan to Resign**\
+`North Carolina’s Republican nominee for governor has already lost most of his campaign staff after a news report linked him to disturbing comments on a porn site.`\
+https://nytimes.com/2024/09/25/us/politics/mark-robinsons-top-staff-in-the-lieutenant-governors-office-plan-to-resign.html
+
+**Bresson’s ‘Lancelot du Lac’: The Undoing of Camelot**\
+`Broken by failure, the knights don their creaking armor and take aim at one another, as a desolate Lancelot tries to sever his bonds with Guinevere.`\
+https://nytimes.com/2024/09/25/arts/bressons-lancelot-crumbling-camelot.html
+
 **A Wisconsin Mayor Took Issue With a Ballot Drop Box Decision, So He Took the Drop Box**\
 `Mayor Doug Diny of Wausau, Wis., said the City Council should have been consulted before the installation. The Wisconsin Supreme Court had said authority rested with the city clerk.`\
 https://nytimes.com/2024/09/25/us/politics/wisconsin-mayor-ballot-box.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5794519/2024/09/25/commanders-austin-ekeler-concuss
 **A ‘Health Resort Horror Story’ From a Nobel Laureate**\
 `In a new novel by Olga Tokarczuk, guests at a mountain retreat face a dark and cryptic threat.`\
 https://nytimes.com/2024/09/25/books/review/olga-tokarczuk-the-empusium.html
-
-**What I'm watching with Jets in Week 4: Rodgers revenge game? Fashanu at right tackle and more**\
-`Plus, Garrett Wilson tries to get going against another elite cornerback.`\
-https://nytimes.com/athletic/5794329/2024/09/25/aaron-rodgers-hackett-revenge-game-broncos-jets-sean-payton/
-
-**Harbaugh: Herbert 'progressing' from injury**\
-`Herbert left Sunday's game against the Pittsburgh Steelers in a walking boot after suffering a high ankle sprain in Week 2 against Carolina.`\
-https://nytimes.com/athletic/5794467/2024/09/25/justin-herbert-injury-update-chargers-nfl/
-
-**Making Tender Scones at Home Is Easier Than You Think**\
-`All you need is a bowl, fork and baking sheet for fresh, warm scones with crisp tops and soft centers.`\
-https://nytimes.com/2024/09/25/dining/how-to-make-scones.html
 
