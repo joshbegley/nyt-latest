@@ -1,3 +1,27 @@
+**Masai Russell introduced herself to the world with Olympic gold; now, meet her alter ego**\
+`For Masai Russell, a headliner Thursday at the new Athlos women's track event, the spirit she found in Paris looks a lot like her mother's.`\
+https://nytimes.com/athletic/5794298/2024/09/25/masai-russell-olympics-hurdles-gold-athlos-nyc/
+
+**Oil company CEO calls climate change ‘a crisis’ and defends carbon capture investments.**\
+`By Manuela Andreoni`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/oil-company-ceo-calls-climate-change-a-crisis-and-defends-carbon-capture-investments
+
+**Final 2 games of critical Braves-Mets series postponed by storms, moved to Monday doublehader**\
+`The critical series between the Braves and Mets will now be completed after the official end of the season.`\
+https://nytimes.com/athletic/5794753/2024/09/25/braves-mets-postponed/
+
+**Raya doubtful for Arsenal vs Leicester with thigh injury**\
+`David Raya is an injury doubt for Arsenal&#8217;s Premier League match against Leicester City on Saturday.`\
+https://nytimes.com/athletic/5794202/2024/09/25/david-raya-injury-arsenal/
+
+**What to Know About New York City’s New Schools Chancellor**\
+`Melissa Aviles-Ramos, a former English teacher and deputy chancellor, will assume the post after David C. Banks steps down in December.`\
+https://nytimes.com/2024/09/25/nyregion/melissa-aviles-ramos-nyc-schools-chancellor.html
+
+**Harris Casts Herself as a Pro-Business Pragmatist in a Broad Economic Pitch**\
+`Declaring “I am a capitalist” in a speech in Pittsburgh, Kamala Harris promised not to be “constrained by ideology” even as she said she would fiercely defend unions and the middle class.`\
+https://nytimes.com/2024/09/25/us/politics/harris-economic-speech-pro-business.html
+
 **U.S. and Russian diplomats argue in Security Council session about improving communication.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/us-and-russian-diplomats-argue-in-security-council-session-about-improving-communication
@@ -13,28 +37,4 @@ https://nytimes.com/video/us/100000009720158/hurricane-helene.html
 **Thursday Briefing: The U.S. Pushes for a Cease-Fire in Lebanon**\
 `Plus, 3,600-year-old cheese.`\
 https://nytimes.com/2024/09/25/briefing/ceasefire-lebanon-election-japan.html
-
-**Presidents Cup matchups, tee times and pairings**\
-`Xander Schauffele and Patrick Cantlay are split up, as are world No. 1 Scottie Scheffler and best friend Sam Burns.`\
-https://nytimes.com/athletic/5794689/2024/09/25/presidents-cup-pairings-tee-times/
-
-**The Briefing: Man United 1 Twente 1 - Eriksen scores, Rashford shines, but so many errors led to Twente's goal**\
-`Manchester United opened their Europa League campaign with an underwhelming 1-1 draw at home to Erik ten Hag&#8217;s former side Twente.`\
-https://nytimes.com/athletic/5790314/2024/09/25/man-united-twente-analysis-rashford-eriksen-ten-hag/
-
-**'He just keeps going': Could Jett Luchanko make the Flyers' opening-night roster?**\
-`After Philadelphia's first cuts, the 2024 first-rounder is the only one in his training camp group who has never played an NHL game.`\
-https://nytimes.com/athletic/5794504/2024/09/25/flyers-jett-luchanko-roster-battle/
-
-**‘A death sentence’: Officials from vulnerable nations say losses from climate change have already begun.**\
-`By Manuela Andreoni`\
-https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/a-death-sentence-officials-from-vulnerable-nations-say-losses-from-climate-change-have-already-begun
-
-**Protesters briefly disrupt a discussion with an oil company executive.**\
-`By Manuela Andreoni and Ryan McCarthy`\
-https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/protesters-briefly-disrupt-a-discussion-with-an-oil-company-executive
-
-**What Should Israel Do?**\
-`Israel faces a dire threat from the outside, and its prime minister and his allies have been prioritizing their own interests.`\
-https://nytimes.com/2024/09/25/opinion/israel-hezbollah-hamas.html
 
