@@ -1,3 +1,7 @@
+**Train Car Spewing Chemical Triggers Evacuations in Ohio**\
+`A plume of highly-flammable styrene shot out of the train car, filling the air in the area west of Cincinnati with an odor one resident described as burnt metal.`\
+https://nytimes.com/video/us/100000009718548/train-chemical-leak-ohio-styrene.html
+
 **Taking on Food Emissions at Their Origin and Consumption**\
 `Andy Jarvis, Bruce Friedrich, Will Harris and Katie Cantrell are part of a group focused on food who are leading conversations at the Times’s Climate Forward Changemaker Lunch.`\
 https://nytimes.com/2024/09/25/climate/food-emissions.html
