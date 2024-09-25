@@ -1,3 +1,15 @@
+**They Were Promised a Charming ‘Bridgerton’ Ball. They Got a Pole Dance.**\
+`A Detroit event evoked memories of Glasgow’s Willy Wonka debacle. We look at how they stack up against each other.`\
+https://nytimes.com/2024/09/25/us/bridgerton-ball-experience-detroit-scam-new.html
+
+**What’s in Our Queue? Chucho Valdés and More**\
+`I’m on assignment in Brussels, where I’m covering the European Union. Here are five things I’ve been listening to, watching and discovering.`\
+https://nytimes.com/interactive/2024/09/25/arts/editors-recommendations-valdes.html
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears are 1-2 and the offense is a mess. This week they host the banged-up Rams, who just upset the 49ers. What's on your mind?`\
+https://nytimes.com/athletic/5794449/2024/09/25/bears-mailbag-questions-33/
+
 **How the Astros will navigate 4 meaningless games before a Wild Card Series**\
 `The AL West champions plan to swap two pitchers' spots in the rotation and let Yordan Alvarez rest for the rest of the regular season.`\
 https://nytimes.com/athletic/5794340/2024/09/25/astros-meaningless-games-wild-card-series/
