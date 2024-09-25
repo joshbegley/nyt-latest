@@ -1,3 +1,15 @@
+**They Were Promised a Charming ‘Bridgerton’ Ball. They Got a Pole Dance.**\
+`A Detroit event evoked memories of Glasgow’s Willy Wonka debacle. We look at how they stack up against each other.`\
+https://nytimes.com/2024/09/25/us/bridgerton-ball-experience-detroit-scam-new.html
+
+**What’s in Our Queue? Chucho Valdés and More**\
+`I’m on assignment in Brussels, where I’m covering the European Union. Here are five things I’ve been listening to, watching and discovering.`\
+https://nytimes.com/interactive/2024/09/25/arts/editors-recommendations-valdes.html
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears are 1-2 and the offense is a mess. This week they host the banged-up Rams, who just upset the 49ers. What's on your mind?`\
+https://nytimes.com/athletic/5794449/2024/09/25/bears-mailbag-questions-33/
+
 **How the Astros will navigate 4 meaningless games before a Wild Card Series**\
 `The AL West champions plan to swap two pitchers' spots in the rotation and let Yordan Alvarez rest for the rest of the regular season.`\
 https://nytimes.com/athletic/5794340/2024/09/25/astros-meaningless-games-wild-card-series/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/25/opinion/opioid-overdoses-deaths.html
 **CONCACAF announces venues for 2025 Gold Cup**\
 `CONCACAF, football&#8217;s governing body for North and Central America, has officially confirmed the venues for the 2025 Gold Cup.`\
 https://nytimes.com/athletic/5794170/2024/09/25/gold-cup-venues-stadiums-concacaf/
-
-**Ocasio-Cortez Says Adams Should Resign ‘for the Good of the City’**\
-`Representative Alexandria Ocasio-Cortez became the most prominent elected official to call for Mayor Eric Adams to no longer lead New York City.`\
-https://nytimes.com/2024/09/25/nyregion/aoc-eric-adams-resign.html
-
-**‘Abandoned’: Officials say more must be done as war and famine rip Sudan apart.**\
-`By John Eligon and Ruth Maclean`\
-https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/abandoned-officials-say-more-must-be-done-as-war-and-famine-rips-sudan-apart
-
-**The U.S. Seeks to Pause Fighting Between Israel and Lebanon**\
-`With fears growing of a wider regional war in the Middle East, the United States is working to broker a short-term cease-fire agreement.`\
-https://nytimes.com/2024/09/25/world/middleeast/us-cease-fire-israel-hezbollah.html
 
