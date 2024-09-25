@@ -1,3 +1,11 @@
+**What I'm seeing in the first week of Oilers training camp**\
+`Despite the lack of Oilers roster battles, intrigue remains about defined roles and what’ll happen to players on the outside looking in.`\
+https://nytimes.com/athletic/5793091/2024/09/25/oilers-training-camp/
+
+**The Kawhi Leonard health watch begins again for the Clippers**\
+`Law Murray explains the Clippers' next steps in managing Kawhi Leonard's latest knee rehabilitation. `\
+https://nytimes.com/athletic/5793022/2024/09/25/kawhi-leonard-clippers-health-knee/
+
 **Bentancur 'almost cried' when apologising for comments - Son**\
 `Son Heung-min has said that Rodrigo Bentancur “almost cried” when he apologised for his comments about the Tottenham Hotspur captain.`\
 https://nytimes.com/athletic/5793576/2024/09/25/son-bentancur-comment-tottenham/
