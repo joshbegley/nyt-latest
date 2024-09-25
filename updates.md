@@ -1,3 +1,19 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/25/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Echoes of Wisdom Empowers Zelda to Create Her Own Path**\
+`Princess Zelda’s magic wand can make a copy of nearly everything in the game, offering inventive solutions to enemy encounters and environmental puzzles.`\
+https://nytimes.com/2024/09/25/arts/the-legend-of-zelda-echoes-of-wisdom-review.html
+
+**Giants takeaways: Assessing a successful road trip that is too late but not too little**\
+`The Giants had a 31-41 road record entering this trip and hadn't swept a road series since July of last season. They are 7-1 on the trip.`\
+https://nytimes.com/athletic/5793083/2024/09/25/giants-takeaways-road-trip/
+
+**Donald Trump Embraces ‘Love’**\
+`Politicians often lean toward hyperbole, but the frequent use of the word “love” in the former president’s fund-raising notes is an increasingly common tactic for him.`\
+https://nytimes.com/2024/09/25/style/donald-trump-embraces-love.html
+
 **Inside Harris’s Big Economic Pitch**\
 `The vice president is expected to deliver one of her most detailed addresses yet on the issue, as she seeks to strike a delicate political balance.`\
 https://nytimes.com/2024/09/25/business/dealbook/harris-trump-economy.html
