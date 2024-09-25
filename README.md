@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5792443/2024/09/24/acc-basketball-schedule-release/
 https://nytimes.com/athletic/5792661/2024/09/24/farhan-zaidi-sf-giants-uncertainty/
 
 **Orioles clinch second consecutive postseason berth with win over Yankees, Twins loss**\
-`The Orioles are still in a neck-and-neck race for the division crown with the Yankees.`\
+`The Orioles are still five games behind the Yankees for the division crown. `\
 https://nytimes.com/athletic/5792680/2024/09/24/orioles-clinch-postseason-berth/
 
 **Paul Simon Plays Rare New York Show in a Downtown Loft**\
