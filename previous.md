@@ -1,3 +1,11 @@
+**Mbappe to miss three weeks with thigh injury, out of Madrid derby**\
+`Real Madrid forward Kylian Mbappe is to miss around three weeks of action with a thigh injury — including Sunday&#8217;s clash at rivals Atletico Madrid.`\
+https://nytimes.com/athletic/5793321/2024/09/25/kylian-mbappe-injury-real-madrid/
+
+**Three thoughts on the Browns' 3 units: What's been the biggest area of concern?**\
+`Cleveland is off to a 1-2 start and has yet to crack the 20-point mark through three weeks. How can the team improve going forward? `\
+https://nytimes.com/athletic/5792066/2024/09/25/browns-offense-defense-special-teams/
+
 **For the Orioles, a hard-earned playoff berth provides an opportunity for a 'fresh start'**\
 `As rough as it’s been since a charmed first half this season, the Orioles will play in October for a second-straight year.`\
 https://nytimes.com/athletic/5793284/2024/09/25/baltimore-orioles-playoff-clinch-al-east/
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/5791387/2024/09/25/padres-dodgers-triple-play-the-p
 `The Wild have made the PK a focus in hirings, signings and camp. Assistant Jack Capuano: "You’re not going to win with a bad penalty kill."`\
 https://nytimes.com/athletic/5791714/2024/09/25/wild-penalty-kill-training-camp/
 
-**Joseph Woll's goal: Making good on years of promise to become Leafs' true starter**\
+**Joseph Woll wants to make good on years of promise to become Maple Leafs' true starter**\
 `An offseason spent reframing his mindset and tinkering with training has Joseph Woll feeling more confident — and healthy — than ever.`\
 https://nytimes.com/athletic/5791812/2024/09/25/maple-leafs-joseph-woll-starting-goalie/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5791492/2024/09/25/cowboys-giants-preview-predictio
 **Raiders defense tries to remain confident after ugly loss and recent injuries**\
 `Embarrassed against Carolina and with Maxx Crosby hobbled, Las Vegas needs to turn things around against Cleveland.`\
 https://nytimes.com/athletic/5791984/2024/09/25/raiders-defense-injuries-wilkins-crosby-epps/
-
-**Palmer and Jackson are the Premier League's best partnership - Chelsea need to build around it**\
-`Nicolas Jackson and Cole Palmer are outperforming even Didier Drogba and Frank Lampard at Chelsea`\
-https://nytimes.com/athletic/5790511/2024/09/25/cole-palmer-nicolas-jackson-chelsea-analysis/
-
-**Lowetide: Can Oilers goalie Stuart Skinner deliver a complete season?**\
-`Skinner has handled the pressure well since arriving as the Oilers' starter and can meet the moment again.`\
-https://nytimes.com/athletic/5791053/2024/09/25/oilers-goalie-stuart-skinner-stats-2024/
 

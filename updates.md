@@ -1,3 +1,15 @@
+**Mbappe to miss three weeks with thigh injury, out of Madrid derby**\
+`Real Madrid forward Kylian Mbappe is to miss around three weeks of action with a thigh injury — including Sunday&#8217;s clash at rivals Atletico Madrid.`\
+https://nytimes.com/athletic/5793321/2024/09/25/kylian-mbappe-injury-real-madrid/
+
+**Three thoughts on the Browns' 3 units: What's been the biggest area of concern?**\
+`Cleveland is off to a 1-2 start and has yet to crack the 20-point mark through three weeks. How can the team improve going forward? `\
+https://nytimes.com/athletic/5792066/2024/09/25/browns-offense-defense-special-teams/
+
+**Joseph Woll wants to make good on years of promise to become Maple Leafs' true starter**\
+`An offseason spent reframing his mindset and tinkering with training has Joseph Woll feeling more confident — and healthy — than ever.`\
+https://nytimes.com/athletic/5791812/2024/09/25/maple-leafs-joseph-woll-starting-goalie/
+
 **For the Orioles, a hard-earned playoff berth provides an opportunity for a 'fresh start'**\
 `As rough as it’s been since a charmed first half this season, the Orioles will play in October for a second-straight year.`\
 https://nytimes.com/athletic/5793284/2024/09/25/baltimore-orioles-playoff-clinch-al-east/
