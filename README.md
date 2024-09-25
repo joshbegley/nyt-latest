@@ -1,3 +1,7 @@
+**Join the Times’s Climate Event With Jane Goodall, Al Roker and Others**\
+`Sign up to watch the livestream of the Climate Forward conference on Wednesday, Sept. 25.`\
+https://nytimes.com/2024/09/25/climate/climate-forward-event.html
+
 **Mbappe to miss three weeks with thigh injury, out of Madrid derby**\
 `Real Madrid forward Kylian Mbappe is to miss around three weeks of action with a thigh injury — including Sunday&#8217;s clash at rivals Atletico Madrid.`\
 https://nytimes.com/athletic/5793321/2024/09/25/kylian-mbappe-injury-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791110/2024/09/25/nfl-week-3-andy-dalton-quick-out
 **Cowboys-Giants preview: Beat writers talk disappointment in Dallas, timid hope in New York**\
 `Dallas has beaten New York in six straight games and could really use a win right now. But the Giants have looked a little feistier lately.`\
 https://nytimes.com/athletic/5791492/2024/09/25/cowboys-giants-preview-predictions-tnf/
-
-**Raiders defense tries to remain confident after ugly loss and recent injuries**\
-`Embarrassed against Carolina and with Maxx Crosby hobbled, Las Vegas needs to turn things around against Cleveland.`\
-https://nytimes.com/athletic/5791984/2024/09/25/raiders-defense-injuries-wilkins-crosby-epps/
 
