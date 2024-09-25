@@ -1,3 +1,15 @@
+**The 10 moves in 10 years that helped lead the Chicago White Sox to baseball infamy**\
+`For the Chicago White Sox, the journey to rock bottom was a series of missteps, misjudgments and missing pieces.`\
+https://nytimes.com/athletic/5782466/2024/09/25/10-moves-white-sox-mlb-infamy/
+
+**Read the Senate committee report**\
+`A Senate committee report on the Secret Service’s inability to protect the former president at a July event`\
+https://nytimes.com/interactive/2024/09/25/us/politics/usss-hsgac-interim-report.html
+
+**France’s Horrifying Rape Trial Has a Feminist Hero**\
+`Gisèle Pelicot waived anonymity to make public the trial of her former husband and the 50 men accused of joining him in raping her. Her poise and courage have made her an icon.`\
+https://nytimes.com/2024/09/25/world/europe/france-rape-trial-gisele-pelicot.html
+
 **How Missouri Republicans Tried to Stifle a Citizen Vote on Abortion**\
 `But they couldn’t stop the referendum, and in November, abortion may be legal again in the state.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/missouri-republicans-abortion-referendum
