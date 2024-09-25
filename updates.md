@@ -1,3 +1,7 @@
+**The drone attack caused some damage in the port city of Eilat and injured two civilians.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/a-drone-attack-from-an-iran-backed-group-in-iraq-hits-eilat-in-israel
+
 **Investigators Trace Former Police Commissioner’s Ties to Nightclubs**\
 `Police officers have been asked for communications that would show that rewards were offered for favorable treatment of night spots, said a person familiar with the investigation.`\
 https://nytimes.com/2024/09/25/nyregion/nypd-commissioner-night-clubs.html
