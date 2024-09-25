@@ -1,3 +1,7 @@
+**Barcelona make contact with Szczesny as Ter Stegen replacement**\
+`Barcelona have made contact with Wojciech Szczesny as they explore possible options to replace injured first-choice goalkeeper Marc-Andre Ter Stegen.`\
+https://nytimes.com/athletic/5791138/2024/09/25/barcelona-szczesny-goalkeeper-transfer/
+
 **The 10 moves in 10 years that helped lead the Chicago White Sox to baseball infamy**\
 `For the Chicago White Sox, the journey to rock bottom was a series of missteps, misjudgments and missing pieces.`\
 https://nytimes.com/athletic/5782466/2024/09/25/10-moves-white-sox-mlb-infamy/

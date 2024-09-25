@@ -1,3 +1,7 @@
+**Barcelona make contact with Szczesny as Ter Stegen replacement**\
+`Barcelona have made contact with Wojciech Szczesny as they explore possible options to replace injured first-choice goalkeeper Marc-Andre Ter Stegen.`\
+https://nytimes.com/athletic/5791138/2024/09/25/barcelona-szczesny-goalkeeper-transfer/
+
 **The 10 moves in 10 years that helped lead the Chicago White Sox to baseball infamy**\
 `For the Chicago White Sox, the journey to rock bottom was a series of missteps, misjudgments and missing pieces.`\
 https://nytimes.com/athletic/5782466/2024/09/25/10-moves-white-sox-mlb-infamy/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/podcasts/in-defense-of-hate-watching.html
 **Bengals face stark reality — and have a glimmer of hope — after 0-3 start**\
 `History isn't on Cincinnati's side to make the playoffs, but a strong offense could buoy the team after disastrous start.`\
 https://nytimes.com/athletic/5791875/2024/09/25/bengals-0-3-start-week-4/
-
-**What’s Your Reaction to Instagram’s Changes to Improve the Safety and the Health of Teen Users?**\
-`The app introduced new settings and features aimed at creating more age-appropriate experiences for minors. Do the changes go far enough?`\
-https://nytimes.com/2024/09/25/learning/whats-your-reaction-to-instagrams-changes-to-improve-the-safety-and-the-health-of-teen-users.html
 
