@@ -1,5 +1,9 @@
+**Padres clinch MLB postseason spot with game-winning triple play against Dodgers**\
+`San Diego's resurgence from a disastrous 2023 has been building since spring training, with multiple moves and acquisitions.`\
+https://nytimes.com/athletic/5792952/2024/09/25/padres-clinch-national-league-playoff-berth-2024/
+
 **Gleyber Torres explains mistake that helped hold off clinching AL East**\
-`The Yankees had a chance on Tuesday to render the remaining five games meaningless by clinching the AL East, but failed to do so.`\
+`The Yankees had a chance Tuesday to render the remaining five games meaningless by clinching the AL East but failed to do so.`\
 https://nytimes.com/athletic/5792793/2024/09/25/yankees-gleyber-torres-explains-mistake/
 
 **Wednesday Briefing: The U.N. General Assembly Convenes**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5790961/2024/09/25/barcelona-camp-nou-update-recons
 **How will Yerson Mosquera's season-ending injury change Wolves' plans?**\
 `What are Gary O'Neil's options with Mosquera out for the season?`\
 https://nytimes.com/athletic/5791430/2024/09/25/mosquera-injury-centre-backs-plan/
-
-**Leeds's 53,000-seat Elland Road expansion plans: How? Why? And when?**\
-`Leeds United have announced plans to expand Elland Road to 53,000 seats — this is how they will do it`\
-https://nytimes.com/athletic/5788577/2024/09/25/leeds-united-elland-road-expansion-analysis/
 
