@@ -1,3 +1,11 @@
+**Chemical Leak From Rail Yard Near Cincinnati Prompts Evacuations**\
+`A train car in Whitewater Township, Ohio, was discovered to be leaking styrene, which is used to make plastic and fiberglass and is highly flammable.`\
+https://nytimes.com/2024/09/24/us/ohio-train-chemical-leak.html
+
+**Kawhi Leonard undergoes knee procedure in May, will be held out of drills to start training camp**\
+`The franchise said Tuesday Leonard will be limited to strengthening his knee to start Clippers training camp.`\
+https://nytimes.com/athletic/5792418/2024/09/24/clippers-kawhi-leonard-knee-procedure/
+
 **New York Liberty sweep Atlanta Dream, advance to WNBA semifinals**\
 `New York awaits the winner of the Aces and Seattle Storm first-round series, which tips off at 9:30 p.m. ET on Tuesday. `\
 https://nytimes.com/athletic/5792609/2024/09/24/new-york-liberty-advance-wnba-semifinals/
