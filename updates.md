@@ -1,3 +1,15 @@
+**Broncos LB Alex Singleton out for season with torn ACL**\
+`Singleton suffered the injury in the first quarter but remained on the field and played every defensive snap.`\
+https://nytimes.com/athletic/5794367/2024/09/25/alex-singleton-broncos-acl/
+
+**The U.S. Seeks to Pause Fighting Between Israel and Lebanon**\
+`With fears growing of a wider regional war in the Middle East, the United States is working to broker a short-term cease-fire agreement.`\
+https://nytimes.com/2024/09/25/world/middleeast/us-cease-fire-israel-hezbollah.html
+
+**2 Injured When Man Sets Off Explosive Device at California Courthouse**\
+`Law enforcement detained a man who they said detonated an explosive device at a courthouse in Santa Barbara County, Calif., on Wednesday morning.`\
+https://nytimes.com/2024/09/25/us/courthouse-explosion-california.html
+
 **A Remote Alaskan Island Is on High Alert for a Rat**\
 `Wildlife experts fear that a rat could disrupt the island’s delicate balance, so they are pulling out all the stops.`\
 https://nytimes.com/2024/09/25/us/rat-alaska-saint-paul-island.html
