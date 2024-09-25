@@ -1,3 +1,11 @@
+**Greenberg: They came to see history. Instead, they saw the White Sox win a game**\
+`Chicago fans booing the White Sox for winning? It was unusual, even for this wacky franchise. But that's what happened Tuesday night.`\
+https://nytimes.com/athletic/5792881/2024/09/25/chicago-white-sox-angels-comeback-win/
+
+**The N.B.A. Is Choosing Hoops Over Human Rights in Abu Dhabi**\
+`How can the N.B.A. square its profession of high ideals with doing business with a repressive government?`\
+https://nytimes.com/2024/09/25/opinion/nba-abu-dhabi-human-rights.html
+
 **Padres clinch MLB postseason spot with game-winning triple play against Dodgers**\
 `San Diego's resurgence from a disastrous 2023 has been building since spring training, with multiple moves and acquisitions.`\
 https://nytimes.com/athletic/5792952/2024/09/25/padres-clinch-national-league-playoff-berth-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5792853/2024/09/25/braves-mets-spencer-schwellenbac
 **Brighton squad audit: A potential vacancy at the back, versatility in attack**\
 `How strong do Brighton look after spending nearly £200million on nine new signings in the summer?`\
 https://nytimes.com/athletic/5770813/2024/09/25/brighton-squad-depth/
-
-**Barcelona's Camp Nou reconstruction is 24/7 - but will they really be back this year?**\
-`The renovation of Barcelona's iconic home ground is not due to be completed until 2026, but the club plan to move in by December`\
-https://nytimes.com/athletic/5790961/2024/09/25/barcelona-camp-nou-update-reconstruction/
-
-**How will Yerson Mosquera's season-ending injury change Wolves' plans?**\
-`What are Gary O'Neil's options with Mosquera out for the season?`\
-https://nytimes.com/athletic/5791430/2024/09/25/mosquera-injury-centre-backs-plan/
 
