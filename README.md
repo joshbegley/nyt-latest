@@ -1,3 +1,11 @@
+**What I'm watching with Jets in Week 3: Rodgers revenge game? Fashanu at right tackle and more**\
+`Plus, Garrett Wilson tries to get going against another elite cornerback.`\
+https://nytimes.com/athletic/5794329/2024/09/25/aaron-rodgers-hackett-revenge-game-broncos-jets-sean-payton/
+
+**Harbaugh: Herbert 'progressing' from injury**\
+`Herbert left Sunday's game against the Pittsburgh Steelers in a walking boot after suffering a high ankle sprain in Week 2 against Carolina.`\
+https://nytimes.com/athletic/5794467/2024/09/25/justin-herbert-injury-update-chargers-nfl/
+
 **Making Tender Scones at Home Is Easier Than You Think**\
 `All you need is a bowl, fork and baking sheet for fresh, warm scones with crisp tops and soft centers.`\
 https://nytimes.com/2024/09/25/dining/how-to-make-scones.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5794340/2024/09/25/astros-meaningless-games-wild-ca
 **Tiny Love Stories: ‘I Had a Second Chance’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/09/25/style/tiny-modern-love-stories-i-had-a-second-chance.html
-
-**Broncos LB Alex Singleton out for season with torn ACL**\
-`Singleton suffered the injury in the first quarter but remained on the field and played every defensive snap.`\
-https://nytimes.com/athletic/5794367/2024/09/25/alex-singleton-broncos-acl/
-
-**A Remote Alaskan Island Is on High Alert for a Rat**\
-`Wildlife experts fear that a rat could disrupt the island’s delicate balance, so they are pulling out all the stops.`\
-https://nytimes.com/2024/09/25/us/rat-alaska-saint-paul-island.html
 
