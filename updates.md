@@ -1,3 +1,19 @@
+**A Remote Alaskan Island Is on High Alert for a Rat**\
+`Wildlife experts fear that a rat could disrupt the island’s delicate balance, so they are pulling out all the stops.`\
+https://nytimes.com/2024/09/25/us/rat-alaska-saint-paul-island.html
+
+**What to Know About Galaxy Gas, the Latest Name in Nitrous Oxide Misuse**\
+`The popularity of videos that show young people inhaling laughing gas from whipped cream chargers has prompted TikTok to block searches, and the vendor to halt sales.`\
+https://nytimes.com/2024/09/25/style/galaxy-gas-nitrous-oxide.html
+
+**The Simple Stories About the Opioid Epidemic Are Wrong**\
+`Overdose deaths are finally coming down. Why?`\
+https://nytimes.com/2024/09/25/opinion/opioid-overdoses-deaths.html
+
+**‘Abandoned’: Officials say more must be done as war and famine rip Sudan apart.**\
+`By John Eligon and Ruth Maclean`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/abandoned-officials-say-more-must-be-done-as-war-and-famine-rips-sudan-apart
+
 **CONCACAF announces venues for 2025 Gold Cup**\
 `CONCACAF, football&#8217;s governing body for North and Central America, has officially confirmed the venues for the 2025 Gold Cup.`\
 https://nytimes.com/athletic/5794170/2024/09/25/gold-cup-venues-stadiums-concacaf/
