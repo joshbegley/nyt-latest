@@ -1,3 +1,27 @@
+**UNLV starting QB Matthew Sluka announces he will redshirt**\
+`Sluka transferred to UNLV this offseason after spending the previous four years at Holy Cross, an FCS program.`\
+https://nytimes.com/athletic/5793011/2024/09/25/matthew-sluka-unlv-redshirting/
+
+**'We sinned in our arrogance' - Real Madrid's night of reflection after Alaves close call**\
+`Real Madrid's 3-2 home win over Alaves extended their unbeaten run but still raised concerns`\
+https://nytimes.com/athletic/5793065/2024/09/25/real-madrid-alaves-mbappe-bellingham-vinicius-jr/
+
+**N.Y.C. Rezoning Plan That Could Add 109,000 New Homes Is Set to Advance**\
+`The City Planning Commission is expected to approve a major rezoning proposal that would ease restrictions on development. The plan faces headwinds in the City Council.`\
+https://nytimes.com/2024/09/25/nyregion/new-york-city-housing-shortage-rezoning.html
+
+**Favorite Restaurants**\
+`What is the best place to eat where you live?`\
+https://nytimes.com/2024/09/25/learning/favorite-restaurants.html
+
+**Republicans Pick Up Unlikely Allies in Key House Races: Unions**\
+`Democrats still dominate with organized labor. But in must-win swing races, Republicans are peeling off some union support, and feeling the benefits.`\
+https://nytimes.com/2024/09/25/nyregion/republicans-union-labor-endorsement.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/25/crosswords/spelling-bee-forum.html
+
 **'We didn't get it done': Dodgers leave postseason door cracked open for Padres**\
 `A game-ending triple play sealed the loss for L.A. and put San Diego in charge of its postseason destiny.`\
 https://nytimes.com/athletic/5793053/2024/09/25/dodgers-padres-triple-play/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5792328/2024/09/25/leicester-steve-copper-fans-wals
 **Twins' loss to Marlins puts season on brink as hitters' lack of 'execution' called out**\
 `Rocco Baldelli and Carlos Correa questioned the lineup's poor approach, and Max Kepler's time with the Twins is likely already over.`\
 https://nytimes.com/athletic/5791980/2024/09/25/twins-loss-marlins-hitters-bailey-ober/
-
-**Chelsea's busy midweeks are the perfect opportunity for Kiernan Dewsbury-Hall right now**\
-`Kiernan Dewsbury-Hall was an expensive summer arrival but has not yet started in the Premier League`\
-https://nytimes.com/athletic/5792433/2024/09/25/kiernan-dewsbury-hall-chelsea-analysis/
-
-**Israel Says It Shot Down Missile Over Tel Aviv**\
-`The military said that Hezbollah fired the missile from Lebanon, in what appeared to be the first attack by the group to target as far south as central Israel.`\
-https://nytimes.com/2024/09/25/world/middleeast/tel-aviv-hezbollah-missile.html
-
-**Desi Lydic: Donald Trump ‘Really Knows How to Flatter a Lady’**\
-`The “Daily Show” host said the former president had been so unpopular with women that he was now trying to turn on “the old Trump charm.”`\
-https://nytimes.com/2024/09/25/arts/television/desi-lydic-trump-women.html
-
-**Train Car Spewing Chemical Triggers Evacuations in Ohio**\
-`A plume of highly flammable styrene shot out of the train car, filling the air in the area west of Cincinnati with an odor one resident described as burnt metal.`\
-https://nytimes.com/video/us/100000009718548/train-chemical-leak-ohio-styrene.html
-
-**Taking on Food Emissions at Their Origin and Consumption**\
-`Andy Jarvis, Bruce Friedrich, Will Harris and Katie Cantrell are part of a group focused on food who are leading conversations at the Times’s Climate Forward Changemaker Lunch.`\
-https://nytimes.com/2024/09/25/climate/food-emissions.html
-
-**Pontevedra, a Spanish City That Picked Pedestrians Over Cars**\
-`For over two decades the city’s mayor has reclaimed public space for people and limited vehicles in the city center, which reduced traffic and improved air quality.`\
-https://nytimes.com/2024/09/25/climate/pontevedra-pedestrians-cars.html
 
