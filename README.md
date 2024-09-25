@@ -1,3 +1,7 @@
+**Mbappe to miss three weeks with thigh injury, out of Madrid derby**\
+`Real Madrid forward Kylian Mbappe is to miss around three weeks of action with a thigh injury — including Sunday&#8217;s clash at rivals Atletico Madrid.`\
+https://nytimes.com/athletic/5793321/2024/09/25/kylian-mbappe-injury-real-madrid/
+
 **Three thoughts on the Browns' 3 units: What's been the biggest area of concern?**\
 `Cleveland is off to a 1-2 start and has yet to crack the 20-point mark through three weeks. How can the team improve going forward? `\
 https://nytimes.com/athletic/5792066/2024/09/25/browns-offense-defense-special-teams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791492/2024/09/25/cowboys-giants-preview-predictio
 **Raiders defense tries to remain confident after ugly loss and recent injuries**\
 `Embarrassed against Carolina and with Maxx Crosby hobbled, Las Vegas needs to turn things around against Cleveland.`\
 https://nytimes.com/athletic/5791984/2024/09/25/raiders-defense-injuries-wilkins-crosby-epps/
-
-**Palmer and Jackson are the Premier League's best partnership - Chelsea need to build around it**\
-`Nicolas Jackson and Cole Palmer are outperforming even Didier Drogba and Frank Lampard at Chelsea`\
-https://nytimes.com/athletic/5790511/2024/09/25/cole-palmer-nicolas-jackson-chelsea-analysis/
 
