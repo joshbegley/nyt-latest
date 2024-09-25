@@ -1,3 +1,15 @@
+**A Wisconsin Mayor Took Issue With a Ballot Drop Box Decision, So He Took the Drop Box**\
+`Mayor Doug Diny of Wausau, Wis., said the City Council should have been consulted before the installation. The Wisconsin Supreme Court had said authority rested with the city clerk.`\
+https://nytimes.com/2024/09/25/us/politics/wisconsin-mayor-ballot-box.html
+
+**African leaders push for permanent Security Council seats, saying 1.4 billion people are not represented.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/african-leaders-push-for-permanent-security-council-seats-saying-1-4-billion-people-are-not-represented
+
+**In Florida’s Big Bend, Preparing Wearily for the Third Hurricane in 13 Months**\
+`Hurricane Helene is forecast to be much larger and stronger than other recent storms, with up to 18 feet of storm surge expected along the marshy coastline south of Tallahassee.`\
+https://nytimes.com/2024/09/25/us/in-floridas-big-bend-preparing-wearily-for-the-third-hurricane-in-13-months.html
+
 **The Nation’s Politics Are Dramatic. Now Its Dramas Are Political.**\
 `For the second year in a row, a play about the Constitution is the most-staged in America. And a farce about a terrible president is also pretty popular.`\
 https://nytimes.com/2024/09/25/theater/what-the-constitution-means-to-me-most-staged.html
