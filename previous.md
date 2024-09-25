@@ -1,3 +1,19 @@
+**Kelce 'not worried' about early struggles this season**\
+`"As long as we're winning football games, we're good to go, baby," Travis Kelce said.`\
+https://nytimes.com/athletic/5793563/2024/09/25/travis-kelce-struggles-chiefs-nfl/
+
+**Scoop City: 4 most impactful injuries so far**\
+`A Week 4 injury report, plus a look at the 49ers defensive struggles and why the Browns won't bench Deshaun Watson anytime soon.`\
+https://nytimes.com/athletic/5793674/2024/09/25/scoop-city-4-most-impactful-injuries-so-far/
+
+**As School Threats Proliferate, More Than 700 Students Are Arrested**\
+`The number of threats after a Georgia school shooting this month is much higher than usual, many officials said. In response, some have cracked down with arrests and detention for children as young as 10.`\
+https://nytimes.com/2024/09/25/us/school-violence-threats-student-arrests.html
+
+**How the Blue Jackets' long-maligned power play could be different in 2024-25**\
+`The Blue Jackets power play has been a running joke for seven seasons now but is set to look radically different this year.`\
+https://nytimes.com/athletic/5792431/2024/09/25/blue-jackets-power-play-nhl-2024-25/
+
 **In Silicon Valley, a Rogue Plan to Alter the Climate**\
 `A pair of restless entrepreneurs are releasing pollutants in the sky to try to cool the planet.`\
 https://nytimes.com/2024/09/25/climate/rogue-solar-geoengineering.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5793022/2024/09/25/kawhi-leonard-clippers-health-kn
 **Bentancur 'almost cried' when apologising for comments - Son**\
 `Son Heung-min has said that Rodrigo Bentancur “almost cried” when he apologised for his comments about the Tottenham Hotspur captain.`\
 https://nytimes.com/athletic/5793576/2024/09/25/son-bentancur-comment-tottenham/
-
-**President Biden’s climate adviser: The U.S. will meet its 2030 goals.**\
-`By Coral Davenport`\
-https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/president-bidens-climate-adviser-the-us-will-meet-its-2030-goals
-
-**What makes Gabriel Eliasson, hockey's meanest prospect, tick? His critics**\
-`In 36 games at Sweden's J20 level last year, Gabriel Eliasson had 103 penalty minutes. He also had plenty of NHL interest.`\
-https://nytimes.com/athletic/5767426/2024/09/25/senators-gabriel-eliasson-meanest-prospect/
-
-**The long-range weapons Ukraine wants to use on Russia, explained.**\
-`The United States and its allies are once again considering expanding the capabilities they provide to Ukraine in its fight against Russia’s invasion.`\
-https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/the-long-range-weapons-ukraine-wants-to-use-on-russia-explained
-
-**Kamala Harris is looking to amplify her economic message.**\
-`By Jim Tankersley and Andrew Duehren`\
-https://nytimes.com/live/2024/09/25/us/harris-trump-election/kamala-harris-is-looking-to-amplify-her-economic-message
 
