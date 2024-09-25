@@ -1,3 +1,11 @@
+**Revealed: The Premier League's real MVPs**\
+`The debate over which players are most crucial to their club has been sparked by Rodri's injury - what does the data say?`\
+https://nytimes.com/athletic/5791174/2024/09/25/premier-league-mvp/
+
+**Noussair Mazraoui - the footballer you should never write off**\
+`The Moroccan has been doubted at every turn - but has reached the top of his game for club and country`\
+https://nytimes.com/athletic/5758451/2024/09/25/noussair-mazraoui-manchester-united-profile/
+
 **From Drake in pink to 'Blokecore': How football shirts became fashionable**\
 `Something about the team jerseys of the '90s and early noughties has managed to capture the imagination of younger generations`\
 https://nytimes.com/athletic/5763011/2024/09/25/football-shirts-boom-fashion-retro/
