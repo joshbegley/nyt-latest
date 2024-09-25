@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5793052/2024/09/25/joe-espada-astros-al-west-champi
 https://nytimes.com/athletic/5793011/2024/09/25/matthew-sluka-unlv-redshirting/
 
 **'We sinned in our arrogance' - Real Madrid's night of reflection after Alaves close call**\
-`Real Madrid's 3-2 home win over Alaves extended their unbeaten run but still raised concerns`\
+`Real Madrid's 3-2 home win over Alaves extended their unbeaten run — but still raised concerns`\
 https://nytimes.com/athletic/5793065/2024/09/25/real-madrid-alaves-mbappe-bellingham-vinicius-jr/
 
 **N.Y.C. Rezoning Plan That Could Add 109,000 New Homes Is Set to Advance**\

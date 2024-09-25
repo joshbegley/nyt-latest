@@ -1,3 +1,7 @@
+**'We sinned in our arrogance' - Real Madrid's night of reflection after Alaves close call**\
+`Real Madrid's 3-2 home win over Alaves extended their unbeaten run — but still raised concerns`\
+https://nytimes.com/athletic/5793065/2024/09/25/real-madrid-alaves-mbappe-bellingham-vinicius-jr/
+
 **Former Madrid and Man Utd defender Varane retires**\
 `Raphael Varane has retired from football after suffering a knee injury on his debut with Italian club Como.`\
 https://nytimes.com/athletic/5793107/2024/09/25/raphael-varane-retires-manchester-united-real-madrid/
