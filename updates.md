@@ -1,3 +1,11 @@
+**CONCACAF announces venues for 2025 Gold Cup**\
+`CONCACAF, football&#8217;s governing body for North and Central America, has officially confirmed the venues for the 2025 Gold Cup.`\
+https://nytimes.com/athletic/5794170/2024/09/25/gold-cup-venues-stadiums-concacaf/
+
+**Ocasio-Cortez Says Adams Should Resign ‘for the Good of the City’**\
+`Representative Alexandria Ocasio-Cortez became the most prominent elected official to call for Mayor Eric Adams to no longer lead New York City.`\
+https://nytimes.com/2024/09/25/nyregion/aoc-eric-adams-resign.html
+
 **The U.S. is seeking a pause in the fighting in a bid to avert a wider war.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/us-cease-fire-israel-hezbollah

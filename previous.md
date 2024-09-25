@@ -1,3 +1,11 @@
+**CONCACAF announces venues for 2025 Gold Cup**\
+`CONCACAF, football&#8217;s governing body for North and Central America, has officially confirmed the venues for the 2025 Gold Cup.`\
+https://nytimes.com/athletic/5794170/2024/09/25/gold-cup-venues-stadiums-concacaf/
+
+**Ocasio-Cortez Says Adams Should Resign ‘for the Good of the City’**\
+`Representative Alexandria Ocasio-Cortez became the most prominent elected official to call for Mayor Eric Adams to no longer lead New York City.`\
+https://nytimes.com/2024/09/25/nyregion/aoc-eric-adams-resign.html
+
 **‘Abandoned’: Officials say more must be done as war and famine rips Sudan apart.**\
 `By John Eligon and Ruth Maclean`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/abandoned-officials-say-more-must-be-done-as-war-and-famine-rips-sudan-apart
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/dining/caribbean-pepper-sauce.html
 **Muhammad Yunus, Bangladesh’s interim leader, calls for global reforms.**\
 `By Anupreeta Das`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/muhammad-yunus-bangladeshs-interim-leader-calls-for-global-reforms
-
-**Ohtani's 50th home run ball up for auction**\
-`Goldin will auction off the ball beginning at noon ET Friday, with the opening bid starting at $500,000.`\
-https://nytimes.com/athletic/5794015/2024/09/25/shohei-ohtani-50-50-home-run-ball-auction/
-
-**Roundabout, With 3 Broadway Theaters, Finds Leader in California**\
-`Christopher Ashley, the artistic director of La Jolla Playhouse and a Tony winner for “Come From Away,” will run the large New York nonprofit.`\
-https://nytimes.com/2024/09/25/theater/roundabout-ashley.html
 
