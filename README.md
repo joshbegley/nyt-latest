@@ -1,3 +1,7 @@
+**Putin Declares Changes to Russian Nuclear Doctrine**\
+`President Vladimir V. Putin heightened his warnings against the West, asserting that Russia should be permitted to employ nuclear arms in the event of an attack by a nation backed by a nuclear power.`\
+https://nytimes.com/2024/09/25/world/europe/putin-declares-changes-to-russian-nuclear-doctrine.html
+
 **2 Injured After Man Sets Off Explosive Device at California Courthouse**\
 `Law enforcement arrested a man who they said detonated an explosive device at a courthouse in Santa Barbara, Calif., on Wednesday morning.`\
 https://nytimes.com/2024/09/25/us/courthouse-explosion-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/us/brandeis-university-president-resigns.html
 **Meta Unveils New Virtual Reality Headset as It Pursues the Metaverse**\
 `At an event in Silicon Valley, Meta exhibited a range of products meant to blend the real world and virtual reality, with a healthy dose of A.I.`\
 https://nytimes.com/2024/09/25/technology/meta-products-artificial-intelligence.html
-
-**The New York Police Department Fails Again on Illegal Tactics**\
-`A new report shows the department is still refusing to punish officers who violate the rights of citizens who are stopped.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/nypd-illegal-stop-frisk
 
