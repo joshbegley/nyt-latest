@@ -1,3 +1,7 @@
+**Tropical Storm John Reforms Along Mexico’s Pacific Coast**\
+`The system, which battered western Mexico as a hurricane earlier this week, has begun to regain strength.`\
+https://nytimes.com/2024/09/25/weather/tropical-storm-john-mexico.html
+
 **Hurricane Helene Could Become a Category 3 Before Arriving in Florida**\
 `The storm is expected to make landfall Thursday evening and could damage an extensive area along Florida’s Gulf Coast.`\
 https://nytimes.com/video/us/100000009720158/hurricane-helene.html
