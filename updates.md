@@ -1,3 +1,7 @@
+**Tropical Storm John Strengthens Again Along Mexico’s Pacific Coast**\
+`The system, which battered western Mexico as a hurricane earlier this week, has begun to regain strength.`\
+https://nytimes.com/2024/09/25/weather/tropical-storm-john-mexico.html
+
 **U.S. and Russian diplomats argue in Security Council session about improving communication.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/us-and-russian-diplomats-argue-in-security-council-session-about-improving-communication
