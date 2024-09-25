@@ -1,3 +1,7 @@
+**Sabres stock watch: Risers, fallers and question marks through 3 preseason games**\
+`Which players have helped themselves the most in training camp and preseason to this point? Who still has more to prove?`\
+https://nytimes.com/athletic/5793856/2024/09/25/sabres-stock-risers-fallers-preseason/
+
 **Giving Prisoners a Second Chance**\
 `Responses to a guest essay by a prisoner in New York. Also: President Biden’s leadership; pressure on Israel; the Trump Effect; music in restaurants.`\
 https://nytimes.com/2024/09/25/opinion/prisoners-second-chance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/world/middleeast/lebanon-civilian-death-toll-isra
 **At Climate Forward Event, an Architect of Project 2025 Dismisses Global Warming**\
 `At a New York Times Climate Forward event, Kevin D. Roberts said climate change amounted to a “hot year.”`\
 https://nytimes.com/2024/09/25/climate/climate-forward-project-2025-kevin-roberts.html
-
-**Gotham's Kelley O'Hara on season-ending injury list**\
-`O’Hara, an Olympic gold medalist with the USWNT, announced her plans in May to retire from soccer at the end of the NWSL season.`\
-https://nytimes.com/athletic/5783625/2024/09/25/kelley-ohara-injury-gotham-uswnt/
 
