@@ -1,3 +1,11 @@
+**Greenberg: They came to see history. Instead, they saw the White Sox win a game**\
+`Chicago fans booing the White Sox for winning? It was unusual, even for this wacky franchise. But that's what happened Tuesday night.`\
+https://nytimes.com/athletic/5792881/2024/09/25/chicago-white-sox-angels-comeback-win/
+
+**The N.B.A. Is Choosing Hoops Over Human Rights in Abu Dhabi**\
+`How can the N.B.A. square its profession of high ideals with doing business with a repressive government?`\
+https://nytimes.com/2024/09/25/opinion/nba-abu-dhabi-human-rights.html
+
 **Padres clinch MLB postseason spot with game-winning triple play against Dodgers**\
 `San Diego's resurgence from a disastrous 2023 has been building since spring training, with multiple moves and acquisitions.`\
 https://nytimes.com/athletic/5792952/2024/09/25/padres-clinch-national-league-playoff-berth-2024/
