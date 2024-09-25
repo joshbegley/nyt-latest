@@ -1,3 +1,11 @@
+**Can companies make climate progress while selling more stuff?**\
+`The chief executives of Ikea and Patagonia both want to lower humanity’s carbon output, but they have different approaches to doing it.`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/can-companies-make-climate-progress-while-selling-more-stuff
+
+**Donald Trump Cut Ties to Some Online Fund-Raisers**\
+`The campaign also reduced the commission retained by the remaining vendors, as the former president falls behind Vice President Kamala Harris in the cash race.`\
+https://nytimes.com/2024/09/25/us/politics/trump-online-fund-raisers.html
+
 **A 25-Minute Strength Workout for Beginners**\
 `New to the weight room? This routine is for you.`\
 https://nytimes.com/2024/09/25/well/move/beginners-short-strength-workout.html
