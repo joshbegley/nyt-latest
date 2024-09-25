@@ -1,3 +1,11 @@
+**Padres clinch MLB postseason spot with game-winning triple play against Dodgers**\
+`San Diego's resurgence from a disastrous 2023 has been building since spring training, with multiple moves and acquisitions.`\
+https://nytimes.com/athletic/5792952/2024/09/25/padres-clinch-national-league-playoff-berth-2024/
+
+**Gleyber Torres explains mistake that helped hold off clinching AL East**\
+`The Yankees had a chance Tuesday to render the remaining five games meaningless by clinching the AL East but failed to do so.`\
+https://nytimes.com/athletic/5792793/2024/09/25/yankees-gleyber-torres-explains-mistake/
+
 **Still in the wild-card hunt, Red Sox pick up 'gratifying' extra-inning win**\
 `The odds remain long, but the Red Sox are still in it. “It’s just a testament to who we are as a group that we’re never out of a fight.”`\
 https://nytimes.com/athletic/5792874/2024/09/25/red-sox-postseason-race/
