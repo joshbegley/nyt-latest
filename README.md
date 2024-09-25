@@ -1,3 +1,11 @@
+**Notre Dame tops IU, MSU for 5-star Jalen Haralson**\
+`Haralson, the top-ranked recruit in the state of Indiana, is one of the biggest recruiting wins in the history of Notre Dame basketball.`\
+https://nytimes.com/athletic/5794971/2024/09/25/notre-dame-beats-indiana-michigan-state-for-5-star-basketball-recruit-jalen-haralson/
+
+**Tell Us: How Is Political Advertising Affecting You?**\
+`Share your thoughts with the On Politics newsletter.`\
+https://nytimes.com/2024/09/25/us/political-advertising-callout.html
+
 **Woman Gets 18 Years for White Supremacist Plot to Shoot Power Stations**\
 `Sarah Clendaniel, 36, planned to destroy the power grid for the Baltimore region by shooting electrical substations, the authorities said. Her lawyers asked for 10 years, citing early trauma.`\
 https://nytimes.com/2024/09/25/us/neo-nazi-power-grid-attack-sentenced-baltimore.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/us/politics/congress-uyghurs-china.html
 **Trump’s Dreamworld Way Out of the Abortion Issue**\
 `He simply hopes women will stop thinking about it.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/trump-abortion-dreamworld-protector
-
-**How ‘Discoshow’ Spun Las Vegas Into Funkytown**\
-`Revisiting 1970s New York, a new theatrical experience is one history lesson that’s all about the good times.`\
-https://nytimes.com/card/2024/09/25/theater/discoshow-las-vegas
-
-**Some in Israeli Border Town Left Charred by Hezbollah Attacks Refuse to Flee**\
-`Despite the danger, older residents, firefighters, medics and a few small-business owners chose to stay put in Kiryat Shmona, the northernmost Israeli city near the border with Lebanon.`\
-https://nytimes.com/2024/09/25/world/middleeast/kiryat-shmona-border-town.html
 
