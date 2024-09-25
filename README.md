@@ -16,7 +16,7 @@ https://nytimes.com/2024/09/25/science/oldest-cheese-kefir-xinjiang.html
 
 **A 25-Minute Strength Workout for Beginners**\
 `New to the weight room? This routine is for you.`\
-https://nytimes.com/2024/09/25/well/beginners-short-strength-workout.html
+https://nytimes.com/2024/09/25/well/move/beginners-short-strength-workout.html
 
 **How Artist Liza Lou ‘Messes With Your Mind’**\
 `Her medium is the tiny seed bead. Her canvas ranges from a 35-foot-long mobile home to the chauvinist history of Abstract Expressionism.`\
