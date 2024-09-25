@@ -1,3 +1,7 @@
+**Hurricane Helene Could Become a Category 3 Before Arriving in Florida**\
+`The storm is expected to make landfall Thursday evening and could damage an extensive area along Florida’s Gulf Coast.`\
+https://nytimes.com/video/us/100000009720158/hurricane-helene.html
+
 **Thursday Briefing: The U.S. Pushes for a Cease-Fire in Lebanon**\
 `Plus, 3,600-year-old cheese.`\
 https://nytimes.com/2024/09/25/briefing/ceasefire-lebanon-election-japan.html

@@ -1,3 +1,7 @@
+**Hurricane Helene Could Become a Category 3 Before Arriving in Florida**\
+`The storm is expected to make landfall Thursday evening and could damage an extensive area along Florida’s Gulf Coast.`\
+https://nytimes.com/video/us/100000009720158/hurricane-helene.html
+
 **Thursday Briefing: The U.S. Pushes for a Cease-Fire in Lebanon**\
 `Plus, 3,600-year-old cheese.`\
 https://nytimes.com/2024/09/25/briefing/ceasefire-lebanon-election-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/world/middleeast/naftali-herstik-dead.html
 **NewJeans’ Ultimatum Casts K-Pop’s Displays of Labor in a New Light**\
 `The breakout girl group went public with complaints against its parent company, Hybe, which has just released a new TV series and film about the control it exerts over stars.`\
 https://nytimes.com/2024/09/25/arts/music/newjeans-kpop-hybe.html
-
-**Mira Murati, Chief Technology Officer at OpenAI, Plans to Leave Company**\
-`One of OpenAI’s highest profile executives, she’s among a series of longtime managers and researchers to leave the start-up in recent months.`\
-https://nytimes.com/2024/09/25/technology/mira-murati-openai.html
 
