@@ -1,40 +1,40 @@
-**The Connections Companion No. 473**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 26, 2024.`\
-https://nytimes.com/2024/09/25/crosswords/connections-companion-473.html
+**Caleb Williams' encouraging throws give Bears something to build on: All-22**\
+`A lot went wrong on offense, but the Bears didn't stumble into 363 passing yards. A film breakdown of Williams' best throws.`\
+https://nytimes.com/athletic/5792803/2024/09/25/caleb-williams-bears-encouraging-throws/
 
-**Wordle Review No. 1,195**\
-`Scroll down for hints and conversation about the puzzle for September 26, 2024.`\
-https://nytimes.com/2024/09/25/crosswords/wordle-review-1195.html
+**Barcelona fans have high hopes for Ansu Fati. Can he shine again under Hansi Flick?**\
+`Ansu Fati is back with Barcelona — and fans are hoping to see his best again under Hansi Flick`\
+https://nytimes.com/athletic/5793166/2024/09/25/ansu-fati-barcelona-hansi-flick-la-liga/
 
-**Barcelona make contact with Szczesny as Ter Stegen replacement**\
-`Barcelona have made contact with Wojciech Szczesny as they explore possible options to replace injured first-choice goalkeeper Marc-Andre Ter Stegen.`\
-https://nytimes.com/athletic/5791138/2024/09/25/barcelona-szczesny-goalkeeper-transfer/
+**Matthew Tkachuk on Johnny Gaudreau: 'I'm going to keep his memory alive'**\
+`Tkachuk speaks about the loss of his friend, Johnny Gaudreau, and how excited he was to reunite with him in the Olympics.`\
+https://nytimes.com/athletic/5791397/2024/09/25/matthew-tkachuk-johnny-gaudreau-friendship-memories/
 
-**The 10 moves in 10 years that helped lead the Chicago White Sox to baseball infamy**\
-`For the Chicago White Sox, the journey to rock bottom was a series of missteps, misjudgments and missing pieces.`\
-https://nytimes.com/athletic/5782466/2024/09/25/10-moves-white-sox-mlb-infamy/
+**Joey Anderson checks analytics boxes, but Blackhawks roster spot is no guarantee**\
+`Last season Joey Anderson was an NHL analytics darling. This year, he might end up back in Rockford.`\
+https://nytimes.com/athletic/5791797/2024/09/25/blackhawks-joey-anderson-defense-roster/
 
-**Read the Senate committee report**\
-`A Senate committee report on the Secret Service’s inability to protect the former president at a July event`\
-https://nytimes.com/interactive/2024/09/25/us/politics/usss-hsgac-interim-report.html
+**Jets training camp: Projecting Cole Perfetti's production and a focus on special teams**\
+`What should the Jets expect from Perfetti in an expanded role offensively this season?`\
+https://nytimes.com/athletic/5791704/2024/09/25/winnipeg-jets-cole-perfetti-training-camp/
 
-**France’s Horrifying Rape Trial Has a Feminist Hero**\
-`Gisèle Pelicot waived anonymity to make public the trial of her former husband and the 50 men accused of joining him in raping her. Her poise and courage have made her an icon.`\
-https://nytimes.com/2024/09/25/world/europe/france-rape-trial-gisele-pelicot.html
+**Packers mailbag: Should Malik Willis play in sub-packages when Jordan Love returns?**\
+`The Packers welcome the Vikings to Lambeau Field on Sunday for an important early-season divisional matchup.`\
+https://nytimes.com/athletic/5791933/2024/09/25/packers-mailbag-malik-willis-jordan-love/
 
-**How Missouri Republicans Tried to Stifle a Citizen Vote on Abortion**\
-`But they couldn’t stop the referendum, and in November, abortion may be legal again in the state.`\
-https://nytimes.com/live/2024/09/17/opinion/thepoint/missouri-republicans-abortion-referendum
+**The Leafs have chased aging stars before. How often has it worked out?**\
+`Ranking six former stars on their effectiveness for the Maple Leafs long after their best days were behind them.`\
+https://nytimes.com/athletic/5791039/2024/09/25/maple-leafs-2024-25-veteran-players/
 
-**House to Vote on Short-Term Spending Bill to Avert a Shutdown**\
-`Speaker Mike Johnson is once again turning to Democrats to supply the bulk of the votes to keep federal funding flowing through Dec. 20.`\
-https://nytimes.com/2024/09/25/us/politics/house-short-term-spending-bill.html
+**Hezbollah Fires Toward Tel Aviv, and Iran’s New President Addresses U.N.**\
+`Plus, was your doctor’s message written by A.I.?`\
+https://nytimes.com/2024/09/25/podcasts/hezbollah-missile-un.html
 
-**Trump’s Low-Tax, High-Tariff Strategy Could Clash With Economic Realities**\
-`The former president’s efforts to compel companies to remain in the United States had limited success while he was in the White House.`\
-https://nytimes.com/2024/09/25/us/politics/trump-taxes-tariffs-economy.html
+**The Mushroom Kingdom That Shigeru Miyamoto Built**\
+`Decades after Miyamoto invented Mario and Zelda, he explains what makes Nintendo special and its transformation into a global entertainment brand.`\
+https://nytimes.com/2024/09/25/arts/design/shigeru-miyamoto-interview-nintendo-museum.html
 
-**Africa’s Youngest Elected Leader Wants a New World Order**\
-`In his first interview with Western media since becoming president of Senegal, Bassirou Diomaye Faye said the United Nations has to change to reflect changing world demographics.`\
-https://nytimes.com/2024/09/25/world/africa/president-senegal-bassirou-diomaye-faye.html
+**The Slide Toward War in Lebanon**\
+`Israel, aiming to weaken the militant group Hezbollah, has pounded the country with deadly airstrikes, including densely populated parts of Beirut.`\
+https://nytimes.com/2024/09/25/podcasts/the-daily/israel-lebanon.html
 
