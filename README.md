@@ -1,3 +1,7 @@
+**Carabao Cup fourth-round draw**\
+`Carabao Cup holders Liverpool will face Brighton &amp; Hove Albion in the fourth round after thrashing West Ham United on Wednesday evening.`\
+https://nytimes.com/athletic/5777447/2024/09/25/carabao-cup-fourth-round-draw/
+
 **Masai Russell introduced herself to the world with Olympic gold; now, meet her alter ego**\
 `For Masai Russell, a headliner Thursday at the new Athlos women's track event, the spirit she found in Paris looks a lot like her mother's.`\
 https://nytimes.com/athletic/5794298/2024/09/25/masai-russell-olympics-hurdles-gold-athlos-nyc/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/weather/tropical-storm-john-mexico.html
 **Hurricane Helene Could Become a Category 3 Before Arriving in Florida**\
 `The storm is expected to make landfall Thursday evening and could damage an extensive area along Florida’s Gulf Coast.`\
 https://nytimes.com/video/us/100000009720158/hurricane-helene.html
-
-**Thursday Briefing: The U.S. Pushes for a Cease-Fire in Lebanon**\
-`Plus, 3,600-year-old cheese.`\
-https://nytimes.com/2024/09/25/briefing/ceasefire-lebanon-election-japan.html
 
