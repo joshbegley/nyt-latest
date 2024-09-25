@@ -1,3 +1,7 @@
+**Lazio fans banned from Europa League match after police confiscate weapons**\
+`A group of around 60 Lazio fans have been banned from attending Thursday&#8217;s Europa League fixture against Dynamo Kyiv after having weapons confiscated by German police.`\
+https://nytimes.com/athletic/5793779/2024/09/25/lazio-fans-europa-league-police/
+
 **The Windup: Was that the play of the year?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5793838/2024/09/25/padres-clinch-triple-play-the-windup/
