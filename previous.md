@@ -1,3 +1,7 @@
+**For the Orioles, a hard-earned playoff berth provides an opportunity for a 'fresh start'**\
+`As rough as it’s been since a charmed first half this season, the Orioles will play in October for a second-straight year.`\
+https://nytimes.com/athletic/5793284/2024/09/25/baltimore-orioles-playoff-clinch-al-east/
+
 **The Pulse: A playoff-clinching triple play!?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5791387/2024/09/25/padres-dodgers-triple-play-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5790511/2024/09/25/cole-palmer-nicolas-jackson-chel
 **Lowetide: Can Oilers goalie Stuart Skinner deliver a complete season?**\
 `Skinner has handled the pressure well since arriving as the Oilers' starter and can meet the moment again.`\
 https://nytimes.com/athletic/5791053/2024/09/25/oilers-goalie-stuart-skinner-stats-2024/
-
-**The many different defensive faces of Arteta's Arsenal**\
-`Arsenal had the best defensive record in the Premier League last season, but they achieve their success at the back in many different ways`\
-https://nytimes.com/athletic/5792392/2024/09/25/mikel-arteta-arsenal-defensive-adaptability/
 

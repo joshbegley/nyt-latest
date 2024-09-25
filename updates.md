@@ -1,3 +1,7 @@
+**For the Orioles, a hard-earned playoff berth provides an opportunity for a 'fresh start'**\
+`As rough as it’s been since a charmed first half this season, the Orioles will play in October for a second-straight year.`\
+https://nytimes.com/athletic/5793284/2024/09/25/baltimore-orioles-playoff-clinch-al-east/
+
 **The Pulse: A playoff-clinching triple play!?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5791387/2024/09/25/padres-dodgers-triple-play-the-pulse/
