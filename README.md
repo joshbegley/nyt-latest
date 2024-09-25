@@ -1,3 +1,7 @@
+**Barkley version 2.0 is exactly the type of player Emery loves at Villa**\
+`Ross Barkley featured against Wycombe in the Carabao Cup and helped Villa advance to the next round`\
+https://nytimes.com/athletic/5790440/2024/09/25/ross-barkley-aston-villa-analysis/
+
 **Cooper feels the heat from Leicester fans - the pressure is on to turn things around**\
 `Some Leicester fans chanted that their performance at Walsall was 'embarrassing' as the pressure increases on manager Cooper`\
 https://nytimes.com/athletic/5792328/2024/09/25/leicester-steve-copper-fans-walsall/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/climate/pontevedra-pedestrians-cars.html
 **When Electrification has Power Beyond Its Climate Benefits**\
 `Jamal Lewis and Aloja Airewele are part of a group focused on electrification. They are leading conversations at the Times’s Climate Forward Changemaker Lunch.`\
 https://nytimes.com/2024/09/25/climate/climate-electrification.html
-
-**A Next Generation Approach to Heating and Cooling Buildings**\
-`A fifth-generation network at the Bankside Yards project in London offers new possibilities for the pace of decarbonization in the United Kingdom and elsewhere.`\
-https://nytimes.com/2024/09/25/climate/fifth-generation-heat-pumps.html
 
