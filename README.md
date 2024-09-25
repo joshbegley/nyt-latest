@@ -1,3 +1,11 @@
+**Making Tender Scones at Home Is Easier Than You Think**\
+`All you need is a bowl, fork and baking sheet for fresh, warm scones with crisp tops and soft centers.`\
+https://nytimes.com/2024/09/25/dining/how-to-make-scones.html
+
+**For the second time in two weeks, U.K.’s Starmer will discuss the Ukraine weapons dilemma.**\
+`On the agenda for Prime Minister Keir Starmer in New York: private talks with the U.S. over whether to allow Ukraine to use long range weapons in Russia, and Middle East tensions.`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/for-the-second-time-in-two-weeks-uks-starmer-will-discuss-the-ukraine-weapons-dilemma
+
 **Alex Bregman gets sendoff in Astros' final regular-season game at Minute Maid Park**\
 `Bregman, a free agent after this season, has spent his entire nine-year career in Houston. `\
 https://nytimes.com/athletic/5794390/2024/09/25/alex-bregman-sendoff-astros-final-home-game/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5794367/2024/09/25/alex-singleton-broncos-acl/
 **A Remote Alaskan Island Is on High Alert for a Rat**\
 `Wildlife experts fear that a rat could disrupt the island’s delicate balance, so they are pulling out all the stops.`\
 https://nytimes.com/2024/09/25/us/rat-alaska-saint-paul-island.html
-
-**What to Know About Galaxy Gas, the Latest Name in Nitrous Oxide Misuse**\
-`The popularity of videos that show young people inhaling laughing gas from whipped cream chargers has prompted TikTok to block searches, and the vendor to halt sales.`\
-https://nytimes.com/2024/09/25/style/galaxy-gas-nitrous-oxide.html
-
-**The Simple Stories About the Opioid Epidemic Are Wrong**\
-`Overdose deaths are finally coming down. Why?`\
-https://nytimes.com/2024/09/25/opinion/opioid-overdoses-deaths.html
 
