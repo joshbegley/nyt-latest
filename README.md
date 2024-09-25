@@ -1,3 +1,7 @@
+**Tropical Storm John Reforms Along Mexico’s Pacific Coast**\
+`The system, which battered western Mexico as a hurricane earlier this week, has begun to regain strength.`\
+https://nytimes.com/2024/09/25/weather/tropical-storm-john-mexico.html
+
 **Hurricane Helene Could Become a Category 3 Before Arriving in Florida**\
 `The storm is expected to make landfall Thursday evening and could damage an extensive area along Florida’s Gulf Coast.`\
 https://nytimes.com/video/us/100000009720158/hurricane-helene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/opinion/israel-hezbollah-hamas.html
 **Naftali Herstik, Renowned and Influential Cantor, Dies at 77**\
 `Part of a long line of cantors, he led services at the Great Synagogue in Jerusalem for 30 years and helped train the next generation.`\
 https://nytimes.com/2024/09/25/world/middleeast/naftali-herstik-dead.html
-
-**NewJeans’ Ultimatum Casts K-Pop’s Displays of Labor in a New Light**\
-`The breakout girl group went public with complaints against its parent company, Hybe, which has just released a new TV series and film about the control it exerts over stars.`\
-https://nytimes.com/2024/09/25/arts/music/newjeans-kpop-hybe.html
 
