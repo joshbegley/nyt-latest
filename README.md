@@ -1,3 +1,7 @@
+**Ekeler out Week 4 vs. Cardinals with concussion**\
+`Ekeler left Monday night's win against the Cincinnati Bengals in the third quarter and was eventually ruled out with the injury`\
+https://nytimes.com/athletic/5794519/2024/09/25/commanders-austin-ekeler-concussion/
+
 **A ‘Health Resort Horror Story’ From a Nobel Laureate**\
 `In a new novel by Olga Tokarczuk, guests at a mountain retreat face a dark and cryptic threat.`\
 https://nytimes.com/2024/09/25/books/review/olga-tokarczuk-the-empusium.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/25/arts/editors-recommendations-valdes.h
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears are 1-2 and the offense is a mess. This week they host the banged-up Rams, who just upset the 49ers. What's on your mind?`\
 https://nytimes.com/athletic/5794449/2024/09/25/bears-mailbag-questions-33/
-
-**How the Astros will navigate 4 meaningless games before a Wild Card Series**\
-`The AL West champions plan to swap two pitchers' spots in the rotation and let Yordan Alvarez rest for the rest of the regular season.`\
-https://nytimes.com/athletic/5794340/2024/09/25/astros-meaningless-games-wild-card-series/
 
