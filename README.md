@@ -1,3 +1,7 @@
+**Cat Glover, Who Danced With Prince, Dies at 62**\
+`She worked with Prince on many of his iconic works, including the “Sign o’ the Times” tour and the “U Got the Look” music video.`\
+https://nytimes.com/2024/09/25/arts/cat-glover-dead-prince.html
+
 **Zelensky Warns U.N. Against Ceding to Russia’s ‘Insane’ Desire for Land**\
 `President Volodymyr Zelensky of Ukraine told the meeting of world leaders that capitulating to Russia would only give its president, Vladimir Putin, the “political space to continue the war.”`\
 https://nytimes.com/2024/09/25/world/europe/un-zelensky-ukraine-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/world/asia/taliban-afghanistan-womens-rights.html
 **Ekeler out Week 4 vs. Cardinals with concussion**\
 `Ekeler left Monday night's win against the Cincinnati Bengals in the third quarter and was eventually ruled out with the injury`\
 https://nytimes.com/athletic/5794519/2024/09/25/commanders-austin-ekeler-concussion/
-
-**A ‘Health Resort Horror Story’ From a Nobel Laureate**\
-`In a new novel by Olga Tokarczuk, guests at a mountain retreat face a dark and cryptic threat.`\
-https://nytimes.com/2024/09/25/books/review/olga-tokarczuk-the-empusium.html
 
