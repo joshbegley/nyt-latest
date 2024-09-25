@@ -1,4 +1,8 @@
 **New York Liberty sweep Atlanta Dream, advance to WNBA semifinals**\
+`New York awaits the winner of the Aces and Seattle Storm first-round series, which tips off at 9:30 p.m. ET on Tuesday. `\
+https://nytimes.com/athletic/5792609/2024/09/24/new-york-liberty-advance-wnba-semifinals/
+
+**New York Liberty sweep Atlanta Dream, advance to WNBA semifinals**\
 `New York awaits the winner of the Aces and Seattle Storm second-round series, which tips off at 9:30 p.m. ET on Tuesday. `\
 https://nytimes.com/athletic/5792609/2024/09/24/new-york-liberty-advance-wnba-semifinals/
 
