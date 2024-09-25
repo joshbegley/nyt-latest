@@ -1,3 +1,7 @@
+**Democrats and Republicans Press China on Abuse of Muslim Minority**\
+`Both parties are focused on oppression of China’s Uyghur minority but use different tactics in pushing the Biden administration to do more.`\
+https://nytimes.com/2024/09/25/us/politics/congress-uyghurs-china.html
+
 **Donald Trump’s Dreamworld Way Out of the Abortion Issue**\
 `He simply hopes women will stop thinking about it.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/trump-abortion-dreamworld-protector
