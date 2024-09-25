@@ -1,3 +1,7 @@
+**Woman Gets 18 Years for White Supremacist Plot to Shoot Power Stations**\
+`Sarah Clendaniel, 36, planned to destroy the power grid for the Baltimore region by shooting electrical substations, the authorities said. Her lawyers asked for 10 years, citing early trauma.`\
+https://nytimes.com/2024/09/25/us/neo-nazi-power-grid-attack-sentenced-baltimore.html
+
 **What We Can Learn From an Orphan in Sudan**\
 `The passivity of world leaders in the face of atrocities in Sudan contrasts with the deep sense of moral responsibility of a Sudanese refugee child whom I met on the Chad-Sudan border.`\
 https://nytimes.com/2024/09/25/opinion/sudan-chad-orphan-refugee.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/09/25/theater/discoshow-las-vegas
 **Some in Israeli Border Town Left Charred by Hezbollah Attacks Refuse to Flee**\
 `Despite the danger, older residents, firefighters, medics and a few small-business owners chose to stay put in Kiryat Shmona, the northernmost Israeli city near the border with Lebanon.`\
 https://nytimes.com/2024/09/25/world/middleeast/kiryat-shmona-border-town.html
-
-**Threats to Trump May Prompt Changes in Travel Plans and Event Types**\
-`Secret Service officials have advised altering routines and rethinking rally locations, after threats from Iran and two assassination attempts.`\
-https://nytimes.com/2024/09/25/us/politics/trump-travel-events-threats.html
 
