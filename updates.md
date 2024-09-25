@@ -1,3 +1,7 @@
+**One Person Killed in Bus Hijacking in Los Angeles**\
+`A person with a gun hijacked a bus early Wednesday while several passengers were onboard, the police said. The hijacker was taken into custody.`\
+https://nytimes.com/2024/09/25/us/bus-hijacked-los-angeles-california.html
+
 **Inside a Trump Ad Ridiculing Harris Over Taxpayer-Paid Gender Transition Surgery**\
 `Portraying the vice president as a far-left radical, her opponent uses images of trans people as a cudgel.`\
 https://nytimes.com/2024/09/25/us/politics/trump-ad-anti-trans-harris.html
