@@ -1,3 +1,7 @@
+**Three thoughts on the Browns' 3 units: What's been the biggest area of concern?**\
+`Cleveland is off to a 1-2 start and has yet to crack the 20-point mark through three weeks. How can the team improve going forward? `\
+https://nytimes.com/athletic/5792066/2024/09/25/browns-offense-defense-special-teams/
+
 **For the Orioles, a hard-earned playoff berth provides an opportunity for a 'fresh start'**\
 `As rough as it’s been since a charmed first half this season, the Orioles will play in October for a second-straight year.`\
 https://nytimes.com/athletic/5793284/2024/09/25/baltimore-orioles-playoff-clinch-al-east/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791984/2024/09/25/raiders-defense-injuries-wilkins
 **Palmer and Jackson are the Premier League's best partnership - Chelsea need to build around it**\
 `Nicolas Jackson and Cole Palmer are outperforming even Didier Drogba and Frank Lampard at Chelsea`\
 https://nytimes.com/athletic/5790511/2024/09/25/cole-palmer-nicolas-jackson-chelsea-analysis/
-
-**Lowetide: Can Oilers goalie Stuart Skinner deliver a complete season?**\
-`Skinner has handled the pressure well since arriving as the Oilers' starter and can meet the moment again.`\
-https://nytimes.com/athletic/5791053/2024/09/25/oilers-goalie-stuart-skinner-stats-2024/
 
