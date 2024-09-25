@@ -1,3 +1,11 @@
+**Cooper feels the heat from Leicester fans - the pressure is on to turn things around**\
+`Some Leicester fans chanted that their performance at Walsall was 'embarrassing' as the pressure increases on manager Cooper`\
+https://nytimes.com/athletic/5792328/2024/09/25/leicester-steve-copper-fans-walsall/
+
+**Twins' loss to Marlins puts season on brink as hitters' lack of 'execution' called out**\
+`Rocco Baldelli and Carlos Correa questioned the lineup's poor approach, and Max Kepler's time with the Twins is likely already over.`\
+https://nytimes.com/athletic/5791980/2024/09/25/twins-loss-marlins-hitters-bailey-ober/
+
 **Chelsea's busy midweeks are the perfect opportunity for Kiernan Dewsbury-Hall right now**\
 `Kiernan Dewsbury-Hall was an expensive summer arrival but has not yet started in the Premier League`\
 https://nytimes.com/athletic/5792433/2024/09/25/kiernan-dewsbury-hall-chelsea-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/climate/climate-electrification.html
 **A Next Generation Approach to Heating and Cooling Buildings**\
 `A fifth-generation network at the Bankside Yards project in London offers new possibilities for the pace of decarbonization in the United Kingdom and elsewhere.`\
 https://nytimes.com/2024/09/25/climate/fifth-generation-heat-pumps.html
-
-**As Global Temperatures Rise, Nigeria Faces a Cooling Crisis**\
-`With electricity scarce, Africa’s most populated country struggles to provide lifesaving cooling without worsening the very crisis causing the heat.`\
-https://nytimes.com/2024/09/25/climate/nigeria-heat-air-conditioners.html
-
-**Confronting Our New Reality**\
-`Solutions to the problem of climate change have never been more clear. But the scale of the problem keeps getting bigger.`\
-https://nytimes.com/2024/09/25/climate/climate-change-environment-planet.html
 
