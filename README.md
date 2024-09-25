@@ -1,3 +1,15 @@
+**You Don’t Need to Share That Meta A.I. Post**\
+`A message on Instagram falsely claims that whoever shares it can legally bar Meta from sharing their data and photos. Don’t fall for it.`\
+https://nytimes.com/2024/09/25/style/meta-ai-instagram-post.html
+
+**Roy Cooper thinks Republicans can be brought on board with climate action.**\
+`The outgoing North Carolina governor said that making the business case is key to building political coalitions that can reduce emissions.`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/roy-cooper-thinks-republicans-can-be-brought-on-board-with-climate-action
+
+**Biden, on ‘The View’ Calls Trump a ‘Loser’ Who Lacks ‘Redeeming Value’**\
+`President Biden became the first sitting president to appear live on “The View.” He said he was “at peace” with his decision not to run again.`\
+https://nytimes.com/2024/09/25/us/politics/biden-the-view.html
+
 **Israel’s military chief says ground operations are possible in Lebanon.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/israels-military-chief-says-ground-operations-are-possible-in-lebanon
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5788862/2024/09/25/browns-wyatt-teller-myles-garret
 **Rivian’s CEO says electric vehicles shouldn’t be a partisan issue.**\
 `By Jack Ewing`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/rivians-ceo-says-electric-vehicles-shouldnt-be-a-partisan-issue
-
-**What We Know About Hezbollah’s Military Capability**\
-`The Iran-backed militants have perhaps the largest arsenal of any armed group in the world, excluding governments, experts say.`\
-https://nytimes.com/2024/09/25/world/middleeast/hezbollah-military-capability.html
-
-**Rangers get good news on Panarin injury, but Lindgren week-to-week**\
-`Lindgren, whose physical style at 6-foot often leaves him battered, plays primarily with Adam Fox, New York's top defenseman.`\
-https://nytimes.com/athletic/5794007/2024/09/25/rangers-panarin-lindgren-injuries/
-
-**Meet the G.O.P. Personal Injury Lawyer Buying His Own Trump Ads**\
-`Dan Newlin has spent millions on billboards and TV spots promoting Donald J. Trump (and himself).`\
-https://nytimes.com/2024/09/25/us/politics/trump-ads-dan-newlin.html
 
