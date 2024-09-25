@@ -1,3 +1,7 @@
+**Aces complete sweep of Storm, will face Liberty in WNBA semifinals**\
+`Plum led the way with 29, making her first six baskets two days after she missed her first six.`\
+https://nytimes.com/athletic/5792855/2024/09/24/aces-storm-wnba-playoffs-sweep/
+
 **Rowdy Tellez DFA'd, 4 plate appearances away from $200K bonus**\
 `Through 383 at bats in 2024, Tellez slashed .243/.299/.392 with 13 home runs and 56 RBIs.`\
 https://nytimes.com/athletic/5792685/2024/09/24/rowdy-tellez-200k-bonus/
