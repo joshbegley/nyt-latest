@@ -1,3 +1,7 @@
+**Former Madrid and Man Utd defender Varane retires**\
+`Raphael Varane has retired from football after suffering a knee injury on his debut with Italian club Como.`\
+https://nytimes.com/athletic/5793107/2024/09/25/raphael-varane-retires-manchester-united-real-madrid/
+
 **China Says It Launched a Rocket With a Dummy Warhead Into the Pacific**\
 `The ballistic missile launch is a sign of the commitment of Xi Jinping, China’s leader, to continue strengthening the country’s Rocket Force and to project power in Asia.`\
 https://nytimes.com/2024/09/25/world/asia/china-missile-rocket-force.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/learning/favorite-restaurants.html
 **Republicans Pick Up Unlikely Allies in Key House Races: Unions**\
 `Democrats still dominate with organized labor. But in must-win swing races, Republicans are peeling off some union support, and feeling the benefits.`\
 https://nytimes.com/2024/09/25/nyregion/republicans-union-labor-endorsement.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/25/crosswords/spelling-bee-forum.html
 
