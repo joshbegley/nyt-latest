@@ -1,3 +1,7 @@
+**Going Loony for Rooney**\
+`Sally Rooney lovers reveled, played trivia and took part in raffles to celebrate the Irish novelist’s new book, “Intermezzo.”`\
+https://nytimes.com/2024/09/25/books/sally-rooney-intermezzo.html
+
 **Endrick, Modric, change of system? How Madrid could replace Mbappe for the derby**\
 `Madrid have lost Mbappe to injury for three weeks, but there's a number of ways they could shake up their line-up`\
 https://nytimes.com/athletic/5793881/2024/09/25/mbappe-injury-real-madrid-replacements/
