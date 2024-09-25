@@ -1,3 +1,7 @@
+**U.S. and Russian diplomats argue in Security Council session about improving communication.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/us-and-russian-diplomats-argue-in-security-council-session-about-improving-communication
+
 **Tropical Storm John Reforms Along Mexico’s Pacific Coast**\
 `The system, which battered western Mexico as a hurricane earlier this week, has begun to regain strength.`\
 https://nytimes.com/2024/09/25/weather/tropical-storm-john-mexico.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/protesters-br
 **What Should Israel Do?**\
 `Israel faces a dire threat from the outside, and its prime minister and his allies have been prioritizing their own interests.`\
 https://nytimes.com/2024/09/25/opinion/israel-hezbollah-hamas.html
-
-**Naftali Herstik, Renowned and Influential Cantor, Dies at 77**\
-`Part of a long line of cantors, he led services at the Great Synagogue in Jerusalem for 30 years and helped train the next generation.`\
-https://nytimes.com/2024/09/25/world/middleeast/naftali-herstik-dead.html
 
