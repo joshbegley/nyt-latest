@@ -1,3 +1,7 @@
+**At Book Release Parties, Fans Go Loony for Rooney**\
+`Sally Rooney lovers reveled, played trivia and took part in raffles to celebrate the Irish novelist’s new book, “Intermezzo.”`\
+https://nytimes.com/2024/09/25/books/sally-rooney-intermezzo.html
+
 **Going Loony for Rooney**\
 `Sally Rooney lovers reveled, played trivia and took part in raffles to celebrate the Irish novelist’s new book, “Intermezzo.”`\
 https://nytimes.com/2024/09/25/books/sally-rooney-intermezzo.html

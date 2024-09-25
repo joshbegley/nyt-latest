@@ -1,3 +1,7 @@
+**How did the Pac-12 and Mountain West get here?**\
+`Conference realignment continues to rage out west, much to the confusion of many people in the rest of the country.`\
+https://nytimes.com/athletic/5793473/2024/09/25/pac-12-mountain-west-realignment-members/
+
 **At Book Release Parties, Fans Go Loony for Rooney**\
 `Sally Rooney lovers reveled, played trivia and took part in raffles to celebrate the Irish novelist’s new book, “Intermezzo.”`\
 https://nytimes.com/2024/09/25/books/sally-rooney-intermezzo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5793882/2024/09/25/jill-roord-injury-return/
 **The president of Guyana, a nation with lush rainforests and rich oil deposits, grapples with the effects of pollution.**\
 `By Manuela Andreoni`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/the-president-of-guyana-a-nation-with-lush-rainforests-and-rich-oil-deposits-grapples-with-the-effects-of-pollution
-
-**Behind OpenAI’s Audacious Plan to Make A.I. Flow Like Electricity**\
-`Sam Altman, OpenAI’s chief executive, is talking to the United Arab Emirates, Asian chipmakers and U.S. officials to expand the computing power needed to build artificial intelligence.`\
-https://nytimes.com/2024/09/25/business/openai-plan-electricity.html
 
