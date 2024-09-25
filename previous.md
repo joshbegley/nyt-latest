@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/here-are-the-latest-developments
+
+**Live Updates: Israel Downs Hezbollah Missile Aimed at Tel Aviv**\
+`Israel said it was the first time the Lebanese militia had taken aim at Israel’s economic hub. Half a million people are displaced in Lebanon, the foreign minister said.`\
+https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah
+
 **Caleb Williams' encouraging throws give Bears something to build on: All-22**\
 `A lot went wrong on offense, but the Bears didn't stumble into 363 passing yards. A film breakdown of Williams' best throws.`\
 https://nytimes.com/athletic/5792803/2024/09/25/caleb-williams-bears-encouraging-throws/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5791039/2024/09/25/maple-leafs-2024-25-veteran-play
 **Hezbollah Fires Toward Tel Aviv, and Iran’s New President Addresses U.N.**\
 `Plus, was your doctor’s message written by A.I.?`\
 https://nytimes.com/2024/09/25/podcasts/hezbollah-missile-un.html
-
-**The Mushroom Kingdom That Shigeru Miyamoto Built**\
-`Decades after Miyamoto invented Mario and Zelda, he explains what makes Nintendo special and its transformation into a global entertainment brand.`\
-https://nytimes.com/2024/09/25/arts/design/shigeru-miyamoto-interview-nintendo-museum.html
-
-**The Slide Toward War in Lebanon**\
-`Israel, aiming to weaken the militant group Hezbollah, has pounded the country with deadly airstrikes, including densely populated parts of Beirut.`\
-https://nytimes.com/2024/09/25/podcasts/the-daily/israel-lebanon.html
 
