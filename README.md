@@ -4,7 +4,7 @@ https://nytimes.com/2024/09/25/briefing/crowdstrike-technology-security.html
 
 **Fleeing Israeli Airstrikes in Lebanon, and Worrying About Where to Go Next**\
 `After years of decline, Lebanon is ill-equipped to deal with a wave of displaced people. One family left their farm and found themselves homeless in Beirut.`\
-https://nytimes.com/2024/09/25/world/middleeast/fleeing-israeli-airstrikes-in-lebanon-and-worrying-about-where-to-go-next.html
+https://nytimes.com/2024/09/25/world/middleeast/lebanon-strikes-refugees-displaced.html
 
 **Goodbye to the Oakland Coliseum, a stadium where unlikely figures could find their footing**\
 `It's time to appreciate the Oakland Coliseum, a place that offered seats to unlikely figures both on and off the field.`\
