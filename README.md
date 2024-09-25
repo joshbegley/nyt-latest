@@ -1,3 +1,7 @@
+**A Beginner’s Guide to the Weight Room**\
+`Lifting at your local gym can be intimidating. Here’s how to get started.`\
+https://nytimes.com/2024/09/25/well/move/beginners-weights-exercise.html
+
 **Ukrainian troops continue to lose ground to Russia as Zelensky tries to rally allies at the Assembly.**\
 `By Constant Méheut`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/ukrainian-troops-continue-to-lose-ground-to-russia-as-zelensky-tries-to-rally-allies-at-assembly
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5792431/2024/09/25/blue-jackets-power-play-nhl-2024
 **In Silicon Valley, a Rogue Plan to Alter the Climate**\
 `Some restless entrepreneurs are releasing pollutants in the sky to try to cool the planet.`\
 https://nytimes.com/2024/09/25/climate/rogue-solar-geoengineering.html
-
-**Lawmakers Seek Inquiry of F.D.A. Device Chief’s Potential Conflicts**\
-`A top medical device regulator’s work overlapped at times with his wife’s legal representation of clients with business before the agency.`\
-https://nytimes.com/2024/09/25/health/fda-medical-devices-ethics-jeffrey-shuren.html
 
