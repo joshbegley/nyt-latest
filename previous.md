@@ -1,7 +1,3 @@
-**Ten Hag questions Man Utd mentality: 'We were too easy going'**\
-`Erik ten Hag questioned Manchester United&#8217;s &#8220;mentality&#8221; after they opened their Europa League campaign with a 1-1 draw at home to Twente.`\
-https://nytimes.com/athletic/5794848/2024/09/25/erik-ten-hag-man-utd-mentality-fc-twente/
-
 **30 Miles Inland, Tallahassee Is Bracing for Hurricane-Force Winds from Helene**\
 `“I’m praying for the best,” one resident said, “but I’m expecting the worst.”`\
 https://nytimes.com/2024/09/25/weather/tallahassee-hurricane-helene.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/25/briefing/harris-economic-speech-worlds-oldest-che
 **Biden and allies create a Marshall Plan-style initiative to rebuild Ukraine using frozen Russian assets.**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/biden-and-allies-create-a-marshall-plan-style-initiative-to-rebuild-ukraine-using-frozen-russian-assets
+
+**Carabao Cup fourth-round draw**\
+`Carabao Cup holders Liverpool will face Brighton &amp; Hove Albion in the fourth round after thrashing West Ham United on Wednesday evening.`\
+https://nytimes.com/athletic/5777447/2024/09/25/carabao-cup-fourth-round-draw/
 
