@@ -1,3 +1,11 @@
+**Thursday Briefing: The U.S. Pushes for a Cease-Fire in Lebanon**\
+`Plus, 3,600-year-old cheese.`\
+https://nytimes.com/2024/09/25/briefing/ceasefire-lebanon-election-japan.html
+
+**Presidents Cup matchups, tee times and pairings**\
+`Xander Schauffele and Patrick Cantlay are split up, as are world No. 1 Scottie Scheffler and best friend Sam Burns.`\
+https://nytimes.com/athletic/5794689/2024/09/25/presidents-cup-pairings-tee-times/
+
 **The Briefing: Man United 1 Twente 1 - Eriksen scores, Rashford shines, but so many errors led to Twente's goal**\
 `Manchester United opened their Europa League campaign with an underwhelming 1-1 draw at home to Erik ten Hag&#8217;s former side Twente.`\
 https://nytimes.com/athletic/5790314/2024/09/25/man-united-twente-analysis-rashford-eriksen-ten-hag/
