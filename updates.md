@@ -1,3 +1,7 @@
+**Biden, on ‘The View,’ Calls Trump a ‘Loser’ Who Lacks ‘Redeeming Value’**\
+`President Biden became the first sitting president to appear live on “The View.” He said he was “at peace” with his decision not to run again.`\
+https://nytimes.com/2024/09/25/us/politics/biden-the-view.html
+
 **Meta Unveils New Virtual Reality Headset as It Pursues the Metaverse**\
 `At an event in Silicon Valley, Meta exhibited a range of products meant to blend the real world and virtual reality, with a healthy dose of A.I.`\
 https://nytimes.com/2024/09/25/technology/meta-products-artificial-intelligence.html

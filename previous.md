@@ -14,7 +14,7 @@ https://nytimes.com/2024/09/25/style/meta-ai-instagram-post.html
 `The outgoing North Carolina governor said that making the business case is key to building political coalitions that can reduce emissions.`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/roy-cooper-thinks-republicans-can-be-brought-on-board-with-climate-action
 
-**Biden, on ‘The View’ Calls Trump a ‘Loser’ Who Lacks ‘Redeeming Value’**\
+**Biden, on ‘The View,’ Calls Trump a ‘Loser’ Who Lacks ‘Redeeming Value’**\
 `President Biden became the first sitting president to appear live on “The View.” He said he was “at peace” with his decision not to run again.`\
 https://nytimes.com/2024/09/25/us/politics/biden-the-view.html
 
