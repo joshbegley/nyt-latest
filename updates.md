@@ -1,3 +1,11 @@
+**New Era brings NFL helmet hat back**\
+`Helmet hats are dead. Long live helmet hats.`\
+https://nytimes.com/athletic/5791011/2024/09/25/new-era-nfl-helmet-hats/
+
+**In Silicon Valley, a Rogue Plan to Alter the Climate**\
+`Some restless entrepreneurs are releasing pollutants in the sky to try to cool the planet.`\
+https://nytimes.com/2024/09/25/climate/rogue-solar-geoengineering.html
+
 **Cincinnati Reds' Jonathan India shares frustrations**\
 `"I want to win. Everyone wants to win. That’s the bottom line. ... There are certain things that I think should happen," he said.`\
 https://nytimes.com/athletic/5793690/2024/09/25/jonathan-india-cincinnati-reds-disappointed-change/
