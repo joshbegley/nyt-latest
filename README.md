@@ -1,3 +1,7 @@
+**Mexican Senate Votes to Give Military Control of Civilian National Guard**\
+`Mexico’s governing party says the guard would be more effective and less corrupt as part of the armed forces. Critics fear the increased militarization of civilian life and a spike in rights abuses.`\
+https://nytimes.com/2024/09/25/world/americas/mexico-national-guard-military-control.html
+
 **Judge Demands a Plan for a Possible Federal Takeover of Rikers**\
 `Judge Laura Taylor Swain said a “carousel” of jail leaders had failed to stop violence. She ordered lawyers for the city and prisoners to show her what a receivership might look like.`\
 https://nytimes.com/2024/09/25/nyregion/rikers-island-jail-federal-takeover.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794839/2024/09/25/vikings-tommy-kramer-dementia-di
 **Notre Dame tops IU, MSU for 5-star Jalen Haralson**\
 `Haralson, the top-ranked recruit in the state of Indiana, is one of the biggest recruiting wins in the history of Notre Dame basketball.`\
 https://nytimes.com/athletic/5794971/2024/09/25/notre-dame-jalen-haralson-basketball-commitment/
-
-**Tell Us: How Is Political Advertising Affecting You?**\
-`Share your thoughts with the On Politics newsletter.`\
-https://nytimes.com/2024/09/25/us/political-advertising-callout.html
 
