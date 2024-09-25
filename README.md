@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Had a Second Chance’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/09/25/style/tiny-modern-love-stories-i-had-a-second-chance.html
+
 **Broncos LB Alex Singleton out for season with torn ACL**\
 `Singleton suffered the injury in the first quarter but remained on the field and played every defensive snap.`\
 https://nytimes.com/athletic/5794367/2024/09/25/alex-singleton-broncos-acl/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/world/middleeast/us-cease-fire-israel-hezbollah.h
 **Putin Declares Changes to Russian Nuclear Doctrine**\
 `President Vladimir V. Putin heightened his warnings against the West, asserting that Russia should be permitted to employ nuclear arms in the event of an attack by a nation backed by a nuclear power.`\
 https://nytimes.com/2024/09/25/world/europe/putin-declares-changes-to-russian-nuclear-doctrine.html
-
-**2 Injured When Man Sets Off Explosive Device at California Courthouse**\
-`Law enforcement detained a man who they said detonated an explosive device at a courthouse in Santa Barbara County, Calif., on Wednesday morning.`\
-https://nytimes.com/2024/09/25/us/courthouse-explosion-california.html
 
