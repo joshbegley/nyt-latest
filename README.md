@@ -1,4 +1,4 @@
-**U.S. is working to broker a temporary cease-fire between Israel and Hezbollah.**\
+**The U.S. is seeking a pause in the fighting in a bid to avert a wider war.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/us-cease-fire
 
