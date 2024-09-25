@@ -1,4 +1,4 @@
-**Ukrainian troops continue to lose ground to Russia as Zelensky tries to rally allies at Assembly.**\
+**Ukrainian troops continue to lose ground to Russia as Zelensky tries to rally allies at the Assembly.**\
 `By Constant Méheut`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/ukrainian-troops-continue-to-lose-ground-to-russia-as-zelensky-tries-to-rally-allies-at-assembly
 
