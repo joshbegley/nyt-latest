@@ -1,3 +1,7 @@
+**2 Injured After Man Sets Off Explosive Device at California Courthouse**\
+`Law enforcement arrested a man who they said detonated an explosive device at a courthouse in Santa Barbara, Calif., on Wednesday morning.`\
+https://nytimes.com/2024/09/25/us/courthouse-explosion-california.html
+
 **In Switzerland, Reported Use of Suicide Capsule Inflames Debate**\
 `The Swiss police said they had detained “several individuals” after a 64-year-old American woman reportedly died by suicide using the controversial device.`\
 https://nytimes.com/2024/09/25/world/europe/switzerland-sarco-capsule-suicide.html

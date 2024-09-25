@@ -1,3 +1,7 @@
+**2 Injured After Man Sets Off Explosive Device at California Courthouse**\
+`Law enforcement arrested a man who they said detonated an explosive device at a courthouse in Santa Barbara, Calif., on Wednesday morning.`\
+https://nytimes.com/2024/09/25/us/courthouse-explosion-california.html
+
 **In Switzerland, Reported Use of Suicide Capsule Inflames Debate**\
 `The Swiss police said they had detained “several individuals” after a 64-year-old American woman reportedly died by suicide using the controversial device.`\
 https://nytimes.com/2024/09/25/world/europe/switzerland-sarco-capsule-suicide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/technology/meta-products-artificial-intelligence.
 **The New York Police Department Fails Again on Illegal Tactics**\
 `A new report shows the department is still refusing to punish officers who violate the rights of citizens who are stopped.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/nypd-illegal-stop-frisk
-
-**You Don’t Need to Share That Meta A.I. Post**\
-`A message on Instagram falsely claims that whoever shares it can legally bar Meta from sharing their data and photos. Don’t fall for it.`\
-https://nytimes.com/2024/09/25/style/meta-ai-instagram-post.html
 
