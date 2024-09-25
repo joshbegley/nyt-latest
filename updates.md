@@ -1,3 +1,11 @@
+**How the Astros will navigate 4 meaningless games before a Wild Card Series**\
+`The AL West champions plan to swap two pitchers' spots in the rotation and let Yordan Alvarez rest for the rest of the regular season.`\
+https://nytimes.com/athletic/5794340/2024/09/25/astros-meaningless-games-wild-card-series/
+
+**Tiny Love Stories: ‘I Had a Second Chance’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/09/25/style/tiny-modern-love-stories-i-had-a-second-chance.html
+
 **Broncos LB Alex Singleton out for season with torn ACL**\
 `Singleton suffered the injury in the first quarter but remained on the field and played every defensive snap.`\
 https://nytimes.com/athletic/5794367/2024/09/25/alex-singleton-broncos-acl/
