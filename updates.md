@@ -1,3 +1,7 @@
+**How did the Pac-12 and Mountain West get here?**\
+`Conference realignment continues to rage out west, much to the confusion of many people in the rest of the country.`\
+https://nytimes.com/athletic/5793473/2024/09/25/pac-12-mountain-west-realignment-members/
+
 **At Book Release Parties, Fans Go Loony for Rooney**\
 `Sally Rooney lovers reveled, played trivia and took part in raffles to celebrate the Irish novelist’s new book, “Intermezzo.”`\
 https://nytimes.com/2024/09/25/books/sally-rooney-intermezzo.html
