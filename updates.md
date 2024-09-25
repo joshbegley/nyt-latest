@@ -1,3 +1,11 @@
+**Here is the latest on the U.N. meeting.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/here-is-the-latest-on-the-un-meeting
+
+**U.N. Live Updates: Zelensky to Make Case for Keeping a Focus on Ukraine**\
+`The Ukrainian leader, President Emmanuel Macron of France and heads of several African nations will address the U.N. General Assembly.`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches
+
 **The Padres have surged since the All-Star break. The preparation began long before then**\
 `The Padres continued their resurgence from a disastrous 2023 by clinching a return to the playoffs with a game-ending triple play Tuesday.`\
 https://nytimes.com/athletic/5793226/2024/09/25/padres-surge-mlb-postseason-playoff-spot/

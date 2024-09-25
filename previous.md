@@ -1,3 +1,11 @@
+**Here is the latest on the U.N. meeting.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/here-is-the-latest-on-the-un-meeting
+
+**U.N. Live Updates: Zelensky to Make Case for Keeping a Focus on Ukraine**\
+`The Ukrainian leader, President Emmanuel Macron of France and heads of several African nations will address the U.N. General Assembly.`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches
+
 **The Padres have surged since the All-Star break. The preparation began long before then**\
 `The Padres continued their resurgence from a disastrous 2023 by clinching a return to the playoffs with a game-ending triple play Tuesday.`\
 https://nytimes.com/athletic/5793226/2024/09/25/padres-surge-mlb-postseason-playoff-spot/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/science/space/black-hole-m87-energy.html
 **The Athletic FC: Who are Premier League MVPs? Mbappe and Bellingham combine for first time**\
 `Today in TAFC: We analyse the Premier League's MVPs, look at Barca's race against time for Camp Nou and break down Haaland's 100 PL goals.`\
 https://nytimes.com/athletic/5793231/2024/09/25/premier-league-mvps-bellingham-mbappe-assist/
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/09/25/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Echoes of Wisdom Empowers Zelda to Create Her Own Path**\
-`Princess Zelda’s magic wand can make a copy of nearly everything in the game, offering inventive solutions to enemy encounters and environmental puzzles.`\
-https://nytimes.com/2024/09/25/arts/the-legend-of-zelda-echoes-of-wisdom-review.html
 
