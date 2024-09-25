@@ -1,3 +1,7 @@
+**Dodgers call up flamethrower Edgardo Henriquez**\
+`Henriquez’s average fastball this season is 99.7 mph, including a pitch that was tracked at a reported 104 mph while with Double-A Tulsa.`\
+https://nytimes.com/athletic/5792512/2024/09/24/dodgers-call-up-flamethrower-edgardo-henriquez/
+
 **Trump Golf Course Suspect Is Charged With Attempted Assassination**\
 `The new federal indictment in Florida comes on top of two gun charges against Ryan W. Routh, an itinerant contractor with an extensive criminal record.`\
 https://nytimes.com/2024/09/24/us/politics/trump-attempted-assassination-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/us/marcellus-williams-execution-missouri.html
 **Buckley: Celtics begin title defense with a lot of questions ... and lots of lint to flick**\
 `The champs made sure to have fun at media day, but Brad Stevens' message was well-crafted and blunt: These Celtics have won nothing.`\
 https://nytimes.com/athletic/5792192/2024/09/24/boston-celtics-jayson-tatum-jaylen-brown/
-
-**Sparks, Curt Miller mutually part ways after two seasons**\
-`The two-time WNBA Coach of the Year ranks 11th in regular season wins with a 165-141 record`\
-https://nytimes.com/athletic/5792264/2024/09/24/sparks-curt-miller-part-ways/
 
