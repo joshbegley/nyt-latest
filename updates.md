@@ -1,3 +1,11 @@
+**Alex Jones’s Infowars Will Be Auctioned Off to Pay Sandy Hook Families**\
+`A sale of the Infowars website and other property is set for November, and could determine the conspiracy theorist’s fate as a broadcaster.`\
+https://nytimes.com/2024/09/24/us/politics/alex-jones-infowars-auction.html
+
+**Caitlin Clark says DiJonai Carrington foul 'wasn't intentional'**\
+`After Game 1, Clark said that getting poked in the eye didn't impact her performance.`\
+https://nytimes.com/athletic/5792209/2024/09/24/caitlin-clark-dijonai-carrington-eye-poke/
+
 **Bernie Moreno Under Fire Over Comments About Suburban Women**\
 `Mr. Moreno, a Republican running for Senate in Ohio, suggested that older women shouldn’t care about abortion because they were too old to have children, comments Nikki Haley pointedly criticized.`\
 https://nytimes.com/2024/09/24/us/politics/bernie-moreno-women-haley.html
