@@ -1,3 +1,15 @@
+**In Silicon Valley, a Rogue Plan to Alter the Climate**\
+`A pair of restless entrepreneurs are releasing pollutants in the sky to try to cool the planet.`\
+https://nytimes.com/2024/09/25/climate/rogue-solar-geoengineering.html
+
+**Lawmakers Seek Inquiry of F.D.A. Device Chief’s Potential Conflicts**\
+`A top medical device regulator’s work overlapped at times with his wife’s legal representation of clients with business before the agency.`\
+https://nytimes.com/2024/09/25/health/fda-medical-devices-ethics-jeffrey-shuren.html
+
+**Arsenal to appoint recruitment analyst Jonathan Kaye from Southampton**\
+`Southampton recruitment analyst Jonathan Kaye is set to join Arsenal and work in the club&#8217;s first team.`\
+https://nytimes.com/athletic/5793583/2024/09/25/jonathan-kaye-arsenal-southampton/
+
 **What I'm seeing in the first week of Oilers training camp**\
 `Despite the lack of Oilers roster battles, intrigue remains about defined roles and what’ll happen to players on the outside looking in.`\
 https://nytimes.com/athletic/5793091/2024/09/25/oilers-training-camp/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/the-l
 **Kamala Harris is looking to amplify her economic message.**\
 `By Jim Tankersley and Andrew Duehren`\
 https://nytimes.com/live/2024/09/25/us/harris-trump-election/kamala-harris-is-looking-to-amplify-her-economic-message
-
-**Online Scammers Posed as Brad Pitt to Get Cash, Spanish Police Say**\
-`The authorities in Spain said they had arrested five people who posed as the famous American actor online and swindled two women out of more than $350,000.`\
-https://nytimes.com/2024/09/25/world/europe/spain-brad-pitt.html
-
-**One Person Killed in Bus Hijacking in Los Angeles**\
-`A person with a gun hijacked a bus early Wednesday while several passengers were onboard, the police said. A suspect was taken into custody.`\
-https://nytimes.com/2024/09/25/us/bus-hijacked-los-angeles-california.html
-
-**Inside a Trump Ad Ridiculing Harris Over Taxpayer-Paid Gender Transition Surgery**\
-`Portraying the vice president as a far-left radical, her opponent uses images of trans people as a cudgel.`\
-https://nytimes.com/2024/09/25/us/politics/trump-ad-anti-trans-harris.html
 

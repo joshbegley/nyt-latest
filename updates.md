@@ -1,3 +1,15 @@
+**In Silicon Valley, a Rogue Plan to Alter the Climate**\
+`A pair of restless entrepreneurs are releasing pollutants in the sky to try to cool the planet.`\
+https://nytimes.com/2024/09/25/climate/rogue-solar-geoengineering.html
+
+**Lawmakers Seek Inquiry of F.D.A. Device Chief’s Potential Conflicts**\
+`A top medical device regulator’s work overlapped at times with his wife’s legal representation of clients with business before the agency.`\
+https://nytimes.com/2024/09/25/health/fda-medical-devices-ethics-jeffrey-shuren.html
+
+**Arsenal to appoint recruitment analyst Jonathan Kaye from Southampton**\
+`Southampton recruitment analyst Jonathan Kaye is set to join Arsenal and work in the club&#8217;s first team.`\
+https://nytimes.com/athletic/5793583/2024/09/25/jonathan-kaye-arsenal-southampton/
+
 **What I'm seeing in the first week of Oilers training camp**\
 `Despite the lack of Oilers roster battles, intrigue remains about defined roles and what’ll happen to players on the outside looking in.`\
 https://nytimes.com/athletic/5793091/2024/09/25/oilers-training-camp/
