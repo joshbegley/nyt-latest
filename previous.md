@@ -1,3 +1,7 @@
+**Hezbollah Targets Tel Aviv as Israel Moves Forces Toward Lebanon**\
+`A top Israeli military official hinted to soldiers of a possible ground invasion as the United States and France drafted a cease-fire proposal to try to stave off a broader conflict.`\
+https://nytimes.com/2024/09/25/world/middleeast/israel-hezbollah-lebanon.html
+
 **Investigators Trace Former Police Commissioner’s Ties to Nightclubs**\
 `Police officers have been asked for communications that would show that rewards were offered for favorable treatment of night spots, said a person familiar with the investigation.`\
 https://nytimes.com/2024/09/25/nyregion/nypd-commissioner-night-clubs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794848/2024/09/25/erik-ten-hag-man-utd-mentality-f
 **30 Miles Inland, Tallahassee Is Bracing for Hurricane-Force Winds from Helene**\
 `“I’m praying for the best,” one resident said, “but I’m expecting the worst.”`\
 https://nytimes.com/2024/09/25/weather/tallahassee-hurricane-helene.html
-
-**Harris’s Economic Pitch: Capitalism for the Middle Class**\
-`In a major address in Pittsburgh, the vice president praised business and used technical language to court economy-minded voters skeptical of big government`\
-https://nytimes.com/2024/09/25/business/harriss-economic-pitch-capitalism-for-the-middle-class.html
 

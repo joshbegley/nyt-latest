@@ -1,3 +1,7 @@
+**Hezbollah Targets Tel Aviv as Israel Moves Forces Toward Lebanon**\
+`A top Israeli military official hinted to soldiers of a possible ground invasion as the United States and France drafted a cease-fire proposal to try to stave off a broader conflict.`\
+https://nytimes.com/2024/09/25/world/middleeast/israel-hezbollah-lebanon.html
+
 **The drone attack caused some damage in the port city of Eilat and injured two civilians.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/a-drone-attack-from-an-iran-backed-group-in-iraq-hits-eilat-in-israel
