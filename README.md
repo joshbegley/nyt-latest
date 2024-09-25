@@ -1,3 +1,7 @@
+**The long-range weapons Ukraine wants to use on Russia, explained.**\
+`The United States and its allies are once again considering expanding the capabilities they provide to Ukraine in its fight against Russia’s invasion.`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/the-long-range-weapons-ukraine-wants-to-use-on-russia-explained
+
 **Kamala Harris is looking to amplify her economic message.**\
 `By Jim Tankersley and Andrew Duehren`\
 https://nytimes.com/live/2024/09/25/us/harris-trump-election/kamala-harris-is-looking-to-amplify-her-economic-message
@@ -34,4 +38,3 @@ https://nytimes.com/2024/09/25/style/parents-finances-inheritance.html
 `The Ukrainian leader aims to present President Biden with a strategy to improve his country’s position ahead of any peace negotiations with Russia.`\
 https://nytimes.com/2024/09/25/world/europe/zelensky-victory-plan-ukraine-russia-putin.html
 
-**Here’s today’s schedule.**\
