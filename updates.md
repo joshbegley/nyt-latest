@@ -1,3 +1,7 @@
+**A 25-Minute Strength Workout for Beginners**\
+`New to the weight room? This routine is for you.`\
+https://nytimes.com/2024/09/25/well/move/beginners-short-strength-workout.html
+
 **Popcast: A Word With John Summit**\
 `The dance music superstar and former accountant speaks on the return of EDM and his rise, from underground parties to headlining Madison Square Garden.`\
 https://nytimes.com/2024/09/25/arts/music/john-summit-interview-popcast.html
