@@ -1,3 +1,11 @@
+**30 Miles Inland, Tallahassee Is Bracing for Hurricane-Force Winds from Helene**\
+`“I’m praying for the best,” one resident said, “but I’m expecting the worst.”`\
+https://nytimes.com/2024/09/25/weather/tallahassee-hurricane-helene.html
+
+**Harris’s Economic Pitch: Capitalism for the Middle Class**\
+`In a major address in Pittsburgh, the vice president praised business and used technical language to court economy-minded voters skeptical of big government`\
+https://nytimes.com/2024/09/25/business/harriss-economic-pitch-capitalism-for-the-middle-class.html
+
 **Democrats and Republicans Press China on Abuse of Muslim Minority**\
 `Both parties are focused on oppression of China’s Uyghur minority but use different tactics in pushing the Biden administration to do more.`\
 https://nytimes.com/2024/09/25/us/politics/congress-uyghurs-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/biden
 **Carabao Cup fourth-round draw**\
 `Carabao Cup holders Liverpool will face Brighton &amp; Hove Albion in the fourth round after thrashing West Ham United on Wednesday evening.`\
 https://nytimes.com/athletic/5777447/2024/09/25/carabao-cup-fourth-round-draw/
-
-**Masai Russell introduced herself to the world with Olympic gold; now, meet her alter ego**\
-`For Masai Russell, a headliner Thursday at the new Athlos women's track event, the spirit she found in Paris looks a lot like her mother's.`\
-https://nytimes.com/athletic/5794298/2024/09/25/masai-russell-olympics-hurdles-gold-athlos-nyc/
-
-**Oil company CEO calls climate change ‘a crisis’ and defends carbon capture investments.**\
-`By Manuela Andreoni`\
-https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/oil-company-ceo-calls-climate-change-a-crisis-and-defends-carbon-capture-investments
 
