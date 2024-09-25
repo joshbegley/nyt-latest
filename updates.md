@@ -1,3 +1,11 @@
+**A ‘Health Resort Horror Story’ From a Nobel Laureate**\
+`In a new novel by Olga Tokarczuk, guests at a mountain retreat face a dark and cryptic threat.`\
+https://nytimes.com/2024/09/25/books/review/olga-tokarczuk-the-empusium.html
+
+**What I'm watching with Jets in Week 4: Rodgers revenge game? Fashanu at right tackle and more**\
+`Plus, Garrett Wilson tries to get going against another elite cornerback.`\
+https://nytimes.com/athletic/5794329/2024/09/25/aaron-rodgers-hackett-revenge-game-broncos-jets-sean-payton/
+
 **What I'm watching with Jets in Week 3: Rodgers revenge game? Fashanu at right tackle and more**\
 `Plus, Garrett Wilson tries to get going against another elite cornerback.`\
 https://nytimes.com/athletic/5794329/2024/09/25/aaron-rodgers-hackett-revenge-game-broncos-jets-sean-payton/
