@@ -1,40 +1,40 @@
-**Former Madrid and Man Utd defender Varane retires**\
-`Raphael Varane has retired from football after suffering a knee injury on his debut with Italian club Como.`\
-https://nytimes.com/athletic/5793107/2024/09/25/raphael-varane-retires-manchester-united-real-madrid/
+**Israeli Bulldozers Flatten Mile After Mile in the West Bank**\
+`Videos from Tulkarm and Jenin show bulldozers destroying infrastructure and businesses, as well as soldiers impeding local emergency responders.`\
+https://nytimes.com/2024/09/25/world/middleeast/west-bank-raids.html
 
-**China Says It Launched a Rocket With a Dummy Warhead Into the Pacific**\
-`The ballistic missile launch is a sign of the commitment of Xi Jinping, China’s leader, to continue strengthening the country’s Rocket Force and to project power in Asia.`\
-https://nytimes.com/2024/09/25/world/asia/china-missile-rocket-force.html
+**How to Make Typing Easier on the Phone and Leave the Laptop at Home**\
+`Shortcuts, small external keyboards and even improved (and free) dictation software can make long sessions of text input much simpler.`\
+https://nytimes.com/2024/09/25/technology/personaltech/smartphone-typing-tips.html
 
-**Padres clinch MLB postseason spot with game-winning triple play against Dodgers**\
-`San Diego's resurgence from a disastrous 2023 has been building since spring training, with multiple moves and acquisitions.`\
-https://nytimes.com/athletic/5793121/2024/09/25/padres-clinch-triple-play-dodgers/
+**A School for the Basketball World**\
+`The Earl Monroe New Renaissance Basketball School, a charter high school in the Bronx, offers basketball, but wants its students to succeed off the court.`\
+https://nytimes.com/2024/09/25/nyregion/basketball-charter-school-nyc.html
 
-**Is This What Female Strength Looks Like?**\
-`Saint Laurent and Dior struggle with the answer.`\
-https://nytimes.com/2024/09/25/style/dior-ysl-paris-fashion-week.html
+**Did Sean Combs Firebomb Kid Cudi’s Car? Charges Allude to a Reported Arson**\
+`The government does not name the victim of a firebombing cited in its case against Mr. Combs, but the timing and facts line up with a reported 2012 attack on the rapper’s car.`\
+https://nytimes.com/2024/09/25/arts/did-combs-firebomb-kid-cudis-car.html
 
-**Joe Espada's even hand guides Astros to improbable AL West title**\
-`"To go from 10 games out of it to winning the division, it’s pretty awesome,” third baseman Alex Bregman said.`\
-https://nytimes.com/athletic/5793052/2024/09/25/joe-espada-astros-al-west-champions/
+**To Win in North Carolina, Democrats Need to Get Out of Town**\
+`Harris has a chance in the state, but only if she hits the ground hard in rural areas, as Obama did in 2008.`\
+https://nytimes.com/2024/09/25/opinion/north-carolina-democrats-win.html
 
-**UNLV starting QB Matthew Sluka announces he will redshirt**\
-`Sluka transferred to UNLV this offseason after spending the previous four years at Holy Cross, an FCS program.`\
-https://nytimes.com/athletic/5793011/2024/09/25/matthew-sluka-unlv-redshirting/
+**Republicans’ Electoral College Edge, Once Seen as Ironclad, Looks to Be Fading**\
+`A review of the evidence that Donald Trump’s advantage relative to the national popular vote has declined significantly.`\
+https://nytimes.com/2024/09/25/upshot/trump-electoral-college-harris.html
 
-**'We sinned in our arrogance' - Real Madrid's night of reflection after Alaves close call**\
-`Real Madrid's 3-2 home win over Alaves extended their unbeaten run — but still raised concerns`\
-https://nytimes.com/athletic/5793065/2024/09/25/real-madrid-alaves-mbappe-bellingham-vinicius-jr/
+**Myha’la’s Relationship Advice? Get in a Fight.**\
+`The “Industry” star on how she learned to have a healthy argument with her new fiancé.`\
+https://nytimes.com/2024/09/25/podcasts/myhalas-relationship-advice-get-in-a-fight.html
 
-**N.Y.C. Rezoning Plan That Could Add 109,000 New Homes Is Set to Advance**\
-`The City Planning Commission is expected to approve a major rezoning proposal that would ease restrictions on development. The plan faces headwinds in the City Council.`\
-https://nytimes.com/2024/09/25/nyregion/new-york-city-housing-shortage-rezoning.html
+**France Rape Trial Renews Push to Revise Legal Definition of Rape**\
+`Gisèle Pelicot waived anonymity to make public the trial of her former husband and the 50 men accused of joining him in raping her.`\
+https://nytimes.com/video/world/europe/100000009701067/france-rape-trial-renews-push-to-revise-legal-definition-of-rape.html
 
-**Favorite Restaurants**\
-`What is the best place to eat where you live?`\
-https://nytimes.com/2024/09/25/learning/favorite-restaurants.html
+**The Evolution Garden, a Green Journey Through Geologic History**\
+`This newly redesigned space at the Natural History Museum in London traces 540 million years of the past while creating an outdoor laboratory for the future.`\
+https://nytimes.com/2024/09/25/arts/design/london-natural-history-museum.html
 
-**Republicans Pick Up Unlikely Allies in Key House Races: Unions**\
-`Democrats still dominate with organized labor. But in must-win swing races, Republicans are peeling off some union support, and feeling the benefits.`\
-https://nytimes.com/2024/09/25/nyregion/republicans-union-labor-endorsement.html
+**For an Italian Curator, Colombia Is a Place to Make a Difference**\
+`Eugenio Viola said he took the job at the Museum of Modern Art Bogotá to broaden its perspective and take part in the country’s reconstruction.`\
+https://nytimes.com/2024/09/25/arts/design/museum-eugenio-viola-curator-bogota.html
 
