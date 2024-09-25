@@ -1,3 +1,7 @@
+**Ukrainian troops continue to lose ground to Russia as Zelensky tries to rally allies at the Assembly.**\
+`By Constant Méheut`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/ukrainian-troops-continue-to-lose-ground-to-russia-as-zelensky-tries-to-rally-allies-at-assembly
+
 **New Era brings NFL helmet hat back**\
 `Helmet hats are dead. Long live helmet hats.`\
 https://nytimes.com/athletic/5791011/2024/09/25/new-era-nfl-helmet-hats/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/climate/rogue-solar-geoengineering.html
 **Lawmakers Seek Inquiry of F.D.A. Device Chief’s Potential Conflicts**\
 `A top medical device regulator’s work overlapped at times with his wife’s legal representation of clients with business before the agency.`\
 https://nytimes.com/2024/09/25/health/fda-medical-devices-ethics-jeffrey-shuren.html
-
-**Arsenal to appoint recruitment analyst Jonathan Kaye from Southampton**\
-`Southampton recruitment analyst Jonathan Kaye is set to join Arsenal and work in the club&#8217;s first team.`\
-https://nytimes.com/athletic/5793583/2024/09/25/jonathan-kaye-arsenal-southampton/
 
