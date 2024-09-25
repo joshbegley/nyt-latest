@@ -1,3 +1,7 @@
+**The Windup: Was that the play of the year?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5793838/2024/09/25/padres-clinch-triple-play-the-windup/
+
 **Can companies make climate progress while selling more stuff?**\
 `The chief executives of Ikea and Patagonia both want to lower humanity’s carbon output, but they have different approaches to doing it.`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/can-companies-make-climate-progress-while-selling-more-stuff
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/arts/design/liza-lou-art-brooklyn-museum-beads.ht
 **A Beginner’s Guide to the Weight Room**\
 `Lifting at your local gym can be intimidating. Here’s how to get started.`\
 https://nytimes.com/2024/09/25/well/move/beginners-weights-exercise.html
-
-**Ukrainian troops continue to lose ground to Russia as Zelensky tries to rally allies at the Assembly.**\
-`By Constant Méheut`\
-https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/ukrainian-troops-continue-to-lose-ground-to-russia-as-zelensky-tries-to-rally-allies-at-assembly
 
