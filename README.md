@@ -1,3 +1,7 @@
+**The Padres have surged since the All-Star break. The preparation began long before then**\
+`The Padres continued their resurgence from a disastrous 2023 by clinching a return to the playoffs with a game-ending triple play Tuesday.`\
+https://nytimes.com/athletic/5793226/2024/09/25/padres-surge-mlb-postseason-playoff-spot/
+
 **Here’s what’s happening today.**\
 `By Ryan McCarthy`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/heres-whats-happening-today
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/25/us/harris-trump-election/heres-the-latest-on
 **Echoes of Wisdom Empowers Zelda to Create Her Own Path**\
 `Princess Zelda’s magic wand can make a copy of nearly everything in the game, offering inventive solutions to enemy encounters and environmental puzzles.`\
 https://nytimes.com/2024/09/25/arts/the-legend-of-zelda-echoes-of-wisdom-review.html
-
-**Giants takeaways: Assessing a successful road trip that is too late but not too little**\
-`The Giants had a 31-41 road record entering this trip and hadn't swept a road series since July of last season. They are 7-1 on the trip.`\
-https://nytimes.com/athletic/5793083/2024/09/25/giants-takeaways-road-trip/
 
