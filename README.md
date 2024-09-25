@@ -1,3 +1,11 @@
+**At Climate Forward Event, an Architect of Project 2025 Dismisses Global Warming**\
+`At a New York Times Climate Forward event, Kevin D. Roberts said climate change amounted to a “hot year.”`\
+https://nytimes.com/2024/09/25/climate/climate-forward-project-2025-kevin-roberts.html
+
+**Gotham's Kelley O'Hara on season-ending injury list**\
+`O’Hara, an Olympic gold medalist with the USWNT, announced her plans in May to retire from soccer at the end of the NWSL season.`\
+https://nytimes.com/athletic/5783625/2024/09/25/kelley-ohara-injury-gotham-uswnt/
+
 **Lazio fans banned from Europa League match after police confiscate weapons**\
 `A group of around 60 Lazio fans have been banned from attending Thursday&#8217;s Europa League fixture against Dynamo Kyiv after having weapons confiscated by German police.`\
 https://nytimes.com/athletic/5793779/2024/09/25/lazio-fans-europa-league-police/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/dining/how-to-use-up-an-entire-jar-of-sun-dried-t
 **This Cheese Stood Alone for 3,600 Years**\
 `The cheese was dug up with mummified human remains in the Xinjiang region of China and offers insights into the origins of the dairy product known as kefir.`\
 https://nytimes.com/2024/09/25/science/oldest-cheese-kefir-xinjiang.html
-
-**A 25-Minute Strength Workout for Beginners**\
-`New to the weight room? This routine is for you.`\
-https://nytimes.com/2024/09/25/well/move/beginners-short-strength-workout.html
-
-**How Artist Liza Lou ‘Messes With Your Mind’**\
-`Her medium is the tiny seed bead. Her canvas ranges from a 35-foot-long mobile home to the chauvinist history of Abstract Expressionism.`\
-https://nytimes.com/2024/09/25/arts/design/liza-lou-art-brooklyn-museum-beads.html
 
