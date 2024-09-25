@@ -1,3 +1,11 @@
+**Read the document**\
+`A Senate committee report on the Secret Service’s inability to protect the former president at a July event`\
+https://nytimes.com/interactive/2024/09/25/us/politics/usss-hsgac-interim-report.html
+
+**France’s Horrifying Rape Trial Has a Feminist Hero**\
+`Gisèle Pelicot waived anonymity to make public the trial of her former husband and the 50 men accused of joining him in raping her. Her poise and courage have made her an icon.`\
+https://nytimes.com/2024/09/25/world/europe/france-rape-trial-gisele-pelicot.html
+
 **How Missouri Republicans Tried to Stifle a Citizen Vote on Abortion**\
 `But they couldn’t stop the referendum, and in November, abortion may be legal again in the state.`\
 https://nytimes.com/live/2024/09/17/opinion/thepoint/missouri-republicans-abortion-referendum
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/learning/whats-your-reaction-to-instagrams-change
 **Iran’s Dilemma: How to Preserve Its Proxies and Avoid Full-Scale War**\
 `Iran says Israel wants to trap it into a direct conflict by bombing Hezbollah, even as a new Iranian president tries outreach to the West.`\
 https://nytimes.com/2024/09/25/world/middleeast/iran-israel-hezbollah.html
-
-**Leadership, but No Clear Leader, Failed at Tragic Trump Rally**\
-`A Senate committee report on the Secret Service’s inability to protect the former president at a July event depicts a lack of individual responsibility among those charged with planning.`\
-https://nytimes.com/2024/09/25/us/politics/secret-service-trump-rally.html
-
-**With Stickers on Phone Cameras, Clubs Defend the Party Vibe**\
-`It’s standard practice in Berlin, and camera covering is catching on in London, Ibiza and New York as clubs seek to protect an anything-goes atmosphere.`\
-https://nytimes.com/2024/09/25/arts/music/stickers-on-phone-cameras-berlin.html
 
