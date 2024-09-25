@@ -1,3 +1,7 @@
+**The Pulse: A playoff-clinching triple play!?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5791387/2024/09/25/padres-dodgers-triple-play-the-pulse/
+
 **How the Wild plan to fix last year's Achilles' heel — their leaky penalty kill**\
 `The Wild have made the PK a focus in hirings, signings and camp. Assistant Jack Capuano: "You’re not going to win with a bad penalty kill."`\
 https://nytimes.com/athletic/5791714/2024/09/25/wild-penalty-kill-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791053/2024/09/25/oilers-goalie-stuart-skinner-sta
 **The many different defensive faces of Arteta's Arsenal**\
 `Arsenal had the best defensive record in the Premier League last season, but they achieve their success at the back in many different ways`\
 https://nytimes.com/athletic/5792392/2024/09/25/mikel-arteta-arsenal-defensive-adaptability/
-
-**How Amazon's NHL docuseries got player buy-in to reveal the 'raw emotion' of Stanley Cup hockey**\
-`The series captures moments of extreme emotion, including ones of Connor McDavid that could create a new impression of the NHL's top player.`\
-https://nytimes.com/athletic/5791445/2024/09/25/nhl-documentary-amazon-prime-faceoff/
 
