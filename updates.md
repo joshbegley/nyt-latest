@@ -1,3 +1,15 @@
+**Barcelona's Camp Nou reconstruction is 24/7 - but will they really be back this year?**\
+`The renovation of Barcelona's iconic home ground is not due to be completed until 2026, but the club plan to move in by December`\
+https://nytimes.com/athletic/5790961/2024/09/25/barcelona-camp-nou-update-reconstruction/
+
+**How will Yerson Mosquera's season-ending injury change Wolves' plans?**\
+`What are Gary O'Neil's options with Mosquera out for the season?`\
+https://nytimes.com/athletic/5791430/2024/09/25/mosquera-injury-centre-backs-plan/
+
+**Leeds's 53,000-seat Elland Road expansion plans: How? Why? And when?**\
+`Leeds United have announced plans to expand Elland Road to 53,000 seats — this is how they will do it`\
+https://nytimes.com/athletic/5788577/2024/09/25/leeds-united-elland-road-expansion-analysis/
+
 **Revealed: The Premier League's real MVPs**\
 `The debate over which players are most crucial to their club has been sparked by Rodri's injury - what does the data say?`\
 https://nytimes.com/athletic/5791174/2024/09/25/premier-league-mvp/

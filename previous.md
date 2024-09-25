@@ -1,3 +1,15 @@
+**Barcelona's Camp Nou reconstruction is 24/7 - but will they really be back this year?**\
+`The renovation of Barcelona's iconic home ground is not due to be completed until 2026, but the club plan to move in by December`\
+https://nytimes.com/athletic/5790961/2024/09/25/barcelona-camp-nou-update-reconstruction/
+
+**How will Yerson Mosquera's season-ending injury change Wolves' plans?**\
+`What are Gary O'Neil's options with Mosquera out for the season?`\
+https://nytimes.com/athletic/5791430/2024/09/25/mosquera-injury-centre-backs-plan/
+
+**Leeds's 53,000-seat Elland Road expansion plans: How? Why? And when?**\
+`Leeds United have announced plans to expand Elland Road to 53,000 seats — this is how they will do it`\
+https://nytimes.com/athletic/5788577/2024/09/25/leeds-united-elland-road-expansion-analysis/
+
 **Revealed: The Premier League's real MVPs**\
 `The debate over which players are most crucial to their club has been sparked by Rodri's injury - what does the data say?`\
 https://nytimes.com/athletic/5791174/2024/09/25/premier-league-mvp/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/25/world/asia/us-taiwan-drones-china.html
 **A Litmus Test in Japan: Can Spouses Have Different Surnames?**\
 `The nine candidates vying to become prime minister have been differentiated by their stances on a law requiring married couples to share a family name.`\
 https://nytimes.com/2024/09/25/world/asia/japan-election-surnames.html
-
-**Fantasy football rankings Week 4: Sleepers, projections, starts, sits**\
-`Jake Ciely offers up his Week 4 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
-https://nytimes.com/athletic/5791981/2024/09/25/fantasy-football-rankings-week-4-sleepers-projections-start-sit/
-
-**Wednesday's MLB best bets: Projections for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
-https://nytimes.com/athletic/5792154/2024/09/25/mlb-odds-best-bets-projections-september-25/
-
-**France Prepares to Raise Taxes on Businesses and the Rich**\
-`France’s new prime minister, Michel Barnier, has opened the door to reversing some of President Emmanuel Macron’s tax cuts in an effort to fix the country’s widening budget deficit.`\
-https://nytimes.com/2024/09/25/business/france-taxes-macron.html
 
