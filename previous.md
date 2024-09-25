@@ -1,3 +1,15 @@
+**ACC's 2024-25 men’s basketball schedule highlights Duke, UNC, 3 new members**\
+`The ACC released its 2024-25 men’s basketball schedule on Tuesday with a new 18-team lineup.`\
+https://nytimes.com/athletic/5792443/2024/09/24/acc-basketball-schedule-release/
+
+**Giants president Farhan Zaidi acknowledges his job uncertainty**\
+`PHOENIX — Farhan Zaidi leaned against a cinderblock wall in the tunnel outside the visiting clubhouse at Chase Field and took questions from four Giants beat reporters Tuesday afternoon.`\
+https://nytimes.com/athletic/5792661/2024/09/24/farhan-zaidi-san-francisco-giants-uncertainty/
+
+**Orioles clinch second consecutive postseason berth with win over Yankees, Twins loss**\
+`The Orioles are still in a neck-and-neck race for the division crown with the Yankees.`\
+https://nytimes.com/athletic/5792680/2024/09/24/orioles-clinch-postseason-berth/
+
 **Paul Simon Plays Rare New York Show in a Downtown Loft**\
 `The 82-year old singer received several standing ovations at an exclusive SoHo Sessions performance that drew fans including Kevin Bacon, Jerry Seinfeld and Amy Schumer.`\
 https://nytimes.com/2024/09/24/style/paul-simon-new-york-soho-sessions.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/24/crosswords/daily-puzzle-2024-09-25.html
 **Leadership Failures Helped Lead to FAFSA Debacle, Watchdog Finds**\
 `Two reports by the Government Accountability Office found that mismanagement and wildly unrealistic projections derailed the student aid application process this year.`\
 https://nytimes.com/2024/09/24/us/politics/watchdog-faults-leadership-fafsa-debacle.html
-
-**Dodgers call up flamethrower Edgardo Henriquez**\
-`Henriquez’s average fastball this season is 99.7 mph, including a pitch that was tracked at a reported 104 mph while with Double-A Tulsa.`\
-https://nytimes.com/athletic/5792512/2024/09/24/dodgers-call-up-flamethrower-edgardo-henriquez/
-
-**Trump Golf Course Suspect Is Charged With Attempted Assassination**\
-`The new federal indictment in Florida comes on top of two gun charges against Ryan W. Routh, an itinerant contractor with an extensive criminal record.`\
-https://nytimes.com/2024/09/24/us/politics/trump-attempted-assassination-charges.html
-
-**Alex Jones’s Infowars Will Be Auctioned Off to Pay Sandy Hook Families**\
-`A sale of the Infowars website and other property is set for November, and could determine the conspiracy theorist’s fate as a broadcaster.`\
-https://nytimes.com/2024/09/24/us/politics/alex-jones-infowars-auction.html
 
