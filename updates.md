@@ -1,3 +1,7 @@
+**The U.S. is seeking a pause in the fighting in a bid to avert a wider war.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/us-cease-fire-israel-hezbollah
+
 **‘Abandoned’: Officials say more must be done as war and famine rips Sudan apart.**\
 `By John Eligon and Ruth Maclean`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/abandoned-officials-say-more-must-be-done-as-war-and-famine-rips-sudan-apart

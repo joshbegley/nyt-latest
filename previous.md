@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/aband
 
 **The U.S. is seeking a pause in the fighting in a bid to avert a wider war.**\
 `By Michael D. Shear`\
-https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/us-cease-fire
+https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/us-cease-fire-israel-hezbollah
 
 **Putin Declares Changes to Russian Nuclear Doctrine**\
 `President Vladimir V. Putin heightened his warnings against the West, asserting that Russia should be permitted to employ nuclear arms in the event of an attack by a nation backed by a nuclear power.`\
