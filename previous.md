@@ -1,40 +1,40 @@
-**Israeli Bulldozers Flatten Mile After Mile in the West Bank**\
-`Videos from Tulkarm and Jenin show bulldozers destroying infrastructure and businesses, as well as soldiers impeding local emergency responders.`\
-https://nytimes.com/2024/09/25/world/middleeast/west-bank-raids.html
+**How Missouri Republicans Tried to Stifle a Citizen Vote on Abortion**\
+`But they couldn’t stop the referendum, and in November, abortion may be legal again in the state.`\
+https://nytimes.com/live/2024/09/17/opinion/thepoint/missouri-republicans-abortion-referendum
 
-**How to Make Typing Easier on the Phone and Leave the Laptop at Home**\
-`Shortcuts, small external keyboards and even improved (and free) dictation software can make long sessions of text input much simpler.`\
-https://nytimes.com/2024/09/25/technology/personaltech/smartphone-typing-tips.html
+**House to Vote on Short-Term Spending Bill to Avert a Shutdown**\
+`Speaker Mike Johnson is once again turning to Democrats to supply the bulk of the votes to keep federal funding flowing through Dec. 20.`\
+https://nytimes.com/2024/09/25/us/politics/house-short-term-spending-bill.html
 
-**A School for the Basketball World**\
-`The Earl Monroe New Renaissance Basketball School, a charter high school in the Bronx, offers basketball, but wants its students to succeed off the court.`\
-https://nytimes.com/2024/09/25/nyregion/basketball-charter-school-nyc.html
+**Trump’s Low-Tax, High-Tariff Strategy Could Clash With Economic Realities**\
+`The former president’s efforts to compel companies to remain in the United States had limited success while he was in the White House.`\
+https://nytimes.com/2024/09/25/us/politics/trump-taxes-tariffs-economy.html
 
-**Did Sean Combs Firebomb Kid Cudi’s Car? Charges Allude to a Reported Arson**\
-`The government does not name the victim of a firebombing cited in its case against Mr. Combs, but the timing and facts line up with a reported 2012 attack on the rapper’s car.`\
-https://nytimes.com/2024/09/25/arts/did-combs-firebomb-kid-cudis-car.html
+**Africa’s Youngest Elected Leader Wants a New World Order**\
+`In his first interview with Western media since becoming president of Senegal, Bassirou Diomaye Faye said the United Nations has to change to reflect changing world demographics.`\
+https://nytimes.com/2024/09/25/world/africa/president-senegal-bassirou-diomaye-faye.html
 
-**To Win in North Carolina, Democrats Need to Get Out of Town**\
-`Harris has a chance in the state, but only if she hits the ground hard in rural areas, as Obama did in 2008.`\
-https://nytimes.com/2024/09/25/opinion/north-carolina-democrats-win.html
+**In Defense of Hate-Watching**\
+`In a world of infinite media, why do we watch bad TV?`\
+https://nytimes.com/2024/09/25/podcasts/in-defense-of-hate-watching.html
 
-**Republicans’ Electoral College Edge, Once Seen as Ironclad, Looks to Be Fading**\
-`A review of the evidence that Donald Trump’s advantage relative to the national popular vote has declined significantly.`\
-https://nytimes.com/2024/09/25/upshot/trump-electoral-college-harris.html
+**Bengals face stark reality — and have a glimmer of hope — after 0-3 start**\
+`History isn't on Cincinnati's side to make the playoffs, but a strong offense could buoy the team after disastrous start.`\
+https://nytimes.com/athletic/5791875/2024/09/25/bengals-0-3-start-week-4/
 
-**Myha’la’s Relationship Advice? Get in a Fight.**\
-`The “Industry” star on how she learned to have a healthy argument with her new fiancé.`\
-https://nytimes.com/2024/09/25/podcasts/myhalas-relationship-advice-get-in-a-fight.html
+**What’s Your Reaction to Instagram’s Changes to Improve the Safety and the Health of Teen Users?**\
+`The app introduced new settings and features aimed at creating more age-appropriate experiences for minors. Do the changes go far enough?`\
+https://nytimes.com/2024/09/25/learning/whats-your-reaction-to-instagrams-changes-to-improve-the-safety-and-the-health-of-teen-users.html
 
-**France Rape Trial Renews Push to Revise Legal Definition of Rape**\
-`Gisèle Pelicot waived anonymity to make public the trial of her former husband and the 50 men accused of joining him in raping her.`\
-https://nytimes.com/video/world/europe/100000009701067/france-rape-trial-renews-push-to-revise-legal-definition-of-rape.html
+**Iran’s Dilemma: How to Preserve Its Proxies and Avoid Full-Scale War**\
+`Iran says Israel wants to trap it into a direct conflict by bombing Hezbollah, even as a new Iranian president tries outreach to the West.`\
+https://nytimes.com/2024/09/25/world/middleeast/iran-israel-hezbollah.html
 
-**The Evolution Garden, a Green Journey Through Geologic History**\
-`This newly redesigned space at the Natural History Museum in London traces 540 million years of the past while creating an outdoor laboratory for the future.`\
-https://nytimes.com/2024/09/25/arts/design/london-natural-history-museum.html
+**Leadership, but No Clear Leader, Failed at Tragic Trump Rally**\
+`A Senate committee report on the Secret Service’s inability to protect the former president at a July event depicts a lack of individual responsibility among those charged with planning.`\
+https://nytimes.com/2024/09/25/us/politics/secret-service-trump-rally.html
 
-**For an Italian Curator, Colombia Is a Place to Make a Difference**\
-`Eugenio Viola said he took the job at the Museum of Modern Art Bogotá to broaden its perspective and take part in the country’s reconstruction.`\
-https://nytimes.com/2024/09/25/arts/design/museum-eugenio-viola-curator-bogota.html
+**With Stickers on Phone Cameras, Clubs Defend the Party Vibe**\
+`It’s standard practice in Berlin, and camera covering is catching on in London, Ibiza and New York as clubs seek to protect an anything-goes atmosphere.`\
+https://nytimes.com/2024/09/25/arts/music/stickers-on-phone-cameras-berlin.html
 
