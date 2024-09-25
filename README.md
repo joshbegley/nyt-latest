@@ -1,3 +1,7 @@
+**MLB's top 20 breakout players in 2024: Skubal tops list, Skenes not far behind**\
+`Here are 20 standouts who turned their potential into production in 2024 and made the biggest jumps among major-league players.`\
+https://nytimes.com/athletic/5789472/2024/09/25/mlb-breakout-players-skubal-skenes-chourio-2024/
+
 **When Computers Go Dark**\
 `A routine software update by a security company crashed millions of computers around the world. The chaos was telling.`\
 https://nytimes.com/2024/09/25/briefing/crowdstrike-technology-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791397/2024/09/25/matthew-tkachuk-johnny-gaudreau-
 **Joey Anderson checks analytics boxes, but Blackhawks roster spot is no guarantee**\
 `Last season Joey Anderson was an NHL analytics darling. This year, he might end up back in Rockford.`\
 https://nytimes.com/athletic/5791797/2024/09/25/blackhawks-joey-anderson-defense-roster/
-
-**Jets training camp: Projecting Cole Perfetti's production and a focus on special teams**\
-`What should the Jets expect from Perfetti in an expanded role offensively this season?`\
-https://nytimes.com/athletic/5791704/2024/09/25/winnipeg-jets-cole-perfetti-training-camp/
 
