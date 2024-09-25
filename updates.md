@@ -1,3 +1,19 @@
+**New York Liberty sweep Atlanta Dream, advance to WNBA semifinals**\
+`New York awaits the winner of the Aces and Seattle Storm second-round series, which tips off at 9:30 p.m. ET on Tuesday. `\
+https://nytimes.com/athletic/5792609/2024/09/24/new-york-liberty-advance-wnba-semifinals/
+
+**Review: What’s Eating Trump? The Singing ‘Ghost of John McCain’**\
+`The former senator haunts the former president, or vice versa, in this sophomoric musical satire.`\
+https://nytimes.com/2024/09/24/theater/ghost-of-john-mccain-review-trump.html
+
+**Brio**\
+`Peter Gordon’s puzzle comes with surround sound.`\
+https://nytimes.com/2024/09/24/crosswords/daily-puzzle-2024-09-25.html
+
+**Leadership Failures Helped Lead to FAFSA Debacle, Watchdog Finds**\
+`Two reports by the Government Accountability Office found that mismanagement and wildly unrealistic projections derailed the student aid application process this year.`\
+https://nytimes.com/2024/09/24/us/politics/watchdog-faults-leadership-fafsa-debacle.html
+
 **Dodgers call up flamethrower Edgardo Henriquez**\
 `Henriquez’s average fastball this season is 99.7 mph, including a pitch that was tracked at a reported 104 mph while with Double-A Tulsa.`\
 https://nytimes.com/athletic/5792512/2024/09/24/dodgers-call-up-flamethrower-edgardo-henriquez/
