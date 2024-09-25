@@ -1,3 +1,11 @@
+**At Climate Forward Event, an Architect of Project 2025 Dismisses Global Warming**\
+`At a New York Times Climate Forward event, Kevin D. Roberts said climate change amounted to a “hot year.”`\
+https://nytimes.com/2024/09/25/climate/climate-forward-project-2025-kevin-roberts.html
+
+**Gotham's Kelley O'Hara on season-ending injury list**\
+`O’Hara, an Olympic gold medalist with the USWNT, announced her plans in May to retire from soccer at the end of the NWSL season.`\
+https://nytimes.com/athletic/5783625/2024/09/25/kelley-ohara-injury-gotham-uswnt/
+
 **Lazio fans banned from Europa League match after police confiscate weapons**\
 `A group of around 60 Lazio fans have been banned from attending Thursday&#8217;s Europa League fixture against Dynamo Kyiv after having weapons confiscated by German police.`\
 https://nytimes.com/athletic/5793779/2024/09/25/lazio-fans-europa-league-police/
