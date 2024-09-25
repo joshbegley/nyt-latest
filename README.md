@@ -1,3 +1,15 @@
+**The Briefing: Man United 1 Twente 1 - Eriksen scores, Rashford shines, but so many errors led to Twente's goal**\
+`Manchester United opened their Europa League campaign with an underwhelming 1-1 draw at home to Erik ten Hag&#8217;s former side Twente.`\
+https://nytimes.com/athletic/5790314/2024/09/25/man-united-twente-analysis-rashford-eriksen-ten-hag/
+
+**'He just keeps going': Could Jett Luchanko make the Flyers' opening-night roster?**\
+`After Philadelphia's first cuts, the 2024 first-rounder is the only one in his training camp group who has never played an NHL game.`\
+https://nytimes.com/athletic/5794504/2024/09/25/flyers-jett-luchanko-roster-battle/
+
+**‘A death sentence’: Officials from vulnerable nations say losses from climate change have already begun.**\
+`By Manuela Andreoni`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/a-death-sentence-officials-from-vulnerable-nations-say-losses-from-climate-change-have-already-begun
+
 **Protesters briefly disrupt a discussion with an oil company executive.**\
 `By Manuela Andreoni and Ryan McCarthy`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/protesters-briefly-disrupt-a-discussion-with-an-oil-company-executive
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/25/arts/cat-glover-dead-prince.html
 **Zelensky Warns U.N. Against Ceding to Russia’s ‘Insane’ Desire for Land**\
 `President Volodymyr Zelensky of Ukraine told the meeting of world leaders that capitulating to Russia would only give its president, Vladimir Putin, the “political space to continue the war.”`\
 https://nytimes.com/2024/09/25/world/europe/un-zelensky-ukraine-putin.html
-
-**Mark Robinson’s Top Staff in the Lieutenant Governor’s Office Plan to Resign**\
-`North Carolina’s Republican nominee for governor has already lost most of his campaign staff after a news report linked him to disturbing comments on a porn site.`\
-https://nytimes.com/2024/09/25/us/politics/mark-robinsons-top-staff-in-the-lieutenant-governors-office-plan-to-resign.html
-
-**Bresson’s ‘Lancelot du Lac’: The Undoing of Camelot**\
-`Broken by failure, the knights don their creaking armor and take aim at one another, as a desolate Lancelot tries to sever his bonds with Guinevere.`\
-https://nytimes.com/2024/09/25/arts/bressons-lancelot-crumbling-camelot.html
-
-**A Wisconsin Mayor Took Issue With a Ballot Drop Box Decision, So He Took the Drop Box**\
-`Mayor Doug Diny of Wausau, Wis., said the City Council should have been consulted before the installation. The Wisconsin Supreme Court had said authority rested with the city clerk.`\
-https://nytimes.com/2024/09/25/us/politics/wisconsin-mayor-ballot-box.html
 
