@@ -1,3 +1,11 @@
+**The Nation’s Politics Are Dramatic. Now Its Dramas Are Political.**\
+`For the second year in a row, a play about the Constitution is the most-staged in America. And a farce about a terrible president is also pretty popular.`\
+https://nytimes.com/2024/09/25/theater/what-the-constitution-means-to-me-most-staged.html
+
+**Allied Countries Accuse Taliban of ‘Gross’ Violations of Women’s Rights**\
+`Germany, Australia, Canada and the Netherlands said they will take the Taliban to the U.N.’s highest court because of its harsh restrictions on Afghan women.`\
+https://nytimes.com/2024/09/25/world/asia/taliban-afghanistan-womens-rights.html
+
 **Ekeler out Week 4 vs. Cardinals with concussion**\
 `Ekeler left Monday night's win against the Cincinnati Bengals in the third quarter and was eventually ruled out with the injury`\
 https://nytimes.com/athletic/5794519/2024/09/25/commanders-austin-ekeler-concussion/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5794390/2024/09/25/alex-bregman-sendoff-astros-fina
 **They Were Promised a Charming ‘Bridgerton’ Ball. They Got a Pole Dance.**\
 `A Detroit event evoked memories of Glasgow’s Willy Wonka debacle. We look at how they stack up against each other.`\
 https://nytimes.com/2024/09/25/us/bridgerton-ball-experience-detroit-scam-new.html
-
-**What’s in Our Queue? Chucho Valdés and More**\
-`I’m on assignment in Brussels, where I’m covering the European Union. Here are five things I’ve been listening to, watching and discovering.`\
-https://nytimes.com/interactive/2024/09/25/arts/editors-recommendations-valdes.html
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears are 1-2 and the offense is a mess. This week they host the banged-up Rams, who just upset the 49ers. What's on your mind?`\
-https://nytimes.com/athletic/5794449/2024/09/25/bears-mailbag-questions-33/
 
