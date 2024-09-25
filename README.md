@@ -1,3 +1,15 @@
+**Donald Trump’s Dreamworld Way Out of the Abortion Issue**\
+`He simply hopes women will stop thinking about it.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/trump-abortion-dreamworld-protector
+
+**How ‘Discoshow’ Spun Las Vegas Into Funkytown**\
+`Revisiting 1970s New York, a new theatrical experience is one history lesson that’s all about the good times.`\
+https://nytimes.com/card/2024/09/25/theater/discoshow-las-vegas
+
+**Some in Israeli Border Town Left Charred by Hezbollah Attacks Refuse to Flee**\
+`Despite the danger, older residents, firefighters, medics and a few small-business owners chose to stay put in Kiryat Shmona, the northernmost Israeli city near the border with Lebanon.`\
+https://nytimes.com/2024/09/25/world/middleeast/kiryat-shmona-border-town.html
+
 **Threats to Trump May Prompt Changes in Travel Plans and Event Types**\
 `Secret Service officials have advised altering routines and rethinking rally locations, after threats from Iran and two assassination attempts.`\
 https://nytimes.com/2024/09/25/us/politics/trump-travel-events-threats.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/oil-company-c
 **Final 2 games of critical Braves-Mets series postponed by storms, moved to Monday doublehader**\
 `The critical series between the Braves and Mets will now be completed after the official end of the season.`\
 https://nytimes.com/athletic/5794753/2024/09/25/braves-mets-postponed/
-
-**Raya doubtful for Arsenal vs Leicester with thigh injury**\
-`David Raya is an injury doubt for Arsenal&#8217;s Premier League match against Leicester City on Saturday.`\
-https://nytimes.com/athletic/5794202/2024/09/25/david-raya-injury-arsenal/
-
-**What to Know About New York City’s New Schools Chancellor**\
-`Melissa Aviles-Ramos, a former English teacher and deputy chancellor, will assume the post after David C. Banks steps down in December.`\
-https://nytimes.com/2024/09/25/nyregion/melissa-aviles-ramos-nyc-schools-chancellor.html
-
-**Harris Casts Herself as a Pro-Business Pragmatist in a Broad Economic Pitch**\
-`Declaring “I am a capitalist” in a speech in Pittsburgh, Kamala Harris promised not to be “constrained by ideology” even as she said she would fiercely defend unions and the middle class.`\
-https://nytimes.com/2024/09/25/us/politics/harris-economic-speech-pro-business.html
 
