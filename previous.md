@@ -1,3 +1,7 @@
+**Fantasy football stock watch: Braelon Allen's role grows, Zamir White's shrinks**\
+`Dane Martinez highlights three players on the rise, like Jets rookie Braelon Allen, and three players who are falling in fantasy football.`\
+https://nytimes.com/athletic/5791552/2024/09/25/fantasy-football-stock-watch-braelon-allens-role-grows-zamir-whites-shrinks/
+
 **Greenberg: They came to see history. Instead, they saw the White Sox win a game**\
 `Chicago fans booing the White Sox for winning? It was unusual, even for this wacky franchise. But that's what happened Tuesday night.`\
 https://nytimes.com/athletic/5792881/2024/09/25/chicago-white-sox-angels-comeback-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5784143/2024/09/25/crystal-palace-daichi-kamada-pos
 **Braves rookie Spencer Schwellenbach handles Mets again, Michael Harris II stays hot**\
 `Harris has five consecutive multi-hit games and made another spectacular catch in center field. `\
 https://nytimes.com/athletic/5792853/2024/09/25/braves-mets-spencer-schwellenbach/
-
-**Brighton squad audit: A potential vacancy at the back, versatility in attack**\
-`How strong do Brighton look after spending nearly £200million on nine new signings in the summer?`\
-https://nytimes.com/athletic/5770813/2024/09/25/brighton-squad-depth/
 

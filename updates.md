@@ -1,3 +1,7 @@
+**Fantasy football stock watch: Braelon Allen's role grows, Zamir White's shrinks**\
+`Dane Martinez highlights three players on the rise, like Jets rookie Braelon Allen, and three players who are falling in fantasy football.`\
+https://nytimes.com/athletic/5791552/2024/09/25/fantasy-football-stock-watch-braelon-allens-role-grows-zamir-whites-shrinks/
+
 **Greenberg: They came to see history. Instead, they saw the White Sox win a game**\
 `Chicago fans booing the White Sox for winning? It was unusual, even for this wacky franchise. But that's what happened Tuesday night.`\
 https://nytimes.com/athletic/5792881/2024/09/25/chicago-white-sox-angels-comeback-win/
