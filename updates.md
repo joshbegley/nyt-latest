@@ -1,3 +1,7 @@
+**Los Angeles Bus Hijacked at Gunpoint**\
+`The person suspected of hijacking a bus which killed one person, was taken into custody after an hourlong pursuit by the Los Angeles Police Department early Wednesday morning.`\
+https://nytimes.com/video/us/100000009719308/los-angeles-bus-hijack.html
+
 **Exploring the Roots of Mideast Turbulence Onstage**\
 `A retrospective in Paris honors Lina Majdalanie and Rabih Mroué, whose theater works have examined the region’s troubles for decades.`\
 https://nytimes.com/2024/09/25/theater/lina-majdalanie-rabih-mroue-middle-east.html
