@@ -1,3 +1,11 @@
+**Rowdy Tellez DFA'd, 4 plate appearances away from $200K bonus**\
+`Through 383 at bats in 2024, Tellez slashed .243/.299/.392 with 13 home runs and 56 RBIs.`\
+https://nytimes.com/athletic/5792685/2024/09/24/rowdy-tellez-200k-bonus/
+
+**Robert Kraft buys six-figure Tom Brady card at ‘Holy Grails’ auction**\
+`Ohtani’s one-of-a-kind 2018 Topps Chrome Sapphire Autographs Superfractor rookie card sold for $336,000, which surpassed the previous record`\
+https://nytimes.com/athletic/5792785/2024/09/24/shohei-ohtani-card-fanatics-auction/
+
 **Orioles clinch second consecutive postseason berth with win over Yankees, Twins loss**\
 `The Orioles are still five games behind the Yankees for the division crown. `\
 https://nytimes.com/athletic/5792680/2024/09/24/orioles-clinch-postseason-berth/

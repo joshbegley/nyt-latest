@@ -1,3 +1,11 @@
+**Rowdy Tellez DFA'd, 4 plate appearances away from $200K bonus**\
+`Through 383 at bats in 2024, Tellez slashed .243/.299/.392 with 13 home runs and 56 RBIs.`\
+https://nytimes.com/athletic/5792685/2024/09/24/rowdy-tellez-200k-bonus/
+
+**Robert Kraft buys six-figure Tom Brady card at ‘Holy Grails’ auction**\
+`Ohtani’s one-of-a-kind 2018 Topps Chrome Sapphire Autographs Superfractor rookie card sold for $336,000, which surpassed the previous record`\
+https://nytimes.com/athletic/5792785/2024/09/24/shohei-ohtani-card-fanatics-auction/
+
 **Study Finds Climate Change Doubled Likelihood of Recent European Floods**\
 `Storm Boris dumped record amounts of rain over Central and Eastern Europe this month. A new study found climate change made the deluge more likely.`\
 https://nytimes.com/2024/09/24/climate/climate-change-europe-floods-boris.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5792661/2024/09/24/farhan-zaidi-sf-giants-uncertain
 **Orioles clinch second consecutive postseason berth with win over Yankees, Twins loss**\
 `The Orioles are still five games behind the Yankees for the division crown. `\
 https://nytimes.com/athletic/5792680/2024/09/24/orioles-clinch-postseason-berth/
-
-**Paul Simon Plays Rare New York Show in a Downtown Loft**\
-`The 82-year old singer received several standing ovations at an exclusive SoHo Sessions performance that drew fans including Kevin Bacon, Jerry Seinfeld and Amy Schumer.`\
-https://nytimes.com/2024/09/24/style/paul-simon-new-york-soho-sessions.html
-
-**Chemical Leak From Rail Yard Near Cincinnati Prompts Evacuations**\
-`A train car in Whitewater Township, Ohio, was discovered to be leaking styrene, which is used to make plastic and fiberglass and is highly flammable.`\
-https://nytimes.com/2024/09/24/us/ohio-train-chemical-leak.html
 
