@@ -1,3 +1,11 @@
+**Making Tender Scones at Home Is Easier Than You Think**\
+`All you need is a bowl, fork and baking sheet for fresh, warm scones with crisp tops and soft centers.`\
+https://nytimes.com/2024/09/25/dining/how-to-make-scones.html
+
+**For the second time in two weeks, U.K.’s Starmer will discuss the Ukraine weapons dilemma.**\
+`On the agenda for Prime Minister Keir Starmer in New York: private talks with the U.S. over whether to allow Ukraine to use long range weapons in Russia, and Middle East tensions.`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/for-the-second-time-in-two-weeks-uks-starmer-will-discuss-the-ukraine-weapons-dilemma
+
 **Alex Bregman gets sendoff in Astros' final regular-season game at Minute Maid Park**\
 `Bregman, a free agent after this season, has spent his entire nine-year career in Houston. `\
 https://nytimes.com/athletic/5794390/2024/09/25/alex-bregman-sendoff-astros-final-home-game/
