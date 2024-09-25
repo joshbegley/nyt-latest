@@ -1,3 +1,11 @@
+**Ten Hag questions Man Utd mentality: 'We were too easy going'**\
+`Erik ten Hag questioned Manchester United&#8217;s &#8220;mentality&#8221; after they opened their Europa League campaign with a 1-1 draw at home to Twente.`\
+https://nytimes.com/athletic/5794848/2024/09/25/erik-ten-hag-man-utd-mentality-fc-twente/
+
+**Trump’s Dreamworld Way Out of the Abortion Issue**\
+`He simply hopes women will stop thinking about it.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/trump-abortion-dreamworld-protector
+
 **30 Miles Inland, Tallahassee Is Bracing for Hurricane-Force Winds from Helene**\
 `“I’m praying for the best,” one resident said, “but I’m expecting the worst.”`\
 https://nytimes.com/2024/09/25/weather/tallahassee-hurricane-helene.html
