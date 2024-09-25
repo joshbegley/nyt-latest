@@ -1,3 +1,7 @@
+**Joe Espada's even hand guides Astros to improbable AL West title**\
+`"To go from 10 games out of it to winning the division, it’s pretty awesome,” third baseman Alex Bregman said.`\
+https://nytimes.com/athletic/5793052/2024/09/25/joe-espada-astros-al-west-champions/
+
 **UNLV starting QB Matthew Sluka announces he will redshirt**\
 `Sluka transferred to UNLV this offseason after spending the previous four years at Holy Cross, an FCS program.`\
 https://nytimes.com/athletic/5793011/2024/09/25/matthew-sluka-unlv-redshirting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5790440/2024/09/25/ross-barkley-aston-villa-analysi
 **Cooper feels the heat from Leicester fans - the pressure is on to turn things around**\
 `Some Leicester fans chanted that their performance at Walsall was 'embarrassing' as the pressure increases on manager Cooper`\
 https://nytimes.com/athletic/5792328/2024/09/25/leicester-steve-copper-fans-walsall/
-
-**Twins' loss to Marlins puts season on brink as hitters' lack of 'execution' called out**\
-`Rocco Baldelli and Carlos Correa questioned the lineup's poor approach, and Max Kepler's time with the Twins is likely already over.`\
-https://nytimes.com/athletic/5791980/2024/09/25/twins-loss-marlins-hitters-bailey-ober/
 
