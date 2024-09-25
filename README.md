@@ -1,3 +1,7 @@
+**Threats to Trump May Prompt Changes in Travel Plans and Event Types**\
+`Secret Service officials have advised altering routines and rethinking rally locations, after threats from Iran and two assassination attempts.`\
+https://nytimes.com/2024/09/25/us/politics/trump-travel-events-threats.html
+
 **Harris Cast Herself as a Pro-Business Pragmatist**\
 `Also, the U.S. is trying to broker an Israel-Hezbollah cease-fire. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/09/25/briefing/harris-economic-speech-worlds-oldest-cheese.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/nyregion/melissa-aviles-ramos-nyc-schools-chancel
 **Harris Casts Herself as a Pro-Business Pragmatist in a Broad Economic Pitch**\
 `Declaring “I am a capitalist” in a speech in Pittsburgh, Kamala Harris promised not to be “constrained by ideology” even as she said she would fiercely defend unions and the middle class.`\
 https://nytimes.com/2024/09/25/us/politics/harris-economic-speech-pro-business.html
-
-**U.S. and Russian diplomats spar in U.N. session about improving Security Council’s leadership in war.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/us-and-russian-diplomats-argue-in-security-council-session-about-improving-communication
 
