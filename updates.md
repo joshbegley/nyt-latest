@@ -1,3 +1,15 @@
+**You Don’t Need to Share That Meta A.I. Post**\
+`A message on Instagram falsely claims that whoever shares it can legally bar Meta from sharing their data and photos. Don’t fall for it.`\
+https://nytimes.com/2024/09/25/style/meta-ai-instagram-post.html
+
+**Roy Cooper thinks Republicans can be brought on board with climate action.**\
+`The outgoing North Carolina governor said that making the business case is key to building political coalitions that can reduce emissions.`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/roy-cooper-thinks-republicans-can-be-brought-on-board-with-climate-action
+
+**Biden, on ‘The View’ Calls Trump a ‘Loser’ Who Lacks ‘Redeeming Value’**\
+`President Biden became the first sitting president to appear live on “The View.” He said he was “at peace” with his decision not to run again.`\
+https://nytimes.com/2024/09/25/us/politics/biden-the-view.html
+
 **Israel’s military chief says ground operations are possible in Lebanon.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/israels-military-chief-says-ground-operations-are-possible-in-lebanon
