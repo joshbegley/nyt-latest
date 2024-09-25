@@ -1,3 +1,7 @@
+**Aces complete sweep of Storm, will face Liberty in WNBA semifinals**\
+`Plum led the way with 29, making her first six baskets two days after she missed her first six.`\
+https://nytimes.com/athletic/5792855/2024/09/24/aces-storm-wnba-playoffs-sweep/
+
 **Rowdy Tellez DFA'd, 4 plate appearances away from $200K bonus**\
 `Through 383 at bats in 2024, Tellez slashed .243/.299/.392 with 13 home runs and 56 RBIs.`\
 https://nytimes.com/athletic/5792685/2024/09/24/rowdy-tellez-200k-bonus/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5792443/2024/09/24/acc-basketball-schedule-release/
 **Giants president Farhan Zaidi acknowledges his job uncertainty**\
 `Zaidi also spoke about where several players stand heading into the offseason, including Blake Snell, Marco Luciano and Bryce Eldridge.`\
 https://nytimes.com/athletic/5792661/2024/09/24/farhan-zaidi-sf-giants-uncertainty/
-
-**Orioles clinch second consecutive postseason berth with win over Yankees, Twins loss**\
-`The Orioles are still five games behind the Yankees for the division crown. `\
-https://nytimes.com/athletic/5792680/2024/09/24/orioles-clinch-postseason-berth/
 
