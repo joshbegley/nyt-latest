@@ -1,3 +1,15 @@
+**Endrick, Modric, change of system? How Madrid could replace Mbappe for the derby**\
+`Madrid have lost Mbappe to injury for three weeks, but there's a number of ways they could shake up their line-up`\
+https://nytimes.com/athletic/5793881/2024/09/25/mbappe-injury-real-madrid-replacements/
+
+**Kentucky Sheriff Accused of Fatally Shooting Judge Pleads Not Guilty**\
+`Sheriff Shawn Stines made his first appearance in court as a defendant in the case that has shaken the small rural community of Letcher County, Ky.`\
+https://nytimes.com/2024/09/25/us/kentucky-sheriff-judge-shooting.html
+
+**Sabres stock watch: Risers, fallers and question marks through 3 preseason games**\
+`Which players have helped themselves the most in training camp and preseason to this point? Who still has more to prove?`\
+https://nytimes.com/athletic/5793856/2024/09/25/sabres-stock-risers-fallers-preseason/
+
 **Giving Prisoners a Second Chance**\
 `Responses to a guest essay by a prisoner in New York. Also: President Biden’s leadership; pressure on Israel; the Trump Effect; music in restaurants.`\
 https://nytimes.com/2024/09/25/opinion/prisoners-second-chance.html
