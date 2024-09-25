@@ -1,3 +1,7 @@
+**MLB's top 20 breakout players in 2024: Skubal tops list, Skenes not far behind**\
+`Here are 20 standouts who turned their potential into production in 2024 and made the biggest jumps among major-league players.`\
+https://nytimes.com/athletic/5789472/2024/09/25/mlb-breakout-players-skubal-skenes-chourio-2024/
+
 **When Computers Go Dark**\
 `A routine software update by a security company crashed millions of computers around the world. The chaos was telling.`\
 https://nytimes.com/2024/09/25/briefing/crowdstrike-technology-security.html
