@@ -1,3 +1,7 @@
+**Cubs call up top outfield prospect Kevin Alcántara to make his debut in Philadelphia**\
+`The Cubs believe that Alcántara has some of the best upside of any of their prospects.`\
+https://nytimes.com/athletic/5795031/2024/09/25/cubs-promote-kevin-alcantara-mlb-debut/
+
 **Hezbollah Targets Tel Aviv as Israel Moves Forces Toward Lebanon**\
 `A top Israeli military official hinted to soldiers of a possible ground invasion as the United States and France drafted a cease-fire proposal to try to stave off a broader conflict.`\
 https://nytimes.com/2024/09/25/world/middleeast/israel-hezbollah-lebanon.html
