@@ -1,3 +1,7 @@
+**Study Finds Climate Change Doubled Likelihood of Recent European Floods**\
+`Storm Boris dumped record amounts of rain over Central and Eastern Europe this month. A new study found climate change made the deluge more likely.`\
+https://nytimes.com/2024/09/24/climate/climate-change-europe-floods-boris.html
+
 **Trump Is Briefed on Iranian Assassination Threats**\
 `U.S. intelligence agencies had previously tracked a potential Iranian assassination plot. The Trump campaign said in a statement that the threat is now heightened.`\
 https://nytimes.com/2024/09/24/us/politics/trump-iran-threats.html

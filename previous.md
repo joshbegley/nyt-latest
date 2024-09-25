@@ -1,3 +1,7 @@
+**Study Finds Climate Change Doubled Likelihood of Recent European Floods**\
+`Storm Boris dumped record amounts of rain over Central and Eastern Europe this month. A new study found climate change made the deluge more likely.`\
+https://nytimes.com/2024/09/24/climate/climate-change-europe-floods-boris.html
+
 **Trump Is Briefed on Iranian Assassination Threats**\
 `U.S. intelligence agencies had previously tracked a potential Iranian assassination plot. The Trump campaign said in a statement that the threat is now heightened.`\
 https://nytimes.com/2024/09/24/us/politics/trump-iran-threats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/style/paul-simon-new-york-soho-sessions.html
 **Chemical Leak From Rail Yard Near Cincinnati Prompts Evacuations**\
 `A train car in Whitewater Township, Ohio, was discovered to be leaking styrene, which is used to make plastic and fiberglass and is highly flammable.`\
 https://nytimes.com/2024/09/24/us/ohio-train-chemical-leak.html
-
-**Kawhi Leonard undergoes knee procedure in May, will be held out of drills to start training camp**\
-`The franchise said Tuesday Leonard will be limited to strengthening his knee to start Clippers training camp.`\
-https://nytimes.com/athletic/5792418/2024/09/24/clippers-kawhi-leonard-knee-procedure/
 
