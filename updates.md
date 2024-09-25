@@ -1,3 +1,7 @@
+**Trump Golf Course Suspect Is Charged With Attempted Assassination**\
+`The new federal indictment in Florida comes on top of two gun charges against Ryan W. Routh, an itinerant contractor with an extensive criminal record.`\
+https://nytimes.com/2024/09/24/us/politics/trump-attempted-assassination-charges.html
+
 **Alex Jones’s Infowars Will Be Auctioned Off to Pay Sandy Hook Families**\
 `A sale of the Infowars website and other property is set for November, and could determine the conspiracy theorist’s fate as a broadcaster.`\
 https://nytimes.com/2024/09/24/us/politics/alex-jones-infowars-auction.html
