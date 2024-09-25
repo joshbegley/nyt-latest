@@ -1,3 +1,7 @@
+**Popcast: A Word With John Summit**\
+`The dance music superstar and former accountant speaks on the return of EDM and his rise, from underground parties to headlining Madison Square Garden.`\
+https://nytimes.com/2024/09/25/arts/music/john-summit-interview-popcast.html
+
 **She Found a Home in Music. Now She’s the Composer for the King.**\
 `Errollyn Wallen, a Belize-born artist who has been named master of music by King Charles, discusses music as an escape, confronting racism and living by the sea.`\
 https://nytimes.com/2024/09/25/arts/errollyn-wallen-composer-for-king-charles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791011/2024/09/25/new-era-nfl-helmet-hats/
 **Cincinnati Reds' Jonathan India shares frustrations**\
 `"I want to win. Everyone wants to win. That’s the bottom line. ... There are certain things that I think should happen," he said.`\
 https://nytimes.com/athletic/5793690/2024/09/25/jonathan-india-cincinnati-reds-disappointed-change/
-
-**Michael McDowell on perseverance, data and winding down with Front Row: 12 Questions**\
-`Michael McDowell talks about his early adoption of advanced data, his final races with Front Row Motorsports and much more.`\
-https://nytimes.com/athletic/5790639/2024/09/25/michael-mcdowell-nascar-front-row-12-questions/
 
