@@ -1,3 +1,15 @@
+**A Wisconsin Mayor Took Issue With a Ballot Drop Box Decision, So He Took the Drop Box**\
+`Mayor Doug Diny of Wausau, Wis., said the City Council should have been consulted before the installation. The Wisconsin Supreme Court had said authority rested with the city clerk.`\
+https://nytimes.com/2024/09/25/us/politics/wisconsin-mayor-ballot-box.html
+
+**African leaders push for permanent Security Council seats, saying 1.4 billion people are not represented.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/african-leaders-push-for-permanent-security-council-seats-saying-1-4-billion-people-are-not-represented
+
+**In Florida’s Big Bend, Preparing Wearily for the Third Hurricane in 13 Months**\
+`Hurricane Helene is forecast to be much larger and stronger than other recent storms, with up to 18 feet of storm surge expected along the marshy coastline south of Tallahassee.`\
+https://nytimes.com/2024/09/25/us/in-floridas-big-bend-preparing-wearily-for-the-third-hurricane-in-13-months.html
+
 **The Nation’s Politics Are Dramatic. Now Its Dramas Are Political.**\
 `For the second year in a row, a play about the Constitution is the most-staged in America. And a farce about a terrible president is also pretty popular.`\
 https://nytimes.com/2024/09/25/theater/what-the-constitution-means-to-me-most-staged.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5794467/2024/09/25/justin-herbert-injury-update-cha
 **Making Tender Scones at Home Is Easier Than You Think**\
 `All you need is a bowl, fork and baking sheet for fresh, warm scones with crisp tops and soft centers.`\
 https://nytimes.com/2024/09/25/dining/how-to-make-scones.html
-
-**For the second time in two weeks, U.K.’s Starmer will discuss the Ukraine weapons dilemma.**\
-`On the agenda for Prime Minister Keir Starmer in New York: private talks with the U.S. over whether to allow Ukraine to use long range weapons in Russia, and Middle East tensions.`\
-https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/for-the-second-time-in-two-weeks-uks-starmer-will-discuss-the-ukraine-weapons-dilemma
-
-**Alex Bregman gets sendoff in Astros' final regular-season game at Minute Maid Park**\
-`Bregman, a free agent after this season, has spent his entire nine-year career in Houston. `\
-https://nytimes.com/athletic/5794390/2024/09/25/alex-bregman-sendoff-astros-final-home-game/
-
-**They Were Promised a Charming ‘Bridgerton’ Ball. They Got a Pole Dance.**\
-`A Detroit event evoked memories of Glasgow’s Willy Wonka debacle. We look at how they stack up against each other.`\
-https://nytimes.com/2024/09/25/us/bridgerton-ball-experience-detroit-scam-new.html
 
