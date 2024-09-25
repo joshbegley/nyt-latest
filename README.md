@@ -1,3 +1,7 @@
+**Lazio fans banned from Europa League match after police confiscate weapons**\
+`A group of around 60 Lazio fans have been banned from attending Thursday&#8217;s Europa League fixture against Dynamo Kyiv after having weapons confiscated by German police.`\
+https://nytimes.com/athletic/5793779/2024/09/25/lazio-fans-europa-league-police/
+
 **The Windup: Was that the play of the year?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5793838/2024/09/25/padres-clinch-triple-play-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/well/move/beginners-short-strength-workout.html
 **How Artist Liza Lou ‘Messes With Your Mind’**\
 `Her medium is the tiny seed bead. Her canvas ranges from a 35-foot-long mobile home to the chauvinist history of Abstract Expressionism.`\
 https://nytimes.com/2024/09/25/arts/design/liza-lou-art-brooklyn-museum-beads.html
-
-**A Beginner’s Guide to the Weight Room**\
-`Lifting at your local gym can be intimidating. Here’s how to get started.`\
-https://nytimes.com/2024/09/25/well/move/beginners-weights-exercise.html
 
