@@ -1,3 +1,19 @@
+**New York Liberty sweep Atlanta Dream, advance to WNBA semifinals**\
+`New York awaits the winner of the Aces and Seattle Storm second-round series, which tips off at 9:30 p.m. ET on Tuesday. `\
+https://nytimes.com/athletic/5792609/2024/09/24/new-york-liberty-advance-wnba-semifinals/
+
+**Review: What’s Eating Trump? The Singing ‘Ghost of John McCain’**\
+`The former senator haunts the former president, or vice versa, in this sophomoric musical satire.`\
+https://nytimes.com/2024/09/24/theater/ghost-of-john-mccain-review-trump.html
+
+**Brio**\
+`Peter Gordon’s puzzle comes with surround sound.`\
+https://nytimes.com/2024/09/24/crosswords/daily-puzzle-2024-09-25.html
+
+**Leadership Failures Helped Lead to FAFSA Debacle, Watchdog Finds**\
+`Two reports by the Government Accountability Office found that mismanagement and wildly unrealistic projections derailed the student aid application process this year.`\
+https://nytimes.com/2024/09/24/us/politics/watchdog-faults-leadership-fafsa-debacle.html
+
 **Dodgers call up flamethrower Edgardo Henriquez**\
 `Henriquez’s average fastball this season is 99.7 mph, including a pitch that was tracked at a reported 104 mph while with Double-A Tulsa.`\
 https://nytimes.com/athletic/5792512/2024/09/24/dodgers-call-up-flamethrower-edgardo-henriquez/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/24/us/politics/bernie-moreno-women-haley.html
 **What Is Parkinson’s Disease?**\
 `Brett Favre announced his diagnosis on Tuesday. Here’s what we know about the disease and its relationship to head injuries.`\
 https://nytimes.com/article/parkinsons-disease-head-injury.html
-
-**Climber Dies After Fall at Devils Tower in Wyoming, Park Service Says**\
-`A 21-year-old rock climber from Wisconsin was descending the national monument when he fell, officials said.`\
-https://nytimes.com/2024/09/24/us/devils-tower-climber-death.html
-
-**Why Nikolay Kulemin is attempting a comeback 7 years after his last NHL game**\
-`Just as family concerns drove Kulemin's decision to leave the NHL, it is another family development that has put him on this path.`\
-https://nytimes.com/athletic/5792203/2024/09/24/nikolay-kulemin-nhl-comeback-senators/
-
-**Missouri Man Executed After Long Fight for Exoneration**\
-`Marcellus Williams, who was convicted of a 1998 murder in suburban St. Louis, maintained he was innocent. But the courts and the governor were not persuaded.`\
-https://nytimes.com/2024/09/24/us/marcellus-williams-execution-missouri.html
-
-**Buckley: Celtics begin title defense with a lot of questions ... and lots of lint to flick**\
-`The champs made sure to have fun at media day, but Brad Stevens' message was well-crafted and blunt: These Celtics have won nothing.`\
-https://nytimes.com/athletic/5792192/2024/09/24/boston-celtics-jayson-tatum-jaylen-brown/
 
