@@ -1,8 +1,12 @@
+**Rivian’s CEO says electric vehicles shouldn’t be a partisan issue.**\
+`By Jack Ewing`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/rivians-ceo-says-electric-vehicles-shouldnt-be-a-partisan-issue
+
 **What We Know About Hezbollah’s Military Capability**\
 `The Iran-backed militants have perhaps the largest arsenal of any armed group in the world, excluding governments, experts say.`\
 https://nytimes.com/2024/09/25/world/middleeast/hezbollah-military-capability.html
 
-**Rangers get good news on Panarin injury, but Lindgren week-to-week: Who could fill the hole on D?**\
+**Rangers get good news on Panarin injury, but Lindgren week-to-week**\
 `Lindgren, whose physical style at 6-foot often leaves him battered, plays primarily with Adam Fox, New York's top defenseman.`\
 https://nytimes.com/athletic/5794007/2024/09/25/rangers-panarin-lindgren-injuries/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5793856/2024/09/25/sabres-stock-risers-fallers-pres
 **Giving Prisoners a Second Chance**\
 `Responses to a guest essay by a prisoner in New York. Also: President Biden’s leadership; pressure on Israel; the Trump Effect; music in restaurants.`\
 https://nytimes.com/2024/09/25/opinion/prisoners-second-chance.html
-
-**Yankees' Cortes to get MRI on his elbow**\
-`The 29-year-old pitcher has been feeling discomfort in his elbow for the past few days.`\
-https://nytimes.com/athletic/5793958/2024/09/25/yankees-nestor-cortes-mri-postseason/
 
