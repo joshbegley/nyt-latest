@@ -1,3 +1,15 @@
+**Astros clinch AL West for 4th straight year**\
+`The Houston Astros are inevitable.`\
+https://nytimes.com/athletic/5792692/2024/09/24/houston-astros-clinch-al-west-for-4th-straight-year/
+
+**Mets look sloppy in dropping critical series opener to Braves**\
+`The task gets no easier for the Mets, who are slated to face Cy Young frontrunner Chris Sale next, weather permitting.`\
+https://nytimes.com/athletic/5792725/2024/09/24/mets-sloppy-wild-card-braves/
+
+**Giants president Farhan Zaidi acknowledges his job uncertainty**\
+`Zaidi also spoke about where several players stand heading into the offseason, including Blake Snell, Marco Luciano and Bryce Eldridge.`\
+https://nytimes.com/athletic/5792661/2024/09/24/farhan-zaidi-sf-giants-uncertainty/
+
 **ACC's 2024-25 men’s basketball schedule highlights Duke, UNC, 3 new members**\
 `The ACC released its 2024-25 men’s basketball schedule on Tuesday with a new 18-team lineup.`\
 https://nytimes.com/athletic/5792443/2024/09/24/acc-basketball-schedule-release/

@@ -1,10 +1,18 @@
+**Astros clinch AL West for 4th straight year**\
+`The Houston Astros are inevitable.`\
+https://nytimes.com/athletic/5792692/2024/09/24/houston-astros-clinch-al-west-for-4th-straight-year/
+
+**Mets look sloppy in dropping critical series opener to Braves**\
+`The task gets no easier for the Mets, who are slated to face Cy Young frontrunner Chris Sale next, weather permitting.`\
+https://nytimes.com/athletic/5792725/2024/09/24/mets-sloppy-wild-card-braves/
+
 **ACC's 2024-25 men’s basketball schedule highlights Duke, UNC, 3 new members**\
 `The ACC released its 2024-25 men’s basketball schedule on Tuesday with a new 18-team lineup.`\
 https://nytimes.com/athletic/5792443/2024/09/24/acc-basketball-schedule-release/
 
 **Giants president Farhan Zaidi acknowledges his job uncertainty**\
-`PHOENIX — Farhan Zaidi leaned against a cinderblock wall in the tunnel outside the visiting clubhouse at Chase Field and took questions from four Giants beat reporters Tuesday afternoon.`\
-https://nytimes.com/athletic/5792661/2024/09/24/farhan-zaidi-san-francisco-giants-uncertainty/
+`Zaidi also spoke about where several players stand heading into the offseason, including Blake Snell, Marco Luciano and Bryce Eldridge.`\
+https://nytimes.com/athletic/5792661/2024/09/24/farhan-zaidi-sf-giants-uncertainty/
 
 **Orioles clinch second consecutive postseason berth with win over Yankees, Twins loss**\
 `The Orioles are still in a neck-and-neck race for the division crown with the Yankees.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5792609/2024/09/24/new-york-liberty-advance-wnba-se
 **Review: What’s Eating Trump? The Singing ‘Ghost of John McCain’**\
 `The former senator haunts the former president, or vice versa, in this sophomoric musical satire.`\
 https://nytimes.com/2024/09/24/theater/ghost-of-john-mccain-review-trump.html
-
-**Brio**\
-`Peter Gordon’s puzzle comes with surround sound.`\
-https://nytimes.com/2024/09/24/crosswords/daily-puzzle-2024-09-25.html
-
-**Leadership Failures Helped Lead to FAFSA Debacle, Watchdog Finds**\
-`Two reports by the Government Accountability Office found that mismanagement and wildly unrealistic projections derailed the student aid application process this year.`\
-https://nytimes.com/2024/09/24/us/politics/watchdog-faults-leadership-fafsa-debacle.html
 
