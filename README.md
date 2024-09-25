@@ -1,3 +1,7 @@
+**What makes Gabriel Eliasson, hockey's meanest prospect, tick? His critics**\
+`In 36 games at Sweden's J20 level last year, Gabriel Eliasson had 103 penalty minutes. He also had plenty of NHL interest.`\
+https://nytimes.com/athletic/5767426/2024/09/25/senators-gabriel-eliasson-meanest-prospect/
+
 **The long-range weapons Ukraine wants to use on Russia, explained.**\
 `The United States and its allies are once again considering expanding the capabilities they provide to Ukraine in its fight against Russia’s invasion.`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/the-long-range-weapons-ukraine-wants-to-use-on-russia-explained
@@ -11,7 +15,7 @@ https://nytimes.com/live/2024/09/25/us/harris-trump-election/kamala-harris-is-lo
 https://nytimes.com/2024/09/25/world/europe/spain-brad-pitt.html
 
 **One Person Killed in Bus Hijacking in Los Angeles**\
-`A person with a gun hijacked a bus early Wednesday while several passengers were onboard, the police said. The hijacker was taken into custody.`\
+`A person with a gun hijacked a bus early Wednesday while several passengers were onboard, the police said. A suspect was taken into custody.`\
 https://nytimes.com/2024/09/25/us/bus-hijacked-los-angeles-california.html
 
 **Inside a Trump Ad Ridiculing Harris Over Taxpayer-Paid Gender Transition Surgery**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5789111/2024/09/25/pistons-stockx-jersey-patch-spon
 **My Parents Are Cash-Strapped. Why Won’t They Sell Some of Their Land?**\
 `Unable to treat her parents as often as she would like, a reader is unsure how to encourage them to take a big step toward financial self-reliance.`\
 https://nytimes.com/2024/09/25/style/parents-finances-inheritance.html
-
-**What Is Zelensky’s ‘Victory Plan’ for Ukraine’s War With Russia?**\
-`The Ukrainian leader aims to present President Biden with a strategy to improve his country’s position ahead of any peace negotiations with Russia.`\
-https://nytimes.com/2024/09/25/world/europe/zelensky-victory-plan-ukraine-russia-putin.html
 
