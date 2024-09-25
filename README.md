@@ -1,3 +1,7 @@
+**Gleyber Torres explains mistake that helped hold off clinching AL East**\
+`The Yankees had a chance on Tuesday to render the remaining five games meaningless by clinching the AL East, but failed to do so.`\
+https://nytimes.com/athletic/5792793/2024/09/25/yankees-gleyber-torres-explains-mistake/
+
 **Wednesday Briefing: The U.N. General Assembly Convenes**\
 `Plus, news outlets experiment with WhatsApp.`\
 https://nytimes.com/2024/09/25/briefing/un-general-assembly-hezbollah-israel-lebanon-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791430/2024/09/25/mosquera-injury-centre-backs-pla
 **Leeds's 53,000-seat Elland Road expansion plans: How? Why? And when?**\
 `Leeds United have announced plans to expand Elland Road to 53,000 seats — this is how they will do it`\
 https://nytimes.com/athletic/5788577/2024/09/25/leeds-united-elland-road-expansion-analysis/
-
-**Julen Lopetegui must get his players to gel - too many aren't**\
-`What's going wrong at West Ham?`\
-https://nytimes.com/athletic/5788007/2024/09/25/west-ham-players-not-gelling/
 
