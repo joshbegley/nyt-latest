@@ -1,3 +1,15 @@
+**The president of Guyana, a nation with lush rainforests and rich oil deposits, grapples with the effects of pollution.**\
+`By Manuela Andreoni`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/the-president-of-guyana-a-nation-with-lush-rainforests-and-rich-oil-deposits-grapples-with-the-effects-of-pollution
+
+**Behind OpenAI’s Audacious Plan to Make A.I. Flow Like Electricity**\
+`Sam Altman, OpenAI’s chief executive, is talking to the United Arab Emirates, Asian chipmakers and U.S. officials to expand the computing power needed to build artificial intelligence.`\
+https://nytimes.com/2024/09/25/business/openai-plan-electricity.html
+
+**Why Is OpenAI Trying to Raise So Much Money?**\
+`The San Francisco A.I. start-up believes there is not enough computing power on Earth to build the artificial intelligence it wants to create.`\
+https://nytimes.com/2024/09/25/technology/openai-raise-money.html
+
 **Lebanon’s Growing Civilian Death Toll Includes Children and Rescue Workers**\
 `Lebanese organizations have begun to identify children, humanitarians and journalists among a growing number of civilians killed in Israel’s intense bombardment.`\
 https://nytimes.com/2024/09/25/world/middleeast/lebanon-civilian-death-toll-israel.html

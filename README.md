@@ -1,3 +1,7 @@
+**City midfielder Roord set for WSL return eight months after ACL injury**\
+`Manchester City manager Gareth Taylor says midfielder Jill Roord will return to the squad for Sunday&#8217;s Women&#8217;s Super League (WSL) match against Brighton and Hove Albion, eight months on from suffering an anterior cruciate ligament (ACL) injury.`\
+https://nytimes.com/athletic/5793882/2024/09/25/jill-roord-injury-return/
+
 **The president of Guyana, a nation with lush rainforests and rich oil deposits, grapples with the effects of pollution.**\
 `By Manuela Andreoni`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/the-president-of-guyana-a-nation-with-lush-rainforests-and-rich-oil-deposits-grapples-with-the-effects-of-pollution
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5793838/2024/09/25/padres-clinch-triple-play-the-wi
 **Can companies make climate progress while selling more stuff?**\
 `The chief executives of Ikea and Patagonia both want to lower humanity’s carbon output, but they have different approaches to doing it.`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/can-companies-make-climate-progress-while-selling-more-stuff
-
-**Donald Trump Cut Ties to Some Online Fund-Raisers**\
-`The campaign also reduced the commission retained by the remaining vendors, as the former president falls behind Vice President Kamala Harris in the cash race.`\
-https://nytimes.com/2024/09/25/us/politics/trump-online-fund-raisers.html
 
