@@ -1,3 +1,7 @@
+**Israel’s military chief says ground operations are possible in Lebanon.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/israels-military-chief-says-ground-operations-are-possible-in-lebanon
+
 **Los Angeles Bus Hijacked at Gunpoint**\
 `The person suspected of hijacking a bus which killed one person, was taken into custody after an hourlong pursuit by the Los Angeles Police Department early Wednesday morning.`\
 https://nytimes.com/video/us/100000009719308/los-angeles-bus-hijack.html
