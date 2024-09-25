@@ -1,3 +1,23 @@
+**She Found a Home in Music. Now She’s the Composer for the King.**\
+`Errollyn Wallen, a Belize-born artist who has been named master of music by King Charles, discusses music as an escape, confronting racism and living by the sea.`\
+https://nytimes.com/2024/09/25/arts/errollyn-wallen-composer-for-king-charles.html
+
+**How to Use Up an Entire Jar of Sun-Dried Tomatoes**\
+`Make use of that savory oil with this brilliant pasta recipe.`\
+https://nytimes.com/2024/09/25/dining/how-to-use-up-an-entire-jar-of-sun-dried-tomatoes.html
+
+**This Cheese Stood Alone for 3,600 Years**\
+`The cheese was dug up with mummified human remains in the Xinjiang region of China and offers insights into the origins of the dairy product known as kefir.`\
+https://nytimes.com/2024/09/25/science/oldest-cheese-kefir-xinjiang.html
+
+**A 25-Minute Strength Workout for Beginners**\
+`New to the weight room? This routine is for you.`\
+https://nytimes.com/2024/09/25/well/beginners-short-strength-workout.html
+
+**How Artist Liza Lou ‘Messes With Your Mind’**\
+`Her medium is the tiny seed bead. Her canvas ranges from a 35-foot-long mobile home to the chauvinist history of Abstract Expressionism.`\
+https://nytimes.com/2024/09/25/arts/design/liza-lou-art-brooklyn-museum-beads.html
+
 **A Beginner’s Guide to the Weight Room**\
 `Lifting at your local gym can be intimidating. Here’s how to get started.`\
 https://nytimes.com/2024/09/25/well/move/beginners-weights-exercise.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5793690/2024/09/25/jonathan-india-cincinnati-reds-d
 **Michael McDowell on perseverance, data and winding down with Front Row: 12 Questions**\
 `Michael McDowell talks about his early adoption of advanced data, his final races with Front Row Motorsports and much more.`\
 https://nytimes.com/athletic/5790639/2024/09/25/michael-mcdowell-nascar-front-row-12-questions/
-
-**Kelce 'not worried' about early struggles this season**\
-`"As long as we're winning football games, we're good to go, baby," Travis Kelce said.`\
-https://nytimes.com/athletic/5793563/2024/09/25/travis-kelce-struggles-chiefs-nfl/
-
-**Scoop City: 4 most impactful injuries so far**\
-`A Week 4 injury report, plus a look at the 49ers defensive struggles and why the Browns won't bench Deshaun Watson anytime soon.`\
-https://nytimes.com/athletic/5793674/2024/09/25/scoop-city-4-most-impactful-injuries-so-far/
-
-**As School Threats Proliferate, More Than 700 Students Are Arrested**\
-`The number of threats after a Georgia school shooting this month is much higher than usual, many officials said. In response, some have cracked down with arrests and detention for children as young as 10.`\
-https://nytimes.com/2024/09/25/us/school-violence-threats-student-arrests.html
-
-**How the Blue Jackets' long-maligned power play could be different in 2024-25**\
-`The Blue Jackets power play has been a running joke for seven seasons now but is set to look radically different this year.`\
-https://nytimes.com/athletic/5792431/2024/09/25/blue-jackets-power-play-nhl-2024-25/
-
-**In Silicon Valley, a Rogue Plan to Alter the Climate**\
-`Some restless entrepreneurs are releasing pollutants in the sky to try to cool the planet.`\
-https://nytimes.com/2024/09/25/climate/rogue-solar-geoengineering.html
 

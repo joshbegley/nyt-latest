@@ -1,3 +1,23 @@
+**She Found a Home in Music. Now She’s the Composer for the King.**\
+`Errollyn Wallen, a Belize-born artist who has been named master of music by King Charles, discusses music as an escape, confronting racism and living by the sea.`\
+https://nytimes.com/2024/09/25/arts/errollyn-wallen-composer-for-king-charles.html
+
+**How to Use Up an Entire Jar of Sun-Dried Tomatoes**\
+`Make use of that savory oil with this brilliant pasta recipe.`\
+https://nytimes.com/2024/09/25/dining/how-to-use-up-an-entire-jar-of-sun-dried-tomatoes.html
+
+**This Cheese Stood Alone for 3,600 Years**\
+`The cheese was dug up with mummified human remains in the Xinjiang region of China and offers insights into the origins of the dairy product known as kefir.`\
+https://nytimes.com/2024/09/25/science/oldest-cheese-kefir-xinjiang.html
+
+**A 25-Minute Strength Workout for Beginners**\
+`New to the weight room? This routine is for you.`\
+https://nytimes.com/2024/09/25/well/beginners-short-strength-workout.html
+
+**How Artist Liza Lou ‘Messes With Your Mind’**\
+`Her medium is the tiny seed bead. Her canvas ranges from a 35-foot-long mobile home to the chauvinist history of Abstract Expressionism.`\
+https://nytimes.com/2024/09/25/arts/design/liza-lou-art-brooklyn-museum-beads.html
+
 **A Beginner’s Guide to the Weight Room**\
 `Lifting at your local gym can be intimidating. Here’s how to get started.`\
 https://nytimes.com/2024/09/25/well/move/beginners-weights-exercise.html
