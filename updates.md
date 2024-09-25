@@ -1,3 +1,19 @@
+**From Drake in pink to 'Blokecore': How football shirts became fashionable**\
+`Something about the team jerseys of the '90s and early noughties has managed to capture the imagination of younger generations`\
+https://nytimes.com/athletic/5763011/2024/09/25/football-shirts-boom-fashion-retro/
+
+**Izzy Christiansen: How I see football**\
+`England international turned pundit Christiansen on what she looks for when analysing a match and how her view of the game shapes her work`\
+https://nytimes.com/athletic/5779792/2024/09/25/izzy-christiansen-how-i-see-football/
+
+**Is manager and player behaviour on the pitch out of hand? - The Debate**\
+`Feigning injury, 'dark arts', shouting at officials, throwing a ball at opponents – has on-field behaviour gone too far? Two writers discuss`\
+https://nytimes.com/athletic/5790426/2024/09/25/manager-player-behaviour-dark-arts/
+
+**Taiwan and U.S. Work to Counter China’s Drone Dominance**\
+`Officials hope that Taiwan can become a bigger player in the supply chain for drones, a move that would also help blunt any threats posed to the island by China.`\
+https://nytimes.com/2024/09/25/world/asia/us-taiwan-drones-china.html
+
 **A Litmus Test in Japan: Can Spouses Have Different Surnames?**\
 `The nine candidates vying to become prime minister have been differentiated by their stances on a law requiring married couples to share a family name.`\
 https://nytimes.com/2024/09/25/world/asia/japan-election-surnames.html
