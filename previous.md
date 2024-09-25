@@ -1,3 +1,7 @@
+**President Biden’s climate adviser: The U.S. will meet its 2030 goals.**\
+`By Coral Davenport`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/president-bidens-climate-adviser-the-us-will-meet-its-2030-goals
+
 **What makes Gabriel Eliasson, hockey's meanest prospect, tick? His critics**\
 `In 36 games at Sweden's J20 level last year, Gabriel Eliasson had 103 penalty minutes. He also had plenty of NHL interest.`\
 https://nytimes.com/athletic/5767426/2024/09/25/senators-gabriel-eliasson-meanest-prospect/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/opinion/kamala-harris-faith.html
 **Pistons partner with StockX sneaker resale brand as jersey patch sponsor**\
 `After three seasons with United Wholesale Mortgage as the Pistons' jersey patch sponsor, the team will have a new company on their uniforms.`\
 https://nytimes.com/athletic/5789111/2024/09/25/pistons-stockx-jersey-patch-sponsor/
-
-**My Parents Are Cash-Strapped. Why Won’t They Sell Some of Their Land?**\
-`Unable to treat her parents as often as she would like, a reader is unsure how to encourage them to take a big step toward financial self-reliance.`\
-https://nytimes.com/2024/09/25/style/parents-finances-inheritance.html
 
