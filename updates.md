@@ -1,3 +1,15 @@
+**Muhammad Yunus, Bangladesh’s interim leader, calls for global reforms.**\
+`By Anupreeta Das`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/muhammad-yunus-bangladeshs-interim-leader-calls-for-global-reforms
+
+**Ohtani's 50th home run ball up for auction**\
+`Goldin will auction off the ball beginning at noon ET Friday, with the opening bid starting at $500,000.`\
+https://nytimes.com/athletic/5794015/2024/09/25/shohei-ohtani-50-50-home-run-ball-auction/
+
+**Roundabout, With 3 Broadway Theaters, Finds Leader in California**\
+`Christopher Ashley, the artistic director of La Jolla Playhouse and a Tony winner for “Come From Away,” will run the large New York nonprofit.`\
+https://nytimes.com/2024/09/25/theater/roundabout-ashley.html
+
 **Brandeis President Steps Down Amid Budget Issues and Protests**\
 `The university has seen major drops in enrollment, even as the president invited students concerned about protests and antisemitism on other campuses to transfer.`\
 https://nytimes.com/2024/09/25/us/brandeis-university-president-resigns.html
