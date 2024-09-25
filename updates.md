@@ -1,3 +1,7 @@
+**Inside Harris’s Big Economic Pitch**\
+`The vice president is expected to deliver one of her most detailed addresses yet on the issue, as she seeks to strike a delicate political balance.`\
+https://nytimes.com/2024/09/25/business/dealbook/harris-trump-economy.html
+
 **Mbappe to miss three weeks with thigh injury, out of Madrid derby**\
 `Real Madrid forward Kylian Mbappe is to miss around three weeks of action with a thigh injury — including Sunday&#8217;s clash at rivals Atletico Madrid.`\
 https://nytimes.com/athletic/5793321/2024/09/25/kylian-mbappe-injury-real-madrid/
