@@ -1,3 +1,7 @@
+**Desi Lydic: Donald Trump ‘Really Knows How to Flatter a Lady’**\
+`The “Daily Show” host said the former president had been so unpopular with women that he was now trying to turn on “the old Trump charm.”`\
+https://nytimes.com/2024/09/25/arts/television/desi-lydic-trump-women.html
+
 **Train Car Spewing Chemical Triggers Evacuations in Ohio**\
 `A plume of highly flammable styrene shot out of the train car, filling the air in the area west of Cincinnati with an odor one resident described as burnt metal.`\
 https://nytimes.com/video/us/100000009718548/train-chemical-leak-ohio-styrene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/climate/carbon-reduction-strategies.html
 **Fantasy football stock watch: Braelon Allen's role grows, Zamir White's shrinks**\
 `Dane Martinez highlights three players on the rise, like Jets rookie Braelon Allen, and three players who are falling in fantasy football.`\
 https://nytimes.com/athletic/5791552/2024/09/25/fantasy-football-stock-watch-braelon-allens-role-grows-zamir-whites-shrinks/
-
-**Greenberg: They came to see history. Instead, they saw the White Sox win a game**\
-`Chicago fans booing the White Sox for winning? It was unusual, even for this wacky franchise. But that's what happened Tuesday night.`\
-https://nytimes.com/athletic/5792881/2024/09/25/chicago-white-sox-angels-comeback-win/
 
