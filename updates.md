@@ -1,3 +1,15 @@
+**Kamala Harris is looking to amplify her economic message.**\
+`By Jim Tankersley and Andrew Duehren`\
+https://nytimes.com/live/2024/09/25/us/harris-trump-election/kamala-harris-is-looking-to-amplify-her-economic-message
+
+**Online Scammers Posed as Brad Pitt to Get Cash, Spanish Police Say**\
+`The authorities in Spain said they had arrested five people who posed as the famous American actor online and swindled two women out of more than $350,000.`\
+https://nytimes.com/2024/09/25/world/europe/spain-brad-pitt.html
+
+**What Is Zelensky’s ‘Victory Plan’ for Ukraine’s War With Russia?**\
+`The Ukrainian leader aims to present President Biden with a strategy to improve his country’s position ahead of any peace negotiations with Russia.`\
+https://nytimes.com/2024/09/25/world/europe/zelensky-victory-plan-ukraine-russia-putin.html
+
 **One Person Killed in Bus Hijacking in Los Angeles**\
 `A person with a gun hijacked a bus early Wednesday while several passengers were onboard, the police said. The hijacker was taken into custody.`\
 https://nytimes.com/2024/09/25/us/bus-hijacked-los-angeles-california.html
