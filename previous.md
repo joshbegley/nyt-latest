@@ -1,4 +1,4 @@
-**Chelsea's 'B' team is the perfect place for Dewsbury-Hall right now**\
+**Chelsea's busy midweeks are the perfect opportunity for Kiernan Dewsbury-Hall right now**\
 `Kiernan Dewsbury-Hall was an expensive summer arrival but has not yet started in the Premier League`\
 https://nytimes.com/athletic/5792433/2024/09/25/kiernan-dewsbury-hall-chelsea-analysis/
 
