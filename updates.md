@@ -1,3 +1,11 @@
+**Notre Dame tops IU, MSU for 5-star Jalen Haralson**\
+`Haralson, the top-ranked recruit in the state of Indiana, is one of the biggest recruiting wins in the history of Notre Dame basketball.`\
+https://nytimes.com/athletic/5794971/2024/09/25/notre-dame-jalen-haralson-basketball-commitment/
+
+**Tell Us: How Is Political Advertising Affecting You?**\
+`Share your thoughts with the On Politics newsletter.`\
+https://nytimes.com/2024/09/25/us/political-advertising-callout.html
+
 **Woman Gets 18 Years for White Supremacist Plot to Shoot Power Stations**\
 `Sarah Clendaniel, 36, planned to destroy the power grid for the Baltimore region by shooting electrical substations, the authorities said. Her lawyers asked for 10 years, citing early trauma.`\
 https://nytimes.com/2024/09/25/us/neo-nazi-power-grid-attack-sentenced-baltimore.html
