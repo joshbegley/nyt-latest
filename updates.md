@@ -1,3 +1,11 @@
+**Rivian’s CEO says electric vehicles shouldn’t be a partisan issue.**\
+`By Jack Ewing`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/rivians-ceo-says-electric-vehicles-shouldnt-be-a-partisan-issue
+
+**Rangers get good news on Panarin injury, but Lindgren week-to-week**\
+`Lindgren, whose physical style at 6-foot often leaves him battered, plays primarily with Adam Fox, New York's top defenseman.`\
+https://nytimes.com/athletic/5794007/2024/09/25/rangers-panarin-lindgren-injuries/
+
 **What We Know About Hezbollah’s Military Capability**\
 `The Iran-backed militants have perhaps the largest arsenal of any armed group in the world, excluding governments, experts say.`\
 https://nytimes.com/2024/09/25/world/middleeast/hezbollah-military-capability.html
