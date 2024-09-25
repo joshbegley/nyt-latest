@@ -1,3 +1,7 @@
+**Inside a Trump Ad Ridiculing Harris Over Taxpayer-Paid Gender Transition Surgery**\
+`Portraying the vice president as a far-left radical, her opponent uses images of trans people as a cudgel.`\
+https://nytimes.com/2024/09/25/us/politics/trump-ad-anti-trans-harris.html
+
 **Manchester United's Labour conference pitch to regenerate land around 'placeholder' Old Trafford**\
 `Stand H14 has been home to the Old Trafford Regeneration project at the Labour Party conference this week`\
 https://nytimes.com/athletic/5792168/2024/09/25/manchester-united-labour-conference/
