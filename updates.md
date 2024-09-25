@@ -1,3 +1,7 @@
+**Barkley version 2.0 is exactly the type of player Emery loves at Villa**\
+`Ross Barkley featured against Wycombe in the Carabao Cup and helped Villa advance to the next round`\
+https://nytimes.com/athletic/5790440/2024/09/25/ross-barkley-aston-villa-analysis/
+
 **Cooper feels the heat from Leicester fans - the pressure is on to turn things around**\
 `Some Leicester fans chanted that their performance at Walsall was 'embarrassing' as the pressure increases on manager Cooper`\
 https://nytimes.com/athletic/5792328/2024/09/25/leicester-steve-copper-fans-walsall/
