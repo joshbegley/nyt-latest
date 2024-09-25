@@ -1,3 +1,7 @@
+**How the Blue Jackets' long-maligned power play could be different in 2024-25**\
+`The Blue Jackets power play has been a running joke for seven seasons now but is set to look radically different this year.`\
+https://nytimes.com/athletic/5792431/2024/09/25/blue-jackets-power-play-nhl-2024-25/
+
 **In Silicon Valley, a Rogue Plan to Alter the Climate**\
 `A pair of restless entrepreneurs are releasing pollutants in the sky to try to cool the planet.`\
 https://nytimes.com/2024/09/25/climate/rogue-solar-geoengineering.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767426/2024/09/25/senators-gabriel-eliasson-meanes
 **The long-range weapons Ukraine wants to use on Russia, explained.**\
 `The United States and its allies are once again considering expanding the capabilities they provide to Ukraine in its fight against Russia’s invasion.`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/the-long-range-weapons-ukraine-wants-to-use-on-russia-explained
-
-**Kamala Harris is looking to amplify her economic message.**\
-`By Jim Tankersley and Andrew Duehren`\
-https://nytimes.com/live/2024/09/25/us/harris-trump-election/kamala-harris-is-looking-to-amplify-her-economic-message
 
