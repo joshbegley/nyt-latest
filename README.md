@@ -1,3 +1,7 @@
+**‘Abandoned’: Officials say more must be done as war and famine rips Sudan apart.**\
+`By John Eligon and Ruth Maclean`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/abandoned-officials-say-more-must-be-done-as-war-and-famine-rips-sudan-apart
+
 **The U.S. is seeking a pause in the fighting in a bid to avert a wider war.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/us-cease-fire
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794015/2024/09/25/shohei-ohtani-50-50-home-run-bal
 **Roundabout, With 3 Broadway Theaters, Finds Leader in California**\
 `Christopher Ashley, the artistic director of La Jolla Playhouse and a Tony winner for “Come From Away,” will run the large New York nonprofit.`\
 https://nytimes.com/2024/09/25/theater/roundabout-ashley.html
-
-**Brandeis President Steps Down Amid Budget Issues and Protests**\
-`The university has seen major drops in enrollment, even as the president invited students concerned about protests and antisemitism on other campuses to transfer.`\
-https://nytimes.com/2024/09/25/us/brandeis-university-president-resigns.html
 
