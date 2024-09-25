@@ -1,3 +1,15 @@
+**What makes Gabriel Eliasson, hockey's meanest prospect, tick? His critics**\
+`In 36 games at Sweden's J20 level last year, Gabriel Eliasson had 103 penalty minutes. He also had plenty of NHL interest.`\
+https://nytimes.com/athletic/5767426/2024/09/25/senators-gabriel-eliasson-meanest-prospect/
+
+**The long-range weapons Ukraine wants to use on Russia, explained.**\
+`The United States and its allies are once again considering expanding the capabilities they provide to Ukraine in its fight against Russia’s invasion.`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/the-long-range-weapons-ukraine-wants-to-use-on-russia-explained
+
+**One Person Killed in Bus Hijacking in Los Angeles**\
+`A person with a gun hijacked a bus early Wednesday while several passengers were onboard, the police said. A suspect was taken into custody.`\
+https://nytimes.com/2024/09/25/us/bus-hijacked-los-angeles-california.html
+
 **Kamala Harris is looking to amplify her economic message.**\
 `By Jim Tankersley and Andrew Duehren`\
 https://nytimes.com/live/2024/09/25/us/harris-trump-election/kamala-harris-is-looking-to-amplify-her-economic-message
