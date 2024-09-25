@@ -1,3 +1,7 @@
+**Dodgers call up flamethrower Edgardo Henriquez**\
+`Henriquez’s average fastball this season is 99.7 mph, including a pitch that was tracked at a reported 104 mph while with Double-A Tulsa.`\
+https://nytimes.com/athletic/5792512/2024/09/24/dodgers-call-up-flamethrower-edgardo-henriquez/
+
 **Trump Golf Course Suspect Is Charged With Attempted Assassination**\
 `The new federal indictment in Florida comes on top of two gun charges against Ryan W. Routh, an itinerant contractor with an extensive criminal record.`\
 https://nytimes.com/2024/09/24/us/politics/trump-attempted-assassination-charges.html
