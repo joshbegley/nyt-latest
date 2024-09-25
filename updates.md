@@ -1,3 +1,7 @@
+**Popcast: A Word With John Summit**\
+`The dance music superstar and former accountant speaks on the return of EDM and his rise, from underground parties to headlining Madison Square Garden.`\
+https://nytimes.com/2024/09/25/arts/music/john-summit-interview-popcast.html
+
 **She Found a Home in Music. Now She’s the Composer for the King.**\
 `Errollyn Wallen, a Belize-born artist who has been named master of music by King Charles, discusses music as an escape, confronting racism and living by the sea.`\
 https://nytimes.com/2024/09/25/arts/errollyn-wallen-composer-for-king-charles.html
