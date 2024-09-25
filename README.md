@@ -1,3 +1,11 @@
+**Alex Jones’s Infowars Will Be Auctioned Off to Pay Sandy Hook Families**\
+`A sale of the Infowars website and other property is set for November, and could determine the conspiracy theorist’s fate as a broadcaster.`\
+https://nytimes.com/2024/09/24/us/politics/alex-jones-infowars-auction.html
+
+**Caitlin Clark says DiJonai Carrington foul 'wasn't intentional'**\
+`After Game 1, Clark said that getting poked in the eye didn't impact her performance.`\
+https://nytimes.com/athletic/5792209/2024/09/24/caitlin-clark-dijonai-carrington-eye-poke/
+
 **Bernie Moreno Under Fire Over Comments About Suburban Women**\
 `Mr. Moreno, a Republican running for Senate in Ohio, suggested that older women shouldn’t care about abortion because they were too old to have children, comments Nikki Haley pointedly criticized.`\
 https://nytimes.com/2024/09/24/us/politics/bernie-moreno-women-haley.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5792264/2024/09/24/sparks-curt-miller-part-ways/
 **Why Debunked Falsehoods About Haitian Migrants Gained Traction**\
 `The racist and inflammatory narrative spread on the backs of memes, greed, biases and news deserts.`\
 https://nytimes.com/2024/09/24/us/politics/haitian-migrants-disinformation.html
-
-**After hazardous waste history, Bay FC's new training site is 'available for re-use by the public'**\
-`Treasure Island has been the focus of community scrutiny due to its history of hazardous waste and alleged ineffective cleanup.`\
-https://nytimes.com/athletic/5791753/2024/09/24/bay-fc-training-facility-hazardous-waste/
-
-**Hezbollah Is Everyone’s Problem**\
-`The United States must help Israel defeat it.`\
-https://nytimes.com/2024/09/24/opinion/israel-lebanon-hezbollah.html
 
