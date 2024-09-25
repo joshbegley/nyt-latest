@@ -1,3 +1,7 @@
+**Brandeis President Steps Down Amid Budget Issues and Protests**\
+`The university has seen major drops in enrollment, even as the president invited students concerned about protests and antisemitism on other campuses to transfer.`\
+https://nytimes.com/2024/09/25/us/brandeis-university-president-resigns.html
+
 **Biden, on ‘The View,’ Calls Trump a ‘Loser’ Who Lacks ‘Redeeming Value’**\
 `President Biden became the first sitting president to appear live on “The View.” He said he was “at peace” with his decision not to run again.`\
 https://nytimes.com/2024/09/25/us/politics/biden-the-view.html

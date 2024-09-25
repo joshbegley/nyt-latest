@@ -1,3 +1,7 @@
+**Brandeis President Steps Down Amid Budget Issues and Protests**\
+`The university has seen major drops in enrollment, even as the president invited students concerned about protests and antisemitism on other campuses to transfer.`\
+https://nytimes.com/2024/09/25/us/brandeis-university-president-resigns.html
+
 **Meta Unveils New Virtual Reality Headset as It Pursues the Metaverse**\
 `At an event in Silicon Valley, Meta exhibited a range of products meant to blend the real world and virtual reality, with a healthy dose of A.I.`\
 https://nytimes.com/2024/09/25/technology/meta-products-artificial-intelligence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/theater/lina-majdalanie-rabih-mroue-middle-east.h
 **Mayor Adams Names New Schools Chancellor, as Chaos and Inquiries Swirl**\
 `The quick selection of Melissa Aviles-Ramos to lead the New York City school system seemed intended to quell a deepening crisis that has seen several top officials resign.`\
 https://nytimes.com/2024/09/25/nyregion/adams-david-banks-melissa-aviles-ramos.html
-
-**At 90, Jane Goodall still finds hope in the ‘indomitable human spirit.’**\
-`By Manuela Andreoni`\
-https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/at-90-jane-goodall-still-finds-hope-in-the-indomitable-human-spirit
 
