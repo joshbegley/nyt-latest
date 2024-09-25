@@ -1,3 +1,11 @@
+**Investigators Trace Former Police Commissioner’s Ties to Nightclubs**\
+`Police officers have been asked for communications that would show that rewards were offered for favorable treatment of night spots, said a person familiar with the investigation.`\
+https://nytimes.com/2024/09/25/nyregion/nypd-commissioner-night-clubs.html
+
+**Vikings great Tommy Kramer reveals dementia diagnosis**\
+`Kramer said he decided to go public after Brett Favre shared Tuesday he was diagnosed with Parkinson's disease.`\
+https://nytimes.com/athletic/5794839/2024/09/25/vikings-tommy-kramer-dementia-diagnosis/
+
 **Notre Dame tops IU, MSU for 5-star Jalen Haralson**\
 `Haralson, the top-ranked recruit in the state of Indiana, is one of the biggest recruiting wins in the history of Notre Dame basketball.`\
 https://nytimes.com/athletic/5794971/2024/09/25/notre-dame-jalen-haralson-basketball-commitment/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/weather/tallahassee-hurricane-helene.html
 **Harris’s Economic Pitch: Capitalism for the Middle Class**\
 `In a major address in Pittsburgh, the vice president praised business and used technical language to court economy-minded voters skeptical of big government`\
 https://nytimes.com/2024/09/25/business/harriss-economic-pitch-capitalism-for-the-middle-class.html
-
-**Democrats and Republicans Press China on Abuse of Muslim Minority**\
-`Both parties are focused on oppression of China’s Uyghur minority but use different tactics in pushing the Biden administration to do more.`\
-https://nytimes.com/2024/09/25/us/politics/congress-uyghurs-china.html
-
-**Trump’s Dreamworld Way Out of the Abortion Issue**\
-`He simply hopes women will stop thinking about it.`\
-https://nytimes.com/live/2024/09/25/opinion/thepoint/trump-abortion-dreamworld-protector
 
