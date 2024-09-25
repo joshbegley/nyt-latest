@@ -10,7 +10,7 @@ https://nytimes.com/2024/09/25/briefing/un-general-assembly-hezbollah-israel-leb
 `Tottenham have regularly been among the favourites for the Europa League, but haven't got anywhere near winning it — why?`\
 https://nytimes.com/athletic/5778083/2024/09/25/tottenham-europa-league-record/
 
-**Red Sox still fighting for postseason, pick up 'gratifying' extra-innings win**\
+**Still in the wild-card hunt, Red Sox pick up 'gratifying' extra-inning win**\
 `The odds remain long, but the Red Sox are still in it. “It’s just a testament to who we are as a group that we’re never out of a fight.”`\
 https://nytimes.com/athletic/5792874/2024/09/25/red-sox-postseason-race/
 

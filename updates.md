@@ -1,3 +1,7 @@
+**Still in the wild-card hunt, Red Sox pick up 'gratifying' extra-inning win**\
+`The odds remain long, but the Red Sox are still in it. “It’s just a testament to who we are as a group that we’re never out of a fight.”`\
+https://nytimes.com/athletic/5792874/2024/09/25/red-sox-postseason-race/
+
 **Gleyber Torres explains mistake that helped hold off clinching AL East**\
 `The Yankees had a chance on Tuesday to render the remaining five games meaningless by clinching the AL East, but failed to do so.`\
 https://nytimes.com/athletic/5792793/2024/09/25/yankees-gleyber-torres-explains-mistake/
