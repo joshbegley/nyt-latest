@@ -1,3 +1,7 @@
+**Joe Espada's even hand guides Astros to improbable AL West title**\
+`"To go from 10 games out of it to winning the division, it’s pretty awesome,” third baseman Alex Bregman said.`\
+https://nytimes.com/athletic/5793052/2024/09/25/joe-espada-astros-al-west-champions/
+
 **UNLV starting QB Matthew Sluka announces he will redshirt**\
 `Sluka transferred to UNLV this offseason after spending the previous four years at Holy Cross, an FCS program.`\
 https://nytimes.com/athletic/5793011/2024/09/25/matthew-sluka-unlv-redshirting/
