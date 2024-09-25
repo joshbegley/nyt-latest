@@ -1,3 +1,7 @@
+**The Windup: Was that the play of the year?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5793838/2024/09/25/padres-clinch-triple-play-the-windup/
+
 **Can companies make climate progress while selling more stuff?**\
 `The chief executives of Ikea and Patagonia both want to lower humanity’s carbon output, but they have different approaches to doing it.`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/can-companies-make-climate-progress-while-selling-more-stuff
