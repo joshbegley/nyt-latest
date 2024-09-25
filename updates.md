@@ -1,3 +1,11 @@
+**What I'm watching with Jets in Week 3: Rodgers revenge game? Fashanu at right tackle and more**\
+`Plus, Garrett Wilson tries to get going against another elite cornerback.`\
+https://nytimes.com/athletic/5794329/2024/09/25/aaron-rodgers-hackett-revenge-game-broncos-jets-sean-payton/
+
+**Harbaugh: Herbert 'progressing' from injury**\
+`Herbert left Sunday's game against the Pittsburgh Steelers in a walking boot after suffering a high ankle sprain in Week 2 against Carolina.`\
+https://nytimes.com/athletic/5794467/2024/09/25/justin-herbert-injury-update-chargers-nfl/
+
 **Making Tender Scones at Home Is Easier Than You Think**\
 `All you need is a bowl, fork and baking sheet for fresh, warm scones with crisp tops and soft centers.`\
 https://nytimes.com/2024/09/25/dining/how-to-make-scones.html
