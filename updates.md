@@ -1,3 +1,7 @@
+**Putin Declares Changes to Russian Nuclear Doctrine**\
+`President Vladimir V. Putin heightened his warnings against the West, asserting that Russia should be permitted to employ nuclear arms in the event of an attack by a nation backed by a nuclear power.`\
+https://nytimes.com/2024/09/25/world/europe/putin-declares-changes-to-russian-nuclear-doctrine.html
+
 **2 Injured After Man Sets Off Explosive Device at California Courthouse**\
 `Law enforcement arrested a man who they said detonated an explosive device at a courthouse in Santa Barbara, Calif., on Wednesday morning.`\
 https://nytimes.com/2024/09/25/us/courthouse-explosion-california.html
