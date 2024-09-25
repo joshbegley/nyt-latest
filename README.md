@@ -1,3 +1,19 @@
+**Exploring the Roots of Mideast Turbulence Onstage**\
+`A retrospective in Paris honors Lina Majdalanie and Rabih Mroué, whose theater works have examined the region’s troubles for decades.`\
+https://nytimes.com/2024/09/25/theater/lina-majdalanie-rabih-mroue-middle-east.html
+
+**Mayor Adams Names New Schools Chancellor, as Chaos and Inquiries Swirl**\
+`The quick selection of Melissa Aviles-Ramos to lead the New York City school system seemed intended to quell a deepening crisis that has seen several top officials resign.`\
+https://nytimes.com/2024/09/25/nyregion/adams-david-banks-melissa-aviles-ramos.html
+
+**At 90, Jane Goodall still finds hope in the ‘indomitable human spirit.’**\
+`By Manuela Andreoni`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/at-90-jane-goodall-still-finds-hope-in-the-indomitable-human-spirit
+
+**Browns' Teller placed on IR, Garrett day to day**\
+`Cleveland coach Kevin Stefanski said Teller is a candidate for IR, while Garrett could try to play through his injuries. `\
+https://nytimes.com/athletic/5788862/2024/09/25/browns-wyatt-teller-myles-garrett-injuries/
+
 **Rivian’s CEO says electric vehicles shouldn’t be a partisan issue.**\
 `By Jack Ewing`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/rivians-ceo-says-electric-vehicles-shouldnt-be-a-partisan-issue
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5793473/2024/09/25/pac-12-mountain-west-realignment
 **At Book Release Parties, Fans Go Loony for Rooney**\
 `Sally Rooney lovers reveled, played trivia and took part in raffles to celebrate the Irish novelist’s new book, “Intermezzo.”`\
 https://nytimes.com/2024/09/25/books/sally-rooney-intermezzo.html
-
-**Endrick, Modric, change of system? How Madrid could replace Mbappe for the derby**\
-`Madrid have lost Mbappe to a thigh injury for three weeks. There are a number of ways they could adjust their line-up`\
-https://nytimes.com/athletic/5793881/2024/09/25/mbappe-injury-real-madrid-replacements/
-
-**Kentucky Sheriff Accused of Fatally Shooting Judge Pleads Not Guilty**\
-`Sheriff Shawn Stines made his first appearance in court as a defendant in the case that has shaken the small rural community of Letcher County, Ky.`\
-https://nytimes.com/2024/09/25/us/kentucky-sheriff-judge-shooting.html
-
-**Sabres stock watch: Risers, fallers and question marks through 3 preseason games**\
-`Which players have helped themselves the most in training camp and preseason to this point? Who still has more to prove?`\
-https://nytimes.com/athletic/5793856/2024/09/25/sabres-stock-risers-fallers-preseason/
-
-**Giving Prisoners a Second Chance**\
-`Responses to a guest essay by a prisoner in New York. Also: President Biden’s leadership; pressure on Israel; the Trump Effect; music in restaurants.`\
-https://nytimes.com/2024/09/25/opinion/prisoners-second-chance.html
 
