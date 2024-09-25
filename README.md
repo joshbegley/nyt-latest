@@ -1,3 +1,31 @@
+**Here’s what’s happening today.**\
+`By Ryan McCarthy`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/heres-whats-happening-today
+
+**Live Updates: Discussing Our Rapidly Warming Planet**\
+`Jane Goodall, Ali Zaidi, Muhammad Yunus and other newsmakers are sharing ideas and answering tough questions about the threats presented by a rapidly warming planet.`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change
+
+**Arsenal goalkeeper Porter, 16, set to start in Carabao Cup**\
+`Arsenal&#8217;s 16-year-old academy goalkeeper Jack Porter is set to start their Carabao Cup third-round tie against Bolton Wanderers.`\
+https://nytimes.com/athletic/5793189/2024/09/25/jack-porter-arsenal-who-age/
+
+**From unranked to unbeaten: Gauging the hopes of 9 early CFP sleepers**\
+`Is the 12-team Playoff a possibility for these nine undefeated teams or just a September mirage?`\
+https://nytimes.com/athletic/5791842/2024/09/25/college-football-playoff-sleepers-undefeated-teams/
+
+**Rangers players who have helped and hurt their stock after 2 preseason games**\
+`With roster decisions on the horizon, which Rangers players have stood out?`\
+https://nytimes.com/athletic/5792711/2024/09/25/rangers-players-preseason-games/
+
+**This Black Hole Has a Cosmic Wingspan**\
+`Astronomers have discovered a black hole emitting energy in jets longer than the width of 140 Milky Way galaxies.`\
+https://nytimes.com/2024/09/25/science/space/black-hole-m87-energy.html
+
+**The Athletic FC: Who are Premier League MVPs? Mbappe and Bellingham combine for first time**\
+`Today in TAFC: We analyse the Premier League's MVPs, look at Barca's race against time for Camp Nou and break down Haaland's 100 PL goals.`\
+https://nytimes.com/athletic/5793231/2024/09/25/premier-league-mvps-bellingham-mbappe-assist/
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/09/25/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -9,32 +37,4 @@ https://nytimes.com/2024/09/25/arts/the-legend-of-zelda-echoes-of-wisdom-review.
 **Giants takeaways: Assessing a successful road trip that is too late but not too little**\
 `The Giants had a 31-41 road record entering this trip and hadn't swept a road series since July of last season. They are 7-1 on the trip.`\
 https://nytimes.com/athletic/5793083/2024/09/25/giants-takeaways-road-trip/
-
-**Donald Trump Embraces ‘Love’**\
-`Politicians often lean toward hyperbole, but the frequent use of the word “love” in the former president’s fund-raising notes is an increasingly common tactic for him.`\
-https://nytimes.com/2024/09/25/style/donald-trump-embraces-love.html
-
-**Inside Harris’s Big Economic Pitch**\
-`The vice president is expected to deliver one of her most detailed addresses yet on the issue, as she seeks to strike a delicate political balance.`\
-https://nytimes.com/2024/09/25/business/dealbook/harris-trump-economy.html
-
-**Mbappe to miss three weeks with thigh injury, out of Madrid derby**\
-`Real Madrid forward Kylian Mbappe is to miss around three weeks of action with a thigh injury — including Sunday&#8217;s clash at rivals Atletico Madrid.`\
-https://nytimes.com/athletic/5793321/2024/09/25/kylian-mbappe-injury-real-madrid/
-
-**Three thoughts on the Browns' 3 units: What's been the biggest area of concern?**\
-`Cleveland is off to a 1-2 start and has yet to crack the 20-point mark through three weeks. How can the team improve going forward? `\
-https://nytimes.com/athletic/5792066/2024/09/25/browns-offense-defense-special-teams/
-
-**For the Orioles, a hard-earned playoff berth provides an opportunity for a 'fresh start'**\
-`As rough as it’s been since a charmed first half this season, the Orioles will play in October for a second-straight year.`\
-https://nytimes.com/athletic/5793284/2024/09/25/baltimore-orioles-playoff-clinch-al-east/
-
-**The Pulse: A playoff-clinching triple play!?**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5791387/2024/09/25/padres-dodgers-triple-play-the-pulse/
-
-**How the Wild plan to fix last year's Achilles' heel — their leaky penalty kill**\
-`The Wild have made the PK a focus in hirings, signings and camp. Assistant Jack Capuano: "You’re not going to win with a bad penalty kill."`\
-https://nytimes.com/athletic/5791714/2024/09/25/wild-penalty-kill-training-camp/
 
