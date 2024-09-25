@@ -1,5 +1,5 @@
 **Train Car Spewing Chemical Triggers Evacuations in Ohio**\
-`A plume of highly-flammable styrene shot out of the train car, filling the air in the area west of Cincinnati with an odor one resident described as burnt metal.`\
+`A plume of highly flammable styrene shot out of the train car, filling the air in the area west of Cincinnati with an odor one resident described as burnt metal.`\
 https://nytimes.com/video/us/100000009718548/train-chemical-leak-ohio-styrene.html
 
 **Taking on Food Emissions at Their Origin and Consumption**\
