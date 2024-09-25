@@ -1,3 +1,11 @@
+**Cincinnati Reds' Jonathan India shares frustrations**\
+`"I want to win. Everyone wants to win. That’s the bottom line. ... There are certain things that I think should happen," he said.`\
+https://nytimes.com/athletic/5793690/2024/09/25/jonathan-india-cincinnati-reds-disappointed-change/
+
+**Michael McDowell on perseverance, data and winding down with Front Row: 12 Questions**\
+`Michael McDowell talks about his early adoption of advanced data, his final races with Front Row Motorsports and much more.`\
+https://nytimes.com/athletic/5790639/2024/09/25/michael-mcdowell-nascar-front-row-12-questions/
+
 **Kelce 'not worried' about early struggles this season**\
 `"As long as we're winning football games, we're good to go, baby," Travis Kelce said.`\
 https://nytimes.com/athletic/5793563/2024/09/25/travis-kelce-struggles-chiefs-nfl/
@@ -15,7 +23,7 @@ https://nytimes.com/2024/09/25/us/school-violence-threats-student-arrests.html
 https://nytimes.com/athletic/5792431/2024/09/25/blue-jackets-power-play-nhl-2024-25/
 
 **In Silicon Valley, a Rogue Plan to Alter the Climate**\
-`A pair of restless entrepreneurs are releasing pollutants in the sky to try to cool the planet.`\
+`A trio of restless entrepreneurs are releasing pollutants in the sky to try to cool the planet.`\
 https://nytimes.com/2024/09/25/climate/rogue-solar-geoengineering.html
 
 **Lawmakers Seek Inquiry of F.D.A. Device Chief’s Potential Conflicts**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5793583/2024/09/25/jonathan-kaye-arsenal-southampto
 **What I'm seeing in the first week of Oilers training camp**\
 `Despite the lack of Oilers roster battles, intrigue remains about defined roles and what’ll happen to players on the outside looking in.`\
 https://nytimes.com/athletic/5793091/2024/09/25/oilers-training-camp/
-
-**The Kawhi Leonard health watch begins again for the Clippers**\
-`Law Murray explains the Clippers' next steps in managing Kawhi Leonard's latest knee rehabilitation. `\
-https://nytimes.com/athletic/5793022/2024/09/25/kawhi-leonard-clippers-health-knee/
-
-**Bentancur 'almost cried' when apologising for comments - Son**\
-`Son Heung-min has said that Rodrigo Bentancur “almost cried” when he apologised for his comments about the Tottenham Hotspur captain.`\
-https://nytimes.com/athletic/5793576/2024/09/25/son-bentancur-comment-tottenham/
 

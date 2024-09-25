@@ -1,3 +1,15 @@
+**Cincinnati Reds' Jonathan India shares frustrations**\
+`"I want to win. Everyone wants to win. That’s the bottom line. ... There are certain things that I think should happen," he said.`\
+https://nytimes.com/athletic/5793690/2024/09/25/jonathan-india-cincinnati-reds-disappointed-change/
+
+**Michael McDowell on perseverance, data and winding down with Front Row: 12 Questions**\
+`Michael McDowell talks about his early adoption of advanced data, his final races with Front Row Motorsports and much more.`\
+https://nytimes.com/athletic/5790639/2024/09/25/michael-mcdowell-nascar-front-row-12-questions/
+
+**In Silicon Valley, a Rogue Plan to Alter the Climate**\
+`A trio of restless entrepreneurs are releasing pollutants in the sky to try to cool the planet.`\
+https://nytimes.com/2024/09/25/climate/rogue-solar-geoengineering.html
+
 **Kelce 'not worried' about early struggles this season**\
 `"As long as we're winning football games, we're good to go, baby," Travis Kelce said.`\
 https://nytimes.com/athletic/5793563/2024/09/25/travis-kelce-struggles-chiefs-nfl/
