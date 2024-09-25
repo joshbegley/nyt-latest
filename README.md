@@ -1,40 +1,40 @@
-**MLB's top 20 breakout players in 2024: Skubal tops list, Skenes not far behind**\
-`Here are 20 standouts who turned their potential into production in 2024 and made the biggest jumps among major-league players.`\
-https://nytimes.com/athletic/5789472/2024/09/25/mlb-breakout-players-skubal-skenes-chourio-2024/
+**How the Wild plan to fix last year's Achilles' heel — their leaky penalty kill**\
+`The Wild have made the PK a focus in hirings, signings and camp. Assistant Jack Capuano: "You’re not going to win with a bad penalty kill."`\
+https://nytimes.com/athletic/5791714/2024/09/25/wild-penalty-kill-training-camp/
 
-**When Computers Go Dark**\
-`A routine software update by a security company crashed millions of computers around the world. The chaos was telling.`\
-https://nytimes.com/2024/09/25/briefing/crowdstrike-technology-security.html
+**Joseph Woll's goal: Making good on years of promise to become Leafs' true starter**\
+`An offseason spent reframing his mindset and tinkering with training has Joseph Woll feeling more confident — and healthy — than ever.`\
+https://nytimes.com/athletic/5791812/2024/09/25/maple-leafs-joseph-woll-starting-goalie/
 
-**Fleeing Israeli Airstrikes in Lebanon, and Worrying About Where to Go Next**\
-`After years of decline, Lebanon is ill-equipped to deal with a wave of displaced people. One family left their farm and found themselves homeless in Beirut.`\
-https://nytimes.com/2024/09/25/world/middleeast/lebanon-strikes-refugees-displaced.html
+**Braithwaite: City's mature 16-year-old who started after just one senior training session**\
+`Kaden Braithwaite made his first start for Manchester City on Tuesday night against Watford`\
+https://nytimes.com/athletic/5793103/2024/09/25/kaden-braithwaite-manchester-city/
 
-**Goodbye to the Oakland Coliseum, a stadium where unlikely figures could find their footing**\
-`It's time to appreciate the Oakland Coliseum, a place that offered seats to unlikely figures both on and off the field.`\
-https://nytimes.com/athletic/5774260/2024/09/25/oakland-coliseum-last-game/
+**Quick Outs: The Andy Dalton show, Caleb Williams' early struggles, more Week 3 thoughts**\
+`The Panthers received a much-needed jolt after a QB change, but the Raiders and Bears might have issues too big to overcome.`\
+https://nytimes.com/athletic/5791110/2024/09/25/nfl-week-3-andy-dalton-quick-outs/
 
-**Here are the latest developments.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/here-are-the-latest-developments
+**Cowboys-Giants preview: Beat writers talk disappointment in Dallas, timid hope in New York**\
+`Dallas has beaten New York in six straight games and could really use a win right now. But the Giants have looked a little feistier lately.`\
+https://nytimes.com/athletic/5791492/2024/09/25/cowboys-giants-preview-predictions-tnf/
 
-**Live Updates: Israel Downs Hezbollah Missile Aimed at Tel Aviv**\
-`Israel said it was the first time the Lebanese militia had taken aim at Israel’s economic hub. Half a million people are displaced in Lebanon, the foreign minister said.`\
-https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah
+**Raiders defense tries to remain confident after ugly loss and recent injuries**\
+`Embarrassed against Carolina and with Maxx Crosby hobbled, Las Vegas needs to turn things around against Cleveland.`\
+https://nytimes.com/athletic/5791984/2024/09/25/raiders-defense-injuries-wilkins-crosby-epps/
 
-**Caleb Williams' encouraging throws give Bears something to build on: All-22**\
-`A lot went wrong on offense, but the Bears didn't stumble into 363 passing yards. A film breakdown of Williams' best throws.`\
-https://nytimes.com/athletic/5792803/2024/09/25/caleb-williams-bears-encouraging-throws/
+**Palmer and Jackson are the Premier League's best partnership - Chelsea need to build around it**\
+`Nicolas Jackson and Cole Palmer are outperforming even Didier Drogba and Frank Lampard at Chelsea`\
+https://nytimes.com/athletic/5790511/2024/09/25/cole-palmer-nicolas-jackson-chelsea-analysis/
 
-**Barcelona fans have high hopes for Ansu Fati. Can he shine again under Hansi Flick?**\
-`Ansu Fati is back with Barcelona — and fans are hoping to see his best again under Hansi Flick`\
-https://nytimes.com/athletic/5793166/2024/09/25/ansu-fati-barcelona-hansi-flick-la-liga/
+**Lowetide: Can Oilers goalie Stuart Skinner deliver a complete season?**\
+`Skinner has handled the pressure well since arriving as the Oilers' starter and can meet the moment again.`\
+https://nytimes.com/athletic/5791053/2024/09/25/oilers-goalie-stuart-skinner-stats-2024/
 
-**Matthew Tkachuk on Johnny Gaudreau: 'I'm going to keep his memory alive'**\
-`Tkachuk speaks about the loss of his friend, Johnny Gaudreau, and how excited he was to reunite with him in the Olympics.`\
-https://nytimes.com/athletic/5791397/2024/09/25/matthew-tkachuk-johnny-gaudreau-friendship-memories/
+**The many different defensive faces of Arteta's Arsenal**\
+`Arsenal had the best defensive record in the Premier League last season, but they achieve their success at the back in many different ways`\
+https://nytimes.com/athletic/5792392/2024/09/25/mikel-arteta-arsenal-defensive-adaptability/
 
-**Joey Anderson checks analytics boxes, but Blackhawks roster spot is no guarantee**\
-`Last season Joey Anderson was an NHL analytics darling. This year, he might end up back in Rockford.`\
-https://nytimes.com/athletic/5791797/2024/09/25/blackhawks-joey-anderson-defense-roster/
+**How Amazon's NHL docuseries got player buy-in to reveal the 'raw emotion' of Stanley Cup hockey**\
+`The series captures moments of extreme emotion, including ones of Connor McDavid that could create a new impression of the NHL's top player.`\
+https://nytimes.com/athletic/5791445/2024/09/25/nhl-documentary-amazon-prime-faceoff/
 
