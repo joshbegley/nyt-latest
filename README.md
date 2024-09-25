@@ -1,6 +1,6 @@
 **Notre Dame tops IU, MSU for 5-star Jalen Haralson**\
 `Haralson, the top-ranked recruit in the state of Indiana, is one of the biggest recruiting wins in the history of Notre Dame basketball.`\
-https://nytimes.com/athletic/5794971/2024/09/25/notre-dame-beats-indiana-michigan-state-for-5-star-basketball-recruit-jalen-haralson/
+https://nytimes.com/athletic/5794971/2024/09/25/notre-dame-jalen-haralson-basketball-commitment/
 
 **Tell Us: How Is Political Advertising Affecting You?**\
 `Share your thoughts with the On Politics newsletter.`\
