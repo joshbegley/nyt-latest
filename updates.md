@@ -1,3 +1,7 @@
+**Bentancur 'almost cried' when apologising for comments - Son**\
+`Son Heung-min has said that Rodrigo Bentancur “almost cried” when he apologised for his comments about the Tottenham Hotspur captain.`\
+https://nytimes.com/athletic/5793576/2024/09/25/son-bentancur-comment-tottenham/
+
 **President Biden’s climate adviser: The U.S. will meet its 2030 goals.**\
 `By Coral Davenport`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/president-bidens-climate-adviser-the-us-will-meet-its-2030-goals

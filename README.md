@@ -1,3 +1,11 @@
+**What I'm seeing in the first week of Oilers training camp**\
+`Despite the lack of Oilers roster battles, intrigue remains about defined roles and what’ll happen to players on the outside looking in.`\
+https://nytimes.com/athletic/5793091/2024/09/25/oilers-training-camp/
+
+**The Kawhi Leonard health watch begins again for the Clippers**\
+`Law Murray explains the Clippers' next steps in managing Kawhi Leonard's latest knee rehabilitation. `\
+https://nytimes.com/athletic/5793022/2024/09/25/kawhi-leonard-clippers-health-knee/
+
 **Bentancur 'almost cried' when apologising for comments - Son**\
 `Son Heung-min has said that Rodrigo Bentancur “almost cried” when he apologised for his comments about the Tottenham Hotspur captain.`\
 https://nytimes.com/athletic/5793576/2024/09/25/son-bentancur-comment-tottenham/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/us/bus-hijacked-los-angeles-california.html
 **Inside a Trump Ad Ridiculing Harris Over Taxpayer-Paid Gender Transition Surgery**\
 `Portraying the vice president as a far-left radical, her opponent uses images of trans people as a cudgel.`\
 https://nytimes.com/2024/09/25/us/politics/trump-ad-anti-trans-harris.html
-
-**Manchester United's Labour conference pitch to regenerate land around 'placeholder' Old Trafford**\
-`Stand H14 has been home to the Old Trafford Regeneration project at the Labour Party conference this week`\
-https://nytimes.com/athletic/5792168/2024/09/25/manchester-united-labour-conference/
-
-**Kamala Harris Is a Woman of Faith. She Shouldn’t Be Afraid to Show It.**\
-`It’s time for Democrats to fight for religious voters`\
-https://nytimes.com/2024/09/25/opinion/kamala-harris-faith.html
 
