@@ -1,3 +1,15 @@
+**The Briefing: Man United 1 Twente 1 - Eriksen scores, Rashford shines, but so many errors led to Twente's goal**\
+`Manchester United opened their Europa League campaign with an underwhelming 1-1 draw at home to Erik ten Hag&#8217;s former side Twente.`\
+https://nytimes.com/athletic/5790314/2024/09/25/man-united-twente-analysis-rashford-eriksen-ten-hag/
+
+**'He just keeps going': Could Jett Luchanko make the Flyers' opening-night roster?**\
+`After Philadelphia's first cuts, the 2024 first-rounder is the only one in his training camp group who has never played an NHL game.`\
+https://nytimes.com/athletic/5794504/2024/09/25/flyers-jett-luchanko-roster-battle/
+
+**‘A death sentence’: Officials from vulnerable nations say losses from climate change have already begun.**\
+`By Manuela Andreoni`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/a-death-sentence-officials-from-vulnerable-nations-say-losses-from-climate-change-have-already-begun
+
 **Protesters briefly disrupt a discussion with an oil company executive.**\
 `By Manuela Andreoni and Ryan McCarthy`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/protesters-briefly-disrupt-a-discussion-with-an-oil-company-executive
