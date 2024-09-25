@@ -1,3 +1,7 @@
+**A Leggy Tyrannosaur Emerges From a Mexican Desert**\
+`Scientists say that the fossil of a close relative of Tyrannosaur rex bolsters their case for a distinctive southern population of the fearsome dinosaurs.`\
+https://nytimes.com/2024/09/25/science/tyrannosaur-fossil-mexico.html
+
 **City midfielder Roord set for WSL return eight months after ACL injury**\
 `Manchester City manager Gareth Taylor says midfielder Jill Roord will return to the squad for Sunday&#8217;s Women&#8217;s Super League (WSL) match against Brighton and Hove Albion, eight months on from suffering an anterior cruciate ligament (ACL) injury.`\
 https://nytimes.com/athletic/5793882/2024/09/25/jill-roord-injury-return/

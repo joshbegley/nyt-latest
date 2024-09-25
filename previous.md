@@ -1,3 +1,7 @@
+**A Leggy Tyrannosaur Emerges From a Mexican Desert**\
+`Scientists say that the fossil of a close relative of Tyrannosaur rex bolsters their case for a distinctive southern population of the fearsome dinosaurs.`\
+https://nytimes.com/2024/09/25/science/tyrannosaur-fossil-mexico.html
+
 **City midfielder Roord set for WSL return eight months after ACL injury**\
 `Manchester City manager Gareth Taylor says midfielder Jill Roord will return to the squad for Sunday&#8217;s Women&#8217;s Super League (WSL) match against Brighton and Hove Albion, eight months on from suffering an anterior cruciate ligament (ACL) injury.`\
 https://nytimes.com/athletic/5793882/2024/09/25/jill-roord-injury-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5793779/2024/09/25/lazio-fans-europa-league-police/
 **The Windup: Was that the play of the year?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5793838/2024/09/25/padres-clinch-triple-play-the-windup/
-
-**Can companies make climate progress while selling more stuff?**\
-`The chief executives of Ikea and Patagonia both want to lower humanity’s carbon output, but they have different approaches to doing it.`\
-https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/can-companies-make-climate-progress-while-selling-more-stuff
 
