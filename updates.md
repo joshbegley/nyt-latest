@@ -1,3 +1,11 @@
+**Protesters briefly disrupt a discussion with an oil company executive.**\
+`By Manuela Andreoni and Ryan McCarthy`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/protesters-briefly-disrupt-a-discussion-with-an-oil-company-executive
+
+**What Should Israel Do?**\
+`Israel faces a dire threat from the outside, and its prime minister and his allies have been prioritizing their own interests.`\
+https://nytimes.com/2024/09/25/opinion/israel-hezbollah-hamas.html
+
 **Naftali Herstik, Renowned and Influential Cantor, Dies at 77**\
 `Part of a long line of cantors, he led services at the Great Synagogue in Jerusalem for 30 years and helped train the next generation.`\
 https://nytimes.com/2024/09/25/world/middleeast/naftali-herstik-dead.html
