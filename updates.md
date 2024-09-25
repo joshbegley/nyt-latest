@@ -1,3 +1,7 @@
+**U.S. and Russian diplomats spar in U.N. session about improving Security Council’s leadership in war.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/us-and-russian-diplomats-argue-in-security-council-session-about-improving-communication
+
 **Carabao Cup fourth-round draw**\
 `Carabao Cup holders Liverpool will face Brighton &amp; Hove Albion in the fourth round after thrashing West Ham United on Wednesday evening.`\
 https://nytimes.com/athletic/5777447/2024/09/25/carabao-cup-fourth-round-draw/
