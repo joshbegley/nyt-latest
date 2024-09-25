@@ -1,3 +1,11 @@
+**Chelsea's 'B' team is the perfect place for Dewsbury-Hall right now**\
+`Kiernan Dewsbury-Hall was an expensive summer arrival but has not yet started in the Premier League`\
+https://nytimes.com/athletic/5792433/2024/09/25/kiernan-dewsbury-hall-chelsea-analysis/
+
+**Israel Says It Shot Down Missile Over Tel Aviv**\
+`The military said that Hezbollah fired the missile from Lebanon, in what appeared to be the first attack by the group to target as far south as central Israel.`\
+https://nytimes.com/2024/09/25/world/middleeast/tel-aviv-hezbollah-missile.html
+
 **Desi Lydic: Donald Trump ‘Really Knows How to Flatter a Lady’**\
 `The “Daily Show” host said the former president had been so unpopular with women that he was now trying to turn on “the old Trump charm.”`\
 https://nytimes.com/2024/09/25/arts/television/desi-lydic-trump-women.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/climate/nigeria-heat-air-conditioners.html
 **Confronting Our New Reality**\
 `Solutions to the problem of climate change have never been more clear. But the scale of the problem keeps getting bigger.`\
 https://nytimes.com/2024/09/25/climate/climate-change-environment-planet.html
-
-**What if Everyone Did Something to Slow Climate Change?**\
-`Researchers are looking at the impact that individuals’ actions can have on reducing carbon emissions — and the best ways to get people to adopt them.`\
-https://nytimes.com/2024/09/25/climate/carbon-reduction-strategies.html
-
-**Fantasy football stock watch: Braelon Allen's role grows, Zamir White's shrinks**\
-`Dane Martinez highlights three players on the rise, like Jets rookie Braelon Allen, and three players who are falling in fantasy football.`\
-https://nytimes.com/athletic/5791552/2024/09/25/fantasy-football-stock-watch-braelon-allens-role-grows-zamir-whites-shrinks/
 
