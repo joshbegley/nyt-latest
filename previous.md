@@ -1,3 +1,11 @@
+**Harris Cast Herself as a Pro-Business Pragmatist**\
+`Also, the U.S. is trying to broker an Israel-Hezbollah cease-fire. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/09/25/briefing/harris-economic-speech-worlds-oldest-cheese.html
+
+**Biden and allies create a Marshall Plan-style initiative to rebuild Ukraine using frozen Russian assets.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/biden-and-allies-create-a-marshall-plan-style-initiative-to-rebuild-ukraine-using-frozen-russian-assets
+
 **Carabao Cup fourth-round draw**\
 `Carabao Cup holders Liverpool will face Brighton &amp; Hove Albion in the fourth round after thrashing West Ham United on Wednesday evening.`\
 https://nytimes.com/athletic/5777447/2024/09/25/carabao-cup-fourth-round-draw/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/us/politics/harris-economic-speech-pro-business.h
 **U.S. and Russian diplomats spar in U.N. session about improving Security Council’s leadership in war.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/us-and-russian-diplomats-argue-in-security-council-session-about-improving-communication
-
-**Tropical Storm John Strengthens Again Along Mexico’s Pacific Coast**\
-`The system, which battered western Mexico as a hurricane earlier this week, has begun to regain strength.`\
-https://nytimes.com/2024/09/25/weather/tropical-storm-john-mexico.html
-
-**Hurricane Helene Could Become a Category 3 Before Arriving in Florida**\
-`The storm is expected to make landfall Thursday evening and could damage an extensive area along Florida’s Gulf Coast.`\
-https://nytimes.com/video/us/100000009720158/hurricane-helene.html
 

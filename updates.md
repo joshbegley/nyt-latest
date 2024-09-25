@@ -1,3 +1,11 @@
+**Harris Cast Herself as a Pro-Business Pragmatist**\
+`Also, the U.S. is trying to broker an Israel-Hezbollah cease-fire. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/09/25/briefing/harris-economic-speech-worlds-oldest-cheese.html
+
+**Biden and allies create a Marshall Plan-style initiative to rebuild Ukraine using frozen Russian assets.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/biden-and-allies-create-a-marshall-plan-style-initiative-to-rebuild-ukraine-using-frozen-russian-assets
+
 **U.S. and Russian diplomats spar in U.N. session about improving Security Council’s leadership in war.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/us-and-russian-diplomats-argue-in-security-council-session-about-improving-communication
