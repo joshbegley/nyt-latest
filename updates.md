@@ -1,3 +1,15 @@
+**Naftali Herstik, Renowned and Influential Cantor, Dies at 77**\
+`Part of a long line of cantors, he led services at the Great Synagogue in Jerusalem for 30 years and helped train the next generation.`\
+https://nytimes.com/2024/09/25/world/middleeast/naftali-herstik-dead.html
+
+**NewJeans’ Ultimatum Casts K-Pop’s Displays of Labor in a New Light**\
+`The breakout girl group went public with complaints against its parent company, Hybe, which has just released a new TV series and film about the control it exerts over stars.`\
+https://nytimes.com/2024/09/25/arts/music/newjeans-kpop-hybe.html
+
+**Mira Murati, Chief Technology Officer at OpenAI, Plans to Leave Company**\
+`One of OpenAI’s highest profile executives, she’s among a series of longtime managers and researchers to leave the start-up in recent months.`\
+https://nytimes.com/2024/09/25/technology/mira-murati-openai.html
+
 **Ekeler out Week 4 vs. Cardinals with concussion**\
 `Ekeler left Monday night's win against the Cincinnati Bengals in the third quarter and was eventually ruled out with the injury.`\
 https://nytimes.com/athletic/5794519/2024/09/25/commanders-austin-ekeler-concussion/
