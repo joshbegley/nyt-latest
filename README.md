@@ -1,3 +1,11 @@
+**Can companies make climate progress while selling more stuff?**\
+`The chief executives of Ikea and Patagonia both want to lower humanity’s carbon output, but they have different approaches to doing it.`\
+https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/can-companies-make-climate-progress-while-selling-more-stuff
+
+**Donald Trump Cut Ties to Some Online Fund-Raisers**\
+`The campaign also reduced the commission retained by the remaining vendors, as the former president falls behind Vice President Kamala Harris in the cash race.`\
+https://nytimes.com/2024/09/25/us/politics/trump-online-fund-raisers.html
+
 **Popcast: A Word With John Summit**\
 `The dance music superstar and former accountant speaks on the return of EDM and his rise, from underground parties to headlining Madison Square Garden.`\
 https://nytimes.com/2024/09/25/arts/music/john-summit-interview-popcast.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/well/move/beginners-weights-exercise.html
 **Ukrainian troops continue to lose ground to Russia as Zelensky tries to rally allies at the Assembly.**\
 `By Constant Méheut`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/ukrainian-troops-continue-to-lose-ground-to-russia-as-zelensky-tries-to-rally-allies-at-assembly
-
-**New Era brings NFL helmet hat back**\
-`Helmet hats are dead. Long live helmet hats.`\
-https://nytimes.com/athletic/5791011/2024/09/25/new-era-nfl-helmet-hats/
-
-**Cincinnati Reds' Jonathan India shares frustrations**\
-`"I want to win. Everyone wants to win. That’s the bottom line. ... There are certain things that I think should happen," he said.`\
-https://nytimes.com/athletic/5793690/2024/09/25/jonathan-india-cincinnati-reds-disappointed-change/
 
