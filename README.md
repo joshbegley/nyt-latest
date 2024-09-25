@@ -1,3 +1,15 @@
+**Naftali Herstik, Renowned and Influential Cantor, Dies at 77**\
+`Part of a long line of cantors, he led services at the Great Synagogue in Jerusalem for 30 years and helped train the next generation.`\
+https://nytimes.com/2024/09/25/world/middleeast/naftali-herstik-dead.html
+
+**NewJeans’ Ultimatum Casts K-Pop’s Displays of Labor in a New Light**\
+`The breakout girl group went public with complaints against its parent company, Hybe, which has just released a new TV series and film about the control it exerts over stars.`\
+https://nytimes.com/2024/09/25/arts/music/newjeans-kpop-hybe.html
+
+**Mira Murati, Chief Technology Officer at OpenAI, Plans to Leave Company**\
+`One of OpenAI’s highest profile executives, she’s among a series of longtime managers and researchers to leave the start-up in recent months.`\
+https://nytimes.com/2024/09/25/technology/mira-murati-openai.html
+
 **Cat Glover, Who Danced With Prince, Dies at 62**\
 `She worked with Prince on many of his iconic works, including the “Sign o’ the Times” tour and the “U Got the Look” music video.`\
 https://nytimes.com/2024/09/25/arts/cat-glover-dead-prince.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/afric
 **In Florida’s Big Bend, Preparing Wearily for the Third Hurricane in 13 Months**\
 `Hurricane Helene is forecast to be much larger and stronger than other recent storms, with up to 18 feet of storm surge expected along the marshy coastline south of Tallahassee.`\
 https://nytimes.com/2024/09/25/us/in-floridas-big-bend-preparing-wearily-for-the-third-hurricane-in-13-months.html
-
-**The Nation’s Politics Are Dramatic. Now Its Dramas Are Political.**\
-`For the second year in a row, a play about the Constitution is the most-staged in America. And a farce about a terrible president is also pretty popular.`\
-https://nytimes.com/2024/09/25/theater/what-the-constitution-means-to-me-most-staged.html
-
-**Allied Countries Accuse Taliban of ‘Gross’ Violations of Women’s Rights**\
-`Germany, Australia, Canada and the Netherlands said they will take the Taliban to the U.N.’s highest court because of its harsh restrictions on Afghan women.`\
-https://nytimes.com/2024/09/25/world/asia/taliban-afghanistan-womens-rights.html
-
-**Ekeler out Week 4 vs. Cardinals with concussion**\
-`Ekeler left Monday night's win against the Cincinnati Bengals in the third quarter and was eventually ruled out with the injury.`\
-https://nytimes.com/athletic/5794519/2024/09/25/commanders-austin-ekeler-concussion/
 

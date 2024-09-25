@@ -1,3 +1,7 @@
+**Ekeler out Week 4 vs. Cardinals with concussion**\
+`Ekeler left Monday night's win against the Cincinnati Bengals in the third quarter and was eventually ruled out with the injury.`\
+https://nytimes.com/athletic/5794519/2024/09/25/commanders-austin-ekeler-concussion/
+
 **Cat Glover, Who Danced With Prince, Dies at 62**\
 `She worked with Prince on many of his iconic works, including the “Sign o’ the Times” tour and the “U Got the Look” music video.`\
 https://nytimes.com/2024/09/25/arts/cat-glover-dead-prince.html

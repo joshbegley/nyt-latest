@@ -35,6 +35,6 @@ https://nytimes.com/2024/09/25/theater/what-the-constitution-means-to-me-most-st
 https://nytimes.com/2024/09/25/world/asia/taliban-afghanistan-womens-rights.html
 
 **Ekeler out Week 4 vs. Cardinals with concussion**\
-`Ekeler left Monday night's win against the Cincinnati Bengals in the third quarter and was eventually ruled out with the injury`\
+`Ekeler left Monday night's win against the Cincinnati Bengals in the third quarter and was eventually ruled out with the injury.`\
 https://nytimes.com/athletic/5794519/2024/09/25/commanders-austin-ekeler-concussion/
 
