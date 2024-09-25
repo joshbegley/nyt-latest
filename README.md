@@ -1,3 +1,7 @@
+**Train Car Spewing Chemical Triggers Evacuations in Ohio**\
+`A plume of highly-flammable styrene shot out of the train car, filling the air in the area west of Cincinnati with an odor one resident described as burnt metal.`\
+https://nytimes.com/video/us/100000009718548/train-car-spewing-chemical-triggers-evacuations-in-ohio.html
+
 **Taking on Food Emissions at Their Origin and Consumption**\
 `Andy Jarvis, Bruce Friedrich, Will Harris and Katie Cantrell are part of a group focused on food who are leading conversations at the Times’s Climate Forward Changemaker Lunch.`\
 https://nytimes.com/2024/09/25/climate/food-emissions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791552/2024/09/25/fantasy-football-stock-watch-bra
 **Greenberg: They came to see history. Instead, they saw the White Sox win a game**\
 `Chicago fans booing the White Sox for winning? It was unusual, even for this wacky franchise. But that's what happened Tuesday night.`\
 https://nytimes.com/athletic/5792881/2024/09/25/chicago-white-sox-angels-comeback-win/
-
-**The N.B.A. Is Choosing Hoops Over Human Rights in Abu Dhabi**\
-`How can the N.B.A. square its profession of high ideals with doing business with a repressive government?`\
-https://nytimes.com/2024/09/25/opinion/nba-abu-dhabi-human-rights.html
 
