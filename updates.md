@@ -1,3 +1,11 @@
+**Investigators Trace Former Police Commissioner’s Ties to Nightclubs**\
+`Police officers have been asked for communications that would show that rewards were offered for favorable treatment of night spots, said a person familiar with the investigation.`\
+https://nytimes.com/2024/09/25/nyregion/nypd-commissioner-night-clubs.html
+
+**Vikings great Tommy Kramer reveals dementia diagnosis**\
+`Kramer said he decided to go public after Brett Favre shared Tuesday he was diagnosed with Parkinson's disease.`\
+https://nytimes.com/athletic/5794839/2024/09/25/vikings-tommy-kramer-dementia-diagnosis/
+
 **Notre Dame tops IU, MSU for 5-star Jalen Haralson**\
 `Haralson, the top-ranked recruit in the state of Indiana, is one of the biggest recruiting wins in the history of Notre Dame basketball.`\
 https://nytimes.com/athletic/5794971/2024/09/25/notre-dame-jalen-haralson-basketball-commitment/
