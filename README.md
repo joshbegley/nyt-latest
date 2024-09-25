@@ -1,3 +1,7 @@
+**Democrats and Republicans Press China on Abuse of Muslim Minority**\
+`Both parties are focused on oppression of China’s Uyghur minority but use different tactics in pushing the Biden administration to do more.`\
+https://nytimes.com/2024/09/25/us/politics/congress-uyghurs-china.html
+
 **Donald Trump’s Dreamworld Way Out of the Abortion Issue**\
 `He simply hopes women will stop thinking about it.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/trump-abortion-dreamworld-protector
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794298/2024/09/25/masai-russell-olympics-hurdles-g
 **Oil company CEO calls climate change ‘a crisis’ and defends carbon capture investments.**\
 `By Manuela Andreoni`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/oil-company-ceo-calls-climate-change-a-crisis-and-defends-carbon-capture-investments
-
-**Final 2 games of critical Braves-Mets series postponed by storms, moved to Monday doublehader**\
-`The critical series between the Braves and Mets will now be completed after the official end of the season.`\
-https://nytimes.com/athletic/5794753/2024/09/25/braves-mets-postponed/
 
