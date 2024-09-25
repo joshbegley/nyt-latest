@@ -1,3 +1,11 @@
+**Trump to Rally Again at the Site of the First Assassination Attempt Against Him**\
+`Donald J. Trump will return to Butler, Pa., on Oct. 5 — one month from Election Day.`\
+https://nytimes.com/2024/09/25/us/politics/trump-butler-rally-october.html
+
+**Trump Hints at Iran Link to His 2 Assassination Attempts, Despite the Available Evidence**\
+`Officials have disclosed no ties to Iran in the cases in Pennsylvania and Florida, as Donald Trump questioned the F.B.I.’s investigations and mused about military action.`\
+https://nytimes.com/2024/09/25/us/politics/trump-nc-iran-economy.html
+
 **Cubs call up top outfield prospect Kevin Alcántara to make his debut in Philadelphia**\
 `The Cubs believe that Alcántara has some of the best upside of any of their prospects.`\
 https://nytimes.com/athletic/5795031/2024/09/25/cubs-promote-kevin-alcantara-mlb-debut/

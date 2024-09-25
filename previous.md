@@ -1,3 +1,11 @@
+**Trump to Rally Again at the Site of the First Assassination Attempt Against Him**\
+`Donald J. Trump will return to Butler, Pa., on Oct. 5 — one month from Election Day.`\
+https://nytimes.com/2024/09/25/us/politics/trump-butler-rally-october.html
+
+**Trump Hints at Iran Link to His 2 Assassination Attempts, Despite the Available Evidence**\
+`Officials have disclosed no ties to Iran in the cases in Pennsylvania and Florida, as Donald Trump questioned the F.B.I.’s investigations and mused about military action.`\
+https://nytimes.com/2024/09/25/us/politics/trump-nc-iran-economy.html
+
 **Cubs call up top outfield prospect Kevin Alcántara to make his debut in Philadelphia**\
 `The Cubs believe that Alcántara has some of the best upside of any of their prospects.`\
 https://nytimes.com/athletic/5795031/2024/09/25/cubs-promote-kevin-alcantara-mlb-debut/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/us/neo-nazi-power-grid-attack-sentenced-baltimore
 **What We Can Learn From an Orphan in Sudan**\
 `The passivity of world leaders in the face of atrocities in Sudan contrasts with the deep sense of moral responsibility of a Sudanese refugee child whom I met on the Chad-Sudan border.`\
 https://nytimes.com/2024/09/25/opinion/sudan-chad-orphan-refugee.html
-
-**The drone attack caused some damage in the port city of Eilat and injured two civilians.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/a-drone-attack-from-an-iran-backed-group-in-iraq-hits-eilat-in-israel
-
-**Ten Hag questions Man Utd mentality: 'We were too easy going'**\
-`Erik ten Hag questioned Manchester United&#8217;s &#8220;mentality&#8221; after they opened their Europa League campaign with a 1-1 draw at home to Twente.`\
-https://nytimes.com/athletic/5794848/2024/09/25/erik-ten-hag-man-utd-mentality-fc-twente/
 
