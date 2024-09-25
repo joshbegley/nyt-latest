@@ -1,3 +1,7 @@
+**The Padres have surged since the All-Star break. The preparation began long before then**\
+`The Padres continued their resurgence from a disastrous 2023 by clinching a return to the playoffs with a game-ending triple play Tuesday.`\
+https://nytimes.com/athletic/5793226/2024/09/25/padres-surge-mlb-postseason-playoff-spot/
+
 **Here’s what’s happening today.**\
 `By Ryan McCarthy`\
 https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/heres-whats-happening-today
