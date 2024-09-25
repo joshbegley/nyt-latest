@@ -1,3 +1,11 @@
+**Judge Demands a Plan for a Possible Federal Takeover of Rikers**\
+`Judge Laura Taylor Swain said a “carousel” of jail leaders had failed to stop violence. She ordered lawyers for the city and prisoners to show her what a receivership might look like.`\
+https://nytimes.com/2024/09/25/nyregion/rikers-island-jail-federal-takeover.html
+
+**The Four Swing States That Could Matter Most**\
+`In a tight election, every battleground matters. But here’s four states to watch extra closely.`\
+https://nytimes.com/2024/09/25/us/politics/most-important-swing-states.html
+
 **Trump to Rally Again at the Site of the First Assassination Attempt Against Him**\
 `Donald J. Trump will return to Butler, Pa., on Oct. 5 — one month from Election Day.`\
 https://nytimes.com/2024/09/25/us/politics/trump-butler-rally-october.html
