@@ -1,3 +1,15 @@
+**China Says It Launched a Rocket With a Dummy Warhead Into the Pacific**\
+`The ballistic missile launch is a sign of the commitment of Xi Jinping, China’s leader, to continue strengthening the country’s Rocket Force and to project power in Asia.`\
+https://nytimes.com/2024/09/25/world/asia/china-missile-rocket-force.html
+
+**Padres clinch MLB postseason spot with game-winning triple play against Dodgers**\
+`San Diego's resurgence from a disastrous 2023 has been building since spring training, with multiple moves and acquisitions.`\
+https://nytimes.com/athletic/5793121/2024/09/25/padres-clinch-triple-play-dodgers/
+
+**Is This What Female Strength Looks Like?**\
+`Saint Laurent and Dior struggle with the answer.`\
+https://nytimes.com/2024/09/25/style/dior-ysl-paris-fashion-week.html
+
 **Joe Espada's even hand guides Astros to improbable AL West title**\
 `"To go from 10 games out of it to winning the division, it’s pretty awesome,” third baseman Alex Bregman said.`\
 https://nytimes.com/athletic/5793052/2024/09/25/joe-espada-astros-al-west-champions/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/25/nyregion/republicans-union-labor-endorsement.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/09/25/crosswords/spelling-bee-forum.html
-
-**'We didn't get it done': Dodgers leave postseason door cracked open for Padres**\
-`A game-ending triple play sealed the loss for L.A. and put San Diego in charge of its postseason destiny.`\
-https://nytimes.com/athletic/5793053/2024/09/25/dodgers-padres-triple-play/
-
-**Barkley version 2.0 is exactly the type of player Emery loves at Villa**\
-`Ross Barkley featured against Wycombe in the Carabao Cup and helped Villa advance to the next round`\
-https://nytimes.com/athletic/5790440/2024/09/25/ross-barkley-aston-villa-analysis/
-
-**Cooper feels the heat from Leicester fans - the pressure is on to turn things around**\
-`Some Leicester fans chanted that their performance at Walsall was 'embarrassing' as the pressure increases on manager Cooper`\
-https://nytimes.com/athletic/5792328/2024/09/25/leicester-steve-copper-fans-walsall/
 
