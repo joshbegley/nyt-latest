@@ -26,7 +26,7 @@ https://nytimes.com/2024/09/25/nyregion/melissa-aviles-ramos-nyc-schools-chancel
 `Declaring “I am a capitalist” in a speech in Pittsburgh, Kamala Harris promised not to be “constrained by ideology” even as she said she would fiercely defend unions and the middle class.`\
 https://nytimes.com/2024/09/25/us/politics/harris-economic-speech-pro-business.html
 
-**U.S. and Russian diplomats argue in Security Council session about improving communication.**\
+**U.S. and Russian diplomats spar in U.N. session about improving Security Council’s leadership in war.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/25/world/united-nations-zelensky-speeches/us-and-russian-diplomats-argue-in-security-council-session-about-improving-communication
 
