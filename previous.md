@@ -1,3 +1,7 @@
+**Lebanon’s Growing Civilian Death Toll Includes Children and Rescue Workers**\
+`Lebanese organizations have begun to identify children, humanitarians and journalists among a growing number of civilians killed in Israel’s intense bombardment.`\
+https://nytimes.com/2024/09/25/world/middleeast/lebanon-civilian-death-toll-israel.html
+
 **At Climate Forward Event, an Architect of Project 2025 Dismisses Global Warming**\
 `At a New York Times Climate Forward event, Kevin D. Roberts said climate change amounted to a “hot year.”`\
 https://nytimes.com/2024/09/25/climate/climate-forward-project-2025-kevin-roberts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/arts/errollyn-wallen-composer-for-king-charles.ht
 **How to Use Up an Entire Jar of Sun-Dried Tomatoes**\
 `Make use of that savory oil with this brilliant pasta recipe.`\
 https://nytimes.com/2024/09/25/dining/how-to-use-up-an-entire-jar-of-sun-dried-tomatoes.html
-
-**This Cheese Stood Alone for 3,600 Years**\
-`The cheese was dug up with mummified human remains in the Xinjiang region of China and offers insights into the origins of the dairy product known as kefir.`\
-https://nytimes.com/2024/09/25/science/oldest-cheese-kefir-xinjiang.html
 
