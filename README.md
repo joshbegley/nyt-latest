@@ -1,4 +1,8 @@
-**Read the document**\
+**The 10 moves in 10 years that helped lead the Chicago White Sox to baseball infamy**\
+`For the Chicago White Sox, the journey to rock bottom was a series of missteps, misjudgments and missing pieces.`\
+https://nytimes.com/athletic/5782466/2024/09/25/10-moves-white-sox-mlb-infamy/
+
+**Read the Senate committee report**\
 `A Senate committee report on the Secret Service’s inability to protect the former president at a July event`\
 https://nytimes.com/interactive/2024/09/25/us/politics/usss-hsgac-interim-report.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791875/2024/09/25/bengals-0-3-start-week-4/
 **What’s Your Reaction to Instagram’s Changes to Improve the Safety and the Health of Teen Users?**\
 `The app introduced new settings and features aimed at creating more age-appropriate experiences for minors. Do the changes go far enough?`\
 https://nytimes.com/2024/09/25/learning/whats-your-reaction-to-instagrams-changes-to-improve-the-safety-and-the-health-of-teen-users.html
-
-**Iran’s Dilemma: How to Preserve Its Proxies and Avoid Full-Scale War**\
-`Iran says Israel wants to trap it into a direct conflict by bombing Hezbollah, even as a new Iranian president tries outreach to the West.`\
-https://nytimes.com/2024/09/25/world/middleeast/iran-israel-hezbollah.html
 
