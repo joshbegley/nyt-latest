@@ -1,3 +1,7 @@
+**Trump Golf Course Suspect Is Charged With Attempted Assassination**\
+`The new federal indictment in Florida comes on top of two gun charges against Ryan W. Routh, an itinerant contractor with an extensive criminal record.`\
+https://nytimes.com/2024/09/24/us/politics/trump-attempted-assassination-charges.html
+
 **Alex Jones’s Infowars Will Be Auctioned Off to Pay Sandy Hook Families**\
 `A sale of the Infowars website and other property is set for November, and could determine the conspiracy theorist’s fate as a broadcaster.`\
 https://nytimes.com/2024/09/24/us/politics/alex-jones-infowars-auction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5792192/2024/09/24/boston-celtics-jayson-tatum-jayl
 **Sparks, Curt Miller mutually part ways after two seasons**\
 `The two-time WNBA Coach of the Year ranks 11th in regular season wins with a 165-141 record`\
 https://nytimes.com/athletic/5792264/2024/09/24/sparks-curt-miller-part-ways/
-
-**Why Debunked Falsehoods About Haitian Migrants Gained Traction**\
-`The racist and inflammatory narrative spread on the backs of memes, greed, biases and news deserts.`\
-https://nytimes.com/2024/09/24/us/politics/haitian-migrants-disinformation.html
 
