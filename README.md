@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5791387/2024/09/25/padres-dodgers-triple-play-the-p
 `The Wild have made the PK a focus in hirings, signings and camp. Assistant Jack Capuano: "You’re not going to win with a bad penalty kill."`\
 https://nytimes.com/athletic/5791714/2024/09/25/wild-penalty-kill-training-camp/
 
-**Joseph Woll's goal: Making good on years of promise to become Leafs' true starter**\
+**Joseph Woll wants to make good on years of promise to become Maple Leafs' true starter**\
 `An offseason spent reframing his mindset and tinkering with training has Joseph Woll feeling more confident — and healthy — than ever.`\
 https://nytimes.com/athletic/5791812/2024/09/25/maple-leafs-joseph-woll-starting-goalie/
 
