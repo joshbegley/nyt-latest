@@ -1,3 +1,7 @@
+**Paul Simon Plays Rare New York Show in a Downtown Loft**\
+`The 82-year old singer received several standing ovations at an exclusive SoHo Sessions performance that drew fans including Kevin Bacon, Jerry Seinfeld and Amy Schumer.`\
+https://nytimes.com/2024/09/24/style/paul-simon-new-york-soho-sessions.html
+
 **Chemical Leak From Rail Yard Near Cincinnati Prompts Evacuations**\
 `A train car in Whitewater Township, Ohio, was discovered to be leaking styrene, which is used to make plastic and fiberglass and is highly flammable.`\
 https://nytimes.com/2024/09/24/us/ohio-train-chemical-leak.html

@@ -1,3 +1,7 @@
+**Paul Simon Plays Rare New York Show in a Downtown Loft**\
+`The 82-year old singer received several standing ovations at an exclusive SoHo Sessions performance that drew fans including Kevin Bacon, Jerry Seinfeld and Amy Schumer.`\
+https://nytimes.com/2024/09/24/style/paul-simon-new-york-soho-sessions.html
+
 **Chemical Leak From Rail Yard Near Cincinnati Prompts Evacuations**\
 `A train car in Whitewater Township, Ohio, was discovered to be leaking styrene, which is used to make plastic and fiberglass and is highly flammable.`\
 https://nytimes.com/2024/09/24/us/ohio-train-chemical-leak.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/24/us/politics/trump-attempted-assassination-charges
 **Alex Jones’s Infowars Will Be Auctioned Off to Pay Sandy Hook Families**\
 `A sale of the Infowars website and other property is set for November, and could determine the conspiracy theorist’s fate as a broadcaster.`\
 https://nytimes.com/2024/09/24/us/politics/alex-jones-infowars-auction.html
-
-**Caitlin Clark says DiJonai Carrington foul 'wasn't intentional'**\
-`After Game 1, Clark said that getting poked in the eye didn't impact her performance.`\
-https://nytimes.com/athletic/5792209/2024/09/24/caitlin-clark-dijonai-carrington-eye-poke/
 
