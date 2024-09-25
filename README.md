@@ -1,3 +1,7 @@
+**Rangers get good news on Panarin injury, but Lindgren week-to-week: Who could fill the hole on D?**\
+`Lindgren, whose physical style at 6-foot often leaves him battered, plays primarily with Adam Fox, New York's top defenseman.`\
+https://nytimes.com/athletic/5794007/2024/09/25/rangers-panarin-lindgren-injuries/
+
 **Meet the G.O.P. Personal Injury Lawyer Buying His Own Trump Ads**\
 `Dan Newlin has spent millions on billboards and TV spots promoting Donald J. Trump (and himself).`\
 https://nytimes.com/2024/09/25/us/politics/trump-ads-dan-newlin.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/5793473/2024/09/25/pac-12-mountain-west-realignment
 https://nytimes.com/2024/09/25/books/sally-rooney-intermezzo.html
 
 **Endrick, Modric, change of system? How Madrid could replace Mbappe for the derby**\
-`Madrid have lost Mbappe to injury for three weeks, but there's a number of ways they could shake up their line-up`\
+`Madrid have lost Mbappe to a thigh injury for three weeks. There are a number of ways they could adjust their line-up`\
 https://nytimes.com/athletic/5793881/2024/09/25/mbappe-injury-real-madrid-replacements/
 
 **Kentucky Sheriff Accused of Fatally Shooting Judge Pleads Not Guilty**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5793958/2024/09/25/yankees-nestor-cortes-mri-postse
 **A Leggy Tyrannosaur Emerges From a Mexican Desert**\
 `Scientists say that the fossil of a close relative of Tyrannosaur rex bolsters their case for a distinctive southern population of the fearsome dinosaurs.`\
 https://nytimes.com/2024/09/25/science/tyrannosaur-fossil-mexico.html
-
-**City midfielder Roord set for WSL return eight months after ACL injury**\
-`Manchester City manager Gareth Taylor says midfielder Jill Roord will return to the squad for Sunday&#8217;s Women&#8217;s Super League (WSL) match against Brighton and Hove Albion, eight months on from suffering an anterior cruciate ligament (ACL) injury.`\
-https://nytimes.com/athletic/5793882/2024/09/25/jill-roord-injury-return/
 
