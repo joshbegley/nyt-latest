@@ -1,3 +1,7 @@
+**Jhumpa Lahiri Declines a Noguchi Museum Award Over a Ban on Kaffiyehs**\
+`The museum said the Pulitzer Prize-winning author withdrew her acceptance after it fired staff members for wearing clothing expressing political views.`\
+https://nytimes.com/2024/09/25/arts/design/jhumpa-lahiri-noguchi-award.html
+
 **Mexican Senate Votes to Give Military Control of Civilian National Guard**\
 `Mexico’s governing party says the guard would be more effective and less corrupt as part of the armed forces. Critics fear the increased militarization of civilian life and a spike in rights abuses.`\
 https://nytimes.com/2024/09/25/world/americas/mexico-national-guard-military-control.html
