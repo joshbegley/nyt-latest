@@ -1,3 +1,11 @@
+**Giving Prisoners a Second Chance**\
+`Responses to a guest essay by a prisoner in New York. Also: President Biden’s leadership; pressure on Israel; the Trump Effect; music in restaurants.`\
+https://nytimes.com/2024/09/25/opinion/prisoners-second-chance.html
+
+**Yankees' Cortes to get MRI on his elbow**\
+`The 29-year-old pitcher has been feeling discomfort in his elbow for the past few days.`\
+https://nytimes.com/athletic/5793958/2024/09/25/yankees-nestor-cortes-mri-postseason/
+
 **A Leggy Tyrannosaur Emerges From a Mexican Desert**\
 `Scientists say that the fossil of a close relative of Tyrannosaur rex bolsters their case for a distinctive southern population of the fearsome dinosaurs.`\
 https://nytimes.com/2024/09/25/science/tyrannosaur-fossil-mexico.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/climate/climate-forward-project-2025-kevin-robert
 **Gotham's Kelley O'Hara on season-ending injury list**\
 `O’Hara, an Olympic gold medalist with the USWNT, announced her plans in May to retire from soccer at the end of the NWSL season.`\
 https://nytimes.com/athletic/5783625/2024/09/25/kelley-ohara-injury-gotham-uswnt/
-
-**Lazio fans banned from Europa League match after police confiscate weapons**\
-`A group of around 60 Lazio fans have been banned from attending Thursday&#8217;s Europa League fixture against Dynamo Kyiv after having weapons confiscated by German police.`\
-https://nytimes.com/athletic/5793779/2024/09/25/lazio-fans-europa-league-police/
-
-**The Windup: Was that the play of the year?**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5793838/2024/09/25/padres-clinch-triple-play-the-windup/
 

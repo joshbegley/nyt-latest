@@ -1,3 +1,11 @@
+**Giving Prisoners a Second Chance**\
+`Responses to a guest essay by a prisoner in New York. Also: President Biden’s leadership; pressure on Israel; the Trump Effect; music in restaurants.`\
+https://nytimes.com/2024/09/25/opinion/prisoners-second-chance.html
+
+**Yankees' Cortes to get MRI on his elbow**\
+`The 29-year-old pitcher has been feeling discomfort in his elbow for the past few days.`\
+https://nytimes.com/athletic/5793958/2024/09/25/yankees-nestor-cortes-mri-postseason/
+
 **A Leggy Tyrannosaur Emerges From a Mexican Desert**\
 `Scientists say that the fossil of a close relative of Tyrannosaur rex bolsters their case for a distinctive southern population of the fearsome dinosaurs.`\
 https://nytimes.com/2024/09/25/science/tyrannosaur-fossil-mexico.html
