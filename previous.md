@@ -1,3 +1,15 @@
+**When Computers Go Dark**\
+`A routine software update by a security company crashed millions of computers around the world. The chaos was telling.`\
+https://nytimes.com/2024/09/25/briefing/crowdstrike-technology-security.html
+
+**Fleeing Israeli Airstrikes in Lebanon, and Worrying About Where to Go Next**\
+`After years of decline, Lebanon is ill-equipped to deal with a wave of displaced people. One family left their farm and found themselves homeless in Beirut.`\
+https://nytimes.com/2024/09/25/world/middleeast/lebanon-strikes-refugees-displaced.html
+
+**Goodbye to the Oakland Coliseum, a stadium where unlikely figures could find their footing**\
+`It's time to appreciate the Oakland Coliseum, a place that offered seats to unlikely figures both on and off the field.`\
+https://nytimes.com/athletic/5774260/2024/09/25/oakland-coliseum-last-game/
+
 **Here are the latest developments.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/here-are-the-latest-developments
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5791797/2024/09/25/blackhawks-joey-anderson-defense
 **Jets training camp: Projecting Cole Perfetti's production and a focus on special teams**\
 `What should the Jets expect from Perfetti in an expanded role offensively this season?`\
 https://nytimes.com/athletic/5791704/2024/09/25/winnipeg-jets-cole-perfetti-training-camp/
-
-**Packers mailbag: Should Malik Willis play in sub-packages when Jordan Love returns?**\
-`The Packers welcome the Vikings to Lambeau Field on Sunday for an important early-season divisional matchup.`\
-https://nytimes.com/athletic/5791933/2024/09/25/packers-mailbag-malik-willis-jordan-love/
-
-**The Leafs have chased aging stars before. How often has it worked out?**\
-`Ranking six former stars on their effectiveness for the Maple Leafs long after their best days were behind them.`\
-https://nytimes.com/athletic/5791039/2024/09/25/maple-leafs-2024-25-veteran-players/
-
-**Hezbollah Fires Toward Tel Aviv, and Iran’s New President Addresses U.N.**\
-`Plus, was your doctor’s message written by A.I.?`\
-https://nytimes.com/2024/09/25/podcasts/hezbollah-missile-un.html
 

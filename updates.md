@@ -1,3 +1,15 @@
+**When Computers Go Dark**\
+`A routine software update by a security company crashed millions of computers around the world. The chaos was telling.`\
+https://nytimes.com/2024/09/25/briefing/crowdstrike-technology-security.html
+
+**Fleeing Israeli Airstrikes in Lebanon, and Worrying About Where to Go Next**\
+`After years of decline, Lebanon is ill-equipped to deal with a wave of displaced people. One family left their farm and found themselves homeless in Beirut.`\
+https://nytimes.com/2024/09/25/world/middleeast/lebanon-strikes-refugees-displaced.html
+
+**Goodbye to the Oakland Coliseum, a stadium where unlikely figures could find their footing**\
+`It's time to appreciate the Oakland Coliseum, a place that offered seats to unlikely figures both on and off the field.`\
+https://nytimes.com/athletic/5774260/2024/09/25/oakland-coliseum-last-game/
+
 **Here are the latest developments.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/09/25/world/israel-gaza-hamas-hezbollah/here-are-the-latest-developments
