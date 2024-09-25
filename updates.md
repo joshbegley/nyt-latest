@@ -1,3 +1,11 @@
+**The Connections Companion No. 473**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 26, 2024.`\
+https://nytimes.com/2024/09/25/crosswords/connections-companion-473.html
+
+**Wordle Review No. 1,195**\
+`Scroll down for hints and conversation about the puzzle for September 26, 2024.`\
+https://nytimes.com/2024/09/25/crosswords/wordle-review-1195.html
+
 **Barcelona make contact with Szczesny as Ter Stegen replacement**\
 `Barcelona have made contact with Wojciech Szczesny as they explore possible options to replace injured first-choice goalkeeper Marc-Andre Ter Stegen.`\
 https://nytimes.com/athletic/5791138/2024/09/25/barcelona-szczesny-goalkeeper-transfer/

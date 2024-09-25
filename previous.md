@@ -1,3 +1,11 @@
+**The Connections Companion No. 473**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 26, 2024.`\
+https://nytimes.com/2024/09/25/crosswords/connections-companion-473.html
+
+**Wordle Review No. 1,195**\
+`Scroll down for hints and conversation about the puzzle for September 26, 2024.`\
+https://nytimes.com/2024/09/25/crosswords/wordle-review-1195.html
+
 **Barcelona make contact with Szczesny as Ter Stegen replacement**\
 `Barcelona have made contact with Wojciech Szczesny as they explore possible options to replace injured first-choice goalkeeper Marc-Andre Ter Stegen.`\
 https://nytimes.com/athletic/5791138/2024/09/25/barcelona-szczesny-goalkeeper-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/us/politics/trump-taxes-tariffs-economy.html
 **Africa’s Youngest Elected Leader Wants a New World Order**\
 `In his first interview with Western media since becoming president of Senegal, Bassirou Diomaye Faye said the United Nations has to change to reflect changing world demographics.`\
 https://nytimes.com/2024/09/25/world/africa/president-senegal-bassirou-diomaye-faye.html
-
-**In Defense of Hate-Watching**\
-`In a world of infinite media, why do we watch bad TV?`\
-https://nytimes.com/2024/09/25/podcasts/in-defense-of-hate-watching.html
-
-**Bengals face stark reality — and have a glimmer of hope — after 0-3 start**\
-`History isn't on Cincinnati's side to make the playoffs, but a strong offense could buoy the team after disastrous start.`\
-https://nytimes.com/athletic/5791875/2024/09/25/bengals-0-3-start-week-4/
 
