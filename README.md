@@ -1,3 +1,11 @@
+**In Switzerland, Reported Use of Suicide Capsule Inflames Debate**\
+`The Swiss police said they had detained “several individuals” after a 64-year-old American woman reportedly died by suicide using the controversial device.`\
+https://nytimes.com/2024/09/25/world/europe/switzerland-sarco-capsule-suicide.html
+
+**Report Links Mark Robinson to Comment That Cops Should Have ‘Shot Al Sharpton’**\
+`The newly unearthed remarks were made in the comments of a news article under a username that previous reporting has linked to Mr. Robinson, the Republican running for governor in North Carolina.`\
+https://nytimes.com/2024/09/25/us/politics/mark-robinson-al-sharpton.html
+
 **How Caribbean Pepper Sauce Gets Its Fire**\
 `Across the region and the diaspora, the Scotch bonnet lends its distinctive, tart, numbing heat to this hot sauce, offering a taste of the islands and a punch of flavor.`\
 https://nytimes.com/2024/09/25/dining/caribbean-pepper-sauce.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/17/opinion/thepoint/nypd-illegal-stop-frisk
 **You Don’t Need to Share That Meta A.I. Post**\
 `A message on Instagram falsely claims that whoever shares it can legally bar Meta from sharing their data and photos. Don’t fall for it.`\
 https://nytimes.com/2024/09/25/style/meta-ai-instagram-post.html
-
-**Roy Cooper thinks Republicans can be brought on board with climate action.**\
-`The outgoing North Carolina governor said that making the business case is key to building political coalitions that can reduce emissions.`\
-https://nytimes.com/live/2024/09/25/climate/goodall-weather-change/roy-cooper-thinks-republicans-can-be-brought-on-board-with-climate-action
-
-**Biden, on ‘The View,’ Calls Trump a ‘Loser’ Who Lacks ‘Redeeming Value’**\
-`President Biden became the first sitting president to appear live on “The View.” He said he was “at peace” with his decision not to run again.`\
-https://nytimes.com/2024/09/25/us/politics/biden-the-view.html
 
