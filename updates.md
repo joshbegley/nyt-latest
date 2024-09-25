@@ -1,3 +1,11 @@
+**Trump Is Briefed on Iranian Assassination Threats**\
+`U.S. intelligence agencies had previously tracked a potential Iranian assassination plot. The Trump campaign said in a statement that the threat is now heightened.`\
+https://nytimes.com/2024/09/24/us/politics/trump-iran-threats.html
+
+**Visa, Google, JetBlue: A Guide to a New Era of Antitrust Action**\
+`Below are 15 major cases brought by the Justice Department and Federal Trade Commission since late 2020, as President Biden’s top antitrust enforcers have promised to sue monopolies and block big mergers.`\
+https://nytimes.com/interactive/2024/business/antitrust-case-tracker.html
+
 **Astros clinch AL West for 4th straight year**\
 `The Houston Astros are inevitable.`\
 https://nytimes.com/athletic/5792692/2024/09/24/houston-astros-clinch-al-west-for-4th-straight-year/

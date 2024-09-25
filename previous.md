@@ -1,3 +1,11 @@
+**Trump Is Briefed on Iranian Assassination Threats**\
+`U.S. intelligence agencies had previously tracked a potential Iranian assassination plot. The Trump campaign said in a statement that the threat is now heightened.`\
+https://nytimes.com/2024/09/24/us/politics/trump-iran-threats.html
+
+**Visa, Google, JetBlue: A Guide to a New Era of Antitrust Action**\
+`Below are 15 major cases brought by the Justice Department and Federal Trade Commission since late 2020, as President Biden’s top antitrust enforcers have promised to sue monopolies and block big mergers.`\
+https://nytimes.com/interactive/2024/business/antitrust-case-tracker.html
+
 **Astros clinch AL West for 4th straight year**\
 `The Houston Astros are inevitable.`\
 https://nytimes.com/athletic/5792692/2024/09/24/houston-astros-clinch-al-west-for-4th-straight-year/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/24/us/ohio-train-chemical-leak.html
 **Kawhi Leonard undergoes knee procedure in May, will be held out of drills to start training camp**\
 `The franchise said Tuesday Leonard will be limited to strengthening his knee to start Clippers training camp.`\
 https://nytimes.com/athletic/5792418/2024/09/24/clippers-kawhi-leonard-knee-procedure/
-
-**New York Liberty sweep Atlanta Dream, advance to WNBA semifinals**\
-`New York awaits the winner of the Aces and Seattle Storm first-round series, which tips off at 9:30 p.m. ET on Tuesday. `\
-https://nytimes.com/athletic/5792609/2024/09/24/new-york-liberty-advance-wnba-semifinals/
-
-**Review: What’s Eating Trump? The Singing ‘Ghost of John McCain’**\
-`The former senator haunts the former president, or vice versa, in this sophomoric musical satire.`\
-https://nytimes.com/2024/09/24/theater/ghost-of-john-mccain-review-trump.html
 
