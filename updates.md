@@ -1,3 +1,19 @@
+**Donald Trump’s Dreamworld Way Out of the Abortion Issue**\
+`He simply hopes women will stop thinking about it.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/trump-abortion-dreamworld-protector
+
+**How ‘Discoshow’ Spun Las Vegas Into Funkytown**\
+`Revisiting 1970s New York, a new theatrical experience is one history lesson that’s all about the good times.`\
+https://nytimes.com/card/2024/09/25/theater/discoshow-las-vegas
+
+**Some in Israeli Border Town Left Charred by Hezbollah Attacks Refuse to Flee**\
+`Despite the danger, older residents, firefighters, medics and a few small-business owners chose to stay put in Kiryat Shmona, the northernmost Israeli city near the border with Lebanon.`\
+https://nytimes.com/2024/09/25/world/middleeast/kiryat-shmona-border-town.html
+
+**Threats to Trump May Prompt Changes in Travel Plans and Event Types**\
+`Secret Service officials have advised altering routines and rethinking rally locations, after threats from Iran and two assassination attempts.`\
+https://nytimes.com/2024/09/25/us/politics/trump-travel-events-threats.html
+
 **Harris Cast Herself as a Pro-Business Pragmatist**\
 `Also, the U.S. is trying to broker an Israel-Hezbollah cease-fire. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/09/25/briefing/harris-economic-speech-worlds-oldest-cheese.html
