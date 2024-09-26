@@ -1,3 +1,7 @@
+**Derrick Rose, former Bulls MVP, retires after 16 seasons**\
+`"I believe true success comes from becoming who you were created to be, and I want to show the world who I am beyond basketball,” Rose said.`\
+https://nytimes.com/athletic/5795527/2024/09/26/derrick-rose-retirement/
+
 **Chemistry between Jayden Daniels and Terry McLaurin grew with NFL world watching**\
 `The "pieces fell in place" vs. Cincinnati for the quarterback-receiver duo after failing to find a rhythm the first two weeks of the season.`\
 https://nytimes.com/athletic/5795113/2024/09/26/commanders-jayden-daniels-terry-mclaurin/
