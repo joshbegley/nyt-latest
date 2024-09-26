@@ -1,3 +1,11 @@
+**Fernandes' unusual style presents a tactical conundrum for United and Ten Hag**\
+`The captain has been far from his best this term - his high-risk/high-reward approach is yet to pay off. United need that to change quickly`\
+https://nytimes.com/athletic/5793292/2024/09/26/bruno-fernandes-erik-ten-hag-manchester-united/
+
+**WNBA denounces negative messages players receive online**\
+`The email posted on Carrington’s Instagram story included a racial slur and the threat of sexual assault.`\
+https://nytimes.com/athletic/5795621/2024/09/26/wnba-dijonai-carrington-negative-online-messages/
+
 **Sicily’s New Hot Spot? A 300-Year-Old Palazzo Turned Museum.**\
 `An Italian couple turned Palazzo Butera into a repository for the eclectic and largely unseen artworks they had collected over 50 years.`\
 https://nytimes.com/2024/09/26/arts/design/sicily-palazzo-butera-museum.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5795262/2024/09/26/fantasy-baseball-2025-closer-tie
 **Jasson Domínguez's defense under fire as Yankees lose, Orioles clinch playoff spot**\
 `Domínguez’s poor fielding set the sloppy tone of the night. Still, New York needs just one more win to take the division.`\
 https://nytimes.com/athletic/5795413/2024/09/26/yankees-jasson-dominguez-orioles/
-
-**Louie Varland's 'bark' helps power Twins to critical victory**\
-`"Right before you go out there, he gives you a bark and it’s like, ‘He’s ready.’ It kind of just gets you going," Byron Buxton said.`\
-https://nytimes.com/athletic/5795457/2024/09/26/louie-varland-twins-victory/
-
-**FPL: How to take advantage of the Gameweek 6 fixture swings**\
-`A number of the leading clubs experience major fixture swings from Gameweek 6 onwards, so how can you capitalise? `\
-https://nytimes.com/athletic/5790398/2024/09/26/fantasy-premier-league-gw6-fixtures-wildcard/
 

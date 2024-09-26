@@ -1,3 +1,11 @@
+**Fernandes' unusual style presents a tactical conundrum for United and Ten Hag**\
+`The captain has been far from his best this term - his high-risk/high-reward approach is yet to pay off. United need that to change quickly`\
+https://nytimes.com/athletic/5793292/2024/09/26/bruno-fernandes-erik-ten-hag-manchester-united/
+
+**WNBA denounces negative messages players receive online**\
+`The email posted on Carrington’s Instagram story included a racial slur and the threat of sexual assault.`\
+https://nytimes.com/athletic/5795621/2024/09/26/wnba-dijonai-carrington-negative-online-messages/
+
 **Sicily’s New Hot Spot? A 300-Year-Old Palazzo Turned Museum.**\
 `An Italian couple turned Palazzo Butera into a repository for the eclectic and largely unseen artworks they had collected over 50 years.`\
 https://nytimes.com/2024/09/26/arts/design/sicily-palazzo-butera-museum.html
