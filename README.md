@@ -1,3 +1,7 @@
+**The Best Sheets for Your Bed**\
+`We found linen, percale, sateen and flannel options.`\
+https://nytimes.com/interactive/2024/09/26/smarter-living/wirecutter/best-sheets.html
+
 **Holy Hollywood! Batman Is the First Superhero With a Walk of Fame Star.**\
 `The caped crusader, who debuted in 1939, joins other illustrious figures — including Adam West, the actor who played him on TV.`\
 https://nytimes.com/2024/09/26/arts/batman-hollywood-star.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/26/magazine/hong-kong-dai-pai-dong.html
 **Hunting for One of the World’s Most Exquisite Peppers**\
 `A trip to Peru in search of the essence of ají amarillo.`\
 https://nytimes.com/interactive/2024/09/26/magazine/aji-amarillo-pepper-peru.html
-
-**Food Voyages**\
-`Six journeys in search of a single bite.`\
-https://nytimes.com/interactive/2024/09/26/magazine/food-voyages.html
 
