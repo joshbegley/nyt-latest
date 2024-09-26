@@ -1,3 +1,7 @@
+**They Used to Rule the World. What Happened?**\
+`Conservatism, the force that has dominated Western politics since World War II, is in danger of being swallowed by the far right.`\
+https://nytimes.com/2024/09/26/opinion/trump-far-right-conservatism.html
+
 **MLB bullpen report: The way too early closer tiers for 2025, with Emmanuel Clase at the head of the class**\
 `For his final bullpen report of the 2024 season, Greg Jewett spins it forward with a way too early look at the Top 5 closer tiers for 2025.`\
 https://nytimes.com/athletic/5795262/2024/09/26/fantasy-baseball-2025-closer-tiers-clase/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794012/2024/09/26/carlo-ancelotti-real-madrid-la-l
 **Marc Cucurella is perfect for Maresca’s inverted full-back plan - especially in attack**\
 `Marc Cucurella struggled at Chelsea at first. Now he has found the ideal role`\
 https://nytimes.com/athletic/5793505/2024/09/26/cucurella-inverted-full-back/
-
-**Thursday Briefing: A Proposed Cease-Fire between Israel and Hezbollah**\
-`Plus, 3,600-year-old cheese.`\
-https://nytimes.com/2024/09/26/briefing/israel-hezbollah-trump-eric-adams.html
 
