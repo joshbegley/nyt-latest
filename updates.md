@@ -1,3 +1,7 @@
+**Collier powers Lynx to WNBA semifinals with 42-point Game 2**\
+`Collier’s 42 set both her career-high and a franchise record in scoring for the second time in four days.`\
+https://nytimes.com/athletic/5795455/2024/09/26/lynx-mercury-game-2-result-napheesa-collier/
+
 **Brain games: Concern levels for Bears, Bijan, and more, heading into Week 4**\
 `Renee Miller looks at frustrating players on bad teams, offering her expectations for what to expect from them in Week 4 and beyond.`\
 https://nytimes.com/athletic/5794829/2024/09/26/brain-games-week-4-fantasy-football-bijan-bears/
