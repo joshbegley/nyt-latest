@@ -1,3 +1,11 @@
+**Louie Varland's 'bark' helps power Twins to critical victory**\
+`"Right before you go out there, he gives you a bark and it’s like, ‘He’s ready.’ It kind of just gets you going," Byron Buxton said.`\
+https://nytimes.com/athletic/5795457/2024/09/26/louie-varland-twins-victory/
+
+**FPL: How to take advantage of the Gameweek 6 fixture swings**\
+`A number of the leading clubs experience major fixture swings from Gameweek 6 onwards, so how can you capitalise? `\
+https://nytimes.com/athletic/5790398/2024/09/26/fantasy-premier-league-gw6-fixtures-wildcard/
+
 **UNLV, Air Force expected to remain in Mountain West**\
 `It’s another blow to the rebuilding Pac-12, which has raided the Mountain West for new members.`\
 https://nytimes.com/athletic/5795479/2024/09/26/unlv-air-force-mountain-west-pac-12/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5793283/2024/09/26/premier-league-takeaways-five-ga
 **Collier powers Lynx to WNBA semifinals with 42-point Game 2**\
 `Collier’s 42 set both her career-high and a franchise record in scoring for the second time in four days.`\
 https://nytimes.com/athletic/5795455/2024/09/26/lynx-mercury-game-2-result-napheesa-collier/
-
-**Brain games: Concern levels for Bears, Bijan, and more, heading into Week 4**\
-`Renee Miller looks at frustrating players on bad teams, offering her expectations for what to expect from them in Week 4 and beyond.`\
-https://nytimes.com/athletic/5794829/2024/09/26/brain-games-week-4-fantasy-football-bijan-bears/
-
-**No wins in their first five Premier League games: How worried should the bottom six be?**\
-`This is the first top-flight season ever where six teams have still been without a win after playing five matches. Is it too soon to panic?`\
-https://nytimes.com/athletic/5793187/2024/09/26/premier-league-bottom-six-worst-start/
 

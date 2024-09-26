@@ -1,3 +1,11 @@
+**Louie Varland's 'bark' helps power Twins to critical victory**\
+`"Right before you go out there, he gives you a bark and it’s like, ‘He’s ready.’ It kind of just gets you going," Byron Buxton said.`\
+https://nytimes.com/athletic/5795457/2024/09/26/louie-varland-twins-victory/
+
+**FPL: How to take advantage of the Gameweek 6 fixture swings**\
+`A number of the leading clubs experience major fixture swings from Gameweek 6 onwards, so how can you capitalise? `\
+https://nytimes.com/athletic/5790398/2024/09/26/fantasy-premier-league-gw6-fixtures-wildcard/
+
 **UNLV, Air Force expected to remain in Mountain West**\
 `It’s another blow to the rebuilding Pac-12, which has raided the Mountain West for new members.`\
 https://nytimes.com/athletic/5795479/2024/09/26/unlv-air-force-mountain-west-pac-12/
