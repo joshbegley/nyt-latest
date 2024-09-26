@@ -1,3 +1,11 @@
+**Kamala Harris’s Campaign Thinks She Can Win on the Economy. Here’s How.**\
+`Harris advisers point to a number of brightening public polls showing that Donald Trump’s lead is eroding on the critical question of whom voters trust most on the economy.`\
+https://nytimes.com/2024/09/26/us/politics/trump-harris-economy.html
+
+**What I'm seeing from Penguins: Graves' start, Karlsson injury update**\
+`Graves has to show his coach and GM he's worthy of a top-four spot, and soon.`\
+https://nytimes.com/athletic/5797390/2024/09/26/penguins-erik-karlsson-injury-update/
+
 **Zelensky’s Star Power Fades on Capitol Hill**\
 `As the war drags on, Ukraine’s president receives a quieter welcome in Washington and faces angry questions from some Republicans.`\
 https://nytimes.com/2024/09/26/us/ukraine-zelensky-washington-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/26/business/economy/port-strike-dockworkers-negotiat
 **Democrats Seek Another Opening in a Challenging Senate Map**\
 `New investments in Texas and Florida show how the party is reaching to keep its majority alive.`\
 https://nytimes.com/2024/09/26/us/politics/democrats-senate-florida-texas.html
-
-**Bills restructuring front office in moves they say will bring franchise into '21st century'**\
-`Buffalo added two hires to its front office.`\
-https://nytimes.com/athletic/5797292/2024/09/26/bills-front-office-moves-orchard-park/
-
-**Have We Hit Peak Hand Roll Yet?**\
-`There are at least a dozen spots in New York City, but some sushi hand rolls are better than others.`\
-https://nytimes.com/2024/09/26/dining/have-we-hit-peak-hand-roll-yet.html
 
