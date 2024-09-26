@@ -1,3 +1,11 @@
+**Zelensky Warns World Leaders of Continued Russian Threats**\
+`The president of Ukraine called Russia’s push for more land “insane” in his speech to world leaders at the U.N. General Assembly in New York.`\
+https://nytimes.com/video/world/europe/100000009721098/zelensky-unga-russia-ukraine.html
+
+**Mayor Eric Adams Vows to Fight Federal Indictment Against Him**\
+`In a videotaped speech, Mr. Adams said any charges against him would be “false” and said that he will continue to lead as mayor of the city.`\
+https://nytimes.com/video/nyregion/100000009721164/mayor-eric-adams-vows-to-fight-federal-indictment-against-him.html
+
 **With Eric Adams Indicted, What Happens Next?**\
 `New York voters cannot recall the mayor and he is not required to resign, but Gov. Kathy Hochul has the power to remove him. She would be in uncharted territory.`\
 https://nytimes.com/2024/09/25/nyregion/impeach-adams-governor-ny-city-charter.html
