@@ -1,3 +1,7 @@
+**Frank Coppa, First Bonanno Mafia Family Member to Flip, Dies at 83**\
+`His decision to describe gruesome murders to the F.B.I. led at least 10 other members to do the same and ultimately immobilized a mafia family.`\
+https://nytimes.com/2024/09/26/nyregion/frank-coppa-dead.html
+
 **Melania Trump Gives a Rare Interview: 3 Takeaways**\
 `While promoting a memoir, the former first lady told Fox News that she blamed Democrats and members of the news media for the assassination attempts against her husband.`\
 https://nytimes.com/2024/09/26/us/politics/melania-trump-fox-news-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5796010/2024/09/26/manchester-united-questions-ten-
 **NASCAR at Kansas odds, picks for playoffs: Can Larson complete Kansas sweep?**\
 `The Cup Series playoffs head to the next round of three races before another set of eliminations. Get odds and picks for Kansas. `\
 https://nytimes.com/athletic/5796422/2024/09/26/nascar-cup-series-kansas-speedway-playoff-race-odds-expert-predictions/
-
-**What’s next for Caitlin Clark and the Fever after elimination from the WNBA playoffs?**\
-`With some fine-tuning, the Fever are in position to build toward winning a WNBA championship.`\
-https://nytimes.com/athletic/5796597/2024/09/26/caitlin-clark-fever-wnba-playoffs-future/
 
