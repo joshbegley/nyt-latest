@@ -1,3 +1,7 @@
+**Getafe president criticises own player for highlighting racist abuse in Spain**\
+`Getafe president Angel Torres has criticised his player Christantus Uche following the Nigerian midfielder&#8217;s complaints about racism and treatment by referees in La Liga.`\
+https://nytimes.com/athletic/5795926/2024/09/26/christantus-uche-racism-getafe-angel-torres/
+
 **Caleb Williams, Matthew Stafford share unique QB perspective, mutual admiration**\
 `Stafford, a 16-year NFL veteran, has become a quarterback that some of the league's younger QBs — like Williams — revere.`\
 https://nytimes.com/athletic/5794980/2024/09/26/caleb-williams-matthew-stafford-bears-rams/
