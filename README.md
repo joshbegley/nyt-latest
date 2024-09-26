@@ -1,3 +1,11 @@
+**Inside the Minds of Swing Voters**\
+`We explain the results of a poll of undecided voters.`\
+https://nytimes.com/2024/09/26/briefing/swing-voters-2024-election-trump-harris.html
+
+**Dozens, Mostly Children, Drown During a Hindu Festival**\
+`At least 46 died in a ceremony that involves bathing in local rivers and streams in Bihar State, where recent rains had raised water levels.`\
+https://nytimes.com/2024/09/26/world/asia/india-drowning-deaths-festival.html
+
 **Derrick Rose, former Bulls MVP, retires after 16 seasons**\
 `"I believe true success comes from becoming who you were created to be, and I want to show the world who I am beyond basketball,” Rose said.`\
 https://nytimes.com/athletic/5795527/2024/09/26/derrick-rose-retirement/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5791757/2024/09/26/zion-williamson-pelicans-offseas
 **No, the Chiefs don't have a Travis Kelce problem**\
 `Even though Kelce has just eight receptions for 69 yards this season, the film shows he's still getting open. `\
 https://nytimes.com/athletic/5792045/2024/09/26/travis-kelce-slow-start-performance-chiefs/
-
-**Can Austin Watson make the Red Wings?**\
-`Watson had success playing against the Red Wings in the past. Now on a tryout contract, he's looking to give them an element they've lacked.`\
-https://nytimes.com/athletic/5794716/2024/09/26/red-wings-austin-watson-roster-tryout/
-
-**Does Alabama have what it takes to 'attack' Georgia's immovable defense?**\
-`Alabama's going to need explosive plays Saturday against a team that gives up hardly any big plays and has yet to allow a touchdown.`\
-https://nytimes.com/athletic/5794967/2024/09/26/alabama-georgia-football-defense/
 
