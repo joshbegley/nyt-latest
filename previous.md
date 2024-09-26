@@ -1,3 +1,7 @@
+**Powerlifter’s Sound**\
+`You may not know which way you’re going in this New York Times Crossword debut by Jesse Guzman.`\
+https://nytimes.com/2024/09/25/crosswords/daily-puzzle-2024-09-26.html
+
 **Sun eliminate Fever to end Caitlin Clark's rookie season**\
 `Connecticut may not have been the team that struck first, but the Sun recovered soon enough in a 87-81 win over the Fever.`\
 https://nytimes.com/athletic/5795264/2024/09/25/caitlin-clark-fever-sun-wnba-playoffs/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5795264/2024/09/25/caitlin-clark-fever-sun-wnba-pla
 https://nytimes.com/2024/09/25/us/politics/house-biden-harris-afghanistan-withdrawal.html
 
 **USC's Bear Alexander intends to redshirt: Sources**\
-`The former five-star prospect did not start any of the Trojans' first three games but did play significant snaps against LSU and Michigan. `\
+`The former five-star prospect did not start any of the Trojans' first three games but played significant snaps against LSU and Michigan.`\
 https://nytimes.com/athletic/5795104/2024/09/25/usc-bear-alexander-redshirt-transfer/
 
 **What Happens if Mayor Eric Adams Resigns?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/nyregion/eric-adams-indicted.html
 **Phillies clinch first-round bye in playoffs, hold tiebreakers for No. 1 seed**\
 `Now, the Phillies know this: They will not play a postseason game until Oct. 5.`\
 https://nytimes.com/athletic/5795154/2024/09/25/phillies-first-round-bye-mlb-playoffs/
-
-**Craig Breslow on the Red Sox season, rotation, trades, prospects and more**\
-`The Red Sox, among other options, could look to their position player prospect pipeline for trade chips in a deal for a frontline starter.`\
-https://nytimes.com/athletic/5795091/2024/09/25/craig-breslow-red-sox-season-assessment/
 

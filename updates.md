@@ -1,3 +1,11 @@
+**Powerlifter’s Sound**\
+`You may not know which way you’re going in this New York Times Crossword debut by Jesse Guzman.`\
+https://nytimes.com/2024/09/25/crosswords/daily-puzzle-2024-09-26.html
+
+**USC's Bear Alexander intends to redshirt: Sources**\
+`The former five-star prospect did not start any of the Trojans' first three games but played significant snaps against LSU and Michigan.`\
+https://nytimes.com/athletic/5795104/2024/09/25/usc-bear-alexander-redshirt-transfer/
+
 **Sun eliminate Fever to end Caitlin Clark's rookie season**\
 `Connecticut may not have been the team that struck first, but the Sun recovered soon enough in a 87-81 win over the Fever.`\
 https://nytimes.com/athletic/5795264/2024/09/25/caitlin-clark-fever-sun-wnba-playoffs/
