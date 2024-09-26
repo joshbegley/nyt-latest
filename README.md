@@ -1,3 +1,7 @@
+**NASCAR at Kansas odds, picks for playoffs: Can Larson complete Kansas sweep?**\
+`The Cup Series playoffs head to the next round of three races before another set of eliminations. Get odds and picks for Kansas. `\
+https://nytimes.com/athletic/5796422/2024/09/26/nascar-cup-series-kansas-speedway-playoff-race-odds-expert-predictions/
+
 **What’s next for Caitlin Clark and the Fever after elimination from the WNBA playoffs?**\
 `With some fine-tuning, the Fever are in position to build toward winning a WNBA championship.`\
 https://nytimes.com/athletic/5796597/2024/09/26/caitlin-clark-fever-wnba-playoffs-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5795641/2024/09/26/vince-mcmahon-netflix-documentar
 **Scoop City: Hope for 1-2 contenders, including 49ers, Ravens**\
 `In the past 25 years, only three teams won the Super Bowl after entering Week 4 with losing records. Can the 49ers, Ravens, others join?`\
 https://nytimes.com/athletic/5796635/2024/09/26/scoop-city-hope-for-1-2-contenders-including-49ers-ravens/
-
-**Commuters See ‘Islamophobic’ Message in Cyber Attack on Public Wi-Fi, Authorities Say**\
-`The British authorities are investigating after commuters at 19 train stations saw an Islamophobic message when they tried to log on to a public Wi-Fi system.`\
-https://nytimes.com/2024/09/26/world/europe/britain-rail-cyber-attack.html
 
