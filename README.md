@@ -1,3 +1,7 @@
+**As a Finnish Zoo Returns Pandas to China, It Blames Costs, Not Geopolitics**\
+`Two pandas are heading back to China eight years early amid lower-than-hoped-for visitor numbers at a zoo in rural Finland, and after the pair didn’t produce a cub.`\
+https://nytimes.com/2024/09/26/world/europe/finland-china-pandas-return.html
+
 **Frank Coppa, First Bonanno Mafia Family Member to Flip, Dies at 83**\
 `His decision to describe gruesome murders to the F.B.I. led at least 10 other members to do the same and ultimately immobilized a mafia family.`\
 https://nytimes.com/2024/09/26/nyregion/frank-coppa-dead.html
@@ -23,8 +27,8 @@ https://nytimes.com/2024/09/26/us/trump-election-case-evidence.html
 https://nytimes.com/2024/09/26/arts/mauritshuis-museum-rembrandt-heirs-dispute.html
 
 **Israel says it killed another Hezbollah commander in Beirut.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/israel-says-it-killed-another-hezbollah-commander-in-beirut
+`The Israeli military said the commander, Mohamed Hussein Sarour, was killed in strike. There was no immediate confirmation from Hezbollah.`\
+https://nytimes.com/2024/09/26/world/middleeast/israel-hezbollah-commander-in-beirut.html
 
 **Israel says it targeted Hamas in a strike on a school compound. Gazan officials report women and children were killed.**\
 `By Matthew Mpoke Bigg`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/israel-
 **Manchester United live Q&A: Laurie Whitwell answers your questions**\
 `Our United writer will be on hand to respond to your queries after Erik ten Hag speaks to the media this afternoon`\
 https://nytimes.com/athletic/5796010/2024/09/26/manchester-united-questions-ten-hag/
-
-**NASCAR at Kansas odds, picks for playoffs: Can Larson complete Kansas sweep?**\
-`The Cup Series playoffs head to the next round of three races before another set of eliminations. Get odds and picks for Kansas. `\
-https://nytimes.com/athletic/5796422/2024/09/26/nascar-cup-series-kansas-speedway-playoff-race-odds-expert-predictions/
 
