@@ -1,3 +1,15 @@
+**The mayor’s public defense has leaned on conspiracy theories and race.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/the-mayors-public-defense-has-leaned-on-conspiracy-theories-and-race
+
+**Jets roster projection: Predicting opening-night lineup, final camp battles**\
+`One week into camp, Winnipeg's roster battles are sorting themselves out ahead of the regular season.`\
+https://nytimes.com/athletic/5797311/2024/09/26/jets-roster-depth-chart-2024/
+
+**Braves' star Ronald Acuña Jr. on Ohtani's feats and return from 2nd ACL surgery**\
+`Acuña said he will be "a little more cautious and careful" with his return from his second ACL surgery compared to the first one.`\
+https://nytimes.com/athletic/5797743/2024/09/26/braves-ronald-acuna-jr-ohtani-acl-surgery-update/
+
 **F.D.A. Approves the First New Schizophrenia Drug in Decades**\
 `Available antipsychotic treatments work by blocking dopamine receptors. The new drug, Cobenfy, takes a different approach.`\
 https://nytimes.com/2024/09/26/health/fda-schizophrenia-drug.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/26/style/africa-fashion-diaspora-museum-at-fit.html
 **Pope Punishes Members of Catholic Group in Peru After Vatican Investigation**\
 `The Vatican expelled 10 members from Sodalitium Christianae Vitae, a group founded in Peru, after investigators reported cases of physical abuse and cultlike control.`\
 https://nytimes.com/2024/09/26/world/europe/pope-peru-sodalitium.html
-
-**10-Minute Challenge: Hiroshige’s ‘Sudden Rain’**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2024/09/26/upshot/ten-minute-challenge-bridge.html
-
-**Sun-Fever Game 2 (ESPN) becomes most-watched WNBA playoff game**\
-`ESPN’s coverage of the Sun’s Game 2 win over the Fever delivered an astonishing 2.5 million viewers.`\
-https://nytimes.com/athletic/5797630/2024/09/26/sun-fever-game-2-viewership-espn/
-
-**With both cheers and angry chants, Oakland fans send off beloved A's in final home game**\
-`The fans celebrated the final A's game at the Oakland Coliseum all day, while making their displeasure at owner John Fisher known.  `\
-https://nytimes.com/athletic/5797738/2024/09/26/oakland-as-final-game-coliseum/
 
