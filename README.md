@@ -1,3 +1,7 @@
+**For the Tigers, a rocky start, a raucous homer and a rocking Jackson Jobe debut**\
+`Another night went according to script, this one even lacking the drama that has followed the cardiac cats all September.`\
+https://nytimes.com/athletic/5795371/2024/09/25/tigers-playoff-chase-jackson-jobe-debut/
+
 **Zelensky Warns World Leaders of Continued Russian Threats**\
 `The president of Ukraine called Russia’s push for more land “insane” in his speech to world leaders at the U.N. General Assembly in New York.`\
 https://nytimes.com/video/world/europe/100000009721098/zelensky-unga-russia-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/nyregion/eric-adams-resignation-calls-list.html
 **Powerlifter’s Sound**\
 `You may not know which way you’re going in this New York Times Crossword debut by Jesse Guzman.`\
 https://nytimes.com/2024/09/25/crosswords/daily-puzzle-2024-09-26.html
-
-**Sun eliminate Fever to end Caitlin Clark's rookie season**\
-`Connecticut may not have been the team that struck first, but the Sun recovered soon enough in a 87-81 win over the Fever.`\
-https://nytimes.com/athletic/5795264/2024/09/25/caitlin-clark-fever-sun-wnba-playoffs/
 
