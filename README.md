@@ -1,3 +1,11 @@
+**Hong Kong Editors Sentenced in Landmark Case**\
+`The two journalists for Stand News were convicted in August of conspiracy to publish seditious articles, in a case signaling new limits on press freedom.`\
+https://nytimes.com/2024/09/26/world/asia/stand-news-sentences-hong-kong.html
+
+**Federal Agents Search Gracie Mansion in Adams Corruption Investigation**\
+`Agents searched the mayor’s official residence on the Upper East Side of Manhattan hours before federal prosecutors, the F.B.I. and city investigators were to announce corruption charges against him.`\
+https://nytimes.com/2024/09/26/nyregion/fbi-adams-raid-city-hall-nyc.html
+
 **The Pulse: An NIL opt-out that could change college football**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5794623/2024/09/26/matthew-sluka-opt-out-nil-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5792234/2024/09/26/kasimir-kaskisuo-youtube-nhl-bru
 **‘The Universal Theory’ Review: A Quantum Noir**\
 `A physicist becomes embroiled in a conspiracy throughout this German meta-thriller. Shot in black-and-white, the film pays homage to Hollywood classics.`\
 https://nytimes.com/2024/09/26/movies/the-universal-theory-review.html
-
-**Why do Spanish football matches kick off so late?**\
-`Real Madrid and Barcelona games regularly start at 9pm local time — and that's not even the latest kick-off time for La Liga fixtures`\
-https://nytimes.com/athletic/5790621/2024/09/26/spanish-football-la-liga-late-kick-offs/
-
-**‘Rez Ball’ Review: Warriors on the Court**\
-`This inspirational sports movie follows a high school basketball team in New Mexico with deep Native American heritage.`\
-https://nytimes.com/2024/09/26/movies/rez-ball-review-warriors.html
 
