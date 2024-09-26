@@ -1,3 +1,19 @@
+**Here are the latest developments.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/here-are-the-latest-developments
+
+**Netanyahu stays mum on the cease-fire proposal, as his allies and rivals alike reject it.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/netanyahu-stays-mum-on-the-cease-fire-proposal-as-his-allies-and-rivals-alike-reject-it
+
+**Here’s the latest on the mayor’s indictment.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/heres-the-latest-on-the-mayors-indictment
+
+**Live Updates: Prosecutors to Unveil Charges Against Adams as He Faces Calls to Resign**\
+`Mayor Eric Adams, indicted in a lengthy corruption investigation, insisted he was innocent. Prosecutors are expected to announce the charges on Thursday.`\
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news
+
 **Hezbollah’s Relationship to Lebanon Mixes Military Might With Politics**\
 `The militant group is a dominant force in the country, and officials have struggled for decades to limit its power.`\
 https://nytimes.com/2024/09/26/world/middleeast/hezbollah-israel-war-explainer.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5794134/2024/09/26/michigan-minnesota-rivalry-littl
 **Bengals' defensive line decline: Why a big investment is instead a big problem**\
 `Injuries and ineffectiveness have left Cincinnati with a glaring weakness that was paid to be a strength.`\
 https://nytimes.com/athletic/5795155/2024/09/26/bengals-defensive-line-decline/
-
-**Is drama finally in store for Nittany Lions? 3 keys and a prediction for Illinois-Penn State**\
-`No. 9 Penn State has a homecoming game against No. 19 Illinois that suddenly features two ranked and undefeated opponents.`\
-https://nytimes.com/athletic/5795525/2024/09/26/penn-state-illinois-prediction-schedule/
-
-**Patriots mailbag: When should Drake Maye play, and what will he add?**\
-`Our latest Patriots mailbag hits on Drake Maye, the offensive line and a potential move for a veteran at the trade deadline.`\
-https://nytimes.com/athletic/5794406/2024/09/26/patriots-mailbag-drake-maye-offensive-line/
-
-**Republican Candidates Keep Straying Into Dangerous Territory: Abortion**\
-`In a campaign they would like to center on the economy and the border, Republican candidates keep drifting back to abortion rights, an issue that favors Democrats.`\
-https://nytimes.com/2024/09/26/us/politics/republicans-abortion.html
-
-**Sick of the Electoral College? Stop Whining.**\
-`Blame the Committee of Unfinished Parts.`\
-https://nytimes.com/2024/09/26/opinion/electoral-college-votes.html
 

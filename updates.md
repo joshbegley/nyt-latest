@@ -1,3 +1,19 @@
+**Here are the latest developments.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/here-are-the-latest-developments
+
+**Netanyahu stays mum on the cease-fire proposal, as his allies and rivals alike reject it.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/netanyahu-stays-mum-on-the-cease-fire-proposal-as-his-allies-and-rivals-alike-reject-it
+
+**Here’s the latest on the mayor’s indictment.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/heres-the-latest-on-the-mayors-indictment
+
+**Live Updates: Prosecutors to Unveil Charges Against Adams as He Faces Calls to Resign**\
+`Mayor Eric Adams, indicted in a lengthy corruption investigation, insisted he was innocent. Prosecutors are expected to announce the charges on Thursday.`\
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news
+
 **Hezbollah’s Relationship to Lebanon Mixes Military Might With Politics**\
 `The militant group is a dominant force in the country, and officials have struggled for decades to limit its power.`\
 https://nytimes.com/2024/09/26/world/middleeast/hezbollah-israel-war-explainer.html
