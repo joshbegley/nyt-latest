@@ -1,3 +1,7 @@
+**Late-season stakes have come for Shohei Ohtani, and he's delivering for the Dodgers**\
+`The Dodgers can pop bottles as soon as Thursday after a 4-3 win Wednesday. The calendar has not flipped to October, but Ohtani has arrived.`\
+https://nytimes.com/athletic/5795688/2024/09/26/shohei-ohtani-delivering-dodgers-late-season-stakes/
+
 **As Adams Faces Calls to Resign, Jumaane Williams May Play a Pivotal Role**\
 `Mr. Williams, New York City’s public advocate, would become acting mayor if Eric Adams resigns. He says he is prepared for that moment.`\
 https://nytimes.com/2024/09/26/nyregion/jumaane-williams-mayor-adams.html

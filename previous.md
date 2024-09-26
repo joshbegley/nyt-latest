@@ -1,3 +1,7 @@
+**Late-season stakes have come for Shohei Ohtani, and he's delivering for the Dodgers**\
+`The Dodgers can pop bottles as soon as Thursday after a 4-3 win Wednesday. The calendar has not flipped to October, but Ohtani has arrived.`\
+https://nytimes.com/athletic/5795688/2024/09/26/shohei-ohtani-delivering-dodgers-late-season-stakes/
+
 **As Adams Faces Calls to Resign, Jumaane Williams May Play a Pivotal Role**\
 `Mr. Williams, New York City’s public advocate, would become acting mayor if Eric Adams resigns. He says he is prepared for that moment.`\
 https://nytimes.com/2024/09/26/nyregion/jumaane-williams-mayor-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5795071/2024/09/26/arsenal-bolton-nwaneri-lewis-ske
 **Fernandes' unusual style presents a tactical conundrum for United and Ten Hag**\
 `The captain has been far from his best this term - his high-risk/high-reward approach is yet to pay off. United need that to change quickly`\
 https://nytimes.com/athletic/5793292/2024/09/26/bruno-fernandes-erik-ten-hag-manchester-united/
-
-**WNBA denounces negative messages players receive online**\
-`The email posted on Carrington’s Instagram story included a racial slur and the threat of sexual assault.`\
-https://nytimes.com/athletic/5795621/2024/09/26/wnba-dijonai-carrington-negative-online-messages/
 
