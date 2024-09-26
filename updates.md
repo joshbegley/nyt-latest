@@ -1,3 +1,7 @@
+**Tiny Cedar Key Has Been Hit Before. Now, It Faces a Huge Storm.**\
+`Many residents have evacuated Cedar Key, a community on a string of islands jutting into the Gulf of Mexico. But about 50 people have remained to risk Hurricane Helene.`\
+https://nytimes.com/2024/09/26/weather/florida-hurricane-helene-evacuations.html
+
 **Trump’s Plans Could Spur Inflation While Slowing Growth, Study Finds**\
 `A nonpartisan economic analysis warned that deporting migrants and increasing tariffs would damage the U.S. economy.`\
 https://nytimes.com/2024/09/26/business/economy/trump-economy-inflation-growth.html

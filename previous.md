@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5796572/2024/09/26/premier-league-meeting-apt-vote/
 https://nytimes.com/2024/09/26/t-magazine/therapy-art-thomas-houseago.html
 
 **Tiny Cedar Key Has Been Hit Before. Now, It Faces a Huge Storm.**\
-`Although many residents have evacuated Cedar Key, which sticks out of the edge of Florida into the Gulf of Mexico, about 50 people have remained and face the risks.`\
+`Many residents have evacuated Cedar Key, a community on a string of islands jutting into the Gulf of Mexico. But about 50 people have remained to risk Hurricane Helene.`\
 https://nytimes.com/2024/09/26/weather/florida-hurricane-helene-evacuations.html
 
 **Man United aiming to win Premier League by 2028, CEO tells staff**\
