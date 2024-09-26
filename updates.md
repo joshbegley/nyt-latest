@@ -1,3 +1,7 @@
+**Desi Lydic Ridicules Trump for Demanding Harris’s ‘Burger Certificate’**\
+`“This isn’t the kind of thing you would lie about,” Lydic said. “It’s not like sex with a porn star while your wife is pregnant.”`\
+https://nytimes.com/2024/09/26/arts/television/trump-harris-mcdonalds.html
+
 **They Used to Rule the World. What Happened?**\
 `Conservatism, the force that has dominated Western politics since World War II, is in danger of being swallowed by the far right.`\
 https://nytimes.com/2024/09/26/opinion/trump-far-right-conservatism.html
