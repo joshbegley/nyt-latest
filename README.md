@@ -1,3 +1,19 @@
+**Hezbollah’s Relationship to Lebanon Mixes Military Might With Politics**\
+`The militant group is a dominant force in the country, and officials have struggled for decades to limit its power.`\
+https://nytimes.com/2024/09/26/world/middleeast/hezbollah-israel-war-explainer.html
+
+**Brighton's Joao Pedro out of Chelsea game but Hurzeler avoids touchline ban**\
+`Brighton and Hove Albion will be without forward Joao Pedro at Chelsea on Saturday — but head coach Fabian Hurzeler will be in the technical area after escaping a touchline ban.`\
+https://nytimes.com/athletic/5795890/2024/09/26/joao-pedro-injury-brighton-hurzeler/
+
+**Let’s Discuss: ‘Love, Hate or Fear It, TikTok Has Changed America’**\
+`What role does TikTok play in your life? Read the article and post your comments and questions for our journalist Sapna Maheshwari by Oct. 3.`\
+https://nytimes.com/2024/09/26/learning/lets-discuss-love-hate-or-fear-it-tiktok-has-changed-america.html
+
+**In his first base office, Bryce Harper pays it forward with MLB's young hitters**\
+`If a young hitter stepped into Harper's office at first base this season, there's a chance the superstar had something to tell him.`\
+https://nytimes.com/athletic/5791213/2024/09/26/bryce-harper-phillies-first-base-mentoring-young-players/
+
 **Does Michigan-Minnesota still matter? A 'valuable piece of pottery' keeps a rivalry alive**\
 `Michigan and Minnesota have been exchanging the Little Brown Jug since 1903. Big Ten expansion can't take that lore away.`\
 https://nytimes.com/athletic/5794134/2024/09/26/michigan-minnesota-rivalry-little-brown-jug/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/26/us/politics/republicans-abortion.html
 **Sick of the Electoral College? Stop Whining.**\
 `Blame the Committee of Unfinished Parts.`\
 https://nytimes.com/2024/09/26/opinion/electoral-college-votes.html
-
-**Newsmax Defamation Case Over 2020 Election Is Set to Begin**\
-`Smartmatic, an election technology company, has accused the right-wing cable news channel of knowingly spreading false vote-rigging claims.`\
-https://nytimes.com/2024/09/26/business/media/newsmax-smartmatic-defamation-trial.html
-
-**An ‘Utterly Bonkers’ Miscarriage of Justice in Texas**\
-`Are we ever going to take civil rights laws at face value?`\
-https://nytimes.com/2024/09/26/opinion/texas-erma-wilson-marcellus-williams.html
-
-**A’s Fans Cheered. Then They Protested. Now They Mourn.**\
-`Fan groups that once partnered with Oakland’s ownership turned into its most vocal critics. With nothing left to fight, they will stage a funeral of sorts.`\
-https://nytimes.com/2024/09/26/style/oakland-fans-last-dive-bar.html
-
-**Starting a New Chapter in the Twin Cities for Less Than $180,000**\
-`A recent retiree toured condos of all stripes in Minneapolis and St. Paul, looking for something he could get excited about. Here’s what he found.`\
-https://nytimes.com/interactive/2024/09/26/realestate/minnesota-one-bedroom-condo.html
 
