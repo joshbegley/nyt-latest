@@ -1,40 +1,40 @@
-**Inside the Minds of Swing Voters**\
-`We explain the results of a poll of undecided voters.`\
-https://nytimes.com/2024/09/26/briefing/swing-voters-2024-election-trump-harris.html
+**My Oakland A’s story: Coliseum treasures, and the community we built to last**\
+`With the Oakland A's set to leave the Coliseum behind, what's the right way to say goodbye?`\
+https://nytimes.com/athletic/5794274/2024/09/26/oakland-as-move-las-vegas/
 
-**Dozens, Mostly Children, Drown During a Hindu Festival**\
-`At least 46 died in a ceremony that involves bathing in local rivers and streams in Bihar State, where recent rains had raised water levels.`\
-https://nytimes.com/2024/09/26/world/asia/india-drowning-deaths-festival.html
+**Liverpool's 'pinball' move that makes the most of Salah**\
+`Salah's ability to hold off defenders and play with his back to goal makes him a strong outlet for the 'pinball' move - this is how it works`\
+https://nytimes.com/athletic/5790361/2024/09/26/liverpool-mohamed-salah-slot/
 
-**Derrick Rose, former Bulls MVP, retires after 16 seasons**\
-`"I believe true success comes from becoming who you were created to be, and I want to show the world who I am beyond basketball,” Rose said.`\
-https://nytimes.com/athletic/5795527/2024/09/26/derrick-rose-retirement/
+**Broncos enjoying 'change of scenery' in serene West Virginia, but focus is on Jets**\
+`The Broncos had a unique off day at the sprawling, 11,000-acre Greenbrier resort but have since settled in for a critical week of practice.`\
+https://nytimes.com/athletic/5793947/2024/09/26/broncos-practice-west-virginia-jets/
 
-**Chemistry between Jayden Daniels and Terry McLaurin grew with NFL world watching**\
-`The "pieces fell in place" vs. Cincinnati for the quarterback-receiver duo after failing to find a rhythm the first two weeks of the season.`\
-https://nytimes.com/athletic/5795113/2024/09/26/commanders-jayden-daniels-terry-mclaurin/
+**What I’m seeing at Blues training camp: 10 observations from the opening week**\
+`The Blues gave Philip Broberg a two-year contract with a $4.58 AAV, and through the first week of camp, you can see why.`\
+https://nytimes.com/athletic/5791015/2024/09/26/blues-training-camp-broberg/
 
-**Getafe president criticises own player for highlighting racist abuse in Spain**\
-`Getafe president Angel Torres has criticised his player Christantus Uche following the Nigerian midfielder&#8217;s complaints about racism and treatment by referees in La Liga.`\
-https://nytimes.com/athletic/5795926/2024/09/26/christantus-uche-racism-getafe-angel-torres/
+**Analysis: Can the Rangers afford a $12 million goalie? Can they afford to let one walk?**\
+`Igor Shesterkin's next contract is expected to make him the NHL's most expensive goalie. But what will it mean for the rest of the Rangers?`\
+https://nytimes.com/athletic/5794681/2024/09/26/rangers-igor-shesterkin-contract-analysis/
 
-**Caleb Williams, Matthew Stafford share unique QB perspective, mutual admiration**\
-`Stafford, a 16-year NFL veteran, has become a quarterback that some of the league's younger QBs — like Williams — revere.`\
-https://nytimes.com/athletic/5794980/2024/09/26/caleb-williams-matthew-stafford-bears-rams/
+**Meet the YouTuber trying out in NHL training camp at $137 daily**\
+`Kasimir Kaskisuo, who has played in the NHL, AHL and Swedish league in recent years, supplements his income on YouTube between gigs.`\
+https://nytimes.com/athletic/5792234/2024/09/26/kasimir-kaskisuo-youtube-nhl-bruins/
 
-**Big 12 Chaos Meter: Preseason favorites fight to avoid 0-2 hole, Colorado visits UCF**\
-`What does this week hold coming off an end-of-regulation Hail Mary, a double-digit fourth-quarter comeback and a spicy rivalry rout?`\
-https://nytimes.com/athletic/5795315/2024/09/26/big-12-chaos-meter-kansas-state-oklahoma-state-colorado-ucf/
+**‘The Universal Theory’ Review: A Quantum Noir**\
+`A physicist becomes embroiled in a conspiracy throughout this German meta-thriller. Shot in black-and-white, the film pays homage to Hollywood classics.`\
+https://nytimes.com/2024/09/26/movies/the-universal-theory-review.html
 
-**Prospect Tiers: Projecting the NHL's top under-23 players**\
-`A list of the NHL's best prospects, built with the influence of NHL scouts and analysts.`\
-https://nytimes.com/athletic/5771154/2024/09/26/nhl-prospect-tiers-rankings-bedard-2024-25/
+**Why do Spanish football matches kick off so late?**\
+`Real Madrid and Barcelona games regularly start at 9pm local time — and that's not even the latest kick-off time for La Liga fixtures`\
+https://nytimes.com/athletic/5790621/2024/09/26/spanish-football-la-liga-late-kick-offs/
 
-**What's behind Zion Williamson's newfound drive? Trust**\
-`For the first time in his rocky NBA career, Zion Williamson and the Pelicans are on the same page. Now, he's vowing to keep it that way.`\
-https://nytimes.com/athletic/5791757/2024/09/26/zion-williamson-pelicans-offseason-workouts-trust/
+**‘Rez Ball’ Review: Warriors on the Court**\
+`This inspirational sports movie follows a high school basketball team in New Mexico with deep Native American heritage.`\
+https://nytimes.com/2024/09/26/movies/rez-ball-review-warriors.html
 
-**No, the Chiefs don't have a Travis Kelce problem**\
-`Even though Kelce has just eight receptions for 69 yards this season, the film shows he's still getting open. `\
-https://nytimes.com/athletic/5792045/2024/09/26/travis-kelce-slow-start-performance-chiefs/
+**Raiders' struggling O-line might soon turn to rookies Jackson Powers-Johnson, DJ Glaze**\
+`Amid injuries and poor veteran play, the Raiders could soon look to two rookies to stem the tide on the offensive line.`\
+https://nytimes.com/athletic/5794862/2024/09/26/raiders-offensive-line-jackson-powers-johnson-dj-glaze/
 
