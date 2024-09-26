@@ -1,3 +1,23 @@
+**Commuters See ‘Islamophobic’ Message in Cyber Attack on Public Wi-Fi, Authorities Say**\
+`The British authorities are investigating after commuters at 19 train stations saw an Islamophobic message when they tried to log on to a public Wi-Fi system.`\
+https://nytimes.com/2024/09/26/world/europe/britain-rail-cyber-attack.html
+
+**A Weeknight Winner: Skillet Chicken Dinner**\
+`Melissa Clark’s skillet-braised chicken with greens is exactly the sort of easy, hearty dinner I want to cook right now.`\
+https://nytimes.com/2024/09/26/dining/a-weeknight-winner-skillet-chicken-dinner.html
+
+**A Patchwork of Cannabis Laws Creates Health Risks, Study Finds**\
+`A new report calls for public education and closing of legal loopholes to keep the public safe.`\
+https://nytimes.com/2024/09/26/science/cannabis-laws-health-risk.html
+
+**This Fish Evolved Legs That It Uses to Taste Stuff on the Seafloor**\
+`While the sea robin has legs, it still doesn’t need a bicycle.`\
+https://nytimes.com/2024/09/26/science/sea-robins-legs-tasting-fish.html
+
+**‘Killer Heat’ Review: Mediterranean Mischief**\
+`Joseph Gordon-Levitt plays a detective running from his past in a murder mystery that is mostly a stiff slog to get through.`\
+https://nytimes.com/2024/09/26/movies/killer-heat-review.html
+
 **Mirtle: 5 reasons for optimism for the Maple Leafs this season**\
 `A look at the ways we might expect the Maple Leafs to improve, year over year.`\
 https://nytimes.com/athletic/5794770/2024/09/26/maple-leafs-optimism-for-204-25/
