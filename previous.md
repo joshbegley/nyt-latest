@@ -1,3 +1,11 @@
+**What the Prosecution’s Case Has Revealed About Tyre Nichols’s Death**\
+`Prosecutors called nearly 20 witnesses to make their case against three former Memphis police officers charged in connection with the fatal beating of Mr. Nichols.`\
+https://nytimes.com/2024/09/26/us/tyre-nichols-death-prosecution.html
+
+**Nick Gravenites, Mainstay of the San Francisco Rock Scene, Dies at 85**\
+`A blues devotee from Chicago, he tasted fame in the late 1960s with the Electric Flag, a band that made its debut at Monterey but proved short-lived.`\
+https://nytimes.com/2024/09/26/arts/music/nick-gravenites-dead.html
+
 **Friday Briefing: New York City’s Mayor is Indicted**\
 `Plus, the control behind K-pop goes public.`\
 https://nytimes.com/2024/09/26/briefing/adams-indictment-netanyahu-election-interference.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009723719/biden-ukraine-package.html
 **Netanyahu Defiant as World Leaders Press for Israeli-Hezbollah Truce**\
 `Prime Minister Benjamin Netanyahu of Israel vowed to keep striking the Lebanese militants, who began launching rockets across the border almost a year ago in support of their Hamas allies in Gaza.`\
 https://nytimes.com/2024/09/26/world/middleeast/israel-hezbollah-lebanon.html
-
-**Harris Has a Lot of Strengths. Giving Interviews Isn’t One of Them.**\
-`Vice President Kamala Harris is a sharp debater and a tireless campaigner, but televised interviews are a weakness. Her professional experience may explain why.`\
-https://nytimes.com/2024/09/26/us/politics/kamala-harris-interviews-campaign.html
-
-**Lawsuit filed over Ohtani's 50th home run ball**\
-`The lawsuit disputed who rightfully possessed the baseball after it landed in the stands.`\
-https://nytimes.com/athletic/5797317/2024/09/26/shohei-ohtani-home-run-baseball-lawsuit/
 
