@@ -1,3 +1,11 @@
+**What Does a Hurricane’s Category Tell Us?**\
+`The hurricane scale classifies storms based on wind speeds and predicts potential impacts, which can help people prepare for the expected damage.`\
+https://nytimes.com/2024/09/26/weather/hurricanes-category.html
+
+**U.S. Intelligence Stresses Risks in Allowing Long-Range Strikes by Ukraine**\
+`Intelligence agencies concluded that granting Ukraine’s request to use Western missiles against targets deep in Russia could prompt forceful retaliation while not fundamentally changing the course of the war.`\
+https://nytimes.com/2024/09/26/us/politics/us-intelligence-stresses-risks-in-allowing-long-range-strikes-by-ukraine.html
+
 **Scenes From Florida as Hurricane Helene Approaches**\
 `The storm is expected to make landfall on the state’s gulf coast on Thursday evening as a Category 4 hurricane.`\
 https://nytimes.com/2024/09/26/us/hurricane-helene-florida-photos-videos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/26/arts/music/nick-gravenites-dead.html
 **Friday Briefing: New York City’s Mayor is Indicted**\
 `Plus, the control behind K-pop goes public.`\
 https://nytimes.com/2024/09/26/briefing/adams-indictment-netanyahu-election-interference.html
-
-**The Greatest City in the World, Some Really Lousy Mayors**\
-`You have to go way back to the days of the secular saint Fiorello La Guardia to come up with a New York mayor unencumbered by significant baggage.`\
-https://nytimes.com/2024/09/26/opinion/eric-adams-nyc-mayor.html
-
-**A's great Zito sings national anthem before final game in Oakland**\
-`First pitches were thrown out by two of Oakland's biggest legends, Rickey Henderson and Dave Stewart.`\
-https://nytimes.com/athletic/5797365/2024/09/26/barry-zito-national-anthem-athletics/
 
