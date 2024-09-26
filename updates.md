@@ -1,3 +1,7 @@
+**F.D.A. Approves the First New Schizophrenia Drug in Decades**\
+`Available antipsychotic treatments work by blocking dopamine receptors. The new drug, Cobenfy, takes a different approach.`\
+https://nytimes.com/2024/09/26/health/fda-schizophrenia-drug.html
+
 **Until Saturday: 2024's first game of the century, plus our Saturday viewer guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Finally, the Georgia-Alabama SEC top-five showdown is here.`\
 https://nytimes.com/athletic/5797116/2024/09/26/alabama-football-georgia-until-saturday/
