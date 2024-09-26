@@ -1,3 +1,19 @@
+**Do Sassy, Jane and xoJane Mean Anything to You?**\
+`Jane Pratt, one of the most influential editors of the last few decades, returns to media with her aptly titled project Another Jane Pratt Thing.`\
+https://nytimes.com/2024/09/26/style/do-sassy-jane-and-xojane-mean-anything-to-you.html
+
+**Biden Pledges More Weapons and Almost $8 Billion in Aid to Ukraine**\
+`President Volodymyr Zelensky of Ukraine met with President Biden at the White House on Thursday as a part of an effort to urge Congress to continue bolstering Ukraine’s effort to fend off Russia’s invasion.`\
+https://nytimes.com/video/us/politics/100000009723719/biden-ukraine-package.html
+
+**Netanyahu Defiant as World Leaders Press for Israeli-Hezbollah Truce**\
+`Prime Minister Benjamin Netanyahu of Israel vowed to keep striking the Lebanese militants, who began launching rockets across the border almost a year ago in support of their Hamas allies in Gaza.`\
+https://nytimes.com/2024/09/26/world/middleeast/israel-hezbollah-lebanon.html
+
+**Harris Has a Lot of Strengths. Giving Interviews Isn’t One of Them.**\
+`Vice President Kamala Harris is a sharp debater and a tireless campaigner, but televised interviews are a weakness. Her professional experience may explain why.`\
+https://nytimes.com/2024/09/26/us/politics/kamala-harris-interviews-campaign.html
+
 **Lawsuit filed over Ohtani's 50th home run ball**\
 `The lawsuit disputed who rightfully possessed the baseball after it landed in the stands.`\
 https://nytimes.com/athletic/5797317/2024/09/26/shohei-ohtani-home-run-baseball-lawsuit/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/26/us/politics/trump-harris-economy.html
 **What I'm seeing from Penguins: Graves' start, Karlsson injury update**\
 `Graves has to show his coach and GM he's worthy of a top-four spot, and soon.`\
 https://nytimes.com/athletic/5797390/2024/09/26/penguins-erik-karlsson-injury-update/
-
-**Zelensky’s Star Power Fades on Capitol Hill**\
-`As the war drags on, Ukraine’s president receives a quieter welcome in Washington and faces angry questions from some Republicans.`\
-https://nytimes.com/2024/09/26/us/ukraine-zelensky-washington-congress.html
-
-**New York City Mayor Charged in Bribery and Fraud Scheme**\
-`Federal prosecutors say Mayor Eric Adams of New York took illegal campaign contributions and luxury travel benefits from foreign actors and used his power to help Turkey.`\
-https://nytimes.com/video/nyregion/100000009722866/adams-bribery-fraud-federal-charges-turkey.html
-
-**Justice Department Details Wide Pattern of Abuses by Mississippi Police Force**\
-`The police in the small city of Lexington, Miss., routinely make unjustified arrests, use excessive force and trample on civil rights, investigators said.`\
-https://nytimes.com/2024/09/26/us/mississippi-police-abuse-lexington.html
-
-**The Stage Combat Is Verbal in These Off Broadway Plays**\
-`Belarus Free Theater’s “KS6: Small Forward” and three other shows are reminders that there are many ways to portray conflicts and confrontations onstage.`\
-https://nytimes.com/2024/09/26/theater/belarus-free-theater-the-ask-medea-revisited-voices-head.html
 
