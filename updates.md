@@ -1,3 +1,7 @@
+**Mayor Eric Adams Vows to Fight Federal Indictment Against Him**\
+`In a videotaped speech, Mr. Adams said any charges against him would be ‘false’ and said that he will continue to lead as mayor of the city.`\
+https://nytimes.com/video/nyregion/100000009721164/mayor-eric-adams-vows-to-fight-federal-indictment-against-him.html
+
 **These Are Some of the Lawmakers Who Have Called for Adams to Resign**\
 `The indictment of Mayor Eric Adams has led to a wave of fresh calls for him to step down.`\
 https://nytimes.com/2024/09/25/nyregion/eric-adams-resignation-calls-list.html
