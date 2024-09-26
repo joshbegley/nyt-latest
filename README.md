@@ -1,4 +1,4 @@
-**N.Y.C. Mayor Denounces Charges, as Protesters Denounce Him**\
+**Adams Denounces Charges, as Protesters Denounce Him**\
 `At a news conference outside Gracie Mansion, attempts by Mayor Eric Adams to defend himself against a federal indictment were interrupted by people shouting “disgrace.”`\
 https://nytimes.com/2024/09/26/nyregion/eric-adams-press-conference-protesters.html
 
