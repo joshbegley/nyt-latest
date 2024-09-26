@@ -1,3 +1,7 @@
+**Warning: Do not poke Scottie Scheffler**\
+`When Tom Kim decided to boisterously celebrate a birdie putt, the No. 1 player in the world had an answer.`\
+https://nytimes.com/athletic/5798009/2024/09/26/scottie-scheffler-presidents-cup-tom-kim/
+
 **California Will Formally Apologize for Being Complicit in Slavery**\
 `Gov. Gavin Newsom signed several bills intended to atone for the state’s role in the oppression of Black Americans, but California legislators so far have sidelined proposals on cash reparations.`\
 https://nytimes.com/2024/09/26/us/california-slavery-apology-reparations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/opinion/cryptocurrency-election-moreno-vance.html
 **The mayor’s public defense has leaned on conspiracy theories and race.**\
 `By Jeffery C. Mays`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/the-mayors-public-defense-has-leaned-on-conspiracy-theories-and-race
-
-**Jets roster projection: Predicting opening-night lineup, final camp battles**\
-`One week into camp, Winnipeg's roster battles are sorting themselves out ahead of the regular season.`\
-https://nytimes.com/athletic/5797311/2024/09/26/jets-roster-depth-chart-2024/
 
