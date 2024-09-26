@@ -1,3 +1,19 @@
+**Sabres name Rasmus Dahlin captain**\
+`The Sabres have been looking for stable leadership, and Dahlin has a chance to become that person.`\
+https://nytimes.com/athletic/5797238/2024/09/26/rasmus-dahlin-buffalo-sabres-captain/
+
+**What Students Are Saying About Celebrity Endorsements, Trendy Water Bottles and Their Sleep Routines**\
+`This week, teenage responses to three recent Picture Prompts.`\
+https://nytimes.com/2024/09/26/learning/what-students-are-saying-about-celebrity-endorsements-trendy-water-bottles-and-their-sleep-routines.html
+
+**An Oil C.E.O. Answers Our Questions**\
+`The Times hosted leaders and policymakers to talk about growing threats of climate change, and spoke with the C.E.O. of Occidental Petroleum.`\
+https://nytimes.com/2024/09/26/climate/climate-forward-vicki-hollub-interview.html
+
+**What Eric Adams and Donald Trump Have in Common**\
+`The mayor and the former president may have some different political beliefs, but their personality and style — and now perhaps their legal paths — are aligned.`\
+https://nytimes.com/2024/09/26/nyregion/eric-adams-donald-trump.html
+
 **At the U.N., Palestinian Authority’s leader urges nations to stop arming Israel.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/at-the-un-palestinian-authoritys-leader-urges-nations-to-stop-arming-israel
