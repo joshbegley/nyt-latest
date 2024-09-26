@@ -1,3 +1,11 @@
+**Quote of the Day: Recognition, and Glory, for Europe’s Tram Drivers**\
+`Quotation of the Day for Thursday, September 26, 2024`\
+https://nytimes.com/2024/09/25/pageoneplus/quote-of-the-day-recognition-and-glory-for-europes-tram-drivers.html
+
+**Kevin Gausman, Blue Jays rotation finishing season strong could bode well for future**\
+`Going into Wednesday's win, the Blue Jays rotation was leading the majors with a 2.91 ERA since Aug. 1.`\
+https://nytimes.com/athletic/5795384/2024/09/25/kevin-gausman-blue-jays-rotation-depth/
+
 **White Sox watch: Walkoff win over Angels delays history for another day**\
 `The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
 https://nytimes.com/athletic/5734497/2024/09/25/white-sox-watch-most-losses-season/
