@@ -1,3 +1,11 @@
+**Here’s the latest on the mayor’s indictment.**\
+`By William K. Rashbaum, Dana Rubinstein, Michael Rothfeld and Matthew Haag`\
+https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/heres-the-latest-on-the-mayors-indictment
+
+**Eric Adams Is Indicted Following Federal Corruption Investigation**\
+`The indictment makes Mr. Adams the first sitting mayor of New York City to be criminally charged.`\
+https://nytimes.com/2024/09/25/nyregion/eric-adams-indicted.html
+
 **Phillies clinch first-round bye in playoffs, still in mix for No. 1 seed**\
 `Now, the Phillies know this: They will not play a postseason game until Oct. 5.`\
 https://nytimes.com/athletic/5795154/2024/09/25/phillies-first-round-bye-mlb-playoffs/
@@ -14,7 +22,7 @@ https://nytimes.com/2024/09/25/us/politics/clay-higgins-haitians-springfield-ohi
 `When will Sean Manaea pitch? Who could be in line for a likely doubleheader Monday? We answer those questions and more.`\
 https://nytimes.com/athletic/5795076/2024/09/25/mets-pitching-plans-final-games/
 
-**Mets-Braves schedule is a mess of everyone's making: Ghiroli**\
+**Ghiroli: Mets-Braves schedule is a mess of everyone's making**\
 `MLB has the power to force logistics, to force both teams to play when and where it wants, so long as the union is in agreement.`\
 https://nytimes.com/athletic/5795093/2024/09/25/mets-braves-weather-delay/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/25/world/americas/mexico-national-guard-military-con
 **Judge Demands a Plan for a Possible Federal Takeover of Rikers**\
 `Judge Laura Taylor Swain said a “carousel” of jail leaders had failed to stop violence. She ordered lawyers for the city and prisoners to show her what a receivership might look like.`\
 https://nytimes.com/2024/09/25/nyregion/rikers-island-jail-federal-takeover.html
-
-**The Four Swing States That Could Matter Most**\
-`In a tight election, every battleground matters. But here’s four states to watch extra closely.`\
-https://nytimes.com/2024/09/25/us/politics/most-important-swing-states.html
-
-**Trump to Rally Again at the Site of the First Assassination Attempt Against Him**\
-`Donald J. Trump will return to Butler, Pa., on Oct. 5 — one month from Election Day.`\
-https://nytimes.com/2024/09/25/us/politics/trump-butler-rally-october.html
 

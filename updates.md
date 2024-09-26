@@ -1,3 +1,15 @@
+**Here’s the latest on the mayor’s indictment.**\
+`By William K. Rashbaum, Dana Rubinstein, Michael Rothfeld and Matthew Haag`\
+https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/heres-the-latest-on-the-mayors-indictment
+
+**Eric Adams Is Indicted Following Federal Corruption Investigation**\
+`The indictment makes Mr. Adams the first sitting mayor of New York City to be criminally charged.`\
+https://nytimes.com/2024/09/25/nyregion/eric-adams-indicted.html
+
+**Ghiroli: Mets-Braves schedule is a mess of everyone's making**\
+`MLB has the power to force logistics, to force both teams to play when and where it wants, so long as the union is in agreement.`\
+https://nytimes.com/athletic/5795093/2024/09/25/mets-braves-weather-delay/
+
 **Phillies clinch first-round bye in playoffs, still in mix for No. 1 seed**\
 `Now, the Phillies know this: They will not play a postseason game until Oct. 5.`\
 https://nytimes.com/athletic/5795154/2024/09/25/phillies-first-round-bye-mlb-playoffs/
