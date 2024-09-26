@@ -1,3 +1,15 @@
+**A Rosh Hashana Dish Keeps the Memory of Home**\
+`Legumbres para rosana, a dish of Spanish Moroccan origin, is a delicious reminder of a family’s journey.`\
+https://nytimes.com/2024/09/26/dining/rosh-hashana-recipe.html
+
+**Pro-Trump Group Plans a $70 Million Ad Buy in the Race’s Final Weeks**\
+`The MAGA Inc. super PAC plans to run ads to make the case that Kamala Harris is soft on crime and to tie her to the Biden administration’s record.`\
+https://nytimes.com/2024/09/26/us/politics/trump-super-pac-ads.html
+
+**As Israel batters Hezbollah in Lebanon, Iran’s foreign minister calls for a halt in fighting.**\
+`By Aryn Baker and Leily Nikounazar`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/as-israel-batters-hezbollah-in-lebanon-irans-foreign-minister-calls-for-a-halt-in-fighting
+
 **Adams Denounces Charges, as Protesters Denounce Him**\
 `At a news conference outside Gracie Mansion, attempts by Mayor Eric Adams to defend himself against a federal indictment were interrupted by people shouting “disgrace.”`\
 https://nytimes.com/2024/09/26/nyregion/eric-adams-press-conference-protesters.html

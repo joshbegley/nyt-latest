@@ -1,3 +1,15 @@
+**A Rosh Hashana Dish Keeps the Memory of Home**\
+`Legumbres para rosana, a dish of Spanish Moroccan origin, is a delicious reminder of a family’s journey.`\
+https://nytimes.com/2024/09/26/dining/rosh-hashana-recipe.html
+
+**Pro-Trump Group Plans a $70 Million Ad Buy in the Race’s Final Weeks**\
+`The MAGA Inc. super PAC plans to run ads to make the case that Kamala Harris is soft on crime and to tie her to the Biden administration’s record.`\
+https://nytimes.com/2024/09/26/us/politics/trump-super-pac-ads.html
+
+**As Israel batters Hezbollah in Lebanon, Iran’s foreign minister calls for a halt in fighting.**\
+`By Aryn Baker and Leily Nikounazar`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/as-israel-batters-hezbollah-in-lebanon-irans-foreign-minister-calls-for-a-halt-in-fighting
+
 **Adams Denounces Charges, as Protesters Denounce Him**\
 `At a news conference outside Gracie Mansion, attempts by Mayor Eric Adams to defend himself against a federal indictment were interrupted by people shouting “disgrace.”`\
 https://nytimes.com/2024/09/26/nyregion/eric-adams-press-conference-protesters.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/26/t-magazine/therapy-art-thomas-houseago.html
 **Tiny Cedar Key Has Been Hit Before. Now, It Faces a Huge Storm.**\
 `Many residents have evacuated Cedar Key, a community on a string of islands jutting into the Gulf of Mexico. But about 50 people have remained to risk Hurricane Helene.`\
 https://nytimes.com/2024/09/26/weather/florida-hurricane-helene-evacuations.html
-
-**Man United aiming to win Premier League by 2028, CEO tells staff**\
-`Manchester United chief executive Omar Berrada has told staff that the aim is to win the Premier League title in 2028, for the 150th anniversary of the club being formed.`\
-https://nytimes.com/athletic/5796091/2024/09/26/manchester-united-premier-league-title-omar-berrada/
-
-**In New Mexico, Sopapillas Do It All**\
-`In pockets of the Southwest, no meal is complete without these crisp pillows of fried dough.`\
-https://nytimes.com/2024/09/26/dining/sopapillas.html
-
-**‘Megalopolis’ Review: The Fever Dreams of Francis Ford Coppola**\
-`The director’s latest is a great-man story about an architect, played by Adam Driver, driven by ideals and big plans. It’s a personal statement on an epic scale.`\
-https://nytimes.com/2024/09/26/movies/megalopolis-review-francis-ford-coppola.html
 
