@@ -10,7 +10,7 @@ https://nytimes.com/2024/09/25/us/politics/clay-higgins-haitians-springfield-ohi
 `When will Sean Manaea pitch? Who could be in line for a likely doubleheader Monday? We answer those questions and more.`\
 https://nytimes.com/athletic/5795076/2024/09/25/mets-pitching-plans-final-games/
 
-**The Mets-Braves schedule is a mess of everyone's making: Ghiroli**\
+**Mets-Braves schedule is a mess of everyone's making: Ghiroli**\
 `MLB has the power to force logistics, to force both teams to play when and where it wants, so long as the union is in agreement.`\
 https://nytimes.com/athletic/5795093/2024/09/25/mets-braves-weather-delay/
 

@@ -1,3 +1,7 @@
+**Mets-Braves schedule is a mess of everyone's making: Ghiroli**\
+`MLB has the power to force logistics, to force both teams to play when and where it wants, so long as the union is in agreement.`\
+https://nytimes.com/athletic/5795093/2024/09/25/mets-braves-weather-delay/
+
 **Craig Breslow on the Red Sox season, rotation, trades, prospects and more**\
 `The Red Sox, among other options, could look to their position player prospect pipeline for trade chips in a deal for a frontline starter.`\
 https://nytimes.com/athletic/5795091/2024/09/25/craig-breslow-red-sox-season-assessment/
