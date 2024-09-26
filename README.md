@@ -15,7 +15,7 @@ https://nytimes.com/2024/09/25/nyregion/jumaane-williams-nyc-acting-mayor.html
 https://nytimes.com/2024/09/25/us/politics/kamala-harris-msnbc-interview-takeaways.html
 
 **A Timeline of Key Moments in the Lead-Up to the Mayor’s Indictment**\
-`Mayor Eric Adams faces corruption charges. Here are the key moments that led to his indictment.`\
+`Mayor Eric Adams faces corruption charges. They stem from a broad inquiry that has been in progress for months.`\
 https://nytimes.com/2024/09/25/nyregion/eric-adams-indictment-timeline.html
 
 **Here’s the latest on the mayor’s indictment.**\
