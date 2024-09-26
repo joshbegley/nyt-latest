@@ -1,3 +1,7 @@
+**Just how nice is Turkish Airlines’s Business Class?**\
+`By Christine Chung`\
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/just-how-nice-is-turkish-airliness-business-class
+
 **Even Many Hurricane Veterans Were Leaving Florida’s Big Bend Ahead of Helene**\
 `The region has endured two other hurricanes recently, but many more people appeared to be evacuating this time, leaving their small coastal towns eerily empty.`\
 https://nytimes.com/2024/09/26/us/hurricane-helene-florida-big-bend-evacuation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/briefing/eric-adams-charged-hurricane-florida.htm
 **What the Prosecution’s Case Has Revealed About Tyre Nichols’s Death**\
 `Prosecutors called nearly 20 witnesses to make their case against three former Memphis police officers charged in connection with the fatal beating of Mr. Nichols.`\
 https://nytimes.com/2024/09/26/us/tyre-nichols-death-prosecution.html
-
-**Nick Gravenites, Mainstay of the San Francisco Rock Scene, Dies at 85**\
-`A blues devotee from Chicago, he tasted fame in the late 1960s with the Electric Flag, a band that made its debut at Monterey but proved short-lived.`\
-https://nytimes.com/2024/09/26/arts/music/nick-gravenites-dead.html
 
