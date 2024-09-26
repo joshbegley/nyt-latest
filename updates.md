@@ -1,3 +1,7 @@
+**Major Decision for Judge in Trump’s Election Case: How Much Evidence to Reveal**\
+`Prosecutors are filing a sealed brief showing what they learned in the investigation. The former president’s lawyers say it amounts to a premature special counsel report that could hurt him before Election Day.`\
+https://nytimes.com/2024/09/26/us/trump-election-case-evidence.html
+
 **A Museum Director’s Heirs Lay Claim to His Rembrandts**\
 `He ran the Mauritshuis and bequeathed it 25 paintings, but said they must always be on display. Today, only five are on show — so the descendants of his close friend say the artworks should be theirs.`\
 https://nytimes.com/2024/09/26/arts/mauritshuis-museum-rembrandt-heirs-dispute.html
