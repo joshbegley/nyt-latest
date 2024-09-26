@@ -1,3 +1,15 @@
+**Wander Franco ordered to stand trial by judge**\
+`Franco has not appeared in an MLB game since last year, and has since been placed on the restricted list. `\
+https://nytimes.com/athletic/5797534/2024/09/26/wander-franco-court-developments/
+
+**Steve Kerr, Mike Dunleavy on 2024-25 Warriors season: 'I think we've been forgotten about'**\
+`The Warriors go into the new season with a "different vibe" from Andrew Wiggins, multiple starting spots up for grabs and more. `\
+https://nytimes.com/athletic/5797480/2024/09/26/steve-kerr-mike-dunleavy-2024-warriors-season-preview/
+
+**Presidents Cup analysis: What to know from the U.S.'s strong Day 1 showing**\
+`The Americans lead by 5 points after Day 1. There's no history of a side coming back from that deficit in the Presidents Cup.`\
+https://nytimes.com/athletic/5798052/2024/09/26/presidents-cup-2024-analysis-us/
+
 **In Tallahassee, Residents Worry About a Defining City Feature: Its Trees**\
 `The city’s canopy and shaded roads could become hazards as Helene brings the potential for hurricane-force winds.`\
 https://nytimes.com/2024/09/26/weather/helene-tallahassee-trees.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/26/nyregion/adams-hochul-removal.html
 **Democrats Need Jon Tester to Defy the Odds Again**\
 `Control of the Senate could turn on Montana.`\
 https://nytimes.com/2024/09/26/us/politics/jon-tester-montana-election.html
-
-**Inside the Intimate U.N. Dinner Party at Eleven Madison Park**\
-`Celebrities including Pharrell Williams and Forest Whitaker ate plant-based dishes (and admired the kitchen) during an event to toast UNESCO, the U.N. cultural agency.`\
-https://nytimes.com/2024/09/26/style/unesco-daniel-humm-eleven-madison-park.html
-
-**How Tigers third-base coach Joey Cora set the stage for the 'Gritty Tigs' of September**\
-`A team with fading hopes staked to winning on the margins needed to do better, to be better. So Cora launched into his soliloquy.`\
-https://nytimes.com/athletic/5797700/2024/09/26/tigers-baserunning-success-september-baseball/
-
-**The Tech Bro Style in American Politics**\
-`Why some billionaires are helping to promote political extremism.`\
-https://nytimes.com/2024/09/26/opinion/cryptocurrency-election-moreno-vance.html
 
