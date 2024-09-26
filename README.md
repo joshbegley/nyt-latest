@@ -1,3 +1,7 @@
+**Derrick Rose, former Bulls MVP, retires after 16 seasons**\
+`"I believe true success comes from becoming who you were created to be, and I want to show the world who I am beyond basketball,” Rose said.`\
+https://nytimes.com/athletic/5795527/2024/09/26/derrick-rose-retirement/
+
 **Chemistry between Jayden Daniels and Terry McLaurin grew with NFL world watching**\
 `The "pieces fell in place" vs. Cincinnati for the quarterback-receiver duo after failing to find a rhythm the first two weeks of the season.`\
 https://nytimes.com/athletic/5795113/2024/09/26/commanders-jayden-daniels-terry-mclaurin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794716/2024/09/26/red-wings-austin-watson-roster-t
 **Does Alabama have what it takes to 'attack' Georgia's immovable defense?**\
 `Alabama's going to need explosive plays Saturday against a team that gives up hardly any big plays and has yet to allow a touchdown.`\
 https://nytimes.com/athletic/5794967/2024/09/26/alabama-georgia-football-defense/
-
-**How Earl Weaver once tried to win a pennant race by starting a lefty at shortstop**\
-`“It was unusual,” said Royle Stillman, whose brief major league career included being at the center of a bold experiment.`\
-https://nytimes.com/athletic/5795602/2024/09/26/earl-weaver-lefty-shortstop/
 
