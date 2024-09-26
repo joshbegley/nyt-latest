@@ -1,3 +1,11 @@
+**N.Y.C. Mayor Denounces Charges, as Protesters Denounce Him**\
+`At a news conference outside Gracie Mansion, attempts by Mayor Eric Adams to defend himself against a federal indictment were interrupted by people shouting “disgrace.”`\
+https://nytimes.com/2024/09/26/nyregion/eric-adams-press-conference-protesters.html
+
+**The Two Ways Eric Adams Could Be Forced From Office**\
+`The New York City Charter includes provisions that could be used to remove the mayor against his will if he chooses not to step down.`\
+https://nytimes.com/2024/09/26/nyregion/eric-adams-removed-from-office.html
+
 **Trump’s Plans Could Spur Inflation While Slowing Growth, Study Finds**\
 `A nonpartisan economic analysis warned that deporting migrants and increasing tariffs would damage the U.S. economy.`\
 https://nytimes.com/2024/09/26/business/economy/trump-economy-inflation-growth.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/26/dining/sopapillas.html
 **‘Megalopolis’ Review: The Fever Dreams of Francis Ford Coppola**\
 `The director’s latest is a great-man story about an architect, played by Adam Driver, driven by ideals and big plans. It’s a personal statement on an epic scale.`\
 https://nytimes.com/2024/09/26/movies/megalopolis-review-francis-ford-coppola.html
-
-**Harris Now Has an Economic Plan. Can It Best Trump’s Promises?**\
-`A central question in the final stretch of the election is if Vice President Kamala Harris’s proposals will cohere into an economic argument that can top former President Donald J. Trump’s.`\
-https://nytimes.com/2024/09/26/us/politics/harris-trump-economy.html
-
-**Farmers Scramble to Save Pecan and Cotton Harvests Ahead of the Storm**\
-`The wind and rain expected along Hurricane Helene’s path could damage vulnerable crops while the region enters the height of the harvest season.`\
-https://nytimes.com/2024/09/26/weather/georgia-farmers-hurricane-helene.html
 
