@@ -1,3 +1,7 @@
+**Eric Adams Charged With Bribery and Fraud**\
+`Also, Hurricane Helene heads toward Florida. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/09/26/briefing/eric-adams-charged-hurricane-florida.html
+
 **What the Prosecution’s Case Has Revealed About Tyre Nichols’s Death**\
 `Prosecutors called nearly 20 witnesses to make their case against three former Memphis police officers charged in connection with the fatal beating of Mr. Nichols.`\
 https://nytimes.com/2024/09/26/us/tyre-nichols-death-prosecution.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/style/do-sassy-jane-and-xojane-mean-anything-to-y
 **Biden Pledges More Weapons and Almost $8 Billion in Aid to Ukraine**\
 `President Volodymyr Zelensky of Ukraine met with President Biden at the White House on Thursday as a part of an effort to urge Congress to continue bolstering Ukraine’s effort to fend off Russia’s invasion.`\
 https://nytimes.com/video/us/politics/100000009723719/biden-ukraine-package.html
-
-**Netanyahu Defiant as World Leaders Press for Israeli-Hezbollah Truce**\
-`Prime Minister Benjamin Netanyahu of Israel vowed to keep striking the Lebanese militants, who began launching rockets across the border almost a year ago in support of their Hamas allies in Gaza.`\
-https://nytimes.com/2024/09/26/world/middleeast/israel-hezbollah-lebanon.html
 
