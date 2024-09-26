@@ -1,3 +1,19 @@
+**Sicily’s New Hot Spot? A 300-Year-Old Palazzo Turned Museum.**\
+`An Italian couple turned Palazzo Butera into a repository for the eclectic and largely unseen artworks they had collected over 50 years.`\
+https://nytimes.com/2024/09/26/arts/design/sicily-palazzo-butera-museum.html
+
+**Word of the Day: illusory**\
+`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/26/learning/word-of-the-day-illusory.html
+
+**Yvette Mayorga’s Family History Is Baked Into Her Work**\
+`This Mexican American artist, whose favorite tool is a pastry bag, explores her parents’ journey and her own identity in “The Golden Cage,” a show in Guadalajara.`\
+https://nytimes.com/2024/09/26/arts/design/yvette-mayorga-golden-cage-guadalajara.html
+
+**A Library That Holds Its Own Among Museums**\
+`The Qatar National is not just a model for celebrity-designed library buildings. It also underscores the links between books and manuscripts and the country’s cultural heritage.`\
+https://nytimes.com/2024/09/26/arts/design/qatar-national-library-museums.html
+
 **Desi Lydic Ridicules Trump for Demanding Harris’s ‘Burger Certificate’**\
 `“This isn’t the kind of thing you would lie about,” Lydic said. “It’s not like sex with a porn star while your wife is pregnant.”`\
 https://nytimes.com/2024/09/26/arts/television/trump-harris-mcdonalds.html

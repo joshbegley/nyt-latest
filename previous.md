@@ -1,3 +1,19 @@
+**Sicily’s New Hot Spot? A 300-Year-Old Palazzo Turned Museum.**\
+`An Italian couple turned Palazzo Butera into a repository for the eclectic and largely unseen artworks they had collected over 50 years.`\
+https://nytimes.com/2024/09/26/arts/design/sicily-palazzo-butera-museum.html
+
+**Word of the Day: illusory**\
+`This word has appeared in 28 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/26/learning/word-of-the-day-illusory.html
+
+**Yvette Mayorga’s Family History Is Baked Into Her Work**\
+`This Mexican American artist, whose favorite tool is a pastry bag, explores her parents’ journey and her own identity in “The Golden Cage,” a show in Guadalajara.`\
+https://nytimes.com/2024/09/26/arts/design/yvette-mayorga-golden-cage-guadalajara.html
+
+**A Library That Holds Its Own Among Museums**\
+`The Qatar National is not just a model for celebrity-designed library buildings. It also underscores the links between books and manuscripts and the country’s cultural heritage.`\
+https://nytimes.com/2024/09/26/arts/design/qatar-national-library-museums.html
+
 **Desi Lydic Ridicules Trump for Demanding Harris’s ‘Burger Certificate’**\
 `“This isn’t the kind of thing you would lie about,” Lydic said. “It’s not like sex with a porn star while your wife is pregnant.”`\
 https://nytimes.com/2024/09/26/arts/television/trump-harris-mcdonalds.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5795457/2024/09/26/louie-varland-twins-victory/
 **FPL: How to take advantage of the Gameweek 6 fixture swings**\
 `A number of the leading clubs experience major fixture swings from Gameweek 6 onwards, so how can you capitalise? `\
 https://nytimes.com/athletic/5790398/2024/09/26/fantasy-premier-league-gw6-fixtures-wildcard/
-
-**UNLV, Air Force expected to remain in Mountain West**\
-`It’s another blow to the rebuilding Pac-12, which has raided the Mountain West for new members.`\
-https://nytimes.com/athletic/5795479/2024/09/26/unlv-air-force-mountain-west-pac-12/
-
-**Sloppy start for Frank Nazar, Blackhawks in preseason opener: 5 takeaways**\
-`Wednesday's 4-2 loss to the Red Wings wasn't the start of the preseason Nazar was hoping for.`\
-https://nytimes.com/athletic/5795427/2024/09/26/blackhawks-preseason-opener-frank-nazar/
-
-**Do Spurs have the squad depth to compete in the Europa League and Premier League?**\
-`Tottenham were able to name only a 23-man squad for the Europa League because of a shortage of homegrown players – will that hinder them?`\
-https://nytimes.com/athletic/5793976/2024/09/26/tottenham-squad-depth-europa/
-
-**Carlo Ancelotti's Real Madrid survival and the soft superpowers behind his success**\
-`On Tuesday night, Carlo Ancelotti took charge of his 300th match at Real Madrid – a club renowned for firing managers`\
-https://nytimes.com/athletic/5794012/2024/09/26/carlo-ancelotti-real-madrid-la-liga-florentino-perez/
 
