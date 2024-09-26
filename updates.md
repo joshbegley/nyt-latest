@@ -1,3 +1,7 @@
+**Until Saturday: 2024's first game of the century, plus our Saturday viewer guide**\
+`Welcome to Until Saturday, the five-star college football newsletter: Finally, the Georgia-Alabama SEC top-five showdown is here.`\
+https://nytimes.com/athletic/5797116/2024/09/26/alabama-football-georgia-until-saturday/
+
 **Cheap Flights and Deleted Texts: 10 Takeaways From the Adams Indictment**\
 `The indictment against Mayor Eric Adams includes vignettes that range from the amusing to the horrifying.`\
 https://nytimes.com/2024/09/26/nyregion/nyc-mayor-eric-adams-indictment-takeaways.html
