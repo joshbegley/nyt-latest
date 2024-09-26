@@ -1,3 +1,11 @@
+**Crunchtime for Election Interference: October Is the Month of Mischief**\
+`U.S. officials are stepping up their warnings about foreign interference in the election, focused on three main adversaries: Russia, China and Iran.`\
+https://nytimes.com/2024/09/26/us/politics/crunchtime-for-election-interference-october-is-the-month-of-mischief.html
+
+**The R.N.C. Asked a Conspiracy Theorist to Train Poll Watchers. Here’s What He Told Them.**\
+`Jack Posobiec of “Pizzagate” notoriety recently spoke to a group of G.O.P. volunteers. “It doesn’t matter who votes,” he told them. “It matters who counts the votes.”`\
+https://nytimes.com/2024/09/26/us/politics/republican-national-committee-2024-posobiec.html
+
 **‘The Queen of the Villains’ Is a Complex Japanese Wrestling Drama**\
 `The five-part Netflix series tells the story of a female wrestler in the 1980s who might have gone a little too deep into character.`\
 https://nytimes.com/2024/09/26/arts/television/the-queen-of-the-villains-netflix.html
