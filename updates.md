@@ -1,3 +1,7 @@
+**Eric Adams Charged With Bribery and Fraud**\
+`Also, Hurricane Helene heads toward Florida. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/09/26/briefing/eric-adams-charged-hurricane-florida.html
+
 **What the Prosecution’s Case Has Revealed About Tyre Nichols’s Death**\
 `Prosecutors called nearly 20 witnesses to make their case against three former Memphis police officers charged in connection with the fatal beating of Mr. Nichols.`\
 https://nytimes.com/2024/09/26/us/tyre-nichols-death-prosecution.html
