@@ -1,3 +1,19 @@
+**Frank Coppa, First Bonanno Mafia Family Member to Flip, Dies at 83**\
+`His decision to describe gruesome murders to the F.B.I. led at least 10 other members to do the same and ultimately immobilized a mafia family.`\
+https://nytimes.com/2024/09/26/nyregion/frank-coppa-dead.html
+
+**Melania Trump Gives a Rare Interview: 3 Takeaways**\
+`While promoting a memoir, the former first lady told Fox News that she blamed Democrats and members of the news media for the assassination attempts against her husband.`\
+https://nytimes.com/2024/09/26/us/politics/melania-trump-fox-news-interview.html
+
+**Who Is Eric Adams: New York’s Baffling, Boundless Mayor**\
+`So much about the singular, ever-present figure leading the city for the last three years remains head-scratching.`\
+https://nytimes.com/2024/09/26/nyregion/eric-adams-nyc-mayor.html
+
+**Inside a Pro-Harris Ad Portraying Trump as Fighting for Billionaires Like Him**\
+`A key super PAC backing Kamala Harris makes use of a teacher’s narration and of video of Donald Trump promising to cut the taxes of people he calls “rich as hell.”`\
+https://nytimes.com/2024/09/26/us/politics/harris-pac-ad-trump-rich.html
+
 **Major Decision for Judge in Trump’s Election Case: How Much Evidence to Reveal**\
 `Prosecutors are filing a sealed brief showing what they learned in the investigation. The former president’s lawyers say it amounts to a premature special counsel report that could hurt him before Election Day.`\
 https://nytimes.com/2024/09/26/us/trump-election-case-evidence.html
