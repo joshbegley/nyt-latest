@@ -1,3 +1,11 @@
+**A Brief History of Ethical Concerns Involving Eric Adams**\
+`The mayor has been investigated repeatedly during his two decades in politics.`\
+https://nytimes.com/2024/09/26/nyregion/eric-adams-investigations.html
+
+**What’s Going On in This Picture? | Sept. 30, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/09/26/learning/whats-going-on-in-this-picture-sept-30-2024.html
+
 **Greenberg: Derrick Rose was Chicago's dream athlete and he won't be forgotten**\
 `Rose retired after a 16-year career that saw him ascend to the top before falling to the middle. No one owned their moment like him.`\
 https://nytimes.com/athletic/5796610/2024/09/26/derrick-rose-chicago-bulls-legacy/

@@ -1,3 +1,11 @@
+**A Brief History of Ethical Concerns Involving Eric Adams**\
+`The mayor has been investigated repeatedly during his two decades in politics.`\
+https://nytimes.com/2024/09/26/nyregion/eric-adams-investigations.html
+
+**What’s Going On in This Picture? | Sept. 30, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/09/26/learning/whats-going-on-in-this-picture-sept-30-2024.html
+
 **Greenberg: Derrick Rose was Chicago's dream athlete and he won't be forgotten**\
 `Rose retired after a 16-year career that saw him ascend to the top before falling to the middle. No one owned their moment like him.`\
 https://nytimes.com/athletic/5796610/2024/09/26/derrick-rose-chicago-bulls-legacy/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/26/style/hoda-kotb-today-memorable-moments.html
 **A Rosh Hashana Dish Keeps the Memory of Home**\
 `Legumbres para rosana, a dish of Spanish Moroccan origin, is a delicious reminder of a family’s journey.`\
 https://nytimes.com/2024/09/26/dining/rosh-hashana-recipe.html
-
-**Pro-Trump Group Plans a $70 Million Ad Buy in the Race’s Final Weeks**\
-`The MAGA Inc. super PAC plans to run ads to make the case that Kamala Harris is soft on crime and to tie her to the Biden administration’s record.`\
-https://nytimes.com/2024/09/26/us/politics/trump-super-pac-ads.html
-
-**As Israel batters Hezbollah in Lebanon, Iran’s foreign minister calls for a halt in fighting.**\
-`By Aryn Baker and Leily Nikounazar`\
-https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/as-israel-batters-hezbollah-in-lebanon-irans-foreign-minister-calls-for-a-halt-in-fighting
 
