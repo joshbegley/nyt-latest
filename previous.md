@@ -1,4 +1,4 @@
-**These Are the Lawmakers Who Have Called for Adams to Resign**\
+**These Are Some of the Lawmakers Who Have Called for Adams to Resign**\
 `The indictment of Mayor Eric Adams has led to a wave of fresh calls for him to step down.`\
 https://nytimes.com/2024/09/25/nyregion/eric-adams-resignation-calls-list.html
 
