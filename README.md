@@ -1,3 +1,7 @@
+**Chemistry between Jayden Daniels and Terry McLaurin grew with NFL world watching**\
+`The "pieces fell in place" vs. Cincinnati for the quarterback-receiver duo after failing to find a rhythm the first two weeks of the season.`\
+https://nytimes.com/athletic/5795113/2024/09/26/commanders-jayden-daniels-terry-mclaurin/
+
 **Getafe president criticises own player for highlighting racist abuse in Spain**\
 `Getafe president Angel Torres has criticised his player Christantus Uche following the Nigerian midfielder&#8217;s complaints about racism and treatment by referees in La Liga.`\
 https://nytimes.com/athletic/5795926/2024/09/26/christantus-uche-racism-getafe-angel-torres/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794967/2024/09/26/alabama-georgia-football-defense
 **How Earl Weaver once tried to win a pennant race by starting a lefty at shortstop**\
 `“It was unusual,” said Royle Stillman, whose brief major league career included being at the center of a bold experiment.`\
 https://nytimes.com/athletic/5795602/2024/09/26/earl-weaver-lefty-shortstop/
-
-**Justin Tucker's kicking woes, Mark Andrews' slow start and other Ravens early-season issues**\
-`Tucker, the most accurate kicker in NFL history, continues his recent struggles from distance. Plus, what's going on with the pass defense?`\
-https://nytimes.com/athletic/5794781/2024/09/26/ravens-issues-justin-tucker-mark-andrews/
 
