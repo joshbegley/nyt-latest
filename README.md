@@ -1,7 +1,3 @@
-**A Timeline of Key Moments in the Lead-Up to the Mayor’s Indictment**\
-`Mayor Eric Adams faces corruption charges. Here are the key moments that led to his indictment.`\
-https://nytimes.com/2024/09/25/nyregion/eric-adams-indictment-timeline.html
-
 **Here’s the latest on the mayor’s indictment.**\
 `By William K. Rashbaum, Dana Rubinstein, Michael Rothfeld and Matthew Haag`\
 https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/heres-the-latest-on-the-mayors-indictment
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/25/arts/design/jhumpa-lahiri-noguchi-award.html
 **Mexican Senate Votes to Give Military Control of Civilian National Guard**\
 `Mexico’s governing party says the guard would be more effective and less corrupt as part of the armed forces. Critics fear the increased militarization of civilian life and a spike in rights abuses.`\
 https://nytimes.com/2024/09/25/world/americas/mexico-national-guard-military-control.html
+
+**Judge Demands a Plan for a Possible Federal Takeover of Rikers**\
+`Judge Laura Taylor Swain said a “carousel” of jail leaders had failed to stop violence. She ordered lawyers for the city and prisoners to show her what a receivership might look like.`\
+https://nytimes.com/2024/09/25/nyregion/rikers-island-jail-federal-takeover.html
 
