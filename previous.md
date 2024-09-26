@@ -1,3 +1,23 @@
+**Harris Meets With Zelensky, Anticipating a Handover of Global Crises**\
+`The meeting signaled that the White House was preparing her to take over a thorny diplomatic relationship should she win the election in November.`\
+https://nytimes.com/2024/09/26/us/politics/harris-zelensky.html
+
+**Port Operators Ask Regulator to Force Dockworkers to Negotiate**\
+`The group that represent port terminal operators said the International Longshoremen’s Association was refusing to negotiate a new contract before a Monday deadline.`\
+https://nytimes.com/2024/09/26/business/economy/port-strike-dockworkers-negotiate.html
+
+**Democrats Seek Another Opening in a Challenging Senate Map**\
+`New investments in Texas and Florida show how the party is reaching to keep its majority alive.`\
+https://nytimes.com/2024/09/26/us/politics/democrats-senate-florida-texas.html
+
+**Bills restructuring front office in moves they say will bring franchise into '21st century'**\
+`Buffalo added two hires to its front office.`\
+https://nytimes.com/athletic/5797292/2024/09/26/bills-front-office-moves-orchard-park/
+
+**Have We Hit Peak Hand Roll Yet?**\
+`There are at least a dozen spots in New York City, but some sushi hand rolls are better than others.`\
+https://nytimes.com/2024/09/26/dining/have-we-hit-peak-hand-roll-yet.html
+
 **Ron Washington says he 'misspoke' in sharp criticism of his team's talent**\
 `The Angels entered Thursday at 63-95. The loss total ties the most in franchise history with four games left to play. `\
 https://nytimes.com/athletic/5797327/2024/09/26/angels-ron-washington-comments/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/26/nyregion/nyc-mayor-adams-survival.html
 **Bucks welcome Junior Bridgeman to ownership group, and it just feels 'natural'**\
 `"You can’t understand or underestimate how big a moment this is for the franchise,” Bucks co-owner Jimmy Haslam said.`\
 https://nytimes.com/athletic/5795404/2024/09/26/junior-bridgeman-milwaukee-bucks-ownership/
-
-**An Exclusive Peek at the Met’s Reimagined Rockefeller Wing**\
-`With more than 1,800 works from five continents, and new scholarship, refreshed galleries present the arts of Africa, the Ancient Americas and Oceania as three distinct areas.`\
-https://nytimes.com/2024/09/26/arts/design/met-rockefeller-wing-renovation.html
-
-**Sharpton declines to defend Adams and asks Black leaders to meet.**\
-`The Rev. Al Sharpton raised concerns that Mayor Eric Adams’s attempts to defend himself could hurt other Black leaders, like Vice President Kamala Harris.`\
-https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/sharpton-declines-to-defend-adams-and-asks-black-leaders-to-meet
-
-**Angels' Ron Washington says he 'misspoke' in sharp criticism of his team's talent**\
-`"I didn't mean it the way it came out, where I'm saying the organization isn't giving me big-league players,” Washington said.`\
-https://nytimes.com/athletic/5797341/2024/09/26/angels-ron-washington-misspoke-criticism/
-
-**Sabres name Rasmus Dahlin captain**\
-`The Sabres have been looking for stable leadership, and Dahlin has a chance to become that person.`\
-https://nytimes.com/athletic/5797238/2024/09/26/rasmus-dahlin-buffalo-sabres-captain/
-
-**What Students Are Saying About Celebrity Endorsements, Trendy Water Bottles and Their Sleep Routines**\
-`This week, teenage responses to three recent Picture Prompts.`\
-https://nytimes.com/2024/09/26/learning/what-students-are-saying-about-celebrity-endorsements-trendy-water-bottles-and-their-sleep-routines.html
 
