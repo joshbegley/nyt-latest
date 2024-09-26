@@ -1,3 +1,7 @@
+**Phillies clinch first-round bye in playoffs, still in mix for No. 1 seed**\
+`Now, the Phillies know this: They will not play a postseason game until Oct. 5.`\
+https://nytimes.com/athletic/5795154/2024/09/25/phillies-first-round-bye-mlb-playoffs/
+
 **Craig Breslow on the Red Sox season, rotation, trades, prospects and more**\
 `The Red Sox, among other options, could look to their position player prospect pipeline for trade chips in a deal for a frontline starter.`\
 https://nytimes.com/athletic/5795091/2024/09/25/craig-breslow-red-sox-season-assessment/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/us/politics/most-important-swing-states.html
 **Trump to Rally Again at the Site of the First Assassination Attempt Against Him**\
 `Donald J. Trump will return to Butler, Pa., on Oct. 5 — one month from Election Day.`\
 https://nytimes.com/2024/09/25/us/politics/trump-butler-rally-october.html
-
-**Trump Hints at Iran Link to His 2 Assassination Attempts, Despite the Available Evidence**\
-`Officials have disclosed no ties to Iran in the cases in Pennsylvania and Florida, as Donald Trump questioned the F.B.I.’s investigations and mused about military action.`\
-https://nytimes.com/2024/09/25/us/politics/trump-nc-iran-economy.html
 

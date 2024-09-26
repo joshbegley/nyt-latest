@@ -1,3 +1,7 @@
+**Phillies clinch first-round bye in playoffs, still in mix for No. 1 seed**\
+`Now, the Phillies know this: They will not play a postseason game until Oct. 5.`\
+https://nytimes.com/athletic/5795154/2024/09/25/phillies-first-round-bye-mlb-playoffs/
+
 **Mets-Braves schedule is a mess of everyone's making: Ghiroli**\
 `MLB has the power to force logistics, to force both teams to play when and where it wants, so long as the union is in agreement.`\
 https://nytimes.com/athletic/5795093/2024/09/25/mets-braves-weather-delay/
