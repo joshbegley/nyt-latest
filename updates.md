@@ -1,3 +1,11 @@
+**Vince McMahon Netflix doc: What we learned about longtime WWE promoter**\
+`The "Mr. McMahon" docuseries covers his ascension in pro wrestling, his exile from the business and a lot more. Should you watch?`\
+https://nytimes.com/athletic/5795641/2024/09/26/vince-mcmahon-netflix-documentary-review-wwe-scandal/
+
+**Scoop City: Hope for 1-2 contenders, including 49ers, Ravens**\
+`In the past 25 years, only three teams won the Super Bowl after entering Week 4 with losing records. Can the 49ers, Ravens, others join?`\
+https://nytimes.com/athletic/5796635/2024/09/26/scoop-city-hope-for-1-2-contenders-including-49ers-ravens/
+
 **Commuters See ‘Islamophobic’ Message in Cyber Attack on Public Wi-Fi, Authorities Say**\
 `The British authorities are investigating after commuters at 19 train stations saw an Islamophobic message when they tried to log on to a public Wi-Fi system.`\
 https://nytimes.com/2024/09/26/world/europe/britain-rail-cyber-attack.html

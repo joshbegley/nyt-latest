@@ -1,3 +1,11 @@
+**Vince McMahon Netflix doc: What we learned about longtime WWE promoter**\
+`The "Mr. McMahon" docuseries covers his ascension in pro wrestling, his exile from the business and a lot more. Should you watch?`\
+https://nytimes.com/athletic/5795641/2024/09/26/vince-mcmahon-netflix-documentary-review-wwe-scandal/
+
+**Scoop City: Hope for 1-2 contenders, including 49ers, Ravens**\
+`In the past 25 years, only three teams won the Super Bowl after entering Week 4 with losing records. Can the 49ers, Ravens, others join?`\
+https://nytimes.com/athletic/5796635/2024/09/26/scoop-city-hope-for-1-2-contenders-including-49ers-ravens/
+
 **Commuters See ‘Islamophobic’ Message in Cyber Attack on Public Wi-Fi, Authorities Say**\
 `The British authorities are investigating after commuters at 19 train stations saw an Islamophobic message when they tried to log on to a public Wi-Fi system.`\
 https://nytimes.com/2024/09/26/world/europe/britain-rail-cyber-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5795968/2024/09/26/lakers-clippers-nba-wnba-aces-ly
 **Read the Eric Adams Indictment**\
 `The indictment against Mayor Eric Adams of New York was unsealed Thursday.`\
 https://nytimes.com/interactive/2024/09/26/nyregion/eric-adams-indictment-charges-pdf.html
-
-**These are the charges against Eric Adams.**\
-`By William K. Rashbaum, Dana Rubinstein and Michael Rothfeld`\
-https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/eric-adams-charges
-
-**Hurricane Idalia Destroyed His Home. He’s Riding Out Helene Next Door.**\
-`In a St. Petersburg mobile home complex, many chose not to leave despite the warnings.`\
-https://nytimes.com/2024/09/26/weather/hurricane-idalia-helene-staying.html
 
