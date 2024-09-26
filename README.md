@@ -2,7 +2,7 @@
 `More high-level departures caught some at the high-flying A.I. start-up off guard, as the company seeks to raise billions to fund its operations and ambitious goals.`\
 https://nytimes.com/2024/09/26/business/dealbook/openais-altman-ai-murati.html
 
-**Helene’s Intensification Has Been ‘Aggressive.’ Here’s Why.**\
+**Helene’s Intensification Could Be ‘Aggressive.’ Here’s Why.**\
 `Very warm ocean temperatures in the Gulf of Mexico provide fuel for an “aggressive intensification,” a hurricane expert said.`\
 https://nytimes.com/2024/09/24/weather/helene-storm-category.html
 
