@@ -1,3 +1,7 @@
+**Caleb Williams, Matthew Stafford share unique QB perspective, mutual admiration**\
+`Stafford, a 16-year NFL veteran, has become a quarterback that some of the league's younger QBs — like Williams — revere.`\
+https://nytimes.com/athletic/5794980/2024/09/26/caleb-williams-matthew-stafford-bears-rams/
+
 **Big 12 Chaos Meter: Preseason favorites fight to avoid 0-2 hole, Colorado visits UCF**\
 `What does this week hold coming off an end-of-regulation Hail Mary, a double-digit fourth-quarter comeback and a spicy rivalry rout?`\
 https://nytimes.com/athletic/5795315/2024/09/26/big-12-chaos-meter-kansas-state-oklahoma-state-colorado-ucf/
