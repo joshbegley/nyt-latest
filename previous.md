@@ -1,3 +1,7 @@
+**Farmers Scramble to Save Pecan and Cotton Harvests Ahead of the Storm**\
+`The wind and rain expected along Hurricane Helene’s path could damage vulnerable crops while the region enters the height of the harvest season.`\
+https://nytimes.com/2024/09/26/weather/georgia-farmers-hurricane-helene.html
+
 **Suicides Using Guns Have Grown More Common Among U.S. Women**\
 `New C.D.C. data show that firearms remain the leading means of suicide for both men and women.`\
 https://nytimes.com/2024/09/26/well/mind/suicide-guns-women.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5796809/2024/09/26/drew-doughty-injury-kings/
 **Why left-wing German club St Pauli are selling their stadium to fans: 'It's the home of the people'**\
 `Why a radical plan might help the team compete with the giants of the Bundesliga`\
 https://nytimes.com/athletic/5793285/2024/09/26/st-pauli-stadium-cooperative/
-
-**Israel’s forces still have the resources to invade Lebanon, despite Gaza war, analysts say.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/israels-forces-still-have-the-resources-to-invade-lebanon-despite-gaza-war-analysts-say
 

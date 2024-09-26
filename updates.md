@@ -1,3 +1,7 @@
+**Farmers Scramble to Save Pecan and Cotton Harvests Ahead of the Storm**\
+`The wind and rain expected along Hurricane Helene’s path could damage vulnerable crops while the region enters the height of the harvest season.`\
+https://nytimes.com/2024/09/26/weather/georgia-farmers-hurricane-helene.html
+
 **Suicides Using Guns Have Grown More Common Among U.S. Women**\
 `New C.D.C. data show that firearms remain the leading means of suicide for both men and women.`\
 https://nytimes.com/2024/09/26/well/mind/suicide-guns-women.html
