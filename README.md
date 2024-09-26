@@ -1,3 +1,11 @@
+**What Happens if Mayor Eric Adams Resigns?**\
+`New York City’s public advocate, Jumaane Williams, would become acting mayor. He would schedule a nonpartisan special election for a new mayor, which could take place within 90 days.`\
+https://nytimes.com/2024/09/25/nyregion/jumaane-williams-nyc-acting-mayor.html
+
+**3 Takeaways From Kamala Harris’s Interview on MSNBC**\
+`In her first one-on-one cable TV interview since becoming the nominee, the vice president repeatedly dodged direct questions and stuck firmly on message.`\
+https://nytimes.com/2024/09/25/us/politics/kamala-harris-msnbc-interview-takeaways.html
+
 **A Timeline of Key Moments in the Lead-Up to the Mayor’s Indictment**\
 `Mayor Eric Adams faces corruption charges. Here are the key moments that led to his indictment.`\
 https://nytimes.com/2024/09/25/nyregion/eric-adams-indictment-timeline.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5795076/2024/09/25/mets-pitching-plans-final-games/
 **Ghiroli: Mets-Braves schedule is a mess of everyone's making**\
 `MLB has the power to force logistics, to force both teams to play when and where it wants, so long as the union is in agreement.`\
 https://nytimes.com/athletic/5795093/2024/09/25/mets-braves-weather-delay/
-
-**Jhumpa Lahiri Declines a Noguchi Museum Award Over a Ban on Kaffiyehs**\
-`The museum said the Pulitzer Prize-winning author withdrew her acceptance after it fired staff members for wearing clothing expressing political views.`\
-https://nytimes.com/2024/09/25/arts/design/jhumpa-lahiri-noguchi-award.html
-
-**Mexican Senate Votes to Give Military Control of Civilian National Guard**\
-`Mexico’s governing party says the guard would be more effective and less corrupt as part of the armed forces. Critics fear the increased militarization of civilian life and a spike in rights abuses.`\
-https://nytimes.com/2024/09/25/world/americas/mexico-national-guard-military-control.html
 
