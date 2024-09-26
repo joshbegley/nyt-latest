@@ -1,3 +1,7 @@
+**The Athletic FC: Explaining Tottenham’s complex racism case**\
+`Son Heung-min has accepted team-mate Rodrigo Bentancur's apology - so why could the Uruguayan still get a lengthy ban?`\
+https://nytimes.com/athletic/5795960/2024/09/26/tottenham-son-bentancur-charge-tafc/
+
 **Federal agents searched Gracie Mansion early this morning.**\
 `Agents searched the mayor’s official residence on the Upper East Side of Manhattan hours before federal prosecutors, the F.B.I. and city investigators were to announce corruption charges against him.`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/fbi-adams-raid-city-hall-nyc

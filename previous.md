@@ -1,3 +1,7 @@
+**The Athletic FC: Explaining Tottenham’s complex racism case**\
+`Son Heung-min has accepted team-mate Rodrigo Bentancur's apology - so why could the Uruguayan still get a lengthy ban?`\
+https://nytimes.com/athletic/5795960/2024/09/26/tottenham-son-bentancur-charge-tafc/
+
 **Hong Kong Editors Sentenced in Landmark Case**\
 `The two journalists for Stand News were convicted in August of conspiracy to publish seditious articles, in a case signaling new limits on press freedom.`\
 https://nytimes.com/2024/09/26/world/asia/stand-news-sentences-hong-kong.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794681/2024/09/26/rangers-igor-shesterkin-contract
 **Meet the YouTuber trying out in NHL training camp at $137 daily**\
 `Kasimir Kaskisuo, who has played in the NHL, AHL and Swedish league in recent years, supplements his income on YouTube between gigs.`\
 https://nytimes.com/athletic/5792234/2024/09/26/kasimir-kaskisuo-youtube-nhl-bruins/
-
-**‘The Universal Theory’ Review: A Quantum Noir**\
-`A physicist becomes embroiled in a conspiracy throughout this German meta-thriller. Shot in black-and-white, the film pays homage to Hollywood classics.`\
-https://nytimes.com/2024/09/26/movies/the-universal-theory-review.html
 
