@@ -1,3 +1,23 @@
+**Review: Philadelphia’s BalletX Shows Variety but Little Depth**\
+`The company brought three New York premieres to the Joyce Theater.`\
+https://nytimes.com/2024/09/26/arts/review-balletx-joyce-theater.html
+
+**The Crucial Context for Kamala Harris’s ‘Context’**\
+`Her opponent’s malice and incoherence trump all else.`\
+https://nytimes.com/2024/09/26/opinion/kamala-harris-context-trump.html
+
+**What to Know About Damian Williams, the Man Prosecuting Eric Adams**\
+`Mr. Williams already had a compelling biography, but the first-ever indictment of a New York City mayor has added an astonishing new chapter to his life’s story.`\
+https://nytimes.com/2024/09/26/nyregion/damian-williams-sdny-prosecutor.html
+
+**Betting For (By) Dummies: Teaming up on the Steelers-Colts under and more football picks**\
+`Jon Greenberg and Zac Jackson have more betting picks ahead of another football weekend, including both taking the under in Steelers-Colts.`\
+https://nytimes.com/athletic/5796348/2024/09/26/betting-picks-nfl-college-football-steelers-ohio-state/
+
+**As a Finnish Zoo Returns Pandas to China, It Blames Costs, Not Geopolitics**\
+`Two pandas are heading back to China eight years early amid lower-than-hoped-for visitor numbers at a zoo in rural Finland, and after the pair didn’t produce a cub.`\
+https://nytimes.com/2024/09/26/world/europe/finland-china-pandas-return.html
+
 **Suicides Using Guns Have Grown More Common Among U.S. Women**\
 `New C.D.C. data show that firearms remain the leading means of suicide for both men and women.`\
 https://nytimes.com/2024/09/26/well/mind/suicide-guns-women.html
