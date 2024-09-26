@@ -1,3 +1,7 @@
+**Assessing Nwaneri, Lewis-Skelly and Arsenal's other academy prospects**\
+`Arsenal's win over Bolton was a throwback to the League Cup days under Arsene Wenger, with a host of academy players given a chance`\
+https://nytimes.com/athletic/5795071/2024/09/26/arsenal-bolton-nwaneri-lewis-skelly/
+
 **Fernandes' unusual style presents a tactical conundrum for United and Ten Hag**\
 `The captain has been far from his best this term - his high-risk/high-reward approach is yet to pay off. United need that to change quickly`\
 https://nytimes.com/athletic/5793292/2024/09/26/bruno-fernandes-erik-ten-hag-manchester-united/

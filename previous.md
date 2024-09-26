@@ -1,3 +1,7 @@
+**Assessing Nwaneri, Lewis-Skelly and Arsenal's other academy prospects**\
+`Arsenal's win over Bolton was a throwback to the League Cup days under Arsene Wenger, with a host of academy players given a chance`\
+https://nytimes.com/athletic/5795071/2024/09/26/arsenal-bolton-nwaneri-lewis-skelly/
+
 **Fernandes' unusual style presents a tactical conundrum for United and Ten Hag**\
 `The captain has been far from his best this term - his high-risk/high-reward approach is yet to pay off. United need that to change quickly`\
 https://nytimes.com/athletic/5793292/2024/09/26/bruno-fernandes-erik-ten-hag-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/opinion/trump-far-right-conservatism.html
 **MLB bullpen report: The way too early closer tiers for 2025, with Emmanuel Clase at the head of the class**\
 `For his final bullpen report of the 2024 season, Greg Jewett spins it forward with a way too early look at the Top 5 closer tiers for 2025.`\
 https://nytimes.com/athletic/5795262/2024/09/26/fantasy-baseball-2025-closer-tiers-clase/
-
-**Jasson Domínguez's defense under fire as Yankees lose, Orioles clinch playoff spot**\
-`Domínguez’s poor fielding set the sloppy tone of the night. Still, New York needs just one more win to take the division.`\
-https://nytimes.com/athletic/5795413/2024/09/26/yankees-jasson-dominguez-orioles/
 
