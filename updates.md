@@ -1,3 +1,15 @@
+**Cheap Flights and Deleted Texts: 10 Takeaways From the Adams Indictment**\
+`The indictment against Mayor Eric Adams includes vignettes that range from the amusing to the horrifying.`\
+https://nytimes.com/2024/09/26/nyregion/nyc-mayor-eric-adams-indictment-takeaways.html
+
+**The mayor was indicted. New Yorkers had jokes.**\
+`Memes and jokes have run rampant since news broke of Mayor Eric Adams’s indictment of charges of bribery and fraud.`\
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/the-mayor-was-indicted-new-yorkers-had-jokes
+
+**Hurricane Helene Expected to Make Landfall Tonight**\
+`Helene is expected to bring record-breaking storm surges that will inundate communities along the Gulf Coast and bring rain and flooding to cities across the Southeast.`\
+https://nytimes.com/video/us/100000009724125/hurricane-helene-florida.html
+
 **The Story of the African Diaspora, Told Through Its Fashions**\
 `By examining the work of designers of African descent, a new exhibition in Manhattan finds common threads and, more interestingly, divergences.`\
 https://nytimes.com/2024/09/26/style/africa-fashion-diaspora-museum-at-fit.html
