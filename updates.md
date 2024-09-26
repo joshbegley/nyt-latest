@@ -1,3 +1,15 @@
+**Craig Breslow on the Red Sox season, rotation, trades, prospects and more**\
+`The Red Sox, among other options, could look to their position player prospect pipeline for trade chips in a deal for a frontline starter.`\
+https://nytimes.com/athletic/5795091/2024/09/25/craig-breslow-red-sox-season-assessment/
+
+**Rep. Clay Higgins Posts, Then Deletes, Racist Comments About Haitians**\
+`False claims about migrants in Springfield, Ohio, who are legal residents, became a campaign issue after Donald J. Trump brought them up at the presidential debate this month.`\
+https://nytimes.com/2024/09/25/us/politics/clay-higgins-haitians-springfield-ohio.html
+
+**What we're hearing about the Mets' pitching plans this weekend**\
+`When will Sean Manaea pitch? Who could be in line for a likely doubleheader Monday? We answer those questions and more.`\
+https://nytimes.com/athletic/5795076/2024/09/25/mets-pitching-plans-final-games/
+
 **The Mets-Braves schedule is a mess of everyone's making: Ghiroli**\
 `MLB has the power to force logistics, to force both teams to play when and where it wants, so long as the union is in agreement.`\
 https://nytimes.com/athletic/5795093/2024/09/25/mets-braves-weather-delay/

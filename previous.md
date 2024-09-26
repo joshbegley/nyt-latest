@@ -1,3 +1,15 @@
+**Craig Breslow on the Red Sox season, rotation, trades, prospects and more**\
+`The Red Sox, among other options, could look to their position player prospect pipeline for trade chips in a deal for a frontline starter.`\
+https://nytimes.com/athletic/5795091/2024/09/25/craig-breslow-red-sox-season-assessment/
+
+**Rep. Clay Higgins Posts, Then Deletes, Racist Comments About Haitians**\
+`False claims about migrants in Springfield, Ohio, who are legal residents, became a campaign issue after Donald J. Trump brought them up at the presidential debate this month.`\
+https://nytimes.com/2024/09/25/us/politics/clay-higgins-haitians-springfield-ohio.html
+
+**What we're hearing about the Mets' pitching plans this weekend**\
+`When will Sean Manaea pitch? Who could be in line for a likely doubleheader Monday? We answer those questions and more.`\
+https://nytimes.com/athletic/5795076/2024/09/25/mets-pitching-plans-final-games/
+
 **The Mets-Braves schedule is a mess of everyone's making: Ghiroli**\
 `MLB has the power to force logistics, to force both teams to play when and where it wants, so long as the union is in agreement.`\
 https://nytimes.com/athletic/5795093/2024/09/25/mets-braves-weather-delay/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/25/us/politics/trump-butler-rally-october.html
 **Trump Hints at Iran Link to His 2 Assassination Attempts, Despite the Available Evidence**\
 `Officials have disclosed no ties to Iran in the cases in Pennsylvania and Florida, as Donald Trump questioned the F.B.I.’s investigations and mused about military action.`\
 https://nytimes.com/2024/09/25/us/politics/trump-nc-iran-economy.html
-
-**Cubs call up top outfield prospect Kevin Alcántara to make his debut in Philadelphia**\
-`The Cubs believe that Alcántara has some of the best upside of any of their prospects.`\
-https://nytimes.com/athletic/5795031/2024/09/25/cubs-promote-kevin-alcantara-mlb-debut/
-
-**Hezbollah Targets Tel Aviv as Israel Moves Forces Toward Lebanon**\
-`A top Israeli military official hinted to soldiers of a possible ground invasion as the United States and France drafted a cease-fire proposal to try to stave off a broader conflict.`\
-https://nytimes.com/2024/09/25/world/middleeast/israel-hezbollah-lebanon.html
-
-**Investigators Trace Former Police Commissioner’s Ties to Nightclubs**\
-`Police officers have been asked for communications that would show that rewards were offered for favorable treatment of night spots, said a person familiar with the investigation.`\
-https://nytimes.com/2024/09/25/nyregion/nypd-commissioner-night-clubs.html
 
