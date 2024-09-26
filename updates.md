@@ -1,3 +1,11 @@
+**Caitlin Clark grades her rookie season as 'solid' after playoff exit**\
+`"Championships are great, hopefully we have a few of those, but you want to have really good relationships with people."`\
+https://nytimes.com/athletic/5795293/2024/09/25/caitlin-clark-rookie-season-indiana-fever/
+
+**Who Is Running for New York City Mayor in the Democratic Primary?**\
+`Mayor Eric Adams is currently running for re-election in a competitive primary next June. Already, four prominent Democrats are facing off against him.`\
+https://nytimes.com/2024/09/25/nyregion/eric-adams-mayor-democratic-primary.html
+
 **Mayor Eric Adams Vows to Fight Federal Indictment Against Him**\
 `In a videotaped speech, Mr. Adams said any charges against him would be ‘false’ and said that he will continue to lead as mayor of the city.`\
 https://nytimes.com/video/nyregion/100000009721164/mayor-eric-adams-vows-to-fight-federal-indictment-against-him.html
