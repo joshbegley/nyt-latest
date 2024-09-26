@@ -1,3 +1,11 @@
+**Hong Kong Editors Sentenced in Landmark Case**\
+`The two journalists for Stand News were convicted in August of conspiracy to publish seditious articles, in a case signaling new limits on press freedom.`\
+https://nytimes.com/2024/09/26/world/asia/stand-news-sentences-hong-kong.html
+
+**Federal Agents Search Gracie Mansion in Adams Corruption Investigation**\
+`Agents searched the mayor’s official residence on the Upper East Side of Manhattan hours before federal prosecutors, the F.B.I. and city investigators were to announce corruption charges against him.`\
+https://nytimes.com/2024/09/26/nyregion/fbi-adams-raid-city-hall-nyc.html
+
 **The Pulse: An NIL opt-out that could change college football**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5794623/2024/09/26/matthew-sluka-opt-out-nil-the-pulse/
