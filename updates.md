@@ -1,3 +1,11 @@
+**Bucks welcome Junior Bridgeman to ownership group, and it just feels 'natural'**\
+`"You can’t understand or underestimate how big a moment this is for the franchise,” Bucks co-owner Jimmy Haslam said.`\
+https://nytimes.com/athletic/5795404/2024/09/26/junior-bridgeman-milwaukee-bucks-ownership/
+
+**An Exclusive Peek at the Met’s Reimagined Rockefeller Wing**\
+`With more than 1,800 works from five continents, and new scholarship, refreshed galleries present the arts of Africa, the Ancient Americas and Oceania as three distinct areas.`\
+https://nytimes.com/2024/09/26/arts/design/met-rockefeller-wing-renovation.html
+
 **Sharpton declines to defend Adams and asks Black leaders to meet.**\
 `The Rev. Al Sharpton raised concerns that Mayor Eric Adams’s attempts to defend himself could hurt other Black leaders, like Vice President Kamala Harris.`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/sharpton-declines-to-defend-adams-and-asks-black-leaders-to-meet

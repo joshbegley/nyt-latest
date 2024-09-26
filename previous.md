@@ -1,3 +1,11 @@
+**Bucks welcome Junior Bridgeman to ownership group, and it just feels 'natural'**\
+`"You can’t understand or underestimate how big a moment this is for the franchise,” Bucks co-owner Jimmy Haslam said.`\
+https://nytimes.com/athletic/5795404/2024/09/26/junior-bridgeman-milwaukee-bucks-ownership/
+
+**An Exclusive Peek at the Met’s Reimagined Rockefeller Wing**\
+`With more than 1,800 works from five continents, and new scholarship, refreshed galleries present the arts of Africa, the Ancient Americas and Oceania as three distinct areas.`\
+https://nytimes.com/2024/09/26/arts/design/met-rockefeller-wing-renovation.html
+
 **Sharpton declines to defend Adams and asks Black leaders to meet.**\
 `The Rev. Al Sharpton raised concerns that Mayor Eric Adams’s attempts to defend himself could hurt other Black leaders, like Vice President Kamala Harris.`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/sharpton-declines-to-defend-adams-and-asks-black-leaders-to-meet
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/at-the-
 **Sudan’s Army Launches Operation to Retake Capital**\
 `The latest outbreak of fighting comes as nations gathered at the U.N. General Assembly called for an end to the war and for aid to be fast-tracked to millions in need.`\
 https://nytimes.com/2024/09/26/world/africa/sudan-army-operation-capital-khartoum.html
-
-**The Global Threat of Antibiotic Resistance**\
-`International health experts have begun to shift their focus to try to provide access to basic drugs in countries where preventable deaths from infections occur too frequently.`\
-https://nytimes.com/2024/09/26/health/united-nations-drug-resistance-antibiotics.html
-
-**Before Helene’s Landfall, Bicycles Ruled the Road on Florida’s Gulf Coast**\
-`Several residents in the region have relied on pedal power to get around as the storm approached on Thursday.`\
-https://nytimes.com/2024/09/26/weather/helene-bicycles-florida-gulf-coast.html
 
