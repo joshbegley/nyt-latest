@@ -1,3 +1,19 @@
+**U.S. runs out to dominant Presidents Cup Day 1 lead**\
+`The Americans won the opening session 5-0, with Scottie Scheffler and Keegan Bradley providing the fireworks.`\
+https://nytimes.com/athletic/5797568/2024/09/26/presidents-cup-2024-us-international-day-1/
+
+**Mayor Adams, Confronted With Detailed Graft Charges, Says He Won’t Quit**\
+`Mr. Adams accepted free airline tickets, lavish overseas accommodations and illegal foreign campaign donations, prosecutors said. He denied the charges.`\
+https://nytimes.com/2024/09/26/nyregion/mayor-adams-confronted-with-detailed-graft-charges-says-he-wont-quit.html
+
+**No, Saturday isn't Penn State's White Out. But it might look like it**\
+`No. 9 Penn State will host No. 19 Illinois on Saturday in one of the marquee night games at hosted at Beaver Stadium this season. `\
+https://nytimes.com/athletic/5797547/2024/09/26/penn-state-illinois-white-out-college-football/
+
+**Biden Signs Stopgap Spending Measure to Keep Government Open**\
+`The bill averts a campaign-season shutdown but ensures another spending fight in Congress during its lame-duck session in December.`\
+https://nytimes.com/2024/09/26/us/politics/biden-spending-bill-shutdown.html
+
 **Acadia Hospitals Reach $20 Million Settlement With Justice Dept.**\
 `The F.B.I. is also investigating the large chain of psychiatric hospitals for holding patients longer than what is medically necessary.`\
 https://nytimes.com/2024/09/26/health/acadia-doj-settlement-fbi.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/26/us/politics/trump-campaign-secret-service.html
 **Just how nice is Business Class on Turkish Airlines?**\
 `Turkish Airlines, the professed favorite of Mayor Eric Adams, features a business class that has plush, lie-flat seats and multiple course meals served on porcelain tableware.`\
 https://nytimes.com/2024/09/26/nyregion/just-how-nice-is-turkish-airliness-business-class.html
-
-**Even Many Hurricane Veterans Were Leaving Florida’s Big Bend Ahead of Helene**\
-`The region has endured two other hurricanes recently, but many more people appeared to be evacuating this time, leaving their small coastal towns eerily empty.`\
-https://nytimes.com/2024/09/26/us/hurricane-helene-florida-big-bend-evacuation.html
-
-**What Does a Hurricane’s Category Tell Us?**\
-`The hurricane scale classifies storms based on wind speeds and predicts potential impacts, which can help people prepare for the expected damage.`\
-https://nytimes.com/2024/09/26/weather/hurricanes-category.html
-
-**U.S. Intelligence Stresses Risks in Allowing Long-Range Strikes by Ukraine**\
-`Intelligence agencies concluded that granting Ukraine’s request to use Western missiles against targets deep in Russia could prompt forceful retaliation while not fundamentally changing the course of the war.`\
-https://nytimes.com/2024/09/26/us/politics/us-intelligence-stresses-risks-in-allowing-long-range-strikes-by-ukraine.html
-
-**Scenes From Florida as Hurricane Helene Approaches**\
-`The storm is expected to make landfall on the state’s gulf coast on Thursday evening as a Category 4 hurricane.`\
-https://nytimes.com/2024/09/26/us/hurricane-helene-florida-photos-videos.html
 

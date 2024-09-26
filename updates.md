@@ -1,3 +1,19 @@
+**U.S. runs out to dominant Presidents Cup Day 1 lead**\
+`The Americans won the opening session 5-0, with Scottie Scheffler and Keegan Bradley providing the fireworks.`\
+https://nytimes.com/athletic/5797568/2024/09/26/presidents-cup-2024-us-international-day-1/
+
+**Mayor Adams, Confronted With Detailed Graft Charges, Says He Won’t Quit**\
+`Mr. Adams accepted free airline tickets, lavish overseas accommodations and illegal foreign campaign donations, prosecutors said. He denied the charges.`\
+https://nytimes.com/2024/09/26/nyregion/mayor-adams-confronted-with-detailed-graft-charges-says-he-wont-quit.html
+
+**No, Saturday isn't Penn State's White Out. But it might look like it**\
+`No. 9 Penn State will host No. 19 Illinois on Saturday in one of the marquee night games at hosted at Beaver Stadium this season. `\
+https://nytimes.com/athletic/5797547/2024/09/26/penn-state-illinois-white-out-college-football/
+
+**Biden Signs Stopgap Spending Measure to Keep Government Open**\
+`The bill averts a campaign-season shutdown but ensures another spending fight in Congress during its lame-duck session in December.`\
+https://nytimes.com/2024/09/26/us/politics/biden-spending-bill-shutdown.html
+
 **Acadia Hospitals Reach $20 Million Settlement With Justice Dept.**\
 `The F.B.I. is also investigating the large chain of psychiatric hospitals for holding patients longer than what is medically necessary.`\
 https://nytimes.com/2024/09/26/health/acadia-doj-settlement-fbi.html
