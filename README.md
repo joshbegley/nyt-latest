@@ -2,7 +2,7 @@
 `The two journalists for Stand News were convicted in August of conspiracy to publish seditious articles, in a case signaling new limits on press freedom.`\
 https://nytimes.com/2024/09/26/world/asia/stand-news-sentences-hong-kong.html
 
-**Federal Agents Search Gracie Mansion in Adams Corruption Investigation**\
+**Federal agents searched Gracie Mansion early this morning.**\
 `Agents searched the mayor’s official residence on the Upper East Side of Manhattan hours before federal prosecutors, the F.B.I. and city investigators were to announce corruption charges against him.`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/fbi-adams-raid-city-hall-nyc
 
