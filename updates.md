@@ -1,3 +1,7 @@
+**Put ‘Eat Dinner’ on Your Calendar**\
+`Ten-minute tofu, 15-minute fried rice and more recipes for when life overwhelms.`\
+https://nytimes.com/2024/09/26/dining/put-eat-dinner-on-your-calendar.html
+
 **‘The Rings of Power’ Season 2, Episode 7 Recap: ‘Light Endures’**\
 `Something is wrong with the candles in Celebrimbor’s workshop. Things are even worse outside.`\
 https://nytimes.com/2024/09/26/arts/television/rings-of-power-recap-season-2-episode-7.html

@@ -1,3 +1,7 @@
+**Put ‘Eat Dinner’ on Your Calendar**\
+`Ten-minute tofu, 15-minute fried rice and more recipes for when life overwhelms.`\
+https://nytimes.com/2024/09/26/dining/put-eat-dinner-on-your-calendar.html
+
 **‘The Rings of Power’ Season 2, Episode 7 Recap: ‘Light Endures’**\
 `Something is wrong with the candles in Celebrimbor’s workshop. Things are even worse outside.`\
 https://nytimes.com/2024/09/26/arts/television/rings-of-power-recap-season-2-episode-7.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/nyregion/eric-adams-press-conference-protesters.h
 **The Two Ways Eric Adams Could Be Forced From Office**\
 `The New York City Charter includes provisions that could be used to remove the mayor against his will if he chooses not to step down.`\
 https://nytimes.com/2024/09/26/nyregion/eric-adams-removed-from-office.html
-
-**Trump’s Plans Could Spur Inflation While Slowing Growth, Study Finds**\
-`A nonpartisan economic analysis warned that deporting migrants and increasing tariffs would damage the U.S. economy.`\
-https://nytimes.com/2024/09/26/business/economy/trump-economy-inflation-growth.html
 
