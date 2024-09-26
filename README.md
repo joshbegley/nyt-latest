@@ -1,3 +1,11 @@
+**Trump’s Plans Could Spur Inflation While Slowing Growth, Study Finds**\
+`A nonpartisan economic analysis warned that deporting migrants and increasing tariffs would damage the U.S. economy.`\
+https://nytimes.com/2024/09/26/business/economy/trump-economy-inflation-growth.html
+
+**Fulham linked in new allegations gathered in Mohamed Al Fayed sexual abuse investigation**\
+`Ongoing enquiries into allegations of sexual abuse against former Harrods chairman Mohamed Al Fayed have unearthed new testimony linked to Fulham FC.`\
+https://nytimes.com/athletic/5796915/2024/09/26/fulham-mohamed-al-fayed-investigation/
+
 **Vote to amend Premier League’s APT rules withdrawn ahead of meeting**\
 `A vote on Associated Party Transaction (APT) rule amendments was pulled from the agenda at late notice ahead of a Premier League shareholders’ meeting today (Thursday).`\
 https://nytimes.com/athletic/5796572/2024/09/26/premier-league-meeting-apt-vote/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/26/us/politics/harris-trump-economy.html
 **Farmers Scramble to Save Pecan and Cotton Harvests Ahead of the Storm**\
 `The wind and rain expected along Hurricane Helene’s path could damage vulnerable crops while the region enters the height of the harvest season.`\
 https://nytimes.com/2024/09/26/weather/georgia-farmers-hurricane-helene.html
-
-**Suicides Using Guns Have Grown More Common Among U.S. Women**\
-`New C.D.C. data show that firearms remain the leading means of suicide for both men and women.`\
-https://nytimes.com/2024/09/26/well/mind/suicide-guns-women.html
-
-**Daniel Ricciardo deserved a proper F1 farewell, not his awkward Singapore goodbye**\
-`F1 can be ruthless. But for someone who has put so much into being more than just another F1 driver, Daniel Ricciardo deserved better.`\
-https://nytimes.com/athletic/5796515/2024/09/26/daniel-ricciardo-red-bull-f1-goodbye-singapore/
 
