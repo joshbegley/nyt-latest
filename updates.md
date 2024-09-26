@@ -1,3 +1,7 @@
+**A Timeline of Key Moments in the Lead-Up to the Mayor’s Indictment**\
+`Mayor Eric Adams faces corruption charges. Here are the key moments that led to his indictment.`\
+https://nytimes.com/2024/09/25/nyregion/eric-adams-indictment-timeline.html
+
 **Eric Adams Is Indicted Following Federal Corruption Investigation**\
 `The indictment makes Mr. Adams the first sitting mayor of New York City to be criminally charged.`\
 https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/eric-adams-indicted
