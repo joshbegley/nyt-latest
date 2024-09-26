@@ -1,3 +1,7 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/26/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **The Athletic FC: Explaining Tottenham’s complex racism case**\
 `Son Heung-min has accepted team-mate Rodrigo Bentancur's apology - so why could the Uruguayan still get a lengthy ban?`\
 https://nytimes.com/athletic/5795960/2024/09/26/tottenham-son-bentancur-charge-tafc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791015/2024/09/26/blues-training-camp-broberg/
 **Analysis: Can the Rangers afford a $12 million goalie? Can they afford to let one walk?**\
 `Igor Shesterkin's next contract is expected to make him the NHL's most expensive goalie. But what will it mean for the rest of the Rangers?`\
 https://nytimes.com/athletic/5794681/2024/09/26/rangers-igor-shesterkin-contract-analysis/
-
-**Meet the YouTuber trying out in NHL training camp at $137 daily**\
-`Kasimir Kaskisuo, who has played in the NHL, AHL and Swedish league in recent years, supplements his income on YouTube between gigs.`\
-https://nytimes.com/athletic/5792234/2024/09/26/kasimir-kaskisuo-youtube-nhl-bruins/
 

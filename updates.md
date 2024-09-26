@@ -1,3 +1,7 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/26/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **The Athletic FC: Explaining Tottenham’s complex racism case**\
 `Son Heung-min has accepted team-mate Rodrigo Bentancur's apology - so why could the Uruguayan still get a lengthy ban?`\
 https://nytimes.com/athletic/5795960/2024/09/26/tottenham-son-bentancur-charge-tafc/

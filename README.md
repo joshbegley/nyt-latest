@@ -1,3 +1,11 @@
+**Pink squares and bubbles: Inside Joe Mazzulla's unconventional practice drills for Celtics**\
+`"Sometimes I think he does drills to literally f--- with us," says Sam Hauser. `\
+https://nytimes.com/athletic/5795090/2024/09/26/celtics-joe-mazzulla-coaching-drills/
+
+**Despite Foreign Pressure, Both Israel and Hezbollah Have Reasons to Reject a Truce**\
+`Hezbollah has repeatedly said it intends to continue fighting until there is a cease-fire in Gaza, while Israel wants the powerful Lebanese militia to pull back permanently from the border.`\
+https://nytimes.com/2024/09/26/world/middleeast/israel-hezbollah-cease-fire-reasons.html
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/09/26/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5790361/2024/09/26/liverpool-mohamed-salah-slot/
 **Broncos enjoying 'change of scenery' in serene West Virginia, but focus is on Jets**\
 `The Broncos had a unique off day at the sprawling, 11,000-acre Greenbrier resort but have since settled in for a critical week of practice.`\
 https://nytimes.com/athletic/5793947/2024/09/26/broncos-practice-west-virginia-jets/
-
-**What I’m seeing at Blues training camp: 10 observations from the opening week**\
-`The Blues gave Philip Broberg a two-year contract with a $4.58 AAV, and through the first week of camp, you can see why.`\
-https://nytimes.com/athletic/5791015/2024/09/26/blues-training-camp-broberg/
-
-**Analysis: Can the Rangers afford a $12 million goalie? Can they afford to let one walk?**\
-`Igor Shesterkin's next contract is expected to make him the NHL's most expensive goalie. But what will it mean for the rest of the Rangers?`\
-https://nytimes.com/athletic/5794681/2024/09/26/rangers-igor-shesterkin-contract-analysis/
 
