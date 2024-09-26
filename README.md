@@ -1,3 +1,7 @@
+**Read the Eric Adams Indictment**\
+`The indictment against Mayor Eric Adams of New York was unsealed Thursday.`\
+https://nytimes.com/interactive/2024/09/26/nyregion/eric-adams-indictment-charges-pdf.html
+
 **These are the charges against Eric Adams.**\
 `By William K. Rashbaum, Dana Rubinstein and Michael Rothfeld`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/eric-adams-charges
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast.html
 **Southwest Airlines Stock Soars After It Lays Out Overhaul**\
 `The move, including service enhancements and share buybacks, came after the hedge fund Elliott Management called for cost savings and better profits.`\
 https://nytimes.com/2024/09/26/business/southwest-airlines-overhaul-elliott.html
-
-**These Are the N.Y.C. Officials Who Resigned Ahead of the Adams Indictment**\
-`The police commissioner and the schools chancellor were among those who said they would leave the administration.`\
-https://nytimes.com/2024/09/26/nyregion/nyc-resignations-banks-caban-adams.html
 
