@@ -1,3 +1,7 @@
+**‘The Rings of Power’ Season 2, Episode 7 Recap: ‘Light Endures’**\
+`Something is wrong with the candles in Celebrimbor’s workshop. Things are even worse outside.`\
+https://nytimes.com/2024/09/26/arts/television/rings-of-power-recap-season-2-episode-7.html
+
 **The Manhattan Building at the Center of the Charges Against Adams**\
 `The lavish Turkevi Center, built by the Turkish government, was opened despite defects in its fire safety system. Prosecutors say Eric Adams pressured fire department officials to look the other way.`\
 https://nytimes.com/2024/09/26/nyregion/turkish-consulate-manhattan-turkevi-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/nyregion/eric-adams-removed-from-office.html
 **Trump’s Plans Could Spur Inflation While Slowing Growth, Study Finds**\
 `A nonpartisan economic analysis warned that deporting migrants and increasing tariffs would damage the U.S. economy.`\
 https://nytimes.com/2024/09/26/business/economy/trump-economy-inflation-growth.html
-
-**Fulham linked in new allegations gathered in Mohamed Al Fayed sexual abuse investigation**\
-`Ongoing enquiries into allegations of sexual abuse against former Harrods chairman Mohamed Al Fayed have unearthed new testimony linked to Fulham FC.`\
-https://nytimes.com/athletic/5796915/2024/09/26/fulham-mohamed-al-fayed-investigation/
 
