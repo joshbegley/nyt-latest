@@ -1,3 +1,11 @@
+**Trump’s Plans Could Spur Inflation While Slowing Growth, Study Finds**\
+`A nonpartisan economic analysis warned that deporting migrants and increasing tariffs would damage the U.S. economy.`\
+https://nytimes.com/2024/09/26/business/economy/trump-economy-inflation-growth.html
+
+**Fulham linked in new allegations gathered in Mohamed Al Fayed sexual abuse investigation**\
+`Ongoing enquiries into allegations of sexual abuse against former Harrods chairman Mohamed Al Fayed have unearthed new testimony linked to Fulham FC.`\
+https://nytimes.com/athletic/5796915/2024/09/26/fulham-mohamed-al-fayed-investigation/
+
 **Tiny Cedar Key Has Been Hit Before. Now, It Faces a Huge Storm.**\
 `Although many residents have evacuated Cedar Key, which sticks out of the edge of Florida into the Gulf of Mexico, about 50 people have remained and face the risks.`\
 https://nytimes.com/2024/09/26/weather/florida-hurricane-helene-evacuations.html
