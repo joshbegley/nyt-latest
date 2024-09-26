@@ -1,3 +1,11 @@
+**Bengals' defensive line decline: Why a big investment is instead a big problem**\
+`Injuries and ineffectiveness have left Cincinnati with a glaring weakness that was paid to be a strength.`\
+https://nytimes.com/athletic/5795155/2024/09/26/bengals-defensive-line-decline/
+
+**Is drama finally in store for Nittany Lions? 3 keys and a prediction for Illinois-Penn State**\
+`No. 9 Penn State has a homecoming game against No. 19 Illinois that suddenly features two ranked and undefeated opponents.`\
+https://nytimes.com/athletic/5795525/2024/09/26/penn-state-illinois-prediction-schedule/
+
 **Patriots mailbag: When should Drake Maye play, and what will he add?**\
 `Our latest Patriots mailbag hits on Drake Maye, the offensive line and a potential move for a veteran at the trade deadline.`\
 https://nytimes.com/athletic/5794406/2024/09/26/patriots-mailbag-drake-maye-offensive-line/
