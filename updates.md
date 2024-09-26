@@ -1,3 +1,7 @@
+**NASCAR at Kansas odds, picks for playoffs: Can Larson complete Kansas sweep?**\
+`The Cup Series playoffs head to the next round of three races before another set of eliminations. Get odds and picks for Kansas. `\
+https://nytimes.com/athletic/5796422/2024/09/26/nascar-cup-series-kansas-speedway-playoff-race-odds-expert-predictions/
+
 **What’s next for Caitlin Clark and the Fever after elimination from the WNBA playoffs?**\
 `With some fine-tuning, the Fever are in position to build toward winning a WNBA championship.`\
 https://nytimes.com/athletic/5796597/2024/09/26/caitlin-clark-fever-wnba-playoffs-future/
