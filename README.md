@@ -6,7 +6,7 @@ https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/here
 `The indictment makes Mr. Adams the first sitting mayor of New York City to be criminally charged.`\
 https://nytimes.com/2024/09/25/nyregion/eric-adams-indicted.html
 
-**Phillies clinch first-round bye in playoffs, still in mix for No. 1 seed**\
+**Phillies clinch first-round bye in playoffs, hold tiebreakers for No. 1 seed**\
 `Now, the Phillies know this: They will not play a postseason game until Oct. 5.`\
 https://nytimes.com/athletic/5795154/2024/09/25/phillies-first-round-bye-mlb-playoffs/
 
