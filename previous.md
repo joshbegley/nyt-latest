@@ -1,3 +1,19 @@
+**Helene’s Intensification Has Been ‘Aggressive.’ Here’s Why.**\
+`Very warm ocean temperatures in the Gulf of Mexico provide fuel for an “aggressive intensification,” a hurricane expert said.`\
+https://nytimes.com/2024/09/24/weather/helene-storm-category.html
+
+**Tracking Tropical Storm Isaac**\
+`See the likely path and wind arrival times for Isaac.`\
+https://nytimes.com/interactive/2024/09/26/weather/isaac-map-path-tracker.html
+
+**Real Madrid's Carvajal fit for Madrid derby; Camavinga could also return**\
+`Real Madrid defender Dani Carvajal will be available to face Atletico Madrid on Sunday.`\
+https://nytimes.com/athletic/5796056/2024/09/26/real-madrid-team-news-carvajal-camavinga/
+
+**Tropical Storm Isaac Forms in the North Atlantic Ocean**\
+`The storm is the ninth named storm of the Atlantic hurricane season. It is not currently a threat to land.`\
+https://nytimes.com/live/2024/09/26/weather/tropical-storm-isaac-hurricane
+
 **Kings depth chart analysis: Lines and pairs take shape early**\
 `The Kings are looking for more physical play, so how will offseason additions fit into the lineup?`\
 https://nytimes.com/athletic/5794267/2024/09/26/la-kings-depth-chart-lineup/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5795090/2024/09/26/celtics-joe-mazzulla-coaching-dr
 **Despite Foreign Pressure, Both Israel and Hezbollah Have Reasons to Reject a Truce**\
 `Hezbollah has repeatedly said it intends to continue fighting until there is a cease-fire in Gaza, while Israel wants the powerful Lebanese militia to pull back permanently from the border.`\
 https://nytimes.com/2024/09/26/world/middleeast/israel-hezbollah-cease-fire-reasons.html
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/09/26/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**The Athletic FC: Explaining Tottenham’s complex racism case**\
-`Son Heung-min has accepted team-mate Rodrigo Bentancur's apology - so why could the Uruguayan still get a lengthy ban?`\
-https://nytimes.com/athletic/5795960/2024/09/26/tottenham-son-bentancur-charge-tafc/
-
-**Federal agents searched Gracie Mansion early this morning.**\
-`Agents searched the mayor’s official residence on the Upper East Side of Manhattan hours before federal prosecutors, the F.B.I. and city investigators were to announce corruption charges against him.`\
-https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/fbi-adams-raid-city-hall-nyc
-
-**Hong Kong Editors Sentenced in Landmark Case**\
-`The two journalists for Stand News were convicted in August of conspiracy to publish seditious articles, in a case signaling new limits on press freedom.`\
-https://nytimes.com/2024/09/26/world/asia/stand-news-sentences-hong-kong.html
 

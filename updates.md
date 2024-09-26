@@ -1,3 +1,19 @@
+**Helene’s Intensification Has Been ‘Aggressive.’ Here’s Why.**\
+`Very warm ocean temperatures in the Gulf of Mexico provide fuel for an “aggressive intensification,” a hurricane expert said.`\
+https://nytimes.com/2024/09/24/weather/helene-storm-category.html
+
+**Tracking Tropical Storm Isaac**\
+`See the likely path and wind arrival times for Isaac.`\
+https://nytimes.com/interactive/2024/09/26/weather/isaac-map-path-tracker.html
+
+**Real Madrid's Carvajal fit for Madrid derby; Camavinga could also return**\
+`Real Madrid defender Dani Carvajal will be available to face Atletico Madrid on Sunday.`\
+https://nytimes.com/athletic/5796056/2024/09/26/real-madrid-team-news-carvajal-camavinga/
+
+**Tropical Storm Isaac Forms in the North Atlantic Ocean**\
+`The storm is the ninth named storm of the Atlantic hurricane season. It is not currently a threat to land.`\
+https://nytimes.com/live/2024/09/26/weather/tropical-storm-isaac-hurricane
+
 **Kings depth chart analysis: Lines and pairs take shape early**\
 `The Kings are looking for more physical play, so how will offseason additions fit into the lineup?`\
 https://nytimes.com/athletic/5794267/2024/09/26/la-kings-depth-chart-lineup/
