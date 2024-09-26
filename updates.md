@@ -1,3 +1,11 @@
+**Pink squares and bubbles: Inside Joe Mazzulla's unconventional practice drills for Celtics**\
+`"Sometimes I think he does drills to literally f--- with us," says Sam Hauser. `\
+https://nytimes.com/athletic/5795090/2024/09/26/celtics-joe-mazzulla-coaching-drills/
+
+**Despite Foreign Pressure, Both Israel and Hezbollah Have Reasons to Reject a Truce**\
+`Hezbollah has repeatedly said it intends to continue fighting until there is a cease-fire in Gaza, while Israel wants the powerful Lebanese militia to pull back permanently from the border.`\
+https://nytimes.com/2024/09/26/world/middleeast/israel-hezbollah-cease-fire-reasons.html
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/09/26/us/harris-trump-election/heres-the-latest-on-the-presidential-race
