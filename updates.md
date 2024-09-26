@@ -1,3 +1,15 @@
+**The Manhattan Building at the Center of the Charges Against Adams**\
+`The lavish Turkevi Center, built by the Turkish government, was opened despite defects in its fire safety system. Prosecutors say Eric Adams pressured fire department officials to look the other way.`\
+https://nytimes.com/2024/09/26/nyregion/turkish-consulate-manhattan-turkevi-center.html
+
+**Is Underparenting Good or Bad for Kids?**\
+`Responses to a guest essay about less intensive parenting. Also: A nuclear threat; gear against school shootings; wills for singles; Trump vs. Obamacare.`\
+https://nytimes.com/2024/09/26/opinion/parenting-kids.html
+
+**5 Moments of Joy From Hoda Kotb’s Run on ‘Today’**\
+`The morning show host announced that she’s stepping down after more than 25 years at NBC filled with laughter, tears and the occasional glass of wine.`\
+https://nytimes.com/2024/09/26/style/hoda-kotb-today-memorable-moments.html
+
 **A Rosh Hashana Dish Keeps the Memory of Home**\
 `Legumbres para rosana, a dish of Spanish Moroccan origin, is a delicious reminder of a family’s journey.`\
 https://nytimes.com/2024/09/26/dining/rosh-hashana-recipe.html
