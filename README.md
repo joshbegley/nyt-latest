@@ -1,3 +1,7 @@
+**Premier League partner Sorare to appear in court over UK Gambling Commission charge**\
+`Sorare, an official partner of the Premier League, has been charged by the UK Gambling Commission with allegedly “providing unlicensed gambling facilities to consumers in Britain”.`\
+https://nytimes.com/athletic/5796141/2024/09/26/sorare-premier-league-charge-gambling/
+
 **Hoda Kotb, Cheerful Fixture of NBC’s ‘Today’ Show, Says She Will Depart**\
 `Her exit, planned for early next year, is a seismic shift for NBC and opens up a pair of morning TV’s most coveted anchor chairs.`\
 https://nytimes.com/2024/09/26/business/media/hoda-kotb-today-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794786/2024/09/26/browns-offensive-line-injuries/
 **A 17-strikeout game in Arizona allows Giants to ponder how their offense fell short**\
 `The Giants would do well to study and emulate how the Diamondbacks compete at the plate.`\
 https://nytimes.com/athletic/5795845/2024/09/26/sf-giants-17-strikeouts-diamondbacks/
-
-**Here is the latest on the storm.**\
-`By Judson Jones`\
-https://nytimes.com/live/2024/09/26/weather/tropical-storm-isaac-hurricane/here-is-the-latest-on-the-storm
 
