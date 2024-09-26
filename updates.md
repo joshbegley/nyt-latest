@@ -1,3 +1,7 @@
+**Warning: Do not poke Scottie Scheffler**\
+`When Tom Kim decided to boisterously celebrate a birdie putt, the No. 1 player in the world had an answer.`\
+https://nytimes.com/athletic/5798009/2024/09/26/scottie-scheffler-presidents-cup-tom-kim/
+
 **California Will Formally Apologize for Being Complicit in Slavery**\
 `Gov. Gavin Newsom signed several bills intended to atone for the state’s role in the oppression of Black Americans, but California legislators so far have sidelined proposals on cash reparations.`\
 https://nytimes.com/2024/09/26/us/california-slavery-apology-reparations.html
