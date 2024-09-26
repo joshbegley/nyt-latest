@@ -1,3 +1,7 @@
+**Southwest Airlines, Under Pressure, Lays Out 3-Year Overhaul**\
+`The move came after the hedge fund Elliott Management, which has more than 10 percent of the airline’s shares, called for cost containment and better profits.`\
+https://nytimes.com/2024/09/26/business/southwest-airlines-overhaul-elliott.html
+
 **These Are the N.Y.C. Officials Who Resigned Ahead of the Adams Indictment**\
 `The police commissioner and the schools chancellor were among those who said they would leave the administration.`\
 https://nytimes.com/2024/09/26/nyregion/nyc-resignations-banks-caban-adams.html

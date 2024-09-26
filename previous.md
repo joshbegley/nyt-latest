@@ -1,3 +1,7 @@
+**Southwest Airlines, Under Pressure, Lays Out 3-Year Overhaul**\
+`The move came after the hedge fund Elliott Management, which has more than 10 percent of the airline’s shares, called for cost containment and better profits.`\
+https://nytimes.com/2024/09/26/business/southwest-airlines-overhaul-elliott.html
+
 **These Are the N.Y.C. Officials Who Resigned Ahead of the Adams Indictment**\
 `The police commissioner and the schools chancellor were among those who said they would leave the administration.`\
 https://nytimes.com/2024/09/26/nyregion/nyc-resignations-banks-caban-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/26/weather/isaac-map-path-tracker.html
 **Real Madrid's Carvajal fit for Madrid derby; Camavinga could also return**\
 `Real Madrid defender Dani Carvajal will be available to face Atletico Madrid on Sunday.`\
 https://nytimes.com/athletic/5796056/2024/09/26/real-madrid-team-news-carvajal-camavinga/
-
-**Tropical Storm Isaac Forms in the North Atlantic Ocean**\
-`The storm is the ninth named storm of the Atlantic hurricane season. It is not currently a threat to land.`\
-https://nytimes.com/live/2024/09/26/weather/tropical-storm-isaac-hurricane
 
