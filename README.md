@@ -1,5 +1,9 @@
-**Many Who Used to Stay Put Are Leaving for Helene**\
-`More residents who live near the coast are taking the warnings of storm surge seriously and evacuating to inland areas.`\
+**Lloyd Macklowe, Leading Purveyor of Art Nouveau, Is Dead at 90**\
+`He and his wife began buying pieces to furnish their apartment. They wound up with a museum-quality collection and a pre-eminent retail business.`\
+https://nytimes.com/2024/09/26/arts/lloyd-macklowe-dead.html
+
+**Many Who Used to Stay Put in Florida’s Coastal Areas Are Leaving for Helene**\
+`More residents who live in the Big Bend region near the coast are taking the warnings of storm surge seriously and evacuating to places inland.`\
 https://nytimes.com/2024/09/26/us/hurricane-helene-forecast-evacuations.html
 
 **A Brief History of Ethical Concerns Involving Eric Adams**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/nyregion/turkish-consulate-manhattan-turkevi-cent
 **Is Underparenting Good or Bad for Kids?**\
 `Responses to a guest essay about less intensive parenting. Also: A nuclear threat; gear against school shootings; wills for singles; Trump vs. Obamacare.`\
 https://nytimes.com/2024/09/26/opinion/parenting-kids.html
-
-**5 Moments of Joy From Hoda Kotb’s Run on ‘Today’**\
-`The morning show host announced that she’s stepping down after more than 25 years at NBC filled with laughter, tears and the occasional glass of wine.`\
-https://nytimes.com/2024/09/26/style/hoda-kotb-today-memorable-moments.html
 
