@@ -1,3 +1,7 @@
+**Inside the Intimate U.N. Dinner Party at Eleven Madison Park**\
+`Celebrities including Pharrell Williams and Forest Whitaker ate plant-based dishes (and admired the kitchen) during an event to toast UNESCO, the U.N. cultural agency.`\
+https://nytimes.com/2024/09/26/style/unesco-daniel-humm-eleven-madison-park.html
+
 **How Tigers third-base coach Joey Cora set the stage for the 'Gritty Tigs' of September**\
 `A team with fading hopes staked to winning on the margins needed to do better, to be better. So Cora launched into his soliloquy.`\
 https://nytimes.com/athletic/5797700/2024/09/26/tigers-baserunning-success-september-baseball/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/nyregion/nyc-mayor-eric-adams-indictment-takeaway
 **The Mayor Was Indicted. New Yorkers Had Jokes.**\
 `Mayor Eric Adams’s indictment quickly became fodder for memes and quips on social media.`\
 https://nytimes.com/2024/09/26/nyregion/nyc-mayor-indictment-jokes.html
-
-**Hurricane Helene Expected to Make Landfall Tonight**\
-`Helene is expected to bring record-breaking storm surges that will inundate communities along the Gulf Coast and bring rain and flooding to cities across the Southeast.`\
-https://nytimes.com/video/us/100000009724125/hurricane-helene-florida.html
 

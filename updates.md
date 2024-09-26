@@ -1,3 +1,7 @@
+**Inside the Intimate U.N. Dinner Party at Eleven Madison Park**\
+`Celebrities including Pharrell Williams and Forest Whitaker ate plant-based dishes (and admired the kitchen) during an event to toast UNESCO, the U.N. cultural agency.`\
+https://nytimes.com/2024/09/26/style/unesco-daniel-humm-eleven-madison-park.html
+
 **How Tigers third-base coach Joey Cora set the stage for the 'Gritty Tigs' of September**\
 `A team with fading hopes staked to winning on the margins needed to do better, to be better. So Cora launched into his soliloquy.`\
 https://nytimes.com/athletic/5797700/2024/09/26/tigers-baserunning-success-september-baseball/
