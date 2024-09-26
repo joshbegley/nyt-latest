@@ -1,40 +1,40 @@
+**Reid confirms Forest exit after three years as coach**\
+`Steven Reid has confirmed his departure from the coaching staff at Nottingham Forest.`\
+https://nytimes.com/athletic/5796713/2024/09/26/steven-reid-forest-exit/
+
+**Mayor Adams’s Indictment Leaves City Hall Leaderless**\
+`It is the low point of a failed mayoralty.`\
+https://nytimes.com/2024/09/26/opinion/indictment-nyc-mayor-adams.html
+
+**Kings’ Doughty suffers apparent leg injury: What comes next**\
+`Doughty left the Kings' preseason game against Vegas on Wednesday night in pain.`\
+https://nytimes.com/athletic/5796809/2024/09/26/drew-doughty-injury-kings/
+
+**Why left-wing German club St Pauli are selling their stadium to fans: 'It's the home of the people'**\
+`Why a radical plan might help the team compete with the giants of the Bundesliga`\
+https://nytimes.com/athletic/5793285/2024/09/26/st-pauli-stadium-cooperative/
+
+**Israel’s forces still have the resources to invade Lebanon, despite Gaza war, analysts say.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/israels-forces-still-have-the-resources-to-invade-lebanon-despite-gaza-war-analysts-say
+
+**Review: Philadelphia’s BalletX Shows Variety but Little Depth**\
+`The company brought three New York premieres to the Joyce Theater.`\
+https://nytimes.com/2024/09/26/arts/review-balletx-joyce-theater.html
+
+**The Crucial Context for Kamala Harris’s ‘Context’**\
+`Her opponent’s malice and incoherence trump all else.`\
+https://nytimes.com/2024/09/26/opinion/kamala-harris-context-trump.html
+
+**What to Know About Damian Williams, the Man Prosecuting Eric Adams**\
+`Mr. Williams already had a compelling biography, but the first-ever indictment of a New York City mayor has added an astonishing new chapter to his life’s story.`\
+https://nytimes.com/2024/09/26/nyregion/damian-williams-sdny-prosecutor.html
+
+**Betting For (By) Dummies: Teaming up on the Steelers-Colts under and more football picks**\
+`Jon Greenberg and Zac Jackson have more betting picks ahead of another football weekend, including both taking the under in Steelers-Colts.`\
+https://nytimes.com/athletic/5796348/2024/09/26/betting-picks-nfl-college-football-steelers-ohio-state/
+
 **As a Finnish Zoo Returns Pandas to China, It Blames Costs, Not Geopolitics**\
 `Two pandas are heading back to China eight years early amid lower-than-hoped-for visitor numbers at a zoo in rural Finland, and after the pair didn’t produce a cub.`\
 https://nytimes.com/2024/09/26/world/europe/finland-china-pandas-return.html
-
-**Frank Coppa, First Bonanno Mafia Family Member to Flip, Dies at 82**\
-`His decision to describe gruesome murders to the F.B.I. led at least 10 other members to do the same and ultimately immobilized a mafia family.`\
-https://nytimes.com/2024/09/26/nyregion/frank-coppa-dead.html
-
-**Melania Trump Gives a Rare Interview: 3 Takeaways**\
-`While promoting a memoir, the former first lady told Fox News that she blamed Democrats and members of the news media for the assassination attempts against her husband.`\
-https://nytimes.com/2024/09/26/us/politics/melania-trump-fox-news-interview.html
-
-**Who Is Eric Adams: New York’s Baffling, Boundless Mayor**\
-`So much about the singular, ever-present figure leading the city for the last three years remains head-scratching.`\
-https://nytimes.com/2024/09/26/nyregion/eric-adams-nyc-mayor.html
-
-**Inside a Pro-Harris Ad Portraying Trump as Fighting for Billionaires Like Him**\
-`A key super PAC backing Kamala Harris makes use of a teacher’s narration and of video of Donald Trump promising to cut the taxes of people he calls “rich as hell.”`\
-https://nytimes.com/2024/09/26/us/politics/harris-pac-ad-trump-rich.html
-
-**Major Decision for Judge in Trump’s Election Case: How Much Evidence to Reveal**\
-`Prosecutors are filing a sealed brief showing what they learned in the investigation. The former president’s lawyers say it amounts to a premature special counsel report that could hurt him before Election Day.`\
-https://nytimes.com/2024/09/26/us/trump-election-case-evidence.html
-
-**A Museum Director’s Heirs Lay Claim to His Rembrandts**\
-`He ran the Mauritshuis and bequeathed it 25 paintings, but said they must always be on display. Today, only five are on show — so the descendants of his close friend say the artworks should be theirs.`\
-https://nytimes.com/2024/09/26/arts/mauritshuis-museum-rembrandt-heirs-dispute.html
-
-**Israel Says It Killed Another Hezbollah Commander in Beirut**\
-`The Israeli military said the commander, Mohamed Hussein Sarour, was killed in strike. There was no immediate confirmation from Hezbollah.`\
-https://nytimes.com/2024/09/26/world/middleeast/israel-hezbollah-mohammed-hussein-sarour-beirut.html
-
-**Israel says it targeted Hamas in a strike on a school compound. Gazan officials report women and children were killed.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/israel-says-it-targeted-hamas-in-a-strike-on-a-school-turned-shelter-gazan-officials-report-women-and-children-were-killed
-
-**Manchester United live Q&A: Laurie Whitwell answers your questions**\
-`Our United writer will be on hand to respond to your queries after Erik ten Hag speaks to the media this afternoon`\
-https://nytimes.com/athletic/5796010/2024/09/26/manchester-united-questions-ten-hag/
 
