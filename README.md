@@ -1,3 +1,7 @@
+**The Bounce: Are windows closing for Lakers, Clippers?**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5795968/2024/09/26/lakers-clippers-nba-wnba-aces-lynx-sun-liberty-fever-the-bounce/
+
 **Read the Eric Adams Indictment**\
 `The indictment against Mayor Eric Adams of New York was unsealed Thursday.`\
 https://nytimes.com/interactive/2024/09/26/nyregion/eric-adams-indictment-charges-pdf.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5796378/2024/09/26/steve-cooper-leicester-survival/
 **This Is Not A Beauty Podcast**\
 `A new podcast hosted by Isabella Rossellini explores the essential role beauty plays in the human experience.`\
 https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast.html
-
-**Southwest Airlines Stock Soars After It Lays Out Overhaul**\
-`The move, including service enhancements and share buybacks, came after the hedge fund Elliott Management called for cost savings and better profits.`\
-https://nytimes.com/2024/09/26/business/southwest-airlines-overhaul-elliott.html
 
