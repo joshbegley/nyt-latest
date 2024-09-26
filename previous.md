@@ -1,3 +1,15 @@
+**At the U.N., Palestinian Authority’s leader urges nations to stop arming Israel.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/at-the-un-palestinian-authoritys-leader-urges-nations-to-stop-arming-israel
+
+**Sudan’s Army Launches Operation to Retake Capital**\
+`The latest outbreak of fighting comes as nations gathered at the U.N. General Assembly called for an end to the war and for aid to be fast-tracked to millions in need.`\
+https://nytimes.com/2024/09/26/world/africa/sudan-army-operation-capital-khartoum.html
+
+**The Global Threat of Antibiotic Resistance**\
+`International health experts have begun to shift their focus to try to provide access to basic drugs in countries where preventable deaths from infections occur too frequently.`\
+https://nytimes.com/2024/09/26/health/united-nations-drug-resistance-antibiotics.html
+
 **Before Helene’s Landfall, Bicycles Ruled the Road on Florida’s Gulf Coast**\
 `Several residents in the region have relied on pedal power to get around as the storm approached on Thursday.`\
 https://nytimes.com/2024/09/26/weather/helene-bicycles-florida-gulf-coast.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5796637/2024/09/26/hurricane-helene-sports-postpone
 **English Is Everybody’s Business. (Or Is it Boocie-ness? Or Boozy-ness?)**\
 `A modest plea for the return of language arts.`\
 https://nytimes.com/2024/09/26/opinion/english-language-complex-spelling.html
-
-**The Best Sheets for Your Bed**\
-`We found linen, percale, sateen and flannel options.`\
-https://nytimes.com/interactive/2024/09/26/smarter-living/wirecutter/best-sheets.html
-
-**Holy Hollywood! Batman Is the First Superhero With a Walk of Fame Star.**\
-`The caped crusader, who debuted in 1939, joins other illustrious figures — including Adam West, the actor who played him on TV.`\
-https://nytimes.com/2024/09/26/arts/batman-hollywood-star.html
-
-**'Holy Grails' auction takes trading cards to high society**\
-`Sotheby's and Fanatics' inaugural auction together brought out the stars and their checkbooks. `\
-https://nytimes.com/athletic/5796816/2024/09/26/holy-grails-fanatics-sothebys-cards/
 

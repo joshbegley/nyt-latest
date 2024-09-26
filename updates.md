@@ -1,3 +1,15 @@
+**At the U.N., Palestinian Authority’s leader urges nations to stop arming Israel.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/at-the-un-palestinian-authoritys-leader-urges-nations-to-stop-arming-israel
+
+**Sudan’s Army Launches Operation to Retake Capital**\
+`The latest outbreak of fighting comes as nations gathered at the U.N. General Assembly called for an end to the war and for aid to be fast-tracked to millions in need.`\
+https://nytimes.com/2024/09/26/world/africa/sudan-army-operation-capital-khartoum.html
+
+**The Global Threat of Antibiotic Resistance**\
+`International health experts have begun to shift their focus to try to provide access to basic drugs in countries where preventable deaths from infections occur too frequently.`\
+https://nytimes.com/2024/09/26/health/united-nations-drug-resistance-antibiotics.html
+
 **Before Helene’s Landfall, Bicycles Ruled the Road on Florida’s Gulf Coast**\
 `Several residents in the region have relied on pedal power to get around as the storm approached on Thursday.`\
 https://nytimes.com/2024/09/26/weather/helene-bicycles-florida-gulf-coast.html

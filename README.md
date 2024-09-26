@@ -1,3 +1,19 @@
+**Sabres name Rasmus Dahlin captain**\
+`The Sabres have been looking for stable leadership, and Dahlin has a chance to become that person.`\
+https://nytimes.com/athletic/5797238/2024/09/26/rasmus-dahlin-buffalo-sabres-captain/
+
+**What Students Are Saying About Celebrity Endorsements, Trendy Water Bottles and Their Sleep Routines**\
+`This week, teenage responses to three recent Picture Prompts.`\
+https://nytimes.com/2024/09/26/learning/what-students-are-saying-about-celebrity-endorsements-trendy-water-bottles-and-their-sleep-routines.html
+
+**An Oil C.E.O. Answers Our Questions**\
+`The Times hosted leaders and policymakers to talk about growing threats of climate change, and spoke with the C.E.O. of Occidental Petroleum.`\
+https://nytimes.com/2024/09/26/climate/climate-forward-vicki-hollub-interview.html
+
+**What Eric Adams and Donald Trump Have in Common**\
+`The mayor and the former president may have some different political beliefs, but their personality and style — and now perhaps their legal paths — are aligned.`\
+https://nytimes.com/2024/09/26/nyregion/eric-adams-donald-trump.html
+
 **At the U.N., Palestinian Authority’s leader urges nations to stop arming Israel.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/at-the-un-palestinian-authoritys-leader-urges-nations-to-stop-arming-israel
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/09/25/opinion/thepoint/teamsters-obrien-endorse-ha
 **Parts of Appalachia are under landslide warnings in Hurricane Helene’s wake.**\
 `The National Hurricane Center has warned of the risk of significant landslides through Friday in parts of Tennessee, Georgia and the Carolinas.`\
 https://nytimes.com/2024/09/26/climate/hurricane-helene-landslide-warnings-appalachia.html
-
-**Big 12 releases men's basketball schedule for 2024-25**\
-`Arizona, Arizona State, Colorado and Utah officially joined the conference this summer as Texas and Oklahoma departed for the SEC.`\
-https://nytimes.com/athletic/5797259/2024/09/26/big-12-mens-basketball-schedule/
-
-**College football Week 5 model projections: Point differentials and totals for every game**\
-`Austin Mock's model projects the point differentials and point totals for every college football Week 5 game, including Georgia at Alabama.`\
-https://nytimes.com/athletic/5797233/2024/09/26/college-football-week-5-model-projections-scores/
-
-**Tracking Hurricane Helene's impact on this weekend's games**\
-`Several teams have rescheduled games or changed their travel plans due to heavy rain.`\
-https://nytimes.com/athletic/5796637/2024/09/26/hurricane-helene-sports-postponements-cancellations/
-
-**English Is Everybody’s Business. (Or Is it Boocie-ness? Or Boozy-ness?)**\
-`A modest plea for the return of language arts.`\
-https://nytimes.com/2024/09/26/opinion/english-language-complex-spelling.html
 
