@@ -27,7 +27,7 @@ https://nytimes.com/2024/09/25/nyregion/eric-adams-indictment-timeline.html
 https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/heres-the-latest-on-the-mayors-indictment
 
 **Eric Adams Is Indicted After Federal Corruption Investigation**\
-`The indictment makes Mr. Adams the first sitting mayor of New York City to be criminally charged.`\
+`The indictment makes Mr. Adams the first sitting mayor of New York City to be charged with a federal crime.`\
 https://nytimes.com/2024/09/25/nyregion/eric-adams-indicted.html
 
 **Phillies clinch first-round bye in playoffs, hold tiebreakers for No. 1 seed**\
