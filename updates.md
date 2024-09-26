@@ -1,3 +1,7 @@
+**White Sox watch: Walkoff win over Angels delays history for another day**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/25/white-sox-watch-most-losses-season/
+
 **For the Tigers, a rocky start, a raucous homer and a rocking Jackson Jobe debut**\
 `Another night went according to script, this one even lacking the drama that has followed the cardiac cats all September.`\
 https://nytimes.com/athletic/5795371/2024/09/25/tigers-playoff-chase-jackson-jobe-debut/

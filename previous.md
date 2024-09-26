@@ -30,11 +30,11 @@ https://nytimes.com/2024/09/25/nyregion/eric-adams-mayor-democratic-primary.html
 `In a videotaped speech, Mr. Adams said any charges against him would be “false” and said that he will continue to lead as mayor of the city.`\
 https://nytimes.com/video/nyregion/100000009721164/mayor-eric-adams-vows-to-fight-federal-indictment-against-him.html
 
+**White Sox watch: Walkoff win over Angels delays history for another day**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/25/white-sox-watch-most-losses-season/
+
 **These Are Some of the Lawmakers Who Have Called for Adams to Resign**\
 `The indictment of Mayor Eric Adams has led to a wave of fresh calls for him to step down.`\
 https://nytimes.com/2024/09/25/nyregion/eric-adams-resignation-calls-list.html
-
-**Powerlifter’s Sound**\
-`You may not know which way you’re going in this New York Times Crossword debut by Jesse Guzman.`\
-https://nytimes.com/2024/09/25/crosswords/daily-puzzle-2024-09-26.html
 
