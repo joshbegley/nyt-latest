@@ -1,3 +1,15 @@
+**In New Mexico, Sopapillas Do It All**\
+`In pockets of the Southwest, no meal is complete without these crisp pillows of fried dough.`\
+https://nytimes.com/2024/09/26/dining/sopapillas.html
+
+**‘Megalopolis’ Review: The Fever Dreams of Francis Ford Coppola**\
+`The director’s latest is a great-man story about an architect, played by Adam Driver, driven by ideals and big plans. It’s a personal statement on an epic scale.`\
+https://nytimes.com/2024/09/26/movies/megalopolis-review-francis-ford-coppola.html
+
+**Harris Now Has an Economic Plan. Can It Best Trump’s Promises?**\
+`A central question in the final stretch of the election is if Vice President Kamala Harris’s proposals will cohere into an economic argument that can top former President Donald J. Trump’s.`\
+https://nytimes.com/2024/09/26/us/politics/harris-trump-economy.html
+
 **Farmers Scramble to Save Pecan and Cotton Harvests Ahead of the Storm**\
 `The wind and rain expected along Hurricane Helene’s path could damage vulnerable crops while the region enters the height of the harvest season.`\
 https://nytimes.com/2024/09/26/weather/georgia-farmers-hurricane-helene.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/26/theater/london-theater-whats-on.html
 **Reid confirms Forest exit after three years as coach**\
 `Steven Reid has confirmed his departure from the coaching staff at Nottingham Forest.`\
 https://nytimes.com/athletic/5796713/2024/09/26/steven-reid-forest-exit/
-
-**Mayor Adams’s Indictment Leaves City Hall Leaderless**\
-`It is the low point of a failed mayoralty.`\
-https://nytimes.com/2024/09/26/opinion/indictment-nyc-mayor-adams.html
-
-**Kings’ Doughty suffers ankle fracture: What comes next**\
-`Doughty left the Kings' preseason game against Vegas on Wednesday night in pain.`\
-https://nytimes.com/athletic/5796809/2024/09/26/drew-doughty-injury-kings/
-
-**Why left-wing German club St Pauli are selling their stadium to fans: 'It's the home of the people'**\
-`Why a radical plan might help the team compete with the giants of the Bundesliga`\
-https://nytimes.com/athletic/5793285/2024/09/26/st-pauli-stadium-cooperative/
 
