@@ -1,3 +1,15 @@
+**What’s next for Caitlin Clark and the Fever after elimination from the WNBA playoffs?**\
+`With some fine-tuning, the Fever are in position to build toward winning a WNBA championship.`\
+https://nytimes.com/athletic/5796597/2024/09/26/caitlin-clark-fever-wnba-playoffs-future/
+
+**Francis Ford Coppola Re-enters a Changed Hollywood. It Could Be Rough.**\
+`Mr. Coppola has spent $120 million on his new movie, “Megalopolis.” Most box office analysts predict that he’ll get far less in return.`\
+https://nytimes.com/2024/09/26/business/media/megalopolis-cost.html
+
+**Breaking down the National League wild-card possibilities**\
+`Let’s break down what we know about the stakes for the Padres, Diamondbacks, Mets and Braves this weekend.`\
+https://nytimes.com/athletic/5796493/2024/09/26/national-league-wild-card-mlb-playoffs-possibilities/
+
 **‘The Wild Robot’ Review: Wonder and Whimsy That Does Compute**\
 `Chris Sanders’s movie about a robotic assistant and the gosling she raises is defined by dazzling visuals and frank ideas about the circle of life.`\
 https://nytimes.com/2024/09/26/movies/the-wild-robot-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5796635/2024/09/26/scoop-city-hope-for-1-2-contende
 **Commuters See ‘Islamophobic’ Message in Cyber Attack on Public Wi-Fi, Authorities Say**\
 `The British authorities are investigating after commuters at 19 train stations saw an Islamophobic message when they tried to log on to a public Wi-Fi system.`\
 https://nytimes.com/2024/09/26/world/europe/britain-rail-cyber-attack.html
-
-**A Weeknight Winner: Skillet Chicken Dinner**\
-`Melissa Clark’s skillet-braised chicken with greens is exactly the sort of easy, hearty dinner I want to cook right now.`\
-https://nytimes.com/2024/09/26/dining/a-weeknight-winner-skillet-chicken-dinner.html
-
-**A Patchwork of Cannabis Laws Creates Health Risks, Study Finds**\
-`A new report calls for public education and closing of legal loopholes to keep the public safe.`\
-https://nytimes.com/2024/09/26/science/cannabis-laws-health-risk.html
-
-**This Fish Evolved Legs That It Uses to Taste Stuff on the Seafloor**\
-`While the sea robin has legs, it still doesn’t need a bicycle.`\
-https://nytimes.com/2024/09/26/science/sea-robins-legs-tasting-fish.html
 

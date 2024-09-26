@@ -1,3 +1,15 @@
+**What’s next for Caitlin Clark and the Fever after elimination from the WNBA playoffs?**\
+`With some fine-tuning, the Fever are in position to build toward winning a WNBA championship.`\
+https://nytimes.com/athletic/5796597/2024/09/26/caitlin-clark-fever-wnba-playoffs-future/
+
+**Francis Ford Coppola Re-enters a Changed Hollywood. It Could Be Rough.**\
+`Mr. Coppola has spent $120 million on his new movie, “Megalopolis.” Most box office analysts predict that he’ll get far less in return.`\
+https://nytimes.com/2024/09/26/business/media/megalopolis-cost.html
+
+**Breaking down the National League wild-card possibilities**\
+`Let’s break down what we know about the stakes for the Padres, Diamondbacks, Mets and Braves this weekend.`\
+https://nytimes.com/athletic/5796493/2024/09/26/national-league-wild-card-mlb-playoffs-possibilities/
+
 **‘The Wild Robot’ Review: Wonder and Whimsy That Does Compute**\
 `Chris Sanders’s movie about a robotic assistant and the gosling she raises is defined by dazzling visuals and frank ideas about the circle of life.`\
 https://nytimes.com/2024/09/26/movies/the-wild-robot-review.html
