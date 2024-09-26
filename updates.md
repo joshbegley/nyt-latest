@@ -1,3 +1,7 @@
+**Johnson, House Speaker, Demands That Ukraine Fire Its U.S. Ambassador**\
+`The public call deals a blow to Kyiv’s efforts to avoid the partisan acrimony of the U.S. presidential campaign as it tries to rally support for its cause.`\
+https://nytimes.com/2024/09/26/world/europe/mike-johnson-ukraine-us-ambassador.html
+
 **Balmain’s Beauty Pageant of All Ages**\
 `Olivier Rousteing’s new muse is … makeup? For everyone.`\
 https://nytimes.com/2024/09/26/style/balmain-beauty-ageism.html
