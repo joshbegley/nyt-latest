@@ -1,3 +1,11 @@
+**MLB bullpen report: The way too early closer tiers for 2025, with Emmanuel Clase at the head of the class**\
+`For his final bullpen report of the 2024 season, Greg Jewett spins it forward with a way too early look at the Top 5 closer tiers for 2025.`\
+https://nytimes.com/athletic/5795262/2024/09/26/fantasy-baseball-2025-closer-tiers-clase/
+
+**Jasson Domínguez's defense under fire as Yankees lose, Orioles clinch playoff spot**\
+`Domínguez’s poor fielding set the sloppy tone of the night. Still, New York needs just one more win to take the division.`\
+https://nytimes.com/athletic/5795413/2024/09/26/yankees-jasson-dominguez-orioles/
+
 **Louie Varland's 'bark' helps power Twins to critical victory**\
 `"Right before you go out there, he gives you a bark and it’s like, ‘He’s ready.’ It kind of just gets you going," Byron Buxton said.`\
 https://nytimes.com/athletic/5795457/2024/09/26/louie-varland-twins-victory/
