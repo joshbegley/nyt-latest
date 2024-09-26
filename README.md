@@ -1,3 +1,19 @@
+**Scenes From Florida as Hurricane Helene Approaches**\
+`The storm is expected to make landfall on the state’s gulf coast on Thursday evening as a Category 4 hurricane.`\
+https://nytimes.com/2024/09/26/us/hurricane-helene-florida-photos-videos.html
+
+**After LAFC's win, the 2025 U.S. Open Cup format could be finalized in 'weeks, not months'**\
+`With the final complete, talks are already underway for the format of the 2025 U.S. Open Cup. `\
+https://nytimes.com/athletic/5797535/2024/09/26/us-open-cup-mls-ussf-usl-tournament/
+
+**White House thought Israel was ‘on board’ with a proposed 3-week cease-fire in Lebanon.**\
+`The belief that Israel was willing to agree to a three-week pause in the fighting was shaken on Thursday morning, when Prime Minister Benjamin Netanyahu appeared to dismiss the idea.`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/white-house-thought-israel-was-on-board-with-a-proposed-3-week-cease-fire-in-lebanon
+
+**Production Linked to Neil Gaiman Is Halted Amid Sexual Assault Claims**\
+`The British author of dozens of literary works has denied the allegations that five women made against him on a podcast series.`\
+https://nytimes.com/2024/09/26/business/neil-gaiman-allegations.html
+
 **Eric Adams Charged With Bribery and Fraud**\
 `Also, Hurricane Helene heads toward Florida. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/09/26/briefing/eric-adams-charged-hurricane-florida.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/26/opinion/eric-adams-nyc-mayor.html
 **A's great Zito sings national anthem before final game in Oakland**\
 `First pitches were thrown out by two of Oakland's biggest legends, Rickey Henderson and Dave Stewart.`\
 https://nytimes.com/athletic/5797365/2024/09/26/barry-zito-national-anthem-athletics/
-
-**Helene Could Expose Deeper Flaws in Florida’s Insurance Market**\
-`Catastrophic storms have crippled the state’s home insurance market in the past, and some researchers say it is dangerously vulnerable.`\
-https://nytimes.com/2024/09/26/climate/hurricane-helene-florida-insurance.html
-
-**Biden Administration Set to Make Asylum Limits More Permanent**\
-`The change will make what had been a short-term fix, which appears to have led to a drop in border crossings, a central feature of the asylum system.`\
-https://nytimes.com/2024/09/26/us/politics/biden-asylum-border.html
-
-**Do Sassy, Jane and xoJane Mean Anything to You?**\
-`Jane Pratt, one of the most influential editors of the last few decades, returns to media with her aptly titled project Another Jane Pratt Thing.`\
-https://nytimes.com/2024/09/26/style/do-sassy-jane-and-xojane-mean-anything-to-you.html
-
-**Biden Pledges More Weapons and Almost $8 Billion in Aid to Ukraine**\
-`President Volodymyr Zelensky of Ukraine met with President Biden at the White House on Thursday as a part of an effort to urge Congress to continue bolstering Ukraine’s effort to fend off Russia’s invasion.`\
-https://nytimes.com/video/us/politics/100000009723719/biden-ukraine-package.html
 
