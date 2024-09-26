@@ -1,3 +1,11 @@
+**Browns O-line overview as uncertainty looms ahead of Week 4 matchup vs. Raiders**\
+`With Wyatt Teller placed on IR and other injuries to players up front, we take a look at the team's full O-line, from starters to backups. `\
+https://nytimes.com/athletic/5794786/2024/09/26/browns-offensive-line-injuries/
+
+**A 17-strikeout game in Arizona allows Giants to ponder how their offense fell short**\
+`The Giants would do well to study and emulate how the Diamondbacks compete at the plate.`\
+https://nytimes.com/athletic/5795845/2024/09/26/sf-giants-17-strikeouts-diamondbacks/
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/2024/09/26/weather/here-is-the-latest-on-the-storm.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/fbi-adams-
 **The Pulse: An NIL opt-out that could change college football**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5794623/2024/09/26/matthew-sluka-opt-out-nil-the-pulse/
-
-**My Oakland A’s story: Coliseum treasures, and the community we built to last**\
-`With the Oakland A's set to leave the Coliseum behind, what's the right way to say goodbye?`\
-https://nytimes.com/athletic/5794274/2024/09/26/oakland-as-move-las-vegas/
-
-**Liverpool's 'pinball' move that makes the most of Salah**\
-`Salah's ability to hold off defenders and play with his back to goal makes him a strong outlet for the 'pinball' move - this is how it works`\
-https://nytimes.com/athletic/5790361/2024/09/26/liverpool-mohamed-salah-slot/
 
