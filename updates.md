@@ -1,3 +1,15 @@
+**The mayor’s public defense has leaned on conspiracy theories and race.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/the-mayors-public-defense-has-leaned-on-conspiracy-theories-and-race
+
+**Jets roster projection: Predicting opening-night lineup, final camp battles**\
+`One week into camp, Winnipeg's roster battles are sorting themselves out ahead of the regular season.`\
+https://nytimes.com/athletic/5797311/2024/09/26/jets-roster-depth-chart-2024/
+
+**Braves' star Ronald Acuña Jr. on Ohtani's feats and return from 2nd ACL surgery**\
+`Acuña said he will be "a little more cautious and careful" with his return from his second ACL surgery compared to the first one.`\
+https://nytimes.com/athletic/5797743/2024/09/26/braves-ronald-acuna-jr-ohtani-acl-surgery-update/
+
 **F.D.A. Approves the First New Schizophrenia Drug in Decades**\
 `Available antipsychotic treatments work by blocking dopamine receptors. The new drug, Cobenfy, takes a different approach.`\
 https://nytimes.com/2024/09/26/health/fda-schizophrenia-drug.html
