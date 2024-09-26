@@ -1,3 +1,7 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/2024/09/26/weather/here-is-the-latest-on-the-storm.html
+
 **Pink squares and bubbles: Inside Joe Mazzulla's unconventional practice drills for Celtics**\
 `"Sometimes I think he does drills to literally f--- with us," says Sam Hauser. `\
 https://nytimes.com/athletic/5795090/2024/09/26/celtics-joe-mazzulla-coaching-drills/

@@ -1,3 +1,7 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/2024/09/26/weather/here-is-the-latest-on-the-storm.html
+
 **Pink squares and bubbles: Inside Joe Mazzulla's unconventional practice drills for Celtics**\
 `"Sometimes I think he does drills to literally f--- with us," says Sam Hauser. `\
 https://nytimes.com/athletic/5795090/2024/09/26/celtics-joe-mazzulla-coaching-drills/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794274/2024/09/26/oakland-as-move-las-vegas/
 **Liverpool's 'pinball' move that makes the most of Salah**\
 `Salah's ability to hold off defenders and play with his back to goal makes him a strong outlet for the 'pinball' move - this is how it works`\
 https://nytimes.com/athletic/5790361/2024/09/26/liverpool-mohamed-salah-slot/
-
-**Broncos enjoying 'change of scenery' in serene West Virginia, but focus is on Jets**\
-`The Broncos had a unique off day at the sprawling, 11,000-acre Greenbrier resort but have since settled in for a critical week of practice.`\
-https://nytimes.com/athletic/5793947/2024/09/26/broncos-practice-west-virginia-jets/
 
