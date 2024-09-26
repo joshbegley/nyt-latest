@@ -26,9 +26,9 @@ https://nytimes.com/2024/09/26/us/trump-election-case-evidence.html
 `He ran the Mauritshuis and bequeathed it 25 paintings, but said they must always be on display. Today, only five are on show — so the descendants of his close friend say the artworks should be theirs.`\
 https://nytimes.com/2024/09/26/arts/mauritshuis-museum-rembrandt-heirs-dispute.html
 
-**Israel says it killed another Hezbollah commander in Beirut.**\
+**Israel Says It Killed Another Hezbollah Commander in Beirut**\
 `The Israeli military said the commander, Mohamed Hussein Sarour, was killed in strike. There was no immediate confirmation from Hezbollah.`\
-https://nytimes.com/2024/09/26/world/middleeast/israel-hezbollah-commander-in-beirut.html
+https://nytimes.com/2024/09/26/world/middleeast/israel-hezbollah-mohammed-hussein-sarour-beirut.html
 
 **Israel says it targeted Hamas in a strike on a school compound. Gazan officials report women and children were killed.**\
 `By Matthew Mpoke Bigg`\
