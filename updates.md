@@ -1,3 +1,11 @@
+**Sun eliminate Fever to end Caitlin Clark's rookie season**\
+`Connecticut may not have been the team that struck first, but the Sun recovered soon enough in a 87-81 win over the Fever.`\
+https://nytimes.com/athletic/5795264/2024/09/25/caitlin-clark-fever-sun-wnba-playoffs/
+
+**Eric Adams Is Indicted After Federal Corruption Investigation**\
+`The indictment makes Mr. Adams the first sitting mayor of New York City to be charged with a federal crime.`\
+https://nytimes.com/2024/09/25/nyregion/eric-adams-indicted.html
+
 **USC's Bear Alexander intends to redshirt: Sources**\
 `The former five-star prospect did not start any of the Trojans' first three games but did play significant snaps against LSU and Michigan. `\
 https://nytimes.com/athletic/5795104/2024/09/25/usc-bear-alexander-redshirt-transfer/
