@@ -1,3 +1,7 @@
+**Parts of Appalachia are under landslide warnings in Hurricane Helene’s wake.**\
+`The National Hurricane Center has warned of the risk of significant landslides through Friday in parts of Tennessee, Georgia and the Carolinas.`\
+https://nytimes.com/2024/09/26/climate/hurricane-helene-landslide-warnings-appalachia.html
+
 **Big 12 releases men's basketball schedule for 2024-25**\
 `Arizona, Arizona State, Colorado and Utah officially joined the conference this summer as Texas and Oklahoma departed for the SEC.`\
 https://nytimes.com/athletic/5797259/2024/09/26/big-12-mens-basketball-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/us/politics/federal-prison-lewisburg-health-care-
 **How to Cure My Sex Drive? Dive for Sea Urchins.**\
 `It’s reputed to be an aphrodisiac. To get a potent bite, I learned how to pry them fresh from the ocean.`\
 https://nytimes.com/interactive/2024/09/26/magazine/sea-urchin-sex-drive.html
-
-**Was It the Best Gelato I’d Ever Had Because I’d Just Survived a Brain Tumor?**\
-`A trip to the Amalfi Coast (and down memory lane) in search of the truth about a dessert I’ve never forgotten.`\
-https://nytimes.com/interactive/2024/09/26/magazine/gelato-southern-italy.html
 
