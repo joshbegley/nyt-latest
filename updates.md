@@ -1,3 +1,7 @@
+**Coming Up Next on CNN: A Paywall**\
+`CNN will begin experimenting in October with a subscription model, in a major initiative from its chief executive, Mark Thompson.`\
+https://nytimes.com/2024/09/26/business/media/cnn-paywall.html
+
 **Could Giants' Malik Nabers have an OBJ-like breakout vs. Cowboys? 'You ain't seen nothing yet'**\
 `If Nabers delivers fireworks in front of a national audience on Thursday night, his rise to stardom will shift into overdrive.`\
 https://nytimes.com/athletic/5795326/2024/09/26/malik-nabers-new-york-giants-breakout-cowboys-odell-beckham/
