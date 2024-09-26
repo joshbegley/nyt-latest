@@ -1,3 +1,7 @@
+**Chemistry between Jayden Daniels and Terry McLaurin grew with NFL world watching**\
+`The "pieces fell in place" vs. Cincinnati for the quarterback-receiver duo after failing to find a rhythm the first two weeks of the season.`\
+https://nytimes.com/athletic/5795113/2024/09/26/commanders-jayden-daniels-terry-mclaurin/
+
 **Getafe president criticises own player for highlighting racist abuse in Spain**\
 `Getafe president Angel Torres has criticised his player Christantus Uche following the Nigerian midfielder&#8217;s complaints about racism and treatment by referees in La Liga.`\
 https://nytimes.com/athletic/5795926/2024/09/26/christantus-uche-racism-getafe-angel-torres/
