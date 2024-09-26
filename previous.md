@@ -1,3 +1,11 @@
+**These are the charges against Eric Adams.**\
+`By William K. Rashbaum, Dana Rubinstein and Michael Rothfeld`\
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/eric-adams-charges
+
+**Hurricane Idalia Destroyed His Home. He’s Riding Out Helene Next Door.**\
+`In a St. Petersburg mobile home complex, many chose not to leave despite the warnings.`\
+https://nytimes.com/2024/09/26/weather/hurricane-idalia-helene-staying.html
+
 **Coming Up Next on CNN: A Paywall**\
 `CNN will begin experimenting in October with a subscription model, in a major initiative from its chief executive, Mark Thompson.`\
 https://nytimes.com/2024/09/26/business/media/cnn-paywall.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/26/business/southwest-airlines-overhaul-elliott.html
 **These Are the N.Y.C. Officials Who Resigned Ahead of the Adams Indictment**\
 `The police commissioner and the schools chancellor were among those who said they would leave the administration.`\
 https://nytimes.com/2024/09/26/nyregion/nyc-resignations-banks-caban-adams.html
-
-**Tufts Lacrosse Players Recovering After Navy SEAL-Led Workout Draws Inquiry**\
-`Nine players were hospitalized with a serious and rare muscle condition called rhabdomyolysis in the days after the 45-minute workout, according to the university.`\
-https://nytimes.com/2024/09/26/us/tufts-university-lacrosse-team-hospitalized.html
-
-**New Data Finds Sharper Economic Rebound From Pandemic**\
-`Updated figures show that gross domestic product, adjusted for inflation, grew faster in 2021, 2022 and early 2023 than previously reported.`\
-https://nytimes.com/2024/09/26/business/economy/economy-pandemic-rebound-gdp.html
 

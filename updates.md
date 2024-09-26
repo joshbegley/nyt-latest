@@ -1,3 +1,11 @@
+**These are the charges against Eric Adams.**\
+`By William K. Rashbaum, Dana Rubinstein and Michael Rothfeld`\
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/eric-adams-charges
+
+**Hurricane Idalia Destroyed His Home. He’s Riding Out Helene Next Door.**\
+`In a St. Petersburg mobile home complex, many chose not to leave despite the warnings.`\
+https://nytimes.com/2024/09/26/weather/hurricane-idalia-helene-staying.html
+
 **Southwest Airlines Stock Soars After It Lays Out Overhaul**\
 `The move, including service enhancements and share buybacks, came after the hedge fund Elliott Management called for cost savings and better profits.`\
 https://nytimes.com/2024/09/26/business/southwest-airlines-overhaul-elliott.html
