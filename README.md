@@ -1,4 +1,4 @@
-**Wander Franco ordered to stand trial by judge**\
+**Wander Franco ordered to stand trial in sexual abuse case**\
 `Franco has not appeared in an MLB game since last year, and has since been placed on the restricted list. `\
 https://nytimes.com/athletic/5797534/2024/09/26/wander-franco-court-developments/
 
