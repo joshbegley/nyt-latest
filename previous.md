@@ -1,3 +1,7 @@
+**In Tallahassee, Residents Worry About a Defining City Feature: Its Trees**\
+`The city’s canopy and shaded roads could become hazards as Helene brings the potential for hurricane-force winds.`\
+https://nytimes.com/2024/09/26/weather/helene-tallahassee-trees.html
+
 **Warning: Do not poke Scottie Scheffler**\
 `When Tom Kim decided to boisterously celebrate a birdie putt, the No. 1 player in the world had an answer.`\
 https://nytimes.com/athletic/5798009/2024/09/26/scottie-scheffler-presidents-cup-tom-kim/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5797700/2024/09/26/tigers-baserunning-success-septe
 **The Tech Bro Style in American Politics**\
 `Why some billionaires are helping to promote political extremism.`\
 https://nytimes.com/2024/09/26/opinion/cryptocurrency-election-moreno-vance.html
-
-**The mayor’s public defense has leaned on conspiracy theories and race.**\
-`By Jeffery C. Mays`\
-https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/the-mayors-public-defense-has-leaned-on-conspiracy-theories-and-race
 

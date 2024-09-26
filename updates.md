@@ -1,3 +1,7 @@
+**In Tallahassee, Residents Worry About a Defining City Feature: Its Trees**\
+`The city’s canopy and shaded roads could become hazards as Helene brings the potential for hurricane-force winds.`\
+https://nytimes.com/2024/09/26/weather/helene-tallahassee-trees.html
+
 **Warning: Do not poke Scottie Scheffler**\
 `When Tom Kim decided to boisterously celebrate a birdie putt, the No. 1 player in the world had an answer.`\
 https://nytimes.com/athletic/5798009/2024/09/26/scottie-scheffler-presidents-cup-tom-kim/
