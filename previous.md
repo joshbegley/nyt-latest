@@ -1,3 +1,19 @@
+**A Museum Director’s Heirs Lay Claim to His Rembrandts**\
+`He ran the Mauritshuis and bequeathed it 25 paintings, but said they must always be on display. Today, only five are on show — so the descendants of his close friend say the artworks should be theirs.`\
+https://nytimes.com/2024/09/26/arts/mauritshuis-museum-rembrandt-heirs-dispute.html
+
+**Israel says it killed another Hezbollah commander in Beirut.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/israel-says-it-killed-another-hezbollah-commander-in-beirut
+
+**Israel says it targeted Hamas in a strike on a school compound. Gazan officials report women and children were killed.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/israel-says-it-targeted-hamas-in-a-strike-on-a-school-turned-shelter-gazan-officials-report-women-and-children-were-killed
+
+**Manchester United live Q&A: Laurie Whitwell answers your questions**\
+`Our United writer will be on hand to respond to your queries after Erik ten Hag speaks to the media this afternoon`\
+https://nytimes.com/athletic/5796010/2024/09/26/manchester-united-questions-ten-hag/
+
 **NASCAR at Kansas odds, picks for playoffs: Can Larson complete Kansas sweep?**\
 `The Cup Series playoffs head to the next round of three races before another set of eliminations. Get odds and picks for Kansas. `\
 https://nytimes.com/athletic/5796422/2024/09/26/nascar-cup-series-kansas-speedway-playoff-race-odds-expert-predictions/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/26/movies/the-wild-robot-review.html
 **Here Are the Charges Eric Adams Faces**\
 `The Times is annotating the indictment.`\
 https://nytimes.com/interactive/2024/09/26/nyregion/eric-adams-indictment-charges-annotated.html
-
-**Cruise Lines Change Their Itineraries to Avoid Helene’s Impact**\
-`Carnival and Royal Caribbean were among the companies altering plans for port stops in Florida and Mexico.`\
-https://nytimes.com/2024/09/26/weather/helene-cruise-ships.html
-
-**When the Devoted Wife Becomes a Winning Brand**\
-`In “The Secret Lives of Mormon Wives,” conservative politics and some corners of social media, a woman’s relationship to the home defines her role in public life.`\
-https://nytimes.com/2024/09/26/arts/television/mormon-wives-secret-vance.html
-
-**Vince McMahon Netflix doc: What we learned about longtime WWE promoter**\
-`The "Mr. McMahon" docuseries covers his ascension in pro wrestling, his exile from the business and a lot more. Should you watch?`\
-https://nytimes.com/athletic/5795641/2024/09/26/vince-mcmahon-netflix-documentary-review-wwe-scandal/
-
-**Scoop City: Hope for 1-2 contenders, including 49ers, Ravens**\
-`In the past 25 years, only three teams won the Super Bowl after entering Week 4 with losing records. Can the 49ers, Ravens, others join?`\
-https://nytimes.com/athletic/5796635/2024/09/26/scoop-city-hope-for-1-2-contenders-including-49ers-ravens/
 
