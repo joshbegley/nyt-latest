@@ -35,6 +35,6 @@ https://nytimes.com/2024/09/26/us/politics/giuliani-disbarred-in-dc-over-efforts
 https://nytimes.com/2024/09/26/us/politics/harris-zelensky.html
 
 **Port Operators Ask Regulator to Force Dockworkers to Negotiate**\
-`The group that represent port terminal operators said the International Longshoremen’s Association was refusing to negotiate a new contract before a Monday deadline.`\
+`The group that represents port terminal operators said the International Longshoremen’s Association was refusing to negotiate a new contract before a Monday deadline.`\
 https://nytimes.com/2024/09/26/business/economy/port-strike-dockworkers-negotiate.html
 
