@@ -1,3 +1,23 @@
+**Suicides Using Guns Have Grown More Common Among U.S. Women**\
+`New C.D.C. data show that firearms remain the leading means of suicide for both men and women.`\
+https://nytimes.com/2024/09/26/well/mind/suicide-guns-women.html
+
+**Daniel Ricciardo deserved a proper F1 farewell, not his awkward Singapore goodbye**\
+`F1 can be ruthless. But for someone who has put so much into being more than just another F1 driver, Daniel Ricciardo deserved better.`\
+https://nytimes.com/athletic/5796515/2024/09/26/daniel-ricciardo-red-bull-f1-goodbye-singapore/
+
+**Red Bull confirm Liam Lawson to replace Daniel Ricciardo on F1 grid**\
+`Red Bull has confirmed that Liam Lawson will replace Daniel Ricciardo at RB for the rest of the season, with six grands prix and three sprint races remaining.`\
+https://nytimes.com/athletic/5796800/2024/09/26/liam-lawson-daniel-ricciardo-f1-switch/
+
+**ESPN lays off NBA senior writer Zach Lowe: Sources**\
+`Lowe follows the earlier dismissals of NFL personalities, Robert Griffin III and Sam Ponder.`\
+https://nytimes.com/athletic/5796820/2024/09/26/espn-layoffs-zach-lowe/
+
+**What to See on London Stages This Fall**\
+`Some recommendations for visitors and residents who want to get the most from the city’s varied theater scene.`\
+https://nytimes.com/2024/09/26/theater/london-theater-whats-on.html
+
 **Reid confirms Forest exit after three years as coach**\
 `Steven Reid has confirmed his departure from the coaching staff at Nottingham Forest.`\
 https://nytimes.com/athletic/5796713/2024/09/26/steven-reid-forest-exit/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5793285/2024/09/26/st-pauli-stadium-cooperative/
 **Israel’s forces still have the resources to invade Lebanon, despite Gaza war, analysts say.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/israels-forces-still-have-the-resources-to-invade-lebanon-despite-gaza-war-analysts-say
-
-**Review: Philadelphia’s BalletX Shows Variety but Little Depth**\
-`The company brought three New York premieres to the Joyce Theater.`\
-https://nytimes.com/2024/09/26/arts/review-balletx-joyce-theater.html
-
-**The Crucial Context for Kamala Harris’s ‘Context’**\
-`Her opponent’s malice and incoherence trump all else.`\
-https://nytimes.com/2024/09/26/opinion/kamala-harris-context-trump.html
-
-**What to Know About Damian Williams, the Man Prosecuting Eric Adams**\
-`Mr. Williams already had a compelling biography, but the first-ever indictment of a New York City mayor has added an astonishing new chapter to his life’s story.`\
-https://nytimes.com/2024/09/26/nyregion/damian-williams-sdny-prosecutor.html
-
-**Betting For (By) Dummies: Teaming up on the Steelers-Colts under and more football picks**\
-`Jon Greenberg and Zac Jackson have more betting picks ahead of another football weekend, including both taking the under in Steelers-Colts.`\
-https://nytimes.com/athletic/5796348/2024/09/26/betting-picks-nfl-college-football-steelers-ohio-state/
-
-**As a Finnish Zoo Returns Pandas to China, It Blames Costs, Not Geopolitics**\
-`Two pandas are heading back to China eight years early amid lower-than-hoped-for visitor numbers at a zoo in rural Finland, and after the pair didn’t produce a cub.`\
-https://nytimes.com/2024/09/26/world/europe/finland-china-pandas-return.html
 
