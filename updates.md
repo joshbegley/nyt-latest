@@ -1,3 +1,7 @@
+**These Are the N.Y.C. Officials Who Resigned Ahead of the Adams Indictment**\
+`The police commissioner and the schools chancellor were among those who said they would leave the administration.`\
+https://nytimes.com/2024/09/26/nyregion/nyc-resignations-banks-caban-adams.html
+
 **Tufts Lacrosse Players Recovering After Navy SEAL-Led Workout Draws Inquiry**\
 `Nine players were hospitalized with a serious and rare muscle condition called rhabdomyolysis in the days after the 45-minute workout, according to the university.`\
 https://nytimes.com/2024/09/26/us/tufts-university-lacrosse-team-hospitalized.html

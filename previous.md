@@ -1,3 +1,7 @@
+**These Are the N.Y.C. Officials Who Resigned Ahead of the Adams Indictment**\
+`The police commissioner and the schools chancellor were among those who said they would leave the administration.`\
+https://nytimes.com/2024/09/26/nyregion/nyc-resignations-banks-caban-adams.html
+
 **Tufts Lacrosse Players Recovering After Navy SEAL-Led Workout Draws Inquiry**\
 `Nine players were hospitalized with a serious and rare muscle condition called rhabdomyolysis in the days after the 45-minute workout, according to the university.`\
 https://nytimes.com/2024/09/26/us/tufts-university-lacrosse-team-hospitalized.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5796056/2024/09/26/real-madrid-team-news-carvajal-c
 **Tropical Storm Isaac Forms in the North Atlantic Ocean**\
 `The storm is the ninth named storm of the Atlantic hurricane season. It is not currently a threat to land.`\
 https://nytimes.com/live/2024/09/26/weather/tropical-storm-isaac-hurricane
-
-**Kings depth chart analysis: Lines and pairs take shape early**\
-`The Kings are looking for more physical play, so how will offseason additions fit into the lineup?`\
-https://nytimes.com/athletic/5794267/2024/09/26/la-kings-depth-chart-lineup/
 
