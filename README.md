@@ -1,3 +1,7 @@
+**Coming Up Next on CNN: A Paywall**\
+`CNN will begin experimenting in October with a subscription model, in a major initiative from its chief executive, Mark Thompson.`\
+https://nytimes.com/2024/09/26/business/media/cnn-paywall.html
+
 **Could Giants' Malik Nabers have an OBJ-like breakout vs. Cowboys? 'You ain't seen nothing yet'**\
 `If Nabers delivers fireworks in front of a national audience on Thursday night, his rise to stardom will shift into overdrive.`\
 https://nytimes.com/athletic/5795326/2024/09/26/malik-nabers-new-york-giants-breakout-cowboys-odell-beckham/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/us/tufts-university-lacrosse-team-hospitalized.ht
 **New Data Finds Sharper Economic Rebound From Pandemic**\
 `Updated figures show that gross domestic product, adjusted for inflation, grew faster in 2021, 2022 and early 2023 than previously reported.`\
 https://nytimes.com/2024/09/26/business/economy/economy-pandemic-rebound-gdp.html
-
-**Premier League partner Sorare to appear in court over UK Gambling Commission charge**\
-`Sorare, an official partner of the Premier League, has been charged by the UK Gambling Commission with allegedly “providing unlicensed gambling facilities to consumers in Britain”.`\
-https://nytimes.com/athletic/5796141/2024/09/26/sorare-premier-league-charge-gambling/
 
