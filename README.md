@@ -1,3 +1,19 @@
+**‘The Wild Robot’ Review: Wonder and Whimsy That Does Compute**\
+`Chris Sanders’s movie about a robotic assistant and the gosling she raises is defined by dazzling visuals and frank ideas about the circle of life.`\
+https://nytimes.com/2024/09/26/movies/the-wild-robot-review.html
+
+**Here Are the Charges Eric Adams Faces**\
+`The Times is annotating the indictment.`\
+https://nytimes.com/interactive/2024/09/26/nyregion/eric-adams-indictment-charges-annotated.html
+
+**Cruise Lines Change Their Itineraries to Avoid Helene’s Impact**\
+`Carnival and Royal Caribbean were among the companies altering plans for port stops in Florida and Mexico.`\
+https://nytimes.com/2024/09/26/weather/helene-cruise-ships.html
+
+**When the Devoted Wife Becomes a Winning Brand**\
+`In “The Secret Lives of Mormon Wives,” conservative politics and some corners of social media, a woman’s relationship to the home defines her role in public life.`\
+https://nytimes.com/2024/09/26/arts/television/mormon-wives-secret-vance.html
+
 **Vince McMahon Netflix doc: What we learned about longtime WWE promoter**\
 `The "Mr. McMahon" docuseries covers his ascension in pro wrestling, his exile from the business and a lot more. Should you watch?`\
 https://nytimes.com/athletic/5795641/2024/09/26/vince-mcmahon-netflix-documentary-review-wwe-scandal/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/26/science/cannabis-laws-health-risk.html
 **This Fish Evolved Legs That It Uses to Taste Stuff on the Seafloor**\
 `While the sea robin has legs, it still doesn’t need a bicycle.`\
 https://nytimes.com/2024/09/26/science/sea-robins-legs-tasting-fish.html
-
-**‘Killer Heat’ Review: Mediterranean Mischief**\
-`Joseph Gordon-Levitt plays a detective running from his past in a murder mystery that is mostly a stiff slog to get through.`\
-https://nytimes.com/2024/09/26/movies/killer-heat-review.html
-
-**Mirtle: 5 reasons for optimism for the Maple Leafs this season**\
-`A look at the ways we might expect the Maple Leafs to improve, year over year.`\
-https://nytimes.com/athletic/5794770/2024/09/26/maple-leafs-optimism-for-204-25/
-
-**The Bounce: Are windows closing for Lakers, Clippers?**\
-`Zach Harper and Shams Charania catch you up on leaguewide news.`\
-https://nytimes.com/athletic/5795968/2024/09/26/lakers-clippers-nba-wnba-aces-lynx-sun-liberty-fever-the-bounce/
-
-**Read the Eric Adams Indictment**\
-`The indictment against Mayor Eric Adams of New York was unsealed Thursday.`\
-https://nytimes.com/interactive/2024/09/26/nyregion/eric-adams-indictment-charges-pdf.html
 
