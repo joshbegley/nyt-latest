@@ -1,3 +1,11 @@
+**USC's Bear Alexander intends to redshirt: Sources**\
+`The former five-star prospect did not start any of the Trojans' first three games but did play significant snaps against LSU and Michigan. `\
+https://nytimes.com/athletic/5795104/2024/09/25/usc-bear-alexander-redshirt-transfer/
+
+**A Timeline of Key Moments in the Lead-Up to the Mayor’s Indictment**\
+`Mayor Eric Adams faces corruption charges. They stem from a broad inquiry that has been in progress for months.`\
+https://nytimes.com/2024/09/25/nyregion/eric-adams-indictment-timeline.html
+
 **House Condemns Biden and Harris Over Afghanistan Withdrawal**\
 `Ten Democrats joined the G.O.P.-led effort to rebuke 15 senior members of the Biden administration for the failures of the Afghanistan withdrawal in a symbolic vote.`\
 https://nytimes.com/2024/09/25/us/politics/house-biden-harris-afghanistan-withdrawal.html
