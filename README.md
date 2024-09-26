@@ -1,3 +1,19 @@
+**Big 12 releases men's basketball schedule for 2024-25**\
+`Arizona, Arizona State, Colorado and Utah officially joined the conference this summer as Texas and Oklahoma departed for the SEC.`\
+https://nytimes.com/athletic/5797259/2024/09/26/big-12-mens-basketball-schedule/
+
+**College football Week 5 model projections: Point differentials and totals for every game**\
+`Austin Mock's model projects the point differentials and point totals for every college football Week 5 game, including Georgia at Alabama.`\
+https://nytimes.com/athletic/5797233/2024/09/26/college-football-week-5-model-projections-scores/
+
+**Tracking Hurricane Helene's impact on this weekend's games**\
+`Several teams have rescheduled games or changed their travel plans due to heavy rain.`\
+https://nytimes.com/athletic/5796637/2024/09/26/hurricane-helene-sports-postponements-cancellations/
+
+**English Is Everybody’s Business. (Or Is it Boocie-ness? Or Boozy-ness?)**\
+`A modest plea for the return of language arts`\
+https://nytimes.com/2024/09/26/opinion/english-is-everybodys-business-or-is-it-boocie-ness-or-boozy-ness.html
+
 **The Best Sheets for Your Bed**\
 `We found linen, percale, sateen and flannel options.`\
 https://nytimes.com/interactive/2024/09/26/smarter-living/wirecutter/best-sheets.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/09/26/magazine/sea-urchin-sex-drive.html
 **Was It the Best Gelato I’d Ever Had Because I’d Just Survived a Brain Tumor?**\
 `A trip to the Amalfi Coast (and down memory lane) in search of the truth about a dessert I’ve never forgotten.`\
 https://nytimes.com/interactive/2024/09/26/magazine/gelato-southern-italy.html
-
-**Searching for a Family Feast in Senegal That Tastes Like Home**\
-`I crossed the ocean to savor a new twist on a childhood favorite.`\
-https://nytimes.com/interactive/2024/09/26/magazine/senegal-poulet-yassa.html
-
-**Our Son Hates Eggs. Could a Dozen French Chefs Change That?**\
-`A trip to Paris in search of one magical bite that would cure a picky eater.`\
-https://nytimes.com/interactive/2024/09/26/magazine/paris-eggs.html
-
-**Wok Hei Is Vanishing From Hong Kong. My Mom Wanted to Taste It Again.**\
-`My mom grew up with the signature flavor of the city’s outdoor food stalls. It won’t be around much longer.`\
-https://nytimes.com/interactive/2024/09/26/magazine/hong-kong-dai-pai-dong.html
-
-**Hunting for One of the World’s Most Exquisite Peppers**\
-`A trip to Peru in search of the essence of ají amarillo.`\
-https://nytimes.com/interactive/2024/09/26/magazine/aji-amarillo-pepper-peru.html
 
