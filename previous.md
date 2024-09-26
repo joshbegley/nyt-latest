@@ -1,3 +1,11 @@
+**In a Small Florida Community, Some Stay and Prepare for the Worst**\
+`Although many residents have evacuated from Cedar Key, about 50 people remained and faced the risks.`\
+https://nytimes.com/2024/09/26/weather/florida-hurricane-helene-evacuations.html
+
+**Man United aiming to win Premier League by 2028, CEO tells staff**\
+`Manchester United chief executive Omar Berrada has told staff that the aim is to win the Premier League title in 2028, for the 150th anniversary of the club being formed.`\
+https://nytimes.com/athletic/5796091/2024/09/26/manchester-united-premier-league-title-omar-berrada/
+
 **In New Mexico, Sopapillas Do It All**\
 `In pockets of the Southwest, no meal is complete without these crisp pillows of fried dough.`\
 https://nytimes.com/2024/09/26/dining/sopapillas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5796800/2024/09/26/liam-lawson-daniel-ricciardo-f1-
 **ESPN lays off NBA senior writer Zach Lowe: Sources**\
 `Lowe follows the earlier dismissals of NFL personalities, Robert Griffin III and Sam Ponder.`\
 https://nytimes.com/athletic/5796820/2024/09/26/espn-layoffs-zach-lowe/
-
-**What to See on London Stages This Fall**\
-`Some recommendations for visitors and residents who want to get the most from the city’s varied theater scene.`\
-https://nytimes.com/2024/09/26/theater/london-theater-whats-on.html
-
-**Reid confirms Forest exit after three years as coach**\
-`Steven Reid has confirmed his departure from the coaching staff at Nottingham Forest.`\
-https://nytimes.com/athletic/5796713/2024/09/26/steven-reid-forest-exit/
 
