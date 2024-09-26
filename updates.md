@@ -1,3 +1,15 @@
+**‘The Queen of the Villains’ Is a Complex Japanese Wrestling Drama**\
+`The five-part Netflix series tells the story of a female wrestler in the 1980s who might have gone a little too deep into character.`\
+https://nytimes.com/2024/09/26/arts/television/the-queen-of-the-villains-netflix.html
+
+**Task Force on Trump Assassination Attempts Sinks Into Partisanship**\
+`Democrats walked out on a committee hearing after Republicans called two of their own members who have nudged conspiracy theories as witnesses.`\
+https://nytimes.com/2024/09/26/us/politics/trump-assassination-attempts-task-force.html
+
+**What’s Going On in This Graph? | Oct. 9, 2024**\
+`How are the candidates’ career timelines similar? How are they different?`\
+https://nytimes.com/2024/09/26/learning/whats-going-on-in-this-graph-oct-9-2024.html
+
 **Lloyd Macklowe, Leading Purveyor of Art Nouveau, Is Dead at 90**\
 `He and his wife began buying pieces to furnish their apartment. They wound up with a museum-quality collection and a pre-eminent retail business.`\
 https://nytimes.com/2024/09/26/arts/lloyd-macklowe-dead.html

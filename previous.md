@@ -1,3 +1,15 @@
+**‘The Queen of the Villains’ Is a Complex Japanese Wrestling Drama**\
+`The five-part Netflix series tells the story of a female wrestler in the 1980s who might have gone a little too deep into character.`\
+https://nytimes.com/2024/09/26/arts/television/the-queen-of-the-villains-netflix.html
+
+**Task Force on Trump Assassination Attempts Sinks Into Partisanship**\
+`Democrats walked out on a committee hearing after Republicans called two of their own members who have nudged conspiracy theories as witnesses.`\
+https://nytimes.com/2024/09/26/us/politics/trump-assassination-attempts-task-force.html
+
+**What’s Going On in This Graph? | Oct. 9, 2024**\
+`How are the candidates’ career timelines similar? How are they different?`\
+https://nytimes.com/2024/09/26/learning/whats-going-on-in-this-graph-oct-9-2024.html
+
 **Lloyd Macklowe, Leading Purveyor of Art Nouveau, Is Dead at 90**\
 `He and his wife began buying pieces to furnish their apartment. They wound up with a museum-quality collection and a pre-eminent retail business.`\
 https://nytimes.com/2024/09/26/arts/lloyd-macklowe-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/26/weather/helene-hurricane-storm-surge.html
 **Put ‘Eat Dinner’ on Your Calendar**\
 `Ten-minute tofu, 15-minute fried rice and more recipes for when life overwhelms.`\
 https://nytimes.com/2024/09/26/dining/put-eat-dinner-on-your-calendar.html
-
-**‘The Rings of Power’ Season 2, Episode 7 Recap: ‘Light Endures’**\
-`Something is wrong with the candles in Celebrimbor’s workshop. Things are even worse outside.`\
-https://nytimes.com/2024/09/26/arts/television/rings-of-power-recap-season-2-episode-7.html
-
-**The Manhattan Building at the Center of the Charges Against Adams**\
-`The lavish Turkevi Center, built by the Turkish government, was opened despite defects in its fire safety system. Prosecutors say Eric Adams pressured fire department officials to look the other way.`\
-https://nytimes.com/2024/09/26/nyregion/turkish-consulate-manhattan-turkevi-center.html
-
-**Is Underparenting Good or Bad for Kids?**\
-`Responses to a guest essay about less intensive parenting. Also: A nuclear threat; gear against school shootings; wills for singles; Trump vs. Obamacare.`\
-https://nytimes.com/2024/09/26/opinion/parenting-kids.html
 
