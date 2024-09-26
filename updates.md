@@ -1,3 +1,11 @@
+**Vote to amend Premier League’s APT rules withdrawn ahead of meeting**\
+`A vote on Associated Party Transaction (APT) rule amendments was pulled from the agenda at late notice ahead of a Premier League shareholders’ meeting today (Thursday).`\
+https://nytimes.com/athletic/5796572/2024/09/26/premier-league-meeting-apt-vote/
+
+**What Happens When Artists Start Going to Therapy?**\
+`In a number of exhibitions on view this year, people are pushing back on the cliché of suffering being essential to art, embracing recovery and wellness instead.`\
+https://nytimes.com/2024/09/26/t-magazine/therapy-art-thomas-houseago.html
+
 **In a Small Florida Community, Some Stay and Prepare for the Worst**\
 `Although many residents have evacuated from Cedar Key, about 50 people remained and faced the risks.`\
 https://nytimes.com/2024/09/26/weather/florida-hurricane-helene-evacuations.html
