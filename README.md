@@ -1,3 +1,11 @@
+**Years After Being ‘Fired,’ They’ve Unloaded Their Trump Media Stock**\
+`Two former “Apprentice” contestants who helped found Truth Social have sold their nearly 6 percent stake in Trump Media & Technology Group.`\
+https://nytimes.com/2024/09/26/business/truth-social-trump-media-stock-sale.html
+
+**Britain’s leader calls on Israel and Hezbollah to ‘step back from the brink.’**\
+`By Megan Specia`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/britains-leader-calls-on-israel-and-hezbollah-to-step-back-from-the-brink
+
 **A Gotti Grandson Pleads Guilty to Covid Relief Fraud**\
 `A U.S. attorney said that Carmine G. Agnello had “shamefully” used the pandemic “as an opportunity to line his pockets.”`\
 https://nytimes.com/2024/09/26/nyregion/gotti-grandson-guilty-plea.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/26/us/hurricane-helene-florida-photos-videos.html
 **After LAFC's win, the 2025 U.S. Open Cup format could be finalized in 'weeks, not months'**\
 `With the final complete, talks are already underway for the format of the 2025 U.S. Open Cup. `\
 https://nytimes.com/athletic/5797535/2024/09/26/us-open-cup-mls-ussf-usl-tournament/
-
-**White House thought Israel was ‘on board’ with a proposed 3-week cease-fire in Lebanon.**\
-`The belief that Israel was willing to agree to a three-week pause in the fighting was shaken on Thursday morning, when Prime Minister Benjamin Netanyahu appeared to dismiss the idea.`\
-https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/white-house-thought-israel-was-on-board-with-a-proposed-3-week-cease-fire-in-lebanon
-
-**Production Linked to Neil Gaiman Is Halted Amid Sexual Assault Claims**\
-`The British author of dozens of literary works has denied the allegations that five women made against him on a podcast series.`\
-https://nytimes.com/2024/09/26/business/neil-gaiman-allegations.html
 

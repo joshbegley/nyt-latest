@@ -1,3 +1,11 @@
+**A Gotti Grandson Pleads Guilty to Covid Relief Fraud**\
+`A U.S. attorney said that Carmine G. Agnello had “shamefully” used the pandemic “as an opportunity to line his pockets.”`\
+https://nytimes.com/2024/09/26/nyregion/gotti-grandson-guilty-plea.html
+
+**Trump Campaign Is Said to Have Changed Rally After Secret Service Concerns**\
+`Former President Donald J. Trump will hold an indoor rally in Wisconsin on Saturday. The Secret Service had raised concerns about securing the outdoor rally initially planned, according to a senior official with the agency.`\
+https://nytimes.com/2024/09/26/us/politics/trump-campaign-secret-service.html
+
 **Just how nice is Turkish Airlines’s Business Class?**\
 `By Christine Chung`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/just-how-nice-is-turkish-airliness-business-class

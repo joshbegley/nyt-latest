@@ -1,3 +1,11 @@
+**A Gotti Grandson Pleads Guilty to Covid Relief Fraud**\
+`A U.S. attorney said that Carmine G. Agnello had “shamefully” used the pandemic “as an opportunity to line his pockets.”`\
+https://nytimes.com/2024/09/26/nyregion/gotti-grandson-guilty-plea.html
+
+**Trump Campaign Is Said to Have Changed Rally After Secret Service Concerns**\
+`Former President Donald J. Trump will hold an indoor rally in Wisconsin on Saturday. The Secret Service had raised concerns about securing the outdoor rally initially planned, according to a senior official with the agency.`\
+https://nytimes.com/2024/09/26/us/politics/trump-campaign-secret-service.html
+
 **Just how nice is Turkish Airlines’s Business Class?**\
 `By Christine Chung`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/just-how-nice-is-turkish-airliness-business-class
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/white-h
 **Production Linked to Neil Gaiman Is Halted Amid Sexual Assault Claims**\
 `The British author of dozens of literary works has denied the allegations that five women made against him on a podcast series.`\
 https://nytimes.com/2024/09/26/business/neil-gaiman-allegations.html
-
-**Eric Adams Charged With Bribery and Fraud**\
-`Also, Hurricane Helene heads toward Florida. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/09/26/briefing/eric-adams-charged-hurricane-florida.html
-
-**What the Prosecution’s Case Has Revealed About Tyre Nichols’s Death**\
-`Prosecutors called nearly 20 witnesses to make their case against three former Memphis police officers charged in connection with the fatal beating of Mr. Nichols.`\
-https://nytimes.com/2024/09/26/us/tyre-nichols-death-prosecution.html
 
