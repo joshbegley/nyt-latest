@@ -1,3 +1,7 @@
+**Who Has Called for Mayor Eric Adams to Resign?**\
+`The indictment of Mr. Adams has led to a wave of fresh calls for him to step down.`\
+https://nytimes.com/2024/09/25/nyregion/eric-adams-resignation-calls-list.html
+
 **Powerlifter’s Sound**\
 `You may not know which way you’re going in this New York Times Crossword debut by Jesse Guzman.`\
 https://nytimes.com/2024/09/25/crosswords/daily-puzzle-2024-09-26.html
