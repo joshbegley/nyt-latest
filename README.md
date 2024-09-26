@@ -4,7 +4,7 @@ https://nytimes.com/2024/09/26/world/asia/stand-news-sentences-hong-kong.html
 
 **Federal Agents Search Gracie Mansion in Adams Corruption Investigation**\
 `Agents searched the mayor’s official residence on the Upper East Side of Manhattan hours before federal prosecutors, the F.B.I. and city investigators were to announce corruption charges against him.`\
-https://nytimes.com/2024/09/26/nyregion/fbi-adams-raid-city-hall-nyc.html
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/fbi-adams-raid-city-hall-nyc
 
 **The Pulse: An NIL opt-out that could change college football**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
