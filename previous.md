@@ -1,3 +1,11 @@
+**The Story of the African Diaspora, Told Through Its Fashions**\
+`By examining the work of designers of African descent, a new exhibition in Manhattan finds common threads and, more interestingly, divergences.`\
+https://nytimes.com/2024/09/26/style/africa-fashion-diaspora-museum-at-fit.html
+
+**Pope Punishes Members of Catholic Group in Peru After Vatican Investigation**\
+`The Vatican expelled 10 members from Sodalitium Christianae Vitae, a group founded in Peru, after investigators reported cases of physical abuse and cultlike control.`\
+https://nytimes.com/2024/09/26/world/europe/pope-peru-sodalitium.html
+
 **10-Minute Challenge: Hiroshige’s ‘Sudden Rain’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2024/09/26/upshot/ten-minute-challenge-bridge.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5797547/2024/09/26/penn-state-illinois-white-out-co
 **Biden Signs Stopgap Spending Measure to Keep Government Open**\
 `The bill averts a campaign-season shutdown but ensures another spending fight in Congress during its lame-duck session in December.`\
 https://nytimes.com/2024/09/26/us/politics/biden-spending-bill-shutdown.html
-
-**Acadia Hospitals Reach $20 Million Settlement With Justice Dept.**\
-`The F.B.I. is also investigating the large chain of psychiatric hospitals for holding patients longer than what is medically necessary.`\
-https://nytimes.com/2024/09/26/health/acadia-doj-settlement-fbi.html
-
-**Years After Being ‘Fired,’ They’ve Unloaded Their Trump Media Stock**\
-`Two former “Apprentice” contestants who helped found Truth Social have sold their nearly 6 percent stake in Trump Media & Technology Group.`\
-https://nytimes.com/2024/09/26/business/truth-social-trump-media-stock-sale.html
 

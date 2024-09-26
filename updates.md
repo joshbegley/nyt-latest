@@ -1,3 +1,11 @@
+**The Story of the African Diaspora, Told Through Its Fashions**\
+`By examining the work of designers of African descent, a new exhibition in Manhattan finds common threads and, more interestingly, divergences.`\
+https://nytimes.com/2024/09/26/style/africa-fashion-diaspora-museum-at-fit.html
+
+**Pope Punishes Members of Catholic Group in Peru After Vatican Investigation**\
+`The Vatican expelled 10 members from Sodalitium Christianae Vitae, a group founded in Peru, after investigators reported cases of physical abuse and cultlike control.`\
+https://nytimes.com/2024/09/26/world/europe/pope-peru-sodalitium.html
+
 **10-Minute Challenge: Hiroshige’s ‘Sudden Rain’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2024/09/26/upshot/ten-minute-challenge-bridge.html
