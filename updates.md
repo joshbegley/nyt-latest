@@ -1,3 +1,15 @@
+**Democrats Seek Another Opening in a Challenging Senate Map**\
+`New investments in Texas and Florida show how the party is reaching to keep its majority alive.`\
+https://nytimes.com/2024/09/26/us/politics/democrats-senate-florida-texas.html
+
+**Bills restructuring front office in moves they say will bring franchise into '21st century'**\
+`Buffalo added two hires to its front office.`\
+https://nytimes.com/athletic/5797292/2024/09/26/bills-front-office-moves-orchard-park/
+
+**Have We Hit Peak Hand Roll Yet?**\
+`There are at least a dozen spots in New York City, but some sushi hand rolls are better than others.`\
+https://nytimes.com/2024/09/26/dining/have-we-hit-peak-hand-roll-yet.html
+
 **Ron Washington says he 'misspoke' in sharp criticism of his team's talent**\
 `The Angels entered Thursday at 63-95. The loss total ties the most in franchise history with four games left to play. `\
 https://nytimes.com/athletic/5797327/2024/09/26/angels-ron-washington-comments/
