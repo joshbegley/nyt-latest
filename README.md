@@ -10,7 +10,7 @@ https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/netanya
 `By Matthew Haag`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/heres-the-latest-on-the-mayors-indictment
 
-**Prosecutors to Unveil Charges Against Adams as He Faces Calls to Resign**\
+**Live Updates: Prosecutors to Unveil Charges Against Adams as He Faces Calls to Resign**\
 `Mayor Eric Adams, indicted in a lengthy corruption investigation, insisted he was innocent. Prosecutors are expected to announce the charges on Thursday.`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news
 
