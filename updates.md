@@ -1,3 +1,19 @@
+**California Will Formally Apologize for Being Complicit in Slavery**\
+`Gov. Gavin Newsom signed several bills intended to atone for the state’s role in the oppression of Black Americans, but California legislators so far have sidelined proposals on cash reparations.`\
+https://nytimes.com/2024/09/26/us/california-slavery-apology-reparations.html
+
+**For the Wizards, 'rebuild' isn't a dirty word anymore**\
+`General manager Will Dawkins offered a refreshingly blunt assessment on where his team stands. `\
+https://nytimes.com/athletic/5797821/2024/09/26/washington-wizards-will-dawkins-interview/
+
+**Safety Board Warns of Rudder Control Defect in Some Boeing Planes**\
+`The National Transportation Safety Board said it had found a defective part in the system that helps steer the aircraft after investigating an incident at Newark airport.`\
+https://nytimes.com/2024/09/26/us/politics/boeing-rudder-defect-ntsb.html
+
+**Gov. Hochul Can Remove Eric Adams From Office. Will She?**\
+`The governor indicated that she was examining her options, but removing a reliable ally could create political problems that outweigh potential benefits.`\
+https://nytimes.com/2024/09/26/nyregion/adams-hochul-removal.html
+
 **Democrats Need Jon Tester to Defy the Odds Again**\
 `Control of the Senate could turn on Montana.`\
 https://nytimes.com/2024/09/26/us/politics/jon-tester-montana-election.html
