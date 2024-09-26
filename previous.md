@@ -6,8 +6,8 @@ https://nytimes.com/athletic/5796572/2024/09/26/premier-league-meeting-apt-vote/
 `In a number of exhibitions on view this year, people are pushing back on the cliché of suffering being essential to art, embracing recovery and wellness instead.`\
 https://nytimes.com/2024/09/26/t-magazine/therapy-art-thomas-houseago.html
 
-**In a Small Florida Community, Some Stay and Prepare for the Worst**\
-`Although many residents have evacuated from Cedar Key, about 50 people remained and faced the risks.`\
+**Tiny Cedar Key Has Been Hit Before. Now, It Faces a Huge Storm.**\
+`Although many residents have evacuated Cedar Key, which sticks out of the edge of Florida into the Gulf of Mexico, about 50 people have remained and face the risks.`\
 https://nytimes.com/2024/09/26/weather/florida-hurricane-helene-evacuations.html
 
 **Man United aiming to win Premier League by 2028, CEO tells staff**\

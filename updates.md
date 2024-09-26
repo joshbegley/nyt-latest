@@ -1,3 +1,7 @@
+**Tiny Cedar Key Has Been Hit Before. Now, It Faces a Huge Storm.**\
+`Although many residents have evacuated Cedar Key, which sticks out of the edge of Florida into the Gulf of Mexico, about 50 people have remained and face the risks.`\
+https://nytimes.com/2024/09/26/weather/florida-hurricane-helene-evacuations.html
+
 **Vote to amend Premier League’s APT rules withdrawn ahead of meeting**\
 `A vote on Associated Party Transaction (APT) rule amendments was pulled from the agenda at late notice ahead of a Premier League shareholders’ meeting today (Thursday).`\
 https://nytimes.com/athletic/5796572/2024/09/26/premier-league-meeting-apt-vote/
