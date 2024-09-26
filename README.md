@@ -35,6 +35,6 @@ https://nytimes.com/2024/09/26/world/asia/pakistan-blasphemy.html
 https://nytimes.com/athletic/5794782/2024/09/26/mlb-odds-best-bets-projections-september-26/
 
 **‘Deepfake’ Caller Poses as Ukrainian Official in Exchange With Key Senator**\
-`A figure impersonating Dmytro Kuleba, the former foreign minister of Ukraine, targeted Senator Benjamin L. Cardin, the chairman of the Senate Foreign Relations Committee, over a Zoom call.`\
+`A figure impersonating Dmytro Kuleba, the former foreign minister of Ukraine, targeted Senator Benjamin L. Cardin, the chairman of the Foreign Relations Committee, over a Zoom call.`\
 https://nytimes.com/2024/09/26/us/senator-cardin-deepfake.html
 
