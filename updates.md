@@ -1,3 +1,11 @@
+**Ducks' Gibson undergoes appendectomy: Is Dostál ready for a bigger role?**\
+`Anaheim Ducks goalie John Gibson underwent an appendectomy on Wednesday night, a team spokesperson confirmed to The Athletic on Thursday, and the procedure might put his availability for the start of the season in jeopardy.`\
+https://nytimes.com/athletic/5797455/2024/09/26/john-gibson-appendectomy-ducks/
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/09/26/books/review/new-books-recommendations.html
+
 **Mayor Adams Should Resign**\
 `The federal indictment reveals how the city’s leader repeatedly failed in his duty to uphold the public trust.`\
 https://nytimes.com/2024/09/26/opinion/eric-adams-indictment-resign.html

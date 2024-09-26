@@ -1,3 +1,11 @@
+**Ducks' Gibson undergoes appendectomy: Is Dostál ready for a bigger role?**\
+`Anaheim Ducks goalie John Gibson underwent an appendectomy on Wednesday night, a team spokesperson confirmed to The Athletic on Thursday, and the procedure might put his availability for the start of the season in jeopardy.`\
+https://nytimes.com/athletic/5797455/2024/09/26/john-gibson-appendectomy-ducks/
+
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/09/26/books/review/new-books-recommendations.html
+
 **Mayor Adams Should Resign**\
 `The federal indictment reveals how the city’s leader repeatedly failed in his duty to uphold the public trust.`\
 https://nytimes.com/2024/09/26/opinion/eric-adams-indictment-resign.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/26/theater/belarus-free-theater-the-ask-medea-revisi
 **Giuliani Disbarred in D.C. Over Efforts to Overturn 2020 Election**\
 `Appellate judges based their decision on New York’s ruling earlier this year to bar him from practicing law in the state.`\
 https://nytimes.com/2024/09/26/us/politics/giuliani-disbarred-in-dc-over-efforts-to-overturn-2020-election.html
-
-**Harris Meets With Zelensky, Anticipating a Handover of Global Crises**\
-`The meeting signaled that the White House was preparing her to take over a thorny diplomatic relationship should she win the election in November.`\
-https://nytimes.com/2024/09/26/us/politics/harris-zelensky.html
-
-**Port Operators Ask Regulator to Force Dockworkers to Negotiate**\
-`The group that represents port terminal operators said the International Longshoremen’s Association was refusing to negotiate a new contract before a Monday deadline.`\
-https://nytimes.com/2024/09/26/business/economy/port-strike-dockworkers-negotiate.html
 
