@@ -1,3 +1,7 @@
+**Read the Eric Adams Indictment**\
+`The indictment against Mayor Eric Adams of New York was unsealed Thursday.`\
+https://nytimes.com/interactive/2024/09/26/nyregion/eric-adams-indictment-charges-pdf.html
+
 **These are the charges against Eric Adams.**\
 `By William K. Rashbaum, Dana Rubinstein and Michael Rothfeld`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/eric-adams-charges
