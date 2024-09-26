@@ -1,3 +1,7 @@
+**Lawsuit filed over Ohtani's 50th home run ball**\
+`The lawsuit disputed who rightfully possessed the baseball after it landed in the stands.`\
+https://nytimes.com/athletic/5797317/2024/09/26/shohei-ohtani-home-run-baseball-lawsuit/
+
 **Ducks' Gibson undergoes appendectomy: Is Dostál ready for a bigger role?**\
 `Anaheim Ducks goalie John Gibson underwent an appendectomy on Wednesday night, a team spokesperson confirmed to The Athletic on Thursday, and the procedure might put his availability for the start of the season in jeopardy.`\
 https://nytimes.com/athletic/5797455/2024/09/26/john-gibson-appendectomy-ducks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/us/mississippi-police-abuse-lexington.html
 **The Stage Combat Is Verbal in These Off Broadway Plays**\
 `Belarus Free Theater’s “KS6: Small Forward” and three other shows are reminders that there are many ways to portray conflicts and confrontations onstage.`\
 https://nytimes.com/2024/09/26/theater/belarus-free-theater-the-ask-medea-revisited-voices-head.html
-
-**Giuliani Disbarred in D.C. Over Efforts to Overturn 2020 Election**\
-`Appellate judges based their decision on New York’s ruling earlier this year to bar him from practicing law in the state.`\
-https://nytimes.com/2024/09/26/us/politics/giuliani-disbarred-in-dc-over-efforts-to-overturn-2020-election.html
 

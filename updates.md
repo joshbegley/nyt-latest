@@ -1,3 +1,7 @@
+**Lawsuit filed over Ohtani's 50th home run ball**\
+`The lawsuit disputed who rightfully possessed the baseball after it landed in the stands.`\
+https://nytimes.com/athletic/5797317/2024/09/26/shohei-ohtani-home-run-baseball-lawsuit/
+
 **Ducks' Gibson undergoes appendectomy: Is Dostál ready for a bigger role?**\
 `Anaheim Ducks goalie John Gibson underwent an appendectomy on Wednesday night, a team spokesperson confirmed to The Athletic on Thursday, and the procedure might put his availability for the start of the season in jeopardy.`\
 https://nytimes.com/athletic/5797455/2024/09/26/john-gibson-appendectomy-ducks/
