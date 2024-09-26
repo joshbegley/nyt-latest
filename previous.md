@@ -1,3 +1,15 @@
+**Brain games: Concern levels for Bears, Bijan, and more, heading into Week 4**\
+`Renee Miller looks at frustrating players on bad teams, offering her expectations for what to expect from them in Week 4 and beyond.`\
+https://nytimes.com/athletic/5794829/2024/09/26/brain-games-week-4-fantasy-football-bijan-bears/
+
+**No wins in their first five Premier League games: How worried should the bottom six be?**\
+`This is the first top-flight season ever where six teams have still been without a win after playing five matches. Is it too soon to panic?`\
+https://nytimes.com/athletic/5793187/2024/09/26/premier-league-bottom-six-worst-start/
+
+**Why three teams reaching the Women's Champions League would be a landmark moment for the WSL**\
+`The WSL has never had three teams in the Women's Champions League proper before – but that could change tonight`\
+https://nytimes.com/athletic/5793813/2024/09/26/wsl-teams-womens-champions-league/
+
 **On Ukraine’s Eastern Front, 100 Miles of High-Stakes Struggle**\
 `Russian forces are pressing against an arc of strongholds in Ukraine’s Donetsk region, in a fight as intense as any in the war.`\
 https://nytimes.com/2024/09/26/world/europe/ukraine-eastern-front-line.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5795384/2024/09/25/kevin-gausman-blue-jays-rotation
 **For the Tigers, a rocky start, a raucous homer and a rocking Jackson Jobe debut**\
 `Another night went according to script, this one even lacking the drama that has followed the cardiac cats all September.`\
 https://nytimes.com/athletic/5795371/2024/09/25/tigers-playoff-chase-jackson-jobe-debut/
-
-**Zelensky Warns World Leaders of Continued Russian Threats**\
-`The president of Ukraine called Russia’s push for more land “insane” in his speech to world leaders at the U.N. General Assembly in New York.`\
-https://nytimes.com/video/world/europe/100000009721098/zelensky-unga-russia-ukraine.html
-
-**With Eric Adams Indicted, What Happens Next?**\
-`New York voters cannot recall the mayor and he is not required to resign, but Gov. Kathy Hochul has the power to remove him. She would be in uncharted territory.`\
-https://nytimes.com/2024/09/25/nyregion/impeach-adams-governor-ny-city-charter.html
-
-**In Defiant Video, Adams Calls Any Charges Against Him ‘Entirely False’**\
-`Mayor Eric Adams released a video vowing to fight the charges he faces and said he would request an immediate trial.`\
-https://nytimes.com/2024/09/25/nyregion/eric-adams-statement-video.html
 
