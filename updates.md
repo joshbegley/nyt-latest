@@ -1,3 +1,7 @@
+**For the Tigers, a rocky start, a raucous homer and a rocking Jackson Jobe debut**\
+`Another night went according to script, this one even lacking the drama that has followed the cardiac cats all September.`\
+https://nytimes.com/athletic/5795371/2024/09/25/tigers-playoff-chase-jackson-jobe-debut/
+
 **Zelensky Warns World Leaders of Continued Russian Threats**\
 `The president of Ukraine called Russia’s push for more land “insane” in his speech to world leaders at the U.N. General Assembly in New York.`\
 https://nytimes.com/video/world/europe/100000009721098/zelensky-unga-russia-ukraine.html
