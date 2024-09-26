@@ -1,3 +1,7 @@
+**Many Who Used to Stay Put Are Leaving for Helene**\
+`More residents who live near the coast are taking the warnings of storm surge seriously and evacuating to inland areas.`\
+https://nytimes.com/2024/09/26/us/hurricane-helene-forecast-evacuations.html
+
 **A Brief History of Ethical Concerns Involving Eric Adams**\
 `The mayor has been investigated repeatedly during his two decades in politics.`\
 https://nytimes.com/2024/09/26/nyregion/eric-adams-investigations.html
