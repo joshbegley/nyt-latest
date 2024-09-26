@@ -1,3 +1,7 @@
+**Desi Lydic Ridicules Trump for Demanding Harris’s ‘Burger Certificate’**\
+`“This isn’t the kind of thing you would lie about,” Lydic said. “It’s not like sex with a porn star while your wife is pregnant.”`\
+https://nytimes.com/2024/09/26/arts/television/trump-harris-mcdonalds.html
+
 **They Used to Rule the World. What Happened?**\
 `Conservatism, the force that has dominated Western politics since World War II, is in danger of being swallowed by the far right.`\
 https://nytimes.com/2024/09/26/opinion/trump-far-right-conservatism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5793976/2024/09/26/tottenham-squad-depth-europa/
 **Carlo Ancelotti's Real Madrid survival and the soft superpowers behind his success**\
 `On Tuesday night, Carlo Ancelotti took charge of his 300th match at Real Madrid – a club renowned for firing managers`\
 https://nytimes.com/athletic/5794012/2024/09/26/carlo-ancelotti-real-madrid-la-liga-florentino-perez/
-
-**Marc Cucurella is perfect for Maresca’s inverted full-back plan - especially in attack**\
-`Marc Cucurella struggled at Chelsea at first. Now he has found the ideal role`\
-https://nytimes.com/athletic/5793505/2024/09/26/cucurella-inverted-full-back/
 
