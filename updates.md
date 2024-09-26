@@ -1,3 +1,7 @@
+**The Bounce: Are windows closing for Lakers, Clippers?**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5795968/2024/09/26/lakers-clippers-nba-wnba-aces-lynx-sun-liberty-fever-the-bounce/
+
 **Read the Eric Adams Indictment**\
 `The indictment against Mayor Eric Adams of New York was unsealed Thursday.`\
 https://nytimes.com/interactive/2024/09/26/nyregion/eric-adams-indictment-charges-pdf.html
