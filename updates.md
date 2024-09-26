@@ -1,3 +1,11 @@
+**Mayor Adams Should Resign**\
+`The federal indictment reveals how the city’s leader repeatedly failed in his duty to uphold the public trust.`\
+https://nytimes.com/2024/09/26/opinion/eric-adams-indictment-resign.html
+
+**Port Operators Ask Regulator to Force Dockworkers to Negotiate**\
+`The group that represents port terminal operators said the International Longshoremen’s Association was refusing to negotiate a new contract before a Monday deadline.`\
+https://nytimes.com/2024/09/26/business/economy/port-strike-dockworkers-negotiate.html
+
 **Kamala Harris’s Campaign Thinks She Can Win on the Economy. Here’s How.**\
 `Harris advisers point to a number of brightening public polls showing that Donald Trump’s lead is eroding on the critical question of whom voters trust most on the economy.`\
 https://nytimes.com/2024/09/26/us/politics/trump-harris-economy.html
