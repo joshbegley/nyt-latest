@@ -1,3 +1,19 @@
+**On Ukraine’s Eastern Front, 100 Miles of High-Stakes Struggle**\
+`Russian forces are pressing against an arc of strongholds in Ukraine’s Donetsk region, in a fight as intense as any in the war.`\
+https://nytimes.com/2024/09/26/world/europe/ukraine-eastern-front-line.html
+
+**First It Was Lynch Mobs. Now Police Kill Pakistanis Accused of Blasphemy.**\
+`The deaths of two men have reverberated across Pakistan, where the charge of insulting Islam has long been a sensitive issue.`\
+https://nytimes.com/2024/09/26/world/asia/pakistan-blasphemy.html
+
+**Thursday's MLB best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
+https://nytimes.com/athletic/5794782/2024/09/26/mlb-odds-best-bets-projections-september-26/
+
+**‘Deepfake’ Caller Poses as Ukrainian Official in Exchange With Key Senator**\
+`A figure impersonating Dmytro Kuleba, the former foreign minister of Ukraine, targeted Senator Benjamin L. Cardin, the chairman of the Senate Foreign Relations Committee, over a Zoom call.`\
+https://nytimes.com/2024/09/26/us/senator-cardin-deepfake.html
+
 **Quote of the Day: Recognition, and Glory, for Europe’s Tram Drivers**\
 `Quotation of the Day for Thursday, September 26, 2024`\
 https://nytimes.com/2024/09/25/pageoneplus/quote-of-the-day-recognition-and-glory-for-europes-tram-drivers.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/25/nyregion/impeach-adams-governor-ny-city-charter.h
 **In Defiant Video, Adams Calls Any Charges Against Him ‘Entirely False’**\
 `Mayor Eric Adams released a video vowing to fight the charges he faces and said he would request an immediate trial.`\
 https://nytimes.com/2024/09/25/nyregion/eric-adams-statement-video.html
-
-**Red Sox eliminated from postseason for third straight year: 'We blew it'**\
-`“At one point it felt like we were a playoff-caliber team, and then we missed the opportunity." The Red Sox postseason drought continues.`\
-https://nytimes.com/athletic/5795354/2024/09/25/red-sox-elimination-2024/
-
-**Caitlin Clark grades her rookie season as 'solid' after playoff exit**\
-`"Championships are great, hopefully we have a few of those, but you want to have really good relationships with people."`\
-https://nytimes.com/athletic/5795293/2024/09/25/caitlin-clark-rookie-season-indiana-fever/
-
-**Who Is Running for New York City Mayor in the Democratic Primary?**\
-`Mayor Eric Adams is currently running for re-election in a competitive primary next June. Already, four prominent Democrats are facing off against him.`\
-https://nytimes.com/2024/09/25/nyregion/eric-adams-mayor-democratic-primary.html
-
-**Mayor Eric Adams Vows to Fight Federal Indictment Against Him**\
-`In a videotaped speech, Mr. Adams said any charges against him would be “false” and said that he will continue to lead as mayor of the city.`\
-https://nytimes.com/video/nyregion/100000009721164/mayor-eric-adams-vows-to-fight-federal-indictment-against-him.html
 

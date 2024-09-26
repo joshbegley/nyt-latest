@@ -1,3 +1,7 @@
+**Why three teams reaching the Women's Champions League would be a landmark moment for the WSL**\
+`The WSL has never had three teams in the Women's Champions League proper before – but that could change tonight`\
+https://nytimes.com/athletic/5793813/2024/09/26/wsl-teams-womens-champions-league/
+
 **On Ukraine’s Eastern Front, 100 Miles of High-Stakes Struggle**\
 `Russian forces are pressing against an arc of strongholds in Ukraine’s Donetsk region, in a fight as intense as any in the war.`\
 https://nytimes.com/2024/09/26/world/europe/ukraine-eastern-front-line.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009721098/zelensky-unga-russia-ukra
 **With Eric Adams Indicted, What Happens Next?**\
 `New York voters cannot recall the mayor and he is not required to resign, but Gov. Kathy Hochul has the power to remove him. She would be in uncharted territory.`\
 https://nytimes.com/2024/09/25/nyregion/impeach-adams-governor-ny-city-charter.html
-
-**In Defiant Video, Adams Calls Any Charges Against Him ‘Entirely False’**\
-`Mayor Eric Adams released a video vowing to fight the charges he faces and said he would request an immediate trial.`\
-https://nytimes.com/2024/09/25/nyregion/eric-adams-statement-video.html
 

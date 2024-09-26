@@ -1,3 +1,19 @@
+**On Ukraine’s Eastern Front, 100 Miles of High-Stakes Struggle**\
+`Russian forces are pressing against an arc of strongholds in Ukraine’s Donetsk region, in a fight as intense as any in the war.`\
+https://nytimes.com/2024/09/26/world/europe/ukraine-eastern-front-line.html
+
+**First It Was Lynch Mobs. Now Police Kill Pakistanis Accused of Blasphemy.**\
+`The deaths of two men have reverberated across Pakistan, where the charge of insulting Islam has long been a sensitive issue.`\
+https://nytimes.com/2024/09/26/world/asia/pakistan-blasphemy.html
+
+**Thursday's MLB best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
+https://nytimes.com/athletic/5794782/2024/09/26/mlb-odds-best-bets-projections-september-26/
+
+**‘Deepfake’ Caller Poses as Ukrainian Official in Exchange With Key Senator**\
+`A figure impersonating Dmytro Kuleba, the former foreign minister of Ukraine, targeted Senator Benjamin L. Cardin, the chairman of the Senate Foreign Relations Committee, over a Zoom call.`\
+https://nytimes.com/2024/09/26/us/senator-cardin-deepfake.html
+
 **Quote of the Day: Recognition, and Glory, for Europe’s Tram Drivers**\
 `Quotation of the Day for Thursday, September 26, 2024`\
 https://nytimes.com/2024/09/25/pageoneplus/quote-of-the-day-recognition-and-glory-for-europes-tram-drivers.html
