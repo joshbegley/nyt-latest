@@ -1,3 +1,11 @@
+**Tufts Lacrosse Players Recovering After Navy SEAL-Led Workout Draws Inquiry**\
+`Nine players were hospitalized with a serious and rare muscle condition called rhabdomyolysis in the days after the 45-minute workout, according to the university.`\
+https://nytimes.com/2024/09/26/us/tufts-university-lacrosse-team-hospitalized.html
+
+**New Data Finds Sharper Economic Rebound From Pandemic**\
+`Updated figures show that gross domestic product, adjusted for inflation, grew faster in 2021, 2022 and early 2023 than previously reported.`\
+https://nytimes.com/2024/09/26/business/economy/economy-pandemic-rebound-gdp.html
+
 **Premier League partner Sorare to appear in court over UK Gambling Commission charge**\
 `Sorare, an official partner of the Premier League, has been charged by the UK Gambling Commission with allegedly “providing unlicensed gambling facilities to consumers in Britain”.`\
 https://nytimes.com/athletic/5796141/2024/09/26/sorare-premier-league-charge-gambling/
