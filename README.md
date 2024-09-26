@@ -1,3 +1,7 @@
+**Caleb Williams, Matthew Stafford share unique QB perspective, mutual admiration**\
+`Stafford, a 16-year NFL veteran, has become a quarterback that some of the league's younger QBs — like Williams — revere.`\
+https://nytimes.com/athletic/5794980/2024/09/26/caleb-williams-matthew-stafford-bears-rams/
+
 **Big 12 Chaos Meter: Preseason favorites fight to avoid 0-2 hole, Colorado visits UCF**\
 `What does this week hold coming off an end-of-regulation Hail Mary, a double-digit fourth-quarter comeback and a spicy rivalry rout?`\
 https://nytimes.com/athletic/5795315/2024/09/26/big-12-chaos-meter-kansas-state-oklahoma-state-colorado-ucf/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794781/2024/09/26/ravens-issues-justin-tucker-mark
 **Jayden Daniels, budding Commanders optimism and the psyche of a healing fan base**\
 `Long conditioned to expect the worst, Washington fans finally have hope again, with a promising young QB and no Dan Snyder to mess it up.`\
 https://nytimes.com/athletic/5793805/2024/09/26/jayden-daniels-commanders-fans-dan-snyder/
-
-**Packers praise Aaron Jones as franchise great returns to Lambeau with Vikings on Sunday**\
-`Jones is a surefire first-ballot Packers Hall of Famer four years after he retires.`\
-https://nytimes.com/athletic/5794610/2024/09/26/packers-aaron-jones-reunion-vikings/
 
