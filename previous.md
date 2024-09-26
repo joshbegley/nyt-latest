@@ -1,3 +1,7 @@
+**How Tigers third-base coach Joey Cora set the stage for the 'Gritty Tigs' of September**\
+`A team with fading hopes staked to winning on the margins needed to do better, to be better. So Cora launched into his soliloquy.`\
+https://nytimes.com/athletic/5797700/2024/09/26/tigers-baserunning-success-september-baseball/
+
 **The Tech Bro Style in American Politics**\
 `Why some billionaires are helping to promote political extremism.`\
 https://nytimes.com/2024/09/26/opinion/cryptocurrency-election-moreno-vance.html
@@ -10,7 +14,7 @@ https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/the-mayors
 `One week into camp, Winnipeg's roster battles are sorting themselves out ahead of the regular season.`\
 https://nytimes.com/athletic/5797311/2024/09/26/jets-roster-depth-chart-2024/
 
-**Braves' star Ronald Acuña Jr. on Ohtani's feats and return from 2nd ACL surgery**\
+**Braves star Ronald Acuña Jr. on Ohtani's feats and return from 2nd ACL surgery**\
 `Acuña said he will be "a little more cautious and careful" with his return from his second ACL surgery compared to the first one.`\
 https://nytimes.com/athletic/5797743/2024/09/26/braves-ronald-acuna-jr-ohtani-acl-surgery-update/
 
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5797116/2024/09/26/alabama-football-georgia-until-s
 `The indictment against Mayor Eric Adams includes vignettes that range from the amusing to the horrifying.`\
 https://nytimes.com/2024/09/26/nyregion/nyc-mayor-eric-adams-indictment-takeaways.html
 
-**The mayor was indicted. New Yorkers had jokes.**\
-`Memes and jokes have run rampant since news broke of Mayor Eric Adams’s indictment of charges of bribery and fraud.`\
-https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/the-mayor-was-indicted-new-yorkers-had-jokes
+**The Mayor Was Indicted. New Yorkers Had Jokes.**\
+`Mayor Eric Adams’s indictment quickly became fodder for memes and quips on social media.`\
+https://nytimes.com/2024/09/26/nyregion/nyc-mayor-indictment-jokes.html
 
 **Hurricane Helene Expected to Make Landfall Tonight**\
 `Helene is expected to bring record-breaking storm surges that will inundate communities along the Gulf Coast and bring rain and flooding to cities across the Southeast.`\
 https://nytimes.com/video/us/100000009724125/hurricane-helene-florida.html
-
-**The Story of the African Diaspora, Told Through Its Fashions**\
-`By examining the work of designers of African descent, a new exhibition in Manhattan finds common threads and, more interestingly, divergences.`\
-https://nytimes.com/2024/09/26/style/africa-fashion-diaspora-museum-at-fit.html
 

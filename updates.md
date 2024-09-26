@@ -1,3 +1,15 @@
+**How Tigers third-base coach Joey Cora set the stage for the 'Gritty Tigs' of September**\
+`A team with fading hopes staked to winning on the margins needed to do better, to be better. So Cora launched into his soliloquy.`\
+https://nytimes.com/athletic/5797700/2024/09/26/tigers-baserunning-success-september-baseball/
+
+**Braves star Ronald Acuña Jr. on Ohtani's feats and return from 2nd ACL surgery**\
+`Acuña said he will be "a little more cautious and careful" with his return from his second ACL surgery compared to the first one.`\
+https://nytimes.com/athletic/5797743/2024/09/26/braves-ronald-acuna-jr-ohtani-acl-surgery-update/
+
+**The Mayor Was Indicted. New Yorkers Had Jokes.**\
+`Mayor Eric Adams’s indictment quickly became fodder for memes and quips on social media.`\
+https://nytimes.com/2024/09/26/nyregion/nyc-mayor-indictment-jokes.html
+
 **The Tech Bro Style in American Politics**\
 `Why some billionaires are helping to promote political extremism.`\
 https://nytimes.com/2024/09/26/opinion/cryptocurrency-election-moreno-vance.html
