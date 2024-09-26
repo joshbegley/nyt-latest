@@ -1,3 +1,11 @@
+**Greenberg: Derrick Rose was Chicago's dream athlete and he won't be forgotten**\
+`Rose retired after a 16-year career that saw him ascend to the top before falling to the middle. No one owned their moment like him.`\
+https://nytimes.com/athletic/5796610/2024/09/26/derrick-rose-chicago-bulls-legacy/
+
+**Helene’s Storm Surge Could Break Records in Florida’s Big Bend Region**\
+`The surge could be 15 to 20 feet higher than normal tide levels, flooding dozens of communities along the Gulf Coast.`\
+https://nytimes.com/2024/09/26/weather/helene-hurricane-storm-surge.html
+
 **Put ‘Eat Dinner’ on Your Calendar**\
 `Ten-minute tofu, 15-minute fried rice and more recipes for when life overwhelms.`\
 https://nytimes.com/2024/09/26/dining/put-eat-dinner-on-your-calendar.html
