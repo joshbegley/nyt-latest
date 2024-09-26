@@ -1,3 +1,15 @@
+**Thursday Briefing: A Proposed Cease-Fire between Israel and Hezbollah**\
+`Plus, 3,600-year-old cheese.`\
+https://nytimes.com/2024/09/26/briefing/israel-hezbollah-trump-eric-adams.html
+
+**Five tactical takeaways from the Premier League's first five weekends**\
+`From West Ham United’s woes to Fulham’s flanks and a word from the xG gods – here's what we have spotted in the early games of the season`\
+https://nytimes.com/athletic/5793283/2024/09/26/premier-league-takeaways-five-games/
+
+**‘Deepfake’ Caller Poses as Ukrainian Official in Exchange With Key Senator**\
+`A figure impersonating Dmytro Kuleba, the former foreign minister of Ukraine, targeted Senator Benjamin L. Cardin, the chairman of the Foreign Relations Committee, over a Zoom call.`\
+https://nytimes.com/2024/09/26/us/senator-cardin-deepfake.html
+
 **Collier powers Lynx to WNBA semifinals with 42-point Game 2**\
 `Collier’s 42 set both her career-high and a franchise record in scoring for the second time in four days.`\
 https://nytimes.com/athletic/5795455/2024/09/26/lynx-mercury-game-2-result-napheesa-collier/
