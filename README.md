@@ -1,3 +1,7 @@
+**Hoda Kotb, Cheerful Fixture of NBC’s ‘Today’ Show, Says She Will Depart**\
+`Her exit, planned for early next year, is a seismic shift for NBC and opens up a pair of morning TV’s most coveted anchor chairs.`\
+https://nytimes.com/2024/09/26/business/media/hoda-kotb-today-show.html
+
 **‘We Are Not a Normal Company’: OpenAI’s Latest Drama**\
 `More high-level departures caught some at the high-flying A.I. start-up off guard, as the company seeks to raise billions to fund its operations and ambitious goals.`\
 https://nytimes.com/2024/09/26/business/dealbook/openais-altman-ai-murati.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5795845/2024/09/26/sf-giants-17-strikeouts-diamondb
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/09/26/weather/tropical-storm-isaac-hurricane/here-is-the-latest-on-the-storm
-
-**Pink squares and bubbles: Inside Joe Mazzulla's unconventional practice drills for Celtics**\
-`"Sometimes I think he does drills to literally f--- with us," says Sam Hauser. `\
-https://nytimes.com/athletic/5795090/2024/09/26/celtics-joe-mazzulla-coaching-drills/
 
