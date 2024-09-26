@@ -1,3 +1,7 @@
+**F.D.A. Approves the First New Schizophrenia Drug in Decades**\
+`Available antipsychotic treatments work by blocking dopamine receptors. The new drug, Cobenfy, takes a different approach.`\
+https://nytimes.com/2024/09/26/health/fda-schizophrenia-drug.html
+
 **Until Saturday: 2024's first game of the century, plus our Saturday viewer guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Finally, the Georgia-Alabama SEC top-five showdown is here.`\
 https://nytimes.com/athletic/5797116/2024/09/26/alabama-football-georgia-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5797630/2024/09/26/sun-fever-game-2-viewership-espn
 **With both cheers and angry chants, Oakland fans send off beloved A's in final home game**\
 `The fans celebrated the final A's game at the Oakland Coliseum all day, while making their displeasure at owner John Fisher known.  `\
 https://nytimes.com/athletic/5797738/2024/09/26/oakland-as-final-game-coliseum/
-
-**JD Vance to Address Major Republican Donors Just Before Debate**\
-`As part of his trip to New York City for the vice-presidential debate next week, Mr. Vance will speak to the American Opportunity Alliance, a network of major G.O.P. contributors.`\
-https://nytimes.com/2024/09/26/us/politics/jd-vance-aoa-speech-fundraising.html
 
