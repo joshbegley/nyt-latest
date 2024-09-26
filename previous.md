@@ -1,3 +1,7 @@
+**Does Michigan-Minnesota still matter? A 'valuable piece of pottery' keeps a rivalry alive**\
+`Michigan and Minnesota have been exchanging the Little Brown Jug since 1903. Big Ten expansion can't take that lore away.`\
+https://nytimes.com/athletic/5794134/2024/09/26/michigan-minnesota-rivalry-little-brown-jug/
+
 **Bengals' defensive line decline: Why a big investment is instead a big problem**\
 `Injuries and ineffectiveness have left Cincinnati with a glaring weakness that was paid to be a strength.`\
 https://nytimes.com/athletic/5795155/2024/09/26/bengals-defensive-line-decline/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/style/oakland-fans-last-dive-bar.html
 **Starting a New Chapter in the Twin Cities for Less Than $180,000**\
 `A recent retiree toured condos of all stripes in Minneapolis and St. Paul, looking for something he could get excited about. Here’s what he found.`\
 https://nytimes.com/interactive/2024/09/26/realestate/minnesota-one-bedroom-condo.html
-
-**A Hudson Valley Spot That Channels Japanese Listening Bars**\
-`Plus: floral glassware, a bed-and-breakfast in Crete and more recommendations from T Magazine.`\
-https://nytimes.com/2024/09/26/t-magazine/jesse-rowe-zebra-room.html
 

@@ -1,3 +1,7 @@
+**Does Michigan-Minnesota still matter? A 'valuable piece of pottery' keeps a rivalry alive**\
+`Michigan and Minnesota have been exchanging the Little Brown Jug since 1903. Big Ten expansion can't take that lore away.`\
+https://nytimes.com/athletic/5794134/2024/09/26/michigan-minnesota-rivalry-little-brown-jug/
+
 **Bengals' defensive line decline: Why a big investment is instead a big problem**\
 `Injuries and ineffectiveness have left Cincinnati with a glaring weakness that was paid to be a strength.`\
 https://nytimes.com/athletic/5795155/2024/09/26/bengals-defensive-line-decline/
