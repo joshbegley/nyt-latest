@@ -1,3 +1,7 @@
+**‘We Are Not a Normal Company’: OpenAI’s Latest Drama**\
+`More high-level departures caught some at the high-flying A.I. start-up off guard, as the company seeks to raise billions to fund its operations and ambitious goals.`\
+https://nytimes.com/2024/09/26/business/dealbook/openais-altman-ai-murati.html
+
 **Helene’s Intensification Has Been ‘Aggressive.’ Here’s Why.**\
 `Very warm ocean temperatures in the Gulf of Mexico provide fuel for an “aggressive intensification,” a hurricane expert said.`\
 https://nytimes.com/2024/09/24/weather/helene-storm-category.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/26/weather/tropical-storm-isaac-hurricane/here-
 **Pink squares and bubbles: Inside Joe Mazzulla's unconventional practice drills for Celtics**\
 `"Sometimes I think he does drills to literally f--- with us," says Sam Hauser. `\
 https://nytimes.com/athletic/5795090/2024/09/26/celtics-joe-mazzulla-coaching-drills/
-
-**Despite Foreign Pressure, Both Israel and Hezbollah Have Reasons to Reject a Truce**\
-`Hezbollah has repeatedly said it intends to continue fighting until there is a cease-fire in Gaza, while Israel wants the powerful Lebanese militia to pull back permanently from the border.`\
-https://nytimes.com/2024/09/26/world/middleeast/israel-hezbollah-cease-fire-reasons.html
 
