@@ -1,3 +1,7 @@
+**The Pulse: An NIL opt-out that could change college football**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5794623/2024/09/26/matthew-sluka-opt-out-nil-the-pulse/
+
 **My Oakland A’s story: Coliseum treasures, and the community we built to last**\
 `With the Oakland A's set to leave the Coliseum behind, what's the right way to say goodbye?`\
 https://nytimes.com/athletic/5794274/2024/09/26/oakland-as-move-las-vegas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5790621/2024/09/26/spanish-football-la-liga-late-ki
 **‘Rez Ball’ Review: Warriors on the Court**\
 `This inspirational sports movie follows a high school basketball team in New Mexico with deep Native American heritage.`\
 https://nytimes.com/2024/09/26/movies/rez-ball-review-warriors.html
-
-**Raiders' struggling O-line might soon turn to rookies Jackson Powers-Johnson, DJ Glaze**\
-`Amid injuries and poor veteran play, the Raiders could soon look to two rookies to stem the tide on the offensive line.`\
-https://nytimes.com/athletic/5794862/2024/09/26/raiders-offensive-line-jackson-powers-johnson-dj-glaze/
 

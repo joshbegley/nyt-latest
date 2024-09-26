@@ -1,3 +1,7 @@
+**The Pulse: An NIL opt-out that could change college football**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5794623/2024/09/26/matthew-sluka-opt-out-nil-the-pulse/
+
 **My Oakland A’s story: Coliseum treasures, and the community we built to last**\
 `With the Oakland A's set to leave the Coliseum behind, what's the right way to say goodbye?`\
 https://nytimes.com/athletic/5794274/2024/09/26/oakland-as-move-las-vegas/
