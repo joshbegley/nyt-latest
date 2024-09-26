@@ -1,3 +1,23 @@
+**Friday Briefing: New York City’s Mayor is Indicted**\
+`Plus, the control behind K-pop goes public.`\
+https://nytimes.com/2024/09/26/briefing/adams-indictment-netanyahu-election-interference.html
+
+**The Greatest City in the World, Some Really Lousy Mayors**\
+`You have to go way back to the days of the secular saint Fiorello La Guardia to come up with a New York mayor unencumbered by significant baggage.`\
+https://nytimes.com/2024/09/26/opinion/eric-adams-nyc-mayor.html
+
+**A's great Zito sings national anthem before final game in Oakland**\
+`First pitches were thrown out by two of Oakland's biggest legends, Rickey Henderson and Dave Stewart.`\
+https://nytimes.com/athletic/5797365/2024/09/26/barry-zito-national-anthem-athletics/
+
+**Helene Could Expose Deeper Flaws in Florida’s Insurance Market**\
+`Catastrophic storms have crippled the state’s home insurance market in the past, and some researchers say it is dangerously vulnerable.`\
+https://nytimes.com/2024/09/26/climate/hurricane-helene-florida-insurance.html
+
+**Biden Administration Set to Make Asylum Limits More Permanent**\
+`The change will make what had been a short-term fix, which appears to have led to a drop in border crossings, a central feature of the asylum system.`\
+https://nytimes.com/2024/09/26/us/politics/biden-asylum-border.html
+
 **Do Sassy, Jane and xoJane Mean Anything to You?**\
 `Jane Pratt, one of the most influential editors of the last few decades, returns to media with her aptly titled project Another Jane Pratt Thing.`\
 https://nytimes.com/2024/09/26/style/do-sassy-jane-and-xojane-mean-anything-to-you.html

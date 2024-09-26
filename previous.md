@@ -1,3 +1,23 @@
+**Friday Briefing: New York City’s Mayor is Indicted**\
+`Plus, the control behind K-pop goes public.`\
+https://nytimes.com/2024/09/26/briefing/adams-indictment-netanyahu-election-interference.html
+
+**The Greatest City in the World, Some Really Lousy Mayors**\
+`You have to go way back to the days of the secular saint Fiorello La Guardia to come up with a New York mayor unencumbered by significant baggage.`\
+https://nytimes.com/2024/09/26/opinion/eric-adams-nyc-mayor.html
+
+**A's great Zito sings national anthem before final game in Oakland**\
+`First pitches were thrown out by two of Oakland's biggest legends, Rickey Henderson and Dave Stewart.`\
+https://nytimes.com/athletic/5797365/2024/09/26/barry-zito-national-anthem-athletics/
+
+**Helene Could Expose Deeper Flaws in Florida’s Insurance Market**\
+`Catastrophic storms have crippled the state’s home insurance market in the past, and some researchers say it is dangerously vulnerable.`\
+https://nytimes.com/2024/09/26/climate/hurricane-helene-florida-insurance.html
+
+**Biden Administration Set to Make Asylum Limits More Permanent**\
+`The change will make what had been a short-term fix, which appears to have led to a drop in border crossings, a central feature of the asylum system.`\
+https://nytimes.com/2024/09/26/us/politics/biden-asylum-border.html
+
 **Do Sassy, Jane and xoJane Mean Anything to You?**\
 `Jane Pratt, one of the most influential editors of the last few decades, returns to media with her aptly titled project Another Jane Pratt Thing.`\
 https://nytimes.com/2024/09/26/style/do-sassy-jane-and-xojane-mean-anything-to-you.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/26/us/politics/kamala-harris-interviews-campaign.htm
 **Lawsuit filed over Ohtani's 50th home run ball**\
 `The lawsuit disputed who rightfully possessed the baseball after it landed in the stands.`\
 https://nytimes.com/athletic/5797317/2024/09/26/shohei-ohtani-home-run-baseball-lawsuit/
-
-**Ducks' Gibson undergoes appendectomy: Is Dostál ready for a bigger role?**\
-`Anaheim Ducks goalie John Gibson underwent an appendectomy on Wednesday night, a team spokesperson confirmed to The Athletic on Thursday, and the procedure might put his availability for the start of the season in jeopardy.`\
-https://nytimes.com/athletic/5797455/2024/09/26/john-gibson-appendectomy-ducks/
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/09/26/books/review/new-books-recommendations.html
-
-**Mayor Adams Should Resign**\
-`The federal indictment reveals how the city’s leader repeatedly failed in his duty to uphold the public trust.`\
-https://nytimes.com/2024/09/26/opinion/eric-adams-indictment-resign.html
-
-**Kamala Harris’s Campaign Thinks She Can Win on the Economy. Here’s How.**\
-`Harris advisers point to a number of brightening public polls showing that Donald Trump’s lead is eroding on the critical question of whom voters trust most on the economy.`\
-https://nytimes.com/2024/09/26/us/politics/trump-harris-economy.html
-
-**What I'm seeing from Penguins: Graves' start, Karlsson injury update**\
-`Graves has to show his coach and GM he's worthy of a top-four spot, and soon.`\
-https://nytimes.com/athletic/5797390/2024/09/26/penguins-erik-karlsson-injury-update/
 
