@@ -1,3 +1,7 @@
+**The Tech Bro Style in American Politics**\
+`Why some billionaires are helping to promote political extremism.`\
+https://nytimes.com/2024/09/26/opinion/cryptocurrency-election-moreno-vance.html
+
 **The mayor’s public defense has leaned on conspiracy theories and race.**\
 `By Jeffery C. Mays`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/the-mayors-public-defense-has-leaned-on-conspiracy-theories-and-race

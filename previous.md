@@ -1,3 +1,7 @@
+**The Tech Bro Style in American Politics**\
+`Why some billionaires are helping to promote political extremism.`\
+https://nytimes.com/2024/09/26/opinion/cryptocurrency-election-moreno-vance.html
+
 **The mayor’s public defense has leaned on conspiracy theories and race.**\
 `By Jeffery C. Mays`\
 https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/the-mayors-public-defense-has-leaned-on-conspiracy-theories-and-race
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009724125/hurricane-helene-florida.html
 **The Story of the African Diaspora, Told Through Its Fashions**\
 `By examining the work of designers of African descent, a new exhibition in Manhattan finds common threads and, more interestingly, divergences.`\
 https://nytimes.com/2024/09/26/style/africa-fashion-diaspora-museum-at-fit.html
-
-**Pope Punishes Members of Catholic Group in Peru After Vatican Investigation**\
-`The Vatican expelled 10 members from Sodalitium Christianae Vitae, a group founded in Peru, after investigators reported cases of physical abuse and cultlike control.`\
-https://nytimes.com/2024/09/26/world/europe/pope-peru-sodalitium.html
 
