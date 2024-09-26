@@ -1,3 +1,11 @@
+**Ron Washington says he 'misspoke' in sharp criticism of his team's talent**\
+`The Angels entered Thursday at 63-95. The loss total ties the most in franchise history with four games left to play. `\
+https://nytimes.com/athletic/5797327/2024/09/26/angels-ron-washington-comments/
+
+**Mountain West secures commitment from 6 remaining full members**\
+`The agreement needed six signatories to be official, including Air Force and UNLV. Hawaii, a football-only member, has not yet signed.`\
+https://nytimes.com/athletic/5797357/2024/09/26/mountain-west-commitment-members/
+
 **Newsmax and Smartmatic Settle Defamation Case Over 2020 Election**\
 `Jury selection in the case began on Thursday morning, and the trial had been expected to take up to four weeks.`\
 https://nytimes.com/2024/09/26/business/media/newsmax-smartmatic-defamation-suit.html
