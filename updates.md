@@ -1,3 +1,15 @@
+**Holy Hollywood! Batman Is the First Superhero With a Walk of Fame Star.**\
+`The caped crusader, who debuted in 1939, joins other illustrious figures — including Adam West, the actor who played him on TV.`\
+https://nytimes.com/2024/09/26/arts/batman-hollywood-star.html
+
+**'Holy Grails' auction takes trading cards to high society**\
+`Sotheby's and Fanatics' inaugural auction together brought out the stars and their checkbooks. `\
+https://nytimes.com/athletic/5796816/2024/09/26/holy-grails-fanatics-sothebys-cards/
+
+**Poor Health Care Underlines Array of Problems at Major Transit Point for Prisoners**\
+`Among the most alarming findings by the Justice Department’s watchdog: the decision to discontinue antidepressant medication for 15 inmates, without consulting or examining the patients.`\
+https://nytimes.com/2024/09/26/us/politics/federal-prison-lewisburg-health-care-problems.html
+
 **Searching for a Family Feast in Senegal That Tastes Like Home**\
 `I crossed the ocean to savor a new twist on a childhood favorite.`\
 https://nytimes.com/interactive/2024/09/26/magazine/senegal-poulet-yassa.html
