@@ -1,3 +1,7 @@
+**Red Sox eliminated from postseason for third straight year: 'We blew it'**\
+`“At one point it felt like we were a playoff-caliber team, and then we missed the opportunity." The Red Sox postseason drought continues.`\
+https://nytimes.com/athletic/5795354/2024/09/25/red-sox-elimination-2024/
+
 **Caitlin Clark grades her rookie season as 'solid' after playoff exit**\
 `"Championships are great, hopefully we have a few of those, but you want to have really good relationships with people."`\
 https://nytimes.com/athletic/5795293/2024/09/25/caitlin-clark-rookie-season-indiana-fever/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5795104/2024/09/25/usc-bear-alexander-redshirt-tran
 **What Happens if Mayor Eric Adams Resigns?**\
 `New York City’s public advocate, Jumaane Williams, would become acting mayor. He would schedule a nonpartisan special election for a new mayor, which could take place within 90 days.`\
 https://nytimes.com/2024/09/25/nyregion/jumaane-williams-nyc-acting-mayor.html
-
-**3 Takeaways From Kamala Harris’s Interview on MSNBC**\
-`In her first one-on-one cable TV interview since becoming the nominee, the vice president repeatedly dodged direct questions and stuck firmly on message.`\
-https://nytimes.com/2024/09/25/us/politics/kamala-harris-msnbc-interview-takeaways.html
 

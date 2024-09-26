@@ -1,3 +1,7 @@
+**Red Sox eliminated from postseason for third straight year: 'We blew it'**\
+`“At one point it felt like we were a playoff-caliber team, and then we missed the opportunity." The Red Sox postseason drought continues.`\
+https://nytimes.com/athletic/5795354/2024/09/25/red-sox-elimination-2024/
+
 **Caitlin Clark grades her rookie season as 'solid' after playoff exit**\
 `"Championships are great, hopefully we have a few of those, but you want to have really good relationships with people."`\
 https://nytimes.com/athletic/5795293/2024/09/25/caitlin-clark-rookie-season-indiana-fever/
