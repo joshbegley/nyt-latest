@@ -1,3 +1,11 @@
+**Sharpton declines to defend Adams and asks Black leaders to meet.**\
+`The Rev. Al Sharpton raised concerns that Mayor Eric Adams’s attempts to defend himself could hurt other Black leaders, like Vice President Kamala Harris.`\
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/sharpton-declines-to-defend-adams-and-asks-black-leaders-to-meet
+
+**Angels' Ron Washington says he 'misspoke' in sharp criticism of his team's talent**\
+`"I didn't mean it the way it came out, where I'm saying the organization isn't giving me big-league players,” Washington said.`\
+https://nytimes.com/athletic/5797341/2024/09/26/angels-ron-washington-misspoke-criticism/
+
 **Sabres name Rasmus Dahlin captain**\
 `The Sabres have been looking for stable leadership, and Dahlin has a chance to become that person.`\
 https://nytimes.com/athletic/5797238/2024/09/26/rasmus-dahlin-buffalo-sabres-captain/
