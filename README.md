@@ -1,3 +1,7 @@
+**The Mets-Braves schedule is a mess of everyone's making: Ghiroli**\
+`MLB has the power to force logistics, to force both teams to play when and where it wants, so long as the union is in agreement.`\
+https://nytimes.com/athletic/5795093/2024/09/25/mets-braves-weather-delay/
+
 **Jhumpa Lahiri Declines a Noguchi Museum Award Over a Ban on Kaffiyehs**\
 `The museum said the Pulitzer Prize-winning author withdrew her acceptance after it fired staff members for wearing clothing expressing political views.`\
 https://nytimes.com/2024/09/25/arts/design/jhumpa-lahiri-noguchi-award.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/world/middleeast/israel-hezbollah-lebanon.html
 **Investigators Trace Former Police Commissioner’s Ties to Nightclubs**\
 `Police officers have been asked for communications that would show that rewards were offered for favorable treatment of night spots, said a person familiar with the investigation.`\
 https://nytimes.com/2024/09/25/nyregion/nypd-commissioner-night-clubs.html
-
-**Vikings great Tommy Kramer reveals dementia diagnosis**\
-`Kramer said he decided to go public after Brett Favre shared Tuesday he was diagnosed with Parkinson's disease.`\
-https://nytimes.com/athletic/5794839/2024/09/25/vikings-tommy-kramer-dementia-diagnosis/
 
