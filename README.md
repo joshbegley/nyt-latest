@@ -1,3 +1,7 @@
+**Suicides Using Guns Have Grown More Common Among U.S. Women**\
+`New C.D.C. data show that firearms remain the leading means of suicide for both men and women.`\
+https://nytimes.com/2024/09/26/well/mind/suicide-guns-women.html
+
 **Daniel Ricciardo deserved a proper F1 farewell, not his awkward Singapore goodbye**\
 `F1 can be ruthless. But for someone who has put so much into being more than just another F1 driver, Daniel Ricciardo deserved better.`\
 https://nytimes.com/athletic/5796515/2024/09/26/daniel-ricciardo-red-bull-f1-goodbye-singapore/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/5796713/2024/09/26/steven-reid-forest-exit/
 `It is the low point of a failed mayoralty.`\
 https://nytimes.com/2024/09/26/opinion/indictment-nyc-mayor-adams.html
 
-**Kings’ Doughty suffers apparent leg injury: What comes next**\
+**Kings’ Doughty suffers ankle fracture: What comes next**\
 `Doughty left the Kings' preseason game against Vegas on Wednesday night in pain.`\
 https://nytimes.com/athletic/5796809/2024/09/26/drew-doughty-injury-kings/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5793285/2024/09/26/st-pauli-stadium-cooperative/
 **Israel’s forces still have the resources to invade Lebanon, despite Gaza war, analysts say.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/israels-forces-still-have-the-resources-to-invade-lebanon-despite-gaza-war-analysts-say
-
-**Review: Philadelphia’s BalletX Shows Variety but Little Depth**\
-`The company brought three New York premieres to the Joyce Theater.`\
-https://nytimes.com/2024/09/26/arts/review-balletx-joyce-theater.html
 
