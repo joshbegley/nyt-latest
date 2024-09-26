@@ -1,3 +1,15 @@
+**Cheap Flights and Deleted Texts: 10 Takeaways From the Adams Indictment**\
+`The indictment against Mayor Eric Adams includes vignettes that range from the amusing to the horrifying.`\
+https://nytimes.com/2024/09/26/nyregion/nyc-mayor-eric-adams-indictment-takeaways.html
+
+**The mayor was indicted. New Yorkers had jokes.**\
+`Memes and jokes have run rampant since news broke of Mayor Eric Adams’s indictment of charges of bribery and fraud.`\
+https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/the-mayor-was-indicted-new-yorkers-had-jokes
+
+**Hurricane Helene Expected to Make Landfall Tonight**\
+`Helene is expected to bring record-breaking storm surges that will inundate communities along the Gulf Coast and bring rain and flooding to cities across the Southeast.`\
+https://nytimes.com/video/us/100000009724125/hurricane-helene-florida.html
+
 **The Story of the African Diaspora, Told Through Its Fashions**\
 `By examining the work of designers of African descent, a new exhibition in Manhattan finds common threads and, more interestingly, divergences.`\
 https://nytimes.com/2024/09/26/style/africa-fashion-diaspora-museum-at-fit.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/26/us/politics/jd-vance-aoa-speech-fundraising.html
 **U.S. runs out to dominant Presidents Cup Day 1 lead**\
 `The Americans won the opening session 5-0, with Scottie Scheffler and Keegan Bradley providing the fireworks.`\
 https://nytimes.com/athletic/5797568/2024/09/26/presidents-cup-2024-us-international-day-1/
-
-**Mayor Adams, Confronted With Detailed Graft Charges, Says He Won’t Quit**\
-`Mr. Adams accepted free airline tickets, lavish overseas accommodations and illegal foreign campaign donations, prosecutors said. He denied the charges.`\
-https://nytimes.com/2024/09/26/nyregion/mayor-adams-confronted-with-detailed-graft-charges-says-he-wont-quit.html
-
-**No, Saturday isn't Penn State's White Out. But it might look like it**\
-`No. 9 Penn State will host No. 19 Illinois on Saturday in one of the marquee night games at hosted at Beaver Stadium this season. `\
-https://nytimes.com/athletic/5797547/2024/09/26/penn-state-illinois-white-out-college-football/
-
-**Biden Signs Stopgap Spending Measure to Keep Government Open**\
-`The bill averts a campaign-season shutdown but ensures another spending fight in Congress during its lame-duck session in December.`\
-https://nytimes.com/2024/09/26/us/politics/biden-spending-bill-shutdown.html
 
