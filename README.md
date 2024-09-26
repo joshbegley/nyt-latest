@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5795845/2024/09/26/sf-giants-17-strikeouts-diamondb
 
 **Here is the latest on the storm.**\
 `By Judson Jones`\
-https://nytimes.com/2024/09/26/weather/here-is-the-latest-on-the-storm.html
+https://nytimes.com/live/2024/09/26/weather/tropical-storm-isaac-hurricane/here-is-the-latest-on-the-storm
 
 **Pink squares and bubbles: Inside Joe Mazzulla's unconventional practice drills for Celtics**\
 `"Sometimes I think he does drills to literally f--- with us," says Sam Hauser. `\
