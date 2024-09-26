@@ -1,3 +1,19 @@
+**As Adams Faces Calls to Resign, Jumaane Williams May Play a Pivotal Role**\
+`Mr. Williams, New York City’s public advocate, would become acting mayor if Eric Adams resigns. He says he is prepared for that moment.`\
+https://nytimes.com/2024/09/26/nyregion/jumaane-williams-mayor-adams.html
+
+**A Plan to Fund High School Newspapers Seeks to Revive Student Journalism**\
+`Just 27 percent of public high schools in New York City have a newspaper. A local nonprofit is offering a solution.`\
+https://nytimes.com/2024/09/26/nyregion/nyc-high-school-journalism.html
+
+**Bowling, Billiards and Emergency Brakes: Inside the Tram Olympics**\
+`Amelia Nierenberg recently traveled to Frankfurt to report on an annual competition between the captains of some of Europe’s sleekest public transit systems.`\
+https://nytimes.com/2024/09/26/insider/tram-competition.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/26/crosswords/spelling-bee-forum.html
+
 **Liverpool's six forwards are flexing their muscles - Slot is spoilt for choice**\
 `Jota, Gakpo, Salah, Diaz, Nunez and now Chiesa - Liverpool's forward line are pushing each on. Slot has options aplenty in attack`\
 https://nytimes.com/athletic/5795195/2024/09/26/liverpool-forwards-jota-gakpo-salah-nunez-diaz-chiesa/
