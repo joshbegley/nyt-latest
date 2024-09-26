@@ -1,6 +1,6 @@
 **House Condemns Biden and Harris Over Afghanistan Withdrawal**\
 `Ten Democrats joined the G.O.P.-led effort to rebuke 15 senior members of the Biden administration for the failures of the Afghanistan withdrawal in a symbolic vote.`\
-https://nytimes.com/2024/09/25/us/politics/house-condemnaton-afghanistan-withdrawal.html
+https://nytimes.com/2024/09/25/us/politics/house-biden-harris-afghanistan-withdrawal.html
 
 **USC's Bear Alexander intends to redshirt: Source**\
 `The former five-star prospect did not start any of the Trojans' first three games but did play significant snaps against LSU and Michigan. `\
@@ -22,7 +22,7 @@ https://nytimes.com/2024/09/25/nyregion/eric-adams-indictment-timeline.html
 `By William K. Rashbaum, Dana Rubinstein, Michael Rothfeld and Matthew Haag`\
 https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/heres-the-latest-on-the-mayors-indictment
 
-**Eric Adams is indicted following a federal corruption investigation.**\
+**Eric Adams Is Indicted After Federal Corruption Investigation**\
 `The indictment makes Mr. Adams the first sitting mayor of New York City to be criminally charged.`\
 https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/eric-adams-indicted
 
