@@ -1,3 +1,7 @@
+**Many Who Used to Stay Put Are Leaving for Helene**\
+`More residents who live near the coast are taking the warnings of storm surge seriously and evacuating to inland areas.`\
+https://nytimes.com/2024/09/26/us/hurricane-helene-forecast-evacuations.html
+
 **A Brief History of Ethical Concerns Involving Eric Adams**\
 `The mayor has been investigated repeatedly during his two decades in politics.`\
 https://nytimes.com/2024/09/26/nyregion/eric-adams-investigations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/opinion/parenting-kids.html
 **5 Moments of Joy From Hoda Kotb’s Run on ‘Today’**\
 `The morning show host announced that she’s stepping down after more than 25 years at NBC filled with laughter, tears and the occasional glass of wine.`\
 https://nytimes.com/2024/09/26/style/hoda-kotb-today-memorable-moments.html
-
-**A Rosh Hashana Dish Keeps the Memory of Home**\
-`Legumbres para rosana, a dish of Spanish Moroccan origin, is a delicious reminder of a family’s journey.`\
-https://nytimes.com/2024/09/26/dining/rosh-hashana-recipe.html
 
