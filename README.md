@@ -1,3 +1,31 @@
+**Searching for a Family Feast in Senegal That Tastes Like Home**\
+`I crossed the ocean to savor a new twist on a childhood favorite.`\
+https://nytimes.com/interactive/2024/09/26/magazine/senegal-poulet-yassa.html
+
+**How to Cure My Sex Drive? Dive for Sea Urchins.**\
+`It’s reputed to be an aphrodisiac. To get a potent bite, I learned how to pry them fresh from the ocean.`\
+https://nytimes.com/interactive/2024/09/26/magazine/sea-urchin-sex-drive.html
+
+**Hunting for One of the World’s Most Exquisite Peppers**\
+`A trip to Peru in search of the essence of ají amarillo.`\
+https://nytimes.com/interactive/2024/09/26/magazine/aji-amarillo-pepper-peru.html
+
+**Wok Hei Is Vanishing From Hong Kong. My Mom Wanted to Taste It Again.**\
+`My mom grew up with the signature flavor of the city’s outdoor food stalls. It won’t be around much longer.`\
+https://nytimes.com/interactive/2024/09/26/magazine/hong-kong-dai-pai-dong.html
+
+**Was It the Best Gelato I’d Ever Had Because I’d Just Survived a Brain Tumor?**\
+`A trip to the Amalfi Coast (and down memory lane) in search of the truth about a dessert I’ve never forgotten.`\
+https://nytimes.com/interactive/2024/09/26/magazine/gelato-southern-italy.html
+
+**Our Son Hates Eggs. Could a Dozen French Chefs Change That?**\
+`A trip to Paris in search of one magical bite that would cure a picky eater.`\
+https://nytimes.com/interactive/2024/09/26/magazine/paris-eggs.html
+
+**Food Voyages**\
+`Six journeys in search of a single bite.`\
+https://nytimes.com/interactive/2024/09/26/magazine/food-voyages.html
+
 **Crunchtime for Election Interference: October Is the Month of Mischief**\
 `U.S. officials are stepping up their warnings about foreign interference in the election, focused on three main adversaries: Russia, China and Iran.`\
 https://nytimes.com/2024/09/26/us/politics/crunchtime-for-election-interference-october-is-the-month-of-mischief.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/09/26/us/politics/republican-national-committee-2024-po
 **‘The Queen of the Villains’ Is a Complex Japanese Wrestling Drama**\
 `The five-part Netflix series tells the story of a female wrestler in the 1980s who might have gone a little too deep into character.`\
 https://nytimes.com/2024/09/26/arts/television/the-queen-of-the-villains-netflix.html
-
-**Task Force on Trump Assassination Attempts Sinks Into Partisanship**\
-`Democrats walked out on a committee hearing after Republicans called two of their own members who have nudged conspiracy theories as witnesses.`\
-https://nytimes.com/2024/09/26/us/politics/trump-assassination-attempts-task-force.html
-
-**What’s Going On in This Graph? | Oct. 9, 2024**\
-`How are the candidates’ career timelines similar? How are they different?`\
-https://nytimes.com/2024/09/26/learning/whats-going-on-in-this-graph-oct-9-2024.html
-
-**Lloyd Macklowe, Leading Purveyor of Art Nouveau, Is Dead at 90**\
-`He and his wife began buying pieces to furnish their apartment. They wound up with a museum-quality collection and a pre-eminent retail business.`\
-https://nytimes.com/2024/09/26/arts/lloyd-macklowe-dead.html
-
-**Many Who Used to Stay Put in Florida’s Coastal Areas Are Leaving for Helene**\
-`More residents who live in the Big Bend region near the coast are taking the warnings of storm surge seriously and evacuating to places inland.`\
-https://nytimes.com/2024/09/26/us/hurricane-helene-forecast-evacuations.html
-
-**A Brief History of Ethical Concerns Involving Eric Adams**\
-`The mayor has been investigated repeatedly during his two decades in politics.`\
-https://nytimes.com/2024/09/26/nyregion/eric-adams-investigations.html
-
-**What’s Going On in This Picture? | Sept. 30, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/09/26/learning/whats-going-on-in-this-picture-sept-30-2024.html
-
-**Greenberg: Derrick Rose was Chicago's dream athlete and he won't be forgotten**\
-`Rose retired after a 16-year career that saw him ascend to the top before falling to the middle. No one owned their moment like him.`\
-https://nytimes.com/athletic/5796610/2024/09/26/derrick-rose-chicago-bulls-legacy/
 
