@@ -1,3 +1,7 @@
+**Before Helene’s Landfall, Bicycles Ruled the Road on Florida’s Gulf Coast**\
+`Several residents in the region have relied on pedal power to get around as the storm approached on Thursday.`\
+https://nytimes.com/2024/09/26/weather/helene-bicycles-florida-gulf-coast.html
+
 **The Teamsters President Pays a Price for Not Endorsing Harris**\
 `The revolt within the union continues to grow.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/teamsters-obrien-endorse-harris
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/arts/batman-hollywood-star.html
 **'Holy Grails' auction takes trading cards to high society**\
 `Sotheby's and Fanatics' inaugural auction together brought out the stars and their checkbooks. `\
 https://nytimes.com/athletic/5796816/2024/09/26/holy-grails-fanatics-sothebys-cards/
-
-**Poor Health Care Underlines Array of Problems at Major Transit Point for Prisoners**\
-`Among the most alarming findings by the Justice Department’s watchdog: the decision to discontinue antidepressant medication for 15 inmates, without consulting or examining the patients.`\
-https://nytimes.com/2024/09/26/us/politics/federal-prison-lewisburg-health-care-problems.html
 
