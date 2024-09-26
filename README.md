@@ -1,3 +1,7 @@
+**New Data Finds Sharper Economic Rebound From Pandemic**\
+`Updated figures show that gross domestic product, adjusted for inflation, grew faster in 2021, 2022 and early 2023 than reported earlier.`\
+https://nytimes.com/2024/09/26/business/economy/economy-pandemic-rebound-gdp.html
+
 **Premier League partner Sorare to appear in court over UK Gambling Commission charge**\
 `Sorare, an official partner of the Premier League, has been charged by the UK Gambling Commission with allegedly “providing unlicensed gambling facilities to consumers in Britain”.`\
 https://nytimes.com/athletic/5796141/2024/09/26/sorare-premier-league-charge-gambling/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794267/2024/09/26/la-kings-depth-chart-lineup/
 **Browns O-line overview as uncertainty looms ahead of Week 4 matchup vs. Raiders**\
 `With Wyatt Teller placed on IR and other injuries to players up front, we take a look at the team's full O-line, from starters to backups. `\
 https://nytimes.com/athletic/5794786/2024/09/26/browns-offensive-line-injuries/
-
-**A 17-strikeout game in Arizona allows Giants to ponder how their offense fell short**\
-`The Giants would do well to study and emulate how the Diamondbacks compete at the plate.`\
-https://nytimes.com/athletic/5795845/2024/09/26/sf-giants-17-strikeouts-diamondbacks/
 
