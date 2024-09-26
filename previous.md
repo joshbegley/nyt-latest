@@ -1,3 +1,7 @@
+**Democrats Need Jon Tester to Defy the Odds Again**\
+`Control of the Senate could turn on Montana.`\
+https://nytimes.com/2024/09/26/us/politics/jon-tester-montana-election.html
+
 **Inside the Intimate U.N. Dinner Party at Eleven Madison Park**\
 `Celebrities including Pharrell Williams and Forest Whitaker ate plant-based dishes (and admired the kitchen) during an event to toast UNESCO, the U.N. cultural agency.`\
 https://nytimes.com/2024/09/26/style/unesco-daniel-humm-eleven-madison-park.html
@@ -31,10 +35,6 @@ https://nytimes.com/2024/09/26/health/fda-schizophrenia-drug.html
 https://nytimes.com/athletic/5797116/2024/09/26/alabama-football-georgia-until-saturday/
 
 **Cheap Flights and Deleted Texts: 10 Takeaways From the Adams Indictment**\
-`The indictment against Mayor Eric Adams includes vignettes that range from the amusing to the horrifying.`\
+`The indictment against Mayor Eric Adams includes revelations that range from the amusing to the horrifying.`\
 https://nytimes.com/2024/09/26/nyregion/nyc-mayor-eric-adams-indictment-takeaways.html
-
-**The Mayor Was Indicted. New Yorkers Had Jokes.**\
-`Mayor Eric Adams’s indictment quickly became fodder for memes and quips on social media.`\
-https://nytimes.com/2024/09/26/nyregion/nyc-mayor-indictment-jokes.html
 

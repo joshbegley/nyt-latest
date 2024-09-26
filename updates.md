@@ -1,3 +1,11 @@
+**Democrats Need Jon Tester to Defy the Odds Again**\
+`Control of the Senate could turn on Montana.`\
+https://nytimes.com/2024/09/26/us/politics/jon-tester-montana-election.html
+
+**Cheap Flights and Deleted Texts: 10 Takeaways From the Adams Indictment**\
+`The indictment against Mayor Eric Adams includes revelations that range from the amusing to the horrifying.`\
+https://nytimes.com/2024/09/26/nyregion/nyc-mayor-eric-adams-indictment-takeaways.html
+
 **Braves star Ronald Acuña Jr. on Shohei Ohtani's feats and return from second ACL surgery**\
 `Acuña said he will be "a little more cautious and careful" with his return from his second ACL surgery compared to the first one.`\
 https://nytimes.com/athletic/5797743/2024/09/26/braves-ronald-acuna-jr-ohtani-acl-surgery-update/
