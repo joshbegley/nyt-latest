@@ -1,3 +1,7 @@
+**Sun eliminate Fever to end Caitlin Clark's rookie season**\
+`Connecticut may not have been the team that struck first, but the Sun recovered soon enough in a 87-81 win over the Fever.`\
+https://nytimes.com/athletic/5795264/2024/09/25/caitlin-clark-fever-sun-wnba-playoffs/
+
 **House Condemns Biden and Harris Over Afghanistan Withdrawal**\
 `Ten Democrats joined the G.O.P.-led effort to rebuke 15 senior members of the Biden administration for the failures of the Afghanistan withdrawal in a symbolic vote.`\
 https://nytimes.com/2024/09/25/us/politics/house-biden-harris-afghanistan-withdrawal.html
@@ -24,7 +28,7 @@ https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/here
 
 **Eric Adams Is Indicted After Federal Corruption Investigation**\
 `The indictment makes Mr. Adams the first sitting mayor of New York City to be criminally charged.`\
-https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/eric-adams-indicted
+https://nytimes.com/2024/09/25/nyregion/eric-adams-indicted.html
 
 **Phillies clinch first-round bye in playoffs, hold tiebreakers for No. 1 seed**\
 `Now, the Phillies know this: They will not play a postseason game until Oct. 5.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5795154/2024/09/25/phillies-first-round-bye-mlb-pla
 **Craig Breslow on the Red Sox season, rotation, trades, prospects and more**\
 `The Red Sox, among other options, could look to their position player prospect pipeline for trade chips in a deal for a frontline starter.`\
 https://nytimes.com/athletic/5795091/2024/09/25/craig-breslow-red-sox-season-assessment/
-
-**Rep. Clay Higgins Posts, Then Deletes, Racist Comments About Haitians**\
-`False claims about migrants in Springfield, Ohio, who are legal residents, became a campaign issue after Donald J. Trump brought them up at the presidential debate this month.`\
-https://nytimes.com/2024/09/25/us/politics/clay-higgins-haitians-springfield-ohio.html
 
