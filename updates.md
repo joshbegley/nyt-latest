@@ -1,3 +1,11 @@
+**Lloyd Macklowe, Leading Purveyor of Art Nouveau, Is Dead at 90**\
+`He and his wife began buying pieces to furnish their apartment. They wound up with a museum-quality collection and a pre-eminent retail business.`\
+https://nytimes.com/2024/09/26/arts/lloyd-macklowe-dead.html
+
+**Many Who Used to Stay Put in Florida’s Coastal Areas Are Leaving for Helene**\
+`More residents who live in the Big Bend region near the coast are taking the warnings of storm surge seriously and evacuating to places inland.`\
+https://nytimes.com/2024/09/26/us/hurricane-helene-forecast-evacuations.html
+
 **Many Who Used to Stay Put Are Leaving for Helene**\
 `More residents who live near the coast are taking the warnings of storm surge seriously and evacuating to inland areas.`\
 https://nytimes.com/2024/09/26/us/hurricane-helene-forecast-evacuations.html
