@@ -1,3 +1,15 @@
+**Acadia Hospitals Reach $20 Million Settlement With Justice Dept.**\
+`The F.B.I. is also investigating the large chain of psychiatric hospitals for holding patients longer than what is medically necessary.`\
+https://nytimes.com/2024/09/26/health/acadia-doj-settlement-fbi.html
+
+**Years After Being ‘Fired,’ They’ve Unloaded Their Trump Media Stock**\
+`Two former “Apprentice” contestants who helped found Truth Social have sold their nearly 6 percent stake in Trump Media & Technology Group.`\
+https://nytimes.com/2024/09/26/business/truth-social-trump-media-stock-sale.html
+
+**Britain’s leader calls on Israel and Hezbollah to ‘step back from the brink.’**\
+`By Megan Specia`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/britains-leader-calls-on-israel-and-hezbollah-to-step-back-from-the-brink
+
 **A Gotti Grandson Pleads Guilty to Covid Relief Fraud**\
 `A U.S. attorney said that Carmine G. Agnello had “shamefully” used the pandemic “as an opportunity to line his pockets.”`\
 https://nytimes.com/2024/09/26/nyregion/gotti-grandson-guilty-plea.html
@@ -6,9 +18,9 @@ https://nytimes.com/2024/09/26/nyregion/gotti-grandson-guilty-plea.html
 `Former President Donald J. Trump will hold an indoor rally in Wisconsin on Saturday. The Secret Service had raised concerns about securing the outdoor rally initially planned, according to a senior official with the agency.`\
 https://nytimes.com/2024/09/26/us/politics/trump-campaign-secret-service.html
 
-**Just how nice is Turkish Airlines’s Business Class?**\
-`By Christine Chung`\
-https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/just-how-nice-is-turkish-airliness-business-class
+**Just how nice is Business Class on Turkish Airlines?**\
+`Turkish Airlines, the professed favorite of Mayor Eric Adams, features a business class that has plush, lie-flat seats and multiple course meals served on porcelain tableware.`\
+https://nytimes.com/2024/09/26/nyregion/just-how-nice-is-turkish-airliness-business-class.html
 
 **Even Many Hurricane Veterans Were Leaving Florida’s Big Bend Ahead of Helene**\
 `The region has endured two other hurricanes recently, but many more people appeared to be evacuating this time, leaving their small coastal towns eerily empty.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/26/us/politics/us-intelligence-stresses-risks-in-all
 **Scenes From Florida as Hurricane Helene Approaches**\
 `The storm is expected to make landfall on the state’s gulf coast on Thursday evening as a Category 4 hurricane.`\
 https://nytimes.com/2024/09/26/us/hurricane-helene-florida-photos-videos.html
-
-**After LAFC's win, the 2025 U.S. Open Cup format could be finalized in 'weeks, not months'**\
-`With the final complete, talks are already underway for the format of the 2025 U.S. Open Cup. `\
-https://nytimes.com/athletic/5797535/2024/09/26/us-open-cup-mls-ussf-usl-tournament/
-
-**White House thought Israel was ‘on board’ with a proposed 3-week cease-fire in Lebanon.**\
-`The belief that Israel was willing to agree to a three-week pause in the fighting was shaken on Thursday morning, when Prime Minister Benjamin Netanyahu appeared to dismiss the idea.`\
-https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/white-house-thought-israel-was-on-board-with-a-proposed-3-week-cease-fire-in-lebanon
-
-**Production Linked to Neil Gaiman Is Halted Amid Sexual Assault Claims**\
-`The British author of dozens of literary works has denied the allegations that five women made against him on a podcast series.`\
-https://nytimes.com/2024/09/26/business/neil-gaiman-allegations.html
 

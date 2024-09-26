@@ -1,3 +1,19 @@
+**Acadia Hospitals Reach $20 Million Settlement With Justice Dept.**\
+`The F.B.I. is also investigating the large chain of psychiatric hospitals for holding patients longer than what is medically necessary.`\
+https://nytimes.com/2024/09/26/health/acadia-doj-settlement-fbi.html
+
+**Years After Being ‘Fired,’ They’ve Unloaded Their Trump Media Stock**\
+`Two former “Apprentice” contestants who helped found Truth Social have sold their nearly 6 percent stake in Trump Media & Technology Group.`\
+https://nytimes.com/2024/09/26/business/truth-social-trump-media-stock-sale.html
+
+**Britain’s leader calls on Israel and Hezbollah to ‘step back from the brink.’**\
+`By Megan Specia`\
+https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/britains-leader-calls-on-israel-and-hezbollah-to-step-back-from-the-brink
+
+**Just how nice is Business Class on Turkish Airlines?**\
+`Turkish Airlines, the professed favorite of Mayor Eric Adams, features a business class that has plush, lie-flat seats and multiple course meals served on porcelain tableware.`\
+https://nytimes.com/2024/09/26/nyregion/just-how-nice-is-turkish-airliness-business-class.html
+
 **A Gotti Grandson Pleads Guilty to Covid Relief Fraud**\
 `A U.S. attorney said that Carmine G. Agnello had “shamefully” used the pandemic “as an opportunity to line his pockets.”`\
 https://nytimes.com/2024/09/26/nyregion/gotti-grandson-guilty-plea.html
