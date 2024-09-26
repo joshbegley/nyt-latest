@@ -1,7 +1,3 @@
-**Liverpool 5 West Ham 1: Alvarez concern, Soler's situation and defensive decisions to make**\
-`West Ham were thrashed by Liverpool in the Carabao Cup, another difficult 90 minutes for Julen Lopetegui`\
-https://nytimes.com/athletic/5794300/2024/09/26/west-ham-liverpool-carabao-cup-lopetegui/
-
 **Assessing Nwaneri, Lewis-Skelly and Arsenal's other academy prospects**\
 `Arsenal's win over Bolton was a throwback to the League Cup days under Arsene Wenger, with a host of academy players given a chance`\
 https://nytimes.com/athletic/5795071/2024/09/26/arsenal-bolton-nwaneri-lewis-skelly/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/26/arts/television/trump-harris-mcdonalds.html
 **They Used to Rule the World. What Happened?**\
 `Conservatism, the force that has dominated Western politics since World War II, is in danger of being swallowed by the far right.`\
 https://nytimes.com/2024/09/26/opinion/trump-far-right-conservatism.html
+
+**MLB bullpen report: The way too early closer tiers for 2025, with Emmanuel Clase at the head of the class**\
+`For his final bullpen report of the 2024 season, Greg Jewett spins it forward with a way too early look at the Top 5 closer tiers for 2025.`\
+https://nytimes.com/athletic/5795262/2024/09/26/fantasy-baseball-2025-closer-tiers-clase/
 
