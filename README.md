@@ -22,7 +22,7 @@ https://nytimes.com/2024/09/25/nyregion/eric-adams-indictment-timeline.html
 `By William K. Rashbaum, Dana Rubinstein, Michael Rothfeld and Matthew Haag`\
 https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/heres-the-latest-on-the-mayors-indictment
 
-**Eric Adams is indicted following a federal corruption investigation.**\
+**Eric Adams Is Indicted Following Federal Corruption Investigation**\
 `The indictment makes Mr. Adams the first sitting mayor of New York City to be criminally charged.`\
 https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/eric-adams-indicted
 

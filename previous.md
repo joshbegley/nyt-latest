@@ -1,3 +1,11 @@
+**House Condemns Biden and Harris Over Afghanistan Withdrawal**\
+`Ten Democrats joined the G.O.P.-led effort to rebuke 15 senior members of the Biden administration for the failures of the Afghanistan withdrawal in a symbolic vote.`\
+https://nytimes.com/2024/09/25/us/politics/house-condemnaton-afghanistan-withdrawal.html
+
+**USC's Bear Alexander intends to redshirt: Source**\
+`The former five-star prospect did not start any of the Trojans' first three games but did play significant snaps against LSU and Michigan. `\
+https://nytimes.com/athletic/5795104/2024/09/25/usc-bear-alexander-redshirt-transfer/
+
 **What Happens if Mayor Eric Adams Resigns?**\
 `New York City’s public advocate, Jumaane Williams, would become acting mayor. He would schedule a nonpartisan special election for a new mayor, which could take place within 90 days.`\
 https://nytimes.com/2024/09/25/nyregion/jumaane-williams-nyc-acting-mayor.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5795091/2024/09/25/craig-breslow-red-sox-season-ass
 **Rep. Clay Higgins Posts, Then Deletes, Racist Comments About Haitians**\
 `False claims about migrants in Springfield, Ohio, who are legal residents, became a campaign issue after Donald J. Trump brought them up at the presidential debate this month.`\
 https://nytimes.com/2024/09/25/us/politics/clay-higgins-haitians-springfield-ohio.html
-
-**What we're hearing about the Mets' pitching plans this weekend**\
-`When will Sean Manaea pitch? Who could be in line for a likely doubleheader Monday? We answer those questions and more.`\
-https://nytimes.com/athletic/5795076/2024/09/25/mets-pitching-plans-final-games/
-
-**Ghiroli: Mets-Braves schedule is a mess of everyone's making**\
-`MLB has the power to force logistics, to force both teams to play when and where it wants, so long as the union is in agreement.`\
-https://nytimes.com/athletic/5795093/2024/09/25/mets-braves-weather-delay/
 
