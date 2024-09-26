@@ -1,3 +1,7 @@
+**Mirtle: 5 reasons for optimism for the Maple Leafs this season**\
+`A look at the ways we might expect the Maple Leafs to improve, year over year.`\
+https://nytimes.com/athletic/5794770/2024/09/26/maple-leafs-optimism-for-204-25/
+
 **The Bounce: Are windows closing for Lakers, Clippers?**\
 `Zach Harper and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5795968/2024/09/26/lakers-clippers-nba-wnba-aces-lynx-sun-liberty-fever-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5796344/2024/09/26/nottingham-forest-fulham-nuno-es
 **Cooper optimistic Leicester will be a Premier League side next season**\
 `Leicester City are transitioning into a Premier League team again, but manager Steve Cooper remains confident that they will still be one next season.`\
 https://nytimes.com/athletic/5796378/2024/09/26/steve-cooper-leicester-survival/
-
-**This Is Not A Beauty Podcast**\
-`A new podcast hosted by Isabella Rossellini explores the essential role beauty plays in the human experience.`\
-https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast.html
 

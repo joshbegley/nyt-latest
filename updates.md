@@ -1,3 +1,7 @@
+**Mirtle: 5 reasons for optimism for the Maple Leafs this season**\
+`A look at the ways we might expect the Maple Leafs to improve, year over year.`\
+https://nytimes.com/athletic/5794770/2024/09/26/maple-leafs-optimism-for-204-25/
+
 **The Bounce: Are windows closing for Lakers, Clippers?**\
 `Zach Harper and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5795968/2024/09/26/lakers-clippers-nba-wnba-aces-lynx-sun-liberty-fever-the-bounce/
