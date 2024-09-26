@@ -1,3 +1,11 @@
+**The Stage Combat Is Verbal in These Off Broadway Plays**\
+`Belarus Free Theater’s “KS6: Small Forward” and three other shows are reminders that there are many ways to portray conflicts and confrontations onstage.`\
+https://nytimes.com/2024/09/26/theater/belarus-free-theater-the-ask-medea-revisited-voices-head.html
+
+**Giuliani Disbarred in D.C. Over Efforts to Overturn 2020 Election**\
+`Appellate judges based their decision on New York’s ruling earlier this year to bar him from practicing law in the state.`\
+https://nytimes.com/2024/09/26/us/politics/giuliani-disbarred-in-dc-over-efforts-to-overturn-2020-election.html
+
 **Harris Meets With Zelensky, Anticipating a Handover of Global Crises**\
 `The meeting signaled that the White House was preparing her to take over a thorny diplomatic relationship should she win the election in November.`\
 https://nytimes.com/2024/09/26/us/politics/harris-zelensky.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5797357/2024/09/26/mountain-west-commitment-members
 **Newsmax and Smartmatic Settle Defamation Case Over 2020 Election**\
 `Jury selection in the case began on Thursday morning, and the trial had been expected to take up to four weeks.`\
 https://nytimes.com/2024/09/26/business/media/newsmax-smartmatic-defamation-suit.html
-
-**Can Eric Adams Survive a Foreign Bribery Scandal?**\
-`Mr. Adams is the first sitting mayor in modern New York City history to be charged with a crime.`\
-https://nytimes.com/2024/09/26/nyregion/nyc-mayor-adams-survival.html
-
-**Bucks welcome Junior Bridgeman to ownership group, and it just feels 'natural'**\
-`"You can’t understand or underestimate how big a moment this is for the franchise,” Bucks co-owner Jimmy Haslam said.`\
-https://nytimes.com/athletic/5795404/2024/09/26/junior-bridgeman-milwaukee-bucks-ownership/
 
