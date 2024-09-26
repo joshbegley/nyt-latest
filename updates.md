@@ -1,3 +1,7 @@
+**Balmain’s Beauty Pageant of All Ages**\
+`Olivier Rousteing’s new muse is … makeup? For everyone.`\
+https://nytimes.com/2024/09/26/style/balmain-beauty-ageism.html
+
 **Late-season stakes have come for Shohei Ohtani, and he's delivering for the Dodgers**\
 `The Dodgers can pop bottles as soon as Thursday after a 4-3 win Wednesday. The calendar has not flipped to October, but Ohtani has arrived.`\
 https://nytimes.com/athletic/5795688/2024/09/26/shohei-ohtani-delivering-dodgers-late-season-stakes/
