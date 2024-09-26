@@ -1,3 +1,7 @@
+**Liverpool 5 West Ham 1: Alvarez concern, Soler's situation and defensive decisions to make**\
+`West Ham were thrashed by Liverpool in the Carabao Cup, another difficult 90 minutes for Julen Lopetegui`\
+https://nytimes.com/athletic/5794300/2024/09/26/west-ham-liverpool-carabao-cup-lopetegui/
+
 **Assessing Nwaneri, Lewis-Skelly and Arsenal's other academy prospects**\
 `Arsenal's win over Bolton was a throwback to the League Cup days under Arsene Wenger, with a host of academy players given a chance`\
 https://nytimes.com/athletic/5795071/2024/09/26/arsenal-bolton-nwaneri-lewis-skelly/
