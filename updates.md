@@ -1,3 +1,11 @@
+**Kamala Harris’s Campaign Thinks She Can Win on the Economy. Here’s How.**\
+`Harris advisers point to a number of brightening public polls showing that Donald Trump’s lead is eroding on the critical question of whom voters trust most on the economy.`\
+https://nytimes.com/2024/09/26/us/politics/trump-harris-economy.html
+
+**What I'm seeing from Penguins: Graves' start, Karlsson injury update**\
+`Graves has to show his coach and GM he's worthy of a top-four spot, and soon.`\
+https://nytimes.com/athletic/5797390/2024/09/26/penguins-erik-karlsson-injury-update/
+
 **Zelensky’s Star Power Fades on Capitol Hill**\
 `As the war drags on, Ukraine’s president receives a quieter welcome in Washington and faces angry questions from some Republicans.`\
 https://nytimes.com/2024/09/26/us/ukraine-zelensky-washington-congress.html
