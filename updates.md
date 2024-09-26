@@ -1,3 +1,7 @@
+**Braves star Ronald Acuña Jr. on Shohei Ohtani's feats and return from second ACL surgery**\
+`Acuña said he will be "a little more cautious and careful" with his return from his second ACL surgery compared to the first one.`\
+https://nytimes.com/athletic/5797743/2024/09/26/braves-ronald-acuna-jr-ohtani-acl-surgery-update/
+
 **Inside the Intimate U.N. Dinner Party at Eleven Madison Park**\
 `Celebrities including Pharrell Williams and Forest Whitaker ate plant-based dishes (and admired the kitchen) during an event to toast UNESCO, the U.N. cultural agency.`\
 https://nytimes.com/2024/09/26/style/unesco-daniel-humm-eleven-madison-park.html
