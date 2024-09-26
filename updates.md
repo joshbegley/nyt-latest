@@ -1,3 +1,7 @@
+**Southwest Airlines Stock Soars After It Lays Out Overhaul**\
+`The move, including service enhancements and share buybacks, came after the hedge fund Elliott Management called for cost savings and better profits.`\
+https://nytimes.com/2024/09/26/business/southwest-airlines-overhaul-elliott.html
+
 **Coming Up Next on CNN: A Paywall**\
 `CNN will begin experimenting in October with a subscription model, in a major initiative from its chief executive, Mark Thompson.`\
 https://nytimes.com/2024/09/26/business/media/cnn-paywall.html

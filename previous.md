@@ -22,8 +22,8 @@ https://nytimes.com/athletic/5796378/2024/09/26/steve-cooper-leicester-survival/
 `A new podcast hosted by Isabella Rossellini explores the essential role beauty plays in the human experience.`\
 https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast.html
 
-**Southwest Airlines, Under Pressure, Lays Out 3-Year Overhaul**\
-`The move came after the hedge fund Elliott Management, which has more than 10 percent of the airline’s shares, called for cost containment and better profits.`\
+**Southwest Airlines Stock Soars After It Lays Out Overhaul**\
+`The move, including service enhancements and share buybacks, came after the hedge fund Elliott Management called for cost savings and better profits.`\
 https://nytimes.com/2024/09/26/business/southwest-airlines-overhaul-elliott.html
 
 **These Are the N.Y.C. Officials Who Resigned Ahead of the Adams Indictment**\
