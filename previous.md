@@ -1,3 +1,11 @@
+**With Eric Adams Indicted, What Happens Next?**\
+`New York voters cannot recall the mayor and he is not required to resign, but Gov. Kathy Hochul has the power to remove him. She would be in uncharted territory.`\
+https://nytimes.com/2024/09/25/nyregion/impeach-adams-governor-ny-city-charter.html
+
+**In Defiant Video, Adams Calls Any Charges Against Him ‘Entirely False’**\
+`Mayor Eric Adams released a video vowing to fight the charges he faces and said he would request an immediate trial.`\
+https://nytimes.com/2024/09/25/nyregion/eric-adams-statement-video.html
+
 **Red Sox eliminated from postseason for third straight year: 'We blew it'**\
 `“At one point it felt like we were a playoff-caliber team, and then we missed the opportunity." The Red Sox postseason drought continues.`\
 https://nytimes.com/athletic/5795354/2024/09/25/red-sox-elimination-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5795264/2024/09/25/caitlin-clark-fever-sun-wnba-pla
 **House Condemns Biden and Harris Over Afghanistan Withdrawal**\
 `Ten Democrats joined the G.O.P.-led effort to rebuke 15 senior members of the Biden administration for the failures of the Afghanistan withdrawal in a symbolic vote.`\
 https://nytimes.com/2024/09/25/us/politics/house-biden-harris-afghanistan-withdrawal.html
-
-**USC's Bear Alexander intends to redshirt: Sources**\
-`The former five-star prospect did not start any of the Trojans' first three games but played significant snaps against LSU and Michigan.`\
-https://nytimes.com/athletic/5795104/2024/09/25/usc-bear-alexander-redshirt-transfer/
-
-**What Happens if Mayor Eric Adams Resigns?**\
-`New York City’s public advocate, Jumaane Williams, would become acting mayor. He would schedule a nonpartisan special election for a new mayor, which could take place within 90 days.`\
-https://nytimes.com/2024/09/25/nyregion/jumaane-williams-nyc-acting-mayor.html
 

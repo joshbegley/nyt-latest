@@ -1,3 +1,11 @@
+**With Eric Adams Indicted, What Happens Next?**\
+`New York voters cannot recall the mayor and he is not required to resign, but Gov. Kathy Hochul has the power to remove him. She would be in uncharted territory.`\
+https://nytimes.com/2024/09/25/nyregion/impeach-adams-governor-ny-city-charter.html
+
+**In Defiant Video, Adams Calls Any Charges Against Him ‘Entirely False’**\
+`Mayor Eric Adams released a video vowing to fight the charges he faces and said he would request an immediate trial.`\
+https://nytimes.com/2024/09/25/nyregion/eric-adams-statement-video.html
+
 **Red Sox eliminated from postseason for third straight year: 'We blew it'**\
 `“At one point it felt like we were a playoff-caliber team, and then we missed the opportunity." The Red Sox postseason drought continues.`\
 https://nytimes.com/athletic/5795354/2024/09/25/red-sox-elimination-2024/
