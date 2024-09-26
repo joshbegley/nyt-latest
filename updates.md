@@ -1,3 +1,15 @@
+**Angels' Ron Washington says he 'misspoke' in sharp criticism of his team's talent**\
+`"I didn't mean it the way it came out, where I'm saying the organization isn't giving me big-league players,” Washington said.`\
+https://nytimes.com/athletic/5797341/2024/09/26/angels-ron-washington-misspoke-criticism/
+
+**Sabres name Rasmus Dahlin captain**\
+`The Sabres have been looking for stable leadership, and Dahlin has a chance to become that person.`\
+https://nytimes.com/athletic/5797238/2024/09/26/rasmus-dahlin-buffalo-sabres-captain/
+
+**What Students Are Saying About Celebrity Endorsements, Trendy Water Bottles and Their Sleep Routines**\
+`This week, teenage responses to three recent Picture Prompts.`\
+https://nytimes.com/2024/09/26/learning/what-students-are-saying-about-celebrity-endorsements-trendy-water-bottles-and-their-sleep-routines.html
+
 **Democrats Seek Another Opening in a Challenging Senate Map**\
 `New investments in Texas and Florida show how the party is reaching to keep its majority alive.`\
 https://nytimes.com/2024/09/26/us/politics/democrats-senate-florida-texas.html
