@@ -1,3 +1,15 @@
+**What Happens if Mayor Eric Adams Resigns?**\
+`New York City’s public advocate, Jumaane Williams, would become acting mayor. He would schedule a nonpartisan special election for a new mayor, which could take place within 90 days.`\
+https://nytimes.com/2024/09/25/nyregion/jumaane-williams-nyc-acting-mayor.html
+
+**3 Takeaways From Kamala Harris’s Interview on MSNBC**\
+`In her first one-on-one cable TV interview since becoming the nominee, the vice president repeatedly dodged direct questions and stuck firmly on message.`\
+https://nytimes.com/2024/09/25/us/politics/kamala-harris-msnbc-interview-takeaways.html
+
+**Eric Adams is indicted following a federal corruption investigation.**\
+`The indictment makes Mr. Adams the first sitting mayor of New York City to be criminally charged.`\
+https://nytimes.com/live/2024/09/25/nyregion/eric-adams-indicted-corruption/eric-adams-indicted
+
 **A Timeline of Key Moments in the Lead-Up to the Mayor’s Indictment**\
 `Mayor Eric Adams faces corruption charges. Here are the key moments that led to his indictment.`\
 https://nytimes.com/2024/09/25/nyregion/eric-adams-indictment-timeline.html
