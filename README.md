@@ -26,9 +26,9 @@ https://nytimes.com/athletic/5797116/2024/09/26/alabama-football-georgia-until-s
 `The indictment against Mayor Eric Adams includes vignettes that range from the amusing to the horrifying.`\
 https://nytimes.com/2024/09/26/nyregion/nyc-mayor-eric-adams-indictment-takeaways.html
 
-**The mayor was indicted. New Yorkers had jokes.**\
-`Memes and jokes have run rampant since news broke of Mayor Eric Adams’s indictment of charges of bribery and fraud.`\
-https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/the-mayor-was-indicted-new-yorkers-had-jokes
+**The Mayor Was Indicted. New Yorkers Had Jokes.**\
+`Mayor Eric Adams’s indictment quickly became fodder for memes and quips on social media.`\
+https://nytimes.com/2024/09/26/nyregion/nyc-mayor-indictment-jokes.html
 
 **Hurricane Helene Expected to Make Landfall Tonight**\
 `Helene is expected to bring record-breaking storm surges that will inundate communities along the Gulf Coast and bring rain and flooding to cities across the Southeast.`\
