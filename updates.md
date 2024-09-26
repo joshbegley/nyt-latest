@@ -1,3 +1,11 @@
+**Inside the Minds of Swing Voters**\
+`We explain the results of a poll of undecided voters.`\
+https://nytimes.com/2024/09/26/briefing/swing-voters-2024-election-trump-harris.html
+
+**Dozens, Mostly Children, Drown During a Hindu Festival**\
+`At least 46 died in a ceremony that involves bathing in local rivers and streams in Bihar State, where recent rains had raised water levels.`\
+https://nytimes.com/2024/09/26/world/asia/india-drowning-deaths-festival.html
+
 **Derrick Rose, former Bulls MVP, retires after 16 seasons**\
 `"I believe true success comes from becoming who you were created to be, and I want to show the world who I am beyond basketball,” Rose said.`\
 https://nytimes.com/athletic/5795527/2024/09/26/derrick-rose-retirement/
