@@ -1,3 +1,19 @@
+**Big 12 releases men's basketball schedule for 2024-25**\
+`Arizona, Arizona State, Colorado and Utah officially joined the conference this summer as Texas and Oklahoma departed for the SEC.`\
+https://nytimes.com/athletic/5797259/2024/09/26/big-12-mens-basketball-schedule/
+
+**College football Week 5 model projections: Point differentials and totals for every game**\
+`Austin Mock's model projects the point differentials and point totals for every college football Week 5 game, including Georgia at Alabama.`\
+https://nytimes.com/athletic/5797233/2024/09/26/college-football-week-5-model-projections-scores/
+
+**Tracking Hurricane Helene's impact on this weekend's games**\
+`Several teams have rescheduled games or changed their travel plans due to heavy rain.`\
+https://nytimes.com/athletic/5796637/2024/09/26/hurricane-helene-sports-postponements-cancellations/
+
+**English Is Everybody’s Business. (Or Is it Boocie-ness? Or Boozy-ness?)**\
+`A modest plea for the return of language arts.`\
+https://nytimes.com/2024/09/26/opinion/english-language-complex-spelling.html
+
 **The Best Sheets for Your Bed**\
 `We found linen, percale, sateen and flannel options.`\
 https://nytimes.com/interactive/2024/09/26/smarter-living/wirecutter/best-sheets.html
