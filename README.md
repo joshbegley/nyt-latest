@@ -1,3 +1,15 @@
+**Zelensky’s Star Power Fades on Capitol Hill**\
+`As the war drags on, Ukraine’s president receives a quieter welcome in Washington and faces angry questions from some Republicans.`\
+https://nytimes.com/2024/09/26/us/ukraine-zelensky-washington-congress.html
+
+**New York City Mayor Charged in Bribery and Fraud Scheme**\
+`Federal prosecutors say Mayor Eric Adams of New York took illegal campaign contributions and luxury travel benefits from foreign actors and used his power to help Turkey.`\
+https://nytimes.com/video/nyregion/100000009722866/adams-bribery-fraud-federal-charges-turkey.html
+
+**Justice Department Details Wide Pattern of Abuses by Mississippi Police Force**\
+`The police in the small city of Lexington, Miss., routinely make unjustified arrests, use excessive force and trample on civil rights, investigators said.`\
+https://nytimes.com/2024/09/26/us/mississippi-police-abuse-lexington.html
+
 **The Stage Combat Is Verbal in These Off Broadway Plays**\
 `Belarus Free Theater’s “KS6: Small Forward” and three other shows are reminders that there are many ways to portray conflicts and confrontations onstage.`\
 https://nytimes.com/2024/09/26/theater/belarus-free-theater-the-ask-medea-revisited-voices-head.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5797292/2024/09/26/bills-front-office-moves-orchard
 **Have We Hit Peak Hand Roll Yet?**\
 `There are at least a dozen spots in New York City, but some sushi hand rolls are better than others.`\
 https://nytimes.com/2024/09/26/dining/have-we-hit-peak-hand-roll-yet.html
-
-**Ron Washington says he 'misspoke' in sharp criticism of his team's talent**\
-`The Angels entered Thursday at 63-95. The loss total ties the most in franchise history with four games left to play. `\
-https://nytimes.com/athletic/5797327/2024/09/26/angels-ron-washington-comments/
-
-**Mountain West secures commitment from 6 remaining full members**\
-`The agreement needed six signatories to be official, including Air Force and UNLV. Hawaii, a football-only member, has not yet signed.`\
-https://nytimes.com/athletic/5797357/2024/09/26/mountain-west-commitment-members/
-
-**Newsmax and Smartmatic Settle Defamation Case Over 2020 Election**\
-`Jury selection in the case began on Thursday morning, and the trial had been expected to take up to four weeks.`\
-https://nytimes.com/2024/09/26/business/media/newsmax-smartmatic-defamation-suit.html
 
