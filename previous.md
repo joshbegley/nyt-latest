@@ -2,7 +2,7 @@
 `Two pandas are heading back to China eight years early amid lower-than-hoped-for visitor numbers at a zoo in rural Finland, and after the pair didn’t produce a cub.`\
 https://nytimes.com/2024/09/26/world/europe/finland-china-pandas-return.html
 
-**Frank Coppa, First Bonanno Mafia Family Member to Flip, Dies at 83**\
+**Frank Coppa, First Bonanno Mafia Family Member to Flip, Dies at 82**\
 `His decision to describe gruesome murders to the F.B.I. led at least 10 other members to do the same and ultimately immobilized a mafia family.`\
 https://nytimes.com/2024/09/26/nyregion/frank-coppa-dead.html
 
