@@ -1,3 +1,11 @@
+**Ron Washington says he 'misspoke' in sharp criticism of his team's talent**\
+`The Angels entered Thursday at 63-95. The loss total ties the most in franchise history with four games left to play. `\
+https://nytimes.com/athletic/5797327/2024/09/26/angels-ron-washington-comments/
+
+**Mountain West secures commitment from 6 remaining full members**\
+`The agreement needed six signatories to be official, including Air Force and UNLV. Hawaii, a football-only member, has not yet signed.`\
+https://nytimes.com/athletic/5797357/2024/09/26/mountain-west-commitment-members/
+
 **Newsmax and Smartmatic Settle Defamation Case Over 2020 Election**\
 `Jury selection in the case began on Thursday morning, and the trial had been expected to take up to four weeks.`\
 https://nytimes.com/2024/09/26/business/media/newsmax-smartmatic-defamation-suit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5797238/2024/09/26/rasmus-dahlin-buffalo-sabres-cap
 **What Students Are Saying About Celebrity Endorsements, Trendy Water Bottles and Their Sleep Routines**\
 `This week, teenage responses to three recent Picture Prompts.`\
 https://nytimes.com/2024/09/26/learning/what-students-are-saying-about-celebrity-endorsements-trendy-water-bottles-and-their-sleep-routines.html
-
-**An Oil C.E.O. Answers Our Questions**\
-`The Times hosted leaders and policymakers to talk about growing threats of climate change, and spoke with the C.E.O. of Occidental Petroleum.`\
-https://nytimes.com/2024/09/26/climate/climate-forward-vicki-hollub-interview.html
-
-**What Eric Adams and Donald Trump Have in Common**\
-`The mayor and the former president may have some different political beliefs, but their personality and style — and now perhaps their legal paths — are aligned.`\
-https://nytimes.com/2024/09/26/nyregion/eric-adams-donald-trump.html
 
