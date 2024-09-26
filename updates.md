@@ -1,3 +1,7 @@
+**Premier League partner Sorare to appear in court over UK Gambling Commission charge**\
+`Sorare, an official partner of the Premier League, has been charged by the UK Gambling Commission with allegedly “providing unlicensed gambling facilities to consumers in Britain”.`\
+https://nytimes.com/athletic/5796141/2024/09/26/sorare-premier-league-charge-gambling/
+
 **Hoda Kotb, Cheerful Fixture of NBC’s ‘Today’ Show, Says She Will Depart**\
 `Her exit, planned for early next year, is a seismic shift for NBC and opens up a pair of morning TV’s most coveted anchor chairs.`\
 https://nytimes.com/2024/09/26/business/media/hoda-kotb-today-show.html
