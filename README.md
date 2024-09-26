@@ -1,40 +1,40 @@
-**Biden to Meet Zelensky After Pledging More Weapons and Aid to Ukraine**\
-`The Ukrainian leader is expected to present the president a new “victory plan.” He also plans to meet with Vice President Kamala Harris.`\
-https://nytimes.com/2024/09/26/us/politics/biden-zelensky-weapons-aid-ukraine.html
+**Big 12 Chaos Meter: Preseason favorites fight to avoid 0-2 hole, Colorado visits UCF**\
+`What does this week hold coming off an end-of-regulation Hail Mary, a double-digit fourth-quarter comeback and a spicy rivalry rout?`\
+https://nytimes.com/athletic/5795315/2024/09/26/big-12-chaos-meter-kansas-state-oklahoma-state-colorado-ucf/
 
-**Eric Adams Is Indicted, and Florida Braces for Hurricane Helene**\
-`Plus, the “snackification” of the American diet.`\
-https://nytimes.com/2024/09/26/podcasts/eric-adams-indicted-hurricane-helene.html
+**Prospect Tiers: Projecting the NHL's top under-23 players**\
+`A list of the NHL's best prospects, built with the influence of NHL scouts and analysts.`\
+https://nytimes.com/athletic/5771154/2024/09/26/nhl-prospect-tiers-rankings-bedard-2024-25/
 
-**How One Hospital Chain Traps Patients for Profit**\
-`Acadia Healthcare is holding people against their will to maximize insurance payouts, a Times investigation found.`\
-https://nytimes.com/2024/09/26/podcasts/the-daily/acadia-hospital-trapped.html
+**What's behind Zion Williamson's newfound drive? Trust**\
+`For the first time in his rocky NBA career, Zion Williamson and the Pelicans are on the same page. Now, he's vowing to keep it that way.`\
+https://nytimes.com/athletic/5791757/2024/09/26/zion-williamson-pelicans-offseason-workouts-trust/
 
-**The Connections Companion No. 474**\
-`Scroll down for hints and conversation about the puzzle for Friday, Sept. 27, 2024.`\
-https://nytimes.com/2024/09/26/crosswords/connections-companion-474.html
+**No, the Chiefs don't have a Travis Kelce problem**\
+`Even though Kelce has just eight receptions for 69 yards this season, the film shows he's still getting open. `\
+https://nytimes.com/athletic/5792045/2024/09/26/travis-kelce-slow-start-performance-chiefs/
 
-**Watch: ‘High-Functioning Anxiety Isn’t a Medical Diagnosis. It’s a Hashtag.”**\
-`Is there a problem with how we talk about mental illness?`\
-https://nytimes.com/2024/09/26/learning/watch-high-functioning-anxiety-isnt-a-medical-diagnosis-its-a-hashtag.html
+**Can Austin Watson make the Red Wings?**\
+`Watson had success playing against the Red Wings in the past. Now on a tryout contract, he's looking to give them an element they've lacked.`\
+https://nytimes.com/athletic/5794716/2024/09/26/red-wings-austin-watson-roster-tryout/
 
-**Wordle Review No. 1,196**\
-`Scroll down for hints and conversation about the puzzle for September 27, 2024.`\
-https://nytimes.com/2024/09/26/crosswords/wordle-review-1196.html
+**Does Alabama have what it takes to 'attack' Georgia's immovable defense?**\
+`Alabama's going to need explosive plays Saturday against a team that gives up hardly any big plays and has yet to allow a touchdown.`\
+https://nytimes.com/athletic/5794967/2024/09/26/alabama-georgia-football-defense/
 
-**After 44 Years on Death Row, Japanese Man Is Exonerated at Age 88**\
-`Iwao Hakamada is believed to be the world’s longest-serving inmate given a death sentence.`\
-https://nytimes.com/2024/09/26/world/asia/japan-death-row-exonerated.html
+**How Earl Weaver once tried to win a pennant race by starting a lefty at shortstop**\
+`“It was unusual,” said Royle Stillman, whose brief major league career included being at the center of a bold experiment.`\
+https://nytimes.com/athletic/5795602/2024/09/26/earl-weaver-lefty-shortstop/
 
-**Here are the latest developments.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/here-are-the-latest-developments
+**Justin Tucker's kicking woes, Mark Andrews' slow start and other Ravens early-season issues**\
+`Tucker, the most accurate kicker in NFL history, continues his recent struggles from distance. Plus, what's going on with the pass defense?`\
+https://nytimes.com/athletic/5794781/2024/09/26/ravens-issues-justin-tucker-mark-andrews/
 
-**Netanyahu stays mum on the cease-fire proposal, as his allies and rivals alike reject it.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/09/26/world/israel-lebanon-hezbollah-hamas/netanyahu-stays-mum-on-the-cease-fire-proposal-as-his-allies-and-rivals-alike-reject-it
+**Jayden Daniels, budding Commanders optimism and the psyche of a healing fan base**\
+`Long conditioned to expect the worst, Washington fans finally have hope again, with a promising young QB and no Dan Snyder to mess it up.`\
+https://nytimes.com/athletic/5793805/2024/09/26/jayden-daniels-commanders-fans-dan-snyder/
 
-**Here’s the latest on the mayor’s indictment.**\
-`By Matthew Haag`\
-https://nytimes.com/live/2024/09/26/nyregion/eric-adams-indicted-news/heres-the-latest-on-the-mayors-indictment
+**Packers praise Aaron Jones as franchise great returns to Lambeau with Vikings on Sunday**\
+`Jones is a surefire first-ballot Packers Hall of Famer four years after he retires.`\
+https://nytimes.com/athletic/5794610/2024/09/26/packers-aaron-jones-reunion-vikings/
 
