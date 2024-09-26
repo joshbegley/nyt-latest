@@ -1,3 +1,7 @@
+**Until Saturday: 2024's first game of the century, plus our Saturday viewer guide**\
+`Welcome to Until Saturday, the five-star college football newsletter: Finally, the Georgia-Alabama SEC top-five showdown is here.`\
+https://nytimes.com/athletic/5797116/2024/09/26/alabama-football-georgia-until-saturday/
+
 **Cheap Flights and Deleted Texts: 10 Takeaways From the Adams Indictment**\
 `The indictment against Mayor Eric Adams includes vignettes that range from the amusing to the horrifying.`\
 https://nytimes.com/2024/09/26/nyregion/nyc-mayor-eric-adams-indictment-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5797738/2024/09/26/oakland-as-final-game-coliseum/
 **JD Vance to Address Major Republican Donors Just Before Debate**\
 `As part of his trip to New York City for the vice-presidential debate next week, Mr. Vance will speak to the American Opportunity Alliance, a network of major G.O.P. contributors.`\
 https://nytimes.com/2024/09/26/us/politics/jd-vance-aoa-speech-fundraising.html
-
-**U.S. runs out to dominant Presidents Cup Day 1 lead**\
-`The Americans won the opening session 5-0, with Scottie Scheffler and Keegan Bradley providing the fireworks.`\
-https://nytimes.com/athletic/5797568/2024/09/26/presidents-cup-2024-us-international-day-1/
 
