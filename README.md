@@ -11,8 +11,8 @@ https://nytimes.com/athletic/5797233/2024/09/26/college-football-week-5-model-pr
 https://nytimes.com/athletic/5796637/2024/09/26/hurricane-helene-sports-postponements-cancellations/
 
 **English Is Everybody’s Business. (Or Is it Boocie-ness? Or Boozy-ness?)**\
-`A modest plea for the return of language arts`\
-https://nytimes.com/2024/09/26/opinion/english-is-everybodys-business-or-is-it-boocie-ness-or-boozy-ness.html
+`A modest plea for the return of language arts.`\
+https://nytimes.com/2024/09/26/opinion/english-language-complex-spelling.html
 
 **The Best Sheets for Your Bed**\
 `We found linen, percale, sateen and flannel options.`\
