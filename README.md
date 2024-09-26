@@ -1,3 +1,7 @@
+**Caitlin Clark grades her rookie season as 'solid' after playoff exit**\
+`"Championships are great, hopefully we have a few of those, but you want to have really good relationships with people."`\
+https://nytimes.com/athletic/5795293/2024/09/25/caitlin-clark-rookie-season-indiana-fever/
+
 **Who Is Running for New York City Mayor in the Democratic Primary?**\
 `Mayor Eric Adams is currently running for re-election in a competitive primary next June. Already, four prominent Democrats are facing off against him.`\
 https://nytimes.com/2024/09/25/nyregion/eric-adams-mayor-democratic-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/25/nyregion/jumaane-williams-nyc-acting-mayor.html
 **3 Takeaways From Kamala Harris’s Interview on MSNBC**\
 `In her first one-on-one cable TV interview since becoming the nominee, the vice president repeatedly dodged direct questions and stuck firmly on message.`\
 https://nytimes.com/2024/09/25/us/politics/kamala-harris-msnbc-interview-takeaways.html
-
-**A Timeline of Key Moments in the Lead-Up to the Mayor’s Indictment**\
-`Mayor Eric Adams faces corruption charges. They stem from a broad inquiry that has been in progress for months.`\
-https://nytimes.com/2024/09/25/nyregion/eric-adams-indictment-timeline.html
 
