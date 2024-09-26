@@ -1,3 +1,7 @@
+**Liverpool's six forwards are flexing their muscles - Slot is spoilt for choice**\
+`Jota, Gakpo, Salah, Diaz, Nunez and now Chiesa - Liverpool's forward line are pushing each on. Slot has options aplenty in attack`\
+https://nytimes.com/athletic/5795195/2024/09/26/liverpool-forwards-jota-gakpo-salah-nunez-diaz-chiesa/
+
 **Barca briefing: Pena assured with Szczesny on the way and Lewandowski keeps scoring**\
 `Barca kept up their perfect start in La Liga with a 1-0 win against Getafe thanks to Lewandowski's seventh goal of the season`\
 https://nytimes.com/athletic/5795694/2024/09/26/barcelona-getafe-pena-szczesny-lewandowski/
