@@ -4,7 +4,7 @@ https://nytimes.com/2024/09/26/us/politics/crunchtime-for-election-interference-
 
 **The R.N.C. Asked a Conspiracy Theorist to Train Poll Watchers. Here’s What He Told Them.**\
 `Jack Posobiec of “Pizzagate” notoriety recently spoke to a group of G.O.P. volunteers. “It doesn’t matter who votes,” he told them. “It matters who counts the votes.”`\
-https://nytimes.com/2024/09/26/us/politics/republican-national-committee-campaign-2024-jack-posobeic.html
+https://nytimes.com/2024/09/26/us/politics/republican-national-committee-2024-posobiec.html
 
 **‘The Queen of the Villains’ Is a Complex Japanese Wrestling Drama**\
 `The five-part Netflix series tells the story of a female wrestler in the 1980s who might have gone a little too deep into character.`\
