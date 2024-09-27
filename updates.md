@@ -1,3 +1,7 @@
+**House v. NCAA settlement revises language around NIL in new filing**\
+`Most of the revisions aim to better define the term “booster” and what constitutes the pay-for-play inducements the NCAA hopes to eliminate.`\
+https://nytimes.com/athletic/5798062/2024/09/26/house-ncaa-revised-settlement-college-sports-nil-boosters/
+
 **Biden, Eyeing His Legacy, Signs Executive Orders on Gun Safety**\
 `The president used a poignant White House ceremony to pass the baton to Vice President Kamala Harris, who has made gun safety an issue in her campaign.`\
 https://nytimes.com/2024/09/26/us/politics/biden-executive-orders-ghost-guns-school-safety.html
