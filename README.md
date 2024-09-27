@@ -32,7 +32,7 @@ https://nytimes.com/athletic/5799524/2024/09/27/fantasy-football-flex-fliers-ros
 
 **Maggie Smith Brought Sharp-Tongued Wit Stateside**\
 `Americans are experts in the comedy of bluster, as many of our late night hosts can attest. We’re less practiced in precision.`\
-https://nytimes.com/live/2024/09/25/opinion/thepoint/maggie-smith-death
+https://nytimes.com/2024/09/25/opinion/maggie-smith-death.html
 
 **Troter: WNBA and Cathy Engelbert face credibility issue regarding player harassment**\
 `With its players the targets of hate on social media and in arenas, the league has struggled to handle a problem that continues to worsen.`\
