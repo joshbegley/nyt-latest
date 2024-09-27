@@ -1,3 +1,11 @@
+**International Team storms back to tie U.S. in Presidents Cup**\
+`The Internationals, down 5-0 to start the day, won all five foursome matches to tie the Americans heading into Saturday.`\
+https://nytimes.com/athletic/5800123/2024/09/27/presidents-cup-2024-international-team-united-states-day-2/
+
+**Myles Garrett to play vs. Raiders; Cleveland missing both tackles and Njoku**\
+`Myles Garrett will play despite foot, thigh, and Achilles injuries. The Browns still have a long list of injured players missing Sunday.`\
+https://nytimes.com/athletic/5800002/2024/09/27/myles-garrett-browns-injuries/
+
 **Athlos NYC showed what's possible for track in America — but can the idea stick?**\
 `Athletes raved about Thursday's flashy event in New York that hoped to seize on post-Olympic buzz. But there's still a lot of work to do.`\
 https://nytimes.com/athletic/5799920/2024/09/27/athlos-nyc-track-olympics-gabby-thomas/
