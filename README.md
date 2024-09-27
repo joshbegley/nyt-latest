@@ -1,3 +1,7 @@
+**Hot Microphones and No Audience: Here Are the Rules for the V.P. Debate**\
+`CBS News has announced the rules and format for Tuesday’s debate between Senator JD Vance and Gov. Tim Walz.`\
+https://nytimes.com/2024/09/27/business/media/vp-debate-cbs-rules-format.html
+
 **Helene is bringing ‘life-threatening flash flooding’ to North Carolina.**\
 `In Western North Carolina, heavy rains are causing rivers and lakes to overflow, and landslides have blocked major roads. Across the state, two deaths have been linked to the storm.`\
 https://nytimes.com/2024/09/27/weather/helene-is-bringing-life-threatening-flash-flooding-to-north-carolina.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/along-helen
 **On Trip to U.S., Zelensky Finds Ukraine’s Fortunes Tied to the Election**\
 `A whirlwind week of top-level meetings failed to alleviate concerns in Kyiv that a Trump presidency could lead to a dramatic shift in American policy.`\
 https://nytimes.com/2024/09/27/world/europe/zelensky-ukraine-us-election.html
-
-**Canucks 2024-25 breakout tiers: Which players are most likely to take a step?**\
-`Breakout performances will define this upcoming Canucks season. These are the players we're watching for.`\
-https://nytimes.com/athletic/5795625/2024/09/27/vancouver-canucks-breakout-players/
 
