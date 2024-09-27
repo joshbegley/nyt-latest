@@ -1,3 +1,19 @@
+**Who is Hassan Nasrallah, the leader of Hezbollah?**\
+`By Neil MacFarquhar`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/hassan-nasrallah-hezbollah-leader
+
+**Should You Be Allowed to Profit From A.I.-Generated Art?**\
+`The magazine’s Ethicist columnist on the values and economics of art created via artificial intelligence.`\
+https://nytimes.com/2024/09/27/magazine/ai-art-profit-ethics.html
+
+**Antidoping Agency Lost Track of Open Cases and Test Results Before Olympics**\
+`In a fraught meeting in May, top officials at the World Anti-Doping Agency were warned that a computer glitch might allow athletes accused of doping to compete at the Paris Games.`\
+https://nytimes.com/2024/09/27/world/wada-doping-database-crisis.html
+
+**Special Counsel Proposes Making Public More Evidence From Trump Election Case**\
+`Jack Smith is seeking to disclose quotations from secret grand jury testimony and interviews, but is proposing to shield witness identities.`\
+https://nytimes.com/2024/09/27/us/politics/evidence-trump-election-interference.html
+
 **The Possible Meanings of a Masculine Religious Revival**\
 `By Ross Douthat`\
 https://nytimes.com/2024/09/27/opinion/religion-gender-divide.html
