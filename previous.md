@@ -1,3 +1,7 @@
+**Corrections: Sept. 27, 2024**\
+`Corrections that appeared in print on Friday, Sept. 27, 2024.`\
+https://nytimes.com/2024/09/26/pageoneplus/corrections-sept-27-2024.html
+
 **A's close out their Oakland chapter with a win: 'I couldn’t be more proud'**\
 `The A's finished off their 57 years in Oakland with a 3-2 win in front of 46,886 fans. "It means more. You feel it in the stadium."`\
 https://nytimes.com/athletic/5798100/2024/09/26/oakland-athletics-final-out-coliseum/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5798052/2024/09/26/presidents-cup-2024-analysis-us/
 **In Tallahassee, Residents Worry About a Defining City Feature: Its Trees**\
 `The city’s canopy and shaded roads could become hazards as Helene brings the potential for hurricane-force winds.`\
 https://nytimes.com/2024/09/26/weather/helene-tallahassee-trees.html
-
-**Warning: Do not poke Scottie Scheffler**\
-`When Tom Kim decided to boisterously celebrate a birdie putt, the No. 1 player in the world had an answer.`\
-https://nytimes.com/athletic/5798009/2024/09/26/scottie-scheffler-presidents-cup-tom-kim/
 
