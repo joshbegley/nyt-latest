@@ -1,3 +1,7 @@
+**Isak a doubt for Newcastle's clash vs Man City with broken toe**\
+`Alexander Isak is a doubt for Newcastle United&#8217;s clash against Manchester City due to a broken toe, head coach Eddie Howe has confirmed.`\
+https://nytimes.com/athletic/5798776/2024/09/27/alexander-isak-newcastle-man-city/
+
 **But Would Kamala Wear It?**\
 `In her sophomore collection Chloé’s Chemena Kamali offers a high summer vibe, but not too many suits. Schiaparelli and Rabanne also let the sun shine in.`\
 https://nytimes.com/2024/09/27/style/chloe-kamala-harris-schiaparelli.html
