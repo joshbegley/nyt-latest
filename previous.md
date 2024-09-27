@@ -1,3 +1,11 @@
+**Risk of Heart Defects Higher in Babies Conceived With I.V.F.**\
+`The birth defects were more likely, but still very uncommon, in infants conceived through certain fertility treatments, a large study found.`\
+https://nytimes.com/2024/09/27/health/ivf-birth-defects.html
+
+**The Big Apple Business View on Eric Adams**\
+`The criminal charges against the embattled mayor of New York have given corporate leaders pause about the city’s political future.`\
+https://nytimes.com/2024/09/27/business/dealbook/new-york-business-eric-adams.html
+
 **For improved Chargers defense, Patrick Mahomes, Chiefs represent the 'biggest challenge'**\
 `Defensive coordinator Jesse Minter: "They’re 3-0, they’re the defending champs. It’s definitely a great test.”`\
 https://nytimes.com/athletic/5798164/2024/09/27/chargers-defense-patrick-mahomes-chiefs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5799008/2024/09/27/anthony-gordon-newcastle-contrac
 **Tropical Storm John Set to Lash Mexico’s Coast With More Rain**\
 `The storm is expected to weaken as it moves along the southwestern coast, but officials warned some states in Mexico to brace for risks of flash flooding and mudslides.`\
 https://nytimes.com/2024/09/27/world/americas/tropical-storm-john-mexico.html
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/09/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**UWCL group stage: Man City draw Barcelona, Arsenal face Bayern**\
-`Manchester City will play back-to-back winners Barcelona in the group stage of the Women&#8217;s Champions League (UWCL) while Arsenal face Frauen-Bundesliga champions Bayern Munich.`\
-https://nytimes.com/athletic/5798928/2024/09/27/womens-champions-league-group-stage-draw-2024-25/
 
