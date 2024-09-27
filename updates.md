@@ -1,3 +1,7 @@
+**OpenAI Is Growing Fast and Burning Through Piles of Money**\
+`As the company looks for more outside investors, documents reviewed by The New York Times show consumer fascination with ChatGPT and a serious need for more cash.`\
+https://nytimes.com/2024/09/27/technology/openai-chatgpt-investors-funding.html
+
 **Titan Sub Tragedy: Coast Guard Hearings Reveal New Insights**\
 `Contrary to public reports last year, the passengers probably had no idea that the vessel was about to implode.`\
 https://nytimes.com/2024/09/27/science/titan-submersible-oceangate-hearing.html
