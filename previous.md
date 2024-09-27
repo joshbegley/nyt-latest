@@ -1,3 +1,11 @@
+**Trump Suggests Putin Wants to End War, as Zelensky Looks On**\
+`“I’m sure President Putin wants it to stop,” Donald Trump said of the Russia-Ukraine war on Friday. President Volodymyr Zelensky of Ukraine stressed that the war shouldn’t have been started.`\
+https://nytimes.com/2024/09/27/us/politics/trump-zelensky-putin-war.html
+
+**Helene Leaves a Trail of Destruction in the Southeast**\
+`Helene flooded cities across much of the Southeast including Florida, Georgia and North Carolina. The storm also triggered landslides and destroyed homes.`\
+https://nytimes.com/video/weather/100000009726572/hurricane-helene-storm-flooding.html
+
 **What Our Reporter Saw After Days of Destruction Across Lebanon**\
 `Lebanon is reeling amid ongoing Israeli bombardments that have so far killed more than 700 people since Sept.`\
 https://nytimes.com/video/world/middleeast/100000009716171/lebanon-bekaa-valley-dispatch.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/27/nyregion/ingrid-lewis-martin-phone-searched-adams
 **Raiders' Adams (hamstring), Crosby (ankle) out vs. Browns**\
 `Coach Antonio Pierce announced Maxx Crosby and Davante Adams will take the week off while they deal with injuries.`\
 https://nytimes.com/athletic/5799780/2024/09/27/raiders-davante-adams-maxx-crosby-injuries-browns/
-
-**The Best of Late Night This Week**\
-`There were a few topics the hosts couldn’t get enough of this week including Donald Trump’s efforts to court female voters, and New York City Mayor Eric Adams’s indictment on five federal charges.`\
-https://nytimes.com/interactive/2024/09/27/arts/television/best-of-late-night-eric-adams.html
-
-**G.O.P. Candidates, Looking to Soften Their Image, Turn to Their Wives**\
-`Ads featuring candidates’ families have long been a campaign staple. But they have taken on new urgency, especially for vulnerable Republicans, in a year when reproductive rights are a pivotal issue.`\
-https://nytimes.com/2024/09/27/us/politics/republican-candidates-wives-ads.html
 

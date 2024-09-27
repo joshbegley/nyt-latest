@@ -1,3 +1,11 @@
+**Trump Suggests Putin Wants to End War, as Zelensky Looks On**\
+`“I’m sure President Putin wants it to stop,” Donald Trump said of the Russia-Ukraine war on Friday. President Volodymyr Zelensky of Ukraine stressed that the war shouldn’t have been started.`\
+https://nytimes.com/2024/09/27/us/politics/trump-zelensky-putin-war.html
+
+**Helene Leaves a Trail of Destruction in the Southeast**\
+`Helene flooded cities across much of the Southeast including Florida, Georgia and North Carolina. The storm also triggered landslides and destroyed homes.`\
+https://nytimes.com/video/weather/100000009726572/hurricane-helene-storm-flooding.html
+
 **What Our Reporter Saw After Days of Destruction Across Lebanon**\
 `Lebanon is reeling amid ongoing Israeli bombardments that have so far killed more than 700 people since Sept.`\
 https://nytimes.com/video/world/middleeast/100000009716171/lebanon-bekaa-valley-dispatch.html
