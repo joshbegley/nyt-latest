@@ -1,7 +1,3 @@
-**De Bruyne out of Newcastle game as Rodri has ACL surgery**\
-`Manchester City will be without Kevin De Bruyne when they face Newcastle United on Saturday.`\
-https://nytimes.com/athletic/5799187/2024/09/27/de-bruyne-rodri-injury-man-city/
-
 **Surviving Spouses May Not Be Responsible for Partners’ Medical Bills**\
 `A call from a debt collector may add to the challenges that bereaved people are already dealing with. But spouses “should not assume that they have to pay.”`\
 https://nytimes.com/2024/09/27/your-money/medical-bills-spouse-deceased.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5798535/2024/09/27/oakland-as-final-game-coliseum-t
 **Risk of Heart Defects Higher in Babies Conceived With I.V.F.**\
 `The birth defects were more likely, but still very uncommon, in infants conceived through certain fertility treatments, a large study found.`\
 https://nytimes.com/2024/09/27/health/ivf-birth-defects.html
+
+**The Big Apple Business View on Eric Adams**\
+`The criminal charges against the embattled mayor of New York have given corporate leaders pause about the city’s political future.`\
+https://nytimes.com/2024/09/27/business/dealbook/new-york-business-eric-adams.html
 
