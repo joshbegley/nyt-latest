@@ -34,7 +34,7 @@ https://nytimes.com/2024/09/27/arts/television/late-night-mayor-eric-adams.html
 `In a 13-inning loss to the Marlins, the Twins stranded 11 of 15 base runners from the seventh inning on. Their playoff chances are slim.`\
 https://nytimes.com/athletic/5798661/2024/09/27/twins-runners-scoring-position-playoffs/
 
-**Arsenal have reached the Champions League group stage - this is what it means**\
-`Progress is vital from both a sporting and financial perspective after club built a squad to compete on all fronts`\
-https://nytimes.com/athletic/5797966/2024/09/27/arsenal-women-champions-league-group-stage/
+**Word of the Day: curtailment**\
+`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/27/learning/word-of-the-day-curtailment.html
 
