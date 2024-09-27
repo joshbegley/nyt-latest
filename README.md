@@ -1,3 +1,7 @@
+**What to Know About Homeowners Insurance After Hurricane Helene**\
+`If your home has been damaged, you may be at the beginning of a long process.`\
+https://nytimes.com/2024/09/27/business/hurricane-helene-homeowners-insurance.html
+
 **OpenAI Is Growing Fast and Burning Through Piles of Money**\
 `As the company looks for more outside investors, documents reviewed by The New York Times show consumer fascination with ChatGPT and a serious need for more cash.`\
 https://nytimes.com/2024/09/27/technology/openai-chatgpt-investors-funding.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5796437/2024/09/27/caitlin-clark-wnba-rookie-of-the
 **Maggie Smith Was Imperious in the Most Delightful Way**\
 `Throughout her career and on “Downton Abbey,” she perfected the role of the commanding Englishwoman with an arrow-sharp wit.`\
 https://nytimes.com/2024/09/27/movies/maggie-smith-appraisal.html
-
-**Transcript: Ezra Klein Interviews Emily Jashinsky**\
-`The Sept. 27. 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/09/27/podcasts/transcript-ezra-klein-interviews-emily-jashinsky.html
 
