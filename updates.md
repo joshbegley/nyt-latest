@@ -1,3 +1,11 @@
+**Democrats See a Chance to Beat Trump on Judicial Confirmations**\
+`They hope to use the time after the election to approve judges, but Senator Durbin says their aggressive efforts have already produced a remarkable demographic shift on the federal courts.`\
+https://nytimes.com/2024/09/27/us/politics/trump-democrats-judges.html
+
+**Billie Jean King receives Congressional Gold Medal**\
+`King earned the honor for "championing equal rights for all, in sports and in society," the White House said.`\
+https://nytimes.com/athletic/5799734/2024/09/27/billie-jean-king-congressional-gold-medal/
+
 **As Mark Robinson’s Campaign Crumbles, North Carolina Republicans Seethe**\
 `The scandal surrounding Mr. Robinson has incensed party officials and donors, some of whom described longstanding concerns about his campaign.`\
 https://nytimes.com/2024/09/27/us/as-mark-robinsons-campaign-crumbles-north-carolina-republicans-seethe.html

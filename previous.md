@@ -1,3 +1,11 @@
+**Democrats See a Chance to Beat Trump on Judicial Confirmations**\
+`They hope to use the time after the election to approve judges, but Senator Durbin says their aggressive efforts have already produced a remarkable demographic shift on the federal courts.`\
+https://nytimes.com/2024/09/27/us/politics/trump-democrats-judges.html
+
+**Billie Jean King receives Congressional Gold Medal**\
+`King earned the honor for "championing equal rights for all, in sports and in society," the White House said.`\
+https://nytimes.com/athletic/5799734/2024/09/27/billie-jean-king-congressional-gold-medal/
+
 **As Mark Robinson’s Campaign Crumbles, North Carolina Republicans Seethe**\
 `The scandal surrounding Mr. Robinson has incensed party officials and donors, some of whom described longstanding concerns about his campaign.`\
 https://nytimes.com/2024/09/27/us/as-mark-robinsons-campaign-crumbles-north-carolina-republicans-seethe.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/27/world/middleeast/beirut-lebanon-israeli-strikes-h
 **Atlanta was spared a direct hit, but at least 11 people died across Georgia.**\
 `Flooding inundated some neighborhoods in the state capital, and nearly a dozen people died in communities elsewhere in Georgia.`\
 https://nytimes.com/2024/09/27/weather/atlanta-hurricane-helene-flooding-georgia-deaths.html
-
-**Maggie Smith: A Life in Pictures**\
-`She had a long, award-winning career as a screen and stage actress, finally becoming a household name with her memorable turn in “Downton Abbey.”`\
-https://nytimes.com/2024/09/27/arts/maggie-smith-photos.html
-
-**Big Business Backed Mayor Eric Adams. Now It Waits to Learn His Fate.**\
-`New York’s business sector is concerned that the possible removal of Mr. Adams from office would leave it without one of its biggest boosters.`\
-https://nytimes.com/2024/09/27/nyregion/eric-adams-business-indictment.html
 
