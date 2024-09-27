@@ -1,4 +1,4 @@
-**U.S.-led Coalition in Iraq to Wind Down Its Mission**\
+**U.S.-Led Coalition in Iraq to Wind Down Its Mission**\
 `The United States has 2,500 troops in Iraq who served as a bulwark against attacks by an insurgent Islamic State.`\
 https://nytimes.com/2024/09/27/world/middleeast/us-coalition-iraq-isis.html
 
@@ -14,9 +14,9 @@ https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/israel-
 `The government is trying to cancel a plea deal for Khalid Shaikh Mohammed, accused of masterminding the attacks. But a clause in the agreement may stop prosecutors from reinstating a capital case.`\
 https://nytimes.com/2024/09/27/us/politics/sept-11-death-penalty-ksm.html
 
-**Iran’s supreme leader holds an emergency meeting after Israel targets Hezbollah’s chief in an attack.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/iran-emergency-meeting-hezbollah
+**Iran’s Supreme Leader Holds Emergency Meeting After Israel Attacks Lebanon**\
+`Israel’s airstrikes south of Beirut flattened several buildings and targeted Hezbollah’s leader, Hassan Nasrallah.`\
+https://nytimes.com/2024/09/27/world/middleeast/iran-emergency-meeting-hezbollah.html
 
 **Prime Tire: The Athletic's F1 writers reflect on Daniel Ricciardo's legacy**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter. `\

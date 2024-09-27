@@ -1,3 +1,11 @@
+**U.S.-Led Coalition in Iraq to Wind Down Its Mission**\
+`The United States has 2,500 troops in Iraq who served as a bulwark against attacks by an insurgent Islamic State.`\
+https://nytimes.com/2024/09/27/world/middleeast/us-coalition-iraq-isis.html
+
+**Iran’s Supreme Leader Holds Emergency Meeting After Israel Attacks Lebanon**\
+`Israel’s airstrikes south of Beirut flattened several buildings and targeted Hezbollah’s leader, Hassan Nasrallah.`\
+https://nytimes.com/2024/09/27/world/middleeast/iran-emergency-meeting-hezbollah.html
+
 **U.S.-led Coalition in Iraq to Wind Down Its Mission**\
 `The United States has 2,500 troops in Iraq who served as a bulwark against attacks by an insurgent Islamic State.`\
 https://nytimes.com/2024/09/27/world/middleeast/us-coalition-iraq-isis.html
