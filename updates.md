@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**UWCL group stage: Man City draw Barcelona, Arsenal face Bayern**\
+`Manchester City will play back-to-back winners Barcelona in the group stage of the Women&#8217;s Champions League (UWCL) while Arsenal face Frauen-Bundesliga champions Bayern Munich.`\
+https://nytimes.com/athletic/5798928/2024/09/27/womens-champions-league-group-stage-draw-2024-25/
+
 **Monica Puig's journey from tennis Olympic gold to the Ironman World Championships**\
 `Injury forced the Olympic gold medalist to retire from tennis at 28. Now she has completed one of the toughest endurance races there is.`\
 https://nytimes.com/athletic/5794382/2024/09/27/monica-puig-tennis-ironman/
