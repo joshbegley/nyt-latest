@@ -1,7 +1,3 @@
-**I’ve Lived With Hurricanes for Years. The Decisions Keep Getting Harder.**\
-`More than the sheer repetition of extreme weather, the stakes have grown — for our homes, our communities and our lives.`\
-https://nytimes.com/2024/09/27/opinion/hurricane-helene-damage-florida-georgia-south-carolina.html
-
 **Helene Has Killed at Least 14 People in Three States**\
 `Seven of the deaths have been in Florida, six in Georgia and one in North Carolina, and officials in the South said the toll was likely to rise.`\
 https://nytimes.com/2024/09/27/weather/helene-deaths.html
