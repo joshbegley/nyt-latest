@@ -1,40 +1,40 @@
+**Ranking each Premier League club for 'dark arts'**\
+`Mystery injuries, delaying tactics, busy medics... every club bends rules where they can, but who are the best (and worst) exponents?`\
+https://nytimes.com/athletic/5788866/2024/09/27/premier-league-club-dark-arts-ranked/
+
+**How to stop Arsenal scoring from corners: Hybrid marking, better grappling and an active keeper**\
+`Plenty of teams have tried and failed to stop Arsenal from scoring from corners, so what approach should opponents be taking?`\
+https://nytimes.com/athletic/5795988/2024/09/27/stopping-arsenal-scoring-corners/
+
+**Gannon is one of Chelsea's most important hires - and defining figure in Bridge future**\
+`Chelsea have promoted Jason Gannon — this is the importance of his role at the west London club`\
+https://nytimes.com/athletic/5795906/2024/09/27/jason-gannon-chelsea-profile-stamford-bridge/
+
+**Thousands Protest in Manhattan Ahead of Netanyahu’s U.N. Speech**\
+`About a dozen people were arrested as demonstrators moved through the streets, condemning the Israeli prime minister over the country’s strikes on Lebanon and Gaza.`\
+https://nytimes.com/2024/09/27/nyregion/netanyahu-un-speech-protest-nyc.html
+
+**Full-backs moving into midfield: The many different interpretations**\
+`With so many players interpreting the role in so many different ways, it's time to differentiate the use of these players more precisely`\
+https://nytimes.com/athletic/5796256/2024/09/27/full-backs-moving-into-midfield-the-many-different-interpretations/
+
+**Row Z: Ten Hag hot takes, Arteta on facts not words, and protecting Hearts' assets**\
+`Tim Spiers' weekly look at the lighter side of football, featuring Guardiola's influence and Sheffield Wednesday's pre-paid kit`\
+https://nytimes.com/athletic/5796386/2024/09/27/ten-hag-united-arteta-dark-arts-row-z/
+
+**Friday Briefing: Mayor’s Adams’s Arraignment**\
+`Plus, control behind K-pop goes public.`\
+https://nytimes.com/2024/09/27/briefing/mayor-eric-adams-israel-hezbollah-us-election.html
+
+**Next week’s waiver wire: Tyler Badie, Noah Brown and more players to add now — before the Week 5 rush**\
+`John Laghezza points you towards his top expected future waiver wire plays, with a Denver backup running back catching his eye this week.`\
+https://nytimes.com/athletic/5796566/2024/09/27/next-weeks-waiver-wire-tyler-badie-noah-brown-and-more-players-to-add-now-before-the-week-5-rush/
+
 **Steve Cooper is already at a crossroads at Leicester - how vulnerable is he?**\
 `With some fans turning, should the Leicester manager be worried?`\
 https://nytimes.com/athletic/5796446/2024/09/27/steve-cooper-leicester-crossroads/
 
-**This Is What Can Land You in Jail for Sedition in Hong Kong**\
-`Three men were the first to be convicted under the city’s recently expanded national security law, which has greatly curtailed political speech.`\
-https://nytimes.com/2024/09/27/world/asia/hong-kong-article-23-sedition.html
-
-**He Was Open to Love — but Kept His Job a Secret**\
-`After Jonathan Filiberto, a medium known as Jonathan Mark, matched with Jessica Rega on a dating app, it took months before he shared what he did for a living.`\
-https://nytimes.com/2024/09/27/style/jessica-rega-jonathan-filiberto-wedding.html
-
-**I Decentered Men. Decentering Desire for Men Is Harder.**\
-`Organizing my life around some idyllic future husband has always felt wrong to me.`\
-https://nytimes.com/2024/09/27/style/modern-love-decentering-men.html
-
-**It Was Risky to Hold a Wedding in Ukraine. They Did it Anyway.**\
-`Ethan Bregman asked Olha Beskhmelnytsina to be his girlfriend on Feb. 23, 2022. The next day, the world had changed.`\
-https://nytimes.com/2024/09/27/style/olha-beskhmelnytsina-ethan-bregman-wedding.html
-
-**An Unexpected Spark Leads to a Journey of Acceptance**\
-`The actress Jessica Phillips and Chelsea Nachman, a theatrical publicist, felt an instant attraction after first meeting six years ago. But it took a few years before their romance took off.`\
-https://nytimes.com/2024/09/27/style/chelsea-nachman-jessica-phillips-wedding.html
-
-**Friday's MLB best bets: Projections for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Friday's MLB games.`\
-https://nytimes.com/athletic/5797739/2024/09/27/mlb-odds-best-bets-projections-september-27/
-
-**He Tried to Date Two Men. He Wasn’t Very Good at It.**\
-`After getting caught in a moment right out of a rom-com, it was clear Kevin Turner had a choice to make. He chose Dr. Nicholas France.`\
-https://nytimes.com/2024/09/27/style/kevin-turner-nicholas-france-wedding.html
-
-**What’s at Stake in Austria’s General Election**\
-`Austrians will head to the polls on Sunday to elect a new Parliament, with the Freedom Party in position to potentially form a far-right government for the first time since World War II.`\
-https://nytimes.com/2024/09/27/world/europe/austria-general-election-freedom-party.html
-
-**Now They’re Dance Partners for Life**\
-`Grayson Warrick is the son of a retired ballet dancer. Alyssa Hubbard grew up dancing. And the two first met in preschool in New York.`\
-https://nytimes.com/2024/09/27/style/grayson-warrick-alyssa-hubbard-wedding.html
+**Has Max Verstappen been hit with a Leeds United curse?**\
+`Leeds United are regarded by their own fans as a cursed football club — has Max Verstappen fallen under the spell?`\
+https://nytimes.com/athletic/5788215/2024/09/27/max-verstappen-leeds-united-curse/
 
