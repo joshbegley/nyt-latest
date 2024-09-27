@@ -1,3 +1,7 @@
+**International Team storms back to tie U.S. in Presidents Cup**\
+`The Internationals, down 5-0 to start the day, won all five foursome matches to tie the Americans heading into Saturday.`\
+https://nytimes.com/athletic/5800123/2024/09/27/presidents-cup-2024-international-team-united-states-day-2/
+
 **Athlos NYC showed what's possible for track in America — but can the idea stick?**\
 `Athletes raved about Thursday's flashy event in New York that hoped to seize on post-Olympic buzz. But there's still a lot of work to do.`\
 https://nytimes.com/athletic/5799920/2024/09/27/athlos-nyc-track-olympics-gabby-thomas/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/5800029/2024/09/27/cleveland-browns-injuries-myles-
 `She inspired Niki de Saint Phalle to create the fantastical female avatars she called the Nanas. She also inspired her husband, Larry Rivers.`\
 https://nytimes.com/2024/09/27/arts/clarice-rivers-dead.html
 
-**Myles Garrett to play vs. Raiders, Cleveland missing both tackels and Njoku**\
+**Myles Garrett to play vs. Raiders; Cleveland missing both tackles and Njoku**\
 `Myles Garrett will play despite foot, thigh, and Achilles injuries. The Browns still have a long list of injured players missing Sunday.`\
 https://nytimes.com/athletic/5800002/2024/09/27/myles-garrett-browns-injuries/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/briefing/israel-hezbollah-leader-hurricane-helene
 **What to Know About Homeowners Insurance After Hurricane Helene**\
 `If your home has been damaged, you may be at the beginning of a long process.`\
 https://nytimes.com/2024/09/27/business/hurricane-helene-homeowners-insurance.html
-
-**OpenAI Is Growing Fast and Burning Through Piles of Money**\
-`As the company looks for more outside investors, documents reviewed by The New York Times show consumer fascination with ChatGPT and a serious need for more cash.`\
-https://nytimes.com/2024/09/27/technology/openai-chatgpt-investors-funding.html
 
