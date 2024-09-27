@@ -1,3 +1,7 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **UWCL group stage: Man City draw Barcelona, Arsenal face Bayern**\
 `Manchester City will play back-to-back winners Barcelona in the group stage of the Women&#8217;s Champions League (UWCL) while Arsenal face Frauen-Bundesliga champions Bayern Munich.`\
 https://nytimes.com/athletic/5798928/2024/09/27/womens-champions-league-group-stage-draw-2024-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5797973/2024/09/27/blackhawks-max-shalunov-nhl-pros
 **Lowetide: How much more can Connor Brown contribute to Oilers this season?**\
 `There are strong odds Brown will soar past last season's offensive production in 2024-25.`\
 https://nytimes.com/athletic/5792332/2024/09/27/connor-brown-oilers-stats/
-
-**Bruins preseason depth chart 2.0: Brad Marchand makes his feelings clear**\
-`It’s a good bet that, as captain, Marchand has informed his boss what kind of player he and Charlie Coyle prefer as a linemate.`\
-https://nytimes.com/athletic/5797214/2024/09/27/bruins-preseason-depth-chart-marchand/
 
