@@ -1,3 +1,15 @@
+**Transcript: Ezra Klein Interviews Emily Jashinsky**\
+`The Sept. 27. 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/09/27/podcasts/transcript-ezra-klein-interviews-emily-jashinsky.html
+
+**Biden Officials Stave Off Sticker Shock on Medicare Drug Premiums**\
+`Federal regulators spent billions of dollars to avoid a spike in costs for older Americans that could have been politically damaging to the presidential campaign of Vice President Kamala Harris.`\
+https://nytimes.com/2024/09/27/health/medicare-drug-prices-harris-biden.html
+
+**Agents Seize Phone From Adams’s Top Adviser and Subpoena Her**\
+`Ingrid Lewis-Martin has been close to Mayor Eric Adams for decades, and has cultivated a reputation as a ruthless political actor.`\
+https://nytimes.com/2024/09/27/nyregion/ingrid-lewis-martin-phone-searched-adams.html
+
 **Raiders' Adams (hamstring), Crosby (ankle) out vs. Browns**\
 `Coach Antonio Pierce announced Maxx Crosby and Davante Adams will take the week off while they deal with injuries.`\
 https://nytimes.com/athletic/5799780/2024/09/27/raiders-davante-adams-maxx-crosby-injuries-browns/
