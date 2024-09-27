@@ -1,3 +1,27 @@
+**U.S.-led Coalition in Iraq to Wind Down Its Mission**\
+`The United States has 2,500 troops in Iraq who served as a bulwark against attacks by an insurgent Islamic State.`\
+https://nytimes.com/2024/09/27/world/middleeast/us-coalition-iraq-isis.html
+
+**Juan Soto meets with Hal Steinbrenner, says Yankees owner ‘really cares for players’**\
+`“It was good to get to know the owner,” Soto said about the July meeting. “Get to see what he’s thinking about me and everything.”`\
+https://nytimes.com/athletic/5786017/2024/09/27/juan-soto-free-agency-hal-steinbrenner-yankees/
+
+**Israel struck after learning of a Hezbollah leadership meeting, officials say.**\
+`By Ronen Bergman`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/israel-struck-after-learning-of-a-hezbollah-leadership-meeting-officials-say
+
+**Death Penalty May Be Off Table for 9/11 Suspect No Matter How Case Unfolds**\
+`The government is trying to cancel a plea deal for Khalid Shaikh Mohammed, accused of masterminding the attacks. But a clause in the agreement may stop prosecutors from reinstating a capital case.`\
+https://nytimes.com/2024/09/27/us/politics/sept-11-death-penalty-ksm.html
+
+**Iran’s supreme leader holds an emergency meeting after Israel targets Hezbollah’s chief in an attack.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/iran-emergency-meeting-hezbollah
+
+**‘That’s a Lot of Diamonds’: Trump Lends Name to $100,000 Watch**\
+`A line of luxury watches was promoted by former President Donald J. Trump for its gold and its price tag. Watch experts are less enthusiastic about the quality.`\
+https://nytimes.com/2024/09/27/style/trump-watches.html
+
 **Iran’s supreme leader holds an emergency meeting after Israel targets Hezbollah’s chief in an attack.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/irans-supreme-leader-holds-an-emergency-meeting-after-israel-targets-hezbollahs-chief-in-an-attack
