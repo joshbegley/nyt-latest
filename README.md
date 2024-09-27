@@ -1,3 +1,7 @@
+**Good news: Cowboys stop the run and likely dodge significant injuries to Parsons, Lawrence**\
+`Micah Parsons and DeMarcus Lawrence left with injuries Thursday, but both sounded optimistic they would be ready to play at Pittsburgh.`\
+https://nytimes.com/athletic/5798780/2024/09/27/cowboys-defense-micah-parsons-demarcus-lawrence-injury-update/
+
 **Helene Roars on After Lashing Florida, and the Charges Facing Eric Adams**\
 `Plus, Batman joins the Hollywood Walk of Fame.`\
 https://nytimes.com/2024/09/27/podcasts/hurricane-helene-eric-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/podcasts/the-daily/new-york-mayor-indicted.html
 **Falcons' third-down woes can't get much worse, but help is coming: 5 factors**\
 `Atlanta quarterback Kirk Cousins will play in the rivalry against New Orleans for the first time on Sunday.`\
 https://nytimes.com/athletic/5797471/2024/09/27/falcons-kirk-cousins-third-down-saints/
-
-**Wordle Review No. 1,197**\
-`Scroll down for hints and conversation about the puzzle for September 28, 2024`\
-https://nytimes.com/2024/09/27/crosswords/wordle-review-1197.html
 
