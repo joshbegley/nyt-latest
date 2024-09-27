@@ -1,3 +1,19 @@
+**Maggie Smith’s Influence Rippled to the Cocktail Hour**\
+`In 2011, a New York bartender paid tribute to the actor with a sly tweak to a pre-Prohibition cocktail.`\
+https://nytimes.com/2024/09/27/dining/maggie-smith-cocktail-between-the-sheets.html
+
+**Calling ‘Survivor’ Contestants From Tim Walz’s Motorcade**\
+`Covering an election year can be stressful. But instead of binge-watching “Survivor” to decompress, two reporters wrote about the politics — or, lack thereof — on the show instead.`\
+https://nytimes.com/2024/09/27/insider/survivor-contestants.html
+
+**What Helene Will Bring Next**\
+`Though risks will remain over the next day or so, they will be much less significant.`\
+https://nytimes.com/2024/09/27/weather/helene-forecast-friday-north-carolina.html
+
+**Helene’s rising tides brought record-breaking storm surges to Tampa Bay.**\
+`Tampa Bay’s low-lying communities were already vulnerable to rising sea levels. Helene came in with a record-breaking storm surge.`\
+https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/helenes-rising-tides-brought-record-breaking-storm-surges-to-tampa-bay
+
 **International Team storms back to tie U.S. in Presidents Cup**\
 `The Internationals, down 5-0 to start the day, won all five foursome matches to tie the Americans heading into Saturday.`\
 https://nytimes.com/athletic/5800123/2024/09/27/presidents-cup-2024-international-team-united-states-day-2/

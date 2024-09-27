@@ -1,3 +1,19 @@
+**Maggie Smith’s Influence Rippled to the Cocktail Hour**\
+`In 2011, a New York bartender paid tribute to the actor with a sly tweak to a pre-Prohibition cocktail.`\
+https://nytimes.com/2024/09/27/dining/maggie-smith-cocktail-between-the-sheets.html
+
+**Calling ‘Survivor’ Contestants From Tim Walz’s Motorcade**\
+`Covering an election year can be stressful. But instead of binge-watching “Survivor” to decompress, two reporters wrote about the politics — or, lack thereof — on the show instead.`\
+https://nytimes.com/2024/09/27/insider/survivor-contestants.html
+
+**What Helene Will Bring Next**\
+`Though risks will remain over the next day or so, they will be much less significant.`\
+https://nytimes.com/2024/09/27/weather/helene-forecast-friday-north-carolina.html
+
+**Helene’s rising tides brought record-breaking storm surges to Tampa Bay.**\
+`Tampa Bay’s low-lying communities were already vulnerable to rising sea levels. Helene came in with a record-breaking storm surge.`\
+https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/helenes-rising-tides-brought-record-breaking-storm-surges-to-tampa-bay
+
 **International Team storms back to tie U.S. in Presidents Cup**\
 `The Internationals, down 5-0 to start the day, won all five foursome matches to tie the Americans heading into Saturday.`\
 https://nytimes.com/athletic/5800123/2024/09/27/presidents-cup-2024-international-team-united-states-day-2/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5799245/2024/09/27/enzo-maresca-chelsea-players/
 **Browns rule out 4 players for Sunday, Myles Garrett to suit up**\
 `The Browns and Raiders will kick on Sunday at 4:25 p.m. ET.`\
 https://nytimes.com/athletic/5800029/2024/09/27/cleveland-browns-injuries-myles-garrett/
-
-**Clarice Rivers, Earthy Muse of Two Artists, Dies at 88**\
-`She inspired Niki de Saint Phalle to create the fantastical female avatars she called the Nanas. She also inspired her husband, Larry Rivers.`\
-https://nytimes.com/2024/09/27/arts/clarice-rivers-dead.html
-
-**Myles Garrett to play vs. Raiders; Cleveland missing both tackles and Njoku**\
-`Myles Garrett will play despite foot, thigh, and Achilles injuries. The Browns still have a long list of injured players missing Sunday.`\
-https://nytimes.com/athletic/5800002/2024/09/27/myles-garrett-browns-injuries/
-
-**Israel Targeted Hezbollah’s Leader in a Strike Near Beirut**\
-`Also, Hurricane Helene destroyed large swaths of the Southeast. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/09/27/briefing/israel-hezbollah-leader-hurricane-helene-destruction.html
-
-**What to Know About Homeowners Insurance After Hurricane Helene**\
-`If your home has been damaged, you may be at the beginning of a long process.`\
-https://nytimes.com/2024/09/27/business/hurricane-helene-homeowners-insurance.html
 
