@@ -1,3 +1,11 @@
+**Kentucky to Distribute Weather Alert Radios to the Hard of Hearing**\
+`Gov. Andy Beshear announced a program to distribute the special weather alert radios free as the state braced for the remnants of Hurricane Helene.`\
+https://nytimes.com/2024/09/27/us/kentucky-deaf-weather-alert-radio.html
+
+**Israeli officials say the Lebanon strikes were aimed at breaking Hezbollah by killing its leaders.**\
+`Dewar`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/israeli-officials-say-the-lebanon-strikes-were-aimed-at-breaking-hezbollah-by-killing-its-leaders
+
 **LA Clippers, Terance Mann agree to 3-year extension**\
 `Mann, 27, has played all five years of his career with the Clippers and will now be under contract through the 2027-28 season.`\
 https://nytimes.com/athletic/5800325/2024/09/27/clippers-terance-mann-contract-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5800211/2024/09/27/daniel-ricciardo-exit-f1-prime-t
 **Hurricane Helene Leaves Huge Swaths of Damage in Its Wake**\
 `More than 40 people were reported dead in four states as the huge storm spawned flash floods and landslides on its way north after devastating parts of Florida’s Gulf Coast.`\
 https://nytimes.com/2024/09/27/us/hurricane-helene-damage-florida-north-carolina.html
-
-**Martinez handed two-game ban for trophy groin gesutre and camera slap**\
-`Argentina goalkeeper Emiliano Martinez has been suspended for two games by FIFA&#8217;s disciplinary committee.`\
-https://nytimes.com/athletic/5800206/2024/09/27/emi-martinez-suspension-argentina-fifa/
-
-**‘That’s a Lot of Diamonds’: Trump Lends Name to $100,000 Watch**\
-`A line of luxury watches was promoted by former President Donald J. Trump for its gold and its price tag. Watch experts are less enthusiastic about the quality.`\
-https://nytimes.com/2024/09/27/style/trump-watches.html
 

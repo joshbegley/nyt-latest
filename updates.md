@@ -1,3 +1,11 @@
+**Kentucky to Distribute Weather Alert Radios to the Hard of Hearing**\
+`Gov. Andy Beshear announced a program to distribute the special weather alert radios free as the state braced for the remnants of Hurricane Helene.`\
+https://nytimes.com/2024/09/27/us/kentucky-deaf-weather-alert-radio.html
+
+**Israeli officials say the Lebanon strikes were aimed at breaking Hezbollah by killing its leaders.**\
+`Dewar`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/israeli-officials-say-the-lebanon-strikes-were-aimed-at-breaking-hezbollah-by-killing-its-leaders
+
 **LA Clippers, Terance Mann agree to 3-year extension**\
 `Mann, 27, has played all five years of his career with the Clippers and will now be under contract through the 2027-28 season.`\
 https://nytimes.com/athletic/5800325/2024/09/27/clippers-terance-mann-contract-extension/
