@@ -1,3 +1,15 @@
+**Justin Herbert questionable vs. Chiefs; Bosa, Slater ruled out**\
+`In addition, edge rusher Joey Bosa (hip) and left tackle Rashawn Slater (pec) have been ruled out for Sunday.`\
+https://nytimes.com/athletic/5800376/2024/09/27/chargers-justin-herbert-injuries/
+
+**Adam Scott is speaking. After Day 2 of the Presidents Cup, everybody is listening**\
+`The authentic Scott has made the International Team a priority for 21 years. Can he lead the group to a win this weekend?`\
+https://nytimes.com/athletic/5800385/2024/09/27/adam-scott-presidents-cup-international-team/
+
+**At least four large apartment buildings were destroyed by Israeli strikes, videos show.**\
+`By Christiaan Triebert, Devon Lum and Aric Toler`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/at-least-four-large-apartment-buildings-were-destroyed-by-israeli-strikes-videos-show
+
 **Kentucky to Distribute Weather Alert Radios to the Hard of Hearing**\
 `Gov. Andy Beshear announced a program to distribute the special weather alert radios free as the state braced for the remnants of Hurricane Helene.`\
 https://nytimes.com/2024/09/27/us/kentucky-deaf-weather-alert-radio.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/israel-
 **Death Penalty May Be Off Table for 9/11 Suspect No Matter How Case Unfolds**\
 `The government is trying to cancel a plea deal for Khalid Shaikh Mohammed, accused of masterminding the attacks. But a clause in the agreement may stop prosecutors from reinstating a capital case.`\
 https://nytimes.com/2024/09/27/us/politics/sept-11-death-penalty-ksm.html
-
-**Iran’s Supreme Leader Holds Emergency Meeting After Israel Attacks Lebanon**\
-`Israel’s airstrikes south of Beirut flattened several buildings and targeted Hezbollah’s leader, Hassan Nasrallah.`\
-https://nytimes.com/2024/09/27/world/middleeast/iran-emergency-meeting-hezbollah.html
-
-**Prime Tire: The Athletic's F1 writers reflect on Daniel Ricciardo's legacy**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter. `\
-https://nytimes.com/athletic/5800211/2024/09/27/daniel-ricciardo-exit-f1-prime-tire/
-
-**Hurricane Helene Leaves Huge Swaths of Damage in Its Wake**\
-`More than 40 people were reported dead in four states as the huge storm spawned flash floods and landslides on its way north after devastating parts of Florida’s Gulf Coast.`\
-https://nytimes.com/2024/09/27/us/hurricane-helene-damage-florida-north-carolina.html
 
