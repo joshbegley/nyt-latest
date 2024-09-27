@@ -1,3 +1,11 @@
+**Arsenal have reached the Champions League group stage - this is what it means**\
+`Progress is vital from both a sporting and financial perspective after club built a squad to compete on all fronts`\
+https://nytimes.com/athletic/5797966/2024/09/27/arsenal-women-champions-league-group-stage/
+
+**Word of the Day: curtailment**\
+`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/27/learning/word-of-the-day-curtailment.html
+
 **China Stocks Soar in Biggest Single-Week Jump Since 2008**\
 `Economic stimulus moves by China’s leaders triggered a broad rally in trading in Shanghai and Shenzhen.`\
 https://nytimes.com/2024/09/27/business/asia-stocks-csi-300.html
