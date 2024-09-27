@@ -1,3 +1,11 @@
+**Maggie Smith Brought Sharp-Tongued Wit Stateside**\
+`Americans are experts in the comedy of bluster, as many of our late night hosts can attest. We’re less practiced in precision.`\
+https://nytimes.com/2024/09/25/opinion/maggie-smith-death.html
+
+**Trotter: WNBA and Cathy Engelbert face credibility issue regarding player harassment**\
+`With its players the targets of hate on social media and in arenas, the league has struggled to handle a problem that continues to worsen.`\
+https://nytimes.com/athletic/5797225/2024/09/27/wnba-caitlin-clark-cathy-engelbert-player-treatment-fans/
+
 **A Town Near Tallahassee Starts Picking Up the Pieces From Helene**\
 `Roofs tore off and windows blew in. Trees were down or snapped like matchsticks on a road into town.`\
 https://nytimes.com/2024/09/27/weather/helene-perry-florida-damage.html
