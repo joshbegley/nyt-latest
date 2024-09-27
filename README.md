@@ -1,3 +1,15 @@
+**The Fed’s Preferred Inflation Gauge Cooled in August**\
+`Inflation has been slowing for months, which has paved the way for Federal Reserve interest rates cuts.`\
+https://nytimes.com/2024/09/27/business/economy/fed-inflation-pce.html
+
+**Deal to Reopen Libya’s Central Bank Eases Fears of Renewed Conflict**\
+`A standoff over control of the bank had destabilized the country’s economy and raised the prospect of fresh fighting between Libya’s eastern and western factions.`\
+https://nytimes.com/2024/09/27/world/middleeast/libya-central-bank-reopen-agreement.html
+
+**Live Q&A: FPL Gameweek 6 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 5 Fantasy Premier League Q&A from 4pm UK time on Friday`\
+https://nytimes.com/athletic/5797185/2024/09/27/fantasy-premier-league-advice-injury-news-gw6/
+
 **Thompson: The A's are leaving Oakland — good riddance to an inept owner and MLB enablers**\
 `After years of John Fisher and MLB's heartless approach to the franchise, this heart has long run out of room for sentiment.`\
 https://nytimes.com/athletic/5798535/2024/09/27/oakland-as-final-game-coliseum-thompson/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5792974/2024/09/27/sf-giants-need-superstar-hitter/
 **FPL: The 'traps' to avoid this season and who to keep faith with**\
 `In a season which has shown the value of staying patient, The Athletic runs through the traps to avoid and the players to hold onto`\
 https://nytimes.com/athletic/5788676/2024/09/27/fantasy-premier-league-gw6-traps-madueke-onana-welbeck/
-
-**Raiders' Tyree Wilson can't fill Maxx Crosby's shoes, but his confidence is growing**\
-`“That’s where confidence comes from — technique,” Wilson said. “I am making plays in practice because my technique is right."`\
-https://nytimes.com/athletic/5798432/2024/09/27/raiders-tyree-wilson-maxx-crosby/
-
-**Bears mailbag: More touches for Roschon Johnson? Plus, Week 4 picks**\
-`The conversation about the offense has turned negative quickly. Can Chicago get back on track in Week 4 vs. the Rams?`\
-https://nytimes.com/athletic/5797655/2024/09/27/bears-mailbag-roschon-johnson-shane-waldron-week-4-picks/
-
-**Gordon close to agreeing new long-term Newcastle deal**\
-`Newcastle United are close to securing the future of winger Anthony Gordon by signing the 23-year-old to a new long-term contract.`\
-https://nytimes.com/athletic/5799008/2024/09/27/anthony-gordon-newcastle-contract/
 
