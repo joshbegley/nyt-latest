@@ -1,3 +1,7 @@
+**Martinez handed two-game ban for trophy groin gesutre and camera slap**\
+`Argentina goalkeeper Emiliano Martinez has been suspended for two games by FIFA&#8217;s disciplinary committee.`\
+https://nytimes.com/athletic/5800206/2024/09/27/emi-martinez-suspension-argentina-fifa/
+
 **The Latest Trump-Branded Gear? A $100,000 Watch.**\
 `A line of luxury watches was promoted by former President Donald J. Trump for its gold and its diamonds. Watch experts are less enthusiastic about the quality.`\
 https://nytimes.com/2024/09/27/style/trump-watches.html
