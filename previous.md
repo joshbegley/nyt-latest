@@ -1,3 +1,7 @@
+**Late Night Roasts New York Mayor Eric Adams Over His Indictment**\
+`Jimmy Fallon joked that it’s “always fun when the city mimics the exact plot of a Batman movie.”`\
+https://nytimes.com/2024/09/27/arts/television/late-night-mayor-eric-adams.html
+
 **With too many runners left on, Twins on verge of being left out**\
 `In a 13-inning loss to the Marlins, the Twins stranded 11 of 15 base runners from the seventh inning on. Their playoff chances are slim.`\
 https://nytimes.com/athletic/5798661/2024/09/27/twins-runners-scoring-position-playoffs/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/5797966/2024/09/27/arsenal-women-champions-league-g
 https://nytimes.com/2024/09/27/learning/word-of-the-day-curtailment.html
 
 **China Stocks Soar in Biggest Single-Week Jump Since 2008**\
-`Economic stimulus moves by China’s leaders triggered a broad rally in trading in Shanghai and Shenzhen.`\
+`Economic stimulus moves triggered a broad rally in trading in Shanghai and Shenzhen.`\
 https://nytimes.com/2024/09/27/business/asia-stocks-csi-300.html
 
 **Tottenham Briefing: Dragusin's missed chance, Johnson fires again and Vicario shines**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5790532/2024/09/27/luis-diaz-liverpool-rebooted/
 **FPL: Playing your wildcard this week? Here's what to consider**\
 `Our FPL expert is playing his wildcard this week and runs through the options he is weighing up before taking the plunge.`\
 https://nytimes.com/athletic/5791934/2024/09/27/fantasy-premier-league-wildcard-draft-strategies/
-
-**Why Adam Wharton has yet to spark Crystal Palace into life this season**\
-`Last season was the midfielder's first as a regular in senior football and was swiftly pursued by England selection and a place at Euro 2024`\
-https://nytimes.com/athletic/5789240/2024/09/27/wharton-palace-glasner-england/
 
