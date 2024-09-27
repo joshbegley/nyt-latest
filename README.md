@@ -1,3 +1,11 @@
+**As Mark Robinson’s Campaign Crumbles, North Carolina Republicans Seethe**\
+`The scandal surrounding Mr. Robinson has incensed party officials and donors, some of whom described longstanding concerns about his campaign.`\
+https://nytimes.com/2024/09/27/us/as-mark-robinsons-campaign-crumbles-north-carolina-republicans-seethe.html
+
+**‘Quiet Place’ in Pennsylvania Is Thrust Into Loud Immigration Debate**\
+`Former President Donald J. Trump turned his sights on Charleroi, Pa., where many Haitians have settled in recent years, and he fueled a fire that was already smoldering.`\
+https://nytimes.com/2024/09/27/us/charleroi-pennsylvania-haitian-migrants.html
+
 **Chappell Roan Cancels a Pair of Big Shows After Tumultuous Weeks**\
 `The pop star said things had “gotten overwhelming” and bowed out of festivals in New York and Maryland after a period in which her politics came under scrutiny.`\
 https://nytimes.com/2024/09/27/arts/music/chappell-roan-cancels-festival.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/27/arts/maggie-smith-photos.html
 **Big Business Backed Mayor Eric Adams. Now It Waits to Learn His Fate.**\
 `New York’s business sector is concerned that the possible removal of Mr. Adams from office would leave it without one of its biggest boosters.`\
 https://nytimes.com/2024/09/27/nyregion/eric-adams-business-indictment.html
-
-**A Florida Fishing Village, Rattled by Idalia, Suffers Another Devastating Blow**\
-`Homes were crumpled under the weight of trees, others left sodden by several feet of storm surge.`\
-https://nytimes.com/2024/09/27/weather/steinhatchee-hurricane-helene-damage.html
-
-**Strained by scandal and waning support, Mark Robinson is trying to soldier on.**\
-`The embattled lieutenant governor is campaigning in rainy North Carolina,`\
-https://nytimes.com/live/2024/09/27/us/harris-trump-election/mark-robinson-scandal-north-carolina-campaign
 
