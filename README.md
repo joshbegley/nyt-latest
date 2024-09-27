@@ -19,7 +19,7 @@ https://nytimes.com/2024/09/27/opinion/religion-gender-divide.html
 https://nytimes.com/2024/09/27/opinion/tiktok-frank-mccourt.html
 
 **Special Counsel Proposes Making Public More Evidence From Trump Election Case**\
-`The prosecutor is seeking to disclose quotations from secret grand jury testimony and interviews, but is proposing to shield witness identities.`\
+`Jack Smith is seeking to disclose quotations from secret grand jury testimony and interviews, but is proposing to shield witness identities.`\
 https://nytimes.com/2024/09/27/us/politics/evidence-trump-election-interference.html
 
 **Parsons suffers high-ankle sprain, Lawrence out with foot injury**\
