@@ -1,3 +1,7 @@
+**I Decentered Men. Decentering Desire for Men Is Harder.**\
+`Organizing my life around some idyllic future husband has always felt wrong to me.`\
+https://nytimes.com/2024/09/27/style/modern-love-decentering-men.html
+
 **Steve Cooper is already at a crossroads at Leicester - how vulnerable is he?**\
 `With some fans turning, should the Leicester manager be worried?`\
 https://nytimes.com/athletic/5796446/2024/09/27/steve-cooper-leicester-crossroads/
