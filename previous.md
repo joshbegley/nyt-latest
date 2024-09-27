@@ -22,7 +22,7 @@ https://nytimes.com/2024/09/27/us/los-angeles-lithium-battery-fire-ports.html
 `Shigeru Ishiba, a former defense minister more popular with the rank and file than with his lawmaker colleagues, had sought his party leadership four times before.`\
 https://nytimes.com/2024/09/27/world/asia/japan-new-prime-minister-shigeru-ishiba.html
 
-**City's Champions League return is overdue - how far can they go?**\
+**City's Women's Champions League return is overdue - how far can they go?**\
 `City are back where they feel they belong, but club executives feel this is only the start of their journey`\
 https://nytimes.com/athletic/5798241/2024/09/27/manchester-city-women-champions-league/
 

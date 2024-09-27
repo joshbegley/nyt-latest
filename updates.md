@@ -1,3 +1,7 @@
+**City's Women's Champions League return is overdue - how far can they go?**\
+`City are back where they feel they belong, but club executives feel this is only the start of their journey`\
+https://nytimes.com/athletic/5798241/2024/09/27/manchester-city-women-champions-league/
+
 **Melting Man**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/09/27/learning/melting-man.html
