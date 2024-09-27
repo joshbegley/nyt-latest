@@ -1,3 +1,11 @@
+**Joyce Becomes the Third Atlantic Tropical Storm to Form in a Week**\
+`The storm follows Helene and Isaac in a busy few days. It is not currently a threat to land.`\
+https://nytimes.com/live/2024/09/27/weather/tropical-storm-joyce-hurricane
+
+**Who does what on Pochettino's USMNT backroom staff?**\
+`There are some elite managers who change their staff from job to job, but Pochettino is not one of them - he has a trusted team behind him`\
+https://nytimes.com/athletic/5714459/2024/09/27/pochettino-usmnt-staff-methods/
+
 **MLB's 10 biggest disappointments of the 2024 season**\
 `It's been another exciting MLB season, but of course it hasn't all been positive. Some teams and players in particular stand out. `\
 https://nytimes.com/athletic/5798926/2024/09/27/mlb-biggest-disappointments-2024-whitesox-bluejays-mariners/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5799292/2024/09/27/ufc-settlement-antitrust-lawsuit
 **Thailand’s Chiang Rai, Where Artists Go to Find Peace**\
 `Four insiders on where to stay, eat “micro-seasonal” dishes and shop for handmade pottery and textiles.`\
 https://nytimes.com/2024/09/27/t-magazine/chiang-rai-thailand-guide.html
-
-**Zha Jiang Mian, Porky and Rich, Salty-Sweet and Satisfying**\
-`It’s the sort of meal you ought to make after a day of airline snacks or conference-room repasts, and definitely on Friday nights.`\
-https://nytimes.com/2024/09/27/dining/zha-jiang-mian-porky-and-rich-salty-sweet-and-satisfying.html
-
-**The Ultimate Celebrity Photographer**\
-`In a declining business, Kevin Mazur has thrived by gaining the trust of Beyoncé, Madonna and Taylor Swift. His motto: “Why wouldn’t you want to make people look good?”`\
-https://nytimes.com/2024/09/27/style/kevin-mazur-photographer-beyonce-taylor-swift.html
 
