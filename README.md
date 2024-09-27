@@ -1,3 +1,15 @@
+**Transcript: Ezra Klein Interviews Emily Jashinsky**\
+`The Sept. 27. 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/09/27/podcasts/transcript-ezra-klein-interviews-emily-jashinsky.html
+
+**Biden Officials Stave Off Sticker Shock on Medicare Drug Premiums**\
+`Federal regulators spent billions of dollars to avoid a spike in costs for older Americans that could have been politically damaging to the presidential campaign of Vice President Kamala Harris.`\
+https://nytimes.com/2024/09/27/health/medicare-drug-prices-harris-biden.html
+
+**Agents Seize Phone From Adams’s Top Adviser and Subpoena Her**\
+`Ingrid Lewis-Martin has been close to Mayor Eric Adams for decades, and has cultivated a reputation as a ruthless political actor.`\
+https://nytimes.com/2024/09/27/nyregion/ingrid-lewis-martin-phone-searched-adams.html
+
 **Raiders' Adams (hamstring), Crosby (ankle) out vs. Browns**\
 `Coach Antonio Pierce announced Maxx Crosby and Davante Adams will take the week off while they deal with injuries.`\
 https://nytimes.com/athletic/5799780/2024/09/27/raiders-davante-adams-maxx-crosby-injuries-browns/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/27/business/energy-environment/citgo-venezuela-ellio
 **Inside Columbus Crew's visit to the White House**\
 `Wilfried Nancy has become the first Black head coach of an MLS team to visit the White House - their day in the Oval Office carries weight`\
 https://nytimes.com/athletic/5799764/2024/09/27/columbus-crew-white-house-biden-nancy/
-
-**Robert F. Kennedy Jr. Won’t Be on New York Ballot, Supreme Court Rules**\
-`The candidate had asked the justices to intervene after a state judge found that he had used an improper home address in election paperwork.`\
-https://nytimes.com/2024/09/27/us/politics/robert-f-kennedy-jr-new-york-ballot-supreme-court.html
-
-**NHL waiver tracker: Best players on the wire throughout preseason**\
-`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
-https://nytimes.com/athletic/5799672/2024/09/27/nhl-waivers-tracker-preseason/
-
-**Pistons owner Gores agrees to buy 27 percent of Chargers: Source**\
-`The agreement is subject to approval by NFL owners next month.`\
-https://nytimes.com/athletic/5799731/2024/09/27/piston-owner-tom-gores-buys-stake-chargers/
 
