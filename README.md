@@ -1,3 +1,7 @@
+**Adams Lawyer Alex Spiro Has a Long Roster of Celebrity Clients**\
+`The former prosecutor represented the owner of the New England Patriots and is now Elon Musk’s personal lawyer.`\
+https://nytimes.com/2024/09/27/nyregion/alex-spiro-eric-adams-lawyer.html
+
 **Possible Cluster of Human Bird-Flu Infections Expands in Missouri**\
 `Seven people in contact with a patient hospitalized with bird flu also developed symptoms, the C.D.C. reported. Some are undergoing further tests.`\
 https://nytimes.com/2024/09/27/health/bird-flu-cluster-missouri.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5778668/2024/09/27/premier-league-predicted-line-up
 **All-time leading goal scorer Christine Sinclair announces retirement**\
 `Sinclair ends her career leading all men and women in international goals`\
 https://nytimes.com/athletic/5798259/2024/09/27/christine-sinclair-portland-thorns-retirement/
-
-**I’ve Lived With Hurricanes for Years. The Decisions Keep Getting Harder.**\
-`More than the sheer repetition of extreme weather, the stakes have grown — for our homes, our communities and our lives.`\
-https://nytimes.com/2024/09/27/opinion/hurricane-helene-damage-florida-georgia-south-carolina.html
 
