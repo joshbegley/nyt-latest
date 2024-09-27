@@ -1,3 +1,7 @@
+**At a Barrier Island in Florida, Helene Brought ‘a Solid Wall of Water’**\
+`The hurricane passed far to the north but did enough damage in St. Pete Beach that some there began realizing what a direct hit could have done.`\
+https://nytimes.com/2024/09/27/weather/helene-damage-stpete-beach-florida.html
+
 **In Less Than 20 Minutes, Eric Adams Formally Enters Legal Limbo**\
 `During his arraignment, New York’s typically lively mayor was stoic and stone faced. Months of legal entanglements lie ahead.`\
 https://nytimes.com/2024/09/27/nyregion/eric-adams-court-appearance.html
