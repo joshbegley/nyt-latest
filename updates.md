@@ -1,3 +1,19 @@
+**DeVonta Smith out, A.J. Brown questionable for Eagles Sunday vs. Bucs**\
+`The Philadelphia Eagles may be without their top two wide receivers Sunday as they head down to Tampa Bay.`\
+https://nytimes.com/athletic/5799923/2024/09/27/devonta-smith-aj-brown-eagles/
+
+**Guardiola invites Arteta to explain cryptic City comments**\
+`Pep Guardiola has invited Mikel Arteta to explain his comment about being at Manchester City for four years and therefore knowing what happens at the club.`\
+https://nytimes.com/athletic/5799357/2024/09/27/pep-guardiola-mikel-arteta-city-arsenal/
+
+**Maresca calls on Chelsea players to attend matches even when not selected**\
+`Enzo Maresca has told his Chelsea players they must attend home games even if they have not been selected in the matchday squad.`\
+https://nytimes.com/athletic/5799245/2024/09/27/enzo-maresca-chelsea-players/
+
+**Browns rule out 4 players for Sunday, Myles Garrett to suit up**\
+`The Browns and Raiders will kick on Sunday at 4:25 p.m. ET.`\
+https://nytimes.com/athletic/5800029/2024/09/27/cleveland-browns-injuries-myles-garrett/
+
 **Clarice Rivers, Earthy Muse of Two Artists, Dies at 88**\
 `She inspired Niki de Saint Phalle to create the fantastical female avatars she called the Nanas. She also inspired her husband, Larry Rivers.`\
 https://nytimes.com/2024/09/27/arts/clarice-rivers-dead.html
