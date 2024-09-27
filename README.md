@@ -1,3 +1,7 @@
+**Blum: The Angels have given little reason for optimism after embarrassing season**\
+`A season this terrible should do nothing but add skepticism and shred credibility for the vague blueprint the Angels have been advertising.`\
+https://nytimes.com/athletic/5798163/2024/09/26/angels-embarrassing-season-analysis/
+
 **Greenberg: Just when you need the White Sox to lose, they surprise you**\
 `Fans came to the South Side to see a little history. Instead, the Sox won three in a row. They can't even lose right. `\
 https://nytimes.com/athletic/5798135/2024/09/26/chicago-white-sox-angels-record/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/us/politics/trump-speech-harris-border.html
 **Wander Franco ordered to stand trial in sexual abuse case**\
 `Franco has not appeared in an MLB game since last year, and has since been placed on the restricted list. `\
 https://nytimes.com/athletic/5797534/2024/09/26/wander-franco-court-developments/
-
-**Steve Kerr, Mike Dunleavy on 2024-25 Warriors season: 'I think we've been forgotten about'**\
-`The Warriors go into the new season with a "different vibe" from Andrew Wiggins, multiple starting spots up for grabs and more. `\
-https://nytimes.com/athletic/5797480/2024/09/26/steve-kerr-mike-dunleavy-2024-warriors-season-preview/
 
