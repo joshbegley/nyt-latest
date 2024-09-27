@@ -1,3 +1,7 @@
+**The Cure’s First Fresh Music in 16 Years, and 9 More New Songs**\
+`Hear tracks by Lady Gaga, Rosalía, Stevie Nicks and others.`\
+https://nytimes.com/2024/09/27/arts/music/playlist-cure-lady-gaga-stevie-nicks.html
+
 **The Cure’s First Fresh Music in 16 Years, and 7 More New Songs**\
 `Hear tracks by Lady Gaga, Rosalía, Stevie Nicks and others.`\
 https://nytimes.com/2024/09/27/arts/music/playlist-cure-lady-gaga-stevie-nicks.html
