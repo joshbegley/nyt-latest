@@ -1,3 +1,7 @@
+**Hurricane Helene Leaves Huge Swaths of Damage in Its Wake**\
+`More than 40 people were reported dead in four states as the huge storm spawned flash floods and landslides on its way north after devastating parts of Florida’s Gulf Coast.`\
+https://nytimes.com/2024/09/27/us/hurricane-helene-damage-florida-north-carolina.html
+
 **U.S.-Led Coalition in Iraq to Wind Down Its Mission**\
 `The United States has 2,500 troops in Iraq who served as a bulwark against attacks by an insurgent Islamic State.`\
 https://nytimes.com/2024/09/27/world/middleeast/us-coalition-iraq-isis.html
