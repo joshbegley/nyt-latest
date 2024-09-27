@@ -1,3 +1,15 @@
+**What to Expect From Helene as it Moves North**\
+`After landfall, the storm will move quickly into Georgia and the Carolinas, where it promises to bring even more rain.`\
+https://nytimes.com/2024/09/26/weather/helene-forecast-friday-georgia-north-carolina.html
+
+**Yankees win American League East crown as Aaron Judge, Gerrit Cole star in win**\
+`The Yankees had already secured a first-round bye, allowing them to skip the AL Wild Card round and head straight to the Division Series.`\
+https://nytimes.com/athletic/5792121/2024/09/26/yankees-american-league-east-champions/
+
+**Man Found Guilty in Shooting Death of Rapper Young Dolph**\
+`The man, Justin Johnson, was sentenced to life in prison on Thursday for the fatal 2021 shooting of Young Dolph, who was gunned down outside a Memphis cookie shop in broad daylight.`\
+https://nytimes.com/2024/09/26/arts/music/young-dolph-guilty.html
+
 **Between Dusk and Dawn**\
 `Jake Bunch opens our solving weekend.`\
 https://nytimes.com/2024/09/26/crosswords/daily-puzzle-2024-09-27.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5798100/2024/09/26/oakland-athletics-final-out-coli
 **House v. NCAA settlement revises language around NIL in new filing**\
 `Most of the revisions aim to better define the term “booster” and what constitutes the pay-for-play inducements the NCAA hopes to eliminate.`\
 https://nytimes.com/athletic/5798062/2024/09/26/house-ncaa-revised-settlement-college-sports-nil-boosters/
-
-**Biden, Eyeing His Legacy, Signs Executive Orders on Gun Safety**\
-`The president used a poignant White House ceremony to pass the baton to Vice President Kamala Harris, who has made gun safety an issue in her campaign.`\
-https://nytimes.com/2024/09/26/us/politics/biden-executive-orders-ghost-guns-school-safety.html
-
-**More than 500 sensors floating in the ocean help shape hurricane forecasts.**\
-`By Austyn Gaffney`\
-https://nytimes.com/live/2024/09/26/weather/tropical-storm-helene-hurricane/sensors-ocean-hurricanes
-
-**McDonald’s, Pelosi, Debate Moderators: Trump Speech on Border Veers Off Course**\
-`After reading from prepared remarks on immigration for 10 minutes, Donald J. Trump used the rest of a news conference to talk about everything else on his mind.`\
-https://nytimes.com/2024/09/26/us/politics/trump-speech-harris-border.html
 
