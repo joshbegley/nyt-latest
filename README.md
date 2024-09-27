@@ -1,6 +1,10 @@
+**Atlanta was spared a direct hit, but at least 11 people died across Georgia.**\
+`Flooding inundated some neighborhoods in the state capital, and nearly a dozen people died in communities elsewhere in Georgia.`\
+https://nytimes.com/2024/09/27/weather/atlanta-hurricane-helene-flooding-georgia-deaths.html
+
 **Maggie Smith: A Life in Pictures**\
 `She had a long, award-winning career as a screen and stage actress, finally becoming a household name with her memorable turn in “Downton Abbey.”`\
-https://nytimes.com/2024/09/27/arts/maggie-smith-a-life-in-pictures.html
+https://nytimes.com/2024/09/27/arts/maggie-smith-photos.html
 
 **Big Business Backed Mayor Eric Adams. Now It Waits to Learn His Fate.**\
 `New York’s business sector is concerned that the possible removal of Mr. Adams from office would leave it without one of its biggest boosters.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/business/media/vp-debate-cbs-rules-format.html
 **Helene is bringing ‘life-threatening flash flooding’ to North Carolina.**\
 `In Western North Carolina, heavy rains are causing rivers and lakes to overflow, and landslides have blocked major roads. Across the state, two deaths have been linked to the storm.`\
 https://nytimes.com/2024/09/27/weather/helene-is-bringing-life-threatening-flash-flooding-to-north-carolina.html
-
-**The Best, Easiest Dinner Party of Your Life**\
-`Spicy cucumbers, peppery sea scallops and coconut tapioca fill out this David Tanis menu.`\
-https://nytimes.com/2024/09/27/dining/easy-dinner-party-ideas.html
 
