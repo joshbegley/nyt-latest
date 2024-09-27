@@ -1,3 +1,19 @@
+**U.S.-led Coalition in Iraq to Wind Down Its Mission**\
+`The United States has 2,500 troops in Iraq who served as a bulwark against attacks by an insurgent Islamic State.`\
+https://nytimes.com/2024/09/27/world/middleeast/us-coalition-iraq-isis.html
+
+**Juan Soto meets with Hal Steinbrenner, says Yankees owner ‘really cares for players’**\
+`“It was good to get to know the owner,” Soto said about the July meeting. “Get to see what he’s thinking about me and everything.”`\
+https://nytimes.com/athletic/5786017/2024/09/27/juan-soto-free-agency-hal-steinbrenner-yankees/
+
+**Israel struck after learning of a Hezbollah leadership meeting, officials say.**\
+`By Ronen Bergman`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/israel-struck-after-learning-of-a-hezbollah-leadership-meeting-officials-say
+
+**Death Penalty May Be Off Table for 9/11 Suspect No Matter How Case Unfolds**\
+`The government is trying to cancel a plea deal for Khalid Shaikh Mohammed, accused of masterminding the attacks. But a clause in the agreement may stop prosecutors from reinstating a capital case.`\
+https://nytimes.com/2024/09/27/us/politics/sept-11-death-penalty-ksm.html
+
 **Iran’s supreme leader holds an emergency meeting after Israel targets Hezbollah’s chief in an attack.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/iran-emergency-meeting-hezbollah
@@ -14,27 +30,11 @@ https://nytimes.com/2024/09/27/us/hurricane-helene-leaves-huge-swaths-of-damage-
 `Argentina goalkeeper Emiliano Martinez has been suspended for two games by FIFA&#8217;s disciplinary committee.`\
 https://nytimes.com/athletic/5800206/2024/09/27/emi-martinez-suspension-argentina-fifa/
 
-**The Latest Trump-Branded Gear? A $100,000 Watch.**\
-`A line of luxury watches was promoted by former President Donald J. Trump for its gold and its diamonds. Watch experts are less enthusiastic about the quality.`\
+**‘That’s a Lot of Diamonds’: Trump Lends Name to $100,000 Watch**\
+`A line of luxury watches was promoted by former President Donald J. Trump for its gold and its price tag. Watch experts are less enthusiastic about the quality.`\
 https://nytimes.com/2024/09/27/style/trump-watches.html
 
 **Samuel, Kittle trending toward playing vs. Pats; McCaffrey ramping up**\
 `Samuel (calf) practiced Thursday and Friday, Kittle (hamstring) has no injury designation.`\
 https://nytimes.com/athletic/5799687/2024/09/27/49ers-samuel-kittle-mcccaffrey-injuries/
-
-**Clark joins Fever in condemning 'hateful comments' toward WNBA players**\
-`The online targeting of WNBA players appears to have reached a tipping point during the postseason.`\
-https://nytimes.com/athletic/5800197/2024/09/27/caitlin-clark-fever-condemns-hate-wnba-2/
-
-**Nick Martinez could get a nice payday this offseason. Will it be from the Reds?**\
-`Martinez has enjoyed his time in Cincinnati, but it's unlikely he'll exercise his $12 million player option for 2025. `\
-https://nytimes.com/athletic/5800152/2024/09/27/reds-nick-martinez-contract/
-
-**Maggie Smith’s Influence Rippled to the Cocktail Hour**\
-`In 2011, a New York bartender paid tribute to the actor with a sly tweak to a pre-Prohibition cocktail.`\
-https://nytimes.com/2024/09/27/dining/maggie-smith-cocktail-between-the-sheets.html
-
-**Calling ‘Survivor’ Contestants From Tim Walz’s Motorcade**\
-`Covering an election year can be stressful. But instead of binge-watching “Survivor” to decompress, two reporters wrote about the politics — or, lack thereof — on the show instead.`\
-https://nytimes.com/2024/09/27/insider/survivor-contestants.html
 
