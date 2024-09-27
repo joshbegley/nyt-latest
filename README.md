@@ -15,7 +15,7 @@ https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/israel-
 https://nytimes.com/2024/09/27/us/politics/sept-11-death-penalty-ksm.html
 
 **Iran’s Supreme Leader Holds Emergency Meeting After Israel Attacks Lebanon**\
-`The airstrikes south of Beirut flattened several buildings and targeted Hezbollah’s leader, Hassan Nasrallah. It was unclear if he was harmed.`\
+`Israel’s airstrikes south of Beirut flattened several buildings and targeted Hezbollah’s leader, Hassan Nasrallah.`\
 https://nytimes.com/2024/09/27/world/middleeast/iran-emergency-meeting-hezbollah.html
 
 **Prime Tire: The Athletic's F1 writers reflect on Daniel Ricciardo's legacy**\
