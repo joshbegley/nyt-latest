@@ -1,3 +1,11 @@
+**LA Clippers, Terance Mann agree to 3-year extension**\
+`Mann, 27, has played all five years of his career with the Clippers and will now be under contract through the 2027-28 season.`\
+https://nytimes.com/athletic/5800325/2024/09/27/clippers-terance-mann-contract-extension/
+
+**U.S.-Led Coalition in Iraq to Wind Down Its Mission**\
+`The United States has 2,500 troops in Iraq who served as a bulwark against attacks by a resurgent Islamic State.`\
+https://nytimes.com/2024/09/27/world/middleeast/us-coalition-iraq-isis.html
+
 **Los Angeles Clippers, Terance Mann agree to 3-year extension**\
 `Mann, 27, has played all five years of his career with the Clippers and will now be under contract through the 2027-28 season.`\
 https://nytimes.com/athletic/5800325/2024/09/27/clippers-terance-mann-contract-extension/
