@@ -1,3 +1,11 @@
+**Tel Aviv residents are rattled by attempted strikes on the city.**\
+`By Liam Stack and Johnatan Reiss`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/tel-aviv-residents-are-rattled-by-attempted-strikes-on-the-city
+
+**Chalobah set for Palace debut, Richards out with hamstring injury**\
+`Trevoh Chalobah is in line to make his Premier League debut for Crystal Palace at Everton on Saturday.`\
+https://nytimes.com/athletic/5799235/2024/09/27/crystal-palace-chris-richards-injury/
+
 **The Athletic FC Podcast is the sports podcast of the year**\
 `The Athletic FC Podcast won the Sports Podcast of the Year award at the British Podcast Awards`\
 https://nytimes.com/athletic/5799160/2024/09/27/the-athletic-fc-podcast-award/
