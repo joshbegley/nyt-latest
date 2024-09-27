@@ -1,3 +1,7 @@
+**Raiders' Adams (hamstring), Crosby (ankle) out vs. Browns**\
+`Coach Antonio Pierce announced Maxx Crosby and Davante Adams will take the week off while they deal with injuries.`\
+https://nytimes.com/athletic/5799780/2024/09/27/raiders-davante-adams-maxx-crosby-injuries-browns/
+
 **The Best of Late Night This Week**\
 `There were a few topics the hosts couldn’t get enough of this week including Donald Trump’s efforts to court female voters, and New York City Mayor Eric Adams’s indictment on five federal charges.`\
 https://nytimes.com/interactive/2024/09/27/arts/television/best-of-late-night-eric-adams.html

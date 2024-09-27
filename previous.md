@@ -1,3 +1,7 @@
+**Raiders' Adams (hamstring), Crosby (ankle) out vs. Browns**\
+`Coach Antonio Pierce announced Maxx Crosby and Davante Adams will take the week off while they deal with injuries.`\
+https://nytimes.com/athletic/5799780/2024/09/27/raiders-davante-adams-maxx-crosby-injuries-browns/
+
 **The Best of Late Night This Week**\
 `There were a few topics the hosts couldn’t get enough of this week including Donald Trump’s efforts to court female voters, and New York City Mayor Eric Adams’s indictment on five federal charges.`\
 https://nytimes.com/interactive/2024/09/27/arts/television/best-of-late-night-eric-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799672/2024/09/27/nhl-waivers-tracker-preseason/
 **Pistons owner Gores agrees to buy 27 percent of Chargers: Source**\
 `The agreement is subject to approval by NFL owners next month.`\
 https://nytimes.com/athletic/5799731/2024/09/27/piston-owner-tom-gores-buys-stake-chargers/
-
-**The Adams Indictment Is Not a Civil Rights Case**\
-`His attempt to cast himself as victim of a racial conspiracy is unlikely to work.`\
-https://nytimes.com/live/2024/09/25/opinion/thepoint/adams-indictment-civil-rights
 
