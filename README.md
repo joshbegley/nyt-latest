@@ -1,3 +1,7 @@
+**At a Barrier Island in Florida, Helene Brought ‘a Solid Wall of Water’**\
+`The hurricane passed far to the north but did enough damage in St. Pete Beach that some there began realizing what a direct hit could have done.`\
+https://nytimes.com/2024/09/27/weather/helene-damage-stpete-beach-florida.html
+
 **In Less Than 20 Minutes, Eric Adams Formally Enters Legal Limbo**\
 `During his arraignment, New York’s typically lively mayor was stoic and stone faced. Months of legal entanglements lie ahead.`\
 https://nytimes.com/2024/09/27/nyregion/eric-adams-court-appearance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/movies/new-york-film-festival-highlights.html
 **Richard Pettibone, Master of the Artistic Miniature, Dies at 86**\
 `He painted tiny reproductions of works by Warhol, Lichtenstein, Duchamp and many others, raising questions about originality and creativity.`\
 https://nytimes.com/2024/09/27/arts/richard-pettibone-dead.html
-
-**U.S. Charges Iranians With Hacking Trump Campaign**\
-`The indictment highlighted the heightened threat posed by hostile international actors — Iran, Russia and China chief among them — who hope to disrupt the U.S. election.`\
-https://nytimes.com/2024/09/27/us/politics/iran-hacking-trump-campaign.html
 
