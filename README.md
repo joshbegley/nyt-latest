@@ -1,3 +1,7 @@
+**Greenberg: Just when you need the White Sox to lose, they surprise you**\
+`Fans came to the South Side to see a little history. Instead, the Sox won three in a row. They can't even lose right. `\
+https://nytimes.com/athletic/5798135/2024/09/26/chicago-white-sox-angels-record/
+
 **Trump’s Huge Civil Fraud Penalty Draws Skepticism From Appeals Court**\
 `A five-judge New York appellate panel questioned both the size and validity of a judgment of more than $450 million against Donald J. Trump at a hearing.`\
 https://nytimes.com/2024/09/26/nyregion/trump-civil-fraud-penalty-appeals-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5797534/2024/09/26/wander-franco-court-developments
 **Steve Kerr, Mike Dunleavy on 2024-25 Warriors season: 'I think we've been forgotten about'**\
 `The Warriors go into the new season with a "different vibe" from Andrew Wiggins, multiple starting spots up for grabs and more. `\
 https://nytimes.com/athletic/5797480/2024/09/26/steve-kerr-mike-dunleavy-2024-warriors-season-preview/
-
-**Presidents Cup analysis: What to know from the Americans' strong Day 1 showing**\
-`The Americans lead by 5 points after Day 1. There's no history of a side coming back from that deficit in the Presidents Cup.`\
-https://nytimes.com/athletic/5798052/2024/09/26/presidents-cup-2024-analysis-us/
 
