@@ -1,3 +1,11 @@
+**Sliders: Bruce Bochy's guide to postseason managing, a Coliseum farewell and more**\
+`We look ahead to the playoffs and say some farewells in the final Sliders column of the 2024 season. `\
+https://nytimes.com/athletic/5794277/2024/09/27/bruce-bochy-mlb-playoffs-oakland-athletics/
+
+**'He's just a superstar': Carlos Beltrán on watching Francisco Lindor**\
+`Beltrán reflected on his big 2006 season while praising Lindor for his spectacular all-around play.`\
+https://nytimes.com/athletic/5796577/2024/09/27/mets-francisco-lindor-carlos-beltran/
+
 **Remembering the 1994 Penn State Nittany Lions — undefeated and snubbed by the polls**\
 `The Nittany Lions went 12-0 and averaged 43.8 points per game in 1994 yet finished second to Nebraska in both major polls.`\
 https://nytimes.com/athletic/5798297/2024/09/27/penn-state-1994-undefeated-snubbed-rose-bowl/
