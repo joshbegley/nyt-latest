@@ -1,3 +1,19 @@
+**Steve Cooper is already at a crossroads at Leicester - how vulnerable is he?**\
+`With some fans turning, should the Leicester manager be worried?`\
+https://nytimes.com/athletic/5796446/2024/09/27/steve-cooper-leicester-crossroads/
+
+**This Is What Can Land You in Jail for Sedition in Hong Kong**\
+`Three men were the first to be convicted under the city’s recently expanded national security law, which has greatly curtailed political speech.`\
+https://nytimes.com/2024/09/27/world/asia/hong-kong-article-23-sedition.html
+
+**He Was Open to Love — but Kept His Job a Secret**\
+`After Jonathan Filiberto, a medium known as Jonathan Mark, matched with Jessica Rega on a dating app, it took months before he shared what he did for a living.`\
+https://nytimes.com/2024/09/27/style/jessica-rega-jonathan-filiberto-wedding.html
+
+**Friday's MLB best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Friday's MLB games.`\
+https://nytimes.com/athletic/5797739/2024/09/27/mlb-odds-best-bets-projections-september-27/
+
 **I Decentered Men. Decentering Desire Is Harder.**\
 `Organizing my life around some idyllic future husband has always felt wrong to me.`\
 https://nytimes.com/2024/09/27/style/modern-love-decentering-men.html

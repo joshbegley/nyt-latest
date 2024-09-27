@@ -10,7 +10,7 @@ https://nytimes.com/2024/09/27/world/asia/hong-kong-article-23-sedition.html
 `After Jonathan Filiberto, a medium known as Jonathan Mark, matched with Jessica Rega on a dating app, it took months before he shared what he did for a living.`\
 https://nytimes.com/2024/09/27/style/jessica-rega-jonathan-filiberto-wedding.html
 
-**I Decentered Men. Decentering Desire Is Harder.**\
+**I Decentered Men. Decentering Desire for Men Is Harder.**\
 `Organizing my life around some idyllic future husband has always felt wrong to me.`\
 https://nytimes.com/2024/09/27/style/modern-love-decentering-men.html
 
