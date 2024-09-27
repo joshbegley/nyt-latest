@@ -1,3 +1,23 @@
+**The Possible Meanings of a Masculine Religious Revival**\
+`By Ross Douthat`\
+https://nytimes.com/2024/09/27/opinion/religion-gender-divide.html
+
+**Can TikTok Be Reformed? This Billionaire Wants to Try.**\
+`Frank McCourt hopes to make TikTok safer to use. He’ll have to buy it first.`\
+https://nytimes.com/2024/09/27/opinion/tiktok-frank-mccourt.html
+
+**Special Counsel Proposes Making Public More Evidence From Trump Election Case**\
+`The prosecutor is seeking to disclose quotations from secret grand jury testimony and interviews, but is proposing to shield witness identities.`\
+https://nytimes.com/2024/09/27/us/politics/evidence-trump-election-interference.html
+
+**Parsons suffers high-ankle sprain, Lawrence out with foot injury**\
+`Parsons was carted off the field with just 3:30 remaining in Thursday's game at MetLife Stadium.`\
+https://nytimes.com/athletic/5799709/2024/09/27/cowboys-micah-parsons-demarcus-lawrence-injury/
+
+**Booby Traps, Pager Attacks and the Law of War**\
+`After Israel detonated pagers and walkie-talkies in Lebanon, a fierce debate began about whether the attacks violated international law. A U.N. treaty from 1996 offers an answer.`\
+https://nytimes.com/2024/09/27/world/europe/israel-hezbollah-lebanon-pager-attack.html
+
 **Fort Myers Beach, Devastated by Hurricane Ian, Floods Again**\
 `Even though Hurricane Helene made landfall hundreds of miles to the north, its storm surge inundated roads and gushed into buildings.`\
 https://nytimes.com/2024/09/27/weather/helene-fort-myers-beach-floods.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5799734/2024/09/27/billie-jean-king-congressional-g
 **As Mark Robinson’s Campaign Crumbles, North Carolina Republicans Seethe**\
 `The scandal surrounding Mr. Robinson has incensed party officials and donors, some of whom described longstanding concerns about his campaign.`\
 https://nytimes.com/2024/09/27/us/as-mark-robinsons-campaign-crumbles-north-carolina-republicans-seethe.html
-
-**‘Quiet Place’ in Pennsylvania Is Thrust Into Loud Immigration Debate**\
-`Former President Donald J. Trump turned his sights on Charleroi, Pa., where many Haitians have settled in recent years, and he fueled a fire that was already smoldering.`\
-https://nytimes.com/2024/09/27/us/charleroi-pennsylvania-haitian-migrants.html
-
-**Chappell Roan Cancels a Pair of Big Shows After Tumultuous Weeks**\
-`The pop star said things had “gotten overwhelming” and bowed out of festivals in New York and Maryland after a period in which her politics came under scrutiny.`\
-https://nytimes.com/2024/09/27/arts/music/chappell-roan-cancels-festival.html
-
-**Duke's No. 1 recruit Flagg preparing for hype as season nears**\
-`"With Cooper, I don't know if we've ever had a 17-year-old with as much attention around him," Duke coach Jon Scheyer said.`\
-https://nytimes.com/athletic/5799737/2024/09/27/cooper-flagg-duke-hype/
-
-**National Symphony Orchestra Players Go on Strike, Canceling Gala**\
-`The Washington-based group’s first work stoppage in 46 years came after management and musicians failed to reach a salary agreement.`\
-https://nytimes.com/2024/09/27/arts/music/national-symphony-orchestra-strike-gala.html
-
-**With Sean Combs in Jail, Civil Suits Continue to Pile Up**\
-`The latest lawsuit includes accusations of drugging and coerced sex as recently as this year. Mr. Combs’s lawyers have said the claims are attempts to obtain quick settlements.`\
-https://nytimes.com/2024/09/27/arts/music/sean-combs-diddy-lawsuit-drugs.html
 
