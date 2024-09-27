@@ -1,3 +1,7 @@
+**Caitlin Clark wins ROY Napheesa Collier wins DPOY**\
+`Clark entered the league as the most-anticipated rookie in league history.`\
+https://nytimes.com/athletic/5796437/2024/09/27/caitlin-clark-wnba-rookie-of-the-year/
+
 **OpenAI Is Growing Fast and Burning Through Piles of Money**\
 `As the company looks for more outside investors, documents reviewed by The New York Times show consumer fascination with ChatGPT and a serious need for more cash.`\
 https://nytimes.com/2024/09/27/technology/openai-chatgpt-investors-funding.html
