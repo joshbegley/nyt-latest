@@ -1,3 +1,11 @@
+**Wolves chairman Shi claims club in talks over minority investment**\
+`Wolverhampton Wanderers chairman Jeff Shi has claimed the club are in talks with potential minority investors.`\
+https://nytimes.com/athletic/5798869/2024/09/27/wolves-minority-investment-jeff-shi/
+
+**A Huge Hurricane**\
+`We’re covering Hurricane Helene. One of our reporters was inside the eye.`\
+https://nytimes.com/2024/09/27/briefing/a-huge-hurricane.html
+
 **Helene Brings Record Storm Surge to Florida**\
 `Waters rose rapidly along Florida’s Gulf Coast after Helene made landfall, flooding homes and forcing people to flee.`\
 https://nytimes.com/2024/09/27/weather/storm-surge-record-helene-florida.html

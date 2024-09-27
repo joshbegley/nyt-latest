@@ -1,3 +1,11 @@
+**Wolves chairman Shi claims club in talks over minority investment**\
+`Wolverhampton Wanderers chairman Jeff Shi has claimed the club are in talks with potential minority investors.`\
+https://nytimes.com/athletic/5798869/2024/09/27/wolves-minority-investment-jeff-shi/
+
+**A Huge Hurricane**\
+`We’re covering Hurricane Helene. One of our reporters was inside the eye.`\
+https://nytimes.com/2024/09/27/briefing/a-huge-hurricane.html
+
 **Helene Brings Record Storm Surge to Florida**\
 `Waters rose rapidly along Florida’s Gulf Coast after Helene made landfall, flooding homes and forcing people to flee.`\
 https://nytimes.com/2024/09/27/weather/storm-surge-record-helene-florida.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5797204/2024/09/27/green-bay-packers-minnesota-viki
 **Sam Darnold's surging card values: How long can it last?**\
 `Darnold is the latest in a recent series of quarterbacks to experience a hobby resurgence `\
 https://nytimes.com/athletic/5797971/2024/09/27/sam-darnold-vikings-trading-cards/
-
-**Inside the mind of Nick Robertson after the noisiest offseason of his Maple Leafs career**\
-`After a tumultuous offseason that saw a trade request not met, Robertson has ditched the belief that his life is defined by hockey alone.`\
-https://nytimes.com/athletic/5796749/2024/09/27/maple-leafs-nick-robertson-trade-contract/
-
-**Why rising talent Riley Moss is ready for spotlight in Broncos' secondary**\
-`The second-year Iowa product was the highest-rated cornerback in Week 3. Next up: a chess match with Aaron Rodgers.`\
-https://nytimes.com/athletic/5797318/2024/09/27/riley-moss-denver-broncos-breakout-start/
 
