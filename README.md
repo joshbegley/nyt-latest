@@ -1,3 +1,19 @@
+**Melting Man**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/09/27/learning/melting-man.html
+
+**As Adams’s Fate Hangs in the Balance, Cuomo Waits in the Shadows**\
+`The uncertainty surrounding Mayor Eric Adams has fueled rampant speculation that the former Gov. Andrew M. Cuomo may enter the mayor’s race.`\
+https://nytimes.com/2024/09/27/nyregion/as-adamss-fate-hangs-in-the-balance-cuomo-waits-in-the-shadows.html
+
+**Congestion Pricing Supporters Head to Court to Get Program Back on Track**\
+`Supporters of the tolling program want Gov. Kathy Hochul to bring it back from an indefinite suspension. Opponents want it dead for good.`\
+https://nytimes.com/2024/09/27/nyregion/congestion-pricing-hochul.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/27/crosswords/spelling-bee-forum.html
+
 **Port of Los Angeles Closes Terminals After Lithium Battery Fire**\
 `The fire was expected to burn for as long as 48 hours, forcing the authorities to close part of a highway where a truck carrying the batteries had overturned.`\
 https://nytimes.com/2024/09/27/us/los-angeles-lithium-battery-fire-ports.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5798661/2024/09/27/twins-runners-scoring-position-p
 **Arsenal have reached the Champions League group stage - this is what it means**\
 `Progress is vital from both a sporting and financial perspective after club built a squad to compete on all fronts`\
 https://nytimes.com/athletic/5797966/2024/09/27/arsenal-women-champions-league-group-stage/
-
-**Word of the Day: curtailment**\
-`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/27/learning/word-of-the-day-curtailment.html
-
-**China Stocks Soar in Biggest Single-Week Jump Since 2008**\
-`Economic stimulus moves triggered a broad rally in trading in Shanghai and Shenzhen.`\
-https://nytimes.com/2024/09/27/business/asia-stocks-csi-300.html
-
-**Tottenham Briefing: Dragusin's missed chance, Johnson fires again and Vicario shines**\
-`The major talking points dissected as Spurs got their Europa League campaign off to a flying start`\
-https://nytimes.com/athletic/5790588/2024/09/27/tottenham-qarabag-europa-league-result-analysis/
-
-**A ‘Super Bowl’ Holiday**\
-`In the state of Victoria, you need more than one day to take in all that the A.F.L. Grand Final has to offer.`\
-https://nytimes.com/2024/09/27/world/australia/afl-grand-final.html
 
