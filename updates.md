@@ -1,3 +1,7 @@
+**Hot Microphones and No Audience: Here Are the Rules for the V.P. Debate**\
+`CBS News has announced the rules and format for Tuesday’s debate between Senator JD Vance and Gov. Tim Walz.`\
+https://nytimes.com/2024/09/27/business/media/vp-debate-cbs-rules-format.html
+
 **Helene is bringing ‘life-threatening flash flooding’ to North Carolina.**\
 `In Western North Carolina, heavy rains are causing rivers and lakes to overflow, and landslides have blocked major roads. Across the state, two deaths have been linked to the storm.`\
 https://nytimes.com/2024/09/27/weather/helene-is-bringing-life-threatening-flash-flooding-to-north-carolina.html
