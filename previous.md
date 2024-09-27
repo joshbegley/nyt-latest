@@ -1,3 +1,11 @@
+**Judge Presiding Over Adams Graft Case Fought for Civil Liberties**\
+`Judge Dale E. Ho, who will oversee the case, has a sterling educational pedigree and a history of pointed remarks as a civil rights lawyer.`\
+https://nytimes.com/2024/09/27/nyregion/judge-ho-eric-adams.html
+
+**Explained: How long could Rodri take to recover and is workload to blame?**\
+`What does the short and long-term future hold for Manchester City star after his ACL injury was confirmed?`\
+https://nytimes.com/athletic/5790756/2024/09/27/rodri-acl-knee-injury-recovery/
+
 **Lavia set for Chelsea return after recovering from injury**\
 `Chelsea have been handed a boost as Romeo Lavia is set to return to the squad for Saturday&#8217;s match against Brighton &amp; Hove Albion.`\
 https://nytimes.com/athletic/5799094/2024/09/27/romeo-lavia-chelsea-injury-return/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/27/nyregion/eric-adams-arraigned/here-is-the-la
 **Live Updates: Eric Adams Set to Appear in Court on Bribery and Fraud Charges**\
 `The New York mayor was scheduled to be arraigned on Friday. He has insisted he will stay in office and asked New Yorkers to give him a chance to defend himself.`\
 https://nytimes.com/live/2024/09/27/nyregion/eric-adams-arraigned
-
-**The Fed’s Preferred Inflation Gauge Cooled in August**\
-`Inflation has been slowing for months, which has paved the way for Federal Reserve interest rates cuts.`\
-https://nytimes.com/2024/09/27/business/economy/fed-inflation-pce.html
-
-**Deal to Reopen Libya’s Central Bank Eases Fears of Renewed Conflict**\
-`A standoff over control of the bank had destabilized the country’s economy and raised the prospect of fresh fighting between Libya’s eastern and western factions.`\
-https://nytimes.com/2024/09/27/world/middleeast/libya-central-bank-reopen-agreement.html
 
