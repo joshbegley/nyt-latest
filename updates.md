@@ -1,3 +1,11 @@
+**UFC reaches $375 million settlement in antitrust lawsuit**\
+`UFC reached a settlement with a group of former fighters in a class action lawsuit alleging the promotion suppressed their wages.`\
+https://nytimes.com/athletic/5799292/2024/09/27/ufc-settlement-antitrust-lawsuit/
+
+**The Ultimate Celebrity Photographer**\
+`In a declining business, Kevin Mazur has thrived by gaining the trust of Beyoncé, Madonna and Taylor Swift. His motto: “Why wouldn’t you want to make people look good?”`\
+https://nytimes.com/2024/09/27/style/kevin-mazur-photographer-beyonce-taylor-swift.html
+
 **Thailand’s Chiang Rai, Where Artists Go to Find Peace**\
 `Four insiders on where to stay, eat “micro-seasonal” dishes and shop for handmade pottery and textiles.`\
 https://nytimes.com/2024/09/27/t-magazine/chiang-rai-thailand-guide.html
