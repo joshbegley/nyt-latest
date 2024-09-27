@@ -1,3 +1,15 @@
+**The Latest Trump-Branded Gear? A $100,000 Watch.**\
+`A line of luxury watches was promoted by former President Donald J. Trump for its gold and its diamonds. Watch experts are less enthusiastic about the quality.`\
+https://nytimes.com/2024/09/27/style/trump-watches.html
+
+**Samuel, Kittle trending toward playing vs. Pats; McCaffrey ramping up**\
+`Samuel (calf) practiced Thursday and Friday, Kittle (hamstring) has no injury designation.`\
+https://nytimes.com/athletic/5799687/2024/09/27/49ers-samuel-kittle-mcccaffrey-injuries/
+
+**Clark joins Fever in condemning 'hateful comments' toward WNBA players**\
+`The online targeting of WNBA players appears to have reached a tipping point during the postseason.`\
+https://nytimes.com/athletic/5800197/2024/09/27/caitlin-clark-fever-condemns-hate-wnba-2/
+
 **Nick Martinez could get a nice payday this offseason. Will it be from the Reds?**\
 `Martinez has enjoyed his time in Cincinnati, but it's unlikely he'll exercise his $12 million player option for 2025. `\
 https://nytimes.com/athletic/5800152/2024/09/27/reds-nick-martinez-contract/
