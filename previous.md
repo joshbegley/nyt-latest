@@ -1,40 +1,40 @@
-**Isak a doubt for Newcastle's clash vs Man City with broken toe**\
-`Alexander Isak is a doubt for Newcastle United&#8217;s clash against Manchester City due to a broken toe, head coach Eddie Howe has confirmed.`\
-https://nytimes.com/athletic/5798776/2024/09/27/alexander-isak-newcastle-man-city/
+**New R.S.V. Vaccines Had Limited Takers Last Year. Will This Year Be Better?**\
+`Some of the problems that patients ran into, including a lack of insurance coverage, have been resolved.`\
+https://nytimes.com/2024/09/27/well/rsv-vaccine-adults-babies.html
 
-**But Would Kamala Wear It?**\
-`In her sophomore collection Chloé’s Chemena Kamali offers a high summer vibe, but not too many suits. Schiaparelli and Rabanne also let the sun shine in.`\
-https://nytimes.com/2024/09/27/style/chloe-kamala-harris-schiaparelli.html
+**Katy Perry’s Latest Album Isn’t as Bad as Her Timing**\
+`The pop singer’s latest LP, “143,” has been gleefully panned, but its musical faults aren’t as remarkable as Perry’s failure to read the current cultural moment.`\
+https://nytimes.com/2024/09/27/arts/music/katy-perry-143-review.html
 
-**Potter: 'Frustration and anger' over Chelsea exit but no regrets taking the job**\
-`Graham Potter says there was &#8220;frustration and anger&#8221; over the way his Chelsea tenure ended but he does not regret taking the job.`\
-https://nytimes.com/athletic/5798766/2024/09/27/graham-potter-chelsea-sacking/
+**Melissa George Brings Cinematic Glamour to a 17th-Century French Manor**\
+`“This is a woman’s home,” the actress says. “If a man walks in, I want him to feel like a guest.”`\
+https://nytimes.com/2024/09/27/t-magazine/melissa-george-provence-home.html
 
-**'There's no disappointment': Padres say they've moved on after Dodgers claim NL West title**\
-`LOS ANGELES — As their opponents basked in the glow of another division title on the field in front of them, several Padres lingered Thursday along the railing of Dodger Stadium’s visitors dugout, staring out at the celebration they had hoped would be theirs.`\
-https://nytimes.com/athletic/5798719/2024/09/27/padres-refocusing-postseason/
+**House Tour | Melissa George**\
+`The actress gives a tour of her home in Provence, which she’s filled with delicate details like floral furniture and a pink marble sink.`\
+https://nytimes.com/video/t-magazine/100000009711076/house-tour-melissa-george.html
 
-**Melting Man**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/09/27/learning/melting-man.html
+**The Wily Spy Who Risked His Life to Meet North Korea’s Secretive Leader**\
+`Park Chae-so was so successful in infiltrating the North that Kim Jong-il, the enigmatic ruler, once gifted him blueberry wine. So why was the celebrated undercover agent later jailed by South Korea?`\
+https://nytimes.com/2024/09/27/world/asia/south-north-korea-kim-jong-il-park-chae-so.html
 
-**As Adams’s Fate Hangs in the Balance, Cuomo Waits in the Shadows**\
-`The uncertainty surrounding Mayor Eric Adams has fueled rampant speculation that the former Gov. Andrew M. Cuomo may enter the mayor’s race.`\
-https://nytimes.com/2024/09/27/nyregion/as-adamss-fate-hangs-in-the-balance-cuomo-waits-in-the-shadows.html
+**Which Food Is the Most Underrated? ​**\
+`A guest essay argues that anchovies (yes, anchovies!) deserve more love. What underappreciated food would you make the case for?`\
+https://nytimes.com/2024/09/27/learning/which-food-is-the-most-underrated.html
 
-**Congestion Pricing Supporters Head to Court to Get Program Back on Track**\
-`Supporters of the tolling program want Gov. Kathy Hochul to bring it back from an indefinite suspension. Opponents want it dead for good.`\
-https://nytimes.com/2024/09/27/nyregion/congestion-pricing-hochul.html
+**Redecorating? A Quick Trip to the Grocery Store May Be All You Need.**\
+`Why professional designers swear by supermarket décor.`\
+https://nytimes.com/2024/09/27/realestate/home-decorations-supermarket.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/27/crosswords/spelling-bee-forum.html
+**How a Book About Gloves Inspired a Masterpiece by Philip Roth**\
+`For years, Roth couldn’t get beyond the premise for his novel “American Pastoral.” Then he stumbled on a copy of “Shtetl in the Adirondacks: The Story of Gloversville and Its Jews.” The rest is literary history.`\
+https://nytimes.com/2024/09/27/books/review/philip-roth-american-pastoral-gloves.html
 
-**Port of Los Angeles Closes Terminals After Lithium Battery Fire**\
-`The fire was expected to burn for as long as 48 hours, forcing the authorities to close part of a highway where a truck carrying the batteries had overturned.`\
-https://nytimes.com/2024/09/27/us/los-angeles-lithium-battery-fire-ports.html
+**From Darvish to Suzuki and Imanaga, the Cubs hope they've opened a pipeline of Asian talent**\
+`The Cubs believe they’ve made significant inroads and have established themselves as a real player in the Asian market.`\
+https://nytimes.com/athletic/5797137/2024/09/27/cubs-scout-talent-asia/
 
-**Japan’s Power Brokers Listen to Public in Choice for Prime Minister**\
-`Shigeru Ishiba, a former defense minister more popular with the rank and file than with his lawmaker colleagues, had sought his party leadership four times before.`\
-https://nytimes.com/2024/09/27/world/asia/japan-new-prime-minister-shigeru-ishiba.html
+**The way-too-early Arch Manning scouting report**\
+`How has Arch looked so far? Does he play like his relatives? And what does his first start say about where he goes from here?`\
+https://nytimes.com/athletic/5791016/2024/09/27/arch-manning-film-scouting-report-family/
 
