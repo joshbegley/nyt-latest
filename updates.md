@@ -1,3 +1,7 @@
+**'Incredibly difficult': Nuggets know another title run won't be easy**\
+`While the championship core remains, this Denver team isn't quite the same one that stormed through the league in 2023.`\
+https://nytimes.com/athletic/5798035/2024/09/26/denver-nuggets-media-day-jokic-murray-westbrook/
+
 **Sky fire coach Teresa Weatherspoon after 1 season**\
 `The Sky finished 13-27 in Weatherspoon's first season as coach, failing to make the playoffs.`\
 https://nytimes.com/athletic/5798354/2024/09/26/chicago-sky-coach-fired-teresa-weatherspoon/
