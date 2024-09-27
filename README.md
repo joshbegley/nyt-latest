@@ -1,3 +1,11 @@
+**Arsenal have reached the Champions League group stage - this is what it means**\
+`Progress is vital from both a sporting and financial perspective after club built a squad to compete on all fronts`\
+https://nytimes.com/athletic/5797966/2024/09/27/arsenal-women-champions-league-group-stage/
+
+**Word of the Day: curtailment**\
+`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/27/learning/word-of-the-day-curtailment.html
+
 **China Stocks Soar in Biggest Single-Week Jump Since 2008**\
 `Economic stimulus moves by China’s leaders triggered a broad rally in trading in Shanghai and Shenzhen.`\
 https://nytimes.com/2024/09/27/business/asia-stocks-csi-300.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5789240/2024/09/27/wharton-palace-glasner-england/
 **'I will never be successful on my own' - How Crofts and Scheuermann assist Hurzeler at Brighton**\
 `Crofts and Scheuermann possess strong coaching credentials, and both bring different things to the table`\
 https://nytimes.com/athletic/5790419/2024/09/27/crofts-scheuermann-hurzeler-brighton/
-
-**Five games that define Emery becoming Villa's quickest manager to 50 wins**\
-`Emery has changed the entire outlook at Villa since taking over a struggling side in 2022 - and has raced to a half century of victories `\
-https://nytimes.com/athletic/5793269/2024/09/27/unai-emery-fastest-50-aston-villa-wins/
-
-**Wolves need to bring back their style from Manchester City win - and stem the goals**\
-`Wolves have had a difficult start to the new season and face Liverpool on Saturday`\
-https://nytimes.com/athletic/5794330/2024/09/27/wolves-man-city-liverpool/
 
