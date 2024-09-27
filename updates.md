@@ -1,3 +1,7 @@
+**Pilot, stuntman, billionaire businessman - meet potential Everton saviour Dan Friedkin**\
+`Dan Friedkin has come late to football after making billions in business — his interests are varied and plentiful`\
+https://nytimes.com/athletic/5796168/2024/09/27/dan-friedkin-pilot-stuntman-billionaire-businessman-everton/
+
 **Ranking each Premier League club for 'dark arts'**\
 `Mystery injuries, delaying tactics, busy medics... every club bends rules where they can, but who are the best (and worst) exponents?`\
 https://nytimes.com/athletic/5788866/2024/09/27/premier-league-club-dark-arts-ranked/
