@@ -1,3 +1,7 @@
+**Greenberg: Just when you need the White Sox to lose, they surprise you**\
+`Fans came to the South Side to see a little history. Instead, the Sox won three in a row. They can't even lose right. `\
+https://nytimes.com/athletic/5798135/2024/09/26/chicago-white-sox-angels-record/
+
 **Trump’s Huge Civil Fraud Penalty Draws Skepticism From Appeals Court**\
 `A five-judge New York appellate panel questioned both the size and validity of a judgment of more than $450 million against Donald J. Trump at a hearing.`\
 https://nytimes.com/2024/09/26/nyregion/trump-civil-fraud-penalty-appeals-court.html
