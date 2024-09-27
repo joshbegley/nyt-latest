@@ -1,3 +1,7 @@
+**In Less Than 20 Minutes, Eric Adams Formally Enters Legal Limbo**\
+`During his arraignment, New York’s typically lively mayor was stoic and stone-faced. Months of legal entanglements lie ahead.`\
+https://nytimes.com/2024/09/27/nyregion/eric-adams-court-appearance.html
+
 **Hot Microphones and No Audience: Here Are the Rules for the V.P. Debate**\
 `CBS News has announced the rules and format for Tuesday’s debate between Senator JD Vance and Gov. Tim Walz.`\
 https://nytimes.com/2024/09/27/business/media/vp-debate-cbs-rules-format.html
