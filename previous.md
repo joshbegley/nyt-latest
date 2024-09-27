@@ -1,3 +1,7 @@
+**But Would Kamala Wear It?**\
+`In her sophomore collection Chloé’s Chemena Kamali offers a high summer vibe, but not too many suits. Schiaparelli and Rabanne also let the sun shine in.`\
+https://nytimes.com/2024/09/27/style/chloe-kamala-harris-schiaparelli.html
+
 **Potter: 'Frustration and anger' over Chelsea exit but no regrets taking the job**\
 `Graham Potter says there was &#8220;frustration and anger&#8221; over the way his Chelsea tenure ended but he does not regret taking the job.`\
 https://nytimes.com/athletic/5798766/2024/09/27/graham-potter-chelsea-sacking/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/world/asia/japan-new-prime-minister-shigeru-ishib
 **City's Women's Champions League return is overdue - how far can they go?**\
 `City are back where they feel they belong, but club executives feel this is only the start of their journey`\
 https://nytimes.com/athletic/5798241/2024/09/27/manchester-city-women-champions-league/
-
-**Late Night Roasts New York Mayor Eric Adams Over His Indictment**\
-`Jimmy Fallon joked that it’s “always fun when the city mimics the exact plot of a Batman movie.”`\
-https://nytimes.com/2024/09/27/arts/television/late-night-mayor-eric-adams.html
 

@@ -1,3 +1,7 @@
+**But Would Kamala Wear It?**\
+`In her sophomore collection Chloé’s Chemena Kamali offers a high summer vibe, but not too many suits. Schiaparelli and Rabanne also let the sun shine in.`\
+https://nytimes.com/2024/09/27/style/chloe-kamala-harris-schiaparelli.html
+
 **Potter: 'Frustration and anger' over Chelsea exit but no regrets taking the job**\
 `Graham Potter says there was &#8220;frustration and anger&#8221; over the way his Chelsea tenure ended but he does not regret taking the job.`\
 https://nytimes.com/athletic/5798766/2024/09/27/graham-potter-chelsea-sacking/
