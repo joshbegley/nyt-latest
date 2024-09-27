@@ -1,3 +1,7 @@
+**Port of Los Angeles Closes Terminals After Lithium Battery Fire**\
+`The fire was expected to burn for as long as 48 hours, forcing the authorities to close part of a highway where a truck carrying the batteries had overturned.`\
+https://nytimes.com/2024/09/27/us/los-angeles-lithium-battery-fire-ports.html
+
 **Japan’s Power Brokers Listen to Public in Choice for Prime Minister**\
 `Shigeru Ishiba, a former defense minister more popular with the rank and file than with his lawmaker colleagues, had sought his party leadership four times before.`\
 https://nytimes.com/2024/09/27/world/asia/japan-new-prime-minister-shigeru-ishiba.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5790588/2024/09/27/tottenham-qarabag-europa-league-
 **A ‘Super Bowl’ Holiday**\
 `In the state of Victoria, you need more than one day to take in all that the A.F.L. Grand Final has to offer.`\
 https://nytimes.com/2024/09/27/world/australia/afl-grand-final.html
-
-**Myanmar’s Military Asks Rebels to Stop Fighting and Join in Elections**\
-`Though the offer was quickly rejected by several commanders of the opposition forces, it was still seen as a significant development in the three-year civil war.`\
-https://nytimes.com/2024/09/27/world/asia/myanmar-military.html
 
