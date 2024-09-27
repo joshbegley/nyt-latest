@@ -1,3 +1,7 @@
+**Why the Chiefs defense has struggled against tight ends**\
+`No team in the league this season has allowed more receptions and yards to tight ends than the Chiefs.`\
+https://nytimes.com/athletic/5797855/2024/09/27/kansas-city-chiefs-defense-tight-ends/
+
 **Good news: Cowboys stop the run and likely dodge significant injuries to Parsons, Lawrence**\
 `Micah Parsons and DeMarcus Lawrence left with injuries Thursday, but both sounded optimistic they would be ready to play at Pittsburgh.`\
 https://nytimes.com/athletic/5798780/2024/09/27/cowboys-defense-micah-parsons-demarcus-lawrence-injury-update/

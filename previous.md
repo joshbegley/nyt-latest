@@ -1,3 +1,7 @@
+**Why the Chiefs defense has struggled against tight ends**\
+`No team in the league this season has allowed more receptions and yards to tight ends than the Chiefs.`\
+https://nytimes.com/athletic/5797855/2024/09/27/kansas-city-chiefs-defense-tight-ends/
+
 **Good news: Cowboys stop the run and likely dodge significant injuries to Parsons, Lawrence**\
 `Micah Parsons and DeMarcus Lawrence left with injuries Thursday, but both sounded optimistic they would be ready to play at Pittsburgh.`\
 https://nytimes.com/athletic/5798780/2024/09/27/cowboys-defense-micah-parsons-demarcus-lawrence-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5797318/2024/09/27/riley-moss-denver-broncos-breako
 **The Criminal Indictment of New York City’s Mayor**\
 `Eric Adams accepted free airline tickets, lavish overseas accommodation and illegal foreign campaign donations, prosecutors said.`\
 https://nytimes.com/2024/09/27/podcasts/the-daily/new-york-mayor-indicted.html
-
-**Falcons' third-down woes can't get much worse, but help is coming: 5 factors**\
-`Atlanta quarterback Kirk Cousins will play in the rivalry against New Orleans for the first time on Sunday.`\
-https://nytimes.com/athletic/5797471/2024/09/27/falcons-kirk-cousins-third-down-saints/
 
