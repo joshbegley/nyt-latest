@@ -1,3 +1,7 @@
+**Myanmar’s Military Asks Rebels to Stop Fighting and Join in Elections**\
+`Though the offer was quickly rejected by several commanders of the opposition forces, it was still seen as a significant development in the three-year civil war.`\
+https://nytimes.com/2024/09/27/world/asia/myanmar-military.html
+
 **Slot sessions, tactical tweaks and a catchy song: How Diaz was rebooted**\
 `The Colombian looks reenergised and a renewed threat this season - so what is behind the transformation?`\
 https://nytimes.com/athletic/5790532/2024/09/27/luis-diaz-liverpool-rebooted/

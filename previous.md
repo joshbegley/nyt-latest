@@ -1,3 +1,7 @@
+**Myanmar’s Military Asks Rebels to Stop Fighting and Join in Elections**\
+`Though the offer was quickly rejected by several commanders of the opposition forces, it was still seen as a significant development in the three-year civil war.`\
+https://nytimes.com/2024/09/27/world/asia/myanmar-military.html
+
 **Slot sessions, tactical tweaks and a catchy song: How Diaz was rebooted**\
 `The Colombian looks reenergised and a renewed threat this season - so what is behind the transformation?`\
 https://nytimes.com/athletic/5790532/2024/09/27/luis-diaz-liverpool-rebooted/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5795850/2024/09/27/alexander-isak-newcastle-goals/
 **'Go Miss Fuller!' - Wrexham's defender on her team's return to The Racecourse**\
 `Liv Fuller on her return to football after injury and how it feels to be under Wrexham's spotlight`\
 https://nytimes.com/athletic/5795855/2024/09/27/wrexhams-women-return-to-the-racecourse-this-weekend-led-by-miss-fuller/
-
-**Pilot, stuntman, billionaire businessman - meet potential Everton saviour Dan Friedkin**\
-`Dan Friedkin has come late to football after making billions in business — his interests are varied and plentiful`\
-https://nytimes.com/athletic/5796168/2024/09/27/dan-friedkin-pilot-stuntman-billionaire-businessman-everton/
 
