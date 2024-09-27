@@ -1,3 +1,19 @@
+**National Symphony Orchestra Players Go on Strike, Canceling Gala**\
+`The Washington-based group’s first work stoppage in 46 years came after management and musicians failed to reach a salary agreement.`\
+https://nytimes.com/2024/09/27/arts/music/national-symphony-orchestra-strike-gala.html
+
+**With Sean Combs in Jail, Civil Suits Continue to Pile Up**\
+`The latest lawsuit includes accusations of drugging and coerced sex as recently as this year. Mr. Combs’s lawyers have said the claims are attempts to obtain quick settlements.`\
+https://nytimes.com/2024/09/27/arts/music/sean-combs-diddy-lawsuit-drugs.html
+
+**‘It Was Like Judgment Day’: Residents Flee Deadly Israeli Strikes Near Beirut**\
+`Residents described a scene of flattened buildings and destroyed vehicles after Israel unleashed strikes targeting Hezbollah’s leader outside the Lebanese capital.`\
+https://nytimes.com/2024/09/27/world/middleeast/beirut-lebanon-israeli-strikes-hezbollah.html
+
+**Atlanta was spared a direct hit, but at least 11 people died across Georgia.**\
+`Flooding inundated some neighborhoods in the state capital, and nearly a dozen people died in communities elsewhere in Georgia.`\
+https://nytimes.com/2024/09/27/weather/atlanta-hurricane-helene-flooding-georgia-deaths.html
+
 **Maggie Smith: A Life in Pictures**\
 `She had a long, award-winning career as a screen and stage actress, finally becoming a household name with her memorable turn in “Downton Abbey.”`\
 https://nytimes.com/2024/09/27/arts/maggie-smith-photos.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/27/arts/music/amplifier-newsletter-clown-songs.html
 **Adams’s Lawyer Says He Flew Like a Congressman. But There Are Rules.**\
 `Members of Congress often get upgrades, but only if they are offered to all eligible travelers.`\
 https://nytimes.com/2024/09/27/nyregion/eric-adams-flights-congress.html
-
-**The Indictment of Mayor Eric Adams**\
-`Readers react to the corruption charges against New York’s mayor. Also: A path for Iran; the state of speech on campus; a tally of Trump insults.`\
-https://nytimes.com/2024/09/27/opinion/mayor-eric-adams-indictment.html
-
-**Hot Microphones and No Audience: Here Are the Rules for the V.P. Debate**\
-`CBS News has announced the rules and format for Tuesday’s debate between Senator JD Vance and Gov. Tim Walz.`\
-https://nytimes.com/2024/09/27/business/media/vp-debate-cbs-rules-format.html
-
-**Helene is bringing ‘life-threatening flash flooding’ to North Carolina.**\
-`In Western North Carolina, heavy rains are causing rivers and lakes to overflow, and landslides have blocked major roads. Across the state, two deaths have been linked to the storm.`\
-https://nytimes.com/2024/09/27/weather/helene-is-bringing-life-threatening-flash-flooding-to-north-carolina.html
-
-**The Best, Easiest Dinner Party of Your Life**\
-`Spicy cucumbers, peppery sea scallops and coconut tapioca fill out this David Tanis menu.`\
-https://nytimes.com/2024/09/27/dining/easy-dinner-party-ideas.html
 
