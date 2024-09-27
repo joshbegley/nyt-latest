@@ -1,3 +1,7 @@
+**The Indictment of Mayor Eric Adams**\
+`Readers react to the corruption charges against New York’s mayor. Also: A path for Iran; the state of speech on campus; a tally of Trump insults.`\
+https://nytimes.com/2024/09/27/opinion/mayor-eric-adams-indictment.html
+
 **In Less Than 20 Minutes, Eric Adams Formally Enters Legal Limbo**\
 `During his arraignment, New York’s typically lively mayor was stoic and stone-faced. Months of legal entanglements lie ahead.`\
 https://nytimes.com/2024/09/27/nyregion/eric-adams-court-appearance.html

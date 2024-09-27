@@ -1,3 +1,7 @@
+**The Indictment of Mayor Eric Adams**\
+`Readers react to the corruption charges against New York’s mayor. Also: A path for Iran; the state of speech on campus; a tally of Trump insults.`\
+https://nytimes.com/2024/09/27/opinion/mayor-eric-adams-indictment.html
+
 **Hot Microphones and No Audience: Here Are the Rules for the V.P. Debate**\
 `CBS News has announced the rules and format for Tuesday’s debate between Senator JD Vance and Gov. Tim Walz.`\
 https://nytimes.com/2024/09/27/business/media/vp-debate-cbs-rules-format.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/us/politics/trump-adams-indictments-analysis.html
 **Along Helene’s destructive path, fewer homeowners have flood insurance.**\
 `By Christopher Flavelle`\
 https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/along-helenes-destructive-path-fewer-homeowners-have-flood-insurance
-
-**On Trip to U.S., Zelensky Finds Ukraine’s Fortunes Tied to the Election**\
-`A whirlwind week of top-level meetings failed to alleviate concerns in Kyiv that a Trump presidency could lead to a dramatic shift in American policy.`\
-https://nytimes.com/2024/09/27/world/europe/zelensky-ukraine-us-election.html
 
