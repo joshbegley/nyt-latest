@@ -1,3 +1,7 @@
+**Merino close to Arsenal return, Raya remains injury doubt**\
+`Mikel Arteta says Arsenal summer signing Mikel Merino could return to the squad next week.`\
+https://nytimes.com/athletic/5799231/2024/09/27/mikel-merino-arsenal-fitness-update/
+
 **Judge Presiding Over Adams Graft Case Fought for Civil Liberties**\
 `Judge Dale E. Ho, who will oversee the case, has a sterling educational pedigree and a history of pointed remarks as a civil rights lawyer.`\
 https://nytimes.com/2024/09/27/nyregion/judge-ho-eric-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5798758/2024/09/27/dodgers-clinch-nl-west-2/
 **Here is the latest on the mayor’s indictment.**\
 `By Matthew Haag`\
 https://nytimes.com/live/2024/09/27/nyregion/eric-adams-arraigned/here-is-the-latest-on-the-mayors-indictment
-
-**Live Updates: Eric Adams Set to Appear in Court on Bribery and Fraud Charges**\
-`The New York mayor was scheduled to be arraigned on Friday. He has insisted he will stay in office and asked New Yorkers to give him a chance to defend himself.`\
-https://nytimes.com/live/2024/09/27/nyregion/eric-adams-arraigned
 
