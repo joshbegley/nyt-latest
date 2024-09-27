@@ -1,3 +1,7 @@
+**In Cedar Key, Fla., resilience is a part of life.**\
+`By Abigail Geiger`\
+https://nytimes.com/live/2024/09/26/weather/tropical-storm-helene-hurricane/in-cedar-key-fla-resilience-is-a-part-of-life
+
 **What to Expect From Helene as It Moves North**\
 `After landfall, the storm will move quickly into Georgia and the Carolinas, where it promises to bring even more rain.`\
 https://nytimes.com/2024/09/26/weather/helene-forecast-friday-georgia-north-carolina.html
