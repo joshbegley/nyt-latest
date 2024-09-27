@@ -1,3 +1,7 @@
+**Maggie Smith Was Imperious in the Most Delightful Way**\
+`Throughout her career and on “Downton Abbey,” she perfected the role of the commanding Englishwoman with an arrow-sharp wit.`\
+https://nytimes.com/2024/09/27/movies/maggie-smith-appraisal.html
+
 **Transcript: Ezra Klein Interviews Emily Jashinsky**\
 `The Sept. 27. 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/09/27/podcasts/transcript-ezra-klein-interviews-emily-jashinsky.html
@@ -27,14 +31,10 @@ https://nytimes.com/2024/09/27/us/politics/republican-candidates-wives-ads.html
 https://nytimes.com/2024/09/27/books/review/book-club-lets-talk-about-the-hypocrite.html
 
 **In a Florida Beach Community, Helene Turned Homes to Rubble**\
-`Dekle Beach, southeast of Tallahassee, was hit by triple-digit wind speeds and rising waters.`\
+`Dekle Beach, southeast of Tallahassee, was hit by fast-rising water and winds of more than 100 miles per hour.`\
 https://nytimes.com/2024/09/27/weather/dekle-beach-florida-helene.html
 
 **Top Bidder for Citgo Is Elliott Management, Court Master Says**\
 `The sale, which requires a judge’s approval, would help compensate foreign companies owed billions of dollars by the government of Venezuela, which owns Citgo.`\
 https://nytimes.com/2024/09/27/business/energy-environment/citgo-venezuela-elliott-management.html
-
-**Inside Columbus Crew's visit to the White House**\
-`Wilfried Nancy has become the first Black head coach of an MLS team to visit the White House - their day in the Oval Office carries weight`\
-https://nytimes.com/athletic/5799764/2024/09/27/columbus-crew-white-house-biden-nancy/
 

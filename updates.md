@@ -1,3 +1,11 @@
+**Maggie Smith Was Imperious in the Most Delightful Way**\
+`Throughout her career and on “Downton Abbey,” she perfected the role of the commanding Englishwoman with an arrow-sharp wit.`\
+https://nytimes.com/2024/09/27/movies/maggie-smith-appraisal.html
+
+**In a Florida Beach Community, Helene Turned Homes to Rubble**\
+`Dekle Beach, southeast of Tallahassee, was hit by fast-rising water and winds of more than 100 miles per hour.`\
+https://nytimes.com/2024/09/27/weather/dekle-beach-florida-helene.html
+
 **Transcript: Ezra Klein Interviews Emily Jashinsky**\
 `The Sept. 27. 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/09/27/podcasts/transcript-ezra-klein-interviews-emily-jashinsky.html
