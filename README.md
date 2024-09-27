@@ -1,3 +1,7 @@
+**Tropical Storm John Set to Lash Mexico’s Coast With More Rain**\
+`The storm is expected to weaken as it moves along the southwestern coast, but officials warned some states in Mexico to brace for risks of flash flooding and mudslides.`\
+https://nytimes.com/2024/09/27/world/americas/tropical-storm-john-mexico.html
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/09/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5793560/2024/09/27/sergino-dest-my-game-in-my-words
 **Max Shalunov is officially no longer a Blackhawks prospect, but he won't be soon forgotten**\
 `Wednesday's first preseason game marked the end of an era dating back to the earliest days of The Athletic.`\
 https://nytimes.com/athletic/5797973/2024/09/27/blackhawks-max-shalunov-nhl-prospect-khl/
-
-**Lowetide: How much more can Connor Brown contribute to Oilers this season?**\
-`There are strong odds Brown will soar past last season's offensive production in 2024-25.`\
-https://nytimes.com/athletic/5792332/2024/09/27/connor-brown-oilers-stats/
 
