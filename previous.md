@@ -1,3 +1,7 @@
+**'There's no disappointment': Padres say they've moved on after Dodgers claim NL West title**\
+`LOS ANGELES — As their opponents basked in the glow of another division title on the field in front of them, several Padres lingered Thursday along the railing of Dodger Stadium’s visitors dugout, staring out at the celebration they had hoped would be theirs.`\
+https://nytimes.com/athletic/5798719/2024/09/27/padres-refocusing-postseason/
+
 **Melting Man**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/09/27/learning/melting-man.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/arts/television/late-night-mayor-eric-adams.html
 **With too many runners left on, Twins on verge of being left out**\
 `In a 13-inning loss to the Marlins, the Twins stranded 11 of 15 base runners from the seventh inning on. Their playoff chances are slim.`\
 https://nytimes.com/athletic/5798661/2024/09/27/twins-runners-scoring-position-playoffs/
-
-**Word of the Day: curtailment**\
-`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/27/learning/word-of-the-day-curtailment.html
 

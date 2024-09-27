@@ -1,3 +1,7 @@
+**'There's no disappointment': Padres say they've moved on after Dodgers claim NL West title**\
+`LOS ANGELES — As their opponents basked in the glow of another division title on the field in front of them, several Padres lingered Thursday along the railing of Dodger Stadium’s visitors dugout, staring out at the celebration they had hoped would be theirs.`\
+https://nytimes.com/athletic/5798719/2024/09/27/padres-refocusing-postseason/
+
 **Word of the Day: curtailment**\
 `This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/27/learning/word-of-the-day-curtailment.html
