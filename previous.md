@@ -1,3 +1,19 @@
+**The Best of Late Night This Week**\
+`There were a few topics the hosts couldn’t get enough of this week including Donald Trump’s efforts to court female voters, and New York City Mayor Eric Adams’s indictment on five federal charges.`\
+https://nytimes.com/interactive/2024/09/27/arts/television/best-of-late-night-eric-adams.html
+
+**G.O.P. Candidates, Looking to Soften Their Image, Turn to Their Wives**\
+`Ads featuring candidates’ families have long been a campaign staple. But they have taken on new urgency, especially for vulnerable Republicans, in a year when reproductive rights are a pivotal issue.`\
+https://nytimes.com/2024/09/27/us/politics/republican-candidates-wives-ads.html
+
+**Book Club: Let’s Talk About ‘The Hypocrite’**\
+`Jo Hamya’s novel tells the story of the fraught relationship between a self-absorbed British writer and his playwright daughter.`\
+https://nytimes.com/2024/09/27/books/review/book-club-lets-talk-about-the-hypocrite.html
+
+**In a Florida Beach Community, Helene Turned Homes to Rubble**\
+`Dekle Beach, southeast of Tallahassee, was hit by triple-digit wind speeds and rising waters.`\
+https://nytimes.com/2024/09/27/weather/dekle-beach-florida-helene.html
+
 **Top Bidder for Citgo Is Elliott Management, Court Master Says**\
 `The sale, which requires a judge’s approval, would help compensate foreign companies owed billions of dollars by the government of Venezuela, which owns Citgo.`\
 https://nytimes.com/2024/09/27/business/energy-environment/citgo-venezuela-elliott-management.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5799731/2024/09/27/piston-owner-tom-gores-buys-stak
 **The Adams Indictment Is Not a Civil Rights Case**\
 `His attempt to cast himself as victim of a racial conspiracy is unlikely to work.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/adams-indictment-civil-rights
-
-**Who Is Hassan Nasrallah, Leader of Hezbollah?**\
-`In 32 years in charge of Hezbollah, Mr. Nasrallah, 64, has built the Iranian-backed militia into an influential force in Lebanon and a potent adversary of Israel.`\
-https://nytimes.com/2024/09/27/world/middleeast/hassan-nasrallah-hezbollah-leader.html
-
-**Should You Be Allowed to Profit From A.I.-Generated Art?**\
-`The magazine’s Ethicist columnist on the values and economics of art created via artificial intelligence.`\
-https://nytimes.com/2024/09/27/magazine/ai-art-profit-ethics.html
-
-**Antidoping Agency Lost Track of Open Cases and Test Results Before Olympics**\
-`In a fraught meeting in May, top officials at the World Anti-Doping Agency were warned that a computer glitch might allow athletes accused of doping to compete at the Paris Games.`\
-https://nytimes.com/2024/09/27/world/wada-doping-database-crisis.html
-
-**The Possible Meanings of a Masculine Religious Revival**\
-`By Ross Douthat`\
-https://nytimes.com/2024/09/27/opinion/religion-gender-divide.html
 

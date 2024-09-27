@@ -1,3 +1,19 @@
+**The Best of Late Night This Week**\
+`There were a few topics the hosts couldn’t get enough of this week including Donald Trump’s efforts to court female voters, and New York City Mayor Eric Adams’s indictment on five federal charges.`\
+https://nytimes.com/interactive/2024/09/27/arts/television/best-of-late-night-eric-adams.html
+
+**G.O.P. Candidates, Looking to Soften Their Image, Turn to Their Wives**\
+`Ads featuring candidates’ families have long been a campaign staple. But they have taken on new urgency, especially for vulnerable Republicans, in a year when reproductive rights are a pivotal issue.`\
+https://nytimes.com/2024/09/27/us/politics/republican-candidates-wives-ads.html
+
+**Book Club: Let’s Talk About ‘The Hypocrite’**\
+`Jo Hamya’s novel tells the story of the fraught relationship between a self-absorbed British writer and his playwright daughter.`\
+https://nytimes.com/2024/09/27/books/review/book-club-lets-talk-about-the-hypocrite.html
+
+**In a Florida Beach Community, Helene Turned Homes to Rubble**\
+`Dekle Beach, southeast of Tallahassee, was hit by triple-digit wind speeds and rising waters.`\
+https://nytimes.com/2024/09/27/weather/dekle-beach-florida-helene.html
+
 **Top Bidder for Citgo Is Elliott Management, Court Master Says**\
 `The sale, which requires a judge’s approval, would help compensate foreign companies owed billions of dollars by the government of Venezuela, which owns Citgo.`\
 https://nytimes.com/2024/09/27/business/energy-environment/citgo-venezuela-elliott-management.html
