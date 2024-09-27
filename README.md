@@ -1,3 +1,7 @@
+**New York Deserves Better Than This**\
+`With all its talent, how did the city end up with a mayor accused of being an incessant petty grifter?`\
+https://nytimes.com/2024/09/27/opinion/new-york-deserves-better-than-this.html
+
 **Inside a Josh Stein Ad Blasting Mark Robinson as ‘Unfit’ for North Carolina Governor**\
 `No “Black Nazi” quotations or porn-site references here. Just Robinson’s own bloodthirsty words.`\
 https://nytimes.com/2024/09/27/us/politics/josh-stein-mark-robinson-ad.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799313/2024/09/27/mings-kamara-aston-villa-injury-
 **Scoop City: Caleb Williams' rough start, in context**\
 `Where Caleb Williams' early-season performance stacks up against former No. 1 picks, and a former teammate's surprising take on Josh Allen`\
 https://nytimes.com/athletic/5799263/2024/09/27/caleb-williams-rough-start/
-
-**‘Intermezzo’ Book Club Conversation Space: Chat About Sally Rooney’s Other Books**\
-`Looking to discuss Sally Rooney’s previous books? Chat about them here.`\
-https://nytimes.com/2024/09/27/books/review/intermezzo-sally-rooney-book-club-other-books.html
 
