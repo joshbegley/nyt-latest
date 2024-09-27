@@ -1,3 +1,11 @@
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 6?**\
+`As we approach another weekend of action in the Premier League, our writers have had a go at predicting the lineups for the upcoming matches`\
+https://nytimes.com/athletic/5778668/2024/09/27/premier-league-predicted-line-ups-gameweek-6/
+
+**Helene Has Killed at Least 19 People in 3 States**\
+`Officials in the Southeast said the toll was likely to rise.`\
+https://nytimes.com/2024/09/27/weather/helene-deaths.html
+
 **I’ve Lived With Hurricanes for Years. The Decisions Keep Getting Harder.**\
 `More than the sheer repetition of extreme weather, the stakes have grown — for our homes, our communities and our lives.`\
 https://nytimes.com/2024/09/27/opinion/hurricane-helene-damage-florida-georgia-south-carolina.html
