@@ -1,3 +1,15 @@
+**The Latest Trump-Branded Gear? A $100,000 Watch.**\
+`A line of luxury watches was promoted by former President Donald J. Trump for its gold and its diamonds. Watch experts are less enthusiastic about the quality.`\
+https://nytimes.com/2024/09/27/style/trump-watches.html
+
+**Samuel, Kittle trending toward playing vs. Pats; McCaffrey ramping up**\
+`Samuel (calf) practiced Thursday and Friday, Kittle (hamstring) has no injury designation.`\
+https://nytimes.com/athletic/5799687/2024/09/27/49ers-samuel-kittle-mcccaffrey-injuries/
+
+**Clark joins Fever in condemning 'hateful comments' toward WNBA players**\
+`The online targeting of WNBA players appears to have reached a tipping point during the postseason.`\
+https://nytimes.com/athletic/5800197/2024/09/27/caitlin-clark-fever-condemns-hate-wnba-2/
+
 **Nick Martinez could get a nice payday this offseason. Will it be from the Reds?**\
 `Martinez has enjoyed his time in Cincinnati, but it's unlikely he'll exercise his $12 million player option for 2025. `\
 https://nytimes.com/athletic/5800152/2024/09/27/reds-nick-martinez-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5800123/2024/09/27/presidents-cup-2024-internationa
 **Athlos NYC showed what's possible for track in America — but can the idea stick?**\
 `Athletes raved about Thursday's flashy event in New York that hoped to seize on post-Olympic buzz. But there's still a lot of work to do.`\
 https://nytimes.com/athletic/5799920/2024/09/27/athlos-nyc-track-olympics-gabby-thomas/
-
-**DeVonta Smith out, A.J. Brown questionable for Eagles Sunday vs. Bucs**\
-`The Philadelphia Eagles may be without their top two wide receivers Sunday as they head down to Tampa Bay.`\
-https://nytimes.com/athletic/5799923/2024/09/27/devonta-smith-aj-brown-eagles/
-
-**Guardiola invites Arteta to explain cryptic City comments**\
-`Pep Guardiola has invited Mikel Arteta to explain his comment about being at Manchester City for four years and therefore knowing what happens at the club.`\
-https://nytimes.com/athletic/5799357/2024/09/27/pep-guardiola-mikel-arteta-city-arsenal/
-
-**Maresca calls on Chelsea players to attend matches even when not selected**\
-`Enzo Maresca has told his Chelsea players they must attend home games even if they have not been selected in the matchday squad.`\
-https://nytimes.com/athletic/5799245/2024/09/27/enzo-maresca-chelsea-players/
 
