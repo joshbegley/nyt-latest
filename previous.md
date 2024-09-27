@@ -1,3 +1,7 @@
+**City Investigators Seize Cash From New York Sheriff’s Office**\
+`The Department of Investigation is looking into whether Sheriff Anthony Miranda’s agency improperly took money from cannabis stores that it raided, closed and padlocked.`\
+https://nytimes.com/2024/09/26/nyregion/new-york-city-sheriffs-office-cash-seized.html
+
 **In Cedar Key, Fla., resilience is a part of life.**\
 `By Abigail Geiger`\
 https://nytimes.com/live/2024/09/26/weather/tropical-storm-helene-hurricane/in-cedar-key-fla-resilience-is-a-part-of-life
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/nyregion/trump-civil-fraud-penalty-appeals-court.
 **Corrections: Sept. 27, 2024**\
 `Corrections that appeared in print on Friday, Sept. 27, 2024.`\
 https://nytimes.com/2024/09/26/pageoneplus/corrections-sept-27-2024.html
-
-**A's close out their Oakland chapter with a win: 'I couldn’t be more proud'**\
-`The A's finished off their 57 years in Oakland with a 3-2 win in front of 46,886 fans. "It means more. You feel it in the stadium."`\
-https://nytimes.com/athletic/5798100/2024/09/26/oakland-athletics-final-out-coliseum/
 

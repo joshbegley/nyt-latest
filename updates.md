@@ -1,3 +1,7 @@
+**City Investigators Seize Cash From New York Sheriff’s Office**\
+`The Department of Investigation is looking into whether Sheriff Anthony Miranda’s agency improperly took money from cannabis stores that it raided, closed and padlocked.`\
+https://nytimes.com/2024/09/26/nyregion/new-york-city-sheriffs-office-cash-seized.html
+
 **In Cedar Key, Fla., resilience is a part of life.**\
 `By Abigail Geiger`\
 https://nytimes.com/live/2024/09/26/weather/tropical-storm-helene-hurricane/in-cedar-key-fla-resilience-is-a-part-of-life
