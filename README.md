@@ -1,7 +1,3 @@
-**Death Penalty May Be Off Table for 9/11 Suspect No Matter How Case Unfolds**\
-`The government is trying to cancel a plea deal for Khalid Shaikh Mohammed, accused of masterminding the attacks. But a clause in the agreement may stop prosecutors from reinstating a capital case.`\
-https://nytimes.com/2024/09/27/us/politics/sept-11-death-penalty-ksm.html
-
 **Iran’s supreme leader holds an emergency meeting after Israel targets Hezbollah’s chief in an attack.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/irans-supreme-leader-holds-an-emergency-meeting-after-israel-targets-hezbollahs-chief-in-an-attack
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5800152/2024/09/27/reds-nick-martinez-contract/
 **Maggie Smith’s Influence Rippled to the Cocktail Hour**\
 `In 2011, a New York bartender paid tribute to the actor with a sly tweak to a pre-Prohibition cocktail.`\
 https://nytimes.com/2024/09/27/dining/maggie-smith-cocktail-between-the-sheets.html
+
+**Calling ‘Survivor’ Contestants From Tim Walz’s Motorcade**\
+`Covering an election year can be stressful. But instead of binge-watching “Survivor” to decompress, two reporters wrote about the politics — or, lack thereof — on the show instead.`\
+https://nytimes.com/2024/09/27/insider/survivor-contestants.html
 
