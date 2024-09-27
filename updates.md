@@ -1,3 +1,7 @@
+**De Bruyne out of Newcastle game as Rodri has ACL surgery**\
+`Manchester City will be without Kevin De Bruyne when they face Newcastle United on Saturday.`\
+https://nytimes.com/athletic/5799187/2024/09/27/de-bruyne-rodri-injury-man-city/
+
 **Surviving Spouses May Not Be Responsible for Partners’ Medical Bills**\
 `A call from a debt collector may add to the challenges that bereaved people are already dealing with. But spouses “should not assume that they have to pay.”`\
 https://nytimes.com/2024/09/27/your-money/medical-bills-spouse-deceased.html
