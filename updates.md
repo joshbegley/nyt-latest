@@ -1,3 +1,7 @@
+**The Cure’s First Fresh Music in 16 Years, and 7 More New Songs**\
+`Hear tracks by Lady Gaga, Rosalía, Stevie Nicks and others.`\
+https://nytimes.com/2024/09/27/arts/music/playlist-cure-lady-gaga-stevie-nicks.html
+
 **Maggie Smith Brought Sharp-Tongued Wit Stateside**\
 `Americans are experts in the comedy of bluster, as many of our late night hosts can attest. We’re less practiced in precision.`\
 https://nytimes.com/2024/09/25/opinion/maggie-smith-death.html
