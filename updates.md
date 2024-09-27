@@ -1,3 +1,11 @@
+**Prime Tire: The Athletic's F1 writers reflect on Daniel Ricciardo's legacy**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter. `\
+https://nytimes.com/athletic/5800211/2024/09/27/daniel-ricciardo-exit-f1-prime-tire/
+
+**Hurricane Helene Leaves Huge Swaths of Damage in Its Wake**\
+`More than 40 people were reported dead in four states as the huge storm spawned flash floods and landslides on its way north after devastating parts of Florida’s Gulf Coast.`\
+https://nytimes.com/2024/09/27/us/hurricane-helene-leaves-huge-swaths-of-damage-in-its-wake.html
+
 **Martinez handed two-game ban for trophy groin gesutre and camera slap**\
 `Argentina goalkeeper Emiliano Martinez has been suspended for two games by FIFA&#8217;s disciplinary committee.`\
 https://nytimes.com/athletic/5800206/2024/09/27/emi-martinez-suspension-argentina-fifa/

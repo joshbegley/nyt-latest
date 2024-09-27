@@ -1,3 +1,11 @@
+**Prime Tire: The Athletic's F1 writers reflect on Daniel Ricciardo's legacy**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter. `\
+https://nytimes.com/athletic/5800211/2024/09/27/daniel-ricciardo-exit-f1-prime-tire/
+
+**Hurricane Helene Leaves Huge Swaths of Damage in Its Wake**\
+`More than 40 people were reported dead in four states as the huge storm spawned flash floods and landslides on its way north after devastating parts of Florida’s Gulf Coast.`\
+https://nytimes.com/2024/09/27/us/hurricane-helene-leaves-huge-swaths-of-damage-in-its-wake.html
+
 **Martinez handed two-game ban for trophy groin gesutre and camera slap**\
 `Argentina goalkeeper Emiliano Martinez has been suspended for two games by FIFA&#8217;s disciplinary committee.`\
 https://nytimes.com/athletic/5800206/2024/09/27/emi-martinez-suspension-argentina-fifa/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/27/insider/survivor-contestants.html
 **What Helene Will Bring Next**\
 `Though risks will remain over the next day or so, they will be much less significant.`\
 https://nytimes.com/2024/09/27/weather/helene-forecast-friday-north-carolina.html
-
-**Helene’s rising tides brought record-breaking storm surges to Tampa Bay.**\
-`Tampa Bay’s low-lying communities were already vulnerable to rising sea levels. Helene came in with a record-breaking storm surge.`\
-https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/helenes-rising-tides-brought-record-breaking-storm-surges-to-tampa-bay
-
-**International Team storms back to tie U.S. in Presidents Cup**\
-`The Internationals, down 5-0 to start the day, won all five foursome matches to tie the Americans heading into Saturday.`\
-https://nytimes.com/athletic/5800123/2024/09/27/presidents-cup-2024-international-team-united-states-day-2/
 
