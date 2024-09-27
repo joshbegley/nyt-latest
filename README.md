@@ -1,3 +1,7 @@
+**Martinez handed two-game ban for trophy groin gesutre and camera slap**\
+`Argentina goalkeeper Emiliano Martinez has been suspended for two games by FIFA&#8217;s disciplinary committee.`\
+https://nytimes.com/athletic/5800206/2024/09/27/emi-martinez-suspension-argentina-fifa/
+
 **The Latest Trump-Branded Gear? A $100,000 Watch.**\
 `A line of luxury watches was promoted by former President Donald J. Trump for its gold and its diamonds. Watch experts are less enthusiastic about the quality.`\
 https://nytimes.com/2024/09/27/style/trump-watches.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/helenes-ris
 **International Team storms back to tie U.S. in Presidents Cup**\
 `The Internationals, down 5-0 to start the day, won all five foursome matches to tie the Americans heading into Saturday.`\
 https://nytimes.com/athletic/5800123/2024/09/27/presidents-cup-2024-international-team-united-states-day-2/
-
-**Athlos NYC showed what's possible for track in America — but can the idea stick?**\
-`Athletes raved about Thursday's flashy event in New York that hoped to seize on post-Olympic buzz. But there's still a lot of work to do.`\
-https://nytimes.com/athletic/5799920/2024/09/27/athlos-nyc-track-olympics-gabby-thomas/
 
