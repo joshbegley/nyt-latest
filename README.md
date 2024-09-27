@@ -1,3 +1,11 @@
+**NHL waiver tracker: Best players on the wire throughout preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/5799672/2024/09/27/nhl-waivers-tracker-preseason/
+
+**Pistons owner Gores agrees to buy 27 percent of Chargers: Source**\
+`The agreement is subject to approval by NFL owners next month.`\
+https://nytimes.com/athletic/5799731/2024/09/27/piston-owner-tom-gores-buys-stake-chargers/
+
 **The Adams Indictment Is Not a Civil Rights Case**\
 `His attempt to cast himself as victim of a racial conspiracy is unlikely to work.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/adams-indictment-civil-rights
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/27/us/politics/evidence-trump-election-interference.
 **Parsons suffers high-ankle sprain, Lawrence out with foot injury**\
 `Parsons was carted off the field with just 3:30 remaining in Thursday's game at MetLife Stadium.`\
 https://nytimes.com/athletic/5799709/2024/09/27/cowboys-micah-parsons-demarcus-lawrence-injury/
-
-**Booby Traps, Pager Attacks and the Law of War**\
-`After Israel detonated pagers and walkie-talkies in Lebanon, a fierce debate began about whether the attacks violated international law. A U.N. treaty from 1996 offers an answer.`\
-https://nytimes.com/2024/09/27/world/europe/israel-hezbollah-lebanon-pager-attack.html
-
-**Fort Myers Beach, Devastated by Hurricane Ian, Floods Again**\
-`Even though Hurricane Helene made landfall hundreds of miles to the north, its storm surge inundated roads and gushed into buildings.`\
-https://nytimes.com/2024/09/27/weather/helene-fort-myers-beach-floods.html
 
