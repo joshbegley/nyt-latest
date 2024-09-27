@@ -1,3 +1,7 @@
+**Surviving Spouses May Not Be Responsible for Partners’ Medical Bills**\
+`A call from a debt collector may add to the challenges that bereaved people are already dealing with. But spouses “should not assume that they have to pay.”`\
+https://nytimes.com/2024/09/27/your-money/medical-bills-spouse-deceased.html
+
 **Scenes from a celebration: Why Dodgers’ latest defense of the NL West is ‘a tick sweeter’**\
 `The Dodgers won the division for the eighth time in nine years under Dave Roberts though it came only after a season of extreme adversity.`\
 https://nytimes.com/athletic/5798758/2024/09/27/dodgers-clinch-nl-west-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/health/ivf-birth-defects.html
 **The Big Apple Business View on Eric Adams**\
 `The criminal charges against the embattled mayor of New York have given corporate leaders pause about the city’s political future.`\
 https://nytimes.com/2024/09/27/business/dealbook/new-york-business-eric-adams.html
-
-**For improved Chargers defense, Patrick Mahomes, Chiefs represent the 'biggest challenge'**\
-`Defensive coordinator Jesse Minter: "They’re 3-0, they’re the defending champs. It’s definitely a great test.”`\
-https://nytimes.com/athletic/5798164/2024/09/27/chargers-defense-patrick-mahomes-chiefs/
 
