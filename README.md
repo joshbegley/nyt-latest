@@ -1,3 +1,7 @@
+**Potter: 'Frustration and anger' over Chelsea exit but no regrets taking the job**\
+`Graham Potter says there was &#8220;frustration and anger&#8221; over the way his Chelsea tenure ended but he does not regret taking the job.`\
+https://nytimes.com/athletic/5798766/2024/09/27/graham-potter-chelsea-sacking/
+
 **'There's no disappointment': Padres say they've moved on after Dodgers claim NL West title**\
 `LOS ANGELES — As their opponents basked in the glow of another division title on the field in front of them, several Padres lingered Thursday along the railing of Dodger Stadium’s visitors dugout, staring out at the celebration they had hoped would be theirs.`\
 https://nytimes.com/athletic/5798719/2024/09/27/padres-refocusing-postseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5798241/2024/09/27/manchester-city-women-champions-
 **Late Night Roasts New York Mayor Eric Adams Over His Indictment**\
 `Jimmy Fallon joked that it’s “always fun when the city mimics the exact plot of a Batman movie.”`\
 https://nytimes.com/2024/09/27/arts/television/late-night-mayor-eric-adams.html
-
-**With too many runners left on, Twins on verge of being left out**\
-`In a 13-inning loss to the Marlins, the Twins stranded 11 of 15 base runners from the seventh inning on. Their playoff chances are slim.`\
-https://nytimes.com/athletic/5798661/2024/09/27/twins-runners-scoring-position-playoffs/
 
