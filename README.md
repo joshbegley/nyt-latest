@@ -1,3 +1,11 @@
+**Westminster Abbey’s Brontë Plaque Had a Typo for 85 Years. It’s Fixed Now.**\
+`Punctuation delayed, but not denied: A memorial to Charlotte, Emily and Anne Brontë at Poets’ Corner in the celebrated London church finally gets its accent marks.`\
+https://nytimes.com/2024/09/27/world/europe/westminster-abbey-bronte-plaque-accent-marks.html
+
+**How Google Defended Itself in the Ad Tech Antitrust Trial**\
+`The tech giant, which is wrapping up its arguments in the federal monopoly trial, simply says it has the best product.`\
+https://nytimes.com/2024/09/27/technology/google-antitrust-case-lawsuit.html
+
 **UFC reaches $375 million settlement in antitrust lawsuit**\
 `UFC reached a settlement with a group of former fighters in a class action lawsuit alleging the promotion suppressed their wages.`\
 https://nytimes.com/athletic/5799292/2024/09/27/ufc-settlement-antitrust-lawsuit/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5799414/2024/09/27/oakland-as-last-game-the-windup/
 **Haas F1 lawsuit against Guenther Steiner dismissed**\
 `However, Steiner's lawsuit against Haas is still pending. `\
 https://nytimes.com/athletic/5799403/2024/09/27/haas-f1-guenther-steiner-lawsuit-dismissed/
-
-**How might the Kings adjust without Drew Doughty? Who must step up?**\
-`Doughty will be out weeks, at the minimum. Who will join Mikey Anderson, and which players can claim a bigger role?`\
-https://nytimes.com/athletic/5798767/2024/09/27/doughty-injury-kings-lineup/
-
-**Climate Protesters Land in Jail for Attack on Van Gogh’s ‘Sunflowers’**\
-`A judge sentenced two climate protesters to prison terms for throwing soup at the work in 2022, an act he called “criminally idiotic.”`\
-https://nytimes.com/2024/09/27/arts/design/van-gogh-soup-jail.html
 
