@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr. Won’t Be on New York Ballot, Supreme Court Rules**\
+`The candidate had asked the justices to intervene after a state judge found that he had used an improper home address in election paperwork.`\
+https://nytimes.com/2024/09/27/us/politics/robert-f-kennedy-jr-new-york-ballot-supreme-court.html
+
 **NHL waiver tracker: Best players on the wire throughout preseason**\
 `Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
 https://nytimes.com/athletic/5799672/2024/09/27/nhl-waivers-tracker-preseason/
