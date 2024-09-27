@@ -1,3 +1,19 @@
+**MLB's 10 biggest disappointments in 2024**\
+`It's been another exciting MLB season, but of course it hasn't all been positive. Some teams and players in particular stand out. `\
+https://nytimes.com/athletic/5798926/2024/09/27/mlb-biggest-disappointments-2024-whitesox-bluejays-mariners/
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, time loops, aliens and ecological collapse.`\
+https://nytimes.com/2024/09/27/movies/science-fiction-movies-streaming.html
+
+**10 Great Maggie Smith Performances to Stream**\
+`In “Downton Abbey,” “A Room With a View” and dozens of other films and television series, she delighted audiences with her portrayal of sharp, tart-tongued and often wryly funny Englishwomen.`\
+https://nytimes.com/2024/09/27/movies/maggie-smith-streaming.html
+
+**This Is Not a Beauty Podcast: Leaving a Mark**\
+`Beauty and politics are inseparable — from how politicians style their hair and makeup before addressing the nation to the political nature of tattoos.`\
+https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/leaving-a-mark.html
+
 **Westminster Abbey’s Brontë Plaque Had a Typo for 85 Years. It’s Fixed Now.**\
 `Punctuation delayed, but not denied: A memorial to Charlotte, Emily and Anne Brontë at Poets’ Corner in the celebrated London church finally gets its accent marks.`\
 https://nytimes.com/2024/09/27/world/europe/westminster-abbey-bronte-plaque-accent-marks.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/27/dining/zha-jiang-mian-porky-and-rich-salty-sweet-
 **The Ultimate Celebrity Photographer**\
 `In a declining business, Kevin Mazur has thrived by gaining the trust of Beyoncé, Madonna and Taylor Swift. His motto: “Why wouldn’t you want to make people look good?”`\
 https://nytimes.com/2024/09/27/style/kevin-mazur-photographer-beyonce-taylor-swift.html
-
-**‘Titaníque’ Was Her Big Hit. Is ‘Big Gay Jamboree’ Really Her Swan Song?**\
-`Two years after debuting the “Titanic” parody, Marla Mindelle says her new show, with Margot Robbie as a producer, may be her last as an actor.`\
-https://nytimes.com/2024/09/27/theater/marla-mindelle-big-gay-jamboree-titanique.html
-
-**How Daniel Ricciardo's F1 career ended: From chasing a Red Bull return to losing his RB seat**\
-`Ricciardo was always intended to be Red Bull's safety net. But fluctuating form and a series of decisions leaves the veteran out of F1. `\
-https://nytimes.com/athletic/5796722/2024/09/27/daniel-ricciardo-f1-exit-red-bull/
-
-**The Windup: Oakland's fitting, frustrating end**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5799414/2024/09/27/oakland-as-last-game-the-windup/
-
-**Haas F1 lawsuit against Guenther Steiner dismissed**\
-`However, Steiner's lawsuit against Haas is still pending. `\
-https://nytimes.com/athletic/5799403/2024/09/27/haas-f1-guenther-steiner-lawsuit-dismissed/
 

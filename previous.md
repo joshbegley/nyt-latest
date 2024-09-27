@@ -3,7 +3,7 @@
 https://nytimes.com/2024/09/27/world/europe/westminster-abbey-bronte-plaque-accent-marks.html
 
 **How Google Defended Itself in the Ad Tech Antitrust Trial**\
-`The tech giant, which is wrapping up its arguments in the federal monopoly trial, simply says it has the best product.`\
+`The tech giant, which wrapped up its arguments in the federal monopoly trial, simply says it has the best product.`\
 https://nytimes.com/2024/09/27/technology/google-antitrust-case-lawsuit.html
 
 **UFC reaches $375 million settlement in antitrust lawsuit**\

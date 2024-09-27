@@ -1,3 +1,7 @@
+**How Google Defended Itself in the Ad Tech Antitrust Trial**\
+`The tech giant, which wrapped up its arguments in the federal monopoly trial, simply says it has the best product.`\
+https://nytimes.com/2024/09/27/technology/google-antitrust-case-lawsuit.html
+
 **Westminster Abbey’s Brontë Plaque Had a Typo for 85 Years. It’s Fixed Now.**\
 `Punctuation delayed, but not denied: A memorial to Charlotte, Emily and Anne Brontë at Poets’ Corner in the celebrated London church finally gets its accent marks.`\
 https://nytimes.com/2024/09/27/world/europe/westminster-abbey-bronte-plaque-accent-marks.html
