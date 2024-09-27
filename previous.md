@@ -1,3 +1,11 @@
+**Slot sessions, tactical tweaks and a catchy song: How Diaz was rebooted**\
+`The Colombian looks reenergised and a renewed threat this season - so what is behind the transformation?`\
+https://nytimes.com/athletic/5790532/2024/09/27/luis-diaz-liverpool-rebooted/
+
+**FPL: Playing your wildcard this week? Here's what to consider**\
+`Our FPL expert is playing his wildcard this week and runs through the options he is weighing up before taking the plunge.`\
+https://nytimes.com/athletic/5791934/2024/09/27/fantasy-premier-league-wildcard-draft-strategies/
+
 **Why Adam Wharton has yet to spark Crystal Palace into life this season**\
 `Last season was the midfielder's first as a regular in senior football and was swiftly pursued by England selection and a place at Euro 2024`\
 https://nytimes.com/athletic/5789240/2024/09/27/wharton-palace-glasner-england/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5795855/2024/09/27/wrexhams-women-return-to-the-rac
 **Pilot, stuntman, billionaire businessman - meet potential Everton saviour Dan Friedkin**\
 `Dan Friedkin has come late to football after making billions in business — his interests are varied and plentiful`\
 https://nytimes.com/athletic/5796168/2024/09/27/dan-friedkin-pilot-stuntman-billionaire-businessman-everton/
-
-**Ranking each Premier League club for 'dark arts'**\
-`Mystery injuries, delaying tactics, busy medics... every club bends rules where they can, but who are the best (and worst) exponents?`\
-https://nytimes.com/athletic/5788866/2024/09/27/premier-league-club-dark-arts-ranked/
-
-**How to stop Arsenal scoring from corners: Hybrid marking, better grappling and an active keeper**\
-`Plenty of teams have tried and failed to stop Arsenal from scoring from corners, so what approach should opponents be taking?`\
-https://nytimes.com/athletic/5795988/2024/09/27/stopping-arsenal-scoring-corners/
 
