@@ -1,3 +1,11 @@
+**Clarice Rivers, Earthy Muse of Two Artists, Dies at 88**\
+`She inspired Niki de Saint Phalle to create the fantastical female avatars she called the Nanas. She also inspired her husband, Larry Rivers.`\
+https://nytimes.com/2024/09/27/arts/clarice-rivers-dead.html
+
+**Myles Garrett to play vs. Raiders, Cleveland missing both tackels and Njoku**\
+`Myles Garrett will play despite foot, thigh, and Achilles injuries. The Browns still have a long list of injured players missing Sunday.`\
+https://nytimes.com/athletic/5800002/2024/09/27/myles-garrett-browns-injuries/
+
 **Israel Targeted Hezbollah’s Leader in a Strike Near Beirut**\
 `Also, Hurricane Helene destroyed large swaths of the Southeast. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/09/27/briefing/israel-hezbollah-leader-hurricane-helene-destruction.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/weather/100000009726572/hurricane-helene-storm-floodin
 **What Our Reporter Saw After Days of Destruction Across Lebanon**\
 `Lebanon is reeling amid ongoing Israeli bombardments that have so far killed more than 700 people since Sept.`\
 https://nytimes.com/video/world/middleeast/100000009716171/lebanon-bekaa-valley-dispatch.html
-
-**Mayor Adams Pleads Not Guilty as New Yorkers Contemplate What Comes Next**\
-`Mayor Eric Adams, muted but defiant, said he was innocent of bribery and other charges, and his lawyer attacked the prosecution’s case.`\
-https://nytimes.com/2024/09/27/nyregion/eric-adams-arraignment-bribery-fraud.html
-
-**Caitlin Clark wins ROY, Napheesa Collier wins DPOY**\
-`Clark entered the league as the most-anticipated rookie in league history.`\
-https://nytimes.com/athletic/5796437/2024/09/27/caitlin-clark-wnba-rookie-of-the-year/
 

@@ -1,3 +1,11 @@
+**Clarice Rivers, Earthy Muse of Two Artists, Dies at 88**\
+`She inspired Niki de Saint Phalle to create the fantastical female avatars she called the Nanas. She also inspired her husband, Larry Rivers.`\
+https://nytimes.com/2024/09/27/arts/clarice-rivers-dead.html
+
+**Myles Garrett to play vs. Raiders, Cleveland missing both tackels and Njoku**\
+`Myles Garrett will play despite foot, thigh, and Achilles injuries. The Browns still have a long list of injured players missing Sunday.`\
+https://nytimes.com/athletic/5800002/2024/09/27/myles-garrett-browns-injuries/
+
 **Israel Targeted Hezbollah’s Leader in a Strike Near Beirut**\
 `Also, Hurricane Helene destroyed large swaths of the Southeast. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/09/27/briefing/israel-hezbollah-leader-hurricane-helene-destruction.html
