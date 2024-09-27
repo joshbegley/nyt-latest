@@ -26,7 +26,7 @@ https://nytimes.com/video/world/middleeast/100000009716171/lebanon-bekaa-valley-
 `Mayor Eric Adams, muted but defiant, said he was innocent of bribery and other charges, and his lawyer attacked the prosecution’s case.`\
 https://nytimes.com/2024/09/27/nyregion/eric-adams-arraignment-bribery-fraud.html
 
-**Caitlin Clark wins WNBA Rookie of the Year**\
+**Caitlin Clark wins ROY Napheesa Collier wins DPOY**\
 `Clark entered the league as the most-anticipated rookie in league history.`\
 https://nytimes.com/athletic/5796437/2024/09/27/caitlin-clark-wnba-rookie-of-the-year/
 
