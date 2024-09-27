@@ -1,40 +1,40 @@
-**Zelensky to Meet Trump Amid Fears for Continued U.S. Support for Ukraine**\
-`The gathering in New York is part of a nearly weeklong U.S. visit by the Ukrainian president in which he has made appeals to both Democrats and Republicans.`\
-https://nytimes.com/2024/09/27/world/europe/zelensky-trump-ukraine-russia-war.html
+**New Vikings RB Aaron Jones' matchup with Packers evokes familiar feeling**\
+`After seven years in Green Bay, Jones returns in Week 4 with the Vikings aiming — yet again — to prove his value to those who doubt him.`\
+https://nytimes.com/athletic/5795008/2024/09/27/aaron-jones-vikings-packers-running-back/
 
-**Here’s the latest on the storm.**\
-`By Victoria Kim and John Yoon`\
-https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/heres-the-latest-on-the-storm
+**Jayden Daniels is the key to Kliff Kingsbury's NFL second chance**\
+`The Commanders' rookie QB has already turned heads through three weeks. Can Kingsbury's second chance take him even higher?`\
+https://nytimes.com/athletic/5795606/2024/09/27/jayden-daniels-kliff-kingsbury-commanders/
 
-**Live Updates: Helene Thrashes Southeastern U.S., Leaving Millions Without Power**\
-`Weakening to a tropical storm as it moved through Georgia, Helene threatened to bring “catastrophic” storm surges to much of the Gulf Coast, officials said. At least four people were killed.`\
-https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida
+**Packers-Vikings preview: Jordan Love's status, Aaron Jones' return, and more**\
+`The Vikings are off to a hot start and visit Lambeau Field on Sunday for a matchup with the 2-1 Packers.`\
+https://nytimes.com/athletic/5797204/2024/09/27/green-bay-packers-minnesota-vikings-preview-jordan-love/
 
-**Barcelona fans banned from next Champions League away game**\
-`Barcelona have been banned from selling tickets to the club&#8217;s away fans for one game by UEFA following racist supporter behaviour during their Champions League fixture at  Monaco earlier this month.`\
-https://nytimes.com/athletic/5798813/2024/09/27/barcelona-racism-champions-league-ban/
+**Sam Darnold's surging card values: How long can it last?**\
+`Darnold is the latest in a recent series of quarterbacks to experience a hobby resurgence `\
+https://nytimes.com/athletic/5797971/2024/09/27/sam-darnold-vikings-trading-cards/
 
-**Is Boston's Triston Casas the most interesting player in all of baseball?**\
-`Casas is different, and unapologetically so. He embraces routines from shirtless yoga to eye-patch drills in the pursuit of perfection. `\
-https://nytimes.com/athletic/5798196/2024/09/27/triston-casas-red-sox-most-interesting/
+**Inside the mind of Nick Robertson after the noisiest offseason of his Maple Leafs career**\
+`After a tumultuous offseason that saw a trade request not met, Robertson has ditched the belief that his life is defined by hockey alone.`\
+https://nytimes.com/athletic/5796749/2024/09/27/maple-leafs-nick-robertson-trade-contract/
 
-**Here are the latest developments.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/here-are-the-latest-developments
+**Why rising talent Riley Moss is ready for spotlight in Broncos' secondary**\
+`The second-year Iowa product was the highest-rated cornerback in Week 3. Next up: a chess match with Aaron Rodgers.`\
+https://nytimes.com/athletic/5797318/2024/09/27/riley-moss-denver-broncos-breakout-start/
 
-**Live Updates: Netanyahu to Address U.N. Amid Doubts Over Cease-Fire Push**\
-`World leaders are urging a pause in fighting between Israel and Hezbollah in Lebanon. Israel’s prime minister, who will speak Friday at the U.N. General Assembly, has given mixed signals.`\
-https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas
+**The Criminal Indictment of New York City’s Mayor**\
+`Eric Adams accepted free airline tickets, lavish overseas accommodation and illegal foreign campaign donations, prosecutors said.`\
+https://nytimes.com/2024/09/27/podcasts/the-daily/new-york-mayor-indicted.html
 
-**Pope Francis, Visiting Belgium, Is Met With Anger Over Clerical Sexual Abuse**\
-`During a trip to Luxembourg and Belgium, Francis will spend an hour meeting with 15 people who were abused by Roman Catholic clergy. Survivors say it is not enough.`\
-https://nytimes.com/2024/09/27/world/europe/pope-francis-belgium-sex-abuse.html
+**Falcons' third-down woes can't get much worse, but help is coming: 5 factors**\
+`Atlanta quarterback Kirk Cousins will play in the rivalry against New Orleans for the first time on Sunday.`\
+https://nytimes.com/athletic/5797471/2024/09/27/falcons-kirk-cousins-third-down-saints/
 
-**Sliders: Bruce Bochy's guide to postseason managing, a Coliseum farewell and more**\
-`We look ahead to the playoffs and say some farewells in the final Sliders column of the 2024 season. `\
-https://nytimes.com/athletic/5794277/2024/09/27/bruce-bochy-mlb-playoffs-oakland-athletics/
+**Wordle Review No. 1,197**\
+`Scroll down for hints and conversation about the puzzle for September 28, 2024`\
+https://nytimes.com/2024/09/27/crosswords/wordle-review-1197.html
 
-**'He's just a superstar': Carlos Beltrán on watching Francisco Lindor**\
-`Beltrán reflected on his big 2006 season while praising Lindor for his spectacular all-around play.`\
-https://nytimes.com/athletic/5796577/2024/09/27/mets-francisco-lindor-carlos-beltran/
+**The Connections Companion No. 475**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Sept. 28, 2024.`\
+https://nytimes.com/2024/09/27/crosswords/connections-companion-475.html
 
