@@ -1,3 +1,7 @@
+**China Stocks Soar in Biggest Single-Week Jump Since 2008**\
+`Economic stimulus moves by China’s leaders triggered a broad rally in trading in Shanghai and Shenzhen.`\
+https://nytimes.com/2024/09/27/business/asia-stocks-csi-300.html
+
 **Tottenham Briefing: Dragusin's missed chance, Johnson fires again and Vicario shines**\
 `The major talking points dissected as Spurs got their Europa League campaign off to a flying start`\
 https://nytimes.com/athletic/5790588/2024/09/27/tottenham-qarabag-europa-league-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5793269/2024/09/27/unai-emery-fastest-50-aston-vill
 **Wolves need to bring back their style from Manchester City win - and stem the goals**\
 `Wolves have had a difficult start to the new season and face Liverpool on Saturday`\
 https://nytimes.com/athletic/5794330/2024/09/27/wolves-man-city-liverpool/
-
-**EA Sports FC 25 review: New tactics system offers welcome revamp**\
-`What are the new features? What's it like to play? And who are the highest-rated players?`\
-https://nytimes.com/athletic/5788609/2024/09/27/ea-sports-fc-25-review/
 
