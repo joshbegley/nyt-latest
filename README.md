@@ -1,3 +1,7 @@
+**House v. NCAA settlement revises language around NIL in new filing**\
+`Most of the revisions aim to better define the term “booster” and what constitutes the pay-for-play inducements the NCAA hopes to eliminate.`\
+https://nytimes.com/athletic/5798062/2024/09/26/house-ncaa-revised-settlement-college-sports-nil-boosters/
+
 **Biden, Eyeing His Legacy, Signs Executive Orders on Gun Safety**\
 `The president used a poignant White House ceremony to pass the baton to Vice President Kamala Harris, who has made gun safety an issue in her campaign.`\
 https://nytimes.com/2024/09/26/us/politics/biden-executive-orders-ghost-guns-school-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5798009/2024/09/26/scottie-scheffler-presidents-cup
 **California Will Formally Apologize for Being Complicit in Slavery**\
 `Gov. Gavin Newsom signed several bills intended to atone for the state’s role in the oppression of Black Americans, but California legislators so far have sidelined proposals on cash reparations.`\
 https://nytimes.com/2024/09/26/us/california-slavery-apology-reparations.html
-
-**For the Wizards, 'rebuild' isn't a dirty word anymore**\
-`General manager Will Dawkins offered a refreshingly blunt assessment on where his team stands. `\
-https://nytimes.com/athletic/5797821/2024/09/26/washington-wizards-will-dawkins-interview/
 
