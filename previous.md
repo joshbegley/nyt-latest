@@ -1,3 +1,7 @@
+**A ‘Super Bowl’ Holiday**\
+`In the state of Victoria, you need more than one day to take in all that the A.F.L. Grand Final has to offer.`\
+https://nytimes.com/2024/09/27/world/australia/afl-grand-final.html
+
 **Myanmar’s Military Asks Rebels to Stop Fighting and Join in Elections**\
 `Though the offer was quickly rejected by several commanders of the opposition forces, it was still seen as a significant development in the three-year civil war.`\
 https://nytimes.com/2024/09/27/world/asia/myanmar-military.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5788609/2024/09/27/ea-sports-fc-25-review/
 **Why are Newcastle not seeing the best of Isak so far this season?**\
 `Alexander Isak was prolific last season but he has been isolated in 2023-24 and releasing him into dangerous positions has been a problem`\
 https://nytimes.com/athletic/5795850/2024/09/27/alexander-isak-newcastle-goals/
-
-**'Go Miss Fuller!' - Wrexham's defender on her team's return to The Racecourse**\
-`Liv Fuller on her return to football after injury and how it feels to be under Wrexham's spotlight`\
-https://nytimes.com/athletic/5795855/2024/09/27/wrexhams-women-return-to-the-racecourse-this-weekend-led-by-miss-fuller/
 

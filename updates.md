@@ -1,3 +1,7 @@
+**A ‘Super Bowl’ Holiday**\
+`In the state of Victoria, you need more than one day to take in all that the A.F.L. Grand Final has to offer.`\
+https://nytimes.com/2024/09/27/world/australia/afl-grand-final.html
+
 **Myanmar’s Military Asks Rebels to Stop Fighting and Join in Elections**\
 `Though the offer was quickly rejected by several commanders of the opposition forces, it was still seen as a significant development in the three-year civil war.`\
 https://nytimes.com/2024/09/27/world/asia/myanmar-military.html
