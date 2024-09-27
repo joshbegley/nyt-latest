@@ -1,3 +1,7 @@
+**UFC reaches $375 million settlement in antitrust lawsuit**\
+`UFC reached a settlement with a group of former fighters in a class action lawsuit alleging the promotion suppressed their wages.`\
+https://nytimes.com/athletic/5799292/2024/09/27/ufc-settlement-antitrust-lawsuit/
+
 **Thailand’s Chiang Rai, Where Artists Go to Find Peace**\
 `Four insiders on where to stay, eat “micro-seasonal” dishes and shop for handmade pottery and textiles.`\
 https://nytimes.com/2024/09/27/t-magazine/chiang-rai-thailand-guide.html
@@ -8,7 +12,7 @@ https://nytimes.com/2024/09/27/dining/zha-jiang-mian-porky-and-rich-salty-sweet-
 
 **The Ultimate Celebrity Photographer**\
 `In a declining business, Kevin Mazur has thrived by gaining the trust of Beyoncé, Madonna and Taylor Swift. His motto: “Why wouldn’t you want to make people look good?”`\
-https://nytimes.com/2024/09/27/style/celebrity-photographer-beyonce-taylor-swift-madonna-kevin-mazur.html
+https://nytimes.com/2024/09/27/style/kevin-mazur-photographer-beyonce-taylor-swift.html
 
 **‘Titaníque’ Was Her Big Hit. Is ‘Big Gay Jamboree’ Really Her Swan Song?**\
 `Two years after debuting the “Titanic” parody, Marla Mindelle says her new show, with Margot Robbie as a producer, may be her last as an actor.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5798767/2024/09/27/doughty-injury-kings-lineup/
 **Climate Protesters Land in Jail for Attack on Van Gogh’s ‘Sunflowers’**\
 `A judge sentenced two climate protesters to prison terms for throwing soup at the work in 2022, an act he called “criminally idiotic.”`\
 https://nytimes.com/2024/09/27/arts/design/van-gogh-soup-jail.html
-
-**Israel Likely to Have Enough Weapons for Multiple Conflicts**\
-`Although Israel, like many countries, is highly secretive about its weapons stockpiles, experts believe it could outlast adversaries in offensives on at least two fronts simultaneously.`\
-https://nytimes.com/2024/09/27/world/middleeast/israel-weapons-stockpiles.html
 
