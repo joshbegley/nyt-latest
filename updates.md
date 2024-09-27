@@ -1,3 +1,11 @@
+**As Mark Robinson’s Campaign Crumbles, North Carolina Republicans Seethe**\
+`The scandal surrounding Mr. Robinson has incensed party officials and donors, some of whom described longstanding concerns about his campaign.`\
+https://nytimes.com/2024/09/27/us/as-mark-robinsons-campaign-crumbles-north-carolina-republicans-seethe.html
+
+**‘Quiet Place’ in Pennsylvania Is Thrust Into Loud Immigration Debate**\
+`Former President Donald J. Trump turned his sights on Charleroi, Pa., where many Haitians have settled in recent years, and he fueled a fire that was already smoldering.`\
+https://nytimes.com/2024/09/27/us/charleroi-pennsylvania-haitian-migrants.html
+
 **Chappell Roan Cancels a Pair of Big Shows After Tumultuous Weeks**\
 `The pop star said things had “gotten overwhelming” and bowed out of festivals in New York and Maryland after a period in which her politics came under scrutiny.`\
 https://nytimes.com/2024/09/27/arts/music/chappell-roan-cancels-festival.html
