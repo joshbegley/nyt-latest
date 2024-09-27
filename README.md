@@ -1,3 +1,11 @@
+**Possible Cluster of Human Bird-Flu Infections Expands in Missouri**\
+`Seven people in contact with a patient hospitalized with bird flu also developed symptoms, the C.D.C. reported. Some are undergoing further tests.`\
+https://nytimes.com/2024/09/27/health/bird-flu-cluster-missouri.html
+
+**Fantasy football flex fliers: Roschon Johnson, Michael Wilson and more deep sleepers to consider in Week 4**\
+`Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 4 free agency.`\
+https://nytimes.com/athletic/5799524/2024/09/27/fantasy-football-flex-fliers-roschon-johnson-michael-wilson-and-more-deep-sleepers-to-consider-in-week-4/
+
 **Maggie Smith Brought Sharp-Tongued Wit Stateside**\
 `Americans are experts in the comedy of bluster, as many of our late night hosts can attest. We’re less practiced in precision.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/maggie-smith-death
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5798259/2024/09/27/christine-sinclair-portland-thor
 **I’ve Lived With Hurricanes for Years. The Decisions Keep Getting Harder.**\
 `More than the sheer repetition of extreme weather, the stakes have grown — for our homes, our communities and our lives.`\
 https://nytimes.com/2024/09/27/opinion/hurricane-helene-damage-florida-georgia-south-carolina.html
-
-**Helene Has Killed at Least 19 People in 3 States**\
-`Officials in the Southeast said the toll was likely to rise.`\
-https://nytimes.com/2024/09/27/weather/helene-deaths.html
-
-**Tracking Tropical Storm Joyce**\
-`See the likely path and wind arrival times for Joyce.`\
-https://nytimes.com/interactive/2024/09/27/weather/joyce-map-path-tracker.html
 
