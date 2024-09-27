@@ -1,3 +1,11 @@
+**Fort Myers Beach, Devastated by Hurricane Ian, Floods Again**\
+`Even though Hurricane Helene made landfall hundreds of miles to the north, its storm surge inundated roads and gushed into buildings.`\
+https://nytimes.com/2024/09/27/weather/fort-myers-beach-devastated-by-hurricane-ian-floods-again.html
+
+**Extreme Weather Is Taxing Utilities More Often. Can A.I. Help?**\
+`From hurricanes to wildfires, a new generation of technologies could help utilities better plan for the risk of extreme weather to their electric grid.`\
+https://nytimes.com/2024/09/27/climate/power-outages-utilities-ai.html
+
 **Democrats See a Chance to Beat Trump on Judicial Confirmations**\
 `They hope to use the time after the election to approve judges, but Senator Durbin says their aggressive efforts have already produced a remarkable demographic shift on the federal courts.`\
 https://nytimes.com/2024/09/27/us/politics/trump-democrats-judges.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/27/arts/music/national-symphony-orchestra-strike-gal
 **With Sean Combs in Jail, Civil Suits Continue to Pile Up**\
 `The latest lawsuit includes accusations of drugging and coerced sex as recently as this year. Mr. Combs’s lawyers have said the claims are attempts to obtain quick settlements.`\
 https://nytimes.com/2024/09/27/arts/music/sean-combs-diddy-lawsuit-drugs.html
-
-**‘It Was Like Judgment Day’: Residents Flee Deadly Israeli Strikes Near Beirut**\
-`Residents described a scene of flattened buildings and destroyed vehicles after Israel unleashed strikes targeting Hezbollah’s leader outside the Lebanese capital.`\
-https://nytimes.com/2024/09/27/world/middleeast/beirut-lebanon-israeli-strikes-hezbollah.html
-
-**Atlanta was spared a direct hit, but at least 11 people died across Georgia.**\
-`Flooding inundated some neighborhoods in the state capital, and nearly a dozen people died in communities elsewhere in Georgia.`\
-https://nytimes.com/2024/09/27/weather/atlanta-hurricane-helene-flooding-georgia-deaths.html
 
