@@ -1,3 +1,7 @@
+**Japan’s Power Brokers Listen to Public in Choice for Prime Minister**\
+`Shigeru Ishiba, a former defense minister more popular with the rank and file than with his lawmaker colleagues, had sought his party leadership four times before.`\
+https://nytimes.com/2024/09/27/world/asia/japan-new-prime-minister-shigeru-ishiba.html
+
 **City's Champions League return is overdue - how far can they go?**\
 `City are back where they feel they belong, but club executives feel this is only the start of their journey`\
 https://nytimes.com/athletic/5798241/2024/09/27/manchester-city-women-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/world/australia/afl-grand-final.html
 **Myanmar’s Military Asks Rebels to Stop Fighting and Join in Elections**\
 `Though the offer was quickly rejected by several commanders of the opposition forces, it was still seen as a significant development in the three-year civil war.`\
 https://nytimes.com/2024/09/27/world/asia/myanmar-military.html
-
-**Slot sessions, tactical tweaks and a catchy song: How Diaz was rebooted**\
-`The Colombian looks reenergised and a renewed threat this season - so what is behind the transformation?`\
-https://nytimes.com/athletic/5790532/2024/09/27/luis-diaz-liverpool-rebooted/
 
