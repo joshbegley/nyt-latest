@@ -1,3 +1,7 @@
+**Monica Puig, from tennis Olympic gold to the Ironman World Championships**\
+`Injury forced the Olympic gold medalist to retire from tennis at 28. Now she has completed one of the toughest endurance races there is.`\
+https://nytimes.com/athletic/5794382/2024/09/27/monica-puig-tennis-ironman/
+
 **Darren Eales to step down as Newcastle CEO for health reasons**\
 `Darren Eales has been diagnosed with a chronic form of blood cancer and will step down as Newcastle United&#8217;s chief executive (CEO).`\
 https://nytimes.com/athletic/5798980/2024/09/27/darren-eales-newcastle-step-down/
