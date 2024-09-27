@@ -1,3 +1,31 @@
+**I Decentered Men. Decentering Desire Is Harder.**\
+`Organizing my life around some idyllic future husband has always felt wrong to me.`\
+https://nytimes.com/2024/09/27/style/modern-love-decentering-men.html
+
+**It Was Risky to Hold a Wedding in Ukraine. They Did it Anyway.**\
+`Ethan Bregman asked Olha Beskhmelnytsina to be his girlfriend on Feb. 23, 2022. The next day, the world had changed.`\
+https://nytimes.com/2024/09/27/style/olha-beskhmelnytsina-ethan-bregman-wedding.html
+
+**An Unexpected Spark Leads to a Journey of Acceptance**\
+`The actress Jessica Phillips and Chelsea Nachman, a theatrical publicist, felt an instant attraction after first meeting six years ago. But it took a few years before their romance took off.`\
+https://nytimes.com/2024/09/27/style/chelsea-nachman-jessica-phillips-wedding.html
+
+**He Tried to Date Two Men. He Wasn’t Very Good at It.**\
+`After getting caught in a moment right out of a rom-com, it was clear Kevin Turner had a choice to make. He chose Dr. Nicholas France.`\
+https://nytimes.com/2024/09/27/style/kevin-turner-nicholas-france-wedding.html
+
+**What’s at Stake in Austria’s General Election**\
+`Austrians will head to the polls on Sunday to elect a new Parliament, with the Freedom Party in position to potentially form a far-right government for the first time since World War II.`\
+https://nytimes.com/2024/09/27/world/europe/austria-general-election-freedom-party.html
+
+**Now They’re Dance Partners for Life**\
+`Grayson Warrick is the son of a retired ballet dancer. Alyssa Hubbard grew up dancing. And the two first met in preschool in New York.`\
+https://nytimes.com/2024/09/27/style/grayson-warrick-alyssa-hubbard-wedding.html
+
+**Quote of the Day: House Republicans Head Home With Little to Brag About**\
+`Quotation of the Day for Friday, September 27, 2024`\
+https://nytimes.com/2024/09/26/pageoneplus/quote-of-the-day-house-republicans-head-home-with-little-to-brag-about.html
+
 **Cowboys outlast Giants as Nabers, Parsons exit in final minutes**\
 `The Cowboys limited the Giants to five field goals and just 1.1 yards per rush attempt.`\
 https://nytimes.com/athletic/5798440/2024/09/26/cowboys-giants-score-thursday-night-football-takeaways/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5798354/2024/09/26/chicago-sky-coach-fired-teresa-w
 **'Incredibly difficult': Nuggets know another title run won't be easy**\
 `While the championship core remains, this Denver team isn't quite the same one that stormed through the league in 2023.`\
 https://nytimes.com/athletic/5798035/2024/09/26/denver-nuggets-media-day-jokic-murray-westbrook/
-
-**City Investigators Seize Cash From New York Sheriff’s Office**\
-`The Department of Investigation is looking into whether Sheriff Anthony Miranda’s agency improperly took money from cannabis stores that it raided, closed and padlocked.`\
-https://nytimes.com/2024/09/26/nyregion/new-york-city-sheriffs-office-cash-seized.html
-
-**In Cedar Key, Fla., resilience is a part of life.**\
-`By Abigail Geiger`\
-https://nytimes.com/live/2024/09/26/weather/tropical-storm-helene-hurricane/in-cedar-key-fla-resilience-is-a-part-of-life
-
-**What to Expect From Helene as It Moves North**\
-`After landfall, the storm will move quickly into Georgia and the Carolinas, where it promises to bring even more rain.`\
-https://nytimes.com/2024/09/26/weather/helene-forecast-friday-georgia-north-carolina.html
-
-**Yankees win American League East crown as Aaron Judge, Gerrit Cole star in win**\
-`The Yankees had already secured a first-round bye, allowing them to skip the AL Wild Card round and head straight to the Division Series.`\
-https://nytimes.com/athletic/5792121/2024/09/26/yankees-american-league-east-champions/
-
-**Man Found Guilty in Shooting Death of Rapper Young Dolph**\
-`The man, Justin Johnson, was sentenced to life in prison on Thursday for the fatal 2021 shooting of Young Dolph, who was gunned down outside a Memphis cookie shop in broad daylight.`\
-https://nytimes.com/2024/09/26/arts/music/young-dolph-guilty.html
-
-**Between Dusk and Dawn**\
-`Jake Bunch opens our solving weekend.`\
-https://nytimes.com/2024/09/26/crosswords/daily-puzzle-2024-09-27.html
-
-**Blum: The Angels have given little reason for optimism after embarrassing season**\
-`A season this terrible should do nothing but add skepticism and shred credibility for the vague blueprint the Angels have been advertising.`\
-https://nytimes.com/athletic/5798163/2024/09/26/angels-embarrassing-season-analysis/
 
