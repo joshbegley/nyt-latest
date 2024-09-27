@@ -1,3 +1,15 @@
+**Here are the latest developments.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/here-are-the-latest-developments
+
+**Live Updates: Netanyahu to Address U.N. Amid Doubts Over Cease-Fire Push**\
+`World leaders are urging a pause in fighting between Israel and Hezbollah in Lebanon. Israel’s prime minister, who will speak Friday at the U.N. General Assembly, has given mixed signals.`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas
+
+**Pope Francis, Visiting Belgium, Is Met With Anger Over Clerical Sexual Abuse**\
+`During a trip to Luxembourg and Belgium, Francis will spend an hour meeting with 15 people who were abused by Roman Catholic clergy. Survivors say it is not enough.`\
+https://nytimes.com/2024/09/27/world/europe/pope-francis-belgium-sex-abuse.html
+
 **Sliders: Bruce Bochy's guide to postseason managing, a Coliseum farewell and more**\
 `We look ahead to the playoffs and say some farewells in the final Sliders column of the 2024 season. `\
 https://nytimes.com/athletic/5794277/2024/09/27/bruce-bochy-mlb-playoffs-oakland-athletics/

@@ -1,3 +1,15 @@
+**Here are the latest developments.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/here-are-the-latest-developments
+
+**Live Updates: Netanyahu to Address U.N. Amid Doubts Over Cease-Fire Push**\
+`World leaders are urging a pause in fighting between Israel and Hezbollah in Lebanon. Israel’s prime minister, who will speak Friday at the U.N. General Assembly, has given mixed signals.`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas
+
+**Pope Francis, Visiting Belgium, Is Met With Anger Over Clerical Sexual Abuse**\
+`During a trip to Luxembourg and Belgium, Francis will spend an hour meeting with 15 people who were abused by Roman Catholic clergy. Survivors say it is not enough.`\
+https://nytimes.com/2024/09/27/world/europe/pope-francis-belgium-sex-abuse.html
+
 **Sliders: Bruce Bochy's guide to postseason managing, a Coliseum farewell and more**\
 `We look ahead to the playoffs and say some farewells in the final Sliders column of the 2024 season. `\
 https://nytimes.com/athletic/5794277/2024/09/27/bruce-bochy-mlb-playoffs-oakland-athletics/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5763820/2024/09/27/mlb-postseason-baseball-trends/
 **Dehner Jr.: Somehow, Bengals manage to put season in balance in Week 4**\
 `What may have been considered an easy win before the season now is a crucial game against Carolina and Andy Dalton.`\
 https://nytimes.com/athletic/5798040/2024/09/27/bengals-panthers-prediction-week-4/
-
-**Seth McLaughlin proving to be an ideal fit on revamped and improved Ohio State offensive line**\
-`McLaughlin started 24 games at Alabama but was looking for a new home after the 2023 season. He found one, quickly, at Ohio State.`\
-https://nytimes.com/athletic/5797453/2024/09/27/ohio-state-center-seth-mclaughlin-proving-to-be-an-ideal-fit-on-revamped-o-line/
-
-**Can Notre Dame beat Louisville, remain nationally relevant? 3 keys and a prediction**\
-`The Fighting Irish have every reason to be locked in and buttoned up Saturday, ready to return last year’s favor to Louisville.`\
-https://nytimes.com/athletic/5798149/2024/09/27/notre-dame-louisville-preview-prediction/
-
-**Koreen: Derrick Rose's complicated legacy needs to reconcile the brilliant with the brutal**\
-`When remembering Derrick Rose's storied NBA career, what happened off the court needs to be addressed, too. `\
-https://nytimes.com/athletic/5797176/2024/09/27/derrick-rose-retirement-nba-bulls-knicks/
 
