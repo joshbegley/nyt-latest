@@ -1,3 +1,27 @@
+**Divisions Emerge Over Whether N.Y.C. Mayor Eric Adams Should Resign**\
+`Amid the growing calls for Mayor Eric Adams’s resignation, some have taken the opposite tack.`\
+https://nytimes.com/2024/09/27/nyregion/eric-adams-resign-division.html
+
+**All England Club granted planning permission for huge Wimbledon tennis expansion**\
+`CITY HALL, LONDON — The All England Lawn Tennis Club (AELTC) has been granted planning permission to add 39 new courts and triple the size of the grounds at the Wimbledon Championships.`\
+https://nytimes.com/athletic/5799271/2024/09/27/wimbledon-tennis-expansion-planning-approved-london-mayor/
+
+**Neil King Jr., Who Wrote of a Long Walk of ‘Renewal,’ Dies at 65**\
+`His book, “American Ramble,” lyrically recounted a 330-mile trek from Washington, D.C., to New York City while he was in remission from cancer.`\
+https://nytimes.com/2024/09/27/books/neil-king-jr-dead.html
+
+**‘Completely Gone’: In Florida, Cedar Key Assesses Helene’s Devastation**\
+`A resident surveyed the many homes and businesses that were destroyed in the community of tiny islands in the state’s Big Bend region.`\
+https://nytimes.com/2024/09/27/weather/hurricane-helene-florida-cedar-key-damage.html
+
+**Acadia Healthcare Says It Faces New Federal Investigations**\
+`Shares of the company, one of the largest chains of for-profit psychiatric hospitals, were down 25 percent at one point.`\
+https://nytimes.com/2024/09/27/business/acadia-federal-investigations.html
+
+**Joyce Becomes the Third Atlantic Tropical Storm to Form in a Week**\
+`The storm follows Helene and Isaac in a busy few days. It is not currently a threat to land.`\
+https://nytimes.com/live/2024/09/27/weather/tropical-storm-joyce-hurricane
+
 **Mauricio Pochettino: Introducing his USMNT backroom staff — and what each of them do**\
 `There are some elite managers who change their staff from job to job, but Pochettino is not one of them - he has a trusted team behind him`\
 https://nytimes.com/athletic/5714459/2024/09/27/pochettino-usmnt-staff-methods/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/09/27/movies/science-fiction-movies-streaming.html
 **10 Great Maggie Smith Performances to Stream**\
 `In “Downton Abbey,” “A Room With a View” and dozens of other films and television series, she delighted audiences with her portrayal of sharp, tart-tongued and often wryly funny Englishwomen.`\
 https://nytimes.com/2024/09/27/movies/maggie-smith-streaming.html
-
-**This Is Not a Beauty Podcast: Leaving a Mark**\
-`Beauty and politics are inseparable — from how politicians style their hair and makeup before addressing the nation to the political nature of tattoos.`\
-https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/leaving-a-mark.html
-
-**Westminster Abbey’s Brontë Plaque Had a Typo for 85 Years. It’s Fixed Now.**\
-`Punctuation delayed, but not denied: A memorial to Charlotte, Emily and Anne Brontë at Poets’ Corner in the celebrated London church finally gets its accent marks.`\
-https://nytimes.com/2024/09/27/world/europe/westminster-abbey-bronte-plaque-accent-marks.html
-
-**How Google Defended Itself in the Ad Tech Antitrust Trial**\
-`The tech giant, which wrapped up its arguments in the federal monopoly trial, simply says it has the best product.`\
-https://nytimes.com/2024/09/27/technology/google-antitrust-case-lawsuit.html
-
-**UFC reaches $375 million settlement in antitrust lawsuit**\
-`UFC reached a settlement with a group of former fighters in a class action lawsuit alleging the promotion suppressed their wages.`\
-https://nytimes.com/athletic/5799292/2024/09/27/ufc-settlement-antitrust-lawsuit/
-
-**Thailand’s Chiang Rai, Where Artists Go to Find Peace**\
-`Four insiders on where to stay, eat “micro-seasonal” dishes and shop for handmade pottery and textiles.`\
-https://nytimes.com/2024/09/27/t-magazine/chiang-rai-thailand-guide.html
-
-**Zha Jiang Mian, Porky and Rich, Salty-Sweet and Satisfying**\
-`It’s the sort of meal you ought to make after a day of airline snacks or conference-room repasts, and definitely on Friday nights.`\
-https://nytimes.com/2024/09/27/dining/zha-jiang-mian-porky-and-rich-salty-sweet-and-satisfying.html
 

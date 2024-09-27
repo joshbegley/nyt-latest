@@ -1,3 +1,11 @@
+**Mauricio Pochettino: Introducing his USMNT backroom staff — and what each of them do**\
+`There are some elite managers who change their staff from job to job, but Pochettino is not one of them - he has a trusted team behind him`\
+https://nytimes.com/athletic/5714459/2024/09/27/pochettino-usmnt-staff-methods/
+
+**Zha Jiang Mian, Porky and Rich, Salty-Sweet and Satisfying**\
+`It’s the sort of meal you ought to make after a day of airline snacks or conference-room repasts, and definitely on Friday nights.`\
+https://nytimes.com/2024/09/27/dining/zha-jiang-mian-porky-and-rich-salty-sweet-and-satisfying.html
+
 **Joyce Becomes the Third Atlantic Tropical Storm to Form in a Week**\
 `The storm follows Helene and Isaac in a busy few days. It is not currently a threat to land.`\
 https://nytimes.com/live/2024/09/27/weather/tropical-storm-joyce-hurricane
