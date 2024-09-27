@@ -1,3 +1,7 @@
+**With too many runners left on, Twins on verge of being left out**\
+`In a 13-inning loss to the Marlins, the Twins stranded 11 of 15 base runners from the seventh inning on. Their playoff chances are slim.`\
+https://nytimes.com/athletic/5798661/2024/09/27/twins-runners-scoring-position-playoffs/
+
 **Arsenal have reached the Champions League group stage - this is what it means**\
 `Progress is vital from both a sporting and financial perspective after club built a squad to compete on all fronts`\
 https://nytimes.com/athletic/5797966/2024/09/27/arsenal-women-champions-league-group-stage/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791934/2024/09/27/fantasy-premier-league-wildcard-
 **Why Adam Wharton has yet to spark Crystal Palace into life this season**\
 `Last season was the midfielder's first as a regular in senior football and was swiftly pursued by England selection and a place at Euro 2024`\
 https://nytimes.com/athletic/5789240/2024/09/27/wharton-palace-glasner-england/
-
-**'I will never be successful on my own' - How Crofts and Scheuermann assist Hurzeler at Brighton**\
-`Crofts and Scheuermann possess strong coaching credentials, and both bring different things to the table`\
-https://nytimes.com/athletic/5790419/2024/09/27/crofts-scheuermann-hurzeler-brighton/
 
