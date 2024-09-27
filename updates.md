@@ -1,3 +1,7 @@
+**Monica Puig's journey from tennis Olympic gold to the Ironman World Championships**\
+`Injury forced the Olympic gold medalist to retire from tennis at 28. Now she has completed one of the toughest endurance races there is.`\
+https://nytimes.com/athletic/5794382/2024/09/27/monica-puig-tennis-ironman/
+
 **Monica Puig, from tennis Olympic gold to the Ironman World Championships**\
 `Injury forced the Olympic gold medalist to retire from tennis at 28. Now she has completed one of the toughest endurance races there is.`\
 https://nytimes.com/athletic/5794382/2024/09/27/monica-puig-tennis-ironman/
