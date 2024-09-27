@@ -1,4 +1,4 @@
-**MLB's 10 biggest disappointments in 2024**\
+**MLB's 10 biggest disappointments of the 2024 season**\
 `It's been another exciting MLB season, but of course it hasn't all been positive. Some teams and players in particular stand out. `\
 https://nytimes.com/athletic/5798926/2024/09/27/mlb-biggest-disappointments-2024-whitesox-bluejays-mariners/
 
