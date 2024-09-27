@@ -1,3 +1,7 @@
+**Thompson: The A's are leaving Oakland — good riddance to an inept owner and MLB enablers**\
+`After years of John Fisher and MLB's heartless approach to the franchise, this heart has long run out of room for sentiment.`\
+https://nytimes.com/athletic/5798535/2024/09/27/oakland-as-final-game-coliseum-thompson/
+
 **Risk of Heart Defects Higher in Babies Conceived With I.V.F.**\
 `The birth defects were more likely, but still very uncommon, in infants conceived through certain fertility treatments, a large study found.`\
 https://nytimes.com/2024/09/27/health/ivf-birth-defects.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5797655/2024/09/27/bears-mailbag-roschon-johnson-sh
 **Gordon close to agreeing new long-term Newcastle deal**\
 `Newcastle United are close to securing the future of winger Anthony Gordon by signing the 23-year-old to a new long-term contract.`\
 https://nytimes.com/athletic/5799008/2024/09/27/anthony-gordon-newcastle-contract/
-
-**Tropical Storm John Set to Lash Mexico’s Coast With More Rain**\
-`The storm is expected to weaken as it moves along the southwestern coast, but officials warned some states in Mexico to brace for risks of flash flooding and mudslides.`\
-https://nytimes.com/2024/09/27/world/americas/tropical-storm-john-mexico.html
 
