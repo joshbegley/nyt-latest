@@ -1,3 +1,7 @@
+**Athlos NYC showed what's possible for track in America — but can the idea stick?**\
+`Athletes raved about Thursday's flashy event in New York that hoped to seize on post-Olympic buzz. But there's still a lot of work to do.`\
+https://nytimes.com/athletic/5799920/2024/09/27/athlos-nyc-track-olympics-gabby-thomas/
+
 **DeVonta Smith out, A.J. Brown questionable for Eagles Sunday vs. Bucs**\
 `The Philadelphia Eagles may be without their top two wide receivers Sunday as they head down to Tampa Bay.`\
 https://nytimes.com/athletic/5799923/2024/09/27/devonta-smith-aj-brown-eagles/
