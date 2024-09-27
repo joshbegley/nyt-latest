@@ -1,3 +1,7 @@
+**A's close out their Oakland chapter with a win: 'I couldn’t be more proud'**\
+`The A's finished off their 57 years in Oakland with a 3-2 win in front of 46,886 fans. "It means more. You feel it in the stadium."`\
+https://nytimes.com/athletic/5798100/2024/09/26/oakland-athletics-final-out-coliseum/
+
 **House v. NCAA settlement revises language around NIL in new filing**\
 `Most of the revisions aim to better define the term “booster” and what constitutes the pay-for-play inducements the NCAA hopes to eliminate.`\
 https://nytimes.com/athletic/5798062/2024/09/26/house-ncaa-revised-settlement-college-sports-nil-boosters/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/weather/helene-tallahassee-trees.html
 **Warning: Do not poke Scottie Scheffler**\
 `When Tom Kim decided to boisterously celebrate a birdie putt, the No. 1 player in the world had an answer.`\
 https://nytimes.com/athletic/5798009/2024/09/26/scottie-scheffler-presidents-cup-tom-kim/
-
-**California Will Formally Apologize for Being Complicit in Slavery**\
-`Gov. Gavin Newsom signed several bills intended to atone for the state’s role in the oppression of Black Americans, but California legislators so far have sidelined proposals on cash reparations.`\
-https://nytimes.com/2024/09/26/us/california-slavery-apology-reparations.html
 
