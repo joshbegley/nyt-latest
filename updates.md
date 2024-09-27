@@ -1,3 +1,7 @@
+**Presidents Cup analysis: What to know from the Americans' strong Day 1 showing**\
+`The Americans lead by 5 points after Day 1. There's no history of a side coming back from that deficit in the Presidents Cup.`\
+https://nytimes.com/athletic/5798052/2024/09/26/presidents-cup-2024-analysis-us/
+
 **House v. NCAA settlement revises language around NIL in new filing**\
 `Most of the revisions aim to better define the term “booster” and what constitutes the pay-for-play inducements the NCAA hopes to eliminate.`\
 https://nytimes.com/athletic/5798062/2024/09/26/house-ncaa-revised-settlement-college-sports-nil-boosters/
