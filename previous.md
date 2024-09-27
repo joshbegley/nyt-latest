@@ -1,3 +1,7 @@
+**Nick Martinez could get a nice payday this offseason. Will it be from the Reds?**\
+`Martinez has enjoyed his time in Cincinnati, but it's unlikely he'll exercise his $12 million player option for 2025. `\
+https://nytimes.com/athletic/5800152/2024/09/27/reds-nick-martinez-contract/
+
 **Maggie Smith’s Influence Rippled to the Cocktail Hour**\
 `In 2011, a New York bartender paid tribute to the actor with a sly tweak to a pre-Prohibition cocktail.`\
 https://nytimes.com/2024/09/27/dining/maggie-smith-cocktail-between-the-sheets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799357/2024/09/27/pep-guardiola-mikel-arteta-city-
 **Maresca calls on Chelsea players to attend matches even when not selected**\
 `Enzo Maresca has told his Chelsea players they must attend home games even if they have not been selected in the matchday squad.`\
 https://nytimes.com/athletic/5799245/2024/09/27/enzo-maresca-chelsea-players/
-
-**Browns rule out 4 players for Sunday, Myles Garrett to suit up**\
-`The Browns and Raiders will kick on Sunday at 4:25 p.m. ET.`\
-https://nytimes.com/athletic/5800029/2024/09/27/cleveland-browns-injuries-myles-garrett/
 

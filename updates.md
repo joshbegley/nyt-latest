@@ -1,3 +1,7 @@
+**Nick Martinez could get a nice payday this offseason. Will it be from the Reds?**\
+`Martinez has enjoyed his time in Cincinnati, but it's unlikely he'll exercise his $12 million player option for 2025. `\
+https://nytimes.com/athletic/5800152/2024/09/27/reds-nick-martinez-contract/
+
 **Maggie Smith’s Influence Rippled to the Cocktail Hour**\
 `In 2011, a New York bartender paid tribute to the actor with a sly tweak to a pre-Prohibition cocktail.`\
 https://nytimes.com/2024/09/27/dining/maggie-smith-cocktail-between-the-sheets.html
