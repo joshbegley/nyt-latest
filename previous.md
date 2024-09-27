@@ -1,3 +1,11 @@
+**Chappell Roan Cancels a Pair of Big Shows After Tumultuous Weeks**\
+`The pop star said things had “gotten overwhelming” and bowed out of festivals in New York and Maryland after a period in which her politics came under scrutiny.`\
+https://nytimes.com/2024/09/27/arts/music/chappell-roan-cancels-festival.html
+
+**Duke's No. 1 recruit Flagg preparing for hype as season nears**\
+`"With Cooper, I don't know if we've ever had a 17-year-old with as much attention around him," Duke coach Jon Scheyer said.`\
+https://nytimes.com/athletic/5799737/2024/09/27/cooper-flagg-duke-hype/
+
 **National Symphony Orchestra Players Go on Strike, Canceling Gala**\
 `The Washington-based group’s first work stoppage in 46 years came after management and musicians failed to reach a salary agreement.`\
 https://nytimes.com/2024/09/27/arts/music/national-symphony-orchestra-strike-gala.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/27/weather/steinhatchee-hurricane-helene-damage.html
 **Strained by scandal and waning support, Mark Robinson is trying to soldier on.**\
 `The embattled lieutenant governor is campaigning in rainy North Carolina,`\
 https://nytimes.com/live/2024/09/27/us/harris-trump-election/mark-robinson-scandal-north-carolina-campaign
-
-**Lady Gaga’s ‘Joker,’ and a Tour of Musical Clowning**\
-`Clowns, harlequins, jokers and Pierrots have served as the main characters in countless songs over the years, but they’re rarely there to conjure cheap laughs.`\
-https://nytimes.com/2024/09/27/arts/music/amplifier-newsletter-clown-songs.html
-
-**Adams’s Lawyer Says He Flew Like a Congressman. But There Are Rules.**\
-`Members of Congress often get upgrades, but only if they are offered to all eligible travelers.`\
-https://nytimes.com/2024/09/27/nyregion/eric-adams-flights-congress.html
 

@@ -1,3 +1,11 @@
+**Chappell Roan Cancels a Pair of Big Shows After Tumultuous Weeks**\
+`The pop star said things had “gotten overwhelming” and bowed out of festivals in New York and Maryland after a period in which her politics came under scrutiny.`\
+https://nytimes.com/2024/09/27/arts/music/chappell-roan-cancels-festival.html
+
+**Duke's No. 1 recruit Flagg preparing for hype as season nears**\
+`"With Cooper, I don't know if we've ever had a 17-year-old with as much attention around him," Duke coach Jon Scheyer said.`\
+https://nytimes.com/athletic/5799737/2024/09/27/cooper-flagg-duke-hype/
+
 **National Symphony Orchestra Players Go on Strike, Canceling Gala**\
 `The Washington-based group’s first work stoppage in 46 years came after management and musicians failed to reach a salary agreement.`\
 https://nytimes.com/2024/09/27/arts/music/national-symphony-orchestra-strike-gala.html
