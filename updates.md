@@ -1,3 +1,7 @@
+**Helene Roars on After Lashing Florida, and the Charges Facing Eric Adams**\
+`Plus, Batman joins the Hollywood Walk of Fame.`\
+https://nytimes.com/2024/09/27/podcasts/hurricane-helene-eric-adams.html
+
 **New Vikings RB Aaron Jones' matchup with Packers evokes familiar feeling**\
 `After seven years in Green Bay, Jones returns in Week 4 with the Vikings aiming — yet again — to prove his value to those who doubt him.`\
 https://nytimes.com/athletic/5795008/2024/09/27/aaron-jones-vikings-packers-running-back/
