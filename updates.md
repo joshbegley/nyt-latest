@@ -1,3 +1,7 @@
+**Tottenham Briefing: Dragusin's missed chance, Johnson fires again and Vicario shines**\
+`The major talking points dissected as Spurs got their Europa League campaign off to a flying start`\
+https://nytimes.com/athletic/5790588/2024/09/27/tottenham-qarabag-europa-league-result-analysis/
+
 **A ‘Super Bowl’ Holiday**\
 `In the state of Victoria, you need more than one day to take in all that the A.F.L. Grand Final has to offer.`\
 https://nytimes.com/2024/09/27/world/australia/afl-grand-final.html
