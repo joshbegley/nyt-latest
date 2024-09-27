@@ -1,6 +1,10 @@
-**Who is Hassan Nasrallah, the leader of Hezbollah?**\
-`By Neil MacFarquhar`\
-https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/hassan-nasrallah-hezbollah-leader
+**The Adams Indictment Is Not a Civil Rights Case**\
+`His attempt to cast himself as victim of a racial conspiracy is unlikely to work.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/adams-indictment-civil-rights
+
+**Who Is Hassan Nasrallah, Leader of Hezbollah?**\
+`In 32 years in charge of Hezbollah, Mr. Nasrallah, 64, has built the Iranian-backed militia into an influential force in Lebanon and a potent adversary of Israel.`\
+https://nytimes.com/2024/09/27/world/middleeast/hassan-nasrallah-hezbollah-leader.html
 
 **Should You Be Allowed to Profit From A.I.-Generated Art?**\
 `The magazine’s Ethicist columnist on the values and economics of art created via artificial intelligence.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/world/europe/israel-hezbollah-lebanon-pager-attac
 **Fort Myers Beach, Devastated by Hurricane Ian, Floods Again**\
 `Even though Hurricane Helene made landfall hundreds of miles to the north, its storm surge inundated roads and gushed into buildings.`\
 https://nytimes.com/2024/09/27/weather/helene-fort-myers-beach-floods.html
-
-**Extreme Weather Is Taxing Utilities More Often. Can A.I. Help?**\
-`From hurricanes to wildfires, a new generation of technologies could help utilities better plan for the risk of extreme weather to their electric grid.`\
-https://nytimes.com/2024/09/27/climate/power-outages-utilities-ai.html
 
