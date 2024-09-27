@@ -1,3 +1,23 @@
+**Thailand’s Chiang Rai, Where Artists Go to Find Peace**\
+`Four insiders on where to stay, eat “micro-seasonal” dishes and shop for handmade pottery and textiles.`\
+https://nytimes.com/2024/09/27/t-magazine/chiang-rai-thailand-guide.html
+
+**Zha Jiang Mian, Porky and Rich, Salty-Sweet and Satisfying**\
+`It’s the sort of meal you ought to make after a day of airline snacks or conference-room repasts, and definitely on Friday nights.`\
+https://nytimes.com/2024/09/27/dining/zha-jiang-mian-porky-and-rich-salty-sweet-and-satisfying.html
+
+**The Ultimate Celebrity Photographer**\
+`In a declining business, Kevin Mazur has thrived by gaining the trust of Beyoncé, Madonna and Taylor Swift. His motto: “Why wouldn’t you want to make people look good?”`\
+https://nytimes.com/2024/09/27/style/celebrity-photographer-beyonce-taylor-swift-madonna-kevin-mazur.html
+
+**‘Titaníque’ Was Her Big Hit. Is ‘Big Gay Jamboree’ Really Her Swan Song?**\
+`Two years after debuting the “Titanic” parody, Marla Mindelle says her new show, with Margot Robbie as a producer, may be her last as an actor.`\
+https://nytimes.com/2024/09/27/theater/marla-mindelle-big-gay-jamboree-titanique.html
+
+**How Daniel Ricciardo's F1 career ended: From chasing a Red Bull return to losing his RB seat**\
+`Ricciardo was always intended to be Red Bull's safety net. But fluctuating form and a series of decisions leaves the veteran out of F1. `\
+https://nytimes.com/athletic/5796722/2024/09/27/daniel-ricciardo-f1-exit-red-bull/
+
 **The Windup: Oakland's fitting, frustrating end**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5799414/2024/09/27/oakland-as-last-game-the-windup/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/27/arts/design/van-gogh-soup-jail.html
 **Israel Likely to Have Enough Weapons for Multiple Conflicts**\
 `Although Israel, like many countries, is highly secretive about its weapons stockpiles, experts believe it could outlast adversaries in offensives on at least two fronts simultaneously.`\
 https://nytimes.com/2024/09/27/world/middleeast/israel-weapons-stockpiles.html
-
-**The Sudden Appeal of the Bulldog Spirit**\
-`Such is the hold the Premier League has on the popular consciousness that enticing a player away from it is seen as a coup.`\
-https://nytimes.com/2024/09/27/world/europe/atletico-real-madrid-derby.html
-
-**A Great City, Such a Small Mayor**\
-`With all its talent, how did the city end up with a mayor accused of being an incessant petty grifter?`\
-https://nytimes.com/2024/09/27/opinion/new-york-deserves-better-than-this.html
-
-**Inside a Josh Stein Ad Blasting Mark Robinson as ‘Unfit’ for North Carolina Governor**\
-`No “Black Nazi” quotations or porn-site references here. Just Robinson’s own bloodthirsty words.`\
-https://nytimes.com/2024/09/27/us/politics/josh-stein-mark-robinson-ad.html
-
-**Tracking Tropical Storm Jebi**\
-`See the likely path and wind arrival times for Jebi.`\
-https://nytimes.com/interactive/2024/09/27/weather/jebi-map-path-tracker.html
-
-**It's hard to feel good about Giants QB Daniel Jones' progress when end result is the same**\
-`Giants coach Brian Daboll heaped praise onto Jones on Thursday night. Was it warranted? `\
-https://nytimes.com/athletic/5798690/2024/09/27/daniel-jones-new-york-giants-cowboys-tnf-progress/
 
