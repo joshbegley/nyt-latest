@@ -1,3 +1,19 @@
+**NHL waiver tracker: Best players on the wire throughout preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/5799672/2024/09/27/nhl-waivers-tracker-preseason/
+
+**Pistons owner Gores agrees to buy 27 percent of Chargers: Source**\
+`The agreement is subject to approval by NFL owners next month.`\
+https://nytimes.com/athletic/5799731/2024/09/27/piston-owner-tom-gores-buys-stake-chargers/
+
+**The Adams Indictment Is Not a Civil Rights Case**\
+`His attempt to cast himself as victim of a racial conspiracy is unlikely to work.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/adams-indictment-civil-rights
+
+**Who Is Hassan Nasrallah, Leader of Hezbollah?**\
+`In 32 years in charge of Hezbollah, Mr. Nasrallah, 64, has built the Iranian-backed militia into an influential force in Lebanon and a potent adversary of Israel.`\
+https://nytimes.com/2024/09/27/world/middleeast/hassan-nasrallah-hezbollah-leader.html
+
 **Who is Hassan Nasrallah, the leader of Hezbollah?**\
 `By Neil MacFarquhar`\
 https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/hassan-nasrallah-hezbollah-leader
