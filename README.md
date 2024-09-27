@@ -1,3 +1,11 @@
+**What Our Reporter Saw After Days of Destruction Across Lebanon**\
+`Lebanon is reeling amid ongoing Israeli bombardments that have so far killed more than 700 people since Sept.`\
+https://nytimes.com/video/world/middleeast/100000009716171/lebanon-bekaa-valley-dispatch.html
+
+**Mayor Adams Pleads Not Guilty as New Yorkers Contemplate What Comes Next**\
+`Mayor Eric Adams, muted but defiant, said he was innocent of bribery and other charges, and his lawyer attacked the prosecution’s case.`\
+https://nytimes.com/2024/09/27/nyregion/eric-adams-arraignment-bribery-fraud.html
+
 **Caitlin Clark wins WNBA Rookie of the Year**\
 `Clark entered the league as the most-anticipated rookie in league history.`\
 https://nytimes.com/athletic/5796437/2024/09/27/caitlin-clark-wnba-rookie-of-the-year/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/09/27/arts/television/best-of-late-night-er
 **G.O.P. Candidates, Looking to Soften Their Image, Turn to Their Wives**\
 `Ads featuring candidates’ families have long been a campaign staple. But they have taken on new urgency, especially for vulnerable Republicans, in a year when reproductive rights are a pivotal issue.`\
 https://nytimes.com/2024/09/27/us/politics/republican-candidates-wives-ads.html
-
-**Book Club: Let’s Talk About ‘The Hypocrite’**\
-`Jo Hamya’s novel tells the story of the fraught relationship between a self-absorbed British writer and his playwright daughter.`\
-https://nytimes.com/2024/09/27/books/review/book-club-lets-talk-about-the-hypocrite.html
-
-**In a Florida Beach Community, Helene Turned Homes to Rubble**\
-`Dekle Beach, southeast of Tallahassee, was hit by fast-rising water and winds of more than 100 miles per hour.`\
-https://nytimes.com/2024/09/27/weather/dekle-beach-florida-helene.html
 
