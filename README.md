@@ -1,7 +1,3 @@
-**Man Found Guilty in Shooting Death of Rapper Young Dolph**\
-`The man, Justin Johnson, was sentenced to life in prison on Thursday for the fatal 2021 shooting of Young Dolph, who was gunned down outside a Memphis cookie shop in broad daylight.`\
-https://nytimes.com/2024/09/26/arts/music/young-dolph-guilty.html
-
 **Between Dusk and Dawn**\
 `Jake Bunch opens our solving weekend.`\
 https://nytimes.com/2024/09/26/crosswords/daily-puzzle-2024-09-27.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/26/us/politics/biden-executive-orders-ghost-guns-sch
 **More than 500 sensors floating in the ocean help shape hurricane forecasts.**\
 `By Austyn Gaffney`\
 https://nytimes.com/live/2024/09/26/weather/tropical-storm-helene-hurricane/sensors-ocean-hurricanes
+
+**McDonald’s, Pelosi, Debate Moderators: Trump Speech on Border Veers Off Course**\
+`After reading from prepared remarks on immigration for 10 minutes, Donald J. Trump used the rest of a news conference to talk about everything else on his mind.`\
+https://nytimes.com/2024/09/26/us/politics/trump-speech-harris-border.html
 
