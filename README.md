@@ -1,3 +1,7 @@
+**Sky fire coach Teresa Weatherspoon after 1 season**\
+`The Sky finished 13-27 in Weatherspoon's first season as coach, failing to make the playoffs.`\
+https://nytimes.com/athletic/5798354/2024/09/26/chicago-sky-coach-fired-teresa-weatherspoon/
+
 **'Incredibly difficult': These Nuggets know another title run won't be easy**\
 `While the championship core remains, this Denver team isn't quite the same one that stormed through the league in 2023.`\
 https://nytimes.com/athletic/5798035/2024/09/26/denver-nuggets-media-day-jokic-murray-westbrook/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5798163/2024/09/26/angels-embarrassing-season-analy
 **Greenberg: Just when you need the White Sox to lose, they surprise you**\
 `Fans came to the South Side to see a little history. Instead, the Sox won three in a row. They can't even lose right. `\
 https://nytimes.com/athletic/5798135/2024/09/26/chicago-white-sox-angels-record/
-
-**Trump’s Huge Civil Fraud Penalty Draws Skepticism From Appeals Court**\
-`A five-judge New York appellate panel questioned both the size and validity of a judgment of more than $450 million against Donald J. Trump at a hearing.`\
-https://nytimes.com/2024/09/26/nyregion/trump-civil-fraud-penalty-appeals-court.html
 
