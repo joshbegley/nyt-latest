@@ -1,3 +1,15 @@
+**Zelensky to Meet Trump Amid Fears for Continued U.S. Support for Ukraine**\
+`The gathering in New York is part of a nearly weeklong U.S. visit by the Ukrainian president in which he has made appeals to both Democrats and Republicans.`\
+https://nytimes.com/2024/09/27/world/europe/zelensky-trump-ukraine-russia-war.html
+
+**Here’s the latest on the storm.**\
+`By Victoria Kim and John Yoon`\
+https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/heres-the-latest-on-the-storm
+
+**Live Updates: Helene Thrashes Southeastern U.S., Leaving Millions Without Power**\
+`Weakening to a tropical storm as it moved through Georgia, Helene threatened to bring “catastrophic” storm surges to much of the Gulf Coast, officials said. At least four people were killed.`\
+https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida
+
 **Barcelona fans banned from next Champions League away game**\
 `Barcelona have been banned from selling tickets to the club&#8217;s away fans for one game by UEFA following racist supporter behaviour during their Champions League fixture at  Monaco earlier this month.`\
 https://nytimes.com/athletic/5798813/2024/09/27/barcelona-racism-champions-league-ban/

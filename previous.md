@@ -1,3 +1,15 @@
+**Zelensky to Meet Trump Amid Fears for Continued U.S. Support for Ukraine**\
+`The gathering in New York is part of a nearly weeklong U.S. visit by the Ukrainian president in which he has made appeals to both Democrats and Republicans.`\
+https://nytimes.com/2024/09/27/world/europe/zelensky-trump-ukraine-russia-war.html
+
+**Here’s the latest on the storm.**\
+`By Victoria Kim and John Yoon`\
+https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/heres-the-latest-on-the-storm
+
+**Live Updates: Helene Thrashes Southeastern U.S., Leaving Millions Without Power**\
+`Weakening to a tropical storm as it moved through Georgia, Helene threatened to bring “catastrophic” storm surges to much of the Gulf Coast, officials said. At least four people were killed.`\
+https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida
+
 **Barcelona fans banned from next Champions League away game**\
 `Barcelona have been banned from selling tickets to the club&#8217;s away fans for one game by UEFA following racist supporter behaviour during their Champions League fixture at  Monaco earlier this month.`\
 https://nytimes.com/athletic/5798813/2024/09/27/barcelona-racism-champions-league-ban/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5794277/2024/09/27/bruce-bochy-mlb-playoffs-oakland
 **'He's just a superstar': Carlos Beltrán on watching Francisco Lindor**\
 `Beltrán reflected on his big 2006 season while praising Lindor for his spectacular all-around play.`\
 https://nytimes.com/athletic/5796577/2024/09/27/mets-francisco-lindor-carlos-beltran/
-
-**Remembering the 1994 Penn State Nittany Lions — undefeated and snubbed by the polls**\
-`The Nittany Lions went 12-0 and averaged 43.8 points per game in 1994 yet finished second to Nebraska in both major polls.`\
-https://nytimes.com/athletic/5798297/2024/09/27/penn-state-1994-undefeated-snubbed-rose-bowl/
-
-**Cowboys need more of the Dak Prescott to CeeDee Lamb we saw Thursday night**\
-`The Cowboys made an effort to get Prescott and Lamb involved early and made the most of a one-one-one matchup in the first half.`\
-https://nytimes.com/athletic/5798777/2024/09/27/cowboys-dak-prescott-ceedee-lamb-giants-tnf/
-
-**In Lebanon’s Bekaa Valley, Days of Destruction After Months of Calm**\
-`The Bekaa Valley, a Hezbollah bastion in eastern Lebanon, had mostly been spared over 11 months of war. But The New York Times saw widespread devastation there after intense Israeli airstrikes this week.`\
-https://nytimes.com/2024/09/27/world/middleeast/bekaa-valley-lebanon-hezbollah.html
 
