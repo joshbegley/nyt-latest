@@ -1,3 +1,7 @@
+**Israel Likely to Have Enough Weapons for Multiple Conflicts**\
+`Although Israel, like many countries, is highly secretive about its weapons stockpiles, experts believe it could outlast adversaries in offensives on at least two fronts simultaneously.`\
+https://nytimes.com/2024/09/27/world/middleeast/israel-weapons-stockpiles.html
+
 **The Sudden Appeal of the Bulldog Spirit**\
 `Such is the hold the Premier League has on the popular consciousness that enticing a player away from it is seen as a coup.`\
 https://nytimes.com/2024/09/27/world/europe/atletico-real-madrid-derby.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/business/dealbook/unicredit-commerzbank-europe-ba
 **Some of America’s Best Art Is in the Yard**\
 `For people who have historically been excluded by museums and galleries, their own properties have became a source of inspiration.`\
 https://nytimes.com/2024/09/27/t-magazine/yard-art-joe-minter-tyree-guyton.html
-
-**Mings and Kamara on track for Aston Villa return after international break**\
-`Aston Villa’s Tyrone Mings and Boubacar Kamara are in line to return to first-team action after the October international break.`\
-https://nytimes.com/athletic/5799313/2024/09/27/mings-kamara-aston-villa-injury-update/
 

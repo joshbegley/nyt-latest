@@ -1,3 +1,7 @@
+**Climate Protesters Land in Jail for Attack on Van Gogh’s ‘Sunflowers’**\
+`A judge sentenced two climate protesters to prison terms for throwing soup at the work in 2022, an act he called “criminally idiotic.”`\
+https://nytimes.com/2024/09/27/arts/design/van-gogh-soup-jail.html
+
 **Israel Likely to Have Enough Weapons for Multiple Conflicts**\
 `Although Israel, like many countries, is highly secretive about its weapons stockpiles, experts believe it could outlast adversaries in offensives on at least two fronts simultaneously.`\
 https://nytimes.com/2024/09/27/world/middleeast/israel-weapons-stockpiles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5797240/2024/09/27/tyler-conklin-basketball-backgro
 **Talks Between European Banks May Kick-Start More Cross-Border Deals**\
 `Investors are cheering a possible tie-up between UniCredit of Italy and Germany’s Commerzbank, but politics may stand in the way.`\
 https://nytimes.com/2024/09/27/business/dealbook/unicredit-commerzbank-europe-banking.html
-
-**Some of America’s Best Art Is in the Yard**\
-`For people who have historically been excluded by museums and galleries, their own properties have became a source of inspiration.`\
-https://nytimes.com/2024/09/27/t-magazine/yard-art-joe-minter-tyree-guyton.html
 

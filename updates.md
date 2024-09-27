@@ -1,3 +1,7 @@
+**Israel Likely to Have Enough Weapons for Multiple Conflicts**\
+`Although Israel, like many countries, is highly secretive about its weapons stockpiles, experts believe it could outlast adversaries in offensives on at least two fronts simultaneously.`\
+https://nytimes.com/2024/09/27/world/middleeast/israel-weapons-stockpiles.html
+
 **The Sudden Appeal of the Bulldog Spirit**\
 `Such is the hold the Premier League has on the popular consciousness that enticing a player away from it is seen as a coup.`\
 https://nytimes.com/2024/09/27/world/europe/atletico-real-madrid-derby.html
