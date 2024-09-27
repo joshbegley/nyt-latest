@@ -1,3 +1,7 @@
+**What to know about the International Team dominant Day 2 at the Presidents Cup**\
+`The International side played 57 holes with the lead on Friday across all matches. The Americans? One.`\
+https://nytimes.com/athletic/5800400/2024/09/27/presidents-cup-analysis-2024-day-2-international-team/
+
 **Yordan Alvarez is 'getting better quickly.' Will it be in time for the Wild Card Series?**\
 `Astros manager Joe Espada said that the slugger will need to "check some boxes" before he's cleared to play.`\
 https://nytimes.com/athletic/5800424/2024/09/27/astros-yordan-alvarez-injury-wild-card-series/
