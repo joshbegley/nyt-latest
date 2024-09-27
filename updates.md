@@ -1,3 +1,7 @@
+**Lavia set for Chelsea return after recovering from injury**\
+`Chelsea have been handed a boost as Romeo Lavia is set to return to the squad for Saturday&#8217;s match against Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/5799094/2024/09/27/romeo-lavia-chelsea-injury-return/
+
 **Wolves prospect Pond on standby for debut amid virus in camp**\
 `Wolverhampton Wanderers defender Alfie Pond is standing by for a possible Premier League debut against Liverpool on Saturday with a virus threatening to disrupt manager Gary O’Neil’s plans.`\
 https://nytimes.com/athletic/5799171/2024/09/27/wolves-virus-gary-oneil-liverpool/
