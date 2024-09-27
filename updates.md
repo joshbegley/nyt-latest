@@ -1,3 +1,11 @@
+**In Less Than 20 Minutes, Eric Adams Formally Enters Legal Limbo**\
+`During his arraignment, New York’s typically lively mayor was stoic and stone faced. Months of legal entanglements lie ahead.`\
+https://nytimes.com/2024/09/27/nyregion/eric-adams-court-appearance.html
+
+**An Indicted Mayor and an Indicted Former President, and the Parallels Between**\
+`Eric Adams and Donald Trump, two political shape-shifters, have both insisted they’re victims of partisan prosecutions.`\
+https://nytimes.com/2024/09/27/us/politics/trump-adams-indictments-analysis.html
+
 **Along Helene’s destructive path, fewer homeowners have flood insurance.**\
 `By Christopher Flavelle`\
 https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/along-helenes-destructive-path-fewer-homeowners-have-flood-insurance
