@@ -1,3 +1,11 @@
+**Sliders: Bruce Bochy's guide to postseason managing, a Coliseum farewell and more**\
+`We look ahead to the playoffs and say some farewells in the final Sliders column of the 2024 season. `\
+https://nytimes.com/athletic/5794277/2024/09/27/bruce-bochy-mlb-playoffs-oakland-athletics/
+
+**'He's just a superstar': Carlos Beltrán on watching Francisco Lindor**\
+`Beltrán reflected on his big 2006 season while praising Lindor for his spectacular all-around play.`\
+https://nytimes.com/athletic/5796577/2024/09/27/mets-francisco-lindor-carlos-beltran/
+
 **Remembering the 1994 Penn State Nittany Lions — undefeated and snubbed by the polls**\
 `The Nittany Lions went 12-0 and averaged 43.8 points per game in 1994 yet finished second to Nebraska in both major polls.`\
 https://nytimes.com/athletic/5798297/2024/09/27/penn-state-1994-undefeated-snubbed-rose-bowl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5798149/2024/09/27/notre-dame-louisville-preview-pr
 **Koreen: Derrick Rose's complicated legacy needs to reconcile the brilliant with the brutal**\
 `When remembering Derrick Rose's storied NBA career, what happened off the court needs to be addressed, too. `\
 https://nytimes.com/athletic/5797176/2024/09/27/derrick-rose-retirement-nba-bulls-knicks/
-
-**Luke Altmyer has emerged as Illinois' unlikely star amid the Illini's historic start**\
-`Through four games, Altmyer is the nation’s only quarterback with 10 or more touchdowns and no interceptions.`\
-https://nytimes.com/athletic/5797741/2024/09/27/luke-altmyer-illinois-qb-penn-state/
-
-**Celtics' Baylor Scheierman prepped for dirty work after bulking up in offseason**\
-`"I spent a lot of time on my body, working on my body, trying to put on a lot of lean mass,” says Scheierman of his summer transformation.`\
-https://nytimes.com/athletic/5797565/2024/09/27/boston-celtics-baylor-scheierman-rookie-offseason/
 
