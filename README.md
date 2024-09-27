@@ -1,3 +1,7 @@
+**Athlos NYC showed what's possible for track in America — but can the idea stick?**\
+`Athletes raved about Thursday's flashy event in New York that hoped to seize on post-Olympic buzz. But there's still a lot of work to do.`\
+https://nytimes.com/athletic/5799920/2024/09/27/athlos-nyc-track-olympics-gabby-thomas/
+
 **DeVonta Smith out, A.J. Brown questionable for Eagles Sunday vs. Bucs**\
 `The Philadelphia Eagles may be without their top two wide receivers Sunday as they head down to Tampa Bay.`\
 https://nytimes.com/athletic/5799923/2024/09/27/devonta-smith-aj-brown-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/business/hurricane-helene-homeowners-insurance.ht
 **OpenAI Is Growing Fast and Burning Through Piles of Money**\
 `As the company looks for more outside investors, documents reviewed by The New York Times show consumer fascination with ChatGPT and a serious need for more cash.`\
 https://nytimes.com/2024/09/27/technology/openai-chatgpt-investors-funding.html
-
-**Titan Sub Tragedy: Coast Guard Hearings Reveal New Insights**\
-`Contrary to public reports last year, the passengers probably had no idea that the vessel was about to implode.`\
-https://nytimes.com/2024/09/27/science/titan-submersible-oceangate-hearing.html
 
