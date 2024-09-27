@@ -1,3 +1,15 @@
+**The Fed’s Preferred Inflation Gauge Cooled in August**\
+`Inflation has been slowing for months, which has paved the way for Federal Reserve interest rates cuts.`\
+https://nytimes.com/2024/09/27/business/economy/fed-inflation-pce.html
+
+**Deal to Reopen Libya’s Central Bank Eases Fears of Renewed Conflict**\
+`A standoff over control of the bank had destabilized the country’s economy and raised the prospect of fresh fighting between Libya’s eastern and western factions.`\
+https://nytimes.com/2024/09/27/world/middleeast/libya-central-bank-reopen-agreement.html
+
+**Live Q&A: FPL Gameweek 6 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 5 Fantasy Premier League Q&A from 4pm UK time on Friday`\
+https://nytimes.com/athletic/5797185/2024/09/27/fantasy-premier-league-advice-injury-news-gw6/
+
 **Thompson: The A's are leaving Oakland — good riddance to an inept owner and MLB enablers**\
 `After years of John Fisher and MLB's heartless approach to the franchise, this heart has long run out of room for sentiment.`\
 https://nytimes.com/athletic/5798535/2024/09/27/oakland-as-final-game-coliseum-thompson/
