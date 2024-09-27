@@ -1,3 +1,15 @@
+**What to Expect From Helene as It Moves North**\
+`After landfall, the storm will move quickly into Georgia and the Carolinas, where it promises to bring even more rain.`\
+https://nytimes.com/2024/09/26/weather/helene-forecast-friday-georgia-north-carolina.html
+
+**Yankees win American League East crown as Aaron Judge, Gerrit Cole star in win**\
+`The Yankees had already secured a first-round bye, allowing them to skip the AL Wild Card round and head straight to the Division Series.`\
+https://nytimes.com/athletic/5792121/2024/09/26/yankees-american-league-east-champions/
+
+**Man Found Guilty in Shooting Death of Rapper Young Dolph**\
+`The man, Justin Johnson, was sentenced to life in prison on Thursday for the fatal 2021 shooting of Young Dolph, who was gunned down outside a Memphis cookie shop in broad daylight.`\
+https://nytimes.com/2024/09/26/arts/music/young-dolph-guilty.html
+
 **Between Dusk and Dawn**\
 `Jake Bunch opens our solving weekend.`\
 https://nytimes.com/2024/09/26/crosswords/daily-puzzle-2024-09-27.html
