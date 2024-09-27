@@ -1,3 +1,7 @@
+**City's Champions League return is overdue - how far can they go?**\
+`City are back where they feel they belong, but club executives feel this is only the start of their journey`\
+https://nytimes.com/athletic/5798241/2024/09/27/manchester-city-women-champions-league/
+
 **Late Night Roasts New York Mayor Eric Adams Over His Indictment**\
 `Jimmy Fallon joked that it’s “always fun when the city mimics the exact plot of a Batman movie.”`\
 https://nytimes.com/2024/09/27/arts/television/late-night-mayor-eric-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/world/asia/myanmar-military.html
 **Slot sessions, tactical tweaks and a catchy song: How Diaz was rebooted**\
 `The Colombian looks reenergised and a renewed threat this season - so what is behind the transformation?`\
 https://nytimes.com/athletic/5790532/2024/09/27/luis-diaz-liverpool-rebooted/
-
-**FPL: Playing your wildcard this week? Here's what to consider**\
-`Our FPL expert is playing his wildcard this week and runs through the options he is weighing up before taking the plunge.`\
-https://nytimes.com/athletic/5791934/2024/09/27/fantasy-premier-league-wildcard-draft-strategies/
 

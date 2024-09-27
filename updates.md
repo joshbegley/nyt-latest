@@ -1,3 +1,7 @@
+**City's Champions League return is overdue - how far can they go?**\
+`City are back where they feel they belong, but club executives feel this is only the start of their journey`\
+https://nytimes.com/athletic/5798241/2024/09/27/manchester-city-women-champions-league/
+
 **Late Night Roasts New York Mayor Eric Adams Over His Indictment**\
 `Jimmy Fallon joked that it’s “always fun when the city mimics the exact plot of a Batman movie.”`\
 https://nytimes.com/2024/09/27/arts/television/late-night-mayor-eric-adams.html
