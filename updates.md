@@ -1,3 +1,7 @@
+**Thompson: The A's are leaving Oakland — good riddance to an inept owner and MLB enablers**\
+`After years of John Fisher and MLB's heartless approach to the franchise, this heart has long run out of room for sentiment.`\
+https://nytimes.com/athletic/5798535/2024/09/27/oakland-as-final-game-coliseum-thompson/
+
 **Risk of Heart Defects Higher in Babies Conceived With I.V.F.**\
 `The birth defects were more likely, but still very uncommon, in infants conceived through certain fertility treatments, a large study found.`\
 https://nytimes.com/2024/09/27/health/ivf-birth-defects.html
