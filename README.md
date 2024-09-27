@@ -1,3 +1,7 @@
+**Cowboys outlast Giants as Nabers, Parsons exit in final minutes**\
+`The Cowboys limited the Giants to five field goals and just 1.1 yards per rush attempt.`\
+https://nytimes.com/athletic/5798440/2024/09/26/cowboys-giants-score-thursday-night-football-takeaways/
+
 **Sky fire coach Teresa Weatherspoon after 1 season**\
 `The Sky finished 13-27 in Weatherspoon's first season as coach, failing to make the playoffs.`\
 https://nytimes.com/athletic/5798354/2024/09/26/chicago-sky-coach-fired-teresa-weatherspoon/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/crosswords/daily-puzzle-2024-09-27.html
 **Blum: The Angels have given little reason for optimism after embarrassing season**\
 `A season this terrible should do nothing but add skepticism and shred credibility for the vague blueprint the Angels have been advertising.`\
 https://nytimes.com/athletic/5798163/2024/09/26/angels-embarrassing-season-analysis/
-
-**Greenberg: Just when you need the White Sox to lose, they surprise you**\
-`Fans came to the South Side to see a little history. Instead, the Sox won three in a row. They can't even lose right. `\
-https://nytimes.com/athletic/5798135/2024/09/26/chicago-white-sox-angels-record/
 
