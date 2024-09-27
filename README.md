@@ -1,7 +1,3 @@
-**Israel Targeted Hezbollah’s Leader in a Strike Near Beirut**\
-`Also, Hurricane Helene destroyed large swaths of the Southeast. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/09/27/briefing/israel-hezbollah-leader-hurricane-helene-destruction.html
-
 **What to Know About Homeowners Insurance After Hurricane Helene**\
 `If your home has been damaged, you may be at the beginning of a long process.`\
 https://nytimes.com/2024/09/27/business/hurricane-helene-homeowners-insurance.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/27/nyregion/eric-adams-arraignment-bribery-fraud.htm
 **Caitlin Clark wins ROY, Napheesa Collier wins DPOY**\
 `Clark entered the league as the most-anticipated rookie in league history.`\
 https://nytimes.com/athletic/5796437/2024/09/27/caitlin-clark-wnba-rookie-of-the-year/
+
+**Maggie Smith Was Imperious in the Most Delightful Way**\
+`Throughout her career and on “Downton Abbey,” she perfected the role of the commanding Englishwoman with an arrow-sharp wit.`\
+https://nytimes.com/2024/09/27/movies/maggie-smith-appraisal.html
 
