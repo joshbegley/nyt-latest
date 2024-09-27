@@ -1,40 +1,40 @@
-**New R.S.V. Vaccines Had Limited Takers Last Year. Will This Year Be Better?**\
-`Some of the problems that patients ran into, including a lack of insurance coverage, have been resolved.`\
-https://nytimes.com/2024/09/27/well/rsv-vaccine-adults-babies.html
+**MLB's playoff hopefuls that are poised to take advantage of the game's current trends**\
+`Teams with pitchers who feature multiple fastballs, and are going away from traditional batting practice, could be rewarded in October.`\
+https://nytimes.com/athletic/5763820/2024/09/27/mlb-postseason-baseball-trends/
 
-**Katy Perry’s Latest Album Isn’t as Bad as Her Timing**\
-`The pop singer’s latest LP, “143,” has been gleefully panned, but its musical faults aren’t as remarkable as Perry’s failure to read the current cultural moment.`\
-https://nytimes.com/2024/09/27/arts/music/katy-perry-143-review.html
+**Dehner Jr.: Somehow, Bengals manage to put season in balance in Week 4**\
+`What may have been considered an easy win before the season now is a crucial game against Carolina and Andy Dalton.`\
+https://nytimes.com/athletic/5798040/2024/09/27/bengals-panthers-prediction-week-4/
 
-**Melissa George Brings Cinematic Glamour to a 17th-Century French Manor**\
-`“This is a woman’s home,” the actress says. “If a man walks in, I want him to feel like a guest.”`\
-https://nytimes.com/2024/09/27/t-magazine/melissa-george-provence-home.html
+**Seth McLaughlin proving to be an ideal fit on revamped and improved Ohio State offensive line**\
+`McLaughlin started 24 games at Alabama but was looking for a new home after the 2023 season. He found one, quickly, at Ohio State.`\
+https://nytimes.com/athletic/5797453/2024/09/27/ohio-state-center-seth-mclaughlin-proving-to-be-an-ideal-fit-on-revamped-o-line/
 
-**House Tour | Melissa George**\
-`The actress gives a tour of her home in Provence, which she’s filled with delicate details like floral furniture and a pink marble sink.`\
-https://nytimes.com/video/t-magazine/100000009711076/house-tour-melissa-george.html
+**Can Notre Dame beat Louisville, remain nationally relevant? 3 keys and a prediction**\
+`The Fighting Irish have every reason to be locked in and buttoned up Saturday, ready to return last year’s favor to Louisville.`\
+https://nytimes.com/athletic/5798149/2024/09/27/notre-dame-louisville-preview-prediction/
 
-**The Wily Spy Who Risked His Life to Meet North Korea’s Secretive Leader**\
-`Park Chae-so was so successful in infiltrating the North that Kim Jong-il, the enigmatic ruler, once gifted him blueberry wine. So why was the celebrated undercover agent later jailed by South Korea?`\
-https://nytimes.com/2024/09/27/world/asia/south-north-korea-kim-jong-il-park-chae-so.html
+**Koreen: Derrick Rose's complicated legacy needs to reconcile the brilliant with the brutal**\
+`When remembering Derrick Rose's storied NBA career, what happened off the court needs to be addressed, too. `\
+https://nytimes.com/athletic/5797176/2024/09/27/derrick-rose-retirement-nba-bulls-knicks/
 
-**Which Food Is the Most Underrated? ​**\
-`A guest essay argues that anchovies (yes, anchovies!) deserve more love. What underappreciated food would you make the case for?`\
-https://nytimes.com/2024/09/27/learning/which-food-is-the-most-underrated.html
+**Luke Altmyer has emerged as Illinois' unlikely star amid the Illini's historic start**\
+`Through four games, Altmyer is the nation’s only quarterback with 10 or more touchdowns and no interceptions.`\
+https://nytimes.com/athletic/5797741/2024/09/27/luke-altmyer-illinois-qb-penn-state/
 
-**Redecorating? A Quick Trip to the Grocery Store May Be All You Need.**\
-`Why professional designers swear by supermarket décor.`\
-https://nytimes.com/2024/09/27/realestate/home-decorations-supermarket.html
+**Celtics' Baylor Scheierman prepped for dirty work after bulking up in offseason**\
+`"I spent a lot of time on my body, working on my body, trying to put on a lot of lean mass,” says Scheierman of his summer transformation.`\
+https://nytimes.com/athletic/5797565/2024/09/27/boston-celtics-baylor-scheierman-rookie-offseason/
 
-**How a Book About Gloves Inspired a Masterpiece by Philip Roth**\
-`For years, Roth couldn’t get beyond the premise for his novel “American Pastoral.” Then he stumbled on a copy of “Shtetl in the Adirondacks: The Story of Gloversville and Its Jews.” The rest is literary history.`\
-https://nytimes.com/2024/09/27/books/review/philip-roth-american-pastoral-gloves.html
+**9 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2024/09/27/movies/megalopolis-the-wild-robot-movie-review-roundup.html
 
-**From Darvish to Suzuki and Imanaga, the Cubs hope they've opened a pipeline of Asian talent**\
-`The Cubs believe they’ve made significant inroads and have established themselves as a real player in the Asian market.`\
-https://nytimes.com/athletic/5797137/2024/09/27/cubs-scout-talent-asia/
+**Things Are Looking Up for Africa’s Upside-Down Baobab Trees**\
+`A researcher followed up on a study warning that the massive trees were in danger, and found many venerable specimens thriving.`\
+https://nytimes.com/2024/09/27/science/baobab-trees-africa-climate-change.html
 
-**The way-too-early Arch Manning scouting report**\
-`How has Arch looked so far? Does he play like his relatives? And what does his first start say about where he goes from here?`\
-https://nytimes.com/athletic/5791016/2024/09/27/arch-manning-film-scouting-report-family/
+**A Special Week in the Republican Outreach to Women**\
+`A look back at seven days of bad behavior.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/badbehavior-republican-outreach-women
 
