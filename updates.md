@@ -1,3 +1,7 @@
+**Trump Threatens to Prosecute Google for Showing ‘Bad Stories’ About Him**\
+`The former president said on social media that he would “request their prosecution, at the maximum levels” if he was elected to a second term.`\
+https://nytimes.com/2024/09/27/us/politics/trump-google-prosecute.html
+
 **Trump Suggests Putin Wants to End War, as Zelensky Looks On**\
 `“I’m sure President Putin wants it to stop,” Donald Trump said of the Russia-Ukraine war on Friday. President Volodymyr Zelensky of Ukraine stressed that the war shouldn’t have been started.`\
 https://nytimes.com/2024/09/27/us/politics/trump-zelensky-putin-war.html

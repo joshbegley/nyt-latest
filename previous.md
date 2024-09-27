@@ -1,3 +1,7 @@
+**Trump Threatens to Prosecute Google for Showing ‘Bad Stories’ About Him**\
+`The former president said on social media that he would “request their prosecution, at the maximum levels” if he was elected to a second term.`\
+https://nytimes.com/2024/09/27/us/politics/trump-google-prosecute.html
+
 **Trump Suggests Putin Wants to End War, as Zelensky Looks On**\
 `“I’m sure President Putin wants it to stop,” Donald Trump said of the Russia-Ukraine war on Friday. President Volodymyr Zelensky of Ukraine stressed that the war shouldn’t have been started.`\
 https://nytimes.com/2024/09/27/us/politics/trump-zelensky-putin-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/health/medicare-drug-prices-harris-biden.html
 **Agents Seize Phone From Adams’s Top Adviser and Subpoena Her**\
 `Ingrid Lewis-Martin has been close to Mayor Eric Adams for decades, and has cultivated a reputation as a ruthless political actor.`\
 https://nytimes.com/2024/09/27/nyregion/ingrid-lewis-martin-phone-searched-adams.html
-
-**Raiders' Adams (hamstring), Crosby (ankle) out vs. Browns**\
-`Coach Antonio Pierce announced Maxx Crosby and Davante Adams will take the week off while they deal with injuries.`\
-https://nytimes.com/athletic/5799780/2024/09/27/raiders-davante-adams-maxx-crosby-injuries-browns/
 
