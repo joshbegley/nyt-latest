@@ -1,3 +1,11 @@
+**Surviving Spouses May Not Be Responsible for Partners’ Medical Bills**\
+`A call from a debt collector may add to the challenges that bereaved people are already dealing with. But spouses “should not assume that they have to pay.”`\
+https://nytimes.com/2024/09/27/your-money/medical-bills-spouse-deceased.html
+
+**Scenes from a celebration: Why Dodgers’ latest defense of the NL West is ‘a tick sweeter’**\
+`The Dodgers won the division for the eighth time in nine years under Dave Roberts though it came only after a season of extreme adversity.`\
+https://nytimes.com/athletic/5798758/2024/09/27/dodgers-clinch-nl-west-2/
+
 **Scenes from a celebration: Why Dodgers’ latest defense of the NL West is ‘a tick sweeter’**\
 `The Dodgers won the division for the eighth time in nine years though it came only after a season of extreme adversity.`\
 https://nytimes.com/athletic/5798758/2024/09/27/dodgers-clinch-nl-west-2/
