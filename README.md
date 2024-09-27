@@ -1,3 +1,7 @@
+**In a Florida Beach Community, Helene Turned Homes to Rubble**\
+`Dekle Beach, southeast of Tallahassee, was hit by triple-digit wind speeds and rising waters.`\
+https://nytimes.com/2024/09/27/weather/dekle-beach-florida-helene.html
+
 **Top Bidder for Citgo Is Elliott Management, Court Master Says**\
 `The sale, which requires a judge’s approval, would help compensate foreign companies owed billions of dollars by the government of Venezuela, which owns Citgo.`\
 https://nytimes.com/2024/09/27/business/energy-environment/citgo-venezuela-elliott-management.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/magazine/ai-art-profit-ethics.html
 **Antidoping Agency Lost Track of Open Cases and Test Results Before Olympics**\
 `In a fraught meeting in May, top officials at the World Anti-Doping Agency were warned that a computer glitch might allow athletes accused of doping to compete at the Paris Games.`\
 https://nytimes.com/2024/09/27/world/wada-doping-database-crisis.html
-
-**The Possible Meanings of a Masculine Religious Revival**\
-`By Ross Douthat`\
-https://nytimes.com/2024/09/27/opinion/religion-gender-divide.html
 

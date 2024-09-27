@@ -1,3 +1,11 @@
+**Top Bidder for Citgo Is Elliott Management, Court Master Says**\
+`The sale, which requires a judge’s approval, would help compensate foreign companies owed billions of dollars by the government of Venezuela, which owns Citgo.`\
+https://nytimes.com/2024/09/27/business/energy-environment/citgo-venezuela-elliott-management.html
+
+**Inside Columbus Crew's visit to the White House**\
+`Wilfried Nancy has become the first Black head coach of an MLS team to visit the White House - their day in the Oval Office carries weight`\
+https://nytimes.com/athletic/5799764/2024/09/27/columbus-crew-white-house-biden-nancy/
+
 **Robert F. Kennedy Jr. Won’t Be on New York Ballot, Supreme Court Rules**\
 `The candidate had asked the justices to intervene after a state judge found that he had used an improper home address in election paperwork.`\
 https://nytimes.com/2024/09/27/us/politics/robert-f-kennedy-jr-new-york-ballot-supreme-court.html
