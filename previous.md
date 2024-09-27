@@ -1,3 +1,7 @@
+**Caitlin Clark wins WNBA Rookie of the Year**\
+`Clark entered the league as the most-anticipated rookie in league history.`\
+https://nytimes.com/athletic/5796437/2024/09/27/caitlin-clark-wnba-rookie-of-the-year/
+
 **Maggie Smith Was Imperious in the Most Delightful Way**\
 `Throughout her career and on “Downton Abbey,” she perfected the role of the commanding Englishwoman with an arrow-sharp wit.`\
 https://nytimes.com/2024/09/27/movies/maggie-smith-appraisal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/books/review/book-club-lets-talk-about-the-hypocr
 **In a Florida Beach Community, Helene Turned Homes to Rubble**\
 `Dekle Beach, southeast of Tallahassee, was hit by fast-rising water and winds of more than 100 miles per hour.`\
 https://nytimes.com/2024/09/27/weather/dekle-beach-florida-helene.html
-
-**Top Bidder for Citgo Is Elliott Management, Court Master Says**\
-`The sale, which requires a judge’s approval, would help compensate foreign companies owed billions of dollars by the government of Venezuela, which owns Citgo.`\
-https://nytimes.com/2024/09/27/business/energy-environment/citgo-venezuela-elliott-management.html
 
