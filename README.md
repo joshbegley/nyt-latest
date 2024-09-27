@@ -1,3 +1,7 @@
+**McDonald’s, Pelosi, Debate Moderators: Trump Speech on Border Veers Off Course**\
+`After reading from prepared remarks on immigration for 10 minutes, Donald J. Trump used the rest of a news conference to talk about everything else on his mind.`\
+https://nytimes.com/2024/09/26/us/politics/mcdonalds-pelosi-debate-moderators-trump-speech-on-border-veers-off-course.html
+
 **Wander Franco ordered to stand trial in sexual abuse case**\
 `Franco has not appeared in an MLB game since last year, and has since been placed on the restricted list. `\
 https://nytimes.com/athletic/5797534/2024/09/26/wander-franco-court-developments/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/us/politics/boeing-rudder-defect-ntsb.html
 **Gov. Hochul Can Remove Eric Adams From Office. Will She?**\
 `The governor indicated that she was examining her options, but removing a reliable ally could create political problems that outweigh potential benefits.`\
 https://nytimes.com/2024/09/26/nyregion/adams-hochul-removal.html
-
-**Democrats Need Jon Tester to Defy the Odds Again**\
-`Control of the Senate could turn on Montana.`\
-https://nytimes.com/2024/09/26/us/politics/jon-tester-montana-election.html
 
