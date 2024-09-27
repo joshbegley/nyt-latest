@@ -1,3 +1,7 @@
+**'Incredibly difficult': These Nuggets know another title run won't be easy**\
+`While the championship core remains, this Denver team isn't quite the same one that stormed through the league in 2023.`\
+https://nytimes.com/athletic/5798035/2024/09/26/denver-nuggets-media-day-jokic-murray-westbrook/
+
 **City Investigators Seize Cash From New York Sheriff’s Office**\
 `The Department of Investigation is looking into whether Sheriff Anthony Miranda’s agency improperly took money from cannabis stores that it raided, closed and padlocked.`\
 https://nytimes.com/2024/09/26/nyregion/new-york-city-sheriffs-office-cash-seized.html
