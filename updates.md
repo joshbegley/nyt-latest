@@ -1,3 +1,7 @@
+**Titan Sub Tragedy: Coast Guard Hearings Reveal New Insights**\
+`Contrary to public reports last year, the passengers probably had no idea that the vessel was about to implode.`\
+https://nytimes.com/2024/09/27/science/titan-submersible-oceangate-hearing.html
+
 **Trump Threatens to Prosecute Google for Showing ‘Bad Stories’ About Him**\
 `The former president said on social media that he would “request their prosecution, at the maximum levels” if he was elected to a second term.`\
 https://nytimes.com/2024/09/27/us/politics/trump-google-prosecute.html
