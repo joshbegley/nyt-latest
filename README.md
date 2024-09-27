@@ -1,3 +1,7 @@
+**In Cedar Key, Fla., resilience is a part of life.**\
+`By Abigail Geiger`\
+https://nytimes.com/live/2024/09/26/weather/tropical-storm-helene-hurricane/in-cedar-key-fla-resilience-is-a-part-of-life
+
 **What to Expect From Helene as It Moves North**\
 `After landfall, the storm will move quickly into Georgia and the Carolinas, where it promises to bring even more rain.`\
 https://nytimes.com/2024/09/26/weather/helene-forecast-friday-georgia-north-carolina.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/26/pageoneplus/corrections-sept-27-2024.html
 **A's close out their Oakland chapter with a win: 'I couldn’t be more proud'**\
 `The A's finished off their 57 years in Oakland with a 3-2 win in front of 46,886 fans. "It means more. You feel it in the stadium."`\
 https://nytimes.com/athletic/5798100/2024/09/26/oakland-athletics-final-out-coliseum/
-
-**House v. NCAA settlement revises language around NIL in new filing**\
-`Most of the revisions aim to better define the term “booster” and what constitutes the pay-for-play inducements the NCAA hopes to eliminate.`\
-https://nytimes.com/athletic/5798062/2024/09/26/house-ncaa-revised-settlement-college-sports-nil-boosters/
 
