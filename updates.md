@@ -1,3 +1,11 @@
+**The Sudden Appeal of the Bulldog Spirit**\
+`Such is the hold the Premier League has on the popular consciousness that enticing a player away from it is seen as a coup.`\
+https://nytimes.com/2024/09/27/world/europe/atletico-real-madrid-derby.html
+
+**A Great City, Such a Small Mayor**\
+`With all its talent, how did the city end up with a mayor accused of being an incessant petty grifter?`\
+https://nytimes.com/2024/09/27/opinion/new-york-deserves-better-than-this.html
+
 **New York Deserves Better Than This**\
 `With all its talent, how did the city end up with a mayor accused of being an incessant petty grifter?`\
 https://nytimes.com/2024/09/27/opinion/new-york-deserves-better-than-this.html
