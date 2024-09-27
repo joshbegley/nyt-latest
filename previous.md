@@ -1,3 +1,11 @@
+**Wolves prospect Pond on standby for debut amid virus in camp**\
+`Wolverhampton Wanderers defender Alfie Pond is standing by for a possible Premier League debut against Liverpool on Saturday with a virus threatening to disrupt manager Gary O’Neil’s plans.`\
+https://nytimes.com/athletic/5799171/2024/09/27/wolves-virus-gary-oneil-liverpool/
+
+**Spurs set for late Son fitness call before Man Utd trip**\
+`Ange Postecoglou says Tottenham Hotspur will make a late call on the availability of captain Son Heung-min ahead of Sunday&#8217;s Premier League fixture against Manchester United.`\
+https://nytimes.com/athletic/5798842/2024/09/27/son-heung-min-injury-spurs/
+
 **De Bruyne out of Newcastle game as Rodri has ACL surgery**\
 `Manchester City will be without Kevin De Bruyne when they face Newcastle United on Saturday.`\
 https://nytimes.com/athletic/5799187/2024/09/27/de-bruyne-rodri-injury-man-city/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/27/world/middleeast/libya-central-bank-reopen-agreem
 **Live Q&A: FPL Gameweek 6 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 5 Fantasy Premier League Q&A from 4pm UK time on Friday`\
 https://nytimes.com/athletic/5797185/2024/09/27/fantasy-premier-league-advice-injury-news-gw6/
-
-**Thompson: The A's are leaving Oakland — good riddance to an inept owner and MLB enablers**\
-`After years of John Fisher and MLB's heartless approach to the franchise, this heart has long run out of room for sentiment.`\
-https://nytimes.com/athletic/5798535/2024/09/27/oakland-as-final-game-coliseum-thompson/
-
-**Risk of Heart Defects Higher in Babies Conceived With I.V.F.**\
-`The birth defects were more likely, but still very uncommon, in infants conceived through certain fertility treatments, a large study found.`\
-https://nytimes.com/2024/09/27/health/ivf-birth-defects.html
 
