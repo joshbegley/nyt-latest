@@ -1,3 +1,7 @@
+**Between Dusk and Dawn**\
+`Jake Bunch opens our solving weekend.`\
+https://nytimes.com/2024/09/26/crosswords/daily-puzzle-2024-09-27.html
+
 **Blum: The Angels have given little reason for optimism after embarrassing season**\
 `A season this terrible should do nothing but add skepticism and shred credibility for the vague blueprint the Angels have been advertising.`\
 https://nytimes.com/athletic/5798163/2024/09/26/angels-embarrassing-season-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/26/weather/tropical-storm-helene-hurricane/sens
 **McDonald’s, Pelosi, Debate Moderators: Trump Speech on Border Veers Off Course**\
 `After reading from prepared remarks on immigration for 10 minutes, Donald J. Trump used the rest of a news conference to talk about everything else on his mind.`\
 https://nytimes.com/2024/09/26/us/politics/trump-speech-harris-border.html
-
-**Wander Franco ordered to stand trial in sexual abuse case**\
-`Franco has not appeared in an MLB game since last year, and has since been placed on the restricted list. `\
-https://nytimes.com/athletic/5797534/2024/09/26/wander-franco-court-developments/
 

@@ -1,3 +1,7 @@
+**Between Dusk and Dawn**\
+`Jake Bunch opens our solving weekend.`\
+https://nytimes.com/2024/09/26/crosswords/daily-puzzle-2024-09-27.html
+
 **Blum: The Angels have given little reason for optimism after embarrassing season**\
 `A season this terrible should do nothing but add skepticism and shred credibility for the vague blueprint the Angels have been advertising.`\
 https://nytimes.com/athletic/5798163/2024/09/26/angels-embarrassing-season-analysis/
