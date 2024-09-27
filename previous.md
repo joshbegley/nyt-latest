@@ -1,3 +1,19 @@
+**The Windup: Oakland's fitting, frustrating end**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5799414/2024/09/27/oakland-as-last-game-the-windup/
+
+**Haas F1 lawsuit against Guenther Steiner dismissed**\
+`However, Steiner's lawsuit against Haas is still pending. `\
+https://nytimes.com/athletic/5799403/2024/09/27/haas-f1-guenther-steiner-lawsuit-dismissed/
+
+**How might the Kings adjust without Drew Doughty? Who must step up?**\
+`Doughty will be out weeks, at the minimum. Who will join Mikey Anderson, and which players can claim a bigger role?`\
+https://nytimes.com/athletic/5798767/2024/09/27/doughty-injury-kings-lineup/
+
+**Climate Protesters Land in Jail for Attack on Van Gogh’s ‘Sunflowers’**\
+`A judge sentenced two climate protesters to prison terms for throwing soup at the work in 2022, an act he called “criminally idiotic.”`\
+https://nytimes.com/2024/09/27/arts/design/van-gogh-soup-jail.html
+
 **Israel Likely to Have Enough Weapons for Multiple Conflicts**\
 `Although Israel, like many countries, is highly secretive about its weapons stockpiles, experts believe it could outlast adversaries in offensives on at least two fronts simultaneously.`\
 https://nytimes.com/2024/09/27/world/middleeast/israel-weapons-stockpiles.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/09/27/weather/jebi-map-path-tracker.html
 **It's hard to feel good about Giants QB Daniel Jones' progress when end result is the same**\
 `Giants coach Brian Daboll heaped praise onto Jones on Thursday night. Was it warranted? `\
 https://nytimes.com/athletic/5798690/2024/09/27/daniel-jones-new-york-giants-cowboys-tnf-progress/
-
-**Andrew Scott Will Perform One-Man ‘Vanya’ Off Broadway Next Spring**\
-`The Olivier Award-winning revival, in which the actor plays all of the parts, is to begin previews March 11 at the Lucille Lortel Theater.`\
-https://nytimes.com/2024/09/27/theater/andrew-scott-vanya.html
-
-**How Tyler Conklin went from miserable college hoopster to an indispensable leader on the Jets**\
-`The tight end had a breakout game last week, and is poised for even bigger things in 2024.`\
-https://nytimes.com/athletic/5797240/2024/09/27/tyler-conklin-basketball-background-breakout-season-jets/
-
-**Talks Between European Banks May Kick-Start More Cross-Border Deals**\
-`Investors are cheering a possible tie-up between UniCredit of Italy and Germany’s Commerzbank, but politics may stand in the way.`\
-https://nytimes.com/2024/09/27/business/dealbook/unicredit-commerzbank-europe-banking.html
-
-**Some of America’s Best Art Is in the Yard**\
-`For people who have historically been excluded by museums and galleries, their own properties have became a source of inspiration.`\
-https://nytimes.com/2024/09/27/t-magazine/yard-art-joe-minter-tyree-guyton.html
 

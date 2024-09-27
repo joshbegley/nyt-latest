@@ -1,3 +1,19 @@
+**The Windup: Oakland's fitting, frustrating end**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5799414/2024/09/27/oakland-as-last-game-the-windup/
+
+**Haas F1 lawsuit against Guenther Steiner dismissed**\
+`However, Steiner's lawsuit against Haas is still pending. `\
+https://nytimes.com/athletic/5799403/2024/09/27/haas-f1-guenther-steiner-lawsuit-dismissed/
+
+**How might the Kings adjust without Drew Doughty? Who must step up?**\
+`Doughty will be out weeks, at the minimum. Who will join Mikey Anderson, and which players can claim a bigger role?`\
+https://nytimes.com/athletic/5798767/2024/09/27/doughty-injury-kings-lineup/
+
+**Climate Protesters Land in Jail for Attack on Van Gogh’s ‘Sunflowers’**\
+`A judge sentenced two climate protesters to prison terms for throwing soup at the work in 2022, an act he called “criminally idiotic.”`\
+https://nytimes.com/2024/09/27/arts/design/van-gogh-soup-jail.html
+
 **Israel Likely to Have Enough Weapons for Multiple Conflicts**\
 `Although Israel, like many countries, is highly secretive about its weapons stockpiles, experts believe it could outlast adversaries in offensives on at least two fronts simultaneously.`\
 https://nytimes.com/2024/09/27/world/middleeast/israel-weapons-stockpiles.html
