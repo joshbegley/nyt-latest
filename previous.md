@@ -1,3 +1,7 @@
+**Alisson available for Wolves after return from injury**\
+`Alisson is set to return to the Liverpool side for Saturday&#8217;s Premier League trip to Wolverhampton Wanderers.`\
+https://nytimes.com/athletic/5798964/2024/09/27/alisson-liverpool-injury/
+
 **Why Yankees’ Aaron Judge called players-only meeting that helped spark September run**\
 `The Yankees took care of business on the field to win the AL East. The meeting Judge called played a major role in setting the tone.`\
 https://nytimes.com/athletic/5798588/2024/09/27/yankees-aaron-judge-players-only-meeting-al-east/
@@ -33,8 +37,4 @@ https://nytimes.com/video/movies/100000009723351/saturday-night-scene.html
 **Wolves chairman Shi claims club in talks over minority investment**\
 `Wolverhampton Wanderers chairman Jeff Shi has claimed the club are in talks with potential minority investors.`\
 https://nytimes.com/athletic/5798869/2024/09/27/wolves-minority-investment-jeff-shi/
-
-**A Huge Hurricane**\
-`We’re covering Hurricane Helene. One of our reporters was inside the eye.`\
-https://nytimes.com/2024/09/27/briefing/a-huge-hurricane.html
 

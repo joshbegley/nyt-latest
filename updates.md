@@ -1,3 +1,7 @@
+**Alisson available for Wolves after return from injury**\
+`Alisson is set to return to the Liverpool side for Saturday&#8217;s Premier League trip to Wolverhampton Wanderers.`\
+https://nytimes.com/athletic/5798964/2024/09/27/alisson-liverpool-injury/
+
 **Why Yankees’ Aaron Judge called players-only meeting that helped spark September run**\
 `The Yankees took care of business on the field to win the AL East. The meeting Judge called played a major role in setting the tone.`\
 https://nytimes.com/athletic/5798588/2024/09/27/yankees-aaron-judge-players-only-meeting-al-east/
