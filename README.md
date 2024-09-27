@@ -1,5 +1,5 @@
 **Scenes from a celebration: Why Dodgers’ latest defense of the NL West is ‘a tick sweeter’**\
-`The Dodgers won the division for the eighth time in nine years though it came only after a season of extreme adversity.`\
+`The Dodgers won the division for the eighth time in nine years under Dave Roberts though it came only after a season of extreme adversity.`\
 https://nytimes.com/athletic/5798758/2024/09/27/dodgers-clinch-nl-west-2/
 
 **Here is the latest on the mayor’s indictment.**\

@@ -1,3 +1,15 @@
+**Scenes from a celebration: Why Dodgers’ latest defense of the NL West is ‘a tick sweeter’**\
+`The Dodgers won the division for the eighth time in nine years though it came only after a season of extreme adversity.`\
+https://nytimes.com/athletic/5798758/2024/09/27/dodgers-clinch-nl-west-2/
+
+**Here is the latest on the mayor’s indictment.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2024/09/27/nyregion/eric-adams-arraigned/here-is-the-latest-on-the-mayors-indictment
+
+**Live Updates: Eric Adams Set to Appear in Court on Bribery and Fraud Charges**\
+`The New York mayor was scheduled to be arraigned on Friday. He has insisted he will stay in office and asked New Yorkers to give him a chance to defend himself.`\
+https://nytimes.com/live/2024/09/27/nyregion/eric-adams-arraigned
+
 **The Fed’s Preferred Inflation Gauge Cooled in August**\
 `Inflation has been slowing for months, which has paved the way for Federal Reserve interest rates cuts.`\
 https://nytimes.com/2024/09/27/business/economy/fed-inflation-pce.html
