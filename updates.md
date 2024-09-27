@@ -1,3 +1,7 @@
+**Trump’s Huge Civil Fraud Penalty Draws Skepticism From Appeals Court**\
+`A five-judge New York appellate panel questioned both the size and validity of a judgment of more than $450 million against Donald J. Trump at a hearing.`\
+https://nytimes.com/2024/09/26/nyregion/trump-civil-fraud-penalty-appeals-court.html
+
 **Corrections: Sept. 27, 2024**\
 `Corrections that appeared in print on Friday, Sept. 27, 2024.`\
 https://nytimes.com/2024/09/26/pageoneplus/corrections-sept-27-2024.html

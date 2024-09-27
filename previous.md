@@ -1,3 +1,7 @@
+**Trump’s Huge Civil Fraud Penalty Draws Skepticism From Appeals Court**\
+`A five-judge New York appellate panel questioned both the size and validity of a judgment of more than $450 million against Donald J. Trump at a hearing.`\
+https://nytimes.com/2024/09/26/nyregion/trump-civil-fraud-penalty-appeals-court.html
+
 **Corrections: Sept. 27, 2024**\
 `Corrections that appeared in print on Friday, Sept. 27, 2024.`\
 https://nytimes.com/2024/09/26/pageoneplus/corrections-sept-27-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5797480/2024/09/26/steve-kerr-mike-dunleavy-2024-wa
 **Presidents Cup analysis: What to know from the Americans' strong Day 1 showing**\
 `The Americans lead by 5 points after Day 1. There's no history of a side coming back from that deficit in the Presidents Cup.`\
 https://nytimes.com/athletic/5798052/2024/09/26/presidents-cup-2024-analysis-us/
-
-**In Tallahassee, Residents Worry About a Defining City Feature: Its Trees**\
-`The city’s canopy and shaded roads could become hazards as Helene brings the potential for hurricane-force winds.`\
-https://nytimes.com/2024/09/26/weather/helene-tallahassee-trees.html
 
