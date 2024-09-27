@@ -1,3 +1,7 @@
+**Helene Brings Record Storm Surge to Florida**\
+`Waters rose rapidly along Florida’s Gulf Coast after Helene made landfall, flooding homes and forcing people to flee.`\
+https://nytimes.com/2024/09/27/weather/storm-surge-record-helene-florida.html
+
 **Why the Chiefs defense has struggled against tight ends**\
 `No team in the league this season has allowed more receptions and yards to tight ends than the Chiefs.`\
 https://nytimes.com/athletic/5797855/2024/09/27/kansas-city-chiefs-defense-tight-ends/
