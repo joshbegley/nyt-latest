@@ -1,3 +1,15 @@
+**Scenes from a celebration: Why Dodgers’ latest defense of the NL West is ‘a tick sweeter’**\
+`The Dodgers won the division for the eighth time in nine years though it came only after a season of extreme adversity.`\
+https://nytimes.com/athletic/5798758/2024/09/27/dodgers-clinch-nl-west-2/
+
+**Here is the latest on the mayor’s indictment.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2024/09/27/nyregion/eric-adams-arraigned/here-is-the-latest-on-the-mayors-indictment
+
+**Live Updates: Eric Adams Set to Appear in Court on Bribery and Fraud Charges**\
+`The New York mayor was scheduled to be arraigned on Friday. He has insisted he will stay in office and asked New Yorkers to give him a chance to defend himself.`\
+https://nytimes.com/live/2024/09/27/nyregion/eric-adams-arraigned
+
 **The Fed’s Preferred Inflation Gauge Cooled in August**\
 `Inflation has been slowing for months, which has paved the way for Federal Reserve interest rates cuts.`\
 https://nytimes.com/2024/09/27/business/economy/fed-inflation-pce.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/27/business/dealbook/new-york-business-eric-adams.ht
 **For improved Chargers defense, Patrick Mahomes, Chiefs represent the 'biggest challenge'**\
 `Defensive coordinator Jesse Minter: "They’re 3-0, they’re the defending champs. It’s definitely a great test.”`\
 https://nytimes.com/athletic/5798164/2024/09/27/chargers-defense-patrick-mahomes-chiefs/
-
-**Barrows: The 49ers' most problematic positions and what they can do to fix them**\
-`The 49ers had more bad news on defense Thursday when Jordan Elliott, Javon Hargrave's would-be replacement, suffered a foot injury.`\
-https://nytimes.com/athletic/5797663/2024/09/27/san-francisco-49ers-problems-positions/
-
-**The San Francisco Giants (still) need a superstar hitter**\
-`The Giants have several hitters who are above average. The lack of a star makes that far less impressive.`\
-https://nytimes.com/athletic/5792974/2024/09/27/sf-giants-need-superstar-hitter/
-
-**FPL: The 'traps' to avoid this season and who to keep faith with**\
-`In a season which has shown the value of staying patient, The Athletic runs through the traps to avoid and the players to hold onto`\
-https://nytimes.com/athletic/5788676/2024/09/27/fantasy-premier-league-gw6-traps-madueke-onana-welbeck/
 
