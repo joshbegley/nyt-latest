@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/along-helen
 
 **On Trip to U.S., Zelensky Finds Ukraine’s Fortunes Tied to the Election**\
 `A whirlwind week of top-level meetings failed to alleviate concerns in Kyiv that a Trump presidency could lead to a dramatic shift in American policy.`\
-https://nytimes.com/2024/09/27/world/europe/on-trip-to-us-zelensky-finds-ukraines-fortunes-tied-to-the-election.html
+https://nytimes.com/2024/09/27/world/europe/zelensky-ukraine-us-election.html
 
 **Canucks 2024-25 breakout tiers: Which players are most likely to take a step?**\
 `Breakout performances will define this upcoming Canucks season. These are the players we're watching for.`\
