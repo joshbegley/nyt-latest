@@ -1,3 +1,23 @@
+**Inside a Josh Stein Ad Blasting Mark Robinson as ‘Unfit’ for North Carolina Governor**\
+`No “Black Nazi” quotations or porn-site references here. Just Robinson’s own bloodthirsty words.`\
+https://nytimes.com/2024/09/27/us/politics/josh-stein-mark-robinson-ad.html
+
+**Tracking Tropical Storm Jebi**\
+`See the likely path and wind arrival times for Jebi.`\
+https://nytimes.com/interactive/2024/09/27/weather/jebi-map-path-tracker.html
+
+**It's hard to feel good about Giants QB Daniel Jones' progress when end result is the same**\
+`Giants coach Brian Daboll heaped praise onto Jones on Thursday night. Was it warranted? `\
+https://nytimes.com/athletic/5798690/2024/09/27/daniel-jones-new-york-giants-cowboys-tnf-progress/
+
+**Andrew Scott Will Perform One-Man ‘Vanya’ Off Broadway Next Spring**\
+`The Olivier Award-winning revival, in which the actor plays all of the parts, is to begin previews March 11 at the Lucille Lortel Theater.`\
+https://nytimes.com/2024/09/27/theater/andrew-scott-vanya.html
+
+**How Tyler Conklin went from miserable college hoopster to an indispensable leader on the Jets**\
+`The tight end had a breakout game last week, and is poised for even bigger things in 2024.`\
+https://nytimes.com/athletic/5797240/2024/09/27/tyler-conklin-basketball-background-breakout-season-jets/
+
 **Talks Between European Banks May Kick-Start More Cross-Border Deals**\
 `Investors are cheering a possible tie-up between UniCredit of Italy and Germany’s Commerzbank, but politics may stand in the way.`\
 https://nytimes.com/2024/09/27/business/dealbook/unicredit-commerzbank-europe-banking.html
