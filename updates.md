@@ -1,3 +1,7 @@
+**A's close out their Oakland chapter with a win: 'I couldn’t be more proud'**\
+`The A's finished off their 57 years in Oakland with a 3-2 win in front of 46,886 fans. "It means more. You feel it in the stadium."`\
+https://nytimes.com/athletic/5798100/2024/09/26/oakland-athletics-final-out-coliseum/
+
 **Presidents Cup analysis: What to know from the Americans' strong Day 1 showing**\
 `The Americans lead by 5 points after Day 1. There's no history of a side coming back from that deficit in the Presidents Cup.`\
 https://nytimes.com/athletic/5798052/2024/09/26/presidents-cup-2024-analysis-us/
