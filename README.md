@@ -1,6 +1,6 @@
 **Fort Myers Beach, Devastated by Hurricane Ian, Floods Again**\
 `Even though Hurricane Helene made landfall hundreds of miles to the north, its storm surge inundated roads and gushed into buildings.`\
-https://nytimes.com/2024/09/27/weather/fort-myers-beach-devastated-by-hurricane-ian-floods-again.html
+https://nytimes.com/2024/09/27/weather/helene-fort-myers-beach-floods.html
 
 **Extreme Weather Is Taxing Utilities More Often. Can A.I. Help?**\
 `From hurricanes to wildfires, a new generation of technologies could help utilities better plan for the risk of extreme weather to their electric grid.`\
