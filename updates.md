@@ -1,3 +1,7 @@
+**Tropical Storm John Set to Lash Mexico’s Coast With More Rain**\
+`The storm is expected to weaken as it moves along the southwestern coast, but officials warned some states in Mexico to brace for risks of flash flooding and mudslides.`\
+https://nytimes.com/2024/09/27/world/americas/tropical-storm-john-mexico.html
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/09/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
