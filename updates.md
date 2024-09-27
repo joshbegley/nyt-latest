@@ -1,3 +1,19 @@
+**Melting Man**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/09/27/learning/melting-man.html
+
+**As Adams’s Fate Hangs in the Balance, Cuomo Waits in the Shadows**\
+`The uncertainty surrounding Mayor Eric Adams has fueled rampant speculation that the former Gov. Andrew M. Cuomo may enter the mayor’s race.`\
+https://nytimes.com/2024/09/27/nyregion/as-adamss-fate-hangs-in-the-balance-cuomo-waits-in-the-shadows.html
+
+**Congestion Pricing Supporters Head to Court to Get Program Back on Track**\
+`Supporters of the tolling program want Gov. Kathy Hochul to bring it back from an indefinite suspension. Opponents want it dead for good.`\
+https://nytimes.com/2024/09/27/nyregion/congestion-pricing-hochul.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/27/crosswords/spelling-bee-forum.html
+
 **Port of Los Angeles Closes Terminals After Lithium Battery Fire**\
 `The fire was expected to burn for as long as 48 hours, forcing the authorities to close part of a highway where a truck carrying the batteries had overturned.`\
 https://nytimes.com/2024/09/27/us/los-angeles-lithium-battery-fire-ports.html
