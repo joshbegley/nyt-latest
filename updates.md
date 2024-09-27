@@ -1,3 +1,7 @@
+**New York Deserves Better Than This**\
+`With all its talent, how did the city end up with a mayor accused of being an incessant petty grifter?`\
+https://nytimes.com/2024/09/27/opinion/new-york-deserves-better-than-this.html
+
 **Inside a Josh Stein Ad Blasting Mark Robinson as ‘Unfit’ for North Carolina Governor**\
 `No “Black Nazi” quotations or porn-site references here. Just Robinson’s own bloodthirsty words.`\
 https://nytimes.com/2024/09/27/us/politics/josh-stein-mark-robinson-ad.html

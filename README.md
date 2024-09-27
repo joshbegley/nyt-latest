@@ -1,4 +1,8 @@
-**New York Deserves Better Than This**\
+**The Sudden Appeal of the Bulldog Spirit**\
+`Such is the hold the Premier League has on the popular consciousness that enticing a player away from it is seen as a coup.`\
+https://nytimes.com/2024/09/27/world/europe/atletico-real-madrid-derby.html
+
+**A Great City, Such a Small Mayor**\
 `With all its talent, how did the city end up with a mayor accused of being an incessant petty grifter?`\
 https://nytimes.com/2024/09/27/opinion/new-york-deserves-better-than-this.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/t-magazine/yard-art-joe-minter-tyree-guyton.html
 **Mings and Kamara on track for Aston Villa return after international break**\
 `Aston Villa’s Tyrone Mings and Boubacar Kamara are in line to return to first-team action after the October international break.`\
 https://nytimes.com/athletic/5799313/2024/09/27/mings-kamara-aston-villa-injury-update/
-
-**Scoop City: Caleb Williams' rough start, in context**\
-`Where Caleb Williams' early-season performance stacks up against former No. 1 picks, and a former teammate's surprising take on Josh Allen`\
-https://nytimes.com/athletic/5799263/2024/09/27/caleb-williams-rough-start/
 
