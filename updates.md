@@ -1,3 +1,11 @@
+**Maggie Smith: A Life in Pictures**\
+`She had a long, award-winning career as a screen and stage actress, finally becoming a household name with her memorable turn in “Downton Abbey.”`\
+https://nytimes.com/2024/09/27/arts/maggie-smith-photos.html
+
+**Big Business Backed Mayor Eric Adams. Now It Waits to Learn His Fate.**\
+`New York’s business sector is concerned that the possible removal of Mr. Adams from office would leave it without one of its biggest boosters.`\
+https://nytimes.com/2024/09/27/nyregion/eric-adams-business-indictment.html
+
 **A Florida Fishing Village, Rattled by Idalia, Suffers Another Devastating Blow**\
 `Homes were crumpled under the weight of trees, others left sodden by several feet of storm surge.`\
 https://nytimes.com/2024/09/27/weather/steinhatchee-hurricane-helene-damage.html

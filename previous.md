@@ -1,3 +1,11 @@
+**Maggie Smith: A Life in Pictures**\
+`She had a long, award-winning career as a screen and stage actress, finally becoming a household name with her memorable turn in “Downton Abbey.”`\
+https://nytimes.com/2024/09/27/arts/maggie-smith-photos.html
+
+**Big Business Backed Mayor Eric Adams. Now It Waits to Learn His Fate.**\
+`New York’s business sector is concerned that the possible removal of Mr. Adams from office would leave it without one of its biggest boosters.`\
+https://nytimes.com/2024/09/27/nyregion/eric-adams-business-indictment.html
+
 **A Florida Fishing Village, Rattled by Idalia, Suffers Another Devastating Blow**\
 `Homes were crumpled under the weight of trees, others left sodden by several feet of storm surge.`\
 https://nytimes.com/2024/09/27/weather/steinhatchee-hurricane-helene-damage.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/27/weather/helene-is-bringing-life-threatening-flash
 **The Best, Easiest Dinner Party of Your Life**\
 `Spicy cucumbers, peppery sea scallops and coconut tapioca fill out this David Tanis menu.`\
 https://nytimes.com/2024/09/27/dining/easy-dinner-party-ideas.html
-
-**'I don’t want any special treatment': Marc-Andre Fleury on his NHL tour during 21st and final season**\
-`Fleury says he doesn’t want this to be some kind of victory lap around the NHL where everywhere he goes he’s showered with tributes.`\
-https://nytimes.com/athletic/5799604/2024/09/27/marc-andre-fleury-wild-final-season/
-
-**Olympic gymnast Hezly Rivera commits to LSU**\
-`Rivera took official visits to Florida, Oklahoma and LSU before committing to the reigning national champion Tigers.`\
-https://nytimes.com/athletic/5799544/2024/09/27/hezly-rivera-lsu-gymnastics/
 
