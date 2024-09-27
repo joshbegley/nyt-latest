@@ -1,3 +1,11 @@
+**Barcelona fans banned from next Champions League away game**\
+`Barcelona have been banned from selling tickets to the club&#8217;s away fans for one game by UEFA following racist supporter behaviour during their Champions League fixture at  Monaco earlier this month.`\
+https://nytimes.com/athletic/5798813/2024/09/27/barcelona-racism-champions-league-ban/
+
+**Is Boston's Triston Casas the most interesting player in all of baseball?**\
+`Casas is different, and unapologetically so. He embraces routines from shirtless yoga to eye-patch drills in the pursuit of perfection. `\
+https://nytimes.com/athletic/5798196/2024/09/27/triston-casas-red-sox-most-interesting/
+
 **Here are the latest developments.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/here-are-the-latest-developments
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5798777/2024/09/27/cowboys-dak-prescott-ceedee-lamb
 **In Lebanon’s Bekaa Valley, Days of Destruction After Months of Calm**\
 `The Bekaa Valley, a Hezbollah bastion in eastern Lebanon, had mostly been spared over 11 months of war. But The New York Times saw widespread devastation there after intense Israeli airstrikes this week.`\
 https://nytimes.com/2024/09/27/world/middleeast/bekaa-valley-lebanon-hezbollah.html
-
-**MLB's playoff hopefuls that are poised to take advantage of the game's current trends**\
-`Teams with pitchers who feature multiple fastballs, and are going away from traditional batting practice, could be rewarded in October.`\
-https://nytimes.com/athletic/5763820/2024/09/27/mlb-postseason-baseball-trends/
-
-**Dehner Jr.: Somehow, Bengals manage to put season in balance in Week 4**\
-`What may have been considered an easy win before the season now is a crucial game against Carolina and Andy Dalton.`\
-https://nytimes.com/athletic/5798040/2024/09/27/bengals-panthers-prediction-week-4/
 

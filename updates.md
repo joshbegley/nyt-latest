@@ -1,3 +1,11 @@
+**Barcelona fans banned from next Champions League away game**\
+`Barcelona have been banned from selling tickets to the club&#8217;s away fans for one game by UEFA following racist supporter behaviour during their Champions League fixture at  Monaco earlier this month.`\
+https://nytimes.com/athletic/5798813/2024/09/27/barcelona-racism-champions-league-ban/
+
+**Is Boston's Triston Casas the most interesting player in all of baseball?**\
+`Casas is different, and unapologetically so. He embraces routines from shirtless yoga to eye-patch drills in the pursuit of perfection. `\
+https://nytimes.com/athletic/5798196/2024/09/27/triston-casas-red-sox-most-interesting/
+
 **Here are the latest developments.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/here-are-the-latest-developments
