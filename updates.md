@@ -1,3 +1,7 @@
+**Yordan Alvarez is 'getting better quickly.' Will it be in time for the Wild Card Series?**\
+`Astros manager Joe Espada said that the slugger will need to "check some boxes" before he's cleared to play.`\
+https://nytimes.com/athletic/5800424/2024/09/27/astros-yordan-alvarez-injury-wild-card-series/
+
 **Justin Herbert questionable vs. Chiefs; Bosa, Slater ruled out**\
 `In addition, edge rusher Joey Bosa (hip) and left tackle Rashawn Slater (pec) have been ruled out for Sunday.`\
 https://nytimes.com/athletic/5800376/2024/09/27/chargers-justin-herbert-injuries/

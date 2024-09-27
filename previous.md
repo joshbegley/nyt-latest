@@ -1,3 +1,7 @@
+**Yordan Alvarez is 'getting better quickly.' Will it be in time for the Wild Card Series?**\
+`Astros manager Joe Espada said that the slugger will need to "check some boxes" before he's cleared to play.`\
+https://nytimes.com/athletic/5800424/2024/09/27/astros-yordan-alvarez-injury-wild-card-series/
+
 **Justin Herbert questionable vs. Chiefs; Bosa, Slater ruled out**\
 `In addition, edge rusher Joey Bosa (hip) and left tackle Rashawn Slater (pec) have been ruled out for Sunday.`\
 https://nytimes.com/athletic/5800376/2024/09/27/chargers-justin-herbert-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5786017/2024/09/27/juan-soto-free-agency-hal-steinb
 **Israel struck after learning of a Hezbollah leadership meeting, officials say.**\
 `By Ronen Bergman`\
 https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/israel-struck-after-learning-of-a-hezbollah-leadership-meeting-officials-say
-
-**Death Penalty May Be Off Table for 9/11 Suspect No Matter How Case Unfolds**\
-`The government is trying to cancel a plea deal for Khalid Shaikh Mohammed, accused of masterminding the attacks. But a clause in the agreement may stop prosecutors from reinstating a capital case.`\
-https://nytimes.com/2024/09/27/us/politics/sept-11-death-penalty-ksm.html
 
