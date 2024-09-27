@@ -1,3 +1,11 @@
+**Darren Eales to step down as Newcastle CEO for health reasons**\
+`Darren Eales has been diagnosed with a chronic form of blood cancer and will step down as Newcastle United&#8217;s chief executive (CEO).`\
+https://nytimes.com/athletic/5798980/2024/09/27/darren-eales-newcastle-step-down/
+
+**Monica Puig, from tennis Olympic gold to Ironman**\
+`Injury forced the Olympic gold medallist to retire from tennis at 28. Now she has completed one of the toughest endurance races there is.`\
+https://nytimes.com/athletic/5794382/2024/09/27/monica-puig-tennis-ironman/
+
 **Alisson available for Wolves after return from injury**\
 `Alisson is set to return to the Liverpool side for Saturday&#8217;s Premier League trip to Wolverhampton Wanderers.`\
 https://nytimes.com/athletic/5798964/2024/09/27/alisson-liverpool-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5797214/2024/09/27/bruins-preseason-depth-chart-mar
 **Watch a Chaotic Rehearsal in ‘Saturday Night’**\
 `The director Jason Reitman narrates a sequence from his film about the production of the first episode of “Saturday Night Live.” Spoiler alert, making the show wasn’t easy.`\
 https://nytimes.com/2024/09/27/movies/saturday-night-clip.html
-
-**‘Saturday Night’ | Anatomy of a Scene**\
-`The director Jason Reitman narrates a sequence from his film about the making of the first episode of “Saturday Night Live.”`\
-https://nytimes.com/video/movies/100000009723351/saturday-night-scene.html
-
-**Wolves chairman Shi claims club in talks over minority investment**\
-`Wolverhampton Wanderers chairman Jeff Shi has claimed the club are in talks with potential minority investors.`\
-https://nytimes.com/athletic/5798869/2024/09/27/wolves-minority-investment-jeff-shi/
 
