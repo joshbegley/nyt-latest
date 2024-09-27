@@ -1,6 +1,6 @@
 **Iran’s supreme leader holds an emergency meeting after Israel targets Hezbollah’s chief in an attack.**\
 `By Farnaz Fassihi`\
-https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/irans-supreme-leader-holds-an-emergency-meeting-after-israel-targets-hezbollahs-chief-in-an-attack
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/iran-emergency-meeting-hezbollah
 
 **Prime Tire: The Athletic's F1 writers reflect on Daniel Ricciardo's legacy**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter. `\
