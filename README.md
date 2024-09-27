@@ -1,3 +1,7 @@
+**Titan Sub Tragedy: Coast Guard Hearings Reveal New Insights**\
+`Contrary to public reports last year, the passengers probably had no idea that the vessel was about to implode.`\
+https://nytimes.com/2024/09/27/science/titan-submersible-oceangate-hearing.html
+
 **Trump Threatens to Prosecute Google for Showing ‘Bad Stories’ About Him**\
 `The former president said on social media that he would “request their prosecution, at the maximum levels” if he was elected to a second term.`\
 https://nytimes.com/2024/09/27/us/politics/trump-google-prosecute.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/podcasts/transcript-ezra-klein-interviews-emily-j
 **Biden Officials Stave Off Sticker Shock on Medicare Drug Premiums**\
 `Federal regulators spent billions of dollars to avoid a spike in costs for older Americans that could have been politically damaging to the presidential campaign of Vice President Kamala Harris.`\
 https://nytimes.com/2024/09/27/health/medicare-drug-prices-harris-biden.html
-
-**Agents Seize Phone From Adams’s Top Adviser and Subpoena Her**\
-`Ingrid Lewis-Martin has been close to Mayor Eric Adams for decades, and has cultivated a reputation as a ruthless political actor.`\
-https://nytimes.com/2024/09/27/nyregion/ingrid-lewis-martin-phone-searched-adams.html
 
