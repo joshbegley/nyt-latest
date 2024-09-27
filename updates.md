@@ -1,3 +1,7 @@
+**‘Saturday Night’ | Anatomy of a Scene**\
+`The director Jason Reitman narrates a sequence from his film about the making of the first episode of “Saturday Night Live.”`\
+https://nytimes.com/video/movies/100000009723351/saturday-night-scene.html
+
 **Wolves chairman Shi claims club in talks over minority investment**\
 `Wolverhampton Wanderers chairman Jeff Shi has claimed the club are in talks with potential minority investors.`\
 https://nytimes.com/athletic/5798869/2024/09/27/wolves-minority-investment-jeff-shi/
