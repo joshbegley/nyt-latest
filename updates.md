@@ -1,3 +1,15 @@
+**Biden, Eyeing His Legacy, Signs Executive Orders on Gun Safety**\
+`The president used a poignant White House ceremony to pass the baton to Vice President Kamala Harris, who has made gun safety an issue in her campaign.`\
+https://nytimes.com/2024/09/26/us/politics/biden-executive-orders-ghost-guns-school-safety.html
+
+**More than 500 sensors floating in the ocean help shape hurricane forecasts.**\
+`By Austyn Gaffney`\
+https://nytimes.com/live/2024/09/26/weather/tropical-storm-helene-hurricane/sensors-ocean-hurricanes
+
+**McDonald’s, Pelosi, Debate Moderators: Trump Speech on Border Veers Off Course**\
+`After reading from prepared remarks on immigration for 10 minutes, Donald J. Trump used the rest of a news conference to talk about everything else on his mind.`\
+https://nytimes.com/2024/09/26/us/politics/trump-speech-harris-border.html
+
 **Wander Franco ordered to stand trial in sexual abuse case**\
 `Franco has not appeared in an MLB game since last year, and has since been placed on the restricted list. `\
 https://nytimes.com/athletic/5797534/2024/09/26/wander-franco-court-developments/
