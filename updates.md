@@ -1,3 +1,7 @@
+**Good news: Cowboys stop the run and likely dodge significant injuries to Parsons, Lawrence**\
+`Micah Parsons and DeMarcus Lawrence left with injuries Thursday, but both sounded optimistic they would be ready to play at Pittsburgh.`\
+https://nytimes.com/athletic/5798780/2024/09/27/cowboys-defense-micah-parsons-demarcus-lawrence-injury-update/
+
 **Helene Roars on After Lashing Florida, and the Charges Facing Eric Adams**\
 `Plus, Batman joins the Hollywood Walk of Fame.`\
 https://nytimes.com/2024/09/27/podcasts/hurricane-helene-eric-adams.html
