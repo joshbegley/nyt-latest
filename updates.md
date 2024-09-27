@@ -1,3 +1,7 @@
+**A Town Near Tallahassee Starts Picking Up the Pieces From Helene**\
+`Roofs tore off and windows blew in. Trees were down or snapped like matchsticks on a road into town.`\
+https://nytimes.com/2024/09/27/weather/helene-perry-florida-damage.html
+
 **New York Film Festival Pitches Its Ever-Expanding, Global Tent**\
 `Standout selections include “Nickel Boys,” the Mumbai-set “All We Imagine as Light” and the documentary “Dahomey,” about African repatriation.`\
 https://nytimes.com/2024/09/27/movies/new-york-film-festival-highlights.html

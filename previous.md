@@ -1,3 +1,7 @@
+**A Town Near Tallahassee Starts Picking Up the Pieces From Helene**\
+`Roofs tore off and windows blew in. Trees were down or snapped like matchsticks on a road into town.`\
+https://nytimes.com/2024/09/27/weather/helene-perry-florida-damage.html
+
 **New York Film Festival Pitches Its Ever-Expanding, Global Tent**\
 `Standout selections include “Nickel Boys,” the Mumbai-set “All We Imagine as Light” and the documentary “Dahomey,” about African repatriation.`\
 https://nytimes.com/2024/09/27/movies/new-york-film-festival-highlights.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/25/opinion/thepoint/maggie-smith-death
 **Troter: WNBA and Cathy Engelbert face credibility issue regarding player harassment**\
 `With its players the targets of hate on social media and in arenas, the league has struggled to handle a problem that continues to worsen.`\
 https://nytimes.com/athletic/5797225/2024/09/27/wnba-caitlin-clark-cathy-engelbert-player-treatment-fans/
-
-**D.A. Employee Threatened to Blow Up Queens Migrant Shelter, Police Say**\
-`The employee, Derek Klever, told a witness that he was fed up with migrants partying at the shelter across from his apartment, according to court documents. “This is a war,” he said.`\
-https://nytimes.com/2024/09/27/nyregion/queens-da-employee-explosives-migrant-shelter.html
 
