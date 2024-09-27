@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr. Won’t Be on New York Ballot, Supreme Court Rules**\
+`The candidate had asked the justices to intervene after a state judge found that he had used an improper home address in election paperwork.`\
+https://nytimes.com/2024/09/27/us/politics/robert-f-kennedy-jr-new-york-ballot-supreme-court.html
+
 **NHL waiver tracker: Best players on the wire throughout preseason**\
 `Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
 https://nytimes.com/athletic/5799672/2024/09/27/nhl-waivers-tracker-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/opinion/tiktok-frank-mccourt.html
 **Special Counsel Proposes Making Public More Evidence From Trump Election Case**\
 `Jack Smith is seeking to disclose quotations from secret grand jury testimony and interviews, but is proposing to shield witness identities.`\
 https://nytimes.com/2024/09/27/us/politics/evidence-trump-election-interference.html
-
-**Parsons suffers high-ankle sprain, Lawrence out with foot injury**\
-`Parsons was carted off the field with just 3:30 remaining in Thursday's game at MetLife Stadium.`\
-https://nytimes.com/athletic/5799709/2024/09/27/cowboys-micah-parsons-demarcus-lawrence-injury/
 
