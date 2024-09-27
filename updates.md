@@ -1,3 +1,11 @@
+**Fort Myers Beach, Devastated by Hurricane Ian, Floods Again**\
+`Even though Hurricane Helene made landfall hundreds of miles to the north, its storm surge inundated roads and gushed into buildings.`\
+https://nytimes.com/2024/09/27/weather/fort-myers-beach-devastated-by-hurricane-ian-floods-again.html
+
+**Extreme Weather Is Taxing Utilities More Often. Can A.I. Help?**\
+`From hurricanes to wildfires, a new generation of technologies could help utilities better plan for the risk of extreme weather to their electric grid.`\
+https://nytimes.com/2024/09/27/climate/power-outages-utilities-ai.html
+
 **Democrats See a Chance to Beat Trump on Judicial Confirmations**\
 `They hope to use the time after the election to approve judges, but Senator Durbin says their aggressive efforts have already produced a remarkable demographic shift on the federal courts.`\
 https://nytimes.com/2024/09/27/us/politics/trump-democrats-judges.html
