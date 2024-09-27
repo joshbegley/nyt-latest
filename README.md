@@ -1,3 +1,7 @@
+**'Incredibly difficult': These Nuggets know another title run won't be easy**\
+`While the championship core remains, this Denver team isn't quite the same one that stormed through the league in 2023.`\
+https://nytimes.com/athletic/5798035/2024/09/26/denver-nuggets-media-day-jokic-murray-westbrook/
+
 **City Investigators Seize Cash From New York Sheriff’s Office**\
 `The Department of Investigation is looking into whether Sheriff Anthony Miranda’s agency improperly took money from cannabis stores that it raided, closed and padlocked.`\
 https://nytimes.com/2024/09/26/nyregion/new-york-city-sheriffs-office-cash-seized.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5798135/2024/09/26/chicago-white-sox-angels-record/
 **Trump’s Huge Civil Fraud Penalty Draws Skepticism From Appeals Court**\
 `A five-judge New York appellate panel questioned both the size and validity of a judgment of more than $450 million against Donald J. Trump at a hearing.`\
 https://nytimes.com/2024/09/26/nyregion/trump-civil-fraud-penalty-appeals-court.html
-
-**Corrections: Sept. 27, 2024**\
-`Corrections that appeared in print on Friday, Sept. 27, 2024.`\
-https://nytimes.com/2024/09/26/pageoneplus/corrections-sept-27-2024.html
 
