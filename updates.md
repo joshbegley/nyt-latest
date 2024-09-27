@@ -1,3 +1,11 @@
+**Westminster Abbey’s Brontë Plaque Had a Typo for 85 Years. It’s Fixed Now.**\
+`Punctuation delayed, but not denied: A memorial to Charlotte, Emily and Anne Brontë at Poets’ Corner in the celebrated London church finally gets its accent marks.`\
+https://nytimes.com/2024/09/27/world/europe/westminster-abbey-bronte-plaque-accent-marks.html
+
+**How Google Defended Itself in the Ad Tech Antitrust Trial**\
+`The tech giant, which is wrapping up its arguments in the federal monopoly trial, simply says it has the best product.`\
+https://nytimes.com/2024/09/27/technology/google-antitrust-case-lawsuit.html
+
 **UFC reaches $375 million settlement in antitrust lawsuit**\
 `UFC reached a settlement with a group of former fighters in a class action lawsuit alleging the promotion suppressed their wages.`\
 https://nytimes.com/athletic/5799292/2024/09/27/ufc-settlement-antitrust-lawsuit/
