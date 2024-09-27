@@ -1,3 +1,15 @@
+**Along Helene’s destructive path, fewer homeowners have flood insurance.**\
+`By Christopher Flavelle`\
+https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/along-helenes-destructive-path-fewer-homeowners-have-flood-insurance
+
+**On Trip to U.S., Zelensky Finds Ukraine’s Fortunes Tied to the Election**\
+`A whirlwind week of top-level meetings failed to alleviate concerns in Kyiv that a Trump presidency could lead to a dramatic shift in American policy.`\
+https://nytimes.com/2024/09/27/world/europe/zelensky-ukraine-us-election.html
+
+**Canucks 2024-25 breakout tiers: Which players are most likely to take a step?**\
+`Breakout performances will define this upcoming Canucks season. These are the players we're watching for.`\
+https://nytimes.com/athletic/5795625/2024/09/27/vancouver-canucks-breakout-players/
+
 **The Cure’s First Fresh Music in 16 Years, and 9 More New Songs**\
 `Hear tracks by Lady Gaga, Rosalía, Stevie Nicks and others.`\
 https://nytimes.com/2024/09/27/arts/music/playlist-cure-lady-gaga-stevie-nicks.html

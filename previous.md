@@ -1,3 +1,15 @@
+**Along Helene’s destructive path, fewer homeowners have flood insurance.**\
+`By Christopher Flavelle`\
+https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/along-helenes-destructive-path-fewer-homeowners-have-flood-insurance
+
+**On Trip to U.S., Zelensky Finds Ukraine’s Fortunes Tied to the Election**\
+`A whirlwind week of top-level meetings failed to alleviate concerns in Kyiv that a Trump presidency could lead to a dramatic shift in American policy.`\
+https://nytimes.com/2024/09/27/world/europe/zelensky-ukraine-us-election.html
+
+**Canucks 2024-25 breakout tiers: Which players are most likely to take a step?**\
+`Breakout performances will define this upcoming Canucks season. These are the players we're watching for.`\
+https://nytimes.com/athletic/5795625/2024/09/27/vancouver-canucks-breakout-players/
+
 **The Cure’s First Fresh Music in 16 Years, and 9 More New Songs**\
 `Hear tracks by Lady Gaga, Rosalía, Stevie Nicks and others.`\
 https://nytimes.com/2024/09/27/arts/music/playlist-cure-lady-gaga-stevie-nicks.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/27/theater/giant-royal-court-roald-dahl-antisemitism
 **Adams Lawyer Alex Spiro Has a Long Roster of Celebrity Clients**\
 `The former prosecutor represented the owner of the New England Patriots and is now Elon Musk’s personal lawyer.`\
 https://nytimes.com/2024/09/27/nyregion/alex-spiro-eric-adams-lawyer.html
-
-**Possible Cluster of Human Bird-Flu Infections Expands in Missouri**\
-`Seven people in contact with a patient hospitalized with bird flu also developed symptoms, the C.D.C. reported. Some are undergoing further tests.`\
-https://nytimes.com/2024/09/27/health/bird-flu-cluster-missouri.html
-
-**Fantasy football flex fliers: Roschon Johnson, Michael Wilson and more deep sleepers to consider in Week 4**\
-`Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 4 free agency.`\
-https://nytimes.com/athletic/5799524/2024/09/27/fantasy-football-flex-fliers-roschon-johnson-michael-wilson-and-more-deep-sleepers-to-consider-in-week-4/
-
-**Maggie Smith Brought Sharp-Tongued Wit Stateside**\
-`Americans are experts in the comedy of bluster, as many of our late night hosts can attest. We’re less practiced in precision.`\
-https://nytimes.com/2024/09/25/opinion/maggie-smith-death.html
 
