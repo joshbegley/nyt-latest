@@ -1,4 +1,4 @@
-**What to Expect From Helene as it Moves North**\
+**What to Expect From Helene as It Moves North**\
 `After landfall, the storm will move quickly into Georgia and the Carolinas, where it promises to bring even more rain.`\
 https://nytimes.com/2024/09/26/weather/helene-forecast-friday-georgia-north-carolina.html
 
