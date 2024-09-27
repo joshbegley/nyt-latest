@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5799544/2024/09/27/hezly-rivera-lsu-gymnastics/
 https://nytimes.com/2024/09/27/weather/helene-damage-stpete-beach-florida.html
 
 **In Less Than 20 Minutes, Eric Adams Formally Enters Legal Limbo**\
-`During his arraignment, New York’s typically lively mayor was stoic and stone faced. Months of legal entanglements lie ahead.`\
+`During his arraignment, New York’s typically lively mayor was stoic and stone-faced. Months of legal entanglements lie ahead.`\
 https://nytimes.com/2024/09/27/nyregion/eric-adams-court-appearance.html
 
 **An Indicted Mayor and an Indicted Former President, and the Parallels Between**\
