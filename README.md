@@ -1,3 +1,11 @@
+**In Less Than 20 Minutes, Eric Adams Formally Enters Legal Limbo**\
+`During his arraignment, New York’s typically lively mayor was stoic and stone faced. Months of legal entanglements lie ahead.`\
+https://nytimes.com/2024/09/27/nyregion/eric-adams-court-appearance.html
+
+**An Indicted Mayor and an Indicted Former President, and the Parallels Between**\
+`Eric Adams and Donald Trump, two political shape-shifters, have both insisted they’re victims of partisan prosecutions.`\
+https://nytimes.com/2024/09/27/us/politics/trump-adams-indictments-analysis.html
+
 **Along Helene’s destructive path, fewer homeowners have flood insurance.**\
 `By Christopher Flavelle`\
 https://nytimes.com/live/2024/09/27/weather/hurricane-helene-florida/along-helenes-destructive-path-fewer-homeowners-have-flood-insurance
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/27/arts/richard-pettibone-dead.html
 **U.S. Charges Iranians With Hacking Trump Campaign**\
 `The indictment highlighted the heightened threat posed by hostile international actors — Iran, Russia and China chief among them — who hope to disrupt the U.S. election.`\
 https://nytimes.com/2024/09/27/us/politics/iran-hacking-trump-campaign.html
-
-**Review: Roald Dahl Is Antisemitic, but Not a Cartoon Villain, in ‘Giant’**\
-`A new play in London portrays the beloved children’s author as a rounded character, while making no apology for his bigotry.`\
-https://nytimes.com/2024/09/27/theater/giant-royal-court-roald-dahl-antisemitism.html
-
-**Adams Lawyer Alex Spiro Has a Long Roster of Celebrity Clients**\
-`The former prosecutor represented the owner of the New England Patriots and is now Elon Musk’s personal lawyer.`\
-https://nytimes.com/2024/09/27/nyregion/alex-spiro-eric-adams-lawyer.html
 
