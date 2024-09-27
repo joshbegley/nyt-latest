@@ -1,3 +1,7 @@
+**Los Angeles Clippers, Terance Mann agree to 3-year extension**\
+`Mann, 27, has played all five years of his career with the Clippers and will now be under contract through the 2027-28 season.`\
+https://nytimes.com/athletic/5800325/2024/09/27/clippers-terance-mann-contract-extension/
+
 **Hurricane Helene Leaves Huge Swaths of Damage in Its Wake**\
 `More than 40 people were reported dead in four states as the huge storm spawned flash floods and landslides on its way north after devastating parts of Florida’s Gulf Coast.`\
 https://nytimes.com/2024/09/27/us/hurricane-helene-damage-florida-north-carolina.html

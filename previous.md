@@ -1,3 +1,7 @@
+**Los Angeles Clippers, Terance Mann agree to 3-year extension**\
+`Mann, 27, has played all five years of his career with the Clippers and will now be under contract through the 2027-28 season.`\
+https://nytimes.com/athletic/5800325/2024/09/27/clippers-terance-mann-contract-extension/
+
 **U.S.-Led Coalition in Iraq to Wind Down Its Mission**\
 `The United States has 2,500 troops in Iraq who served as a bulwark against attacks by an insurgent Islamic State.`\
 https://nytimes.com/2024/09/27/world/middleeast/us-coalition-iraq-isis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800206/2024/09/27/emi-martinez-suspension-argentin
 **‘That’s a Lot of Diamonds’: Trump Lends Name to $100,000 Watch**\
 `A line of luxury watches was promoted by former President Donald J. Trump for its gold and its price tag. Watch experts are less enthusiastic about the quality.`\
 https://nytimes.com/2024/09/27/style/trump-watches.html
-
-**Samuel, Kittle trending toward playing vs. Pats; McCaffrey ramping up**\
-`Samuel (calf) practiced Thursday and Friday, Kittle (hamstring) has no injury designation.`\
-https://nytimes.com/athletic/5799687/2024/09/27/49ers-samuel-kittle-mcccaffrey-injuries/
 
