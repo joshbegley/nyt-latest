@@ -1,3 +1,7 @@
+**Helene Brings Record Storm Surge to Florida**\
+`Waters rose rapidly along Florida’s Gulf Coast after Helene made landfall, flooding homes and forcing people to flee.`\
+https://nytimes.com/2024/09/27/weather/storm-surge-record-helene-florida.html
+
 **Why the Chiefs defense has struggled against tight ends**\
 `No team in the league this season has allowed more receptions and yards to tight ends than the Chiefs.`\
 https://nytimes.com/athletic/5797855/2024/09/27/kansas-city-chiefs-defense-tight-ends/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5796749/2024/09/27/maple-leafs-nick-robertson-trade
 **Why rising talent Riley Moss is ready for spotlight in Broncos' secondary**\
 `The second-year Iowa product was the highest-rated cornerback in Week 3. Next up: a chess match with Aaron Rodgers.`\
 https://nytimes.com/athletic/5797318/2024/09/27/riley-moss-denver-broncos-breakout-start/
-
-**The Criminal Indictment of New York City’s Mayor**\
-`Eric Adams accepted free airline tickets, lavish overseas accommodation and illegal foreign campaign donations, prosecutors said.`\
-https://nytimes.com/2024/09/27/podcasts/the-daily/new-york-mayor-indicted.html
 
