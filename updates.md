@@ -1,3 +1,7 @@
+**Newsom Vetoes Bill Requiring Cars to Warn Speeding Drivers**\
+`The legislation would have made California the first state in the nation to require intelligent speed assistance technology in vehicles.`\
+https://nytimes.com/2024/09/28/business/california-speeding-car-alert.html
+
 **Avery Johnson responds after rough week, giving K-State renewed hope in Big 12 race**\
 `If the QB can build off of what he did against Oklahoma State, Kansas State has the chance to live up to its lofty expectations after all.`\
 https://nytimes.com/athletic/5801877/2024/09/28/avery-johnson-kansas-state-oklahoma-state-big-12/
