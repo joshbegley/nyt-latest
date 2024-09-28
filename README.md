@@ -1,3 +1,7 @@
+**Israel’s Military Issues More Evacuation Warnings in Southern Beirut**\
+`The military struck targets throughout the night that it said were tied to Hezbollah.`\
+https://nytimes.com/2024/09/27/world/middleeast/evacuations-beirut-strikes-israel.html
+
 **Candidate for North Carolina Governor Treated for Burns, Campaign Says**\
 `Lt. Gov. Mark Robinson, the embattled Republican nominee for governor of North Carolina, was treated after attending a campaign event in Mount Airy, N.C.`\
 https://nytimes.com/2024/09/27/us/politics/mark-robinson-north-carolina-hospitalized-burns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/us/politics/trump-michigan-immigration-economy.ht
 **Matt Chapman wins Willie Mac Award: 'I just feel like I'm being myself'**\
 `"I think people understand that I really care and I really want to win." Chapman won the coveted award in his first season with the team.`\
 https://nytimes.com/athletic/5800601/2024/09/27/matt-chapman-sf-giants-willie-mac-award/
-
-**Harris, at the Border, Shows Democrats’ Hard-Line Evolution on Immigration**\
-`Vowing to carry on President Biden’s crackdown on asylum and to impose order on the southern border, the vice president demonstrated how much the politics of immigration have changed.`\
-https://nytimes.com/2024/09/27/us/politics/harris-border-immigration-arizona.html
 
