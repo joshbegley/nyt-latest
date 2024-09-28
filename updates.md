@@ -1,3 +1,7 @@
+**Who Was Hassan Nasrallah, Leader of Hezbollah?**\
+`The leader of the militant group Hezbollah, Hassan Nasrallah, was killed by an Israeli airstrike in Lebanon on Friday. Neil MacFarquhar, a reporter for The New York Times who met and interviewed Nasrallah in 2002, explains who he was and the significance of his death.`\
+https://nytimes.com/video/world/middleeast/100000009728018/who-was-hassan-nasrallah-leader-of-hezbollah.html
+
 **What I’m seeing from the Wild: Opening-night lineup starts to become clearer**\
 `With training camp 10 days in and the season opener fast approaching, mass cuts are on the horizon for the Wild.`\
 https://nytimes.com/athletic/5801820/2024/09/28/wild-opening-night-lineup-roster-cuts/
