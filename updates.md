@@ -1,3 +1,11 @@
+**Viewfinders Make Fall Foliage Pop for the Colorblind in Virginia**\
+`Specialized viewfinders installed across state parks let visitors with red-green colorblindness see more distinct colors.`\
+https://nytimes.com/2024/09/28/us/colorblind-viewfinder-leaf-peeping-virginia.html
+
+**Harris’s Historic Run for Office Could Outpace Hollywood’s Oval Offices**\
+`Black and Asian American women have rarely, if at all, played the U.S. commander in chief in television and film. As Kamala Harris makes her presidential bid, Hollywood lags behind.`\
+https://nytimes.com/2024/09/28/arts/kamala-harris-hollywood-presidents.html
+
 **Illinois at Penn State picks, odds, how to watch: PSU heavily favored in top-25 showdown**\
 `Two undefeated top-20 Big Ten teams meet at Penn State when heavy underdog Illinois visits Happy Valley.`\
 https://nytimes.com/athletic/5799560/2024/09/28/illinois-penn-state-picks-odds-predictions-how-to-watch/

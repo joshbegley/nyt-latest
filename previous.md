@@ -1,3 +1,11 @@
+**Viewfinders Make Fall Foliage Pop for the Colorblind in Virginia**\
+`Specialized viewfinders installed across state parks let visitors with red-green colorblindness see more distinct colors.`\
+https://nytimes.com/2024/09/28/us/colorblind-viewfinder-leaf-peeping-virginia.html
+
+**Harris’s Historic Run for Office Could Outpace Hollywood’s Oval Offices**\
+`Black and Asian American women have rarely, if at all, played the U.S. commander in chief in television and film. As Kamala Harris makes her presidential bid, Hollywood lags behind.`\
+https://nytimes.com/2024/09/28/arts/kamala-harris-hollywood-presidents.html
+
 **Illinois at Penn State picks, odds, how to watch: PSU heavily favored in top-25 showdown**\
 `Two undefeated top-20 Big Ten teams meet at Penn State when heavy underdog Illinois visits Happy Valley.`\
 https://nytimes.com/athletic/5799560/2024/09/28/illinois-penn-state-picks-odds-predictions-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5799948/2024/09/28/nfl-week-4-vikings-packers-justi
 **As Florida Storms Worsen, Some in Tampa Bay Wonder: Is Living There Worth It?**\
 `Residents of the booming region are confronting a new reality: Even when storms make landfall far away, their impact is being felt.`\
 https://nytimes.com/2024/09/28/us/hurricane-helene-tampa-bay-florida-worries.html
-
-**Could We See a 270-268 Election? The Polls Are Tighter Than Ever.**\
-`The latest Times/Siena polls show Harris leading narrowly in Michigan and Wisconsin, with Sherrod Brown ahead in Ohio.`\
-https://nytimes.com/2024/09/28/upshot/polls-harris-trump-ohio-michigan-wisconsin.html
-
-**‘We’re Still Living in Fear’: Escaping the Attacks in Lebanon**\
-`Tens of thousands of people have been displaced in Lebanon. Khaled Hussein, 20, fled Syria as a child. He describes the bombardment that forced his family to flee again.`\
-https://nytimes.com/video/world/middleeast/100000009726536/israel-lebanon-strikes-displacement.html
 
