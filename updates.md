@@ -1,5 +1,9 @@
 **Travis Hunter strikes a Heisman pose in Colorado’s blowout win at UCF**\
 `On Saturday, Hunter caught a touchdown pass and intercepted a pass in the same game for the second time in the last three weeks.`\
+https://nytimes.com/athletic/5801974/2024/09/28/travis-hunter-colorado-heisman-deion-sanders/
+
+**Travis Hunter strikes a Heisman pose in Colorado’s blowout win at UCF**\
+`On Saturday, Hunter caught a touchdown pass and intercepted a pass in the same game for the second time in the last three weeks.`\
 https://nytimes.com/athletic/5801974/2024/09/28/travis-hunter-colorado-hesiman-deion-sanders/
 
 **More Than 400 Roads Closed in North Carolina After Damage From Helene**\
