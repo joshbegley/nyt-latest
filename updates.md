@@ -1,3 +1,7 @@
+**White Sox Lose 121 Games in a Season, Making History**\
+`In its weird, shambolic spectacle, the record-setting game seemed to encapsulate the team’s entire dreadful season.`\
+https://nytimes.com/2024/09/28/us/white-sox-121st-loss.html
+
 **For families who fled the Beirut area targeted in the strikes, ‘nobody has any idea what to do.’**\
 `By Christina Goldbaum, Hwaida Saad and Vivian Yee`\
 https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/for-families-who-fled-the-beirut-area-targeted-in-the-strikes-nobody-has-any-idea-what-to-do
