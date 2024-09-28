@@ -1,3 +1,7 @@
+**Mets look sloppy while surrendering grand slam, six stolen bases in loss to Brewers**\
+`The Mets will turn to Jose Quintana on Saturday after Sean Manaea’s dud.`\
+https://nytimes.com/athletic/5800849/2024/09/28/mets-brewers-wild-card-race/
+
 **Tennessee Dam Near Failure After Heavy Rain From Helene**\
 `The authorities were evacuating residents living downstream from the Nolichucky Dam, warning it was likely to fail and cause deadly flash flooding after Helene caused record water levels in the area.`\
 https://nytimes.com/2024/09/28/weather/helene-tennessee-nolichucky-dam-evacuation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799875/2024/09/28/arsenal-manchester-city-guardiol
 **English football's 3pm kick-off is dying - does anyone care?**\
 `The once hallowed Saturday kick-off time is becoming marginalised by expanding TV coverage, creating angst - and opportunity`\
 https://nytimes.com/athletic/5798921/2024/09/28/football-3pm-kick-off-decline/
-
-**13 insights fantasy football managers need to know ahead of Week 4**\
-`According to Theo Gremminger, Jayden Daniels could challenge for top fantasy QB honors, as he shares insights on 13 players ahead of Week 4.`\
-https://nytimes.com/athletic/5799628/2024/09/28/13-insights-fantasy-football-managers-need-to-know-ahead-of-week-4-2/
 

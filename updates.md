@@ -1,3 +1,7 @@
+**Mets look sloppy while surrendering grand slam, six stolen bases in loss to Brewers**\
+`The Mets will turn to Jose Quintana on Saturday after Sean Manaea’s dud.`\
+https://nytimes.com/athletic/5800849/2024/09/28/mets-brewers-wild-card-race/
+
 **Tennessee Dam Near Failure After Heavy Rain From Helene**\
 `The authorities were evacuating residents living downstream from the Nolichucky Dam, warning it was likely to fail and cause deadly flash flooding after Helene caused record water levels in the area.`\
 https://nytimes.com/2024/09/28/weather/helene-tennessee-nolichucky-dam-evacuation.html
