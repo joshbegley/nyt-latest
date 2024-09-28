@@ -1,3 +1,7 @@
+**In Atlanta, Flooding From Helene Forced Some Residents to Wade to Safety**\
+`In the Buckhead neighborhood, waters from a swollen creek rushed into low-lying apartments.`\
+https://nytimes.com/2024/09/27/weather/atlanta-flooding-buckhead.html
+
 **What to know about the International Team's dominant Day 2 at the Presidents Cup**\
 `The International side played 57 holes with the lead Friday across all matches. The Americans? One.`\
 https://nytimes.com/athletic/5800400/2024/09/27/presidents-cup-analysis-2024-day-2-international-team/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800325/2024/09/27/clippers-terance-mann-contract-e
 **U.S.-Led Coalition in Iraq to Wind Down Its Mission**\
 `The United States has 2,500 troops in Iraq who served as a bulwark against attacks by a resurgent Islamic State.`\
 https://nytimes.com/2024/09/27/world/middleeast/us-coalition-iraq-isis.html
-
-**Juan Soto meets with Hal Steinbrenner, says Yankees owner ‘really cares for players’**\
-`“It was good to get to know the owner,” Soto said about the July meeting. “Get to see what he’s thinking about me and everything.”`\
-https://nytimes.com/athletic/5786017/2024/09/27/juan-soto-free-agency-hal-steinbrenner-yankees/
 

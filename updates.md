@@ -1,3 +1,7 @@
+**In Atlanta, Flooding From Helene Forced Some Residents to Wade to Safety**\
+`In the Buckhead neighborhood, waters from a swollen creek rushed into low-lying apartments.`\
+https://nytimes.com/2024/09/27/weather/atlanta-flooding-buckhead.html
+
 **What to know about the International Team's dominant Day 2 at the Presidents Cup**\
 `The International side played 57 holes with the lead Friday across all matches. The Americans? One.`\
 https://nytimes.com/athletic/5800400/2024/09/27/presidents-cup-analysis-2024-day-2-international-team/
