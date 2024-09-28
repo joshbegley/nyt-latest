@@ -1,3 +1,7 @@
+**English football's 3pm kick-off is dying - does anyone care?**\
+`The once hallowed Saturday kick-off time is becoming marginalised by expanding TV coverage, creating angst - and opportunity`\
+https://nytimes.com/athletic/5798921/2024/09/28/football-3pm-kick-off-decline/
+
 **13 insights fantasy football managers need to know ahead of Week 4**\
 `According to Theo Gremminger, Jayden Daniels could challenge for top fantasy QB honors, as he shares insights on 13 players ahead of Week 4.`\
 https://nytimes.com/athletic/5799628/2024/09/28/13-insights-fantasy-football-managers-need-to-know-ahead-of-week-4-2/
