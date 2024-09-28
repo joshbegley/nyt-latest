@@ -1,3 +1,7 @@
+**Hassan Nasrallah, Who Led Hezbollah for Decades, Killed at 64**\
+`In 32 years in charge of Hezbollah, Mr. Nasrallah built the Iranian-backed militia into an influential regional force and a potent adversary of Israel.`\
+https://nytimes.com/2024/09/28/world/middleeast/hassan-nasrallah-hezbollah-dead.html
+
 **The Briefing: Newcastle 1-1 Manchester City - How do you cope without Isak or Rodri?**\
 `Newcastle and Manchester City were both without key players for their Premier League clash at St James' Park`\
 https://nytimes.com/athletic/5793725/2024/09/28/newcastle-1-1-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800875/2024/09/28/karl-anthony-towns-knicks-fit/
 **Hollinger: Why Towns-for-Randle trade may turn 'best player' maxim on its head**\
 `Did the Knicks needlessly chase an expensive shiny object? Or did both teams actually do the right thing here?`\
 https://nytimes.com/athletic/5800986/2024/09/28/towns-randle-knicks-timberwolves-trade-analysis/
-
-**Israel Tracked Nasrallah for Months Before Assassination, Officials Say**\
-`The Israeli military decided to strike at the Hezbollah leader because it believed there was only a short window before he disappeared to a different location, three senior Israeli officials said.`\
-https://nytimes.com/2024/09/28/world/middleeast/why-israel-assassinate-nasrallah.html
 

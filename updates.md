@@ -1,3 +1,7 @@
+**Hassan Nasrallah, Who Led Hezbollah for Decades, Killed at 64**\
+`In 32 years in charge of Hezbollah, Mr. Nasrallah built the Iranian-backed militia into an influential regional force and a potent adversary of Israel.`\
+https://nytimes.com/2024/09/28/world/middleeast/hassan-nasrallah-hezbollah-dead.html
+
 **The Briefing: Newcastle 1-1 Manchester City - How do you cope without Isak or Rodri?**\
 `Newcastle and Manchester City were both without key players for their Premier League clash at St James' Park`\
 https://nytimes.com/athletic/5793725/2024/09/28/newcastle-1-1-manchester-city/
