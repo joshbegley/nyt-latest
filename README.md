@@ -1,3 +1,7 @@
+**As waters raged, a North Carolina man recorded a goodbye: ‘I love everybody.’**\
+`By Mark Barrett`\
+https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/north-carolina-flooding-helene-goodbye-recording
+
 **The Ayes Have It**\
 `Joe Deeney’s puzzle passes unanimously.`\
 https://nytimes.com/2024/09/28/crosswords/daily-puzzle-2024-09-29.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/world/middleeast/israel-nasrallah-bunker-buster-b
 **Here Is Who Remains in Hezbollah’s Leadership**\
 `Israel has recently killed several commanders of the Lebanese militia, including its longtime leader, Hassan Nasrallah.`\
 https://nytimes.com/2024/09/28/world/middleeast/hezbollah-leaders-who-remains.html
-
-**Jose Alvarado, Pelicans reach 2-year, $9 million extension**\
-`Alvarado, 26, was set to become a free agent in 2025 and play the upcoming season on a player option just under $2 million.`\
-https://nytimes.com/athletic/5801715/2024/09/28/jose-alvarado-pelicans-extension/
 
