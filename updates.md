@@ -1,3 +1,7 @@
+**Go Ahead, Gild That Lily**\
+`Andy Baraghani’s tahini apple tart sparkles. No, really: The sesame seeds and sugar on the crust give it real luster (and crunch).`\
+https://nytimes.com/2024/09/28/dining/go-ahead-gild-that-lily.html
+
 **Haaland 'knocks' to be assessed - Guardiola**\
 `Pep Guardiola says Erling Haaland will be assessed in the coming days after picking up &#8220;knocks&#8221; during Manchester City&#8217;s 1-1 draw at Newcastle United on Saturday.`\
 https://nytimes.com/athletic/5801211/2024/09/28/erling-haaland-injury-man-city-guardiola/
