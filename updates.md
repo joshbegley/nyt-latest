@@ -1,3 +1,7 @@
+**The Briefing: Newcastle 1-1 Manchester City - How do you cope without Isak or Rodri?**\
+`Newcastle and Manchester City were both without key players for their Premier League clash at St James' Park`\
+https://nytimes.com/athletic/5793725/2024/09/28/newcastle-1-1-manchester-city/
+
 **The Fans Want to Watch Football. Trump and Walz Will Be There, Too.**\
 `Donald Trump and Tim Walz are attending college games on Saturday that will draw plenty of viewers in the swing states of Michigan and Georgia.`\
 https://nytimes.com/2024/09/28/us/politics/trump-walz-football-alabama-michigan.html
