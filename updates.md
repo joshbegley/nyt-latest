@@ -1,3 +1,7 @@
+**Shock and Uncertainty in Beirut After Nasrallah’s Death**\
+`Israel’s killing of Hezbollah’s leader, Hassan Nasrallah, was a stunning escalation of the country’s campaign against the Iran-backed group.`\
+https://nytimes.com/video/world/middleeast/100000009728407/beirut-nasrallah-death-voices.html
+
 **Yankees' Anthony Rizzo has 2 fractured fingers. How will team handle first base?**\
 `Rizzo was hit by a pitch in the hand but might still be available in the postseason: "It's something that is a pain tolerance thing."`\
 https://nytimes.com/athletic/5801698/2024/09/28/yankees-anthony-rizzo-fractured-fingers-injury/

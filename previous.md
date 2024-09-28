@@ -1,3 +1,7 @@
+**Shock and Uncertainty in Beirut After Nasrallah’s Death**\
+`Israel’s killing of Hezbollah’s leader, Hassan Nasrallah, was a stunning escalation of the country’s campaign against the Iran-backed group.`\
+https://nytimes.com/video/world/middleeast/100000009728407/beirut-nasrallah-death-voices.html
+
 **Yankees' Anthony Rizzo has 2 fractured fingers. How will team handle first base?**\
 `Rizzo was hit by a pitch in the hand but might still be available in the postseason: "It's something that is a pain tolerance thing."`\
 https://nytimes.com/athletic/5801698/2024/09/28/yankees-anthony-rizzo-fractured-fingers-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801631/2024/09/28/packers-jordan-love-injury-start
 **Robertson injury concern played down by Liverpool's Slot**\
 `Arne Slot played down concerns over Andy Robertson after the left-back was forced off in the closing stages of Liverpool’s 2-1 win at Wolverhampton Wanderers.`\
 https://nytimes.com/athletic/5801684/2024/09/28/andy-robertson-injury-liverpool-slot/
-
-**Michigan takeaways: Questions piling up after near-meltdown against Minnesota**\
-`Michigan hung on to beat Minnesota 27-24 after giving up 21 fourth-quarter points — and getting help from a penalty on an onside kick.`\
-https://nytimes.com/athletic/5801548/2024/09/28/michigan-minnesota-score-onside-kick-penalty/
 
