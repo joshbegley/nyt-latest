@@ -1,3 +1,7 @@
+**The Twins are eliminated: 5 reasons they collapsed when it counted**\
+`Here are five reasons the Twins will sit at home this October while Cleveland, Kansas City and Detroit earned postseason berths.`\
+https://nytimes.com/athletic/5795252/2024/09/27/minnesota-twins-collapse-reasons/
+
 **Candidate for North Carolina Governor Treated for Burns, Campaign Says**\
 `Lt. Gov. Mark Robinson, the embattled Republican nominee for governor of North Carolina, was treated after attending a campaign event in Mount Airy, N.C.`\
 https://nytimes.com/2024/09/27/us/politics/mark-robinson-north-carolina-hospitalized-burns.html
