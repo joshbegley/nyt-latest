@@ -1,3 +1,11 @@
+**Explained: Two controversial goals, a USMNT striker and a lack of VAR**\
+`There was controversy in Saturday&#8217;s Championship clash between Derby County and Norwich City.`\
+https://nytimes.com/athletic/5801175/2024/09/28/norwich-goals-derby-var-no-championship/
+
+**Isak out of Carabao Cup tie with toe injury - Howe**\
+`Alexander Isak is out of Newcastle United&#8217;s Carabao Cup third-round tie with AFC Wimbledon on Tuesday and will be assessed before next weekend&#8217;s trip to Everton.`\
+https://nytimes.com/athletic/5801220/2024/09/28/alexander-isak-injury-update-newcastle/
+
 **Krawczynski: Why Timberwolves decided now was the time to trade Karl-Anthony Towns**\
 `The timing of the trade was something no one saw coming. The Towns family was "stunned" a league source told The Athletic.`\
 https://nytimes.com/athletic/5800924/2024/09/28/why-timberwolves-trade-karl-anthony-towns/

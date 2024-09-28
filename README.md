@@ -1,3 +1,7 @@
+**Yes, You Can Swim in Louboutins**\
+`Christian Louboutin enlisted the French Olympic synchronized swimming team to introduce his new Miss Z stilettos at Paris Fashion Week.`\
+https://nytimes.com/2024/09/28/style/louboutin-fashion-week-france-olympic-swim-team.html
+
 **Explained: Two controversial goals, a USMNT striker and a lack of VAR**\
 `There was controversy in Saturday&#8217;s Championship clash between Derby County and Norwich City.`\
 https://nytimes.com/athletic/5801175/2024/09/28/norwich-goals-derby-var-no-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5793725/2024/09/28/newcastle-1-1-manchester-city/
 **The Fans Want to Watch Football. Trump and Walz Will Be There, Too.**\
 `Donald Trump and Tim Walz are attending college games on Saturday that will draw plenty of viewers in the swing states of Michigan and Georgia.`\
 https://nytimes.com/2024/09/28/us/politics/trump-walz-football-alabama-michigan.html
-
-**Trump Voters Drive a Rise in Ticket Splitting**\
-`Ticket splitters in key presidential battlegrounds and Ohio tend to be supporters of Donald J. Trump who are skeptical of his picks for Senate, polling shows.`\
-https://nytimes.com/2024/09/28/us/politics/trump-voters-ticket-splitting.html
 
