@@ -1,3 +1,7 @@
+**‘I’m in Trouble Now’: North Carolinians Face Dangerous Floods From Helene**\
+`A nurse in Asheville, N.C., found herself chest deep in water in her S.U.V. before she was rescued by a police officer.`\
+https://nytimes.com/2024/09/27/weather/helene-north-carolina-flooding-asheville.html
+
 **Rustic Respites**\
 `Margaret Seikel’s first Saturday puzzle is bound to hook you.`\
 https://nytimes.com/2024/09/27/crosswords/daily-puzzle-2024-09-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800534/2024/09/27/dodgers-shohei-ohtani-ichiro-rec
 **A Family’s Desperate Flight Through Helene’s Rising Floodwaters**\
 `When a family in Shore Acres, Fla., feared the water would rise to their roof, they made a decision to swim out to safety.`\
 https://nytimes.com/2024/09/27/weather/shore-acres-flooding.html
-
-**White Sox lose 121st game of season, most by any team in modern baseball history**\
-` “I never thought that this would be broken while I was still around,” said 86-year-old Craig Anderson, a member of the 1962 Mets.`\
-https://nytimes.com/athletic/5792656/2024/09/27/white-sox-mlb-loss-record/
 

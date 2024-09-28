@@ -1,3 +1,7 @@
+**‘I’m in Trouble Now’: North Carolinians Face Dangerous Floods From Helene**\
+`A nurse in Asheville, N.C., found herself chest deep in water in her S.U.V. before she was rescued by a police officer.`\
+https://nytimes.com/2024/09/27/weather/helene-north-carolina-flooding-asheville.html
+
 **Rustic Respites**\
 `Margaret Seikel’s first Saturday puzzle is bound to hook you.`\
 https://nytimes.com/2024/09/27/crosswords/daily-puzzle-2024-09-28.html
