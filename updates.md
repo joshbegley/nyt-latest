@@ -1,3 +1,7 @@
+**Protesters mourn Nasrallah’s death around the world.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/protesters-mourn-nasrallahs-death-around-the-world
+
 **Rexrode: If Nick Saban wants to help college football, he should be realistic about it**\
 `Saban has been a welcome addition to "GameDay," but he has a lot of work to do on what’s actually happening with the economics of the sport.`\
 https://nytimes.com/athletic/5801526/2024/09/28/nick-saban-nil-college-football-espn-gameday/
