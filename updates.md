@@ -1,3 +1,15 @@
+**QB Tyler Huntley to start for Dolphins vs. Titans**\
+`Huntley will start for the Dolphins on Monday night after the team signed him from Baltimore's practice squad a week ago.`\
+https://nytimes.com/athletic/5801285/2024/09/28/tyler-huntley-start-dolphins-titans/
+
+**The Briefing: Chelsea 4-2 Brighton - Four historic goals for Palmer, but Blues still lack control**\
+`Palmer became the first ever Premier League player to score four goals in the first half of a game as Chelsea won an entertaining encounter`\
+https://nytimes.com/athletic/5793780/2024/09/28/chelsea-4-2-brighton-palmer/
+
+**Vance to Appear With Evangelical Leader Who Spoke of Harris’s ‘Witchcraft’**\
+`Senator JD Vance of Ohio will campaign in Pennsylvania with Lance Wallnau, who described Vice President Kamala Harris’s debate performance as “witchcraft.”`\
+https://nytimes.com/2024/09/28/us/politics/vance-lance-wallnau-witchcraft.html
+
 **ETSU football team stranded on buses for hours while traveling to game**\
 `East Tennessee State’s football team spent Friday night stranded on team buses before Saturday’s game at The Citadel.`\
 https://nytimes.com/athletic/5801281/2024/09/28/college-football-flooding-etsu-citadel/

@@ -1,3 +1,15 @@
+**QB Tyler Huntley to start for Dolphins vs. Titans**\
+`Huntley will start for the Dolphins on Monday night after the team signed him from Baltimore's practice squad a week ago.`\
+https://nytimes.com/athletic/5801285/2024/09/28/tyler-huntley-start-dolphins-titans/
+
+**The Briefing: Chelsea 4-2 Brighton - Four historic goals for Palmer, but Blues still lack control**\
+`Palmer became the first ever Premier League player to score four goals in the first half of a game as Chelsea won an entertaining encounter`\
+https://nytimes.com/athletic/5793780/2024/09/28/chelsea-4-2-brighton-palmer/
+
+**Vance to Appear With Evangelical Leader Who Spoke of Harris’s ‘Witchcraft’**\
+`Senator JD Vance of Ohio will campaign in Pennsylvania with Lance Wallnau, who described Vice President Kamala Harris’s debate performance as “witchcraft.”`\
+https://nytimes.com/2024/09/28/us/politics/vance-lance-wallnau-witchcraft.html
+
 **ETSU football team stranded on buses for hours while traveling to game**\
 `East Tennessee State’s football team spent Friday night stranded on team buses before Saturday’s game at The Citadel.`\
 https://nytimes.com/athletic/5801281/2024/09/28/college-football-flooding-etsu-citadel/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/28/world/asia/nepal-floods.html
 **Yes, You Can Swim in Louboutins**\
 `Christian Louboutin enlisted the French Olympic synchronized swimming team to introduce his new Miss Z stilettos at Paris Fashion Week.`\
 https://nytimes.com/2024/09/28/style/louboutin-fashion-week-france-olympic-swim-team.html
-
-**Explained: Two controversial goals, a USMNT striker and a lack of VAR**\
-`There was controversy in Saturday&#8217;s Championship clash between Derby County and Norwich City.`\
-https://nytimes.com/athletic/5801175/2024/09/28/norwich-goals-derby-var-no-championship/
-
-**Isak out of Carabao Cup tie with toe injury - Howe**\
-`Alexander Isak is out of Newcastle United&#8217;s Carabao Cup third-round tie with AFC Wimbledon on Tuesday and will be assessed before next weekend&#8217;s trip to Everton.`\
-https://nytimes.com/athletic/5801220/2024/09/28/alexander-isak-injury-update-newcastle/
-
-**Krawczynski: Why Timberwolves decided now was the time to trade Karl-Anthony Towns**\
-`The timing of the trade was something no one saw coming. The Towns family was "stunned" a league source told The Athletic.`\
-https://nytimes.com/athletic/5800924/2024/09/28/why-timberwolves-trade-karl-anthony-towns/
 
