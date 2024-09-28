@@ -1,3 +1,11 @@
+**The Ayes Have It**\
+`Joe Deeney’s puzzle passes unanimously.`\
+https://nytimes.com/2024/09/28/crosswords/daily-puzzle-2024-09-29.html
+
+**As Hezbollah Threat Loomed, Israel Built Up Its Spy Agencies**\
+`After the 2006 war with Hezbollah, Israel invested heavily to intercept the group’s communications and track its commanders in a shadowy war that ultimately led to the killing of the group’s leader.`\
+https://nytimes.com/2024/09/28/us/politics/hezbollah-israel.html
+
 **Patient Exposed to Bat in Minnesota Dies From Rabies, Officials Say**\
 `The death, which was reported on Friday, is only the fifth fatal human rabies case in Minnesota since 1975, health officials said.`\
 https://nytimes.com/2024/09/28/health/minnesota-rabies-death-bat.html
