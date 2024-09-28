@@ -1,3 +1,7 @@
+**Krawczynski: Why Timberwolves decided now was the time to trade Karl-Anthony Towns**\
+`The timing of the trade was something no one saw coming. The Towns family was "stunned" a league source told The Athletic.`\
+https://nytimes.com/athletic/5800924/2024/09/28/why-timberwolves-trade-karl-anthony-towns/
+
 **Amadou Mahtar M’Bow, 103, Dies; His Tenure Leading UNESCO Was Stormy**\
 `He was the first Black African to head a major international organization, but complaints about his tenure led the U.S. and Britain to pull out of it.`\
 https://nytimes.com/2024/09/28/world/africa/amadou-mahtar-mbow-dead.html
