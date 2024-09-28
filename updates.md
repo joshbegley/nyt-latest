@@ -1,3 +1,11 @@
+**Haaland 'knocks' to be assessed - Guardiola**\
+`Pep Guardiola says Erling Haaland will be assessed in the coming days after picking up &#8220;knocks&#8221; during Manchester City&#8217;s 1-1 draw at Newcastle United on Saturday.`\
+https://nytimes.com/athletic/5801211/2024/09/28/erling-haaland-injury-man-city-guardiola/
+
+**At Least 66 Die as Persistent Monsoon Rains Inundate Nepal**\
+`Disasters in the small Himalayan nation have become more frequent as the effects of climate change increase.`\
+https://nytimes.com/2024/09/28/world/asia/nepal-floods.html
+
 **Yes, You Can Swim in Louboutins**\
 `Christian Louboutin enlisted the French Olympic synchronized swimming team to introduce his new Miss Z stilettos at Paris Fashion Week.`\
 https://nytimes.com/2024/09/28/style/louboutin-fashion-week-france-olympic-swim-team.html
