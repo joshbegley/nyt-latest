@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5800849/2024/09/28/mets-brewers-wild-card-race/
 
 **Tennessee Dam Near Failure After Heavy Rain From Helene**\
-`The authorities were evacuating residents living downstream from the Nolichucky Dam, warning it was likely to fail and cause deadly flash flooding after Helene caused record water levels in the area.`\
+`The authorities were evacuating people downstream from the Nolichucky Dam, warning that a breach could cause deadly flooding.`\
 https://nytimes.com/2024/09/28/weather/helene-tennessee-nolichucky-dam-evacuation.html
 
 **Shohei Ohtani’s latest quest: The first NL Triple Crown since 1937. Is it possible?**\
