@@ -1,3 +1,7 @@
+**Greenberg: When it came to the record-setting 2024 White Sox, everybody lost**\
+`It has been a season of failure, disappointment and shame for everyone associated with the White Sox. That's the only way to describe it.`\
+https://nytimes.com/athletic/5800584/2024/09/27/white-sox-tigers-loss-record/
+
 **Knicks nearing trade for Karl-Anthony Towns: Sources**\
 `Towns, 28, has spent all nine years of his career with the Timberwolves since being drafted No. 1 in the 2015 NBA Draft.`\
 https://nytimes.com/athletic/5800647/2024/09/27/knicks-timberwolves-trade-karl-anthony-towns-kat/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/world/middleeast/israel-hezbollah-netanyahu-nasra
 **Kristian Campbell earns Red Sox minor-league honors, could impact club in 2025**\
 `Campbell and the Red Sox's other minor-league award winners were honored before the game on Friday.`\
 https://nytimes.com/athletic/5800411/2024/09/27/kristian-campbell-red-sox-offensive-player-of-the-year/
-
-**Dodgers' Shohei Ohtani surpasses Ichiro milestone**\
-`DENVER — With the division and a first-round bye secured, Los Angeles Dodgers manager Dave Roberts reemphasized the green light for Shohei Ohtani during the superstar’s prolific season.`\
-https://nytimes.com/athletic/5800534/2024/09/27/dodgers-shohei-ohtani-ichiro-record/
 
