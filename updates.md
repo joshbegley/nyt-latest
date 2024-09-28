@@ -1,5 +1,9 @@
 **The Fans Want to Watch Football. Trump and Walz Will Be There, Too.**\
 `Donald Trump and Tim Walz are attending college games on Saturday that will draw plenty of viewers in the swing states of Michigan and Georgia.`\
+https://nytimes.com/2024/09/28/us/politics/trump-walz-football-alabama-michigan.html
+
+**The Fans Want to Watch Football. Trump and Walz Will Be There, Too.**\
+`Donald Trump and Tim Walz are attending college games on Saturday that will draw plenty of viewers in the swing states of Michigan and Georgia.`\
 https://nytimes.com/2024/09/28/us/politics/the-fans-want-to-watch-football-trump-and-walz-will-be-there-too.html
 
 **Trump Voters Drive a Rise in Ticket Splitting**\
