@@ -1,3 +1,7 @@
+**JD Vance Faces Scrutiny Over Past Criticisms of Trump and Car Seats**\
+`The Republican vice-presidential nominee reportedly said that Donald J. Trump “failed to deliver” on economic populism and tied car-seat regulations to fewer births.`\
+https://nytimes.com/2024/09/27/us/politics/jd-vance-trump-criticism-car-seats.html
+
 **Amid Lebanon Strike, Defiant Netanyahu Declares that Israel Is ‘Winning’**\
 `The Israeli prime minister castigated Israel’s critics and the United Nations itself during his visit to New York for the U.N. General Assembly.`\
 https://nytimes.com/2024/09/27/us/politics/netanyahu-israel-un.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/us/kentucky-deaf-weather-alert-radio.html
 **Israeli officials say the Lebanon strikes were aimed at breaking Hezbollah by killing its leaders.**\
 `Dewar`\
 https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/israeli-officials-say-the-lebanon-strikes-were-aimed-at-breaking-hezbollah-by-killing-its-leaders
-
-**LA Clippers, Terance Mann agree to 3-year extension**\
-`Mann, 27, has played all five years of his career with the Clippers and will now be under contract through the 2027-28 season.`\
-https://nytimes.com/athletic/5800325/2024/09/27/clippers-terance-mann-contract-extension/
 
