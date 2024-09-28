@@ -1,3 +1,7 @@
+**English football's 3pm kick-off is dying - does anyone care?**\
+`The once hallowed Saturday kick-off time is becoming marginalised by expanding TV coverage, creating angst - and opportunity`\
+https://nytimes.com/athletic/5798921/2024/09/28/football-3pm-kick-off-decline/
+
 **13 insights fantasy football managers need to know ahead of Week 4**\
 `According to Theo Gremminger, Jayden Daniels could challenge for top fantasy QB honors, as he shares insights on 13 players ahead of Week 4.`\
 https://nytimes.com/athletic/5799628/2024/09/28/13-insights-fantasy-football-managers-need-to-know-ahead-of-week-4-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800722/2024/09/27/mets-francisco-alvarez-injury/
 **The Twins are eliminated: 5 reasons they collapsed when it counted**\
 `Here are five reasons the Twins will sit at home this October while Cleveland, Kansas City and Detroit earned postseason berths.`\
 https://nytimes.com/athletic/5795252/2024/09/27/minnesota-twins-collapse-reasons/
-
-**Greenberg: When it came to the record-setting 2024 White Sox, everybody lost**\
-`It has been a season of failure, disappointment and shame for everyone associated with the White Sox. That's the only way to describe it.`\
-https://nytimes.com/athletic/5800584/2024/09/27/white-sox-tigers-loss-record/
 
