@@ -1,3 +1,11 @@
+**Arsenal 4 Leicester 2: Trossard's late goal sparks delight, Nwaneri impact, defensive lapses**\
+`Arsenal beat Leicester 4-2 after two late, late strikes at The Emirates from Trossard and Havertz. Here we break down the talking points...`\
+https://nytimes.com/athletic/5793727/2024/09/28/arsenal-4-leicester-2-result-trossard-nwaneri/
+
+**Was the Miami-Virginia Tech call correct? Here’s what you need to know**\
+`What were the referees looking at? Was there indisputable evidence to overturn the call? Why did it take so long?`\
+https://nytimes.com/athletic/5801240/2024/09/28/miami-virginia-tech-haily-mary-acc-officials/
+
 **QB Tyler Huntley to start for Dolphins vs. Titans**\
 `Huntley will start for the Dolphins on Monday night after the team signed him from Baltimore's practice squad a week ago.`\
 https://nytimes.com/athletic/5801285/2024/09/28/tyler-huntley-start-dolphins-titans/
