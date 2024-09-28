@@ -1,3 +1,7 @@
+**Jose Alvarado, Pelicans reach 2-year, $9 million extension**\
+`Alvarado, 26, was set to become a free agent in 2025 and play the upcoming season on a player option just under $2 million.`\
+https://nytimes.com/athletic/5801715/2024/09/28/jose-alvarado-pelicans-extension/
+
 **How Kentucky gave a reality check to Ole Miss and its hopes of being elite**\
 `Kentucky upset No. 6 Ole Miss 20-17 after a last-minute Rebels field goal attempt missed. Here's how it happened and what it means.`\
 https://nytimes.com/athletic/5801593/2024/09/28/ole-miss-kentucky-football-score-lane-kiffin/
