@@ -1,3 +1,15 @@
+**Rustic Respites**\
+`Margaret Seikel’s first Saturday puzzle is bound to hook you.`\
+https://nytimes.com/2024/09/27/crosswords/daily-puzzle-2024-09-28.html
+
+**Trump Criticizes Harris on the Border and the Economy in Michigan**\
+`Donald Trump used a pair of events to try to blame Kamala Harris for inflation and the migrant crisis, tapping into themes that helped him win Michigan in 2016.`\
+https://nytimes.com/2024/09/27/us/politics/trump-michigan-immigration-economy.html
+
+**Matt Chapman wins Willie Mac Award: 'I just feel like I'm being myself'**\
+`"I think people understand that I really care and I really want to win." Chapman won the coveted award in his first season with the team.`\
+https://nytimes.com/athletic/5800601/2024/09/27/matt-chapman-sf-giants-willie-mac-award/
+
 **Harris, at the Border, Shows Democrats’ Hard-Line Evolution on Immigration**\
 `Vowing to carry on President Biden’s crackdown on asylum and to impose order on the southern border, the vice president demonstrated how much the politics of immigration have changed.`\
 https://nytimes.com/2024/09/27/us/politics/harris-border-immigration-arizona.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/27/weather/shore-acres-flooding.html
 **White Sox lose 121st game of season, most by any team in modern baseball history**\
 ` “I never thought that this would be broken while I was still around,” said 86-year-old Craig Anderson, a member of the 1962 Mets.`\
 https://nytimes.com/athletic/5792656/2024/09/27/white-sox-mlb-loss-record/
-
-**Tigers clinch unlikely playoff spot with win**\
-`The Tigers had a 0.2 percent chance to make the playoffs as of early August. `\
-https://nytimes.com/athletic/5800509/2024/09/27/tigers-clinch-playoff-berth/
-
-**How JD Vance Turns Taking Questions Into the Show**\
-`He uses showdowns with reporters to cast himself as a pugnacious, unscripted defender of Donald J. Trump.`\
-https://nytimes.com/2024/09/27/us/politics/vance-media.html
-
-**War in Lebanon could plunge the Mideast toward ‘unimaginable consequences,’ Guterres says.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/war-in-lebanon-could-plunge-the-mideast-toward-unimaginable-consequences-guterres-says
 

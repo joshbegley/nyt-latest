@@ -1,3 +1,15 @@
+**Rustic Respites**\
+`Margaret Seikel’s first Saturday puzzle is bound to hook you.`\
+https://nytimes.com/2024/09/27/crosswords/daily-puzzle-2024-09-28.html
+
+**Trump Criticizes Harris on the Border and the Economy in Michigan**\
+`Donald Trump used a pair of events to try to blame Kamala Harris for inflation and the migrant crisis, tapping into themes that helped him win Michigan in 2016.`\
+https://nytimes.com/2024/09/27/us/politics/trump-michigan-immigration-economy.html
+
+**Matt Chapman wins Willie Mac Award: 'I just feel like I'm being myself'**\
+`"I think people understand that I really care and I really want to win." Chapman won the coveted award in his first season with the team.`\
+https://nytimes.com/athletic/5800601/2024/09/27/matt-chapman-sf-giants-willie-mac-award/
+
 **Harris, at the Border, Shows Democrats’ Hard-Line Evolution on Immigration**\
 `Vowing to carry on President Biden’s crackdown on asylum and to impose order on the southern border, the vice president demonstrated how much the politics of immigration have changed.`\
 https://nytimes.com/2024/09/27/us/politics/harris-border-immigration-arizona.html
