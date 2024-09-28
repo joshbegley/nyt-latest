@@ -1,3 +1,15 @@
+**Power and Communication Outages Hamper Assessment of Landslides**\
+`With communication lines down in the mountains amid Helene, early reports were unclear about how many landslides had occurred and the extent of damage from the storm.`\
+https://nytimes.com/2024/09/28/climate/north-carolina-landslides.html
+
+**Camavinga fit for Madrid derby after recovering from knee injury**\
+`Real Madrid head coach Carlo Ancelotti has confirmed Eduardo Camavinga is fit and available to face Atletico Madrid on Sunday after recovering from a knee injury.`\
+https://nytimes.com/athletic/5801067/2024/09/28/eduardo-camavinga-fit-real-madrid/
+
+**Katz: What's next for Knicks after Karl-Anthony Towns trade?**\
+`This won’t look at all like anyone expected just days ago. It is a new era. And these are the pressing questions.`\
+https://nytimes.com/athletic/5800904/2024/09/28/knicks-karl-anthony-towns-trade-kat-whats-next/
+
 **Laura Donnelly, ‘Hills of California’ Star, Is Not Some Delicate Flower**\
 `But she did “burst into tears” reading Jez Butterworth’s rewrite of his new Broadway play, which left her with 10 days “to create an entirely new character.”`\
 https://nytimes.com/2024/09/28/theater/laura-donnelly-hills-of-california-broadway.html
