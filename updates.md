@@ -1,3 +1,11 @@
+**John Oliver Is Still Working Through the Rage**\
+`The host of ‘Last Week Tonight’ talks about what he’s learned in the ten years of making the show and why he doesn’t consider himself a journalist.`\
+https://nytimes.com/2024/09/28/magazine/john-oliver-interview.html
+
+**‘The Interview’: John Oliver Is Still Working Through the Rage**\
+`The host of ‘Last Week Tonight’ talks about what he’s learned in the ten years of making the show and why he doesn’t consider himself a journalist.`\
+https://nytimes.com/video/magazine/100000009725931/the-interview-john-oliver.html
+
 **Koreen: Vince Carter is a perfectly imperfect player for Raptors to his retire number**\
 `Vince Carter didn't save the Toronto Raptors, but he did define them.`\
 https://nytimes.com/athletic/5800210/2024/09/28/vince-carter-raptors-jersey-retirement/

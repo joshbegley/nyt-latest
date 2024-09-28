@@ -1,3 +1,11 @@
+**John Oliver Is Still Working Through the Rage**\
+`The host of ‘Last Week Tonight’ talks about what he’s learned in the ten years of making the show and why he doesn’t consider himself a journalist.`\
+https://nytimes.com/2024/09/28/magazine/john-oliver-interview.html
+
+**‘The Interview’: John Oliver Is Still Working Through the Rage**\
+`The host of ‘Last Week Tonight’ talks about what he’s learned in the ten years of making the show and why he doesn’t consider himself a journalist.`\
+https://nytimes.com/video/magazine/100000009725931/the-interview-john-oliver.html
+
 **Koreen: Vince Carter is a perfectly imperfect player for Raptors to his retire number**\
 `Vince Carter didn't save the Toronto Raptors, but he did define them.`\
 https://nytimes.com/athletic/5800210/2024/09/28/vince-carter-raptors-jersey-retirement/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/28/us/politics/walz-vance-vp-midwest-polls.html
 **On ‘Downton Abbey,’ Maggie Smith Made an Icy Aristocrat Irresistible**\
 `The hit melodrama brought Smith the kind of fame she never wanted, but it is easy to understand why it happened.`\
 https://nytimes.com/2024/09/28/arts/television/maggie-smith-downton-abbey.html
-
-**We Tried to Shop Our Way to Cheaper Car Insurance. It Didn’t Work.**\
-`The normally unstoppable force of two veteran money reporters hit the immovable object of wretched industry conditions. Living in Brooklyn didn’t help.`\
-https://nytimes.com/2024/09/28/business/cheaper-car-insurance-shopping.html
-
-**Harris Leads in Race for Eastern Nebraska’s One Electoral Vote, Poll Finds**\
-`If Ms. Harris were to win the “blue wall” and lose the Sun Belt swing states, the single electoral vote in Greater Omaha could determine the winner of the presidential election.`\
-https://nytimes.com/2024/09/28/us/politics/harris-trump-nebraska.html
 
