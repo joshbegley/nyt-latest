@@ -1,3 +1,15 @@
+**Travis Hunter strikes a Heisman pose in Colorado’s blowout win at UCF**\
+`On Saturday, Hunter caught a touchdown pass and intercepted a pass in the same game for the second time in the last three weeks.`\
+https://nytimes.com/athletic/5801974/2024/09/28/travis-hunter-colorado-hesiman-deion-sanders/
+
+**More Than 400 Roads Closed in North Carolina After Damage From Helene**\
+`The closures, including on two interstates, left motorists scrambling for options.`\
+https://nytimes.com/2024/09/28/us/roads-closed-western-north-carolina.html
+
+**Arch Manning, Texas take care of Mississippi State in SEC opener**\
+`Quinn Ewers has been recovering from a strained oblique suffered in the second quarter of Texas’ Sept. 14 win against UTSA.`\
+https://nytimes.com/athletic/5801471/2024/09/28/arch-manning-starting-texas-mississippi-state/
+
 **Newsom Vetoes Bill Requiring Cars to Warn Speeding Drivers**\
 `The legislation would have made California the first state in the nation to require intelligent speed assistance technology in vehicles.`\
 https://nytimes.com/2024/09/28/business/california-speeding-car-alert.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/28/world/middleeast/nasrallah-israel-hezbollah-iran.
 **Who Was Hassan Nasrallah, Leader of Hezbollah?**\
 `The leader of the militant group Hezbollah, Hassan Nasrallah, was killed by an Israeli airstrike in Lebanon on Friday. Neil MacFarquhar, a reporter for The New York Times who met and interviewed Nasrallah in 2002, explains who he was and the significance of his death.`\
 https://nytimes.com/video/world/middleeast/100000009728018/who-was-hassan-nasrallah-leader-of-hezbollah.html
-
-**What I’m seeing from the Wild: Opening-night lineup starts to become clearer**\
-`With training camp 10 days in and the season opener fast approaching, mass cuts are on the horizon for the Wild.`\
-https://nytimes.com/athletic/5801820/2024/09/28/wild-opening-night-lineup-roster-cuts/
-
-**FIFA announces 2025 Club World Cup venues**\
-`FIFA president Gianni Infantino confirmed the full list of venues on Saturday evening at the Global Citizen Festival in Central Park, N.Y.`\
-https://nytimes.com/athletic/5798811/2024/09/28/club-world-cup-2025-venues/
-
-**As waters raged, a North Carolina man recorded a goodbye: ‘I love everybody.’**\
-`By Mark Barrett`\
-https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/north-carolina-flooding-helene-goodbye-recording
 

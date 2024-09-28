@@ -1,3 +1,15 @@
+**Travis Hunter strikes a Heisman pose in Colorado’s blowout win at UCF**\
+`On Saturday, Hunter caught a touchdown pass and intercepted a pass in the same game for the second time in the last three weeks.`\
+https://nytimes.com/athletic/5801974/2024/09/28/travis-hunter-colorado-hesiman-deion-sanders/
+
+**More Than 400 Roads Closed in North Carolina After Damage From Helene**\
+`The closures, including on two interstates, left motorists scrambling for options.`\
+https://nytimes.com/2024/09/28/us/roads-closed-western-north-carolina.html
+
+**Arch Manning, Texas take care of Mississippi State in SEC opener**\
+`Quinn Ewers has been recovering from a strained oblique suffered in the second quarter of Texas’ Sept. 14 win against UTSA.`\
+https://nytimes.com/athletic/5801471/2024/09/28/arch-manning-starting-texas-mississippi-state/
+
 **Is Notre Dame optimism back after beating Louisville? Irish takeaways**\
 `Saturday felt like a referendum on Notre Dame with Marcus Freeman and Riley Leonard. The Irish passed the test.`\
 https://nytimes.com/athletic/5801870/2024/09/28/notre-dame-louisville-score-college-football/
