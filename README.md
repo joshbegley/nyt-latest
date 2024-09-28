@@ -1,3 +1,7 @@
+**Newsom Vetoes Bill Requiring Cars to Warn Speeding Drivers**\
+`The legislation would have made California the first state in the nation to require intelligent speed assistance technology in vehicles.`\
+https://nytimes.com/2024/09/28/business/california-speeding-car-alert.html
+
 **Avery Johnson responds after rough week, giving K-State renewed hope in Big 12 race**\
 `If the QB can build off of what he did against Oklahoma State, Kansas State has the chance to live up to its lofty expectations after all.`\
 https://nytimes.com/athletic/5801877/2024/09/28/avery-johnson-kansas-state-oklahoma-state-big-12/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5798811/2024/09/28/club-world-cup-2025-venues/
 **As waters raged, a North Carolina man recorded a goodbye: ‘I love everybody.’**\
 `By Mark Barrett`\
 https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/north-carolina-flooding-helene-goodbye-recording
-
-**The Ayes Have It**\
-`Joe Deeney’s puzzle passes unanimously.`\
-https://nytimes.com/2024/09/28/crosswords/daily-puzzle-2024-09-29.html
 
