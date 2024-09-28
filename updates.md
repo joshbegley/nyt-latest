@@ -1,3 +1,7 @@
+**Hezbollah’s Victims Are Expressing Relief at Its Disarray**\
+`Amid widespread condemnation of Israel’s massive strikes, Syrian communities persecuted by Hezbollah forces voiced cautious, and sometimes exuberant, celebration.`\
+https://nytimes.com/2024/09/28/world/middleeast/hezbollahs-victims-are-expressing-relief-at-its-disarray.html
+
 **After Your Death, Who Takes Care of the Dog?**\
 `A pet trust designates a new guardian for companion animals and sets aside funds for their care. Better yet, it’s legally binding.`\
 https://nytimes.com/2024/09/28/health/pet-trusts.html
