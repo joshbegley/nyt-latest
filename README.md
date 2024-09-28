@@ -1,3 +1,23 @@
+**Dish and DirecTV Near a Deal to Combine (Again)**\
+`The companies are in talks to create one of the largest pay-TV providers in the country. In 2002, the U.S. government blocked a similar deal.`\
+https://nytimes.com/2024/09/28/business/dealbook/dish-directv-deal.html
+
+**SpaceX to Launch Crew-9 Mission for NASA: How to Watch**\
+`Two astronauts — one American, one Russian — will launch on a flight that is set to bring the Boeing Starliner astronauts home next year.`\
+https://nytimes.com/2024/09/28/science/spacex-launch-nasa.html
+
+**Can Lina Khan Hold On?**\
+`Ms. Khan’s term as the chair of the Federal Trade Commission ended Wednesday. In a wide-ranging interview, she discussed her aggressive approach to antitrust and its critics.`\
+https://nytimes.com/2024/09/28/business/dealbook/lina-khan-interview.html
+
+**As Hezbollah Pursued a Limited War, Israel Went for a Knockout**\
+`The militia group seemed content to trade blows with Israel while avoiding a major conflict. A strike that killed its leader proves it miscalculated.`\
+https://nytimes.com/2024/09/28/world/middleeast/as-hezbollah-pursued-a-limited-war-israel-went-for-a-knockout.html
+
+**Edwards: Karl-Anthony Towns doesn't undoubtedly make Knicks better**\
+`The best player in the trade is coming to New York. But does it clearly make the Knicks better?`\
+https://nytimes.com/athletic/5800875/2024/09/28/karl-anthony-towns-knicks-fit/
+
 **Hollinger: Why Towns-for-Randle trade may turn 'best player' maxim on its head**\
 `Did the Knicks needlessly chase an expensive shiny object? Or did both teams actually do the right thing here?`\
 https://nytimes.com/athletic/5800986/2024/09/28/towns-randle-knicks-timberwolves-trade-analysis/
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/09/28/us/harris-trump-election
 **Molly Recommends Small Takes on Big Ideas, and a Novel of Sisterhood**\
 `James Richardson’s aphorisms; Nora Lange’s novel “Us Fools”`\
 https://nytimes.com/2024/09/28/books/read-like-wind-recommendations.html
-
-**Power and Communication Outages Hamper Assessment of Landslides**\
-`With communication lines down in the mountains amid Helene, early reports were unclear about how many landslides had occurred and the extent of damage from the storm.`\
-https://nytimes.com/2024/09/28/climate/north-carolina-landslides.html
-
-**Camavinga fit for Madrid derby after recovering from knee injury**\
-`Real Madrid head coach Carlo Ancelotti has confirmed Eduardo Camavinga is fit and available to face Atletico Madrid on Sunday after recovering from a knee injury.`\
-https://nytimes.com/athletic/5801067/2024/09/28/eduardo-camavinga-fit-real-madrid/
-
-**Katz: What's next for Knicks after Karl-Anthony Towns trade?**\
-`This won’t look at all like anyone expected just days ago. It is a new era. And these are the pressing questions.`\
-https://nytimes.com/athletic/5800904/2024/09/28/knicks-karl-anthony-towns-trade-kat-whats-next/
-
-**Laura Donnelly, ‘Hills of California’ Star, Is Not Some Delicate Flower**\
-`But she did “burst into tears” reading Jez Butterworth’s rewrite of his new Broadway play, which left her with 10 days “to create an entirely new character.”`\
-https://nytimes.com/2024/09/28/theater/laura-donnelly-hills-of-california-broadway.html
-
-**Hezbollah’s Victims Are Expressing Relief at Its Disarray**\
-`Amid widespread condemnation of Israel’s massive strikes, Syrian communities persecuted by Hezbollah forces voiced cautious, and sometimes exuberant, celebration.`\
-https://nytimes.com/2024/09/28/world/middleeast/hezbollahs-victims-are-expressing-relief-at-its-disarray.html
 
