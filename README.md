@@ -1,3 +1,11 @@
+**The Fans Want to Watch Football. Trump and Walz Will Be There, Too.**\
+`Donald Trump and Tim Walz are attending college games on Saturday that will draw plenty of viewers in the swing states of Michigan and Georgia.`\
+https://nytimes.com/2024/09/28/us/politics/the-fans-want-to-watch-football-trump-and-walz-will-be-there-too.html
+
+**Trump Voters Drive a Rise in Ticket Splitting**\
+`Ticket splitters in key presidential battlegrounds and Ohio tend to be supporters of Donald J. Trump who are skeptical of his picks for Senate, polling shows.`\
+https://nytimes.com/2024/09/28/us/politics/trump-voters-ticket-splitting.html
+
 **Dish and DirecTV Near a Deal to Combine (Again)**\
 `The companies are in talks to create one of the largest pay-TV providers in the country. In 2002, the U.S. government blocked a similar deal.`\
 https://nytimes.com/2024/09/28/business/dealbook/dish-directv-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/28/world/middleeast/why-israel-assassinate-nasrallah
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/28/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Molly Recommends Small Takes on Big Ideas, and a Novel of Sisterhood**\
-`James Richardson’s aphorisms; Nora Lange’s novel “Us Fools”`\
-https://nytimes.com/2024/09/28/books/read-like-wind-recommendations.html
-
-**Power and Communication Outages Hamper Assessment of Landslides**\
-`With communication lines down in the mountains amid Helene, early reports were unclear about how many landslides had occurred and the extent of damage from the storm.`\
-https://nytimes.com/2024/09/28/climate/north-carolina-landslides.html
 
