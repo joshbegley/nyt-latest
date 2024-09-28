@@ -1,3 +1,7 @@
+**Candidate for North Carolina Governor Treated for Burns, Campaign Says**\
+`Lt. Gov. Mark Robinson, the embattled Republican nominee for governor of North Carolina, was treated after attending a campaign event in Mount Airy, N.C.`\
+https://nytimes.com/2024/09/27/us/politics/mark-robinson-north-carolina-hospitalized-burns.html
+
 **Mets' Francisco Alvarez leaves game with back injury**\
 `The Mets said Alvarez exited the game with back spasms.`\
 https://nytimes.com/athletic/5800722/2024/09/27/mets-francisco-alvarez-injury/
