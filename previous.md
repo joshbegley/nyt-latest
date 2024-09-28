@@ -1,3 +1,7 @@
+**Israel’s military says it killed Hassan Nasrallah and other Hezbollah leaders; the militia has not confirmed that.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/israels-military-says-it-killed-hassan-nasrallah-and-other-hezbollah-leaders-the-militia-has-not-confirmed-that
+
 **John Oliver Is Still Working Through the Rage**\
 `The host of ‘Last Week Tonight’ talks about what he’s learned in the ten years of making the show and why he doesn’t consider himself a journalist.`\
 https://nytimes.com/2024/09/28/magazine/john-oliver-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009726536/israel-lebanon-strike
 **Ahead of Debate, Walz Is Viewed More Favorably Than Vance in Midwest, Polls Find**\
 `Gov. Tim Walz is viewed more favorably than Senator JD Vance by likely voters in Michigan, Ohio and Wisconsin, according to New York Times/Siena College polls.`\
 https://nytimes.com/2024/09/28/us/politics/walz-vance-vp-midwest-polls.html
-
-**On ‘Downton Abbey,’ Maggie Smith Made an Icy Aristocrat Irresistible**\
-`The hit melodrama brought Smith the kind of fame she never wanted, but it is easy to understand why it happened.`\
-https://nytimes.com/2024/09/28/arts/television/maggie-smith-downton-abbey.html
 
