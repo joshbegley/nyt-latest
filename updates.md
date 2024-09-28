@@ -1,3 +1,7 @@
+**Bill Lucy, Pioneering Labor and Civil Rights Leader, Dies at 90**\
+`He helped popularize “I Am a Man” as a demand for respect during the 1968 strike by Black sanitation workers in Memphis.`\
+https://nytimes.com/2024/09/28/us/bill-lucy-dead.html
+
 **Nasrallah’s death throws more uncertainty into Lebanon’s political disarray.**\
 `Plagued by years of political dysfunction, Lebanese leaders could try to use Israel’s weakening of Hezbollah to form a government. It would be a dangerous balancing act that also risks provoking deeper conflict.`\
 https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/nasrallahs-death-throws-more-uncertainty-into-lebanons-political-disarray
