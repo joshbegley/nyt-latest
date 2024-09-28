@@ -1,3 +1,7 @@
+**Why the Latest Court Reform Bill Matters**\
+`One senator’s vision for Supreme Court accountability.`\
+https://nytimes.com/2024/09/28/opinion/supreme-court-reform-wyden.html
+
 **How Giants' poor return on pass-rush investment cost them in loss to Cowboys**\
 `Final review of the loss to the Cowboys includes cornerback issues, a sputtering running game and some head-scratching play calls. `\
 https://nytimes.com/athletic/5800528/2024/09/28/giants-pass-rush-cowboys/

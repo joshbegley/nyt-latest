@@ -1,3 +1,7 @@
+**Why the Latest Court Reform Bill Matters**\
+`One senator’s vision for Supreme Court accountability.`\
+https://nytimes.com/2024/09/28/opinion/supreme-court-reform-wyden.html
+
 **How Giants' poor return on pass-rush investment cost them in loss to Cowboys**\
 `Final review of the loss to the Cowboys includes cornerback issues, a sputtering running game and some head-scratching play calls. `\
 https://nytimes.com/athletic/5800528/2024/09/28/giants-pass-rush-cowboys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800924/2024/09/28/why-timberwolves-trade-karl-anth
 **Amadou Mahtar M’Bow, 103, Dies; His Tenure Leading UNESCO Was Stormy**\
 `He was the first Black African to head a major international organization, but complaints about his tenure led the U.S. and Britain to pull out of it.`\
 https://nytimes.com/2024/09/28/world/africa/amadou-mahtar-mbow-dead.html
-
-**Russini’s what I’m hearing: Caleb Williams is not Bryce Young; Kelce problems; Love, Willis or both?**\
-`Plus, the difference for Josh Allen and his new Bills weapons, Haason Reddick holdout update and the 49ers' other problem.`\
-https://nytimes.com/athletic/5800719/2024/09/28/nfl-week-4-jordan-love-injury-malik-willis-travis-kelce-problems-caleb-williams-bryce-young-comparisons/
 
