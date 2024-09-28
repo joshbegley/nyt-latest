@@ -1,3 +1,31 @@
+**How the Phillies plan to stay sharp during their first-round bye before the NLDS**\
+`Staying sharp without playing is a challenge. It'll be the dominant storyline next week for the Phillies. This is new territory for them. `\
+https://nytimes.com/athletic/5800555/2024/09/28/phillies-bye-schedule-playoffs-nlds/
+
+**First-and-10: Can Ravens defense get right in biggest test yet vs. Bills?**\
+`Baltimore has a chance to turn around some early defensive struggles against one of the AFC's top teams on a prime-time stage.`\
+https://nytimes.com/athletic/5799743/2024/09/28/ravens-defense-bills-10-things-to-watch/
+
+**Newfoundland and Labrador’s Unlikely Foray Into England’s Soccer Scene**\
+`The province is sponsoring an obscure professional team in an effort to attract skilled immigrants.`\
+https://nytimes.com/2024/09/28/world/canada/newfoundland-labrador-barrow-jersey.html
+
+**Nico Hoerner on if this Cubs season is a failure, trade speculation and more**\
+`"I signed an extension here for a reason," the Cubs second baseman said. "I obviously want to be here."`\
+https://nytimes.com/athletic/5800243/2024/09/28/cubs-nico-hoerner-trade-speculation/
+
+**The Connections Companion No. 476**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 29, 2024.`\
+https://nytimes.com/2024/09/28/crosswords/connections-companion-476.html
+
+**Wordle Review No. 1,198**\
+`Scroll down for hints and conversation about the puzzle for September 29, 2024`\
+https://nytimes.com/2024/09/28/crosswords/wordle-review-1198.html
+
+**White Sox Lose 121 Games in a Season, Making History**\
+`In its weird, shambolic spectacle, the record-setting game seemed to encapsulate the team’s entire dreadful season.`\
+https://nytimes.com/2024/09/28/us/white-sox-121st-loss.html
+
 **For families who fled the Beirut area targeted in the strikes, ‘nobody has any idea what to do.’**\
 `By Christina Goldbaum, Hwaida Saad, Vivian Yee and Jacob Roubai`\
 https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/for-families-who-fled-the-beirut-area-targeted-in-the-strikes-nobody-has-any-idea-what-to-do
@@ -9,32 +37,4 @@ https://nytimes.com/2024/09/28/us/colorblind-viewfinder-leaf-peeping-virginia.ht
 **Harris’s Historic Run for Office Could Outpace Hollywood’s Oval Offices**\
 `Black and Asian American women have rarely, if at all, played the U.S. commander in chief in television and film. As Kamala Harris makes her presidential bid, Hollywood lags behind.`\
 https://nytimes.com/2024/09/28/arts/kamala-harris-hollywood-presidents.html
-
-**Illinois at Penn State picks, odds, how to watch: PSU heavily favored in top-25 showdown**\
-`Two undefeated top-20 Big Ten teams meet at Penn State when heavy underdog Illinois visits Happy Valley.`\
-https://nytimes.com/athletic/5799560/2024/09/28/illinois-penn-state-picks-odds-predictions-how-to-watch/
-
-**Israel’s military says it killed Hassan Nasrallah and other Hezbollah leaders; the militia has not confirmed that.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/israels-military-says-it-killed-hassan-nasrallah-and-other-hezbollah-leaders-the-militia-has-not-confirmed-that
-
-**John Oliver Is Still Working Through the Rage**\
-`The host of ‘Last Week Tonight’ talks about what he’s learned in the ten years of making the show and why he doesn’t consider himself a journalist.`\
-https://nytimes.com/2024/09/28/magazine/john-oliver-interview.html
-
-**‘The Interview’: John Oliver Is Still Working Through the Rage**\
-`The host of ‘Last Week Tonight’ talks about what he’s learned in the ten years of making the show and why he doesn’t consider himself a journalist.`\
-https://nytimes.com/video/magazine/100000009725931/the-interview-john-oliver.html
-
-**Koreen: Vince Carter is a perfectly imperfect player for Raptors to his retire number**\
-`Vince Carter didn't save the Toronto Raptors, but he did define them.`\
-https://nytimes.com/athletic/5800210/2024/09/28/vince-carter-raptors-jersey-retirement/
-
-**For Tigers manager A.J. Hinch, his team's clinch brings with it a sip of redemption**\
-`After season in suspension and four years in competitive exile, A.J. Hinch used a deft hand to manage the Tigers back to the playoffs. `\
-https://nytimes.com/athletic/5800831/2024/09/28/aj-hinch-tigers-clinch-playoff-spot-redemption/
-
-**NFL Week 4 roundtable: Vikings-Packers showdown, Justin Fields' rise, 0-3 teams in danger**\
-`While Vikings-Packers sets up an NFC North showdown, a few 0-3 teams hope to avoid the dreaded 0-4 mark. The Athletic's NFL writers discuss.`\
-https://nytimes.com/athletic/5799948/2024/09/28/nfl-week-4-vikings-packers-justin-fields/
 

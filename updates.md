@@ -1,3 +1,11 @@
+**For families who fled the Beirut area targeted in the strikes, ‘nobody has any idea what to do.’**\
+`By Christina Goldbaum, Hwaida Saad, Vivian Yee and Jacob Roubai`\
+https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/for-families-who-fled-the-beirut-area-targeted-in-the-strikes-nobody-has-any-idea-what-to-do
+
+**NFL Week 4 roundtable: Vikings-Packers showdown, Justin Fields' rise, 0-3 teams in danger**\
+`While Vikings-Packers sets up an NFC North showdown, a few 0-3 teams hope to avoid the dreaded 0-4 mark. The Athletic's NFL writers discuss.`\
+https://nytimes.com/athletic/5799948/2024/09/28/nfl-week-4-vikings-packers-justin-fields/
+
 **White Sox Lose 121 Games in a Season, Making History**\
 `In its weird, shambolic spectacle, the record-setting game seemed to encapsulate the team’s entire dreadful season.`\
 https://nytimes.com/2024/09/28/us/white-sox-121st-loss.html
