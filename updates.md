@@ -1,3 +1,7 @@
+**Mets' Francisco Alvarez leaves game with back injury**\
+`The Mets said Alvarez exited the game with back spasms.`\
+https://nytimes.com/athletic/5800722/2024/09/27/mets-francisco-alvarez-injury/
+
 **The Twins are eliminated: 5 reasons they collapsed when it counted**\
 `Here are five reasons the Twins will sit at home this October while Cleveland, Kansas City and Detroit all earned postseason berths.`\
 https://nytimes.com/athletic/5795252/2024/09/27/minnesota-twins-collapse-reasons/

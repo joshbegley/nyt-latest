@@ -1,3 +1,7 @@
+**Mets' Francisco Alvarez leaves game with back injury**\
+`The Mets said Alvarez exited the game with back spasms.`\
+https://nytimes.com/athletic/5800722/2024/09/27/mets-francisco-alvarez-injury/
+
 **The Twins are eliminated: 5 reasons they collapsed when it counted**\
 `Here are five reasons the Twins will sit at home this October while Cleveland, Kansas City and Detroit all earned postseason berths.`\
 https://nytimes.com/athletic/5795252/2024/09/27/minnesota-twins-collapse-reasons/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/us/politics/harris-border-immigration-arizona.htm
 **Why Hurricane Helene Was So Strong**\
 `In just over 12 hours, Hurricane Helene transformed from a Category 1 to a Category 4 hurricane — the strongest ever to hit the Big Bend coast of Florida. Judson Jones, a meteorologist and reporter for The New York Times covering extreme weather, explains why it grew so strong.`\
 https://nytimes.com/video/weather/100000009725558/why-hurricane-helene-was-so-strong.html
-
-**Israel Bombs Residential Site in Effort to Kill Hezbollah Leader**\
-`The strike came barely an hour after the Israeli prime minister, Benjamin Netanyahu, delivered a fiery address to the U.N. General Assembly.`\
-https://nytimes.com/2024/09/27/world/middleeast/israel-hezbollah-netanyahu-nasrallah.html
 
