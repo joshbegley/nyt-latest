@@ -1,40 +1,40 @@
-**When to Vote in Your State**\
-`See the important deadlines for registering to vote, mailing ballots and voting early in person.`\
-https://nytimes.com/interactive/2024/us/elections/voting-deadlines-state.html
+**‘We’re Still Living in Fear’: Escaping the Attacks in Lebanon**\
+`Tens of thousands of people have been displaced in Lebanon. Khaled Hussein, 20, fled Syria as a child. He describes the bombardment that forced his family to flee again.`\
+https://nytimes.com/video/world/middleeast/100000009726536/israel-lebanon-strikes-displacement.html
 
-**World anti-doping agency seeks ban of up to two years in Jannik Sinner case appeal**\
-`WADA has lodged an appeal of the "no fault or negligence" finding in Jannik Sinner's anti-doping investigation for clostebol.`\
-https://nytimes.com/athletic/5801008/2024/09/28/jannik-sinner-doping-wada-appeal/
+**Ahead of Debate, Walz Is Viewed More Favorably Than Vance in Midwest, Polls Find**\
+`Gov. Tim Walz is viewed more favorably than Senator JD Vance by likely voters in Michigan, Ohio and Wisconsin, according to New York Times/Siena College polls.`\
+https://nytimes.com/2024/09/28/us/politics/walz-vance-vp-midwest-polls.html
 
-**Humble Roots Helped Make Him Mayor. A Love of Luxury May Bring Him Down.**\
-`Mayor Eric Adams was elected partly on the strength of his origin story, a narrative that shrouded questions of his character, judgment and associates.`\
-https://nytimes.com/2024/09/28/nyregion/eric-adams-rise-fall.html
+**On ‘Downton Abbey,’ Maggie Smith Made an Icy Aristocrat Irresistible**\
+`The hit melodrama brought Smith the kind of fame she never wanted, but it is easy to understand why it happened.`\
+https://nytimes.com/2024/09/28/arts/television/maggie-smith-downton-abbey.html
 
-**The Not-So-Brief History of Scandal Among New York City Mayors**\
-`Mayor Eric Adams is the first modern-era New York City mayor to be indicted. But A. Oakey Hall, his little-known predecessor, faced criminal charges 150 years earlier.`\
-https://nytimes.com/2024/09/28/nyregion/nyc-mayor-adams-corruption-history.html
+**We Tried to Shop Our Way to Cheaper Car Insurance. It Didn’t Work.**\
+`The normally unstoppable force of two veteran money reporters hit the immovable object of wretched industry conditions. Living in Brooklyn didn’t help.`\
+https://nytimes.com/2024/09/28/business/cheaper-car-insurance-shopping.html
 
-**How Katie Couric Spends Her Sundays**\
-`When Ms. Couric, the veteran journalist, is at her home in East Hampton, she spends her days at the beach, playing pickleball and FaceTiming with her baby grandson.`\
-https://nytimes.com/2024/09/28/nyregion/katie-couric.html
+**Harris Leads in Race for Eastern Nebraska’s One Electoral Vote, Poll Finds**\
+`If Ms. Harris were to win the “blue wall” and lose the Sun Belt swing states, the single electoral vote in Greater Omaha could determine the winner of the presidential election.`\
+https://nytimes.com/2024/09/28/us/politics/harris-trump-nebraska.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/28/crosswords/spelling-bee-forum.html
+**Democratic Senate Candidates Lead in Ohio, Michigan and Wisconsin, Polls Find**\
+`Strong showings in new Times/Siena College polls leave a narrow path open for Democrats to keep hold of the chamber, but Republicans maintain an advantage with the map.`\
+https://nytimes.com/2024/09/28/us/politics/senate-polls-ohio-michigan-wisconsin.html
 
-**This time Miami escapes controversial ACC opener with a win — that’s progress**\
-`Miami coach Mario Cristobal had a simple view of the final play: “I saw an incomplete pass. That’s all I can say.”`\
-https://nytimes.com/athletic/5800945/2024/09/28/navarro-miami-wins-acc-opener/
+**‘Saturday Night Live’: Here’s What Critics Thought of the First Episode**\
+`The late-night institution begins its 50th season on Saturday. Here’s how The New York Times and others covered its debut in 1975.`\
+https://nytimes.com/2024/09/28/arts/television/saturday-night-live.html
 
-**Mets look sloppy while surrendering grand slam, six stolen bases in loss to Brewers**\
-`The Mets will turn to Jose Quintana on Saturday after Sean Manaea’s dud.`\
-https://nytimes.com/athletic/5800849/2024/09/28/mets-brewers-wild-card-race/
+**An Artist Whose Subjects Step Out of His Paintings**\
+`Adam Dressner, a lawyer turned portrait artist, began painting eccentric New Yorkers a few years ago. Many of them made an appearance at a recent exhibition.`\
+https://nytimes.com/2024/09/28/fashion/adam-dressner-new-york-paintings.html
 
-**Tennessee Dam Near Failure After Heavy Rain From Helene**\
-`The authorities were evacuating people downstream from the Nolichucky Dam, warning that a breach could cause deadly flooding.`\
-https://nytimes.com/2024/09/28/weather/helene-tennessee-nolichucky-dam-evacuation.html
+**Harris and Trump Are Neck and Neck in Michigan and Wisconsin, Polls Find**\
+`The race between Kamala Harris and Donald Trump has tightened in two of the Northern battlegrounds, New York Times/Siena College polls found.`\
+https://nytimes.com/2024/09/28/us/politics/harris-trump-poll-michigan-wisconsin.html
 
-**Shohei Ohtani’s latest quest: The first NL Triple Crown since 1937. Is it possible?**\
-`Ohtani's hot streak puts him within range of catching Luis Arraez for the batting title: “Shohei, man, he put on a show tonight."`\
-https://nytimes.com/athletic/5800842/2024/09/28/shohei-ohtani-triple-crown-possibility/
+**How Being a Middle Child Shaped Issa Rae’s Style**\
+`The actress prefers attire with “symmetry” and avoids flashy clothes. Plus: vintage Ralph Lauren and the sudden end of a cult brand.`\
+https://nytimes.com/2024/09/28/style/issa-rae-jewelry-braeve.html
 
