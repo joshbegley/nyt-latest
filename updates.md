@@ -1,3 +1,15 @@
+**Jordan Love expected to return from knee injury vs. Vikings**\
+`Malik Willis started with Love sidelined, going 25-of-34 passing, throwing for 324 yards, two touchdowns and no interceptions.`\
+https://nytimes.com/athletic/5801631/2024/09/28/packers-jordan-love-injury-starting-malik-willis/
+
+**Robertson injury concern played down by Liverpool's Slot**\
+`Arne Slot played down concerns over Andy Robertson after the left-back was forced off in the closing stages of Liverpool’s 2-1 win at Wolverhampton Wanderers.`\
+https://nytimes.com/athletic/5801684/2024/09/28/andy-robertson-injury-liverpool-slot/
+
+**Protesters mourn Nasrallah’s death beyond Lebanon.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/protesters-mourn-nasrallahs-death-around-the-world
+
 **Michigan questions piling up after surviving 4th-quarter meltdown against Minnesota**\
 `Michigan hung on to beat Minnesota 27-24 after giving up 21 fourth-quarter points — and getting help from a penalty on an onside kick.`\
 https://nytimes.com/athletic/5801548/2024/09/28/michigan-minnesota-score-onside-kick-penalty/

@@ -1,3 +1,11 @@
+**Jordan Love expected to return from knee injury vs. Vikings**\
+`Malik Willis started with Love sidelined, going 25-of-34 passing, throwing for 324 yards, two touchdowns and no interceptions.`\
+https://nytimes.com/athletic/5801631/2024/09/28/packers-jordan-love-injury-starting-malik-willis/
+
+**Robertson injury concern played down by Liverpool's Slot**\
+`Arne Slot played down concerns over Andy Robertson after the left-back was forced off in the closing stages of Liverpool’s 2-1 win at Wolverhampton Wanderers.`\
+https://nytimes.com/athletic/5801684/2024/09/28/andy-robertson-injury-liverpool-slot/
+
 **Michigan questions piling up after surviving 4th-quarter meltdown against Minnesota**\
 `Michigan hung on to beat Minnesota 27-24 after giving up 21 fourth-quarter points — and getting help from a penalty on an onside kick.`\
 https://nytimes.com/athletic/5801548/2024/09/28/michigan-minnesota-score-onside-kick-penalty/
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/5801607/2024/09/28/steve-cooper-leicester-arsenal-r
 `Kentucky upset No. 6 Ole Miss 20-17 after a last-minute Rebels field goal attempt missed. Here's how it happened and what it means.`\
 https://nytimes.com/athletic/5801593/2024/09/28/ole-miss-kentucky-football-score-lane-kiffin/
 
-**Protesters mourn Nasrallah’s death around the world.**\
+**Protesters mourn Nasrallah’s death beyond Lebanon.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/protesters-mourn-nasrallahs-death-around-the-world
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/28/world/americas/antonio-delfim-netto-dead.html
 **Bill Lucy, Pioneering Labor and Civil Rights Leader, Dies at 90**\
 `He helped popularize “I Am a Man” as a demand for respect during the 1968 strike by Black sanitation workers in Memphis.`\
 https://nytimes.com/2024/09/28/us/bill-lucy-dead.html
-
-**NHL waiver tracker: Best players on the wire throughout 2024-25 preseason**\
-`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
-https://nytimes.com/athletic/5799672/2024/09/28/nhl-waivers-tracker-preseason/
-
-**Nasrallah’s death throws more uncertainty into Lebanon’s political disarray.**\
-`Plagued by years of political dysfunction, Lebanese leaders could try to use Israel’s weakening of Hezbollah to form a government. It would be a dangerous balancing act that also risks provoking deeper conflict.`\
-https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/nasrallahs-death-throws-more-uncertainty-into-lebanons-political-disarray
 
