@@ -1,8 +1,20 @@
+**Tigers clinch unlikely playoff spot with win**\
+`The Tigers had a 0.2 percent chance to make the playoffs as of early August. `\
+https://nytimes.com/athletic/5800509/2024/09/27/tigers-clinch-playoff-berth/
+
+**How JD Vance Turns Taking Questions Into the Show**\
+`He uses showdowns with reporters to cast himself as a pugnacious, unscripted defender of Donald J. Trump.`\
+https://nytimes.com/2024/09/27/us/politics/vance-media.html
+
+**War in Lebanon could plunge the Mideast toward ‘unimaginable consequences,’ Guterres says.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/war-in-lebanon-could-plunge-the-mideast-toward-unimaginable-consequences-guterres-says
+
 **JD Vance Faces Scrutiny Over Past Criticisms of Trump and Car Seats**\
 `The Republican vice-presidential nominee reportedly said that Donald J. Trump “failed to deliver” on economic populism and tied car-seat regulations to fewer births.`\
 https://nytimes.com/2024/09/27/us/politics/jd-vance-trump-criticism-car-seats.html
 
-**Amid Lebanon Strike, Defiant Netanyahu Declares that Israel Is ‘Winning’**\
+**Amid Lebanon Strike, Defiant Netanyahu Declares Israel Is ‘Winning’**\
 `The Israeli prime minister castigated Israel’s critics and the United Nations itself during his visit to New York for the U.N. General Assembly.`\
 https://nytimes.com/2024/09/27/us/politics/netanyahu-israel-un.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5800376/2024/09/27/chargers-justin-herbert-injuries
 **Adam Scott is speaking. After Day 2 of the Presidents Cup, everybody is listening**\
 `The authentic Scott has made the International Team a priority for 21 years. Can he lead the group to a win this weekend?`\
 https://nytimes.com/athletic/5800385/2024/09/27/adam-scott-presidents-cup-international-team/
-
-**At least four large apartment buildings were destroyed by Israeli strikes, videos show.**\
-`By Christiaan Triebert, Devon Lum and Aric Toler`\
-https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/at-least-four-large-apartment-buildings-were-destroyed-by-israeli-strikes-videos-show
-
-**Kentucky to Distribute Weather Alert Radios to the Hard of Hearing**\
-`Gov. Andy Beshear announced a program to distribute the special weather alert radios free as the state braced for the remnants of Hurricane Helene.`\
-https://nytimes.com/2024/09/27/us/kentucky-deaf-weather-alert-radio.html
-
-**Israeli officials say the Lebanon strikes were aimed at breaking Hezbollah by killing its leaders.**\
-`Dewar`\
-https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/israeli-officials-say-the-lebanon-strikes-were-aimed-at-breaking-hezbollah-by-killing-its-leaders
 

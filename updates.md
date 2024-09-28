@@ -1,3 +1,19 @@
+**Tigers clinch unlikely playoff spot with win**\
+`The Tigers had a 0.2 percent chance to make the playoffs as of early August. `\
+https://nytimes.com/athletic/5800509/2024/09/27/tigers-clinch-playoff-berth/
+
+**How JD Vance Turns Taking Questions Into the Show**\
+`He uses showdowns with reporters to cast himself as a pugnacious, unscripted defender of Donald J. Trump.`\
+https://nytimes.com/2024/09/27/us/politics/vance-media.html
+
+**War in Lebanon could plunge the Mideast toward ‘unimaginable consequences,’ Guterres says.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/09/27/world/israel-lebanon-hezbollah-hamas/war-in-lebanon-could-plunge-the-mideast-toward-unimaginable-consequences-guterres-says
+
+**Amid Lebanon Strike, Defiant Netanyahu Declares Israel Is ‘Winning’**\
+`The Israeli prime minister castigated Israel’s critics and the United Nations itself during his visit to New York for the U.N. General Assembly.`\
+https://nytimes.com/2024/09/27/us/politics/netanyahu-israel-un.html
+
 **JD Vance Faces Scrutiny Over Past Criticisms of Trump and Car Seats**\
 `The Republican vice-presidential nominee reportedly said that Donald J. Trump “failed to deliver” on economic populism and tied car-seat regulations to fewer births.`\
 https://nytimes.com/2024/09/27/us/politics/jd-vance-trump-criticism-car-seats.html
