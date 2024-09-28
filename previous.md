@@ -1,3 +1,23 @@
+**Humble Roots Helped Make Him Mayor. A Love of Luxury May Bring Him Down.**\
+`Mayor Eric Adams was elected partly on the strength of his origin story, a narrative that shrouded questions of his character, judgment and associates.`\
+https://nytimes.com/2024/09/28/nyregion/eric-adams-rise-fall.html
+
+**The Not-So-Brief History of Scandal Among New York City Mayors**\
+`Mayor Eric Adams is the first modern-era New York City mayor to be indicted. But A. Oakey Hall, his little-known predecessor, faced criminal charges 150 years earlier.`\
+https://nytimes.com/2024/09/28/nyregion/nyc-mayor-adams-corruption-history.html
+
+**How Katie Couric Spends Her Sundays**\
+`When Ms. Couric, the veteran journalist, is at her home in East Hampton, she spends her days at the beach, playing pickleball and FaceTiming with her baby grandson.`\
+https://nytimes.com/2024/09/28/nyregion/katie-couric.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/28/crosswords/spelling-bee-forum.html
+
+**This time Miami escapes controversial ACC opener with a win — that’s progress**\
+`Miami coach Mario Cristobal had a simple view of the final play: “I saw an incomplete pass. That’s all I can say.”`\
+https://nytimes.com/athletic/5800945/2024/09/28/navarro-miami-wins-acc-opener/
+
 **Mets look sloppy while surrendering grand slam, six stolen bases in loss to Brewers**\
 `The Mets will turn to Jose Quintana on Saturday after Sean Manaea’s dud.`\
 https://nytimes.com/athletic/5800849/2024/09/28/mets-brewers-wild-card-race/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5800699/2024/09/28/knicks-timberwolves-karl-anthony
 **Braves' Max Fried throws a gem at a crucial time: Will it be his last home start?**\
 `As Fried walked off the field, he looked up at the crowd: "Just thanking the fans for pushing us."`\
 https://nytimes.com/athletic/5800793/2024/09/28/braves-max-fried-wild-card/
-
-**Khusnutdinov is a short-handed machine, Eriksson Ek is a net-front menace: Wild takeaways**\
-`Jets goalie Connor Hellebuyck gave up eight goals in the first two periods before John Hynes hit the brakes in the third period.`\
-https://nytimes.com/athletic/5800422/2024/09/28/minnesota-wild-takeaways-vs-jets/
-
-**Here are the latest developments on strikes in Lebanon.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/here-are-the-latest-developments-on-strikes-in-lebanon
-
-**Raphinha's reinvention at Barcelona: Hansi Flick has unleashed his athleticism**\
-`Barca have won seven games out of seven to begin La Liga 2024-25, and former Leeds winger Raphinha's new role has been key`\
-https://nytimes.com/athletic/5795999/2024/09/28/raphinha-barcelona-la-liga-hansi-flick-reinvention/
-
-**How Arsenal and Manchester City's rivalry descended into 'war'**\
-`After the dramatic 2-2 draw at the Etihad on Sunday, The Athletic has spoken to those in both camps to chart a remarkable week`\
-https://nytimes.com/athletic/5799875/2024/09/28/arsenal-manchester-city-guardiola-arteta-war/
-
-**English football's 3pm kick-off is dying - does anyone care?**\
-`The once hallowed Saturday kick-off time is becoming marginalised by expanding TV coverage, creating angst - and opportunity`\
-https://nytimes.com/athletic/5798921/2024/09/28/football-3pm-kick-off-decline/
 
