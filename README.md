@@ -1,3 +1,7 @@
+**Dodgers' Shohei Ohtani surpasses Ichiro milestone**\
+`DENVER — With the division and a first-round bye secured, Los Angeles Dodgers manager Dave Roberts reemphasized the green light for Shohei Ohtani during the superstar’s prolific season.`\
+https://nytimes.com/athletic/5800534/2024/09/27/dodgers-shohei-ohtani-ichiro-record/
+
 **A Family’s Desperate Flight Through Helene’s Rising Floodwaters**\
 `When a family in Shore Acres, Fla., feared the water would rise to their roof, they made a decision to swim out to safety.`\
 https://nytimes.com/2024/09/27/weather/shore-acres-flooding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/weather/atlanta-flooding-buckhead.html
 **What to know about the International Team's dominant Day 2 at the Presidents Cup**\
 `The International side played 57 holes with the lead Friday across all matches. The Americans? One.`\
 https://nytimes.com/athletic/5800400/2024/09/27/presidents-cup-analysis-2024-day-2-international-team/
-
-**Yordan Alvarez is 'getting better quickly.' Will it be in time for the Wild Card Series?**\
-`Astros manager Joe Espada said that the slugger will need to "check some boxes" before he's cleared to play.`\
-https://nytimes.com/athletic/5800424/2024/09/27/astros-yordan-alvarez-injury-wild-card-series/
 
