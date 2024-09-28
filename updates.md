@@ -1,3 +1,15 @@
+**Helene triggered flash floods, landslides and power outages. Here’s the latest.**\
+`By Soumya Karlamangla and Isabella Kwai`\
+https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/helene-triggered-flash-floods-landslides-and-power-outages-heres-the-latest
+
+**Live Updates: Helene Leaves Trail of Devastation Across Southeastern U.S.**\
+`The storm leveled entire towns and left at least 42 dead. Millions were still without power, and extreme rain left a dam in Tennessee on the brink of failure.`\
+https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina
+
+**Ex-Arsenal and Dundee forward Caballero dies aged 46**\
+`Former Arsenal forward Fabian Caballero has died at the age of 46, the club have confirmed.`\
+https://nytimes.com/athletic/5801070/2024/09/28/arsenal-fabian-caballero-dies-aged-46/
+
 **At Capacity**\
 `If we can’t remember the things we read and watch and even loved, do they still “count”?`\
 https://nytimes.com/2024/09/28/briefing/at-capacity.html
