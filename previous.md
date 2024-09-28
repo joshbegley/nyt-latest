@@ -1,3 +1,7 @@
+**The Twins are eliminated: 5 reasons they collapsed when it counted**\
+`Here are five reasons the Twins will sit at home this October while Cleveland, Kansas City and Detroit all earned postseason berths.`\
+https://nytimes.com/athletic/5795252/2024/09/27/minnesota-twins-collapse-reasons/
+
 **Greenberg: When it came to the record-setting 2024 White Sox, everybody lost**\
 `It has been a season of failure, disappointment and shame for everyone associated with the White Sox. That's the only way to describe it.`\
 https://nytimes.com/athletic/5800584/2024/09/27/white-sox-tigers-loss-record/
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000009725558/why-hurricane-helene-was-so-st
 **Israel Bombs Residential Site in Effort to Kill Hezbollah Leader**\
 `The strike came barely an hour after the Israeli prime minister, Benjamin Netanyahu, delivered a fiery address to the U.N. General Assembly.`\
 https://nytimes.com/2024/09/27/world/middleeast/israel-hezbollah-netanyahu-nasrallah.html
-
-**Kristian Campbell earns Red Sox minor-league honors, could impact club in 2025**\
-`Campbell and the Red Sox's other minor-league award winners were honored before the game on Friday.`\
-https://nytimes.com/athletic/5800411/2024/09/27/kristian-campbell-red-sox-offensive-player-of-the-year/
 
