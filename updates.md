@@ -1,3 +1,7 @@
+**How Kentucky gave a reality check to Ole Miss and its hopes of being elite**\
+`Kentucky upset No. 6 Ole Miss 20-17 after a last-minute Rebels field goal attempt missed. Here's how it happened and what it means.`\
+https://nytimes.com/athletic/5801593/2024/09/28/ole-miss-kentucky-football-score-lane-kiffin/
+
 **Tracking Tropical Storm Krathon**\
 `See the likely path and wind arrival times for Krathon.`\
 https://nytimes.com/interactive/2024/09/28/weather/krathon-map-path-tracker.html
