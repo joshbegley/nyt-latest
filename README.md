@@ -1,3 +1,7 @@
+**Nebraska survives trip to Purdue: Takeaways from an ugly win in West Lafayette**\
+`The mantra for Nebraska when it plays at Purdue has never been anything but these four words: survive and get out. Mission accomplished.`\
+https://nytimes.com/athletic/5801562/2024/09/28/nebraska-purdue-dylan-raiola-matt-rhule/
+
 **Antônio Delfim Netto, Brazilian Economic Czar, Dies at 96**\
 `He was credited for the high-growth economy during the early years of Brazil’s long military dictatorship. But critics said his policies brought only short-lived gains.`\
 https://nytimes.com/2024/09/28/world/americas/antonio-delfim-netto-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5796363/2024/09/28/wolves-liverpool-premier-league-
 **Can Hezbollah Recover From the Death of Its Most Commanding Leader?**\
 `Hassan Nasrallah’s killing raises questions about whether the group can strike back at Israel. But U.S. officials say it’s too soon to count the group out.`\
 https://nytimes.com/2024/09/28/world/middleeast/hezbollah-nasrallah-future.html
-
-**Nuno says referee 'did not do a good job' in Forest defeat to Fulham**\
-`Nuno Espirito Santo says he is fed up of complaining about referees after Nottingham Forest were defeated 1-0 by Fulham.`\
-https://nytimes.com/athletic/5801435/2024/09/28/nuno-nottingham-forest-fulham-penalty/
 
