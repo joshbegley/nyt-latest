@@ -1,3 +1,7 @@
+**As waters raged, a North Carolina man recorded a goodbye: ‘I love everybody.’**\
+`By Mark Barrett`\
+https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/north-carolina-flooding-helene-goodbye-recording
+
 **The Ayes Have It**\
 `Joe Deeney’s puzzle passes unanimously.`\
 https://nytimes.com/2024/09/28/crosswords/daily-puzzle-2024-09-29.html
