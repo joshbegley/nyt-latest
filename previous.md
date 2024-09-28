@@ -1,3 +1,11 @@
+**USC uses second-half shutout to top Wisconsin, clinch first Big Ten win**\
+`USC improves to 3-1 while Wisconsin falls to 2-2 with a tough road ahead. `\
+https://nytimes.com/athletic/5801882/2024/09/28/usc-wisconsin-score-analysis-college-football/
+
+**Notre Dame kept hope for the 2024 season alive by beating Louisville: Irish takeaways**\
+`Saturday felt like a referendum on Notre Dame with Marcus Freeman and Riley Leonard. The Irish passed the test.`\
+https://nytimes.com/athletic/5801870/2024/09/28/notre-dame-louisville-score-college-football/
+
 **Death of Nasrallah Pushes Mideast Conflict Into New Territory**\
 `After Israel killed the leader of Hezbollah, the powerful Lebanese militia and Iranian proxy, Tehran was faced with deciding how, or whether, to retaliate.`\
 https://nytimes.com/2024/09/28/world/middleeast/nasrallah-israel-hezbollah-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/28/us/politics/hezbollah-israel.html
 **Patient Exposed to Bat in Minnesota Dies From Rabies, Officials Say**\
 `The death, which was reported on Friday, is only the fifth fatal human rabies case in Minnesota since 1975, health officials said.`\
 https://nytimes.com/2024/09/28/health/minnesota-rabies-death-bat.html
-
-**Shock and Uncertainty in Beirut After Nasrallah’s Death**\
-`Israel’s killing of Hezbollah’s leader, Hassan Nasrallah, was a stunning escalation of the country’s campaign against the Iran-backed group.`\
-https://nytimes.com/video/world/middleeast/100000009728407/beirut-nasrallah-death-voices.html
-
-**Yankees' Anthony Rizzo has 2 fractured fingers. How will team handle first base?**\
-`Rizzo was hit by a pitch in the hand but might still be available in the postseason: "It's something that is a pain tolerance thing."`\
-https://nytimes.com/athletic/5801698/2024/09/28/yankees-anthony-rizzo-fractured-fingers-injury/
 

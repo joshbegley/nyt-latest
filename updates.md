@@ -1,3 +1,11 @@
+**USC uses second-half shutout to top Wisconsin, clinch first Big Ten win**\
+`USC improves to 3-1 while Wisconsin falls to 2-2 with a tough road ahead. `\
+https://nytimes.com/athletic/5801882/2024/09/28/usc-wisconsin-score-analysis-college-football/
+
+**Notre Dame kept hope for the 2024 season alive by beating Louisville: Irish takeaways**\
+`Saturday felt like a referendum on Notre Dame with Marcus Freeman and Riley Leonard. The Irish passed the test.`\
+https://nytimes.com/athletic/5801870/2024/09/28/notre-dame-louisville-score-college-football/
+
 **Death of Nasrallah Pushes Mideast Conflict Into New Territory**\
 `After Israel killed the leader of Hezbollah, the powerful Lebanese militia and Iranian proxy, Tehran was faced with deciding how, or whether, to retaliate.`\
 https://nytimes.com/2024/09/28/world/middleeast/nasrallah-israel-hezbollah-iran.html
