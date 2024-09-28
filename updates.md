@@ -1,3 +1,7 @@
+**Rexrode: If Nick Saban wants to help college football, he should be realistic about it**\
+`Saban has been a welcome addition to "GameDay," but he has a lot of work to do on what’s actually happening with the economics of the sport.`\
+https://nytimes.com/athletic/5801526/2024/09/28/nick-saban-nil-college-football-espn-gameday/
+
 **NHL waiver tracker: Best players on the wire throughout 2024-25 preseason**\
 `Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
 https://nytimes.com/athletic/5799672/2024/09/28/nhl-waivers-tracker-preseason/
