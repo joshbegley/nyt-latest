@@ -1,3 +1,7 @@
+**Kristian Campbell earns Red Sox minor-league honors, could impact club in 2025**\
+`Campbell and the Red Sox's other minor-league award winners were honored before the game on Friday.`\
+https://nytimes.com/athletic/5800411/2024/09/27/kristian-campbell-red-sox-offensive-player-of-the-year/
+
 **Dodgers' Shohei Ohtani surpasses Ichiro milestone**\
 `DENVER — With the division and a first-round bye secured, Los Angeles Dodgers manager Dave Roberts reemphasized the green light for Shohei Ohtani during the superstar’s prolific season.`\
 https://nytimes.com/athletic/5800534/2024/09/27/dodgers-shohei-ohtani-ichiro-record/
