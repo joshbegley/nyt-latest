@@ -1,3 +1,19 @@
+**13 insights fantasy football managers need to know ahead of Week 4**\
+`According to Theo Gremminger, Jayden Daniels could challenge for top fantasy QB honors, as he shares insights on 13 players ahead of Week 4.`\
+https://nytimes.com/athletic/5799628/2024/09/28/13-insights-fantasy-football-managers-need-to-know-ahead-of-week-4-2/
+
+**Laborer’s Death Brings to Light Italy’s Conflicted Relationship With Migrants**\
+`Italy, an aging country, badly needs migrant labor and immigration, but the government has admitted that the pathways for legal entry are rife with abuse.`\
+https://nytimes.com/2024/09/28/world/europe/italy-migrant-labor.html
+
+**Saturday's MLB best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
+https://nytimes.com/athletic/5800009/2024/09/28/mlb-odds-best-bets-projections-september-28/
+
+**Quote of the Day: F.D.A. Approves the First New Drug to Treat Schizophrenia in Decades**\
+`Quotation of the Day for Saturday, September 27, 2024`\
+https://nytimes.com/2024/09/27/pageoneplus/quote-of-the-day-fda-approves-the-first-new-drug-to-treat-schizophrenia-in-decades.html
+
 **One year after 106 losses, Royals clinch first postseason berth since 2015**\
 `The Royals are just the third team in MLB history to make the playoffs the year after enduring a 100 loss season.`\
 https://nytimes.com/athletic/5771785/2024/09/27/royals-clinch-playoffs-al-wild-card/

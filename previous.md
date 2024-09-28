@@ -1,3 +1,19 @@
+**13 insights fantasy football managers need to know ahead of Week 4**\
+`According to Theo Gremminger, Jayden Daniels could challenge for top fantasy QB honors, as he shares insights on 13 players ahead of Week 4.`\
+https://nytimes.com/athletic/5799628/2024/09/28/13-insights-fantasy-football-managers-need-to-know-ahead-of-week-4-2/
+
+**Laborer’s Death Brings to Light Italy’s Conflicted Relationship With Migrants**\
+`Italy, an aging country, badly needs migrant labor and immigration, but the government has admitted that the pathways for legal entry are rife with abuse.`\
+https://nytimes.com/2024/09/28/world/europe/italy-migrant-labor.html
+
+**Saturday's MLB best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
+https://nytimes.com/athletic/5800009/2024/09/28/mlb-odds-best-bets-projections-september-28/
+
+**Quote of the Day: F.D.A. Approves the First New Drug to Treat Schizophrenia in Decades**\
+`Quotation of the Day for Saturday, September 27, 2024`\
+https://nytimes.com/2024/09/27/pageoneplus/quote-of-the-day-fda-approves-the-first-new-drug-to-treat-schizophrenia-in-decades.html
+
 **One year after 106 losses, Royals clinch first postseason berth since 2015**\
 `The Royals are just the third team in MLB history to make the playoffs the year after enduring a 100 loss season.`\
 https://nytimes.com/athletic/5771785/2024/09/27/royals-clinch-playoffs-al-wild-card/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5795252/2024/09/27/minnesota-twins-collapse-reasons
 **Greenberg: When it came to the record-setting 2024 White Sox, everybody lost**\
 `It has been a season of failure, disappointment and shame for everyone associated with the White Sox. That's the only way to describe it.`\
 https://nytimes.com/athletic/5800584/2024/09/27/white-sox-tigers-loss-record/
-
-**Knicks nearing trade for Karl-Anthony Towns: Sources**\
-`Towns, 28, has spent all nine years of his career with the Timberwolves since being drafted No. 1 in the 2015 NBA Draft.`\
-https://nytimes.com/athletic/5800647/2024/09/27/knicks-timberwolves-trade-karl-anthony-towns-kat/
-
-**‘I’m in Trouble Now’: North Carolinians Face Dangerous Floods From Helene**\
-`A nurse in Asheville, N.C., found herself chest deep in water in her S.U.V. before she was rescued by a police officer.`\
-https://nytimes.com/2024/09/27/weather/helene-north-carolina-flooding-asheville.html
-
-**Rustic Respites**\
-`Margaret Seikel’s first Saturday puzzle is bound to hook you.`\
-https://nytimes.com/2024/09/27/crosswords/daily-puzzle-2024-09-28.html
-
-**Trump Criticizes Harris on the Border and the Economy in Michigan**\
-`Donald Trump used a pair of events to try to blame Kamala Harris for inflation and the migrant crisis, tapping into themes that helped him win Michigan in 2016.`\
-https://nytimes.com/2024/09/27/us/politics/trump-michigan-immigration-economy.html
 
