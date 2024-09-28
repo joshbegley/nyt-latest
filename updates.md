@@ -1,3 +1,7 @@
+**For families who fled the Beirut area targeted in the strikes, ‘nobody has any idea what to do.’**\
+`By Christina Goldbaum, Hwaida Saad and Vivian Yee`\
+https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/for-families-who-fled-the-beirut-area-targeted-in-the-strikes-nobody-has-any-idea-what-to-do
+
 **Viewfinders Make Fall Foliage Pop for the Colorblind in Virginia**\
 `Specialized viewfinders installed across state parks let visitors with red-green colorblindness see more distinct colors.`\
 https://nytimes.com/2024/09/28/us/colorblind-viewfinder-leaf-peeping-virginia.html

@@ -1,3 +1,7 @@
+**For families who fled the Beirut area targeted in the strikes, ‘nobody has any idea what to do.’**\
+`By Christina Goldbaum, Hwaida Saad and Vivian Yee`\
+https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/for-families-who-fled-the-beirut-area-targeted-in-the-strikes-nobody-has-any-idea-what-to-do
+
 **Viewfinders Make Fall Foliage Pop for the Colorblind in Virginia**\
 `Specialized viewfinders installed across state parks let visitors with red-green colorblindness see more distinct colors.`\
 https://nytimes.com/2024/09/28/us/colorblind-viewfinder-leaf-peeping-virginia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800831/2024/09/28/aj-hinch-tigers-clinch-playoff-s
 **NFL Week 4 roundtable: Vikings-Packers showdown, Justin Fields' rise, 0-3 teams in danger**\
 `While Vikings-Packers sets up an NFC North showdown, a few 0-3 teams hope to avoid the dreaded 0-4 mark. The Athletic's NFL writers discuss.`\
 https://nytimes.com/athletic/5799948/2024/09/28/nfl-week-4-vikings-packers-justin-fields/
-
-**As Florida Storms Worsen, Some in Tampa Bay Wonder: Is Living There Worth It?**\
-`Residents of the booming region are confronting a new reality: Even when storms make landfall far away, their impact is being felt.`\
-https://nytimes.com/2024/09/28/us/hurricane-helene-tampa-bay-florida-worries.html
 
