@@ -1,3 +1,7 @@
+**Here are the latest developments on strikes in Lebanon.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/here-are-the-latest-developments-on-strikes-in-lebanon
+
 **Raphinha's reinvention at Barcelona: Hansi Flick has unleashed his athleticism**\
 `Barca have won seven games out of seven to begin La Liga 2024-25, and former Leeds winger Raphinha's new role has been key`\
 https://nytimes.com/athletic/5795999/2024/09/28/raphinha-barcelona-la-liga-hansi-flick-reinvention/
