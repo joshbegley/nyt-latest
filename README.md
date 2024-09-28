@@ -1,3 +1,7 @@
+**Isak out of Carabao Cup tie with toe injury - Howe**\
+`Alexander Isak is out of Newcastle United&#8217;s Carabao Cup third-round tie with AFC Wimbledon on Tuesday and will be assessed before next weekend&#8217;s trip to Everton.`\
+https://nytimes.com/athletic/5801220/2024/09/28/alexander-isak-injury-update-newcastle/
+
 **Krawczynski: Why Timberwolves decided now was the time to trade Karl-Anthony Towns**\
 `The timing of the trade was something no one saw coming. The Towns family was "stunned" a league source told The Athletic.`\
 https://nytimes.com/athletic/5800924/2024/09/28/why-timberwolves-trade-karl-anthony-towns/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/us/politics/trump-voters-ticket-splitting.html
 **Dish and DirecTV Near a Deal to Combine (Again)**\
 `The companies are in talks to create one of the largest pay-TV providers in the country. In 2002, the U.S. government blocked a similar deal.`\
 https://nytimes.com/2024/09/28/business/dealbook/dish-directv-deal.html
-
-**SpaceX to Launch Crew-9 Mission for NASA: How to Watch**\
-`Two astronauts — one American, one Russian — will launch on a flight that is set to bring the Boeing Starliner astronauts home next year.`\
-https://nytimes.com/2024/09/28/science/spacex-launch-nasa.html
 
