@@ -1,3 +1,7 @@
+**Braves' Max Fried throws a gem at a crucial time: Will it be his last home start?**\
+`As Fried walked off the field, he looked up at the crowd: "Just thanking the fans for pushing us."`\
+https://nytimes.com/athletic/5800793/2024/09/28/braves-max-fried-wild-card/
+
 **Khusnutdinov is a short-handed machine, Eriksson Ek is a net-front menace: Wild takeaways**\
 `Jets goalie Connor Hellebuyck gave up eight goals in the first two periods before John Hynes hit the brakes in the third period.`\
 https://nytimes.com/athletic/5800422/2024/09/28/minnesota-wild-takeaways-vs-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800009/2024/09/28/mlb-odds-best-bets-projections-s
 **Quote of the Day: F.D.A. Approves the First New Drug to Treat Schizophrenia in Decades**\
 `Quotation of the Day for Saturday, September 27, 2024`\
 https://nytimes.com/2024/09/27/pageoneplus/quote-of-the-day-fda-approves-the-first-new-drug-to-treat-schizophrenia-in-decades.html
-
-**One year after 106 losses, Royals clinch first postseason berth since 2015**\
-`The Royals are just the third team in MLB history to make the playoffs the year after enduring a 100 loss season.`\
-https://nytimes.com/athletic/5771785/2024/09/27/royals-clinch-playoffs-al-wild-card/
 
