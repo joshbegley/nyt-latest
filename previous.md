@@ -1,3 +1,7 @@
+**Knicks nearing trade for Karl-Anthony Towns: Sources**\
+`Towns, 28, has spent all nine years of his career with the Timberwolves since being drafted No. 1 in the 2015 NBA Draft.`\
+https://nytimes.com/athletic/5800647/2024/09/27/knicks-timberwolves-trade-karl-anthony-towns-kat/
+
 **‘I’m in Trouble Now’: North Carolinians Face Dangerous Floods From Helene**\
 `A nurse in Asheville, N.C., found herself chest deep in water in her S.U.V. before she was rescued by a police officer.`\
 https://nytimes.com/2024/09/27/weather/helene-north-carolina-flooding-asheville.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800411/2024/09/27/kristian-campbell-red-sox-offens
 **Dodgers' Shohei Ohtani surpasses Ichiro milestone**\
 `DENVER — With the division and a first-round bye secured, Los Angeles Dodgers manager Dave Roberts reemphasized the green light for Shohei Ohtani during the superstar’s prolific season.`\
 https://nytimes.com/athletic/5800534/2024/09/27/dodgers-shohei-ohtani-ichiro-record/
-
-**A Family’s Desperate Flight Through Helene’s Rising Floodwaters**\
-`When a family in Shore Acres, Fla., feared the water would rise to their roof, they made a decision to swim out to safety.`\
-https://nytimes.com/2024/09/27/weather/shore-acres-flooding.html
 

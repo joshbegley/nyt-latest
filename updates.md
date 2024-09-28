@@ -1,3 +1,7 @@
+**Knicks nearing trade for Karl-Anthony Towns: Sources**\
+`Towns, 28, has spent all nine years of his career with the Timberwolves since being drafted No. 1 in the 2015 NBA Draft.`\
+https://nytimes.com/athletic/5800647/2024/09/27/knicks-timberwolves-trade-karl-anthony-towns-kat/
+
 **‘I’m in Trouble Now’: North Carolinians Face Dangerous Floods From Helene**\
 `A nurse in Asheville, N.C., found herself chest deep in water in her S.U.V. before she was rescued by a police officer.`\
 https://nytimes.com/2024/09/27/weather/helene-north-carolina-flooding-asheville.html
