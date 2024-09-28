@@ -1,3 +1,7 @@
+**Explained: Two controversial goals, a USMNT striker and a lack of VAR**\
+`There was controversy in Saturday&#8217;s Championship clash between Derby County and Norwich City.`\
+https://nytimes.com/athletic/5801175/2024/09/28/norwich-goals-derby-var-no-championship/
+
 **Isak out of Carabao Cup tie with toe injury - Howe**\
 `Alexander Isak is out of Newcastle United&#8217;s Carabao Cup third-round tie with AFC Wimbledon on Tuesday and will be assessed before next weekend&#8217;s trip to Everton.`\
 https://nytimes.com/athletic/5801220/2024/09/28/alexander-isak-injury-update-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/us/politics/trump-walz-football-alabama-michigan.
 **Trump Voters Drive a Rise in Ticket Splitting**\
 `Ticket splitters in key presidential battlegrounds and Ohio tend to be supporters of Donald J. Trump who are skeptical of his picks for Senate, polling shows.`\
 https://nytimes.com/2024/09/28/us/politics/trump-voters-ticket-splitting.html
-
-**Dish and DirecTV Near a Deal to Combine (Again)**\
-`The companies are in talks to create one of the largest pay-TV providers in the country. In 2002, the U.S. government blocked a similar deal.`\
-https://nytimes.com/2024/09/28/business/dealbook/dish-directv-deal.html
 
