@@ -1,3 +1,11 @@
+**Antônio Delfim Netto, Brazilian Economic Czar, Dies at 96**\
+`He was credited for the high-growth economy during the early years of Brazil’s long military dictatorship. But critics said his policies brought only short-lived gains.`\
+https://nytimes.com/2024/09/28/world/americas/antonio-delfim-netto-dead.html
+
+**Fantasy football rankings Week 4: Sleepers, projections, starts, sits**\
+`Jake Ciely offers up his Week 4 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
+https://nytimes.com/athletic/5791981/2024/09/28/fantasy-football-rankings-week-4-sleepers-projections-start-sit/
+
 **Schumaker leaves Marlins to become winter’s top target: Reports**\
 `Skip Schumaker, who has long been expected to be the most sought after manager in the big leagues this winter, informed Miami Marlins players after their 15-5 victory Friday in Toronto he would not be returning for 2025, according to multiple reports Saturday.`\
 https://nytimes.com/athletic/5801417/2024/09/28/skip-schumaker-leaves-marlins/
