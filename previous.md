@@ -2,7 +2,7 @@
 `Barcelona&#8217;s perfect start to the season in La Liga came to an emphatic end with a 4-2 defeat at Osasuna.`\
 https://nytimes.com/athletic/5801771/2024/09/28/barcelona-defeat-osasuna-la-liga/
 
-**Jaxson Dart is a tough NFL Draft evaluation, and Kentucky loss proves why**\
+**Jaxson Dart is a tough NFL Draft evaluation, and loss to Kentucky proves why**\
 `The talented QB had been putting up huge numbers, but he struggled when Kentucky slowed down Ole Miss' attack.`\
 https://nytimes.com/athletic/5801685/2024/09/28/jaxson-dart-nfl-draft-2025-scouting/
 
