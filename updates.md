@@ -1,3 +1,7 @@
+**Is Notre Dame optimism back after beating Louisville? Irish takeaways**\
+`Saturday felt like a referendum on Notre Dame with Marcus Freeman and Riley Leonard. The Irish passed the test.`\
+https://nytimes.com/athletic/5801870/2024/09/28/notre-dame-louisville-score-college-football/
+
 **Newsom Vetoes Bill Requiring Cars to Warn Speeding Drivers**\
 `The legislation would have made California the first state in the nation to require intelligent speed assistance technology in vehicles.`\
 https://nytimes.com/2024/09/28/business/california-speeding-car-alert.html

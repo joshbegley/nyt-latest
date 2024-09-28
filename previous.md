@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5801954/2024/09/28/dodgers-national-league-top-play
 `USC improves to 3-1 while Wisconsin falls to 2-2 with a tough road ahead. `\
 https://nytimes.com/athletic/5801882/2024/09/28/usc-wisconsin-score-analysis-college-football/
 
-**Notre Dame kept hope for the 2024 season alive by beating Louisville: Irish takeaways**\
+**Is Notre Dame optimism back after beating Louisville? Irish takeaways**\
 `Saturday felt like a referendum on Notre Dame with Marcus Freeman and Riley Leonard. The Irish passed the test.`\
 https://nytimes.com/athletic/5801870/2024/09/28/notre-dame-louisville-score-college-football/
 
