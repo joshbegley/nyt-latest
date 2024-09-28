@@ -1,3 +1,7 @@
+**Quote of the Day: F.D.A. Approves the First New Drug to Treat Schizophrenia in Decades**\
+`Quotation of the Day for Saturday, September 27, 2024`\
+https://nytimes.com/2024/09/27/pageoneplus/quote-of-the-day-fda-approves-the-first-new-drug-to-treat-schizophrenia-in-decades.html
+
 **One year after 106 losses, Royals clinch first postseason berth since 2015**\
 `The Royals are just the third team in MLB history to make the playoffs the year after enduring a 100 loss season.`\
 https://nytimes.com/athletic/5771785/2024/09/27/royals-clinch-playoffs-al-wild-card/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/weather/helene-north-carolina-flooding-asheville.
 **Rustic Respites**\
 `Margaret Seikel’s first Saturday puzzle is bound to hook you.`\
 https://nytimes.com/2024/09/27/crosswords/daily-puzzle-2024-09-28.html
-
-**Trump Criticizes Harris on the Border and the Economy in Michigan**\
-`Donald Trump used a pair of events to try to blame Kamala Harris for inflation and the migrant crisis, tapping into themes that helped him win Michigan in 2016.`\
-https://nytimes.com/2024/09/27/us/politics/trump-michigan-immigration-economy.html
 
