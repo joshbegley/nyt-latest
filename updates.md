@@ -1,3 +1,7 @@
+**Michigan questions piling up after surviving 4th-quarter meltdown against Minnesota**\
+`Michigan hung on to beat Minnesota 27-24 after giving up 21 fourth-quarter points — and getting help from a penalty on an onside kick.`\
+https://nytimes.com/athletic/5801548/2024/09/28/michigan-minnesota-score-onside-kick-penalty/
+
 **Cooper says Leicester suffered referee's 'poor decisions' in Arsenal defeat**\
 `Leicester City manager Steve Cooper says his side suffered from &#8220;two poor decisions&#8221; during their 4-2 defeat at Arsenal.`\
 https://nytimes.com/athletic/5801607/2024/09/28/steve-cooper-leicester-arsenal-referee-decisions/
