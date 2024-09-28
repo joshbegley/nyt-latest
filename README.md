@@ -1,3 +1,7 @@
+**Hezbollah’s Victims Are Expressing Relief at Its Disarray**\
+`Amid widespread condemnation of Israel’s massive strikes, Syrian communities persecuted by Hezbollah forces voiced cautious, and sometimes exuberant, celebration.`\
+https://nytimes.com/2024/09/28/world/middleeast/hezbollahs-victims-are-expressing-relief-at-its-disarray.html
+
 **After Your Death, Who Takes Care of the Dog?**\
 `A pet trust designates a new guardian for companion animals and sets aside funds for their care. Better yet, it’s legally binding.`\
 https://nytimes.com/2024/09/28/health/pet-trusts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/opinion/darfur-sudan-atrocities.html
 **Sally Rooney Is the Least Interesting Thing About Her Novels**\
 `To truly appreciate her novels, we have to stop imagining that they’re all about her, or about us.`\
 https://nytimes.com/2024/09/28/opinion/sally-rooney-intermezzo-generation.html
-
-**Each NHL team’s biggest breakout candidate for 2024-25**\
-`With the regular season right around the corner, fantasy drafts scheduled and optimism booming, which players are ready to make the leap?`\
-https://nytimes.com/athletic/5780498/2024/09/28/nhl-2024-25-breakout-players/
 
