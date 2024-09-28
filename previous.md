@@ -1,3 +1,11 @@
+**Russini’s what I’m hearing: Caleb Williams is not Bryce Young; Kelce problems; Love, Willis or both?**\
+`Plus, the difference for Josh Allen and his new Bills weapons, Haason Reddick holdout update and the 49ers' other problem.`\
+https://nytimes.com/athletic/5800719/2024/09/28/nfl-week-4-jordan-love-injury-malik-willis-travis-kelce-problems-caleb-williams-bryce-young-comparisons/
+
+**A Decimated Hezbollah Is a Serious Blow to Iran**\
+`How Iran responds to the death of the Lebanese militia’s leader, Hassan Nasrallah, in an Israeli airstrike will affect the region, and beyond.`\
+https://nytimes.com/2024/09/28/world/middleeast/iran-hezbollah-israel-nasrallah-strike.html
+
 **Hassan Nasrallah, Who Led Hezbollah for Decades, Killed at 64**\
 `In 32 years in charge of Hezbollah, Mr. Nasrallah built the Iranian-backed militia into an influential regional force and a potent adversary of Israel.`\
 https://nytimes.com/2024/09/28/world/middleeast/hassan-nasrallah-hezbollah-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/28/business/dealbook/lina-khan-interview.html
 **As Hezbollah Pursued a Limited War, Israel Went for a Knockout**\
 `The militia group seemed content to trade blows with Israel while avoiding a major conflict. A strike that killed its leader proves it miscalculated.`\
 https://nytimes.com/2024/09/28/world/middleeast/hezbollah-hassan-nasrallah-next-steps.html
-
-**Edwards: Karl-Anthony Towns doesn't undoubtedly make Knicks better**\
-`The best player in the trade is coming to New York. But does it clearly make the Knicks better?`\
-https://nytimes.com/athletic/5800875/2024/09/28/karl-anthony-towns-knicks-fit/
-
-**Hollinger: Why Towns-for-Randle trade may turn 'best player' maxim on its head**\
-`Did the Knicks needlessly chase an expensive shiny object? Or did both teams actually do the right thing here?`\
-https://nytimes.com/athletic/5800986/2024/09/28/towns-randle-knicks-timberwolves-trade-analysis/
 

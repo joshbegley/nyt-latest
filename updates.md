@@ -1,3 +1,11 @@
+**Russini’s what I’m hearing: Caleb Williams is not Bryce Young; Kelce problems; Love, Willis or both?**\
+`Plus, the difference for Josh Allen and his new Bills weapons, Haason Reddick holdout update and the 49ers' other problem.`\
+https://nytimes.com/athletic/5800719/2024/09/28/nfl-week-4-jordan-love-injury-malik-willis-travis-kelce-problems-caleb-williams-bryce-young-comparisons/
+
+**A Decimated Hezbollah Is a Serious Blow to Iran**\
+`How Iran responds to the death of the Lebanese militia’s leader, Hassan Nasrallah, in an Israeli airstrike will affect the region, and beyond.`\
+https://nytimes.com/2024/09/28/world/middleeast/iran-hezbollah-israel-nasrallah-strike.html
+
 **Hassan Nasrallah, Who Led Hezbollah for Decades, Killed at 64**\
 `In 32 years in charge of Hezbollah, Mr. Nasrallah built the Iranian-backed militia into an influential regional force and a potent adversary of Israel.`\
 https://nytimes.com/2024/09/28/world/middleeast/hassan-nasrallah-hezbollah-dead.html
