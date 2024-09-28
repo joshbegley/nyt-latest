@@ -1,3 +1,11 @@
+**The Ayes Have It**\
+`Joe Deeney’s puzzle passes unanimously.`\
+https://nytimes.com/2024/09/28/crosswords/daily-puzzle-2024-09-29.html
+
+**As Hezbollah Threat Loomed, Israel Built Up Its Spy Agencies**\
+`After the 2006 war with Hezbollah, Israel invested heavily to intercept the group’s communications and track its commanders in a shadowy war that ultimately led to the killing of the group’s leader.`\
+https://nytimes.com/2024/09/28/us/politics/hezbollah-israel.html
+
 **Patient Exposed to Bat in Minnesota Dies From Rabies, Officials Say**\
 `The death, which was reported on Friday, is only the fifth fatal human rabies case in Minnesota since 1975, health officials said.`\
 https://nytimes.com/2024/09/28/health/minnesota-rabies-death-bat.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/28/world/middleeast/hezbollah-leaders-who-remains.ht
 **Jose Alvarado, Pelicans reach 2-year, $9 million extension**\
 `Alvarado, 26, was set to become a free agent in 2025 and play the upcoming season on a player option just under $2 million.`\
 https://nytimes.com/athletic/5801715/2024/09/28/jose-alvarado-pelicans-extension/
-
-**Tracking Tropical Storm Krathon**\
-`See the likely path and wind arrival times for Krathon.`\
-https://nytimes.com/interactive/2024/09/28/weather/krathon-map-path-tracker.html
-
-**Jordan Love expected to return from knee injury vs. Vikings**\
-`Malik Willis started with Love sidelined, going 25-of-34 passing, throwing for 324 yards, two touchdowns and no interceptions.`\
-https://nytimes.com/athletic/5801631/2024/09/28/packers-jordan-love-injury-starting-malik-willis/
 
