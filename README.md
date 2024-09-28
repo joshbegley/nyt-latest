@@ -1,3 +1,7 @@
+**Candidate for North Carolina Governor Treated for Burns, Campaign Says**\
+`Lt. Gov. Mark Robinson, the embattled Republican nominee for governor of North Carolina, was treated after attending a campaign event in Mount Airy, N.C.`\
+https://nytimes.com/2024/09/27/us/politics/mark-robinson-north-carolina-hospitalized-burns.html
+
 **Mets' Francisco Alvarez leaves game with back injury**\
 `The Mets said Alvarez exited the game with back spasms.`\
 https://nytimes.com/athletic/5800722/2024/09/27/mets-francisco-alvarez-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800601/2024/09/27/matt-chapman-sf-giants-willie-ma
 **Harris, at the Border, Shows Democrats’ Hard-Line Evolution on Immigration**\
 `Vowing to carry on President Biden’s crackdown on asylum and to impose order on the southern border, the vice president demonstrated how much the politics of immigration have changed.`\
 https://nytimes.com/2024/09/27/us/politics/harris-border-immigration-arizona.html
-
-**Why Hurricane Helene Was So Strong**\
-`In just over 12 hours, Hurricane Helene transformed from a Category 1 to a Category 4 hurricane — the strongest ever to hit the Big Bend coast of Florida. Judson Jones, a meteorologist and reporter for The New York Times covering extreme weather, explains why it grew so strong.`\
-https://nytimes.com/video/weather/100000009725558/why-hurricane-helene-was-so-strong.html
 
