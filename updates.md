@@ -1,3 +1,7 @@
+**When to Vote in Your State**\
+`See the important deadlines for registering to vote, mailing ballots and voting early in person.`\
+https://nytimes.com/interactive/2024/us/elections/voting-deadlines-state.html
+
 **World anti-doping agency seeks ban of up to two years in Jannik Sinner case appeal**\
 `WADA has lodged an appeal of the "no fault or negligence" finding in Jannik Sinner's anti-doping investigation for clostebol.`\
 https://nytimes.com/athletic/5801008/2024/09/28/jannik-sinner-doping-wada-appeal/
