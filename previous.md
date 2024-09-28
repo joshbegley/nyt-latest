@@ -1,3 +1,7 @@
+**Cooper says Leicester suffered referee's 'poor decisions' in Arsenal defeat**\
+`Leicester City manager Steve Cooper says his side suffered from &#8220;two poor decisions&#8221; during their 4-2 defeat at Arsenal.`\
+https://nytimes.com/athletic/5801607/2024/09/28/steve-cooper-leicester-arsenal-referee-decisions/
+
 **Ole Miss stunned at home by Kentucky: How did Wildcats upend Rebels' Playoff hopes?**\
 `Kentucky upset No. 6 Ole Miss 20-17 after a last-minute Rebels field goal attempt missed. Here's how it happened and what it means.`\
 https://nytimes.com/athletic/5801593/2024/09/28/ole-miss-kentucky-football-score-lane-kiffin/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/nasrallahs-de
 **Fantasy football rankings Week 4: Sleepers, projections, starts, sits**\
 `Jake Ciely offers up his Week 4 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
 https://nytimes.com/athletic/5791981/2024/09/28/fantasy-football-rankings-week-4-sleepers-projections-start-sit/
-
-**Schumaker leaves Marlins to become winter’s top target: Reports**\
-`Skip Schumaker, who has long been expected to be the most sought after manager in the big leagues this winter, informed Miami Marlins players after their 15-5 victory Friday in Toronto he would not be returning for 2025, according to multiple reports Saturday.`\
-https://nytimes.com/athletic/5801417/2024/09/28/skip-schumaker-leaves-marlins/
 

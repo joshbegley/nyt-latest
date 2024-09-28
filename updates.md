@@ -1,3 +1,7 @@
+**Cooper says Leicester suffered referee's 'poor decisions' in Arsenal defeat**\
+`Leicester City manager Steve Cooper says his side suffered from &#8220;two poor decisions&#8221; during their 4-2 defeat at Arsenal.`\
+https://nytimes.com/athletic/5801607/2024/09/28/steve-cooper-leicester-arsenal-referee-decisions/
+
 **Ole Miss stunned at home by Kentucky: How did Wildcats upend Rebels' Playoff hopes?**\
 `Kentucky upset No. 6 Ole Miss 20-17 after a last-minute Rebels field goal attempt missed. Here's how it happened and what it means.`\
 https://nytimes.com/athletic/5801593/2024/09/28/ole-miss-kentucky-football-score-lane-kiffin/
