@@ -1,3 +1,7 @@
+**Braves' Max Fried throws a gem at a crucial time: Will it be his last home start?**\
+`As Fried walked off the field, he looked up at the crowd: "Just thanking the fans for pushing us."`\
+https://nytimes.com/athletic/5800793/2024/09/28/braves-max-fried-wild-card/
+
 **Khusnutdinov is a short-handed machine, Eriksson Ek is a net-front menace: Wild takeaways**\
 `Jets goalie Connor Hellebuyck gave up eight goals in the first two periods before John Hynes hit the brakes in the third period.`\
 https://nytimes.com/athletic/5800422/2024/09/28/minnesota-wild-takeaways-vs-jets/
