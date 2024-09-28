@@ -1,3 +1,7 @@
+**Arch Manning starting Texas' SEC opener vs. Mississippi State**\
+`Quinn Ewers has been recovering from a strained oblique suffered in the second quarter of Texas’ Sept. 14 win against UTSA.`\
+https://nytimes.com/athletic/5801471/2024/09/28/arch-manning-starting-texas-mississippi-state/
+
 **Arteta speaks of 'love and respect' for Guardiola and Man City staff**\
 `Mikel Arteta has spoken of his &#8220;love and respect&#8221; for Pep Guardiola and his Manchester City staff after being asked to clarify his comments on the club.`\
 https://nytimes.com/athletic/5801493/2024/09/28/mikel-arteta-arsenal-manchester-city-guardiola/
