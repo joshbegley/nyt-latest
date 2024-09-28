@@ -1,3 +1,7 @@
+**Can Hezbollah Recover From the Death of Its Most Commanding Leader?**\
+`Hassan Nasrallah’s killing raises questions about whether the group can strike back at Israel. But U.S. officials say it’s too soon to count the group out.`\
+https://nytimes.com/2024/09/28/world/middleeast/hezbollah-nasrallah-future.html
+
 **Nuno says referee 'did not do a good job' in Forest defeat to Fulham**\
 `Nuno Espirito Santo says he is fed up of complaining about referees after Nottingham Forest were defeated 1-0 by Fulham.`\
 https://nytimes.com/athletic/5801435/2024/09/28/nuno-nottingham-forest-fulham-penalty/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801309/2024/09/28/jeff-passan-espn-nba-adrian-wojn
 **Arsenal 4 Leicester 2: Trossard's late goal sparks delight, Nwaneri impact, defensive lapses**\
 `Arsenal beat Leicester 4-2 after two late, late strikes at The Emirates from Trossard and Havertz. Here we break down the talking points...`\
 https://nytimes.com/athletic/5793727/2024/09/28/arsenal-4-leicester-2-result-trossard-nwaneri/
-
-**Was the Miami-Virginia Tech call correct? Here’s what you need to know**\
-`What were the referees looking at? Was there indisputable evidence to overturn the call? Why did it take so long?`\
-https://nytimes.com/athletic/5801240/2024/09/28/miami-virginia-tech-haily-mary-acc-officials/
 
