@@ -1,3 +1,7 @@
+**When to Vote in Your State**\
+`See the important deadlines for registering to vote, mailing ballots and voting early in person.`\
+https://nytimes.com/interactive/2024/us/elections/voting-deadlines-state.html
+
 **World anti-doping agency seeks ban of up to two years in Jannik Sinner case appeal**\
 `WADA has lodged an appeal of the "no fault or negligence" finding in Jannik Sinner's anti-doping investigation for clostebol.`\
 https://nytimes.com/athletic/5801008/2024/09/28/jannik-sinner-doping-wada-appeal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/weather/helene-tennessee-nolichucky-dam-evacuatio
 **Shohei Ohtani’s latest quest: The first NL Triple Crown since 1937. Is it possible?**\
 `Ohtani's hot streak puts him within range of catching Luis Arraez for the batting title: “Shohei, man, he put on a show tonight."`\
 https://nytimes.com/athletic/5800842/2024/09/28/shohei-ohtani-triple-crown-possibility/
-
-**Trade grades: Who won Karl-Anthony Towns, Julius Randle swap?**\
-`This trade is a massive gamble for both the Knicks and Timberwolves. Does it get either team closer to a title?`\
-https://nytimes.com/athletic/5800699/2024/09/28/knicks-timberwolves-karl-anthony-towns-trade-grades/
 
