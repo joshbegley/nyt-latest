@@ -1,3 +1,7 @@
+**Amid Lebanon Strike, Defiant Netanyahu Declares that Israel Is ‘Winning’**\
+`The Israeli prime minister castigated Israel’s critics and the United Nations itself during his visit to New York for the U.N. General Assembly.`\
+https://nytimes.com/2024/09/27/us/politics/netanyahu-israel-un.html
+
 **In Atlanta, Flooding From Helene Forced Some Residents to Wade to Safety**\
 `In the Buckhead neighborhood, waters from a swollen creek rushed into low-lying apartments.`\
 https://nytimes.com/2024/09/27/weather/atlanta-flooding-buckhead.html
