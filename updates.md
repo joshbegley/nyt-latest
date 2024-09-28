@@ -1,3 +1,7 @@
+**Skip Schumaker reportedly leaves Marlins to become winter’s top managerial target**\
+`Skip Schumaker, who has long been expected to be the most sought after manager in the big leagues this winter, informed Miami Marlins players after their 15-5 victory on Friday night in Toronto that he would not be returning for 2025, according to multiple published reports.`\
+https://nytimes.com/athletic/5801417/2024/09/28/skip-schumaker-leaves-marlins/
+
 **Arch Manning starting Texas' SEC opener vs. Mississippi State**\
 `Quinn Ewers has been recovering from a strained oblique suffered in the second quarter of Texas’ Sept. 14 win against UTSA.`\
 https://nytimes.com/athletic/5801471/2024/09/28/arch-manning-starting-texas-mississippi-state/
