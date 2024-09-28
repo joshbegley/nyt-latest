@@ -1,3 +1,11 @@
+**2,000-Pound Bombs Likely Used in Attack That Killed Nasrallah, Video Shows**\
+`A Times analysis of video from the Israeli military shows that at least eight planes it said were used in the attack on Hassan Nasrallah were armed with bunker-buster bombs.`\
+https://nytimes.com/2024/09/28/world/middleeast/israel-nasrallah-bunker-buster-bombs.html
+
+**Michigan takeaways: Questions piling up after near-meltdown against Minnesota**\
+`Michigan hung on to beat Minnesota 27-24 after giving up 21 fourth-quarter points — and getting help from a penalty on an onside kick.`\
+https://nytimes.com/athletic/5801548/2024/09/28/michigan-minnesota-score-onside-kick-penalty/
+
 **Barcelona's perfect La Liga start ends with 4-2 defeat at Osasuna**\
 `Barcelona&#8217;s perfect start to the season in La Liga came to an emphatic end with a 4-2 defeat at Osasuna.`\
 https://nytimes.com/athletic/5801771/2024/09/28/barcelona-defeat-osasuna-la-liga/
