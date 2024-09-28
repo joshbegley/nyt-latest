@@ -1,3 +1,7 @@
+**Here Is Who Remains in Hezbollah’s Leadership**\
+`Israel has recently killed several commanders of the Lebanese militia, including its longtime leader, Hassan Nasrallah.`\
+https://nytimes.com/2024/09/28/world/middleeast/hezbollah-leaders-who-remains.html
+
 **Jose Alvarado, Pelicans reach 2-year, $9 million extension**\
 `Alvarado, 26, was set to become a free agent in 2025 and play the upcoming season on a player option just under $2 million.`\
 https://nytimes.com/athletic/5801715/2024/09/28/jose-alvarado-pelicans-extension/

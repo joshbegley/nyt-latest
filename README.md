@@ -1,3 +1,15 @@
+**Barcelona's perfect La Liga start ends with 4-2 defeat at Osasuna**\
+`Barcelona&#8217;s perfect start to the season in La Liga came to an emphatic end with a 4-2 defeat at Osasuna.`\
+https://nytimes.com/athletic/5801771/2024/09/28/barcelona-defeat-osasuna-la-liga/
+
+**Jaxson Dart is a tough NFL Draft evaluation, and Kentucky loss proves why**\
+`The talented QB had been putting up huge numbers, but he struggled when Kentucky slowed down Ole Miss' attack.`\
+https://nytimes.com/athletic/5801685/2024/09/28/jaxson-dart-nfl-draft-2025-scouting/
+
+**2,000-Pound Bombs Likely Used in Attack That Killed Nasrallah, Video Shows**\
+`A Times analysis of video from the Israeli military shows that at least eight planes it said were used in the attack on Hassan Nasrallah were armed with bunker-buster bombs.`\
+https://nytimes.com/2024/09/28/world/middleeast/israel-nasrallah-bombs.html
+
 **Here Is Who Remains in Hezbollah’s Leadership**\
 `Israel has recently killed several commanders of the Lebanese militia, including its longtime leader, Hassan Nasrallah.`\
 https://nytimes.com/2024/09/28/world/middleeast/hezbollah-leaders-who-remains.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5801548/2024/09/28/michigan-minnesota-score-onside-
 **Cooper says Leicester suffered referee's 'poor decisions' in Arsenal defeat**\
 `Leicester City manager Steve Cooper says his side suffered from &#8220;two poor decisions&#8221; during their 4-2 defeat at Arsenal.`\
 https://nytimes.com/athletic/5801607/2024/09/28/steve-cooper-leicester-arsenal-referee-decisions/
-
-**How Kentucky gave a reality check to Ole Miss and its hopes of being elite**\
-`Kentucky upset No. 6 Ole Miss 20-17 after a last-minute Rebels field goal attempt missed. Here's how it happened and what it means.`\
-https://nytimes.com/athletic/5801593/2024/09/28/ole-miss-kentucky-football-score-lane-kiffin/
-
-**Protesters mourn Nasrallah’s death beyond Lebanon.**\
-`By The New York Times`\
-https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/protesters-mourn-nasrallahs-death-around-the-world
-
-**Rexrode: If Nick Saban wants to help college football, he should be realistic about it**\
-`Saban has been a welcome addition to "GameDay," but he has a lot of work to do on what’s actually happening with the economics of the sport.`\
-https://nytimes.com/athletic/5801526/2024/09/28/nick-saban-nil-college-football-espn-gameday/
 

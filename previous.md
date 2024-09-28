@@ -1,3 +1,7 @@
+**Here Is Who Remains in Hezbollah’s Leadership**\
+`Israel has recently killed several commanders of the Lebanese militia, including its longtime leader, Hassan Nasrallah.`\
+https://nytimes.com/2024/09/28/world/middleeast/hezbollah-leaders-who-remains.html
+
 **Jose Alvarado, Pelicans reach 2-year, $9 million extension**\
 `Alvarado, 26, was set to become a free agent in 2025 and play the upcoming season on a player option just under $2 million.`\
 https://nytimes.com/athletic/5801715/2024/09/28/jose-alvarado-pelicans-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/protesters-mo
 **Rexrode: If Nick Saban wants to help college football, he should be realistic about it**\
 `Saban has been a welcome addition to "GameDay," but he has a lot of work to do on what’s actually happening with the economics of the sport.`\
 https://nytimes.com/athletic/5801526/2024/09/28/nick-saban-nil-college-football-espn-gameday/
-
-**Nebraska survives trip to Purdue: Takeaways from an ugly win in West Lafayette**\
-`The mantra for Nebraska when it plays at Purdue has never been anything but these four words: survive and get out. Mission accomplished.`\
-https://nytimes.com/athletic/5801562/2024/09/28/nebraska-purdue-dylan-raiola-matt-rhule/
 
