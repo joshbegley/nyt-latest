@@ -1,3 +1,7 @@
+**Khusnutdinov is a short-handed machine, Eriksson Ek is a net-front menace: Wild takeaways**\
+`Jets goalie Connor Hellebuyck gave up eight goals in the first two periods before John Hynes hit the brakes in the third period.`\
+https://nytimes.com/athletic/5800422/2024/09/28/minnesota-wild-takeaways-vs-jets/
+
 **Here are the latest developments on strikes in Lebanon.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/here-are-the-latest-developments-on-strikes-in-lebanon
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/pageoneplus/quote-of-the-day-fda-approves-the-fir
 **One year after 106 losses, Royals clinch first postseason berth since 2015**\
 `The Royals are just the third team in MLB history to make the playoffs the year after enduring a 100 loss season.`\
 https://nytimes.com/athletic/5771785/2024/09/27/royals-clinch-playoffs-al-wild-card/
-
-**Israel’s Military Issues More Evacuation Warnings in Southern Beirut**\
-`The military struck targets throughout the night that it said were tied to Hezbollah.`\
-https://nytimes.com/2024/09/27/world/middleeast/evacuations-beirut-strikes-israel.html
 
