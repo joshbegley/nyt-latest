@@ -1,3 +1,7 @@
+**Yes, You Can Swim in Louboutins**\
+`Christian Louboutin enlisted the French Olympic synchronized swimming team to introduce his new Miss Z stilettos at Paris Fashion Week.`\
+https://nytimes.com/2024/09/28/style/louboutin-fashion-week-france-olympic-swim-team.html
+
 **Explained: Two controversial goals, a USMNT striker and a lack of VAR**\
 `There was controversy in Saturday&#8217;s Championship clash between Derby County and Norwich City.`\
 https://nytimes.com/athletic/5801175/2024/09/28/norwich-goals-derby-var-no-championship/

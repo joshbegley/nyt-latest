@@ -1,3 +1,11 @@
+**Haaland 'knocks' to be assessed - Guardiola**\
+`Pep Guardiola says Erling Haaland will be assessed in the coming days after picking up &#8220;knocks&#8221; during Manchester City&#8217;s 1-1 draw at Newcastle United on Saturday.`\
+https://nytimes.com/athletic/5801211/2024/09/28/erling-haaland-injury-man-city-guardiola/
+
+**At Least 66 Die as Persistent Monsoon Rains Inundate Nepal**\
+`Disasters in the small Himalayan nation have become more frequent as the effects of climate change increase.`\
+https://nytimes.com/2024/09/28/world/asia/nepal-floods.html
+
 **Yes, You Can Swim in Louboutins**\
 `Christian Louboutin enlisted the French Olympic synchronized swimming team to introduce his new Miss Z stilettos at Paris Fashion Week.`\
 https://nytimes.com/2024/09/28/style/louboutin-fashion-week-france-olympic-swim-team.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/28/world/middleeast/iran-hezbollah-israel-nasrallah-
 **Hassan Nasrallah, Who Led Hezbollah for Decades, Killed at 64**\
 `In 32 years in charge of Hezbollah, Mr. Nasrallah built the Iranian-backed militia into an influential regional force and a potent adversary of Israel.`\
 https://nytimes.com/2024/09/28/world/middleeast/hassan-nasrallah-hezbollah-dead.html
-
-**The Briefing: Newcastle 1-1 Manchester City - How do you cope without Isak or Rodri?**\
-`Newcastle and Manchester City were both without key players for their Premier League clash at St James' Park`\
-https://nytimes.com/athletic/5793725/2024/09/28/newcastle-1-1-manchester-city/
-
-**The Fans Want to Watch Football. Trump and Walz Will Be There, Too.**\
-`Donald Trump and Tim Walz are attending college games on Saturday that will draw plenty of viewers in the swing states of Michigan and Georgia.`\
-https://nytimes.com/2024/09/28/us/politics/trump-walz-football-alabama-michigan.html
 
