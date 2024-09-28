@@ -1,3 +1,7 @@
+**Can Hezbollah Recover From the Death of Its Most Commanding Leader?**\
+`Hassan Nasrallah’s killing raises questions about whether the group can strike back at Israel. But U.S. officials say it’s too soon to count the group out.`\
+https://nytimes.com/2024/09/28/world/middleeast/hezbollah-nasrallah-future.html
+
 **Nuno says referee 'did not do a good job' in Forest defeat to Fulham**\
 `Nuno Espirito Santo says he is fed up of complaining about referees after Nottingham Forest were defeated 1-0 by Fulham.`\
 https://nytimes.com/athletic/5801435/2024/09/28/nuno-nottingham-forest-fulham-penalty/
