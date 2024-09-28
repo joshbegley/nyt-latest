@@ -1,3 +1,7 @@
+**The Briefing: Wolves 1 Liverpool 2 - How a first 'ugly' win left Slot top of the table**\
+`The major talking points analysed from Molineux as Liverpool's fine start to the season continued`\
+https://nytimes.com/athletic/5796363/2024/09/28/wolves-liverpool-premier-league-result/
+
 **Can Hezbollah Recover From the Death of Its Most Commanding Leader?**\
 `Hassan Nasrallah’s killing raises questions about whether the group can strike back at Israel. But U.S. officials say it’s too soon to count the group out.`\
 https://nytimes.com/2024/09/28/world/middleeast/hezbollah-nasrallah-future.html
