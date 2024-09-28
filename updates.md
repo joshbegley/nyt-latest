@@ -1,4 +1,8 @@
 **World anti-doping agency seeks ban of up to two years in Jannik Sinner case appeal**\
+`WADA has lodged an appeal of the "no fault or negligence" finding in Jannik Sinner's anti-doping investigation for clostebol.`\
+https://nytimes.com/athletic/5801008/2024/09/28/jannik-sinner-doping-wada-appeal/
+
+**World anti-doping agency seeks ban of up to two years in Jannik Sinner case appeal**\
 `World Anti-Doping Agency is appealing the "no fault or negligence" finding in Jannik Sinner's anti-doping investigation for clostebol.`\
 https://nytimes.com/athletic/5801008/2024/09/28/jannik-sinner-doping-wada-appeal/
 
