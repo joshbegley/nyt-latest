@@ -1,3 +1,7 @@
+**Arteta speaks of 'love and respect' for Guardiola and Man City staff**\
+`Mikel Arteta has spoken of his &#8220;love and respect&#8221; for Pep Guardiola and his Manchester City staff after being asked to clarify his comments on the club.`\
+https://nytimes.com/athletic/5801493/2024/09/28/mikel-arteta-arsenal-manchester-city-guardiola/
+
 **The Briefing: Wolves 1 Liverpool 2 - How a first 'ugly' win left Slot top of the table**\
 `The major talking points analysed from Molineux as Liverpool's fine start to the season continued`\
 https://nytimes.com/athletic/5796363/2024/09/28/wolves-liverpool-premier-league-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/us/politics/hezbollah-strike-nasrallah-biden-neta
 **Despair, celebration and shock followed the news of Nasrallah’s death in Beirut.**\
 `By Vivian Yee, Christina Goldbaum, Hwaida Saad and Jacob Roubai`\
 https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/despair-celebration-and-shock-followed-the-news-of-nasrallahs-death-in-beirut
-
-**Jeff Passan, ESPN's MLB insider, is a candidate to replace Woj**\
-`Jeff Passan has emerged as a candidate, along with The Athletic's Shams Charania, to switch sports and replace Adrian Wojnarowski at ESPN.`\
-https://nytimes.com/athletic/5801309/2024/09/28/jeff-passan-espn-nba-adrian-wojnarowski-shams-charania/
 
