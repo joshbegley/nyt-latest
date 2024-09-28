@@ -1,3 +1,11 @@
+**What I’m seeing from the Wild: Opening-night lineup starts to become clearer**\
+`With training camp 10 days in and the season opener fast approaching, mass cuts are on the horizon for the Wild.`\
+https://nytimes.com/athletic/5801820/2024/09/28/wild-opening-night-lineup-roster-cuts/
+
+**FIFA announces 2025 Club World Cup venues**\
+`FIFA president Gianni Infantino confirmed the full list of venues on Saturday evening at the Global Citizen Festival in Central Park, N.Y.`\
+https://nytimes.com/athletic/5798811/2024/09/28/club-world-cup-2025-venues/
+
 **As waters raged, a North Carolina man recorded a goodbye: ‘I love everybody.’**\
 `By Mark Barrett`\
 https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/north-carolina-flooding-helene-goodbye-recording
