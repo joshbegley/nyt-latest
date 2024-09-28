@@ -1,3 +1,11 @@
+**Mets, Braves need weekend sweeps to avoid playing Monday: Latest NL playoff scenarios**\
+`The Braves, Mets and D-Backs are essentially tied. What the Mets, in particular, desperately want to avoid is the Max Chaos scenario. `\
+https://nytimes.com/athletic/5801394/2024/09/28/mets-braves-diamondbacks-mlb-playoff-scenarios/
+
+**The people of tiny Cedar Key wonder how many storm cleanups they can endure.**\
+`By Abigail Geiger`\
+https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/the-people-of-tiny-cedar-key-wonder-how-many-storm-cleanups-they-can-endure
+
 **‘This Is a Disaster’: Western North Carolina Reels From Helene**\
 `Hundreds of roads were blocked across the region, and officials warned of more mudslides and damage to come.`\
 https://nytimes.com/2024/09/28/us/north-carolina-helene-asheville-shelby.html

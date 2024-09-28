@@ -1,3 +1,11 @@
+**Mets, Braves need weekend sweeps to avoid playing Monday: Latest NL playoff scenarios**\
+`The Braves, Mets and D-Backs are essentially tied. What the Mets, in particular, desperately want to avoid is the Max Chaos scenario. `\
+https://nytimes.com/athletic/5801394/2024/09/28/mets-braves-diamondbacks-mlb-playoff-scenarios/
+
+**The people of tiny Cedar Key wonder how many storm cleanups they can endure.**\
+`By Abigail Geiger`\
+https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/the-people-of-tiny-cedar-key-wonder-how-many-storm-cleanups-they-can-endure
+
 **‘This Is a Disaster’: Western North Carolina Reels From Helene**\
 `Hundreds of roads were blocked across the region, and officials warned of more mudslides and damage to come.`\
 https://nytimes.com/2024/09/28/us/north-carolina-helene-asheville-shelby.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5801285/2024/09/28/tyler-huntley-start-dolphins-tit
 **The Briefing: Chelsea 4-2 Brighton - Historic four goals for Palmer, but Blues still lack control**\
 `Palmer became the first ever Premier League player to score four goals in the first half of a game as Chelsea won an entertaining encounter`\
 https://nytimes.com/athletic/5793780/2024/09/28/chelsea-4-2-brighton-palmer/
-
-**Vance to Appear With Evangelical Leader Who Spoke of Harris’s ‘Witchcraft’**\
-`Senator JD Vance of Ohio will campaign in Pennsylvania with Lance Wallnau, who described Vice President Kamala Harris’s debate performance as “witchcraft.”`\
-https://nytimes.com/2024/09/28/us/politics/vance-lance-wallnau-witchcraft.html
-
-**ETSU football team stranded on buses for hours while traveling to game**\
-`East Tennessee State’s football team spent Friday night stranded on team buses before Saturday’s game at The Citadel.`\
-https://nytimes.com/athletic/5801281/2024/09/28/college-football-flooding-etsu-citadel/
 
