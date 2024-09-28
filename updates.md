@@ -1,3 +1,7 @@
+**At Capacity**\
+`If we can’t remember the things we read and watch and even loved, do they still “count”?`\
+https://nytimes.com/2024/09/28/briefing/at-capacity.html
+
 **Mass Shooting in South Africa Leaves 17 Dead**\
 `Most of the victims were women killed in one house, according to the police, who have started a manhunt for the gunmen.`\
 https://nytimes.com/2024/09/28/world/africa/south-africa-mass-shooting.html
