@@ -1,3 +1,7 @@
+**Patient Exposed to Bat in Minnesota Dies From Rabies, Officials Say**\
+`The death, which was reported on Friday, is only the fifth fatal human rabies case in Minnesota since 1975, health officials said.`\
+https://nytimes.com/2024/09/28/health/minnesota-rabies-death-bat.html
+
 **Shock and Uncertainty in Beirut After Nasrallah’s Death**\
 `Israel’s killing of Hezbollah’s leader, Hassan Nasrallah, was a stunning escalation of the country’s campaign against the Iran-backed group.`\
 https://nytimes.com/video/world/middleeast/100000009728407/beirut-nasrallah-death-voices.html
