@@ -1,3 +1,7 @@
+**Laura Donnelly, ‘Hills of California’ Star, Is Not Some Delicate Flower**\
+`But she did “burst into tears” reading Jez Butterworth’s rewrite of his new Broadway play, which left her with 10 days “to create an entirely new character.”`\
+https://nytimes.com/2024/09/28/theater/laura-donnelly-hills-of-california-broadway.html
+
 **Hezbollah’s Victims Are Expressing Relief at Its Disarray**\
 `Amid widespread condemnation of Israel’s massive strikes, Syrian communities persecuted by Hezbollah forces voiced cautious, and sometimes exuberant, celebration.`\
 https://nytimes.com/2024/09/28/world/middleeast/hezbollahs-victims-are-expressing-relief-at-its-disarray.html

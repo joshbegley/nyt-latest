@@ -1,3 +1,7 @@
+**Laura Donnelly, ‘Hills of California’ Star, Is Not Some Delicate Flower**\
+`But she did “burst into tears” reading Jez Butterworth’s rewrite of his new Broadway play, which left her with 10 days “to create an entirely new character.”`\
+https://nytimes.com/2024/09/28/theater/laura-donnelly-hills-of-california-broadway.html
+
 **Hezbollah’s Victims Are Expressing Relief at Its Disarray**\
 `Amid widespread condemnation of Israel’s massive strikes, Syrian communities persecuted by Hezbollah forces voiced cautious, and sometimes exuberant, celebration.`\
 https://nytimes.com/2024/09/28/world/middleeast/hezbollahs-victims-are-expressing-relief-at-its-disarray.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799834/2024/09/28/blackhawks-prospect-cole-guttman
 **‘Don’t Kill My Child. Kill Me Instead.’**\
 `The world has largely abandoned Sudan, but this woman risked everything to stand up to evil.`\
 https://nytimes.com/2024/09/28/opinion/darfur-sudan-atrocities.html
-
-**Sally Rooney Is the Least Interesting Thing About Her Novels**\
-`To truly appreciate her novels, we have to stop imagining that they’re all about her, or about us.`\
-https://nytimes.com/2024/09/28/opinion/sally-rooney-intermezzo-generation.html
 
