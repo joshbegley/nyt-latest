@@ -1,3 +1,7 @@
+**Live Updates: Helene Leaves Trail of Devastation Across Southeastern U.S.**\
+`The storm leveled entire towns and left at least 42 people dead. Millions were still without power, and extreme rain left a dam in Tennessee on the brink of failure.`\
+https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina
+
 **Helene triggered flash floods, landslides and power outages. Here’s the latest.**\
 `By Soumya Karlamangla and Isabella Kwai`\
 https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/helene-triggered-flash-floods-landslides-and-power-outages-heres-the-latest
