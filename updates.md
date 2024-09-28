@@ -1,4 +1,8 @@
 **Jaxson Dart is a tough NFL Draft evaluation, and loss to Kentucky proves why**\
+`The talented QB has been putting up huge numbers, but he struggled when Kentucky slowed down Ole Miss' attack.`\
+https://nytimes.com/athletic/5801685/2024/09/28/jaxson-dart-nfl-draft-2025-scouting/
+
+**Jaxson Dart is a tough NFL Draft evaluation, and loss to Kentucky proves why**\
 `The talented QB had been putting up huge numbers, but he struggled when Kentucky slowed down Ole Miss' attack.`\
 https://nytimes.com/athletic/5801685/2024/09/28/jaxson-dart-nfl-draft-2025-scouting/
 
