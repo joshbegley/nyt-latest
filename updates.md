@@ -1,3 +1,7 @@
+**Arteta speaks of 'love and respect' for Guardiola and Man City staff**\
+`Mikel Arteta has spoken of his &#8220;love and respect&#8221; for Pep Guardiola and his Manchester City staff after being asked to clarify his comments on the club.`\
+https://nytimes.com/athletic/5801493/2024/09/28/mikel-arteta-arsenal-manchester-city-guardiola/
+
 **The Briefing: Wolves 1 Liverpool 2 - How a first 'ugly' win left Slot top of the table**\
 `The major talking points analysed from Molineux as Liverpool's fine start to the season continued`\
 https://nytimes.com/athletic/5796363/2024/09/28/wolves-liverpool-premier-league-result/
