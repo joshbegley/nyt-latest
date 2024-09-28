@@ -1,40 +1,40 @@
-**Helene triggered flash floods, landslides and power outages. Here’s the latest.**\
-`By Soumya Karlamangla and Isabella Kwai`\
-https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/helene-triggered-flash-floods-landslides-and-power-outages-heres-the-latest
+**After Your Death, Who Takes Care of the Dog?**\
+`A pet trust designates a new guardian for companion animals and sets aside funds for their care. Better yet, it’s legally binding.`\
+https://nytimes.com/2024/09/28/health/pet-trusts.html
 
-**Live Updates: Helene Leaves Trail of Devastation Across Southeastern U.S.**\
-`The storm leveled entire towns and left at least 42 people dead. Millions were still without power, and extreme rain left a dam in Tennessee on the brink of failure.`\
-https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina
+**Three key offseason questions facing Twins after free-falling out of playoff picture**\
+`Payroll concerns loom for a second straight offseason, and the Twins should be motivated to make changes on and off the field.`\
+https://nytimes.com/athletic/5800096/2024/09/28/minnesota-twins-offseason-questions/
 
-**Ex-Arsenal and Dundee forward Caballero dies aged 46**\
-`Former Arsenal forward Fabian Caballero has died at the age of 46, the club have confirmed.`\
-https://nytimes.com/athletic/5801070/2024/09/28/arsenal-fabian-caballero-dies-aged-46/
+**Bo Nix's running ability has added intriguing element to Broncos offense**\
+`The rookie quarterback has 107 rushing yards this season, the most by a Broncos QB through three games since at least 2000.`\
+https://nytimes.com/athletic/5799358/2024/09/28/bo-nix-broncos-running-qb/
 
-**At Capacity**\
-`If we can’t remember the things we read and watch and even loved, do they still “count”?`\
-https://nytimes.com/2024/09/28/briefing/at-capacity.html
+**No Turkish Delight for New York’s Mayor**\
+`The latest worm in the Big Apple.`\
+https://nytimes.com/2024/09/28/opinion/eric-adams-mayor-indictment.html
 
-**Mass Shooting in South Africa Leaves 17 Dead**\
-`Most of the victims were women killed in one house, according to the police, who have started a manhunt for the gunmen.`\
-https://nytimes.com/2024/09/28/world/africa/south-africa-mass-shooting.html
+**The Cost of What Eric Adams Compromised**\
+`Eric Adams is accused of injecting foreign funds directly into his election campaigns, compromising not only the mayor’s office but also American elections.`\
+https://nytimes.com/2024/09/28/opinion/eric-adams-turkey-corruption.html
 
-**How the Phillies plan to stay sharp during their first-round bye before the NLDS**\
-`Staying sharp without playing is a challenge. It'll be the dominant storyline next week for the Phillies. This is new territory for them. `\
-https://nytimes.com/athletic/5800555/2024/09/28/phillies-bye-schedule-playoffs-nlds/
+**The Most Important Question Kamala Harris Hasn’t Answered**\
+`What would a President Harris do about the war in Ukraine?`\
+https://nytimes.com/2024/09/28/opinion/kamala-harris-ukraine-war.html
 
-**First-and-10: Can Ravens defense get right in biggest test yet vs. Bills?**\
-`Baltimore has a chance to turn around some early defensive struggles against one of the AFC's top teams on a prime-time stage.`\
-https://nytimes.com/athletic/5799743/2024/09/28/ravens-defense-bills-10-things-to-watch/
+**As he ages out of prospect-hood, Cole Guttman isn't sweating his standing with Blackhawks**\
+`Guttman doesn’t really know where he stands with the Blackhawks, but he's learning to not let it affect him. `\
+https://nytimes.com/athletic/5799834/2024/09/28/blackhawks-prospect-cole-guttman/
 
-**Newfoundland and Labrador’s Unlikely Foray Into England’s Soccer Scene**\
-`The province is sponsoring an obscure professional team in an effort to attract skilled immigrants.`\
-https://nytimes.com/2024/09/28/world/canada/newfoundland-labrador-barrow-jersey.html
+**‘Don’t Kill My Child. Kill Me Instead.’**\
+`The world has largely abandoned Sudan, but this woman risked everything to stand up to evil.`\
+https://nytimes.com/2024/09/28/opinion/darfur-sudan-atrocities.html
 
-**Nico Hoerner on if this Cubs season is a failure, trade speculation and more**\
-`"I signed an extension here for a reason," the Cubs second baseman said. "I obviously want to be here."`\
-https://nytimes.com/athletic/5800243/2024/09/28/cubs-nico-hoerner-trade-speculation/
+**Sally Rooney Is the Least Interesting Thing About Her Novels**\
+`To truly appreciate her novels, we have to stop imagining that they’re all about her, or about us.`\
+https://nytimes.com/2024/09/28/opinion/sally-rooney-intermezzo-generation.html
 
-**The Connections Companion No. 476**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 29, 2024.`\
-https://nytimes.com/2024/09/28/crosswords/connections-companion-476.html
+**Each NHL team’s biggest breakout candidate for 2024-25**\
+`With the regular season right around the corner, fantasy drafts scheduled and optimism booming, which players are ready to make the leap?`\
+https://nytimes.com/athletic/5780498/2024/09/28/nhl-2024-25-breakout-players/
 
