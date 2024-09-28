@@ -1,3 +1,7 @@
+**Khusnutdinov is a short-handed machine, Eriksson Ek is a net-front menace: Wild takeaways**\
+`Jets goalie Connor Hellebuyck gave up eight goals in the first two periods before John Hynes hit the brakes in the third period.`\
+https://nytimes.com/athletic/5800422/2024/09/28/minnesota-wild-takeaways-vs-jets/
+
 **Here are the latest developments on strikes in Lebanon.**\
 `By Victoria Kim`\
 https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/here-are-the-latest-developments-on-strikes-in-lebanon
