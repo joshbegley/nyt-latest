@@ -1,3 +1,19 @@
+**‘This Is a Disaster’: Western North Carolina Reels From Helene**\
+`Hundreds of roads were blocked across the region, and officials warned of more mudslides and damage to come.`\
+https://nytimes.com/2024/09/28/us/north-carolina-helene-asheville-shelby.html
+
+**Strike on Hezbollah Deepens Disconnect Between Biden and Netanyahu**\
+`Israeli officials gave their American counterparts no advance warning of the strike that killed Hassan Nasrallah, the longtime leader of Hezbollah, according to U.S. officials. But Mr. Biden said the killing was “a measure of justice” for victims of Hezbollah terrorism.`\
+https://nytimes.com/2024/09/28/us/politics/hezbollah-strike-nasrallah-biden-netanyahu.html
+
+**Despair, celebration and shock followed the news of Nasrallah’s death in Beirut.**\
+`By Vivian Yee, Christina Goldbaum, Hwaida Saad and Jacob Roubai`\
+https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/despair-celebration-and-shock-followed-the-news-of-nasrallahs-death-in-beirut
+
+**Jeff Passan, ESPN's MLB insider, is a candidate to replace Woj**\
+`Jeff Passan has emerged as a candidate, along with The Athletic's Shams Charania, to switch sports and replace Adrian Wojnarowski at ESPN.`\
+https://nytimes.com/athletic/5801309/2024/09/28/jeff-passan-espn-nba-adrian-wojnarowski-shams-charania/
+
 **Arsenal 4 Leicester 2: Trossard's late goal sparks delight, Nwaneri impact, defensive lapses**\
 `Arsenal beat Leicester 4-2 after two late, late strikes at The Emirates from Trossard and Havertz. Here we break down the talking points...`\
 https://nytimes.com/athletic/5793727/2024/09/28/arsenal-4-leicester-2-result-trossard-nwaneri/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/28/us/politics/vance-lance-wallnau-witchcraft.html
 **ETSU football team stranded on buses for hours while traveling to game**\
 `East Tennessee State’s football team spent Friday night stranded on team buses before Saturday’s game at The Citadel.`\
 https://nytimes.com/athletic/5801281/2024/09/28/college-football-flooding-etsu-citadel/
-
-**Why the Latest Court Reform Bill Matters**\
-`One senator’s vision for Supreme Court accountability.`\
-https://nytimes.com/2024/09/28/opinion/supreme-court-reform-wyden.html
-
-**How Giants' poor return on pass-rush investment cost them in loss to Cowboys**\
-`Final review of the loss to the Cowboys includes cornerback issues, a sputtering running game and some head-scratching play calls. `\
-https://nytimes.com/athletic/5800528/2024/09/28/giants-pass-rush-cowboys/
-
-**Go Ahead, Gild That Lily**\
-`Andy Baraghani’s tahini apple tart sparkles. No, really: The sesame seeds and sugar on the crust give it real luster (and crunch).`\
-https://nytimes.com/2024/09/28/dining/go-ahead-gild-that-lily.html
-
-**Haaland 'knocks' to be assessed - Guardiola**\
-`Pep Guardiola says Erling Haaland will be assessed in the coming days after picking up &#8220;knocks&#8221; during Manchester City&#8217;s 1-1 draw at Newcastle United on Saturday.`\
-https://nytimes.com/athletic/5801211/2024/09/28/erling-haaland-injury-man-city-guardiola/
 
