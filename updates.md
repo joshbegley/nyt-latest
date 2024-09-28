@@ -1,3 +1,7 @@
+**Death of Nasrallah Pushes Mideast Conflict Into New Territory**\
+`After Israel killed the leader of Hezbollah, the powerful Lebanese militia and Iranian proxy, Tehran was faced with deciding how, or whether, to retaliate.`\
+https://nytimes.com/2024/09/28/world/middleeast/nasrallah-israel-hezbollah-iran.html
+
 **Who Was Hassan Nasrallah, Leader of Hezbollah?**\
 `The leader of the militant group Hezbollah, Hassan Nasrallah, was killed by an Israeli airstrike in Lebanon on Friday. Neil MacFarquhar, a reporter for The New York Times who met and interviewed Nasrallah in 2002, explains who he was and the significance of his death.`\
 https://nytimes.com/video/world/middleeast/100000009728018/who-was-hassan-nasrallah-leader-of-hezbollah.html

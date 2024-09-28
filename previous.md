@@ -1,3 +1,7 @@
+**Death of Nasrallah Pushes Mideast Conflict Into New Territory**\
+`After Israel killed the leader of Hezbollah, the powerful Lebanese militia and Iranian proxy, Tehran was faced with deciding how, or whether, to retaliate.`\
+https://nytimes.com/2024/09/28/world/middleeast/nasrallah-israel-hezbollah-iran.html
+
 **Who Was Hassan Nasrallah, Leader of Hezbollah?**\
 `The leader of the militant group Hezbollah, Hassan Nasrallah, was killed by an Israeli airstrike in Lebanon on Friday. Neil MacFarquhar, a reporter for The New York Times who met and interviewed Nasrallah in 2002, explains who he was and the significance of his death.`\
 https://nytimes.com/video/world/middleeast/100000009728018/who-was-hassan-nasrallah-leader-of-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009728407/beirut-nasrallah-deat
 **Yankees' Anthony Rizzo has 2 fractured fingers. How will team handle first base?**\
 `Rizzo was hit by a pitch in the hand but might still be available in the postseason: "It's something that is a pain tolerance thing."`\
 https://nytimes.com/athletic/5801698/2024/09/28/yankees-anthony-rizzo-fractured-fingers-injury/
-
-**Barcelona's perfect La Liga start ends with 4-2 defeat at Osasuna**\
-`Barcelona&#8217;s perfect start to the season in La Liga came to an emphatic end with a 4-2 defeat at Osasuna.`\
-https://nytimes.com/athletic/5801771/2024/09/28/barcelona-defeat-osasuna-la-liga/
 
