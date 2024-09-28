@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Krathon**\
+`See the likely path and wind arrival times for Krathon.`\
+https://nytimes.com/interactive/2024/09/28/weather/krathon-map-path-tracker.html
+
 **Jordan Love expected to return from knee injury vs. Vikings**\
 `Malik Willis started with Love sidelined, going 25-of-34 passing, throwing for 324 yards, two touchdowns and no interceptions.`\
 https://nytimes.com/athletic/5801631/2024/09/28/packers-jordan-love-injury-starting-malik-willis/

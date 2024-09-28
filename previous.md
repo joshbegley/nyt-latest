@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Krathon**\
+`See the likely path and wind arrival times for Krathon.`\
+https://nytimes.com/interactive/2024/09/28/weather/krathon-map-path-tracker.html
+
 **Jordan Love expected to return from knee injury vs. Vikings**\
 `Malik Willis started with Love sidelined, going 25-of-34 passing, throwing for 324 yards, two touchdowns and no interceptions.`\
 https://nytimes.com/athletic/5801631/2024/09/28/packers-jordan-love-injury-starting-malik-willis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801562/2024/09/28/nebraska-purdue-dylan-raiola-mat
 **Antônio Delfim Netto, Brazilian Economic Czar, Dies at 96**\
 `He was credited for the high-growth economy during the early years of Brazil’s long military dictatorship. But critics said his policies brought only short-lived gains.`\
 https://nytimes.com/2024/09/28/world/americas/antonio-delfim-netto-dead.html
-
-**Bill Lucy, Pioneering Labor and Civil Rights Leader, Dies at 90**\
-`He helped popularize “I Am a Man” as a demand for respect during the 1968 strike by Black sanitation workers in Memphis.`\
-https://nytimes.com/2024/09/28/us/bill-lucy-dead.html
 
