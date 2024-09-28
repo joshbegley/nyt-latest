@@ -6,8 +6,8 @@ https://nytimes.com/2024/09/28/us/bill-lucy-dead.html
 `Plagued by years of political dysfunction, Lebanese leaders could try to use Israel’s weakening of Hezbollah to form a government. It would be a dangerous balancing act that also risks provoking deeper conflict.`\
 https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/nasrallahs-death-throws-more-uncertainty-into-lebanons-political-disarray
 
-**Skip Schumaker reportedly leaves Marlins to become winter’s top managerial target**\
-`Skip Schumaker, who has long been expected to be the most sought after manager in the big leagues this winter, informed Miami Marlins players after their 15-5 victory on Friday night in Toronto that he would not be returning for 2025, according to multiple published reports.`\
+**Schumaker leaves Marlins to become winter’s top target: Reports**\
+`Skip Schumaker, who has long been expected to be the most sought after manager in the big leagues this winter, informed Miami Marlins players after their 15-5 victory Friday in Toronto he would not be returning for 2025, according to multiple reports Saturday.`\
 https://nytimes.com/athletic/5801417/2024/09/28/skip-schumaker-leaves-marlins/
 
 **Arch Manning starting Texas' SEC opener vs. Mississippi State**\

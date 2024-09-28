@@ -1,3 +1,7 @@
+**Schumaker leaves Marlins to become winter’s top target: Reports**\
+`Skip Schumaker, who has long been expected to be the most sought after manager in the big leagues this winter, informed Miami Marlins players after their 15-5 victory Friday in Toronto he would not be returning for 2025, according to multiple reports Saturday.`\
+https://nytimes.com/athletic/5801417/2024/09/28/skip-schumaker-leaves-marlins/
+
 **Bill Lucy, Pioneering Labor and Civil Rights Leader, Dies at 90**\
 `He helped popularize “I Am a Man” as a demand for respect during the 1968 strike by Black sanitation workers in Memphis.`\
 https://nytimes.com/2024/09/28/us/bill-lucy-dead.html
