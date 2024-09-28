@@ -7,7 +7,7 @@ https://nytimes.com/2024/09/27/us/politics/mark-robinson-north-carolina-hospital
 https://nytimes.com/athletic/5800722/2024/09/27/mets-francisco-alvarez-injury/
 
 **The Twins are eliminated: 5 reasons they collapsed when it counted**\
-`Here are five reasons the Twins will sit at home this October while Cleveland, Kansas City and Detroit all earned postseason berths.`\
+`Here are five reasons the Twins will sit at home this October while Cleveland, Kansas City and Detroit earned postseason berths.`\
 https://nytimes.com/athletic/5795252/2024/09/27/minnesota-twins-collapse-reasons/
 
 **Greenberg: When it came to the record-setting 2024 White Sox, everybody lost**\
