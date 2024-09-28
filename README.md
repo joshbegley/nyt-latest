@@ -1,3 +1,15 @@
+**Power and Communication Outages Hamper Assessment of Landslides**\
+`With communication lines down in the mountains amid Helene, early reports were unclear about how many landslides had occurred and the extent of damage from the storm.`\
+https://nytimes.com/2024/09/28/climate/north-carolina-landslides.html
+
+**Camavinga fit for Madrid derby after recovering from knee injury**\
+`Real Madrid head coach Carlo Ancelotti has confirmed Eduardo Camavinga is fit and available to face Atletico Madrid on Sunday after recovering from a knee injury.`\
+https://nytimes.com/athletic/5801067/2024/09/28/eduardo-camavinga-fit-real-madrid/
+
+**Katz: What's next for Knicks after Karl-Anthony Towns trade?**\
+`This won’t look at all like anyone expected just days ago. It is a new era. And these are the pressing questions.`\
+https://nytimes.com/athletic/5800904/2024/09/28/knicks-karl-anthony-towns-trade-kat-whats-next/
+
 **Laura Donnelly, ‘Hills of California’ Star, Is Not Some Delicate Flower**\
 `But she did “burst into tears” reading Jez Butterworth’s rewrite of his new Broadway play, which left her with 10 days “to create an entirely new character.”`\
 https://nytimes.com/2024/09/28/theater/laura-donnelly-hills-of-california-broadway.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/28/opinion/eric-adams-mayor-indictment.html
 **The Cost of What Eric Adams Compromised**\
 `Eric Adams is accused of injecting foreign funds directly into his election campaigns, compromising not only the mayor’s office but also American elections.`\
 https://nytimes.com/2024/09/28/opinion/eric-adams-turkey-corruption.html
-
-**The Most Important Question Kamala Harris Hasn’t Answered**\
-`What would a President Harris do about the war in Ukraine?`\
-https://nytimes.com/2024/09/28/opinion/kamala-harris-ukraine-war.html
-
-**As he ages out of prospect-hood, Cole Guttman isn't sweating his standing with Blackhawks**\
-`Guttman doesn’t really know where he stands with the Blackhawks, but he's learning to not let it affect him. `\
-https://nytimes.com/athletic/5799834/2024/09/28/blackhawks-prospect-cole-guttman/
-
-**‘Don’t Kill My Child. Kill Me Instead.’**\
-`The world has largely abandoned Sudan, but this woman risked everything to stand up to evil.`\
-https://nytimes.com/2024/09/28/opinion/darfur-sudan-atrocities.html
 
