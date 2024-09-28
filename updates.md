@@ -1,3 +1,7 @@
+**Nebraska survives trip to Purdue: Takeaways from an ugly win in West Lafayette**\
+`The mantra for Nebraska when it plays at Purdue has never been anything but these four words: survive and get out. Mission accomplished.`\
+https://nytimes.com/athletic/5801562/2024/09/28/nebraska-purdue-dylan-raiola-matt-rhule/
+
 **Antônio Delfim Netto, Brazilian Economic Czar, Dies at 96**\
 `He was credited for the high-growth economy during the early years of Brazil’s long military dictatorship. But critics said his policies brought only short-lived gains.`\
 https://nytimes.com/2024/09/28/world/americas/antonio-delfim-netto-dead.html
