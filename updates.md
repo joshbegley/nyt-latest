@@ -1,3 +1,7 @@
+**Mass Shooting in South Africa Leaves 17 Dead**\
+`Most of the victims were women killed in one house, according to the police, who have started a manhunt for the gunmen.`\
+https://nytimes.com/2024/09/28/world/africa/south-africa-mass-shooting.html
+
 **How the Phillies plan to stay sharp during their first-round bye before the NLDS**\
 `Staying sharp without playing is a challenge. It'll be the dominant storyline next week for the Phillies. This is new territory for them. `\
 https://nytimes.com/athletic/5800555/2024/09/28/phillies-bye-schedule-playoffs-nlds/

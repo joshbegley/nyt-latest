@@ -1,3 +1,7 @@
+**Mass Shooting in South Africa Leaves 17 Dead**\
+`Most of the victims were women killed in one house, according to the police, who have started a manhunt for the gunmen.`\
+https://nytimes.com/2024/09/28/world/africa/south-africa-mass-shooting.html
+
 **How the Phillies plan to stay sharp during their first-round bye before the NLDS**\
 `Staying sharp without playing is a challenge. It'll be the dominant storyline next week for the Phillies. This is new territory for them. `\
 https://nytimes.com/athletic/5800555/2024/09/28/phillies-bye-schedule-playoffs-nlds/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/for-fam
 **Viewfinders Make Fall Foliage Pop for the Colorblind in Virginia**\
 `Specialized viewfinders installed across state parks let visitors with red-green colorblindness see more distinct colors.`\
 https://nytimes.com/2024/09/28/us/colorblind-viewfinder-leaf-peeping-virginia.html
-
-**Harris’s Historic Run for Office Could Outpace Hollywood’s Oval Offices**\
-`Black and Asian American women have rarely, if at all, played the U.S. commander in chief in television and film. As Kamala Harris makes her presidential bid, Hollywood lags behind.`\
-https://nytimes.com/2024/09/28/arts/kamala-harris-hollywood-presidents.html
 
