@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5801607/2024/09/28/steve-cooper-leicester-arsenal-r
 `Kentucky upset No. 6 Ole Miss 20-17 after a last-minute Rebels field goal attempt missed. Here's how it happened and what it means.`\
 https://nytimes.com/athletic/5801593/2024/09/28/ole-miss-kentucky-football-score-lane-kiffin/
 
-**Protesters mourn Nasrallah’s death around the world.**\
+**Protesters mourn Nasrallah’s death beyond Lebanon.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/protesters-mourn-nasrallahs-death-around-the-world
 
