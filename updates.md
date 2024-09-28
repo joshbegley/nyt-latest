@@ -1,3 +1,19 @@
+**‘This Is a Disaster’: Western North Carolina Reels From Helene**\
+`Hundreds of roads were blocked across the region, and officials warned of more mudslides and damage to come.`\
+https://nytimes.com/2024/09/28/us/north-carolina-helene-asheville-shelby.html
+
+**Strike on Hezbollah Deepens Disconnect Between Biden and Netanyahu**\
+`Israeli officials gave their American counterparts no advance warning of the strike that killed Hassan Nasrallah, the longtime leader of Hezbollah, according to U.S. officials. But Mr. Biden said the killing was “a measure of justice” for victims of Hezbollah terrorism.`\
+https://nytimes.com/2024/09/28/us/politics/hezbollah-strike-nasrallah-biden-netanyahu.html
+
+**Despair, celebration and shock followed the news of Nasrallah’s death in Beirut.**\
+`By Vivian Yee, Christina Goldbaum, Hwaida Saad and Jacob Roubai`\
+https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/despair-celebration-and-shock-followed-the-news-of-nasrallahs-death-in-beirut
+
+**Jeff Passan, ESPN's MLB insider, is a candidate to replace Woj**\
+`Jeff Passan has emerged as a candidate, along with The Athletic's Shams Charania, to switch sports and replace Adrian Wojnarowski at ESPN.`\
+https://nytimes.com/athletic/5801309/2024/09/28/jeff-passan-espn-nba-adrian-wojnarowski-shams-charania/
+
 **The Briefing: Chelsea 4-2 Brighton - Historic four goals for Palmer, but Blues still lack control**\
 `Palmer became the first ever Premier League player to score four goals in the first half of a game as Chelsea won an entertaining encounter`\
 https://nytimes.com/athletic/5793780/2024/09/28/chelsea-4-2-brighton-palmer/
