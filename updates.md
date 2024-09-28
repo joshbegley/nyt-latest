@@ -1,3 +1,11 @@
+**Raphinha's reinvention at Barcelona: Hansi Flick has unleashed his athleticism**\
+`Barca have won seven games out of seven to begin La Liga 2024-25, and former Leeds winger Raphinha's new role has been key`\
+https://nytimes.com/athletic/5795999/2024/09/28/raphinha-barcelona-la-liga-hansi-flick-reinvention/
+
+**How Arsenal and Manchester City's rivalry descended into 'war'**\
+`After the dramatic 2-2 draw at the Etihad on Sunday, The Athletic has spoken to those in both camps to chart a remarkable week`\
+https://nytimes.com/athletic/5799875/2024/09/28/arsenal-manchester-city-guardiola-arteta-war/
+
 **English football's 3pm kick-off is dying - does anyone care?**\
 `The once hallowed Saturday kick-off time is becoming marginalised by expanding TV coverage, creating angst - and opportunity`\
 https://nytimes.com/athletic/5798921/2024/09/28/football-3pm-kick-off-decline/
