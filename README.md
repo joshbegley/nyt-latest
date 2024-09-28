@@ -1,3 +1,7 @@
+**Rexrode: If Nick Saban wants to help college football, he should be realistic about it**\
+`Saban has been a welcome addition to "GameDay," but he has a lot of work to do on what’s actually happening with the economics of the sport.`\
+https://nytimes.com/athletic/5801526/2024/09/28/nick-saban-nil-college-football-espn-gameday/
+
 **Nebraska survives trip to Purdue: Takeaways from an ugly win in West Lafayette**\
 `The mantra for Nebraska when it plays at Purdue has never been anything but these four words: survive and get out. Mission accomplished.`\
 https://nytimes.com/athletic/5801562/2024/09/28/nebraska-purdue-dylan-raiola-matt-rhule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801471/2024/09/28/arch-manning-starting-texas-miss
 **Arteta speaks of 'love and respect' for Guardiola and Man City staff**\
 `Mikel Arteta has spoken of his &#8220;love and respect&#8221; for Pep Guardiola and his Manchester City staff after being asked to clarify his comments on the club.`\
 https://nytimes.com/athletic/5801493/2024/09/28/mikel-arteta-arsenal-manchester-city-guardiola/
-
-**The Briefing: Wolves 1 Liverpool 2 - How a first 'ugly' win left Slot top of the table**\
-`The major talking points analysed from Molineux as Liverpool's fine start to the season continued`\
-https://nytimes.com/athletic/5796363/2024/09/28/wolves-liverpool-premier-league-result/
 
