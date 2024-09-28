@@ -1,3 +1,11 @@
+**As Hezbollah Pursued a Limited War, Israel Went for a Knockout**\
+`The militia group seemed content to trade blows with Israel while avoiding a major conflict. A strike that killed its leader proves it miscalculated.`\
+https://nytimes.com/2024/09/28/world/middleeast/hezbollah-hassan-nasrallah-next-steps.html
+
+**Israel Tracked Nasrallah for Months Before Assassination, Officials Say**\
+`The Israeli military decided to strike at the Hezbollah leader because it believed there was only a short window before he disappeared to a different location, three senior Israeli officials said.`\
+https://nytimes.com/2024/09/28/world/middleeast/why-israel-assassinate-nasrallah.html
+
 **Dish and DirecTV Near a Deal to Combine (Again)**\
 `The companies are in talks to create one of the largest pay-TV providers in the country. In 2002, the U.S. government blocked a similar deal.`\
 https://nytimes.com/2024/09/28/business/dealbook/dish-directv-deal.html

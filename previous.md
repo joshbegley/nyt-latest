@@ -12,7 +12,7 @@ https://nytimes.com/2024/09/28/business/dealbook/lina-khan-interview.html
 
 **As Hezbollah Pursued a Limited War, Israel Went for a Knockout**\
 `The militia group seemed content to trade blows with Israel while avoiding a major conflict. A strike that killed its leader proves it miscalculated.`\
-https://nytimes.com/2024/09/28/world/middleeast/as-hezbollah-pursued-a-limited-war-israel-went-for-a-knockout.html
+https://nytimes.com/2024/09/28/world/middleeast/hezbollah-hassan-nasrallah-next-steps.html
 
 **Edwards: Karl-Anthony Towns doesn't undoubtedly make Knicks better**\
 `The best player in the trade is coming to New York. But does it clearly make the Knicks better?`\
@@ -22,9 +22,9 @@ https://nytimes.com/athletic/5800875/2024/09/28/karl-anthony-towns-knicks-fit/
 `Did the Knicks needlessly chase an expensive shiny object? Or did both teams actually do the right thing here?`\
 https://nytimes.com/athletic/5800986/2024/09/28/towns-randle-knicks-timberwolves-trade-analysis/
 
-**Israel knew Nasrallah’s whereabouts for months and feared that he was about to move, officials say.**\
-`By Ronen Bergman and Patrick Kingsley`\
-https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/israel-knew-nasrallahs-whereabouts-for-months-and-feared-that-he-was-about-to-move-officials-say
+**Israel Tracked Nasrallah for Months Before Assassination, Officials Say**\
+`The Israeli military decided to strike at the Hezbollah leader because it believed there was only a short window before he disappeared to a different location, three senior Israeli officials said.`\
+https://nytimes.com/2024/09/28/world/middleeast/why-israel-assassinate-nasrallah.html
 
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
