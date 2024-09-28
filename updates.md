@@ -1,3 +1,7 @@
+**Trade grades: Who won Karl-Anthony Towns, Julius Randle swap?**\
+`This trade is a massive gamble for both the Knicks and Timberwolves. Does it get either team closer to a title?`\
+https://nytimes.com/athletic/5800699/2024/09/28/knicks-timberwolves-karl-anthony-towns-trade-grades/
+
 **Braves' Max Fried throws a gem at a crucial time: Will it be his last home start?**\
 `As Fried walked off the field, he looked up at the crowd: "Just thanking the fans for pushing us."`\
 https://nytimes.com/athletic/5800793/2024/09/28/braves-max-fried-wild-card/
