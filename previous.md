@@ -1,3 +1,7 @@
+**Yankees' Anthony Rizzo has 2 fractured fingers. How will team handle first base?**\
+`Rizzo was hit by a pitch in the hand but might still be available in the postseason: "It's something that is a pain tolerance thing."`\
+https://nytimes.com/athletic/5801698/2024/09/28/yankees-anthony-rizzo-fractured-fingers-injury/
+
 **Barcelona's perfect La Liga start ends with 4-2 defeat at Osasuna**\
 `Barcelona&#8217;s perfect start to the season in La Liga came to an emphatic end with a 4-2 defeat at Osasuna.`\
 https://nytimes.com/athletic/5801771/2024/09/28/barcelona-defeat-osasuna-la-liga/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801684/2024/09/28/andy-robertson-injury-liverpool-
 **Michigan takeaways: Questions piling up after near-meltdown against Minnesota**\
 `Michigan hung on to beat Minnesota 27-24 after giving up 21 fourth-quarter points — and getting help from a penalty on an onside kick.`\
 https://nytimes.com/athletic/5801548/2024/09/28/michigan-minnesota-score-onside-kick-penalty/
-
-**Cooper says Leicester suffered referee's 'poor decisions' in Arsenal defeat**\
-`Leicester City manager Steve Cooper says his side suffered from &#8220;two poor decisions&#8221; during their 4-2 defeat at Arsenal.`\
-https://nytimes.com/athletic/5801607/2024/09/28/steve-cooper-leicester-arsenal-referee-decisions/
 

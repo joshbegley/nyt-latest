@@ -1,3 +1,7 @@
+**Yankees' Anthony Rizzo has 2 fractured fingers. How will team handle first base?**\
+`Rizzo was hit by a pitch in the hand but might still be available in the postseason: "It's something that is a pain tolerance thing."`\
+https://nytimes.com/athletic/5801698/2024/09/28/yankees-anthony-rizzo-fractured-fingers-injury/
+
 **Jaxson Dart is a tough NFL Draft evaluation, and loss to Kentucky proves why**\
 `The talented QB has been putting up huge numbers, but he struggled when Kentucky slowed down Ole Miss' attack.`\
 https://nytimes.com/athletic/5801685/2024/09/28/jaxson-dart-nfl-draft-2025-scouting/
