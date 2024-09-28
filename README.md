@@ -1,3 +1,7 @@
+**Nasrallah’s death throws more uncertainty into Lebanon’s political disarray.**\
+`Plagued by years of political dysfunction, Lebanese leaders could try to use Israel’s weakening of Hezbollah to form a government. It would be a dangerous balancing act that also risks provoking deeper conflict.`\
+https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/nasrallahs-death-throws-more-uncertainty-into-lebanons-political-disarray
+
 **Skip Schumaker reportedly leaves Marlins to become winter’s top managerial target**\
 `Skip Schumaker, who has long been expected to be the most sought after manager in the big leagues this winter, informed Miami Marlins players after their 15-5 victory on Friday night in Toronto that he would not be returning for 2025, according to multiple published reports.`\
 https://nytimes.com/athletic/5801417/2024/09/28/skip-schumaker-leaves-marlins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801394/2024/09/28/mets-braves-diamondbacks-mlb-pla
 **The people of tiny Cedar Key wonder how many storm cleanups they can endure.**\
 `By Abigail Geiger`\
 https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/the-people-of-tiny-cedar-key-wonder-how-many-storm-cleanups-they-can-endure
-
-**‘This Is a Disaster’: Western North Carolina Reels From Helene**\
-`Hundreds of roads were blocked across the region, and officials warned of more mudslides and damage to come.`\
-https://nytimes.com/2024/09/28/us/north-carolina-helene-asheville-shelby.html
 
