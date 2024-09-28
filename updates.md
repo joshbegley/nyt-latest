@@ -1,3 +1,11 @@
+**Avery Johnson responds after rough week, giving K-State renewed hope in Big 12 race**\
+`If the QB can build off of what he did against Oklahoma State, Kansas State has the chance to live up to its lofty expectations after all.`\
+https://nytimes.com/athletic/5801877/2024/09/28/avery-johnson-kansas-state-oklahoma-state-big-12/
+
+**Phillies' loss gives Dodgers National League's top playoff seed**\
+`A 6-3 Philadelphia Phillies loss Saturday clinched the top seed in the National League for the Dodgers.`\
+https://nytimes.com/athletic/5801954/2024/09/28/dodgers-national-league-top-playoff-seed/
+
 **USC uses second-half shutout to top Wisconsin, clinch first Big Ten win**\
 `USC improves to 3-1 while Wisconsin falls to 2-2 with a tough road ahead. `\
 https://nytimes.com/athletic/5801882/2024/09/28/usc-wisconsin-score-analysis-college-football/
