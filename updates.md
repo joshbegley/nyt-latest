@@ -1,3 +1,7 @@
+**One year after 106 losses, Royals clinch first postseason berth since 2015**\
+`The Royals are just the third team in MLB history to make the playoffs the year after enduring a 100 loss season.`\
+https://nytimes.com/athletic/5771785/2024/09/27/royals-clinch-playoffs-al-wild-card/
+
 **Israel’s Military Issues More Evacuation Warnings in Southern Beirut**\
 `The military struck targets throughout the night that it said were tied to Hezbollah.`\
 https://nytimes.com/2024/09/27/world/middleeast/evacuations-beirut-strikes-israel.html

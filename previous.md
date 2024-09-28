@@ -1,3 +1,7 @@
+**One year after 106 losses, Royals clinch first postseason berth since 2015**\
+`The Royals are just the third team in MLB history to make the playoffs the year after enduring a 100 loss season.`\
+https://nytimes.com/athletic/5771785/2024/09/27/royals-clinch-playoffs-al-wild-card/
+
 **Israel’s Military Issues More Evacuation Warnings in Southern Beirut**\
 `The military struck targets throughout the night that it said were tied to Hezbollah.`\
 https://nytimes.com/2024/09/27/world/middleeast/evacuations-beirut-strikes-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/crosswords/daily-puzzle-2024-09-28.html
 **Trump Criticizes Harris on the Border and the Economy in Michigan**\
 `Donald Trump used a pair of events to try to blame Kamala Harris for inflation and the migrant crisis, tapping into themes that helped him win Michigan in 2016.`\
 https://nytimes.com/2024/09/27/us/politics/trump-michigan-immigration-economy.html
-
-**Matt Chapman wins Willie Mac Award: 'I just feel like I'm being myself'**\
-`"I think people understand that I really care and I really want to win." Chapman won the coveted award in his first season with the team.`\
-https://nytimes.com/athletic/5800601/2024/09/27/matt-chapman-sf-giants-willie-mac-award/
 
