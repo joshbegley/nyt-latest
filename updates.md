@@ -1,3 +1,7 @@
+**Israel’s Military Issues More Evacuation Warnings in Southern Beirut**\
+`The military struck targets throughout the night that it said were tied to Hezbollah.`\
+https://nytimes.com/2024/09/27/world/middleeast/evacuations-beirut-strikes-israel.html
+
 **The Twins are eliminated: 5 reasons they collapsed when it counted**\
 `Here are five reasons the Twins will sit at home this October while Cleveland, Kansas City and Detroit earned postseason berths.`\
 https://nytimes.com/athletic/5795252/2024/09/27/minnesota-twins-collapse-reasons/
