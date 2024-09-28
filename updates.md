@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 4-2 Brighton - Historic four goals for Palmer, but Blues still lack control**\
+`Palmer became the first ever Premier League player to score four goals in the first half of a game as Chelsea won an entertaining encounter`\
+https://nytimes.com/athletic/5793780/2024/09/28/chelsea-4-2-brighton-palmer/
+
 **Arsenal 4 Leicester 2: Trossard's late goal sparks delight, Nwaneri impact, defensive lapses**\
 `Arsenal beat Leicester 4-2 after two late, late strikes at The Emirates from Trossard and Havertz. Here we break down the talking points...`\
 https://nytimes.com/athletic/5793727/2024/09/28/arsenal-4-leicester-2-result-trossard-nwaneri/

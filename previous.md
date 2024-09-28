@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5801240/2024/09/28/miami-virginia-tech-haily-mary-a
 `Huntley will start for the Dolphins on Monday night after the team signed him from Baltimore's practice squad a week ago.`\
 https://nytimes.com/athletic/5801285/2024/09/28/tyler-huntley-start-dolphins-titans/
 
-**The Briefing: Chelsea 4-2 Brighton - Four historic goals for Palmer, but Blues still lack control**\
+**The Briefing: Chelsea 4-2 Brighton - Historic four goals for Palmer, but Blues still lack control**\
 `Palmer became the first ever Premier League player to score four goals in the first half of a game as Chelsea won an entertaining encounter`\
 https://nytimes.com/athletic/5793780/2024/09/28/chelsea-4-2-brighton-palmer/
 
