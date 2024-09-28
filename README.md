@@ -1,3 +1,15 @@
+**Helene triggered flash floods, landslides and power outages. Here’s the latest.**\
+`By Soumya Karlamangla and Isabella Kwai`\
+https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/helene-triggered-flash-floods-landslides-and-power-outages-heres-the-latest
+
+**Live Updates: Helene Leaves Trail of Devastation Across Southeastern U.S.**\
+`The storm leveled entire towns and left at least 42 dead. Millions were still without power, and extreme rain left a dam in Tennessee on the brink of failure.`\
+https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina
+
+**Ex-Arsenal and Dundee forward Caballero dies aged 46**\
+`Former Arsenal forward Fabian Caballero has died at the age of 46, the club have confirmed.`\
+https://nytimes.com/athletic/5801070/2024/09/28/arsenal-fabian-caballero-dies-aged-46/
+
 **At Capacity**\
 `If we can’t remember the things we read and watch and even loved, do they still “count”?`\
 https://nytimes.com/2024/09/28/briefing/at-capacity.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5800243/2024/09/28/cubs-nico-hoerner-trade-speculat
 **The Connections Companion No. 476**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Sept. 29, 2024.`\
 https://nytimes.com/2024/09/28/crosswords/connections-companion-476.html
-
-**Wordle Review No. 1,198**\
-`Scroll down for hints and conversation about the puzzle for September 29, 2024`\
-https://nytimes.com/2024/09/28/crosswords/wordle-review-1198.html
-
-**White Sox Lose 121 Games in a Season, Making History**\
-`In its weird, shambolic spectacle, the record-setting game seemed to encapsulate the team’s entire dreadful season.`\
-https://nytimes.com/2024/09/28/us/white-sox-121st-loss.html
-
-**For families who fled the Beirut area targeted in the strikes, ‘nobody has any idea what to do.’**\
-`By Christina Goldbaum, Hwaida Saad, Vivian Yee and Jacob Roubai`\
-https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/for-families-who-fled-the-beirut-area-targeted-in-the-strikes-nobody-has-any-idea-what-to-do
 
