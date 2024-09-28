@@ -1,3 +1,11 @@
+**Arsenal 4 Leicester 2: Trossard's late goal sparks delight, Nwaneri impact, defensive lapses**\
+`Arsenal beat Leicester 4-2 after two late, late strikes at The Emirates from Trossard and Havertz. Here we break down the talking points...`\
+https://nytimes.com/athletic/5793727/2024/09/28/arsenal-4-leicester-2-result-trossard-nwaneri/
+
+**Was the Miami-Virginia Tech call correct? Here’s what you need to know**\
+`What were the referees looking at? Was there indisputable evidence to overturn the call? Why did it take so long?`\
+https://nytimes.com/athletic/5801240/2024/09/28/miami-virginia-tech-haily-mary-acc-officials/
+
 **QB Tyler Huntley to start for Dolphins vs. Titans**\
 `Huntley will start for the Dolphins on Monday night after the team signed him from Baltimore's practice squad a week ago.`\
 https://nytimes.com/athletic/5801285/2024/09/28/tyler-huntley-start-dolphins-titans/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/28/dining/go-ahead-gild-that-lily.html
 **Haaland 'knocks' to be assessed - Guardiola**\
 `Pep Guardiola says Erling Haaland will be assessed in the coming days after picking up &#8220;knocks&#8221; during Manchester City&#8217;s 1-1 draw at Newcastle United on Saturday.`\
 https://nytimes.com/athletic/5801211/2024/09/28/erling-haaland-injury-man-city-guardiola/
-
-**At Least 66 Die as Persistent Monsoon Rains Inundate Nepal**\
-`Disasters in the small Himalayan nation have become more frequent as the effects of climate change increase.`\
-https://nytimes.com/2024/09/28/world/asia/nepal-floods.html
-
-**Yes, You Can Swim in Louboutins**\
-`Christian Louboutin enlisted the French Olympic synchronized swimming team to introduce his new Miss Z stilettos at Paris Fashion Week.`\
-https://nytimes.com/2024/09/28/style/louboutin-fashion-week-france-olympic-swim-team.html
 
