@@ -1,3 +1,19 @@
+**Hollinger: Why Towns-for-Randle trade may turn 'best player' maxim on its head**\
+`Did the Knicks needlessly chase an expensive shiny object? Or did both teams actually do the right thing here?`\
+https://nytimes.com/athletic/5800986/2024/09/28/towns-randle-knicks-timberwolves-trade-analysis/
+
+**Israel knew Nasrallah’s whereabouts for months and feared that he was about to move, officials say.**\
+`By Ronen Bergman and Patrick Kingsley`\
+https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/israel-knew-nasrallahs-whereabouts-for-months-and-feared-that-he-was-about-to-move-officials-say
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/09/28/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Vance Makes Last Campaign Stops Before V.P. Debate**\
+`Senator JD Vance, Donald Trump’s running mate, has a pair of events in the crucial battleground of Pennsylvania. Mr. Trump heads to Wisconsin as Kamala Harris is set to fund-raise in California.`\
+https://nytimes.com/live/2024/09/28/us/harris-trump-election
+
 **Molly Recommends Small Takes on Big Ideas, and a Novel of Sisterhood**\
 `James Richardson’s aphorisms; Nora Lange’s novel “Us Fools”`\
 https://nytimes.com/2024/09/28/books/read-like-wind-recommendations.html
