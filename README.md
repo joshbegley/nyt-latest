@@ -1,3 +1,7 @@
+**Molly Recommends Small Takes on Big Ideas, and a Novel of Sisterhood**\
+`James Richardson’s aphorisms; Nora Lange’s novel “Us Fools”`\
+https://nytimes.com/2024/09/28/books/read-like-wind-recommendations.html
+
 **Power and Communication Outages Hamper Assessment of Landslides**\
 `With communication lines down in the mountains amid Helene, early reports were unclear about how many landslides had occurred and the extent of damage from the storm.`\
 https://nytimes.com/2024/09/28/climate/north-carolina-landslides.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799358/2024/09/28/bo-nix-broncos-running-qb/
 **No Turkish Delight for New York’s Mayor**\
 `The latest worm in the Big Apple.`\
 https://nytimes.com/2024/09/28/opinion/eric-adams-mayor-indictment.html
-
-**The Cost of What Eric Adams Compromised**\
-`Eric Adams is accused of injecting foreign funds directly into his election campaigns, compromising not only the mayor’s office but also American elections.`\
-https://nytimes.com/2024/09/28/opinion/eric-adams-turkey-corruption.html
 
