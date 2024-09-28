@@ -1,3 +1,7 @@
+**Illinois at Penn State picks, odds, how to watch: PSU heavily favored in top-25 showdown**\
+`Two undefeated top-20 Big Ten teams meet at Penn State when heavy underdog Illinois visits Happy Valley.`\
+https://nytimes.com/athletic/5799560/2024/09/28/illinois-penn-state-picks-odds-predictions-how-to-watch/
+
 **Israel’s military says it killed Hassan Nasrallah and other Hezbollah leaders; the militia has not confirmed that.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/israels-military-says-it-killed-hassan-nasrallah-and-other-hezbollah-leaders-the-militia-has-not-confirmed-that

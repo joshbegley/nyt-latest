@@ -1,3 +1,7 @@
+**Illinois at Penn State picks, odds, how to watch: PSU heavily favored in top-25 showdown**\
+`Two undefeated top-20 Big Ten teams meet at Penn State when heavy underdog Illinois visits Happy Valley.`\
+https://nytimes.com/athletic/5799560/2024/09/28/illinois-penn-state-picks-odds-predictions-how-to-watch/
+
 **Israel’s military says it killed Hassan Nasrallah and other Hezbollah leaders; the militia has not confirmed that.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/09/28/world/israel-lebanon-hezbollah-hamas/israels-military-says-it-killed-hassan-nasrallah-and-other-hezbollah-leaders-the-militia-has-not-confirmed-that
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/upshot/polls-harris-trump-ohio-michigan-wisconsin
 **‘We’re Still Living in Fear’: Escaping the Attacks in Lebanon**\
 `Tens of thousands of people have been displaced in Lebanon. Khaled Hussein, 20, fled Syria as a child. He describes the bombardment that forced his family to flee again.`\
 https://nytimes.com/video/world/middleeast/100000009726536/israel-lebanon-strikes-displacement.html
-
-**Ahead of Debate, Walz Is Viewed More Favorably Than Vance in Midwest, Polls Find**\
-`Gov. Tim Walz is viewed more favorably than Senator JD Vance by likely voters in Michigan, Ohio and Wisconsin, according to New York Times/Siena College polls.`\
-https://nytimes.com/2024/09/28/us/politics/walz-vance-vp-midwest-polls.html
 
