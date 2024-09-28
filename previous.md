@@ -1,3 +1,7 @@
+**World anti-doping agency seeks ban of up to two years in Jannik Sinner case appeal**\
+`World Anti-Doping Agency is appealing the "no fault or negligence" finding in Jannik Sinner's anti-doping investigation for clostebol.`\
+https://nytimes.com/athletic/5801008/2024/09/28/jannik-sinner-doping-wada-appeal/
+
 **Humble Roots Helped Make Him Mayor. A Love of Luxury May Bring Him Down.**\
 `Mayor Eric Adams was elected partly on the strength of his origin story, a narrative that shrouded questions of his character, judgment and associates.`\
 https://nytimes.com/2024/09/28/nyregion/eric-adams-rise-fall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800842/2024/09/28/shohei-ohtani-triple-crown-possi
 **Trade grades: Who won Karl-Anthony Towns, Julius Randle swap?**\
 `This trade is a massive gamble for both the Knicks and Timberwolves. Does it get either team closer to a title?`\
 https://nytimes.com/athletic/5800699/2024/09/28/knicks-timberwolves-karl-anthony-towns-trade-grades/
-
-**Braves' Max Fried throws a gem at a crucial time: Will it be his last home start?**\
-`As Fried walked off the field, he looked up at the crowd: "Just thanking the fans for pushing us."`\
-https://nytimes.com/athletic/5800793/2024/09/28/braves-max-fried-wild-card/
 

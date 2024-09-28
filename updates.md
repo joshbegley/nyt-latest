@@ -1,3 +1,7 @@
+**World anti-doping agency seeks ban of up to two years in Jannik Sinner case appeal**\
+`World Anti-Doping Agency is appealing the "no fault or negligence" finding in Jannik Sinner's anti-doping investigation for clostebol.`\
+https://nytimes.com/athletic/5801008/2024/09/28/jannik-sinner-doping-wada-appeal/
+
 **Humble Roots Helped Make Him Mayor. A Love of Luxury May Bring Him Down.**\
 `Mayor Eric Adams was elected partly on the strength of his origin story, a narrative that shrouded questions of his character, judgment and associates.`\
 https://nytimes.com/2024/09/28/nyregion/eric-adams-rise-fall.html
