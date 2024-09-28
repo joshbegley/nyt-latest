@@ -1,3 +1,7 @@
+**Kristian Campbell earns Red Sox minor-league honors, could impact club in 2025**\
+`Campbell and the Red Sox's other minor-league award winners were honored before the game on Friday.`\
+https://nytimes.com/athletic/5800411/2024/09/27/kristian-campbell-red-sox-offensive-player-of-the-year/
+
 **Dodgers' Shohei Ohtani surpasses Ichiro milestone**\
 `DENVER — With the division and a first-round bye secured, Los Angeles Dodgers manager Dave Roberts reemphasized the green light for Shohei Ohtani during the superstar’s prolific season.`\
 https://nytimes.com/athletic/5800534/2024/09/27/dodgers-shohei-ohtani-ichiro-record/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/27/us/politics/netanyahu-israel-un.html
 **In Atlanta, Flooding From Helene Forced Some Residents to Wade to Safety**\
 `In the Buckhead neighborhood, waters from a swollen creek rushed into low-lying apartments.`\
 https://nytimes.com/2024/09/27/weather/atlanta-flooding-buckhead.html
-
-**What to know about the International Team's dominant Day 2 at the Presidents Cup**\
-`The International side played 57 holes with the lead Friday across all matches. The Americans? One.`\
-https://nytimes.com/athletic/5800400/2024/09/27/presidents-cup-analysis-2024-day-2-international-team/
 
