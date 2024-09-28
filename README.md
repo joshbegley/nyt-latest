@@ -30,11 +30,11 @@ https://nytimes.com/2024/09/28/world/middleeast/why-israel-assassinate-nasrallah
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/28/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
-**Election Live Updates: Vance and Walz Campaign in Swing States Before V.P. Debate**\
-`Senator JD Vance has two events in Pennsylvania and Gov. Tim Walz is stumping in Michigan. New polling shows the presidential race is a tight in two crucial Rust Belt states.`\
-https://nytimes.com/live/2024/09/28/us/harris-trump-election
-
 **Molly Recommends Small Takes on Big Ideas, and a Novel of Sisterhood**\
 `James Richardson’s aphorisms; Nora Lange’s novel “Us Fools”`\
 https://nytimes.com/2024/09/28/books/read-like-wind-recommendations.html
+
+**Power and Communication Outages Hamper Assessment of Landslides**\
+`With communication lines down in the mountains amid Helene, early reports were unclear about how many landslides had occurred and the extent of damage from the storm.`\
+https://nytimes.com/2024/09/28/climate/north-carolina-landslides.html
 

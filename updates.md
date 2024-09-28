@@ -1,3 +1,7 @@
+**Election Live Updates: Vance and Walz Campaign in Swing States Before V.P. Debate**\
+`Senator JD Vance has two events in Pennsylvania and Gov. Tim Walz is stumping in Michigan. New polling shows the presidential race is a tight in two crucial Rust Belt states.`\
+https://nytimes.com/live/2024/09/28/us/harris-trump-election
+
 **As Hezbollah Pursued a Limited War, Israel Went for a Knockout**\
 `The militia group seemed content to trade blows with Israel while avoiding a major conflict. A strike that killed its leader proves it miscalculated.`\
 https://nytimes.com/2024/09/28/world/middleeast/hezbollah-hassan-nasrallah-next-steps.html
