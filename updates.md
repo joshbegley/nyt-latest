@@ -1,3 +1,15 @@
+**Harris, at the Border, Shows Democrats’ Hard-Line Evolution on Immigration**\
+`Vowing to carry on President Biden’s crackdown on asylum and to impose order on the southern border, the vice president demonstrated how much the politics of immigration have changed.`\
+https://nytimes.com/2024/09/27/us/politics/harris-border-immigration-arizona.html
+
+**Why Hurricane Helene Was So Strong**\
+`In just over 12 hours, Hurricane Helene transformed from a Category 1 to a Category 4 hurricane — the strongest ever to hit the Big Bend coast of Florida. Judson Jones, a meteorologist and reporter for The New York Times covering extreme weather, explains why it grew so strong.`\
+https://nytimes.com/video/weather/100000009725558/why-hurricane-helene-was-so-strong.html
+
+**Israel Bombs Residential Site in Effort to Kill Hezbollah Leader**\
+`The strike came barely an hour after the Israeli prime minister, Benjamin Netanyahu, delivered a fiery address to the U.N. General Assembly.`\
+https://nytimes.com/2024/09/27/world/middleeast/israel-hezbollah-netanyahu-nasrallah.html
+
 **Kristian Campbell earns Red Sox minor-league honors, could impact club in 2025**\
 `Campbell and the Red Sox's other minor-league award winners were honored before the game on Friday.`\
 https://nytimes.com/athletic/5800411/2024/09/27/kristian-campbell-red-sox-offensive-player-of-the-year/
