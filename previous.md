@@ -1,3 +1,7 @@
+**How Giants' poor return on pass-rush investment cost them in loss to Cowboys**\
+`Final review of the loss to the Cowboys includes cornerback issues, a sputtering running game and some head-scratching play calls. `\
+https://nytimes.com/athletic/5800528/2024/09/28/giants-pass-rush-cowboys/
+
 **Go Ahead, Gild That Lily**\
 `Andy Baraghani’s tahini apple tart sparkles. No, really: The sesame seeds and sugar on the crust give it real luster (and crunch).`\
 https://nytimes.com/2024/09/28/dining/go-ahead-gild-that-lily.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/world/africa/amadou-mahtar-mbow-dead.html
 **Russini’s what I’m hearing: Caleb Williams is not Bryce Young; Kelce problems; Love, Willis or both?**\
 `Plus, the difference for Josh Allen and his new Bills weapons, Haason Reddick holdout update and the 49ers' other problem.`\
 https://nytimes.com/athletic/5800719/2024/09/28/nfl-week-4-jordan-love-injury-malik-willis-travis-kelce-problems-caleb-williams-bryce-young-comparisons/
-
-**A Decimated Hezbollah Is a Serious Blow to Iran**\
-`How Iran responds to the death of the Lebanese militia’s leader, Hassan Nasrallah, in an Israeli airstrike will affect the region, and beyond.`\
-https://nytimes.com/2024/09/28/world/middleeast/iran-hezbollah-israel-nasrallah-strike.html
 
