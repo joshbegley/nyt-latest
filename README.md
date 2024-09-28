@@ -1,3 +1,7 @@
+**Skip Schumaker reportedly leaves Marlins to become winter’s top managerial target**\
+`Skip Schumaker, who has long been expected to be the most sought after manager in the big leagues this winter, informed Miami Marlins players after their 15-5 victory on Friday night in Toronto that he would not be returning for 2025, according to multiple published reports.`\
+https://nytimes.com/athletic/5801417/2024/09/28/skip-schumaker-leaves-marlins/
+
 **Arch Manning starting Texas' SEC opener vs. Mississippi State**\
 `Quinn Ewers has been recovering from a strained oblique suffered in the second quarter of Texas’ Sept. 14 win against UTSA.`\
 https://nytimes.com/athletic/5801471/2024/09/28/arch-manning-starting-texas-mississippi-state/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/28/us/helene-storm-florida-north-carolina/the-p
 **‘This Is a Disaster’: Western North Carolina Reels From Helene**\
 `Hundreds of roads were blocked across the region, and officials warned of more mudslides and damage to come.`\
 https://nytimes.com/2024/09/28/us/north-carolina-helene-asheville-shelby.html
-
-**Strike on Hezbollah Deepens Disconnect Between Biden and Netanyahu**\
-`Israeli officials gave their American counterparts no advance warning of the strike that killed Hassan Nasrallah, the longtime leader of Hezbollah, according to U.S. officials. But Mr. Biden said the killing was “a measure of justice” for victims of Hezbollah terrorism.`\
-https://nytimes.com/2024/09/28/us/politics/hezbollah-strike-nasrallah-biden-netanyahu.html
 
