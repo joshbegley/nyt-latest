@@ -1,3 +1,11 @@
+**The Fans Want to Watch Football. Trump and Walz Will Be There, Too.**\
+`Donald Trump and Tim Walz are attending college games on Saturday that will draw plenty of viewers in the swing states of Michigan and Georgia.`\
+https://nytimes.com/2024/09/28/us/politics/the-fans-want-to-watch-football-trump-and-walz-will-be-there-too.html
+
+**Trump Voters Drive a Rise in Ticket Splitting**\
+`Ticket splitters in key presidential battlegrounds and Ohio tend to be supporters of Donald J. Trump who are skeptical of his picks for Senate, polling shows.`\
+https://nytimes.com/2024/09/28/us/politics/trump-voters-ticket-splitting.html
+
 **Power and Communication Outages Hamper Assessment of Landslides**\
 `With communication lines down in the mountains amid Helene, early reports were unclear about how many landslides had occurred and the extent of damage from the storm.`\
 https://nytimes.com/2024/09/28/climate/north-carolina-landslides.html
