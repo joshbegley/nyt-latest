@@ -1,3 +1,7 @@
+**Michigan questions piling up after surviving 4th-quarter meltdown against Minnesota**\
+`Michigan hung on to beat Minnesota 27-24 after giving up 21 fourth-quarter points — and getting help from a penalty on an onside kick.`\
+https://nytimes.com/athletic/5801548/2024/09/28/michigan-minnesota-score-onside-kick-penalty/
+
 **Cooper says Leicester suffered referee's 'poor decisions' in Arsenal defeat**\
 `Leicester City manager Steve Cooper says his side suffered from &#8220;two poor decisions&#8221; during their 4-2 defeat at Arsenal.`\
 https://nytimes.com/athletic/5801607/2024/09/28/steve-cooper-leicester-arsenal-referee-decisions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799672/2024/09/28/nhl-waivers-tracker-preseason/
 **Nasrallah’s death throws more uncertainty into Lebanon’s political disarray.**\
 `Plagued by years of political dysfunction, Lebanese leaders could try to use Israel’s weakening of Hezbollah to form a government. It would be a dangerous balancing act that also risks provoking deeper conflict.`\
 https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/nasrallahs-death-throws-more-uncertainty-into-lebanons-political-disarray
-
-**Fantasy football rankings Week 4: Sleepers, projections, starts, sits**\
-`Jake Ciely offers up his Week 4 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
-https://nytimes.com/athletic/5791981/2024/09/28/fantasy-football-rankings-week-4-sleepers-projections-start-sit/
 
