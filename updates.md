@@ -1,4 +1,8 @@
 **ETSU football team stranded on buses for hours while traveling to game**\
+`East Tennessee State’s football team spent Friday night stranded on team buses before Saturday’s game at The Citadel.`\
+https://nytimes.com/athletic/5801281/2024/09/28/college-football-flooding-etsu-citadel/
+
+**ETSU football team stranded on buses for hours while traveling to game**\
 `East Tennessee State’s football team spent a harrowing Friday night stranded on three team buses before Saturday’s 5 p.`\
 https://nytimes.com/athletic/5801281/2024/09/28/college-football-flooding-etsu-citadel/
 
