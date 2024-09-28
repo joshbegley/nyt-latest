@@ -1,3 +1,7 @@
+**Tennessee Dam Near Failure After Heavy Rain From Helene**\
+`The authorities were evacuating residents living downstream from the Nolichucky Dam, warning it was likely to fail and cause deadly flash flooding after Helene caused record water levels in the area.`\
+https://nytimes.com/2024/09/28/weather/helene-tennessee-nolichucky-dam-evacuation.html
+
 **Shohei Ohtani’s latest quest: The first NL Triple Crown since 1937. Is it possible?**\
 `Ohtani's hot streak puts him within range of catching Luis Arraez for the batting title: “Shohei, man, he put on a show tonight."`\
 https://nytimes.com/athletic/5800842/2024/09/28/shohei-ohtani-triple-crown-possibility/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5798921/2024/09/28/football-3pm-kick-off-decline/
 **13 insights fantasy football managers need to know ahead of Week 4**\
 `According to Theo Gremminger, Jayden Daniels could challenge for top fantasy QB honors, as he shares insights on 13 players ahead of Week 4.`\
 https://nytimes.com/athletic/5799628/2024/09/28/13-insights-fantasy-football-managers-need-to-know-ahead-of-week-4-2/
-
-**Laborer’s Death Brings to Light Italy’s Conflicted Relationship With Migrants**\
-`Italy, an aging country, badly needs migrant labor and immigration, but the government has admitted that the pathways for legal entry are rife with abuse.`\
-https://nytimes.com/2024/09/28/world/europe/italy-migrant-labor.html
 

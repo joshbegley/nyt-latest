@@ -1,3 +1,7 @@
+**Tennessee Dam Near Failure After Heavy Rain From Helene**\
+`The authorities were evacuating residents living downstream from the Nolichucky Dam, warning it was likely to fail and cause deadly flash flooding after Helene caused record water levels in the area.`\
+https://nytimes.com/2024/09/28/weather/helene-tennessee-nolichucky-dam-evacuation.html
+
 **Shohei Ohtani’s latest quest: The first NL Triple Crown since 1937. Is it possible?**\
 `Ohtani's hot streak puts him within range of catching Luis Arraez for the batting title: “Shohei, man, he put on a show tonight."`\
 https://nytimes.com/athletic/5800842/2024/09/28/shohei-ohtani-triple-crown-possibility/
