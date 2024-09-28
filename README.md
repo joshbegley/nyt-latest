@@ -1,3 +1,7 @@
+**The Briefing: Wolves 1 Liverpool 2 - How a first 'ugly' win left Slot top of the table**\
+`The major talking points analysed from Molineux as Liverpool's fine start to the season continued`\
+https://nytimes.com/athletic/5796363/2024/09/28/wolves-liverpool-premier-league-result/
+
 **Can Hezbollah Recover From the Death of Its Most Commanding Leader?**\
 `Hassan Nasrallah’s killing raises questions about whether the group can strike back at Israel. But U.S. officials say it’s too soon to count the group out.`\
 https://nytimes.com/2024/09/28/world/middleeast/hezbollah-nasrallah-future.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/despair-celeb
 **Jeff Passan, ESPN's MLB insider, is a candidate to replace Woj**\
 `Jeff Passan has emerged as a candidate, along with The Athletic's Shams Charania, to switch sports and replace Adrian Wojnarowski at ESPN.`\
 https://nytimes.com/athletic/5801309/2024/09/28/jeff-passan-espn-nba-adrian-wojnarowski-shams-charania/
-
-**Arsenal 4 Leicester 2: Trossard's late goal sparks delight, Nwaneri impact, defensive lapses**\
-`Arsenal beat Leicester 4-2 after two late, late strikes at The Emirates from Trossard and Havertz. Here we break down the talking points...`\
-https://nytimes.com/athletic/5793727/2024/09/28/arsenal-4-leicester-2-result-trossard-nwaneri/
 
