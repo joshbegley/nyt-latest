@@ -1,3 +1,7 @@
+**Trade grades: Who won Karl-Anthony Towns, Julius Randle swap?**\
+`This trade is a massive gamble for both the Knicks and Timberwolves. Does it get either team closer to a title?`\
+https://nytimes.com/athletic/5800699/2024/09/28/knicks-timberwolves-karl-anthony-towns-trade-grades/
+
 **Braves' Max Fried throws a gem at a crucial time: Will it be his last home start?**\
 `As Fried walked off the field, he looked up at the crowd: "Just thanking the fans for pushing us."`\
 https://nytimes.com/athletic/5800793/2024/09/28/braves-max-fried-wild-card/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/world/europe/italy-migrant-labor.html
 **Saturday's MLB best bets: Projections for pitching matchups, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
 https://nytimes.com/athletic/5800009/2024/09/28/mlb-odds-best-bets-projections-september-28/
-
-**Quote of the Day: F.D.A. Approves the First New Drug to Treat Schizophrenia in Decades**\
-`Quotation of the Day for Saturday, September 27, 2024`\
-https://nytimes.com/2024/09/27/pageoneplus/quote-of-the-day-fda-approves-the-first-new-drug-to-treat-schizophrenia-in-decades.html
 
