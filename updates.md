@@ -1,3 +1,7 @@
+**Palmer's personality will not change with success - Maresca**\
+`Enzo Maresca believes even being the best player in the Premier League would not change the personality that has made Cole Palmer so successful at Chelsea.`\
+https://nytimes.com/athletic/5801421/2024/09/28/cole-palmer-chelsea-goals-maresca/
+
 **Mets, Braves need weekend sweeps to avoid playing Monday: Latest NL playoff scenarios**\
 `The Braves, Mets and D-Backs are essentially tied. What the Mets, in particular, desperately want to avoid is the Max Chaos scenario. `\
 https://nytimes.com/athletic/5801394/2024/09/28/mets-braves-diamondbacks-mlb-playoff-scenarios/

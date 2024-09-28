@@ -1,3 +1,7 @@
+**Palmer's personality will not change with success - Maresca**\
+`Enzo Maresca believes even being the best player in the Premier League would not change the personality that has made Cole Palmer so successful at Chelsea.`\
+https://nytimes.com/athletic/5801421/2024/09/28/cole-palmer-chelsea-goals-maresca/
+
 **Mets, Braves need weekend sweeps to avoid playing Monday: Latest NL playoff scenarios**\
 `The Braves, Mets and D-Backs are essentially tied. What the Mets, in particular, desperately want to avoid is the Max Chaos scenario. `\
 https://nytimes.com/athletic/5801394/2024/09/28/mets-braves-diamondbacks-mlb-playoff-scenarios/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801240/2024/09/28/miami-virginia-tech-haily-mary-a
 **QB Tyler Huntley to start for Dolphins vs. Titans**\
 `Huntley will start for the Dolphins on Monday night after the team signed him from Baltimore's practice squad a week ago.`\
 https://nytimes.com/athletic/5801285/2024/09/28/tyler-huntley-start-dolphins-titans/
-
-**The Briefing: Chelsea 4-2 Brighton - Historic four goals for Palmer, but Blues still lack control**\
-`Palmer became the first ever Premier League player to score four goals in the first half of a game as Chelsea won an entertaining encounter`\
-https://nytimes.com/athletic/5793780/2024/09/28/chelsea-4-2-brighton-palmer/
 
