@@ -1,3 +1,7 @@
+**Shohei Ohtani’s latest quest: The first NL Triple Crown since 1937. Is it possible?**\
+`Ohtani's hot streak puts him within range of catching Luis Arraez for the batting title: “Shohei, man, he put on a show tonight."`\
+https://nytimes.com/athletic/5800842/2024/09/28/shohei-ohtani-triple-crown-possibility/
+
 **Trade grades: Who won Karl-Anthony Towns, Julius Randle swap?**\
 `This trade is a massive gamble for both the Knicks and Timberwolves. Does it get either team closer to a title?`\
 https://nytimes.com/athletic/5800699/2024/09/28/knicks-timberwolves-karl-anthony-towns-trade-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799628/2024/09/28/13-insights-fantasy-football-man
 **Laborer’s Death Brings to Light Italy’s Conflicted Relationship With Migrants**\
 `Italy, an aging country, badly needs migrant labor and immigration, but the government has admitted that the pathways for legal entry are rife with abuse.`\
 https://nytimes.com/2024/09/28/world/europe/italy-migrant-labor.html
-
-**Saturday's MLB best bets: Projections for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
-https://nytimes.com/athletic/5800009/2024/09/28/mlb-odds-best-bets-projections-september-28/
 
