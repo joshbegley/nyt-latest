@@ -1,6 +1,14 @@
+**Trump Takes Attacks on Harris to a New Low, Calling Her ‘Mentally Disabled’**\
+`Former President Donald J. Trump assailed Vice President Kamala Harris in harshly personal terms in what he conceded was “a dark speech.”`\
+https://nytimes.com/2024/09/28/us/politics/trump-attacks-harris-border.html
+
+**Kyle Hendricks gets the goodbye at home he worked hard to earn, exiting on a high note**\
+`In a 3-0 win Saturday over the Reds at Wrigley, he did his best to make sure he earned every bit of the multiple ovations he got on the day.`\
+https://nytimes.com/athletic/5801920/2024/09/28/cubs-kyle-hendricks-exits-high-note/
+
 **Travis Hunter strikes a Heisman pose in Colorado’s blowout win at UCF**\
 `On Saturday, Hunter caught a touchdown pass and intercepted a pass in the same game for the second time in the last three weeks.`\
-https://nytimes.com/athletic/5801974/2024/09/28/travis-hunter-colorado-hesiman-deion-sanders/
+https://nytimes.com/athletic/5801974/2024/09/28/travis-hunter-colorado-heisman-deion-sanders/
 
 **More Than 400 Roads Closed in North Carolina After Damage From Helene**\
 `The closures, including on two interstates, left motorists scrambling for options.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5801882/2024/09/28/usc-wisconsin-score-analysis-col
 **Is Notre Dame optimism back after beating Louisville? Irish takeaways**\
 `Saturday felt like a referendum on Notre Dame with Marcus Freeman and Riley Leonard. The Irish passed the test.`\
 https://nytimes.com/athletic/5801870/2024/09/28/notre-dame-louisville-score-college-football/
-
-**Death of Nasrallah Pushes Mideast Conflict Into New Territory**\
-`After Israel killed the leader of Hezbollah, the powerful Lebanese militia and Iranian proxy, Tehran was faced with deciding how, or whether, to retaliate.`\
-https://nytimes.com/2024/09/28/world/middleeast/nasrallah-israel-hezbollah-iran.html
-
-**Who Was Hassan Nasrallah, Leader of Hezbollah?**\
-`The leader of the militant group Hezbollah, Hassan Nasrallah, was killed by an Israeli airstrike in Lebanon on Friday. Neil MacFarquhar, a reporter for The New York Times who met and interviewed Nasrallah in 2002, explains who he was and the significance of his death.`\
-https://nytimes.com/video/world/middleeast/100000009728018/who-was-hassan-nasrallah-leader-of-hezbollah.html
 
