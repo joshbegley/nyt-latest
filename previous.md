@@ -1,3 +1,7 @@
+**Nuno says referee 'did not do a good job' in Forest defeat to Fulham**\
+`Nuno Espirito Santo says he is fed up of complaining about referees after Nottingham Forest were defeated 1-0 by Fulham.`\
+https://nytimes.com/athletic/5801435/2024/09/28/nuno-nottingham-forest-fulham-penalty/
+
 **Palmer's personality will not change with success - Maresca**\
 `Enzo Maresca believes even being the best player in the Premier League would not change the personality that has made Cole Palmer so successful at Chelsea.`\
 https://nytimes.com/athletic/5801421/2024/09/28/cole-palmer-chelsea-goals-maresca/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5793727/2024/09/28/arsenal-4-leicester-2-result-tro
 **Was the Miami-Virginia Tech call correct? Here’s what you need to know**\
 `What were the referees looking at? Was there indisputable evidence to overturn the call? Why did it take so long?`\
 https://nytimes.com/athletic/5801240/2024/09/28/miami-virginia-tech-haily-mary-acc-officials/
-
-**QB Tyler Huntley to start for Dolphins vs. Titans**\
-`Huntley will start for the Dolphins on Monday night after the team signed him from Baltimore's practice squad a week ago.`\
-https://nytimes.com/athletic/5801285/2024/09/28/tyler-huntley-start-dolphins-titans/
 

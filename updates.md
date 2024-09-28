@@ -1,3 +1,7 @@
+**Nuno says referee 'did not do a good job' in Forest defeat to Fulham**\
+`Nuno Espirito Santo says he is fed up of complaining about referees after Nottingham Forest were defeated 1-0 by Fulham.`\
+https://nytimes.com/athletic/5801435/2024/09/28/nuno-nottingham-forest-fulham-penalty/
+
 **Palmer's personality will not change with success - Maresca**\
 `Enzo Maresca believes even being the best player in the Premier League would not change the personality that has made Cole Palmer so successful at Chelsea.`\
 https://nytimes.com/athletic/5801421/2024/09/28/cole-palmer-chelsea-goals-maresca/
