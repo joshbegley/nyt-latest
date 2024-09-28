@@ -1,3 +1,7 @@
+**Molly Recommends Small Takes on Big Ideas, and a Novel of Sisterhood**\
+`James Richardson’s aphorisms; Nora Lange’s novel “Us Fools”`\
+https://nytimes.com/2024/09/28/books/read-like-wind-recommendations.html
+
 **Power and Communication Outages Hamper Assessment of Landslides**\
 `With communication lines down in the mountains amid Helene, early reports were unclear about how many landslides had occurred and the extent of damage from the storm.`\
 https://nytimes.com/2024/09/28/climate/north-carolina-landslides.html
