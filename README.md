@@ -1,3 +1,7 @@
+**Arch Manning starting Texas' SEC opener vs. Mississippi State**\
+`Quinn Ewers has been recovering from a strained oblique suffered in the second quarter of Texas’ Sept. 14 win against UTSA.`\
+https://nytimes.com/athletic/5801471/2024/09/28/arch-manning-starting-texas-mississippi-state/
+
 **Arteta speaks of 'love and respect' for Guardiola and Man City staff**\
 `Mikel Arteta has spoken of his &#8220;love and respect&#8221; for Pep Guardiola and his Manchester City staff after being asked to clarify his comments on the club.`\
 https://nytimes.com/athletic/5801493/2024/09/28/mikel-arteta-arsenal-manchester-city-guardiola/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/us/north-carolina-helene-asheville-shelby.html
 **Strike on Hezbollah Deepens Disconnect Between Biden and Netanyahu**\
 `Israeli officials gave their American counterparts no advance warning of the strike that killed Hassan Nasrallah, the longtime leader of Hezbollah, according to U.S. officials. But Mr. Biden said the killing was “a measure of justice” for victims of Hezbollah terrorism.`\
 https://nytimes.com/2024/09/28/us/politics/hezbollah-strike-nasrallah-biden-netanyahu.html
-
-**Despair, celebration and shock followed the news of Nasrallah’s death in Beirut.**\
-`By Vivian Yee, Christina Goldbaum, Hwaida Saad and Jacob Roubai`\
-https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/despair-celebration-and-shock-followed-the-news-of-nasrallahs-death-in-beirut
 
