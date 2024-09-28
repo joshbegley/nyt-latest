@@ -1,3 +1,7 @@
+**NHL waiver tracker: Best players on the wire throughout 2024-25 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/5799672/2024/09/28/nhl-waivers-tracker-preseason/
+
 **Nebraska survives trip to Purdue: Takeaways from an ugly win in West Lafayette**\
 `The mantra for Nebraska when it plays at Purdue has never been anything but these four words: survive and get out. Mission accomplished.`\
 https://nytimes.com/athletic/5801562/2024/09/28/nebraska-purdue-dylan-raiola-matt-rhule/
