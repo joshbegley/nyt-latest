@@ -1,3 +1,7 @@
+**Go Ahead, Gild That Lily**\
+`Andy Baraghani’s tahini apple tart sparkles. No, really: The sesame seeds and sugar on the crust give it real luster (and crunch).`\
+https://nytimes.com/2024/09/28/dining/go-ahead-gild-that-lily.html
+
 **Haaland 'knocks' to be assessed - Guardiola**\
 `Pep Guardiola says Erling Haaland will be assessed in the coming days after picking up &#8220;knocks&#8221; during Manchester City&#8217;s 1-1 draw at Newcastle United on Saturday.`\
 https://nytimes.com/athletic/5801211/2024/09/28/erling-haaland-injury-man-city-guardiola/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800719/2024/09/28/nfl-week-4-jordan-love-injury-ma
 **A Decimated Hezbollah Is a Serious Blow to Iran**\
 `How Iran responds to the death of the Lebanese militia’s leader, Hassan Nasrallah, in an Israeli airstrike will affect the region, and beyond.`\
 https://nytimes.com/2024/09/28/world/middleeast/iran-hezbollah-israel-nasrallah-strike.html
-
-**Hassan Nasrallah, Who Led Hezbollah for Decades, Killed at 64**\
-`In 32 years in charge of Hezbollah, Mr. Nasrallah built the Iranian-backed militia into an influential regional force and a potent adversary of Israel.`\
-https://nytimes.com/2024/09/28/world/middleeast/hassan-nasrallah-hezbollah-dead.html
 
