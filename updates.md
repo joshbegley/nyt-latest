@@ -1,3 +1,11 @@
+**A Family’s Desperate Flight Through Helene’s Rising Floodwaters**\
+`When a family in Shore Acres, Fla., feared the water would rise to their roof, they made a decision to swim out to safety.`\
+https://nytimes.com/2024/09/27/weather/shore-acres-flooding.html
+
+**White Sox lose 121st game of season, most by any team in modern baseball history**\
+` “I never thought that this would be broken while I was still around,” said 86-year-old Craig Anderson, a member of the 1962 Mets.`\
+https://nytimes.com/athletic/5792656/2024/09/27/white-sox-mlb-loss-record/
+
 **Tigers clinch unlikely playoff spot with win**\
 `The Tigers had a 0.2 percent chance to make the playoffs as of early August. `\
 https://nytimes.com/athletic/5800509/2024/09/27/tigers-clinch-playoff-berth/
