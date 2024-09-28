@@ -1,3 +1,7 @@
+**Dodgers' Shohei Ohtani surpasses Ichiro milestone**\
+`DENVER — With the division and a first-round bye secured, Los Angeles Dodgers manager Dave Roberts reemphasized the green light for Shohei Ohtani during the superstar’s prolific season.`\
+https://nytimes.com/athletic/5800534/2024/09/27/dodgers-shohei-ohtani-ichiro-record/
+
 **A Family’s Desperate Flight Through Helene’s Rising Floodwaters**\
 `When a family in Shore Acres, Fla., feared the water would rise to their roof, they made a decision to swim out to safety.`\
 https://nytimes.com/2024/09/27/weather/shore-acres-flooding.html
