@@ -1,3 +1,15 @@
+**Barcelona's perfect La Liga start ends with 4-2 defeat at Osasuna**\
+`Barcelona&#8217;s perfect start to the season in La Liga came to an emphatic end with a 4-2 defeat at Osasuna.`\
+https://nytimes.com/athletic/5801771/2024/09/28/barcelona-defeat-osasuna-la-liga/
+
+**Jaxson Dart is a tough NFL Draft evaluation, and Kentucky loss proves why**\
+`The talented QB had been putting up huge numbers, but he struggled when Kentucky slowed down Ole Miss' attack.`\
+https://nytimes.com/athletic/5801685/2024/09/28/jaxson-dart-nfl-draft-2025-scouting/
+
+**2,000-Pound Bombs Likely Used in Attack That Killed Nasrallah, Video Shows**\
+`A Times analysis of video from the Israeli military shows that at least eight planes it said were used in the attack on Hassan Nasrallah were armed with bunker-buster bombs.`\
+https://nytimes.com/2024/09/28/world/middleeast/israel-nasrallah-bombs.html
+
 **Here Is Who Remains in Hezbollah’s Leadership**\
 `Israel has recently killed several commanders of the Lebanese militia, including its longtime leader, Hassan Nasrallah.`\
 https://nytimes.com/2024/09/28/world/middleeast/hezbollah-leaders-who-remains.html
