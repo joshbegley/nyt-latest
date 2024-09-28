@@ -1,3 +1,7 @@
+**Amadou Mahtar M’Bow, 103, Dies; His Tenure Leading UNESCO Was Stormy**\
+`He was the first Black African to head a major international organization, but complaints about his tenure led the U.S. and Britain to pull out of it.`\
+https://nytimes.com/2024/09/28/world/africa/amadou-mahtar-mbow-dead.html
+
 **Russini’s what I’m hearing: Caleb Williams is not Bryce Young; Kelce problems; Love, Willis or both?**\
 `Plus, the difference for Josh Allen and his new Bills weapons, Haason Reddick holdout update and the 49ers' other problem.`\
 https://nytimes.com/athletic/5800719/2024/09/28/nfl-week-4-jordan-love-injury-malik-willis-travis-kelce-problems-caleb-williams-bryce-young-comparisons/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/science/spacex-launch-nasa.html
 **Can Lina Khan Hold On?**\
 `Ms. Khan’s term as the chair of the Federal Trade Commission ended Wednesday. In a wide-ranging interview, she discussed her aggressive approach to antitrust and its critics.`\
 https://nytimes.com/2024/09/28/business/dealbook/lina-khan-interview.html
-
-**As Hezbollah Pursued a Limited War, Israel Went for a Knockout**\
-`The militia group seemed content to trade blows with Israel while avoiding a major conflict. A strike that killed its leader proves it miscalculated.`\
-https://nytimes.com/2024/09/28/world/middleeast/hezbollah-hassan-nasrallah-next-steps.html
 
