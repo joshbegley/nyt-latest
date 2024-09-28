@@ -1,3 +1,11 @@
+**A Family’s Desperate Flight Through Helene’s Rising Floodwaters**\
+`When a family in Shore Acres, Fla., feared the water would rise to their roof, they made a decision to swim out to safety.`\
+https://nytimes.com/2024/09/27/weather/shore-acres-flooding.html
+
+**White Sox lose 121st game of season, most by any team in modern baseball history**\
+` “I never thought that this would be broken while I was still around,” said 86-year-old Craig Anderson, a member of the 1962 Mets.`\
+https://nytimes.com/athletic/5792656/2024/09/27/white-sox-mlb-loss-record/
+
 **Tigers clinch unlikely playoff spot with win**\
 `The Tigers had a 0.2 percent chance to make the playoffs as of early August. `\
 https://nytimes.com/athletic/5800509/2024/09/27/tigers-clinch-playoff-berth/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5800400/2024/09/27/presidents-cup-analysis-2024-day
 **Yordan Alvarez is 'getting better quickly.' Will it be in time for the Wild Card Series?**\
 `Astros manager Joe Espada said that the slugger will need to "check some boxes" before he's cleared to play.`\
 https://nytimes.com/athletic/5800424/2024/09/27/astros-yordan-alvarez-injury-wild-card-series/
-
-**Justin Herbert questionable vs. Chiefs; Bosa, Slater ruled out**\
-`In addition, edge rusher Joey Bosa (hip) and left tackle Rashawn Slater (pec) have been ruled out for Sunday.`\
-https://nytimes.com/athletic/5800376/2024/09/27/chargers-justin-herbert-injuries/
-
-**Adam Scott is speaking. After Day 2 of the Presidents Cup, everybody is listening**\
-`The authentic Scott has made the International Team a priority for 21 years. Can he lead the group to a win this weekend?`\
-https://nytimes.com/athletic/5800385/2024/09/27/adam-scott-presidents-cup-international-team/
 
