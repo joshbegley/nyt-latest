@@ -1,3 +1,7 @@
+**Protesters mourn Nasrallah’s death around the world.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/protesters-mourn-nasrallahs-death-around-the-world
+
 **Rexrode: If Nick Saban wants to help college football, he should be realistic about it**\
 `Saban has been a welcome addition to "GameDay," but he has a lot of work to do on what’s actually happening with the economics of the sport.`\
 https://nytimes.com/athletic/5801526/2024/09/28/nick-saban-nil-college-football-espn-gameday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801417/2024/09/28/skip-schumaker-leaves-marlins/
 **Arch Manning starting Texas' SEC opener vs. Mississippi State**\
 `Quinn Ewers has been recovering from a strained oblique suffered in the second quarter of Texas’ Sept. 14 win against UTSA.`\
 https://nytimes.com/athletic/5801471/2024/09/28/arch-manning-starting-texas-mississippi-state/
-
-**Arteta speaks of 'love and respect' for Guardiola and Man City staff**\
-`Mikel Arteta has spoken of his &#8220;love and respect&#8221; for Pep Guardiola and his Manchester City staff after being asked to clarify his comments on the club.`\
-https://nytimes.com/athletic/5801493/2024/09/28/mikel-arteta-arsenal-manchester-city-guardiola/
 
