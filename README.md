@@ -1,3 +1,7 @@
+**Ole Miss stunned at home by Kentucky: How did Wildcats upend Rebels' Playoff hopes?**\
+`Kentucky upset No. 6 Ole Miss 20-17 after a last-minute Rebels field goal attempt missed. Here's how it happened and what it means.`\
+https://nytimes.com/athletic/5801593/2024/09/28/ole-miss-kentucky-football-score-lane-kiffin/
+
 **Protesters mourn Nasrallah’s death around the world.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/world/israel-lebanon-hezbollah-hamas/protesters-mourn-nasrallahs-death-around-the-world
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5791981/2024/09/28/fantasy-football-rankings-week-4
 **Schumaker leaves Marlins to become winter’s top target: Reports**\
 `Skip Schumaker, who has long been expected to be the most sought after manager in the big leagues this winter, informed Miami Marlins players after their 15-5 victory Friday in Toronto he would not be returning for 2025, according to multiple reports Saturday.`\
 https://nytimes.com/athletic/5801417/2024/09/28/skip-schumaker-leaves-marlins/
-
-**Arch Manning starting Texas' SEC opener vs. Mississippi State**\
-`Quinn Ewers has been recovering from a strained oblique suffered in the second quarter of Texas’ Sept. 14 win against UTSA.`\
-https://nytimes.com/athletic/5801471/2024/09/28/arch-manning-starting-texas-mississippi-state/
 
