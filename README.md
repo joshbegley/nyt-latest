@@ -1,7 +1,3 @@
-**Chiefs pummel Justin Herbert but lose Rashee Rice in 17-10 win: Key takeaways**\
-`Kansas City finds another way to win a one-score game, marking their fourth 4-0 start in Mahomes' seven years as starter. `\
-https://nytimes.com/athletic/5803998/2024/09/29/chiefs-chargers-takeaways-result-score/
-
 **Jayden Daniels leads Commanders to 42-14 win over Cardinals: Takeaways**\
 `Daniels, who leads the NFL in completion percentage, completed 26-of-30 passes for 233 yards, one TD and one INT.`\
 https://nytimes.com/athletic/5802989/2024/09/29/commanders-cardinals-takeaways-result/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5803731/2024/09/29/nl-wild-card-race-diamondbacks-m
 **If Alabama is No. 1, how far should Georgia fall? Behind the AP Top 25 ballot**\
 `How the AP Top 25 — and my ballot — changed after Alabama survived a comeback effort from Georgia. Should Bama be No. 1? Where's Georgia?`\
 https://nytimes.com/athletic/5803359/2024/09/29/ap-top-25-poll-alabama-georgia/
+
+**Israel Strikes Multiple Fronts, Including Long-Distance Attack on Yemen**\
+`The escalation of violence between Israel and its Iran-backed proxies across the Middle East threatened to bring the combatants closer to an all-out regional war.`\
+https://nytimes.com/2024/09/29/world/middleeast/israel-lebanon-yemen-gaza.html
 
