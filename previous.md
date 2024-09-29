@@ -10,7 +10,7 @@ https://nytimes.com/2024/09/29/opinion/rape-cases.html
 `Kia Damon’s recipe is an easy oven-baked barbecue situation that leads to tender meat and a caramelized bark that’s sweet and salty.`\
 https://nytimes.com/2024/09/29/dining/sticky-guava-ribs-for-any-season.html
 
-**Updated MLB playoff scenarios, including 8 for Braves-Mets-Diamondbacks**\
+**Updated MLB playoff scenarios for Braves, Mets, Diamondbacks and other AL, NL teams**\
 `None of the four Wild Card Series matchups is set. Ahead of the final Sunday of the regular season, here’s a look at every possibility.`\
 https://nytimes.com/athletic/5802891/2024/09/29/mlb-playoff-scenarios-braves-mets-diamondbacks/
 

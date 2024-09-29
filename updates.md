@@ -1,3 +1,7 @@
+**Updated MLB playoff scenarios for Braves, Mets, Diamondbacks and other AL, NL teams**\
+`None of the four Wild Card Series matchups is set. Ahead of the final Sunday of the regular season, here’s a look at every possibility.`\
+https://nytimes.com/athletic/5802891/2024/09/29/mlb-playoff-scenarios-braves-mets-diamondbacks/
+
 **Atletico president says no-one at club is 'anti-racist or racist' ahead of Madrid derby**\
 `Atletico Madrid president Enrique Cerezo has said no-one at the club is “anti-racist or racist”.`\
 https://nytimes.com/athletic/5798831/2024/09/29/atletico-real-madrid-racism-enrique-cerezo/
