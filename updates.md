@@ -1,3 +1,11 @@
+**United States wins Presidents Cup for 13th time in 15 tries**\
+`Keegan Bradley clinched the cup for the U.S., with five matches still on the course.`\
+https://nytimes.com/athletic/5803554/2024/09/29/presidents-cup-united-states-win/
+
+**Bengals top Panthers 34-24 for first win of season: Key takeaways**\
+`Sunday’s game shaped up as a must-win for the Bengals following three straight losses out of the gate by a combined 12 points.`\
+https://nytimes.com/athletic/5802954/2024/09/29/bengals-panthers-takeaways-result/
+
 **Madrid derby suspended after objects thrown onto pitch by Atletico fans**\
 `Sunday’s Madrid derby had to be paused after objects were thrown onto the pitch by Atletico Madrid fans at their Civitas Metropolitano stadium.`\
 https://nytimes.com/athletic/5803601/2024/09/29/madrid-derby-objects-atletico-metropolitano/
