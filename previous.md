@@ -1,3 +1,7 @@
+**California Passes Law Protecting Consumer Brain Data**\
+`The state extended its current personal privacy law to include the neural data increasingly coveted by technology companies.`\
+https://nytimes.com/2024/09/29/science/california-neurorights-tech-law.html
+
 **I Grew Up Much Like JD Vance. How Did We End Up So Different?**\
 `The vice-presidential nominee should be thinking of how to extend a ladder to those he left behind, not how to pull it up behind him.`\
 https://nytimes.com/2024/09/29/opinion/jd-vance-ohio-addiction-upbringing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/briefing/sally-rooney-fans-intermezzo.html
 **Boise State's win over Wazzu sets it up for Playoff — but league play still awaits**\
 `Boise State’s road trip to face UNLV in Las Vegas on Oct. 25 could be significant for both programs' Playoff hopes. `\
 https://nytimes.com/athletic/5802688/2024/09/29/boise-state-washington-state-group-of-five-playoff/
-
-**Lowetide: How is the Oilers' defence shaping up in preseason?**\
-`The questions before training camp remain unanswered, mostly due to injuries involving key components.`\
-https://nytimes.com/athletic/5800616/2024/09/29/edmonton-oilers-defence-nurse-preseason/
 

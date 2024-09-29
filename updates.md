@@ -1,3 +1,7 @@
+**California Passes Law Protecting Consumer Brain Data**\
+`The state extended its current personal privacy law to include the neural data increasingly coveted by technology companies.`\
+https://nytimes.com/2024/09/29/science/california-neurorights-tech-law.html
+
 **I Grew Up Much Like JD Vance. How Did We End Up So Different?**\
 `The vice-presidential nominee should be thinking of how to extend a ladder to those he left behind, not how to pull it up behind him.`\
 https://nytimes.com/2024/09/29/opinion/jd-vance-ohio-addiction-upbringing.html
