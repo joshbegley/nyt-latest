@@ -1,3 +1,11 @@
+**Lowetide: How is the Oilers' defence shaping up in preseason?**\
+`The questions before training camp remain unanswered, mostly due to injuries involving key components.`\
+https://nytimes.com/athletic/5800616/2024/09/29/edmonton-oilers-defence-nurse-preseason/
+
+**How Everton kickstarted their Premier League season**\
+`With a takeover moving closer off the pitch, Everton had something to shout about on it, too. Here's how they beat Palace.`\
+https://nytimes.com/athletic/5801695/2024/09/29/everton-palace-result-premier-league-mcneil/
+
 **What we learned about the College Football Playoff in Week 5**\
 `An SEC giant stumbled, top-10 teams tumbled and UNLV put an exclamation point on the end of a weird, wild week.`\
 https://nytimes.com/athletic/5802538/2024/09/29/college-football-playoff-week-5-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5802262/2024/09/29/wisconsin-usc-luke-fickell-loss-
 **Iran Is Losing. That May Matter More Than Israel’s Mistakes.**\
 `Military success rarely brings true peace, but it can preserve societies.`\
 https://nytimes.com/2024/09/29/opinion/iran-israel-nasrallah.html
-
-**Laws Need to Catch Up to Artificial Intelligence’s Unique Risks**\
-`Artificial intelligence poses unique risks, so the people warning us of safety threats deserve unique protections.`\
-https://nytimes.com/2024/09/29/opinion/ai-risks-safety-whistleblower.html
-
-**The Question Kamala Harris Needs to Answer to Beat Donald Trump**\
-`She has prosecuted the case against Donald Trump and clarified some policy views, but not her why. That’s what voters want to know.`\
-https://nytimes.com/2024/09/29/opinion/kamala-harris-campaign.html
 

@@ -1,3 +1,11 @@
+**Lowetide: How is the Oilers' defence shaping up in preseason?**\
+`The questions before training camp remain unanswered, mostly due to injuries involving key components.`\
+https://nytimes.com/athletic/5800616/2024/09/29/edmonton-oilers-defence-nurse-preseason/
+
+**How Everton kickstarted their Premier League season**\
+`With a takeover moving closer off the pitch, Everton had something to shout about on it, too. Here's how they beat Palace.`\
+https://nytimes.com/athletic/5801695/2024/09/29/everton-palace-result-premier-league-mcneil/
+
 **What we learned about the College Football Playoff in Week 5**\
 `An SEC giant stumbled, top-10 teams tumbled and UNLV put an exclamation point on the end of a weird, wild week.`\
 https://nytimes.com/athletic/5802538/2024/09/29/college-football-playoff-week-5-takeaways/
