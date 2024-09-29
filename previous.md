@@ -1,3 +1,19 @@
+**How Darnell Mooney's savvy move saved Falcons' sputtering offense against Saints**\
+`ATLANTA — Kirk Cousins and Darnell Mooney sit next to each other in Atlanta’s locker room at the Falcons’ practice facility, which regularly reminds Cousins how seriously Mooney takes football.`\
+https://nytimes.com/athletic/5804023/2024/09/29/falcons-darnell-mooney-younghoe-koo-saints/
+
+**Late defensive stand powers Raiders past Browns 20-16: Takeaways**\
+`A rushing attack and key defensive stand propelled the Raiders to a 20-16 win over Browns.`\
+https://nytimes.com/athletic/5802999/2024/09/29/raiders-browns-takeaways-result/
+
+**After Harris Calls for a Crackdown on Fentanyl, Trump Twists Her Position**\
+`Vice President Kamala Harris vowed to combat the flow of fentanyl into the country when she visited the border on Friday. Former President Donald J. Trump ratcheted up his false claims in response.`\
+https://nytimes.com/2024/09/29/us/politics/trump-harris-fentanyl.html
+
+**Chiefs pummel Justin Herbert but lose Rashee Rice in 17-10 win: Key takeaways**\
+`Kansas City finds another way to win a one-score game, marking their fourth 4-0 start in Mahomes' seven years as starter. `\
+https://nytimes.com/athletic/5803998/2024/09/29/chiefs-chargers-takeaways-result-score/
+
 **Jayden Daniels leads Commanders to 42-14 win over Cardinals: Takeaways**\
 `Daniels, who leads the NFL in completion percentage, completed 26-of-30 passes for 233 yards, one TD and one INT.`\
 https://nytimes.com/athletic/5802989/2024/09/29/commanders-cardinals-takeaways-result/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5803746/2024/09/29/broncos-win-jets-defense-bo-nix/
 **Kris Kristofferson, Country Singer, Songwriter and Actor, Dies at 88**\
 `He wrote songs for hundreds of other artists, including “Me and Bobby McGee” for Janis Joplin and “Sunday Morning Coming Down” for Johnny Cash, before a second act in film.`\
 https://nytimes.com/2024/09/29/obituaries/kris-kristofferson-dead.html
-
-**Helene Has Claimed Lives of Over 90 People. Here Are Some of Their Stories.**\
-`Days after the Category 4 hurricane made landfall in Florida’s gulf coast, some victims’ portraits were coming into focus.`\
-https://nytimes.com/2024/09/29/us/hurricane-helene-victims.html
-
-**Mets-Braves doubleheader to settle wild card**\
-`All three teams are tied, with the Diamondbacks losing the tiebreaker. The Mets and Braves doubleheader will decide who's in and who's out.`\
-https://nytimes.com/athletic/5803731/2024/09/29/nl-wild-card-race-diamondbacks-mets-braves/
-
-**If Alabama is No. 1, how far should Georgia fall? Behind the AP Top 25 ballot**\
-`How the AP Top 25 — and my ballot — changed after Alabama survived a comeback effort from Georgia. Should Bama be No. 1? Where's Georgia?`\
-https://nytimes.com/athletic/5803359/2024/09/29/ap-top-25-poll-alabama-georgia/
-
-**Israel Strikes Multiple Fronts, Including Long-Distance Attack on Yemen**\
-`The escalation of violence between Israel and its Iran-backed proxies across the Middle East threatened to bring the combatants closer to an all-out regional war.`\
-https://nytimes.com/2024/09/29/world/middleeast/israel-lebanon-yemen-gaza.html
 
