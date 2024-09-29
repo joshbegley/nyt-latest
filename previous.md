@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5802989/2024/09/29/commanders-cardinals-takeaways-result/
 
 **At last, progress for the Bears offense as the run game gets going against Rams**\
-`D'Andre Swift, Roschon Johnson were a solid 1-2 punch for the Bears on Sunday, helping them improve to 2-2.`\
+`D'Andre Swift, Roschon Johnson were a solid one-two punch for the Bears on Sunday, helping them improve to 2-2.`\
 https://nytimes.com/athletic/5803989/2024/09/29/bears-dandre-swift-running-game-rams/
 
 **What to know from the United States' Presidents Cup win**\

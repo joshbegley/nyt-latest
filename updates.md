@@ -1,3 +1,7 @@
+**At last, progress for the Bears offense as the run game gets going against Rams**\
+`D'Andre Swift, Roschon Johnson were a solid one-two punch for the Bears on Sunday, helping them improve to 2-2.`\
+https://nytimes.com/athletic/5803989/2024/09/29/bears-dandre-swift-running-game-rams/
+
 **Israel Strikes Multiple Fronts, Including Long-Distance Attack on Yemen**\
 `The escalation of violence between Israel and its Iran-backed proxies across the Middle East threatened to bring the combatants closer to an all-out regional war.`\
 https://nytimes.com/2024/09/29/world/middleeast/israel-lebanon-yemen-gaza.html
