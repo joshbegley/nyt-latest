@@ -1,3 +1,11 @@
+**What we know about the Blackhawks after 3 preseason games**\
+`Three preseason games down, three to go before the start of the regular season. Here’s what we’ve learned about the Blackhawks so far.`\
+https://nytimes.com/athletic/5803154/2024/09/29/blackhawks-nhl-preseason-games-analysis/
+
+**Cardinals parting ways with Paul Goldschmidt: sources**\
+`SAN FRANCISCO — The St.`\
+https://nytimes.com/athletic/5803199/2024/09/29/cardinals-paul-goldschmidt-free-agency/
+
 **Tom Brady responds to Baker Mayfield saying Bucs were 'stressed out'**\
 `“I thought stressful was not having Super Bowl rings,” he said. “There was a mindset of a champion that I took to work every day."`\
 https://nytimes.com/athletic/5803291/2024/09/29/tom-brady-baker-mayfield-bucs-comments/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5803174/2024/09/29/central-michigan-qb-coach-resign
 **Colts' Anthony Richardson (hip) out vs. Steelers**\
 `Richardson injured his hip on a 16-yard run while being tackled by Steelers safety DeShon Elliott with 5:42 left in the first quarter.`\
 https://nytimes.com/athletic/5803194/2024/09/29/anthony-richardson-hurt-injured-colts-steelers/
-
-**Orient 0-0 Wrexham: Are Parkinson's side equipped for historic promotion hat-trick?**\
-`With plenty of midweek fixtures coming up, the squad will be tested and they showed their resilience in east London.`\
-https://nytimes.com/athletic/5793431/2024/09/29/wrexham-promotion-parkinson-league-one/
-
-**Republicans Criticize Trump Over His Insults of Harris**\
-`Several Republicans distanced themselves from their party’s standard-bearer after he called Vice President Kamala Harris “mentally disabled.”`\
-https://nytimes.com/2024/09/29/us/politics/trump-insults-harris-republicans.html
 
