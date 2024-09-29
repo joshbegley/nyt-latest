@@ -1,3 +1,7 @@
+**Far Right Wins Austrian Vote but May Fall Short of Forming a Government**\
+`The Freedom Party got nearly 30 percent of the national vote, but mainstream parties have vowed to join in a coalition government without the party’s pugilistic leader, Herbert Kickl.`\
+https://nytimes.com/2024/09/29/world/europe/far-right-austria-election.html
+
 **How JD Vance turns taking questions from the media into political theater.**\
 `By Jess Bidgood`\
 https://nytimes.com/live/2024/09/29/us/harris-trump-election/how-jd-vance-turns-taking-questions-from-the-media-into-political-theater
