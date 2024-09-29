@@ -2,6 +2,10 @@
 `The future Hall of Famer made case for playoff role, but it might be too late: "I feel like I’ve been inching in the right direction.”`\
 https://nytimes.com/athletic/5802313/2024/09/28/astros-justin-verlander-postseason-rotation/
 
+**Alabama survives Georgia's comeback in frantic finish to top-5 clash**\
+`One of the most anticipated college football games of the season, in the SEC and around the country, delivered in every facet.`\
+https://nytimes.com/athletic/5802119/2024/09/28/alabama-georgia-score-highlights-takeaways/
+
 **Saints vs. Falcons odds, picks, how to watch: Early clash in the NFC South**\
 `The NFC South gets a Week 4 rivalry matchup between the 2-1 Saints and 1-2 Falcons in Atlanta. Odds are close.`\
 https://nytimes.com/athletic/5799435/2024/09/28/saints-falcons-odds-expert-picks-how-to-watch-predictions-betting/
@@ -21,10 +25,6 @@ https://nytimes.com/athletic/5802289/2024/09/28/ohio-state-michigan-state-score-
 **2024 Presidents Cup analysis: What to know going into Sunday singles at Royal Montreal**\
 `The Americans hold a 4-point lead on the Internationals after a dramatic Saturday.`\
 https://nytimes.com/athletic/5802166/2024/09/28/presidents-cup-analysis-2024-royal-montreal-sunday/
-
-**Alabama jumps on Georgia for 30-7 halftime lead in stunning start to top-5 battle**\
-`One of the most anticipated college football games of the season, in the SEC and around the country, turned into a laugher in one quarter.`\
-https://nytimes.com/athletic/5802119/2024/09/28/alabama-georgia-score-highlights-takeaways/
 
 **Yankees clinch No. 1 seed in American League**\
 `The Yankees will host Game 1 of the ALDS next Saturday.`\
