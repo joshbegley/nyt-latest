@@ -1,3 +1,7 @@
+**Spiraling Diamondbacks enter final day in need of help to avoid collapse**\
+`"This game can be awesome," manager Torey Luvullo said, "and it can just rip your heart out.”`\
+https://nytimes.com/athletic/5802789/2024/09/29/diamondbacks-collapse-playoffs/
+
 **California Passes Law Protecting Consumer Brain Data**\
 `The state extended its current personal privacy law to include the neural data increasingly coveted by technology companies.`\
 https://nytimes.com/2024/09/29/science/california-neurorights-tech-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/hez
 **Inside the Sally Rooney Fan Base**\
 `We explore some of the most passionate fans in literature.`\
 https://nytimes.com/2024/09/29/briefing/sally-rooney-fans-intermezzo.html
-
-**Boise State's win over Wazzu sets it up for Playoff — but league play still awaits**\
-`Boise State’s road trip to face UNLV in Las Vegas on Oct. 25 could be significant for both programs' Playoff hopes. `\
-https://nytimes.com/athletic/5802688/2024/09/29/boise-state-washington-state-group-of-five-playoff/
 
