@@ -1,3 +1,7 @@
+**What This Israel-Hezbollah-Hamas-Iran Conflict is Really About**\
+`The devastating blow to Hezbollah by Israel has a place in the global struggle between the “coalition of inclusion” and “coalition of resistance.” It could be the keystone.`\
+https://nytimes.com/2024/09/29/opinion/iran-israel-hezbollah-hamas-lebanon-nasrallah.html
+
 **Spurs condemn homophobic chanting from fans during Man Utd game**\
 `Tottenham Hotspur have condemned supporters who sang a homophobic chant during their Premier League game against Manchester United on Sunday.`\
 https://nytimes.com/athletic/5803484/2024/09/29/tottenham-condemn-homophobic-chanting-from-fans-during-manchester-united-game/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5803484/2024/09/29/tottenham-condemn-homophobic-cha
 https://nytimes.com/athletic/5803419/2024/09/29/eagles-nfl-blocked-extra-point-return-rule-explained/
 
 **Israel Strikes the Houthis, an Iranian Ally, in Yemen**\
-`The strike on power stations and a seaport, which killed four people, was the second known time that Israel has retaliated against the militant group’ attacks by striking in Yemen.`\
+`The strike on power stations and a seaport, which killed four people, was the second known time that Israel has retaliated against the militant group’s attacks by striking in Yemen.`\
 https://nytimes.com/2024/09/29/world/middleeast/israel-strikes-houthis-yemen.html
 
 **Ten Hag says Man Utd 'need more time' after Spurs defeat**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5803291/2024/09/29/tom-brady-baker-mayfield-bucs-co
 **Kylie Jenner and Ayo Edebiri Toast a Starry Crowd at Paris Fashion Week**\
 `Actors, designers and musicians turned out at a party to celebrate the Business of Fashion’s annual index of industry leaders.`\
 https://nytimes.com/2024/09/29/style/paris-fashion-week-bof-party-kylie-jenner.html
-
-**AP Top 25: Alabama jumps past Texas for No. 1**\
-`Alabama is back atop the AP Top 25 college football poll after beating Georgia, which fell to No. 5.`\
-https://nytimes.com/athletic/5803116/2024/09/29/ap-top-25-alabama-texas-number-one/
 

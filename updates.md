@@ -1,3 +1,11 @@
+**What This Israel-Hezbollah-Hamas-Iran Conflict is Really About**\
+`The devastating blow to Hezbollah by Israel has a place in the global struggle between the “coalition of inclusion” and “coalition of resistance.” It could be the keystone.`\
+https://nytimes.com/2024/09/29/opinion/iran-israel-hezbollah-hamas-lebanon-nasrallah.html
+
+**Israel Strikes the Houthis, an Iranian Ally, in Yemen**\
+`The strike on power stations and a seaport, which killed four people, was the second known time that Israel has retaliated against the militant group’s attacks by striking in Yemen.`\
+https://nytimes.com/2024/09/29/world/middleeast/israel-strikes-houthis-yemen.html
+
 **Spurs condemn homophobic chanting from fans during Man Utd game**\
 `Tottenham Hotspur have condemned supporters who sang a homophobic chant during their Premier League game against Manchester United on Sunday.`\
 https://nytimes.com/athletic/5803484/2024/09/29/tottenham-condemn-homophobic-chanting-from-fans-during-manchester-united-game/
