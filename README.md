@@ -3,7 +3,7 @@
 https://nytimes.com/2024/09/28/us/tennessee-deaths-hurricane-helene.html
 
 **Patrik Laine helped off ice after knee-on-knee collision**\
-`The Canadiens forward left the preseason game with an apparent knee injury.`\
+`The Canadiens forward left the preseason game with what appeared to be a knee injury.`\
 https://nytimes.com/athletic/5802091/2024/09/28/canadiens-patrik-laine-injury-maple-leafs/
 
 **UNLV blows out Fresno State in first game without Matthew Sluka**\

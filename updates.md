@@ -1,3 +1,11 @@
+**Eastern Tennessee Officials Brace Residents for ‘Life Lost’ After Helene**\
+`Though no bodies have been recovered in Unicoi County, authorities say they expect fatalities among about a half-dozen people who remain missing.`\
+https://nytimes.com/2024/09/28/us/tennessee-deaths-hurricane-helene.html
+
+**Trump’s Answer to Harris’s Border Trip: Calling Her ‘Mentally Disabled’**\
+`Former President Donald J. Trump assailed Vice President Kamala Harris in harshly personal terms in what he conceded was “a dark speech.”`\
+https://nytimes.com/2024/09/28/us/politics/trump-attacks-harris-border.html
+
 **Patrik Laine helped off ice after knee-on-knee collision**\
 `The Canadiens forward left the preseason game with an apparent knee injury.`\
 https://nytimes.com/athletic/5802091/2024/09/28/canadiens-patrik-laine-injury-maple-leafs/
