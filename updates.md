@@ -1,3 +1,7 @@
+**How did Manchester City cope without 'irreplaceable' Rodri?**\
+`Manchester City drew 1-1 with Newcastle, in their first game without the injured Rodri. How much of a difference did it make?`\
+https://nytimes.com/athletic/5801230/2024/09/29/how-did-manchester-city-cope-without-irreplaceable-rodri/
+
 **Revitalised Gordon sparks Newcastle - but Howe must maintain momentum**\
 `Anthony Gordon played No 9 for Newcastle and helped earn a draw against Manchester City - but are the forward and team back to their best?`\
 https://nytimes.com/athletic/5800968/2024/09/29/newcastle-gordon-penalty-manchester-city/
