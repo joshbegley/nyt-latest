@@ -1,3 +1,15 @@
+**Atletico president says no-one at club is 'anti-racist or racist' ahead of Madrid derby**\
+`Atletico Madrid president Enrique Cerezo has said no-one at the club is “anti-racist or racist”.`\
+https://nytimes.com/athletic/5798831/2024/09/29/atletico-real-madrid-racism-enrique-cerezo/
+
+**Rape Cases in the Headlines and in Our Everyday Lives**\
+`Readers discuss a guest essay about famous cases and offer personal stories. Also: Helping immigrants; A.I. at war; Donald Trump, TV and real life.`\
+https://nytimes.com/2024/09/29/opinion/rape-cases.html
+
+**Sticky Guava Ribs for Any Season**\
+`Kia Damon’s recipe is an easy oven-baked barbecue situation that leads to tender meat and a caramelized bark that’s sweet and salty.`\
+https://nytimes.com/2024/09/29/dining/sticky-guava-ribs-for-any-season.html
+
 **Updated MLB playoff scenarios, including 8 for Braves-Mets-Diamondbacks**\
 `None of the four Wild Card Series matchups is set. Ahead of the final Sunday of the regular season, here’s a look at every possibility.`\
 https://nytimes.com/athletic/5802891/2024/09/29/mlb-playoff-scenarios-braves-mets-diamondbacks/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/29/science/california-neurorights-tech-law.html
 **I Grew Up Much Like JD Vance. How Did We End Up So Different?**\
 `The vice-presidential nominee should be thinking of how to extend a ladder to those he left behind, not how to pull it up behind him.`\
 https://nytimes.com/2024/09/29/opinion/jd-vance-ohio-addiction-upbringing.html
-
-**What's changed for Nebraska? Matt Rhule and Dylan Raiola driving Huskers in right direction**\
-`This Saturday's showing by Nebraska at Purdue illustrated the growing effectiveness of the Rhule-Raiola resilience and leadership.`\
-https://nytimes.com/athletic/5802722/2024/09/29/nebraska-purdue-matt-rhule-dylan-raiola/
-
-**Lie-Flat Seats and Chilled Champagne: Testing Eric Adams’s Upgrade Life**\
-`The New York mayor is accused of accepting free luxury travel in exchange for political favors. How large was he living? A writer puts the experience to the test.`\
-https://nytimes.com/2024/09/29/travel/adams-turkey-upgrades.html
-
-**Here’s the latest on the presidential race.**\
-`By Tim Balk and Simon J. Levien`\
-https://nytimes.com/live/2024/09/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 

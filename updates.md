@@ -1,3 +1,15 @@
+**Atletico president says no-one at club is 'anti-racist or racist' ahead of Madrid derby**\
+`Atletico Madrid president Enrique Cerezo has said no-one at the club is “anti-racist or racist”.`\
+https://nytimes.com/athletic/5798831/2024/09/29/atletico-real-madrid-racism-enrique-cerezo/
+
+**Rape Cases in the Headlines and in Our Everyday Lives**\
+`Readers discuss a guest essay about famous cases and offer personal stories. Also: Helping immigrants; A.I. at war; Donald Trump, TV and real life.`\
+https://nytimes.com/2024/09/29/opinion/rape-cases.html
+
+**Sticky Guava Ribs for Any Season**\
+`Kia Damon’s recipe is an easy oven-baked barbecue situation that leads to tender meat and a caramelized bark that’s sweet and salty.`\
+https://nytimes.com/2024/09/29/dining/sticky-guava-ribs-for-any-season.html
+
 **Updated MLB playoff scenarios, including 8 for Braves-Mets-Diamondbacks**\
 `None of the four Wild Card Series matchups is set. Ahead of the final Sunday of the regular season, here’s a look at every possibility.`\
 https://nytimes.com/athletic/5802891/2024/09/29/mlb-playoff-scenarios-braves-mets-diamondbacks/
