@@ -30,7 +30,7 @@ https://nytimes.com/2024/09/29/opinion/write-your-own-obituary.html
 `Andy Dalton starts his second game of the season against his former team, a Bengals squad desperate not to go 0-4.`\
 https://nytimes.com/athletic/5799957/2024/09/29/bengals-panthers-odds-expert-picks-how-to-watch-predictions-betting/
 
-**‘S.N.L.’: Maya Rudolph and Jim Gaffigan Play Kamala Harris and Tim Walz**\
+**‘S.N.L.’ Picks Maya Rudolph and Jim Gaffigan to Play Kamala Harris and Tim Walz**\
 `The casting ended months of speculation after President Biden, played on Saturday by Dana Carvey, withdrew from the race. James Austin Johnson continued as Donald Trump.`\
 https://nytimes.com/2024/09/29/arts/television/snl-maya-rudolph-jim-gaffigan-kamala-harris-tim-walz.html
 
