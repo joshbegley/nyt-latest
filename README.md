@@ -1,3 +1,11 @@
+**Corrections: Sept. 29, 2024**\
+`Corrections that appeared in print on Sunday, Sept. 29, 2024.`\
+https://nytimes.com/2024/09/28/pageoneplus/corrections-sept-29-2024.html
+
+**Corrections: Sept. 28, 2024**\
+`Corrections that appeared in print on Saturday, Sept. 28, 2024.`\
+https://nytimes.com/2024/09/28/pageoneplus/corrections-sept-28-2024.html
+
 **Eastern Tennessee Officials Brace Residents for ‘Life Lost’ After Helene**\
 `Though no bodies have been recovered in Unicoi County, authorities say they expect fatalities among about a half-dozen people who remain missing.`\
 https://nytimes.com/2024/09/28/us/tennessee-deaths-hurricane-helene.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5801900/2024/09/28/blake-snell-final-sf-giants-star
 **Penguins vs. Red Wings postponed after travel issues**\
 `Penguins players, coaches, management and other staff members boarded the plane but weren't able to take off.`\
 https://nytimes.com/athletic/5801962/2024/09/28/penguins-red-wings-game-postponed-plane/
-
-**Trump’s Answer to Harris’s Border Trip: Calling Her ‘Mentally Disabled’**\
-`Former President Donald J. Trump assailed Vice President Kamala Harris in harshly personal terms in what he conceded was “a dark speech.”`\
-https://nytimes.com/2024/09/28/us/politics/trump-attacks-harris-border.html
-
-**Kyle Hendricks gets the goodbye at home he worked hard to earn, exiting on a high note**\
-`In a 3-0 win Saturday over the Reds at Wrigley, he did his best to make sure he earned every bit of the multiple ovations he got.`\
-https://nytimes.com/athletic/5801920/2024/09/28/cubs-kyle-hendricks-exits-high-note/
 
