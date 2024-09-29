@@ -1,3 +1,7 @@
+**Inside the Sally Rooney Fan Base**\
+`We explore one of the most passionate fans in literature.`\
+https://nytimes.com/2024/09/29/briefing/sally-rooney-fans-intermezzo.html
+
 **Lowetide: How is the Oilers' defence shaping up in preseason?**\
 `The questions before training camp remain unanswered, mostly due to injuries involving key components.`\
 https://nytimes.com/athletic/5800616/2024/09/29/edmonton-oilers-defence-nurse-preseason/
