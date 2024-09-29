@@ -1,3 +1,7 @@
+**Twins manager Baldelli understands 'Fire Rocco' chants come with territory**\
+`“The fans have a right to feel almost any way they choose,” Baldelli said.`\
+https://nytimes.com/athletic/5802109/2024/09/28/twins-fire-rocco-baldelli-chants/
+
 **'Night-night' on this Presidents Cup? Never**\
 `Brody Miller and Gabby Herzig talk about a wild Saturday at Royal Montreal and set up the Sunday singles matches.`\
 https://nytimes.com/athletic/5802077/2024/09/28/presidents-cup-night-night-usa/
