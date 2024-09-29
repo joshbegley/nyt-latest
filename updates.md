@@ -1,3 +1,7 @@
+**Israel Strikes Multiple Fronts, Including Long-Distance Attack on Yemen**\
+`The escalation of violence between Israel and its Iran-backed proxies across the Middle East threatened to bring the combatants closer to an all-out regional war.`\
+https://nytimes.com/2024/09/29/world/middleeast/israel-lebanon-yemen-gaza.html
+
 **Jayden Daniels leads Commanders to 42-14 win over Cardinals: Takeaways**\
 `Daniels, who leads the NFL in completion percentage, completed 26-of-30 passes for 233 yards, one TD and one INT.`\
 https://nytimes.com/athletic/5802989/2024/09/29/commanders-cardinals-takeaways-result/
