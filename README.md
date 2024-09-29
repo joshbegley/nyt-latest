@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/hezbollah-nasrallah-funeral
 
 **Inside the Sally Rooney Fan Base**\
-`We explore one of the most passionate fans in literature.`\
+`We explore some of the most passionate fans in literature.`\
 https://nytimes.com/2024/09/29/briefing/sally-rooney-fans-intermezzo.html
 
 **Lowetide: How is the Oilers' defence shaping up in preseason?**\
