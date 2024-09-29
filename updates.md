@@ -1,3 +1,15 @@
+**Corrections: Sept. 29, 2024**\
+`Corrections that appeared in print on Sunday, Sept. 29, 2024.`\
+https://nytimes.com/2024/09/28/pageoneplus/corrections-sept-29-2024.html
+
+**Corrections: Sept. 28, 2024**\
+`Corrections that appeared in print on Saturday, Sept. 28, 2024.`\
+https://nytimes.com/2024/09/28/pageoneplus/corrections-sept-28-2024.html
+
+**Patrik Laine helped off ice after knee-on-knee collision**\
+`The Canadiens forward left the preseason game with what appeared to be a knee injury.`\
+https://nytimes.com/athletic/5802091/2024/09/28/canadiens-patrik-laine-injury-maple-leafs/
+
 **Eastern Tennessee Officials Brace Residents for ‘Life Lost’ After Helene**\
 `Though no bodies have been recovered in Unicoi County, authorities say they expect fatalities among about a half-dozen people who remain missing.`\
 https://nytimes.com/2024/09/28/us/tennessee-deaths-hurricane-helene.html
