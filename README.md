@@ -1,3 +1,15 @@
+**CMU QB coach resigns, school declines comment on Stalions case**\
+`Kostner resigned within a week of Michigan receiving its notice of allegations and four days after the release of Netflix's 'Sign Stealer'.`\
+https://nytimes.com/athletic/5803174/2024/09/29/central-michigan-qb-coach-resigns-connor-stalions/
+
+**Colts' Anthony Richardson (hip) out vs. Steelers**\
+`Richardson injured his hip on a 16-yard run while being tackled by Steelers safety DeShon Elliott with 5:42 left in the first quarter.`\
+https://nytimes.com/athletic/5803194/2024/09/29/anthony-richardson-injury-colts-steelers/
+
+**Orient 0-0 Wrexham: Are Parkinson's side equipped for historic promotion hat-trick?**\
+`With plenty of midweek fixtures coming up, the squad will be tested and they showed their resilience in east London.`\
+https://nytimes.com/athletic/5793431/2024/09/29/wrexham-promotion-parkinson-league-one/
+
 **Republicans Criticize Trump Over His Insults of Harris**\
 `Several Republicans distanced themselves from their party’s standard-bearer after he called Vice President Kamala Harris “mentally disabled.”`\
 https://nytimes.com/2024/09/29/us/politics/trump-insults-harris-republicans.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/a-p
 **Nepal Flooding and Landslides Kill at Least 170 People**\
 `The mountainous country is experiencing more extreme weather driven by climate change, including melting glaciers that add to the frequency and severity of flooding.`\
 https://nytimes.com/2024/09/29/world/asia/flooding-landslides-nepal.html
-
-**Stewart Mandel's 12-team Playoff projections after Week 5**\
-`After its win over Georgia, Alabama slides into the SEC champion's slot, while Clemson is now in as an at-large team.`\
-https://nytimes.com/athletic/5803069/2024/09/29/college-football-playoff-bracket-projections-week-5/
-
-**A Capsule of the Past, a Vessel for the Future**\
-`In 1999, The Times Magazine commissioned a time capsule to be opened at the next millennium. It has been hidden from public view since 2018.`\
-https://nytimes.com/2024/09/29/insider/a-capsule-of-the-past-a-vessel-for-the-future.html
-
-**Top Adams Aides Get Married as Investigation Swirls Around Them**\
-`Eric Adams’s schools chancellor and first deputy mayor married in Martha’s Vineyard this weekend. Both have had their phones seized by federal investigators.`\
-https://nytimes.com/2024/09/29/nyregion/adams-david-banks-sheena-wright-marriage.html
 
