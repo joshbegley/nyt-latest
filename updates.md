@@ -1,3 +1,7 @@
+**What we learned about the College Football Playoff in Week 5**\
+`An SEC giant stumbled, top-10 teams tumbled and UNLV put an exclamation point on the end of a weird, wild week.`\
+https://nytimes.com/athletic/5802538/2024/09/29/college-football-playoff-week-5-takeaways/
+
 **Netanyahu, Ignoring Allies and Defying Critics, Basks in a Rare Triumph**\
 `Israel’s strike on Hassan Nasrallah was the culmination of several startling moves that suggest the Israeli prime minister feels unconstrained by foreign criticism.`\
 https://nytimes.com/2024/09/29/world/middleeast/netanyahu-israel-mideast.html

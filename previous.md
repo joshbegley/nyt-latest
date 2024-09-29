@@ -1,3 +1,7 @@
+**What we learned about the College Football Playoff in Week 5**\
+`An SEC giant stumbled, top-10 teams tumbled and UNLV put an exclamation point on the end of a weird, wild week.`\
+https://nytimes.com/athletic/5802538/2024/09/29/college-football-playoff-week-5-takeaways/
+
 **Netanyahu, Ignoring Allies and Defying Critics, Basks in a Rare Triumph**\
 `Israel’s strike on Hassan Nasrallah was the culmination of several startling moves that suggest the Israeli prime minister feels unconstrained by foreign criticism.`\
 https://nytimes.com/2024/09/29/world/middleeast/netanyahu-israel-mideast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/opinion/ai-risks-safety-whistleblower.html
 **The Question Kamala Harris Needs to Answer to Beat Donald Trump**\
 `She has prosecuted the case against Donald Trump and clarified some policy views, but not her why. That’s what voters want to know.`\
 https://nytimes.com/2024/09/29/opinion/kamala-harris-campaign.html
-
-**There’s a Dangerous Misconception About the Military’s Obligations to the President**\
-`The prospect of a second Trump administration has rekindled an important debate from four years ago.`\
-https://nytimes.com/2024/09/29/opinion/trump-military.html
 
