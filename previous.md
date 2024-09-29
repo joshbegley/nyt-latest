@@ -1,40 +1,40 @@
+**NMSU investigating OC's decade-old, derogatory tweets**\
+`New Mexico State is looking into Tyler Wright's posts after a report surfaced that he used derogatory language in tweets from 2011-14.`\
+https://nytimes.com/athletic/5801655/2024/09/29/nmsu-oc-tyler-wright-not-with-team-for-game-vs-new-mexico-as-school-investigates-derogatory-tweets/
+
+**Sunday's MLB best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
+https://nytimes.com/athletic/5800052/2024/09/29/mlb-odds-best-bets-projections-september-29/
+
+**Are Tottenham improving at defending set pieces this season?**\
+`It is too early to say Spurs have put their set-piece woes behind them, but there are reasons for optimism`\
+https://nytimes.com/athletic/5796670/2024/09/29/tottenham-set-pieces-defending/
+
+**Bayern Munich 1 Leverkusen 1: Alonso's side show resilience, Pavlovic stunner and rivalry simmers**\
+`It was all square at the top of the Bundesliga but both sides can take positives from their performance`\
+https://nytimes.com/athletic/5801580/2024/09/29/bayern-leverkusen-bundesliga-result/
+
+**Quote of the Day: From ‘Elegant Oakey’ to Adams, City Has a Long and Colorful History of Scandals**\
+`Quotation of the Day for Sunday, September 29, 2024.`\
+https://nytimes.com/2024/09/29/pageoneplus/quote-of-the-day-from-elegant-oakey-to-adams-city-has-a-long-and-colorful-history-of-scandals.html
+
+**Iran Projects Caution After Israeli Strikes Against Hezbollah**\
+`Leaders in Tehran suggested it would be the Lebanese militia that would strike back at Israel after the killing of Hassan Nasrallah and bombings in Beirut.`\
+https://nytimes.com/2024/09/29/world/middleeast/iran-hezbollah-israel-nasrallah.html
+
+**As Austrians Vote, Far Right Awaits Its Biggest Success**\
+`The Freedom Party has made itself the country’s most popular party, with calls to bar asylum seekers. It is poised to come out on top in parliamentary elections for the first time.`\
+https://nytimes.com/2024/09/29/world/europe/austria-election-freedom-party-kickl.html
+
+**Tolerating the Office When It Feels Like High School**\
+`How to stay cordial when your adult colleagues gossip like teenagers.`\
+https://nytimes.com/2024/09/29/business/office-gossip-advice.html
+
+**Vikings at Green Bay Packers odds, expert picks, how to watch: Battle in the NFC North**\
+`A close division rivalry unfolds on Sunday as the rolling Minnesota Vikings head to Lambeau Field to face the 2-1 Green Bay Packers.`\
+https://nytimes.com/athletic/5799546/2024/09/29/vikings-packers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Rams at Bears odds, picks, how to watch: Caleb Williams faces Stafford and McVay**\
 `Sean McVay guided LA to an astounding win last week, but the wounded Rams are slight underdogs in Chicago. `\
 https://nytimes.com/athletic/5799500/2024/09/28/rams-bears-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Justin Verlander notches quality start: Will it be his last appearance for Houston?**\
-`The future Hall of Famer made case for playoff role, but it might be too late: "I feel like I’ve been inching in the right direction.”`\
-https://nytimes.com/athletic/5802313/2024/09/28/astros-justin-verlander-postseason-rotation/
-
-**Alabama survives Georgia's comeback in frantic finish to top-5 clash**\
-`One of the most anticipated college football games of the season, in the SEC and around the country, delivered in every facet.`\
-https://nytimes.com/athletic/5802119/2024/09/28/alabama-georgia-score-highlights-takeaways/
-
-**Saints vs. Falcons odds, picks, how to watch: Early clash in the NFC South**\
-`The NFC South gets a Week 4 rivalry matchup between the 2-1 Saints and 1-2 Falcons in Atlanta. Odds are close.`\
-https://nytimes.com/athletic/5799435/2024/09/28/saints-falcons-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Penn State overpowers Illinois, stays unbeaten in battle of ranked teams: Takeaways**\
-`Nick Singleton (16 rushes, 94 yards) and Kaytron Allen (18 rushes, 104 yards) each had TDs as the Nittany Lions dominated on the ground.`\
-https://nytimes.com/athletic/5802285/2024/09/28/penn-state-illinois-big-ten-unbeaten/
-
-**Morales: USC might not be perfect, but the Trojans' toughness is a welcome change**\
-`The 2024 Trojans have dealt with plenty of adversity. And for the first time in a while, they have the personality to return some punches.`\
-https://nytimes.com/athletic/5802225/2024/09/28/usc-trojans-wisconsin-combeback/
-
-**Ohio State, Jeremiah Smith pass first Big Ten test against Michigan State**\
-`No. 3 Ohio State beat Michigan State 38-7 despite some early inconsistencies from quarterback Will Howard. `\
-https://nytimes.com/athletic/5802289/2024/09/28/ohio-state-michigan-state-score-analysis/
-
-**2024 Presidents Cup analysis: What to know going into Sunday singles at Royal Montreal**\
-`The Americans hold a 4-point lead on the Internationals after a dramatic Saturday.`\
-https://nytimes.com/athletic/5802166/2024/09/28/presidents-cup-analysis-2024-royal-montreal-sunday/
-
-**Yankees clinch No. 1 seed in American League**\
-`The Yankees will host Game 1 of the ALDS next Saturday.`\
-https://nytimes.com/athletic/5802133/2024/09/28/yankees-clinch-number-one-seed-postseason/
-
-**Twins manager Baldelli understands 'Fire Rocco' chants come with territory**\
-`“The fans have a right to feel almost any way they choose,” Baldelli said.`\
-https://nytimes.com/athletic/5802109/2024/09/28/twins-fire-rocco-baldelli-chants/
 
