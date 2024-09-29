@@ -1,3 +1,7 @@
+**United States wins Presidents Cup for 13th time in 15 tries**\
+`Keegan Bradley clinched the cup for the U.S., with five matches still on the course.`\
+https://nytimes.com/athletic/5803554/2024/09/29/presidents-cup-united-states-win/
+
 **Bengals top Panthers 34-24 for first win of season: Key takeaways**\
 `Sunday’s game shaped up as a must-win for the Bengals following three straight losses out of the gate by a combined 12 points.`\
 https://nytimes.com/athletic/5802954/2024/09/29/bengals-panthers-takeaways-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5803427/2024/09/29/stanford-womens-soccer-katie-mey
 **Drake Hogestyn, ‘Days of Our Lives’ Actor, Dies at 70**\
 `Mr. Hogestyn was best known for playing John Black on the daytime soap opera and appeared in more than 4,200 episodes over 38 years.`\
 https://nytimes.com/2024/09/29/arts/television/drake-hogestyn-dead.html
-
-**What This Israel-Hezbollah-Hamas-Iran Conflict is Really About**\
-`The devastating blow to Hezbollah by Israel has a place in the global struggle between the “coalition of inclusion” and “coalition of resistance.” It could be the keystone.`\
-https://nytimes.com/2024/09/29/opinion/iran-israel-hezbollah-hamas-lebanon-nasrallah.html
 
