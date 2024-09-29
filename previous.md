@@ -1,3 +1,7 @@
+**Luis Arraez becomes first player to win 3 straight batting titles with 3 different teams**\
+`Sunday at Chase Field, Arraez set a career-high with his 32nd double, finished his regular season hitting .314.`\
+https://nytimes.com/athletic/5803556/2024/09/29/luis-arraez-3-batting-titles-3-teams/
+
 **Ionescu, Stewart carry Liberty past Aces in Game 1of semifinals**\
 `New York will host Game 2 of the best-of-5 series Tuesday before the matchup flips back to Las Vegas.`\
 https://nytimes.com/athletic/5803756/2024/09/29/liberty-aces-wnba-semifinals-game-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/briefing/nasrallah-trump-attacks-helene.html
 **United States wins Presidents Cup for 13th time in 15 tries**\
 `Keegan Bradley clinched the cup for the U.S., with five matches still on the course.`\
 https://nytimes.com/athletic/5803554/2024/09/29/presidents-cup-united-states-win/
-
-**Bengals top Panthers 34-24 for first win of season: Takeaways**\
-`Sunday’s game shaped up as a must-win for the Bengals following three straight losses out of the gate by a combined 12 points.`\
-https://nytimes.com/athletic/5802954/2024/09/29/bengals-panthers-takeaways-result/
 

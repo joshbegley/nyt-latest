@@ -1,3 +1,7 @@
+**Luis Arraez becomes first player to win 3 straight batting titles with 3 different teams**\
+`Sunday at Chase Field, Arraez set a career-high with his 32nd double, finished his regular season hitting .314.`\
+https://nytimes.com/athletic/5803556/2024/09/29/luis-arraez-3-batting-titles-3-teams/
+
 **Ionescu, Stewart carry Liberty past Aces in Game 1of semifinals**\
 `New York will host Game 2 of the best-of-5 series Tuesday before the matchup flips back to Las Vegas.`\
 https://nytimes.com/athletic/5803756/2024/09/29/liberty-aces-wnba-semifinals-game-1/
