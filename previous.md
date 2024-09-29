@@ -1,3 +1,11 @@
+**If Alabama is No. 1, how far should Georgia fall? Behind the AP Top 25 ballot**\
+`How the AP Top 25 — and my ballot — changed after Alabama survived a comeback effort from Georgia. Should Bama be No. 1? Where's Georgia?`\
+https://nytimes.com/athletic/5803359/2024/09/29/ap-top-25-poll-alabama-georgia/
+
+**Israel Strikes Multiple Fronts, Including Long-Distance Attack on Yemen**\
+`The escalation of violence between Israel and its Iran-backed proxies across the Middle East threatened to bring the combatants closer to a regional war.`\
+https://nytimes.com/2024/09/29/world/middleeast/israel-lebanon-yemen-gaza.html
+
 **Far Right Wins Austrian Vote but May Fall Short of Forming a Government**\
 `The Freedom Party got nearly 30 percent of the national vote, but mainstream parties have vowed to join in a coalition government without the party’s pugilistic leader, Herbert Kickl.`\
 https://nytimes.com/2024/09/29/world/europe/far-right-austria-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/29/us/chemical-bio-lab-fire-georgia.html
 **Nix, Broncos resilient while penalties bury Jets in loss: Key takeaways**\
 `Nix's 60 passing yards are the fewest by a winning quarterback (min. 20 attempts) since 2007. `\
 https://nytimes.com/athletic/5803481/2024/09/29/jets-broncos-takeaways-result/
-
-**Texans come back to beat winless Jaguars 24-20: Key takeaways**\
-`The Texans avoid a second straight defeat, and it keeps Houston on top of the AFC South`\
-https://nytimes.com/athletic/5802971/2024/09/29/jaguars-texans-takeaways-result/
-
-**Chiefs' Rashee Rice carted off with knee injury vs. Chargers**\
-`Rice sustained the injury on the Chiefs’ second possession while trying to force a fumble after a Patrick Mahomes interception.`\
-https://nytimes.com/athletic/5803636/2024/09/29/chiefs-rashee-rice-knee-injury/
 
