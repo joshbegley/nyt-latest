@@ -1,3 +1,7 @@
+**Stewart Mandel's 12-team Playoff projections after Week 5**\
+`After its win over Georgia, Alabama slides into the SEC champion's slot, while Clemson is now in as an at-large team.`\
+https://nytimes.com/athletic/5803069/2024/09/29/college-football-playoff-bracket-projections-week-5/
+
 **A Capsule of the Past, a Vessel for the Future**\
 `In 1999, The Times Magazine commissioned a time capsule to be opened at the next millennium. It has been hidden from public view since 2018.`\
 https://nytimes.com/2024/09/29/insider/a-capsule-of-the-past-a-vessel-for-the-future.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802891/2024/09/29/mlb-playoff-scenarios-braves-met
 **How a Calvin Pickard injury could impact Oilers' season-opening roster**\
 `Pickard left Saturday's game against the Kraken midway through the first period after a collision in the crease.`\
 https://nytimes.com/athletic/5802486/2024/09/29/oilers-roster-calvin-pickard/
-
-**Multiple People Dead in Plane Crash Near Wright Brothers Memorial**\
-`A single-engine plane was trying to land when it crashed into a wooded area near the memorial in North Carolina on Saturday, the National Park Service said.`\
-https://nytimes.com/2024/09/29/us/plane-crash-wright-brothers-memorial.html
 
