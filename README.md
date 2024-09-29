@@ -1,3 +1,7 @@
+**Panthers lose, but there's a different vibe since Andy Dalton replaced Bryce Young**\
+`After winning a week ago, the Panthers made a game of it Sunday vs. the Bengals, which is a significant step in the right direction.`\
+https://nytimes.com/athletic/5804150/2024/09/29/panthers-andy-dalton-vibe-bryce-young-bengals/
+
 **How Darnell Mooney's savvy move saved Falcons' sputtering offense against Saints**\
 `ATLANTA — Kirk Cousins and Darnell Mooney sit next to each other in Atlanta’s locker room at the Falcons’ practice facility, which regularly reminds Cousins how seriously Mooney takes football.`\
 https://nytimes.com/athletic/5804023/2024/09/29/falcons-darnell-mooney-younghoe-koo-saints/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/us/elections/trump-alabama-georgia-football.html
 **'I'm about to sack Aaron Rodgers': Road trip was clinic for Broncos' harassing defense**\
 `The Broncos recorded 12 sacks in a pair of victories during their successful 2-game road trip and harassed Aaron Rodgers constantly Sunday.`\
 https://nytimes.com/athletic/5803746/2024/09/29/broncos-win-jets-defense-bo-nix/
-
-**Kris Kristofferson, Country Singer, Songwriter and Actor, Dies at 88**\
-`He wrote songs for hundreds of other artists, including “Me and Bobby McGee” for Janis Joplin and “Sunday Morning Coming Down” for Johnny Cash, before a second act in film.`\
-https://nytimes.com/2024/09/29/obituaries/kris-kristofferson-dead.html
 
