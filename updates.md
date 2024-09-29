@@ -1,3 +1,7 @@
+**Two teen centre-backs and a need to rest squad showed Barcelona's limits against Osasuna**\
+`Barca's 4-2 defeat to Osasuna ruined their start to the season. But coach Hansi Flick said he had to rotate his team - and weaknesses showed`\
+https://nytimes.com/athletic/5793299/2024/09/29/barcelona-osasuna-la-liga-flick-yamal/
+
 **Is 'amazing' Palmer the best attacking player in the Premier League?**\
 `Four goals in the first half against Brighton, records stacking up. Cole Palmer is making a case to be considered the best in the top flight`\
 https://nytimes.com/athletic/5801912/2024/09/29/cole-palmer-chelsea-best-player-premier-league/
