@@ -1,3 +1,7 @@
+**Israel strikes the Houthis, an Iranian ally, in Yemen.**\
+`By Adam Rasgon`\
+https://nytimes.com/2024/09/29/world/middleeast/israel-strikes-houthis-yemen.html
+
 **Ten Hag says Man Utd 'need more time' after Spurs defeat**\
 `Manchester United manager Erik ten Hag says his team still needs more time to come together following Sunday’s 3-0 home defeat by Tottenham Hotspur.`\
 https://nytimes.com/athletic/5803298/2024/09/29/erik-ten-hag-man-utd-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5803295/2024/09/29/rocco-baldelli-return-minnesota-
 **Blue Jackets Sunday Gathering: Cole and Owen Sillinger may soon be NHL teammates**\
 `Plus: Damon Severson is gearing up for a bounce-back season in Columbus, prospect Jordan Dumais awaits hernia surgery and more.`\
 https://nytimes.com/athletic/5802219/2024/09/29/blue-jackets-cole-owen-sillinger/
-
-**Broncos’ Tyler Badie stretchered off sideline vs. Jets**\
-`Badie was originally listed as questionable to with a back injury, but then the team deemed Badie as out for the remainder of the game.`\
-https://nytimes.com/athletic/5803233/2024/09/29/tyler-badie-injury-broncos-jets/
 

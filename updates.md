@@ -1,3 +1,7 @@
+**Israel strikes the Houthis, an Iranian ally, in Yemen.**\
+`By Adam Rasgon`\
+https://nytimes.com/2024/09/29/world/middleeast/israel-strikes-houthis-yemen.html
+
 **Ten Hag says Man Utd 'need more time' after Spurs defeat**\
 `Manchester United manager Erik ten Hag says his team still needs more time to come together following Sunday’s 3-0 home defeat by Tottenham Hotspur.`\
 https://nytimes.com/athletic/5803298/2024/09/29/erik-ten-hag-man-utd-spurs/
