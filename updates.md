@@ -1,3 +1,7 @@
+**Nick Castellanos' power of perseverance: How an Opening Day idea sparked a 162-game season**\
+`Castellanos knows time is undefeated. But, for six months this season, the 32-year-old outfielder pushed back.`\
+https://nytimes.com/athletic/5801980/2024/09/29/nick-castellanos-162-game-season-phillies/
+
 **Mandel's Final Thoughts: Don't blink! Bama-Georgia just another NIL-era classic**\
 `When teams full of amazing athletes face each other, they don't seem to realize NIL deals and a bigger Playoff are ruining the sport.`\
 https://nytimes.com/athletic/5802532/2024/09/29/college-football-week-5-analysis-alabama-georgia-jalen-milroe/
