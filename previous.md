@@ -1,3 +1,11 @@
+**Netanyahu, Ignoring Allies and Defying Critics, Basks in Rare Moment of Glory**\
+`Israel’s strike on Hassan Nasrallah was the culmination of several startling moves that suggest the Israeli prime minister feels unconstrained by foreign criticism.`\
+https://nytimes.com/2024/09/29/world/middleeast/netanyahu-israel-mideast.html
+
+**Alabama is Kalen DeBoer's program now, and it's not going away**\
+`A historic blowout nearly turned into a historic collapse for Alabama. No matter how the win happened, we learned a lot about DeBoer.`\
+https://nytimes.com/athletic/5802611/2024/09/29/alabama-georgia-kalen-deboer-jalen-milroe/
+
 **Mandel's Final Thoughts: Don't blink! Bama-Georgia just another NIL-era classic**\
 `When teams full of amazing athletes face each other, they don't seem to realize NIL deals and a bigger Playoff are ruining the sport.`\
 https://nytimes.com/athletic/5802532/2024/09/29/college-football-week-5-analysis-alabama-georgia-jalen-milroe/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/29/opinion/kamala-harris-campaign.html
 **There’s a Dangerous Misconception About the Military’s Obligations to the President**\
 `The prospect of a second Trump administration has rekindled an important debate from four years ago.`\
 https://nytimes.com/2024/09/29/opinion/trump-military.html
-
-**The top-to-bottom culture change that has the surprising Royals back in the playoffs**\
-`It is the first team GM J.J. Picollo truly engineered, turning over a third of the big-league roster and adding in key front office roles. `\
-https://nytimes.com/athletic/5799503/2024/09/29/kc-royals-2024-mlb-playoffs-culture/
-
-**Nick Castellanos' power of perseverance: How an Opening Day idea sparked a 162-game season**\
-`Castellanos knows time is undefeated. But, for six months this season, the 32-year-old outfielder pushed back.`\
-https://nytimes.com/athletic/5801980/2024/09/29/nick-castellanos-162-game-season-phillies/
 

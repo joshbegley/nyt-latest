@@ -1,3 +1,11 @@
+**Netanyahu, Ignoring Allies and Defying Critics, Basks in Rare Moment of Glory**\
+`Israel’s strike on Hassan Nasrallah was the culmination of several startling moves that suggest the Israeli prime minister feels unconstrained by foreign criticism.`\
+https://nytimes.com/2024/09/29/world/middleeast/netanyahu-israel-mideast.html
+
+**Alabama is Kalen DeBoer's program now, and it's not going away**\
+`A historic blowout nearly turned into a historic collapse for Alabama. No matter how the win happened, we learned a lot about DeBoer.`\
+https://nytimes.com/athletic/5802611/2024/09/29/alabama-georgia-kalen-deboer-jalen-milroe/
+
 **Nick Castellanos' power of perseverance: How an Opening Day idea sparked a 162-game season**\
 `Castellanos knows time is undefeated. But, for six months this season, the 32-year-old outfielder pushed back.`\
 https://nytimes.com/athletic/5801980/2024/09/29/nick-castellanos-162-game-season-phillies/
