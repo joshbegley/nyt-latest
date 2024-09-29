@@ -1,3 +1,11 @@
+**What to know from the United States' Presidents Cup win**\
+`The Americans' top five players all week were a combined 24-under-par on Sunday, leading matches for 53 holes and trailing for just five.`\
+https://nytimes.com/athletic/5804089/2024/09/29/presidents-cup-analysis-united-states-2024/
+
+**Trump Says He’s in Danger. So Why Did He Seek Out the Embrace of 100,000 Fans?**\
+`After two assassination attempts, the former president seems to be relishing the dangers of his job. Some at the Georgia-Alabama football game wondered if his appearance was wise.`\
+https://nytimes.com/2024/09/29/us/elections/trump-alabama-georgia-football.html
+
 **Trump Says He’s in Danger. So Why Did He Seek Out the Embrace of 100,000 Fans?**\
 `After two assassination attempts, the former president seems to be relishing the dangers of his job. Some people at the Georgia-Alabama football game wondered if his appearance was wise.`\
 https://nytimes.com/2024/09/29/us/elections/trump-alabama-georgia-football.html
