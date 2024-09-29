@@ -1,3 +1,7 @@
+**Yankees clinch No. 1 seed in American League**\
+`The Yankees will host Game 1 of the ALDS next Saturday.`\
+https://nytimes.com/athletic/5802133/2024/09/28/yankees-clinch-number-one-seed-postseason/
+
 **Twins manager Baldelli understands 'Fire Rocco' chants come with territory**\
 `“The fans have a right to feel almost any way they choose,” Baldelli said.`\
 https://nytimes.com/athletic/5802109/2024/09/28/twins-fire-rocco-baldelli-chants/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/us/politics/trump-ukraine-vance-zelensky.html
 **Padres’ Ha-Seong Kim to undergo season-ending shoulder surgery**\
 `The procedure will officially end his season and, with Kim on the verge of free agency, perhaps his career in San Diego.`\
 https://nytimes.com/athletic/5802048/2024/09/28/padres-ha-seong-kim-season-ending-shoulder-surgery/
-
-**Presidents Cup Sunday singles pairings, tee times announced: U.S. has big lead**\
-`The U.S. is up 11-7 after winning both sessions on Saturday, breaking what had been a 5-5 tie.`\
-https://nytimes.com/athletic/5802040/2024/09/28/presidents-cup-sunday-singles-pairings-tee-times-us/
 
