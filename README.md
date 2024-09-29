@@ -1,3 +1,11 @@
+**UNLV blows out Fresno State in first game without Matthew Sluka**\
+`Williams completed 13 of 16 passes for 182 yards and three scores while adding a team-high 119 rushing yards and a rushing touchdown.`\
+https://nytimes.com/athletic/5801965/2024/09/28/unlv-matthew-sluka-hajj-malik-williams-fresno-state/
+
+**Vance Criticizes Ukraine’s President a Day After His Meeting With Trump**\
+`Senator JD Vance of Ohio, former President Donald J. Trump’s running mate, criticized President Volodymyr Zelensky of Ukraine during a campaign rally in Pennsylvania.`\
+https://nytimes.com/2024/09/28/us/politics/trump-ukraine-vance-zelensky.html
+
 **Padres’ Ha-Seong Kim to undergo season-ending shoulder surgery**\
 `The procedure will officially end his season and, with Kim on the verge of free agency, perhaps his career in San Diego.`\
 https://nytimes.com/athletic/5802048/2024/09/28/padres-ha-seong-kim-season-ending-shoulder-surgery/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5801974/2024/09/28/travis-hunter-colorado-heisman-d
 **More Than 400 Roads Closed in North Carolina After Damage From Helene**\
 `The closures, including on two interstates, left motorists scrambling for options.`\
 https://nytimes.com/2024/09/28/us/roads-closed-western-north-carolina.html
-
-**Arch Manning, Texas take care of Mississippi State in SEC opener**\
-`Quinn Ewers has been recovering from a strained oblique suffered in the second quarter of Texas’ Sept. 14 win against UTSA.`\
-https://nytimes.com/athletic/5801471/2024/09/28/arch-manning-starting-texas-mississippi-state/
-
-**Newsom Vetoes Bill Requiring Cars to Warn Speeding Drivers**\
-`The legislation would have made California the first state in the nation to require intelligent speed assistance technology in vehicles.`\
-https://nytimes.com/2024/09/28/business/california-speeding-car-alert.html
 
