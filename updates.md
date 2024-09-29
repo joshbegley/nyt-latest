@@ -1,3 +1,7 @@
+**Mets-Braves doubleheader to settle wild card**\
+`All three teams are tied, with the Diamondbacks losing the tiebreaker. The Mets and Braves doubleheader will decide who's in and who's out.`\
+https://nytimes.com/athletic/5803731/2024/09/29/nl-wild-card-race-diamondbacks-mets-braves/
+
 **If Alabama is No. 1, how far should Georgia fall? Behind the AP Top 25 ballot**\
 `How the AP Top 25 — and my ballot — changed after Alabama survived a comeback effort from Georgia. Should Bama be No. 1? Where's Georgia?`\
 https://nytimes.com/athletic/5803359/2024/09/29/ap-top-25-poll-alabama-georgia/
