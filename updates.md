@@ -1,3 +1,19 @@
+**Here’s the latest on the presidential race.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/09/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump and Harris Hit Battlegrounds, as Running Mates Prep for Debate**\
+`Donald J. Trump will hold a rally in Pennsylvania as Kamala Harris holds another in Nevada. The vice-presidential candidates are off the trail preparing for Tuesday’s debate.`\
+https://nytimes.com/live/2024/09/29/us/harris-trump-election
+
+**The Club World Cup Cup has venues at last - but so many questions still remain**\
+`Controversial tournament still lacks broadcast and sponsorship partners, while concerns over player workload still linger`\
+https://nytimes.com/athletic/5802442/2024/09/29/fifa-club-world-cup-questions/
+
+**Boise State's win over Wazzu sets it up for Playoff — but league play still awaits**\
+`Boise State’s road trip to face UNLV in Las Vegas on Oct. 25 could be significant for both programs' Playoff hopes. `\
+https://nytimes.com/athletic/5802688/2024/09/29/boise-state-washington-state-group-of-five-playoff/
+
 **Inside the Sally Rooney Fan Base**\
 `We explore some of the most passionate fans in literature.`\
 https://nytimes.com/2024/09/29/briefing/sally-rooney-fans-intermezzo.html

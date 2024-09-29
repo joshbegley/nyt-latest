@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/09/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump and Harris Hit Battlegrounds, as Running Mates Prep for Debate**\
+`Donald J. Trump will hold a rally in Pennsylvania as Kamala Harris holds another in Nevada. The vice-presidential candidates are off the trail preparing for Tuesday’s debate.`\
+https://nytimes.com/live/2024/09/29/us/harris-trump-election
+
+**The Club World Cup Cup has venues at last - but so many questions still remain**\
+`Controversial tournament still lacks broadcast and sponsorship partners, while concerns over player workload still linger`\
+https://nytimes.com/athletic/5802442/2024/09/29/fifa-club-world-cup-questions/
+
 **Hezbollah has yet to talk about Nasrallah’s funeral, or his successor.**\
 `By Ben Hubbard`\
 https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/hezbollah-nasrallah-funeral
@@ -5,6 +17,10 @@ https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/hez
 **Inside the Sally Rooney Fan Base**\
 `We explore some of the most passionate fans in literature.`\
 https://nytimes.com/2024/09/29/briefing/sally-rooney-fans-intermezzo.html
+
+**Boise State's win over Wazzu sets it up for Playoff — but league play still awaits**\
+`Boise State’s road trip to face UNLV in Las Vegas on Oct. 25 could be significant for both programs' Playoff hopes. `\
+https://nytimes.com/athletic/5802688/2024/09/29/boise-state-washington-state-group-of-five-playoff/
 
 **Lowetide: How is the Oilers' defence shaping up in preseason?**\
 `The questions before training camp remain unanswered, mostly due to injuries involving key components.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5802538/2024/09/29/college-football-playoff-week-5-
 **Netanyahu, Ignoring Allies and Defying Critics, Basks in a Rare Triumph**\
 `Israel’s strike on Hassan Nasrallah was the culmination of several startling moves that suggest the Israeli prime minister feels unconstrained by foreign criticism.`\
 https://nytimes.com/2024/09/29/world/middleeast/netanyahu-israel-mideast.html
-
-**Alabama is Kalen DeBoer's program now, and it's not going away**\
-`A historic blowout nearly turned into a historic collapse for Alabama. No matter how the win happened, we learned a lot about DeBoer.`\
-https://nytimes.com/athletic/5802611/2024/09/29/alabama-georgia-kalen-deboer-jalen-milroe/
-
-**Mandel's Final Thoughts: Don't blink! Bama-Georgia just another NIL-era classic**\
-`When teams full of amazing athletes face each other, they don't seem to realize NIL deals and a bigger Playoff are ruining the sport.`\
-https://nytimes.com/athletic/5802532/2024/09/29/college-football-week-5-analysis-alabama-georgia-jalen-milroe/
-
-**Bills at Ravens odds, expert picks, how to watch: Josh Allen vs. Lamar Jackson in primetime**\
-`Josh Allen and Lamar Jackson meet on Sunday Night Football. Jackson's Ravens are 1-2, but are favored at home.`\
-https://nytimes.com/athletic/5799671/2024/09/29/bills-ravens-odds-expert-picks-how-to-watch-predictions-betting/
-
-**How uneasy should Michigan feel at 4-1? Final thoughts after Minnesota**\
-`It’s hard to imagine Michigan will be able to live on the edge like this without falling off at some point.`\
-https://nytimes.com/athletic/5802213/2024/09/29/michigan-minnesota-football-alex-orji-washington/
 
