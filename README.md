@@ -1,3 +1,7 @@
+**Twins manager Baldelli understands 'Fire Rocco' chants come with territory**\
+`“The fans have a right to feel almost any way they choose,” Baldelli said.`\
+https://nytimes.com/athletic/5802109/2024/09/28/twins-fire-rocco-baldelli-chants/
+
 **'Night-night' on this Presidents Cup? Never**\
 `Brody Miller and Gabby Herzig talk about a wild Saturday at Royal Montreal and set up the Sunday singles matches.`\
 https://nytimes.com/athletic/5802077/2024/09/28/presidents-cup-night-night-usa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802048/2024/09/28/padres-ha-seong-kim-season-endin
 **Presidents Cup Sunday singles pairings, tee times announced: U.S. has big lead**\
 `The U.S. is up 11-7 after winning both sessions on Saturday, breaking what had been a 5-5 tie.`\
 https://nytimes.com/athletic/5802040/2024/09/28/presidents-cup-sunday-singles-pairings-tee-times-us/
-
-**Blake Snell declines to make final Giants start, looks ahead to free agency**\
-`"We're not playing a playoff team," Snell said. "This game has no meaning. I think it was just probably the best case."`\
-https://nytimes.com/athletic/5801900/2024/09/28/blake-snell-final-sf-giants-start/
 
