@@ -1,5 +1,5 @@
 **In North Carolina, a Race to Provide Relief Amid an ‘Unprecedented Tragedy’**\
-`Emergency workers in the western region of the state are rescuing people from homes as they try to repair damaged communications, transportation and water systems. Officials said 11 people in the state have died from Hurricane Helene.`\
+`Emergency workers are rescuing people from homes as they try to repair damaged roads, cell towers and water systems. Officials said 11 people in the state have died from Hurricane Helene.`\
 https://nytimes.com/2024/09/29/us/north-carolina-helene-relief-damage.html
 
 **The Briefing: Man Utd 0 Spurs 3 - What now for Ten Hag? Van de Ven's incredible assist; was Bruno red harsh?**\

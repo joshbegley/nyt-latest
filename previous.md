@@ -1,3 +1,7 @@
+**In North Carolina, a Race to Provide Relief Amid an ‘Unprecedented Tragedy’**\
+`Emergency workers in the western region of the state are rescuing people from homes as they try to repair damaged communications, transportation and water systems. Officials said 11 people in the state have died from Hurricane Helene.`\
+https://nytimes.com/2024/09/29/us/north-carolina-helene-relief-damage.html
+
 **The Briefing: Man Utd 0 Spurs 3 - What now for Ten Hag? Van de Ven's incredible assist; was Bruno red harsh?**\
 `Jay Harris, Charlotte Harpur and Ahmed Walid break down the action at Old Trafford.`\
 https://nytimes.com/athletic/5799299/2024/09/29/man-utd-tottenham-ten-hag-fernandes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/nyregion/adams-david-banks-sheena-wright-marriage
 **Until Saturday: Ryan Williams steals show in Tuscaloosa**\
 `Welcome to Until Saturday, the five-star college football newsletter: Williams put on a show in Alabama's thrilling win over Georgia.`\
 https://nytimes.com/athletic/5802808/2024/09/29/ryan-williams-alabama-georgia-until-saturday/
-
-**Chelsea vs Man Utd in WSL postponed at a week's notice due to Champions League clash**\
-`Chelsea’s Women’s Super League game against Manchester United has been postponed at a week’s notice due to the scheduling of their opening Champions League match.`\
-https://nytimes.com/athletic/5803003/2024/09/29/chelsea-man-utd-wsl-champions-league/
 
