@@ -1,3 +1,11 @@
+**‘S.N.L.’: Maya Rudolph and Jim Gaffigan Play Kamala Harris and Tim Walz in Cold Open**\
+`The casting ended months of speculation after President Biden, played on Saturday by Dana Carvey, withdrew from the race. James Austin Johnson continued as Donald Trump.`\
+https://nytimes.com/2024/09/29/arts/television/snl-maya-rudolph-jim-gaffigan-kamala-harris-tim-walz.html
+
+**Eagles at Buccaneers odds, picks, how to watch: Eagles on revenge trip**\
+`Philly (2-1) returns to Tampa Bay (2-1) on a quest to right the wrongs of their blowout playoff loss last season. Will they?`\
+https://nytimes.com/athletic/5799724/2024/09/29/eagles-buccaneers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **How did Manchester City cope without 'irreplaceable' Rodri?**\
 `Manchester City drew 1-1 with Newcastle, in their first game without the injured Rodri. How much of a difference did it make?`\
 https://nytimes.com/athletic/5801230/2024/09/29/how-did-manchester-city-cope-without-irreplaceable-rodri/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5798998/2024/09/29/jon-rowe-marseille-interview/
 **Real Madrid are getting more yellow cards for dissent - and they're not happy about it**\
 `Madrid have been shown nine yellow cards for protests in La Liga, just five short of their total for the last campaign`\
 https://nytimes.com/athletic/5798875/2024/09/29/real-madrid-mbappe-bellingham-la-liga-referees/
-
-**Steelers at Colts odds, picks, how to watch: Pittsburgh narrowly favored on the road**\
-`Justin Fields heads to Indianapolis after his best passing week yet, while Anthony Richardson will face Steelers' punishing defense.`\
-https://nytimes.com/athletic/5799625/2024/09/29/steelers-colts-odds-expert-picks-how-to-watch-predictions-betting/
-
-**'We couldn't leave the hotel' - How Indonesia turns unknown footballers into adored superstars**\
-`How playing for Indonesia's national team makes footballers famous - even more so than USMNT players`\
-https://nytimes.com/athletic/5790813/2024/09/29/indonesia-soccer-players/
 

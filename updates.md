@@ -1,3 +1,11 @@
+**‘S.N.L.’: Maya Rudolph and Jim Gaffigan Play Kamala Harris and Tim Walz in Cold Open**\
+`The casting ended months of speculation after President Biden, played on Saturday by Dana Carvey, withdrew from the race. James Austin Johnson continued as Donald Trump.`\
+https://nytimes.com/2024/09/29/arts/television/snl-maya-rudolph-jim-gaffigan-kamala-harris-tim-walz.html
+
+**Eagles at Buccaneers odds, picks, how to watch: Eagles on revenge trip**\
+`Philly (2-1) returns to Tampa Bay (2-1) on a quest to right the wrongs of their blowout playoff loss last season. Will they?`\
+https://nytimes.com/athletic/5799724/2024/09/29/eagles-buccaneers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **How did Manchester City cope without 'irreplaceable' Rodri?**\
 `Manchester City drew 1-1 with Newcastle, in their first game without the injured Rodri. How much of a difference did it make?`\
 https://nytimes.com/athletic/5801230/2024/09/29/how-did-manchester-city-cope-without-irreplaceable-rodri/
