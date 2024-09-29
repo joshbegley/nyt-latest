@@ -1,3 +1,7 @@
+**Ohio State, Jeremiah Smith pass first Big Ten test against Michigan State**\
+`No. 3 Ohio State beat Michigan State 38-7 despite some early inconsistencies from quarterback Will Howard. `\
+https://nytimes.com/athletic/5802289/2024/09/28/ohio-state-michigan-state-score-analysis/
+
 **2024 Presidents Cup analysis: What to know going into Sunday singles at Royal Montreal**\
 `The Americans hold a 4-point lead on the Internationals after a dramatic Saturday.`\
 https://nytimes.com/athletic/5802166/2024/09/28/presidents-cup-analysis-2024-royal-montreal-sunday/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/28/us/tennessee-deaths-hurricane-helene.html
 **Patrik Laine helped off ice after knee-on-knee collision**\
 `The Canadiens forward left the preseason game with what appeared to be a knee injury.`\
 https://nytimes.com/athletic/5802091/2024/09/28/canadiens-patrik-laine-injury-maple-leafs/
-
-**UNLV blows out Fresno State in first game without Matthew Sluka**\
-`Williams completed 13 of 16 passes for 182 yards and three scores while adding a team-high 119 rushing yards and a rushing touchdown.`\
-https://nytimes.com/athletic/5801965/2024/09/28/unlv-matthew-sluka-hajj-malik-williams-fresno-state/
 
