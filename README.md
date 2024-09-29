@@ -1,3 +1,7 @@
+**Netanyahu Opponent, in Reversal, Is Joining Israeli Government**\
+`The addition of Gideon Saar to Benjamin Netanyahu’s coalition strengthens the prime minister’s political position.`\
+https://nytimes.com/2024/09/29/world/middleeast/gideon-saar-netanyahu-israeli-cabinet.html
+
 **Baker Mayfield cooks as Bucs topple Eagles 33-16: Takeaways**\
 `Fourteen completions and three total TDs is a solid day for a quarterback. Baker Mayfield had those numbers early in the second quarter.`\
 https://nytimes.com/athletic/5802984/2024/09/29/eagles-buccaneers-takeaways-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5803298/2024/09/29/erik-ten-hag-man-utd-spurs/
 **Vikings dominate Packers in first half**\
 `Vikings quarterback Sam Darnold went 11 of 15 for 136 yards and threw three touchdown passes.`\
 https://nytimes.com/athletic/5802967/2024/09/29/vikings-packers-takeaways-result/
-
-**What we know about the Blackhawks after 3 preseason games**\
-`Three preseason games down, three to go before the start of the regular season. Here’s what we’ve learned about the Blackhawks so far.`\
-https://nytimes.com/athletic/5803154/2024/09/29/blackhawks-nhl-preseason-games-analysis/
 
