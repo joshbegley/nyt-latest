@@ -1,3 +1,7 @@
+**Inside the Sally Rooney Fan Base**\
+`We explore one of the most passionate fans in literature.`\
+https://nytimes.com/2024/09/29/briefing/sally-rooney-fans-intermezzo.html
+
 **Lowetide: How is the Oilers' defence shaping up in preseason?**\
 `The questions before training camp remain unanswered, mostly due to injuries involving key components.`\
 https://nytimes.com/athletic/5800616/2024/09/29/edmonton-oilers-defence-nurse-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802213/2024/09/29/michigan-minnesota-football-alex
 **Temple: Against USC, Wisconsin showed it's still stuck on bad habits**\
 `In a 38-21 loss to USC, the Badgers went from looking like they were ready to turn a corner to one that couldn’t fight their way out.`\
 https://nytimes.com/athletic/5802262/2024/09/29/wisconsin-usc-luke-fickell-loss-college-football/
-
-**Iran Is Losing. That May Matter More Than Israel’s Mistakes.**\
-`Military success rarely brings true peace, but it can preserve societies.`\
-https://nytimes.com/2024/09/29/opinion/iran-israel-nasrallah.html
 
