@@ -1,3 +1,11 @@
+**Monday Briefing: The Aftermath of Nasrallah’s Death**\
+`Plus, we retraced one of Mayor Eric Adams’s lavish trips to Istanbul.`\
+https://nytimes.com/2024/09/29/briefing/nasrallah-trump-attacks-helene.html
+
+**Flacco leads Colts to 27-24 win over Steelers after Richardson exits: Takeaways**\
+`Indianapolis lost starting quarterback Anthony Richardson to a right hip injury in the first quarter.`\
+https://nytimes.com/athletic/5802977/2024/09/29/steelers-colts-takeaways-result/
+
 **United States wins Presidents Cup for 13th time in 15 tries**\
 `Keegan Bradley clinched the cup for the U.S., with five matches still on the course.`\
 https://nytimes.com/athletic/5803554/2024/09/29/presidents-cup-united-states-win/
