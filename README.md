@@ -1,3 +1,7 @@
+**Bengals' offensive evolution spins forward vs. Panthers when they need it most**\
+`Joe Burrow uses latest mix of weapons to show Cincinnati can score and get explosive plays many different ways.`\
+https://nytimes.com/athletic/5804139/2024/09/29/bengals-win-joe-burrow-offense-panthers/
+
 **Panthers lose, but there's a different vibe since Andy Dalton replaced Bryce Young**\
 `After winning a week ago, the Panthers made a game of it Sunday vs. the Bengals, which is a significant step in the right direction.`\
 https://nytimes.com/athletic/5804150/2024/09/29/panthers-andy-dalton-vibe-bryce-young-bengals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804089/2024/09/29/presidents-cup-analysis-united-s
 **Trump Says He’s in Danger. So Why Did He Seek Out the Embrace of 100,000 Fans?**\
 `After two assassination attempts, the former president seems to be relishing the dangers of his job. Some at the Georgia-Alabama football game wondered if his appearance was wise.`\
 https://nytimes.com/2024/09/29/us/elections/trump-alabama-georgia-football.html
-
-**'I'm about to sack Aaron Rodgers': Road trip was clinic for Broncos' harassing defense**\
-`The Broncos recorded 12 sacks in a pair of victories during their successful 2-game road trip and harassed Aaron Rodgers constantly Sunday.`\
-https://nytimes.com/athletic/5803746/2024/09/29/broncos-win-jets-defense-bo-nix/
 
