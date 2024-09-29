@@ -1,3 +1,7 @@
+**'I'm about to sack Aaron Rodgers:' Road trip was a clinic for Broncos' harassing defense**\
+`The Broncos recorded 12 sacks in a pair of victories during their successful 2-game road trip and harassed Aaron Rodgers constantly Sunday.`\
+https://nytimes.com/athletic/5803746/2024/09/29/broncos-win-jets-defense-bo-nix/
+
 **Kris Kristofferson, Country Singer, Songwriter and Actor, Dies at 88**\
 `He wrote songs for hundreds of other artists, including “Me and Bobby McGee” for Janis Joplin and “Sunday Morning Coming Down” for Johnny Cash, before a second act in film.`\
 https://nytimes.com/2024/09/29/obituaries/kris-kristofferson-country-singer-songwriter-and-actor-dies-at-88.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5803556/2024/09/29/luis-arraez-3-batting-titles-3-t
 **Ionescu, Stewart carry Liberty past Aces in Game 1of semifinals**\
 `New York will host Game 2 of the best-of-5 series Tuesday before the matchup flips back to Las Vegas.`\
 https://nytimes.com/athletic/5803756/2024/09/29/liberty-aces-wnba-semifinals-game-1/
-
-**NFL Week 4 takeaways: Colts better off with Flacco? Pederson out of time in Jacksonville?**\
-`Plus, who is the best team in the NFC South?`\
-https://nytimes.com/athletic/5803109/2024/09/29/nfl-week-4-takeaways-colts-flacco-jaguars-doug-pederson-coach/
 
