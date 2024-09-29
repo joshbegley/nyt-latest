@@ -1,3 +1,7 @@
+**Netanyahu Opponent, in Reversal, Is Joining Israeli Government**\
+`The addition of Gideon Saar to Benjamin Netanyahu’s coalition strengthens the prime minister’s political position.`\
+https://nytimes.com/2024/09/29/world/middleeast/gideon-saar-netanyahu-israeli-cabinet.html
+
 **Baker Mayfield cooks as Bucs topple Eagles 33-16: Takeaways**\
 `Fourteen completions and three total TDs is a solid day for a quarterback. Baker Mayfield had those numbers early in the second quarter.`\
 https://nytimes.com/athletic/5802984/2024/09/29/eagles-buccaneers-takeaways-result/
