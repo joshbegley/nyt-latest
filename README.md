@@ -1,3 +1,7 @@
+**Eastern Tennessee Officials Brace Residents for ‘Life Lost’ After Helene**\
+`Though no bodies have been recovered in Unicoi County, authorities say they expect fatalities among about a half-dozen people who remain missing.`\
+https://nytimes.com/2024/09/28/us/tennessee-deaths-hurricane-helene.html
+
 **Patrik Laine helped off ice after knee-on-knee collision**\
 `The Canadiens forward left the preseason game with an apparent knee injury.`\
 https://nytimes.com/athletic/5802091/2024/09/28/canadiens-patrik-laine-injury-maple-leafs/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5801900/2024/09/28/blake-snell-final-sf-giants-star
 `Penguins players, coaches, management and other staff members boarded the plane but weren't able to take off.`\
 https://nytimes.com/athletic/5801962/2024/09/28/penguins-red-wings-game-postponed-plane/
 
-**Trump Takes Attacks on Harris to a New Low, Calling Her ‘Mentally Disabled’**\
+**Trump’s Answer to Harris’s Border Trip: Calling Her ‘Mentally Disabled’**\
 `Former President Donald J. Trump assailed Vice President Kamala Harris in harshly personal terms in what he conceded was “a dark speech.”`\
 https://nytimes.com/2024/09/28/us/politics/trump-attacks-harris-border.html
 
 **Kyle Hendricks gets the goodbye at home he worked hard to earn, exiting on a high note**\
 `In a 3-0 win Saturday over the Reds at Wrigley, he did his best to make sure he earned every bit of the multiple ovations he got.`\
 https://nytimes.com/athletic/5801920/2024/09/28/cubs-kyle-hendricks-exits-high-note/
-
-**Travis Hunter strikes a Heisman pose in Colorado’s blowout win at UCF**\
-`On Saturday, Hunter caught a touchdown pass and intercepted a pass in the same game for the second time in the last three weeks.`\
-https://nytimes.com/athletic/5801974/2024/09/28/travis-hunter-colorado-heisman-deion-sanders/
 
