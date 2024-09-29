@@ -1,6 +1,14 @@
+**Rams at Bears odds, picks, how to watch: Caleb Williams faces Stafford and McVay**\
+`Sean McVay guided LA to an astounding win last week, but the wounded Rams are slight underdogs in Chicago. `\
+https://nytimes.com/athletic/5799500/2024/09/28/rams-bears-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Justin Verlander notches quality start: Will it be his last appearance for Houston?**\
 `The future Hall of Famer made case for playoff role, but it might be too late: "I feel like I’ve been inching in the right direction.”`\
 https://nytimes.com/athletic/5802313/2024/09/28/astros-justin-verlander-postseason-rotation/
+
+**Alabama survives Georgia's comeback in frantic finish to top-5 clash**\
+`One of the most anticipated college football games of the season, in the SEC and around the country, delivered in every facet.`\
+https://nytimes.com/athletic/5802119/2024/09/28/alabama-georgia-score-highlights-takeaways/
 
 **Saints vs. Falcons odds, picks, how to watch: Early clash in the NFC South**\
 `The NFC South gets a Week 4 rivalry matchup between the 2-1 Saints and 1-2 Falcons in Atlanta. Odds are close.`\
@@ -22,10 +30,6 @@ https://nytimes.com/athletic/5802289/2024/09/28/ohio-state-michigan-state-score-
 `The Americans hold a 4-point lead on the Internationals after a dramatic Saturday.`\
 https://nytimes.com/athletic/5802166/2024/09/28/presidents-cup-analysis-2024-royal-montreal-sunday/
 
-**Alabama survives Georgia's comeback in frantic finish to top-5 clash**\
-`One of the most anticipated college football games of the season, in the SEC and around the country, delivered in every facet.`\
-https://nytimes.com/athletic/5802119/2024/09/28/alabama-georgia-score-highlights-takeaways/
-
 **Yankees clinch No. 1 seed in American League**\
 `The Yankees will host Game 1 of the ALDS next Saturday.`\
 https://nytimes.com/athletic/5802133/2024/09/28/yankees-clinch-number-one-seed-postseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802133/2024/09/28/yankees-clinch-number-one-seed-p
 **Twins manager Baldelli understands 'Fire Rocco' chants come with territory**\
 `“The fans have a right to feel almost any way they choose,” Baldelli said.`\
 https://nytimes.com/athletic/5802109/2024/09/28/twins-fire-rocco-baldelli-chants/
-
-**'Night-night' on this Presidents Cup? Never**\
-`Brody Miller and Gabby Herzig talk about a wild Saturday at Royal Montreal and set up the Sunday singles matches.`\
-https://nytimes.com/athletic/5802077/2024/09/28/presidents-cup-night-night-usa/
 
