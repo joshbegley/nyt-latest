@@ -1,3 +1,7 @@
+**'Night-night' on this Presidents Cup? Never**\
+`Brody Miller and Gabby Herzig talk about a wild Saturday at Royal Montreal and set up the Sunday singles matches.`\
+https://nytimes.com/athletic/5802077/2024/09/28/presidents-cup-night-night-usa/
+
 **Corrections: Sept. 29, 2024**\
 `Corrections that appeared in print on Sunday, Sept. 29, 2024.`\
 https://nytimes.com/2024/09/28/pageoneplus/corrections-sept-29-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802040/2024/09/28/presidents-cup-sunday-singles-pa
 **Blake Snell declines to make final Giants start, looks ahead to free agency**\
 `"We're not playing a playoff team," Snell said. "This game has no meaning. I think it was just probably the best case."`\
 https://nytimes.com/athletic/5801900/2024/09/28/blake-snell-final-sf-giants-start/
-
-**Penguins vs. Red Wings postponed after travel issues**\
-`Penguins players, coaches, management and other staff members boarded the plane but weren't able to take off.`\
-https://nytimes.com/athletic/5801962/2024/09/28/penguins-red-wings-game-postponed-plane/
 

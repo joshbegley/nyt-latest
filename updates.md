@@ -1,3 +1,7 @@
+**'Night-night' on this Presidents Cup? Never**\
+`Brody Miller and Gabby Herzig talk about a wild Saturday at Royal Montreal and set up the Sunday singles matches.`\
+https://nytimes.com/athletic/5802077/2024/09/28/presidents-cup-night-night-usa/
+
 **Corrections: Sept. 29, 2024**\
 `Corrections that appeared in print on Sunday, Sept. 29, 2024.`\
 https://nytimes.com/2024/09/28/pageoneplus/corrections-sept-29-2024.html
