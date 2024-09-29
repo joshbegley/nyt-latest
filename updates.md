@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Euan Ward, Aaron Boxerman and Ephrat Livni`\
+https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/here-are-the-latest-developments
+
+**Live Updates: Dozens Killed in Lebanon as Israel Resumes Airstrikes**\
+`Israeli warplanes on Saturday battered areas near Beirut, Lebanon’s capital, a day after a bombardment killed Hassan Nasrallah, the leader of Hezbollah.`\
+https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah
+
 **Injury-riddled and written off, Braves now stand on verge of postseason berth**\
 `Travis d'Arnaud's walk-off home run leaves the Braves with a chance to clinch a playoff spot despite a tumultuous season.`\
 https://nytimes.com/athletic/5802408/2024/09/29/mets-wild-card-playoff-scenario/

@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Euan Ward, Aaron Boxerman and Ephrat Livni`\
+https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/here-are-the-latest-developments
+
+**Live Updates: Dozens Killed in Lebanon as Israel Resumes Airstrikes**\
+`Israeli warplanes on Saturday battered areas near Beirut, Lebanon’s capital, a day after a bombardment killed Hassan Nasrallah, the leader of Hezbollah.`\
+https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah
+
 **Injury-riddled and written off, Braves now stand on verge of postseason berth**\
 `Travis d'Arnaud's walk-off home run leaves the Braves with a chance to clinch a playoff spot despite a tumultuous season.`\
 https://nytimes.com/athletic/5802408/2024/09/29/mets-wild-card-playoff-scenario/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5801230/2024/09/29/how-did-manchester-city-cope-wit
 **Revitalised Gordon sparks Newcastle - but Howe must maintain momentum**\
 `Anthony Gordon played No 9 for Newcastle and helped earn a draw against Manchester City - but are the forward and team back to their best?`\
 https://nytimes.com/athletic/5800968/2024/09/29/newcastle-gordon-penalty-manchester-city/
-
-**'Electric' Leeds find their flow against Coventry - just in time for tougher tests**\
-`After some stodgy matches at the start of the season, have Leeds finally found their rhythm with a 3-0 win over Coventry?`\
-https://nytimes.com/athletic/5801317/2024/09/29/leeds-coventry-electric-bogle-piroe/
-
-**Scoreboard was the only place that didn't truly show Arsenal's domination over Leicester**\
-`Arsenal took until stoppage time to finally seal victory against Leicester - but that doesn't mean they didn't dominate the game`\
-https://nytimes.com/athletic/5801581/2024/09/29/arsenal-leicester-result-premier-league/
 
