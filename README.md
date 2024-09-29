@@ -1,3 +1,11 @@
+**California Governor Vetoes Sweeping A.I. Legislation**\
+`The bill would have been the first in the nation to place strict guardrails on the new technology, but Gov. Gavin Newsom said the bill was flawed.`\
+https://nytimes.com/2024/09/29/technology/california-ai-bill.html
+
+**Flacco leads Colts to 27-24 win over Steelers after Richardson exits**\
+`Indianapolis lost starting quarterback Anthony Richardson to a right hip injury in the first quarter.`\
+https://nytimes.com/athletic/5802977/2024/09/29/steelers-colts-takeaways-result/
+
 **Netanyahu Opponent, in Reversal, Is Joining Israeli Government**\
 `The addition of Gideon Saar to Benjamin Netanyahu’s coalition strengthens the prime minister’s political position.`\
 https://nytimes.com/2024/09/29/world/middleeast/gideon-saar-netanyahu-israeli-cabinet.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5803419/2024/09/29/eagles-nfl-blocked-extra-point-r
 **Israel Strikes the Houthis, an Iranian Ally, in Yemen**\
 `The strike on power stations and a seaport, which killed four people, was the second known time that Israel has retaliated against the militant group’s attacks by striking in Yemen.`\
 https://nytimes.com/2024/09/29/world/middleeast/israel-strikes-houthis-yemen.html
-
-**Ten Hag says Man Utd 'need more time' after Spurs defeat**\
-`Manchester United manager Erik ten Hag says his team still needs more time to come together following Sunday’s 3-0 home defeat by Tottenham Hotspur.`\
-https://nytimes.com/athletic/5803298/2024/09/29/erik-ten-hag-man-utd-spurs/
-
-**Vikings dominate Packers in first half**\
-`Vikings quarterback Sam Darnold went 11 of 15 for 136 yards and threw three touchdown passes.`\
-https://nytimes.com/athletic/5802967/2024/09/29/vikings-packers-takeaways-result/
 
