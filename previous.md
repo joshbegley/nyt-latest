@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5804089/2024/09/29/presidents-cup-analysis-united-s
 `After two assassination attempts, the former president seems to be relishing the dangers of his job. Some at the Georgia-Alabama football game wondered if his appearance was wise.`\
 https://nytimes.com/2024/09/29/us/elections/trump-alabama-georgia-football.html
 
-**'I'm about to sack Aaron Rodgers:' Road trip was a clinic for Broncos' harassing defense**\
+**'I'm about to sack Aaron Rodgers': Road trip was clinic for Broncos' harassing defense**\
 `The Broncos recorded 12 sacks in a pair of victories during their successful 2-game road trip and harassed Aaron Rodgers constantly Sunday.`\
 https://nytimes.com/athletic/5803746/2024/09/29/broncos-win-jets-defense-bo-nix/
 

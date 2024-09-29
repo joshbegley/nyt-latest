@@ -1,3 +1,7 @@
+**'I'm about to sack Aaron Rodgers': Road trip was clinic for Broncos' harassing defense**\
+`The Broncos recorded 12 sacks in a pair of victories during their successful 2-game road trip and harassed Aaron Rodgers constantly Sunday.`\
+https://nytimes.com/athletic/5803746/2024/09/29/broncos-win-jets-defense-bo-nix/
+
 **What to know from the United States' Presidents Cup win**\
 `The Americans' top five players all week were a combined 24-under-par on Sunday, leading matches for 53 holes and trailing for just five.`\
 https://nytimes.com/athletic/5804089/2024/09/29/presidents-cup-analysis-united-states-2024/
