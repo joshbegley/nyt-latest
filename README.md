@@ -1,3 +1,7 @@
+**I Grew Up Much Like JD Vance. How Did We End Up So Different?**\
+`The vice-presidential nominee should be thinking of how to extend a ladder to those he left behind, not how to pull it up behind him.`\
+https://nytimes.com/2024/09/29/opinion/jd-vance-ohio-addiction-upbringing.html
+
 **What's changed for Nebraska? Matt Rhule and Dylan Raiola driving Huskers in right direction**\
 `This Saturday's showing by Nebraska at Purdue illustrated the growing effectiveness of the Rhule-Raiola resilience and leadership.`\
 https://nytimes.com/athletic/5802722/2024/09/29/nebraska-purdue-matt-rhule-dylan-raiola/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802688/2024/09/29/boise-state-washington-state-gro
 **Lowetide: How is the Oilers' defence shaping up in preseason?**\
 `The questions before training camp remain unanswered, mostly due to injuries involving key components.`\
 https://nytimes.com/athletic/5800616/2024/09/29/edmonton-oilers-defence-nurse-preseason/
-
-**How Everton kickstarted their Premier League season**\
-`With a takeover moving closer off the pitch, Everton had something to shout about on it, too. Here's how they beat Palace.`\
-https://nytimes.com/athletic/5801695/2024/09/29/everton-palace-result-premier-league-mcneil/
 
