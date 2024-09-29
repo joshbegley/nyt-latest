@@ -1,10 +1,14 @@
+**Broncos’ Tyler Badie stretchered off sideline vs. Jets**\
+`Badie was officially listed as questionable with a back injury, according to a Broncos official.`\
+https://nytimes.com/athletic/5803233/2024/09/29/tyler-badie-injury-broncos-jets/
+
 **CMU QB coach resigns, school declines comment on Stalions case**\
 `Kostner resigned within a week of Michigan receiving its notice of allegations and four days after the release of Netflix's 'Sign Stealer'.`\
 https://nytimes.com/athletic/5803174/2024/09/29/central-michigan-qb-coach-resigns-connor-stalions/
 
 **Colts' Anthony Richardson (hip) out vs. Steelers**\
 `Richardson injured his hip on a 16-yard run while being tackled by Steelers safety DeShon Elliott with 5:42 left in the first quarter.`\
-https://nytimes.com/athletic/5803194/2024/09/29/anthony-richardson-injury-colts-steelers/
+https://nytimes.com/athletic/5803194/2024/09/29/anthony-richardson-hurt-injured-colts-steelers/
 
 **Orient 0-0 Wrexham: Are Parkinson's side equipped for historic promotion hat-trick?**\
 `With plenty of midweek fixtures coming up, the squad will be tested and they showed their resilience in east London.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/arts/kamala-harris-all-the-smoke-podcast.html
 **A protest mourning Nasrallah near a U.S. Consulate in Pakistan turns violent.**\
 `By Zia ur-Rehman`\
 https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/a-protest-mourning-nasrallah-near-a-us-consulate-in-pakistan-turns-violent
-
-**Nepal Flooding and Landslides Kill at Least 170 People**\
-`The mountainous country is experiencing more extreme weather driven by climate change, including melting glaciers that add to the frequency and severity of flooding.`\
-https://nytimes.com/2024/09/29/world/asia/flooding-landslides-nepal.html
 
