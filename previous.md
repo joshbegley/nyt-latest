@@ -1,3 +1,7 @@
+**What to Wear Next**\
+`A brilliant Loewe collection, some good ideas from Courrèges and Junya Watanabe, and a step forward at Alexander McQueen.`\
+https://nytimes.com/2024/09/29/style/loewe-alexander-mcqueen-comme-des-garcons.html
+
 **‘S.N.L.’ Recap: Maya Rudolph Returns to Play Kamala Harris**\
 `The 50th season began with several surprise guests and alumni — including Dana Carvey, Jim Gaffigan and Andy Samberg — playing figures in the 2024 election.`\
 https://nytimes.com/2024/09/29/arts/television/snl-recap-maya-rudolph-jim-gaffigan-dana-carvey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/us/caltech-simplilearn-class-students.html
 **A Scrappy Downtown Radio Station Returns From the Dead, Again**\
 `Frank Prisinzano and Jorge Parreira have resurrected East Village Radio, an underground institution, after shuttering it roughly a decade ago.`\
 https://nytimes.com/2024/09/29/nyregion/east-village-radio.html
-
-**Two teen centre-backs and a need to rest squad showed Barcelona's limits against Osasuna**\
-`Barca's 4-2 defeat to Osasuna ruined their start to the season. But coach Hansi Flick said he had to rotate his team - and weaknesses showed`\
-https://nytimes.com/athletic/5793299/2024/09/29/barcelona-osasuna-la-liga-flick-yamal/
 

@@ -1,3 +1,7 @@
+**What to Wear Next**\
+`A brilliant Loewe collection, some good ideas from Courrèges and Junya Watanabe, and a step forward at Alexander McQueen.`\
+https://nytimes.com/2024/09/29/style/loewe-alexander-mcqueen-comme-des-garcons.html
+
 **‘S.N.L.’ Recap: Maya Rudolph Returns to Play Kamala Harris**\
 `The 50th season began with several surprise guests and alumni — including Dana Carvey, Jim Gaffigan and Andy Samberg — playing figures in the 2024 election.`\
 https://nytimes.com/2024/09/29/arts/television/snl-recap-maya-rudolph-jim-gaffigan-dana-carvey.html
