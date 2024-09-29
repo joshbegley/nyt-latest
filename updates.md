@@ -1,3 +1,7 @@
+**Eagles return blocked extra point for 2 points in rare play**\
+`The first instance of the play in NFL history occurred in 2015.`\
+https://nytimes.com/athletic/5803419/2024/09/29/eagles-nfl-blocked-extra-point-return-rule-explained/
+
 **Israel Strikes the Houthis, an Iranian Ally, in Yemen**\
 `The strike on power stations and a seaport, which killed four people, was the second known time that Israel has retaliated against the militant group’ attacks by striking in Yemen.`\
 https://nytimes.com/2024/09/29/world/middleeast/israel-strikes-houthis-yemen.html

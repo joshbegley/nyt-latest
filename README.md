@@ -1,3 +1,7 @@
+**Spurs condemn homophobic chanting from fans during Man Utd game**\
+`Tottenham Hotspur have condemned supporters who sang a homophobic chant during their Premier League game against Manchester United on Sunday.`\
+https://nytimes.com/athletic/5803484/2024/09/29/tottenham-condemn-homophobic-chanting-from-fans-during-manchester-united-game/
+
 **Eagles return blocked extra point for 2 points in rare play**\
 `The first instance of the play in NFL history occurred in 2015.`\
 https://nytimes.com/athletic/5803419/2024/09/29/eagles-nfl-blocked-extra-point-return-rule-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/style/paris-fashion-week-bof-party-kylie-jenner.h
 **AP Top 25: Alabama jumps past Texas for No. 1**\
 `Alabama is back atop the AP Top 25 college football poll after beating Georgia, which fell to No. 5.`\
 https://nytimes.com/athletic/5803116/2024/09/29/ap-top-25-alabama-texas-number-one/
-
-**Rocco Baldelli to return as Twins manager in 2025**\
-`Baldelli will return for a seventh season as manager of the Minnesota Twins, president of baseball operations Derek Falvey confirmed Sunday.`\
-https://nytimes.com/athletic/5803295/2024/09/29/rocco-baldelli-return-minnesota-twins-manager/
 
