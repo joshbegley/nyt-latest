@@ -1,3 +1,7 @@
+**Kylie Jenner and Ayo Edebiri Toast a Starry Crowd at Paris Fashion Week**\
+`Actors, designers and musicians turned out at a party to celebrate the Business of Fashion’s annual index of industry leaders.`\
+https://nytimes.com/2024/09/29/style/paris-fashion-week-bof-party-kylie-jenner.html
+
 **AP Top 25: Alabama jumps past Texas for No. 1**\
 `Alabama is back atop the AP Top 25 college football poll after beating Georgia, which fell to No. 5.`\
 https://nytimes.com/athletic/5803116/2024/09/29/ap-top-25-alabama-texas-number-one/
