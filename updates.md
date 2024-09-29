@@ -1,3 +1,11 @@
+**Alabama jumps on Georgia for 30-7 halftime lead in stunning start to top-5 battle**\
+`One of the most anticipated college football games of the season, in the SEC and around the country, turned into a laugher in one quarter.`\
+https://nytimes.com/athletic/5802119/2024/09/28/alabama-georgia-score-highlights-takeaways/
+
+**Yankees clinch No. 1 seed in American League**\
+`The Yankees will host Game 1 of the ALDS next Saturday.`\
+https://nytimes.com/athletic/5802133/2024/09/28/yankees-clinch-number-one-seed-postseason/
+
 **Twins manager Baldelli understands 'Fire Rocco' chants come with territory**\
 `“The fans have a right to feel almost any way they choose,” Baldelli said.`\
 https://nytimes.com/athletic/5802109/2024/09/28/twins-fire-rocco-baldelli-chants/
