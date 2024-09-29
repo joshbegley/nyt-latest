@@ -1,3 +1,11 @@
+**Top Adams Aides Get Married as Investigation Swirls Around Them**\
+`Eric Adams’s schools chancellor and first deputy mayor married in Martha’s Vineyard this weekend. Both have had their phones seized by federal investigators.`\
+https://nytimes.com/2024/09/29/nyregion/adams-david-banks-sheena-wright-marriage.html
+
+**Until Saturday: Ryan Williams steals show in Tuscaloosa**\
+`Welcome to Until Saturday, the five-star college football newsletter: Williams put on a show in Alabama's thrilling win over Georgia.`\
+https://nytimes.com/athletic/5802808/2024/09/29/ryan-williams-alabama-georgia-until-saturday/
+
 **Chelsea vs Man Utd in WSL postponed at a week's notice due to Champions League clash**\
 `Chelsea’s Women’s Super League game against Manchester United has been postponed at a week’s notice due to the scheduling of their opening Champions League match.`\
 https://nytimes.com/athletic/5803003/2024/09/29/chelsea-man-utd-wsl-champions-league/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/29/us/plane-crash-wright-brothers-memorial.html
 **Live Q&A: Week 4 fantasy football start/sit chat with Jay Felicio, Sunday 9/29 at 11 a.m. ET**\
 `Submit your Week 4 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5799176/2024/09/29/live-qa-week-4-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-29-at-11-a-m-et/
-
-**Spiraling Diamondbacks enter final day in need of help to avoid collapse**\
-`"This game can be awesome," manager Torey Luvullo said, "and it can just rip your heart out.”`\
-https://nytimes.com/athletic/5802789/2024/09/29/diamondbacks-collapse-playoffs/
-
-**California Passes Law Protecting Consumer Brain Data**\
-`The state extended its current personal privacy law to include the neural data increasingly coveted by technology companies.`\
-https://nytimes.com/2024/09/29/science/california-neurorights-tech-law.html
 
