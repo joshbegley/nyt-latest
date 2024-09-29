@@ -1,3 +1,7 @@
+**Texans come back to beat winless Jaguars 24-20: Key takeaways**\
+`The Texans avoid a second straight defeat, and it keeps Houston on top of the AFC South`\
+https://nytimes.com/athletic/5802971/2024/09/29/jaguars-texans-takeaways-result/
+
 **Bears get running game going in 24-18 win over Rams: Takeaways**\
 `Bears rookie quarterback Caleb Williams tossed his first touchdown pass at home, connecting with DJ Moore in the third.`\
 https://nytimes.com/athletic/5802961/2024/09/29/bears-rams-takeaways-result/
