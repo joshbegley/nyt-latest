@@ -1,3 +1,7 @@
+**Rocco Baldelli to return as Twins manager in 2025**\
+`Baldelli will return for a seventh season as manager of the Minnesota Twins, president of baseball operations Derek Falvey confirmed Sunday.`\
+https://nytimes.com/athletic/5803295/2024/09/29/rocco-baldelli-return-minnesota-twins-manager/
+
 **Blue Jackets Sunday Gathering: Cole and Owen Sillinger may soon be NHL teammates**\
 `Plus: Damon Severson is gearing up for a bounce-back season in Columbus, prospect Jordan Dumais awaits hernia surgery and more.`\
 https://nytimes.com/athletic/5802219/2024/09/29/blue-jackets-cole-owen-sillinger/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799299/2024/09/29/man-utd-tottenham-ten-hag-fernan
 **The Pulse: Bama's 17-year-old football hero**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5803185/2024/09/29/alabama-ryan-williams-college-football-nfl-the-pulse/
-
-**On Sports Podcast, Harris Will Discuss Race and Police Brutality**\
-`A nearly hourlong conversation on “All the Smoke” could help Vice President Kamala Harris reach Black men in the closing weeks of her presidential campaign.`\
-https://nytimes.com/2024/09/29/arts/kamala-harris-all-the-smoke-podcast.html
 
