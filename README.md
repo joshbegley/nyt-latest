@@ -1,3 +1,7 @@
+**Monday Briefing: The Aftermath of Nasrallah’s Death**\
+`Plus, we retraced one of Mayor Eric Adams’s lavish trips to Istanbul.`\
+https://nytimes.com/2024/09/29/briefing/nasrallah-trump-attacks-helene.html
+
 **United States wins Presidents Cup for 13th time in 15 tries**\
 `Keegan Bradley clinched the cup for the U.S., with five matches still on the course.`\
 https://nytimes.com/athletic/5803554/2024/09/29/presidents-cup-united-states-win/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/5802951/2024/09/29/saints-falcons-takeaways-result/
 `The bill would have been the first in the nation to place strict guardrails on the new technology, but Gov. Gavin Newsom said the bill was flawed.`\
 https://nytimes.com/2024/09/29/technology/california-ai-bill.html
 
-**Flacco leads Colts to 27-24 win over Steelers after Richardson exits**\
+**Flacco leads Colts to 27-24 win over Steelers after Richardson exits: Takeaways**\
 `Indianapolis lost starting quarterback Anthony Richardson to a right hip injury in the first quarter.`\
 https://nytimes.com/athletic/5802977/2024/09/29/steelers-colts-takeaways-result/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802984/2024/09/29/eagles-buccaneers-takeaways-resu
 **New California law signed in honor of former Stanford goalkeeper Katie Meyer**\
 `The law allows students to designate an advisor of their choosing during disciplinary proceedings`\
 https://nytimes.com/athletic/5803427/2024/09/29/stanford-womens-soccer-katie-meyer-california-law/
-
-**Drake Hogestyn, ‘Days of Our Lives’ Actor, Dies at 70**\
-`Mr. Hogestyn was best known for playing John Black on the daytime soap opera and appeared in more than 4,200 episodes over 38 years.`\
-https://nytimes.com/2024/09/29/arts/television/drake-hogestyn-dead.html
 
