@@ -1,3 +1,7 @@
+**Astros vs. Tigers Wild Card Series preview: Predictions, pitching matchups and more**\
+`It's a very familiar face in October, the Astros, versus the surging Tigers, who are making their first playoff appearance in 10 years. `\
+https://nytimes.com/athletic/5803660/2024/09/29/astros-tigers-2024-wild-card-series-preview-predictions/
+
 **Bengals' offensive evolution spins forward vs. Panthers when they need it most**\
 `Joe Burrow uses latest mix of weapons to show Cincinnati can score and get explosive plays many different ways.`\
 https://nytimes.com/athletic/5804139/2024/09/29/bengals-win-joe-burrow-offense-panthers/
