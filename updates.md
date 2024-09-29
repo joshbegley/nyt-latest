@@ -1,3 +1,11 @@
+**Jaguars at Texans odds, expert picks, how to watch: Texans favored to keep Jags winless**\
+`The Texans are nearly a touchdown-favorite against the winless Jaguars. Will Trevor Lawrence get things going?`\
+https://nytimes.com/athletic/5800114/2024/09/29/jaguars-texans-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Why I Write My Own Obituary Every Year**\
+`It’s not as maudlin as it might seem. If you take a few minutes to try it, you might find the same.`\
+https://nytimes.com/2024/09/29/opinion/write-your-own-obituary.html
+
 **‘S.N.L.’: Maya Rudolph and Jim Gaffigan Play Kamala Harris and Tim Walz**\
 `The casting ended months of speculation after President Biden, played on Saturday by Dana Carvey, withdrew from the race. James Austin Johnson continued as Donald Trump.`\
 https://nytimes.com/2024/09/29/arts/television/snl-maya-rudolph-jim-gaffigan-kamala-harris-tim-walz.html
