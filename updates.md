@@ -1,3 +1,7 @@
+**Spurs condemn homophobic chanting from fans during Man Utd game**\
+`Tottenham Hotspur have condemned supporters who sang a homophobic chant during their Premier League game against Manchester United on Sunday.`\
+https://nytimes.com/athletic/5803484/2024/09/29/tottenham-condemn-homophobic-chanting-from-fans-during-manchester-united-game/
+
 **Eagles return blocked extra point for 2 points in rare play**\
 `The first instance of the play in NFL history occurred in 2015.`\
 https://nytimes.com/athletic/5803419/2024/09/29/eagles-nfl-blocked-extra-point-return-rule-explained/
