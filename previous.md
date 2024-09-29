@@ -1,3 +1,7 @@
+**Mets limping to finish line but can still clinch: 'We gotta get it done'**\
+`Some of the Mets' best hitters are scuffling at the plate and now their postseason hinge on snapping out of it.`\
+https://nytimes.com/athletic/5802332/2024/09/29/mets-wild-card-scenarios/
+
 **NMSU investigating OC's decade-old, derogatory tweets**\
 `New Mexico State is looking into Tyler Wright's posts after a report surfaced that he used derogatory language in tweets from 2011-14.`\
 https://nytimes.com/athletic/5801655/2024/09/29/nmsu-oc-tyler-wright-not-with-team-for-game-vs-new-mexico-as-school-investigates-derogatory-tweets/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/business/office-gossip-advice.html
 **Vikings at Green Bay Packers odds, expert picks, how to watch: Battle in the NFC North**\
 `A close division rivalry unfolds on Sunday as the rolling Minnesota Vikings head to Lambeau Field to face the 2-1 Green Bay Packers.`\
 https://nytimes.com/athletic/5799546/2024/09/29/vikings-packers-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Rams at Bears odds, picks, how to watch: Caleb Williams faces Stafford and McVay**\
-`Sean McVay guided LA to an astounding win last week, but the wounded Rams are slight underdogs in Chicago. `\
-https://nytimes.com/athletic/5799500/2024/09/28/rams-bears-odds-expert-picks-how-to-watch-predictions-betting/
 
