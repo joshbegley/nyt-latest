@@ -1,3 +1,11 @@
+**Texans come back to beat winless Jaguars 24-20: Key Takeaways**\
+`The Texans avoid a second straight defeat, and it keeps Houston on top of the AFC South`\
+https://nytimes.com/athletic/5802971/2024/09/29/jaguars-texans-takeaways-result/
+
+**Chiefs' Rashee Rice carted off with knee injury vs. Chargers**\
+`Rashee Rice, the Chiefs’ leading receiver, was carted back to the locker room and quickly ruled out of Sunday&#8217;s game against the Los Angeles Chargers with a right knee injury.`\
+https://nytimes.com/athletic/5803636/2024/09/29/chiefs-rashee-rice-knee-injury/
+
 **Monday Briefing: The Aftermath of Nasrallah’s Death**\
 `Plus, we retraced one of Mayor Eric Adams’s lavish trips to Istanbul.`\
 https://nytimes.com/2024/09/29/briefing/nasrallah-trump-attacks-helene.html

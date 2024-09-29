@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5802971/2024/09/29/jaguars-texans-takeaways-result/
 
 **Chiefs' Rashee Rice carted off with knee injury vs. Chargers**\
-`Rashee Rice, the Chiefs’ leading receiver, was carted back to the locker room and quickly ruled out of Sunday&#8217;s game against the Los Angeles Chargers with a right knee injury.`\
+`Rice sustained the injury on the Chiefs’ second possession while trying to force a fumble after a Patrick Mahomes interception.`\
 https://nytimes.com/athletic/5803636/2024/09/29/chiefs-rashee-rice-knee-injury/
 
 **Monday Briefing: The Aftermath of Nasrallah’s Death**\

@@ -1,3 +1,11 @@
+**Texans come back to beat winless Jaguars 24-20: Key Takeaways**\
+`The Texans avoid a second straight defeat, and it keeps Houston on top of the AFC South`\
+https://nytimes.com/athletic/5802971/2024/09/29/jaguars-texans-takeaways-result/
+
+**Chiefs' Rashee Rice carted off with knee injury vs. Chargers**\
+`Rashee Rice, the Chiefs’ leading receiver, was carted back to the locker room and quickly ruled out of Sunday&#8217;s game against the Los Angeles Chargers with a right knee injury.`\
+https://nytimes.com/athletic/5803636/2024/09/29/chiefs-rashee-rice-knee-injury/
+
 **Monday Briefing: The Aftermath of Nasrallah’s Death**\
 `Plus, we retraced one of Mayor Eric Adams’s lavish trips to Istanbul.`\
 https://nytimes.com/2024/09/29/briefing/nasrallah-trump-attacks-helene.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5802977/2024/09/29/steelers-colts-takeaways-result/
 **Netanyahu Opponent, in Reversal, Is Joining Israeli Government**\
 `The addition of Gideon Saar to Benjamin Netanyahu’s coalition strengthens the prime minister’s political position.`\
 https://nytimes.com/2024/09/29/world/middleeast/gideon-saar-netanyahu-israeli-cabinet.html
-
-**Baker Mayfield cooks as Bucs topple Eagles 33-16: Takeaways**\
-`Fourteen completions and three total TDs is a solid day for a quarterback. Baker Mayfield had those numbers early in the second quarter.`\
-https://nytimes.com/athletic/5802984/2024/09/29/eagles-buccaneers-takeaways-result/
-
-**New California law signed in honor of former Stanford goalkeeper Katie Meyer**\
-`The law allows students to designate an advisor of their choosing during disciplinary proceedings`\
-https://nytimes.com/athletic/5803427/2024/09/29/stanford-womens-soccer-katie-meyer-california-law/
 
