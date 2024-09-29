@@ -1,3 +1,15 @@
+**Bengals' offensive evolution spins forward vs. Panthers when they need it most**\
+`Joe Burrow uses latest mix of weapons to show Cincinnati can score and get explosive plays many different ways.`\
+https://nytimes.com/athletic/5804139/2024/09/29/bengals-win-joe-burrow-offense-panthers/
+
+**Panthers lose, but there's a different vibe since Andy Dalton replaced Bryce Young**\
+`After winning a week ago, the Panthers made a game of it Sunday vs. the Bengals, which is a significant step in the right direction.`\
+https://nytimes.com/athletic/5804150/2024/09/29/panthers-andy-dalton-vibe-bryce-young-bengals/
+
+**Chiefs pummel Justin Herbert but lose Rashee Rice in 17-10 win: Key takeaways**\
+`Kansas City finds another way to win a one-score game, marking its fourth 4-0 start in Mahomes' seven years as starter. `\
+https://nytimes.com/athletic/5803998/2024/09/29/chiefs-chargers-takeaways-result-score/
+
 **How Darnell Mooney's savvy move saved Falcons' sputtering offense against Saints**\
 `ATLANTA — Kirk Cousins and Darnell Mooney sit next to each other in Atlanta’s locker room at the Falcons’ practice facility, which regularly reminds Cousins how seriously Mooney takes football.`\
 https://nytimes.com/athletic/5804023/2024/09/29/falcons-darnell-mooney-younghoe-koo-saints/
