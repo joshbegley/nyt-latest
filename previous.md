@@ -1,3 +1,7 @@
+**Republicans Criticize Trump Over His Insults of Harris**\
+`Several Republicans distanced themselves from their party’s standard-bearer after he called Vice President Kamala Harris “mentally disabled.”`\
+https://nytimes.com/2024/09/29/us/politics/trump-insults-harris-republicans.html
+
 **In North Carolina, a Race to Provide Relief Amid an ‘Unprecedented Tragedy’**\
 `Emergency workers are rescuing people from homes as they try to repair damaged roads, power lines and water systems. Officials said 11 people in the state have died from Hurricane Helene.`\
 https://nytimes.com/2024/09/29/us/north-carolina-helene-relief-damage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/insider/a-capsule-of-the-past-a-vessel-for-the-fu
 **Top Adams Aides Get Married as Investigation Swirls Around Them**\
 `Eric Adams’s schools chancellor and first deputy mayor married in Martha’s Vineyard this weekend. Both have had their phones seized by federal investigators.`\
 https://nytimes.com/2024/09/29/nyregion/adams-david-banks-sheena-wright-marriage.html
-
-**Until Saturday: Ryan Williams steals show in Tuscaloosa**\
-`Welcome to Until Saturday, the five-star college football newsletter: Williams put on a show in Alabama's thrilling win over Georgia.`\
-https://nytimes.com/athletic/5802808/2024/09/29/ryan-williams-alabama-georgia-until-saturday/
 

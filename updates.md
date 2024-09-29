@@ -1,3 +1,7 @@
+**Republicans Criticize Trump Over His Insults of Harris**\
+`Several Republicans distanced themselves from their party’s standard-bearer after he called Vice President Kamala Harris “mentally disabled.”`\
+https://nytimes.com/2024/09/29/us/politics/trump-insults-harris-republicans.html
+
 **In North Carolina, a Race to Provide Relief Amid an ‘Unprecedented Tragedy’**\
 `Emergency workers are rescuing people from homes as they try to repair damaged roads, power lines and water systems. Officials said 11 people in the state have died from Hurricane Helene.`\
 https://nytimes.com/2024/09/29/us/north-carolina-helene-relief-damage.html
