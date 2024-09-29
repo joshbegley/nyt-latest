@@ -1,3 +1,11 @@
+**CMU QB coach resigns, school declines comment on Stalions case**\
+`Kostner resigned within a week of Michigan receiving its notice of allegations and four days after the release of Netflix's 'Sign Stealer'.`\
+https://nytimes.com/athletic/5803174/2024/09/29/central-michigan-qb-coach-resigns-connor-stalions/
+
+**Colts' Anthony Richardson (hip) out vs. Steelers**\
+`Richardson injured his hip on a 16-yard run while being tackled by Steelers safety DeShon Elliott with 5:42 left in the first quarter.`\
+https://nytimes.com/athletic/5803194/2024/09/29/anthony-richardson-injury-colts-steelers/
+
 **Orient 0-0 Wrexham: Are Parkinson's side equipped for historic promotion hat-trick?**\
 `With plenty of midweek fixtures coming up, the squad will be tested and they showed their resilience in east London.`\
 https://nytimes.com/athletic/5793431/2024/09/29/wrexham-promotion-parkinson-league-one/
