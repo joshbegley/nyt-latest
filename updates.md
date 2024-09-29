@@ -1,3 +1,7 @@
+**How JD Vance turns taking questions from the media into political theater.**\
+`By Jess Bidgood`\
+https://nytimes.com/live/2024/09/29/us/harris-trump-election/how-jd-vance-turns-taking-questions-from-the-media-into-political-theater
+
 **Luis Arraez becomes first player to win 3 straight batting titles with 3 different teams**\
 `Sunday at Chase Field, Arraez set a career-high with his 32nd double, finished his regular season hitting .314.`\
 https://nytimes.com/athletic/5803556/2024/09/29/luis-arraez-3-batting-titles-3-teams/
