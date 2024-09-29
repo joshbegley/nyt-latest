@@ -1,4 +1,8 @@
 **In North Carolina, a Race to Provide Relief Amid an ‘Unprecedented Tragedy’**\
+`Emergency workers are rescuing people from homes as they try to repair damaged roads, power lines and water systems. Officials said 11 people in the state have died from Hurricane Helene.`\
+https://nytimes.com/2024/09/29/us/north-carolina-helene-relief-damage.html
+
+**In North Carolina, a Race to Provide Relief Amid an ‘Unprecedented Tragedy’**\
 `Emergency workers in the western region of the state are rescuing people from homes as they try to repair damaged communications, transportation and water systems. Officials said 11 people in the state have died from Hurricane Helene.`\
 https://nytimes.com/2024/09/29/us/north-carolina-helene-relief-damage.html
 
