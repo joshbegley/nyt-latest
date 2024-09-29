@@ -1,5 +1,9 @@
+**Padres postseason roster projection: Who makes the wild-card rotation?**\
+`Here is one attempt at projecting a 26-man roster for the wild-card series against ... someone.`\
+https://nytimes.com/athletic/5802430/2024/09/29/padres-postseason-roster-projection/
+
 **Young Canadiens' resiliency will be tested by Patrik Laine injury, potential absence**\
-`So much of the Canadiens' optimism this season was based on Laine's ability to be a game-changer. Now, he might be gone.`\
+`So much of the Canadiens' optimism this season was based on Laine's ability to be a game-changer. Now he might be gone.`\
 https://nytimes.com/athletic/5802409/2024/09/29/patrik-laine-injury-potential-loss-tests-young-canadiens/
 
 **Here are the latest developments.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/arts/television/snl-maya-rudolph-jim-gaffigan-kam
 **Eagles at Buccaneers odds, picks, how to watch: Eagles on revenge trip**\
 `Philly (2-1) returns to Tampa Bay (2-1) on a quest to right the wrongs of their blowout playoff loss last season. Will they?`\
 https://nytimes.com/athletic/5799724/2024/09/29/eagles-buccaneers-odds-expert-picks-how-to-watch-predictions-betting/
-
-**How did Manchester City cope without 'irreplaceable' Rodri?**\
-`Manchester City drew 1-1 with Newcastle, in their first game without the injured Rodri. How much of a difference did it make?`\
-https://nytimes.com/athletic/5801230/2024/09/29/how-did-manchester-city-cope-without-irreplaceable-rodri/
 
