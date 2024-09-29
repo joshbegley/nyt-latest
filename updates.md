@@ -1,3 +1,15 @@
+**Padres postseason roster projection: Who makes the wild-card rotation?**\
+`Here is one attempt at projecting a 26-man roster for the wild-card series against ... someone.`\
+https://nytimes.com/athletic/5802430/2024/09/29/padres-postseason-roster-projection/
+
+**Young Canadiens' resiliency will be tested by Patrik Laine injury, potential absence**\
+`So much of the Canadiens' optimism this season was based on Laine's ability to be a game-changer. Now he might be gone.`\
+https://nytimes.com/athletic/5802409/2024/09/29/patrik-laine-injury-potential-loss-tests-young-canadiens/
+
+**‘S.N.L.’ Picks Maya Rudolph and Jim Gaffigan to Play Kamala Harris and Tim Walz**\
+`The casting ended months of speculation after President Biden, played on Saturday by Dana Carvey, withdrew from the race. James Austin Johnson continued as Donald Trump.`\
+https://nytimes.com/2024/09/29/arts/television/snl-maya-rudolph-jim-gaffigan-kamala-harris-tim-walz.html
+
 **Young Canadiens' resiliency will be tested by Patrik Laine injury, potential absence**\
 `So much of the Canadiens' optimism this season was based on Laine's ability to be a game-changer. Now, he might be gone.`\
 https://nytimes.com/athletic/5802409/2024/09/29/patrik-laine-injury-potential-loss-tests-young-canadiens/
