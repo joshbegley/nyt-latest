@@ -1,3 +1,7 @@
+**Updated MLB playoff scenarios, including 8 for Braves-Mets-Diamondbacks**\
+`None of the four Wild Card Series matchups is set. Ahead of the final Sunday of the regular season, here’s a look at every possibility.`\
+https://nytimes.com/athletic/5802891/2024/09/29/mlb-playoff-scenarios-braves-mets-diamondbacks/
+
 **How a Calvin Pickard injury could impact Oilers' season-opening roster**\
 `Pickard left Saturday's game against the Kraken midway through the first period after a collision in the crease.`\
 https://nytimes.com/athletic/5802486/2024/09/29/oilers-roster-calvin-pickard/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/travel/adams-turkey-upgrades.html
 **Here’s the latest on the presidential race.**\
 `By Tim Balk and Simon J. Levien`\
 https://nytimes.com/live/2024/09/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**The Club World Cup Cup has venues at last - but so many questions still remain**\
-`Controversial tournament still lacks broadcast and sponsorship partners, while concerns over player workload still linger`\
-https://nytimes.com/athletic/5802442/2024/09/29/fifa-club-world-cup-questions/
 
