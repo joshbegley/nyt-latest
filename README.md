@@ -18,7 +18,7 @@ https://nytimes.com/2024/09/29/opinion/jd-vance-ohio-addiction-upbringing.html
 `This Saturday's showing by Nebraska at Purdue illustrated the growing effectiveness of the Rhule-Raiola resilience and leadership.`\
 https://nytimes.com/athletic/5802722/2024/09/29/nebraska-purdue-matt-rhule-dylan-raiola/
 
-**Lie-flat Seats and Chilled Champagne: Testing Eric Adams’s Upgrade Life**\
+**Lie-Flat Seats and Chilled Champagne: Testing Eric Adams’s Upgrade Life**\
 `The New York mayor is accused of accepting free luxury travel in exchange for political favors. How large was he living? A writer puts the experience to the test.`\
 https://nytimes.com/2024/09/29/travel/adams-turkey-upgrades.html
 

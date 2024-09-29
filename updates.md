@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Tim Balk and Simon J. Levien`\
+https://nytimes.com/live/2024/09/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Inside the Sally Rooney Fan Base**\
+`We explore some of the most passionate fans in literature.`\
+https://nytimes.com/2024/09/29/briefing/sally-rooney-fans-intermezzo.html
+
 **Live Q&A: Week 4 fantasy football start/sit chat with Jay Felicio, Sunday 9/29 at 11 a.m. ET**\
 `Submit your Week 4 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5799176/2024/09/29/live-qa-week-4-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-29-at-11-a-m-et/
