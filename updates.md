@@ -1,3 +1,7 @@
+**Rocco Baldelli to return as Twins manager in 2025**\
+`Baldelli will return for a seventh season as manager of the Minnesota Twins, president of baseball operations Derek Falvey confirmed Sunday.`\
+https://nytimes.com/athletic/5803295/2024/09/29/rocco-baldelli-return-minnesota-twins-manager/
+
 **Broncos’ Tyler Badie stretchered off sideline vs. Jets**\
 `Badie was originally listed as questionable to with a back injury, but then the team deemed Badie as out for the remainder of the game.`\
 https://nytimes.com/athletic/5803233/2024/09/29/tyler-badie-injury-broncos-jets/
