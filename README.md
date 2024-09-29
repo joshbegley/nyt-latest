@@ -1,3 +1,7 @@
+**Ten Hag says Man Utd 'need more time' after Spurs defeat**\
+`Manchester United manager Erik ten Hag says his team still needs more time to come together following Sunday’s 3-0 home defeat by Tottenham Hotspur.`\
+https://nytimes.com/athletic/5803298/2024/09/29/erik-ten-hag-man-utd-spurs/
+
 **Vikings dominate Packers in first half**\
 `Vikings quarterback Sam Darnold went 11 of 15 for 136 yards and threw three touchdown passes.`\
 https://nytimes.com/athletic/5802967/2024/09/29/vikings-packers-takeaways-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802219/2024/09/29/blue-jackets-cole-owen-sillinger
 **Broncos’ Tyler Badie stretchered off sideline vs. Jets**\
 `Badie was originally listed as questionable to with a back injury, but then the team deemed Badie as out for the remainder of the game.`\
 https://nytimes.com/athletic/5803233/2024/09/29/tyler-badie-injury-broncos-jets/
-
-**CMU QB coach resigns, school declines comment on Stalions case**\
-`Kostner resigned within a week of Michigan receiving its notice of allegations and four days after the release of Netflix's 'Sign Stealer'.`\
-https://nytimes.com/athletic/5803174/2024/09/29/central-michigan-qb-coach-resigns-connor-stalions/
 
