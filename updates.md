@@ -1,3 +1,7 @@
+**Spiraling Diamondbacks enter final day in need of help to avoid collapse**\
+`"This game can be awesome," manager Torey Luvullo said, "and it can just rip your heart out.”`\
+https://nytimes.com/athletic/5802789/2024/09/29/diamondbacks-collapse-playoffs/
+
 **California Passes Law Protecting Consumer Brain Data**\
 `The state extended its current personal privacy law to include the neural data increasingly coveted by technology companies.`\
 https://nytimes.com/2024/09/29/science/california-neurorights-tech-law.html
