@@ -1,13 +1,3 @@
-**Bears get running game going in 24-18 win over Rams: Takeaways**\
-`NFL Week 4 live updates: Inactives, schedule, kickoff times, matchups, odds and predictions
-By Kevin Fishbain, Adam Jahns, Jourdan Rodrigue and Lauren Smith
-Following a pair of losses the past two weeks, the Chicago Bears led from the second quarter on Sunday, evening their record with a 24-18 win over the visiting Los Angeles Rams.`\
-https://nytimes.com/athletic/5802961/2024/09/29/bears-rams-takeaways-result/
-
-**Huge Plume From Chemical Plant in Georgia Prompts Evacuations**\
-`A sprinkler malfunction combined with a “water-reactive chemical” in the plant set off the plume, prompting evacuations for large parts of Conyers, Ga., officials said.`\
-https://nytimes.com/2024/09/29/us/chemical-bio-lab-fire-georgia.html
-
 **Nix, Broncos resilient while penalties bury Jets in loss: Key takeaways**\
 `Nix's 60 passing yards are the fewest by a winning quarterback (min. 20 attempts) since 2007. `\
 https://nytimes.com/athletic/5803481/2024/09/29/jets-broncos-takeaways-result/
@@ -39,4 +29,12 @@ https://nytimes.com/athletic/5803601/2024/09/29/madrid-derby-objects-atletico-me
 **Falcons beat Saints on game-winning FG from Younghoe Koo**\
 `Falcons kicker Younghoe Koo capped off a game-winning drive with a career-high 58-yard field goal.`\
 https://nytimes.com/athletic/5802951/2024/09/29/saints-falcons-takeaways-result/
+
+**California Governor Vetoes Sweeping A.I. Legislation**\
+`The bill would have been the first in the nation to place strict guardrails on the new technology, but Gov. Gavin Newsom said the bill was flawed.`\
+https://nytimes.com/2024/09/29/technology/california-ai-bill.html
+
+**Flacco leads Colts to 27-24 win over Steelers after Richardson exits: Takeaways**\
+`Indianapolis lost starting quarterback Anthony Richardson to a right hip injury in the first quarter.`\
+https://nytimes.com/athletic/5802977/2024/09/29/steelers-colts-takeaways-result/
 
