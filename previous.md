@@ -1,3 +1,7 @@
+**How a Calvin Pickard injury could impact Oilers' season-opening roster**\
+`Pickard left Saturday's game against the Kraken midway through the first period after a collision in the crease.`\
+https://nytimes.com/athletic/5802486/2024/09/29/oilers-roster-calvin-pickard/
+
 **Multiple People Dead in Plane Crash Near Wright Brothers Memorial**\
 `A single-engine plane was trying to land when it crashed into a wooded area near the memorial in North Carolina on Saturday, the National Park Service said.`\
 https://nytimes.com/2024/09/29/us/plane-crash-wright-brothers-memorial.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/29/us/harris-trump-election/heres-the-latest-on
 **The Club World Cup Cup has venues at last - but so many questions still remain**\
 `Controversial tournament still lacks broadcast and sponsorship partners, while concerns over player workload still linger`\
 https://nytimes.com/athletic/5802442/2024/09/29/fifa-club-world-cup-questions/
-
-**Hezbollah has yet to talk about Nasrallah’s funeral, or his successor.**\
-`By Ben Hubbard`\
-https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/hezbollah-nasrallah-funeral
 
