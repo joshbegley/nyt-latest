@@ -1,3 +1,7 @@
+**A protest mourning Nasrallah near a U.S. Consulate in Pakistan turns violent.**\
+`By Zia ur-Rehman`\
+https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/a-protest-mourning-nasrallah-near-a-us-consulate-in-pakistan-turns-violent
+
 **Nepal Flooding and Landslides Kill at Least 170 People**\
 `The mountainous country is experiencing more extreme weather driven by climate change, including melting glaciers that add to the frequency and severity of flooding.`\
 https://nytimes.com/2024/09/29/world/asia/flooding-landslides-nepal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/opinion/rape-cases.html
 **Sticky Guava Ribs for Any Season**\
 `Kia Damon’s recipe is an easy oven-baked barbecue situation that leads to tender meat and a caramelized bark that’s sweet and salty.`\
 https://nytimes.com/2024/09/29/dining/sticky-guava-ribs-for-any-season.html
-
-**Updated MLB playoff scenarios for Braves, Mets, Diamondbacks and other AL, NL teams**\
-`None of the four Wild Card Series matchups is set. Ahead of the final Sunday of the regular season, here’s a look at every possibility.`\
-https://nytimes.com/athletic/5802891/2024/09/29/mlb-playoff-scenarios-braves-mets-diamondbacks/
 
