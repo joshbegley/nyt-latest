@@ -1,3 +1,7 @@
+**AP Top 25: Alabama jumps past Texas for No. 1**\
+`Alabama is back atop the AP Top 25 college football poll after beating Georgia, which fell to No. 5.`\
+https://nytimes.com/athletic/5803116/2024/09/29/ap-top-25-alabama-texas-number-one/
+
 **Rocco Baldelli to return as Twins manager in 2025**\
 `Baldelli will return for a seventh season as manager of the Minnesota Twins, president of baseball operations Derek Falvey confirmed Sunday.`\
 https://nytimes.com/athletic/5803295/2024/09/29/rocco-baldelli-return-minnesota-twins-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/us/north-carolina-helene-relief-damage.html
 **The Briefing: Man United 0 Spurs 3 - What now for Ten Hag? And breaking down Van de Ven's incredible assist**\
 `United's manager is under pressure after heavy defeat - but was Bruno Fernandes' red card harsh?`\
 https://nytimes.com/athletic/5799299/2024/09/29/man-utd-tottenham-ten-hag-fernandes/
-
-**The Pulse: Bama's 17-year-old football hero**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/5803185/2024/09/29/alabama-ryan-williams-college-football-nfl-the-pulse/
 

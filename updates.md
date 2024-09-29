@@ -1,3 +1,7 @@
+**AP Top 25: Alabama jumps past Texas for No. 1**\
+`Alabama is back atop the AP Top 25 college football poll after beating Georgia, which fell to No. 5.`\
+https://nytimes.com/athletic/5803116/2024/09/29/ap-top-25-alabama-texas-number-one/
+
 **Rocco Baldelli to return as Twins manager in 2025**\
 `Baldelli will return for a seventh season as manager of the Minnesota Twins, president of baseball operations Derek Falvey confirmed Sunday.`\
 https://nytimes.com/athletic/5803295/2024/09/29/rocco-baldelli-return-minnesota-twins-manager/
