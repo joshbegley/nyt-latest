@@ -1,3 +1,11 @@
+**Orient 0-0 Wrexham: Are Parkinson's side equipped for historic promotion hat-trick?**\
+`With plenty of midweek fixtures coming up, the squad will be tested and they showed their resilience in east London.`\
+https://nytimes.com/athletic/5793431/2024/09/29/wrexham-promotion-parkinson-league-one/
+
+**The Briefing: Man United 0 Spurs 3 - What now for Ten Hag? And breaking down Van de Ven's incredible assist**\
+`United's manager is under pressure after heavy defeat - but was Bruno Fernandes' red card harsh?`\
+https://nytimes.com/athletic/5799299/2024/09/29/man-utd-tottenham-ten-hag-fernandes/
+
 **The Briefing: Man United 0 Spurs 3 - What now for Ten Hag? Van de Ven's incredible assist**\
 `United's manager is under pressure after heavy defeat - but was Bruno Fernandes' red card harsh?`\
 https://nytimes.com/athletic/5799299/2024/09/29/man-utd-tottenham-ten-hag-fernandes/

@@ -1,7 +1,3 @@
-**Orient 0-0 Wrexham: Are Parkinson's side equipped for historic promotion hat-trick?**\
-`With plenty of midweek fixtures coming up, the squad will be tested and they showed their resilience in east London.`\
-https://nytimes.com/athletic/5793431/2024/09/29/wrexham-promotion-parkinson-league-one/
-
 **Republicans Criticize Trump Over His Insults of Harris**\
 `Several Republicans distanced themselves from their party’s standard-bearer after he called Vice President Kamala Harris “mentally disabled.”`\
 https://nytimes.com/2024/09/29/us/politics/trump-insults-harris-republicans.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5803069/2024/09/29/college-football-playoff-bracket
 **A Capsule of the Past, a Vessel for the Future**\
 `In 1999, The Times Magazine commissioned a time capsule to be opened at the next millennium. It has been hidden from public view since 2018.`\
 https://nytimes.com/2024/09/29/insider/a-capsule-of-the-past-a-vessel-for-the-future.html
+
+**Top Adams Aides Get Married as Investigation Swirls Around Them**\
+`Eric Adams’s schools chancellor and first deputy mayor married in Martha’s Vineyard this weekend. Both have had their phones seized by federal investigators.`\
+https://nytimes.com/2024/09/29/nyregion/adams-david-banks-sheena-wright-marriage.html
 
