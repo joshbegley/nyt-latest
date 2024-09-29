@@ -1,3 +1,11 @@
+**Jaguars at Texans odds, expert picks, how to watch: Texans favored to keep Jags winless**\
+`The Texans are nearly a touchdown-favorite against the winless Jaguars. Will Trevor Lawrence get things going?`\
+https://nytimes.com/athletic/5800114/2024/09/29/jaguars-texans-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Why I Write My Own Obituary Every Year**\
+`It’s not as maudlin as it might seem. If you take a few minutes to try it, you might find the same.`\
+https://nytimes.com/2024/09/29/opinion/write-your-own-obituary.html
+
 **Bengals at Panthers odds, picks, how to watch: Andy Dalton faces former team**\
 `Andy Dalton starts his second game of the season against his former team, a Bengals squad desperate not to go 0-4.`\
 https://nytimes.com/athletic/5799957/2024/09/29/bengals-panthers-odds-expert-picks-how-to-watch-predictions-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5801581/2024/09/29/arsenal-leicester-result-premier
 **Hurricane Helene: Mapping More Than 600 Miles of Devastation**\
 `See the devastating path carved out by Hurricane Helene from Florida’s Gulf Coast to Tennessee.`\
 https://nytimes.com/interactive/2024/09/29/us/helene-path-map.html
-
-**Broncos at Jets odds, picks, how to watch: Nix vs. Rodgers with Jets big favorites**\
-`Bo Nix and the Broncos' Week 3 win did nothing to move the line in their road game against Aaron Rodgers and the Jets. `\
-https://nytimes.com/athletic/5799647/2024/09/29/broncos-jets-odds-expert-picks-how-to-watch-predictions-betting/
-
-**How Rowe went from Norwich outcast to Marseille's new hero**\
-`The English striker is relishing life in France after a messy departure from Carrow Road`\
-https://nytimes.com/athletic/5798998/2024/09/29/jon-rowe-marseille-interview/
 
