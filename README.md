@@ -1,3 +1,7 @@
+**Astros vs. Tigers Wild Card Series preview: Predictions, pitching matchups and more**\
+`It's a very familiar face in October, the Astros, versus the surging Tigers, who are making their first playoff appearance in 10 years. `\
+https://nytimes.com/athletic/5803660/2024/09/29/astros-tigers-2024-wild-card-series-preview-predictions/
+
 **Bengals' offensive evolution spins forward vs. Panthers when they need it most**\
 `Joe Burrow uses latest mix of weapons to show Cincinnati can score and get explosive plays many different ways.`\
 https://nytimes.com/athletic/5804139/2024/09/29/bengals-win-joe-burrow-offense-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5803989/2024/09/29/bears-dandre-swift-running-game-
 **What to know from the United States' Presidents Cup win**\
 `The Americans' top five players all week were a combined 24-under-par on Sunday, leading matches for 53 holes and trailing for just five.`\
 https://nytimes.com/athletic/5804089/2024/09/29/presidents-cup-analysis-united-states-2024/
-
-**Trump Says He’s in Danger. So Why Did He Seek Out the Embrace of 100,000 Fans?**\
-`After two assassination attempts, the former president seems to be relishing the dangers of his job. Some at the Georgia-Alabama football game wondered if his appearance was wise.`\
-https://nytimes.com/2024/09/29/us/elections/trump-alabama-georgia-football.html
 
