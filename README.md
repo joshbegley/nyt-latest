@@ -1,3 +1,7 @@
+**‘S.N.L.’ Recap: Maya Rudolph Returns to Play Kamala Harris**\
+`The 50th season began with several surprise guests and alumni — including Dana Carvey, Jim Gaffigan and Andy Samberg — playing figures in the 2024 election.`\
+https://nytimes.com/2024/09/29/arts/television/snl-recap-maya-rudolph-jim-gaffigan-dana-carvey.html
+
 **In Adams Indictment, Legal Experts See Strengths, Potential Pitfalls**\
 `Prosecutors pursuing corruption charges against Mayor Eric Adams appear to have some solid evidence, but winning a conviction is far from a given, experts say.`\
 https://nytimes.com/2024/09/29/nyregion/adams-indictment-fbi-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/nyregion/east-village-radio.html
 **Two teen centre-backs and a need to rest squad showed Barcelona's limits against Osasuna**\
 `Barca's 4-2 defeat to Osasuna ruined their start to the season. But coach Hansi Flick said he had to rotate his team - and weaknesses showed`\
 https://nytimes.com/athletic/5793299/2024/09/29/barcelona-osasuna-la-liga-flick-yamal/
-
-**Is 'amazing' Palmer the best attacking player in the Premier League?**\
-`Four goals in the first half against Brighton, records stacking up. Cole Palmer is making a case to be considered the best in the top flight`\
-https://nytimes.com/athletic/5801912/2024/09/29/cole-palmer-chelsea-best-player-premier-league/
 
