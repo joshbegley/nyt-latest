@@ -1,3 +1,7 @@
+**Live Q&A: Week 4 fantasy football start/sit chat with Jay Felicio, Sunday 9/29 at 11 a.m. ET**\
+`Submit your Week 4 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5799176/2024/09/29/live-qa-week-4-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-29-at-11-a-m-et/
+
 **Spiraling Diamondbacks enter final day in need of help to avoid collapse**\
 `"This game can be awesome," manager Torey Luvullo said, "and it can just rip your heart out.”`\
 https://nytimes.com/athletic/5802789/2024/09/29/diamondbacks-collapse-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802442/2024/09/29/fifa-club-world-cup-questions/
 **Hezbollah has yet to talk about Nasrallah’s funeral, or his successor.**\
 `By Ben Hubbard`\
 https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/hezbollah-nasrallah-funeral
-
-**Inside the Sally Rooney Fan Base**\
-`We explore some of the most passionate fans in literature.`\
-https://nytimes.com/2024/09/29/briefing/sally-rooney-fans-intermezzo.html
 
