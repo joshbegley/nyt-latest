@@ -1,3 +1,7 @@
+**A Capsule of the Past, a Vessel for the Future**\
+`In 1999, The Times Magazine commissioned a time capsule to be opened at the next millennium. It has been hidden from public view since 2018.`\
+https://nytimes.com/2024/09/29/insider/a-capsule-of-the-past-a-vessel-for-the-future.html
+
 **Top Adams Aides Get Married as Investigation Swirls Around Them**\
 `Eric Adams’s schools chancellor and first deputy mayor married in Martha’s Vineyard this weekend. Both have had their phones seized by federal investigators.`\
 https://nytimes.com/2024/09/29/nyregion/adams-david-banks-sheena-wright-marriage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802486/2024/09/29/oilers-roster-calvin-pickard/
 **Multiple People Dead in Plane Crash Near Wright Brothers Memorial**\
 `A single-engine plane was trying to land when it crashed into a wooded area near the memorial in North Carolina on Saturday, the National Park Service said.`\
 https://nytimes.com/2024/09/29/us/plane-crash-wright-brothers-memorial.html
-
-**Live Q&A: Week 4 fantasy football start/sit chat with Jay Felicio, Sunday 9/29 at 11 a.m. ET**\
-`Submit your Week 4 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5799176/2024/09/29/live-qa-week-4-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-29-at-11-a-m-et/
 
