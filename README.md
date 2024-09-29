@@ -1,3 +1,35 @@
+**In Adams Indictment, Legal Experts See Strengths, Potential Pitfalls**\
+`Prosecutors pursuing corruption charges against Mayor Eric Adams appear to have some solid evidence, but winning a conviction is far from a given, experts say.`\
+https://nytimes.com/2024/09/29/nyregion/adams-indictment-fbi-nyc.html
+
+**A Grieving Mother. A Famous Uncle. An Unlikely Crusade.**\
+`Tragedy turned Nadia Milleron, Ralph Nader’s niece, into an activist. Now she’s on a long-shot campaign for Congress.`\
+https://nytimes.com/2024/09/29/business/nadia-milleron-boeing-congress.html
+
+**The Connections Companion No. 477**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 30, 2024.`\
+https://nytimes.com/2024/09/29/crosswords/connections-companion-477.html
+
+**Meet the Star of Sushi-Con: A 400-Pound Tuna**\
+`At an all-you-can-eat Japanese food expo in Manhattan, thousands lined up to witness the ceremonial carving of an enormous bluefin tuna — and try a sample.`\
+https://nytimes.com/2024/09/29/nyregion/tuna-fish-market-dock.html
+
+**‘I Was at a Business Lunch at a Well-Regarded Restaurant’**\
+`A question before ordering, a children’s oasis in Bay Ridge and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/09/29/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/29/crosswords/spelling-bee-forum.html
+
+**Students Paid Thousands for a Caltech Boot Camp. Caltech Didn’t Teach It.**\
+`Hundreds of universities have lent their names to online programs, plugging budgets but alienating students who feel misled.`\
+https://nytimes.com/2024/09/29/us/caltech-simplilearn-class-students.html
+
+**A Scrappy Downtown Radio Station Returns From the Dead, Again**\
+`Frank Prisinzano and Jorge Parreira have resurrected East Village Radio, an underground institution, after shuttering it roughly a decade ago.`\
+https://nytimes.com/2024/09/29/nyregion/east-village-radio.html
+
 **Two teen centre-backs and a need to rest squad showed Barcelona's limits against Osasuna**\
 `Barca's 4-2 defeat to Osasuna ruined their start to the season. But coach Hansi Flick said he had to rotate his team - and weaknesses showed`\
 https://nytimes.com/athletic/5793299/2024/09/29/barcelona-osasuna-la-liga-flick-yamal/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/5793299/2024/09/29/barcelona-osasuna-la-liga-flick-
 **Is 'amazing' Palmer the best attacking player in the Premier League?**\
 `Four goals in the first half against Brighton, records stacking up. Cole Palmer is making a case to be considered the best in the top flight`\
 https://nytimes.com/athletic/5801912/2024/09/29/cole-palmer-chelsea-best-player-premier-league/
-
-**Padres postseason roster projection: Who makes the wild-card rotation?**\
-`Here is one attempt at projecting a 26-man roster for the wild-card series against ... someone.`\
-https://nytimes.com/athletic/5802430/2024/09/29/padres-postseason-roster-projection/
-
-**Young Canadiens' resiliency will be tested by Patrik Laine injury, potential absence**\
-`So much of the Canadiens' optimism this season was based on Laine's ability to be a game-changer. Now he might be gone.`\
-https://nytimes.com/athletic/5802409/2024/09/29/patrik-laine-injury-potential-loss-tests-young-canadiens/
-
-**Here are the latest developments.**\
-`By Euan Ward, Aaron Boxerman and Ephrat Livni`\
-https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/here-are-the-latest-developments
-
-**Live Updates: Dozens Killed in Lebanon as Israel Resumes Airstrikes**\
-`Israeli warplanes on Saturday battered areas near Beirut, Lebanon’s capital, a day after a bombardment killed Hassan Nasrallah, the leader of Hezbollah.`\
-https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah
-
-**Injury-riddled and written off, Braves now stand on verge of postseason berth**\
-`Travis d'Arnaud's walk-off home run leaves the Braves with a chance to clinch a playoff spot despite a tumultuous season.`\
-https://nytimes.com/athletic/5802408/2024/09/29/mets-wild-card-playoff-scenario/
-
-**Jaguars at Texans odds, expert picks, how to watch: Texans favored to keep Jags winless**\
-`The Texans are nearly a touchdown-favorite against the winless Jaguars. Will Trevor Lawrence get things going?`\
-https://nytimes.com/athletic/5800114/2024/09/29/jaguars-texans-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Why I Write My Own Obituary Every Year**\
-`It’s not as maudlin as it might seem. If you take a few minutes to try it, you might find the same.`\
-https://nytimes.com/2024/09/29/opinion/write-your-own-obituary.html
-
-**Bengals at Panthers odds, picks, how to watch: Andy Dalton faces former team**\
-`Andy Dalton starts his second game of the season against his former team, a Bengals squad desperate not to go 0-4.`\
-https://nytimes.com/athletic/5799957/2024/09/29/bengals-panthers-odds-expert-picks-how-to-watch-predictions-betting/
 
