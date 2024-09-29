@@ -1,3 +1,7 @@
+**Kyle Hendricks gets the goodbye at home he worked hard to earn, exiting on a high note**\
+`In a 3-0 win Saturday over the Reds at Wrigley, he did his best to make sure he earned every bit of the multiple ovations he got.`\
+https://nytimes.com/athletic/5801920/2024/09/28/cubs-kyle-hendricks-exits-high-note/
+
 **Presidents Cup Sunday singles pairings, tee times announced: U.S. has big lead**\
 `The U.S. is up 11-7 after winning both sessions on Saturday, breaking what had been a 5-5 tie.`\
 https://nytimes.com/athletic/5802040/2024/09/28/presidents-cup-sunday-singles-pairings-tee-times-us/

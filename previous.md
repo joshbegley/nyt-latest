@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5801962/2024/09/28/penguins-red-wings-game-postpone
 https://nytimes.com/2024/09/28/us/politics/trump-attacks-harris-border.html
 
 **Kyle Hendricks gets the goodbye at home he worked hard to earn, exiting on a high note**\
-`In a 3-0 win Saturday over the Reds at Wrigley, he did his best to make sure he earned every bit of the multiple ovations he got on the day.`\
+`In a 3-0 win Saturday over the Reds at Wrigley, he did his best to make sure he earned every bit of the multiple ovations he got.`\
 https://nytimes.com/athletic/5801920/2024/09/28/cubs-kyle-hendricks-exits-high-note/
 
 **Travis Hunter strikes a Heisman pose in Colorado’s blowout win at UCF**\
