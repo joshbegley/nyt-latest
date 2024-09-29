@@ -1,3 +1,7 @@
+**Strong Flooding and Landslides Kill at Least 170 People in Nepal**\
+`The mountainous country is experiencing more extreme weather driven by climate change, including melting glaciers that add to the frequency and severity of flooding.`\
+https://nytimes.com/2024/09/29/world/asia/flooding-landslides-nepal.html
+
 **Stewart Mandel's 12-team Playoff projections after Week 5**\
 `After its win over Georgia, Alabama slides into the SEC champion's slot, while Clemson is now in as an at-large team.`\
 https://nytimes.com/athletic/5803069/2024/09/29/college-football-playoff-bracket-projections-week-5/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/dining/sticky-guava-ribs-for-any-season.html
 **Updated MLB playoff scenarios for Braves, Mets, Diamondbacks and other AL, NL teams**\
 `None of the four Wild Card Series matchups is set. Ahead of the final Sunday of the regular season, here’s a look at every possibility.`\
 https://nytimes.com/athletic/5802891/2024/09/29/mlb-playoff-scenarios-braves-mets-diamondbacks/
-
-**How a Calvin Pickard injury could impact Oilers' season-opening roster**\
-`Pickard left Saturday's game against the Kraken midway through the first period after a collision in the crease.`\
-https://nytimes.com/athletic/5802486/2024/09/29/oilers-roster-calvin-pickard/
 

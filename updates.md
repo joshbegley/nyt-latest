@@ -1,3 +1,7 @@
+**Strong Flooding and Landslides Kill at Least 170 People in Nepal**\
+`The mountainous country is experiencing more extreme weather driven by climate change, including melting glaciers that add to the frequency and severity of flooding.`\
+https://nytimes.com/2024/09/29/world/asia/flooding-landslides-nepal.html
+
 **Stewart Mandel's 12-team Playoff projections after Week 5**\
 `After its win over Georgia, Alabama slides into the SEC champion's slot, while Clemson is now in as an at-large team.`\
 https://nytimes.com/athletic/5803069/2024/09/29/college-football-playoff-bracket-projections-week-5/
