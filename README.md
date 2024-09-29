@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5803731/2024/09/29/nl-wild-card-race-diamondbacks-m
 https://nytimes.com/athletic/5803359/2024/09/29/ap-top-25-poll-alabama-georgia/
 
 **Israel Strikes Multiple Fronts, Including Long-Distance Attack on Yemen**\
-`The escalation of violence between Israel and its Iran-backed proxies across the Middle East threatened to bring the combatants closer to a regional war.`\
+`The escalation of violence between Israel and its Iran-backed proxies across the Middle East threatened to bring the combatants closer to an all-out regional war.`\
 https://nytimes.com/2024/09/29/world/middleeast/israel-lebanon-yemen-gaza.html
 
