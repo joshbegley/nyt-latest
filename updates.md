@@ -1,3 +1,7 @@
+**Padres’ Ha-Seong Kim to undergo season-ending shoulder surgery**\
+`The procedure will officially end his season and, with Kim on the verge of free agency, perhaps his career in San Diego.`\
+https://nytimes.com/athletic/5802048/2024/09/28/padres-ha-seong-kim-season-ending-shoulder-surgery/
+
 **Kyle Hendricks gets the goodbye at home he worked hard to earn, exiting on a high note**\
 `In a 3-0 win Saturday over the Reds at Wrigley, he did his best to make sure he earned every bit of the multiple ovations he got.`\
 https://nytimes.com/athletic/5801920/2024/09/28/cubs-kyle-hendricks-exits-high-note/
