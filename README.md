@@ -1,3 +1,7 @@
+**Hezbollah has yet to talk about Nasrallah’s funeral, or his successor.**\
+`By Ben Hubbard`\
+https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/hezbollah-nasrallah-funeral
+
 **Inside the Sally Rooney Fan Base**\
 `We explore one of the most passionate fans in literature.`\
 https://nytimes.com/2024/09/29/briefing/sally-rooney-fans-intermezzo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799671/2024/09/29/bills-ravens-odds-expert-picks-h
 **How uneasy should Michigan feel at 4-1? Final thoughts after Minnesota**\
 `It’s hard to imagine Michigan will be able to live on the edge like this without falling off at some point.`\
 https://nytimes.com/athletic/5802213/2024/09/29/michigan-minnesota-football-alex-orji-washington/
-
-**Temple: Against USC, Wisconsin showed it's still stuck on bad habits**\
-`In a 38-21 loss to USC, the Badgers went from looking like they were ready to turn a corner to one that couldn’t fight their way out.`\
-https://nytimes.com/athletic/5802262/2024/09/29/wisconsin-usc-luke-fickell-loss-college-football/
 
