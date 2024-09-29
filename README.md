@@ -1,3 +1,7 @@
+**How should Georgia feel about that Alabama loss? Conflicted**\
+`The long-term meaning of the latest agonizing loss to Alabama for this Georgia team: To be determined.`\
+https://nytimes.com/athletic/5802483/2024/09/29/georgia-alabama-losses-kirby-smart/
+
 **Patriots at 49ers odds, expert picks, how to watch: Desperate 49ers are big favorites**\
 `The 49ers are going to be without a number of key players, but are still a heavy favorite against the Patriots.`\
 https://nytimes.com/athletic/5800064/2024/09/29/patriots-49ers-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/movies/aubrey-plaza-megalopolis-my-old-ass-agatha
 **The Border in the Campaign and in Real Life**\
 `What do some people who live on the border make of the shifting politics in the battle over their backyard? Astead W.`\
 https://nytimes.com/video/us/elections/100000009722491/the-border-in-the-campaign-and-in-real-life.html
-
-**A ‘Perfect’ Take on Nantucket Style?**\
-`Scrutinizing the costumes in Netflix’s “The Perfect Couple.”`\
-https://nytimes.com/2024/09/29/style/perfect-couple-netflix-costume-design.html
 
