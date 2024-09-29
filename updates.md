@@ -1,3 +1,7 @@
+**Ohio State, Jeremiah Smith pass first Big Ten test against Michigan State**\
+`No. 3 Ohio State beat Michigan State 38-7 despite some early inconsistencies from quarterback Will Howard. `\
+https://nytimes.com/athletic/5802289/2024/09/28/ohio-state-michigan-state-score-analysis/
+
 **2024 Presidents Cup analysis: What to know going into Sunday singles at Royal Montreal**\
 `The Americans hold a 4-point lead on the Internationals after a dramatic Saturday.`\
 https://nytimes.com/athletic/5802166/2024/09/28/presidents-cup-analysis-2024-royal-montreal-sunday/
