@@ -1,3 +1,11 @@
+**Top Adams Aides Get Married as Investigation Swirls Around Them**\
+`Eric Adams’s schools chancellor and first deputy mayor married in Martha’s Vineyard this weekend. Both have had their phones seized by federal investigators.`\
+https://nytimes.com/2024/09/29/nyregion/adams-david-banks-sheena-wright-marriage.html
+
+**Until Saturday: Ryan Williams steals show in Tuscaloosa**\
+`Welcome to Until Saturday, the five-star college football newsletter: Williams put on a show in Alabama's thrilling win over Georgia.`\
+https://nytimes.com/athletic/5802808/2024/09/29/ryan-williams-alabama-georgia-until-saturday/
+
 **Chelsea vs Man Utd in WSL postponed at a week's notice due to Champions League clash**\
 `Chelsea’s Women’s Super League game against Manchester United has been postponed at a week’s notice due to the scheduling of their opening Champions League match.`\
 https://nytimes.com/athletic/5803003/2024/09/29/chelsea-man-utd-wsl-champions-league/
