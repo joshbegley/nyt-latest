@@ -1,3 +1,7 @@
+**Penn State overpowers Illinois, stays unbeaten in battle of ranked teams: Takeaways**\
+`Nick Singleton (16 rushes, 94 yards) and Kaytron Allen (18 rushes, 104 yards) each had TDs as the Nittany Lions dominated on the ground.`\
+https://nytimes.com/athletic/5802285/2024/09/28/penn-state-illinois-big-ten-unbeaten/
+
 **Morales: USC might not be perfect, but the Trojans' toughness is a welcome change**\
 `The 2024 Trojans have dealt with plenty of adversity. And for the first time in a while, they have the personality to return some punches.`\
 https://nytimes.com/athletic/5802225/2024/09/28/usc-trojans-wisconsin-combeback/
