@@ -1,3 +1,11 @@
+**California Governor Vetoes Sweeping A.I. Legislation**\
+`The bill would have been the first in the nation to place strict guardrails on the new technology, but Gov. Gavin Newsom said the bill was flawed.`\
+https://nytimes.com/2024/09/29/technology/california-ai-bill.html
+
+**Flacco leads Colts to 27-24 win over Steelers after Richardson exits**\
+`Indianapolis lost starting quarterback Anthony Richardson to a right hip injury in the first quarter.`\
+https://nytimes.com/athletic/5802977/2024/09/29/steelers-colts-takeaways-result/
+
 **Netanyahu Opponent, in Reversal, Is Joining Israeli Government**\
 `The addition of Gideon Saar to Benjamin Netanyahu’s coalition strengthens the prime minister’s political position.`\
 https://nytimes.com/2024/09/29/world/middleeast/gideon-saar-netanyahu-israeli-cabinet.html
