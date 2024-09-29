@@ -1,3 +1,7 @@
+**I Grew Up Much Like JD Vance. How Did We End Up So Different?**\
+`The vice-presidential nominee should be thinking of how to extend a ladder to those he left behind, not how to pull it up behind him.`\
+https://nytimes.com/2024/09/29/opinion/jd-vance-ohio-addiction-upbringing.html
+
 **What's changed for Nebraska? Matt Rhule and Dylan Raiola driving Huskers in right direction**\
 `This Saturday's showing by Nebraska at Purdue illustrated the growing effectiveness of the Rhule-Raiola resilience and leadership.`\
 https://nytimes.com/athletic/5802722/2024/09/29/nebraska-purdue-matt-rhule-dylan-raiola/
