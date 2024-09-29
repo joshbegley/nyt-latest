@@ -1,3 +1,11 @@
+**A protest mourning Nasrallah near a U.S. Consulate in Pakistan turns violent.**\
+`By Zia ur-Rehman`\
+https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/a-protest-mourning-nasrallah-near-a-us-consulate-in-pakistan-turns-violent
+
+**Nepal Flooding and Landslides Kill at Least 170 People**\
+`The mountainous country is experiencing more extreme weather driven by climate change, including melting glaciers that add to the frequency and severity of flooding.`\
+https://nytimes.com/2024/09/29/world/asia/flooding-landslides-nepal.html
+
 **Strong Flooding and Landslides Kill at Least 170 People in Nepal**\
 `The mountainous country is experiencing more extreme weather driven by climate change, including melting glaciers that add to the frequency and severity of flooding.`\
 https://nytimes.com/2024/09/29/world/asia/flooding-landslides-nepal.html
