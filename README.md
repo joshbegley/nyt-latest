@@ -1,3 +1,7 @@
+**How did Manchester City cope without 'irreplaceable' Rodri?**\
+`Manchester City drew 1-1 with Newcastle, in their first game without the injured Rodri. How much of a difference did it make?`\
+https://nytimes.com/athletic/5801230/2024/09/29/how-did-manchester-city-cope-without-irreplaceable-rodri/
+
 **Revitalised Gordon sparks Newcastle - but Howe must maintain momentum**\
 `Anthony Gordon played No 9 for Newcastle and helped earn a draw against Manchester City - but are the forward and team back to their best?`\
 https://nytimes.com/athletic/5800968/2024/09/29/newcastle-gordon-penalty-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799625/2024/09/29/steelers-colts-odds-expert-picks
 **'We couldn't leave the hotel' - How Indonesia turns unknown footballers into adored superstars**\
 `How playing for Indonesia's national team makes footballers famous - even more so than USMNT players`\
 https://nytimes.com/athletic/5790813/2024/09/29/indonesia-soccer-players/
-
-**Mets limping to finish line but can still clinch: 'We gotta get it done'**\
-`Some of the Mets' best hitters are scuffling at the plate and now their postseason hinges on snapping out of it.`\
-https://nytimes.com/athletic/5802332/2024/09/29/mets-wild-card-scenarios/
 
