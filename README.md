@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5802999/2024/09/29/raiders-browns-takeaways-result/
 https://nytimes.com/2024/09/29/us/politics/trump-harris-fentanyl.html
 
 **Chiefs pummel Justin Herbert but lose Rashee Rice in 17-10 win: Key takeaways**\
-`Kansas City finds another way to win a one-score game, marking their fourth 4-0 start in Mahomes' seven years as starter. `\
+`Kansas City finds another way to win a one-score game, marking its fourth 4-0 start in Mahomes' seven years as starter. `\
 https://nytimes.com/athletic/5803998/2024/09/29/chiefs-chargers-takeaways-result-score/
 
 **Jayden Daniels leads Commanders to 42-14 win over Cardinals: Takeaways**\
