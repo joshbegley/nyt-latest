@@ -1,3 +1,7 @@
+**Multiple People Dead in Plane Crash Near Wright Brothers Memorial**\
+`A single-engine plane was trying to land when it crashed into a wooded area near the memorial in North Carolina on Saturday, the National Park Service said.`\
+https://nytimes.com/2024/09/29/us/plane-crash-wright-brothers-memorial.html
+
 **Lie-Flat Seats and Chilled Champagne: Testing Eric Adams’s Upgrade Life**\
 `The New York mayor is accused of accepting free luxury travel in exchange for political favors. How large was he living? A writer puts the experience to the test.`\
 https://nytimes.com/2024/09/29/travel/adams-turkey-upgrades.html
