@@ -1,3 +1,7 @@
+**Kris Kristofferson, Country Singer, Songwriter and Actor, Dies at 88**\
+`He wrote songs for hundreds of other artists, including “Me and Bobby McGee” for Janis Joplin and “Sunday Morning Coming Down” for Johnny Cash, before a second act in film.`\
+https://nytimes.com/2024/09/29/obituaries/kris-kristofferson-country-singer-songwriter-and-actor-dies-at-88.html
+
 **Helene Has Claimed Lives of Over 90 People. Here Are Some of Their Stories.**\
 `Days after the Category 4 hurricane made landfall in Florida’s gulf coast, some victims’ portraits were coming into focus.`\
 https://nytimes.com/2024/09/29/us/hurricane-helene-victims.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5803756/2024/09/29/liberty-aces-wnba-semifinals-gam
 **NFL Week 4 takeaways: Colts better off with Flacco? Pederson out of time in Jacksonville?**\
 `Plus, who is the best team in the NFC South?`\
 https://nytimes.com/athletic/5803109/2024/09/29/nfl-week-4-takeaways-colts-flacco-jaguars-doug-pederson-coach/
-
-**Bears get running game going in 24-18 win over Rams: Takeaways**\
-`Bears rookie quarterback Caleb Williams tossed his first touchdown pass at home, connecting with DJ Moore in the third quarter.`\
-https://nytimes.com/athletic/5802961/2024/09/29/bears-rams-takeaways-result/
 
