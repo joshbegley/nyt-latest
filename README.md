@@ -1,3 +1,7 @@
+**Padres’ Ha-Seong Kim to undergo season-ending shoulder surgery**\
+`The procedure will officially end his season and, with Kim on the verge of free agency, perhaps his career in San Diego.`\
+https://nytimes.com/athletic/5802048/2024/09/28/padres-ha-seong-kim-season-ending-shoulder-surgery/
+
 **Presidents Cup Sunday singles pairings, tee times announced: U.S. has big lead**\
 `The U.S. is up 11-7 after winning both sessions on Saturday, breaking what had been a 5-5 tie.`\
 https://nytimes.com/athletic/5802040/2024/09/28/presidents-cup-sunday-singles-pairings-tee-times-us/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801471/2024/09/28/arch-manning-starting-texas-miss
 **Newsom Vetoes Bill Requiring Cars to Warn Speeding Drivers**\
 `The legislation would have made California the first state in the nation to require intelligent speed assistance technology in vehicles.`\
 https://nytimes.com/2024/09/28/business/california-speeding-car-alert.html
-
-**Avery Johnson responds after rough week, giving K-State renewed hope in Big 12 race**\
-`If the QB can build off of what he did against Oklahoma State, Kansas State has the chance to live up to its lofty expectations after all.`\
-https://nytimes.com/athletic/5801877/2024/09/28/avery-johnson-kansas-state-oklahoma-state-big-12/
 
