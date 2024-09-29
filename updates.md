@@ -1,3 +1,7 @@
+**Helene Has Claimed Lives of Over 90 People. Here Are Some of Their Stories.**\
+`Days after the Category 4 hurricane made landfall in Florida’s gulf coast, some victims’ portraits were coming into focus.`\
+https://nytimes.com/2024/09/29/us/hurricane-helene-victims.html
+
 **Mets-Braves doubleheader to settle wild card**\
 `All three teams are tied, with the Diamondbacks losing the tiebreaker. The Mets and Braves doubleheader will decide who's in and who's out.`\
 https://nytimes.com/athletic/5803731/2024/09/29/nl-wild-card-race-diamondbacks-mets-braves/
