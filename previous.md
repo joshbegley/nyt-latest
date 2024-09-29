@@ -1,5 +1,9 @@
+**NFL Week 4 takeaways: Colts better off with Flacco? Pederson out of time in Jacksonville?**\
+`Plus, who is the best team in the NFC South?`\
+https://nytimes.com/athletic/5803109/2024/09/29/nfl-week-4-takeaways-colts-flacco-jaguars-doug-pederson-coach/
+
 **Bears get running game going in 24-18 win over Rams: Takeaways**\
-`Bears rookie quarterback Caleb Williams tossed his first touchdown pass at home, connecting with DJ Moore in the third.`\
+`Bears rookie quarterback Caleb Williams tossed his first touchdown pass at home, connecting with DJ Moore in the third quarter.`\
 https://nytimes.com/athletic/5802961/2024/09/29/bears-rams-takeaways-result/
 
 **Huge Plume From Chemical Plant in Georgia Prompts Evacuations**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802954/2024/09/29/bengals-panthers-takeaways-resul
 **Madrid derby suspended after objects thrown onto pitch by Atletico fans**\
 `Sunday’s Madrid derby had to be paused after objects were thrown onto the pitch by Atletico Madrid fans at their Civitas Metropolitano stadium.`\
 https://nytimes.com/athletic/5803601/2024/09/29/madrid-derby-objects-atletico-metropolitano/
-
-**Falcons beat Saints on game-winning FG from Younghoe Koo**\
-`Falcons kicker Younghoe Koo capped off a game-winning drive with a career-high 58-yard field goal.`\
-https://nytimes.com/athletic/5802951/2024/09/29/saints-falcons-takeaways-result/
 
