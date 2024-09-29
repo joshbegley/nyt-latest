@@ -1,4 +1,4 @@
-**Strong Flooding and Landslides Kill at Least 170 People in Nepal**\
+**Nepal Flooding and Landslides Kill at Least 170 People**\
 `The mountainous country is experiencing more extreme weather driven by climate change, including melting glaciers that add to the frequency and severity of flooding.`\
 https://nytimes.com/2024/09/29/world/asia/flooding-landslides-nepal.html
 
