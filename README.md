@@ -1,3 +1,7 @@
+**Patriots at 49ers odds, expert picks, how to watch: Desperate 49ers are big favorites**\
+`The 49ers are going to be without a number of key players, but are still a heavy favorite against the Patriots.`\
+https://nytimes.com/athletic/5800064/2024/09/29/patriots-49ers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Middle Eastern War Defies a Fragmented Global Order**\
 `Decentralized authority around the world has made it harder for leading superpowers to bring about peace in the Mideast.`\
 https://nytimes.com/2024/09/29/world/middleeast/middle-east-war-peace-nasrallah.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009722491/the-border-in-the-campaig
 **A ‘Perfect’ Take on Nantucket Style?**\
 `Scrutinizing the costumes in Netflix’s “The Perfect Couple.”`\
 https://nytimes.com/2024/09/29/style/perfect-couple-netflix-costume-design.html
-
-**Donald Trump and His Real-Life Apprentice**\
-`The former president views JD Vance as a kindred political spirit, while Mr. Vance has spoken of Mr. Trump as a kind of father figure.`\
-https://nytimes.com/2024/09/29/us/politics/trump-vance-relationship.html
 
