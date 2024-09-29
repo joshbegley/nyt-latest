@@ -1,7 +1,3 @@
-**Texans come back to beat winless Jaguars 24-20: Key Takeaways**\
-`The Texans avoid a second straight defeat, and it keeps Houston on top of the AFC South`\
-https://nytimes.com/athletic/5802971/2024/09/29/jaguars-texans-takeaways-result/
-
 **Chiefs' Rashee Rice carted off with knee injury vs. Chargers**\
 `Rice sustained the injury on the Chiefs’ second possession while trying to force a fumble after a Patrick Mahomes interception.`\
 https://nytimes.com/athletic/5803636/2024/09/29/chiefs-rashee-rice-knee-injury/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5802977/2024/09/29/steelers-colts-takeaways-result/
 **Netanyahu Opponent, in Reversal, Is Joining Israeli Government**\
 `The addition of Gideon Saar to Benjamin Netanyahu’s coalition strengthens the prime minister’s political position.`\
 https://nytimes.com/2024/09/29/world/middleeast/gideon-saar-netanyahu-israeli-cabinet.html
+
+**Baker Mayfield cooks as Bucs topple Eagles 33-16: Takeaways**\
+`Fourteen completions and three total TDs is a solid day for a quarterback. Baker Mayfield had those numbers early in the second quarter.`\
+https://nytimes.com/athletic/5802984/2024/09/29/eagles-buccaneers-takeaways-result/
 
