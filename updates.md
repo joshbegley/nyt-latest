@@ -1,3 +1,7 @@
+**Ten Hag says Man Utd 'need more time' after Spurs defeat**\
+`Manchester United manager Erik ten Hag says his team still needs more time to come together following Sunday’s 3-0 home defeat by Tottenham Hotspur.`\
+https://nytimes.com/athletic/5803298/2024/09/29/erik-ten-hag-man-utd-spurs/
+
 **Vikings dominate Packers in first half**\
 `Vikings quarterback Sam Darnold went 11 of 15 for 136 yards and threw three touchdown passes.`\
 https://nytimes.com/athletic/5802967/2024/09/29/vikings-packers-takeaways-result/
