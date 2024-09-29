@@ -23,12 +23,8 @@ https://nytimes.com/athletic/5802722/2024/09/29/nebraska-purdue-matt-rhule-dylan
 https://nytimes.com/2024/09/29/travel/adams-turkey-upgrades.html
 
 **Here’s the latest on the presidential race.**\
-`By Tim Balk`\
+`By Tim Balk and Simon J. Levien`\
 https://nytimes.com/live/2024/09/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Trump and Harris Hit Battlegrounds, as Running Mates Prep for Debate**\
-`Donald J. Trump will hold a rally in Pennsylvania as Kamala Harris holds another in Nevada. The vice-presidential candidates are off the trail preparing for Tuesday’s debate.`\
-https://nytimes.com/live/2024/09/29/us/harris-trump-election
 
 **The Club World Cup Cup has venues at last - but so many questions still remain**\
 `Controversial tournament still lacks broadcast and sponsorship partners, while concerns over player workload still linger`\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5802442/2024/09/29/fifa-club-world-cup-questions/
 **Hezbollah has yet to talk about Nasrallah’s funeral, or his successor.**\
 `By Ben Hubbard`\
 https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/hezbollah-nasrallah-funeral
+
+**Inside the Sally Rooney Fan Base**\
+`We explore some of the most passionate fans in literature.`\
+https://nytimes.com/2024/09/29/briefing/sally-rooney-fans-intermezzo.html
 
