@@ -1,3 +1,15 @@
+**Jayden Daniels leads Commanders to 42-14 win over Cardinals: Takeaways**\
+`Daniels, who leads the NFL in completion percentage, completed 26-of-30 passes for 233 yards, one TD and one INT.`\
+https://nytimes.com/athletic/5802989/2024/09/29/commanders-cardinals-takeaways-result/
+
+**At last, progress for the Bears offense as the run game gets going against Rams**\
+`D'Andre Swift, Roschon Johnson were a solid 1-2 punch for the Bears on Sunday, helping them improve to 2-2.`\
+https://nytimes.com/athletic/5803989/2024/09/29/bears-dandre-swift-running-game-rams/
+
+**Kris Kristofferson, Country Singer, Songwriter and Actor, Dies at 88**\
+`He wrote songs for hundreds of other artists, including “Me and Bobby McGee” for Janis Joplin and “Sunday Morning Coming Down” for Johnny Cash, before a second act in film.`\
+https://nytimes.com/2024/09/29/obituaries/kris-kristofferson-dead.html
+
 **'I'm about to sack Aaron Rodgers': Road trip was clinic for Broncos' harassing defense**\
 `The Broncos recorded 12 sacks in a pair of victories during their successful 2-game road trip and harassed Aaron Rodgers constantly Sunday.`\
 https://nytimes.com/athletic/5803746/2024/09/29/broncos-win-jets-defense-bo-nix/

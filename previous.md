@@ -1,3 +1,11 @@
+**Jayden Daniels leads Commanders to 42-14 win over Cardinals: Takeaways**\
+`Daniels, who leads the NFL in completion percentage, completed 26-of-30 passes for 233 yards, one TD and one INT.`\
+https://nytimes.com/athletic/5802989/2024/09/29/commanders-cardinals-takeaways-result/
+
+**At last, progress for the Bears offense as the run game gets going against Rams**\
+`D'Andre Swift, Roschon Johnson were a solid 1-2 punch for the Bears on Sunday, helping them improve to 2-2.`\
+https://nytimes.com/athletic/5803989/2024/09/29/bears-dandre-swift-running-game-rams/
+
 **What to know from the United States' Presidents Cup win**\
 `The Americans' top five players all week were a combined 24-under-par on Sunday, leading matches for 53 holes and trailing for just five.`\
 https://nytimes.com/athletic/5804089/2024/09/29/presidents-cup-analysis-united-states-2024/
@@ -12,7 +20,7 @@ https://nytimes.com/athletic/5803746/2024/09/29/broncos-win-jets-defense-bo-nix/
 
 **Kris Kristofferson, Country Singer, Songwriter and Actor, Dies at 88**\
 `He wrote songs for hundreds of other artists, including “Me and Bobby McGee” for Janis Joplin and “Sunday Morning Coming Down” for Johnny Cash, before a second act in film.`\
-https://nytimes.com/2024/09/29/obituaries/kris-kristofferson-country-singer-songwriter-and-actor-dies-at-88.html
+https://nytimes.com/2024/09/29/obituaries/kris-kristofferson-dead.html
 
 **Helene Has Claimed Lives of Over 90 People. Here Are Some of Their Stories.**\
 `Days after the Category 4 hurricane made landfall in Florida’s gulf coast, some victims’ portraits were coming into focus.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5803359/2024/09/29/ap-top-25-poll-alabama-georgia/
 **Israel Strikes Multiple Fronts, Including Long-Distance Attack on Yemen**\
 `The escalation of violence between Israel and its Iran-backed proxies across the Middle East threatened to bring the combatants closer to a regional war.`\
 https://nytimes.com/2024/09/29/world/middleeast/israel-lebanon-yemen-gaza.html
-
-**Far Right Wins Austrian Vote but May Fall Short of Forming a Government**\
-`The Freedom Party got nearly 30 percent of the national vote, but mainstream parties have vowed to join in a coalition government without the party’s pugilistic leader, Herbert Kickl.`\
-https://nytimes.com/2024/09/29/world/europe/far-right-austria-election.html
-
-**How JD Vance turns taking questions from the media into political theater.**\
-`By Jess Bidgood`\
-https://nytimes.com/live/2024/09/29/us/harris-trump-election/how-jd-vance-turns-taking-questions-from-the-media-into-political-theater
 
