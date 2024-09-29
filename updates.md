@@ -1,3 +1,7 @@
+**Rams at Bears odds, picks, how to watch: Caleb Williams faces Stafford and McVay**\
+`Sean McVay guided LA to an astounding win last week, but the wounded Rams are slight underdogs in Chicago. `\
+https://nytimes.com/athletic/5799500/2024/09/28/rams-bears-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Justin Verlander notches quality start: Will it be his last appearance for Houston?**\
 `The future Hall of Famer made case for playoff role, but it might be too late: "I feel like I’ve been inching in the right direction.”`\
 https://nytimes.com/athletic/5802313/2024/09/28/astros-justin-verlander-postseason-rotation/
