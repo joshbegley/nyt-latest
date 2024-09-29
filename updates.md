@@ -1,3 +1,7 @@
+**Chelsea vs Man Utd in WSL postponed at a week's notice due to Champions League clash**\
+`Chelsea’s Women’s Super League game against Manchester United has been postponed at a week’s notice due to the scheduling of their opening Champions League match.`\
+https://nytimes.com/athletic/5803003/2024/09/29/chelsea-man-utd-wsl-champions-league/
+
 **Updated MLB playoff scenarios for Braves, Mets, Diamondbacks and other AL, NL teams**\
 `None of the four Wild Card Series matchups is set. Ahead of the final Sunday of the regular season, here’s a look at every possibility.`\
 https://nytimes.com/athletic/5802891/2024/09/29/mlb-playoff-scenarios-braves-mets-diamondbacks/

@@ -1,3 +1,7 @@
+**Chelsea vs Man Utd in WSL postponed at a week's notice due to Champions League clash**\
+`Chelsea’s Women’s Super League game against Manchester United has been postponed at a week’s notice due to the scheduling of their opening Champions League match.`\
+https://nytimes.com/athletic/5803003/2024/09/29/chelsea-man-utd-wsl-champions-league/
+
 **Atletico president says no-one at club is 'anti-racist or racist' ahead of Madrid derby**\
 `Atletico Madrid president Enrique Cerezo has said no-one at the club is “anti-racist or racist”.`\
 https://nytimes.com/athletic/5798831/2024/09/29/atletico-real-madrid-racism-enrique-cerezo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802789/2024/09/29/diamondbacks-collapse-playoffs/
 **California Passes Law Protecting Consumer Brain Data**\
 `The state extended its current personal privacy law to include the neural data increasingly coveted by technology companies.`\
 https://nytimes.com/2024/09/29/science/california-neurorights-tech-law.html
-
-**I Grew Up Much Like JD Vance. How Did We End Up So Different?**\
-`The vice-presidential nominee should be thinking of how to extend a ladder to those he left behind, not how to pull it up behind him.`\
-https://nytimes.com/2024/09/29/opinion/jd-vance-ohio-addiction-upbringing.html
 
