@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5799625/2024/09/29/steelers-colts-odds-expert-picks
 https://nytimes.com/athletic/5790813/2024/09/29/indonesia-soccer-players/
 
 **Mets limping to finish line but can still clinch: 'We gotta get it done'**\
-`Some of the Mets' best hitters are scuffling at the plate and now their postseason hinge on snapping out of it.`\
+`Some of the Mets' best hitters are scuffling at the plate and now their postseason hinges on snapping out of it.`\
 https://nytimes.com/athletic/5802332/2024/09/29/mets-wild-card-scenarios/
 
 **NMSU investigating OC's decade-old, derogatory tweets**\
