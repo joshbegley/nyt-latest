@@ -1,3 +1,7 @@
+**Inside the Sally Rooney Fan Base**\
+`We explore some of the most passionate fans in literature.`\
+https://nytimes.com/2024/09/29/briefing/sally-rooney-fans-intermezzo.html
+
 **Hezbollah has yet to talk about Nasrallah’s funeral, or his successor.**\
 `By Ben Hubbard`\
 https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/hezbollah-nasrallah-funeral
