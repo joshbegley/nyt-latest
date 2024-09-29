@@ -1,3 +1,7 @@
+**Young Canadiens' resiliency will be tested by Patrik Laine injury, potential absence**\
+`So much of the Canadiens' optimism this season was based on Laine's ability to be a game-changer. Now, he might be gone.`\
+https://nytimes.com/athletic/5802409/2024/09/29/patrik-laine-injury-potential-loss-tests-young-canadiens/
+
 **Here are the latest developments.**\
 `By Euan Ward, Aaron Boxerman and Ephrat Livni`\
 https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799724/2024/09/29/eagles-buccaneers-odds-expert-pi
 **How did Manchester City cope without 'irreplaceable' Rodri?**\
 `Manchester City drew 1-1 with Newcastle, in their first game without the injured Rodri. How much of a difference did it make?`\
 https://nytimes.com/athletic/5801230/2024/09/29/how-did-manchester-city-cope-without-irreplaceable-rodri/
-
-**Revitalised Gordon sparks Newcastle - but Howe must maintain momentum**\
-`Anthony Gordon played No 9 for Newcastle and helped earn a draw against Manchester City - but are the forward and team back to their best?`\
-https://nytimes.com/athletic/5800968/2024/09/29/newcastle-gordon-penalty-manchester-city/
 

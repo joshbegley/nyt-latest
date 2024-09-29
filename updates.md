@@ -1,3 +1,7 @@
+**Young Canadiens' resiliency will be tested by Patrik Laine injury, potential absence**\
+`So much of the Canadiens' optimism this season was based on Laine's ability to be a game-changer. Now, he might be gone.`\
+https://nytimes.com/athletic/5802409/2024/09/29/patrik-laine-injury-potential-loss-tests-young-canadiens/
+
 **Here are the latest developments.**\
 `By Euan Ward, Aaron Boxerman and Ephrat Livni`\
 https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/here-are-the-latest-developments
