@@ -1,3 +1,7 @@
+**Morales: USC might not be perfect, but the Trojans' toughness is a welcome change**\
+`The 2024 Trojans have dealt with plenty of adversity. And for the first time in a while, they have the personality to return some punches.`\
+https://nytimes.com/athletic/5802225/2024/09/28/usc-trojans-wisconsin-combeback/
+
 **Ohio State, Jeremiah Smith pass first Big Ten test against Michigan State**\
 `No. 3 Ohio State beat Michigan State 38-7 despite some early inconsistencies from quarterback Will Howard. `\
 https://nytimes.com/athletic/5802289/2024/09/28/ohio-state-michigan-state-score-analysis/
