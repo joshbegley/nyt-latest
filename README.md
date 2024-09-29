@@ -1,3 +1,7 @@
+**What's changed for Nebraska? Matt Rhule and Dylan Raiola driving Huskers in right direction**\
+`This Saturday's showing by Nebraska at Purdue illustrated the growing effectiveness of the Rhule-Raiola resilience and leadership.`\
+https://nytimes.com/athletic/5802722/2024/09/29/nebraska-purdue-matt-rhule-dylan-raiola/
+
 **Lie-flat Seats and Chilled Champagne: Testing Eric Adams’s Upgrade Life**\
 `The New York mayor is accused of accepting free luxury travel in exchange for political favors. How large was he living? A writer puts the experience to the test.`\
 https://nytimes.com/2024/09/29/travel/adams-turkey-upgrades.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5800616/2024/09/29/edmonton-oilers-defence-nurse-pr
 **How Everton kickstarted their Premier League season**\
 `With a takeover moving closer off the pitch, Everton had something to shout about on it, too. Here's how they beat Palace.`\
 https://nytimes.com/athletic/5801695/2024/09/29/everton-palace-result-premier-league-mcneil/
-
-**What we learned about the College Football Playoff in Week 5**\
-`An SEC giant stumbled, top-10 teams tumbled and UNLV put an exclamation point on the end of a weird, wild week.`\
-https://nytimes.com/athletic/5802538/2024/09/29/college-football-playoff-week-5-takeaways/
 

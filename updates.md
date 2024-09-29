@@ -1,3 +1,7 @@
+**Lie-flat Seats and Chilled Champagne: Testing Eric Adams’s Upgrade Life**\
+`The New York mayor is accused of accepting free luxury travel in exchange for political favors. How large was he living? A writer puts the experience to the test.`\
+https://nytimes.com/2024/09/29/travel/adams-turkey-upgrades.html
+
 **Here’s the latest on the presidential race.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/09/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
