@@ -1,3 +1,11 @@
+**Chiefs at Chargers odds, expert picks, how to watch: Can KC stay undefeated?**\
+`The Chiefs take their 3-0 record on the road to take on the 2-1 Chargers in an AFC West divisional matchup.`\
+https://nytimes.com/athletic/5799694/2024/09/29/chiefs-chargers-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Why the World’s Biggest Powers Can’t Stop a Middle East War**\
+`The United States’ ability to influence events in the Mideast has waned, and other major nations have essentially been onlookers.`\
+https://nytimes.com/2024/09/29/world/middleeast/middle-east-war-peace-nasrallah.html
+
 **How should Georgia feel about that Alabama loss? Conflicted**\
 `The long-term meaning of the latest agonizing loss to Alabama for this Georgia team: To be determined.`\
 https://nytimes.com/athletic/5802483/2024/09/29/georgia-alabama-losses-kirby-smart/

@@ -1,3 +1,7 @@
+**Chiefs at Chargers odds, expert picks, how to watch: Can KC stay undefeated?**\
+`The Chiefs take their 3-0 record on the road to take on the 2-1 Chargers in an AFC West divisional matchup.`\
+https://nytimes.com/athletic/5799694/2024/09/29/chiefs-chargers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **How should Georgia feel about that Alabama loss? Conflicted**\
 `The long-term meaning of the latest agonizing loss to Alabama for this Georgia team: To be determined.`\
 https://nytimes.com/athletic/5802483/2024/09/29/georgia-alabama-losses-kirby-smart/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/5802483/2024/09/29/georgia-alabama-losses-kirby-sma
 `The 49ers are going to be without a number of key players, but are still a heavy favorite against the Patriots.`\
 https://nytimes.com/athletic/5800064/2024/09/29/patriots-49ers-odds-expert-picks-how-to-watch-predictions-betting/
 
-**Middle Eastern War Defies a Fragmented Global Order**\
-`Decentralized authority around the world has made it harder for leading superpowers to bring about peace in the Mideast.`\
+**Why the World’s Biggest Powers Can’t Stop a Middle East War**\
+`The United States’ ability to influence events in the Mideast has waned, and other major nations have essentially been onlookers.`\
 https://nytimes.com/2024/09/29/world/middleeast/middle-east-war-peace-nasrallah.html
 
 **The Novelist Who Foresaw the ‘Big One’ for Florida’s Gulf Coast**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/us/politics/election-court-cases.html
 **Have We Gotten Aubrey Plaza Wrong This Whole Time?**\
 `Don’t let her deadpan sense of humor fool you. In projects like Francis Ford Coppola’s “Megalopolis,” she puts everything she has on the line.`\
 https://nytimes.com/2024/09/29/movies/aubrey-plaza-megalopolis-my-old-ass-agatha-all-along.html
-
-**The Border in the Campaign and in Real Life**\
-`What do some people who live on the border make of the shifting politics in the battle over their backyard? Astead W.`\
-https://nytimes.com/video/us/elections/100000009722491/the-border-in-the-campaign-and-in-real-life.html
 
