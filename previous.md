@@ -1,3 +1,11 @@
+**Madrid derby suspended after objects thrown onto pitch by Atletico fans**\
+`Sunday’s Madrid derby had to be paused after objects were thrown onto the pitch by Atletico Madrid fans at their Civitas Metropolitano stadium.`\
+https://nytimes.com/athletic/5803601/2024/09/29/madrid-derby-objects-atletico-metropolitano/
+
+**Falcons beat Saints on game-winning FG from Younghoe Koo**\
+`Falcons kicker Younghoe Koo capped off a game-winning drive with a career-high 58-yard field goal.`\
+https://nytimes.com/athletic/5802951/2024/09/29/saints-falcons-takeaways-result/
+
 **California Governor Vetoes Sweeping A.I. Legislation**\
 `The bill would have been the first in the nation to place strict guardrails on the new technology, but Gov. Gavin Newsom said the bill was flawed.`\
 https://nytimes.com/2024/09/29/technology/california-ai-bill.html
@@ -27,14 +35,6 @@ https://nytimes.com/2024/09/29/arts/television/drake-hogestyn-dead.html
 https://nytimes.com/2024/09/29/opinion/iran-israel-hezbollah-hamas-lebanon-nasrallah.html
 
 **Spurs condemn homophobic chanting from fans during Man Utd game**\
-`Tottenham Hotspur have condemned supporters who sang a homophobic chant during their Premier League game against Manchester United on Sunday.`\
+`Tottenham Hotspur have condemned supporters who sang homophobic chants during their Premier League game against Manchester United on Sunday.`\
 https://nytimes.com/athletic/5803484/2024/09/29/tottenham-homophobic-chant-man-utd/
-
-**Eagles return blocked extra point for 2 points in rare play**\
-`The first instance of the play in NFL history occurred in 2015.`\
-https://nytimes.com/athletic/5803419/2024/09/29/eagles-nfl-blocked-extra-point-return-rule-explained/
-
-**Israel Strikes the Houthis, an Iranian Ally, in Yemen**\
-`The strike on power stations and a seaport, which killed four people, was the second known time that Israel has retaliated against the militant group’s attacks by striking in Yemen.`\
-https://nytimes.com/2024/09/29/world/middleeast/israel-strikes-houthis-yemen.html
 
