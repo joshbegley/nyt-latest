@@ -1,3 +1,7 @@
+**The Briefing: Man United 0 Spurs 3 - What now for Ten Hag? Van de Ven's incredible assist**\
+`United's manager is under pressure after heavy defeat - but was Bruno Fernandes' red card harsh?`\
+https://nytimes.com/athletic/5799299/2024/09/29/man-utd-tottenham-ten-hag-fernandes/
+
 **Republicans Criticize Trump Over His Insults of Harris**\
 `Several Republicans distanced themselves from their party’s standard-bearer after he called Vice President Kamala Harris “mentally disabled.”`\
 https://nytimes.com/2024/09/29/us/politics/trump-insults-harris-republicans.html
