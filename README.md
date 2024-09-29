@@ -35,6 +35,6 @@ https://nytimes.com/2024/09/29/opinion/trump-military.html
 https://nytimes.com/athletic/5799503/2024/09/29/kc-royals-2024-mlb-playoffs-culture/
 
 **Nick Castellanos' power of perseverance: How an Opening Day idea sparked a 162-game season**\
-`WASHINGTON — There were moments in the last six months when Nick Castellanos typed the words with his thumbs.`\
+`Castellanos knows time is undefeated. But, for six months this season, the 32-year-old outfielder pushed back.`\
 https://nytimes.com/athletic/5801980/2024/09/29/nick-castellanos-162-game-season-phillies/
 

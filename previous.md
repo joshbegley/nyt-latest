@@ -1,40 +1,40 @@
-**Chiefs at Chargers odds, expert picks, how to watch: Can KC stay undefeated?**\
-`The Chiefs take their 3-0 record on the road to take on the 2-1 Chargers in an AFC West divisional matchup.`\
-https://nytimes.com/athletic/5799694/2024/09/29/chiefs-chargers-odds-expert-picks-how-to-watch-predictions-betting/
+**Mandel's Final Thoughts: Don't blink! Bama-Georgia just another NIL-era classic**\
+`When teams full of amazing athletes face each other, they don't seem to realize NIL deals and a bigger Playoff are ruining the sport.`\
+https://nytimes.com/athletic/5802532/2024/09/29/college-football-week-5-analysis-alabama-georgia-jalen-milroe/
 
-**How should Georgia feel about that Alabama loss? Conflicted**\
-`The long-term meaning of the latest agonizing loss to Alabama for this Georgia team: To be determined.`\
-https://nytimes.com/athletic/5802483/2024/09/29/georgia-alabama-losses-kirby-smart/
+**Bills at Ravens odds, expert picks, how to watch: Josh Allen vs. Lamar Jackson in primetime**\
+`Josh Allen and Lamar Jackson meet on Sunday Night Football. Jackson's Ravens are 1-2, but are favored at home.`\
+https://nytimes.com/athletic/5799671/2024/09/29/bills-ravens-odds-expert-picks-how-to-watch-predictions-betting/
 
-**Patriots at 49ers odds, expert picks, how to watch: Desperate 49ers are big favorites**\
-`The 49ers are going to be without a number of key players, but are still a heavy favorite against the Patriots.`\
-https://nytimes.com/athletic/5800064/2024/09/29/patriots-49ers-odds-expert-picks-how-to-watch-predictions-betting/
+**How uneasy should Michigan feel at 4-1? Final thoughts after Minnesota**\
+`It’s hard to imagine Michigan will be able to live on the edge like this without falling off at some point.`\
+https://nytimes.com/athletic/5802213/2024/09/29/michigan-minnesota-football-alex-orji-washington/
 
-**Why the World’s Biggest Powers Can’t Stop a Middle East War**\
-`The United States’ ability to influence events in the Mideast has waned, and other major nations have essentially been onlookers.`\
-https://nytimes.com/2024/09/29/world/middleeast/middle-east-war-peace-nasrallah.html
+**Temple: Against USC, Wisconsin showed it's still stuck on bad habits**\
+`In a 38-21 loss to USC, the Badgers went from looking like they were ready to turn a corner to one that couldn’t fight their way out.`\
+https://nytimes.com/athletic/5802262/2024/09/29/wisconsin-usc-luke-fickell-loss-college-football/
 
-**The Novelist Who Foresaw the ‘Big One’ for Florida’s Gulf Coast**\
-`John D. MacDonald was eerily prescient about the risks of human-driven climate disasters in the region.`\
-https://nytimes.com/2024/09/29/books/review/john-macdonald-cedar-key.html
+**Iran Is Losing. That May Matter More Than Israel’s Mistakes.**\
+`Military success rarely brings true peace, but it can preserve societies.`\
+https://nytimes.com/2024/09/29/opinion/iran-israel-nasrallah.html
 
-**What We Know About Hurricane Helene’s Destruction So Far**\
-`Helene was the strongest storm to ever hit Florida’s Big Bend region. As it made its way across the Southeast, the storm inundated towns with floods and mudslides, killing at least 60.`\
-https://nytimes.com/2024/09/29/us/helene-destruction-florida-north-carolina.html
+**Laws Need to Catch Up to Artificial Intelligence’s Unique Risks**\
+`Artificial intelligence poses unique risks, so the people warning us of safety threats deserve unique protections.`\
+https://nytimes.com/2024/09/29/opinion/ai-risks-safety-whistleblower.html
 
-**Coppola’s ‘Megalopolis’ Plays to Near-Empty Theaters**\
-`Francis Ford Coppola spent roughly $140 million on the film, which debuted to an estimated $4 million in weekend ticket sales.`\
-https://nytimes.com/2024/09/29/business/francis-ford-coppola-megalopolis-box-office.html
+**The Question Kamala Harris Needs to Answer to Beat Donald Trump**\
+`She has prosecuted the case against Donald Trump and clarified some policy views, but not her why. That’s what voters want to know.`\
+https://nytimes.com/2024/09/29/opinion/kamala-harris-campaign.html
 
-**Beneath the Potential Strike at U.S. Ports: Tensions Over Innovation**\
-`Port operators have long embraced automation, while dockworkers view it as a threat to their livelihoods.`\
-https://nytimes.com/2024/09/29/business/port-strike-automation-dockworkers.html
+**There’s a Dangerous Misconception About the Military’s Obligations to the President**\
+`The prospect of a second Trump administration has rekindled an important debate from four years ago.`\
+https://nytimes.com/2024/09/29/opinion/trump-military.html
 
-**Five Court Cases to Watch Ahead of Election Day**\
-`A blizzard of voting lawsuits are landing in swing states in the final weeks before the election. Here’s a guide to the cases that could matter most.`\
-https://nytimes.com/2024/09/29/us/politics/election-court-cases.html
+**The top-to-bottom culture change that has the surprising Royals back in the playoffs**\
+`It is the first team GM J.J. Picollo truly engineered, turning over a third of the big-league roster and adding in key front office roles. `\
+https://nytimes.com/athletic/5799503/2024/09/29/kc-royals-2024-mlb-playoffs-culture/
 
-**Have We Gotten Aubrey Plaza Wrong This Whole Time?**\
-`Don’t let her deadpan sense of humor fool you. In projects like Francis Ford Coppola’s “Megalopolis,” she puts everything she has on the line.`\
-https://nytimes.com/2024/09/29/movies/aubrey-plaza-megalopolis-my-old-ass-agatha-all-along.html
+**Nick Castellanos' power of perseverance: How an Opening Day idea sparked a 162-game season**\
+`WASHINGTON — There were moments in the last six months when Nick Castellanos typed the words with his thumbs.`\
+https://nytimes.com/athletic/5801980/2024/09/29/nick-castellanos-162-game-season-phillies/
 
