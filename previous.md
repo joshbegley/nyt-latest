@@ -1,3 +1,15 @@
+**Baker Mayfield cooks as Bucs topple Eagles 33-16: Takeaways**\
+`Fourteen completions and three total TDs is a solid day for a quarterback. Baker Mayfield had those numbers early in the second quarter.`\
+https://nytimes.com/athletic/5802984/2024/09/29/eagles-buccaneers-takeaways-result/
+
+**New California law signed in honor of former Stanford goalkeeper Katie Meyer**\
+`The law allows students to designate an advisor of their choosing during disciplinary proceedings`\
+https://nytimes.com/athletic/5803427/2024/09/29/stanford-womens-soccer-katie-meyer-california-law/
+
+**Drake Hogestyn, ‘Days of Our Lives’ Actor, Dies at 70**\
+`Mr. Hogestyn was best known for playing John Black on the daytime soap opera and appeared in more than 4,200 episodes over 38 years.`\
+https://nytimes.com/2024/09/29/arts/television/drake-hogestyn-dead.html
+
 **What This Israel-Hezbollah-Hamas-Iran Conflict is Really About**\
 `The devastating blow to Hezbollah by Israel has a place in the global struggle between the “coalition of inclusion” and “coalition of resistance.” It could be the keystone.`\
 https://nytimes.com/2024/09/29/opinion/iran-israel-hezbollah-hamas-lebanon-nasrallah.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5802967/2024/09/29/vikings-packers-takeaways-result
 **What we know about the Blackhawks after 3 preseason games**\
 `Three preseason games down, three to go before the start of the regular season. Here’s what we’ve learned about the Blackhawks so far.`\
 https://nytimes.com/athletic/5803154/2024/09/29/blackhawks-nhl-preseason-games-analysis/
-
-**Cardinals parting ways with Paul Goldschmidt: sources**\
-`SAN FRANCISCO — The St.`\
-https://nytimes.com/athletic/5803199/2024/09/29/cardinals-paul-goldschmidt-free-agency/
-
-**Tom Brady responds to Baker Mayfield saying Bucs were 'stressed out'**\
-`“I thought stressful was not having Super Bowl rings,” he said. “There was a mindset of a champion that I took to work every day."`\
-https://nytimes.com/athletic/5803291/2024/09/29/tom-brady-baker-mayfield-bucs-comments/
-
-**Kylie Jenner and Ayo Edebiri Toast a Starry Crowd at Paris Fashion Week**\
-`Actors, designers and musicians turned out at a party to celebrate the Business of Fashion’s annual index of industry leaders.`\
-https://nytimes.com/2024/09/29/style/paris-fashion-week-bof-party-kylie-jenner.html
 

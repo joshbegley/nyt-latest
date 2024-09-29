@@ -1,3 +1,15 @@
+**Baker Mayfield cooks as Bucs topple Eagles 33-16: Takeaways**\
+`Fourteen completions and three total TDs is a solid day for a quarterback. Baker Mayfield had those numbers early in the second quarter.`\
+https://nytimes.com/athletic/5802984/2024/09/29/eagles-buccaneers-takeaways-result/
+
+**New California law signed in honor of former Stanford goalkeeper Katie Meyer**\
+`The law allows students to designate an advisor of their choosing during disciplinary proceedings`\
+https://nytimes.com/athletic/5803427/2024/09/29/stanford-womens-soccer-katie-meyer-california-law/
+
+**Drake Hogestyn, ‘Days of Our Lives’ Actor, Dies at 70**\
+`Mr. Hogestyn was best known for playing John Black on the daytime soap opera and appeared in more than 4,200 episodes over 38 years.`\
+https://nytimes.com/2024/09/29/arts/television/drake-hogestyn-dead.html
+
 **Spurs condemn homophobic chanting from fans during Man Utd game**\
 `Tottenham Hotspur have condemned supporters who sang a homophobic chant during their Premier League game against Manchester United on Sunday.`\
 https://nytimes.com/athletic/5803484/2024/09/29/tottenham-homophobic-chant-man-utd/
