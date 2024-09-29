@@ -1,7 +1,5 @@
 **Bears get running game going in 24-18 win over Rams: Takeaways**\
-`NFL Week 4 live updates: Inactives, schedule, kickoff times, matchups, odds and predictions
-By Kevin Fishbain, Adam Jahns, Jourdan Rodrigue and Lauren Smith
-Following a pair of losses the past two weeks, the Chicago Bears led from the second quarter on Sunday, evening their record with a 24-18 win over the visiting Los Angeles Rams.`\
+`Bears rookie quarterback Caleb Williams tossed his first touchdown pass at home, connecting with DJ Moore in the third.`\
 https://nytimes.com/athletic/5802961/2024/09/29/bears-rams-takeaways-result/
 
 **Huge Plume From Chemical Plant in Georgia Prompts Evacuations**\
