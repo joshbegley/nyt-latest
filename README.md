@@ -1,3 +1,7 @@
+**Bengals at Panthers odds, picks, how to watch: Andy Dalton faces former team**\
+`Andy Dalton starts his second game of the season against his former team, a Bengals squad desperate not to go 0-4.`\
+https://nytimes.com/athletic/5799957/2024/09/29/bengals-panthers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **‘S.N.L.’: Maya Rudolph and Jim Gaffigan Play Kamala Harris and Tim Walz in Cold Open**\
 `The casting ended months of speculation after President Biden, played on Saturday by Dana Carvey, withdrew from the race. James Austin Johnson continued as Donald Trump.`\
 https://nytimes.com/2024/09/29/arts/television/snl-maya-rudolph-jim-gaffigan-kamala-harris-tim-walz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5799647/2024/09/29/broncos-jets-odds-expert-picks-h
 **How Rowe went from Norwich outcast to Marseille's new hero**\
 `The English striker is relishing life in France after a messy departure from Carrow Road`\
 https://nytimes.com/athletic/5798998/2024/09/29/jon-rowe-marseille-interview/
-
-**Real Madrid are getting more yellow cards for dissent - and they're not happy about it**\
-`Madrid have been shown nine yellow cards for protests in La Liga, just five short of their total for the last campaign`\
-https://nytimes.com/athletic/5798875/2024/09/29/real-madrid-mbappe-bellingham-la-liga-referees/
 
