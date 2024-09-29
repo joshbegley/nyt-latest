@@ -1,3 +1,7 @@
+**‘S.N.L.’ Recap: Maya Rudolph Returns to Play Kamala Harris**\
+`The 50th season began with several surprise guests and alumni — including Dana Carvey, Jim Gaffigan and Andy Samberg — playing figures in the 2024 election.`\
+https://nytimes.com/2024/09/29/arts/television/snl-recap-maya-rudolph-jim-gaffigan-dana-carvey.html
+
 **In Adams Indictment, Legal Experts See Strengths, Potential Pitfalls**\
 `Prosecutors pursuing corruption charges against Mayor Eric Adams appear to have some solid evidence, but winning a conviction is far from a given, experts say.`\
 https://nytimes.com/2024/09/29/nyregion/adams-indictment-fbi-nyc.html
