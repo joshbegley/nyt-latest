@@ -1,3 +1,7 @@
+**Patrik Laine helped off ice after knee-on-knee collision**\
+`The Canadiens forward left the preseason game with an apparent knee injury.`\
+https://nytimes.com/athletic/5802091/2024/09/28/canadiens-patrik-laine-injury-maple-leafs/
+
 **UNLV blows out Fresno State in first game without Matthew Sluka**\
 `Williams completed 13 of 16 passes for 182 yards and three scores while adding a team-high 119 rushing yards and a rushing touchdown.`\
 https://nytimes.com/athletic/5801965/2024/09/28/unlv-matthew-sluka-hajj-malik-williams-fresno-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801920/2024/09/28/cubs-kyle-hendricks-exits-high-n
 **Travis Hunter strikes a Heisman pose in Colorado’s blowout win at UCF**\
 `On Saturday, Hunter caught a touchdown pass and intercepted a pass in the same game for the second time in the last three weeks.`\
 https://nytimes.com/athletic/5801974/2024/09/28/travis-hunter-colorado-heisman-deion-sanders/
-
-**More Than 400 Roads Closed in North Carolina After Damage From Helene**\
-`The closures, including on two interstates, left motorists scrambling for options.`\
-https://nytimes.com/2024/09/28/us/roads-closed-western-north-carolina.html
 
