@@ -20,7 +20,7 @@ https://nytimes.com/athletic/5803746/2024/09/29/broncos-win-jets-defense-bo-nix/
 
 **Kris Kristofferson, Country Singer, Songwriter and Actor, Dies at 88**\
 `He wrote songs for hundreds of other artists, including “Me and Bobby McGee” for Janis Joplin and “Sunday Morning Coming Down” for Johnny Cash, before a second act in film.`\
-https://nytimes.com/2024/09/29/obituaries/kris-kristofferson-country-singer-songwriter-and-actor-dies-at-88.html
+https://nytimes.com/2024/09/29/obituaries/kris-kristofferson-dead.html
 
 **Helene Has Claimed Lives of Over 90 People. Here Are Some of Their Stories.**\
 `Days after the Category 4 hurricane made landfall in Florida’s gulf coast, some victims’ portraits were coming into focus.`\
