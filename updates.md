@@ -1,3 +1,7 @@
+**2024 Presidents Cup analysis: What to know going into Sunday singles at Royal Montreal**\
+`The Americans hold a four-point lead on the Internationals after a dramatic Saturday.`\
+https://nytimes.com/athletic/5802166/2024/09/28/presidents-cup-analysis-2024-royal-montreal-sunday/
+
 **Alabama jumps on Georgia for 30-7 halftime lead in stunning start to top-5 battle**\
 `One of the most anticipated college football games of the season, in the SEC and around the country, turned into a laugher in one quarter.`\
 https://nytimes.com/athletic/5802119/2024/09/28/alabama-georgia-score-highlights-takeaways/
