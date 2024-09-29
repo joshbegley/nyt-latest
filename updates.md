@@ -1,3 +1,7 @@
+**Patriots at 49ers odds, expert picks, how to watch: Desperate 49ers are big favorites**\
+`The 49ers are going to be without a number of key players, but are still a heavy favorite against the Patriots.`\
+https://nytimes.com/athletic/5800064/2024/09/29/patriots-49ers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Middle Eastern War Defies a Fragmented Global Order**\
 `Decentralized authority around the world has made it harder for leading superpowers to bring about peace in the Mideast.`\
 https://nytimes.com/2024/09/29/world/middleeast/middle-east-war-peace-nasrallah.html
