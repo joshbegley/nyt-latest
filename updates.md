@@ -1,3 +1,11 @@
+**The Briefing: Man Utd 0 Spurs 3 - What now for Ten Hag? Van de Ven's incredible assist; was Bruno red harsh?**\
+`Jay Harris, Charlotte Harpur and Ahmed Walid break down the action at Old Trafford.`\
+https://nytimes.com/athletic/5799299/2024/09/29/man-utd-tottenham-ten-hag-fernandes/
+
+**The Pulse: Bama's 17-year-old football hero**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5803185/2024/09/29/alabama-ryan-williams-college-football-nfl-the-pulse/
+
 **On Sports Podcast, Harris Will Discuss Race and Police Brutality**\
 `A nearly hourlong conversation on “All the Smoke” could help Vice President Kamala Harris reach Black men in the closing weeks of her presidential campaign.`\
 https://nytimes.com/2024/09/29/arts/kamala-harris-all-the-smoke-podcast.html
