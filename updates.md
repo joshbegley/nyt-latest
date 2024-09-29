@@ -1,3 +1,21 @@
+**Bears get running game going in 24-18 win over Rams: Takeaways**\
+`NFL Week 4 live updates: Inactives, schedule, kickoff times, matchups, odds and predictions
+By Kevin Fishbain, Adam Jahns, Jourdan Rodrigue and Lauren Smith
+Following a pair of losses the past two weeks, the Chicago Bears led from the second quarter on Sunday, evening their record with a 24-18 win over the visiting Los Angeles Rams.`\
+https://nytimes.com/athletic/5802961/2024/09/29/bears-rams-takeaways-result/
+
+**Huge Plume From Chemical Plant in Georgia Prompts Evacuations**\
+`A sprinkler malfunction combined with a “water-reactive chemical” in the plant set off the plume, prompting evacuations for large parts of Conyers, Ga., officials said.`\
+https://nytimes.com/2024/09/29/us/chemical-bio-lab-fire-georgia.html
+
+**Nix, Broncos resilient while penalties bury Jets in loss: Key takeaways**\
+`Nix's 60 passing yards are the fewest by a winning quarterback (min. 20 attempts) since 2007. `\
+https://nytimes.com/athletic/5803481/2024/09/29/jets-broncos-takeaways-result/
+
+**Texans come back to beat winless Jaguars 24-20: Key Takeaways**\
+`The Texans avoid a second straight defeat, and it keeps Houston on top of the AFC South`\
+https://nytimes.com/athletic/5802971/2024/09/29/jaguars-texans-takeaways-result/
+
 **Chiefs' Rashee Rice carted off with knee injury vs. Chargers**\
 `Rice sustained the injury on the Chiefs’ second possession while trying to force a fumble after a Patrick Mahomes interception.`\
 https://nytimes.com/athletic/5803636/2024/09/29/chiefs-rashee-rice-knee-injury/
