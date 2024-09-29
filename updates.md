@@ -1,3 +1,7 @@
+**Tom Brady responds to Baker Mayfield saying Bucs were 'stressed out'**\
+`“I thought stressful was not having Super Bowl rings,” he said. “There was a mindset of a champion that I took to work every day."`\
+https://nytimes.com/athletic/5803291/2024/09/29/tom-brady-baker-mayfield-bucs-comments/
+
 **Kylie Jenner and Ayo Edebiri Toast a Starry Crowd at Paris Fashion Week**\
 `Actors, designers and musicians turned out at a party to celebrate the Business of Fashion’s annual index of industry leaders.`\
 https://nytimes.com/2024/09/29/style/paris-fashion-week-bof-party-kylie-jenner.html

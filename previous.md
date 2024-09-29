@@ -1,3 +1,7 @@
+**Tom Brady responds to Baker Mayfield saying Bucs were 'stressed out'**\
+`“I thought stressful was not having Super Bowl rings,” he said. “There was a mindset of a champion that I took to work every day."`\
+https://nytimes.com/athletic/5803291/2024/09/29/tom-brady-baker-mayfield-bucs-comments/
+
 **Kylie Jenner and Ayo Edebiri Toast a Starry Crowd at Paris Fashion Week**\
 `Actors, designers and musicians turned out at a party to celebrate the Business of Fashion’s annual index of industry leaders.`\
 https://nytimes.com/2024/09/29/style/paris-fashion-week-bof-party-kylie-jenner.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5793431/2024/09/29/wrexham-promotion-parkinson-leag
 **Republicans Criticize Trump Over His Insults of Harris**\
 `Several Republicans distanced themselves from their party’s standard-bearer after he called Vice President Kamala Harris “mentally disabled.”`\
 https://nytimes.com/2024/09/29/us/politics/trump-insults-harris-republicans.html
-
-**In North Carolina, a Race to Provide Relief Amid an ‘Unprecedented Tragedy’**\
-`Emergency workers are rescuing people from homes as they try to repair damaged roads, power lines and water systems. Officials said 11 people in the state have died from Hurricane Helene.`\
-https://nytimes.com/2024/09/29/us/north-carolina-helene-relief-damage.html
 
