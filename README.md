@@ -1,3 +1,7 @@
+**Trump Says He’s in Danger. So Why Did He Seek Out the Embrace of 100,000 Fans?**\
+`After two assassination attempts, the former president seems to be relishing the dangers of his job. Some people at the Georgia-Alabama football game wondered if his appearance was wise.`\
+https://nytimes.com/2024/09/29/us/elections/trump-alabama-georgia-football.html
+
 **'I'm about to sack Aaron Rodgers:' Road trip was a clinic for Broncos' harassing defense**\
 `The Broncos recorded 12 sacks in a pair of victories during their successful 2-game road trip and harassed Aaron Rodgers constantly Sunday.`\
 https://nytimes.com/athletic/5803746/2024/09/29/broncos-win-jets-defense-bo-nix/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/29/us/harris-trump-election/how-jd-vance-turns-
 **Luis Arraez becomes first player to win 3 straight batting titles with 3 different teams**\
 `Sunday at Chase Field, Arraez set a career-high with his 32nd double, finished his regular season hitting .314.`\
 https://nytimes.com/athletic/5803556/2024/09/29/luis-arraez-3-batting-titles-3-teams/
-
-**Ionescu, Stewart carry Liberty past Aces in Game 1of semifinals**\
-`New York will host Game 2 of the best-of-5 series Tuesday before the matchup flips back to Las Vegas.`\
-https://nytimes.com/athletic/5803756/2024/09/29/liberty-aces-wnba-semifinals-game-1/
 

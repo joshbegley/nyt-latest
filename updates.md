@@ -1,3 +1,7 @@
+**'I'm about to sack Aaron Rodgers:' Road trip was a clinic for Broncos' harassing defense**\
+`The Broncos recorded 12 sacks in a pair of victories during their successful 2-game road trip and harassed Aaron Rodgers constantly Sunday.`\
+https://nytimes.com/athletic/5803746/2024/09/29/broncos-win-jets-defense-bo-nix/
+
 **Kris Kristofferson, Country Singer, Songwriter and Actor, Dies at 88**\
 `He wrote songs for hundreds of other artists, including “Me and Bobby McGee” for Janis Joplin and “Sunday Morning Coming Down” for Johnny Cash, before a second act in film.`\
 https://nytimes.com/2024/09/29/obituaries/kris-kristofferson-country-singer-songwriter-and-actor-dies-at-88.html
