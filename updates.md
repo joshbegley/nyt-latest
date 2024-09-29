@@ -1,3 +1,7 @@
+**Is 'amazing' Cole Palmer the best player in the Premier League?**\
+`Four goals in the first half against Brighton, records stacking up. Cole Palmer is making a case to be considered the best in the top flight`\
+https://nytimes.com/athletic/5801912/2024/09/29/cole-palmer-chelsea-best-player-premier-league/
+
 **Padres postseason roster projection: Who makes the wild-card rotation?**\
 `Here is one attempt at projecting a 26-man roster for the wild-card series against ... someone.`\
 https://nytimes.com/athletic/5802430/2024/09/29/padres-postseason-roster-projection/
