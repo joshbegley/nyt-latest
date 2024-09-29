@@ -1,3 +1,7 @@
+**Ionescu, Stewart carry Liberty past Aces in Game 1of semifinals**\
+`New York will host Game 2 of the best-of-5 series Tuesday before the matchup flips back to Las Vegas.`\
+https://nytimes.com/athletic/5803756/2024/09/29/liberty-aces-wnba-semifinals-game-1/
+
 **NFL Week 4 takeaways: Colts better off with Flacco? Pederson out of time in Jacksonville?**\
 `Plus, who is the best team in the NFC South?`\
 https://nytimes.com/athletic/5803109/2024/09/29/nfl-week-4-takeaways-colts-flacco-jaguars-doug-pederson-coach/
@@ -30,11 +34,7 @@ https://nytimes.com/2024/09/29/briefing/nasrallah-trump-attacks-helene.html
 `Keegan Bradley clinched the cup for the U.S., with five matches still on the course.`\
 https://nytimes.com/athletic/5803554/2024/09/29/presidents-cup-united-states-win/
 
-**Bengals top Panthers 34-24 for first win of season: Key takeaways**\
+**Bengals top Panthers 34-24 for first win of season: Takeaways**\
 `Sunday’s game shaped up as a must-win for the Bengals following three straight losses out of the gate by a combined 12 points.`\
 https://nytimes.com/athletic/5802954/2024/09/29/bengals-panthers-takeaways-result/
-
-**Madrid derby suspended after objects thrown onto pitch by Atletico fans**\
-`Sunday’s Madrid derby had to be paused after objects were thrown onto the pitch by Atletico Madrid fans at their Civitas Metropolitano stadium.`\
-https://nytimes.com/athletic/5803601/2024/09/29/madrid-derby-objects-atletico-metropolitano/
 
