@@ -1,3 +1,7 @@
+**On Sports Podcast, Harris Will Discuss Race and Police Brutality**\
+`A nearly hourlong conversation on “All the Smoke” could help Vice President Kamala Harris reach Black men in the closing weeks of her presidential campaign.`\
+https://nytimes.com/2024/09/29/arts/kamala-harris-all-the-smoke-podcast.html
+
 **A protest mourning Nasrallah near a U.S. Consulate in Pakistan turns violent.**\
 `By Zia ur-Rehman`\
 https://nytimes.com/live/2024/09/29/world/israel-hezbollah-lebanon-nasrallah/a-protest-mourning-nasrallah-near-a-us-consulate-in-pakistan-turns-violent
