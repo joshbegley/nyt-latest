@@ -1,3 +1,7 @@
+**Broncos’ Tyler Badie stretchered off sideline vs. Jets**\
+`Badie was originally listed as questionable to with a back injury, but then the team deemed Badie as out for the remainder of the game.`\
+https://nytimes.com/athletic/5803233/2024/09/29/tyler-badie-injury-broncos-jets/
+
 **Blue Jackets Sunday Gathering: Cole and Owen Sillinger may soon be NHL teammates**\
 `Plus: Damon Severson is gearing up for a bounce-back season in Columbus, prospect Jordan Dumais awaits hernia surgery and more.`\
 https://nytimes.com/athletic/5802219/2024/09/29/blue-jackets-cole-owen-sillinger/

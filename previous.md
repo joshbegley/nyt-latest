@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5802219/2024/09/29/blue-jackets-cole-owen-sillinger/
 
 **Broncos’ Tyler Badie stretchered off sideline vs. Jets**\
-`Badie was officially listed as questionable with a back injury, according to a Broncos official.`\
+`Badie was originally listed as questionable to with a back injury, but then the team deemed Badie as out for the remainder of the game.`\
 https://nytimes.com/athletic/5803233/2024/09/29/tyler-badie-injury-broncos-jets/
 
 **CMU QB coach resigns, school declines comment on Stalions case**\
