@@ -1,3 +1,11 @@
+**Ionescu, Stewart carry Liberty past Aces in Game 1of semifinals**\
+`New York will host Game 2 of the best-of-5 series Tuesday before the matchup flips back to Las Vegas.`\
+https://nytimes.com/athletic/5803756/2024/09/29/liberty-aces-wnba-semifinals-game-1/
+
+**Bengals top Panthers 34-24 for first win of season: Takeaways**\
+`Sunday’s game shaped up as a must-win for the Bengals following three straight losses out of the gate by a combined 12 points.`\
+https://nytimes.com/athletic/5802954/2024/09/29/bengals-panthers-takeaways-result/
+
 **NFL Week 4 takeaways: Colts better off with Flacco? Pederson out of time in Jacksonville?**\
 `Plus, who is the best team in the NFC South?`\
 https://nytimes.com/athletic/5803109/2024/09/29/nfl-week-4-takeaways-colts-flacco-jaguars-doug-pederson-coach/
