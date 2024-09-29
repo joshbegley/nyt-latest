@@ -1,3 +1,7 @@
+**Vikings dominate Packers in first half**\
+`Vikings quarterback Sam Darnold went 11 of 15 for 136 yards and threw three touchdown passes.`\
+https://nytimes.com/athletic/5802967/2024/09/29/vikings-packers-takeaways-result/
+
 **What we know about the Blackhawks after 3 preseason games**\
 `Three preseason games down, three to go before the start of the regular season. Here’s what we’ve learned about the Blackhawks so far.`\
 https://nytimes.com/athletic/5803154/2024/09/29/blackhawks-nhl-preseason-games-analysis/
