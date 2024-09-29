@@ -1,3 +1,7 @@
+**Lie-flat Seats and Chilled Champagne: Testing Eric Adams’s Upgrade Life**\
+`The New York mayor is accused of accepting free luxury travel in exchange for political favors. How large was he living? A writer puts the experience to the test.`\
+https://nytimes.com/2024/09/29/travel/adams-turkey-upgrades.html
+
 **Here’s the latest on the presidential race.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/09/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801695/2024/09/29/everton-palace-result-premier-le
 **What we learned about the College Football Playoff in Week 5**\
 `An SEC giant stumbled, top-10 teams tumbled and UNLV put an exclamation point on the end of a weird, wild week.`\
 https://nytimes.com/athletic/5802538/2024/09/29/college-football-playoff-week-5-takeaways/
-
-**Netanyahu, Ignoring Allies and Defying Critics, Basks in a Rare Triumph**\
-`Israel’s strike on Hassan Nasrallah was the culmination of several startling moves that suggest the Israeli prime minister feels unconstrained by foreign criticism.`\
-https://nytimes.com/2024/09/29/world/middleeast/netanyahu-israel-mideast.html
 
