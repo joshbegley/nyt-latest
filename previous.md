@@ -1,40 +1,40 @@
-**Creating Beauty Behind Bars**\
-`In Italy, Cooperativa Alice helps inmates and women at risk learn couture skills, the kind of artisanal expertise that the luxury fashion industry needs.`\
-https://nytimes.com/2024/09/29/fashion/craftsmanship-couture-skills-prisons-milan.html
+**Middle Eastern War Defies a Fragmented Global Order**\
+`Decentralized authority around the world has made it harder for leading superpowers to bring about peace in the Mideast.`\
+https://nytimes.com/2024/09/29/world/middleeast/middle-east-war-peace-nasrallah.html
 
-**A Greek Brand Maintains Its Traditional Touch**\
-`Since its 2013 founding, the Callista company has made its bags and small leather goods by hand.`\
-https://nytimes.com/2024/09/29/fashion/craftsmanship-callista-handbags-athens.html
+**The Novelist Who Foresaw the ‘Big One’ for Florida’s Gulf Coast**\
+`John D. MacDonald was eerily prescient about the risks of human-driven climate disasters in the region.`\
+https://nytimes.com/2024/09/29/books/review/john-macdonald-cedar-key.html
 
-**Commanders at Cardinals odds, expert picks, how to watch: Will Jayden Daniels star again?**\
-`Kyler Murray and the Cardinals are favored against the Commanders, who are fresh off a win in Cincinnati and a gem from Jayden Daniels.`\
-https://nytimes.com/athletic/5800112/2024/09/29/commanders-cardinals-odds-expert-picks-how-to-watch-predictions-betting/
+**What We Know About Hurricane Helene’s Destruction So Far**\
+`Helene was the strongest storm to ever hit Florida’s Big Bend region. As it made its way across the Southeast, the storm inundated towns with floods and mudslides, killing at least 60.`\
+https://nytimes.com/2024/09/29/us/helene-destruction-florida-north-carolina.html
 
-**What to Wear Next**\
-`A brilliant Loewe collection, some good ideas from Courrèges and Junya Watanabe, and a step forward at Alexander McQueen.`\
-https://nytimes.com/2024/09/29/style/loewe-alexander-mcqueen-comme-des-garcons.html
+**Coppola’s ‘Megalopolis’ Plays to Near-Empty Theaters**\
+`Francis Ford Coppola spent roughly $140 million on the film, which debuted to an estimated $4 million in weekend ticket sales.`\
+https://nytimes.com/2024/09/29/business/francis-ford-coppola-megalopolis-box-office.html
 
-**‘S.N.L.’ Recap: Maya Rudolph Returns to Play Kamala Harris**\
-`The 50th season began with several surprise guests and alumni — including Dana Carvey, Jim Gaffigan and Andy Samberg — playing figures in the 2024 election.`\
-https://nytimes.com/2024/09/29/arts/television/snl-recap-maya-rudolph-jim-gaffigan-dana-carvey.html
+**Beneath the Potential Strike at U.S. Ports: Tensions Over Innovation**\
+`Port operators have long embraced automation, while dockworkers view it as a threat to their livelihoods.`\
+https://nytimes.com/2024/09/29/business/port-strike-automation-dockworkers.html
 
-**In Adams Indictment, Legal Experts See Strengths, Potential Pitfalls**\
-`Prosecutors pursuing corruption charges against Mayor Eric Adams appear to have some solid evidence, but winning a conviction is far from a given, experts say.`\
-https://nytimes.com/2024/09/29/nyregion/adams-indictment-fbi-nyc.html
+**Five Court Cases to Watch Ahead of Election Day**\
+`A blizzard of voting lawsuits are landing in swing states in the final weeks before the election. Here’s a guide to the cases that could matter most.`\
+https://nytimes.com/2024/09/29/us/politics/election-court-cases.html
 
-**A Grieving Mother. A Famous Uncle. An Unlikely Crusade.**\
-`Tragedy turned Nadia Milleron, Ralph Nader’s niece, into an activist. Now she’s on a long-shot campaign for Congress.`\
-https://nytimes.com/2024/09/29/business/nadia-milleron-boeing-congress.html
+**Have We Gotten Aubrey Plaza Wrong This Whole Time?**\
+`Don’t let her deadpan sense of humor fool you. In projects like Francis Ford Coppola’s “Megalopolis,” she puts everything she has on the line.`\
+https://nytimes.com/2024/09/29/movies/aubrey-plaza-megalopolis-my-old-ass-agatha-all-along.html
 
-**The Connections Companion No. 477**\
-`Scroll down for hints and conversation about the puzzle for Monday, Sept. 30, 2024.`\
-https://nytimes.com/2024/09/29/crosswords/connections-companion-477.html
+**The Border in the Campaign and in Real Life**\
+`What do some people who live on the border make of the shifting politics in the battle over their backyard? Astead W.`\
+https://nytimes.com/video/us/elections/100000009722491/the-border-in-the-campaign-and-in-real-life.html
 
-**Meet the Star of Sushi-Con: A 400-Pound Tuna**\
-`At an all-you-can-eat Japanese food expo in Manhattan, thousands lined up to witness the ceremonial carving of an enormous bluefin tuna — and try a sample.`\
-https://nytimes.com/2024/09/29/nyregion/tuna-fish-market-dock.html
+**A ‘Perfect’ Take on Nantucket Style?**\
+`Scrutinizing the costumes in Netflix’s “The Perfect Couple.”`\
+https://nytimes.com/2024/09/29/style/perfect-couple-netflix-costume-design.html
 
-**‘I Was at a Business Lunch at a Well-Regarded Restaurant’**\
-`A question before ordering, a children’s oasis in Bay Ridge and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/09/29/nyregion/metropolitan-diary.html
+**Donald Trump and His Real-Life Apprentice**\
+`The former president views JD Vance as a kindred political spirit, while Mr. Vance has spoken of Mr. Trump as a kind of father figure.`\
+https://nytimes.com/2024/09/29/us/politics/trump-vance-relationship.html
 
