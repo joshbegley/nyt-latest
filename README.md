@@ -1,3 +1,7 @@
+**Alabama jumps on Georgia for 30-7 halftime lead in stunning start to top-5 battle**\
+`One of the most anticipated college football games of the season, in the SEC and around the country, turned into a laugher in one quarter.`\
+https://nytimes.com/athletic/5802119/2024/09/28/alabama-georgia-score-highlights-takeaways/
+
 **Yankees clinch No. 1 seed in American League**\
 `The Yankees will host Game 1 of the ALDS next Saturday.`\
 https://nytimes.com/athletic/5802133/2024/09/28/yankees-clinch-number-one-seed-postseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801965/2024/09/28/unlv-matthew-sluka-hajj-malik-wi
 **Vance Criticizes Ukraine’s President a Day After His Meeting With Trump**\
 `Senator JD Vance of Ohio, former President Donald J. Trump’s running mate, criticized President Volodymyr Zelensky of Ukraine during a campaign rally in Pennsylvania.`\
 https://nytimes.com/2024/09/28/us/politics/trump-ukraine-vance-zelensky.html
-
-**Padres’ Ha-Seong Kim to undergo season-ending shoulder surgery**\
-`The procedure will officially end his season and, with Kim on the verge of free agency, perhaps his career in San Diego.`\
-https://nytimes.com/athletic/5802048/2024/09/28/padres-ha-seong-kim-season-ending-shoulder-surgery/
 
