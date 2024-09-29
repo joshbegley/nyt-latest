@@ -1,3 +1,7 @@
+**Bengals top Panthers 34-24 for first win of season: Key takeaways**\
+`Sunday’s game shaped up as a must-win for the Bengals following three straight losses out of the gate by a combined 12 points.`\
+https://nytimes.com/athletic/5802954/2024/09/29/bengals-panthers-takeaways-result/
+
 **Madrid derby suspended after objects thrown onto pitch by Atletico fans**\
 `Sunday’s Madrid derby had to be paused after objects were thrown onto the pitch by Atletico Madrid fans at their Civitas Metropolitano stadium.`\
 https://nytimes.com/athletic/5803601/2024/09/29/madrid-derby-objects-atletico-metropolitano/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/arts/television/drake-hogestyn-dead.html
 **What This Israel-Hezbollah-Hamas-Iran Conflict is Really About**\
 `The devastating blow to Hezbollah by Israel has a place in the global struggle between the “coalition of inclusion” and “coalition of resistance.” It could be the keystone.`\
 https://nytimes.com/2024/09/29/opinion/iran-israel-hezbollah-hamas-lebanon-nasrallah.html
-
-**Spurs condemn homophobic chanting from fans during Man Utd game**\
-`Tottenham Hotspur have condemned supporters who sang homophobic chants during their Premier League game against Manchester United on Sunday.`\
-https://nytimes.com/athletic/5803484/2024/09/29/tottenham-homophobic-chant-man-utd/
 
