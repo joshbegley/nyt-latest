@@ -1,3 +1,7 @@
+**How Darnell Mooney's savvy move saved Falcons' sputtering offense against Saints**\
+`ATLANTA — Kirk Cousins and Darnell Mooney sit next to each other in Atlanta’s locker room at the Falcons’ practice facility, which regularly reminds Cousins how seriously Mooney takes football.`\
+https://nytimes.com/athletic/5804023/2024/09/29/falcons-darnell-mooney-younghoe-koo-saints/
+
 **Late defensive stand powers Raiders past Browns 20-16: Takeaways**\
 `A rushing attack and key defensive stand propelled the Raiders to a 20-16 win over Browns.`\
 https://nytimes.com/athletic/5802999/2024/09/29/raiders-browns-takeaways-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5803746/2024/09/29/broncos-win-jets-defense-bo-nix/
 **Kris Kristofferson, Country Singer, Songwriter and Actor, Dies at 88**\
 `He wrote songs for hundreds of other artists, including “Me and Bobby McGee” for Janis Joplin and “Sunday Morning Coming Down” for Johnny Cash, before a second act in film.`\
 https://nytimes.com/2024/09/29/obituaries/kris-kristofferson-dead.html
-
-**Helene Has Claimed Lives of Over 90 People. Here Are Some of Their Stories.**\
-`Days after the Category 4 hurricane made landfall in Florida’s gulf coast, some victims’ portraits were coming into focus.`\
-https://nytimes.com/2024/09/29/us/hurricane-helene-victims.html
 
