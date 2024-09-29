@@ -1,3 +1,15 @@
+**Justin Verlander notches quality start: Will it be his last appearance for Houston?**\
+`The future Hall of Famer made case for playoff role, but it might be too late: "I feel like I’ve been inching in the right direction.”`\
+https://nytimes.com/athletic/5802313/2024/09/28/astros-justin-verlander-postseason-rotation/
+
+**Alabama survives Georgia's comeback in frantic finish to top-5 clash**\
+`One of the most anticipated college football games of the season, in the SEC and around the country, delivered in every facet.`\
+https://nytimes.com/athletic/5802119/2024/09/28/alabama-georgia-score-highlights-takeaways/
+
+**Saints vs. Falcons odds, picks, how to watch: Early clash in the NFC South**\
+`The NFC South gets a Week 4 rivalry matchup between the 2-1 Saints and 1-2 Falcons in Atlanta. Odds are close.`\
+https://nytimes.com/athletic/5799435/2024/09/28/saints-falcons-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Penn State overpowers Illinois, stays unbeaten in battle of ranked teams: Takeaways**\
 `Nick Singleton (16 rushes, 94 yards) and Kaytron Allen (18 rushes, 104 yards) each had TDs as the Nittany Lions dominated on the ground.`\
 https://nytimes.com/athletic/5802285/2024/09/28/penn-state-illinois-big-ten-unbeaten/
