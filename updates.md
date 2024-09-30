@@ -1,3 +1,7 @@
+**Across the World, Diplomats Gird for a Trump Assault on Climate Action**\
+`Some leaders insist that the global clean energy transition will happen with or without the United States.`\
+https://nytimes.com/2024/09/30/climate/global-climate-negotiations-trump.html
+
 **An Israeli Strike Inside the City Limits Frays Nerves in Beirut**\
 `A blast in the Cola neighborhood was the first known Israeli strike in the central part of the city since a war with Hezbollah in 2006.`\
 https://nytimes.com/2024/09/30/world/middleeast/israel-strike-beirut-cola-residents.html

@@ -1,3 +1,7 @@
+**Across the World, Diplomats Gird for a Trump Assault on Climate Action**\
+`Some leaders insist that the global clean energy transition will happen with or without the United States.`\
+https://nytimes.com/2024/09/30/climate/global-climate-negotiations-trump.html
+
 **We Watched Vance’s Old Debates. Here’s What We Learned.**\
 `Senator JD Vance assumed his first public office just last year. But to win that job, he had to survive about a dozen debates, sharpening his chops when facing opponents onstage.`\
 https://nytimes.com/2024/09/30/us/politics/vance-debate-style.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5805755/2024/09/30/frenkie-de-jong-injury-return-ba
 **USC final thoughts: What stood out in the Trojans' comeback over Wisconsin?**\
 `Miller Moss continues to excel. The offensive line showed some progress. Zion Branch made some plays. `\
 https://nytimes.com/athletic/5805686/2024/09/30/usc-trojans-miller-moss-wisconsin-minnesota/
-
-**Oasis Adds North American Shows to Reunion Tour**\
-`Liam and Noel Gallagher’s band will stop in three American cities plus Toronto and Mexico City in August and September 2025.`\
-https://nytimes.com/2024/09/30/arts/music/oasis-reunion-tour-north-america.html
 
