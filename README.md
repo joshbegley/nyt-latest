@@ -1,3 +1,11 @@
+**California Will Allow Amsterdam-Like Cannabis Cafes**\
+`Marijuana businesses will be allowed to serve food and have live music performances as a way to attract more customers.`\
+https://nytimes.com/2024/09/30/us/cannabis-cafe-california-marijuana.html
+
+**Biden Will Visit Region Ravaged by ‘History-Making’ Helene**\
+`The death toll from the storm has risen to more than 110 people across six states. Hundreds remain unaccounted for, and drinking water, gasoline and cellphone service are scarce.`\
+https://nytimes.com/2024/09/30/us/biden-helene-north-carolina.html
+
 **California Sues Hospital for Denying Patient an Emergency Abortion**\
 `The state said that despite a doctor’s recommendation and state law, a Catholic hospital declined to provide an abortion because fetal heart tones were present.`\
 https://nytimes.com/2024/09/30/health/california-abortion-lawsuit-st-joseph-hospital.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5806238/2024/09/30/joel-embiid-76ers-health-priorit
 **Jimmy Carter Is the Un-Trump**\
 `As men and as presidents, they could not be more different.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/jimmy-carter-contrast-trump
-
-**Bernal signs Barcelona contract extension with €500m release clause**\
-`Barcelona midfielder Marc Bernal has signed a contract extension that will keep him at the club until 2029.`\
-https://nytimes.com/athletic/5790467/2024/09/30/barcelona-marc-bernal-contract/
-
-**In Biden’s Last Months, Selfies on Air Force One and a Chorus of ‘Thank You, Joe’**\
-`In the months since President Biden dropped out of the race, Democratic voters have bombarded him with words of gratitude. But they are, at least in part, thanking him for quitting.`\
-https://nytimes.com/2024/09/30/us/politics/president-biden-democrats-farewell.html
 
