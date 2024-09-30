@@ -1,3 +1,7 @@
+**How Caleb Williams put together his most efficient game in a much-needed Bears win**\
+`It wasn't prolific, and it had a bumpy start, but Willams put together his best overall game as the Bears finally got into a rhythm.`\
+https://nytimes.com/athletic/5804051/2024/09/30/bears-caleb-williams-best-game-rams/
+
 **Jayden Daniels and the Commanders' offense have been even better than you think**\
 `Daniels and company are setting the bar higher than anyone could have realistically expected. As in, prime Tom Brady and Aaron Rodgers high.`\
 https://nytimes.com/athletic/5805438/2024/09/30/jayden-daniels-commanders-offense-cardinals/
