@@ -1,3 +1,11 @@
+**Dozens Feared Dead After Migrant Boat Sinks Off Spain**\
+`At least nine people are known to have died in a sinking off the Canary Islands and 48 more are missing, the latest disaster on the perilous Atlantic crossing from West Africa.`\
+https://nytimes.com/2024/09/30/world/europe/spain-migrant-ship-canary-islands.html
+
+**Tester’s Senate Fate Could Make or Break a Harris Presidency**\
+`With Democrats waging an uphill battle to hold the Senate, the vice president, should she win, could end up facing a Republican firewall with veto power over her cabinet, court picks and legislation.`\
+https://nytimes.com/2024/09/30/us/politics/tester-senate-harris-republicans.html
+
 **Why Adams’s Successor in Brooklyn Returned 10 Gold Tea Sets From Turkey**\
 `Antonio Reynoso, the Brooklyn borough president, said he declined or returned gifts from Turkey and met with F.B.I. officials who said to be wary of such gifts.`\
 https://nytimes.com/2024/09/30/nyregion/adams-reynoso-turkey-gifts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5806329/2024/09/30/man-charged-west-brom-fan-death/
 **Middleton will be limited in Bucks camp after ankle surgeries**\
 `The forward said he hasn't discussed a specific playing time plan with the team beyond training camp.`\
 https://nytimes.com/athletic/5806045/2024/09/30/khris-middleton-injury-bucks-ankle-update/
-
-**F.T.C. Clears Chevron’s Purchase of Hess With Board Condition**\
-`The Federal Trade Commission said the oil giant can acquire the smaller company as long as the chief executive of Hess does not join its board.`\
-https://nytimes.com/2024/09/30/business/energy-environment/ftc-chevron-hess-board.html
-
-**Powell Points to Two More Normal-Size Rate Cuts This Year**\
-`Jerome H. Powell, chair of the Federal Reserve, said that central bankers will lower rates as much as needed, but have forecast two more quarter point rate cuts this year.`\
-https://nytimes.com/2024/09/30/business/economy/fed-chair-jerome-powell-interest-rate-cuts.html
 
