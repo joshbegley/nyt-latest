@@ -1,3 +1,15 @@
+**Arizona Diamondbacks bounced from postseason contention on their day off**\
+`Snakes alive, no more.`\
+https://nytimes.com/athletic/5807646/2024/09/30/diamondbacks-eliminated-from-mlb-contention/
+
+**MLB Postseason Tiers: Which teams are contenders and which ones are just happy to be here**\
+`It's win-it-all or go home in shame for a few teams, while others have cemented their positive place in team history by making the dance.`\
+https://nytimes.com/athletic/5798557/2024/09/30/mlb-2024-postseason-tiers-yankees-dodgers-phillies/
+
+**Braves beat Mets in doubleheader nightcap to clinch 7th straight postseason berth**\
+`Braves headed to San Diego to face the Padres; Diamondbacks knocked out`\
+https://nytimes.com/athletic/5765420/2024/09/30/atlanta-braves-clinch-wild-card-series-mlb-playoffs/
+
 **More promises from Red Sox leadership: ‘Talk is cheap right now’**\
 ` The Red Sox are promising big changes. “I truly believe this is the last struggle, to be honest,” Alex Cora said. “I think this is it."`\
 https://nytimes.com/athletic/5807529/2024/09/30/red-sox-leadership-promises/
