@@ -1,3 +1,15 @@
+**Postecoglou has his statement win - this is how good Spurs can be**\
+`Postecoglou has been repeatedly saying since the opening weekend this team is improving and on Sunday the signs were there for all to see.`\
+https://nytimes.com/athletic/5803658/2024/09/30/tottenham-man-united-postecoglou/
+
+**A 60-year dream: How Bologna built a team for a return to the big time**\
+`Bologna face Liverpool in the Champions League - their biggest game in 60 years. Here is how they have slowly rebuilt their success.`\
+https://nytimes.com/athletic/5798782/2024/09/30/bologna-champions-league-liverpool/
+
+**Fantasy football Week 4 takeaways: Travis Kelce is a must-start again, Kyle Pitts is a historic bust and more**\
+`Michael Salfino shares his takeaways from Week 4, including that Travis Kelce is a must-start again given the Rashee Rice injury.`\
+https://nytimes.com/athletic/5804677/2024/09/30/fantasy-football-week-4-takeaways-travis-kelce-is-a-must-start-again-kyle-pitts-is-a-historic-bust-and-more/
+
 **Titans at Dolphins odds, expert picks, how to watch: Which team will get a needed win?**\
 `The winless Titans are barely underdogs at the 1-2 Dolphins on Monday night. Can Miami get a win without Tua Tagovailoa?`\
 https://nytimes.com/athletic/5799635/2024/09/30/titans-dolphins-odds-expert-picks-how-to-watch-predictions-betting/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5805004/2024/09/29/chargers-loss-chiefs-jim-harbaug
 **Buckley: When Patriots need to do something, they either don't or do it badly**\
 `Jerod Mayo didn't roll the dice early when the offense-challenged Pats had a chance. Maybe he should have. Some encouragement couldn't hurt.`\
 https://nytimes.com/athletic/5804887/2024/09/29/patriots-49ers-jacoby-brissett-sacks-jerod-mayo/
-
-**Sun hold on to defeat Lynx in Game 1 of WNBA semifinals**\
-`Sun will look to take a 2-0 series for Game 2 in Minneapolis.`\
-https://nytimes.com/athletic/5804933/2024/09/29/sun-lynx-wnba-semifinals-result/
-
-**Review: ‘The Hills of California,’ Alive With the Sound of Music**\
-`In Jez Butterworth’s compelling new play, four girls trained to sing close harmony wind up as acrimonious adults.`\
-https://nytimes.com/2024/09/29/theater/the-hills-of-california-review.html
-
-**A Strike in Central Beirut Damages a Building**\
-`If the explosion is confirmed to be an Israeli attack, it would be the first Israeli strike within the Lebanese capital since the 2006 war with Hezbollah.`\
-https://nytimes.com/2024/09/29/world/middleeast/lebanon-beirut-strike-israel.html
 
