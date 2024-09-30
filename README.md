@@ -1,3 +1,11 @@
+**Man Who Shot 2 Outside Los Angeles Synagogues Gets 35 Years in Prison**\
+`The shootings took place in Pico-Robertson, a neighborhood with a large Jewish population, as the men were leaving services. They survived.`\
+https://nytimes.com/2024/09/30/us/synagogue-shooting-sentence-los-angeles.html
+
+**Tuesday Briefing: Israel conducts raids in Lebanon**\
+`Plus, creating fashion in prison.`\
+https://nytimes.com/2024/09/30/briefing/israel-lebanon-coal-harris-trump.html
+
 **In This Nuclear Family, Mental Illness Leads to a Meltdown**\
 `Betsy Lerner’s assured first novel, “Shred Sisters,” maps the effects of a daughter’s volatility on her parents and younger sister.`\
 https://nytimes.com/2024/09/30/books/review/shred-sisters-betsy-lerner.html
