@@ -1,3 +1,7 @@
+**Cardinals team many picked to surprise does not appear to be particularly close**\
+`The Cardinals do not have to win every Sunday, but they need to keep building, giving themselves a chance. This was nothing of the sort.`\
+https://nytimes.com/athletic/5804528/2024/09/30/arizona-cardinals-washington-commanders-jonathan-gannon-kyler-murray/
+
 **Connecticut Sun's win over Minnesota Lynx delivers the perfect WNBA playoffs showdown**\
 `MINNEAPOLIS — Basketball might be a game of runs, but Connecticut-versus-Minnesota basketball is a game of inches.`\
 https://nytimes.com/athletic/5805180/2024/09/30/minnesota-lynx-connecticut-sun-wnba-playoffs-showdown/
