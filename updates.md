@@ -1,3 +1,11 @@
+**With Klay Thompson, Mavs believe title 'dreams can be possible'**\
+`“I feel like our dreams can be possible because he’s here now,” Kyrie Irving said Monday.`\
+https://nytimes.com/athletic/5806736/2024/09/30/mavericks-klay-thompson-nba-jason-kidd/
+
+**Powell Points to Two More Normal-Size Rate Cuts This Year**\
+`Jerome H. Powell, chair of the Federal Reserve, said that central bankers will lower rates as much as needed, but have forecast two more quarter point rate cuts this year.`\
+https://nytimes.com/2024/09/30/business/economy/fed-chair-jerome-powell-interest-rate-cuts.html
+
 **Why Adams’s Successor in Brooklyn Returned 10 Gold Tea Sets From Turkey**\
 `Antonio Reynoso, the Brooklyn borough president, said he declined or returned gifts from Turkey and met with F.B.I. officials who said to be wary of such gifts.`\
 https://nytimes.com/2024/09/30/nyregion/adams-reynoso-turkey-gifts.html
