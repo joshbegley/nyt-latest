@@ -1,40 +1,40 @@
-**Facing a Big Test, Iran’s ‘Axis of Resistance’ Flails**\
-`Iran united militias to take on Israel, but as the Israelis pummel one, Hezbollah, the rest have so far largely failed to come to its aid.`\
-https://nytimes.com/2024/09/30/world/middleeast/iran-axis-of-resistance.html
+**Jayden Daniels and the Commanders' offense have been even better than you think**\
+`Daniels and company are setting the bar higher than anyone could have realistically expected. As in, prime Tom Brady and Aaron Rodgers high.`\
+https://nytimes.com/athletic/5805438/2024/09/30/jayden-daniels-commanders-offense-cardinals/
 
-**Senior South Korean Police Officer Sentenced to 3 Years Over Crowd Crush**\
-`Lee Im-jae, a former district chief, is the most senior official to be convicted in connection with the 2022 disaster that killed nearly 160 Halloween partygoers.`\
-https://nytimes.com/2024/09/30/world/asia/skorea-itaewon-police-chief-convicted.html
+**Geno Smith is knocking on the door of stardom. Now he must deliver in the spotlight**\
+`It seems few outside of Seattle have noticed how well Smith is playing. Can he change that Monday night against the Lions?`\
+https://nytimes.com/athletic/5798360/2024/09/30/geno-smith-seahawks-lions-underrated-mnf/
 
-**France's Griezmann retires from international football**\
-`France forward Antoine Griezmann has announced his retirement from international football at the age of 33.`\
-https://nytimes.com/athletic/5805508/2024/09/30/antoine-griezmann-international-reitrement-france/
+**Is Aaron Rodgers too good for the Jets?**\
+`Are the Jets heading down the same road the Packers took late in Mike McCarthy's tenure? Do they have time to get it right?`\
+https://nytimes.com/athletic/5805439/2024/09/30/aaron-rodgers-jets-robert-saleh/
 
-**Tarik Skubal is the AL Cy Young favorite. Meet the ‘role model’ he calls his brother**\
-`When Wil Jones joined Tarik Skubal's family when the two were teenagers, it helped set Skubal on the path that led him to MLB dominance.`\
-https://nytimes.com/athletic/5804270/2024/09/30/tarik-skubal-tigers-cy-young-brother/
+**For the Mets, a season's legacy is on the line: How will this team be remembered?**\
+`David Stearns and Carlos Mendoza can put a stamp on the first season of their era of Mets baseball.`\
+https://nytimes.com/athletic/5805261/2024/09/30/mets-braves-doubleheader-wild-card/
 
-**Chiefs keep surviving everyone's best shot, but margin for error gets slimmer with Rice injury**\
-`The Chiefs held the Chargers scoreless after the first quarter. Without Rashee Rice, the offense was able to generate just enough points.`\
-https://nytimes.com/athletic/5804920/2024/09/30/chiefs-win-rashee-rice-chargers/
+**In Reilly Smith, Rangers may have finally found their Kreider-Zibanejad linemate**\
+`"I really think the Rangers have been looking for a guy like Reilly," said former Ranger Brendan Smith, his brother.`\
+https://nytimes.com/athletic/5804313/2024/09/30/reilly-smith-rangers-top-line/
 
-**Commanders, winners of 3 straight, riding a high with Jayden Daniels leading the way**\
-`The prized rookie QB was again efficient and sharp in a lopsided win over the Cardinals as Washington improved to 3-1 on the season.`\
-https://nytimes.com/athletic/5804979/2024/09/30/commanders-jayden-daniels-cardinals/
+**Assessing 4-0 teams, from Vikings’ shocking start to Chiefs’ WR setback: Sando’s Pick Six**\
+`The Vikings' rise from nowhere recalls the '98 Vikings and '99 Rams. Meanwhile, Patrick Mahomes might have to adapt without his top target.`\
+https://nytimes.com/athletic/5801917/2024/09/30/nfl-chiefs-vikings-4-0-teams/
 
-**Lost Lives and an Epic Crisis in North Carolina**\
-`Scenes of devastation in the western part of the state, where the traces of Hurricane Helene destroyed some communities and stranded others.`\
-https://nytimes.com/2024/09/30/us/helene-north-carolina-photos-video.html
+**Mirtle: Why the Leafs are well over the salary cap — and the cuts that need to be made**\
+`Toronto's cap situation is going to be a compelling storyline all season. And it all starts with roster cutdown day a week away.`\
+https://nytimes.com/athletic/5799912/2024/09/30/maple-leafs-roster-salary-cap/
 
-**Eric Adams Gives New Meaning to Frequent-Flier Program**\
-`That doesn’t mean the charges will stick.`\
-https://nytimes.com/2024/09/30/opinion/eric-adams-kamala-harris.html
+**How Bobby Witt Jr. became ‘Bobby Baseball’: Nine stories on the road to superstardom **\
+`From "Waterfalls" walk-ups to homers for cash to setting speed records, he delivers. "Bobby is our version of Patrick Mahomes,” his GM says.`\
+https://nytimes.com/athletic/5803240/2024/09/30/bobby-witt-jr-royals-nine-star-stories/
 
-**Catching up with Gordon Hayward about retirement, injuries, Celtics championship and more**\
-`Hayward chats with The Athletic and reflects on his career and what's next.`\
-https://nytimes.com/athletic/5800432/2024/09/30/gordon-hayward-retirement-celtics-championship/
+**Cross-country drives and avoiding McDonald's: Inside the nomadic world of NHL players on PTOs**\
+`“It’s all part of the journey.... If you want to continue, sometimes you have to do unconventional things."`\
+https://nytimes.com/athletic/5799480/2024/09/30/nhl-players-pto/
 
-**They’ve Made Hats for McCain and Trump. And Obama and Harris.**\
-`One of the last remaining union-run hat factory in the country is in New Jersey. Over more than three decades, its workers have made hats for competing campaigns.`\
-https://nytimes.com/2024/09/30/style/unionwear-harris-walz-maga-hats.html
+**2025 NFL Draft QB Tracker: Cam Ward, Drew Allar, Jalen Milroe rising as September ends**\
+`In what's shaping up to be a muddled QB draft class, several prospects already have made moves over the first quarter of the season.`\
+https://nytimes.com/athletic/5803648/2024/09/30/nfl-draft-2025-quarterbacks-cam-ward-drew-allar/
 
