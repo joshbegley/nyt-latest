@@ -1,3 +1,7 @@
+**Connecticut Sun's win over Minnesota Lynx delivers the perfect WNBA playoffs showdown**\
+`MINNEAPOLIS — Basketball might be a game of runs, but Connecticut-versus-Minnesota basketball is a game of inches.`\
+https://nytimes.com/athletic/5805180/2024/09/30/minnesota-lynx-connecticut-sun-wnba-playoffs-showdown/
+
 **What’s on TV This Week: ‘Real Housewives’ and the Vice-Presidential Debate**\
 `The Bravo franchise will air two different premieres. And on Tuesday is the first debate between JD Vance and Tim Walz.`\
 https://nytimes.com/2024/09/30/arts/television/whats-on-tv-this-week-real-housewives-and-the-vice-presidential-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802586/2024/09/30/morgan-gibbs-white-forest-absenc
 **Newcastle will be OK. After so much change, they just needed somebody to say so**\
 `Newcastle summer of change is being extended into autumn, but against City they should that they are resilient`\
 https://nytimes.com/athletic/5802600/2024/09/30/newcastle-the-club-will-be-ok-eddie-howe/
-
-**What Mario Lemina's tears tell us about Wolves' emotional struggles**\
-`Saturday was not an aberration - three times in six games this season, Wolves have got into a good position only to let things slip.`\
-https://nytimes.com/athletic/5802545/2024/09/30/wolves-liverpool-mario-lemina/
 
