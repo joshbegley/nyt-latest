@@ -1,3 +1,11 @@
+**De Jong available to play against Young Boys - Flick**\
+`Hansi Flick says Frenkie de Jong is available to make his return from injury in Barcelona&#8217;s Champions League match against Young Boys on Tuesday.`\
+https://nytimes.com/athletic/5805755/2024/09/30/frenkie-de-jong-injury-return-barcelona/
+
+**USC final thoughts: What stood out in the Trojans' comeback over Wisconsin?**\
+`Miller Moss continues to excel. The offensive line showed some progress. Zion Branch made some plays. `\
+https://nytimes.com/athletic/5805686/2024/09/30/usc-trojans-miller-moss-wisconsin-minnesota/
+
 **Oasis Adds North American Shows to Reunion Tour**\
 `Liam and Noel Gallagher’s band will stop in three American cities plus Toronto and Mexico City in August and September 2025.`\
 https://nytimes.com/2024/09/30/arts/music/oasis-reunion-tour-north-america.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5805703/2024/09/30/ethan-ampadu-injury-leeds/
 **Here’s the latest on the race for the White House.**\
 `By Randy Pennell`\
 https://nytimes.com/live/2024/09/30/us/trump-harris-election/heres-the-latest-on-the-race-for-the-white-house
-
-**Dodgers takeaways ahead of their postseason bye week: Schedule, rehabs and more**\
-`The prospect of Shohei Ohtani's facing hitters in the postseason appears farfetched. `\
-https://nytimes.com/athletic/5804033/2024/09/30/dodgers-postseason-bye-week/
-
-**Blues roster projection 2.0: Line combinations, defensive pairs and who's on the bubble**\
-`The Blues cut 14 players on Sunday, trimming their training camp roster to 36.`\
-https://nytimes.com/athletic/5803320/2024/09/30/blues-roster-projection-line-combinations/
 
