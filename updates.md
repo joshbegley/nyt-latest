@@ -1,3 +1,7 @@
+**Stream These 11 Titles Before They Leave Netflix in October**\
+`A slew of TV shows and movies are leaving for U.S. subscribers this month. Here’s a roundup of the ones worth catching, including a few great horror picks for the season.`\
+https://nytimes.com/2024/09/30/arts/television/netflix-tv-movies-expiring-october.html
+
 **For Hours, He Clung to a Tree and Cried for Help. But None Came.**\
 `Bruce Tipton, 75, was in his trailer home when it was washed away by Tropical Storm Helene’s floodwaters. As his agonized family watched, he slipped into the raging river.`\
 https://nytimes.com/2024/09/30/us/hurricane-helene-marshall-north-carolina-floods.html
