@@ -1,3 +1,7 @@
+**The Athletic 134: Alabama is inevitable and back atop an all-SEC top four**\
+`After the wild swings of the Game of the Year, it's hard to know how to feel about both teams.`\
+https://nytimes.com/athletic/5804330/2024/09/30/college-football-rankings-134-teams-week-5/
+
 **Trippier and Tonali face late fitness calls before Newcastle's Carabao Cup tie**\
 `Newcastle United head coach Eddie Howe says a late call will be made regarding the availability of Kieran Trippier and Sandro Tonali ahead of Tuesday&#8217;s Carabao Cup tie against AFC Wimbledon.`\
 https://nytimes.com/athletic/5805443/2024/09/30/trippier-tonali-newcastle-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/here-are-the-
 **Live Updates: Hamas Says Its Leader in Lebanon Was Killed**\
 `The Hamas leader was killed in a refugee camp for Palestinians, the group said. A separate strike in Beirut damaged a residential building. Israel’s military did not immediately comment.`\
 https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah
-
-**Thompson: 49ers' Fred Warner — 'best linebacker in the game' — delivers again with pick 6**\
-`With the 49ers struggling again Sunday, Fred Warner got up, took off, and again created a moment to lift his team.`\
-https://nytimes.com/athletic/5804969/2024/09/30/san-francisco-49ers-fred-warner-interception-patriots/
 
