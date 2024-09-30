@@ -1,3 +1,7 @@
+**Chiefs' Rashee Rice feared to have torn ACL**\
+`Since joining the team in 2023, Rice leads the Chiefs in both receiving yards and receiving touchdowns. `\
+https://nytimes.com/athletic/5804382/2024/09/29/chiefs-rashee-rice-acl-tear/
+
 **Justin Jefferson sets the tone as unbeaten Vikings survive to beat Packers at Lambeau**\
 `The superstar receiver is proving his worth both on the field and in the locker room as Vikings hold off Packers' comeback attempt.`\
 https://nytimes.com/athletic/5804434/2024/09/29/justin-jefferson-vikings-packers-week-4/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804196/2024/09/29/twins-pohlad-falvey-baldelli-off
 **Colts hold off Steelers as Joe Flacco shows Anthony Richardson how to keep it simple**\
 `Can Richardson, blessed with Superman’s abilities, learn to be just as effective when they’re not needed?`\
 https://nytimes.com/athletic/5804228/2024/09/29/colts-win-anthony-richardson-joe-flacco-steelers/
-
-**After embarrassing loss, Eagles must find discipline during bye week**\
-`Mistakes in all parts of the game doomed the Eagles.`\
-https://nytimes.com/athletic/5803127/2024/09/29/eagles-loss-buccaneers-discipline-bye-week/
 
