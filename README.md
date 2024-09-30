@@ -30,7 +30,7 @@ https://nytimes.com/2024/09/30/nyregion/inmates-charged-mdc-brooklyn-jail.html
 `A change was probably necessary, but going from Zaidi to Posey is a shock. We won't know if the change worked for a while.`\
 https://nytimes.com/athletic/5806346/2024/09/30/sf-giants-buster-posey-farhan-zaidi-differences/
 
-**Martin questions Southampton player's character following Bournemouth defeat**\
+**Martin questions Southampton players' character following Bournemouth defeat**\
 `Southampton manager Russell Martin questioned his side&#8217;s character following their 3-1 defeat by Bournemouth at the Vitality Stadium on Monday.`\
 https://nytimes.com/athletic/5807351/2024/09/30/southampton-bournemouth-russell-martin/
 
