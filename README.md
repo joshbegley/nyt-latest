@@ -1,3 +1,11 @@
+**Full MLB playoff bracket set as Mets, Braves get in: Which teams could be on upset watch?**\
+`The playoffs begin Tuesday with the Wild Card Series in each league.`\
+https://nytimes.com/athletic/5807314/2024/09/30/full-mlb-playoff-bracket-2024/
+
+**Steph Curry previews the Warriors' upcoming season: 'We can be a relevant team'**\
+`No, the Warriors didn't make a splashy trade this summer. But Steph Curry shared a sense of optimism about what's next for Golden State. `\
+https://nytimes.com/athletic/5806308/2024/09/30/steph-curry-warriors-media-day/
+
 **Arizona Diamondbacks bounced from postseason contention on their day off**\
 `Snakes alive, no more.`\
 https://nytimes.com/athletic/5807646/2024/09/30/diamondbacks-eliminated-from-mlb-contention/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5807343/2024/09/30/chicago-bulls-outlook-media-day/
 **Two ways the Canadiens can cope with the loss of big-ticket forward Patrik Laine**\
 `Patrik Laine's injury leaves a big void in the Canadiens lineup, but it creates an avenue to acquiring what might be most vital to the team.`\
 https://nytimes.com/athletic/5807480/2024/09/30/canadiens-laine-injury-replacement-strategy/
-
-**Here are the latest developments.**\
-`Israel’s military said it had begun a “limited” invasion of southern Lebanon, targeting Hezbollah infrastructure in villages close to the Israel-Lebanon border.`\
-https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/cabinet-ground-op
-
-**Trump, No Stranger to Playing Storm Politics, Visits a Battered Georgia**\
-`In Valdosta, Ga., Donald Trump made a false claim about President Biden’s responsiveness and demonstrated his long-held instinct to view disaster response through the prism of his personal politics.`\
-https://nytimes.com/2024/09/30/us/politics/trump-georgia-hurricane-helene.html
 
