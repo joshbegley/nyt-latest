@@ -1,3 +1,7 @@
+**Sun hold on to defeat Lynx in Game 1 of WNBA semifinals**\
+`Sun will look to take a 2-0 series for Game 2 in Minneapolis.`\
+https://nytimes.com/athletic/5804933/2024/09/29/sun-lynx-wnba-semifinals-result/
+
 **Review: ‘The Hills of California,’ Alive With the Sound of Music**\
 `In Jez Butterworth’s compelling new play, four girls trained to sing close harmony wind up as acrimonious adults.`\
 https://nytimes.com/2024/09/29/theater/the-hills-of-california-review.html

@@ -1,3 +1,7 @@
+**Sun hold on to defeat Lynx in Game 1 of WNBA semifinals**\
+`Sun will look to take a 2-0 series for Game 2 in Minneapolis.`\
+https://nytimes.com/athletic/5804933/2024/09/29/sun-lynx-wnba-semifinals-result/
+
 **Review: ‘The Hills of California,’ Alive With the Sound of Music**\
 `In Jez Butterworth’s compelling new play, four girls trained to sing close harmony wind up as acrimonious adults.`\
 https://nytimes.com/2024/09/29/theater/the-hills-of-california-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804772/2024/09/29/san-francisco-giants-finish-2024
 **Why Yankees’ Anthony Rizzo is holding out hope he can play in ALDS**\
 `Could Rizzo really be an option to play in the American League Division Series, which starts Saturday?`\
 https://nytimes.com/athletic/5804692/2024/09/29/yankees-anthony-rizzo-injury-alds/
-
-**Chiefs' Rashee Rice feared to have torn ACL**\
-`Since joining the team in 2023, Rice leads the Chiefs in both receiving yards and receiving touchdowns. `\
-https://nytimes.com/athletic/5804382/2024/09/29/chiefs-rashee-rice-acl-tear/
 
