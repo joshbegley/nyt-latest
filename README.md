@@ -1,3 +1,7 @@
+**Roy Blakey, Ice Show Performer and Archivist, Is Dead at 86**\
+`He skated professionally for 15 years , but was best known for building a collection of more than 44,000 items, including some of Sonja Henie’s costumes and skates.`\
+https://nytimes.com/2024/09/30/arts/roy-blakey-dead.html
+
 **Stream These 11 Titles Before They Leave Netflix in October**\
 `A slew of TV shows and movies are leaving for U.S. subscribers this month. Here’s a roundup of the ones worth catching, including a few great horror picks for the season.`\
 https://nytimes.com/2024/09/30/arts/television/netflix-tv-movies-expiring-october.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/arts/television/fiona-harvey-baby-reindeer-netfli
 **College football best bets Week 6: Riding with UTEP, Syracuse and San Diego State**\
 `Austin Mock's projection model has identified three spreads to bet for Week 6 of college football.`\
 https://nytimes.com/athletic/5806716/2024/09/30/college-football-best-bets-week-6-utep-syracuse-san-diego-state/
-
-**Justice Dept. to Pay $22 Million to Settle Gender Bias Claims Against F.B.I.**\
-`As part of the proposed settlement, former female trainees can reapply to become agents and two outside experts will review the training program to make sure the evaluation process is fair.`\
-https://nytimes.com/2024/09/30/us/politics/fbi-gender-bias-settlement.html
 
