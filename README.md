@@ -1,3 +1,7 @@
+**Monthlong Fire Flares Up Again in Southern California**\
+`The Line fire, which has burned since Sept. 5, forced another evacuation order this weekend.`\
+https://nytimes.com/2024/09/30/us/line-fire-san-bernadino-evacuations.html
+
 **Democrats Sue Over Georgia Requirement That Ballots Be Counted by Hand**\
 `The lawsuit claims that the new rule would invite chaos on election night, delaying some reporting and putting the security of ballots at risk.`\
 https://nytimes.com/2024/09/30/us/politics/georgia-election-board-hand-counting-ballots-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802275/2024/09/30/2024-heisman-trophy-odds-jalen-m
 **Patriots sticking with Jacoby Brissett as starting QB**\
 `In Weeks 3 and 4, Brissett's passer rating of 74.3 ranks 31st in the NFL, according to Trumedia`\
 https://nytimes.com/athletic/5806214/2024/09/30/patriots-jacoby-brissett-starting/
-
-**USMNT Player Tracker: Pepi maxing out, Celtic place trust in Auston and Sargent's major impact**\
-`There is no stopping Christian Pulisic in Milan while Folarin Balogun's Monaco revival also features in our weekend roundup`\
-https://nytimes.com/athletic/5805962/2024/09/30/usmnt-pepi-celtic-trusty-sargent-pulisic-tracker/
 
