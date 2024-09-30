@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5804528/2024/09/30/arizona-cardinals-washington-commanders-jonathan-gannon-kyler-murray/
 
 **Connecticut Sun's win over Minnesota Lynx delivers the perfect WNBA playoffs showdown**\
-`MINNEAPOLIS — Basketball might be a game of runs, but Connecticut-versus-Minnesota basketball is a game of inches.`\
+`The Sun got the advantage in Game 1, stealing a win on the road, there's but a lot more (tightly contested) basketball to play.`\
 https://nytimes.com/athletic/5805180/2024/09/30/minnesota-lynx-connecticut-sun-wnba-playoffs-showdown/
 
 **What’s on TV This Week: ‘Real Housewives’ and the Vice-Presidential Debate**\
