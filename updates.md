@@ -1,3 +1,11 @@
+**California Forces a Rethink of A.I. Regulation**\
+`Gov. Gavin Newsom’s decision to veto wide-ranging set of rules for artificial intelligence companies underscores the political difficulty of policing the technology.`\
+https://nytimes.com/2024/09/30/business/dealbook/california-newsom-ai-bill.html
+
+**Here’s the latest on the race for the White House.**\
+`By Randy Pennell`\
+https://nytimes.com/live/2024/09/30/us/trump-harris-election/heres-the-latest-on-the-race-for-the-white-house
+
 **Dodgers takeaways ahead of their postseason bye week: Schedule, rehabs and more**\
 `The prospect of Shohei Ohtani's facing hitters in the postseason appears farfetched. `\
 https://nytimes.com/athletic/5804033/2024/09/30/dodgers-postseason-bye-week/
