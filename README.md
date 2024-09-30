@@ -1,3 +1,7 @@
+**Courtois out until after international break with injury**\
+`Real Madrid goalkeeper Thibaut Courtois is expected to be sidelined until after October&#8217;s international break with an abductor injury in his left leg.`\
+https://nytimes.com/athletic/5805532/2024/09/30/thibaut-courtois-injury-real-madrid-latest/
+
 **The Stakes on Abortion**\
 `We explain where Kamala Harris and Donald Trump stand on the issue.`\
 https://nytimes.com/2024/09/30/briefing/the-stakes-on-abortion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801917/2024/09/30/nfl-chiefs-vikings-4-0-teams/
 **In Reilly Smith, Rangers may have finally found their Kreider-Zibanejad linemate**\
 `"I really think the Rangers have been looking for a guy like Reilly," said former Ranger Brendan Smith, his brother.`\
 https://nytimes.com/athletic/5804313/2024/09/30/reilly-smith-rangers-top-line/
-
-**Mirtle: Why the Leafs are well over the salary cap — and the cuts that need to be made**\
-`Toronto's cap situation is going to be a compelling storyline all season. And it all starts with roster cutdown day a week away.`\
-https://nytimes.com/athletic/5799912/2024/09/30/maple-leafs-roster-salary-cap/
 
