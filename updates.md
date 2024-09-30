@@ -1,3 +1,7 @@
+**Twins' brass, from top down, will try to figure out how to clean up mess**\
+`After their collapse, the Twins must figure out a way to win back fans while also determining how to clean up their mess on the diamond. `\
+https://nytimes.com/athletic/5804196/2024/09/29/twins-pohlad-falvey-baldelli-offseason/
+
 **After disappointing season, Cardinals believe youth will be key in 2025**\
 `The Cardinals plan to go back to their roots and develop homegrown talent, like Michael McGreevy.`\
 https://nytimes.com/athletic/5803085/2024/09/29/cardinals-youth-movement-2025/
