@@ -1,3 +1,7 @@
+**Brock Purdy touts his wheels, flashes deep ball as 49ers' stabilizing force against Patriots**\
+`Purdy finished with 288 yards in Sunday's win, including a 53-yard strike that was his longest throw of the season so far.`\
+https://nytimes.com/athletic/5804877/2024/09/29/49ers-brock-purdy-scrambling-win-patriots/
+
 **Stocks Tumble in Japan Following Party’s Election of New Prime Minister**\
 `Stocks dropped after Japan’s governing party chose Shigeru Ishiba, a critic of the country’s longstanding ultralow interest rates, as its leader.`\
 https://nytimes.com/2024/09/29/business/japan-stocks-nikkei-shigeru-ishiba.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804434/2024/09/29/justin-jefferson-vikings-packers
 **John Ashton, ‘Beverly Hills Cop’ Actor, Dies at 76**\
 `Mr. Ashton was most widely recognized for his role as Sgt. John Taggart in the “Beverly Hills Cop” franchise.`\
 https://nytimes.com/2024/09/29/arts/beverly-hills-cop-john-ashton-dead.html
-
-**'It looks like an NBA roster': How New York Liberty's length could be semifinals key**\
-`The Liberty's long arms were all over the imprint of Game 1 and the 2-time defending champion Aces couldn’t stop what they knew was coming.`\
-https://nytimes.com/athletic/5804513/2024/09/29/liberty-aces-wnba-playoffs-length/
 
