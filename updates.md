@@ -1,3 +1,15 @@
+**'We beat ourselves': Both pillars of Steelers' winning formula went missing vs. Colts**\
+`The Steelers' undefeated start to the season ended after a comedy of errors in Indianapolis revealed many of their warts.`\
+https://nytimes.com/athletic/5804161/2024/09/29/steelers-loss-colts-defense-justin-fields/
+
+**Purdue dismisses offensive coordinator Graham Harrell**\
+`The Boilermakers managed only 224 yards of offense in a loss to Nebraska and are averaging 235 yards in three games against FBS competition.`\
+https://nytimes.com/athletic/5804292/2024/09/29/purdue-graham-harrell-offensive-coordinator/
+
+**The big winner in this Presidents Cup? Patrick Cantlay**\
+`Success in the majors has eluded Cantlay, but he's a certified match-play legend after his performance at Royal Montreal.`\
+https://nytimes.com/athletic/5804388/2024/09/29/patrick-cantlay-presidents-cup/
+
 **Astros vs. Tigers Wild Card Series preview: Predictions, pitching matchups and more**\
 `It's a very familiar face in October, the Astros, versus the surging Tigers, who are making their first playoff appearance in 10 years.`\
 https://nytimes.com/athletic/5803660/2024/09/29/astros-tigers-2024-wild-card-series-preview-predictions/

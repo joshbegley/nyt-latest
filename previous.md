@@ -1,3 +1,15 @@
+**'We beat ourselves': Both pillars of Steelers' winning formula went missing vs. Colts**\
+`The Steelers' undefeated start to the season ended after a comedy of errors in Indianapolis revealed many of their warts.`\
+https://nytimes.com/athletic/5804161/2024/09/29/steelers-loss-colts-defense-justin-fields/
+
+**Purdue dismisses offensive coordinator Graham Harrell**\
+`The Boilermakers managed only 224 yards of offense in a loss to Nebraska and are averaging 235 yards in three games against FBS competition.`\
+https://nytimes.com/athletic/5804292/2024/09/29/purdue-graham-harrell-offensive-coordinator/
+
+**The big winner in this Presidents Cup? Patrick Cantlay**\
+`Success in the majors has eluded Cantlay, but he's a certified match-play legend after his performance at Royal Montreal.`\
+https://nytimes.com/athletic/5804388/2024/09/29/patrick-cantlay-presidents-cup/
+
 **Astros vs. Tigers Wild Card Series preview: Predictions, pitching matchups and more**\
 `It's a very familiar face in October, the Astros, versus the surging Tigers, who are making their first playoff appearance in 10 years.`\
 https://nytimes.com/athletic/5803660/2024/09/29/astros-tigers-2024-wild-card-series-preview-predictions/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/29/us/politics/trump-harris-fentanyl.html
 **Chiefs pummel Justin Herbert but lose Rashee Rice in 17-10 win: Key takeaways**\
 `Kansas City finds another way to win a one-score game, marking its fourth 4-0 start in Mahomes' seven years as starter. `\
 https://nytimes.com/athletic/5803998/2024/09/29/chiefs-chargers-takeaways-result-score/
-
-**Jayden Daniels leads Commanders to 42-14 win over Cardinals: Takeaways**\
-`Daniels, who leads the NFL in completion percentage, completed 26-of-30 passes for 233 yards, one TD and one INT.`\
-https://nytimes.com/athletic/5802989/2024/09/29/commanders-cardinals-takeaways-result/
-
-**At last, progress for the Bears offense as the run game gets going against Rams**\
-`D'Andre Swift, Roschon Johnson were a solid one-two punch for the Bears on Sunday, helping them improve to 2-2.`\
-https://nytimes.com/athletic/5803989/2024/09/29/bears-dandre-swift-running-game-rams/
-
-**What to know from the United States' Presidents Cup win**\
-`The Americans' top five players all week were a combined 24-under-par on Sunday, leading matches for 53 holes and trailing for just five.`\
-https://nytimes.com/athletic/5804089/2024/09/29/presidents-cup-analysis-united-states-2024/
 
