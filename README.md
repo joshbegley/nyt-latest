@@ -1,3 +1,11 @@
+**Arsenal and Real Madrid interested in signing Brazilian prospect Vitor Reis**\
+`Arsenal and Real Madrid are among a host of top European clubs who have shown an interest in signing Palmeiras centre-back Vitor Reis.`\
+https://nytimes.com/athletic/5806575/2024/09/30/arsenal-real-madrid-vitor-reis/
+
+**The Rising Risk of a New Forever War**\
+`The “total victory” that Mr. Netanyahu and his cabinet are seeking over Hezbollah will not bring the absolute security that Israelis want and need.`\
+https://nytimes.com/2024/09/30/opinion/international-world/the-rising-risk-of-a-new-forever-war.html
+
 **California Will Allow Amsterdam-Like Cannabis Cafes**\
 `Marijuana businesses will be allowed to serve food and have live music performances as a way to attract more customers.`\
 https://nytimes.com/2024/09/30/us/cannabis-cafe-california-marijuana.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5806379/2024/09/30/sf-giants-farhan-zaidi-fired-bus
 **Robertson backs Alisson over player welfare concerns**\
 `Andy Robertson has echoed goalkeeper Alisson’s concern over player welfare and burnout.`\
 https://nytimes.com/athletic/5806468/2024/09/30/liverpool-robertsoon-football-schedule-calendar/
-
-**76ers’ Joel Embiid prioritizing health for playoffs**\
-`Embiid is ready to do whatever it takes to be healthy at the most important time. Even if it costs him personal acclaim.`\
-https://nytimes.com/athletic/5806238/2024/09/30/joel-embiid-76ers-health-priority/
-
-**Jimmy Carter Is the Un-Trump**\
-`As men and as presidents, they could not be more different.`\
-https://nytimes.com/live/2024/09/25/opinion/thepoint/jimmy-carter-contrast-trump
 
