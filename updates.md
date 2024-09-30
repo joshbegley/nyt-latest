@@ -1,3 +1,7 @@
+**Verizon Cellphone Users Report Outages Across the U.S.**\
+`More than 100,000 cases of Verizon outages have been reported across the country, according to the website Downdetector.`\
+https://nytimes.com/2024/09/30/business/verizon-outages-us.html
+
 **USMNT Player Tracker: Pepi maxing out, Celtic place trust in Auston and Sargent's major impact**\
 `There is no stopping Christian Pulisic in Milan while Folarin Balogun's Monaco revival also features in our weekend roundup`\
 https://nytimes.com/athletic/5805962/2024/09/30/usmnt-pepi-celtic-trusty-sargent-pulisic-tracker/
