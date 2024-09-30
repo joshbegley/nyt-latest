@@ -1,3 +1,7 @@
+**Roy Blakey, Ice Show Performer and Archivist, Is Dead at 86**\
+`He skated professionally for 15 years , but was best known for building a collection of more than 44,000 items, including some of Sonja Henie’s costumes and skates.`\
+https://nytimes.com/2024/09/30/arts/roy-blakey-dead.html
+
 **Stream These 11 Titles Before They Leave Netflix in October**\
 `A slew of TV shows and movies are leaving for U.S. subscribers this month. Here’s a roundup of the ones worth catching, including a few great horror picks for the season.`\
 https://nytimes.com/2024/09/30/arts/television/netflix-tv-movies-expiring-october.html
