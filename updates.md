@@ -1,3 +1,11 @@
+**Facing a Big Test, Iran’s ‘Axis of Resistance’ Flails**\
+`Iran united militias to take on Israel, but as the Israelis pummel one, Hezbollah, the rest have so far largely failed to come to its aid.`\
+https://nytimes.com/2024/09/30/world/middleeast/iran-axis-of-resistance.html
+
+**Senior South Korean Police Officer Sentenced to 3 Years Over Crowd Crush**\
+`Lee Im-jae, a former district chief, is the most senior official to be convicted in connection with the 2022 disaster that killed nearly 160 Halloween partygoers.`\
+https://nytimes.com/2024/09/30/world/asia/skorea-itaewon-police-chief-convicted.html
+
 **France's Griezmann retires from international football**\
 `France forward Antoine Griezmann has announced his retirement from international football at the age of 33.`\
 https://nytimes.com/athletic/5805508/2024/09/30/antoine-griezmann-international-reitrement-france/
