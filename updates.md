@@ -1,3 +1,11 @@
+**Can You Uncover the 13 Book Titles Hidden in This Text Puzzle?**\
+`The 1970s were known for their fashion, political turmoil, pop culture and a lot of significant books. See if you can spot popular fiction and nonfiction works of the era lurking in this short passage.`\
+https://nytimes.com/interactive/2024/09/30/books/review/70s-books-quiz.html
+
+**Britain Shuts Down Last Coal Plant, ‘Turning Its Back on Coal Forever’**\
+`The Ratcliffe-on-Soar plant was the last surviving coal-burning power station in a country that birthed the Industrial Revolution and fed it with coal.`\
+https://nytimes.com/2024/09/30/climate/britain-last-coal-power-plant.html
+
 **Why Mount Everest Is Growing Taller Every Year**\
 `Researchers say that two rivers merged some 89,000 years ago and gave the mightiest peak in the Himalayas a huge growth spurt.`\
 https://nytimes.com/2024/09/30/science/mount-everest-tallest-growing.html
