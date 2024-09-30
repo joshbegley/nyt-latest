@@ -1,3 +1,11 @@
+**Oasis Adds North American Shows to Reunion Tour**\
+`Liam and Noel Gallagher’s band will stop in three American cities plus Toronto and Mexico City in August and September 2025.`\
+https://nytimes.com/2024/09/30/arts/music/oasis-reunion-tour-north-america.html
+
+**How Spurs tore apart Manchester United in 45 minutes**\
+`A well-constructed plan and perfect execution from Tottenham exploited United's ongoing weakness with transitions`\
+https://nytimes.com/athletic/5802962/2024/09/30/manchester-united-tottenham-transitions-problem/
+
 **After U.S. Trip, Zelensky Returns to an Enduring War**\
 `Cities across Ukraine have suffered airstrikes in recent days, and Moscow is pressing a slow advance in the east. Kyiv has hit back against arms depots, trying to disrupt Russian logistics.`\
 https://nytimes.com/2024/09/30/world/europe/russia-attacks-east-ukraine-kursk.html
