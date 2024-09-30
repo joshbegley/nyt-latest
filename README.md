@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5804228/2024/09/29/colts-win-anthony-richardson-joe
 `Mistakes in all parts of the game doomed the Eagles.`\
 https://nytimes.com/athletic/5803127/2024/09/29/eagles-loss-buccaneers-discipline-bye-week/
 
-**Rodrigue: 1-3 Rams shorthanded enough without shooting themselves in the foot**\
+**Rodrigue: 1-3 Rams short-handed enough without shooting themselves in the foot**\
 `The Rams were struggling in the red zone entering the game and then went 1 for 4 against the Bears — costly in a one-score outcome.`\
 https://nytimes.com/athletic/5803664/2024/09/29/rams-mistakes-loss-bears-matthew-stafford/
 
