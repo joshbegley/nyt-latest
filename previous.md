@@ -1,3 +1,19 @@
+**We Watched Vance’s Old Debates. Here’s What We Learned.**\
+`Senator JD Vance assumed his first public office just last year. But to win that job, he had to survive about a dozen debates, sharpening his chops when facing opponents onstage.`\
+https://nytimes.com/2024/09/30/us/politics/vance-debate-style.html
+
+**We Watched Tim Walz’s Old Debates. Here’s What We Learned.**\
+`He may not be a lofty orator, but he has shown an ability to deliver punchy critiques with Everyman appeal.`\
+https://nytimes.com/2024/09/30/us/politics/tim-walz-debate-history.html
+
+**Israel’s Attack in Central Beirut Was Its First There in Years**\
+`Here’s a look at where the Israeli military has been striking in the Beirut area recently.`\
+https://nytimes.com/2024/09/30/world/middleeast/israels-attack-in-central-beirut-was-its-first-there-in-years.html
+
+**Inside a Kamala Harris Ad That Draws an Implicit Contrast on Character**\
+`Voters have signaled that they want to know more about the vice president. By leaning on her background as a prosecutor, this ad aims to fill in those gaps and assuage any worries.`\
+https://nytimes.com/2024/09/30/us/politics/inside-a-kamala-harris-ad-that-draws-an-implicit-contrast-on-character.html
+
 **Alabama film study: The good, bad and ugly of roller-coaster win over Georgia**\
 `Ryan Williams and Jalen Milroe combined on the game-winning play for Alabama. What else worked and what didn't for the Crimson Tide.`\
 https://nytimes.com/athletic/5805118/2024/09/30/alabama-football-film-study-georgia/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5805686/2024/09/30/usc-trojans-miller-moss-wisconsi
 **Oasis Adds North American Shows to Reunion Tour**\
 `Liam and Noel Gallagher’s band will stop in three American cities plus Toronto and Mexico City in August and September 2025.`\
 https://nytimes.com/2024/09/30/arts/music/oasis-reunion-tour-north-america.html
-
-**How Spurs tore apart Manchester United in 45 minutes**\
-`A well-constructed plan and perfect execution from Tottenham exploited United's ongoing weakness with transitions`\
-https://nytimes.com/athletic/5802962/2024/09/30/manchester-united-tottenham-transitions-problem/
-
-**After U.S. Trip, Zelensky Returns to an Enduring War**\
-`Cities across Ukraine have suffered airstrikes in recent days, and Moscow is pressing a slow advance in the east. Kyiv has hit back against arms depots, trying to disrupt Russian logistics.`\
-https://nytimes.com/2024/09/30/world/europe/russia-attacks-east-ukraine-kursk.html
-
-**Tennis Briefing: Six Kings Slam trailer, Naomi Osaka and Coco Gauff meet in Beijing**\
-`The Saudi Arabian exhibition event featuring Alcaraz, Sinner, Nadal, and Djokovic is the latest in the country's incursion into tennis`\
-https://nytimes.com/athletic/5805436/2024/09/30/six-kings-slam-trailer-tennis/
-
-**Kris Kristofferson: 12 Essential Songs**\
-`The country singer and songwriter, who died on Saturday at 88, tucked enduring aphorisms into tales about facing up to loss.`\
-https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-songs.html
 
