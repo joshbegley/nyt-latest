@@ -1,3 +1,15 @@
+**France's Griezmann retires from international football**\
+`France forward Antoine Griezmann has announced his retirement from international football at the age of 33.`\
+https://nytimes.com/athletic/5805508/2024/09/30/antoine-griezmann-international-reitrement-france/
+
+**Tarik Skubal is the AL Cy Young favorite. Meet the ‘role model’ he calls his brother**\
+`When Wil Jones joined Tarik Skubal's family when the two were teenagers, it helped set Skubal on the path that led him to MLB dominance.`\
+https://nytimes.com/athletic/5804270/2024/09/30/tarik-skubal-tigers-cy-young-brother/
+
+**Chiefs keep surviving everyone's best shot, but margin for error gets slimmer with Rice injury**\
+`The Chiefs held the Chargers scoreless after the first quarter. Without Rashee Rice, the offense was able to generate just enough points.`\
+https://nytimes.com/athletic/5804920/2024/09/30/chiefs-win-rashee-rice-chargers/
+
 **Commanders, winners of 3 straight, riding a high with Jayden Daniels leading the way**\
 `The prized rookie QB was again efficient and sharp in a lopsided win over the Cardinals as Washington improved to 3-1 on the season.`\
 https://nytimes.com/athletic/5804979/2024/09/30/commanders-jayden-daniels-cardinals/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/30/arts/design/manresa-island-park-norwalk-mcchord-i
 **Three Great Documentaries to Stream**\
 `This month’s picks cover Wisconsin moviemaking, New York music-making and Florida moneymaking.`\
 https://nytimes.com/2024/09/30/movies/three-great-documentaries-to-stream.html
-
-**Will the Real Midwest Please Stand Up?**\
-`The vice-presidential debate, pitting Senator JD Vance of Ohio against Gov. Tim Walz of Minnesota, shines the spotlight on a complicated region.`\
-https://nytimes.com/2024/09/30/books/review/vance-walz-vp-debate-midwest.html
-
-**State of the Race: A Calm Week and Perhaps the Clearest Picture Yet**\
-`It’s getting easier to trust that the news isn’t driving the numbers, and we take a closer look at the Hispanic vote.`\
-https://nytimes.com/2024/09/30/upshot/polling-trump-harris-election.html
-
-**Millions Could Lose Insurance Subsidies, Depending on the Election**\
-`The issue is getting less attention than a possible repeal of the Affordable Care Act, but it’s much more likely to happen.`\
-https://nytimes.com/2024/09/30/upshot/obamacare-election-trump-harris.html
 
