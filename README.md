@@ -1,3 +1,7 @@
+**Cardinals team many picked to surprise does not appear to be particularly close**\
+`The Cardinals do not have to win every Sunday, but they need to keep building, giving themselves a chance. This was nothing of the sort.`\
+https://nytimes.com/athletic/5804528/2024/09/30/arizona-cardinals-washington-commanders-jonathan-gannon-kyler-murray/
+
 **Connecticut Sun's win over Minnesota Lynx delivers the perfect WNBA playoffs showdown**\
 `MINNEAPOLIS — Basketball might be a game of runs, but Connecticut-versus-Minnesota basketball is a game of inches.`\
 https://nytimes.com/athletic/5805180/2024/09/30/minnesota-lynx-connecticut-sun-wnba-playoffs-showdown/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801351/2024/09/30/brighton-chelsea-defeat-premier-
 **In Morgan Gibbs-White's absence, his importance to Forest was made clear**\
 `Without his most creative player, Nuno's plan didn't work`\
 https://nytimes.com/athletic/5802586/2024/09/30/morgan-gibbs-white-forest-absence/
-
-**Newcastle will be OK. After so much change, they just needed somebody to say so**\
-`Newcastle summer of change is being extended into autumn, but against City they should that they are resilient`\
-https://nytimes.com/athletic/5802600/2024/09/30/newcastle-the-club-will-be-ok-eddie-howe/
 
