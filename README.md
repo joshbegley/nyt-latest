@@ -1,3 +1,7 @@
+**Ohio State film study: What worked — and what didn't — in the Buckeyes' win at Michigan State**\
+`The Buckeyes did a lot of things very well in the win at Michigan State, but there were a few things to nitpick after watching the film. `\
+https://nytimes.com/athletic/5805918/2024/09/30/ohio-state-buckeyes-film-study-michigan-state/
+
 **Why Mount Everest Is Growing Taller Every Year**\
 `Researchers say that two rivers merged some 89,000 years ago and gave the mightiest peak in the Himalayas a huge growth spurt.`\
 https://nytimes.com/2024/09/30/science/mount-everest-tallest-growing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/world/middleeast/saudi-arabia-palestine-financial
 **The Bounce: Five takeaways on Karl-Anthony Towns to New York**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5805688/2024/09/30/karl-anthony-towns-timberwolves-julius-randle-knicks-derrick-rose-bulls-wnba-playoffs-lynx-aces-liberty-sun-nba-the-bounce/
-
-**5 things Karl-Anthony Towns must do to succeed with the Knicks**\
-`Towns is a proven superstar on the offensive end. But his shortcomings will also be scrutinized in the pressure cooker of NYC.`\
-https://nytimes.com/athletic/5801642/2024/09/30/karl-anthony-towns-trade-new-york-knicks/
 
