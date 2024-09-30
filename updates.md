@@ -1,3 +1,11 @@
+**Signs of a looming Israeli ground invasion permeate the border.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/signs-of-a-looming-israeli-ground-invasion-permeated-the-border
+
+**Martin questions Southampton players' character following Bournemouth defeat**\
+`Southampton manager Russell Martin questioned his side&#8217;s character following their 3-1 defeat by Bournemouth at the Vitality Stadium on Monday.`\
+https://nytimes.com/athletic/5807351/2024/09/30/southampton-bournemouth-russell-martin/
+
 **Full Time: Another legend retires from NWSL**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5807484/2024/09/30/christine-sinclair-retire-nwsl-orlando-full-time/
