@@ -1,3 +1,15 @@
+**Why SEC, Big Ten are meeting to talk CFP access, scheduling arrangements**\
+`Conference leaders want a better understanding of what access to the 12-team CFP will be starting in 2026 before adjusting their schedules.`\
+https://nytimes.com/athletic/5807185/2024/09/30/sec-big-ten-cfp-bids-scheduling-agreement/
+
+**Inmates Are Charged in Killings at Federal Jail in Brooklyn**\
+`Federal prosecutors charged nine inmates at the troubled Metropolitan Detention Center in two killings and several assaults. One guard was charged in a shooting.`\
+https://nytimes.com/2024/09/30/nyregion/inmates-charged-mdc-brooklyn-jail.html
+
+**The Giants replaced Farhan Zaidi with Buster Posey. What comes next is a mystery**\
+`A change was probably necessary, but going from Zaidi to Posey is a shock. We won't know if the change worked for a while.`\
+https://nytimes.com/athletic/5806346/2024/09/30/sf-giants-buster-posey-farhan-zaidi-differences/
+
 **Martin questions Southampton player's character following Bournemouth defeat**\
 `Southampton manager Russell Martin questioned his side&#8217;s character following their 3-1 defeat by Bournemouth at the Vitality Stadium on Monday.`\
 https://nytimes.com/athletic/5807351/2024/09/30/southampton-bournemouth-russell-martin/
