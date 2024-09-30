@@ -1,3 +1,7 @@
+**After U.S. Trip, Zelensky Returns to an Enduring War**\
+`Cities across Ukraine have suffered airstrikes in recent days, and Moscow is pressing a slow advance in the east. Kyiv has hit back against arms depots, trying to disrupt Russian logistics.`\
+https://nytimes.com/2024/09/30/world/europe/russia-attacks-east-ukraine-kursk.html
+
 **Tennis Briefing: Six Kings Slam trailer, Naomi Osaka and Coco Gauff meet in Beijing**\
 `The Saudi Arabian exhibition event featuring Alcaraz, Sinner, Nadal, and Djokovic is the latest in the country's incursion into tennis`\
 https://nytimes.com/athletic/5805436/2024/09/30/six-kings-slam-trailer-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5803994/2024/09/30/chelsea-manchester-united-wsl-wp
 **Ducks depth chart analysis: How will the top six shake out?**\
 `Is there a chance the Ducks could get Trevor Zegras going with Mason McTavish and Troy Terry?`\
 https://nytimes.com/athletic/5804085/2024/09/30/anaheim-ducks-depth-chart-lines/
-
-**Le Pen and Her Party Go on Trial in France on E.U. Embezzlement Charges**\
-`Marine Le Pen and others are accused of using European funds for unrelated party expenses. The trial, expected to last two months, comes as her National Rally has gained more political sway.`\
-https://nytimes.com/2024/09/30/world/europe/le-pen-eu-france-embezzlement-trial.html
 

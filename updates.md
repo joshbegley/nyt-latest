@@ -1,3 +1,7 @@
+**After U.S. Trip, Zelensky Returns to an Enduring War**\
+`Cities across Ukraine have suffered airstrikes in recent days, and Moscow is pressing a slow advance in the east. Kyiv has hit back against arms depots, trying to disrupt Russian logistics.`\
+https://nytimes.com/2024/09/30/world/europe/russia-attacks-east-ukraine-kursk.html
+
 **Tennis Briefing: Six Kings Slam trailer, Naomi Osaka and Coco Gauff meet in Beijing**\
 `The Saudi Arabian exhibition event featuring Alcaraz, Sinner, Nadal, and Djokovic is the latest in the country's incursion into tennis`\
 https://nytimes.com/athletic/5805436/2024/09/30/six-kings-slam-trailer-tennis/
