@@ -1,3 +1,7 @@
+**Verizon Users Report Outages Across the U.S.**\
+`More than 95,000 cases of Verizon outages were reported across the country, according to the website Downdetector.`\
+https://nytimes.com/2024/09/30/business/verizon-outages-us.html
+
 **Dikembe Mutombo, a Towering N.B.A. Presence, Dies at 58**\
 `Mr. Mutombo, who did not begin playing basketball until adolescence, retired with the second-most blocked shots in league history.`\
 https://nytimes.com/2024/09/30/sports/dikembe-mutombo-dead.html

@@ -1,3 +1,7 @@
+**Verizon Users Report Outages Across the U.S.**\
+`More than 95,000 cases of Verizon outages were reported across the country, according to the website Downdetector.`\
+https://nytimes.com/2024/09/30/business/verizon-outages-us.html
+
 **Dikembe Mutombo, a Towering N.B.A. Presence, Dies at 58**\
 `Mr. Mutombo, who did not begin playing basketball until adolescence, retired with the second-most blocked shots in league history.`\
 https://nytimes.com/2024/09/30/sports/dikembe-mutombo-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5805925/2024/09/30/nhl-gaudreau-brothers-helmet-dec
 **Football Manager 25 to be released on November 26**\
 `Football Manager 2025 will be released on November 26.`\
 https://nytimes.com/athletic/5806054/2024/09/30/fm25-release-launch-date/
-
-**Here is the latest on the storm.**\
-`By Judson Jones`\
-https://nytimes.com/live/2024/09/30/weather/tropical-storm-kirk-hurricane/here-is-the-latest-on-the-storm
 
