@@ -1,3 +1,7 @@
+**Why Yankees’ Anthony Rizzo is holding out hope he can play in ALDS**\
+`Could Rizzo really be an option to play in the American League Division Series, which starts Saturday?`\
+https://nytimes.com/athletic/5804692/2024/09/29/yankees-anthony-rizzo-injury-alds/
+
 **Chiefs' Rashee Rice feared to have torn ACL**\
 `Since joining the team in 2023, Rice leads the Chiefs in both receiving yards and receiving touchdowns. `\
 https://nytimes.com/athletic/5804382/2024/09/29/chiefs-rashee-rice-acl-tear/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804207/2024/09/29/jets-loss-broncos-aaron-rodgers-
 **Twins' brass, from top down, will try to figure out how to clean up mess**\
 `After their collapse, the Twins must figure out a way to win back fans while also determining how to clean up their mess on the diamond. `\
 https://nytimes.com/athletic/5804196/2024/09/29/twins-pohlad-falvey-baldelli-offseason/
-
-**Colts hold off Steelers as Joe Flacco shows Anthony Richardson how to keep it simple**\
-`Can Richardson, blessed with Superman’s abilities, learn to be just as effective when they’re not needed?`\
-https://nytimes.com/athletic/5804228/2024/09/29/colts-win-anthony-richardson-joe-flacco-steelers/
 
