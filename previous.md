@@ -1,3 +1,7 @@
+**5 things Karl-Anthony Towns must do to succeed with the Knicks**\
+`Towns is a proven superstar on the offensive end. But his shortcomings will also be scrutinized in the pressure cooker of NYC.`\
+https://nytimes.com/athletic/5801642/2024/09/30/karl-anthony-towns-trade-new-york-knicks/
+
 **Can You Uncover the 13 Book Titles Hidden in This Text Puzzle?**\
 `The 1970s were known for their fashion, political turmoil, pop culture and a lot of significant books. See if you can spot popular fiction and nonfiction works of the era lurking in this short passage.`\
 https://nytimes.com/interactive/2024/09/30/books/review/70s-books-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/climate/global-climate-negotiations-trump.html
 **We Watched Vance’s Old Debates. Here’s What We Learned.**\
 `Senator JD Vance assumed his first public office just last year. But to win that job, he had to survive about a dozen debates, sharpening his chops when facing opponents onstage.`\
 https://nytimes.com/2024/09/30/us/politics/vance-debate-style.html
-
-**We Watched Tim Walz’s Old Debates. Here’s What We Learned.**\
-`He may not be a lofty orator, but he has shown an ability to deliver punchy critiques with Everyman appeal.`\
-https://nytimes.com/2024/09/30/us/politics/tim-walz-debate-history.html
 

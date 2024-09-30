@@ -1,3 +1,7 @@
+**5 things Karl-Anthony Towns must do to succeed with the Knicks**\
+`Towns is a proven superstar on the offensive end. But his shortcomings will also be scrutinized in the pressure cooker of NYC.`\
+https://nytimes.com/athletic/5801642/2024/09/30/karl-anthony-towns-trade-new-york-knicks/
+
 **Can You Uncover the 13 Book Titles Hidden in This Text Puzzle?**\
 `The 1970s were known for their fashion, political turmoil, pop culture and a lot of significant books. See if you can spot popular fiction and nonfiction works of the era lurking in this short passage.`\
 https://nytimes.com/interactive/2024/09/30/books/review/70s-books-quiz.html
