@@ -1,3 +1,15 @@
+**Bernal signs Barcelona contract extension with €500m release clause**\
+`Barcelona midfielder Marc Bernal has signed a contract extension that will keep him at the club until 2029.`\
+https://nytimes.com/athletic/5790467/2024/09/30/barcelona-marc-bernal-contract/
+
+**In Biden’s Last Months, Selfies on Air Force One and a Chorus of ‘Thank You, Joe’**\
+`In the months since President Biden dropped out of the race, Democratic voters have bombarded him with words of gratitude. But they are, at least in part, thanking him for quitting.`\
+https://nytimes.com/2024/09/30/us/politics/president-biden-democrats-farewell.html
+
+**‘Rust’ Armorer Is Denied New Trial After Dismissal of Alec Baldwin’s Case**\
+`The armorer’s lawyers argued that the same evidence dispute that led a judge to toss the actor’s charge had deprived their client of a fair trial.`\
+https://nytimes.com/2024/09/30/movies/rust-trial-hannah-gutierrez-reed.html
+
 **How Should We View and Treat Obesity?**\
 `Readers discuss an essay about whether it is a disease and how it should be diagnosed. Also: Fear in schools; natural disasters; political distractions.`\
 https://nytimes.com/2024/09/30/opinion/obesity-treatment.html
