@@ -1,3 +1,7 @@
+**F.T.C. Clears Chevron’s Purchase of Hess With Board Condition**\
+`The Federal Trade Commission said the oil giant can acquire the smaller company as long as the chief executive of Hess does not join its board.`\
+https://nytimes.com/2024/09/30/business/energy-environment/ftc-chevron-hess-board.html
+
 **Fed Chair Powell Underscores That More Rate Cuts Are Coming**\
 `Jerome H. Powell, chair of the Federal Reserve, said that inflation is down and unemployment up “significantly,” and that rates will move down “over time.”`\
 https://nytimes.com/2024/09/30/business/economy/fed-chair-jerome-powell-interest-rate-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/us/cannabis-cafe-california-marijuana.html
 **Biden Will Visit Region Ravaged by ‘History-Making’ Helene**\
 `The death toll from the storm has risen to more than 110 people across six states. Hundreds remain unaccounted for, and drinking water, gasoline and cellphone service are scarce.`\
 https://nytimes.com/2024/09/30/us/biden-helene-north-carolina.html
-
-**California Sues Hospital for Denying Patient an Emergency Abortion**\
-`The state said that despite a doctor’s recommendation and state law, a Catholic hospital declined to provide an abortion because fetal heart tones were present.`\
-https://nytimes.com/2024/09/30/health/california-abortion-lawsuit-st-joseph-hospital.html
 
