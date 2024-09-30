@@ -1,3 +1,11 @@
+**MLB Postseason Tiers: Which teams are contenders and which ones are just happy to be here**\
+`It's win-it-all or go home in shame for a few teams, while others have cemented their positive place in team history by making the dance.`\
+https://nytimes.com/athletic/5798557/2024/09/30/mlb-2024-postseason-tiers-yankees-dodgers-phillies/
+
+**Braves beat Mets in doubleheader nightcap to clinch 7th straight postseason berth**\
+`Braves headed to San Diego to face the Padres; Diamondbacks knocked out`\
+https://nytimes.com/athletic/5765420/2024/09/30/atlanta-braves-clinch-wild-card-series-mlb-playoffs/
+
 **More promises from Red Sox leadership: ‘Talk is cheap right now’**\
 ` The Red Sox are promising big changes. “I truly believe this is the last struggle, to be honest,” Alex Cora said. “I think this is it."`\
 https://nytimes.com/athletic/5807529/2024/09/30/red-sox-leadership-promises/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/30/us/politics/trump-georgia-hurricane-helene.html
 **Why Isn’t Harris Clobbering Trump? These 15 Swing State Voters Can Tell You.**\
 `The participants discuss what either candidate might say that could solidify their vote.`\
 https://nytimes.com/interactive/2024/09/30/opinion/harris-trump-swing-voters-focus-group.html
-
-**Full Time: Another legend retires from NWSL**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/5807484/2024/09/30/christine-sinclair-retire-nwsl-orlando-full-time/
-
-**NFL won't suspend Brandon McManus after investigation**\
-`Brian McCarthy, the NFL's vice president of communications, told ESPN that the investigation included interviews with more than 30 people.`\
-https://nytimes.com/athletic/5806904/2024/09/30/brandon-mcmanus-jaguars-kicker-nfl-investigation-cleared/
 
