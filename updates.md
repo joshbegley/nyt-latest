@@ -1,3 +1,7 @@
+**Fed Chair Powell Underscores That More Rate Cuts Are Coming**\
+`Jerome H. Powell, chair of the Federal Reserve, said that inflation is down and unemployment up “significantly,” and that rates will move down “over time.”`\
+https://nytimes.com/2024/09/30/business/economy/fed-chair-jerome-powell-interest-rate-cuts.html
+
 **NFL Week 5 odds, schedule: Vikings favored over Jets in London and several close matchups**\
 `NFL Week 5 features the "London Game" between the Vikings and Jets and only a few big favorites across the board.`\
 https://nytimes.com/athletic/5805965/2024/09/30/nfl-week-5-odds-spreads-schedule-vikings-jets-london/
