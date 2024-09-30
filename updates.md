@@ -1,3 +1,7 @@
+**Middleton will be limited in Bucks camp after ankle surgeries**\
+`The forward said he hasn't discussed a specific playing time plan with the team beyond training camp.`\
+https://nytimes.com/athletic/5806045/2024/09/30/khris-middleton-injury-bucks-ankle-update/
+
 **F.T.C. Clears Chevron’s Purchase of Hess With Board Condition**\
 `The Federal Trade Commission said the oil giant can acquire the smaller company as long as the chief executive of Hess does not join its board.`\
 https://nytimes.com/2024/09/30/business/energy-environment/ftc-chevron-hess-board.html
