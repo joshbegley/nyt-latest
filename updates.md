@@ -1,3 +1,11 @@
+**49ers minutia minute: From Malik Mustapha to Evan Anderson, rookies played big role in win**\
+`Seven different rookies combined for 181 snaps on offense and defense in Sunday's win over the New England Patriots`\
+https://nytimes.com/athletic/5806844/2024/09/30/49ers-snap-counts-patriots-mustapha-anderson/
+
+**Why Trumponomics Could Lead to Trumpflation**\
+`The former president is contemplating policies that would act like a self-inflicted pandemic.`\
+https://nytimes.com/2024/09/30/opinion/trump-inflation.html
+
 **Cruise, G.M.’s Self-Driving Unit, Will Pay $1.5 Million Federal Fine**\
 `The General Motors subsidiary reached a settlement with the main auto safety regulator after one of its self-driving taxis struck a pedestrian in San Francisco last year.`\
 https://nytimes.com/2024/09/30/business/gm-cruise-nhtsa-fine.html

@@ -1,3 +1,11 @@
+**49ers minutia minute: From Malik Mustapha to Evan Anderson, rookies played big role in win**\
+`Seven different rookies combined for 181 snaps on offense and defense in Sunday's win over the New England Patriots`\
+https://nytimes.com/athletic/5806844/2024/09/30/49ers-snap-counts-patriots-mustapha-anderson/
+
+**Why Trumponomics Could Lead to Trumpflation**\
+`The former president is contemplating policies that would act like a self-inflicted pandemic.`\
+https://nytimes.com/2024/09/30/opinion/trump-inflation.html
+
 **Cruise, G.M.’s Self-Driving Unit, Will Pay $1.5 Million Federal Fine**\
 `The General Motors subsidiary reached a settlement with the main auto safety regulator after one of its self-driving taxis struck a pedestrian in San Francisco last year.`\
 https://nytimes.com/2024/09/30/business/gm-cruise-nhtsa-fine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/30/climate/hurricane-helene-inland-rains.html
 **Russia to Boost Defense Budget as Ukraine War Drags On**\
 `The Kremlin plans a 25 percent increase to more than $145 billion in 2025, a year in which it had intended to cut military spending.`\
 https://nytimes.com/2024/09/30/world/europe/russia-defense-budget-ukraine-war.html
-
-**Trump Says ‘One Really Violent Day’ Would End Property Crime**\
-`The remarks were the latest example of his praise for executive power and force in imposing order, this time over crimes the F.B.I. said last week were falling.`\
-https://nytimes.com/2024/09/30/us/politics/trump-crime-crackdown-rough.html
-
-**The Athletic has free newsletters across many sports. Sign up here!**\
-`Did you know The Athletic has a portfolio of eight newsletters? Well, now you do!`\
-https://nytimes.com/athletic/5803046/2024/09/30/the-athletic-newsletters-sign-up/
 
