@@ -1,3 +1,11 @@
+**What’s on TV This Week: ‘Real Housewives’ and the Vice-Presidential Debate**\
+`The Bravo franchise will air two different premieres. And on Tuesday is the first debate between JD Vance and Tim Walz.`\
+https://nytimes.com/2024/09/30/arts/television/whats-on-tv-this-week-real-housewives-and-the-vice-presidential-debate.html
+
+**Britain Is Quitting Coal. The World Is Watching.**\
+`Few in Britain will mourn the passing of coal, but it’s hard not to feel a little nervous about what, at its heart, is an experiment, one fraught with danger.`\
+https://nytimes.com/2024/09/30/opinion/england-coal-wind-power.html
+
 **Leicester showed resilience against Arsenal. Is this turning point for Cooper?**\
 `The squad seems to have a determined mindset after having to fight back in five of their opening league games. That must encourage Cooper.`\
 https://nytimes.com/athletic/5802594/2024/09/30/leicester-arsenal-pressure-cooper-hope/
