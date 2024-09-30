@@ -1,3 +1,15 @@
+**Based on a True Story, or a True Story? In ‘Baby Reindeer’ Lawsuit, Words Matter**\
+`A defamation suit against Netflix boils down to how the company presented its story about Martha Scott, a fictionalization of what the show’s creator has described as a real-life stalking incident.`\
+https://nytimes.com/2024/09/30/arts/television/fiona-harvey-baby-reindeer-netflix-lawsuit.html
+
+**College football best bets Week 6: Riding with UTEP, Syracuse and San Diego State**\
+`Austin Mock's projection model has identified three spreads to bet for Week 6 of college football.`\
+https://nytimes.com/athletic/5806716/2024/09/30/college-football-best-bets-week-6-utep-syracuse-san-diego-state/
+
+**Justice Dept. to Pay $22 Million to Settle Gender Bias Claims Against F.B.I.**\
+`As part of the proposed settlement, former female trainees can reapply to become agents and two outside experts will review the training program to make sure the evaluation process is fair.`\
+https://nytimes.com/2024/09/30/us/politics/fbi-gender-bias-settlement.html
+
 **Justice Dept. to Pay $22 Million to Settle Claims of Gender Bias**\
 `As part of the proposed settlement, former female F.B.I. trainees can reapply to become agents and two outside experts will review the training program to make sure the evaluation process is fair.`\
 https://nytimes.com/2024/09/30/us/politics/fbi-gender-bias-settlement.html
