@@ -1,3 +1,7 @@
+**Review: ‘The Hills of California,’ Alive With the Sound of Music**\
+`In Jez Butterworth’s compelling new play, four girls trained to sing close harmony wind up as acrimonious adults.`\
+https://nytimes.com/2024/09/29/theater/the-hills-of-california-review.html
+
 **A Strike in Central Beirut Damages a Building**\
 `If the explosion is confirmed to be an Israeli attack, it would be the first Israeli strike within the Lebanese capital since the 2006 war with Hezbollah.`\
 https://nytimes.com/2024/09/29/world/middleeast/lebanon-beirut-strike-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804692/2024/09/29/yankees-anthony-rizzo-injury-ald
 **Chiefs' Rashee Rice feared to have torn ACL**\
 `Since joining the team in 2023, Rice leads the Chiefs in both receiving yards and receiving touchdowns. `\
 https://nytimes.com/athletic/5804382/2024/09/29/chiefs-rashee-rice-acl-tear/
-
-**Justin Jefferson sets the tone as unbeaten Vikings survive to beat Packers at Lambeau**\
-`The superstar receiver is proving his worth both on the field and in the locker room as Vikings hold off Packers' comeback attempt.`\
-https://nytimes.com/athletic/5804434/2024/09/29/justin-jefferson-vikings-packers-week-4/
 
