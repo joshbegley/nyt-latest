@@ -11,8 +11,8 @@ https://nytimes.com/2024/09/30/us/california-bans-legacy-admissions-private-univ
 `\
 https://nytimes.com/paidpost/2024-08-15/.html
 
-**Verizon Users Report Outages Across the U.S.**\
-`More than 95,000 cases of Verizon outages were reported across the country, according to the website Downdetector.`\
+**Verizon Cellphone Users Report Outages Across the U.S.**\
+`More than 100,000 cases of Verizon outages have been reported across the country, according to the website Downdetector.`\
 https://nytimes.com/2024/09/30/business/verizon-outages-us.html
 
 **Dikembe Mutombo, a Towering N.B.A. Presence, Dies at 58**\
