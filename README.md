@@ -1,3 +1,7 @@
+**After disappointing season, Cardinals believe youth will be key in 2025**\
+`The Cardinals plan to go back to their roots and develop homegrown talent, like Michael McGreevy.`\
+https://nytimes.com/athletic/5803085/2024/09/29/cardinals-youth-movement-2025/
+
 **Jokes Around**\
 `Alexander Liebeskind opens our solving week.`\
 https://nytimes.com/2024/09/29/crosswords/daily-puzzle-2024-09-30.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804314/2024/09/29/mets-braves-wild-card-doublehead
 **'We beat ourselves': Both pillars of Steelers' winning formula went missing vs. Colts**\
 `The Steelers' undefeated start to the season ended after a comedy of errors in Indianapolis revealed many of their warts.`\
 https://nytimes.com/athletic/5804161/2024/09/29/steelers-loss-colts-defense-justin-fields/
-
-**Purdue dismisses offensive coordinator Graham Harrell**\
-`The Boilermakers managed only 224 yards of offense in a loss to Nebraska and are averaging 235 yards in three games against FBS competition.`\
-https://nytimes.com/athletic/5804292/2024/09/29/purdue-graham-harrell-offensive-coordinator/
 
