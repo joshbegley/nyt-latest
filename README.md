@@ -1,3 +1,11 @@
+**More promises from Red Sox leadership: ‘Talk is cheap right now’**\
+` The Red Sox are promising big changes. “I truly believe this is the last struggle, to be honest,” Alex Cora said. “I think this is it."`\
+https://nytimes.com/athletic/5807529/2024/09/30/red-sox-leadership-promises/
+
+**Sony Pictures Names Ravi Ahuja C.E.O.**\
+`Mr. Ahuja, president and chief operating officer of Sony Pictures Entertainment, will succeed its current chief executive, Tony Vinciquerra.`\
+https://nytimes.com/2024/09/30/business/media/sony-ravi-ahuja.html
+
 **A.J. Hinch is back in the postseason, in a place where he's hard to forget**\
 `It took five years for A.J. Hinch to get back to the playoffs. He'll do it at the park where he won 16 postseason games with the Astros.`\
 https://nytimes.com/athletic/5807578/2024/09/30/tigers-aj-hinch-astros-mlb-postseason/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5807484/2024/09/30/christine-sinclair-retire-nwsl-o
 **NFL won't suspend Brandon McManus after investigation**\
 `Brian McCarthy, the NFL's vice president of communications, told ESPN that the investigation included interviews with more than 30 people.`\
 https://nytimes.com/athletic/5806904/2024/09/30/brandon-mcmanus-jaguars-kicker-nfl-investigation-cleared/
-
-**Cerebras, an A.I. Chipmaker Trying to Take On Nvidia, Files for an I.P.O.**\
-`The Silicon Valley company would be among the first A.I. companies to go public since the release of ChatGPT nearly two years ago.`\
-https://nytimes.com/2024/09/30/technology/cerebras-ai-chips-ipo.html
-
-**Signs of a looming Israeli ground invasion permeate the border.**\
-`By Natan Odenheimer`\
-https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/signs-of-a-looming-israeli-ground-invasion-permeated-the-border
 
