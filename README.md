@@ -1,3 +1,7 @@
+**Imagining the true horror of FIFA's World Cup final half-time show**\
+`Salt Bae, Black Eyed Peas (but not the new stuff) and ending world hunger - Gianni Infantino's big extravaganza 'revealed'`\
+https://nytimes.com/athletic/5805552/2024/09/30/fifa-world-cup-half-time-show/
+
 **Billie Eilish Brings a Master Class in Intimacy to the Arena Stage**\
 `Hit Me Hard and Soft: The Tour opened in Canada on Sunday night, showcasing the 22-year-old pop star’s gift for dynamics, dramatics and audience engagement.`\
 https://nytimes.com/2024/09/30/arts/music/billie-eilish-hit-me-hard-and-soft-tour-review.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/09/30/sports/dikembe-mutombo-dead.html
 **U.S. and Allies Sound Alarm Over War Ties Among Axis of Adversaries**\
 `The Biden administration is struggling to halt cooperation among Russia, China, North Korea and Iran. It feels urgency over the wars in Ukraine and the Middle East while also aiming to protect Taiwan.`\
 https://nytimes.com/2024/09/30/us/politics/us-axis-china-iran-russia.html
-
-**Hall of Famer Mutombo, 58, dies of brain cancer**\
-`The 7-foot-2 center averaged 9.8 points, 10.3 rebounds and 2.8 blocks per game, earning eight All-Star and three All-NBA selections.`\
-https://nytimes.com/athletic/5806126/2024/09/30/dikembe-mutumbo-cancer-died-nba-news/
 
