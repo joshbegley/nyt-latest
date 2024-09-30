@@ -1,3 +1,7 @@
+**For Hours, He Clung to a Tree and Cried for Help. But None Came.**\
+`Bruce Tipton, 75, was in his trailer home when it was washed away by Tropical Storm Helene’s floodwaters. As his agonized family watched, he slipped into the raging river.`\
+https://nytimes.com/2024/09/30/us/hurricane-helene-marshall-north-carolina-floods.html
+
 **NHL waiver tracker: Best players on the wire throughout 2024-25 preseason**\
 `Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
 https://nytimes.com/athletic/5799672/2024/09/30/nhl-waivers-tracker-preseason/

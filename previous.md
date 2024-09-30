@@ -1,3 +1,7 @@
+**For Hours, He Clung to a Tree and Cried for Help. But None Came.**\
+`Bruce Tipton, 75, was in his trailer home when it was washed away by Tropical Storm Helene’s floodwaters. As his agonized family watched, he slipped into the raging river.`\
+https://nytimes.com/2024/09/30/us/hurricane-helene-marshall-north-carolina-floods.html
+
 **What to Know About the Axis of Resistance, the Iran-backed Militia Network**\
 `The alliance is under scrutiny after the recent Israeli strikes in Lebanon.`\
 https://nytimes.com/article/axis-resistance-iran-militia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/us/politics/fbi-gender-bias-settlement.html
 **Pennsylvania Republicans Lag Democrats in Early Mail Ballot Requests**\
 `Encouraging voters to cast mail ballots — and cast them early — benefits political campaigns. But former President Donald J. Trump’s skepticism has hurt Republican efforts in a key state.`\
 https://nytimes.com/2024/09/30/us/politics/pennsylvania-republicans-mail-voting.html
-
-**NHL waiver tracker: Best players on the wire throughout 2024-25 preseason**\
-`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
-https://nytimes.com/athletic/5799672/2024/09/30/nhl-waivers-tracker-preseason/
 
