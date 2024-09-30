@@ -1,3 +1,11 @@
+**Dozens Feared Dead After Migrant Boat Sinks Off Spain**\
+`At least nine people are known to have died in a sinking off the Canary Islands and 48 more are missing, the latest disaster on the perilous Atlantic crossing from West Africa.`\
+https://nytimes.com/2024/09/30/world/europe/spain-migrant-ship-canary-islands.html
+
+**Tester’s Senate Fate Could Make or Break a Harris Presidency**\
+`With Democrats waging an uphill battle to hold the Senate, the vice president, should she win, could end up facing a Republican firewall with veto power over her cabinet, court picks and legislation.`\
+https://nytimes.com/2024/09/30/us/politics/tester-senate-harris-republicans.html
+
 **With Klay Thompson, Mavs believe title 'dreams can be possible'**\
 `“I feel like our dreams can be possible because he’s here now,” Kyrie Irving said Monday.`\
 https://nytimes.com/athletic/5806736/2024/09/30/mavericks-klay-thompson-nba-jason-kidd/
