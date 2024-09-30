@@ -1,3 +1,11 @@
+**Full Time: Another legend retires from NWSL**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5807484/2024/09/30/christine-sinclair-retire-nwsl-orlando-full-time/
+
+**NFL won't suspend Brandon McManus after investigation**\
+`Brian McCarthy, the NFL's vice president of communications, told ESPN that the investigation included interviews with more than 30 people.`\
+https://nytimes.com/athletic/5806904/2024/09/30/brandon-mcmanus-jaguars-kicker-nfl-investigation-cleared/
+
 **Cerebras, an A.I. Chipmaker Trying to Take On Nvidia, Files for an I.P.O.**\
 `The Silicon Valley company would be among the first A.I. companies to go public since the release of ChatGPT nearly two years ago.`\
 https://nytimes.com/2024/09/30/technology/cerebras-ai-chips-ipo.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5807351/2024/09/30/southampton-bournemouth-russell-
 **In an instant classic, Mets clinch playoff berth with win over Braves**\
 `Before the ninth inning, Francisco Lindor told his teammates: “Embrace the moment. Fight.”`\
 https://nytimes.com/athletic/5807335/2024/09/30/mets-clinch-braves-wild-card/
-
-**Five moments that endeared Dikembe Mutombo to the world**\
-`The Basketball Hall of Famer leaves behind a mammoth legacy. Here are five of his most memorable moments that endeared Mutombo to the world.`\
-https://nytimes.com/athletic/5806479/2024/09/30/dikembe-mutombo-top-moments/
-
-**Kawhi Leonard 'very cautious' managing knee since procedure**\
-`Leonard’s chronically murky status comes in the wake of Paul George, his sidekick for five seasons in LA, having left in free agency.`\
-https://nytimes.com/athletic/5807050/2024/09/30/kawhi-leonard-surgery-recovery-clippers-james-harden/
 

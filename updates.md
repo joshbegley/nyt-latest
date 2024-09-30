@@ -1,3 +1,11 @@
+**Full Time: Another legend retires from NWSL**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5807484/2024/09/30/christine-sinclair-retire-nwsl-orlando-full-time/
+
+**NFL won't suspend Brandon McManus after investigation**\
+`Brian McCarthy, the NFL's vice president of communications, told ESPN that the investigation included interviews with more than 30 people.`\
+https://nytimes.com/athletic/5806904/2024/09/30/brandon-mcmanus-jaguars-kicker-nfl-investigation-cleared/
+
 **Cerebras, an A.I. Chipmaker Trying to Take On Nvidia, Files for an I.P.O.**\
 `The Silicon Valley company would be among the first A.I. companies to go public since the release of ChatGPT nearly two years ago.`\
 https://nytimes.com/2024/09/30/technology/cerebras-ai-chips-ipo.html
