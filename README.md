@@ -1,3 +1,11 @@
+**Greenberg: Can the Bulls win a lot of games this season? Probably not, but they'll try**\
+`There's no point stressing yourself out over the Bulls. But give them credit for this. They’re promising absolutely nothing at media day.`\
+https://nytimes.com/athletic/5807343/2024/09/30/chicago-bulls-outlook-media-day/
+
+**Two ways the Canadiens can cope with the loss of big-ticket forward Patrik Laine**\
+`Patrik Laine's injury leaves a big void in the Canadiens lineup, but it creates an avenue to acquiring what might be most vital to the team.`\
+https://nytimes.com/athletic/5807480/2024/09/30/canadiens-laine-injury-replacement-strategy/
+
 **Here are the latest developments.**\
 `Israel’s leadership approved a limited invasion of southern Lebanon, involving a small number of commando units.`\
 https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/cabinet-ground-op
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/signs-of-a-lo
 **Internet Drug Ring Tricked Buyers With Fake and Deadly Pills, U.S. Says**\
 `The drugs, which resembled real pharmaceuticals, killed nine people, prosecutors said. They were laced with fentanyl and methamphetamine.`\
 https://nytimes.com/2024/09/30/nyregion/online-pharmacies-fake-pills-fentanyl.html
-
-**Why SEC, Big Ten are meeting to talk CFP access, scheduling arrangements**\
-`Conference leaders want a better understanding of what access to the 12-team CFP will be starting in 2026 before adjusting their schedules.`\
-https://nytimes.com/athletic/5807185/2024/09/30/sec-big-ten-cfp-bids-scheduling-agreement/
-
-**Inmates Are Charged in Killings at Federal Jail in Brooklyn**\
-`Federal prosecutors charged nine inmates at the troubled Metropolitan Detention Center in two killings and several assaults. One guard was charged in a shooting.`\
-https://nytimes.com/2024/09/30/nyregion/inmates-charged-mdc-brooklyn-jail.html
 
