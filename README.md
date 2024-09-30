@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5804139/2024/09/29/bengals-win-joe-burrow-offense-p
 https://nytimes.com/athletic/5804150/2024/09/29/panthers-andy-dalton-vibe-bryce-young-bengals/
 
 **How Darnell Mooney's savvy move saved Falcons' sputtering offense against Saints**\
-`ATLANTA — Kirk Cousins and Darnell Mooney sit next to each other in Atlanta’s locker room at the Falcons’ practice facility, which regularly reminds Cousins how seriously Mooney takes football.`\
+`The Atlanta Falcons beat the New Orleans Saints 26-24 on Sunday to even the all-time series at 55 wins each.`\
 https://nytimes.com/athletic/5804023/2024/09/29/falcons-darnell-mooney-younghoe-koo-saints/
 
 **Late defensive stand powers Raiders past Browns 20-16: Takeaways**\
