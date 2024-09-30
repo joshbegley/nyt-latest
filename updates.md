@@ -1,3 +1,15 @@
+**Here’s are the latest developments.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/heres-are-the-latest-developments
+
+**North Carolina Officials Begin Post-Helene Election Planning**\
+`While the region hit hardest is largely rural, it holds a healthy share of the state’s nearly 7.7 million registered voters.`\
+https://nytimes.com/2024/09/30/us/helene-north-carolina-elections.html
+
+**In Booming Asheville, Residents Rethink Their Sense of Safety**\
+`Worries of flooding had not been top of mind as the mountain-ringed city flourished in recent years as a haven for artists, chefs, brewmasters, entrepreneurs and retirees.`\
+https://nytimes.com/2024/09/30/us/asheville-hurricane-helene-damage.html
+
 **Pete Rose, Baseball Star Who Earned Glory and Shame, Dies at 83**\
 `One of the sport’s greatest players, he set a record with 4,256 career hits. But his gambling led to a lifetime ban and kept him out of the Hall of Fame.`\
 https://nytimes.com/2024/09/30/sports/baseball/pete-rose-baseball-star-who-earned-glory-and-shame-dies-at-83.html
