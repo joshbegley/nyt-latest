@@ -1,4 +1,4 @@
-**'They whooped our butt': Disastrous trick play, defensive flaws sink Bills against Ravens**\
+**Disastrous trick play, defensive flaws sink Bills against Ravens: 'They whooped our butt'**\
 `Buffalo briefly battled back, then faltered again.`\
 https://nytimes.com/athletic/5805266/2024/09/30/bills-ravens-josh-allen-joe-brady-derrick-henry/
 
