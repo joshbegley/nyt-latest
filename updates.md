@@ -1,3 +1,11 @@
+**Chiefs' Rashee Rice feared to have torn ACL**\
+`Since joining the team in 2023, Rice leads the Chiefs in both receiving yards and receiving touchdowns. `\
+https://nytimes.com/athletic/5804382/2024/09/29/chiefs-rashee-rice-acl-tear/
+
+**'It looks like an NBA roster': How New York Liberty's length could be semifinals key**\
+`The Liberty's long arms were all over the imprint of Game 1 and the 2-time defending champion Aces couldn’t stop what they knew was coming.`\
+https://nytimes.com/athletic/5804513/2024/09/29/liberty-aces-wnba-playoffs-length/
+
 **Justin Jefferson sets the tone as unbeaten Vikings survive to beat Packers at Lambeau**\
 `The superstar receiver is proving his worth both on the field and in the locker room as Vikings hold off Packers' comeback attempt.`\
 https://nytimes.com/athletic/5804434/2024/09/29/justin-jefferson-vikings-packers-week-4/

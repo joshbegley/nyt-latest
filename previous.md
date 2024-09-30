@@ -1,3 +1,7 @@
+**Chiefs' Rashee Rice feared to have torn ACL**\
+`Since joining the team in 2023, Rice leads the Chiefs in both receiving yards and receiving touchdowns. `\
+https://nytimes.com/athletic/5804382/2024/09/29/chiefs-rashee-rice-acl-tear/
+
 **Justin Jefferson sets the tone as unbeaten Vikings survive to beat Packers at Lambeau**\
 `The superstar receiver is proving his worth both on the field and in the locker room as Vikings hold off Packers' comeback attempt.`\
 https://nytimes.com/athletic/5804434/2024/09/29/justin-jefferson-vikings-packers-week-4/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/5804434/2024/09/29/justin-jefferson-vikings-packers
 `Mr. Ashton was most widely recognized for his role as Sgt. John Taggart in the “Beverly Hills Cop” franchise.`\
 https://nytimes.com/2024/09/29/arts/beverly-hills-cop-john-ashton-dead.html
 
-**'It looks like an NBA roster': How the New York Liberty's length could be semifinals key**\
-`NEW YORK — The final basket of Breanna Stewart’s 34-point clinic on Sunday to open the WNBA semifinals was never going to be blocked.`\
+**'It looks like an NBA roster': How New York Liberty's length could be semifinals key**\
+`The Liberty's long arms were all over the imprint of Game 1 and the 2-time defending champion Aces couldn’t stop what they knew was coming.`\
 https://nytimes.com/athletic/5804513/2024/09/29/liberty-aces-wnba-playoffs-length/
 
 **After disappointing season, Cardinals believe youth will be key in 2025**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804196/2024/09/29/twins-pohlad-falvey-baldelli-off
 **Colts hold off Steelers as Joe Flacco shows Anthony Richardson how to keep it simple**\
 `Can Richardson, blessed with Superman’s abilities, learn to be just as effective when they’re not needed?`\
 https://nytimes.com/athletic/5804228/2024/09/29/colts-win-anthony-richardson-joe-flacco-steelers/
-
-**After embarrassing loss, Eagles must find discipline during bye week**\
-`Mistakes in all parts of the game doomed the Eagles.`\
-https://nytimes.com/athletic/5803127/2024/09/29/eagles-loss-buccaneers-discipline-bye-week/
 
