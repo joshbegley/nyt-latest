@@ -1,3 +1,15 @@
+**Sean Combs Will Try Another Appeal of Judge’s Decision to Deny Bail**\
+`Mr. Combs is in a Brooklyn jail awaiting trial on federal charges of sex trafficking and racketeering conspiracy.`\
+https://nytimes.com/2024/09/30/arts/music/sean-combs-appeal-bail.html
+
+**Arteta on PSG ahead of reunion, Ronaldinho and plan for Arsenal's young stars**\
+`Mikel Arteta played for Paris Saint-Germain on loan — his Arsenal side face them on Tuesday evening`\
+https://nytimes.com/athletic/5806385/2024/09/30/arsenal-mikel-arteta-psg-ronaldinho/
+
+**Harris campaign begins ‘H.B.C.U. Homecoming Tour’ in battleground states.**\
+`By Erica L. Green`\
+https://nytimes.com/live/2024/09/30/us/trump-harris-election/harris-campaign-begins-hbcu-homecoming-tour-in-battleground-states
+
 **Israeli Forces Conduct Raids Into Lebanon as Troops Gather at Border**\
 `The raids were said to be focused on gathering intelligence about Hezbollah positions close to the Israeli-Lebanese border, but American officials said they believed that any incursion would be a limited one.`\
 https://nytimes.com/2024/09/30/world/middleeast/israel-hezbollah-lebanon-ground-invasion.html
@@ -26,8 +38,3 @@ https://nytimes.com/2024/09/30/books/review/shred-sisters-betsy-lerner.html
 `The former Red Sox top exec joined the Cardinals as a consultant before the 2024 season. `\
 https://nytimes.com/athletic/5807242/2024/09/30/chaim-bloom-st-louis-cardinals-john-mozeliak/
 
-**Browns open practice window for RB Nick Chubb**\
-`The four-time 1,000-yard rusher's last game action came in Week 2 of the 2023 NFL season.`\
-https://nytimes.com/athletic/5807121/2024/09/30/nick-chubb-browns-injury-update-practice-window/
-
-**Maggie Smith: A Life in Pictures**\
