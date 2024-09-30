@@ -1,6 +1,6 @@
-**Giants fire Farhan Zaidi, look to re-make front office**\
+**San Francisco Giants fire Farhan Zaidi, Buster Posey new president of baseball operations**\
 `Zaidi was hired before the 2019 season but produced just one winning season and no playoff series victories.`\
-https://nytimes.com/athletic/5806379/2024/09/30/sf-giants-farhan-zaidi-fired/
+https://nytimes.com/athletic/5806379/2024/09/30/sf-giants-farhan-zaidi-fired-buster-posey/
 
 **Robertson backs Alisson over player welfare concerns**\
 `Andy Robertson has echoed goalkeeper Alisson’s concern over player welfare and burnout.`\
