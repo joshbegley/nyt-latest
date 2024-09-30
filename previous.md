@@ -1,3 +1,7 @@
+**Israeli Commandos Making Preparatory Raids Into Lebanon, Officials Say**\
+`Brief incursions in recent days were to prepare the ground for a possible wider ground invasion, the officials said.`\
+https://nytimes.com/2024/09/30/world/middleeast/israeli-commandos-raids-lebanon.html
+
 **Michel Houellebecq’s Outlook for an Ailing France: C’est Fini**\
 `In what the author says is his last novel, both a family and a society are on the verge of collapse.`\
 https://nytimes.com/2024/09/30/books/review/michel-houellebecq-annihilation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5805232/2024/09/30/diamondbacks-fans-october-playof
 **The Padres lineup is built for October, and its face is a 3-time batting champ who is admired and maligned**\
 `In a lineup full of stars, Arraez is the face of an offense that fueled the Padres’ return to October.`\
 https://nytimes.com/athletic/5804352/2024/09/30/luis-arraez-san-diego-padres-value/
-
-**Lowetide: 5 surprise players who could influence Oilers' opening-night roster**\
-`The Edmonton Oilers are a veteran team, designed for a long run with the Stanley Cup as an attainable goal.`\
-https://nytimes.com/athletic/5802943/2024/09/30/edmonton-oilers-players-2024-surprise/
 

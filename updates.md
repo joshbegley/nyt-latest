@@ -1,3 +1,7 @@
+**Israeli Commandos Making Preparatory Raids Into Lebanon, Officials Say**\
+`Brief incursions in recent days were to prepare the ground for a possible wider ground invasion, the officials said.`\
+https://nytimes.com/2024/09/30/world/middleeast/israeli-commandos-raids-lebanon.html
+
 **Michel Houellebecq’s Outlook for an Ailing France: C’est Fini**\
 `In what the author says is his last novel, both a family and a society are on the verge of collapse.`\
 https://nytimes.com/2024/09/30/books/review/michel-houellebecq-annihilation.html
