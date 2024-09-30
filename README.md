@@ -1,3 +1,27 @@
+**Leicester showed resilience against Arsenal. Is this turning point for Cooper?**\
+`The squad seems to have a determined mindset after having to fight back in five of their opening league games. That must encourage Cooper.`\
+https://nytimes.com/athletic/5802594/2024/09/30/leicester-arsenal-pressure-cooper-hope/
+
+**Soucek bails out West Ham (again): 'We should be ashamed of conceding that goal'**\
+`This is a transitional season for West Ham and several players will have to step up - you can be sure Soucek will be one of them`\
+https://nytimes.com/athletic/5801135/2024/09/30/tomas-soucek-west-ham/
+
+**What does this image reveal about Aston Villa?**\
+`Villa have a huge vulnerability that Ipswich exploited`\
+https://nytimes.com/athletic/5802811/2024/09/30/what-does-this-image-reveal-about-aston-villa/
+
+**Crystal Palace's shape-shifting not enough to regain control against Everton**\
+`The optimism under Glasner has eked away after Palace's slow start to the season — and they struggled again against Everton.`\
+https://nytimes.com/athletic/5802549/2024/09/30/palace-everton-glasner-premier-league/
+
+**Dissecting Brighton's defeat at Chelsea — after 20 minutes of madness**\
+`Brighton's unbeaten run came to an end against Chelsea in 20 minutes of chaos. So what can they learn from the defeat?`\
+https://nytimes.com/athletic/5801351/2024/09/30/brighton-chelsea-defeat-premier-league/
+
+**In Morgan Gibbs-White's absence, his importance to Forest was made clear**\
+`Without his most creative player, Nuno's plan didn't work`\
+https://nytimes.com/athletic/5802586/2024/09/30/morgan-gibbs-white-forest-absence/
+
 **Newcastle will be OK. After so much change, they just needed somebody to say so**\
 `Newcastle summer of change is being extended into autumn, but against City they should that they are resilient`\
 https://nytimes.com/athletic/5802600/2024/09/30/newcastle-the-club-will-be-ok-eddie-howe/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/09/30/briefing/hezbollah-israel-trump-harris-hurricane-
 **How Manchester United's world fell apart - again**\
 `There seems no immediate appetite to sack Erik ten Hag but the pressure is growing after an abject defeat to Spurs`\
 https://nytimes.com/athletic/5803992/2024/09/30/manchester-united-ten-hag-crisis/
-
-**The Briefing: Man Utd's latest crisis is on INEOS - and has Palmer outgrown Chelsea?**\
-`The big Premier League weekend talking points - featuring possibly the best Italian defender the league has seen…`\
-https://nytimes.com/athletic/5803409/2024/09/30/erik-ten-hag-ineos-job-manchester-united/
-
-**Liverpool are top of the league. What does it mean and can they stay there?**\
-`Arne Slot's side are at the summit - is this a flash in the pan or something more significant?`\
-https://nytimes.com/athletic/5802032/2024/09/30/liverpool-premier-league-top/
-
-**Harris Tries to Goad Trump Into Another Debate**\
-`At a rally in Las Vegas, Vice President Kamala Harris played up the vice-presidential debate set for Tuesday and pushed for another face-off with former President Donald J. Trump.`\
-https://nytimes.com/2024/09/30/us/politics/harris-trump-debate.html
-
-**Brentford scored in the first minute yet again — this is how they do it**\
-`Brentford scored in the first minute for the third game in a row - but it was no accident, the moves are planned and perfectly executed.`\
-https://nytimes.com/athletic/5802689/2024/09/30/brentford-premier-leagues-fast-starts/
-
-**Postecoglou has his statement win - this is how good Spurs can be**\
-`Postecoglou has been repeatedly saying since the opening weekend this team is improving and on Sunday the signs were there for all to see.`\
-https://nytimes.com/athletic/5803658/2024/09/30/tottenham-man-united-postecoglou/
-
-**A 60-year dream: How Bologna built a team for a return to the big time**\
-`Bologna face Liverpool in the Champions League - their biggest game in 60 years. Here is how they have slowly rebuilt their success.`\
-https://nytimes.com/athletic/5798782/2024/09/30/bologna-champions-league-liverpool/
 

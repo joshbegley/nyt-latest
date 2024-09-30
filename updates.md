@@ -1,3 +1,19 @@
+**Newcastle will be OK. After so much change, they just needed somebody to say so**\
+`Newcastle summer of change is being extended into autumn, but against City they should that they are resilient`\
+https://nytimes.com/athletic/5802600/2024/09/30/newcastle-the-club-will-be-ok-eddie-howe/
+
+**What Mario Lemina's tears tell us about Wolves' emotional struggles**\
+`Saturday was not an aberration - three times in six games this season, Wolves have got into a good position only to let things slip.`\
+https://nytimes.com/athletic/5802545/2024/09/30/wolves-liverpool-mario-lemina/
+
+**Monday Briefing: The Aftermath of Nasrallah’s Death**\
+`Plus, we retraced one of Mayor Eric Adams’s lavish trips to Istanbul.`\
+https://nytimes.com/2024/09/30/briefing/hezbollah-israel-trump-harris-hurricane-helene.html
+
+**How Manchester United's world fell apart - again**\
+`There seems no immediate appetite to sack Erik ten Hag but the pressure is growing after an abject defeat to Spurs`\
+https://nytimes.com/athletic/5803992/2024/09/30/manchester-united-ten-hag-crisis/
+
 **The Briefing: Man Utd's latest crisis is on INEOS - and has Palmer outgrown Chelsea?**\
 `The big Premier League weekend talking points - featuring possibly the best Italian defender the league has seen…`\
 https://nytimes.com/athletic/5803409/2024/09/30/erik-ten-hag-ineos-job-manchester-united/
