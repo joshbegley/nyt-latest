@@ -1,3 +1,7 @@
+**Ohio State film study: What worked — and what didn't — in the Buckeyes' win at Michigan State**\
+`The Buckeyes did a lot of things very well in the win at Michigan State, but there were a few things to nitpick after watching the film. `\
+https://nytimes.com/athletic/5805918/2024/09/30/ohio-state-buckeyes-film-study-michigan-state/
+
 **Why Mount Everest Is Growing Taller Every Year**\
 `Researchers say that two rivers merged some 89,000 years ago and gave the mightiest peak in the Himalayas a huge growth spurt.`\
 https://nytimes.com/2024/09/30/science/mount-everest-tallest-growing.html
