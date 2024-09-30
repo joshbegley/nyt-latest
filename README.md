@@ -1,3 +1,15 @@
+**Here’s are the latest developments.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/heres-are-the-latest-developments
+
+**North Carolina Officials Begin Post-Helene Election Planning**\
+`While the region hit hardest is largely rural, it holds a healthy share of the state’s nearly 7.7 million registered voters.`\
+https://nytimes.com/2024/09/30/us/helene-north-carolina-elections.html
+
+**In Booming Asheville, Residents Rethink Their Sense of Safety**\
+`Worries of flooding had not been top of mind as the mountain-ringed city flourished in recent years as a haven for artists, chefs, brewmasters, entrepreneurs and retirees.`\
+https://nytimes.com/2024/09/30/us/asheville-hurricane-helene-damage.html
+
 **Pete Rose, Baseball Star Who Earned Glory and Shame, Dies at 83**\
 `One of the sport’s greatest players, he set a record with 4,256 career hits. But his gambling led to a lifetime ban and kept him out of the Hall of Fame.`\
 https://nytimes.com/2024/09/30/sports/baseball/pete-rose-baseball-star-who-earned-glory-and-shame-dies-at-83.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/30/us/politics/hurricane-helene-trump-harris.html
 **Full MLB playoff bracket set as Mets, Braves get in: Which teams could be on upset watch?**\
 `The playoffs begin Tuesday with the Wild Card Series in each league.`\
 https://nytimes.com/athletic/5807314/2024/09/30/full-mlb-playoff-bracket-2024/
-
-**Steph Curry previews the Warriors' upcoming season: 'We can be a relevant team'**\
-`No, the Warriors didn't make a splashy trade this summer. But Steph Curry shared a sense of optimism about what's next for Golden State. `\
-https://nytimes.com/athletic/5806308/2024/09/30/steph-curry-warriors-media-day/
-
-**Arizona Diamondbacks bounced from postseason contention on their day off**\
-`Snakes alive, no more.`\
-https://nytimes.com/athletic/5807646/2024/09/30/diamondbacks-eliminated-from-mlb-contention/
-
-**MLB Postseason Tiers: Which teams are contenders and which ones are just happy to be here**\
-`It's win-it-all or go home in shame for a few teams, while others have cemented their positive place in team history by making the dance.`\
-https://nytimes.com/athletic/5798557/2024/09/30/mlb-2024-postseason-tiers-yankees-dodgers-phillies/
 
