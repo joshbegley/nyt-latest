@@ -1,3 +1,7 @@
+**Kris Kristofferson Stood by Sinead O’Connor as the Boos Rained Down**\
+`At a moment when the Irish singer had few people defending her, the country music veteran showed strong support.`\
+https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-sinead-oconnor.html
+
 **Arsenal and Real Madrid interested in signing Brazilian prospect Vitor Reis**\
 `Arsenal and Real Madrid are among a host of top European clubs who have shown an interest in signing Palmeiras centre-back Vitor Reis.`\
 https://nytimes.com/athletic/5806575/2024/09/30/arsenal-real-madrid-vitor-reis/
