@@ -1,3 +1,15 @@
+**College football national title odds: Alabama, Ohio State are co-favorites ahead of Texas**\
+`Alabama and Ohio State are the co-favorites to win the national title on BetMGM after Alabama's big win against Georgia.`\
+https://nytimes.com/athletic/5807040/2024/09/30/2025-college-football-national-title-odds-alabama-ohio-state-texas/
+
+**The Karl-Anthony Towns trade makes Knicks a major 'liability' for sportsbooks**\
+`The New York Knicks' NBA title odds are on the move after trading for Karl-Anthony Towns. Here's how the trade impacted the markets.`\
+https://nytimes.com/athletic/5807016/2024/09/30/karl-anthony-towns-trade-shifts-nba-title-odds-makes-knicks-a-liability/
+
+**Missed Student Loan Payments Will Hurt Your Credit Again. What to Know.**\
+`President Biden’s yearlong on-ramp to help federal student loan borrowers ease back into repayment ended on Sept. 30.`\
+https://nytimes.com/2024/09/30/your-money/student-loans-credit-score.html
+
 **Sean Combs Will Try Another Appeal of Judge’s Decision to Deny Bail**\
 `Mr. Combs is in a Brooklyn jail awaiting trial on federal charges of sex trafficking and racketeering conspiracy.`\
 https://nytimes.com/2024/09/30/arts/music/sean-combs-appeal-bail.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/30/us/politics/us-deploys-troops-middle-east.html
 **Man Who Shot 2 Outside Los Angeles Synagogues Gets 35 Years in Prison**\
 `The shootings took place in Pico-Robertson, a neighborhood with a large Jewish population, as the men were leaving services. They survived.`\
 https://nytimes.com/2024/09/30/us/synagogue-shooting-sentence-los-angeles.html
-
-**Tuesday Briefing: Israel Conducts Raids in Lebanon**\
-`Plus, creating fashion in prison.`\
-https://nytimes.com/2024/09/30/briefing/israel-lebanon-coal-harris-trump.html
-
-**In This Nuclear Family, Mental Illness Leads to a Meltdown**\
-`Betsy Lerner’s assured first novel, “Shred Sisters,” maps the effects of a daughter’s volatility on her parents and younger sister.`\
-https://nytimes.com/2024/09/30/books/review/shred-sisters-betsy-lerner.html
-
-**Chaim Bloom to become Cards' president of baseball operations**\
-`The former Red Sox top exec joined the Cardinals as a consultant before the 2024 season. `\
-https://nytimes.com/athletic/5807242/2024/09/30/chaim-bloom-st-louis-cardinals-john-mozeliak/
 
