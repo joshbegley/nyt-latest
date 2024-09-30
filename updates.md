@@ -1,3 +1,7 @@
+**Shorthanded Chargers' valiant performance against Chiefs ends in predictable fashion**\
+`Game-management issues by Jim Harbaugh prevented a potential extra Chargers possession: "I wish I could have done better for our guys.”`\
+https://nytimes.com/athletic/5805004/2024/09/29/chargers-loss-chiefs-jim-harbaugh-justin-herbert/
+
 **Buckley: When Patriots need to do something, they either don't or do it badly**\
 `Jerod Mayo didn't roll the dice early when the offense-challenged Pats had a chance. Maybe he should have. Some encouragement couldn't hurt.`\
 https://nytimes.com/athletic/5804887/2024/09/29/patriots-49ers-jacoby-brissett-sacks-jerod-mayo/
