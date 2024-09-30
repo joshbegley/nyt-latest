@@ -1,3 +1,11 @@
+**The Athletic 134: Alabama is inevitable and back atop an all-SEC top four**\
+`After the wild swings of the Game of the Year, it's hard to know how to feel about both teams.`\
+https://nytimes.com/athletic/5804330/2024/09/30/college-football-rankings-134-teams-week-5/
+
+**Trippier and Tonali face late fitness calls before Newcastle's Carabao Cup tie**\
+`Newcastle United head coach Eddie Howe says a late call will be made regarding the availability of Kieran Trippier and Sandro Tonali ahead of Tuesday&#8217;s Carabao Cup tie against AFC Wimbledon.`\
+https://nytimes.com/athletic/5805443/2024/09/30/trippier-tonali-newcastle-injury-update/
+
 **Madrid derby descended into chaos as players pleaded for peace with fans in balaclavas**\
 `Sunday's match was stopped for almost 20 minutes because of crowd trouble. This is what happened and the potential next steps`\
 https://nytimes.com/athletic/5803899/2024/09/30/real-madrid-atletico-courtois-objects-la-liga/
