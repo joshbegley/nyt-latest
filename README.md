@@ -1,3 +1,15 @@
+**NFL Week 5 odds, schedule: Vikings favored over Jets in London and several close matchups**\
+`NFL Week 5 features the "London Game" between the Vikings and Jets and only a few big favorites across the board.`\
+https://nytimes.com/athletic/5805965/2024/09/30/nfl-week-5-odds-spreads-schedule-vikings-jets-london/
+
+**Panthers' Shaq Thompson out for season with torn Achilles**\
+`Team's leading tackler suffers season-ending injury for the second consecutive year.`\
+https://nytimes.com/athletic/5806510/2024/09/30/shaq-thompson-injury-carolina-panthers/
+
+**MLB to return to primary uniforms for All-Star Game**\
+`Players previously represented their "hometown" teams from the 1930s to 2019.`\
+https://nytimes.com/athletic/5806473/2024/09/30/mlb-all-star-game-uniforms/
+
 **Kris Kristofferson Stood by Sinead O’Connor as the Boos Rained Down**\
 `At a moment when the Irish singer had few people defending her, the country music veteran showed strong support.`\
 https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-sinead-oconnor.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/30/health/california-abortion-lawsuit-st-joseph-hosp
 **In the Lions' locker room, Calvin Johnson remains larger than life**\
 `The Lions are inducting Calvin Johnson into their ring of honor.`\
 https://nytimes.com/athletic/5806009/2024/09/30/detroit-lions-calvin-johnson-ring-of-honor/
-
-**Beirut Residents Stunned as Israeli Strikes Hit City Center**\
-`Israeli strikes on Monday killed members of Palestinian militant groups in Lebanon, including the representative of Hamas in the country. One of the attacks targeted a central Beirut neighborhood for the first time in nearly two decades.`\
-https://nytimes.com/video/world/middleeast/100000009730426/lebanon-beirut-israeli-strikes-city-center.html
-
-**Dembele dropped for PSG vs Arsenal for disciplinary reasons - Luis Enrique**\
-`Paris Saint-Germain head coach Luis Enrique has left Ousmane Dembele out of his squad to face Arsenal on Tuesday because the player “did not comply with the expectations of the team”.`\
-https://nytimes.com/athletic/5806533/2024/09/30/ousmane-dembele-arsenal-psg-champions-league/
-
-**San Francisco Giants fire Farhan Zaidi; Buster Posey new president of baseball operations**\
-`Zaidi was hired before the 2019 season but produced just one winning season and no playoff series victories.`\
-https://nytimes.com/athletic/5806379/2024/09/30/sf-giants-farhan-zaidi-fired-buster-posey/
 
