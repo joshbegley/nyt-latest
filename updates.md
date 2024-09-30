@@ -1,3 +1,15 @@
+**France's Griezmann retires from international football**\
+`France forward Antoine Griezmann has announced his retirement from international football at the age of 33.`\
+https://nytimes.com/athletic/5805508/2024/09/30/antoine-griezmann-international-reitrement-france/
+
+**Tarik Skubal is the AL Cy Young favorite. Meet the ‘role model’ he calls his brother**\
+`When Wil Jones joined Tarik Skubal's family when the two were teenagers, it helped set Skubal on the path that led him to MLB dominance.`\
+https://nytimes.com/athletic/5804270/2024/09/30/tarik-skubal-tigers-cy-young-brother/
+
+**Chiefs keep surviving everyone's best shot, but margin for error gets slimmer with Rice injury**\
+`The Chiefs held the Chargers scoreless after the first quarter. Without Rashee Rice, the offense was able to generate just enough points.`\
+https://nytimes.com/athletic/5804920/2024/09/30/chiefs-win-rashee-rice-chargers/
+
 **Commanders, winners of 3 straight, riding a high with Jayden Daniels leading the way**\
 `The prized rookie QB was again efficient and sharp in a lopsided win over the Cardinals as Washington improved to 3-1 on the season.`\
 https://nytimes.com/athletic/5804979/2024/09/30/commanders-jayden-daniels-cardinals/
