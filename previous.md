@@ -1,3 +1,31 @@
+**Why Mount Everest Is Growing Taller Every Year**\
+`Researchers say that two rivers merged some 89,000 years ago and gave the mightiest peak in the Himalayas a huge growth spurt.`\
+https://nytimes.com/2024/09/30/science/mount-everest-tallest-growing.html
+
+**Ritzy! Cheddar! Chicken!**\
+`Everyone’s favorite buttery cracker makes a fantastic coating for chicken breasts.`\
+https://nytimes.com/2024/09/30/dining/ritzy-cheddar-chicken.html
+
+**The Windup: Hours away from baseball chaos**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5806114/2024/09/30/mets-braves-mlb-playoffs-the-windup/
+
+**All 32 NHL teams to honor Gaudreau brothers with helmet decals**\
+`The decals will be worn as the regular season begins Friday through the final home opener on Oct. 24.`\
+https://nytimes.com/athletic/5805925/2024/09/30/nhl-gaudreau-brothers-helmet-decals/
+
+**Football Manager 25 to be released on November 26**\
+`Football Manager 2025 will be released on November 26.`\
+https://nytimes.com/athletic/5806054/2024/09/30/fm25-release-launch-date/
+
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/09/30/weather/tropical-storm-kirk-hurricane/here-is-the-latest-on-the-storm
+
+**Tropical Storm Kirk Forms Near the Cape Verde Islands**\
+`The storm is expected to become a hurricane this week. It does not pose an immediate threat to land.`\
+https://nytimes.com/live/2024/09/30/weather/tropical-storm-kirk-hurricane
+
 **Saudi Arabia Pledges to Send Funding for Palestinians**\
 `An expected cash infusion for the Palestinian Authority would signal renewed Saudi backing for Palestinian statehood and help mend ties between Riyadh and the body that administers the West Bank.`\
 https://nytimes.com/2024/09/30/world/middleeast/saudi-arabia-palestine-financial-aid.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5805688/2024/09/30/karl-anthony-towns-timberwolves-
 **5 things Karl-Anthony Towns must do to succeed with the Knicks**\
 `Towns is a proven superstar on the offensive end. But his shortcomings will also be scrutinized in the pressure cooker of NYC.`\
 https://nytimes.com/athletic/5801642/2024/09/30/karl-anthony-towns-trade-new-york-knicks/
-
-**Can You Uncover the 13 Book Titles Hidden in This Text Puzzle?**\
-`The 1970s were known for their fashion, political turmoil, pop culture and a lot of significant books. See if you can spot popular fiction and nonfiction works of the era lurking in this short passage.`\
-https://nytimes.com/interactive/2024/09/30/books/review/70s-books-quiz.html
-
-**Britain Shuts Down Last Coal Plant, ‘Turning Its Back on Coal Forever’**\
-`The Ratcliffe-on-Soar plant was the last surviving coal-burning power station in a country that birthed the Industrial Revolution and fed it with coal.`\
-https://nytimes.com/2024/09/30/climate/britain-last-coal-power-plant.html
-
-**Germany captain Popp retires from international football**\
-`Germany captain Alexandra Popp has announced her retirement from international football at the age of 33.`\
-https://nytimes.com/athletic/5805952/2024/09/30/alexandra-popp-germany-international-retirement/
-
-**Tracking Tropical Storm Kirk**\
-`See the likely path and wind arrival times for Kirk.`\
-https://nytimes.com/interactive/2024/09/30/weather/kirk-map-path-tracker.html
-
-**Want to Check That Fact? For V.P. Debate Viewers, Just Scan the Code.**\
-`CBS is experimenting with a novel way to offer real-time fact-checking of the vice-presidential debate on Tuesday. Just don’t expect the moderators to frequently jump in.`\
-https://nytimes.com/2024/09/30/business/media/cbs-vice-presidential-debate-fact-check-qr.html
-
-**U.S. Officials Believe Israel Will Not Conduct Full Invasion of Lebanon**\
-`After a weekend of intense talks, the American officials said they believed that Israel was planning only smaller, targeted incursions in southern Lebanon.`\
-https://nytimes.com/2024/09/30/us/politics/us-israel-lebanon-hezbollah.html
-
-**Frankenstein’s Assistant**\
-`Creatures lurk in the depths of Kevin Curry and Jeff Chen’s first New York Times collaboration.`\
-https://nytimes.com/2024/09/30/crosswords/daily-puzzle-2024-10-01.html
 
