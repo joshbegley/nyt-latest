@@ -1,3 +1,7 @@
+**The Verdict on Alessandro Michele’s Valentino**\
+`Major change is in the air, in all sorts of ways.`\
+https://nytimes.com/2024/09/30/style/alessandro-michele-valentino.html
+
 **Madrid’s derby descended into chaos, as players pleaded for peace with fans in balaclavas**\
 `Sunday's match was stopped for almost 20 minutes because of crowd trouble. This is what happened and the potential next steps`\
 https://nytimes.com/athletic/5803899/2024/09/30/real-madrid-atletico-courtois-objects-la-liga/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804969/2024/09/30/san-francisco-49ers-fred-warner-
 **Word of the Day: seismic**\
 `This word has appeared in 308 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/30/learning/word-of-the-day-seismic.html
-
-**Cardinals team many picked to surprise does not appear to be particularly close**\
-`The Cardinals do not have to win every Sunday, but they need to keep building, giving themselves a chance. This was nothing of the sort.`\
-https://nytimes.com/athletic/5804528/2024/09/30/arizona-cardinals-washington-commanders-jonathan-gannon-kyler-murray/
 
