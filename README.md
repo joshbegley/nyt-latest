@@ -24,7 +24,7 @@ https://nytimes.com/2024/09/30/nyregion/adams-lawyer-indictment-defense.html
 
 **An Israeli Strike Inside the City Limits Frays Nerves in Beirut**\
 `A blast in the Cola neighborhood was the first known Israeli strike in the central part of the city since a war with Hezbollah in 2006.`\
-https://nytimes.com/2024/09/30/world/middleeast/an-israeli-strike-inside-the-city-limits-frays-nerves-in-beirut.html
+https://nytimes.com/2024/09/30/world/middleeast/israel-strike-beirut-cola-residents.html
 
 **De Jong available to play against Young Boys - Flick**\
 `Hansi Flick says Frenkie de Jong is available to make his return from injury in Barcelona&#8217;s Champions League match against Young Boys on Tuesday.`\
