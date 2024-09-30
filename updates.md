@@ -1,3 +1,7 @@
+**Madrid’s derby descended into chaos, as players pleaded for peace with fans in balaclavas**\
+`Sunday's match was stopped for almost 20 minutes because of crowd trouble. This is what happened and the potential next steps`\
+https://nytimes.com/athletic/5803899/2024/09/30/real-madrid-atletico-courtois-objects-la-liga/
+
 **N.Y.C. Streets Won’t Be Like This Forever (for Better or Worse)**\
 `New York City is constantly changing, opening the door to both new battles over traffic and radical solutions.`\
 https://nytimes.com/2024/09/30/nyregion/street-wars-new-york-evolution.html

@@ -1,3 +1,7 @@
+**Madrid’s derby descended into chaos, as players pleaded for peace with fans in balaclavas**\
+`Sunday's match was stopped for almost 20 minutes because of crowd trouble. This is what happened and the potential next steps`\
+https://nytimes.com/athletic/5803899/2024/09/30/real-madrid-atletico-courtois-objects-la-liga/
+
 **N.Y.C. Streets Won’t Be Like This Forever (for Better or Worse)**\
 `New York City is constantly changing, opening the door to both new battles over traffic and radical solutions.`\
 https://nytimes.com/2024/09/30/nyregion/street-wars-new-york-evolution.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/learning/word-of-the-day-seismic.html
 **Cardinals team many picked to surprise does not appear to be particularly close**\
 `The Cardinals do not have to win every Sunday, but they need to keep building, giving themselves a chance. This was nothing of the sort.`\
 https://nytimes.com/athletic/5804528/2024/09/30/arizona-cardinals-washington-commanders-jonathan-gannon-kyler-murray/
-
-**Connecticut Sun's win over Minnesota Lynx delivers the perfect WNBA playoffs showdown**\
-`The Sun got the advantage in Game 1, stealing a win on the road, there's but a lot more (tightly contested) basketball to play.`\
-https://nytimes.com/athletic/5805180/2024/09/30/minnesota-lynx-connecticut-sun-wnba-playoffs-showdown/
 
