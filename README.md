@@ -1,3 +1,27 @@
+**Cerebras, an A.I. Chipmaker Trying to Take On Nvidia, Files for an I.P.O.**\
+`The Silicon Valley company would be among the first A.I. companies to go public since the release of ChatGPT nearly two years ago.`\
+https://nytimes.com/2024/09/30/technology/cerebras-ai-chips-ipo.html
+
+**Signs of a looming Israeli ground invasion permeated the border.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/signs-of-a-looming-israeli-ground-invasion-permeated-the-border
+
+**Internet Drug Ring Tricked Buyers With Fake and Deadly Pills, U.S. Says**\
+`The drugs, which resembled real pharmaceuticals, killed nine people, prosecutors said. They were laced with fentanyl and methamphetamine.`\
+https://nytimes.com/2024/09/30/nyregion/online-pharmacies-fake-pills-fentanyl.html
+
+**Why SEC, Big Ten are meeting to talk CFP access, scheduling arrangements**\
+`Conference leaders want a better understanding of what access to the 12-team CFP will be starting in 2026 before adjusting their schedules.`\
+https://nytimes.com/athletic/5807185/2024/09/30/sec-big-ten-cfp-bids-scheduling-agreement/
+
+**Inmates Are Charged in Killings at Federal Jail in Brooklyn**\
+`Federal prosecutors charged nine inmates at the troubled Metropolitan Detention Center in two killings and several assaults. One guard was charged in a shooting.`\
+https://nytimes.com/2024/09/30/nyregion/inmates-charged-mdc-brooklyn-jail.html
+
+**The Giants replaced Farhan Zaidi with Buster Posey. What comes next is a mystery**\
+`A change was probably necessary, but going from Zaidi to Posey is a shock. We won't know if the change worked for a while.`\
+https://nytimes.com/athletic/5806346/2024/09/30/sf-giants-buster-posey-farhan-zaidi-differences/
+
 **Martin questions Southampton player's character following Bournemouth defeat**\
 `Southampton manager Russell Martin questioned his side&#8217;s character following their 3-1 defeat by Bournemouth at the Vitality Stadium on Monday.`\
 https://nytimes.com/athletic/5807351/2024/09/30/southampton-bournemouth-russell-martin/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5806479/2024/09/30/dikembe-mutombo-top-moments/
 **Kawhi Leonard 'very cautious' managing knee since procedure**\
 `Leonard’s chronically murky status comes in the wake of Paul George, his sidekick for five seasons in LA, having left in free agency.`\
 https://nytimes.com/athletic/5807050/2024/09/30/kawhi-leonard-surgery-recovery-clippers-james-harden/
-
-**Israel Conducted Raids in Lebanon**\
-`Also, some of the busiest U.S. ports are set to shut down. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/09/30/briefing/israel-raids-lebanon-port-strike-east-coast.html
-
-**College football national title odds: Alabama, Ohio State are co-favorites ahead of Texas**\
-`Alabama and Ohio State are the co-favorites to win the national title on BetMGM after Alabama's big win against Georgia.`\
-https://nytimes.com/athletic/5807040/2024/09/30/2025-college-football-national-title-odds-alabama-ohio-state-texas/
-
-**The Karl-Anthony Towns trade makes Knicks a major 'liability' for sportsbooks**\
-`The New York Knicks' NBA title odds are on the move after trading for Karl-Anthony Towns. Here's how the trade impacted the markets.`\
-https://nytimes.com/athletic/5807016/2024/09/30/karl-anthony-towns-trade-shifts-nba-title-odds-makes-knicks-a-liability/
-
-**Missed Student Loan Payments Will Hurt Your Credit Again. What to Know.**\
-`President Biden’s yearlong on-ramp to help federal student loan borrowers ease back into repayment ended on Sept. 30.`\
-https://nytimes.com/2024/09/30/your-money/student-loans-credit-score.html
-
-**Sean Combs Will Try Another Appeal of Judge’s Decision to Deny Bail**\
-`Mr. Combs is in a Brooklyn jail awaiting trial on federal charges of sex trafficking and racketeering conspiracy.`\
-https://nytimes.com/2024/09/30/arts/music/sean-combs-appeal-bail.html
-
-**Arteta on PSG ahead of reunion, Ronaldinho and plan for Arsenal's young stars**\
-`Mikel Arteta played for Paris Saint-Germain on loan — his Arsenal side face them on Tuesday evening`\
-https://nytimes.com/athletic/5806385/2024/09/30/arsenal-mikel-arteta-psg-ronaldinho/
 
