@@ -1,3 +1,7 @@
+**College football Week 6 odds, schedule: Top-10 teams Miami and Missouri get road tests**\
+`The Week 6 college football slate isn't loaded with big games, but two top-10 teams, Missouri and Michigan, are underdogs on the road.`\
+https://nytimes.com/athletic/5806180/2024/09/30/college-football-week-6-odds-schedule-miami-michigan-missouri/
+
 **Man charged over post relating to fan's death at Hillsborough**\
 `A man has been charged in connection with a social media post about Sheffield Wednesday and the West Bromwich Albion fan who died at Hillsborough on Saturday.`\
 https://nytimes.com/athletic/5806329/2024/09/30/man-charged-west-brom-fan-death/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-sinead-oconnor.html
 **Arsenal and Real Madrid interested in signing Brazilian prospect Vitor Reis**\
 `Arsenal and Real Madrid are among a host of top European clubs who have shown an interest in signing Palmeiras centre-back Vitor Reis.`\
 https://nytimes.com/athletic/5806575/2024/09/30/arsenal-real-madrid-vitor-reis/
-
-**The Rising Risk of a New Forever War**\
-`The “total victory” that Mr. Netanyahu and his cabinet are seeking over Hezbollah will not bring the absolute security that Israelis want and need.`\
-https://nytimes.com/2024/09/30/opinion/international-world/the-rising-risk-of-a-new-forever-war.html
 
