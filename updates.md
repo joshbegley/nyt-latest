@@ -1,3 +1,15 @@
+**Missed Student Loan Payments Will Hurt Your Credit Again. What to Know.**\
+`President Biden’s yearlong on-ramp to help federal student loan borrowers ease back into repayment ended on Sept. 30.`\
+https://nytimes.com/2024/09/30/your-money/student-loans-credit-score.html
+
+**Sean Combs Will Try Another Appeal of Judge’s Decision to Deny Bail**\
+`Mr. Combs is in a Brooklyn jail awaiting trial on federal charges of sex trafficking and racketeering conspiracy.`\
+https://nytimes.com/2024/09/30/arts/music/sean-combs-appeal-bail.html
+
+**Arteta on PSG ahead of reunion, Ronaldinho and plan for Arsenal's young stars**\
+`Mikel Arteta played for Paris Saint-Germain on loan — his Arsenal side face them on Tuesday evening`\
+https://nytimes.com/athletic/5806385/2024/09/30/arsenal-mikel-arteta-psg-ronaldinho/
+
 **Why SEC, Big Ten are meeting to talk CFP access, scheduling arrangements**\
 `Conference leaders want a better understanding of what access to the 12-team CFP will be starting in 2026 before adjusting their schedules.`\
 https://nytimes.com/athletic/5807185/2024/09/30/sec-big-ten-cfp-bids-scheduling-agreement/
