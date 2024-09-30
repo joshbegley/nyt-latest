@@ -1,3 +1,7 @@
+**An Israeli Strike Inside the City Limits Frays Nerves in Beirut**\
+`A blast in the Cola neighborhood was the first known Israeli strike in the central part of the city since a war with Hezbollah in 2006.`\
+https://nytimes.com/2024/09/30/world/middleeast/israel-strike-beirut-cola-residents.html
+
 **We Watched Vance’s Old Debates. Here’s What We Learned.**\
 `Senator JD Vance assumed his first public office just last year. But to win that job, he had to survive about a dozen debates, sharpening his chops when facing opponents onstage.`\
 https://nytimes.com/2024/09/30/us/politics/vance-debate-style.html
