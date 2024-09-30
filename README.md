@@ -1,4 +1,4 @@
-**San Francisco Giants fire Farhan Zaidi, Buster Posey new president of baseball operations**\
+**San Francisco Giants fire Farhan Zaidi; Buster Posey new president of baseball operations**\
 `Zaidi was hired before the 2019 season but produced just one winning season and no playoff series victories.`\
 https://nytimes.com/athletic/5806379/2024/09/30/sf-giants-farhan-zaidi-fired-buster-posey/
 
