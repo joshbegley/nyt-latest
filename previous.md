@@ -1,3 +1,15 @@
+**Israeli Forces Conduct Raids Into Lebanon as Troops Gather at Border**\
+`The raids were said to be focused on gathering intelligence about Hezbollah positions close to the Israeli-Lebanese border, but American officials said they believed that any incursion would be a limited one.`\
+https://nytimes.com/2024/09/30/world/middleeast/israel-hezbollah-lebanon-ground-invasion.html
+
+**Georgia’s 6-Week Abortion Ban Is Struck Down**\
+`The ruling is unlikely to be the final word on abortion access in the state, with the expectation that the case will ultimately be decided by the Georgia Supreme Court.`\
+https://nytimes.com/2024/09/30/us/georgia-abortion-ban-judge.html
+
+**Pentagon Sends Additional Troops to the Middle East**\
+`The additional forces, which one official placed at between 2,000 and 3,000, will bolster security for the 40,000 U.S. troops already in the region and help defend Israel, officials said.`\
+https://nytimes.com/2024/09/30/us/politics/us-deploys-troops-middle-east.html
+
 **Man Who Shot 2 Outside Los Angeles Synagogues Gets 35 Years in Prison**\
 `The shootings took place in Pico-Robertson, a neighborhood with a large Jewish population, as the men were leaving services. They survived.`\
 https://nytimes.com/2024/09/30/us/synagogue-shooting-sentence-los-angeles.html
