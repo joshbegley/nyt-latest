@@ -1,3 +1,7 @@
+**How Caleb Williams put together his most efficient game in a much-needed Bears win**\
+`It wasn't prolific, and it had a bumpy start, but Willams put together his best overall game as the Bears finally got into a rhythm.`\
+https://nytimes.com/athletic/5804051/2024/09/30/bears-caleb-williams-best-game-rams/
+
 **Jayden Daniels and the Commanders' offense have been even better than you think**\
 `Daniels and company are setting the bar higher than anyone could have realistically expected. As in, prime Tom Brady and Aaron Rodgers high.`\
 https://nytimes.com/athletic/5805438/2024/09/30/jayden-daniels-commanders-offense-cardinals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5803240/2024/09/30/bobby-witt-jr-royals-nine-star-s
 **Cross-country drives and avoiding McDonald's: Inside the nomadic world of NHL players on PTOs**\
 `“It’s all part of the journey.... If you want to continue, sometimes you have to do unconventional things."`\
 https://nytimes.com/athletic/5799480/2024/09/30/nhl-players-pto/
-
-**2025 NFL Draft QB Tracker: Cam Ward, Drew Allar, Jalen Milroe rising as September ends**\
-`In what's shaping up to be a muddled QB draft class, several prospects already have made moves over the first quarter of the season.`\
-https://nytimes.com/athletic/5803648/2024/09/30/nfl-draft-2025-quarterbacks-cam-ward-drew-allar/
 
