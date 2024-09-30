@@ -10,7 +10,7 @@ https://nytimes.com/2024/09/30/us/hurricane-helene-victims-aid.html
 `Biden administration officials have credited the policy for leading to the dramatic reduction in illegal crossings.`\
 https://nytimes.com/2024/09/30/us/politics/biden-expands-asylum-restrictions.html
 
-**Mavericks coach Jason Kidd praises Klay Thompson's shooting**\
+**With Klay Thompson, Mavs believe title 'dreams can be possible'**\
 `“I feel like our dreams can be possible because he’s here now,” Kyrie Irving said Monday.`\
 https://nytimes.com/athletic/5806736/2024/09/30/mavericks-klay-thompson-nba-jason-kidd/
 
