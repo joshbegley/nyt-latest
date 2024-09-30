@@ -1,3 +1,11 @@
+**Full MLB playoff bracket set as Mets, Braves get in: Which teams could be on upset watch?**\
+`The playoffs begin Tuesday with the Wild Card Series in each league.`\
+https://nytimes.com/athletic/5807314/2024/09/30/full-mlb-playoff-bracket-2024/
+
+**Steph Curry previews the Warriors' upcoming season: 'We can be a relevant team'**\
+`No, the Warriors didn't make a splashy trade this summer. But Steph Curry shared a sense of optimism about what's next for Golden State. `\
+https://nytimes.com/athletic/5806308/2024/09/30/steph-curry-warriors-media-day/
+
 **Arizona Diamondbacks bounced from postseason contention on their day off**\
 `Snakes alive, no more.`\
 https://nytimes.com/athletic/5807646/2024/09/30/diamondbacks-eliminated-from-mlb-contention/
