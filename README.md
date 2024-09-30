@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5806904/2024/09/30/brandon-mcmanus-jaguars-kicker-n
 `The Silicon Valley company would be among the first A.I. companies to go public since the release of ChatGPT nearly two years ago.`\
 https://nytimes.com/2024/09/30/technology/cerebras-ai-chips-ipo.html
 
-**Signs of a looming Israeli ground invasion permeated the border.**\
+**Signs of a looming Israeli ground invasion permeate the border.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/signs-of-a-looming-israeli-ground-invasion-permeated-the-border
 
