@@ -1,3 +1,19 @@
+**Giants fire Farhan Zaidi, look to re-make front office**\
+`Zaidi was hired before the 2019 season but produced just one winning season and no playoff series victories.`\
+https://nytimes.com/athletic/5806379/2024/09/30/sf-giants-farhan-zaidi-fired/
+
+**Robertson backs Alisson over player welfare concerns**\
+`Andy Robertson has echoed goalkeeper Alisson’s concern over player welfare and burnout.`\
+https://nytimes.com/athletic/5806468/2024/09/30/liverpool-robertsoon-football-schedule-calendar/
+
+**76ers’ Joel Embiid prioritizing health for playoffs**\
+`Embiid is ready to do whatever it takes to be healthy at the most important time. Even if it costs him personal acclaim.`\
+https://nytimes.com/athletic/5806238/2024/09/30/joel-embiid-76ers-health-priority/
+
+**‘Rust’ Armorer Is Denied New Trial After Dismissal of Alec Baldwin’s Case**\
+`The armorer’s lawyers failed to convince the judge that the same evidence dispute that led her to toss the actor’s manslaughter charge had deprived their client of a fair trial.`\
+https://nytimes.com/2024/09/30/movies/rust-trial-hannah-gutierrez-reed.html
+
 **Jimmy Carter Is the Un-Trump**\
 `As men and as presidents, they could not be more different.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/jimmy-carter-contrast-trump
