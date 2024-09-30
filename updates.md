@@ -1,3 +1,19 @@
+**Dodgers takeaways ahead of their postseason bye week: Schedule, rehabs and more**\
+`The prospect of Shohei Ohtani's facing hitters in the postseason appears farfetched. `\
+https://nytimes.com/athletic/5804033/2024/09/30/dodgers-postseason-bye-week/
+
+**Blues roster projection 2.0: Line combinations, defensive pairs and who's on the bubble**\
+`The Blues cut 14 players on Sunday, trimming their training camp roster to 36.`\
+https://nytimes.com/athletic/5803320/2024/09/30/blues-roster-projection-line-combinations/
+
+**WSL Briefing: Postponement of Chelsea vs Manchester United leaves WPLL looking foolish**\
+`The WPLL cited “player welfare” as its priority when coming to the decision to postpone the game — something Chelsea had also raised`\
+https://nytimes.com/athletic/5803994/2024/09/30/chelsea-manchester-united-wsl-wpll-column/
+
+**Ducks depth chart analysis: How will the top six shake out?**\
+`Is there a chance the Ducks could get Trevor Zegras going with Mason McTavish and Troy Terry?`\
+https://nytimes.com/athletic/5804085/2024/09/30/anaheim-ducks-depth-chart-lines/
+
 **Le Pen and Her Party Go on Trial in France on E.U. Embezzlement Charges**\
 `Marine Le Pen and others are accused of using European funds for unrelated party expenses. The trial, expected to last two months, comes as her National Rally has gained more political sway.`\
 https://nytimes.com/2024/09/30/world/europe/le-pen-eu-france-embezzlement-trial.html

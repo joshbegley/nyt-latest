@@ -1,3 +1,19 @@
+**Dodgers takeaways ahead of their postseason bye week: Schedule, rehabs and more**\
+`The prospect of Shohei Ohtani's facing hitters in the postseason appears farfetched. `\
+https://nytimes.com/athletic/5804033/2024/09/30/dodgers-postseason-bye-week/
+
+**Blues roster projection 2.0: Line combinations, defensive pairs and who's on the bubble**\
+`The Blues cut 14 players on Sunday, trimming their training camp roster to 36.`\
+https://nytimes.com/athletic/5803320/2024/09/30/blues-roster-projection-line-combinations/
+
+**WSL Briefing: Postponement of Chelsea vs Manchester United leaves WPLL looking foolish**\
+`The WPLL cited “player welfare” as its priority when coming to the decision to postpone the game — something Chelsea had also raised`\
+https://nytimes.com/athletic/5803994/2024/09/30/chelsea-manchester-united-wsl-wpll-column/
+
+**Ducks depth chart analysis: How will the top six shake out?**\
+`Is there a chance the Ducks could get Trevor Zegras going with Mason McTavish and Troy Terry?`\
+https://nytimes.com/athletic/5804085/2024/09/30/anaheim-ducks-depth-chart-lines/
+
 **Le Pen and Her Party Go on Trial in France on E.U. Embezzlement Charges**\
 `Marine Le Pen and others are accused of using European funds for unrelated party expenses. The trial, expected to last two months, comes as her National Rally has gained more political sway.`\
 https://nytimes.com/2024/09/30/world/europe/le-pen-eu-france-embezzlement-trial.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5799727/2024/09/30/lauri-markkanen-utah-jazz-3/
 **Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
 `Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
 https://nytimes.com/athletic/5805506/2024/09/30/newcastle-howe-isak-trippier/
-
-**China Removes Curbs on Home Buyers, Sparking Stock Market Surge**\
-`After seeing prices decline for years, Chinese officials have made a burst of policy changes aimed at making easier to buy homes.`\
-https://nytimes.com/2024/09/30/business/china-property-mortgages.html
-
-**The Athletic FC: Ten Hag wants patience, will he get it? Madrid derby chaos**\
-`Today in TAFC: Ten Hag's future called into question (again), Madrid derby descends into chaos and the transfers that already look smart.`\
-https://nytimes.com/athletic/5805562/2024/09/30/ten-hag-wants-patience-will-he-get-it-madrid-derby-chaos-palmers-brilliance/
-
-**DirecTV Strikes Deal to Acquire Dish Network**\
-`The deal, which is subject to regulatory approval, would create one of the largest pay-TV distributors in the U.S. The companies were blocked in an attempt to merge in 2002.`\
-https://nytimes.com/2024/09/30/business/dealbook/directv-dish-merger-deal.html
-
-**Timber supports Rodri strike comments: 'It’s a big topic in dressing rooms'**\
-`Jurrien Timber has expressed his support for Manchester City midfielder Rodi&#8217;s comments in relation to potential player strikes due to the increased number of matches in the football calendar.`\
-https://nytimes.com/athletic/5805613/2024/09/30/jurrien-timber-rodri-strike-support/
 
