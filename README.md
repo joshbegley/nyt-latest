@@ -1,3 +1,15 @@
+**Alabama film study: The good, bad and ugly of roller-coaster win over Georgia**\
+`Ryan Williams and Jalen Milroe combined on the game-winning play for Alabama. What else worked and what didn't for the Crimson Tide.`\
+https://nytimes.com/athletic/5805118/2024/09/30/alabama-football-film-study-georgia/
+
+**Adams’s Lawyers Ask Judge to Dismiss Federal Bribery Charge Against Him**\
+`Lawyers for Mayor Eric Adams of New York filed a 25-page memo arguing that the conduct described in the indictment against him did not meet the definition of bribery.`\
+https://nytimes.com/2024/09/30/nyregion/adams-lawyer-indictment-defense.html
+
+**An Israeli Strike Inside the City Limits Frays Nerves in Beirut**\
+`A blast in the Cola neighborhood was the first known Israeli strike in the central part of the city since a war with Hezbollah in 2006.`\
+https://nytimes.com/2024/09/30/world/middleeast/an-israeli-strike-inside-the-city-limits-frays-nerves-in-beirut.html
+
 **De Jong available to play against Young Boys - Flick**\
 `Hansi Flick says Frenkie de Jong is available to make his return from injury in Barcelona&#8217;s Champions League match against Young Boys on Tuesday.`\
 https://nytimes.com/athletic/5805755/2024/09/30/frenkie-de-jong-injury-return-barcelona/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5805436/2024/09/30/six-kings-slam-trailer-tennis/
 **Kris Kristofferson: 12 Essential Songs**\
 `The country singer and songwriter, who died on Saturday at 88, tucked enduring aphorisms into tales about facing up to loss.`\
 https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-songs.html
-
-**California Forces a Rethink of A.I. Regulation**\
-`Gov. Gavin Newsom’s decision to veto wide-ranging set of rules for artificial intelligence companies underscores the political difficulty of policing the technology.`\
-https://nytimes.com/2024/09/30/business/dealbook/california-newsom-ai-bill.html
-
-**Leeds' Ampadu out for 10 weeks with left knee injury**\
-`Leeds United captain Ethan Ampadu has been ruled out for ten weeks with a left knee ligament injury.`\
-https://nytimes.com/athletic/5805703/2024/09/30/ethan-ampadu-injury-leeds/
-
-**Here’s the latest on the race for the White House.**\
-`By Randy Pennell`\
-https://nytimes.com/live/2024/09/30/us/trump-harris-election/heres-the-latest-on-the-race-for-the-white-house
 
