@@ -1,3 +1,15 @@
+**Martin questions Southampton player's character following Bournemouth defeat**\
+`Southampton manager Russell Martin questioned his side&#8217;s character following their 3-1 defeat by Bournemouth at the Vitality Stadium on Monday.`\
+https://nytimes.com/athletic/5807351/2024/09/30/southampton-bournemouth-russell-martin/
+
+**In an instant classic, Mets clinch playoff berth with win over Braves**\
+`Before the ninth inning, Francisco Lindor told his teammates: “Embrace the moment. Fight.”`\
+https://nytimes.com/athletic/5807335/2024/09/30/mets-clinch-braves-wild-card/
+
+**Five moments that endeared Dikembe Mutombo to the world**\
+`The Basketball Hall of Famer leaves behind a mammoth legacy. Here are five of his most memorable moments that endeared Mutombo to the world.`\
+https://nytimes.com/athletic/5806479/2024/09/30/dikembe-mutombo-top-moments/
+
 **Kawhi Leonard 'very cautious' managing knee since procedure**\
 `Leonard’s chronically murky status comes in the wake of Paul George, his sidekick for five seasons in LA, having left in free agency.`\
 https://nytimes.com/athletic/5807050/2024/09/30/kawhi-leonard-surgery-recovery-clippers-james-harden/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/30/arts/music/sean-combs-appeal-bail.html
 **Arteta on PSG ahead of reunion, Ronaldinho and plan for Arsenal's young stars**\
 `Mikel Arteta played for Paris Saint-Germain on loan — his Arsenal side face them on Tuesday evening`\
 https://nytimes.com/athletic/5806385/2024/09/30/arsenal-mikel-arteta-psg-ronaldinho/
-
-**Harris campaign begins ‘H.B.C.U. Homecoming Tour’ in battleground states.**\
-`By Erica L. Green`\
-https://nytimes.com/live/2024/09/30/us/trump-harris-election/harris-campaign-begins-hbcu-homecoming-tour-in-battleground-states
-
-**Israeli Forces Conduct Raids Into Lebanon as Troops Gather at Border**\
-`The raids were said to be focused on gathering intelligence about Hezbollah positions close to the Israeli-Lebanese border, but American officials said they believed that any incursion would be a limited one.`\
-https://nytimes.com/2024/09/30/world/middleeast/israel-hezbollah-lebanon-ground-invasion.html
-
-**Georgia’s 6-Week Abortion Ban Is Struck Down**\
-`The ruling is unlikely to be the final word on abortion access in the state, with the expectation that the case will ultimately be decided by the Georgia Supreme Court.`\
-https://nytimes.com/2024/09/30/us/georgia-abortion-ban-judge.html
 
