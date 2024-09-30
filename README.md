@@ -1,3 +1,7 @@
+**Shorthanded Chargers' valiant performance against Chiefs ends in predictable fashion**\
+`Game-management issues by Jim Harbaugh prevented a potential extra Chargers possession: "I wish I could have done better for our guys.”`\
+https://nytimes.com/athletic/5805004/2024/09/29/chargers-loss-chiefs-jim-harbaugh-justin-herbert/
+
 **Buckley: When Patriots need to do something, they either don't or do it badly**\
 `Jerod Mayo didn't roll the dice early when the offense-challenged Pats had a chance. Maybe he should have. Some encouragement couldn't hurt.`\
 https://nytimes.com/athletic/5804887/2024/09/29/patriots-49ers-jacoby-brissett-sacks-jerod-mayo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804630/2024/09/29/browns-raiders-week-4-next-man-u
 **How Braves will approach a doubleheader with a playoff spot on the line**\
 `The Braves will start rookie standout Spencer Schwellenbach in Game 1, with Chris Sale slated for Game 2 if they still need a win. `\
 https://nytimes.com/athletic/5804707/2024/09/29/braves-mets-wild-card-doubleheader/
-
-**Giants complete an 80-82 season as breaking even is not nearly enough**\
-`As much as the Giants appeared to tread water from one month to the next, their season went in a distinct direction that wasn't reflected.`\
-https://nytimes.com/athletic/5804772/2024/09/29/san-francisco-giants-finish-2024-season/
 
