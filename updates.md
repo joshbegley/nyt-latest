@@ -1,3 +1,15 @@
+**Padres vs. Braves Wild Card Series preview: Predictions, pitching matchups and more**\
+`The Padres probably have the best pitching staff in the postseason. The Braves probably have the best pitcher in this series, if he can go. `\
+https://nytimes.com/athletic/5806710/2024/09/30/padres-braves-2024-wild-card-series-preview-predictions/
+
+**Adams Confidant Steps Down Amid Federal Corruption Investigations**\
+`Few people in city government were closer to Mayor Eric Adams than Timothy Pearson, who had a role in handling migrant shelter contracts.`\
+https://nytimes.com/2024/09/30/nyregion/tim-pearson-resigns-adams.html
+
+**Pete Rose, MLB hit king, dies at 83**\
+`Rose, who was 83, collected 4,256 hits, the most in MLB history, across a 24-year career spent mostly with his hometown Cincinnati Reds.`\
+https://nytimes.com/athletic/5807687/2024/09/30/pete-rose-dead-mlb/
+
 **Here’s are the latest developments.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/heres-are-the-latest-developments

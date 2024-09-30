@@ -1,3 +1,15 @@
+**Padres vs. Braves Wild Card Series preview: Predictions, pitching matchups and more**\
+`The Padres probably have the best pitching staff in the postseason. The Braves probably have the best pitcher in this series, if he can go. `\
+https://nytimes.com/athletic/5806710/2024/09/30/padres-braves-2024-wild-card-series-preview-predictions/
+
+**Adams Confidant Steps Down Amid Federal Corruption Investigations**\
+`Few people in city government were closer to Mayor Eric Adams than Timothy Pearson, who had a role in handling migrant shelter contracts.`\
+https://nytimes.com/2024/09/30/nyregion/tim-pearson-resigns-adams.html
+
+**Pete Rose, MLB hit king, dies at 83**\
+`Rose, who was 83, collected 4,256 hits, the most in MLB history, across a 24-year career spent mostly with his hometown Cincinnati Reds.`\
+https://nytimes.com/athletic/5807687/2024/09/30/pete-rose-dead-mlb/
+
 **Here’s are the latest developments.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/heres-are-the-latest-developments
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/30/world/americas/nicaragua-humberto-ortega-dead.htm
 **Bruins' president Neely, Swayman's agent take contract negotiation public**\
 `Neely did not disclose what the restricted free agent goaltender's ask has been but said he was surprised by it.`\
 https://nytimes.com/athletic/5806291/2024/09/30/bruins-cam-neely-jeremy-swayman/
-
-**Justice Department to Analyze the 1921 Tulsa Race Massacre**\
-`Federal civil rights investigators will review the events surrounding the race massacre for a public report under the department’s Emmett Till Unsolved Civil Rights Crime Act.`\
-https://nytimes.com/2024/09/30/us/tulsa-massacre-justice-emmett-till.html
-
-**The Politics of Disaster**\
-`Big storms before elections are a test of how would-be — or incumbent — leaders handle a crisis.`\
-https://nytimes.com/2024/09/30/us/politics/hurricane-helene-trump-harris.html
-
-**Full MLB playoff bracket set as Mets, Braves get in: Which teams could be on upset watch?**\
-`The playoffs begin Tuesday with the Wild Card Series in each league.`\
-https://nytimes.com/athletic/5807314/2024/09/30/full-mlb-playoff-bracket-2024/
 
