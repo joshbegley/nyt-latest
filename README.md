@@ -1,40 +1,40 @@
-**The Athletic 134: Alabama is inevitable and back atop an all-SEC top four**\
-`After the wild swings of the Game of the Year, it's hard to know how to feel about both teams.`\
-https://nytimes.com/athletic/5804330/2024/09/30/college-football-rankings-134-teams-week-5/
+**Lost Lives and an Epic Crisis In North Carolina**\
+`Scenes of devastation in the western part of the state, where the traces of Hurricane Helene destroyed some communities and stranded others.`\
+https://nytimes.com/2024/09/30/us/helene-north-carolina-photos-video.html
 
-**Trippier and Tonali face late fitness calls before Newcastle's Carabao Cup tie**\
-`Newcastle United head coach Eddie Howe says a late call will be made regarding the availability of Kieran Trippier and Sandro Tonali ahead of Tuesday&#8217;s Carabao Cup tie against AFC Wimbledon.`\
-https://nytimes.com/athletic/5805443/2024/09/30/trippier-tonali-newcastle-injury-update/
+**Eric Adams Gives New Meaning to Frequent-Flier Program**\
+`That doesn’t mean the charges will stick.`\
+https://nytimes.com/2024/09/30/opinion/eric-adams-kamala-harris.html
 
-**The Verdict on Alessandro Michele’s Valentino**\
-`Major change is in the air, in all sorts of ways.`\
-https://nytimes.com/2024/09/30/style/alessandro-michele-valentino.html
+**Catching up with Gordon Hayward about retirement, injuries, Celtics championship and more**\
+`Hayward chats with The Athletic and reflects on his career and what's next.`\
+https://nytimes.com/athletic/5800432/2024/09/30/gordon-hayward-retirement-celtics-championship/
 
-**Madrid derby descended into chaos as players pleaded for peace with fans in balaclavas**\
-`Sunday's match was stopped for almost 20 minutes because of crowd trouble. This is what happened and the potential next steps`\
-https://nytimes.com/athletic/5803899/2024/09/30/real-madrid-atletico-courtois-objects-la-liga/
+**They’ve Made Hats for McCain and Trump. And Obama and Harris.**\
+`One of the last remaining union-run hat factory in the country is in New Jersey. Over more than three decades, its workers have made hats for competing campaigns.`\
+https://nytimes.com/2024/09/30/style/unionwear-harris-walz-maga-hats.html
 
-**N.Y.C. Streets Won’t Be Like This Forever (for Better or Worse)**\
-`New York City is constantly changing, opening the door to both new battles over traffic and radical solutions.`\
-https://nytimes.com/2024/09/30/nyregion/street-wars-new-york-evolution.html
+**Donors Say a Scarred Island Could Become a Park**\
+`Austin and Allison McChord have pledged to transform an abandoned industrial site into an ecological waterfront park as a gift to Norwalk, their hometown.`\
+https://nytimes.com/2024/09/30/arts/design/manresa-island-park-norwalk-mcchord-ingels.html
 
-**New York’s ‘One-Man Innocence Project’ May Finally Be Cleared Himself**\
-`Jon-Adrian Velazquez spent years in Sing Sing for a shooting he says he did not commit. Along the way, he helped others seek their freedom and became the face of a movement.`\
-https://nytimes.com/2024/09/30/nyregion/jon-adrian-velazquez-exoneration-conviction.html
+**Three Great Documentaries to Stream**\
+`This month’s picks cover Wisconsin moviemaking, New York music-making and Florida moneymaking.`\
+https://nytimes.com/2024/09/30/movies/three-great-documentaries-to-stream.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/30/crosswords/spelling-bee-forum.html
+**Will the Real Midwest Please Stand Up?**\
+`The vice-presidential debate, pitting Senator JD Vance of Ohio against Gov. Tim Walz of Minnesota, shines the spotlight on a complicated region.`\
+https://nytimes.com/2024/09/30/books/review/vance-walz-vp-debate-midwest.html
 
-**Disastrous trick play, defensive flaws sink Bills against Ravens: 'They whooped our butt'**\
-`Buffalo briefly battled back, then faltered again.`\
-https://nytimes.com/athletic/5805266/2024/09/30/bills-ravens-josh-allen-joe-brady-derrick-henry/
+**State of the Race: A Calm Week and Perhaps the Clearest Picture Yet**\
+`It’s getting easier to trust that the news isn’t driving the numbers, and we take a closer look at the Hispanic vote.`\
+https://nytimes.com/2024/09/30/upshot/polling-trump-harris-election.html
 
-**Here are the latest developments.**\
-`By Mike Ives`\
-https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/here-are-the-latest-developments
+**Millions Could Lose Insurance Subsidies, Depending on the Election**\
+`The issue is getting less attention than a possible repeal of the Affordable Care Act, but it’s much more likely to happen.`\
+https://nytimes.com/2024/09/30/upshot/obamacare-election-trump-harris.html
 
-**Live Updates: Hamas Says Its Leader in Lebanon Was Killed**\
-`The Hamas leader was killed in a refugee camp for Palestinians, the group said. A separate strike in Beirut damaged a residential building. Israel’s military did not immediately comment.`\
-https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah
+**Disoriented in America: Two Political Plays Reflect a Changed Country**\
+`The Off Broadway plays “Fatherland” and “Blood of the Lamb” explore the grief, anger and fear of no longer recognizing the country you love.`\
+https://nytimes.com/2024/09/30/theater/fatherland-blood-of-the-lamb-off-broadway.html
 
