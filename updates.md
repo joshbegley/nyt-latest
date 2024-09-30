@@ -1,3 +1,11 @@
+**Kawhi Leonard 'very cautious' managing knee since procedure**\
+`Leonard’s chronically murky status comes in the wake of Paul George, his sidekick for five seasons in LA, having left in free agency.`\
+https://nytimes.com/athletic/5807050/2024/09/30/kawhi-leonard-surgery-recovery-clippers-james-harden/
+
+**Israel Conducted Raids in Lebanon**\
+`Also, some of the busiest U.S. ports are set to shut down. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/09/30/briefing/israel-raids-lebanon-port-strike-east-coast.html
+
 **College football national title odds: Alabama, Ohio State are co-favorites ahead of Texas**\
 `Alabama and Ohio State are the co-favorites to win the national title on BetMGM after Alabama's big win against Georgia.`\
 https://nytimes.com/athletic/5807040/2024/09/30/2025-college-football-national-title-odds-alabama-ohio-state-texas/
