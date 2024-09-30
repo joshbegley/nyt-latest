@@ -1,3 +1,15 @@
+**Rodrigue: 1-3 Rams shorthanded enough without shooting themselves in the foot**\
+`The Rams were struggling in the red zone entering the game and then went 1 for 4 against the Bears — costly in a one-score outcome.`\
+https://nytimes.com/athletic/5803664/2024/09/29/rams-mistakes-loss-bears-matthew-stafford/
+
+**Joe Castiglione, voice of Red Sox radio, honored at final game**\
+`Castiglione, whose first season in the booth came in 1983, was the longest tenured play-by-play announcer in franchise history.`\
+https://nytimes.com/athletic/5804356/2024/09/29/red-sox-finish-2024-joe-castiglione-honored/
+
+**Mets embrace a season-defining doubleheader: 'This is what we want'**\
+`Both teams will turn to their second-best option for Game 1: Spencer Schwellenbach for the Braves and Tylor Megill for the Mets.`\
+https://nytimes.com/athletic/5804314/2024/09/29/mets-braves-wild-card-doubleheader/
+
 **'We beat ourselves': Both pillars of Steelers' winning formula went missing vs. Colts**\
 `The Steelers' undefeated start to the season ended after a comedy of errors in Indianapolis revealed many of their warts.`\
 https://nytimes.com/athletic/5804161/2024/09/29/steelers-loss-colts-defense-justin-fields/
