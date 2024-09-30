@@ -1,3 +1,7 @@
+**Man charged over post relating to fan's death at Hillsborough**\
+`A man has been charged in connection with a social media post about Sheffield Wednesday and the West Bromwich Albion fan who died at Hillsborough on Saturday.`\
+https://nytimes.com/athletic/5806329/2024/09/30/man-charged-west-brom-fan-death/
+
 **Middleton will be limited in Bucks camp after ankle surgeries**\
 `The forward said he hasn't discussed a specific playing time plan with the team beyond training camp.`\
 https://nytimes.com/athletic/5806045/2024/09/30/khris-middleton-injury-bucks-ankle-update/
