@@ -1,3 +1,11 @@
+**Le Pen and Her Party Go on Trial in France on E.U. Embezzlement Charges**\
+`Marine Le Pen and others are accused of using European funds for unrelated party expenses. The trial, expected to last two months, comes as her National Rally has gained more political sway.`\
+https://nytimes.com/2024/09/30/world/europe/le-pen-eu-france-embezzlement-trial.html
+
+**Hezbollah’s deputy commander rallies the group’s forces, but does not name a new leader.**\
+`By Ben Hubbard`\
+https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/hezbollahs-deputy-commander-rallies-the-groups-forces-but-does-not-name-a-new-leader
+
 **Israeli Commandos Making Preparatory Raids Into Lebanon, Officials Say**\
 `Brief incursions in recent days were to prepare the ground for a possible wider ground invasion, the officials said.`\
 https://nytimes.com/2024/09/30/world/middleeast/israeli-commandos-raids-lebanon.html

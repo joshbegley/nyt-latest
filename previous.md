@@ -1,3 +1,11 @@
+**Le Pen and Her Party Go on Trial in France on E.U. Embezzlement Charges**\
+`Marine Le Pen and others are accused of using European funds for unrelated party expenses. The trial, expected to last two months, comes as her National Rally has gained more political sway.`\
+https://nytimes.com/2024/09/30/world/europe/le-pen-eu-france-embezzlement-trial.html
+
+**Hezbollah’s deputy commander rallies the group’s forces, but does not name a new leader.**\
+`By Ben Hubbard`\
+https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/hezbollahs-deputy-commander-rallies-the-groups-forces-but-does-not-name-a-new-leader
+
 **Israeli Commandos Making Preparatory Raids Into Lebanon, Officials Say**\
 `Brief incursions in recent days were to prepare the ground for a possible wider ground invasion, the officials said.`\
 https://nytimes.com/2024/09/30/world/middleeast/israeli-commandos-raids-lebanon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/30/business/dealbook/directv-dish-merger-deal.html
 **Timber supports Rodri strike comments: 'It’s a big topic in dressing rooms'**\
 `Jurrien Timber has expressed his support for Manchester City midfielder Rodi&#8217;s comments in relation to potential player strikes due to the increased number of matches in the football calendar.`\
 https://nytimes.com/athletic/5805613/2024/09/30/jurrien-timber-rodri-strike-support/
-
-**The Diamondbacks reenergized their fan base. But will they give them another October run?**\
-`The fate of the Diamondbacks will be determined by the results of Monday's doubleheader between the Mets and Braves`\
-https://nytimes.com/athletic/5805232/2024/09/30/diamondbacks-fans-october-playoffs-nl-wild-card/
-
-**The Padres lineup is built for October, and its face is a 3-time batting champ who is admired and maligned**\
-`In a lineup full of stars, Arraez is the face of an offense that fueled the Padres’ return to October.`\
-https://nytimes.com/athletic/5804352/2024/09/30/luis-arraez-san-diego-padres-value/
 
