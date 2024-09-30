@@ -1,3 +1,7 @@
+**Stream These 11 Titles Before They Leave Netflix in October**\
+`A slew of TV shows and movies are leaving for U.S. subscribers this month. Here’s a roundup of the ones worth catching, including a few great horror picks for the season.`\
+https://nytimes.com/2024/09/30/arts/television/netflix-tv-movies-expiring-october.html
+
 **For Hours, He Clung to a Tree and Cried for Help. But None Came.**\
 `Bruce Tipton, 75, was in his trailer home when it was washed away by Tropical Storm Helene’s floodwaters. As his agonized family watched, he slipped into the raging river.`\
 https://nytimes.com/2024/09/30/us/hurricane-helene-marshall-north-carolina-floods.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5806716/2024/09/30/college-football-best-bets-week-
 **Justice Dept. to Pay $22 Million to Settle Gender Bias Claims Against F.B.I.**\
 `As part of the proposed settlement, former female trainees can reapply to become agents and two outside experts will review the training program to make sure the evaluation process is fair.`\
 https://nytimes.com/2024/09/30/us/politics/fbi-gender-bias-settlement.html
-
-**Pennsylvania Republicans Lag Democrats in Early Mail Ballot Requests**\
-`Encouraging voters to cast mail ballots — and cast them early — benefits political campaigns. But former President Donald J. Trump’s skepticism has hurt Republican efforts in a key state.`\
-https://nytimes.com/2024/09/30/us/politics/pennsylvania-republicans-mail-voting.html
 
