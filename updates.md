@@ -1,3 +1,7 @@
+**Connecticut Sun's win over Minnesota Lynx delivers the perfect WNBA playoffs showdown**\
+`The Sun got the advantage in Game 1, stealing a win on the road, there's but a lot more (tightly contested) basketball to play.`\
+https://nytimes.com/athletic/5805180/2024/09/30/minnesota-lynx-connecticut-sun-wnba-playoffs-showdown/
+
 **Cardinals team many picked to surprise does not appear to be particularly close**\
 `The Cardinals do not have to win every Sunday, but they need to keep building, giving themselves a chance. This was nothing of the sort.`\
 https://nytimes.com/athletic/5804528/2024/09/30/arizona-cardinals-washington-commanders-jonathan-gannon-kyler-murray/
