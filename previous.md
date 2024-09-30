@@ -30,8 +30,8 @@ https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-songs.html
 `Gov. Gavin Newsom’s decision to veto wide-ranging set of rules for artificial intelligence companies underscores the political difficulty of policing the technology.`\
 https://nytimes.com/2024/09/30/business/dealbook/california-newsom-ai-bill.html
 
-**Leeds' Ampadu out for 10 weeks with knee injury**\
-`Leeds United captain Ethan Ampadu has been ruled out for ten weeks with a knee ligament injury.`\
+**Leeds' Ampadu out for 10 weeks with left knee injury**\
+`Leeds United captain Ethan Ampadu has been ruled out for ten weeks with a left knee ligament injury.`\
 https://nytimes.com/athletic/5805703/2024/09/30/ethan-ampadu-injury-leeds/
 
 **Here’s the latest on the race for the White House.**\

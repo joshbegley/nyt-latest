@@ -1,3 +1,7 @@
+**Leeds' Ampadu out for 10 weeks with left knee injury**\
+`Leeds United captain Ethan Ampadu has been ruled out for ten weeks with a left knee ligament injury.`\
+https://nytimes.com/athletic/5805703/2024/09/30/ethan-ampadu-injury-leeds/
+
 **De Jong available to play against Young Boys - Flick**\
 `Hansi Flick says Frenkie de Jong is available to make his return from injury in Barcelona&#8217;s Champions League match against Young Boys on Tuesday.`\
 https://nytimes.com/athletic/5805755/2024/09/30/frenkie-de-jong-injury-return-barcelona/
