@@ -1,3 +1,15 @@
+**Why SEC, Big Ten are meeting to talk CFP access, scheduling arrangements**\
+`Conference leaders want a better understanding of what access to the 12-team CFP will be starting in 2026 before adjusting their schedules.`\
+https://nytimes.com/athletic/5807185/2024/09/30/sec-big-ten-cfp-bids-scheduling-agreement/
+
+**Inmates Are Charged in Killings at Federal Jail in Brooklyn**\
+`Federal prosecutors charged nine inmates at the troubled Metropolitan Detention Center in two killings and several assaults. One guard was charged in a shooting.`\
+https://nytimes.com/2024/09/30/nyregion/inmates-charged-mdc-brooklyn-jail.html
+
+**The Giants replaced Farhan Zaidi with Buster Posey. What comes next is a mystery**\
+`A change was probably necessary, but going from Zaidi to Posey is a shock. We won't know if the change worked for a while.`\
+https://nytimes.com/athletic/5806346/2024/09/30/sf-giants-buster-posey-farhan-zaidi-differences/
+
 **Martin questions Southampton player's character following Bournemouth defeat**\
 `Southampton manager Russell Martin questioned his side&#8217;s character following their 3-1 defeat by Bournemouth at the Vitality Stadium on Monday.`\
 https://nytimes.com/athletic/5807351/2024/09/30/southampton-bournemouth-russell-martin/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5807040/2024/09/30/2025-college-football-national-t
 **The Karl-Anthony Towns trade makes Knicks a major 'liability' for sportsbooks**\
 `The New York Knicks' NBA title odds are on the move after trading for Karl-Anthony Towns. Here's how the trade impacted the markets.`\
 https://nytimes.com/athletic/5807016/2024/09/30/karl-anthony-towns-trade-shifts-nba-title-odds-makes-knicks-a-liability/
-
-**Missed Student Loan Payments Will Hurt Your Credit Again. What to Know.**\
-`President Biden’s yearlong on-ramp to help federal student loan borrowers ease back into repayment ended on Sept. 30.`\
-https://nytimes.com/2024/09/30/your-money/student-loans-credit-score.html
-
-**Sean Combs Will Try Another Appeal of Judge’s Decision to Deny Bail**\
-`Mr. Combs is in a Brooklyn jail awaiting trial on federal charges of sex trafficking and racketeering conspiracy.`\
-https://nytimes.com/2024/09/30/arts/music/sean-combs-appeal-bail.html
-
-**Arteta on PSG ahead of reunion, Ronaldinho and plan for Arsenal's young stars**\
-`Mikel Arteta played for Paris Saint-Germain on loan — his Arsenal side face them on Tuesday evening`\
-https://nytimes.com/athletic/5806385/2024/09/30/arsenal-mikel-arteta-psg-ronaldinho/
 
