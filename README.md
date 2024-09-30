@@ -1,3 +1,15 @@
+**Rodrigue: 1-3 Rams shorthanded enough without shooting themselves in the foot**\
+`The Rams were struggling in the red zone entering the game and then went 1 for 4 against the Bears — costly in a one-score outcome.`\
+https://nytimes.com/athletic/5803664/2024/09/29/rams-mistakes-loss-bears-matthew-stafford/
+
+**Joe Castiglione, voice of Red Sox radio, honored at final game**\
+`Castiglione, whose first season in the booth came in 1983, was the longest tenured play-by-play announcer in franchise history.`\
+https://nytimes.com/athletic/5804356/2024/09/29/red-sox-finish-2024-joe-castiglione-honored/
+
+**Mets embrace a season-defining doubleheader: 'This is what we want'**\
+`Both teams will turn to their second-best option for Game 1: Spencer Schwellenbach for the Braves and Tylor Megill for the Mets.`\
+https://nytimes.com/athletic/5804314/2024/09/29/mets-braves-wild-card-doubleheader/
+
 **'We beat ourselves': Both pillars of Steelers' winning formula went missing vs. Colts**\
 `The Steelers' undefeated start to the season ended after a comedy of errors in Indianapolis revealed many of their warts.`\
 https://nytimes.com/athletic/5804161/2024/09/29/steelers-loss-colts-defense-justin-fields/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5804150/2024/09/29/panthers-andy-dalton-vibe-bryce-
 **How Darnell Mooney's savvy move saved Falcons' sputtering offense against Saints**\
 `The Atlanta Falcons beat the New Orleans Saints 26-24 on Sunday to even the all-time series at 55 wins each.`\
 https://nytimes.com/athletic/5804023/2024/09/29/falcons-darnell-mooney-younghoe-koo-saints/
-
-**Late defensive stand powers Raiders past Browns 20-16: Takeaways**\
-`A rushing attack and key defensive stand propelled the Raiders to a 20-16 win over Browns.`\
-https://nytimes.com/athletic/5802999/2024/09/29/raiders-browns-takeaways-result/
-
-**After Harris Calls for a Crackdown on Fentanyl, Trump Twists Her Position**\
-`Vice President Kamala Harris vowed to combat the flow of fentanyl into the country when she visited the border on Friday. Former President Donald J. Trump ratcheted up his false claims in response.`\
-https://nytimes.com/2024/09/29/us/politics/trump-harris-fentanyl.html
-
-**Chiefs pummel Justin Herbert but lose Rashee Rice in 17-10 win: Key takeaways**\
-`Kansas City finds another way to win a one-score game, marking its fourth 4-0 start in Mahomes' seven years as starter. `\
-https://nytimes.com/athletic/5803998/2024/09/29/chiefs-chargers-takeaways-result-score/
 
