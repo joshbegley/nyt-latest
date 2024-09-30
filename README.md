@@ -1,3 +1,7 @@
+**U.S. Officials Believe Israel Will Not Conduct Full Invasion of Lebanon**\
+`After a weekend of intense talks, the American officials said they believed that Israel was planning only smaller, targeted incursions in southern Lebanon.`\
+https://nytimes.com/2024/09/30/us/politics/us-israel-lebanon-hezbollah.html
+
 **Frankenstein’s Assistant**\
 `Creatures lurk in the depths of Kevin Curry and Jeff Chen’s first New York Times collaboration.`\
 https://nytimes.com/2024/09/30/crosswords/daily-puzzle-2024-10-01.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/nyregion/adams-lawyer-indictment-defense.html
 **An Israeli Strike Inside the City Limits Frays Nerves in Beirut**\
 `A blast in the Cola neighborhood was the first known Israeli strike in the central part of the city since a war with Hezbollah in 2006.`\
 https://nytimes.com/2024/09/30/world/middleeast/israel-strike-beirut-cola-residents.html
-
-**De Jong available to play against Young Boys - Flick**\
-`Hansi Flick says Frenkie de Jong is available to make his return from injury in Barcelona&#8217;s Champions League match against Young Boys on Tuesday.`\
-https://nytimes.com/athletic/5805755/2024/09/30/frenkie-de-jong-injury-return-barcelona/
 
