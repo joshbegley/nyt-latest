@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5807529/2024/09/30/red-sox-leadership-promises/
 https://nytimes.com/2024/09/30/business/media/sony-ravi-ahuja.html
 
 **A.J. Hinch is back in the postseason, in a place where he's hard to forget**\
-`It took five years for A.J. Hinch to get back to the playoffs. He'll do it at the park where he won 16 postseason games with the Astros.`\
+`It took five years for Hinch to get back to the playoffs. He'll do it at the park where he won 16 postseason games with the Astros.`\
 https://nytimes.com/athletic/5807578/2024/09/30/tigers-aj-hinch-astros-mlb-postseason/
 
