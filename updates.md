@@ -1,3 +1,7 @@
+**Jimmy Carter Is the Un-Trump**\
+`As men and as presidents, they could not be more different.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/jimmy-carter-contrast-trump
+
 **Bernal signs Barcelona contract extension with €500m release clause**\
 `Barcelona midfielder Marc Bernal has signed a contract extension that will keep him at the club until 2029.`\
 https://nytimes.com/athletic/5790467/2024/09/30/barcelona-marc-bernal-contract/
