@@ -1,3 +1,11 @@
+**Kris Kristofferson: 12 Essential Songs**\
+`The country singer and songwriter, who died on Saturday at 88, tucked enduring aphorisms into tales about facing up to loss.`\
+https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-songs.html
+
+**Leeds' Ampadu out for 10 weeks with knee injury**\
+`Leeds United captain Ethan Ampadu has been ruled out for ten weeks with a knee ligament injury.`\
+https://nytimes.com/athletic/5805703/2024/09/30/ethan-ampadu-injury-leeds/
+
 **California Forces a Rethink of A.I. Regulation**\
 `Gov. Gavin Newsom’s decision to veto wide-ranging set of rules for artificial intelligence companies underscores the political difficulty of policing the technology.`\
 https://nytimes.com/2024/09/30/business/dealbook/california-newsom-ai-bill.html

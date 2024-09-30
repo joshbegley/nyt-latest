@@ -1,3 +1,7 @@
+**Tennis Briefing: Six Kings Slam trailer, Naomi Osaka and Coco Gauff meet in Beijing**\
+`The Saudi Arabian exhibition event featuring Alcaraz, Sinner, Nadal, and Djokovic is the latest in the country's incursion into tennis`\
+https://nytimes.com/athletic/5805436/2024/09/30/six-kings-slam-trailer-tennis/
+
 **Kris Kristofferson: 12 Essential Songs**\
 `The country singer and songwriter, who died on Saturday at 88, tucked enduring aphorisms into tales about facing up to loss.`\
 https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-songs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804085/2024/09/30/anaheim-ducks-depth-chart-lines/
 **Le Pen and Her Party Go on Trial in France on E.U. Embezzlement Charges**\
 `Marine Le Pen and others are accused of using European funds for unrelated party expenses. The trial, expected to last two months, comes as her National Rally has gained more political sway.`\
 https://nytimes.com/2024/09/30/world/europe/le-pen-eu-france-embezzlement-trial.html
-
-**Hezbollah’s deputy commander rallies the group’s forces, but does not name a new leader.**\
-`By Ben Hubbard`\
-https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/hezbollahs-deputy-commander-rallies-the-groups-forces-but-does-not-name-a-new-leader
 

@@ -1,6 +1,14 @@
+**Kris Kristofferson: 12 Essential Songs**\
+`The country singer and songwriter, who died on Saturday at 88, tucked enduring aphorisms into tales about facing up to loss.`\
+https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-songs.html
+
 **California Forces a Rethink of A.I. Regulation**\
 `Gov. Gavin Newsom’s decision to veto wide-ranging set of rules for artificial intelligence companies underscores the political difficulty of policing the technology.`\
 https://nytimes.com/2024/09/30/business/dealbook/california-newsom-ai-bill.html
+
+**Leeds' Ampadu out for 10 weeks with knee injury**\
+`Leeds United captain Ethan Ampadu has been ruled out for ten weeks with a knee ligament injury.`\
+https://nytimes.com/athletic/5805703/2024/09/30/ethan-ampadu-injury-leeds/
 
 **Here’s the latest on the race for the White House.**\
 `By Randy Pennell`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/30/world/europe/le-pen-eu-france-embezzlement-trial.
 **Hezbollah’s deputy commander rallies the group’s forces, but does not name a new leader.**\
 `By Ben Hubbard`\
 https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/hezbollahs-deputy-commander-rallies-the-groups-forces-but-does-not-name-a-new-leader
-
-**Israeli Commandos Making Preparatory Raids Into Lebanon, Officials Say**\
-`Brief incursions in recent days were to prepare the ground for a possible wider ground invasion, the officials said.`\
-https://nytimes.com/2024/09/30/world/middleeast/israeli-commandos-raids-lebanon.html
-
-**Michel Houellebecq’s Outlook for an Ailing France: C’est Fini**\
-`In what the author says is his last novel, both a family and a society are on the verge of collapse.`\
-https://nytimes.com/2024/09/30/books/review/michel-houellebecq-annihilation.html
 
