@@ -1,3 +1,7 @@
+**Lost Lives and an Epic Crisis in North Carolina**\
+`Scenes of devastation in the western part of the state, where the traces of Hurricane Helene destroyed some communities and stranded others.`\
+https://nytimes.com/2024/09/30/us/helene-north-carolina-photos-video.html
+
 **Lost Lives and an Epic Crisis In North Carolina**\
 `Scenes of devastation in the western part of the state, where the traces of Hurricane Helene destroyed some communities and stranded others.`\
 https://nytimes.com/2024/09/30/us/helene-north-carolina-photos-video.html
