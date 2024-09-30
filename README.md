@@ -1,6 +1,14 @@
+**Missing their stars, Raiders play 'next man up' game to a T in besting Browns**\
+`Every coach in the NFL has run the “team win” and “next man up” cliches into the ground, but that's how the Raiders won on Sunday.`\
+https://nytimes.com/athletic/5804630/2024/09/29/browns-raiders-week-4-next-man-up/
+
 **How Braves will approach a doubleheader with a playoff spot on the line**\
 `The Braves will start rookie standout Spencer Schwellenbach in Game 1, with Chris Sale slated for Game 2 if they still need a win. `\
 https://nytimes.com/athletic/5804707/2024/09/29/braves-mets-wild-card-doubleheader/
+
+**Giants complete an 80-82 season as breaking even is not nearly enough**\
+`As much as the Giants appeared to tread water from one month to the next, their season went in a distinct direction that wasn't reflected.`\
+https://nytimes.com/athletic/5804772/2024/09/29/san-francisco-giants-finish-2024-season/
 
 **Why Yankees’ Anthony Rizzo is holding out hope he can play in ALDS**\
 `Could Rizzo really be an option to play in the American League Division Series, which starts Saturday?`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5803085/2024/09/29/cardinals-youth-movement-2025/
 **How the United States avoided panic and rallied to win another Presidents Cup**\
 `Suddenly tied with the International Team after Friday, four voices stepped up in the U.S. team room.`\
 https://nytimes.com/athletic/5804557/2024/09/29/united-states-presidents-cup-2024-win/
-
-**Jokes Around**\
-`Alexander Liebeskind opens our solving week.`\
-https://nytimes.com/2024/09/29/crosswords/daily-puzzle-2024-09-30.html
-
-**Jets' loss to Broncos, even with Aaron Rodgers, brings up bad memories of 2023**\
-`The offense struggled Sunday in a mistake-filled, deflating performance.`\
-https://nytimes.com/athletic/5804207/2024/09/29/jets-loss-broncos-aaron-rodgers-memories-2023/
 
