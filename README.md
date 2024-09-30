@@ -1,3 +1,7 @@
+**Mavericks coach Jason Kidd praises Klay Thompson's shooting**\
+`“I feel like our dreams can be possible because he’s here now,” Kyrie Irving said Monday.`\
+https://nytimes.com/athletic/5806736/2024/09/30/mavericks-klay-thompson-nba-jason-kidd/
+
 **Kris Kristofferson’s Stories Were Wonderfully Larger Than Life**\
 `The singer, songwriter and actor, who died on Saturday at 88, found his way into situations and tales that underscored his role as a conscience for country music.`\
 https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-myths-music-movies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5806510/2024/09/30/shaq-thompson-injury-carolina-pa
 **MLB to return to primary uniforms for All-Star Game**\
 `Players previously represented their "hometown" teams from the 1930s to 2019.`\
 https://nytimes.com/athletic/5806473/2024/09/30/mlb-all-star-game-uniforms/
-
-**Kris Kristofferson Stood by Sinead O’Connor as the Boos Rained Down**\
-`At a moment when the Irish singer had few people defending her, the country music veteran showed strong support. It created a bond that remained throughout their lives.`\
-https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-sinead-oconnor.html
 
