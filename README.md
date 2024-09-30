@@ -1,3 +1,15 @@
+**Bernal signs Barcelona contract extension with €500m release clause**\
+`Barcelona midfielder Marc Bernal has signed a contract extension that will keep him at the club until 2029.`\
+https://nytimes.com/athletic/5790467/2024/09/30/barcelona-marc-bernal-contract/
+
+**In Biden’s Last Months, Selfies on Air Force One and a Chorus of ‘Thank You, Joe’**\
+`In the months since President Biden dropped out of the race, Democratic voters have bombarded him with words of gratitude. But they are, at least in part, thanking him for quitting.`\
+https://nytimes.com/2024/09/30/us/politics/president-biden-democrats-farewell.html
+
+**‘Rust’ Armorer Is Denied New Trial After Dismissal of Alec Baldwin’s Case**\
+`The armorer’s lawyers argued that the same evidence dispute that led a judge to toss the actor’s charge had deprived their client of a fair trial.`\
+https://nytimes.com/2024/09/30/movies/rust-trial-hannah-gutierrez-reed.html
+
 **How Should We View and Treat Obesity?**\
 `Readers discuss an essay about whether it is a disease and how it should be diagnosed. Also: Fear in schools; natural disasters; political distractions.`\
 https://nytimes.com/2024/09/30/opinion/obesity-treatment.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5806237/2024/09/30/fifa-bans-samuel-etoo/
 **Monthlong Fire Flares Up Again in Southern California**\
 `The Line fire, which has burned since Sept. 5, forced another evacuation order this weekend.`\
 https://nytimes.com/2024/09/30/us/line-fire-san-bernadino-evacuations.html
-
-**Democrats Sue Over Georgia Requirement That Ballots Be Counted by Hand**\
-`The lawsuit claims that the new rule would invite chaos on election night, delaying some reporting and putting the security of ballots at risk.`\
-https://nytimes.com/2024/09/30/us/politics/georgia-election-board-hand-counting-ballots-lawsuit.html
-
-**‘64 million reasons why I’d be playing right now’: Cam Neely discloses Bruins' Jeremy Swayman offer**\
-`Neely did not disclose what the restricted free agent goaltender's ask has been but said he was surprised by it.`\
-https://nytimes.com/athletic/5806291/2024/09/30/bruins-cam-neely-jeremy-swayman/
-
-**Alpine to halt F1 engine production in 2025, becoming power unit customer team**\
-`Renault, Alpine's parent company, has produced F1 engines since the 1970s. `\
-https://nytimes.com/athletic/5805933/2024/09/30/alpine-f1-engine-production-renault/
 
