@@ -1,3 +1,7 @@
+**Twins' brass, from top down, will try to figure out how to clean up mess**\
+`After their epic collapse, the Twins must figure out how to win back fans while also determining how to clean up their mess on the diamond. `\
+https://nytimes.com/athletic/5804196/2024/09/29/twins-pohlad-falvey-baldelli-offseason/
+
 **Colts hold off Steelers as Joe Flacco shows Anthony Richardson how to keep it simple**\
 `Can Richardson, blessed with Superman’s abilities, learn to be just as effective when they’re not needed?`\
 https://nytimes.com/athletic/5804228/2024/09/29/colts-win-anthony-richardson-joe-flacco-steelers/
