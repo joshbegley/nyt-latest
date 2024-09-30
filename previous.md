@@ -1,3 +1,15 @@
+**Why Adams’s Successor in Brooklyn Returned 10 Gold Tea Sets From Turkey**\
+`Antonio Reynoso, the Brooklyn borough president, said he declined or returned gifts from Turkey and met with F.B.I. officials who said to be wary of such gifts.`\
+https://nytimes.com/2024/09/30/nyregion/adams-reynoso-turkey-gifts.html
+
+**How to Help Victims of Hurricane Helene**\
+`Aid groups are working in multiple states to help those affected by the hurricane and its aftermath.`\
+https://nytimes.com/2024/09/30/us/hurricane-helene-victims-aid.html
+
+**Biden Expands Asylum Restrictions at the Southern Border**\
+`Biden administration officials have credited the policy for leading to the dramatic reduction in illegal crossings.`\
+https://nytimes.com/2024/09/30/us/politics/biden-expands-asylum-restrictions.html
+
 **Mavericks coach Jason Kidd praises Klay Thompson's shooting**\
 `“I feel like our dreams can be possible because he’s here now,” Kyrie Irving said Monday.`\
 https://nytimes.com/athletic/5806736/2024/09/30/mavericks-klay-thompson-nba-jason-kidd/
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/5806045/2024/09/30/khris-middleton-injury-bucks-ank
 `The Federal Trade Commission said the oil giant can acquire the smaller company as long as the chief executive of Hess does not join its board.`\
 https://nytimes.com/2024/09/30/business/energy-environment/ftc-chevron-hess-board.html
 
-**Fed Chair Powell Underscores That More Rate Cuts Are Coming**\
-`Jerome H. Powell, chair of the Federal Reserve, said that inflation is down and unemployment up “significantly,” and that rates will move down “over time.”`\
+**Powell Points to Two More Normal-Sized Rate Cuts This Year**\
+`Jerome H. Powell, chair of the Federal Reserve, said that central bankers will lower rates as much as needed, but have forecast two more quarter point rate cuts this year.`\
 https://nytimes.com/2024/09/30/business/economy/fed-chair-jerome-powell-interest-rate-cuts.html
-
-**NFL Week 5 odds, schedule: Vikings favored over Jets in London and several close matchups**\
-`NFL Week 5 features the "London Game" between the Vikings and Jets and only a few big favorites across the board.`\
-https://nytimes.com/athletic/5805965/2024/09/30/nfl-week-5-odds-spreads-schedule-vikings-jets-london/
-
-**Panthers' Thompson believed to have torn Achilles**\
-`Team's leading tackler suffers season-ending injury for the second consecutive year.`\
-https://nytimes.com/athletic/5806510/2024/09/30/shaq-thompson-injury-carolina-panthers/
-
-**MLB to return to primary uniforms for All-Star Game**\
-`Players previously represented their "hometown" teams from the 1930s to 2019.`\
-https://nytimes.com/athletic/5806473/2024/09/30/mlb-all-star-game-uniforms/
 

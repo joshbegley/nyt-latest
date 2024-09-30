@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5806045/2024/09/30/khris-middleton-injury-bucks-ank
 `The Federal Trade Commission said the oil giant can acquire the smaller company as long as the chief executive of Hess does not join its board.`\
 https://nytimes.com/2024/09/30/business/energy-environment/ftc-chevron-hess-board.html
 
-**Powell Points to Two More Normal-Sized Rate Cuts This Year**\
+**Powell Points to Two More Normal-Size Rate Cuts This Year**\
 `Jerome H. Powell, chair of the Federal Reserve, said that central bankers will lower rates as much as needed, but have forecast two more quarter point rate cuts this year.`\
 https://nytimes.com/2024/09/30/business/economy/fed-chair-jerome-powell-interest-rate-cuts.html
 

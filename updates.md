@@ -1,3 +1,19 @@
+**Why Adams’s Successor in Brooklyn Returned 10 Gold Tea Sets From Turkey**\
+`Antonio Reynoso, the Brooklyn borough president, said he declined or returned gifts from Turkey and met with F.B.I. officials who said to be wary of such gifts.`\
+https://nytimes.com/2024/09/30/nyregion/adams-reynoso-turkey-gifts.html
+
+**How to Help Victims of Hurricane Helene**\
+`Aid groups are working in multiple states to help those affected by the hurricane and its aftermath.`\
+https://nytimes.com/2024/09/30/us/hurricane-helene-victims-aid.html
+
+**Biden Expands Asylum Restrictions at the Southern Border**\
+`Biden administration officials have credited the policy for leading to the dramatic reduction in illegal crossings.`\
+https://nytimes.com/2024/09/30/us/politics/biden-expands-asylum-restrictions.html
+
+**Powell Points to Two More Normal-Sized Rate Cuts This Year**\
+`Jerome H. Powell, chair of the Federal Reserve, said that central bankers will lower rates as much as needed, but have forecast two more quarter point rate cuts this year.`\
+https://nytimes.com/2024/09/30/business/economy/fed-chair-jerome-powell-interest-rate-cuts.html
+
 **Mavericks coach Jason Kidd praises Klay Thompson's shooting**\
 `“I feel like our dreams can be possible because he’s here now,” Kyrie Irving said Monday.`\
 https://nytimes.com/athletic/5806736/2024/09/30/mavericks-klay-thompson-nba-jason-kidd/
