@@ -1,4 +1,12 @@
 **Astros vs. Tigers Wild Card Series preview: Predictions, pitching matchups and more**\
+`It's a very familiar face in October, the Astros, versus the surging Tigers, who are making their first playoff appearance in 10 years.`\
+https://nytimes.com/athletic/5803660/2024/09/29/astros-tigers-2024-wild-card-series-preview-predictions/
+
+**How Darnell Mooney's savvy move saved Falcons' sputtering offense against Saints**\
+`The Atlanta Falcons beat the New Orleans Saints 26-24 on Sunday to even the all-time series at 55 wins each.`\
+https://nytimes.com/athletic/5804023/2024/09/29/falcons-darnell-mooney-younghoe-koo-saints/
+
+**Astros vs. Tigers Wild Card Series preview: Predictions, pitching matchups and more**\
 `It's a very familiar face in October, the Astros, versus the surging Tigers, who are making their first playoff appearance in 10 years. `\
 https://nytimes.com/athletic/5803660/2024/09/29/astros-tigers-2024-wild-card-series-preview-predictions/
 
