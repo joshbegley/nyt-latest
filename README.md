@@ -2,7 +2,7 @@
 `Major change is in the air, in all sorts of ways.`\
 https://nytimes.com/2024/09/30/style/alessandro-michele-valentino.html
 
-**Madrid’s derby descended into chaos, as players pleaded for peace with fans in balaclavas**\
+**Madrid derby descended into chaos as players pleaded for peace with fans in balaclavas**\
 `Sunday's match was stopped for almost 20 minutes because of crowd trouble. This is what happened and the potential next steps`\
 https://nytimes.com/athletic/5803899/2024/09/30/real-madrid-atletico-courtois-objects-la-liga/
 
