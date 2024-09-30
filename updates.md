@@ -1,3 +1,11 @@
+**The Stakes on Abortion**\
+`We explain where Kamala Harris and Donald Trump stand on the issue.`\
+https://nytimes.com/2024/09/30/briefing/the-stakes-on-abortion.html
+
+**Bulls training camp preview: Zach LaVine, Coby White, Nikola Vučević and the roster**\
+`The Bulls' training camp will feature familiar faces and potential stars of tomorrow. Here’s a player-by-player look at this year’s roster.`\
+https://nytimes.com/athletic/5804966/2024/09/30/chicago-bulls-training-camp-preview/
+
 **How Caleb Williams put together his most efficient game in a much-needed Bears win**\
 `It wasn't prolific, and it had a bumpy start, but Willams put together his best overall game as the Bears finally got into a rhythm.`\
 https://nytimes.com/athletic/5804051/2024/09/30/bears-caleb-williams-best-game-rams/
