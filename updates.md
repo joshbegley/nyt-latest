@@ -1,3 +1,11 @@
+**Kris Kristofferson: A Life in Pictures**\
+`After years as a struggling songwriter, he found his voice with a direct, evocative style that launched his decades-long career as a musician, actor and activist.`\
+https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-photos.html
+
+**How to halt the fantasy football tight end scoring nightmare**\
+`The tight end pool is as shallow as a pool of tears this season, but there are ways to cope with the position's scoring drought.`\
+https://nytimes.com/athletic/5805800/2024/09/30/fantasy-football-week-4-recap-the-best-way-to-solve-the-tight-end-scoring-slump/
+
 **Breaking Up With China Is Hard to Do**\
 `For many U.S. companies, Chinese partnership may be too important to quit.`\
 https://nytimes.com/2024/09/30/opinion/american-businesses-china.html
