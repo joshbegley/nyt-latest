@@ -1,3 +1,7 @@
+**Frankenstein’s Assistant**\
+`Creatures lurk in the depths of Kevin Curry and Jeff Chen’s first New York Times collaboration.`\
+https://nytimes.com/2024/09/30/crosswords/daily-puzzle-2024-10-01.html
+
 **Across the World, Diplomats Gird for a Trump Assault on Climate Action**\
 `Some leaders insist that the global clean energy transition will happen with or without the United States.`\
 https://nytimes.com/2024/09/30/climate/global-climate-negotiations-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/world/middleeast/israel-strike-beirut-cola-reside
 **De Jong available to play against Young Boys - Flick**\
 `Hansi Flick says Frenkie de Jong is available to make his return from injury in Barcelona&#8217;s Champions League match against Young Boys on Tuesday.`\
 https://nytimes.com/athletic/5805755/2024/09/30/frenkie-de-jong-injury-return-barcelona/
-
-**USC final thoughts: What stood out in the Trojans' comeback over Wisconsin?**\
-`Miller Moss continues to excel. The offensive line showed some progress. Zion Branch made some plays. `\
-https://nytimes.com/athletic/5805686/2024/09/30/usc-trojans-miller-moss-wisconsin-minnesota/
 
