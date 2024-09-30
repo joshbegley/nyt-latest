@@ -1,3 +1,15 @@
+**N.Y.C. Streets Won’t Be Like This Forever (for Better or Worse)**\
+`New York City is constantly changing, opening the door to both new battles over traffic and radical solutions.`\
+https://nytimes.com/2024/09/30/nyregion/street-wars-new-york-evolution.html
+
+**New York’s ‘One-Man Innocence Project’ May Finally Be Cleared Himself**\
+`Jon-Adrian Velazquez spent years in Sing Sing for a shooting he says he did not commit. Along the way, he helped others seek their freedom and became the face of a movement.`\
+https://nytimes.com/2024/09/30/nyregion/jon-adrian-velazquez-exoneration-conviction.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/30/crosswords/spelling-bee-forum.html
+
 **Disastrous trick play, defensive flaws sink Bills against Ravens: 'They whooped our butt'**\
 `Buffalo briefly battled back, then faltered again.`\
 https://nytimes.com/athletic/5805266/2024/09/30/bills-ravens-josh-allen-joe-brady-derrick-henry/
