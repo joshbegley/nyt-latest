@@ -1,3 +1,15 @@
+**Dikembe Mutombo, a Towering N.B.A. Presence, Dies at 58**\
+`Mr. Mutombo, who did not begin playing basketball until adolescence, retired with the second-most blocked shots in league history.`\
+https://nytimes.com/2024/09/30/sports/dikembe-mutombo-dead.html
+
+**U.S. and Allies Sound Alarm Over War Ties Among Axis of Adversaries**\
+`The Biden administration is struggling to halt cooperation among Russia, China, North Korea and Iran. It feels urgency over the wars in Ukraine and the Middle East while also aiming to protect Taiwan.`\
+https://nytimes.com/2024/09/30/us/politics/us-axis-china-iran-russia.html
+
+**Hall of Famer Mutombo, 58, dies of brain cancer**\
+`The 7-foot-2 center averaged 9.8 points, 10.3 rebounds and 2.8 blocks per game, earning eight All-Star and three All-NBA selections.`\
+https://nytimes.com/athletic/5806126/2024/09/30/dikembe-mutumbo-cancer-died-nba-news/
+
 **Ohio State film study: What worked — and what didn't — in the Buckeyes' win at Michigan State**\
 `The Buckeyes did a lot of things very well in the win at Michigan State, but there were a few things to nitpick after watching the film. `\
 https://nytimes.com/athletic/5805918/2024/09/30/ohio-state-buckeyes-film-study-michigan-state/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5806054/2024/09/30/fm25-release-launch-date/
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/09/30/weather/tropical-storm-kirk-hurricane/here-is-the-latest-on-the-storm
-
-**Tropical Storm Kirk Forms Near the Cape Verde Islands**\
-`The storm is expected to become a hurricane this week. It does not pose an immediate threat to land.`\
-https://nytimes.com/live/2024/09/30/weather/tropical-storm-kirk-hurricane
-
-**Saudi Arabia Pledges to Send Funding for Palestinians**\
-`An expected cash infusion for the Palestinian Authority would signal renewed Saudi backing for Palestinian statehood and help mend ties between Riyadh and the body that administers the West Bank.`\
-https://nytimes.com/2024/09/30/world/middleeast/saudi-arabia-palestine-financial-aid.html
-
-**The Bounce: Five takeaways on Karl-Anthony Towns to New York**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5805688/2024/09/30/karl-anthony-towns-timberwolves-julius-randle-knicks-derrick-rose-bulls-wnba-playoffs-lynx-aces-liberty-sun-nba-the-bounce/
 
