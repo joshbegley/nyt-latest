@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5807343/2024/09/30/chicago-bulls-outlook-media-day/
 https://nytimes.com/athletic/5807480/2024/09/30/canadiens-laine-injury-replacement-strategy/
 
 **Here are the latest developments.**\
-`Israel’s leadership approved a limited invasion of southern Lebanon, involving a small number of commando units.`\
+`Israel’s military said it had begun a “limited” invasion of southern Lebanon, targeting Hezbollah infrastructure in villages close to the Israel-Lebanon border.`\
 https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/cabinet-ground-op
 
 **Trump, No Stranger to Playing Storm Politics, Visits a Battered Georgia**\
