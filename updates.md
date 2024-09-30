@@ -1,3 +1,7 @@
+**College football Week 6 odds, schedule: Top-10 teams Miami and Missouri get road tests**\
+`The Week 6 college football slate isn't loaded with big games, but two top-10 teams, Missouri and Michigan, are underdogs on the road.`\
+https://nytimes.com/athletic/5806180/2024/09/30/college-football-week-6-odds-schedule-miami-michigan-missouri/
+
 **Man charged over post relating to fan's death at Hillsborough**\
 `A man has been charged in connection with a social media post about Sheffield Wednesday and the West Bromwich Albion fan who died at Hillsborough on Saturday.`\
 https://nytimes.com/athletic/5806329/2024/09/30/man-charged-west-brom-fan-death/
