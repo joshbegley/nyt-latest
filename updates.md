@@ -1,3 +1,7 @@
+**Mavericks coach Jason Kidd praises Klay Thompson's shooting**\
+`“I feel like our dreams can be possible because he’s here now,” Kyrie Irving said Monday.`\
+https://nytimes.com/athletic/5806736/2024/09/30/mavericks-klay-thompson-nba-jason-kidd/
+
 **Kris Kristofferson’s Stories Were Wonderfully Larger Than Life**\
 `The singer, songwriter and actor, who died on Saturday at 88, found his way into situations and tales that underscored his role as a conscience for country music.`\
 https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-myths-music-movies.html
