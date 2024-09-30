@@ -1,3 +1,15 @@
+**Thompson: 49ers' Fred Warner — 'best linebacker in the game' — delivers again with pick 6**\
+`With the 49ers struggling again Sunday, Fred Warner got up, took off, and again created a moment to lift his team.`\
+https://nytimes.com/athletic/5804969/2024/09/30/san-francisco-49ers-fred-warner-interception-patriots/
+
+**Word of the Day: seismic**\
+`This word has appeared in 308 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/30/learning/word-of-the-day-seismic.html
+
+**Britain Is the First Major Economy to Stop Using Coal. It’s a Risky Experiment.**\
+`Few in Britain will mourn the passing of coal, but it’s hard not to feel a little nervous about what, at its heart, is an experiment, one fraught with danger.`\
+https://nytimes.com/2024/09/30/opinion/england-coal-wind-power.html
+
 **Connecticut Sun's win over Minnesota Lynx delivers the perfect WNBA playoffs showdown**\
 `The Sun got the advantage in Game 1, stealing a win on the road, there's but a lot more (tightly contested) basketball to play.`\
 https://nytimes.com/athletic/5805180/2024/09/30/minnesota-lynx-connecticut-sun-wnba-playoffs-showdown/
