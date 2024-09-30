@@ -1,3 +1,15 @@
+**A Strike in Central Beirut Damages a Building**\
+`If the explosion is confirmed to be an Israeli attack, it would be the first Israeli strike within the Lebanese capital since the 2006 war with Hezbollah.`\
+https://nytimes.com/2024/09/29/world/middleeast/lebanon-beirut-strike-israel.html
+
+**Brock Purdy touts his wheels, flashes deep ball as 49ers' stabilizing force against Patriots**\
+`Purdy finished with 288 yards in Sunday's win, including a 53-yard strike that was his longest throw of the season so far.`\
+https://nytimes.com/athletic/5804877/2024/09/29/49ers-brock-purdy-scrambling-win-patriots/
+
+**Stocks Tumble in Japan After Party’s Election of New Prime Minister**\
+`Stocks dropped after Japan’s governing party chose Shigeru Ishiba, a critic of the country’s longstanding ultralow interest rates, as its leader.`\
+https://nytimes.com/2024/09/29/business/japan-stocks-nikkei-shigeru-ishiba.html
+
 **Stocks Tumble in Japan Following Party’s Election of New Prime Minister**\
 `Stocks dropped after Japan’s governing party chose Shigeru Ishiba, a critic of the country’s longstanding ultralow interest rates, as its leader.`\
 https://nytimes.com/2024/09/29/business/japan-stocks-nikkei-shigeru-ishiba.html
