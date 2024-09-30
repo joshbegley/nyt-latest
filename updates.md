@@ -1,3 +1,19 @@
+**Breaking Up With China Is Hard to Do**\
+`For many U.S. companies, Chinese partnership may be too important to quit.`\
+https://nytimes.com/2024/09/30/opinion/american-businesses-china.html
+
+**Biden Tells Hurricane Survivors, ‘We Will Be There With You’**\
+`During his speech at the White House on Wednesday, President Joe Biden spoke about the hurricane Helene recovery efforts saying he expects to ask congress for additional funding to the affected states.`\
+https://nytimes.com/video/us/politics/100000009730976/biden-helene.html
+
+**NBA Media Days: What Nuggets, Thunder and other execs are saying entering 2024-25 season**\
+`Several teams held media days with their lead basketball executives. We put together a notebook of the most interesting tidbits. `\
+https://nytimes.com/athletic/5799464/2024/09/30/nuggets-thunder-lakers-celtics-nba-media-day/
+
+**Biden Says He Could Ask Congress to Pass Aid for ‘Catastrophic’ Helene Damage**\
+`The president, who plans to travel to North Carolina this week, said he might need to call Congress in for a special session after it did not include additional disaster relief in its spending bill.`\
+https://nytimes.com/2024/09/30/us/politics/biden-helene-congress.html
+
 **Dozens Feared Dead After Migrant Boat Sinks Off Spain**\
 `At least nine people are known to have died in a sinking off the Canary Islands and 48 more are missing, the latest disaster on the perilous Atlantic crossing from West Africa.`\
 https://nytimes.com/2024/09/30/world/europe/spain-migrant-ship-canary-islands.html

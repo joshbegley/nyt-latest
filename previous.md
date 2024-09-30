@@ -1,3 +1,19 @@
+**Breaking Up With China Is Hard to Do**\
+`For many U.S. companies, Chinese partnership may be too important to quit.`\
+https://nytimes.com/2024/09/30/opinion/american-businesses-china.html
+
+**Biden Tells Hurricane Survivors, ‘We Will Be There With You’**\
+`During his speech at the White House on Wednesday, President Joe Biden spoke about the hurricane Helene recovery efforts saying he expects to ask congress for additional funding to the affected states.`\
+https://nytimes.com/video/us/politics/100000009730976/biden-helene.html
+
+**NBA Media Days: What Nuggets, Thunder and other execs are saying entering 2024-25 season**\
+`Several teams held media days with their lead basketball executives. We put together a notebook of the most interesting tidbits. `\
+https://nytimes.com/athletic/5799464/2024/09/30/nuggets-thunder-lakers-celtics-nba-media-day/
+
+**Biden Says He Could Ask Congress to Pass Aid for ‘Catastrophic’ Helene Damage**\
+`The president, who plans to travel to North Carolina this week, said he might need to call Congress in for a special session after it did not include additional disaster relief in its spending bill.`\
+https://nytimes.com/2024/09/30/us/politics/biden-helene-congress.html
+
 **Dozens Feared Dead After Migrant Boat Sinks Off Spain**\
 `At least nine people are known to have died in a sinking off the Canary Islands and 48 more are missing, the latest disaster on the perilous Atlantic crossing from West Africa.`\
 https://nytimes.com/2024/09/30/world/europe/spain-migrant-ship-canary-islands.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/30/us/politics/biden-expands-asylum-restrictions.htm
 **With Klay Thompson, Mavs believe title 'dreams can be possible'**\
 `“I feel like our dreams can be possible because he’s here now,” Kyrie Irving said Monday.`\
 https://nytimes.com/athletic/5806736/2024/09/30/mavericks-klay-thompson-nba-jason-kidd/
-
-**Kris Kristofferson’s Stories Were Wonderfully Larger Than Life**\
-`The singer, songwriter and actor, who died on Saturday at 88, found his way into situations and tales that underscored his role as a conscience for country music.`\
-https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-myths-music-movies.html
-
-**College football Week 6 odds, schedule: Top-10 teams Miami and Missouri get road tests**\
-`The Week 6 college football slate isn't loaded with big games, but two top-10 teams, Missouri and Michigan, are underdogs on the road.`\
-https://nytimes.com/athletic/5806180/2024/09/30/college-football-week-6-odds-schedule-miami-michigan-missouri/
-
-**Man charged over post relating to fan's death at Hillsborough**\
-`A man has been charged in connection with a social media post about Sheffield Wednesday and the West Bromwich Albion fan who died at Hillsborough on Saturday.`\
-https://nytimes.com/athletic/5806329/2024/09/30/man-charged-west-brom-fan-death/
-
-**Middleton will be limited in Bucks camp after ankle surgeries**\
-`The forward said he hasn't discussed a specific playing time plan with the team beyond training camp.`\
-https://nytimes.com/athletic/5806045/2024/09/30/khris-middleton-injury-bucks-ankle-update/
 
