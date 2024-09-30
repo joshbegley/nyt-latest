@@ -1,3 +1,11 @@
+**In New York, this is Jalen Brunson's world — the one he created**\
+`The Knicks are going all in because Jalen Brunson is worth it. Everyone since high school should know that, though.`\
+https://nytimes.com/athletic/5803142/2024/09/30/new-york-knicks-jalen-brunson-nba-villanova/
+
+**In Iowa, Democrats Count on Backlash to Abortion Law to Bolster Bids for Congress**\
+`Democrats in a pair of competitive House districts are spotlighting the anti-abortion stances of Republican incumbents after the state enacted one of the most restrictive bans in the country.`\
+https://nytimes.com/2024/09/30/us/politics/iowa-democrats-abortion-law-backlash.html
+
 **Imagining the true horror of FIFA's World Cup final half-time show**\
 `Salt Bae, Black Eyed Peas (but not the new stuff) and ending world hunger - Gianni Infantino's big extravaganza 'revealed'`\
 https://nytimes.com/athletic/5805552/2024/09/30/fifa-world-cup-half-time-show/
@@ -30,12 +38,4 @@ https://nytimes.com/paidpost/2024-08-15/.html
 **Verizon Cellphone Users Report Outages Across the U.S.**\
 `More than 100,000 cases of Verizon outages have been reported across the country, according to the website Downdetector.`\
 https://nytimes.com/2024/09/30/business/verizon-outages-us.html
-
-**Dikembe Mutombo, a Towering N.B.A. Presence, Dies at 58**\
-`Mr. Mutombo, who did not begin playing basketball until adolescence, retired with the second-most blocked shots in league history.`\
-https://nytimes.com/2024/09/30/sports/dikembe-mutombo-dead.html
-
-**U.S. and Allies Sound Alarm Over War Ties Among Axis of Adversaries**\
-`The Biden administration is struggling to halt cooperation among Russia, China, North Korea and Iran. It feels urgency over the wars in Ukraine and the Middle East while also aiming to protect Taiwan.`\
-https://nytimes.com/2024/09/30/us/politics/us-axis-china-iran-russia.html
 
