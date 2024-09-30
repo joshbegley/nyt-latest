@@ -1,3 +1,7 @@
+**How to halt the fantasy football tight end scoring nightmare**\
+`The tight end pool is as shallow as a pool of tears this season, but there are ways to cope with the position's scoring drought.`\
+https://nytimes.com/athletic/5805800/2024/09/30/fantasy-football-week-4-recap-the-best-way-to-solve-the-tight-end-scoring-slump/
+
 **Breaking Up With China Is Hard to Do**\
 `For many U.S. companies, Chinese partnership may be too important to quit.`\
 https://nytimes.com/2024/09/30/opinion/american-businesses-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/us/hurricane-helene-victims-aid.html
 **Biden Expands Asylum Restrictions at the Southern Border**\
 `Biden administration officials have credited the policy for leading to the dramatic reduction in illegal crossings.`\
 https://nytimes.com/2024/09/30/us/politics/biden-expands-asylum-restrictions.html
-
-**With Klay Thompson, Mavs believe title 'dreams can be possible'**\
-`“I feel like our dreams can be possible because he’s here now,” Kyrie Irving said Monday.`\
-https://nytimes.com/athletic/5806736/2024/09/30/mavericks-klay-thompson-nba-jason-kidd/
 
