@@ -1,3 +1,7 @@
+**Justice Dept. to Pay $22 Million to Settle Claims of Gender Bias**\
+`As part of the proposed settlement, former female trainees can reapply to become agents and two outside experts will review the training program to make sure the evaluation process is fair.`\
+https://nytimes.com/2024/09/30/us/politics/fbi-gender-bias-settlement.html
+
 **Pennsylvania Republicans Lag Democrats in Early Mail Ballot Requests**\
 `Encouraging voters to cast mail ballots — and cast them early — benefits political campaigns. But former President Donald J. Trump’s skepticism has hurt Republican efforts in a key state.`\
 https://nytimes.com/2024/09/30/us/politics/pennsylvania-republicans-mail-voting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-photos.html
 **How to halt the fantasy football tight end scoring nightmare**\
 `The tight end pool is as shallow as a pool of tears this season, but there are ways to cope with the position's scoring drought.`\
 https://nytimes.com/athletic/5805800/2024/09/30/fantasy-football-week-4-recap-the-best-way-to-solve-the-tight-end-scoring-slump/
-
-**Breaking Up With China Is Hard to Do**\
-`For many U.S. companies, Chinese partnership may be too important to quit.`\
-https://nytimes.com/2024/09/30/opinion/american-businesses-china.html
 
