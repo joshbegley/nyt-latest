@@ -1,3 +1,11 @@
+**How Should We View and Treat Obesity?**\
+`Readers discuss an essay about whether it is a disease and how it should be diagnosed. Also: Fear in schools; natural disasters; political distractions.`\
+https://nytimes.com/2024/09/30/opinion/obesity-treatment.html
+
+**Gavin Creel, Tony-Winning Musical Theater Actor, Dies at 48**\
+`He won the award playing a Yonkers feed store clerk in “Hello, Dolly!” and was also nominated for roles in “Thoroughly Modern Millie” and “Hair.”`\
+https://nytimes.com/2024/09/30/theater/gavin-creel-dead.html
+
 **Trump Golf Course Suspect Pleads Not Guilty**\
 `The plea from the man accused of mounting an assassination attempt against former President Donald J. Trump came at a hearing that lasted less than five minutes.`\
 https://nytimes.com/2024/09/30/us/trump-golf-ryan-routh-gunman-plea.html

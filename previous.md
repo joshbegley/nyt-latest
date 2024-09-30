@@ -1,3 +1,11 @@
+**How Should We View and Treat Obesity?**\
+`Readers discuss an essay about whether it is a disease and how it should be diagnosed. Also: Fear in schools; natural disasters; political distractions.`\
+https://nytimes.com/2024/09/30/opinion/obesity-treatment.html
+
+**Gavin Creel, Tony-Winning Musical Theater Actor, Dies at 48**\
+`He won the award playing a Yonkers feed store clerk in “Hello, Dolly!” and was also nominated for roles in “Thoroughly Modern Millie” and “Hair.”`\
+https://nytimes.com/2024/09/30/theater/gavin-creel-dead.html
+
 **Trump Golf Course Suspect Pleads Not Guilty**\
 `The plea from the man accused of mounting an assassination attempt against former President Donald J. Trump came at a hearing that lasted less than five minutes.`\
 https://nytimes.com/2024/09/30/us/trump-golf-ryan-routh-gunman-plea.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5806291/2024/09/30/bruins-cam-neely-jeremy-swayman/
 **Alpine to halt F1 engine production in 2025, becoming power unit customer team**\
 `Renault, Alpine's parent company, has produced F1 engines since the 1970s. `\
 https://nytimes.com/athletic/5805933/2024/09/30/alpine-f1-engine-production-renault/
-
-**In New York, this is Jalen Brunson's world — the one he created**\
-`The Knicks are going all in because Jalen Brunson is worth it. Everyone since high school should know that, though.`\
-https://nytimes.com/athletic/5803142/2024/09/30/new-york-knicks-jalen-brunson-nba-villanova/
-
-**In Iowa, Democrats Count on Backlash to Abortion Law to Bolster Bids for Congress**\
-`Democrats in a pair of competitive House districts are spotlighting the anti-abortion stances of Republican incumbents after the state enacted one of the most restrictive bans in the country.`\
-https://nytimes.com/2024/09/30/us/politics/iowa-democrats-abortion-law-backlash.html
 
