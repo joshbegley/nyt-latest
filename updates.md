@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`Israel’s leadership approved a limited invasion of southern Lebanon, involving a small number of commando units.`\
+https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/cabinet-ground-op
+
+**Trump, No Stranger to Playing Storm Politics, Visits a Battered Georgia**\
+`In Valdosta, Ga., Donald Trump made a false claim about President Biden’s responsiveness and demonstrated his long-held instinct to view disaster response through the prism of his personal politics.`\
+https://nytimes.com/2024/09/30/us/politics/trump-georgia-hurricane-helene.html
+
 **Trump, No Stranger to Playing Storm Politics, Visits a Battered Georgia**\
 `In Valdosta, Ga., Donald Trump made a false claim about President Biden’s responsiveness and demonstrated his long-held instinct to view disaster response through the prism of his personal politics.`\
 https://nytimes.com/live/2024/09/30/us/trump-harris-election/trump-georgia-hurricane-helene
