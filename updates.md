@@ -1,3 +1,11 @@
+**Justin Jefferson sets the tone as unbeaten Vikings survive to beat Packers at Lambeau**\
+`The superstar receiver is proving his worth both on the field and in the locker room as Vikings hold off Packers' comeback attempt.`\
+https://nytimes.com/athletic/5804434/2024/09/29/justin-jefferson-vikings-packers-week-4/
+
+**'It looks like an NBA roster': How the New York Liberty's length could be semifinals key**\
+`NEW YORK — The final basket of Breanna Stewart’s 34-point clinic on Sunday to open the WNBA semifinals was never going to be blocked.`\
+https://nytimes.com/athletic/5804513/2024/09/29/liberty-aces-wnba-playoffs-length/
+
 **How the United States avoided panic and rallied to win another Presidents Cup**\
 `Suddenly tied with the International Team after Friday, four voices stepped up in the U.S. team room.`\
 https://nytimes.com/athletic/5804557/2024/09/29/united-states-presidents-cup-2024-win/
