@@ -1,3 +1,7 @@
+**Kris Kristofferson’s Stories Were Wonderfully Larger Than Life**\
+`The singer, songwriter and actor, who died on Saturday at 88, found his way into situations and tales that underscored his role as a conscience for country music.`\
+https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-myths-music-movies.html
+
 **College football Week 6 odds, schedule: Top-10 teams Miami and Missouri get road tests**\
 `The Week 6 college football slate isn't loaded with big games, but two top-10 teams, Missouri and Michigan, are underdogs on the road.`\
 https://nytimes.com/athletic/5806180/2024/09/30/college-football-week-6-odds-schedule-miami-michigan-missouri/
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/5806510/2024/09/30/shaq-thompson-injury-carolina-pa
 https://nytimes.com/athletic/5806473/2024/09/30/mlb-all-star-game-uniforms/
 
 **Kris Kristofferson Stood by Sinead O’Connor as the Boos Rained Down**\
-`At a moment when the Irish singer had few people defending her, the country music veteran showed strong support.`\
+`At a moment when the Irish singer had few people defending her, the country music veteran showed strong support. It created a bond that remained throughout their lives.`\
 https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-sinead-oconnor.html
-
-**Arsenal and Real Madrid interested in signing Brazilian prospect Vitor Reis**\
-`Arsenal and Real Madrid are among a host of top European clubs who have shown an interest in signing Palmeiras centre-back Vitor Reis.`\
-https://nytimes.com/athletic/5806575/2024/09/30/arsenal-real-madrid-vitor-reis/
 
