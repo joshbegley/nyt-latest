@@ -1,3 +1,7 @@
+**Courtois out until after international break with injury**\
+`Real Madrid goalkeeper Thibaut Courtois is expected to be sidelined until after October&#8217;s international break with an abductor injury in his left leg.`\
+https://nytimes.com/athletic/5805532/2024/09/30/thibaut-courtois-injury-real-madrid-latest/
+
 **The Stakes on Abortion**\
 `We explain where Kamala Harris and Donald Trump stand on the issue.`\
 https://nytimes.com/2024/09/30/briefing/the-stakes-on-abortion.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5805439/2024/09/30/aaron-rodgers-jets-robert-saleh/
 `David Stearns and Carlos Mendoza can put a stamp on the first season of their era of Mets baseball.`\
 https://nytimes.com/athletic/5805261/2024/09/30/mets-braves-doubleheader-wild-card/
 
-**Assessing 4-0 teams, from Vikings’ shocking start to Chiefs’ WR setback: Sando’s Pick Six**\
-`The Vikings' rise from nowhere recalls the '98 Vikings and '99 Rams. Meanwhile, Patrick Mahomes might have to adapt without his top target.`\
-https://nytimes.com/athletic/5801917/2024/09/30/nfl-chiefs-vikings-4-0-teams/
-
 **In Reilly Smith, Rangers may have finally found their Kreider-Zibanejad linemate**\
 `"I really think the Rangers have been looking for a guy like Reilly," said former Ranger Brendan Smith, his brother.`\
 https://nytimes.com/athletic/5804313/2024/09/30/reilly-smith-rangers-top-line/
 
-**Mirtle: Why the Leafs are well over the salary cap — and the cuts that need to be made**\
-`Toronto's cap situation is going to be a compelling storyline all season. And it all starts with roster cutdown day a week away.`\
-https://nytimes.com/athletic/5799912/2024/09/30/maple-leafs-roster-salary-cap/
+**Assessing 4-0 teams, from Vikings’ shocking start to Chiefs’ WR setback: Sando’s Pick Six**\
+`The Vikings' rise from nowhere recalls the '98 Vikings and '99 Rams. Meanwhile, Patrick Mahomes might have to adapt without his top target.`\
+https://nytimes.com/athletic/5801917/2024/09/30/nfl-chiefs-vikings-4-0-teams/
 
