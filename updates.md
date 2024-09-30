@@ -1,3 +1,11 @@
+**Trump, No Stranger to Playing Storm Politics, Visits a Battered Georgia**\
+`In Valdosta, Ga., Donald Trump made a false claim about President Biden’s responsiveness and demonstrated his long-held instinct to view disaster response through the prism of his personal politics.`\
+https://nytimes.com/live/2024/09/30/us/trump-harris-election/trump-georgia-hurricane-helene
+
+**Why Isn’t Harris Clobbering Trump? These 15 Swing State Voters Can Tell You.**\
+`The participants discuss what either candidate might say that could solidify their vote.`\
+https://nytimes.com/interactive/2024/09/30/opinion/harris-trump-swing-voters-focus-group.html
+
 **Signs of a looming Israeli ground invasion permeate the border.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/signs-of-a-looming-israeli-ground-invasion-permeated-the-border
