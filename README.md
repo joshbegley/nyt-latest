@@ -1,3 +1,7 @@
+**Mets clinch playoff spot with late comeback**\
+`In a game befitting the roller-coaster nature of the Mets' season, the club pulled off a pair of dramatic comebacks to make the playoffs. `\
+https://nytimes.com/athletic/5806838/2024/09/30/mets-clinch-playoffs-wild-card/
+
 **49ers minutia minute: From Malik Mustapha to Evan Anderson, rookies played big role in win**\
 `Seven different rookies combined for 181 snaps on offense and defense in Sunday's win over the New England Patriots`\
 https://nytimes.com/athletic/5806844/2024/09/30/49ers-snap-counts-patriots-mustapha-anderson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5806818/2024/09/30/bruins-jeremy-swayman-contract-s
 **How Helene Wrought So Much Havoc, So Far From the Coasts**\
 `Hurricanes typically weaken over land. But if the ground is already wet from earlier rains, storms can receive an extra jolt that keeps them churning.`\
 https://nytimes.com/2024/09/30/climate/hurricane-helene-inland-rains.html
-
-**Russia to Boost Defense Budget as Ukraine War Drags On**\
-`The Kremlin plans a 25 percent increase to more than $145 billion in 2025, a year in which it had intended to cut military spending.`\
-https://nytimes.com/2024/09/30/world/europe/russia-defense-budget-ukraine-war.html
 
