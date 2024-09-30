@@ -1,3 +1,7 @@
+**Frankenstein’s Assistant**\
+`Creatures lurk in the depths of Kevin Curry and Jeff Chen’s first New York Times collaboration.`\
+https://nytimes.com/2024/09/30/crosswords/daily-puzzle-2024-10-01.html
+
 **Across the World, Diplomats Gird for a Trump Assault on Climate Action**\
 `Some leaders insist that the global clean energy transition will happen with or without the United States.`\
 https://nytimes.com/2024/09/30/climate/global-climate-negotiations-trump.html
