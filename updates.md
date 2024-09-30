@@ -1,4 +1,8 @@
 **Justice Dept. to Pay $22 Million to Settle Claims of Gender Bias**\
+`As part of the proposed settlement, former female F.B.I. trainees can reapply to become agents and two outside experts will review the training program to make sure the evaluation process is fair.`\
+https://nytimes.com/2024/09/30/us/politics/fbi-gender-bias-settlement.html
+
+**Justice Dept. to Pay $22 Million to Settle Claims of Gender Bias**\
 `As part of the proposed settlement, former female trainees can reapply to become agents and two outside experts will review the training program to make sure the evaluation process is fair.`\
 https://nytimes.com/2024/09/30/us/politics/fbi-gender-bias-settlement.html
 
