@@ -1,3 +1,11 @@
+**Trump Says ‘One Really Violent Day’ Would End Property Crime**\
+`The remarks were the latest example of his praise for executive power and force in imposing order, this time over crimes the F.B.I. said last week were falling.`\
+https://nytimes.com/2024/09/30/us/politics/trump-crime-crackdown-rough.html
+
+**The Athletic has free newsletters across many sports. Sign up here!**\
+`Did you know The Athletic has a portfolio of eight newsletters? Well, now you do!`\
+https://nytimes.com/athletic/5803046/2024/09/30/the-athletic-newsletters-sign-up/
+
 **Ethan Mbappe to miss chance to face brother Kylian due to injury**\
 `There will be no Champions League reunion for the Mbappe brothers on Wednesday night after Lille midfielder Ethan Mbappe was ruled out for “several weeks” through injury.`\
 https://nytimes.com/athletic/5806874/2024/09/30/mbappe-kylian-ethan-champions-league-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/30/us/politics/biden-helene-congress.html
 **Dozens Feared Dead After Migrant Boat Sinks Off Spain**\
 `At least nine people are known to have died in a sinking off the Canary Islands and 48 more are missing, the latest disaster on the perilous Atlantic crossing from West Africa.`\
 https://nytimes.com/2024/09/30/world/europe/spain-migrant-ship-canary-islands.html
-
-**Tester’s Senate Fate Could Make or Break a Harris Presidency**\
-`With Democrats waging an uphill battle to hold the Senate, the vice president, should she win, could end up facing a Republican firewall with veto power over her cabinet, court picks and legislation.`\
-https://nytimes.com/2024/09/30/us/politics/tester-senate-harris-republicans.html
-
-**Why Adams’s Successor in Brooklyn Returned 10 Gold Tea Sets From Turkey**\
-`Antonio Reynoso, the Brooklyn borough president, said he declined or returned gifts from Turkey and met with F.B.I. officials who said to be wary of such gifts.`\
-https://nytimes.com/2024/09/30/nyregion/adams-reynoso-turkey-gifts.html
 
