@@ -1,4 +1,4 @@
-**Shorthanded Chargers' valiant performance against Chiefs ends in predictable fashion**\
+**Short-handed Chargers' valiant performance against Chiefs ends in predictable fashion**\
 `Game-management issues by Jim Harbaugh prevented a potential extra Chargers possession: "I wish I could have done better for our guys.”`\
 https://nytimes.com/athletic/5805004/2024/09/29/chargers-loss-chiefs-jim-harbaugh-justin-herbert/
 
