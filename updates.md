@@ -1,3 +1,11 @@
+**China Removes Curbs on Home Buyers, Sparking Stock Market Surge**\
+`After seeing prices decline for years, Chinese officials have made a burst of policy changes aimed at making easier to buy homes.`\
+https://nytimes.com/2024/09/30/business/china-property-mortgages.html
+
+**The Athletic FC: Ten Hag wants patience, will he get it? Madrid derby chaos**\
+`Today in TAFC: Ten Hag's future called into question (again), Madrid derby descends into chaos and the transfers that already look smart.`\
+https://nytimes.com/athletic/5805562/2024/09/30/ten-hag-wants-patience-will-he-get-it-madrid-derby-chaos-palmers-brilliance/
+
 **DirecTV Strikes Deal to Acquire Dish Network**\
 `The deal, which is subject to regulatory approval, would create one of the largest pay-TV distributors in the U.S. The companies were blocked in an attempt to merge in 2002.`\
 https://nytimes.com/2024/09/30/business/dealbook/directv-dish-merger-deal.html
