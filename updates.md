@@ -1,3 +1,7 @@
+**F.T.C. Clears Chevron’s Purchase of Hess With Board Condition**\
+`The Federal Trade Commission said the oil giant can acquire the smaller company as long as the chief executive of Hess does not join its board.`\
+https://nytimes.com/2024/09/30/business/energy-environment/ftc-chevron-hess-board.html
+
 **Fed Chair Powell Underscores That More Rate Cuts Are Coming**\
 `Jerome H. Powell, chair of the Federal Reserve, said that inflation is down and unemployment up “significantly,” and that rates will move down “over time.”`\
 https://nytimes.com/2024/09/30/business/economy/fed-chair-jerome-powell-interest-rate-cuts.html
