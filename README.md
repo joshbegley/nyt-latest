@@ -1,8 +1,12 @@
+**A Strike in Central Beirut Damages a Building**\
+`If the explosion is confirmed to be an Israeli attack, it would be the first Israeli strike within the Lebanese capital since the 2006 war with Hezbollah.`\
+https://nytimes.com/2024/09/29/world/middleeast/lebanon-beirut-strike-israel.html
+
 **Brock Purdy touts his wheels, flashes deep ball as 49ers' stabilizing force against Patriots**\
 `Purdy finished with 288 yards in Sunday's win, including a 53-yard strike that was his longest throw of the season so far.`\
 https://nytimes.com/athletic/5804877/2024/09/29/49ers-brock-purdy-scrambling-win-patriots/
 
-**Stocks Tumble in Japan Following Party’s Election of New Prime Minister**\
+**Stocks Tumble in Japan After Party’s Election of New Prime Minister**\
 `Stocks dropped after Japan’s governing party chose Shigeru Ishiba, a critic of the country’s longstanding ultralow interest rates, as its leader.`\
 https://nytimes.com/2024/09/29/business/japan-stocks-nikkei-shigeru-ishiba.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804382/2024/09/29/chiefs-rashee-rice-acl-tear/
 **Justin Jefferson sets the tone as unbeaten Vikings survive to beat Packers at Lambeau**\
 `The superstar receiver is proving his worth both on the field and in the locker room as Vikings hold off Packers' comeback attempt.`\
 https://nytimes.com/athletic/5804434/2024/09/29/justin-jefferson-vikings-packers-week-4/
-
-**John Ashton, ‘Beverly Hills Cop’ Actor, Dies at 76**\
-`Mr. Ashton was most widely recognized for his role as Sgt. John Taggart in the “Beverly Hills Cop” franchise.`\
-https://nytimes.com/2024/09/29/arts/beverly-hills-cop-john-ashton-dead.html
 
