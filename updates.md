@@ -1,3 +1,11 @@
+**Greenberg: Can the Bulls win a lot of games this season? Probably not, but they'll try**\
+`There's no point stressing yourself out over the Bulls. But give them credit for this. They’re promising absolutely nothing at media day.`\
+https://nytimes.com/athletic/5807343/2024/09/30/chicago-bulls-outlook-media-day/
+
+**Two ways the Canadiens can cope with the loss of big-ticket forward Patrik Laine**\
+`Patrik Laine's injury leaves a big void in the Canadiens lineup, but it creates an avenue to acquiring what might be most vital to the team.`\
+https://nytimes.com/athletic/5807480/2024/09/30/canadiens-laine-injury-replacement-strategy/
+
 **Here are the latest developments.**\
 `Israel’s leadership approved a limited invasion of southern Lebanon, involving a small number of commando units.`\
 https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/cabinet-ground-op
