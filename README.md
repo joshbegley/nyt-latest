@@ -1,3 +1,7 @@
+**What to Know About the Axis of Resistance, the Iran-backed Militia Network**\
+`The alliance is under scrutiny after the recent Israeli strikes in Lebanon.`\
+https://nytimes.com/article/axis-resistance-iran-militia.html
+
 **Mets clinch playoff spot with late comeback**\
 `In a game befitting the roller-coaster nature of the Mets' season, the club pulled off a pair of dramatic comebacks to make the playoffs. `\
 https://nytimes.com/athletic/5806838/2024/09/30/mets-clinch-playoffs-wild-card/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/us/politics/pennsylvania-republicans-mail-voting.
 **Bruins vs. Jeremy Swayman: Why the team took the standoff to another level**\
 `The message in Cam Neely's news conference Monday was for anyone doubting the Bruins' willingness to pay top players their deserved value.`\
 https://nytimes.com/athletic/5806818/2024/09/30/bruins-jeremy-swayman-contract-standoff-escalation/
-
-**How Helene Wrought So Much Havoc, So Far From the Coasts**\
-`Hurricanes typically weaken over land. But if the ground is already wet from earlier rains, storms can receive an extra jolt that keeps them churning.`\
-https://nytimes.com/2024/09/30/climate/hurricane-helene-inland-rains.html
 
