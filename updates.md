@@ -1,3 +1,11 @@
+**What to Know About the Axis of Resistance, the Iran-backed Militia Network**\
+`The alliance is under scrutiny after the recent Israeli strikes in Lebanon.`\
+https://nytimes.com/article/axis-resistance-iran-militia.html
+
+**Mets clinch playoff spot with late comeback**\
+`In a game befitting the roller-coaster nature of the Mets' season, the club pulled off a pair of dramatic comebacks to make the playoffs. `\
+https://nytimes.com/athletic/5806838/2024/09/30/mets-clinch-playoffs-wild-card/
+
 **49ers minutia minute: From Malik Mustapha to Evan Anderson, rookies played big role in win**\
 `Seven different rookies combined for 181 snaps on offense and defense in Sunday's win over the New England Patriots`\
 https://nytimes.com/athletic/5806844/2024/09/30/49ers-snap-counts-patriots-mustapha-anderson/
