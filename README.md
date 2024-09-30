@@ -2,7 +2,7 @@
 `The lawsuit claims that the new rule would invite chaos on election night, delaying some reporting and putting the security of ballots at risk.`\
 https://nytimes.com/2024/09/30/us/politics/georgia-election-board-hand-counting-ballots-lawsuit.html
 
-**’64 million reasons why I’d be playing right now’: Cam Neely discloses Bruins' Jeremy Swayman offer**\
+**'64 million reasons why I’d be playing right now’: Cam Neely discloses Bruins' Jeremy Swayman offer**\
 `Neely did not disclose what the restricted free agent goaltender's ask has been but said he was surprised by it.`\
 https://nytimes.com/athletic/5806291/2024/09/30/bruins-cam-neely-jeremy-swayman/
 
