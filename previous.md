@@ -1,3 +1,7 @@
+**After embarrassing loss, Eagles must find discipline during bye week**\
+`Mistakes in all parts of the game doomed the Eagles.`\
+https://nytimes.com/athletic/5803127/2024/09/29/eagles-loss-buccaneers-discipline-bye-week/
+
 **Rodrigue: 1-3 Rams shorthanded enough without shooting themselves in the foot**\
 `The Rams were struggling in the red zone entering the game and then went 1 for 4 against the Bears — costly in a one-score outcome.`\
 https://nytimes.com/athletic/5803664/2024/09/29/rams-mistakes-loss-bears-matthew-stafford/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804139/2024/09/29/bengals-win-joe-burrow-offense-p
 **Panthers lose, but there's a different vibe since Andy Dalton replaced Bryce Young**\
 `After winning a week ago, the Panthers made a game of it Sunday vs. the Bengals, which is a significant step in the right direction.`\
 https://nytimes.com/athletic/5804150/2024/09/29/panthers-andy-dalton-vibe-bryce-young-bengals/
-
-**How Darnell Mooney's savvy move saved Falcons' sputtering offense against Saints**\
-`The Atlanta Falcons beat the New Orleans Saints 26-24 on Sunday to even the all-time series at 55 wins each.`\
-https://nytimes.com/athletic/5804023/2024/09/29/falcons-darnell-mooney-younghoe-koo-saints/
 
