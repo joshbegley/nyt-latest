@@ -1,3 +1,19 @@
+**Imagining the true horror of FIFA's World Cup final half-time show**\
+`Salt Bae, Black Eyed Peas (but not the new stuff) and ending world hunger - Gianni Infantino's big extravaganza 'revealed'`\
+https://nytimes.com/athletic/5805552/2024/09/30/fifa-world-cup-half-time-show/
+
+**Billie Eilish Brings a Master Class in Intimacy to the Arena Stage**\
+`Hit Me Hard and Soft: The Tour opened in Canada on Sunday night, showcasing the 22-year-old pop star’s gift for dynamics, dramatics and audience engagement.`\
+https://nytimes.com/2024/09/30/arts/music/billie-eilish-hit-me-hard-and-soft-tour-review.html
+
+**Heisman Trophy odds: Milroe emerges as favorite after Alabama tops Georgia**\
+`Jalen Milroe is the new betting favorite to win the Heisman Trophy after Alabama's 41-34 big win against Georgia on Saturday.`\
+https://nytimes.com/athletic/5802275/2024/09/30/2024-heisman-trophy-odds-jalen-milroe-cam-ward-travis-hunter-arch-manning/
+
+**Patriots sticking with Jacoby Brissett as starting QB**\
+`In Weeks 3 and 4, Brissett's passer rating of 74.3 ranks 31st in the NFL, according to Trumedia`\
+https://nytimes.com/athletic/5806214/2024/09/30/patriots-jacoby-brissett-starting/
+
 **USMNT Player Tracker: Pepi maxing out, Celtic place trust in Auston and Sargent's major impact**\
 `There is no stopping Christian Pulisic in Milan while Folarin Balogun's Monaco revival also features in our weekend roundup`\
 https://nytimes.com/athletic/5805962/2024/09/30/usmnt-pepi-celtic-trusty-sargent-pulisic-tracker/
@@ -22,20 +38,4 @@ https://nytimes.com/2024/09/30/sports/dikembe-mutombo-dead.html
 **U.S. and Allies Sound Alarm Over War Ties Among Axis of Adversaries**\
 `The Biden administration is struggling to halt cooperation among Russia, China, North Korea and Iran. It feels urgency over the wars in Ukraine and the Middle East while also aiming to protect Taiwan.`\
 https://nytimes.com/2024/09/30/us/politics/us-axis-china-iran-russia.html
-
-**Hall of Famer Mutombo, 58, dies of brain cancer**\
-`The 7-foot-2 center averaged 9.8 points, 10.3 rebounds and 2.8 blocks per game, earning eight All-Star and three All-NBA selections.`\
-https://nytimes.com/athletic/5806126/2024/09/30/dikembe-mutumbo-cancer-died-nba-news/
-
-**Ohio State film study: What worked — and what didn't — in the Buckeyes' win at Michigan State**\
-`The Buckeyes did a lot of things very well in the win at Michigan State, but there were a few things to nitpick after watching the film. `\
-https://nytimes.com/athletic/5805918/2024/09/30/ohio-state-buckeyes-film-study-michigan-state/
-
-**Why Mount Everest Is Growing Taller Every Year**\
-`Researchers say that two rivers merged some 89,000 years ago and gave the mightiest peak in the Himalayas a huge growth spurt.`\
-https://nytimes.com/2024/09/30/science/mount-everest-tallest-growing.html
-
-**Ritzy! Cheddar! Chicken!**\
-`Everyone’s favorite buttery cracker makes a fantastic coating for chicken breasts.`\
-https://nytimes.com/2024/09/30/dining/ritzy-cheddar-chicken.html
 

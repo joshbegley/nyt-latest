@@ -1,3 +1,19 @@
+**Imagining the true horror of FIFA's World Cup final half-time show**\
+`Salt Bae, Black Eyed Peas (but not the new stuff) and ending world hunger - Gianni Infantino's big extravaganza 'revealed'`\
+https://nytimes.com/athletic/5805552/2024/09/30/fifa-world-cup-half-time-show/
+
+**Billie Eilish Brings a Master Class in Intimacy to the Arena Stage**\
+`Hit Me Hard and Soft: The Tour opened in Canada on Sunday night, showcasing the 22-year-old pop star’s gift for dynamics, dramatics and audience engagement.`\
+https://nytimes.com/2024/09/30/arts/music/billie-eilish-hit-me-hard-and-soft-tour-review.html
+
+**Heisman Trophy odds: Milroe emerges as favorite after Alabama tops Georgia**\
+`Jalen Milroe is the new betting favorite to win the Heisman Trophy after Alabama's 41-34 big win against Georgia on Saturday.`\
+https://nytimes.com/athletic/5802275/2024/09/30/2024-heisman-trophy-odds-jalen-milroe-cam-ward-travis-hunter-arch-manning/
+
+**Patriots sticking with Jacoby Brissett as starting QB**\
+`In Weeks 3 and 4, Brissett's passer rating of 74.3 ranks 31st in the NFL, according to Trumedia`\
+https://nytimes.com/athletic/5806214/2024/09/30/patriots-jacoby-brissett-starting/
+
 **Verizon Cellphone Users Report Outages Across the U.S.**\
 `More than 100,000 cases of Verizon outages have been reported across the country, according to the website Downdetector.`\
 https://nytimes.com/2024/09/30/business/verizon-outages-us.html
