@@ -1,3 +1,7 @@
+**NHL waiver tracker: Best players on the wire throughout 2024-25 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/5799672/2024/09/30/nhl-waivers-tracker-preseason/
+
 **What to Know About the Axis of Resistance, the Iran-backed Militia Network**\
 `The alliance is under scrutiny after the recent Israeli strikes in Lebanon.`\
 https://nytimes.com/article/axis-resistance-iran-militia.html

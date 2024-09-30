@@ -34,7 +34,7 @@ https://nytimes.com/2024/09/30/us/politics/fbi-gender-bias-settlement.html
 `Encouraging voters to cast mail ballots — and cast them early — benefits political campaigns. But former President Donald J. Trump’s skepticism has hurt Republican efforts in a key state.`\
 https://nytimes.com/2024/09/30/us/politics/pennsylvania-republicans-mail-voting.html
 
-**Bruins vs. Jeremy Swayman: Why the team took the standoff to another level**\
-`The message in Cam Neely's news conference Monday was for anyone doubting the Bruins' willingness to pay top players their deserved value.`\
-https://nytimes.com/athletic/5806818/2024/09/30/bruins-jeremy-swayman-contract-standoff-escalation/
+**NHL waiver tracker: Best players on the wire throughout 2024-25 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/5799672/2024/09/30/nhl-waivers-tracker-preseason/
 
