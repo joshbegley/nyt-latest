@@ -1,6 +1,14 @@
+**John Ashton, ‘Beverly Hills Cop’ Actor, Dies at 76**\
+`Mr. Ashton was most widely recognized for his role as Sgt. John Taggart in the “Beverly Hills Cop” franchise.`\
+https://nytimes.com/2024/09/29/arts/beverly-hills-cop-john-ashton-dead.html
+
 **After disappointing season, Cardinals believe youth will be key in 2025**\
 `The Cardinals plan to go back to their roots and develop homegrown talent, like Michael McGreevy.`\
 https://nytimes.com/athletic/5803085/2024/09/29/cardinals-youth-movement-2025/
+
+**How the United States avoided panic and rallied to win another Presidents Cup**\
+`Suddenly tied with the International Team after Friday, four voices stepped up in the U.S. team room.`\
+https://nytimes.com/athletic/5804557/2024/09/29/united-states-presidents-cup-2024-win/
 
 **Jokes Around**\
 `Alexander Liebeskind opens our solving week.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5803664/2024/09/29/rams-mistakes-loss-bears-matthew
 **Joe Castiglione, voice of Red Sox radio, honored at final game**\
 `Castiglione, whose first season in the booth came in 1983, was the longest tenured play-by-play announcer in franchise history.`\
 https://nytimes.com/athletic/5804356/2024/09/29/red-sox-finish-2024-joe-castiglione-honored/
-
-**Mets embrace a season-defining doubleheader: 'This is what we want'**\
-`Both teams will turn to their second-best option for Game 1: Spencer Schwellenbach for the Braves and Tylor Megill for the Mets.`\
-https://nytimes.com/athletic/5804314/2024/09/29/mets-braves-wild-card-doubleheader/
-
-**'We beat ourselves': Both pillars of Steelers' winning formula went missing vs. Colts**\
-`The Steelers' undefeated start to the season ended after a comedy of errors in Indianapolis revealed many of their warts.`\
-https://nytimes.com/athletic/5804161/2024/09/29/steelers-loss-colts-defense-justin-fields/
 
