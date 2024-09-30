@@ -1,3 +1,7 @@
+**Russia to Boost Defense Budget as Ukraine War Drags On**\
+`The Kremlin plans a 25 percent increase to more than $145 billion in 2025, a year in which it had intended to cut military spending.`\
+https://nytimes.com/2024/09/30/world/europe/russia-defense-budget-ukraine-war.html
+
 **Trump Says ‘One Really Violent Day’ Would End Property Crime**\
 `The remarks were the latest example of his praise for executive power and force in imposing order, this time over crimes the F.B.I. said last week were falling.`\
 https://nytimes.com/2024/09/30/us/politics/trump-crime-crackdown-rough.html
