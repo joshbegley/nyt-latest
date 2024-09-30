@@ -1,3 +1,11 @@
+**Facing a Big Test, Iran’s ‘Axis of Resistance’ Flails**\
+`Iran united militias to take on Israel, but as the Israelis pummel one, Hezbollah, the rest have so far largely failed to come to its aid.`\
+https://nytimes.com/2024/09/30/world/middleeast/iran-axis-of-resistance.html
+
+**Senior South Korean Police Officer Sentenced to 3 Years Over Crowd Crush**\
+`Lee Im-jae, a former district chief, is the most senior official to be convicted in connection with the 2022 disaster that killed nearly 160 Halloween partygoers.`\
+https://nytimes.com/2024/09/30/world/asia/skorea-itaewon-police-chief-convicted.html
+
 **France's Griezmann retires from international football**\
 `France forward Antoine Griezmann has announced his retirement from international football at the age of 33.`\
 https://nytimes.com/athletic/5805508/2024/09/30/antoine-griezmann-international-reitrement-france/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5800432/2024/09/30/gordon-hayward-retirement-celtic
 **They’ve Made Hats for McCain and Trump. And Obama and Harris.**\
 `One of the last remaining union-run hat factory in the country is in New Jersey. Over more than three decades, its workers have made hats for competing campaigns.`\
 https://nytimes.com/2024/09/30/style/unionwear-harris-walz-maga-hats.html
-
-**Donors Say a Scarred Island Could Become a Park**\
-`Austin and Allison McChord have pledged to transform an abandoned industrial site into an ecological waterfront park as a gift to Norwalk, their hometown.`\
-https://nytimes.com/2024/09/30/arts/design/manresa-island-park-norwalk-mcchord-ingels.html
-
-**Three Great Documentaries to Stream**\
-`This month’s picks cover Wisconsin moviemaking, New York music-making and Florida moneymaking.`\
-https://nytimes.com/2024/09/30/movies/three-great-documentaries-to-stream.html
 
