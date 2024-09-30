@@ -1,3 +1,7 @@
+**Kris Kristofferson: A Life in Pictures**\
+`After years as a struggling songwriter, he found his voice with a direct, evocative style that launched his decades-long career as a musician, actor and activist.`\
+https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-photos.html
+
 **How to halt the fantasy football tight end scoring nightmare**\
 `The tight end pool is as shallow as a pool of tears this season, but there are ways to cope with the position's scoring drought.`\
 https://nytimes.com/athletic/5805800/2024/09/30/fantasy-football-week-4-recap-the-best-way-to-solve-the-tight-end-scoring-slump/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/nyregion/adams-reynoso-turkey-gifts.html
 **How to Help Victims of Hurricane Helene**\
 `Aid groups are working in multiple states to help those affected by the hurricane and its aftermath.`\
 https://nytimes.com/2024/09/30/us/hurricane-helene-victims-aid.html
-
-**Biden Expands Asylum Restrictions at the Southern Border**\
-`Biden administration officials have credited the policy for leading to the dramatic reduction in illegal crossings.`\
-https://nytimes.com/2024/09/30/us/politics/biden-expands-asylum-restrictions.html
 
