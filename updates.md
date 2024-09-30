@@ -1,3 +1,15 @@
+**Germany captain Popp retires from international football**\
+`Germany captain Alexandra Popp has announced her retirement from international football at the age of 33.`\
+https://nytimes.com/athletic/5805952/2024/09/30/alexandra-popp-germany-international-retirement/
+
+**Tracking Tropical Storm Kirk**\
+`See the likely path and wind arrival times for Kirk.`\
+https://nytimes.com/interactive/2024/09/30/weather/kirk-map-path-tracker.html
+
+**Want to Check That Fact? For V.P. Debate Viewers, Just Scan the Code.**\
+`CBS is experimenting with a novel way to offer real-time fact-checking of the vice-presidential debate on Tuesday. Just don’t expect the moderators to frequently jump in.`\
+https://nytimes.com/2024/09/30/business/media/cbs-vice-presidential-debate-fact-check-qr.html
+
 **U.S. Officials Believe Israel Will Not Conduct Full Invasion of Lebanon**\
 `After a weekend of intense talks, the American officials said they believed that Israel was planning only smaller, targeted incursions in southern Lebanon.`\
 https://nytimes.com/2024/09/30/us/politics/us-israel-lebanon-hezbollah.html
