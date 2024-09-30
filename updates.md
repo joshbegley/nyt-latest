@@ -1,3 +1,7 @@
+**Ravens stifle Bills 35-10 behind dominant Derrick Henry, stout defense**\
+`Derrick Henry had 199 yards rushing and a touchdown in Baltimore’s thorough victory over the Bills.`\
+https://nytimes.com/athletic/5804947/2024/09/29/ravens-bills-takeaways-result/
+
 **Short-handed Chargers' valiant performance against Chiefs ends in predictable fashion**\
 `Game-management issues by Jim Harbaugh prevented a potential extra Chargers possession: "I wish I could have done better for our guys.”`\
 https://nytimes.com/athletic/5805004/2024/09/29/chargers-loss-chiefs-jim-harbaugh-justin-herbert/

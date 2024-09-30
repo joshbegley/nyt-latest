@@ -1,3 +1,7 @@
+**Ravens stifle Bills 35-10 behind dominant Derrick Henry, stout defense**\
+`Derrick Henry had 199 yards rushing and a touchdown in Baltimore’s thorough victory over the Bills.`\
+https://nytimes.com/athletic/5804947/2024/09/29/ravens-bills-takeaways-result/
+
 **Short-handed Chargers' valiant performance against Chiefs ends in predictable fashion**\
 `Game-management issues by Jim Harbaugh prevented a potential extra Chargers possession: "I wish I could have done better for our guys.”`\
 https://nytimes.com/athletic/5805004/2024/09/29/chargers-loss-chiefs-jim-harbaugh-justin-herbert/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5803864/2024/09/29/orioles-royals-2024-wild-card-se
 **Missing their stars, Raiders play 'next man up' game to a T in besting Browns**\
 `Every coach in the NFL has run the “team win” and “next man up” cliches into the ground, but that's how the Raiders won on Sunday.`\
 https://nytimes.com/athletic/5804630/2024/09/29/browns-raiders-week-4-next-man-up/
-
-**How Braves will approach a doubleheader with a playoff spot on the line**\
-`The Braves will start rookie standout Spencer Schwellenbach in Game 1, with Chris Sale slated for Game 2 if they still need a win. `\
-https://nytimes.com/athletic/5804707/2024/09/29/braves-mets-wild-card-doubleheader/
 
