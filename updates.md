@@ -1,3 +1,11 @@
+**Why Mount Everest Is Growing Taller Every Year**\
+`Researchers say that two rivers merged some 89,000 years ago and gave the mightiest peak in the Himalayas a huge growth spurt.`\
+https://nytimes.com/2024/09/30/science/mount-everest-tallest-growing.html
+
+**Ritzy! Cheddar! Chicken!**\
+`Everyone’s favorite buttery cracker makes a fantastic coating for chicken breasts.`\
+https://nytimes.com/2024/09/30/dining/ritzy-cheddar-chicken.html
+
 **Can You Uncover the 13 Book Titles Hidden in This Text Puzzle?**\
 `The 1970s were known for their fashion, political turmoil, pop culture and a lot of significant books. See if you can spot popular fiction and nonfiction works of the era lurking in this short passage.`\
 https://nytimes.com/interactive/2024/09/30/books/review/70s-books-quiz.html
