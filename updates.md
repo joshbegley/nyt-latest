@@ -1,3 +1,11 @@
+**John Ashton, ‘Beverly Hills Cop’ Actor, Dies at 76**\
+`Mr. Ashton was most widely recognized for his role as Sgt. John Taggart in the “Beverly Hills Cop” franchise.`\
+https://nytimes.com/2024/09/29/arts/beverly-hills-cop-john-ashton-dead.html
+
+**Jets' loss to Broncos, even with Aaron Rodgers, brings up bad memories of 2023**\
+`The offense struggled Sunday in a mistake-filled, deflating performance.`\
+https://nytimes.com/athletic/5804207/2024/09/29/jets-loss-broncos-aaron-rodgers-memories-2023/
+
 **Twins' brass, from top down, will try to figure out how to clean up mess**\
 `After their collapse, the Twins must figure out a way to win back fans while also determining how to clean up their mess on the diamond. `\
 https://nytimes.com/athletic/5804196/2024/09/29/twins-pohlad-falvey-baldelli-offseason/

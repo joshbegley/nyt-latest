@@ -1,3 +1,7 @@
+**John Ashton, ‘Beverly Hills Cop’ Actor, Dies at 76**\
+`Mr. Ashton was most widely recognized for his role as Sgt. John Taggart in the “Beverly Hills Cop” franchise.`\
+https://nytimes.com/2024/09/29/arts/beverly-hills-cop-john-ashton-dead.html
+
 **After disappointing season, Cardinals believe youth will be key in 2025**\
 `The Cardinals plan to go back to their roots and develop homegrown talent, like Michael McGreevy.`\
 https://nytimes.com/athletic/5803085/2024/09/29/cardinals-youth-movement-2025/
@@ -7,8 +11,8 @@ https://nytimes.com/athletic/5803085/2024/09/29/cardinals-youth-movement-2025/
 https://nytimes.com/2024/09/29/crosswords/daily-puzzle-2024-09-30.html
 
 **Jets' loss to Broncos, even with Aaron Rodgers, brings up bad memories of 2023**\
-`The offense struggled on a mistake-filled, deflating performance.`\
-https://nytimes.com/athletic/5804207/2024/09/29/jets-loss-to-broncos-even-with-aaron-rodgers-brings-up-bad-memories-of-2023/
+`The offense struggled Sunday in a mistake-filled, deflating performance.`\
+https://nytimes.com/athletic/5804207/2024/09/29/jets-loss-broncos-aaron-rodgers-memories-2023/
 
 **Twins' brass, from top down, will try to figure out how to clean up mess**\
 `After their collapse, the Twins must figure out a way to win back fans while also determining how to clean up their mess on the diamond. `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804356/2024/09/29/red-sox-finish-2024-joe-castigli
 **Mets embrace a season-defining doubleheader: 'This is what we want'**\
 `Both teams will turn to their second-best option for Game 1: Spencer Schwellenbach for the Braves and Tylor Megill for the Mets.`\
 https://nytimes.com/athletic/5804314/2024/09/29/mets-braves-wild-card-doubleheader/
-
-**'We beat ourselves': Both pillars of Steelers' winning formula went missing vs. Colts**\
-`The Steelers' undefeated start to the season ended after a comedy of errors in Indianapolis revealed many of their warts.`\
-https://nytimes.com/athletic/5804161/2024/09/29/steelers-loss-colts-defense-justin-fields/
 
