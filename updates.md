@@ -1,3 +1,11 @@
+**Arsenal and Real Madrid interested in signing Brazilian prospect Vitor Reis**\
+`Arsenal and Real Madrid are among a host of top European clubs who have shown an interest in signing Palmeiras centre-back Vitor Reis.`\
+https://nytimes.com/athletic/5806575/2024/09/30/arsenal-real-madrid-vitor-reis/
+
+**The Rising Risk of a New Forever War**\
+`The “total victory” that Mr. Netanyahu and his cabinet are seeking over Hezbollah will not bring the absolute security that Israelis want and need.`\
+https://nytimes.com/2024/09/30/opinion/international-world/the-rising-risk-of-a-new-forever-war.html
+
 **California Will Allow Amsterdam-Like Cannabis Cafes**\
 `Marijuana businesses will be allowed to serve food and have live music performances as a way to attract more customers.`\
 https://nytimes.com/2024/09/30/us/cannabis-cafe-california-marijuana.html

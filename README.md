@@ -1,3 +1,7 @@
+**Kris Kristofferson Stood by Sinead O’Connor as the Boos Rained Down**\
+`At a moment when the Irish singer had few people defending her, the country music veteran showed strong support.`\
+https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-sinead-oconnor.html
+
 **Arsenal and Real Madrid interested in signing Brazilian prospect Vitor Reis**\
 `Arsenal and Real Madrid are among a host of top European clubs who have shown an interest in signing Palmeiras centre-back Vitor Reis.`\
 https://nytimes.com/athletic/5806575/2024/09/30/arsenal-real-madrid-vitor-reis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5806533/2024/09/30/ousmane-dembele-arsenal-psg-cham
 **San Francisco Giants fire Farhan Zaidi; Buster Posey new president of baseball operations**\
 `Zaidi was hired before the 2019 season but produced just one winning season and no playoff series victories.`\
 https://nytimes.com/athletic/5806379/2024/09/30/sf-giants-farhan-zaidi-fired-buster-posey/
-
-**Robertson backs Alisson over player welfare concerns**\
-`Andy Robertson has echoed goalkeeper Alisson’s concern over player welfare and burnout.`\
-https://nytimes.com/athletic/5806468/2024/09/30/liverpool-robertsoon-football-schedule-calendar/
 
