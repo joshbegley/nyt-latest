@@ -1,3 +1,7 @@
+**Stocks Tumble in Japan Following Party’s Election of New Prime Minister**\
+`Stocks dropped after Japan’s governing party chose Shigeru Ishiba, a critic of the country’s longstanding ultralow interest rates, as its leader.`\
+https://nytimes.com/2024/09/29/business/japan-stocks-nikkei-shigeru-ishiba.html
+
 **Orioles vs. Royals Wild Card Series preview: Predictions, pitching matchups and more**\
 `When the Orioles and Royals square off, it'll be a matchup of of two teams that, in one way at least, nearly mirror each other. `\
 https://nytimes.com/athletic/5803864/2024/09/29/orioles-royals-2024-wild-card-series-preview-predictions/
