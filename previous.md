@@ -1,3 +1,15 @@
+**Michel Houellebecq’s Outlook for an Ailing France: C’est Fini**\
+`In what the author says is his last novel, both a family and a society are on the verge of collapse.`\
+https://nytimes.com/2024/09/30/books/review/michel-houellebecq-annihilation.html
+
+**'I wanted to come back to Utah': Lauri Markkanen addresses those offseason trade rumors**\
+`The Finnish seven-footer signed an extension in August knowing that this season in Salt Lake City could be a tough one for the Jazz.`\
+https://nytimes.com/athletic/5799727/2024/09/30/lauri-markkanen-utah-jazz-3/
+
+**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
+`Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
+https://nytimes.com/athletic/5805506/2024/09/30/newcastle-howe-isak-trippier/
+
 **China Removes Curbs on Home Buyers, Sparking Stock Market Surge**\
 `After seeing prices decline for years, Chinese officials have made a burst of policy changes aimed at making easier to buy homes.`\
 https://nytimes.com/2024/09/30/business/china-property-mortgages.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5804352/2024/09/30/luis-arraez-san-diego-padres-val
 **Lowetide: 5 surprise players who could influence Oilers' opening-night roster**\
 `The Edmonton Oilers are a veteran team, designed for a long run with the Stanley Cup as an attainable goal.`\
 https://nytimes.com/athletic/5802943/2024/09/30/edmonton-oilers-players-2024-surprise/
-
-**Gleeman: Twins' collapse is 'Total System Failure' 2.0, with a different Pohlad at the helm**\
-`Ownership payroll cuts, front office whiffs, injuries and core players underperforming combined for the worst collapse in Twins history.`\
-https://nytimes.com/athletic/5795456/2024/09/30/twins-collapse-pohlad-payroll-cuts/
-
-**Where did CapWages come from? How a Toronto tech entrepreneur created hockey's popular new website**\
-`CapWages replicated CapFriendly's layout and utility seemingly overnight. Its creator explains how it launched so quickly — and what's next.`\
-https://nytimes.com/athletic/5797648/2024/09/30/nhl-capwages-salary-cap-tracker/
-
-**FPL: What we learned from Gameweek 6 - Don't panic after Palmer's awesome foursome**\
-`Abdul Rehman reviews the talking points from Gameweek 6 so far, including why Mbeumo is must-own and possible Bruno Fernandes replacements`\
-https://nytimes.com/athletic/5803468/2024/09/30/fantasy-premier-league-gw6-palmer-mbeumo-fernandes/
 

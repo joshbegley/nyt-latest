@@ -1,3 +1,15 @@
+**Michel Houellebecq’s Outlook for an Ailing France: C’est Fini**\
+`In what the author says is his last novel, both a family and a society are on the verge of collapse.`\
+https://nytimes.com/2024/09/30/books/review/michel-houellebecq-annihilation.html
+
+**'I wanted to come back to Utah': Lauri Markkanen addresses those offseason trade rumors**\
+`The Finnish seven-footer signed an extension in August knowing that this season in Salt Lake City could be a tough one for the Jazz.`\
+https://nytimes.com/athletic/5799727/2024/09/30/lauri-markkanen-utah-jazz-3/
+
+**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
+`Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
+https://nytimes.com/athletic/5805506/2024/09/30/newcastle-howe-isak-trippier/
+
 **China Removes Curbs on Home Buyers, Sparking Stock Market Surge**\
 `After seeing prices decline for years, Chinese officials have made a burst of policy changes aimed at making easier to buy homes.`\
 https://nytimes.com/2024/09/30/business/china-property-mortgages.html
