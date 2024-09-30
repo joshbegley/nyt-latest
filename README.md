@@ -1,3 +1,7 @@
+**A.J. Hinch is back in the postseason, in a place where he's hard to forget**\
+`It took five years for A.J. Hinch to get back to the playoffs. He'll do it at the park where he won 16 postseason games with the Astros.`\
+https://nytimes.com/athletic/5807578/2024/09/30/tigers-aj-hinch-astros-mlb-postseason/
+
 **Greenberg: Can the Bulls win a lot of games this season? Probably not, but they'll try**\
 `There's no point stressing yourself out over the Bulls. But give them credit for this. They’re promising absolutely nothing at media day.`\
 https://nytimes.com/athletic/5807343/2024/09/30/chicago-bulls-outlook-media-day/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/technology/cerebras-ai-chips-ipo.html
 **Signs of a looming Israeli ground invasion permeate the border.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/signs-of-a-looming-israeli-ground-invasion-permeated-the-border
-
-**Internet Drug Ring Tricked Buyers With Fake and Deadly Pills, U.S. Says**\
-`The drugs, which resembled real pharmaceuticals, killed nine people, prosecutors said. They were laced with fentanyl and methamphetamine.`\
-https://nytimes.com/2024/09/30/nyregion/online-pharmacies-fake-pills-fentanyl.html
 
