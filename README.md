@@ -1,3 +1,7 @@
+**Arizona Diamondbacks bounced from postseason contention on their day off**\
+`Snakes alive, no more.`\
+https://nytimes.com/athletic/5807646/2024/09/30/diamondbacks-eliminated-from-mlb-contention/
+
 **MLB Postseason Tiers: Which teams are contenders and which ones are just happy to be here**\
 `It's win-it-all or go home in shame for a few teams, while others have cemented their positive place in team history by making the dance.`\
 https://nytimes.com/athletic/5798557/2024/09/30/mlb-2024-postseason-tiers-yankees-dodgers-phillies/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/cabinet-groun
 **Trump, No Stranger to Playing Storm Politics, Visits a Battered Georgia**\
 `In Valdosta, Ga., Donald Trump made a false claim about President Biden’s responsiveness and demonstrated his long-held instinct to view disaster response through the prism of his personal politics.`\
 https://nytimes.com/2024/09/30/us/politics/trump-georgia-hurricane-helene.html
-
-**Why Isn’t Harris Clobbering Trump? These 15 Swing State Voters Can Tell You.**\
-`The participants discuss what either candidate might say that could solidify their vote.`\
-https://nytimes.com/interactive/2024/09/30/opinion/harris-trump-swing-voters-focus-group.html
 
