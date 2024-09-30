@@ -1,3 +1,7 @@
+**College football national title odds: Alabama, Ohio State are co-favorites ahead of Texas**\
+`Alabama and Ohio State are the co-favorites to win the national title on BetMGM after Alabama's big win against Georgia.`\
+https://nytimes.com/athletic/5807040/2024/09/30/2025-college-football-national-title-odds-alabama-ohio-state-texas/
+
 **The Karl-Anthony Towns trade makes Knicks a major 'liability' for sportsbooks**\
 `The New York Knicks' NBA title odds are on the move after trading for Karl-Anthony Towns. Here's how the trade impacted the markets.`\
 https://nytimes.com/athletic/5807016/2024/09/30/karl-anthony-towns-trade-shifts-nba-title-odds-makes-knicks-a-liability/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/us/politics/us-deploys-troops-middle-east.html
 **Man Who Shot 2 Outside Los Angeles Synagogues Gets 35 Years in Prison**\
 `The shootings took place in Pico-Robertson, a neighborhood with a large Jewish population, as the men were leaving services. They survived.`\
 https://nytimes.com/2024/09/30/us/synagogue-shooting-sentence-los-angeles.html
-
-**Tuesday Briefing: Israel Conducts Raids in Lebanon**\
-`Plus, creating fashion in prison.`\
-https://nytimes.com/2024/09/30/briefing/israel-lebanon-coal-harris-trump.html
 
