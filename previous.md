@@ -1,3 +1,7 @@
+**Orioles vs. Royals Wild Card Series preview: Predictions, pitching matchups and more**\
+`When the Orioles and Royals square off, it'll be a matchup of of two teams that, in one way at least, nearly mirror each other. `\
+https://nytimes.com/athletic/5803864/2024/09/29/orioles-royals-2024-wild-card-series-preview-predictions/
+
 **Missing their stars, Raiders play 'next man up' game to a T in besting Browns**\
 `Every coach in the NFL has run the “team win” and “next man up” cliches into the ground, but that's how the Raiders won on Sunday.`\
 https://nytimes.com/athletic/5804630/2024/09/29/browns-raiders-week-4-next-man-up/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5804513/2024/09/29/liberty-aces-wnba-playoffs-lengt
 **After disappointing season, Cardinals believe youth will be key in 2025**\
 `The Cardinals plan to go back to their roots and develop homegrown talent, like Michael McGreevy.`\
 https://nytimes.com/athletic/5803085/2024/09/29/cardinals-youth-movement-2025/
-
-**How the United States avoided panic and rallied to win another Presidents Cup**\
-`Suddenly tied with the International Team after Friday, four voices stepped up in the U.S. team room.`\
-https://nytimes.com/athletic/5804557/2024/09/29/united-states-presidents-cup-2024-win/
 
