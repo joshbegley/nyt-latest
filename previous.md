@@ -1,3 +1,15 @@
+**Pennsylvania Republicans Lag Democrats in Early Mail Ballot Requests**\
+`Encouraging voters to cast mail ballots — and cast them early — benefits political campaigns. But former President Donald J. Trump’s skepticism has hurt Republican efforts in a key state.`\
+https://nytimes.com/2024/09/30/us/politics/pennsylvania-republicans-mail-voting.html
+
+**Bruins vs. Jeremy Swayman: Why the team took the standoff to another level**\
+`The message in Cam Neely's news conference Monday was for anyone doubting the Bruins' willingness to pay top players their deserved value.`\
+https://nytimes.com/athletic/5806818/2024/09/30/bruins-jeremy-swayman-contract-standoff-escalation/
+
+**How Helene Wrought So Much Havoc, So Far From the Coasts**\
+`Hurricanes typically weaken over land. But if the ground is already wet from earlier rains, storms can receive an extra jolt that keeps them churning.`\
+https://nytimes.com/2024/09/30/climate/hurricane-helene-inland-rains.html
+
 **Russia to Boost Defense Budget as Ukraine War Drags On**\
 `The Kremlin plans a 25 percent increase to more than $145 billion in 2025, a year in which it had intended to cut military spending.`\
 https://nytimes.com/2024/09/30/world/europe/russia-defense-budget-ukraine-war.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5805800/2024/09/30/fantasy-football-week-4-recap-th
 **Breaking Up With China Is Hard to Do**\
 `For many U.S. companies, Chinese partnership may be too important to quit.`\
 https://nytimes.com/2024/09/30/opinion/american-businesses-china.html
-
-**Biden Tells Hurricane Survivors, ‘We Will Be There With You’**\
-`During his speech at the White House on Wednesday, President Joe Biden spoke about the hurricane Helene recovery efforts saying he expects to ask congress for additional funding to the affected states.`\
-https://nytimes.com/video/us/politics/100000009730976/biden-helene.html
-
-**NBA Media Days: What Nuggets, Thunder and other execs are saying entering 2024-25 season**\
-`Several teams held media days with their lead basketball executives. We put together a notebook of the most interesting tidbits. `\
-https://nytimes.com/athletic/5799464/2024/09/30/nuggets-thunder-lakers-celtics-nba-media-day/
-
-**Biden Says He Could Ask Congress to Pass Aid for ‘Catastrophic’ Helene Damage**\
-`The president, who plans to travel to North Carolina this week, said he might need to call Congress in for a special session after it did not include additional disaster relief in its spending bill.`\
-https://nytimes.com/2024/09/30/us/politics/biden-helene-congress.html
 

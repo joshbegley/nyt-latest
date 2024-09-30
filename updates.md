@@ -1,3 +1,15 @@
+**Pennsylvania Republicans Lag Democrats in Early Mail Ballot Requests**\
+`Encouraging voters to cast mail ballots — and cast them early — benefits political campaigns. But former President Donald J. Trump’s skepticism has hurt Republican efforts in a key state.`\
+https://nytimes.com/2024/09/30/us/politics/pennsylvania-republicans-mail-voting.html
+
+**Bruins vs. Jeremy Swayman: Why the team took the standoff to another level**\
+`The message in Cam Neely's news conference Monday was for anyone doubting the Bruins' willingness to pay top players their deserved value.`\
+https://nytimes.com/athletic/5806818/2024/09/30/bruins-jeremy-swayman-contract-standoff-escalation/
+
+**How Helene Wrought So Much Havoc, So Far From the Coasts**\
+`Hurricanes typically weaken over land. But if the ground is already wet from earlier rains, storms can receive an extra jolt that keeps them churning.`\
+https://nytimes.com/2024/09/30/climate/hurricane-helene-inland-rains.html
+
 **Russia to Boost Defense Budget as Ukraine War Drags On**\
 `The Kremlin plans a 25 percent increase to more than $145 billion in 2025, a year in which it had intended to cut military spending.`\
 https://nytimes.com/2024/09/30/world/europe/russia-defense-budget-ukraine-war.html
