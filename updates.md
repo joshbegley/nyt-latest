@@ -1,3 +1,7 @@
+**Cruise, G.M.’s Self-Driving Unit, Will Pay $1.5 Million Federal Fine**\
+`The General Motors subsidiary reached a settlement with the main auto safety regulator after one of its self-driving taxis struck a pedestrian in San Francisco last year.`\
+https://nytimes.com/2024/09/30/business/gm-cruise-nhtsa-fine.html
+
 **Based on a True Story, or a True Story? In ‘Baby Reindeer’ Lawsuit, Words Matter**\
 `A defamation suit against Netflix boils down to how the company presented its story about Martha Scott, a fictionalization of what the show’s creator has described as a real-life stalking incident.`\
 https://nytimes.com/2024/09/30/arts/television/fiona-harvey-baby-reindeer-netflix-lawsuit.html
