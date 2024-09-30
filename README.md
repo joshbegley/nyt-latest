@@ -1,3 +1,7 @@
+**How Braves will approach a doubleheader with a playoff spot on the line**\
+`The Braves will start rookie standout Spencer Schwellenbach in Game 1, with Chris Sale slated for Game 2 if they still need a win. `\
+https://nytimes.com/athletic/5804707/2024/09/29/braves-mets-wild-card-doubleheader/
+
 **Why Yankees’ Anthony Rizzo is holding out hope he can play in ALDS**\
 `Could Rizzo really be an option to play in the American League Division Series, which starts Saturday?`\
 https://nytimes.com/athletic/5804692/2024/09/29/yankees-anthony-rizzo-injury-alds/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/29/crosswords/daily-puzzle-2024-09-30.html
 **Jets' loss to Broncos, even with Aaron Rodgers, brings up bad memories of 2023**\
 `The offense struggled Sunday in a mistake-filled, deflating performance.`\
 https://nytimes.com/athletic/5804207/2024/09/29/jets-loss-broncos-aaron-rodgers-memories-2023/
-
-**Twins' brass, from top down, will try to figure out how to clean up mess**\
-`After their collapse, the Twins must figure out a way to win back fans while also determining how to clean up their mess on the diamond. `\
-https://nytimes.com/athletic/5804196/2024/09/29/twins-pohlad-falvey-baldelli-offseason/
 
