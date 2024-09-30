@@ -1,3 +1,7 @@
+**Jimmy Carter Is the Un-Trump**\
+`As men and as presidents, they could not be more different.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/jimmy-carter-contrast-trump
+
 **Bernal signs Barcelona contract extension with €500m release clause**\
 `Barcelona midfielder Marc Bernal has signed a contract extension that will keep him at the club until 2029.`\
 https://nytimes.com/athletic/5790467/2024/09/30/barcelona-marc-bernal-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/arts/design/hammer-museum-zoe-ryan-director-appoi
 **Eto'o given six-month ban from attending Cameroon games**\
 `Samuel Eto&#8217;o has been banned from attending Cameroon national team matches for the next six months for breaching FIFA&#8217;s disciplinary code.`\
 https://nytimes.com/athletic/5806237/2024/09/30/fifa-bans-samuel-etoo/
-
-**Monthlong Fire Flares Up Again in Southern California**\
-`The Line fire, which has burned since Sept. 5, forced another evacuation order this weekend.`\
-https://nytimes.com/2024/09/30/us/line-fire-san-bernadino-evacuations.html
 
