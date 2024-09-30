@@ -1,3 +1,11 @@
+**Kris Kristofferson’s Stories Were Wonderfully Larger Than Life**\
+`The singer, songwriter and actor, who died on Saturday at 88, found his way into situations and tales that underscored his role as a conscience for country music.`\
+https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-myths-music-movies.html
+
+**Kris Kristofferson Stood by Sinead O’Connor as the Boos Rained Down**\
+`At a moment when the Irish singer had few people defending her, the country music veteran showed strong support. It created a bond that remained throughout their lives.`\
+https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-sinead-oconnor.html
+
 **College football Week 6 odds, schedule: Top-10 teams Miami and Missouri get road tests**\
 `The Week 6 college football slate isn't loaded with big games, but two top-10 teams, Missouri and Michigan, are underdogs on the road.`\
 https://nytimes.com/athletic/5806180/2024/09/30/college-football-week-6-odds-schedule-miami-michigan-missouri/
