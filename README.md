@@ -1,3 +1,7 @@
+**Ethan Mbappe to miss chance to face brother Kylian due to injury**\
+`There will be no Champions League reunion for the Mbappe brothers on Wednesday night after Lille midfielder Ethan Mbappe was ruled out for “several weeks” through injury.`\
+https://nytimes.com/athletic/5806874/2024/09/30/mbappe-kylian-ethan-champions-league-injury/
+
 **Kris Kristofferson: A Life in Pictures**\
 `After years as a struggling songwriter, he found his voice with a direct, evocative style that launched his decades-long career as a musician, actor and activist.`\
 https://nytimes.com/2024/09/30/arts/music/kris-kristofferson-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/us/politics/tester-senate-harris-republicans.html
 **Why Adams’s Successor in Brooklyn Returned 10 Gold Tea Sets From Turkey**\
 `Antonio Reynoso, the Brooklyn borough president, said he declined or returned gifts from Turkey and met with F.B.I. officials who said to be wary of such gifts.`\
 https://nytimes.com/2024/09/30/nyregion/adams-reynoso-turkey-gifts.html
-
-**How to Help Victims of Hurricane Helene**\
-`Aid groups are working in multiple states to help those affected by the hurricane and its aftermath.`\
-https://nytimes.com/2024/09/30/us/hurricane-helene-victims-aid.html
 
