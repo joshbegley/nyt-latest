@@ -1,3 +1,7 @@
+**The Pulse: Early NFL awards after SNF blowout**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5804682/2024/09/30/nfl-mvp-sam-darnold-the-pulse/
+
 **Courtois out until after international break with injury**\
 `Real Madrid goalkeeper Thibaut Courtois is expected to be sidelined until after October&#8217;s international break with an abductor injury in his left leg.`\
 https://nytimes.com/athletic/5805532/2024/09/30/thibaut-courtois-injury-real-madrid-latest/
