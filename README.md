@@ -2,7 +2,7 @@
 `NFL Week 5 features the "London Game" between the Vikings and Jets and only a few big favorites across the board.`\
 https://nytimes.com/athletic/5805965/2024/09/30/nfl-week-5-odds-spreads-schedule-vikings-jets-london/
 
-**Panthers' Shaq Thompson out for season with torn Achilles**\
+**Panthers' Thompson believed to have torn Achilles**\
 `Team's leading tackler suffers season-ending injury for the second consecutive year.`\
 https://nytimes.com/athletic/5806510/2024/09/30/shaq-thompson-injury-carolina-panthers/
 
