@@ -1,3 +1,7 @@
+**Trippier and Tonali face late fitness calls before Newcastle's Carabao Cup tie**\
+`Newcastle United head coach Eddie Howe says a late call will be made regarding the availability of Kieran Trippier and Sandro Tonali ahead of Tuesday&#8217;s Carabao Cup tie against AFC Wimbledon.`\
+https://nytimes.com/athletic/5805443/2024/09/30/trippier-tonali-newcastle-injury-update/
+
 **The Verdict on Alessandro Michele’s Valentino**\
 `Major change is in the air, in all sorts of ways.`\
 https://nytimes.com/2024/09/30/style/alessandro-michele-valentino.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah
 **Thompson: 49ers' Fred Warner — 'best linebacker in the game' — delivers again with pick 6**\
 `With the 49ers struggling again Sunday, Fred Warner got up, took off, and again created a moment to lift his team.`\
 https://nytimes.com/athletic/5804969/2024/09/30/san-francisco-49ers-fred-warner-interception-patriots/
-
-**Word of the Day: seismic**\
-`This word has appeared in 308 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/30/learning/word-of-the-day-seismic.html
 
