@@ -1,3 +1,11 @@
+**Humberto Ortega, Former Miliary Chief in Nicaragua, Dies at 77**\
+`Mr. Ortega, the estranged brother of President Daniel Ortega of Nicaragua, had been under house arrest for months after making statements that infuriated his sibling.`\
+https://nytimes.com/2024/09/30/world/americas/nicaragua-humberto-ortega-dead.html
+
+**Bruins' president Neely, Swayman's agent take contract negotiation public**\
+`Neely did not disclose what the restricted free agent goaltender's ask has been but said he was surprised by it.`\
+https://nytimes.com/athletic/5806291/2024/09/30/bruins-cam-neely-jeremy-swayman/
+
 **A.J. Hinch is back in the postseason, in a place where he's hard to forget**\
 `It took five years for Hinch to get back to the playoffs. He'll do it at the park where he won 16 postseason games with the Astros.`\
 https://nytimes.com/athletic/5807578/2024/09/30/tigers-aj-hinch-astros-mlb-postseason/

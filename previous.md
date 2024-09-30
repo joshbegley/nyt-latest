@@ -1,3 +1,11 @@
+**Humberto Ortega, Former Miliary Chief in Nicaragua, Dies at 77**\
+`Mr. Ortega, the estranged brother of President Daniel Ortega of Nicaragua, had been under house arrest for months after making statements that infuriated his sibling.`\
+https://nytimes.com/2024/09/30/world/americas/nicaragua-humberto-ortega-dead.html
+
+**Bruins' president Neely, Swayman's agent take contract negotiation public**\
+`Neely did not disclose what the restricted free agent goaltender's ask has been but said he was surprised by it.`\
+https://nytimes.com/athletic/5806291/2024/09/30/bruins-cam-neely-jeremy-swayman/
+
 **Justice Department to Analyze the 1921 Tulsa Race Massacre**\
 `Federal civil rights investigators will review the events surrounding the race massacre for a public report under the department’s Emmett Till Unsolved Civil Rights Crime Act.`\
 https://nytimes.com/2024/09/30/us/tulsa-massacre-justice-emmett-till.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5765420/2024/09/30/atlanta-braves-clinch-wild-card-
 **More promises from Red Sox leadership: ‘Talk is cheap right now’**\
 ` The Red Sox are promising big changes. “I truly believe this is the last struggle, to be honest,” Alex Cora said. “I think this is it."`\
 https://nytimes.com/athletic/5807529/2024/09/30/red-sox-leadership-promises/
-
-**Sony Pictures Names Ravi Ahuja C.E.O.**\
-`Mr. Ahuja, president and chief operating officer of Sony Pictures Entertainment, will succeed its current chief executive, Tony Vinciquerra.`\
-https://nytimes.com/2024/09/30/business/media/sony-ravi-ahuja.html
-
-**A.J. Hinch is back in the postseason, in a place where he's hard to forget**\
-`It took five years for Hinch to get back to the playoffs. He'll do it at the park where he won 16 postseason games with the Astros.`\
-https://nytimes.com/athletic/5807578/2024/09/30/tigers-aj-hinch-astros-mlb-postseason/
 
