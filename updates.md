@@ -1,3 +1,11 @@
+**Justice Department to Analyze the 1921 Tulsa Race Massacre**\
+`Federal civil rights investigators will review the events surrounding the race massacre for a public report under the department’s Emmett Till Unsolved Civil Rights Crime Act.`\
+https://nytimes.com/2024/09/30/us/tulsa-massacre-justice-emmett-till.html
+
+**The Politics of Disaster**\
+`Big storms before elections are a test of how would-be — or incumbent — leaders handle a crisis.`\
+https://nytimes.com/2024/09/30/us/politics/hurricane-helene-trump-harris.html
+
 **Full MLB playoff bracket set as Mets, Braves get in: Which teams could be on upset watch?**\
 `The playoffs begin Tuesday with the Wild Card Series in each league.`\
 https://nytimes.com/athletic/5807314/2024/09/30/full-mlb-playoff-bracket-2024/

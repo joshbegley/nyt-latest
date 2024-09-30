@@ -1,3 +1,11 @@
+**Justice Department to Analyze the 1921 Tulsa Race Massacre**\
+`Federal civil rights investigators will review the events surrounding the race massacre for a public report under the department’s Emmett Till Unsolved Civil Rights Crime Act.`\
+https://nytimes.com/2024/09/30/us/tulsa-massacre-justice-emmett-till.html
+
+**The Politics of Disaster**\
+`Big storms before elections are a test of how would-be — or incumbent — leaders handle a crisis.`\
+https://nytimes.com/2024/09/30/us/politics/hurricane-helene-trump-harris.html
+
 **Full MLB playoff bracket set as Mets, Braves get in: Which teams could be on upset watch?**\
 `The playoffs begin Tuesday with the Wild Card Series in each league.`\
 https://nytimes.com/athletic/5807314/2024/09/30/full-mlb-playoff-bracket-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/30/business/media/sony-ravi-ahuja.html
 **A.J. Hinch is back in the postseason, in a place where he's hard to forget**\
 `It took five years for A.J. Hinch to get back to the playoffs. He'll do it at the park where he won 16 postseason games with the Astros.`\
 https://nytimes.com/athletic/5807578/2024/09/30/tigers-aj-hinch-astros-mlb-postseason/
-
-**Greenberg: Can the Bulls win a lot of games this season? Probably not, but they'll try**\
-`There's no point stressing yourself out over the Bulls. But give them credit for this. They’re promising absolutely nothing at media day.`\
-https://nytimes.com/athletic/5807343/2024/09/30/chicago-bulls-outlook-media-day/
-
-**Two ways the Canadiens can cope with the loss of big-ticket forward Patrik Laine**\
-`Patrik Laine's injury leaves a big void in the Canadiens lineup, but it creates an avenue to acquiring what might be most vital to the team.`\
-https://nytimes.com/athletic/5807480/2024/09/30/canadiens-laine-injury-replacement-strategy/
 
