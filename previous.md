@@ -1,3 +1,7 @@
+**Commanders, winners of 3 straight, riding a high with Jayden Daniels leading the way**\
+`The prized rookie QB was again efficient and sharp in a lopsided win over the Cardinals as Washington improved to 3-1 on the season.`\
+https://nytimes.com/athletic/5804979/2024/09/30/commanders-jayden-daniels-cardinals/
+
 **Lost Lives and an Epic Crisis in North Carolina**\
 `Scenes of devastation in the western part of the state, where the traces of Hurricane Helene destroyed some communities and stranded others.`\
 https://nytimes.com/2024/09/30/us/helene-north-carolina-photos-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/upshot/polling-trump-harris-election.html
 **Millions Could Lose Insurance Subsidies, Depending on the Election**\
 `The issue is getting less attention than a possible repeal of the Affordable Care Act, but it’s much more likely to happen.`\
 https://nytimes.com/2024/09/30/upshot/obamacare-election-trump-harris.html
-
-**Disoriented in America: Two Political Plays Reflect a Changed Country**\
-`The Off Broadway plays “Fatherland” and “Blood of the Lamb” explore the grief, anger and fear of no longer recognizing the country you love.`\
-https://nytimes.com/2024/09/30/theater/fatherland-blood-of-the-lamb-off-broadway.html
 
