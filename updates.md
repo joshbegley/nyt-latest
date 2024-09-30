@@ -1,3 +1,11 @@
+**Saudi Arabia Pledges to Send Funding for Palestinians**\
+`An expected cash infusion for the Palestinian Authority would signal renewed Saudi backing for Palestinian statehood and help mend ties between Riyadh and the body that administers the West Bank.`\
+https://nytimes.com/2024/09/30/world/middleeast/saudi-arabia-palestine-financial-aid.html
+
+**The Bounce: Five takeaways on Karl-Anthony Towns to New York**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5805688/2024/09/30/karl-anthony-towns-timberwolves-julius-randle-knicks-derrick-rose-bulls-wnba-playoffs-lynx-aces-liberty-sun-nba-the-bounce/
+
 **5 things Karl-Anthony Towns must do to succeed with the Knicks**\
 `Towns is a proven superstar on the offensive end. But his shortcomings will also be scrutinized in the pressure cooker of NYC.`\
 https://nytimes.com/athletic/5801642/2024/09/30/karl-anthony-towns-trade-new-york-knicks/

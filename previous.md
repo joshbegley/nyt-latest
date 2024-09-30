@@ -1,3 +1,11 @@
+**Saudi Arabia Pledges to Send Funding for Palestinians**\
+`An expected cash infusion for the Palestinian Authority would signal renewed Saudi backing for Palestinian statehood and help mend ties between Riyadh and the body that administers the West Bank.`\
+https://nytimes.com/2024/09/30/world/middleeast/saudi-arabia-palestine-financial-aid.html
+
+**The Bounce: Five takeaways on Karl-Anthony Towns to New York**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5805688/2024/09/30/karl-anthony-towns-timberwolves-julius-randle-knicks-derrick-rose-bulls-wnba-playoffs-lynx-aces-liberty-sun-nba-the-bounce/
+
 **5 things Karl-Anthony Towns must do to succeed with the Knicks**\
 `Towns is a proven superstar on the offensive end. But his shortcomings will also be scrutinized in the pressure cooker of NYC.`\
 https://nytimes.com/athletic/5801642/2024/09/30/karl-anthony-towns-trade-new-york-knicks/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/30/us/politics/us-israel-lebanon-hezbollah.html
 **Frankenstein’s Assistant**\
 `Creatures lurk in the depths of Kevin Curry and Jeff Chen’s first New York Times collaboration.`\
 https://nytimes.com/2024/09/30/crosswords/daily-puzzle-2024-10-01.html
-
-**Across the World, Diplomats Gird for a Trump Assault on Climate Action**\
-`Some leaders insist that the global clean energy transition will happen with or without the United States.`\
-https://nytimes.com/2024/09/30/climate/global-climate-negotiations-trump.html
-
-**We Watched Vance’s Old Debates. Here’s What We Learned.**\
-`Senator JD Vance assumed his first public office just last year. But to win that job, he had to survive about a dozen debates, sharpening his chops when facing opponents onstage.`\
-https://nytimes.com/2024/09/30/us/politics/vance-debate-style.html
 
