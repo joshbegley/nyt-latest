@@ -1,3 +1,7 @@
+**'They whooped our butt': Disastrous trick play, defensive flaws sink Bills against Ravens**\
+`Buffalo briefly battled back, then faltered again.`\
+https://nytimes.com/athletic/5805266/2024/09/30/bills-ravens-josh-allen-joe-brady-derrick-henry/
+
 **Here are the latest developments.**\
 `By Mike Ives`\
 https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/opinion/england-coal-wind-power.html
 **Leicester showed resilience against Arsenal. Is this turning point for Cooper?**\
 `The squad seems to have a determined mindset after having to fight back in five of their opening league games. That must encourage Cooper.`\
 https://nytimes.com/athletic/5802594/2024/09/30/leicester-arsenal-pressure-cooper-hope/
-
-**Soucek bails out West Ham (again): 'We should be ashamed of conceding that goal'**\
-`This is a transitional season for West Ham and several players will have to step up - you can be sure Soucek will be one of them`\
-https://nytimes.com/athletic/5801135/2024/09/30/tomas-soucek-west-ham/
 
