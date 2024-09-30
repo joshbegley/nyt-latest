@@ -1,3 +1,15 @@
+**After disappointing season, Cardinals believe youth will be key in 2025**\
+`The Cardinals plan to go back to their roots and develop homegrown talent, like Michael McGreevy.`\
+https://nytimes.com/athletic/5803085/2024/09/29/cardinals-youth-movement-2025/
+
+**Jokes Around**\
+`Alexander Liebeskind opens our solving week.`\
+https://nytimes.com/2024/09/29/crosswords/daily-puzzle-2024-09-30.html
+
+**Jets' loss to Broncos, even with Aaron Rodgers, brings up bad memories of 2023**\
+`The offense struggled on a mistake-filled, deflating performance.`\
+https://nytimes.com/athletic/5804207/2024/09/29/jets-loss-to-broncos-even-with-aaron-rodgers-brings-up-bad-memories-of-2023/
+
 **Twins' brass, from top down, will try to figure out how to clean up mess**\
 `After their epic collapse, the Twins must figure out how to win back fans while also determining how to clean up their mess on the diamond. `\
 https://nytimes.com/athletic/5804196/2024/09/29/twins-pohlad-falvey-baldelli-offseason/

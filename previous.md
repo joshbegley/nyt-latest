@@ -1,3 +1,15 @@
+**After disappointing season, Cardinals believe youth will be key in 2025**\
+`The Cardinals plan to go back to their roots and develop homegrown talent, like Michael McGreevy.`\
+https://nytimes.com/athletic/5803085/2024/09/29/cardinals-youth-movement-2025/
+
+**Jokes Around**\
+`Alexander Liebeskind opens our solving week.`\
+https://nytimes.com/2024/09/29/crosswords/daily-puzzle-2024-09-30.html
+
+**Jets' loss to Broncos, even with Aaron Rodgers, brings up bad memories of 2023**\
+`The offense struggled on a mistake-filled, deflating performance.`\
+https://nytimes.com/athletic/5804207/2024/09/29/jets-loss-to-broncos-even-with-aaron-rodgers-brings-up-bad-memories-of-2023/
+
 **Twins' brass, from top down, will try to figure out how to clean up mess**\
 `After their epic collapse, the Twins must figure out how to win back fans while also determining how to clean up their mess on the diamond. `\
 https://nytimes.com/athletic/5804196/2024/09/29/twins-pohlad-falvey-baldelli-offseason/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5804314/2024/09/29/mets-braves-wild-card-doublehead
 **'We beat ourselves': Both pillars of Steelers' winning formula went missing vs. Colts**\
 `The Steelers' undefeated start to the season ended after a comedy of errors in Indianapolis revealed many of their warts.`\
 https://nytimes.com/athletic/5804161/2024/09/29/steelers-loss-colts-defense-justin-fields/
-
-**Purdue dismisses offensive coordinator Graham Harrell**\
-`The Boilermakers managed only 224 yards of offense in a loss to Nebraska and are averaging 235 yards in three games against FBS competition.`\
-https://nytimes.com/athletic/5804292/2024/09/29/purdue-graham-harrell-offensive-coordinator/
-
-**The big winner in this Presidents Cup? Patrick Cantlay**\
-`Success in the majors has eluded Cantlay, but he's a certified match-play legend after his performance at Royal Montreal.`\
-https://nytimes.com/athletic/5804388/2024/09/29/patrick-cantlay-presidents-cup/
-
-**Astros vs. Tigers Wild Card Series preview: Predictions, pitching matchups and more**\
-`It's a very familiar face in October, the Astros, versus the surging Tigers, who are making their first playoff appearance in 10 years.`\
-https://nytimes.com/athletic/5803660/2024/09/29/astros-tigers-2024-wild-card-series-preview-predictions/
 
