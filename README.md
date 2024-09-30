@@ -2,7 +2,7 @@
 `The shootings took place in Pico-Robertson, a neighborhood with a large Jewish population, as the men were leaving services. They survived.`\
 https://nytimes.com/2024/09/30/us/synagogue-shooting-sentence-los-angeles.html
 
-**Tuesday Briefing: Israel conducts raids in Lebanon**\
+**Tuesday Briefing: Israel Conducts Raids in Lebanon**\
 `Plus, creating fashion in prison.`\
 https://nytimes.com/2024/09/30/briefing/israel-lebanon-coal-harris-trump.html
 
