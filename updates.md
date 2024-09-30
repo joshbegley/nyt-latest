@@ -1,3 +1,7 @@
+**U.S. Officials Believe Israel Will Not Conduct Full Invasion of Lebanon**\
+`After a weekend of intense talks, the American officials said they believed that Israel was planning only smaller, targeted incursions in southern Lebanon.`\
+https://nytimes.com/2024/09/30/us/politics/us-israel-lebanon-hezbollah.html
+
 **Frankenstein’s Assistant**\
 `Creatures lurk in the depths of Kevin Curry and Jeff Chen’s first New York Times collaboration.`\
 https://nytimes.com/2024/09/30/crosswords/daily-puzzle-2024-10-01.html
