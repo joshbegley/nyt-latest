@@ -1,3 +1,19 @@
+**The Briefing: Man Utd's latest crisis is on INEOS - and has Palmer outgrown Chelsea?**\
+`The big Premier League weekend talking points - featuring possibly the best Italian defender the league has seen…`\
+https://nytimes.com/athletic/5803409/2024/09/30/erik-ten-hag-ineos-job-manchester-united/
+
+**Liverpool are top of the league. What does it mean and can they stay there?**\
+`Arne Slot's side are at the summit - is this a flash in the pan or something more significant?`\
+https://nytimes.com/athletic/5802032/2024/09/30/liverpool-premier-league-top/
+
+**Harris Tries to Goad Trump Into Another Debate**\
+`At a rally in Las Vegas, Vice President Kamala Harris played up the vice-presidential debate set for Tuesday and pushed for another face-off with former President Donald J. Trump.`\
+https://nytimes.com/2024/09/30/us/politics/harris-trump-debate.html
+
+**Brentford scored in the first minute yet again — this is how they do it**\
+`Brentford scored in the first minute for the third game in a row - but it was no accident, the moves are planned and perfectly executed.`\
+https://nytimes.com/athletic/5802689/2024/09/30/brentford-premier-leagues-fast-starts/
+
 **Postecoglou has his statement win - this is how good Spurs can be**\
 `Postecoglou has been repeatedly saying since the opening weekend this team is improving and on Sunday the signs were there for all to see.`\
 https://nytimes.com/athletic/5803658/2024/09/30/tottenham-man-united-postecoglou/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/30/pageoneplus/quote-of-the-day-after-85-years-fixin
 **Fabrications and Resignations: A Crisis at Britain’s Jewish Chronicle**\
 `When several prominent journalists resigned this month from the British newspaper over false news articles, they also raised a broader question: Who owns it now?`\
 https://nytimes.com/2024/09/30/world/europe/jewish-chronicle-uk-fabricated-stories-owner.html
-
-**N.Y.C. Tap Water May Taste Different During Upcoming Tunnel Shutdown**\
-`The city has famously delicious drinking water. Forced repairs to the Delaware Aqueduct may lessen its quality.`\
-https://nytimes.com/2024/09/30/nyregion/nyc-tap-water-may-taste-different-during-upcoming-tunnel-shutdown.html
-
-**Ravens stifle Bills 35-10 behind dominant Derrick Henry, stout defense**\
-`Derrick Henry had 199 yards rushing and a touchdown in Baltimore’s thorough victory over the Bills.`\
-https://nytimes.com/athletic/5804947/2024/09/29/ravens-bills-takeaways-result/
-
-**Short-handed Chargers' valiant performance against Chiefs ends in predictable fashion**\
-`Game-management issues by Jim Harbaugh prevented a potential extra Chargers possession: "I wish I could have done better for our guys.”`\
-https://nytimes.com/athletic/5805004/2024/09/29/chargers-loss-chiefs-jim-harbaugh-justin-herbert/
-
-**Buckley: When Patriots need to do something, they either don't or do it badly**\
-`Jerod Mayo didn't roll the dice early when the offense-challenged Pats had a chance. Maybe he should have. Some encouragement couldn't hurt.`\
-https://nytimes.com/athletic/5804887/2024/09/29/patriots-49ers-jacoby-brissett-sacks-jerod-mayo/
 
