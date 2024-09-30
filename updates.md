@@ -1,3 +1,7 @@
+**Buckley: When Patriots need to do something, they either don't or do it badly**\
+`Jerod Mayo didn't roll the dice early when the offense-challenged Pats had a chance. Maybe he should have. Some encouragement couldn't hurt.`\
+https://nytimes.com/athletic/5804887/2024/09/29/patriots-49ers-jacoby-brissett-sacks-jerod-mayo/
+
 **Sun hold on to defeat Lynx in Game 1 of WNBA semifinals**\
 `Sun will look to take a 2-0 series for Game 2 in Minneapolis.`\
 https://nytimes.com/athletic/5804933/2024/09/29/sun-lynx-wnba-semifinals-result/
