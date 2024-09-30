@@ -1,6 +1,10 @@
+**Here are the latest developments.**\
+`Israel’s leadership approved a limited invasion of southern Lebanon, involving a small number of commando units.`\
+https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/cabinet-ground-op
+
 **Trump, No Stranger to Playing Storm Politics, Visits a Battered Georgia**\
 `In Valdosta, Ga., Donald Trump made a false claim about President Biden’s responsiveness and demonstrated his long-held instinct to view disaster response through the prism of his personal politics.`\
-https://nytimes.com/live/2024/09/30/us/trump-harris-election/trump-georgia-hurricane-helene
+https://nytimes.com/2024/09/30/us/politics/trump-georgia-hurricane-helene.html
 
 **Why Isn’t Harris Clobbering Trump? These 15 Swing State Voters Can Tell You.**\
 `The participants discuss what either candidate might say that could solidify their vote.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5807185/2024/09/30/sec-big-ten-cfp-bids-scheduling-
 **Inmates Are Charged in Killings at Federal Jail in Brooklyn**\
 `Federal prosecutors charged nine inmates at the troubled Metropolitan Detention Center in two killings and several assaults. One guard was charged in a shooting.`\
 https://nytimes.com/2024/09/30/nyregion/inmates-charged-mdc-brooklyn-jail.html
-
-**The Giants replaced Farhan Zaidi with Buster Posey. What comes next is a mystery**\
-`A change was probably necessary, but going from Zaidi to Posey is a shock. We won't know if the change worked for a while.`\
-https://nytimes.com/athletic/5806346/2024/09/30/sf-giants-buster-posey-farhan-zaidi-differences/
 
