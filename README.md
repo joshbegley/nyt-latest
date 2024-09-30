@@ -1,3 +1,7 @@
+**The Pulse: Early NFL awards after SNF blowout**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5804682/2024/09/30/nfl-mvp-sam-darnold-the-pulse/
+
 **Courtois out until after international break with injury**\
 `Real Madrid goalkeeper Thibaut Courtois is expected to be sidelined until after October&#8217;s international break with an abductor injury in his left leg.`\
 https://nytimes.com/athletic/5805532/2024/09/30/thibaut-courtois-injury-real-madrid-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5805261/2024/09/30/mets-braves-doubleheader-wild-ca
 **In Reilly Smith, Rangers may have finally found their Kreider-Zibanejad linemate**\
 `"I really think the Rangers have been looking for a guy like Reilly," said former Ranger Brendan Smith, his brother.`\
 https://nytimes.com/athletic/5804313/2024/09/30/reilly-smith-rangers-top-line/
-
-**Assessing 4-0 teams, from Vikings’ shocking start to Chiefs’ WR setback: Sando’s Pick Six**\
-`The Vikings' rise from nowhere recalls the '98 Vikings and '99 Rams. Meanwhile, Patrick Mahomes might have to adapt without his top target.`\
-https://nytimes.com/athletic/5801917/2024/09/30/nfl-chiefs-vikings-4-0-teams/
 
