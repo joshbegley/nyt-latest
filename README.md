@@ -1,3 +1,7 @@
+**Man charged over post relating to fan's death at Hillsborough**\
+`A man has been charged in connection with a social media post about Sheffield Wednesday and the West Bromwich Albion fan who died at Hillsborough on Saturday.`\
+https://nytimes.com/athletic/5806329/2024/09/30/man-charged-west-brom-fan-death/
+
 **Middleton will be limited in Bucks camp after ankle surgeries**\
 `The forward said he hasn't discussed a specific playing time plan with the team beyond training camp.`\
 https://nytimes.com/athletic/5806045/2024/09/30/khris-middleton-injury-bucks-ankle-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5806575/2024/09/30/arsenal-real-madrid-vitor-reis/
 **The Rising Risk of a New Forever War**\
 `The “total victory” that Mr. Netanyahu and his cabinet are seeking over Hezbollah will not bring the absolute security that Israelis want and need.`\
 https://nytimes.com/2024/09/30/opinion/international-world/the-rising-risk-of-a-new-forever-war.html
-
-**California Will Allow Amsterdam-Like Cannabis Cafes**\
-`Marijuana businesses will be allowed to serve food and have live music performances as a way to attract more customers.`\
-https://nytimes.com/2024/09/30/us/cannabis-cafe-california-marijuana.html
 
