@@ -1,3 +1,7 @@
+**Review: ‘The Hills of California,’ Alive With the Sound of Music**\
+`In Jez Butterworth’s compelling new play, four girls trained to sing close harmony wind up as acrimonious adults.`\
+https://nytimes.com/2024/09/29/theater/the-hills-of-california-review.html
+
 **A Strike in Central Beirut Damages a Building**\
 `If the explosion is confirmed to be an Israeli attack, it would be the first Israeli strike within the Lebanese capital since the 2006 war with Hezbollah.`\
 https://nytimes.com/2024/09/29/world/middleeast/lebanon-beirut-strike-israel.html
