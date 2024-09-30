@@ -1,3 +1,19 @@
+**Trump Golf Course Suspect Pleads Not Guilty**\
+`The plea from the man accused of mounting an assassination attempt against former President Donald J. Trump came at a hearing that lasted less than five minutes.`\
+https://nytimes.com/2024/09/30/us/trump-golf-ryan-routh-gunman-plea.html
+
+**Scoop City: Week 4 risers and fallers**\
+`A look at Jayden Daniels, the Vikings, Broncos and other Week 4 risers/fallers`\
+https://nytimes.com/athletic/5806374/2024/09/30/scoop-city-week-4-risers-and-fallers/
+
+**The Hammer Museum Chooses a New Director**\
+`Stepping into Ann Philbin’s shoes will be Zoë Ryan, the director of the Institute of Contemporary Art at the University of Pennsylvania.`\
+https://nytimes.com/2024/09/30/arts/design/hammer-museum-zoe-ryan-director-appointment-art.html
+
+**Eto'o given six-month ban from attending Cameroon games**\
+`Samuel Eto&#8217;o has been banned from attending Cameroon national team matches for the next six months for breaching FIFA&#8217;s disciplinary code.`\
+https://nytimes.com/athletic/5806237/2024/09/30/fifa-bans-samuel-etoo/
+
 **Monthlong Fire Flares Up Again in Southern California**\
 `The Line fire, which has burned since Sept. 5, forced another evacuation order this weekend.`\
 https://nytimes.com/2024/09/30/us/line-fire-san-bernadino-evacuations.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5803142/2024/09/30/new-york-knicks-jalen-brunson-nb
 **In Iowa, Democrats Count on Backlash to Abortion Law to Bolster Bids for Congress**\
 `Democrats in a pair of competitive House districts are spotlighting the anti-abortion stances of Republican incumbents after the state enacted one of the most restrictive bans in the country.`\
 https://nytimes.com/2024/09/30/us/politics/iowa-democrats-abortion-law-backlash.html
-
-**Imagining the true horror of FIFA's World Cup final half-time show**\
-`Salt Bae, Black Eyed Peas (but not the new stuff) and ending world hunger - Gianni Infantino's big extravaganza 'revealed'`\
-https://nytimes.com/athletic/5805552/2024/09/30/fifa-world-cup-half-time-show/
-
-**Billie Eilish Brings a Master Class in Intimacy to the Arena Stage**\
-`Hit Me Hard and Soft: The Tour opened in Canada on Sunday night, showcasing the 22-year-old pop star’s gift for dynamics, dramatics and audience engagement.`\
-https://nytimes.com/2024/09/30/arts/music/billie-eilish-hit-me-hard-and-soft-tour-review.html
-
-**Heisman Trophy odds: Milroe emerges as favorite after Alabama tops Georgia**\
-`Jalen Milroe is the new betting favorite to win the Heisman Trophy after Alabama's 41-34 big win against Georgia on Saturday.`\
-https://nytimes.com/athletic/5802275/2024/09/30/2024-heisman-trophy-odds-jalen-milroe-cam-ward-travis-hunter-arch-manning/
-
-**Patriots sticking with Jacoby Brissett as starting QB**\
-`In Weeks 3 and 4, Brissett's passer rating of 74.3 ranks 31st in the NFL, according to Trumedia`\
-https://nytimes.com/athletic/5806214/2024/09/30/patriots-jacoby-brissett-starting/
 
