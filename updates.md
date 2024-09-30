@@ -1,3 +1,7 @@
+**How the United States avoided panic and rallied to win another Presidents Cup**\
+`Suddenly tied with the International Team after Friday, four voices stepped up in the U.S. team room.`\
+https://nytimes.com/athletic/5804557/2024/09/29/united-states-presidents-cup-2024-win/
+
 **John Ashton, ‘Beverly Hills Cop’ Actor, Dies at 76**\
 `Mr. Ashton was most widely recognized for his role as Sgt. John Taggart in the “Beverly Hills Cop” franchise.`\
 https://nytimes.com/2024/09/29/arts/beverly-hills-cop-john-ashton-dead.html
