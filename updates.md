@@ -1,3 +1,11 @@
+**Can You Uncover the 13 Book Titles Hidden in This Text Puzzle?**\
+`The 1970s were known for their fashion, political turmoil, pop culture and a lot of significant books. See if you can spot popular fiction and nonfiction works of the era lurking in this short passage.`\
+https://nytimes.com/interactive/2024/09/30/books/review/70s-books-quiz.html
+
+**Britain Shuts Down Last Coal Plant, ‘Turning Its Back on Coal Forever’**\
+`The Ratcliffe-on-Soar plant was the last surviving coal-burning power station in a country that birthed the Industrial Revolution and fed it with coal.`\
+https://nytimes.com/2024/09/30/climate/britain-last-coal-power-plant.html
+
 **Germany captain Popp retires from international football**\
 `Germany captain Alexandra Popp has announced her retirement from international football at the age of 33.`\
 https://nytimes.com/athletic/5805952/2024/09/30/alexandra-popp-germany-international-retirement/

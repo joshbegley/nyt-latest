@@ -1,3 +1,11 @@
+**Can You Uncover the 13 Book Titles Hidden in This Text Puzzle?**\
+`The 1970s were known for their fashion, political turmoil, pop culture and a lot of significant books. See if you can spot popular fiction and nonfiction works of the era lurking in this short passage.`\
+https://nytimes.com/interactive/2024/09/30/books/review/70s-books-quiz.html
+
+**Britain Shuts Down Last Coal Plant, ‘Turning Its Back on Coal Forever’**\
+`The Ratcliffe-on-Soar plant was the last surviving coal-burning power station in a country that birthed the Industrial Revolution and fed it with coal.`\
+https://nytimes.com/2024/09/30/climate/britain-last-coal-power-plant.html
+
 **Germany captain Popp retires from international football**\
 `Germany captain Alexandra Popp has announced her retirement from international football at the age of 33.`\
 https://nytimes.com/athletic/5805952/2024/09/30/alexandra-popp-germany-international-retirement/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/30/us/politics/vance-debate-style.html
 **We Watched Tim Walz’s Old Debates. Here’s What We Learned.**\
 `He may not be a lofty orator, but he has shown an ability to deliver punchy critiques with Everyman appeal.`\
 https://nytimes.com/2024/09/30/us/politics/tim-walz-debate-history.html
-
-**Israel’s Attack in Central Beirut Was Its First There in Years**\
-`Here’s a look at where the Israeli military has been striking in the Beirut area recently.`\
-https://nytimes.com/2024/09/30/world/middleeast/israels-attack-in-central-beirut-was-its-first-there-in-years.html
-
-**Inside a Kamala Harris Ad That Draws an Implicit Contrast on Character**\
-`Voters have signaled that they want to know more about the vice president. By leaning on her background as a prosecutor, this ad aims to fill in those gaps and assuage any worries.`\
-https://nytimes.com/2024/09/30/us/politics/inside-a-kamala-harris-ad-that-draws-an-implicit-contrast-on-character.html
 
