@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/here-are-the-latest-developments
+
+**Live Updates: Hamas Says Its Leader in Lebanon Was Killed**\
+`The Hamas leader was killed in a refugee camp for Palestinians, the group said. A separate strike in Beirut damaged a residential building. Israel’s military did not immediately comment.`\
+https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah
+
 **Thompson: 49ers' Fred Warner — 'best linebacker in the game' — delivers again with pick 6**\
 `With the 49ers struggling again Sunday, Fred Warner got up, took off, and again created a moment to lift his team.`\
 https://nytimes.com/athletic/5804969/2024/09/30/san-francisco-49ers-fred-warner-interception-patriots/

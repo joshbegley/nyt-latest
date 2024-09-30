@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Mike Ives`\
+https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/here-are-the-latest-developments
+
+**Live Updates: Hamas Says Its Leader in Lebanon Was Killed**\
+`The Hamas leader was killed in a refugee camp for Palestinians, the group said. A separate strike in Beirut damaged a residential building. Israel’s military did not immediately comment.`\
+https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah
+
 **Thompson: 49ers' Fred Warner — 'best linebacker in the game' — delivers again with pick 6**\
 `With the 49ers struggling again Sunday, Fred Warner got up, took off, and again created a moment to lift his team.`\
 https://nytimes.com/athletic/5804969/2024/09/30/san-francisco-49ers-fred-warner-interception-patriots/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5802594/2024/09/30/leicester-arsenal-pressure-coope
 **Soucek bails out West Ham (again): 'We should be ashamed of conceding that goal'**\
 `This is a transitional season for West Ham and several players will have to step up - you can be sure Soucek will be one of them`\
 https://nytimes.com/athletic/5801135/2024/09/30/tomas-soucek-west-ham/
-
-**What does this image reveal about Aston Villa?**\
-`Villa have a huge vulnerability that Ipswich exploited`\
-https://nytimes.com/athletic/5802811/2024/09/30/what-does-this-image-reveal-about-aston-villa/
-
-**Crystal Palace's shape-shifting not enough to regain control against Everton**\
-`The optimism under Glasner has eked away after Palace's slow start to the season — and they struggled again against Everton.`\
-https://nytimes.com/athletic/5802549/2024/09/30/palace-everton-glasner-premier-league/
 
