@@ -1,3 +1,19 @@
+**Trump Golf Course Suspect Pleads Not Guilty**\
+`The plea from the man accused of mounting an assassination attempt against former President Donald J. Trump came at a hearing that lasted less than five minutes.`\
+https://nytimes.com/2024/09/30/us/trump-golf-ryan-routh-gunman-plea.html
+
+**Scoop City: Week 4 risers and fallers**\
+`A look at Jayden Daniels, the Vikings, Broncos and other Week 4 risers/fallers`\
+https://nytimes.com/athletic/5806374/2024/09/30/scoop-city-week-4-risers-and-fallers/
+
+**The Hammer Museum Chooses a New Director**\
+`Stepping into Ann Philbin’s shoes will be Zoë Ryan, the director of the Institute of Contemporary Art at the University of Pennsylvania.`\
+https://nytimes.com/2024/09/30/arts/design/hammer-museum-zoe-ryan-director-appointment-art.html
+
+**Eto'o given six-month ban from attending Cameroon games**\
+`Samuel Eto&#8217;o has been banned from attending Cameroon national team matches for the next six months for breaching FIFA&#8217;s disciplinary code.`\
+https://nytimes.com/athletic/5806237/2024/09/30/fifa-bans-samuel-etoo/
+
 **Monthlong Fire Flares Up Again in Southern California**\
 `The Line fire, which has burned since Sept. 5, forced another evacuation order this weekend.`\
 https://nytimes.com/2024/09/30/us/line-fire-san-bernadino-evacuations.html
