@@ -1,3 +1,7 @@
+**How Braves will approach a doubleheader with a playoff spot on the line**\
+`The Braves will start rookie standout Spencer Schwellenbach in Game 1, with Chris Sale slated for Game 2 if they still need a win. `\
+https://nytimes.com/athletic/5804707/2024/09/29/braves-mets-wild-card-doubleheader/
+
 **Why Yankees’ Anthony Rizzo is holding out hope he can play in ALDS**\
 `Could Rizzo really be an option to play in the American League Division Series, which starts Saturday?`\
 https://nytimes.com/athletic/5804692/2024/09/29/yankees-anthony-rizzo-injury-alds/
