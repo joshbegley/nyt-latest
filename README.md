@@ -4,7 +4,7 @@ https://nytimes.com/2024/10/01/us/politics/vance-walz-debate-what-to-watch.html
 
 **A Fancy New Restaurant in London, Staffed by the Recently Homeless**\
 `In London’s upmarket Primrose Hill, a Michelin-starred chef is employing people on the edge of homelessness as chefs, wait staff and cocktail makers.`\
-https://nytimes.com/2024/10/01/world/europe/a-fancy-new-restaurant-in-london-staffed-by-the-recently-homeless.html
+https://nytimes.com/2024/10/01/world/europe/restaurant-london-homeless.html
 
 **Week 5 waiver wire: Streamers, Kareem Hunt, Roschon Johnson and more**\
 `Jake Ciely helps you find injury and bye week replacements on the Week 5 waiver wire, led by Dontayvion Wicks and more important names.`\
