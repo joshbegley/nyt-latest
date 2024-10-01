@@ -1,3 +1,7 @@
+**2024 MLB Playoff odds: Dodgers, Yankees among World Series favorites**\
+`The LA Dodgers are in a tier of their own to win the World Series as the MLB postseason kicks into gear.`\
+https://nytimes.com/athletic/5807197/2024/09/30/2024-mlb-playoff-odds-world-series-dodgers-yankees/
+
 **The old Jordan Poole is back, and the Washington Wizards may reap the benefits**\
 `“From last year to over the summer and to now, I think Jordan is a much different person,” Wizards teammate Kyle Kuzma said.`\
 https://nytimes.com/athletic/5807729/2024/09/30/jordan-poole-washington-wizards-2/
