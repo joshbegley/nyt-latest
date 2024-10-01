@@ -1,3 +1,7 @@
+**Biden to Sign Bill Allowing Chip Projects to Skirt Key Environmental Review**\
+`The legislation, which would weaken federal environmental reviews for certain semiconductor manufacturing projects, has divided Democrats.`\
+https://nytimes.com/2024/10/01/us/politics/biden-semiconductor-environmental-review.html
+
 **Pelicans media day: Brandon Ingram's awkward situation, Zion Williamson's position**\
 `How often can the Pelicans get away with playing without a true center?`\
 https://nytimes.com/athletic/5808759/2024/10/01/pelicans-media-brandon-ingram-zion-williamson/
