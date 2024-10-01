@@ -1,3 +1,7 @@
+**Arteta says Timber substitution precautionary: 'He felt something muscular'**\
+`Mikel Arteta explained Jurrien Timber was taken off at half-time during Arsenal&#8217;s Champions League win over Paris Saint-Germain as a precaution after the defender experienced a muscular problem.`\
+https://nytimes.com/athletic/5810826/2024/10/01/jurrien-timber-arsenal-psg/
+
 **The Busiest Port on the East Coast Comes to a Stop**\
 `The strike by longshoremen has halted commerce at Newark and other ports on the East and Gulf Coasts, affecting an ecosystem of supply-chain workers.`\
 https://nytimes.com/2024/10/01/business/economy/dockworkers-strike-newark-port.html
