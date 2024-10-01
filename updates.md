@@ -1,3 +1,11 @@
+**Read Eric Adams’s Legal Filing**\
+`Mayor Eric Adams’s lawyer filed court papers accusing prosecutors of leaking details of the investigation to reporters.`\
+https://nytimes.com/interactive/2024/10/01/nyregion/eric-adams-legal-filing.html
+
+**Justin Verlander out, Yordan Alvarez in for Astros in Wild Card Series**\
+`The Verlander omission was anticipated. Manager Joe Espada called the conversation with him "very easy." and lauded him as “a true pro." `\
+https://nytimes.com/athletic/5809580/2024/10/01/justin-verlander-yordan-alvarez-astros-wild-card-roster/
+
 **We May Be Moments from a Ballistic Missile War in the Mideast**\
 `And this one could involve the United States.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/iran-attack-israel
