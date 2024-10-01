@@ -1,3 +1,15 @@
+**Pras Sues Lauryn Hill Over Canceled Fugees Tour, Alleging Fraud**\
+`Ms. Hill was accused of deceiving the other group members about tour finances. She called the lawsuit “baseless” and “full of false claims.”`\
+https://nytimes.com/2024/10/01/arts/music/pras-lauryn-hill-fugees-lawsuit.html
+
+**‘Climate Havens’ Don’t Exist**\
+`The worst damage from Hurricane Helene came in areas that were expected to be relatively immune to the effects of climate change.`\
+https://nytimes.com/2024/10/01/climate/asheville-climate-change-flood.html
+
+**Ex-Jags employee who stole $22M sues FanDuel**\
+`Amit Patel alleged in the complaint that FanDuel engaged in predatory practices to entice him to make deposits and wagers.`\
+https://nytimes.com/athletic/5809925/2024/10/01/jaguars-lawsuit-fanduel-amit-patel/
+
 **For East Coast Wine Importers, the Port Workers Strike Brings Fear and Uncertainty**\
 `The strike, disrupting shipments along the East and Gulf Coasts, comes as the wine industry tries to make up its sales after a downturn.`\
 https://nytimes.com/2024/10/01/dining/drinks/port-strike-wine-importers.html
