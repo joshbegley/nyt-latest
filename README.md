@@ -1,3 +1,7 @@
+**Wordle Review No. 1,201**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 2, 2024.`\
+https://nytimes.com/2024/10/01/crosswords/wordle-review-1201.html
+
 **12 teams, 12 champions: History shows us your team’s path to winning the World Series**\
 `Look closely enough and every team in the postseason field resembles one team in recent memory that went all the way.`\
 https://nytimes.com/athletic/5807672/2024/10/01/world-series-comps-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/world/middleeast/lebanon-government-failure-israe
 **What I’m seeing from the Patriots: An undermanned defense is struggling**\
 `How did the Patriots go from a top-10 defense to a bottom-10 unit? Between injuries and the loss of Bill Belichick, it's no big surprise.`\
 https://nytimes.com/athletic/5806627/2024/10/01/new-england-patriots-defense-struggles/
-
-**Koreen: Raptors' Masai Ujiri is carrying a lot these days**\
-`From the personal to the professional, Masai Ujiri is navigating a lot.`\
-https://nytimes.com/athletic/5806959/2024/10/01/toronto-raptors-masai-ujiri-media-day/
 
