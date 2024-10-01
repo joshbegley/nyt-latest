@@ -1,3 +1,7 @@
+**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in October**\
+`“Citadel: Diana,” “Disclaimer,” “The Franchise,” “Star Trek: Lower Decks,” a Springsteen documentary and others arrive.`\
+https://nytimes.com/2024/10/01/arts/television/october-streaming-movies-television.html
+
 **The Best Movies and TV Shows Coming to Netflix in October**\
 `Keri Russell is back and so is Ali Wong. Here’s a roundup of what’s worth checking out for U.S. subscribers this month.`\
 https://nytimes.com/2024/10/01/arts/television/netflix-best-new-movies-tv-shows-october.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5809967/2024/10/01/jason-peters-sign-seahawks-nfl/
 **The Ghosts of Vice-Presidential Debates Past**\
 `The face-offs between the candidates on the bottom of the ticket have produced some standout moments. Here’s a look at the most memorable exchanges.`\
 https://nytimes.com/2024/10/01/us/politics/past-vice-presidential-debates-history.html
-
-**As Iran Launches Attack, Israel’s Next Move May Determine Course of War**\
-`A look back to an exchange of strikes in April suggests one possibility for what could unfold over the coming days.`\
-https://nytimes.com/2024/10/01/world/middleeast/israel-iran-missile-attack-april.html
 
