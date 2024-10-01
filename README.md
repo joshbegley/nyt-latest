@@ -1,3 +1,15 @@
+**Ranking the 36 possible World Series matchups, from least to most interesting**\
+`A 12-team playoff field means 36 possible World Series combinations. All of them, in their own way, would be great.`\
+https://nytimes.com/athletic/5808243/2024/10/01/world-series-matchups-mlb-ranking/
+
+**These looming extension decisions signal a change in the NBA**\
+`Circulating around the NBA is a trendy motto: Extensions, execs and agents say, are the new free agency.`\
+https://nytimes.com/athletic/5807982/2024/10/01/nba-contract-extensions-aaron-gordon-julius-randle-jaren-jackson/
+
+**NFL Week 4 best and worst coaching decisions: Kliff Kingsbury, Todd Monken run wild**\
+`The Ravens and Commanders got their running games going while the Buccaneers' Todd Bowles bested the Eagles.`\
+https://nytimes.com/athletic/5805196/2024/10/01/nfl-week-4-worst-best-coaching-decisions-nguyen/
+
 **Rosenthal: Ohtani, Judge and 10 more major questions for the MLB postseason**\
 `The playoffs start Tuesday and we've got a question for every team in the postseason.`\
 https://nytimes.com/athletic/5808088/2024/10/01/mlb-playoffs-questions-ohtani-judge/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/01/opinion/eric-adams-foreign-interference-democracy
 **Fact-Checking Vance and Walz on the Campaign Trail**\
 `Gov. Tim Walz of Minnesota has acted as attack dog for the Harris campaign, and Senator JD Vance of Ohio has stepped in to explain away former President Donald J. Trump’s incendiary remarks.`\
 https://nytimes.com/2024/10/01/us/politics/vance-walz-campaign-fact-check.html
-
-**Rescuers Push Through Helene Debris to Find People and Restore Power**\
-`In southern Appalachia, blocked roads and bad cellphone service have made it hard to find hundreds of people who are still unaccounted for.`\
-https://nytimes.com/2024/10/01/us/helene-storm-north-carolina-aftermath.html
-
-**California Takes a Big Step Toward Fair College Admissions**\
-`If the state’s goal is fairness, it’s taking the right kind of lead by banning legacy admissions.`\
-https://nytimes.com/live/2024/09/25/opinion/thepoint/california-legacy-admissions
-
-**U.S. Raises New Concerns Over Chinese Lending Practices**\
-`A Treasury official will call for greater transparency over emergency currency “swap” loans to struggling countries by China’s central bank.`\
-https://nytimes.com/2024/10/01/us/politics/china-loans-currency-imf.html
 
