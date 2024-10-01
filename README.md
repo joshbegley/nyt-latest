@@ -1,3 +1,15 @@
+**Is That a Panda? Or a Dog in Disguise?**\
+`Zoos around the world have occasionally used a little dye, or just brazenness, to pass off one animal as another.`\
+https://nytimes.com/2024/10/01/world/asia/china-zoo-painted-dogs-pandas.html
+
+**MacArthur Foundation Announces 2024 ‘Genius’ Grant Winners**\
+`On Tuesday, 22 anonymously nominated Americans were recognized with fellowships and an $800,000 stipend.`\
+https://nytimes.com/2024/10/01/arts/macarthur-foundation-2024-genius-grant-winners.html
+
+**Jay Pharoah’s White Gold Cross Necklace**\
+`The “Saturday Night Live” alum — whose new comedy special, “Jared,” was just released — wears a cross around his neck not just as a symbol, but a reminder of how to live his life.`\
+https://nytimes.com/2024/10/01/style/jay-pharoahs-white-gold-cross-necklace.html
+
 **Read Eric Adams’s Legal Filing**\
 `Mayor Eric Adams’s lawyer filed court papers accusing prosecutors of leaking details of the investigation to reporters.`\
 https://nytimes.com/interactive/2024/10/01/nyregion/eric-adams-legal-filing.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5809575/2024/10/01/robin-le-normand-injury-atletico
 **3 Ambitious Song Cycles, but Only One Connects Mind and Heart**\
 `Todd Almond’s “I’m Almost There” is a work of wonder, while Gabriel Kahane’s “Book of Travelers” and “Magnificent Bird” are less effective.`\
 https://nytimes.com/2024/10/01/theater/todd-almond-gabriel-kahane-audible-playwrights-horizons.html
-
-**Market share report: Jordan Whittington vs. Dontayvion Wicks, Rico Dowdle makes RB2 move and more**\
-`Who should you target this week between Jordan Whittington and Dontayvion Wicks? Michael Salfino has run the numbers and shares his answer.`\
-https://nytimes.com/athletic/5809530/2024/10/01/fantasy-football-targets-touches-week-4-whittington-wicks-dowdle/
-
-**Nicholas Randall rejoining Forest as chairman with Tom Cartledge stepping down**\
-`Nicholas Randall has been re-appointed as chairman of Nottingham Forest in a boardroom shuffle that sees Tom Cartledge stepping down from the role he has held for only 13 months.`\
-https://nytimes.com/athletic/5809602/2024/10/01/nicholas-randall-forest-tom-cartledge/
-
-**Justin Verlander out, Yordan Alvarez in for Astros in Wild Card Series**\
-`The Verlander omission was anticipated. Manager Joe Espada called the conversation with him "very easy." and lauded him as “a true pro." `\
-https://nytimes.com/athletic/5809580/2024/10/01/justin-verlander-yordan-alvarez-astros-wild-card-roster/
 
