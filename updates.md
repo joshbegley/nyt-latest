@@ -1,3 +1,7 @@
+**In a Shattered Ukrainian Town, a Long Battle Nears a Sudden End**\
+`The loss of Vuhledar, at the intersection of two fronts, would complicate the defense of a regional transit hub and strengthen Russian supply lines, Ukrainian soldiers say.`\
+https://nytimes.com/2024/10/01/world/europe/ukraine-russia-war-donetsk-vuhledar.html
+
 **Jota to be assessed ahead of Liverpool vs Bologna**\
 `Diogo Jota missed training as a precaution as Liverpool continue their preparations for Wednesday&#8217;s Champions League clash with Bologna at Anfield.`\
 https://nytimes.com/athletic/5808894/2024/10/01/diogo-jota-injury-liverpool-bologna/

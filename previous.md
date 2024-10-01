@@ -1,3 +1,7 @@
+**In a Shattered Ukrainian Town, a Long Battle Nears a Sudden End**\
+`The loss of Vuhledar, at the intersection of two fronts, would complicate the defense of a regional transit hub and strengthen Russian supply lines, Ukrainian soldiers say.`\
+https://nytimes.com/2024/10/01/world/europe/ukraine-russia-war-donetsk-vuhledar.html
+
 **Jota to be assessed ahead of Liverpool vs Bologna**\
 `Diogo Jota missed training as a precaution as Liverpool continue their preparations for Wednesday&#8217;s Champions League clash with Bologna at Anfield.`\
 https://nytimes.com/athletic/5808894/2024/10/01/diogo-jota-injury-liverpool-bologna/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5808827/2024/10/01/martin-odegaard-injury-latest-no
 **The Pulse: Jared Goff's perfect game**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5807054/2024/10/01/jared-goff-lions-seahawks-the-pulse/
-
-**Iran’s Tepid Response (So Far)**\
-`We explore why Tehran has responded so meekly to recent attacks on its top officials and close allies.`\
-https://nytimes.com/2024/10/01/briefing/iran-israel-hezbollah-middle-east.html
 
