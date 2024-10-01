@@ -1,3 +1,11 @@
+**Ken Page, Who Starred in ‘Cats’ and Voiced Oogie Boogie, Dies**\
+`The Broadway actor had a storied career that spanned decades.`\
+https://nytimes.com/2024/10/01/arts/ken-page-dead.html
+
+**In Disjointed Speech, Trump Talks Gaza, Storm, Migrants and ‘Full Metal Jacket’**\
+`President Donald J. Trump criticized President Biden’s leadership and insisted again he would have prevented the crisis in the Middle East had he won in 2020.`\
+https://nytimes.com/2024/10/01/us/politics/trump-speech-wisconsin.html
+
 **Arteta says Timber substitution precautionary: 'He felt something muscular'**\
 `Mikel Arteta explained Jurrien Timber was taken off at half-time during Arsenal&#8217;s Champions League win over Paris Saint-Germain as a precaution after the defender experienced a muscular problem.`\
 https://nytimes.com/athletic/5810826/2024/10/01/jurrien-timber-arsenal-psg/
