@@ -1,3 +1,15 @@
+**Why a Racist Professor Doesn’t Scare Me**\
+`Having grown up in an increasingly diverse America, I find Amy Wax’s resentments more pathetic than threatening.`\
+https://nytimes.com/2024/10/01/opinion/amy-wax-racism-penn.html
+
+**What we know about the Islanders after 5 preseason games**\
+`The latest on the elephant in the crease, Kyle MacLean's rise, Pierre Engvall's place on the roster and more.`\
+https://nytimes.com/athletic/5808752/2024/10/01/islanders-preseason-hogberg-maclean-engvall/
+
+**3 Children Injured, One Seriously, in Zurich Stabbing Attack**\
+`The police in Switzerland’s largest city said they had arrested a 23-year-old Chinese man after a midday stabbing attack.`\
+https://nytimes.com/2024/10/01/world/europe/zurich-children-attack.html
+
 **School Bus Blaze in Thailand Kills at Least 23**\
 `The vehicle was returning from a field trip and caught fire outside Bangkok. Rescuers were still searching for bodies in the wreckage.`\
 https://nytimes.com/2024/10/01/world/asia/thailand-school-bus-fire.html
