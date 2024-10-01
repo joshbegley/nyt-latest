@@ -1,3 +1,7 @@
+**Hurricane Helene’s Trail of Destruction in Asheville, N.C.**\
+`Brandon Davis returned to his business in Asheville, N.C. for the first time since Hurricane Helene devastated the area several days ago.`\
+https://nytimes.com/video/world/americas/100000009734942/hurricane-helene-asheville-destruction.html
+
 **Iran appears to have used its most advanced missiles in the attack on Israel.**\
 `By Riley Mellen`\
 https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/iran-appears-to-have-used-its-most-advanced-missiles-in-the-attack-on-israel

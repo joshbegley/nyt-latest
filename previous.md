@@ -1,3 +1,7 @@
+**Hurricane Helene’s Trail of Destruction in Asheville, N.C.**\
+`Brandon Davis returned to his business in Asheville, N.C. for the first time since Hurricane Helene devastated the area several days ago.`\
+https://nytimes.com/video/world/americas/100000009734942/hurricane-helene-asheville-destruction.html
+
 **Iran appears to have used its most advanced missiles in the attack on Israel.**\
 `By Riley Mellen`\
 https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/iran-appears-to-have-used-its-most-advanced-missiles-in-the-attack-on-israel
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5810718/2024/10/01/jed-hoyer-cody-bellinger-cubs-of
 **CBS Says Trump Will Not Participate in ‘60 Minutes’ Interview**\
 `This is not the first time that the former president has clashed with the country’s most popular television news program.`\
 https://nytimes.com/2024/10/01/business/media/trump-cbs-60-minutes.html
-
-**Song Binbin, Poster Woman for Mao’s Bloody Revolution, Dies at 77**\
-`She was said to have been involved in the first killing of an educator during the Cultural Revolution, drawing official praise. She later apologized for her actions.`\
-https://nytimes.com/2024/10/01/world/asia/song-binbin-dead.html
 
