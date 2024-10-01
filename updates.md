@@ -1,3 +1,7 @@
+**Why Restoring Power After Helene Is Complicated**\
+`Damage went beyond downed power lines. Hundreds of substations went out after the storm. Getting them back online is difficult.`\
+https://nytimes.com/2024/10/01/climate/helene-hurricane-power-carolinas.html
+
 **Who is Tim Walz?**\
 `By Neil Vigdor`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/who-is-tim-walz
