@@ -18,7 +18,7 @@ https://nytimes.com/2024/10/01/business/economy/dockworkers-strike-newark-port.h
 `“When we signed the deal in late February, if he had a good year, we knew he’d have a lot of options,” Hoyer said.`\
 https://nytimes.com/athletic/5810718/2024/10/01/jed-hoyer-cody-bellinger-cubs-offseason/
 
-**CBS Says Trump Withdrew From Planned ‘60 Minutes’ Interview**\
+**CBS Says Trump Will Not Participate in ‘60 Minutes’ Interview**\
 `This is not the first time that the former president has clashed with the country’s most popular television news program.`\
 https://nytimes.com/2024/10/01/business/media/trump-cbs-60-minutes.html
 

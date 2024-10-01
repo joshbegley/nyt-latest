@@ -1,3 +1,7 @@
+**CBS Says Trump Will Not Participate in ‘60 Minutes’ Interview**\
+`This is not the first time that the former president has clashed with the country’s most popular television news program.`\
+https://nytimes.com/2024/10/01/business/media/trump-cbs-60-minutes.html
+
 **Ken Page, Who Starred in ‘Cats’ and Voiced Oogie Boogie, Dies**\
 `The Broadway actor had a storied career that spanned decades.`\
 https://nytimes.com/2024/10/01/arts/ken-page-dead.html
