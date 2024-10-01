@@ -1,3 +1,7 @@
+**Word of the Day: abdicate**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/01/learning/word-of-the-day-abdicate.html
+
 **Is a No-Nonsense Dutchman Just What NATO Needs?**\
 `In some countries, the job of a president or prime minister is a visionary one. Not here in Holland.`\
 https://nytimes.com/2024/10/01/opinion/nato-mark-rutte.html

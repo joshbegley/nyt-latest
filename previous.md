@@ -1,3 +1,7 @@
+**Word of the Day: abdicate**\
+`This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/01/learning/word-of-the-day-abdicate.html
+
 **Is a No-Nonsense Dutchman Just What NATO Needs?**\
 `In some countries, the job of a president or prime minister is a visionary one. Not here in Holland.`\
 https://nytimes.com/2024/10/01/opinion/nato-mark-rutte.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5805427/2024/10/01/jurrien-timber-arsenal-back/
 **Tuesday Briefing: Israel Sends Troops Into Lebanon**\
 `Plus, creating fashion in prison.`\
 https://nytimes.com/2024/10/01/briefing/lebanon-israel-trump-coal-britain.html
-
-**London has several major football clubs. Why does Paris only have one?**\
-`There are many reasons why London watches more football than Paris - but it's largely down to wildly varying levels of interest in the sport`\
-https://nytimes.com/athletic/5805559/2024/10/01/london-paris-football-clubs-comparison/
 
