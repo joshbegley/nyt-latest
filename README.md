@@ -1,3 +1,11 @@
+**Broncos S Brandon Jones evolves from 'a little bit of unknown' to making impact felt**\
+`Jones missed nearly all of training camp with a hamstring injury, but that hasn't kept him from being a turnover magnet early this season.`\
+https://nytimes.com/athletic/5804801/2024/10/01/broncos-brandon-jones-safety/
+
+**Atletico Madrid's links with radical ultras is a story of violence, emotion and change**\
+`After Sunday's dramatic city derby with Real Madrid, the issue has come under a new global spotlight`\
+https://nytimes.com/athletic/5808705/2024/10/01/atletico-madrid-real-madrid-frente-atletico-ultras-la-liga/
+
 **Why intrigue remains at Edmonton Oilers camp despite few question marks**\
 `Edmonton has gotten to the point where it’s essentially down to two forwards for the final spot: Noah Philp and Raphael Lavoie.`\
 https://nytimes.com/athletic/5808611/2024/10/01/edmonton-oilers-camp-question-marks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5807594/2024/10/01/spurs-chris-paul-gregg-popovich-
 **Rookie punter Tory Taylor showing why the Bears wanted him and his bag of tricks**\
 `Taylor had his best game of the season in the Bears' 24-18 win against the Los Angeles Rams.`\
 https://nytimes.com/athletic/5807301/2024/10/01/bears-punter-tory-taylor/
-
-**Israel Starts Lebanon Ground Invasion, and Hundreds Are Missing After Helene**\
-`Plus, Jimmy Carter turns 100.`\
-https://nytimes.com/2024/10/01/podcasts/israel-lebanon-helene.html
-
-**Is the Vikings’ scorching 4-0 start to the season sustainable?**\
-`The Packers took advantage of some cracks in the undefeated Vikings' armor on Sunday. Can Minnesota address them before it's too late?`\
-https://nytimes.com/athletic/5807492/2024/10/01/vikings-packers-undefeated-sustainable/
 
