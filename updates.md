@@ -1,3 +1,7 @@
+**Pelicans media day: Brandon Ingram's awkward situation, Zion Williamson's position**\
+`How often can the Pelicans get away with playing without a true center?`\
+https://nytimes.com/athletic/5808759/2024/10/01/pelicans-media-brandon-ingram-zion-williamson/
+
 **What to Know About JD Vance and Project 2025**\
 `JD Vance has repeatedly tried to distance himself from the project, a conservative policy blueprint for a future Republican administration that has outraged Democrats.`\
 https://nytimes.com/2024/10/01/us/politics/jd-vance-project-2025.html
