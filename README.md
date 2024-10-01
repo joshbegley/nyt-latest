@@ -1,3 +1,15 @@
+**Tuesday Briefing: Israel Sends Troops Into Lebanon**\
+`Plus, creating fashion in prison.`\
+https://nytimes.com/2024/10/01/briefing/lebanon-israel-trump-coal-britain.html
+
+**London has several major football clubs. Why does Paris only have one?**\
+`There are many reasons why London watches more football than Paris - but it's largely down to wildly varying levels of interest in the sport`\
+https://nytimes.com/athletic/5805559/2024/10/01/london-paris-football-clubs-comparison/
+
+**Trossard and a ludicrous red-card loophole that should be closed**\
+`Belgian's winner against Leicester exposed the folly of the rules around when suspensions are served in England`\
+https://nytimes.com/athletic/5805814/2024/10/01/leandro-trossard-red-card-loophole/
+
 **How important is matchday revenue to Premier League clubs?**\
 `Match-going fans have seen prices rise at all but one Premier League club this season - and that trend is unlikely to end any time soon`\
 https://nytimes.com/athletic/5776720/2024/10/01/premier-league-tickets-match-day-revenue/
@@ -26,16 +38,4 @@ https://nytimes.com/2024/10/01/us/politics/vance-walz-debate-what-to-watch.html
 **A Fancy New Restaurant in London, Staffed by the Recently Homeless**\
 `In London’s upmarket Primrose Hill, a Michelin-starred chef is employing people on the edge of homelessness as chefs, wait staff and cocktail makers.`\
 https://nytimes.com/2024/10/01/world/europe/restaurant-london-homeless.html
-
-**Champions League best bets: Picking Leverkusen to beat Milan, Saka to score and more**\
-`Martino Puccio takes a crack at some best bets for Tuesday's Champions League action.`\
-https://nytimes.com/athletic/5807360/2024/10/01/champions-league-best-bets-picking-leverkusen-to-beat-milan-bukayo-saka-to-score-and-more/
-
-**Champions League preview: What to look out for on Matchday 2 and how to watch**\
-`The new-look Champions League is back for Matchday 2 so here's our guide to five of the matches and how to watch them.`\
-https://nytimes.com/athletic/5793908/2024/10/01/champions-league-preview-matchday-2/
-
-**Arsenal-PSG Champions League preview: Storylines, odds, prediction as Gunners host PSG**\
-`Paris Saint-Germain has capably moved on from the departure of Kylian Mbappe, but can they take down Arsenal at the Emirates?`\
-https://nytimes.com/athletic/5806219/2024/10/01/arsenal-paris-saint-germain-psg-preview-odds-prediction/
 
