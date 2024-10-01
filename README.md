@@ -1,3 +1,7 @@
+**Jared Goff's perfect night powers Lions over Seahawks in MNF showdown**\
+`With his third-quarter receiving score, Goff finished the night with more touchdown receptions than incompletions.`\
+https://nytimes.com/athletic/5808192/2024/09/30/lions-seahawks-score-results-takeaways/
+
 **Brewers vs. Mets Wild Card Series preview: Predictions, pitching matchups and more**\
 `The runaway NL Central winners will host the Mets, who played .625 ball over the past four months, with the victor advancing to face Philly.`\
 https://nytimes.com/athletic/5807246/2024/09/30/brewers-mets-2024-wild-card-series-preview-predictions/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5807406/2024/09/30/padres-michael-king-game-1-start
 `The third baseman has played just 257 out of a possible 546 games with the Angels and has not hit a home run since July 2023.
 `\
 https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
-
-**Q&A: Former MLB commissioner Fay Vincent on Pete Rose's passing, Hall of Fame chances, legacy**\
-`When he was the deputy commissioner, Vincent was instrumental in investigating the gambling allegations against rose. `\
-https://nytimes.com/athletic/5807830/2024/09/30/qa-fay-vincent-pete-rose-betting-ban/
 
