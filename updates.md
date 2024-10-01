@@ -1,3 +1,11 @@
+**Early Voting Has Started. Here’s What to Watch.**\
+`Track the early vote for the 2024 election.`\
+https://nytimes.com/interactive/2024/us/elections/early-vote-tracker-2024.html
+
+**College football broadcast rankings: Another Fowler-Herbstreit masterclass**\
+`ABC/ESPN's top crew called the frantic final quarter of this year’s game of the century, as Alabama outlasted Georgia.`\
+https://nytimes.com/athletic/5806179/2024/10/01/college-football-broadcast-rankings-fowler-herbstreit/
+
 **Assange, in First Speech Since Release, Says He Was Jailed for Journalism**\
 `Julian Assange, the WikiLeaks founder, said in public remarks in Strasbourg, France, that his imprisonment had set a dangerous precedent.`\
 https://nytimes.com/2024/10/01/world/europe/julian-assange-journalism-wikileaks.html
