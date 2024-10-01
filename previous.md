@@ -1,3 +1,23 @@
+**What to Watch For in Tuesday’s Vance-Walz Debate**\
+`As the two running mates hold their first debate in New York, here is what to be on the lookout for.`\
+https://nytimes.com/2024/10/01/us/politics/vance-walz-debate-what-to-watch.html
+
+**A Fancy New Restaurant in London, Staffed by the Recently Homeless**\
+`In London’s upmarket Primrose Hill, a Michelin-starred chef is employing people on the edge of homelessness as chefs, wait staff and cocktail makers.`\
+https://nytimes.com/2024/10/01/world/europe/restaurant-london-homeless.html
+
+**Week 5 waiver wire: Streamers, Kareem Hunt, Roschon Johnson and more**\
+`Jake Ciely helps you find injury and bye week replacements on the Week 5 waiver wire, led by Dontayvion Wicks and more important names.`\
+https://nytimes.com/athletic/5804234/2024/10/01/fantasy-football-week-5-waiver-wire-streamers-kareem-hunt-dontayvion-wicks/
+
+**Super Typhoon Krathon Nears Taiwan After Lashing the Philippines**\
+`The storm is expected to bring torrential rain this week to Taiwan’s southwest, including Kaohsiung, the island’s third-largest city.`\
+https://nytimes.com/2024/09/30/world/asia/typhoon-krathon-taiwan.html
+
+**Quote of the Day: Fire Renewed Forests. Now It’s Their Enemy.**\
+`Quotation of the Day for Tuesday, October 1, 2024.`\
+https://nytimes.com/2024/09/30/pageoneplus/quote-of-the-day-fire-renewed-forests-now-its-their-enemy.html
+
 **Vance Pitches Republican Megadonors on Eve of Debate**\
 `Senator JD Vance addressed some of the party’s biggest donors at a private sit-down before the American Opportunity Alliance.`\
 https://nytimes.com/2024/09/30/us/politics/vance-pitches-republican-megadonors-on-eve-of-debate.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5807246/2024/09/30/brewers-mets-2024-wild-card-seri
 **Why the Suns' second season with the 'Big Three' might be different with Tyus Jones**\
 `Instead of trying to prove everyone right, chasing expectations like last season, the Suns may be more determined to prove everyone wrong.`\
 https://nytimes.com/athletic/5807807/2024/09/30/phoenix-suns-tyus-jones-kevin-durant-big-three/
-
-**With Grant Holmes filling in for Chris Sale, persistent Braves clinch in Game 162**\
-`Holmes, the surprise hero, departed to a thunderous ovation from a sold-out crowd of 41,561: “There aren’t words for it.”`\
-https://nytimes.com/athletic/5808242/2024/09/30/braves-clinch-wild-card-grant-holmes/
-
-**Reflections on Pete Rose, the Hall of Fame and the spot where his plaque will never hang**\
-`I’ll never forget the life and times of Pete Rose — especially when I walk the halls of Cooperstown and stare at that spot on the wall. `\
-https://nytimes.com/athletic/5808189/2024/09/30/pete-rose-hall-of-fame-gambling/
-
-**Baseball world pays tribute to Pete Rose: 'Nobody played harder'**\
-`Former players, executives and officials remembered Major League Baseball’s hit king: “He was my mentor, my coach, my manager.”`\
-https://nytimes.com/athletic/5808182/2024/09/30/pete-rose-death-tribute-baseball-world/
-
-**American League Wild Card Series predictions: Our experts make their picks**\
-`Who will move on to the American League Division Series? Our experts weigh in with their picks.`\
-https://nytimes.com/athletic/5807215/2024/09/30/al-wild-card-series-predictions/
-
-**Buster Posey takes reins in Giants front office, enthusiasm abounds: 'I'm sure he will excel'**\
-`Posey brings a unique background: "He's a person who can understand the ins and outs, the analytics and different ways to view the game."`\
-https://nytimes.com/athletic/5808143/2024/09/30/buster-posey-sf-giants-president-baseball-operations/
 
