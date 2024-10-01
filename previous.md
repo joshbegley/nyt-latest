@@ -1,3 +1,11 @@
+**Amick: LeBron's 'tank' is far from empty, with Bronny and more keeping his motor running**\
+`The 39-year-old was dominant on the global stage this summer, which begs the question: Can he reach those heights again this season?`\
+https://nytimes.com/athletic/5807728/2024/09/30/lebron-james-bronny-lakers-media-day/
+
+**Newsom Tacks to the Middle With California in the Spotlight**\
+`While Donald J. Trump has attacked California as too liberal for the nation, Gov. Gavin Newsom has vetoed several bills that could have become political fodder.`\
+https://nytimes.com/2024/09/30/us/newsom-california-bill-politics.html
+
 **Titans QB Levis (shoulder) replaced by Mason Rudolph vs. Dolphins**\
 `Levis hurt himself early in the first quarter while diving for the first-down marker on third down.`\
 https://nytimes.com/athletic/5807550/2024/09/30/titans-dolphins-score-results-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/30/us/asheville-hurricane-helene-damage.html
 **Pete Rose, Baseball Star Who Earned Glory and Shame, Dies at 83**\
 `One of the sport’s greatest players, he set a record with 4,256 career hits. But his gambling led to a lifetime ban and kept him out of the Hall of Fame.`\
 https://nytimes.com/2024/09/30/sports/baseball/pete-rose-baseball-star-who-earned-glory-and-shame-dies-at-83.html
-
-**Fire Dept. Chief to Plead Guilty to Bribery Charge, U.S. Says**\
-`Brian E. Cordasco was one of two former high-ranking officials arrested earlier this month and charged with soliciting and receiving bribes to speed up safety approvals.`\
-https://nytimes.com/2024/09/30/nyregion/fdny-chief-guilty-bribery.html
-
-**Humberto Ortega, Former Miliary Chief in Nicaragua, Dies at 77**\
-`Mr. Ortega, the estranged brother of President Daniel Ortega of Nicaragua, had been under house arrest for months after making statements that infuriated his sibling.`\
-https://nytimes.com/2024/09/30/world/americas/nicaragua-humberto-ortega-dead.html
 
