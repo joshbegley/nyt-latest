@@ -1,3 +1,7 @@
+**Michael King, Padres’ Game 1 starter, has come a long way from an empty Petco Park**\
+`King threw two innings of relief for the Yankees on Oct. 7, 2020 in a virtually empty Petco Park. Now he'll start Game 1 for San Diego.`\
+https://nytimes.com/athletic/5807406/2024/09/30/padres-michael-king-game-1-starter-wcs/
+
 **Anthony Rendon might not be guaranteed a roster spot in 2025: 'He hasn't been productive'**\
 `The third baseman has played just 257 out of a possible 546 games with the Angels and has not hit a home run since July 2023.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2024/09/30/pageoneplus/corrections-oct-1-2024.html
 **Cubs make changes to Craig Counsell’s staff: Mike Napoli and others are out: Sources**\
 `Chicago cut ties with its first-base coach, bullpen coach and assistant hitting coach.`\
 https://nytimes.com/athletic/5807969/2024/09/30/cubs-coaching-staff-changes/
-
-**2024 MLB Playoff odds: Dodgers, Yankees among World Series favorites**\
-`The LA Dodgers are in a tier of their own to win the World Series as the MLB postseason kicks into gear.`\
-https://nytimes.com/athletic/5807197/2024/09/30/2024-mlb-playoff-odds-world-series-dodgers-yankees/
 
