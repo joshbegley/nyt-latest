@@ -1,3 +1,7 @@
+**What comes next in the Jeremy Swayman vs. Bruins dumpster fire? It all depends on his interpretation**\
+`Swayman is confident, competitive, temperamental — and sensitive. How he sees the Bruins' actions will determine the stalemate's conclusion.`\
+https://nytimes.com/athletic/5809886/2024/10/01/jeremy-swayman-bruins-dumpster-fire/
+
 **What Tim Walz’s Time in Minnesota Says About How He Governs**\
 `Mr. Walz was willing to move the state swiftly to the left as soon as Democrats had an opening. He supported all but one bill that fellow Democrats approved, issuing a single veto last year.`\
 https://nytimes.com/2024/10/01/us/tim-walz-minnesota-administration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/dining/andrew-tarlow-manhattan-restaurant-borgo.h
 **Where the Dockworkers’ Union and Port Operators Stand on Key Issues**\
 `The union representing thousands of striking dockworkers is pushing for bigger wage increases than port operators have offered, and a ban on automation.`\
 https://nytimes.com/2024/10/01/business/port-workers-strike-demands-union.html
-
-**Who is JD Vance?**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/who-is-jd-vance
 
