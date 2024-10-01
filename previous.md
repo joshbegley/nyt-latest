@@ -1,3 +1,11 @@
+**Newsom Tacks to the Middle With California in the Spotlight**\
+`While Donald J. Trump has attacked California as too liberal for the nation, Gov. Gavin Newsom has vetoed several bills that could have become political fodder.`\
+https://nytimes.com/2024/09/30/us/newsom-california-bill-politics.html
+
+**Titans QB Levis (shoulder) replaced by Mason Rudolph vs. Dolphins**\
+`Levis hurt himself early in the first quarter while diving for the first-down marker on third down.`\
+https://nytimes.com/athletic/5807550/2024/09/30/titans-dolphins-score-results-takeaways/
+
 **Padres vs. Braves Wild Card Series preview: Predictions, pitching matchups and more**\
 `The Padres probably have the best pitching staff in the postseason. The Braves probably have the best pitcher in this series, if he can go. `\
 https://nytimes.com/athletic/5806710/2024/09/30/padres-braves-2024-wild-card-series-preview-predictions/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/30/sports/baseball/pete-rose-baseball-star-who-earne
 **Fire Dept. Chief to Plead Guilty to Bribery Charge, U.S. Says**\
 `Brian E. Cordasco was one of two former high-ranking officials arrested earlier this month and charged with soliciting and receiving bribes to speed up safety approvals.`\
 https://nytimes.com/2024/09/30/nyregion/fdny-chief-guilty-bribery.html
-
-**Humberto Ortega, Former Miliary Chief in Nicaragua, Dies at 77**\
-`Mr. Ortega, the estranged brother of President Daniel Ortega of Nicaragua, had been under house arrest for months after making statements that infuriated his sibling.`\
-https://nytimes.com/2024/09/30/world/americas/nicaragua-humberto-ortega-dead.html
-
-**Bruins' president Neely, Swayman's agent take contract negotiation public**\
-`Neely did not disclose what the restricted free agent goaltender's ask has been but said he was surprised by it.`\
-https://nytimes.com/athletic/5806291/2024/09/30/bruins-cam-neely-jeremy-swayman/
 
