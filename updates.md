@@ -1,3 +1,7 @@
+**Royals' Bobby Witt Jr. and Cole Ragans impress in Game 1 win over Baltimore: Takeaways**\
+`Kansas City Royals starter Cole Ragans left Tuesday’s Wild Card Series opener against the Baltimore Orioles after six innings with a left hamstring cramp, but the team’s bullpen covered three innings to give the Royals a 1-0 victory and a 1-0 lead in the best-of-three series.`\
+https://nytimes.com/athletic/5810926/2024/10/01/royals-win-cole-ragans-game-1/
+
 **The Veep Debate, or When the Opening Act Becomes the Headliner**\
 `Tonight’s showdown could be the last between representatives of both tickets before the election.`\
 https://nytimes.com/2024/10/01/us/politics/walz-vance-vp-debate-importance.html
