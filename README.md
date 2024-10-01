@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Victoria Kim and Natan Odenheimer`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/here-are-the-latest-developments
+
+**Live Updates: Israel Invades Southern Lebanon**\
+`Israeli troops crossed the border after a prolonged bombing campaign aimed at killing many of Hezbollah’s top leaders and destroying some of its weapons.`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah
+
 **Ultimate fantasy basketball tiers: A draft guide for navigating the Top 100 picks of 2024-2025**\
 `Eric Wong breaks up his top 100 fantasy basketball picks for 2024-25 into sub-sections to help guide you through your upcoming drafts.`\
 https://nytimes.com/athletic/5806161/2024/10/01/fantasy-basketball-tiers-top-100-draft-guide-2024-25/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5808444/2024/10/01/dan-campbell-jared-goff-game-bal
 **Liverpool need more from Szoboszlai - he is key to Slot's system**\
 `Szoboszlai has spoken of 25 goal involvements this season - but needs to start taking his chances as Slot's No 10 `\
 https://nytimes.com/athletic/5806613/2024/10/01/dominik-szoboszlai-liverpool-arne-slot/
-
-**Inside Newcastle Q&A: Osula full debut, Almiron's absence and CEO succession planning**\
-`January transfer plans? Is Trippier back in the fold? Has there been a Bunce effect? Chris Waugh answers your questions`\
-https://nytimes.com/athletic/5805429/2024/10/01/inside-newcastle-qa-eales-almiron-trippier-osula/
-
-**Living at La Masia: Why Barcelona's youth academy is still a home to global stars**\
-`Even when players like Lamine Yamal and Pau Cubarsi break into the first team, routines at the academy don't change`\
-https://nytimes.com/athletic/5806174/2024/10/01/lamine-yamal-barcelona-la-masia-pau-cubarsi/
 
