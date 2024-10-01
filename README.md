@@ -1,3 +1,7 @@
+**Port Workers Strike on East and Gulf Coasts**\
+`Members of the International Longshoremen’s Association walked out for the first time since 1977 in a standoff over wages, benefits and job security.`\
+https://nytimes.com/2024/10/01/business/economy/port-strike.html
+
 **Dan Campbell feels 'awful' after not giving game ball to Goff**\
 `Campbell gave receiver Jameson Williams and cornerback Kirby Joseph the game balls for their strong play.`\
 https://nytimes.com/athletic/5808444/2024/10/01/dan-campbell-jared-goff-game-ball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5805814/2024/10/01/leandro-trossard-red-card-loopho
 **How important is matchday revenue to Premier League clubs?**\
 `Match-going fans have seen prices rise at all but one Premier League club this season - and that trend is unlikely to end any time soon`\
 https://nytimes.com/athletic/5776720/2024/10/01/premier-league-tickets-match-day-revenue/
-
-**Support for Erik ten Hag has evaporated after the lowest moment of his Man United tenure**\
-`There are no easy answers to Manchester United's cycle of decline but Erik ten Hag seems to be entering a phase familiar to his predecessors`\
-https://nytimes.com/athletic/5805645/2024/10/01/support-erik-ten-hag-evaporated/
 
