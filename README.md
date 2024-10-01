@@ -1,40 +1,40 @@
-**Early Voting Has Started. Here’s What to Watch.**\
-`Track the early vote for the 2024 election.`\
-https://nytimes.com/interactive/2024/us/elections/early-vote-tracker-2024.html
+**Eric Adams and the Creeping Threat of Foreign Interference**\
+`If other nations can influence New York City’s mayor, who can’t they influence?`\
+https://nytimes.com/2024/10/01/opinion/eric-adams-foreign-interference-democracy.html
 
-**College football broadcast rankings: Another Fowler-Herbstreit masterclass**\
-`ABC/ESPN's top crew called the frantic final quarter of this year’s game of the century, as Alabama outlasted Georgia.`\
-https://nytimes.com/athletic/5806179/2024/10/01/college-football-broadcast-rankings-fowler-herbstreit/
+**Fact-Checking Vance and Walz on the Campaign Trail**\
+`Gov. Tim Walz of Minnesota has acted as attack dog for the Harris campaign, and Senator JD Vance of Ohio has stepped in to explain away former President Donald J. Trump’s incendiary remarks.`\
+https://nytimes.com/2024/10/01/us/politics/vance-walz-campaign-fact-check.html
 
-**Assange, in First Speech Since Release, Says He Was Jailed for Journalism**\
-`Julian Assange, the WikiLeaks founder, said in public remarks in Strasbourg, France, that his imprisonment had set a dangerous precedent.`\
-https://nytimes.com/2024/10/01/world/europe/julian-assange-journalism-wikileaks.html
+**Rescuers Push Through Helene Debris to Find People and Restore Power**\
+`In southern Appalachia, blocked roads and bad cellphone service have made it hard to find hundreds of people who are still unaccounted for.`\
+https://nytimes.com/2024/10/01/us/helene-storm-north-carolina-aftermath.html
 
-**Family Survives Hurricane but Is Left With Just One Suitcase**\
-`Hurricane Helene left Aaron Smith, his wife, two sons and dog with nothing but a single suitcase. They are some of the many victims state and federal crews are working to aid after the storm devastated southern Appalachia.`\
-https://nytimes.com/video/weather/100000009733115/hurricane-helene-north-carolina-survivors.html
+**California Takes a Big Step Toward Fair College Admissions**\
+`If the state’s goal is fairness, it’s taking the right kind of lead by banning legacy admissions.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/california-legacy-admissions
 
-**Late Night Slams Trump’s Idea to Adapt ‘The Purge’**\
-`“Good news: He stopped talking about Hannibal Lecter,” Jimmy Fallon said. “Bad news: He suggested we do ‘The Purge’ instead.”`\
-https://nytimes.com/2024/10/01/arts/television/late-night-trump-the-purge.html
+**U.S. Raises New Concerns Over Chinese Lending Practices**\
+`A Treasury official will call for greater transparency over emergency currency “swap” loans to struggling countries by China’s central bank.`\
+https://nytimes.com/2024/10/01/us/politics/china-loans-currency-imf.html
 
-**Port Workers Go on Strike**\
-`The president of the International Longshoremen’s Association said the workers were “making history” by walking off the job for the first time in nearly 50 years.`\
-https://nytimes.com/video/business/100000009733077/port-strike.html
+**‘He’s Most Authentic When He’s Nasty’: Four Columnists Brace for the Vance-Walz Debate**\
+`With Harris and Trump locked in a tight race, will the vice-presidential debate do anything to help or hurt either ticket?`\
+https://nytimes.com/2024/10/01/opinion/jd-vance-tim-walz-debate.html
 
-**A perfect Jared Goff leads Lions in MNF win against Seahawks**\
-`Goff went 18-for-18 passing, setting an NFL record for most completions in a game without an incompletion, and he caught a TD pass, too.`\
-https://nytimes.com/athletic/5808601/2024/10/01/lions-defeat-seahawks-mnf/
+**Mark Cuban Says Kamala Harris Is Good for Billionaires (and Everyone Else Too)**\
+`One of the most surprising surrogates of 2024 argues that Harris is best for the economy — and therefore for everyone.`\
+https://nytimes.com/2024/10/01/podcasts/mark-cuban-says-kamala-harris-is-good-for-billionaires-and-everyone-else-too.html
 
-**Sex Is Back on the Table in Paris**\
-`Balenciaga starts the heavy breathing. With shimmies from Hermès, Stella McCartney and Victoria Beckham.`\
-https://nytimes.com/2024/10/01/style/balenciaga-sexy-paris-fashion-week.html
+**How Chicken Tenders Conquered America**\
+`The breaded, fried tenderloin turns 50 this year. Yes, there was a time before it was sold in every cafeteria and airport.`\
+https://nytimes.com/2024/10/01/dining/chicken-tenders.html
 
-**Cambodia Arrests Journalist Known for Exposing Scam Centers**\
-`The authorities did not give a reason for the action, but it came after the United States punished a tycoon for what it said was his role in the scam compounds.`\
-https://nytimes.com/2024/10/01/world/asia/cambodia-journalist-mech-dara-arrest.html
+**The Bryant Park Grill Is Fighting to Survive**\
+`The restaurant, a big contributor to the revitalization of the Midtown park, may not get its lease renewed.`\
+https://nytimes.com/2024/10/01/nyregion/bryant-park-grill-lease.html
 
-**Baby Hippo**\
-`Moo Deng, a baby pygmy hippo at a zoo in Thailand, has become a social media star. Are you a fan?`\
-https://nytimes.com/2024/10/01/learning/baby-hippo.html
+**Trump Thinks Harris’s Sisterhood Is a ‘Sorority Party.’ He Should Think Again.**\
+`The vice president is an institutionalist politician. Her membership in a “Divine Nine” organization helps explain why.`\
+https://nytimes.com/2024/10/01/opinion/harris-black-sororities-fraternities.html
 
