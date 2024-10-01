@@ -1,3 +1,7 @@
+**Scenes from a Mets' celebration: 'This is the standard'**\
+`The Mets savored a long-awaited celebration after what one player called 'The best I've ever played in.'`\
+https://nytimes.com/athletic/5807960/2024/09/30/mets-wild-card-celebration-analysis/
+
 **Cubs make changes to Craig Counsell’s staff: Mike Napoli and others are out: Sources**\
 `Chicago cut ties with its first-base coach, bullpen coach and assistant hitting coach.`\
 https://nytimes.com/athletic/5807969/2024/09/30/cubs-coaching-staff-changes/
