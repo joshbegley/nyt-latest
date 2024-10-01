@@ -1,3 +1,15 @@
+**How to Punish Mayor Adams for Abusing New York Taxpayers**\
+`He needs to be kicked out of the city’s campaign finance system immediately, a councilman argues.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/adams-punishment-campaign-finance
+
+**The Briefing: Slovan Bratislava 0 Manchester City 4: Doku's end product, a record equalled and 28 shots**\
+`Manchester City cruised to victory in Slovakia and equalled a Champions League record - Sam Lee analyses the talking points`\
+https://nytimes.com/athletic/5801015/2024/10/01/slovan-bratislava-0-manchester-city-4-record-doku-foden-haaland/
+
+**In Iran, Military Commanders Win the Day. Then Israel Is Hit**\
+`The barrage of missile fire came after much debate among Iranian leaders, officials there say.`\
+https://nytimes.com/2024/10/01/world/middleeast/iran-israel-strike.html
+
 **In Iran, Military Commanders Win the Day, Then Israel Is Hit**\
 `The barrage of missile fire came after much debate among Iranian leaders, officials there say.`\
 https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/iran-israel-strike
