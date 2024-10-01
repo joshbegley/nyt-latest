@@ -34,7 +34,3 @@ https://nytimes.com/2024/10/01/arts/halloween-new-york-things-to-do-october.html
 `See the likely path and wind arrival times for Eleven-e.`\
 https://nytimes.com/interactive/2024/10/01/weather/eleven-e-map-path-tracker.html
 
-**When an Ohioan Debates a Minnesotan, the Midwest Takes Center Stage**\
-`JD Vance and Tim Walz each have roots in the Midwest, but how voters in the region will view the vice-presidential candidates’ different visions remains to be seen.`\
-https://nytimes.com/2024/10/01/us/vice-presidents-vance-walz-midwest.html
-
