@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in October**\
+`“Citadel: Diana,” “Disclaimer,” “The Franchise,” “Star Trek: Lower Decks,” a Springsteen documentary and others arrive.`\
+https://nytimes.com/2024/10/01/arts/television/october-streaming-movies-television.html
+
+**The Best Movies and TV Shows Coming to Netflix in October**\
+`Keri Russell is back and so is Ali Wong. Here’s a roundup of what’s worth checking out for U.S. subscribers this month.`\
+https://nytimes.com/2024/10/01/arts/television/netflix-best-new-movies-tv-shows-october.html
+
 **6 of ‘The Greatest’ Songs**\
 `Hear superlative tracks from Billie Eilish, Kenny Rogers and Alabama Shakes.`\
 https://nytimes.com/2024/10/01/arts/music/amplifier-newsletter-billie-eilish-greatest.html
