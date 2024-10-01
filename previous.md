@@ -1,3 +1,23 @@
+**Musical Comedy ‘Operation Mincemeat’ to Open on Broadway Next Spring**\
+`The show is about a real World War II episode in which British intelligence planted disinformation on a dead body to fool the Germans.`\
+https://nytimes.com/2024/10/01/theater/operation-mincemeat-broadway.html
+
+**Here Are the Finalists for the 2024 National Book Award**\
+`Percival Everett’s “James,” Salman Rushdie’s “Knife” and Diane Seuss’ “Modern Poetry” are among the honorees. Winners will be announced next month.`\
+https://nytimes.com/2024/10/01/books/here-are-the-finalists-for-the-2024-national-book-award.html
+
+**Southampton's Stephens given two-match ban for calling officials 'c****'**\
+`Southampton defender Jack Stephens has been banned for two matches and handed a £50,000 fine after calling an official a “f***ing little c***” after being sent off against Manchester United.`\
+https://nytimes.com/athletic/5809244/2024/10/01/jack-stephens-red-card-southampton/
+
+**Who do I drop? Unlike the Bears, fantasy managers can cut Caleb Williams**\
+`The Bears need to stand by their rookie quarterback. But you don't have to.`\
+https://nytimes.com/athletic/5809237/2024/10/01/fantasy-football-who-to-drop-ahead-of-week-5-caleb-williams-comes-to-mind/
+
+**Can Pro Sports and Drag Queens Coexist? A Mill Town Finds Out.**\
+`A gay couple embraced inclusion after buying an English rugby team. To their surprise, the fans bought in, too.`\
+https://nytimes.com/2024/10/01/world/europe/rugby-league-uk-keighley-cougars-gay-owners.html
+
 **The MLB playoffs' TV ratings potential, and the league's murky media future**\
 `Our sports media writers, Richard Deitsch and Andrew Marchand, discuss some of the big MLB media storylines as the 2024 playoffs arrive.`\
 https://nytimes.com/athletic/5799666/2024/10/01/mlb-playoffs-media-tv-ratings-streaming-future/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/01/us/politics/jd-vance-project-2025.html
 **Lakers coach JJ Redick is impressing players early, plus 4 more training camp storylines**\
 `Through conversations and interactions, the new Lakers coach has made an impact. Plus, a refreshed LeBron and D'Angelo Russell's apology.`\
 https://nytimes.com/athletic/5807902/2024/10/01/lakers-jj-redick-training-camp/
-
-**Israel Has Invaded Lebanon Three Times Before. Here’s a Closer Look.**\
-`In its earlier invasions, Israel said its aim was to secure its northern frontier and stop cross-border attacks, but it achieved less decisive results than military planners and political leaders intended.`\
-https://nytimes.com/2024/10/01/world/middleeast/israel-lebanon-invasions-history.html
-
-**Nottingham Forest to buy Viv Anderson's European Cup medal**\
-`Nottingham Forest have arranged a deal with Viv Anderson to buy the European Cup winner’s medal that their former player had put up for auction.`\
-https://nytimes.com/athletic/5809134/2024/10/01/viv-anderson-european-cup-medal-nottingham-forest/
-
-**Canucks 23-man roster projection 2.0: Who is a lock? Who is on the bubble?**\
-`Here's how the Canucks roster is shaping up based on what we've learned entering the final week of preseason.`\
-https://nytimes.com/athletic/5808495/2024/10/01/canucks-roster-projection/
-
-**After Warm Welcome in Asia, Pope Francis Gets a Fraught Reception in Belgium**\
-`Francis drew attacks over clergy sexual abuse, the role of women in the church and his stance on abortion, reflecting difficulties the church faces in the West.`\
-https://nytimes.com/2024/10/01/world/europe/pope-francis-catholic-church-belgium.html
-
-**New Children’s Museum of Manhattan to Open in 2028**\
-`Laurie M. Tisch has donated $50 million to the $300 million capital campaign for a new location on Central Park West.`\
-https://nytimes.com/2024/10/01/arts/design/childrens-museum-manhattan-2028-tisch.html
 
