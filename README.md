@@ -1,3 +1,11 @@
+**Ken Page, Who Starred in ‘Cats’ and Voiced Oogie Boogie, Dies**\
+`The Broadway actor had a storied career that spanned decades.`\
+https://nytimes.com/2024/10/01/arts/ken-page-dead.html
+
+**In Disjointed Speech, Trump Talks Gaza, Storm, Migrants and ‘Full Metal Jacket’**\
+`President Donald J. Trump criticized President Biden’s leadership and insisted again he would have prevented the crisis in the Middle East had he won in 2020.`\
+https://nytimes.com/2024/10/01/us/politics/trump-speech-wisconsin.html
+
 **Arteta says Timber substitution precautionary: 'He felt something muscular'**\
 `Mikel Arteta explained Jurrien Timber was taken off at half-time during Arsenal&#8217;s Champions League win over Paris Saint-Germain as a precaution after the defender experienced a muscular problem.`\
 https://nytimes.com/athletic/5810826/2024/10/01/jurrien-timber-arsenal-psg/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5810580/2024/10/01/nfl-bills-browns-hall-miller-sus
 **Canadiens' Patrik Laine diagnosed with left knee sprain, won't require surgery**\
 `Laine, 26, played in just 18 games Columbus Blue Jackets last season, registering six goals and three assists.`\
 https://nytimes.com/athletic/5810689/2024/10/01/canadiens-patrik-laine-knee-sprain/
-
-**Halloween in New York: Things to Do in October**\
-`The Village Halloween Parade will feature a “cat lady” section, and the New York Botanical Garden has a Tim Burton light installation, plus much more.`\
-https://nytimes.com/2024/10/01/arts/halloween-new-york-things-to-do-october.html
-
-**Tracking Tropical Depression Eleven-e**\
-`See the likely path and wind arrival times for Eleven-e.`\
-https://nytimes.com/interactive/2024/10/01/weather/eleven-e-map-path-tracker.html
 
