@@ -1,3 +1,7 @@
+**He Called 311 on the Police. They Called Back Making Dolphin Sounds.**\
+`Officer Brendan Sullivan was hit with a fine for harassing a Brooklyn resident who had complained about illegally parked police cruisers.`\
+https://nytimes.com/2024/10/01/nyregion/nypd-officer-harassment-dolphin-noises.html
+
 **Meet the Moderators: Margaret Brennan and Norah O’Donnell of CBS News**\
 `A pair of veteran news anchors will steer the vice-presidential matchup on Tuesday between JD Vance and Tim Walz.`\
 https://nytimes.com/2024/10/01/business/media/cbs-debate-moderators-margaret-brennan-norah-odonnell.html

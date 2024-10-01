@@ -1,3 +1,7 @@
+**LeBrun rumblings: CBA talks, cap estimate, expansion, McDavid extension and more from Board of Governors**\
+`Also from the Board of Governors meeting Tuesday in New York: Ullmark extension talks, ownership stakes and a Blue Jackets cap resolution.`\
+https://nytimes.com/athletic/5811099/2024/10/01/nhl-cba-salary-cap-expansion-bog/
+
 **He Called 311 on the Police. They Called Back Making Dolphin Sounds.**\
 `Officer Brendan Sullivan was hit with a fine for harassing a Brooklyn resident who had complained about illegally parked police cruisers.`\
 https://nytimes.com/2024/10/01/nyregion/nypd-officer-harassment-dolphin-noises.html
@@ -10,7 +14,7 @@ https://nytimes.com/2024/10/01/business/media/cbs-debate-moderators-margaret-bre
 `At one facility, the body of an inmate, possibly strangled in his cell, was so decomposed that the coroner concluded he had been dead for two days without being discovered.`\
 https://nytimes.com/2024/10/01/us/politics/georgia-prison-conditions-unsafe.html
 
-**In Congress, Republicans Urge Israel to Strike Back Hard at Iran**\
+**In Congress, Republicans urge Israel to strike back hard at Iran.**\
 `Republican leaders called for more U.S. military support for Israel and retaliation against Iran, as Democratic leaders promised to watch and wait as the situation rapidly deteriorated in the Middle East.`\
 https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/in-congress-republicans-urge-israel-to-strike-back-hard-at-iran
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/world/middleeast/gaza-palestinian-dead-iran-attac
 **Royals impress in Game 1 win over O's: Takeaways**\
 `Ragans allowed just four hits and struck out eight in his six innings of work, including a pair of strikeouts in the bottom of the fifth.`\
 https://nytimes.com/athletic/5810926/2024/10/01/royals-win-cole-ragans-game-1/
-
-**The Veep Debate, or When the Opening Act Becomes the Headliner**\
-`Tonight’s showdown could be the last between representatives of both tickets before the election.`\
-https://nytimes.com/2024/10/01/us/politics/walz-vance-vp-debate-importance.html
 
