@@ -1,3 +1,7 @@
+**Wordle Review No. 1,201**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 2, 2024.`\
+https://nytimes.com/2024/10/01/crosswords/wordle-review-1201.html
+
 **12 teams, 12 champions: History shows us your team’s path to winning the World Series**\
 `Look closely enough and every team in the postseason field resembles one team in recent memory that went all the way.`\
 https://nytimes.com/athletic/5807672/2024/10/01/world-series-comps-mlb/
