@@ -1,3 +1,7 @@
+**The Ghosts of Vice-Presidential Debates Past**\
+`The face-offs between the candidates on the bottom of the ticket have produced some standout moments. Here’s a look at the most memorable exchanges.`\
+https://nytimes.com/2024/10/01/us/politics/past-vice-presidential-debates-history.html
+
 **As Iran Launches Attack, Israel’s Next Move May Determine Course of War**\
 `A look back to an exchange of strikes in April suggests one possibility for what could unfold over the coming days.`\
 https://nytimes.com/2024/10/01/world/middleeast/israel-iran-missile-attack-april.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/us/politics/vance-ohio-ira.html
 **Taylor Lorenz, Chronicler of Digital Culture, to Start Own Newsletter**\
 `Ms. Lorenz is leaving The Washington Post, where she had a tumultuous tenure.`\
 https://nytimes.com/2024/10/01/business/media/taylor-lorenz-substack-washington-post.html
-
-**Raiders' Adams addresses Pierce liking trade post about WR**\
-`"I haven't heard from (Pierce). I haven't talked to him," Adams said. "I don't really know exactly what that was about."`\
-https://nytimes.com/athletic/5809898/2024/10/01/davante-adams-antonio-pierce-raiders/
 
