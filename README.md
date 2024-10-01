@@ -1,3 +1,11 @@
+**Olivia Nuzzi, Reporter Linked to R.F.K. Jr., Accuses Ex-Fiancé of Harassment**\
+`Her former fiancé, the Politico reporter Ryan Lizza, has vehemently denied the allegation, which she filed in a court complaint and to the F.B.I.`\
+https://nytimes.com/2024/10/01/business/media/olivia-nuzzi-ryan-lizza.html
+
+**A Davante Adams-Aaron Rodgers reunion? Why the Jets are a favorite to trade for the receiver**\
+`While the Jets have other needs, they could have the draft capital it takes to make a deal.`\
+https://nytimes.com/athletic/5810613/2024/10/01/davante-adams-trade-jets-raiders-aaron-rodgers/
+
 **Laborer From Gaza Is First Reported Fatality of Iran’s Missile Attack**\
 `Sameh al-Asali, who was sheltering in the city of Jericho in the Israeli-occupied West Bank, was killed when a large missile fragment slammed into him.`\
 https://nytimes.com/2024/10/01/world/middleeast/gaza-palestinian-dead-iran-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/iran-appears-
 **Champions League Briefing: Arsenal's statement win - and why so many thrashings?**\
 `The big discussion points on the first night of the second round of Champions League group phase games`\
 https://nytimes.com/athletic/5810773/2024/10/01/champions-league-arsenal-psg-barcelona/
-
-**Ken Page, Who Starred in ‘Cats’ and Voiced Oogie Boogie, Dies**\
-`The Broadway actor had a storied career that spanned decades.`\
-https://nytimes.com/2024/10/01/arts/ken-page-dead.html
-
-**In Disjointed Speech, Trump Talks Gaza, Storm, Migrants and ‘Full Metal Jacket’**\
-`President Donald J. Trump criticized President Biden’s leadership and insisted again he would have prevented the crisis in the Middle East had he won in 2020.`\
-https://nytimes.com/2024/10/01/us/politics/trump-speech-wisconsin.html
 
