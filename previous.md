@@ -1,3 +1,15 @@
+**Inside Newcastle Q&A: Osula full debut, Almiron's absence and CEO succession planning**\
+`January transfer plans? Is Trippier back in the fold? Has there been a Bunce effect? Chris Waugh answers your questions`\
+https://nytimes.com/athletic/5805429/2024/10/01/inside-newcastle-qa-eales-almiron-trippier-osula/
+
+**Living at La Masia: Why Barcelona's youth academy is still a home to global stars**\
+`Even when players like Lamine Yamal and Pau Cubarsi break into the first team, routines at the academy don't change`\
+https://nytimes.com/athletic/5806174/2024/10/01/lamine-yamal-barcelona-la-masia-pau-cubarsi/
+
+**How Jurrien Timber fought his way back - and why his return has changed Arsenal**\
+`The young defender's return has accelerated Arsenal's evolution`\
+https://nytimes.com/athletic/5805427/2024/10/01/jurrien-timber-arsenal-back/
+
 **Tuesday Briefing: Israel Sends Troops Into Lebanon**\
 `Plus, creating fashion in prison.`\
 https://nytimes.com/2024/10/01/briefing/lebanon-israel-trump-coal-britain.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/5808472/2024/10/01/submit-a-question-for-stewart-ma
 **UK Black History Month 2024: 'Reclaiming the narratives' around Black British footballers**\
 `An introduction to The Athletic's plans for its Black History Month coverage`\
 https://nytimes.com/athletic/5805915/2024/10/01/black-history-month-uk-2024/
-
-**Reds fans gather to pay their respects to Rose: ‘Pete was Cincinnati’**\
-`Rose grew up just 7 miles from where Great American Ball Park now stands. On Monday, fans paid tribute at his statue.`\
-https://nytimes.com/athletic/5808274/2024/10/01/pete-rose-statue-reds-fans-gather/
-
-**What to Watch For in Tuesday’s Vance-Walz Debate**\
-`As the two running mates hold their first debate in New York, here is what to be on the lookout for.`\
-https://nytimes.com/2024/10/01/us/politics/vance-walz-debate-what-to-watch.html
-
-**A Fancy New Restaurant in London, Staffed by the Recently Homeless**\
-`In London’s upmarket Primrose Hill, a Michelin-starred chef is employing people on the edge of homelessness as chefs, wait staff and cocktail makers.`\
-https://nytimes.com/2024/10/01/world/europe/restaurant-london-homeless.html
 

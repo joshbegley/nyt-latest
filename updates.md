@@ -1,3 +1,15 @@
+**Inside Newcastle Q&A: Osula full debut, Almiron's absence and CEO succession planning**\
+`January transfer plans? Is Trippier back in the fold? Has there been a Bunce effect? Chris Waugh answers your questions`\
+https://nytimes.com/athletic/5805429/2024/10/01/inside-newcastle-qa-eales-almiron-trippier-osula/
+
+**Living at La Masia: Why Barcelona's youth academy is still a home to global stars**\
+`Even when players like Lamine Yamal and Pau Cubarsi break into the first team, routines at the academy don't change`\
+https://nytimes.com/athletic/5806174/2024/10/01/lamine-yamal-barcelona-la-masia-pau-cubarsi/
+
+**How Jurrien Timber fought his way back - and why his return has changed Arsenal**\
+`The young defender's return has accelerated Arsenal's evolution`\
+https://nytimes.com/athletic/5805427/2024/10/01/jurrien-timber-arsenal-back/
+
 **Tuesday Briefing: Israel Sends Troops Into Lebanon**\
 `Plus, creating fashion in prison.`\
 https://nytimes.com/2024/10/01/briefing/lebanon-israel-trump-coal-britain.html
