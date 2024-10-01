@@ -1,3 +1,7 @@
+**Odegaard left out of Norway squad for October fixtures**\
+`Arsenal midfielder Martin Odegaard has been left out of the Norway squad for their Nations League fixtures later this month.`\
+https://nytimes.com/athletic/5808827/2024/10/01/martin-odegaard-injury-latest-norway-arsenal/
+
 **The Pulse: Jared Goff's perfect game**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5807054/2024/10/01/jared-goff-lions-seahawks-the-pulse/
