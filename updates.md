@@ -1,3 +1,11 @@
+**Nottingham Forest to buy Viv Anderson's European Cup medal**\
+`Nottingham Forest have arranged a deal with Viv Anderson to buy the European Cup winner’s medal that their former player had put up for auction.`\
+https://nytimes.com/athletic/5809134/2024/10/01/viv-anderson-european-cup-medal-nottingham-forest/
+
+**Canucks 23-man roster projection 2.0: Who is a lock? Who is on the bubble?**\
+`Here's how the Canucks roster is shaping up based on what we've learned entering the final week of preseason.`\
+https://nytimes.com/athletic/5808495/2024/10/01/canucks-roster-projection/
+
 **After Warm Welcome in Asia, Pope Francis Gets a Fraught Reception in Belgium**\
 `Francis drew attacks over clergy sexual abuse, the role of women in the church and his stance on abortion, reflecting difficulties the church faces in the West.`\
 https://nytimes.com/2024/10/01/world/europe/pope-francis-catholic-church-belgium.html
