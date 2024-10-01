@@ -1,3 +1,7 @@
+**It’s Time to Make One-Pot Chicken and Rice**\
+`Put this schmaltzy, Mediterranean-ish recipe at the top of your fall cooking list.`\
+https://nytimes.com/2024/10/01/dining/one-pot-chicken-rice.html
+
 **Justin Verlander out, Yordan Alvarez in for Astros in Wild Card Series**\
 `The Verlander omission was widely anticipated. Manager Joe Espada called the conversation with him "very easy." "He is a true pro." `\
 https://nytimes.com/athletic/5809580/2024/10/01/justin-verlander-yordan-alvarez-astros-wild-card-roster/
