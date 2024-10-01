@@ -1,3 +1,11 @@
+**Thomas Friedman: ‘This Is Code Red Time in the Middle East’**\
+`The columnist weighs in on Iran’s retaliatory strike against Israel and what comes next.`\
+https://nytimes.com/2024/10/01/opinion/thomas-friedman-iran-israel.html
+
+**Iran Launches Barrage of Ballistic Missiles at Israel in Retaliation for Assassinations**\
+`The 180 missiles fired at Israel on Tuesday evening sharply escalated the conflict between two countries and threatened to engulf the Middle East in all-out war.`\
+https://nytimes.com/2024/10/01/world/middleeast/iran-ballistic-missiles-israel-assassinations.html
+
 **Hurricane Helene’s Trail of Destruction in Asheville, N.C.**\
 `Brandon Davis returned to his business in Asheville, N.C. for the first time since Hurricane Helene devastated the area several days ago.`\
 https://nytimes.com/video/world/americas/100000009734942/hurricane-helene-asheville-destruction.html
