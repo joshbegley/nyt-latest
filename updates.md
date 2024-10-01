@@ -1,3 +1,5 @@
+**Unforgettable Looks at the Venice Film Festival**\
+
 **What we've learned about the Kings so far in training camp and preseason**\
 `On Alex Laferriere's opportunities, the Kings' new 1-2-2 system, the fourth line taking shape and more.`\
 https://nytimes.com/athletic/5808608/2024/10/01/la-kings-nhl-training-camp-preseason-analysis/
