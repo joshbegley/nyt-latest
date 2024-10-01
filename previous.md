@@ -1,3 +1,7 @@
+**Israel Has Invaded Lebanon Three Times Before. Here’s a Closer Look.**\
+`In its earlier invasions, Israel said its aim was to secure its northern frontier and stop cross-border attacks, but it achieved less decisive results than military planners and political leaders intended.`\
+https://nytimes.com/2024/10/01/world/middleeast/israel-lebanon-invasions-history.html
+
 **Nottingham Forest to buy Viv Anderson's European Cup medal**\
 `Nottingham Forest have arranged a deal with Viv Anderson to buy the European Cup winner’s medal that their former player had put up for auction.`\
 https://nytimes.com/athletic/5809134/2024/10/01/viv-anderson-european-cup-medal-nottingham-forest/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/business/eurozone-inflation-ecb-rate-cut.html
 **Penguins 2024-25 season preview: Playoff chances, projected points, roster rankings**\
 `For the first time since Sidney Crosby’s rookie season, the Penguins are on the wrong side of the playoff cut line.`\
 https://nytimes.com/athletic/5790692/2024/10/01/pittsburgh-penguins-2024-25-season-preview/
-
-**How deep is Notre Dame's secondary?: Final thoughts on Louisville**\
-`Notre Dame's secondary showed off its depth against Louisville, but the Irish need to make some improvements to get into the CFP.`\
-https://nytimes.com/athletic/5808426/2024/10/01/notre-dame-football-louisville-marcus-freeman/
 
