@@ -1,3 +1,19 @@
+**We May Be Moments from a Ballistic Missile War in the Mideast**\
+`And this one could involve the United States.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/iran-attack-israel
+
+**Scoop City: Fantasy Football Week 5 Prep**\
+`Waiver wire adds, injured stars to target, trades to make and why I'm concerned about Garrett Wilson.`\
+https://nytimes.com/athletic/5809644/2024/10/01/scoop-city-fantasy-football-week-5-prep/
+
+**Mapping Israel’s Invasion of Lebanon**\
+`While details of the operation are scarce, Israel has ordered residents of many southern towns to move north.`\
+https://nytimes.com/article/israel-lebanon-invasion-map.html
+
+**After 20 years, NBC Sports Chicago goes dark, but its impact will shine forever**\
+`From parade coverage and beer-soaked locker rooms to "bigger than us" mentality, the station's run evokes warm memories and pride from crew.`\
+https://nytimes.com/athletic/5809220/2024/10/01/nbc-chicago-sports-ends-white-sox-blackhawks-bulls/
+
 **Atletico's Le Normand suffers traumatic brain injury after collision**\
 `Atletico Madrid defender Robin Le Normand suffered a traumatic brain injury following a collision of heads in Sunday&#8217;s Madrid derby.`\
 https://nytimes.com/athletic/5809575/2024/10/01/robin-le-normand-injury-atletico-madrid/
