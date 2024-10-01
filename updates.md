@@ -1,3 +1,7 @@
+**Breaking down the battle for the Blue Jackets' final roster spots**\
+`“We’re pretty set,” Blue Jackets coach Dean Evason said, but seven forwards and four defenders are still in the running for the final spots.`\
+https://nytimes.com/athletic/5807860/2024/10/01/blue-jackets-nhl-roster-spots/
+
 **UTEP expected to join Mountain West: Source**\
 `The move gives the Mountain West seven full members, one short of the NCAA’s required eight to function as a conference.`\
 https://nytimes.com/athletic/5809433/2024/10/01/utep-mountain-west-conference-realignment/
