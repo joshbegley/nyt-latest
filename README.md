@@ -1,3 +1,7 @@
+**Braves leave Chris Sale off Wild Card Series roster**\
+`Sale had a 2.38 ERA and 1.013 WHIP this season, his first with Atlanta. But Sale’s velocity dipped recently.`\
+https://nytimes.com/athletic/5810068/2024/10/01/braves-chris-sale-wild-card-roster/
+
 **Steelers planning to start Fields again vs. Cowboys**\
 `Steelers coach Mike Tomlin said he anticipates Russell Wilson will be able to begin participating in drills with a live pocket.`\
 https://nytimes.com/athletic/5809760/2024/10/01/mike-tomlin-justin-fields-start-steelers-cowboys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5809886/2024/10/01/jeremy-swayman-bruins-dumpster-f
 **What Tim Walz’s Time in Minnesota Says About How He Governs**\
 `Mr. Walz was willing to move the state swiftly to the left as soon as Democrats had an opening. He supported all but one bill that fellow Democrats approved, issuing a single veto last year.`\
 https://nytimes.com/2024/10/01/us/tim-walz-minnesota-administration.html
-
-**Mbappe could start in Champions League after thigh injury - Ancelotti**\
-`Carlo Ancelotti says Kylian Mbappe could be in contention to start for Real Madrid against Lille on Wednesday after missing the Madrid derby with a thigh injury.`\
-https://nytimes.com/athletic/5808821/2024/10/01/kylian-mbappe-real-madrid-injury-return/
 
