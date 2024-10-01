@@ -1,6 +1,14 @@
+**Live Q&A: Week 4 fantasy football add/drop chat with Jay Felicio, Tuesday 10/1 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5809971/2024/10/01/live-qa-week-4-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-1-at-5-p-m-et/
+
+**Second fan files suit over possession of Ohtani's 50th HR ball**\
+`The ball is currently listed as up for auction through Goldin Auctions, with bidding up to $1.464 million.`\
+https://nytimes.com/athletic/5810002/2024/10/01/shohei-ohtani-50-home-run-ball-second-lawsuit-update/
+
 **Inside a Trump Ad Slamming Harris Over the Push for Electric Vehicles**\
 `Scaremongering in Michigan, an ad claims that the vice president wants to “end all gas-powered cars” and that her policies would lead to “massive layoffs.”`\
-https://nytimes.com/2024/10/01/us/politics/inside-a-trump-ad-slamming-harris-over-the-push-for-electric-vehicles.html
+https://nytimes.com/2024/10/01/us/politics/trump-ad-electric-vehicles.html
 
 **Iran Fires Missile Barrage Toward Israel**\
 `The attack, which comes days after the assassination of Hezbollah’s leader, Hassan Nasrallah, marks a sharp escalation in the conflict between Israel and Iran.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/01/us/politics/biden-strike-port-longshoremen.html
 **Blue Jackets won't be required to hit NHL's salary floor by start of season**\
 `The NHL informed the club it will be allowed to be below the salary-cap floor in the wake of the Johnny and Matthew Gaudreau tragedy.`\
 https://nytimes.com/athletic/5810166/2024/10/01/blue-jackets-nhl-salary-cap-gaudreau/
-
-**College football 'Super League' outlines plans**\
-`The details feature a football-only reorganization of the 136 Football Bowl Subdivision (FBS) schools into two distinct conferences.`\
-https://nytimes.com/athletic/5809686/2024/10/01/college-football-super-league-student/
-
-**Israel Has Destroyed Half of Hezbollah’s Arsenal, U.S. and Israeli Officials Say**\
-`The Lebanese militia is seeking more weapons from Iran, the officials said. It has yet to fire large barrages at Israel, and its top ranks have been crippled by Israeli strikes.`\
-https://nytimes.com/2024/10/01/us/politics/israel-lebanon-hezbollah-airstrikes.html
 

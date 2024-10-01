@@ -1,3 +1,15 @@
+**Live Q&A: Week 4 fantasy football add/drop chat with Jay Felicio, Tuesday 10/1 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5809971/2024/10/01/live-qa-week-4-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-1-at-5-p-m-et/
+
+**Second fan files suit over possession of Ohtani's 50th HR ball**\
+`The ball is currently listed as up for auction through Goldin Auctions, with bidding up to $1.464 million.`\
+https://nytimes.com/athletic/5810002/2024/10/01/shohei-ohtani-50-home-run-ball-second-lawsuit-update/
+
+**Inside a Trump Ad Slamming Harris Over the Push for Electric Vehicles**\
+`Scaremongering in Michigan, an ad claims that the vice president wants to “end all gas-powered cars” and that her policies would lead to “massive layoffs.”`\
+https://nytimes.com/2024/10/01/us/politics/trump-ad-electric-vehicles.html
+
 **Inside a Trump Ad Slamming Harris Over the Push for Electric Vehicles**\
 `Scaremongering in Michigan, an ad claims that the vice president wants to “end all gas-powered cars” and that her policies would lead to “massive layoffs.”`\
 https://nytimes.com/2024/10/01/us/politics/inside-a-trump-ad-slamming-harris-over-the-push-for-electric-vehicles.html
