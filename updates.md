@@ -1,3 +1,7 @@
+**Biden Scrambles to Contain Economic and Political Fallout of Port Strike**\
+`The labor dispute has forced President Biden and Vice President Kamala Harris into a complicated position just weeks before the election.`\
+https://nytimes.com/2024/10/01/us/politics/biden-strike-port-longshoremen.html
+
 **Blue Jackets won't be required to hit NHL's salary floor by start of season**\
 `The NHL informed the club it will be allowed to be below the salary-cap floor in the wake of the Johnny and Matthew Gaudreau tragedy.`\
 https://nytimes.com/athletic/5810166/2024/10/01/blue-jackets-nhl-salary-cap-gaudreau/
