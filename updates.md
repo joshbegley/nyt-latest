@@ -1,3 +1,15 @@
+**Troops and military vehicles take up positions in northern Israel.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/troops-and-military-vehicles-take-up-positions-in-northern-israel
+
+**An NIL disagreement led to an early split at UNLV. Will this set a precedent?**\
+`"Not one program" has figured out how to successfully navigate NIL disputes, verbal offers and bad actors in the NIL negotiation game.`\
+https://nytimes.com/athletic/5803997/2024/10/01/college-football-nil-matt-sluka-unlv-ncaa/
+
+**SoftBank’s Masa Son Nears His Next Big Bet: OpenAI**\
+`The Japanese tech billionaire is poised to back the start-up, as part of his pledge to go on offense when it comes to investing in artificial intelligence.`\
+https://nytimes.com/2024/10/01/business/dealbook/softbank-son-openai-altman.html
+
 **How deep is Notre Dame's secondary?: Final thoughts on Louisville**\
 `Notre Dame's secondary showed off its depth against Louisville, but the Irish need to make some improvements to get into the CFP.`\
 https://nytimes.com/athletic/5808426/2024/10/01/notre-dame-football-louisville-marcus-freeman/
