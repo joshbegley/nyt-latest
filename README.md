@@ -1,3 +1,7 @@
+**2024 MLB Playoff odds: Dodgers, Yankees among World Series favorites**\
+`The LA Dodgers are in a tier of their own to win the World Series as the MLB postseason kicks into gear.`\
+https://nytimes.com/athletic/5807197/2024/09/30/2024-mlb-playoff-odds-world-series-dodgers-yankees/
+
 **The old Jordan Poole is back, and the Washington Wizards may reap the benefits**\
 `“From last year to over the summer and to now, I think Jordan is a much different person,” Wizards teammate Kyle Kuzma said.`\
 https://nytimes.com/athletic/5807729/2024/09/30/jordan-poole-washington-wizards-2/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/30/world/israel-lebanon-hezbollah/heres-are-the
 **North Carolina Officials Begin Post-Helene Election Planning**\
 `While the region hit hardest is largely rural, it holds a healthy share of the state’s nearly 7.7 million registered voters.`\
 https://nytimes.com/2024/09/30/us/helene-north-carolina-elections.html
-
-**In Booming Asheville, Residents Rethink Their Sense of Safety**\
-`Worries of flooding had not been top of mind as the mountain-ringed city flourished in recent years as a haven for artists, chefs, brewmasters, entrepreneurs and retirees.`\
-https://nytimes.com/2024/09/30/us/asheville-hurricane-helene-damage.html
 

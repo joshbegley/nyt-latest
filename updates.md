@@ -1,3 +1,7 @@
+**The old Jordan Poole is back, and the Washington Wizards may reap the benefits**\
+`“From last year to over the summer and to now, I think Jordan is a much different person,” Wizards teammate Kyle Kuzma said.`\
+https://nytimes.com/athletic/5807729/2024/09/30/jordan-poole-washington-wizards-2/
+
 **Amick: LeBron's 'tank' is far from empty, with Bronny and more keeping his motor running**\
 `The 39-year-old was dominant on the global stage this summer, which begs the question: Can he reach those heights again this season?`\
 https://nytimes.com/athletic/5807728/2024/09/30/lebron-james-bronny-lakers-media-day/

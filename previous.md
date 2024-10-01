@@ -1,3 +1,7 @@
+**The old Jordan Poole is back, and the Washington Wizards may reap the benefits**\
+`“From last year to over the summer and to now, I think Jordan is a much different person,” Wizards teammate Kyle Kuzma said.`\
+https://nytimes.com/athletic/5807729/2024/09/30/jordan-poole-washington-wizards-2/
+
 **Amick: LeBron's 'tank' is far from empty, with Bronny and more keeping his motor running**\
 `The 39-year-old was dominant on the global stage this summer, which begs the question: Can he reach those heights again this season?`\
 https://nytimes.com/athletic/5807728/2024/09/30/lebron-james-bronny-lakers-media-day/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/30/us/helene-north-carolina-elections.html
 **In Booming Asheville, Residents Rethink Their Sense of Safety**\
 `Worries of flooding had not been top of mind as the mountain-ringed city flourished in recent years as a haven for artists, chefs, brewmasters, entrepreneurs and retirees.`\
 https://nytimes.com/2024/09/30/us/asheville-hurricane-helene-damage.html
-
-**Pete Rose, Baseball Star Who Earned Glory and Shame, Dies at 83**\
-`One of the sport’s greatest players, he set a record with 4,256 career hits. But his gambling led to a lifetime ban and kept him out of the Hall of Fame.`\
-https://nytimes.com/2024/09/30/sports/baseball/pete-rose-baseball-star-who-earned-glory-and-shame-dies-at-83.html
 
