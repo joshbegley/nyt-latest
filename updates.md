@@ -1,3 +1,7 @@
+**Tracking Attacks in the Vance-Walz Debate**\
+`See how the candidates used their speaking time to discuss the issues or criticize their opponent.`\
+https://nytimes.com/interactive/2024/10/01/us/elections/vance-walz-attacks-vp-debate.html
+
 **Olivia Nuzzi, Reporter Linked to R.F.K. Jr., Accuses Ex-Fiancé of Harassment**\
 `Her former fiancé, the Politico reporter Ryan Lizza, has vehemently denied the allegation, which she filed in a court complaint and to the F.B.I.`\
 https://nytimes.com/2024/10/01/business/media/olivia-nuzzi-ryan-lizza.html

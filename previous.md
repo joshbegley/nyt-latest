@@ -1,3 +1,7 @@
+**Tracking Attacks in the Vance-Walz Debate**\
+`See how the candidates used their speaking time to discuss the issues or criticize their opponent.`\
+https://nytimes.com/interactive/2024/10/01/us/elections/vance-walz-attacks-vp-debate.html
+
 **Olivia Nuzzi, Reporter Linked to R.F.K. Jr., Accuses Ex-Fiancé of Harassment**\
 `Her former fiancé, the Politico reporter Ryan Lizza, has vehemently denied the allegation, which she filed in a court complaint and to the F.B.I.`\
 https://nytimes.com/2024/10/01/business/media/olivia-nuzzi-ryan-lizza.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000009734942/hurricane-helene-ashevi
 **Iran appears to have used its most advanced missiles in the attack on Israel.**\
 `By Riley Mellen`\
 https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/iran-appears-to-have-used-its-most-advanced-missiles-in-the-attack-on-israel
-
-**Champions League Briefing: Arsenal's statement win - and why so many thrashings?**\
-`The big discussion points on the first night of the second round of Champions League group phase games`\
-https://nytimes.com/athletic/5810773/2024/10/01/champions-league-arsenal-psg-barcelona/
 

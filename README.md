@@ -1,5 +1,5 @@
 **Tracking Attacks in the Vance-Walz Debate**\
-`See how the candidates used their speaking time to discuss the issues or criticize their opponent.`\
+`See how the vice presidential candidates used their speaking time to discuss the issues or criticize their opponent.`\
 https://nytimes.com/interactive/2024/10/01/us/elections/vance-walz-attacks-vp-debate.html
 
 **Olivia Nuzzi, Reporter Linked to R.F.K. Jr., Accuses Ex-Fiancé of Harassment**\
