@@ -1,3 +1,7 @@
+**As Iran Launches Attack, Israel’s Next Move May Determine Course of War**\
+`A look back to an exchange of strikes in April suggests one possibility for what could unfold over the coming days.`\
+https://nytimes.com/2024/10/01/world/middleeast/israel-iran-missile-attack-april.html
+
 **Man Utd win appeal against Fernandes red card**\
 `Manchester United have successfully appealed Bruno Fernandes&#8217; red card against Tottenham Hotspur on Sunday.`\
 https://nytimes.com/athletic/5805657/2024/10/01/manchester-united-appeal-bruno-fernandes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/business/media/taylor-lorenz-substack-washington-
 **Raiders' Adams addresses Pierce liking trade post about WR**\
 `"I haven't heard from (Pierce). I haven't talked to him," Adams said. "I don't really know exactly what that was about."`\
 https://nytimes.com/athletic/5809898/2024/10/01/davante-adams-antonio-pierce-raiders/
-
-**Andrew Tarlow Crosses the East River to Manhattan for Borgo**\
-`The menu for this trattoria stretches the boundaries of Italy’s boot.`\
-https://nytimes.com/2024/10/01/dining/andrew-tarlow-manhattan-restaurant-borgo.html
 
