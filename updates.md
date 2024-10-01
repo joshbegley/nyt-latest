@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spo
 `\
 https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
 
+**Anthony Rendon might not be guaranteed a roster spot in 2025: 'He hasn't been productive'**\
+`The third baseman has played just 257 out of a possible 546 games with the Angels and has not hit a home run since July 2023.
+`\
+https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
+
 **Michael King, Padres’ Game 1 starter, has come a long way from an empty Petco Park**\
 `King threw two innings of relief for the Yankees on Oct. 7, 2020 in a virtually empty Petco Park. Now he'll start Game 1 for San Diego.`\
 https://nytimes.com/athletic/5807406/2024/09/30/padres-michael-king-game-1-starter-wcs/
