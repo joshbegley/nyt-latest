@@ -1,3 +1,11 @@
+**In aftermath of Pete Rose’s death, silence from Rob Manfred and Tony Clark**\
+`It’s customary for the commissioner and union chief to issue comments when a prominent figure in baseball dies. They have not for Pete Rose.`\
+https://nytimes.com/athletic/5810427/2024/10/01/pete-rose-death-rob-manfred-tony-clark/
+
+**Diamondbacks owner says Montgomery signing was ‘biggest mistake this season’**\
+`Diamondbacks owner Ken Kendrick said it was his idea to pursue Jordan Montgomery, and that he should be blamed for how it turned out.`\
+https://nytimes.com/athletic/5810360/2024/10/01/diamondbacks-owner-jordan-montgomery-signing-mistake/
+
 **Adams Holds a News Conference, Alone and Without His Walkout Music**\
 `Mayor Eric Adams, now under federal indictment, turned his weekly news conference into a solo act, with no introductory music and no aides by his side.`\
 https://nytimes.com/2024/10/01/nyregion/eric-adams-press-conference.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/01/us/politics/trump-ad-electric-vehicles.html
 **Iran Fires Missile Barrage Toward Israel**\
 `The attack, which comes days after the assassination of Hezbollah’s leader, Hassan Nasrallah, marks a sharp escalation in the conflict between Israel and Iran.`\
 https://nytimes.com/video/world/middleeast/100000009734088/israel-iran-missile-attack.html
-
-**A 64-Year-Old Literary Agent and TikTok Star Adds ‘Novelist’ to Her Résumé**\
-`Betsy Lerner has spent decades in the publishing industry. Writing her first novel, “Shred Sisters,” unlocked a completely new side to her creativity.`\
-https://nytimes.com/2024/10/01/books/betsy-lerner-shred-sisters.html
-
-**Bayern Munich set for late Kane fitness call before Aston Villa tie**\
-`Bayern Munich are set to make a late decision on the availability of striker Harry Kane before Wednesday&#8217;s Champions League tie against Aston Villa.`\
-https://nytimes.com/athletic/5810259/2024/10/01/harry-kane-bayern-munich-injury-update/
 
