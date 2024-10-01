@@ -1,3 +1,11 @@
+**Rancher Gets 6 Months in Prison for Scheme to Create Giant Sheep Hybrid**\
+`Prosecutors said the Montanan illegally used tissue from a sheep from Central Asia and the testicles from a bighorn sheep to make large hybrids that he could sell at premium prices.`\
+https://nytimes.com/2024/09/30/us/montana-man-giant-sheep-sentence.html
+
+**Bucks have their eye on health, continuity in Year 2 of Giannis-Dame pairing**\
+`After a tumultuous season, the Bucks are taking training camp to the West Coast to build continuity and camaraderie.`\
+https://nytimes.com/athletic/5806683/2024/09/30/milwaukee-bucks-media-day-giannis-lillard/
+
 **Robert Downey Jr. Is a Novelist With a Novel Muse in ‘McNeal’**\
 `The “Oppenheimer” star makes his Broadway debut in Ayad Akhtar’s timely new play about a literary lion who gets assistance from A.I.`\
 https://nytimes.com/2024/09/30/theater/mcneal-review-ai-robert-downey-jr.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/30/us/newsom-california-bill-politics.html
 **Titans QB Levis (shoulder) replaced by Mason Rudolph vs. Dolphins**\
 `Levis hurt himself early in the first quarter while diving for the first-down marker on third down.`\
 https://nytimes.com/athletic/5807550/2024/09/30/titans-dolphins-score-results-takeaways/
-
-**Padres vs. Braves Wild Card Series preview: Predictions, pitching matchups and more**\
-`The Padres probably have the best pitching staff in the postseason. The Braves probably have the best pitcher in this series, if he can go. `\
-https://nytimes.com/athletic/5806710/2024/09/30/padres-braves-2024-wild-card-series-preview-predictions/
-
-**Adams Confidant Steps Down Amid Federal Corruption Investigations**\
-`Few people in city government were closer to Mayor Eric Adams than Timothy Pearson, who had a role in handling migrant shelter contracts.`\
-https://nytimes.com/2024/09/30/nyregion/tim-pearson-resigns-adams.html
 
