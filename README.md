@@ -1,3 +1,7 @@
+**For East Coast Wine Importers, the Port Workers Strike Brings Fear and Uncertainty**\
+`The strike, disrupting shipments along the East and Gulf Coasts, comes as the wine industry tries to make up its sales after a downturn.`\
+https://nytimes.com/2024/10/01/dining/drinks/port-strike-wine-importers.html
+
 **2024 NFL MVP odds: Can Lamar Jackson and Sam Darnold close gap on Patrick Mahomes and Josh Allen?**\
 `Tracking risers and fallers in the NFL awards races; Mahomes and Allen form an elite tier while Jackson starts closing the gap to win MVP.`\
 https://nytimes.com/athletic/5809459/2024/10/01/2024-nfl-mvp-odds-mahomes-allen-jackson-darnold/
@@ -8,7 +12,7 @@ https://nytimes.com/2024/10/01/arts/television/october-streaming-movies-televisi
 
 **The Best Movies and TV Shows Coming to Netflix in October**\
 `Keri Russell is back and so is Ali Wong. Here’s a roundup of what’s worth checking out for U.S. subscribers this month.`\
-https://nytimes.com/2024/10/01/arts/television/netflix-best-new-movies-tv-shows-october.html
+https://nytimes.com/2024/10/01/arts/television/new-netflix-movies-shows-october.html
 
 **6 of ‘The Greatest’ Songs**\
 `Hear superlative tracks from Billie Eilish, Kenny Rogers and Alabama Shakes.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5809315/2024/10/01/mlb-free-agents-value-playoffs/
 **Donna Henes,‘Urban Shaman’ Who Hailed the Seasons, Dies at 79**\
 `Her solstice and equinox celebrations might involve an egg-balancing ritual and bonfires, all to remind modern New Yorkers of their humble place in the cosmos.`\
 https://nytimes.com/2024/10/01/nyregion/donna-henes-dead.html
-
-**Seahawks sign OT Jason Peters**\
-`Peters, 42, appeared in eight games for the Seahawks last season, including two starts.`\
-https://nytimes.com/athletic/5809967/2024/10/01/jason-peters-sign-seahawks-nfl/
 
