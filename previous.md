@@ -1,3 +1,11 @@
+**The Pulse: Jared Goff's perfect game**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5807054/2024/10/01/jared-goff-lions-seahawks-the-pulse/
+
+**Iran’s Tepid Response (So Far)**\
+`We explore why Tehran has responded so meekly to recent attacks on its top officials and close allies.`\
+https://nytimes.com/2024/10/01/briefing/iran-israel-hezbollah-middle-east.html
+
 **What's ahead for Twins' Carlos Correa, Byron Buxton and Chris Paddack in offseason?**\
 `Checking in on three Twins players and some of what they're focused on as they head into the offseason. `\
 https://nytimes.com/athletic/5807664/2024/10/01/twins-offseason-correa-buxton-paddack/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5807905/2024/10/01/bruins-swayman-lewis-gross-busin
 **Packers' penalty problem, Xavier McKinney's fast start and more from loss to Vikings**\
 `The Packers are tied for third in the NFL in penalties against with 34 through four games.`\
 https://nytimes.com/athletic/5807160/2024/10/01/packers-penalties-mckinney-vikings/
-
-**What to expect from The Athletic Hockey Show this season**\
-`The Athletic Hockey Show is back with a revamped lineup and some new voices.`\
-https://nytimes.com/athletic/5794008/2024/10/01/the-athletic-hockey-show-2024/
-
-**What I'm seeing from the New York Jets: Seven concerns that could derail the season**\
-`From two slow-starting offensive stars, to questions on the defensive line, to a kicker who might be slumping.`\
-https://nytimes.com/athletic/5807253/2024/10/01/new-york-jets-quarter-season-status-report/
 
