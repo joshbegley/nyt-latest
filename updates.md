@@ -1,3 +1,11 @@
+**In aftermath of Pete Rose’s death, silence from Rob Manfred and Tony Clark**\
+`It’s customary for the commissioner and union chief to issue comments when a prominent figure in baseball dies. They have not for Pete Rose.`\
+https://nytimes.com/athletic/5810427/2024/10/01/pete-rose-death-rob-manfred-tony-clark/
+
+**Diamondbacks owner says Montgomery signing was ‘biggest mistake this season’**\
+`Diamondbacks owner Ken Kendrick said it was his idea to pursue Jordan Montgomery, and that he should be blamed for how it turned out.`\
+https://nytimes.com/athletic/5810360/2024/10/01/diamondbacks-owner-jordan-montgomery-signing-mistake/
+
 **Adams Holds a News Conference, Alone and Without His Walkout Music**\
 `Mayor Eric Adams, now under federal indictment, turned his weekly news conference into a solo act, with no introductory music and no aides by his side.`\
 https://nytimes.com/2024/10/01/nyregion/eric-adams-press-conference.html
