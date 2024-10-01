@@ -1,3 +1,7 @@
+**Until Saturday: Realignment never stops, plus our first Heisman straw poll of 2024**\
+`Welcome to Until Saturday, the five-star college football newsletter: What's the latest for Pac-12, Mountain West Conference realignment?`\
+https://nytimes.com/athletic/5809714/2024/10/01/gonzaga-pac-12-utep-mountain-west-heisman-until-saturday/
+
 **Live Q&A: Week 4 fantasy football add/drop chat with Jay Felicio, Tuesday 10/1 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5809971/2024/10/01/live-qa-week-4-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-1-at-5-p-m-et/
