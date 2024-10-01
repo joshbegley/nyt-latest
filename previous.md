@@ -1,3 +1,19 @@
+**School Bus Blaze in Thailand Kills at Least 23**\
+`The vehicle was returning from a field trip and caught fire outside Bangkok. Rescuers were still searching for bodies in the wreckage.`\
+https://nytimes.com/2024/10/01/world/asia/thailand-school-bus-fire.html
+
+**Houston Dash parts ways with head coach Alonso**\
+`Alonso joined Houston ahead of the 2024 season but was absent for much of the season.`\
+https://nytimes.com/athletic/5461734/2024/10/01/houston-dash-fran-alonso-nwsl/
+
+**Germany Arrests Woman Accused of Sharing Arms Export Data With China**\
+`The woman, who worked at an airport that is one of Europe’s largest cargo hubs, is accused of passing along “flights, freight and passengers” related to arms exports.`\
+https://nytimes.com/2024/10/01/world/europe/germany-china-arrest-spying.html
+
+**Schoolchildren Are Among Many Dead in Bangkok Bus Inferno**\
+`The authorities believe the fire occurred after a tire exploded, causing the bus — which was filled with children and schoolteachers — to lose control and hit a barrier.`\
+https://nytimes.com/video/world/asia/100000009733334/schoolchildren-are-among-many-dead-in-bangkok-bus-inferno.html
+
 **Musical Comedy ‘Operation Mincemeat’ to Open on Broadway Next Spring**\
 `The show is about a real World War II episode in which British intelligence planted disinformation on a dead body to fool the Germans.`\
 https://nytimes.com/2024/10/01/theater/operation-mincemeat-broadway.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/01/world/europe/rugby-league-uk-keighley-cougars-gay
 **The MLB playoffs' TV ratings potential, and the league's murky media future**\
 `Our sports media writers, Richard Deitsch and Andrew Marchand, discuss some of the big MLB media storylines as the 2024 playoffs arrive.`\
 https://nytimes.com/athletic/5799666/2024/10/01/mlb-playoffs-media-tv-ratings-streaming-future/
-
-**Biden to Sign Bill Allowing Chip Projects to Skirt Key Environmental Review**\
-`The legislation, which would weaken federal environmental reviews for certain semiconductor manufacturing projects, has divided Democrats.`\
-https://nytimes.com/2024/10/01/us/politics/biden-semiconductor-environmental-review.html
-
-**Pelicans media day: Brandon Ingram's awkward situation, Zion Williamson's position**\
-`How often can the Pelicans get away with playing without a true center?`\
-https://nytimes.com/athletic/5808759/2024/10/01/pelicans-media-brandon-ingram-zion-williamson/
-
-**What to Know About JD Vance and Project 2025**\
-`JD Vance has repeatedly tried to distance himself from the project, a conservative policy blueprint for a future Republican administration that has outraged Democrats.`\
-https://nytimes.com/2024/10/01/us/politics/jd-vance-project-2025.html
-
-**Lakers coach JJ Redick is impressing players early, plus 4 more training camp storylines**\
-`Through conversations and interactions, the new Lakers coach has made an impact. Plus, a refreshed LeBron and D'Angelo Russell's apology.`\
-https://nytimes.com/athletic/5807902/2024/10/01/lakers-jj-redick-training-camp/
 
