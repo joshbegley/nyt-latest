@@ -1,3 +1,23 @@
+**Iran Fires Missile Barrage Toward Israel**\
+`The attack, which comes days after the assassination of Hezbollah’s leader, Hassan Nasrallah, marks a sharp escalation in the conflict between Israel and Iran.`\
+https://nytimes.com/video/world/middleeast/100000009734088/israel-iran-missile-attack.html
+
+**A 64-Year-Old Literary Agent and TikTok Star Adds ‘Novelist’ to Her Résumé**\
+`Betsy Lerner has spent decades in the publishing industry. Writing her first novel, “Shred Sisters,” unlocked a completely new side to her creativity.`\
+https://nytimes.com/2024/10/01/books/betsy-lerner-shred-sisters.html
+
+**Bayern Munich set for late Kane fitness call before Aston Villa tie**\
+`Bayern Munich are set to make a late decision on the availability of striker Harry Kane before Wednesday&#8217;s Champions League tie against Aston Villa.`\
+https://nytimes.com/athletic/5810259/2024/10/01/harry-kane-bayern-munich-injury-update/
+
+**Becoming Jack Nicholson**\
+`In his latest feat of prosthetic fun, the performance artist Alexis Stone transformed himself into the actor at the Balenciaga fashion show in Paris.`\
+https://nytimes.com/2024/10/01/style/alexis-stone-jack-nicholson-balenciaga-paris.html
+
+**Noah Gragson on growing up in Vegas and his College Football 25 skills: 12 Questions**\
+`Each week, The Athletic asks the same 12 questions to a different race car driver.`\
+https://nytimes.com/athletic/5801273/2024/10/01/noah-gragson-noah-gragson-college-football-25-12-questions/
+
 **Biden Scrambles to Contain Economic and Political Fallout of Port Strike**\
 `The labor dispute has forced President Biden and Vice President Kamala Harris into a complicated position just weeks before the election.`\
 https://nytimes.com/2024/10/01/us/politics/biden-strike-port-longshoremen.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/01/us/politics/israel-lebanon-hezbollah-airstrikes.h
 **Pras Sues Lauryn Hill Over Canceled Fugees Tour, Alleging Fraud**\
 `Ms. Hill was accused of deceiving the other group members about tour finances. She called the lawsuit “baseless” and “full of false claims.”`\
 https://nytimes.com/2024/10/01/arts/music/pras-lauryn-hill-fugees-lawsuit.html
-
-**‘Climate Havens’ Don’t Exist**\
-`The worst damage from Hurricane Helene came in areas that were expected to be relatively immune to the effects of climate change.`\
-https://nytimes.com/2024/10/01/climate/asheville-climate-change-flood.html
-
-**Ex-Jags employee who stole $22M sues FanDuel**\
-`Amit Patel alleged in the complaint that FanDuel engaged in predatory practices to entice him to make deposits and wagers.`\
-https://nytimes.com/athletic/5809925/2024/10/01/jaguars-lawsuit-fanduel-amit-patel/
-
-**For East Coast Wine Importers, the Port Workers Strike Brings Fear and Uncertainty**\
-`The strike, disrupting shipments along the East and Gulf Coasts, comes as the wine industry tries to make up its sales after a downturn.`\
-https://nytimes.com/2024/10/01/dining/drinks/port-strike-wine-importers.html
-
-**2024 NFL MVP odds: Can Lamar Jackson and Sam Darnold close gap on Patrick Mahomes and Josh Allen?**\
-`Tracking risers and fallers in the NFL awards races; Mahomes and Allen form an elite tier while Jackson starts closing the gap to win MVP.`\
-https://nytimes.com/athletic/5809459/2024/10/01/2024-nfl-mvp-odds-mahomes-allen-jackson-darnold/
-
-**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in October**\
-`“Citadel: Diana,” “Disclaimer,” “The Franchise,” “Star Trek: Lower Decks,” a Springsteen documentary and others arrive.`\
-https://nytimes.com/2024/10/01/arts/television/october-streaming-movies-shows.html
 

@@ -1,3 +1,23 @@
+**Iran Fires Missile Barrage Toward Israel**\
+`The attack, which comes days after the assassination of Hezbollah’s leader, Hassan Nasrallah, marks a sharp escalation in the conflict between Israel and Iran.`\
+https://nytimes.com/video/world/middleeast/100000009734088/israel-iran-missile-attack.html
+
+**A 64-Year-Old Literary Agent and TikTok Star Adds ‘Novelist’ to Her Résumé**\
+`Betsy Lerner has spent decades in the publishing industry. Writing her first novel, “Shred Sisters,” unlocked a completely new side to her creativity.`\
+https://nytimes.com/2024/10/01/books/betsy-lerner-shred-sisters.html
+
+**Bayern Munich set for late Kane fitness call before Aston Villa tie**\
+`Bayern Munich are set to make a late decision on the availability of striker Harry Kane before Wednesday&#8217;s Champions League tie against Aston Villa.`\
+https://nytimes.com/athletic/5810259/2024/10/01/harry-kane-bayern-munich-injury-update/
+
+**Becoming Jack Nicholson**\
+`In his latest feat of prosthetic fun, the performance artist Alexis Stone transformed himself into the actor at the Balenciaga fashion show in Paris.`\
+https://nytimes.com/2024/10/01/style/alexis-stone-jack-nicholson-balenciaga-paris.html
+
+**Noah Gragson on growing up in Vegas and his College Football 25 skills: 12 Questions**\
+`Each week, The Athletic asks the same 12 questions to a different race car driver.`\
+https://nytimes.com/athletic/5801273/2024/10/01/noah-gragson-noah-gragson-college-football-25-12-questions/
+
 **Biden Scrambles to Contain Economic and Political Fallout of Port Strike**\
 `The labor dispute has forced President Biden and Vice President Kamala Harris into a complicated position just weeks before the election.`\
 https://nytimes.com/2024/10/01/us/politics/biden-strike-port-longshoremen.html
