@@ -1,3 +1,7 @@
+**Fantasy basketball 2024-25 draft cheat sheet: Top 150 players for Roto, head-to-head and points leagues**\
+`Eric Wong offers up his fantasy basketball 2024-25 Top 150 player rankings for Roto, head-to-head and points-based leagues.`\
+https://nytimes.com/athletic/5808580/2024/10/01/fantasy-basketball-draft-player-rankings-cheatsheet-2024-25/
+
 **Word of the Day: abdicate**\
 `This word has appeared in 23 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/01/learning/word-of-the-day-abdicate.html
