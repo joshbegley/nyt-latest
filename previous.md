@@ -1,3 +1,7 @@
+**Krawczynski: Karl-Anthony Towns' impact in Minnesota goes much deeper than basketball**\
+`Towns and the Timberwolves were able to stay together for as long as they did while enduring so much strife along the way.`\
+https://nytimes.com/athletic/5802060/2024/10/01/karl-anthony-towns-impact-timberwolves-trade/
+
 **Why Spurs' Chris Paul and Gregg Popovich are a perfect match in San Antonio**\
 `"I never stop learning," says Paul. "I’m excited to hear Pop’s way of doing things." `\
 https://nytimes.com/athletic/5807594/2024/10/01/spurs-chris-paul-gregg-popovich-relationship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5807253/2024/10/01/new-york-jets-quarter-season-sta
 **Brewers manager Pat Murphy's hard-earned lessons fuel his team's success**\
 `Murphy's journey has been one of twists and turns, yet they got him to this point. Says Murphy: “I can tell you a horrible memory."`\
 https://nytimes.com/athletic/5807260/2024/10/01/pat-murphy-brewers-manager-painful-lessons/
-
-**Bill DeWitt Jr., John Mozeliak address Cardinals' transition period: 'It's not an excuse'**\
-`The first step of this overhaul is to get the Cardinals back to where they once thrived: developing homegrown talent.`\
-https://nytimes.com/athletic/5807100/2024/10/01/cardinals-front-office-changes/
 
