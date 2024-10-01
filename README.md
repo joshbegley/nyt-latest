@@ -1,3 +1,7 @@
+**Odegaard left out of Norway squad for October fixtures**\
+`Arsenal midfielder Martin Odegaard has been left out of the Norway squad for their Nations League fixtures later this month.`\
+https://nytimes.com/athletic/5808827/2024/10/01/martin-odegaard-injury-latest-norway-arsenal/
+
 **The Pulse: Jared Goff's perfect game**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5807054/2024/10/01/jared-goff-lions-seahawks-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5807492/2024/10/01/vikings-packers-undefeated-susta
 **Shinzawa: The Bruins-Jeremy Swayman talks have gone sideways. It’s just business**\
 `Both sides of the stalemate are pulling out all the stops in attempt to get their desired outcome.`\
 https://nytimes.com/athletic/5807905/2024/10/01/bruins-swayman-lewis-gross-business/
-
-**Packers' penalty problem, Xavier McKinney's fast start and more from loss to Vikings**\
-`The Packers are tied for third in the NFL in penalties against with 34 through four games.`\
-https://nytimes.com/athletic/5807160/2024/10/01/packers-penalties-mckinney-vikings/
 
