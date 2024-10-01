@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5807830/2024/09/30/qa-fay-vincent-pete-rose-betting
 https://nytimes.com/2024/09/30/opinion/jan6-reffitt-fatherland.html
 
 **Scenes from a Mets' celebration: 'This is the standard'**\
-`The Mets savored a long-awaited celebration after what one player called 'The best I've ever played in.'`\
+`The Mets savored a long-awaited celebration after what one player called "the best (game) I've ever played in."`\
 https://nytimes.com/athletic/5807960/2024/09/30/mets-wild-card-celebration-analysis/
 
 **Rancher Gets 6 Months in Prison for Scheme to Create Giant Sheep Hybrid**\
