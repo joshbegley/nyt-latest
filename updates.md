@@ -1,3 +1,19 @@
+**6 of ‘The Greatest’ Songs**\
+`Hear superlative tracks from Billie Eilish, Kenny Rogers and Alabama Shakes.`\
+https://nytimes.com/2024/10/01/arts/music/amplifier-newsletter-billie-eilish-greatest.html
+
+**All the Makeup Brushes You Actually Need — and How to Clean Them**\
+`From a hard-working powder brush to a simple spoolie, these are the tools the professionals recommend.`\
+https://nytimes.com/article/makeup-brush-guide.html
+
+**Braves leave Chris Sale off Wild Card Series roster**\
+`Sale had a 2.38 ERA and 1.013 WHIP this season, his first with Atlanta. But Sale’s velocity dipped recently.`\
+https://nytimes.com/athletic/5810068/2024/10/01/braves-chris-sale-wild-card-roster/
+
+**Eleven impending MLB free agents with the most at stake in the playoffs**\
+`Every impending free agent wants to perform well in the postseason, but these 11, starting with Juan Soto, arguably have the most at stake.`\
+https://nytimes.com/athletic/5809315/2024/10/01/mlb-free-agents-value-playoffs/
+
 **Steelers planning to start Fields again vs. Cowboys**\
 `Steelers coach Mike Tomlin said he anticipates Russell Wilson will be able to begin participating in drills with a live pocket.`\
 https://nytimes.com/athletic/5809760/2024/10/01/mike-tomlin-justin-fields-start-steelers-cowboys/
