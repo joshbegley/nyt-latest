@@ -1,3 +1,7 @@
+**Jannik Sinner's doping case explained: What WADA appeal means and what is at stake for tennis**\
+`The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
+https://nytimes.com/athletic/5806315/2024/10/01/jannik-sinner-doping-case-explained-what-wada-appeal-means-for-tennis/
+
 **Broncos S Brandon Jones evolves from 'a little bit of unknown' to making impact felt**\
 `Jones missed nearly all of training camp with a hamstring injury, but that hasn't kept him from being a turnover magnet early this season.`\
 https://nytimes.com/athletic/5804801/2024/10/01/broncos-brandon-jones-safety/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5802060/2024/10/01/karl-anthony-towns-impact-timber
 **Why Spurs' Chris Paul and Gregg Popovich are a perfect match in San Antonio**\
 `"I never stop learning," says Paul. "I’m excited to hear Pop’s way of doing things." `\
 https://nytimes.com/athletic/5807594/2024/10/01/spurs-chris-paul-gregg-popovich-relationship/
-
-**Rookie punter Tory Taylor showing why the Bears wanted him and his bag of tricks**\
-`Taylor had his best game of the season in the Bears' 24-18 win against the Los Angeles Rams.`\
-https://nytimes.com/athletic/5807301/2024/10/01/bears-punter-tory-taylor/
 
