@@ -1,3 +1,7 @@
+**What comes next in the Jeremy Swayman vs. Bruins dumpster fire? It all depends on his interpretation**\
+`Swayman is confident, competitive, temperamental — and sensitive. How he sees the Bruins' actions will determine the stalemate's conclusion.`\
+https://nytimes.com/athletic/5809886/2024/10/01/jeremy-swayman-bruins-dumpster-fire/
+
 **What Tim Walz’s Time in Minnesota Says About How He Governs**\
 `Mr. Walz was willing to move the state swiftly to the left as soon as Democrats had an opening. He supported all but one bill that fellow Democrats approved, issuing a single veto last year.`\
 https://nytimes.com/2024/10/01/us/tim-walz-minnesota-administration.html
