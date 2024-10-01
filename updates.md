@@ -23,6 +23,11 @@ https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spo
 `\
 https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
 
+**Anthony Rendon might not be guaranteed a roster spot in 2025: 'He hasn't been productive'**\
+`The third baseman has played just 257 out of a possible 546 games with the Angels and has not hit a home run since July 2023.
+`\
+https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
+
 **Buster Posey takes reins in Giants front office, enthusiasm abounds: 'I'm sure he will excel'**\
 `Posey brings a unique background: "He's a person who can understand the ins and outs, the analytics and different ways to view the game."`\
 https://nytimes.com/athletic/5808143/2024/09/30/buster-posey-sf-giants-president-baseball-operations/
