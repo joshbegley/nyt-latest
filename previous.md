@@ -1,3 +1,15 @@
+**Meet the Moderators: Margaret Brennan and Norah O’Donnell of CBS News**\
+`A pair of veteran news anchors will steer the vice-presidential matchup on Tuesday between JD Vance and Tim Walz.`\
+https://nytimes.com/2024/10/01/business/media/cbs-debate-moderators-margaret-brennan-norah-odonnell.html
+
+**Conditions at Georgia Prisons Violate Constitution, Justice Dept. Says**\
+`At one facility, the body of an inmate, possibly strangled in his cell, was so decomposed that the coroner concluded he had been dead for two days without being discovered.`\
+https://nytimes.com/2024/10/01/us/politics/georgia-prison-conditions-unsafe.html
+
+**In Congress, Republicans Urge Israel to Strike Back Hard at Iran**\
+`Republican leaders called for more U.S. military support for Israel and retaliation against Iran, as Democratic leaders promised to watch and wait as the situation rapidly deteriorated in the Middle East.`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/in-congress-republicans-urge-israel-to-strike-back-hard-at-iran
+
 **Tracking Attacks in the Vance-Walz Debate**\
 `See how the vice presidential candidates used their speaking time to discuss the issues or criticize their opponent.`\
 https://nytimes.com/interactive/2024/10/01/us/elections/vance-walz-attacks-vp-debate.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/01/us/politics/walz-vance-vp-debate-importance.html
 **Thomas Friedman: ‘This Is Code Red Time in the Middle East’**\
 `The columnist weighs in on Iran’s retaliatory strike against Israel and what comes next.`\
 https://nytimes.com/2024/10/01/opinion/thomas-friedman-iran-israel.html
-
-**Iran Launches Barrage of Ballistic Missiles at Israel in Retaliation for Assassinations**\
-`The 180 missiles fired at Israel on Tuesday evening sharply escalated the conflict between two countries and threatened to engulf the Middle East in all-out war.`\
-https://nytimes.com/2024/10/01/world/middleeast/iran-ballistic-missiles-israel-assassinations.html
-
-**Hurricane Helene’s Trail of Destruction in Asheville, N.C.**\
-`Brandon Davis returned to his business in Asheville, N.C. for the first time since Hurricane Helene devastated the area several days ago.`\
-https://nytimes.com/video/world/americas/100000009734942/hurricane-helene-asheville-destruction.html
-
-**Iran appears to have used its most advanced missiles in the attack on Israel.**\
-`By Riley Mellen`\
-https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/iran-appears-to-have-used-its-most-advanced-missiles-in-the-attack-on-israel
 

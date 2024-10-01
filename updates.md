@@ -1,3 +1,15 @@
+**Meet the Moderators: Margaret Brennan and Norah O’Donnell of CBS News**\
+`A pair of veteran news anchors will steer the vice-presidential matchup on Tuesday between JD Vance and Tim Walz.`\
+https://nytimes.com/2024/10/01/business/media/cbs-debate-moderators-margaret-brennan-norah-odonnell.html
+
+**Conditions at Georgia Prisons Violate Constitution, Justice Dept. Says**\
+`At one facility, the body of an inmate, possibly strangled in his cell, was so decomposed that the coroner concluded he had been dead for two days without being discovered.`\
+https://nytimes.com/2024/10/01/us/politics/georgia-prison-conditions-unsafe.html
+
+**In Congress, Republicans Urge Israel to Strike Back Hard at Iran**\
+`Republican leaders called for more U.S. military support for Israel and retaliation against Iran, as Democratic leaders promised to watch and wait as the situation rapidly deteriorated in the Middle East.`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/in-congress-republicans-urge-israel-to-strike-back-hard-at-iran
+
 **Tracking Attacks in the Vance-Walz Debate**\
 `See how the vice presidential candidates used their speaking time to discuss the issues or criticize their opponent.`\
 https://nytimes.com/interactive/2024/10/01/us/elections/vance-walz-attacks-vp-debate.html
