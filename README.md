@@ -1,3 +1,11 @@
+**Eurozone Inflation Slows to 1.8%, Bolstering Bets on Faster Rate Cuts**\
+`Investors now expect the European Central Bank to lower interest rates at its next meeting in October.`\
+https://nytimes.com/2024/10/01/business/eurozone-inflation-ecb-rate-cut.html
+
+**Penguins 2024-25 season preview: Playoff chances, projected points, roster rankings**\
+`For the first time since Sidney Crosby’s rookie season, the Penguins are on the wrong side of the playoff cut line.`\
+https://nytimes.com/athletic/5790692/2024/10/01/pittsburgh-penguins-2024-25-season-preview/
+
 **How can Notre Dame get in Playoff, how deep is Irish secondary?: Final thoughts on Louisville**\
 `Notre Dame's secondary showed off its depth against Louisville, but the Irish need to make some improvements to get into the CFP.`\
 https://nytimes.com/athletic/5808426/2024/10/01/notre-dame-football-louisville-marcus-freeman/
