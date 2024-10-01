@@ -1,3 +1,15 @@
+**Tuesday Briefing: Israel Sends Troops Into Lebanon**\
+`Plus, creating fashion in prison.`\
+https://nytimes.com/2024/10/01/briefing/lebanon-israel-trump-coal-britain.html
+
+**London has several major football clubs. Why does Paris only have one?**\
+`There are many reasons why London watches more football than Paris - but it's largely down to wildly varying levels of interest in the sport`\
+https://nytimes.com/athletic/5805559/2024/10/01/london-paris-football-clubs-comparison/
+
+**Trossard and a ludicrous red-card loophole that should be closed**\
+`Belgian's winner against Leicester exposed the folly of the rules around when suspensions are served in England`\
+https://nytimes.com/athletic/5805814/2024/10/01/leandro-trossard-red-card-loophole/
+
 **How important is matchday revenue to Premier League clubs?**\
 `Match-going fans have seen prices rise at all but one Premier League club this season - and that trend is unlikely to end any time soon`\
 https://nytimes.com/athletic/5776720/2024/10/01/premier-league-tickets-match-day-revenue/
