@@ -1,3 +1,7 @@
+**Ex-Jags employee who stole $22M sues FanDuel**\
+`Amit Patel alleged in the complaint that FanDuel engaged in predatory practices to entice him to make deposits and wagers.`\
+https://nytimes.com/athletic/5809925/2024/10/01/jaguars-lawsuit-fanduel-amit-patel/
+
 **For East Coast Wine Importers, the Port Workers Strike Brings Fear and Uncertainty**\
 `The strike, disrupting shipments along the East and Gulf Coasts, comes as the wine industry tries to make up its sales after a downturn.`\
 https://nytimes.com/2024/10/01/dining/drinks/port-strike-wine-importers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5809760/2024/10/01/mike-tomlin-justin-fields-start-
 **Eleven impending MLB free agents with the most at stake in the playoffs**\
 `Every impending free agent wants to perform well in the postseason, but these 11, starting with Juan Soto, arguably have the most at stake.`\
 https://nytimes.com/athletic/5809315/2024/10/01/mlb-free-agents-value-playoffs/
-
-**Donna Henes,‘Urban Shaman’ Who Hailed the Seasons, Dies at 79**\
-`Her solstice and equinox celebrations might involve an egg-balancing ritual and bonfires, all to remind modern New Yorkers of their humble place in the cosmos.`\
-https://nytimes.com/2024/10/01/nyregion/donna-henes-dead.html
 
