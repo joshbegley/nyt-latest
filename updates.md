@@ -1,3 +1,15 @@
+**PGA Tour's Monahan, LIV's Al-Rumayyan playing pro-am together**\
+`Monahan and Al-Rumayyan will also each play a round with Rory McIlroy, the most vocal PGA Tour player for unification.`\
+https://nytimes.com/athletic/5810690/2024/10/01/pga-tour-monahan-liv-yasir-al-rumayyan-dunhill-golf/
+
+**Bills All-22: The running game is still strong, receiver separation is a concern**\
+`Things were bad against the Ravens, but maybe not as bad as they looked.`\
+https://nytimes.com/athletic/5810389/2024/10/01/bills-all-22-ravens-james-cook-josh-allen/
+
+**As Plant Sales Move Online, the Sill Closes Its Last Retail Store**\
+`A trendy company that embraced the plant craze of a decade ago has evolved to fill the needs of a changing demographic.`\
+https://nytimes.com/2024/10/01/style/the-sill-plants-closing-stores.html
+
 **15-Year-Old Is Charged With Murder in Fatal Shooting of Chicago Postal Worker**\
 `The authorities said that the teenager was found and arrested in Iowa on Monday. The police say he shot a postal worker on Chicago’s South Side several times in July.`\
 https://nytimes.com/2024/10/01/us/postal-worker-shooting-arrest-teen.html

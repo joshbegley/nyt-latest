@@ -1,3 +1,7 @@
+**Jackson Jr. injures hamstring in Grizzlies' first practice**\
+`After a 2023-24 season marred by injuries to key players, the Grizzlies must absorb another loss to begin the 2024-25 campaign.`\
+https://nytimes.com/athletic/5810551/2024/10/01/jaren-jackson-injury-grizzlies-hamstring/
+
 **PGA Tour's Monahan, LIV's Al-Rumayyan playing pro-am together**\
 `Monahan and Al-Rumayyan will also each play a round with Rory McIlroy, the most vocal PGA Tour player for unification.`\
 https://nytimes.com/athletic/5810690/2024/10/01/pga-tour-monahan-liv-yasir-al-rumayyan-dunhill-golf/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/arts/frank-fritz-dead.html
 **U.S. Destroyers Helped Israel Intercept Iran’s Missiles, Biden Says**\
 `A Pentagon spokesman added that the Americans had launched a dozen interceptors against the Iranian missiles and that none of the 40,000 U.S. troops in the region were hurt in the attacks.`\
 https://nytimes.com/2024/10/01/world/middleeast/us-destroyers-israel-iran-missiles.html
-
-**Borussia Dortmund could face action for 'UEFA Mafia' banner**\
-`Borussia Dortmund are likely to face sanctions after displaying a banner reading &#8220;UEFA Mafia&#8221; before Tuesday&#8217;s Champions League tie with Celtic.`\
-https://nytimes.com/athletic/5810503/2024/10/01/dortmund-uefa-mafia-banner/
 
