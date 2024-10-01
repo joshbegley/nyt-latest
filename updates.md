@@ -1,3 +1,19 @@
+**Blue Jackets won't be required to hit NHL's salary floor by start of season**\
+`The NHL informed the club it will be allowed to be below the salary-cap floor in the wake of the Johnny and Matthew Gaudreau tragedy.`\
+https://nytimes.com/athletic/5810166/2024/10/01/blue-jackets-nhl-salary-cap-gaudreau/
+
+**College football 'Super League' outlines plans**\
+`The details feature a football-only reorganization of the 136 Football Bowl Subdivision (FBS) schools into two distinct conferences.`\
+https://nytimes.com/athletic/5809686/2024/10/01/college-football-super-league-student/
+
+**Israel Has Destroyed Half of Hezbollah’s Arsenal, U.S. and Israeli Officials Say**\
+`The Lebanese militia is seeking more weapons from Iran, the officials said. It has yet to fire large barrages at Israel, and its top ranks have been crippled by Israeli strikes.`\
+https://nytimes.com/2024/10/01/us/politics/israel-lebanon-hezbollah-airstrikes.html
+
+**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in October**\
+`“Citadel: Diana,” “Disclaimer,” “The Franchise,” “Star Trek: Lower Decks,” a Springsteen documentary and others arrive.`\
+https://nytimes.com/2024/10/01/arts/television/october-streaming-movies-shows.html
+
 **Pras Sues Lauryn Hill Over Canceled Fugees Tour, Alleging Fraud**\
 `Ms. Hill was accused of deceiving the other group members about tour finances. She called the lawsuit “baseless” and “full of false claims.”`\
 https://nytimes.com/2024/10/01/arts/music/pras-lauryn-hill-fugees-lawsuit.html
