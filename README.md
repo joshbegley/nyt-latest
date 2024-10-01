@@ -1,3 +1,11 @@
+**Q&A: Former MLB commissioner Fay Vincent on passing of Pete Rose**\
+`When he was the deputy commissioner, Vincent was instrumental in investigating the gambling allegations against rose. `\
+https://nytimes.com/athletic/5807830/2024/09/30/qa-fay-vincent-pete-rose-betting-ban/
+
+**How Trump Tore One Family Apart**\
+`His father was “an honest, loving man,” but then fell under the sway of MAGA.`\
+https://nytimes.com/2024/09/30/opinion/jan6-reffitt-fatherland.html
+
 **Scenes from a Mets' celebration: 'This is the standard'**\
 `The Mets savored a long-awaited celebration after what one player called 'The best I've ever played in.'`\
 https://nytimes.com/athletic/5807960/2024/09/30/mets-wild-card-celebration-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5807197/2024/09/30/2024-mlb-playoff-odds-world-seri
 **The old Jordan Poole is back, and the Washington Wizards might reap the benefits**\
 `“From last year to over the summer and to now, I think Jordan is a much different person,” Wizards teammate Kyle Kuzma said.`\
 https://nytimes.com/athletic/5807729/2024/09/30/jordan-poole-washington-wizards-2/
-
-**Amick: LeBron's 'tank' is far from empty, with Bronny and more keeping his motor running**\
-`The 39-year-old was dominant on the global stage this summer, which begs the question: Can he reach those heights again this season?`\
-https://nytimes.com/athletic/5807728/2024/09/30/lebron-james-bronny-lakers-media-day/
-
-**Newsom Tacks to the Middle With California in the Spotlight**\
-`While Donald J. Trump has attacked California as too liberal for the nation, Gov. Gavin Newsom has vetoed several bills that could have become political fodder.`\
-https://nytimes.com/2024/09/30/us/newsom-california-bill-politics.html
 
