@@ -1,3 +1,7 @@
+**Day Laborer From Gaza Is First Reported Fatality of Iran’s Missile Attack**\
+`Sameh al-Asali, who was sheltering in the city of Jericho in the Israeli-occupied West Bank, was killed when a large missile fragment slammed into him.`\
+https://nytimes.com/2024/10/01/world/middleeast/gaza-palestinian-dead-iran-attack.html
+
 **Royals impress in Game 1 win over O's: Takeaways**\
 `Ragans allowed just four hits and struck out eight in his six innings of work, including a pair of strikeouts in the bottom of the fifth.`\
 https://nytimes.com/athletic/5810926/2024/10/01/royals-win-cole-ragans-game-1/
