@@ -1,3 +1,11 @@
+**Where the Dockworkers’ Union and Port Operators Stand on Key Issues**\
+`The union representing thousands of striking dockworkers is pushing for bigger wage increases than port operators have offered, and a ban on automation.`\
+https://nytimes.com/2024/10/01/business/port-workers-strike-demands-union.html
+
+**Who is JD Vance?**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/who-is-jd-vance
+
 **Trump’s Consistent Message Online and Onstage: Be Afraid**\
 `Donald Trump has long used fear as a tool to stir up his conservative base. He’s taking his doomsday approach to a new extreme, predicting World War III and other catastrophes.`\
 https://nytimes.com/2024/10/01/us/politics/trump-fear-speeches.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/01/arts/music/metropolitan-opera-fall-season.html
 **DJ Uiagalelei will miss Saturday's game against his former Clemson team**\
 `Florida State quarterback DJ Uiagalelei will miss Saturday's game against his former Clemson team with a finger injury.`\
 https://nytimes.com/athletic/5809716/2024/10/01/fsu-dj-uiagalelei-out-clemson/
-
-**Super Bowl 2025 odds: Undefeated Chiefs remain at top of odds, followed by 49ers, Ravens**\
-`The Kansas City Chiefs remain top of the odds boards for this season's Super Bowl. The 49ers and Ravens are right behind.`\
-https://nytimes.com/athletic/5809500/2024/10/01/super-bowl-2025-odds-chiefs-49ers-ravens/
-
-**Is That a Panda? Or a Dog in Disguise?**\
-`Zoos around the world have occasionally used a little dye, or just brazenness, to pass off one animal as another.`\
-https://nytimes.com/2024/10/01/world/asia/china-zoo-painted-dogs-pandas.html
 
