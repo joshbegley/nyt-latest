@@ -1,3 +1,7 @@
+**It’s Time to Make One-Pot Chicken and Rice**\
+`Put this schmaltzy, Mediterranean-ish recipe at the top of your fall cooking list.`\
+https://nytimes.com/2024/10/01/dining/its-time-to-make-one-pot-chicken-and-rice.html
+
 **The Windup: Just look at this win probability chart**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5809489/2024/10/01/mets-braves-win-probability-the-windup/
