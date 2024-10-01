@@ -1,4 +1,4 @@
-**Day Laborer From Gaza Is First Reported Fatality of Iran’s Missile Attack**\
+**Laborer From Gaza Is First Reported Fatality of Iran’s Missile Attack**\
 `Sameh al-Asali, who was sheltering in the city of Jericho in the Israeli-occupied West Bank, was killed when a large missile fragment slammed into him.`\
 https://nytimes.com/2024/10/01/world/middleeast/gaza-palestinian-dead-iran-attack.html
 
