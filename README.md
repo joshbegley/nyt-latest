@@ -1,3 +1,15 @@
+**Alicia Keys, LaChanze and Billy Porter Gather to Support Black Theater**\
+`The stage stars were among more than 600 people who turned out for an evening of dinner and performances to benefit Black Theater United.`\
+https://nytimes.com/2024/10/01/style/black-theater-united-alicia-keys-lachanze.html
+
+**What Are Ballistic Missiles?**\
+`A look at the kind of weapons fired into Israel.`\
+https://nytimes.com/2024/10/01/world/middleeast/what-are-ballistic-missiles.html
+
+**Multiple People Killed in Tel Aviv Shooting**\
+`Gunmen opened fire on a light rail train in the Jaffa neighborhood of Tel Aviv, killing at least six people and injuring several others.`\
+https://nytimes.com/video/world/middleeast/100000009734369/tel-aviv-shooting-israel.html
+
 **In aftermath of Pete Rose’s death, silence from Rob Manfred and Tony Clark**\
 `It’s customary for the commissioner and union chief to issue comments when a prominent figure in baseball dies. They have not for Pete Rose.`\
 https://nytimes.com/athletic/5810427/2024/10/01/pete-rose-death-rob-manfred-tony-clark/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5809714/2024/10/01/gonzaga-pac-12-utep-mountain-wes
 **Live Q&A: Week 4 fantasy football add/drop chat with Jay Felicio, Tuesday 10/1 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5809971/2024/10/01/live-qa-week-4-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-1-at-5-p-m-et/
-
-**Second fan files suit over possession of Ohtani's 50th HR ball**\
-`The ball is currently listed as up for auction through Goldin Auctions, with bidding up to $1.464 million.`\
-https://nytimes.com/athletic/5810002/2024/10/01/shohei-ohtani-50-home-run-ball-second-lawsuit-update/
-
-**Inside a Trump Ad Slamming Harris Over the Push for Electric Vehicles**\
-`Scaremongering in Michigan, an ad claims that the vice president wants to “end all gas-powered cars” and that her policies would lead to “massive layoffs.”`\
-https://nytimes.com/2024/10/01/us/politics/trump-ad-electric-vehicles.html
-
-**Iran Fires Missile Barrage Toward Israel**\
-`The attack, which comes days after the assassination of Hezbollah’s leader, Hassan Nasrallah, marks a sharp escalation in the conflict between Israel and Iran.`\
-https://nytimes.com/video/world/middleeast/100000009734088/israel-iran-missile-attack.html
 
