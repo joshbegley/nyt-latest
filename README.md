@@ -1,3 +1,11 @@
+**Thomas Friedman: ‘This Is Code Red Time in the Middle East’**\
+`The columnist weighs in on Iran’s retaliatory strike against Israel and what comes next.`\
+https://nytimes.com/2024/10/01/opinion/thomas-friedman-iran-israel.html
+
+**Iran Launches Barrage of Ballistic Missiles at Israel in Retaliation for Assassinations**\
+`The 180 missiles fired at Israel on Tuesday evening sharply escalated the conflict between two countries and threatened to engulf the Middle East in all-out war.`\
+https://nytimes.com/2024/10/01/world/middleeast/iran-ballistic-missiles-israel-assassinations.html
+
 **Hurricane Helene’s Trail of Destruction in Asheville, N.C.**\
 `Brandon Davis returned to his business in Asheville, N.C. for the first time since Hurricane Helene devastated the area several days ago.`\
 https://nytimes.com/video/world/americas/100000009734942/hurricane-helene-asheville-destruction.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5810826/2024/10/01/jurrien-timber-arsenal-psg/
 **The Busiest Port on the East Coast Comes to a Stop**\
 `The strike by longshoremen has halted commerce at Newark and other ports on the East and Gulf Coasts, affecting an ecosystem of supply-chain workers.`\
 https://nytimes.com/2024/10/01/business/economy/dockworkers-strike-newark-port.html
-
-**Jed Hoyer on Cody Bellinger and how it will shape Cubs' offseason**\
-`“When we signed the deal in late February, if he had a good year, we knew he’d have a lot of options,” Hoyer said.`\
-https://nytimes.com/athletic/5810718/2024/10/01/jed-hoyer-cody-bellinger-cubs-offseason/
-
-**CBS Says Trump Will Not Participate in ‘60 Minutes’ Interview**\
-`This is not the first time that the former president has clashed with the country’s most popular television news program.`\
-https://nytimes.com/2024/10/01/business/media/trump-cbs-60-minutes.html
 
