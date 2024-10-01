@@ -1,3 +1,15 @@
+**PGA Tour's Monahan, LIV's Al-Rumayyan playing pro-am together**\
+`Monahan and Al-Rumayyan will also each play a round with Rory McIlroy, the most vocal PGA Tour player for unification.`\
+https://nytimes.com/athletic/5810690/2024/10/01/pga-tour-monahan-liv-yasir-al-rumayyan-dunhill-golf/
+
+**Bills All-22: The running game is still strong, receiver separation is a concern**\
+`Things were bad against the Ravens, but maybe not as bad as they looked.`\
+https://nytimes.com/athletic/5810389/2024/10/01/bills-all-22-ravens-james-cook-josh-allen/
+
+**As Plant Sales Move Online, the Sill Closes Its Last Retail Store**\
+`A trendy company that embraced the plant craze of a decade ago has evolved to fill the needs of a changing demographic.`\
+https://nytimes.com/2024/10/01/style/the-sill-plants-closing-stores.html
+
 **Israel weighs a counterattack after the Iranian missile barrage.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/israel-weighs-a-counterattack-after-the-iranian-missile-barrage
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/01/world/middleeast/us-destroyers-israel-iran-missil
 **Borussia Dortmund could face action for 'UEFA Mafia' banner**\
 `Borussia Dortmund are likely to face sanctions after displaying a banner reading &#8220;UEFA Mafia&#8221; before Tuesday&#8217;s Champions League tie with Celtic.`\
 https://nytimes.com/athletic/5810503/2024/10/01/dortmund-uefa-mafia-banner/
-
-**The Briefing: Barcelona 5-0 Young Boys - Raphinha revitalised and Lewandowski matches Ronaldo**\
-`Our writers analyse the key moments and talking points from Barcelona's emphatic victory over Young Boys in the Champions League`\
-https://nytimes.com/athletic/5801016/2024/10/01/barcelona-young-boys-briefing/
-
-**The Briefing - Arsenal 2 PSG 0: Havertz's scoring streak and Saka stars after Sterling's son was his mascot**\
-`Havertz continued his fine form at home, Arteta's side dominated from set pieces and PSG have now gone 81 shots without scoring in Europe`\
-https://nytimes.com/athletic/5801014/2024/10/01/arsenal-psg-analysis-havertz-saka-set-pieces/
-
-**Videos verified by The Times show missiles exploding across Israel.**\
-`By Haley Willis, Aric Toler, Devon Lum and Ainara Tiefenthäler`\
-https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/videos-verified-by-the-times-show-missiles-exploding-across-israel
 
