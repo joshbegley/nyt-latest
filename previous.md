@@ -1,3 +1,8 @@
+**Anthony Rendon might not be guaranteed a roster spot in 2025: 'He hasn't been productive'**\
+`The third baseman has played just 257 out of a possible 546 games with the Angels and has not hit a home run since July of 2023.
+`\
+https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
+
 **Q&A: Former MLB commissioner Fay Vincent on passing of Pete Rose**\
 `When he was the deputy commissioner, Vincent was instrumental in investigating the gambling allegations against rose. `\
 https://nytimes.com/athletic/5807830/2024/09/30/qa-fay-vincent-pete-rose-betting-ban/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/5807969/2024/09/30/cubs-coaching-staff-changes/
 **2024 MLB Playoff odds: Dodgers, Yankees among World Series favorites**\
 `The LA Dodgers are in a tier of their own to win the World Series as the MLB postseason kicks into gear.`\
 https://nytimes.com/athletic/5807197/2024/09/30/2024-mlb-playoff-odds-world-series-dodgers-yankees/
-
-**The old Jordan Poole is back, and the Washington Wizards might reap the benefits**\
-`“From last year to over the summer and to now, I think Jordan is a much different person,” Wizards teammate Kyle Kuzma said.`\
-https://nytimes.com/athletic/5807729/2024/09/30/jordan-poole-washington-wizards-2/
 
