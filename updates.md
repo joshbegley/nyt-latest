@@ -1,3 +1,7 @@
+**Why intrigue remains at Edmonton Oilers camp despite few question marks**\
+`Edmonton has gotten to the point where it’s essentially down to two forwards for the final spot: Noah Philp and Raphael Lavoie.`\
+https://nytimes.com/athletic/5808611/2024/10/01/edmonton-oilers-camp-question-marks/
+
 **Odegaard left out of Norway squad for October fixtures**\
 `Arsenal midfielder Martin Odegaard has been left out of the Norway squad for their Nations League fixtures later this month.`\
 https://nytimes.com/athletic/5808827/2024/10/01/martin-odegaard-injury-latest-norway-arsenal/

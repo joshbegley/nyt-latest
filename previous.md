@@ -1,3 +1,7 @@
+**Why intrigue remains at Edmonton Oilers camp despite few question marks**\
+`Edmonton has gotten to the point where it’s essentially down to two forwards for the final spot: Noah Philp and Raphael Lavoie.`\
+https://nytimes.com/athletic/5808611/2024/10/01/edmonton-oilers-camp-question-marks/
+
 **Odegaard left out of Norway squad for October fixtures**\
 `Arsenal midfielder Martin Odegaard has been left out of the Norway squad for their Nations League fixtures later this month.`\
 https://nytimes.com/athletic/5808827/2024/10/01/martin-odegaard-injury-latest-norway-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/podcasts/israel-lebanon-helene.html
 **Is the Vikings’ scorching 4-0 start to the season sustainable?**\
 `The Packers took advantage of some cracks in the undefeated Vikings' armor on Sunday. Can Minnesota address them before it's too late?`\
 https://nytimes.com/athletic/5807492/2024/10/01/vikings-packers-undefeated-sustainable/
-
-**Shinzawa: The Bruins-Jeremy Swayman talks have gone sideways. It’s just business**\
-`Both sides of the stalemate are pulling out all the stops in attempt to get their desired outcome.`\
-https://nytimes.com/athletic/5807905/2024/10/01/bruins-swayman-lewis-gross-business/
 
