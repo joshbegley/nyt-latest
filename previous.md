@@ -1,40 +1,40 @@
-**Wordle Review No. 1,201**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Oct. 2, 2024.`\
-https://nytimes.com/2024/10/01/crosswords/wordle-review-1201.html
+**Israel Starts Lebanon Ground Invasion, and Hundreds Missing After Helene**\
+`Plus, Jimmy Carter turns 100.`\
+https://nytimes.com/2024/10/01/podcasts/israel-lebanon-helene.html
 
-**12 teams, 12 champions: History shows us your team’s path to winning the World Series**\
-`Look closely enough and every team in the postseason field resembles one team in recent memory that went all the way.`\
-https://nytimes.com/athletic/5807672/2024/10/01/world-series-comps-mlb/
+**Is the Vikings’ scorching 4-0 start to the season sustainable?**\
+`The Packers took advantage of some cracks in the undefeated Vikings' armor on Sunday. Can Minnesota address them before it's too late?`\
+https://nytimes.com/athletic/5807492/2024/10/01/vikings-packers-undefeated-sustainable/
 
-**2025 NHL Draft top prospects: James Hagens leads first ranking of the season**\
-`Hagens ranks No. 1 on Corey Pronman's list of 2025 NHL Draft prospects, followed closely by Porter Martone.`\
-https://nytimes.com/athletic/5779188/2024/10/01/nhl-draft-2025-prospect-ranking-james-hagens/
+**Shinzawa: The Bruins-Jeremy Swayman talks have gone sideways. It’s just business**\
+`Both sides of the stalemate are pulling out all the stops in attempt to get their desired outcome.`\
+https://nytimes.com/athletic/5807905/2024/10/01/bruins-swayman-lewis-gross-business/
 
-**Ranking the 36 possible World Series matchups, from least to most interesting**\
-`A 12-team playoff field means 36 possible World Series combinations. All of them, in their own way, would be great.`\
-https://nytimes.com/athletic/5808243/2024/10/01/world-series-matchups-mlb-ranking/
+**Packers' penalty problem, Xavier McKinney's fast start and more from loss to Vikings**\
+`The Packers are tied for third in the NFL in penalties against with 34 through four games.`\
+https://nytimes.com/athletic/5807160/2024/10/01/packers-penalties-mckinney-vikings/
 
-**These looming extension decisions signal a change in the NBA**\
-`Circulating around the NBA is a trendy motto: Extensions, execs and agents say, are the new free agency.`\
-https://nytimes.com/athletic/5807982/2024/10/01/nba-contract-extensions-aaron-gordon-julius-randle-jaren-jackson/
+**What to expect from The Athletic Hockey Show this season**\
+`The Athletic Hockey Show is back with a revamped lineup and some new voices.`\
+https://nytimes.com/athletic/5794008/2024/10/01/the-athletic-hockey-show-2024/
 
-**NFL Week 4 best and worst coaching decisions: Kliff Kingsbury, Todd Monken run wild**\
-`The Ravens and Commanders got their running games going while the Buccaneers' Todd Bowles bested the Eagles.`\
-https://nytimes.com/athletic/5805196/2024/10/01/nfl-week-4-worst-best-coaching-decisions-nguyen/
+**What I'm seeing from the New York Jets: Seven concerns that could derail the season**\
+`From two slow-starting offensive stars, to questions on the defensive line, to a kicker who might be slumping.`\
+https://nytimes.com/athletic/5807253/2024/10/01/new-york-jets-quarter-season-status-report/
 
-**Rosenthal: Ohtani, Judge and 10 more major questions for the MLB postseason**\
-`The playoffs start Tuesday and we've got a question for every team in the postseason.`\
-https://nytimes.com/athletic/5808088/2024/10/01/mlb-playoffs-questions-ohtani-judge/
+**Brewers manager Pat Murphy's hard-earned lessons fuel his team's success**\
+`Murphy's journey has been one of twists and turns, yet they got him to this point. Says Murphy: “I can tell you a horrible memory."`\
+https://nytimes.com/athletic/5807260/2024/10/01/pat-murphy-brewers-manager-painful-lessons/
 
-**Excited about the MLB World Series hopefuls? Here are each of their fatal flaws**\
-`Meet baseball's postseason contenders — and what will ultimately be their undoing. `\
-https://nytimes.com/athletic/5807705/2024/10/01/mlb-playoff-teams-fatal-flaws/
+**Bill DeWitt Jr., John Mozeliak address Cardinals' transition period: 'It's not an excuse'**\
+`The first step of this overhaul is to get the Cardinals back to where they once thrived: developing homegrown talent.`\
+https://nytimes.com/athletic/5807100/2024/10/01/cardinals-front-office-changes/
 
-**As Crisis Builds, Lebanon’s Government Is Nowhere to Be Found**\
-`Already crippled by years of economic decline, political paralysis and other crises, Lebanon has little but its own citizens’ grit to survive the Israel-Hezbollah conflict.`\
-https://nytimes.com/2024/10/01/world/middleeast/lebanon-government-failure-israeli-strikes.html
+**Colts don't want to limit Anthony Richardson, but his body keeps giving them reasons to**\
+`The Colts have hitched their future to a physically gifted QB whose latest injury raises concerns about just how physical he can be.`\
+https://nytimes.com/athletic/5807824/2024/10/01/colts-anthony-richardson-injuries-hip/
 
-**What I’m seeing from the Patriots: An undermanned defense is struggling**\
-`How did the Patriots go from a top-10 defense to a bottom-10 unit? Between injuries and the loss of Bill Belichick, it's no big surprise.`\
-https://nytimes.com/athletic/5806627/2024/10/01/new-england-patriots-defense-struggles/
+**NHL waiver wire goalie targets: The top 5 who might become available**\
+`Projecting five goalies who could find themselves on the waiver wire as teams trim their rosters. `\
+https://nytimes.com/athletic/5807203/2024/10/01/nhl-waivers-goalies-lyon/
 
