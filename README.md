@@ -1,3 +1,7 @@
+**Assange, in First Speech Since Release, Says He Was Jailed for Journalism**\
+`Julian Assange, the WikiLeaks founder, said in public remarks in Strasbourg, France, that his imprisonment had set a dangerous precedent.`\
+https://nytimes.com/2024/10/01/world/europe/julian-assange-journalism-wikileaks.html
+
 **Family Survives Hurricane but Is Left With Just One Suitcase**\
 `Hurricane Helene left Aaron Smith, his wife, two sons and dog with nothing but a single suitcase. They are some of the many victims state and federal crews are working to aid after the storm devastated southern Appalachia.`\
 https://nytimes.com/video/weather/100000009733115/hurricane-helene-north-carolina-survivors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/business/media/politics-debate-streamers.html
 **Behind School Bus Mess, a 45-Year-Old Contract That’s Hard to Change**\
 `Students across New York City are waiting up to an hour for school buses as a driver shortage and conflict over a contract hamstring the city’s ability to find a solution.`\
 https://nytimes.com/2024/10/01/nyregion/nyc-school-bus-delays.html
-
-**Who Is the Republican Running to Replace Menendez?**\
-`Curtis Bashaw, a hotel owner, is competing to represent New Jersey in the U.S. Senate against Andy Kim, a Democratic congressman.`\
-https://nytimes.com/2024/10/01/nyregion/who-is-the-republican-running-to-replace-menendez.html
 
