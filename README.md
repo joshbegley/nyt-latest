@@ -14,7 +14,7 @@ https://nytimes.com/2024/10/01/style/jay-pharoahs-white-gold-cross-necklace.html
 `Mayor Eric Adams’s lawyer filed court papers accusing prosecutors of leaking details of the investigation to reporters.`\
 https://nytimes.com/interactive/2024/10/01/nyregion/eric-adams-legal-filing.html
 
-**We May Be Moments from a Ballistic Missile War in the Mideast**\
+**We May Be Moments From a Ballistic Missile War in the Mideast**\
 `And this one could involve the United States.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/iran-attack-israel
 
