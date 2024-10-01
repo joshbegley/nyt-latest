@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5807406/2024/09/30/padres-michael-king-game-1-start
 `\
 https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
 
-**Q&A: Former MLB commissioner Fay Vincent on passing of Pete Rose**\
+**Q&A: Former MLB commissioner Fay Vincent on Pete Rose's passing, Hall of Fame chances, legacy**\
 `When he was the deputy commissioner, Vincent was instrumental in investigating the gambling allegations against rose. `\
 https://nytimes.com/athletic/5807830/2024/09/30/qa-fay-vincent-pete-rose-betting-ban/
 
