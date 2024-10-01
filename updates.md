@@ -1,3 +1,7 @@
+**The Ghosts of Vice-Presidential Debates Past**\
+`The face-offs between the candidates on the bottom of the ticket have produced some standout moments. Here’s a look at the most memorable exchanges.`\
+https://nytimes.com/2024/10/01/us/politics/past-vice-presidential-debates-history.html
+
 **As Iran Launches Attack, Israel’s Next Move May Determine Course of War**\
 `A look back to an exchange of strikes in April suggests one possibility for what could unfold over the coming days.`\
 https://nytimes.com/2024/10/01/world/middleeast/israel-iran-missile-attack-april.html
