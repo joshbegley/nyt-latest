@@ -1,3 +1,15 @@
+**With Grant Holmes filling in for Chris Sale, persistent Braves clinch in Game 162**\
+`Holmes, the surprise hero, departed to a thunderous ovation from a sold-out crowd of 41,561: “There aren’t words for it.”`\
+https://nytimes.com/athletic/5808242/2024/09/30/braves-clinch-wild-card-grant-holmes/
+
+**Reflections on Pete Rose, the Hall of Fame and the spot where his plaque will never hang**\
+`I’ll never forget the life and times of Pete Rose — especially when I walk the halls of Cooperstown and stare at that spot on the wall. `\
+https://nytimes.com/athletic/5808189/2024/09/30/pete-rose-hall-of-fame-gambling/
+
+**Baseball world pays tribute to Pete Rose: 'Nobody played harder'**\
+`Former players, executives and officials remembered Major League Baseball’s hit king: “He was my mentor, my coach, my manager.”`\
+https://nytimes.com/athletic/5808182/2024/09/30/pete-rose-death-tribute-baseball-world/
+
 **American League Wild Card Series predictions: Our experts make their picks**\
 `Who will move on to the American League Division Series? Our experts weigh in with their picks.`\
 https://nytimes.com/athletic/5807215/2024/09/30/al-wild-card-series-predictions/
@@ -26,16 +38,4 @@ https://nytimes.com/2024/09/30/opinion/jan6-reffitt-fatherland.html
 **Scenes from a Mets' celebration: 'This is the standard'**\
 `The Mets savored a long-awaited celebration after what one player called "the best (game) I've ever played in."`\
 https://nytimes.com/athletic/5807960/2024/09/30/mets-wild-card-celebration-analysis/
-
-**Rancher Gets 6 Months in Prison for Scheme to Create Giant Sheep Hybrid**\
-`Prosecutors said the Montanan illegally used tissue from a sheep from Central Asia and the testicles from a bighorn sheep to make large hybrids that he could sell at premium prices.`\
-https://nytimes.com/2024/09/30/us/montana-man-giant-sheep-sentence.html
-
-**Bucks have their eye on health, continuity in Year 2 of Giannis-Dame pairing**\
-`After a tumultuous season, the Bucks are taking training camp to the West Coast to build continuity and camaraderie.`\
-https://nytimes.com/athletic/5806683/2024/09/30/milwaukee-bucks-media-day-giannis-lillard/
-
-**Robert Downey Jr. Is a Novelist With a Novel Muse in ‘McNeal’**\
-`The “Oppenheimer” star makes his Broadway debut in Ayad Akhtar’s timely new play about a literary lion who gets assistance from A.I.`\
-https://nytimes.com/2024/09/30/theater/mcneal-review-ai-robert-downey-jr.html
 

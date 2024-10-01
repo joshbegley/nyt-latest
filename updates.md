@@ -1,3 +1,20 @@
+**With Grant Holmes filling in for Chris Sale, persistent Braves clinch in Game 162**\
+`Holmes, the surprise hero, departed to a thunderous ovation from a sold-out crowd of 41,561: “There aren’t words for it.”`\
+https://nytimes.com/athletic/5808242/2024/09/30/braves-clinch-wild-card-grant-holmes/
+
+**Reflections on Pete Rose, the Hall of Fame and the spot where his plaque will never hang**\
+`I’ll never forget the life and times of Pete Rose — especially when I walk the halls of Cooperstown and stare at that spot on the wall. `\
+https://nytimes.com/athletic/5808189/2024/09/30/pete-rose-hall-of-fame-gambling/
+
+**Baseball world pays tribute to Pete Rose: 'Nobody played harder'**\
+`Former players, executives and officials remembered Major League Baseball’s hit king: “He was my mentor, my coach, my manager.”`\
+https://nytimes.com/athletic/5808182/2024/09/30/pete-rose-death-tribute-baseball-world/
+
+**Anthony Rendon might not be guaranteed a roster spot in 2025: 'He hasn't been productive'**\
+`The third baseman has played just 257 out of a possible 546 games with the Angels and has not hit a home run since July 2023.
+`\
+https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
+
 **Anthony Rendon might not be guaranteed a roster spot in 2025: 'He hasn't been productive'**\
 `The third baseman has played just 257 out of a possible 546 games with the Angels and has not hit a home run since July 2023.
 `\
