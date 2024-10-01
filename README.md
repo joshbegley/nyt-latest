@@ -1,3 +1,7 @@
+**Late Night Slams Trump’s Idea to Adapt ‘The Purge’**\
+`“Good news: He stopped talking about Hannibal Lecter,” Jimmy Fallon said. “Bad news: He suggested we do ‘The Purge’ instead.”`\
+https://nytimes.com/2024/10/01/arts/television/late-night-trump-the-purge.html
+
 **Port Workers Go on Strike**\
 `The president of the International Longshoremen’s Association said the workers were “making history” by walking off the job for the first time in nearly 50 years.`\
 https://nytimes.com/video/business/100000009733077/port-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/nyregion/who-is-the-republican-running-to-replace
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/01/crosswords/spelling-bee-forum.html
-
-**Struggling Southampton and the Plan A they can't seem to escape**\
-`Southampton's possession-based style was torn apart against Bournemouth. Their ideology may make Premier League survival impossible`\
-https://nytimes.com/athletic/5807264/2024/10/01/southampton-premier-league-russell-martin/
 
