@@ -23,7 +23,8 @@ https://nytimes.com/athletic/5808705/2024/10/01/atletico-madrid-real-madrid-fren
 https://nytimes.com/athletic/5808611/2024/10/01/edmonton-oilers-camp-question-marks/
 
 **Odegaard left out of Norway squad for October fixtures**\
-`Arsenal midfielder Martin Odegaard has been left out of the Norway squad for their Nations League fixtures later this month.`\
+`Follow live coverage of Arsenal vs PSG in the Champions League today
+Arsenal midfielder Martin Odegaard has been left out of the Norway squad for their Nations League fixtures later this month.`\
 https://nytimes.com/athletic/5808827/2024/10/01/martin-odegaard-injury-latest-norway-arsenal/
 
 **The Pulse: Jared Goff's perfect game**\
