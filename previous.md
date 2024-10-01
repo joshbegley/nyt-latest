@@ -1,3 +1,11 @@
+**Borussia Dortmund could face action for 'UEFA Mafia' banner**\
+`Borussia Dortmund are likely to face sanctions after displaying a banner reading &#8220;UEFA Mafia&#8221; before Tuesday&#8217;s Champions League tie with Celtic.`\
+https://nytimes.com/athletic/5810503/2024/10/01/dortmund-uefa-mafia-banner/
+
+**The Briefing: Barcelona 5-0 Young Boys - Raphinha revitalised and Lewandowski matches Ronaldo**\
+`Our writers analyse the key moments and talking points from Barcelona's emphatic victory over Young Boys in the Champions League`\
+https://nytimes.com/athletic/5801016/2024/10/01/barcelona-young-boys-briefing/
+
 **The Briefing - Arsenal 2 PSG 0: Havertz's scoring streak and Saka stars after Sterling's son was his mascot**\
 `Havertz continued his fine form at home, Arteta's side dominated from set pieces and PSG have now gone 81 shots without scoring in Europe`\
 https://nytimes.com/athletic/5801014/2024/10/01/arsenal-psg-analysis-havertz-saka-set-pieces/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5801015/2024/10/01/slovan-bratislava-0-manchester-c
 **In Iran, Military Commanders Win the Day. Then Israel Is Hit**\
 `The barrage of missile fire came after much debate among Iranian leaders, officials there say.`\
 https://nytimes.com/2024/10/01/world/middleeast/iran-israel-strike.html
-
-**John Amos, a Star of ‘Good Times’ and ‘Roots,’ Dies at 84**\
-`He was the patriarch in one of the first sitcoms with an all-Black cast and an enslaved African as a grown man in the blockbuster TV mini-series.`\
-https://nytimes.com/2024/10/01/arts/john-amos-dead.html
-
-**Can a Vice-Presidential Debate Shift the Polls? History Shows It’s Unlikely.**\
-`But Tuesday’s debate could give voters a better sense of how they feel about JD Vance and Tim Walz, since many don’t have an impression of them.`\
-https://nytimes.com/2024/10/01/us/elections/vp-debate-polls.html
 

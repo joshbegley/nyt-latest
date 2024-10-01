@@ -1,3 +1,11 @@
+**Borussia Dortmund could face action for 'UEFA Mafia' banner**\
+`Borussia Dortmund are likely to face sanctions after displaying a banner reading &#8220;UEFA Mafia&#8221; before Tuesday&#8217;s Champions League tie with Celtic.`\
+https://nytimes.com/athletic/5810503/2024/10/01/dortmund-uefa-mafia-banner/
+
+**The Briefing: Barcelona 5-0 Young Boys - Raphinha revitalised and Lewandowski matches Ronaldo**\
+`Our writers analyse the key moments and talking points from Barcelona's emphatic victory over Young Boys in the Champions League`\
+https://nytimes.com/athletic/5801016/2024/10/01/barcelona-young-boys-briefing/
+
 **The Briefing - Arsenal 2 PSG 0: Havertz's scoring streak and Saka stars after Sterling's son was his mascot**\
 `Havertz continued his fine form at home, Arteta's side dominated from set pieces and PSG have now gone 81 shots without scoring in Europe`\
 https://nytimes.com/athletic/5801014/2024/10/01/arsenal-psg-analysis-havertz-saka-set-pieces/
