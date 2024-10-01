@@ -1,3 +1,7 @@
+**Until Saturday: Realignment never stops, plus our first Heisman straw poll of 2024**\
+`Welcome to Until Saturday, the five-star college football newsletter: What's the latest for Pac-12, Mountain West Conference realignment?`\
+https://nytimes.com/athletic/5809714/2024/10/01/gonzaga-pac-12-utep-mountain-west-heisman-until-saturday/
+
 **Live Q&A: Week 4 fantasy football add/drop chat with Jay Felicio, Tuesday 10/1 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5809971/2024/10/01/live-qa-week-4-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-1-at-5-p-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801273/2024/10/01/noah-gragson-noah-gragson-colleg
 **Biden Scrambles to Contain Economic and Political Fallout of Port Strike**\
 `The labor dispute has forced President Biden and Vice President Kamala Harris into a complicated position just weeks before the election.`\
 https://nytimes.com/2024/10/01/us/politics/biden-strike-port-longshoremen.html
-
-**Blue Jackets won't be required to hit NHL's salary floor by start of season**\
-`The NHL informed the club it will be allowed to be below the salary-cap floor in the wake of the Johnny and Matthew Gaudreau tragedy.`\
-https://nytimes.com/athletic/5810166/2024/10/01/blue-jackets-nhl-salary-cap-gaudreau/
 
