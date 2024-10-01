@@ -1,3 +1,7 @@
+**What's ahead for Twins' Carlos Correa, Byron Buxton and Chris Paddack in offseason?**\
+`Checking in on three Twins players and some of what they're focused on as they head into the offseason. `\
+https://nytimes.com/athletic/5807664/2024/10/01/twins-offseason-correa-buxton-paddack/
+
 **Krawczynski: Karl-Anthony Towns' impact in Minnesota goes much deeper than basketball**\
 `Towns and the Timberwolves were able to stay together for as long as they did while enduring so much strife along the way.`\
 https://nytimes.com/athletic/5802060/2024/10/01/karl-anthony-towns-impact-timberwolves-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794008/2024/10/01/the-athletic-hockey-show-2024/
 **What I'm seeing from the New York Jets: Seven concerns that could derail the season**\
 `From two slow-starting offensive stars, to questions on the defensive line, to a kicker who might be slumping.`\
 https://nytimes.com/athletic/5807253/2024/10/01/new-york-jets-quarter-season-status-report/
-
-**Brewers manager Pat Murphy's hard-earned lessons fuel his team's success**\
-`Murphy's journey has been one of twists and turns, yet they got him to this point. Says Murphy: “I can tell you a horrible memory."`\
-https://nytimes.com/athletic/5807260/2024/10/01/pat-murphy-brewers-manager-painful-lessons/
 
