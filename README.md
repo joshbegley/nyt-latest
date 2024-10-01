@@ -1,3 +1,7 @@
+**He Called 311 on the Police. They Called Back Making Dolphin Sounds.**\
+`Officer Brendan Sullivan was hit with a fine for harassing a Brooklyn resident who had complained about illegally parked police cruisers.`\
+https://nytimes.com/2024/10/01/nyregion/nypd-officer-harassment-dolphin-noises.html
+
 **Meet the Moderators: Margaret Brennan and Norah O’Donnell of CBS News**\
 `A pair of veteran news anchors will steer the vice-presidential matchup on Tuesday between JD Vance and Tim Walz.`\
 https://nytimes.com/2024/10/01/business/media/cbs-debate-moderators-margaret-brennan-norah-odonnell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5810926/2024/10/01/royals-win-cole-ragans-game-1/
 **The Veep Debate, or When the Opening Act Becomes the Headliner**\
 `Tonight’s showdown could be the last between representatives of both tickets before the election.`\
 https://nytimes.com/2024/10/01/us/politics/walz-vance-vp-debate-importance.html
-
-**Thomas Friedman: ‘This Is Code Red Time in the Middle East’**\
-`The columnist weighs in on Iran’s retaliatory strike against Israel and what comes next.`\
-https://nytimes.com/2024/10/01/opinion/thomas-friedman-iran-israel.html
 
