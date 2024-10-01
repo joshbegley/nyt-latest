@@ -1,3 +1,7 @@
+**Adams Holds a News Conference, Alone and Without His Walkout Music**\
+`Mayor Eric Adams, now under federal indictment, turned his weekly news conference into a solo act, with no introductory music and no aides by his side.`\
+https://nytimes.com/2024/10/01/nyregion/eric-adams-press-conference.html
+
 **France’s Prime Minister Urges a Divided Parliament to Give Him a Chance**\
 `Michel Barnier vowed to slash spending and temporarily raise some taxes, but his plan must contend with three bitterly opposed political blocs and an aversion in France to working across party lines.`\
 https://nytimes.com/2024/10/01/world/europe/france-prime-minister-parliament.html
