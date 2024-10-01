@@ -1,3 +1,8 @@
+**Anthony Rendon might not be guaranteed a roster spot in 2025: 'He hasn't been productive'**\
+`The third baseman has played just 257 out of a possible 546 games with the Angels and has not hit a home run since July 2023.
+`\
+https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
+
 **Brewers vs. Mets Wild Card Series preview: Predictions, pitching matchups and more**\
 `The runaway NL Central winners will host the Mets, who played .625 ball over the past four months, with the victor advancing to face Philly.`\
 https://nytimes.com/athletic/5807246/2024/09/30/brewers-mets-2024-wild-card-series-preview-predictions/
