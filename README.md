@@ -1,3 +1,7 @@
+**2025 NHL Draft top prospects: James Hagens leads first ranking of the season**\
+`Hagens ranks No. 1 on Corey Pronman's list of 2025 NHL Draft prospects, followed closely by Porter Martone.`\
+https://nytimes.com/athletic/5779188/2024/10/01/nhl-draft-2025-prospect-ranking-james-hagens/
+
 **Ranking the 36 possible World Series matchups, from least to most interesting**\
 `A 12-team playoff field means 36 possible World Series combinations. All of them, in their own way, would be great.`\
 https://nytimes.com/athletic/5808243/2024/10/01/world-series-matchups-mlb-ranking/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5806959/2024/10/01/toronto-raptors-masai-ujiri-medi
 **Eric Adams and the Creeping Threat of Foreign Interference**\
 `If other nations can influence New York City’s mayor, who can’t they influence?`\
 https://nytimes.com/2024/10/01/opinion/eric-adams-foreign-interference-democracy.html
-
-**Fact-Checking Vance and Walz on the Campaign Trail**\
-`Gov. Tim Walz of Minnesota has acted as attack dog for the Harris campaign, and Senator JD Vance of Ohio has stepped in to explain away former President Donald J. Trump’s incendiary remarks.`\
-https://nytimes.com/2024/10/01/us/politics/vance-walz-campaign-fact-check.html
 
