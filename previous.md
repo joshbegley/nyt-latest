@@ -1,3 +1,11 @@
+**Dikembe Mutombo's NBA brethren: 'We were all better in our existence' for knowing him**\
+`Jeff Van Gundy, Bernie Bickerstaff and Mutombo's teammates on the legacy of the beloved player: "There was no way you could not like him."`\
+https://nytimes.com/athletic/5808553/2024/10/01/dikembe-mutombo-death-tributes-nba-players-coaches/
+
+**What I’m seeing with the Eagles — troubling flaws with discipline, detail, development**\
+`The Eagles enter the bye week with many issues to address.`\
+https://nytimes.com/athletic/5806996/2024/10/01/philadelphia-eagles-observations-nick-sirianni-vic-fangio/
+
 **Jannik Sinner's doping case explained: What WADA appeal means and what is at stake for tennis**\
 `The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
 https://nytimes.com/athletic/5806315/2024/10/01/jannik-sinner-doping-case-explained-what-wada-appeal-means-for-tennis/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/01/briefing/iran-israel-hezbollah-middle-east.html
 **What's ahead for Twins' Carlos Correa, Byron Buxton and Chris Paddack in offseason?**\
 `Checking in on three Twins players and some of what they're focused on as they head into the offseason. `\
 https://nytimes.com/athletic/5807664/2024/10/01/twins-offseason-correa-buxton-paddack/
-
-**Krawczynski: Karl-Anthony Towns' impact in Minnesota goes much deeper than basketball**\
-`Towns and the Timberwolves were able to stay together for as long as they did while enduring so much strife along the way.`\
-https://nytimes.com/athletic/5802060/2024/10/01/karl-anthony-towns-impact-timberwolves-trade/
-
-**Why Spurs' Chris Paul and Gregg Popovich are a perfect match in San Antonio**\
-`"I never stop learning," says Paul. "I’m excited to hear Pop’s way of doing things." `\
-https://nytimes.com/athletic/5807594/2024/10/01/spurs-chris-paul-gregg-popovich-relationship/
 
