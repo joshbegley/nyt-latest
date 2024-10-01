@@ -1,4 +1,4 @@
-**After Warm Welcome in Asia, Pope Francis Gets a Cool Reception in Belgium**\
+**After Warm Welcome in Asia, Pope Francis Gets a Fraught Reception in Belgium**\
 `Francis drew attacks over clergy sexual abuse, the role of women in the church and his stance on abortion, reflecting difficulties the church faces in the West.`\
 https://nytimes.com/2024/10/01/world/europe/pope-francis-catholic-church-belgium.html
 

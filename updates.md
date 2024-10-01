@@ -1,3 +1,7 @@
+**Here’s who will be in the spin room for Tim Walz.**\
+`By Katie Glueck`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/heres-who-will-be-in-the-spin-room-for-tim-walz
+
 **Canucks 23-man roster projection 2.0: Who is a lock? Who is on the bubble?**\
 `Here's how the Canucks roster is shaping up based on what we've learned entering the final week of preseason.`\
 https://nytimes.com/athletic/5808495/2024/10/01/canucks-roster-projection/
