@@ -1,3 +1,11 @@
+**What we know about the Islanders after 5 preseason games**\
+`The latest on the elephant in the crease, Kyle MacLean's rise, Pierre Engvall's place on the roster and more.`\
+https://nytimes.com/athletic/5808752/2024/10/01/islanders-preseason-hogberg-maclean-engvall/
+
+**3 Children Injured, One Seriously, in Zurich Stabbing Attack**\
+`The police in Switzerland’s largest city said they had arrested a 23-year-old Chinese man after a midday stabbing attack.`\
+https://nytimes.com/2024/10/01/world/europe/zurich-children-attack.html
+
 **School Bus Blaze in Thailand Kills at Least 23**\
 `The vehicle was returning from a field trip and caught fire outside Bangkok. Rescuers were still searching for bodies in the wreckage.`\
 https://nytimes.com/2024/10/01/world/asia/thailand-school-bus-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5809244/2024/10/01/jack-stephens-red-card-southampt
 **Who do I drop? Unlike the Bears, fantasy managers can cut Caleb Williams**\
 `The Bears need to stand by their rookie quarterback. But you don't have to.`\
 https://nytimes.com/athletic/5809237/2024/10/01/fantasy-football-who-to-drop-ahead-of-week-5-caleb-williams-comes-to-mind/
-
-**Can Pro Sports and Drag Queens Coexist? A Mill Town Finds Out.**\
-`A gay couple embraced inclusion after buying an English rugby team. To their surprise, the fans bought in, too.`\
-https://nytimes.com/2024/10/01/world/europe/rugby-league-uk-keighley-cougars-gay-owners.html
-
-**The MLB playoffs' TV ratings potential, and the league's murky media future**\
-`Our sports media writers, Richard Deitsch and Andrew Marchand, discuss some of the big MLB media storylines as the 2024 playoffs arrive.`\
-https://nytimes.com/athletic/5799666/2024/10/01/mlb-playoffs-media-tv-ratings-streaming-future/
 
