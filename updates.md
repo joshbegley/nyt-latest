@@ -1,3 +1,7 @@
+**Man Utd win appeal against Fernandes red card**\
+`Manchester United have successfully appealed Bruno Fernandes&#8217; red card against Tottenham Hotspur on Sunday.`\
+https://nytimes.com/athletic/5805657/2024/10/01/manchester-united-appeal-bruno-fernandes/
+
 **What comes next in the Jeremy Swayman vs. Bruins dumpster fire? It all depends on his interpretation**\
 `Swayman is confident, competitive, temperamental — and sensitive. How he sees the Bruins' actions will determine the stalemate's conclusion.`\
 https://nytimes.com/athletic/5809886/2024/10/01/jeremy-swayman-bruins-dumpster-fire/

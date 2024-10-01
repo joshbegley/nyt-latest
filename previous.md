@@ -1,3 +1,7 @@
+**Man Utd win appeal against Fernandes red card**\
+`Manchester United have successfully appealed Bruno Fernandes&#8217; red card against Tottenham Hotspur on Sunday.`\
+https://nytimes.com/athletic/5805657/2024/10/01/manchester-united-appeal-bruno-fernandes/
+
 **What comes next in the Jeremy Swayman vs. Bruins dumpster fire? It all depends on his interpretation**\
 `Swayman is confident, competitive, temperamental — and sensitive. How he sees the Bruins' actions will determine the stalemate's conclusion.`\
 https://nytimes.com/athletic/5809886/2024/10/01/jeremy-swayman-bruins-dumpster-fire/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5809898/2024/10/01/davante-adams-antonio-pierce-rai
 **Andrew Tarlow Crosses the East River to Manhattan for Borgo**\
 `The menu for this trattoria stretches the boundaries of Italy’s boot.`\
 https://nytimes.com/2024/10/01/dining/andrew-tarlow-manhattan-restaurant-borgo.html
-
-**Where the Dockworkers’ Union and Port Operators Stand on Key Issues**\
-`The union representing thousands of striking dockworkers is pushing for bigger wage increases than port operators have offered, and a ban on automation.`\
-https://nytimes.com/2024/10/01/business/port-workers-strike-demands-union.html
 
