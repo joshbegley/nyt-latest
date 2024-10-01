@@ -1,3 +1,19 @@
+**The Busiest Port on the East Coast Comes to a Stop**\
+`The strike by longshoremen has halted commerce at Newark and other ports on the East and Gulf Coasts, affecting an ecosystem of supply-chain workers.`\
+https://nytimes.com/2024/10/01/business/economy/dockworkers-strike-newark-port.html
+
+**Jed Hoyer on Cody Bellinger and how it will shape Cubs' offseason**\
+`“When we signed the deal in late February, if he had a good year, we knew he’d have a lot of options,” Hoyer said.`\
+https://nytimes.com/athletic/5810718/2024/10/01/jed-hoyer-cody-bellinger-cubs-offseason/
+
+**CBS Says Trump Withdrew From Planned ‘60 Minutes’ Interview**\
+`This is not the first time that the former president has clashed with the country’s most popular television news program.`\
+https://nytimes.com/2024/10/01/business/media/trump-cbs-60-minutes.html
+
+**Song Binbin, Poster Woman for Mao’s Bloody Revolution, Dies at 77**\
+`She was said to have been involved in the first killing of an educator during the Cultural Revolution, drawing official praise. She later apologized for her actions.`\
+https://nytimes.com/2024/10/01/world/asia/song-binbin-dead.html
+
 **Bills' Von Miller, Browns' Mike Hall suspended by NFL**\
 `Bills edge rusher Von Miller received a four-game suspension, while Browns defensive tackle Mike Hall Jr. was suspended five games`\
 https://nytimes.com/athletic/5810580/2024/10/01/nfl-bills-browns-hall-miller-suspensions/

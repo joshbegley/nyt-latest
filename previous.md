@@ -1,3 +1,19 @@
+**The Busiest Port on the East Coast Comes to a Stop**\
+`The strike by longshoremen has halted commerce at Newark and other ports on the East and Gulf Coasts, affecting an ecosystem of supply-chain workers.`\
+https://nytimes.com/2024/10/01/business/economy/dockworkers-strike-newark-port.html
+
+**Jed Hoyer on Cody Bellinger and how it will shape Cubs' offseason**\
+`“When we signed the deal in late February, if he had a good year, we knew he’d have a lot of options,” Hoyer said.`\
+https://nytimes.com/athletic/5810718/2024/10/01/jed-hoyer-cody-bellinger-cubs-offseason/
+
+**CBS Says Trump Withdrew From Planned ‘60 Minutes’ Interview**\
+`This is not the first time that the former president has clashed with the country’s most popular television news program.`\
+https://nytimes.com/2024/10/01/business/media/trump-cbs-60-minutes.html
+
+**Song Binbin, Poster Woman for Mao’s Bloody Revolution, Dies at 77**\
+`She was said to have been involved in the first killing of an educator during the Cultural Revolution, drawing official praise. She later apologized for her actions.`\
+https://nytimes.com/2024/10/01/world/asia/song-binbin-dead.html
+
 **Bills' Von Miller, Browns' Mike Hall suspended by NFL**\
 `Bills edge rusher Von Miller received a four-game suspension, while Browns defensive tackle Mike Hall Jr. was suspended five games`\
 https://nytimes.com/athletic/5810580/2024/10/01/nfl-bills-browns-hall-miller-suspensions/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/01/us/vice-presidents-vance-walz-midwest.html
 **Tarik Skubal dominates, Tigers hang on for Game 1 win over Astros: Takeaways**\
 `Skubal shoved, Framber Valdez struggled, and the Tigers offense did just enough to scratch out a 3-1 win in Game 1 of the Wild Card Series.`\
 https://nytimes.com/athletic/5810672/2024/10/01/tigers-win-astros-tarik-skubal-game-1/
-
-**Jackson Jr. injures hamstring in Grizzlies' first practice**\
-`After a 2023-24 season marred by injuries to key players, the Grizzlies must absorb another loss to begin the 2024-25 campaign.`\
-https://nytimes.com/athletic/5810551/2024/10/01/jaren-jackson-injury-grizzlies-hamstring/
-
-**PGA Tour's Monahan, LIV's Al-Rumayyan playing pro-am together**\
-`Monahan and Al-Rumayyan will also each play a round with Rory McIlroy, the most vocal PGA Tour player for unification.`\
-https://nytimes.com/athletic/5810690/2024/10/01/pga-tour-monahan-liv-yasir-al-rumayyan-dunhill-golf/
-
-**Bills All-22: The running game is still strong, receiver separation is a concern**\
-`Things were bad against the Ravens, but maybe not as bad as they looked.`\
-https://nytimes.com/athletic/5810389/2024/10/01/bills-all-22-ravens-james-cook-josh-allen/
-
-**As Plant Sales Move Online, the Sill Closes Its Last Retail Store**\
-`A trendy company that embraced the plant craze of a decade ago has evolved to fill the needs of a changing demographic.`\
-https://nytimes.com/2024/10/01/style/the-sill-plants-closing-stores.html
 
