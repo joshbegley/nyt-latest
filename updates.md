@@ -1,3 +1,11 @@
+**LeBrun rumblings: CBA talks, cap estimate, expansion, McDavid extension and more from Board of Governors**\
+`Also from the Board of Governors meeting Tuesday in New York: Ullmark extension talks, ownership stakes and a Blue Jackets cap resolution.`\
+https://nytimes.com/athletic/5811099/2024/10/01/nhl-cba-salary-cap-expansion-bog/
+
+**In Congress, Republicans urge Israel to strike back hard at Iran.**\
+`Republican leaders called for more U.S. military support for Israel and retaliation against Iran, as Democratic leaders promised to watch and wait as the situation rapidly deteriorated in the Middle East.`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/in-congress-republicans-urge-israel-to-strike-back-hard-at-iran
+
 **He Called 311 on the Police. They Called Back Making Dolphin Sounds.**\
 `Officer Brendan Sullivan was hit with a fine for harassing a Brooklyn resident who had complained about illegally parked police cruisers.`\
 https://nytimes.com/2024/10/01/nyregion/nypd-officer-harassment-dolphin-noises.html
