@@ -1,3 +1,15 @@
+**Alicia Keys, LaChanze and Billy Porter Gather to Support Black Theater**\
+`The stage stars were among more than 600 people who turned out for an evening of dinner and performances to benefit Black Theater United.`\
+https://nytimes.com/2024/10/01/style/black-theater-united-alicia-keys-lachanze.html
+
+**What Are Ballistic Missiles?**\
+`A look at the kind of weapons fired into Israel.`\
+https://nytimes.com/2024/10/01/world/middleeast/what-are-ballistic-missiles.html
+
+**Multiple People Killed in Tel Aviv Shooting**\
+`Gunmen opened fire on a light rail train in the Jaffa neighborhood of Tel Aviv, killing at least six people and injuring several others.`\
+https://nytimes.com/video/world/middleeast/100000009734369/tel-aviv-shooting-israel.html
+
 **In aftermath of Pete Rose’s death, silence from Rob Manfred and Tony Clark**\
 `It’s customary for the commissioner and union chief to issue comments when a prominent figure in baseball dies. They have not for Pete Rose.`\
 https://nytimes.com/athletic/5810427/2024/10/01/pete-rose-death-rob-manfred-tony-clark/
