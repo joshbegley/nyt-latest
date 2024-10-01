@@ -1,3 +1,7 @@
+**Trump’s Consistent Message Online and Onstage: Be Afraid**\
+`Donald Trump has long used fear as a tool to stir up his conservative base. He’s taking his doomsday approach to a new extreme, predicting World War III and other catastrophes.`\
+https://nytimes.com/2024/10/01/us/politics/trump-fear-speeches.html
+
 **Canadiens' David Reinbacher expected to miss 5-6 months after surgery**\
 `Reinbacher fell awkwardly after a hit by Toronto Maple Leafs defenseman Marshall Rifai in Saturday's preseason 2-1 loss.`\
 https://nytimes.com/athletic/5809781/2024/10/01/canadiens-david-reinbacher-injury/
