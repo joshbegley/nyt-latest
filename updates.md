@@ -1,3 +1,11 @@
+**Iran appears to have used its most advanced missiles in the attack on Israel.**\
+`By Riley Mellen`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/iran-appears-to-have-used-its-most-advanced-missiles-in-the-attack-on-israel
+
+**Champions League Briefing: Arsenal's statement win - and why so many thrashings?**\
+`The big discussion points on the first night of the second round of Champions League group phase games`\
+https://nytimes.com/athletic/5810773/2024/10/01/champions-league-arsenal-psg-barcelona/
+
 **CBS Says Trump Will Not Participate in ‘60 Minutes’ Interview**\
 `This is not the first time that the former president has clashed with the country’s most popular television news program.`\
 https://nytimes.com/2024/10/01/business/media/trump-cbs-60-minutes.html

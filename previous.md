@@ -1,3 +1,11 @@
+**Iran appears to have used its most advanced missiles in the attack on Israel.**\
+`By Riley Mellen`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/iran-appears-to-have-used-its-most-advanced-missiles-in-the-attack-on-israel
+
+**Champions League Briefing: Arsenal's statement win - and why so many thrashings?**\
+`The big discussion points on the first night of the second round of Champions League group phase games`\
+https://nytimes.com/athletic/5810773/2024/10/01/champions-league-arsenal-psg-barcelona/
+
 **Ken Page, Who Starred in ‘Cats’ and Voiced Oogie Boogie, Dies**\
 `The Broadway actor had a storied career that spanned decades.`\
 https://nytimes.com/2024/10/01/arts/ken-page-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/01/business/media/trump-cbs-60-minutes.html
 **Song Binbin, Poster Woman for Mao’s Bloody Revolution, Dies at 77**\
 `She was said to have been involved in the first killing of an educator during the Cultural Revolution, drawing official praise. She later apologized for her actions.`\
 https://nytimes.com/2024/10/01/world/asia/song-binbin-dead.html
-
-**Bills' Von Miller, Browns' Mike Hall suspended by NFL**\
-`Bills edge rusher Von Miller received a four-game suspension, while Browns defensive tackle Mike Hall Jr. was suspended five games`\
-https://nytimes.com/athletic/5810580/2024/10/01/nfl-bills-browns-hall-miller-suspensions/
-
-**Canadiens' Patrik Laine diagnosed with left knee sprain, won't require surgery**\
-`Laine, 26, played in just 18 games Columbus Blue Jackets last season, registering six goals and three assists.`\
-https://nytimes.com/athletic/5810689/2024/10/01/canadiens-patrik-laine-knee-sprain/
 
