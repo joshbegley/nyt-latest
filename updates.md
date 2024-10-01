@@ -1,3 +1,11 @@
+**Q&A: Former MLB commissioner Fay Vincent on passing of Pete Rose**\
+`When he was the deputy commissioner, Vincent was instrumental in investigating the gambling allegations against rose. `\
+https://nytimes.com/athletic/5807830/2024/09/30/qa-fay-vincent-pete-rose-betting-ban/
+
+**How Trump Tore One Family Apart**\
+`His father was “an honest, loving man,” but then fell under the sway of MAGA.`\
+https://nytimes.com/2024/09/30/opinion/jan6-reffitt-fatherland.html
+
 **Scenes from a Mets' celebration: 'This is the standard'**\
 `The Mets savored a long-awaited celebration after what one player called 'The best I've ever played in.'`\
 https://nytimes.com/athletic/5807960/2024/09/30/mets-wild-card-celebration-analysis/
