@@ -1,3 +1,11 @@
+**For East Coast Wine Importers, the Port Workers Strike Brings Fear and Uncertainty**\
+`The strike, disrupting shipments along the East and Gulf Coasts, comes as the wine industry tries to make up its sales after a downturn.`\
+https://nytimes.com/2024/10/01/dining/drinks/port-strike-wine-importers.html
+
+**The Best Movies and TV Shows Coming to Netflix in October**\
+`Keri Russell is back and so is Ali Wong. Here’s a roundup of what’s worth checking out for U.S. subscribers this month.`\
+https://nytimes.com/2024/10/01/arts/television/new-netflix-movies-shows-october.html
+
 **2024 NFL MVP odds: Can Lamar Jackson and Sam Darnold close gap on Patrick Mahomes and Josh Allen?**\
 `Tracking risers and fallers in the NFL awards races; Mahomes and Allen form an elite tier while Jackson starts closing the gap to win MVP.`\
 https://nytimes.com/athletic/5809459/2024/10/01/2024-nfl-mvp-odds-mahomes-allen-jackson-darnold/
