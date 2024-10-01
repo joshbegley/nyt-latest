@@ -1,3 +1,7 @@
+**France’s Prime Minister Urges a Divided Parliament to Give Him a Chance**\
+`Michel Barnier vowed to slash spending and temporarily raise some taxes, but his plan must contend with three bitterly opposed political blocs and an aversion in France to working across party lines.`\
+https://nytimes.com/2024/10/01/world/europe/france-prime-minister-parliament.html
+
 **Ella Leffland, Novelist Drawn to Portraying Outsiders, Dies at 95**\
 `Her work often drew from her upbringing in California amid World War II, such as her intricate novel about the Nazi leader Hermann Goering.`\
 https://nytimes.com/2024/10/01/books/ella-leffland-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5810259/2024/10/01/harry-kane-bayern-munich-injury-
 **Becoming Jack Nicholson**\
 `In his latest feat of prosthetic fun, the performance artist Alexis Stone transformed himself into the actor at the Balenciaga fashion show in Paris.`\
 https://nytimes.com/2024/10/01/style/alexis-stone-jack-nicholson-balenciaga-paris.html
-
-**Noah Gragson on growing up in Vegas and his College Football 25 skills: 12 Questions**\
-`Each week, The Athletic asks the same 12 questions to a different race car driver.`\
-https://nytimes.com/athletic/5801273/2024/10/01/noah-gragson-noah-gragson-college-football-25-12-questions/
 
