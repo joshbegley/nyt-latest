@@ -1,3 +1,7 @@
+**What's ahead for Twins' Carlos Correa, Byron Buxton and Chris Paddack in offseason?**\
+`Checking in on three Twins players and some of what they're focused on as they head into the offseason. `\
+https://nytimes.com/athletic/5807664/2024/10/01/twins-offseason-correa-buxton-paddack/
+
 **Krawczynski: Karl-Anthony Towns' impact in Minnesota goes much deeper than basketball**\
 `Towns and the Timberwolves were able to stay together for as long as they did while enduring so much strife along the way.`\
 https://nytimes.com/athletic/5802060/2024/10/01/karl-anthony-towns-impact-timberwolves-trade/
