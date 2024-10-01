@@ -1,3 +1,7 @@
+**2024 NFL MVP odds: Can Lamar Jackson and Sam Darnold close gap on Patrick Mahomes and Josh Allen?**\
+`Tracking risers and fallers in the NFL awards races; Mahomes and Allen form an elite tier while Jackson starts closing the gap to win MVP.`\
+https://nytimes.com/athletic/5809459/2024/10/01/2024-nfl-mvp-odds-mahomes-allen-jackson-darnold/
+
 **The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in October**\
 `“Citadel: Diana,” “Disclaimer,” “The Franchise,” “Star Trek: Lower Decks,” a Springsteen documentary and others arrive.`\
 https://nytimes.com/2024/10/01/arts/television/october-streaming-movies-television.html

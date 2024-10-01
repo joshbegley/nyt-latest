@@ -1,3 +1,7 @@
+**2024 NFL MVP odds: Can Lamar Jackson and Sam Darnold close gap on Patrick Mahomes and Josh Allen?**\
+`Tracking risers and fallers in the NFL awards races; Mahomes and Allen form an elite tier while Jackson starts closing the gap to win MVP.`\
+https://nytimes.com/athletic/5809459/2024/10/01/2024-nfl-mvp-odds-mahomes-allen-jackson-darnold/
+
 **The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in October**\
 `“Citadel: Diana,” “Disclaimer,” “The Franchise,” “Star Trek: Lower Decks,” a Springsteen documentary and others arrive.`\
 https://nytimes.com/2024/10/01/arts/television/october-streaming-movies-television.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/nyregion/donna-henes-dead.html
 **Seahawks sign OT Jason Peters**\
 `Peters, 42, appeared in eight games for the Seahawks last season, including two starts.`\
 https://nytimes.com/athletic/5809967/2024/10/01/jason-peters-sign-seahawks-nfl/
-
-**The Ghosts of Vice-Presidential Debates Past**\
-`The face-offs between the candidates on the bottom of the ticket have produced some standout moments. Here’s a look at the most memorable exchanges.`\
-https://nytimes.com/2024/10/01/us/politics/past-vice-presidential-debates-history.html
 
