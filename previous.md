@@ -1,3 +1,7 @@
+**Ultimate fantasy basketball tiers: A draft guide for navigating the Top 100 picks of 2024-2025**\
+`Eric Wong breaks up his top 100 fantasy basketball picks for 2024-25 into sub-sections to help guide you through your upcoming drafts.`\
+https://nytimes.com/athletic/5806161/2024/10/01/fantasy-basketball-tiers-top-100-draft-guide-2024-25/
+
 **Fantasy basketball 2024-25 draft cheat sheet: Top 150 players for Roto, head-to-head and points leagues**\
 `Eric Wong offers up his fantasy basketball 2024-25 Top 150 player rankings for Roto, head-to-head and points-based leagues.`\
 https://nytimes.com/athletic/5808580/2024/10/01/fantasy-basketball-draft-player-rankings-cheatsheet-2024-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5805429/2024/10/01/inside-newcastle-qa-eales-almiro
 **Living at La Masia: Why Barcelona's youth academy is still a home to global stars**\
 `Even when players like Lamine Yamal and Pau Cubarsi break into the first team, routines at the academy don't change`\
 https://nytimes.com/athletic/5806174/2024/10/01/lamine-yamal-barcelona-la-masia-pau-cubarsi/
-
-**How Jurrien Timber fought his way back - and why his return has changed Arsenal**\
-`The young defender's return has accelerated Arsenal's evolution`\
-https://nytimes.com/athletic/5805427/2024/10/01/jurrien-timber-arsenal-back/
 
