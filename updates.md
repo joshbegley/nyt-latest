@@ -1,3 +1,11 @@
+**Broncos S Brandon Jones evolves from 'a little bit of unknown' to making impact felt**\
+`Jones missed nearly all of training camp with a hamstring injury, but that hasn't kept him from being a turnover magnet early this season.`\
+https://nytimes.com/athletic/5804801/2024/10/01/broncos-brandon-jones-safety/
+
+**Atletico Madrid's links with radical ultras is a story of violence, emotion and change**\
+`After Sunday's dramatic city derby with Real Madrid, the issue has come under a new global spotlight`\
+https://nytimes.com/athletic/5808705/2024/10/01/atletico-madrid-real-madrid-frente-atletico-ultras-la-liga/
+
 **Why intrigue remains at Edmonton Oilers camp despite few question marks**\
 `Edmonton has gotten to the point where it’s essentially down to two forwards for the final spot: Noah Philp and Raphael Lavoie.`\
 https://nytimes.com/athletic/5808611/2024/10/01/edmonton-oilers-camp-question-marks/
