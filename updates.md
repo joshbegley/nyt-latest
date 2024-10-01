@@ -1,4 +1,8 @@
 **Tracking Attacks in the Vance-Walz Debate**\
+`See how the vice presidential candidates used their speaking time to discuss the issues or criticize their opponent.`\
+https://nytimes.com/interactive/2024/10/01/us/elections/vance-walz-attacks-vp-debate.html
+
+**Tracking Attacks in the Vance-Walz Debate**\
 `See how the candidates used their speaking time to discuss the issues or criticize their opponent.`\
 https://nytimes.com/interactive/2024/10/01/us/elections/vance-walz-attacks-vp-debate.html
 
