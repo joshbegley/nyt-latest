@@ -1,3 +1,7 @@
+**12 teams, 12 champions: History shows us your team’s path to winning the World Series**\
+`Look closely enough and every team in the postseason field resembles one team in recent memory that went all the way.`\
+https://nytimes.com/athletic/5807672/2024/10/01/world-series-comps-mlb/
+
 **2025 NHL Draft top prospects: James Hagens leads first ranking of the season**\
 `Hagens ranks No. 1 on Corey Pronman's list of 2025 NHL Draft prospects, followed closely by Porter Martone.`\
 https://nytimes.com/athletic/5779188/2024/10/01/nhl-draft-2025-prospect-ranking-james-hagens/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5806627/2024/10/01/new-england-patriots-defense-str
 **Koreen: Raptors' Masai Ujiri is carrying a lot these days**\
 `From the personal to the professional, Masai Ujiri is navigating a lot.`\
 https://nytimes.com/athletic/5806959/2024/10/01/toronto-raptors-masai-ujiri-media-day/
-
-**Eric Adams and the Creeping Threat of Foreign Interference**\
-`If other nations can influence New York City’s mayor, who can’t they influence?`\
-https://nytimes.com/2024/10/01/opinion/eric-adams-foreign-interference-democracy.html
 
