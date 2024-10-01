@@ -1,3 +1,7 @@
+**Andrew Tarlow Crosses the East River to Manhattan for Borgo**\
+`The menu for this trattoria stretches the boundaries of Italy’s boot.`\
+https://nytimes.com/2024/10/01/dining/andrew-tarlow-manhattan-restaurant-borgo.html
+
 **Where the Dockworkers’ Union and Port Operators Stand on Key Issues**\
 `The union representing thousands of striking dockworkers is pushing for bigger wage increases than port operators have offered, and a ban on automation.`\
 https://nytimes.com/2024/10/01/business/port-workers-strike-demands-union.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/opinion/donald-trump-kamala-harris-mental-fitness
 **The Metropolitan Opera’s Season Begins With a Boom**\
 `“Grounded,” the new work that opened the season, has been joined by revivals of three Puccini, Verdi and Offenbach classics.`\
 https://nytimes.com/2024/10/01/arts/music/metropolitan-opera-fall-season.html
-
-**DJ Uiagalelei will miss Saturday's game against his former Clemson team**\
-`Florida State quarterback DJ Uiagalelei will miss Saturday's game against his former Clemson team with a finger injury.`\
-https://nytimes.com/athletic/5809716/2024/10/01/fsu-dj-uiagalelei-out-clemson/
 
