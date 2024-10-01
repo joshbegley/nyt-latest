@@ -1,3 +1,15 @@
+**Rosenthal: Ohtani, Judge and 10 more major questions for the MLB postseason**\
+`The playoffs start Tuesday and we've got a question for every team in the postseason.`\
+https://nytimes.com/athletic/5808088/2024/10/01/mlb-playoffs-questions-ohtani-judge/
+
+**Excited about the MLB World Series hopefuls? Here are each of their fatal flaws**\
+`Meet baseball's postseason contenders — and what will ultimately be their undoing. `\
+https://nytimes.com/athletic/5807705/2024/10/01/mlb-playoff-teams-fatal-flaws/
+
+**As Crisis Builds, Lebanon’s Government Is Nowhere to Be Found**\
+`Already crippled by years of economic decline, political paralysis and other crises, Lebanon has little but its own citizens’ grit to survive the Israel-Hezbollah conflict.`\
+https://nytimes.com/2024/10/01/world/middleeast/lebanon-government-failure-israeli-strikes.html
+
 **What I’m seeing from the Patriots: An undermanned defense is struggling**\
 `How did the Patriots go from a top-10 defense to a bottom-10 unit? Between injuries and the loss of Bill Belichick, it's no big surprise.`\
 https://nytimes.com/athletic/5806627/2024/10/01/new-england-patriots-defense-struggles/
