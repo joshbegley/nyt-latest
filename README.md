@@ -1,3 +1,7 @@
+**Who is Tim Walz?**\
+`By Neil Vigdor`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/who-is-tim-walz
+
 **This Perfect Storm of a Port Strike Could Have Been Avoided**\
 `The port strike could have, and should have, been avoided by addressing the regulatory regime that is distorting the industry.`\
 https://nytimes.com/2024/10/01/opinion/port-strike-shipping-union-inflation-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/style/jay-pharoahs-white-gold-cross-necklace.html
 **Read Eric Adams’s Legal Filing**\
 `Mayor Eric Adams’s lawyer filed court papers accusing prosecutors of leaking details of the investigation to reporters.`\
 https://nytimes.com/interactive/2024/10/01/nyregion/eric-adams-legal-filing.html
-
-**We May Be Moments From a Ballistic Missile War in the Mideast**\
-`And this one could involve the United States.`\
-https://nytimes.com/live/2024/09/25/opinion/thepoint/iran-attack-israel
 
