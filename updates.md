@@ -1,3 +1,7 @@
+**Atletico's Le Normand suffers traumatic brain injury after collision**\
+`Atletico Madrid defender Robin Le Normand suffered a traumatic brain injury following a collision of heads in Sunday&#8217;s Madrid derby.`\
+https://nytimes.com/athletic/5809575/2024/10/01/robin-le-normand-injury-atletico-madrid/
+
 **3 Ambitious Song Cycles, but Only One Connects Mind and Heart**\
 `Todd Almond’s “I’m Almost There” is a work of wonder, while Gabriel Kahane’s “Book of Travelers” and “Magnificent Bird” are less effective.`\
 https://nytimes.com/2024/10/01/theater/todd-almond-gabriel-kahane-audible-playwrights-horizons.html

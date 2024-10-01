@@ -1,3 +1,7 @@
+**Atletico's Le Normand suffers traumatic brain injury after collision**\
+`Atletico Madrid defender Robin Le Normand suffered a traumatic brain injury following a collision of heads in Sunday&#8217;s Madrid derby.`\
+https://nytimes.com/athletic/5809575/2024/10/01/robin-le-normand-injury-atletico-madrid/
+
 **3 Ambitious Song Cycles, but Only One Connects Mind and Heart**\
 `Todd Almond’s “I’m Almost There” is a work of wonder, while Gabriel Kahane’s “Book of Travelers” and “Magnificent Bird” are less effective.`\
 https://nytimes.com/2024/10/01/theater/todd-almond-gabriel-kahane-audible-playwrights-horizons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/dining/one-pot-chicken-rice.html
 **The Windup: Just look at this win probability chart**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5809489/2024/10/01/mets-braves-win-probability-the-windup/
-
-**A stronger, more confident Victor Wembanyama hopes to apply offseason lessons he learned**\
-`"The more I grow into my career, the more I realize it's important to work on the fundamentals," Wembanyama said.`\
-https://nytimes.com/athletic/5809137/2024/10/01/victor-wembanyama-offseason-spurs-olympics/
 
