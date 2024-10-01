@@ -1,3 +1,11 @@
+**Vance pitches Republican megadonors on eve of debate.**\
+`By Theodore Schleifer, Maggie Haberman and Jonathan Swan`\
+https://nytimes.com/live/2024/09/30/us/trump-harris-election/vance-pitches-republican-megadonors-on-eve-of-debate
+
+**National League Wild Card Series predictions: Our experts make their picks**\
+`Who will move on to the National League Division Series? Our experts weigh in with their picks.`\
+https://nytimes.com/athletic/5808132/2024/09/30/nl-wild-card-series-predictions/
+
 **Anthony Rendon might not be guaranteed a roster spot in 2025: 'He hasn't been productive'**\
 `The third baseman has played just 257 out of a possible 546 games with the Angels and has not hit a home run since July 2023.
 `\
