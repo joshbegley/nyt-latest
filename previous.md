@@ -32,7 +32,7 @@ https://nytimes.com/2024/10/01/theater/operation-mincemeat-broadway.html
 
 **Here Are the Finalists for the 2024 National Book Award**\
 `Percival Everett’s “James,” Salman Rushdie’s “Knife” and Diane Seuss’ “Modern Poetry” are among the honorees. Winners will be announced next month.`\
-https://nytimes.com/2024/10/01/books/here-are-the-finalists-for-the-2024-national-book-award.html
+https://nytimes.com/2024/10/01/books/finalists-2024-national-book-award.html
 
 **Southampton's Stephens given two-match ban for calling officials 'c****'**\
 `Southampton defender Jack Stephens has been banned for two matches and handed a £50,000 fine after calling an official a “f***ing little c***” after being sent off against Manchester United.`\

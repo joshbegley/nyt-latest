@@ -1,3 +1,7 @@
+**Here Are the Finalists for the 2024 National Book Award**\
+`Percival Everett’s “James,” Salman Rushdie’s “Knife” and Diane Seuss’ “Modern Poetry” are among the honorees. Winners will be announced next month.`\
+https://nytimes.com/2024/10/01/books/finalists-2024-national-book-award.html
+
 **Why a Racist Professor Doesn’t Scare Me**\
 `Having grown up in an increasingly diverse America, I find Amy Wax’s resentments more pathetic than threatening.`\
 https://nytimes.com/2024/10/01/opinion/amy-wax-racism-penn.html
