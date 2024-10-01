@@ -1,3 +1,11 @@
+**What to Know About JD Vance and Project 2025**\
+`JD Vance has repeatedly tried to distance himself from the project, a conservative policy blueprint for a future Republican administration that has outraged Democrats.`\
+https://nytimes.com/2024/10/01/us/politics/jd-vance-project-2025.html
+
+**Lakers coach JJ Redick is impressing players early, plus 4 more training camp storylines**\
+`Through conversations and interactions, the new Lakers coach has made an impact. Plus, a refreshed LeBron and D'Angelo Russell's apology.`\
+https://nytimes.com/athletic/5807902/2024/10/01/lakers-jj-redick-training-camp/
+
 **Israel Has Invaded Lebanon Three Times Before. Here’s a Closer Look.**\
 `In its earlier invasions, Israel said its aim was to secure its northern frontier and stop cross-border attacks, but it achieved less decisive results than military planners and political leaders intended.`\
 https://nytimes.com/2024/10/01/world/middleeast/israel-lebanon-invasions-history.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5803997/2024/10/01/college-football-nil-matt-sluka-
 **SoftBank’s Masa Son Nears His Next Big Bet: OpenAI**\
 `The Japanese tech billionaire is poised to back the start-up, as part of his pledge to go on offense when it comes to investing in artificial intelligence.`\
 https://nytimes.com/2024/10/01/business/dealbook/softbank-son-openai-altman.html
-
-**Eurozone Inflation Slows to 1.8%, Bolstering Bets on Faster Rate Cuts**\
-`Investors now expect the European Central Bank to lower interest rates at its next meeting in October.`\
-https://nytimes.com/2024/10/01/business/eurozone-inflation-ecb-rate-cut.html
-
-**Penguins 2024-25 season preview: Playoff chances, projected points, roster rankings**\
-`For the first time since Sidney Crosby’s rookie season, the Penguins are on the wrong side of the playoff cut line.`\
-https://nytimes.com/athletic/5790692/2024/10/01/pittsburgh-penguins-2024-25-season-preview/
 
