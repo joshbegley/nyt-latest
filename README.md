@@ -15,7 +15,7 @@ https://nytimes.com/2024/09/30/theater/mcneal-review-ai-robert-downey-jr.html
 https://nytimes.com/2024/09/30/pageoneplus/corrections-oct-1-2024.html
 
 **Cubs make changes to Craig Counsell’s staff: Mike Napoli and others are out: Sources**\
-`Chicago cut ties with their first-base coach, bullpen coach and assistant hitting coach.`\
+`Chicago cut ties with its first-base coach, bullpen coach and assistant hitting coach.`\
 https://nytimes.com/athletic/5807969/2024/09/30/cubs-coaching-staff-changes/
 
 **2024 MLB Playoff odds: Dodgers, Yankees among World Series favorites**\
