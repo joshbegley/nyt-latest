@@ -1,3 +1,7 @@
+**Noah Gragson on growing up in Vegas and his College Football 25 skills: 12 Questions**\
+`Each week, The Athletic asks the same 12 questions to a different race car driver.`\
+https://nytimes.com/athletic/5801273/2024/10/01/noah-gragson-noah-gragson-college-football-25-12-questions/
+
 **Biden Scrambles to Contain Economic and Political Fallout of Port Strike**\
 `The labor dispute has forced President Biden and Vice President Kamala Harris into a complicated position just weeks before the election.`\
 https://nytimes.com/2024/10/01/us/politics/biden-strike-port-longshoremen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/dining/drinks/port-strike-wine-importers.html
 **2024 NFL MVP odds: Can Lamar Jackson and Sam Darnold close gap on Patrick Mahomes and Josh Allen?**\
 `Tracking risers and fallers in the NFL awards races; Mahomes and Allen form an elite tier while Jackson starts closing the gap to win MVP.`\
 https://nytimes.com/athletic/5809459/2024/10/01/2024-nfl-mvp-odds-mahomes-allen-jackson-darnold/
-
-**The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in October**\
-`“Citadel: Diana,” “Disclaimer,” “The Franchise,” “Star Trek: Lower Decks,” a Springsteen documentary and others arrive.`\
-https://nytimes.com/2024/10/01/arts/television/october-streaming-movies-shows.html
 
