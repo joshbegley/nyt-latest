@@ -1,9 +1,22 @@
+**How important is matchday revenue to Premier League clubs?**\
+`Match-going fans have seen prices rise at all but one Premier League club this season - and that trend is unlikely to end any time soon`\
+https://nytimes.com/athletic/5776720/2024/10/01/premier-league-tickets-match-day-revenue/
+
+**Support for Erik ten Hag has evaporated after the lowest moment of his Man United tenure**\
+`There are no easy answers to Manchester United's cycle of decline but Erik ten Hag seems to be entering a phase familiar to his predecessors`\
+https://nytimes.com/athletic/5805645/2024/10/01/support-erik-ten-hag-evaporated/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Have we recovered from Georgia-Alabama and the Virginia Tech overturned Hail Mary? Can&#8217;t wait to see what Week 6 brings us?</p>
+<p>Leave your questions here.`\
+https://nytimes.com/athletic/5808472/2024/10/01/submit-a-question-for-stewart-mandels-college-football-mailbag-275/
+
 **UK Black History Month 2024: 'Reclaiming the narratives' around Black British footballers**\
 `An introduction to The Athletic's plans for its Black History Month coverage`\
 https://nytimes.com/athletic/5805915/2024/10/01/black-history-month-uk-2024/
 
 **Reds fans gather to pay their respects to Rose: ‘Pete was Cincinnati’**\
-`Rose grew up just seven miles from where Great American Ball Park now stands. On Monday, fans paid tribute at his statue.`\
+`Rose grew up just 7 miles from where Great American Ball Park now stands. On Monday, fans paid tribute at his statue.`\
 https://nytimes.com/athletic/5808274/2024/10/01/pete-rose-statue-reds-fans-gather/
 
 **What to Watch For in Tuesday’s Vance-Walz Debate**\
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/5793908/2024/10/01/champions-league-preview-matchda
 **Arsenal-PSG Champions League preview: Storylines, odds, prediction as Gunners host PSG**\
 `Paris Saint-Germain has capably moved on from the departure of Kylian Mbappe, but can they take down Arsenal at the Emirates?`\
 https://nytimes.com/athletic/5806219/2024/10/01/arsenal-paris-saint-germain-psg-preview-odds-prediction/
-
-**Week 5 waiver wire: Streamers, Kareem Hunt, Roschon Johnson and more**\
-`Jake Ciely helps you find injury and bye week replacements on the Week 5 waiver wire, led by Dontayvion Wicks and more important names.`\
-https://nytimes.com/athletic/5804234/2024/10/01/fantasy-football-week-5-waiver-wire-streamers-kareem-hunt-dontayvion-wicks/
-
-**Super Typhoon Krathon Nears Taiwan After Lashing the Philippines**\
-`The storm is expected to bring torrential rain this week to Taiwan’s southwest, including Kaohsiung, the island’s third-largest city.`\
-https://nytimes.com/2024/09/30/world/asia/typhoon-krathon-taiwan.html
-
-**Quote of the Day: Fire Renewed Forests. Now It’s Their Enemy.**\
-`Quotation of the Day for Tuesday, October 1, 2024.`\
-https://nytimes.com/2024/09/30/pageoneplus/quote-of-the-day-fire-renewed-forests-now-its-their-enemy.html
 
