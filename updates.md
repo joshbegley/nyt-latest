@@ -1,3 +1,11 @@
+**In Iran, Military Commanders Win the Day, Then Israel Is Hit**\
+`The barrage of missile fire came after much debate among Iranian leaders, officials there say.`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/iran-israel-strike
+
+**John Amos, a Star of ‘Good Times’ and ‘Roots,’ Dies at 84**\
+`He was the patriarch in one of the first sitcoms with an all-Black cast and an enslaved African as a grown man in the blockbuster TV mini-series.`\
+https://nytimes.com/2024/10/01/arts/john-amos-dead.html
+
 **Can a Vice-Presidential Debate Shift the Polls? History Shows It’s Unlikely.**\
 `But Tuesday’s debate could give voters a better sense of how they feel about JD Vance and Tim Walz, since many don’t have an impression of them.`\
 https://nytimes.com/2024/10/01/us/elections/vp-debate-polls.html
