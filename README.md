@@ -1,3 +1,11 @@
+**After Warm Welcome in Asia, Pope Francis Gets a Cool Reception in Belgium**\
+`Francis drew attacks over clergy sexual abuse, the role of women in the church and his stance on abortion, reflecting difficulties the church faces in the West.`\
+https://nytimes.com/2024/10/01/world/europe/pope-francis-catholic-church-belgium.html
+
+**New Children’s Museum of Manhattan to Open in 2028**\
+`Laurie M. Tisch has donated $50 million to the $300 million capital campaign for a new location on Central Park West.`\
+https://nytimes.com/2024/10/01/arts/design/childrens-museum-manhattan-2028-tisch.html
+
 **Troops and military vehicles take up positions in northern Israel.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/troops-and-military-vehicles-take-up-positions-in-northern-israel
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate
 **Here’s who will be in the spin room for Tim Walz.**\
 `By Katie Glueck`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/heres-who-will-be-in-the-spin-room-for-tim-walz
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/heres-the-latest-on-the-presidential-race
-
-**The Athletic FC: Who are the Atleti ultras? Plus: A 17-year-old's $555m buy-out clause**\
-`Today in TAFC: Who are Atletico's ultra fans who stopped the Madrid derby? Plus: Bernal's $555m release clause and an awesome no-look pass`\
-https://nytimes.com/athletic/5808816/2024/10/01/atletico-ultras-real-madrid-derby/
 
