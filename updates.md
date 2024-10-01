@@ -1,3 +1,7 @@
+**Canadiens' David Reinbacher expected to miss 5-6 months after surgery**\
+`Reinbacher fell awkwardly after a hit by Toronto Maple Leafs defenseman Marshall Rifai in Saturday's preseason 2-1 loss.`\
+https://nytimes.com/athletic/5809781/2024/10/01/canadiens-david-reinbacher-injury/
+
 **Why Restoring Power After Helene Is Complicated**\
 `Damage went beyond downed power lines. Hundreds of substations went out after the storm. Getting them back online is difficult.`\
 https://nytimes.com/2024/10/01/climate/helene-hurricane-power-carolinas.html

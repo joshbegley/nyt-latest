@@ -1,3 +1,7 @@
+**Canadiens' David Reinbacher expected to miss 5-6 months after surgery**\
+`Reinbacher fell awkwardly after a hit by Toronto Maple Leafs defenseman Marshall Rifai in Saturday's preseason 2-1 loss.`\
+https://nytimes.com/athletic/5809781/2024/10/01/canadiens-david-reinbacher-injury/
+
 **Why Restoring Power After Helene Is Complicated**\
 `Damage went beyond downed power lines. Hundreds of substations went out after the storm. Getting them back online is difficult.`\
 https://nytimes.com/2024/10/01/climate/helene-hurricane-power-carolinas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/world/asia/china-zoo-painted-dogs-pandas.html
 **MacArthur Foundation Announces 2024 ‘Genius’ Grant Winners**\
 `On Tuesday, 22 anonymously nominated Americans were recognized with fellowships and an $800,000 stipend.`\
 https://nytimes.com/2024/10/01/arts/macarthur-foundation-2024-genius-grant-winners.html
-
-**Jay Pharoah’s White Gold Cross Necklace**\
-`The “Saturday Night Live” alum — whose new comedy special, “Jared,” was just released — wears a cross around his neck not just as a symbol, but a reminder of how to live his life.`\
-https://nytimes.com/2024/10/01/style/jay-pharoahs-white-gold-cross-necklace.html
 
