@@ -1,3 +1,11 @@
+**Brewers vs. Mets Wild Card Series preview: Predictions, pitching matchups and more**\
+`The runaway NL Central winners will host the Mets, who played .625 ball over the past four months, with the victor advancing to face Philly.`\
+https://nytimes.com/athletic/5807246/2024/09/30/brewers-mets-2024-wild-card-series-preview-predictions/
+
+**Why the Suns' second season with the 'Big Three' might be different with Tyus Jones**\
+`Instead of trying to prove everyone right, chasing expectations like last season, the Suns may be more determined to prove everyone wrong.`\
+https://nytimes.com/athletic/5807807/2024/09/30/phoenix-suns-tyus-jones-kevin-durant-big-three/
+
 **With Grant Holmes filling in for Chris Sale, persistent Braves clinch in Game 162**\
 `Holmes, the surprise hero, departed to a thunderous ovation from a sold-out crowd of 41,561: “There aren’t words for it.”`\
 https://nytimes.com/athletic/5808242/2024/09/30/braves-clinch-wild-card-grant-holmes/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spo
 **Q&A: Former MLB commissioner Fay Vincent on Pete Rose's passing, Hall of Fame chances, legacy**\
 `When he was the deputy commissioner, Vincent was instrumental in investigating the gambling allegations against rose. `\
 https://nytimes.com/athletic/5807830/2024/09/30/qa-fay-vincent-pete-rose-betting-ban/
-
-**How Trump Tore One Family Apart**\
-`His father was “an honest, loving man,” but then fell under the sway of MAGA.`\
-https://nytimes.com/2024/09/30/opinion/jan6-reffitt-fatherland.html
-
-**Scenes from a Mets' celebration: 'This is the standard'**\
-`The Mets savored a long-awaited celebration after what one player called "the best (game) I've ever played in."`\
-https://nytimes.com/athletic/5807960/2024/09/30/mets-wild-card-celebration-analysis/
 
