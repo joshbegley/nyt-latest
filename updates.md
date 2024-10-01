@@ -1,3 +1,11 @@
+**Cambodia Arrests Journalist Known for Exposing Scam Centers**\
+`The authorities did not give a reason for the action, but it came after the United States punished a tycoon for what it said was his role in the scam compounds.`\
+https://nytimes.com/2024/10/01/world/asia/cambodia-journalist-mech-dara-arrest.html
+
+**Live Updates: Israel Launches Invasion Into Southern Lebanon**\
+`Israeli troops crossed the border after a prolonged bombing campaign aimed at killing many of Hezbollah’s top leaders and destroying some of its weapons.`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah
+
 **Live Updates: Israel Launches Invasion in Southern Lebanon**\
 `Israeli troops crossed the border after a prolonged bombing campaign aimed at killing many of Hezbollah’s top leaders and destroying some of its weapons.`\
 https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah
