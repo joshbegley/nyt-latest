@@ -1,3 +1,15 @@
+**Andrew Tarlow Crosses the East River to Manhattan for Borgo**\
+`The menu for this trattoria stretches the boundaries of Italy’s boot.`\
+https://nytimes.com/2024/10/01/dining/andrew-tarlow-manhattan-restaurant-borgo.html
+
+**Where the Dockworkers’ Union and Port Operators Stand on Key Issues**\
+`The union representing thousands of striking dockworkers is pushing for bigger wage increases than port operators have offered, and a ban on automation.`\
+https://nytimes.com/2024/10/01/business/port-workers-strike-demands-union.html
+
+**Who is JD Vance?**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/who-is-jd-vance
+
 **Trump’s Consistent Message Online and Onstage: Be Afraid**\
 `Donald Trump has long used fear as a tool to stir up his conservative base. He’s taking his doomsday approach to a new extreme, predicting World War III and other catastrophes.`\
 https://nytimes.com/2024/10/01/us/politics/trump-fear-speeches.html
