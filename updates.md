@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Victoria Kim and Natan Odenheimer`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/here-are-the-latest-developments
+
+**Live Updates: Israel Invades Southern Lebanon**\
+`Israeli troops crossed the border after a prolonged bombing campaign aimed at killing many of Hezbollah’s top leaders and destroying some of its weapons.`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah
+
 **Dan Campbell feels 'awful' after not giving game ball to Goff**\
 `Campbell gave receiver Jameson Williams and safety Kerby Joseph game balls for their strong play.`\
 https://nytimes.com/athletic/5808444/2024/10/01/dan-campbell-jared-goff-game-ball/
