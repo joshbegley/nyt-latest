@@ -1,3 +1,7 @@
+**Israel weighs a counterattack after the Iranian missile barrage.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/israel-weighs-a-counterattack-after-the-iranian-missile-barrage
+
 **U.S. Destroyers Helped Israel Intercept Iran’s Missiles, Biden Says**\
 `A Pentagon spokesman added that the Americans had launched a dozen interceptors against the Iranian missiles and that none of the 40,000 U.S. troops in the region were hurt in the attacks.`\
 https://nytimes.com/2024/10/01/world/middleeast/us-destroyers-israel-iran-missiles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5810538/2024/10/01/twins-hitting-coaches-david-popk
 **How to Punish Mayor Adams for Abusing New York Taxpayers**\
 `He needs to be kicked out of the city’s campaign finance system immediately, a councilman argues.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/adams-punishment-campaign-finance
-
-**The Briefing: Slovan Bratislava 0 Manchester City 4: Doku's end product, a record equalled and 28 shots**\
-`Manchester City cruised to victory in Slovakia and equalled a Champions League record - Sam Lee analyses the talking points`\
-https://nytimes.com/athletic/5801015/2024/10/01/slovan-bratislava-0-manchester-city-4-record-doku-foden-haaland/
 
