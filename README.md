@@ -1,3 +1,7 @@
+**Justin Verlander out, Yordan Alvarez in for Astros in Wild Card Series**\
+`The Verlander omission was widely anticipated. Manager Joe Espada called the conversation with him "very easy." "He is a true pro." `\
+https://nytimes.com/athletic/5809580/2024/10/01/justin-verlander-yordan-alvarez-astros-wild-card-roster/
+
 **Adams Accuses Prosecutors of Leaking Investigation Details to News Media**\
 `In a court filing Tuesday morning, lawyers for Mayor Eric Adams asked a judge to hold a hearing about what they said were grand jury secrecy violations.`\
 https://nytimes.com/2024/10/01/nyregion/eric-adams-prosecutors-leaks.html
