@@ -1,3 +1,7 @@
+**Jota to be assessed ahead of Liverpool vs Bologna**\
+`Diogo Jota missed training as a precaution as Liverpool continue their preparations for Wednesday&#8217;s Champions League clash with Bologna at Anfield.`\
+https://nytimes.com/athletic/5808894/2024/10/01/diogo-jota-injury-liverpool-bologna/
+
 **Jannik Sinner's doping case explained: What WADA appeal means and what is at stake for tennis**\
 `The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
 https://nytimes.com/athletic/5806315/2024/10/01/jannik-sinner-doping-case-tennis-explained/

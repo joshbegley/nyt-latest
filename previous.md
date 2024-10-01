@@ -1,3 +1,7 @@
+**Jota to be assessed ahead of Liverpool vs Bologna**\
+`Diogo Jota missed training as a precaution as Liverpool continue their preparations for Wednesday&#8217;s Champions League clash with Bologna at Anfield.`\
+https://nytimes.com/athletic/5808894/2024/10/01/diogo-jota-injury-liverpool-bologna/
+
 **Dikembe Mutombo's NBA brethren: 'We were all better in our existence' for knowing him**\
 `Jeff Van Gundy, Bernie Bickerstaff and Mutombo's teammates on the legacy of the beloved player: "There was no way you could not like him."`\
 https://nytimes.com/athletic/5808553/2024/10/01/dikembe-mutombo-death-tributes-nba-players-coaches/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5807054/2024/10/01/jared-goff-lions-seahawks-the-pu
 **Iran’s Tepid Response (So Far)**\
 `We explore why Tehran has responded so meekly to recent attacks on its top officials and close allies.`\
 https://nytimes.com/2024/10/01/briefing/iran-israel-hezbollah-middle-east.html
-
-**What's ahead for Twins' Carlos Correa, Byron Buxton and Chris Paddack in offseason?**\
-`Checking in on three Twins players and some of what they're focused on as they head into the offseason. `\
-https://nytimes.com/athletic/5807664/2024/10/01/twins-offseason-correa-buxton-paddack/
 
