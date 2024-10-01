@@ -1,3 +1,7 @@
+**Buster Posey takes reins in Giants' front office, enthusiasm abounds: 'I'm sure he will excel'**\
+`Posey brings a unique background: "He's a person who can understand the ins and outs, the analytics and different ways to view the game."`\
+https://nytimes.com/athletic/5808143/2024/09/30/buster-posey-sf-giants-president-baseball-operations/
+
 **Michael King, Padres’ Game 1 starter, has come a long way from an empty Petco Park**\
 `King threw two innings of relief for the Yankees on Oct. 7, 2020 in a virtually empty Petco Park. Now he'll start Game 1 for San Diego.`\
 https://nytimes.com/athletic/5807406/2024/09/30/padres-michael-king-game-1-starter-wcs/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/09/30/theater/mcneal-review-ai-robert-downey-jr.html
 **Corrections: Oct. 1, 2024**\
 `Corrections that appeared in print on Tuesday, Oct. 1, 2024.`\
 https://nytimes.com/2024/09/30/pageoneplus/corrections-oct-1-2024.html
-
-**Cubs make changes to Craig Counsell’s staff: Mike Napoli and others are out: Sources**\
-`Chicago cut ties with its first-base coach, bullpen coach and assistant hitting coach.`\
-https://nytimes.com/athletic/5807969/2024/09/30/cubs-coaching-staff-changes/
 
