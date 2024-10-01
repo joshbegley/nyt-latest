@@ -1,3 +1,7 @@
+**2025 NHL Draft top prospects: James Hagens leads first ranking of the season**\
+`Hagens ranks No. 1 on Corey Pronman's list of 2025 NHL Draft prospects, followed closely by Porter Martone.`\
+https://nytimes.com/athletic/5779188/2024/10/01/nhl-draft-2025-prospect-ranking-james-hagens/
+
 **Ranking the 36 possible World Series matchups, from least to most interesting**\
 `A 12-team playoff field means 36 possible World Series combinations. All of them, in their own way, would be great.`\
 https://nytimes.com/athletic/5808243/2024/10/01/world-series-matchups-mlb-ranking/
