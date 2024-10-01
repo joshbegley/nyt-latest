@@ -1,3 +1,19 @@
+**Bills' Von Miller, Browns' Mike Hall suspended by NFL**\
+`Bills edge rusher Von Miller received a four-game suspension, while Browns defensive tackle Mike Hall Jr. was suspended five games`\
+https://nytimes.com/athletic/5810580/2024/10/01/nfl-bills-browns-hall-miller-suspensions/
+
+**Canadiens' Patrik Laine diagnosed with left knee sprain, won't require surgery**\
+`Laine, 26, played in just 18 games Columbus Blue Jackets last season, registering six goals and three assists.`\
+https://nytimes.com/athletic/5810689/2024/10/01/canadiens-patrik-laine-knee-sprain/
+
+**Halloween in New York: Things to Do in October**\
+`The Village Halloween Parade will feature a “cat lady” section, and the New York Botanical Garden has a Tim Burton light installation, plus much more.`\
+https://nytimes.com/2024/10/01/arts/halloween-new-york-things-to-do-october.html
+
+**Tracking Tropical Depression Eleven-e**\
+`See the likely path and wind arrival times for Eleven-e.`\
+https://nytimes.com/interactive/2024/10/01/weather/eleven-e-map-path-tracker.html
+
 **When an Ohioan Debates a Minnesotan, the Midwest Takes Center Stage**\
 `JD Vance and Tim Walz each have roots in the Midwest, but how voters in the region will view the vice-presidential candidates’ different visions remains to be seen.`\
 https://nytimes.com/2024/10/01/us/vice-presidents-vance-walz-midwest.html
