@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5807264/2024/10/01/southampton-premier-league-russe
 `By Victoria Kim and Natan Odenheimer`\
 https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/here-are-the-latest-developments
 
-**Live Updates: Israel Launches Invasion into Southern Lebanon**\
+**Live Updates: Israel Launches Invasion in Southern Lebanon**\
 `Israeli troops crossed the border after a prolonged bombing campaign aimed at killing many of Hezbollah’s top leaders and destroying some of its weapons.`\
 https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah
 
