@@ -2,7 +2,7 @@
 `Who will move on to the American League Division Series? Our experts weigh in with their picks.`\
 https://nytimes.com/athletic/5807215/2024/09/30/al-wild-card-series-predictions/
 
-**Buster Posey takes reins in Giants' front office, enthusiasm abounds: 'I'm sure he will excel'**\
+**Buster Posey takes reins in Giants front office, enthusiasm abounds: 'I'm sure he will excel'**\
 `Posey brings a unique background: "He's a person who can understand the ins and outs, the analytics and different ways to view the game."`\
 https://nytimes.com/athletic/5808143/2024/09/30/buster-posey-sf-giants-president-baseball-operations/
 
