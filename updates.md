@@ -1,3 +1,7 @@
+**Is a No-Nonsense Dutchman Just What NATO Needs?**\
+`In some countries, the job of a president or prime minister is a visionary one. Not here in Holland.`\
+https://nytimes.com/2024/10/01/opinion/nato-mark-rutte.html
+
 **How the Dockworkers’ Strike Could Ripple Through the Economy**\
 `Transportation and warehousing sectors are poised to first feel the pinch, with a broader economic fallout expected if the strike drags on.`\
 https://nytimes.com/2024/10/01/business/economy/port-dockworkers-strike-economy.html
