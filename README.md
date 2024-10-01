@@ -1,3 +1,11 @@
+**Early Voting Has Started. Here’s What to Watch.**\
+`Track the early vote for the 2024 election.`\
+https://nytimes.com/interactive/2024/us/elections/early-vote-tracker-2024.html
+
+**College football broadcast rankings: Another Fowler-Herbstreit masterclass**\
+`ABC/ESPN's top crew called the frantic final quarter of this year’s game of the century, as Alabama outlasted Georgia.`\
+https://nytimes.com/athletic/5806179/2024/10/01/college-football-broadcast-rankings-fowler-herbstreit/
+
 **Assange, in First Speech Since Release, Says He Was Jailed for Journalism**\
 `Julian Assange, the WikiLeaks founder, said in public remarks in Strasbourg, France, that his imprisonment had set a dangerous precedent.`\
 https://nytimes.com/2024/10/01/world/europe/julian-assange-journalism-wikileaks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/01/world/asia/cambodia-journalist-mech-dara-arrest.h
 **Baby Hippo**\
 `Moo Deng, a baby pygmy hippo at a zoo in Thailand, has become a social media star. Are you a fan?`\
 https://nytimes.com/2024/10/01/learning/baby-hippo.html
-
-**Not Just Fun and Games: Politics Edges Deeper Into Livestreams**\
-`As more streamers discuss politics, including major events like Tuesday’s debate, they have become the focus of intense interest for both presidential campaigns.`\
-https://nytimes.com/2024/10/01/business/media/politics-debate-streamers.html
-
-**Behind School Bus Mess, a 45-Year-Old Contract That’s Hard to Change**\
-`Students across New York City are waiting up to an hour for school buses as a driver shortage and conflict over a contract hamstring the city’s ability to find a solution.`\
-https://nytimes.com/2024/10/01/nyregion/nyc-school-bus-delays.html
 
