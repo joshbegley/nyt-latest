@@ -1,3 +1,7 @@
+**Israel Has Destroyed Half of Hezbollah’s Arsenal, U.S. and Israeli Officials Say**\
+`The Lebanese militia is seeking more weapons from Iran, the officials said. It has yet to fire large barrages at Israel, and its top ranks have been crippled by Israeli strikes.`\
+https://nytimes.com/2024/10/01/us/politics/israel-lebanon-hezbollah-airstrikes.html
+
 **Pras Sues Lauryn Hill Over Canceled Fugees Tour, Alleging Fraud**\
 `Ms. Hill was accused of deceiving the other group members about tour finances. She called the lawsuit “baseless” and “full of false claims.”`\
 https://nytimes.com/2024/10/01/arts/music/pras-lauryn-hill-fugees-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/arts/music/amplifier-newsletter-billie-eilish-gre
 **All the Makeup Brushes You Actually Need — and How to Clean Them**\
 `From a hard-working powder brush to a simple spoolie, these are the tools the professionals recommend.`\
 https://nytimes.com/article/makeup-brush-guide.html
-
-**Braves leave Chris Sale off Wild Card Series roster**\
-`Sale had a 2.38 ERA and 1.013 WHIP this season, his first with Atlanta. But Sale’s velocity dipped recently.`\
-https://nytimes.com/athletic/5810068/2024/10/01/braves-chris-sale-wild-card-roster/
 
