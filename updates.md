@@ -1,3 +1,11 @@
+**15-Year-Old Is Charged With Murder in Fatal Shooting of Chicago Postal Worker**\
+`The authorities said that the teenager was found and arrested in Iowa on Monday. The police say he shot a postal worker on Chicago’s South Side several times in July.`\
+https://nytimes.com/2024/10/01/us/postal-worker-shooting-arrest-teen.html
+
+**Iran Attacked Israel With Waves of Missiles**\
+`Also, Tim Walz and JD Vance will face off tonight in a debate. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/10/01/briefing/iran-israel-attack-vice-presidential-debate.html
+
 **‘Water for Elephants’ to Close on Broadway**\
 `The musical, based on the best-selling novel, featured dazzling acrobatics and puppetry. Its final performance will be Dec. 8.`\
 https://nytimes.com/2024/10/01/theater/water-elephants-broadway-closing.html
