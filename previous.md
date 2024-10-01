@@ -1,4 +1,12 @@
-**Israel Starts Lebanon Ground Invasion, and Hundreds Missing After Helene**\
+**Why Spurs' Chris Paul and Gregg Popovich are a perfect match in San Antonio**\
+`"I never stop learning," says Paul. "I’m excited to hear Pop’s way of doing things." `\
+https://nytimes.com/athletic/5807594/2024/10/01/spurs-chris-paul-gregg-popovich-relationship/
+
+**Rookie punter Tory Taylor showing why the Bears wanted him and his bag of tricks**\
+`Taylor had his best game of the season in the Bears' 24-18 win against the Los Angeles Rams.`\
+https://nytimes.com/athletic/5807301/2024/10/01/bears-punter-tory-taylor/
+
+**Israel Starts Lebanon Ground Invasion, and Hundreds Are Missing After Helene**\
 `Plus, Jimmy Carter turns 100.`\
 https://nytimes.com/2024/10/01/podcasts/israel-lebanon-helene.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5807260/2024/10/01/pat-murphy-brewers-manager-painf
 **Bill DeWitt Jr., John Mozeliak address Cardinals' transition period: 'It's not an excuse'**\
 `The first step of this overhaul is to get the Cardinals back to where they once thrived: developing homegrown talent.`\
 https://nytimes.com/athletic/5807100/2024/10/01/cardinals-front-office-changes/
-
-**Colts don't want to limit Anthony Richardson, but his body keeps giving them reasons to**\
-`The Colts have hitched their future to a physically gifted QB whose latest injury raises concerns about just how physical he can be.`\
-https://nytimes.com/athletic/5807824/2024/10/01/colts-anthony-richardson-injuries-hip/
-
-**NHL waiver wire goalie targets: The top 5 who might become available**\
-`Projecting five goalies who could find themselves on the waiver wire as teams trim their rosters. `\
-https://nytimes.com/athletic/5807203/2024/10/01/nhl-waivers-goalies-lyon/
 

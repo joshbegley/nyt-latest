@@ -1,3 +1,15 @@
+**Why Spurs' Chris Paul and Gregg Popovich are a perfect match in San Antonio**\
+`"I never stop learning," says Paul. "I’m excited to hear Pop’s way of doing things." `\
+https://nytimes.com/athletic/5807594/2024/10/01/spurs-chris-paul-gregg-popovich-relationship/
+
+**Rookie punter Tory Taylor showing why the Bears wanted him and his bag of tricks**\
+`Taylor had his best game of the season in the Bears' 24-18 win against the Los Angeles Rams.`\
+https://nytimes.com/athletic/5807301/2024/10/01/bears-punter-tory-taylor/
+
+**Israel Starts Lebanon Ground Invasion, and Hundreds Are Missing After Helene**\
+`Plus, Jimmy Carter turns 100.`\
+https://nytimes.com/2024/10/01/podcasts/israel-lebanon-helene.html
+
 **Israel Starts Lebanon Ground Invasion, and Hundreds Missing After Helene**\
 `Plus, Jimmy Carter turns 100.`\
 https://nytimes.com/2024/10/01/podcasts/israel-lebanon-helene.html
