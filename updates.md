@@ -1,3 +1,7 @@
+**The Veep Debate, or When the Opening Act Becomes the Headliner**\
+`Tonight’s showdown could be the last between representatives of both tickets before the election.`\
+https://nytimes.com/2024/10/01/us/politics/walz-vance-vp-debate-importance.html
+
 **Thomas Friedman: ‘This Is Code Red Time in the Middle East’**\
 `The columnist weighs in on Iran’s retaliatory strike against Israel and what comes next.`\
 https://nytimes.com/2024/10/01/opinion/thomas-friedman-iran-israel.html
