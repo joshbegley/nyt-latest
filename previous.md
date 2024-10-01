@@ -23,7 +23,7 @@ https://nytimes.com/2024/10/01/business/economy/port-dockworkers-strike-economy.
 https://nytimes.com/2024/10/01/business/economy/port-strike.html
 
 **Dan Campbell feels 'awful' after not giving game ball to Goff**\
-`Campbell gave receiver Jameson Williams and cornerback Kirby Joseph the game balls for their strong play.`\
+`Campbell gave receiver Jameson Williams and safety Kerby Joseph game balls for their strong play.`\
 https://nytimes.com/athletic/5808444/2024/10/01/dan-campbell-jared-goff-game-ball/
 
 **Liverpool need more from Szoboszlai - he is key to Slot's system**\

@@ -1,3 +1,7 @@
+**Dan Campbell feels 'awful' after not giving game ball to Goff**\
+`Campbell gave receiver Jameson Williams and safety Kerby Joseph game balls for their strong play.`\
+https://nytimes.com/athletic/5808444/2024/10/01/dan-campbell-jared-goff-game-ball/
+
 **Fantasy basketball 2024-25 draft cheat sheet: Top 150 players for roto, head-to-head and points leagues**\
 `Eric Wong offers up his fantasy basketball 2024-25 Top 150 player rankings for roto, head-to-head and points-based leagues.`\
 https://nytimes.com/athletic/5808580/2024/10/01/fantasy-basketball-draft-player-rankings-cheatsheet-2024-25/
