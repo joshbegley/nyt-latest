@@ -1,3 +1,7 @@
+**Trump’s Consistent Message Online and Onstage: Be Afraid**\
+`Donald Trump has long used fear as a tool to stir up his conservative base. He’s taking his doomsday approach to a new extreme, predicting World War III and other catastrophes.`\
+https://nytimes.com/2024/10/01/us/politics/trump-fear-speeches.html
+
 **Canadiens' David Reinbacher expected to miss 5-6 months after surgery**\
 `Reinbacher fell awkwardly after a hit by Toronto Maple Leafs defenseman Marshall Rifai in Saturday's preseason 2-1 loss.`\
 https://nytimes.com/athletic/5809781/2024/10/01/canadiens-david-reinbacher-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5809500/2024/10/01/super-bowl-2025-odds-chiefs-49er
 **Is That a Panda? Or a Dog in Disguise?**\
 `Zoos around the world have occasionally used a little dye, or just brazenness, to pass off one animal as another.`\
 https://nytimes.com/2024/10/01/world/asia/china-zoo-painted-dogs-pandas.html
-
-**MacArthur Foundation Announces 2024 ‘Genius’ Grant Winners**\
-`On Tuesday, 22 anonymously nominated Americans were recognized with fellowships and an $800,000 stipend.`\
-https://nytimes.com/2024/10/01/arts/macarthur-foundation-2024-genius-grant-winners.html
 
