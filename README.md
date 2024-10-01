@@ -1,3 +1,7 @@
+**Why Restoring Power After Helene Is Complicated**\
+`Damage went beyond downed power lines. Hundreds of substations went out after the storm. Getting them back online is difficult.`\
+https://nytimes.com/2024/10/01/climate/helene-hurricane-power-carolinas.html
+
 **Who is Tim Walz?**\
 `By Neil Vigdor`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/who-is-tim-walz
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/arts/macarthur-foundation-2024-genius-grant-winne
 **Jay Pharoah’s White Gold Cross Necklace**\
 `The “Saturday Night Live” alum — whose new comedy special, “Jared,” was just released — wears a cross around his neck not just as a symbol, but a reminder of how to live his life.`\
 https://nytimes.com/2024/10/01/style/jay-pharoahs-white-gold-cross-necklace.html
-
-**Read Eric Adams’s Legal Filing**\
-`Mayor Eric Adams’s lawyer filed court papers accusing prosecutors of leaking details of the investigation to reporters.`\
-https://nytimes.com/interactive/2024/10/01/nyregion/eric-adams-legal-filing.html
 
