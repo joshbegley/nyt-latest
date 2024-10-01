@@ -1,3 +1,7 @@
+**Ella Leffland, Novelist Drawn to Portraying Outsiders, Dies at 95**\
+`Her work often drew from her upbringing in California amid World War II, such as her intricate novel about the Nazi leader Hermann Goering.`\
+https://nytimes.com/2024/10/01/books/ella-leffland-dead.html
+
 **Until Saturday: Realignment never stops, plus our first Heisman straw poll of 2024**\
 `Welcome to Until Saturday, the five-star college football newsletter: What's the latest for Pac-12, Mountain West Conference realignment?`\
 https://nytimes.com/athletic/5809714/2024/10/01/gonzaga-pac-12-utep-mountain-west-heisman-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/style/alexis-stone-jack-nicholson-balenciaga-pari
 **Noah Gragson on growing up in Vegas and his College Football 25 skills: 12 Questions**\
 `Each week, The Athletic asks the same 12 questions to a different race car driver.`\
 https://nytimes.com/athletic/5801273/2024/10/01/noah-gragson-noah-gragson-college-football-25-12-questions/
-
-**Biden Scrambles to Contain Economic and Political Fallout of Port Strike**\
-`The labor dispute has forced President Biden and Vice President Kamala Harris into a complicated position just weeks before the election.`\
-https://nytimes.com/2024/10/01/us/politics/biden-strike-port-longshoremen.html
 
