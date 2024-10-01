@@ -1,3 +1,7 @@
+**Inside a Trump Ad Slamming Harris Over the Push for Electric Vehicles**\
+`Scaremongering in Michigan, an ad claims that the vice president wants to “end all gas-powered cars” and that her policies would lead to “massive layoffs.”`\
+https://nytimes.com/2024/10/01/us/politics/inside-a-trump-ad-slamming-harris-over-the-push-for-electric-vehicles.html
+
 **Iran Fires Missile Barrage Toward Israel**\
 `The attack, which comes days after the assassination of Hezbollah’s leader, Hassan Nasrallah, marks a sharp escalation in the conflict between Israel and Iran.`\
 https://nytimes.com/video/world/middleeast/100000009734088/israel-iran-missile-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5809686/2024/10/01/college-football-super-league-st
 **Israel Has Destroyed Half of Hezbollah’s Arsenal, U.S. and Israeli Officials Say**\
 `The Lebanese militia is seeking more weapons from Iran, the officials said. It has yet to fire large barrages at Israel, and its top ranks have been crippled by Israeli strikes.`\
 https://nytimes.com/2024/10/01/us/politics/israel-lebanon-hezbollah-airstrikes.html
-
-**Pras Sues Lauryn Hill Over Canceled Fugees Tour, Alleging Fraud**\
-`Ms. Hill was accused of deceiving the other group members about tour finances. She called the lawsuit “baseless” and “full of false claims.”`\
-https://nytimes.com/2024/10/01/arts/music/pras-lauryn-hill-fugees-lawsuit.html
 
