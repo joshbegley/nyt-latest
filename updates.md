@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spo
 `\
 https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
 
+**Anthony Rendon might not be guaranteed a roster spot in 2025: 'He hasn't been productive'**\
+`The third baseman has played just 257 out of a possible 546 games with the Angels and has not hit a home run since July 2023.
+`\
+https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
+
 **Q&A: Former MLB commissioner Fay Vincent on Pete Rose's passing, Hall of Fame chances, legacy**\
 `When he was the deputy commissioner, Vincent was instrumental in investigating the gambling allegations against rose. `\
 https://nytimes.com/athletic/5807830/2024/09/30/qa-fay-vincent-pete-rose-betting-ban/
