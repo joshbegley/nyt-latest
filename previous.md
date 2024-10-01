@@ -1,3 +1,19 @@
+**Four Killed and Several Injured in Tel Aviv Shooting**\
+`The shooting took place on a major thoroughfare just as an eerie quiet descended on the city ahead of a widely anticipated Iranian missile attack.`\
+https://nytimes.com/2024/10/01/world/middleeast/israel-tel-aviv-shooting.html
+
+**Ten Hag lacks 'fire, passion', says former Man Utd assistant McCarthy**\
+`Former Manchester United first-team coach Benni McCarthy says that United boss Erik ten Hag “lacks a bit of that fire, that passion”.`\
+https://nytimes.com/athletic/5809797/2024/10/01/ten-hag-benni-mccarthy-manchester-united/
+
+**Ohio Reaps Benefits From a Climate Law JD Vance Repeatedly Attacks**\
+`Former President Donald J. Trump has called for clawing back unspent funds included in the Inflation Reduction Act, President Biden’s landmark climate bill. That could have adverse impacts in Ohio.`\
+https://nytimes.com/2024/10/01/us/politics/vance-ohio-ira.html
+
+**Taylor Lorenz, Chronicler of Digital Culture, to Start Own Newsletter**\
+`Ms. Lorenz is leaving The Washington Post, where she had a tumultuous tenure.`\
+https://nytimes.com/2024/10/01/business/media/taylor-lorenz-substack-washington-post.html
+
 **Raiders' Adams addresses Pierce liking trade post about WR**\
 `"I haven't heard from (Pierce). I haven't talked to him," Adams said. "I don't really know exactly what that was about."`\
 https://nytimes.com/athletic/5809898/2024/10/01/davante-adams-antonio-pierce-raiders/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/01/us/politics/trump-fear-speeches.html
 **Canadiens' David Reinbacher expected to miss 5-6 months after surgery**\
 `Reinbacher fell awkwardly after a hit by Toronto Maple Leafs defenseman Marshall Rifai in Saturday's preseason 2-1 loss.`\
 https://nytimes.com/athletic/5809781/2024/10/01/canadiens-david-reinbacher-injury/
-
-**Why Restoring Power After Helene Is Complicated**\
-`Damage went beyond downed power lines. Hundreds of substations went out after the storm. Getting them back online is difficult.`\
-https://nytimes.com/2024/10/01/climate/helene-hurricane-power-carolinas.html
-
-**Who is Tim Walz?**\
-`By Neil Vigdor`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/who-is-tim-walz
-
-**This Perfect Storm of a Port Strike Could Have Been Avoided**\
-`The port strike could have, and should have, been avoided by addressing the regulatory regime that is distorting the industry.`\
-https://nytimes.com/2024/10/01/opinion/port-strike-shipping-union-inflation-prices.html
-
-**Trump Insults Harris’s Mental Fitness, Adding to Questions About His Own**\
-`Readers condemn the former president’s attacks and cite examples of his  incoherence and unfitness. Also: Jimmy Carter at 100; Christian women; the Oakland A’s.`\
-https://nytimes.com/2024/10/01/opinion/donald-trump-kamala-harris-mental-fitness.html
 
