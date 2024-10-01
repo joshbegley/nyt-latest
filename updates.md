@@ -1,3 +1,11 @@
+**Cubs make changes to Craig Counsell’s staff: Mike Napoli and others are out: Sources**\
+`Chicago cut ties with its first-base coach, bullpen coach and assistant hitting coach.`\
+https://nytimes.com/athletic/5807969/2024/09/30/cubs-coaching-staff-changes/
+
+**The old Jordan Poole is back, and the Washington Wizards might reap the benefits**\
+`“From last year to over the summer and to now, I think Jordan is a much different person,” Wizards teammate Kyle Kuzma said.`\
+https://nytimes.com/athletic/5807729/2024/09/30/jordan-poole-washington-wizards-2/
+
 **Rancher Gets 6 Months in Prison for Scheme to Create Giant Sheep Hybrid**\
 `Prosecutors said the Montanan illegally used tissue from a sheep from Central Asia and the testicles from a bighorn sheep to make large hybrids that he could sell at premium prices.`\
 https://nytimes.com/2024/09/30/us/montana-man-giant-sheep-sentence.html

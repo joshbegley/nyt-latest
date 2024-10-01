@@ -1,3 +1,7 @@
+**Scenes from a Mets' celebration: 'This is the standard'**\
+`The Mets savored a long-awaited celebration after what one player called 'The best I've ever played in.'`\
+https://nytimes.com/athletic/5807960/2024/09/30/mets-wild-card-celebration-analysis/
+
 **Rancher Gets 6 Months in Prison for Scheme to Create Giant Sheep Hybrid**\
 `Prosecutors said the Montanan illegally used tissue from a sheep from Central Asia and the testicles from a bighorn sheep to make large hybrids that he could sell at premium prices.`\
 https://nytimes.com/2024/09/30/us/montana-man-giant-sheep-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5807728/2024/09/30/lebron-james-bronny-lakers-media
 **Newsom Tacks to the Middle With California in the Spotlight**\
 `While Donald J. Trump has attacked California as too liberal for the nation, Gov. Gavin Newsom has vetoed several bills that could have become political fodder.`\
 https://nytimes.com/2024/09/30/us/newsom-california-bill-politics.html
-
-**Titans QB Levis (shoulder) replaced by Mason Rudolph vs. Dolphins**\
-`Levis hurt himself early in the first quarter while diving for the first-down marker on third down.`\
-https://nytimes.com/athletic/5807550/2024/09/30/titans-dolphins-score-results-takeaways/
 
