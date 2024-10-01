@@ -1,3 +1,7 @@
+**Tim Walz Said He Was in Hong Kong in 1989 During Tiananmen. Not True.**\
+`Mr. Walz taught at a high school in China as part of a program sending American teachers abroad, but he did not actually travel to the country until August 1989.`\
+https://nytimes.com/2024/10/01/us/politics/tim-walz-hong-kong-tiananmen.html
+
 **Alicia Keys, LaChanze and Billy Porter Gather to Support Black Theater**\
 `The stage stars were among more than 600 people who turned out for an evening of dinner and performances to benefit Black Theater United.`\
 https://nytimes.com/2024/10/01/style/black-theater-united-alicia-keys-lachanze.html

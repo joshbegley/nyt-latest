@@ -1,3 +1,7 @@
+**Can a Vice-Presidential Debate Shift the Polls? History Shows It’s Unlikely.**\
+`But Tuesday’s debate could give voters a better sense of how they feel about JD Vance and Tim Walz, since many don’t have an impression of them.`\
+https://nytimes.com/2024/10/01/us/elections/vp-debate-polls.html
+
 **Tim Walz Said He Was in Hong Kong in 1989 During Tiananmen. Not True.**\
 `Mr. Walz taught at a high school in China as part of a program sending American teachers abroad, but he did not actually travel to the country until August 1989.`\
 https://nytimes.com/2024/10/01/us/politics/tim-walz-hong-kong-tiananmen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/world/europe/france-prime-minister-parliament.htm
 **Ella Leffland, Novelist Drawn to Portraying Outsiders, Dies at 95**\
 `Her work often drew from her upbringing in California amid World War II, such as her intricate novel about the Nazi leader Hermann Goering.`\
 https://nytimes.com/2024/10/01/books/ella-leffland-dead.html
-
-**Until Saturday: Realignment never stops, plus our first Heisman straw poll of 2024**\
-`Welcome to Until Saturday, the five-star college football newsletter: What's the latest for Pac-12, Mountain West Conference realignment?`\
-https://nytimes.com/athletic/5809714/2024/10/01/gonzaga-pac-12-utep-mountain-west-heisman-until-saturday/
 

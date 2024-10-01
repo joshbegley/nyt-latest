@@ -1,3 +1,7 @@
+**Tim Walz Said He Was in Hong Kong in 1989 During Tiananmen. Not True.**\
+`Mr. Walz taught at a high school in China as part of a program sending American teachers abroad, but he did not actually travel to the country until August 1989.`\
+https://nytimes.com/2024/10/01/us/politics/tim-walz-hong-kong-tiananmen.html
+
 **Alicia Keys, LaChanze and Billy Porter Gather to Support Black Theater**\
 `The stage stars were among more than 600 people who turned out for an evening of dinner and performances to benefit Black Theater United.`\
 https://nytimes.com/2024/10/01/style/black-theater-united-alicia-keys-lachanze.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/books/ella-leffland-dead.html
 **Until Saturday: Realignment never stops, plus our first Heisman straw poll of 2024**\
 `Welcome to Until Saturday, the five-star college football newsletter: What's the latest for Pac-12, Mountain West Conference realignment?`\
 https://nytimes.com/athletic/5809714/2024/10/01/gonzaga-pac-12-utep-mountain-west-heisman-until-saturday/
-
-**Live Q&A: Week 4 fantasy football add/drop chat with Jay Felicio, Tuesday 10/1 at 5 p.m. ET**\
-`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5809971/2024/10/01/live-qa-week-4-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-1-at-5-p-m-et/
 
