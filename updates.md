@@ -1,3 +1,11 @@
+**What Tim Walz’s Time in Minnesota Says About How He Governs**\
+`Mr. Walz was willing to move the state swiftly to the left as soon as Democrats had an opening. He supported all but one bill that fellow Democrats approved, issuing a single veto last year.`\
+https://nytimes.com/2024/10/01/us/tim-walz-minnesota-administration.html
+
+**Mbappe could start in Champions League after thigh injury - Ancelotti**\
+`Carlo Ancelotti says Kylian Mbappe could be in contention to start for Real Madrid against Lille on Wednesday after missing the Madrid derby with a thigh injury.`\
+https://nytimes.com/athletic/5808821/2024/10/01/kylian-mbappe-real-madrid-injury-return/
+
 **Four Killed and Several Injured in Tel Aviv Shooting**\
 `The shooting took place on a major thoroughfare just as an eerie quiet descended on the city ahead of a widely anticipated Iranian missile attack.`\
 https://nytimes.com/2024/10/01/world/middleeast/israel-tel-aviv-shooting.html
