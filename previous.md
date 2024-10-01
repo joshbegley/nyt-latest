@@ -1,3 +1,7 @@
+**When an Ohioan Debates a Minnesotan, the Midwest Takes Center Stage**\
+`JD Vance and Tim Walz each have roots in the Midwest, but how voters in the region will view the vice-presidential candidates’ different visions remains to be seen.`\
+https://nytimes.com/2024/10/01/us/vice-presidents-vance-walz-midwest.html
+
 **Tarik Skubal dominates, Tigers hang on for Game 1 win over Astros: Takeaways**\
 `Skubal shoved, Framber Valdez struggled, and the Tigers offense did just enough to scratch out a 3-1 win in Game 1 of the Wild Card Series.`\
 https://nytimes.com/athletic/5810672/2024/10/01/tigers-win-astros-tarik-skubal-game-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/briefing/iran-israel-attack-vice-presidential-deb
 **‘Water for Elephants’ to Close on Broadway**\
 `The musical, based on the best-selling novel, featured dazzling acrobatics and puppetry. Its final performance will be Dec. 8.`\
 https://nytimes.com/2024/10/01/theater/water-elephants-broadway-closing.html
-
-**Frank Fritz, a Host of the Antiques Show ‘American Pickers,’ Dies at 58**\
-`He and his friend Mike Wolfe launched the treasure-hunting show in 2010, part of a wave of reality TV aimed at finding fortune in everyday items.`\
-https://nytimes.com/2024/10/01/arts/frank-fritz-dead.html
 

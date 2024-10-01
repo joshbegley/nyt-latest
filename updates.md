@@ -1,3 +1,7 @@
+**When an Ohioan Debates a Minnesotan, the Midwest Takes Center Stage**\
+`JD Vance and Tim Walz each have roots in the Midwest, but how voters in the region will view the vice-presidential candidates’ different visions remains to be seen.`\
+https://nytimes.com/2024/10/01/us/vice-presidents-vance-walz-midwest.html
+
 **Tarik Skubal dominates, Tigers hang on for Game 1 win over Astros: Takeaways**\
 `Skubal shoved, Framber Valdez struggled, and the Tigers offense did just enough to scratch out a 3-1 win in Game 1 of the Wild Card Series.`\
 https://nytimes.com/athletic/5810672/2024/10/01/tigers-win-astros-tarik-skubal-game-1/
