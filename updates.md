@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spo
 `\
 https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
 
+**Anthony Rendon might not be guaranteed a roster spot in 2025: 'He hasn't been productive'**\
+`The third baseman has played just 257 out of a possible 546 games with the Angels and has not hit a home run since July 2023.
+`\
+https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
+
 **American League Wild Card Series predictions: Our experts make their picks**\
 `Who will move on to the American League Division Series? Our experts weigh in with their picks.`\
 https://nytimes.com/athletic/5807215/2024/09/30/al-wild-card-series-predictions/
