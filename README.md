@@ -1,3 +1,7 @@
+**Biden Scrambles to Contain Economic and Political Fallout of Port Strike**\
+`The labor dispute has forced President Biden and Vice President Kamala Harris into a complicated position just weeks before the election.`\
+https://nytimes.com/2024/10/01/us/politics/biden-strike-port-longshoremen.html
+
 **Blue Jackets won't be required to hit NHL's salary floor by start of season**\
 `The NHL informed the club it will be allowed to be below the salary-cap floor in the wake of the Johnny and Matthew Gaudreau tragedy.`\
 https://nytimes.com/athletic/5810166/2024/10/01/blue-jackets-nhl-salary-cap-gaudreau/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5809459/2024/10/01/2024-nfl-mvp-odds-mahomes-allen-
 **The Best Movies and TV Shows Coming to Disney+, Amazon, Apple TV+ and More in October**\
 `“Citadel: Diana,” “Disclaimer,” “The Franchise,” “Star Trek: Lower Decks,” a Springsteen documentary and others arrive.`\
 https://nytimes.com/2024/10/01/arts/television/october-streaming-movies-shows.html
-
-**The Best Movies and TV Shows Coming to Netflix in October**\
-`Keri Russell is back and so is Ali Wong. Here’s a roundup of what’s worth checking out for U.S. subscribers this month.`\
-https://nytimes.com/2024/10/01/arts/television/new-netflix-movies-shows-october.html
 
