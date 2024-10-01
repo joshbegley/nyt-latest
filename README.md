@@ -6,7 +6,7 @@ https://nytimes.com/live/2024/09/25/opinion/thepoint/adams-punishment-campaign-f
 `Manchester City cruised to victory in Slovakia and equalled a Champions League record - Sam Lee analyses the talking points`\
 https://nytimes.com/athletic/5801015/2024/10/01/slovan-bratislava-0-manchester-city-4-record-doku-foden-haaland/
 
-**In Iran, Military Commanders Win the Day, Then Israel Is Hit**\
+**In Iran, Military Commanders Win the Day. Then Israel Is Hit**\
 `The barrage of missile fire came after much debate among Iranian leaders, officials there say.`\
 https://nytimes.com/2024/10/01/world/middleeast/iran-israel-strike.html
 
