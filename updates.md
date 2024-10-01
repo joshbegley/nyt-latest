@@ -1,3 +1,19 @@
+**Is That a Panda? Or a Dog in Disguise?**\
+`Zoos around the world have occasionally used a little dye, or just brazenness, to pass off one animal as another.`\
+https://nytimes.com/2024/10/01/world/asia/china-zoo-painted-dogs-pandas.html
+
+**MacArthur Foundation Announces 2024 ‘Genius’ Grant Winners**\
+`On Tuesday, 22 anonymously nominated Americans were recognized with fellowships and an $800,000 stipend.`\
+https://nytimes.com/2024/10/01/arts/macarthur-foundation-2024-genius-grant-winners.html
+
+**Jay Pharoah’s White Gold Cross Necklace**\
+`The “Saturday Night Live” alum — whose new comedy special, “Jared,” was just released — wears a cross around his neck not just as a symbol, but a reminder of how to live his life.`\
+https://nytimes.com/2024/10/01/style/jay-pharoahs-white-gold-cross-necklace.html
+
+**We May Be Moments From a Ballistic Missile War in the Mideast**\
+`And this one could involve the United States.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/iran-attack-israel
+
 **Read Eric Adams’s Legal Filing**\
 `Mayor Eric Adams’s lawyer filed court papers accusing prosecutors of leaking details of the investigation to reporters.`\
 https://nytimes.com/interactive/2024/10/01/nyregion/eric-adams-legal-filing.html
