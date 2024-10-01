@@ -1,3 +1,11 @@
+**Dan Campbell feels 'awful' after not giving game ball to Goff**\
+`Campbell gave receiver Jameson Williams and cornerback Kirby Joseph the game balls for their strong play.`\
+https://nytimes.com/athletic/5808444/2024/10/01/dan-campbell-jared-goff-game-ball/
+
+**Liverpool need more from Szoboszlai - he is key to Slot's system**\
+`Szoboszlai has spoken of 25 goal involvements this season - but needs to start taking his chances as Slot's No 10 `\
+https://nytimes.com/athletic/5806613/2024/10/01/dominik-szoboszlai-liverpool-arne-slot/
+
 **Inside Newcastle Q&A: Osula full debut, Almiron's absence and CEO succession planning**\
 `January transfer plans? Is Trippier back in the fold? Has there been a Bunce effect? Chris Waugh answers your questions`\
 https://nytimes.com/athletic/5805429/2024/10/01/inside-newcastle-qa-eales-almiron-trippier-osula/
