@@ -1,3 +1,7 @@
+**Port Workers Strike on East and Gulf Coasts**\
+`Members of the International Longshoremen’s Association walked out for the first time since 1977 in a standoff over wages, benefits and job security.`\
+https://nytimes.com/2024/10/01/business/economy/port-strike.html
+
 **Dan Campbell feels 'awful' after not giving game ball to Goff**\
 `Campbell gave receiver Jameson Williams and cornerback Kirby Joseph the game balls for their strong play.`\
 https://nytimes.com/athletic/5808444/2024/10/01/dan-campbell-jared-goff-game-ball/
