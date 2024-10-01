@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
 
+**Anthony Rendon might not be guaranteed a roster spot in 2025: 'He hasn't been productive'**\
+`The third baseman has played just 257 out of a possible 546 games with the Angels and has not hit a home run since July 2023.
+`\
+https://nytimes.com/athletic/5808007/2024/09/30/angels-anthony-rendon-roster-spot-not-guaranteed/
+
 **With Grant Holmes filling in for Chris Sale, persistent Braves clinch in Game 162**\
 `Holmes, the surprise hero, departed to a thunderous ovation from a sold-out crowd of 41,561: “There aren’t words for it.”`\
 https://nytimes.com/athletic/5808242/2024/09/30/braves-clinch-wild-card-grant-holmes/
