@@ -1,3 +1,7 @@
+**Raiders' Adams addresses Pierce liking trade post about WR**\
+`"I haven't heard from (Pierce). I haven't talked to him," Adams said. "I don't really know exactly what that was about."`\
+https://nytimes.com/athletic/5809898/2024/10/01/davante-adams-antonio-pierce-raiders/
+
 **Andrew Tarlow Crosses the East River to Manhattan for Borgo**\
 `The menu for this trattoria stretches the boundaries of Italy’s boot.`\
 https://nytimes.com/2024/10/01/dining/andrew-tarlow-manhattan-restaurant-borgo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/opinion/port-strike-shipping-union-inflation-pric
 **Trump Insults Harris’s Mental Fitness, Adding to Questions About His Own**\
 `Readers condemn the former president’s attacks and cite examples of his  incoherence and unfitness. Also: Jimmy Carter at 100; Christian women; the Oakland A’s.`\
 https://nytimes.com/2024/10/01/opinion/donald-trump-kamala-harris-mental-fitness.html
-
-**The Metropolitan Opera’s Season Begins With a Boom**\
-`“Grounded,” the new work that opened the season, has been joined by revivals of three Puccini, Verdi and Offenbach classics.`\
-https://nytimes.com/2024/10/01/arts/music/metropolitan-opera-fall-season.html
 
