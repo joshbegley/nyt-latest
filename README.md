@@ -1,3 +1,19 @@
+**We May Be Moments from a Ballistic Missile War in the Mideast**\
+`And this one could involve the United States.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/iran-attack-israel
+
+**Scoop City: Fantasy Football Week 5 Prep**\
+`Waiver wire adds, injured stars to target, trades to make and why I'm concerned about Garrett Wilson.`\
+https://nytimes.com/athletic/5809644/2024/10/01/scoop-city-fantasy-football-week-5-prep/
+
+**Mapping Israel’s Invasion of Lebanon**\
+`While details of the operation are scarce, Israel has ordered residents of many southern towns to move north.`\
+https://nytimes.com/article/israel-lebanon-invasion-map.html
+
+**After 20 years, NBC Sports Chicago goes dark, but its impact will shine forever**\
+`From parade coverage and beer-soaked locker rooms to "bigger than us" mentality, the station's run evokes warm memories and pride from crew.`\
+https://nytimes.com/athletic/5809220/2024/10/01/nbc-chicago-sports-ends-white-sox-blackhawks-bulls/
+
 **Atletico's Le Normand suffers traumatic brain injury after collision**\
 `Atletico Madrid defender Robin Le Normand suffered a traumatic brain injury following a collision of heads in Sunday&#8217;s Madrid derby.`\
 https://nytimes.com/athletic/5809575/2024/10/01/robin-le-normand-injury-atletico-madrid/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5809580/2024/10/01/justin-verlander-yordan-alvarez-
 **Adams Accuses Prosecutors of Leaking Investigation Details to News Media**\
 `In a court filing Tuesday morning, lawyers for Mayor Eric Adams asked a judge to hold a hearing about what they said were grand jury secrecy violations.`\
 https://nytimes.com/2024/10/01/nyregion/eric-adams-prosecutors-leaks.html
-
-**Breaking down the battle for the Blue Jackets' final roster spots**\
-`“We’re pretty set,” Blue Jackets coach Dean Evason said, but seven forwards and four defenders are still in the running for the final spots.`\
-https://nytimes.com/athletic/5807860/2024/10/01/blue-jackets-nhl-roster-spots/
-
-**UTEP expected to join Mountain West: Source**\
-`The move gives the Mountain West seven full members, one short of the NCAA’s required eight to function as a conference.`\
-https://nytimes.com/athletic/5809433/2024/10/01/utep-mountain-west-conference-realignment/
-
-**It’s Time to Make One-Pot Chicken and Rice**\
-`Put this schmaltzy, Mediterranean-ish recipe at the top of your fall cooking list.`\
-https://nytimes.com/2024/10/01/dining/one-pot-chicken-rice.html
-
-**The Windup: Just look at this win probability chart**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5809489/2024/10/01/mets-braves-win-probability-the-windup/
 
