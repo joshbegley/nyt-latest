@@ -1,3 +1,7 @@
+**Live Updates: Israel Launches Invasion into Southern Lebanon**\
+`Israeli troops crossed the border after a prolonged bombing campaign aimed at killing many of Hezbollah’s top leaders and destroying some of its weapons.`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah
+
 **Baby Hippo**\
 `Moo Deng, a baby pygmy hippo at a zoo in Thailand, has become a social media star. Are you a fan?`\
 https://nytimes.com/2024/10/01/learning/baby-hippo.html
