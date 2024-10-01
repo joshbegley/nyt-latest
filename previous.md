@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5806996/2024/10/01/philadelphia-eagles-observations
 
 **Jannik Sinner's doping case explained: What WADA appeal means and what is at stake for tennis**\
 `The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
-https://nytimes.com/athletic/5806315/2024/10/01/jannik-sinner-doping-case-explained-what-wada-appeal-means-for-tennis/
+https://nytimes.com/athletic/5806315/2024/10/01/jannik-sinner-doping-case-tennis-explained/
 
 **Broncos S Brandon Jones evolves from 'a little bit of unknown' to making impact felt**\
 `Jones missed nearly all of training camp with a hamstring injury, but that hasn't kept him from being a turnover magnet early this season.`\
@@ -23,7 +23,8 @@ https://nytimes.com/athletic/5808705/2024/10/01/atletico-madrid-real-madrid-fren
 https://nytimes.com/athletic/5808611/2024/10/01/edmonton-oilers-camp-question-marks/
 
 **Odegaard left out of Norway squad for October fixtures**\
-`Arsenal midfielder Martin Odegaard has been left out of the Norway squad for their Nations League fixtures later this month.`\
+`Follow live coverage of Arsenal vs PSG in the Champions League today
+Arsenal midfielder Martin Odegaard has been left out of the Norway squad for their Nations League fixtures later this month.`\
 https://nytimes.com/athletic/5808827/2024/10/01/martin-odegaard-injury-latest-norway-arsenal/
 
 **The Pulse: Jared Goff's perfect game**\

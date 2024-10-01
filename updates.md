@@ -1,3 +1,12 @@
+**Jannik Sinner's doping case explained: What WADA appeal means and what is at stake for tennis**\
+`The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
+https://nytimes.com/athletic/5806315/2024/10/01/jannik-sinner-doping-case-tennis-explained/
+
+**Odegaard left out of Norway squad for October fixtures**\
+`Follow live coverage of Arsenal vs PSG in the Champions League today
+Arsenal midfielder Martin Odegaard has been left out of the Norway squad for their Nations League fixtures later this month.`\
+https://nytimes.com/athletic/5808827/2024/10/01/martin-odegaard-injury-latest-norway-arsenal/
+
 **Dikembe Mutombo's NBA brethren: 'We were all better in our existence' for knowing him**\
 `Jeff Van Gundy, Bernie Bickerstaff and Mutombo's teammates on the legacy of the beloved player: "There was no way you could not like him."`\
 https://nytimes.com/athletic/5808553/2024/10/01/dikembe-mutombo-death-tributes-nba-players-coaches/
