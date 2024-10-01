@@ -1,3 +1,15 @@
+**What we've learned about the Kings so far in training camp and preseason**\
+`On Alex Laferriere's opportunities, the Kings' new 1-2-2 system, the fourth line taking shape and more.`\
+https://nytimes.com/athletic/5808608/2024/10/01/la-kings-nhl-training-camp-preseason-analysis/
+
+**Iran is poised to launch an attack on Israel, U.S. and Israeli officials say.**\
+`By Patrick Kingsley, Ronen Bergman, Eric Schmitt and Farnaz Fassihi`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/iran-is-poised-to-launch-an-attack-on-israel-us-and-israeli-officials-say
+
+**Royals to activate Vinnie Pasquantino**\
+`Pasquantino broke his right thumb on Aug. 29 and was expected to miss six to eight weeks. He’s beaten his recovery timeline.`\
+https://nytimes.com/athletic/5809347/2024/10/01/vinnie-pasquantino-royals-mlb-wild-card-game-1/
+
 **Why a Racist Professor Doesn’t Scare Me**\
 `Having grown up in an increasingly diverse America, I find Amy Wax’s resentments more pathetic than threatening.`\
 https://nytimes.com/2024/10/01/opinion/amy-wax-racism-penn.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/01/world/europe/germany-china-arrest-spying.html
 **Schoolchildren Are Among Many Dead in Bangkok Bus Inferno**\
 `The authorities believe the fire occurred after a tire exploded, causing the bus — which was filled with children and schoolteachers — to lose control and hit a barrier.`\
 https://nytimes.com/video/world/asia/100000009733334/schoolchildren-are-among-many-dead-in-bangkok-bus-inferno.html
-
-**Musical Comedy ‘Operation Mincemeat’ to Open on Broadway Next Spring**\
-`The show is about a real World War II episode in which British intelligence planted disinformation on a dead body to fool the Germans.`\
-https://nytimes.com/2024/10/01/theater/operation-mincemeat-broadway.html
-
-**Here Are the Finalists for the 2024 National Book Award**\
-`Percival Everett’s “James,” Salman Rushdie’s “Knife” and Diane Seuss’ “Modern Poetry” are among the honorees. Winners will be announced next month.`\
-https://nytimes.com/2024/10/01/books/here-are-the-finalists-for-the-2024-national-book-award.html
-
-**Southampton's Stephens given two-match ban for calling officials 'c****'**\
-`Southampton defender Jack Stephens has been banned for two matches and handed a £50,000 fine after calling an official a “f***ing little c***” after being sent off against Manchester United.`\
-https://nytimes.com/athletic/5809244/2024/10/01/jack-stephens-red-card-southampton/
 
