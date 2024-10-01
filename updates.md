@@ -1,3 +1,7 @@
+**Vance Pitches Republican Megadonors on Eve of Debate**\
+`Senator JD Vance addressed some of the party’s biggest donors at a private sit-down before the American Opportunity Alliance.`\
+https://nytimes.com/2024/09/30/us/politics/vance-pitches-republican-megadonors-on-eve-of-debate.html
+
 **Vance pitches Republican megadonors on eve of debate.**\
 `By Theodore Schleifer, Maggie Haberman and Jonathan Swan`\
 https://nytimes.com/live/2024/09/30/us/trump-harris-election/vance-pitches-republican-megadonors-on-eve-of-debate

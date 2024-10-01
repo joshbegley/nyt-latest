@@ -1,6 +1,6 @@
-**Vance pitches Republican megadonors on eve of debate.**\
-`By Theodore Schleifer, Maggie Haberman and Jonathan Swan`\
-https://nytimes.com/live/2024/09/30/us/trump-harris-election/vance-pitches-republican-megadonors-on-eve-of-debate
+**Vance Pitches Republican Megadonors on Eve of Debate**\
+`Senator JD Vance addressed some of the party’s biggest donors at a private sit-down before the American Opportunity Alliance.`\
+https://nytimes.com/2024/09/30/us/politics/vance-pitches-republican-megadonors-on-eve-of-debate.html
 
 **National League Wild Card Series predictions: Our experts make their picks**\
 `Who will move on to the National League Division Series? Our experts weigh in with their picks.`\
