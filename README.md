@@ -1,9 +1,21 @@
+**6 of ‘The Greatest’ Songs**\
+`Hear superlative tracks from Billie Eilish, Kenny Rogers and Alabama Shakes.`\
+https://nytimes.com/2024/10/01/arts/music/amplifier-newsletter-billie-eilish-greatest.html
+
+**All the Makeup Brushes You Actually Need — and How to Clean Them**\
+`From a hard-working powder brush to a simple spoolie, these are the tools the professionals recommend.`\
+https://nytimes.com/article/makeup-brush-guide.html
+
+**Braves leave Chris Sale off Wild Card Series roster**\
+`Sale had a 2.38 ERA and 1.013 WHIP this season, his first with Atlanta. But Sale’s velocity dipped recently.`\
+https://nytimes.com/athletic/5810068/2024/10/01/braves-chris-sale-wild-card-roster/
+
 **Steelers planning to start Fields again vs. Cowboys**\
 `Steelers coach Mike Tomlin said he anticipates Russell Wilson will be able to begin participating in drills with a live pocket.`\
 https://nytimes.com/athletic/5809760/2024/10/01/mike-tomlin-justin-fields-start-steelers-cowboys/
 
 **Eleven impending MLB free agents with the most at stake in the playoffs**\
-`Every impending free agent wants to perform well in the postseason, but these 11, starting with Juan Soto, have arguably the most at stake.`\
+`Every impending free agent wants to perform well in the postseason, but these 11, starting with Juan Soto, arguably have the most at stake.`\
 https://nytimes.com/athletic/5809315/2024/10/01/mlb-free-agents-value-playoffs/
 
 **Donna Henes,‘Urban Shaman’ Who Hailed the Seasons, Dies at 79**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/01/world/middleeast/israel-iran-missile-attack-april
 **Man Utd win appeal against Fernandes red card**\
 `Manchester United have successfully appealed Bruno Fernandes&#8217; red card against Tottenham Hotspur on Sunday.`\
 https://nytimes.com/athletic/5805657/2024/10/01/manchester-united-appeal-bruno-fernandes/
-
-**What comes next in the Jeremy Swayman vs. Bruins dumpster fire? It all depends on his interpretation**\
-`Swayman is confident, competitive, temperamental — and sensitive. How he sees the Bruins' actions will determine the stalemate's conclusion.`\
-https://nytimes.com/athletic/5809886/2024/10/01/jeremy-swayman-bruins-dumpster-fire/
-
-**What Tim Walz’s Time in Minnesota Says About How He Governs**\
-`Mr. Walz was willing to move the state swiftly to the left as soon as Democrats had an opening. He supported all but one bill that fellow Democrats approved, issuing a single veto last year.`\
-https://nytimes.com/2024/10/01/us/tim-walz-minnesota-administration.html
-
-**Mbappe could start in Champions League after thigh injury - Ancelotti**\
-`Carlo Ancelotti says Kylian Mbappe could be in contention to start for Real Madrid against Lille on Wednesday after missing the Madrid derby with a thigh injury.`\
-https://nytimes.com/athletic/5808821/2024/10/01/kylian-mbappe-real-madrid-injury-return/
 
