@@ -1,3 +1,7 @@
+**John Amos, a Star of ‘Good Times’ and ‘Roots,’ Dies at 84**\
+`He was the patriarch in one of the first sitcoms with an all-Black cast and an enslaved African as a grown man in a blockbuster TV mini-series.`\
+https://nytimes.com/2024/10/01/arts/john-amos-dead.html
+
 **Can a Vice-Presidential Debate Shift the Polls? History Shows It’s Unlikely.**\
 `But Tuesday’s debate could give voters a better sense of how they feel about JD Vance and Tim Walz, since many don’t have an impression of them.`\
 https://nytimes.com/2024/10/01/us/elections/vp-debate-polls.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/nyregion/eric-adams-press-conference.html
 **France’s Prime Minister Urges a Divided Parliament to Give Him a Chance**\
 `Michel Barnier vowed to slash spending and temporarily raise some taxes, but his plan must contend with three bitterly opposed political blocs and an aversion in France to working across party lines.`\
 https://nytimes.com/2024/10/01/world/europe/france-prime-minister-parliament.html
-
-**Ella Leffland, Novelist Drawn to Portraying Outsiders, Dies at 95**\
-`Her work often drew from her upbringing in California amid World War II, such as her intricate novel about the Nazi leader Hermann Goering.`\
-https://nytimes.com/2024/10/01/books/ella-leffland-dead.html
 
