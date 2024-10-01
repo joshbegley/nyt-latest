@@ -1,3 +1,7 @@
+**How the Dockworkers’ Strike Could Ripple Through the Economy**\
+`Transportation and warehousing sectors are poised to first feel the pinch, with a broader economic fallout expected if the strike drags on.`\
+https://nytimes.com/2024/10/01/business/economy/port-dockworkers-strike-economy.html
+
 **Port Workers Strike on East and Gulf Coasts**\
 `Members of the International Longshoremen’s Association walked out for the first time since 1977 in a standoff over wages, benefits and job security.`\
 https://nytimes.com/2024/10/01/business/economy/port-strike.html
