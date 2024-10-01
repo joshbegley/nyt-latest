@@ -1,3 +1,7 @@
+**Can a Vice-Presidential Debate Shift the Polls? History Shows It’s Unlikely.**\
+`But Tuesday’s debate could give voters a better sense of how they feel about JD Vance and Tim Walz, since many don’t have an impression of them.`\
+https://nytimes.com/2024/10/01/us/elections/vp-debate-polls.html
+
 **Tim Walz Said He Was in Hong Kong in 1989 During Tiananmen. Not True.**\
 `Mr. Walz taught at a high school in China as part of a program sending American teachers abroad, but he did not actually travel to the country until August 1989.`\
 https://nytimes.com/2024/10/01/us/politics/tim-walz-hong-kong-tiananmen.html
