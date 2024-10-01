@@ -1,3 +1,7 @@
+**Inside a Trump Ad Slamming Harris Over the Push for Electric Vehicles**\
+`Scaremongering in Michigan, an ad claims that the vice president wants to “end all gas-powered cars” and that her policies would lead to “massive layoffs.”`\
+https://nytimes.com/2024/10/01/us/politics/inside-a-trump-ad-slamming-harris-over-the-push-for-electric-vehicles.html
+
 **Iran Fires Missile Barrage Toward Israel**\
 `The attack, which comes days after the assassination of Hezbollah’s leader, Hassan Nasrallah, marks a sharp escalation in the conflict between Israel and Iran.`\
 https://nytimes.com/video/world/middleeast/100000009734088/israel-iran-missile-attack.html
