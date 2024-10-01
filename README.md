@@ -1,3 +1,7 @@
+**Why a Racist Professor Doesn’t Scare Me**\
+`Having grown up in an increasingly diverse America, I find Amy Wax’s resentments more pathetic than threatening.`\
+https://nytimes.com/2024/10/01/opinion/amy-wax-racism-penn.html
+
 **What we know about the Islanders after 5 preseason games**\
 `The latest on the elephant in the crease, Kyle MacLean's rise, Pierre Engvall's place on the roster and more.`\
 https://nytimes.com/athletic/5808752/2024/10/01/islanders-preseason-hogberg-maclean-engvall/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/books/here-are-the-finalists-for-the-2024-nationa
 **Southampton's Stephens given two-match ban for calling officials 'c****'**\
 `Southampton defender Jack Stephens has been banned for two matches and handed a £50,000 fine after calling an official a “f***ing little c***” after being sent off against Manchester United.`\
 https://nytimes.com/athletic/5809244/2024/10/01/jack-stephens-red-card-southampton/
-
-**Who do I drop? Unlike the Bears, fantasy managers can cut Caleb Williams**\
-`The Bears need to stand by their rookie quarterback. But you don't have to.`\
-https://nytimes.com/athletic/5809237/2024/10/01/fantasy-football-who-to-drop-ahead-of-week-5-caleb-williams-comes-to-mind/
 
