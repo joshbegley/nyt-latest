@@ -1,3 +1,7 @@
+**The MLB playoffs' TV ratings potential, and the league's murky media future**\
+`Our sports media writers, Richard Deitsch and Andrew Marchand, discuss some of the big MLB media storylines as the 2024 playoffs arrive.`\
+https://nytimes.com/athletic/5799666/2024/10/01/mlb-playoffs-media-tv-ratings-streaming-future/
+
 **Biden to Sign Bill Allowing Chip Projects to Skirt Key Environmental Review**\
 `The legislation, which would weaken federal environmental reviews for certain semiconductor manufacturing projects, has divided Democrats.`\
 https://nytimes.com/2024/10/01/us/politics/biden-semiconductor-environmental-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/world/europe/pope-francis-catholic-church-belgium
 **New Children’s Museum of Manhattan to Open in 2028**\
 `Laurie M. Tisch has donated $50 million to the $300 million capital campaign for a new location on Central Park West.`\
 https://nytimes.com/2024/10/01/arts/design/childrens-museum-manhattan-2028-tisch.html
-
-**Troops and military vehicles take up positions in northern Israel.**\
-`By Natan Odenheimer`\
-https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/troops-and-military-vehicles-take-up-positions-in-northern-israel
 
