@@ -1,3 +1,7 @@
+**Is a No-Nonsense Dutchman Just What NATO Needs?**\
+`In some countries, the job of a president or prime minister is a visionary one. Not here in Holland.`\
+https://nytimes.com/2024/10/01/opinion/nato-mark-rutte.html
+
 **How the Dockworkers’ Strike Could Ripple Through the Economy**\
 `Transportation and warehousing sectors are poised to first feel the pinch, with a broader economic fallout expected if the strike drags on.`\
 https://nytimes.com/2024/10/01/business/economy/port-dockworkers-strike-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/briefing/lebanon-israel-trump-coal-britain.html
 **London has several major football clubs. Why does Paris only have one?**\
 `There are many reasons why London watches more football than Paris - but it's largely down to wildly varying levels of interest in the sport`\
 https://nytimes.com/athletic/5805559/2024/10/01/london-paris-football-clubs-comparison/
-
-**Trossard and a ludicrous red-card loophole that should be closed**\
-`Belgian's winner against Leicester exposed the folly of the rules around when suspensions are served in England`\
-https://nytimes.com/athletic/5805814/2024/10/01/leandro-trossard-red-card-loophole/
 
