@@ -1,3 +1,7 @@
+**How deep is Notre Dame's secondary?: Final thoughts on Louisville**\
+`Notre Dame's secondary showed off its depth against Louisville, but the Irish need to make some improvements to get into the CFP.`\
+https://nytimes.com/athletic/5808426/2024/10/01/notre-dame-football-louisville-marcus-freeman/
+
 **Eurozone Inflation Slows to 1.8%, Bolstering Bets on Faster Rate Cuts**\
 `Investors now expect the European Central Bank to lower interest rates at its next meeting in October.`\
 https://nytimes.com/2024/10/01/business/eurozone-inflation-ecb-rate-cut.html
