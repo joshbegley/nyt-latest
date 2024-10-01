@@ -1,3 +1,11 @@
+**Tarik Skubal dominates, Tigers hang on for Game 1 win over Astros: Takeaways**\
+`Skubal shoved, Framber Valdez struggled, and the Tigers offense did just enough to scratch out a 3-1 win in Game 1 of the Wild Card Series.`\
+https://nytimes.com/athletic/5810672/2024/10/01/tigers-win-astros-tarik-skubal-game-1/
+
+**Jackson Jr. injures hamstring in Grizzlies' first practice**\
+`After a 2023-24 season marred by injuries to key players, the Grizzlies must absorb another loss to begin the 2024-25 campaign.`\
+https://nytimes.com/athletic/5810551/2024/10/01/jaren-jackson-injury-grizzlies-hamstring/
+
 **PGA Tour's Monahan, LIV's Al-Rumayyan playing pro-am together**\
 `Monahan and Al-Rumayyan will also each play a round with Rory McIlroy, the most vocal PGA Tour player for unification.`\
 https://nytimes.com/athletic/5810690/2024/10/01/pga-tour-monahan-liv-yasir-al-rumayyan-dunhill-golf/
