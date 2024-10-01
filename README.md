@@ -6,7 +6,7 @@ https://nytimes.com/2024/10/01/business/eurozone-inflation-ecb-rate-cut.html
 `For the first time since Sidney Crosby’s rookie season, the Penguins are on the wrong side of the playoff cut line.`\
 https://nytimes.com/athletic/5790692/2024/10/01/pittsburgh-penguins-2024-25-season-preview/
 
-**How can Notre Dame get in Playoff, how deep is Irish secondary?: Final thoughts on Louisville**\
+**How deep is Notre Dame's secondary?: Final thoughts on Louisville**\
 `Notre Dame's secondary showed off its depth against Louisville, but the Irish need to make some improvements to get into the CFP.`\
 https://nytimes.com/athletic/5808426/2024/10/01/notre-dame-football-louisville-marcus-freeman/
 
