@@ -2,8 +2,8 @@
 `Eric Wong breaks up his top 100 fantasy basketball picks for 2024-25 into sub-sections to help guide you through your upcoming drafts.`\
 https://nytimes.com/athletic/5806161/2024/10/01/fantasy-basketball-tiers-top-100-draft-guide-2024-25/
 
-**Fantasy basketball 2024-25 draft cheat sheet: Top 150 players for Roto, head-to-head and points leagues**\
-`Eric Wong offers up his fantasy basketball 2024-25 Top 150 player rankings for Roto, head-to-head and points-based leagues.`\
+**Fantasy basketball 2024-25 draft cheat sheet: Top 150 players for roto, head-to-head and points leagues**\
+`Eric Wong offers up his fantasy basketball 2024-25 Top 150 player rankings for roto, head-to-head and points-based leagues.`\
 https://nytimes.com/athletic/5808580/2024/10/01/fantasy-basketball-draft-player-rankings-cheatsheet-2024-25/
 
 **Word of the Day: abdicate**\
