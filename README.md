@@ -1,10 +1,14 @@
+**How to Punish Mayor Adams for Abusing New York Taxpayers**\
+`He needs to be kicked out of the city’s campaign finance system immediately, a councilman argues.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/adams-punishment-campaign-finance
+
 **The Briefing: Slovan Bratislava 0 Manchester City 4: Doku's end product, a record equalled and 28 shots**\
 `Manchester City cruised to victory in Slovakia and equalled a Champions League record - Sam Lee analyses the talking points`\
 https://nytimes.com/athletic/5801015/2024/10/01/slovan-bratislava-0-manchester-city-4-record-doku-foden-haaland/
 
 **In Iran, Military Commanders Win the Day, Then Israel Is Hit**\
 `The barrage of missile fire came after much debate among Iranian leaders, officials there say.`\
-https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/iran-israel-strike
+https://nytimes.com/2024/10/01/world/middleeast/iran-israel-strike.html
 
 **John Amos, a Star of ‘Good Times’ and ‘Roots,’ Dies at 84**\
 `He was the patriarch in one of the first sitcoms with an all-Black cast and an enslaved African as a grown man in the blockbuster TV mini-series.`\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009734369/tel-aviv-shooting-isr
 **In aftermath of Pete Rose’s death, silence from Rob Manfred and Tony Clark**\
 `It’s customary for the commissioner and union chief to issue comments when a prominent figure in baseball dies. They have not for Pete Rose.`\
 https://nytimes.com/athletic/5810427/2024/10/01/pete-rose-death-rob-manfred-tony-clark/
-
-**Diamondbacks owner says Montgomery signing was ‘biggest mistake this season’**\
-`Diamondbacks owner Ken Kendrick said it was his idea to pursue Jordan Montgomery, and that he should be blamed for how it turned out.`\
-https://nytimes.com/athletic/5810360/2024/10/01/diamondbacks-owner-jordan-montgomery-signing-mistake/
 
