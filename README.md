@@ -1,3 +1,7 @@
+**6 bold predictions, 4 lingering questions for Sabres ahead of season opener in Prague**\
+`Matthew Fairburn makes a few specific predictions and addresses some questions about this Sabres season.`\
+https://nytimes.com/athletic/5808861/2024/10/01/buffalo-sabres-prague-predictions-questions/
+
 **What we've learned about the Kings so far in training camp and preseason**\
 `On Alex Laferriere's opportunities, the Kings' new 1-2-2 system, the fourth line taking shape and more.`\
 https://nytimes.com/athletic/5808608/2024/10/01/la-kings-nhl-training-camp-preseason-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5461734/2024/10/01/houston-dash-fran-alonso-nwsl/
 **Germany Arrests Woman Accused of Sharing Arms Export Data With China**\
 `The woman, who worked at an airport that is one of Europe’s largest cargo hubs, is accused of passing along “flights, freight and passengers” related to arms exports.`\
 https://nytimes.com/2024/10/01/world/europe/germany-china-arrest-spying.html
-
-**Schoolchildren Are Among Many Dead in Bangkok Bus Inferno**\
-`The authorities believe the fire occurred after a tire exploded, causing the bus — which was filled with children and schoolteachers — to lose control and hit a barrier.`\
-https://nytimes.com/video/world/asia/100000009733334/schoolchildren-are-among-many-dead-in-bangkok-bus-inferno.html
 
