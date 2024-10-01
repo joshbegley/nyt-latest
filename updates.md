@@ -1,3 +1,7 @@
+**Humberto Ortega, Former Miliary Chief in Nicaragua, Dies at 77**\
+`Mr. Ortega, the estranged brother of President Daniel Ortega of Nicaragua, had been under house arrest for months after making statements that infuriated his sibling.`\
+https://nytimes.com/2024/09/30/world/americas/nicaragua-humberto-ortega-dead.html
+
 **Newsom Tacks to the Middle With California in the Spotlight**\
 `While Donald J. Trump has attacked California as too liberal for the nation, Gov. Gavin Newsom has vetoed several bills that could have become political fodder.`\
 https://nytimes.com/2024/09/30/us/newsom-california-bill-politics.html
