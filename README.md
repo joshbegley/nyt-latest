@@ -1,3 +1,7 @@
+**Tarik Skubal dominates, Tigers hang on for Game 1 win over Astros: Takeaways**\
+`Skubal shoved, Framber Valdez struggled, and the Tigers offense did just enough to scratch out a 3-1 win in Game 1 of the Wild Card Series.`\
+https://nytimes.com/athletic/5810672/2024/10/01/tigers-win-astros-tarik-skubal-game-1/
+
 **Jackson Jr. injures hamstring in Grizzlies' first practice**\
 `After a 2023-24 season marred by injuries to key players, the Grizzlies must absorb another loss to begin the 2024-25 campaign.`\
 https://nytimes.com/athletic/5810551/2024/10/01/jaren-jackson-injury-grizzlies-hamstring/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/theater/water-elephants-broadway-closing.html
 **Frank Fritz, a Host of the Antiques Show ‘American Pickers,’ Dies at 58**\
 `He and his friend Mike Wolfe launched the treasure-hunting show in 2010, part of a wave of reality TV aimed at finding fortune in everyday items.`\
 https://nytimes.com/2024/10/01/arts/frank-fritz-dead.html
-
-**U.S. Destroyers Helped Israel Intercept Iran’s Missiles, Biden Says**\
-`A Pentagon spokesman added that the Americans had launched a dozen interceptors against the Iranian missiles and that none of the 40,000 U.S. troops in the region were hurt in the attacks.`\
-https://nytimes.com/2024/10/01/world/middleeast/us-destroyers-israel-iran-missiles.html
 
