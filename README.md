@@ -1,3 +1,7 @@
+**Arteta says Timber substitution precautionary: 'He felt something muscular'**\
+`Mikel Arteta explained Jurrien Timber was taken off at half-time during Arsenal&#8217;s Champions League win over Paris Saint-Germain as a precaution after the defender experienced a muscular problem.`\
+https://nytimes.com/athletic/5810826/2024/10/01/jurrien-timber-arsenal-psg/
+
 **The Busiest Port on the East Coast Comes to a Stop**\
 `The strike by longshoremen has halted commerce at Newark and other ports on the East and Gulf Coasts, affecting an ecosystem of supply-chain workers.`\
 https://nytimes.com/2024/10/01/business/economy/dockworkers-strike-newark-port.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/01/weather/eleven-e-map-path-tracker.htm
 **When an Ohioan Debates a Minnesotan, the Midwest Takes Center Stage**\
 `JD Vance and Tim Walz each have roots in the Midwest, but how voters in the region will view the vice-presidential candidates’ different visions remains to be seen.`\
 https://nytimes.com/2024/10/01/us/vice-presidents-vance-walz-midwest.html
-
-**Tarik Skubal dominates, Tigers hang on for Game 1 win over Astros: Takeaways**\
-`Skubal shoved, Framber Valdez struggled, and the Tigers offense did just enough to scratch out a 3-1 win in Game 1 of the Wild Card Series.`\
-https://nytimes.com/athletic/5810672/2024/10/01/tigers-win-astros-tarik-skubal-game-1/
 
