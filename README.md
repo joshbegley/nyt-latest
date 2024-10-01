@@ -1,3 +1,11 @@
+**Nottingham Forest to buy Viv Anderson's European Cup medal**\
+`Nottingham Forest have arranged a deal with Viv Anderson to buy the European Cup winner’s medal that their former player had put up for auction.`\
+https://nytimes.com/athletic/5809134/2024/10/01/viv-anderson-european-cup-medal-nottingham-forest/
+
+**Canucks 23-man roster projection 2.0: Who is a lock? Who is on the bubble?**\
+`Here's how the Canucks roster is shaping up based on what we've learned entering the final week of preseason.`\
+https://nytimes.com/athletic/5808495/2024/10/01/canucks-roster-projection/
+
 **After Warm Welcome in Asia, Pope Francis Gets a Fraught Reception in Belgium**\
 `Francis drew attacks over clergy sexual abuse, the role of women in the church and his stance on abortion, reflecting difficulties the church faces in the West.`\
 https://nytimes.com/2024/10/01/world/europe/pope-francis-catholic-church-belgium.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5790692/2024/10/01/pittsburgh-penguins-2024-25-seas
 **How deep is Notre Dame's secondary?: Final thoughts on Louisville**\
 `Notre Dame's secondary showed off its depth against Louisville, but the Irish need to make some improvements to get into the CFP.`\
 https://nytimes.com/athletic/5808426/2024/10/01/notre-dame-football-louisville-marcus-freeman/
-
-**Election Live Updates: Walz-Vance Debate Could Be Last Big Event Before Voting**\
-`Senator JD Vance and Gov. Tim Walz will face off tonight in a CBS debate, and The New York Times will provide live coverage and analysis.`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate
-
-**Here’s who will be in the spin room for Tim Walz.**\
-`By Katie Glueck`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/heres-who-will-be-in-the-spin-room-for-tim-walz
 
