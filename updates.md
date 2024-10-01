@@ -1,3 +1,15 @@
+**What we've learned about the Kings so far in training camp and preseason**\
+`On Alex Laferriere's opportunities, the Kings' new 1-2-2 system, the fourth line taking shape and more.`\
+https://nytimes.com/athletic/5808608/2024/10/01/la-kings-nhl-training-camp-preseason-analysis/
+
+**Iran is poised to launch an attack on Israel, U.S. and Israeli officials say.**\
+`By Patrick Kingsley, Ronen Bergman and Eric Schmitt`\
+https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/iran-is-poised-to-launch-an-attack-on-israel-us-and-israeli-officials-say
+
+**Royals to activate Vinnie Pasquantino**\
+`Pasquantino broke his right thumb on Aug. 29 and was expected to miss six to eight weeks. He’s beaten his recovery timeline.`\
+https://nytimes.com/athletic/5809347/2024/10/01/vinnie-pasquantino-royals-mlb-wild-card-game-1/
+
 **Here Are the Finalists for the 2024 National Book Award**\
 `Percival Everett’s “James,” Salman Rushdie’s “Knife” and Diane Seuss’ “Modern Poetry” are among the honorees. Winners will be announced next month.`\
 https://nytimes.com/2024/10/01/books/finalists-2024-national-book-award.html
