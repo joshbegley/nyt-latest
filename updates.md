@@ -1,3 +1,15 @@
+**Ranking the 36 possible World Series matchups, from least to most interesting**\
+`A 12-team playoff field means 36 possible World Series combinations. All of them, in their own way, would be great.`\
+https://nytimes.com/athletic/5808243/2024/10/01/world-series-matchups-mlb-ranking/
+
+**These looming extension decisions signal a change in the NBA**\
+`Circulating around the NBA is a trendy motto: Extensions, execs and agents say, are the new free agency.`\
+https://nytimes.com/athletic/5807982/2024/10/01/nba-contract-extensions-aaron-gordon-julius-randle-jaren-jackson/
+
+**NFL Week 4 best and worst coaching decisions: Kliff Kingsbury, Todd Monken run wild**\
+`The Ravens and Commanders got their running games going while the Buccaneers' Todd Bowles bested the Eagles.`\
+https://nytimes.com/athletic/5805196/2024/10/01/nfl-week-4-worst-best-coaching-decisions-nguyen/
+
 **Rosenthal: Ohtani, Judge and 10 more major questions for the MLB postseason**\
 `The playoffs start Tuesday and we've got a question for every team in the postseason.`\
 https://nytimes.com/athletic/5808088/2024/10/01/mlb-playoffs-questions-ohtani-judge/
