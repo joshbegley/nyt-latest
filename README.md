@@ -1,3 +1,7 @@
+**A ‘Veep’ Star Vibe Checks the Vance-Walz Showdown**\
+`“This is not a date, it’s a debate!”`\
+https://nytimes.com/2024/10/02/opinion/vance-walz-debate-vibe-check-tony-hale.html
+
 **What Starts Conversation at a Brooklyn Girl Dinner?**\
 `Inside an intimate gathering with New York’s creative crust to celebrate a colorful shoe.`\
 https://nytimes.com/2024/10/02/style/margaux-matilda-goad-ballet-flat-collab-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/nyregion/nyc-doorman-steals-money-from-teacher.ht
 **Tiny Love Stories: ‘She Literally Ran From the Room’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/10/02/style/tiny-modern-love-stories-she-literally-ran-from-the-room.html
-
-**New Evidence Was Unsealed in the Federal Election Case Against Trump**\
-`Also, Biden ordered 1,000 troops to help areas destroyed by Helene. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/10/02/briefing/new-evidence-trump-case-biden-helene.html
 

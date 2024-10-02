@@ -1,3 +1,15 @@
+**What Starts Conversation at a Brooklyn Girl Dinner?**\
+`Inside an intimate gathering with New York’s creative crust to celebrate a colorful shoe.`\
+https://nytimes.com/2024/10/02/style/margaux-matilda-goad-ballet-flat-collab-party.html
+
+**A Veep Star Vibe Checks the Debate**\
+`“This is not a date, it’s a debate!”`\
+https://nytimes.com/video/opinion/100000009737584/vance-walz-debate-vibe-check-tony-hale.html
+
+**36 Hours in Edinburgh**\
+`Fall is the ideal time to explore the ruggedly beautiful Scottish capital, which turns 900 this year.`\
+https://nytimes.com/interactive/2024/10/02/travel/things-to-do-edinburgh.html
+
 **Tigers rally vs. Josh Hader to eliminate Astros and reach ALDS: Takeaways**\
 `Utilityman Andy Ibáñez bested the star closer in the eighth, hitting a double to clear the loaded bases and send Detroit to the ALDS.`\
 https://nytimes.com/athletic/5813522/2024/10/02/astros-tigers-game-2-josh-hader/
@@ -14,8 +26,8 @@ https://nytimes.com/2024/10/02/opinion/ezra-klein-podcast-vp-debate.html
 `The grisly allegations have sparked debate over some of the country’s most explosive issues, including race, gender-based violence and farm ownership.`\
 https://nytimes.com/2024/10/02/world/africa/south-african-farmers-black-women-pigs.html
 
-**Doorman Accused of Stealing Nearly $500,000 From Retired Teacher**\
-`A doorman at a building near Columbia University was charged with defrauding a 91-year-old former resident while she lived in a nursing home.`\
+**Her Pension Checks Vanished. The Doorman Stole Them, Prosecutors Say.**\
+`A doorman at a building near Columbia University was charged with taking nearly $500,000 from a 91-year-old former resident while she lived in a nursing home.`\
 https://nytimes.com/2024/10/02/nyregion/nyc-doorman-steals-money-from-teacher.html
 
 **Tiny Love Stories: ‘She Literally Ran From the Room’**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/02/style/tiny-modern-love-stories-she-literally-ran-
 **New Evidence Was Unsealed in the Federal Election Case Against Trump**\
 `Also, Biden ordered 1,000 troops to help areas destroyed by Helene. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/10/02/briefing/new-evidence-trump-case-biden-helene.html
-
-**Blue Jays stick with front office status quo, remain 'committed to this core'**\
-`Mark Shapiro and Ross Atkins sang a familiar tune in their end-of-season press conference despite the disappointing season.`\
-https://nytimes.com/athletic/5813399/2024/10/02/blue-jays-offseason-goals-ross-atkins-mark-shapiro/
-
-**JD Vance and Tim Walz Debate Draws 43 Million Viewers**\
-`The figure is significantly lower than the vice-presidential debate in 2020.`\
-https://nytimes.com/2024/10/02/business/media/vance-walz-debate-ratings.html
-
-**Curious About How The Times Is Covering the Election? Send Us Your Questions.**\
-`The election is fast approaching. New York Times editors and reporters want to answer your questions about how we will cover one of the biggest nights in news.`\
-https://nytimes.com/2024/10/02/insider/nyt-election-coverage-questions.html
 
