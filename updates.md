@@ -1,3 +1,11 @@
+**What Happens Next in Hunter Biden’s Criminal Cases**\
+`The president’s son now confronts a daunting and uncertain process that could result in serious time behind bars when he is sentenced in his tax and gun cases in mid-December.`\
+https://nytimes.com/2024/10/02/us/politics/hunter-biden-tax-gun-case.html
+
+**Pete Rose Never Changed, but Baseball Did**\
+`It has begun to acknowledge what Rose knew: That sports are deeply intertwined with gambling.`\
+https://nytimes.com/2024/10/02/opinion/pete-rose-baseball-gambling.html
+
 **Ozzie Virgil Sr., First Dominican-Born Major Leaguer, Dies at 92**\
 `An outstanding fielder though never an All-Star, he broke that barrier with the Giants in 1956 and later became the Tigers’ first Black player.`\
 https://nytimes.com/2024/10/02/sports/baseball/ozzie-virgil-sr-dead.html
