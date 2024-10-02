@@ -1,3 +1,23 @@
+**Tesla Sales Increase, Suggesting Electric Car Demand Is Rebounding**\
+`The automaker reported a gain of 6.4 percent for the latest quarter, its first such increase this year.`\
+https://nytimes.com/2024/10/02/business/tesla-electric-vehicle-sales.html
+
+**How Arsenal's intelligent occupation of space was the key to victory against PSG**\
+`Their rotations and combinations aren't particularly novel but Arsenal's ability to use them against different setups is hugely impressive`\
+https://nytimes.com/athletic/5811755/2024/10/02/arsenal-intelligent-movement-tactics-arteta/
+
+**The Misogyny of Gen Z Men Has Been Overstated**\
+`The majority of them support equality, even if they don’t call themselves feminists.`\
+https://nytimes.com/2024/10/02/opinion/gen-z-misogyny.html
+
+**Should I Press My Adult Son to Break Up With His Girlfriend?**\
+`A reader worries that her 29-year-old son is stringing along his girlfriend of nearly three years: She wants marriage and children, but he’s not sure she’s “the one.”`\
+https://nytimes.com/2024/10/02/style/adult-children-relationships-intervention.html
+
+**23XI Racing, Front Row Motorsports sue NASCAR**\
+`The disagreement stems from a long dispute related to NASCAR's charter system, which is similar to franchises for race teams.`\
+https://nytimes.com/athletic/5810445/2024/10/02/23xi-racing-front-row-nascar-lawsuit/
+
 **Barcelona sign former Juventus and Arsenal goalkeeper Szczesny**\
 `Barcelona have completed the signing of former Arsenal and Juventus goalkeeper Wojciech Szczesny on a short-term contract.`\
 https://nytimes.com/athletic/5793821/2024/10/02/barcelona-transfers-szczesny-signs/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5811912/2024/10/02/alcaraz-sinner-china-open-final-
 **The Economic Cost of a New War in the Middle East**\
 `An escalation of fighting between Israel and Iran could cause oil prices to spike and send a chill through the global economy.`\
 https://nytimes.com/2024/10/02/business/dealbook/oil-prices-israel-iran.html
-
-**Israel Declares U.N. Chief António Guterres Persona Non Grata**\
-`Foreign Minister Israel Katz said the United Nations secretary general had not condemned Iran’s missile attack on Israel in strong enough terms.`\
-https://nytimes.com/2024/10/02/world/middleeast/israel-guterres-un-ban-persona-non-grata.html
-
-**Ukraine Withdraws From Mining Town That Long Defied Russian Attacks**\
-`Vuhledar had been under assault for almost three years. Russian forces entered it after a furious battle, and Ukraine ordered troops to retreat.`\
-https://nytimes.com/2024/10/02/world/europe/ukraine-withdraws-vuhledar.html
-
-**Why the Conflict Between Iran and Israel Has Raised Oil Prices Only Modestly**\
-`The fighting is increasing fears about oil supplies, but those worries are offset by greater global production and slowing demand in China.`\
-https://nytimes.com/2024/10/02/business/iran-israel-oil-prices.html
-
-**Isak out of Sweden squad for October Nations League games**\
-`Newcastle United striker Alexander Isak has been left out of Sweden&#8217;s squad for their Nations League fixtures later this month.`\
-https://nytimes.com/athletic/5811985/2024/10/02/alexander-isak-injury-newcastle-sweden/
-
-**Dozens Die After Smugglers Force Them Off Ships Into Open Waters**\
-`Many others are missing after Yemeni operators instructed hundreds of African migrants on two boats near the Djibouti coast to get off and swim, the International Organization for Migration said.`\
-https://nytimes.com/2024/10/02/world/africa/yemen-djibouti-migrant-boats-dead.html
 
