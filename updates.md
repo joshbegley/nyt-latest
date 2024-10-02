@@ -1,3 +1,7 @@
+**Van Hecke set to return after October international break**\
+`Brighton and Hove Albion defender Jan Paul van Hecke is expected to return from a groin injury after the October international break.`\
+https://nytimes.com/athletic/5812025/2024/10/02/brighton-van-hecke-injury/
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/10/02/opinion/thepoint

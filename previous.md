@@ -1,3 +1,7 @@
+**Van Hecke set to return after October international break**\
+`Brighton and Hove Albion defender Jan Paul van Hecke is expected to return from a groin injury after the October international break.`\
+https://nytimes.com/athletic/5812025/2024/10/02/brighton-van-hecke-injury/
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/10/02/opinion/thepoint
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5811755/2024/10/02/arsenal-intelligent-movement-tac
 **The Misogyny of Gen Z Men Has Been Overstated**\
 `The majority of them support equality, even if they don’t call themselves feminists.`\
 https://nytimes.com/2024/10/02/opinion/gen-z-misogyny.html
-
-**Should I Press My Adult Son to Break Up With His Girlfriend?**\
-`A reader worries that her 29-year-old son is stringing along his girlfriend of nearly three years: She wants marriage and children, but he’s not sure she’s “the one.”`\
-https://nytimes.com/2024/10/02/style/adult-children-relationships-intervention.html
 
