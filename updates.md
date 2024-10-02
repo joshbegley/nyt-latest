@@ -1,3 +1,11 @@
+**Royals sweep aside Orioles to advance to AL Division Series vs. Yankees: Takeaways**\
+`Royals pitching held down the Orioles over both games, and the Royals scraped together runs with their speed while the Orioles struck out.`\
+https://nytimes.com/athletic/5814018/2024/10/02/royals-sweep-orioles-wild-card-series/
+
+**Kalia Davis is back, but the 49ers are still waiting on Ricky Pearsall**\
+`The 49ers practiced without Fred Warner, George Kittle and several others, though the heat and their schedule were factors Wednesday.`\
+https://nytimes.com/athletic/5813895/2024/10/02/49ers-injuries-ricky-pearsall-kalia-davis/
+
 **Israeli Strikes on Gaza Schools and an Orphanage Kill Scores of Palestinians, Officials Say**\
 `The Palestinian Authority’s official news agency said the Israeli military operation had included an incursion by ground troops and airstrikes.`\
 https://nytimes.com/2024/10/02/world/middleeast/israel-strikes-gaza-schools-orphanage.html
