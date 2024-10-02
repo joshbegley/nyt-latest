@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/10/02/us/harris-trump-walz-vance-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: After V.P. Debate, Campaigns Fan Out to Swing States**\
+`Senator JD Vance of Ohio will be in Michigan on Wednesday, while his rival, Gov. Tim Walz of Minnesota, plans to be in central Pennsylvania. Vice President Kamala Harris is headed to Georgia.`\
+https://nytimes.com/live/2024/10/02/us/harris-trump-walz-vance-election
+
+**Police See No Trace of a Serial Killer in Brooklyn. But 3 Deaths Chill Nightlife.**\
+`As rumors spin on social media, revelers in one of New York City’s most popular neighborhoods for nightlife are on higher alert.`\
+https://nytimes.com/2024/10/02/us/brooklyn-deaths-avant-gardner-newtown-creek.html
+
 **NFL player poll: Taylor Swift's presence is positive for the league**\
 `Only 4.9 percent of players polled by The Athletic viewed the pop star's interest in the game as a negative.`\
 https://nytimes.com/athletic/5806056/2024/10/02/taylor-swift-nfl-player-poll/
