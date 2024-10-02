@@ -1,3 +1,11 @@
+**A Storm, a Strike and War Abroad Pose Challenges for Harris**\
+`Scenes of striking workers, hurricane devastation in the Southeast and missiles over Israel represent a rare moment of turbulence for Kamala Harris.`\
+https://nytimes.com/2024/10/02/us/politics/harris-israel-iran-helene-port-strike.html
+
+**Gilead Agrees to Allow Generic Version of Groundbreaking H.I.V. Shot in Poor Countries**\
+`Many middle-income countries are left out of the deal, widening a gulf in access to critical medicines.`\
+https://nytimes.com/2024/10/02/health/lenacapavir-hiv-shot-prep.html
+
 **To Build a Nuclear Bomb, Iran Would Need Much More Than Weeks**\
 `Nuclear experts see Tehran as facing up to a year of hard work to master the knotty basics of building a deliverable atom bomb.`\
 https://nytimes.com/2024/10/02/science/iran-nuclear-weapon.html
