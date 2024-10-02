@@ -1,3 +1,8 @@
+**Was Jesse Winker vs. Willy Adames a chewing out, or just chewing gum?**\
+`Winker: “If y’all think I am able to run and talk, you don’t know my athletic abilities. Can’t do that.”
+`\
+https://nytimes.com/athletic/5811450/2024/10/01/was-jesse-winker-vs-willy-adames-a-chewing-out-or-just-chewing-gum/
+
 **Ready as always, the Mets pounce on the Brewers in Game 1**\
 `The Mets continued their recent habit of snowballing innings on opponents: "It's passing the baton."`\
 https://nytimes.com/athletic/5811414/2024/10/01/mets-brewers-wild-card-analysis/
@@ -33,8 +38,4 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/the-one-thing-that-j
 **“25 million illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/25-million-illegal-aliens-competing-with-americans-for-scarce-homes-is-one-of-the-most-significant-drivers-of-home-prices-in-the
-
-**Liberty takes Game 2 of WNBA semifinals, Aces on verge of elimination**\
-`Liberty will look to sweep the Aces on Friday night in Las Vegas.`\
-https://nytimes.com/athletic/5811340/2024/10/01/liberty-aces-wnba-semifinals-result/
 
