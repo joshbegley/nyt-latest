@@ -1,3 +1,11 @@
+**Assistant referee discharged from hospital after medical incident at West Brom**\
+`Assistant referee Rob Smith was discharged from hospital on Wednesday after a medical incident at West Bromwich Albion&#8217;s Championship clash against Middlesbrough.`\
+https://nytimes.com/athletic/5811942/2024/10/02/assistant-referee-west-brom-middlesbrough/
+
+**Weird & Wild: O's, Royals and ... Babe Ruth? Astros 103, Tigers 0? Mets' 'Win Improbability'**\
+`After four games, eight-plus hours and a tidy 1,240 pitches, here are all the Weird & Wild highlights from Day One of the MLB playoffs,. `\
+https://nytimes.com/athletic/5811858/2024/10/02/oriols-royals-astros-tigers-mets-mlb-playoffs-day-1/
+
 **How the Bears' run game and D'Andre Swift finally set the tone**\
 `The Bears mixed things up and got the run game going in Week 4. Swift had his best game. What's the film tell us? A breakdown.`\
 https://nytimes.com/athletic/5809527/2024/10/02/dandre-swift-bears-run-game/

@@ -1,9 +1,13 @@
+**Assistant referee discharged from hospital after medical incident at West Brom**\
+`Assistant referee Rob Smith was discharged from hospital on Wednesday after a medical incident at West Bromwich Albion&#8217;s Championship clash against Middlesbrough.`\
+https://nytimes.com/athletic/5811942/2024/10/02/assistant-referee-west-brom-middlesbrough/
+
 **How the Bears' run game and D'Andre Swift finally set the tone**\
 `The Bears mixed things up and got the run game going in Week 4. Swift had his best game. What's the film tell us? A breakdown.`\
 https://nytimes.com/athletic/5809527/2024/10/02/dandre-swift-bears-run-game/
 
 **Weird & Wild: O's, Royals and ... Babe Ruth? Astros 103, Tigers 0? Mets' 'Win Improbability'**\
-`After eight-plus hours and a tidy 1,240 pitches, here are all the Weird & Wild highlights from Day One of the MLB playoffs,. `\
+`After four games, eight-plus hours and a tidy 1,240 pitches, here are all the Weird & Wild highlights from Day One of the MLB playoffs,. `\
 https://nytimes.com/athletic/5811858/2024/10/02/oriols-royals-astros-tigers-mets-mlb-playoffs-day-1/
 
 **Tafur: Why the Davante Adams-Raiders marriage was wrong from the very beginning**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5811374/2024/10/02/cole-ragans-kansas-city-trade-re
 **Rangers roster projection 2.0: Edström stakes his claim, Mancini surges**\
 `With coach Peter Laviolette likely to play a full-strength roster Friday, prospects likely had their last chance to impress Tuesday night.`\
 https://nytimes.com/athletic/5811295/2024/10/02/rangers-roster-projection-edstrom-mancini/
-
-**How long is Brayden Narveson's leash as another Packers rookie kicker struggles?**\
-`After releasing 2023 draft pick Anders Carlson this summer, the Packers claimed the undrafted Narveson and nothing has changed.`\
-https://nytimes.com/athletic/5809840/2024/10/02/packers-kicker-brayden-narveson/
 
