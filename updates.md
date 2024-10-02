@@ -1,3 +1,7 @@
+**Victim’s Unsealed Testimony Reveals New Details in Epstein Case**\
+`The woman testified in a now-settled lawsuit against J.P. Morgan Chase on behalf of hundreds of Jeffrey Epstein’s victims.`\
+https://nytimes.com/2024/10/02/business/epstein-jpmorgan-lawsuit.html
+
 **When Artists Found Beauty in London’s Toxic Fog**\
 `Monet and Turner found something sublime in the polluted 19th-century city — and maybe something darker, too.`\
 https://nytimes.com/2024/10/02/arts/monet-turner-london-pollution.html

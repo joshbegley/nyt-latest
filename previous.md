@@ -1,3 +1,7 @@
+**Victim’s Unsealed Testimony Reveals New Details in Epstein Case**\
+`The woman testified in a now-settled lawsuit against J.P. Morgan Chase on behalf of hundreds of Jeffrey Epstein’s victims.`\
+https://nytimes.com/2024/10/02/business/epstein-jpmorgan-lawsuit.html
+
 **When Artists Found Beauty in London’s Toxic Fog**\
 `Monet and Turner found something sublime in the polluted 19th-century city — and maybe something darker, too.`\
 https://nytimes.com/2024/10/02/arts/monet-turner-london-pollution.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5812208/2024/10/02/manchester-united-porto-preview/
 **After a Decade, Scientists Unveil Fly Brain in Stunning Detail**\
 `Scientists have mapped out how 140,000 neurons are wired in the brain of the fruit fly, Drosophila melanogaster.`\
 https://nytimes.com/2024/10/02/science/fruit-fly-brain-mapped.html
-
-**Hurricane Helene Deaths Will Continue for Years, Study Suggests**\
-`Research on hundreds of tropical storms finds that mortality keeps rising for more than a decade afterward, for reasons you might not expect.`\
-https://nytimes.com/2024/10/02/business/economy/hurricane-helene-deaths-climate.html
 
