@@ -1,3 +1,23 @@
+**Ready as always, the Mets pounce on the Brewers in Game 1**\
+`The Mets continued their recent habit of snowballing innings on opponents: "It's passing the baton."`\
+https://nytimes.com/athletic/5811414/2024/10/01/mets-brewers-wild-card-analysis/
+
+**Actually, We Absolutely Do Need to Escalate in Iran**\
+`Iran now presents an intolerable threat to Israel, America and the liberal-international order.`\
+https://nytimes.com/2024/10/01/opinion/iran-israel-hezbollah.html
+
+**Walz Says He ‘Misspoke’ About Being in Hong Kong During Tiananmen Square Protests**\
+`At the vice-presidential debate, Gov. Tim Walz tried to dismiss a previous misstatement as insignificant and said he could be “a knucklehead at times.”`\
+https://nytimes.com/2024/10/01/us/politics/walz-debate-hong-kong-tiananmen-square.html
+
+**“There’s a Federal Reserve study that we’re happy to share after the debate — we’ll put it up on social media, actually — that really drills down on the connection between increased levels of migration, especially illegal immigration, and higher housing prices.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/theres-a-federal-reserve-study-that-were-happy-to-share-after-the-debate-well-put-it-up-on-social-media-actually-that-really-dri
+
+**“This issue of housing — and I think those of you listening on this — the problem we’ve had is that we’ve got a lot of folks that see housing as another commodity.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/this-issue-of-housing-and-i-think-those-of-you-listening-on-this-the-problem-weve-had-is-that-weve-got-a-lot-of-folks-that-see
+
 **“If we open up American energy, you will get immediate pricing relief for American citizens not, by the way, just in housing but in a whole host of economic goods too.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-we-open-up-american-energy-you-will-get-immediate-pricing-relief-for-american-citizens-not-just-in-housing-but-a-whole-host-o
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/25-million-illegal-a
 **Liberty takes Game 2 of WNBA semifinals, Aces on verge of elimination**\
 `Liberty will look to sweep the Aces on Friday night in Las Vegas.`\
 https://nytimes.com/athletic/5811340/2024/10/01/liberty-aces-wnba-semifinals-result/
-
-**“Project 2025 is going to have a registry of pregnancies.”**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/project-2025-is-going-to-have-a-registry-of-pregnancies
-
-**“All I said on this is I got there this summer and misspoke on this. So I will just — that’s what I’ve said. So I was in Hong Kong and China, during the democracy protests, went in. And from that, I learned a lot of what needed to be in governance.”**\
-`By Edward Wong`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/all-i-said-on-this-is-i-got-there-this-summer-and-misspoke-on-this-so-i-will-just-thats-what-ive-said-so-i-was-in-hong-kong-and-
-
-**“Donald Trump was the guy who created the largest trade deficit in American history with China.”**\
-`By Ana Swanson`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/donald-trump-was-the-guy-who-created-the-largest-trade-deficit-in-american-history-with-china
-
-**Exchange Between Vance and Walz Shows Gulf on Climate Change Views**\
-`As Hurricane Helene made climate change an early focus of the vice-presidential debate, the running mates quickly demonstrated the stark differences between the parties on the issue.`\
-https://nytimes.com/2024/10/01/us/politics/vance-walz-debate-hurricane-climate.html
-
-**“The statute you signed into law, it says that a doctor who presides over an abortion where the baby survives — the doctor is under no obligation to provide life-saving care to a baby who survives a botched late-term abortion.”**\
-`By Kate Zernike`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/the-statute-you-signed-into-law-it-says-that-a-doctor-who-presides-over-an-abortion-where-the-baby-survives-the-doctor-is-under-
 
