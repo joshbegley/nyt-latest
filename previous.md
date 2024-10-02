@@ -1,3 +1,7 @@
+**Here’s Where U.S. Forces Are Deployed in the Middle East**\
+`The Pentagon is preparing to send more troops and aircraft to the region. This is an overview of the U.S. military presence there.`\
+https://nytimes.com/2024/10/02/world/middleeast/us-troops-middle-east-map.html
+
 **New-look Lynx respond after Game 1 loss to even series with the Sun**\
 `A feisty Connecticut won Game 1 and tried to impose its will in Game 2. But Minnesota wasn't having it.`\
 https://nytimes.com/athletic/5811345/2024/10/02/wnba-lynx-sun-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5811044/2024/10/02/fernando-tatis-jr-padres-braves-
 **Frenkie de Jong is back for Barcelona. It's one of those good problems to have**\
 `Barcelona's 5-0 home victory over Swiss side Young Boys in the Champions League saw the Dutchman finally return from injury `\
 https://nytimes.com/athletic/5811691/2024/10/02/frenkie-de-jong-barcelona-champions-league-return-young-boys/
-
-**Newcastle takeaways: Osula needs patience, St. James' needs expanding and cup dream still alive**\
-`Newcastle stumbled as they overcame AFC Wimbledon in the Carabao Cup on Tuesday night`\
-https://nytimes.com/athletic/5809856/2024/10/02/newcastle-united-wimbledon-analysis/
 
