@@ -1,3 +1,15 @@
+**Flare-Up in Israel-Iran Conflict Leaves Harris Unable to Avoid the Subject**\
+`Missiles over Tel Aviv fed Donald Trump’s narrative of a world in chaos and vaporized any hopes of an end to the war. In the near term, that poses political problems for Democrats.`\
+https://nytimes.com/2024/10/02/us/politics/israel-iran-war-harris-policy.html
+
+**Review: Finding the Right Rep for a Repertory Company**\
+`Dayton Contemporary Dance Company brought a mixed bill to the Joyce Theater, including a Paul Taylor classic and a dance by the great Rennie Harris.`\
+https://nytimes.com/2024/10/02/arts/review-dayton-contemporary-dance-company-esplanade.html
+
+**Pete Rose Never Changed, but Baseball Did**\
+`It has begun to acknowledge what Rose knew: That sports are deeply intertwined with gambling.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/pete-rose-baseball-gambling
+
 **NWSL, Tiffany & Co. unveil redesigned Shield, MVP trophies**\
 `The NWSL first partnered with Tiffany & Co. last year, kicking off their partnership with redesigned versions of the league’s Championship a`\
 https://nytimes.com/athletic/5812830/2024/10/02/nwsl-tiffany-co-shield-mvp-trophy-redesign/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5811325/2024/10/02/davante-adams-trade-offers-raide
 **JD Vance’s Old Yale Law Classmates Raise Money for Springfield’s Haitian Residents**\
 `Some donors said they were seeking to repair damage the Trump-Vance campaign, and Mr. Vance himself, had caused by spreading bogus rumors that migrants were harming pets.`\
 https://nytimes.com/2024/10/02/us/politics/jd-vance-yale-classmates-haitian-migrants.html
-
-**Steve Staios 1-on-1: Playoff expectations for Senators? Linus Ullmark extension update?**\
-`Is this the year the Senators make it back to the postseason? It's the biggest question among many surrounding the franchise.`\
-https://nytimes.com/athletic/5799576/2024/10/02/ottawa-senators-steve-staios-ullmark/
-
-**Fernando Valenzuela to focus on health**\
-`Fernando Valenzuela, the Los Angeles Dodgers’ iconic left-hander and longtime Spanish radio broadcaster, will step away from the booth for the remainder of the season “to focus on his health,” the Dodgers announced Wednesday.`\
-https://nytimes.com/athletic/5812815/2024/10/02/dodgers-fernando-valenzuela-health/
-
-**Iran’s Strikes on Israel Look Calculated to Shore Up Regional Alliance**\
-`Iran’s second missile barrage against Israel is unlikely to deter its foe, experts say, but may help retain the support of the “Axis of Resistance” it has built up over years.`\
-https://nytimes.com/2024/10/02/world/middleeast/iran-israel-hezbollah-strikes.html
 
