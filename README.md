@@ -11,7 +11,7 @@ https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/i-never-supported-a-
 https://nytimes.com/2024/09/25/opinion/walz-vance-debate-loser.html
 
 **Wild owner Craig Leipold on extending Kirill Kaprizov: 'Nobody will offer more money than us, or longer'**\
-`The Wild owner talked about the team eyeing a long-term extension for superstar Kirill Kaprizov next summer and more. `\
+`The Wild owner talked about the team eyeing a long-term extension for Kaprizov next summer and more. `\
 https://nytimes.com/athletic/5811413/2024/10/01/wild-kirill-kaprizov-extension-contract/
 
 **“We have to remember that for years in this country, Democrats protested the results of elections. Hillary Clinton in 2016 said that Donald Trump had the election stolen by Vladimir Putin because the Russians bought like $500,000 worth of Facebook ads.”**\
