@@ -1,3 +1,15 @@
+**Inside the First Fashion Show at Disneyland Paris**\
+`By Alex Huanfa Cheng`\
+https://nytimes.com/card/2024/10/02/t-magazine/fashion/coperni-fashion-show-disneyland-paris
+
+**Judge Unseals New Evidence in Federal Election Case Against Trump**\
+`Judge Tanya Chutkan made public portions of a filing by prosecutors setting out their argument for why the case should go forward despite the Supreme Court’s ruling on presidential immunity.`\
+https://nytimes.com/2024/10/02/us/politics/judge-unseals-new-evidence-in-federal-election-case-against-trump.html
+
+**Beyoncé Released a Song and Levi’s Saw Its Moment**\
+`The denim brand was looking for ways to sell more apparel to women, and the megastar gave them a natural spokeswoman thanks to a song on “Cowboy Carter.”`\
+https://nytimes.com/2024/10/02/style/beyonce-levis-women.html
+
 **Stranded in North Carolina’s Mountains, ‘You Can’t Tell That the World’s Going On’**\
 `With no way for cars to get into Bat Cave, N.C., food and water have been dropped off by helicopters or carried over the river on foot or by a raft.`\
 https://nytimes.com/2024/10/02/us/helene-north-carolina-flood-bat-cave.html

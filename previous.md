@@ -1,3 +1,15 @@
+**Inside the First Fashion Show at Disneyland Paris**\
+`By Alex Huanfa Cheng`\
+https://nytimes.com/card/2024/10/02/t-magazine/fashion/coperni-fashion-show-disneyland-paris
+
+**Judge Unseals New Evidence in Federal Election Case Against Trump**\
+`Judge Tanya Chutkan made public portions of a filing by prosecutors setting out their argument for why the case should go forward despite the Supreme Court’s ruling on presidential immunity.`\
+https://nytimes.com/2024/10/02/us/politics/judge-unseals-new-evidence-in-federal-election-case-against-trump.html
+
+**Beyoncé Released a Song and Levi’s Saw Its Moment**\
+`The denim brand was looking for ways to sell more apparel to women, and the megastar gave them a natural spokeswoman thanks to a song on “Cowboy Carter.”`\
+https://nytimes.com/2024/10/02/style/beyonce-levis-women.html
+
 **Stranded in North Carolina’s Mountains, ‘You Can’t Tell That the World’s Going On’**\
 `With no way for cars to get into Bat Cave, N.C., food and water have been dropped off by helicopters or carried over the river on foot or by a raft.`\
 https://nytimes.com/2024/10/02/us/helene-north-carolina-flood-bat-cave.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/02/world/europe/clerical-sex-abuse-basilica.html
 **A Shift Among Democrats: Embrace Record Levels of Oil and Gas**\
 `Tim Walz said climate change is real, but boasted about high U.S. levels of oil and gas production. JD Vance called climate change “weird science.”`\
 https://nytimes.com/2024/10/02/climate/walz-oil-gas-vance.html
-
-**At Frieze London, Arab Artists Look Inward**\
-`ATHR Gallery in Jeddah, Saudi Arabia, will showcase works by four artists that explore Islamic artistic identity.`\
-https://nytimes.com/2024/10/02/arts/design/frieze-london-athr-gallery.html
-
-**Take Advantage of Frieze London to Explore Regent’s Park**\
-`The park has served as an inspiration for writers, poets and artists for decades.`\
-https://nytimes.com/2024/10/02/arts/design/frieze-london-regents-park.html
-
-**After Missile Attack, Israel May Be Ready to Risk All-Out War With Iran**\
-`Israel seems ready to respond in a much more forceful and public way with Iran after Tehran launched its second massive missile attack on Israel this year, analysts and officials say.`\
-https://nytimes.com/2024/10/02/world/middleeast/iran-missile-attack-israel-war.html
 
