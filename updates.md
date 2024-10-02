@@ -1,3 +1,15 @@
+**Late Night Goes Live After a ‘Dull’ Vice-Presidential Debate**\
+`Stephen Colbert was unenthused by Tuesday’s discourse between Tim Walz and JD Vance.`\
+https://nytimes.com/2024/10/02/arts/television/late-night-vice-presidential-debate.html
+
+**There is a gulf between PSG and Arsenal - Luis Enrique's side need to hit that level**\
+`PSG lost against Arsenal on Tuesday night and were a cut below Mikel Arteta's side`\
+https://nytimes.com/athletic/5811167/2024/10/02/psg-arsenal-analysis/
+
+**This Is Why MAGA Loves JD Vance**\
+`Trump’s running mate is no Mike Pence.`\
+https://nytimes.com/2024/10/02/opinion/vance-trump-maga-walz-vice-presidential-debate.html
+
 **Braves face a must-win game after AJ Smith-Shawver stumbles, hitters flail**\
 `The Braves and Max Fried have no margin for error. It’s win or go home.`\
 https://nytimes.com/athletic/5811685/2024/10/02/braves-padres-mlb-wild-card-game-1/
