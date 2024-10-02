@@ -1,3 +1,11 @@
+**An Ohio State freshman can't stop making jaw-dropping plays. These are the best so far**\
+`Jeremiah Smith has made an instant impact at Ohio State with a staggering number of highlight-reel catches in just four games.`\
+https://nytimes.com/athletic/5810306/2024/10/02/jeremiah-smith-ohio-state-highlights-best-plays/
+
+**‘The numbers don’t lie’: Why MLB’s early playoff slate features so many day games**\
+`To avoid overlapping games, MLB and its partners start early. Said one exec: “People do want the ability to watch as much as they can."`\
+https://nytimes.com/athletic/5811644/2024/10/02/mlb-postseason-day-games/
+
 **Can the Celtics repeat as NBA champions? 5 things to watch in preseason**\
 `The Celtics are heading to Abu Dhabi to play the Denver Nuggets. What should we be keeping an eye on in the preseason?`\
 https://nytimes.com/athletic/5810904/2024/10/02/celtics-preseason-abu-dhabi-things-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/technology/personaltech/apple-intelligence-iphone
 **Why Nicole Kidman Drives Her Critics Crazy**\
 `She’s everywhere, and she’s giving a lot of work to female talent. Is that such a bad thing?`\
 https://nytimes.com/2024/10/02/opinion/nicole-kidman-female-gaze.html
-
-**What do Army and Navy's historic starts mean for AAC championship? CFP?**\
-`Army and Navy are both 4-0 for the first time since 1945. But don’t expect any national unity between the two rivals.`\
-https://nytimes.com/athletic/5811105/2024/10/02/army-navy-college-football-undefeated/
-
-**A Venture Capital Firm Does Something Rare: Give Money Back**\
-`CRV, based in Silicon Valley, plans to return to investors $275 million because the market for mature start-ups has soured.`\
-https://nytimes.com/2024/10/02/technology/crv-vc-fund-returning-money.html
 
