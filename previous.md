@@ -26,7 +26,7 @@ https://nytimes.com/2024/10/02/us/politics/vice-presidential-debate-voter-reacti
 `The vice-presidential candidates largely avoided personal attacks, with JD Vance showing a knack for revising history while Tim Walz appeared to battle nerves.`\
 https://nytimes.com/2024/10/02/us/politics/who-won-debate-vance-walz.html
 
-**The Moment When a Vance Non-Answer Said Plenty**\
+**The Moment When Vance Dodged a Question but Said Plenty**\
 `JD Vance sailed fairly smoothly through some 90 minutes of Tuesday’s debate with Tim Walz. Then the subject turned to the Jan. 6, 2021, attack on the Capitol.`\
 https://nytimes.com/2024/10/02/us/politics/vance-jan-6-debate.html
 
