@@ -1,3 +1,7 @@
+**Eugene Gold, Brooklyn D.A. Who Led the ‘Son of Sam’ Case, Dies at 100**\
+`He prosecuted high-profile cases in the 1970s and championed Soviet Jews, but, after retiring, he ran afoul of the law himself, charged with a sex offense.`\
+https://nytimes.com/2024/10/02/nyregion/eugene-gold-dead.html
+
 **A ‘Veep’ Star Vibe Checks the Vance-Walz Showdown**\
 `“This is not a date, it’s a debate!”`\
 https://nytimes.com/2024/10/02/opinion/vance-walz-debate-vibe-check-tony-hale.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/world/africa/south-african-farmers-black-women-pi
 **Her Pension Checks Vanished. The Doorman Stole Them, Prosecutors Say.**\
 `A doorman at a building near Columbia University was charged with taking nearly $500,000 from a 91-year-old former resident while she lived in a nursing home.`\
 https://nytimes.com/2024/10/02/nyregion/nyc-doorman-steals-money-from-teacher.html
-
-**Tiny Love Stories: ‘She Literally Ran From the Room’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/10/02/style/tiny-modern-love-stories-she-literally-ran-from-the-room.html
 

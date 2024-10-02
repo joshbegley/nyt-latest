@@ -1,3 +1,7 @@
+**Eugene Gold, Brooklyn D.A. Who Led the ‘Son of Sam’ Case, Dies at 100**\
+`He prosecuted high-profile cases in the 1970s and championed Soviet Jews, but, after retiring, he ran afoul of the law himself, charged with a sex offense.`\
+https://nytimes.com/2024/10/02/nyregion/eugene-gold-dead.html
+
 **A ‘Veep’ Star Vibe Checks the Vance-Walz Showdown**\
 `“This is not a date, it’s a debate!”`\
 https://nytimes.com/2024/10/02/opinion/vance-walz-debate-vibe-check-tony-hale.html
