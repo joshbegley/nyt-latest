@@ -1,3 +1,7 @@
+**Aston Villa 1 Bayern Munich 0 - How super-sub Jhon Duran scored his Champions League stunner**\
+`Analysis of Aston Villa's 1-0 Champions League victory over Bayern Munich`\
+https://nytimes.com/athletic/5813398/2024/10/02/villa-bayern-duran-champions-league-highlights/
+
 **Read the Special Counsel’s Newly Unsealed Evidence Against Trump**\
 `A sprawling legal brief by the special counsel, Jack Smith, lays out his case for why former President Donald J. Trump is not immune from prosecution on federal charges of plotting to overturn the 2020 election. It adds new details of how Mr. Trump tried to cling to power.`\
 https://nytimes.com/interactive/2024/10/02/us/trump-j6-sco-immunity-brief.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5801017/2024/10/02/liverpool-bologna-champions-leag
 **The V.P. Debate Might Boost Vance and Walz, but It Probably Won’t Shift the Polls**\
 `Voters may view JD Vance and Tim Walz more positively after Tuesday’s debate. But it’s unlikely to have much impact on their choices for president.`\
 https://nytimes.com/2024/10/02/us/elections/vice-presidential-debate-polls-vance-walz.html
-
-**What to Know About the Israel-Hezbollah War**\
-`An Israeli ground operation targeting Hezbollah forces in Lebanon recalls previous wars and raises fears of worse to come.`\
-https://nytimes.com/2024/10/02/world/middleeast/israel-hezbollah-lebanon-war-history.html
 
