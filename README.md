@@ -4,7 +4,7 @@ https://nytimes.com/2024/10/02/us/hurricane-helene-north-carolina.html
 
 **Submit your bold predictions for the Blues’ 2024-25 season**\
 `Submit your predictions here, and Blues writer Jeremy Rutherford will pick a handful to analyze in an upcoming story.`\
-https://nytimes.com/athletic/5813510/2024/10/02/submit-your-bold-predictions-for-the-blues-2024-25-season/
+https://nytimes.com/athletic/5813510/2024/10/02/blues-bold-predictions-discussion-2024/
 
 **Trump’s Insults to Harris’s Intelligence? Jokes, Lara Trump Claims.**\
 `During rallies and on social media, former President Donald J. Trump has repeatedly disparaged Vice President Kamala Harris.`\
