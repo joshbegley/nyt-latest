@@ -33,6 +33,11 @@ https://nytimes.com/athletic/5811450/2024/10/01/jesse-winker-willy-adames-mets-b
 `\
 https://nytimes.com/athletic/5811450/2024/10/01/jesse-winker-willy-adames-mets-brewers/
 
+**Was Jesse Winker vs. Willy Adames a chewing out, or just chewing gum?**\
+`Winker: “If y’all think I am able to run and talk, you don’t know my athletic abilities. Can’t do that.”
+`\
+https://nytimes.com/athletic/5811450/2024/10/01/jesse-winker-willy-adames-mets-brewers/
+
 **The reason child care is “so expensive right now is because you’ve got way too few people providing this very essential service.”**\
 `By Dana Goldstein`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/the-reason-child-care-is-so-expensive-right-now-is-because-youve-got-way-too-few-people-providing-this-very-essential-service
