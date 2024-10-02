@@ -1,3 +1,20 @@
+**“We have to remember that for years in this country, Democrats protested the results of elections. Hillary Clinton in 2016 said that Donald Trump had the election stolen by Vladimir Putin because the Russians bought like $500,000 worth of Facebook ads.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/we-have-to-remember-that-for-years-in-this-country-democrats-protested-the-results-of-elections-hillary-clinton-in-2016-said-tha
+
+**“Look, Tim, first of all, it’s really rich for Democratic leaders to say that Donald Trump is a unique threat to democracy when he peacefully gave over power on January the 20th as we have done for 250 years in this country.”**\
+`By Linda Qiu`\
+https://nytimes.com/2024/10/01/us/politics/look-tim-first-of-all-its-really-rich-for-democratic-leaders-to-say-that-donald-trump-is-a-unique-threat-to-democracy-when-he-pe.html
+
+**Fernando Tatis powers Padres to Game 1 win over Braves: takeaways**\
+`Michael King was never a full-time starter in New York.`\
+https://nytimes.com/athletic/5811399/2024/10/01/padres-braves-wild-card-tatis/
+
+**Was Jesse Winker vs. Willy Adames a chewing out, or just chewing gum?**\
+`Winker: “If y’all think I am able to run and talk, you don’t know my athletic abilities. Can’t do that.”
+`\
+https://nytimes.com/athletic/5811450/2024/10/01/jesse-winker-willy-adames-mets-brewers/
+
 **Was Jesse Winker vs. Willy Adames a chewing out, or just chewing gum?**\
 `Winker: “If y’all think I am able to run and talk, you don’t know my athletic abilities. Can’t do that.”
 `\

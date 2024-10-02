@@ -1,3 +1,15 @@
+**“We have to remember that for years in this country, Democrats protested the results of elections. Hillary Clinton in 2016 said that Donald Trump had the election stolen by Vladimir Putin because the Russians bought like $500,000 worth of Facebook ads.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/we-have-to-remember-that-for-years-in-this-country-democrats-protested-the-results-of-elections-hillary-clinton-in-2016-said-tha
+
+**“Look, Tim, first of all, it’s really rich for Democratic leaders to say that Donald Trump is a unique threat to democracy when he peacefully gave over power on January the 20th as we have done for 250 years in this country.”**\
+`By Linda Qiu`\
+https://nytimes.com/2024/10/01/us/politics/look-tim-first-of-all-its-really-rich-for-democratic-leaders-to-say-that-donald-trump-is-a-unique-threat-to-democracy-when-he-pe.html
+
+**Fernando Tatis powers Padres to Game 1 win over Braves: takeaways**\
+`Michael King was never a full-time starter in New York.`\
+https://nytimes.com/athletic/5811399/2024/10/01/padres-braves-wild-card-tatis/
+
 **The reason child care is “so expensive right now is because you’ve got way too few people providing this very essential service.”**\
 `By Dana Goldstein`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/the-reason-child-care-is-so-expensive-right-now-is-because-youve-got-way-too-few-people-providing-this-very-essential-service
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/5811450/2024/10/01/jesse-winker-willy-adames-mets-b
 **Ready as always, the Mets pounce on the Brewers in Game 1**\
 `The Mets continued their recent habit of snowballing innings on opponents: "It's passing the baton."`\
 https://nytimes.com/athletic/5811414/2024/10/01/mets-brewers-wild-card-analysis/
-
-**Actually, We Absolutely Do Need to Escalate in Iran**\
-`Iran now presents an intolerable threat to Israel, America and the liberal-international order.`\
-https://nytimes.com/2024/10/01/opinion/iran-israel-hezbollah.html
-
-**Walz Says He ‘Misspoke’ About Being in Hong Kong During Tiananmen Square Protests**\
-`At the vice-presidential debate, Gov. Tim Walz tried to dismiss a previous misstatement as insignificant and said he could be “a knucklehead at times.”`\
-https://nytimes.com/2024/10/01/us/politics/walz-debate-hong-kong-tiananmen-square.html
-
-**“There’s a Federal Reserve study that we’re happy to share after the debate — we’ll put it up on social media, actually — that really drills down on the connection between increased levels of migration, especially illegal immigration, and higher housing prices.”**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/theres-a-federal-reserve-study-that-were-happy-to-share-after-the-debate-well-put-it-up-on-social-media-actually-that-really-dri
 
