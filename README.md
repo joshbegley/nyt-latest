@@ -31,7 +31,7 @@ https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/back-fro
 https://nytimes.com/2024/10/02/theater/sarah-snook-dorian-gray-broadway.html
 
 **Carlos Alcaraz beats Jannik Sinner to forge further ahead in the most exciting matchup in tennis**\
-`And then it was 6-4.`\
+`The two best men's tennis players in the world did not disappoint in the 10th installment of their tennis rivalry.`\
 https://nytimes.com/athletic/5811912/2024/10/02/alcaraz-sinner-china-open-final-result-analysis/
 
 **The Economic Cost of a New War in the Middle East**\
