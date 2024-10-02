@@ -1,3 +1,7 @@
+**Corrections: Oct. 2, 2024**\
+`Corrections that appeared in print on Wednesday, Oct. 2, 2024.`\
+https://nytimes.com/2024/10/01/pageoneplus/corrections-oct-2-2024.html
+
 **New Giants president Buster Posey asked for the ball — and the accountability**\
 `Posey admits he has a lot to learn, but one thing he won't have to learn is the importance of the Giants to their community.`\
 https://nytimes.com/athletic/5811218/2024/10/01/buster-posey-sf-giants-new-direction/

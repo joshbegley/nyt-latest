@@ -1,3 +1,7 @@
+**Corrections: Oct. 2, 2024**\
+`Corrections that appeared in print on Wednesday, Oct. 2, 2024.`\
+https://nytimes.com/2024/10/01/pageoneplus/corrections-oct-2-2024.html
+
 **New Giants president Buster Posey asked for the ball — and the accountability**\
 `Posey admits he has a lot to learn, but one thing he won't have to learn is the importance of the Giants to their community.`\
 https://nytimes.com/athletic/5811218/2024/10/01/buster-posey-sf-giants-new-direction/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/business/media/cbs-debate-moderators-margaret-bre
 **Conditions at Georgia Prisons Violate Constitution, Justice Dept. Says**\
 `At one facility, the body of an inmate, possibly strangled in his cell, was so decomposed that the coroner concluded he had been dead for two days without being discovered.`\
 https://nytimes.com/2024/10/01/us/politics/georgia-prison-conditions-unsafe.html
-
-**In Congress, Republicans urge Israel to strike back hard at Iran.**\
-`Republican leaders called for more U.S. military support for Israel and retaliation against Iran, as Democratic leaders promised to watch and wait as the situation rapidly deteriorated in the Middle East.`\
-https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/in-congress-republicans-urge-israel-to-strike-back-hard-at-iran
 
