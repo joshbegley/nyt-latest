@@ -1,3 +1,7 @@
+**Vance and Walz Spar Over Key Policy Issues**\
+`Gov. Tim Walz of Minnesota and Senator JD Vance of Ohio debated immigration, abortion and foreign policy — and then clashed over Donald Trump’s 2020 election loss. Jazmine Ulloa, a national politics reporter for The New York Times, highlights some standout moments.`\
+https://nytimes.com/video/us/elections/100000009735478/vance-walz-policy-issues-vp-debate.html
+
 **Lowetide: Why Sam O'Reilly is a perfect fit for Oilers**\
 `O'Reilly's skills and the position he plays represent a super match for Edmonton's needs in the future.`\
 https://nytimes.com/athletic/5810637/2024/10/02/edmonton-oilers-prospect-sam-oreilly/
