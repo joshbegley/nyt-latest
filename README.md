@@ -1,3 +1,11 @@
+**Sleeping Through Hurricane Helene**\
+`Extreme climate was supposed to shock us into action. What happened?`\
+https://nytimes.com/2024/10/02/opinion/hurricane-helene-climate-change.html
+
+**Tim Walz as a Harris Ally: Folksy, Factually Sloppy and Far Less Visible**\
+`The Minnesota governor has brought his charm to the campaign trail, but his debate was uneven and he has so far been scarcely seen on national television. His team says that may be changing.`\
+https://nytimes.com/2024/10/02/us/politics/walz-debate-campaign.html
+
 **What missiles did Iran use to target Israel? And why it matters.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/what-missiles-did-iran-use-to-target-israel-and-why-it-matters
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5800647/2024/10/02/knicks-timberwolves-trade-karl-a
 **Iranian Missiles Damage Buildings in a Tel Aviv Suburb**\
 `A chunk of a missile from Iran’s overnight attack crashed on a hill in Hod Hasharon, a densely populated Tel Aviv suburb. No injuries were reported.`\
 https://nytimes.com/video/admin/100000009737492/iranian-missiles-damage-buildings-in-a-tel-aviv-suburb.html
-
-**What’s in Our Queue? Museo Anahuacalli and More**\
-`I’m an international correspondent based in Mexico City. Here are five things I’ve recently heard, seen or watched.`\
-https://nytimes.com/interactive/2024/10/02/arts/editors-recommendations-anahuacalli.html
-
-**Giants' Malik Nabers in concussion protocol**\
-`New York Giants rookie standout Malik Nabers is in the “early stages” of concussion protocol, said coach Brian Daboll in an update Wednesday`\
-https://nytimes.com/athletic/5813052/2024/10/02/giants-malik-nabers-concussion/
 
