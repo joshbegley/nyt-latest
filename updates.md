@@ -1,3 +1,7 @@
+**Porto's Bruno offers understanding to Ten Hag: 'Everyone' is under scrutiny**\
+`Porto FC head coach Vitor Bruno has invited Erik ten Hag to share a glass of wine after Thursday&#8217;s Europa League meeting as he offered his understanding to a fellow head coach under scrutiny.`\
+https://nytimes.com/athletic/5813006/2024/10/02/vitor-bruno-erik-ten-hag/
+
 **Raiders' Pierce declines to discuss Adams' trade request**\
 `Pierce didn't address screenshots that appeared to show him “liking” an Instagram post insinuating Adams could be traded.`\
 https://nytimes.com/athletic/5813024/2024/10/02/raiders-antonio-pierce-davante-adams/
