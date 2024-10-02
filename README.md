@@ -1,3 +1,11 @@
+**Biden Says He Won’t Support Israeli Attack on Iranian Nuclear Sites**\
+`President Biden told reporters that leaders of the Group of 7 countries agreed that Israel had a right to respond to Iran’s missile attack, but that it should do so proportionally.`\
+https://nytimes.com/video/world/middleeast/100000009737306/biden-israel-iran-nuclear.html
+
+**Atletico Madrid given partial three-match stadium closure after derby chaos**\
+`Atletico have been punished for the crowd trouble that halted the Madrid derby. We explain why`\
+https://nytimes.com/athletic/5811927/2024/10/02/atletico-madrid-real-madrid-la-liga-spanish-fa-decision/
+
 **Iranian Missiles Damage Buildings in a Tel Aviv Suburb**\
 `A chunk of a missile from Iran’s overnight attack crashed on a hill in Hod Hasharon, a densely populated Tel Aviv suburb. No injuries were reported.`\
 https://nytimes.com/video/admin/100000009737492/iranian-missiles-damage-buildings-in-a-tel-aviv-suburb.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/world/middleeast/iran-nuclear-weapons-biden-israe
 **Penn Station Must Expand to Improve Service, Railroads Say. But How?**\
 `After studying other ways to double capacity at the busy transit hub, the railroads that use it say they have concluded that it needs to be expanded.`\
 https://nytimes.com/2024/10/02/nyregion/penn-station-gateway.html
-
-**Soaring Temperatures Give San Francisco an ‘Extreme’ Second Summer**\
-`It’s hot in Northern California this week, and some places won’t see relief for days.`\
-https://nytimes.com/2024/10/02/weather/california-bay-area-heat-wave.html
-
-**What Happens Next in Hunter Biden’s Criminal Cases**\
-`The president’s son now confronts a daunting and uncertain process that could result in serious time behind bars when he is sentenced in his tax and gun cases in mid-December.`\
-https://nytimes.com/2024/10/02/us/politics/hunter-biden-tax-gun-case.html
 
