@@ -1,3 +1,15 @@
+**Walz Tells of Women Living Under Abortion Bans, Putting Vance on the Defensive**\
+`By recounting stories of women who have suffered dire health consequences since Roe’s overturning, Gov. Tim Walz of Minnesota embraced a Democratic strategy as he argued for abortion rights.`\
+https://nytimes.com/2024/10/02/us/politics/abortion-election-2024.html
+
+**Lille vs. Real Madrid Champions League preview: Storylines, odds, prediction**\
+`Real Madrid is a big favorite against Lille in their Champions League match.`\
+https://nytimes.com/athletic/5806395/2024/10/02/lille-real-madrid-preview-odds-prediction/
+
+**Catholics Meet to Chart Path Forward, but Women’s Roles Remain Unclear**\
+`The ordination of female deacons is no longer on the agenda during a global assembly at the Vatican, but will be discussed separately.`\
+https://nytimes.com/2024/10/02/world/europe/pope-women.html
+
 **Fantasy football rankings Week 5: Sleepers, projections, starts**\
 `Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
 https://nytimes.com/athletic/5811078/2024/10/02/fantasy-football-rankings-week-5-sleepers-projections-starts/
