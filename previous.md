@@ -1,3 +1,11 @@
+**At a Georgia watch party, few see the debate as a tiebreaker.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/at-a-georgia-watch-party-few-see-the-debate-as-a-tiebreaker
+
+**Walz Says His Teenage Son Witnessed Shooting**\
+`Gov. Tim Walz, mentioning his family’s exposure to gun violence, made the case for stricter gun control laws.`\
+https://nytimes.com/2024/10/01/us/politics/walz-debate-son-shooting.html
+
 **“This epidemic of violence, the gross majority — close to 90 percent in some of the statistics I’ve seen — of the gun violence in this country is committed with illegally obtained firearms.”**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/this-epidemic-of-violence-the-gross-majority-close-to-90-percent-in-some-of-the-statistics-ive-seen-of-the-gun-violence-in-this-
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/look-tim-first-of-al
 **Fernando Tatis powers Padres to Game 1 win over Braves: takeaways**\
 `Michael King was never a full-time starter in New York.`\
 https://nytimes.com/athletic/5811399/2024/10/01/padres-braves-wild-card-tatis/
-
-**The reason child care is “so expensive right now is because you’ve got way too few people providing this very essential service.”**\
-`By Dana Goldstein`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/the-reason-child-care-is-so-expensive-right-now-is-because-youve-got-way-too-few-people-providing-this-very-essential-service
-
-**CBS tried to find a middle ground on fact-checking. Vance jumped into the gap.**\
-`By Michael M. Grynbaum`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/cbs-debate-fact-checking-vance
 

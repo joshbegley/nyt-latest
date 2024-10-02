@@ -1,3 +1,11 @@
+**At a Georgia watch party, few see the debate as a tiebreaker.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/at-a-georgia-watch-party-few-see-the-debate-as-a-tiebreaker
+
+**Walz Says His Teenage Son Witnessed Shooting**\
+`Gov. Tim Walz, mentioning his family’s exposure to gun violence, made the case for stricter gun control laws.`\
+https://nytimes.com/2024/10/01/us/politics/walz-debate-son-shooting.html
+
 **“This epidemic of violence, the gross majority — close to 90 percent in some of the statistics I’ve seen — of the gun violence in this country is committed with illegally obtained firearms.”**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/this-epidemic-of-violence-the-gross-majority-close-to-90-percent-in-some-of-the-statistics-ive-seen-of-the-gun-violence-in-this-
