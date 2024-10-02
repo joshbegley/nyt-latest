@@ -1,3 +1,7 @@
+**What Black Voters Are Saying About Eric Adams Since His Indictment**\
+`Some Black New Yorkers are sticking by the mayor’s side after he was charged with bribery. Many expressed disappointment in him.`\
+https://nytimes.com/2024/10/02/nyregion/eric-adams-black-voters.html
+
 **How the Yankees are approaching their ALDS Game 3 pitching decision**\
 `The team doesn't plan to make the call until they get through Game 1 on Saturday. `\
 https://nytimes.com/athletic/5812779/2024/10/02/new-york-yankees-alds-game-3-pitching/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/us/child-care-subsidies-vance-walz-debate.html
 **Vance vs. Walz: The Debate Reviews Are In**\
 `Readers offer assessments of the candidates’ performances while praising the debate’s civility. Also: A college president’s resignation; storm relocation.`\
 https://nytimes.com/2024/10/02/opinion/jd-vance-tim-walz-debate.html
-
-**Whole Foods Tried to Change This Cake Recipe. Customers Lost It.**\
-`The grocery chain’s Berry Chantilly cake has a cult following and an extremely vocal fan base.`\
-https://nytimes.com/2024/10/02/dining/whole-foods-berry-chantilly-cake.html
 
