@@ -1,3 +1,15 @@
+**When Artists Found Beauty in London’s Toxic Fog**\
+`Monet and Turner found something sublime in the polluted 19th-century city — and maybe something darker, too.`\
+https://nytimes.com/2024/10/02/arts/monet-turner-london-pollution.html
+
+**Vance and Walz’s Battle of the Network Co-Stars**\
+`In what could be the last prime-time showdown of the 2024 campaign, the supporting players performed against type.`\
+https://nytimes.com/2024/10/02/arts/television/vance-walz-debate.html
+
+**Dolphins' Odell Beckham Jr. to practice this week**\
+`Beckham signed with the Dolphins in May, but hasn't appeared in a game this year while on the PUP list.`\
+https://nytimes.com/athletic/5812265/2024/10/02/odell-beckham-jr-dolphins-injury-practice/
+
 **Wilson says Jets have identity but are 'figuring out if it’s going to work'**\
 `Wilson suggested that New York's offensive struggles are more about figuring out if their identity works.`\
 https://nytimes.com/athletic/5812387/2024/10/02/garrett-wilson-jets-offensive-identity/
