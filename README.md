@@ -1,3 +1,23 @@
+**Scoop: Are the 4-0 Vikings true contenders?**\
+`Four potential destinations for Davante Adams — a list that doesn't include the Chiefs — and a look into the Vikings' schemes`\
+https://nytimes.com/athletic/5812752/2024/10/02/scoop-are-the-4-0-vikings-true-contenders/
+
+**The Whiplash of a Major Fashion World Shake-up**\
+`Celine shocked the industry by announcing that Hedi Slimane, its top designer, is leaving. Hours later, it surprised many again by naming his replacement.`\
+https://nytimes.com/2024/10/02/style/michael-rider-celine-artistic-director.html
+
+**In a Tel Aviv suburb struck by Iran, roof tiles and shattered glass litter the streets.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/in-a-tel-aviv-suburb-struck-by-iran-roof-tiles-and-shattered-glass-litter-the-streets
+
+**It All Seemed So Conventional. And Then Came Jan. 6.**\
+`JD Vance may well be thinking about 2028 and beyond. He will need a lot more than a fairly mild 90-minute debate to fully soften his image.`\
+https://nytimes.com/2024/10/02/us/politics/vp-debate-vance-walz-2020-election-minnesota.html
+
+**Jesse Marsch calls up three uncapped players for Canada**\
+`Jesse Marsch has called up three uncapped players to his Canada squad for this month&#8217;s friendly against Panama and training camp in Montreal.`\
+https://nytimes.com/athletic/5812164/2024/10/02/canmnt-squad-announcement-jesse-marsch/
+
 **Fan survey: How high should Bruins go on Swayman? Lost faith in Neely and Sweeney?**\
 `Jeremy Swayman’s contract negotiations with the Boston Bruins have overheated. What do you think the resolution should and will be?`\
 https://nytimes.com/athletic/5812708/2024/10/02/bruins-jeremy-swayman-fan-survey/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/02/magazine/leave-us-presidential-election-ethics.ht
 **Fantasy football rankings Week 5: Sleepers, starts, projections and more**\
 `Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
 https://nytimes.com/athletic/5811078/2024/10/02/fantasy-football-rankings-week-5-sleepers-projections-starts/
-
-**A Piccata With a Smart, Meatless Twist**\
-`That buttery, briny combination of lemon, butter and capers is awesome on cauliflower.`\
-https://nytimes.com/2024/10/02/dining/a-piccata-with-a-smart-meatless-twist.html
-
-**Why are 23XI and Front Row suing NASCAR? Here's what you need to know**\
-`Two NASCAR Cup Series team filed a lawsuit against the league Wednesday, alleging monopolistic practices. Here's what you need to know.`\
-https://nytimes.com/athletic/5812000/2024/10/02/23xi-front-row-nascar-lawsuit-explained/
-
-**Orla Gartland Melds Honesty, Hooks and Noise**\
-`On her second album, the internet-native Irish songwriter makes a complicated relationship sound “squonky.”`\
-https://nytimes.com/2024/10/02/arts/music/orla-gartland-everybody-needs-a-hero.html
-
-**Pochettino names first USMNT squad: McKennie and Weah return**\
-`Christian Pulisic, Weston McKennie and Tim Weah highlight the first U.`\
-https://nytimes.com/athletic/5812599/2024/10/02/mauricio-pochettino-usmnt-squad-october/
-
-**Victim’s Unsealed Testimony Reveals New Details in Epstein Case**\
-`The woman testified in a now-settled lawsuit against J.P. Morgan Chase on behalf of hundreds of Jeffrey Epstein’s victims.`\
-https://nytimes.com/2024/10/02/business/epstein-jpmorgan-lawsuit.html
 
