@@ -1,3 +1,11 @@
+**Like Trump, Vance Wavers on What to Do With Obamacare**\
+`JD Vance seemed to back away from a proposal to separate healthy and sick people in insurance markets, which could cause major disruption for people with pre-existing conditions.`\
+https://nytimes.com/2024/10/02/us/politics/vance-obamacare-trump-aca.html
+
+**Atletico Madrid given three-match partial stadium closure after derby chaos**\
+`Atletico have been punished for the crowd trouble that halted the Madrid derby. We explain why`\
+https://nytimes.com/athletic/5811927/2024/10/02/atletico-madrid-real-madrid-la-liga-spanish-fa-decision/
+
 **Sleeping Through Hurricane Helene**\
 `Extreme climate was supposed to shock us into action. What happened?`\
 https://nytimes.com/2024/10/02/opinion/hurricane-helene-climate-change.html
