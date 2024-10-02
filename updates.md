@@ -1,3 +1,19 @@
+**“What [Harris has] actually done instead is drive the cost of food higher by 25 percent, drive the cost of housing higher by about 60 percent.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/what-harris-has-actually-done-instead-is-drive-the-cost-of-food-higher-by-25-percent-drive-the-cost-of-housing-higher-by-about-6
+
+**“So there’s an application called the CBP One app, where you can go on as an illegal migrant, apply for asylum or apply for parole, and be granted legal status at the wave of a Kamala Harris open border wand.”**\
+`By Hamed Aleaziz`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/so-theres-an-application-called-the-cbp-one-app-where-you-can-go-on-as-an-illegal-migrant-apply-for-asylum-or-apply-for-parole-a
+
+**Video Footage Shows Fatal Shooting of Kentucky Judge**\
+`A preliminary hearing in the case against a former sheriff yielded details about his interactions with the slain judge before he was killed.`\
+https://nytimes.com/2024/10/01/us/kentucky-judge-sheriff-shooting-video.html
+
+**“Donald Trump hasn’t paid any federal tax in the last 15 years.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/donald-trump-hasnt-paid-any-federal-tax-in-the-last-15-years
+
 **Corrections: Oct. 2, 2024**\
 `Corrections that appeared in print on Wednesday, Oct. 2, 2024.`\
 https://nytimes.com/2024/10/01/pageoneplus/corrections-oct-2-2024.html
