@@ -1,3 +1,11 @@
+**The Pulse: Big names on the brink of elimination**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5810079/2024/10/02/las-vegas-aces-houston-astros-playoffs-the-pulse/
+
+**A Vice-Presidential Debate**\
+`We explain the why the debate offered a snapshot of another era.`\
+https://nytimes.com/2024/10/02/briefing/a-vice-presidential-debate.html
+
 **Danish Police Investigate Two Explosions Near the Israeli Embassy**\
 `The authorities said they were investigating after the explosions were heard early Wednesday morning near Copenhagen. Nobody was injured.`\
 https://nytimes.com/2024/10/02/world/europe/copenhagen-explosion-israeli-embassy.html
