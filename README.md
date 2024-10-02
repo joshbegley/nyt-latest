@@ -1,3 +1,7 @@
+**Vance Strains to Sell a Softer Trump**\
+`From the opening handshake, the Republican vice-presidential nominee sought to reinvent and repackage the record and views of the former president.`\
+https://nytimes.com/2024/10/02/us/politics/vance-walz-debate-analysis.html
+
 **The Campaigns Need Younger People to Vote. Did the V.P. Debate Help?**\
 `At three colleges, there were snacks, big screens and homework assignments. But energy and enthusiasm were sparse — and by the end, even more so.`\
 https://nytimes.com/2024/10/02/us/politics/vice-presidential-debate-voter-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5806034/2024/10/02/ibrahima-konate-liverpool-arne-s
 **Kudus and Lopetegui had words - the tension at West Ham is palpable**\
 `Mohammed Kudus was not happy at being replaced at Brentford and told Julen Lopetegui - the head coach needs him back to his best. Quickly`\
 https://nytimes.com/athletic/5809322/2024/10/02/mohammed-kudus-julen-lopetegui-west-ham/
-
-**Brighton won't have to rely on Joao Pedro - thanks to Georginio Rutter**\
-`Brighton are currently missing their main goal-getter, but summer signing Rutter, who is now off the mark, offers the same kind of dynamism`\
-https://nytimes.com/athletic/5782093/2024/10/02/brighton-georginio-rutter-joao-pedro/
 
