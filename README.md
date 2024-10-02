@@ -1,7 +1,3 @@
-**Iran’s Strikes on Israel Look Calculated to Shore Up Regional Alliance**\
-`Iran’s second missile barrage against Israel is unlikely to deter its foe, experts say, but may help retain the support of the “Axis of Resistance” it has built up over years.`\
-https://nytimes.com/2024/10/02/world/middleeast/iran-israel-hezbollah-strikes.html
-
 **The Bounce: NBA teams who'll beat expectations**\
 `Welcome to The Bounce, The Athletic’s daily NBA newsletter.`\
 https://nytimes.com/athletic/5812789/2024/10/02/nba-win-totals-free-agency-wnba-the-bounce/
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/in-a-tel
 **It All Seemed So Conventional. And Then Came Jan. 6.**\
 `JD Vance may well be thinking about 2028 and beyond. He will need a lot more than a fairly mild 90-minute debate to fully soften his image.`\
 https://nytimes.com/2024/10/02/us/politics/vp-debate-vance-walz-2020-election-minnesota.html
+
+**Jesse Marsch calls up three uncapped players for Canada**\
+`Jesse Marsch has called up three uncapped players to his Canada squad for this month&#8217;s friendly against Panama and training camp in Montreal.`\
+https://nytimes.com/athletic/5812164/2024/10/02/canmnt-squad-announcement-jesse-marsch/
 
