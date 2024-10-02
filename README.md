@@ -1,3 +1,11 @@
+**“Those same experts for 40 years said that if we shipped our manufacturing base off to China, we’d get cheaper goods. They lied about that.”**\
+`By Ana Swanson`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/those-same-experts-for-40-years-said-that-if-we-shipped-our-manufacturing-base-off-to-china-wed-get-cheaper-goods-they-lied-abou
+
+**Best of the Best**\
+`Luke K. Schreiber mixes business with leisure.`\
+https://nytimes.com/2024/10/01/crosswords/daily-puzzle-2024-10-02.html
+
 **“What [Harris has] actually done instead is drive the cost of food higher by 25 percent, drive the cost of housing higher by about 60 percent.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/what-harris-has-actually-done-instead-is-drive-the-cost-of-food-higher-by-25-percent-drive-the-cost-of-housing-higher-by-about-6
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/iran-which-launched-
 **“You’ve got housing totally unaffordable because we brought in millions of illegal immigrants to compete with Americans for scarce homes.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/youve-got-housing-totally-unaffordable-because-we-brought-in-millions-of-illegal-immigrants-to-compete-with-americans-for-scarce
-
-**“This idea that carbon emissions drives all of climate change — let’s just say that’s true, just for the sake of argument.”**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/this-idea-that-carbon-emissions-drives-all-of-climate-change-lets-just-say-thats-true-just-for-the-sake-of-argument
-
-**“Right now in this country, Margaret, we have 320,000 children that the Department of Homeland Security has effectively lost. Some of them have been sex trafficked.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/right-now-in-this-country-margaret-we-have-320000-children-that-the-department-of-homeland-security-has-effectively-lost-some-of
 
