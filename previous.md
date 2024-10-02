@@ -1,3 +1,7 @@
+**The Economic Cost of a New War in the Middle East**\
+`An escalation of fighting between Israel and Iran could cause oil prices to spike and send a chill through the global economy.`\
+https://nytimes.com/2024/10/02/business/dealbook/oil-prices-israel-iran.html
+
 **Israel Declares U.N. Chief António Guterres Persona Non Grata**\
 `Foreign Minister Israel Katz said the United Nations secretary general had not condemned Iran’s missile attack on Israel in strong enough terms.`\
 https://nytimes.com/2024/10/02/world/middleeast/israel-guterres-un-ban-persona-non-grata.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5811958/2024/10/02/bologna-champions-league-dream/
 **Vance and Walz Spar Over Key Policy Issues**\
 `Gov. Tim Walz of Minnesota and Senator JD Vance of Ohio debated immigration, abortion and foreign policy — and then clashed over Donald Trump’s 2020 election loss. Jazmine Ulloa, a national politics reporter for The New York Times, highlights some standout moments.`\
 https://nytimes.com/video/us/elections/100000009735478/vance-walz-policy-issues-vp-debate.html
-
-**Lowetide: Why Sam O'Reilly is a perfect fit for Oilers**\
-`O'Reilly's skills and the position he plays represent a super match for Edmonton's needs in the future.`\
-https://nytimes.com/athletic/5810637/2024/10/02/edmonton-oilers-prospect-sam-oreilly/
 
