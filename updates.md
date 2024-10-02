@@ -1,3 +1,15 @@
+**Walz Failed to Expose Vance’s Debate Masquerade**\
+`He missed multiple opportunities to demonstrate how Trump and Vance are unfit for office.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/walz-vance-debate-loser
+
+**Wild owner Craig Leipold on extending Kirill Kaprizov: 'Nobody will offer more money than us, or longer'**\
+`The Wild owner talked about the team eyeing a long-term extension for superstar Kirill Kaprizov next summer and more. `\
+https://nytimes.com/athletic/5811413/2024/10/01/wild-kirill-kaprizov-extension-contract/
+
+**“Look, Tim, first of all, it’s really rich for Democratic leaders to say that Donald Trump is a unique threat to democracy when he peacefully gave over power on January the 20th as we have done for 250 years in this country.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/look-tim-first-of-all-its-really-rich-for-democratic-leaders-to-say-that-donald-trump-is-a-unique-threat-to-democracy-when-he-pe
+
 **Was Jesse Winker vs. Willy Adames a chewing out, or just chewing gum?**\
 `Winker: “If y’all think I am able to run and talk, you don’t know my athletic abilities. Can’t do that.”
 `\
