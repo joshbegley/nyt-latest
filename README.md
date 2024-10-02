@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/i-never-supported-a-
 
 **Walz Failed to Expose Vance’s Debate Masquerade**\
 `He missed multiple opportunities to demonstrate how Trump and Vance are unfit for office.`\
-https://nytimes.com/live/2024/09/25/opinion/thepoint/walz-vance-debate-loser
+https://nytimes.com/2024/09/25/opinion/walz-vance-debate-loser.html
 
 **Wild owner Craig Leipold on extending Kirill Kaprizov: 'Nobody will offer more money than us, or longer'**\
 `The Wild owner talked about the team eyeing a long-term extension for superstar Kirill Kaprizov next summer and more. `\
