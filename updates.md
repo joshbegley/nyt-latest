@@ -1,3 +1,7 @@
+**The Briefing: Lille 1-0 Real Madrid - 36-game unbeaten run over and Camavinga's mixed return**\
+`The key moments and talking points from Real Madrid's shock defeat at Lille analysed and evaluated`\
+https://nytimes.com/athletic/5801018/2024/10/02/lille-real-madrid-briefing/
+
 **New Evidence Was Unsealed in the Federal Election Case Against Trump**\
 `Also, Biden ordered 1,000 troops to help areas destroyed by Helene. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/10/02/briefing/new-evidence-trump-case-biden-helene.html
