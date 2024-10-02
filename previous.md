@@ -1,5 +1,5 @@
 **After Helene, Lawyers Gear Up for Battles Over Who Should Pay**\
-`As storms intensify so do the legal clashes with insurers, aid agencies and others over compensation, rebuilding and even fraud scams.`\
+`As storms intensify, so do the legal clashes with insurers, aid agencies and others over compensation, rebuilding and even scams.`\
 https://nytimes.com/2024/10/02/climate/legal-aid-lawyers-helene-storm.html
 
 **Porto's Bruno offers understanding to Ten Hag: 'Everyone' is under scrutiny**\
