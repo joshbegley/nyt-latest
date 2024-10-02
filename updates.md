@@ -1,3 +1,7 @@
+**Biden Says He Won’t Support an Israeli Strike on Iran’s Nuclear Sites**\
+`His comments reflected a renewed effort by his administration to seek restraint from Israel to try to avoid a growing war in the Middle East.`\
+https://nytimes.com/2024/10/02/world/middleeast/iran-nuclear-weapons-biden-israel.html
+
 **Penn Station Must Expand to Improve Service, Railroads Say. But How?**\
 `After studying other ways to double capacity at the busy transit hub, the railroads that use it say they have concluded that it needs to be expanded.`\
 https://nytimes.com/2024/10/02/nyregion/penn-station-gateway.html
