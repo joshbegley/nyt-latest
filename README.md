@@ -1,3 +1,27 @@
+**Lowetide: Why Sam O'Reilly is a perfect fit for Oilers**\
+`O'Reilly's skills and the position he plays represent a super match for Edmonton's needs in the future.`\
+https://nytimes.com/athletic/5810637/2024/10/02/edmonton-oilers-prospect-sam-oreilly/
+
+**Pablo Sanchez bat inspired by Kelce brothers to get limited-edition release**\
+`The bat was used by Bobby Witt Jr. in an MLB game this season.`\
+https://nytimes.com/athletic/5810534/2024/10/02/pablo-sanchez-victus-backyard-sports/
+
+**USWNT coach Emma Hayes tours the U.S. with 'quite a lot of work to do'**\
+`Players that Emma Hayes could consider as the U.S. coach looks toward youth`\
+https://nytimes.com/athletic/5811548/2024/10/02/emma-hayes-uswnt-nwsl/
+
+**Business of Football: U.S. Soccer's three 'big swings', and the end of transfers as we know them?**\
+`DJ Khaled as FIFA's hype man, the latest on (not) the European Super League, U.S. Soccer's wise move, and a case that could change transfers`\
+https://nytimes.com/athletic/5805919/2024/10/02/diarra-case-transfers-us-soccer-revenue/
+
+**The Bruins’ $3.475 million Jeremy Swayman blunder**\
+`Had they stuck with an all-business, cutthroat approach a year ago, the Bruins would have accepted a two-year award on Jeremy Swayman.`\
+https://nytimes.com/athletic/5811013/2024/10/02/bruins-jeremy-swayman-arbitration-blunder/
+
+**Allies Say They Came to Israel’s Aid During Iran’s Missile Attack**\
+`Israel has said that Iran fired more than 180 missiles in the barrage on Tuesday, but that most were intercepted.`\
+https://nytimes.com/2024/10/02/world/middleeast/israel-iran-missile-attack-us-uk-france.html
+
 **The Pulse: Big names on the brink of elimination**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5810079/2024/10/02/las-vegas-aces-houston-astros-playoffs-the-pulse/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/02/world/europe/copenhagen-explosion-israeli-embassy
 **FIFA warns fans against buying WC tickets from resale sites**\
 `FIFA has issued a warning to fans ahead of the 2026 World Cup, urging them to avoid purchasing tickets from &#8220;unofficial ticketing websites&#8221; and emphasizing that individual tickets will not be available until late 2025.`\
 https://nytimes.com/athletic/5811919/2024/10/02/world-cup-2026-tickets/
-
-**Assistant referee discharged from hospital after medical incident at West Brom**\
-`Assistant referee Rob Smith was discharged from hospital on Wednesday after a medical incident at West Bromwich Albion&#8217;s Championship clash against Middlesbrough.`\
-https://nytimes.com/athletic/5811942/2024/10/02/assistant-referee-west-brom-middlesbrough/
-
-**How the Bears' run game and D'Andre Swift finally set the tone**\
-`The Bears mixed things up and got the run game going in Week 4. Swift had his best game. What's the film tell us? A breakdown.`\
-https://nytimes.com/athletic/5809527/2024/10/02/dandre-swift-bears-run-game/
-
-**Weird & Wild: O's, Royals and ... Babe Ruth? Astros 103, Tigers 0? Mets' 'Win Improbability'**\
-`After four games, eight-plus hours and a tidy 1,240 pitches, here are all the Weird & Wild highlights from Day One of the MLB playoffs,. `\
-https://nytimes.com/athletic/5811858/2024/10/02/oriols-royals-astros-tigers-mets-mlb-playoffs-day-1/
-
-**Tafur: Why the Davante Adams-Raiders marriage was wrong from the very beginning**\
-`The relationship between Adams and the Raiders has been bad for a while now. Tuesday was just the latest — and likely final — straw.`\
-https://nytimes.com/athletic/5811514/2024/10/02/davante-adams-raiders-trade-relationship/
-
-**Israel Vows Retaliation Against Iran, and Takeaways From the Debate**\
-`Plus, Mexico’s first female president.`\
-https://nytimes.com/2024/10/02/podcasts/israel-iran-debate.html
-
-**The Walz-Vance Debate: Civility and Then a Clash**\
-`The vice-presidential candidates sparred over immigration, abortion and the Jan. 6 riot.`\
-https://nytimes.com/2024/10/02/podcasts/the-daily/walz-vance-debate.html
 
