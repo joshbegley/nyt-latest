@@ -1,3 +1,15 @@
+**“So there’s an application called the CBP One app, where you can go on as an illegal migrant, apply for asylum or apply for parole, and be granted legal status at the wave of a Kamala Harris open border wand.”**\
+`By Hamed Aleaziz`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/so-theres-an-application-called-the-cbp-one-app-where-you-can-go-on-as-an-illegal-migrant-apply-for-asylum-or-apply-for-parole-a
+
+**Video Footage Shows Fatal Shooting of Kentucky Judge**\
+`A preliminary hearing in the case against a former sheriff yielded details about his interactions with the slain judge before he was killed.`\
+https://nytimes.com/2024/10/01/us/kentucky-judge-sheriff-shooting-video.html
+
+**“Donald Trump hasn’t paid any federal tax in the last 15 years.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/donald-trump-hasnt-paid-any-federal-tax-in-the-last-15-years
+
 **“If you really want to make the environment cleaner, you’ve got to invest in more energy production. We haven’t built a nuclear facility — I think one in the past 40 years. Natural gas — we have to invest more in it. Kamala Harris has done the opposite.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-you-really-want-to-make-the-environment-cleaner-youve-got-to-invest-in-more-energy-production-we-havent-built-a-nuclear-facil
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/right-now-in-this-co
 **Review: Daniel Dae Kim as a Playwright Unmasked in ‘Yellow Face’**\
 `David Henry Hwang’s 2007 play, now in a fine Broadway revival, is a pointed critique of identity, masquerading as a mockumentary.`\
 https://nytimes.com/2024/10/01/theater/yellow-face-review-daniel-dae-kim.html
-
-**“We are the cleanest economy in the entire world.”**\
-`By Coral Davenport`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/we-are-the-cleanest-economy-in-the-entire-world
-
-**Ex-Frat Leaders Sentenced in Hazing Death of Penn State Student**\
-`Brendan Young, 28, and Steven Casey, 27, will spend two to four months in prison for their roles in the 2017 death of Timothy Piazza, a 19-year-old from New Jersey.`\
-https://nytimes.com/2024/10/01/us/penn-state-hazing-death-sentencing.html
-
-**Corrections: Oct. 2, 2024**\
-`Corrections that appeared in print on Wednesday, Oct. 2, 2024.`\
-https://nytimes.com/2024/10/01/pageoneplus/corrections-oct-2-2024.html
 
