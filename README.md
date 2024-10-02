@@ -1,3 +1,7 @@
+**NWSL, Tiffany & Co. unveil redesigned Shield, MVP trophies**\
+`The NWSL first partnered with Tiffany & Co. last year, kicking off their partnership with redesigned versions of the league’s Championship a`\
+https://nytimes.com/athletic/5812830/2024/10/02/nwsl-tiffany-co-shield-mvp-trophy-redesign/
+
 **At Least 60 Dead After Boat Capsizes in Nigeria**\
 `The boat was carrying about 300 people on the Niger River. Rescuers continued to search for survivors.`\
 https://nytimes.com/2024/10/02/world/africa/60-dead-drowning-nigeria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5812815/2024/10/02/dodgers-fernando-valenzuela-heal
 **Iran’s Strikes on Israel Look Calculated to Shore Up Regional Alliance**\
 `Iran’s second missile barrage against Israel is unlikely to deter its foe, experts say, but may help retain the support of the “Axis of Resistance” it has built up over years.`\
 https://nytimes.com/2024/10/02/world/middleeast/iran-israel-hezbollah-strikes.html
-
-**The Bounce: NBA teams who'll beat expectations**\
-`Welcome to The Bounce, The Athletic’s daily NBA newsletter.`\
-https://nytimes.com/athletic/5812789/2024/10/02/nba-win-totals-free-agency-wnba-the-bounce/
 
