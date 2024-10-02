@@ -27,7 +27,7 @@ https://nytimes.com/2024/10/02/learning/hurricane-helene.html
 https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
 
 **Live Updates: Israel Promises to Retaliate After Iranian Missile Attack**\
-`The strike heightened fears that two of the Middle East’s most powerful militaries could would be drawn into direct conflict. Israel’s military said it was sending more troops to southern Lebanon.`\
+`The strike heightened fears that two of the Middle East’s most powerful militaries could be drawn into direct conflict. Israel’s military said it was sending more troops to southern Lebanon.`\
 https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah
 
 **Padres' Fernando Tatis Jr. makes return to postseason, and wait was worth it**\
