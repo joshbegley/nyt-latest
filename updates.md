@@ -1,3 +1,15 @@
+**What missiles did Iran use to target Israel? And why it matters.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/what-missiles-did-iran-use-to-target-israel-and-why-it-matters
+
+**London’s Once-Tidy Green Spaces Are Going Wild, On Purpose**\
+`In response to concerns over climate change and plummeting biodiversity, a shift is afoot in the city’s parks. Manicured is out; rugged is in.`\
+https://nytimes.com/2024/10/02/arts/design/climate-london-gardens-rewild.html
+
+**Knicks trade for Karl-Anthony Towns**\
+`Towns, 28, has spent all nine years of his career with the Timberwolves since being drafted No. 1 in the 2015 NBA Draft.`\
+https://nytimes.com/athletic/5800647/2024/10/02/knicks-timberwolves-trade-karl-anthony-towns-kat/
+
 **Knicks-Timberwolves trade: Why make this major move now? Look at the money**\
 `One way to think about this deal financially is the difference between Towns’ contract and Randle’s likely wages over that same period.`\
 https://nytimes.com/athletic/5807992/2024/10/02/karl-anthony-towns-julius-randle-trade-money-contract-knicks-timberwolves/
