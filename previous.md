@@ -1,3 +1,11 @@
+**Mets' Severino delivers in Game 1 win over Brewers: Takeaways**\
+`A five-run outburst in the top of the fifth propelled the Mets to an 8-4 win in Game 1 of the Wild Card Series.`\
+https://nytimes.com/athletic/5811008/2024/10/01/mets-brewers-wild-card-game-luis-severino-freddy-peralta/
+
+**Here’s how the CBS moderators will (or won’t) fact-check the V.P. candidates.**\
+`By Michael M. Grynbaum`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/cbs-vp-debate-fact-checking
+
 **LeBrun rumblings: CBA talks, cap estimate, expansion, McDavid extension and more from Board of Governors**\
 `Also from the Board of Governors meeting Tuesday in New York: Ullmark extension talks, ownership stakes and a Blue Jackets cap resolution.`\
 https://nytimes.com/athletic/5811099/2024/10/01/nhl-cba-salary-cap-expansion-bog/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/01/business/media/olivia-nuzzi-ryan-lizza.html
 **A Davante Adams-Aaron Rodgers reunion? Why the Jets are a favorite to trade for the receiver**\
 `While the Jets have other needs, they could have the draft capital it takes to make a deal.`\
 https://nytimes.com/athletic/5810613/2024/10/01/davante-adams-trade-jets-raiders-aaron-rodgers/
-
-**Laborer From Gaza Is First Reported Fatality of Iran’s Missile Attack**\
-`Sameh al-Asali, who was sheltering in the city of Jericho in the Israeli-occupied West Bank, was killed when a large missile fragment slammed into him.`\
-https://nytimes.com/2024/10/01/world/middleeast/gaza-palestinian-dead-iran-attack.html
-
-**Royals impress in Game 1 win over O's: Takeaways**\
-`Ragans allowed just four hits and struck out eight in his six innings of work, including a pair of strikeouts in the bottom of the fifth.`\
-https://nytimes.com/athletic/5810926/2024/10/01/royals-win-cole-ragans-game-1/
 

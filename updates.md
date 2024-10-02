@@ -1,3 +1,11 @@
+**Mets' Severino delivers in Game 1 win over Brewers: Takeaways**\
+`A five-run outburst in the top of the fifth propelled the Mets to an 8-4 win in Game 1 of the Wild Card Series.`\
+https://nytimes.com/athletic/5811008/2024/10/01/mets-brewers-wild-card-game-luis-severino-freddy-peralta/
+
+**Here’s how the CBS moderators will (or won’t) fact-check the V.P. candidates.**\
+`By Michael M. Grynbaum`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/cbs-vp-debate-fact-checking
+
 **LeBrun rumblings: CBA talks, cap estimate, expansion, McDavid extension and more from Board of Governors**\
 `Also from the Board of Governors meeting Tuesday in New York: Ullmark extension talks, ownership stakes and a Blue Jackets cap resolution.`\
 https://nytimes.com/athletic/5811099/2024/10/01/nhl-cba-salary-cap-expansion-bog/
