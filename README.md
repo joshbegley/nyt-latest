@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5812547/2024/10/02/bears-mailbag-questions-34/
 `President Biden told reporters that leaders of the Group of 7 countries agreed that Israel had a right to respond to Iran’s missile attack, but that it should do so proportionally.`\
 https://nytimes.com/video/world/middleeast/100000009737306/biden-israel-iran-nuclear.html
 
-**Atletico Madrid given partial three-match stadium closure after derby chaos**\
+**Atletico Madrid given three-match partial stadium closure after derby chaos**\
 `Atletico have been punished for the crowd trouble that halted the Madrid derby. We explain why`\
 https://nytimes.com/athletic/5811927/2024/10/02/atletico-madrid-real-madrid-la-liga-spanish-fa-decision/
 

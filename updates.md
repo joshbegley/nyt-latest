@@ -1,3 +1,11 @@
+**Sleeping Through Hurricane Helene**\
+`Extreme climate was supposed to shock us into action. What happened?`\
+https://nytimes.com/2024/10/02/opinion/hurricane-helene-climate-change.html
+
+**Tim Walz as a Harris Ally: Folksy, Factually Sloppy and Far Less Visible**\
+`The Minnesota governor has brought his charm to the campaign trail, but his debate was uneven and he has so far been scarcely seen on national television. His team says that may be changing.`\
+https://nytimes.com/2024/10/02/us/politics/walz-debate-campaign.html
+
 **What missiles did Iran use to target Israel? And why it matters.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/what-missiles-did-iran-use-to-target-israel-and-why-it-matters
