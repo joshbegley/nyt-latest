@@ -1,3 +1,11 @@
+**LeBron James won't put expectations on JJ Redick, early-season Lakers: 'That's unfair'**\
+`As JJ Redick's first practice as head coach got underway, the ground rules and standards were set for what's to come. `\
+https://nytimes.com/athletic/5810661/2024/10/01/lebron-james-jj-redick-lakers-nba/
+
+**Tarik Skubal aced it, as usual. Now, Tigers hope 'pitching chaos' can carry them to ALDS**\
+`After Skubal dominated, the Tigers are in their ideal position: They can mix and match their pitching, with two chances to win. `\
+https://nytimes.com/athletic/5811157/2024/10/01/tarik-skubal-tigers-pitching-chaos/
+
 **Mets' Severino delivers in Game 1 win over Brewers: Takeaways**\
 `A five-run outburst in the top of the fifth propelled the Mets to an 8-4 win in Game 1 of the Wild Card Series.`\
 https://nytimes.com/athletic/5811008/2024/10/01/mets-brewers-wild-card-game-luis-severino-freddy-peralta/

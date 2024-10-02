@@ -1,3 +1,7 @@
+**New Giants president Buster Posey asked for the ball — and the accountability**\
+`Posey admits he has a lot to learn, but one thing he won't have to learn is the importance of the Giants to their community.`\
+https://nytimes.com/athletic/5811218/2024/10/01/buster-posey-sf-giants-new-direction/
+
 **LeBron James won't put expectations on JJ Redick, early-season Lakers: 'That's unfair'**\
 `As JJ Redick's first practice as head coach got underway, the ground rules and standards were set for what's to come. `\
 https://nytimes.com/athletic/5810661/2024/10/01/lebron-james-jj-redick-lakers-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/us/politics/georgia-prison-conditions-unsafe.html
 **In Congress, Republicans urge Israel to strike back hard at Iran.**\
 `Republican leaders called for more U.S. military support for Israel and retaliation against Iran, as Democratic leaders promised to watch and wait as the situation rapidly deteriorated in the Middle East.`\
 https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/in-congress-republicans-urge-israel-to-strike-back-hard-at-iran
-
-**Tracking Attacks in the Vance-Walz Debate**\
-`See how the vice presidential candidates used their speaking time to discuss the issues or criticize their opponent.`\
-https://nytimes.com/interactive/2024/10/01/us/elections/vance-walz-attacks-vp-debate.html
 
