@@ -1,3 +1,19 @@
+**Wednesday Briefing: Iran Fires 180 Missiles at Israel**\
+`Plus: In a lawsuit, words matter.`\
+https://nytimes.com/2024/10/02/briefing/iran-israel-jd-vance-tim-walz-us-port-worker-strike.html
+
+**Walz Calls Himself a ‘Knucklehead’ for Past Misstatements**\
+`Gov. Tim Walz said he “misspoke” about where he was during the Tiananmen Square massacre in June of 1989.`\
+https://nytimes.com/video/us/elections/100000009735865/walz-calls-himself-a-knucklehead-for-past-misstatements.html
+
+**How Bayern Munich's quirkiness makes them a sporting giant of global appeal**\
+`Bayern Munich are Germany's most popular club by far, as garden centres testify — and their global appeal owes much to their local roots`\
+https://nytimes.com/athletic/5809426/2024/10/02/bayern-munich-germany-bundesliga-garden-centres/
+
+**Fantasy trends and hidden gems: Top breakout, rebound, and regression candidates for 2024-25**\
+`Shayna Goldman shares her biggest breakout, rebound and regression candidates for fantasy hockey 2024-25.`\
+https://nytimes.com/athletic/5808468/2024/10/02/fantasy-hockey-2024-25-breakouts-rebounds-regression-candidates/
+
 **Walz Tells of Women Living Under Abortion Bans, Putting Vance on the Defensive**\
 `By recounting stories of women who have suffered dire health consequences since Roe’s overturning, Gov. Tim Walz of Minnesota embraced a Democratic strategy as he argued for abortion rights.`\
 https://nytimes.com/2024/10/02/us/politics/abortion-election-2024.html
