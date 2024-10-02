@@ -1,3 +1,11 @@
+**Israel Declares U.N. Chief António Guterres Persona Non Grata**\
+`Foreign Minister Israel Katz said the United Nations secretary general had not condemned Iran’s missile attack on Israel in strong enough terms.`\
+https://nytimes.com/2024/10/02/world/middleeast/israel-guterres-un-ban-persona-non-grata.html
+
+**Ukraine Withdraws From Mining Town That Long Defied Russian Attacks**\
+`Vuhledar had been under assault for almost three years. Russian forces entered it after a furious battle, and Ukraine ordered troops to retreat.`\
+https://nytimes.com/2024/10/02/world/europe/ukraine-withdraws-vuhledar.html
+
 **Why the Conflict Between Iran and Israel Has Raised Oil Prices Only Modestly**\
 `The fighting is increasing fears about oil supplies, but those worries are offset by greater global production and slowing demand in China.`\
 https://nytimes.com/2024/10/02/business/iran-israel-oil-prices.html
