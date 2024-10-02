@@ -1,3 +1,7 @@
+**Vance Strains to Sell a Softer Trump**\
+`From the opening handshake, the Republican vice-presidential nominee sought to reinvent and repackage the record and views of the former president.`\
+https://nytimes.com/2024/10/02/us/politics/vance-walz-debate-analysis.html
+
 **The Campaigns Need Younger People to Vote. Did the V.P. Debate Help?**\
 `At three colleges, there were snacks, big screens and homework assignments. But energy and enthusiasm were sparse — and by the end, even more so.`\
 https://nytimes.com/2024/10/02/us/politics/vice-presidential-debate-voter-reaction.html
