@@ -1,3 +1,7 @@
+**Trump Wants to Jail His Political Adversaries. Here’s How He Could Do It**\
+`How might a politically motivated prosecution actually unfold? These steps show exactly how Trump could make his threats real — all while staying within the constitutional limits on presidential power.`\
+https://nytimes.com/interactive/2024/10/02/t-magazine/trump-politics-justice-department.html
+
 **Missing Out on Coldplay’s India Tickets, Some Fans Vented — Even to Police**\
 `When 13 million people tried to buy tickets for the band’s Mumbai shows, the ticketing site crashed. Many who came up short cried foul, both online and to the authorities.`\
 https://nytimes.com/2024/10/02/world/asia/india-coldplay-tickets.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/style/adult-children-relationships-intervention.h
 **23XI Racing, Front Row Motorsports sue NASCAR**\
 `The disagreement stems from a long dispute related to NASCAR's charter system, which is similar to franchises for race teams.`\
 https://nytimes.com/athletic/5810445/2024/10/02/23xi-racing-front-row-nascar-lawsuit/
-
-**Barcelona sign former Juventus and Arsenal goalkeeper Szczesny**\
-`Barcelona have completed the signing of former Arsenal and Juventus goalkeeper Wojciech Szczesny on a short-term contract.`\
-https://nytimes.com/athletic/5793821/2024/10/02/barcelona-transfers-szczesny-signs/
 
