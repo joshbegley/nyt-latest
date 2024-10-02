@@ -1,3 +1,7 @@
+**Porto's Bruno offers understanding to Ten Hag: 'Everyone' is under scrutiny**\
+`Porto FC head coach Vitor Bruno has invited Erik ten Hag to share a glass of wine after Thursday&#8217;s Europa League meeting as he offered his understanding to a fellow head coach under scrutiny.`\
+https://nytimes.com/athletic/5813006/2024/10/02/vitor-bruno-erik-ten-hag/
+
 **Raiders' Pierce declines to discuss Adams' trade request**\
 `Pierce didn't address screenshots that appeared to show him “liking” an Instagram post insinuating Adams could be traded.`\
 https://nytimes.com/athletic/5813024/2024/10/02/raiders-antonio-pierce-davante-adams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5812950/2024/10/02/notre-dame-football-mailbag-ques
 **Flare-Up in Israel-Iran Conflict Leaves Harris Unable to Avoid the Subject**\
 `Missiles over Tel Aviv fed Donald Trump’s narrative of a world in chaos and vaporized any hopes of an end to the war. In the near term, that poses political problems for Democrats.`\
 https://nytimes.com/2024/10/02/us/politics/israel-iran-war-harris-policy.html
-
-**Review: Finding the Right Rep for a Repertory Company**\
-`Dayton Contemporary Dance Company brought a mixed bill to the Joyce Theater, including a Paul Taylor classic and a dance by the great Rennie Harris.`\
-https://nytimes.com/2024/10/02/arts/review-dayton-contemporary-dance-company-esplanade.html
 
