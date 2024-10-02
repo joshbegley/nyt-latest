@@ -1,3 +1,7 @@
+**“What [Harris has] actually done instead is drive the cost of food higher by 25 percent, drive the cost of housing higher by about 60 percent.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/what-harris-has-actually-done-instead-is-drive-the-cost-of-food-higher-by-25-percent-drive-the-cost-of-housing-higher-by-about-6
+
 **“So there’s an application called the CBP One app, where you can go on as an illegal migrant, apply for asylum or apply for parole, and be granted legal status at the wave of a Kamala Harris open border wand.”**\
 `By Hamed Aleaziz`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/so-theres-an-application-called-the-cbp-one-app-where-you-can-go-on-as-an-illegal-migrant-apply-for-asylum-or-apply-for-parole-a
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/this-idea-that-carbo
 **“Right now in this country, Margaret, we have 320,000 children that the Department of Homeland Security has effectively lost. Some of them have been sex trafficked.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/right-now-in-this-country-margaret-we-have-320000-children-that-the-department-of-homeland-security-has-effectively-lost-some-of
-
-**Review: Daniel Dae Kim as a Playwright Unmasked in ‘Yellow Face’**\
-`David Henry Hwang’s 2007 play, now in a fine Broadway revival, is a pointed critique of identity, masquerading as a mockumentary.`\
-https://nytimes.com/2024/10/01/theater/yellow-face-review-daniel-dae-kim.html
 
