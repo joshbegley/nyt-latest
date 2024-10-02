@@ -1,3 +1,15 @@
+**Walz Spoke of Gun Violence Affecting His Son. Here’s an Account of the Shooting.**\
+`At Tuesday’s debate, Gov. Tim Walz said that his son, Gus Walz, witnessed a shooting at a community center. A volleyball coach said Gus helped other young players to safety.`\
+https://nytimes.com/2024/10/02/us/walz-son-shooting.html
+
+**Jets, Steelers are betting favorites to land Raiders' Davante Adams**\
+`As NFL teams inquire about the Raiders' star receiver, here's what the betting odds reveal about Adams' most likely landing spots.`\
+https://nytimes.com/athletic/5813690/2024/10/02/davante-adams-next-team-odds-jets-steelers/
+
+**Royals' arms Orioles to advance to AL Division Series vs. Yankees: Takeaways**\
+`Royals pitching held down the Orioles over both games, and the Royals scraped together runs with their speed while the Orioles struck out.`\
+https://nytimes.com/athletic/5814018/2024/10/02/royals-sweep-orioles-wild-card-series/
+
 **Royals sweep aside Orioles to advance to AL Division Series vs. Yankees: Takeaways**\
 `Royals pitching held down the Orioles over both games, and the Royals scraped together runs with their speed while the Orioles struck out.`\
 https://nytimes.com/athletic/5814018/2024/10/02/royals-sweep-orioles-wild-card-series/
