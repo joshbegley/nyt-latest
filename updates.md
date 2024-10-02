@@ -1,3 +1,11 @@
+**Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
+`What's on your mind about the Irish during the idle week?`\
+https://nytimes.com/athletic/5812950/2024/10/02/notre-dame-football-mailbag-questions-14/
+
+**At Least 60 Dead After Boat Capsizes in Nigeria**\
+`The boat was carrying about 300 people on the Niger River. Rescuers continued to search for survivors.`\
+https://nytimes.com/2024/10/02/world/africa/nigeria-boat-capsizes-deaths.html
+
 **Flare-Up in Israel-Iran Conflict Leaves Harris Unable to Avoid the Subject**\
 `Missiles over Tel Aviv fed Donald Trump’s narrative of a world in chaos and vaporized any hopes of an end to the war. In the near term, that poses political problems for Democrats.`\
 https://nytimes.com/2024/10/02/us/politics/israel-iran-war-harris-policy.html
