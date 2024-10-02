@@ -1,3 +1,15 @@
+**Walz Misspeaks During Vice-Presidential Debate**\
+`Gov. Tim Walz mixed up Iran and Israel, and said he became “friends with school shooters,” when talking about empathizing with Sandy Hook parents.`\
+https://nytimes.com/video/us/elections/100000009735837/walz-misspeaks-during-vice-presidential-debate.html
+
+**Yohe's 10 observations: Penguins prospect Harrison Brunicke looks like the real deal**\
+`The 18-year-old second-round draft pick in 2024 continued his outstanding training camp with the Penguins.`\
+https://nytimes.com/athletic/5811043/2024/10/01/penguins-prospect-harrison-brunicke/
+
+**At a Georgia watch party, few students see the debate as a tiebreaker.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/at-a-georgia-watch-party-few-see-the-debate-as-a-tiebreaker
+
 **Walz Says His Son Witnessed a Shooting at a Community Center**\
 `The story by Gov. Tim Walz of Minnesota drew sympathy from his Republican opponent, Senator JD Vance of Ohio.`\
 https://nytimes.com/video/us/politics/100000009735828/tim-walz-son-shooting-witness.html
