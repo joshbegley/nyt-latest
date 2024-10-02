@@ -1,3 +1,11 @@
+**The NFL Projection Model's 5 biggest preseason misses: Commanders, Vikings hot starts top list**\
+`Time for some self-scouting. The model believed in the Bengals and Cowboys, but through four weeks, it appears to have been wrong. `\
+https://nytimes.com/athletic/5809374/2024/10/02/nfl-projections-misses-commanders-vikings-jayden-daniels/
+
+**What I'm seeing from the Titans: Will Levis has gone backward, but Mason Rudolph is a backup**\
+`Levis’ performance has been troubling, but Brian Callahan’s reaction to it is encouraging.`\
+https://nytimes.com/athletic/5810105/2024/10/02/titans-will-levis-mason-rudolph/
+
 **Weird & Wild: O's, Royals and ... Babe Ruth? Astros 103, Tigers 0? Mets' 'Win Improbability'**\
 `After eight-plus hours and a tidy 1,240 pitches, here are all the Weird & Wild highlights from Day One of the MLB playoffs,. `\
 https://nytimes.com/athletic/5811858/2024/10/02/oriols-royals-astros-tigers-mets-mlb-playoffs-day-1/
