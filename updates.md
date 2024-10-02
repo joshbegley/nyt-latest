@@ -1,3 +1,11 @@
+**Fan survey: How high should Bruins go on Swayman? Lost faith in Neely and Sweeney?**\
+`Jeremy Swayman’s contract negotiations with the Boston Bruins have overheated. What do you think the resolution should and will be?`\
+https://nytimes.com/athletic/5812708/2024/10/02/bruins-jeremy-swayman-fan-survey/
+
+**Patriots C Andrews expected to have season-ending shoulder surgery**\
+`The six-time captain has started 121 games and won two Super Bowls with New England.`\
+https://nytimes.com/athletic/5812642/2024/10/02/patriots-david-andrews-surgery/
+
 **Fantasy football rankings Week 5: Sleepers, starts, projections and more**\
 `Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
 https://nytimes.com/athletic/5811078/2024/10/02/fantasy-football-rankings-week-5-sleepers-projections-starts/

@@ -1,3 +1,11 @@
+**Fan survey: How high should Bruins go on Swayman? Lost faith in Neely and Sweeney?**\
+`Jeremy Swayman’s contract negotiations with the Boston Bruins have overheated. What do you think the resolution should and will be?`\
+https://nytimes.com/athletic/5812708/2024/10/02/bruins-jeremy-swayman-fan-survey/
+
+**Patriots C Andrews expected to have season-ending shoulder surgery**\
+`The six-time captain has started 121 games and won two Super Bowls with New England.`\
+https://nytimes.com/athletic/5812642/2024/10/02/patriots-david-andrews-surgery/
+
 **Broadcaster Diamond to drop 11 MLB teams**\
 `MLB's representatives said they were "sandbagged" by this news.`\
 https://nytimes.com/athletic/5812640/2024/10/02/bally-drops-11-mlb-teams/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5812599/2024/10/02/mauricio-pochettino-usmnt-squad-
 **Victim’s Unsealed Testimony Reveals New Details in Epstein Case**\
 `The woman testified in a now-settled lawsuit against J.P. Morgan Chase on behalf of hundreds of Jeffrey Epstein’s victims.`\
 https://nytimes.com/2024/10/02/business/epstein-jpmorgan-lawsuit.html
-
-**When Artists Found Beauty in London’s Toxic Fog**\
-`Monet and Turner found something sublime in the polluted 19th-century city — and maybe something darker, too.`\
-https://nytimes.com/2024/10/02/arts/monet-turner-london-pollution.html
-
-**Vance and Walz’s Battle of the Network Co-Stars**\
-`In what could be the last prime-time showdown of the 2024 campaign, the supporting players performed against type.`\
-https://nytimes.com/2024/10/02/arts/television/vance-walz-debate.html
 
