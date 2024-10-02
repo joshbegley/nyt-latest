@@ -1,3 +1,23 @@
+**Man Who Set Fire to Cabin in the Grand Canyon Gets 20 Months in Prison**\
+`The 21-year-old was arrested in May, shortly after he set fire to his former girlfriend’s residence in the park, the authorities said.`\
+https://nytimes.com/2024/10/02/us/grand-canyon-cabin-arson-sentence.html
+
+**The V.P. Debate Came Down to One Moment**\
+`JD Vance’s response to a question about challenging this year’s election results was telling.`\
+https://nytimes.com/2024/10/02/opinion/ezra-klein-podcast-vp-debate.html
+
+**Outrage in South Africa Over Farmers Accused of Feeding Slain Women to Pigs**\
+`The grisly allegations have sparked debate over some of the country’s most explosive issues, including race, gender-based violence and farm ownership.`\
+https://nytimes.com/2024/10/02/world/africa/south-african-farmers-black-women-pigs.html
+
+**Doorman Accused of Stealing Nearly $500,000 From Retired Teacher**\
+`A doorman at a building near Columbia University was charged with defrauding a 91-year-old former resident while she lived in a nursing home.`\
+https://nytimes.com/2024/10/02/nyregion/nyc-doorman-steals-money-from-teacher.html
+
+**Tiny Love Stories: ‘She Literally Ran From the Room’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/10/02/style/tiny-modern-love-stories-she-literally-ran-from-the-room.html
+
 **The Briefing: Lille 1-0 Real Madrid - 36-game unbeaten run over and Camavinga's mixed return**\
 `The key moments and talking points from Real Madrid's shock defeat at Lille analysed and evaluated`\
 https://nytimes.com/athletic/5801018/2024/10/02/lille-real-madrid-briefing/
