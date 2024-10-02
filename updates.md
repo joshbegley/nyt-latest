@@ -1,3 +1,11 @@
+**Isak out of Sweden squad for October Nations League games**\
+`Newcastle United striker Alexander Isak has been left out of Sweden&#8217;s squad for their Nations League fixtures later this month.`\
+https://nytimes.com/athletic/5811985/2024/10/02/alexander-isak-injury-newcastle-sweden/
+
+**Dozens Die After Smugglers Force Them Off Ships Into Open Waters**\
+`Many others are missing after Yemeni operators instructed hundreds of African migrants on two boats near the Djibouti coast to get off and swim, the International Organization for Migration said.`\
+https://nytimes.com/2024/10/02/world/africa/yemen-djibouti-migrant-boats-dead.html
+
 **Before the invasion, raids destroyed Hezbollah tunnels and other targets, the Israeli military says.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/israel-idf-hezbollah-lebanon

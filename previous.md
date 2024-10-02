@@ -1,3 +1,11 @@
+**Isak out of Sweden squad for October Nations League games**\
+`Newcastle United striker Alexander Isak has been left out of Sweden&#8217;s squad for their Nations League fixtures later this month.`\
+https://nytimes.com/athletic/5811985/2024/10/02/alexander-isak-injury-newcastle-sweden/
+
+**Dozens Die After Smugglers Force Them Off Ships Into Open Waters**\
+`Many others are missing after Yemeni operators instructed hundreds of African migrants on two boats near the Djibouti coast to get off and swim, the International Organization for Migration said.`\
+https://nytimes.com/2024/10/02/world/africa/yemen-djibouti-migrant-boats-dead.html
+
 **Before the invasion, raids destroyed Hezbollah tunnels and other targets, the Israeli military says.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/israel-idf-hezbollah-lebanon
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5811548/2024/10/02/emma-hayes-uswnt-nwsl/
 **Business of Football: U.S. Soccer's three 'big swings', and the end of transfers as we know them?**\
 `DJ Khaled as FIFA's hype man, the latest on (not) the European Super League, U.S. Soccer's wise move, and a case that could change transfers`\
 https://nytimes.com/athletic/5805919/2024/10/02/diarra-case-transfers-us-soccer-revenue/
-
-**The Bruins’ $3.475 million Jeremy Swayman blunder**\
-`Had they stuck with an all-business, cutthroat approach a year ago, the Bruins would have accepted a two-year award on Jeremy Swayman.`\
-https://nytimes.com/athletic/5811013/2024/10/02/bruins-jeremy-swayman-arbitration-blunder/
-
-**Allies Say They Came to Israel’s Aid During Iran’s Missile Attack**\
-`Israel has said that Iran fired more than 180 missiles in the barrage on Tuesday, but that most were intercepted.`\
-https://nytimes.com/2024/10/02/world/middleeast/israel-iran-missile-attack-us-uk-france.html
 
