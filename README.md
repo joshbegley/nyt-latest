@@ -1,3 +1,7 @@
+**Word of the Day: unscathed**\
+`This word has appeared in 180 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/02/learning/word-of-the-day-unscathed.html
+
 **Arsenal have many faces - they allowed them to dominate and intimidate PSG**\
 `Arsenal overcame PSG on Tuesday evening and showed different qualities throughout the game`\
 https://nytimes.com/athletic/5811098/2024/10/02/arsenal-have-many-faces-they-allowed-them-to-dominate-and-intimidate-psg/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/us/politics/who-won-debate-vance-walz.html
 **The Moment When Vance Dodged a Question but Said Plenty**\
 `JD Vance sailed fairly smoothly through some 90 minutes of Tuesday’s debate with Tim Walz. Then the subject turned to the Jan. 6, 2021, attack on the Capitol.`\
 https://nytimes.com/2024/10/02/us/politics/vance-jan-6-debate.html
-
-**Taiwan Closes Schools and Workplaces as Typhoon Krathon Nears**\
-`The storm has already injured 46 people and forced thousands of evacuations, the authorities said, warning that torrential rain could cause landslides and flooding.`\
-https://nytimes.com/2024/10/02/world/taiwan-typhoon-krathon.html
 
