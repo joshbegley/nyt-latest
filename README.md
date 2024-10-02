@@ -1,4 +1,4 @@
-**Civility and Then a Clash Over Jan. 6: 7 Takeaways From the Debate**\
+**Civility and Then a Clash Over Jan. 6: Seven Takeaways From the Debate**\
 `Senator JD Vance of Ohio and Gov. Tim Walz of Minnesota sparred over immigration, abortion and foreign policy — and then on Donald Trump’s 2020 election loss.`\
 https://nytimes.com/2024/10/02/us/politics/vp-debate-takeaways-vance-walz.html
 
