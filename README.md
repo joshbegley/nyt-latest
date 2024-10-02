@@ -1,3 +1,11 @@
+**Knicks-Timberwolves trade: Why make this major move now? Look at the money**\
+`One way to think about this deal financially is the difference between Towns’ contract and Randle’s likely wages over that same period.`\
+https://nytimes.com/athletic/5807992/2024/10/02/karl-anthony-towns-julius-randle-trade-money-contract-knicks-timberwolves/
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears offense showed some improvement in a much-needed win over the Rams. Now the Panthers visit on Sunday. What's on your mind?`\
+https://nytimes.com/athletic/5812547/2024/10/02/bears-mailbag-questions-34/
+
 **Biden Says He Won’t Support Israeli Attack on Iranian Nuclear Sites**\
 `President Biden told reporters that leaders of the Group of 7 countries agreed that Israel had a right to respond to Iran’s missile attack, but that it should do so proportionally.`\
 https://nytimes.com/video/world/middleeast/100000009737306/biden-israel-iran-nuclear.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5813006/2024/10/02/vitor-bruno-erik-ten-hag/
 **Raiders' Pierce declines to discuss Adams' trade request**\
 `Pierce didn't address screenshots that appeared to show him “liking” an Instagram post insinuating Adams could be traded.`\
 https://nytimes.com/athletic/5813024/2024/10/02/raiders-antonio-pierce-davante-adams/
-
-**Biden Says He Won’t Support an Israeli Strike on Iran’s Nuclear Sites**\
-`His comments reflected a renewed effort by his administration to seek restraint from Israel to try to avoid a growing war in the Middle East.`\
-https://nytimes.com/2024/10/02/world/middleeast/iran-nuclear-weapons-biden-israel.html
-
-**Penn Station Must Expand to Improve Service, Railroads Say. But How?**\
-`After studying other ways to double capacity at the busy transit hub, the railroads that use it say they have concluded that it needs to be expanded.`\
-https://nytimes.com/2024/10/02/nyregion/penn-station-gateway.html
 
