@@ -1,3 +1,23 @@
+**Debate Fact Check: Vance and Walz on the Economy, Abortion and Housing**\
+`Gov. Tim Walz was pressed on his time in China and Senator JD Vance on his assertion that there was a peaceful transfer of power in 2021 in a vice-presidential debate largely focused on policy.`\
+https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance
+
+**“I never supported a national ban. I did when I was running for Senate talk about a minimum national standard.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/i-never-supported-a-national-ban-i-did-when-i-was-running-for-senate-talk-about-a-minimum-national-standard
+
+**Walz Failed to Expose Vance’s Debate Masquerade**\
+`He missed multiple opportunities to demonstrate how Trump and Vance are unfit for office.`\
+https://nytimes.com/2024/09/25/opinion/walz-vance-debate-loser.html
+
+**Wild owner Craig Leipold on extending Kirill Kaprizov: 'Nobody will offer more money than us, or longer'**\
+`The Wild owner talked about the team eyeing a long-term extension for Kaprizov next summer and more. `\
+https://nytimes.com/athletic/5811413/2024/10/01/wild-kirill-kaprizov-extension-contract/
+
+**Donald Trump “introduced pricing transparency. Think about health care. You go into a hospital, you try to buy something and nobody knows what it actually costs. That price transparency will actually give American consumers a little bit more choice and will also drive down costs.”**\
+`By Margot Sanger-Katz`\
+https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/donald-trump-introduced-pricing-transparency-think-about-health-care-you-go-into-a-hospital-you-try-to-buy-something-and-nobody-
+
 **Walz Failed to Expose Vance’s Debate Masquerade**\
 `He missed multiple opportunities to demonstrate how Trump and Vance are unfit for office.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/walz-vance-debate-loser
