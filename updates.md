@@ -1,3 +1,11 @@
+**“If you really want to make the environment cleaner, you’ve got to invest in more energy production. We haven’t built a nuclear facility — I think one in the past 40 years. Natural gas — we have to invest more in it. Kamala Harris has done the opposite.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-you-really-want-to-make-the-environment-cleaner-youve-got-to-invest-in-more-energy-production-we-havent-built-a-nuclear-facil
+
+**The Royals, exorcising Camden Yards demons, are playing with house money**\
+`Under the current best-of-three wild card format, the team who wins Game 1 has gone on to win 14 of 16 times. `\
+https://nytimes.com/athletic/5811301/2024/10/01/royals-momentum-orioles-2024-wild-card/
+
 **Detroit native Hunter Brown dreamed of pitching for Tigers, and now must tame them for Astros**\
 `Houston’s entire uneven season rests on the right arm of Brown, a Detroit native who went to college less than two miles from Comerica Park.`\
 https://nytimes.com/athletic/5811240/2024/10/01/hunter-brown-astros-tigers-game-2/
