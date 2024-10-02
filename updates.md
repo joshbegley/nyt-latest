@@ -1,3 +1,11 @@
+**Ozzie Virgil Sr., First Dominican-Born Major Leaguer, Dies at 92**\
+`An outstanding fielder though never an All-Star, he broke that barrier with the Giants in 1956 and later became the Tigers’ first Black player.`\
+https://nytimes.com/2024/10/02/sports/baseball/ozzie-virgil-sr-dead.html
+
+**Cowboys' Cooks out for Steelers matchup because of knee issue**\
+`Cooks is tied for the second-most targets among Cowboys receivers this season.`\
+https://nytimes.com/athletic/5812882/2024/10/02/cowboys-brandin-cooks-knee-infection/
+
 **Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
 `What's on your mind about the Irish during the idle week?`\
 https://nytimes.com/athletic/5812950/2024/10/02/notre-dame-football-mailbag-questions-14/

@@ -1,3 +1,11 @@
+**Ozzie Virgil Sr., First Dominican-Born Major Leaguer, Dies at 92**\
+`An outstanding fielder though never an All-Star, he broke that barrier with the Giants in 1956 and later became the Tigers’ first Black player.`\
+https://nytimes.com/2024/10/02/sports/baseball/ozzie-virgil-sr-dead.html
+
+**Cowboys' Cooks out for Steelers matchup because of knee issue**\
+`Cooks is tied for the second-most targets among Cowboys receivers this season.`\
+https://nytimes.com/athletic/5812882/2024/10/02/cowboys-brandin-cooks-knee-infection/
+
 **Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
 `What's on your mind about the Irish during the idle week?`\
 https://nytimes.com/athletic/5812950/2024/10/02/notre-dame-football-mailbag-questions-14/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/technology/openai-valuation-150-billion.html
 **What Black Voters Are Saying About Eric Adams Since His Indictment**\
 `Some Black New Yorkers are sticking by the mayor’s side after he was charged with bribery. Many expressed disappointment in him.`\
 https://nytimes.com/2024/10/02/nyregion/eric-adams-black-voters.html
-
-**How the Yankees are approaching their ALDS Game 3 pitching decision**\
-`The team doesn't plan to make the call until they get through Game 1 on Saturday. `\
-https://nytimes.com/athletic/5812779/2024/10/02/new-york-yankees-alds-game-3-pitching/
-
-**Davante Adams trade proposals: What could the Raiders get for the future Hall of Fame WR?**\
-`With teams like the Jets, Cowboys and Steelers all reportedly interested, what might the Raiders hope to get in return for their star WR?`\
-https://nytimes.com/athletic/5811325/2024/10/02/davante-adams-trade-offers-raiders-jets-steelers/
 
