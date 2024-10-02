@@ -1,3 +1,15 @@
+**Wild camp notes: Spurgeon looks like old Spurge, Fleury chirps teammates in disguise, more**\
+`After playing just 16 games last year and undergoing multiple surgeries, captain Jared Spurgeon said it's "like your first camp over again."`\
+https://nytimes.com/athletic/5813355/2024/10/02/wild-camp-jared-spurgeon-marc-andre-fleury/
+
+**How a Judge Will Weigh Immunity in Trump’s Jan. 6 Case**\
+`How does the Supreme Court’s presidential immunity ruling apply to former President Donald J. Trump’s election-interference case? Here’s how Judge Tanya S. Chutkan will decide.`\
+https://nytimes.com/interactive/2024/10/02/us/politics/trump-trial-immunity-election-interference.html
+
+**Judge Unseals New Evidence in Federal Election Case Against Trump**\
+`Judge Tanya Chutkan made public portions of a filing by prosecutors setting out their argument for why the case should go forward despite the Supreme Court’s ruling on presidential immunity.`\
+https://nytimes.com/2024/10/02/us/politics/trump-jan-6-case-jack-smith-evidence.html
+
 **Inside the First Fashion Show at Disneyland Paris**\
 `By Alex Huanfa Cheng`\
 https://nytimes.com/card/2024/10/02/t-magazine/fashion/coperni-fashion-show-disneyland-paris
