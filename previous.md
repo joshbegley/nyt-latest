@@ -1,3 +1,11 @@
+**In Beirut’s Once-Bustling Suburbs, Smoking Rubble and Eerie Quiet**\
+`Airstrikes targeting members of Hezbollah have brought the Dahiya neighborhoods south of Beirut to a standstill, its residents fleeing and businesses shuttering.`\
+https://nytimes.com/2024/10/02/world/middleeast/hezbollah-beirut-dahiya.html
+
+**Officials Cast Doubt on a Dementia Drug, but Human Trials Continue**\
+`The S.E.C. alleged shortcomings in research said to support the drug, and its developer agreed to a $40 million settlement. Some experts wonder why clinical trials have not been stopped.`\
+https://nytimes.com/2024/10/02/health/alzheimers-simufilam-cassava-sciences.html
+
 **JD Vance’s Audition to Lead the G.O.P. Is Working**\
 `He is a perfect solution to Trump’s self-inflicted political frailties.`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/jd-vance-debate-replace-trump
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/arts/design/tate-modern-blue-rider.html
 **During Frieze Week, There Is No Shortage of Things to See**\
 `Away from Frieze London and Frieze Masters are an abundance of exhibitions to explore.`\
 https://nytimes.com/2024/10/02/arts/design/frieze-week-london-tour.html
-
-**Like Trump, Vance Wavers on What to Do With Obamacare**\
-`JD Vance seemed to back away from a proposal to separate healthy and sick people in insurance markets, which could cause major disruption for people with pre-existing conditions.`\
-https://nytimes.com/2024/10/02/us/politics/vance-obamacare-trump-aca.html
-
-**Sleeping Through Hurricane Helene**\
-`Extreme climate was supposed to shock us into action. What happened?`\
-https://nytimes.com/2024/10/02/opinion/hurricane-helene-climate-change.html
 

@@ -1,3 +1,11 @@
+**In Beirut’s Once-Bustling Suburbs, Smoking Rubble and Eerie Quiet**\
+`Airstrikes targeting members of Hezbollah have brought the Dahiya neighborhoods south of Beirut to a standstill, its residents fleeing and businesses shuttering.`\
+https://nytimes.com/2024/10/02/world/middleeast/hezbollah-beirut-dahiya.html
+
+**Officials Cast Doubt on a Dementia Drug, but Human Trials Continue**\
+`The S.E.C. alleged shortcomings in research said to support the drug, and its developer agreed to a $40 million settlement. Some experts wonder why clinical trials have not been stopped.`\
+https://nytimes.com/2024/10/02/health/alzheimers-simufilam-cassava-sciences.html
+
 **JD Vance’s Audition to Lead the G.O.P. Is Working**\
 `He is a perfect solution to Trump’s self-inflicted political frailties.`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/jd-vance-debate-replace-trump
