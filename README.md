@@ -1,3 +1,15 @@
+**Did Apple Just Kill Social Apps?**\
+`Some app makers worry that a subtle change to the iPhone’s contact-sharing permissions could make it hard for them to get the fast growth they need to compete.`\
+https://nytimes.com/2024/10/02/technology/apple-social-apps-contacts-change.html
+
+**Sabres depth chart: How the new fourth line was built to change Buffalo's identity**\
+`In the preseason, Beck Malenstyn, Sam Lafferty and Nicolas Aube-Kubel have been the Sabres’ fastest and most physical trio.`\
+https://nytimes.com/athletic/5812118/2024/10/02/buffalo-sabres-depth-chart-2024/
+
+**Inside a Pro-Harris Ad Telling Hispanic Voters She’s Friendlier Than Trump**\
+`An ad from two Democratic groups skates over Kamala Harris’s tough recent stance on border security and instead focuses on her more immigration-friendly plans.`\
+https://nytimes.com/2024/10/02/us/politics/harris-ad-hispanic-voters-trump.html
+
 **Israel Confirms 1st Military Death in Lebanon Invasion**\
 `The military identified the soldier as Capt. Eitan Itzhak Oster, 22, from central Israel, but did not specify where he was killed.`\
 https://nytimes.com/2024/10/02/world/middleeast/israel-soldier-killed-lebanon-invasion.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5812288/2024/10/02/davante-adams-trade-request-upda
 **Mirtle: Why the 2024-25 NHL season could be the year of the comeback**\
 `Can these NHL players turn their careers around this season? Here are five inspiring stories from around the league.`\
 https://nytimes.com/athletic/5811664/2024/10/02/nhl-2024-25-season-players-comeback/
-
-**‘Ring of Fire’ Solar Eclipse Will Be Visible in Parts of South America**\
-`Not everyone will be able to see the phenomenon, known as an annular eclipse, on Wednesday, though a partial solar eclipse may be visible in parts of Antarctica and Hawaii.`\
-https://nytimes.com/2024/10/02/science/ring-of-fire-solar-eclipse.html
-
-**Tesla Sales Increase, Suggesting Electric Car Demand Is Rebounding**\
-`The automaker reported a gain of 6.4 percent for the latest quarter, its first such increase this year.`\
-https://nytimes.com/2024/10/02/business/tesla-electric-vehicle-sales.html
-
-**How Arsenal's intelligent occupation of space was the key to victory against PSG**\
-`Their rotations and combinations aren't particularly novel but Arsenal's ability to use them against different setups is hugely impressive`\
-https://nytimes.com/athletic/5811755/2024/10/02/arsenal-intelligent-movement-tactics-arteta/
 
