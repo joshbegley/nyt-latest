@@ -1,3 +1,7 @@
+**Why the Conflict Between Iran and Israel Has Raised Oil Prices Only Modestly**\
+`The fighting is increasing fears about oil supplies, but those worries are offset by greater global production and slowing demand in China.`\
+https://nytimes.com/2024/10/02/business/iran-israel-oil-prices.html
+
 **Isak out of Sweden squad for October Nations League games**\
 `Newcastle United striker Alexander Isak has been left out of Sweden&#8217;s squad for their Nations League fixtures later this month.`\
 https://nytimes.com/athletic/5811985/2024/10/02/alexander-isak-injury-newcastle-sweden/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5810534/2024/10/02/pablo-sanchez-victus-backyard-sp
 **USWNT coach Emma Hayes tours the U.S. with 'quite a lot of work to do'**\
 `Players that Emma Hayes could consider as the U.S. coach looks toward youth`\
 https://nytimes.com/athletic/5811548/2024/10/02/emma-hayes-uswnt-nwsl/
-
-**Business of Football: U.S. Soccer's three 'big swings', and the end of transfers as we know them?**\
-`DJ Khaled as FIFA's hype man, the latest on (not) the European Super League, U.S. Soccer's wise move, and a case that could change transfers`\
-https://nytimes.com/athletic/5805919/2024/10/02/diarra-case-transfers-us-soccer-revenue/
 
