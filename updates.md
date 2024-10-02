@@ -1,3 +1,15 @@
+**Photos show how Iran’s missiles, though mostly intercepted, still caused damage.**\
+`A school was hit in southern Israel, windows were blown out of a building in Tel Aviv and a Palestinian man was killed in the West Bank.`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/photos-show-how-irans-missiles-though-mostly-intercepted-still-caused-damage
+
+**Canucks notebook: Cuts, roster battles, new-look lines and salary-cap options**\
+`The Canucks recently provided an unusual number of answers about which players will be on the team to open the 2024-25 season.`\
+https://nytimes.com/athletic/5811719/2024/10/02/canucks-notebook-cuts-roster-battles-new-look-lines-and-salary-cap-options/
+
+**Buster Posey's winning history alone isn't going to fix the Giants**\
+`Posey and other talked about a culture change, but ultimately the biggest need will be raising the talent level on the Giants roster.`\
+https://nytimes.com/athletic/5810258/2024/10/02/sf-giants-buster-posey-roster-needs/
+
 **Did Apple Just Kill Social Apps?**\
 `Some app makers worry that a subtle change to the iPhone’s contact-sharing permissions could make it hard for them to get the fast growth they need to compete.`\
 https://nytimes.com/2024/10/02/technology/apple-social-apps-contacts-change.html
