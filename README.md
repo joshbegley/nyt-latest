@@ -1,3 +1,11 @@
+**LeBron James won't put expectations on JJ Redick, early-season Lakers: 'That's unfair'**\
+`As JJ Redick's first practice as head coach got underway, the ground rules and standards were set for what's to come. `\
+https://nytimes.com/athletic/5810661/2024/10/01/lebron-james-jj-redick-lakers-nba/
+
+**Tarik Skubal aced it, as usual. Now, Tigers hope 'pitching chaos' can carry them to ALDS**\
+`After Skubal dominated, the Tigers are in their ideal position: They can mix and match their pitching, with two chances to win. `\
+https://nytimes.com/athletic/5811157/2024/10/01/tarik-skubal-tigers-pitching-chaos/
+
 **Mets' Severino delivers in Game 1 win over Brewers: Takeaways**\
 `A five-run outburst in the top of the fifth propelled the Mets to an 8-4 win in Game 1 of the Wild Card Series.`\
 https://nytimes.com/athletic/5811008/2024/10/01/mets-brewers-wild-card-game-luis-severino-freddy-peralta/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/01/world/israel-lebanon-hezbollah/in-congress-r
 **Tracking Attacks in the Vance-Walz Debate**\
 `See how the vice presidential candidates used their speaking time to discuss the issues or criticize their opponent.`\
 https://nytimes.com/interactive/2024/10/01/us/elections/vance-walz-attacks-vp-debate.html
-
-**Olivia Nuzzi, Reporter Linked to R.F.K. Jr., Accuses Ex-Fiancé of Harassment**\
-`Her former fiancé, the Politico reporter Ryan Lizza, has vehemently denied the allegation, which she filed in a court complaint and to the F.B.I.`\
-https://nytimes.com/2024/10/01/business/media/olivia-nuzzi-ryan-lizza.html
-
-**A Davante Adams-Aaron Rodgers reunion? Why the Jets are a favorite to trade for the receiver**\
-`While the Jets have other needs, they could have the draft capital it takes to make a deal.`\
-https://nytimes.com/athletic/5810613/2024/10/01/davante-adams-trade-jets-raiders-aaron-rodgers/
 
