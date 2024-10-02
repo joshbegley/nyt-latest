@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 2 Bologna 0: More records for Salah as Slot's side extend perfect Champions League start**\
+`We break down the main talking points from Wednesday night's game at Anfield`\
+https://nytimes.com/athletic/5801017/2024/10/02/liverpool-bologna-champions-league-result-analysis/
+
 **The V.P. Debate Might Boost Vance and Walz, but It Probably Won’t Shift the Polls**\
 `Voters may view JD Vance and Tim Walz more positively after Tuesday’s debate. But it’s unlikely to have much impact on their choices for president.`\
 https://nytimes.com/2024/10/02/us/elections/vice-presidential-debate-polls-vance-walz.html
