@@ -1,3 +1,15 @@
+**Thursday Briefing: Israeli Troops Clashed with Hezbollah**\
+`Plus, what we learned from fashion month.`\
+https://nytimes.com/2024/10/02/briefing/israel-hezbollah-debate-ukraine.html
+
+**Maybe Voters Want a Break From the Endless Combat**\
+`A glimpse at a different approach in North Carolina.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/maybe-voters-want-a-break-from-the-endless-combat
+
+**Ten Hag: Malacia and Shaw to not return until after international break**\
+`Erik ten Hag says he does not expect Manchester United left-backs Luke Shaw and Tyrell Malacia to return before the October international break.`\
+https://nytimes.com/athletic/5813501/2024/10/02/tyrell-malacia-luke-shaw-injury-update/
+
 **The Briefing: Liverpool 2 Bologna 0: More records for Salah as Slot's side extend perfect Champions League start**\
 `We break down the main talking points from Wednesday night's game at Anfield`\
 https://nytimes.com/athletic/5801017/2024/10/02/liverpool-bologna-champions-league-result-analysis/
