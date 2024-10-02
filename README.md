@@ -1,3 +1,15 @@
+**A Survivor of Clerical Sex Abuse Tells His Harrowing Tale at St. Peter’s**\
+`As a child, Laurence Gien was abused by a priest in South Africa. Decades later, he became the first survivor to recount his pain at the Basilica in front of Pope Francis and dozens of cardinals and bishops.`\
+https://nytimes.com/2024/10/02/world/europe/clerical-sex-abuse-basilica.html
+
+**A Shift Among Democrats: Embrace Record Levels of Oil and Gas**\
+`Tim Walz said climate change is real, but boasted about high U.S. levels of oil and gas production. JD Vance called climate change “weird science.”`\
+https://nytimes.com/2024/10/02/climate/walz-oil-gas-vance.html
+
+**At Frieze London, Arab Artists Look Inward**\
+`ATHR Gallery in Jeddah, Saudi Arabia, will showcase works by four artists that explore Islamic artistic identity.`\
+https://nytimes.com/2024/10/02/arts/design/frieze-london-athr-gallery.html
+
 **Take Advantage of Frieze London to Explore Regent’s Park**\
 `The park has served as an inspiration for writers, poets and artists for decades.`\
 https://nytimes.com/2024/10/02/arts/design/frieze-london-regents-park.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/02/opinion/hurricane-helene-climate-change.html
 **Tim Walz as a Harris Ally: Folksy, Factually Sloppy and Far Less Visible**\
 `The Minnesota governor has brought his charm to the campaign trail, but his debate was uneven and he has so far been scarcely seen on national television. His team says that may be changing.`\
 https://nytimes.com/2024/10/02/us/politics/walz-debate-campaign.html
-
-**What missiles did Iran use to target Israel? And why it matters.**\
-`By Lara Jakes`\
-https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/what-missiles-did-iran-use-to-target-israel-and-why-it-matters
-
-**London’s Once-Tidy Green Spaces Are Going Wild, On Purpose**\
-`In response to concerns over climate change and plummeting biodiversity, a shift is afoot in the city’s parks. Manicured is out; rugged is in.`\
-https://nytimes.com/2024/10/02/arts/design/climate-london-gardens-rewild.html
-
-**Knicks-Timberwolves trade: Why make this major move now? Look at the money**\
-`One way to think about this deal financially is the difference between Towns’ contract and Randle’s likely wages over that same period.`\
-https://nytimes.com/athletic/5807992/2024/10/02/karl-anthony-towns-julius-randle-trade-money-contract-knicks-timberwolves/
 

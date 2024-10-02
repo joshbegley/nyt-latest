@@ -1,3 +1,11 @@
+**Take Advantage of Frieze London to Explore Regent’s Park**\
+`The park has served as an inspiration for writers, poets and artists for decades.`\
+https://nytimes.com/2024/10/02/arts/design/frieze-london-regents-park.html
+
+**After Missile Attack, Israel May Be Ready to Risk All-Out War With Iran**\
+`Israel seems ready to respond in a much more forceful and public way with Iran after Tehran launched its second massive missile attack on Israel this year, analysts and officials say.`\
+https://nytimes.com/2024/10/02/world/middleeast/iran-missile-attack-israel-war.html
+
 **Tate Modern Gives a Fuller View of the Blue Rider**\
 `Visitors of Frieze Week have an opportunity to see the exhibition that presents the group as an international and eclectic network of artists.`\
 https://nytimes.com/2024/10/02/arts/design/tate-modern-blue-rider.html
