@@ -1,3 +1,7 @@
+**36 Hours in Edinburgh**\
+`Fall is the ideal time to explore the ruggedly beautiful Scottish capital, which turns 900 this year.`\
+https://nytimes.com/interactive/2024/10/02/travel/things-to-do-edinburgh.html
+
 **Tigers rally vs. Josh Hader to eliminate Astros and reach ALDS: Takeaways**\
 `Utilityman Andy Ibáñez bested the star closer in the eighth, hitting a double to clear the loaded bases and send Detroit to the ALDS.`\
 https://nytimes.com/athletic/5813522/2024/10/02/astros-tigers-game-2-josh-hader/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5813399/2024/10/02/blue-jays-offseason-goals-ross-a
 **JD Vance and Tim Walz Debate Draws 43 Million Viewers**\
 `The figure is significantly lower than the vice-presidential debate in 2020.`\
 https://nytimes.com/2024/10/02/business/media/vance-walz-debate-ratings.html
-
-**Curious About How The Times Is Covering the Election? Send Us Your Questions.**\
-`The election is fast approaching. New York Times editors and reporters want to answer your questions about how we will cover one of the biggest nights in news.`\
-https://nytimes.com/2024/10/02/insider/nyt-election-coverage-questions.html
 
