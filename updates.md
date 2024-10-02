@@ -1,3 +1,11 @@
+**Wilson says Jets have identity but are 'figuring out if it’s going to work'**\
+`Wilson suggested that New York's offensive struggles are more about figuring out if their identity works.`\
+https://nytimes.com/athletic/5812387/2024/10/02/garrett-wilson-jets-offensive-identity/
+
+**The Windup: Tigers' Skubal has an upset brewing**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5812545/2024/10/02/tigers-astros-tarik-skubal-mlb-playoffs-the-windup/
+
 **Senegal part ways with manager Cisse after nine years**\
 `Aliou Cisse has departed his position as Senegal manager after not having his contract renewed by the Senegal Football Federation (FSF).`\
 https://nytimes.com/athletic/5812358/2024/10/02/senegal-sack-aliou-cisse/
