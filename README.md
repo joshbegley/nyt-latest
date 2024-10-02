@@ -1,3 +1,7 @@
+**What Happens Next in Hunter Biden’s Criminal Cases**\
+`The president’s son now confronts a daunting and uncertain process that could result in serious time behind bars when he is sentenced in his tax and gun cases in mid-December.`\
+https://nytimes.com/2024/10/02/us/politics/hunter-biden-tax-gun-case.html
+
 **Ozzie Virgil Sr., First Dominican-Born Major Leaguer, Dies at 92**\
 `An outstanding fielder though never an All-Star, he broke that barrier with the Giants in 1956 and later became the Tigers’ first Black player.`\
 https://nytimes.com/2024/10/02/sports/baseball/ozzie-virgil-sr-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/world/africa/nigeria-boat-capsizes-deaths.html
 **OpenAI Completes Deal That Values Company at $157 Billion**\
 `The A.I. start-up’s valuation has risen by more than $70 billion in nine months.`\
 https://nytimes.com/2024/10/02/technology/openai-valuation-150-billion.html
-
-**What Black Voters Are Saying About Eric Adams Since His Indictment**\
-`Some Black New Yorkers are sticking by the mayor’s side after he was charged with bribery. Many expressed disappointment in him.`\
-https://nytimes.com/2024/10/02/nyregion/eric-adams-black-voters.html
 
