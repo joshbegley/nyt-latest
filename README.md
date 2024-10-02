@@ -1,3 +1,7 @@
+**Royals hold the line on strikeout hit-by-pitch**\
+`The play could have changed the game. Instead, the score remained tied. `\
+https://nytimes.com/athletic/5813909/2024/10/02/royals-hold-the-line-against-orioles-via-strikeout-hit-by-pitch/
+
 **A Storm, a Strike and War Abroad Pose Challenges for Harris**\
 `Scenes of striking workers, hurricane devastation in the Southeast and missiles over Israel represent a rare moment of turbulence for Kamala Harris.`\
 https://nytimes.com/2024/10/02/us/politics/harris-israel-iran-helene-port-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5813261/2024/10/02/champions-league-briefing-matchd
 **Transcript: Ezra Klein on the V.P. Debate**\
 `The Oct. 2, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/10/02/podcasts/transcript-ezra-klein-vp-debate.html
-
-**The Jewish New Year Is Far More Bitter Than Sweet in Israel**\
-`On Rosh Hashana, many Israelis longed for a return to normalcy after a year of escalating wars for the country.`\
-https://nytimes.com/2024/10/02/world/middleeast/israel-rosh-hashana.html
 
