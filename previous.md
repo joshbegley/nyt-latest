@@ -1,4 +1,8 @@
-**Ten Hag unfazed by pressure on position at Man Utd**\
+**NFL player poll: Taylor Swift's presence is positive for the league**\
+`Only 4.9 percent of players polled by The Athletic viewed the pop star's interest in the game as a negative.`\
+https://nytimes.com/athletic/5806056/2024/10/02/taylor-swift-nfl-player-poll/
+
+**Ten Hag says Man United are ‘going to make a success from the season'**\
 `Erik ten Hag remains confident that Manchester United will overcome their current struggles and turn their season around, while he has stated that he isn&#8217;t worried about losing his job.`\
 https://nytimes.com/athletic/5811881/2024/10/02/erik-ten-hag-manchester-united-pressure/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/us/hurricane-helene-carolinas-biden.html
 **Donald Trump, Crypto Bro**\
 `The former president’s views of virtual coins have shifted markedly in recognition of the emergence of this sector as a major player in campaign finance.`\
 https://nytimes.com/2024/10/02/opinion/donald-trump-crypto-bro.html
-
-**Attitudes About Nasrallah Appear More Positive in Middle East Since His Death**\
-`Sentiment about the Hezbollah leader shifted after the Israeli strike that killed him, partly reflecting anger toward Israel, according to an analysis.`\
-https://nytimes.com/2024/10/02/us/politics/nasrallah-hezbollah-opinions.html
 

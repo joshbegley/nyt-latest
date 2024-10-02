@@ -1,3 +1,11 @@
+**NFL player poll: Taylor Swift's presence is positive for the league**\
+`Only 4.9 percent of players polled by The Athletic viewed the pop star's interest in the game as a negative.`\
+https://nytimes.com/athletic/5806056/2024/10/02/taylor-swift-nfl-player-poll/
+
+**Ten Hag says Man United are ‘going to make a success from the season'**\
+`Erik ten Hag remains confident that Manchester United will overcome their current struggles and turn their season around, while he has stated that he isn&#8217;t worried about losing his job.`\
+https://nytimes.com/athletic/5811881/2024/10/02/erik-ten-hag-manchester-united-pressure/
+
 **Ten Hag unfazed by pressure on position at Man Utd**\
 `Erik ten Hag remains confident that Manchester United will overcome their current struggles and turn their season around, while he has stated that he isn&#8217;t worried about losing his job.`\
 https://nytimes.com/athletic/5811881/2024/10/02/erik-ten-hag-manchester-united-pressure/
