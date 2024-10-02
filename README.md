@@ -1,3 +1,15 @@
+**Thursday Briefing: Israeli Troops Clashed with Hezbollah**\
+`Plus, what we learned from fashion month.`\
+https://nytimes.com/2024/10/02/briefing/israel-hezbollah-debate-ukraine.html
+
+**Maybe Voters Want a Break From the Endless Combat**\
+`A glimpse at a different approach in North Carolina.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/maybe-voters-want-a-break-from-the-endless-combat
+
+**Ten Hag: Malacia and Shaw to not return until after international break**\
+`Erik ten Hag says he does not expect Manchester United left-backs Luke Shaw and Tyrell Malacia to return before the October international break.`\
+https://nytimes.com/athletic/5813501/2024/10/02/tyrell-malacia-luke-shaw-injury-update/
+
 **The Briefing: Liverpool 2 Bologna 0: More records for Salah as Slot's side extend perfect Champions League start**\
 `We break down the main talking points from Wednesday night's game at Anfield`\
 https://nytimes.com/athletic/5801017/2024/10/02/liverpool-bologna-champions-league-result-analysis/
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/5813510/2024/10/02/blues-bold-predictions-discussio
 **Trump’s Insults to Harris’s Intelligence? Jokes, Lara Trump Claims.**\
 `During rallies and on social media, former President Donald J. Trump has repeatedly disparaged Vice President Kamala Harris.`\
 https://nytimes.com/2024/10/02/us/politics/lara-trump-donald-trump-harris-intellect-attacks.html
-
-**Wild camp notes: Spurgeon looks like old Spurge, Fleury chirps teammates in disguise, more**\
-`After playing just 16 games last year and undergoing multiple surgeries, captain Jared Spurgeon said it's "like your first camp over again."`\
-https://nytimes.com/athletic/5813355/2024/10/02/wild-camp-jared-spurgeon-marc-andre-fleury/
-
-**How a Judge Will Weigh Immunity in Trump’s Jan. 6 Case**\
-`How does the Supreme Court’s presidential immunity ruling apply to former President Donald J. Trump’s election-interference case? Here’s how Judge Tanya S. Chutkan will decide.`\
-https://nytimes.com/interactive/2024/10/02/us/politics/trump-trial-immunity-election-interference.html
-
-**Inside the First Fashion Show at Disneyland Paris**\
-`By Alex Huanfa Cheng`\
-https://nytimes.com/card/2024/10/02/t-magazine/fashion/coperni-fashion-show-disneyland-paris
-
-**Judge Unseals New Evidence in Federal Election Case Against Trump**\
-`Judge Tanya Chutkan made public portions of a filing by prosecutors setting out their argument for why the case should go forward despite the Supreme Court’s ruling on presidential immunity.`\
-https://nytimes.com/2024/10/02/us/politics/trump-jan-6-case-jack-smith-evidence.html
 
