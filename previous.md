@@ -1,3 +1,23 @@
+**Adams Expected to Return to Federal Court on Wednesday**\
+`Eric Adams, the New York City mayor, is expected to appear before Judge Dale E. Ho, and a trial date could be set.`\
+https://nytimes.com/2024/10/02/nyregion/adams-return-federal-court.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/02/crosswords/spelling-bee-forum.html
+
+**Hurricane Helene**\
+`What is your reaction to this image? What does it tell you about the impact of the storm?`\
+https://nytimes.com/2024/10/02/learning/hurricane-helene.html
+
+**Here are the latest developments.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
+
+**Live Updates: Israel Promises to Retaliate After Iranian Missile Attack**\
+`Prime Minister Benjamin Netanyahu said that Iran would “pay for” the barrage, leaving neighboring countries and international observers on alert for Israel’s potential response.`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah
+
 **Padres' Fernando Tatis Jr. makes return to postseason, and wait was worth it**\
 `Tatis hit a home run in the first inning to help the Padres to a 4-0 win over the Braves in Game 1 of their Wild Card Series.`\
 https://nytimes.com/athletic/5811044/2024/10/02/fernando-tatis-jr-padres-braves-wild-card/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5810756/2024/10/02/phil-foden-slovan-bratislava-man
 **Late Night Goes Live After a ‘Dull’ Vice-Presidential Debate**\
 `Stephen Colbert was unenthused by Tuesday’s discourse between Tim Walz and JD Vance.`\
 https://nytimes.com/2024/10/02/arts/television/late-night-vice-presidential-debate.html
-
-**There is a gulf between PSG and Arsenal - Luis Enrique's side need to hit that level**\
-`PSG lost against Arsenal on Tuesday night and were a cut below Mikel Arteta's side`\
-https://nytimes.com/athletic/5811167/2024/10/02/psg-arsenal-analysis/
-
-**This Is Why MAGA Loves JD Vance**\
-`Trump’s running mate is no Mike Pence.`\
-https://nytimes.com/2024/10/02/opinion/vance-trump-maga-walz-vice-presidential-debate.html
-
-**Braves face a must-win game after AJ Smith-Shawver stumbles, hitters flail**\
-`The Braves and Max Fried have no margin for error. It’s win or go home.`\
-https://nytimes.com/athletic/5811685/2024/10/02/braves-padres-mlb-wild-card-game-1/
-
-**Word of the Day: unscathed**\
-`This word has appeared in 180 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/02/learning/word-of-the-day-unscathed.html
-
-**Arsenal have many faces - they allowed them to dominate and intimidate PSG**\
-`Arsenal overcame PSG on Tuesday evening and showed different qualities throughout the game`\
-https://nytimes.com/athletic/5811098/2024/10/02/arsenal-have-many-faces-they-allowed-them-to-dominate-and-intimidate-psg/
 

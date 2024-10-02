@@ -1,3 +1,23 @@
+**Adams Expected to Return to Federal Court on Wednesday**\
+`Eric Adams, the New York City mayor, is expected to appear before Judge Dale E. Ho, and a trial date could be set.`\
+https://nytimes.com/2024/10/02/nyregion/adams-return-federal-court.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/02/crosswords/spelling-bee-forum.html
+
+**Hurricane Helene**\
+`What is your reaction to this image? What does it tell you about the impact of the storm?`\
+https://nytimes.com/2024/10/02/learning/hurricane-helene.html
+
+**Here are the latest developments.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
+
+**Live Updates: Israel Promises to Retaliate After Iranian Missile Attack**\
+`Prime Minister Benjamin Netanyahu said that Iran would “pay for” the barrage, leaving neighboring countries and international observers on alert for Israel’s potential response.`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah
+
 **Padres' Fernando Tatis Jr. makes return to postseason, and wait was worth it**\
 `Tatis hit a home run in the first inning to help the Padres to a 4-0 win over the Braves in Game 1 of their Wild Card Series.`\
 https://nytimes.com/athletic/5811044/2024/10/02/fernando-tatis-jr-padres-braves-wild-card/
