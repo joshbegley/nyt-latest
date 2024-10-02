@@ -1,3 +1,7 @@
+**Stranded in North Carolina’s Mountains, ‘You Can’t Tell That the World’s Going On’**\
+`With no way for cars to get into Bat Cave, N.C., food and water have been dropped off by helicopters or carried over the river on foot or by a raft.`\
+https://nytimes.com/2024/10/02/us/helene-north-carolina-flood-bat-cave.html
+
 **Mayorkas Warns of Funding Shortfall for Rest of Hurricane Season**\
 `The homeland security secretary said FEMA, which is dealing with the destruction from Hurricane Helene, would need more money to respond to another major storm.`\
 https://nytimes.com/2024/10/02/us/politics/fema-funding-shortfall-hurricane-season.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/arts/design/frieze-london-regents-park.html
 **After Missile Attack, Israel May Be Ready to Risk All-Out War With Iran**\
 `Israel seems ready to respond in a much more forceful and public way with Iran after Tehran launched its second massive missile attack on Israel this year, analysts and officials say.`\
 https://nytimes.com/2024/10/02/world/middleeast/iran-missile-attack-israel-war.html
-
-**Tate Modern Gives a Fuller View of the Blue Rider**\
-`Visitors of Frieze Week have an opportunity to see the exhibition that presents the group as an international and eclectic network of artists.`\
-https://nytimes.com/2024/10/02/arts/design/tate-modern-blue-rider.html
 

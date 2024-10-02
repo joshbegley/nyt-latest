@@ -1,3 +1,7 @@
+**Stranded in North Carolina’s Mountains, ‘You Can’t Tell That the World’s Going On’**\
+`With no way for cars to get into Bat Cave, N.C., food and water have been dropped off by helicopters or carried over the river on foot or by a raft.`\
+https://nytimes.com/2024/10/02/us/helene-north-carolina-flood-bat-cave.html
+
 **Mayorkas Warns of Funding Shortfall for Rest of Hurricane Season**\
 `The homeland security secretary said FEMA, which is dealing with the destruction from Hurricane Helene, would need more money to respond to another major storm.`\
 https://nytimes.com/2024/10/02/us/politics/fema-funding-shortfall-hurricane-season.html
