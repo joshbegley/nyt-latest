@@ -1,3 +1,15 @@
+**Walz Says His Son Witnessed a Shooting at a Community Center**\
+`The story by Gov. Tim Walz of Minnesota drew sympathy from his Republican opponent, Senator JD Vance of Ohio.`\
+https://nytimes.com/video/us/politics/100000009735828/tim-walz-son-shooting-witness.html
+
+**At a Wisconsin watch party, the debate leaves students ambivalent.**\
+`Some students at the University of Wisconsin-Parkside seemed underwhelmed. One noted, ‘This is long, huh?’`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/at-a-wisconsin-watch-party-the-debate-leaves-students-ambivalent
+
+**Brewers pull Freddy Peralta early, then watch as bullpen plan goes up in smoke**\
+`"I don't understand the reason I was taken out of the game," the pitcher said of Pat Murphy's decision as the Brewers now face elimination.`\
+https://nytimes.com/athletic/5811569/2024/10/01/brewers-bullpen-freddy-peralta-pat-murphy/
+
 **Gov. Walz Criticizes Trump’s Record on Roe v. Wade**\
 `Gov. Tim Walz attacked former President Donald J. Trump’s record on abortion — and then turned to the stories of women living with the consequences of abortion bans.`\
 https://nytimes.com/video/us/elections/100000009735817/gov-walz-criticizes-trumps-record-on-roe-v-wade.html

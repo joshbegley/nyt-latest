@@ -14,7 +14,7 @@ https://nytimes.com/video/us/elections/100000009735817/gov-walz-criticizes-trump
 `"I don't understand the reason I was taken out of the game," the pitcher said of Pat Murphy's decision as the Brewers now face elimination.`\
 https://nytimes.com/athletic/5811569/2024/10/01/brewers-bullpen-freddy-peralta-pat-murphy/
 
-**At a Georgia watch party, few see the debate as a tiebreaker.**\
+**At a Georgia watch party, few students see the debate as a tiebreaker.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/at-a-georgia-watch-party-few-see-the-debate-as-a-tiebreaker
 
