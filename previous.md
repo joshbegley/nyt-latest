@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5793821/2024/10/02/barcelona-transfers-szczesny-sig
 https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/back-from-gaza-he-says-he-helped-stop-a-gunman-in-tel-aviv
 
 **Sarah Snook to Make Broadway Debut in One-Woman ‘Dorian Gray’**\
-`The “Succession” actress plays all 26 characters in a London stage production of the Oscar Wilde novel.`\
+`The “Succession” actress will play all 26 characters in a stage production of the Oscar Wilde novel.`\
 https://nytimes.com/2024/10/02/theater/sarah-snook-dorian-gray-broadway.html
 

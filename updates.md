@@ -1,3 +1,7 @@
+**Sarah Snook to Make Broadway Debut in One-Woman ‘Dorian Gray’**\
+`The “Succession” actress will play all 26 characters in a stage production of the Oscar Wilde novel.`\
+https://nytimes.com/2024/10/02/theater/sarah-snook-dorian-gray-broadway.html
+
 **Mirtle: Why the 2024-25 NHL season could be the year of the comeback**\
 `Can these NHL players turn their careers around this season? Here are five inspiring stories from around the league.`\
 https://nytimes.com/athletic/5811664/2024/10/02/nhl-2024-25-season-players-comeback/
