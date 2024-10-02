@@ -1,3 +1,7 @@
+**JD Vance’s Audition to Lead the G.O.P. Is Working**\
+`He is a perfect solution to Trump’s self-inflicted political frailties.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/jd-vance-debate-replace-trump
+
 **A Survivor of Clerical Sex Abuse Tells His Harrowing Tale at St. Peter’s**\
 `As a child, Laurence Gien was abused by a priest in South Africa. Decades later, he became the first survivor to recount his pain at the Basilica in front of Pope Francis and dozens of cardinals and bishops.`\
 https://nytimes.com/2024/10/02/world/europe/clerical-sex-abuse-basilica.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/us/politics/vance-obamacare-trump-aca.html
 **Sleeping Through Hurricane Helene**\
 `Extreme climate was supposed to shock us into action. What happened?`\
 https://nytimes.com/2024/10/02/opinion/hurricane-helene-climate-change.html
-
-**Tim Walz as a Harris Ally: Folksy, Factually Sloppy and Far Less Visible**\
-`The Minnesota governor has brought his charm to the campaign trail, but his debate was uneven and he has so far been scarcely seen on national television. His team says that may be changing.`\
-https://nytimes.com/2024/10/02/us/politics/walz-debate-campaign.html
 

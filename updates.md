@@ -1,3 +1,7 @@
+**JD Vance’s Audition to Lead the G.O.P. Is Working**\
+`He is a perfect solution to Trump’s self-inflicted political frailties.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/jd-vance-debate-replace-trump
+
 **A Survivor of Clerical Sex Abuse Tells His Harrowing Tale at St. Peter’s**\
 `As a child, Laurence Gien was abused by a priest in South Africa. Decades later, he became the first survivor to recount his pain at the Basilica in front of Pope Francis and dozens of cardinals and bishops.`\
 https://nytimes.com/2024/10/02/world/europe/clerical-sex-abuse-basilica.html
