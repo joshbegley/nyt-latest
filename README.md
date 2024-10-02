@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 2 Bologna 0: More records for Salah as Slot's side extend perfect Champions League start**\
+`We break down the main talking points from Wednesday night's game at Anfield`\
+https://nytimes.com/athletic/5801017/2024/10/02/liverpool-bologna-champions-league-result-analysis/
+
 **The V.P. Debate Might Boost Vance and Walz, but It Probably Won’t Shift the Polls**\
 `Voters may view JD Vance and Tim Walz more positively after Tuesday’s debate. But it’s unlikely to have much impact on their choices for president.`\
 https://nytimes.com/2024/10/02/us/elections/vice-presidential-debate-polls-vance-walz.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2024/10/02/t-magazine/fashion/coperni-fashion-show-disn
 **Judge Unseals New Evidence in Federal Election Case Against Trump**\
 `Judge Tanya Chutkan made public portions of a filing by prosecutors setting out their argument for why the case should go forward despite the Supreme Court’s ruling on presidential immunity.`\
 https://nytimes.com/2024/10/02/us/politics/trump-jan-6-case-jack-smith-evidence.html
-
-**Beyoncé Released a Song and Levi’s Saw Its Moment**\
-`The denim brand was looking for ways to sell more apparel to women, and the megastar gave them a natural spokeswoman thanks to a song on “Cowboy Carter.”`\
-https://nytimes.com/2024/10/02/style/beyonce-levis-women.html
 
