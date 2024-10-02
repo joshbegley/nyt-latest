@@ -1,3 +1,7 @@
+**New-look Lynx respond after Game 1 loss to even series with the Sun**\
+`A feisty Connecticut won Game 1 and tried to impose its will in Game 2. But Minnesota wasn't having it.`\
+https://nytimes.com/athletic/5811345/2024/10/02/wnba-lynx-sun-playoffs/
+
 **Stevenage 1-0 Wrexham: Rotated visitors avoid a postponement, but not a defeat**\
 `Wrexham held on to second place in League One despite a disappointing 1-0 defeat on their first EFL visit to Stevenage`\
 https://nytimes.com/athletic/5806450/2024/10/02/stevenage-1-0-wrexham/
@@ -19,7 +23,7 @@ https://nytimes.com/2024/10/02/learning/hurricane-helene.html
 https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
 
 **Live Updates: Israel Promises to Retaliate After Iranian Missile Attack**\
-`The strike heightened fears of drawing both sides into a direct conflict. Israel’s military said it was sending more troops to southern Lebanon.`\
+`The strike heightened fears that both sides would be drawn into direct conflict. Israel’s military said it was sending more troops to southern Lebanon.`\
 https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah
 
 **Padres' Fernando Tatis Jr. makes return to postseason, and wait was worth it**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5811691/2024/10/02/frenkie-de-jong-barcelona-champi
 **Newcastle takeaways: Osula needs patience, St. James' needs expanding and cup dream still alive**\
 `Newcastle stumbled as they overcame AFC Wimbledon in the Carabao Cup on Tuesday night`\
 https://nytimes.com/athletic/5809856/2024/10/02/newcastle-united-wimbledon-analysis/
-
-**Phil Foden 'back at it' after disjointed start to the season**\
-`There will be several City players, Foden among them, who will hope the game in Slovakia can ignite their campaign`\
-https://nytimes.com/athletic/5810756/2024/10/02/phil-foden-slovan-bratislava-man-city/
 
