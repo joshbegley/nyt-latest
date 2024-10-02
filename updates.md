@@ -1,3 +1,15 @@
+**“If we open up American energy, you will get immediate pricing relief for American citizens not, by the way, just in housing but in a whole host of economic goods too.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-we-open-up-american-energy-you-will-get-immediate-pricing-relief-for-american-citizens-not-just-in-housing-but-a-whole-host-o
+
+**“Donald Trump could have destroyed the program. Instead, he worked in a bipartisan way to ensure that Americans have access to affordable care.”**\
+`By Linda Qiu`\
+https://nytimes.com/2024/10/01/us/politics/donald-trump-could-have-destroyed-the-program-instead-he-worked-in-a-bipartisan-way-to-ensure-that-americans-have-access-to-affo.html
+
+**“The one thing that Joe Biden did is he continued some of the Trump tariffs that protected American manufacturing jobs.”**\
+`By Ana Swanson`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/the-one-thing-that-joe-biden-did-is-he-continued-some-of-the-trump-tariffs-that-protected-american-manufacturing-jobs
+
 **“25 million illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/25-million-illegal-aliens-competing-with-americans-for-scarce-homes-is-one-of-the-most-significant-drivers-of-home-prices-in-the
