@@ -1,3 +1,11 @@
+**To Build a Nuclear Bomb, Iran Would Need Much More Than Weeks**\
+`Nuclear experts see Tehran as facing up to a year of hard work to master the knotty basics of building a deliverable atom bomb.`\
+https://nytimes.com/2024/10/02/science/iran-nuclear-weapon.html
+
+**Israeli strikes, including on schools and an orphanage, kill scores of people in Gaza.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/israel-strikes-gaza-schools-orphanage
+
 **Chargers' James focused on playing 'clean football' after suspension**\
 `The NFL suspended James for the Chargers’ loss to the Chiefs in Week 4 due to “repeated violations” of the player health and safety rules.`\
 https://nytimes.com/athletic/5813883/2024/10/02/chargers-derwin-james-suspension/
