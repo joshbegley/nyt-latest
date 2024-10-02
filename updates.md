@@ -1,3 +1,11 @@
+**The V.P. Debate Might Boost Vance and Walz, but It Probably Won’t Shift the Polls**\
+`Voters may view JD Vance and Tim Walz more positively after Tuesday’s debate. But it’s unlikely to have much impact on their choices for president.`\
+https://nytimes.com/2024/10/02/us/elections/vice-presidential-debate-polls-vance-walz.html
+
+**What to Know About the Israel-Hezbollah War**\
+`An Israeli ground operation targeting Hezbollah forces in Lebanon recalls previous wars and raises fears of worse to come.`\
+https://nytimes.com/2024/10/02/world/middleeast/israel-hezbollah-lebanon-war-history.html
+
 **With No Phones or Wi-Fi, North Carolina Revives the Town Meeting**\
 `Modern technology has been slow to return to mountain towns after Helene. Whiteboards and gatherings are helping residents find missing people and much-needed supplies.`\
 https://nytimes.com/2024/10/02/us/hurricane-helene-north-carolina.html
