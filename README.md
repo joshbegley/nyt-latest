@@ -1,3 +1,7 @@
+**Braves face a must-win game after AJ Smith-Shawver stumbles, hitters flail**\
+`The Braves and Max Fried have no margin for error. It’s win or go home.`\
+https://nytimes.com/athletic/5811685/2024/10/02/braves-padres-mlb-wild-card-game-1/
+
 **Word of the Day: unscathed**\
 `This word has appeared in 180 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/02/learning/word-of-the-day-unscathed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/us/politics/vice-presidential-debate-voter-reacti
 **Who Won the Debate? A Crisp Vance Fends Off Walz**\
 `The vice-presidential candidates largely avoided personal attacks, with JD Vance showing a knack for revising history while Tim Walz appeared to battle nerves.`\
 https://nytimes.com/2024/10/02/us/politics/who-won-debate-vance-walz.html
-
-**The Moment When Vance Dodged a Question but Said Plenty**\
-`JD Vance sailed fairly smoothly through some 90 minutes of Tuesday’s debate with Tim Walz. Then the subject turned to the Jan. 6, 2021, attack on the Capitol.`\
-https://nytimes.com/2024/10/02/us/politics/vance-jan-6-debate.html
 
