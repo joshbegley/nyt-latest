@@ -1,3 +1,7 @@
+**Phil Foden 'back at it' after disjointed start to the season**\
+`There will be several City players, Foden among them, who will hope the game in Slovakia can ignite their campaign`\
+https://nytimes.com/athletic/5810756/2024/10/02/phil-foden-slovan-bratislava-man-city/
+
 **Late Night Goes Live After a ‘Dull’ Vice-Presidential Debate**\
 `Stephen Colbert was unenthused by Tuesday’s discourse between Tim Walz and JD Vance.`\
 https://nytimes.com/2024/10/02/arts/television/late-night-vice-presidential-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5809559/2024/10/02/ao-tanaka-leeds-united-midfield/
 **Jayden Struble further stakes his claim to a spot in the Canadiens’ opening night lineup**\
 `In the battle for a spot on the Canadiens' third defence pairing, Struble has separated himself from Arber Xhekaj.  `\
 https://nytimes.com/athletic/5811677/2024/10/02/jayden-struble-canadiens-opening-night-lineup/
-
-**Las Vegas Aces need historic rally to avoid WNBA playoff elimination**\
-`The Aces are aiming for a three-peat. But first they have to overcome a 0-2 semifinals hole.`\
-https://nytimes.com/athletic/5811676/2024/10/02/las-vegas-aces-near-elimination-wnba-semifinals/
 

@@ -1,3 +1,7 @@
+**Phil Foden 'back at it' after disjointed start to the season**\
+`There will be several City players, Foden among them, who will hope the game in Slovakia can ignite their campaign`\
+https://nytimes.com/athletic/5810756/2024/10/02/phil-foden-slovan-bratislava-man-city/
+
 **Late Night Goes Live After a ‘Dull’ Vice-Presidential Debate**\
 `Stephen Colbert was unenthused by Tuesday’s discourse between Tim Walz and JD Vance.`\
 https://nytimes.com/2024/10/02/arts/television/late-night-vice-presidential-debate.html
