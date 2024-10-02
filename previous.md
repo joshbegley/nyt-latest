@@ -1,3 +1,35 @@
+**Senegal part ways with manager Cisse after nine years**\
+`Aliou Cisse has departed his position as Senegal manager after not having his contract renewed by the Senegal Football Federation (FSF).`\
+https://nytimes.com/athletic/5812358/2024/10/02/senegal-sack-aliou-cisse/
+
+**What I'm seeing: Blackhawks lineup projection, Chicago Sports Network launch**\
+`With four preseason games down and two to go, here are my observations from being around the Blackhawks.`\
+https://nytimes.com/athletic/5812052/2024/10/02/blackhawks-lineup-projection-chsn-channel/
+
+**What United can expect from Porto: Intense press and direct attacks**\
+`Porto may be not the powerhouse of 20 years ago, but according to Opta, they are the favourites to win the Europa League`\
+https://nytimes.com/athletic/5812208/2024/10/02/manchester-united-porto-preview/
+
+**After a Decade, Scientists Unveil Fly Brain in Stunning Detail**\
+`Scientists have mapped out how 140,000 neurons are wired in the brain of the fruit fly, Drosophila melanogaster.`\
+https://nytimes.com/2024/10/02/science/fruit-fly-brain-mapped.html
+
+**Hurricane Helene Deaths Will Continue for Years, Study Suggests**\
+`Research on hundreds of tropical storms finds that mortality keeps rising for more than a decade afterward, for reasons you might not expect.`\
+https://nytimes.com/2024/10/02/business/economy/hurricane-helene-deaths-climate.html
+
+**How to Stop Straining Your Eyes**\
+`That achy, tired feeling comes from more than just screen time. Experts share tips for easing the discomfort.`\
+https://nytimes.com/2024/10/02/well/mind/eye-strain-symptoms-treatment.html
+
+**Is It Safe to Exercise When You’re Sick?**\
+`If you have a cold, Covid or the flu, here’s how to determine whether it’s wise to work out.`\
+https://nytimes.com/2024/10/02/well/move/exercise-sick-illness.html
+
+**Everton Women suffer second ACL injury of season as Gabarro sidelined**\
+`Everton Women have confirmed forward Inma Gabarro sustained an anterior cruciate ligament (ACL) injury against Manchester United on Sunday.`\
+https://nytimes.com/athletic/5812502/2024/10/02/inma-gabarro-everton-acl/
+
 **Photos show how Iran’s missiles, though mostly intercepted, still caused damage.**\
 `A school was hit in southern Israel, windows were blown out of a building in Tel Aviv and a Palestinian man was killed in the West Bank.`\
 https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/photos-show-how-irans-missiles-though-mostly-intercepted-still-caused-damage
@@ -5,36 +37,4 @@ https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/photos-s
 **Canucks notebook: Cuts, roster battles, new-look lines and salary-cap options**\
 `The Canucks recently provided an unusual number of answers about which players will be on the team to open the 2024-25 season.`\
 https://nytimes.com/athletic/5811719/2024/10/02/canucks-notebook-cuts-roster-battles-new-look-lines-and-salary-cap-options/
-
-**Buster Posey's winning history alone isn't going to fix the Giants**\
-`Posey and other talked about a culture change, but ultimately the biggest need will be raising the talent level on the Giants roster.`\
-https://nytimes.com/athletic/5810258/2024/10/02/sf-giants-buster-posey-roster-needs/
-
-**Did Apple Just Kill Social Apps?**\
-`Some app makers worry that a subtle change to the iPhone’s contact-sharing permissions could make it hard for them to get the fast growth they need to compete.`\
-https://nytimes.com/2024/10/02/technology/apple-social-apps-contacts-change.html
-
-**Sabres depth chart: How the new fourth line was built to change Buffalo's identity**\
-`In the preseason, Beck Malenstyn, Sam Lafferty and Nicolas Aube-Kubel have been the Sabres’ fastest and most physical trio.`\
-https://nytimes.com/athletic/5812118/2024/10/02/buffalo-sabres-depth-chart-2024/
-
-**Inside a Pro-Harris Ad Telling Hispanic Voters She’s Friendlier Than Trump**\
-`An ad from two Democratic groups skates over Kamala Harris’s tough recent stance on border security and instead focuses on her more immigration-friendly plans.`\
-https://nytimes.com/2024/10/02/us/politics/harris-ad-hispanic-voters-trump.html
-
-**Israel Confirms 1st Military Death in Lebanon Invasion**\
-`The military identified the soldier as Capt. Eitan Itzhak Oster, 22, from central Israel, but did not specify where he was killed.`\
-https://nytimes.com/2024/10/02/world/middleeast/israel-soldier-killed-lebanon-invasion.html
-
-**Van Hecke set to return after October international break**\
-`Brighton and Hove Albion defender Jan Paul van Hecke is expected to return from a groin injury after the October international break.`\
-https://nytimes.com/athletic/5812025/2024/10/02/brighton-van-hecke-injury/
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2024/10/02/opinion/thepoint
-
-**Trump Wants to Jail His Political Adversaries. Here’s How He Could Do It**\
-`How might a politically motivated prosecution actually unfold? These steps show exactly how Trump could make his threats real — all while staying within the constitutional limits on presidential power.`\
-https://nytimes.com/interactive/2024/10/02/magazine/trump-politics-justice-department.html
 
