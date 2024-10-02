@@ -1,3 +1,7 @@
+**Arsenal have many faces - they allowed them to dominate and intimidate PSG**\
+`Arsenal overcame PSG on Tuesday evening and showed different qualities throughout the game`\
+https://nytimes.com/athletic/5811098/2024/10/02/arsenal-have-many-faces-they-allowed-them-to-dominate-and-intimidate-psg/
+
 **Best, Worst and Most Unlikely Lines of the Vice-Presidential Debate**\
 `JD Vance gave a shout-out to his wife. Tim Walz sang the praises of Minnesota. Offstage, Donald Trump got distracted.`\
 https://nytimes.com/2024/10/02/us/elections/vance-walz-debate-best-lines.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/us/politics/vance-jan-6-debate.html
 **Taiwan Closes Schools and Workplaces as Typhoon Krathon Nears**\
 `The storm has already injured 46 people and forced thousands of evacuations, the authorities said, warning that torrential rain could cause landslides and flooding.`\
 https://nytimes.com/2024/10/02/world/taiwan-typhoon-krathon.html
-
-**A Wider War in the Middle East, From Hamas to Hezbollah and Now Iran**\
-`The main questions now are how much the conflict will escalate and whether the United States will get more directly involved in the defense of Israel.`\
-https://nytimes.com/2024/10/02/us/politics/israel-iran.html
 

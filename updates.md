@@ -1,3 +1,7 @@
+**Arsenal have many faces - they allowed them to dominate and intimidate PSG**\
+`Arsenal overcame PSG on Tuesday evening and showed different qualities throughout the game`\
+https://nytimes.com/athletic/5811098/2024/10/02/arsenal-have-many-faces-they-allowed-them-to-dominate-and-intimidate-psg/
+
 **The Moment When Vance Dodged a Question but Said Plenty**\
 `JD Vance sailed fairly smoothly through some 90 minutes of Tuesday’s debate with Tim Walz. Then the subject turned to the Jan. 6, 2021, attack on the Capitol.`\
 https://nytimes.com/2024/10/02/us/politics/vance-jan-6-debate.html
