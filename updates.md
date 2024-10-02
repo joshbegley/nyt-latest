@@ -1,3 +1,7 @@
+**Why the Conflict Between Iran and Israel Has Raised Oil Prices Only Modestly**\
+`The fighting is increasing fears about oil supplies, but those worries are offset by greater global production and slowing demand in China.`\
+https://nytimes.com/2024/10/02/business/iran-israel-oil-prices.html
+
 **Isak out of Sweden squad for October Nations League games**\
 `Newcastle United striker Alexander Isak has been left out of Sweden&#8217;s squad for their Nations League fixtures later this month.`\
 https://nytimes.com/athletic/5811985/2024/10/02/alexander-isak-injury-newcastle-sweden/
