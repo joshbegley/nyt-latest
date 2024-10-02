@@ -1,3 +1,7 @@
+**Padres' Fernando Tatis Jr. makes return to postseason, and wait was worth it**\
+`Tatis hit a home run in the first inning to help the Padres to a 4-0 win over the Braves in Game 1 of their Wild Card Series.`\
+https://nytimes.com/athletic/5811044/2024/10/02/fernando-tatis-jr-padres-braves-wild-card/
+
 **Frenkie de Jong is back for Barcelona. It's one of those good problems to have**\
 `Barcelona's 5-0 home victory over Swiss side Young Boys in the Champions League saw the Dutchman finally return from injury `\
 https://nytimes.com/athletic/5811691/2024/10/02/frenkie-de-jong-barcelona-champions-league-return-young-boys/
