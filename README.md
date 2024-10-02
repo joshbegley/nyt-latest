@@ -1,3 +1,11 @@
+**Walz Misspeaks During Vice-Presidential Debate**\
+`Gov. Tim Walz mixed up Iran and Israel, and said he became “friends with school shooters,” when talking about empathizing with Sandy Hook parents.`\
+https://nytimes.com/video/us/elections/100000009735837/walz-misspeaks-during-vice-presidential-debate.html
+
+**Yohe's 10 observations: Penguins prospect Harrison Brunicke looks like the real deal**\
+`The 18-year-old second-round draft pick in 2024 continued his outstanding training camp with the Penguins.`\
+https://nytimes.com/athletic/5811043/2024/10/01/penguins-prospect-harrison-brunicke/
+
 **Walz Says His Son Witnessed a Shooting at a Community Center**\
 `The story by Gov. Tim Walz of Minnesota drew sympathy from his Republican opponent, Senator JD Vance of Ohio.`\
 https://nytimes.com/video/us/politics/100000009735828/tim-walz-son-shooting-witness.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/this-epidemic-of-vio
 **Debate Fact Check: Vance and Walz on the Economy, Abortion and Housing**\
 `Gov. Tim Walz was pressed on his time in China and Senator JD Vance on his assertion that there was a peaceful transfer of power in 2021 in a vice-presidential debate largely focused on policy.`\
 https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance
-
-**“I never supported a national ban. I did when I was running for Senate talk about a minimum national standard.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/i-never-supported-a-national-ban-i-did-when-i-was-running-for-senate-talk-about-a-minimum-national-standard
-
-**Walz Failed to Expose Vance’s Debate Masquerade**\
-`He missed multiple opportunities to demonstrate how Trump and Vance are unfit for office.`\
-https://nytimes.com/2024/09/25/opinion/walz-vance-debate-loser.html
 
