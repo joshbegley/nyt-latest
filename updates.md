@@ -1,3 +1,7 @@
+**A ‘Veep’ Star Vibe Checks the Vance-Walz Showdown**\
+`“This is not a date, it’s a debate!”`\
+https://nytimes.com/2024/10/02/opinion/vance-walz-debate-vibe-check-tony-hale.html
+
 **What Starts Conversation at a Brooklyn Girl Dinner?**\
 `Inside an intimate gathering with New York’s creative crust to celebrate a colorful shoe.`\
 https://nytimes.com/2024/10/02/style/margaux-matilda-goad-ballet-flat-collab-party.html
