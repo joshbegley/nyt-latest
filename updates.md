@@ -1,3 +1,7 @@
+**Mayorkas Warns of Funding Shortfall for Rest of Hurricane Season**\
+`The homeland security secretary said FEMA, which is dealing with the destruction from Hurricane Helene, would need more money to respond to another major storm.`\
+https://nytimes.com/2024/10/02/us/politics/fema-funding-shortfall-hurricane-season.html
+
 **In Beirut’s Once-Bustling Suburbs, Smoking Rubble and Eerie Quiet**\
 `Airstrikes targeting members of Hezbollah have brought the Dahiya neighborhoods south of Beirut to a standstill, its residents fleeing and businesses shuttering.`\
 https://nytimes.com/2024/10/02/world/middleeast/hezbollah-beirut-dahiya.html
