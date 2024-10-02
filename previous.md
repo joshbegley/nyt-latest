@@ -1,3 +1,15 @@
+**Civility and Then a Clash Over Jan. 6: Seven Takeaways From the Debate**\
+`Senator JD Vance of Ohio and Gov. Tim Walz of Minnesota sparred over immigration, abortion and foreign policy — and then on Donald Trump’s 2020 election loss.`\
+https://nytimes.com/2024/10/02/us/politics/vp-debate-takeaways-vance-walz.html
+
+**The Value of a Boring Suit**\
+`A night of few fireworks between the candidates was also a night of little sartorial flair. And that was the goal.`\
+https://nytimes.com/2024/10/02/style/walz-vance-debate-style.html
+
+**Konate has his mojo back at Liverpool - this is how**\
+`French defender has benefited from Arne Slot's tactics and Van Dijk's pep talks and looks better than ever`\
+https://nytimes.com/athletic/5806034/2024/10/02/ibrahima-konate-liverpool-arne-slot/
+
 **Kudus and Lopetegui had words - the tension at West Ham is palpable**\
 `Mohammed Kudus was not happy at being replaced at Brentford and told Julen Lopetegui - the head coach needs him back to his best. Quickly`\
 https://nytimes.com/athletic/5809322/2024/10/02/mohammed-kudus-julen-lopetegui-west-ham/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5809062/2024/10/02/leicester-defence-analysed/
 **Real Madrid got it wrong with Leny Yoro. They're still feeling the effects**\
 `Madrid missed out on Yoro's signing this summer. The Champions League holders are missing him in defence`\
 https://nytimes.com/athletic/5806182/2024/10/02/real-madrid-leny-yoro-transfers-lille-champions-league/
-
-**Understanding Aston Villa's Jhon Duran - 'Nothing he was given was free'**\
-`Jhon Duran has delighted and dismayed Villa fans since his arrival from MLS — Unai Emery is determined he makes the most of his potential`\
-https://nytimes.com/athletic/5805530/2024/10/02/jhon-duran-aston-villa-colombia-unai-emery/
-
-**In a year of cost-cutting, can Manchester United afford to move on from Erik ten Hag?**\
-`Manchester United flirted with the Premier League's PSR limits and are seeking to save "£40million to £45million”`\
-https://nytimes.com/athletic/5809658/2024/10/02/erik-ten-hag-sacking-cost/
-
-**Which clubs charge most for Champions League tickets?**\
-`Aston Villa sparked controversy with their ticket pricing last month but how does it compare across Europe?`\
-https://nytimes.com/athletic/5788915/2024/10/02/champions-league-ticket-price-uefa/
 

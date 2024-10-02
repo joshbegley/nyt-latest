@@ -1,3 +1,15 @@
+**Civility and Then a Clash Over Jan. 6: Seven Takeaways From the Debate**\
+`Senator JD Vance of Ohio and Gov. Tim Walz of Minnesota sparred over immigration, abortion and foreign policy — and then on Donald Trump’s 2020 election loss.`\
+https://nytimes.com/2024/10/02/us/politics/vp-debate-takeaways-vance-walz.html
+
+**The Value of a Boring Suit**\
+`A night of few fireworks between the candidates was also a night of little sartorial flair. And that was the goal.`\
+https://nytimes.com/2024/10/02/style/walz-vance-debate-style.html
+
+**Konate has his mojo back at Liverpool - this is how**\
+`French defender has benefited from Arne Slot's tactics and Van Dijk's pep talks and looks better than ever`\
+https://nytimes.com/athletic/5806034/2024/10/02/ibrahima-konate-liverpool-arne-slot/
+
 **Kudus and Lopetegui had words - the tension at West Ham is palpable**\
 `Mohammed Kudus was not happy at being replaced at Brentford and told Julen Lopetegui - the head coach needs him back to his best. Quickly`\
 https://nytimes.com/athletic/5809322/2024/10/02/mohammed-kudus-julen-lopetegui-west-ham/
