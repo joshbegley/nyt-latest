@@ -1,3 +1,7 @@
+**Trump’s Insults to Harris’s Intelligence? Jokes, Lara Trump Claims.**\
+`During rallies and on social media, former President Donald J. Trump has repeatedly disparaged Vice President Kamala Harris.`\
+https://nytimes.com/2024/10/02/us/politics/lara-trump-donald-trump-harris-intellect-attacks.html
+
 **Wild camp notes: Spurgeon looks like old Spurge, Fleury chirps teammates in disguise, more**\
 `After playing just 16 games last year and undergoing multiple surgeries, captain Jared Spurgeon said it's "like your first camp over again."`\
 https://nytimes.com/athletic/5813355/2024/10/02/wild-camp-jared-spurgeon-marc-andre-fleury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/world/middleeast/hezbollah-beirut-dahiya.html
 **Officials Cast Doubt on a Dementia Drug, but Human Trials Continue**\
 `The S.E.C. alleged shortcomings in research said to support the drug, and its developer agreed to a $40 million settlement. Some experts wonder why clinical trials have not been stopped.`\
 https://nytimes.com/2024/10/02/health/alzheimers-simufilam-cassava-sciences.html
-
-**JD Vance’s Audition to Lead the G.O.P. Is Working**\
-`He is a perfect solution to Trump’s self-inflicted political frailties.`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/jd-vance-debate-replace-trump
 
