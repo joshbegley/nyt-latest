@@ -1,3 +1,7 @@
+**After Helene, Lawyers Gear Up for Battles Over Who Should Pay**\
+`As storms intensify so do the legal clashes with insurers, aid agencies and others over compensation, rebuilding and even fraud scams.`\
+https://nytimes.com/2024/10/02/climate/legal-aid-lawyers-helene-storm.html
+
 **Porto's Bruno offers understanding to Ten Hag: 'Everyone' is under scrutiny**\
 `Porto FC head coach Vitor Bruno has invited Erik ten Hag to share a glass of wine after Thursday&#8217;s Europa League meeting as he offered his understanding to a fellow head coach under scrutiny.`\
 https://nytimes.com/athletic/5813006/2024/10/02/vitor-bruno-erik-ten-hag/
