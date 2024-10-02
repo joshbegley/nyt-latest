@@ -1,3 +1,7 @@
+**Israel Confirms 1st Military Death in Lebanon Invasion**\
+`The military identified the soldier as Capt. Eitan Itzhak Oster, 22, from central Israel, but did not specify where he was killed.`\
+https://nytimes.com/2024/10/02/world/middleeast/israel-soldier-killed-lebanon-invasion.html
+
 **Van Hecke set to return after October international break**\
 `Brighton and Hove Albion defender Jan Paul van Hecke is expected to return from a groin injury after the October international break.`\
 https://nytimes.com/athletic/5812025/2024/10/02/brighton-van-hecke-injury/

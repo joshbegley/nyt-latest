@@ -1,3 +1,7 @@
+**Israel Confirms 1st Military Death in Lebanon Invasion**\
+`The military identified the soldier as Capt. Eitan Itzhak Oster, 22, from central Israel, but did not specify where he was killed.`\
+https://nytimes.com/2024/10/02/world/middleeast/israel-soldier-killed-lebanon-invasion.html
+
 **Van Hecke set to return after October international break**\
 `Brighton and Hove Albion defender Jan Paul van Hecke is expected to return from a groin injury after the October international break.`\
 https://nytimes.com/athletic/5812025/2024/10/02/brighton-van-hecke-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/business/tesla-electric-vehicle-sales.html
 **How Arsenal's intelligent occupation of space was the key to victory against PSG**\
 `Their rotations and combinations aren't particularly novel but Arsenal's ability to use them against different setups is hugely impressive`\
 https://nytimes.com/athletic/5811755/2024/10/02/arsenal-intelligent-movement-tactics-arteta/
-
-**The Misogyny of Gen Z Men Has Been Overstated**\
-`The majority of them support equality, even if they don’t call themselves feminists.`\
-https://nytimes.com/2024/10/02/opinion/gen-z-misogyny.html
 
