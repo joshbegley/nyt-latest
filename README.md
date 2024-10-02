@@ -1,3 +1,7 @@
+**Man Who Set Fire to Cabin in the Grand Canyon Gets 20 Months in Prison**\
+`The 21-year-old was arrested in May, shortly after he set fire to his former girlfriend’s residence in the park, the authorities said.`\
+https://nytimes.com/2024/10/02/us/grand-canyon-cabin-arson-sentence.html
+
 **The V.P. Debate Came Down to One Moment**\
 `JD Vance’s response to a question about challenging this year’s election results was telling.`\
 https://nytimes.com/2024/10/02/opinion/ezra-klein-podcast-vp-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/insider/nyt-election-coverage-questions.html
 **Atlanta Dream fire Tanisha Wright after 3 years, 15-25 season**\
 `Wright had just finished the second season of a five-year extension signed in Dec. 2022.`\
 https://nytimes.com/athletic/5813586/2024/10/02/dream-fire-tanisha-wright/
-
-**What I’m seeing from Bruins as opener approaches: Center growth, thick defense and a pending deal**\
-`How are Elias Lindholm, Nikita Zadorov and Tyler Johnson fitting in with the Bruins? How are the lines shaping up? Here's the latest.`\
-https://nytimes.com/athletic/5813588/2024/10/02/bruins-camp-lindholm-zadorov-johnson/
 
