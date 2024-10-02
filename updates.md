@@ -1,3 +1,11 @@
+**Frenkie de Jong is back for Barcelona. It's one of those good problems to have**\
+`Barcelona's 5-0 home victory over Swiss side Young Boys in the Champions League saw the Dutchman finally return from injury `\
+https://nytimes.com/athletic/5811691/2024/10/02/frenkie-de-jong-barcelona-champions-league-return-young-boys/
+
+**Newcastle takeaways: Osula needs patience, St. James' needs expanding and cup dream still alive**\
+`Newcastle stumbled as they overcame AFC Wimbledon in the Carabao Cup on Tuesday night`\
+https://nytimes.com/athletic/5809856/2024/10/02/newcastle-united-wimbledon-analysis/
+
 **Phil Foden 'back at it' after disjointed start to the season**\
 `There will be several City players, Foden among them, who will hope the game in Slovakia can ignite their campaign`\
 https://nytimes.com/athletic/5810756/2024/10/02/phil-foden-slovan-bratislava-man-city/

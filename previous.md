@@ -1,3 +1,11 @@
+**Frenkie de Jong is back for Barcelona. It's one of those good problems to have**\
+`Barcelona's 5-0 home victory over Swiss side Young Boys in the Champions League saw the Dutchman finally return from injury `\
+https://nytimes.com/athletic/5811691/2024/10/02/frenkie-de-jong-barcelona-champions-league-return-young-boys/
+
+**Newcastle takeaways: Osula needs patience, St. James' needs expanding and cup dream still alive**\
+`Newcastle stumbled as they overcame AFC Wimbledon in the Carabao Cup on Tuesday night`\
+https://nytimes.com/athletic/5809856/2024/10/02/newcastle-united-wimbledon-analysis/
+
 **Phil Foden 'back at it' after disjointed start to the season**\
 `There will be several City players, Foden among them, who will hope the game in Slovakia can ignite their campaign`\
 https://nytimes.com/athletic/5810756/2024/10/02/phil-foden-slovan-bratislava-man-city/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5811098/2024/10/02/arsenal-have-many-faces-they-all
 **Best, Worst and Most Unlikely Lines of the Vice-Presidential Debate**\
 `JD Vance gave a shout-out to his wife. Tim Walz sang the praises of Minnesota. Offstage, Donald Trump got distracted.`\
 https://nytimes.com/2024/10/02/us/elections/vance-walz-debate-best-lines.html
-
-**Ao Tanaka took his Leeds United chance with poise and precision**\
-`The Japan international was 'freed' by Farke to stand in for captain Ethan Ampadu - and did not disappoint on his full debut`\
-https://nytimes.com/athletic/5809559/2024/10/02/ao-tanaka-leeds-united-midfield/
-
-**Jayden Struble further stakes his claim to a spot in the Canadiens’ opening night lineup**\
-`In the battle for a spot on the Canadiens' third defence pairing, Struble has separated himself from Arber Xhekaj.  `\
-https://nytimes.com/athletic/5811677/2024/10/02/jayden-struble-canadiens-opening-night-lineup/
 
