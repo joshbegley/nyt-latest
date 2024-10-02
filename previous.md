@@ -1,3 +1,7 @@
+**The Jewish New Year Is Far More Bitter Than Sweet in Israel**\
+`On Rosh Hashana, many Israelis longed for a return to normalcy after a year of escalating wars for the country.`\
+https://nytimes.com/2024/10/02/world/middleeast/israel-rosh-hashana.html
+
 **Harris Visits Georgia After Hurricane Helene, Promising Federal Help**\
 `The vice president said federal money would play a major role in storm recovery efforts as she met with local officials in Augusta, Ga., and helped hand out food and snacks.`\
 https://nytimes.com/2024/10/02/us/politics/harris-georgia-hurricane-helene.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5813522/2024/10/02/astros-tigers-game-2-josh-hader/
 **Man Who Set Fire to Cabin in the Grand Canyon Gets 20 Months in Prison**\
 `The 21-year-old was arrested in May, shortly after he set fire to his former girlfriend’s residence in the park, the authorities said.`\
 https://nytimes.com/2024/10/02/us/grand-canyon-cabin-arson-sentence.html
-
-**The V.P. Debate Came Down to One Moment**\
-`JD Vance’s response to a question about challenging this year’s election results was telling.`\
-https://nytimes.com/2024/10/02/opinion/ezra-klein-podcast-vp-debate.html
 

@@ -1,3 +1,7 @@
+**The Jewish New Year Is Far More Bitter Than Sweet in Israel**\
+`On Rosh Hashana, many Israelis longed for a return to normalcy after a year of escalating wars for the country.`\
+https://nytimes.com/2024/10/02/world/middleeast/israel-rosh-hashana.html
+
 **Harris Visits Georgia After Hurricane Helene, Promising Federal Help**\
 `The vice president said federal money would play a major role in storm recovery efforts as she met with local officials in Augusta, Ga., and helped hand out food and snacks.`\
 https://nytimes.com/2024/10/02/us/politics/harris-georgia-hurricane-helene.html
