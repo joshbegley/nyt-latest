@@ -1,3 +1,19 @@
+**Best, Worst and Most Unlikely Lines of the Vice-Presidential Debate**\
+`JD Vance gave a shout-out to his wife. Tim Walz sang the praises of Minnesota. Offstage, Donald Trump got distracted.`\
+https://nytimes.com/2024/10/02/us/elections/vance-walz-debate-best-lines.html
+
+**Ao Tanaka took his Leeds United chance with poise and precision**\
+`The Japan international was 'freed' by Farke to stand in for captain Ethan Ampadu - and did not disappoint on his full debut`\
+https://nytimes.com/athletic/5809559/2024/10/02/ao-tanaka-leeds-united-midfield/
+
+**Jayden Struble further stakes his claim to a spot in the Canadiens’ opening night lineup**\
+`In the battle for a spot on the Canadiens' third defence pairing, Struble has separated himself from Arber Xhekaj.  `\
+https://nytimes.com/athletic/5811677/2024/10/02/jayden-struble-canadiens-opening-night-lineup/
+
+**Las Vegas Aces need historic rally to avoid WNBA playoff elimination**\
+`The Aces are aiming for a three-peat. But first they have to overcome a 0-2 semifinals hole.`\
+https://nytimes.com/athletic/5811676/2024/10/02/las-vegas-aces-near-elimination-wnba-semifinals/
+
 **Vance Strains to Sell a Softer Trump**\
 `From the opening handshake, the Republican vice-presidential nominee sought to reinvent and repackage the record and views of the former president.`\
 https://nytimes.com/2024/10/02/us/politics/vance-walz-debate-analysis.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/02/world/taiwan-typhoon-krathon.html
 **A Wider War in the Middle East, From Hamas to Hezbollah and Now Iran**\
 `The main questions now are how much the conflict will escalate and whether the United States will get more directly involved in the defense of Israel.`\
 https://nytimes.com/2024/10/02/us/politics/israel-iran.html
-
-**Civility and Then a Clash Over Jan. 6: Seven Takeaways From the Debate**\
-`Senator JD Vance of Ohio and Gov. Tim Walz of Minnesota sparred over immigration, abortion and foreign policy — and then on Donald Trump’s 2020 election loss.`\
-https://nytimes.com/2024/10/02/us/politics/vp-debate-takeaways-vance-walz.html
-
-**The Value of a Boring Suit**\
-`A night of few fireworks between the candidates was also a night of little sartorial flair. And that was the goal.`\
-https://nytimes.com/2024/10/02/style/walz-vance-debate-style.html
-
-**Konate has his mojo back at Liverpool - this is how**\
-`French defender has benefited from Arne Slot's tactics and Van Dijk's pep talks and looks better than ever`\
-https://nytimes.com/athletic/5806034/2024/10/02/ibrahima-konate-liverpool-arne-slot/
-
-**Kudus and Lopetegui had words - the tension at West Ham is palpable**\
-`Mohammed Kudus was not happy at being replaced at Brentford and told Julen Lopetegui - the head coach needs him back to his best. Quickly`\
-https://nytimes.com/athletic/5809322/2024/10/02/mohammed-kudus-julen-lopetegui-west-ham/
 
