@@ -1,3 +1,7 @@
+**Raiders' Pierce declines to discuss Adams' trade request**\
+`Pierce didn't address screenshots that appeared to show him “liking” an Instagram post insinuating Adams could be traded.`\
+https://nytimes.com/athletic/5813024/2024/10/02/raiders-antonio-pierce-davante-adams/
+
 **Biden Says He Won’t Support an Israeli Strike on Iran’s Nuclear Sites**\
 `His comments reflected a renewed effort by his administration to seek restraint from Israel to try to avoid a growing war in the Middle East.`\
 https://nytimes.com/2024/10/02/world/middleeast/iran-nuclear-weapons-biden-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/us/politics/israel-iran-war-harris-policy.html
 **Review: Finding the Right Rep for a Repertory Company**\
 `Dayton Contemporary Dance Company brought a mixed bill to the Joyce Theater, including a Paul Taylor classic and a dance by the great Rennie Harris.`\
 https://nytimes.com/2024/10/02/arts/review-dayton-contemporary-dance-company-esplanade.html
-
-**Pete Rose Never Changed, but Baseball Did**\
-`It has begun to acknowledge what Rose knew: That sports are deeply intertwined with gambling.`\
-https://nytimes.com/2024/10/02/opinion/pete-rose-baseball-gambling.html
 
