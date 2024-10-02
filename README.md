@@ -1,9 +1,17 @@
+**Walz Says His Son Witnessed a Shooting at a Community Center**\
+`The story by Gov. Tim Walz of Minnesota drew sympathy from his Republican opponent, Senator JD Vance of Ohio.`\
+https://nytimes.com/video/us/politics/100000009735828/tim-walz-son-shooting-witness.html
+
+**At a Wisconsin watch party, the debate leaves students ambivalent.**\
+`Some students at the University of Wisconsin-Parkside seemed underwhelmed. One noted, ‘This is long, huh?’`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/at-a-wisconsin-watch-party-the-debate-leaves-students-ambivalent
+
 **Gov. Walz Criticizes Trump’s Record on Roe v. Wade**\
 `Gov. Tim Walz attacked former President Donald J. Trump’s record on abortion — and then turned to the stories of women living with the consequences of abortion bans.`\
 https://nytimes.com/video/us/elections/100000009735817/gov-walz-criticizes-trumps-record-on-roe-v-wade.html
 
 **Brewers pull Freddy Peralta early, then watch as bullpen plan goes up in smoke**\
-`MILWAUKEE — There’s a ceremonial locker in the Milwaukee Brewers’ clubhouse for Rollie Fingers, the greatest reliever in the history of the franchise.`\
+`"I don't understand the reason I was taken out of the game," the pitcher said of Pat Murphy's decision as the Brewers now face elimination.`\
 https://nytimes.com/athletic/5811569/2024/10/01/brewers-bullpen-freddy-peralta-pat-murphy/
 
 **At a Georgia watch party, few see the debate as a tiebreaker.**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/i-never-supported-a-
 **Walz Failed to Expose Vance’s Debate Masquerade**\
 `He missed multiple opportunities to demonstrate how Trump and Vance are unfit for office.`\
 https://nytimes.com/2024/09/25/opinion/walz-vance-debate-loser.html
-
-**Wild owner Craig Leipold on extending Kirill Kaprizov: 'Nobody will offer more money than us, or longer'**\
-`The Wild owner talked about the team eyeing a long-term extension for Kaprizov next summer and more. `\
-https://nytimes.com/athletic/5811413/2024/10/01/wild-kirill-kaprizov-extension-contract/
-
-**“We have to remember that for years in this country, Democrats protested the results of elections. Hillary Clinton in 2016 said that Donald Trump had the election stolen by Vladimir Putin because the Russians bought like $500,000 worth of Facebook ads.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/we-have-to-remember-that-for-years-in-this-country-democrats-protested-the-results-of-elections-hillary-clinton-in-2016-said-tha
 
