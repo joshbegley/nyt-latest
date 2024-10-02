@@ -1,3 +1,7 @@
+**Live Updates: Israel Promises to Retaliate After Iranian Missile Attack**\
+`The strike heightened fears of drawing both sides into a direct conflict. Israel’s military said it was sending more troops to southern Lebanon.`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah
+
 **Stevenage 1-0 Wrexham: Rotated visitors avoid a postponement, but not a defeat**\
 `Wrexham held on to second place in League One despite a disappointing 1-0 defeat on their first EFL visit to Stevenage`\
 https://nytimes.com/athletic/5806450/2024/10/02/stevenage-1-0-wrexham/
