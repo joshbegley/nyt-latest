@@ -1,3 +1,15 @@
+**“If we open up American energy, you will get immediate pricing relief for American citizens not just in housing but a whole host of economic goods.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-we-open-up-american-energy-you-will-get-immediate-pricing-relief-for-american-citizens-not-just-in-housing-but-a-whole-host-o
+
+**“Donald Trump could have destroyed the program. Instead, he worked in a bipartisan way to ensure that Americans have access to affordable care.”**\
+`By Linda Qiu`\
+https://nytimes.com/2024/10/01/us/politics/donald-trump-could-have-destroyed-the-program-instead-he-worked-in-a-bipartisan-way-to-ensure-that-americans-have-access-to-affo.html
+
+**“The one thing that Joe Biden did is he continued some of the Trump tariffs that protected American manufacturing jobs.”**\
+`By Ana Swanson`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/the-one-thing-that-joe-biden-did-is-he-continued-some-of-the-trump-tariffs-that-protected-american-manufacturing-jobs
+
 **“25 million illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/25-million-illegal-aliens-competing-with-americans-for-scarce-homes-is-one-of-the-most-significant-drivers-of-home-prices-in-the
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/01/us/politics/vance-walz-debate-hurricane-climate.h
 **“The statute you signed into law, it says that a doctor who presides over an abortion where the baby survives — the doctor is under no obligation to provide life-saving care to a baby who survives a botched late-term abortion.”**\
 `By Kate Zernike`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/the-statute-you-signed-into-law-it-says-that-a-doctor-who-presides-over-an-abortion-where-the-baby-survives-the-doctor-is-under-
-
-**Vance’s Dominant Debate Performance Shows Why He’s Trump’s Running Mate**\
-`He’s making a case for Trump’s record far more effectively than Trump has ever been capable of doing.`\
-https://nytimes.com/2024/09/25/opinion/vance-winning-debate.html
-
-**“If you look at what was so different about Donald Trump’s tax cuts, even from previous Republican tax cut plans, is that a lot of those resources went to giving more take-home pay to middle-class and working-class Americans.”**\
-`By Andrew Duehren`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-you-look-at-what-was-so-different-about-donald-trumps-tax-cuts-even-from-previous-republican-tax-cut-plans-is-that-a-lot-of-t
-
-**“Those same experts for 40 years said that if we shipped our manufacturing base off to China, we’d get cheaper goods. They lied about that.”**\
-`By Ana Swanson`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/those-same-experts-for-40-years-said-that-if-we-shipped-our-manufacturing-base-off-to-china-wed-get-cheaper-goods-they-lied-abou
 
