@@ -1,3 +1,7 @@
+**49ers' Kalia Davis is back, but the 49ers are still waiting on Ricky Pearsall**\
+`The 49ers practiced without Fred Warner, George Kittle and several others, though the heat and their schedule were factors on Wednesday.`\
+https://nytimes.com/athletic/5813895/2024/10/02/49ers-injuries-ricky-pearsall-kalia-davis/
+
 **After Flooding, FEMA Aid Is Arriving. But Some Are Still on Their Own.**\
 `Six days after Hurricane Helene, North Carolina was getting help from the Federal Emergency Management Agency and others. But officials still faced obstacles reaching some areas.`\
 https://nytimes.com/2024/10/02/us/fema-floods-north-carolina.html
