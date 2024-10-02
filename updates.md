@@ -1,3 +1,11 @@
+**New Giants president Buster Posey asked for the ball — and the accountability**\
+`Posey admits he has a lot to learn, but one thing he won't have to learn is the importance of the Giants to their community.`\
+https://nytimes.com/athletic/5811218/2024/10/01/buster-posey-sf-giants-new-direction/
+
+**LeBron James won't put expectations on JJ Redick, early-season Lakers: 'That's unfair'**\
+`As Redick's first practice as coach got underway, the ground rules and standards were set for what's to come. `\
+https://nytimes.com/athletic/5810661/2024/10/01/lebron-james-jj-redick-lakers-nba/
+
 **LeBron James won't put expectations on JJ Redick, early-season Lakers: 'That's unfair'**\
 `As JJ Redick's first practice as head coach got underway, the ground rules and standards were set for what's to come. `\
 https://nytimes.com/athletic/5810661/2024/10/01/lebron-james-jj-redick-lakers-nba/
