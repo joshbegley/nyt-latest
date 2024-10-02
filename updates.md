@@ -1,3 +1,11 @@
+**New-look Lynx respond after Game 1 loss to even series with the Sun**\
+`A feisty Connecticut won Game 1 and tried to impose its will in Game 2. But Minnesota wasn't having it.`\
+https://nytimes.com/athletic/5811345/2024/10/02/wnba-lynx-sun-playoffs/
+
+**Live Updates: Israel Promises to Retaliate After Iranian Missile Attack**\
+`The strike heightened fears that two of the Middle East’s most powerful militaries could would be drawn into direct conflict. Israel’s military said it was sending more troops to southern Lebanon.`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah
+
 **Live Updates: Israel Promises to Retaliate After Iranian Missile Attack**\
 `The strike heightened fears of drawing both sides into a direct conflict. Israel’s military said it was sending more troops to southern Lebanon.`\
 https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah
