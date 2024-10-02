@@ -1,4 +1,16 @@
-**Israel Vows Retaliation Against Iran, and Debate Takeaways**\
+**How the Bears' run game and D'Andre Swift finally set the tone**\
+`The Bears mixed things up and got the run game going in Week 4. Swift had his best game. What's the film tell us? A breakdown.`\
+https://nytimes.com/athletic/5809527/2024/10/02/dandre-swift-bears-run-game/
+
+**Weird & Wild: O's, Royals and ... Babe Ruth? Astros 103, Tigers 0? Mets' 'Win Improbability'**\
+`After eight-plus hours and a tidy 1,240 pitches, here are all the Weird & Wild highlights from Day One of the MLB playoffs,. `\
+https://nytimes.com/athletic/5811858/2024/10/02/oriols-royals-astros-tigers-mets-mlb-playoffs-day-1/
+
+**Tafur: Why the Davante Adams-Raiders marriage was wrong from the very beginning**\
+`The relationship between Adams and the Raiders has been bad for a while now. Tuesday was just the latest — and likely final — straw.`\
+https://nytimes.com/athletic/5811514/2024/10/02/davante-adams-raiders-trade-relationship/
+
+**Israel Vows Retaliation Against Iran, and Takeaways From the Debate**\
 `Plus, Mexico’s first female president.`\
 https://nytimes.com/2024/10/02/podcasts/israel-iran-debate.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5811295/2024/10/02/rangers-roster-projection-edstro
 **How long is Brayden Narveson's leash as another Packers rookie kicker struggles?**\
 `After releasing 2023 draft pick Anders Carlson this summer, the Packers claimed the undrafted Narveson and nothing has changed.`\
 https://nytimes.com/athletic/5809840/2024/10/02/packers-kicker-brayden-narveson/
-
-**Time for Cubs to take more risks and leave comfort zone? Not so fast says Jed Hoyer**\
-`“There’s always pressure,” said the Cubs president, who has yet to make the postseason while overseeing baseball operations.`\
-https://nytimes.com/athletic/5811118/2024/10/02/chicago-cubs-jed-hoyer-risks/
-
-**The NFL Projection Model's 5 biggest preseason misses: Commanders, Vikings hot starts top list**\
-`Time for some self-scouting. The model believed in the Bengals and Cowboys, but through four weeks, it appears to have been wrong. `\
-https://nytimes.com/athletic/5809374/2024/10/02/nfl-projections-misses-commanders-vikings-jayden-daniels/
-
-**What I'm seeing from the Titans: Will Levis has gone backward, but Mason Rudolph is a backup**\
-`Levis’ performance has been troubling, but Brian Callahan’s reaction to it is encouraging.`\
-https://nytimes.com/athletic/5810105/2024/10/02/titans-will-levis-mason-rudolph/
 
