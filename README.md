@@ -1,3 +1,35 @@
+**Where Literary Ghosts Linger: A Book Critic Goes to Dublin**\
+`The Irish city, once home to the likes of James Joyce and Oscar Wilde, is known for its bookstores, libraries and pubs, where writers found inspiration over pints of Guinness.`\
+https://nytimes.com/2024/10/02/travel/literary-dublin.html
+
+**R.L. Stine’s Favorite Halloween Books Will Give Your Kids Goosebumps**\
+`As spooky season approaches, the master of children’s horror recommends creepy-crawly classics and modern thrills for young readers.`\
+https://nytimes.com/2024/10/02/books/halloween-books-kids-rl-stine.html
+
+**Read Your Way Around Hawaii**\
+`To read Hawaii is to understand that much of it will never be accessible to the masses. The writer Megan Kamalei Kakimoto recommends books that illuminate the islands’ rich history and storytelling spirit.`\
+https://nytimes.com/2024/10/02/books/booksupdate/hawaii-books-literature.html
+
+**New Mexico Is Where the Outlaw Artists Live**\
+`Over the past century, the state has provided refuge for renegades like Agnes Martin and Judy Chicago. It still does, even with a new wave of arrivals closing in.`\
+https://nytimes.com/2024/10/02/t-magazine/new-mexico-artists.html
+
+**Patrick Mahomes' turnover woes, Derrick Henry's dominance, more from Week 4: Quick Outs**\
+`Mahomes and Trevor Lawrence are both making mistakes, although only one's paying for them with losses. `\
+https://nytimes.com/athletic/5809115/2024/10/02/nfl-week-4-derrick-henry-patrick-mahomes/
+
+**Visiting a Disney Park? Here’s How to Spend Less Time in Line.**\
+`Long waits can take a bite out of the magic at places like Walt Disney World and Disneyland. There are ways to speed things up, but be prepared to pay more.`\
+https://nytimes.com/2024/10/02/travel/disney-world-disneyland-lines.html
+
+**Vegas Golden Knights 2024-25 season preview: Playoff chances, projected points, roster rankings**\
+`With some exceptional strengths and debilitating weaknesses, Vegas could go on another run or fall to a new low.`\
+https://nytimes.com/athletic/5794961/2024/10/02/vegas-golden-knights-2024-25-season-preview/
+
+**College football's four-game redshirt rule had odd exceptions well before Matthew Sluka**\
+`The redshirt rule is a classic college sports story of unintended consequences and conflicting incentives.`\
+https://nytimes.com/athletic/5811417/2024/10/02/matthew-sluka-college-football-redshirt-rules/
+
 **The Best Trend of Fashion Month. And the Worst.**\
 `Louis Vuitton, Chanel and Miu Miu bring Paris Fashion Week to a close with some important takeaways.`\
 https://nytimes.com/2024/10/02/style/louis-vuitton-chanel-miu-miu-trends.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/10/02/style/louis-vuitton-chanel-miu-miu-trends.html
 **Here’s Where U.S. Forces Are Deployed in the Middle East**\
 `The Pentagon is preparing to send more troops and aircraft to the region. This is an overview of the U.S. military presence there.`\
 https://nytimes.com/2024/10/02/world/middleeast/us-troops-middle-east-map.html
-
-**New-look Lynx respond after Game 1 loss to even series with the Sun**\
-`A feisty Connecticut won Game 1 and tried to impose its will in Game 2. But Minnesota wasn't having it.`\
-https://nytimes.com/athletic/5811345/2024/10/02/wnba-lynx-sun-playoffs/
-
-**Stevenage 1-0 Wrexham: Rotated visitors avoid a postponement, but not a defeat**\
-`Wrexham held on to second place in League One despite a disappointing 1-0 defeat on their first EFL visit to Stevenage`\
-https://nytimes.com/athletic/5806450/2024/10/02/stevenage-1-0-wrexham/
-
-**Adams Expected to Return to Federal Court on Wednesday**\
-`Eric Adams, the New York City mayor, is expected to appear before Judge Dale E. Ho, and a trial date could be set.`\
-https://nytimes.com/2024/10/02/nyregion/adams-return-federal-court.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/02/crosswords/spelling-bee-forum.html
-
-**Hurricane Helene**\
-`What is your reaction to this image? What does it tell you about the impact of the storm?`\
-https://nytimes.com/2024/10/02/learning/hurricane-helene.html
-
-**Here are the latest developments.**\
-`By Victoria Kim`\
-https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
-
-**Live Updates: Israel Promises to Retaliate After Iranian Missile Attack**\
-`The strike heightened fears that two of the Middle East’s most powerful militaries could be drawn into direct conflict. Israel’s military said it was sending more troops to southern Lebanon.`\
-https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah
-
-**Padres' Fernando Tatis Jr. makes return to postseason, and wait was worth it**\
-`Tatis hit a home run in the first inning to help the Padres to a 4-0 win over the Braves in Game 1 of their Wild Card Series.`\
-https://nytimes.com/athletic/5811044/2024/10/02/fernando-tatis-jr-padres-braves-wild-card/
 
