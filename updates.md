@@ -1,3 +1,11 @@
+**NWSL, Tiffany & Co. unveil redesigned Shield, MVP trophies**\
+`The NWSL first partnered with Tiffany & Co. last year, kicking off their partnership with redesigned versions of the league’s Championship a`\
+https://nytimes.com/athletic/5812830/2024/10/02/nwsl-tiffany-co-shield-mvp-trophy-redesign/
+
+**At Least 60 Dead After Boat Capsizes in Nigeria**\
+`The boat was carrying about 300 people on the Niger River. Rescuers continued to search for survivors.`\
+https://nytimes.com/2024/10/02/world/africa/60-dead-drowning-nigeria.html
+
 **OpenAI Completes Deal That Values Company at $157 Billion**\
 `The A.I. start-up’s valuation has risen by more than $70 billion in nine months.`\
 https://nytimes.com/2024/10/02/technology/openai-valuation-150-billion.html
