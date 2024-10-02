@@ -1,3 +1,7 @@
+**Before the invasion, raids destroyed Hezbollah tunnels and other targets, the Israeli military says.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/israel-idf-hezbollah-lebanon
+
 **What Can Body Language Reveal on ‘Love Is Blind’?**\
 `As Season 7 begins, an expert says figuring out a participant’s motivation is both an art and a science.`\
 https://nytimes.com/2024/10/02/style/love-is-blind-body-language.html

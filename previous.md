@@ -1,3 +1,7 @@
+**Before the invasion, raids destroyed Hezbollah tunnels and other targets, the Israeli military says.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/israel-idf-hezbollah-lebanon
+
 **What Can Body Language Reveal on ‘Love Is Blind’?**\
 `As Season 7 begins, an expert says figuring out a participant’s motivation is both an art and a science.`\
 https://nytimes.com/2024/10/02/style/love-is-blind-body-language.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5811013/2024/10/02/bruins-jeremy-swayman-arbitratio
 **Allies Say They Came to Israel’s Aid During Iran’s Missile Attack**\
 `Israel has said that Iran fired more than 180 missiles in the barrage on Tuesday, but that most were intercepted.`\
 https://nytimes.com/2024/10/02/world/middleeast/israel-iran-missile-attack-us-uk-france.html
-
-**The Pulse: Big names on the brink of elimination**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5810079/2024/10/02/las-vegas-aces-houston-astros-playoffs-the-pulse/
 
