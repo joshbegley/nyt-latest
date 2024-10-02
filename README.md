@@ -1,3 +1,11 @@
+**With No Phones or Wi-Fi, North Carolina Revives the Town Meeting**\
+`Modern technology has been slow to return to mountain towns after Helene. Whiteboards and gatherings are helping residents find missing people and much-needed supplies.`\
+https://nytimes.com/2024/10/02/us/hurricane-helene-north-carolina.html
+
+**Submit your bold predictions for the Blues’ 2024-25 season**\
+`Submit your predictions here, and Blues writer Jeremy Rutherford will pick a handful to analyze in an upcoming story.`\
+https://nytimes.com/athletic/5813510/2024/10/02/submit-your-bold-predictions-for-the-blues-2024-25-season/
+
 **Trump’s Insults to Harris’s Intelligence? Jokes, Lara Trump Claims.**\
 `During rallies and on social media, former President Donald J. Trump has repeatedly disparaged Vice President Kamala Harris.`\
 https://nytimes.com/2024/10/02/us/politics/lara-trump-donald-trump-harris-intellect-attacks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/us/helene-north-carolina-flood-bat-cave.html
 **Mayorkas Warns of Funding Shortfall for Rest of Hurricane Season**\
 `The homeland security secretary said FEMA, which is dealing with the destruction from Hurricane Helene, would need more money to respond to another major storm.`\
 https://nytimes.com/2024/10/02/us/politics/fema-funding-shortfall-hurricane-season.html
-
-**In Beirut’s Once-Bustling Suburbs, Smoking Rubble and Eerie Quiet**\
-`Airstrikes targeting members of Hezbollah have brought the Dahiya neighborhoods south of Beirut to a standstill, its residents fleeing and businesses shuttering.`\
-https://nytimes.com/2024/10/02/world/middleeast/hezbollah-beirut-dahiya.html
-
-**Officials Cast Doubt on a Dementia Drug, but Human Trials Continue**\
-`The S.E.C. alleged shortcomings in research said to support the drug, and its developer agreed to a $40 million settlement. Some experts wonder why clinical trials have not been stopped.`\
-https://nytimes.com/2024/10/02/health/alzheimers-simufilam-cassava-sciences.html
 
