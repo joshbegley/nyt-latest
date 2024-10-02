@@ -1,3 +1,11 @@
+**Jeff Hoffman, one of the Phillies' key pieces this October, is 'pitching for something'**\
+`The list of important Phillies in the postseason is long. But as the Phillies craft their pitching blueprint, all paths lead toward Hoffman.`\
+https://nytimes.com/athletic/5810716/2024/10/02/jeff-hoffman-phillies-playoffs/
+
+**What I'm seeing from the Atlanta Falcons: The Kyle Pitts question won't go away**\
+`Even with a new coaching staff, the Falcons are struggling to get their best offensive players going ahead of "Thursday Night Football."`\
+https://nytimes.com/athletic/5809549/2024/10/02/atlanta-falcons-observations-kyle-pitts/
+
 **An Ohio State freshman can't stop making jaw-dropping plays. These are the best so far**\
 `Jeremiah Smith has made an instant impact at Ohio State with a staggering number of highlight-reel catches in just four games.`\
 https://nytimes.com/athletic/5810306/2024/10/02/jeremiah-smith-ohio-state-highlights-best-plays/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/us/politics/nasrallah-hezbollah-opinions.html
 **Should We Abolish the Penny?**\
 `Each year the U.S. Mint produces billions of pennies. Many are hardly ever used. Are these small copper-colored coins worth the trouble?`\
 https://nytimes.com/2024/10/02/learning/should-we-abolish-the-penny.html
-
-**Apple’s A.I. Is Landing Soon on iPhones. Here’s What It’s Like.**\
-`The initial version of Apple Intelligence focuses on helping you with words and photos. Prepare to be impressed and unnerved.`\
-https://nytimes.com/2024/10/02/technology/personaltech/apple-intelligence-iphone.html
-
-**Why Nicole Kidman Drives Her Critics Crazy**\
-`She’s everywhere, and she’s giving a lot of work to female talent. Is that such a bad thing?`\
-https://nytimes.com/2024/10/02/opinion/nicole-kidman-female-gaze.html
 
