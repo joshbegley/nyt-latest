@@ -1,3 +1,15 @@
+**New Evidence Was Unsealed in the Federal Election Case Against Trump**\
+`Also, Biden ordered 1,000 troops to help areas destroyed by Helene. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/10/02/briefing/new-evidence-trump-case-biden-helene.html
+
+**Blue Jays stick with front office status quo, remain 'committed to this core'**\
+`Mark Shapiro and Ross Atkins sang a familiar tune in their end-of-season press conference despite the disappointing season.`\
+https://nytimes.com/athletic/5813399/2024/10/02/blue-jays-offseason-goals-ross-atkins-mark-shapiro/
+
+**JD Vance and Tim Walz Debate Draws 43 Million Viewers**\
+`The figure is significantly lower than the vice-presidential debate in 2020.`\
+https://nytimes.com/2024/10/02/business/media/vance-walz-debate-ratings.html
+
 **Curious About How The Times Is Covering the Election? Send Us Your Questions.**\
 `The election is fast approaching. New York Times editors and reporters want to answer your questions about how we will cover one of the biggest nights in news.`\
 https://nytimes.com/2024/10/02/insider/nyt-election-coverage-questions.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/02/upshot/trump-vance-obamacare-debate.html
 **The Briefing: Lille 1 Real Madrid 0 - 36-game unbeaten run over and Camavinga's mixed return**\
 `The key moments and talking points from Real Madrid's shock defeat at Lille analysed and evaluated`\
 https://nytimes.com/athletic/5801018/2024/10/02/lille-real-madrid-briefing/
-
-**Gluck: For Michael Jordan, it got personal, and now he could forever change NASCAR**\
-`In suing NASCAR, Michael Jordan could alter the face of stock car racing and cement his legacy in yet another sport.`\
-https://nytimes.com/athletic/5812848/2024/10/02/michael-jordan-nascar-lawsuit-legacy/
-
-**Thursday Briefing: Israeli Troops Clashed with Hezbollah**\
-`Plus, what we learned from fashion month.`\
-https://nytimes.com/2024/10/02/briefing/israel-hezbollah-debate-ukraine.html
-
-**Maybe Voters Want a Break From the Endless Combat**\
-`A glimpse at a different approach in North Carolina.`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/jeff-jackson-voters-carolina
 

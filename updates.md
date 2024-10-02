@@ -1,3 +1,7 @@
+**Aston Villa 1 Bayern Munich 0: How super-sub Jhon Duran scored his Champions League stunner**\
+`Analysis of Aston Villa's 1-0 Champions League victory over Bayern Munich`\
+https://nytimes.com/athletic/5813398/2024/10/02/villa-bayern-duran-champions-league-highlights/
+
 **Curious About How The Times Is Covering the Election? Send Us Your Questions.**\
 `The election is fast approaching. New York Times editors and reporters want to answer your questions about how we will cover one of the biggest nights in news.`\
 https://nytimes.com/2024/10/02/insider/nyt-election-coverage-questions.html
