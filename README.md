@@ -1,3 +1,11 @@
+**Wilson says Jets have identity but are 'figuring out if it’s going to work'**\
+`Wilson suggested that New York's offensive struggles are more about figuring out if their identity works.`\
+https://nytimes.com/athletic/5812387/2024/10/02/garrett-wilson-jets-offensive-identity/
+
+**The Windup: Tigers' Skubal has an upset brewing**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5812545/2024/10/02/tigers-astros-tarik-skubal-mlb-playoffs-the-windup/
+
 **Senegal part ways with manager Cisse after nine years**\
 `Aliou Cisse has departed his position as Senegal manager after not having his contract renewed by the Senegal Football Federation (FSF).`\
 https://nytimes.com/athletic/5812358/2024/10/02/senegal-sack-aliou-cisse/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/well/move/exercise-sick-illness.html
 **Everton Women suffer second ACL injury of season as Gabarro sidelined**\
 `Everton Women have confirmed forward Inma Gabarro sustained an anterior cruciate ligament (ACL) injury against Manchester United on Sunday.`\
 https://nytimes.com/athletic/5812502/2024/10/02/inma-gabarro-everton-acl/
-
-**Photos show how Iran’s missiles, though mostly intercepted, still caused damage.**\
-`A school was hit in southern Israel, windows were blown out of a building in Tel Aviv and a Palestinian man was killed in the West Bank.`\
-https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/photos-show-how-irans-missiles-though-mostly-intercepted-still-caused-damage
-
-**Canucks notebook: Cuts, roster battles, new-look lines and salary-cap options**\
-`The Canucks recently provided an unusual number of answers about which players will be on the team to open the 2024-25 season.`\
-https://nytimes.com/athletic/5811719/2024/10/02/canucks-notebook-cuts-roster-battles-new-look-lines-and-salary-cap-options/
 
