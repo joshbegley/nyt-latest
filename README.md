@@ -1,3 +1,11 @@
+**The Pulse: Big names on the brink of elimination**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5810079/2024/10/02/las-vegas-aces-houston-astros-playoffs-the-pulse/
+
+**A Vice-Presidential Debate**\
+`We explain the why the debate offered a snapshot of another era.`\
+https://nytimes.com/2024/10/02/briefing/a-vice-presidential-debate.html
+
 **Danish Police Investigate Two Explosions Near the Israeli Embassy**\
 `The authorities said they were investigating after the explosions were heard early Wednesday morning near Copenhagen. Nobody was injured.`\
 https://nytimes.com/2024/10/02/world/europe/copenhagen-explosion-israeli-embassy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/podcasts/israel-iran-debate.html
 **The Walz-Vance Debate: Civility and Then a Clash**\
 `The vice-presidential candidates sparred over immigration, abortion and the Jan. 6 riot.`\
 https://nytimes.com/2024/10/02/podcasts/the-daily/walz-vance-debate.html
-
-**How Xabi Alonso has evolved Bayer Leverkusen after their near-perfect season**\
-`Leverkusen are looking more streetwise - this season could be even more interesting than the last one`\
-https://nytimes.com/athletic/5811824/2024/10/02/leverkusen-xabi-alonso-tactical-evolution/
-
-**Who will start next to Steph Curry as the Warriors' newest shooting guard?**\
-`With Klay Thompson departing for Dallas, a void needs to be filled in the Warriors' starting lineup.`\
-https://nytimes.com/athletic/5811692/2024/10/02/steph-curry-warriors-shooting-guard-nba/
 
