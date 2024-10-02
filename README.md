@@ -1,3 +1,19 @@
+**Understanding Aston Villa's Jhon Duran - 'Nothing he was given was free'**\
+`Jhon Duran has delighted and dismayed Villa fans since his arrival from MLS — Unai Emery is determined he makes the most of his potential`\
+https://nytimes.com/athletic/5805530/2024/10/02/jhon-duran-aston-villa-colombia-unai-emery/
+
+**In a year of cost-cutting, can Manchester United afford to move on from Erik ten Hag?**\
+`Manchester United flirted with the Premier League's PSR limits and are seeking to save "£40million to £45million”`\
+https://nytimes.com/athletic/5809658/2024/10/02/erik-ten-hag-sacking-cost/
+
+**Which clubs charge most for Champions League tickets?**\
+`Aston Villa sparked controversy with their ticket pricing last month but how does it compare across Europe?`\
+https://nytimes.com/athletic/5788915/2024/10/02/champions-league-ticket-price-uefa/
+
+**Fernandes farce proves why VAR system must be abolished**\
+`The overturning of Portuguese's red card - at the third attempt -proves the pursuit of 'perfect' decision-making is a fallacy`\
+https://nytimes.com/athletic/5808901/2024/10/02/bruno-fernandes-var-abolish/
+
 **Wednesday Briefing: Iran Fires 180 Missiles at Israel**\
 `Plus: In a lawsuit, words matter.`\
 https://nytimes.com/2024/10/02/briefing/iran-israel-jd-vance-tim-walz-us-port-worker-strike.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/02/us/politics/abortion-election-2024.html
 **Lille vs. Real Madrid Champions League preview: Storylines, odds, prediction**\
 `Real Madrid is a big favorite against Lille in their Champions League match.`\
 https://nytimes.com/athletic/5806395/2024/10/02/lille-real-madrid-preview-odds-prediction/
-
-**Fantasy football rankings Week 5: Sleepers, projections, starts**\
-`Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
-https://nytimes.com/athletic/5811078/2024/10/02/fantasy-football-rankings-week-5-sleepers-projections-starts/
-
-**‘Nothing Left to Lose’: Britain’s Conservatives Are Surprisingly Upbeat**\
-`At its annual convention in Birmingham, the party is energized by a leadership contest and seems largely undisturbed by broader questions over its electability.`\
-https://nytimes.com/2024/10/02/world/europe/britain-conservatives.html
-
-**Catholics Meet to Chart Path Forward, but Women’s Roles Remain Unclear**\
-`The ordination of female deacons is no longer on the agenda during a global assembly at the Vatican, but will be discussed separately.`\
-https://nytimes.com/2024/10/02/world/europe/pope-women.html
-
-**Quote of the Day: Warmly Received in Asia, Pope Feels Chill in Belgium**\
-`Quotation of the Day for Wednesday, October 2, 2024.`\
-https://nytimes.com/2024/10/01/pageoneplus/quote-of-the-day-warmly-received-in-asia-pope-feels-chill-in-belgium.html
 
