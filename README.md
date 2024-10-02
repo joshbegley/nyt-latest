@@ -24,7 +24,7 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/the-statute-you-sign
 
 **Vance’s Dominant Debate Performance Shows Why He’s Trump’s Running Mate**\
 `He’s making a case for Trump’s record far more effectively than Trump has ever been capable of doing.`\
-https://nytimes.com/live/2024/09/25/opinion/thepoint/vance-winning-debate
+https://nytimes.com/2024/09/25/opinion/vance-winning-debate.html
 
 **“If you look at what was so different about Donald Trump’s tax cuts, even from previous Republican tax cut plans, is that a lot of those resources went to giving more take-home pay to middle-class and working-class Americans.”**\
 `By Andrew Duehren`\
