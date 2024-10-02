@@ -1,3 +1,7 @@
+**Braves face a must-win game after AJ Smith-Shawver stumbles, hitters flail**\
+`The Braves and Max Fried have no margin for error. It’s win or go home.`\
+https://nytimes.com/athletic/5811685/2024/10/02/braves-padres-mlb-wild-card-game-1/
+
 **Word of the Day: unscathed**\
 `This word has appeared in 180 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/02/learning/word-of-the-day-unscathed.html
