@@ -1,3 +1,11 @@
+**Jeff Hoffman, one of the Phillies' key pieces this October, is 'pitching for something'**\
+`The list of important Phillies in the postseason is long. But as the Phillies craft their pitching blueprint, all paths lead toward Hoffman.`\
+https://nytimes.com/athletic/5810716/2024/10/02/jeff-hoffman-phillies-playoffs/
+
+**What I'm seeing from the Atlanta Falcons: The Kyle Pitts question won't go away**\
+`Even with a new coaching staff, the Falcons are struggling to get their best offensive players going ahead of "Thursday Night Football."`\
+https://nytimes.com/athletic/5809549/2024/10/02/atlanta-falcons-observations-kyle-pitts/
+
 **An Ohio State freshman can't stop making jaw-dropping plays. These are the best so far**\
 `Jeremiah Smith has made an instant impact at Ohio State with a staggering number of highlight-reel catches in just four games.`\
 https://nytimes.com/athletic/5810306/2024/10/02/jeremiah-smith-ohio-state-highlights-best-plays/
