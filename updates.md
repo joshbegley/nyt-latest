@@ -1,3 +1,7 @@
+**“This epidemic of violence, the gross majority — close to 90 percent in some of the statistics I’ve seen — of the gun violence in this country is committed with illegally obtained firearms.”**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/this-epidemic-of-violence-the-gross-majority-close-to-90-percent-in-some-of-the-statistics-ive-seen-of-the-gun-violence-in-this-
+
 **Debate Fact Check: Vance and Walz on the Economy, Abortion and Housing**\
 `Gov. Tim Walz was pressed on his time in China and Senator JD Vance on his assertion that there was a peaceful transfer of power in 2021 in a vice-presidential debate largely focused on policy.`\
 https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance

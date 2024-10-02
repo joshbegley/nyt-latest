@@ -1,3 +1,7 @@
+**“This epidemic of violence, the gross majority — close to 90 percent in some of the statistics I’ve seen — of the gun violence in this country is committed with illegally obtained firearms.”**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/this-epidemic-of-violence-the-gross-majority-close-to-90-percent-in-some-of-the-statistics-ive-seen-of-the-gun-violence-in-this-
+
 **Debate Fact Check: Vance and Walz on the Economy, Abortion and Housing**\
 `Gov. Tim Walz was pressed on his time in China and Senator JD Vance on his assertion that there was a peaceful transfer of power in 2021 in a vice-presidential debate largely focused on policy.`\
 https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/the-reason-child-car
 **CBS tried to find a middle ground on fact-checking. Vance jumped into the gap.**\
 `By Michael M. Grynbaum`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/cbs-debate-fact-checking-vance
-
-**Donald Trump “introduced pricing transparency. Think about health care. You go into a hospital, you try to buy something and nobody knows what it actually costs. That price transparency will actually give American consumers a little bit more choice and will also drive down costs.”**\
-`By Margot Sanger-Katz`\
-https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/donald-trump-introduced-pricing-transparency-think-about-health-care-you-go-into-a-hospital-you-try-to-buy-something-and-nobody-
 
