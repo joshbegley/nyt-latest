@@ -1,3 +1,11 @@
+**Barcelona sign former Juventus and Arsenal goalkeeper Szczesny**\
+`Barcelona have completed the signing of former Arsenal and Juventus goalkeeper Wojciech Szczesny on a short-term contract.`\
+https://nytimes.com/athletic/5793821/2024/10/02/barcelona-transfers-szczesny-signs/
+
+**Back from Gaza, he says he helped stop a gunman in Tel Aviv.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/back-from-gaza-he-says-he-helped-stop-a-gunman-in-tel-aviv
+
 **Carlos Alcaraz beats Jannik Sinner to forge further ahead in the most exciting matchup in tennis**\
 `And then it was 6-4.`\
 https://nytimes.com/athletic/5811912/2024/10/02/alcaraz-sinner-china-open-final-result-analysis/

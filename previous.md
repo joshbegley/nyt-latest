@@ -1,3 +1,11 @@
+**Barcelona sign former Juventus and Arsenal goalkeeper Szczesny**\
+`Barcelona have completed the signing of former Arsenal and Juventus goalkeeper Wojciech Szczesny on a short-term contract.`\
+https://nytimes.com/athletic/5793821/2024/10/02/barcelona-transfers-szczesny-signs/
+
+**Back from Gaza, he says he helped stop a gunman in Tel Aviv.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/back-from-gaza-he-says-he-helped-stop-a-gunman-in-tel-aviv
+
 **Sarah Snook to Make Broadway Debut in One-Woman ‘Dorian Gray’**\
 `The “Succession” actress plays all 26 characters in a London stage production of the Oscar Wilde novel.`\
 https://nytimes.com/2024/10/02/theater/sarah-snook-dorian-gray-broadway.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5811985/2024/10/02/alexander-isak-injury-newcastle-
 **Dozens Die After Smugglers Force Them Off Ships Into Open Waters**\
 `Many others are missing after Yemeni operators instructed hundreds of African migrants on two boats near the Djibouti coast to get off and swim, the International Organization for Migration said.`\
 https://nytimes.com/2024/10/02/world/africa/yemen-djibouti-migrant-boats-dead.html
-
-**Before the invasion, raids destroyed Hezbollah tunnels and other targets, the Israeli military says.**\
-`By Natan Odenheimer`\
-https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/israel-idf-hezbollah-lebanon
-
-**What Can Body Language Reveal on ‘Love Is Blind’?**\
-`As Season 7 begins, an expert says figuring out a participant’s motivation is both an art and a science.`\
-https://nytimes.com/2024/10/02/style/love-is-blind-body-language.html
 
