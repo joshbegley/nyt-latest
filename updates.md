@@ -1,3 +1,7 @@
+**Taiwan Closes Schools and Workplaces as Typhoon Krathon Nears**\
+`The storm has already injured 46 people and forced thousands of evacuations, the authorities said, warning that torrential rain could cause landslides and flooding.`\
+https://nytimes.com/2024/10/02/world/taiwan-typhoon-krathon.html
+
 **A Wider War in the Middle East, From Hamas to Hezbollah and Now Iran**\
 `The main questions now are how much the conflict will escalate and whether the United States will get more directly involved in the defense of Israel.`\
 https://nytimes.com/2024/10/02/us/politics/israel-iran.html
