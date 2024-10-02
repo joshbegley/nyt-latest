@@ -1,3 +1,11 @@
+**Tate Modern Gives a Fuller View of the Blue Rider**\
+`Visitors of Frieze Week have an opportunity to see the exhibition that presents the group as an international and eclectic network of artists.`\
+https://nytimes.com/2024/10/02/arts/design/tate-modern-blue-rider.html
+
+**During Frieze Week, There Is No Shortage of Things to See**\
+`Away from Frieze London and Frieze Masters are an abundance of exhibitions to explore.`\
+https://nytimes.com/2024/10/02/arts/design/frieze-week-london-tour.html
+
 **Like Trump, Vance Wavers on What to Do With Obamacare**\
 `JD Vance seemed to back away from a proposal to separate healthy and sick people in insurance markets, which could cause major disruption for people with pre-existing conditions.`\
 https://nytimes.com/2024/10/02/us/politics/vance-obamacare-trump-aca.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5812547/2024/10/02/bears-mailbag-questions-34/
 **Biden Says He Won’t Support Israeli Attack on Iranian Nuclear Sites**\
 `President Biden told reporters that leaders of the Group of 7 countries agreed that Israel had a right to respond to Iran’s missile attack, but that it should do so proportionally.`\
 https://nytimes.com/video/world/middleeast/100000009737306/biden-israel-iran-nuclear.html
-
-**Atletico Madrid given three-match partial stadium closure after derby chaos**\
-`Atletico have been punished for the crowd trouble that halted the Madrid derby. We explain why`\
-https://nytimes.com/athletic/5811927/2024/10/02/atletico-madrid-real-madrid-la-liga-spanish-fa-decision/
-
-**Knicks trade for Karl-Anthony Towns**\
-`Towns, 28, has spent all nine years of his career with the Timberwolves since being drafted No. 1 in the 2015 NBA Draft.`\
-https://nytimes.com/athletic/5800647/2024/10/02/knicks-timberwolves-trade-karl-anthony-towns-kat/
 
