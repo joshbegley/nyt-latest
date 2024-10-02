@@ -1,3 +1,15 @@
+**When Artists Found Beauty in London’s Toxic Fog**\
+`Monet and Turner found something sublime in the polluted 19th-century city — and maybe something darker, too.`\
+https://nytimes.com/2024/10/02/arts/monet-turner-london-pollution.html
+
+**Vance and Walz’s Battle of the Network Co-Stars**\
+`In what could be the last prime-time showdown of the 2024 campaign, the supporting players performed against type.`\
+https://nytimes.com/2024/10/02/arts/television/vance-walz-debate.html
+
+**Dolphins' Odell Beckham Jr. to practice this week**\
+`Beckham signed with the Dolphins in May, but hasn't appeared in a game this year while on the PUP list.`\
+https://nytimes.com/athletic/5812265/2024/10/02/odell-beckham-jr-dolphins-injury-practice/
+
 **Wilson says Jets have identity but are 'figuring out if it’s going to work'**\
 `Wilson suggested that New York's offensive struggles are more about figuring out if their identity works.`\
 https://nytimes.com/athletic/5812387/2024/10/02/garrett-wilson-jets-offensive-identity/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/02/science/fruit-fly-brain-mapped.html
 **Hurricane Helene Deaths Will Continue for Years, Study Suggests**\
 `Research on hundreds of tropical storms finds that mortality keeps rising for more than a decade afterward, for reasons you might not expect.`\
 https://nytimes.com/2024/10/02/business/economy/hurricane-helene-deaths-climate.html
-
-**How to Stop Straining Your Eyes**\
-`That achy, tired feeling comes from more than just screen time. Experts share tips for easing the discomfort.`\
-https://nytimes.com/2024/10/02/well/mind/eye-strain-symptoms-treatment.html
-
-**Is It Safe to Exercise When You’re Sick?**\
-`If you have a cold, Covid or the flu, here’s how to determine whether it’s wise to work out.`\
-https://nytimes.com/2024/10/02/well/move/exercise-sick-illness.html
-
-**Everton Women suffer second ACL injury of season as Gabarro sidelined**\
-`Everton Women have confirmed forward Inma Gabarro sustained an anterior cruciate ligament (ACL) injury against Manchester United on Sunday.`\
-https://nytimes.com/athletic/5812502/2024/10/02/inma-gabarro-everton-acl/
 
