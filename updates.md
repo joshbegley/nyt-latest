@@ -1,3 +1,7 @@
+**A Wider War in the Middle East, From Hamas to Hezbollah and Now Iran**\
+`The main questions now are how much the conflict will escalate and whether the United States will get more directly involved in the defense of Israel.`\
+https://nytimes.com/2024/10/02/us/politics/israel-iran.html
+
 **Civility and Then a Clash Over Jan. 6: Seven Takeaways From the Debate**\
 `Senator JD Vance of Ohio and Gov. Tim Walz of Minnesota sparred over immigration, abortion and foreign policy — and then on Donald Trump’s 2020 election loss.`\
 https://nytimes.com/2024/10/02/us/politics/vp-debate-takeaways-vance-walz.html
