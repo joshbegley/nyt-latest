@@ -1,3 +1,11 @@
+**Is It OK to Leave the U.S. If the Wrong Candidate Becomes President?**\
+`The magazine’s Ethicist columnist on modes of resistance to American electoral politics.`\
+https://nytimes.com/2024/10/02/magazine/leave-us-presidential-election-ethics.html
+
+**A Piccata With a Smart, Meatless Twist**\
+`That buttery, briny combination of lemon, butter and capers is awesome on cauliflower.`\
+https://nytimes.com/2024/10/02/dining/a-piccata-with-a-smart-meatless-twist.html
+
 **Why are 23XI and Front Row suing NASCAR? Here's what you need to know**\
 `Two NASCAR Cup Series team filed a lawsuit against the league Wednesday, alleging monopolistic practices. Here's what you need to know.`\
 https://nytimes.com/athletic/5812000/2024/10/02/23xi-front-row-nascar-lawsuit-explained/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5812265/2024/10/02/odell-beckham-jr-dolphins-injury
 **Wilson says Jets have identity but are 'figuring out if it’s going to work'**\
 `Wilson suggested that New York's offensive struggles are more about figuring out if their identity works.`\
 https://nytimes.com/athletic/5812387/2024/10/02/garrett-wilson-jets-offensive-identity/
-
-**The Windup: Tigers' Skubal has an upset brewing**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5812545/2024/10/02/tigers-astros-tarik-skubal-mlb-playoffs-the-windup/
-
-**Senegal part ways with manager Cisse after nine years**\
-`Aliou Cisse has departed his position as Senegal manager after not having his contract renewed by the Senegal Football Federation (FSF).`\
-https://nytimes.com/athletic/5812358/2024/10/02/senegal-sack-aliou-cisse/
 
