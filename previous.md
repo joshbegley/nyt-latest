@@ -1,3 +1,7 @@
+**Stevenage 1-0 Wrexham: Rotated visitors avoid a postponement, but not a defeat**\
+`Wrexham held on to second place in League One despite a disappointing 1-0 defeat on their first EFL visit to Stevenage`\
+https://nytimes.com/athletic/5806450/2024/10/02/stevenage-1-0-wrexham/
+
 **Adams Expected to Return to Federal Court on Wednesday**\
 `Eric Adams, the New York City mayor, is expected to appear before Judge Dale E. Ho, and a trial date could be set.`\
 https://nytimes.com/2024/10/02/nyregion/adams-return-federal-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5809856/2024/10/02/newcastle-united-wimbledon-analy
 **Phil Foden 'back at it' after disjointed start to the season**\
 `There will be several City players, Foden among them, who will hope the game in Slovakia can ignite their campaign`\
 https://nytimes.com/athletic/5810756/2024/10/02/phil-foden-slovan-bratislava-man-city/
-
-**Late Night Goes Live After a ‘Dull’ Vice-Presidential Debate**\
-`Stephen Colbert was unenthused by Tuesday’s discourse between Tim Walz and JD Vance.`\
-https://nytimes.com/2024/10/02/arts/television/late-night-vice-presidential-debate.html
 

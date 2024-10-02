@@ -1,3 +1,7 @@
+**Stevenage 1-0 Wrexham: Rotated visitors avoid a postponement, but not a defeat**\
+`Wrexham held on to second place in League One despite a disappointing 1-0 defeat on their first EFL visit to Stevenage`\
+https://nytimes.com/athletic/5806450/2024/10/02/stevenage-1-0-wrexham/
+
 **Adams Expected to Return to Federal Court on Wednesday**\
 `Eric Adams, the New York City mayor, is expected to appear before Judge Dale E. Ho, and a trial date could be set.`\
 https://nytimes.com/2024/10/02/nyregion/adams-return-federal-court.html
