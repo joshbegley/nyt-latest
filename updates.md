@@ -1,3 +1,7 @@
+**Trump Wants to Jail His Political Adversaries. Here’s How He Could Do It**\
+`How might a politically motivated prosecution actually unfold? These steps show exactly how Trump could make his threats real — all while staying within the constitutional limits on presidential power.`\
+https://nytimes.com/interactive/2024/10/02/t-magazine/trump-politics-justice-department.html
+
 **Missing Out on Coldplay’s India Tickets, Some Fans Vented — Even to Police**\
 `When 13 million people tried to buy tickets for the band’s Mumbai shows, the ticketing site crashed. Many who came up short cried foul, both online and to the authorities.`\
 https://nytimes.com/2024/10/02/world/asia/india-coldplay-tickets.html
