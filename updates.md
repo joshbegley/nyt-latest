@@ -1,3 +1,7 @@
+**The Best Trend of Fashion Month. And the Worst.**\
+`Louis Vuitton, Chanel and Miu Miu bring Paris Fashion Week to a close with some important takeaways.`\
+https://nytimes.com/2024/10/02/style/louis-vuitton-chanel-miu-miu-trends.html
+
 **Live Updates: Israel Promises to Retaliate After Iranian Missile Attack**\
 `The strike heightened fears that two of the Middle East’s most powerful militaries could be drawn into direct conflict. Israel’s military said it was sending more troops to southern Lebanon.`\
 https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah
