@@ -1,3 +1,7 @@
+**Broadcaster Diamond to drop 11 MLB teams**\
+`MLB's representatives said they were "sandbagged" by this news.`\
+https://nytimes.com/athletic/5812640/2024/10/02/bally-drops-11-mlb-teams/
+
 **Is It OK to Leave the U.S. If the Wrong Candidate Becomes President?**\
 `The magazine’s Ethicist columnist on modes of resistance to American electoral politics.`\
 https://nytimes.com/2024/10/02/magazine/leave-us-presidential-election-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/arts/television/vance-walz-debate.html
 **Dolphins' Odell Beckham Jr. to practice this week**\
 `Beckham signed with the Dolphins in May, but hasn't appeared in a game this year while on the PUP list.`\
 https://nytimes.com/athletic/5812265/2024/10/02/odell-beckham-jr-dolphins-injury-practice/
-
-**Wilson says Jets have identity but are 'figuring out if it’s going to work'**\
-`Wilson suggested that New York's offensive struggles are more about figuring out if their identity works.`\
-https://nytimes.com/athletic/5812387/2024/10/02/garrett-wilson-jets-offensive-identity/
 

@@ -1,3 +1,7 @@
+**Broadcaster Diamond to drop 11 MLB teams**\
+`MLB's representatives said they were "sandbagged" by this news.`\
+https://nytimes.com/athletic/5812640/2024/10/02/bally-drops-11-mlb-teams/
+
 **Is It OK to Leave the U.S. If the Wrong Candidate Becomes President?**\
 `The magazine’s Ethicist columnist on modes of resistance to American electoral politics.`\
 https://nytimes.com/2024/10/02/magazine/leave-us-presidential-election-ethics.html
