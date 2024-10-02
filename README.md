@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5811078/2024/10/02/fantasy-football-rankings-week-5
 
 **‘Nothing Left to Lose’: Britain’s Conservatives Are Surprisingly Upbeat**\
 `At its annual convention in Birmingham, the party is energized by a leadership contest and seems largely undisturbed by broader questions over its electability.`\
-https://nytimes.com/2024/10/02/world/europe/nothing-left-to-lose-britains-conservatives-are-surprisingly-upbeat.html
+https://nytimes.com/2024/10/02/world/europe/britain-conservatives.html
 
 **Catholics Meet to Chart Path Forward, but Women’s Roles Remain Unclear**\
 `The ordination of female deacons is no longer on the agenda during a global assembly at the Vatican, but will be discussed separately.`\
