@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5811858/2024/10/02/oriols-royals-astros-tigers-mets
 `The relationship between Adams and the Raiders has been bad for a while now. Tuesday was just the latest — and likely final — straw.`\
 https://nytimes.com/athletic/5811514/2024/10/02/davante-adams-raiders-trade-relationship/
 
-**Israel Vows Retaliation Against Iran, and Debate Takeaways**\
+**Israel Vows Retaliation Against Iran, and Takeaways From the Debate**\
 `Plus, Mexico’s first female president.`\
 https://nytimes.com/2024/10/02/podcasts/israel-iran-debate.html
 
