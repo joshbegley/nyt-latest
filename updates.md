@@ -1,3 +1,7 @@
+**Word of the Day: unscathed**\
+`This word has appeared in 180 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/02/learning/word-of-the-day-unscathed.html
+
 **Arsenal have many faces - they allowed them to dominate and intimidate PSG**\
 `Arsenal overcame PSG on Tuesday evening and showed different qualities throughout the game`\
 https://nytimes.com/athletic/5811098/2024/10/02/arsenal-have-many-faces-they-allowed-them-to-dominate-and-intimidate-psg/
