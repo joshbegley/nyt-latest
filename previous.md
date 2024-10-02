@@ -1,3 +1,11 @@
+**Missing Out on Coldplay’s India Tickets, Some Fans Vented — Even to Police**\
+`When 13 million people tried to buy tickets for the band’s Mumbai shows, the ticketing site crashed. Many who came up short cried foul, both online and to the authorities.`\
+https://nytimes.com/2024/10/02/world/asia/india-coldplay-tickets.html
+
+**Davante Adams trade request: Jets, Cowboys check in with Raiders**\
+`The Raiders are not in a rush to make a move until a team reaches their asking price, but Adams wants out as soon as possible, per sources.`\
+https://nytimes.com/athletic/5812288/2024/10/02/davante-adams-trade-request-update-jets-cowboys/
+
 **Mirtle: Why the 2024-25 NHL season could be the year of the comeback**\
 `Can these NHL players turn their careers around this season? Here are five inspiring stories from around the league.`\
 https://nytimes.com/athletic/5811664/2024/10/02/nhl-2024-25-season-players-comeback/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5810445/2024/10/02/23xi-racing-front-row-nascar-law
 **Barcelona sign former Juventus and Arsenal goalkeeper Szczesny**\
 `Barcelona have completed the signing of former Arsenal and Juventus goalkeeper Wojciech Szczesny on a short-term contract.`\
 https://nytimes.com/athletic/5793821/2024/10/02/barcelona-transfers-szczesny-signs/
-
-**Back from Gaza, he says he helped stop a gunman in Tel Aviv.**\
-`By Natan Odenheimer`\
-https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/back-from-gaza-he-says-he-helped-stop-a-gunman-in-tel-aviv
-
-**Sarah Snook to Make Broadway Debut in One-Woman ‘Dorian Gray’**\
-`The “Succession” actress will play all 26 characters in a stage production of the Oscar Wilde novel.`\
-https://nytimes.com/2024/10/02/theater/sarah-snook-dorian-gray-broadway.html
 

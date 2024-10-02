@@ -1,3 +1,11 @@
+**Missing Out on Coldplay’s India Tickets, Some Fans Vented — Even to Police**\
+`When 13 million people tried to buy tickets for the band’s Mumbai shows, the ticketing site crashed. Many who came up short cried foul, both online and to the authorities.`\
+https://nytimes.com/2024/10/02/world/asia/india-coldplay-tickets.html
+
+**Davante Adams trade request: Jets, Cowboys check in with Raiders**\
+`The Raiders are not in a rush to make a move until a team reaches their asking price, but Adams wants out as soon as possible, per sources.`\
+https://nytimes.com/athletic/5812288/2024/10/02/davante-adams-trade-request-update-jets-cowboys/
+
 **Sarah Snook to Make Broadway Debut in One-Woman ‘Dorian Gray’**\
 `The “Succession” actress will play all 26 characters in a stage production of the Oscar Wilde novel.`\
 https://nytimes.com/2024/10/02/theater/sarah-snook-dorian-gray-broadway.html
