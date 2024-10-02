@@ -1,3 +1,7 @@
+**“25 million illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/25-million-illegal-aliens-competing-with-americans-for-scarce-homes-is-one-of-the-most-significant-drivers-of-home-prices-in-the
+
 **Liberty takes Game 2 of WNBA semifinals, Aces on verge of elimination**\
 `Liberty will look to sweep the Aces on Friday night in Las Vegas.`\
 https://nytimes.com/athletic/5811340/2024/10/01/liberty-aces-wnba-semifinals-result/
@@ -14,8 +18,8 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/all-i-said-on-this-i
 `By Ana Swanson`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/donald-trump-was-the-guy-who-created-the-largest-trade-deficit-in-american-history-with-china
 
-**Exchange on climate change shows gulf between candidates’ views.**\
-`By Nick Corasaniti`\
+**Exchange Between Vance and Walz Shows Gulf on Climate Change Views**\
+`As Hurricane Helene made climate change an early focus of the vice-presidential debate, the running mates quickly demonstrated the stark differences between the parties on the issue.`\
 https://nytimes.com/2024/10/01/us/politics/vance-walz-debate-hurricane-climate.html
 
 **“The statute you signed into law, it says that a doctor who presides over an abortion where the baby survives — the doctor is under no obligation to provide life-saving care to a baby who survives a botched late-term abortion.”**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-you-look-at-what-
 **“Those same experts for 40 years said that if we shipped our manufacturing base off to China, we’d get cheaper goods. They lied about that.”**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/those-same-experts-for-40-years-said-that-if-we-shipped-our-manufacturing-base-off-to-china-wed-get-cheaper-goods-they-lied-abou
-
-**Best of the Best**\
-`Luke K. Schreiber mixes business with leisure.`\
-https://nytimes.com/2024/10/01/crosswords/daily-puzzle-2024-10-02.html
 
