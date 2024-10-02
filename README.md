@@ -1,3 +1,7 @@
+**Ex-Frat Leaders Sentenced in Hazing Death of Penn State Student**\
+`Brendan Young, 28, and Steven Casey, 27, will spend two to four months in prison for their roles in the 2017 death of Timothy Piazza, a 19-year-old from New Jersey.`\
+https://nytimes.com/2024/10/01/us/penn-state-hazing-death-sentencing.html
+
 **Corrections: Oct. 2, 2024**\
 `Corrections that appeared in print on Wednesday, Oct. 2, 2024.`\
 https://nytimes.com/2024/10/01/pageoneplus/corrections-oct-2-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/01/nyregion/nypd-officer-harassment-dolphin-noises.h
 **Meet the Moderators: Margaret Brennan and Norah O’Donnell of CBS News**\
 `A pair of veteran news anchors will steer the vice-presidential matchup on Tuesday between JD Vance and Tim Walz.`\
 https://nytimes.com/2024/10/01/business/media/cbs-debate-moderators-margaret-brennan-norah-odonnell.html
-
-**Conditions at Georgia Prisons Violate Constitution, Justice Dept. Says**\
-`At one facility, the body of an inmate, possibly strangled in his cell, was so decomposed that the coroner concluded he had been dead for two days without being discovered.`\
-https://nytimes.com/2024/10/01/us/politics/georgia-prison-conditions-unsafe.html
 
