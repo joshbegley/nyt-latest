@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/10/02/us/harris-trump-walz-vance-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: After V.P. Debate, Campaigns Fan Out to Swing States**\
+`Senator JD Vance of Ohio will be in Michigan on Wednesday, while his rival, Gov. Tim Walz of Minnesota, plans to be in central Pennsylvania. Vice President Kamala Harris is headed to Georgia.`\
+https://nytimes.com/live/2024/10/02/us/harris-trump-walz-vance-election
+
+**Police See No Trace of a Serial Killer in Brooklyn. But 3 Deaths Chill Nightlife.**\
+`As rumors spin on social media, revelers in one of New York City’s most popular neighborhoods for nightlife are on higher alert.`\
+https://nytimes.com/2024/10/02/us/brooklyn-deaths-avant-gardner-newtown-creek.html
+
 **NFL player poll: Taylor Swift's presence is positive for the league**\
 `Only 4.9 percent of players polled by The Athletic viewed the pop star's interest in the game as a negative.`\
 https://nytimes.com/athletic/5806056/2024/10/02/taylor-swift-nfl-player-poll/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5811644/2024/10/02/mlb-postseason-day-games/
 **Can the Celtics repeat as NBA champions? 5 things to watch in preseason**\
 `The Celtics are heading to Abu Dhabi to play the Denver Nuggets. What should we be keeping an eye on in the preseason?`\
 https://nytimes.com/athletic/5810904/2024/10/02/celtics-preseason-abu-dhabi-things-to-watch/
-
-**Guardians' path to a long-awaited World Series starts and ends with their dominant bullpen**\
-`Their quest to end their championship hex starts with not just their stars, but those relatively anonymous executioners in the bullpen, too.`\
-https://nytimes.com/athletic/5810039/2024/10/02/guardians-postseason-playoffs-bullpen-alds/
-
-**Biden to Visit the Region Gutted by Hurricane Helene**\
-`Officials are still uncovering the extent of the devastation in western North Carolina, which President Biden will view from the air. The storm killed more than 130 people in six states.`\
-https://nytimes.com/2024/10/02/us/hurricane-helene-carolinas-biden.html
-
-**Donald Trump, Crypto Bro**\
-`The former president’s views of virtual coins have shifted markedly in recognition of the emergence of this sector as a major player in campaign finance.`\
-https://nytimes.com/2024/10/02/opinion/donald-trump-crypto-bro.html
 
