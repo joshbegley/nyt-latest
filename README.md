@@ -1,3 +1,7 @@
+**At Least 60 Dead After Boat Capsizes in Nigeria**\
+`The boat was carrying about 300 people on the Niger River. Rescuers continued to search for survivors.`\
+https://nytimes.com/2024/10/02/world/africa/60-dead-drowning-nigeria.html
+
 **OpenAI Completes Deal That Values Company at $157 Billion**\
 `The A.I. start-up’s valuation has risen by more than $70 billion in nine months.`\
 https://nytimes.com/2024/10/02/technology/openai-valuation-150-billion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/world/middleeast/iran-israel-hezbollah-strikes.ht
 **The Bounce: NBA teams who'll beat expectations**\
 `Welcome to The Bounce, The Athletic’s daily NBA newsletter.`\
 https://nytimes.com/athletic/5812789/2024/10/02/nba-win-totals-free-agency-wnba-the-bounce/
-
-**On Child Care, Vance Tests a Talking Point Democrats Also Embrace**\
-`Both vice-presidential candidates say the government should spend more on child care, a rare point of agreement. But there are still major differences in how they talk about families and gender roles.`\
-https://nytimes.com/2024/10/02/us/child-care-subsidies-vance-walz-debate.html
 
