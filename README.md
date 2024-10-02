@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5811218/2024/10/01/buster-posey-sf-giants-new-direction/
 
 **LeBron James won't put expectations on JJ Redick, early-season Lakers: 'That's unfair'**\
-`As JJ Redick's first practice as head coach got underway, the ground rules and standards were set for what's to come. `\
+`As Redick's first practice as coach got underway, the ground rules and standards were set for what's to come. `\
 https://nytimes.com/athletic/5810661/2024/10/01/lebron-james-jj-redick-lakers-nba/
 
 **Tarik Skubal aced it, as usual. Now, Tigers hope 'pitching chaos' can carry them to ALDS**\
