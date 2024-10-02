@@ -1,3 +1,11 @@
+**Sarah Snook to Make Broadway Debut in One-Woman ‘Dorian Gray’**\
+`The “Succession” actress plays all 26 characters in a London stage production of the Oscar Wilde novel.`\
+https://nytimes.com/2024/10/02/theater/sarah-snook-dorian-gray-broadway.html
+
+**Carlos Alcaraz beats Jannik Sinner to forge ahead in the most exciting matchup in tennis**\
+`And then it was 6-4.`\
+https://nytimes.com/athletic/5811912/2024/10/02/alcaraz-sinner-china-open-final-result-analysis/
+
 **The Economic Cost of a New War in the Middle East**\
 `An escalation of fighting between Israel and Iran could cause oil prices to spike and send a chill through the global economy.`\
 https://nytimes.com/2024/10/02/business/dealbook/oil-prices-israel-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/israel-i
 **What Can Body Language Reveal on ‘Love Is Blind’?**\
 `As Season 7 begins, an expert says figuring out a participant’s motivation is both an art and a science.`\
 https://nytimes.com/2024/10/02/style/love-is-blind-body-language.html
-
-**The Athletic FC: Bologna realising UCL dream; Plus: What Fernandes' overturned red says about VAR**\
-`Today in TAFC: Bologna realising their 60-year dream in the Champions League. Plus: What does Bruno's red being overturned mean for VAR?`\
-https://nytimes.com/athletic/5811958/2024/10/02/bologna-champions-league-dream/
-
-**Vance and Walz Spar Over Key Policy Issues**\
-`Gov. Tim Walz of Minnesota and Senator JD Vance of Ohio debated immigration, abortion and foreign policy — and then clashed over Donald Trump’s 2020 election loss. Jazmine Ulloa, a national politics reporter for The New York Times, highlights some standout moments.`\
-https://nytimes.com/video/us/elections/100000009735478/vance-walz-policy-issues-vp-debate.html
 
