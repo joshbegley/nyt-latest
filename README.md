@@ -1,4 +1,4 @@
-**“If we open up American energy, you will get immediate pricing relief for American citizens not just in housing but a whole host of economic goods.”**\
+**“If we open up American energy, you will get immediate pricing relief for American citizens not, by the way, just in housing but in a whole host of economic goods too.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-we-open-up-american-energy-you-will-get-immediate-pricing-relief-for-american-citizens-not-just-in-housing-but-a-whole-host-o
 
