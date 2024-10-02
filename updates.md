@@ -1,3 +1,15 @@
+**The Briefing: Lille 1-0 Real Madrid - 36-game unbeaten run over and Camavinga's mixed return**\
+`The key moments and talking points from Real Madrid's shock defeat at Lille analysed and evaluated`\
+https://nytimes.com/athletic/5801018/2024/10/02/lille-real-madrid-briefing/
+
+**Gluck: For Michael Jordan, it got personal, and now he could forever change NASCAR**\
+`In suing NASCAR, Michael Jordan could alter the face of stock car racing and cement his legacy in yet another sport.`\
+https://nytimes.com/athletic/5812848/2024/10/02/michael-jordan-nascar-lawsuit-legacy/
+
+**Maybe Voters Want a Break From the Endless Combat**\
+`A glimpse at a different approach in North Carolina.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/jeff-jackson-voters-carolina
+
 **Thursday Briefing: Israeli Troops Clashed with Hezbollah**\
 `Plus, what we learned from fashion month.`\
 https://nytimes.com/2024/10/02/briefing/israel-hezbollah-debate-ukraine.html
