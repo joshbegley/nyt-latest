@@ -1,3 +1,11 @@
+**Is It OK to Leave the U.S. If the Wrong Candidate Becomes President?**\
+`The magazine’s Ethicist columnist on modes of resistance to American electoral politics.`\
+https://nytimes.com/2024/10/02/magazine/leave-us-presidential-election-ethics.html
+
+**A Piccata With a Smart, Meatless Twist**\
+`That buttery, briny combination of lemon, butter and capers is awesome on cauliflower.`\
+https://nytimes.com/2024/10/02/dining/a-piccata-with-a-smart-meatless-twist.html
+
 **Why are 23XI and Front Row suing NASCAR? Here's what you need to know**\
 `Two NASCAR Cup Series team filed a lawsuit against the league Wednesday, alleging monopolistic practices. Here's what you need to know.`\
 https://nytimes.com/athletic/5812000/2024/10/02/23xi-front-row-nascar-lawsuit-explained/
