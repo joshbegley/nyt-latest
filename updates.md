@@ -1,3 +1,7 @@
+**Live Updates: Israel Promises to Retaliate After Iranian Missile Attack**\
+`The strike heightened fears that two of the Middle East’s most powerful militaries could be drawn into direct conflict. Israel’s military said it was sending more troops to southern Lebanon.`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah
+
 **Here’s Where U.S. Forces Are Deployed in the Middle East**\
 `The Pentagon is preparing to send more troops and aircraft to the region. This is an overview of the U.S. military presence there.`\
 https://nytimes.com/2024/10/02/world/middleeast/us-troops-middle-east-map.html
