@@ -2,7 +2,7 @@
 `The “Succession” actress plays all 26 characters in a London stage production of the Oscar Wilde novel.`\
 https://nytimes.com/2024/10/02/theater/sarah-snook-dorian-gray-broadway.html
 
-**Carlos Alcaraz beats Jannik Sinner to forge ahead in the most exciting matchup in tennis**\
+**Carlos Alcaraz beats Jannik Sinner to forge further ahead in the most exciting matchup in tennis**\
 `And then it was 6-4.`\
 https://nytimes.com/athletic/5811912/2024/10/02/alcaraz-sinner-china-open-final-result-analysis/
 
