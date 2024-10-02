@@ -1,4 +1,4 @@
-**Scoop City: Are the 4-0 Vikings true contenders?**\
+**Scoop City: Schemes behind the 4-0 Vikings, true contenders**\
 `Four potential destinations for Davante Adams — a list that doesn't include the Chiefs — and a look into the Vikings' schemes`\
 https://nytimes.com/athletic/5812752/2024/10/02/scoop-are-the-4-0-vikings-true-contenders/
 
