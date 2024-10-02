@@ -21,7 +21,7 @@ https://nytimes.com/live/2024/09/25/opinion/thepoint/debate-vance-walz-family
 **Was Jesse Winker vs. Willy Adames a chewing out, or just chewing gum?**\
 `Winker: “If y’all think I am able to run and talk, you don’t know my athletic abilities. Can’t do that.”
 `\
-https://nytimes.com/athletic/5811450/2024/10/01/was-jesse-winker-vs-willy-adames-a-chewing-out-or-just-chewing-gum/
+https://nytimes.com/athletic/5811450/2024/10/01/jesse-winker-willy-adames-mets-brewers/
 
 **Ready as always, the Mets pounce on the Brewers in Game 1**\
 `The Mets continued their recent habit of snowballing innings on opponents: "It's passing the baton."`\
