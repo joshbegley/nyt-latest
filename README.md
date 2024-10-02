@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5813586/2024/10/02/dream-fire-tanisha-wright/
 `How are Elias Lindholm, Nikita Zadorov and Tyler Johnson fitting in with the Bruins? How are the lines shaping up? Here's the latest.`\
 https://nytimes.com/athletic/5813588/2024/10/02/bruins-camp-lindholm-zadorov-johnson/
 
-**Aston Villa 1 Bayern Munich 0 - How super-sub Jhon Duran scored his Champions League stunner**\
+**Aston Villa 1 Bayern Munich 0: How super-sub Jhon Duran scored his Champions League stunner**\
 `Analysis of Aston Villa's 1-0 Champions League victory over Bayern Munich`\
 https://nytimes.com/athletic/5813398/2024/10/02/villa-bayern-duran-champions-league-highlights/
 
