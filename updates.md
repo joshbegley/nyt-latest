@@ -1,3 +1,11 @@
+**Vance’s Dominant Debate Performance Shows Why He’s Trump’s Running Mate**\
+`He’s making a case for Trump’s record far more effectively than Trump has ever been capable of doing.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/vance-winning-debate
+
+**“If you look at what was so different about Donald Trump’s tax cuts, even from previous Republican tax cut plans, is that a lot of those resources went to giving more take-home pay to middle-class and working-class Americans.”**\
+`By Andrew Duehren`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-you-look-at-what-was-so-different-about-donald-trumps-tax-cuts-even-from-previous-republican-tax-cut-plans-is-that-a-lot-of-t
+
 **“Those same experts for 40 years said that if we shipped our manufacturing base off to China, we’d get cheaper goods. They lied about that.”**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/those-same-experts-for-40-years-said-that-if-we-shipped-our-manufacturing-base-off-to-china-wed-get-cheaper-goods-they-lied-abou
