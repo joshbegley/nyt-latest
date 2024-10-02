@@ -34,3 +34,7 @@ https://nytimes.com/athletic/5813510/2024/10/02/blues-bold-predictions-discussio
 `During rallies and on social media, former President Donald J. Trump has repeatedly disparaged Vice President Kamala Harris.`\
 https://nytimes.com/2024/10/02/us/politics/lara-trump-donald-trump-harris-intellect-attacks.html
 
+**Wild camp notes: Spurgeon looks like old Spurge, Fleury chirps teammates in disguise, more**\
+`After playing just 16 games last year and undergoing multiple surgeries, captain Jared Spurgeon said it's "like your first camp over again."`\
+https://nytimes.com/athletic/5813355/2024/10/02/wild-camp-jared-spurgeon-marc-andre-fleury/
+
