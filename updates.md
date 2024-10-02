@@ -1,3 +1,11 @@
+**Read the Special Counsel’s Newly Unsealed Evidence Against Trump**\
+`A sprawling legal brief by the special counsel, Jack Smith, lays out his case for why former President Donald J. Trump is not immune from prosecution on federal charges of plotting to overturn the 2020 election. It adds new details of how Mr. Trump tried to cling to power.`\
+https://nytimes.com/interactive/2024/10/02/us/trump-j6-sco-immunity-brief.html
+
+**Trump Did Not ‘Save’ Obamacare. He Just Failed to Kill It.**\
+`By trying to repeal and replace the law while president, he wound up making it popular.`\
+https://nytimes.com/2024/10/02/upshot/trump-vance-obamacare-debate.html
+
 **The Briefing: Lille 1-0 Real Madrid - 36-game unbeaten run over and Camavinga's mixed return**\
 `The key moments and talking points from Real Madrid's shock defeat at Lille analysed and evaluated`\
 https://nytimes.com/athletic/5801018/2024/10/02/lille-real-madrid-briefing/
