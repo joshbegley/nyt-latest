@@ -1,3 +1,27 @@
+**Liberty takes Game 2 of WNBA semifinals, Aces on verge of elimination**\
+`Liberty will look to sweep the Aces on Friday night in Las Vegas.`\
+https://nytimes.com/athletic/5811340/2024/10/01/liberty-aces-wnba-semifinals-result/
+
+**“Project 2025 is going to have a registry of pregnancies.”**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/project-2025-is-going-to-have-a-registry-of-pregnancies
+
+**“All I said on this is I got there this summer and misspoke on this. So I will just — that’s what I’ve said. So I was in Hong Kong and China, during the democracy protests, went in. And from that, I learned a lot of what needed to be in governance.”**\
+`By Edward Wong`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/all-i-said-on-this-is-i-got-there-this-summer-and-misspoke-on-this-so-i-will-just-thats-what-ive-said-so-i-was-in-hong-kong-and-
+
+**“Donald Trump was the guy who created the largest trade deficit in American history with China.”**\
+`By Ana Swanson`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/donald-trump-was-the-guy-who-created-the-largest-trade-deficit-in-american-history-with-china
+
+**Exchange on climate change shows gulf between candidates’ views.**\
+`By Nick Corasaniti`\
+https://nytimes.com/2024/10/01/us/politics/vance-walz-debate-hurricane-climate.html
+
+**“The statute you signed into law, it says that a doctor who presides over an abortion where the baby survives — the doctor is under no obligation to provide life-saving care to a baby who survives a botched late-term abortion.”**\
+`By Kate Zernike`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/the-statute-you-signed-into-law-it-says-that-a-doctor-who-presides-over-an-abortion-where-the-baby-survives-the-doctor-is-under-
+
 **Vance’s Dominant Debate Performance Shows Why He’s Trump’s Running Mate**\
 `He’s making a case for Trump’s record far more effectively than Trump has ever been capable of doing.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/vance-winning-debate
@@ -13,28 +37,4 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/those-same-experts-f
 **Best of the Best**\
 `Luke K. Schreiber mixes business with leisure.`\
 https://nytimes.com/2024/10/01/crosswords/daily-puzzle-2024-10-02.html
-
-**“What [Harris has] actually done instead is drive the cost of food higher by 25 percent, drive the cost of housing higher by about 60 percent.”**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/what-harris-has-actually-done-instead-is-drive-the-cost-of-food-higher-by-25-percent-drive-the-cost-of-housing-higher-by-about-6
-
-**“So there’s an application called the CBP One app, where you can go on as an illegal migrant, apply for asylum or apply for parole, and be granted legal status at the wave of a Kamala Harris open border wand.”**\
-`By Hamed Aleaziz`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/so-theres-an-application-called-the-cbp-one-app-where-you-can-go-on-as-an-illegal-migrant-apply-for-asylum-or-apply-for-parole-a
-
-**Video Footage Shows Fatal Shooting of Kentucky Judge**\
-`A preliminary hearing in the case against a former sheriff yielded details about his interactions with the slain judge before he was killed.`\
-https://nytimes.com/2024/10/01/us/kentucky-judge-sheriff-shooting-video.html
-
-**“Donald Trump hasn’t paid any federal tax in the last 15 years.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/donald-trump-hasnt-paid-any-federal-tax-in-the-last-15-years
-
-**“If you really want to make the environment cleaner, you’ve got to invest in more energy production. We haven’t built a nuclear facility — I think one in the past 40 years. Natural gas — we have to invest more in it. Kamala Harris has done the opposite.”**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-you-really-want-to-make-the-environment-cleaner-youve-got-to-invest-in-more-energy-production-we-havent-built-a-nuclear-facil
-
-**The Royals, exorcising Camden Yards demons, are playing with house money**\
-`Under the current best-of-three wild-card format, the team who wins Game 1 has gone on to win 14 of 16 times. `\
-https://nytimes.com/athletic/5811301/2024/10/01/royals-momentum-orioles-2024-wild-card/
 

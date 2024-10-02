@@ -1,3 +1,7 @@
+**The Royals, exorcising Camden Yards demons, are playing with house money**\
+`Under the current best-of-three wild-card format, the team who wins Game 1 has gone on to win 14 of 16 times. `\
+https://nytimes.com/athletic/5811301/2024/10/01/royals-momentum-orioles-2024-wild-card/
+
 **Vance’s Dominant Debate Performance Shows Why He’s Trump’s Running Mate**\
 `He’s making a case for Trump’s record far more effectively than Trump has ever been capable of doing.`\
 https://nytimes.com/live/2024/09/25/opinion/thepoint/vance-winning-debate

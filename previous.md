@@ -35,6 +35,6 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/donald-trump-hasnt-p
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-you-really-want-to-make-the-environment-cleaner-youve-got-to-invest-in-more-energy-production-we-havent-built-a-nuclear-facil
 
 **The Royals, exorcising Camden Yards demons, are playing with house money**\
-`Under the current best-of-three wild card format, the team who wins Game 1 has gone on to win 14 of 16 times. `\
+`Under the current best-of-three wild-card format, the team who wins Game 1 has gone on to win 14 of 16 times. `\
 https://nytimes.com/athletic/5811301/2024/10/01/royals-momentum-orioles-2024-wild-card/
 
