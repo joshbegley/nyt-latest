@@ -1,3 +1,7 @@
+**Like Trump, Vance Wavers on What to Do With Obamacare**\
+`JD Vance seemed to back away from a proposal to separate healthy and sick people in insurance markets, which could cause major disruption for people with pre-existing conditions.`\
+https://nytimes.com/2024/10/02/us/politics/vance-obamacare-trump-aca.html
+
 **Sleeping Through Hurricane Helene**\
 `Extreme climate was supposed to shock us into action. What happened?`\
 https://nytimes.com/2024/10/02/opinion/hurricane-helene-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5811927/2024/10/02/atletico-madrid-real-madrid-la-l
 **Knicks trade for Karl-Anthony Towns**\
 `Towns, 28, has spent all nine years of his career with the Timberwolves since being drafted No. 1 in the 2015 NBA Draft.`\
 https://nytimes.com/athletic/5800647/2024/10/02/knicks-timberwolves-trade-karl-anthony-towns-kat/
-
-**Iranian Missiles Damage Buildings in a Tel Aviv Suburb**\
-`A chunk of a missile from Iran’s overnight attack crashed on a hill in Hod Hasharon, a densely populated Tel Aviv suburb. No injuries were reported.`\
-https://nytimes.com/video/admin/100000009737492/iranian-missiles-damage-buildings-in-a-tel-aviv-suburb.html
 
