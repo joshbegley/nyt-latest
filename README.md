@@ -1,3 +1,11 @@
+**Ready as always, the Mets pounce on the Brewers in Game 1**\
+`The Mets continued their recent habit of snowballing innings on opponents: "It's passing the baton."`\
+https://nytimes.com/athletic/5811414/2024/10/01/mets-brewers-wild-card-analysis/
+
+**Actually, We Absolutely Do Need to Escalate in Iran**\
+`Iran now presents an intolerable threat to Israel, America and the liberal-international order.`\
+https://nytimes.com/2024/10/01/opinion/iran-israel-hezbollah.html
+
 **Walz Says He ‘Misspoke’ About Being in Hong Kong During Tiananmen Square Protests**\
 `At the vice-presidential debate, Gov. Tim Walz tried to dismiss a previous misstatement as insignificant and said he could be “a knucklehead at times.”`\
 https://nytimes.com/2024/10/01/us/politics/walz-debate-hong-kong-tiananmen-square.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/25-million-illegal-a
 **Liberty takes Game 2 of WNBA semifinals, Aces on verge of elimination**\
 `Liberty will look to sweep the Aces on Friday night in Las Vegas.`\
 https://nytimes.com/athletic/5811340/2024/10/01/liberty-aces-wnba-semifinals-result/
-
-**“Project 2025 is going to have a registry of pregnancies.”**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/project-2025-is-going-to-have-a-registry-of-pregnancies
-
-**“All I said on this is I got there this summer and misspoke on this. So I will just — that’s what I’ve said. So I was in Hong Kong and China, during the democracy protests, went in. And from that, I learned a lot of what needed to be in governance.”**\
-`By Edward Wong`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/all-i-said-on-this-is-i-got-there-this-summer-and-misspoke-on-this-so-i-will-just-thats-what-ive-said-so-i-was-in-hong-kong-and-
 
