@@ -1,3 +1,7 @@
+**Fantasy football rankings Week 5: Sleepers, starts, projections and more**\
+`Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
+https://nytimes.com/athletic/5811078/2024/10/02/fantasy-football-rankings-week-5-sleepers-projections-starts/
+
 **Broadcaster Diamond to drop 11 MLB teams**\
 `MLB's representatives said they were "sandbagged" by this news.`\
 https://nytimes.com/athletic/5812640/2024/10/02/bally-drops-11-mlb-teams/

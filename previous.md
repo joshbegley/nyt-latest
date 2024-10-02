@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5812640/2024/10/02/bally-drops-11-mlb-teams/
 `The magazine’s Ethicist columnist on modes of resistance to American electoral politics.`\
 https://nytimes.com/2024/10/02/magazine/leave-us-presidential-election-ethics.html
 
+**Fantasy football rankings Week 5: Sleepers, starts, projections and more**\
+`Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
+https://nytimes.com/athletic/5811078/2024/10/02/fantasy-football-rankings-week-5-sleepers-projections-starts/
+
 **A Piccata With a Smart, Meatless Twist**\
 `That buttery, briny combination of lemon, butter and capers is awesome on cauliflower.`\
 https://nytimes.com/2024/10/02/dining/a-piccata-with-a-smart-meatless-twist.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/arts/monet-turner-london-pollution.html
 **Vance and Walz’s Battle of the Network Co-Stars**\
 `In what could be the last prime-time showdown of the 2024 campaign, the supporting players performed against type.`\
 https://nytimes.com/2024/10/02/arts/television/vance-walz-debate.html
-
-**Dolphins' Odell Beckham Jr. to practice this week**\
-`Beckham signed with the Dolphins in May, but hasn't appeared in a game this year while on the PUP list.`\
-https://nytimes.com/athletic/5812265/2024/10/02/odell-beckham-jr-dolphins-injury-practice/
 
