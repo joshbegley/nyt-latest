@@ -1,3 +1,11 @@
+**Penn Station Must Expand to Improve Service, Railroads Say. But How?**\
+`After studying other ways to double capacity at the busy transit hub, the railroads that use it say they have concluded that it needs to be expanded.`\
+https://nytimes.com/2024/10/02/nyregion/penn-station-gateway.html
+
+**Soaring Temperatures Give San Francisco an ‘Extreme’ Second Summer**\
+`It’s hot in Northern California this week, and some places won’t see relief for days.`\
+https://nytimes.com/2024/10/02/weather/california-bay-area-heat-wave.html
+
 **What Happens Next in Hunter Biden’s Criminal Cases**\
 `The president’s son now confronts a daunting and uncertain process that could result in serious time behind bars when he is sentenced in his tax and gun cases in mid-December.`\
 https://nytimes.com/2024/10/02/us/politics/hunter-biden-tax-gun-case.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/opinion/pete-rose-baseball-gambling.html
 **NWSL, Tiffany & Co. unveil redesigned Shield, MVP trophies**\
 `The NWSL first partnered with Tiffany & Co. last year, kicking off their partnership with redesigned versions of the league’s Championship a`\
 https://nytimes.com/athletic/5812830/2024/10/02/nwsl-tiffany-co-shield-mvp-trophy-redesign/
-
-**At Least 60 Dead After Boat Capsizes in Nigeria**\
-`The boat was carrying about 300 people on the Niger River. Rescuers continued to search for survivors.`\
-https://nytimes.com/2024/10/02/world/africa/nigeria-boat-capsizes-deaths.html
-
-**OpenAI Completes Deal That Values Company at $157 Billion**\
-`The A.I. start-up’s valuation has risen by more than $70 billion in nine months.`\
-https://nytimes.com/2024/10/02/technology/openai-valuation-150-billion.html
 

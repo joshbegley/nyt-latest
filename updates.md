@@ -1,3 +1,11 @@
+**Penn Station Must Expand to Improve Service, Railroads Say. But How?**\
+`After studying other ways to double capacity at the busy transit hub, the railroads that use it say they have concluded that it needs to be expanded.`\
+https://nytimes.com/2024/10/02/nyregion/penn-station-gateway.html
+
+**Soaring Temperatures Give San Francisco an ‘Extreme’ Second Summer**\
+`It’s hot in Northern California this week, and some places won’t see relief for days.`\
+https://nytimes.com/2024/10/02/weather/california-bay-area-heat-wave.html
+
 **What Happens Next in Hunter Biden’s Criminal Cases**\
 `The president’s son now confronts a daunting and uncertain process that could result in serious time behind bars when he is sentenced in his tax and gun cases in mid-December.`\
 https://nytimes.com/2024/10/02/us/politics/hunter-biden-tax-gun-case.html
