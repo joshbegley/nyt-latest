@@ -1,3 +1,15 @@
+**New Evidence Was Unsealed in the Federal Election Case Against Trump**\
+`Also, Biden ordered 1,000 troops to help areas destroyed by Helene. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/10/02/briefing/new-evidence-trump-case-biden-helene.html
+
+**Blue Jays stick with front office status quo, remain 'committed to this core'**\
+`Mark Shapiro and Ross Atkins sang a familiar tune in their end-of-season press conference despite the disappointing season.`\
+https://nytimes.com/athletic/5813399/2024/10/02/blue-jays-offseason-goals-ross-atkins-mark-shapiro/
+
+**JD Vance and Tim Walz Debate Draws 43 Million Viewers**\
+`The figure is significantly lower than the vice-presidential debate in 2020.`\
+https://nytimes.com/2024/10/02/business/media/vance-walz-debate-ratings.html
+
 **Aston Villa 1 Bayern Munich 0: How super-sub Jhon Duran scored his Champions League stunner**\
 `Analysis of Aston Villa's 1-0 Champions League victory over Bayern Munich`\
 https://nytimes.com/athletic/5813398/2024/10/02/villa-bayern-duran-champions-league-highlights/
