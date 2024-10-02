@@ -1,3 +1,7 @@
+**‘Ring of Fire’ Solar Eclipse Will Be Visible in Parts of South America**\
+`Not everyone will be able to see the phenomenon, known as an annular eclipse, on Wednesday, though a partial solar eclipse may be visible in parts of Antarctica and Hawaii.`\
+https://nytimes.com/2024/10/02/science/ring-of-fire-solar-eclipse.html
+
 **Tesla Sales Increase, Suggesting Electric Car Demand Is Rebounding**\
 `The automaker reported a gain of 6.4 percent for the latest quarter, its first such increase this year.`\
 https://nytimes.com/2024/10/02/business/tesla-electric-vehicle-sales.html

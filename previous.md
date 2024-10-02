@@ -1,3 +1,7 @@
+**‘Ring of Fire’ Solar Eclipse Will Be Visible in Parts of South America**\
+`Not everyone will be able to see the phenomenon, known as an annular eclipse, on Wednesday, though a partial solar eclipse may be visible in parts of Antarctica and Hawaii.`\
+https://nytimes.com/2024/10/02/science/ring-of-fire-solar-eclipse.html
+
 **Tesla Sales Increase, Suggesting Electric Car Demand Is Rebounding**\
 `The automaker reported a gain of 6.4 percent for the latest quarter, its first such increase this year.`\
 https://nytimes.com/2024/10/02/business/tesla-electric-vehicle-sales.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/theater/sarah-snook-dorian-gray-broadway.html
 **Carlos Alcaraz beats Jannik Sinner to forge further ahead in the most exciting matchup in tennis**\
 `The two best men's tennis players in the world did not disappoint in the 10th installment of their tennis rivalry.`\
 https://nytimes.com/athletic/5811912/2024/10/02/alcaraz-sinner-china-open-final-result-analysis/
-
-**The Economic Cost of a New War in the Middle East**\
-`An escalation of fighting between Israel and Iran could cause oil prices to spike and send a chill through the global economy.`\
-https://nytimes.com/2024/10/02/business/dealbook/oil-prices-israel-iran.html
 
