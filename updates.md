@@ -1,3 +1,11 @@
+**With No Phones or Wi-Fi, North Carolina Revives the Town Meeting**\
+`Modern technology has been slow to return to mountain towns after Helene. Whiteboards and gatherings are helping residents find missing people and much-needed supplies.`\
+https://nytimes.com/2024/10/02/us/hurricane-helene-north-carolina.html
+
+**Submit your bold predictions for the Blues’ 2024-25 season**\
+`Submit your predictions here, and Blues writer Jeremy Rutherford will pick a handful to analyze in an upcoming story.`\
+https://nytimes.com/athletic/5813510/2024/10/02/blues-bold-predictions-discussion-2024/
+
 **Trump’s Insults to Harris’s Intelligence? Jokes, Lara Trump Claims.**\
 `During rallies and on social media, former President Donald J. Trump has repeatedly disparaged Vice President Kamala Harris.`\
 https://nytimes.com/2024/10/02/us/politics/lara-trump-donald-trump-harris-intellect-attacks.html

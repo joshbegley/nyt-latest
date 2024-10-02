@@ -1,3 +1,11 @@
+**The V.P. Debate Might Boost Vance and Walz, but It Probably Won’t Shift the Polls**\
+`Voters may view JD Vance and Tim Walz more positively after Tuesday’s debate. But it’s unlikely to have much impact on their choices for president.`\
+https://nytimes.com/2024/10/02/us/elections/vice-presidential-debate-polls-vance-walz.html
+
+**What to Know About the Israel-Hezbollah War**\
+`An Israeli ground operation targeting Hezbollah forces in Lebanon recalls previous wars and raises fears of worse to come.`\
+https://nytimes.com/2024/10/02/world/middleeast/israel-hezbollah-lebanon-war-history.html
+
 **With No Phones or Wi-Fi, North Carolina Revives the Town Meeting**\
 `Modern technology has been slow to return to mountain towns after Helene. Whiteboards and gatherings are helping residents find missing people and much-needed supplies.`\
 https://nytimes.com/2024/10/02/us/hurricane-helene-north-carolina.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/us/politics/trump-jan-6-case-jack-smith-evidence.
 **Beyoncé Released a Song and Levi’s Saw Its Moment**\
 `The denim brand was looking for ways to sell more apparel to women, and the megastar gave them a natural spokeswoman thanks to a song on “Cowboy Carter.”`\
 https://nytimes.com/2024/10/02/style/beyonce-levis-women.html
-
-**Stranded in North Carolina’s Mountains, ‘You Can’t Tell That the World’s Going On’**\
-`With no way for cars to get into Bat Cave, N.C., food and water have been dropped off by helicopters or carried over the river on foot or by a raft.`\
-https://nytimes.com/2024/10/02/us/helene-north-carolina-flood-bat-cave.html
-
-**Mayorkas Warns of Funding Shortfall for Rest of Hurricane Season**\
-`The homeland security secretary said FEMA, which is dealing with the destruction from Hurricane Helene, would need more money to respond to another major storm.`\
-https://nytimes.com/2024/10/02/us/politics/fema-funding-shortfall-hurricane-season.html
 
