@@ -1,3 +1,11 @@
+**What Black Voters Are Saying About Eric Adams Since His Indictment**\
+`Some Black New Yorkers are sticking by the mayor’s side after he was charged with bribery. Many expressed disappointment in him.`\
+https://nytimes.com/2024/10/02/nyregion/eric-adams-black-voters.html
+
+**How the Yankees are approaching their ALDS Game 3 pitching decision**\
+`The team doesn't plan to make the call until they get through Game 1 on Saturday. `\
+https://nytimes.com/athletic/5812779/2024/10/02/new-york-yankees-alds-game-3-pitching/
+
 **Davante Adams trade proposals: What could the Raiders get for the future Hall of Fame WR?**\
 `With teams like the Jets, Cowboys and Steelers all reportedly interested, what might the Raiders hope to get in return for their star WR?`\
 https://nytimes.com/athletic/5811325/2024/10/02/davante-adams-trade-offers-raiders-jets-steelers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/us/child-care-subsidies-vance-walz-debate.html
 **Vance vs. Walz: The Debate Reviews Are In**\
 `Readers offer assessments of the candidates’ performances while praising the debate’s civility. Also: A college president’s resignation; storm relocation.`\
 https://nytimes.com/2024/10/02/opinion/jd-vance-tim-walz-debate.html
-
-**Whole Foods Tried to Change This Cake Recipe. Customers Lost It.**\
-`The grocery chain’s Berry Chantilly cake has a cult following and an extremely vocal fan base.`\
-https://nytimes.com/2024/10/02/dining/whole-foods-berry-chantilly-cake.html
-
-**Review: ‘Good Bones,’ but Not Fleshed Out**\
-`A new play from James Ijames, who won a Pulitzer for his “Fat Ham,” has intriguing ideas about identity and community that never fully take shape.`\
-https://nytimes.com/2024/10/02/theater/good-bones-public-theater-review.html
 
