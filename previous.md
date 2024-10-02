@@ -1,3 +1,15 @@
+**The Bounce: NBA teams who'll beat expectations**\
+`Welcome to The Bounce, The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/5812789/2024/10/02/nba-win-totals-free-agency-wnba-the-bounce/
+
+**On Child Care, Vance Tests a Talking Point Democrats Also Embrace**\
+`Both vice-presidential candidates say the government should spend more on child care, a rare point of agreement. But there are still major differences in how they talk about families and gender roles.`\
+https://nytimes.com/2024/10/02/us/child-care-subsidies-vance-walz-debate.html
+
+**Vance vs. Walz: The Debate Reviews Are In**\
+`Readers offer assessments of the candidates’ performances while praising the debate’s civility. Also: A college president’s resignation; storm relocation.`\
+https://nytimes.com/2024/10/02/opinion/jd-vance-tim-walz-debate.html
+
 **Whole Foods Tried to Change This Cake Recipe. Customers Lost It.**\
 `The grocery chain’s Berry Chantilly cake has a cult following and an extremely vocal fan base.`\
 https://nytimes.com/2024/10/02/dining/whole-foods-berry-chantilly-cake.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/02/us/politics/vp-debate-vance-walz-2020-election-mi
 **Jesse Marsch calls up three uncapped players for Canada**\
 `Jesse Marsch has called up three uncapped players to his Canada squad for this month&#8217;s friendly against Panama and training camp in Montreal.`\
 https://nytimes.com/athletic/5812164/2024/10/02/canmnt-squad-announcement-jesse-marsch/
-
-**Fan survey: How high should Bruins go on Swayman? Lost faith in Neely and Sweeney?**\
-`Jeremy Swayman’s contract negotiations with the Boston Bruins have overheated. What do you think the resolution should and will be?`\
-https://nytimes.com/athletic/5812708/2024/10/02/bruins-jeremy-swayman-fan-survey/
-
-**Patriots C Andrews expected to have season-ending shoulder surgery**\
-`The six-time captain has started 121 games and won two Super Bowls with New England.`\
-https://nytimes.com/athletic/5812642/2024/10/02/patriots-david-andrews-surgery/
-
-**Broadcaster Diamond to drop 11 MLB teams**\
-`MLB's representatives said they were "sandbagged" by this news.`\
-https://nytimes.com/athletic/5812640/2024/10/02/bally-drops-11-mlb-teams/
 

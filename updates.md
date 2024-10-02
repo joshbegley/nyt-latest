@@ -1,3 +1,15 @@
+**The Bounce: NBA teams who'll beat expectations**\
+`Welcome to The Bounce, The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/5812789/2024/10/02/nba-win-totals-free-agency-wnba-the-bounce/
+
+**On Child Care, Vance Tests a Talking Point Democrats Also Embrace**\
+`Both vice-presidential candidates say the government should spend more on child care, a rare point of agreement. But there are still major differences in how they talk about families and gender roles.`\
+https://nytimes.com/2024/10/02/us/child-care-subsidies-vance-walz-debate.html
+
+**Vance vs. Walz: The Debate Reviews Are In**\
+`Readers offer assessments of the candidates’ performances while praising the debate’s civility. Also: A college president’s resignation; storm relocation.`\
+https://nytimes.com/2024/10/02/opinion/jd-vance-tim-walz-debate.html
+
 **Whole Foods Tried to Change This Cake Recipe. Customers Lost It.**\
 `The grocery chain’s Berry Chantilly cake has a cult following and an extremely vocal fan base.`\
 https://nytimes.com/2024/10/02/dining/whole-foods-berry-chantilly-cake.html
