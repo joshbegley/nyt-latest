@@ -1,3 +1,7 @@
+**Mirtle: Why the 2024-25 NHL season could be the year of the comeback**\
+`Can these NHL players turn their careers around this season? Here are five inspiring stories from around the league.`\
+https://nytimes.com/athletic/5811664/2024/10/02/nhl-2024-25-season-players-comeback/
+
 **‘Ring of Fire’ Solar Eclipse Will Be Visible in Parts of South America**\
 `Not everyone will be able to see the phenomenon, known as an annular eclipse, on Wednesday, though a partial solar eclipse may be visible in parts of Antarctica and Hawaii.`\
 https://nytimes.com/2024/10/02/science/ring-of-fire-solar-eclipse.html
