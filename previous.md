@@ -18,8 +18,8 @@ https://nytimes.com/2024/10/02/health/lenacapavir-hiv-shot-prep.html
 `Nuclear experts see Tehran as facing up to a year of hard work to master the knotty basics of building a deliverable atom bomb.`\
 https://nytimes.com/2024/10/02/science/iran-nuclear-weapon.html
 
-**Israeli strikes, including on schools and an orphanage, kill scores of people in Gaza.**\
-`By Anushka Patil`\
+**Israeli Strikes on Gaza Schools and an Orphanage Kill Scores of Palestinians, Officials Say**\
+`The Palestinian Authority’s official news agency said the Israeli military operation had included an incursion by ground troops and airstrikes.`\
 https://nytimes.com/2024/10/02/world/middleeast/israel-strikes-gaza-schools-orphanage.html
 
 **Chargers' James focused on playing 'clean football' after suspension**\

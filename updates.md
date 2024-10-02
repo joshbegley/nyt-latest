@@ -1,3 +1,7 @@
+**Israeli Strikes on Gaza Schools and an Orphanage Kill Scores of Palestinians, Officials Say**\
+`The Palestinian Authority’s official news agency said the Israeli military operation had included an incursion by ground troops and airstrikes.`\
+https://nytimes.com/2024/10/02/world/middleeast/israel-strikes-gaza-schools-orphanage.html
+
 **Israeli strikes, including on schools and an orphanage, kill scores of people in Gaza.**\
 `By Anushka Patil`\
 https://nytimes.com/2024/10/02/world/middleeast/israel-strikes-gaza-schools-orphanage.html
