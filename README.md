@@ -1,3 +1,7 @@
+**Israeli strikes, including on schools and an orphanage, kill scores of people in Gaza.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/10/02/world/israel-iran-lebanon-hezbollah/israel-strikes-gaza-schools-orphanage
+
 **Chargers' James focused on playing 'clean football' after suspension**\
 `The NFL suspended James for the Chargers’ loss to the Chiefs in Week 4 due to “repeated violations” of the player health and safety rules.`\
 https://nytimes.com/athletic/5813883/2024/10/02/chargers-derwin-james-suspension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5813852/2024/10/02/astros-justin-verlander-im-not-r
 **Eugene Gold, Brooklyn D.A. Who Led the ‘Son of Sam’ Case, Dies at 100**\
 `He prosecuted high-profile cases in the 1970s and championed Soviet Jews, but, after retiring, he ran afoul of the law himself, charged with a sex offense.`\
 https://nytimes.com/2024/10/02/nyregion/eugene-gold-dead.html
-
-**A ‘Veep’ Star Vibe Checks the Vance-Walz Showdown**\
-`“This is not a date, it’s a debate!”`\
-https://nytimes.com/2024/10/02/opinion/vance-walz-debate-vibe-check-tony-hale.html
 
