@@ -1,3 +1,7 @@
+**Tigers rally vs. Josh Hader to eliminate Astros and reach ALDS: Takeaways**\
+`Utilityman Andy Ibáñez bested the star closer in the eighth, hitting a double to clear the loaded bases and send Detroit to the ALDS.`\
+https://nytimes.com/athletic/5813522/2024/10/02/astros-tigers-game-2-josh-hader/
+
 **Man Who Set Fire to Cabin in the Grand Canyon Gets 20 Months in Prison**\
 `The 21-year-old was arrested in May, shortly after he set fire to his former girlfriend’s residence in the park, the authorities said.`\
 https://nytimes.com/2024/10/02/us/grand-canyon-cabin-arson-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/business/media/vance-walz-debate-ratings.html
 **Curious About How The Times Is Covering the Election? Send Us Your Questions.**\
 `The election is fast approaching. New York Times editors and reporters want to answer your questions about how we will cover one of the biggest nights in news.`\
 https://nytimes.com/2024/10/02/insider/nyt-election-coverage-questions.html
-
-**Atlanta Dream fire Tanisha Wright after 3 years, 15-25 season**\
-`Wright had just finished the second season of a five-year extension signed in Dec. 2022.`\
-https://nytimes.com/athletic/5813586/2024/10/02/dream-fire-tanisha-wright/
 

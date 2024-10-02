@@ -1,3 +1,7 @@
+**Tigers rally vs. Josh Hader to eliminate Astros and reach ALDS: Takeaways**\
+`Utilityman Andy Ibáñez bested the star closer in the eighth, hitting a double to clear the loaded bases and send Detroit to the ALDS.`\
+https://nytimes.com/athletic/5813522/2024/10/02/astros-tigers-game-2-josh-hader/
+
 **Man Who Set Fire to Cabin in the Grand Canyon Gets 20 Months in Prison**\
 `The 21-year-old was arrested in May, shortly after he set fire to his former girlfriend’s residence in the park, the authorities said.`\
 https://nytimes.com/2024/10/02/us/grand-canyon-cabin-arson-sentence.html
