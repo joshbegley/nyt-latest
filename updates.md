@@ -1,3 +1,7 @@
+**Ten Hag unfazed by pressure on position at Man Utd**\
+`Erik ten Hag remains confident that Manchester United will overcome their current struggles and turn their season around, while he has stated that he isn&#8217;t worried about losing his job.`\
+https://nytimes.com/athletic/5811881/2024/10/02/erik-ten-hag-manchester-united-pressure/
+
 **Jeff Hoffman, one of the Phillies' key pieces this October, is 'pitching for something'**\
 `The list of important Phillies in the postseason is long. But as the Phillies craft their pitching blueprint, all paths lead toward Hoffman.`\
 https://nytimes.com/athletic/5810716/2024/10/02/jeff-hoffman-phillies-playoffs/
