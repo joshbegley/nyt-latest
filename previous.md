@@ -1,40 +1,40 @@
-**Here’s the latest on the presidential race.**\
-`By Jonathan Weisman`\
-https://nytimes.com/live/2024/10/02/us/harris-trump-walz-vance-election/heres-the-latest-on-the-presidential-race
+**Weird & Wild: O's, Royals and ... Babe Ruth? Astros 103, Tigers 0? Mets' 'Win Improbability'**\
+`After eight-plus hours and a tidy 1,240 pitches, here are all the Weird & Wild highlights from Day One of the MLB playoffs,. `\
+https://nytimes.com/athletic/5811858/2024/10/02/oriols-royals-astros-tigers-mets-mlb-playoffs-day-1/
 
-**Election Live Updates: After V.P. Debate, Campaigns Fan Out to Swing States**\
-`Senator JD Vance of Ohio will be in Michigan on Wednesday, while his rival, Gov. Tim Walz of Minnesota, plans to be in central Pennsylvania. Vice President Kamala Harris is headed to Georgia.`\
-https://nytimes.com/live/2024/10/02/us/harris-trump-walz-vance-election
+**Tafur: Why the Davante Adams-Raiders marriage was wrong from the very beginning**\
+`The relationship between Adams and the Raiders has been bad for a while now. Tuesday was just the latest — and likely final — straw.`\
+https://nytimes.com/athletic/5811514/2024/10/02/davante-adams-raiders-trade-relationship/
 
-**Police See No Trace of a Serial Killer in Brooklyn. But 3 Deaths Chill Nightlife.**\
-`As rumors spin on social media, revelers in one of New York City’s most popular neighborhoods for nightlife are on higher alert.`\
-https://nytimes.com/2024/10/02/us/brooklyn-deaths-avant-gardner-newtown-creek.html
+**Israel Vows Retaliation Against Iran, and Debate Takeaways**\
+`Plus, Mexico’s first female president.`\
+https://nytimes.com/2024/10/02/podcasts/israel-iran-debate.html
 
-**NFL player poll: Taylor Swift's presence is positive for the league**\
-`Only 4.9 percent of players polled by The Athletic viewed the pop star's interest in the game as a negative.`\
-https://nytimes.com/athletic/5806056/2024/10/02/taylor-swift-nfl-player-poll/
+**The Walz-Vance Debate: Civility and Then a Clash**\
+`The vice-presidential candidates sparred over immigration, abortion and the Jan. 6 riot.`\
+https://nytimes.com/2024/10/02/podcasts/the-daily/walz-vance-debate.html
 
-**Ten Hag says Man United are ‘going to make a success from the season'**\
-`Erik ten Hag remains confident that Manchester United will overcome their current struggles and turn their season around, while he has stated that he isn&#8217;t worried about losing his job.`\
-https://nytimes.com/athletic/5811881/2024/10/02/erik-ten-hag-manchester-united-pressure/
+**How Xabi Alonso has evolved Bayer Leverkusen after their near-perfect season**\
+`Leverkusen are looking more streetwise - this season could be even more interesting than the last one`\
+https://nytimes.com/athletic/5811824/2024/10/02/leverkusen-xabi-alonso-tactical-evolution/
 
-**Jeff Hoffman, one of the Phillies' key pieces this October, is 'pitching for something'**\
-`The list of important Phillies in the postseason is long. But as the Phillies craft their pitching blueprint, all paths lead toward Hoffman.`\
-https://nytimes.com/athletic/5810716/2024/10/02/jeff-hoffman-phillies-playoffs/
+**Who will start next to Steph Curry as the Warriors' newest shooting guard?**\
+`With Klay Thompson departing for Dallas, a void needs to be filled in the Warriors' starting lineup.`\
+https://nytimes.com/athletic/5811692/2024/10/02/steph-curry-warriors-shooting-guard-nba/
 
-**What I'm seeing from the Atlanta Falcons: The Kyle Pitts question won't go away**\
-`Even with a new coaching staff, the Falcons are struggling to get their best offensive players going ahead of "Thursday Night Football."`\
-https://nytimes.com/athletic/5809549/2024/10/02/atlanta-falcons-observations-kyle-pitts/
+**Revisiting the trade that sent Royals Game 1 hero Cole Ragans to Kansas City**\
+`The trade of Cole Ragans for Aroldis Chapman made sense at the time. Looking back, it's essential in getting the Royals to this point. `\
+https://nytimes.com/athletic/5811374/2024/10/02/cole-ragans-kansas-city-trade-revisited/
 
-**An Ohio State freshman can't stop making jaw-dropping plays. These are the best so far**\
-`Jeremiah Smith has made an instant impact at Ohio State with a staggering number of highlight-reel catches in just four games.`\
-https://nytimes.com/athletic/5810306/2024/10/02/jeremiah-smith-ohio-state-highlights-best-plays/
+**Rangers roster projection 2.0: Edström stakes his claim, Mancini surges**\
+`With coach Peter Laviolette likely to play a full-strength roster Friday, prospects likely had their last chance to impress Tuesday night.`\
+https://nytimes.com/athletic/5811295/2024/10/02/rangers-roster-projection-edstrom-mancini/
 
-**‘The numbers don’t lie’: Why MLB’s early playoff slate features so many day games**\
-`To avoid overlapping games, MLB and its partners start early. Said one exec: “People do want the ability to watch as much as they can."`\
-https://nytimes.com/athletic/5811644/2024/10/02/mlb-postseason-day-games/
+**How long is Brayden Narveson's leash as another Packers rookie kicker struggles?**\
+`After releasing 2023 draft pick Anders Carlson this summer, the Packers claimed the undrafted Narveson and nothing has changed.`\
+https://nytimes.com/athletic/5809840/2024/10/02/packers-kicker-brayden-narveson/
 
-**Can the Celtics repeat as NBA champions? 5 things to watch in preseason**\
-`The Celtics are heading to Abu Dhabi to play the Denver Nuggets. What should we be keeping an eye on in the preseason?`\
-https://nytimes.com/athletic/5810904/2024/10/02/celtics-preseason-abu-dhabi-things-to-watch/
+**Time for Cubs to take more risks and leave comfort zone? Not so fast says Jed Hoyer**\
+`“There’s always pressure,” said the Cubs president, who has yet to make the postseason while overseeing baseball operations.`\
+https://nytimes.com/athletic/5811118/2024/10/02/chicago-cubs-jed-hoyer-risks/
 
