@@ -1,3 +1,15 @@
+**Did Apple Just Kill Social Apps?**\
+`Some app makers worry that a subtle change to the iPhone’s contact-sharing permissions could make it hard for them to get the fast growth they need to compete.`\
+https://nytimes.com/2024/10/02/technology/apple-social-apps-contacts-change.html
+
+**Sabres depth chart: How the new fourth line was built to change Buffalo's identity**\
+`In the preseason, Beck Malenstyn, Sam Lafferty and Nicolas Aube-Kubel have been the Sabres’ fastest and most physical trio.`\
+https://nytimes.com/athletic/5812118/2024/10/02/buffalo-sabres-depth-chart-2024/
+
+**Inside a Pro-Harris Ad Telling Hispanic Voters She’s Friendlier Than Trump**\
+`An ad from two Democratic groups skates over Kamala Harris’s tough recent stance on border security and instead focuses on her more immigration-friendly plans.`\
+https://nytimes.com/2024/10/02/us/politics/harris-ad-hispanic-voters-trump.html
+
 **Israel Confirms 1st Military Death in Lebanon Invasion**\
 `The military identified the soldier as Capt. Eitan Itzhak Oster, 22, from central Israel, but did not specify where he was killed.`\
 https://nytimes.com/2024/10/02/world/middleeast/israel-soldier-killed-lebanon-invasion.html
