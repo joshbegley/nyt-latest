@@ -1,3 +1,11 @@
+**Whole Foods Tried to Change This Cake Recipe. Customers Lost It.**\
+`The grocery chain’s Berry Chantilly cake has a cult following and an extremely vocal fan base.`\
+https://nytimes.com/2024/10/02/dining/whole-foods-berry-chantilly-cake.html
+
+**Review: ‘Good Bones,’ but Not Fleshed Out**\
+`A new play from James Ijames, who won a Pulitzer for his “Fat Ham,” has intriguing ideas about identity and community that never fully take shape.`\
+https://nytimes.com/2024/10/02/theater/good-bones-public-theater-review.html
+
 **Scoop City: Schemes behind the 4-0 Vikings, true contenders**\
 `Four potential destinations for Davante Adams — a list that doesn't include the Chiefs — and a look into the Vikings' schemes`\
 https://nytimes.com/athletic/5812752/2024/10/02/scoop-are-the-4-0-vikings-true-contenders/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5812642/2024/10/02/patriots-david-andrews-surgery/
 **Broadcaster Diamond to drop 11 MLB teams**\
 `MLB's representatives said they were "sandbagged" by this news.`\
 https://nytimes.com/athletic/5812640/2024/10/02/bally-drops-11-mlb-teams/
-
-**Is It OK to Leave the U.S. If the Wrong Candidate Becomes President?**\
-`The magazine’s Ethicist columnist on modes of resistance to American electoral politics.`\
-https://nytimes.com/2024/10/02/magazine/leave-us-presidential-election-ethics.html
-
-**Fantasy football rankings Week 5: Sleepers, starts, projections and more**\
-`Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
-https://nytimes.com/athletic/5811078/2024/10/02/fantasy-football-rankings-week-5-sleepers-projections-starts/
 
