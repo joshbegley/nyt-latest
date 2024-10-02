@@ -1,3 +1,19 @@
+**Fantasy football rankings Week 5: Sleepers, projections, starts**\
+`Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
+https://nytimes.com/athletic/5811078/2024/10/02/fantasy-football-rankings-week-5-sleepers-projections-starts/
+
+**‘Nothing Left to Lose’: Britain’s Conservatives Are Surprisingly Upbeat**\
+`At its annual convention in Birmingham, the party is energized by a leadership contest and seems largely undisturbed by broader questions over its electability.`\
+https://nytimes.com/2024/10/02/world/europe/britain-conservatives.html
+
+**Catholics Meet to Chart Path Forward, but Women’s Roles Remain Unclear**\
+`The ordination of female deacons is no longer on the agenda during a global assembly at the Vatican, but will be discussed separately.`\
+https://nytimes.com/2024/10/02/world/europe/catholics-meet-to-chart-path-forward-but-womens-roles-remain-unclear.html
+
+**Quote of the Day: Warmly Received in Asia, Pope Feels Chill in Belgium**\
+`Quotation of the Day for Wednesday, October 2, 2024.`\
+https://nytimes.com/2024/10/01/pageoneplus/quote-of-the-day-warmly-received-in-asia-pope-feels-chill-in-belgium.html
+
 **Walz Misspeaks During Vice-Presidential Debate**\
 `Gov. Tim Walz mixed up Iran and Israel, and said he became “friends with school shooters,” when talking about empathizing with Sandy Hook parents.`\
 https://nytimes.com/video/us/elections/100000009735837/walz-misspeaks-during-vice-presidential-debate.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/us/elections/100000009735817/gov-walz-criticizes-trump
 **Brewers pull Freddy Peralta early, then watch as bullpen plan goes up in smoke**\
 `"I don't understand the reason I was taken out of the game," the pitcher said of Pat Murphy's decision as the Brewers now face elimination.`\
 https://nytimes.com/athletic/5811569/2024/10/01/brewers-bullpen-freddy-peralta-pat-murphy/
-
-**At a Georgia watch party, few students see the debate as a tiebreaker.**\
-`By Alan Blinder`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/at-a-georgia-watch-party-few-see-the-debate-as-a-tiebreaker
-
-**Walz Says His Teenage Son Witnessed Shooting**\
-`Gov. Tim Walz, mentioning his family’s exposure to gun violence, made the case for stricter gun control laws.`\
-https://nytimes.com/2024/10/01/us/politics/walz-debate-son-shooting.html
-
-**“This epidemic of violence, the gross majority — close to 90 percent in some of the statistics I’ve seen — of the gun violence in this country is committed with illegally obtained firearms.”**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance/this-epidemic-of-violence-the-gross-majority-close-to-90-percent-in-some-of-the-statistics-ive-seen-of-the-gun-violence-in-this-
-
-**Debate Fact Check: Vance and Walz on the Economy, Abortion and Housing**\
-`Gov. Tim Walz was pressed on his time in China and Senator JD Vance on his assertion that there was a peaceful transfer of power in 2021 in a vice-presidential debate largely focused on policy.`\
-https://nytimes.com/live/2024/10/01/us/factcheck-walz-vance
 
