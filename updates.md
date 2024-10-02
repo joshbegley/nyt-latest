@@ -1,3 +1,11 @@
+**What Can Body Language Reveal on ‘Love Is Blind’?**\
+`As Season 7 begins, an expert says figuring out a participant’s motivation is both an art and a science.`\
+https://nytimes.com/2024/10/02/style/love-is-blind-body-language.html
+
+**The Athletic FC: Bologna realising UCL dream; Plus: What Fernandes' overturned red says about VAR**\
+`Today in TAFC: Bologna realising their 60-year dream in the Champions League. Plus: What does Bruno's red being overturned mean for VAR?`\
+https://nytimes.com/athletic/5811958/2024/10/02/bologna-champions-league-dream/
+
 **Vance and Walz Spar Over Key Policy Issues**\
 `Gov. Tim Walz of Minnesota and Senator JD Vance of Ohio debated immigration, abortion and foreign policy — and then clashed over Donald Trump’s 2020 election loss. Jazmine Ulloa, a national politics reporter for The New York Times, highlights some standout moments.`\
 https://nytimes.com/video/us/elections/100000009735478/vance-walz-policy-issues-vp-debate.html
