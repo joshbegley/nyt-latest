@@ -1,3 +1,28 @@
+**The reason child care is “so expensive right now is because you’ve got way too few people providing this very essential service.”**\
+`By Dana Goldstein`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/the-reason-child-care-is-so-expensive-right-now-is-because-youve-got-way-too-few-people-providing-this-very-essential-service
+
+**CBS tried to find a middle ground on fact-checking. Vance jumped into the gap.**\
+`By Michael M. Grynbaum`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/cbs-debate-fact-checking-vance
+
+**Donald Trump “introduced pricing transparency. Think about health care. You go into a hospital, you try to buy something and nobody knows what it actually costs. That price transparency will actually give American consumers a little bit more choice and will also drive down costs.”**\
+`By Margot Sanger-Katz`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/donald-trump-introduced-pricing-transparency-think-about-health-care-you-go-into-a-hospital-you-try-to-buy-something-and-nobody-
+
+**“We need to figure out how to solve the inflation crisis caused by Kamala Harris’s policies.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/we-need-to-figure-out-how-to-solve-the-inflation-crisis-caused-by-kamala-harriss-policies
+
+**It Will Take a Lot More for America to Trust Vance on Family Policy**\
+`I don’t care how many women he claims to know.`\
+https://nytimes.com/live/2024/09/25/opinion/thepoint/debate-vance-walz-family
+
+**Was Jesse Winker vs. Willy Adames a chewing out, or just chewing gum?**\
+`Winker: “If y’all think I am able to run and talk, you don’t know my athletic abilities. Can’t do that.”
+`\
+https://nytimes.com/athletic/5811450/2024/10/01/jesse-winker-willy-adames-mets-brewers/
+
 **Was Jesse Winker vs. Willy Adames a chewing out, or just chewing gum?**\
 `Winker: “If y’all think I am able to run and talk, you don’t know my athletic abilities. Can’t do that.”
 `\
