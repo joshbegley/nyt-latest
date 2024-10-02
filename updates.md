@@ -1,3 +1,7 @@
+**Ex-Frat Leaders Sentenced in Hazing Death of Penn State Student**\
+`Brendan Young, 28, and Steven Casey, 27, will spend two to four months in prison for their roles in the 2017 death of Timothy Piazza, a 19-year-old from New Jersey.`\
+https://nytimes.com/2024/10/01/us/penn-state-hazing-death-sentencing.html
+
 **Corrections: Oct. 2, 2024**\
 `Corrections that appeared in print on Wednesday, Oct. 2, 2024.`\
 https://nytimes.com/2024/10/01/pageoneplus/corrections-oct-2-2024.html
