@@ -1,40 +1,40 @@
-**Where Literary Ghosts Linger: A Book Critic Goes to Dublin**\
-`The Irish city, once home to the likes of James Joyce and Oscar Wilde, is known for its bookstores, libraries and pubs, where writers found inspiration over pints of Guinness.`\
-https://nytimes.com/2024/10/02/travel/literary-dublin.html
+**Can the Celtics repeat as NBA champions? 5 things to watch in preseason**\
+`The Celtics are heading to Abu Dhabi to play the Denver Nuggets. What should we be keeping an eye on in the preseason?`\
+https://nytimes.com/athletic/5810904/2024/10/02/celtics-preseason-abu-dhabi-things-to-watch/
 
-**R.L. Stine’s Favorite Halloween Books Will Give Your Kids Goosebumps**\
-`As spooky season approaches, the master of children’s horror recommends creepy-crawly classics and modern thrills for young readers.`\
-https://nytimes.com/2024/10/02/books/halloween-books-kids-rl-stine.html
+**Guardians' path to a long-awaited World Series starts and ends with their dominant bullpen**\
+`Their quest to end their championship hex starts with not just their stars, but those relatively anonymous executioners in the bullpen, too.`\
+https://nytimes.com/athletic/5810039/2024/10/02/guardians-postseason-playoffs-bullpen-alds/
 
-**Read Your Way Around Hawaii**\
-`To read Hawaii is to understand that much of it will never be accessible to the masses. The writer Megan Kamalei Kakimoto recommends books that illuminate the islands’ rich history and storytelling spirit.`\
-https://nytimes.com/2024/10/02/books/booksupdate/hawaii-books-literature.html
+**Biden to Visit the Region Gutted by Hurricane Helene**\
+`Officials are still uncovering the extent of the devastation in western North Carolina, which President Biden will view from the air. The storm killed more than 130 people in six states.`\
+https://nytimes.com/2024/10/02/us/hurricane-helene-carolinas-biden.html
 
-**New Mexico Is Where the Outlaw Artists Live**\
-`Over the past century, the state has provided refuge for renegades like Agnes Martin and Judy Chicago. It still does, even with a new wave of arrivals closing in.`\
-https://nytimes.com/2024/10/02/t-magazine/new-mexico-artists.html
+**Donald Trump, Crypto Bro**\
+`The former president’s views of virtual coins have shifted markedly in recognition of the emergence of this sector as a major player in campaign finance.`\
+https://nytimes.com/2024/10/02/opinion/donald-trump-crypto-bro.html
 
-**Patrick Mahomes' turnover woes, Derrick Henry's dominance, more from Week 4: Quick Outs**\
-`Mahomes and Trevor Lawrence are both making mistakes, although only one's paying for them with losses. `\
-https://nytimes.com/athletic/5809115/2024/10/02/nfl-week-4-derrick-henry-patrick-mahomes/
+**Attitudes About Nasrallah Appear More Positive in Middle East Since His Death**\
+`Sentiment about the Hezbollah leader shifted after the Israeli strike that killed him, partly reflecting anger toward Israel, according to an analysis.`\
+https://nytimes.com/2024/10/02/us/politics/nasrallah-hezbollah-opinions.html
 
-**Visiting a Disney Park? Here’s How to Spend Less Time in Line.**\
-`Long waits can take a bite out of the magic at places like Walt Disney World and Disneyland. There are ways to speed things up, but be prepared to pay more.`\
-https://nytimes.com/2024/10/02/travel/disney-world-disneyland-lines.html
+**Should We Abolish the Penny?**\
+`Each year the U.S. Mint produces billions of pennies. Many are hardly ever used. Are these small copper-colored coins worth the trouble?`\
+https://nytimes.com/2024/10/02/learning/should-we-abolish-the-penny.html
 
-**Vegas Golden Knights 2024-25 season preview: Playoff chances, projected points, roster rankings**\
-`With some exceptional strengths and debilitating weaknesses, Vegas could go on another run or fall to a new low.`\
-https://nytimes.com/athletic/5794961/2024/10/02/vegas-golden-knights-2024-25-season-preview/
+**Apple’s A.I. Is Landing Soon on iPhones. Here’s What It’s Like.**\
+`The initial version of Apple Intelligence focuses on helping you with words and photos. Prepare to be impressed and unnerved.`\
+https://nytimes.com/2024/10/02/technology/personaltech/apple-intelligence-iphone.html
 
-**College football's four-game redshirt rule had odd exceptions well before Matthew Sluka**\
-`The redshirt rule is a classic college sports story of unintended consequences and conflicting incentives.`\
-https://nytimes.com/athletic/5811417/2024/10/02/matthew-sluka-college-football-redshirt-rules/
+**Why Nicole Kidman Drives Her Critics Crazy**\
+`She’s everywhere, and she’s giving a lot of work to female talent. Is that such a bad thing?`\
+https://nytimes.com/2024/10/02/opinion/nicole-kidman-female-gaze.html
 
-**The Best Trend of Fashion Month. And the Worst.**\
-`Louis Vuitton, Chanel and Miu Miu bring Paris Fashion Week to a close with some important takeaways.`\
-https://nytimes.com/2024/10/02/style/louis-vuitton-chanel-miu-miu-trends.html
+**What do Army and Navy's historic starts mean for AAC championship? CFP?**\
+`Army and Navy are both 4-0 for the first time since 1945. But don’t expect any national unity between the two rivals.`\
+https://nytimes.com/athletic/5811105/2024/10/02/army-navy-college-football-undefeated/
 
-**Here’s Where U.S. Forces Are Deployed in the Middle East**\
-`The Pentagon is preparing to send more troops and aircraft to the region. This is an overview of the U.S. military presence there.`\
-https://nytimes.com/2024/10/02/world/middleeast/us-troops-middle-east-map.html
+**A Venture Capital Firm Does Something Rare: Give Money Back**\
+`CRV, based in Silicon Valley, plans to return to investors $275 million because the market for mature start-ups has soured.`\
+https://nytimes.com/2024/10/02/technology/crv-vc-fund-returning-money.html
 
