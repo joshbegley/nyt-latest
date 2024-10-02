@@ -1,7 +1,3 @@
-**49ers' Kalia Davis is back, but the 49ers are still waiting on Ricky Pearsall**\
-`The 49ers practiced without Fred Warner, George Kittle and several others, though the heat and their schedule were factors on Wednesday.`\
-https://nytimes.com/athletic/5813895/2024/10/02/49ers-injuries-ricky-pearsall-kalia-davis/
-
 **Royals hold the line on strikeout hit-by-pitch**\
 `The play could have changed the game. Instead, the score remained tied. `\
 https://nytimes.com/athletic/5813909/2024/10/02/royals-hold-the-line-against-orioles-via-strikeout-hit-by-pitch/
@@ -31,10 +27,14 @@ https://nytimes.com/athletic/5813883/2024/10/02/chargers-derwin-james-suspension
 https://nytimes.com/2024/10/02/world/middleeast/israel-hezbollah-lebanon.html
 
 **After Flooding, FEMA Aid Is Arriving. But Some Are Still on Their Own.**\
-`Six days after Hurricane Helene, North Carolina was getting help from the Federal Emergency Management Agency and others. But officials still faced obstacles to reaching some areas.`\
+`Six days after Hurricane Helene, North Carolina was getting help from the Federal Emergency Management Agency and others. But officials still faced obstacles reaching some areas.`\
 https://nytimes.com/2024/10/02/us/fema-floods-north-carolina.html
 
 **Champions League Briefing: Decisive Duran, David downs Real Madrid and Juventus's classic comeback**\
 `The Athletic breaks down the main talking points from the second night of matchday two in the Champions League's league phase`\
 https://nytimes.com/athletic/5813261/2024/10/02/champions-league-briefing-matchday-aston-villa-real-madrid-juventus/
+
+**Transcript: Ezra Klein on the V.P. Debate**\
+`The Oct. 2, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/10/02/podcasts/transcript-ezra-klein-vp-debate.html
 
