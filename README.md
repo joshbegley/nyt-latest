@@ -1,3 +1,11 @@
+**A Storm, a Strike and War Abroad Pose Challenges for Harris**\
+`Scenes of striking workers, hurricane devastation in the Southeast and missiles over Israel represent a rare moment of turbulence for Kamala Harris.`\
+https://nytimes.com/2024/10/02/us/politics/harris-israel-iran-helene-port-strike.html
+
+**Gilead Agrees to Allow Generic Version of Groundbreaking H.I.V. Shot in Poor Countries**\
+`Many middle-income countries are left out of the deal, widening a gulf in access to critical medicines.`\
+https://nytimes.com/2024/10/02/health/lenacapavir-hiv-shot-prep.html
+
 **To Build a Nuclear Bomb, Iran Would Need Much More Than Weeks**\
 `Nuclear experts see Tehran as facing up to a year of hard work to master the knotty basics of building a deliverable atom bomb.`\
 https://nytimes.com/2024/10/02/science/iran-nuclear-weapon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/podcasts/transcript-ezra-klein-vp-debate.html
 **The Jewish New Year Is Far More Bitter Than Sweet in Israel**\
 `On Rosh Hashana, many Israelis longed for a return to normalcy after a year of escalating wars for the country.`\
 https://nytimes.com/2024/10/02/world/middleeast/israel-rosh-hashana.html
-
-**Harris Visits Georgia After Hurricane Helene, Promising Federal Help**\
-`The vice president said federal money would play a major role in storm recovery efforts as she met with local officials in Augusta, Ga., and helped hand out food and snacks.`\
-https://nytimes.com/2024/10/02/us/politics/harris-georgia-hurricane-helene.html
-
-**Justin Verlander not ready to retire, he says**\
-`Verlander put up a 5.48 ERA at age 41, and would be a free agent this winter.`\
-https://nytimes.com/athletic/5813852/2024/10/02/astros-justin-verlander-im-not-ready-to-step-away-yet/
 
