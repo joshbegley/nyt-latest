@@ -1,3 +1,7 @@
+**OpenAI Completes Deal That Values Company at $157 Billion**\
+`The A.I. start-up’s valuation has risen by more than $70 billion in nine months.`\
+https://nytimes.com/2024/10/02/technology/openai-valuation-150-billion.html
+
 **What Black Voters Are Saying About Eric Adams Since His Indictment**\
 `Some Black New Yorkers are sticking by the mayor’s side after he was charged with bribery. Many expressed disappointment in him.`\
 https://nytimes.com/2024/10/02/nyregion/eric-adams-black-voters.html

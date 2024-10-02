@@ -1,3 +1,7 @@
+**OpenAI Completes Deal That Values Company at $157 Billion**\
+`The A.I. start-up’s valuation has risen by more than $70 billion in nine months.`\
+https://nytimes.com/2024/10/02/technology/openai-valuation-150-billion.html
+
 **What Black Voters Are Saying About Eric Adams Since His Indictment**\
 `Some Black New Yorkers are sticking by the mayor’s side after he was charged with bribery. Many expressed disappointment in him.`\
 https://nytimes.com/2024/10/02/nyregion/eric-adams-black-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5812789/2024/10/02/nba-win-totals-free-agency-wnba-
 **On Child Care, Vance Tests a Talking Point Democrats Also Embrace**\
 `Both vice-presidential candidates say the government should spend more on child care, a rare point of agreement. But there are still major differences in how they talk about families and gender roles.`\
 https://nytimes.com/2024/10/02/us/child-care-subsidies-vance-walz-debate.html
-
-**Vance vs. Walz: The Debate Reviews Are In**\
-`Readers offer assessments of the candidates’ performances while praising the debate’s civility. Also: A college president’s resignation; storm relocation.`\
-https://nytimes.com/2024/10/02/opinion/jd-vance-tim-walz-debate.html
 
