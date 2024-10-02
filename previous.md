@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5813883/2024/10/02/chargers-derwin-james-suspension
 https://nytimes.com/2024/10/02/world/middleeast/israel-hezbollah-lebanon.html
 
 **After Flooding, FEMA Aid Is Arriving. But Some Are Still on Their Own.**\
-`Six days after Hurricane Helene, North Carolina was getting help from the Federal Emergency Management Agency and others. But officials still faced obstacles to reaching some areas.`\
+`Six days after Hurricane Helene, North Carolina was getting help from the Federal Emergency Management Agency and others. But officials still faced obstacles reaching some areas.`\
 https://nytimes.com/2024/10/02/us/fema-floods-north-carolina.html
 
 **Champions League Briefing: Decisive Duran, David downs Real Madrid and Juventus's classic comeback**\

@@ -1,3 +1,7 @@
+**After Flooding, FEMA Aid Is Arriving. But Some Are Still on Their Own.**\
+`Six days after Hurricane Helene, North Carolina was getting help from the Federal Emergency Management Agency and others. But officials still faced obstacles reaching some areas.`\
+https://nytimes.com/2024/10/02/us/fema-floods-north-carolina.html
+
 **Royals hold the line on strikeout hit-by-pitch**\
 `The play could have changed the game. Instead, the score remained tied. `\
 https://nytimes.com/athletic/5813909/2024/10/02/royals-hold-the-line-against-orioles-via-strikeout-hit-by-pitch/
