@@ -1,3 +1,15 @@
+**The Campaigns Need Younger People to Vote. Did the V.P. Debate Help?**\
+`At three colleges, there were snacks, big screens and homework assignments. But energy and enthusiasm were sparse — and by the end, even more so.`\
+https://nytimes.com/2024/10/02/us/politics/vice-presidential-debate-voter-reaction.html
+
+**Who Won the Debate? A Crisp Vance Fends Off Walz**\
+`The vice-presidential candidates largely avoided personal attacks, with JD Vance showing a knack for revising history while Tim Walz appeared to battle nerves.`\
+https://nytimes.com/2024/10/02/us/politics/who-won-debate-vance-walz.html
+
+**The Moment When a Vance Non-Answer Said Plenty**\
+`JD Vance sailed fairly smoothly through some 90 minutes of Tuesday’s debate with Tim Walz. Then the subject turned to the Jan. 6, 2021, attack on the Capitol.`\
+https://nytimes.com/2024/10/02/us/politics/vance-jan-6-debate.html
+
 **Taiwan Closes Schools and Workplaces as Typhoon Krathon Nears**\
 `The storm has already injured 46 people and forced thousands of evacuations, the authorities said, warning that torrential rain could cause landslides and flooding.`\
 https://nytimes.com/2024/10/02/world/taiwan-typhoon-krathon.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5809322/2024/10/02/mohammed-kudus-julen-lopetegui-w
 **Brighton won't have to rely on Joao Pedro - thanks to Georginio Rutter**\
 `Brighton are currently missing their main goal-getter, but summer signing Rutter, who is now off the mark, offers the same kind of dynamism`\
 https://nytimes.com/athletic/5782093/2024/10/02/brighton-georginio-rutter-joao-pedro/
-
-**What Iliman Ndiaye brings to Everton: 'It’s no surprise he’s compared to Steven Pienaar'**\
-`The summer signing from Marseille has settled in well and is already integral to Sean Dyche's team, offering industry as well as creativity`\
-https://nytimes.com/athletic/5808928/2024/10/02/everton-ndiaye-pienaar-osman/
-
-**Johnson and Solanke are the future of Spurs' attack - and they're looking bright**\
-`With Kane gone, and Son getting older, can two younger players fill the void?`\
-https://nytimes.com/athletic/5797799/2024/10/02/johnson-solanke-spurs-son-kane/
-
-**Should Chelsea be worried about their discipline problem?**\
-`Chelsea are top of the bookings table this season, having broken the record for the most last campaign`\
-https://nytimes.com/athletic/5808802/2024/10/02/chelsea-discipline-yellow-cards/
 
