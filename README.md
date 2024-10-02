@@ -1,3 +1,31 @@
+**Detroit native Hunter Brown dreamed of pitching for Tigers, and now must tame them for Astros**\
+`Houston’s entire uneven season rests on the right arm of Brown, a Detroit native who went to college less than two miles from Comerica Park.`\
+https://nytimes.com/athletic/5811240/2024/10/01/hunter-brown-astros-tigers-game-2/
+
+**“Iran, which launched this attack, has received over $100 billion in unfrozen assets thanks to the Kamala Harris administration. What did they use that money for? They used it to buy weapons that they are now launching against our allies and God forbid, potentially launching against the United States as well.”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/iran-which-launched-this-attack-has-received-over-100-billion-in-unfrozen-assets-thanks-to-the-kamala-harris-administration-what
+
+**“You’ve got housing totally unaffordable because we brought in millions of illegal immigrants to compete with Americans for scarce homes.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/youve-got-housing-totally-unaffordable-because-we-brought-in-millions-of-illegal-immigrants-to-compete-with-americans-for-scarce
+
+**“This idea that carbon emissions drives all of climate change — let’s just say that’s true, just for the sake of argument.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/this-idea-that-carbon-emissions-drives-all-of-climate-change-lets-just-say-thats-true-just-for-the-sake-of-argument
+
+**“Right now in this country, Margaret, we have 320,000 children that the Department of Homeland Security has effectively lost. Some of them have been sex trafficked.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/right-now-in-this-country-margaret-we-have-320000-children-that-the-department-of-homeland-security-has-effectively-lost-some-of
+
+**Review: Daniel Dae Kim as a Playwright Unmasked in ‘Yellow Face’**\
+`David Henry Hwang’s 2007 play, now in a fine Broadway revival, is a pointed critique of identity, masquerading as a mockumentary.`\
+https://nytimes.com/2024/10/01/theater/yellow-face-review-daniel-dae-kim.html
+
+**“We are the cleanest economy in the entire world.”**\
+`By Coral Davenport`\
+https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/we-are-the-cleanest-economy-in-the-entire-world
+
 **Ex-Frat Leaders Sentenced in Hazing Death of Penn State Student**\
 `Brendan Young, 28, and Steven Casey, 27, will spend two to four months in prison for their roles in the 2017 death of Timothy Piazza, a 19-year-old from New Jersey.`\
 https://nytimes.com/2024/10/01/us/penn-state-hazing-death-sentencing.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/10/01/pageoneplus/corrections-oct-2-2024.html
 **New Giants president Buster Posey asked for the ball — and the accountability**\
 `Posey admits he has a lot to learn, but one thing he won't have to learn is the importance of the Giants to their community.`\
 https://nytimes.com/athletic/5811218/2024/10/01/buster-posey-sf-giants-new-direction/
-
-**LeBron James won't put expectations on JJ Redick, early-season Lakers: 'That's unfair'**\
-`As Redick's first practice as coach got underway, the ground rules and standards were set for what's to come. `\
-https://nytimes.com/athletic/5810661/2024/10/01/lebron-james-jj-redick-lakers-nba/
-
-**Tarik Skubal aced it, as usual. Now, Tigers hope 'pitching chaos' can carry them to ALDS**\
-`After Skubal dominated, the Tigers are in their ideal position: They can mix and match their pitching, with two chances to win. `\
-https://nytimes.com/athletic/5811157/2024/10/01/tarik-skubal-tigers-pitching-chaos/
-
-**Mets' Severino delivers in Game 1 win over Brewers: Takeaways**\
-`A five-run outburst in the top of the fifth propelled the Mets to an 8-4 win in Game 1 of the Wild Card Series.`\
-https://nytimes.com/athletic/5811008/2024/10/01/mets-brewers-wild-card-game-luis-severino-freddy-peralta/
-
-**Here’s how the CBS moderators will (or won’t) fact-check the V.P. candidates.**\
-`By Michael M. Grynbaum`\
-https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/cbs-vp-debate-fact-checking
-
-**LeBrun rumblings: CBA talks, cap estimate, expansion, McDavid extension and more from Board of Governors**\
-`Also from the Board of Governors meeting Tuesday in New York: Ullmark extension talks, ownership stakes and a Blue Jackets cap resolution.`\
-https://nytimes.com/athletic/5811099/2024/10/01/nhl-cba-salary-cap-expansion-bog/
-
-**He Called 311 on the Police. They Called Back Making Dolphin Sounds.**\
-`Officer Brendan Sullivan was hit with a fine for harassing a Brooklyn resident who had complained about illegally parked police cruisers.`\
-https://nytimes.com/2024/10/01/nyregion/nypd-officer-harassment-dolphin-noises.html
-
-**Meet the Moderators: Margaret Brennan and Norah O’Donnell of CBS News**\
-`A pair of veteran news anchors will steer the vice-presidential matchup on Tuesday between JD Vance and Tim Walz.`\
-https://nytimes.com/2024/10/01/business/media/cbs-debate-moderators-margaret-brennan-norah-odonnell.html
 
