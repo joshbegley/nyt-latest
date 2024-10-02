@@ -1,3 +1,11 @@
+**Gov. Walz Criticizes Trump’s Record on Roe v. Wade**\
+`Gov. Tim Walz attacked former President Donald J. Trump’s record on abortion — and then turned to the stories of women living with the consequences of abortion bans.`\
+https://nytimes.com/video/us/elections/100000009735817/gov-walz-criticizes-trumps-record-on-roe-v-wade.html
+
+**Brewers pull Freddy Peralta early, then watch as bullpen plan goes up in smoke**\
+`MILWAUKEE — There’s a ceremonial locker in the Milwaukee Brewers’ clubhouse for Rollie Fingers, the greatest reliever in the history of the franchise.`\
+https://nytimes.com/athletic/5811569/2024/10/01/brewers-bullpen-freddy-peralta-pat-murphy/
+
 **At a Georgia watch party, few see the debate as a tiebreaker.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/at-a-georgia-watch-party-few-see-the-debate-as-a-tiebreaker
