@@ -1,4 +1,12 @@
-**Royals sweep aside Orioles to advance to AL Division Series vs. Yankees: Takeaways**\
+**Walz Spoke of Gun Violence Affecting His Son. Here’s an Account of the Shooting.**\
+`At Tuesday’s debate, Gov. Tim Walz said that his son, Gus Walz, witnessed a shooting at a community center. A volleyball coach said Gus helped other young players to safety.`\
+https://nytimes.com/2024/10/02/us/walz-son-shooting.html
+
+**Jets, Steelers are betting favorites to land Raiders' Davante Adams**\
+`As NFL teams inquire about the Raiders' star receiver, here's what the betting odds reveal about Adams' most likely landing spots.`\
+https://nytimes.com/athletic/5813690/2024/10/02/davante-adams-next-team-odds-jets-steelers/
+
+**Royals' arms Orioles to advance to AL Division Series vs. Yankees: Takeaways**\
 `Royals pitching held down the Orioles over both games, and the Royals scraped together runs with their speed while the Orioles struck out.`\
 https://nytimes.com/athletic/5814018/2024/10/02/royals-sweep-orioles-wild-card-series/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/world/middleeast/israel-strikes-gaza-schools-orph
 **Chargers' James focused on playing 'clean football' after suspension**\
 `The NFL suspended James for the Chargers’ loss to the Chiefs in Week 4 due to “repeated violations” of the player health and safety rules.`\
 https://nytimes.com/athletic/5813883/2024/10/02/chargers-derwin-james-suspension/
-
-**Israel Says at Least 8 Soldiers Are Killed in Clashes With Hezbollah**\
-`The cross-border fighting appeared to be the first direct ground confrontation between the two sides since Israel invaded Lebanon this week.`\
-https://nytimes.com/2024/10/02/world/middleeast/israel-hezbollah-lebanon.html
-
-**After Flooding, FEMA Aid Is Arriving. But Some Are Still on Their Own.**\
-`Six days after Hurricane Helene, North Carolina was getting help from the Federal Emergency Management Agency and others. But officials still faced obstacles reaching some areas.`\
-https://nytimes.com/2024/10/02/us/fema-floods-north-carolina.html
 
