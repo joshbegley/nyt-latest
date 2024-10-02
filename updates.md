@@ -1,3 +1,7 @@
+**Corrections: Oct. 2, 2024**\
+`Corrections that appeared in print on Wednesday, Oct. 2, 2024.`\
+https://nytimes.com/2024/10/01/pageoneplus/corrections-oct-2-2024.html
+
 **“If you really want to make the environment cleaner, you’ve got to invest in more energy production. We haven’t built a nuclear facility — I think one in the past 40 years. Natural gas — we have to invest more in it. Kamala Harris has done the opposite.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-you-really-want-to-make-the-environment-cleaner-youve-got-to-invest-in-more-energy-production-we-havent-built-a-nuclear-facil

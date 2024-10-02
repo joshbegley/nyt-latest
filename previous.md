@@ -6,10 +6,6 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/if-you-really-want-t
 `Under the current best-of-three wild card format, the team who wins Game 1 has gone on to win 14 of 16 times. `\
 https://nytimes.com/athletic/5811301/2024/10/01/royals-momentum-orioles-2024-wild-card/
 
-**Detroit native Hunter Brown dreamed of pitching for Tigers, and now must tame them for Astros**\
-`Houston’s entire uneven season rests on the right arm of Brown, a Detroit native who went to college less than two miles from Comerica Park.`\
-https://nytimes.com/athletic/5811240/2024/10/01/hunter-brown-astros-tigers-game-2/
-
 **“Iran, which launched this attack, has received over $100 billion in unfrozen assets thanks to the Kamala Harris administration. What did they use that money for? They used it to buy weapons that they are now launching against our allies and God forbid, potentially launching against the United States as well.”**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/iran-which-launched-this-attack-has-received-over-100-billion-in-unfrozen-assets-thanks-to-the-kamala-harris-administration-what
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/we-are-the-cleanest-
 **Ex-Frat Leaders Sentenced in Hazing Death of Penn State Student**\
 `Brendan Young, 28, and Steven Casey, 27, will spend two to four months in prison for their roles in the 2017 death of Timothy Piazza, a 19-year-old from New Jersey.`\
 https://nytimes.com/2024/10/01/us/penn-state-hazing-death-sentencing.html
+
+**Corrections: Oct. 2, 2024**\
+`Corrections that appeared in print on Wednesday, Oct. 2, 2024.`\
+https://nytimes.com/2024/10/01/pageoneplus/corrections-oct-2-2024.html
 
