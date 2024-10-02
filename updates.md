@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5811450/2024/10/01/jesse-winker-willy-adames-mets-b
 `\
 https://nytimes.com/athletic/5811450/2024/10/01/jesse-winker-willy-adames-mets-brewers/
 
+**Was Jesse Winker vs. Willy Adames a chewing out, or just chewing gum?**\
+`Winker: “If y’all think I am able to run and talk, you don’t know my athletic abilities. Can’t do that.”
+`\
+https://nytimes.com/athletic/5811450/2024/10/01/jesse-winker-willy-adames-mets-brewers/
+
 **“We have to remember that for years in this country, Democrats protested the results of elections. Hillary Clinton in 2016 said that Donald Trump had the election stolen by Vladimir Putin because the Russians bought like $500,000 worth of Facebook ads.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/10/01/us/walz-vance-vp-debate/we-have-to-remember-that-for-years-in-this-country-democrats-protested-the-results-of-elections-hillary-clinton-in-2016-said-tha
