@@ -1,3 +1,7 @@
+**Israeli strikes, including on schools and an orphanage, kill scores of people in Gaza.**\
+`By Anushka Patil`\
+https://nytimes.com/2024/10/02/world/middleeast/israel-strikes-gaza-schools-orphanage.html
+
 **49ers' Kalia Davis is back, but the 49ers are still waiting on Ricky Pearsall**\
 `The 49ers practiced without Fred Warner, George Kittle and several others, though the heat and their schedule were factors on Wednesday.`\
 https://nytimes.com/athletic/5813895/2024/10/02/49ers-injuries-ricky-pearsall-kalia-davis/
