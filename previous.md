@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein on the V.P. Debate**\
+`The Oct. 2, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/10/02/podcasts/transcript-ezra-klein-vp-debate.html
+
 **The Jewish New Year Is Far More Bitter Than Sweet in Israel**\
 `On Rosh Hashana, many Israelis longed for a return to normalcy after a year of escalating wars for the country.`\
 https://nytimes.com/2024/10/02/world/middleeast/israel-rosh-hashana.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/02/travel/things-to-do-edinburgh.html
 **Tigers rally vs. Josh Hader to eliminate Astros and reach ALDS: Takeaways**\
 `Utilityman Andy Ibáñez bested the star closer in the eighth, hitting a double to clear the loaded bases and send Detroit to the ALDS.`\
 https://nytimes.com/athletic/5813522/2024/10/02/astros-tigers-game-2-josh-hader/
-
-**Man Who Set Fire to Cabin in the Grand Canyon Gets 20 Months in Prison**\
-`The 21-year-old was arrested in May, shortly after he set fire to his former girlfriend’s residence in the park, the authorities said.`\
-https://nytimes.com/2024/10/02/us/grand-canyon-cabin-arson-sentence.html
 

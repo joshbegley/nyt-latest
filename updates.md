@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein on the V.P. Debate**\
+`The Oct. 2, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/10/02/podcasts/transcript-ezra-klein-vp-debate.html
+
 **The Jewish New Year Is Far More Bitter Than Sweet in Israel**\
 `On Rosh Hashana, many Israelis longed for a return to normalcy after a year of escalating wars for the country.`\
 https://nytimes.com/2024/10/02/world/middleeast/israel-rosh-hashana.html
