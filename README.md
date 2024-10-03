@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5814285/2024/10/02/max-fried-atlanta-braves-nl-wild
 `Bruce Feldman, Stewart Mandel and newcomer Ralph Russo pick their September Heisman, most surprising teams and coach of the year so far.`\
 https://nytimes.com/athletic/5814082/2024/10/02/travis-hunter-heisman-kalen-deboer-alabama-usc-lsu-ohio-state-georgia/
 
-**Brooklyn Campaign Staffer Is Charged in $25,000 Straw Donor Scheme**\
+**Treasurer for Little-Known Brooklyn Candidate Is Charged in Fraud Scheme**\
 `Erlene King sent thousands of dollars to associates and told them to distribute the funds to others who would then donate to the campaign she worked for, federal prosecutors said.`\
 https://nytimes.com/2024/10/02/nyregion/campaign-treasurer-brooklyn-fraud-scheme.html
 
