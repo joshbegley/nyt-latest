@@ -1,3 +1,7 @@
+**FIFA proposes early transfer window for Club World Cup teams**\
+`Next summer’s transfer window could open two weeks earlier than usual to allow teams competing in the revamped Club World Cup to sign new players, FIFA has announced.`\
+https://nytimes.com/athletic/5815944/2024/10/03/transfer-window-club-world-cup-teams/
+
 **Caitlin Clark wins ROY with 66 of 67 votes, Angel Reese gets 1**\
 `Clark entered the league as the most-anticipated rookie in league history.`\
 https://nytimes.com/athletic/5796437/2024/10/03/caitlin-clark-wnba-rookie-of-the-year/

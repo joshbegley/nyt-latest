@@ -1,3 +1,7 @@
+**FIFA proposes early transfer window for Club World Cup teams**\
+`Next summer’s transfer window could open two weeks earlier than usual to allow teams competing in the revamped Club World Cup to sign new players, FIFA has announced.`\
+https://nytimes.com/athletic/5815944/2024/10/03/transfer-window-club-world-cup-teams/
+
 **Caitlin Clark wins ROY with 66 of 67 votes, Angel Reese gets 1**\
 `Clark entered the league as the most-anticipated rookie in league history.`\
 https://nytimes.com/athletic/5796437/2024/10/03/caitlin-clark-wnba-rookie-of-the-year/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/us/politics/hurricane-helene-internet-trump-musk-
 **Oil Price Jumps After Biden Says ‘Discussing’ Israeli Strike on Iranian Facilities**\
 `The president was asked about a potential strike on the oil infrastructure of Iran, which accounts for about 2 percent of the world’s supply.`\
 https://nytimes.com/2024/10/03/world/middleeast/oil-price-biden-iran-strike.html
-
-**Pursuing Alex Bregman, payroll and filling the corners: 3 storylines that will define the Astros' offseason**\
-`“We’re not taking anything off the table in terms of what we would do, whether it’s making trades or signing a free agent,” the GM said.`\
-https://nytimes.com/athletic/5815995/2024/10/03/alex-bregman-astros-offseason-plans/
 
