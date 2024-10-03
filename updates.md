@@ -1,3 +1,19 @@
+**Emerson: The SEC ... it just means more ratings, which could mean 9-game schedule**\
+`What could push the SEC to a nine-game schedule? Strong TV ratings and a scheduling agreement with the Big Ten won't hurt.`\
+https://nytimes.com/athletic/5815119/2024/10/03/sec-tv-ratings-nine-game-schedule/
+
+**The Windup: A pair of shocking wild-card sweeps**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5815657/2024/10/03/tigers-royals-wild-card-mlb-playoffs-the-windup/
+
+**Betting for (by) dummies: Vikings to beat Rodgers, the Steelers to bounce back and more**\
+`Jon Greenberg and Zac Jackson look at their favorite betting plays for the football weekend ahead, including both college and the NFL.`\
+https://nytimes.com/athletic/5815586/2024/10/03/betting-picks-nfl-college-football-vikings-steelers/
+
+**Davante Adams trade roundtable: Experts discuss best, worst fantasy-related landing spots**\
+`The Athletic fantasy football experts weigh in on best, worst landing spots for Davante Adams should he be traded in the near future.`\
+https://nytimes.com/athletic/5814460/2024/10/03/fantasy-football-davante-adams-trade-scenarios/
+
 **Davante Adams trade roundtable: Experts discuss best, worst fantasy-related landing spots**\
 `The Athletic fantasy football experts weigh in on best, worst landing spots for Davante Adams should he be traded in the near future.`\
 https://nytimes.com/athletic/5814460/2024/10/03/fantasy-football-dvanate-adams-trade-scenarios/
