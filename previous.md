@@ -1,3 +1,11 @@
+**Jay J. Armes, Private Eye With a Superhero Story, Dies at 92**\
+`With steel hooks for hands and a flamboyant personality, Mr. Armes captured the attention — and scrutiny — of reporters across the nation.`\
+https://nytimes.com/2024/10/03/us/jay-j-armes-dead.html
+
+**No, Immigration Isn’t Raising Your Rent**\
+`This is not the world according to JD Vance.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/immigration-rent-increase
+
 **Fantasy football rankings Week 5: Sleepers, starts, projections and more**\
 `Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
 https://nytimes.com/athletic/5811078/2024/10/03/fantasy-football-rankings-week-5-sleepers-projections-starts/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/03/learning/whats-going-on-in-this-picture-oct-7-202
 **She Is Outrageous, Demeaning, Dangerous. She Shouldn’t Be Punished.**\
 `Amy Wax’s statements are indefensible. But so is the University of Pennsylvania’s response.`\
 https://nytimes.com/2024/10/03/opinion/amy-wax-academic-freedom-penn.html
-
-**OpenAI Adds $4 Billion Credit Line on Top of $6.6 Billion Investment Round**\
-`The San Francisco company is gathering the billions its executives believe they will need to continue building new A.I. technology.`\
-https://nytimes.com/2024/10/03/technology/openai-credit-line.html
-
-**Can I Use an Expired Covid Test?**\
-`The expiration date listed on the box might not be accurate. Here’s what to know.`\
-https://nytimes.com/2024/10/03/well/expired-covid-test.html
 

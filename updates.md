@@ -1,3 +1,11 @@
+**Jay J. Armes, Private Eye With a Superhero Story, Dies at 92**\
+`With steel hooks for hands and a flamboyant personality, Mr. Armes captured the attention — and scrutiny — of reporters across the nation.`\
+https://nytimes.com/2024/10/03/us/jay-j-armes-dead.html
+
+**No, Immigration Isn’t Raising Your Rent**\
+`This is not the world according to JD Vance.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/immigration-rent-increase
+
 **Fantasy football rankings Week 5: Sleepers, starts, projections and more**\
 `Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
 https://nytimes.com/athletic/5811078/2024/10/03/fantasy-football-rankings-week-5-sleepers-projections-starts/
