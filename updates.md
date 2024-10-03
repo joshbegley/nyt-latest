@@ -1,4 +1,8 @@
 **With Game 3 looming, so is the possibility of Pete Alonso's final appearance as a Met**\
+`"I don’t really want to think about that at all," Alonso said after Game 2. "I want to think about winning the game tomorrow."`\
+https://nytimes.com/athletic/5814565/2024/10/03/pete-alonso-mets-brewers-wild-card/
+
+**With Game 3 looming, so is the possibility of Pete Alonso's final appearance as a Met**\
 `'I don’t really want to think about that at all,' Alonso said after Game 2. 'I want to think about winning the game tomorrow.'`\
 https://nytimes.com/athletic/5814565/2024/10/03/pete-alonso-mets-brewers-wild-card/
 
