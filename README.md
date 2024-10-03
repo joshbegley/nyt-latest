@@ -1,3 +1,11 @@
+**Dodgers vs. Padres NLDS preview: Predictions, pitching matchups and more**\
+`The Los Angeles Dodgers and San Diego Padres renew their fierce rivalry in a highly anticipated National League Division Series matchup.`\
+https://nytimes.com/athletic/5815551/2024/10/03/dodgers-padres-2024-nlds-preview-predictions/
+
+**After Helene, Even Restoring Internet Service Is Political**\
+`Former President Donald J. Trump praised Elon Musk for bringing service to hard-hit areas. The Biden administration noted that the government was already on the case.`\
+https://nytimes.com/2024/10/03/us/politics/hurricane-helene-internet-trump-musk-starlink.html
+
 **Oil Price Jumps After Biden Says ‘Discussing’ Israeli Strike on Iranian Facilities**\
 `The president was asked about a potential strike on the oil infrastructure of Iran, which accounts for about 2 percent of the world’s supply.`\
 https://nytimes.com/2024/10/03/world/middleeast/oil-price-biden-iran-strike.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5815926/2024/10/03/bucks-suns-nba-title-karl-anthon
 **Inside a Trump Ad Saying Harris Will Raise Taxes and He Will Cut Them**\
 `A blunt argument hitting voters in the wallet, and a deceptive truncation of a quotation from The Times, pack a wallop.`\
 https://nytimes.com/2024/10/03/us/politics/trump-ad-harris-taxes.html
-
-**Golden Knights to get salary cap relief for Lehner's contract**\
-`Vegas will pay Lehner the $4.4 million in salary owed on his deal this season while no longer carrying his annual $5 million cap hit.`\
-https://nytimes.com/athletic/5815796/2024/10/03/vegas-golden-knights-lehner-settlement-cap/
-
-**Unable to Penetrate Systems, Hackers Spread Lies About Vulnerabilities**\
-`When France fended off cyberattacks during the Olympics, hackers circulated false claims about their attacks, a tactic the United States could face during the election.`\
-https://nytimes.com/2024/10/03/us/politics/us-election-cyber-hacking.html
 
