@@ -1,40 +1,40 @@
-**Fear the Royals, the unlikely savants of October**\
-`The Royals don’t make the playoffs much — just four times since 1985. But when they do, they rarely lose.`\
-https://nytimes.com/athletic/5814540/2024/10/03/royals-playoff-savants-wild-card/
+**What we're seeing from the Bears: Next steps for Caleb Williams, how good can defense be?**\
+`The Bears are 2-2, what we might've expected, but it hasn't been smooth. What's next as they try to build off their Week 4 win?`\
+https://nytimes.com/athletic/5813494/2024/10/03/chicago-bears-observations-caleb-williams/
 
-**Iran Retaliates**\
-`A volley of missiles fired at Israel sharply escalated the conflict between the two countries and threatened to engulf the Middle East in all-out war.`\
-https://nytimes.com/2024/10/03/podcasts/the-daily/iran-israel-missiles.html
+**What I’m seeing from the Vikings: Brian Flores' defense still stopping the run**\
+`From the run defense to the receiving room, things are going well for the 4-0 Vikings, who travel to London to face the New York Jets.`\
+https://nytimes.com/athletic/5810868/2024/10/03/minnesota-vikings-defense-stop-run/
 
-**Biden Deploys Troops in Helene Aid Effort, and Trump’s Jan. 6 Case**\
-`Plus, making fall foliage pop for the colorblind.`\
-https://nytimes.com/2024/10/03/podcasts/biden-helene-trump.html
+**Alexis Lafrenière's second sport: How summer softball with friends keeps the Rangers forward grounded**\
+`Lafrenière returns to play softball every offseason and the team is an integral part of who he is on and off the ice.`\
+https://nytimes.com/athletic/5814025/2024/10/03/rangers-alexis-lafreniere-softball/
 
-**NHL Hope-O-Meter: How optimistic are you about your team for 2024-25?**\
-`You’re probably pumped. You also may not be. We want to know, in a very short survey, how you’re leaning.`\
-https://nytimes.com/athletic/5813131/2024/10/03/nhl-hope-o-meter-2024-25/
+**Can the Nittany Lions avoid complacency? 4 keys and a prediction for Penn State-UCLA**\
+`No. 7 Penn State is heavily favored against struggling UCLA. It's a chance for the Nittany Lions to build depth and momentum ahead of USC.`\
+https://nytimes.com/athletic/5814493/2024/10/03/penn-state-ucla-prediction-schedule/
 
-**Wordle Review No. 1,203**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 4, 2024.`\
-https://nytimes.com/2024/10/03/crosswords/wordle-review-1203.html
+**Mauricio Pochettino on USMNT objectives: 'We are going to be very demanding'**\
+`Pochettino explained his first USMNT roster, his desired playing style and concerns over some of the squad's game time with their clubs`\
+https://nytimes.com/athletic/5813898/2024/10/03/mauricio-pochettino-changes-usmnt-roster/
 
-**The Connections Companion No. 481**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 4, 2024.`\
-https://nytimes.com/2024/10/03/crosswords/connections-companion-481.html
+**Pete Crow-Armstrong must be the start of a big wave of young talent for the Cubs**\
+`Young talent will have to be part of the solution for a team that finished with an 83-79 record in each of the last two seasons.`\
+https://nytimes.com/athletic/5813647/2024/10/03/pete-crow-armstrong-chicago-cubs-young-talent/
 
-**Guardians vs. Tigers ALDS preview: Predictions, pitching matchups and more**\
-`This all-American League Central ALDS pits baseball's best bullpen against the sport's hottest team. Our writers preview the matchup. `\
-https://nytimes.com/athletic/5814527/2024/10/03/guardians-tigers-2024-alds-preview-predictions/
+**From Stanley Cup contenders to bottom feeders: Predicting the 2024-25 season**\
+`The annual attempt to dice up the league in divisions named a little more descriptively than the official variants.`\
+https://nytimes.com/athletic/5806185/2024/10/03/predicting-2024-25-season-divisions/
 
-**After Successes, Israel’s Military Is in a ‘Long Game’ With No Clear Outcome**\
-`A year after perhaps the worst military and intelligence debacle in the country’s history, its armed forces have regained the momentum. Some ask: to what end?`\
-https://nytimes.com/2024/10/03/world/middleeast/israel-military-hamas-hezbollah.html
+**How Jets' Josh Morrissey arrived at the best version of his game**\
+`Even as Morrissey's offensive production dropped last season, he emerged as a better all-around player.`\
+https://nytimes.com/athletic/5806799/2024/10/03/winnipeg-jets-josh-morrissey-interview/
 
-**Listen: ‘Walnut’**\
-`What can animals teach us about mortality — and life?`\
-https://nytimes.com/2024/10/03/learning/listen-walnut.html
+**The Jaguars overestimated themselves. Did they overestimate Trevor Lawrence, too?**\
+`The Jaguars paid Lawrence like a top QB despite his production looking much like that of Sam Darnold, who is already on his fourth team.`\
+https://nytimes.com/athletic/5810877/2024/10/03/trevor-lawrence-jaguars-doug-pederson/
 
-**Can Karl-Anthony Towns help Knicks topple Celtics? Analyzing the East**\
-`Jay King and James L. Edwards team up to discuss the recent moves in the East, make their predictions on most improved teams and more. `\
-https://nytimes.com/athletic/5812945/2024/10/03/karl-anthony-towns-knicks-celtics/
+**NFL quarter-season superlatives: Darnold and Daniels hot; Jaguars not; Chiefs face a challenge**\
+`What we've learned after four weeks: The Vikings and Commanders are on the rise, the Ravens are still scary, the Rams are unlucky and more.`\
+https://nytimes.com/athletic/5811400/2024/10/03/nfl-quarter-season-superlatives-darnold-daniels/
 
