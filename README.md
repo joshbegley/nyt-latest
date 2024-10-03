@@ -1,3 +1,7 @@
+**Knicks' Karl-Anthony Towns, Tom Thibodeau and a second chance at marriage**\
+`After a once strained relationship, Karl-Anthony Towns and Tom Thibodeau's paths have crossed again. `\
+https://nytimes.com/athletic/5813572/2024/10/03/karl-anthony-towns-tom-thibodeau-knicks-trade-roster/
+
 **Senators Urge D.O.J. to Hold Boeing Executives Accountable for Safety Violations Amid Ongoing Crises**\
 `In a letter, Democratic Senators Elizabeth Warren of Massachusetts and Richard Blumenthal of Connecticut criticized the Justice Department after continued incidents with Boeing planes.`\
 https://nytimes.com/2024/10/03/us/politics/senators-doj-boeing-letter.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5816129/2024/10/03/nottingham-forest-marinakis-fa-c
 **The Climate Fix: Solutions for a Warming World**\
 `In a new weekly feature of our Climate Forward newsletter, we’re covering the vast amount of investment, ingenuity and scientific expertise that are going toward stopping climate change.`\
 https://nytimes.com/2024/10/03/business/the-climate-fix-solutions-for-a-warming-world.html
-
-**The Climate Fix: Solutions for a Warming World**\
-`In our new weekly series, we’re covering the vast amount of investment, ingenuity and scientific expertise going toward stopping climate change.`\
-https://nytimes.com/2024/10/03/climate/the-climate-fix-solutions-for-a-warming-world.html
 
