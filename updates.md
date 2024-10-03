@@ -1,3 +1,7 @@
+**Golden Knights to get salary cap relief for Lehner's contract**\
+`Vegas will pay Lehner the $4.4 million in salary owed on his deal this season while no longer carrying his annual $5 million cap hit.`\
+https://nytimes.com/athletic/5815796/2024/10/03/vegas-golden-knights-lehner-settlement-cap/
+
 **Unable to Penetrate Systems, Hackers Spread Lies About Vulnerabilities**\
 `When France fended off cyberattacks during the Olympics, hackers circulated false claims about their attacks, a tactic the United States could face during the election.`\
 https://nytimes.com/2024/10/03/us/politics/us-election-cyber-hacking.html
