@@ -1,3 +1,7 @@
+**Fantasy football rankings Week 5: Sleepers, starts, projections and more**\
+`Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
+https://nytimes.com/athletic/5811078/2024/10/03/fantasy-football-rankings-week-5-sleepers-projections-starts/
+
 **A Storied Luxury Liner May Soon Find New Life on the Florida Seafloor**\
 `The S.S. United States, one of the fastest ships to ever cross the Atlantic Ocean, may be sunk off the coast and turned into a habitat to marine life as the world’s largest artificial reef.`\
 https://nytimes.com/2024/10/03/us/ss-united-states-largest-artificial-reef.html
