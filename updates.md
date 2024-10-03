@@ -1,3 +1,11 @@
+**The best Travis Kelce cards to collect, for Swifties and beyond**\
+`Whether you're a Swiftie, a 92%er or just a new collector, these are the cards to consider.`\
+https://nytimes.com/athletic/5814225/2024/10/03/travis-kelce-rookie-cards-swift-chiefs/
+
+**The Food of Space Travel Could Be Based on Rocks**\
+`Scientists are studying whether future astronauts on deep-space journeys could transform compounds in asteroids into food.`\
+https://nytimes.com/2024/10/03/science/asteroids-food-space.html
+
 **With Dejounte Murray, Herb Jones, Pelicans are hoping to double down on defensive strengths**\
 `“(Murray) and Herb defending at a high level is something that’s going to be special to watch,” says CJ McCollumn.`\
 https://nytimes.com/athletic/5814754/2024/10/03/pelicans-dejounte-murray-herb-jones-defense-teammates/
