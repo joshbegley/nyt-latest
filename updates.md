@@ -1,3 +1,7 @@
+**People in central Beirut survey damage from an airstrike.**\
+`By Hwaida Saad`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/people-in-central-beirut-survey-damage-from-an-airstrike
+
 **Countries Evacuate Citizens From Lebanon Amid Israeli Airstrikes**\
 `Some governments chartered planes and secured seats on commercial flights for their citizens, warning people to leave Lebanon while Beirut’s international airport remains open.`\
 https://nytimes.com/video/world/middleeast/100000009739288/lebanon-israel-foreign-evacuations.html

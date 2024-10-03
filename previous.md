@@ -1,3 +1,7 @@
+**People in central Beirut survey damage from an airstrike.**\
+`By Hwaida Saad`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/people-in-central-beirut-survey-damage-from-an-airstrike
+
 **Countries Evacuate Citizens From Lebanon Amid Israeli Airstrikes**\
 `Some governments chartered planes and secured seats on commercial flights for their citizens, warning people to leave Lebanon while Beirut’s international airport remains open.`\
 https://nytimes.com/video/world/middleeast/100000009739288/lebanon-israel-foreign-evacuations.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5815992/2024/10/03/college-football-week-6-model-pr
 **Trump, Vance and the Jan. 6 Case**\
 `Readers respond to the special counsel Jack Smith’s filing. Also: The pain of IUD insertions; food and the environment; A.I. and the patient.`\
 https://nytimes.com/2024/10/03/opinion/trump-vance-jan-6.html
-
-**‘Rust’ Western Will Premiere in Europe 3 Years After Fatal Shooting**\
-`After the Alec Baldwin movie turned into the scene of a tragedy with the death of its cinematographer, the film will debut next month at a festival that celebrates cinematography.`\
-https://nytimes.com/2024/10/03/movies/rust-premiere-camerimage-halyna-hutchins.html
 
