@@ -1,3 +1,11 @@
+**Countries Evacuate Citizens From Lebanon Amid Israeli Airstrikes**\
+`Some governments chartered planes and secured seats on commercial flights for their citizens, warning people to leave Lebanon while Beirut’s international airport remains open.`\
+https://nytimes.com/video/world/middleeast/100000009739288/lebanon-israel-foreign-evacuations.html
+
+**The Bounce: Two forgotten actual title contenders**\
+`Welcome to The Bounce, The Athletic's daily NBA newsletter.`\
+https://nytimes.com/athletic/5815926/2024/10/03/bucks-suns-nba-title-karl-anthony-towns-the-bounce/
+
 **Inside a Trump Ad Saying Harris Will Raise Taxes and He Will Cut Them**\
 `A blunt argument hitting voters in the wallet, and a deceptive truncation of a quotation from The Times, pack a wallop.`\
 https://nytimes.com/2024/10/03/us/politics/trump-ad-harris-taxes.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/03/opinion/trump-vance-jan-6.html
 **‘Rust’ Western Will Premiere in Europe 3 Years After Fatal Shooting**\
 `After the Alec Baldwin movie turned into the scene of a tragedy with the death of its cinematographer, the film will debut next month at a festival that celebrates cinematography.`\
 https://nytimes.com/2024/10/03/movies/rust-premiere-camerimage-halyna-hutchins.html
-
-**Helene Knocked Out a Key Facility for Monitoring the Global Climate**\
-`The National Centers for Environmental Information in Asheville, N.C., sweep together data from around the world to help track Earth’s warming.`\
-https://nytimes.com/2024/10/03/climate/asheville-noaa-center.html
-
-**The American People Are Now Trump’s Jury**\
-`We have no other choice.`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/donald-trump-jack-smith
 

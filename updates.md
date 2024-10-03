@@ -1,3 +1,11 @@
+**Countries Evacuate Citizens From Lebanon Amid Israeli Airstrikes**\
+`Some governments chartered planes and secured seats on commercial flights for their citizens, warning people to leave Lebanon while Beirut’s international airport remains open.`\
+https://nytimes.com/video/world/middleeast/100000009739288/lebanon-israel-foreign-evacuations.html
+
+**The Bounce: Two forgotten actual title contenders**\
+`Welcome to The Bounce, The Athletic's daily NBA newsletter.`\
+https://nytimes.com/athletic/5815926/2024/10/03/bucks-suns-nba-title-karl-anthony-towns-the-bounce/
+
 **Inside a Trump Ad Saying Harris Will Raise Taxes and He Will Cut Them**\
 `A blunt argument hitting voters in the wallet, and a deceptive truncation of a quotation from The Times, pack a wallop.`\
 https://nytimes.com/2024/10/03/us/politics/trump-ad-harris-taxes.html
