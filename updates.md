@@ -1,3 +1,7 @@
+**Former Singapore Minister Gets 1 Year in Prison in Rare Graft Case**\
+`The sentence for S. Iswaran, the former transportation minister who pleaded guilty last week, was longer than what prosecutors had sought.`\
+https://nytimes.com/2024/10/03/world/asia/singapore-iswaran-jail.html
+
 **'Waiting for something to erupt': Series energy shifts as Brewers' young bats force Game 3**\
 `This was their 53rd postseason game as a franchise and first victory when trailing in the eighth inning.`\
 https://nytimes.com/athletic/5814611/2024/10/03/brewers-wild-card-win-chourio-mitchell/
