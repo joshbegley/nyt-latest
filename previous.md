@@ -1,3 +1,11 @@
+**Brooklyn Campaign Staffer Is Charged in $25,000 Straw Donor Scheme**\
+`Erlene King sent thousands of dollars to associates and told them to distribute the funds to others who would then donate to the campaign she worked for, federal prosecutors said.`\
+https://nytimes.com/2024/10/02/nyregion/campaign-treasurer-brooklyn-fraud-scheme.html
+
+**Tigers' Andy Ibáñez kept believing and became baseball's latest unlikely playoff hero**\
+`For all the moments in which the Tigers looked failure in the eye and refused to concede, none were bigger than Ibáñez's game-changing hit. `\
+https://nytimes.com/athletic/5814073/2024/10/02/andy-ibanez-detroit-tigers-playoff-hero/
+
 **Lahaina Inferno Emerged From Smoldering Remnants of Quelled Fire**\
 `Federal investigators have concluded that hidden embers remained from a morning fire in the Hawaii town of Lahaina. They reignited later into a fire that destroyed much of the town.`\
 https://nytimes.com/2024/10/02/us/lahaina-maui-fire-atf-investigation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5814018/2024/10/02/royals-sweep-orioles-wild-card-s
 **Kalia Davis is back, but the 49ers are still waiting on Ricky Pearsall**\
 `The 49ers practiced without Fred Warner, George Kittle and several others, though the heat and their schedule were factors Wednesday.`\
 https://nytimes.com/athletic/5813895/2024/10/02/49ers-injuries-ricky-pearsall-kalia-davis/
-
-**Royals hold the line on strikeout hit-by-pitch**\
-`The play could have changed the game. Instead, the score remained tied. `\
-https://nytimes.com/athletic/5813909/2024/10/02/royals-hold-the-line-against-orioles-via-strikeout-hit-by-pitch/
-
-**A Storm, a Strike and War Abroad Pose Challenges for Harris**\
-`Scenes of striking workers, hurricane devastation in the Southeast and missiles over Israel represent a rare moment of turbulence for Kamala Harris.`\
-https://nytimes.com/2024/10/02/us/politics/harris-israel-iran-helene-port-strike.html
 
