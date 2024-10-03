@@ -1,3 +1,11 @@
+**Israeli planes target Nasrallah’s likely successor with huge strikes near Beirut.**\
+`Explosions rocked the Lebanese capital around midnight on Thursday as Israel conducted an airstrike, which officials said targeted a meeting of senior Hezbollah leaders in an underground bunker.`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israeli-planes-nasrallah-beirut
+
+**An Israeli airstrike kills at least 18 people in the West Bank.**\
+`By Aaron Boxerman and Ephrat Livni`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/an-israeli-airstrike-kills-at-least-18-people-in-the-west-bank
+
 **A Recipe for a Striving America**\
 `The question is not whether to do industrial policy, but how.`\
 https://nytimes.com/2024/10/03/opinion/industry-policy-manufacturing.html
