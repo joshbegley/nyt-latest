@@ -1,3 +1,7 @@
+**Late Night Sums Up a Strangely Chill V.P. Debate**\
+`Jimmy Fallon said viewers “were expecting a horror movie, but instead, they got a Hallmark movie.”`\
+https://nytimes.com/2024/10/03/arts/television/late-night-vice-presidential-debate.html
+
 **Word of the Day: aphorism**\
 `This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/03/learning/word-of-the-day-aphorism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/briefing/hezbollah-israel-trump-election-charges-
 **2 Killed as Typhoon Krathon Drenches Taiwan Before Landfall**\
 `Heavy rain has caused landslides and floods. The authorities have evacuated nearly 10,000 people and closed schools and offices for a second day.`\
 https://nytimes.com/2024/10/03/world/asia/typhoon-krathon-taiwan-rain.html
-
-**Has Struijk proven himself to be Leeds United's most important player?**\
-`Pascal Struijk has impressed for Leeds after missing a big chunk of last season through injury issues`\
-https://nytimes.com/athletic/5798909/2024/10/03/pascal-struijk-leeds-united-analysis/
 
