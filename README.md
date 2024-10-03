@@ -1,3 +1,7 @@
+**Putin Keeps Threatening to Use Nuclear Weapons. Would He?**\
+`Last week the president of Russia appeared to lower the threshold for his country’s use of nuclear weapons. It wasn’t subtle, and it wasn’t meant to be.`\
+https://nytimes.com/2024/10/03/opinion/putin-russia-nuclear-weapons.html
+
 **With Game 3 looming, so is the possibility of Pete Alonso's final appearance as a Met**\
 `"I don’t really want to think about that at all," Alonso said after Game 2. "I want to think about winning the game tomorrow."`\
 https://nytimes.com/athletic/5814565/2024/10/03/pete-alonso-mets-brewers-wild-card/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5812163/2024/10/03/tns-fiorentina-conference-league
 **How the WSL evolved into a multinational league**\
 `The first Women's Super League match in 2011 featured only one foreign player but the make-up of teams is now dramatically different`\
 https://nytimes.com/athletic/5811909/2024/10/03/wsl-nationalities-evolution/
-
-**Bucky Irving, Braelon Allen are outperforming starters Rachaad White, Breece Hall**\
-`Michael Salfino shines a light on backup running backs, like Bucky Irving, who have a better rush success rate than their team's starter.`\
-https://nytimes.com/athletic/5813157/2024/10/03/fantasy-football-bucky-irving-breece-hall-starter/
 
