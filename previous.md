@@ -1,3 +1,7 @@
+**Phillips opens up on impact of Guardiola’s ‘overweight’ comment**\
+`Kalvin Phillips has revealed he was left frustrated over Pep Guardiola’s remarks about his weight during his time at Manchester City.`\
+https://nytimes.com/athletic/5814886/2024/10/03/kalvin-phillips-overweight-pep-guardiola/
+
 **Foreign Governments Are Evacuating Their Citizens From Lebanon**\
 `Several countries have chartered flights, while others issued warnings and offered assistance.`\
 https://nytimes.com/2024/10/03/world/middleeast/lebanon-evacuations-flights-countries.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
 **NFL London Games: Does day of arrival matter - and how do trips impact rest of season?**\
 `The NFL London Games kick off again at the weekend — different teams take different approaches to their travel`\
 https://nytimes.com/athletic/5811903/2024/10/03/nfl-london-games-analysis-arrival/
-
-**‘Blink’ Review: The Last Things They May See**\
-`In this travel documentary, two parents take their children on a spectacular world tour before a rare genetic condition may cause blindness.`\
-https://nytimes.com/2024/10/03/movies/blink-review.html
 
