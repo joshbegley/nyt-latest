@@ -1,5 +1,5 @@
 **Dodgers vs. Padres NLDS preview: Predictions, pitching matchups and more**\
-`The Los Angeles Dodgers and San Diego Padres renew their fierce rivalry in a highly anticipated National League Division Series matchup.`\
+`The Los Angeles Dodgers and San Diego Padres renew their rivalry in a highly anticipated National League Division Series matchup.`\
 https://nytimes.com/athletic/5815551/2024/10/03/dodgers-padres-2024-nlds-preview-predictions/
 
 **After Helene, Even Restoring Internet Service Is Political**\
