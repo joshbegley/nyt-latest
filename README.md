@@ -1,3 +1,7 @@
+**After Successes, Israel’s Military Is in a ‘Long Game’ With No Clear Outcome**\
+`A year after perhaps the worst military and intelligence debacle in the country’s history, its armed forces have regained the momentum. Some ask: to what end?`\
+https://nytimes.com/2024/10/03/world/middleeast/israel-military-hamas-hezbollah.html
+
 **Listen: ‘Walnut’**\
 `What can animals teach us about mortality — and life?`\
 https://nytimes.com/2024/10/03/learning/listen-walnut.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/t-magazine/tory-burch-makeup-skin-care-beauty.htm
 **JD Vance, Tim Walz and the Fight for Rural America**\
 `Both vice-presidential candidates have roots in parts of the country where voters feel overlooked, and Democrats have struggled.`\
 https://nytimes.com/2024/10/03/podcasts/jd-vance-tim-walz-and-the-fight-for-rural-america.html
-
-**Why Israel Is Worried About Iran’s Nuclear Ambitions**\
-`Despite the supreme leader’s stated religious objections to nuclear weapons, Tehran has been steadily making progress on its nuclear weapons capabilities over the course of the past year.`\
-https://nytimes.com/2024/10/03/opinion/israel-iran-nuclear-weapons.html
 
