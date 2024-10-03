@@ -1,3 +1,7 @@
+**Kane Wommack's trust paid off against Georgia**\
+`Wommack's defense had some good and bad moments in Alabama's win over Georgia, and he's already focused on improving the unit.`\
+https://nytimes.com/athletic/5814651/2024/10/03/alabama-defense-kane-wommack/
+
 **Tyreek Hill says he's happy with Dolphins amid trade speculation**\
 `"Moving forward, I would love to be here," Hill told reporters Wednesday.`\
 https://nytimes.com/athletic/5815194/2024/10/03/tyreek-hill-dolphins-trade-rumors-comments/
