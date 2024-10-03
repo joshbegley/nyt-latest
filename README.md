@@ -1,5 +1,13 @@
+**David Banks, N.Y.C. Schools Chancellor, Moves Up His Departure**\
+`The chancellor, who previously announced that he would step down at the end of December, will instead leave the job on Oct. 16. Melissa Aviles-Ramos, a top deputy, will succeed him.`\
+https://nytimes.com/2024/10/02/nyregion/david-banks-schools-chancellor-resign.html
+
+**Inter Miami wins club's first Supporters' Shield**\
+`Lionel Messi scored twice and Luis Suárez added Inter Miami’s third goal in the win over Columbus Crew.`\
+https://nytimes.com/athletic/5814283/2024/10/02/inter-miami-wins-supporters-shield-messi/
+
 **Padres' Joe Musgrove exits early from start**\
-`SAN DIEGO — Wednesday at raucous Petco Park, the Padres were seemingly cruising toward a wild-card sweep of the Atlanta Braves when potential disaster struck.`\
+`Twice in the regular season, the 31-year-old went on the injured list because of elbow inflammation.`\
 https://nytimes.com/athletic/5814325/2024/10/02/joe-musrove-exits-early-san-diego-padres/
 
 **Leaf Maker**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/us/lahaina-maui-fire-atf-investigation.html
 **Four Takeaways From Jack Smith’s Brief in the Trump Election Case**\
 `The special counsel provided new details that help flesh out how Donald Trump sought to remain in power, while setting out his argument for the case to survive the Supreme Court’s immunity decision.`\
 https://nytimes.com/2024/10/02/us/politics/takeaways-jack-smith-trump-brief.html
-
-**‘There’s No Safety’: Decision to Leave Ends in Tragedy for Lebanese Family**\
-`Zahraa Badreddine fled Nabatieh in southern Lebanon as Israeli airstrikes intensified, hoping to find safety in a predominantly Christian area closer to the coast. But last Sunday, an airstrike near Sidon killed her two children.`\
-https://nytimes.com/video/world/middleeast/100000009734604/israeli-airstrikes-lebanese-apartment-building.html
-
-**Auburn flips 5-star QB Deuce Knight from Notre Dame**\
-`Knight had been committed to Notre Dame for a year but switched to Hugh Freeze and Auburn on Wednesday.`\
-https://nytimes.com/athletic/5814079/2024/10/02/deuce-knight-auburn-notre-dame-flip/
 
