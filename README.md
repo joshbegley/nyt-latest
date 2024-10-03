@@ -1,3 +1,7 @@
+**Kane Wommack's trust paid off against Georgia**\
+`Wommack's defense had some good and bad moments in Alabama's win over Georgia, and he's already focused on improving the unit.`\
+https://nytimes.com/athletic/5814651/2024/10/03/alabama-defense-kane-wommack/
+
 **The best Travis Kelce cards to collect, for Swifties and beyond**\
 `Whether you're a Swiftie, a 92%er or just a new collector, these are the cards to consider.`\
 https://nytimes.com/athletic/5814225/2024/10/03/travis-kelce-rookie-cards-swift-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5809654/2024/10/03/golden-state-valkyries-wnba-expa
 **A super PAC for House Democrats raised a record $69 million last month.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/10/03/us/trump-harris-election/house-majority-pac-fundraising
-
-**Has Travis Dermott done enough to crack a crowded Oilers defence?**\
-`Dermott had his best game of the preseason in Wednesday's 6-2 loss to Seattle, but an already crowded Oilers blue line means he's in tough.`\
-https://nytimes.com/athletic/5814723/2024/10/03/edmonton-oilers-travis-dermott-defense/
 
