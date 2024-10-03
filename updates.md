@@ -1,3 +1,7 @@
+**Max Fried makes a painful exit, Braves swept by Padres in Wild Card Series**\
+`Another injury played a role in the Braves' demise, but players understood all they'd overcome: “Definitely can’t be too mad at the finish."`\
+https://nytimes.com/athletic/5814668/2024/10/03/max-fried-makes-a-painful-exit-braves-swept-by-padres-in-wild-card-series/
+
 **Late Night Sums Up a Strangely Chill V.P. Debate**\
 `Jimmy Fallon said viewers “were expecting a horror movie, but instead, they got a Hallmark movie.”`\
 https://nytimes.com/2024/10/03/arts/television/late-night-vice-presidential-debate.html
