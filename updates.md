@@ -1,3 +1,11 @@
+**NFL best bets Week 5: Patience is key when injuries and tight lines are involved**\
+`Austin Mock had to wait for the right spots, but he has a pair of best bets for NFL Week 5.`\
+https://nytimes.com/athletic/5813066/2024/10/03/nfl-best-bets-week-5-buccaneers-bengals/
+
+**Trump Says He Would Try Again to Revoke Haitian Immigrants’ Protections**\
+`He again disparaged Haitians in Springfield, Ohio, and said he would end their legal status in the country and send them back. His first attempt to do that failed.`\
+https://nytimes.com/2024/10/03/us/politics/trump-haitian-immigrants-legal-status.html
+
 **What to See in N.Y.C. Galleries in October**\
 `This week in Newly Reviewed, Martha Schwendener covers Dennis Kardon’s wonderfully strange paintings, Klara Liden’s green vistas and Sheryl Sutton’s mesmerizing movements.`\
 https://nytimes.com/2024/10/03/arts/design/nyc-galleries-october.html
