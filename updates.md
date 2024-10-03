@@ -1,3 +1,7 @@
+**Floyd Mayweather accused in wage dispute lawsuit of slapping exotic dancer**\
+`Mayweather, 47, has a history of committing violence against women in a string of incidents stretching back to 2001.`\
+https://nytimes.com/athletic/5812479/2024/10/03/floyd-mayweather-lawsuit-exotic-dancers/
+
 **Should the Bruins trade Jeremy Swayman? Can they make the playoffs without him? Fan survey results**\
 `Nearly 1,500 readers had participated in the polling as of 11 a.m. Eastern Thursday. Here's what they said, with analysis.`\
 https://nytimes.com/athletic/5815568/2024/10/03/bruins-jeremy-swayman-fan-survey-results/
