@@ -1,3 +1,19 @@
+**What to See in N.Y.C. Galleries in October**\
+`This week in Newly Reviewed, Martha Schwendener covers Dennis Kardon’s wonderfully strange paintings, Klara Liden’s green vistas and Sheryl Sutton’s mesmerizing movements.`\
+https://nytimes.com/2024/10/03/arts/design/nyc-galleries-october.html
+
+**Can Exercise Help With I.B.S.?**\
+`Working out is not a cure-all for your gut, but it can be an important part of managing your symptoms.`\
+https://nytimes.com/2024/10/03/well/move/exercise-help-ibs-symptoms.html
+
+**A Flexible Fall Meal Plan for Non-Planners**\
+`These recipes with overlapping ingredients will get your week into a good groove.`\
+https://nytimes.com/2024/10/03/dining/a-flexible-fall-meal-plan-for-non-planners.html
+
+**Daniel Penny’s Lawyers Will Ask Judge to Throw Out Chokehold Charge**\
+`Mr. Penny’s subway-car struggle with a homeless man, Jordan Neely, ended in death. On Thursday, his lawyers will also ask a judge to exclude video of Mr. Penny discussing the encounter.`\
+https://nytimes.com/2024/10/03/nyregion/daniel-penny-chokehold-charge-subway-death.html
+
 **Brooklyn Museum at 200 Celebrates Beauty and Art’s Hidden History**\
 `A new American wing draws on feminist and racially and ethnically diverse thinking to spotlight 200 exceptional works in its collection.`\
 https://nytimes.com/2024/10/03/arts/design/brooklyn-museum-200-art-collection.html
