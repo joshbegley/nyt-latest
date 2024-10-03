@@ -1,3 +1,7 @@
+**Aid Is Slow to Reach Some Latino Areas in Storm-Hit North Carolina**\
+`Language and other barriers are hobbling the flow of assistance to hard-hit communities where affordable housing drew growing numbers of Hispanic migrants.`\
+https://nytimes.com/2024/10/03/us/helene-north-carolina-latino-swannanoa.html
+
 **Dodgers vs. Padres NLDS preview: Predictions, pitching matchups and more**\
 `The Los Angeles Dodgers and San Diego Padres renew their rivalry in a highly anticipated National League Division Series matchup.`\
 https://nytimes.com/athletic/5815551/2024/10/03/dodgers-padres-2024-nlds-preview-predictions/
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/middleeast/100000009739288/lebanon-israel-foreig
 **The Bounce: Two forgotten actual title contenders**\
 `Welcome to The Bounce, The Athletic's daily NBA newsletter.`\
 https://nytimes.com/athletic/5815926/2024/10/03/bucks-suns-nba-title-karl-anthony-towns-the-bounce/
-
-**Inside a Trump Ad Saying Harris Will Raise Taxes and He Will Cut Them**\
-`A blunt argument hitting voters in the wallet, and a deceptive truncation of a quotation from The Times, pack a wallop.`\
-https://nytimes.com/2024/10/03/us/politics/trump-ad-harris-taxes.html
 
