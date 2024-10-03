@@ -1,3 +1,7 @@
+**Padres chase Braves' Max Fried from game early**\
+`SAN DIEGO — The second time, Max Fried’s Houdini act fell apart.`\
+https://nytimes.com/athletic/5814285/2024/10/02/max-fried-atlanta-braves-nl-wild-card-series/
+
 **Travis Hunter for Heisman? Coach of the year so far? September superlatives**\
 `Bruce Feldman, Stewart Mandel and newcomer Ralph Russo pick their September Heisman, most surprising teams and coach of the year so far.`\
 https://nytimes.com/athletic/5814082/2024/10/02/travis-hunter-heisman-kalen-deboer-alabama-usc-lsu-ohio-state-georgia/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/us/walz-son-shooting.html
 **Jets, Steelers are betting favorites to land Raiders' Davante Adams**\
 `As NFL teams inquire about the Raiders' star receiver, here's what the betting odds reveal about Adams' most likely landing spots.`\
 https://nytimes.com/athletic/5813690/2024/10/02/davante-adams-next-team-odds-jets-steelers/
-
-**Royals' arms hold down Orioles to send Kansas City to ALDS vs. Yankees: Takeaways**\
-`Royals pitching held down the Orioles over both games, and the Royals scraped together runs with their speed while the Orioles struck out.`\
-https://nytimes.com/athletic/5814018/2024/10/02/royals-sweep-orioles-wild-card-series/
 

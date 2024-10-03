@@ -1,3 +1,7 @@
+**Padres chase Braves' Max Fried from game early**\
+`SAN DIEGO — The second time, Max Fried’s Houdini act fell apart.`\
+https://nytimes.com/athletic/5814285/2024/10/02/max-fried-atlanta-braves-nl-wild-card-series/
+
 **Tigers' Andy Ibáñez kept believing and became baseball's latest unlikely playoff hero**\
 `For all the moments in which the Tigers looked failure in the eye and refused to concede, none was bigger than Ibáñez's game-changing hit. `\
 https://nytimes.com/athletic/5814073/2024/10/02/andy-ibanez-detroit-tigers-playoff-hero/
