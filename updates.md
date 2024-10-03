@@ -1,3 +1,7 @@
+**Opposition filed against NCAA, power conferences' anitrust settlement**\
+`The filing argues the damages portion of the settlement is too low and restrictions placed on booster-funded NIL collectives are unfair.`\
+https://nytimes.com/athletic/5815367/2024/10/03/ncaa-power-conference-antitrust-opposition/
+
 **‘Joker: Folie à Deux’ Review: Make ‘Em Laugh (and Yawn)**\
 `Todd Phillip’s “Joker” sequel stars Joaquin Phoenix and Lady Gaga who sing and dance like crazy kids, but the movie is seriously un-fun.`\
 https://nytimes.com/2024/10/03/movies/joker-folie-a-deux-review.html
