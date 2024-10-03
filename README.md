@@ -1,3 +1,7 @@
+**Mbappe out of France squad for Nations League games**\
+`Real Madrid forward Kylian Mbappe has been left out of France&#8217;s squad for their upcoming Nations League fixtures later this month.`\
+https://nytimes.com/athletic/5814967/2024/10/03/kylian-mbappe-france-nations-league/
+
 **Juventus' Bremer sustains ACL injury, set to undergo surgery**\
 `Juventus defender Gleison Bremer is set for an extended spell on the sidelines after injuring the anterior cruciate ligament in his left knee.`\
 https://nytimes.com/athletic/5815009/2024/10/03/juventus-gleison-bremer-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5814961/2024/10/03/armando-broja-injury-everton/
 **Phillips opens up on impact of Guardiola’s ‘overweight’ comment**\
 `Kalvin Phillips has revealed he was left frustrated over Pep Guardiola’s remarks about his weight during his time at Manchester City.`\
 https://nytimes.com/athletic/5814886/2024/10/03/kalvin-phillips-overweight-pep-guardiola/
-
-**Foreign Governments Are Evacuating Their Citizens From Lebanon**\
-`Several countries have chartered flights, while others issued warnings and offered assistance.`\
-https://nytimes.com/2024/10/03/world/middleeast/lebanon-evacuations-flights-countries.html
 
