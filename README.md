@@ -14,8 +14,8 @@ https://nytimes.com/2024/10/03/health/marburg-virus-disease.html
 `The International Association of Fire Fighters was one of the first unions to endorse Joe Biden in 2020. In 2024, its board voted not to endorse at all.`\
 https://nytimes.com/2024/10/03/us/politics/firefighter-union-endorsement.html
 
-**Orioles' GM Mike Elias knows his club needs change. It's just a matter of how much**\
-`Elias said he may have prioritized pitching too much and said he will have to approach the trade deadline differently in future seasons.`\
+**Orioles GM Mike Elias knows his club needs to change. It's just a matter of how much**\
+`Elias said he might have prioritized pitching too much and will have to approach the trade deadline differently in future seasons.`\
 https://nytimes.com/athletic/5816395/2024/10/03/orioles-mike-elias-season-ending-news-conference/
 
 **The Briefing: Ferencvaros 1 Tottenham 2: Selection satisfaction, Moore excels, and where should Gray play?**\
