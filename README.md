@@ -1,3 +1,7 @@
+**The best Travis Kelce cards to collect, for Swifties and beyond**\
+`Whether you're a Swiftie, a 92%er or just a new collector, these are the cards to consider.`\
+https://nytimes.com/athletic/5814225/2024/10/03/travis-kelce-rookie-cards-swift-chiefs/
+
 **The Food of Space Travel Could Be Based on Rocks**\
 `Scientists are studying whether future astronauts on deep-space journeys could transform compounds in asteroids into food.`\
 https://nytimes.com/2024/10/03/science/asteroids-food-space.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5814723/2024/10/03/edmonton-oilers-travis-dermott-d
 **Bryce Huff's September was a slow start. Can Eagles expect production soon?**\
 `The Eagles have yet to see the production they were hoping for from Bryce Huff.`\
 https://nytimes.com/athletic/5811269/2024/10/03/bryce-huff-eagles-production/
-
-**Europe Expected to Approve Higher Tariffs on Electric Cars From China**\
-`The European Union is expected to support wielding tariffs on electric vehicles made in China, seeking to prevent unfair competition.`\
-https://nytimes.com/2024/10/03/business/europe-china-electric-vehicle-tariffs.html
 
