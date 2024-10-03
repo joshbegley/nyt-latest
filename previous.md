@@ -1,3 +1,11 @@
+**Padres' Joe Musgrove exits early from start**\
+`SAN DIEGO — Wednesday at raucous Petco Park, the Padres were seemingly cruising toward a wild-card sweep of the Atlanta Braves when potential disaster struck.`\
+https://nytimes.com/athletic/5814325/2024/10/02/joe-musrove-exits-early-san-diego-padres/
+
+**Leaf Maker**\
+`Rena Cohen makes her New York Times Crossword debut, and that’s the truth.`\
+https://nytimes.com/2024/10/02/crosswords/daily-puzzle-2024-10-03.html
+
 **Padres chase Braves' Max Fried from game early**\
 `Fried was pulled after two innings with the Braves facing elimination.`\
 https://nytimes.com/athletic/5814285/2024/10/02/max-fried-atlanta-braves-nl-wild-card-series/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009734604/israeli-airstrikes-le
 **Auburn flips 5-star QB Deuce Knight from Notre Dame**\
 `Knight had been committed to Notre Dame for a year but switched to Hugh Freeze and Auburn on Wednesday.`\
 https://nytimes.com/athletic/5814079/2024/10/02/deuce-knight-auburn-notre-dame-flip/
-
-**Walz Spoke of Gun Violence Affecting His Son. Here’s an Account of the Shooting.**\
-`At Tuesday’s debate, Gov. Tim Walz said that his son, Gus Walz, witnessed a shooting at a community center. A volleyball coach said Gus helped other young players to safety.`\
-https://nytimes.com/2024/10/02/us/walz-son-shooting.html
-
-**Jets, Steelers are betting favorites to land Raiders' Davante Adams**\
-`As NFL teams inquire about the Raiders' star receiver, here's what the betting odds reveal about Adams' most likely landing spots.`\
-https://nytimes.com/athletic/5813690/2024/10/02/davante-adams-next-team-odds-jets-steelers/
 

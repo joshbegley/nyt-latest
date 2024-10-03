@@ -1,3 +1,11 @@
+**Padres' Joe Musgrove exits early from start**\
+`SAN DIEGO — Wednesday at raucous Petco Park, the Padres were seemingly cruising toward a wild-card sweep of the Atlanta Braves when potential disaster struck.`\
+https://nytimes.com/athletic/5814325/2024/10/02/joe-musrove-exits-early-san-diego-padres/
+
+**Leaf Maker**\
+`Rena Cohen makes her New York Times Crossword debut, and that’s the truth.`\
+https://nytimes.com/2024/10/02/crosswords/daily-puzzle-2024-10-03.html
+
 **Padres chase Braves' Max Fried from game early**\
 `Fried was pulled after two innings with the Braves facing elimination.`\
 https://nytimes.com/athletic/5814285/2024/10/02/max-fried-atlanta-braves-nl-wild-card-series/
