@@ -1,3 +1,7 @@
+**Tyreek Hill says he's happy with Dolphins amid trade speculation**\
+`"Moving forward, I would love to be here," Hill told reporters Wednesday.`\
+https://nytimes.com/athletic/5815194/2024/10/03/tyreek-hill-dolphins-trade-rumors-comments/
+
 **The best Travis Kelce cards to collect, for Swifties and beyond**\
 `Whether you're a Swiftie, a 92%er or just a new collector, these are the cards to consider.`\
 https://nytimes.com/athletic/5814225/2024/10/03/travis-kelce-rookie-cards-swift-chiefs/
