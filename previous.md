@@ -1,3 +1,7 @@
+**Israel warns residents to flee as it keeps up ground attacks in Lebanon.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israel-warns-residents-to-flee-as-it-keeps-up-ground-attacks-in-lebanon
+
 **Thompson: Draymond Green is here to build the Warriors' next title, whenever it comes**\
 `Draymond Green helped build the Warriors up from "the laughingstock of the NBA." Now he's eager to start the build back to the top.`\
 https://nytimes.com/athletic/5814850/2024/10/03/draymond-green-warriors-championship-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5812694/2024/10/03/barcelona-finances-dani-olmo-la-
 **Why Sean Payton may be facing his most important game as Broncos coach vs. Raiders**\
 `The Broncos flipped their season by winning back-to-back road games as big underdogs. Now, they must end an ignominious streak.`\
 https://nytimes.com/athletic/5813063/2024/10/03/broncos-sean-payton-losing-streak-raiders/
-
-**Dave Roberts knows that for the Dodgers, it's title or bust: 'It's expected'**\
-`Roberts takes high expectations as a compliment: "I'm not too concerned about job security. I just want to win another championship."`\
-https://nytimes.com/athletic/5814477/2024/10/03/dodgers-dave-roberts-mlb-postseason/
 

@@ -1,3 +1,7 @@
+**Israel warns residents to flee as it keeps up ground attacks in Lebanon.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israel-warns-residents-to-flee-as-it-keeps-up-ground-attacks-in-lebanon
+
 **Thompson: Draymond Green is here to build the Warriors' next title, whenever it comes**\
 `Draymond Green helped build the Warriors up from "the laughingstock of the NBA." Now he's eager to start the build back to the top.`\
 https://nytimes.com/athletic/5814850/2024/10/03/draymond-green-warriors-championship-training-camp/
