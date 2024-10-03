@@ -1,3 +1,7 @@
+**After Successes, Israel’s Military Is in a ‘Long Game’ With No Clear Outcome**\
+`A year after perhaps the worst military and intelligence debacle in the country’s history, its armed forces have regained the momentum. Some ask: to what end?`\
+https://nytimes.com/2024/10/03/world/middleeast/israel-military-hamas-hezbollah.html
+
 **Listen: ‘Walnut’**\
 `What can animals teach us about mortality — and life?`\
 https://nytimes.com/2024/10/03/learning/listen-walnut.html
