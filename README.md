@@ -1,3 +1,11 @@
+**How Trump Could Punish His Enemies**\
+`We look at why legal experts are concerned.`\
+https://nytimes.com/2024/10/03/briefing/how-trump-could-punish-his-enemies.html
+
+**The Pulse: The MLB wild card is good, and MJ has a fresh beef**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5814276/2024/10/03/mlb-playoffs-michael-jordan-nascar-the-pulse/
+
 **What we're seeing from the Bears: Next steps for Caleb Williams, how good can defense be?**\
 `The Bears are 2-2, what we might've expected, but it hasn't been smooth. What's next as they try to build off their Week 4 win?`\
 https://nytimes.com/athletic/5813494/2024/10/03/chicago-bears-observations-caleb-williams/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5806185/2024/10/03/predicting-2024-25-season-divisi
 **How Jets' Josh Morrissey arrived at the best version of his game**\
 `Even as Morrissey's offensive production dropped last season, he emerged as a better all-around player.`\
 https://nytimes.com/athletic/5806799/2024/10/03/winnipeg-jets-josh-morrissey-interview/
-
-**The Jaguars overestimated themselves. Did they overestimate Trevor Lawrence, too?**\
-`The Jaguars paid Lawrence like a top QB despite his production looking much like that of Sam Darnold, who is already on his fourth team.`\
-https://nytimes.com/athletic/5810877/2024/10/03/trevor-lawrence-jaguars-doug-pederson/
-
-**NFL quarter-season superlatives: Darnold and Daniels hot; Jaguars not; Chiefs face a challenge**\
-`What we've learned after four weeks: The Vikings and Commanders are on the rise, the Ravens are still scary, the Rams are unlucky and more.`\
-https://nytimes.com/athletic/5811400/2024/10/03/nfl-quarter-season-superlatives-darnold-daniels/
 
