@@ -1,3 +1,7 @@
+**Travis Hunter for Heisman? Coach of the year so far? September superlatives**\
+`Bruce Feldman, Stewart Mandel and newcomer Ralph Russo pick their September Heisman, most surprising teams and coach of the year so far.`\
+https://nytimes.com/athletic/5814082/2024/10/02/travis-hunter-heisman-kalen-deboer-alabama-usc-lsu-ohio-state-georgia/
+
 **Brooklyn Campaign Staffer Is Charged in $25,000 Straw Donor Scheme**\
 `Erlene King sent thousands of dollars to associates and told them to distribute the funds to others who would then donate to the campaign she worked for, federal prosecutors said.`\
 https://nytimes.com/2024/10/02/nyregion/campaign-treasurer-brooklyn-fraud-scheme.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5813690/2024/10/02/davante-adams-next-team-odds-jet
 **Royals' arms hold down Orioles to send Kansas City to ALDS vs. Yankees: Takeaways**\
 `Royals pitching held down the Orioles over both games, and the Royals scraped together runs with their speed while the Orioles struck out.`\
 https://nytimes.com/athletic/5814018/2024/10/02/royals-sweep-orioles-wild-card-series/
-
-**Kalia Davis is back, but the 49ers are still waiting on Ricky Pearsall**\
-`The 49ers practiced without Fred Warner, George Kittle and several others, though the heat and their schedule were factors Wednesday.`\
-https://nytimes.com/athletic/5813895/2024/10/02/49ers-injuries-ricky-pearsall-kalia-davis/
 
