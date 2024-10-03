@@ -1,3 +1,15 @@
+**Dafydd vs Goliath: How Welsh minnows (based in England) reached the European big time**\
+`The New Saints already had a unique history - now they are set to perform one of Europe's grandest stages. How did it happen?`\
+https://nytimes.com/athletic/5812163/2024/10/03/tns-fiorentina-conference-league/
+
+**How the WSL evolved into a multinational league**\
+`The first Women's Super League match in 2011 featured only one foreign player but the make-up of teams is now dramatically different`\
+https://nytimes.com/athletic/5811909/2024/10/03/wsl-nationalities-evolution/
+
+**Examining the Mets' late-game bullpen decisions in a loss that forces a decisive Game 3**\
+`The Mets were six outs away from their first postseason series win in nine years.`\
+https://nytimes.com/athletic/5814520/2024/10/02/mets-bullpen-decisions-wild-card-brewers/
+
 **Bucky Irving, Braelon Allen are outperforming starters Rachaad White, Breece Hall**\
 `Michael Salfino shines a light on backup running backs, like Bucky Irving, who have a better rush success rate than their team's starter.`\
 https://nytimes.com/athletic/5813157/2024/10/03/fantasy-football-bucky-irving-breece-hall-starter/

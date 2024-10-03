@@ -1,3 +1,11 @@
+**Dafydd vs Goliath: How Welsh minnows (based in England) reached the European big time**\
+`The New Saints already had a unique history - now they are set to perform one of Europe's grandest stages. How did it happen?`\
+https://nytimes.com/athletic/5812163/2024/10/03/tns-fiorentina-conference-league/
+
+**How the WSL evolved into a multinational league**\
+`The first Women's Super League match in 2011 featured only one foreign player but the make-up of teams is now dramatically different`\
+https://nytimes.com/athletic/5811909/2024/10/03/wsl-nationalities-evolution/
+
 **Bucky Irving, Braelon Allen are outperforming starters Rachaad White, Breece Hall**\
 `Michael Salfino shines a light on backup running backs, like Bucky Irving, who have a better rush success rate than their team's starter.`\
 https://nytimes.com/athletic/5813157/2024/10/03/fantasy-football-bucky-irving-breece-hall-starter/
@@ -18,7 +26,7 @@ https://nytimes.com/2024/10/03/business/japan-immigrant-workers.html
 `Quotation of the Day for Thursday, October 3, 2024.`\
 https://nytimes.com/2024/10/02/pageoneplus/quote-of-the-day-as-dockworkers-strike-for-higher-wages-truckers-worry-about-their-own-pay.html
 
-**Examining the Mets' late-game bullpen decisions in loss that forces decisive Game 3**\
+**Examining the Mets' late-game bullpen decisions in a loss that forces a decisive Game 3**\
 `The Mets were six outs away from their first postseason series win in nine years.`\
 https://nytimes.com/athletic/5814520/2024/10/02/mets-bullpen-decisions-wild-card-brewers/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5814438/2024/10/02/braves-padres-wild-card-game-2/
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane/here-is-the-latest-on-the-storm
-
-**Tropical Storm Leslie Forms in the Atlantic**\
-`The storm is one of two churning in the Atlantic. Though powerful, neither is a threat to land right now.`\
-https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane
-
-**Pitching to Bobby Witt Jr. in big spots is a risky play — Just ask the Orioles**\
-`The Orioles faced a dilemma every time Witt came to the plate in a big moment. They chose to attack him, and each time it backfired. `\
-https://nytimes.com/athletic/5814419/2024/10/02/bobby-witt-jr-royals-orioles-risks/
 

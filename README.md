@@ -1,7 +1,3 @@
-**Dafydd vs Goliath: How Welsh minnows (based in England) reached the European big time**\
-`The New Saints already had a unique history - now they are set to perform one of Europe's grandest stages. How did it happen?`\
-https://nytimes.com/athletic/5812163/2024/10/03/tns-fiorentina-conference-league/
-
 **How the WSL evolved into a multinational league**\
 `The first Women's Super League match in 2011 featured only one foreign player but the make-up of teams is now dramatically different`\
 https://nytimes.com/athletic/5811909/2024/10/03/wsl-nationalities-evolution/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5814438/2024/10/02/braves-padres-wild-card-game-2/
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane/here-is-the-latest-on-the-storm
+
+**Tropical Storm Leslie Forms in the Atlantic**\
+`The storm is one of two churning in the Atlantic. Though powerful, neither is a threat to land right now.`\
+https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane
 
