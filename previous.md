@@ -1,3 +1,11 @@
+**Tracking Tropical Storm Leslie**\
+`See the likely path and wind arrival times for Leslie.`\
+https://nytimes.com/interactive/2024/weather/leslie-map-path-tracker.html
+
+**A North Carolina Mountain Town’s Residents Return To Devastation**\
+`Elizabeth Barker, a first-time homeowner, returns to her house in Swannanoa after Hurricane Helene devastated the town.`\
+https://nytimes.com/video/world/americas/100000009739308/swannanoa-north-carolina-helene-damage.html
+
 **West Ham's Fullkrug out of Ipswich match - Lopetegui**\
 `West Ham United striker Niclas Fullkug remains sidelined with a calf injury.`\
 https://nytimes.com/athletic/5815224/2024/10/03/niclas-fullkrug-injury-update-west-ham/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5814651/2024/10/03/alabama-defense-kane-wommack/
 **The best Travis Kelce cards to collect, for Swifties and beyond**\
 `Whether you're a Swiftie, a 92%er or just a new collector, these are the cards to consider.`\
 https://nytimes.com/athletic/5814225/2024/10/03/travis-kelce-rookie-cards-swift-chiefs/
-
-**The Food of Space Travel Could Be Based on Rocks**\
-`Scientists are studying whether future astronauts on deep-space journeys could transform compounds in asteroids into food.`\
-https://nytimes.com/2024/10/03/science/asteroids-food-space.html
-
-**Tyreek Hill says he's happy with Dolphins amid trade speculation**\
-`"Moving forward, I would love to be here," Hill told reporters Wednesday.`\
-https://nytimes.com/athletic/5815194/2024/10/03/tyreek-hill-dolphins-trade-rumors-comments/
 

@@ -1,3 +1,11 @@
+**Tracking Tropical Storm Leslie**\
+`See the likely path and wind arrival times for Leslie.`\
+https://nytimes.com/interactive/2024/weather/leslie-map-path-tracker.html
+
+**A North Carolina Mountain Town’s Residents Return To Devastation**\
+`Elizabeth Barker, a first-time homeowner, returns to her house in Swannanoa after Hurricane Helene devastated the town.`\
+https://nytimes.com/video/world/americas/100000009739308/swannanoa-north-carolina-helene-damage.html
+
 **West Ham's Fullkrug out of Ipswich match - Lopetegui**\
 `West Ham United striker Niclas Fullkug remains sidelined with a calf injury.`\
 https://nytimes.com/athletic/5815224/2024/10/03/niclas-fullkrug-injury-update-west-ham/
