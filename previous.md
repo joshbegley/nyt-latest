@@ -1,3 +1,7 @@
+**Caitlin Clark wins ROY with 66 of 67 votes, Angel Reese gets 1**\
+`Clark entered the league as the most-anticipated rookie in league history.`\
+https://nytimes.com/athletic/5796437/2024/10/03/caitlin-clark-wnba-rookie-of-the-year/
+
 **FA charges Forest owner Marinakis with misconduct**\
 `The Football Association (FA) has charged Nottingham Forest owner Evangelos Marinakis with misconduct.`\
 https://nytimes.com/athletic/5816129/2024/10/03/nottingham-forest-marinakis-fa-charge/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/world/middleeast/oil-price-biden-iran-strike.html
 **Pursuing Alex Bregman, payroll and filling the corners: 3 storylines that will define the Astros' offseason**\
 `“We’re not taking anything off the table in terms of what we would do, whether it’s making trades or signing a free agent,” the GM said.`\
 https://nytimes.com/athletic/5815995/2024/10/03/alex-bregman-astros-offseason-plans/
-
-**You’re Due for a Colonoscopy, but What if You Don’t Want It?**\
-`Doctors can provide alternative forms of screening for colon and rectal cancer but sometimes have a good reason to stick with the colonoscope.`\
-https://nytimes.com/article/colonoscopy-alternative-colon-cancer-screening.html
 

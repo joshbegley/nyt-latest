@@ -1,3 +1,7 @@
+**Caitlin Clark wins ROY with 66 of 67 votes, Angel Reese gets 1**\
+`Clark entered the league as the most-anticipated rookie in league history.`\
+https://nytimes.com/athletic/5796437/2024/10/03/caitlin-clark-wnba-rookie-of-the-year/
+
 **FA charges Forest owner Marinakis with misconduct**\
 `The Football Association (FA) has charged Nottingham Forest owner Evangelos Marinakis with misconduct.`\
 https://nytimes.com/athletic/5816129/2024/10/03/nottingham-forest-marinakis-fa-charge/
