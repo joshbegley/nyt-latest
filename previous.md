@@ -1,3 +1,7 @@
+**With Dejounte Murray, Herb Jones, Pelicans are hoping to double down on defensive strengths**\
+`“(Murray) and Herb defending at a high level is something that’s going to be special to watch,” says CJ McCollumn.`\
+https://nytimes.com/athletic/5814754/2024/10/03/pelicans-dejounte-murray-herb-jones-defense-teammates/
+
 **A Rom-Com About Brain Cancer? Leave It to Sophie Kinsella.**\
 `The author of “Confessions of a Shopaholic” packs love, laughter and a harrowing real-life health ordeal into a 133-page novella.`\
 https://nytimes.com/2024/10/03/books/what-does-it-feel-like-sophie-kinsella.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/business/europe-china-electric-vehicle-tariffs.ht
 **The Pulse: The MLB wild card is good**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5815139/2024/10/03/mlb-wild-card-sweeps-the-pulse-2/
-
-**Can Kaleb Johnson, Iowa upset Will Howard, Ohio State?**\
-`What's on the line for Ohio State and Iowa in Saturday's Big Ten matchup? Let's take a look at the key players and matchups.`\
-https://nytimes.com/athletic/5814642/2024/10/03/ohio-state-iowa-preview-predictions-big-ten/
 
