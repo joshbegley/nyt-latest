@@ -1,3 +1,11 @@
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/10/03/books/review/new-books-recommendations.html
+
+**Photos Show New York Congressman in Blackface as Michael Jackson**\
+`Representative Mike Lawler, a Republican locked in a tight race for re-election, dressed as the pop star for Halloween as a college student in 2006.`\
+https://nytimes.com/2024/10/03/nyregion/lawler-blackface-michael-jackson.html
+
 **She Is Outrageous, Demeaning, Dangerous. She Shouldn’t Be Punished.**\
 `Amy Wax’s statements are indefensible. But so is the University of Pennsylvania’s response.`\
 https://nytimes.com/2024/10/03/opinion/amy-wax-academic-freedom-penn.html

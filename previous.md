@@ -1,3 +1,11 @@
+**8 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/10/03/books/review/new-books-recommendations.html
+
+**Photos Show New York Congressman in Blackface as Michael Jackson**\
+`Representative Mike Lawler, a Republican locked in a tight race for re-election, dressed as the pop star for Halloween as a college student in 2006.`\
+https://nytimes.com/2024/10/03/nyregion/lawler-blackface-michael-jackson.html
+
 **She Is Outrageous, Demeaning, Dangerous. She Shouldn’t Be Punished.**\
 `Amy Wax’s statements are indefensible. But so is the University of Pennsylvania’s response.`\
 https://nytimes.com/2024/10/03/opinion/amy-wax-academic-freedom-penn.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/03/us/politics/senators-doj-boeing-letter.html
 **Southern States Try to Minimize Voting Disruptions After Hurricane Helene**\
 `Florida’s governor plans to sign an executive order giving election officials in 13 counties greater flexibility in administering early and absentee voting.`\
 https://nytimes.com/2024/10/03/us/politics/southern-states-early-voting-helene.html
-
-**Leeds midfielder Gruev sustains 'significant' knee injury, set to undergo surgery**\
-`Leeds United midfielder Ilia Gruev is set for an extended spell on the sidelines after sustaining a significant injury to his right knee.`\
-https://nytimes.com/athletic/5816177/2024/10/03/leeds-gruev-injury-update/
-
-**‘Where’s Wanda’ Is a Charming German Dramedy**\
-`A small-town European murder mystery but more stylish than most — and less miserable.`\
-https://nytimes.com/2024/10/03/arts/television/wheres-wanda-apple-tv-plus.html
 
