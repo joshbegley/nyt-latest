@@ -1,3 +1,7 @@
+**College football Week 6 oddly specific predictions: Cam Ward and Miami will solve the Calgorithm**\
+`Will Missouri's offense get on track at Texas A&M? Who will win the rematch of last year's national title game?`\
+https://nytimes.com/athletic/5812811/2024/10/03/college-football-predictions-week-6-miami-cal-tennessee-arkansas/
+
 **Carlos Alcaraz and Jannik Sinner go head-to-head in their own tennis galaxy**\
 `The two best men's tennis players in the world are elevating each other to heights as absurd as they are watchable`\
 https://nytimes.com/athletic/5812516/2024/10/03/alcaraz-sinner-head-to-head-rivalry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5814493/2024/10/03/penn-state-ucla-prediction-sched
 **Mauricio Pochettino on USMNT objectives: 'We are going to be very demanding'**\
 `Pochettino explained his first USMNT roster, his desired playing style and concerns over some of the squad's game time with their clubs`\
 https://nytimes.com/athletic/5813898/2024/10/03/mauricio-pochettino-changes-usmnt-roster/
-
-**Pete Crow-Armstrong must be the start of a big wave of young talent for the Cubs**\
-`Young talent will have to be part of the solution for a team that finished with an 83-79 record in each of the last two seasons.`\
-https://nytimes.com/athletic/5813647/2024/10/03/pete-crow-armstrong-chicago-cubs-young-talent/
 
