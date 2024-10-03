@@ -1,3 +1,27 @@
+**Lee Carsley's England squad: Experiments, the attacking conundrum and a ruthless streak**\
+`Carsley believes he is in charge of the national team through until Christmas but his squad selections indicate long-term planning`\
+https://nytimes.com/athletic/5815535/2024/10/03/england-carsley-squad-bellingham-palmer/
+
+**Lawyers for a Sean Combs Accuser Ask to Withdraw From Her Case**\
+`A dispute between Adria English, who has accused Mr. Combs of sexual misconduct, and her lawyers is the latest twist in the civil litigation the music mogul is facing.`\
+https://nytimes.com/2024/10/03/arts/music/adria-english-sean-diddy-combs-accuser-lawyer.html
+
+**An Exodus of Agents Left the Secret Service Unprepared for 2024**\
+`Punishing hours, dilapidated facilities and an ill-conceived retiree program left the agency without the personnel it needed in a year of threats and violence.`\
+https://nytimes.com/2024/10/03/us/politics/secret-service-staffing-retention-hiring.html
+
+**MLS Cup playoff schedule set with favorites Inter Miami to begin round one on October 25**\
+`Lionel Messi and Inter Miami will headline the start of the Major League Soccer playoffs and will begin their round one best-of-three series on October 25.`\
+https://nytimes.com/athletic/5815707/2024/10/03/mls-cup-playoff-schedule-inter-miami/
+
+**JD Vance Is Smoother — but No Better — than Donald Trump**\
+`Do not use normal appraisals for an abnormal election.`\
+https://nytimes.com/2024/10/03/opinion/jd-vance-trump-walz.html
+
+**What We Learned From Seeing Over 200 Fashion Shows in One Month**\
+`Our editors discuss the season’s standout trends, from animal-shaped bags to one-legged pants.`\
+https://nytimes.com/2024/10/03/t-magazine/fashion-shows-trends.html
+
 **Emerson: The SEC ... it just means more ratings, which could mean 9-game schedule**\
 `What could push the SEC to a nine-game schedule? Strong TV ratings and a scheduling agreement with the Big Ten won't hurt.`\
 https://nytimes.com/athletic/5815119/2024/10/03/sec-tv-ratings-nine-game-schedule/
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/5815657/2024/10/03/tigers-royals-wild-card-mlb-play
 **Betting for (by) dummies: Vikings to beat Rodgers, the Steelers to bounce back and more**\
 `Jon Greenberg and Zac Jackson look at their favorite betting plays for the football weekend ahead, including both college and the NFL.`\
 https://nytimes.com/athletic/5815586/2024/10/03/betting-picks-nfl-college-football-vikings-steelers/
-
-**Davante Adams trade roundtable: Experts discuss best, worst fantasy-related landing spots**\
-`The Athletic fantasy football experts weigh in on best, worst landing spots for Davante Adams should he be traded in the near future.`\
-https://nytimes.com/athletic/5814460/2024/10/03/fantasy-football-davante-adams-trade-scenarios/
-
-**Can a Neon Blue Gummy Worm Cocktail Save the Movies?**\
-`Over-the-top specialty concessions at theaters aren’t new, but they are newly everywhere.`\
-https://nytimes.com/2024/10/03/dining/movie-theater-food-concessions.html
-
-**Mounjaro and Zepbound Are No Longer in Shortage, F.D.A. Says**\
-`The announcement will expand access to the diabetes and weight-loss drugs. But it will also complicate the future of compounded versions of the medications.`\
-https://nytimes.com/2024/10/03/well/mounjaro-zepbound-shortage-compounded-tirzepatide.html
-
-**Masamitsu Yoshioka, Last Pearl Harbor Bombardier, Dies at 106**\
-`He was 23 years old when he took part in the attack that triggered America’s declaration of war against Japan. He rarely spoke publicly about it.`\
-https://nytimes.com/2024/10/03/world/asia/masamitsu-yoshioka-dies.html
-
-**Why was Conor McGregor on the pitch at Arsenal?**\
-`What was the story behind one of the more curious social media viral clips of the season so far?`\
-https://nytimes.com/athletic/5815552/2024/10/03/why-was-conor-mcgregor-on-the-pitch-at-arsenal/
-
-**‘Joker: Folie à Deux’ Review: Make ‘Em Laugh (and Yawn)**\
-`Todd Phillips’s “Joker” sequel stars Joaquin Phoenix and Lady Gaga who sing and dance like crazy kids, but the movie is seriously un-fun.`\
-https://nytimes.com/2024/10/03/movies/joker-folie-a-deux-review.html
 
