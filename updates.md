@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Victoria Kim and Liam Stack`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
+
+**Middle East Crisis Updates: Israel Strikes Near the Heart of Beirut**\
+`The attack on a health authority building killed at least six, the Lebanese authorities said. The Israeli military said it had struck about 200 sites in Lebanon overnight.`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah
+
 **What's going wrong at Real Madrid right now – and how much does it matter?**\
 `Carlo Ancelotti's side lost for the first time since January, but problem signs have been building for a while`\
 https://nytimes.com/athletic/5814676/2024/10/03/real-madrid-champions-league-lille-problems/
