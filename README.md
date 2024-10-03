@@ -1,3 +1,11 @@
+**Raiders' Antonio Pierce receives significant 8-year NCAA penalty**\
+`NCAA infractions committee determined Pierce “knowingly and blatantly” disregarded and violated recruiting rules during the pandemic.`\
+https://nytimes.com/athletic/5815906/2024/10/03/antonio-pierce-ncaa-penalty-asu/
+
+**Chiefs place WR Rashee Rice on injured reserve**\
+`In three games, Rice has 24 catches, 288 yards and two touchdowns.`\
+https://nytimes.com/athletic/5816466/2024/10/03/chiefs-rashee-rice-injured-reserve/
+
 **Federal Judge Clears Path for Part of Biden’s Student Loan Plan**\
 `The ruling by a judge in Georgia could be just a temporary reprieve for the plan, which still faces legal challenges in another state.`\
 https://nytimes.com/2024/10/03/us/politics/biden-student-loan-debt-georgia.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5808853/2024/10/03/ferencvaros-tottenham-moore-gray
 **Filing in Trump Election Case Fleshes Out Roles of a Sprawling Cast**\
 `Donald Trump is the only defendant in the special counsel’s case that charges him with a plot to remain in power after his 2020 loss. But a newly unsealed brief provides fresh details about many other figures.`\
 https://nytimes.com/2024/10/03/us/politics/trump-jan-6-jack-smith-brief.html
-
-**Sometimes the Best Restaurant Is Inside the Grocery Store**\
-`New York City is teeming with independent groceries that have nailed the hot bar, the deli counter and the takeaway item.`\
-https://nytimes.com/2024/10/03/dining/sometimes-the-best-restaurant-is-inside-the-grocery-store.html
-
-**Joel Fleishman, Influential Expert on Philanthropy, Dies at 90**\
-`Officially, he was an authority on nonprofit foundations. Unofficially, he was an unparalleled networker among the nation’s rich and powerful.`\
-https://nytimes.com/2024/10/03/us/joel-fleishman-dead.html
 
