@@ -1,3 +1,15 @@
+**Unable to Penetrate Systems, Hackers Spread Lies About Vulnerabilities**\
+`When France fended off cyberattacks during the Olympics, hackers circulated false claims about their attacks, a tactic the United States could face during the election.`\
+https://nytimes.com/2024/10/03/us/politics/us-election-cyber-hacking.html
+
+**Sweet Potato and Tofu, Fall’s Hot Couple**\
+`Eat them roasted on a sheet pan with chili powder and topped with quick-pickled red onion, or tossed with a tangy mix of chile crisp, tamari and honey.`\
+https://nytimes.com/2024/10/03/dining/sweet-potato-and-tofu-falls-hot-couple.html
+
+**College football Week 6 model-projected point differentials, totals for every game**\
+`Austin Mock's model projects the point differentials and total points for every Week 6 college football game.`\
+https://nytimes.com/athletic/5815992/2024/10/03/college-football-week-6-model-projections-predicted-scores/
+
 **Trump, Vance and the Jan. 6 Case**\
 `Readers respond to the special counsel Jack Smith’s filing. Also: The pain of IUD insertions; food and the environment; A.I. and the patient.`\
 https://nytimes.com/2024/10/03/opinion/trump-vance-jan-6.html

@@ -1,3 +1,15 @@
+**Unable to Penetrate Systems, Hackers Spread Lies About Vulnerabilities**\
+`When France fended off cyberattacks during the Olympics, hackers circulated false claims about their attacks, a tactic the United States could face during the election.`\
+https://nytimes.com/2024/10/03/us/politics/us-election-cyber-hacking.html
+
+**Sweet Potato and Tofu, Fall’s Hot Couple**\
+`Eat them roasted on a sheet pan with chili powder and topped with quick-pickled red onion, or tossed with a tangy mix of chile crisp, tamari and honey.`\
+https://nytimes.com/2024/10/03/dining/sweet-potato-and-tofu-falls-hot-couple.html
+
+**College football Week 6 model-projected point differentials, totals for every game**\
+`Austin Mock's model projects the point differentials and total points for every Week 6 college football game.`\
+https://nytimes.com/athletic/5815992/2024/10/03/college-football-week-6-model-projections-predicted-scores/
+
 **Trump, Vance and the Jan. 6 Case**\
 `Readers respond to the special counsel Jack Smith’s filing. Also: The pain of IUD insertions; food and the environment; A.I. and the patient.`\
 https://nytimes.com/2024/10/03/opinion/trump-vance-jan-6.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5815702/2024/10/03/champions-league-projections-mat
 **Floyd Mayweather accused in wage dispute lawsuit of slapping exotic dancer**\
 `Mayweather, 47, has a history of committing violence against women in a string of incidents stretching back to 2001.`\
 https://nytimes.com/athletic/5812479/2024/10/03/floyd-mayweather-lawsuit-exotic-dancers/
-
-**Should the Bruins trade Jeremy Swayman? Can they make the playoffs without him? Fan survey results**\
-`Nearly 1,500 readers had participated in the polling as of 11 a.m. Eastern Thursday. Here's what they said, with analysis.`\
-https://nytimes.com/athletic/5815568/2024/10/03/bruins-jeremy-swayman-fan-survey-results/
-
-**How did Notre Dame land a 5-star basketball recruit?**\
-`Micah Shrewsberry's NBA ties gave him credibility with Haralson that more experienced college coaches lacked.`\
-https://nytimes.com/athletic/5815285/2024/10/03/notre-dame-basketball-jalen-haralson/
-
-**Timberwolves still see themselves as contenders after trading Karl-Anthony Towns**\
-`The pieces they received in return have the Wolves confident that they can still be a contender in the Western Conference.`\
-https://nytimes.com/athletic/5814638/2024/10/03/timberwolves-contenders-trading-karl-anthony-towns/
 
