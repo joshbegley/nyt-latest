@@ -1,3 +1,15 @@
+**The Briefing: Ferencvaros 1 Tottenham 2: Selection satisfaction, Moore excels, and where should Gray play?**\
+`A youthful Tottenham side became the first English team to beat Ferencvaros in Budapest since Leeds prevailed there in 1969`\
+https://nytimes.com/athletic/5808853/2024/10/03/ferencvaros-tottenham-moore-gray-bergvall-briefing/
+
+**Filing in Trump Election Case Fleshes Out Roles of a Sprawling Cast**\
+`Donald Trump is the only defendant in the special counsel’s case that charges him with a plot to remain in power after his 2020 loss. But a newly unsealed brief provides fresh details about many other figures.`\
+https://nytimes.com/2024/10/03/us/politics/trump-jan-6-jack-smith-brief.html
+
+**Sometimes the Best Restaurant Is Inside the Grocery Store**\
+`New York City is teeming with independent groceries that have nailed the hot bar, the deli counter and the takeaway item.`\
+https://nytimes.com/2024/10/03/dining/sometimes-the-best-restaurant-is-inside-the-grocery-store.html
+
 **Joel Fleishman, Influential Expert on Philanthropy, Dies at 90**\
 `Officially, he was an authority on nonprofit foundations. Unofficially, he was an unparalleled networker among the nation’s rich and powerful.`\
 https://nytimes.com/2024/10/03/us/joel-fleishman-dead.html

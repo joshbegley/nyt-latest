@@ -1,3 +1,15 @@
+**The Briefing: Ferencvaros 1 Tottenham 2: Selection satisfaction, Moore excels, and where should Gray play?**\
+`A youthful Tottenham side became the first English team to beat Ferencvaros in Budapest since Leeds prevailed there in 1969`\
+https://nytimes.com/athletic/5808853/2024/10/03/ferencvaros-tottenham-moore-gray-bergvall-briefing/
+
+**Filing in Trump Election Case Fleshes Out Roles of a Sprawling Cast**\
+`Donald Trump is the only defendant in the special counsel’s case that charges him with a plot to remain in power after his 2020 loss. But a newly unsealed brief provides fresh details about many other figures.`\
+https://nytimes.com/2024/10/03/us/politics/trump-jan-6-jack-smith-brief.html
+
+**Sometimes the Best Restaurant Is Inside the Grocery Store**\
+`New York City is teeming with independent groceries that have nailed the hot bar, the deli counter and the takeaway item.`\
+https://nytimes.com/2024/10/03/dining/sometimes-the-best-restaurant-is-inside-the-grocery-store.html
+
 **Joel Fleishman, Influential Expert on Philanthropy, Dies at 90**\
 `Officially, he was an authority on nonprofit foundations. Unofficially, he was an unparalleled networker among the nation’s rich and powerful.`\
 https://nytimes.com/2024/10/03/us/joel-fleishman-dead.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/03/us/politics/tina-peters-sentence-colorado.html
 **A Storied Luxury Liner May Soon Find New Life on the Florida Seafloor**\
 `The S.S. United States, one of the fastest ships to ever cross the Atlantic Ocean, may be sunk off the coast and turned into a habitat to marine life as the world’s largest artificial reef.`\
 https://nytimes.com/2024/10/03/us/ss-united-states-largest-artificial-reef.html
-
-**8 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/10/03/books/review/new-books-recommendations.html
-
-**Photos Show New York Congressman in Blackface as Michael Jackson**\
-`Representative Mike Lawler, a Republican locked in a tight race for re-election, dressed as the pop star for Halloween as a college student in 2006.`\
-https://nytimes.com/2024/10/03/nyregion/lawler-blackface-michael-jackson.html
-
-**What’s Going On in This Picture? | Oct. 7, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/10/03/learning/whats-going-on-in-this-picture-oct-7-2024.html
 
