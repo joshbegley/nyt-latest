@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
 
+**NHL 2024-25 awards predictions: Staff picks for Calder, Rocket Richard, Hart and more**\
+`Can Cale Makar regain his Norris-winning form? Is anyone capable of challenging Auston Matthews in the Rocket Richard race?
+`\
+https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
+
 **Foreign Governments Are Evacuating Their Citizens From Lebanon**\
 `Several countries have chartered flights, while others issued warnings and offered assistance.`\
 https://nytimes.com/2024/10/03/world/middleeast/lebanon-evacuations-flights-countries.html
