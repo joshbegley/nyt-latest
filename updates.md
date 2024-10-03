@@ -1,3 +1,7 @@
+**Treasurer for Little-Known Brooklyn Candidate Is Charged in Fraud Scheme**\
+`Erlene King sent thousands of dollars to associates and told them to distribute the funds to others who would then donate to the campaign she worked for, federal prosecutors said.`\
+https://nytimes.com/2024/10/02/nyregion/campaign-treasurer-brooklyn-fraud-scheme.html
+
 **David Banks, N.Y.C. Schools Chancellor, Moves Up His Departure**\
 `The chancellor, who previously announced that he would step down at the end of December, will instead leave the job on Oct. 16. Melissa Aviles-Ramos, a top deputy, will succeed him.`\
 https://nytimes.com/2024/10/02/nyregion/david-banks-schools-chancellor-resign.html
