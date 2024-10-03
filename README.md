@@ -1,3 +1,7 @@
+**How the WSL evolved into a multinational league**\
+`The first Women's Super League match in 2011 featured only one foreign player but the make-up of teams is now dramatically different`\
+https://nytimes.com/athletic/5811909/2024/10/03/wsl-nationalities-evolution/
+
 **Bucky Irving, Braelon Allen are outperforming starters Rachaad White, Breece Hall**\
 `Michael Salfino shines a light on backup running backs, like Bucky Irving, who have a better rush success rate than their team's starter.`\
 https://nytimes.com/athletic/5813157/2024/10/03/fantasy-football-bucky-irving-breece-hall-starter/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane/here
 **Tropical Storm Leslie Forms in the Atlantic**\
 `The storm is one of two churning in the Atlantic. Though powerful, neither is a threat to land right now.`\
 https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane
-
-**Pitching to Bobby Witt Jr. in big spots is a risky play — Just ask the Orioles**\
-`The Orioles faced a dilemma every time Witt came to the plate in a big moment. They chose to attack him, and each time it backfired. `\
-https://nytimes.com/athletic/5814419/2024/10/02/bobby-witt-jr-royals-orioles-risks/
 
