@@ -1,3 +1,7 @@
+**Senators Urge D.O.J. to Hold Boeing Executives Accountable for Safety Violations Amid Ongoing Crises**\
+`In a letter, Democratic Senators Elizabeth Warren of Massachusetts and Richard Blumenthal of Connecticut criticized the Justice Department after continued incidents with Boeing planes.`\
+https://nytimes.com/2024/10/03/us/politics/senators-doj-boeing-letter.html
+
 **Southern States Try to Minimize Voting Disruptions After Hurricane Helene**\
 `Florida’s governor plans to sign an executive order giving election officials in 13 counties greater flexibility in administering early and absentee voting.`\
 https://nytimes.com/2024/10/03/us/politics/southern-states-early-voting-helene.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/business/the-climate-fix-solutions-for-a-warming-
 **The Climate Fix: Solutions for a Warming World**\
 `In our new weekly series, we’re covering the vast amount of investment, ingenuity and scientific expertise going toward stopping climate change.`\
 https://nytimes.com/2024/10/03/climate/the-climate-fix-solutions-for-a-warming-world.html
-
-**Aid Is Slow to Reach Some Latino Areas in Storm-Hit North Carolina**\
-`Language and other barriers are hobbling the flow of assistance to hard-hit communities where affordable housing drew growing numbers of Hispanic migrants.`\
-https://nytimes.com/2024/10/03/us/helene-north-carolina-latino-swannanoa.html
 

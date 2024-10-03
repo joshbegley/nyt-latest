@@ -1,3 +1,15 @@
+**Southern States Try to Minimize Voting Disruptions After Hurricane Helene**\
+`Florida’s governor plans to sign an executive order giving election officials in 13 counties greater flexibility in administering early and absentee voting.`\
+https://nytimes.com/2024/10/03/us/politics/southern-states-early-voting-helene.html
+
+**Leeds midfielder Gruev sustains 'significant' knee injury, set to undergo surgery**\
+`Leeds United midfielder Ilia Gruev is set for an extended spell on the sidelines after sustaining a significant injury to his right knee.`\
+https://nytimes.com/athletic/5816177/2024/10/03/leeds-gruev-injury-update/
+
+**‘Where’s Wanda’ Is a Charming German Dramedy**\
+`A small-town European murder mystery but more stylish than most — and less miserable.`\
+https://nytimes.com/2024/10/03/arts/television/wheres-wanda-apple-tv-plus.html
+
 **FIFA proposes early transfer window for Club World Cup teams**\
 `Next summer’s transfer window could open two weeks earlier than usual to allow teams competing in the revamped Club World Cup to sign new players, FIFA has announced.`\
 https://nytimes.com/athletic/5815944/2024/10/03/transfer-window-club-world-cup-teams/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/03/climate/the-climate-fix-solutions-for-a-warming-w
 **Aid Is Slow to Reach Some Latino Areas in Storm-Hit North Carolina**\
 `Language and other barriers are hobbling the flow of assistance to hard-hit communities where affordable housing drew growing numbers of Hispanic migrants.`\
 https://nytimes.com/2024/10/03/us/helene-north-carolina-latino-swannanoa.html
-
-**Dodgers vs. Padres NLDS preview: Predictions, pitching matchups and more**\
-`The Dodgers and Padres renew their rivalry in a highly anticipated NLDS matchup. Our writers preview the series. `\
-https://nytimes.com/athletic/5815551/2024/10/03/dodgers-padres-2024-nlds-preview-predictions/
-
-**After Helene, Even Restoring Internet Service Is Political**\
-`Former President Donald J. Trump praised Elon Musk for bringing service to hard-hit areas. The Biden administration noted that the government was already on the case.`\
-https://nytimes.com/2024/10/03/us/politics/hurricane-helene-internet-trump-musk-starlink.html
-
-**Oil Price Jumps After Biden Says ‘Discussing’ Israeli Strike on Iranian Facilities**\
-`The president was asked about a potential strike on the oil infrastructure of Iran, which accounts for about 2 percent of the world’s supply.`\
-https://nytimes.com/2024/10/03/world/middleeast/oil-price-biden-iran-strike.html
 

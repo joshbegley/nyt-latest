@@ -1,3 +1,15 @@
+**Southern States Try to Minimize Voting Disruptions After Hurricane Helene**\
+`Florida’s governor plans to sign an executive order giving election officials in 13 counties greater flexibility in administering early and absentee voting.`\
+https://nytimes.com/2024/10/03/us/politics/southern-states-early-voting-helene.html
+
+**Leeds midfielder Gruev sustains 'significant' knee injury, set to undergo surgery**\
+`Leeds United midfielder Ilia Gruev is set for an extended spell on the sidelines after sustaining a significant injury to his right knee.`\
+https://nytimes.com/athletic/5816177/2024/10/03/leeds-gruev-injury-update/
+
+**‘Where’s Wanda’ Is a Charming German Dramedy**\
+`A small-town European murder mystery but more stylish than most — and less miserable.`\
+https://nytimes.com/2024/10/03/arts/television/wheres-wanda-apple-tv-plus.html
+
 **FIFA proposes early transfer window for Club World Cup teams**\
 `Next summer’s transfer window could open two weeks earlier than usual to allow teams competing in the revamped Club World Cup to sign new players, FIFA has announced.`\
 https://nytimes.com/athletic/5815944/2024/10/03/transfer-window-club-world-cup-teams/
