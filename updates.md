@@ -1,3 +1,11 @@
+**Big Ten commish Tony Petitti outlines the importance of partnership with the SEC**\
+`Ahead of the Big Ten and SEC's upcoming meeting in Nashville, Petitti says scheduling and Playoff format are up for discussion.`\
+https://nytimes.com/athletic/5816668/2024/10/03/big-ten-sec-college-football-playoff-scheduling/
+
+**At the Debate, JD Vance Put a Lifetime of Spin to Use**\
+`Mr. Vance sanded down Donald Trump’s edges the way he often sharpens attacks for rally crowds — picking the facts that can deliver the most impact and discarding the rest.`\
+https://nytimes.com/2024/10/03/us/politics/vance-trumpism-analysis.html
+
 **Diamondbacks fire pitching coach Brent Strom: Source**\
 `The D-Backs' pitching staff finished 27th in ERA and WHIP in a season where they fell just short of the postseason.`\
 https://nytimes.com/athletic/5816706/2024/10/03/diamondbacks-fire-pitching-coach-brent-strom-source/
