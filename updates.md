@@ -1,3 +1,7 @@
+**Max Fried makes painful exit, Braves swept by Padres in Wild Card Series**\
+`Another injury played a role in the Braves' demise, but players understood all they'd overcome: “Definitely can’t be too mad at the finish."`\
+https://nytimes.com/athletic/5814668/2024/10/03/max-fried-braves-swept-padres-wild-card/
+
 **What's going wrong at Real Madrid right now - and how much does it matter?**\
 `Carlo Ancelotti's side lost for the first time since January, but problem signs have been building for a while`\
 https://nytimes.com/athletic/5814676/2024/10/03/real-madrid-champions-league-lille-problems/
