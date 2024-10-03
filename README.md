@@ -1,3 +1,7 @@
+**Golden Knights to get salary cap relief for Lehner's contract**\
+`Vegas will pay Lehner the $4.4 million in salary owed on his deal this season while no longer carrying his annual $5 million cap hit.`\
+https://nytimes.com/athletic/5815796/2024/10/03/vegas-golden-knigts-lehner-settlement-cap/
+
 **Unable to Penetrate Systems, Hackers Spread Lies About Vulnerabilities**\
 `When France fended off cyberattacks during the Olympics, hackers circulated false claims about their attacks, a tactic the United States could face during the election.`\
 https://nytimes.com/2024/10/03/us/politics/us-election-cyber-hacking.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/10/02/opinion/thepoint/donald-trump-jack-smith
 **Champions League projections: All the talking points from Matchday 2**\
 `Brest, Bayer Leverkusen and Aston Villa are all on the rise but how much has defeat in Lille hurt Real Madrid?`\
 https://nytimes.com/athletic/5815702/2024/10/03/champions-league-projections-matchday-2-talking-points/
-
-**Floyd Mayweather accused in wage dispute lawsuit of slapping exotic dancer**\
-`Mayweather, 47, has a history of committing violence against women in a string of incidents stretching back to 2001.`\
-https://nytimes.com/athletic/5812479/2024/10/03/floyd-mayweather-lawsuit-exotic-dancers/
 
