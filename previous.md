@@ -1,3 +1,11 @@
+**She Is Outrageous, Demeaning, Dangerous. She Shouldn’t Be Punished.**\
+`Amy Wax’s statements are indefensible. But so is the University of Pennsylvania’s response.`\
+https://nytimes.com/2024/10/03/opinion/amy-wax-academic-freedom-penn.html
+
+**What’s Going On in This Picture? | Oct. 7, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/10/03/learning/whats-going-on-in-this-picture-oct-7-2024.html
+
 **OpenAI Adds $4 Billion Credit Line on Top of $6.6 Billion Investment Round**\
 `The San Francisco company is gathering the billions its executives believe they will need to continue building new A.I. technology.`\
 https://nytimes.com/2024/10/03/technology/openai-credit-line.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5816177/2024/10/03/leeds-gruev-injury-update/
 **‘Where’s Wanda’ Is a Charming German Dramedy**\
 `A small-town European murder mystery but more stylish than most — and less miserable.`\
 https://nytimes.com/2024/10/03/arts/television/wheres-wanda-apple-tv-plus.html
-
-**FIFA proposes early transfer window for Club World Cup teams**\
-`Next summer’s transfer window could open two weeks earlier than usual to allow teams competing in the revamped Club World Cup to sign new players, FIFA has announced.`\
-https://nytimes.com/athletic/5815944/2024/10/03/transfer-window-club-world-cup-teams/
-
-**Caitlin Clark wins ROY with 66 of 67 votes, Angel Reese gets 1**\
-`Clark entered the league as the most-anticipated rookie in league history.`\
-https://nytimes.com/athletic/5796437/2024/10/03/caitlin-clark-wnba-rookie-of-the-year/
 

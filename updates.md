@@ -1,3 +1,11 @@
+**She Is Outrageous, Demeaning, Dangerous. She Shouldn’t Be Punished.**\
+`Amy Wax’s statements are indefensible. But so is the University of Pennsylvania’s response.`\
+https://nytimes.com/2024/10/03/opinion/amy-wax-academic-freedom-penn.html
+
+**What’s Going On in This Picture? | Oct. 7, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/10/03/learning/whats-going-on-in-this-picture-oct-7-2024.html
+
 **Senators Urge Justice Dept. to Hold Boeing Executives Accountable for Safety**\
 `In a letter, Senators Elizabeth Warren and Richard Blumenthal criticized the Justice Department after continued episodes with the company’s planes.`\
 https://nytimes.com/2024/10/03/us/politics/senators-doj-boeing-letter.html
