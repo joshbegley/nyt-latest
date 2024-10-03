@@ -1,3 +1,7 @@
+**Israel has sent troops from five army divisions to support the Lebanon invasion, officials say.**\
+`By Aryn Baker`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israel-has-sent-troops-from-five-army-divisions-to-support-the-lebanon-invasion-officials-say
+
 **Tracking Tropical Storm Leslie**\
 `See the likely path and wind arrival times for Leslie.`\
 https://nytimes.com/interactive/2024/weather/leslie-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5814043/2024/10/03/michael-jordan-nascar-lawsuit-te
 **Kane Wommack's trust paid off against Georgia**\
 `Wommack's defense had some good and bad moments in Alabama's win over Georgia, and he's already focused on improving the unit.`\
 https://nytimes.com/athletic/5814651/2024/10/03/alabama-defense-kane-wommack/
-
-**The best Travis Kelce cards to collect, for Swifties and beyond**\
-`Whether you're a Swiftie, a 92%er or just a new collector, these are the cards to consider.`\
-https://nytimes.com/athletic/5814225/2024/10/03/travis-kelce-rookie-cards-swift-chiefs/
 

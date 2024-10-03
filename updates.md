@@ -1,3 +1,7 @@
+**Israel has sent troops from five army divisions to support the Lebanon invasion, officials say.**\
+`By Aryn Baker`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israel-has-sent-troops-from-five-army-divisions-to-support-the-lebanon-invasion-officials-say
+
 **Tracking Tropical Storm Leslie**\
 `See the likely path and wind arrival times for Leslie.`\
 https://nytimes.com/interactive/2024/weather/leslie-map-path-tracker.html
