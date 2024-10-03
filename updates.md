@@ -1,3 +1,11 @@
+**Calmness on the edge of a crisis: Can Erik ten Hag survive again at Manchester United?**\
+`Sir Jim Ratcliffe is planning to attend Manchester United's game against Aston Villa this weekend with Erik ten Hag back in the spotlight`\
+https://nytimes.com/athletic/5813363/2024/10/03/erik-ten-hag-jim-ratcliffe-manchester-united/
+
+**Padres lose Joe Musgrove, but not his leadership, as they clinch an NLDS rematch**\
+`The Padres, even without Musgrove, will have Dylan Cease and Yu Darvish on ample rest for the Dodgers in the NLDS.`\
+https://nytimes.com/athletic/5813388/2024/10/03/padres-joe-musgrove-wild-card/
+
 **Max Fried makes painful exit, Braves swept by Padres in Wild Card Series**\
 `Another injury played a role in the Braves' demise, but players understood all they'd overcome: “Definitely can’t be too mad at the finish."`\
 https://nytimes.com/athletic/5814668/2024/10/03/max-fried-braves-swept-padres-wild-card/
