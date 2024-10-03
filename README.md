@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5816564/2024/10/03/marcus-rashford-ten-hag/
 
 **3 Former Officers Found Guilty of Cover-Up in Tyre Nichols’s Death**\
-`The former officers were acquitted of the most serious charge in the case — violating Mr. Nichols’s civil rights by causing his death`\
+`The former officers were acquitted of the most serious charge in the case — violating Mr. Nichols’s civil rights by causing his death.`\
 https://nytimes.com/2024/10/03/us/tyre-nichols-verdict.html
 
 **10-Minute Challenge: A Finished, Unfinished Portrait by Alice Neel**\
