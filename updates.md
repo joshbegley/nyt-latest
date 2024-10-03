@@ -1,3 +1,15 @@
+**Helping revive Baker Mayfield's career has consequences for Falcons: 5 factors**\
+`Former Falcons quarterback Matt Ryan will be honored at halftime of Thursday night's game against the Buccaneers.`\
+https://nytimes.com/athletic/5813477/2024/10/03/falcons-buccaneers-baker-mayfield/
+
+**Michigan has the least productive Power 4 passing offense. Can it be fixed?**\
+`Questions for OC Kirk Campbell: How will Michigan keep winning with Alex Orji at QB? What about Jack Tuttle and Jadyn Davis?`\
+https://nytimes.com/athletic/5813226/2024/10/03/michigan-passing-stats-orji-tuttle-davis/
+
+**Big 12 Chaos Meter: Nothing is going as expected — which is just right**\
+`Texas Tech at Arizona at 11 p.m. ET Saturday is the latest kickoff on this week’s FBS slate, and it could be the most exciting.`\
+https://nytimes.com/athletic/5813101/2024/10/03/big-12-chaos-meter-texas-tech-arizona/
+
 **Biden to Visit Florida and Georgia, Tracing Helene’s Ruinous Trail**\
 `The president’s planned visit on Thursday follows a day in the Carolinas, where he sought to reassure the hurricane’s victims that the federal government would support recovery efforts.`\
 https://nytimes.com/2024/10/03/us/politics/biden-hurricane-helene-florida-georgia.html
