@@ -1,3 +1,7 @@
+**Another Death in Childbirth at a Troubled Brooklyn Hospital**\
+`After the death of a 24-year-old woman, Woodhull Hospital could face questions, for the third time since 2020, about the safety of its labor and delivery floor.`\
+https://nytimes.com/2024/10/03/nyregion/woodhull-hospital-childbirth-death.html
+
 **E-Bike Fire Deaths Decline in New York City Amid Safety Efforts**\
 `Three deaths have been reported this year from lithium-battery fires as of Sept. 30, compared with 14 deaths during the same period last year.`\
 https://nytimes.com/2024/10/03/nyregion/e-bike-lithium-battery-fires-safety-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/arts/television/late-night-vice-presidential-deba
 **Word of the Day: aphorism**\
 `This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/03/learning/word-of-the-day-aphorism.html
-
-**Gravenberch was not Liverpool's Plan A for the No 6 role but he is making it his own**\
-`The Dutch midfielder was on the periphery last season but is quickly making himself an essential part of the team in his new No 6 role`\
-https://nytimes.com/athletic/5813971/2024/10/03/ryan-gravenberch-liverpool-bologna/
 
