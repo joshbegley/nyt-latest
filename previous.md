@@ -1,40 +1,40 @@
-**Here are the latest developments.**\
-`By Victoria Kim and Liam Stack`\
-https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
+**An ‘Elegant’ Idea Could Pay Billions to Protect Trees**\
+`Brazil is proposing a fund that would pay countries to protect tropical forests that are crucial to curbing climate change. It would generate returns, too.`\
+https://nytimes.com/2024/10/03/climate/brazil-climate-fund-trees.html
 
-**Middle East Crisis Updates: Israel Strikes Near the Heart of Beirut**\
-`The attack on a health authority building killed at least six, the Lebanese authorities said. The Israeli military said it had struck about 200 sites in Lebanon overnight.`\
-https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah
+**With Little Luck on Dating Apps, Some Singles Shift to Pitch Decks**\
+`Using PowerPoint presentations, business cards and billboards, some daters are taking their own approach to finding love.`\
+https://nytimes.com/2024/10/03/style/dating-powerpoint-pitch-cards.html
 
-**Another Death in Childbirth at a Troubled Brooklyn Hospital**\
-`After the death of a 24-year-old woman, Woodhull Hospital could face questions, for the third time since 2020, about the safety of its labor and delivery floor.`\
-https://nytimes.com/2024/10/03/nyregion/woodhull-hospital-childbirth-death.html
+**Trump Promised to Release His Medical Records. He Still Won’t Do It.**\
+`If elected again, he would become the oldest president by the end of his term. Yet he is refusing to disclose even basic health information.`\
+https://nytimes.com/2024/10/03/health/trump-health-records.html
 
-**E-Bike Fire Deaths Decline in New York City Amid Safety Efforts**\
-`Three deaths have been reported this year from lithium-battery fires as of Sept. 30, compared with 14 deaths during the same period last year.`\
-https://nytimes.com/2024/10/03/nyregion/e-bike-lithium-battery-fires-safety-nyc.html
+**Hidden in Midwestern Cornfields, Tiny Edens Bloom**\
+`Farmers in the heartland are restoring swaths of the prairie with government help. The aim is to reduce nutrient runoff from cropland, and help birds and bees.`\
+https://nytimes.com/2024/10/03/climate/iowa-prairie-farming-environment.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/03/crosswords/spelling-bee-forum.html
+**As Cassettes Come Back, the Dilemma Is Finding a Tape Deck**\
+`Musicians and fans have developed a new taste for an old format, but manufacturers largely stopped making players. Listeners are finding creative (and vintage) solutions.`\
+https://nytimes.com/2024/10/03/arts/music/as-cassettes-come-back-the-dilemma-is-finding-a-tape-deck.html
 
-**Aston Villa, Lille and a vital night for the future of European football**\
-`There were momentous wins for clubs outside the established elite against European football's superpowers in the Champions League this week`\
-https://nytimes.com/athletic/5814625/2024/10/03/aston-villa-bayern-munich-champions-league/
+**Can Drugs Like Ozempic Treat the Most Common Eating Disorder?**\
+`Doctors are already using weight loss drugs to treat binge eating disorder. But some experts warn that it’s a Band-Aid, not a fix.`\
+https://nytimes.com/2024/10/03/well/ozempic-binge-eating.html
 
-**Calmness on the edge of a crisis: Can Erik ten Hag survive again at Manchester United?**\
-`Sir Jim Ratcliffe is planning to attend Manchester United's game against Aston Villa this weekend with Erik ten Hag back in the spotlight`\
-https://nytimes.com/athletic/5813363/2024/10/03/erik-ten-hag-jim-ratcliffe-manchester-united/
+**Why Owning (and Buying) a Florida Condo Has ‘Turned Into a Nightmare’**\
+`In the wake of a tragic 2021 building collapse, lawmakers are requiring condos to fund restoration projects. The bills are crippling homeowners.`\
+https://nytimes.com/2024/10/03/realestate/miami-condo-collapse-buying-selling.html
 
-**Padres lose Joe Musgrove, but not his leadership, as they clinch an NLDS rematch**\
-`The Padres, even without Musgrove, will have Dylan Cease and Yu Darvish on ample rest for the Dodgers in the NLDS.`\
-https://nytimes.com/athletic/5813388/2024/10/03/padres-joe-musgrove-wild-card/
+**This Artist Once Spent a Year in a Cage. Now He’s Trying to Enjoy Himself.**\
+`With his extreme performance art, Tehching Hsieh gave the word endurance new meaning. In retirement, he’s working on cementing his legacy.`\
+https://nytimes.com/2024/10/03/t-magazine/tehching-hsieh-dia-art-foundation.html
 
-**What's going wrong at Real Madrid right now – and how much does it matter?**\
-`Carlo Ancelotti's side lost for the first time since January, but problem signs have been building for a while`\
-https://nytimes.com/athletic/5814676/2024/10/03/real-madrid-champions-league-lille-problems/
+**Kate McKinnon Is Fascinated by Neurobiology. And Verbs.**\
+`In “The Millicent Quibb School of Etiquette for Young Ladies of Mad Science,” the former “S.N.L.” star “wanted to create a mad scientist whose highest goal was to respect and protect nature.”`\
+https://nytimes.com/2024/10/03/books/review/kate-mckinnon-millicent-quibb-mad-science.html
 
-**Max Fried makes painful exit, Braves swept by Padres in Wild Card Series**\
-`Another injury played a role in the Braves' demise, but players understood all they'd overcome: “Definitely can’t be too mad at the finish."`\
-https://nytimes.com/athletic/5814668/2024/10/03/max-fried-braves-swept-padres-wild-card/
+**Should Junk Food Come With Warning Labels?**\
+`A guest essay argues that it’s time to use warning labels to steer people away from food that is unhealthy. Do you agree?`\
+https://nytimes.com/2024/10/03/learning/should-junk-food-come-with-warning-labels.html
 
