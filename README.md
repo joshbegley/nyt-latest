@@ -1,3 +1,7 @@
+**Solanke in England squad but Rogers, Maguire left out**\
+`Tottenham Hotspur striker Dominic Solanke has been called up to the England squad for the first time in seven years.`\
+https://nytimes.com/athletic/5814827/2024/10/03/england-squad-solanke-rogers-maguire/
+
 **How Trump Could Punish His Enemies**\
 `We look at why legal experts are concerned.`\
 https://nytimes.com/2024/10/03/briefing/how-trump-could-punish-his-enemies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5813647/2024/10/03/pete-crow-armstrong-chicago-cubs
 **From Stanley Cup contenders to bottom feeders: Predicting the 2024-25 season**\
 `The annual attempt to dice up the league in divisions named a little more descriptively than the official variants.`\
 https://nytimes.com/athletic/5806185/2024/10/03/predicting-2024-25-season-divisions/
-
-**How Jets' Josh Morrissey arrived at the best version of his game**\
-`Even as Morrissey's offensive production dropped last season, he emerged as a better all-around player.`\
-https://nytimes.com/athletic/5806799/2024/10/03/winnipeg-jets-josh-morrissey-interview/
 
