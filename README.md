@@ -1,3 +1,7 @@
+**U.S. Faces Economic Turbulence Just as Recession Fears Eased**\
+`War in the Middle East, the port workers strike and a devastating hurricane have injected uncertainty into the U.S. economy.`\
+https://nytimes.com/2024/10/03/us/politics/us-economy-inflation-port-strike-helene-israel.html
+
 **‘The Rings of Power’ Season 2 Finale Recap: Highs and Lows**\
 `The second season ended in a whirlwind of fire and steel, darkness and light, capping an eight-episode run with many ups and downs.`\
 https://nytimes.com/2024/10/03/arts/television/rings-of-power-recap-season-2-episode-8.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5815535/2024/10/03/england-carsley-squad-bellingham
 **Lawyers for a Sean Combs Accuser Ask to Withdraw From Her Case**\
 `A dispute between Adria English, who has accused Mr. Combs of sexual misconduct, and her lawyers is the latest twist in the civil litigation the music mogul is facing.`\
 https://nytimes.com/2024/10/03/arts/music/adria-english-sean-diddy-combs-accuser-lawyer.html
-
-**An Exodus of Agents Left the Secret Service Unprepared for 2024**\
-`Punishing hours, dilapidated facilities and an ill-conceived retiree program left the agency without the personnel it needed in a year of threats and violence.`\
-https://nytimes.com/2024/10/03/us/politics/secret-service-staffing-retention-hiring.html
 
