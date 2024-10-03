@@ -1,3 +1,7 @@
+**Senators Urge Justice Dept. to Hold Boeing Executives Accountable for Safety**\
+`In a letter, Senators Elizabeth Warren and Richard Blumenthal criticized the Justice Department after continued episodes with the company’s planes.`\
+https://nytimes.com/2024/10/03/us/politics/senators-doj-boeing-letter.html
+
 **OpenAI Adds $4 Billion Credit Line on Top of $6.6 Billion Investment Round**\
 `The San Francisco company is gathering the billions its executives believe they will need to continue building new A.I. technology.`\
 https://nytimes.com/2024/10/03/technology/openai-credit-line.html

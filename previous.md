@@ -10,8 +10,8 @@ https://nytimes.com/2024/10/03/well/expired-covid-test.html
 `After a once strained relationship, Karl-Anthony Towns and Tom Thibodeau's paths have crossed again. `\
 https://nytimes.com/athletic/5813572/2024/10/03/karl-anthony-towns-tom-thibodeau-knicks-trade-roster/
 
-**Senators Urge Justice Department to Hold Boeing Executives Accountable for Safety Violations**\
-`In a letter, Democratic Senators Elizabeth Warren of Massachusetts and Richard Blumenthal of Connecticut criticized the Justice Department after continued incidents with Boeing planes.`\
+**Senators Urge Justice Dept. to Hold Boeing Executives Accountable for Safety**\
+`In a letter, Senators Elizabeth Warren and Richard Blumenthal criticized the Justice Department after continued episodes with the company’s planes.`\
 https://nytimes.com/2024/10/03/us/politics/senators-doj-boeing-letter.html
 
 **Southern States Try to Minimize Voting Disruptions After Hurricane Helene**\
