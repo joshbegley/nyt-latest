@@ -1,3 +1,7 @@
+**Solanke in England squad but Rogers, Maguire left out**\
+`Tottenham Hotspur striker Dominic Solanke has been called up to the England squad for the first time in seven years.`\
+https://nytimes.com/athletic/5814827/2024/10/03/england-squad-solanke-rogers-maguire/
+
 **How Trump Could Punish His Enemies**\
 `We look at why legal experts are concerned.`\
 https://nytimes.com/2024/10/03/briefing/how-trump-could-punish-his-enemies.html
