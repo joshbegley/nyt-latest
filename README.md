@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5815367/2024/10/03/ncaa-power-conference-antitrust-opposition/
 
 **‘Joker: Folie à Deux’ Review: Make ‘Em Laugh (and Yawn)**\
-`Todd Phillip’s “Joker” sequel stars Joaquin Phoenix and Lady Gaga who sing and dance like crazy kids, but the movie is seriously un-fun.`\
+`Todd Phillips’s “Joker” sequel stars Joaquin Phoenix and Lady Gaga who sing and dance like crazy kids, but the movie is seriously un-fun.`\
 https://nytimes.com/2024/10/03/movies/joker-folie-a-deux-review.html
 
 **From One Nonagenarian Artist to Another, a Tip of the Hat**\
