@@ -28,6 +28,11 @@ https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
 `\
 https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
 
+**NHL 2024-25 awards predictions: Staff picks for Calder, Rocket Richard, Hart and more**\
+`Can Cale Makar regain his Norris-winning form? Is anyone capable of challenging Auston Matthews in the Rocket Richard race?
+`\
+https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
+
 **Phillips opens up on impact of Guardiola’s ‘overweight’ comment**\
 `Kalvin Phillips has revealed he was left frustrated over Pep Guardiola’s remarks about his weight during his time at Manchester City.`\
 https://nytimes.com/athletic/5814886/2024/10/03/kalvin-phillips-overweight-pep-guardiola/
