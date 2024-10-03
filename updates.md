@@ -1,3 +1,15 @@
+**What to Know About the Marburg Virus Disease Outbreak**\
+`In Rwanda, 11 deaths have been reported from this rare but deadly disease. Two people tested negative in Germany this week.`\
+https://nytimes.com/2024/10/03/health/marburg-virus-disease.html
+
+**Firefighters Union Declines to Endorse a Presidential Candidate**\
+`The International Association of Fire Fighters was one of the first unions to endorse Joe Biden in 2020. In 2024, its board voted not to endorse at all.`\
+https://nytimes.com/2024/10/03/us/politics/firefighter-union-endorsement.html
+
+**Orioles' GM Mike Elias knows his club needs change. It's just a matter of how much**\
+`Elias said he may have prioritized pitching too much and said he will have to approach the trade deadline differently in future seasons.`\
+https://nytimes.com/athletic/5816395/2024/10/03/orioles-mike-elias-season-ending-news-conference/
+
 **The Briefing: Ferencvaros 1 Tottenham 2: Selection satisfaction, Moore excels, and where should Gray play?**\
 `A youthful Tottenham side became the first English team to beat Ferencvaros in Budapest since Leeds prevailed there in 1969`\
 https://nytimes.com/athletic/5808853/2024/10/03/ferencvaros-tottenham-moore-gray-bergvall-briefing/
