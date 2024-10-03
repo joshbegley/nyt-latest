@@ -1,3 +1,7 @@
+**Joel Fleishman, Influential Expert on Philanthropy, Dies at 90**\
+`Officially, he was an authority on nonprofit foundations. Unofficially, he was an unparalleled networker among the nation’s rich and powerful.`\
+https://nytimes.com/2024/10/03/us/joel-fleishman-dead.html
+
 **Jay J. Armes, Private Eye With a Superhero Story, Dies at 92**\
 `With steel hooks for hands and a flamboyant personality, Mr. Armes captured the attention — and scrutiny — of reporters across the nation.`\
 https://nytimes.com/2024/10/03/us/jay-j-armes-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/nyregion/lawler-blackface-michael-jackson.html
 **What’s Going On in This Picture? | Oct. 7, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/10/03/learning/whats-going-on-in-this-picture-oct-7-2024.html
-
-**She Is Outrageous, Demeaning, Dangerous. She Shouldn’t Be Punished.**\
-`Amy Wax’s statements are indefensible. But so is the University of Pennsylvania’s response.`\
-https://nytimes.com/2024/10/03/opinion/amy-wax-academic-freedom-penn.html
 
