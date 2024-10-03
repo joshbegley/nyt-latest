@@ -1,40 +1,40 @@
-**An ‘Elegant’ Idea Could Pay Billions to Protect Trees**\
-`Brazil is proposing a fund that would pay countries to protect tropical forests that are crucial to curbing climate change. It would generate returns, too.`\
-https://nytimes.com/2024/10/03/climate/brazil-climate-fund-trees.html
+**Biden to Visit Florida and Georgia, Tracing Helene’s Ruinous Trail**\
+`The president’s planned visit on Thursday follows a day in the Carolinas, where he sought to reassure the hurricane’s victims that the federal government would support recovery efforts.`\
+https://nytimes.com/2024/10/03/us/politics/biden-hurricane-helene-florida-georgia.html
 
-**With Little Luck on Dating Apps, Some Singles Shift to Pitch Decks**\
-`Using PowerPoint presentations, business cards and billboards, some daters are taking their own approach to finding love.`\
-https://nytimes.com/2024/10/03/style/dating-powerpoint-pitch-cards.html
+**Liz Cheney to Campaign With Harris at the Birthplace of the G.O.P.**\
+`Ms. Cheney, the most prominent Republican to endorse the Democratic nominee, will appear alongside her in Ripon, Wis., where meetings in 1854 helped lead to the party’s formation.`\
+https://nytimes.com/2024/10/03/us/politics/liz-cheney-kamala-harris.html
 
-**Trump Promised to Release His Medical Records. He Still Won’t Do It.**\
-`If elected again, he would become the oldest president by the end of his term. Yet he is refusing to disclose even basic health information.`\
-https://nytimes.com/2024/10/03/health/trump-health-records.html
+**How Tory Burch Gets Ready**\
+`Plus: a new hotel on the Athens Riviera, salvaged jewelry and more recommendations from T Magazine.`\
+https://nytimes.com/2024/10/03/t-magazine/tory-burch-makeup-skin-care-beauty.html
 
-**Hidden in Midwestern Cornfields, Tiny Edens Bloom**\
-`Farmers in the heartland are restoring swaths of the prairie with government help. The aim is to reduce nutrient runoff from cropland, and help birds and bees.`\
-https://nytimes.com/2024/10/03/climate/iowa-prairie-farming-environment.html
+**JD Vance, Tim Walz and the Fight for Rural America**\
+`Both vice-presidential candidates have roots in parts of the country where voters feel overlooked, and Democrats have struggled.`\
+https://nytimes.com/2024/10/03/podcasts/jd-vance-tim-walz-and-the-fight-for-rural-america.html
 
-**As Cassettes Come Back, the Dilemma Is Finding a Tape Deck**\
-`Musicians and fans have developed a new taste for an old format, but manufacturers largely stopped making players. Listeners are finding creative (and vintage) solutions.`\
-https://nytimes.com/2024/10/03/arts/music/as-cassettes-come-back-the-dilemma-is-finding-a-tape-deck.html
+**Why Israel Is Worried About Iran’s Nuclear Ambitions**\
+`Despite the supreme leader’s stated religious objections to nuclear weapons, Tehran has been steadily making progress on its nuclear weapons capabilities over the course of the past year.`\
+https://nytimes.com/2024/10/03/opinion/israel-iran-nuclear-weapons.html
 
-**Can Drugs Like Ozempic Treat the Most Common Eating Disorder?**\
-`Doctors are already using weight loss drugs to treat binge eating disorder. But some experts warn that it’s a Band-Aid, not a fix.`\
-https://nytimes.com/2024/10/03/well/ozempic-binge-eating.html
+**Hurricane Helene Leaves Trail of Destruction in North Carolina**\
+`On Wednesday, the death toll of Hurricane Helene rose to at least 183, making it the deadliest hurricane to strike the mainland United States since 2005.`\
+https://nytimes.com/video/weather/100000009737061/hurricane-helene-leaves-trail-of-destruction-in-north-carolina.html
 
-**Why Owning (and Buying) a Florida Condo Has ‘Turned Into a Nightmare’**\
-`In the wake of a tragic 2021 building collapse, lawmakers are requiring condos to fund restoration projects. The bills are crippling homeowners.`\
-https://nytimes.com/2024/10/03/realestate/miami-condo-collapse-buying-selling.html
+**Who’s Too Old to Be President Now? Take a Guess.**\
+`If voters felt 81 was too old for Joe Biden, it’s hard to believe they can overlook 78 in Donald Trump.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/donald-trump-age
 
-**This Artist Once Spent a Year in a Cage. Now He’s Trying to Enjoy Himself.**\
-`With his extreme performance art, Tehching Hsieh gave the word endurance new meaning. In retirement, he’s working on cementing his legacy.`\
-https://nytimes.com/2024/10/03/t-magazine/tehching-hsieh-dia-art-foundation.html
+**Seeking Some (Relative) Peace and Quiet in Brooklyn for Less Than $800,000**\
+`After arriving from California, a Manhattan-based lawyer found the Upper West Side too loud and crowded. Would her budget be enough for some outdoor space in Brooklyn?`\
+https://nytimes.com/interactive/2024/10/03/realestate/brooklyn-apartment-search.html
 
-**Kate McKinnon Is Fascinated by Neurobiology. And Verbs.**\
-`In “The Millicent Quibb School of Etiquette for Young Ladies of Mad Science,” the former “S.N.L.” star “wanted to create a mad scientist whose highest goal was to respect and protect nature.”`\
-https://nytimes.com/2024/10/03/books/review/kate-mckinnon-millicent-quibb-mad-science.html
+**Fact-Checking JD Vance and Tim Walz**\
+`How factual have Senator JD Vance and Gov. Tim Walz been during the campaign? Linda Qiu, a New York Times reporter who looks at some statements made by politicians and public figures, checks some of their claims.`\
+https://nytimes.com/video/us/politics/100000009736818/fact-checking-jd-vance-and-tim-walz.html
 
-**Should Junk Food Come With Warning Labels?**\
-`A guest essay argues that it’s time to use warning labels to steer people away from food that is unhealthy. Do you agree?`\
-https://nytimes.com/2024/10/03/learning/should-junk-food-come-with-warning-labels.html
+**Kurt Vonnegut the Board Game Designer**\
+`“Man created the checkerboard,” Mr. Vonnegut once wrote. While working on novels in the 1950s, he created a board game of his own.`\
+https://nytimes.com/2024/10/03/crosswords/kurt-vonnegut-board-game-ghq.html
 
