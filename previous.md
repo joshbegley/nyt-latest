@@ -1,3 +1,11 @@
+**'Heartbroken': As Astros' ALCS streak ends and club nears crossroads, Jose Altuve speaks up**\
+`Seven consecutive ALCS appearances conditioned this city and clubhouse for prolonged postseason runs. What now? `\
+https://nytimes.com/athletic/5814260/2024/10/02/astros-alcs-streak-ends-altuve-bregman/
+
+**Brewers force Game 3 with late power display versus Mets: Takeaways**\
+`Jackson Chourio and Garrett Mitchell led an eighth-inning comeback by going deep for the Brewers.`\
+https://nytimes.com/athletic/5814298/2024/10/02/mets-brewers-wild-card-game-2-takeaways/
+
 **David Banks, N.Y.C. Schools Chancellor, Moves Up His Departure**\
 `The chancellor, who previously announced that he would step down at the end of December, will instead leave the job on Oct. 16. Melissa Aviles-Ramos, a top deputy, will succeed him.`\
 https://nytimes.com/2024/10/02/nyregion/david-banks-schools-chancellor-resign.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/02/nyregion/campaign-treasurer-brooklyn-fraud-scheme
 **Tigers' Andy Ibáñez kept believing and became baseball's latest unlikely playoff hero**\
 `For all the moments in which the Tigers looked failure in the eye and refused to concede, none was bigger than Ibáñez's game-changing hit. `\
 https://nytimes.com/athletic/5814073/2024/10/02/andy-ibanez-detroit-tigers-playoff-hero/
-
-**Lahaina Inferno Emerged From Smoldering Remnants of Quelled Fire**\
-`Federal investigators have concluded that hidden embers remained from a morning fire in the Hawaii town of Lahaina. They reignited later into a fire that destroyed much of the town.`\
-https://nytimes.com/2024/10/02/us/lahaina-maui-fire-atf-investigation.html
-
-**Four Takeaways From Jack Smith’s Brief in the Trump Election Case**\
-`The special counsel provided new details that help flesh out how Donald Trump sought to remain in power, while setting out his argument for the case to survive the Supreme Court’s immunity decision.`\
-https://nytimes.com/2024/10/02/us/politics/takeaways-jack-smith-trump-brief.html
 

@@ -1,3 +1,11 @@
+**'Heartbroken': As Astros' ALCS streak ends and club nears crossroads, Jose Altuve speaks up**\
+`Seven consecutive ALCS appearances conditioned this city and clubhouse for prolonged postseason runs. What now? `\
+https://nytimes.com/athletic/5814260/2024/10/02/astros-alcs-streak-ends-altuve-bregman/
+
+**Brewers force Game 3 with late power display versus Mets: Takeaways**\
+`Jackson Chourio and Garrett Mitchell led an eighth-inning comeback by going deep for the Brewers.`\
+https://nytimes.com/athletic/5814298/2024/10/02/mets-brewers-wild-card-game-2-takeaways/
+
 **Treasurer for Little-Known Brooklyn Candidate Is Charged in Fraud Scheme**\
 `Erlene King sent thousands of dollars to associates and told them to distribute the funds to others who would then donate to the campaign she worked for, federal prosecutors said.`\
 https://nytimes.com/2024/10/02/nyregion/campaign-treasurer-brooklyn-fraud-scheme.html
