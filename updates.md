@@ -1,4 +1,8 @@
 **'Waiting for something to erupt': Series energy shifts as Brewers' young bats force Game 3**\
+`This was their 53rd postseason game as a franchise and first victory when trailing in the eighth inning.`\
+https://nytimes.com/athletic/5814611/2024/10/03/brewers-wild-card-win-chourio-mitchell/
+
+**'Waiting for something to erupt': Series energy shifts as Brewers' young bats force Game 3**\
 `MILWAUKEE – The cleanup man had to think small.`\
 https://nytimes.com/athletic/5814611/2024/10/03/brewers-wild-card-win-chourio-mitchell/
 
