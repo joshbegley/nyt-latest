@@ -1,3 +1,7 @@
+**U.K. to Return Chagos Islands to Mauritius, Ending Colonial-Era Dispute**\
+`After years of legal wrangling and negotiations, Britain said it would surrender sovereignty of the archipelago in the Indian Ocean.`\
+https://nytimes.com/2024/10/03/world/europe/uk-chagos-islands-mauritius.html
+
 **College football Week 6 oddly specific predictions: Cam Ward and Miami will solve the Calgorithm**\
 `Will Missouri's offense get on track at Texas A&M? Who will win the rematch of last year's national title game?`\
 https://nytimes.com/athletic/5812811/2024/10/03/college-football-predictions-week-6-miami-cal-tennessee-arkansas/

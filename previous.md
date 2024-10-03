@@ -1,3 +1,7 @@
+**U.K. to Return Chagos Islands to Mauritius, Ending Colonial-Era Dispute**\
+`After years of legal wrangling and negotiations, Britain said it would surrender sovereignty of the archipelago in the Indian Ocean.`\
+https://nytimes.com/2024/10/03/world/europe/uk-chagos-islands-mauritius.html
+
 **College football Week 6 oddly specific predictions: Cam Ward and Miami will solve the Calgorithm**\
 `Will Missouri's offense get on track at Texas A&M? Who will win the rematch of last year's national title game?`\
 https://nytimes.com/athletic/5812811/2024/10/03/college-football-predictions-week-6-miami-cal-tennessee-arkansas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5814025/2024/10/03/rangers-alexis-lafreniere-softba
 **Can the Nittany Lions avoid complacency? 4 keys and a prediction for Penn State-UCLA**\
 `No. 7 Penn State is heavily favored against struggling UCLA. It's a chance for the Nittany Lions to build depth and momentum ahead of USC.`\
 https://nytimes.com/athletic/5814493/2024/10/03/penn-state-ucla-prediction-schedule/
-
-**Mauricio Pochettino on USMNT objectives: 'We are going to be very demanding'**\
-`Pochettino explained his first USMNT roster, his desired playing style and concerns over some of the squad's game time with their clubs`\
-https://nytimes.com/athletic/5813898/2024/10/03/mauricio-pochettino-changes-usmnt-roster/
 
