@@ -1,3 +1,7 @@
+**Lahaina Inferno Emerged From Smoldering Remnants of Quelled Fire**\
+`Federal investigators have concluded that hidden embers remained from a morning fire in the Hawaii town of Lahaina. They reignited later into a fire that destroyed much of the town.`\
+https://nytimes.com/2024/10/02/us/lahaina-maui-fire-atf-investigation.html
+
 **Four Takeaways From Jack Smith’s Brief in the Trump Election Case**\
 `The special counsel provided new details that help flesh out how Donald Trump sought to remain in power, while setting out his argument for the case to survive the Supreme Court’s immunity decision.`\
 https://nytimes.com/2024/10/02/us/politics/takeaways-jack-smith-trump-brief.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5813909/2024/10/02/royals-hold-the-line-against-ori
 **A Storm, a Strike and War Abroad Pose Challenges for Harris**\
 `Scenes of striking workers, hurricane devastation in the Southeast and missiles over Israel represent a rare moment of turbulence for Kamala Harris.`\
 https://nytimes.com/2024/10/02/us/politics/harris-israel-iran-helene-port-strike.html
-
-**Gilead Agrees to Allow Generic Version of Groundbreaking H.I.V. Shot in Poor Countries**\
-`Many middle-income countries are left out of the deal, widening a gulf in access to critical medicines.`\
-https://nytimes.com/2024/10/02/health/lenacapavir-hiv-shot-prep.html
 
