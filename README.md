@@ -1,3 +1,7 @@
+**‘There’s No Safety’: Decision to Leave Ends in Tragedy for Lebanese Family**\
+`Zahraa Badreddine fled Nabatieh in southern Lebanon as Israeli airstrikes intensified, hoping to find safety in a predominantly Christian area closer to the coast. But last Sunday, an airstrike near Sidon killed her two children.`\
+https://nytimes.com/video/world/middleeast/100000009734604/israeli-airstrikes-lebanese-apartment-building.html
+
 **Auburn flips 5-star QB Deuce Knight from Notre Dame**\
 `Knight had been committed to Notre Dame for a year but switched to Hugh Freeze and Auburn on Wednesday.`\
 https://nytimes.com/athletic/5814079/2024/10/02/deuce-knight-auburn-notre-dame-flip/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/02/health/lenacapavir-hiv-shot-prep.html
 **To Build a Nuclear Bomb, Iran Would Need Much More Than Weeks**\
 `Nuclear experts see Tehran as facing up to a year of hard work to master the knotty basics of building a deliverable atom bomb.`\
 https://nytimes.com/2024/10/02/science/iran-nuclear-weapon.html
-
-**Israeli Strikes on Gaza Schools and an Orphanage Kill Scores of Palestinians, Officials Say**\
-`The Palestinian Authority’s official news agency said the Israeli military operation had included an incursion by ground troops and airstrikes.`\
-https://nytimes.com/2024/10/02/world/middleeast/israel-strikes-gaza-schools-orphanage.html
 
