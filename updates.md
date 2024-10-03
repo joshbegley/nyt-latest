@@ -1,3 +1,7 @@
+**Aid Is Slow to Reach Some Latino Areas in Storm-Hit North Carolina**\
+`Language and other barriers are hobbling the flow of assistance to hard-hit communities where affordable housing drew growing numbers of Hispanic migrants.`\
+https://nytimes.com/2024/10/03/us/helene-north-carolina-latino-swannanoa.html
+
 **Dodgers vs. Padres NLDS preview: Predictions, pitching matchups and more**\
 `The Los Angeles Dodgers and San Diego Padres renew their rivalry in a highly anticipated National League Division Series matchup.`\
 https://nytimes.com/athletic/5815551/2024/10/03/dodgers-padres-2024-nlds-preview-predictions/
