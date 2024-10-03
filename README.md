@@ -1,3 +1,11 @@
+**Calmness on the edge of a crisis: Can Erik ten Hag survive again at Manchester United?**\
+`Sir Jim Ratcliffe is planning to attend Manchester United's game against Aston Villa this weekend with Erik ten Hag back in the spotlight`\
+https://nytimes.com/athletic/5813363/2024/10/03/erik-ten-hag-jim-ratcliffe-manchester-united/
+
+**Padres lose Joe Musgrove, but not his leadership, as they clinch an NLDS rematch**\
+`The Padres, even without Musgrove, will have Dylan Cease and Yu Darvish on ample rest for the Dodgers in the NLDS.`\
+https://nytimes.com/athletic/5813388/2024/10/03/padres-joe-musgrove-wild-card/
+
 **What's going wrong at Real Madrid right now - and how much does it matter?**\
 `Carlo Ancelotti's side lost for the first time since January, but problem signs have been building for a while`\
 https://nytimes.com/athletic/5814676/2024/10/03/real-madrid-champions-league-lille-problems/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5813952/2024/10/03/bologna-liverpool-champions-leag
 **'Waiting for something to erupt': Series energy shifts as Brewers' young bats force Game 3**\
 `This was their 53rd postseason game as a franchise and first victory when trailing in the eighth inning.`\
 https://nytimes.com/athletic/5814611/2024/10/03/brewers-wild-card-win-chourio-mitchell/
-
-**Brain games: Pressing your edge with Justin Fields, Dontayvion Wicks and more in Week 5**\
-`Renee Miller offers some starting options for Week 5, including advocating for Justin Fields even ahead of some of the biggest names at QB.`\
-https://nytimes.com/athletic/5814380/2024/10/03/brain-games-week-5-fantasy-football-justin-fields/
-
-**Putin Keeps Threatening to Use Nuclear Weapons. Would He?**\
-`Last week the president of Russia appeared to lower the threshold for his country’s use of nuclear weapons. It wasn’t subtle, and it wasn’t meant to be.`\
-https://nytimes.com/2024/10/03/opinion/putin-russia-nuclear-weapons.html
 
