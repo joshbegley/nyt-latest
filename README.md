@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Victoria Kim and Liam Stack`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
+
+**Middle East Crisis Updates: Israel Strikes Near the Heart of Beirut**\
+`The attack on a health authority building killed at least six, the Lebanese authorities said. The Israeli military said it had struck about 200 sites in Lebanon overnight.`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah
+
 **Another Death in Childbirth at a Troubled Brooklyn Hospital**\
 `After the death of a 24-year-old woman, Woodhull Hospital could face questions, for the third time since 2020, about the safety of its labor and delivery floor.`\
 https://nytimes.com/2024/10/03/nyregion/woodhull-hospital-childbirth-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5814676/2024/10/03/real-madrid-champions-league-lil
 **Max Fried makes painful exit, Braves swept by Padres in Wild Card Series**\
 `Another injury played a role in the Braves' demise, but players understood all they'd overcome: “Definitely can’t be too mad at the finish."`\
 https://nytimes.com/athletic/5814668/2024/10/03/max-fried-braves-swept-padres-wild-card/
-
-**Late Night Sums Up a Strangely Chill V.P. Debate**\
-`Jimmy Fallon said viewers “were expecting a horror movie, but instead, they got a Hallmark movie.”`\
-https://nytimes.com/2024/10/03/arts/television/late-night-vice-presidential-debate.html
-
-**Word of the Day: aphorism**\
-`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/03/learning/word-of-the-day-aphorism.html
 
