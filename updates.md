@@ -1,3 +1,7 @@
+**FA charges Forest owner Marinakis with misconduct**\
+`The Football Association (FA) has charged Nottingham Forest owner Evangelos Marinakis with misconduct.`\
+https://nytimes.com/athletic/5816129/2024/10/03/nottingham-forest-marinakis-fa-charge/
+
 **The Climate Fix: Solutions for a Warming World**\
 `In a new weekly feature of our Climate Forward newsletter, we’re covering the vast amount of investment, ingenuity and scientific expertise that are going toward stopping climate change.`\
 https://nytimes.com/2024/10/03/business/the-climate-fix-solutions-for-a-warming-world.html
