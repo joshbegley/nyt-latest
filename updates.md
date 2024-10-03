@@ -1,3 +1,7 @@
+**Late Night Sums Up a Strangely Chill V.P. Debate**\
+`Jimmy Fallon said viewers “were expecting a horror movie, but instead, they got a Hallmark movie.”`\
+https://nytimes.com/2024/10/03/arts/television/late-night-vice-presidential-debate.html
+
 **Word of the Day: aphorism**\
 `This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/03/learning/word-of-the-day-aphorism.html
