@@ -1,3 +1,7 @@
+**Trump Saw 2020 Election Results as an Obstacle, Not an Outcome**\
+`A court filing offers insight into his thinking and makes it hard to see him accepting another loss.`\
+https://nytimes.com/2024/10/03/us/politics/trump-2020-election-results.html
+
 **Bruce Springsteen Endorses Kamala Harris for President**\
 `The rock star has long aligned himself with Democrats and been critical of former President Donald J. Trump.`\
 https://nytimes.com/2024/10/03/us/politics/bruce-springsteen-kamala-harris-endorsement.html
