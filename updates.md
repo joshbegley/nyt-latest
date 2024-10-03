@@ -1,3 +1,7 @@
+**Should the Bruins trade Jeremy Swayman? Can they make the playoffs without him? Fan survey results**\
+`Nearly 1,500 readers had participated in the polling as of 11 a.m. Eastern Thursday. Here's what they said, with analysis.`\
+https://nytimes.com/athletic/5815568/2024/10/03/bruins-jeremy-swayman-fan-survey-results/
+
 **How did Notre Dame land a 5-star basketball recruit?**\
 `Micah Shrewsberry's NBA ties gave him credibility with Haralson that more experienced college coaches lacked.`\
 https://nytimes.com/athletic/5815285/2024/10/03/notre-dame-basketball-jalen-haralson/
