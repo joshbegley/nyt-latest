@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5815285/2024/10/03/notre-dame-basketball-jalen-hara
 https://nytimes.com/athletic/5814638/2024/10/03/timberwolves-contenders-trading-karl-anthony-towns/
 
 **U.S. Faces Economic Turbulence Just as Recession Fears Eased**\
-`War in the Middle East, the port workers strike and a devastating hurricane have injected uncertainty into the U.S. economy.`\
+`War in the Middle East, a strike by port workers and a devastating hurricane have injected uncertainty into the U.S. economy.`\
 https://nytimes.com/2024/10/03/us/politics/us-economy-inflation-port-strike-helene-israel.html
 
 **‘The Rings of Power’ Season 2 Finale Recap: Highs and Lows**\
