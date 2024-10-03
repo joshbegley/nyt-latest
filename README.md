@@ -1,3 +1,7 @@
+**Carlos Alcaraz and Jannik Sinner go head-to-head in their own tennis galaxy**\
+`The two best men's tennis players in the world are elevating each other to heights as absurd as they are watchable`\
+https://nytimes.com/athletic/5812516/2024/10/03/alcaraz-sinner-head-to-head-rivalry/
+
 **Solanke in England squad but Rogers, Maguire left out**\
 `Tottenham Hotspur striker Dominic Solanke has been called up to the England squad for the first time in seven years.`\
 https://nytimes.com/athletic/5814827/2024/10/03/england-squad-solanke-rogers-maguire/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5813898/2024/10/03/mauricio-pochettino-changes-usmn
 **Pete Crow-Armstrong must be the start of a big wave of young talent for the Cubs**\
 `Young talent will have to be part of the solution for a team that finished with an 83-79 record in each of the last two seasons.`\
 https://nytimes.com/athletic/5813647/2024/10/03/pete-crow-armstrong-chicago-cubs-young-talent/
-
-**From Stanley Cup contenders to bottom feeders: Predicting the 2024-25 season**\
-`The annual attempt to dice up the league in divisions named a little more descriptively than the official variants.`\
-https://nytimes.com/athletic/5806185/2024/10/03/predicting-2024-25-season-divisions/
 
