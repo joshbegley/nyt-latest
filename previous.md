@@ -1,3 +1,19 @@
+**Another Death in Childbirth at a Troubled Brooklyn Hospital**\
+`After the death of a 24-year-old woman, Woodhull Hospital could face questions, for the third time since 2020, about the safety of its labor and delivery floor.`\
+https://nytimes.com/2024/10/03/nyregion/woodhull-hospital-childbirth-death.html
+
+**E-Bike Fire Deaths Decline in New York City Amid Safety Efforts**\
+`Three deaths have been reported this year from lithium-battery fires as of Sept. 30, compared with 14 deaths during the same period last year.`\
+https://nytimes.com/2024/10/03/nyregion/e-bike-lithium-battery-fires-safety-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/03/crosswords/spelling-bee-forum.html
+
+**Aston Villa, Lille and a vital night for the future of European football**\
+`There were momentous wins for clubs outside the established elite against European football's superpowers in the Champions League this week`\
+https://nytimes.com/athletic/5814625/2024/10/03/aston-villa-bayern-munich-champions-league/
+
 **Calmness on the edge of a crisis: Can Erik ten Hag survive again at Manchester United?**\
 `Sir Jim Ratcliffe is planning to attend Manchester United's game against Aston Villa this weekend with Erik ten Hag back in the spotlight`\
 https://nytimes.com/athletic/5813363/2024/10/03/erik-ten-hag-jim-ratcliffe-manchester-united/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/03/arts/television/late-night-vice-presidential-deba
 **Word of the Day: aphorism**\
 `This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/03/learning/word-of-the-day-aphorism.html
-
-**Gravenberch was not Liverpool's Plan A for the No 6 role but he is making it his own**\
-`The Dutch midfielder was on the periphery last season but is quickly making himself an essential part of the team in his new No 6 role`\
-https://nytimes.com/athletic/5813971/2024/10/03/ryan-gravenberch-liverpool-bologna/
-
-**Former Singapore Minister Gets 1 Year in Prison in Rare Graft Case**\
-`The sentence for S. Iswaran, the former transportation minister who pleaded guilty last week, was longer than what prosecutors had sought.`\
-https://nytimes.com/2024/10/03/world/asia/singapore-iswaran-jail.html
-
-**Bologna targeted the Conference League but are now relishing 'legendary' Champions League nights**\
-`Bologna did not expect to be in Europe's premier club competition but they held their own at Anfield, even in defeat against Liverpool`\
-https://nytimes.com/athletic/5813952/2024/10/03/bologna-liverpool-champions-league/
-
-**'Waiting for something to erupt': Series energy shifts as Brewers' young bats force Game 3**\
-`This was their 53rd postseason game as a franchise and first victory when trailing in the eighth inning.`\
-https://nytimes.com/athletic/5814611/2024/10/03/brewers-wild-card-win-chourio-mitchell/
 
