@@ -1,3 +1,7 @@
+**'Waiting for something to erupt': Series energy shifts as Brewers' young bats force Game 3**\
+`MILWAUKEE – The cleanup man had to think small.`\
+https://nytimes.com/athletic/5814611/2024/10/03/brewers-wild-card-win-chourio-mitchell/
+
 **Brain games: Pressing your edge with Justin Fields, Dontayvion Wicks and more in Week 5**\
 `Renee Miller offers some starting options for Week 5, including advocating for Justin Fields even ahead of some of the biggest names at QB.`\
 https://nytimes.com/athletic/5814380/2024/10/03/brain-games-week-5-fantasy-football-justin-fields/
