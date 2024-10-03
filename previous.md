@@ -1,3 +1,11 @@
+**Biden Promised Federal Support for Survivors of Helene**\
+`Also, Liz Cheney is campaigning tonight with Kamala Harris. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/10/03/briefing/biden-hurricane-helene-liz-cheney-harris.html
+
+**How 2 Offhand Remarks by Biden Caused Waves in the Markets and the Middle East**\
+`The president’s casual disclosures underscored the power of his words — and how quickly they travel.`\
+https://nytimes.com/2024/10/03/us/politics/biden-oil-markets-middle-east.html
+
 **Trump Saw 2020 Election Results as an Obstacle, Not an Outcome**\
 `A court filing offers insight into his thinking and makes it hard to see him accepting another loss.`\
 https://nytimes.com/2024/10/03/us/politics/trump-2020-election-results.html
@@ -10,7 +18,7 @@ https://nytimes.com/2024/10/03/us/politics/bruce-springsteen-kamala-harris-endor
 `Plus, paying countries to protect trees.`\
 https://nytimes.com/2024/10/03/briefing/lebanon-trump-hiv.html
 
-**The Briefing - Porto 3 Man Utd 3: Defensive horror show? What happened to trusted lieutenants?**\
+**The Briefing - Porto 3 Man United 3: Defensive horror show? What happened to trusted lieutenants?**\
 `A dramatic game saw Manchester United manage a 3-3 draw against Porto in the Europa League`\
 https://nytimes.com/athletic/5808860/2024/10/03/porto-manchester-united-result-report-analysis/
 
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5815906/2024/10/03/antonio-pierce-ncaa-penalty-asu/
 **Chiefs place WR Rashee Rice on injured reserve**\
 `In three games, Rice has 24 catches, 288 yards and two touchdowns.`\
 https://nytimes.com/athletic/5816466/2024/10/03/chiefs-rashee-rice-injured-reserve/
-
-**Federal Judge Clears Path for Part of Biden’s Student Loan Plan**\
-`The ruling by a judge in Georgia could be just a temporary reprieve for the plan, which still faces legal challenges in another state.`\
-https://nytimes.com/2024/10/03/us/politics/biden-student-loan-debt-georgia.html
-
-**Week 5 fantasy football, betting cheat sheet: Player rankings, best bets and more**\
-`Everything you need to know about NFL Week 5 from a fantasy and betting perspective.`\
-https://nytimes.com/athletic/5815465/2024/10/03/nfl-fantasy-football-betting-cheat-sheet-week-5/
 

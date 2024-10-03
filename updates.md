@@ -1,3 +1,15 @@
+**Biden Promised Federal Support for Survivors of Helene**\
+`Also, Liz Cheney is campaigning tonight with Kamala Harris. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/10/03/briefing/biden-hurricane-helene-liz-cheney-harris.html
+
+**How 2 Offhand Remarks by Biden Caused Waves in the Markets and the Middle East**\
+`The president’s casual disclosures underscored the power of his words — and how quickly they travel.`\
+https://nytimes.com/2024/10/03/us/politics/biden-oil-markets-middle-east.html
+
+**The Briefing - Porto 3 Man United 3: Defensive horror show? What happened to trusted lieutenants?**\
+`A dramatic game saw Manchester United manage a 3-3 draw against Porto in the Europa League`\
+https://nytimes.com/athletic/5808860/2024/10/03/porto-manchester-united-result-report-analysis/
+
 **Trump Saw 2020 Election Results as an Obstacle, Not an Outcome**\
 `A court filing offers insight into his thinking and makes it hard to see him accepting another loss.`\
 https://nytimes.com/2024/10/03/us/politics/trump-2020-election-results.html
