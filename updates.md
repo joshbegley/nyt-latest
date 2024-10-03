@@ -1,3 +1,7 @@
+**From One Nonagenarian Artist to Another, a Tip of the Hat**\
+`Alex Katz admired a Mark di Suvero sculpture and gave it to the Brooklyn Museum. It now has pride of place in the museum’s 200th anniversary celebration.`\
+https://nytimes.com/2024/10/03/arts/alex-katz-mark-di-suvero-sculpture-brooklyn-museum.html
+
 **NFL best bets Week 5: Patience is key when injuries and tight lines are involved**\
 `Austin Mock had to wait for the right spots, but he has a pair of best bets for NFL Week 5.`\
 https://nytimes.com/athletic/5813066/2024/10/03/nfl-best-bets-week-5-buccaneers-bengals/
