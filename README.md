@@ -1,3 +1,15 @@
+**Helping revive Baker Mayfield's career has consequences for Falcons: 5 factors**\
+`Former Falcons quarterback Matt Ryan will be honored at halftime of Thursday night's game against the Buccaneers.`\
+https://nytimes.com/athletic/5813477/2024/10/03/falcons-buccaneers-baker-mayfield/
+
+**Michigan has the least productive Power 4 passing offense. Can it be fixed?**\
+`Questions for OC Kirk Campbell: How will Michigan keep winning with Alex Orji at QB? What about Jack Tuttle and Jadyn Davis?`\
+https://nytimes.com/athletic/5813226/2024/10/03/michigan-passing-stats-orji-tuttle-davis/
+
+**Big 12 Chaos Meter: Nothing is going as expected — which is just right**\
+`Texas Tech at Arizona at 11 p.m. ET Saturday is the latest kickoff on this week’s FBS slate, and it could be the most exciting.`\
+https://nytimes.com/athletic/5813101/2024/10/03/big-12-chaos-meter-texas-tech-arizona/
+
 **Biden to Visit Florida and Georgia, Tracing Helene’s Ruinous Trail**\
 `The president’s planned visit on Thursday follows a day in the Carolinas, where he sought to reassure the hurricane’s victims that the federal government would support recovery efforts.`\
 https://nytimes.com/2024/10/03/us/politics/biden-hurricane-helene-florida-georgia.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/weather/100000009737061/hurricane-helene-leaves-trail-
 **Who’s Too Old to Be President Now? Take a Guess.**\
 `If voters felt 81 was too old for Joe Biden, it’s hard to believe they can overlook 78 in Donald Trump.`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/donald-trump-age
-
-**Seeking Some (Relative) Peace and Quiet in Brooklyn for Less Than $800,000**\
-`After arriving from California, a Manhattan-based lawyer found the Upper West Side too loud and crowded. Would her budget be enough for some outdoor space in Brooklyn?`\
-https://nytimes.com/interactive/2024/10/03/realestate/brooklyn-apartment-search.html
-
-**Fact-Checking JD Vance and Tim Walz**\
-`How factual have Senator JD Vance and Gov. Tim Walz been during the campaign? Linda Qiu, a New York Times reporter who looks at some statements made by politicians and public figures, checks some of their claims.`\
-https://nytimes.com/video/us/politics/100000009736818/fact-checking-jd-vance-and-tim-walz.html
-
-**Kurt Vonnegut the Board Game Designer**\
-`“Man created the checkerboard,” Mr. Vonnegut once wrote. While working on novels in the 1950s, he created a board game of his own.`\
-https://nytimes.com/2024/10/03/crosswords/kurt-vonnegut-board-game-ghq.html
 
