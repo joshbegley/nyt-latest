@@ -1,3 +1,11 @@
+**Firefighters Union Declines to Endorse a Presidential Candidate**\
+`The International Association of Fire Fighters was one of the first unions to endorse Joe Biden in 2020. In 2024, its board voted not to endorse at all.`\
+https://nytimes.com/2024/10/03/us/politics/firefighter-union-endorsement.html
+
+**Orioles' GM Mike Elias knows his club needs change. It's just a matter of how much**\
+`Elias said he may have prioritized pitching too much and said he will have to approach the trade deadline differently in future seasons.`\
+https://nytimes.com/athletic/5816395/2024/10/03/orioles-mike-elias-season-ending-news-conference/
+
 **The Briefing: Ferencvaros 1 Tottenham 2: Selection satisfaction, Moore excels, and where should Gray play?**\
 `A youthful Tottenham side became the first English team to beat Ferencvaros in Budapest since Leeds prevailed there in 1969`\
 https://nytimes.com/athletic/5808853/2024/10/03/ferencvaros-tottenham-moore-gray-bergvall-briefing/
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/10/02/opinion/thepoint/immigration-rent-increase
 **Fantasy football rankings Week 5: Sleepers, starts, projections and more**\
 `Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
 https://nytimes.com/athletic/5811078/2024/10/03/fantasy-football-rankings-week-5-sleepers-projections-starts/
-
-**Former County Clerk Gets 9 Years in Prison for Tampering With Voting Machines**\
-`Tina Peters, the former clerk of Mesa County, Colo., had tried to prove that the machines had been used to rig the 2020 election against former President Donald J. Trump.`\
-https://nytimes.com/2024/10/03/us/politics/tina-peters-sentence-colorado.html
-
-**A Storied Luxury Liner May Soon Find New Life on the Florida Seafloor**\
-`The S.S. United States, one of the fastest ships to ever cross the Atlantic Ocean, may be sunk off the coast and turned into a habitat to marine life as the world’s largest artificial reef.`\
-https://nytimes.com/2024/10/03/us/ss-united-states-largest-artificial-reef.html
 
