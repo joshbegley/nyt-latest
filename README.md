@@ -1,3 +1,7 @@
+**Floyd Mayweather accused in wage dispute lawsuit of slapping exotic dancer**\
+`Mayweather, 47, has a history of committing violence against women in a string of incidents stretching back to 2001.`\
+https://nytimes.com/athletic/5812479/2024/10/03/floyd-mayweather-lawsuit-exotic-dancers/
+
 **Should the Bruins trade Jeremy Swayman? Can they make the playoffs without him? Fan survey results**\
 `Nearly 1,500 readers had participated in the polling as of 11 a.m. Eastern Thursday. Here's what they said, with analysis.`\
 https://nytimes.com/athletic/5815568/2024/10/03/bruins-jeremy-swayman-fan-survey-results/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5815811/2024/10/03/davante-adams-trade-nfl-leaders-
 **Who Prepared for Hurricane Helene?**\
 `And who didn’t?`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/hurricane-helene-preparedness
-
-**Around Dallas, the Church Scandals Seem to Have No End**\
-`In this part of Texas, a pastor with a clean reputation is not to be taken for granted.`\
-https://nytimes.com/2024/10/03/us/churches-dallas-fort-worth-sexual-abuse.html
 
