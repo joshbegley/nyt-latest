@@ -1,3 +1,15 @@
+**Oil Price Jumps After Biden Says ‘Discussing’ Israeli Strike on Iranian Facilities**\
+`The president was asked about a potential strike on the oil infrastructure of Iran, which accounts for about 2 percent of the world’s supply.`\
+https://nytimes.com/2024/10/03/world/middleeast/oil-price-biden-iran-strike.html
+
+**Pursuing Alex Bregman, payroll and filling the corners: 3 storylines that will define the Astros' offseason**\
+`“We’re not taking anything off the table in terms of what we would do, whether it’s making trades or signing a free agent,” the GM said.`\
+https://nytimes.com/athletic/5815995/2024/10/03/alex-bregman-astros-offseason-plans/
+
+**You’re Due for a Colonoscopy, but What if You Don’t Want It?**\
+`Doctors can provide alternative forms of screening for colon and rectal cancer but sometimes have a good reason to stick with the colonoscope.`\
+https://nytimes.com/article/colonoscopy-alternative-colon-cancer-screening.html
+
 **People in central Beirut survey damage from an airstrike.**\
 `By Hwaida Saad`\
 https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/people-in-central-beirut-survey-damage-from-an-airstrike
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5815796/2024/10/03/vegas-golden-knights-lehner-sett
 **Unable to Penetrate Systems, Hackers Spread Lies About Vulnerabilities**\
 `When France fended off cyberattacks during the Olympics, hackers circulated false claims about their attacks, a tactic the United States could face during the election.`\
 https://nytimes.com/2024/10/03/us/politics/us-election-cyber-hacking.html
-
-**Sweet Potato and Tofu, Fall’s Hot Couple**\
-`Eat them roasted on a sheet pan with chili powder and topped with quick-pickled red onion, or tossed with a tangy mix of chile crisp, tamari and honey.`\
-https://nytimes.com/2024/10/03/dining/sweet-potato-and-tofu-falls-hot-couple.html
-
-**College football Week 6 model-projected point differentials, totals for every game**\
-`Austin Mock's model projects the point differentials and total points for every Week 6 college football game.`\
-https://nytimes.com/athletic/5815992/2024/10/03/college-football-week-6-model-projections-predicted-scores/
-
-**Trump, Vance and the Jan. 6 Case**\
-`Readers respond to the special counsel Jack Smith’s filing. Also: The pain of IUD insertions; food and the environment; A.I. and the patient.`\
-https://nytimes.com/2024/10/03/opinion/trump-vance-jan-6.html
 
