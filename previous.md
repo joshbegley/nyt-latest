@@ -1,3 +1,15 @@
+**Thompson: Draymond Green is here to build the Warriors' next title, whenever it comes**\
+`Draymond Green helped build the Warriors up from "the laughingstock of the NBA." Now he's eager to start the build back to the top.`\
+https://nytimes.com/athletic/5814850/2024/10/03/draymond-green-warriors-championship-training-camp/
+
+**The Athletic FC: How Flick orchestrated a Barca revival; Plus: CL upsets and more Messi success**\
+`Today in TAFC: `\
+https://nytimes.com/athletic/5814931/2024/10/03/barcelona-messi-champions-league/
+
+**Yankees vs. Royals ALDS preview: Predictions, pitching matchups and more**\
+`Aaron Judge, Juan Soto and the Yankees face Bobby Witt Jr. and the Royals in a star-studded ALDS. Our writers preview the series. `\
+https://nytimes.com/athletic/5814867/2024/10/03/yankees-royals-2024-alds-preview-predictions/
+
 **Broja targeting Everton debut in mid-November**\
 `Armando Broja is hoping to make his first appearance for Everton next month after stepping up his recovery from an Achilles injury.`\
 https://nytimes.com/athletic/5814961/2024/10/03/armando-broja-injury-everton/
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/5813063/2024/10/03/broncos-sean-payton-losing-strea
 **Dave Roberts knows that for the Dodgers, it's title or bust: 'It's expected'**\
 `Roberts takes high expectations as a compliment: "I'm not too concerned about job security. I just want to win another championship."`\
 https://nytimes.com/athletic/5814477/2024/10/03/dodgers-dave-roberts-mlb-postseason/
-
-**The Blues have made changes to their power play. Will the results follow?**\
-`The Blues finished 24th in the NHL on the power play in 2024-25 and hope a few tweaks will help them improve significantly.`\
-https://nytimes.com/athletic/5810232/2024/10/03/blues-power-play-changes/
-
-**LeBrun: Should the NHL preseason be shorter? How it could work and what top execs say**\
-`Recent injuries raised a familiar question: Why in 2024 is the NHL still holding onto this ritual of playing so many preseason games?`\
-https://nytimes.com/athletic/5813829/2024/10/03/nhl-preseason-shorter-execs/
-
-**NHL 2024-25 awards predictions: Staff picks for Calder, Rocket Richard, Hart and more**\
-`Can Cale Makar regain his Norris-winning form? Is anyone capable of challenging Auston Matthews in the Rocket Richard race?
-`\
-https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
 

@@ -1,3 +1,15 @@
+**Thompson: Draymond Green is here to build the Warriors' next title, whenever it comes**\
+`Draymond Green helped build the Warriors up from "the laughingstock of the NBA." Now he's eager to start the build back to the top.`\
+https://nytimes.com/athletic/5814850/2024/10/03/draymond-green-warriors-championship-training-camp/
+
+**The Athletic FC: How Flick orchestrated a Barca revival; Plus: CL upsets and more Messi success**\
+`Today in TAFC: `\
+https://nytimes.com/athletic/5814931/2024/10/03/barcelona-messi-champions-league/
+
+**Yankees vs. Royals ALDS preview: Predictions, pitching matchups and more**\
+`Aaron Judge, Juan Soto and the Yankees face Bobby Witt Jr. and the Royals in a star-studded ALDS. Our writers preview the series. `\
+https://nytimes.com/athletic/5814867/2024/10/03/yankees-royals-2024-alds-preview-predictions/
+
 **NHL 2024-25 awards predictions: Staff picks for Calder, Rocket Richard, Hart and more**\
 `Can Cale Makar regain his Norris-winning form? Is anyone capable of challenging Auston Matthews in the Rocket Richard race?
 `\
