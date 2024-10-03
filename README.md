@@ -1,3 +1,7 @@
+**‘Rust’ Western Will Premiere in Europe 3 Years After Fatal Shooting**\
+`After the Alec Baldwin movie turned into the scene of a tragedy with the death of its cinematographer, the film will debut next month at a festival that celebrates cinematography.`\
+https://nytimes.com/2024/10/03/movies/rust-premiere-camerimage-halyna-hutchins.html
+
 **Helene Knocked Out a Key Facility for Monitoring the Global Climate**\
 `The National Centers for Environmental Information in Asheville, N.C., sweep together data from around the world to help track Earth’s warming.`\
 https://nytimes.com/2024/10/03/climate/asheville-noaa-center.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5814638/2024/10/03/timberwolves-contenders-trading-
 **U.S. Faces Economic Turbulence Just as Recession Fears Eased**\
 `War in the Middle East, a strike by port workers and a devastating hurricane have injected uncertainty into the U.S. economy.`\
 https://nytimes.com/2024/10/03/us/politics/us-economy-inflation-port-strike-helene-israel.html
-
-**‘The Rings of Power’ Season 2 Finale Recap: Highs and Lows**\
-`The second season ended in a whirlwind of fire and steel, darkness and light, capping an eight-episode run with many ups and downs.`\
-https://nytimes.com/2024/10/03/arts/television/rings-of-power-recap-season-2-episode-8.html
 
