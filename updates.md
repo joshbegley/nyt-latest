@@ -1,3 +1,15 @@
+**David Banks, N.Y.C. Schools Chancellor, Moves Up His Departure**\
+`The chancellor, who previously announced that he would step down at the end of December, will instead leave the job on Oct. 16. Melissa Aviles-Ramos, a top deputy, will succeed him.`\
+https://nytimes.com/2024/10/02/nyregion/david-banks-schools-chancellor-resign.html
+
+**Inter Miami wins club's first Supporters' Shield**\
+`Lionel Messi scored twice and Luis Suárez added Inter Miami’s third goal in the win over Columbus Crew.`\
+https://nytimes.com/athletic/5814283/2024/10/02/inter-miami-wins-supporters-shield-messi/
+
+**Padres' Joe Musgrove exits early from start**\
+`Twice in the regular season, the 31-year-old went on the injured list because of elbow inflammation.`\
+https://nytimes.com/athletic/5814325/2024/10/02/joe-musrove-exits-early-san-diego-padres/
+
 **Padres' Joe Musgrove exits early from start**\
 `SAN DIEGO — Wednesday at raucous Petco Park, the Padres were seemingly cruising toward a wild-card sweep of the Atlanta Braves when potential disaster struck.`\
 https://nytimes.com/athletic/5814325/2024/10/02/joe-musrove-exits-early-san-diego-padres/
