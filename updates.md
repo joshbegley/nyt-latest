@@ -1,3 +1,11 @@
+**How Trump Could Punish His Enemies**\
+`We look at why legal experts are concerned.`\
+https://nytimes.com/2024/10/03/briefing/how-trump-could-punish-his-enemies.html
+
+**The Pulse: The MLB wild card is good, and MJ has a fresh beef**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5814276/2024/10/03/mlb-playoffs-michael-jordan-nascar-the-pulse/
+
 **What we're seeing from the Bears: Next steps for Caleb Williams, how good can defense be?**\
 `The Bears are 2-2, what we might've expected, but it hasn't been smooth. What's next as they try to build off their Week 4 win?`\
 https://nytimes.com/athletic/5813494/2024/10/03/chicago-bears-observations-caleb-williams/
