@@ -1,4 +1,8 @@
 **The Climate Fix: Solutions for a Warming World**\
+`In a new weekly feature of our Climate Forward newsletter, we’re covering the vast amount of investment, ingenuity and scientific expertise that are going toward stopping climate change.`\
+https://nytimes.com/2024/10/03/business/the-climate-fix-solutions-for-a-warming-world.html
+
+**The Climate Fix: Solutions for a Warming World**\
 `In our new weekly series, we’re covering the vast amount of investment, ingenuity and scientific expertise going toward stopping climate change.`\
 https://nytimes.com/2024/10/03/climate/the-climate-fix-solutions-for-a-warming-world.html
 
@@ -7,7 +11,7 @@ https://nytimes.com/2024/10/03/climate/the-climate-fix-solutions-for-a-warming-w
 https://nytimes.com/2024/10/03/us/helene-north-carolina-latino-swannanoa.html
 
 **Dodgers vs. Padres NLDS preview: Predictions, pitching matchups and more**\
-`The Los Angeles Dodgers and San Diego Padres renew their rivalry in a highly anticipated National League Division Series matchup.`\
+`The Dodgers and Padres renew their rivalry in a highly anticipated NLDS matchup. Our writers preview the series. `\
 https://nytimes.com/athletic/5815551/2024/10/03/dodgers-padres-2024-nlds-preview-predictions/
 
 **After Helene, Even Restoring Internet Service Is Political**\
@@ -29,8 +33,4 @@ https://nytimes.com/article/colonoscopy-alternative-colon-cancer-screening.html
 **People in central Beirut survey damage from an airstrike.**\
 `By Hwaida Saad`\
 https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/people-in-central-beirut-survey-damage-from-an-airstrike
-
-**Countries Evacuate Citizens From Lebanon Amid Israeli Airstrikes**\
-`Some governments chartered planes and secured seats on commercial flights for their citizens, warning people to leave Lebanon while Beirut’s international airport remains open.`\
-https://nytimes.com/video/world/middleeast/100000009739288/lebanon-israel-foreign-evacuations.html
 

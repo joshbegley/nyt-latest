@@ -1,4 +1,12 @@
 **The Climate Fix: Solutions for a Warming World**\
+`In a new weekly feature of our Climate Forward newsletter, we’re covering the vast amount of investment, ingenuity and scientific expertise that are going toward stopping climate change.`\
+https://nytimes.com/2024/10/03/business/the-climate-fix-solutions-for-a-warming-world.html
+
+**Dodgers vs. Padres NLDS preview: Predictions, pitching matchups and more**\
+`The Dodgers and Padres renew their rivalry in a highly anticipated NLDS matchup. Our writers preview the series. `\
+https://nytimes.com/athletic/5815551/2024/10/03/dodgers-padres-2024-nlds-preview-predictions/
+
+**The Climate Fix: Solutions for a Warming World**\
 `In our new weekly series, we’re covering the vast amount of investment, ingenuity and scientific expertise going toward stopping climate change.`\
 https://nytimes.com/2024/10/03/climate/the-climate-fix-solutions-for-a-warming-world.html
 
