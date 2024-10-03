@@ -1,5 +1,9 @@
 **Who is Hashem Safieddine, the latest Hezbollah official targeted by Israel?**\
 `By Ephrat Livni`\
+https://nytimes.com/2024/10/03/world/middleeast/hashem-safieddine-hezbollah-leader.html
+
+**Who is Hashem Safieddine, the latest Hezbollah official targeted by Israel?**\
+`By Ephrat Livni`\
 https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/hashem-safieddine-hezbollah-leader
 
 **Israeli planes target Nasrallah’s likely successor with huge strikes near Beirut.**\
