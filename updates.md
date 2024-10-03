@@ -1,3 +1,11 @@
+**A Recipe for a Striving America**\
+`The question is not whether to do industrial policy, but how.`\
+https://nytimes.com/2024/10/03/opinion/industry-policy-manufacturing.html
+
+**Why Trump Is Lying About Disaster Relief**\
+`His usual trash-talking is losing its mojo.`\
+https://nytimes.com/2024/10/03/opinion/trump-biden-hurricane-helene.html
+
 **What Travelers Need to Know About Hard-Hit North Carolina**\
 `Airbnb and Vrbo have activated emergency cancellation policies in the western part of the state and other areas of the Southeast affected by the deadly hurricane.`\
 https://nytimes.com/2024/10/03/travel/helene-rental-properties-asheville.html
