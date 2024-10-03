@@ -1,3 +1,11 @@
+**Raiders' Antonio Pierce receives significant 8-year NCAA penalty**\
+`NCAA infractions committee determined Pierce “knowingly and blatantly” disregarded and violated recruiting rules during the pandemic.`\
+https://nytimes.com/athletic/5815906/2024/10/03/antonio-pierce-ncaa-penalty-asu/
+
+**Chiefs place WR Rashee Rice on injured reserve**\
+`In three games, Rice has 24 catches, 288 yards and two touchdowns.`\
+https://nytimes.com/athletic/5816466/2024/10/03/chiefs-rashee-rice-injured-reserve/
+
 **Orioles GM Mike Elias knows his club needs to change. It's just a matter of how much**\
 `Elias said he might have prioritized pitching too much and will have to approach the trade deadline differently in future seasons.`\
 https://nytimes.com/athletic/5816395/2024/10/03/orioles-mike-elias-season-ending-news-conference/
