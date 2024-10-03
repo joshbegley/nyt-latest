@@ -1,3 +1,15 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane/here-is-the-latest-on-the-storm
+
+**Tropical Storm Leslie Forms in the Atlantic**\
+`The storm is one of two churning in the Atlantic. Though powerful, neither is a threat to land right now.`\
+https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane
+
+**Pitching to Bobby Witt Jr. in big spots is a risky play — Just ask the Orioles**\
+`The Orioles faced a dilemma every time Witt came to the plate in a big moment. They chose to attack him, and each time it backfired. `\
+https://nytimes.com/athletic/5814419/2024/10/02/bobby-witt-jr-royals-orioles-risks/
+
 **Mexican Military Fatally Shoots Six Migrants**\
 `The country’s defense ministry said the military officers who opened fire might have mistaken the migrants for cartel members.`\
 https://nytimes.com/2024/10/02/world/americas/mexico-fatal-shooting-migrants.html
