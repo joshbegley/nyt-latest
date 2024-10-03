@@ -1,3 +1,7 @@
+**Tigers' Andy Ibáñez kept believing and became baseball's latest unlikely playoff hero**\
+`For all the moments in which the Tigers looked failure in the eye and refused to concede, none was bigger than Ibáñez's game-changing hit. `\
+https://nytimes.com/athletic/5814073/2024/10/02/andy-ibanez-detroit-tigers-playoff-hero/
+
 **Travis Hunter for Heisman? Coach of the year so far? September superlatives**\
 `Bruce Feldman, Stewart Mandel and newcomer Ralph Russo pick their September Heisman, most surprising teams and coach of the year so far.`\
 https://nytimes.com/athletic/5814082/2024/10/02/travis-hunter-heisman-kalen-deboer-alabama-usc-lsu-ohio-state-georgia/
