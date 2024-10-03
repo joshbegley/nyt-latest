@@ -12,7 +12,7 @@ https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israeli-
 
 **An Israeli airstrike kills at least 18 people in the West Bank.**\
 `By Aaron Boxerman and Ephrat Livni`\
-https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/an-israeli-airstrike-kills-at-least-18-people-in-the-west-bank
+https://nytimes.com/2024/10/03/world/middleeast/israel-airstrike-west-bank-tulkarm.html
 
 **A Recipe for a Striving America**\
 `The question is not whether to do industrial policy, but how.`\
