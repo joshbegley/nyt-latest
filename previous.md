@@ -1,3 +1,11 @@
+**Listen: ‘Walnut’**\
+`What can animals teach us about mortality — and life?`\
+https://nytimes.com/2024/10/03/learning/listen-walnut.html
+
+**Can Karl-Anthony Towns help Knicks topple Celtics? Analyzing the East**\
+`Jay King and James L. Edwards team up to discuss the recent moves in the East, make their predictions on most improved teams and more. `\
+https://nytimes.com/athletic/5812945/2024/10/03/karl-anthony-towns-knicks-celtics/
+
 **Helping revive Baker Mayfield's career has consequences for Falcons: 5 factors**\
 `Former Falcons quarterback Matt Ryan will be honored at halftime of Thursday night's game against the Buccaneers.`\
 https://nytimes.com/athletic/5813477/2024/10/03/falcons-buccaneers-baker-mayfield/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/03/podcasts/jd-vance-tim-walz-and-the-fight-for-rura
 **Why Israel Is Worried About Iran’s Nuclear Ambitions**\
 `Despite the supreme leader’s stated religious objections to nuclear weapons, Tehran has been steadily making progress on its nuclear weapons capabilities over the course of the past year.`\
 https://nytimes.com/2024/10/03/opinion/israel-iran-nuclear-weapons.html
-
-**Hurricane Helene Leaves Trail of Destruction in North Carolina**\
-`On Wednesday, the death toll of Hurricane Helene rose to at least 183, making it the deadliest hurricane to strike the mainland United States since 2005.`\
-https://nytimes.com/video/weather/100000009737061/hurricane-helene-leaves-trail-of-destruction-in-north-carolina.html
-
-**Who’s Too Old to Be President Now? Take a Guess.**\
-`If voters felt 81 was too old for Joe Biden, it’s hard to believe they can overlook 78 in Donald Trump.`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/donald-trump-age
 

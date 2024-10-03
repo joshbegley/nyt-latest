@@ -1,3 +1,11 @@
+**Listen: ‘Walnut’**\
+`What can animals teach us about mortality — and life?`\
+https://nytimes.com/2024/10/03/learning/listen-walnut.html
+
+**Can Karl-Anthony Towns help Knicks topple Celtics? Analyzing the East**\
+`Jay King and James L. Edwards team up to discuss the recent moves in the East, make their predictions on most improved teams and more. `\
+https://nytimes.com/athletic/5812945/2024/10/03/karl-anthony-towns-knicks-celtics/
+
 **Helping revive Baker Mayfield's career has consequences for Falcons: 5 factors**\
 `Former Falcons quarterback Matt Ryan will be honored at halftime of Thursday night's game against the Buccaneers.`\
 https://nytimes.com/athletic/5813477/2024/10/03/falcons-buccaneers-baker-mayfield/
