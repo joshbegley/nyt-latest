@@ -2,7 +2,7 @@
 `After a once strained relationship, Karl-Anthony Towns and Tom Thibodeau's paths have crossed again. `\
 https://nytimes.com/athletic/5813572/2024/10/03/karl-anthony-towns-tom-thibodeau-knicks-trade-roster/
 
-**Senators Urge D.O.J. to Hold Boeing Executives Accountable for Safety Violations Amid Ongoing Crises**\
+**Senators Urge Justice Department to Hold Boeing Executives Accountable for Safety Violations**\
 `In a letter, Democratic Senators Elizabeth Warren of Massachusetts and Richard Blumenthal of Connecticut criticized the Justice Department after continued incidents with Boeing planes.`\
 https://nytimes.com/2024/10/03/us/politics/senators-doj-boeing-letter.html
 
