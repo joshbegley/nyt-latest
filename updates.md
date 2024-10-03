@@ -1,3 +1,7 @@
+**Diamondbacks fire pitching coach Brent Strom: Source**\
+`The D-Backs' pitching staff finished 27th in ERA and WHIP in a season where they fell just short of the postseason.`\
+https://nytimes.com/athletic/5816706/2024/10/03/diamondbacks-fire-pitching-coach-brent-strom-source/
+
 **Biden Promised Federal Support for Survivors of Helene**\
 `Also, Liz Cheney is campaigning tonight with Kamala Harris. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/10/03/briefing/biden-hurricane-helene-liz-cheney-harris.html

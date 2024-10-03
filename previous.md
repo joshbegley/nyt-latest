@@ -1,3 +1,7 @@
+**Diamondbacks fire pitching coach Brent Strom: Source**\
+`The D-Backs' pitching staff finished 27th in ERA and WHIP in a season where they fell just short of the postseason.`\
+https://nytimes.com/athletic/5816706/2024/10/03/diamondbacks-fire-pitching-coach-brent-strom-source/
+
 **Biden Promised Federal Support for Survivors of Helene**\
 `Also, Liz Cheney is campaigning tonight with Kamala Harris. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/10/03/briefing/biden-hurricane-helene-liz-cheney-harris.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/arts/music/garth-brooks-rape-assault-lawsuit.html
 **Raiders' Antonio Pierce receives significant 8-year NCAA penalty**\
 `NCAA infractions committee determined Pierce “knowingly and blatantly” disregarded and violated recruiting rules during the pandemic.`\
 https://nytimes.com/athletic/5815906/2024/10/03/antonio-pierce-ncaa-penalty-asu/
-
-**Chiefs place WR Rashee Rice on injured reserve**\
-`In three games, Rice has 24 catches, 288 yards and two touchdowns.`\
-https://nytimes.com/athletic/5816466/2024/10/03/chiefs-rashee-rice-injured-reserve/
 
