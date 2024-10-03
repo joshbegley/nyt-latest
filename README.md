@@ -6,6 +6,10 @@ https://nytimes.com/athletic/5814225/2024/10/03/travis-kelce-rookie-cards-swift-
 `Scientists are studying whether future astronauts on deep-space journeys could transform compounds in asteroids into food.`\
 https://nytimes.com/2024/10/03/science/asteroids-food-space.html
 
+**Tyreek Hill says he's happy with Dolphins amid trade speculation**\
+`"Moving forward, I would love to be here," Hill told reporters Wednesday.`\
+https://nytimes.com/athletic/5815194/2024/10/03/tyreek-hill-dolphins-trade-rumors-comments/
+
 **With Dejounte Murray, Herb Jones, Pelicans are hoping to double down on defensive strengths**\
 `“(Murray) and Herb defending at a high level is something that’s going to be special to watch,” says CJ McCollumn.`\
 https://nytimes.com/athletic/5814754/2024/10/03/pelicans-dejounte-murray-herb-jones-defense-teammates/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/03/us/trump-harris-election/house-majority-pac-
 **Has Travis Dermott done enough to crack a crowded Oilers defence?**\
 `Dermott had his best game of the preseason in Wednesday's 6-2 loss to Seattle, but an already crowded Oilers blue line means he's in tough.`\
 https://nytimes.com/athletic/5814723/2024/10/03/edmonton-oilers-travis-dermott-defense/
-
-**Bryce Huff's September was a slow start. Can Eagles expect production soon?**\
-`The Eagles have yet to see the production they were hoping for from Bryce Huff.`\
-https://nytimes.com/athletic/5811269/2024/10/03/bryce-huff-eagles-production/
 
