@@ -1,3 +1,15 @@
+**Bucky Irving, Braelon Allen are outperforming starters Rachaad White, Breece Hall**\
+`Michael Salfino shines a light on backup running backs, like Bucky Irving, who have a better rush success rate than their team's starter.`\
+https://nytimes.com/athletic/5813157/2024/10/03/fantasy-football-bucky-irving-breece-hall-starter/
+
+**KAT in New York, believing in Memphis and more top storylines for fantasy basketball 2024-25**\
+`From KAT's arrival in New York, to Ja's return in Memphis, Stan Son spins all the top storylines heading into fantasy basketball 2024-25.`\
+https://nytimes.com/athletic/5812488/2024/10/03/fantasy-basketball-top-stories-kat-ja-2024-25/
+
+**Should the Premier League adopt the NFL injury transparency rules?**\
+`The Premier League has no rules around reporting injuries publicly — should that change?`\
+https://nytimes.com/athletic/5793405/2024/10/03/premier-league-nfl-injury-transparency-rules/
+
 **In Japan’s Countryside, Century-Old Firms Learn to Embrace Foreign Workers**\
 `Japan’s regional economies are facing severe labor shortages. Their survival depends on their ability to persuade foreign workers to stay.`\
 https://nytimes.com/2024/10/03/business/japan-immigrant-workers.html

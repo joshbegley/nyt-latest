@@ -1,3 +1,15 @@
+**Bucky Irving, Braelon Allen are outperforming starters Rachaad White, Breece Hall**\
+`Michael Salfino shines a light on backup running backs, like Bucky Irving, who have a better rush success rate than their team's starter.`\
+https://nytimes.com/athletic/5813157/2024/10/03/fantasy-football-bucky-irving-breece-hall-starter/
+
+**KAT in New York, believing in Memphis and more top storylines for fantasy basketball 2024-25**\
+`From KAT's arrival in New York, to Ja's return in Memphis, Stan Son spins all the top storylines heading into fantasy basketball 2024-25.`\
+https://nytimes.com/athletic/5812488/2024/10/03/fantasy-basketball-top-stories-kat-ja-2024-25/
+
+**Should the Premier League adopt the NFL injury transparency rules?**\
+`The Premier League has no rules around reporting injuries publicly — should that change?`\
+https://nytimes.com/athletic/5793405/2024/10/03/premier-league-nfl-injury-transparency-rules/
+
 **In Japan’s Countryside, Century-Old Firms Learn to Embrace Foreign Workers**\
 `Japan’s regional economies are facing severe labor shortages. Their survival depends on their ability to persuade foreign workers to stay.`\
 https://nytimes.com/2024/10/03/business/japan-immigrant-workers.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane
 **Pitching to Bobby Witt Jr. in big spots is a risky play — Just ask the Orioles**\
 `The Orioles faced a dilemma every time Witt came to the plate in a big moment. They chose to attack him, and each time it backfired. `\
 https://nytimes.com/athletic/5814419/2024/10/02/bobby-witt-jr-royals-orioles-risks/
-
-**Mexican Military Fatally Shoots Six Migrants**\
-`The country’s defense ministry said the military officers who opened fire might have mistaken the migrants for cartel members.`\
-https://nytimes.com/2024/10/02/world/americas/mexico-fatal-shooting-migrants.html
-
-**'Heartbroken': As Astros' ALCS streak ends and club nears crossroads, Jose Altuve speaks up**\
-`Seven consecutive ALCS appearances conditioned this city and clubhouse for prolonged postseason runs. What now? `\
-https://nytimes.com/athletic/5814260/2024/10/02/astros-alcs-streak-ends-altuve-bregman/
-
-**Brewers force Game 3 with late power display versus Mets: Takeaways**\
-`Jackson Chourio and Garrett Mitchell led an eighth-inning comeback by going deep for the Brewers.`\
-https://nytimes.com/athletic/5814298/2024/10/02/mets-brewers-wild-card-game-2-takeaways/
 

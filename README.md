@@ -18,7 +18,7 @@ https://nytimes.com/2024/10/03/business/japan-immigrant-workers.html
 `Quotation of the Day for Thursday, October 3, 2024.`\
 https://nytimes.com/2024/10/02/pageoneplus/quote-of-the-day-as-dockworkers-strike-for-higher-wages-truckers-worry-about-their-own-pay.html
 
-**Examining the Mets' late-game bullpen decisions in loss that forces decisive Game 3**\
+**Examining the Mets' late-game bullpen decisions in a loss that forces a decisive Game 3**\
 `The Mets were six outs away from their first postseason series win in nine years.`\
 https://nytimes.com/athletic/5814520/2024/10/02/mets-bullpen-decisions-wild-card-brewers/
 
