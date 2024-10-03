@@ -1,3 +1,7 @@
+**The Union Leader Behind the Ports Strike**\
+`As president of the International Longshoremen’s Association, Harold Daggett is taking advantage of organized labor’s resurgence to drive a hard bargain.`\
+https://nytimes.com/2024/10/03/business/dealbook/the-union-leader-behind-the-ports-strike.html
+
 **Mbappe out of France squad for Nations League games**\
 `Real Madrid forward Kylian Mbappe has been left out of France&#8217;s squad for their upcoming Nations League fixtures later this month.`\
 https://nytimes.com/athletic/5814967/2024/10/03/kylian-mbappe-france-nations-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5814867/2024/10/03/yankees-royals-2024-alds-preview
 **Broja targeting Everton debut in mid-November**\
 `Armando Broja is hoping to make his first appearance for Everton next month after stepping up his recovery from an Achilles injury.`\
 https://nytimes.com/athletic/5814961/2024/10/03/armando-broja-injury-everton/
-
-**Phillips opens up on impact of Guardiola’s ‘overweight’ comment**\
-`Kalvin Phillips has revealed he was left frustrated over Pep Guardiola’s remarks about his weight during his time at Manchester City.`\
-https://nytimes.com/athletic/5814886/2024/10/03/kalvin-phillips-overweight-pep-guardiola/
 
