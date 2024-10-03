@@ -1,3 +1,11 @@
+**Davante Adams trade roundtable: Experts discuss best, worst fantasy-related landing spots**\
+`The Athletic fantasy football experts weigh in on best, worst landing spots for Davante Adams should he be traded in the near future.`\
+https://nytimes.com/athletic/5814460/2024/10/03/fantasy-football-dvanate-adams-trade-scenarios/
+
+**Can a Neon Blue Gummy Worm Cocktail Save the Movies?**\
+`Over-the-top specialty concessions at theaters aren’t new, but they are newly everywhere.`\
+https://nytimes.com/2024/10/03/dining/movie-theater-food-concessions.html
+
 **Mounjaro and Zepbound Are No Longer in Shortage, F.D.A. Says**\
 `The announcement will expand access to the diabetes and weight-loss drugs. But it will also complicate the future of compounded versions of the medications.`\
 https://nytimes.com/2024/10/03/well/mounjaro-zepbound-shortage-compounded-tirzepatide.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/03/arts/alex-katz-mark-di-suvero-sculpture-brooklyn-
 **NFL best bets Week 5: Patience is key when injuries and tight lines are involved**\
 `Austin Mock had to wait for the right spots, but he has a pair of best bets for NFL Week 5.`\
 https://nytimes.com/athletic/5813066/2024/10/03/nfl-best-bets-week-5-buccaneers-bengals/
-
-**Trump Says He Would Try Again to Revoke Haitian Immigrants’ Protections**\
-`He again disparaged Haitians in Springfield, Ohio, and said he would end their legal status in the country and send them back. His first attempt to do that failed.`\
-https://nytimes.com/2024/10/03/us/politics/trump-haitian-immigrants-legal-status.html
-
-**What to See in N.Y.C. Galleries in October**\
-`This week in Newly Reviewed, Martha Schwendener covers Dennis Kardon’s wonderfully strange paintings, Klara Liden’s green vistas and Sheryl Sutton’s mesmerizing movements.`\
-https://nytimes.com/2024/10/03/arts/design/nyc-galleries-october.html
 

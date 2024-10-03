@@ -1,3 +1,11 @@
+**Davante Adams trade roundtable: Experts discuss best, worst fantasy-related landing spots**\
+`The Athletic fantasy football experts weigh in on best, worst landing spots for Davante Adams should he be traded in the near future.`\
+https://nytimes.com/athletic/5814460/2024/10/03/fantasy-football-dvanate-adams-trade-scenarios/
+
+**Can a Neon Blue Gummy Worm Cocktail Save the Movies?**\
+`Over-the-top specialty concessions at theaters aren’t new, but they are newly everywhere.`\
+https://nytimes.com/2024/10/03/dining/movie-theater-food-concessions.html
+
 **Mounjaro and Zepbound Are No Longer in Shortage, F.D.A. Says**\
 `The announcement will expand access to the diabetes and weight-loss drugs. But it will also complicate the future of compounded versions of the medications.`\
 https://nytimes.com/2024/10/03/well/mounjaro-zepbound-shortage-compounded-tirzepatide.html
