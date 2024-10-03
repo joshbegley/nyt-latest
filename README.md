@@ -1,3 +1,19 @@
+**Has Travis Dermott done enough to crack a crowded Oilers defence?**\
+`Dermott had his best game of the preseason in Wednesday's 6-2 loss to Seattle, but an already crowded Oilers blue line means he's in tough.`\
+https://nytimes.com/athletic/5814723/2024/10/03/edmonton-oilers-travis-dermott-defense/
+
+**Bryce Huff's September was a slow start. Can Eagles expect production soon?**\
+`The Eagles have yet to see the production they were hoping for from Bryce Huff.`\
+https://nytimes.com/athletic/5811269/2024/10/03/bryce-huff-eagles-production/
+
+**Europe Expected to Approve Higher Tariffs on Electric Cars From China**\
+`The European Union is expected to support wielding tariffs on electric vehicles made in China, seeking to prevent unfair competition.`\
+https://nytimes.com/2024/10/03/business/europe-china-electric-vehicle-tariffs.html
+
+**The Pulse: The MLB wild card is good**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5815139/2024/10/03/mlb-wild-card-sweeps-the-pulse-2/
+
 **Can Kaleb Johnson, Iowa upset Will Howard, Ohio State?**\
 `What's on the line for Ohio State and Iowa in Saturday's Big Ten matchup? Let's take a look at the key players and matchups.`\
 https://nytimes.com/athletic/5814642/2024/10/03/ohio-state-iowa-preview-predictions-big-ten/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/10/03/us/trump-harris-election/heres-the-latest-on
 **Election Live Updates: Harris and Trump Head to Battleground States**\
 `Vice President Kamala Harris will travel to the symbolic birthplace of the Republican Party to appear with Liz Cheney, the highest-profile Republican to endorse her.`\
 https://nytimes.com/live/2024/10/03/us/trump-harris-election
-
-**Israel warns residents to flee as it keeps up ground attacks in Lebanon.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israel-warns-residents-to-flee-as-it-keeps-up-ground-attacks-in-lebanon
-
-**Thompson: Draymond Green is here to build the Warriors' next title, whenever it comes**\
-`Draymond Green helped build the Warriors up from "the laughingstock of the NBA." Now he's eager to start the build back to the top.`\
-https://nytimes.com/athletic/5814850/2024/10/03/draymond-green-warriors-championship-training-camp/
-
-**The Athletic FC: How Flick orchestrated a Barca revival; Plus: CL upsets and more Messi success**\
-`Today in TAFC: `\
-https://nytimes.com/athletic/5814931/2024/10/03/barcelona-messi-champions-league/
-
-**Yankees vs. Royals ALDS preview: Predictions, pitching matchups and more**\
-`Aaron Judge, Juan Soto and the Yankees face Bobby Witt Jr. and the Royals in a star-studded ALDS. Our writers preview the series. `\
-https://nytimes.com/athletic/5814867/2024/10/03/yankees-royals-2024-alds-preview-predictions/
 
