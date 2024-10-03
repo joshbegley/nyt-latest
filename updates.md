@@ -1,3 +1,7 @@
+**Padres cap sweep by holding off Braves in Game 2: Takeaways**\
+`SAN DIEGO — Bring on the Dodgers.`\
+https://nytimes.com/athletic/5814438/2024/10/02/braves-padres-wild-card-game-2/
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane/here-is-the-latest-on-the-storm

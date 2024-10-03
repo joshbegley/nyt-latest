@@ -1,3 +1,7 @@
+**Padres cap sweep by holding off Braves in Game 2: Takeaways**\
+`SAN DIEGO — Bring on the Dodgers.`\
+https://nytimes.com/athletic/5814438/2024/10/02/braves-padres-wild-card-game-2/
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane/here-is-the-latest-on-the-storm
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5814283/2024/10/02/inter-miami-wins-supporters-shie
 **Padres' Joe Musgrove exits early from start**\
 `Twice in the regular season, the 31-year-old went on the injured list because of elbow inflammation.`\
 https://nytimes.com/athletic/5814325/2024/10/02/joe-musrove-exits-early-san-diego-padres/
-
-**Leaf Maker**\
-`Rena Cohen makes her New York Times Crossword debut, and that’s the truth.`\
-https://nytimes.com/2024/10/02/crosswords/daily-puzzle-2024-10-03.html
 
