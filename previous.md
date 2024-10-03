@@ -1,3 +1,7 @@
+**Team owners on Michael Jordan's legal fight with NASCAR: It's 'going to be wild'**\
+`NASCAR's other Cup Series team owners seem content to let 23XI and Front Row duke it out with NASCAR while hoping for a positive outcome.`\
+https://nytimes.com/athletic/5814043/2024/10/03/michael-jordan-nascar-lawsuit-team-owners-reaction/
+
 **Kane Wommack's trust paid off against Georgia**\
 `Wommack's defense had some good and bad moments in Alabama's win over Georgia, and he's already focused on improving the unit.`\
 https://nytimes.com/athletic/5814651/2024/10/03/alabama-defense-kane-wommack/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5812844/2024/10/03/jeremy-swayman-contract-amazon-s
 **How the Golden State Valkyries marketing themselves as the new WNBA expansion franchise**\
 `Golden State's president said the team is aiming to make a profit in the first year.`\
 https://nytimes.com/athletic/5809654/2024/10/03/golden-state-valkyries-wnba-expansion-marketing/
-
-**A super PAC for House Democrats raised a record $69 million last month.**\
-`By Theodore Schleifer`\
-https://nytimes.com/live/2024/10/03/us/trump-harris-election/house-majority-pac-fundraising
 
