@@ -1,3 +1,7 @@
+**Mexican Military Fatally Shoots Six Migrants**\
+`The country’s defense ministry said the military officers who opened fire might have mistaken the migrants for cartel members.`\
+https://nytimes.com/2024/10/02/world/americas/mexico-fatal-shooting-migrants.html
+
 **'Heartbroken': As Astros' ALCS streak ends and club nears crossroads, Jose Altuve speaks up**\
 `Seven consecutive ALCS appearances conditioned this city and clubhouse for prolonged postseason runs. What now? `\
 https://nytimes.com/athletic/5814260/2024/10/02/astros-alcs-streak-ends-altuve-bregman/
