@@ -1,3 +1,7 @@
+**Opposition filed against NCAA, power conferences' anitrust settlement**\
+`The filing argues the damages portion of the settlement is too low and restrictions placed on booster-funded NIL collectives are unfair.`\
+https://nytimes.com/athletic/5815367/2024/10/03/ncaa-power-conference-antitrust-opposition/
+
 **‘Joker: Folie à Deux’ Review: Make ‘Em Laugh (and Yawn)**\
 `Todd Phillip’s “Joker” sequel stars Joaquin Phoenix and Lady Gaga who sing and dance like crazy kids, but the movie is seriously un-fun.`\
 https://nytimes.com/2024/10/03/movies/joker-folie-a-deux-review.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/dining/a-flexible-fall-meal-plan-for-non-planners
 **Daniel Penny’s Lawyers Will Ask Judge to Throw Out Chokehold Charge**\
 `Mr. Penny’s subway-car struggle with a homeless man, Jordan Neely, ended in death. On Thursday, his lawyers will also ask a judge to exclude video of Mr. Penny discussing the encounter.`\
 https://nytimes.com/2024/10/03/nyregion/daniel-penny-chokehold-charge-subway-death.html
-
-**Brooklyn Museum at 200 Celebrates Beauty and Art’s Hidden History**\
-`A new American wing draws on feminist and racially and ethnically diverse thinking to spotlight 200 exceptional works in its collection.`\
-https://nytimes.com/2024/10/03/arts/design/brooklyn-museum-200-art-collection.html
 
