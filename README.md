@@ -1,3 +1,11 @@
+**How did Notre Dame land a 5-star basketball recruit?**\
+`Micah Shrewsberry's NBA ties gave him credibility with Haralson that more experienced college coaches lacked.`\
+https://nytimes.com/athletic/5815285/2024/10/03/notre-dame-basketball-jalen-haralson/
+
+**Timberwolves still see themselves as contenders after trading Karl-Anthony Towns**\
+`The pieces they received in return have the Wolves confident that they can still be a contender in the Western Conference.`\
+https://nytimes.com/athletic/5814638/2024/10/03/timberwolves-contenders-trading-karl-anthony-towns/
+
 **U.S. Faces Economic Turbulence Just as Recession Fears Eased**\
 `War in the Middle East, the port workers strike and a devastating hurricane have injected uncertainty into the U.S. economy.`\
 https://nytimes.com/2024/10/03/us/politics/us-economy-inflation-port-strike-helene-israel.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/03/us/churches-dallas-fort-worth-sexual-abuse.html
 **Marlins continue massive personnel overhaul**\
 `The Marlins' purge began in mid-August and continued this week.`\
 https://nytimes.com/athletic/5815795/2024/10/03/miami-marlins-personnel-changes/
-
-**Lee Carsley's England squad: Experiments, the attacking conundrum and a ruthless streak**\
-`Carsley believes he is in charge of the national team through until Christmas but his squad selections indicate long-term planning`\
-https://nytimes.com/athletic/5815535/2024/10/03/england-carsley-squad-bellingham-palmer/
-
-**Lawyers for a Sean Combs Accuser Ask to Withdraw From Her Case**\
-`A dispute between Adria English, who has accused Mr. Combs of sexual misconduct, and her lawyers is the latest twist in the civil litigation the music mogul is facing.`\
-https://nytimes.com/2024/10/03/arts/music/adria-english-sean-diddy-combs-accuser-lawyer.html
 
