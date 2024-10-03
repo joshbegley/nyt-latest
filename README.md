@@ -1,3 +1,7 @@
+**Emerson: The SEC ... it just means more ratings, which could mean 9-game schedule**\
+`What could push the SEC to a nine-game schedule? Strong TV ratings and a scheduling agreement with the Big Ten won't hurt.`\
+https://nytimes.com/athletic/5815119/2024/10/03/sec-tv-ratings-nine-game-schedule/
+
 **The Windup: A pair of shocking wild-card sweeps**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter.`\
 https://nytimes.com/athletic/5815657/2024/10/03/tigers-royals-wild-card-mlb-playoffs-the-windup/
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/5815586/2024/10/03/betting-picks-nfl-college-footba
 
 **Davante Adams trade roundtable: Experts discuss best, worst fantasy-related landing spots**\
 `The Athletic fantasy football experts weigh in on best, worst landing spots for Davante Adams should he be traded in the near future.`\
-https://nytimes.com/athletic/5814460/2024/10/03/fantasy-football-dvanate-adams-trade-scenarios/
+https://nytimes.com/athletic/5814460/2024/10/03/fantasy-football-davante-adams-trade-scenarios/
 
 **Can a Neon Blue Gummy Worm Cocktail Save the Movies?**\
 `Over-the-top specialty concessions at theaters aren’t new, but they are newly everywhere.`\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5815552/2024/10/03/why-was-conor-mcgregor-on-the-pi
 **‘Joker: Folie à Deux’ Review: Make ‘Em Laugh (and Yawn)**\
 `Todd Phillips’s “Joker” sequel stars Joaquin Phoenix and Lady Gaga who sing and dance like crazy kids, but the movie is seriously un-fun.`\
 https://nytimes.com/2024/10/03/movies/joker-folie-a-deux-review.html
-
-**Opposition filed against NCAA, power conferences' anitrust settlement**\
-`The filing argues the damages portion of the settlement is too low and restrictions placed on booster-funded NIL collectives are unfair.`\
-https://nytimes.com/athletic/5815367/2024/10/03/ncaa-power-conference-antitrust-opposition/
 
