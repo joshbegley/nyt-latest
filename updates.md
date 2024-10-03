@@ -1,3 +1,15 @@
+**In Japan’s Countryside, Century-Old Firms Learn to Embrace Foreign Workers**\
+`Japan’s regional economies are facing severe labor shortages. Their survival depends on their ability to persuade foreign workers to stay.`\
+https://nytimes.com/2024/10/03/business/japan-immigrant-workers.html
+
+**Quote of the Day: As Dockworkers Strike for Higher Wages, Truckers Worry About Their Own Pay**\
+`Quotation of the Day for Thursday, October 3, 2024.`\
+https://nytimes.com/2024/10/02/pageoneplus/quote-of-the-day-as-dockworkers-strike-for-higher-wages-truckers-worry-about-their-own-pay.html
+
+**Examining the Mets' late-game bullpen decisions in loss that forces decisive Game 3**\
+`The Mets were six outs away from their first postseason series win in nine years.`\
+https://nytimes.com/athletic/5814520/2024/10/02/mets-bullpen-decisions-wild-card-brewers/
+
 **Padres cap sweep by holding off Braves in Game 2: Takeaways**\
 `SAN DIEGO — Bring on the Dodgers.`\
 https://nytimes.com/athletic/5814438/2024/10/02/braves-padres-wild-card-game-2/
