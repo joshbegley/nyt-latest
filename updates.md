@@ -1,3 +1,7 @@
+**Orioles GM Mike Elias knows his club needs to change. It's just a matter of how much**\
+`Elias said he might have prioritized pitching too much and will have to approach the trade deadline differently in future seasons.`\
+https://nytimes.com/athletic/5816395/2024/10/03/orioles-mike-elias-season-ending-news-conference/
+
 **Federal Judge Clears Path for Part of Biden’s Student Loan Plan**\
 `The ruling by a judge in Georgia could be just a temporary reprieve for the plan, which still faces legal challenges in another state.`\
 https://nytimes.com/2024/10/03/us/politics/biden-student-loan-debt-georgia.html
