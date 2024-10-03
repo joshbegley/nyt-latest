@@ -1,3 +1,15 @@
+**Juventus' Bremer sustains ACL injury, set to undergo surgery**\
+`Juventus defender Gleison Bremer is set for an extended spell on the sidelines after injuring the anterior cruciate ligament in his left knee.`\
+https://nytimes.com/athletic/5815009/2024/10/03/juventus-gleison-bremer-injury/
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/03/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris and Trump Head to Battleground States**\
+`Vice President Kamala Harris will travel to the symbolic birthplace of the Republican Party to appear with Liz Cheney, the highest-profile Republican to endorse her.`\
+https://nytimes.com/live/2024/10/03/us/trump-harris-election
+
 **Israel warns residents to flee as it keeps up ground attacks in Lebanon.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israel-warns-residents-to-flee-as-it-keeps-up-ground-attacks-in-lebanon
