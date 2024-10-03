@@ -1,3 +1,7 @@
+**10-Minute Challenge: A Finished, Unfinished Portrait by Alice Neel**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2024/10/03/upshot/ten-minute-challenge-neel.html
+
 **Big Ten commish Tony Petitti outlines the importance of partnership with the SEC**\
 `Ahead of the Big Ten and SEC's upcoming meeting in Nashville, Petitti says scheduling and Playoff format are up for discussion.`\
 https://nytimes.com/athletic/5816668/2024/10/03/big-ten-sec-college-football-playoff-scheduling/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/us/politics/bruce-springsteen-kamala-harris-endor
 **Friday Briefing: Israel Expands Evacuation Orders in Lebanon**\
 `Plus, paying countries to protect trees.`\
 https://nytimes.com/2024/10/03/briefing/lebanon-trump-hiv.html
-
-**The Briefing - Porto 3 Man United 3: Defensive horror show? What happened to trusted lieutenants?**\
-`A dramatic game saw Manchester United manage a 3-3 draw against Porto in the Europa League`\
-https://nytimes.com/athletic/5808860/2024/10/03/porto-manchester-united-result-report-analysis/
 

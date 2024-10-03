@@ -1,3 +1,7 @@
+**10-Minute Challenge: A Finished, Unfinished Portrait by Alice Neel**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2024/10/03/upshot/ten-minute-challenge-neel.html
+
 **Big Ten commish Tony Petitti outlines the importance of partnership with the SEC**\
 `Ahead of the Big Ten and SEC's upcoming meeting in Nashville, Petitti says scheduling and Playoff format are up for discussion.`\
 https://nytimes.com/athletic/5816668/2024/10/03/big-ten-sec-college-football-playoff-scheduling/
