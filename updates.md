@@ -1,3 +1,7 @@
+**Brain games: Pressing your edge with Justin Fields, Dontayvion Wicks and more in Week 5**\
+`Renee Miller offers some starting options for Week 5, including advocating for Justin Fields even ahead of some of the biggest names at QB.`\
+https://nytimes.com/athletic/5814380/2024/10/03/brain-games-week-5-fantasy-football-justin-fields/
+
 **Putin Keeps Threatening to Use Nuclear Weapons. Would He?**\
 `Last week the president of Russia appeared to lower the threshold for his country’s use of nuclear weapons. It wasn’t subtle, and it wasn’t meant to be.`\
 https://nytimes.com/2024/10/03/opinion/putin-russia-nuclear-weapons.html

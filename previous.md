@@ -1,3 +1,7 @@
+**Brain games: Pressing your edge with Justin Fields, Dontayvion Wicks and more in Week 5**\
+`Renee Miller offers some starting options for Week 5, including advocating for Justin Fields even ahead of some of the biggest names at QB.`\
+https://nytimes.com/athletic/5814380/2024/10/03/brain-games-week-5-fantasy-football-justin-fields/
+
 **Putin Keeps Threatening to Use Nuclear Weapons. Would He?**\
 `Last week the president of Russia appeared to lower the threshold for his country’s use of nuclear weapons. It wasn’t subtle, and it wasn’t meant to be.`\
 https://nytimes.com/2024/10/03/opinion/putin-russia-nuclear-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5812068/2024/10/03/cole-palmer-chelsea-manchester-c
 **Dafydd vs Goliath: How Welsh minnows (based in England) reached the European big time**\
 `The New Saints already had a unique history - now they are set to perform one of Europe's grandest stages. How did it happen?`\
 https://nytimes.com/athletic/5812163/2024/10/03/tns-fiorentina-conference-league/
-
-**How the WSL evolved into a multinational league**\
-`The first Women's Super League match in 2011 featured only one foreign player but the make-up of teams is now dramatically different`\
-https://nytimes.com/athletic/5811909/2024/10/03/wsl-nationalities-evolution/
 
