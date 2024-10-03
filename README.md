@@ -1,3 +1,11 @@
+**Federal Judge Clears a Path for Part of Biden’s Student Loan Plan**\
+`The ruling by a judge in Georgia could be just a temporary reprieve for the plan, which still faces legal challenges in another state.`\
+https://nytimes.com/2024/10/03/us/politics/biden-student-loan-debt-georgia.html
+
+**Week 5 fantasy football, betting cheat sheet: Player rankings, best bets and more**\
+`Everything you need to know about NFL Week 5 from a fantasy and betting perspective.`\
+https://nytimes.com/athletic/5815465/2024/10/03/nfl-fantasy-football-betting-cheat-sheet-week-5/
+
 **What to Know About the Marburg Virus Disease Outbreak**\
 `In Rwanda, 11 deaths have been reported from this rare but deadly disease. Two people tested negative in Germany this week.`\
 https://nytimes.com/2024/10/03/health/marburg-virus-disease.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/03/dining/sometimes-the-best-restaurant-is-inside-th
 **Joel Fleishman, Influential Expert on Philanthropy, Dies at 90**\
 `Officially, he was an authority on nonprofit foundations. Unofficially, he was an unparalleled networker among the nation’s rich and powerful.`\
 https://nytimes.com/2024/10/03/us/joel-fleishman-dead.html
-
-**Jay J. Armes, Private Eye With a Superhero Story, Dies at 92**\
-`With steel hooks for hands and a flamboyant personality, Mr. Armes captured the attention — and scrutiny — of reporters across the nation.`\
-https://nytimes.com/2024/10/03/us/jay-j-armes-dead.html
-
-**No, Immigration Isn’t Raising Your Rent**\
-`This is not the world according to JD Vance.`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/immigration-rent-increase
 
