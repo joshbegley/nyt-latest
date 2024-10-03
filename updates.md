@@ -1,3 +1,7 @@
+**Bruce Springsteen Endorses Kamala Harris for President**\
+`The rock star has long aligned himself with Democrats and been critical of former President Donald J. Trump.`\
+https://nytimes.com/2024/10/03/us/politics/bruce-springsteen-kamala-harris-endorsement.html
+
 **Friday Briefing: Israel Expands Evacuation Orders in Lebanon**\
 `Plus, paying countries to protect trees.`\
 https://nytimes.com/2024/10/03/briefing/lebanon-trump-hiv.html
