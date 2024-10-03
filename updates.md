@@ -1,3 +1,11 @@
+**Five hosts hoping to stage 2029 Women's Euros**\
+`Five potential hosts have expressed an interest in staging the Women&#8217;s European Championship in 2029, according to the competition&#8217;s organisers UEFA.`\
+https://nytimes.com/athletic/5815385/2024/10/03/2029-womens-european-championship-hosts/
+
+**Melania Trump Makes a Politically Calculated Pitch for Abortion Rights**\
+`In a video ahead of the release of her book, the former first lady called “individual freedom” an “essential right that all women possess,” asking, “What does my body, my choice really mean?”`\
+https://nytimes.com/2024/10/03/us/politics/melania-trump-abortion-rights-video.html
+
 **Israel has sent troops from five army divisions to support the Lebanon invasion, officials say.**\
 `By Aryn Baker`\
 https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israel-has-sent-troops-from-five-army-divisions-to-support-the-lebanon-invasion-officials-say
