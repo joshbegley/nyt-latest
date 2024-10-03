@@ -1,3 +1,11 @@
+**Five hosts hoping to stage 2029 Women's Euros**\
+`Five potential hosts have expressed an interest in staging the Women&#8217;s European Championship in 2029, according to the competition&#8217;s organisers UEFA.`\
+https://nytimes.com/athletic/5815385/2024/10/03/2029-womens-european-championship-hosts/
+
+**Melania Trump Makes a Politically Calculated Pitch for Abortion Rights**\
+`In a video ahead of the release of her book, the former first lady called “individual freedom” an “essential right that all women possess,” asking, “What does my body, my choice really mean?”`\
+https://nytimes.com/2024/10/03/us/politics/melania-trump-abortion-rights-video.html
+
 **Israel has sent troops from five army divisions to support the Lebanon invasion, officials say.**\
 `By Aryn Baker`\
 https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israel-has-sent-troops-from-five-army-divisions-to-support-the-lebanon-invasion-officials-say
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5812607/2024/10/03/ali-krieger-white-house-uswnt-go
 **‘They Can’t Survive Too Long’: The Union Leader Who Shut Down the Ports**\
 `Harold J. Daggett is seeking big raises for longshoremen on the East and Gulf Coasts who have fallen behind workers on the West Coast.`\
 https://nytimes.com/2024/10/03/business/economy/port-strike-union-leader-harold-daggett.html
-
-**Team owners on Michael Jordan's legal fight with NASCAR: It's 'going to be wild'**\
-`NASCAR's other Cup Series team owners seem content to let 23XI and Front Row duke it out with NASCAR while hoping for a positive outcome.`\
-https://nytimes.com/athletic/5814043/2024/10/03/michael-jordan-nascar-lawsuit-team-owners-reaction/
-
-**Kane Wommack's trust paid off against Georgia**\
-`Wommack's defense had some good and bad moments in Alabama's win over Georgia, and he's already focused on improving the unit.`\
-https://nytimes.com/athletic/5814651/2024/10/03/alabama-defense-kane-wommack/
 
