@@ -1,3 +1,7 @@
+**Trump, Vance and the Jan. 6 Case**\
+`Readers respond to the special counsel Jack Smith’s filing. Also: The pain of IUD insertions; food and the environment; A.I. and the patient.`\
+https://nytimes.com/2024/10/03/opinion/trump-vance-jan-6.html
+
 **‘Rust’ Western Will Premiere in Europe 3 Years After Fatal Shooting**\
 `After the Alec Baldwin movie turned into the scene of a tragedy with the death of its cinematographer, the film will debut next month at a festival that celebrates cinematography.`\
 https://nytimes.com/2024/10/03/movies/rust-premiere-camerimage-halyna-hutchins.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5815285/2024/10/03/notre-dame-basketball-jalen-hara
 **Timberwolves still see themselves as contenders after trading Karl-Anthony Towns**\
 `The pieces they received in return have the Wolves confident that they can still be a contender in the Western Conference.`\
 https://nytimes.com/athletic/5814638/2024/10/03/timberwolves-contenders-trading-karl-anthony-towns/
-
-**U.S. Faces Economic Turbulence Just as Recession Fears Eased**\
-`War in the Middle East, a strike by port workers and a devastating hurricane have injected uncertainty into the U.S. economy.`\
-https://nytimes.com/2024/10/03/us/politics/us-economy-inflation-port-strike-helene-israel.html
 
