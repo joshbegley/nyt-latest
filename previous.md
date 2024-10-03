@@ -1,3 +1,27 @@
+**Foreign Governments Are Evacuating Their Citizens From Lebanon**\
+`Several countries have chartered flights, while others issued warnings and offered assistance.`\
+https://nytimes.com/2024/10/03/world/middleeast/lebanon-evacuations-flights-countries.html
+
+**State of the Twins' payroll: Does the front office have any offseason spending room?**\
+`With almost $100 million in guaranteed deals and many arbitration cases, will ownership basically force the Twins to trade core players?`\
+https://nytimes.com/athletic/5809110/2024/10/03/minnesota-twins-payroll-offseason-moves/
+
+**Reading Barca's accounts - and why a '€12m profit' is actually a €91m loss**\
+`Barca's most recent set of accounts shows some positives — but there are problems on the horizon`\
+https://nytimes.com/athletic/5812694/2024/10/03/barcelona-finances-dani-olmo-la-liga-registration/
+
+**Why Sean Payton may be facing his most important game as Broncos coach vs. Raiders**\
+`The Broncos flipped their season by winning back-to-back road games as big underdogs. Now, they must end an ignominious streak.`\
+https://nytimes.com/athletic/5813063/2024/10/03/broncos-sean-payton-losing-streak-raiders/
+
+**Dave Roberts knows that for the Dodgers, it's title or bust: 'It's expected'**\
+`Roberts takes high expectations as a compliment: "I'm not too concerned about job security. I just want to win another championship."`\
+https://nytimes.com/athletic/5814477/2024/10/03/dodgers-dave-roberts-mlb-postseason/
+
+**The Blues have made changes to their power play. Will the results follow?**\
+`The Blues finished 24th in the NHL on the power play in 2024-25 and hope a few tweaks will help them improve significantly.`\
+https://nytimes.com/athletic/5810232/2024/10/03/blues-power-play-changes/
+
 **LeBrun: Should the NHL preseason be shorter? How it could work and what top execs say**\
 `Recent injuries raised a familiar question: Why in 2024 is the NHL still holding onto this ritual of playing so many preseason games?`\
 https://nytimes.com/athletic/5813829/2024/10/03/nhl-preseason-shorter-execs/
@@ -14,28 +38,4 @@ https://nytimes.com/athletic/5811903/2024/10/03/nfl-london-games-analysis-arriva
 **‘Blink’ Review: The Last Things They May See**\
 `In this travel documentary, two parents take their children on a spectacular world tour before a rare genetic condition may cause blindness.`\
 https://nytimes.com/2024/10/03/movies/blink-review.html
-
-**‘Daaaaaalí!’ Review: Keeping It Surreal**\
-`The French absurdist director Quentin Dupieux did not make a biopic of Salvador Dalí — he adopted the Surrealist painter’s approach to deliver a particularly loopy tale.`\
-https://nytimes.com/2024/10/03/movies/daaaaaali-review.html
-
-**U.K. to Return Chagos Islands to Mauritius, Ending Colonial-Era Dispute**\
-`After years of legal wrangling and negotiations, Britain said it would surrender sovereignty of the archipelago in the Indian Ocean.`\
-https://nytimes.com/2024/10/03/world/europe/uk-chagos-islands-mauritius.html
-
-**College football Week 6 oddly specific predictions: Cam Ward and Miami will solve the Calgorithm**\
-`Will Missouri's offense get on track at Texas A&M? Who will win the rematch of last year's national title game?`\
-https://nytimes.com/athletic/5812811/2024/10/03/college-football-predictions-week-6-miami-cal-tennessee-arkansas/
-
-**Carlos Alcaraz and Jannik Sinner go head-to-head in their own tennis galaxy**\
-`The two best men's tennis players in the world are elevating each other to heights as absurd as they are watchable`\
-https://nytimes.com/athletic/5812516/2024/10/03/alcaraz-sinner-head-to-head-rivalry/
-
-**Solanke in England squad but Rogers, Maguire left out**\
-`Tottenham Hotspur striker Dominic Solanke has been called up to the England squad for the first time in seven years.`\
-https://nytimes.com/athletic/5814827/2024/10/03/england-squad-solanke-rogers-maguire/
-
-**How Trump Could Punish His Enemies**\
-`We look at why legal experts are concerned.`\
-https://nytimes.com/2024/10/03/briefing/how-trump-could-punish-his-enemies.html
 
