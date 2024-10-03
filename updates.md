@@ -1,3 +1,7 @@
+**Trump, Vance and the Jan. 6 Case**\
+`Readers respond to the special counsel Jack Smith’s filing. Also: The pain of IUD insertions; food and the environment; A.I. and the patient.`\
+https://nytimes.com/2024/10/03/opinion/trump-vance-jan-6.html
+
 **‘Rust’ Western Will Premiere in Europe 3 Years After Fatal Shooting**\
 `After the Alec Baldwin movie turned into the scene of a tragedy with the death of its cinematographer, the film will debut next month at a festival that celebrates cinematography.`\
 https://nytimes.com/2024/10/03/movies/rust-premiere-camerimage-halyna-hutchins.html
