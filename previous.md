@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5813363/2024/10/03/erik-ten-hag-jim-ratcliffe-manch
 `The Padres, even without Musgrove, will have Dylan Cease and Yu Darvish on ample rest for the Dodgers in the NLDS.`\
 https://nytimes.com/athletic/5813388/2024/10/03/padres-joe-musgrove-wild-card/
 
-**What's going wrong at Real Madrid right now - and how much does it matter?**\
+**What's going wrong at Real Madrid right now – and how much does it matter?**\
 `Carlo Ancelotti's side lost for the first time since January, but problem signs have been building for a while`\
 https://nytimes.com/athletic/5814676/2024/10/03/real-madrid-champions-league-lille-problems/
 

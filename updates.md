@@ -1,3 +1,7 @@
+**What's going wrong at Real Madrid right now – and how much does it matter?**\
+`Carlo Ancelotti's side lost for the first time since January, but problem signs have been building for a while`\
+https://nytimes.com/athletic/5814676/2024/10/03/real-madrid-champions-league-lille-problems/
+
 **Another Death in Childbirth at a Troubled Brooklyn Hospital**\
 `After the death of a 24-year-old woman, Woodhull Hospital could face questions, for the third time since 2020, about the safety of its labor and delivery floor.`\
 https://nytimes.com/2024/10/03/nyregion/woodhull-hospital-childbirth-death.html
