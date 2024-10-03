@@ -1,3 +1,7 @@
+**Joel Fleishman, Influential Expert on Philanthropy, Dies at 90**\
+`Officially, he was an authority on nonprofit foundations. Unofficially, he was an unparalleled networker among the nation’s rich and powerful.`\
+https://nytimes.com/2024/10/03/us/joel-fleishman-dead.html
+
 **Jay J. Armes, Private Eye With a Superhero Story, Dies at 92**\
 `With steel hooks for hands and a flamboyant personality, Mr. Armes captured the attention — and scrutiny — of reporters across the nation.`\
 https://nytimes.com/2024/10/03/us/jay-j-armes-dead.html
