@@ -3,7 +3,7 @@
 https://nytimes.com/2024/10/03/us/politics/tina-peters-sentence-colorado.html
 
 **A Storied Luxury Liner May Soon Find New Life on the Florida Seafloor**\
-`The S.S. United States, one of the fastest ships to ever cross the Atlantic Ocean,  may be sunk off the coast and turned into a habitat to marine life as the world’s largest artificial reef.`\
+`The S.S. United States, one of the fastest ships to ever cross the Atlantic Ocean, may be sunk off the coast and turned into a habitat to marine life as the world’s largest artificial reef.`\
 https://nytimes.com/2024/10/03/us/ss-united-states-largest-artificial-reef.html
 
 **8 New Books We Recommend This Week**\
