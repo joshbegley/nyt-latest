@@ -1,3 +1,11 @@
+**Knicks' Karl-Anthony Towns, Tom Thibodeau and a second chance at marriage**\
+`After a once strained relationship, Karl-Anthony Towns and Tom Thibodeau's paths have crossed again. `\
+https://nytimes.com/athletic/5813572/2024/10/03/karl-anthony-towns-tom-thibodeau-knicks-trade-roster/
+
+**Senators Urge D.O.J. to Hold Boeing Executives Accountable for Safety Violations Amid Ongoing Crises**\
+`In a letter, Democratic Senators Elizabeth Warren of Massachusetts and Richard Blumenthal of Connecticut criticized the Justice Department after continued incidents with Boeing planes.`\
+https://nytimes.com/2024/10/03/us/politics/senators-doj-boeing-letter.html
+
 **Southern States Try to Minimize Voting Disruptions After Hurricane Helene**\
 `Florida’s governor plans to sign an executive order giving election officials in 13 counties greater flexibility in administering early and absentee voting.`\
 https://nytimes.com/2024/10/03/us/politics/southern-states-early-voting-helene.html
