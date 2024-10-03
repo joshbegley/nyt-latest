@@ -1,3 +1,19 @@
+**‘Rust’ Western Will Premiere in Europe 3 Years After Fatal Shooting**\
+`After the Alec Baldwin movie turned into the scene of a tragedy with the death of its cinematographer, the film will debut next month at a festival that celebrates cinematography.`\
+https://nytimes.com/2024/10/03/movies/rust-premiere-camerimage-halyna-hutchins.html
+
+**Helene Knocked Out a Key Facility for Monitoring the Global Climate**\
+`The National Centers for Environmental Information in Asheville, N.C., sweep together data from around the world to help track Earth’s warming.`\
+https://nytimes.com/2024/10/03/climate/asheville-noaa-center.html
+
+**The American People Are Now Trump’s Jury**\
+`We have no other choice.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/donald-trump-jack-smith
+
+**Champions League projections: All the talking points from Matchday 2**\
+`Brest, Bayer Leverkusen and Aston Villa are all on the rise but how much has defeat in Lille hurt Real Madrid?`\
+https://nytimes.com/athletic/5815702/2024/10/03/champions-league-projections-matchday-2-talking-points/
+
 **U.S. Faces Economic Turbulence Just as Recession Fears Eased**\
 `War in the Middle East, a strike by port workers and a devastating hurricane have injected uncertainty into the U.S. economy.`\
 https://nytimes.com/2024/10/03/us/politics/us-economy-inflation-port-strike-helene-israel.html
