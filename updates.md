@@ -1,3 +1,7 @@
+**A Rom-Com About Brain Cancer? Leave It to Sophie Kinsella.**\
+`The author of “Confessions of a Shopaholic” packs love, laughter and a harrowing real-life health ordeal into a 133-page novella.`\
+https://nytimes.com/2024/10/03/books/what-does-it-feel-like-sophie-kinsella.html
+
 **Best and worst moments from Amazon's new NHL docuseries**\
 `From Connor McDavid's tirade to Matthew Tkachuk's joy, here's what we learned from the new six-part series.`\
 https://nytimes.com/athletic/5812721/2024/10/03/amazon-faceoff-inside-the-nhl-documentary/
