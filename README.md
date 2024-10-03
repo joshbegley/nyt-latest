@@ -1,4 +1,4 @@
-**Federal Judge Clears a Path for Part of Biden’s Student Loan Plan**\
+**Federal Judge Clears Path for Part of Biden’s Student Loan Plan**\
 `The ruling by a judge in Georgia could be just a temporary reprieve for the plan, which still faces legal challenges in another state.`\
 https://nytimes.com/2024/10/03/us/politics/biden-student-loan-debt-georgia.html
 
