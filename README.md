@@ -1,3 +1,7 @@
+**Broja targeting Everton debut in mid-November**\
+`Armando Broja is hoping to make his first appearance for Everton next month after stepping up his recovery from an Achilles injury.`\
+https://nytimes.com/athletic/5814961/2024/10/03/armando-broja-injury-everton/
+
 **Phillips opens up on impact of Guardiola’s ‘overweight’ comment**\
 `Kalvin Phillips has revealed he was left frustrated over Pep Guardiola’s remarks about his weight during his time at Manchester City.`\
 https://nytimes.com/athletic/5814886/2024/10/03/kalvin-phillips-overweight-pep-guardiola/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5813829/2024/10/03/nhl-preseason-shorter-execs/
 `Can Cale Makar regain his Norris-winning form? Is anyone capable of challenging Auston Matthews in the Rocket Richard race?
 `\
 https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
-
-**NFL London Games: Does day of arrival matter - and how do trips impact rest of season?**\
-`The NFL London Games kick off again at the weekend — different teams take different approaches to their travel`\
-https://nytimes.com/athletic/5811903/2024/10/03/nfl-london-games-analysis-arrival/
 
