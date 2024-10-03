@@ -1,3 +1,11 @@
+**Israeli planes target Nasrallah’s likely successor with huge strikes near Beirut.**\
+`Explosions rocked the Lebanese capital around midnight on Thursday as Israel conducted an airstrike, which officials said targeted a meeting of senior Hezbollah leaders in an underground bunker.`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israeli-planes-nasrallah-beirut
+
+**An Israeli airstrike kills at least 18 people in the West Bank.**\
+`By Aaron Boxerman and Ephrat Livni`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/an-israeli-airstrike-kills-at-least-18-people-in-the-west-bank
+
 **A Recipe for a Striving America**\
 `The question is not whether to do industrial policy, but how.`\
 https://nytimes.com/2024/10/03/opinion/industry-policy-manufacturing.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/03/reader-center/a-new-chapter-for-the-times-app.htm
 **Until Saturday: Who's on upset watch? Plus, our Week 6 viewer guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Week 6 viewer guide.`\
 https://nytimes.com/athletic/5814955/2024/10/03/college-football-week-6-until-saturday/
-
-**Israeli strikes killed 99 over 24 hours in Gaza, health officials say, one of the highest tolls in months.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israeli-strikes-killed-99-over-24-hours-gaza-health-officials-say-one-of-the-highest-tolls-in-months
-
-**Ten Hag defends Rashford substitution: 'We have to rotate'**\
-`Erik ten Hag says Marcus Rashford was substituted at half time during Manchester United&#8217;s Europa League draw with Porto to keep him &#8220;fit and fresh&#8221; for their Premier League match against Aston Villa on Sunday.`\
-https://nytimes.com/athletic/5816564/2024/10/03/marcus-rashford-ten-hag/
 
