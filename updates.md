@@ -1,3 +1,7 @@
+**The Climate Fix: Solutions for a Warming World**\
+`In our new weekly series, we’re covering the vast amount of investment, ingenuity and scientific expertise going toward stopping climate change.`\
+https://nytimes.com/2024/10/03/climate/the-climate-fix-solutions-for-a-warming-world.html
+
 **Aid Is Slow to Reach Some Latino Areas in Storm-Hit North Carolina**\
 `Language and other barriers are hobbling the flow of assistance to hard-hit communities where affordable housing drew growing numbers of Hispanic migrants.`\
 https://nytimes.com/2024/10/03/us/helene-north-carolina-latino-swannanoa.html
