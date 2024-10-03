@@ -1,3 +1,7 @@
+**Gravenberch was not Liverpool's Plan A for the No 6 role but he is making it his own**\
+`The Dutch midfielder was on the periphery last season but is quickly making himself an essential part of the team in his new No 6 role`\
+https://nytimes.com/athletic/5813971/2024/10/03/ryan-gravenberch-liverpool-bologna/
+
 **Former Singapore Minister Gets 1 Year in Prison in Rare Graft Case**\
 `The sentence for S. Iswaran, the former transportation minister who pleaded guilty last week, was longer than what prosecutors had sought.`\
 https://nytimes.com/2024/10/03/world/asia/singapore-iswaran-jail.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5798909/2024/10/03/pascal-struijk-leeds-united-anal
 **Ex-Wrexham players on their 1984 win vs Porto: 'The whole ground fell silent. Total silence'**\
 `What was like to beat European giants Porto - from a kung-fu winner to the stadium bar being closed early`\
 https://nytimes.com/athletic/5747616/2024/10/03/wrexham-porto-1984-europe/
-
-**FPL: What to do when you have a bad gameweek**\
-`Gameweek 6 was one to forget for plenty of FPL managers, so what are the pitfalls to avoid when attempting to recover from a bad score?`\
-https://nytimes.com/athletic/5807627/2024/10/03/fantasy-premier-league-bad-gameweek-advice-tips/
 
