@@ -1,3 +1,7 @@
+**Fantasy football rankings Week 5: Sleepers, starts, projections and more**\
+`Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
+https://nytimes.com/athletic/5811078/2024/10/03/fantasy-football-rankings-week-5-sleepers-projections-starts/
+
 **Former County Clerk Gets 9 Years in Prison for Tampering With Voting Machines**\
 `Tina Peters, the former clerk of Mesa County, Colo., had tried to prove that the machines had been used to rig the 2020 election against former President Donald J. Trump.`\
 https://nytimes.com/2024/10/03/us/politics/tina-peters-sentence-colorado.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/technology/openai-credit-line.html
 **Can I Use an Expired Covid Test?**\
 `The expiration date listed on the box might not be accurate. Here’s what to know.`\
 https://nytimes.com/2024/10/03/well/expired-covid-test.html
-
-**Knicks' Karl-Anthony Towns, Tom Thibodeau and a second chance**\
-`After a once strained relationship, Karl-Anthony Towns and Tom Thibodeau's paths have crossed again. `\
-https://nytimes.com/athletic/5813572/2024/10/03/karl-anthony-towns-tom-thibodeau-knicks-trade-roster/
 
