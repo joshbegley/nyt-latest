@@ -1,3 +1,11 @@
+**What's going wrong at Real Madrid right now - and how much does it matter?**\
+`Carlo Ancelotti's side lost for the first time since January, but problem signs have been building for a while`\
+https://nytimes.com/athletic/5814676/2024/10/03/real-madrid-champions-league-lille-problems/
+
+**Bologna targeted the Conference League but are now relishing 'legendary' Champions League nights**\
+`Bologna did not expect to be in Europe's premier club competition but they held their own at Anfield, even in defeat against Liverpool`\
+https://nytimes.com/athletic/5813952/2024/10/03/bologna-liverpool-champions-league/
+
 **Max Fried makes a painful exit, Braves swept by Padres in Wild Card Series**\
 `Another injury played a role in the Braves' demise, but players understood all they'd overcome: “Definitely can’t be too mad at the finish."`\
 https://nytimes.com/athletic/5814668/2024/10/03/max-fried-makes-a-painful-exit-braves-swept-by-padres-in-wild-card-series/
