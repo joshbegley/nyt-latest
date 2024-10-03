@@ -1,3 +1,7 @@
+**‘They Can’t Survive Too Long’: The Union Leader Who Shut Down the Ports**\
+`Harold J. Daggett is seeking big raises for longshoremen on the East and Gulf Coasts who have fallen behind workers on the West Coast.`\
+https://nytimes.com/2024/10/03/business/economy/port-strike-union-leader-harold-daggett.html
+
 **Team owners on Michael Jordan's legal fight with NASCAR: It's 'going to be wild'**\
 `NASCAR's other Cup Series team owners seem content to let 23XI and Front Row duke it out with NASCAR while hoping for a positive outcome.`\
 https://nytimes.com/athletic/5814043/2024/10/03/michael-jordan-nascar-lawsuit-team-owners-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5812721/2024/10/03/amazon-faceoff-inside-the-nhl-do
 **Jeremy Swayman discloses doubt over Bruins future in Amazon's NHL series — 'Is this the last time?'**\
 `In the series "FACEOFF: Inside the NHL," Swayman also discussed the chip on his shoulder left by last offseason's arbitration hearing.`\
 https://nytimes.com/athletic/5812844/2024/10/03/jeremy-swayman-contract-amazon-series/
-
-**How the Golden State Valkyries marketing themselves as the new WNBA expansion franchise**\
-`Golden State's president said the team is aiming to make a profit in the first year.`\
-https://nytimes.com/athletic/5809654/2024/10/03/golden-state-valkyries-wnba-expansion-marketing/
 

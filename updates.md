@@ -1,3 +1,7 @@
+**‘They Can’t Survive Too Long’: The Union Leader Who Shut Down the Ports**\
+`Harold J. Daggett is seeking big raises for longshoremen on the East and Gulf Coasts who have fallen behind workers on the West Coast.`\
+https://nytimes.com/2024/10/03/business/economy/port-strike-union-leader-harold-daggett.html
+
 **Team owners on Michael Jordan's legal fight with NASCAR: It's 'going to be wild'**\
 `NASCAR's other Cup Series team owners seem content to let 23XI and Front Row duke it out with NASCAR while hoping for a positive outcome.`\
 https://nytimes.com/athletic/5814043/2024/10/03/michael-jordan-nascar-lawsuit-team-owners-reaction/
