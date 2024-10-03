@@ -1,3 +1,7 @@
+**What to Know About the Marburg Virus Disease Outbreak**\
+`In Rwanda, 11 deaths have been reported from this rare but deadly disease. Two people tested negative in Germany this week.`\
+https://nytimes.com/2024/10/03/health/marburg-virus-disease.html
+
 **Firefighters Union Declines to Endorse a Presidential Candidate**\
 `The International Association of Fire Fighters was one of the first unions to endorse Joe Biden in 2020. In 2024, its board voted not to endorse at all.`\
 https://nytimes.com/2024/10/03/us/politics/firefighter-union-endorsement.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/us/jay-j-armes-dead.html
 **No, Immigration Isn’t Raising Your Rent**\
 `This is not the world according to JD Vance.`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/immigration-rent-increase
-
-**Fantasy football rankings Week 5: Sleepers, starts, projections and more**\
-`Jake Ciely shares his fantasy football rankings for Week 5, and explains why he likes Colts receiver Josh Downs no matter who his QB is.`\
-https://nytimes.com/athletic/5811078/2024/10/03/fantasy-football-rankings-week-5-sleepers-projections-starts/
 
