@@ -1,3 +1,15 @@
+**Mounjaro and Zepbound Are No Longer in Shortage, F.D.A. Says**\
+`The announcement will expand access to the diabetes and weight-loss drugs. But it will also complicate the future of compounded versions of the medications.`\
+https://nytimes.com/2024/10/03/well/mounjaro-zepbound-shortage-compounded-tirzepatide.html
+
+**Masamitsu Yoshioka, Last Pearl Harbor Bombardier, Dies at 106**\
+`He was 23 years old when he took part in the attack that triggered America’s declaration of war against Japan. He rarely spoke publicly about it.`\
+https://nytimes.com/2024/10/03/world/asia/masamitsu-yoshioka-dies.html
+
+**Why was Conor McGregor on the pitch at Arsenal?**\
+`What was the story behind one of the more curious social media viral clips of the season so far?`\
+https://nytimes.com/athletic/5815552/2024/10/03/why-was-conor-mcgregor-on-the-pitch-at-arsenal/
+
 **‘Joker: Folie à Deux’ Review: Make ‘Em Laugh (and Yawn)**\
 `Todd Phillips’s “Joker” sequel stars Joaquin Phoenix and Lady Gaga who sing and dance like crazy kids, but the movie is seriously un-fun.`\
 https://nytimes.com/2024/10/03/movies/joker-folie-a-deux-review.html
