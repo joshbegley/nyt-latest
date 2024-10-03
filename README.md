@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5814082/2024/10/02/travis-hunter-heisman-kalen-debo
 https://nytimes.com/2024/10/02/nyregion/campaign-treasurer-brooklyn-fraud-scheme.html
 
 **Tigers' Andy Ibáñez kept believing and became baseball's latest unlikely playoff hero**\
-`For all the moments in which the Tigers looked failure in the eye and refused to concede, none were bigger than Ibáñez's game-changing hit. `\
+`For all the moments in which the Tigers looked failure in the eye and refused to concede, none was bigger than Ibáñez's game-changing hit. `\
 https://nytimes.com/athletic/5814073/2024/10/02/andy-ibanez-detroit-tigers-playoff-hero/
 
 **Lahaina Inferno Emerged From Smoldering Remnants of Quelled Fire**\
