@@ -2,7 +2,7 @@
 `Welcome to Until Saturday, the five-star college football newsletter: Week 6 viewer guide.`\
 https://nytimes.com/athletic/5814955/2024/10/03/college-football-week-6-until-saturday/
 
-**Israeli strikes killed 99 over 24 hours, Gaza health officials say, one of the highest tolls in months.**\
+**Israeli strikes killed 99 over 24 hours in Gaza, health officials say, one of the highest tolls in months.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israeli-strikes-killed-99-over-24-hours-gaza-health-officials-say-one-of-the-highest-tolls-in-months
 
@@ -10,8 +10,8 @@ https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israeli-
 `Erik ten Hag says Marcus Rashford was substituted at half time during Manchester United&#8217;s Europa League draw with Porto to keep him &#8220;fit and fresh&#8221; for their Premier League match against Aston Villa on Sunday.`\
 https://nytimes.com/athletic/5816564/2024/10/03/marcus-rashford-ten-hag/
 
-**3 Former Officers Found Guilty of Cover-Up in Tyre Nichols’s Death**\
-`The former officers were acquitted of the most serious charge in the case — violating Mr. Nichols’s civil rights by causing his death.`\
+**3 Former Officers Acquitted of Most Serious Charge in Tyre Nichols’s Death**\
+`The former officers were found guilty of witness tampering but not of the charge that would have held them responsible for causing his death.`\
 https://nytimes.com/2024/10/03/us/tyre-nichols-verdict.html
 
 **10-Minute Challenge: A Finished, Unfinished Portrait by Alice Neel**\
