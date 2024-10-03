@@ -18,7 +18,7 @@ https://nytimes.com/2024/10/03/us/politics/bruce-springsteen-kamala-harris-endor
 `Plus, paying countries to protect trees.`\
 https://nytimes.com/2024/10/03/briefing/lebanon-trump-hiv.html
 
-**The Briefing - Porto 3 Man Utd 3: Defensive horror show? What happened to trusted lieutenants?**\
+**The Briefing - Porto 3 Man United 3: Defensive horror show? What happened to trusted lieutenants?**\
 `A dramatic game saw Manchester United manage a 3-3 draw against Porto in the Europa League`\
 https://nytimes.com/athletic/5808860/2024/10/03/porto-manchester-united-result-report-analysis/
 
