@@ -1,3 +1,15 @@
+**What Travelers Need to Know About Hard-Hit North Carolina**\
+`Airbnb and Vrbo have activated emergency cancellation policies in the western part of the state and other areas of the Southeast affected by the deadly hurricane.`\
+https://nytimes.com/2024/10/03/travel/helene-rental-properties-asheville.html
+
+**NWSL fines Angel City FC for salary cap violation**\
+`The NWSL also deducted three points from Angel City’s 2024 standings, pushing the club even further from the playoff line.`\
+https://nytimes.com/athletic/5816876/2024/10/03/angel-city-fc-fine-salary-cap-violation/
+
+**Port Union Agrees to Suspend Strike**\
+`The International Longshoremen’s Association received a new wage offer and will halt its walkout at East and Gulf Coast ports, which began Tuesday.`\
+https://nytimes.com/2024/10/03/business/economy/port-strike-suspended.html
+
 **A New Chapter for the Times App**\
 `Today we’re updating our app to make it easier than ever to find everything you want to read and engage with.`\
 https://nytimes.com/2024/10/03/reader-center/a-new-chapter-for-the-times-app.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/03/us/tyre-nichols-verdict.html
 **10-Minute Challenge: A Finished, Unfinished Portrait by Alice Neel**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2024/10/03/upshot/ten-minute-challenge-neel.html
-
-**Big Ten commish Tony Petitti outlines the importance of partnership with the SEC**\
-`Ahead of the Big Ten and SEC's upcoming meeting in Nashville, Petitti says scheduling and Playoff format are up for discussion.`\
-https://nytimes.com/athletic/5816668/2024/10/03/big-ten-sec-college-football-playoff-scheduling/
-
-**At the Debate, JD Vance Put a Lifetime of Spin to Use**\
-`Mr. Vance sanded down Donald Trump’s edges the way he often sharpens attacks for rally crowds — picking the facts that can deliver the most impact and discarding the rest.`\
-https://nytimes.com/2024/10/03/us/politics/vance-trumpism-analysis.html
-
-**Diamondbacks fire pitching coach Brent Strom**\
-`The D-Backs' pitching staff finished 27th in ERA and WHIP in a season where they fell just short of the postseason.`\
-https://nytimes.com/athletic/5816706/2024/10/03/diamondbacks-fire-pitching-coach-brent-strom-source/
 
