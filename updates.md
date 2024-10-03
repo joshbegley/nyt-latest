@@ -1,3 +1,7 @@
+**Mbappe out of France squad for Nations League games**\
+`Real Madrid forward Kylian Mbappe has been left out of France&#8217;s squad for their upcoming Nations League fixtures later this month.`\
+https://nytimes.com/athletic/5814967/2024/10/03/kylian-mbappe-france-nations-league/
+
 **Juventus' Bremer sustains ACL injury, set to undergo surgery**\
 `Juventus defender Gleison Bremer is set for an extended spell on the sidelines after injuring the anterior cruciate ligament in his left knee.`\
 https://nytimes.com/athletic/5815009/2024/10/03/juventus-gleison-bremer-injury/
