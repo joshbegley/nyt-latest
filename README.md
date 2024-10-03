@@ -1,3 +1,7 @@
+**FA charges Forest owner Marinakis with misconduct**\
+`The Football Association (FA) has charged Nottingham Forest owner Evangelos Marinakis with misconduct.`\
+https://nytimes.com/athletic/5816129/2024/10/03/nottingham-forest-marinakis-fa-charge/
+
 **The Climate Fix: Solutions for a Warming World**\
 `In a new weekly feature of our Climate Forward newsletter, we’re covering the vast amount of investment, ingenuity and scientific expertise that are going toward stopping climate change.`\
 https://nytimes.com/2024/10/03/business/the-climate-fix-solutions-for-a-warming-world.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5815995/2024/10/03/alex-bregman-astros-offseason-pl
 **You’re Due for a Colonoscopy, but What if You Don’t Want It?**\
 `Doctors can provide alternative forms of screening for colon and rectal cancer but sometimes have a good reason to stick with the colonoscope.`\
 https://nytimes.com/article/colonoscopy-alternative-colon-cancer-screening.html
-
-**People in central Beirut survey damage from an airstrike.**\
-`By Hwaida Saad`\
-https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/people-in-central-beirut-survey-damage-from-an-airstrike
 
