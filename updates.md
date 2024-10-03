@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
 `\
 https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
 
+**NHL 2024-25 awards predictions: Staff picks for Calder, Rocket Richard, Hart and more**\
+`Can Cale Makar regain his Norris-winning form? Is anyone capable of challenging Auston Matthews in the Rocket Richard race?
+`\
+https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
+
 **LeBrun: Should the NHL preseason be shorter? How it could work and what top execs say**\
 `Recent injuries raised a familiar question: Why in 2024 is the NHL still holding onto this ritual of playing so many preseason games?`\
 https://nytimes.com/athletic/5813829/2024/10/03/nhl-preseason-shorter-execs/
