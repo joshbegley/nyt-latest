@@ -43,6 +43,11 @@ https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
 `\
 https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
 
+**NHL 2024-25 awards predictions: Staff picks for Calder, Rocket Richard, Hart and more**\
+`Can Cale Makar regain his Norris-winning form? Is anyone capable of challenging Auston Matthews in the Rocket Richard race?
+`\
+https://nytimes.com/athletic/5811315/2024/10/03/nhl-awards-predictions-2024-25/
+
 **Broja targeting Everton debut in mid-November**\
 `Armando Broja is hoping to make his first appearance for Everton next month after stepping up his recovery from an Achilles injury.`\
 https://nytimes.com/athletic/5814961/2024/10/03/armando-broja-injury-everton/
