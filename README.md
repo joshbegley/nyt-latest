@@ -1,3 +1,7 @@
+**From One Nonagenarian Artist to Another, a Tip of the Hat**\
+`Alex Katz admired a Mark di Suvero sculpture and gave it to the Brooklyn Museum. It now has pride of place in the museum’s 200th anniversary celebration.`\
+https://nytimes.com/2024/10/03/arts/alex-katz-mark-di-suvero-sculpture-brooklyn-museum.html
+
 **NFL best bets Week 5: Patience is key when injuries and tight lines are involved**\
 `Austin Mock had to wait for the right spots, but he has a pair of best bets for NFL Week 5.`\
 https://nytimes.com/athletic/5813066/2024/10/03/nfl-best-bets-week-5-buccaneers-bengals/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/arts/design/brooklyn-museum-200-art-collection.ht
 **3 Poets Who See Society Freaking Out, and Respond in Kind**\
 `New collections from Alexandra Teague, Daniel Borzutzky and August Kleinzahler tap into a strain of cultural anxiety.`\
 https://nytimes.com/2024/10/03/books/review/new-poetry-alexandra-teague-daniel-borzutzky-august-kleinzahler.html
-
-**What James Ensor Knew About the Masks We Wear**\
-`Seventy-five years after the artist’s death, the grotesque masquerades he painted aren’t so far from the manipulated faces of the present day.`\
-https://nytimes.com/2024/10/03/arts/design/james-ensor-masks.html
 
