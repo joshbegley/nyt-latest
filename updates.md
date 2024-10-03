@@ -1,3 +1,7 @@
+**Carlos Alcaraz and Jannik Sinner go head-to-head in their own tennis galaxy**\
+`The two best men's tennis players in the world are elevating each other to heights as absurd as they are watchable`\
+https://nytimes.com/athletic/5812516/2024/10/03/alcaraz-sinner-head-to-head-rivalry/
+
 **Solanke in England squad but Rogers, Maguire left out**\
 `Tottenham Hotspur striker Dominic Solanke has been called up to the England squad for the first time in seven years.`\
 https://nytimes.com/athletic/5814827/2024/10/03/england-squad-solanke-rogers-maguire/
