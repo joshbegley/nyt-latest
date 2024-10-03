@@ -1,3 +1,11 @@
+**Until Saturday: Who's on upset watch? Plus, our Week 6 viewer guide**\
+`Welcome to Until Saturday, the five-star college football newsletter: Week 6 viewer guide.`\
+https://nytimes.com/athletic/5814955/2024/10/03/college-football-week-6-until-saturday/
+
+**Israeli strikes killed 99 over 24 hours, Gaza health officials say, one of the highest tolls in months.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israeli-strikes-killed-99-over-24-hours-gaza-health-officials-say-one-of-the-highest-tolls-in-months
+
 **Ten Hag defends Rashford substitution: 'We have to rotate'**\
 `Erik ten Hag says Marcus Rashford was substituted at half time during Manchester United&#8217;s Europa League draw with Porto to keep him &#8220;fit and fresh&#8221; for their Premier League match against Aston Villa on Sunday.`\
 https://nytimes.com/athletic/5816564/2024/10/03/marcus-rashford-ten-hag/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5816706/2024/10/03/diamondbacks-fire-pitching-coach
 **Biden Promised Federal Support for Survivors of Helene**\
 `Also, Liz Cheney is campaigning tonight with Kamala Harris. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/10/03/briefing/biden-hurricane-helene-liz-cheney-harris.html
-
-**How 2 Offhand Remarks by Biden Caused Waves in the Markets and the Middle East**\
-`The president’s casual disclosures underscored the power of his words — and how quickly they travel.`\
-https://nytimes.com/2024/10/03/us/politics/biden-oil-markets-middle-east.html
-
-**Trump Saw 2020 Election Results as an Obstacle, Not an Outcome**\
-`A court filing offers insight into his thinking and makes it hard to see him accepting another loss.`\
-https://nytimes.com/2024/10/03/us/politics/trump-2020-election-results.html
 

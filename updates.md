@@ -1,3 +1,11 @@
+**Until Saturday: Who's on upset watch? Plus, our Week 6 viewer guide**\
+`Welcome to Until Saturday, the five-star college football newsletter: Week 6 viewer guide.`\
+https://nytimes.com/athletic/5814955/2024/10/03/college-football-week-6-until-saturday/
+
+**Israeli strikes killed 99 over 24 hours, Gaza health officials say, one of the highest tolls in months.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israeli-strikes-killed-99-over-24-hours-gaza-health-officials-say-one-of-the-highest-tolls-in-months
+
 **3 Former Officers Found Guilty of Cover-Up in Tyre Nichols’s Death**\
 `The former officers were acquitted of the most serious charge in the case — violating Mr. Nichols’s civil rights by causing his death.`\
 https://nytimes.com/2024/10/03/us/tyre-nichols-verdict.html
