@@ -1,3 +1,7 @@
+**The Union Leader Behind the Ports Strike**\
+`As president of the International Longshoremen’s Association, Harold Daggett is taking advantage of organized labor’s resurgence to drive a hard bargain.`\
+https://nytimes.com/2024/10/03/business/dealbook/harold-daggett-ila-union-port-strike.html
+
 **Has Travis Dermott done enough to crack a crowded Oilers defence?**\
 `Dermott had his best game of the preseason in Wednesday's 6-2 loss to Seattle, but an already crowded Oilers blue line means he's in tough.`\
 https://nytimes.com/athletic/5814723/2024/10/03/edmonton-oilers-travis-dermott-defense/
