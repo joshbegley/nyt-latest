@@ -1,3 +1,7 @@
+**College football Week 6 oddly specific predictions: Cam Ward and Miami will solve the Calgorithm**\
+`Will Missouri's offense get on track at Texas A&M? Who will win the rematch of last year's national title game?`\
+https://nytimes.com/athletic/5812811/2024/10/03/college-football-predictions-week-6-miami-cal-tennessee-arkansas/
+
 **Carlos Alcaraz and Jannik Sinner go head-to-head in their own tennis galaxy**\
 `The two best men's tennis players in the world are elevating each other to heights as absurd as they are watchable`\
 https://nytimes.com/athletic/5812516/2024/10/03/alcaraz-sinner-head-to-head-rivalry/
