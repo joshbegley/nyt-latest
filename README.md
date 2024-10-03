@@ -1,3 +1,11 @@
+**The Windup: A pair of shocking wild-card sweeps**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5815657/2024/10/03/tigers-royals-wild-card-mlb-playoffs-the-windup/
+
+**Betting for (by) dummies: Vikings to beat Rodgers, the Steelers to bounce back and more**\
+`Jon Greenberg and Zac Jackson look at their favorite betting plays for the football weekend ahead, including both college and the NFL.`\
+https://nytimes.com/athletic/5815586/2024/10/03/betting-picks-nfl-college-football-vikings-steelers/
+
 **Davante Adams trade roundtable: Experts discuss best, worst fantasy-related landing spots**\
 `The Athletic fantasy football experts weigh in on best, worst landing spots for Davante Adams should he be traded in the near future.`\
 https://nytimes.com/athletic/5814460/2024/10/03/fantasy-football-dvanate-adams-trade-scenarios/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/03/movies/joker-folie-a-deux-review.html
 **Opposition filed against NCAA, power conferences' anitrust settlement**\
 `The filing argues the damages portion of the settlement is too low and restrictions placed on booster-funded NIL collectives are unfair.`\
 https://nytimes.com/athletic/5815367/2024/10/03/ncaa-power-conference-antitrust-opposition/
-
-**From One Nonagenarian Artist to Another, a Tip of the Hat**\
-`Alex Katz admired a Mark di Suvero sculpture and gave it to the Brooklyn Museum. It now has pride of place in the museum’s 200th anniversary celebration.`\
-https://nytimes.com/2024/10/03/arts/alex-katz-mark-di-suvero-sculpture-brooklyn-museum.html
-
-**NFL best bets Week 5: Patience is key when injuries and tight lines are involved**\
-`Austin Mock had to wait for the right spots, but he has a pair of best bets for NFL Week 5.`\
-https://nytimes.com/athletic/5813066/2024/10/03/nfl-best-bets-week-5-buccaneers-bengals/
 
