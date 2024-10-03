@@ -1,3 +1,15 @@
+**OpenAI Adds $4 Billion Credit Line on Top of $6.6 Billion Investment Round**\
+`The San Francisco company is gathering the billions its executives believe they will need to continue building new A.I. technology.`\
+https://nytimes.com/2024/10/03/technology/openai-credit-line.html
+
+**Can I Use an Expired Covid Test?**\
+`The expiration date listed on the box might not be accurate. Here’s what to know.`\
+https://nytimes.com/2024/10/03/well/expired-covid-test.html
+
+**Knicks' Karl-Anthony Towns, Tom Thibodeau and a second chance**\
+`After a once strained relationship, Karl-Anthony Towns and Tom Thibodeau's paths have crossed again. `\
+https://nytimes.com/athletic/5813572/2024/10/03/karl-anthony-towns-tom-thibodeau-knicks-trade-roster/
+
 **Senators Urge Justice Department to Hold Boeing Executives Accountable for Safety Violations**\
 `In a letter, Democratic Senators Elizabeth Warren of Massachusetts and Richard Blumenthal of Connecticut criticized the Justice Department after continued incidents with Boeing planes.`\
 https://nytimes.com/2024/10/03/us/politics/senators-doj-boeing-letter.html
