@@ -1,3 +1,7 @@
+**3 Former Officers Found Guilty of Cover-Up in Tyre Nichols’s Death**\
+`The former officers were acquitted of the most serious charge in the case — violating Mr. Nichols’s civil rights by causing his death.`\
+https://nytimes.com/2024/10/03/us/tyre-nichols-verdict.html
+
 **Ten Hag defends Rashford substitution: 'We have to rotate'**\
 `Erik ten Hag says Marcus Rashford was substituted at half time during Manchester United&#8217;s Europa League draw with Porto to keep him &#8220;fit and fresh&#8221; for their Premier League match against Aston Villa on Sunday.`\
 https://nytimes.com/athletic/5816564/2024/10/03/marcus-rashford-ten-hag/
