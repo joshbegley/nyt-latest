@@ -1,3 +1,19 @@
+**Best and worst moments from Amazon's new NHL docuseries**\
+`From Connor McDavid's tirade to Matthew Tkachuk's joy, here's what we learned from the new six-part series.`\
+https://nytimes.com/athletic/5812721/2024/10/03/amazon-faceoff-inside-the-nhl-documentary/
+
+**Jeremy Swayman discloses doubt over Bruins future in Amazon's NHL series — 'Is this the last time?'**\
+`In the series "FACEOFF: Inside the NHL," Swayman also discussed the chip on his shoulder left by last offseason's arbitration hearing.`\
+https://nytimes.com/athletic/5812844/2024/10/03/jeremy-swayman-contract-amazon-series/
+
+**How the Golden State Valkyries marketing themselves as the new WNBA expansion franchise**\
+`Golden State's president said the team is aiming to make a profit in the first year.`\
+https://nytimes.com/athletic/5809654/2024/10/03/golden-state-valkyries-wnba-expansion-marketing/
+
+**A super PAC for House Democrats raised a record $69 million last month.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/10/03/us/trump-harris-election/house-majority-pac-fundraising
+
 **Has Travis Dermott done enough to crack a crowded Oilers defence?**\
 `Dermott had his best game of the preseason in Wednesday's 6-2 loss to Seattle, but an already crowded Oilers blue line means he's in tough.`\
 https://nytimes.com/athletic/5814723/2024/10/03/edmonton-oilers-travis-dermott-defense/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5814642/2024/10/03/ohio-state-iowa-preview-predicti
 **The Union Leader Behind the Ports Strike**\
 `As president of the International Longshoremen’s Association, Harold Daggett is taking advantage of organized labor’s resurgence to drive a hard bargain.`\
 https://nytimes.com/2024/10/03/business/dealbook/harold-daggett-ila-union-port-strike.html
-
-**Mbappe out of France squad for Nations League games**\
-`Real Madrid forward Kylian Mbappe has been left out of France&#8217;s squad for their upcoming Nations League fixtures later this month.`\
-https://nytimes.com/athletic/5814967/2024/10/03/kylian-mbappe-france-nations-league/
-
-**Juventus' Bremer sustains ACL injury, set to undergo surgery**\
-`Juventus defender Gleison Bremer is set for an extended spell on the sidelines after injuring the anterior cruciate ligament in his left knee.`\
-https://nytimes.com/athletic/5815009/2024/10/03/juventus-gleison-bremer-injury/
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/10/03/us/trump-harris-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Harris and Trump Head to Battleground States**\
-`Vice President Kamala Harris will travel to the symbolic birthplace of the Republican Party to appear with Liz Cheney, the highest-profile Republican to endorse her.`\
-https://nytimes.com/live/2024/10/03/us/trump-harris-election
 
