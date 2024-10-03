@@ -1,3 +1,15 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane/here-is-the-latest-on-the-storm
+
+**Tropical Storm Leslie Forms in the Atlantic**\
+`The storm is one of two churning in the Atlantic. Though powerful, neither is a threat to land right now.`\
+https://nytimes.com/live/2024/10/02/weather/tropical-storm-leslie-hurricane
+
+**Pitching to Bobby Witt Jr. in big spots is a risky play — Just ask the Orioles**\
+`The Orioles faced a dilemma every time Witt came to the plate in a big moment. They chose to attack him, and each time it backfired. `\
+https://nytimes.com/athletic/5814419/2024/10/02/bobby-witt-jr-royals-orioles-risks/
+
 **Mexican Military Fatally Shoots Six Migrants**\
 `The country’s defense ministry said the military officers who opened fire might have mistaken the migrants for cartel members.`\
 https://nytimes.com/2024/10/02/world/americas/mexico-fatal-shooting-migrants.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5814325/2024/10/02/joe-musrove-exits-early-san-dieg
 **Leaf Maker**\
 `Rena Cohen makes her New York Times Crossword debut, and that’s the truth.`\
 https://nytimes.com/2024/10/02/crosswords/daily-puzzle-2024-10-03.html
-
-**Padres chase Braves' Max Fried from game early**\
-`Fried was pulled after two innings with the Braves facing elimination.`\
-https://nytimes.com/athletic/5814285/2024/10/02/max-fried-atlanta-braves-nl-wild-card-series/
-
-**Travis Hunter for Heisman? Coach of the year so far? September superlatives**\
-`Bruce Feldman, Stewart Mandel and newcomer Ralph Russo pick their September Heisman, most surprising teams and coach of the year so far.`\
-https://nytimes.com/athletic/5814082/2024/10/02/travis-hunter-heisman-kalen-deboer-alabama-usc-lsu-ohio-state-georgia/
-
-**Treasurer for Little-Known Brooklyn Candidate Is Charged in Fraud Scheme**\
-`Erlene King sent thousands of dollars to associates and told them to distribute the funds to others who would then donate to the campaign she worked for, federal prosecutors said.`\
-https://nytimes.com/2024/10/02/nyregion/campaign-treasurer-brooklyn-fraud-scheme.html
 
