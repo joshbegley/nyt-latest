@@ -1,3 +1,7 @@
+**Putin Keeps Threatening to Use Nuclear Weapons. Would He?**\
+`Last week the president of Russia appeared to lower the threshold for his country’s use of nuclear weapons. It wasn’t subtle, and it wasn’t meant to be.`\
+https://nytimes.com/2024/10/03/opinion/putin-russia-nuclear-weapons.html
+
 **With Game 3 looming, so is the possibility of Pete Alonso's final appearance as a Met**\
 `"I don’t really want to think about that at all," Alonso said after Game 2. "I want to think about winning the game tomorrow."`\
 https://nytimes.com/athletic/5814565/2024/10/03/pete-alonso-mets-brewers-wild-card/
