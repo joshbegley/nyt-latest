@@ -2,8 +2,8 @@
 `Five potential hosts have expressed an interest in staging the Women&#8217;s European Championship in 2029, according to the competition&#8217;s organisers UEFA.`\
 https://nytimes.com/athletic/5815385/2024/10/03/2029-womens-european-championship-hosts/
 
-**Melania Trump Makes a Politically Calculated Pitch for Abortion Rights**\
-`In a video ahead of the release of her book, the former first lady called “individual freedom” an “essential right that all women possess,” asking, “What does my body, my choice really mean?”`\
+**Melania Trump, Whose Husband Helped End Roe, Signals Support for Abortion Rights**\
+`As Donald Trump tries to muddy his anti-abortion position, his wife released a video calling “individual freedom” an “essential right that all women possess,” asking, “What does my body, my choice really mean?”`\
 https://nytimes.com/2024/10/03/us/politics/melania-trump-abortion-rights-video.html
 
 **Israel has sent troops from five army divisions to support the Lebanon invasion, officials say.**\
