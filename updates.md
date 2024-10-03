@@ -1,3 +1,11 @@
+**Teenagers on What Has Shaped Their Political Beliefs and Values**\
+`Ahead of the 2024 Election, we invited teens to explore their political identities and tell us how they have come to believe what they believe.`\
+https://nytimes.com/2024/10/03/learning/teenagers-on-what-has-shaped-their-political-beliefs-and-values.html
+
+**An Israeli airstrike kills at least 18 people in the West Bank.**\
+`By Aaron Boxerman and Ephrat Livni`\
+https://nytimes.com/2024/10/03/world/middleeast/israel-airstrike-west-bank-tulkarm.html
+
 **Who is Hashem Safieddine, the latest Hezbollah official targeted by Israel?**\
 `By Ephrat Livni`\
 https://nytimes.com/2024/10/03/world/middleeast/hashem-safieddine-hezbollah-leader.html

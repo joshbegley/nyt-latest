@@ -1,3 +1,7 @@
+**Teenagers on What Has Shaped Their Political Beliefs and Values**\
+`Ahead of the 2024 Election, we invited teens to explore their political identities and tell us how they have come to believe what they believe.`\
+https://nytimes.com/2024/10/03/learning/teenagers-on-what-has-shaped-their-political-beliefs-and-values.html
+
 **Who is Hashem Safieddine, the latest Hezbollah official targeted by Israel?**\
 `By Ephrat Livni`\
 https://nytimes.com/2024/10/03/world/middleeast/hashem-safieddine-hezbollah-leader.html
@@ -8,7 +12,7 @@ https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israeli-
 
 **An Israeli airstrike kills at least 18 people in the West Bank.**\
 `By Aaron Boxerman and Ephrat Livni`\
-https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/an-israeli-airstrike-kills-at-least-18-people-in-the-west-bank
+https://nytimes.com/2024/10/03/world/middleeast/israel-airstrike-west-bank-tulkarm.html
 
 **A Recipe for a Striving America**\
 `The question is not whether to do industrial policy, but how.`\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5816876/2024/10/03/angel-city-fc-fine-salary-cap-vi
 **Port Union Agrees to Suspend Strike**\
 `The International Longshoremen’s Association received a new wage offer and will halt its walkout at East and Gulf Coast ports, which began Tuesday.`\
 https://nytimes.com/2024/10/03/business/economy/port-strike-suspended.html
-
-**A New Chapter for the Times App**\
-`Today we’re updating our app to make it easier than ever to find everything you want to read and engage with.`\
-https://nytimes.com/2024/10/03/reader-center/a-new-chapter-for-the-times-app.html
 
