@@ -1,3 +1,19 @@
+**Best and worst moments from Amazon's new NHL docuseries**\
+`From Connor McDavid's tirade to Matthew Tkachuk's joy, here's what we learned from the new six-part series.`\
+https://nytimes.com/athletic/5812721/2024/10/03/amazon-faceoff-inside-the-nhl-documentary/
+
+**Jeremy Swayman discloses doubt over Bruins future in Amazon's NHL series — 'Is this the last time?'**\
+`In the series "FACEOFF: Inside the NHL," Swayman also discussed the chip on his shoulder left by last offseason's arbitration hearing.`\
+https://nytimes.com/athletic/5812844/2024/10/03/jeremy-swayman-contract-amazon-series/
+
+**How the Golden State Valkyries marketing themselves as the new WNBA expansion franchise**\
+`Golden State's president said the team is aiming to make a profit in the first year.`\
+https://nytimes.com/athletic/5809654/2024/10/03/golden-state-valkyries-wnba-expansion-marketing/
+
+**A super PAC for House Democrats raised a record $69 million last month.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/10/03/us/trump-harris-election/house-majority-pac-fundraising
+
 **The Union Leader Behind the Ports Strike**\
 `As president of the International Longshoremen’s Association, Harold Daggett is taking advantage of organized labor’s resurgence to drive a hard bargain.`\
 https://nytimes.com/2024/10/03/business/dealbook/harold-daggett-ila-union-port-strike.html
