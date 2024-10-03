@@ -1,3 +1,7 @@
+**The Union Leader Behind the Ports Strike**\
+`As president of the International Longshoremen’s Association, Harold Daggett is taking advantage of organized labor’s resurgence to drive a hard bargain.`\
+https://nytimes.com/2024/10/03/business/dealbook/the-union-leader-behind-the-ports-strike.html
+
 **Mbappe out of France squad for Nations League games**\
 `Real Madrid forward Kylian Mbappe has been left out of France&#8217;s squad for their upcoming Nations League fixtures later this month.`\
 https://nytimes.com/athletic/5814967/2024/10/03/kylian-mbappe-france-nations-league/
