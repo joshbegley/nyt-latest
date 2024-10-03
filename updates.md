@@ -1,4 +1,8 @@
 **Padres chase Braves' Max Fried from game early**\
+`Fried was pulled after two innings with the Braves facing elimination.`\
+https://nytimes.com/athletic/5814285/2024/10/02/max-fried-atlanta-braves-nl-wild-card-series/
+
+**Padres chase Braves' Max Fried from game early**\
 `SAN DIEGO — The second time, Max Fried’s Houdini act fell apart.`\
 https://nytimes.com/athletic/5814285/2024/10/02/max-fried-atlanta-braves-nl-wild-card-series/
 
