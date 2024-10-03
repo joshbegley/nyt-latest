@@ -1,3 +1,15 @@
+**Friday Briefing: Israel Expands Evacuation Orders in Lebanon**\
+`Plus, paying countries to protect trees.`\
+https://nytimes.com/2024/10/03/briefing/lebanon-trump-hiv.html
+
+**The Briefing - Porto 3 Man Utd 3: Defensive horror show? What happened to trusted lieutenants?**\
+`A dramatic game saw Manchester United manage a 3-3 draw against Porto in the Europa League`\
+https://nytimes.com/athletic/5808860/2024/10/03/porto-manchester-united-result-report-analysis/
+
+**Garth Brooks Is Accused of Rape and Assault in Lawsuit**\
+`A woman who worked as a hair and makeup stylist for the country superstar says he subjected her to repeated advances. Mr. Brooks did not immediately respond to the allegations.`\
+https://nytimes.com/2024/10/03/arts/music/garth-brooks-rape-assault-lawsuit.html
+
 **Raiders' Antonio Pierce receives significant 8-year NCAA penalty**\
 `NCAA infractions committee determined Pierce “knowingly and blatantly” disregarded and violated recruiting rules during the pandemic.`\
 https://nytimes.com/athletic/5815906/2024/10/03/antonio-pierce-ncaa-penalty-asu/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/03/health/marburg-virus-disease.html
 **Firefighters Union Declines to Endorse a Presidential Candidate**\
 `The International Association of Fire Fighters was one of the first unions to endorse Joe Biden in 2020. In 2024, its board voted not to endorse at all.`\
 https://nytimes.com/2024/10/03/us/politics/firefighter-union-endorsement.html
-
-**Orioles GM Mike Elias knows his club needs to change. It's just a matter of how much**\
-`Elias said he might have prioritized pitching too much and will have to approach the trade deadline differently in future seasons.`\
-https://nytimes.com/athletic/5816395/2024/10/03/orioles-mike-elias-season-ending-news-conference/
-
-**The Briefing: Ferencvaros 1 Tottenham 2: Selection satisfaction, Moore excels, and where should Gray play?**\
-`A youthful Tottenham side became the first English team to beat Ferencvaros in Budapest since Leeds prevailed there in 1969`\
-https://nytimes.com/athletic/5808853/2024/10/03/ferencvaros-tottenham-moore-gray-bergvall-briefing/
-
-**Filing in Trump Election Case Fleshes Out Roles of a Sprawling Cast**\
-`Donald Trump is the only defendant in the special counsel’s case that charges him with a plot to remain in power after his 2020 loss. But a newly unsealed brief provides fresh details about many other figures.`\
-https://nytimes.com/2024/10/03/us/politics/trump-jan-6-jack-smith-brief.html
 
