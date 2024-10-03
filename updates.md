@@ -1,3 +1,15 @@
+**2 Killed as Typhoon Krathon Drenches Taiwan Before Landfall**\
+`Heavy rain has caused landslides and floods. The authorities have evacuated nearly 10,000 people and closed schools and offices for a second day.`\
+https://nytimes.com/2024/10/03/world/asia/typhoon-krathon-taiwan-rain.html
+
+**Has Struijk proven himself to be Leeds United's most important player?**\
+`Pascal Struijk has impressed for Leeds after missing a big chunk of last season through injury issues`\
+https://nytimes.com/athletic/5798909/2024/10/03/pascal-struijk-leeds-united-analysis/
+
+**Ex-Wrexham players on their 1984 win vs Porto: 'The whole ground fell silent. Total silence'**\
+`What was like to beat European giants Porto - from a kung-fu winner to the stadium bar being closed early`\
+https://nytimes.com/athletic/5747616/2024/10/03/wrexham-porto-1984-europe/
+
 **FPL: What to do when you have a bad gameweek**\
 `Gameweek 6 was one to forget for plenty of FPL managers, so what are the pitfalls to avoid when attempting to recover from a bad score?`\
 https://nytimes.com/athletic/5807627/2024/10/03/fantasy-premier-league-bad-gameweek-advice-tips/
