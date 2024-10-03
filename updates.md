@@ -1,3 +1,7 @@
+**A New Chapter for the Times App**\
+`Today we’re updating our app to make it easier than ever to find everything you want to read and engage with.`\
+https://nytimes.com/2024/10/03/reader-center/a-new-chapter-for-the-times-app.html
+
 **Israeli strikes killed 99 over 24 hours in Gaza, health officials say, one of the highest tolls in months.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israeli-strikes-killed-99-over-24-hours-gaza-health-officials-say-one-of-the-highest-tolls-in-months
