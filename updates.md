@@ -1,3 +1,7 @@
+**Gravenberch was not Liverpool's Plan A for the No 6 role but he is making it his own**\
+`The Dutch midfielder was on the periphery last season but is quickly making himself an essential part of the team in his new No 6 role`\
+https://nytimes.com/athletic/5813971/2024/10/03/ryan-gravenberch-liverpool-bologna/
+
 **Former Singapore Minister Gets 1 Year in Prison in Rare Graft Case**\
 `The sentence for S. Iswaran, the former transportation minister who pleaded guilty last week, was longer than what prosecutors had sought.`\
 https://nytimes.com/2024/10/03/world/asia/singapore-iswaran-jail.html
