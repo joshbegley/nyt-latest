@@ -1,3 +1,7 @@
+**The Climate Fix: Solutions for a Warming World**\
+`In our new weekly series, we’re covering the vast amount of investment, ingenuity and scientific expertise going toward stopping climate change.`\
+https://nytimes.com/2024/10/03/climate/the-climate-fix-solutions-for-a-warming-world.html
+
 **Aid Is Slow to Reach Some Latino Areas in Storm-Hit North Carolina**\
 `Language and other barriers are hobbling the flow of assistance to hard-hit communities where affordable housing drew growing numbers of Hispanic migrants.`\
 https://nytimes.com/2024/10/03/us/helene-north-carolina-latino-swannanoa.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/people-i
 **Countries Evacuate Citizens From Lebanon Amid Israeli Airstrikes**\
 `Some governments chartered planes and secured seats on commercial flights for their citizens, warning people to leave Lebanon while Beirut’s international airport remains open.`\
 https://nytimes.com/video/world/middleeast/100000009739288/lebanon-israel-foreign-evacuations.html
-
-**The Bounce: Two forgotten actual title contenders**\
-`Welcome to The Bounce, The Athletic's daily NBA newsletter.`\
-https://nytimes.com/athletic/5815926/2024/10/03/bucks-suns-nba-title-karl-anthony-towns-the-bounce/
 
