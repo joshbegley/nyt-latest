@@ -1,3 +1,11 @@
+**With Game 3 looming, so is the possibility of Pete Alonso's final appearance as a Met**\
+`'I don’t really want to think about that at all,' Alonso said after Game 2. 'I want to think about winning the game tomorrow.'`\
+https://nytimes.com/athletic/5814565/2024/10/03/pete-alonso-mets-brewers-wild-card/
+
+**Thursday Briefing: Strikes Leave 6 Dead in Beirut**\
+`Plus, new evidence in the Trump election case.`\
+https://nytimes.com/2024/10/03/briefing/hezbollah-israel-trump-election-charges-ukraine.html
+
 **2 Killed as Typhoon Krathon Drenches Taiwan Before Landfall**\
 `Heavy rain has caused landslides and floods. The authorities have evacuated nearly 10,000 people and closed schools and offices for a second day.`\
 https://nytimes.com/2024/10/03/world/asia/typhoon-krathon-taiwan-rain.html
