@@ -1,3 +1,15 @@
+**Juventus' Bremer sustains ACL injury, set to undergo surgery**\
+`Juventus defender Gleison Bremer is set for an extended spell on the sidelines after injuring the anterior cruciate ligament in his left knee.`\
+https://nytimes.com/athletic/5815009/2024/10/03/juventus-gleison-bremer-injury/
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/03/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris and Trump Head to Battleground States**\
+`Vice President Kamala Harris will travel to the symbolic birthplace of the Republican Party to appear with Liz Cheney, the highest-profile Republican to endorse her.`\
+https://nytimes.com/live/2024/10/03/us/trump-harris-election
+
 **Israel warns residents to flee as it keeps up ground attacks in Lebanon.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israel-warns-residents-to-flee-as-it-keeps-up-ground-attacks-in-lebanon
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5814886/2024/10/03/kalvin-phillips-overweight-pep-g
 **Foreign Governments Are Evacuating Their Citizens From Lebanon**\
 `Several countries have chartered flights, while others issued warnings and offered assistance.`\
 https://nytimes.com/2024/10/03/world/middleeast/lebanon-evacuations-flights-countries.html
-
-**State of the Twins' payroll: Does the front office have any offseason spending room?**\
-`With almost $100 million in guaranteed deals and many arbitration cases, will ownership basically force the Twins to trade core players?`\
-https://nytimes.com/athletic/5809110/2024/10/03/minnesota-twins-payroll-offseason-moves/
-
-**Reading Barca's accounts - and why a '€12m profit' is actually a €91m loss**\
-`Barca's most recent set of accounts shows some positives — but there are problems on the horizon`\
-https://nytimes.com/athletic/5812694/2024/10/03/barcelona-finances-dani-olmo-la-liga-registration/
-
-**Why Sean Payton may be facing his most important game as Broncos coach vs. Raiders**\
-`The Broncos flipped their season by winning back-to-back road games as big underdogs. Now, they must end an ignominious streak.`\
-https://nytimes.com/athletic/5813063/2024/10/03/broncos-sean-payton-losing-streak-raiders/
 
