@@ -1,3 +1,15 @@
+**Brooklyn Museum at 200 Celebrates Beauty and Art’s Hidden History**\
+`A new American wing draws on feminist and racially and ethnically diverse thinking to spotlight 200 exceptional works in its collection.`\
+https://nytimes.com/2024/10/03/arts/design/brooklyn-museum-200-art-collection.html
+
+**3 Poets Who See Society Freaking Out, and Respond in Kind**\
+`New collections from Alexandra Teague, Daniel Borzutzky and August Kleinzahler tap into a strain of cultural anxiety.`\
+https://nytimes.com/2024/10/03/books/review/new-poetry-alexandra-teague-daniel-borzutzky-august-kleinzahler.html
+
+**What James Ensor Knew About the Masks We Wear**\
+`Seventy-five years after the artist’s death, the grotesque masquerades he painted aren’t so far from the manipulated faces of the present day.`\
+https://nytimes.com/2024/10/03/arts/design/james-ensor-masks.html
+
 **Melania Trump, Whose Husband Helped End Roe, Signals Support for Abortion Rights**\
 `As Donald Trump tries to muddy his anti-abortion position, his wife released a video calling “individual freedom” an “essential right that all women possess,” asking, “What does my body, my choice really mean?”`\
 https://nytimes.com/2024/10/03/us/politics/melania-trump-abortion-rights-video.html
