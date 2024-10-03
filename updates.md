@@ -1,3 +1,7 @@
+**Word of the Day: aphorism**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/03/learning/word-of-the-day-aphorism.html
+
 **Gravenberch was not Liverpool's Plan A for the No 6 role but he is making it his own**\
 `The Dutch midfielder was on the periphery last season but is quickly making himself an essential part of the team in his new No 6 role`\
 https://nytimes.com/athletic/5813971/2024/10/03/ryan-gravenberch-liverpool-bologna/

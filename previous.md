@@ -1,3 +1,7 @@
+**Word of the Day: aphorism**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/03/learning/word-of-the-day-aphorism.html
+
 **Gravenberch was not Liverpool's Plan A for the No 6 role but he is making it his own**\
 `The Dutch midfielder was on the periphery last season but is quickly making himself an essential part of the team in his new No 6 role`\
 https://nytimes.com/athletic/5813971/2024/10/03/ryan-gravenberch-liverpool-bologna/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/world/asia/typhoon-krathon-taiwan-rain.html
 **Has Struijk proven himself to be Leeds United's most important player?**\
 `Pascal Struijk has impressed for Leeds after missing a big chunk of last season through injury issues`\
 https://nytimes.com/athletic/5798909/2024/10/03/pascal-struijk-leeds-united-analysis/
-
-**Ex-Wrexham players on their 1984 win vs Porto: 'The whole ground fell silent. Total silence'**\
-`What was like to beat European giants Porto - from a kung-fu winner to the stadium bar being closed early`\
-https://nytimes.com/athletic/5747616/2024/10/03/wrexham-porto-1984-europe/
 
