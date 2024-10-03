@@ -1,3 +1,11 @@
+**NFL best bets Week 5: Patience is key when injuries and tight lines are involved**\
+`Austin Mock had to wait for the right spots, but he has a pair of best bets for NFL Week 5.`\
+https://nytimes.com/athletic/5813066/2024/10/03/nfl-best-bets-week-5-buccaneers-bengals/
+
+**Trump Says He Would Try Again to Revoke Haitian Immigrants’ Protections**\
+`He again disparaged Haitians in Springfield, Ohio, and said he would end their legal status in the country and send them back. His first attempt to do that failed.`\
+https://nytimes.com/2024/10/03/us/politics/trump-haitian-immigrants-legal-status.html
+
 **What to See in N.Y.C. Galleries in October**\
 `This week in Newly Reviewed, Martha Schwendener covers Dennis Kardon’s wonderfully strange paintings, Klara Liden’s green vistas and Sheryl Sutton’s mesmerizing movements.`\
 https://nytimes.com/2024/10/03/arts/design/nyc-galleries-october.html
@@ -25,16 +33,4 @@ https://nytimes.com/2024/10/03/books/review/new-poetry-alexandra-teague-daniel-b
 **What James Ensor Knew About the Masks We Wear**\
 `Seventy-five years after the artist’s death, the grotesque masquerades he painted aren’t so far from the manipulated faces of the present day.`\
 https://nytimes.com/2024/10/03/arts/design/james-ensor-masks.html
-
-**Five hosts hoping to stage 2029 Women's Euros**\
-`Five potential hosts have expressed an interest in staging the Women&#8217;s European Championship in 2029, according to the competition&#8217;s organisers UEFA.`\
-https://nytimes.com/athletic/5815385/2024/10/03/2029-womens-european-championship-hosts/
-
-**Melania Trump, Whose Husband Helped End Roe, Signals Support for Abortion Rights**\
-`As Donald Trump tries to muddy his anti-abortion position, his wife released a video calling “individual freedom” an “essential right that all women possess,” asking, “What does my body, my choice really mean?”`\
-https://nytimes.com/2024/10/03/us/politics/melania-trump-abortion-rights-video.html
-
-**Israel has sent troops from five army divisions to support the Lebanon invasion, officials say.**\
-`By Aryn Baker`\
-https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israel-has-sent-troops-from-five-army-divisions-to-support-the-lebanon-invasion-officials-say
 
