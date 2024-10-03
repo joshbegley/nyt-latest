@@ -1,3 +1,7 @@
+**Can Kaleb Johnson, Iowa upset Will Howard, Ohio State?**\
+`What's on the line for Ohio State and Iowa in Saturday's Big Ten matchup? Let's take a look at the key players and matchups.`\
+https://nytimes.com/athletic/5814642/2024/10/03/ohio-state-iowa-preview-predictions-big-ten/
+
 **The Union Leader Behind the Ports Strike**\
 `As president of the International Longshoremen’s Association, Harold Daggett is taking advantage of organized labor’s resurgence to drive a hard bargain.`\
 https://nytimes.com/2024/10/03/business/dealbook/the-union-leader-behind-the-ports-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5814931/2024/10/03/barcelona-messi-champions-league
 **Yankees vs. Royals ALDS preview: Predictions, pitching matchups and more**\
 `Aaron Judge, Juan Soto and the Yankees face Bobby Witt Jr. and the Royals in a star-studded ALDS. Our writers preview the series. `\
 https://nytimes.com/athletic/5814867/2024/10/03/yankees-royals-2024-alds-preview-predictions/
-
-**Broja targeting Everton debut in mid-November**\
-`Armando Broja is hoping to make his first appearance for Everton next month after stepping up his recovery from an Achilles injury.`\
-https://nytimes.com/athletic/5814961/2024/10/03/armando-broja-injury-everton/
 
