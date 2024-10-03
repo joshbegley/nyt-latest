@@ -1,3 +1,7 @@
+**‘Joker: Folie à Deux’ Review: Make ‘Em Laugh (and Yawn)**\
+`Todd Phillip’s “Joker” sequel stars Joaquin Phoenix and Lady Gaga who sing and dance like crazy kids, but the movie is seriously un-fun.`\
+https://nytimes.com/2024/10/03/movies/joker-folie-a-deux-review.html
+
 **From One Nonagenarian Artist to Another, a Tip of the Hat**\
 `Alex Katz admired a Mark di Suvero sculpture and gave it to the Brooklyn Museum. It now has pride of place in the museum’s 200th anniversary celebration.`\
 https://nytimes.com/2024/10/03/arts/alex-katz-mark-di-suvero-sculpture-brooklyn-museum.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/nyregion/daniel-penny-chokehold-charge-subway-dea
 **Brooklyn Museum at 200 Celebrates Beauty and Art’s Hidden History**\
 `A new American wing draws on feminist and racially and ethnically diverse thinking to spotlight 200 exceptional works in its collection.`\
 https://nytimes.com/2024/10/03/arts/design/brooklyn-museum-200-art-collection.html
-
-**3 Poets Who See Society Freaking Out, and Respond in Kind**\
-`New collections from Alexandra Teague, Daniel Borzutzky and August Kleinzahler tap into a strain of cultural anxiety.`\
-https://nytimes.com/2024/10/03/books/review/new-poetry-alexandra-teague-daniel-borzutzky-august-kleinzahler.html
 
