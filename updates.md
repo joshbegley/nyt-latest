@@ -1,3 +1,7 @@
+**Inside a Trump Ad Saying Harris Will Raise Taxes and He Will Cut Them**\
+`A blunt argument hitting voters in the wallet, and a deceptive truncation of a quotation from The Times, pack a wallop.`\
+https://nytimes.com/2024/10/03/us/politics/trump-ad-harris-taxes.html
+
 **Golden Knights to get salary cap relief for Lehner's contract**\
 `Vegas will pay Lehner the $4.4 million in salary owed on his deal this season while no longer carrying his annual $5 million cap hit.`\
 https://nytimes.com/athletic/5815796/2024/10/03/vegas-golden-knights-lehner-settlement-cap/

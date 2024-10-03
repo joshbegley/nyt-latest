@@ -1,3 +1,7 @@
+**Inside a Trump Ad Saying Harris Will Raise Taxes and He Will Cut Them**\
+`A blunt argument hitting voters in the wallet, and a deceptive truncation of a quotation from The Times, pack a wallop.`\
+https://nytimes.com/2024/10/03/us/politics/trump-ad-harris-taxes.html
+
 **Golden Knights to get salary cap relief for Lehner's contract**\
 `Vegas will pay Lehner the $4.4 million in salary owed on his deal this season while no longer carrying his annual $5 million cap hit.`\
 https://nytimes.com/athletic/5815796/2024/10/03/vegas-golden-knights-lehner-settlement-cap/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/climate/asheville-noaa-center.html
 **The American People Are Now Trump’s Jury**\
 `We have no other choice.`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/donald-trump-jack-smith
-
-**Champions League projections: All the talking points from Matchday 2**\
-`Brest, Bayer Leverkusen and Aston Villa are all on the rise but how much has defeat in Lille hurt Real Madrid?`\
-https://nytimes.com/athletic/5815702/2024/10/03/champions-league-projections-matchday-2-talking-points/
 
