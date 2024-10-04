@@ -1,3 +1,11 @@
+**Jobs Report Adds to Economic Momentum for Harris**\
+`In recent weeks, reports have shown inflation slowing and the economy growing at a robust clip. The Federal Reserve has also cut interest rates, bringing mortgage rates down.`\
+https://nytimes.com/2024/10/04/business/jobs-report-harris-economy.html
+
+**The Job Market Is Chugging Along, Completing a Solid Economic Picture**\
+`After months of wobbling, a fresh jobs report showed that hiring and wage growth is strong, aligning with other robust economic data.`\
+https://nytimes.com/2024/10/04/business/job-market-hiring-wage.html
+
 **The Job Market Is Chugging, Completing a Solid Economic Picture**\
 `After months of wobbling, a fresh jobs report showed that hiring and wage growth is strong, aligning with other robust economic data.`\
 https://nytimes.com/2024/10/04/business/job-market-hiring-wage.html
