@@ -1,3 +1,19 @@
+**The Dollar Is Too Strong for America’s Own Good**\
+`Weakening the dollar is a good idea. How to do it is another question.`\
+https://nytimes.com/2024/10/04/opinion/dollar-exchange-richard-koo.html
+
+**‘Megalopolis’ and the Vexations of Decadence**\
+`A story that’s grist for big debates without necessarily being a good movie.`\
+https://nytimes.com/2024/10/04/opinion/coppola-megalopolis-decadence.html
+
+**I’m a Queer Man Who Had a Fling With Another Guy. Should His Girlfriend Be Told?**\
+`The magazine’s Ethicist columnist on who has the right and responsibility to reveal an affair.`\
+https://nytimes.com/2024/10/04/magazine/fling-girlfriend-reveal-ethics.html
+
+**Biden Will Allow Legal Status to Lapse for Migrants From 4 Countries**\
+`The decision comes as political pressure mounts to cut down on programs that allow migrants to stay in the United States temporarily, even without a visa or green card.`\
+https://nytimes.com/2024/10/04/us/politics/biden-will-allow-legal-status-to-lapse-for-migrants-from-4-countries.html
+
 **Jean Hanff Korelitz on ‘The Sequel’**\
 `The writer discusses her follow-up to her best-selling 2021 novel “The Plot.”`\
 https://nytimes.com/2024/10/04/books/review/podcast-jean-hanff-korelitz-interview.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/beirut-l
 **Pete Alonso's amazin', improbable October home run and a Mets comeback for the ages**\
 `Alonso just hit the most game-changing, series-changing home run in any winner-take-all baseball game ever played.`\
 https://nytimes.com/athletic/5818665/2024/10/04/pete-alonso-home-run-mets-brewers-history/
-
-**As Bird Flu Spreads, Two New Cases Diagnosed in California**\
-`Both patients were dairy workers whose illnesses were mild. Investigators are continuing to evaluate the contacts of a Missouri patient who had no exposure to animals.`\
-https://nytimes.com/2024/10/04/health/bird-flu-california-missouri.html
-
-**Syria and Russia remain silent on reported airstrikes on a weapons facility near a Russian base in Syria.**\
-`By Eve Sampson, Anton Troianovski, Aric Toler and Oleg Matsnev`\
-https://nytimes.com/2024/10/04/world/middleeast/israel-strikes-russian-airbase-syria.html
-
-**Disaster Funding Has Its Own Perils**\
-`Congressional leaders deferred a debate over sending federal money to respond to Hurricane Helene until after the election, delaying a potentially messy political fight.`\
-https://nytimes.com/2024/10/04/us/politics/congress-hurricane-helene-funding.html
-
-**Hurzeler defends Webster amid social media criticism over Chelsea mistake**\
-`Brighton &amp; Hove Albion head coach Fabian Hurzeler has hit back at social media criticism of Adam Webster after the centre-back&#8217;s mistake in the 4-2 defeat at Chelsea.`\
-https://nytimes.com/athletic/5818548/2024/10/04/fabian-hurzeler-defends-adam-webster/
 
