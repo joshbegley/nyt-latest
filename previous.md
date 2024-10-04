@@ -1,3 +1,7 @@
+**In Retrial, Man Convicted of Murder of Transgender Woman**\
+`Rasheen Everett strangled Amanda Gonzalez-Andujar in her Queens apartment. His 2013 conviction was thrown out because of a judge’s error.`\
+https://nytimes.com/2024/10/03/nyregion/retrial-murder-conviction-transgender-woman.html
+
 **3 Idaho Big-Game Guides Led Illegal Mountain Lion Hunts, U.S. Says**\
 `The three face federal charges for leading hunts as part of an unlicensed outfitting business separate from their employer, federal prosecutors said.`\
 https://nytimes.com/2024/10/03/us/hunting-guides-indictment-mountain-lions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/arts/menendez-brothers-district-attorney-los-ange
 **Israel Bombs Beirut Site, Targeting Presumed Successor to Slain Hezbollah Leader**\
 `The airstrikes were aimed at a meeting of senior Hezbollah leaders in an underground bunker early Friday, and targeted a cousin of Hassan Nasrallah.`\
 https://nytimes.com/2024/10/03/world/middleeast/israel-hezbollah-evacuations-lebanon.html
-
-**When John Amos Had Enough of the ‘Good Times’**\
-`The actor, whose death was announced this week, made it known he didn’t like the direction the hit show was going. His character was then killed off.`\
-https://nytimes.com/2024/10/03/arts/television/john-amos-good-times.html
 

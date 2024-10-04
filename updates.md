@@ -1,3 +1,7 @@
+**In Retrial, Man Convicted of Murder of Transgender Woman**\
+`Rasheen Everett strangled Amanda Gonzalez-Andujar in her Queens apartment. His 2013 conviction was thrown out because of a judge’s error.`\
+https://nytimes.com/2024/10/03/nyregion/retrial-murder-conviction-transgender-woman.html
+
 **3 Idaho Big-Game Guides Led Illegal Mountain Lion Hunts, U.S. Says**\
 `The three face federal charges for leading hunts as part of an unlicensed outfitting business separate from their employer, federal prosecutors said.`\
 https://nytimes.com/2024/10/03/us/hunting-guides-indictment-mountain-lions.html
