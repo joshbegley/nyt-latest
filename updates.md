@@ -1,3 +1,15 @@
+**Where Bears, Panthers stand 18 months after franchise-altering trade for both teams**\
+`The Bears have DJ Moore, Caleb Williams and more, while the Panthers have benched Bryce Young, the prize of the 2023 deal.`\
+https://nytimes.com/athletic/5816902/2024/10/04/bears-panthers-caleb-williams-bryce-young/
+
+**Dehner Jr.: Why so serious? Joe Burrow knows this critical moment falls on him**\
+`A team that struggled badly in the AFC North in 2023 gets its first shot at redemption Sunday vs. the Ravens and needs its QB at his best.`\
+https://nytimes.com/athletic/5816683/2024/10/04/joe-burrow-bengals-ravens-week-5/
+
+**With Commanders off to surprising start, how aggressive should they be on the trade market?**\
+`Washington could bolster its roster by adding a player such as WR Davante Adams. But should Adam Peters and company remain patient? `\
+https://nytimes.com/athletic/5813944/2024/10/04/commanders-davante-adams-trade-market/
+
 **World No. 1 Iga Swiatek splits with coach, withdraws from Wuhan WTA 1000**\
 `Iga Swiatek has parted ways with Tomasz Wiktorowski, with whom she won four of her five Grand Slam titles.`\
 https://nytimes.com/athletic/5817753/2024/10/04/iga-swiatek-coach-wuhan/
