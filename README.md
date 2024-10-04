@@ -1,3 +1,7 @@
+**Blue Jackets lose 2 important players to injuries as season opener nears**\
+`Captain Boone Jenner lost an edge during a practice drill and slammed into the boards.`\
+https://nytimes.com/athletic/5819237/2024/10/04/blue-jackets-injury-jenner-voronkov/
+
 **Without Aid, This Famine May Become One of History’s Worst**\
 `By Nicholas Kristof`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/sudan-famine-world-food-program
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/world/middleeast/biden-israel-iran-oil-strike.htm
 **Trump Falsely Promotes Endorsement From Banker Who Hasn’t Endorsed Him**\
 `As the campaign reaches its final month, the Republican nominee is intensifying his pattern of making false and outlandish statements.`\
 https://nytimes.com/2024/10/04/us/politics/trump-dimon-false-endorsement.html
-
-**Padres' Joe Musgrove unavailable for NLDS due to elbow injury**\
-`It's not known yet if Musgrove will return if the Padres advance, but they'll be without him for their Division Series against the Dodgers. `\
-https://nytimes.com/athletic/5819188/2024/10/04/padres-joe-musgrove-elbow-injury-nlds/
 
