@@ -1,3 +1,7 @@
+**Exploring Your Political Identity and Values: A How-To Guide for Our 2024 Coming of Age Contest**\
+`Four steps to figuring out what you want to say and how you would like to say it, with inspiration from 30 teen-created works across genres.`\
+https://nytimes.com/2024/10/04/learning/exploring-your-political-identity-and-values-a-how-to-guide-for-our-2024-coming-of-age-contest.html
+
 **Would You Want to Be a Child Star?**\
 `Jenna Ortega tells Times readers about the joys and the challenges of stardom at a young age. What can we learn from her experience?`\
 https://nytimes.com/2024/10/04/learning/would-you-want-to-be-a-child-star.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817769/2024/10/04/the-athletics-friday-football-qu
 **What I'm seeing from the Los Angeles Chargers: Ladd McConkey emerging as WR1**\
 `The Chargers remade their wide receivers group this offseason, and the rookie McConkey is emerging as Justin Herbert's trusted target.`\
 https://nytimes.com/athletic/5816814/2024/10/04/chargers-observations-ladd-mcconkey-poona-ford/
-
-**What I'm seeing from the Denver Broncos: Bo Nix's rare feat, O-line depth, TE issue**\
-`Nix last week became the Broncos' first rookie QB since 2009 to finish back-to-back games without an interception or a sack.`\
-https://nytimes.com/athletic/5815663/2024/10/04/denver-broncos-observations-bo-nix/
 
