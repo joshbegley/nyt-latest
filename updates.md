@@ -1,3 +1,11 @@
+**Trump Takes Aim at Legal Immigration**\
+`The former president and his allies, who often decry undocumented immigrants, are targeting programs that allow millions of people to enter the country lawfully.`\
+https://nytimes.com/2024/10/04/us/politics/trump-takes-aim-at-legal-immigration.html
+
+**Death Penalty, Nuclear Waste and More: Supreme Court Rounds Out Coming Term**\
+`Three cases all stem from the U.S. Court of Appeals for the Fifth Circuit, in New Orleans, which often finds itself to the right of the Supreme Court.`\
+https://nytimes.com/2024/10/04/us/politics/supreme-court-death-penalty-nuclear-waste-police-force.html
+
 **Harris Ad to Showcase Support of Liz Cheney and Other Republicans**\
 `Vice President Kamala Harris has been seeking to give Republicans who dislike the former president a permission structure to support her instead.`\
 https://nytimes.com/2024/10/04/us/politics/harris-ad-liz-cheney.html
