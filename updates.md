@@ -1,3 +1,15 @@
+**The Jobs Report Is Good News for the Fed**\
+`The data reversed recent signs of a labor market slowdown, probably taking away the argument for a big rate cut at the Federal Reserve’s next meeting.`\
+https://nytimes.com/2024/10/04/business/the-jobs-report-is-good-news-for-the-fed.html
+
+**Why the Bulls are bringing Joshua Primo into their organization**\
+`When Primo's name surfaces, as it did Thursday, it causes a visceral reaction. So why do the Bulls have interest in the 21-year-old guard?`\
+https://nytimes.com/athletic/5817503/2024/10/04/josh-primo-chicago-bulls-nba/
+
+**Premier League partner Sorare pleads not guilty to unlicensed gambling charges**\
+`Official Premier League partner Sorare today pleaded not guilty in court to providing unlicensed gambling facilities to consumers in the United Kingdom.`\
+https://nytimes.com/athletic/5796141/2024/10/04/sorare-premier-league-charge-gambling/
+
 **Wolves' Dawson in contention for Brentford trip; Bueno fit**\
 `Wolverhampton Wanderers could welcome back Craig Dawson for tomorrow’s Premier League trip to Brentford after the defender returned to training after illness.`\
 https://nytimes.com/athletic/5818095/2024/10/04/craig-dawson-injury-update-wolves/

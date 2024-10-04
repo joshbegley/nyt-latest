@@ -1,6 +1,18 @@
+**The Jobs Report Is Good News for the Fed**\
+`The data reversed recent signs of a labor market slowdown, probably taking away the argument for a big rate cut at the Federal Reserve’s next meeting.`\
+https://nytimes.com/2024/10/04/business/the-jobs-report-is-good-news-for-the-fed.html
+
+**Why the Bulls are bringing Joshua Primo into their organization**\
+`When Primo's name surfaces, as it did Thursday, it causes a visceral reaction. So why do the Bulls have interest in the 21-year-old guard?`\
+https://nytimes.com/athletic/5817503/2024/10/04/josh-primo-chicago-bulls-nba/
+
 **Wolves' Dawson in contention for Brentford trip; Bueno fit**\
 `Wolverhampton Wanderers could welcome back Craig Dawson for tomorrow’s Premier League trip to Brentford after the defender returned to training after illness.`\
 https://nytimes.com/athletic/5818095/2024/10/04/craig-dawson-injury-update-wolves/
+
+**Premier League partner Sorare pleads not guilty to unlicensed gambling charges**\
+`Official Premier League partner Sorare today pleaded not guilty in court to providing unlicensed gambling facilities to consumers in the United Kingdom.`\
+https://nytimes.com/athletic/5796141/2024/10/04/sorare-premier-league-charge-gambling/
 
 **How States Are Enticing Employers to Help Their Workers Save for College**\
 `With college costs high, at least eight states now offer tax credits or deductions for employers that contribute to workers’ 529 accounts.`\
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/04/us/harris-trump-election
 **In Rare Sermon, Iran’s Supreme Leader Issues Warning to Israel**\
 `Ayatollah Ali Khamenei led Friday Prayer for the first time in years, delivering a sermon during a memorial service in Tehran for Hezbollah’s leader.`\
 https://nytimes.com/2024/10/04/world/middleeast/ayatollah-khamenei-iran.html
-
-**Ten bold predictions for the Golden Knights in 2024-25**\
-`Jack Eichel will set a new career-high for goals, and a surprise teammate will finish in second place.`\
-https://nytimes.com/athletic/5817490/2024/10/04/golden-knights-predictions-season/
-
-**The Athletic FC: Slot machine that needs no luck, Man Utd's latest issues, Suarez blasts Bielsa**\
-`Today in TAFC: Slot's superb start at Liverpool, Suarez takes aim at Bielsa, and what more is there to say about Manchester United?`\
-https://nytimes.com/athletic/5817774/2024/10/04/slot-machine-that-needs-no-luck-uniteds-problems-after-porto-suarez-blasts-bielsa/
-
-**Padres’ playoff run bolstered by bullpen with ‘different looks, different angles’**\
-`As the Padres prepare to re-enter the fray in L.A., much of the attention will be trained on the quintet at the back of their bullpen.`\
-https://nytimes.com/athletic/5816487/2024/10/04/padres-nlds-bullpen-arms/
 
