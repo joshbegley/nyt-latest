@@ -1,3 +1,7 @@
+**Liverpool to make late decision on Chiesa for Palace clash**\
+`Arne Slot says he will make a late call on whether Federico Chiesa will travel with Liverpool&#8217;s squad for their Premier League clash at Crystal Palace on Saturday.`\
+https://nytimes.com/athletic/5817822/2024/10/04/federico-chiesa-liverpool-crystal-palace/
+
 **Some of FIFA's transfer rules contrary to EU law, says European Court of Justice**\
 `The European Union’s highest court has decided that some of FIFA’s rules on international football transfers are contrary to EU law in a ruling that some experts have likened to the landmark Jean-Marc Bosman case in 1995.`\
 https://nytimes.com/athletic/5817901/2024/10/04/fifa-transfer-rules-lassana-diarra/

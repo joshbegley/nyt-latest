@@ -19,7 +19,7 @@ https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/manuf
 https://nytimes.com/athletic/5817859/2024/10/04/milutin-osmajic-bite-owen-beck/
 
 **Liverpool to make late decision on Chiesa for Palace clash**\
-`Arne Slot says he will make a late call on whether Federico Chiesa will travel with Liverpool&#8217;s squad to south London for their Premier League clash at Crystal Palace on Saturday.`\
+`Arne Slot says he will make a late call on whether Federico Chiesa will travel with Liverpool&#8217;s squad for their Premier League clash at Crystal Palace on Saturday.`\
 https://nytimes.com/athletic/5817822/2024/10/04/federico-chiesa-liverpool-crystal-palace/
 
 **Son 'unlikely' to be available for Tottenham's trip to Brighton**\
