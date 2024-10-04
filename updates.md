@@ -1,3 +1,11 @@
+**The Year American Jews Woke Up**\
+`American Jews need to recover their instinct for danger.`\
+https://nytimes.com/2024/10/04/opinion/israel-jews-antisemitism.html
+
+**Brazil’s Largest Mafia Is Entering Politics. The Government Must Act.**\
+`For many Brazilians, the First Capital Command’s push into politics across the nation has been a shock.`\
+https://nytimes.com/2024/10/04/opinion/brazil-crime-pcc-cocaine.html
+
 **Friday Briefing: Israel Targets Hezbollah’s Remaining Leaders**\
 `Plus, a billion-dollar plan to protect trees.`\
 https://nytimes.com/2024/10/04/briefing/israel-hezbollah-trump-britain-labour.html

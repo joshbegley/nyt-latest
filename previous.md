@@ -1,3 +1,11 @@
+**The Year American Jews Woke Up**\
+`American Jews need to recover their instinct for danger.`\
+https://nytimes.com/2024/10/04/opinion/israel-jews-antisemitism.html
+
+**Brazil’s Largest Mafia Is Entering Politics. The Government Must Act.**\
+`For many Brazilians, the First Capital Command’s push into politics across the nation has been a shock.`\
+https://nytimes.com/2024/10/04/opinion/brazil-crime-pcc-cocaine.html
+
 **Friday Briefing: Israel Targets Hezbollah’s Remaining Leaders**\
 `Plus, a billion-dollar plan to protect trees.`\
 https://nytimes.com/2024/10/04/briefing/israel-hezbollah-trump-britain-labour.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5814822/2024/10/04/julen-lopetegui-west-ham-honeymo
 **Why Crystal Palace should still be optimistic: That back line, attacking potential and Doucoure**\
 `The Athletic outlines the reasons why Crystal Palace fans should be hopeful despite a disappointing start to the Premier League season`\
 https://nytimes.com/athletic/5810018/2024/10/04/palace-glasner-doucoure-nketiah-eze-optimistic/
-
-**Ethan Nwaneri's impressive cameos beg the question: How might he fit into Arsenal's starting XI?**\
-`The 17-year-old has yet to start a Premier League game but his substitute appearances mean he is pushing for his full debut`\
-https://nytimes.com/athletic/5814766/2024/10/04/ethan-nwaneri-arsenal-starting-xi/
-
-**Who is each WSL club's most underrated player? As picked by a team-mate**\
-`From hard-working midfielders to supportive experienced pros, we asked players from each WSL club to name their most underrated team-mate.`\
-https://nytimes.com/athletic/5815174/2024/10/04/womens-super-league-underrated-players/
 
