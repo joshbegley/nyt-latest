@@ -1,3 +1,15 @@
+**Friday Briefing: Israel Targets Hezbollah’s Remaining Leaders**\
+`Plus, a billion-dollar plan to protect trees.`\
+https://nytimes.com/2024/10/04/briefing/israel-hezbollah-trump-britain-labour.html
+
+**Mets magic continues in another astonishing, season-saving comeback**\
+`J.D. Martinez summed up the sheer joy of the Mets' recent dramatics: “Once you do this, regular baseball is boring.”`\
+https://nytimes.com/athletic/5817555/2024/10/04/mets-pete-alonso-mlb-playoffs/
+
+**Phillies vs. Mets NLDS preview: Predictions, pitching matchups and more**\
+`The Phillies and Mets will meet in the postseason for the first time ever in an NLDS that promises to have plenty of juice. `\
+https://nytimes.com/athletic/5817196/2024/10/04/phillies-mets-2024-nlds-preview-predictions/
+
 **The changes Brighton are making off the pitch to make the Amex their 'castle'**\
 `Fabian Hurzeler says the Amex 'should be a castle where nobody wants to enter' - here's how Brighton are trying to do just that...`\
 https://nytimes.com/athletic/5790409/2024/10/04/brighton-home-form-amex/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5814766/2024/10/04/ethan-nwaneri-arsenal-starting-x
 **Who is each WSL club's most underrated player? As picked by a team-mate**\
 `From hard-working midfielders to supportive experienced pros, we asked players from each WSL club to name their most underrated team-mate.`\
 https://nytimes.com/athletic/5815174/2024/10/04/womens-super-league-underrated-players/
-
-**Can Matheus Nunes play a bigger role for Manchester City this season?**\
-`This should be the moment the Portuguese midfielder kicks on at City — but will he make that leap?`\
-https://nytimes.com/athletic/5812365/2024/10/04/matheus-nunes-manchester-city-progress/
-
-**Bayern Munich couldn't stop scoring. Then they came up against Unai Emery**\
-`A famous victory that was built on one of Villa's best and most disciplined tactical displays under Unai Emery so far`\
-https://nytimes.com/athletic/5814948/2024/10/04/aston-villa-defensive-tactics-emery-bayern/
-
-**Guess who's back? Randall's back - the Forest chairman's return explained**\
-`Why Forest have returned to a familiar face as chairman`\
-https://nytimes.com/athletic/5815371/2024/10/04/nicholas-randall-chairman-forest-explained/
 
