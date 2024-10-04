@@ -1,3 +1,7 @@
+**Richard Mayhew, Painter of Abstract Landscapes, Dies at 100**\
+`He drew from his Black and Native American heritage, as well as his own memory, to find an emotional resonance behind the beauty of nature.`\
+https://nytimes.com/2024/10/04/arts/richard-mayhew-dead.html
+
 **Caitlin Clark breaks record for most expensive WNBA card yet again**\
 `Clark's most expensive cards are getting closer to reaching six figures`\
 https://nytimes.com/athletic/5819177/2024/10/04/caitlin-clark-roy-panini-record/
