@@ -1,3 +1,23 @@
+**Can the economy continue its balancing act?**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/jobs-report-september
+
+**Live Updates: U.S. Hiring Expected to Persist in Lower Gear**\
+`Economists predict job growth in September continued at a similar pace to the previous month, which fell short of forecasts. The unemployment rate also probably held steady.`\
+https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy
+
+**Europe Votes to Impose Higher Tariffs on Electric Cars From China**\
+`European Union officials say the duties are meant to protect the region’s automakers from what they say are unfair trade practices in China.`\
+https://nytimes.com/2024/10/04/business/europe-china-electric-vehicles-tariffs.html
+
+**Meet Steven Lorentz: The unknown Maple Leaf who wants to make fans remember his name**\
+`"At the end of the day, I’m a competitor. And no one is taking my f---ing job.”`\
+https://nytimes.com/athletic/5812686/2024/10/04/maple-leafs-steven-lorentz/
+
+**Bears mailbag: Caleb Williams protecting the football, screen plays, plus Week 5 picks**\
+`Can the Bears build off the success against the Rams and win another game as a favorite? This week's mailbag and our Week 5 picks.`\
+https://nytimes.com/athletic/5816789/2024/10/04/caleb-williams-bears-mailbag-panthers/
+
 **Ubben: 5 lessons learned from the Matthew Sluka NIL saga**\
 `Unfortunately, plenty of pitfalls exist in a quickly changing, largely lawless system.`\
 https://nytimes.com/athletic/5812898/2024/10/04/nil-matthew-sluka-unlv-lessons/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5816628/2024/10/04/missouri-texas-am-picks-odds-how
 **Can the Hurricanes’ rebuilt defense still be dominant?**\
 `It’s possible all six Carolina defenders could eclipse 20 points this season.`\
 https://nytimes.com/athletic/5817587/2024/10/04/carolina-hurricanes-defensemen-slavin/
-
-**From 0-star recruit to Steelers Day 3 draft pick, the future is now for this rookie**\
-`Mason McCormick was not supposed to play much this year, but injuries have changed the Steelers' offensive line plans.`\
-https://nytimes.com/athletic/5816588/2024/10/04/mason-mccormick-steelers-offensive-line/
-
-**Where every Blackhawks prospect is playing this season**\
-`Whether it's the AHL, college hockey, OHL, Russia or nearly anywhere else, here's where you can find Blackhawks prospects this season.`\
-https://nytimes.com/athletic/5816236/2024/10/04/blackhawks-prospects-nhl-2024-25-season/
-
-**Cardinals' transition plan: 2025 payroll, roster construction and front-office roles**\
-`The Cardinals will alter virtually every department of their operations, but changes in the on-field product will be the most apparent.`\
-https://nytimes.com/athletic/5814182/2024/10/04/cardinals-transition-plan-chaim-bloom/
-
-**Oil Prices Rise on Biden’s Offhand Remarks, and U.S. Ports Reopen**\
-`Plus, the top trends from fashion month.`\
-https://nytimes.com/2024/10/04/podcasts/biden-oil.html
-
-**Four Weeks to Go**\
-`With Kamala Harris and Donald Trump locked in the tightest of races, who will come out on top? Listen to our political round table on the 2024 election.`\
-https://nytimes.com/2024/10/04/podcasts/the-daily/presidential-election.html
 
