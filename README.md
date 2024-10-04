@@ -1,3 +1,7 @@
+**Still Searching for Their Loved Ones, a Week After Hurricane Helene**\
+`The storm’s death toll has climbed past 210, but many people remain unaccounted for and searching for them is complicated. Their families are desperate for answers.`\
+https://nytimes.com/2024/10/04/us/still-searching-for-their-loved-ones-a-week-after-hurricane-helene.html
+
 **Richard Mayhew, Painter of Abstract Landscapes, Dies at 100**\
 `He drew from his Black and Native American heritage, as well as his own memory, to find an emotional resonance behind the beauty of nature.`\
 https://nytimes.com/2024/10/04/arts/richard-mayhew-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/briefing/the-economy-looks-strong-after-the-lates
 **Yoga to the People Founder Pleads Guilty to Tax Evasion**\
 `Gregory Gumucio, the founder and co-owner of Yoga to the People, which provided yogis with cheap classes in an atmosphere of bohemian glamour, faces up to five years in prison.`\
 https://nytimes.com/2024/10/04/nyregion/yoga-to-the-people-tax-evasion.html
-
-**Entire Chicago Education Board to Resign Amid Tensions Between Mayor and Schools Chief**\
-`Mayor Brandon Johnson has been at odds with the head of Chicago Public Schools over his plan to fill a $1 billion gap in the district’s budget.`\
-https://nytimes.com/2024/10/04/us/chicago-education-board-resignations.html
 
