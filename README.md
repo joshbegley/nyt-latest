@@ -1,3 +1,7 @@
+**FIFA Limits on Player Transfers Are Illegal, Europe’s Top Court Rules**\
+`A decision could force soccer’s governing body to rewrite the regulations that govern the sport’s multibillion-dollar transfer market.`\
+https://nytimes.com/2024/10/04/world/europe/transfer-market-rules-illegal.html
+
 **A Crackdown**\
 `We explain the Biden administration’s shift on immigration.`\
 https://nytimes.com/2024/10/04/briefing/a-crackdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy
 **Europe Votes to Impose Higher Tariffs on Electric Cars From China**\
 `European Union officials say the duties are meant to protect the region’s automakers from what they say are unfair trade practices in China.`\
 https://nytimes.com/2024/10/04/business/europe-china-electric-vehicles-tariffs.html
-
-**Meet Steven Lorentz: The unknown Maple Leaf who wants to make fans remember his name**\
-`"At the end of the day, I’m a competitor. And no one is taking my f---ing job.”`\
-https://nytimes.com/athletic/5812686/2024/10/04/maple-leafs-steven-lorentz/
 
