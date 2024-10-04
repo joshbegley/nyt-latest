@@ -1,3 +1,11 @@
+**Conservative Activists Are Monitoring — and Filming — Voter Registration Sites**\
+`In Arizona and other states, the activists are accusing Latino advocacy groups of registering undocumented immigrants. Canvassers are growing concerned about safety.`\
+https://nytimes.com/2024/10/04/us/arizona-nonprofit-voter-registration-recordings.html
+
+**NHL waiver tracker: Best players on the wire throughout 2024-25 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/5799672/2024/10/04/nhl-waivers-tracker-preseason/
+
 **‘My dreams are about bombs’: Beirut grapples with yet another in a long series of crises.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/beirut-lebanon-israel-airstrikes-mood
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/arts/music/amplifier-newsletter-kris-kristofferso
 **Atletico to ban two fans involved in Madrid derby crowd trouble**\
 `Atletico Madrid say two supporters face liftetime bans after being identified as taking part in the crowd disturbances that marred the Madrid derby on September 29.`\
 https://nytimes.com/athletic/5805882/2024/10/04/atletico-fans-banned-real-madrid/
-
-**Colts RB Taylor out vs. Jaguars, QB Richardson's status TBD**\
-`Richardson played just 13 snaps last week before exiting in the first quarter after taking a hit from Steelers' Minkah Fitzpatrick.`\
-https://nytimes.com/athletic/5818723/2024/10/04/colts-anthony-richardson-jonathan-taylor-injury-update/
-
-**National League Division Series predictions: Our experts make their picks**\
-`The stage is set for the National League Division Series, which features not one but two storied rivalries.`\
-https://nytimes.com/athletic/5818482/2024/10/04/nlds-series-predictions-mlb-experts/
 

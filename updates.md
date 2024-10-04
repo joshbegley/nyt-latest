@@ -1,3 +1,11 @@
+**Conservative Activists Are Monitoring — and Filming — Voter Registration Sites**\
+`In Arizona and other states, the activists are accusing Latino advocacy groups of registering undocumented immigrants. Canvassers are growing concerned about safety.`\
+https://nytimes.com/2024/10/04/us/arizona-nonprofit-voter-registration-recordings.html
+
+**NHL waiver tracker: Best players on the wire throughout 2024-25 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/5799672/2024/10/04/nhl-waivers-tracker-preseason/
+
 **‘My dreams are about bombs’: Beirut grapples with yet another in a long series of crises.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/beirut-lebanon-israel-airstrikes-mood
