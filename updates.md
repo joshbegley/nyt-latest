@@ -1,3 +1,11 @@
+**Instructor at Troubled Skydiving Spot Gets 2 Years After Faking Credentials**\
+`The facility near Lodi, Calif., where he trained people in tandem jumping, has come under scrutiny amid more than two dozen deaths since 1985.`\
+https://nytimes.com/2024/10/04/us/skydiver-fraud-sentence-california.html
+
+**Harris, in Michigan, Tries to Head Off Trump’s Attacks Over Gas Cars**\
+`Kamala Harris, who has faced a flurry of Trump ads in Michigan misleadingly arguing that she wants to ban gas cars altogether, promised, “I will never tell you what kind of car you have to drive.”`\
+https://nytimes.com/2024/10/04/us/politics/kamala-harris-trump-gas-cars-evs-michigan.html
+
 **Jannik Sinner's doping case explained: What WADA appeal means and what is at stake for tennis**\
 `The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
 https://nytimes.com/athletic/5806315/2024/10/04/jannik-sinner-doping-case-tennis-explained/

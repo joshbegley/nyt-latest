@@ -1,3 +1,11 @@
+**Instructor at Troubled Skydiving Spot Gets 2 Years After Faking Credentials**\
+`The facility near Lodi, Calif., where he trained people in tandem jumping, has come under scrutiny amid more than two dozen deaths since 1985.`\
+https://nytimes.com/2024/10/04/us/skydiver-fraud-sentence-california.html
+
+**Harris, in Michigan, Tries to Head Off Trump’s Attacks Over Gas Cars**\
+`Kamala Harris, who has faced a flurry of Trump ads in Michigan misleadingly arguing that she wants to ban gas cars altogether, promised, “I will never tell you what kind of car you have to drive.”`\
+https://nytimes.com/2024/10/04/us/politics/kamala-harris-trump-gas-cars-evs-michigan.html
+
 **Jannik Sinner's doping case explained: What WADA appeal means and what is at stake for tennis**\
 `The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
 https://nytimes.com/athletic/5806315/2024/10/04/jannik-sinner-doping-case-tennis-explained/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/us/politics/election-israel-iran.html
 **Reporter Asks Biden if He Would Reconsider Dropping Out of the Race**\
 `President Biden, who reluctantly surrendered his bid for a second term, has wanted to be president for most of his adult life.`\
 https://nytimes.com/2024/10/04/us/politics/biden-drop-out-2024-election.html
-
-**What to Know About the Verdict in the Tyre Nichols Case**\
-`Three former Memphis police officers were found guilty on Thursday of federal witness tampering charges in the fatal beating of Tyre Nichols, a 29-year-old Black man.`\
-https://nytimes.com/video/us/100000009741643/what-to-know-about-the-verdict-in-the-tyre-nichols-case.html
-
-**Trump Campaign Distributes Raised Funds to Victims in Butler, Pa.**\
-`The recipients included the families of those killed and wounded, and a Trump supporter who lost income when his rental cranes were stuck at the site.`\
-https://nytimes.com/2024/10/04/us/politics/trump-donations-assassination-attempt.html
 
