@@ -1,3 +1,11 @@
+**Sabres observations: Slow start, sluggish top line and a familiar loss to Devils**\
+`The Sabres don’t have a lot of time to stew over the result of their season opener.`\
+https://nytimes.com/athletic/5819516/2024/10/04/sabres-devils-prague-observations/
+
+**It’s Not World War III. But Foreign Conflicts May Get Uglier Before Election Day.**\
+`Rarely do foreign crises and a presidential election collide like they have in the past few days.`\
+https://nytimes.com/2024/10/04/us/politics/election-israel-iran.html
+
 **Reporter Asks Biden if He Would Reconsider Dropping Out of the Race**\
 `President Biden, who reluctantly surrendered his bid for a second term, has wanted to be president for most of his adult life.`\
 https://nytimes.com/2024/10/04/us/politics/reporter-asks-biden-if-he-would-reconsider-dropping-out-of-the-race.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/world/europe/france-rape-trial-pelicot-videos.htm
 **Still Searching for Their Loved Ones, a Week After Hurricane Helene**\
 `The storm’s death toll has climbed past 210, but many people remain unaccounted for and searching for them is complicated. Their families are desperate for answers.`\
 https://nytimes.com/2024/10/04/us/still-searching-for-their-loved-ones-a-week-after-hurricane-helene.html
-
-**Richard Mayhew, Painter of Abstract Landscapes, Dies at 100**\
-`He drew from his Black and Native American heritage, as well as his own memory, to find an emotional resonance behind the beauty of nature.`\
-https://nytimes.com/2024/10/04/arts/richard-mayhew-dead.html
-
-**Caitlin Clark breaks record for most expensive WNBA card yet again**\
-`Clark's most expensive cards are getting closer to reaching six figures`\
-https://nytimes.com/athletic/5819177/2024/10/04/caitlin-clark-roy-panini-record/
 
