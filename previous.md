@@ -1,3 +1,11 @@
+**Hamas Leader Is Holding Out for a Bigger War, U.S. Officials Say**\
+`Yahya Sinwar is increasingly fatalistic, has blocked a cease-fire deal and, so far, been frustrated that Hezbollah and Iran have not come to his aid, officials said.`\
+https://nytimes.com/2024/10/04/us/politics/sinwar-hamas-israel-hezbollah-iran.html
+
+**How will Bills' pivot with Khalil Shakir out for reunion game with Stefon Diggs, Texans?**\
+`Shakir's injury means that Josh Allen won't have a single receiver available Sunday who caught a pass for the Bills in the 2023 season.`\
+https://nytimes.com/athletic/5818610/2024/10/04/bills-khalil-shakir-stefon-diggs-texans/
+
 **Former Ohio State QB Terrelle Pryor sues school, Big Ten, NCAA over NIL**\
 `Pryor’s lawsuit comes on the heels of former USC star and Heisman Trophy winner Reggie Bush filing a similar suit.`\
 https://nytimes.com/athletic/5818571/2024/10/04/terrelle-pryor-sues-ncaa-ohio-state/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009742429/mideast-lebanon-syria
 **New Los Angeles Police Chief Is a Conventional Choice**\
 `Mayor Karen Bass named Jim McDonnell as the new Los Angeles Police Department chief, one of the nation’s highest-profile law enforcement jobs.`\
 https://nytimes.com/2024/10/04/us/los-angeles-police-chief.html
-
-**The Best of Late Night This Week**\
-`This week, the hosts focused mostly on the vice-presidential debate but took a moment to discuss recent inflammatory comments by former President Trump.`\
-https://nytimes.com/interactive/2024/10/04/arts/television/best-of-late-night-vp-debate.html
-
-**Real Madrid lose legal battle against French paper Le Monde**\
-`Real Madrid do not lose many battles in Europe but they lost one on Friday when the European Court of Justice (ECJ) ruled against them in their long-running row with French newspaper Le Monde.`\
-https://nytimes.com/athletic/5818063/2024/10/04/real-madrid-lose-court-case-le-monde/
 

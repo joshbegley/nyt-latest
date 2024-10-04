@@ -1,3 +1,11 @@
+**Hamas Leader Is Holding Out for a Bigger War, U.S. Officials Say**\
+`Yahya Sinwar is increasingly fatalistic, has blocked a cease-fire deal and, so far, been frustrated that Hezbollah and Iran have not come to his aid, officials said.`\
+https://nytimes.com/2024/10/04/us/politics/sinwar-hamas-israel-hezbollah-iran.html
+
+**How will Bills' pivot with Khalil Shakir out for reunion game with Stefon Diggs, Texans?**\
+`Shakir's injury means that Josh Allen won't have a single receiver available Sunday who caught a pass for the Bills in the 2023 season.`\
+https://nytimes.com/athletic/5818610/2024/10/04/bills-khalil-shakir-stefon-diggs-texans/
+
 **Former Ohio State QB Terrelle Pryor sues school, Big Ten, NCAA over NIL**\
 `Pryor’s lawsuit comes on the heels of former USC star and Heisman Trophy winner Reggie Bush filing a similar suit.`\
 https://nytimes.com/athletic/5818571/2024/10/04/terrelle-pryor-sues-ncaa-ohio-state/
