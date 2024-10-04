@@ -1,3 +1,15 @@
+**Bayern Munich couldn't stop scoring. Then they came up against Unai Emery**\
+`A famous victory that was built on one of Villa's best and most disciplined tactical displays under Unai Emery so far`\
+https://nytimes.com/athletic/5814948/2024/10/04/aston-villa-defensive-tactics-emery-bayern/
+
+**Guess who's back? Randall's back - the Forest chairman's return explained**\
+`Why Forest have returned to a familiar face as chairman`\
+https://nytimes.com/athletic/5815371/2024/10/04/nicholas-randall-chairman-forest-explained/
+
+**FPL: Is Palmer really a must-own? Or is Saka a better bet?**\
+`Cole Palmer is the talk of the town in FPL but is it really worth selling Bukayo Saka or Mohamed Salah to get him? `\
+https://nytimes.com/athletic/5811866/2024/10/04/fantasy-premier-league-palmer-saka-gw7/
+
 **A Rest, a Reset and a Thanks for the Banter**\
 `After more than 350 editions, we are putting this newsletter on pause, with the editor who opened the Australia bureau departing and his successor set to arrive.`\
 https://nytimes.com/2024/10/04/world/australia/letter-hiatus.html

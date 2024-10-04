@@ -1,3 +1,23 @@
+**The honeymoon's over Julen. Time to start winning some matches.**\
+`The pressure is now on against Ipswich. Julen Lopetegui must prove he's the man to fix West Ham's poor start`\
+https://nytimes.com/athletic/5814822/2024/10/04/julen-lopetegui-west-ham-honeymoon-is-over/
+
+**Why Crystal Palace should still be optimistic: That back line, attacking potential and Doucoure**\
+`The Athletic outlines the reasons why Crystal Palace fans should be hopeful despite a disappointing start to the Premier League season`\
+https://nytimes.com/athletic/5810018/2024/10/04/palace-glasner-doucoure-nketiah-eze-optimistic/
+
+**Ethan Nwaneri's impressive cameos beg the question: How might he fit into Arsenal's starting XI?**\
+`The 17-year-old has yet to start a Premier League game but his substitute appearances mean he is pushing for his full debut`\
+https://nytimes.com/athletic/5814766/2024/10/04/ethan-nwaneri-arsenal-starting-xi/
+
+**Who is each WSL club's most underrated player? As picked by a team-mate**\
+`From hard-working midfielders to supportive experienced pros, we asked players from each WSL club to name their most underrated team-mate.`\
+https://nytimes.com/athletic/5815174/2024/10/04/womens-super-league-underrated-players/
+
+**Can Matheus Nunes play a bigger role for Manchester City this season?**\
+`This should be the moment the Portuguese midfielder kicks on at City — but will he make that leap?`\
+https://nytimes.com/athletic/5812365/2024/10/04/matheus-nunes-manchester-city-progress/
+
 **Bayern Munich couldn't stop scoring. Then they came up against Unai Emery**\
 `A famous victory that was built on one of Villa's best and most disciplined tactical displays under Unai Emery so far`\
 https://nytimes.com/athletic/5814948/2024/10/04/aston-villa-defensive-tactics-emery-bayern/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/04/world/australia/letter-hiatus.html
 **Antonee Robinson: My game in my words**\
 `The Fulham and USMNT international talks us through his strengths and weaknesses — and Salah asking him how old he is...`\
 https://nytimes.com/athletic/5815597/2024/10/04/antonee-robinson-usmnt-fulham-salah-saka/
-
-**How Slot prepares Liverpool: 'Body wake-up', ice baths and wellness checks**\
-`New Dutch coach is painstaking in his methods ahead of a matchday - and it is paying off`\
-https://nytimes.com/athletic/5815741/2024/10/04/arne-slot-liverpool-preparations-matchday/
-
-**Row Z: Ronaldo the team player, Celtic's 70,716 miles of suffering and a blow-up Kane**\
-`Your weekly look at the more curious side of football - also featuring Jose Mourinho's laptop`\
-https://nytimes.com/athletic/5812263/2024/10/04/row-z-ronaldo-the-team-player-celtics-70716-miles-of-suffering-and-a-blow-up-kane/
-
-**Palmer, Kane, Watkins, Saka, Bellingham, Foden... who starts in England's attack?**\
-`Lee Carsley boasts a lavish array of attacking talent, but striking the right balance across his front four will be key to England's success`\
-https://nytimes.com/athletic/5815925/2024/10/04/england-bellingham-foden-grealish-palmer-saka-carsley/
-
-**The container, the fence and the curious case of a £180,000 patch of land outside St James' Park**\
-`Strange constructions have been popping up on a small piece of land outside Newcastle's stadium`\
-https://nytimes.com/athletic/5778538/2024/10/04/newcastle-st-james-park-fence-land/
-
-**Kirk Cousins leads Falcons past Buccaneers on TNF: Key takeaways**\
-`Cousins passed for a career-high and franchise record 509 yards along with four touchdowns in the win.`\
-https://nytimes.com/athletic/5817440/2024/10/04/buccaneers-falcons-score-thursday-night-football-takeaways/
 
