@@ -1,3 +1,7 @@
+**Manufacturing is growing and shrinking at the same time.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/manufacturing-is-growing-and-shrinking-at-the-same-time
+
 **Preston’s Osmajic handed eight-match ban after biting Blackburn’s Beck**\
 `Preston North End forward Milutin Osmajic has been given an eight-match suspension and fined £15,000 for biting Blackburn Rovers left-back Owen Beck during a Championship match.`\
 https://nytimes.com/athletic/5817859/2024/10/04/milutin-osmajic-bite-owen-beck/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5812686/2024/10/04/maple-leafs-steven-lorentz/
 **Bears mailbag: Caleb Williams protecting the football, screen plays, plus Week 5 picks**\
 `Can the Bears build off the success against the Rams and win another game as a favorite? This week's mailbag and our Week 5 picks.`\
 https://nytimes.com/athletic/5816789/2024/10/04/caleb-williams-bears-mailbag-panthers/
-
-**Ubben: 5 lessons learned from the Matthew Sluka NIL saga**\
-`Unfortunately, plenty of pitfalls exist in a quickly changing, largely lawless system.`\
-https://nytimes.com/athletic/5812898/2024/10/04/nil-matthew-sluka-unlv-lessons/
 
