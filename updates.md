@@ -1,3 +1,11 @@
+**Harris Ad to Showcase Support of Liz Cheney and Other Republicans**\
+`Vice President Kamala Harris has been seeking to give Republicans who dislike the former president a permission structure to support her instead.`\
+https://nytimes.com/2024/10/04/us/politics/harris-ad-liz-cheney.html
+
+**What is the latest on Jonathan Kuminga and the Warriors’ crowded frontcourt?**\
+`Will Draymond Green start? Could Kuminga start in place of Wiggins? Answering these questions ahead of the Warriors' first preseason game.`\
+https://nytimes.com/athletic/5818900/2024/10/04/jonathan-kuminga-warriors-frontcourt-nba/
+
 **For Savannah, It’s Not Just a Port. It’s an Economy.**\
 `The Georgia city is a picturesque tourist destination. It’s also the No. 2 ocean cargo hub on the East Coast, and the dock strike’s quick end was a relief.`\
 https://nytimes.com/2024/10/04/business/economy/port-strike-savannah-economy.html
