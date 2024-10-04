@@ -1,3 +1,11 @@
+**Sabres observations: Slow start, sluggish top line and a familiar loss to Devils**\
+`The Sabres don’t have a lot of time to stew over the result of their season opener.`\
+https://nytimes.com/athletic/5819516/2024/10/04/sabres-devils-prague-observations/
+
+**It’s Not World War III. But Foreign Conflicts May Get Uglier Before Election Day.**\
+`Rarely do foreign crises and a presidential election collide like they have in the past few days.`\
+https://nytimes.com/2024/10/04/us/politics/election-israel-iran.html
+
 **Reporter Asks Biden if He Would Reconsider Dropping Out of the Race**\
 `President Biden, who reluctantly surrendered his bid for a second term, has wanted to be president for most of his adult life.`\
 https://nytimes.com/2024/10/04/us/politics/reporter-asks-biden-if-he-would-reconsider-dropping-out-of-the-race.html
