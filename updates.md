@@ -1,3 +1,7 @@
+**Blue Jackets lose 2 important players to injuries as season opener nears**\
+`Captain Boone Jenner lost an edge during a practice drill and slammed into the boards.`\
+https://nytimes.com/athletic/5819237/2024/10/04/blue-jackets-injury-jenner-voronkov/
+
 **Without Aid, This Famine May Become One of History’s Worst**\
 `By Nicholas Kristof`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/sudan-famine-world-food-program
