@@ -1,3 +1,7 @@
+**At Least 70 People Dead in Gang Attack in Haiti**\
+`The assault took place in a key agricultural region, which has seen a surge in gang violence.`\
+https://nytimes.com/2024/10/04/us/haiti-gang-attack.html
+
 **Here Are the Hezbollah Leaders Israel Has Targeted**\
 `Israeli strikes have aimed to kill the leaders of the Lebanese militia, most recently Hashem Safieddine. It was not immediately clear whether he had been killed in an overnight strike near Beirut.`\
 https://nytimes.com/2024/10/04/world/middleeast/hezbollah-leadership.html
