@@ -1,3 +1,23 @@
+**Devils defeat Sabres in opening Global Series game**\
+`Here are some takeaways from the Devils’ 4-1 win over the Sabres on Friday in Prague.`\
+https://nytimes.com/athletic/5818658/2024/10/04/devils-vs-sabres-nhl-global-series-game-1-takeaways/
+
+**Pogba has four-year doping ban reduced to 18 months after successful appeal**\
+`Paul Pogba says his “nightmare is over” and he “cannot wait to get back on the pitch” after his four-year ban for failing an anti-doping test was reduced to 18 months.`\
+https://nytimes.com/athletic/5818652/2024/10/04/paul-pogba-ban-appeal-succesful-return/
+
+**In Key Nevada County, Harassment of Election Workers Takes a Toll**\
+`Republicans this year attempted to block certification of local elections in Washoe, a critical swing county — a worrying sign for what could be ahead, the Democratic secretary of state said.`\
+https://nytimes.com/2024/10/04/us/politics/nevada-election-harassment.html
+
+**Affection Does Not Excuse Blackface**\
+`Representative Mike Lawler, take note.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/mike-lawler-blackface
+
+**Joe D. Bryan, 84, Dies; His Murder Conviction Raised Troubling Questions**\
+`After serving 33 years in prison, he was released in the wake of a cascade of questions about the soundness of the forensic testimony against him.`\
+https://nytimes.com/2024/10/04/us/joe-d-bryan-dead.html
+
 **Trump Takes Aim at Legal Immigration**\
 `The former president and his allies, who often decry undocumented immigrants, are targeting programs that allow millions of people to enter the country lawfully.`\
 https://nytimes.com/2024/10/04/us/politics/trump-takes-aim-at-legal-immigration.html
