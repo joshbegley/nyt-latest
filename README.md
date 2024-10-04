@@ -1,3 +1,15 @@
+**Where Bears, Panthers stand 18 months after franchise-altering trade for both teams**\
+`The Bears have DJ Moore, Caleb Williams and more, while the Panthers have benched Bryce Young, the prize of the 2023 deal.`\
+https://nytimes.com/athletic/5816902/2024/10/04/bears-panthers-caleb-williams-bryce-young/
+
+**Dehner Jr.: Why so serious? Joe Burrow knows this critical moment falls on him**\
+`A team that struggled badly in the AFC North in 2023 gets its first shot at redemption Sunday vs. the Ravens and needs its QB at his best.`\
+https://nytimes.com/athletic/5816683/2024/10/04/joe-burrow-bengals-ravens-week-5/
+
+**With Commanders off to surprising start, how aggressive should they be on the trade market?**\
+`Washington could bolster its roster by adding a player such as WR Davante Adams. But should Adam Peters and company remain patient? `\
+https://nytimes.com/athletic/5813944/2024/10/04/commanders-davante-adams-trade-market/
+
 **How Brock Purdy's growth, aggressiveness are evolving Kyle Shanahan's 49ers offense**\
 `The quarterback has leaned heavily on play-action in his career but now is dropping back and taking far more deep shots.`\
 https://nytimes.com/athletic/5812829/2024/10/04/brock-purdy-49ers-offense-shanahan/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5815636/2024/10/04/michigan-washington-prediction-m
 **Obama, Democrats’ Elder Statesman, Will Stump for Harris in Final Election Push**\
 `Mr. Obama, the first Black president, had cast Vice President Kamala Harris as the inheritor of his political movement in a speech at the Democratic convention.`\
 https://nytimes.com/2024/10/04/us/politics/obama-harris-democrats.html
-
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including the sequel “Joker: Folie à Deux.”`\
-https://nytimes.com/interactive/2024/10/04/arts/weekend-editors-picks-joker-folie-a-deux.html
-
-**The New York Times News Quiz, Oct. 4, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/10/04/briefing/news-quiz-vance-walz-debate.html
-
-**Every Election Has Big Swings, Even in a Polarized Country. This One Will Too.**\
-`In just the last few years, any number of issues might have led people to reconsider their loyalties.`\
-https://nytimes.com/2024/10/04/upshot/election-issues-swings-voters.html
 
