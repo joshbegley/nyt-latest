@@ -1,3 +1,7 @@
+**Trump’s False Claims About the Federal Response to Hurricane Helene**\
+`The former president falsely accused the Biden administration of spending disaster funding on migrants, neglecting areas that had voted for Republicans and ignoring a call from a Republican governor.`\
+https://nytimes.com/2024/10/04/us/politics/trump-helene-fema-fact-check.html
+
 **Sabres observations: Slow start, sluggish top line and a familiar loss to Devils**\
 `The Sabres don’t have a lot of time to stew over the result of their season opener.`\
 https://nytimes.com/athletic/5819516/2024/10/04/sabres-devils-prague-observations/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009743470/biden-israel-iran-oil-fiel
 **Shock in French Court Shown Videos of Men Accused of Raping Drugged Woman**\
 `Gisèle Pelicot fought for the graphic videos made by her husband to be shown publicly in court, insisting they were essential evidence in a rape case against him and 50 other men.`\
 https://nytimes.com/2024/10/04/world/europe/france-rape-trial-pelicot-videos.html
-
-**Still Searching for Their Loved Ones, a Week After Hurricane Helene**\
-`The storm’s death toll has climbed past 210, but many people remain unaccounted for and searching for them is complicated. Their families are desperate for answers.`\
-https://nytimes.com/2024/10/04/us/still-searching-for-their-loved-ones-a-week-after-hurricane-helene.html
 
