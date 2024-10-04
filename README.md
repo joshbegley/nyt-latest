@@ -1,3 +1,7 @@
+**At Least 14 Die as Floods Sweep Through Bosnia and Other Balkan States**\
+`A severe overnight rainstorm left several towns and villages flooded. Record summer temperatures caused a drought that hampered the absorption of floodwaters.`\
+https://nytimes.com/2024/10/04/world/europe/bosnia-flooding-balkans.html
+
 **Britain Backs Plan to Store Carbon Dioxide Under the Sea**\
 `Two proposals in Northern England, led by the energy giants BP and Eni, aim to establish an industry in burying emissions from industrial plants.`\
 https://nytimes.com/2024/10/04/business/britain-carbon-capture.html
@@ -18,9 +22,9 @@ https://nytimes.com/2024/10/04/learning/exploring-your-political-identity-and-va
 `Jenna Ortega tells Times readers about the joys and the challenges of stardom at a young age. What can we learn from her experience?`\
 https://nytimes.com/2024/10/04/learning/would-you-want-to-be-a-child-star.html
 
-**Israel expands evacuation warnings in southern Lebanon after airstrikes pummel Beirut.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/israel-expands-evacuation-warnings-in-southern-lebanon-after-airstrikes-pummel-beirut
+**Israel Expands Evacuation Warnings in Southern Lebanon After Renewed Strikes**\
+`Israeli soldiers were also waging a ground invasion in southern Lebanon targeting what military officials said were Hezbollah sites in the rugged border area.`\
+https://nytimes.com/2024/10/04/world/middleeast/israel-lebanon-evacuation-warnings.html
 
 **Ancelotti accepts 'correct' criticism of Real Madrid after Lille defeat**\
 `Real Madrid manager Carlo Ancelotti says that the criticism following his side&#8217;s defeat to Lille in the Champions League is &#8220;correct&#8221; and called for an urgent response from his side ahead of their clash against Villarreal in La Liga.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817898/2024/10/04/jurrien-timber-nathan-ake-nether
 **‘It’s business’: Unlike Swayman, Frederic did not take arbitration personally**\
 `“I don’t know with Sway what they said or whatever he said,” Frederic says. “But to me, it wasn’t that bad. It’s business.”`\
 https://nytimes.com/athletic/5816515/2024/10/04/jeremy-swayman-arbitration-trent-frederic/
-
-**What I'm seeing from the 49ers: Missing ingredient sticks out like sore Achilles**\
-`A person of interest as the 49ers move into October: Sam Okuayinonu, who's looked like their third-best edge rusher in recent weeks.`\
-https://nytimes.com/athletic/5810660/2024/10/04/49ers-observations-christian-mccaffrey-injury/
 
