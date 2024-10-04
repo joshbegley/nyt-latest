@@ -1,3 +1,15 @@
+**For Savannah, It’s Not Just a Port. It’s an Economy.**\
+`The Georgia city is a picturesque tourist destination. It’s also the No. 2 ocean cargo hub on the East Coast, and the dock strike’s quick end was a relief.`\
+https://nytimes.com/2024/10/04/business/economy/port-strike-savannah-economy.html
+
+**A Once-Dormant Hurricane Season Is Spinning Into Action**\
+`Technically, the hurricane season has fallen short of the “hyperactive” forecast, but in some ways it hasn’t.`\
+https://nytimes.com/2024/10/04/weather/hurricane-season-updates-october.html
+
+**Israel’s latest strike in Lebanon makes clear that it is taking its fight against Hezbollah to a new scale.**\
+`By Ben Hubbard`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/israels-latest-strike-in-lebanon-makes-clear-that-it-is-taking-its-fight-against-hezbollah-to-a-new-scale
+
 **Trump’s Return to Butler Is Sure to Be a Spectacle. Is It Safe?**\
 `At a time of increased security risks, the former president has urged thousands of supporters to return with him to the place a gunman tried to take his life.`\
 https://nytimes.com/2024/10/04/us/elections/trump-butler-assassination-attempt.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5818945/2024/10/04/omari-hutchinson-england-jamaica
 **Biden Says the Election Will Be Fair. But He’s Not Sure It Will Be Peaceful.**\
 `President Biden’s remarks underscore the concerns in the government about the possibility of violence during or after the election.`\
 https://nytimes.com/2024/10/04/us/politics/biden-says-the-election-will-be-fair-but-hes-not-sure-it-will-be-peaceful.html
-
-**The William Nylander-to-centre experiment ends too soon (again)**\
-`It really felt like it would be different this time. In the end, it was just like last fall.`\
-https://nytimes.com/athletic/5818902/2024/10/04/maple-leafs-william-nylander-centre-2/
-
-**Giants' Malik Nabers (concussion) out against Seahawks**\
-`New York Giants rookie standout Malik Nabers has been ruled out against Seattle, coach Brian Daboll said in an update Friday`\
-https://nytimes.com/athletic/5813052/2024/10/04/giants-malik-nabers-concussion/
-
-**‘The Franchise’ Review: Cutting Marvel Down to Size**\
-`A new HBO comedy takes a jaundiced look at the making of a second-rate superhero film.`\
-https://nytimes.com/2024/10/04/arts/television/the-franchise-review.html
 
