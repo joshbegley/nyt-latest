@@ -1,3 +1,11 @@
+**3 Warming Dishes for Crisp Fall Days**\
+`Carolina Gelen, a cookbook author and video personality, shares cozy vegetable recipes from her childhood in Romania.`\
+https://nytimes.com/2024/10/04/dining/vegetable-romanian-dishes.html
+
+**How Does Your Facial Hair Make You Feel?**\
+`We want to hear about how women’s experiences of having visible facial hair impact their day-to-day.`\
+https://nytimes.com/2024/10/04/style/facial-hair-callout.html
+
 **Mark Zuckerberg Tries His Hand at Fashion**\
 `Et tu, Zuck?`\
 https://nytimes.com/2024/10/04/style/mark-zuckerberg-tries-his-hand-at-fashion.html
