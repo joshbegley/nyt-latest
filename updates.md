@@ -1,3 +1,7 @@
+**Jannik Sinner's doping case explained: What WADA appeal means and what is at stake for tennis**\
+`The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
+https://nytimes.com/athletic/5806315/2024/10/04/jannik-sinner-doping-case-tennis-explained/
+
 **Packers' Keisean Nixon's three-peat bid in jeopardy since nobody will kick to him**\
 `The Packers' back-to-back first-team All-Pro kick returner has been back for 17 kickoffs and 16 have gone for touchbacks.`\
 https://nytimes.com/athletic/5819357/2024/10/04/packers-keisean-nixon-kickoff-return/
