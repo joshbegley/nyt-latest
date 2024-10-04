@@ -1,4 +1,8 @@
-**The Job Market Is Chugging, Completing a Solid Economic Picture**\
+**Jobs Report Adds to Economic Momentum for Harris**\
+`In recent weeks, reports have shown inflation slowing and the economy growing at a robust clip. The Federal Reserve has also cut interest rates, bringing mortgage rates down.`\
+https://nytimes.com/2024/10/04/business/jobs-report-harris-economy.html
+
+**The Job Market Is Chugging Along, Completing a Solid Economic Picture**\
 `After months of wobbling, a fresh jobs report showed that hiring and wage growth is strong, aligning with other robust economic data.`\
 https://nytimes.com/2024/10/04/business/job-market-hiring-wage.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817418/2024/10/04/new-york-giants-malik-nabers-sea
 **Hurricane Helene: Inside Search and Rescue Efforts**\
 `By Ang Li`\
 https://nytimes.com/card/2024/10/04/us/helene-fema-search-rescue
-
-**Wrexham's Evans to undergo ankle surgery; set for 'months' out**\
-`Wrexham midfielder George Evans will next week undergo ankle surgery that is likely to keep him out for “months”, according to manager Phil Parkinson.`\
-https://nytimes.com/athletic/5818191/2024/10/04/wrexham-george-evans-injury/
 
