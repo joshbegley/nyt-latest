@@ -1,3 +1,11 @@
+**Entire Chicago Education Board to Resign Amid Tensions Between Mayor and Schools Chief**\
+`Mayor Brandon Johnson has been at odds with the head of Chicago Public Schools over his plan to fill a $1 billion gap in the district’s budget.`\
+https://nytimes.com/2024/10/04/us/chicago-education-board-resignations.html
+
+**U.S. Conducts Strikes Against Houthis in Yemen**\
+`The Houthis have been attacking ships in the Red Sea in solidarity with Hamas, and the U.S. attacks were aimed at securing international waterways.`\
+https://nytimes.com/2024/10/04/world/middleeast/us-strikes-yemen-houthis.html
+
 **In Rare Visit to White House Press Briefing, Biden Cautions Israel**\
 `The president suggested that Israel should consider alternative ways to retaliate against Iran.`\
 https://nytimes.com/2024/10/04/world/middleeast/biden-israel-iran-oil-strike.html
