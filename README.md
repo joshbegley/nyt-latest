@@ -1,3 +1,7 @@
+**Lynx's Cheryl Reeve confronted Sun players after Game 1**\
+`Reeve had an issue with how Connecticut celebrated its series-opening victory, league sources said.`\
+https://nytimes.com/athletic/5819599/2024/10/04/cheryl-reeve-lynx-sun-game-1/
+
 **2 Men Sentenced to Prison for Attacking Officers at Jan. 6 Riot**\
 `One of the men, from New Jersey, referred to lawmakers as “traitors” and encouraged other rioters to drag them out of the building by their hair, prosecutors said.`\
 https://nytimes.com/2024/10/04/nyregion/january-6-riot-prison-sentences.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/us/politics/trump-helene-fema-fact-check.html
 **Sabres observations: Slow start, sluggish top line and a familiar loss to Devils**\
 `The Sabres don’t have a lot of time to stew over the result of their season opener.`\
 https://nytimes.com/athletic/5819516/2024/10/04/sabres-devils-prague-observations/
-
-**It’s Not World War III. But Foreign Conflicts May Get Uglier Before Election Day.**\
-`Rarely do foreign crises and a presidential election collide like they have in the past few days.`\
-https://nytimes.com/2024/10/04/us/politics/election-israel-iran.html
 
