@@ -1,3 +1,15 @@
+**Syria and Russia remain silent on reported airstrikes on a weapons facility near a Russian base in Syria.**\
+`By Eve Sampson, Anton Troianovski, Aric Toler and Oleg Matsnev`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/syria-and-russia-remain-silent-on-reported-airstrikes-on-a-weapons-facility-near-a-russian-base-in-syria
+
+**Disaster Funding Has Its Own Perils**\
+`Congressional leaders deferred a debate over sending federal money to respond to Hurricane Helene until after the election, delaying a potentially messy political fight.`\
+https://nytimes.com/2024/10/04/us/politics/congress-hurricane-helene-funding.html
+
+**Hurzeler defends Webster amid social media criticism over Chelsea mistake**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler has hit back at social media criticism of Adam Webster after the centre-back&#8217;s mistake in the 4-2 defeat at Chelsea.`\
+https://nytimes.com/athletic/5818548/2024/10/04/fabian-hurzeler-defends-adam-webster/
+
 **National League Division Series predictions: Our experts make their picks**\
 `The stage is set for the National League Division Series, which features not one but two storied rivalries.`\
 https://nytimes.com/athletic/5818482/2024/10/04/nlds-series-predictions-mlb-experts/

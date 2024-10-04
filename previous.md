@@ -1,3 +1,15 @@
+**Syria and Russia remain silent on reported airstrikes on a weapons facility near a Russian base in Syria.**\
+`By Eve Sampson, Anton Troianovski, Aric Toler and Oleg Matsnev`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/syria-and-russia-remain-silent-on-reported-airstrikes-on-a-weapons-facility-near-a-russian-base-in-syria
+
+**Disaster Funding Has Its Own Perils**\
+`Congressional leaders deferred a debate over sending federal money to respond to Hurricane Helene until after the election, delaying a potentially messy political fight.`\
+https://nytimes.com/2024/10/04/us/politics/congress-hurricane-helene-funding.html
+
+**Hurzeler defends Webster amid social media criticism over Chelsea mistake**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler has hit back at social media criticism of Adam Webster after the centre-back&#8217;s mistake in the 4-2 defeat at Chelsea.`\
+https://nytimes.com/athletic/5818548/2024/10/04/fabian-hurzeler-defends-adam-webster/
+
 **10 Unforgettable Kris Kristofferson Covers**\
 `Many of his songs are better known by other singers’ interpretations, like Janis Joplin’s “Me and Bobby McGee,” Johnny Cash’s “Sunday Morning Coming Down” and more.`\
 https://nytimes.com/2024/10/04/arts/music/amplifier-newsletter-kris-kristofferson-covers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/04/arts/music/playlist-lauren-mayberry-bartees-stran
 **Guardian caps aid NFL's lowest number of preseason concussions since 2015**\
 `Guardian caps are required in all practices for all players except quarterbacks, kickers and punters.`\
 https://nytimes.com/athletic/5818714/2024/10/04/nfl-player-safety-media-call-sills/
-
-**Marco Rossi may have inside track to center Wild's top line**\
-`Rossi is making the most of his time between Kirill Kaprizov and Mats Zuccarello, trending toward a spot there for the season opener.`\
-https://nytimes.com/athletic/5818642/2024/10/04/marco-rossi-wild-top-line/
-
-**Inside a Republican Ad Accusing Jon Tester of Flip-Flopping on Immigration**\
-`A Republican group is using misleading language about the Montana senator’s support for a bipartisan immigration bill in 2013 to accuse him of selling out to the Washington establishment.`\
-https://nytimes.com/2024/10/04/us/politics/republican-ad-jon-tester-immigration.html
-
-**Capturing a Community in Ruin**\
-`After years of documenting the effects of climate change in his home state of North Carolina, a photographer found himself in the path of a hurricane.`\
-https://nytimes.com/2024/10/04/us/politics/photojournalist-climate-change-asheville-helene.html
 
