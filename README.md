@@ -1,3 +1,11 @@
+**Devils defeat Sabres in opening Global Series game**\
+`Here are some takeaways from the Devils’ 4-1 win over the Sabres on Friday in Prague.`\
+https://nytimes.com/athletic/5818658/2024/10/04/devils-vs-sabres-nhl-global-series-game-1-takeaways/
+
+**Pogba has four-year doping ban reduced to 18 months after successful appeal**\
+`Paul Pogba says his “nightmare is over” and he “cannot wait to get back on the pitch” after his four-year ban for failing an anti-doping test was reduced to 18 months.`\
+https://nytimes.com/athletic/5818652/2024/10/04/paul-pogba-ban-appeal-succesful-return/
+
 **In Key Nevada County, Harassment of Election Workers Takes a Toll**\
 `Republicans this year attempted to block certification of local elections in Washoe, a critical swing county — a worrying sign for what could be ahead, the Democratic secretary of state said.`\
 https://nytimes.com/2024/10/04/us/politics/nevada-election-harassment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5818900/2024/10/04/jonathan-kuminga-warriors-frontc
 **For Savannah, It’s Not Just a Port. It’s an Economy.**\
 `The Georgia city is a picturesque tourist destination. It’s also the No. 2 ocean cargo hub on the East Coast, and the dock strike’s quick end was a relief.`\
 https://nytimes.com/2024/10/04/business/economy/port-strike-savannah-economy.html
-
-**A Once-Dormant Hurricane Season Is Spinning Into Action**\
-`Technically, the hurricane season has fallen short of the “hyperactive” forecast, but in some ways it hasn’t.`\
-https://nytimes.com/2024/10/04/weather/hurricane-season-updates-october.html
-
-**Israel’s latest strike in Lebanon makes clear that it is taking its fight against Hezbollah to a new scale.**\
-`By Ben Hubbard`\
-https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/israels-latest-strike-in-lebanon-makes-clear-that-it-is-taking-its-fight-against-hezbollah-to-a-new-scale
 
