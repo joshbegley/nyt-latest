@@ -1,3 +1,7 @@
+**National League Division Series predictions: Our experts make their picks**\
+`The stage is set for the National League Division Series, which features not one but two storied rivalries.`\
+https://nytimes.com/athletic/5818482/2024/10/04/nlds-series-predictions-mlb-experts/
+
 **10 Unforgettable Kris Kristofferson Covers**\
 `Many of his songs are better known by other singers’ interpretations, like Janis Joplin’s “Me and Bobby McGee,” Johnny Cash’s “Sunday Morning Coming Down” and more.`\
 https://nytimes.com/2024/10/04/arts/music/amplifier-newsletter-kris-kristofferson-covers.html

@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5818723/2024/10/04/colts-anthony-richardson-jonatha
 
 **National League Division Series predictions: Our experts make their picks**\
 `The stage is set for the National League Division Series, which features not one but two storied rivalries.`\
-https://nytimes.com/athletic/5818482/2024/10/04/national-league-division-series-predictions-our-experts-make-their-picks/
+https://nytimes.com/athletic/5818482/2024/10/04/nlds-series-predictions-mlb-experts/
 
 **The Savannah Bananas Needed a Bigger Stage**\
 `Everyone’s favorite dancing baseball team is taking its act almost exclusively to M.L.B. and football stadiums in 2025, with even more extreme changes on the horizon.`\
