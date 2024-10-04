@@ -1,3 +1,7 @@
+**Wolves' Dawson in contention for Brentford trip; Bueno fit**\
+`Wolverhampton Wanderers could welcome back Craig Dawson for tomorrow’s Premier League trip to Brentford after the defender returned to training after illness.`\
+https://nytimes.com/athletic/5818095/2024/10/04/craig-dawson-injury-update-wolves/
+
 **How States Are Enticing Employers to Help Their Workers Save for College**\
 `With college costs high, at least eight states now offer tax credits or deductions for employers that contribute to workers’ 529 accounts.`\
 https://nytimes.com/2024/10/04/your-money/college-saving-plans-employee-benefits.html

@@ -1,3 +1,7 @@
+**Wolves' Dawson in contention for Brentford trip; Bueno fit**\
+`Wolverhampton Wanderers could welcome back Craig Dawson for tomorrow’s Premier League trip to Brentford after the defender returned to training after illness.`\
+https://nytimes.com/athletic/5818095/2024/10/04/craig-dawson-injury-update-wolves/
+
 **How States Are Enticing Employers to Help Their Workers Save for College**\
 `With college costs high, at least eight states now offer tax credits or deductions for employers that contribute to workers’ 529 accounts.`\
 https://nytimes.com/2024/10/04/your-money/college-saving-plans-employee-benefits.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817774/2024/10/04/slot-machine-that-needs-no-luck-
 **Padres’ playoff run bolstered by bullpen with ‘different looks, different angles’**\
 `As the Padres prepare to re-enter the fray in L.A., much of the attention will be trained on the quintet at the back of their bullpen.`\
 https://nytimes.com/athletic/5816487/2024/10/04/padres-nlds-bullpen-arms/
-
-**At Least 14 Die as Floods Sweep Through Bosnia and Other Balkan States**\
-`A severe overnight rainstorm left several towns and villages flooded. Record summer temperatures caused a drought that hampered the absorption of floodwaters.`\
-https://nytimes.com/2024/10/04/world/europe/bosnia-flooding-balkans.html
 
