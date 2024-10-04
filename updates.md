@@ -1,3 +1,7 @@
+**3 Idaho Big-Game Guides Led Illegal Mountain Lion Hunts, U.S. Says**\
+`The three face federal charges for leading hunts as part of an unlicensed outfitting business separate from their employer, federal prosecutors said.`\
+https://nytimes.com/2024/10/03/us/hunting-guides-indictment-mountain-lions.html
+
 **Corrections: Oct. 4, 2024**\
 `Corrections that appeared in print on Friday, Oct. 4, 2024.`\
 https://nytimes.com/2024/10/03/pageoneplus/corrections-oct-4-2024.html
