@@ -1,3 +1,11 @@
+**Padres’ playoff run bolstered by bullpen with ‘different looks, different angles’**\
+`As the Padres prepare to re-enter the fray in L.A., much of the attention will be trained on the quintet at the back of their bullpen.`\
+https://nytimes.com/athletic/5816487/2024/10/04/padres-nlds-bullpen-arms/
+
+**At Least 14 Die as Floods Sweep Through Bosnia and Other Balkan States**\
+`A severe overnight rainstorm left several towns and villages flooded. Record summer temperatures caused a drought that hampered the absorption of floodwaters.`\
+https://nytimes.com/2024/10/04/world/europe/bosnia-flooding-balkans.html
+
 **Britain Backs Plan to Store Carbon Dioxide Under the Sea**\
 `Two proposals in Northern England, led by the energy giants BP and Eni, aim to establish an industry in burying emissions from industrial plants.`\
 https://nytimes.com/2024/10/04/business/britain-carbon-capture.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5817910/2024/10/04/carlo-ancelotti-real-madrid-crit
 **Timber and Ake left out of Netherlands squad**\
 `Arsenal defender Jurrien Timber and Nathan Ake of Manchester City have been left out of the Netherlands squad for October&#8217;s Nations League matches.`\
 https://nytimes.com/athletic/5817898/2024/10/04/jurrien-timber-nathan-ake-netherlands-squad/
-
-**‘It’s business’: Unlike Swayman, Frederic did not take arbitration personally**\
-`“I don’t know with Sway what they said or whatever he said,” Frederic says. “But to me, it wasn’t that bad. It’s business.”`\
-https://nytimes.com/athletic/5816515/2024/10/04/jeremy-swayman-arbitration-trent-frederic/
-
-**What I'm seeing from the 49ers: Missing ingredient sticks out like sore Achilles**\
-`A person of interest as the 49ers move into October: Sam Okuayinonu, who's looked like their third-best edge rusher in recent weeks.`\
-https://nytimes.com/athletic/5810660/2024/10/04/49ers-observations-christian-mccaffrey-injury/
 

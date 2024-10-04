@@ -1,3 +1,7 @@
+**The Athletic FC: Slot machine that needs no luck, Man Utd's latest issues, Suarez blasts Bielsa**\
+`Today in TAFC: Slot's superb start at Liverpool, Suarez takes aim at Bielsa, and what more is there to say about Manchester United?`\
+https://nytimes.com/athletic/5817774/2024/10/04/slot-machine-that-needs-no-luck-uniteds-problems-after-porto-suarez-blasts-bielsa/
+
 **Padres’ playoff run bolstered by bullpen with ‘different looks, different angles’**\
 `As the Padres prepare to re-enter the fray in L.A., much of the attention will be trained on the quintet at the back of their bullpen.`\
 https://nytimes.com/athletic/5816487/2024/10/04/padres-nlds-bullpen-arms/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/world/middleeast/israel-lebanon-evacuation-warnin
 **Ancelotti accepts 'correct' criticism of Real Madrid after Lille defeat**\
 `Real Madrid manager Carlo Ancelotti says that the criticism following his side&#8217;s defeat to Lille in the Champions League is &#8220;correct&#8221; and called for an urgent response from his side ahead of their clash against Villarreal in La Liga.`\
 https://nytimes.com/athletic/5817910/2024/10/04/carlo-ancelotti-real-madrid-criticism/
-
-**Timber and Ake left out of Netherlands squad**\
-`Arsenal defender Jurrien Timber and Nathan Ake of Manchester City have been left out of the Netherlands squad for October&#8217;s Nations League matches.`\
-https://nytimes.com/athletic/5817898/2024/10/04/jurrien-timber-nathan-ake-netherlands-squad/
 
