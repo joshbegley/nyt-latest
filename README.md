@@ -1,3 +1,7 @@
+**Judge Halts Biden Student Debt Plan Right After It Was Allowed to Proceed**\
+`The ruling was the latest instance of legal whiplash for the over 27 million borrowers who could qualify, and yet another blow to the president’s pledge to provide mass student debt relief.`\
+https://nytimes.com/2024/10/04/us/politics/biden-student-debt-missouri.html
+
 **What's it like in a NASCAR car that gets airborne? 'I'm afraid of flying in general'**\
 `As NASCAR heads back to Talladega, where wild crashes are common, drivers talk about the experience of going airborne after a wreck.`\
 https://nytimes.com/athletic/5819142/2024/10/04/nascar-crash-airborne-talladega-superspeedway/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819188/2024/10/04/padres-joe-musgrove-elbow-injury
 **NFLPA calls to move media interviews out of locker rooms**\
 `In the short term, the NFLPA encouraged each player to ask for interviews outside the locker room.`\
 https://nytimes.com/athletic/5819081/2024/10/04/nflpa-locker-room-media-interviews/
-
-**Red Wings' Jack Campbell entering NHL/NHLPA player assistance program**\
-`Campbell will be away from the club for an undetermined amount of time.`\
-https://nytimes.com/athletic/5819160/2024/10/04/jack-campbell-red-wings-nhl-nhlpa-player-assistance/
 
