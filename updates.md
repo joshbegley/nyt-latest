@@ -1,3 +1,15 @@
+**In Rare Visit to White House Press Briefing, Biden Cautions Israel**\
+`The president suggested that Israel should consider alternative ways to retaliate against Iran.`\
+https://nytimes.com/2024/10/04/world/middleeast/biden-israel-iran-oil-strike.html
+
+**Trump Falsely Promotes Endorsement From Banker Who Hasn’t Endorsed Him**\
+`As the campaign reaches its final month, the Republican nominee is intensifying his pattern of making false and outlandish statements.`\
+https://nytimes.com/2024/10/04/us/politics/trump-dimon-false-endorsement.html
+
+**Padres' Joe Musgrove unavailable for NLDS due to elbow injury**\
+`It's not known yet if Musgrove will return if the Padres advance, but they'll be without him for their Division Series against the Dodgers. `\
+https://nytimes.com/athletic/5819188/2024/10/04/padres-joe-musgrove-elbow-injury-nlds/
+
 **NFLPA calls to move media interviews out of locker rooms**\
 `In the short term, the NFLPA encouraged each player to ask for interviews outside the locker room.`\
 https://nytimes.com/athletic/5819081/2024/10/04/nflpa-locker-room-media-interviews/
