@@ -1,3 +1,11 @@
+**In Rare Sermon, Iran’s Supreme Leader Issues Warning to Israel**\
+`Ayatollah Ali Khamenei led Friday Prayer for the first time in years, delivering a sermon during a memorial service in Tehran for Hezbollah’s leader.`\
+https://nytimes.com/2024/10/04/world/middleeast/ayatollah-khamenei-iran.html
+
+**Ten bold predictions for the Golden Knights in 2024-25**\
+`Jack Eichel will set a new career-high for goals, and a surprise teammate will finish in second place.`\
+https://nytimes.com/athletic/5817490/2024/10/04/golden-knights-predictions-season/
+
 **The Athletic FC: Slot machine that needs no luck, Man Utd's latest issues, Suarez blasts Bielsa**\
 `Today in TAFC: Slot's superb start at Liverpool, Suarez takes aim at Bielsa, and what more is there to say about Manchester United?`\
 https://nytimes.com/athletic/5817774/2024/10/04/slot-machine-that-needs-no-luck-uniteds-problems-after-porto-suarez-blasts-bielsa/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/learning/exploring-your-political-identity-and-va
 **Would You Want to Be a Child Star?**\
 `Jenna Ortega tells Times readers about the joys and the challenges of stardom at a young age. What can we learn from her experience?`\
 https://nytimes.com/2024/10/04/learning/would-you-want-to-be-a-child-star.html
-
-**Israel Expands Evacuation Warnings in Southern Lebanon After Renewed Strikes**\
-`Israeli soldiers were also waging a ground invasion in southern Lebanon targeting what military officials said were Hezbollah sites in the rugged border area.`\
-https://nytimes.com/2024/10/04/world/middleeast/israel-lebanon-evacuation-warnings.html
-
-**Ancelotti accepts 'correct' criticism of Real Madrid after Lille defeat**\
-`Real Madrid manager Carlo Ancelotti says that the criticism following his side&#8217;s defeat to Lille in the Champions League is &#8220;correct&#8221; and called for an urgent response from his side ahead of their clash against Villarreal in La Liga.`\
-https://nytimes.com/athletic/5817910/2024/10/04/carlo-ancelotti-real-madrid-criticism/
 

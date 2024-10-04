@@ -1,3 +1,11 @@
+**In Rare Sermon, Iran’s Supreme Leader Issues Warning to Israel**\
+`Ayatollah Ali Khamenei led Friday Prayer for the first time in years, delivering a sermon during a memorial service in Tehran for Hezbollah’s leader.`\
+https://nytimes.com/2024/10/04/world/middleeast/ayatollah-khamenei-iran.html
+
+**Ten bold predictions for the Golden Knights in 2024-25**\
+`Jack Eichel will set a new career-high for goals, and a surprise teammate will finish in second place.`\
+https://nytimes.com/athletic/5817490/2024/10/04/golden-knights-predictions-season/
+
 **The Athletic FC: Slot machine that needs no luck, Man Utd's latest issues, Suarez blasts Bielsa**\
 `Today in TAFC: Slot's superb start at Liverpool, Suarez takes aim at Bielsa, and what more is there to say about Manchester United?`\
 https://nytimes.com/athletic/5817774/2024/10/04/slot-machine-that-needs-no-luck-uniteds-problems-after-porto-suarez-blasts-bielsa/
