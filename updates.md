@@ -1,3 +1,11 @@
+**Gender Identity Changes Must Be Recognized Across E.U. Borders, Court Rules**\
+`A man who changed his name and gender identity in Britain successfully challenged to have them legally recognized by Romania.`\
+https://nytimes.com/2024/10/04/world/europe/eu-court-gender-identity-transgender.html
+
+**Focus on Raya rivalry 'used to do my head in' - Ramsdale**\
+`Former Arsenal goalkeeper Aaron Ramsdale says the scrutiny he received in the wake of being dropped for David Raya did his &#8220;head in&#8221;.`\
+https://nytimes.com/athletic/5818058/2024/10/04/aaron-ramsdale-david-raya-arsenal/
+
 **The Jobs Report Is Good News for the Fed**\
 `The data reversed recent signs of a labor market slowdown, probably taking away the argument for a big rate cut at the Federal Reserve’s next meeting.`\
 https://nytimes.com/2024/10/04/business/jobs-report-federal-reserve-rate-cuts.html
