@@ -1,6 +1,6 @@
 **The Jobs Report Is Good News for the Fed**\
 `The data reversed recent signs of a labor market slowdown, probably taking away the argument for a big rate cut at the Federal Reserve’s next meeting.`\
-https://nytimes.com/2024/10/04/business/the-jobs-report-is-good-news-for-the-fed.html
+https://nytimes.com/2024/10/04/business/jobs-report-federal-reserve-rate-cuts.html
 
 **Why the Bulls are bringing Joshua Primo into their organization**\
 `When Primo's name surfaces, as it did Thursday, it causes a visceral reaction. So why do the Bulls have interest in the 21-year-old guard?`\

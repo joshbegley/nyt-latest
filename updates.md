@@ -1,5 +1,9 @@
 **The Jobs Report Is Good News for the Fed**\
 `The data reversed recent signs of a labor market slowdown, probably taking away the argument for a big rate cut at the Federal Reserve’s next meeting.`\
+https://nytimes.com/2024/10/04/business/jobs-report-federal-reserve-rate-cuts.html
+
+**The Jobs Report Is Good News for the Fed**\
+`The data reversed recent signs of a labor market slowdown, probably taking away the argument for a big rate cut at the Federal Reserve’s next meeting.`\
 https://nytimes.com/2024/10/04/business/the-jobs-report-is-good-news-for-the-fed.html
 
 **Why the Bulls are bringing Joshua Primo into their organization**\
