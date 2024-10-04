@@ -1,3 +1,11 @@
+**Packers' Keisean Nixon's three-peat bid in jeopardy since nobody will kick to him**\
+`The Packers' back-to-back first-team All-Pro kick returner has been back for 17 kickoffs and 16 have gone for touchbacks.`\
+https://nytimes.com/athletic/5819357/2024/10/04/packers-keisean-nixon-kickoff-return/
+
+**Reporter Asks Biden if He Would Reconsider Dropping Out of the Race**\
+`President Biden, who reluctantly surrendered his bid for a second term, has wanted to be president for most of his adult life.`\
+https://nytimes.com/2024/10/04/us/politics/biden-drop-out-2024-election.html
+
 **Oklahoma Schools Need 55,000 Bibles. Trump-Endorsed Book Fits the Bill.**\
 `The bid details for new Bibles the state is buying seem to point to a version promoted by former President Donald J. Trump.`\
 https://nytimes.com/2024/10/04/us/oklahoma-schools-trump-bible.html
