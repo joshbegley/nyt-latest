@@ -1,3 +1,7 @@
+**All Wild Card Team: Pete Alonso, Bobby Witt Jr., Michael King among top first-round performers**\
+`With one round down and three to go, these have been the best playoff performers so far.`\
+https://nytimes.com/athletic/5818823/2024/10/04/mlb-wild-card-top-performers/
+
 **Conservative Activists Are Monitoring — and Filming — Voter Registration Sites**\
 `In Arizona and other states, the activists are accusing Latino advocacy groups of registering undocumented immigrants. Canvassers are growing concerned about safety.`\
 https://nytimes.com/2024/10/04/us/arizona-nonprofit-voter-registration-recordings.html
@@ -14,7 +18,7 @@ https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/beirut-l
 `Alonso just hit the most game-changing, series-changing home run in any winner-take-all baseball game ever played.`\
 https://nytimes.com/athletic/5818665/2024/10/04/pete-alonso-home-run-mets-brewers-history/
 
-**Two New Bird Flu Cases Diagnosed in California, Officials Say**\
+**As Bird Flu Spreads, Two New Cases Diagnosed in California**\
 `Both patients were dairy workers whose illnesses were mild. Investigators are continuing to evaluate the contacts of a Missouri patient who had no exposure to animals.`\
 https://nytimes.com/2024/10/04/health/bird-flu-california-missouri.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818548/2024/10/04/fabian-hurzeler-defends-adam-web
 **10 Unforgettable Kris Kristofferson Covers**\
 `Many of his songs are better known by other singers’ interpretations, like Janis Joplin’s “Me and Bobby McGee,” Johnny Cash’s “Sunday Morning Coming Down” and more.`\
 https://nytimes.com/2024/10/04/arts/music/amplifier-newsletter-kris-kristofferson-covers.html
-
-**Atletico to ban two fans involved in Madrid derby crowd trouble**\
-`Atletico Madrid say two supporters face liftetime bans after being identified as taking part in the crowd disturbances that marred the Madrid derby on September 29.`\
-https://nytimes.com/athletic/5805882/2024/10/04/atletico-fans-banned-real-madrid/
 
