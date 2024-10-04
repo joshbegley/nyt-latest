@@ -1,7 +1,3 @@
-**A Crackdown**\
-`We explain the Biden administration’s shift on immigration.`\
-https://nytimes.com/2024/10/04/briefing/a-crackdown.html
-
 **Manufacturing is growing and shrinking at the same time.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/manufacturing-is-growing-and-shrinking-at-the-same-time
@@ -37,4 +33,8 @@ https://nytimes.com/2024/10/04/business/europe-china-electric-vehicles-tariffs.h
 **Meet Steven Lorentz: The unknown Maple Leaf who wants to make fans remember his name**\
 `"At the end of the day, I’m a competitor. And no one is taking my f---ing job.”`\
 https://nytimes.com/athletic/5812686/2024/10/04/maple-leafs-steven-lorentz/
+
+**Bears mailbag: Caleb Williams protecting the football, screen plays, plus Week 5 picks**\
+`Can the Bears build off the success against the Rams and win another game as a favorite? This week's mailbag and our Week 5 picks.`\
+https://nytimes.com/athletic/5816789/2024/10/04/caleb-williams-bears-mailbag-panthers/
 
