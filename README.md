@@ -1,3 +1,11 @@
+**Entire Chicago Education Board to Resign Amid Tensions Between Mayor and Schools Chief**\
+`Mayor Brandon Johnson has been at odds with the head of Chicago Public Schools over his plan to fill a $1 billion gap in the district’s budget.`\
+https://nytimes.com/2024/10/04/us/chicago-education-board-resignations.html
+
+**U.S. Conducts Strikes Against Houthis in Yemen**\
+`The Houthis have been attacking ships in the Red Sea in solidarity with Hamas, and the U.S. attacks were aimed at securing international waterways.`\
+https://nytimes.com/2024/10/04/world/middleeast/us-strikes-yemen-houthis.html
+
 **In Rare Visit to White House Press Briefing, Biden Cautions Israel**\
 `The president suggested that Israel should consider alternative ways to retaliate against Iran.`\
 https://nytimes.com/2024/10/04/world/middleeast/biden-israel-iran-oil-strike.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/business/economy/dockworkers-strike-ports-reopen.
 **Biden Voices Concern That the Election May Not Be ‘Peaceful’**\
 `President Biden said he was confident next month’s election would be free and fair, but that he was concerned about what former President Donald J. Trump and his supporters would do if he lost his bid for another term.`\
 https://nytimes.com/video/us/politics/100000009743207/biden-trump-election-peaceful.html
-
-**Ex-OceanGate Employee’s Remarks Hint at Titan Disaster Lawsuits to Come**\
-`A former Coast Guard specialist’s testimony capped two weeks of hearings into the implosion of a submersible that killed five during an attempt to explore the Titanic.`\
-https://nytimes.com/2024/10/04/science/titan-oceangate-titanic-mccoy.html
-
-**Mets to start Kodai Senga in Game 1 of NLDS vs. Phillies**\
-`Mets ace Kodai Senga will make at least as many postseason starts as regular-season ones: New York has tabbed him for Game 1 of the NLDS.`\
-https://nytimes.com/athletic/5819171/2024/10/04/kodai-senga-mets-game-1-nlds-starter/
 
