@@ -1,3 +1,7 @@
+**Trump Rally in Michigan Dominated by More False Statements**\
+`Appearing for roughly 85 minutes onstage, the Republican nominee repeated false claims about the 2020 election and introduced a mischaracterization about disaster-relief money.`\
+https://nytimes.com/2024/10/03/us/politics/trump-rally-michigan.html
+
 **Dodger Details: Freddie Freeman's status, pitching plans, hitting fastballs and more**\
 `LOS ANGELES — If the Los Angeles Dodgers were hoping for a positive sign about Freddie Freeman’s sprained right ankle on Thursday, they got one.`\
 https://nytimes.com/athletic/5817136/2024/10/03/dodger-padres-nlds-freddie-freeman/

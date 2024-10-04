@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5817136/2024/10/03/dodger-padres-nlds-freddie-freem
 
 **Trump Rally in Michigan Dominated by More False Statements**\
 `Appearing for roughly 85 minutes onstage, the Republican nominee repeated false claims about the 2020 election and introduced a mischaracterization about disaster-relief money.`\
-https://nytimes.com/2024/10/03/us/politics/trump-rally-in-michigan-dominated-by-more-false-statements.html
+https://nytimes.com/2024/10/03/us/politics/trump-rally-michigan.html
 
 **In Retrial, Man Convicted of Murder of Transgender Woman**\
 `Rasheen Everett strangled Amanda Gonzalez-Andujar in her Queens apartment. His 2013 conviction was thrown out because of a judge’s error.`\
