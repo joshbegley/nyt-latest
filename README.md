@@ -1,3 +1,7 @@
+**Here Are the Hezbollah Leaders Israel Has Targeted**\
+`Israeli strikes have aimed to kill the leaders of the Lebanese militia, most recently Hashem Safieddine. It was not immediately clear whether he had been killed in an overnight strike near Beirut.`\
+https://nytimes.com/2024/10/04/world/middleeast/hezbollah-leadership.html
+
 **The Windup: Was that Pete Alonso's signature moment?**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter.`\
 https://nytimes.com/athletic/5818493/2024/10/04/pete-alonso-wild-card-terry-francona-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818473/2024/10/04/live-chat-with-the-athletics-kei
 **At least 70 People Dead in Gang Attack in Haiti**\
 `The assault took place in a key agricultural region, which has seen a surge in gang violence.`\
 https://nytimes.com/2024/10/04/us/haiti-gang-attack.html
-
-**The Bounce: A new plan for NBA playoff seeding**\
-`Welcome to The Bounce, The Athletic's daily NBA newsletter.`\
-https://nytimes.com/athletic/5818432/2024/10/04/nba-playoff-seeding-dikembe-mutombo-the-bounce/
 
