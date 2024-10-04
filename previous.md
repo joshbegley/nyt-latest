@@ -1,3 +1,11 @@
+**How States Are Enticing Employers to Help Their Workers Save for College**\
+`With college costs high, at least eight states now offer tax credits or deductions for employers that contribute to workers’ 529 accounts.`\
+https://nytimes.com/2024/10/04/your-money/college-saving-plans-employee-benefits.html
+
+**Meta Unveils Instant A.I. Video Generator That Adds Sounds**\
+`The tech giant is among the many companies building technology that could remake Hollywood — or help spread disinformation.`\
+https://nytimes.com/2024/10/04/technology/meta-instant-ai-video-generator-adds-sounds.html
+
 **Rajon Rondo comes 'full circle' with mentor Doc Rivers as guest coach at Bucks camp**\
 `Rondo, the four-time All-Star, visited Bucks camp to offer advice to unlock the Giannis Antetokounmpo and Damian Lillard pairing on offense.`\
 https://nytimes.com/athletic/5816549/2024/10/04/bucks-rajon-rondo-doc-rivers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5816487/2024/10/04/padres-nlds-bullpen-arms/
 **At Least 14 Die as Floods Sweep Through Bosnia and Other Balkan States**\
 `A severe overnight rainstorm left several towns and villages flooded. Record summer temperatures caused a drought that hampered the absorption of floodwaters.`\
 https://nytimes.com/2024/10/04/world/europe/bosnia-flooding-balkans.html
-
-**Britain Backs Plan to Store Carbon Dioxide Under the Sea**\
-`Two proposals in Northern England, led by the energy giants BP and Eni, aim to establish an industry in burying emissions from industrial plants.`\
-https://nytimes.com/2024/10/04/business/britain-carbon-capture.html
-
-**Jobs and Oil Prices Are Keeping Markets on Edge**\
-`Friday’s jobs report could bolster the view that the American economy is holding steady, but an oil price shock could undercut that sense of calm.`\
-https://nytimes.com/2024/10/04/business/dealbook/jobs-and-oil-prices-are-keeping-markets-on-edge.html
 

@@ -1,3 +1,11 @@
+**How States Are Enticing Employers to Help Their Workers Save for College**\
+`With college costs high, at least eight states now offer tax credits or deductions for employers that contribute to workers’ 529 accounts.`\
+https://nytimes.com/2024/10/04/your-money/college-saving-plans-employee-benefits.html
+
+**Meta Unveils Instant A.I. Video Generator That Adds Sounds**\
+`The tech giant is among the many companies building technology that could remake Hollywood — or help spread disinformation.`\
+https://nytimes.com/2024/10/04/technology/meta-instant-ai-video-generator-adds-sounds.html
+
 **Rajon Rondo comes 'full circle' with mentor Doc Rivers as guest coach at Bucks camp**\
 `Rondo, the four-time All-Star, visited Bucks camp to offer advice to unlock the Giannis Antetokounmpo and Damian Lillard pairing on offense.`\
 https://nytimes.com/athletic/5816549/2024/10/04/bucks-rajon-rondo-doc-rivers/
