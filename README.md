@@ -1,3 +1,11 @@
+**3 Warming Dishes for Crisp Fall Days**\
+`Carolina Gelen, a cookbook author and video personality, shares cozy vegetable recipes from her childhood in Romania.`\
+https://nytimes.com/2024/10/04/dining/vegetable-romanian-dishes.html
+
+**How Does Your Facial Hair Make You Feel?**\
+`We want to hear about how women’s experiences of having visible facial hair impact their day-to-day.`\
+https://nytimes.com/2024/10/04/style/facial-hair-callout.html
+
 **Mark Zuckerberg Tries His Hand at Fashion**\
 `Et tu, Zuck?`\
 https://nytimes.com/2024/10/04/style/mark-zuckerberg-tries-his-hand-at-fashion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/us/politics/supreme-court-methane-mercury-emissio
 **China's male tennis players look to Zheng Qinwen and Li Na in bid to make a statement**\
 `While two of its women have become global stars, China's presence in the men's game has been limited. These players want to change that`\
 https://nytimes.com/athletic/5815591/2024/10/04/tennis-china-atp-zhang-bu-jerry-shang/
-
-**69 Percent of New Yorkers Think Eric Adams Should Resign, Poll Shows**\
-`Just 26 percent of New York City residents approve of the mayor and a majority want him to step down, according to a poll taken after his indictment on corruption charges.`\
-https://nytimes.com/2024/10/04/nyregion/eric-adams-resign-poll.html
-
-**What Game Theory Tells Us About the Threat of an Israel-Iran War**\
-`Each side must predict how the other will react to avoid mutual destruction.`\
-https://nytimes.com/2024/10/04/world/middleeast/what-game-theory-tells-us-about-the-threat-of-an-israel-iran-war.html
 
