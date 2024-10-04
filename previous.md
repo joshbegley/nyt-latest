@@ -1,3 +1,11 @@
+**Extreme Weather Gives Video Games a Powerful Adversary**\
+`Designers are increasingly able to render weather conditions as not just evocative visual effects but phenomena that physically affect the player.`\
+https://nytimes.com/2024/10/04/arts/extreme-weather-storms-video-games.html
+
+**An Israeli strike targeting a West Bank Hamas leader killed civilians, including a family of 4, residents say.**\
+`Other civilians were also`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/an-israeli-strike-targeting-a-west-bank-hamas-leader-killed-civilians-including-a-family-of-4-residents-say
+
 **The labor market shows unexpected strength.**\
 `By Talmon Joseph Smith`\
 https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/the-labor-market-shows-unexpected-strength
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/arts/arts-district-decades-in-the-making-in-ruins
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 7?**\
 `As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for upcoming games`\
 https://nytimes.com/athletic/5805521/2024/10/04/premier-league-predicted-line-ups-gameweek-7/
-
-**Adapting to the Champions League’s New Reality**\
-`This year more than ever is showing that the competition means different things to different clubs. And that’s a good thing.`\
-https://nytimes.com/2024/10/04/world/europe/champions-league.html
-
-**Orange Beef Will Cure What Ails You**\
-`It’s takeout-style Chinese American cooking brought into your home kitchen, where you can get as creative as you’d like.`\
-https://nytimes.com/2024/10/04/dining/orange-beef-will-cure-what-ails-you.html
 

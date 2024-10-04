@@ -1,3 +1,11 @@
+**Extreme Weather Gives Video Games a Powerful Adversary**\
+`Designers are increasingly able to render weather conditions as not just evocative visual effects but phenomena that physically affect the player.`\
+https://nytimes.com/2024/10/04/arts/extreme-weather-storms-video-games.html
+
+**An Israeli strike targeting a West Bank Hamas leader killed civilians, including a family of 4, residents say.**\
+`Other civilians were also`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/an-israeli-strike-targeting-a-west-bank-hamas-leader-killed-civilians-including-a-family-of-4-residents-say
+
 **The labor market shows unexpected strength.**\
 `By Talmon Joseph Smith`\
 https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/the-labor-market-shows-unexpected-strength
