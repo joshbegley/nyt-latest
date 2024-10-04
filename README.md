@@ -1,3 +1,7 @@
+**Some Evidence in Adams Case Involves Classified Material, U.S. Says**\
+`In a letter to the judge handling the Eric Adams corruption case, federal prosecutors said there was evidence that could damage national security if exposed in open court.`\
+https://nytimes.com/2024/10/03/nyregion/eric-adams-classified-intelligence.html
+
 **Liz Cheney Endorses Kamala Harris**\
 `The former congresswoman and Republican exile campaigned with the vice president in the battleground state of Wisconsin.`\
 https://nytimes.com/video/us/elections/100000009741469/liz-cheney-harris-trump-wisconsin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/crosswords/daily-puzzle-2024-10-04.html
 **Dodger Details: Freddie Freeman's status, pitching plans, hitting fastballs and more**\
 `LOS ANGELES — If the Los Angeles Dodgers were hoping for a positive sign about Freddie Freeman’s sprained right ankle on Thursday, they got one.`\
 https://nytimes.com/athletic/5817136/2024/10/03/dodger-padres-nlds-freddie-freeman/
-
-**Trump Rally in Michigan Dominated by More False Statements**\
-`Appearing for roughly 85 minutes onstage, the Republican nominee repeated false claims about the 2020 election and introduced a mischaracterization about disaster-relief money.`\
-https://nytimes.com/2024/10/03/us/politics/trump-rally-michigan.html
 
