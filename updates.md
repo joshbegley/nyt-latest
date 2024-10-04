@@ -1,3 +1,7 @@
+**Who Is Hashem Safieddine, the Latest Hezbollah Official Targeted by Israel?**\
+`A cousin and possible successor to Hassan Nasrallah, the Hezbollah leader assassinated by Israel, Safieddine joined the group soon after it was formed and rose quickly up its ranks.`\
+https://nytimes.com/2024/10/03/world/middleeast/hashem-safieddine-hezbollah-leader.html
+
 **Teenagers on What Has Shaped Their Political Beliefs and Values**\
 `Ahead of the 2024 Election, we invited teens to explore their political identities and tell us how they have come to believe what they believe.`\
 https://nytimes.com/2024/10/03/learning/teenagers-on-what-has-shaped-their-political-beliefs-and-values.html
