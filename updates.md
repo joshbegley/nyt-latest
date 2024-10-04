@@ -1,3 +1,7 @@
+**Pogba has four-year doping ban reduced to 18 months after successful appeal**\
+`Paul Pogba says his “nightmare is over” and he “cannot wait to get back on the pitch” after his four-year ban for failing an anti-doping test was reduced to 18 months.`\
+https://nytimes.com/athletic/5818652/2024/10/04/paul-pogba-ban-appeal-successful-return/
+
 **Devils defeat Sabres in opening Global Series game**\
 `Here are some takeaways from the Devils’ 4-1 win over the Sabres on Friday in Prague.`\
 https://nytimes.com/athletic/5818658/2024/10/04/devils-vs-sabres-nhl-global-series-game-1-takeaways/

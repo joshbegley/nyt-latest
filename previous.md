@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5818658/2024/10/04/devils-vs-sabres-nhl-global-seri
 
 **Pogba has four-year doping ban reduced to 18 months after successful appeal**\
 `Paul Pogba says his “nightmare is over” and he “cannot wait to get back on the pitch” after his four-year ban for failing an anti-doping test was reduced to 18 months.`\
-https://nytimes.com/athletic/5818652/2024/10/04/paul-pogba-ban-appeal-succesful-return/
+https://nytimes.com/athletic/5818652/2024/10/04/paul-pogba-ban-appeal-successful-return/
 
 **In Key Nevada County, Harassment of Election Workers Takes a Toll**\
 `Republicans this year attempted to block certification of local elections in Washoe, a critical swing county — a worrying sign for what could be ahead, the Democratic secretary of state said.`\
