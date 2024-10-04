@@ -1,3 +1,7 @@
+**How Slot prepares Liverpool: 'Body wake-up', ice baths and wellness checks**\
+`New Dutch coach is painstaking in his methods ahead of a matchday - and it is paying off`\
+https://nytimes.com/athletic/5815741/2024/10/04/arne-slot-liverpool-preparations-matchday/
+
 **Row Z: Ronaldo the team player, Celtic's 70,716 miles of suffering and a blow-up Kane**\
 `Your weekly look at the more curious side of football - also featuring Jose Mourinho's laptop`\
 https://nytimes.com/athletic/5812263/2024/10/04/row-z-ronaldo-the-team-player-celtics-70716-miles-of-suffering-and-a-blow-up-kane/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/world/europe/uk-labour-cabinet-working-class-free
 **Do Premier League red cards apply across all competitions - and how long do suspensions last?**\
 `Suspensions and bans are difficult to keep track of across different competitions`\
 https://nytimes.com/athletic/5808785/2024/10/04/premier-league-red-cards-yellow-ban-length/
-
-**We Were Just Voices in a Dark Room**\
-`Having barely met, we fell deep through late-night phone calls. Did that mean we were meant for each other?`\
-https://nytimes.com/2024/10/04/style/modern-love-we-were-voices-in-a-dark-room.html
 
