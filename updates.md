@@ -1,3 +1,11 @@
+**49ers to wear white pants with forecasted high near 100 degrees**\
+`The team was hoping to wear its all-white throwback uniforms; instead it'll settle for its throwback red jerseys with white pants.`\
+https://nytimes.com/athletic/5819471/2024/10/04/49ers-white-pants-100-degrees-cardinals/
+
+**Biden Cautions Israel on Striking Iranian Oil Fields**\
+`President Biden said Israel should consider alternative ways of retaliating against Iran, a day after he said the United States was “in discussion” about the possibility of Israel striking Iran’s oil fields.`\
+https://nytimes.com/video/us/politics/100000009743470/biden-israel-iran-oil-fields.html
+
 **Shock in French Court Shown Videos of Men Accused of Raping Drugged Woman**\
 `Gisèle Pelicot fought for the graphic videos made by her husband to be shown publicly in court, insisting they were essential evidence in a rape case against him and 50 other men.`\
 https://nytimes.com/2024/10/04/world/europe/france-rape-trial-pelicot-videos.html
