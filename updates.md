@@ -1,3 +1,7 @@
+**De Bruyne out of Belgium squad for Nations League games**\
+`Kevin De Bruyne has been left out of Belgium&#8217;s squad for their October fixtures in the Nations League.`\
+https://nytimes.com/athletic/5817722/2024/10/04/kevin-de-bruyne-injury-update-belgium/
+
 **Why Eric Adams Is Nothing Like David Dinkins**\
 `Facing a raft of corruption charges, New York’s second Black mayor is flattering himself by invoking the fate of its first.`\
 https://nytimes.com/2024/10/04/nyregion/mayor-eric-adams-david-dinkins.html
