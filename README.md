@@ -1,3 +1,7 @@
+**Real Madrid lose legal battle against French paper Le Monde**\
+`Real Madrid do not lose many battles in Europe but they lost one on Friday when the European Court of Justice (ECJ) ruled against them in their long-running row with French newspaper Le Monde.`\
+https://nytimes.com/athletic/5818063/2024/10/04/real-madrid-lose-court-case-le-monde/
+
 **A Beaver’s Future Reached the Courts. Then the Massachusetts Governor Stepped In.**\
 `Nibi the beaver was saved by a wildlife rescue. But then she was ordered released into the wild. Her fate was on the line.`\
 https://nytimes.com/2024/10/04/us/nibi-beaver-boston.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/10/04/us/nibi-beaver-boston.html
 https://nytimes.com/2024/10/04/us/politics/supreme-court-methane-mercury-emissions-biden.html
 
 **China's male tennis players look to Zheng Qinwen and Li Na in bid to make a statement**\
-`While Li Na and Zheng Qinwen have become global stars, China's presence on the ATP Tour has been limited. These players want to change that`\
+`While Li Na and Zheng Qinwen have become global stars, China's presence in the men's game has been limited. These players want to change tha`\
 https://nytimes.com/athletic/5815591/2024/10/04/tennis-china-atp-zhang-bu-jerry-shang/
 
 **69 Percent of New Yorkers Think Eric Adams Should Resign, Poll Shows**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/04/us/elections/2024-election-undecided-
 **World Series odds entering division series: Yankees jump the Dodgers as favorites**\
 `We check back in on MLB futures as eight teams prepare to battle in the divisional round.`\
 https://nytimes.com/athletic/5818292/2024/10/04/world-series-odds-division-series-yankees-dodgers/
-
-**Engaging With a Conservative on Campus**\
-`Responses to a conservative professor’s guest essay. Also: JD Vance at the debate; caring for child caregivers; smaller restaurant portions.`\
-https://nytimes.com/2024/10/04/opinion/conservatives-college.html
 
