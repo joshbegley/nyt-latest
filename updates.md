@@ -1,3 +1,7 @@
+**Scientists Found a Surprising Way to Make Fungus Happy**\
+`The discovery that sound improves the growth rate of beneficial fungus suggests that dirges in the dirt may help restore forests.`\
+https://nytimes.com/2024/10/04/science/fungus-sounds-growth.html
+
 **China Buys Nearly All of Iran’s Oil Exports, but Has Options if Israel Attacks**\
 `China has strategic reserves and alternatives like electric cars, should oil imports ever be interrupted.`\
 https://nytimes.com/2024/10/04/business/iran-oil-sales-china.html

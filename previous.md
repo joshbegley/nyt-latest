@@ -1,3 +1,7 @@
+**Scientists Found a Surprising Way to Make Fungus Happy**\
+`The discovery that sound improves the growth rate of beneficial fungus suggests that dirges in the dirt may help restore forests.`\
+https://nytimes.com/2024/10/04/science/fungus-sounds-growth.html
+
 **China Buys Nearly All of Iran’s Oil Exports, but Has Options if Israel Attacks**\
 `China has strategic reserves and alternatives like electric cars, should oil imports ever be interrupted.`\
 https://nytimes.com/2024/10/04/business/iran-oil-sales-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5796141/2024/10/04/sorare-premier-league-charge-gam
 **How States Are Enticing Employers to Help Their Workers Save for College**\
 `With college costs high, at least eight states now offer tax credits or deductions for employers that contribute to workers’ 529 accounts.`\
 https://nytimes.com/2024/10/04/your-money/college-saving-plans-employee-benefits.html
-
-**Meta Unveils Instant A.I. Video Generator That Adds Sounds**\
-`The tech giant is among the many companies building technology that could remake Hollywood — or help spread disinformation.`\
-https://nytimes.com/2024/10/04/technology/meta-instant-ai-video-generator-adds-sounds.html
 
