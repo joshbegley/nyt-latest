@@ -1,3 +1,15 @@
+**Here are the latest developments.**\
+`By Victoria Kim and Farnaz Fassihi`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/here-are-the-latest-developments
+
+**Israel Targets Remaining Hezbollah Leaders in Beirut, Officials Say**\
+`Huge explosions rocked the city following a day of particularly deadly Israeli attacks in Gaza and the West Bank. In Iran, Ayatollah Ali Khamenei was expected to lead Friday prayers.`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon
+
+**Late Night Heaps Scorn on Trump’s Latest Defense**\
+`Jimmy Kimmel said Donald Trump was “partially right” in denying interference in the 2020 election: “He tried to rig the election and failed to rig the election.’`\
+https://nytimes.com/2024/10/04/arts/television/late-night-trump-filing.html
+
 **Why Eric Adams Is Nothing Like David Dinkins**\
 `Facing a raft of corruption charges, New York’s second Black mayor is flattering himself by invoking the fate of its first.`\
 https://nytimes.com/2024/10/04/nyregion/why-eric-adams-is-nothing-like-david-dinkins.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5814832/2024/10/04/israel-fifa-investigation/
 **Word of the Day: longitudinal**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/04/learning/word-of-the-day-longitudinal.html
-
-**Why Renato Veiga is becoming that Chelsea rarity - a bargain buy**\
-`The versatile Portuguese has played more minutes under Maresca than some senior names this season - and it is easy to understand why`\
-https://nytimes.com/athletic/5817021/2024/10/04/renato-veiga-chelsea-bargain/
-
-**Hodinkee, the Watch Fan Site, Is Sold to a British Retailer**\
-`Neither Benjamin Clymer, its founder, nor the Watches of Switzerland Group would disclose terms, but they stressed that coverage would continue to be independent.`\
-https://nytimes.com/2024/10/04/fashion/hodinkee-sale-watches-of-switzerland.html
-
-**Brazil’s Largest Mafia Is Entering Politics. The Government Must Act.**\
-`For many Brazilians, the First Capital Command’s push into politics across the nation has been a shock.`\
-https://nytimes.com/2024/10/04/opinion/brazil-crime-pcc-cocaine.html
 
