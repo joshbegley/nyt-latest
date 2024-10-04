@@ -1,3 +1,7 @@
+**Without Aid, This Famine May Become One of History’s Worst**\
+`By Nicholas Kristof`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/sudan-famine-world-food-program
+
 **Judge Halts Biden Student Debt Plan Right After It Was Allowed to Proceed**\
 `The ruling was the latest instance of legal whiplash for the over 27 million borrowers who could qualify, and yet another blow to the president’s pledge to provide mass student debt relief.`\
 https://nytimes.com/2024/10/04/us/politics/biden-student-debt-missouri.html

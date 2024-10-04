@@ -1,3 +1,7 @@
+**Without Aid, This Famine May Become One of History’s Worst**\
+`By Nicholas Kristof`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/sudan-famine-world-food-program
+
 **Judge Halts Biden Student Debt Plan Right After It Was Allowed to Proceed**\
 `The ruling was the latest instance of legal whiplash for the over 27 million borrowers who could qualify, and yet another blow to the president’s pledge to provide mass student debt relief.`\
 https://nytimes.com/2024/10/04/us/politics/biden-student-debt-missouri.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/us/politics/trump-dimon-false-endorsement.html
 **Padres' Joe Musgrove unavailable for NLDS due to elbow injury**\
 `It's not known yet if Musgrove will return if the Padres advance, but they'll be without him for their Division Series against the Dodgers. `\
 https://nytimes.com/athletic/5819188/2024/10/04/padres-joe-musgrove-elbow-injury-nlds/
-
-**NFLPA calls to move media interviews out of locker rooms**\
-`In the short term, the NFLPA encouraged each player to ask for interviews outside the locker room.`\
-https://nytimes.com/athletic/5819081/2024/10/04/nflpa-locker-room-media-interviews/
 
