@@ -1,3 +1,7 @@
+**‘My dreams are about bombs’: Beirut grapples with yet another in a long series of crises.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/beirut-lebanon-israel-airstrikes-mood
+
 **Pete Alonso's amazin', improbable October home run and a Mets comeback for the ages**\
 `Alonso just hit the most game-changing, series-changing home run in any winner-take-all baseball game ever played.`\
 https://nytimes.com/athletic/5818665/2024/10/04/pete-alonso-home-run-mets-brewers-history/
@@ -8,7 +12,7 @@ https://nytimes.com/2024/10/04/health/bird-flu-california-missouri.html
 
 **Syria and Russia remain silent on reported airstrikes on a weapons facility near a Russian base in Syria.**\
 `By Eve Sampson, Anton Troianovski, Aric Toler and Oleg Matsnev`\
-https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/syria-and-russia-remain-silent-on-reported-airstrikes-on-a-weapons-facility-near-a-russian-base-in-syria
+https://nytimes.com/2024/10/04/world/middleeast/israel-strikes-russian-airbase-syria.html
 
 **Disaster Funding Has Its Own Perils**\
 `Congressional leaders deferred a debate over sending federal money to respond to Hurricane Helene until after the election, delaying a potentially messy political fight.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818723/2024/10/04/colts-anthony-richardson-jonatha
 **National League Division Series predictions: Our experts make their picks**\
 `The stage is set for the National League Division Series, which features not one but two storied rivalries.`\
 https://nytimes.com/athletic/5818482/2024/10/04/nlds-series-predictions-mlb-experts/
-
-**The Savannah Bananas Needed a Bigger Stage**\
-`Everyone’s favorite dancing baseball team is taking its act almost exclusively to M.L.B. and football stadiums in 2025, with even more extreme changes on the horizon.`\
-https://nytimes.com/2024/10/04/style/savannah-bananas-schedule.html
 
