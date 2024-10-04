@@ -1,3 +1,7 @@
+**Row Z: Ronaldo the team player, Celtic's 70,716 miles of suffering and a blow-up Kane**\
+`Your weekly look at the more curious side of football - also featuring Jose Mourinho's laptop`\
+https://nytimes.com/athletic/5812263/2024/10/04/row-z-ronaldo-the-team-player-celtics-70716-miles-of-suffering-and-a-blow-up-kane/
+
 **Palmer, Kane, Watkins, Saka, Bellingham, Foden... who starts in England's attack?**\
 `Lee Carsley boasts a lavish array of attacking talent, but striking the right balance across his front four will be key to England's success`\
 https://nytimes.com/athletic/5815925/2024/10/04/england-bellingham-foden-grealish-palmer-saka-carsley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5808785/2024/10/04/premier-league-red-cards-yellow-
 **We Were Just Voices in a Dark Room**\
 `Having barely met, we fell deep through late-night phone calls. Did that mean we were meant for each other?`\
 https://nytimes.com/2024/10/04/style/modern-love-we-were-voices-in-a-dark-room.html
-
-**A Welcome Break on ‘One of the Hardest Days’ of Her Life**\
-`Mary Kathryn Burke was ready for a drink after her mother was admitted to the hospital. Jonathan King messaged her at the right time.`\
-https://nytimes.com/2024/10/04/style/mary-kathryn-burke-jonathan-king-wedding.html
 
