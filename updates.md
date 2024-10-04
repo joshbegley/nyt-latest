@@ -1,3 +1,11 @@
+**China Buys Nearly All of Iran’s Oil Exports, but Has Options if Israel Attacks**\
+`China has strategic reserves and alternatives like electric cars, should oil imports ever be interrupted.`\
+https://nytimes.com/2024/10/04/business/iran-oil-sales-china.html
+
+**USMNT's Reyna suffers setback in groin injury recovery**\
+`Borussia Dortmund say United States winger Gio Reyna has suffered a setback in his bid to recover from a groin injury.`\
+https://nytimes.com/athletic/5818102/2024/10/04/gio-reyna-injury-setback-usmnt/
+
 **Gender Identity Changes Must Be Recognized Across E.U. Borders, Court Rules**\
 `A man who changed his name and gender identity in Britain successfully challenged to have them legally recognized by Romania.`\
 https://nytimes.com/2024/10/04/world/europe/eu-court-gender-identity-transgender.html

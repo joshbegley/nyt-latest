@@ -1,3 +1,11 @@
+**China Buys Nearly All of Iran’s Oil Exports, but Has Options if Israel Attacks**\
+`China has strategic reserves and alternatives like electric cars, should oil imports ever be interrupted.`\
+https://nytimes.com/2024/10/04/business/iran-oil-sales-china.html
+
+**USMNT's Reyna suffers setback in groin injury recovery**\
+`Borussia Dortmund say United States winger Gio Reyna has suffered a setback in his bid to recover from a groin injury.`\
+https://nytimes.com/athletic/5818102/2024/10/04/gio-reyna-injury-setback-usmnt/
+
 **Gender Identity Changes Must Be Recognized Across E.U. Borders, Court Rules**\
 `A man who changed his name and gender identity in Britain successfully challenged to have them legally recognized by Romania.`\
 https://nytimes.com/2024/10/04/world/europe/eu-court-gender-identity-transgender.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/your-money/college-saving-plans-employee-benefits
 **Meta Unveils Instant A.I. Video Generator That Adds Sounds**\
 `The tech giant is among the many companies building technology that could remake Hollywood — or help spread disinformation.`\
 https://nytimes.com/2024/10/04/technology/meta-instant-ai-video-generator-adds-sounds.html
-
-**Rajon Rondo comes 'full circle' with mentor Doc Rivers as guest coach at Bucks camp**\
-`Rondo, the four-time All-Star, visited Bucks camp to offer advice to unlock the Giannis Antetokounmpo and Damian Lillard pairing on offense.`\
-https://nytimes.com/athletic/5816549/2024/10/04/bucks-rajon-rondo-doc-rivers/
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/10/04/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
