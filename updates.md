@@ -1,3 +1,11 @@
+**10 Unforgettable Kris Kristofferson Covers**\
+`Many of his songs are better known by other singers’ interpretations, like Janis Joplin’s “Me and Bobby McGee,” Johnny Cash’s “Sunday Morning Coming Down” and more.`\
+https://nytimes.com/2024/10/04/arts/music/amplifier-newsletter-kris-kristofferson-covers.html
+
+**Atletico to ban two fans involved in Madrid derby crowd trouble**\
+`Atletico Madrid say two supporters face liftetime bans after being identified as taking part in the crowd disturbances that marred the Madrid derby on September 29.`\
+https://nytimes.com/athletic/5805882/2024/10/04/atletico-fans-banned-real-madrid/
+
 **Colts RB Taylor out vs. Jaguars, QB Richardson's status TBD**\
 `Richardson played just 13 snaps last week before exiting in the first quarter after taking a hit from Steelers' Minkah Fitzpatrick.`\
 https://nytimes.com/athletic/5818723/2024/10/04/colts-anthony-richardson-jonathan-taylor-injury-update/
