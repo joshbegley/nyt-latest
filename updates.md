@@ -1,3 +1,11 @@
+**Former Ohio State QB Terrelle Pryor sues school, Big Ten, NCAA over NIL**\
+`Pryor’s lawsuit comes on the heels of former USC star and Heisman Trophy winner Reggie Bush filing a similar suit.`\
+https://nytimes.com/athletic/5818571/2024/10/04/terrelle-pryor-sues-ncaa-ohio-state/
+
+**This Is What Electoral Fraud Looks Like**\
+`Amazing how our legal system is able to distinguish between real and fake evidence, isn’t it?`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/tina-peters-donald-trump
+
 **Fantasy football flex fliers: Antonio Gibson, Josh Downs and more deep sleepers to consider in Week 5**\
 `Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 5 free agency.`\
 https://nytimes.com/athletic/5818615/2024/10/04/fantasy-football-flex-fliers-deep-sleepers-week-5-gibson-downs/
