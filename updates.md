@@ -1,3 +1,11 @@
+**How Brock Purdy's growth, aggressiveness are evolving Kyle Shanahan's 49ers offense**\
+`The quarterback has leaned heavily on play-action in his career but now is dropping back and taking far more deep shots.`\
+https://nytimes.com/athletic/5812829/2024/10/04/brock-purdy-49ers-offense-shanahan/
+
+**World No. 1 Iga Swiatek splits with coach, withdraws from Wuhan Masters 1000**\
+`Iga Swiatek has parted ways with Tomasz Wiktorowski, with whom she won four of her five Grand Slam titles.`\
+https://nytimes.com/athletic/5817753/2024/10/04/iga-swiatek-coach-wuhan/
+
 **Why the Patriots would be wise to pass on the Davante Adams sweepstakes**\
 `The Patriots badly need a No. 1 wide receiver, but Adams isn't the answer for this rebuilding franchise.`\
 https://nytimes.com/athletic/5815976/2024/10/04/patriots-davante-adams-raiders-trade/
