@@ -1,3 +1,15 @@
+**All Wild Card Team: Pete Alonso, Bobby Witt Jr., Michael King among top first-round performers**\
+`With one round down and three to go, these have been the best playoff performers so far.`\
+https://nytimes.com/athletic/5818823/2024/10/04/mlb-wild-card-top-performers/
+
+**Conservative Activists Are Monitoring, and Filming, Voter Registration Sites**\
+`In Arizona and other states, the activists are accusing Latino advocacy groups of registering undocumented immigrants. Canvassers are growing concerned about safety.`\
+https://nytimes.com/2024/10/04/us/arizona-nonprofit-voter-registration-recordings.html
+
+**As Bird Flu Spreads, Two New Cases Diagnosed in California**\
+`Both patients were dairy workers whose illnesses were mild. Investigators are continuing to evaluate the contacts of a Missouri patient who had no exposure to animals.`\
+https://nytimes.com/2024/10/04/health/bird-flu-california-missouri.html
+
 **Conservative Activists Are Monitoring — and Filming — Voter Registration Sites**\
 `In Arizona and other states, the activists are accusing Latino advocacy groups of registering undocumented immigrants. Canvassers are growing concerned about safety.`\
 https://nytimes.com/2024/10/04/us/arizona-nonprofit-voter-registration-recordings.html
