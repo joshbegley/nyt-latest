@@ -1,3 +1,7 @@
+**Iran’s Foreign Minister Reaches Out to Arab Leaders in Lebanon, Qatar**\
+`Iran’s top diplomat appeared eager to convey Iran’s readiness to support a joint cease-fire in Lebanon and in Gaza — even as Iran’s supreme leader at home expressed readiness to fight Israel.`\
+https://nytimes.com/2024/10/04/world/middleeast/iran-lebanon-gaza-ceasefire.html
+
 **Omari Hutchinson opts to battle for place in England squad over Jamaica call-up**\
 `Hutchinson's fine form at Ipswich Town left the attacking midfielder with a big decision to make`\
 https://nytimes.com/athletic/5818945/2024/10/04/omari-hutchinson-england-jamaica/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/opinion/coppola-megalopolis-decadence.html
 **I’m a Queer Man Who Had a Fling With Another Guy. Should His Girlfriend Be Told?**\
 `The magazine’s Ethicist columnist on who has the right and responsibility to reveal an affair.`\
 https://nytimes.com/2024/10/04/magazine/fling-girlfriend-reveal-ethics.html
-
-**Biden Will Allow Legal Permission to Lapse for Migrants From 4 Countries**\
-`The decision comes as political pressure mounts to cut down on programs that allow migrants to stay in the United States temporarily, even without a visa or green card.`\
-https://nytimes.com/2024/10/04/us/politics/biden-will-allow-legal-status-to-lapse-for-migrants-from-4-countries.html
 
