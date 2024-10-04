@@ -6,6 +6,10 @@ https://nytimes.com/2024/10/04/us/oklahoma-schools-trump-bible.html
 `Israel is drastically widening its fight against the Lebanese militant group that is backed by Iran, whose supreme leader said that “any strike on the Zionist regime is a service to humanity.”`\
 https://nytimes.com/2024/10/04/world/middleeast/israel-hezbollah-lebanon.html
 
+**Packers' Keisean Nixon's three-peat bid in jeopardy since nobody will kick to him**\
+`The Packers' back-to-back first-team All-Pro kick returner has been back for 17 kickoffs and 16 have gone for touchbacks.`\
+https://nytimes.com/athletic/5819357/2024/10/04/packers-keisean-nixon-kickoff-return/
+
 **Trump’s False Claims About the Federal Response to Hurricane Helene**\
 `The former president falsely accused the Biden administration of spending disaster funding on migrants, neglecting areas that had voted for Republicans and ignoring a call from a Republican governor.`\
 https://nytimes.com/2024/10/04/us/politics/trump-helene-fema-fact-check.html
@@ -20,7 +24,7 @@ https://nytimes.com/2024/10/04/us/politics/election-israel-iran.html
 
 **Reporter Asks Biden if He Would Reconsider Dropping Out of the Race**\
 `President Biden, who reluctantly surrendered his bid for a second term, has wanted to be president for most of his adult life.`\
-https://nytimes.com/2024/10/04/us/politics/reporter-asks-biden-if-he-would-reconsider-dropping-out-of-the-race.html
+https://nytimes.com/2024/10/04/us/politics/biden-drop-out-2024-election.html
 
 **What to Know About the Verdict in the Tyre Nichols Case**\
 `Three former Memphis police officers were found guilty on Thursday of federal witness tampering charges in the fatal beating of Tyre Nichols, a 29-year-old Black man.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/us/politics/trump-donations-assassination-attempt
 **Her 8-Year-Old Drove Herself to Target and Became an Internet Star**\
 `Tangie Wilson was sleeping when her daughter Zoe sneaked out of the house and drove to the store. The tale of how it all unfolded is as relatable as it is incredible.`\
 https://nytimes.com/2024/10/04/style/target-girl-mom-interview.html
-
-**49ers to wear white pants with forecasted high near 100 degrees**\
-`The team was hoping to wear its all-white throwback uniforms; instead it'll settle for its throwback red jerseys with white pants.`\
-https://nytimes.com/athletic/5819471/2024/10/04/49ers-white-pants-100-degrees-cardinals/
 
