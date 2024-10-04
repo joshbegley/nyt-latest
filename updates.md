@@ -1,3 +1,7 @@
+**Rajon Rondo comes 'full circle' with mentor Doc Rivers as guest coach at Bucks camp**\
+`Rondo, the four-time All-Star, visited Bucks camp to offer advice to unlock the Giannis Antetokounmpo and Damian Lillard pairing on offense.`\
+https://nytimes.com/athletic/5816549/2024/10/04/bucks-rajon-rondo-doc-rivers/
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/04/us/harris-trump-election/heres-the-latest-on-the-presidential-race

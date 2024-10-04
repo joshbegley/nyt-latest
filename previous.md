@@ -1,3 +1,7 @@
+**Rajon Rondo comes 'full circle' with mentor Doc Rivers as guest coach at Bucks camp**\
+`Rondo, the four-time All-Star, visited Bucks camp to offer advice to unlock the Giannis Antetokounmpo and Damian Lillard pairing on offense.`\
+https://nytimes.com/athletic/5816549/2024/10/04/bucks-rajon-rondo-doc-rivers/
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/04/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/business/britain-carbon-capture.html
 **Jobs and Oil Prices Are Keeping Markets on Edge**\
 `Friday’s jobs report could bolster the view that the American economy is holding steady, but an oil price shock could undercut that sense of calm.`\
 https://nytimes.com/2024/10/04/business/dealbook/jobs-and-oil-prices-are-keeping-markets-on-edge.html
-
-**How will Phillies approach NLDS vs. Mets? Keys to a matchup of familiar foes**\
-`Separated by 111 miles, these two rivals who tend to produce chaotic baseball have never opposed one another in the playoffs.`\
-https://nytimes.com/athletic/5817635/2024/10/04/phillies-mets-nlds-matchup-analysis/
 
