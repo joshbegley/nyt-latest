@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/04/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Heads to Georgia as the South Reels From Helene**\
+`Former President Donald J. Trump is expected to appear with Gov. Brian Kemp, a fellow Republican whom Mr. Trump has been at odds with over the 2020 election.`\
+https://nytimes.com/live/2024/10/04/us/harris-trump-election
+
 **Exploring Your Political Identity and Values: A How-To Guide for Our 2024 Coming of Age Contest**\
 `Four steps to figuring out what you want to say and how you would like to say it, with inspiration from 31 teen-created works across genres.`\
 https://nytimes.com/2024/10/04/learning/exploring-your-political-identity-and-values-a-how-to-guide-for-our-2024-coming-of-age-contest.html

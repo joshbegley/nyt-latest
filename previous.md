@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/04/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Heads to Georgia as the South Reels From Helene**\
+`Former President Donald J. Trump is expected to appear with Gov. Brian Kemp, a fellow Republican whom Mr. Trump has been at odds with over the 2020 election.`\
+https://nytimes.com/live/2024/10/04/us/harris-trump-election
+
 **In Rare Sermon, Iran’s Supreme Leader Issues Warning to Israel**\
 `Ayatollah Ali Khamenei led Friday Prayer for the first time in years, delivering a sermon during a memorial service in Tehran for Hezbollah’s leader.`\
 https://nytimes.com/2024/10/04/world/middleeast/ayatollah-khamenei-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/business/dealbook/jobs-and-oil-prices-are-keeping
 **How will Phillies approach NLDS vs. Mets? Keys to a matchup of familiar foes**\
 `Separated by 111 miles, these two rivals who tend to produce chaotic baseball have never opposed one another in the playoffs.`\
 https://nytimes.com/athletic/5817635/2024/10/04/phillies-mets-nlds-matchup-analysis/
-
-**Exploring Your Political Identity and Values: A How-To Guide for Our 2024 Coming of Age Contest**\
-`Four steps to figuring out what you want to say and how you would like to say it, with inspiration from 31 teen-created works across genres.`\
-https://nytimes.com/2024/10/04/learning/exploring-your-political-identity-and-values-a-how-to-guide-for-our-2024-coming-of-age-contest.html
-
-**Would You Want to Be a Child Star?**\
-`Jenna Ortega tells Times readers about the joys and the challenges of stardom at a young age. What can we learn from her experience?`\
-https://nytimes.com/2024/10/04/learning/would-you-want-to-be-a-child-star.html
 
