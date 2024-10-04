@@ -1,3 +1,19 @@
+**A Beaver’s Future Reached the Courts. Then the Massachusetts Governor Stepped In.**\
+`Nibi the beaver was saved by a wildlife rescue. But then she was ordered released into the wild. Her fate was on the line.`\
+https://nytimes.com/2024/10/04/us/nibi-beaver-boston.html
+
+**Supreme Court Lets Biden Plans on Mercury and Methane Move Forward**\
+`Republican-led states and industry groups argued that the Environmental Protection Agency had moved too fast and imposed onerous regulations.`\
+https://nytimes.com/2024/10/04/us/politics/supreme-court-methane-mercury-emissions-biden.html
+
+**China's male tennis players look to Zheng Qinwen and Li Na in bid to make a statement**\
+`While Li Na and Zheng Qinwen have become global stars, China's presence on the ATP Tour has been limited. These players want to change that`\
+https://nytimes.com/athletic/5815591/2024/10/04/tennis-china-atp-zhang-bu-jerry-shang/
+
+**69 Percent of New Yorkers Think Eric Adams Should Resign, Poll Shows**\
+`Just 26 percent of New York City residents approve of the mayor and a majority want him to step down, according to a poll taken after his indictment on corruption charges.`\
+https://nytimes.com/2024/10/04/nyregion/eric-adams-resign-poll.html
+
 **What Game Theory Tells Us About the Threat of an Israel-Iran War**\
 `Each side must predict how the other will react to avoid mutual destruction.`\
 https://nytimes.com/2024/10/04/world/middleeast/what-game-theory-tells-us-about-the-threat-of-an-israel-iran-war.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5818292/2024/10/04/world-series-odds-division-serie
 **Engaging With a Conservative on Campus**\
 `Responses to a conservative professor’s guest essay. Also: JD Vance at the debate; caring for child caregivers; smaller restaurant portions.`\
 https://nytimes.com/2024/10/04/opinion/conservatives-college.html
-
-**Extreme Weather Gives Video Games a Powerful Adversary**\
-`Designers are increasingly able to render weather conditions as not just evocative visual effects but phenomena that physically affect the player.`\
-https://nytimes.com/2024/10/04/arts/extreme-weather-storms-video-games.html
-
-**An Israeli strike targeting a West Bank Hamas leader killed civilians, including a family of 4, residents say.**\
-`Other civilians were also`\
-https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/an-israeli-strike-targeting-a-west-bank-hamas-leader-killed-civilians-including-a-family-of-4-residents-say
-
-**The labor market shows unexpected strength.**\
-`By Talmon Joseph Smith`\
-https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/the-labor-market-shows-unexpected-strength
-
-**Live chat with The Athletic's Keith Law at 1 pm ET**\
-`Keith Law will be chatting about prospect, the playoffs and more at 1pm ET on Fri., Oct. 4.`\
-https://nytimes.com/athletic/5818473/2024/10/04/live-chat-with-the-athletics-keith-law-at-1-pm-et/
 
