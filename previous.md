@@ -1,3 +1,7 @@
+**A Near Exact Tie in the Polls**\
+`After an eventful week for the presidential race, the candidates are even in the polls. The Times journalists Nate Cohn, Michael Barbaro, Maggie Haberman and Shane Goldmacher discuss the state of the race, with the Nov. 5 election nearly a month away.`\
+https://nytimes.com/video/podcasts/the-daily/100000009741495/harris-trump-2024-election.html
+
 **How Porto prised open further cracks in Manchester United's fragile defence**\
 `Erik ten Hag is still searching for a way to fix a team who keep leaking goals at a record-setting rate`\
 https://nytimes.com/athletic/5817674/2024/10/04/manchester-united-fragile-defence-porto/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/insider/chasing-down-a-trail-of-climate-conspirac
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/04/crosswords/spelling-bee-forum.html
-
-**FIFA to investigate Israel amid Palestinian suspension request**\
-`FIFA says they will investigate the Israel Football Association (IFA) over alleged breaches of its rules.`\
-https://nytimes.com/athletic/5814832/2024/10/04/israel-fifa-investigation/
 
