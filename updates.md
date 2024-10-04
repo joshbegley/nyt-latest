@@ -1,3 +1,7 @@
+**The Bold. The Beautiful. The Fat Bear.**\
+`Ten years in, Fat Bear Week has drawn millions of viewers to a live webcam in Alaska to follow along and vote for the chonkiest brown bear at Katmai National Park.`\
+https://nytimes.com/2024/10/04/us/fat-bear-week.html
+
 **Where Bears, Panthers stand 18 months after franchise-altering trade for both teams**\
 `The Bears have DJ Moore, Caleb Williams and more, while the Panthers have benched Bryce Young, the prize of the 2023 deal.`\
 https://nytimes.com/athletic/5816902/2024/10/04/bears-panthers-caleb-williams-bryce-young/

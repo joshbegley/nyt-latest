@@ -1,3 +1,7 @@
+**The Bold. The Beautiful. The Fat Bear.**\
+`Ten years in, Fat Bear Week has drawn millions of viewers to a live webcam in Alaska to follow along and vote for the chonkiest brown bear at Katmai National Park.`\
+https://nytimes.com/2024/10/04/us/fat-bear-week.html
+
 **Where Bears, Panthers stand 18 months after franchise-altering trade for both teams**\
 `The Bears have DJ Moore, Caleb Williams and more, while the Panthers have benched Bryce Young, the prize of the 2023 deal.`\
 https://nytimes.com/athletic/5816902/2024/10/04/bears-panthers-caleb-williams-bryce-young/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817345/2024/10/04/nfl-week-5-injury-report-richard
 **Can Michigan find answers, quickly? 3 keys and a prediction**\
 `The entire operation has to be tighter as Michigan prepares to go on the road for the first time this season.`\
 https://nytimes.com/athletic/5815636/2024/10/04/michigan-washington-prediction-matchup/
-
-**Obama, Democrats’ Elder Statesman, Will Stump for Harris in Final Election Push**\
-`Mr. Obama, the first Black president, had cast Vice President Kamala Harris as the inheritor of his political movement in a speech at the Democratic convention.`\
-https://nytimes.com/2024/10/04/us/politics/obama-harris-democrats.html
 
