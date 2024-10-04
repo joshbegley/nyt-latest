@@ -34,7 +34,7 @@ https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/the-l
 `Keith Law will be chatting about prospect, the playoffs and more at 1pm ET on Fri., Oct. 4.`\
 https://nytimes.com/athletic/5818473/2024/10/04/live-chat-with-the-athletics-keith-law-at-1-pm-et/
 
-**At least 70 People Dead in Gang Attack in Haiti**\
+**At Least 70 People Dead in Gang Attack in Haiti**\
 `The assault took place in a key agricultural region, which has seen a surge in gang violence.`\
 https://nytimes.com/2024/10/04/us/haiti-gang-attack.html
 
