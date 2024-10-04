@@ -1,3 +1,7 @@
+**Dodger Details: Freddie Freeman's status, pitching plans, hitting fastballs and more**\
+`LOS ANGELES — If the Los Angeles Dodgers were hoping for a positive sign about Freddie Freeman’s sprained right ankle on Thursday, they got one.`\
+https://nytimes.com/athletic/5817136/2024/10/03/dodger-padres-nlds-freddie-freeman/
+
 **Trump Rally in Michigan Dominated by More False Statements**\
 `Appearing for roughly 85 minutes onstage, the Republican nominee repeated false claims about the 2020 election and introduced a mischaracterization about disaster-relief money.`\
 https://nytimes.com/2024/10/03/us/politics/trump-rally-in-michigan-dominated-by-more-false-statements.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/iran-anx
 **Yazidi Woman Taken Captive by ISIS Has Been Rescued in Gaza, Israel Says**\
 `She was returned to her family in Iraq after a complex operation involving the United States, Jordan and others, the Israeli military said.`\
 https://nytimes.com/2024/10/03/world/middleeast/yazidi-woman-gaza-rescued.html
-
-**Los Angeles District Attorney Says He Is Reviewing Menendez Case**\
-`Interest in the Menendez brothers has intensified after the release of a new Netflix drama about the case. A separate documentary is forthcoming.`\
-https://nytimes.com/2024/10/03/arts/menendez-brothers-district-attorney-los-angeles.html
 
