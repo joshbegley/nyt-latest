@@ -1,3 +1,11 @@
+**Guardian caps aid NFL's lowest number of preseason concussions since 2015**\
+`Guardian caps are required in all practices for all players except quarterbacks, kickers and punters.`\
+https://nytimes.com/athletic/5818714/2024/10/04/nfl-player-safety-media-call-sills/
+
+**Marco Rossi may have inside track to center Wild's top line**\
+`Rossi is making the most of his time between Kirill Kaprizov and Mats Zuccarello, trending toward a spot there for the season opener.`\
+https://nytimes.com/athletic/5818642/2024/10/04/marco-rossi-wild-top-line/
+
 **Inside a Republican Ad Accusing Jon Tester of Flip-Flopping on Immigration**\
 `A Republican group is using misleading language about the Montana senator’s support for a bipartisan immigration bill in 2013 to accuse him of selling out to the Washington establishment.`\
 https://nytimes.com/2024/10/04/us/politics/republican-ad-jon-tester-immigration.html
