@@ -31,7 +31,7 @@ https://nytimes.com/2024/10/04/business/dealbook/jobs-and-oil-prices-are-keeping
 https://nytimes.com/athletic/5817635/2024/10/04/phillies-mets-nlds-matchup-analysis/
 
 **Exploring Your Political Identity and Values: A How-To Guide for Our 2024 Coming of Age Contest**\
-`Four steps to figuring out what you want to say and how you would like to say it, with inspiration from 30 teen-created works across genres.`\
+`Four steps to figuring out what you want to say and how you would like to say it, with inspiration from 31 teen-created works across genres.`\
 https://nytimes.com/2024/10/04/learning/exploring-your-political-identity-and-values-a-how-to-guide-for-our-2024-coming-of-age-contest.html
 
 **Would You Want to Be a Child Star?**\
