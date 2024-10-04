@@ -1,3 +1,11 @@
+**How climate change complicates the jobs report.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/how-climate-change-complicates-the-jobs-report
+
+**Liverpool to make late decision on Chiesa availability**\
+`Arne Slot says he will make a late call on whether Federico Chiesa will travel with Liverpool&#8217;s squad for their Premier League clash at Crystal Palace on Saturday.`\
+https://nytimes.com/athletic/5817822/2024/10/04/federico-chiesa-liverpool-crystal-palace/
+
 **Liverpool to make late decision on Chiesa for Palace clash**\
 `Arne Slot says he will make a late call on whether Federico Chiesa will travel with Liverpool&#8217;s squad for their Premier League clash at Crystal Palace on Saturday.`\
 https://nytimes.com/athletic/5817822/2024/10/04/federico-chiesa-liverpool-crystal-palace/
