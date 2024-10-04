@@ -1,3 +1,7 @@
+**Wisconsin RB Chez Mellusi stepping away from team to rehab injuries**\
+`Mellusi, who transferred to Wisconsin in 2021 from Clemson, has battled injuries in his three years with the Badgers.`\
+https://nytimes.com/athletic/5817034/2024/10/03/chez-mellusi-wisconsin-badgers-football/
+
 **Teenagers on What Has Shaped Their Political Beliefs and Values**\
 `Ahead of the 2024 Election, we invited teens to explore their political identities and tell us how they have come to believe what they believe.`\
 https://nytimes.com/2024/10/03/learning/teenagers-on-what-has-shaped-their-political-beliefs-and-values.html
@@ -10,8 +14,8 @@ https://nytimes.com/2024/10/03/world/middleeast/hashem-safieddine-hezbollah-lead
 `Explosions rocked the Lebanese capital around midnight on Thursday as Israel conducted an airstrike, which officials said targeted a meeting of senior Hezbollah leaders in an underground bunker.`\
 https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/israeli-planes-nasrallah-beirut
 
-**An Israeli airstrike kills at least 18 people in the West Bank.**\
-`By Aaron Boxerman and Ephrat Livni`\
+**Israeli Airstrike Kills At Least 18 People in the West Bank**\
+`The high toll and Israel’s use of a warplane were unusual for the Israeli military’s operations in the West Bank, which have escalated during the war in Gaza.`\
 https://nytimes.com/2024/10/03/world/middleeast/israel-airstrike-west-bank-tulkarm.html
 
 **A Recipe for a Striving America**\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/03/travel/helene-rental-properties-asheville.html
 **NWSL fines Angel City FC for salary cap violation**\
 `The NWSL also deducted three points from Angel City’s 2024 standings, pushing the club even further from the playoff line.`\
 https://nytimes.com/athletic/5816876/2024/10/03/angel-city-fc-fine-salary-cap-violation/
-
-**Port Union Agrees to Suspend Strike**\
-`The International Longshoremen’s Association received a new wage offer and will halt its walkout at East and Gulf Coast ports, which began Tuesday.`\
-https://nytimes.com/2024/10/03/business/economy/port-strike-suspended.html
 
