@@ -1,3 +1,7 @@
+**The Athletic FC: Slot machine that needs no luck, Man Utd's latest issues, Suarez blasts Bielsa**\
+`Today in TAFC: Slot's superb start at Liverpool, Suarez takes aim at Bielsa, and what more is there to say about Manchester United?`\
+https://nytimes.com/athletic/5817774/2024/10/04/slot-machine-that-needs-no-luck-uniteds-problems-after-porto-suarez-blasts-bielsa/
+
 **Padres’ playoff run bolstered by bullpen with ‘different looks, different angles’**\
 `As the Padres prepare to re-enter the fray in L.A., much of the attention will be trained on the quintet at the back of their bullpen.`\
 https://nytimes.com/athletic/5816487/2024/10/04/padres-nlds-bullpen-arms/
