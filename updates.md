@@ -1,3 +1,7 @@
+**Newcastle handed triple injury boost for Everton trip but Isak out**\
+`Fabian Schar, Kieran Trippier and Nick Pope are set to hand Newcastle United a triple injury boost, with all three expected to be available for Saturday&#8217;s trip to Everton.`\
+https://nytimes.com/athletic/5817746/2024/10/04/newcastle-injury-update-alexander-isak/
+
 **De Bruyne out of Belgium squad for Nations League games**\
 `Kevin De Bruyne has been left out of Belgium&#8217;s squad for their October fixtures in the Nations League.`\
 https://nytimes.com/athletic/5817722/2024/10/04/kevin-de-bruyne-injury-update-belgium/
