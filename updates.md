@@ -1,3 +1,15 @@
+**Here are the latest developments.**\
+`By Victoria Kim and Farnaz Fassihi`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/here-are-the-latest-developments
+
+**Israel Targets Remaining Hezbollah Leaders in Beirut, Officials Say**\
+`Huge explosions rocked the city following a day of particularly deadly Israeli attacks in Gaza and the West Bank. In Iran, Ayatollah Ali Khamenei was expected to lead Friday prayers.`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon
+
+**Late Night Heaps Scorn on Trump’s Latest Defense**\
+`Jimmy Kimmel said Donald Trump was “partially right” in denying interference in the 2020 election: “He tried to rig the election and failed to rig the election.’`\
+https://nytimes.com/2024/10/04/arts/television/late-night-trump-filing.html
+
 **Why Eric Adams Is Nothing Like David Dinkins**\
 `Facing a raft of corruption charges, New York’s second Black mayor is flattering himself by invoking the fate of its first.`\
 https://nytimes.com/2024/10/04/nyregion/why-eric-adams-is-nothing-like-david-dinkins.html
