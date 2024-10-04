@@ -1,3 +1,7 @@
+**How Porto prised open further cracks in Manchester United's fragile defence**\
+`Erik ten Hag is still searching for a way to fix a team who keep leaking goals at a record-setting rate`\
+https://nytimes.com/athletic/5817674/2024/10/04/manchester-united-fragile-defence-porto/
+
 **Here are the latest developments.**\
 `By Victoria Kim and Farnaz Fassihi`\
 https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/crosswords/spelling-bee-forum.html
 **FIFA to investigate Israel amid Palestinian suspension request**\
 `FIFA says they will investigate the Israel Football Association (IFA) over alleged breaches of its rules.`\
 https://nytimes.com/athletic/5814832/2024/10/04/israel-fifa-investigation/
-
-**Word of the Day: longitudinal**\
-`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/04/learning/word-of-the-day-longitudinal.html
 
