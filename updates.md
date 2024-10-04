@@ -1,3 +1,11 @@
+**The labor market shows unexpected strength.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/the-labor-market-shows-unexpected-strength
+
+**The Fed Might Have Gotten the Soft Landing of Its Dreams**\
+`The U.S. economy continues to be in a very good place.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/federal-reserve-soft-landing
+
 **Live chat with The Athletic's Keith Law at 1 pm ET**\
 `Keith Law will be chatting about prospect, the playoffs and more at 1pm ET on Fri., Oct. 4.`\
 https://nytimes.com/athletic/5818473/2024/10/04/live-chat-with-the-athletics-keith-law-at-1-pm-et/

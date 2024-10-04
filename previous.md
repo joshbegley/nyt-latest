@@ -1,3 +1,7 @@
+**The labor market shows unexpected strength.**\
+`By Talmon Joseph Smith`\
+https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/the-labor-market-shows-unexpected-strength
+
 **Live chat with The Athletic's Keith Law at 1 pm ET**\
 `Keith Law will be chatting about prospect, the playoffs and more at 1pm ET on Fri., Oct. 4.`\
 https://nytimes.com/athletic/5818473/2024/10/04/live-chat-with-the-athletics-keith-law-at-1-pm-et/
@@ -10,7 +14,7 @@ https://nytimes.com/2024/10/04/us/haiti-gang-attack.html
 `Welcome to The Bounce, The Athletic's daily NBA newsletter.`\
 https://nytimes.com/athletic/5818432/2024/10/04/nba-playoff-seeding-dikembe-mutombo-the-bounce/
 
-**The Fed May Have Gotten the Soft Landing of Its Dreams**\
+**The Fed Might Have Gotten the Soft Landing of Its Dreams**\
 `The U.S. economy continues to be in a very good place.`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/federal-reserve-soft-landing
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/world/europe/champions-league.html
 **Orange Beef Will Cure What Ails You**\
 `It’s takeout-style Chinese American cooking brought into your home kitchen, where you can get as creative as you’d like.`\
 https://nytimes.com/2024/10/04/dining/orange-beef-will-cure-what-ails-you.html
-
-**5 New Horror Movies to Stream for Halloween**\
-`Out this week, a period possession movie starring Sarah Paulson, a chef-driven supernatural thriller starring Ariana DeBose and more.`\
-https://nytimes.com/2024/10/04/movies/new-horror-movies-streaming-halloween.html
 
