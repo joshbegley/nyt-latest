@@ -1,3 +1,11 @@
+**‘The Franchise’ Review: Cutting Marvel Down to Size**\
+`A new HBO comedy takes a jaundiced look at the making of a second-rate superhero film.`\
+https://nytimes.com/2024/10/04/arts/television/the-franchise-review.html
+
+**Phillies to start Cristopher Sánchez in Game 2, Aaron Nola in Game 3 vs. Mets**\
+`The Phillies have opted for 27-year-old lefty Cristopher Sánchez over Aaron Nola in Game 2 at Citizens Bank Park. Here's why. `\
+https://nytimes.com/athletic/5818942/2024/10/04/cristopher-sanchez-phillies-game-2-starter-nlds/
+
 **The Dollar Is Too Strong for America’s Own Good**\
 `Weakening the dollar is a good idea. How to do it is another question.`\
 https://nytimes.com/2024/10/04/opinion/dollar-exchange-richard-koo.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/us/arizona-nonprofit-voter-registration-recording
 **NHL waiver tracker: Best players on the wire throughout 2024-25 preseason**\
 `Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
 https://nytimes.com/athletic/5799672/2024/10/04/nhl-waivers-tracker-preseason/
-
-**‘My dreams are about bombs’: Beirut grapples with yet another in a long series of crises.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/beirut-lebanon-israel-airstrikes-mood
-
-**Pete Alonso's amazin', improbable October home run and a Mets comeback for the ages**\
-`Alonso just hit the most game-changing, series-changing home run in any winner-take-all baseball game ever played.`\
-https://nytimes.com/athletic/5818665/2024/10/04/pete-alonso-home-run-mets-brewers-history/
 
