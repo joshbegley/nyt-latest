@@ -1,4 +1,4 @@
-**Mets discussing whether to activate Kodai Senga for NLDS: sources**\
+**Mets discussing whether to activate Kodai Senga for NLDS: Sources**\
 `Earlier this week, Senga threw 25 pitches in a live bullpen session in Florida.`\
 https://nytimes.com/athletic/5817499/2024/10/03/new-york-mets-kodai-senga-postseason-return/
 
