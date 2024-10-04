@@ -1,3 +1,11 @@
+**Son 'unlikely' to be available for Tottenham's trip to Brighton**\
+`Tottenham Hotspur head coach Ange Postecoglou says captain Son Heung-min is “unlikely” to be available for their trip to Brighton &amp; Hove Albion on Sunday.`\
+https://nytimes.com/athletic/5817849/2024/10/04/son-heung-min-tottenham-injury-latest/
+
+**Arsenal's Merino, Spurs' Porro back in Spain squad**\
+`Arsenal midfielder Mikel Merino and Tottenham Hotspur full-back Pedro Porro are among the players to be recalled to Spain&#8217;s squad for October&#8217;s Nations League fixtures.`\
+https://nytimes.com/athletic/5817782/2024/10/04/mikel-merino-spain-squad-pedro-porro/
+
 **Can the economy continue its balancing act?**\
 `By Talmon Joseph Smith`\
 https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/jobs-report-september

@@ -1,3 +1,11 @@
+**Son 'unlikely' to be available for Tottenham's trip to Brighton**\
+`Tottenham Hotspur head coach Ange Postecoglou says captain Son Heung-min is “unlikely” to be available for their trip to Brighton &amp; Hove Albion on Sunday.`\
+https://nytimes.com/athletic/5817849/2024/10/04/son-heung-min-tottenham-injury-latest/
+
+**Arsenal's Merino, Spurs' Porro back in Spain squad**\
+`Arsenal midfielder Mikel Merino and Tottenham Hotspur full-back Pedro Porro are among the players to be recalled to Spain&#8217;s squad for October&#8217;s Nations League fixtures.`\
+https://nytimes.com/athletic/5817782/2024/10/04/mikel-merino-spain-squad-pedro-porro/
+
 **Can the economy continue its balancing act?**\
 `By Talmon Joseph Smith`\
 https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/jobs-report-september
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5816645/2024/10/04/kansas-city-chiefs-observations-
 **Fake sweat, photo shoots and Skittles: Behind the scenes with Steph Curry at media day**\
 `“It’s evolved crazy from my rookie year to now,” the 36-year-old said. On this hectic day, Curry's time was more precious than usual.`\
 https://nytimes.com/athletic/5813735/2024/10/04/stephen-curry-warriors-media-day-behind-scenes/
-
-**Missouri at Texas A&M picks, odds, how to watch: Undefeated Tigers are small underdogs**\
-`Missouri takes its undefeated record and top-10 ranking on the road to Texas A&M, where the Aggies are a small favorite.`\
-https://nytimes.com/athletic/5816628/2024/10/04/missouri-texas-am-picks-odds-how-to-watch/
-
-**Can the Hurricanes’ rebuilt defense still be dominant?**\
-`It’s possible all six Carolina defenders could eclipse 20 points this season.`\
-https://nytimes.com/athletic/5817587/2024/10/04/carolina-hurricanes-defensemen-slavin/
 
