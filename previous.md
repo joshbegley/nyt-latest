@@ -1,3 +1,7 @@
+**What's it like in a NASCAR car that gets airborne? 'I'm afraid of flying in general'**\
+`As NASCAR heads back to Talladega, where wild crashes are common, drivers talk about the experience of going airborne after a wreck.`\
+https://nytimes.com/athletic/5819142/2024/10/04/nascar-crash-airborne-talladega-superspeedway/
+
 **The Economy Looks Strong After the Latest Jobs Report**\
 `Also, Trump is returning to the site where he was shot. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/10/04/briefing/the-economy-looks-strong-after-the-latest-jobs-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819081/2024/10/04/nflpa-locker-room-media-intervie
 **Red Wings' Jack Campbell entering NHL/NHLPA player assistance program**\
 `Campbell will be away from the club for an undetermined amount of time.`\
 https://nytimes.com/athletic/5819160/2024/10/04/jack-campbell-red-wings-nhl-nhlpa-player-assistance/
-
-**Savannah Bananas roll out big and bold 2025 schedule**\
-`The Savannah Bananas will visit 18 MLB stadiums and three football stadiums in 2025 while on its "Banana Ball World Tour."`\
-https://nytimes.com/athletic/5818132/2024/10/04/savannah-bananas-2025-schedule/
 

@@ -1,3 +1,7 @@
+**What's it like in a NASCAR car that gets airborne? 'I'm afraid of flying in general'**\
+`As NASCAR heads back to Talladega, where wild crashes are common, drivers talk about the experience of going airborne after a wreck.`\
+https://nytimes.com/athletic/5819142/2024/10/04/nascar-crash-airborne-talladega-superspeedway/
+
 **The Economy Looks Strong After the Latest Jobs Report**\
 `Also, Trump is returning to the site where he was shot. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/10/04/briefing/the-economy-looks-strong-after-the-latest-jobs-report.html
