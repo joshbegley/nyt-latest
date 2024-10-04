@@ -1,3 +1,19 @@
+**Ports Rush to Reopen After First Major Strike in Decades Is Suspended**\
+`Days after tens of thousands of longshoreman along the East and Gulf Coasts walked out, their union and their bosses reached a tentative agreement on wages.`\
+https://nytimes.com/2024/10/04/business/economy/dockworkers-strike-ports-reopen.html
+
+**Biden Voices Concern That the Election May Not Be ‘Peaceful’**\
+`President Biden said he was confident next month’s election would be free and fair, but that he was concerned about what former President Donald J. Trump and his supporters would do if he lost his bid for another term.`\
+https://nytimes.com/video/us/politics/100000009743207/biden-trump-election-peaceful.html
+
+**Ex-OceanGate Employee’s Remarks Hint at Titan Disaster Lawsuits to Come**\
+`A former Coast Guard specialist’s testimony capped two weeks of hearings into the implosion of a submersible that killed five during an attempt to explore the Titanic.`\
+https://nytimes.com/2024/10/04/science/titan-oceangate-titanic-mccoy.html
+
+**Mets to start Kodai Senga in Game 1 of NLDS vs. Phillies**\
+`Mets ace Kodai Senga will make at least as many postseason starts as regular-season ones: New York has tabbed him for Game 1 of the NLDS.`\
+https://nytimes.com/athletic/5819171/2024/10/04/kodai-senga-mets-game-1-nlds-starter/
+
 **Devils defeat Sabres in opening Global Series game**\
 `Here are some takeaways from the Devils’ 4-1 win over the Sabres on Friday in Prague.`\
 https://nytimes.com/athletic/5818658/2024/10/04/devils-vs-sabres-nhl-global-series-game-1-takeaways/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/04/us/joe-d-bryan-dead.html
 **Trump Takes Aim at Legal Immigration**\
 `The former president and his allies, who often decry undocumented immigrants, are targeting programs that allow millions of people to enter the country lawfully.`\
 https://nytimes.com/2024/10/04/us/politics/trump-takes-aim-at-legal-immigration.html
-
-**Death Penalty, Nuclear Waste and More: Supreme Court Rounds Out Coming Term**\
-`Three cases all stem from the U.S. Court of Appeals for the Fifth Circuit, in New Orleans, which often finds itself to the right of the Supreme Court.`\
-https://nytimes.com/2024/10/04/us/politics/supreme-court-death-penalty-nuclear-waste-police-force.html
-
-**Harris Ad to Showcase Support of Liz Cheney and Other Republicans**\
-`Vice President Kamala Harris has been seeking to give Republicans who dislike the former president a permission structure to support her instead.`\
-https://nytimes.com/2024/10/04/us/politics/harris-ad-liz-cheney.html
-
-**What is the latest on Jonathan Kuminga and the Warriors’ crowded frontcourt?**\
-`Will Draymond Green start? Could Kuminga start in place of Wiggins? Answering these questions ahead of the Warriors' first preseason game.`\
-https://nytimes.com/athletic/5818900/2024/10/04/jonathan-kuminga-warriors-frontcourt-nba/
-
-**For Savannah, It’s Not Just a Port. It’s an Economy.**\
-`The Georgia city is a picturesque tourist destination. It’s also the No. 2 ocean cargo hub on the East Coast, and the dock strike’s quick end was a relief.`\
-https://nytimes.com/2024/10/04/business/economy/port-strike-savannah-economy.html
 
