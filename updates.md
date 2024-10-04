@@ -1,3 +1,11 @@
+**Oklahoma Schools Need 55,000 Bibles. Trump-Endorsed Book Fits the Bill.**\
+`The bid details for new Bibles the state is buying seem to point to a version promoted by former President Donald J. Trump.`\
+https://nytimes.com/2024/10/04/us/oklahoma-schools-trump-bible.html
+
+**Israel Expands Attacks on Hezbollah as Iran Warns of Retaliation**\
+`Israel is drastically widening its fight against the Lebanese militant group that is backed by Iran, whose supreme leader said that “any strike on the Zionist regime is a service to humanity.”`\
+https://nytimes.com/2024/10/04/world/middleeast/israel-hezbollah-lebanon.html
+
 **Trump’s False Claims About the Federal Response to Hurricane Helene**\
 `The former president falsely accused the Biden administration of spending disaster funding on migrants, neglecting areas that had voted for Republicans and ignoring a call from a Republican governor.`\
 https://nytimes.com/2024/10/04/us/politics/trump-helene-fema-fact-check.html
