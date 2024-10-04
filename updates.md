@@ -1,3 +1,7 @@
+**Liz Cheney Endorses Kamala Harris**\
+`The former congresswoman and Republican exile campaigned with the vice president in the battleground state of Wisconsin.`\
+https://nytimes.com/video/us/elections/100000009741469/liz-cheney-harris-trump-wisconsin.html
+
 **Reds to hire Terry Francona as manager**\
 `Francona returns to managing after retiring from the Cleveland Guardians at the end of the 2023 season.`\
 https://nytimes.com/athletic/5817322/2024/10/03/terry-francona-reds-manager/
