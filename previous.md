@@ -1,3 +1,11 @@
+**Mark Zuckerberg Tries His Hand at Fashion**\
+`Et tu, Zuck?`\
+https://nytimes.com/2024/10/04/style/mark-zuckerberg-tries-his-hand-at-fashion.html
+
+**People Flee Lebanon for Syria Following Israeli Airstrikes**\
+`After an Israeli airstrike left a crater in a road, people crossing into Syria left their cars behind and walked across the border.`\
+https://nytimes.com/video/world/middleeast/100000009742429/mideast-lebanon-syria-israel.html
+
 **New Los Angeles Police Chief Is a Conventional Choice**\
 `Mayor Karen Bass named Jim McDonnell as the new Los Angeles Police Department chief, one of the nation’s highest-profile law enforcement jobs.`\
 https://nytimes.com/2024/10/04/us/los-angeles-police-chief.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/nyregion/eric-adams-resign-poll.html
 **What Game Theory Tells Us About the Threat of an Israel-Iran War**\
 `Each side must predict how the other will react to avoid mutual destruction.`\
 https://nytimes.com/2024/10/04/world/middleeast/what-game-theory-tells-us-about-the-threat-of-an-israel-iran-war.html
-
-**Here Are the Hezbollah Leaders Israel Has Targeted**\
-`Israeli strikes have aimed to kill the leaders of the Lebanese militia, most recently Hashem Safieddine. It was not immediately clear whether he had been killed in an overnight strike near Beirut.`\
-https://nytimes.com/2024/10/04/world/middleeast/hezbollah-leadership.html
-
-**The Windup: Was that Pete Alonso's signature moment?**\
-`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
-https://nytimes.com/athletic/5818493/2024/10/04/pete-alonso-wild-card-terry-francona-the-windup/
 

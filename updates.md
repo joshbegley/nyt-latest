@@ -1,3 +1,11 @@
+**Mark Zuckerberg Tries His Hand at Fashion**\
+`Et tu, Zuck?`\
+https://nytimes.com/2024/10/04/style/mark-zuckerberg-tries-his-hand-at-fashion.html
+
+**People Flee Lebanon for Syria Following Israeli Airstrikes**\
+`After an Israeli airstrike left a crater in a road, people crossing into Syria left their cars behind and walked across the border.`\
+https://nytimes.com/video/world/middleeast/100000009742429/mideast-lebanon-syria-israel.html
+
 **New Los Angeles Police Chief Is a Conventional Choice**\
 `Mayor Karen Bass named Jim McDonnell as the new Los Angeles Police Department chief, one of the nation’s highest-profile law enforcement jobs.`\
 https://nytimes.com/2024/10/04/us/los-angeles-police-chief.html
