@@ -1,3 +1,7 @@
+**What we learned in the wild card round of the MLB postseason: Game 1 is key, aces matter**\
+`Since the league moved to the three-game Wild Card Series in 2022, the winner of Game 1 has won all 12 series.`\
+https://nytimes.com/athletic/5817208/2024/10/03/what-we-learned-wild-card-mlb-postseason/
+
 **Ohtani 50th home run ball surpasses value of Judge's 62nd**\
 `Judge's 62nd home run ball in 2022 sold for $1.5 million `\
 https://nytimes.com/athletic/5817362/2024/10/03/shohei-ohtani-50-home-run-ball-auction/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/us/politics/trump-rally-michigan.html
 **In Retrial, Man Convicted of Murder of Transgender Woman**\
 `Rasheen Everett strangled Amanda Gonzalez-Andujar in her Queens apartment. His 2013 conviction was thrown out because of a judge’s error.`\
 https://nytimes.com/2024/10/03/nyregion/retrial-murder-conviction-transgender-woman.html
-
-**3 Idaho Big-Game Guides Led Illegal Mountain Lion Hunts, U.S. Says**\
-`The three face federal charges for leading hunts as part of an unlicensed outfitting business separate from their employer, federal prosecutors said.`\
-https://nytimes.com/2024/10/03/us/hunting-guides-indictment-mountain-lions.html
 
