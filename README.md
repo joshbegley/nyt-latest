@@ -1,3 +1,23 @@
+**Palmer, Kane, Watkins, Saka, Bellingham, Foden... who starts in England's attack?**\
+`Lee Carsley boasts a lavish array of attacking talent, but striking the right balance across his front four will be key to England's success`\
+https://nytimes.com/athletic/5815925/2024/10/04/england-bellingham-foden-grealish-palmer-saka-carsley/
+
+**The container, the fence and the curious case of a £180,000 patch of land outside St James' Park**\
+`Strange constructions have been popping up on a small piece of land outside Newcastle's stadium`\
+https://nytimes.com/athletic/5778538/2024/10/04/newcastle-st-james-park-fence-land/
+
+**Kirk Cousins leads Falcons past Buccaneers on TNF: Key takeaways**\
+`Cousins passed for a career-high and franchise record 509 yards along with four touchdowns in the win.`\
+https://nytimes.com/athletic/5817440/2024/10/04/buccaneers-falcons-score-thursday-night-football-takeaways/
+
+**The Reds needed experience. Terry Francona needed the grind. A match emerged**\
+`The Reds reached out to Francona earlier this week, met with him in his home in Tucson, Ariz., and completed their search.`\
+https://nytimes.com/athletic/5817473/2024/10/04/terry-francona-hired-reds/
+
+**Next week’s waiver wire: Players to add now — before the Week 6 rush**\
+`John Laghezza points you towards his top expected future waiver wire plays, including a big opportunity for Dallas receiver Jalen Tolbert.`\
+https://nytimes.com/athletic/5815967/2024/10/04/next-weeks-waiver-wire-emanuel-wilson-jalen-tolbert-and-more-players-to-add-now-before-the-week-6-rush/
+
 **Low block, bravery and a big old slice of luck - how 'smaller' teams can beat Manchester City**\
 `Over the previous four league seasons, Pep Guardiola's side lost eight games to teams outside the 'Big Six'. This is how they were beaten`\
 https://nytimes.com/athletic/5815428/2024/10/04/how-to-beat-manchester-city/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/04/style/modern-love-we-were-voices-in-a-dark-room.h
 **A Welcome Break on ‘One of the Hardest Days’ of Her Life**\
 `Mary Kathryn Burke was ready for a drink after her mother was admitted to the hospital. Jonathan King messaged her at the right time.`\
 https://nytimes.com/2024/10/04/style/mary-kathryn-burke-jonathan-king-wedding.html
-
-**They Met For the First Time Twice**\
-`Rieanna Stewart remembered Devin Miller from a brief encounter three years earlier. And then: “We both left time and space,” Ms. Stewart said.`\
-https://nytimes.com/2024/10/04/style/rieanna-stewart-devin-miller-wedding.html
-
-**Risking a Friendship on the Dance Floor**\
-`Emil Weinstein and Dr. Alix Masters took things to the next level with Lil Jon and the East Side Boyz playing in the background.`\
-https://nytimes.com/2024/10/04/style/alix-masters-emil-weinstein-wedding.html
-
-**13 Days After Meeting, She Proposed on TV and He Followed Suit**\
-`Tessa Tookes and Joey Kirchner were both feeling down on love. Then they were cast on “Bachelor in Paradise Canada,” and had a change of heart (with the help of producers).`\
-https://nytimes.com/2024/10/04/style/tessa-tookes-joey-kirchner-wedding.html
-
-**For Companies in China, Pulling Out of Xinjiang Poses ‘Messy Dilemma’**\
-`Beijing’s investigation of the parent of Calvin Klein and Tommy Hilfiger, which stopped buying goods from Xinjiang, has put global firms in a difficult position.`\
-https://nytimes.com/2024/10/04/business/china-xinjiang.html
-
-**Quote of the Day: Brazil’s ‘Elegant’ Idea Could Save Tropical Forests and Generate Returns**\
-`Quotation of the Day for Friday, October 4, 2024`\
-https://nytimes.com/2024/10/03/pageoneplus/quote-of-the-day-brazils-elegant-idea-could-save-tropical-forests-and-generate-returns.html
 
