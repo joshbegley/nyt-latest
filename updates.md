@@ -1,3 +1,11 @@
+**Caitlin Clark breaks record for most expensive WNBA card yet again**\
+`Clark's most expensive cards are getting closer to reaching six figures`\
+https://nytimes.com/athletic/5819177/2024/10/04/caitlin-clark-roy-panini-record/
+
+**Premier League rejected City, Chelsea request to delay next season start - Guardiola**\
+`Pep Guardiola says the Premier League has turned down a request from Manchester City and Chelsea to postpone their opening matches of next season.`\
+https://nytimes.com/athletic/5818062/2024/10/04/man-city-chelsea-premier-league-club-world-cup/
+
 **Blue Jackets lose 2 important players to injuries as season opener nears**\
 `Captain Boone Jenner lost an edge during a practice drill and slammed into the boards.`\
 https://nytimes.com/athletic/5819237/2024/10/04/blue-jackets-injury-jenner-voronkov/
