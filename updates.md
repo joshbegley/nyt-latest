@@ -1,3 +1,11 @@
+**Turner Ward out as Cardinals hitting coach after struggles in 2024: sources**\
+`ST.`\
+https://nytimes.com/athletic/5818341/2024/10/04/cardinals-hitting-coach-turner-ward-out/
+
+**Lowetide: Identifying the Oilers' top recall options at each position**\
+`Which players are first on the Oilers' list in case of injury, trade or a rough series of performances?`\
+https://nytimes.com/athletic/5813594/2024/10/04/edmonton-oilers-depth-2024/
+
 **Scoop City: Falcons remarkable win, Jaguars issues and rookies, prospects**\
 `A quick rundown of Falcons-Buccaneers stats, why Trevor Lawrence could cost Doug Pederson his job, the 2024 rookies and 2025 'weird' class`\
 https://nytimes.com/athletic/5818323/2024/10/04/scoop-city-falcons-remarkable-win-t-law-costing-pederson-rookie-standouts/
