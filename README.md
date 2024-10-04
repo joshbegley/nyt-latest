@@ -1,3 +1,7 @@
+**De Bruyne out of Belgium squad for Nations League games**\
+`Kevin De Bruyne has been left out of Belgium&#8217;s squad for their October fixtures in the Nations League.`\
+https://nytimes.com/athletic/5817722/2024/10/04/kevin-de-bruyne-injury-update-belgium/
+
 **March close to Brighton return but Joao Pedro still out**\
 `Solly March is closing in on a return to action for Brighton &amp; Hove Albion after a year out through injury.`\
 https://nytimes.com/athletic/5817726/2024/10/04/solly-march-brighton-joao-pedro-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/nyregion/mayor-eric-adams-david-dinkins.html
 **Woman With Flowers**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/10/04/learning/woman-with-flowers.html
-
-**Their Uber Driver Crashed. A Pizza Order Unraveled Their Injury Lawsuit.**\
-`A New Jersey couple sued Uber after a crash left them severely injured. An appeals court ruled that they had agreed to settle disputes out of court when they used the Uber Eats app.`\
-https://nytimes.com/2024/10/04/nyregion/uber-eats-car-crash-injury-nj.html
 
