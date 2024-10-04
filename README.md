@@ -1,3 +1,15 @@
+**NFLPA calls to move media interviews out of locker rooms**\
+`In the short term, the NFLPA encouraged each player to ask for interviews outside the locker room.`\
+https://nytimes.com/athletic/5819081/2024/10/04/nflpa-locker-room-media-interviews/
+
+**Red Wings' Jack Campbell entering NHL/NHLPA player assistance program**\
+`Campbell will be away from the club for an undetermined amount of time.`\
+https://nytimes.com/athletic/5819160/2024/10/04/jack-campbell-red-wings-nhl-nhlpa-player-assistance/
+
+**Savannah Bananas roll out big and bold 2025 schedule**\
+`The Savannah Bananas will visit 18 MLB stadiums and three football stadiums in 2025 while on its "Banana Ball World Tour."`\
+https://nytimes.com/athletic/5818132/2024/10/04/savannah-bananas-2025-schedule/
+
 **Ports Rush to Reopen After First Major Strike in Decades Is Suspended**\
 `Days after tens of thousands of longshoreman along the East and Gulf Coasts walked out, their union and their bosses reached a tentative agreement on wages.`\
 https://nytimes.com/2024/10/04/business/economy/dockworkers-strike-ports-reopen.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5818652/2024/10/04/paul-pogba-ban-appeal-successful
 **In Key Nevada County, Harassment of Election Workers Takes a Toll**\
 `Republicans this year attempted to block certification of local elections in Washoe, a critical swing county — a worrying sign for what could be ahead, the Democratic secretary of state said.`\
 https://nytimes.com/2024/10/04/us/politics/nevada-election-harassment.html
-
-**Affection Does Not Excuse Blackface**\
-`Representative Mike Lawler, take note.`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/mike-lawler-blackface
-
-**Joe D. Bryan, 84, Dies; His Murder Conviction Raised Troubling Questions**\
-`After serving 33 years in prison, he was released in the wake of a cascade of questions about the soundness of the forensic testimony against him.`\
-https://nytimes.com/2024/10/04/us/joe-d-bryan-dead.html
-
-**Trump Takes Aim at Legal Immigration**\
-`The former president and his allies, who often decry undocumented immigrants, are targeting programs that allow millions of people to enter the country lawfully.`\
-https://nytimes.com/2024/10/04/us/politics/trump-takes-aim-at-legal-immigration.html
 
