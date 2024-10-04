@@ -1,3 +1,11 @@
+**Trump Takes Aim at Legal Immigration**\
+`The former president and his allies, who often decry undocumented immigrants, are targeting programs that allow millions of people to enter the country lawfully.`\
+https://nytimes.com/2024/10/04/us/politics/trump-takes-aim-at-legal-immigration.html
+
+**Death Penalty, Nuclear Waste and More: Supreme Court Rounds Out Coming Term**\
+`Three cases all stem from the U.S. Court of Appeals for the Fifth Circuit, in New Orleans, which often finds itself to the right of the Supreme Court.`\
+https://nytimes.com/2024/10/04/us/politics/supreme-court-death-penalty-nuclear-waste-police-force.html
+
 **Harris Ad to Showcase Support of Liz Cheney and Other Republicans**\
 `Vice President Kamala Harris has been seeking to give Republicans who dislike the former president a permission structure to support her instead.`\
 https://nytimes.com/2024/10/04/us/politics/harris-ad-liz-cheney.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5819025/2024/10/04/bronny-james-lebron-james-nba-pr
 **A Pentagon Debate: Are U.S. Deployments Containing the Fighting, or Inflaming It?**\
 `Military officials discuss whether sending more force to the Middle East is helping to prevent a much wider war, or emboldening Israel.`\
 https://nytimes.com/2024/10/04/us/politics/troops-mideast-israel-war.html
-
-**The Jets' critical week in London: 'You’re either climbing up the hill or staying at the bottom'**\
-`As Davante Adams trade rumors swirl, Sunday's game against the Vikings could decide the direction of this season.`\
-https://nytimes.com/athletic/5818856/2024/10/04/new-york-jets-london-game-minnesota-vikings-robert-saleh-aaron-rodgers-garrett-wilson-relationships/
-
-**Iran’s Foreign Minister Reaches Out to Arab Leaders in Lebanon, Qatar**\
-`Iran’s top diplomat appeared eager to convey Iran’s readiness to support a joint cease-fire in Lebanon and in Gaza — even as Iran’s supreme leader at home expressed readiness to fight Israel.`\
-https://nytimes.com/2024/10/04/world/middleeast/iran-lebanon-gaza-ceasefire.html
 
