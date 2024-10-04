@@ -1,3 +1,7 @@
+**Trump’s Return to Butler Is Sure to Be a Spectacle. Is It Safe?**\
+`At a time of increased security risks, the former president has urged thousands of supporters to return with him to the place a gunman tried to take his life.`\
+https://nytimes.com/2024/10/04/us/elections/trump-butler-assassination-attempt.html
+
 **Bronny to make preseason debut while LeBron held out vs. Timberwolves**\
 `Those hoping to see LeBron and Bronny share the court for the Lakers as the first father-son duo in NBA history have to wait.`\
 https://nytimes.com/athletic/5819025/2024/10/04/bronny-james-lebron-james-nba-preseason-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5813052/2024/10/04/giants-malik-nabers-concussion/
 **‘The Franchise’ Review: Cutting Marvel Down to Size**\
 `A new HBO comedy takes a jaundiced look at the making of a second-rate superhero film.`\
 https://nytimes.com/2024/10/04/arts/television/the-franchise-review.html
-
-**Phillies to start Cristopher Sánchez in Game 2, Aaron Nola in Game 3 vs. Mets**\
-`The Phillies have opted for 27-year-old lefty Cristopher Sánchez over Aaron Nola in Game 2 at Citizens Bank Park. Here's why. `\
-https://nytimes.com/athletic/5818942/2024/10/04/cristopher-sanchez-phillies-game-2-starter-nlds/
 
