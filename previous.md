@@ -1,3 +1,7 @@
+**Arts District, Decades in the Making, in Ruins After Helene**\
+`The hurricane damaged an estimated 80 percent of the buildings in the River Arts District of Asheville, N.C., and upended the lives of artists who had recast the city as a cultural force.`\
+https://nytimes.com/2024/10/04/arts/arts-district-decades-in-the-making-in-ruins-after-helene.html
+
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 7?**\
 `As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for upcoming games`\
 https://nytimes.com/athletic/5805521/2024/10/04/premier-league-predicted-line-ups-gameweek-7/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5816375/2024/10/04/mets-pete-alonso-falcons-kirk-co
 **Twins, GM Thad Levine part ways after 8 years**\
 `The Twins and general manager Thad Levine, who has held the role for eight years, have announced a mutual parting of the ways. `\
 https://nytimes.com/athletic/5810227/2024/10/04/thad-levine-minnesota-twins-parts-ways/
-
-**Hutchinson receives England U21s call-up**\
-`Omari Hutchinson has been called up to the England Under-21 squad for their upcoming European Championship qualifiers.`\
-https://nytimes.com/athletic/5818313/2024/10/04/omari-hutchinson-england/
 

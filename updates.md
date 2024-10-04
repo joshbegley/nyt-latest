@@ -1,3 +1,7 @@
+**Arts District, Decades in the Making, in Ruins After Helene**\
+`The hurricane damaged an estimated 80 percent of the buildings in the River Arts District of Asheville, N.C., and upended the lives of artists who had recast the city as a cultural force.`\
+https://nytimes.com/2024/10/04/arts/arts-district-decades-in-the-making-in-ruins-after-helene.html
+
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 7?**\
 `As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for upcoming games`\
 https://nytimes.com/athletic/5805521/2024/10/04/premier-league-predicted-line-ups-gameweek-7/
