@@ -1,3 +1,11 @@
+**The Economy Looks Strong After the Latest Jobs Report**\
+`Also, Trump is returning to the site where he was shot. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/10/04/briefing/the-economy-looks-strong-after-the-latest-jobs-report.html
+
+**Yoga to the People Founder Pleads Guilty to Tax Evasion**\
+`Gregory Gumucio, the founder and co-owner of Yoga to the People, which provided yogis with cheap classes in an atmosphere of bohemian glamour, faces up to five years in prison.`\
+https://nytimes.com/2024/10/04/nyregion/yoga-to-the-people-tax-evasion.html
+
 **Entire Chicago Education Board to Resign Amid Tensions Between Mayor and Schools Chief**\
 `Mayor Brandon Johnson has been at odds with the head of Chicago Public Schools over his plan to fill a $1 billion gap in the district’s budget.`\
 https://nytimes.com/2024/10/04/us/chicago-education-board-resignations.html
