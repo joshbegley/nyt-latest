@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5817208/2024/10/03/what-we-learned-wild-card-mlb-po
 https://nytimes.com/athletic/5817362/2024/10/03/shohei-ohtani-50-home-run-ball-auction/
 
 **Reds to hire Terry Francona as manager**\
-`Francona will return to managing after retiring from the Cleveland Guardians at the end of the 2023 season.`\
+`Francona returns to managing after retiring from the Cleveland Guardians at the end of the 2023 season.`\
 https://nytimes.com/athletic/5817322/2024/10/03/terry-francona-reds-manager/
 
 **Pete Alonso, Mets rally past Brewers, advance to NLDS: Takeaways**\

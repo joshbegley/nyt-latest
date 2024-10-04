@@ -1,3 +1,7 @@
+**Reds to hire Terry Francona as manager**\
+`Francona returns to managing after retiring from the Cleveland Guardians at the end of the 2023 season.`\
+https://nytimes.com/athletic/5817322/2024/10/03/terry-francona-reds-manager/
+
 **What we learned in the wild card round of the MLB postseason: Game 1 is key, aces matter**\
 `Since the league moved to the three-game Wild Card Series in 2022, the winner of Game 1 has won all 12 series.`\
 https://nytimes.com/athletic/5817208/2024/10/03/what-we-learned-wild-card-mlb-postseason/
