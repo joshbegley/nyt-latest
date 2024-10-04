@@ -1,3 +1,7 @@
+**Trump Rally in Michigan Dominated by More False Statements**\
+`Appearing for roughly 85 minutes onstage, the Republican nominee repeated false claims about the 2020 election and introduced a mischaracterization about disaster-relief money.`\
+https://nytimes.com/2024/10/03/us/politics/trump-rally-in-michigan-dominated-by-more-false-statements.html
+
 **In Retrial, Man Convicted of Murder of Transgender Woman**\
 `Rasheen Everett strangled Amanda Gonzalez-Andujar in her Queens apartment. His 2013 conviction was thrown out because of a judge’s error.`\
 https://nytimes.com/2024/10/03/nyregion/retrial-murder-conviction-transgender-woman.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/world/middleeast/yazidi-woman-gaza-rescued.html
 **Los Angeles District Attorney Says He Is Reviewing Menendez Case**\
 `Interest in the Menendez brothers has intensified after the release of a new Netflix drama about the case. A separate documentary is forthcoming.`\
 https://nytimes.com/2024/10/03/arts/menendez-brothers-district-attorney-los-angeles.html
-
-**Israel Bombs Beirut Site, Targeting Presumed Successor to Slain Hezbollah Leader**\
-`The airstrikes were aimed at a meeting of senior Hezbollah leaders in an underground bunker early Friday, and targeted a cousin of Hassan Nasrallah.`\
-https://nytimes.com/2024/10/03/world/middleeast/israel-hezbollah-evacuations-lebanon.html
 
