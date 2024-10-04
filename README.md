@@ -2,7 +2,7 @@
 `With one round down and three to go, these have been the best playoff performers so far.`\
 https://nytimes.com/athletic/5818823/2024/10/04/mlb-wild-card-top-performers/
 
-**Conservative Activists Are Monitoring — and Filming — Voter Registration Sites**\
+**Conservative Activists Are Monitoring, and Filming, Voter Registration Sites**\
 `In Arizona and other states, the activists are accusing Latino advocacy groups of registering undocumented immigrants. Canvassers are growing concerned about safety.`\
 https://nytimes.com/2024/10/04/us/arizona-nonprofit-voter-registration-recordings.html
 
