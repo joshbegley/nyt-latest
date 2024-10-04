@@ -1,3 +1,7 @@
+**World No. 1 Iga Swiatek splits with coach, withdraws from Wuhan WTA 1000**\
+`Iga Swiatek has parted ways with Tomasz Wiktorowski, with whom she won four of her five Grand Slam titles.`\
+https://nytimes.com/athletic/5817753/2024/10/04/iga-swiatek-coach-wuhan/
+
 **How Brock Purdy's growth, aggressiveness are evolving Kyle Shanahan's 49ers offense**\
 `The quarterback has leaned heavily on play-action in his career but now is dropping back and taking far more deep shots.`\
 https://nytimes.com/athletic/5812829/2024/10/04/brock-purdy-49ers-offense-shanahan/
