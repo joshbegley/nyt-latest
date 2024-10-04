@@ -1,3 +1,7 @@
+**Would You Want to Be a Child Star?**\
+`Jenna Ortega tells Times readers about the joys and the challenges of stardom at a young age. What can we learn from her experience?`\
+https://nytimes.com/2024/10/04/learning/would-you-want-to-be-a-child-star.html
+
 **Israel expands evacuation warnings in southern Lebanon after airstrikes pummel Beirut.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/israel-expands-evacuation-warnings-in-southern-lebanon-after-airstrikes-pummel-beirut
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5816814/2024/10/04/chargers-observations-ladd-mccon
 **What I'm seeing from the Denver Broncos: Bo Nix's rare feat, O-line depth, TE issue**\
 `Nix last week became the Broncos' first rookie QB since 2009 to finish back-to-back games without an interception or a sack.`\
 https://nytimes.com/athletic/5815663/2024/10/04/denver-broncos-observations-bo-nix/
-
-**How many goals can the Oilers expect from Zach Hyman this season?**\
-`The Oilers can’t just bank on another 50-goal season from Hyman, because it’s hard to replicate that type of output.`\
-https://nytimes.com/athletic/5816698/2024/10/04/edmonton-oilers-zach-hyman-goals/
 
