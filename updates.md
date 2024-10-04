@@ -1,3 +1,15 @@
+**Inside a Republican Ad Accusing Jon Tester of Flip-Flopping on Immigration**\
+`A Republican group is using misleading language about the Montana senator’s support for a bipartisan immigration bill in 2013 to accuse him of selling out to the Washington establishment.`\
+https://nytimes.com/2024/10/04/us/politics/republican-ad-jon-tester-immigration.html
+
+**Capturing a Community in Ruin**\
+`After years of documenting the effects of climate change in his home state of North Carolina, a photographer found himself in the path of a hurricane.`\
+https://nytimes.com/2024/10/04/us/politics/photojournalist-climate-change-asheville-helene.html
+
+**Crystal Palace vs Liverpool preview: Storylines, odds, prediction as Reds try to stay top**\
+`Liverpool is top of the table and Crystal Palace is winless so far, but Palace beat Liverpool in their last meeting. Can they do it again?`\
+https://nytimes.com/athletic/5818558/2024/10/04/crystal-palace-liverpool-preview-odds-prediction/
+
 **Bring Up the Bodies in 4 New Crime Novels**\
 `Our crime columnist on books by Kate Atkinson, Nicholas Meyer, Marcie R. Rendon and Nilanjana Roy.`\
 https://nytimes.com/2024/10/04/books/review/new-crime-novels.html

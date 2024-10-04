@@ -1,3 +1,11 @@
+**Inside a Republican Ad Accusing Jon Tester of Flip-Flopping on Immigration**\
+`A Republican group is using misleading language about the Montana senator’s support for a bipartisan immigration bill in 2013 to accuse him of selling out to the Washington establishment.`\
+https://nytimes.com/2024/10/04/us/politics/republican-ad-jon-tester-immigration.html
+
+**Capturing a Community in Ruin**\
+`After years of documenting the effects of climate change in his home state of North Carolina, a photographer found himself in the path of a hurricane.`\
+https://nytimes.com/2024/10/04/us/politics/photojournalist-climate-change-asheville-helene.html
+
 **Bring Up the Bodies in 4 New Crime Novels**\
 `Our crime columnist on books by Kate Atkinson, Nicholas Meyer, Marcie R. Rendon and Nilanjana Roy.`\
 https://nytimes.com/2024/10/04/books/review/new-crime-novels.html
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/5818571/2024/10/04/terrelle-pryor-sues-ncaa-ohio-st
 `Amazing how our legal system is able to distinguish between real and fake evidence, isn’t it?`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/tina-peters-donald-trump
 
+**Crystal Palace vs Liverpool preview: Storylines, odds, prediction as Reds try to stay top**\
+`Liverpool is top of the table and Crystal Palace is winless so far, but Palace beat Liverpool in their last meeting. Can they do it again?`\
+https://nytimes.com/athletic/5818558/2024/10/04/crystal-palace-liverpool-preview-odds-prediction/
+
 **Fantasy football flex fliers: Antonio Gibson, Josh Downs and more deep sleepers to consider in Week 5**\
 `Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 5 free agency.`\
 https://nytimes.com/athletic/5818615/2024/10/04/fantasy-football-flex-fliers-deep-sleepers-week-5-gibson-downs/
-
-**3 Warming Dishes for Crisp Fall Days**\
-`Carolina Gelen, a cookbook author and video personality, shares cozy vegetable recipes from her childhood in Romania.`\
-https://nytimes.com/2024/10/04/dining/vegetable-romanian-dishes.html
-
-**How Does Your Facial Hair Make You Feel?**\
-`We want to hear about how women’s experiences of having visible facial hair impact their day-to-day.`\
-https://nytimes.com/2024/10/04/style/facial-hair-callout.html
-
-**Mark Zuckerberg Tries His Hand at Fashion**\
-`Et tu, Zuck?`\
-https://nytimes.com/2024/10/04/style/mark-zuckerberg-tries-his-hand-at-fashion.html
 
