@@ -1,3 +1,7 @@
+**March close to Brighton return but Joao Pedro still out**\
+`Solly March is closing in on a return to action for Brighton &amp; Hove Albion after a year out through injury.`\
+https://nytimes.com/athletic/5817726/2024/10/04/solly-march-brighton-joao-pedro-injury/
+
 **Jared Allen: The Minnesota Vikings great aiming for an Olympics Curling spot**\
 `Jared Allen is travelling over to London — with the Vikings set to compete in the London Games`\
 https://nytimes.com/athletic/5815267/2024/10/04/jared-allen-minnesota-vikings-olympics/

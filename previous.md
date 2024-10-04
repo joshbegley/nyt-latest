@@ -1,3 +1,7 @@
+**March close to Brighton return but Joao Pedro still out**\
+`Solly March is closing in on a return to action for Brighton &amp; Hove Albion after a year out through injury.`\
+https://nytimes.com/athletic/5817726/2024/10/04/solly-march-brighton-joao-pedro-injury/
+
 **Jared Allen: The Minnesota Vikings great aiming for an Olympics Curling spot**\
 `Jared Allen is travelling over to London — with the Vikings set to compete in the London Games`\
 https://nytimes.com/athletic/5815267/2024/10/04/jared-allen-minnesota-vikings-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/learning/woman-with-flowers.html
 **Their Uber Driver Crashed. A Pizza Order Unraveled Their Injury Lawsuit.**\
 `A New Jersey couple sued Uber after a crash left them severely injured. An appeals court ruled that they had agreed to settle disputes out of court when they used the Uber Eats app.`\
 https://nytimes.com/2024/10/04/nyregion/uber-eats-car-crash-injury-nj.html
-
-**Chasing Down a Trail of Climate Conspiracies**\
-`Who was behind a national campaign to ban geoengineering? One reporter went down a few rabbit holes to find out.`\
-https://nytimes.com/2024/10/04/insider/chasing-down-a-trail-of-climate-conspiracies.html
 
