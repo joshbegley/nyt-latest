@@ -1,3 +1,11 @@
+**Reporter Asks Biden if He Would Reconsider Dropping Out of the Race**\
+`President Biden, who reluctantly surrendered his bid for a second term, has wanted to be president for most of his adult life.`\
+https://nytimes.com/2024/10/04/us/politics/reporter-asks-biden-if-he-would-reconsider-dropping-out-of-the-race.html
+
+**What to Know About the Verdict in the Tyre Nichols Case**\
+`Three former Memphis police officers were found guilty on Thursday of federal witness tampering charges in the fatal beating of Tyre Nichols, a 29-year-old Black man.`\
+https://nytimes.com/video/us/100000009741643/what-to-know-about-the-verdict-in-the-tyre-nichols-case.html
+
 **Trump Campaign Distributes Raised Funds to Victims in Butler, Pa.**\
 `The recipients included the families of those killed and wounded, and a Trump supporter who lost income when his rental cranes were stuck at the site.`\
 https://nytimes.com/2024/10/04/us/politics/trump-donations-assassination-attempt.html
