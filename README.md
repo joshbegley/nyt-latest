@@ -1,40 +1,40 @@
-**Once More Unto the Breach: A New Take on Henry V Showcases His Contradictions**\
-`In a comprehensive biography, the historian Dan Jones tries to reconcile the hero of legend with the complicated young monarch of reality.`\
-https://nytimes.com/2024/10/04/books/review/henry-v-dan-jones.html
+**Why the Patriots would be wise to pass on the Davante Adams sweepstakes**\
+`The Patriots badly need a No. 1 wide receiver, but Adams isn't the answer for this rebuilding franchise.`\
+https://nytimes.com/athletic/5815976/2024/10/04/patriots-davante-adams-raiders-trade/
 
-**Just How Much Control Can an Artist Have Over Their Work?**\
-`Cady Noland, who became the darling of the art world, has tested the limits.`\
-https://nytimes.com/2024/10/04/t-magazine/cady-noland.html
+**How an NFL journeyman 'blacked out' and gave the Falcons another unlikely win**\
+`KhaDarel Hodge caught two passes Thursday night, the second of which he took 45 yards for the winning touchdown in overtime.`\
+https://nytimes.com/athletic/5817661/2024/10/04/falcons-khadarel-hodge-buccaneers/
 
-**These Are Boom Times for ‘Degrowth’**\
-`The term has recently begun taking root in popular culture and policy.`\
-https://nytimes.com/2024/10/04/business/degrowth-climate-gdp.html
+**NFL injury report: Week 5 availability of Colts Anthony Richardson, Jonathan Taylor in doubt**\
+`Greg Scholz of Inside Injuries shares his doubts that banged up Colts Anthony Richardson and Jonathan Taylor will be able to play in Week 5.`\
+https://nytimes.com/athletic/5817345/2024/10/04/nfl-week-5-injury-report-richardson-taylor-rice/
 
-**A Compact Weekend House Filled With Comfort**\
-`A couple bought a second home with friends, and then decided that being neighbors would be much more fun.`\
-https://nytimes.com/2024/10/04/realestate/weekend-home-sullivan-county-ny.html
+**Can Michigan find answers, quickly? 3 keys and a prediction**\
+`The entire operation has to be tighter as Michigan prepares to go on the road for the first time this season.`\
+https://nytimes.com/athletic/5815636/2024/10/04/michigan-washington-prediction-matchup/
 
-**Dane Brugler's NFL Draft watch: 3 rising prospects who could be surprise first-rounders**\
-`In what's shaping up to be a wide-open 2025 draft class, keep an eye on these prospects playing for top-10 teams. `\
-https://nytimes.com/athletic/5812938/2024/10/04/nfl-draft-2025-sleepers-cameron-williams-preview/
+**Obama, Democrats’ Elder Statesman, Will Stump for Harris in Final Election Push**\
+`Mr. Obama, the first Black president, had cast Vice President Kamala Harris as the inheritor of his political movement in a speech at the Democratic convention.`\
+https://nytimes.com/2024/10/04/us/politics/obama-harris-democrats.html
 
-**Ask Arts & Leisure**\
-`Your culture and entertainment questions answered by New York Times journalists and experts.`\
-https://nytimes.com/2024/10/04/arts/arts-culture-entertainment-advice.html
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including the sequel “Joker: Folie à Deux.”`\
+https://nytimes.com/interactive/2024/10/04/arts/weekend-editors-picks-joker-folie-a-deux.html
 
-**Big 12 mailbag: Can the Big 12 stop the Big Ten and SEC push for more CFP bids?**\
-`Plus: Is there any hope for Kansas? Why isn't anyone talking about TCU's incredible receiver? `\
-https://nytimes.com/athletic/5817092/2024/10/04/big-12-college-football-playoff-mailbag/
+**The New York Times News Quiz, Oct. 4, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/10/04/briefing/news-quiz-vance-walz-debate.html
 
-**A.J. Hinch, an August team meeting and another Detroit Tigers toast**\
-`Hinch called a midseason meeting that coincided with the Tigers' turnaround, then the manager beat his old team in the playoffs.`\
-https://nytimes.com/athletic/5816048/2024/10/04/detroit-tigers-aj-hinch-team-meeting/
+**Every Election Has Big Swings, Even in a Polarized Country. This One Will Too.**\
+`In just the last few years, any number of issues might have led people to reconsider their loyalties.`\
+https://nytimes.com/2024/10/04/upshot/election-issues-swings-voters.html
 
-**What do former Wisconsin players think about the Badgers?**\
-`Where does Wisconsin stand in Luke Fickell's second year? Alvarez and some former players share their thoughts.`\
-https://nytimes.com/athletic/5816214/2024/10/04/wisconsin-football-former-players-barry-alvarez/
+**Bad Day? Here are 4 Ways to Turn It Around.**\
+`There’s still time to salvage it.`\
+https://nytimes.com/2024/10/04/well/how-to-fix-a-bad-day.html
 
-**Panthers 2024-25 season preview: Playoff chances, projected points, roster rankings**\
-`The threat of a Cup hangover is real, but make no mistake — Florida has a very real shot at repeating the feat.`\
-https://nytimes.com/athletic/5811591/2024/10/04/florida-panthers-2024-25-season-preview/
+**From Eric Adams to ‘Antonio Scalywag,’ Who Caused the Most Political Nonsense This Week?**\
+`Antonio Scalywag, Who Caused the Most Political Nonsense This Week?`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/politics-democrats-republicans
 
