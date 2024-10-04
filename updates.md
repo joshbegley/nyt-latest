@@ -1,3 +1,15 @@
+**Twins, GM Thad Levine part ways after 8 years**\
+`The Twins and general manager Thad Levine, who has held the role for eight years, have announced a mutual parting of the ways. `\
+https://nytimes.com/athletic/5810227/2024/10/04/thad-levine-minnesota-twins-parts-ways/
+
+**Hutchinson receives England U21s call-up despite Jamaica caps**\
+`Omari Hutchinson has been called up to the England Under-21 squad for their upcoming European Championship qualifiers, despite previously representing the Jamaica national team.`\
+https://nytimes.com/athletic/5818313/2024/10/04/omari-hutchinson-england-jamaica-ipswich/
+
+**Turner Ward out as Cardinals hitting coach after struggles in 2024: sources**\
+`Ward, 59, took over as the Cardinals hitting coach in 2023 after spending the 2022 season as the team’s assistant hitting coach.`\
+https://nytimes.com/athletic/5818341/2024/10/04/cardinals-hitting-coach-turner-ward-out/
+
 **Turner Ward out as Cardinals hitting coach after struggles in 2024: sources**\
 `ST.`\
 https://nytimes.com/athletic/5818341/2024/10/04/cardinals-hitting-coach-turner-ward-out/
