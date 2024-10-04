@@ -1,3 +1,7 @@
+**Jobs and Oil Prices Are Keeping Markets on Edge**\
+`Friday’s jobs report could bolster the view that the American economy is holding steady, but an oil price shock could undercut that sense of calm.`\
+https://nytimes.com/2024/10/04/business/dealbook/jobs-and-oil-prices-are-keeping-markets-on-edge.html
+
 **How will Phillies approach NLDS vs. Mets? Keys to a matchup of familiar foes**\
 `Separated by 111 miles, these two rivals who tend to produce chaotic baseball have never opposed one another in the playoffs.`\
 https://nytimes.com/athletic/5817635/2024/10/04/phillies-mets-nlds-matchup-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5810660/2024/10/04/49ers-observations-christian-mcc
 **What we're seeing from the Raiders: Growing pains for AP and injuries hurting the defense**\
 `Between the seemingly imminent departure of Davante Adams and some questions about their coach, the Raiders are off to a dubious start.`\
 https://nytimes.com/athletic/5816960/2024/10/04/raiders-antonio-pierce-christian-wilkins-defense/
-
-**The Athletic’s Friday football quiz question #24**\
-`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/5817769/2024/10/04/the-athletics-friday-football-quiz-question-24/
 
