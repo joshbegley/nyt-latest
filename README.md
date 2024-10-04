@@ -11,7 +11,7 @@ https://nytimes.com/2024/10/04/us/nibi-beaver-boston.html
 https://nytimes.com/2024/10/04/us/politics/supreme-court-methane-mercury-emissions-biden.html
 
 **China's male tennis players look to Zheng Qinwen and Li Na in bid to make a statement**\
-`While Li Na and Zheng Qinwen have become global stars, China's presence in the men's game has been limited. These players want to change tha`\
+`While two of its women have become global stars, China's presence in the men's game has been limited. These players want to change that`\
 https://nytimes.com/athletic/5815591/2024/10/04/tennis-china-atp-zhang-bu-jerry-shang/
 
 **69 Percent of New Yorkers Think Eric Adams Should Resign, Poll Shows**\
