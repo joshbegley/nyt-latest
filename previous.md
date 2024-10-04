@@ -1,3 +1,7 @@
+**Lauren Mayberry’s Lush Pop Ecstasy, and 13 More New Songs**\
+`Hear tracks by Bartees Strange, the Smile, Ela Minus and others.`\
+https://nytimes.com/2024/10/04/arts/music/playlist-lauren-mayberry-bartees-strange-the-smile.html
+
 **Guardian caps aid NFL's lowest number of preseason concussions since 2015**\
 `Guardian caps are required in all practices for all players except quarterbacks, kickers and punters.`\
 https://nytimes.com/athletic/5818714/2024/10/04/nfl-player-safety-media-call-sills/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818610/2024/10/04/bills-khalil-shakir-stefon-diggs
 **Former Ohio State QB Terrelle Pryor sues school, Big Ten, NCAA over NIL**\
 `Pryor’s lawsuit comes on the heels of former USC star and Heisman Trophy winner Reggie Bush filing a similar suit.`\
 https://nytimes.com/athletic/5818571/2024/10/04/terrelle-pryor-sues-ncaa-ohio-state/
-
-**This Is What Electoral Fraud Looks Like**\
-`Amazing how our legal system is able to distinguish between real and fake evidence, isn’t it?`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/tina-peters-donald-trump
 

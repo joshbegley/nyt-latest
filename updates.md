@@ -1,3 +1,7 @@
+**Lauren Mayberry’s Lush Pop Ecstasy, and 13 More New Songs**\
+`Hear tracks by Bartees Strange, the Smile, Ela Minus and others.`\
+https://nytimes.com/2024/10/04/arts/music/playlist-lauren-mayberry-bartees-strange-the-smile.html
+
 **Guardian caps aid NFL's lowest number of preseason concussions since 2015**\
 `Guardian caps are required in all practices for all players except quarterbacks, kickers and punters.`\
 https://nytimes.com/athletic/5818714/2024/10/04/nfl-player-safety-media-call-sills/
