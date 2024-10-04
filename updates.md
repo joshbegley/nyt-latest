@@ -1,3 +1,7 @@
+**A Crackdown**\
+`We explain the Biden administration’s shift on immigration.`\
+https://nytimes.com/2024/10/04/briefing/a-crackdown.html
+
 **Manufacturing is growing and shrinking at the same time.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/manufacturing-is-growing-and-shrinking-at-the-same-time
