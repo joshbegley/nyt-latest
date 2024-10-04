@@ -1,3 +1,7 @@
+**Reds to hire Terry Francona as manager**\
+`Francona will return to managing after retiring from the Cleveland Guardians at the end of the 2023 season.`\
+https://nytimes.com/athletic/5817322/2024/10/03/terry-francona-reds-manager/
+
 **Pete Alonso, Mets rally past Brewers, advance to NLDS: Takeaways**\
 `The Mets will take on the Phillies in Game 1 of the National League Division Series on Saturday afternoon.`\
 https://nytimes.com/athletic/5817029/2024/10/03/mets-brewers-game-3-wild-card-takeaways/
