@@ -1,3 +1,7 @@
+**What I'm seeing from the 49ers: Missing ingredient sticks out like sore Achilles**\
+`A person of interest as the 49ers move into October: Sam Okuayinonu, who's looked like their third-best edge rusher in recent weeks.`\
+https://nytimes.com/athletic/5810660/2024/10/04/49ers-observations-christian-mccaffrey-injury/
+
 **At Least 14 Die as Floods Sweep Through Bosnia and Other Balkan States**\
 `A severe overnight rainstorm left several towns and villages flooded. Record summer temperatures caused a drought that hampered the absorption of floodwaters.`\
 https://nytimes.com/2024/10/04/world/europe/bosnia-flooding-balkans.html
