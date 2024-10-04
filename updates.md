@@ -1,3 +1,15 @@
+**Bronny to make preseason debut while LeBron held out vs. Timberwolves**\
+`Those hoping to see LeBron and Bronny share the court for the Lakers as the first father-son duo in NBA history have to wait.`\
+https://nytimes.com/athletic/5819025/2024/10/04/bronny-james-lebron-james-nba-preseason-debut/
+
+**A Pentagon Debate: Are U.S. Deployments Containing the Fighting, or Inflaming It?**\
+`Military officials discuss whether sending more force to the Middle East is helping to prevent a much wider war, or emboldening Israel.`\
+https://nytimes.com/2024/10/04/us/politics/troops-mideast-israel-war.html
+
+**The Jets' critical week in London: 'You’re either climbing up the hill or staying at the bottom'**\
+`As Davante Adams trade rumors swirl, Sunday's game against the Vikings could decide the direction of this season.`\
+https://nytimes.com/athletic/5818856/2024/10/04/new-york-jets-london-game-minnesota-vikings-robert-saleh-aaron-rodgers-garrett-wilson-relationships/
+
 **Iran’s Foreign Minister Reaches Out to Arab Leaders in Lebanon, Qatar**\
 `Iran’s top diplomat appeared eager to convey Iran’s readiness to support a joint cease-fire in Lebanon and in Gaza — even as Iran’s supreme leader at home expressed readiness to fight Israel.`\
 https://nytimes.com/2024/10/04/world/middleeast/iran-lebanon-gaza-ceasefire.html

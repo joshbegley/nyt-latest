@@ -1,3 +1,15 @@
+**Bronny to make preseason debut while LeBron held out vs. Timberwolves**\
+`Those hoping to see LeBron and Bronny share the court for the Lakers as the first father-son duo in NBA history have to wait.`\
+https://nytimes.com/athletic/5819025/2024/10/04/bronny-james-lebron-james-nba-preseason-debut/
+
+**A Pentagon Debate: Are U.S. Deployments Containing the Fighting, or Inflaming It?**\
+`Military officials discuss whether sending more force to the Middle East is helping to prevent a much wider war, or emboldening Israel.`\
+https://nytimes.com/2024/10/04/us/politics/troops-mideast-israel-war.html
+
+**The Jets' critical week in London: 'You’re either climbing up the hill or staying at the bottom'**\
+`As Davante Adams trade rumors swirl, Sunday's game against the Vikings could decide the direction of this season.`\
+https://nytimes.com/athletic/5818856/2024/10/04/new-york-jets-london-game-minnesota-vikings-robert-saleh-aaron-rodgers-garrett-wilson-relationships/
+
 **Iran’s Foreign Minister Reaches Out to Arab Leaders in Lebanon, Qatar**\
 `Iran’s top diplomat appeared eager to convey Iran’s readiness to support a joint cease-fire in Lebanon and in Gaza — even as Iran’s supreme leader at home expressed readiness to fight Israel.`\
 https://nytimes.com/2024/10/04/world/middleeast/iran-lebanon-gaza-ceasefire.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/04/arts/television/the-franchise-review.html
 **Phillies to start Cristopher Sánchez in Game 2, Aaron Nola in Game 3 vs. Mets**\
 `The Phillies have opted for 27-year-old lefty Cristopher Sánchez over Aaron Nola in Game 2 at Citizens Bank Park. Here's why. `\
 https://nytimes.com/athletic/5818942/2024/10/04/cristopher-sanchez-phillies-game-2-starter-nlds/
-
-**The Dollar Is Too Strong for America’s Own Good**\
-`Weakening the dollar is a good idea. How to do it is another question.`\
-https://nytimes.com/2024/10/04/opinion/dollar-exchange-richard-koo.html
-
-**‘Megalopolis’ and the Vexations of Decadence**\
-`A story that’s grist for big debates without necessarily being a good movie.`\
-https://nytimes.com/2024/10/04/opinion/coppola-megalopolis-decadence.html
-
-**I’m a Queer Man Who Had a Fling With Another Guy. Should His Girlfriend Be Told?**\
-`The magazine’s Ethicist columnist on who has the right and responsibility to reveal an affair.`\
-https://nytimes.com/2024/10/04/magazine/fling-girlfriend-reveal-ethics.html
 
