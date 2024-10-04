@@ -1,3 +1,11 @@
+**Trump Campaign Distributes Raised Funds to Victims in Butler, Pa.**\
+`The recipients included the families of those killed and wounded, and a Trump supporter who lost income when his rental cranes were stuck at the site.`\
+https://nytimes.com/2024/10/04/us/politics/trump-donations-assassination-attempt.html
+
+**Her 8-Year-Old Drove Herself to Target and Became an Internet Star**\
+`Tangie Wilson was sleeping when her daughter Zoe sneaked out of the house and drove to the store. The tale of how it all unfolded is as relatable as it is incredible.`\
+https://nytimes.com/2024/10/04/style/target-girl-mom-interview.html
+
 **49ers to wear white pants with forecasted high near 100 degrees**\
 `The team was hoping to wear its all-white throwback uniforms; instead it'll settle for its throwback red jerseys with white pants.`\
 https://nytimes.com/athletic/5819471/2024/10/04/49ers-white-pants-100-degrees-cardinals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5818062/2024/10/04/man-city-chelsea-premier-league-
 **Blue Jackets lose 2 important players to injuries as season opener nears**\
 `Captain Boone Jenner lost an edge during a practice drill and slammed into the boards.`\
 https://nytimes.com/athletic/5819237/2024/10/04/blue-jackets-injury-jenner-voronkov/
-
-**Without Aid, This Famine May Become One of History’s Worst**\
-`By Nicholas Kristof`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/sudan-famine-world-food-program
-
-**Judge Halts Biden Student Debt Plan Right After It Was Allowed to Proceed**\
-`The ruling was the latest instance of legal whiplash for the over 27 million borrowers who could qualify, and yet another blow to the president’s pledge to provide mass student debt relief.`\
-https://nytimes.com/2024/10/04/us/politics/biden-student-debt-missouri.html
 

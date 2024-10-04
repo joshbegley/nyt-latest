@@ -1,3 +1,11 @@
+**Trump Campaign Distributes Raised Funds to Victims in Butler, Pa.**\
+`The recipients included the families of those killed and wounded, and a Trump supporter who lost income when his rental cranes were stuck at the site.`\
+https://nytimes.com/2024/10/04/us/politics/trump-donations-assassination-attempt.html
+
+**Her 8-Year-Old Drove Herself to Target and Became an Internet Star**\
+`Tangie Wilson was sleeping when her daughter Zoe sneaked out of the house and drove to the store. The tale of how it all unfolded is as relatable as it is incredible.`\
+https://nytimes.com/2024/10/04/style/target-girl-mom-interview.html
+
 **49ers to wear white pants with forecasted high near 100 degrees**\
 `The team was hoping to wear its all-white throwback uniforms; instead it'll settle for its throwback red jerseys with white pants.`\
 https://nytimes.com/athletic/5819471/2024/10/04/49ers-white-pants-100-degrees-cardinals/
