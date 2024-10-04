@@ -1,3 +1,11 @@
+**Guardian caps aid NFL's lowest number of preseason concussions since 2015**\
+`Guardian caps are required in all practices for all players except quarterbacks, kickers and punters.`\
+https://nytimes.com/athletic/5818714/2024/10/04/nfl-player-safety-media-call-sills/
+
+**Marco Rossi may have inside track to center Wild's top line**\
+`Rossi is making the most of his time between Kirill Kaprizov and Mats Zuccarello, trending toward a spot there for the season opener.`\
+https://nytimes.com/athletic/5818642/2024/10/04/marco-rossi-wild-top-line/
+
 **Inside a Republican Ad Accusing Jon Tester of Flip-Flopping on Immigration**\
 `A Republican group is using misleading language about the Montana senator’s support for a bipartisan immigration bill in 2013 to accuse him of selling out to the Washington establishment.`\
 https://nytimes.com/2024/10/04/us/politics/republican-ad-jon-tester-immigration.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5818571/2024/10/04/terrelle-pryor-sues-ncaa-ohio-st
 **This Is What Electoral Fraud Looks Like**\
 `Amazing how our legal system is able to distinguish between real and fake evidence, isn’t it?`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/tina-peters-donald-trump
-
-**Crystal Palace vs Liverpool preview: Storylines, odds, prediction as Reds try to stay top**\
-`Liverpool is top of the table and Crystal Palace is winless so far, but Palace beat Liverpool in their last meeting. Can they do it again?`\
-https://nytimes.com/athletic/5818558/2024/10/04/crystal-palace-liverpool-preview-odds-prediction/
-
-**Fantasy football flex fliers: Antonio Gibson, Josh Downs and more deep sleepers to consider in Week 5**\
-`Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 5 free agency.`\
-https://nytimes.com/athletic/5818615/2024/10/04/fantasy-football-flex-fliers-deep-sleepers-week-5-gibson-downs/
 
