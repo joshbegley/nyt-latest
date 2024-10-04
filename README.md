@@ -1,3 +1,7 @@
+**3 Idaho Big-Game Guides Led Illegal Mountain Lion Hunts, U.S. Says**\
+`The three face federal charges for leading hunts as part of an unlicensed outfitting business separate from their employer, federal prosecutors said.`\
+https://nytimes.com/2024/10/03/us/hunting-guides-indictment-mountain-lions.html
+
 **Corrections: Oct. 4, 2024**\
 `Corrections that appeared in print on Friday, Oct. 4, 2024.`\
 https://nytimes.com/2024/10/03/pageoneplus/corrections-oct-4-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/world/middleeast/israel-hezbollah-evacuations-leb
 **When John Amos Had Enough of the ‘Good Times’**\
 `The actor, whose death was announced this week, made it known he didn’t like the direction the hit show was going. His character was then killed off.`\
 https://nytimes.com/2024/10/03/arts/television/john-amos-good-times.html
-
-**Wisconsin RB Chez Mellusi stepping away from team to rehab injuries**\
-`Mellusi, who transferred to Wisconsin in 2021 from Clemson, has battled injuries in his three years with the Badgers.`\
-https://nytimes.com/athletic/5817034/2024/10/03/chez-mellusi-wisconsin-badgers-football/
 
