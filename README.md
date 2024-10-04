@@ -1,3 +1,7 @@
+**Liz Cheney Endorses Kamala Harris**\
+`The former congresswoman and Republican exile campaigned with the vice president in the battleground state of Wisconsin.`\
+https://nytimes.com/video/us/elections/100000009741469/liz-cheney-harris-trump-wisconsin.html
+
 **What we learned in the wild card round of the MLB postseason: Game 1 is key, aces matter**\
 `Since the league moved to the three-game Wild Card Series in 2022, the winner of Game 1 has won all 12 series.`\
 https://nytimes.com/athletic/5817208/2024/10/03/what-we-learned-wild-card-mlb-postseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817136/2024/10/03/dodger-padres-nlds-freddie-freem
 **Trump Rally in Michigan Dominated by More False Statements**\
 `Appearing for roughly 85 minutes onstage, the Republican nominee repeated false claims about the 2020 election and introduced a mischaracterization about disaster-relief money.`\
 https://nytimes.com/2024/10/03/us/politics/trump-rally-michigan.html
-
-**In Retrial, Man Convicted of Murder of Transgender Woman**\
-`Rasheen Everett strangled Amanda Gonzalez-Andujar in her Queens apartment. His 2013 conviction was thrown out because of a judge’s error.`\
-https://nytimes.com/2024/10/03/nyregion/retrial-murder-conviction-transgender-woman.html
 
