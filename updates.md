@@ -1,3 +1,11 @@
+**Fantasy football flex fliers: Antonio Gibson, Josh Downs and more deep sleepers to consider in Week 5**\
+`Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 5 free agency.`\
+https://nytimes.com/athletic/5818615/2024/10/04/fantasy-football-flex-fliers-deep-sleepers-week-5-gibson-downs/
+
+**Nibi the Beaver’s Future Reached the Courts. Then the Massachusetts Governor Stepped In.**\
+`Nibi the beaver was saved by a wildlife rescue. But then she was ordered released into the wild. Her fate was on the line.`\
+https://nytimes.com/2024/10/04/us/nibi-beaver-boston.html
+
 **3 Warming Dishes for Crisp Fall Days**\
 `Carolina Gelen, a cookbook author and video personality, shares cozy vegetable recipes from her childhood in Romania.`\
 https://nytimes.com/2024/10/04/dining/vegetable-romanian-dishes.html

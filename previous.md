@@ -1,3 +1,7 @@
+**Fantasy football flex fliers: Antonio Gibson, Josh Downs and more deep sleepers to consider in Week 5**\
+`Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 5 free agency.`\
+https://nytimes.com/athletic/5818615/2024/10/04/fantasy-football-flex-fliers-deep-sleepers-week-5-gibson-downs/
+
 **3 Warming Dishes for Crisp Fall Days**\
 `Carolina Gelen, a cookbook author and video personality, shares cozy vegetable recipes from her childhood in Romania.`\
 https://nytimes.com/2024/10/04/dining/vegetable-romanian-dishes.html
@@ -26,15 +30,11 @@ https://nytimes.com/interactive/2024/10/04/arts/television/best-of-late-night-vp
 `Real Madrid do not lose many battles in Europe but they lost one on Friday when the European Court of Justice (ECJ) ruled against them in their long-running row with French newspaper Le Monde.`\
 https://nytimes.com/athletic/5818063/2024/10/04/real-madrid-lose-court-case-le-monde/
 
-**A Beaver’s Future Reached the Courts. Then the Massachusetts Governor Stepped In.**\
+**Nibi the Beaver’s Future Reached the Courts. Then the Massachusetts Governor Stepped In.**\
 `Nibi the beaver was saved by a wildlife rescue. But then she was ordered released into the wild. Her fate was on the line.`\
 https://nytimes.com/2024/10/04/us/nibi-beaver-boston.html
 
 **Supreme Court Lets Biden Plans on Mercury and Methane Move Forward**\
 `Republican-led states and industry groups argued that the Environmental Protection Agency had moved too fast and imposed onerous regulations.`\
 https://nytimes.com/2024/10/04/us/politics/supreme-court-methane-mercury-emissions-biden.html
-
-**China's male tennis players look to Zheng Qinwen and Li Na in bid to make a statement**\
-`While two of its women have become global stars, China's presence in the men's game has been limited. These players want to change that`\
-https://nytimes.com/athletic/5815591/2024/10/04/tennis-china-atp-zhang-bu-jerry-shang/
 
