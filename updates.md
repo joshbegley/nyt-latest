@@ -1,3 +1,7 @@
+**FIFA Limits on Player Transfers Are Illegal, Europe’s Top Court Rules**\
+`A decision could force soccer’s governing body to rewrite the regulations that govern the sport’s multibillion-dollar transfer market.`\
+https://nytimes.com/2024/10/04/world/europe/transfer-market-rules-illegal.html
+
 **A Crackdown**\
 `We explain the Biden administration’s shift on immigration.`\
 https://nytimes.com/2024/10/04/briefing/a-crackdown.html
