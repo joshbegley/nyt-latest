@@ -1,3 +1,7 @@
+**Iran’s Foreign Minister Reaches Out to Arab Leaders in Lebanon, Qatar**\
+`Iran’s top diplomat appeared eager to convey Iran’s readiness to support a joint cease-fire in Lebanon and in Gaza — even as Iran’s supreme leader at home expressed readiness to fight Israel.`\
+https://nytimes.com/2024/10/04/world/middleeast/iran-lebanon-gaza-ceasefire.html
+
 **Omari Hutchinson opts to battle for place in England squad over Jamaica call-up**\
 `Hutchinson's fine form at Ipswich Town left the attacking midfielder with a big decision to make`\
 https://nytimes.com/athletic/5818945/2024/10/04/omari-hutchinson-england-jamaica/
