@@ -1,3 +1,15 @@
+**NFLPA calls to move media interviews out of locker rooms**\
+`In the short term, the NFLPA encouraged each player to ask for interviews outside the locker room.`\
+https://nytimes.com/athletic/5819081/2024/10/04/nflpa-locker-room-media-interviews/
+
+**Red Wings' Jack Campbell entering NHL/NHLPA player assistance program**\
+`Campbell will be away from the club for an undetermined amount of time.`\
+https://nytimes.com/athletic/5819160/2024/10/04/jack-campbell-red-wings-nhl-nhlpa-player-assistance/
+
+**Savannah Bananas roll out big and bold 2025 schedule**\
+`The Savannah Bananas will visit 18 MLB stadiums and three football stadiums in 2025 while on its "Banana Ball World Tour."`\
+https://nytimes.com/athletic/5818132/2024/10/04/savannah-bananas-2025-schedule/
+
 **Ports Rush to Reopen After First Major Strike in Decades Is Suspended**\
 `Days after tens of thousands of longshoreman along the East and Gulf Coasts walked out, their union and their bosses reached a tentative agreement on wages.`\
 https://nytimes.com/2024/10/04/business/economy/dockworkers-strike-ports-reopen.html
