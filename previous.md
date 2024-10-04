@@ -1,3 +1,7 @@
+**Walz, Appealing to Muslim Voters, Says War in Gaza ‘Must End Now’**\
+`Gov. Tim Walz addressed a virtual event hosted by a group focused on building Muslim American political power.`\
+https://nytimes.com/2024/10/03/us/politics/walz-gaza-israel-muslims-emgage.html
+
 **Israeli Strike Hits Southern Beirut**\
 `Israeli officials said the attack was targeting a meeting in a bunker that included Hashem Safieddine, the presumed successor of Hezbollah’s recently assassinated leader.`\
 https://nytimes.com/video/world/middleeast/100000009741290/beirut-strikes.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5817034/2024/10/03/chez-mellusi-wisconsin-badgers-f
 **Teenagers on What Has Shaped Their Political Beliefs and Values**\
 `Ahead of the 2024 Election, we invited teens to explore their political identities and tell us how they have come to believe what they believe.`\
 https://nytimes.com/2024/10/03/learning/teenagers-on-what-has-shaped-their-political-beliefs-and-values.html
-
-**Who Is Hashem Safieddine, the Latest Hezbollah Official Targeted by Israel?**\
-`A cousin and possible successor to Hassan Nasrallah, the Hezbollah leader assassinated by Israel, Safieddine joined the group soon after it was formed and rose quickly up its ranks.`\
-https://nytimes.com/2024/10/03/world/middleeast/hashem-safieddine-hezbollah-leader.html
 

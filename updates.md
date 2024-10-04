@@ -1,3 +1,7 @@
+**Walz, Appealing to Muslim Voters, Says War in Gaza ‘Must End Now’**\
+`Gov. Tim Walz addressed a virtual event hosted by a group focused on building Muslim American political power.`\
+https://nytimes.com/2024/10/03/us/politics/walz-gaza-israel-muslims-emgage.html
+
 **Israeli Strike Hits Southern Beirut**\
 `Israeli officials said the attack was targeting a meeting in a bunker that included Hashem Safieddine, the presumed successor of Hezbollah’s recently assassinated leader.`\
 https://nytimes.com/video/world/middleeast/100000009741290/beirut-strikes.html
