@@ -1,3 +1,7 @@
+**The War in Darkness**\
+`Sonya Liakh was diagnosed with eye cancer at age 2. After Russia’s invasion of Ukraine disrupted her treatment, her family faced a desperate struggle.`\
+https://nytimes.com/2024/10/04/world/europe/ukraine-war-children-cancer.html
+
 **The Bold. The Beautiful. The Fat Bear.**\
 `Ten years in, Fat Bear Week has drawn millions of viewers to a live webcam in Alaska to follow along and vote for the chonkiest brown bear at Katmai National Park.`\
 https://nytimes.com/2024/10/04/us/fat-bear-week.html

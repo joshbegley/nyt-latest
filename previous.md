@@ -1,3 +1,7 @@
+**The War in Darkness**\
+`Sonya Liakh was diagnosed with eye cancer at age 2. After Russia’s invasion of Ukraine disrupted her treatment, her family faced a desperate struggle.`\
+https://nytimes.com/2024/10/04/world/europe/ukraine-war-children-cancer.html
+
 **The Bold. The Beautiful. The Fat Bear.**\
 `Ten years in, Fat Bear Week has drawn millions of viewers to a live webcam in Alaska to follow along and vote for the chonkiest brown bear at Katmai National Park.`\
 https://nytimes.com/2024/10/04/us/fat-bear-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817661/2024/10/04/falcons-khadarel-hodge-buccaneer
 **NFL injury report: Week 5 availability of Colts Anthony Richardson, Jonathan Taylor in doubt**\
 `Greg Scholz of Inside Injuries shares his doubts that banged up Colts Anthony Richardson and Jonathan Taylor will be able to play in Week 5.`\
 https://nytimes.com/athletic/5817345/2024/10/04/nfl-week-5-injury-report-richardson-taylor-rice/
-
-**Can Michigan find answers, quickly? 3 keys and a prediction**\
-`The entire operation has to be tighter as Michigan prepares to go on the road for the first time this season.`\
-https://nytimes.com/athletic/5815636/2024/10/04/michigan-washington-prediction-matchup/
 
