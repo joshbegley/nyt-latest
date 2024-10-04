@@ -1,3 +1,7 @@
+**Israel Expands Attacks on Hezbollah as Iran Warns of Retaliation**\
+`Israel is drastically widening its fight against the Lebanese militant group that is backed by Iran, whose supreme leader said that “any strike on the Zionist regime is a service to humanity.”`\
+https://nytimes.com/2024/10/04/world/middleeast/israel-hezbollah-lebanon.html
+
 **Trump’s False Claims About the Federal Response to Hurricane Helene**\
 `The former president falsely accused the Biden administration of spending disaster funding on migrants, neglecting areas that had voted for Republicans and ignoring a call from a Republican governor.`\
 https://nytimes.com/2024/10/04/us/politics/trump-helene-fema-fact-check.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819471/2024/10/04/49ers-white-pants-100-degrees-ca
 **Biden Cautions Israel on Striking Iranian Oil Fields**\
 `President Biden said Israel should consider alternative ways of retaliating against Iran, a day after he said the United States was “in discussion” about the possibility of Israel striking Iran’s oil fields.`\
 https://nytimes.com/video/us/politics/100000009743470/biden-israel-iran-oil-fields.html
-
-**Shock in French Court Shown Videos of Men Accused of Raping Drugged Woman**\
-`Gisèle Pelicot fought for the graphic videos made by her husband to be shown publicly in court, insisting they were essential evidence in a rape case against him and 50 other men.`\
-https://nytimes.com/2024/10/04/world/europe/france-rape-trial-pelicot-videos.html
 
