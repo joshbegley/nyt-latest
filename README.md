@@ -1,3 +1,27 @@
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 7?**\
+`As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for upcoming games`\
+https://nytimes.com/athletic/5805521/2024/10/04/premier-league-predicted-line-ups-gameweek-7/
+
+**Adapting to the Champions League’s New Reality**\
+`This year more than ever is showing that the competition means different things to different clubs. And that’s a good thing.`\
+https://nytimes.com/2024/10/04/world/europe/champions-league.html
+
+**Orange Beef Will Cure What Ails You**\
+`It’s takeout-style Chinese American cooking brought into your home kitchen, where you can get as creative as you’d like.`\
+https://nytimes.com/2024/10/04/dining/orange-beef-will-cure-what-ails-you.html
+
+**5 New Horror Movies to Stream for Halloween**\
+`Out this week, a period possession movie starring Sarah Paulson, a chef-driven supernatural thriller starring Ariana DeBose and more.`\
+https://nytimes.com/2024/10/04/movies/new-horror-movies-streaming-halloween.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include cool fighter pilots, a feminist queen and urban turf wars.`\
+https://nytimes.com/2024/10/04/movies/five-action-movies-to-stream-now.html
+
+**Sharks depth chart analysis: Celebrini, Smith find their linemates**\
+`Is Smith ready to be the second-line center? What happens if Celebrini isn't ready to start the season?`\
+https://nytimes.com/athletic/5817751/2024/10/04/sharks-depth-chart-celebrini-smith/
+
 **Supreme Court to Decide Whether Mexico Can Sue U.S. Gun Makers**\
 `The justices will consider whether a 2005 law that gives gun makers broad immunity applies in the case, which accuses them of complicity in supplying cartels with weapons.`\
 https://nytimes.com/2024/10/04/us/supreme-court-mexico-gun-makers.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5810227/2024/10/04/thad-levine-minnesota-twins-part
 **Hutchinson receives England U21s call-up**\
 `Omari Hutchinson has been called up to the England Under-21 squad for their upcoming European Championship qualifiers.`\
 https://nytimes.com/athletic/5818313/2024/10/04/omari-hutchinson-england/
-
-**Turner Ward out as Cardinals hitting coach after struggles in 2024: sources**\
-`Ward, 59, took over as the Cardinals hitting coach in 2023 after spending the 2022 season as the team’s assistant hitting coach.`\
-https://nytimes.com/athletic/5818341/2024/10/04/cardinals-hitting-coach-turner-ward-out/
-
-**Scoop City: Falcons remarkable win, Jaguars issues and rookies, prospects**\
-`A quick rundown of Falcons-Buccaneers stats, why Trevor Lawrence could cost Doug Pederson his job, the 2024 rookies and 2025 'weird' class`\
-https://nytimes.com/athletic/5818323/2024/10/04/scoop-city-falcons-remarkable-win-t-law-costing-pederson-rookie-standouts/
-
-**Vikings open T.J. Hockenson's practice window**\
-`The tight end, who tore his ACL and MCL in December, is not likely to play this weekend as his rehab has been viewed as a long-term process.`\
-https://nytimes.com/athletic/5818188/2024/10/04/tj-hockenson-practice-window-vikings/
-
-**Arsenal's Havertz has the 'qualities and ambition' to become 20-goal-a-season striker - Arteta**\
-`Arsenal have long been searching for the goalscorer who can fire them to the Premier League title, but Mikel Arteta believes he finally has his elusive 20-plus goal striker in Kai Havertz.`\
-https://nytimes.com/athletic/5818283/2024/10/04/arsenal-havertz-striker-arteta/
-
-**Jobs Report Adds to Economic Momentum for Harris**\
-`In recent weeks, reports have shown inflation slowing and the economy growing at a robust clip. The Federal Reserve has also cut interest rates, bringing mortgage rates down.`\
-https://nytimes.com/2024/10/04/business/jobs-report-harris-economy.html
-
-**The Job Market Is Chugging Along, Completing a Solid Economic Picture**\
-`After months of wobbling, a fresh jobs report showed that hiring and wage growth is strong, aligning with other robust economic data.`\
-https://nytimes.com/2024/10/04/business/job-market-hiring-wage.html
 
