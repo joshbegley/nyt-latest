@@ -1,3 +1,11 @@
+**Bring Up the Bodies in 4 New Crime Novels**\
+`Our crime columnist on books by Kate Atkinson, Nicholas Meyer, Marcie R. Rendon and Nilanjana Roy.`\
+https://nytimes.com/2024/10/04/books/review/new-crime-novels.html
+
+**Man Utd hierarchy to meet on Tuesday after Ratcliffe watches Villa game**\
+`Manchester United’s decision-makers are scheduled to meet in London within 48 hours of Sunday’s Premier League match away at Aston Villa as the scrutiny continues to grow on manager Erik ten Hag.`\
+https://nytimes.com/athletic/5818054/2024/10/04/man-utd-meeting-ten-hag-future/
+
 **Hamas Leader Is Holding Out for a Bigger War, U.S. Officials Say**\
 `Yahya Sinwar is increasingly fatalistic, has blocked a cease-fire deal and, so far, been frustrated that Hezbollah and Iran have not come to his aid, officials said.`\
 https://nytimes.com/2024/10/04/us/politics/sinwar-hamas-israel-hezbollah-iran.html
