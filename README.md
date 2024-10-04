@@ -1,5 +1,13 @@
+**Twins, GM Thad Levine part ways after 8 years**\
+`The Twins and general manager Thad Levine, who has held the role for eight years, have announced a mutual parting of the ways. `\
+https://nytimes.com/athletic/5810227/2024/10/04/thad-levine-minnesota-twins-parts-ways/
+
+**Hutchinson receives England U21s call-up despite Jamaica caps**\
+`Omari Hutchinson has been called up to the England Under-21 squad for their upcoming European Championship qualifiers, despite previously representing the Jamaica national team.`\
+https://nytimes.com/athletic/5818313/2024/10/04/omari-hutchinson-england-jamaica-ipswich/
+
 **Turner Ward out as Cardinals hitting coach after struggles in 2024: sources**\
-`ST.`\
+`Ward, 59, took over as the Cardinals hitting coach in 2023 after spending the 2022 season as the team’s assistant hitting coach.`\
 https://nytimes.com/athletic/5818341/2024/10/04/cardinals-hitting-coach-turner-ward-out/
 
 **Scoop City: Falcons remarkable win, Jaguars issues and rookies, prospects**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5818242/2024/10/04/aston-villa-injuries-man-utd/
 **In Georgia, Black Men’s Frustration With Democrats Creates Opening for Trump**\
 `Most Black men in the key battleground will back Vice President Kamala Harris — but the Trump campaign has made an effort to capitalize on a sense of dissatisfaction some voters have expressed.`\
 https://nytimes.com/2024/10/04/us/politics/black-men-election-georgia-trump-harris.html
-
-**From F1 Academy firsts to unique roots, Chloe Chambers breaks the motorsports mold**\
-`The American racer took a different path to the F1 series pyramid, and is hard at work managing what she hopes is a long career. `\
-https://nytimes.com/athletic/5816613/2024/10/04/chloe-chambers-f1-academy-red-bull-haas/
-
-**Lowetide: Identifying the Oilers' top recall options at each position**\
-`Which players are first on the Oilers' list in case of injury, trade or a rough series of performances?`\
-https://nytimes.com/athletic/5813594/2024/10/04/edmonton-oilers-depth-2024/
 
