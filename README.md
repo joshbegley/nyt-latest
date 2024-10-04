@@ -1,3 +1,7 @@
+**2 Men Sentenced to Prison for Attacking Officers at Jan. 6 Riot**\
+`One of the men, from New Jersey, referred to lawmakers as “traitors” and encouraged other rioters to drag them out of the building by their hair, prosecutors said.`\
+https://nytimes.com/2024/10/04/nyregion/january-6-riot-prison-sentences.html
+
 **Instructor at Troubled Skydiving Spot Gets 2 Years After Faking Credentials**\
 `The facility near Lodi, Calif., where he trained people in tandem jumping, has come under scrutiny amid more than two dozen deaths since 1985.`\
 https://nytimes.com/2024/10/04/us/skydiver-fraud-sentence-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819516/2024/10/04/sabres-devils-prague-observation
 **It’s Not World War III. But Foreign Conflicts May Get Uglier Before Election Day.**\
 `Rarely do foreign crises and a presidential election collide like they have in the past few days.`\
 https://nytimes.com/2024/10/04/us/politics/election-israel-iran.html
-
-**Reporter Asks Biden if He Would Reconsider Dropping Out of the Race**\
-`President Biden, who reluctantly surrendered his bid for a second term, has wanted to be president for most of his adult life.`\
-https://nytimes.com/2024/10/04/us/politics/biden-drop-out-2024-election.html
 
