@@ -1,3 +1,7 @@
+**How Porto prised open further cracks in Manchester United's fragile defence**\
+`Erik ten Hag is still searching for a way to fix a team who keep leaking goals at a record-setting rate`\
+https://nytimes.com/athletic/5817674/2024/10/04/manchester-united-fragile-defence-porto/
+
 **Here are the latest developments.**\
 `By Victoria Kim and Farnaz Fassihi`\
 https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/here-are-the-latest-developments
