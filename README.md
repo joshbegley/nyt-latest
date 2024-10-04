@@ -1,3 +1,11 @@
+**Bring Up the Bodies in 4 New Crime Novels**\
+`Our crime columnist on books by Kate Atkinson, Nicholas Meyer, Marcie R. Rendon and Nilanjana Roy.`\
+https://nytimes.com/2024/10/04/books/review/new-crime-novels.html
+
+**Man Utd hierarchy to meet on Tuesday after Ratcliffe watches Villa game**\
+`Manchester United’s decision-makers are scheduled to meet in London within 48 hours of Sunday’s Premier League match away at Aston Villa as the scrutiny continues to grow on manager Erik ten Hag.`\
+https://nytimes.com/athletic/5818054/2024/10/04/man-utd-meeting-ten-hag-future/
+
 **Hamas Leader Is Holding Out for a Bigger War, U.S. Officials Say**\
 `Yahya Sinwar is increasingly fatalistic, has blocked a cease-fire deal and, so far, been frustrated that Hezbollah and Iran have not come to his aid, officials said.`\
 https://nytimes.com/2024/10/04/us/politics/sinwar-hamas-israel-hezbollah-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/style/facial-hair-callout.html
 **Mark Zuckerberg Tries His Hand at Fashion**\
 `Et tu, Zuck?`\
 https://nytimes.com/2024/10/04/style/mark-zuckerberg-tries-his-hand-at-fashion.html
-
-**People Flee Lebanon for Syria Following Israeli Airstrikes**\
-`After an Israeli airstrike left a crater in a road, people crossing into Syria left their cars behind and walked across the border.`\
-https://nytimes.com/video/world/middleeast/100000009742429/mideast-lebanon-syria-israel.html
-
-**New Los Angeles Police Chief Is a Conventional Choice**\
-`Mayor Karen Bass named Jim McDonnell as the new Los Angeles Police Department chief, one of the nation’s highest-profile law enforcement jobs.`\
-https://nytimes.com/2024/10/04/us/los-angeles-police-chief.html
 
