@@ -1,3 +1,19 @@
+**Ports Rush to Reopen After First Major Strike in Decades Is Suspended**\
+`Days after tens of thousands of longshoreman along the East and Gulf Coasts walked out, their union and their bosses reached a tentative agreement on wages.`\
+https://nytimes.com/2024/10/04/business/economy/dockworkers-strike-ports-reopen.html
+
+**Biden Voices Concern That the Election May Not Be ‘Peaceful’**\
+`President Biden said he was confident next month’s election would be free and fair, but that he was concerned about what former President Donald J. Trump and his supporters would do if he lost his bid for another term.`\
+https://nytimes.com/video/us/politics/100000009743207/biden-trump-election-peaceful.html
+
+**Ex-OceanGate Employee’s Remarks Hint at Titan Disaster Lawsuits to Come**\
+`A former Coast Guard specialist’s testimony capped two weeks of hearings into the implosion of a submersible that killed five during an attempt to explore the Titanic.`\
+https://nytimes.com/2024/10/04/science/titan-oceangate-titanic-mccoy.html
+
+**Mets to start Kodai Senga in Game 1 of NLDS vs. Phillies**\
+`Mets ace Kodai Senga will make at least as many postseason starts as regular-season ones: New York has tabbed him for Game 1 of the NLDS.`\
+https://nytimes.com/athletic/5819171/2024/10/04/kodai-senga-mets-game-1-nlds-starter/
+
 **Pogba has four-year doping ban reduced to 18 months after successful appeal**\
 `Paul Pogba says his “nightmare is over” and he “cannot wait to get back on the pitch” after his four-year ban for failing an anti-doping test was reduced to 18 months.`\
 https://nytimes.com/athletic/5818652/2024/10/04/paul-pogba-ban-appeal-successful-return/
