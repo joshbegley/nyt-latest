@@ -1,3 +1,7 @@
+**Shock in French Court Shown Videos of Men Accused of Raping Drugged Woman**\
+`Gisèle Pelicot fought for the graphic videos made by her husband to be shown publicly in court, insisting they were essential evidence in a rape case against him and 50 other men.`\
+https://nytimes.com/2024/10/04/world/europe/france-rape-trial-pelicot-videos.html
+
 **Still Searching for Their Loved Ones, a Week After Hurricane Helene**\
 `The storm’s death toll has climbed past 210, but many people remain unaccounted for and searching for them is complicated. Their families are desperate for answers.`\
 https://nytimes.com/2024/10/04/us/still-searching-for-their-loved-ones-a-week-after-hurricane-helene.html

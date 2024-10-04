@@ -1,3 +1,11 @@
+**49ers to wear white pants with forecasted high near 100 degrees**\
+`The team was hoping to wear its all-white throwback uniforms; instead it'll settle for its throwback red jerseys with white pants.`\
+https://nytimes.com/athletic/5819471/2024/10/04/49ers-white-pants-100-degrees-cardinals/
+
+**Biden Cautions Israel on Striking Iranian Oil Fields**\
+`President Biden said Israel should consider alternative ways of retaliating against Iran, a day after he said the United States was “in discussion” about the possibility of Israel striking Iran’s oil fields.`\
+https://nytimes.com/video/us/politics/100000009743470/biden-israel-iran-oil-fields.html
+
 **Shock in French Court Shown Videos of Men Accused of Raping Drugged Woman**\
 `Gisèle Pelicot fought for the graphic videos made by her husband to be shown publicly in court, insisting they were essential evidence in a rape case against him and 50 other men.`\
 https://nytimes.com/2024/10/04/world/europe/france-rape-trial-pelicot-videos.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/02/opinion/thepoint/sudan-famine-world-food-pro
 **Judge Halts Biden Student Debt Plan Right After It Was Allowed to Proceed**\
 `The ruling was the latest instance of legal whiplash for the over 27 million borrowers who could qualify, and yet another blow to the president’s pledge to provide mass student debt relief.`\
 https://nytimes.com/2024/10/04/us/politics/biden-student-debt-missouri.html
-
-**What's it like in a NASCAR car that gets airborne? 'I'm afraid of flying in general'**\
-`As NASCAR heads back to Talladega, where wild crashes are common, drivers talk about the experience of going airborne after a wreck.`\
-https://nytimes.com/athletic/5819142/2024/10/04/nascar-crash-airborne-talladega-superspeedway/
-
-**The Economy Looks Strong After the Latest Jobs Report**\
-`Also, Trump is returning to the site where he was shot. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/10/04/briefing/the-economy-looks-strong-after-the-latest-jobs-report.html
 
