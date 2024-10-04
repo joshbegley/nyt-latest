@@ -1,3 +1,15 @@
+**In Key Nevada County, Harassment of Election Workers Takes a Toll**\
+`Republicans this year attempted to block certification of local elections in Washoe, a critical swing county — a worrying sign for what could be ahead, the Democratic secretary of state said.`\
+https://nytimes.com/2024/10/04/us/politics/nevada-election-harassment.html
+
+**Affection Does Not Excuse Blackface**\
+`Representative Mike Lawler, take note.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/mike-lawler-blackface
+
+**Joe D. Bryan, 84, Dies; His Murder Conviction Raised Troubling Questions**\
+`After serving 33 years in prison, he was released in the wake of a cascade of questions about the soundness of the forensic testimony against him.`\
+https://nytimes.com/2024/10/04/us/joe-d-bryan-dead.html
+
 **Trump Takes Aim at Legal Immigration**\
 `The former president and his allies, who often decry undocumented immigrants, are targeting programs that allow millions of people to enter the country lawfully.`\
 https://nytimes.com/2024/10/04/us/politics/trump-takes-aim-at-legal-immigration.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/04/weather/hurricane-season-updates-october.html
 **Israel’s latest strike in Lebanon makes clear that it is taking its fight against Hezbollah to a new scale.**\
 `By Ben Hubbard`\
 https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/israels-latest-strike-in-lebanon-makes-clear-that-it-is-taking-its-fight-against-hezbollah-to-a-new-scale
-
-**Trump’s Return to Butler Is Sure to Be a Spectacle. Is It Safe?**\
-`At a time of increased security risks, the former president has urged thousands of supporters to return with him to the place a gunman tried to take his life.`\
-https://nytimes.com/2024/10/04/us/elections/trump-butler-assassination-attempt.html
-
-**Bronny to make preseason debut while LeBron held out vs. Timberwolves**\
-`Those hoping to see LeBron and Bronny share the court for the Lakers as the first father-son duo in NBA history have to wait.`\
-https://nytimes.com/athletic/5819025/2024/10/04/bronny-james-lebron-james-nba-preseason-debut/
-
-**A Pentagon Debate: Are U.S. Deployments Containing the Fighting, or Inflaming It?**\
-`Military officials discuss whether sending more force to the Middle East is helping to prevent a much wider war, or emboldening Israel.`\
-https://nytimes.com/2024/10/04/us/politics/troops-mideast-israel-war.html
 
