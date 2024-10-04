@@ -1,3 +1,15 @@
+**The William Nylander-to-centre experiment ends too soon (again)**\
+`It really felt like it would be different this time. In the end, it was just like last fall.`\
+https://nytimes.com/athletic/5818902/2024/10/04/maple-leafs-william-nylander-centre-2/
+
+**Giants' Malik Nabers (concussion) out against Seahawks**\
+`New York Giants rookie standout Malik Nabers has been ruled out against Seattle, coach Brian Daboll said in an update Friday`\
+https://nytimes.com/athletic/5813052/2024/10/04/giants-malik-nabers-concussion/
+
+**Biden Will Allow Legal Permission to Lapse for Migrants From 4 Countries**\
+`The decision comes as political pressure mounts to cut down on programs that allow migrants to stay in the United States temporarily, even without a visa or green card.`\
+https://nytimes.com/2024/10/04/us/politics/biden-will-allow-legal-status-to-lapse-for-migrants-from-4-countries.html
+
 **‘The Franchise’ Review: Cutting Marvel Down to Size**\
 `A new HBO comedy takes a jaundiced look at the making of a second-rate superhero film.`\
 https://nytimes.com/2024/10/04/arts/television/the-franchise-review.html
