@@ -1,3 +1,7 @@
+**Exploring Your Political Identity and Values: A How-To Guide for Our 2024 Coming of Age Contest**\
+`Four steps to figuring out what you want to say and how you would like to say it, with inspiration from 31 teen-created works across genres.`\
+https://nytimes.com/2024/10/04/learning/exploring-your-political-identity-and-values-a-how-to-guide-for-our-2024-coming-of-age-contest.html
+
 **In Rare Sermon, Iran’s Supreme Leader Issues Warning to Israel**\
 `Ayatollah Ali Khamenei led Friday Prayer for the first time in years, delivering a sermon during a memorial service in Tehran for Hezbollah’s leader.`\
 https://nytimes.com/2024/10/04/world/middleeast/ayatollah-khamenei-iran.html
