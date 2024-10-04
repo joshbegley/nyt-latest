@@ -1,3 +1,23 @@
+**Why Eric Adams Is Nothing Like David Dinkins**\
+`Facing a raft of corruption charges, New York’s second Black mayor is flattering himself by invoking the fate of its first.`\
+https://nytimes.com/2024/10/04/nyregion/why-eric-adams-is-nothing-like-david-dinkins.html
+
+**Woman With Flowers**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/10/04/learning/woman-with-flowers.html
+
+**Their Uber Driver Crashed. A Pizza Order Unraveled Their Injury Lawsuit.**\
+`A New Jersey couple sued Uber after a crash left them severely injured. An appeals court ruled that they had agreed to settle disputes out of court when they used the Uber Eats app.`\
+https://nytimes.com/2024/10/04/nyregion/uber-eats-car-crash-injury-nj.html
+
+**Chasing Down a Trail of Climate Conspiracies**\
+`Who was behind a national campaign to ban geoengineering? One reporter went down a few rabbit holes to find out.`\
+https://nytimes.com/2024/10/04/insider/chasing-down-a-trail-of-climate-conspiracies.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/04/crosswords/spelling-bee-forum.html
+
 **FIFA to investigate Israel amid Palestinian suspension request**\
 `FIFA says they will investigate the Israel Football Association (IFA) over alleged breaches of its rules.`\
 https://nytimes.com/athletic/5814832/2024/10/04/israel-fifa-investigation/
