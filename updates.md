@@ -1,3 +1,11 @@
+**‘The Franchise’ Review: Cutting Marvel Down to Size**\
+`A new HBO comedy takes a jaundiced look at the making of a second-rate superhero film.`\
+https://nytimes.com/2024/10/04/arts/television/the-franchise-review.html
+
+**Phillies to start Cristopher Sánchez in Game 2, Aaron Nola in Game 3 vs. Mets**\
+`The Phillies have opted for 27-year-old lefty Cristopher Sánchez over Aaron Nola in Game 2 at Citizens Bank Park. Here's why. `\
+https://nytimes.com/athletic/5818942/2024/10/04/cristopher-sanchez-phillies-game-2-starter-nlds/
+
 **The Dollar Is Too Strong for America’s Own Good**\
 `Weakening the dollar is a good idea. How to do it is another question.`\
 https://nytimes.com/2024/10/04/opinion/dollar-exchange-richard-koo.html
