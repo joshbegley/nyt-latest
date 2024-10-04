@@ -1,3 +1,11 @@
+**10 Unforgettable Kris Kristofferson Covers**\
+`Many of his songs are better known by other singers’ interpretations, like Janis Joplin’s “Me and Bobby McGee,” Johnny Cash’s “Sunday Morning Coming Down” and more.`\
+https://nytimes.com/2024/10/04/arts/music/amplifier-newsletter-kris-kristofferson-covers.html
+
+**Atletico to ban two fans involved in Madrid derby crowd trouble**\
+`Atletico Madrid say two supporters face liftetime bans after being identified as taking part in the crowd disturbances that marred the Madrid derby on September 29.`\
+https://nytimes.com/athletic/5805882/2024/10/04/atletico-fans-banned-real-madrid/
+
 **Colts RB Taylor out vs. Jaguars, QB Richardson's status TBD**\
 `Richardson played just 13 snaps last week before exiting in the first quarter after taking a hit from Steelers' Minkah Fitzpatrick.`\
 https://nytimes.com/athletic/5818723/2024/10/04/colts-anthony-richardson-jonathan-taylor-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/us/politics/republican-ad-jon-tester-immigration.
 **Capturing a Community in Ruin**\
 `After years of documenting the effects of climate change in his home state of North Carolina, a photographer found himself in the path of a hurricane.`\
 https://nytimes.com/2024/10/04/us/politics/photojournalist-climate-change-asheville-helene.html
-
-**Bring Up the Bodies in 4 New Crime Novels**\
-`Our crime columnist on books by Kate Atkinson, Nicholas Meyer, Marcie R. Rendon and Nilanjana Roy.`\
-https://nytimes.com/2024/10/04/books/review/new-crime-novels.html
-
-**Man Utd hierarchy to meet on Tuesday after Ratcliffe watches Villa game**\
-`Manchester United’s decision-makers are scheduled to meet in London within 48 hours of Sunday’s Premier League match away at Aston Villa as the scrutiny continues to grow on manager Erik ten Hag.`\
-https://nytimes.com/athletic/5818054/2024/10/04/man-utd-meeting-ten-hag-future/
 
