@@ -1,3 +1,15 @@
+**Colts RB Taylor out vs. Jaguars, QB Richardson's status TBD**\
+`Richardson played just 13 snaps last week before exiting in the first quarter after taking a hit from Steelers' Minkah Fitzpatrick.`\
+https://nytimes.com/athletic/5818723/2024/10/04/colts-anthony-richardson-jonathan-taylor-injury-update/
+
+**National League Division Series predictions: Our experts make their picks**\
+`The stage is set for the National League Division Series, which features not one but two storied rivalries.`\
+https://nytimes.com/athletic/5818482/2024/10/04/national-league-division-series-predictions-our-experts-make-their-picks/
+
+**The Savannah Bananas Needed a Bigger Stage**\
+`Everyone’s favorite dancing baseball team is taking its act almost exclusively to M.L.B. and football stadiums in 2025, with even more extreme changes on the horizon.`\
+https://nytimes.com/2024/10/04/style/savannah-bananas-schedule.html
+
 **Lauren Mayberry’s Lush Pop Ecstasy, and 13 More New Songs**\
 `Hear tracks by Bartees Strange, the Smile, Ela Minus and others.`\
 https://nytimes.com/2024/10/04/arts/music/playlist-lauren-mayberry-bartees-strange-the-smile.html
