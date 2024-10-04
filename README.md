@@ -1,40 +1,40 @@
+**Low block, bravery and a big old slice of luck - how 'smaller' teams can beat Manchester City**\
+`Over the previous four league seasons, Pep Guardiola's side lost eight games to teams outside the 'Big Six'. This is how they were beaten`\
+https://nytimes.com/athletic/5815428/2024/10/04/how-to-beat-manchester-city/
+
+**A More Working-Class British Cabinet, Still Seen as Out of Touch**\
+`Prime Minister Keir Starmer’s top team contains more lawmakers from poor backgrounds, and fewer from elite schools, than any in recent memory. Voters haven’t noticed.`\
+https://nytimes.com/2024/10/04/world/europe/uk-labour-cabinet-working-class-freebies.html
+
+**Do Premier League red cards apply across all competitions - and how long do suspensions last?**\
+`Suspensions and bans are difficult to keep track of across different competitions`\
+https://nytimes.com/athletic/5808785/2024/10/04/premier-league-red-cards-yellow-ban-length/
+
+**We Were Just Voices in a Dark Room**\
+`Having barely met, we fell deep through late-night phone calls. Did that mean we were meant for each other?`\
+https://nytimes.com/2024/10/04/style/modern-love-we-were-voices-in-a-dark-room.html
+
+**A Welcome Break on ‘One of the Hardest Days’ of Her Life**\
+`Mary Kathryn Burke was ready for a drink after her mother was admitted to the hospital. Jonathan King messaged her at the right time.`\
+https://nytimes.com/2024/10/04/style/mary-kathryn-burke-jonathan-king-wedding.html
+
+**They Met For the First Time Twice**\
+`Rieanna Stewart remembered Devin Miller from a brief encounter three years earlier. And then: “We both left time and space,” Ms. Stewart said.`\
+https://nytimes.com/2024/10/04/style/rieanna-stewart-devin-miller-wedding.html
+
+**Risking a Friendship on the Dance Floor**\
+`Emil Weinstein and Dr. Alix Masters took things to the next level with Lil Jon and the East Side Boyz playing in the background.`\
+https://nytimes.com/2024/10/04/style/alix-masters-emil-weinstein-wedding.html
+
+**13 Days After Meeting, She Proposed on TV and He Followed Suit**\
+`Tessa Tookes and Joey Kirchner were both feeling down on love. Then they were cast on “Bachelor in Paradise Canada,” and had a change of heart (with the help of producers).`\
+https://nytimes.com/2024/10/04/style/tessa-tookes-joey-kirchner-wedding.html
+
+**For Companies in China, Pulling Out of Xinjiang Poses ‘Messy Dilemma’**\
+`Beijing’s investigation of the parent of Calvin Klein and Tommy Hilfiger, which stopped buying goods from Xinjiang, has put global firms in a difficult position.`\
+https://nytimes.com/2024/10/04/business/china-xinjiang.html
+
 **Quote of the Day: Brazil’s ‘Elegant’ Idea Could Save Tropical Forests and Generate Returns**\
 `Quotation of the Day for Friday, October 4, 2024`\
 https://nytimes.com/2024/10/03/pageoneplus/quote-of-the-day-brazils-elegant-idea-could-save-tropical-forests-and-generate-returns.html
-
-**Mets discussing whether to activate Kodai Senga for NLDS: Sources**\
-`Earlier this week, Senga threw 25 pitches in a live bullpen session in Florida.`\
-https://nytimes.com/athletic/5817499/2024/10/03/new-york-mets-kodai-senga-postseason-return/
-
-**Some Evidence in Adams Case Involves Classified Material, U.S. Says**\
-`In a letter to the judge handling the Eric Adams corruption case, federal prosecutors said there was evidence that could damage national security if exposed in open court.`\
-https://nytimes.com/2024/10/03/nyregion/eric-adams-classified-intelligence.html
-
-**Liz Cheney Endorses Kamala Harris**\
-`The former congresswoman and Republican exile campaigned with the vice president in the battleground state of Wisconsin.`\
-https://nytimes.com/video/us/elections/100000009741469/liz-cheney-harris-trump-wisconsin.html
-
-**What we learned in the wild card round of the MLB postseason: Game 1 is key, aces matter**\
-`Since the league moved to the three-game Wild Card Series in 2022, the winner of Game 1 has won all 12 series.`\
-https://nytimes.com/athletic/5817208/2024/10/03/what-we-learned-wild-card-mlb-postseason/
-
-**Ohtani 50th home run ball surpasses value of Judge's 62nd**\
-`Judge's 62nd home run ball in 2022 sold for $1.5 million `\
-https://nytimes.com/athletic/5817362/2024/10/03/shohei-ohtani-50-home-run-ball-auction/
-
-**Reds to hire Terry Francona as manager**\
-`Francona returns to managing after retiring from the Cleveland Guardians at the end of the 2023 season.`\
-https://nytimes.com/athletic/5817322/2024/10/03/terry-francona-reds-manager/
-
-**Pete Alonso, Mets rally past Brewers, advance to NLDS: Takeaways**\
-`The Mets will take on the Phillies in Game 1 of the National League Division Series on Saturday afternoon.`\
-https://nytimes.com/athletic/5817029/2024/10/03/mets-brewers-game-3-wild-card-takeaways/
-
-**What I'm seeing around the Penguins: Intriguing blue line, figuring out bottom 6 and more**\
-`With only five days left before the regular season begins, here's a look at some of the remaining Penguins roster considerations.`\
-https://nytimes.com/athletic/5817120/2024/10/03/penguins-blue-line-questions-bottom-six/
-
-**Time-Traveling, or Wishing to, in ‘Safety Not Guaranteed’**\
-`Adapted from the offbeat 2012 film, this new musical about loneliness and the longing for do-overs is promising but still needs to find its shape.`\
-https://nytimes.com/2024/10/03/theater/safety-not-guaranteed-review.html
 
