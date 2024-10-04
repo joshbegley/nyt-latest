@@ -1,3 +1,23 @@
+**Live chat with The Athletic's Keith Law at 1 pm ET**\
+`Keith Law will be chatting about prospect, the playoffs and more at 1pm ET on Fri., Oct. 4.`\
+https://nytimes.com/athletic/5818473/2024/10/04/live-chat-with-the-athletics-keith-law-at-1-pm-et/
+
+**Gang Attack in Haiti Leaves More than 20 People Dead**\
+`The assault took place in a key agricultural region, which has seen a surge in gang violence.`\
+https://nytimes.com/2024/10/04/us/haiti-gang-attack.html
+
+**The Bounce: A new plan for NBA playoff seeding**\
+`Welcome to The Bounce, The Athletic's daily NBA newsletter.`\
+https://nytimes.com/athletic/5818432/2024/10/04/nba-playoff-seeding-dikembe-mutombo-the-bounce/
+
+**The Fed May Have Gotten the Soft Landing of Its Dreams**\
+`The U.S. economy continues to be in a very good place.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/federal-reserve-soft-landing
+
+**Football Parlay Friday Week 6: Five college underdogs with a chance to provide some upside**\
+`After a winning week last week, Austin Mock is back with five college football underdogs he is grouping into round-robin parlays.`\
+https://nytimes.com/athletic/5818303/2024/10/04/football-parlay-friday-week-6/
+
 **Arts District, Decades in the Making, in Ruins After Helene**\
 `The hurricane damaged an estimated 80 percent of the buildings in the River Arts District of Asheville, N.C., and upended the lives of artists who had recast the city as a cultural force.`\
 https://nytimes.com/2024/10/04/arts/arts-district-decades-in-the-making-in-ruins-after-helene.html

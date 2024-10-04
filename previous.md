@@ -1,3 +1,23 @@
+**Live chat with The Athletic's Keith Law at 1 pm ET**\
+`Keith Law will be chatting about prospect, the playoffs and more at 1pm ET on Fri., Oct. 4.`\
+https://nytimes.com/athletic/5818473/2024/10/04/live-chat-with-the-athletics-keith-law-at-1-pm-et/
+
+**Gang Attack in Haiti Leaves More than 20 People Dead**\
+`The assault took place in a key agricultural region, which has seen a surge in gang violence.`\
+https://nytimes.com/2024/10/04/us/haiti-gang-attack.html
+
+**The Bounce: A new plan for NBA playoff seeding**\
+`Welcome to The Bounce, The Athletic's daily NBA newsletter.`\
+https://nytimes.com/athletic/5818432/2024/10/04/nba-playoff-seeding-dikembe-mutombo-the-bounce/
+
+**The Fed May Have Gotten the Soft Landing of Its Dreams**\
+`The U.S. economy continues to be in a very good place.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/federal-reserve-soft-landing
+
+**Football Parlay Friday Week 6: Five college underdogs with a chance to provide some upside**\
+`After a winning week last week, Austin Mock is back with five college football underdogs he is grouping into round-robin parlays.`\
+https://nytimes.com/athletic/5818303/2024/10/04/football-parlay-friday-week-6/
+
 **Arts District, Decades in the Making, in Ruins After Helene**\
 `The hurricane damaged an estimated 80 percent of the buildings in the River Arts District of Asheville, N.C., and upended the lives of artists who had recast the city as a cultural force.`\
 https://nytimes.com/2024/10/04/arts/arts-district-decades-in-the-making-in-ruins-after-helene.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/04/dining/orange-beef-will-cure-what-ails-you.html
 **5 New Horror Movies to Stream for Halloween**\
 `Out this week, a period possession movie starring Sarah Paulson, a chef-driven supernatural thriller starring Ariana DeBose and more.`\
 https://nytimes.com/2024/10/04/movies/new-horror-movies-streaming-halloween.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include cool fighter pilots, a feminist queen and urban turf wars.`\
-https://nytimes.com/2024/10/04/movies/five-action-movies-to-stream-now.html
-
-**Sharks depth chart analysis: Celebrini, Smith find their linemates**\
-`Is Smith ready to be the second-line center? What happens if Celebrini isn't ready to start the season?`\
-https://nytimes.com/athletic/5817751/2024/10/04/sharks-depth-chart-celebrini-smith/
-
-**Supreme Court to Decide Whether Mexico Can Sue U.S. Gun Makers**\
-`The justices will consider whether a 2005 law that gives gun makers broad immunity applies in the case, which accuses them of complicity in supplying cartels with weapons.`\
-https://nytimes.com/2024/10/04/us/supreme-court-mexico-gun-makers.html
-
-**The Pulse: The wildest sports night of the year?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/5816375/2024/10/04/mets-pete-alonso-falcons-kirk-cousins-the-pulse/
-
-**Twins, GM Thad Levine part ways after 8 years**\
-`The Twins and general manager Thad Levine, who has held the role for eight years, have announced a mutual parting of the ways. `\
-https://nytimes.com/athletic/5810227/2024/10/04/thad-levine-minnesota-twins-parts-ways/
 
