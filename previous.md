@@ -1,3 +1,11 @@
+**A Rest, a Reset and a Thanks for the Banter**\
+`After more than 350 editions, we are putting this newsletter on pause, with the editor who opened the Australia bureau departing and his successor set to arrive.`\
+https://nytimes.com/2024/10/04/world/australia/letter-hiatus.html
+
+**Antonee Robinson: My game in my words**\
+`The Fulham and USMNT international talks us through his strengths and weaknesses — and Salah asking him how old he is...`\
+https://nytimes.com/athletic/5815597/2024/10/04/antonee-robinson-usmnt-fulham-salah-saka/
+
 **How Slot prepares Liverpool: 'Body wake-up', ice baths and wellness checks**\
 `New Dutch coach is painstaking in his methods ahead of a matchday - and it is paying off`\
 https://nytimes.com/athletic/5815741/2024/10/04/arne-slot-liverpool-preparations-matchday/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5815967/2024/10/04/next-weeks-waiver-wire-emanuel-w
 **Low block, bravery and a big old slice of luck - how 'smaller' teams can beat Manchester City**\
 `Over the previous four league seasons, Pep Guardiola's side lost eight games to teams outside the 'Big Six'. This is how they were beaten`\
 https://nytimes.com/athletic/5815428/2024/10/04/how-to-beat-manchester-city/
-
-**A More Working-Class British Cabinet, Still Seen as Out of Touch**\
-`Prime Minister Keir Starmer’s top team contains more lawmakers from poor backgrounds, and fewer from elite schools, than any in recent memory. Voters haven’t noticed.`\
-https://nytimes.com/2024/10/04/world/europe/uk-labour-cabinet-working-class-freebies.html
-
-**Do Premier League red cards apply across all competitions - and how long do suspensions last?**\
-`Suspensions and bans are difficult to keep track of across different competitions`\
-https://nytimes.com/athletic/5808785/2024/10/04/premier-league-red-cards-yellow-ban-length/
 
