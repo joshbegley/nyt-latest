@@ -1,3 +1,7 @@
+**Still Searching for Their Loved Ones, a Week After Hurricane Helene**\
+`The storm’s death toll has climbed past 210, but many people remain unaccounted for and searching for them is complicated. Their families are desperate for answers.`\
+https://nytimes.com/2024/10/04/us/still-searching-for-their-loved-ones-a-week-after-hurricane-helene.html
+
 **Richard Mayhew, Painter of Abstract Landscapes, Dies at 100**\
 `He drew from his Black and Native American heritage, as well as his own memory, to find an emotional resonance behind the beauty of nature.`\
 https://nytimes.com/2024/10/04/arts/richard-mayhew-dead.html
