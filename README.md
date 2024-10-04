@@ -1,3 +1,7 @@
+**Corrections: Oct. 4, 2024**\
+`Corrections that appeared in print on Friday, Oct. 4, 2024.`\
+https://nytimes.com/2024/10/03/pageoneplus/corrections-oct-4-2024.html
+
 **A Steely Liz Cheney, at Harris’s Side, Calls It ‘Our Duty’ to Reject Trump**\
 `The former congresswoman and Republican exile stumped for Kamala Harris in Ripon, Wis., the birthplace of the G.O.P., calling on conservatives to shun Donald Trump’s “depraved cruelty.”`\
 https://nytimes.com/2024/10/03/us/politics/liz-cheney-harris-trump-wisconsin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/arts/television/john-amos-good-times.html
 **Wisconsin RB Chez Mellusi stepping away from team to rehab injuries**\
 `Mellusi, who transferred to Wisconsin in 2021 from Clemson, has battled injuries in his three years with the Badgers.`\
 https://nytimes.com/athletic/5817034/2024/10/03/chez-mellusi-wisconsin-badgers-football/
-
-**Teenagers on What Has Shaped Their Political Beliefs and Values**\
-`Ahead of the 2024 Election, we invited teens to explore their political identities and tell us how they have come to believe what they believe.`\
-https://nytimes.com/2024/10/03/learning/teenagers-on-what-has-shaped-their-political-beliefs-and-values.html
 
