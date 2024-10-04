@@ -1,3 +1,7 @@
+**Mets discussing whether to activate Kodai Senga for NLDS: sources**\
+`Earlier this week, Senga threw 25 pitches in a live bullpen session in Florida.`\
+https://nytimes.com/athletic/5817499/2024/10/03/new-york-mets-kodai-senga-postseason-return/
+
 **Some Evidence in Adams Case Involves Classified Material, U.S. Says**\
 `In a letter to the judge handling the Eric Adams corruption case, federal prosecutors said there was evidence that could damage national security if exposed in open court.`\
 https://nytimes.com/2024/10/03/nyregion/eric-adams-classified-intelligence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/theater/safety-not-guaranteed-review.html
 **Acrobat Displays**\
 `Zhouqin Burnikel opens our solving weekend.`\
 https://nytimes.com/2024/10/03/crosswords/daily-puzzle-2024-10-04.html
-
-**Dodger Details: Freddie Freeman's status, pitching plans, hitting fastballs and more**\
-`LOS ANGELES — If the Los Angeles Dodgers were hoping for a positive sign about Freddie Freeman’s sprained right ankle on Thursday, they got one.`\
-https://nytimes.com/athletic/5817136/2024/10/03/dodger-padres-nlds-freddie-freeman/
 
