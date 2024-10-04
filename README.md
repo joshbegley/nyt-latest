@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5817322/2024/10/03/terry-francona-reds-manager/
 `The Mets will take on the Phillies in Game 1 of the National League Division Series on Saturday afternoon.`\
 https://nytimes.com/athletic/5817029/2024/10/03/mets-brewers-game-3-wild-card-takeaways/
 
-**What I'm seeing around the Penguins: Intriguing blue line, figuring out the bottom six and more**\
+**What I'm seeing around the Penguins: Intriguing blue line, figuring out bottom 6 and more**\
 `With only five days remaining before the regular season begins, here's a look at some of the remaining Penguins roster considerations.`\
 https://nytimes.com/athletic/5817120/2024/10/03/penguins-blue-line-questions-bottom-six/
 
