@@ -1,3 +1,11 @@
+**National League Division Series predictions: Our experts make their picks**\
+`The stage is set for the National League Division Series, which features not one but two storied rivalries.`\
+https://nytimes.com/athletic/5818482/2024/10/04/national-league-division-series-predictions-our-experts-make-their-picks/
+
+**The Savannah Bananas Needed a Bigger Stage**\
+`Everyone’s favorite dancing baseball team is taking its act almost exclusively to M.L.B. and football stadiums in 2025, with even more extreme changes on the horizon.`\
+https://nytimes.com/2024/10/04/style/savannah-bananas-schedule.html
+
 **Lauren Mayberry’s Lush Pop Ecstasy, and 13 More New Songs**\
 `Hear tracks by Bartees Strange, the Smile, Ela Minus and others.`\
 https://nytimes.com/2024/10/04/arts/music/playlist-lauren-mayberry-bartees-strange-the-smile.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5818054/2024/10/04/man-utd-meeting-ten-hag-future/
 **Hamas Leader Is Holding Out for a Bigger War, U.S. Officials Say**\
 `Yahya Sinwar is increasingly fatalistic, has blocked a cease-fire deal and, so far, been frustrated that Hezbollah and Iran have not come to his aid, officials said.`\
 https://nytimes.com/2024/10/04/us/politics/sinwar-hamas-israel-hezbollah-iran.html
-
-**How will Bills' pivot with Khalil Shakir out for reunion game with Stefon Diggs, Texans?**\
-`Shakir's injury means that Josh Allen won't have a single receiver available Sunday who caught a pass for the Bills in the 2023 season.`\
-https://nytimes.com/athletic/5818610/2024/10/04/bills-khalil-shakir-stefon-diggs-texans/
-
-**Former Ohio State QB Terrelle Pryor sues school, Big Ten, NCAA over NIL**\
-`Pryor’s lawsuit comes on the heels of former USC star and Heisman Trophy winner Reggie Bush filing a similar suit.`\
-https://nytimes.com/athletic/5818571/2024/10/04/terrelle-pryor-sues-ncaa-ohio-state/
 
