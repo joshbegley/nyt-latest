@@ -1,3 +1,11 @@
+**Ohtani 50th home run ball surpasses value of Judge's 62nd**\
+`Judge's 62nd home run ball in 2022 sold for $1.5 million `\
+https://nytimes.com/athletic/5817362/2024/10/03/shohei-ohtani-50-home-run-ball-auction/
+
+**What I'm seeing around the Penguins: Intriguing blue line, figuring out bottom 6 and more**\
+`With only five days left before the regular season begins, here's a look at some of the remaining Penguins roster considerations.`\
+https://nytimes.com/athletic/5817120/2024/10/03/penguins-blue-line-questions-bottom-six/
+
 **Reds to hire Terry Francona as manager**\
 `Francona will return to managing after retiring from the Cleveland Guardians at the end of the 2023 season.`\
 https://nytimes.com/athletic/5817322/2024/10/03/terry-francona-reds-manager/
