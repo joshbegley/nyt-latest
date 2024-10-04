@@ -1,3 +1,7 @@
+**Hodinkee, the Watch Fan Site, Is Sold to a British Retailer**\
+`Neither Benjamin Clymer, its founder, nor the Watches of Switzerland Group would disclose terms, but they stressed that coverage would continue to be independent.`\
+https://nytimes.com/2024/10/04/fashion/hodinkee-sale-watches-of-switzerland.html
+
 **The Year American Jews Woke Up**\
 `American Jews need to recover their instinct for danger.`\
 https://nytimes.com/2024/10/04/opinion/israel-jews-antisemitism.html
