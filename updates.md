@@ -1,3 +1,11 @@
+**Time-Traveling, or Wishing to, in ‘Safety Not Guaranteed’**\
+`Adapted from the offbeat 2012 film, this new musical about loneliness and the longing for do-overs is promising but still needs to find its shape.`\
+https://nytimes.com/2024/10/03/theater/safety-not-guaranteed-review.html
+
+**Acrobat Displays**\
+`Zhouqin Burnikel opens our solving weekend.`\
+https://nytimes.com/2024/10/03/crosswords/daily-puzzle-2024-10-04.html
+
 **Trump Rally in Michigan Dominated by More False Statements**\
 `Appearing for roughly 85 minutes onstage, the Republican nominee repeated false claims about the 2020 election and introduced a mischaracterization about disaster-relief money.`\
 https://nytimes.com/2024/10/03/us/politics/trump-rally-michigan.html
