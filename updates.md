@@ -1,3 +1,7 @@
+**FIFA to investigate Israel amid Palestinian suspension request**\
+`FIFA says they will investigate the Israel Football Association (IFA) over alleged breaches of its rules.`\
+https://nytimes.com/athletic/5814832/2024/10/04/israel-fifa-investigation/
+
 **Word of the Day: longitudinal**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/04/learning/word-of-the-day-longitudinal.html
