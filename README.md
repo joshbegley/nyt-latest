@@ -1,3 +1,7 @@
+**Focus on Raya rivalry 'used to do my head in' - Ramsdale**\
+`Former Arsenal goalkeeper Aaron Ramsdale says the scrutiny he received in the wake of being dropped for David Raya did his &#8220;head in&#8221;.`\
+https://nytimes.com/athletic/5818058/2024/10/04/aaron-ramsdale-david-raya-arsenal/
+
 **The Jobs Report Is Good News for the Fed**\
 `The data reversed recent signs of a labor market slowdown, probably taking away the argument for a big rate cut at the Federal Reserve’s next meeting.`\
 https://nytimes.com/2024/10/04/business/jobs-report-federal-reserve-rate-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/04/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Trump Heads to Georgia as the South Reels From Helene**\
 `Former President Donald J. Trump is expected to appear with Gov. Brian Kemp, a fellow Republican whom Mr. Trump has been at odds with over the 2020 election.`\
 https://nytimes.com/live/2024/10/04/us/harris-trump-election
-
-**In Rare Sermon, Iran’s Supreme Leader Issues Warning to Israel**\
-`Ayatollah Ali Khamenei led Friday Prayer for the first time in years, delivering a sermon during a memorial service in Tehran for Hezbollah’s leader.`\
-https://nytimes.com/2024/10/04/world/middleeast/ayatollah-khamenei-iran.html
 
