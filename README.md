@@ -1,3 +1,15 @@
+**Scoop City: Falcons remarkable win, Jaguars issues and rookies, prospects**\
+`A quick rundown of Falcons-Buccaneers stats, why Trevor Lawrence could cost Doug Pederson his job, the 2024 rookies and 2025 'weird' class`\
+https://nytimes.com/athletic/5818323/2024/10/04/scoop-city-falcons-remarkable-win-t-law-costing-pederson-rookie-standouts/
+
+**Vikings open T.J. Hockenson's practice window**\
+`The tight end, who tore his ACL and MCL in December, is not likely to play this weekend as his rehab has been viewed as a long-term process.`\
+https://nytimes.com/athletic/5818188/2024/10/04/tj-hockenson-practice-window-vikings/
+
+**Arsenal's Havertz has the 'qualities and ambition' to become 20-goal-a-season striker - Arteta**\
+`Arsenal have long been searching for the goalscorer who can fire them to the Premier League title, but Mikel Arteta believes he finally has his elusive 20-plus goal striker in Kai Havertz.`\
+https://nytimes.com/athletic/5818283/2024/10/04/arsenal-havertz-striker-arteta/
+
 **Jobs Report Adds to Economic Momentum for Harris**\
 `In recent weeks, reports have shown inflation slowing and the economy growing at a robust clip. The Federal Reserve has also cut interest rates, bringing mortgage rates down.`\
 https://nytimes.com/2024/10/04/business/jobs-report-harris-economy.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5813594/2024/10/04/edmonton-oilers-depth-2024/
 **Make your picks for the prediction contest that's so easy it's almost impossible**\
 `As always, ten super easy questions, give or take an optional bonus. How confident do you feel when someone's keeping track?`\
 https://nytimes.com/athletic/5810416/2024/10/04/2024-nhl-prediction-contest-entry/
-
-**Saoirse Ronan Has Lived, and Acted, Through a Lot**\
-`At 30, the Irish actress has already spent two decades in front of the camera, collecting many awards. Her two latest projects are also generating Oscars buzz.`\
-https://nytimes.com/2024/10/04/movies/saoirse-ronan-outrun-blitz.html
-
-**Do Giants have a path to victory over Seahawks without Malik Nabers?**\
-`There are an unusual number of parallels between the Giants and Seahawks, considering they’re in different divisions and 3,000 miles apart.`\
-https://nytimes.com/athletic/5817418/2024/10/04/new-york-giants-malik-nabers-seattle-seahawks/
-
-**Hurricane Helene: Inside Search and Rescue Efforts**\
-`By Ang Li`\
-https://nytimes.com/card/2024/10/04/us/helene-fema-search-rescue
 
