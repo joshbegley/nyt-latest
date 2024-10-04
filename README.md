@@ -1,40 +1,40 @@
-**The War in Darkness**\
-`Sonya Liakh was diagnosed with eye cancer at age 2. After Russia’s invasion of Ukraine disrupted her treatment, her family faced a desperate struggle.`\
-https://nytimes.com/2024/10/04/world/europe/ukraine-war-children-cancer.html
+**Can the Hurricanes’ rebuilt defense still be dominant?**\
+`It’s possible all six Carolina defenders could eclipse 20 points this season.`\
+https://nytimes.com/athletic/5817587/2024/10/04/carolina-hurricanes-defensemen-slavin/
 
-**The Bold. The Beautiful. The Fat Bear.**\
-`Ten years in, Fat Bear Week has drawn millions of viewers to a live webcam in Alaska to follow along and vote for the chonkiest brown bear at Katmai National Park.`\
-https://nytimes.com/2024/10/04/us/fat-bear-week.html
+**From 0-star recruit to Steelers Day 3 draft pick, the future is now for this rookie**\
+`Mason McCormick was not supposed to play much this year, but injuries have changed the Steelers' offensive line plans.`\
+https://nytimes.com/athletic/5816588/2024/10/04/mason-mccormick-steelers-offensive-line/
 
-**Where Bears, Panthers stand 18 months after franchise-altering trade for both teams**\
-`The Bears have DJ Moore, Caleb Williams and more, while the Panthers have benched Bryce Young, the prize of the 2023 deal.`\
-https://nytimes.com/athletic/5816902/2024/10/04/bears-panthers-caleb-williams-bryce-young/
+**Cardinals' transition plan: 2025 payroll, roster construction and front-office roles**\
+`The Cardinals will alter virtually every department of their operations, but changes in the on-field product will be the most apparent.`\
+https://nytimes.com/athletic/5814182/2024/10/04/cardinals-transition-plan-chaim-bloom/
 
-**Dehner Jr.: Why so serious? Joe Burrow knows this critical moment falls on him**\
-`A team that struggled badly in the AFC North in 2023 gets its first shot at redemption Sunday vs. the Ravens and needs its QB at his best.`\
-https://nytimes.com/athletic/5816683/2024/10/04/joe-burrow-bengals-ravens-week-5/
+**Where every Blackhawks prospect is playing this season**\
+`Whether it's the AHL, college hockey, OHL, Russia or nearly anywhere else, here's where you can find Blackhawks prospects this season.`\
+https://nytimes.com/athletic/5816236/2024/10/04/blackhawks-prospects-nhl-2024-25-season/
 
-**With Commanders off to surprising start, how aggressive should they be on the trade market?**\
-`Washington could bolster its roster by adding a player such as WR Davante Adams. But should Adam Peters and company remain patient? `\
-https://nytimes.com/athletic/5813944/2024/10/04/commanders-davante-adams-trade-market/
+**Oil Prices Rise on Biden’s Offhand Remarks, and U.S. Ports Reopen**\
+`Plus, the top trends from fashion month.`\
+https://nytimes.com/2024/10/04/podcasts/biden-oil.html
 
-**How Brock Purdy's growth, aggressiveness are evolving Kyle Shanahan's 49ers offense**\
-`The quarterback has leaned heavily on play-action in his career but now is dropping back and taking far more deep shots.`\
-https://nytimes.com/athletic/5812829/2024/10/04/brock-purdy-49ers-offense-shanahan/
+**Four Weeks to Go**\
+`With Kamala Harris and Donald Trump locked in the tightest of races, who will come out on top? Listen to our political round table on the 2024 election.`\
+https://nytimes.com/2024/10/04/podcasts/the-daily/presidential-election.html
 
-**World No. 1 Iga Swiatek splits with coach, withdraws from Wuhan WTA 1000**\
-`Iga Swiatek has parted ways with Tomasz Wiktorowski, with whom she won four of her five Grand Slam titles.`\
-https://nytimes.com/athletic/5817753/2024/10/04/iga-swiatek-coach-wuhan/
+**The chase-down tackle that put 49ers' Patrick Willis on the map: 'He never relented'**\
+`Willis will receive his Pro Football Hall of Fame Ring of Excellence on Sunday when the 49ers face the Cardinals.`\
+https://nytimes.com/athletic/5814268/2024/10/04/patrick-willis-sean-morey-tackle-49ers/
 
-**Why the Patriots would be wise to pass on the Davante Adams sweepstakes**\
-`The Patriots badly need a No. 1 wide receiver, but Adams isn't the answer for this rebuilding franchise.`\
-https://nytimes.com/athletic/5815976/2024/10/04/patriots-davante-adams-raiders-trade/
+**Cubs' Miguel Amaya proved he belongs, but Chicago will still look for catcher upgrades**\
+`Tthe Cubs will use part of October to reassess the trade market and evaluate the upcoming class of free agents`\
+https://nytimes.com/athletic/5816833/2024/10/04/chicago-cubs-catching-plans-miguel-amaya/
 
-**How an NFL journeyman 'blacked out' and gave the Falcons another unlikely win**\
-`KhaDarel Hodge caught two passes Thursday night, the second of which he took 45 yards for the winning touchdown in overtime.`\
-https://nytimes.com/athletic/5817661/2024/10/04/falcons-khadarel-hodge-buccaneers/
+**Wordle Review No. 1,204**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 5, 2024.`\
+https://nytimes.com/2024/10/04/crosswords/wordle-review-1204.html
 
-**NFL injury report: Week 5 availability of Colts Anthony Richardson, Jonathan Taylor in doubt**\
-`Greg Scholz of Inside Injuries shares his doubts that banged up Colts Anthony Richardson and Jonathan Taylor will be able to play in Week 5.`\
-https://nytimes.com/athletic/5817345/2024/10/04/nfl-week-5-injury-report-richardson-taylor-rice/
+**The Connections Companion No. 482**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 5, 2024.`\
+https://nytimes.com/2024/10/04/crosswords/connections-companion-482.html
 
