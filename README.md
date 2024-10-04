@@ -10,13 +10,13 @@ https://nytimes.com/athletic/5817021/2024/10/04/renato-veiga-chelsea-bargain/
 `Neither Benjamin Clymer, its founder, nor the Watches of Switzerland Group would disclose terms, but they stressed that coverage would continue to be independent.`\
 https://nytimes.com/2024/10/04/fashion/hodinkee-sale-watches-of-switzerland.html
 
-**The Year American Jews Woke Up**\
-`American Jews need to recover their instinct for danger.`\
-https://nytimes.com/2024/10/04/opinion/israel-jews-antisemitism.html
-
 **Brazil’s Largest Mafia Is Entering Politics. The Government Must Act.**\
 `For many Brazilians, the First Capital Command’s push into politics across the nation has been a shock.`\
 https://nytimes.com/2024/10/04/opinion/brazil-crime-pcc-cocaine.html
+
+**The Year American Jews Woke Up**\
+`American Jews need to recover their instinct for danger.`\
+https://nytimes.com/2024/10/04/opinion/israel-jews-antisemitism.html
 
 **Friday Briefing: Israel Targets Hezbollah’s Remaining Leaders**\
 `Plus, a billion-dollar plan to protect trees.`\
