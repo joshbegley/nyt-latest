@@ -1,3 +1,19 @@
+**Make your picks for the prediction contest that's so easy it's almost impossible**\
+`As always, ten super easy questions, give or take an optional bonus. How confident do you feel when someone's keeping track?`\
+https://nytimes.com/athletic/5810416/2024/10/04/2024-nhl-prediction-contest-entry/
+
+**Saoirse Ronan Has Lived, and Acted, Through a Lot**\
+`At 30, the Irish actress has already spent two decades in front of the camera, collecting many awards. Her two latest projects are also generating Oscars buzz.`\
+https://nytimes.com/2024/10/04/movies/saoirse-ronan-outrun-blitz.html
+
+**Do Giants have a path to victory over Seahawks without Malik Nabers?**\
+`There are an unusual number of parallels between the Giants and Seahawks, considering they’re in different divisions and 3,000 miles apart.`\
+https://nytimes.com/athletic/5817418/2024/10/04/new-york-giants-malik-nabers-seattle-seahawks/
+
+**Hurricane Helene: Inside Search and Rescue Efforts**\
+`By Ang Li`\
+https://nytimes.com/card/2024/10/04/us/helene-fema-search-rescue
+
 **Wrexham's Evans to undergo ankle surgery; set for 'months' out**\
 `Wrexham midfielder George Evans will next week undergo ankle surgery that is likely to keep him out for “months”, according to manager Phil Parkinson.`\
 https://nytimes.com/athletic/5818191/2024/10/04/wrexham-george-evans-injury/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/04/world/europe/eu-court-gender-identity-transgender
 **Focus on Raya rivalry 'used to do my head in' - Ramsdale**\
 `Former Arsenal goalkeeper Aaron Ramsdale says the scrutiny he received in the wake of being dropped for David Raya did his &#8220;head in&#8221;.`\
 https://nytimes.com/athletic/5818058/2024/10/04/aaron-ramsdale-david-raya-arsenal/
-
-**The Jobs Report Is Good News for the Fed**\
-`The data reversed recent signs of a labor market slowdown, probably taking away the argument for a big rate cut at the Federal Reserve’s next meeting.`\
-https://nytimes.com/2024/10/04/business/jobs-report-federal-reserve-rate-cuts.html
-
-**Why the Bulls are bringing Joshua Primo into their organization**\
-`When Primo's name surfaces, as it did Thursday, it causes a visceral reaction. So why do the Bulls have interest in the 21-year-old guard?`\
-https://nytimes.com/athletic/5817503/2024/10/04/josh-primo-chicago-bulls-nba/
-
-**Wolves' Dawson in contention for Brentford trip; Bueno fit**\
-`Wolverhampton Wanderers could welcome back Craig Dawson for tomorrow’s Premier League trip to Brentford after the defender returned to training after illness.`\
-https://nytimes.com/athletic/5818095/2024/10/04/craig-dawson-injury-update-wolves/
-
-**Premier League partner Sorare pleads not guilty to unlicensed gambling charges**\
-`Official Premier League partner Sorare today pleaded not guilty in court to providing unlicensed gambling facilities to consumers in the United Kingdom.`\
-https://nytimes.com/athletic/5796141/2024/10/04/sorare-premier-league-charge-gambling/
 
