@@ -1,3 +1,7 @@
+**Jannik Sinner's doping case explained: What WADA appeal means and what is at stake for tennis**\
+`The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
+https://nytimes.com/athletic/5806315/2024/10/04/jannik-sinner-doping-case-tennis-explained/
+
 **Oklahoma Schools Need 55,000 Bibles. Trump-Endorsed Book Fits the Bill.**\
 `The bid details for new Bibles the state is buying seem to point to a version promoted by former President Donald J. Trump.`\
 https://nytimes.com/2024/10/04/us/oklahoma-schools-trump-bible.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009741643/what-to-know-about-the-verdict-in-t
 **Trump Campaign Distributes Raised Funds to Victims in Butler, Pa.**\
 `The recipients included the families of those killed and wounded, and a Trump supporter who lost income when his rental cranes were stuck at the site.`\
 https://nytimes.com/2024/10/04/us/politics/trump-donations-assassination-attempt.html
-
-**Her 8-Year-Old Drove Herself to Target and Became an Internet Star**\
-`Tangie Wilson was sleeping when her daughter Zoe sneaked out of the house and drove to the store. The tale of how it all unfolded is as relatable as it is incredible.`\
-https://nytimes.com/2024/10/04/style/target-girl-mom-interview.html
 
