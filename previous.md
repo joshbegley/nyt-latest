@@ -1,3 +1,7 @@
+**Wrexham's Evans to undergo ankle surgery; set for 'months' out**\
+`Wrexham midfielder George Evans will next week undergo ankle surgery that is likely to keep him out for “months”, according to manager Phil Parkinson.`\
+https://nytimes.com/athletic/5818191/2024/10/04/wrexham-george-evans-injury/
+
 **Scientists Found a Surprising Way to Make Fungus Happy**\
 `The discovery that sound improves the growth rate of beneficial fungus suggests that dirges in the dirt may help restore forests.`\
 https://nytimes.com/2024/10/04/science/fungus-sounds-growth.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818095/2024/10/04/craig-dawson-injury-update-wolve
 **Premier League partner Sorare pleads not guilty to unlicensed gambling charges**\
 `Official Premier League partner Sorare today pleaded not guilty in court to providing unlicensed gambling facilities to consumers in the United Kingdom.`\
 https://nytimes.com/athletic/5796141/2024/10/04/sorare-premier-league-charge-gambling/
-
-**How States Are Enticing Employers to Help Their Workers Save for College**\
-`With college costs high, at least eight states now offer tax credits or deductions for employers that contribute to workers’ 529 accounts.`\
-https://nytimes.com/2024/10/04/your-money/college-saving-plans-employee-benefits.html
 

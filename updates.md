@@ -1,3 +1,7 @@
+**Wrexham's Evans to undergo ankle surgery; set for 'months' out**\
+`Wrexham midfielder George Evans will next week undergo ankle surgery that is likely to keep him out for “months”, according to manager Phil Parkinson.`\
+https://nytimes.com/athletic/5818191/2024/10/04/wrexham-george-evans-injury/
+
 **Scientists Found a Surprising Way to Make Fungus Happy**\
 `The discovery that sound improves the growth rate of beneficial fungus suggests that dirges in the dirt may help restore forests.`\
 https://nytimes.com/2024/10/04/science/fungus-sounds-growth.html
