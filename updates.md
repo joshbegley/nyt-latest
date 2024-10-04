@@ -1,3 +1,11 @@
+**Pete Alonso's amazin', improbable October home run and a Mets comeback for the ages**\
+`Alonso just hit the most game-changing, series-changing home run in any winner-take-all baseball game ever played.`\
+https://nytimes.com/athletic/5818665/2024/10/04/pete-alonso-home-run-mets-brewers-history/
+
+**Two New Bird Flu Cases Diagnosed in California, Officials Say**\
+`Both patients were dairy workers whose illnesses were mild. Investigators are continuing to evaluate the contacts of a Missouri patient who had no exposure to animals.`\
+https://nytimes.com/2024/10/04/health/bird-flu-california-missouri.html
+
 **Syria and Russia remain silent on reported airstrikes on a weapons facility near a Russian base in Syria.**\
 `By Eve Sampson, Anton Troianovski, Aric Toler and Oleg Matsnev`\
 https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/syria-and-russia-remain-silent-on-reported-airstrikes-on-a-weapons-facility-near-a-russian-base-in-syria
