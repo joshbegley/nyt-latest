@@ -1,3 +1,7 @@
+**Colts RB Taylor out vs. Jaguars, QB Richardson's status TBD**\
+`Richardson played just 13 snaps last week before exiting in the first quarter after taking a hit from Steelers' Minkah Fitzpatrick.`\
+https://nytimes.com/athletic/5818723/2024/10/04/colts-anthony-richardson-jonathan-taylor-injury-update/
+
 **National League Division Series predictions: Our experts make their picks**\
 `The stage is set for the National League Division Series, which features not one but two storied rivalries.`\
 https://nytimes.com/athletic/5818482/2024/10/04/national-league-division-series-predictions-our-experts-make-their-picks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/books/review/new-crime-novels.html
 **Man Utd hierarchy to meet on Tuesday after Ratcliffe watches Villa game**\
 `Manchester United’s decision-makers are scheduled to meet in London within 48 hours of Sunday’s Premier League match away at Aston Villa as the scrutiny continues to grow on manager Erik ten Hag.`\
 https://nytimes.com/athletic/5818054/2024/10/04/man-utd-meeting-ten-hag-future/
-
-**Hamas Leader Is Holding Out for a Bigger War, U.S. Officials Say**\
-`Yahya Sinwar is increasingly fatalistic, has blocked a cease-fire deal and, so far, been frustrated that Hezbollah and Iran have not come to his aid, officials said.`\
-https://nytimes.com/2024/10/04/us/politics/sinwar-hamas-israel-hezbollah-iran.html
 
