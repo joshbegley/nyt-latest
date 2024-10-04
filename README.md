@@ -1,3 +1,7 @@
+**Jean Hanff Korelitz on ‘The Sequel’**\
+`The writer discusses her follow-up to her best-selling 2021 novel “The Plot.”`\
+https://nytimes.com/2024/10/04/books/review/podcast-jean-hanff-korelitz-interview.html
+
 **All Wild Card Team: Pete Alonso, Bobby Witt Jr., Michael King among top first-round performers**\
 `With one round down and three to go, these have been the best playoff performers so far.`\
 https://nytimes.com/athletic/5818823/2024/10/04/mlb-wild-card-top-performers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/us/politics/congress-hurricane-helene-funding.htm
 **Hurzeler defends Webster amid social media criticism over Chelsea mistake**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler has hit back at social media criticism of Adam Webster after the centre-back&#8217;s mistake in the 4-2 defeat at Chelsea.`\
 https://nytimes.com/athletic/5818548/2024/10/04/fabian-hurzeler-defends-adam-webster/
-
-**10 Unforgettable Kris Kristofferson Covers**\
-`Many of his songs are better known by other singers’ interpretations, like Janis Joplin’s “Me and Bobby McGee,” Johnny Cash’s “Sunday Morning Coming Down” and more.`\
-https://nytimes.com/2024/10/04/arts/music/amplifier-newsletter-kris-kristofferson-covers.html
 
