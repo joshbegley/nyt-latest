@@ -1,3 +1,7 @@
+**Jean Hanff Korelitz on ‘The Sequel’**\
+`The writer discusses her follow-up to her best-selling 2021 novel “The Plot.”`\
+https://nytimes.com/2024/10/04/books/review/podcast-jean-hanff-korelitz-interview.html
+
 **All Wild Card Team: Pete Alonso, Bobby Witt Jr., Michael King among top first-round performers**\
 `With one round down and three to go, these have been the best playoff performers so far.`\
 https://nytimes.com/athletic/5818823/2024/10/04/mlb-wild-card-top-performers/
