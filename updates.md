@@ -1,3 +1,11 @@
+**Would You Want to Be a Child Star?**\
+`Jenna Ortega tells Times readers about the joys and the challenges of stardom at a young age. What can we learn from her experience?`\
+https://nytimes.com/2024/10/04/learning/would-you-want-to-be-a-child-star.html
+
+**Israel expands evacuation warnings in southern Lebanon after airstrikes pummel Beirut.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/israel-expands-evacuation-warnings-in-southern-lebanon-after-airstrikes-pummel-beirut
+
 **Ancelotti accepts 'correct' criticism of Real Madrid after Lille defeat**\
 `Real Madrid manager Carlo Ancelotti says that the criticism following his side&#8217;s defeat to Lille in the Champions League is &#8220;correct&#8221; and called for an urgent response from his side ahead of their clash against Villarreal in La Liga.`\
 https://nytimes.com/athletic/5817910/2024/10/04/carlo-ancelotti-real-madrid-criticism/
