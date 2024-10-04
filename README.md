@@ -1,3 +1,7 @@
+**Ohtani 50th home run ball surpasses value of Judge's 62nd**\
+`Judge's 62nd home run ball in 2022 sold for $1.5 million `\
+https://nytimes.com/athletic/5817362/2024/10/03/shohei-ohtani-50-home-run-ball-auction/
+
 **Reds to hire Terry Francona as manager**\
 `Francona will return to managing after retiring from the Cleveland Guardians at the end of the 2023 season.`\
 https://nytimes.com/athletic/5817322/2024/10/03/terry-francona-reds-manager/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5817322/2024/10/03/terry-francona-reds-manager/
 https://nytimes.com/athletic/5817029/2024/10/03/mets-brewers-game-3-wild-card-takeaways/
 
 **What I'm seeing around the Penguins: Intriguing blue line, figuring out bottom 6 and more**\
-`With only five days remaining before the regular season begins, here's a look at some of the remaining Penguins roster considerations.`\
+`With only five days left before the regular season begins, here's a look at some of the remaining Penguins roster considerations.`\
 https://nytimes.com/athletic/5817120/2024/10/03/penguins-blue-line-questions-bottom-six/
 
 **Time-Traveling, or Wishing to, in ‘Safety Not Guaranteed’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/03/nyregion/retrial-murder-conviction-transgender-wo
 **3 Idaho Big-Game Guides Led Illegal Mountain Lion Hunts, U.S. Says**\
 `The three face federal charges for leading hunts as part of an unlicensed outfitting business separate from their employer, federal prosecutors said.`\
 https://nytimes.com/2024/10/03/us/hunting-guides-indictment-mountain-lions.html
-
-**Corrections: Oct. 4, 2024**\
-`Corrections that appeared in print on Friday, Oct. 4, 2024.`\
-https://nytimes.com/2024/10/03/pageoneplus/corrections-oct-4-2024.html
 
