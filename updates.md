@@ -1,3 +1,11 @@
+**Pete Alonso, Mets rally past Brewers, advance to NLDS: Takeaways**\
+`The Mets will take on the Phillies in Game 1 of the National League Division Series on Saturday afternoon.`\
+https://nytimes.com/athletic/5817029/2024/10/03/mets-brewers-game-3-wild-card-takeaways/
+
+**What I'm seeing around the Penguins: Intriguing blue line, figuring out the bottom six and more**\
+`With only five days remaining before the regular season begins, here's a look at some of the remaining Penguins roster considerations.`\
+https://nytimes.com/athletic/5817120/2024/10/03/penguins-blue-line-questions-bottom-six/
+
 **Time-Traveling, or Wishing to, in ‘Safety Not Guaranteed’**\
 `Adapted from the offbeat 2012 film, this new musical about loneliness and the longing for do-overs is promising but still needs to find its shape.`\
 https://nytimes.com/2024/10/03/theater/safety-not-guaranteed-review.html
