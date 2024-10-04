@@ -1,3 +1,7 @@
+**Jared Allen: The Minnesota Vikings great aiming for an Olympics Curling spot**\
+`Jared Allen is travelling over to London — with the Vikings set to compete in the London Games`\
+https://nytimes.com/athletic/5815267/2024/10/04/jared-allen-minnesota-vikings-olympics/
+
 **A Near Exact Tie in the Polls**\
 `After an eventful week for the presidential race, the candidates are even in the polls. The Times journalists Nate Cohn, Michael Barbaro, Maggie Haberman and Shane Goldmacher discuss the state of the race, with the Nov. 5 election nearly a month away.`\
 https://nytimes.com/video/podcasts/the-daily/100000009741495/harris-trump-2024-election.html

@@ -1,3 +1,7 @@
+**Jared Allen: The Minnesota Vikings great aiming for an Olympics Curling spot**\
+`Jared Allen is travelling over to London — with the Vikings set to compete in the London Games`\
+https://nytimes.com/athletic/5815267/2024/10/04/jared-allen-minnesota-vikings-olympics/
+
 **A Near Exact Tie in the Polls**\
 `After an eventful week for the presidential race, the candidates are even in the polls. The Times journalists Nate Cohn, Michael Barbaro, Maggie Haberman and Shane Goldmacher discuss the state of the race, with the Nov. 5 election nearly a month away.`\
 https://nytimes.com/video/podcasts/the-daily/100000009741495/harris-trump-2024-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/nyregion/uber-eats-car-crash-injury-nj.html
 **Chasing Down a Trail of Climate Conspiracies**\
 `Who was behind a national campaign to ban geoengineering? One reporter went down a few rabbit holes to find out.`\
 https://nytimes.com/2024/10/04/insider/chasing-down-a-trail-of-climate-conspiracies.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/04/crosswords/spelling-bee-forum.html
 
