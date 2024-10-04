@@ -1,3 +1,11 @@
+**Omari Hutchinson opts to battle for place in England squad over Jamaica call-up**\
+`Hutchinson's fine form at Ipswich Town left the attacking midfielder with a big decision to make`\
+https://nytimes.com/athletic/5818945/2024/10/04/omari-hutchinson-england-jamaica/
+
+**Biden Says the Election Will Be Fair. But He’s Not Sure It Will Be Peaceful.**\
+`President Biden’s remarks underscore the concerns in the government about the possibility of violence during or after the election.`\
+https://nytimes.com/2024/10/04/us/politics/biden-says-the-election-will-be-fair-but-hes-not-sure-it-will-be-peaceful.html
+
 **The William Nylander-to-centre experiment ends too soon (again)**\
 `It really felt like it would be different this time. In the end, it was just like last fall.`\
 https://nytimes.com/athletic/5818902/2024/10/04/maple-leafs-william-nylander-centre-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/magazine/fling-girlfriend-reveal-ethics.html
 **Biden Will Allow Legal Permission to Lapse for Migrants From 4 Countries**\
 `The decision comes as political pressure mounts to cut down on programs that allow migrants to stay in the United States temporarily, even without a visa or green card.`\
 https://nytimes.com/2024/10/04/us/politics/biden-will-allow-legal-status-to-lapse-for-migrants-from-4-countries.html
-
-**Jean Hanff Korelitz on ‘The Sequel’**\
-`The writer discusses her follow-up to her best-selling 2021 novel “The Plot.”`\
-https://nytimes.com/2024/10/04/books/review/podcast-jean-hanff-korelitz-interview.html
-
-**All Wild Card Team: Pete Alonso, Bobby Witt Jr., Michael King among top first-round performers**\
-`With one round down and three to go, these have been the best playoff performers so far.`\
-https://nytimes.com/athletic/5818823/2024/10/04/mlb-wild-card-top-performers/
 

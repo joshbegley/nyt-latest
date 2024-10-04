@@ -1,3 +1,11 @@
+**Omari Hutchinson opts to battle for place in England squad over Jamaica call-up**\
+`Hutchinson's fine form at Ipswich Town left the attacking midfielder with a big decision to make`\
+https://nytimes.com/athletic/5818945/2024/10/04/omari-hutchinson-england-jamaica/
+
+**Biden Says the Election Will Be Fair. But He’s Not Sure It Will Be Peaceful.**\
+`President Biden’s remarks underscore the concerns in the government about the possibility of violence during or after the election.`\
+https://nytimes.com/2024/10/04/us/politics/biden-says-the-election-will-be-fair-but-hes-not-sure-it-will-be-peaceful.html
+
 **The William Nylander-to-centre experiment ends too soon (again)**\
 `It really felt like it would be different this time. In the end, it was just like last fall.`\
 https://nytimes.com/athletic/5818902/2024/10/04/maple-leafs-william-nylander-centre-2/
