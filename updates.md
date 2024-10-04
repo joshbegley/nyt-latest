@@ -1,3 +1,15 @@
+**For Savannah, It’s Not Just a Port. It’s an Economy.**\
+`The Georgia city is a picturesque tourist destination. It’s also the No. 2 ocean cargo hub on the East Coast, and the dock strike’s quick end was a relief.`\
+https://nytimes.com/2024/10/04/business/economy/port-strike-savannah-economy.html
+
+**A Once-Dormant Hurricane Season Is Spinning Into Action**\
+`Technically, the hurricane season has fallen short of the “hyperactive” forecast, but in some ways it hasn’t.`\
+https://nytimes.com/2024/10/04/weather/hurricane-season-updates-october.html
+
+**Israel’s latest strike in Lebanon makes clear that it is taking its fight against Hezbollah to a new scale.**\
+`By Ben Hubbard`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/israels-latest-strike-in-lebanon-makes-clear-that-it-is-taking-its-fight-against-hezbollah-to-a-new-scale
+
 **Trump’s Return to Butler Is Sure to Be a Spectacle. Is It Safe?**\
 `At a time of increased security risks, the former president has urged thousands of supporters to return with him to the place a gunman tried to take his life.`\
 https://nytimes.com/2024/10/04/us/elections/trump-butler-assassination-attempt.html
