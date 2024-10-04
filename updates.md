@@ -1,3 +1,7 @@
+**Some of FIFA's transfer rules contrary to EU law, says European Court of Justice**\
+`The European Union’s highest court has decided that some of FIFA’s rules on international football transfers are contrary to EU law in a ruling that some experts have likened to the landmark Jean-Marc Bosman case in 1995.`\
+https://nytimes.com/athletic/5817901/2024/10/04/fifa-transfer-rules-lassana-diarra/
+
 **FIFA Limits on Player Transfers Are Illegal, Europe’s Top Court Rules**\
 `A decision could force soccer’s governing body to rewrite the regulations that govern the sport’s multibillion-dollar transfer market.`\
 https://nytimes.com/2024/10/04/world/europe/transfer-market-rules-illegal.html
