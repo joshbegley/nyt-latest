@@ -1,3 +1,7 @@
+**Why Renato Veiga is becoming that Chelsea rarity - a bargain buy**\
+`The versatile Portuguese has played more minutes under Maresca than some senior names this season - and it is easy to understand why`\
+https://nytimes.com/athletic/5817021/2024/10/04/renato-veiga-chelsea-bargain/
+
 **Hodinkee, the Watch Fan Site, Is Sold to a British Retailer**\
 `Neither Benjamin Clymer, its founder, nor the Watches of Switzerland Group would disclose terms, but they stressed that coverage would continue to be independent.`\
 https://nytimes.com/2024/10/04/fashion/hodinkee-sale-watches-of-switzerland.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817493/2024/10/04/luis-suarez-marcelo-bielsa-copa-
 **Why are Everton so vulnerable from set pieces - and how can it be fixed?**\
 `Sean Dyche's team have developed a worrying knack of conceding from set pieces - what's going wrong and needs putting right?`\
 https://nytimes.com/athletic/5814885/2024/10/04/everton-set-pieces-sean-dyche-problems/
-
-**The honeymoon's over Julen. Time to start winning some matches.**\
-`The pressure is now on against Ipswich. Julen Lopetegui must prove he's the man to fix West Ham's poor start`\
-https://nytimes.com/athletic/5814822/2024/10/04/julen-lopetegui-west-ham-honeymoon-is-over/
 
