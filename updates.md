@@ -1,3 +1,7 @@
+**Here Are the Hezbollah Leaders Israel Has Targeted**\
+`Israeli strikes have aimed to kill the leaders of the Lebanese militia, most recently Hashem Safieddine. It was not immediately clear whether he had been killed in an overnight strike near Beirut.`\
+https://nytimes.com/2024/10/04/world/middleeast/hezbollah-leadership.html
+
 **The Windup: Was that Pete Alonso's signature moment?**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter.`\
 https://nytimes.com/athletic/5818493/2024/10/04/pete-alonso-wild-card-terry-francona-the-windup/
