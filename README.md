@@ -1,3 +1,15 @@
+**The changes Brighton are making off the pitch to make the Amex their 'castle'**\
+`Fabian Hurzeler says the Amex 'should be a castle where nobody wants to enter' - here's how Brighton are trying to do just that...`\
+https://nytimes.com/athletic/5790409/2024/10/04/brighton-home-form-amex/
+
+**Suárez details toxic culture under Uruguay's Marcelo Bielsa**\
+`Luis Suárez painted a grim picture of what it’s been like as a player under Bielsa.`\
+https://nytimes.com/athletic/5817493/2024/10/04/luis-suarez-marcelo-bielsa-copa-america/
+
+**Why are Everton so vulnerable from set pieces - and how can it be fixed?**\
+`Sean Dyche's team have developed a worrying knack of conceding from set pieces - what's going wrong and needs putting right?`\
+https://nytimes.com/athletic/5814885/2024/10/04/everton-set-pieces-sean-dyche-problems/
+
 **The honeymoon's over Julen. Time to start winning some matches.**\
 `The pressure is now on against Ipswich. Julen Lopetegui must prove he's the man to fix West Ham's poor start`\
 https://nytimes.com/athletic/5814822/2024/10/04/julen-lopetegui-west-ham-honeymoon-is-over/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5814948/2024/10/04/aston-villa-defensive-tactics-em
 **Guess who's back? Randall's back - the Forest chairman's return explained**\
 `Why Forest have returned to a familiar face as chairman`\
 https://nytimes.com/athletic/5815371/2024/10/04/nicholas-randall-chairman-forest-explained/
-
-**FPL: Is Palmer really a must-own? Or is Saka a better bet?**\
-`Cole Palmer is the talk of the town in FPL but is it really worth selling Bukayo Saka or Mohamed Salah to get him? `\
-https://nytimes.com/athletic/5811866/2024/10/04/fantasy-premier-league-palmer-saka-gw7/
-
-**A Rest, a Reset and a Thanks for the Banter**\
-`After more than 350 editions, we are putting this newsletter on pause, with the editor who opened the Australia bureau departing and his successor set to arrive.`\
-https://nytimes.com/2024/10/04/world/australia/letter-hiatus.html
-
-**Antonee Robinson: My game in my words**\
-`The Fulham and USMNT international talks us through his strengths and weaknesses — and Salah asking him how old he is...`\
-https://nytimes.com/athletic/5815597/2024/10/04/antonee-robinson-usmnt-fulham-salah-saka/
 
