@@ -1,3 +1,7 @@
+**What Game Theory Tells Us About the Threat of an Israel-Iran War**\
+`Each side must predict how the other will react to avoid mutual destruction.`\
+https://nytimes.com/2024/10/04/world/middleeast/what-game-theory-tells-us-about-the-threat-of-an-israel-iran-war.html
+
 **At Least 70 People Dead in Gang Attack in Haiti**\
 `The assault took place in a key agricultural region, which has seen a surge in gang violence.`\
 https://nytimes.com/2024/10/04/us/haiti-gang-attack.html

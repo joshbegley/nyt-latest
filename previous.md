@@ -1,3 +1,7 @@
+**What Game Theory Tells Us About the Threat of an Israel-Iran War**\
+`Each side must predict how the other will react to avoid mutual destruction.`\
+https://nytimes.com/2024/10/04/world/middleeast/what-game-theory-tells-us-about-the-threat-of-an-israel-iran-war.html
+
 **Here Are the Hezbollah Leaders Israel Has Targeted**\
 `Israeli strikes have aimed to kill the leaders of the Lebanese militia, most recently Hashem Safieddine. It was not immediately clear whether he had been killed in an overnight strike near Beirut.`\
 https://nytimes.com/2024/10/04/world/middleeast/hezbollah-leadership.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/the-l
 **Live chat with The Athletic's Keith Law at 1 pm ET**\
 `Keith Law will be chatting about prospect, the playoffs and more at 1pm ET on Fri., Oct. 4.`\
 https://nytimes.com/athletic/5818473/2024/10/04/live-chat-with-the-athletics-keith-law-at-1-pm-et/
-
-**At Least 70 People Dead in Gang Attack in Haiti**\
-`The assault took place in a key agricultural region, which has seen a surge in gang violence.`\
-https://nytimes.com/2024/10/04/us/haiti-gang-attack.html
 
