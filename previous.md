@@ -28,7 +28,7 @@ https://nytimes.com/2024/10/04/arts/television/late-night-trump-filing.html
 
 **Why Eric Adams Is Nothing Like David Dinkins**\
 `Facing a raft of corruption charges, New York’s second Black mayor is flattering himself by invoking the fate of its first.`\
-https://nytimes.com/2024/10/04/nyregion/why-eric-adams-is-nothing-like-david-dinkins.html
+https://nytimes.com/2024/10/04/nyregion/mayor-eric-adams-david-dinkins.html
 
 **Woman With Flowers**\
 `Tell us a story, real or made up, that is inspired by this image.`\

@@ -1,3 +1,7 @@
+**Why Eric Adams Is Nothing Like David Dinkins**\
+`Facing a raft of corruption charges, New York’s second Black mayor is flattering himself by invoking the fate of its first.`\
+https://nytimes.com/2024/10/04/nyregion/mayor-eric-adams-david-dinkins.html
+
 **March close to Brighton return but Joao Pedro still out**\
 `Solly March is closing in on a return to action for Brighton &amp; Hove Albion after a year out through injury.`\
 https://nytimes.com/athletic/5817726/2024/10/04/solly-march-brighton-joao-pedro-injury/
