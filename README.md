@@ -1,3 +1,7 @@
+**Quote of the Day: Brazil’s ‘Elegant’ Idea Could Save Tropical Forests and Generate Returns**\
+`Quotation of the Day for Friday, October 4, 2024`\
+https://nytimes.com/2024/10/03/pageoneplus/quote-of-the-day-brazils-elegant-idea-could-save-tropical-forests-and-generate-returns.html
+
 **Mets discussing whether to activate Kodai Senga for NLDS: Sources**\
 `Earlier this week, Senga threw 25 pitches in a live bullpen session in Florida.`\
 https://nytimes.com/athletic/5817499/2024/10/03/new-york-mets-kodai-senga-postseason-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817120/2024/10/03/penguins-blue-line-questions-bot
 **Time-Traveling, or Wishing to, in ‘Safety Not Guaranteed’**\
 `Adapted from the offbeat 2012 film, this new musical about loneliness and the longing for do-overs is promising but still needs to find its shape.`\
 https://nytimes.com/2024/10/03/theater/safety-not-guaranteed-review.html
-
-**Acrobat Displays**\
-`Zhouqin Burnikel opens our solving weekend.`\
-https://nytimes.com/2024/10/03/crosswords/daily-puzzle-2024-10-04.html
 
