@@ -1,3 +1,7 @@
+**Trump’s Return to Butler Is Sure to Be a Spectacle. Is It Safe?**\
+`At a time of increased security risks, the former president has urged thousands of supporters to return with him to the place a gunman tried to take his life.`\
+https://nytimes.com/2024/10/04/us/elections/trump-butler-assassination-attempt.html
+
 **Bronny to make preseason debut while LeBron held out vs. Timberwolves**\
 `Those hoping to see LeBron and Bronny share the court for the Lakers as the first father-son duo in NBA history have to wait.`\
 https://nytimes.com/athletic/5819025/2024/10/04/bronny-james-lebron-james-nba-preseason-debut/
