@@ -1,3 +1,11 @@
+**Israeli Strike Hits Southern Beirut**\
+`Israeli officials said the attack was targeting a meeting in a bunker that included Hashem Safieddine, the presumed successor of Hezbollah’s recently assassinated leader.`\
+https://nytimes.com/video/world/middleeast/100000009741290/beirut-strikes.html
+
+**Despite Iran’s bluster, anxiety is spreading among its people over possible war with Israel.**\
+`By Farnaz Fassihi and Leily Nikounazar`\
+https://nytimes.com/live/2024/10/03/world/israel-iran-lebanon-hezbollah/iran-anxiety-war-israel
+
 **Yazidi Woman Taken Captive by ISIS Has Been Rescued in Gaza, Israel Says**\
 `She was returned to her family in Iraq after a complex operation involving the United States, Jordan and others, the Israeli military said.`\
 https://nytimes.com/2024/10/03/world/middleeast/yazidi-woman-gaza-rescued.html
