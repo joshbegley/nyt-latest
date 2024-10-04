@@ -1,3 +1,11 @@
+**New Los Angeles Police Chief Is a Conventional Choice**\
+`Mayor Karen Bass named Jim McDonnell as the new Los Angeles Police Department chief, one of the nation’s highest-profile law enforcement jobs.`\
+https://nytimes.com/2024/10/04/us/los-angeles-police-chief.html
+
+**The Best of Late Night This Week**\
+`This week, the hosts focused mostly on the vice-presidential debate but took a moment to discuss recent inflammatory comments by former President Trump.`\
+https://nytimes.com/interactive/2024/10/04/arts/television/best-of-late-night-vp-debate.html
+
 **Real Madrid lose legal battle against French paper Le Monde**\
 `Real Madrid do not lose many battles in Europe but they lost one on Friday when the European Court of Justice (ECJ) ruled against them in their long-running row with French newspaper Le Monde.`\
 https://nytimes.com/athletic/5818063/2024/10/04/real-madrid-lose-court-case-le-monde/
