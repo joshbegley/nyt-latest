@@ -1,3 +1,11 @@
+**Harris Ad to Showcase Support of Liz Cheney and Other Republicans**\
+`Vice President Kamala Harris has been seeking to give Republicans who dislike the former president a permission structure to support her instead.`\
+https://nytimes.com/2024/10/04/us/politics/harris-ad-liz-cheney.html
+
+**What is the latest on Jonathan Kuminga and the Warriors’ crowded frontcourt?**\
+`Will Draymond Green start? Could Kuminga start in place of Wiggins? Answering these questions ahead of the Warriors' first preseason game.`\
+https://nytimes.com/athletic/5818900/2024/10/04/jonathan-kuminga-warriors-frontcourt-nba/
+
 **For Savannah, It’s Not Just a Port. It’s an Economy.**\
 `The Georgia city is a picturesque tourist destination. It’s also the No. 2 ocean cargo hub on the East Coast, and the dock strike’s quick end was a relief.`\
 https://nytimes.com/2024/10/04/business/economy/port-strike-savannah-economy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5818856/2024/10/04/new-york-jets-london-game-minnes
 **Iran’s Foreign Minister Reaches Out to Arab Leaders in Lebanon, Qatar**\
 `Iran’s top diplomat appeared eager to convey Iran’s readiness to support a joint cease-fire in Lebanon and in Gaza — even as Iran’s supreme leader at home expressed readiness to fight Israel.`\
 https://nytimes.com/2024/10/04/world/middleeast/iran-lebanon-gaza-ceasefire.html
-
-**Omari Hutchinson opts to battle for place in England squad over Jamaica call-up**\
-`Hutchinson's fine form at Ipswich Town left the attacking midfielder with a big decision to make`\
-https://nytimes.com/athletic/5818945/2024/10/04/omari-hutchinson-england-jamaica/
-
-**Biden Says the Election Will Be Fair. But He’s Not Sure It Will Be Peaceful.**\
-`President Biden’s remarks underscore the concerns in the government about the possibility of violence during or after the election.`\
-https://nytimes.com/2024/10/04/us/politics/biden-says-the-election-will-be-fair-but-hes-not-sure-it-will-be-peaceful.html
 
