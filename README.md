@@ -1,3 +1,7 @@
+**FIFA to investigate Israel amid Palestinian suspension request**\
+`FIFA says they will investigate the Israel Football Association (IFA) over alleged breaches of its rules.`\
+https://nytimes.com/athletic/5814832/2024/10/04/israel-fifa-investigation/
+
 **Word of the Day: longitudinal**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/04/learning/word-of-the-day-longitudinal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817196/2024/10/04/phillies-mets-2024-nlds-preview-
 **The changes Brighton are making off the pitch to make the Amex their 'castle'**\
 `Fabian Hurzeler says the Amex 'should be a castle where nobody wants to enter' - here's how Brighton are trying to do just that...`\
 https://nytimes.com/athletic/5790409/2024/10/04/brighton-home-form-amex/
-
-**Suárez details toxic culture under Uruguay's Marcelo Bielsa**\
-`Luis Suárez painted a grim picture of what it’s been like as a player under Bielsa.`\
-https://nytimes.com/athletic/5817493/2024/10/04/luis-suarez-marcelo-bielsa-copa-america/
 
