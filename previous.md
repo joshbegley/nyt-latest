@@ -1,3 +1,7 @@
+**Word of the Day: longitudinal**\
+`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/04/learning/word-of-the-day-longitudinal.html
+
 **Why Renato Veiga is becoming that Chelsea rarity - a bargain buy**\
 `The versatile Portuguese has played more minutes under Maresca than some senior names this season - and it is easy to understand why`\
 https://nytimes.com/athletic/5817021/2024/10/04/renato-veiga-chelsea-bargain/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5790409/2024/10/04/brighton-home-form-amex/
 **Suárez details toxic culture under Uruguay's Marcelo Bielsa**\
 `Luis Suárez painted a grim picture of what it’s been like as a player under Bielsa.`\
 https://nytimes.com/athletic/5817493/2024/10/04/luis-suarez-marcelo-bielsa-copa-america/
-
-**Why are Everton so vulnerable from set pieces - and how can it be fixed?**\
-`Sean Dyche's team have developed a worrying knack of conceding from set pieces - what's going wrong and needs putting right?`\
-https://nytimes.com/athletic/5814885/2024/10/04/everton-set-pieces-sean-dyche-problems/
 

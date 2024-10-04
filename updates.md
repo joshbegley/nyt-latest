@@ -1,3 +1,7 @@
+**Word of the Day: longitudinal**\
+`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/04/learning/word-of-the-day-longitudinal.html
+
 **Why Renato Veiga is becoming that Chelsea rarity - a bargain buy**\
 `The versatile Portuguese has played more minutes under Maresca than some senior names this season - and it is easy to understand why`\
 https://nytimes.com/athletic/5817021/2024/10/04/renato-veiga-chelsea-bargain/
