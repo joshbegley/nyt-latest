@@ -1,3 +1,15 @@
+**Manufacturing is growing and shrinking at the same time.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/manufacturing-is-growing-and-shrinking-at-the-same-time
+
+**Preston’s Osmajic handed eight-match ban after biting Blackburn’s Beck**\
+`Preston North End forward Milutin Osmajic has been given an eight-match suspension and fined £15,000 for biting Blackburn Rovers left-back Owen Beck during a Championship match.`\
+https://nytimes.com/athletic/5817859/2024/10/04/milutin-osmajic-bite-owen-beck/
+
+**Liverpool to make late decision on Chiesa for Palace clash**\
+`Arne Slot says he will make a late call on whether Federico Chiesa will travel with Liverpool&#8217;s squad to south London for their Premier League clash at Crystal Palace on Saturday.`\
+https://nytimes.com/athletic/5817822/2024/10/04/federico-chiesa-liverpool-crystal-palace/
+
 **Son 'unlikely' to be available for Tottenham's trip to Brighton**\
 `Tottenham Hotspur head coach Ange Postecoglou says captain Son Heung-min is “unlikely” to be available for their trip to Brighton &amp; Hove Albion on Sunday.`\
 https://nytimes.com/athletic/5817849/2024/10/04/son-heung-min-tottenham-injury-latest/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5812686/2024/10/04/maple-leafs-steven-lorentz/
 **Bears mailbag: Caleb Williams protecting the football, screen plays, plus Week 5 picks**\
 `Can the Bears build off the success against the Rams and win another game as a favorite? This week's mailbag and our Week 5 picks.`\
 https://nytimes.com/athletic/5816789/2024/10/04/caleb-williams-bears-mailbag-panthers/
-
-**Ubben: 5 lessons learned from the Matthew Sluka NIL saga**\
-`Unfortunately, plenty of pitfalls exist in a quickly changing, largely lawless system.`\
-https://nytimes.com/athletic/5812898/2024/10/04/nil-matthew-sluka-unlv-lessons/
-
-**What I’m seeing from the Chiefs: Patrick Mahomes, offense adjusting to injuries**\
-`Despite Rashee Rice going on injured reserve, people in the organization have growing optimism that he will return this season.`\
-https://nytimes.com/athletic/5816645/2024/10/04/kansas-city-chiefs-observations-patrick-mahomes/
-
-**Fake sweat, photo shoots and Skittles: Behind the scenes with Steph Curry at media day**\
-`“It’s evolved crazy from my rookie year to now,” the 36-year-old said. On this hectic day, Curry's time was more precious than usual.`\
-https://nytimes.com/athletic/5813735/2024/10/04/stephen-curry-warriors-media-day-behind-scenes/
 

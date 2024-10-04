@@ -1,3 +1,15 @@
+**Manufacturing is growing and shrinking at the same time.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/manufacturing-is-growing-and-shrinking-at-the-same-time
+
+**Preston’s Osmajic handed eight-match ban after biting Blackburn’s Beck**\
+`Preston North End forward Milutin Osmajic has been given an eight-match suspension and fined £15,000 for biting Blackburn Rovers left-back Owen Beck during a Championship match.`\
+https://nytimes.com/athletic/5817859/2024/10/04/milutin-osmajic-bite-owen-beck/
+
+**Liverpool to make late decision on Chiesa for Palace clash**\
+`Arne Slot says he will make a late call on whether Federico Chiesa will travel with Liverpool&#8217;s squad to south London for their Premier League clash at Crystal Palace on Saturday.`\
+https://nytimes.com/athletic/5817822/2024/10/04/federico-chiesa-liverpool-crystal-palace/
+
 **Son 'unlikely' to be available for Tottenham's trip to Brighton**\
 `Tottenham Hotspur head coach Ange Postecoglou says captain Son Heung-min is “unlikely” to be available for their trip to Brighton &amp; Hove Albion on Sunday.`\
 https://nytimes.com/athletic/5817849/2024/10/04/son-heung-min-tottenham-injury-latest/
