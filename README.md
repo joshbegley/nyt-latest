@@ -1,3 +1,15 @@
+**In Rare Visit to White House Press Briefing, Biden Cautions Israel**\
+`The president suggested that Israel should consider alternative ways to retaliate against Iran.`\
+https://nytimes.com/2024/10/04/world/middleeast/biden-israel-iran-oil-strike.html
+
+**Trump Falsely Promotes Endorsement From Banker Who Hasn’t Endorsed Him**\
+`As the campaign reaches its final month, the Republican nominee is intensifying his pattern of making false and outlandish statements.`\
+https://nytimes.com/2024/10/04/us/politics/trump-dimon-false-endorsement.html
+
+**Padres' Joe Musgrove unavailable for NLDS due to elbow injury**\
+`It's not known yet if Musgrove will return if the Padres advance, but they'll be without him for their Division Series against the Dodgers. `\
+https://nytimes.com/athletic/5819188/2024/10/04/padres-joe-musgrove-elbow-injury-nlds/
+
 **NFLPA calls to move media interviews out of locker rooms**\
 `In the short term, the NFLPA encouraged each player to ask for interviews outside the locker room.`\
 https://nytimes.com/athletic/5819081/2024/10/04/nflpa-locker-room-media-interviews/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/04/science/titan-oceangate-titanic-mccoy.html
 **Mets to start Kodai Senga in Game 1 of NLDS vs. Phillies**\
 `Mets ace Kodai Senga will make at least as many postseason starts as regular-season ones: New York has tabbed him for Game 1 of the NLDS.`\
 https://nytimes.com/athletic/5819171/2024/10/04/kodai-senga-mets-game-1-nlds-starter/
-
-**Devils defeat Sabres in opening Global Series game**\
-`Here are some takeaways from the Devils’ 4-1 win over the Sabres on Friday in Prague.`\
-https://nytimes.com/athletic/5818658/2024/10/04/devils-vs-sabres-nhl-global-series-game-1-takeaways/
-
-**Pogba has four-year doping ban reduced to 18 months after successful appeal**\
-`Paul Pogba says his “nightmare is over” and he “cannot wait to get back on the pitch” after his four-year ban for failing an anti-doping test was reduced to 18 months.`\
-https://nytimes.com/athletic/5818652/2024/10/04/paul-pogba-ban-appeal-successful-return/
-
-**In Key Nevada County, Harassment of Election Workers Takes a Toll**\
-`Republicans this year attempted to block certification of local elections in Washoe, a critical swing county — a worrying sign for what could be ahead, the Democratic secretary of state said.`\
-https://nytimes.com/2024/10/04/us/politics/nevada-election-harassment.html
 
