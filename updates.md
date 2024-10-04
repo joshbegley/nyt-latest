@@ -1,3 +1,11 @@
+**Wisconsin RB Chez Mellusi stepping away from team to rehab injuries**\
+`Mellusi, who transferred to Wisconsin in 2021 from Clemson, has battled injuries in his three years with the Badgers.`\
+https://nytimes.com/athletic/5817034/2024/10/03/chez-mellusi-wisconsin-badgers-football/
+
+**Israeli Airstrike Kills At Least 18 People in the West Bank**\
+`The high toll and Israel’s use of a warplane were unusual for the Israeli military’s operations in the West Bank, which have escalated during the war in Gaza.`\
+https://nytimes.com/2024/10/03/world/middleeast/israel-airstrike-west-bank-tulkarm.html
+
 **Who Is Hashem Safieddine, the Latest Hezbollah Official Targeted by Israel?**\
 `A cousin and possible successor to Hassan Nasrallah, the Hezbollah leader assassinated by Israel, Safieddine joined the group soon after it was formed and rose quickly up its ranks.`\
 https://nytimes.com/2024/10/03/world/middleeast/hashem-safieddine-hezbollah-leader.html
