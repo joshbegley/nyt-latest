@@ -1,3 +1,7 @@
+**How climate change complicates the jobs report.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/how-climate-change-complicates-the-jobs-report
+
 **Some of FIFA's transfer rules contrary to EU law, says European Court of Justice**\
 `The European Union’s highest court has decided that some of FIFA’s rules on international football transfers are contrary to EU law in a ruling that some experts have likened to the landmark Jean-Marc Bosman case in 1995.`\
 https://nytimes.com/athletic/5817901/2024/10/04/fifa-transfer-rules-lassana-diarra/
@@ -18,7 +22,7 @@ https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/manuf
 `Preston North End forward Milutin Osmajic has been given an eight-match suspension and fined £15,000 for biting Blackburn Rovers left-back Owen Beck during a Championship match.`\
 https://nytimes.com/athletic/5817859/2024/10/04/milutin-osmajic-bite-owen-beck/
 
-**Liverpool to make late decision on Chiesa for Palace clash**\
+**Liverpool to make late decision on Chiesa availability**\
 `Arne Slot says he will make a late call on whether Federico Chiesa will travel with Liverpool&#8217;s squad for their Premier League clash at Crystal Palace on Saturday.`\
 https://nytimes.com/athletic/5817822/2024/10/04/federico-chiesa-liverpool-crystal-palace/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817782/2024/10/04/mikel-merino-spain-squad-pedro-p
 **Can the economy continue its balancing act?**\
 `By Talmon Joseph Smith`\
 https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy/jobs-report-september
-
-**Live Updates: U.S. Hiring Expected to Persist in Lower Gear**\
-`Economists predict job growth in September continued at a similar pace to the previous month, which fell short of forecasts. The unemployment rate also probably held steady.`\
-https://nytimes.com/live/2024/10/04/business/jobs-report-september-economy
 
