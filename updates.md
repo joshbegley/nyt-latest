@@ -1,3 +1,11 @@
+**Real Madrid lose legal battle against French paper Le Monde**\
+`Real Madrid do not lose many battles in Europe but they lost one on Friday when the European Court of Justice (ECJ) ruled against them in their long-running row with French newspaper Le Monde.`\
+https://nytimes.com/athletic/5818063/2024/10/04/real-madrid-lose-court-case-le-monde/
+
+**China's male tennis players look to Zheng Qinwen and Li Na in bid to make a statement**\
+`While two of its women have become global stars, China's presence in the men's game has been limited. These players want to change that`\
+https://nytimes.com/athletic/5815591/2024/10/04/tennis-china-atp-zhang-bu-jerry-shang/
+
 **A Beaver’s Future Reached the Courts. Then the Massachusetts Governor Stepped In.**\
 `Nibi the beaver was saved by a wildlife rescue. But then she was ordered released into the wild. Her fate was on the line.`\
 https://nytimes.com/2024/10/04/us/nibi-beaver-boston.html
