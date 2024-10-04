@@ -1,3 +1,11 @@
+**‘My dreams are about bombs’: Beirut grapples with yet another in a long series of crises.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/10/04/world/israel-iran-hezbollah-lebanon/beirut-lebanon-israel-airstrikes-mood
+
+**Syria and Russia remain silent on reported airstrikes on a weapons facility near a Russian base in Syria.**\
+`By Eve Sampson, Anton Troianovski, Aric Toler and Oleg Matsnev`\
+https://nytimes.com/2024/10/04/world/middleeast/israel-strikes-russian-airbase-syria.html
+
 **Pete Alonso's amazin', improbable October home run and a Mets comeback for the ages**\
 `Alonso just hit the most game-changing, series-changing home run in any winner-take-all baseball game ever played.`\
 https://nytimes.com/athletic/5818665/2024/10/04/pete-alonso-home-run-mets-brewers-history/
