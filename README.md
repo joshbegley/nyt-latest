@@ -1,3 +1,7 @@
+**Gender Identity Changes Must Be Recognized Across E.U. Borders, Court Rules**\
+`A man who changed his name and gender identity in Britain successfully challenged to have them legally recognized by Romania.`\
+https://nytimes.com/2024/10/04/world/europe/eu-court-gender-identity-transgender.html
+
 **Focus on Raya rivalry 'used to do my head in' - Ramsdale**\
 `Former Arsenal goalkeeper Aaron Ramsdale says the scrutiny he received in the wake of being dropped for David Raya did his &#8220;head in&#8221;.`\
 https://nytimes.com/athletic/5818058/2024/10/04/aaron-ramsdale-david-raya-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5816549/2024/10/04/bucks-rajon-rondo-doc-rivers/
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/04/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Trump Heads to Georgia as the South Reels From Helene**\
-`Former President Donald J. Trump is expected to appear with Gov. Brian Kemp, a fellow Republican whom Mr. Trump has been at odds with over the 2020 election.`\
-https://nytimes.com/live/2024/10/04/us/harris-trump-election
 
