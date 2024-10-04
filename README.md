@@ -1,3 +1,7 @@
+**How will Phillies approach NLDS vs. Mets? Keys to a matchup of familiar foes**\
+`Separated by 111 miles, these two rivals who tend to produce chaotic baseball have never opposed one another in the playoffs.`\
+https://nytimes.com/athletic/5817635/2024/10/04/phillies-mets-nlds-matchup-analysis/
+
 **Exploring Your Political Identity and Values: A How-To Guide for Our 2024 Coming of Age Contest**\
 `Four steps to figuring out what you want to say and how you would like to say it, with inspiration from 30 teen-created works across genres.`\
 https://nytimes.com/2024/10/04/learning/exploring-your-political-identity-and-values-a-how-to-guide-for-our-2024-coming-of-age-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5816960/2024/10/04/raiders-antonio-pierce-christian
 **The Athletic’s Friday football quiz question #24**\
 `Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/5817769/2024/10/04/the-athletics-friday-football-quiz-question-24/
-
-**What I'm seeing from the Los Angeles Chargers: Ladd McConkey emerging as WR1**\
-`The Chargers remade their wide receivers group this offseason, and the rookie McConkey is emerging as Justin Herbert's trusted target.`\
-https://nytimes.com/athletic/5816814/2024/10/04/chargers-observations-ladd-mcconkey-poona-ford/
 
