@@ -1,3 +1,15 @@
+**At Least 14 Die as Floods Sweep Through Bosnia and Other Balkan States**\
+`A severe overnight rainstorm left several towns and villages flooded. Record summer temperatures caused a drought that hampered the absorption of floodwaters.`\
+https://nytimes.com/2024/10/04/world/europe/bosnia-flooding-balkans.html
+
+**Britain Backs Plan to Store Carbon Dioxide Under the Sea**\
+`Two proposals in Northern England, led by the energy giants BP and Eni, aim to establish an industry in burying emissions from industrial plants.`\
+https://nytimes.com/2024/10/04/business/britain-carbon-capture.html
+
+**Israel Expands Evacuation Warnings in Southern Lebanon After Renewed Strikes**\
+`Israeli soldiers were also waging a ground invasion in southern Lebanon targeting what military officials said were Hezbollah sites in the rugged border area.`\
+https://nytimes.com/2024/10/04/world/middleeast/israel-lebanon-evacuation-warnings.html
+
 **Jobs and Oil Prices Are Keeping Markets on Edge**\
 `Friday’s jobs report could bolster the view that the American economy is holding steady, but an oil price shock could undercut that sense of calm.`\
 https://nytimes.com/2024/10/04/business/dealbook/jobs-and-oil-prices-are-keeping-markets-on-edge.html
