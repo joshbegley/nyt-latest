@@ -1,3 +1,11 @@
+**New Los Angeles Police Chief Is a Conventional Choice**\
+`Mayor Karen Bass named Jim McDonnell as the new Los Angeles Police Department chief, one of the nation’s highest-profile law enforcement jobs.`\
+https://nytimes.com/2024/10/04/us/los-angeles-police-chief.html
+
+**The Best of Late Night This Week**\
+`This week, the hosts focused mostly on the vice-presidential debate but took a moment to discuss recent inflammatory comments by former President Trump.`\
+https://nytimes.com/interactive/2024/10/04/arts/television/best-of-late-night-vp-debate.html
+
 **Real Madrid lose legal battle against French paper Le Monde**\
 `Real Madrid do not lose many battles in Europe but they lost one on Friday when the European Court of Justice (ECJ) ruled against them in their long-running row with French newspaper Le Monde.`\
 https://nytimes.com/athletic/5818063/2024/10/04/real-madrid-lose-court-case-le-monde/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/world/middleeast/hezbollah-leadership.html
 **The Windup: Was that Pete Alonso's signature moment?**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter.`\
 https://nytimes.com/athletic/5818493/2024/10/04/pete-alonso-wild-card-terry-francona-the-windup/
-
-**Undecided Voters Tell Us About Their Biggest Worries**\
-`Donald J. Trump and Kamala Harris are starkly different presidential candidates. So why are so many voters —  roughly 1 in 6 — still unsure of their choice?`\
-https://nytimes.com/interactive/2024/10/04/us/elections/2024-election-undecided-voters.html
-
-**World Series odds entering division series: Yankees jump the Dodgers as favorites**\
-`We check back in on MLB futures as eight teams prepare to battle in the divisional round.`\
-https://nytimes.com/athletic/5818292/2024/10/04/world-series-odds-division-series-yankees-dodgers/
 
