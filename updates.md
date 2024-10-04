@@ -1,3 +1,15 @@
+**Friday Briefing: Israel Targets Hezbollah’s Remaining Leaders**\
+`Plus, a billion-dollar plan to protect trees.`\
+https://nytimes.com/2024/10/04/briefing/israel-hezbollah-trump-britain-labour.html
+
+**Mets magic continues in another astonishing, season-saving comeback**\
+`J.D. Martinez summed up the sheer joy of the Mets' recent dramatics: “Once you do this, regular baseball is boring.”`\
+https://nytimes.com/athletic/5817555/2024/10/04/mets-pete-alonso-mlb-playoffs/
+
+**Phillies vs. Mets NLDS preview: Predictions, pitching matchups and more**\
+`The Phillies and Mets will meet in the postseason for the first time ever in an NLDS that promises to have plenty of juice. `\
+https://nytimes.com/athletic/5817196/2024/10/04/phillies-mets-2024-nlds-preview-predictions/
+
 **The changes Brighton are making off the pitch to make the Amex their 'castle'**\
 `Fabian Hurzeler says the Amex 'should be a castle where nobody wants to enter' - here's how Brighton are trying to do just that...`\
 https://nytimes.com/athletic/5790409/2024/10/04/brighton-home-form-amex/
