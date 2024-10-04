@@ -1,3 +1,7 @@
+**Britain Backs Plan to Store Carbon Dioxide Under the Sea**\
+`Two proposals in Northern England, led by the energy giants BP and Eni, aim to establish an industry in burying emissions from industrial plants.`\
+https://nytimes.com/2024/10/04/business/britain-carbon-capture.html
+
 **Jobs and Oil Prices Are Keeping Markets on Edge**\
 `Friday’s jobs report could bolster the view that the American economy is holding steady, but an oil price shock could undercut that sense of calm.`\
 https://nytimes.com/2024/10/04/business/dealbook/jobs-and-oil-prices-are-keeping-markets-on-edge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5816515/2024/10/04/jeremy-swayman-arbitration-trent
 **What I'm seeing from the 49ers: Missing ingredient sticks out like sore Achilles**\
 `A person of interest as the 49ers move into October: Sam Okuayinonu, who's looked like their third-best edge rusher in recent weeks.`\
 https://nytimes.com/athletic/5810660/2024/10/04/49ers-observations-christian-mccaffrey-injury/
-
-**What we're seeing from the Raiders: Growing pains for AP and injuries hurting the defense**\
-`Between the seemingly imminent departure of Davante Adams and some questions about their coach, the Raiders are off to a dubious start.`\
-https://nytimes.com/athletic/5816960/2024/10/04/raiders-antonio-pierce-christian-wilkins-defense/
 
