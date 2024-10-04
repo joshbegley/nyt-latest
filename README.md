@@ -31,7 +31,7 @@ https://nytimes.com/2024/10/04/us/politics/black-men-election-georgia-trump-harr
 https://nytimes.com/athletic/5816613/2024/10/04/chloe-chambers-f1-academy-red-bull-haas/
 
 **Lowetide: Identifying the Oilers' top recall options at each position**\
-`Which players are first in the Oilers' order of recall in case of injury, trade or a rough series of performances?`\
+`Which players are first on the Oilers' list in case of injury, trade or a rough series of performances?`\
 https://nytimes.com/athletic/5813594/2024/10/04/edmonton-oilers-depth-2024/
 
 **Make your picks for the prediction contest that's so easy it's almost impossible**\
