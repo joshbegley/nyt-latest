@@ -1,3 +1,11 @@
+**Wild's special teams elite, Ohgren impresses in final preseason game: Key takeaways vs. Blackhawks**\
+`Jonas Brodin scored one of the sneakiest goals as Minnesota closed the preseason with a 6-1 victory against the Blackhawks.`\
+https://nytimes.com/athletic/5819732/2024/10/04/wild-blackhawks-takeaways-nhl-preseason/
+
+**Biden Urges Congress to Replenish Disaster Relief Funds Quickly**\
+`The president said a Small Business Administration program needed to help business owners recover from Hurricane Helene was set to run out of money in weeks, before Congress reconvenes.`\
+https://nytimes.com/2024/10/04/us/politics/biden-congress-disaster-relief-helene.html
+
 **5 Takeaways From Melania Trump’s Book**\
 `Shining a little more light on her mysterious life, her memoir details her support for abortion rights, her doubts about the 2020 election and her explanation for that “I really don’t care” jacket.`\
 https://nytimes.com/2024/10/04/us/politics/melania-trump-book-abortion-2020-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5819704/2024/10/04/phillies-hitters-mets-kodai-seng
 **A Deluge of Rain Poured Out of the Heavens. But There’s Still No Drinking Water.**\
 `City officials have refused to provide estimates of when the devastated water system in Asheville, N.C., will be back in operation.`\
 https://nytimes.com/2024/10/04/us/hurricane-helene-asheville-water.html
-
-**In North Carolina Town Hall, Trump Makes a Series of Promises to Appeal to Veterans**\
-`Donald J. Trump answered preselected questions from a pro-military crowd who echoed his false claims and approved of his vow to conduct massive deportations of undocumented immigrants.`\
-https://nytimes.com/2024/10/04/us/politics/trump-town-hall-promises-veterans.html
-
-**Dodgers' Freddie Freeman says ankle 'good enough' to play in NLDS**\
-`Dodgers manager Dave Roberts expressed confidence that Freeman would be in the lineup on Saturday.`\
-https://nytimes.com/athletic/5819667/2024/10/04/dodgers-freddie-freeman-ankle-nlds/
 
