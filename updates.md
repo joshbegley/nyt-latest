@@ -1,3 +1,7 @@
+**The historic stat that illustrates the Broncos' dramatic special teams turnaround**\
+`Denver is the first team since at least 2000 to pin three punts at the 1-yard line in the first four games of a season.`\
+https://nytimes.com/athletic/5819386/2024/10/05/broncos-special-teams-turnaround/
+
 **Alisson set for 'weeks' out with suspected hamstring injury - Slot**\
 `Liverpool head coach Arne Slot says Alisson will likely be sidelined for a number of weeks with a suspected hamstring injury sustained in Saturday&#8217;s 1-0 victory at Crystal Palace.`\
 https://nytimes.com/athletic/5820215/2024/10/05/alisson-injury-update-liverpool-arne-slot/
