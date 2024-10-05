@@ -1,3 +1,15 @@
+**Michigan Father Dies in Israeli Airstrike in Lebanon, Family Says**\
+`Kamel Ahmad Jawad, a U.S. citizen, was remembered by friends and relatives as someone who chose to stay behind to help others who couldn’t flee.`\
+https://nytimes.com/2024/10/05/world/middleeast/michigan-father-lebanon-airstrike.html
+
+**Live Updates: Israel’s Attacks Against Hezbollah Expand**\
+`A strike was reported in the Lebanese city of Tripoli, near the country’s northern edge.`\
+https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon
+
+**Here are the latest developments.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/here-are-the-latest-developments
+
 **Ukraine’s Donbas Strategy: Retreat Slowly and Maximize Russia’s Losses**\
 `The idea is to use rope-a-dope tactics, letting Russian forces pound away until they have exhausted themselves. It’s far from clear if the Ukrainian strategy will succeed.`\
 https://nytimes.com/2024/10/05/world/europe/ukraine-donbas-strategy-russia-war.html
