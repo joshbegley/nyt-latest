@@ -1,3 +1,19 @@
+**What to Know: How Israel Could Retaliate Against Iran**\
+`Iran has a number of sensitive sites, including oil infrastructure, military installations and nuclear facilities.`\
+https://nytimes.com/2024/10/05/world/middleeast/israel-iran-retaliation.html
+
+**2 Books About Old Flames**\
+`Stephen McCauley’s novel about ex-spouses reuniting, in a sense; Jim Shepard’s noir about a fateful hit-and-run.`\
+https://nytimes.com/2024/10/05/books/read-like-wind-recommendations.html
+
+**The Troubling Quiet of North Carolina’s Cell Service Outages**\
+`Service has been restored in some areas after Hurricane Helene, but many people are still unable to communicate by phone, which has hampered relief efforts, worried loved ones and complicated daily life.`\
+https://nytimes.com/2024/10/05/us/north-carolina-cell-outages-helene.html
+
+**Khan: TCU's post-national title game tailspin has hit a new low**\
+`Any honeymoon period Sonny Dykes enjoyed after his magical first season is completely over as far as TCU fans are concerned.`\
+https://nytimes.com/athletic/5820077/2024/10/05/tcu-houston-sonny-dykes/
+
 **I’m a Doctor. ChatGPT’s Bedside Manner Is Better Than Mine.**\
 `My job is no longer safe.`\
 https://nytimes.com/2024/10/05/opinion/ai-chatgpt-medicine-doctor.html
