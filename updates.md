@@ -1,3 +1,7 @@
+**Josh Minott shines in Timberwolves' preseason opener, validating his approach to the game**\
+`Minott scored 22 points and grabbed eight rebounds in Minnesota's 124-107 victory over the Los Angeles Lakers on Friday.`\
+https://nytimes.com/athletic/5819908/2024/10/05/timberwolves-preseason-opener-josh-minott/
+
 **Should we be concerned about the Blackhawks' ‘embarrassing' preseason?**\
 `The Blackhawks' 0-5 mark with seven goals in the preseason is disconcerting no matter the time of year, no matter the lineup.`\
 https://nytimes.com/athletic/5819872/2024/10/05/blackhawks-wild-nhl-preseason/
