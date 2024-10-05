@@ -1,3 +1,7 @@
+**Glimpses of border towns and villages offer a window into Israel’s invasion.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/glimpses-of-border-towns-and-villages-offer-a-window-into-israels-invasion
+
 **The Briefing: Arsenal 3 Southampton 1 - Resillience, Havertz eclipses Jesus, and how was Ramsdale received?**\
 `Mikel Arteta's side came from behind to beat Southampton and maintain momentum in pursuit of Liverpool at the top of the Premier League`\
 https://nytimes.com/athletic/5818998/2024/10/05/arsenal-southampton-saka-partey-ramsdale-briefing/
