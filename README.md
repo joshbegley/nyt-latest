@@ -1,3 +1,7 @@
+**How the Las Vegas Aces guards came to life to stave off elimination**\
+`"We're the Aces. We're not going to fold." Las Vegas ensured Game 4 against the Liberty on Sunday.`\
+https://nytimes.com/athletic/5819969/2024/10/05/las-vegas-aces-game-three-win/
+
 **Josh Minott shines in Timberwolves' preseason opener, validating his approach to the game**\
 `Minott scored 22 points and grabbed eight rebounds in Minnesota's 124-107 victory over the Los Angeles Lakers on Friday.`\
 https://nytimes.com/athletic/5819908/2024/10/05/timberwolves-preseason-opener-josh-minott/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818715/2024/10/05/13-insights-fantasy-football-wee
 **Iowa at Ohio State picks, odds, how to watch: Can Hawkeyes defense contain the Buckeyes?**\
 `Ohio State has blown away the opposition so far, but gets a different kind of test in Iowa and the Hawkeyes' stout defense.`\
 https://nytimes.com/athletic/5816752/2024/10/05/iowa-ohio-state-picks-odds-how-to-watch/
-
-**Villages Spared a Soviet Nuclear Plant Are Split Over a U.S. One**\
-`A plan to place American-made reactors on a picturesque coastline has broad support in Poland — and in Washington — but the geopolitical calculations have run into local opposition.`\
-https://nytimes.com/2024/10/05/world/europe/poland-nuclear-plant.html
 
