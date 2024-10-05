@@ -1,40 +1,40 @@
-**What in the world happened with Meslier - and how does Leeds goalkeeper recover?**\
-`Leeds were on the cusp of beating Sunderland before a bizarre error from Illan Meslier cost them the game`\
-https://nytimes.com/athletic/5818781/2024/10/05/illan-meslier-leeds-sunderland-analysis/
+**I’m a Doctor. ChatGPT’s Bedside Manner Is Better Than Mine.**\
+`My job is no longer safe.`\
+https://nytimes.com/2024/10/05/opinion/ai-chatgpt-medicine-doctor.html
 
-**Fear Factors**\
-`Sometimes the scariest movies are the ones that depict the ordinary horrors of life.`\
-https://nytimes.com/2024/10/05/briefing/fear-factors.html
+**What I'm seeing from the preseason Oilers: Still a lot of work to do**\
+`As the regular season approaches, the urgency to improve is increasing for the reigning Stanley Cup finalists.`\
+https://nytimes.com/athletic/5819933/2024/10/05/oilers-preseason-nugent-bowman/
 
-**Before Kevin O'Connell was a Coach of the Year candidate, he was the Jets' 'Coach O'Connell'**\
-`The coach who has the Minnesota Vikings at 4-0 `\
-https://nytimes.com/athletic/5814634/2024/10/05/kevin-oconnell-time-as-jets-backup-qb-started-coaching-journey/
+**Bruins preseason depth chart 3.0: Three spots left to decide**\
+`Saturday’s final tuneup may have a slight impact on who breaks camp with the varsity. There are three spots remaining to finalize.`\
+https://nytimes.com/athletic/5818950/2024/10/05/bruins-preseason-depth-chart-zadorov/
 
-**What to know about college football's new helmet communication rules**\
-`You may have noticed the uptick of college football quarterbacks cupping their helmets to squeeze out the sounds of the loudest stadiums.`\
-https://nytimes.com/athletic/5767195/2024/10/05/college-football-helmet-communications-explained/
+**America Needs a President**\
+`The sidelining of the White House in global crisis spots is a big red flag.`\
+https://nytimes.com/2024/10/05/opinion/president-biden-middle-east-ukraine.html
 
-**Why Kirk Cousins was ready to 'let it rip' vs. Bucs and help unlock Falcons offense**\
-`The Falcons offense took a big step Thursday. Trust and anticipation made all the difference. `\
-https://nytimes.com/athletic/5818555/2024/10/05/kirk-cousins-falcons-offense-buccaneers/
+**Biden Sought Peace but Facilitated War**\
+`Netanyahu repeatedly rolled the American president, leading us all to the precipice of a much larger war.`\
+https://nytimes.com/2024/10/05/opinion/biden-israel-war.html
 
-**'We hated each other': When the Yankees and Royals turned baseball into a blood feud**\
-`Through the late 1970s, the Royals and Yankees battled, on the field and off it. `\
-https://nytimes.com/athletic/5819781/2024/10/05/yankees-royals-1970s-rivalry/
+**Benny Gantz: What the World Needs to Understand About Iran**\
+`Now is the time to bolster regional cooperation and make a broad effort to confront Iran.`\
+https://nytimes.com/2024/10/05/opinion/iran-israel-benny-gantz.html
 
-**First-and-10: What to watch in Ravens' AFC North meeting vs. Bengals**\
-`What to watch as the Ravens travel to Cincinnati for an AFC North rivalry contest Sunday.`\
-https://nytimes.com/athletic/5819134/2024/10/05/ravens-bengals-rivalry-10-things-to-watch/
+**JD Smirks His Way Into the Future**\
+`The misogynist ticket takes a shot at Kamala for dancing — and being a woman.`\
+https://nytimes.com/2024/10/05/opinion/jd-vance-kamala-harris.html
 
-**Topi Niemela and other undersized prospects caught in Maple Leafs organizational shift**\
-`Brad Treliving's focus on size on the blue line may limit the chance for Topi Niemela to show off any upside.`\
-https://nytimes.com/athletic/5812969/2024/10/05/maple-leafs-topi-niemela/
+**Marta on playing more club soccer: 'I still have something to give'**\
+`Marta previously retired from international soccer. Her current Pride contract runs through 2024.`\
+https://nytimes.com/athletic/5819642/2024/10/05/orlando-pride-marta-club-soccer/
 
-**Can the unbeaten Vikings stay hot against Aaron Rodgers and the Jets in London?**\
-`What should you expect from the Vikings' matchup with future Hall of Famer Aaron Rodgers and the Jets in London? We break it down.`\
-https://nytimes.com/athletic/5817732/2024/10/05/vikings-jets-london-preview-predictions-aaron-rodgers/
+**To Understand Trump vs. Harris, You Must Know These American Myths**\
+`It’s as if we are living in two different countries, each with a different understanding of who counts as American.`\
+https://nytimes.com/2024/10/05/opinion/trump-harris-american-myths.html
 
-**Who the heck are these guys? Your Detroit Tigers ALDS reference guide**\
-`Can't tell the players without a scorecard? Here's a handy guide to each player on an obscure Tigers team that just keeps winning. `\
-https://nytimes.com/athletic/5819268/2024/10/05/detroit-tigers-reference-guide/
+**Adoptions by Foreign Parents**\
+`Readers discuss a guest essay by a Chinese adoptee.`\
+https://nytimes.com/2024/10/05/opinion/foreign-adoptions-china.html
 
