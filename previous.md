@@ -1,3 +1,15 @@
+**Iranian news media asks: Where is top Quds Forces commander General Esmail Ghaani?**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/iranian-news-media-asks-where-is-top-quds-forces-commander-general-esmail-ghaani
+
+**Mets wait out Wheeler, rock Phillies with 5-run 8th inning to win Game 1: Takeaways**\
+`After Wheeler held them to no runs and one hit in seven innings, the Mets unloaded against the Phillies' vaunted bullpen to win Game 1, 6-2.`\
+https://nytimes.com/athletic/5820965/2024/10/05/mets-phillies-score-takeaways-zack-wheeler/
+
+**Georgia looks less inspired and more methodical against Auburn**\
+`Georgia did beat Auburn, but the Bulldogs didn't rack up many style points in the rivalry victory.`\
+https://nytimes.com/athletic/5820334/2024/10/05/georgia-auburn-football-score-results-takeaways/
+
 **Is Ohio State ready for Oregon? Buckeyes passed test against risk-averse Iowa**\
 `After a sluggish first half, No. 3 Ohio State pulled away for a dominant 35-7 win against Iowa. Here's what we learned.`\
 https://nytimes.com/athletic/5820976/2024/10/05/ohio-state-iowa-football-score-recap/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5820934/2024/10/05/dani-carvajal-real-madrid-injury
 **Missing People, Power Outages, Ruined Roads: Issues Across the Southeast After Helene**\
 `The worst fallout from the hurricane is in western North Carolina, but at least five other states are grappling with their own intractable problems.`\
 https://nytimes.com/2024/10/05/us/hurricane-helene-damage-deaths.html
-
-**Liam Ohgren and Jesper Wallstedt to be on Wild's opening-night roster: Source**\
-`Management and the coaching staff have decided both rookies earned roster spots to start the season.`\
-https://nytimes.com/athletic/5820726/2024/10/05/wild-roster-liam-ohgren-jesper-wallstedt/
-
-**Macron Calls for Halting Weapons to Israel for Gaza Conflict**\
-`The French leader’s comments drew the condemnation of Israel’s prime minister, Benjamin Netanyahu, and reflected the growing international concern over Israel’s expanding conflicts in the region.`\
-https://nytimes.com/2024/10/05/world/middleeast/macron-calls-for-halting-weapons-to-israel-for-gaza-conflict.html
-
-**Mets' Kodai Senga allows leadoff HR, goes 2 innings in Game 1**\
-`The Mets' ace pitched well after Kyle Schwarber's upper-desk tank job, an indication that he could be an option later in the series.`\
-https://nytimes.com/athletic/5820877/2024/10/05/mets-kodai-senga-leadoff-hr-nlds-game-1/
 
