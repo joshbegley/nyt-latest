@@ -1,3 +1,7 @@
+**Dodgers' Shohei Ohtani is excited, not nervous ahead of first MLB postseason**\
+`“It's always been my childhood dream to be able to be in an important situation, to play in important games,” Ohtani said.`\
+https://nytimes.com/athletic/5819733/2024/10/04/dodgers-shohei-ohtani-first-postseason-not-nervous/
+
 **Yankees' Alex Verdugo to start in LF; Jasson Domínguez still unsure of postseason role**\
 `The Yankees will go with the player with more experience in Yankee Stadium's cavernous left field, according to a team source.`\
 https://nytimes.com/athletic/5819652/2024/10/04/yankees-alex-verdugo-jasson-dominguez-left-field-alds/

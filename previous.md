@@ -1,3 +1,7 @@
+**Dodgers' Shohei Ohtani is excited, not nervous ahead of first MLB postseason**\
+`“It's always been my childhood dream to be able to be in an important situation, to play in important games,” Ohtani said.`\
+https://nytimes.com/athletic/5819733/2024/10/04/dodgers-shohei-ohtani-first-postseason-not-nervous/
+
 **Yankees' Alex Verdugo to start in LF; Jasson Domínguez still unsure of postseason role**\
 `The Yankees will go with the player with more experience in Yankee Stadium's cavernous left field, according to a team source.`\
 https://nytimes.com/athletic/5819652/2024/10/04/yankees-alex-verdugo-jasson-dominguez-left-field-alds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819568/2024/10/04/braves-mlb-max-free-offseason-ne
 **Aides Say Trump Resisted Sending Federal Funds After California Wildfires**\
 `He changed his mind after being shown data that his supporters in the state had been affected, the former officials said. One called his approach “red states vs. blue states.”`\
 https://nytimes.com/2024/10/04/us/politics/trump-wildfire-aid-california.html
-
-**Lynx's Cheryl Reeve confronted Sun players after Game 1**\
-`Reeve had an issue with how Connecticut celebrated its series-opening victory, league sources said.`\
-https://nytimes.com/athletic/5819599/2024/10/04/cheryl-reeve-lynx-sun-game-1/
 
