@@ -1,3 +1,7 @@
+**Raiders' Maxx Crosby expected to return vs. Broncos**\
+`Crosby practiced Friday and was in good spirits.`\
+https://nytimes.com/athletic/5820998/2024/10/05/maxx-crosby-raiders-broncos-injury-update/
+
 **Kamala Harris Visits North Carolina to Check on Hurricane Response**\
 `The vice president visited Charlotte, N.C., for an update on relief efforts after Hurricane Helene ravaged wide swaths of the Southeast.`\
 https://nytimes.com/2024/10/05/us/politics/kamala-harris-north-carolina-hurricane-helene.html
