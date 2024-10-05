@@ -1,3 +1,15 @@
+**NASCAR garage reacts to lawsuit: 'It's another edition of the soap opera'**\
+`"It's another edition of the 'As The World Turns: NASCAR' soap opera," RFK Racing owner/driver Brad Keselowski said of Wednesday's news.`\
+https://nytimes.com/athletic/5820663/2024/10/05/nascar-michael-jordan-lawsuit-denny-hamlin-garage-reaction/
+
+**What we know about the first attempted assassination of Trump in Butler, Pa.**\
+`By Kate Kelly`\
+https://nytimes.com/live/2024/10/05/us/trump-harris-election/what-we-know-about-the-first-attempted-assassination-of-trump-in-butler-pa
+
+**Dodgers' Clayton Kershaw declared out for postseason**\
+`LOS ANGELES — Clayton Kershaw’s season is officially over after his injured left big toe didn’t show substantive progress, Los Angeles Dodgers manager Dave Roberts said Saturday.`\
+https://nytimes.com/athletic/5820846/2024/10/05/dodgers-clayton-kershaw-injury-2/
+
 **Widow of Man Killed in July Attack on Trump Returns for Rally**\
 `Helen Comperatore, whose husband, Corey Comperatore, was killed when a gunman tried to assassinate former President Donald J. Trump, returned to honor her husband’s memory.`\
 https://nytimes.com/2024/10/05/us/politics/comperatore-wife-family-trump-assassination-rally-pa.html

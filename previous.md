@@ -1,3 +1,15 @@
+**NASCAR garage reacts to lawsuit: 'It's another edition of the soap opera'**\
+`"It's another edition of the 'As The World Turns: NASCAR' soap opera," RFK Racing owner/driver Brad Keselowski said of Wednesday's news.`\
+https://nytimes.com/athletic/5820663/2024/10/05/nascar-michael-jordan-lawsuit-denny-hamlin-garage-reaction/
+
+**What we know about the first attempted assassination of Trump in Butler, Pa.**\
+`By Kate Kelly`\
+https://nytimes.com/live/2024/10/05/us/trump-harris-election/what-we-know-about-the-first-attempted-assassination-of-trump-in-butler-pa
+
+**Dodgers' Clayton Kershaw declared out for postseason**\
+`LOS ANGELES — Clayton Kershaw’s season is officially over after his injured left big toe didn’t show substantive progress, Los Angeles Dodgers manager Dave Roberts said Saturday.`\
+https://nytimes.com/athletic/5820846/2024/10/05/dodgers-clayton-kershaw-injury-2/
+
 **Widow of Man Killed in July Attack on Trump Returns for Rally**\
 `Helen Comperatore, whose husband, Corey Comperatore, was killed when a gunman tried to assassinate former President Donald J. Trump, returned to honor her husband’s memory.`\
 https://nytimes.com/2024/10/05/us/politics/comperatore-wife-family-trump-assassination-rally-pa.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5820693/2024/10/05/buffalo-sabres-devils-prague/
 **Texas A&M makes paper tigers of Missouri: Are both still in contention for the Playoff?**\
 `Texas A&M and Missouri are now trending in opposite directions as they hold on tight for a Playoff berth.`\
 https://nytimes.com/athletic/5820680/2024/10/05/texas-am-missouri-score-analysis-takeaways/
-
-**Packers suspend WR Romeo Doubs for 1 game**\
-`Green Bay sits at (2-2) and will look to get back on track Sunday on the road against the Los Angeles Rams.`\
-https://nytimes.com/athletic/5820651/2024/10/05/green-bay-packers-news-romeo-doubs-suspension/
-
-**Braedyn Locke, Wisconsin get things rolling against Purdue**\
-`Wisconsin got the easy win it needed against Purdue to improve to 3-2 and set itself up for a key stretch to the season.`\
-https://nytimes.com/athletic/5820327/2024/10/05/wisconsin-football-score-purdue-takeaways-highlights/
-
-**From Melania Trump: Modeling, Motherhood and a Brazen Whitewash of a Presidency**\
-`Slim and full of obfuscations, her memoir touches on business ventures and raising her son, but barely grapples with the mysteries of her marriage.`\
-https://nytimes.com/2024/10/05/books/review/melania-trump-memoir.html
 
