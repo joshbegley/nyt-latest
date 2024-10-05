@@ -1,3 +1,7 @@
+**Is Ohio State ready for Oregon? Buckeyes passed test against risk-averse Iowa**\
+`After a sluggish first half, No. 3 Ohio State pulled away for a dominant 35-7 win against Iowa. Here's what we learned.`\
+https://nytimes.com/athletic/5820976/2024/10/05/ohio-state-iowa-football-score-recap/
+
 **Raiders' Maxx Crosby expected to return vs. Broncos**\
 `Crosby practiced Friday and was in good spirits.`\
 https://nytimes.com/athletic/5820998/2024/10/05/maxx-crosby-raiders-broncos-injury-update/
