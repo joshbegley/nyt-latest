@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5815045/2024/10/05/aaron-ramsdale-arsenal-southampt
 `The 21-year-old dislocated his shoulder with Real Madrid last year and concerns remain over potential future recurrences`\
 https://nytimes.com/athletic/5818033/2024/10/05/jude-bellingham-real-madrid-la-liga-shoulder-injury/
 
-**Should we be concerned about the Blackhawks' 'embarrassing' preseason?**\
+**Should we be concerned about the Blackhawks' ‘embarrassing' preseason?**\
 `The Blackhawks' 0-5 mark with seven goals in the preseason is disconcerting no matter the time of year, no matter the lineup.`\
 https://nytimes.com/athletic/5819872/2024/10/05/blackhawks-wild-nhl-preseason/
 
