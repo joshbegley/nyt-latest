@@ -1,3 +1,7 @@
+**What in the world happened with Meslier - and how does Leeds goalkeeper recover?**\
+`Leeds were on the cusp of beating Sunderland before a bizarre error from Illan Meslier cost them the game`\
+https://nytimes.com/athletic/5818781/2024/10/05/illan-meslier-leeds-sunderland-analysis/
+
 **Fear Factors**\
 `Sometimes the scariest movies are the ones that depict the ordinary horrors of life.`\
 https://nytimes.com/2024/10/05/briefing/fear-factors.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817732/2024/10/05/vikings-jets-london-preview-pred
 **Who the heck are these guys? Your Detroit Tigers ALDS reference guide**\
 `Can't tell the players without a scorecard? Here's a handy guide to each player on an obscure Tigers team that just keeps winning. `\
 https://nytimes.com/athletic/5819268/2024/10/05/detroit-tigers-reference-guide/
-
-**Ever-Shrinking Condos Are the Choice of Investors in Toronto and Vancouver**\
-`A new report shows that small condo units are preferred by investors and that a lack of investor buyers may now be delaying new buildings.`\
-https://nytimes.com/2024/10/05/world/canada/ever-shrinking-condos-are-the-choice-of-investors-in-toronto-and-vancouver.html
 
