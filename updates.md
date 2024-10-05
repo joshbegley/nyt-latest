@@ -1,3 +1,11 @@
+**Georgia looks less inspired and more methodical against Auburn**\
+`Georgia beat Auburn, but the Bulldogs didn't rack up many style points in the rivalry victory.`\
+https://nytimes.com/athletic/5820334/2024/10/05/georgia-auburn-football-score-results-takeaways/
+
+**Vanderbilt knocks off No. 1 Alabama. Is this the biggest upset in SEC history?**\
+`Vandy got its first-ever win over an AP top-five team behind its star QB, a strong running game and Alabama mistakes.`\
+https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
+
 **Israel Steps Up Attacks in Lebanon as Fighting Spreads**\
 `With the region on edge about a possible Israeli retaliatory strike on Iran, U.S. Central Command hit targets in Yemen and Israel ordered evacuations in Gaza.`\
 https://nytimes.com/2024/10/05/world/middleeast/israel-lebanon-hezbollah-iran.html

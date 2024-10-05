@@ -11,7 +11,7 @@ https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/iranian-
 https://nytimes.com/athletic/5820965/2024/10/05/mets-phillies-score-takeaways-zack-wheeler/
 
 **Georgia looks less inspired and more methodical against Auburn**\
-`Georgia did beat Auburn, but the Bulldogs didn't rack up many style points in the rivalry victory.`\
+`Georgia beat Auburn, but the Bulldogs didn't rack up many style points in the rivalry victory.`\
 https://nytimes.com/athletic/5820334/2024/10/05/georgia-auburn-football-score-results-takeaways/
 
 **Is Ohio State ready for Oregon? Buckeyes passed test against risk-averse Iowa**\
@@ -26,8 +26,8 @@ https://nytimes.com/athletic/5820998/2024/10/05/maxx-crosby-raiders-broncos-inju
 `The vice president visited Charlotte, N.C., for an update on relief efforts after Hurricane Helene ravaged wide swaths of the Southeast.`\
 https://nytimes.com/2024/10/05/us/politics/kamala-harris-north-carolina-hurricane-helene.html
 
-**No. 1 Alabama trails Vanderbilt at halftime**\
-`Looking for its first-ever win over an AP top-five team, Vanderbilt has a 23-14 lead over Alabama at halftime.`\
+**Vanderbilt knocks off No. 1 Alabama. Is this the biggest upset in SEC history?**\
+`Vandy got its first-ever win over an AP top-five team behind its star QB, a strong running game and Alabama mistakes.`\
 https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
 
 **Teacher’s Marks**\
