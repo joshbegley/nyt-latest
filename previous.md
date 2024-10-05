@@ -1,3 +1,7 @@
+**Israel issues evacuation order for central Gaza, the first in the enclave in weeks.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/israel-issues-evacuation-order-for-central-gaza-the-first-in-the-enclave-in-weeks
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/10/05/weather/tropical-storm-gulf-florida-hurricane/here-is-the-latest-on-the-storm
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/us/politics/north-carolina-helene-recovery-roads-
 **My Go-To Weeknight Dinners**\
 `Grocery-store ice cream makes the list.`\
 https://nytimes.com/2024/10/05/dining/my-go-to-weeknight-dinners.html
-
-**Trump Did Nothing to Stop the Mob**\
-`“Stop the Steal” is about not trusting voters.`\
-https://nytimes.com/2024/10/05/opinion/jan-6-trump-jack-smith.html
 
