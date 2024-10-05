@@ -1,4 +1,4 @@
-**Wild's special teams elite, Ohgren impresses in final preseason game: Key takeaways vs. Blackhawks**\
+**Wild takeaways: Special teams elite, Liam Ohgren impresses in preseason finale**\
 `Jonas Brodin scored one of the sneakiest goals as Minnesota closed the preseason with a 6-1 victory against the Blackhawks.`\
 https://nytimes.com/athletic/5819732/2024/10/04/wild-blackhawks-takeaways-nhl-preseason/
 
