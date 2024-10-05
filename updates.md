@@ -1,3 +1,7 @@
+**Liam Ohgren and Jesper Wallstedt to be on Wild's opening-night roster: Source**\
+`Management and the coaching staff have decided both rookies earned roster spots to start the season.`\
+https://nytimes.com/athletic/5820726/2024/10/05/wild-roster-liam-ohgren-jesper-wallstedt/
+
 **Penn State started slow but came up big when needed: Takeaways after UCLA**\
 `The No. 7 Nittany Lions beat UCLA 27-11, winning easily but still closer than expected without injured running back Nick Singleton.`\
 https://nytimes.com/athletic/5820634/2024/10/05/penn-state-ucla-football-score-injuries/
