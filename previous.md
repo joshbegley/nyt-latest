@@ -1,3 +1,7 @@
+**Hundreds of Storm-Ravaged Roads, and No Timeline for Fixing Them**\
+`Repairing the roads in the region near the North Carolina-Tennessee border could take months. Some residents worry about the impact on the local economy.`\
+https://nytimes.com/2024/10/05/us/politics/north-carolina-helene-recovery-roads-damage.html
+
 **My Go-To Weeknight Dinners**\
 `Grocery-store ice cream makes the list.`\
 https://nytimes.com/2024/10/05/dining/my-go-to-weeknight-dinners.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/05/us/trump-harris-election
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/05/us/trump-harris-election/heres-the-latest-on-the-presidential-race
-
-**QB collectability power rankings: Whose trading cards are hottest right now**\
-`Our rankings of who's hot right now in the trading card world `\
-https://nytimes.com/athletic/5818826/2024/10/05/quarterback-cards-brady-mahomes-stroud/
 

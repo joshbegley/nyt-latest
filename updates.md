@@ -1,3 +1,7 @@
+**Hundreds of Storm-Ravaged Roads, and No Timeline for Fixing Them**\
+`Repairing the roads in the region near the North Carolina-Tennessee border could take months. Some residents worry about the impact on the local economy.`\
+https://nytimes.com/2024/10/05/us/politics/north-carolina-helene-recovery-roads-damage.html
+
 **Trump Did Nothing to Stop the Mob**\
 `“Stop the Steal” is about not trusting voters.`\
 https://nytimes.com/2024/10/05/opinion/jan-6-trump-jack-smith.html
