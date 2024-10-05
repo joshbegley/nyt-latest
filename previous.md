@@ -1,5 +1,5 @@
-**The widow of the former fire chief killed in the July attack said she planned to attend the rally.**\
-`Helen Comperatore, whose husband, Corey Comperatore, was killed when a gunman tried to assassinate former President Donald J. Trump, said she planned to attend Saturday’s rally.`\
+**Widow of Man Killed in July Attack on Trump Returns for Rally**\
+`Helen Comperatore, whose husband, Corey Comperatore, was killed when a gunman tried to assassinate former President Donald J. Trump, returned to honor her husband’s memory.`\
 https://nytimes.com/2024/10/05/us/politics/comperatore-wife-family-trump-assassination-rally-pa.html
 
 **As 23andMe Struggles, Concerns Surface About Its Genetic Data**\
