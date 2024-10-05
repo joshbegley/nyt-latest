@@ -1,3 +1,7 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/10/05/weather/tropical-storm-milton-hurricane/here-is-the-latest-on-the-storm
+
 **Security Is Tighter for Trump Rally at Site of July Assassination Attempt**\
 `The Secret Service has deployed large forces to protect former President Donald J. Trump as he prepares to hold a rally in Butler, Pa., where a gunman attacked him in July.`\
 https://nytimes.com/2024/10/05/us/politics/trump-butler-security-assassination-attempt.html
