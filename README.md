@@ -1,3 +1,7 @@
+**The Briefing: Man City 3 Fulham 2 - Kovacic, Doku seal win after Fulham's fast breaks**\
+`Manchester City beat Fulham 3-2 after a double from Kovacic and a late strike from Doku - but the visitors made it nervy...`\
+https://nytimes.com/athletic/5818999/2024/10/05/manchester-city-3-fulham-2-result-kovacic/
+
 **The Problem With the Hurricane Category Rating**\
 `After Helene, it may be time to rethink how to communicate the risks posed by storms, especially extreme rain.`\
 https://nytimes.com/2024/10/05/upshot/hurricane-category-ratings-helene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/nyregion/david-paterson-governor-new-york-attack.
 **Russini’s what I’m hearing: Davante Adams trade race, why Cowboys are out, Adams' worries about Jets**\
 `Plus, Chiefs’ receiver plans, Diggs vs. Bills, Browns’ woes beyond Watson, Flacco puts Indy in a spot, Titans’ potential QB quandary.`\
 https://nytimes.com/athletic/5819826/2024/10/05/davante-adams-trade-jets-saints-steelers-chiefs/
-
-**Juventus to 'evaluate' Pogba future after doping ban reduced - Motta**\
-`Juventus head coach Thiago Motta says the club will &#8220;evaluate&#8221; the future of Paul Pogba after the midfielder&#8217;s four-year ban for failing an anti-doping test was reduced to 18 months on Friday.`\
-https://nytimes.com/athletic/5820123/2024/10/05/paul-pogba-juventus-future-thiago-motta/
 

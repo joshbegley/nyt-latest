@@ -1,3 +1,7 @@
+**The Problem With the Hurricane Category Rating**\
+`After Helene, it may be time to rethink how to communicate the risks posed by storms, especially extreme rain.`\
+https://nytimes.com/2024/10/05/upshot/hurricane-category-ratings-helene.html
+
 **Yankees announce ALDS roster vs. Royals: Marcus Stroman out, Duke Ellis in**\
 `NEW YORK — The New York Yankees announced their 26-man roster against the Kansas City Royals in the American League Division Series hours before Game 1 on Saturday.`\
 https://nytimes.com/athletic/5819172/2024/10/05/yankees-alds-roster-stroman-ellis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819826/2024/10/05/davante-adams-trade-jets-saints-
 **Juventus to 'evaluate' Pogba future after doping ban reduced - Motta**\
 `Juventus head coach Thiago Motta says the club will &#8220;evaluate&#8221; the future of Paul Pogba after the midfielder&#8217;s four-year ban for failing an anti-doping test was reduced to 18 months on Friday.`\
 https://nytimes.com/athletic/5820123/2024/10/05/paul-pogba-juventus-future-thiago-motta/
-
-**Election Live Updates: Trump to Return to Site of July Assassination Attempt**\
-`Former President Donald J. Trump is heading back to Butler, Pa., to rally supporters, while Vice President Kamala Harris plans to visit parts of North Carolina that were ravaged by Hurricane Helene.`\
-https://nytimes.com/live/2024/10/05/us/trump-harris-election
 
