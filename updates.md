@@ -1,3 +1,11 @@
+**Juventus to 'evaluate' Pogba future after doping ban reduced - Motta**\
+`Juventus head coach Thiago Motta says the club will &#8220;evaluate&#8221; the future of Paul Pogba after the midfielder&#8217;s four-year ban for failing an anti-doping test was reduced to 18 months on Friday.`\
+https://nytimes.com/athletic/5820123/2024/10/05/paul-pogba-juventus-future-thiago-motta/
+
+**The Briefing: Crystal Palace 0 Liverpool 1: Alisson injury, Slot's rare rotation and elegant Gravenberch**\
+`Liverpool managed a 1-0 win against Crystal Palace on Saturday afternoon to maintain their place at the top of the Premier League`\
+https://nytimes.com/athletic/5818996/2024/10/05/crystal-palace-liverpool-premier-league-analysis/
+
 **Election Live Updates: Trump to Return to Site of July Assassination Attempt**\
 `Former President Donald J. Trump is heading back to Butler, Pa., to rally supporters, while Vice President Kamala Harris plans to visit parts of North Carolina that were ravaged by Hurricane Helene.`\
 https://nytimes.com/live/2024/10/05/us/trump-harris-election
