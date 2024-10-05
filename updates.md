@@ -1,3 +1,11 @@
+**Fear Factors**\
+`Sometimes the scariest movies are the ones that depict the ordinary horrors of life.`\
+https://nytimes.com/2024/10/05/briefing/fear-factors.html
+
+**Before Kevin O'Connell was a Coach of the Year candidate, he was the Jets' 'Coach O'Connell'**\
+`The coach who has the Minnesota Vikings at 4-0 `\
+https://nytimes.com/athletic/5814634/2024/10/05/kevin-oconnell-time-as-jets-backup-qb-started-coaching-journey/
+
 **Wordle Review No. 1,205**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 6, 2024.`\
 https://nytimes.com/2024/10/05/crosswords/wordle-review-1205.html
