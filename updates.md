@@ -1,3 +1,7 @@
+**Missing People, Power Outages, Ruined Roads: Issues Across the Southeast After Helene**\
+`The worst fallout from the hurricane is in western North Carolina, but at least five other states are grappling with their own intractable problems.`\
+https://nytimes.com/2024/10/05/us/hurricane-helene-damage-deaths.html
+
 **Liam Ohgren and Jesper Wallstedt to be on Wild's opening-night roster: Source**\
 `Management and the coaching staff have decided both rookies earned roster spots to start the season.`\
 https://nytimes.com/athletic/5820726/2024/10/05/wild-roster-liam-ohgren-jesper-wallstedt/

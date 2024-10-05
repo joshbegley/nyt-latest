@@ -1,3 +1,7 @@
+**Missing People, Power Outages, Ruined Roads: Issues Across the Southeast After Helene**\
+`The worst fallout from the hurricane is in western North Carolina, but at least five other states are grappling with their own intractable problems.`\
+https://nytimes.com/2024/10/05/us/hurricane-helene-damage-deaths.html
+
 **Liam Ohgren and Jesper Wallstedt to be on Wild's opening-night roster: Source**\
 `Management and the coaching staff have decided both rookies earned roster spots to start the season.`\
 https://nytimes.com/athletic/5820726/2024/10/05/wild-roster-liam-ohgren-jesper-wallstedt/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/business/23andme-dna-bankrupt.html
 **'Pitching Chaos' takes on new meaning as Guardians thump Tigers in Game 1: Takeaways**\
 `The Cleveland Guardians struck first, using a five-run first inning to defeat the Detroit Tigers 7-0 in Game 1 of their ALDS matchup.`\
 https://nytimes.com/athletic/5820598/2024/10/05/guardians-tigers-alds-game1-takeaways/
-
-**Dyche 'frustrated' after Everton not awarded penalty in Newcastle draw**\
-`Sean Dyche believes Everton should have been awarded a penalty during Saturday&#8217;s 0-0 draw with Newcastle United following a second-half coming together between Dominic Calvert-Lewin and Dan Burn.`\
-https://nytimes.com/athletic/5820710/2024/10/05/sean-dyche-everton-newcastle-penalty/
 
