@@ -1,3 +1,7 @@
+**Luis Enrique defends dropping Dembele after not 'meeting obligations'**\
+`Paris Saint-Germain head coach Luis Enrique has said he has no regrets over dropping Ousmane Dembele from his squad after &#8220;not meeting obligations&#8221;.`\
+https://nytimes.com/athletic/5820101/2024/10/05/ousmane-dembele-dropped-psg-luis-enrique/
+
 **What an Escalating Middle East Conflict Could Mean for the Global Economy**\
 `The biggest risk is a sustained increase in oil prices.`\
 https://nytimes.com/2024/10/05/business/dealbook/israel-iran-global-economy.html
