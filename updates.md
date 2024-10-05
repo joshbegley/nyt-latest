@@ -1,3 +1,7 @@
+**NWSL expansion: Where things stand as the league looks to add a 16th team**\
+`Cleveland is the latest city to put forth a bid for NWSL expansion, including stadium plans. `\
+https://nytimes.com/athletic/5819621/2024/10/05/nwsl-expansion-cleveland/
+
 **Subscriber bold predictions for the Blues' 2024-25 season: From wacky to fun to unlikely**\
 `Subscribers sent in their bold predictions for the 2024-25 season and I responded to each with my thoughts.`\
 https://nytimes.com/athletic/5817128/2024/10/05/blues-2024-25-season-bold-predictions/
