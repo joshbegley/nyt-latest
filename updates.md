@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Milton**\
+`See the likely path and wind arrival times for the tropical storm.`\
+https://nytimes.com/interactive/2024/weather/fourteen-map-path-tracker.html
+
 **David Burnham, Times Reporter Who Exposed Police Graft, Dies at 91**\
 `Tipped off by the detective Frank Serpico, he wrote an explosive series on police corruption in New York City, sparking an investigation by the Knapp commission.`\
 https://nytimes.com/2024/10/05/nyregion/david-burnham-dead.html

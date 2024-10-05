@@ -22,8 +22,8 @@ https://nytimes.com/live/2024/10/05/weather/tropical-storm-gulf-florida-hurrican
 `All eyes were on Bronny James in his first preseason game, but it was Max Christie and Dalton Knecht who made the biggest impact.`\
 https://nytimes.com/athletic/5819849/2024/10/05/la-lakers-bronny-james-nba-preseason-takeaways/
 
-**Tracking Tropical Depression Fourteen**\
-`See the likely path and wind arrival times for the Tropical Depression.`\
+**Tracking Tropical Storm Milton**\
+`See the likely path and wind arrival times for the tropical storm.`\
 https://nytimes.com/interactive/2024/weather/fourteen-map-path-tracker.html
 
 **The Briefing: Arsenal 3 Southampton 1 - Resillience, Havertz eclipses Jesus, and how was Ramsdale received?**\
