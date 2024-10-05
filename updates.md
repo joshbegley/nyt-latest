@@ -1,3 +1,11 @@
+**My Go-To Weeknight Dinners**\
+`Grocery-store ice cream makes the list.`\
+https://nytimes.com/2024/10/05/dining/my-go-to-weeknight-dinners.html
+
+**‘Stop the Steal’ Is About Not Trusting Voters**\
+`Trump did nothing to stop the mob.`\
+https://nytimes.com/2024/10/05/opinion/jan-6-trump-jack-smith.html
+
 **The historic stat that illustrates the Broncos' dramatic special teams turnaround**\
 `Denver is the first team since at least 2000 to pin three punts at the 1-yard line in the first four games of a season.`\
 https://nytimes.com/athletic/5819386/2024/10/05/broncos-special-teams-turnaround/
