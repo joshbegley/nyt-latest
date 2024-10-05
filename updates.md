@@ -1,3 +1,11 @@
+**Liam Ohgren and Jesper Wallstedt to be on Wild's opening-night roster: Source**\
+`Management and the coaching staff have decided both rookies earned roster spots to start the season.`\
+https://nytimes.com/athletic/5820726/2024/10/05/wild-roster-liam-ohgren-jesper-wallstedt/
+
+**Macron Calls for Halting Weapons to Israel for Gaza Conflict**\
+`The French leader’s comments drew the condemnation of Israel’s prime minister, Benjamin Netanyahu, and reflected the growing international concern over Israel’s expanding conflicts in the region.`\
+https://nytimes.com/2024/10/05/world/middleeast/macron-calls-for-halting-weapons-to-israel-for-gaza-conflict.html
+
 **Mets' Kodai Senga allows leadoff HR, goes 2 innings in Game 1**\
 `The Mets' ace pitched well after Kyle Schwarber's upper-desk tank job, an indication that he could be an option later in the series.`\
 https://nytimes.com/athletic/5820877/2024/10/05/mets-kodai-senga-leadoff-hr-nlds-game-1/

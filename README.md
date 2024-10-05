@@ -1,7 +1,3 @@
-**Liam Ohgren and Jesper Wallstedt to be on Wild's opening-night roster: Source**\
-`Management and the coaching staff have decided both rookies earned roster spots to start the season.`\
-https://nytimes.com/athletic/5820726/2024/10/05/wild-roster-liam-ohgren-jesper-wallstedt/
-
 **Macron Calls for Halting Weapons to Israel for Gaza Conflict**\
 `The French leader’s comments drew the condemnation of Israel’s prime minister, Benjamin Netanyahu, and reflected the growing international concern over Israel’s expanding conflicts in the region.`\
 https://nytimes.com/2024/10/05/world/middleeast/macron-calls-for-halting-weapons-to-israel-for-gaza-conflict.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5820598/2024/10/05/guardians-tigers-alds-game1-take
 **Dyche 'frustrated' after Everton not awarded penalty in Newcastle draw**\
 `Sean Dyche believes Everton should have been awarded a penalty during Saturday&#8217;s 0-0 draw with Newcastle United following a second-half coming together between Dominic Calvert-Lewin and Dan Burn.`\
 https://nytimes.com/athletic/5820710/2024/10/05/sean-dyche-everton-newcastle-penalty/
+
+**Penn State started slow but came up big when needed: Takeaways after UCLA**\
+`The No. 7 Nittany Lions beat UCLA 27-11, winning easily but still closer than expected without injured running back Nick Singleton.`\
+https://nytimes.com/athletic/5820634/2024/10/05/penn-state-ucla-football-score-injuries/
 
