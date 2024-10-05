@@ -1,3 +1,7 @@
+**‘Nobody Wants This’ Pits Jewish Women Against ‘Shiksas.’ Nobody Wins.**\
+`Except maybe Jewish men.`\
+https://nytimes.com/2024/10/05/opinion/nobody-wants-this-jewish-gender.html
+
 **Luis Enrique defends dropping Dembele after not 'meeting obligations'**\
 `Paris Saint-Germain head coach Luis Enrique has said he has no regrets over dropping Ousmane Dembele from his squad after &#8220;not meeting obligations&#8221;.`\
 https://nytimes.com/athletic/5820101/2024/10/05/ousmane-dembele-dropped-psg-luis-enrique/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/us/north-carolina-cell-outages-helene.html
 **Khan: TCU's post-national title game tailspin has hit a new low**\
 `Any honeymoon period Sonny Dykes enjoyed after his magical first season is completely over as far as TCU fans are concerned.`\
 https://nytimes.com/athletic/5820077/2024/10/05/tcu-houston-sonny-dykes/
-
-**I’m a Doctor. ChatGPT’s Bedside Manner Is Better Than Mine.**\
-`My job is no longer safe.`\
-https://nytimes.com/2024/10/05/opinion/ai-chatgpt-medicine-doctor.html
 
