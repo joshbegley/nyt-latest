@@ -1,3 +1,11 @@
+**What an Escalating Middle East Conflict Could Mean for the Global Economy**\
+`The biggest risk is a sustained increase in oil prices.`\
+https://nytimes.com/2024/10/05/business/dealbook/israel-iran-global-economy.html
+
+**Cooper Flagg's Duke debut just the beginning in season full of highly anticipated steps**\
+`“I liked seeing him in a Duke uniform tonight,” coach Jon Scheyer said. “I know that much.”`\
+https://nytimes.com/athletic/5820093/2024/10/05/cooper-flagg-duke-basketball-countdown-craziness/
+
 **NWSL expansion: Where things stand as the league looks to add a 16th team**\
 `Cleveland is the latest city to put forth a bid for NWSL expansion, including stadium plans. `\
 https://nytimes.com/athletic/5819621/2024/10/05/nwsl-expansion-cleveland/
