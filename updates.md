@@ -1,3 +1,7 @@
+**Five reasons for concern after Sabres' 0-2 start to season in Prague**\
+`After two losses to New Jersey, it's tough to imagine a more uninspiring start to the Sabres' season.`\
+https://nytimes.com/athletic/5820693/2024/10/05/buffalo-sabres-devils-prague/
+
 **Texas A&M makes paper tigers of Missouri: Are both still in contention for the Playoff?**\
 `Texas A&M and Missouri are now trending in opposite directions as they hold on tight for a Playoff berth.`\
 https://nytimes.com/athletic/5820680/2024/10/05/texas-am-missouri-score-analysis-takeaways/
