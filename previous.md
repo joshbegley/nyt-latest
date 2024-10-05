@@ -1,3 +1,7 @@
+**Harris Meets With Arab and Muslim Leaders in Michigan**\
+`The meeting, which took place backstage, came as Vice President Kamala Harris’s campaign ramped up efforts to appeal directly to Arab and Muslim voters in the final weeks before the election.`\
+https://nytimes.com/2024/10/05/us/politics/harris-arab-muslim-meeting-michigan.html
+
 **Israel Steps Up Attacks in Lebanon as Fighting Spreads**\
 `With the region on edge about a possible Israeli retaliatory strike on Iran, U.S. Central Command hit targets in Yemen and Israel ordered evacuations in Gaza.`\
 https://nytimes.com/2024/10/05/world/middleeast/israel-lebanon-hezbollah-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-anal
 **Teacher’s Marks**\
 `John Kugelman makes the grade.`\
 https://nytimes.com/2024/10/05/crosswords/daily-puzzle-2024-10-06.html
-
-**Real Madrid's Carvajal sustains suspected serious knee injury**\
-`Carlo Ancelotti says Real Madrid defender Dani Carvajal has a suspected serious knee injury after being taken off the pitch on a stretcher during Saturday&#8217;s La Liga victory over Villarreal.`\
-https://nytimes.com/athletic/5820934/2024/10/05/dani-carvajal-real-madrid-injury/
 

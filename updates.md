@@ -1,3 +1,7 @@
+**Harris Meets With Arab and Muslim Leaders in Michigan**\
+`The meeting, which took place backstage, came as Vice President Kamala Harris’s campaign ramped up efforts to appeal directly to Arab and Muslim voters in the final weeks before the election.`\
+https://nytimes.com/2024/10/05/us/politics/harris-arab-muslim-meeting-michigan.html
+
 **Georgia looks less inspired and more methodical against Auburn**\
 `Georgia beat Auburn, but the Bulldogs didn't rack up many style points in the rivalry victory.`\
 https://nytimes.com/athletic/5820334/2024/10/05/georgia-auburn-football-score-results-takeaways/
