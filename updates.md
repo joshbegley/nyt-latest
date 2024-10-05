@@ -1,3 +1,7 @@
+**Al Pacino Is Still Going Big**\
+`A conversation with the legendary actor about, well, everything.`\
+https://nytimes.com/2024/10/05/magazine/al-pacino-interview.html
+
 **What we learned from Celtics preseason: Payton Pritchard's still a bucket against Nuggets**\
 `The Celtics played their first game of the preseason beating the Nuggets in Abu Dhabi. `\
 https://nytimes.com/athletic/5819151/2024/10/05/celtics-preseason-nuggests-payton-pritchard/

@@ -1,3 +1,7 @@
+**Al Pacino Is Still Going Big**\
+`A conversation with the legendary actor about, well, everything.`\
+https://nytimes.com/2024/10/05/magazine/al-pacino-interview.html
+
 **What we learned from Celtics preseason: Payton Pritchard's still a bucket against Nuggets**\
 `The Celtics played their first game of the preseason beating the Nuggets in Abu Dhabi. `\
 https://nytimes.com/athletic/5819151/2024/10/05/celtics-preseason-nuggests-payton-pritchard/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/movies/megalopolis-copolla-flops.html
 **Where Trump and Harris Stand on the Economy**\
 `Here’s where Vice President Kamala Harris and former President Donald Trump stand on economic issues like inflation, taxes and more. Maggie Astor, who covers politics for The New York Times, looks at the candidates’ views, proposals and records.`\
 https://nytimes.com/video/us/elections/100000009736301/where-trump-and-harris-stand-on-the-economy.html
-
-**How Gender Became the Election’s Crucial Fault Line**\
-`Harris could be the first female president. But it’s Trump and Vance who are playing the gender card.`\
-https://nytimes.com/2024/10/05/magazine/gender-election-trump-harris.html
 
