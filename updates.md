@@ -1,3 +1,7 @@
+**Why Manchester United's diehard away support was depleted against Porto**\
+`Many fans who pride on following United home and away were left stranded in Manchester airport on Thursday as the official trip was grounded`\
+https://nytimes.com/athletic/5820537/2024/10/05/manchester-united-support-porto-chaos/
+
 **Everton 0 Newcastle 0: Gordon misses penalty in scrappy game - but clean sheet at last**\
 `Newcastle United drew 0-0 with Everton at Goodison Park, taking them to sixth in the Premier League table. Here are the key talking points…`\
 https://nytimes.com/athletic/5819000/2024/10/05/everton-0-newcastle-0-gordon-penalty/
