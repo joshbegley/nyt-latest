@@ -1,3 +1,7 @@
+**Marcus Rashford's 45 minutes vs Porto: What worked and what didn't?**\
+`Analysis of a mixed night for the United forward in the Europa League. Plenty of dangerous attacking endeavour, but some defensive lapses`\
+https://nytimes.com/athletic/5818402/2024/10/05/marcus-rashford-porto-performance-analysis/
+
 **Why the super sub is one of football's most valuable roles (and why nobody wants to be one)**\
 `Whether you call them super subs or 'finishers', players who can make a consistent impact from the bench like Jhon Duran are treasured`\
 https://nytimes.com/athletic/5818017/2024/10/05/football-super-subs-jhon-duran-le-fondre/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/world/europe/poland-nuclear-plant.html
 **Arsenal vs Southampton preview: Storylines, odds, prediction with Gunners heavily favoured**\
 `Arsenal are rolling and are heavily favoured to beat Southampton, who have yet to win in the Premier League this season.`\
 https://nytimes.com/athletic/5818698/2024/10/05/arsenal-southampton-preview-odds-prediction/
-
-**Behind Trump’s Views on Ukraine: Putin’s Gambit and a Political Grudge**\
-`The roots of Donald Trump’s animus toward Ukraine — an issue with profound consequences should he be elected again — can be found in a yearlong series of events spanning 2016 and 2017.`\
-https://nytimes.com/2024/10/05/us/politics/trump-putin-ukraine.html
 
