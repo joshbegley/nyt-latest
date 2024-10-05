@@ -1,3 +1,11 @@
+**Why the super sub is one of football's most valuable roles (and why nobody wants to be one)**\
+`Whether you call them super subs or 'finishers', players who can make a consistent impact from the bench like Jhon Duran are treasured`\
+https://nytimes.com/athletic/5818017/2024/10/05/football-super-subs-jhon-duran-le-fondre/
+
+**Ramsdale faces a fight against relegation but it was a gamble he was willing to take**\
+`Aaron Ramsdale made a big move from Arsenal to Southampton in the summer and returns to the Emirates this weekend`\
+https://nytimes.com/athletic/5815045/2024/10/05/aaron-ramsdale-arsenal-southampton/
+
 **What's going on with Jude Bellingham's shoulder?**\
 `The 21-year-old dislocated his shoulder with Real Madrid last year and concerns remain over potential future recurrences`\
 https://nytimes.com/athletic/5818033/2024/10/05/jude-bellingham-real-madrid-la-liga-shoulder-injury/
