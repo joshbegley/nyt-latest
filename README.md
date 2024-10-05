@@ -2,6 +2,10 @@
 `Subscribers sent in their bold predictions for the 2024-25 season and I responded to each with my thoughts.`\
 https://nytimes.com/athletic/5817128/2024/10/05/blues-2024-25-season-bold-predictions/
 
+**NWSL expansion: Where things stand as the league looks to add a 16th team**\
+`Cleveland is the latest city to put forth a bid for NWSL expansion, including stadium plans. `\
+https://nytimes.com/athletic/5819621/2024/10/05/nwsl-expansion-cleveland/
+
 **What to Know: How Israel Could Retaliate Against Iran**\
 `Iran has a number of sensitive sites, including oil infrastructure, military installations and nuclear facilities.`\
 https://nytimes.com/2024/10/05/world/middleeast/israel-iran-retaliation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818950/2024/10/05/bruins-preseason-depth-chart-zad
 **America Needs a President**\
 `The sidelining of the White House in global crisis spots is a big red flag.`\
 https://nytimes.com/2024/10/05/opinion/president-biden-middle-east-ukraine.html
-
-**Biden Sought Peace but Facilitated War**\
-`Netanyahu repeatedly rolled the American president, leading us all to the precipice of a much larger war.`\
-https://nytimes.com/2024/10/05/opinion/biden-israel-war.html
 
