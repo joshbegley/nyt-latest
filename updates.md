@@ -1,3 +1,15 @@
+**There Are Layers to This**\
+`Natan Last goes toe to toe with us in this challenging puzzle.`\
+https://nytimes.com/2024/10/04/crosswords/daily-puzzle-2024-10-05.html
+
+**Lynx cruise past Sun in Game 3: Takeaways**\
+`Minnesota is one victory away from advancing to its first WNBA Finals since 2017. Game 4 is Sunday.`\
+https://nytimes.com/athletic/5819716/2024/10/04/lynx-sun-result-takeaways/
+
+**The Mets issued an early Game 1 surprise. The Phillies are crafting their plan to respond**\
+`Since Kodai Senga's current capabilities are a mystery, the Phillies spent Friday discussing what to expect from him in the series opener.`\
+https://nytimes.com/athletic/5819704/2024/10/04/phillies-hitters-mets-kodai-senga-nlds/
+
 **A Deluge of Rain Poured Out of the Heavens. But There’s Still No Drinking Water.**\
 `City officials have refused to provide estimates of when the devastated water system in Asheville, N.C., will be back in operation.`\
 https://nytimes.com/2024/10/04/us/hurricane-helene-asheville-water.html
