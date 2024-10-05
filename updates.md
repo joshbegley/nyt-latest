@@ -1,3 +1,7 @@
+**Braves' Alex Anthopoulos on Max Fried, Ronald Acuña Jr. and more**\
+`Anthopoulos fielded questions about a wide range of topics, including the Braves' offseason priorities. `\
+https://nytimes.com/athletic/5819568/2024/10/04/braves-mlb-max-free-offseason-needs/
+
 **Aides Say Trump Resisted Sending Federal Funds After California Wildfires**\
 `He changed his mind after being shown data that his supporters in the state had been affected, the former officials said. One called his approach “red states vs. blue states.”`\
 https://nytimes.com/2024/10/04/us/politics/trump-wildfire-aid-california.html

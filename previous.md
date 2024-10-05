@@ -1,3 +1,7 @@
+**Braves' Alex Anthopoulos on Max Fried, Ronald Acuña Jr. and more**\
+`Anthopoulos fielded questions about a wide range of topics, including the Braves' offseason priorities. `\
+https://nytimes.com/athletic/5819568/2024/10/04/braves-mlb-max-free-offseason-needs/
+
 **Aides Say Trump Resisted Sending Federal Funds After California Wildfires**\
 `He changed his mind after being shown data that his supporters in the state had been affected, the former officials said. One called his approach “red states vs. blue states.”`\
 https://nytimes.com/2024/10/04/us/politics/trump-wildfire-aid-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/world/middleeast/israel-hezbollah-lebanon.html
 **Packers' Keisean Nixon's three-peat bid in jeopardy since nobody will kick to him**\
 `The Packers' back-to-back first-team All-Pro kick returner has been back for 17 kickoffs and 16 have gone for touchbacks.`\
 https://nytimes.com/athletic/5819357/2024/10/04/packers-keisean-nixon-kickoff-return/
-
-**Trump’s False Claims About the Federal Response to Hurricane Helene**\
-`The former president falsely accused the Biden administration of spending disaster funding on migrants, neglecting areas that had voted for Republicans and ignoring a call from a Republican governor.`\
-https://nytimes.com/2024/10/04/us/politics/trump-helene-fema-fact-check.html
 
