@@ -1,3 +1,11 @@
+**What's going on with Jude Bellingham's shoulder?**\
+`The 21-year-old dislocated his shoulder with Real Madrid last year and concerns remain over potential future recurrences`\
+https://nytimes.com/athletic/5818033/2024/10/05/jude-bellingham-real-madrid-la-liga-shoulder-injury/
+
+**Should we be concerned about the Blackhawks' 'embarrassing' preseason?**\
+`The Blackhawks' 0-5 mark with seven goals in the preseason is disconcerting no matter the time of year, no matter the lineup.`\
+https://nytimes.com/athletic/5819872/2024/10/05/blackhawks-wild-nhl-preseason/
+
 **Battle of the high lines: How Brighton and Tottenham's defences compare**\
 `What are the strengths and weaknesses of Fabian Hurzeler and Ange Postecoglou's defensive setups?`\
 https://nytimes.com/athletic/5812688/2024/10/05/brighton-tottenham-high-line-tactical-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/pageoneplus/quote-of-the-day-assistance-slow-to-r
 **Aces dominate Liberty in second half to force Game 4**\
 `Jackie Young led the way with 24 points and four assists, as five Aces finished the game in double digits.`\
 https://nytimes.com/athletic/5819657/2024/10/04/liberty-aces-game-3-result-takeaways/
-
-**Wild takeaways: Special teams elite, Liam Ohgren impresses in preseason finale**\
-`Jonas Brodin scored one of the sneakiest goals as Minnesota closed the preseason with a 6-1 victory against the Blackhawks.`\
-https://nytimes.com/athletic/5819732/2024/10/04/wild-blackhawks-takeaways-nhl-preseason/
-
-**Biden Urges Congress to Replenish Disaster Relief Funds Quickly**\
-`The president said a Small Business Administration program needed to help business owners recover from Hurricane Helene was set to run out of money in weeks, before Congress reconvenes.`\
-https://nytimes.com/2024/10/04/us/politics/biden-congress-disaster-relief-helene.html
 
