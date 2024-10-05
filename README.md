@@ -1,3 +1,7 @@
+**Israel Steps Up Attacks in Lebanon as Fighting Spreads**\
+`With the region on edge about a possible Israeli retaliatory strike on Iran, U.S. Central Command hit targets in Yemen and Israel ordered evacuations in Gaza.`\
+https://nytimes.com/2024/10/05/world/middleeast/israel-lebanon-hezbollah-iran.html
+
 **Iranian news media asks: Where is top Quds Forces commander General Esmail Ghaani?**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/iranian-news-media-asks-where-is-top-quds-forces-commander-general-esmail-ghaani
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/crosswords/daily-puzzle-2024-10-06.html
 **Real Madrid's Carvajal sustains suspected serious knee injury**\
 `Carlo Ancelotti says Real Madrid defender Dani Carvajal has a suspected serious knee injury after being taken off the pitch on a stretcher during Saturday&#8217;s La Liga victory over Villarreal.`\
 https://nytimes.com/athletic/5820934/2024/10/05/dani-carvajal-real-madrid-injury/
-
-**Missing People, Power Outages, Ruined Roads: Issues Across the Southeast After Helene**\
-`The worst fallout from the hurricane is in western North Carolina, but at least five other states are grappling with their own intractable problems.`\
-https://nytimes.com/2024/10/05/us/hurricane-helene-damage-deaths.html
 
