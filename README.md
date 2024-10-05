@@ -1,3 +1,11 @@
+**Why the super sub is one of football's most valuable roles (and why nobody wants to be one)**\
+`Whether you call them super subs or 'finishers', players who can make a consistent impact from the bench like Jhon Duran are treasured`\
+https://nytimes.com/athletic/5818017/2024/10/05/football-super-subs-jhon-duran-le-fondre/
+
+**Ramsdale faces a fight against relegation but it was a gamble he was willing to take**\
+`Aaron Ramsdale made a big move from Arsenal to Southampton in the summer and returns to the Emirates this weekend`\
+https://nytimes.com/athletic/5815045/2024/10/05/aaron-ramsdale-arsenal-southampton/
+
 **What's going on with Jude Bellingham's shoulder?**\
 `The 21-year-old dislocated his shoulder with Real Madrid last year and concerns remain over potential future recurrences`\
 https://nytimes.com/athletic/5818033/2024/10/05/jude-bellingham-real-madrid-la-liga-shoulder-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5818698/2024/10/05/arsenal-southampton-preview-odds
 **Behind Trump’s Views on Ukraine: Putin’s Gambit and a Political Grudge**\
 `The roots of Donald Trump’s animus toward Ukraine — an issue with profound consequences should he be elected again — can be found in a yearlong series of events spanning 2016 and 2017.`\
 https://nytimes.com/2024/10/05/us/politics/trump-putin-ukraine.html
-
-**Quote of the Day: Assistance Slow to Reach Hard-Hit Latino Communities**\
-`Quotation of the Day for Saturday, October 5, 2024`\
-https://nytimes.com/2024/10/04/pageoneplus/quote-of-the-day-assistance-slow-to-reach-hard-hit-latino-communities.html
-
-**Aces dominate Liberty in second half to force Game 4**\
-`Jackie Young led the way with 24 points and four assists, as five Aces finished the game in double digits.`\
-https://nytimes.com/athletic/5819657/2024/10/04/liberty-aces-game-3-result-takeaways/
 
