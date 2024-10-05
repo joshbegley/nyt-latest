@@ -1,3 +1,7 @@
+**'Pitching Chaos' takes on new meaning as Guardians thump Tigers in Game 1: Takeaways**\
+`The Cleveland Guardians struck first, using a five-run first inning to defeat the Detroit Tigers 7-0 in Game 1 of their ALDS matchup.`\
+https://nytimes.com/athletic/5820598/2024/10/05/pitching-chaos-takes-on-new-meaning-as-guardians-thump-tigers-in-game-1-takeaways/
+
 **Dyche 'frustrated' after Everton not awarded penalty in Newcastle draw**\
 `Sean Dyche believes Everton should have been awarded a penalty during Saturday&#8217;s 0-0 draw with Newcastle United following a second-half coming together between Dominic Calvert-Lewin and Dan Burn.`\
 https://nytimes.com/athletic/5820710/2024/10/05/sean-dyche-everton-newcastle-penalty/
