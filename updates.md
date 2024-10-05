@@ -1,3 +1,7 @@
+**NC State QB Grayson McCall carted off field on stretcher**\
+`McCall showed movement in his arms, hugging his parents and signaling to the crowd with his hand, before being taken off the field. `\
+https://nytimes.com/athletic/5820495/2024/10/05/nc-state-grayson-mccall-injury-wake-forest/
+
 **Tracking Tropical Storm Milton**\
 `See the likely path and wind arrival times for the tropical storm.`\
 https://nytimes.com/interactive/2024/weather/fourteen-map-path-tracker.html
