@@ -1,3 +1,7 @@
+**Michigan Father Dies in Israeli Airstrike in Lebanon, Family Says**\
+`Kamel Ahmad Jawad, a U.S. citizen, was remembered by friends and relatives as someone who chose to stay behind to help others who couldn’t flee.`\
+https://nytimes.com/2024/10/05/world/middleeast/michigan-father-lebanon-airstrike.html
+
 **Live Updates: Israel’s Attacks Against Hezbollah Expand**\
 `A strike was reported in the Lebanese city of Tripoli, near the country’s northern edge.`\
 https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819908/2024/10/05/timberwolves-preseason-opener-jo
 **Marcus Rashford's 45 minutes vs Porto: What worked and what didn't?**\
 `Analysis of a mixed night for the United forward in the Europa League. Plenty of dangerous attacking endeavour, but some defensive lapses`\
 https://nytimes.com/athletic/5818402/2024/10/05/marcus-rashford-porto-performance-analysis/
-
-**Why the super sub is one of football's most valuable roles (and why nobody wants to be one)**\
-`Whether you call them super subs or 'finishers', players who can make a consistent impact from the bench like Jhon Duran are treasured`\
-https://nytimes.com/athletic/5818017/2024/10/05/football-super-subs-jhon-duran-le-fondre/
 
