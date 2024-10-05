@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/iranian-news-media-asks-where-is-top-quds-forces-commander-general-esmail-ghaani
 
 **Mets wait out Wheeler, rock Phillies with 5-run 8th inning to win Game 1: Takeaways**\
-`After Wheeler held them to no runs and one hit in seven innings, the Mets unloaded against the Phillies' vaunted bullpen to win Game 1, 6-1.`\
+`After Wheeler held them to no runs and one hit in seven innings, the Mets unloaded against the Phillies' vaunted bullpen to win Game 1, 6-2.`\
 https://nytimes.com/athletic/5820965/2024/10/05/mets-phillies-score-takeaways-zack-wheeler/
 
 **Georgia looks less inspired and more methodical against Auburn**\
