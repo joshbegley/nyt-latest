@@ -1,3 +1,7 @@
+**Dyche 'frustrated' after Everton not awarded penalty in Newcastle draw**\
+`Sean Dyche believes Everton should have been awarded a penalty during Saturday&#8217;s 0-0 draw with Newcastle United following a second-half coming together between Dominic Calvert-Lewin and Dan Burn.`\
+https://nytimes.com/athletic/5820710/2024/10/05/sean-dyche-everton-newcastle-penalty/
+
 **Penn State started slow but came up big when needed: Takeaways after UCLA**\
 `The No. 7 Nittany Lions beat UCLA 27-11, winning easily but still closer than expected without injured running back Nick Singleton.`\
 https://nytimes.com/athletic/5820634/2024/10/05/penn-state-ucla-football-score-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819000/2024/10/05/everton-0-newcastle-0-gordon-pen
 **James Magee, Creator of a Mysterious Desert Monument, Dies at 79**\
 `For 40 years, he built a group of stone and steel buildings in the West Texas desert to house his own monumental work. Only a few have been lucky enough to see it.`\
 https://nytimes.com/2024/10/05/arts/james-magee-dead.html
-
-**Man United sign youth striker Obi-Martin after Arsenal exit**\
-`Manchester United have confirmed the signing of Denmark youth international striker Chido Obi-Martin following the expiration of his schoolboy terms at Arsenal.`\
-https://nytimes.com/athletic/5661203/2024/10/05/chido-obi-martin-manchester-united-transfer-arsenal/
 
