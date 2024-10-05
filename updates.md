@@ -1,3 +1,7 @@
+**QB collectability power rankings: Whose trading cards are hottest right now**\
+`Our rankings of who's hot right now in the trading card world `\
+https://nytimes.com/athletic/5818826/2024/10/05/quarterback-cards-brady-mahomes-stroud/
+
 **Russini’s what I’m hearing: Davante Adams trade race, why Cowboys are out, Adams' worries about Jets**\
 `Plus, Chiefs’ receiver plans, Diggs vs. Bills, Browns’ woes beyond Watson, Flacco puts Indy in a spot, Titans’ potential QB quandary.`\
 https://nytimes.com/athletic/5819826/2024/10/05/davante-adams-trade-jets-saints-steelers-chiefs/

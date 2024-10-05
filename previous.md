@@ -14,7 +14,7 @@ https://nytimes.com/live/2024/10/05/us/trump-harris-election
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/05/us/trump-harris-election/heres-the-latest-on-the-presidential-race
 
-**QB collectability power rankings: Who's trading cards are hottest right now**\
+**QB collectability power rankings: Whose trading cards are hottest right now**\
 `Our rankings of who's hot right now in the trading card world `\
 https://nytimes.com/athletic/5818826/2024/10/05/quarterback-cards-brady-mahomes-stroud/
 
