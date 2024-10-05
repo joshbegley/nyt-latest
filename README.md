@@ -1,3 +1,7 @@
+**There Are Layers to This**\
+`Natan Last goes toe to toe with us in this challenging puzzle.`\
+https://nytimes.com/2024/10/04/crosswords/daily-puzzle-2024-10-05.html
+
 **Lynx cruise past Sun in Game 3: Takeaways**\
 `Minnesota is one victory away from advancing to its first WNBA Finals since 2017. Game 4 is Sunday.`\
 https://nytimes.com/athletic/5819716/2024/10/04/lynx-sun-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819599/2024/10/04/cheryl-reeve-lynx-sun-game-1/
 **2 Men Sentenced to Prison for Attacking Officers at Jan. 6 Riot**\
 `One of the men, from New Jersey, referred to lawmakers as “traitors” and encouraged other rioters to drag them out of the building by their hair, prosecutors said.`\
 https://nytimes.com/2024/10/04/nyregion/january-6-riot-prison-sentences.html
-
-**Instructor at Troubled Skydiving Spot Gets 2 Years After Faking Credentials**\
-`The facility near Lodi, Calif., where he trained people in tandem jumping, has come under scrutiny amid more than two dozen deaths since 1985.`\
-https://nytimes.com/2024/10/04/us/skydiver-fraud-sentence-california.html
 
