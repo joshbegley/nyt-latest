@@ -1,3 +1,7 @@
+**Penn State started slow but came up big when needed: Takeaways after UCLA**\
+`The No. 7 Nittany Lions beat UCLA 27-11, winning easily but still closer than expected without injured running back Nick Singleton.`\
+https://nytimes.com/athletic/5820634/2024/10/05/penn-state-ucla-football-score-injuries/
+
 **Five reasons for concern after Sabres' 0-2 start to season in Prague**\
 `After two losses to New Jersey, it's tough to imagine a more uninspiring start to the Sabres' season.`\
 https://nytimes.com/athletic/5820693/2024/10/05/buffalo-sabres-devils-prague/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/arts/james-magee-dead.html
 **Man United sign youth striker Obi-Martin after Arsenal exit**\
 `Manchester United have confirmed the signing of Denmark youth international striker Chido Obi-Martin following the expiration of his schoolboy terms at Arsenal.`\
 https://nytimes.com/athletic/5661203/2024/10/05/chido-obi-martin-manchester-united-transfer-arsenal/
-
-**Vikings fans in London are just like you, relishing 2024 start and hopeful it continues**\
-`With the Vikings set to face the Jets at Tottenham Hotspur Stadium on Sunday, we spoke with a few friends about how their fandom began. `\
-https://nytimes.com/athletic/5820417/2024/10/05/vikings-fans-london-tottenham-hotspur-stadium/
 
