@@ -1,4 +1,8 @@
 **Everton 0 Newcastle 0: Gordon misses penalty in scrappy game - but clean sheet at last**\
+`Newcastle United drew 0-0 with Everton at Goodison Park, taking them to sixth in the Premier League table. Here are the key talking points…`\
+https://nytimes.com/athletic/5819000/2024/10/05/everton-0-newcastle-0-gordon-penalty/
+
+**Everton 0 Newcastle 0: Gordon misses penalty in scrappy game - but clean sheet at last**\
 `Newcastle United drew 0-0 with Everton at Goodison Park, taking them to sixth in the Premier League table. Here are the key talking points.`\
 https://nytimes.com/athletic/5819000/2024/10/05/everton-0-newcastle-0-gordon-penalty/
 
