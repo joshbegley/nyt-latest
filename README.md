@@ -1,3 +1,7 @@
+**Josh Minott shines in Timberwolves' preseason opener, validating his approach to the game**\
+`Minott scored 22 points and grabbed eight rebounds in Minnesota's 124-107 victory over the Los Angeles Lakers on Friday.`\
+https://nytimes.com/athletic/5819908/2024/10/05/timberwolves-preseason-opener-josh-minott/
+
 **Marcus Rashford's 45 minutes vs Porto: What worked and what didn't?**\
 `Analysis of a mixed night for the United forward in the Europa League. Plenty of dangerous attacking endeavour, but some defensive lapses`\
 https://nytimes.com/athletic/5818402/2024/10/05/marcus-rashford-porto-performance-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5816752/2024/10/05/iowa-ohio-state-picks-odds-how-t
 **Villages Spared a Soviet Nuclear Plant Are Split Over a U.S. One**\
 `A plan to place American-made reactors on a picturesque coastline has broad support in Poland — and in Washington — but the geopolitical calculations have run into local opposition.`\
 https://nytimes.com/2024/10/05/world/europe/poland-nuclear-plant.html
-
-**Arsenal vs Southampton preview: Storylines, odds, prediction with Gunners heavily favoured**\
-`Arsenal are rolling and are heavily favoured to beat Southampton, who have yet to win in the Premier League this season.`\
-https://nytimes.com/athletic/5818698/2024/10/05/arsenal-southampton-preview-odds-prediction/
 
