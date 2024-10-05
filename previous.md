@@ -1,7 +1,3 @@
-**Before Kevin O'Connell was a Coach of the Year candidate, he was the Jets' 'Coach O'Connell'**\
-`The coach who has the Minnesota Vikings at 4-0 `\
-https://nytimes.com/athletic/5814634/2024/10/05/kevin-oconnell-time-as-jets-backup-qb-started-coaching-journey/
-
 **What to know about college football's new helmet communication rules**\
 `You may have noticed the uptick of college football quarterbacks cupping their helmets to squeeze out the sounds of the loudest stadiums.`\
 https://nytimes.com/athletic/5767195/2024/10/05/college-football-helmet-communications-explained/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/10/05/world/canada/ever-shrinking-condos-are-the-choice
 **The Connections Companion No. 483**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 6, 2024`\
 https://nytimes.com/2024/10/05/crosswords/connections-companion-483.html
+
+**Wordle Review No. 1,205**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 6, 2024.`\
+https://nytimes.com/2024/10/05/crosswords/wordle-review-1205.html
 
