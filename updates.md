@@ -1,3 +1,15 @@
+**The widow of the former fire chief killed in the July attack said she planned to attend the rally.**\
+`Helen Comperatore, whose husband, Corey Comperatore, was killed when a gunman tried to assassinate former President Donald J. Trump, said she planned to attend Saturday’s rally.`\
+https://nytimes.com/2024/10/05/us/politics/comperatore-wife-family-trump-assassination-rally-pa.html
+
+**As 23andMe Struggles, Concerns Surface About Its Genetic Data**\
+`A plummet in the company’s valuation and a recent board resignation have raised questions about the future of genetic data collected from millions of customers.`\
+https://nytimes.com/2024/10/05/business/23andme-dna-bankrupt.html
+
+**'Pitching Chaos' takes on new meaning as Guardians thump Tigers in Game 1: Takeaways**\
+`The Cleveland Guardians struck first, using a five-run first inning to defeat the Detroit Tigers 7-0 in Game 1 of their ALDS matchup.`\
+https://nytimes.com/athletic/5820598/2024/10/05/guardians-tigers-alds-game1-takeaways/
+
 **'Pitching Chaos' takes on new meaning as Guardians thump Tigers in Game 1: Takeaways**\
 `The Cleveland Guardians struck first, using a five-run first inning to defeat the Detroit Tigers 7-0 in Game 1 of their ALDS matchup.`\
 https://nytimes.com/athletic/5820598/2024/10/05/pitching-chaos-takes-on-new-meaning-as-guardians-thump-tigers-in-game-1-takeaways/

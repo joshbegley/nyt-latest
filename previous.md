@@ -1,6 +1,14 @@
+**The widow of the former fire chief killed in the July attack said she planned to attend the rally.**\
+`Helen Comperatore, whose husband, Corey Comperatore, was killed when a gunman tried to assassinate former President Donald J. Trump, said she planned to attend Saturday’s rally.`\
+https://nytimes.com/2024/10/05/us/politics/comperatore-wife-family-trump-assassination-rally-pa.html
+
+**As 23andMe Struggles, Concerns Surface About Its Genetic Data**\
+`A plummet in the company’s valuation and a recent board resignation have raised questions about the future of genetic data collected from millions of customers.`\
+https://nytimes.com/2024/10/05/business/23andme-dna-bankrupt.html
+
 **'Pitching Chaos' takes on new meaning as Guardians thump Tigers in Game 1: Takeaways**\
 `The Cleveland Guardians struck first, using a five-run first inning to defeat the Detroit Tigers 7-0 in Game 1 of their ALDS matchup.`\
-https://nytimes.com/athletic/5820598/2024/10/05/pitching-chaos-takes-on-new-meaning-as-guardians-thump-tigers-in-game-1-takeaways/
+https://nytimes.com/athletic/5820598/2024/10/05/guardians-tigers-alds-game1-takeaways/
 
 **Dyche 'frustrated' after Everton not awarded penalty in Newcastle draw**\
 `Sean Dyche believes Everton should have been awarded a penalty during Saturday&#8217;s 0-0 draw with Newcastle United following a second-half coming together between Dominic Calvert-Lewin and Dan Burn.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5820327/2024/10/05/wisconsin-football-score-purdue-
 **From Melania Trump: Modeling, Motherhood and a Brazen Whitewash of a Presidency**\
 `Slim and full of obfuscations, her memoir touches on business ventures and raising her son, but barely grapples with the mysteries of her marriage.`\
 https://nytimes.com/2024/10/05/books/review/melania-trump-memoir.html
-
-**Why Manchester United's diehard away support was depleted against Porto**\
-`Many fans who pride on following United home and away were left stranded in Manchester airport on Thursday as the official trip was grounded`\
-https://nytimes.com/athletic/5820537/2024/10/05/manchester-united-support-porto-chaos/
-
-**Everton 0 Newcastle 0: Gordon misses penalty in scrappy game - but clean sheet at last**\
-`Newcastle United drew 0-0 with Everton at Goodison Park, taking them to sixth in the Premier League table. Here are the key talking points…`\
-https://nytimes.com/athletic/5819000/2024/10/05/everton-0-newcastle-0-gordon-penalty/
 
