@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 3 Southampton 1: Resillience, Havertz eclipses Jesus, and how was Ramsdale received?**\
+`Mikel Arteta's side came from behind to beat Southampton and maintain momentum in pursuit of Liverpool at the top of the Premier League`\
+https://nytimes.com/athletic/5818998/2024/10/05/arsenal-southampton-saka-partey-ramsdale-briefing/
+
 **The Briefing: Man City 3 Fulham 2 - Kovacic, Doku seal win after Fulham's fast breaks**\
 `Manchester City beat Fulham 3-2 after a double from Kovacic and a late strike from Doku - but the visitors made it nervy...`\
 https://nytimes.com/athletic/5818999/2024/10/05/manchester-city-3-fulham-2-result-kovacic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820215/2024/10/05/alisson-injury-update-liverpool-
 **Former Gov. David Paterson of New York Assaulted in Manhattan**\
 `Mr. Paterson and his stepson suffered minor injuries in a street attack on Friday. The former governor was not believed to have been targeted in the assault, the police said.`\
 https://nytimes.com/2024/10/05/nyregion/david-paterson-governor-new-york-attack.html
-
-**Russini’s what I’m hearing: Davante Adams trade race, why Cowboys are out, Adams' worries about Jets**\
-`Plus, Chiefs’ receiver plans, Diggs vs. Bills, Browns’ woes beyond Watson, Flacco puts Indy in a spot, Titans’ potential QB quandary.`\
-https://nytimes.com/athletic/5819826/2024/10/05/davante-adams-trade-jets-saints-steelers-chiefs/
 
