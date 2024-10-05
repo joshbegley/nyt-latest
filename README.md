@@ -1,3 +1,7 @@
+**Macron Calls for Halting Weapons to Israel for Gaza Conflict**\
+`The French leader’s comments drew the condemnation of Israel’s prime minister, Benjamin Netanyahu, and reflected the growing international concern over Israel’s expanding conflicts in the region.`\
+https://nytimes.com/2024/10/05/world/middleeast/macron-calls-for-halting-weapons-to-israel-for-gaza-conflict.html
+
 **Mets' Kodai Senga allows leadoff HR, goes 2 innings in Game 1**\
 `The Mets' ace pitched well after Kyle Schwarber's upper-desk tank job, an indication that he could be an option later in the series.`\
 https://nytimes.com/athletic/5820877/2024/10/05/mets-kodai-senga-leadoff-hr-nlds-game-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820710/2024/10/05/sean-dyche-everton-newcastle-pen
 **Penn State started slow but came up big when needed: Takeaways after UCLA**\
 `The No. 7 Nittany Lions beat UCLA 27-11, winning easily but still closer than expected without injured running back Nick Singleton.`\
 https://nytimes.com/athletic/5820634/2024/10/05/penn-state-ucla-football-score-injuries/
-
-**Five reasons for concern after Sabres' 0-2 start to season in Prague**\
-`After two losses to New Jersey, it's tough to imagine a more uninspiring start to the Sabres' season.`\
-https://nytimes.com/athletic/5820693/2024/10/05/buffalo-sabres-devils-prague/
 
