@@ -1,3 +1,7 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/10/05/weather/tropical-storm-gulf-florida-hurricane/here-is-the-latest-on-the-storm
+
 **Lakers preseason opener takeaways: Bronny James' debut, a valuable Max Christie and more**\
 `All eyes were on Bronny James in his first preseason game, but it was Max Christie and Dalton Knecht who made the biggest impact.`\
 https://nytimes.com/athletic/5819849/2024/10/05/la-lakers-bronny-james-nba-preseason-takeaways/
@@ -10,7 +14,7 @@ https://nytimes.com/interactive/2024/weather/fourteen-map-path-tracker.html
 `Mikel Arteta's side came from behind to beat Southampton and maintain momentum in pursuit of Liverpool at the top of the Premier League`\
 https://nytimes.com/athletic/5818998/2024/10/05/arsenal-southampton-saka-partey-ramsdale-briefing/
 
-**The Briefing: Man City 3 Fulham 2 - Kovacic, Doku seal win after Traore's dangerous breaks**\
+**The Briefing: Man City 3 Fulham 2 - Kovacic and Doku seal win after Traore's dangerous breaks**\
 `Manchester City beat Fulham 3-2 after a double from Kovacic and a late strike from Doku - but the visitors made it nervy…`\
 https://nytimes.com/athletic/5818999/2024/10/05/manchester-city-3-fulham-2-result-kovacic/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/dining/my-go-to-weeknight-dinners.html
 **Trump Did Nothing to Stop the Mob**\
 `“Stop the Steal” is about not trusting voters.`\
 https://nytimes.com/2024/10/05/opinion/jan-6-trump-jack-smith.html
-
-**The historic stat that illustrates the Broncos' dramatic special teams turnaround**\
-`Denver is the first team since at least 2000 to pin three punts at the 1-yard line in the first four games of a season.`\
-https://nytimes.com/athletic/5819386/2024/10/05/broncos-special-teams-turnaround/
 

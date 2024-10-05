@@ -1,3 +1,11 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/10/05/weather/tropical-storm-gulf-florida-hurricane/here-is-the-latest-on-the-storm
+
+**The Briefing: Man City 3 Fulham 2 - Kovacic and Doku seal win after Traore's dangerous breaks**\
+`Manchester City beat Fulham 3-2 after a double from Kovacic and a late strike from Doku - but the visitors made it nervy…`\
+https://nytimes.com/athletic/5818999/2024/10/05/manchester-city-3-fulham-2-result-kovacic/
+
 **Lakers preseason opener takeaways: Bronny James' debut, a valuable Max Christie and more**\
 `All eyes were on Bronny James in his first preseason game, but it was Max Christie and Dalton Knecht who made the biggest impact.`\
 https://nytimes.com/athletic/5819849/2024/10/05/la-lakers-bronny-james-nba-preseason-takeaways/

@@ -1,15 +1,3 @@
-**Here is the latest on the storm.**\
-`By Judson Jones`\
-https://nytimes.com/live/2024/10/05/weather/tropical-storm-gulf-florida-hurricane/here-is-the-latest-on-the-storm
-
-**Lakers preseason opener takeaways: Bronny James' debut, a valuable Max Christie and more**\
-`All eyes were on Bronny James in his first preseason game, but it was Max Christie and Dalton Knecht who made the biggest impact.`\
-https://nytimes.com/athletic/5819849/2024/10/05/la-lakers-bronny-james-nba-preseason-takeaways/
-
-**Tracking Tropical Depression Fourteen**\
-`See the likely path and wind arrival times for the Tropical Depression.`\
-https://nytimes.com/interactive/2024/weather/fourteen-map-path-tracker.html
-
 **The Briefing: Arsenal 3 Southampton 1: Resillience, Havertz eclipses Jesus, and how was Ramsdale received?**\
 `Mikel Arteta's side came from behind to beat Southampton and maintain momentum in pursuit of Liverpool at the top of the Premier League`\
 https://nytimes.com/athletic/5818998/2024/10/05/arsenal-southampton-saka-partey-ramsdale-briefing/
@@ -37,4 +25,16 @@ https://nytimes.com/2024/10/05/dining/my-go-to-weeknight-dinners.html
 **Trump Did Nothing to Stop the Mob**\
 `“Stop the Steal” is about not trusting voters.`\
 https://nytimes.com/2024/10/05/opinion/jan-6-trump-jack-smith.html
+
+**The historic stat that illustrates the Broncos' dramatic special teams turnaround**\
+`Denver is the first team since at least 2000 to pin three punts at the 1-yard line in the first four games of a season.`\
+https://nytimes.com/athletic/5819386/2024/10/05/broncos-special-teams-turnaround/
+
+**Alisson set for 'weeks' out with suspected hamstring injury - Slot**\
+`Liverpool head coach Arne Slot says Alisson will likely be sidelined for a number of weeks with a suspected hamstring injury sustained in Saturday&#8217;s 1-0 victory at Crystal Palace.`\
+https://nytimes.com/athletic/5820215/2024/10/05/alisson-injury-update-liverpool-arne-slot/
+
+**Former Gov. David Paterson of New York Assaulted in Manhattan**\
+`Mr. Paterson and his stepson suffered minor injuries in a street attack on Friday. The former governor was not believed to have been targeted in the assault, the police said.`\
+https://nytimes.com/2024/10/05/nyregion/david-paterson-governor-new-york-attack.html
 
