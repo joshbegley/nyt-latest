@@ -1,3 +1,7 @@
+**Teacher’s Marks**\
+`John Kugelman makes the grade.`\
+https://nytimes.com/2024/10/05/crosswords/daily-puzzle-2024-10-06.html
+
 **Real Madrid's Carvajal sustains suspected serious knee injury**\
 `Carlo Ancelotti says Real Madrid defender Dani Carvajal has a suspected serious knee injury after being taken off the pitch on a stretcher during Saturday&#8217;s La Liga victory over Villarreal.`\
 https://nytimes.com/athletic/5820934/2024/10/05/dani-carvajal-real-madrid-injury/

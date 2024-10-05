@@ -1,3 +1,7 @@
+**Teacher’s Marks**\
+`John Kugelman makes the grade.`\
+https://nytimes.com/2024/10/05/crosswords/daily-puzzle-2024-10-06.html
+
 **Real Madrid's Carvajal sustains suspected serious knee injury**\
 `Carlo Ancelotti says Real Madrid defender Dani Carvajal has a suspected serious knee injury after being taken off the pitch on a stretcher during Saturday&#8217;s La Liga victory over Villarreal.`\
 https://nytimes.com/athletic/5820934/2024/10/05/dani-carvajal-real-madrid-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820846/2024/10/05/dodgers-clayton-kershaw-injury-2
 **Widow of Man Killed in July Attack on Trump Returns for Rally**\
 `Helen Comperatore, whose husband, Corey Comperatore, was killed when a gunman tried to assassinate former President Donald J. Trump, returned to honor her husband’s memory.`\
 https://nytimes.com/2024/10/05/us/politics/comperatore-wife-family-trump-assassination-rally-pa.html
-
-**As 23andMe Struggles, Concerns Surface About Its Genetic Data**\
-`A plummet in the company’s valuation and a recent board resignation have raised questions about the future of genetic data collected from millions of customers.`\
-https://nytimes.com/2024/10/05/business/23andme-dna-bankrupt.html
 
