@@ -1,3 +1,7 @@
+**Luis Enrique defends dropping Dembele after not 'meeting obligations'**\
+`Paris Saint-Germain head coach Luis Enrique has said he has no regrets over dropping Ousmane Dembele from his squad after &#8220;not meeting obligations&#8221;.`\
+https://nytimes.com/athletic/5820101/2024/10/05/ousmane-dembele-dropped-psg-luis-enrique/
+
 **What an Escalating Middle East Conflict Could Mean for the Global Economy**\
 `The biggest risk is a sustained increase in oil prices.`\
 https://nytimes.com/2024/10/05/business/dealbook/israel-iran-global-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820077/2024/10/05/tcu-houston-sonny-dykes/
 **I’m a Doctor. ChatGPT’s Bedside Manner Is Better Than Mine.**\
 `My job is no longer safe.`\
 https://nytimes.com/2024/10/05/opinion/ai-chatgpt-medicine-doctor.html
-
-**What I'm seeing from the preseason Oilers: Still a lot of work to do**\
-`As the regular season approaches, the urgency to improve is increasing for the reigning Stanley Cup finalists.`\
-https://nytimes.com/athletic/5819933/2024/10/05/oilers-preseason-nugent-bowman/
 
