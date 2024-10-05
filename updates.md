@@ -1,3 +1,7 @@
+**David Burnham, Times Reporter Who Exposed Police Graft, Dies at 91**\
+`Tipped off by the detective Frank Serpico, he wrote an explosive series on police corruption in New York City, sparking an investigation by the Knapp commission.`\
+https://nytimes.com/2024/10/05/nyregion/david-burnham-dead.html
+
 **Glimpses of border towns and villages offer a window into Israel’s invasion.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/glimpses-of-border-towns-and-villages-offer-a-window-into-israels-invasion
