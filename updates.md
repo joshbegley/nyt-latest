@@ -1,3 +1,11 @@
+**Can Nebraska win close games? Result against Rutgers showed progress**\
+`Nebraska is 5-1 after beating Rutgers 14-7.`\
+https://nytimes.com/athletic/5820330/2024/10/05/nebraska-football-rutgers-big-ten-dylan-raiola-matt-rhule/
+
+**The Guardians' winning formula looked familiar in Game 1: 'Today was the first step'**\
+`The Guardians' script for ending a 76-year championship drought has been written and scrapped and written again. Now it's time for action.`\
+https://nytimes.com/athletic/5821036/2024/10/05/guardians-alds-game-1-win/
+
 **Harris Meets With Arab and Muslim Leaders in Michigan**\
 `The meeting, which took place backstage, came as Vice President Kamala Harris’s campaign ramped up efforts to appeal directly to Arab and Muslim voters in the final weeks before the election.`\
 https://nytimes.com/2024/10/05/us/politics/harris-arab-muslim-meeting-michigan.html

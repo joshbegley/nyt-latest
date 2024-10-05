@@ -1,3 +1,11 @@
+**Can Nebraska win close games? Result against Rutgers showed progress**\
+`Nebraska is 5-1 after beating Rutgers 14-7.`\
+https://nytimes.com/athletic/5820330/2024/10/05/nebraska-football-rutgers-big-ten-dylan-raiola-matt-rhule/
+
+**The Guardians' winning formula looked familiar in Game 1: 'Today was the first step'**\
+`The Guardians' script for ending a 76-year championship drought has been written and scrapped and written again. Now it's time for action.`\
+https://nytimes.com/athletic/5821036/2024/10/05/guardians-alds-game-1-win/
+
 **Harris Meets With Arab and Muslim Leaders in Michigan**\
 `The meeting, which took place backstage, came as Vice President Kamala Harris’s campaign ramped up efforts to appeal directly to Arab and Muslim voters in the final weeks before the election.`\
 https://nytimes.com/2024/10/05/us/politics/harris-arab-muslim-meeting-michigan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5820998/2024/10/05/maxx-crosby-raiders-broncos-inju
 **Kamala Harris Visits North Carolina to Check on Hurricane Response**\
 `The vice president visited Charlotte, N.C., for an update on relief efforts after Hurricane Helene ravaged wide swaths of the Southeast.`\
 https://nytimes.com/2024/10/05/us/politics/kamala-harris-north-carolina-hurricane-helene.html
-
-**Vanderbilt knocks off No. 1 Alabama. Is this the biggest upset in SEC history?**\
-`Vandy got its first-ever win over an AP top-five team behind its star QB, a strong running game and Alabama mistakes.`\
-https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
-
-**Teacher’s Marks**\
-`John Kugelman makes the grade.`\
-https://nytimes.com/2024/10/05/crosswords/daily-puzzle-2024-10-06.html
 
