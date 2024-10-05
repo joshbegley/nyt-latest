@@ -1,3 +1,7 @@
+**Why Manchester United's diehard away support was depleted against Porto**\
+`Many fans who pride on following United home and away were left stranded in Manchester airport on Thursday as the official trip was grounded`\
+https://nytimes.com/athletic/5820537/2024/10/05/manchester-united-support-porto-chaos/
+
 **Everton 0 Newcastle 0: Gordon misses penalty in scrappy game - but clean sheet at last**\
 `Newcastle United drew 0-0 with Everton at Goodison Park, taking them to sixth in the Premier League table. Here are the key talking points…`\
 https://nytimes.com/athletic/5819000/2024/10/05/everton-0-newcastle-0-gordon-penalty/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818204/2024/10/05/wrexham-northampton-mcclean-barn
 **O'Neil: Brentford loss 'worst performance' of tenure; 'Things need to change quickly'**\
 `Wolverhampton Wanderers head coach Gary O’Neil admitted he was “devastated” after fans turned on him during his side’s 5-3 Premier League defeat at Brentford.`\
 https://nytimes.com/athletic/5820521/2024/10/05/gary-oneil-wolves-brentford/
-
-**Marvin Schlachter, Record Executive Who Championed Disco, Dies at 90**\
-`In the 1960s, he helped get wide exposure for Black artists like Dionne Warwick. A decade later, he brought dance music from the clubs to radio success.`\
-https://nytimes.com/2024/10/05/arts/music/marvin-schlachter-dead.html
 
