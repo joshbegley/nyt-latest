@@ -1,3 +1,7 @@
+**Yankees' Alex Verdugo to start in LF; Jasson Domínguez still unsure of postseason role**\
+`The Yankees will go with the player with more experience in Yankee Stadium's cavernous left field, according to a team source.`\
+https://nytimes.com/athletic/5819652/2024/10/04/yankees-alex-verdugo-jasson-dominguez-left-field-alds/
+
 **There Are Layers to This**\
 `Natan Last goes toe to toe with us in this challenging puzzle.`\
 https://nytimes.com/2024/10/04/crosswords/daily-puzzle-2024-10-05.html
