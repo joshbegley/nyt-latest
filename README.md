@@ -1,3 +1,7 @@
+**From Melania Trump: Modeling, Motherhood and a Brazen Whitewash of a Presidency**\
+`Slim and full of obfuscations, her memoir touches on business ventures and raising her son, but barely grapples with the mysteries of her marriage.`\
+https://nytimes.com/2024/10/05/books/review/melania-trump-memoir.html
+
 **Why Manchester United's diehard away support was depleted against Porto**\
 `Many fans who pride on following United home and away were left stranded in Manchester airport on Thursday as the official trip was grounded`\
 https://nytimes.com/athletic/5820537/2024/10/05/manchester-united-support-porto-chaos/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/us/politics/trump-butler-security-assassination-a
 **Wrexham 4 Northampton 1: McClean sets the tone, unflappable Okonkwo and wing-back union flourishes**\
 `Phil Parkinson's side moved to within two points of leaders Birmingham City after a thumping victory at the Racecourse Ground`\
 https://nytimes.com/athletic/5818204/2024/10/05/wrexham-northampton-mcclean-barnett-okonkwo/
-
-**O'Neil: Brentford loss 'worst performance' of tenure; 'Things need to change quickly'**\
-`Wolverhampton Wanderers head coach Gary O’Neil admitted he was “devastated” after fans turned on him during his side’s 5-3 Premier League defeat at Brentford.`\
-https://nytimes.com/athletic/5820521/2024/10/05/gary-oneil-wolves-brentford/
 
