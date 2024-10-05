@@ -1,3 +1,19 @@
+**Election Live Updates: Trump to Return to Site of July Assassination Attempt**\
+`Former President Donald J. Trump is heading back to Butler, Pa., to rally supporters, while Vice President Kamala Harris plans to visit parts of North Carolina that were ravaged by Hurricane Helene.`\
+https://nytimes.com/live/2024/10/05/us/trump-harris-election
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/05/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**QB collectability power rankings: Who's trading cards are hottest right now**\
+`Our rankings of who's hot right now in the trading card world `\
+https://nytimes.com/athletic/5818826/2024/10/05/quarterback-cards-brady-mahomes-stroud/
+
+**The Briefing: Crystal Palace 0 Liverpool 1: Alisson injury, Slot's rare rotation and Gravenberch display**\
+`Liverpool managed a 1-0 win against Crystal Palace on Saturday afternoon to maintain their place at the top of the Premier League`\
+https://nytimes.com/athletic/5818996/2024/10/05/crystal-palace-liverpool-result-report-analysis/
+
 **‘Nobody Wants This’ Pits Jewish Women Against ‘Shiksas.’ Nobody Wins.**\
 `Except maybe Jewish men.`\
 https://nytimes.com/2024/10/05/opinion/nobody-wants-this-jewish-gender.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5817128/2024/10/05/blues-2024-25-season-bold-predic
 **NWSL expansion: Where things stand as the league looks to add a 16th team**\
 `Cleveland is the latest city to put forth a bid for NWSL expansion, including stadium plans. `\
 https://nytimes.com/athletic/5819621/2024/10/05/nwsl-expansion-cleveland/
-
-**What to Know: How Israel Could Retaliate Against Iran**\
-`Iran has a number of sensitive sites, including oil infrastructure, military installations and nuclear facilities.`\
-https://nytimes.com/2024/10/05/world/middleeast/israel-iran-retaliation.html
-
-**2 Books About Old Flames**\
-`Stephen McCauley’s novel about ex-spouses reuniting, in a sense; Jim Shepard’s noir about a fateful hit-and-run.`\
-https://nytimes.com/2024/10/05/books/read-like-wind-recommendations.html
-
-**The Troubling Quiet of North Carolina’s Cell Service Outages**\
-`Service has been restored in some areas after Hurricane Helene, but many people are still unable to communicate by phone, which has hampered relief efforts, worried loved ones and complicated daily life.`\
-https://nytimes.com/2024/10/05/us/north-carolina-cell-outages-helene.html
-
-**Khan: TCU's post-national title game tailspin has hit a new low**\
-`Any honeymoon period Sonny Dykes enjoyed after his magical first season is completely over as far as TCU fans are concerned.`\
-https://nytimes.com/athletic/5820077/2024/10/05/tcu-houston-sonny-dykes/
 

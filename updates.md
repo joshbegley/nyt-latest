@@ -1,3 +1,19 @@
+**Election Live Updates: Trump to Return to Site of July Assassination Attempt**\
+`Former President Donald J. Trump is heading back to Butler, Pa., to rally supporters, while Vice President Kamala Harris plans to visit parts of North Carolina that were ravaged by Hurricane Helene.`\
+https://nytimes.com/live/2024/10/05/us/trump-harris-election
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/05/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**QB collectability power rankings: Who's trading cards are hottest right now**\
+`Our rankings of who's hot right now in the trading card world `\
+https://nytimes.com/athletic/5818826/2024/10/05/quarterback-cards-brady-mahomes-stroud/
+
+**The Briefing: Crystal Palace 0 Liverpool 1: Alisson injury, Slot's rare rotation and Gravenberch display**\
+`Liverpool managed a 1-0 win against Crystal Palace on Saturday afternoon to maintain their place at the top of the Premier League`\
+https://nytimes.com/athletic/5818996/2024/10/05/crystal-palace-liverpool-result-report-analysis/
+
 **‘Nobody Wants This’ Pits Jewish Women Against ‘Shiksas.’ Nobody Wins.**\
 `Except maybe Jewish men.`\
 https://nytimes.com/2024/10/05/opinion/nobody-wants-this-jewish-gender.html
