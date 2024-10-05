@@ -1,3 +1,11 @@
+**A Deluge of Rain Poured Out of the Heavens. But There’s Still No Drinking Water.**\
+`City officials have refused to provide estimates of when the devastated water system in Asheville, N.C., will be back in operation.`\
+https://nytimes.com/2024/10/04/us/hurricane-helene-asheville-water.html
+
+**In North Carolina Town Hall, Trump Makes a Series of Promises to Appeal to Veterans**\
+`Donald J. Trump answered preselected questions from a pro-military crowd who echoed his false claims and approved of his vow to conduct massive deportations of undocumented immigrants.`\
+https://nytimes.com/2024/10/04/us/politics/trump-town-hall-promises-veterans.html
+
 **Dodgers' Freddie Freeman says ankle 'good enough' to play in NLDS**\
 `Dodgers manager Dave Roberts expressed confidence that Freeman would be in the lineup on Saturday.`\
 https://nytimes.com/athletic/5819667/2024/10/04/dodgers-freddie-freeman-ankle-nlds/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/04/us/politics/kamala-harris-trump-gas-cars-evs-mich
 **Jannik Sinner's doping case explained: What WADA appeal means and what is at stake for tennis**\
 `The men's world No. 1 could face a two-year ban. Here's what to know about the doping proceedings against him so far`\
 https://nytimes.com/athletic/5806315/2024/10/04/jannik-sinner-doping-case-tennis-explained/
-
-**Oklahoma Schools Need 55,000 Bibles. Trump-Endorsed Book Fits the Bill.**\
-`The bid details for new Bibles the state is buying seem to point to a version promoted by former President Donald J. Trump.`\
-https://nytimes.com/2024/10/04/us/oklahoma-schools-trump-bible.html
-
-**Israel Expands Attacks on Hezbollah as Iran Warns of Retaliation**\
-`Israel is drastically widening its fight against the Lebanese militant group that is backed by Iran, whose supreme leader said that “any strike on the Zionist regime is a service to humanity.”`\
-https://nytimes.com/2024/10/04/world/middleeast/israel-hezbollah-lebanon.html
 

@@ -1,3 +1,11 @@
+**A Deluge of Rain Poured Out of the Heavens. But There’s Still No Drinking Water.**\
+`City officials have refused to provide estimates of when the devastated water system in Asheville, N.C., will be back in operation.`\
+https://nytimes.com/2024/10/04/us/hurricane-helene-asheville-water.html
+
+**In North Carolina Town Hall, Trump Makes a Series of Promises to Appeal to Veterans**\
+`Donald J. Trump answered preselected questions from a pro-military crowd who echoed his false claims and approved of his vow to conduct massive deportations of undocumented immigrants.`\
+https://nytimes.com/2024/10/04/us/politics/trump-town-hall-promises-veterans.html
+
 **Dodgers' Freddie Freeman says ankle 'good enough' to play in NLDS**\
 `Dodgers manager Dave Roberts expressed confidence that Freeman would be in the lineup on Saturday.`\
 https://nytimes.com/athletic/5819667/2024/10/04/dodgers-freddie-freeman-ankle-nlds/
