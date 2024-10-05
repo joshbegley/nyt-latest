@@ -1,3 +1,7 @@
+**Penn State started slow but came up big when needed: Takeaways after UCLA**\
+`The No. 7 Nittany Lions beat UCLA 27-11, winning easily but still closer than expected without injured running back Nick Singleton.`\
+https://nytimes.com/athletic/5820634/2024/10/05/penn-state-ucla-football-score-injuries/
+
 **Five reasons for concern after Sabres' 0-2 start to season in Prague**\
 `After two losses to New Jersey, it's tough to imagine a more uninspiring start to the Sabres' season.`\
 https://nytimes.com/athletic/5820693/2024/10/05/buffalo-sabres-devils-prague/
