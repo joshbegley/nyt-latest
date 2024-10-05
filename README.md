@@ -1,3 +1,19 @@
+**Man United sign youth striker Obi-Martin after Arsenal exit**\
+`Manchester United have confirmed the signing of Denmark youth international striker Chido Obi-Martin following the expiration of his schoolboy terms at Arsenal.`\
+https://nytimes.com/athletic/5661203/2024/10/05/chido-obi-martin-manchester-united-transfer-arsenal/
+
+**Vikings fans in London are just like you, relishing 2024 start and hopeful it continues**\
+`With the Vikings set to face the Jets at Tottenham Hotspur Stadium on Sunday, we spoke with a few friends about how their fandom began. `\
+https://nytimes.com/athletic/5820417/2024/10/05/vikings-fans-london-tottenham-hotspur-stadium/
+
+**Guardians erupt for five runs in first inning of ALDS**\
+`Looking fresh after their layoff, the Cleveland Guardians pounced early on the Detroit Tigers in Game 1 of the American League Division Series, scoring five runs in the first inning.`\
+https://nytimes.com/athletic/5820602/2024/10/05/cleveland-guardians-detroit-tigers-alds-run-scoring/
+
+**Penguins' Erik Karlsson to play in season opener vs. Rangers**\
+`Karlsson, 34, had 11 goals and 35 assists last season.`\
+https://nytimes.com/athletic/5820524/2024/10/05/penguins-erik-karlsson-season-opener/
+
 **Security Is Tighter for Trump Rally at Site of July Assassination Attempt**\
 `The Secret Service has deployed large forces to protect former President Donald J. Trump as he prepares to hold a rally in Butler, Pa., where a gunman attacked him in July.`\
 https://nytimes.com/2024/10/05/us/politics/trump-butler-security-assassination-attempt.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5820495/2024/10/05/nc-state-grayson-mccall-injury-w
 **David Burnham, Times Reporter Who Exposed Police Graft, Dies at 91**\
 `Tipped off by the detective Frank Serpico, he wrote an explosive series on police corruption in New York City, sparking an investigation by the Knapp commission.`\
 https://nytimes.com/2024/10/05/nyregion/david-burnham-dead.html
-
-**Glimpses of border towns and villages offer a window into Israel’s invasion.**\
-`By Natan Odenheimer`\
-https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/glimpses-of-border-towns-and-villages-offer-a-window-into-israels-invasion
-
-**Blue Jackets sign forward Kevin Labanc to 1-year contract**\
-`Lebanc, 28, has scored double digit goals in five of his eight NHL seasons.`\
-https://nytimes.com/athletic/5820490/2024/10/05/blue-jackets-sign-kevin-lebanc/
-
-**Israel issues evacuation order for central Gaza, the first in the enclave in weeks.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/israel-issues-evacuation-order-for-central-gaza-the-first-in-the-enclave-in-weeks
-
-**Here is the latest on the storm.**\
-`By Judson Jones`\
-https://nytimes.com/live/2024/10/05/weather/tropical-storm-milton-hurricane/here-is-the-latest-on-the-storm
 
