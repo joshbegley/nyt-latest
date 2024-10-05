@@ -1,3 +1,7 @@
+**Kamala Harris Visits North Carolina to Check on Hurricane Response**\
+`The vice president visited Charlotte, N.C., for an update on relief efforts after Hurricane Helene ravaged wide swaths of the Southeast.`\
+https://nytimes.com/2024/10/05/us/politics/kamala-harris-north-carolina-hurricane-helene.html
+
 **No. 1 Alabama trails Vanderbilt at halftime**\
 `Looking for its first-ever win over an AP top-five team, Vanderbilt has a 23-14 lead over Alabama at halftime.`\
 https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820663/2024/10/05/nascar-michael-jordan-lawsuit-de
 **What we know about the first attempted assassination of Trump in Butler, Pa.**\
 `By Kate Kelly`\
 https://nytimes.com/live/2024/10/05/us/trump-harris-election/what-we-know-about-the-first-attempted-assassination-of-trump-in-butler-pa
-
-**Dodgers' Clayton Kershaw declared out for postseason**\
-`LOS ANGELES — Clayton Kershaw’s season is officially over after his injured left big toe didn’t show substantive progress, Los Angeles Dodgers manager Dave Roberts said Saturday.`\
-https://nytimes.com/athletic/5820846/2024/10/05/dodgers-clayton-kershaw-injury-2/
 
