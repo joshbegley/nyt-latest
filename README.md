@@ -1,7 +1,3 @@
-**Cleveland Guardians ride electric bullpen, early runs to ALDS Game 1 win**\
-`Baseball rarely goes according to script, but the Guardians couldn’t have asked for Game 1 to go any smoother. `\
-https://nytimes.com/athletic/5821134/2024/10/05/cleveland-guardians-bullpen-excels-alds-game-1/
-
 **Can Nebraska win close games? Result against Rutgers showed progress**\
 `Nebraska is 5-1 after beating Rutgers 14-7.`\
 https://nytimes.com/athletic/5820330/2024/10/05/nebraska-football-rutgers-big-ten-dylan-raiola-matt-rhule/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5820976/2024/10/05/ohio-state-iowa-football-score-r
 **Raiders' Maxx Crosby expected to return vs. Broncos**\
 `Crosby practiced Friday and was in good spirits.`\
 https://nytimes.com/athletic/5820998/2024/10/05/maxx-crosby-raiders-broncos-injury-update/
+
+**Kamala Harris Visits North Carolina to Check on Hurricane Response**\
+`The vice president visited Charlotte, N.C., for an update on relief efforts after Hurricane Helene ravaged wide swaths of the Southeast.`\
+https://nytimes.com/2024/10/05/us/politics/kamala-harris-north-carolina-hurricane-helene.html
 
