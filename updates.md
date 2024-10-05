@@ -1,3 +1,7 @@
+**Israel Steps Up Attacks in Lebanon as Fighting Spreads**\
+`With the region on edge about a possible Israeli retaliatory strike on Iran, U.S. Central Command hit targets in Yemen and Israel ordered evacuations in Gaza.`\
+https://nytimes.com/2024/10/05/world/middleeast/israel-lebanon-hezbollah-iran.html
+
 **Iranian news media asks: Where is top Quds Forces commander General Esmail Ghaani?**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/iranian-news-media-asks-where-is-top-quds-forces-commander-general-esmail-ghaani
