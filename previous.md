@@ -1,3 +1,11 @@
+**Lord Herman Ouseley: The 'tornado' who led English football's fight against racism**\
+`Lord Ouseley, who died this week, was relentless in speaking truth to power. It's important his work is taken forward by future generations`\
+https://nytimes.com/athletic/5819717/2024/10/05/lord-herman-ouseley-the-tornado-who-led-english-footballs-fight-against-racism/
+
+**After Helene’s ‘Historic’ Damage, Appalachian Trail May Need Years to Recover**\
+`Downed trees and flooding have left the trail impassible in many of the 14 states on its route.`\
+https://nytimes.com/2024/10/05/us/appalachian-trail-helene-damage.html
+
 **Al Pacino Is Still Going Big**\
 `A conversation with the legendary actor about, well, everything.`\
 https://nytimes.com/2024/10/05/magazine/al-pacino-interview.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/05/style/demure-trend-spring-2025-fashion.html
 **Hit by Disaster? How to Get What You Deserve From Insurers or FEMA**\
 `Experts offered plenty of advice about ways to make the disaster-recovery process work. Here’s what to do and what to avoid.`\
 https://nytimes.com/2024/10/05/climate/hurricane-helene-fema-insurance.html
-
-**With ‘Megalopolis,’ the Flop Era Returns to Cinemas**\
-`Plenty of movies bomb, but Francis Ford Coppola’s latest is part of a different class of box office failures.`\
-https://nytimes.com/2024/10/05/movies/megalopolis-copolla-flops.html
-
-**Where Trump and Harris Stand on the Economy**\
-`Here’s where Vice President Kamala Harris and former President Donald Trump stand on economic issues like inflation, taxes and more. Maggie Astor, who covers politics for The New York Times, looks at the candidates’ views, proposals and records.`\
-https://nytimes.com/video/us/elections/100000009736301/where-trump-and-harris-stand-on-the-economy.html
 

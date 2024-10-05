@@ -1,3 +1,11 @@
+**Lord Herman Ouseley: The 'tornado' who led English football's fight against racism**\
+`Lord Ouseley, who died this week, was relentless in speaking truth to power. It's important his work is taken forward by future generations`\
+https://nytimes.com/athletic/5819717/2024/10/05/lord-herman-ouseley-the-tornado-who-led-english-footballs-fight-against-racism/
+
+**After Helene’s ‘Historic’ Damage, Appalachian Trail May Need Years to Recover**\
+`Downed trees and flooding have left the trail impassible in many of the 14 states on its route.`\
+https://nytimes.com/2024/10/05/us/appalachian-trail-helene-damage.html
+
 **Al Pacino Is Still Going Big**\
 `A conversation with the legendary actor about, well, everything.`\
 https://nytimes.com/2024/10/05/magazine/al-pacino-interview.html
