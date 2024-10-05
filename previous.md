@@ -1,3 +1,7 @@
+**No. 1 Alabama trails Vanderbilt at halftime**\
+`Looking for its first-ever win over an AP top-five team, Vanderbilt has a 23-14 lead over Alabama at halftime.`\
+https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
+
 **Teacher’s Marks**\
 `John Kugelman makes the grade.`\
 https://nytimes.com/2024/10/05/crosswords/daily-puzzle-2024-10-06.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/05/us/trump-harris-election/what-we-know-about-
 **Dodgers' Clayton Kershaw declared out for postseason**\
 `LOS ANGELES — Clayton Kershaw’s season is officially over after his injured left big toe didn’t show substantive progress, Los Angeles Dodgers manager Dave Roberts said Saturday.`\
 https://nytimes.com/athletic/5820846/2024/10/05/dodgers-clayton-kershaw-injury-2/
-
-**Widow of Man Killed in July Attack on Trump Returns for Rally**\
-`Helen Comperatore, whose husband, Corey Comperatore, was killed when a gunman tried to assassinate former President Donald J. Trump, returned to honor her husband’s memory.`\
-https://nytimes.com/2024/10/05/us/politics/comperatore-wife-family-trump-assassination-rally-pa.html
 

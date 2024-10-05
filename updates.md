@@ -1,3 +1,7 @@
+**No. 1 Alabama trails Vanderbilt at halftime**\
+`Looking for its first-ever win over an AP top-five team, Vanderbilt has a 23-14 lead over Alabama at halftime.`\
+https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
+
 **Teacher’s Marks**\
 `John Kugelman makes the grade.`\
 https://nytimes.com/2024/10/05/crosswords/daily-puzzle-2024-10-06.html
