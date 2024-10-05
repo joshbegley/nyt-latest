@@ -1,3 +1,7 @@
+**How the Las Vegas Aces guards came to life to stave off elimination**\
+`"We're the Aces. We're not going to fold." Las Vegas ensured Game 4 against the Liberty on Sunday.`\
+https://nytimes.com/athletic/5819969/2024/10/05/las-vegas-aces-game-three-win/
+
 **Josh Minott shines in Timberwolves' preseason opener, validating his approach to the game**\
 `Minott scored 22 points and grabbed eight rebounds in Minnesota's 124-107 victory over the Los Angeles Lakers on Friday.`\
 https://nytimes.com/athletic/5819908/2024/10/05/timberwolves-preseason-opener-josh-minott/
