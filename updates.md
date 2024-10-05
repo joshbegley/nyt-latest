@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 3 Southampton 1 - Resillience, Havertz eclipses Jesus, and how was Ramsdale received?**\
+`Mikel Arteta's side came from behind to beat Southampton and maintain momentum in pursuit of Liverpool at the top of the Premier League`\
+https://nytimes.com/athletic/5818998/2024/10/05/arsenal-southampton-saka-partey-ramsdale-briefing/
+
 **Blue Jackets sign forward Kevin Labanc to 1-year contract**\
 `Lebanc, 28, has scored double digit goals in five of his eight NHL seasons.`\
 https://nytimes.com/athletic/5820490/2024/10/05/blue-jackets-sign-kevin-lebanc/
