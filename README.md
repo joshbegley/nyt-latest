@@ -1,3 +1,11 @@
+**Battle of the high lines: How Brighton and Tottenham's defences compare**\
+`What are the strengths and weaknesses of Fabian Hurzeler and Ange Postecoglou's defensive setups?`\
+https://nytimes.com/athletic/5812688/2024/10/05/brighton-tottenham-high-line-tactical-analysis/
+
+**13 insights fantasy football managers need to know ahead of Week 5**\
+`Theo Gremminger highlights the emergence of yet another 2023 rookie, Brian Thomas Jr., as he shares insights on 13 players ahead of Week 5.`\
+https://nytimes.com/athletic/5818715/2024/10/05/13-insights-fantasy-football-week-5/
+
 **Iowa at Ohio State picks, odds, how to watch: Can Hawkeyes defense contain the Buckeyes?**\
 `Ohio State has blown away the opposition so far, but gets a different kind of test in Iowa and the Hawkeyes' stout defense.`\
 https://nytimes.com/athletic/5816752/2024/10/05/iowa-ohio-state-picks-odds-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5819732/2024/10/04/wild-blackhawks-takeaways-nhl-pr
 **Biden Urges Congress to Replenish Disaster Relief Funds Quickly**\
 `The president said a Small Business Administration program needed to help business owners recover from Hurricane Helene was set to run out of money in weeks, before Congress reconvenes.`\
 https://nytimes.com/2024/10/04/us/politics/biden-congress-disaster-relief-helene.html
-
-**5 Takeaways From Melania Trump’s Book**\
-`Shining a little more light on her mysterious life, her memoir details her support for abortion rights, her doubts about the 2020 election and her explanation for that “I really don’t care” jacket.`\
-https://nytimes.com/2024/10/04/us/politics/melania-trump-book-abortion-2020-election.html
-
-**Aaron Boone says Juan Soto 'loving' time with Yankees as free agency looms before ALDS**\
-`Soto's future was the biggest topic as the Yankees prepared to start their postseason series against the Royals.`\
-https://nytimes.com/athletic/5819706/2024/10/04/aaron-boone-juan-soto-loving-yankees-free-agency-alds/
 
