@@ -1,3 +1,7 @@
+**Real Madrid's Carvajal sustains suspected serious knee injury**\
+`Carlo Ancelotti says Real Madrid defender Dani Carvajal has a suspected serious knee injury after being taken off the pitch on a stretcher during Saturday&#8217;s La Liga victory over Villarreal.`\
+https://nytimes.com/athletic/5820934/2024/10/05/dani-carvajal-real-madrid-injury/
+
 **Missing People, Power Outages, Ruined Roads: Issues Across the Southeast After Helene**\
 `The worst fallout from the hurricane is in western North Carolina, but at least five other states are grappling with their own intractable problems.`\
 https://nytimes.com/2024/10/05/us/hurricane-helene-damage-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/us/politics/comperatore-wife-family-trump-assassi
 **As 23andMe Struggles, Concerns Surface About Its Genetic Data**\
 `A plummet in the company’s valuation and a recent board resignation have raised questions about the future of genetic data collected from millions of customers.`\
 https://nytimes.com/2024/10/05/business/23andme-dna-bankrupt.html
-
-**'Pitching Chaos' takes on new meaning as Guardians thump Tigers in Game 1: Takeaways**\
-`The Cleveland Guardians struck first, using a five-run first inning to defeat the Detroit Tigers 7-0 in Game 1 of their ALDS matchup.`\
-https://nytimes.com/athletic/5820598/2024/10/05/guardians-tigers-alds-game1-takeaways/
 
