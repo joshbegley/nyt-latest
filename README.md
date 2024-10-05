@@ -1,3 +1,15 @@
+**Security Is Tighter for Trump Rally at Site of July Assassination Attempt**\
+`The Secret Service has deployed large forces to protect former President Donald J. Trump as he prepares to hold a rally in Butler, Pa., where a gunman attacked him in July.`\
+https://nytimes.com/2024/10/05/us/politics/trump-butler-security-assassination-attempt.html
+
+**Wrexham 4 Northampton 1: McClean sets the tone, unflappable Okonkwo and wing-back union flourishes**\
+`Phil Parkinson's side moved to within two points of leaders Birmingham City after a thumping victory at the Racecourse Ground`\
+https://nytimes.com/athletic/5818204/2024/10/05/wrexham-northampton-mcclean-barnett-okonkwo/
+
+**O'Neil: Brentford loss 'worst performance' of tenure; 'Things need to change quickly'**\
+`Wolverhampton Wanderers head coach Gary O’Neil admitted he was “devastated” after fans turned on him during his side’s 5-3 Premier League defeat at Brentford.`\
+https://nytimes.com/athletic/5820521/2024/10/05/gary-oneil-wolves-brentford/
+
 **Marvin Schlachter, Record Executive Who Championed Disco, Dies at 90**\
 `In the 1960s, he helped get wide exposure for Black artists like Dionne Warwick. A decade later, he brought dance music from the clubs to radio success.`\
 https://nytimes.com/2024/10/05/arts/music/marvin-schlachter-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/israel-i
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/10/05/weather/tropical-storm-gulf-florida-hurricane/here-is-the-latest-on-the-storm
-
-**Lakers preseason opener takeaways: Bronny James' debut, a valuable Max Christie and more**\
-`All eyes were on Bronny James in his first preseason game, but it was Max Christie and Dalton Knecht who made the biggest impact.`\
-https://nytimes.com/athletic/5819849/2024/10/05/la-lakers-bronny-james-nba-preseason-takeaways/
-
-**Tracking Tropical Storm Milton**\
-`See the likely path and wind arrival times for Milton.`\
-https://nytimes.com/interactive/2024/weather/milton-map-path-tracker.html
-
-**The Briefing: Arsenal 3 Southampton 1 - Resillience, Havertz eclipses Jesus, and how was Ramsdale received?**\
-`Mikel Arteta's side came from behind to beat Southampton and maintain momentum in pursuit of Liverpool at the top of the Premier League`\
-https://nytimes.com/athletic/5818998/2024/10/05/arsenal-southampton-saka-partey-ramsdale-briefing/
 
