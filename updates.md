@@ -1,3 +1,7 @@
+**Should we be concerned about the Blackhawks' ‘embarrassing' preseason?**\
+`The Blackhawks' 0-5 mark with seven goals in the preseason is disconcerting no matter the time of year, no matter the lineup.`\
+https://nytimes.com/athletic/5819872/2024/10/05/blackhawks-wild-nhl-preseason/
+
 **Marcus Rashford's 45 minutes vs Porto: What worked and what didn't?**\
 `Analysis of a mixed night for the United forward in the Europa League. Plenty of dangerous attacking endeavour, but some defensive lapses`\
 https://nytimes.com/athletic/5818402/2024/10/05/marcus-rashford-porto-performance-analysis/
