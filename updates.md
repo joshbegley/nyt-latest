@@ -1,3 +1,7 @@
+**From Melania Trump: Modeling, Motherhood and a Brazen Whitewash of a Presidency**\
+`Slim and full of obfuscations, her memoir touches on business ventures and raising her son, but barely grapples with the mysteries of her marriage.`\
+https://nytimes.com/2024/10/05/books/review/melania-trump-memoir.html
+
 **Why Manchester United's diehard away support was depleted against Porto**\
 `Many fans who pride on following United home and away were left stranded in Manchester airport on Thursday as the official trip was grounded`\
 https://nytimes.com/athletic/5820537/2024/10/05/manchester-united-support-porto-chaos/
