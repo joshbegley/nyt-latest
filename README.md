@@ -1,3 +1,7 @@
+**The historic stat that illustrates the Broncos' dramatic special teams turnaround**\
+`Denver is the first team since at least 2000 to pin three punts at the 1-yard line in the first four games of a season.`\
+https://nytimes.com/athletic/5819386/2024/10/05/broncos-special-teams-turnaround/
+
 **Alisson set for 'weeks' out with suspected hamstring injury - Slot**\
 `Liverpool head coach Arne Slot says Alisson will likely be sidelined for a number of weeks with a suspected hamstring injury sustained in Saturday&#8217;s 1-0 victory at Crystal Palace.`\
 https://nytimes.com/athletic/5820215/2024/10/05/alisson-injury-update-liverpool-arne-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818996/2024/10/05/crystal-palace-liverpool-premier
 **‘Nobody Wants This’ Pits Jewish Women Against ‘Shiksas.’ Nobody Wins.**\
 `Except maybe Jewish men.`\
 https://nytimes.com/2024/10/05/opinion/nobody-wants-this-jewish-gender.html
-
-**Luis Enrique defends dropping Dembele after not 'meeting obligations'**\
-`Paris Saint-Germain head coach Luis Enrique has said he has no regrets over dropping Ousmane Dembele from his squad after &#8220;not meeting obligations&#8221;.`\
-https://nytimes.com/athletic/5820101/2024/10/05/ousmane-dembele-dropped-psg-luis-enrique/
 

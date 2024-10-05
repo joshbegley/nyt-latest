@@ -1,3 +1,7 @@
+**Alisson set for 'weeks' out with suspected hamstring injury - Slot**\
+`Liverpool head coach Arne Slot says Alisson will likely be sidelined for a number of weeks with a suspected hamstring injury sustained in Saturday&#8217;s 1-0 victory at Crystal Palace.`\
+https://nytimes.com/athletic/5820215/2024/10/05/alisson-injury-update-liverpool-arne-slot/
+
 **Former Gov. David Paterson of New York Assaulted in Manhattan**\
 `Mr. Paterson and his stepson suffered minor injuries in a street attack on Friday. The former governor was not believed to have been targeted in the assault, the police said.`\
 https://nytimes.com/2024/10/05/nyregion/david-paterson-governor-new-york-attack.html
