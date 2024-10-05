@@ -1,3 +1,7 @@
+**Glimpses of border towns and villages offer a window into Israel’s invasion.**\
+`By Natan Odenheimer`\
+https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/glimpses-of-border-towns-and-villages-offer-a-window-into-israels-invasion
+
 **Blue Jackets sign forward Kevin Labanc to 1-year contract**\
 `Lebanc, 28, has scored double digit goals in five of his eight NHL seasons.`\
 https://nytimes.com/athletic/5820490/2024/10/05/blue-jackets-sign-kevin-lebanc/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/upshot/hurricane-category-ratings-helene.html
 **Yankees announce ALDS roster vs. Royals: Marcus Stroman out, Duke Ellis in**\
 `NEW YORK — The New York Yankees announced their 26-man roster against the Kansas City Royals in the American League Division Series hours before Game 1 on Saturday.`\
 https://nytimes.com/athletic/5819172/2024/10/05/yankees-alds-roster-stroman-ellis/
-
-**Hundreds of Storm-Ravaged Roads, and No Timeline for Fixing Them**\
-`Repairing the roads in the region near the North Carolina-Tennessee border could take months. Some residents worry about the impact on the local economy.`\
-https://nytimes.com/2024/10/05/us/politics/north-carolina-helene-recovery-roads-damage.html
 
