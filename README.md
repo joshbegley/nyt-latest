@@ -1,3 +1,7 @@
+**NC State QB Grayson McCall carted off field on stretcher**\
+`McCall showed movement in his arms, hugging his parents and signaling to the crowd with his hand, before being taken off the field. `\
+https://nytimes.com/athletic/5820495/2024/10/05/nc-state-grayson-mccall-injury-wake-forest/
+
 **David Burnham, Times Reporter Who Exposed Police Graft, Dies at 91**\
 `Tipped off by the detective Frank Serpico, he wrote an explosive series on police corruption in New York City, sparking an investigation by the Knapp commission.`\
 https://nytimes.com/2024/10/05/nyregion/david-burnham-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818998/2024/10/05/arsenal-southampton-saka-partey-
 **The Briefing: Man City 3 Fulham 2 - Kovacic and Doku seal win after Traore's dangerous breaks**\
 `Manchester City beat Fulham 3-2 after a double from Kovacic and a late strike from Doku - but the visitors made it nervy…`\
 https://nytimes.com/athletic/5818999/2024/10/05/manchester-city-3-fulham-2-result-kovacic/
-
-**The Problem With the Hurricane Category Rating**\
-`After Helene, it may be time to rethink how to communicate the risks posed by storms, especially extreme rain.`\
-https://nytimes.com/2024/10/05/upshot/hurricane-category-ratings-helene.html
 
