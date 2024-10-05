@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5818998/2024/10/05/arsenal-southampton-saka-partey-ramsdale-briefing/
 
 **The Briefing: Man City 3 Fulham 2 - Kovacic, Doku seal win after Traore's dangerous breaks**\
-`Manchester City beat Fulham 3-2 after a double from Kovacic and a late strike from Doku - but the visitors made it nervy...`\
+`Manchester City beat Fulham 3-2 after a double from Kovacic and a late strike from Doku - but the visitors made it nervy…`\
 https://nytimes.com/athletic/5818999/2024/10/05/manchester-city-3-fulham-2-result-kovacic/
 
 **The Problem With the Hurricane Category Rating**\
