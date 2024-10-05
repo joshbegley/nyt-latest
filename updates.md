@@ -1,3 +1,7 @@
+**Mets' Kodai Senga allows leadoff HR, goes 2 innings in Game 1**\
+`The Mets' ace pitched well after Kyle Schwarber's upper-desk tank job, an indication that he could be an option later in the series.`\
+https://nytimes.com/athletic/5820877/2024/10/05/mets-kodai-senga-leadoff-hr-nlds-game-1/
+
 **NASCAR garage reacts to lawsuit: 'It's another edition of the soap opera'**\
 `"It's another edition of the 'As The World Turns: NASCAR' soap opera," RFK Racing owner/driver Brad Keselowski said of Wednesday's news.`\
 https://nytimes.com/athletic/5820663/2024/10/05/nascar-michael-jordan-lawsuit-denny-hamlin-garage-reaction/
