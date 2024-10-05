@@ -1,3 +1,15 @@
+**Security Is Tighter for Trump Rally at Site of July Assassination Attempt**\
+`The Secret Service has deployed large forces to protect former President Donald J. Trump as he prepares to hold a rally in Butler, Pa., where a gunman attacked him in July.`\
+https://nytimes.com/2024/10/05/us/politics/trump-butler-security-assassination-attempt.html
+
+**Wrexham 4 Northampton 1: McClean sets the tone, unflappable Okonkwo and wing-back union flourishes**\
+`Phil Parkinson's side moved to within two points of leaders Birmingham City after a thumping victory at the Racecourse Ground`\
+https://nytimes.com/athletic/5818204/2024/10/05/wrexham-northampton-mcclean-barnett-okonkwo/
+
+**O'Neil: Brentford loss 'worst performance' of tenure; 'Things need to change quickly'**\
+`Wolverhampton Wanderers head coach Gary O’Neil admitted he was “devastated” after fans turned on him during his side’s 5-3 Premier League defeat at Brentford.`\
+https://nytimes.com/athletic/5820521/2024/10/05/gary-oneil-wolves-brentford/
+
 **Tracking Tropical Storm Milton**\
 `See the likely path and wind arrival times for Milton.`\
 https://nytimes.com/interactive/2024/weather/milton-map-path-tracker.html
