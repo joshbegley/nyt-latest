@@ -1,3 +1,7 @@
+**Aides Say Trump Resisted Sending Federal Funds After California Wildfires**\
+`He changed his mind after being shown data that his supporters in the state had been affected, the former officials said. One called his approach “red states vs. blue states.”`\
+https://nytimes.com/2024/10/04/us/politics/trump-wildfire-aid-california.html
+
 **Lynx's Cheryl Reeve confronted Sun players after Game 1**\
 `Reeve had an issue with how Connecticut celebrated its series-opening victory, league sources said.`\
 https://nytimes.com/athletic/5819599/2024/10/04/cheryl-reeve-lynx-sun-game-1/
