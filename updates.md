@@ -1,3 +1,7 @@
+**Ukraine’s Donbas Strategy: Retreat Slowly and Maximize Russia’s Losses**\
+`The idea is to use rope-a-dope tactics, letting Russian forces pound away until they have exhausted themselves. It’s far from clear if the Ukrainian strategy will succeed.`\
+https://nytimes.com/2024/10/05/world/europe/ukraine-donbas-strategy-russia-war.html
+
 **How a Gardener at a Brooklyn Park Spends Her Sundays**\
 `Eve Brooks, the gardener at Herbert Von King Park, spends her day tending to her pet turtle, listening to Sam Cooke and getting down in the dirt at the park.`\
 https://nytimes.com/2024/10/05/nyregion/herbert-von-king-park-brooklyn.html

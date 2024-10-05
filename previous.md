@@ -1,3 +1,7 @@
+**Ukraine’s Donbas Strategy: Retreat Slowly and Maximize Russia’s Losses**\
+`The idea is to use rope-a-dope tactics, letting Russian forces pound away until they have exhausted themselves. It’s far from clear if the Ukrainian strategy will succeed.`\
+https://nytimes.com/2024/10/05/world/europe/ukraine-donbas-strategy-russia-war.html
+
 **How a Gardener at a Brooklyn Park Spends Her Sundays**\
 `Eve Brooks, the gardener at Herbert Von King Park, spends her day tending to her pet turtle, listening to Sam Cooke and getting down in the dirt at the park.`\
 https://nytimes.com/2024/10/05/nyregion/herbert-von-king-park-brooklyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5815045/2024/10/05/aaron-ramsdale-arsenal-southampt
 **What's going on with Jude Bellingham's shoulder?**\
 `The 21-year-old dislocated his shoulder with Real Madrid last year and concerns remain over potential future recurrences`\
 https://nytimes.com/athletic/5818033/2024/10/05/jude-bellingham-real-madrid-la-liga-shoulder-injury/
-
-**Should we be concerned about the Blackhawks' ‘embarrassing' preseason?**\
-`The Blackhawks' 0-5 mark with seven goals in the preseason is disconcerting no matter the time of year, no matter the lineup.`\
-https://nytimes.com/athletic/5819872/2024/10/05/blackhawks-wild-nhl-preseason/
 

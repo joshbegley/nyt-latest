@@ -1,3 +1,11 @@
+**Live Updates: Israel’s Attacks Against Hezbollah Expand**\
+`A strike was reported in the Lebanese city of Tripoli, near the country’s northern edge.`\
+https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon
+
+**Here are the latest developments.**\
+`By Victoria Kim`\
+https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/here-are-the-latest-developments
+
 **Ukraine’s Donbas Strategy: Retreat Slowly and Maximize Russia’s Losses**\
 `The idea is to use rope-a-dope tactics, letting Russian forces pound away until they have exhausted themselves. It’s far from clear if the Ukrainian strategy will succeed.`\
 https://nytimes.com/2024/10/05/world/europe/ukraine-donbas-strategy-russia-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5818402/2024/10/05/marcus-rashford-porto-performanc
 **Why the super sub is one of football's most valuable roles (and why nobody wants to be one)**\
 `Whether you call them super subs or 'finishers', players who can make a consistent impact from the bench like Jhon Duran are treasured`\
 https://nytimes.com/athletic/5818017/2024/10/05/football-super-subs-jhon-duran-le-fondre/
-
-**Ramsdale faces a fight against relegation but it was a gamble he was willing to take**\
-`Aaron Ramsdale made a big move from Arsenal to Southampton in the summer and returns to the Emirates this weekend`\
-https://nytimes.com/athletic/5815045/2024/10/05/aaron-ramsdale-arsenal-southampton/
-
-**What's going on with Jude Bellingham's shoulder?**\
-`The 21-year-old dislocated his shoulder with Real Madrid last year and concerns remain over potential future recurrences`\
-https://nytimes.com/athletic/5818033/2024/10/05/jude-bellingham-real-madrid-la-liga-shoulder-injury/
 
