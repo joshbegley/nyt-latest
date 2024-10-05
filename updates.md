@@ -1,3 +1,7 @@
+**Aaron Boone says Juan Soto 'loving' time with Yankees as free agency looms before ALDS**\
+`Soto's future was the biggest topic as the Yankees prepared to start their postseason series against the Royals.`\
+https://nytimes.com/athletic/5819706/2024/10/04/aaron-boone-juan-soto-loving-yankees-free-agency-alds/
+
 **Dodgers' Shohei Ohtani is excited, not nervous ahead of first MLB postseason**\
 `“It's always been my childhood dream to be able to be in an important situation, to play in important games,” Ohtani said.`\
 https://nytimes.com/athletic/5819733/2024/10/04/dodgers-shohei-ohtani-first-postseason-not-nervous/

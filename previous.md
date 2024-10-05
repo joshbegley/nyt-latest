@@ -1,3 +1,7 @@
+**Aaron Boone says Juan Soto 'loving' time with Yankees as free agency looms before ALDS**\
+`Soto's future was the biggest topic as the Yankees prepared to start their postseason series against the Royals.`\
+https://nytimes.com/athletic/5819706/2024/10/04/aaron-boone-juan-soto-loving-yankees-free-agency-alds/
+
 **Dodgers' Shohei Ohtani is excited, not nervous ahead of first MLB postseason**\
 `“It's always been my childhood dream to be able to be in an important situation, to play in important games,” Ohtani said.`\
 https://nytimes.com/athletic/5819733/2024/10/04/dodgers-shohei-ohtani-first-postseason-not-nervous/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819667/2024/10/04/dodgers-freddie-freeman-ankle-nl
 **Braves' Alex Anthopoulos on Max Fried, Ronald Acuña Jr. and more**\
 `Anthopoulos fielded questions about a wide range of topics, including the Braves' offseason priorities. `\
 https://nytimes.com/athletic/5819568/2024/10/04/braves-mlb-max-free-offseason-needs/
-
-**Aides Say Trump Resisted Sending Federal Funds After California Wildfires**\
-`He changed his mind after being shown data that his supporters in the state had been affected, the former officials said. One called his approach “red states vs. blue states.”`\
-https://nytimes.com/2024/10/04/us/politics/trump-wildfire-aid-california.html
 
