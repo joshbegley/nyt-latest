@@ -1,3 +1,7 @@
+**Dyche 'frustrated' after Everton not awarded penalty in Newcastle draw**\
+`Sean Dyche believes Everton should have been awarded a penalty during Saturday&#8217;s 0-0 draw with Newcastle United following a second-half coming together between Dominic Calvert-Lewin and Dan Burn.`\
+https://nytimes.com/athletic/5820710/2024/10/05/sean-dyche-everton-newcastle-penalty/
+
 **Penn State started slow but came up big when needed: Takeaways after UCLA**\
 `The No. 7 Nittany Lions beat UCLA 27-11, winning easily but still closer than expected without injured running back Nick Singleton.`\
 https://nytimes.com/athletic/5820634/2024/10/05/penn-state-ucla-football-score-injuries/
