@@ -1,3 +1,7 @@
+**Blue Jackets sign forward Kevin Labanc to 1-year contract**\
+`Lebanc, 28, has scored double digit goals in five of his eight NHL seasons.`\
+https://nytimes.com/athletic/5820490/2024/10/05/blue-jackets-sign-kevin-lebanc/
+
 **Israel issues evacuation order for central Gaza, the first in the enclave in weeks.**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/israel-issues-evacuation-order-for-central-gaza-the-first-in-the-enclave-in-weeks
