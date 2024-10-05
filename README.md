@@ -36,5 +36,5 @@ https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/israel-i
 
 **Here is the latest on the storm.**\
 `By Judson Jones`\
-https://nytimes.com/live/2024/10/05/weather/tropical-storm-gulf-florida-hurricane/here-is-the-latest-on-the-storm
+https://nytimes.com/live/2024/10/05/weather/tropical-storm-milton-hurricane/here-is-the-latest-on-the-storm
 
