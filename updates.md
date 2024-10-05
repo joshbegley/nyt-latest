@@ -1,3 +1,19 @@
+**Man United sign youth striker Obi-Martin after Arsenal exit**\
+`Manchester United have confirmed the signing of Denmark youth international striker Chido Obi-Martin following the expiration of his schoolboy terms at Arsenal.`\
+https://nytimes.com/athletic/5661203/2024/10/05/chido-obi-martin-manchester-united-transfer-arsenal/
+
+**Vikings fans in London are just like you, relishing 2024 start and hopeful it continues**\
+`With the Vikings set to face the Jets at Tottenham Hotspur Stadium on Sunday, we spoke with a few friends about how their fandom began. `\
+https://nytimes.com/athletic/5820417/2024/10/05/vikings-fans-london-tottenham-hotspur-stadium/
+
+**Guardians erupt for five runs in first inning of ALDS**\
+`Looking fresh after their layoff, the Cleveland Guardians pounced early on the Detroit Tigers in Game 1 of the American League Division Series, scoring five runs in the first inning.`\
+https://nytimes.com/athletic/5820602/2024/10/05/cleveland-guardians-detroit-tigers-alds-run-scoring/
+
+**Penguins' Erik Karlsson to play in season opener vs. Rangers**\
+`Karlsson, 34, had 11 goals and 35 assists last season.`\
+https://nytimes.com/athletic/5820524/2024/10/05/penguins-erik-karlsson-season-opener/
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/10/05/weather/tropical-storm-milton-hurricane/here-is-the-latest-on-the-storm
