@@ -1,3 +1,15 @@
+**Texas A&M makes paper tigers of Missouri: Are both still in contention for the Playoff?**\
+`Texas A&M and Missouri are now trending in opposite directions as they hold on tight for a Playoff berth.`\
+https://nytimes.com/athletic/5820680/2024/10/05/texas-am-missouri-score-analysis-takeaways/
+
+**Packers suspend WR Romeo Doubs for 1 game**\
+`Green Bay sits at (2-2) and will look to get back on track Sunday on the road against the Los Angeles Rams.`\
+https://nytimes.com/athletic/5820651/2024/10/05/green-bay-packers-news-romeo-doubs-suspension/
+
+**Braedyn Locke, Wisconsin get things rolling against Purdue**\
+`Wisconsin got the easy win it needed against Purdue to improve to 3-2 and set itself up for a key stretch to the season.`\
+https://nytimes.com/athletic/5820327/2024/10/05/wisconsin-football-score-purdue-takeaways-highlights/
+
 **From Melania Trump: Modeling, Motherhood and a Brazen Whitewash of a Presidency**\
 `Slim and full of obfuscations, her memoir touches on business ventures and raising her son, but barely grapples with the mysteries of her marriage.`\
 https://nytimes.com/2024/10/05/books/review/melania-trump-memoir.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5820417/2024/10/05/vikings-fans-london-tottenham-ho
 **Guardians erupt for five runs in first inning of ALDS**\
 `Looking fresh after their layoff, the Cleveland Guardians pounced early on the Detroit Tigers in Game 1 of the American League Division Series, scoring five runs in the first inning.`\
 https://nytimes.com/athletic/5820602/2024/10/05/cleveland-guardians-detroit-tigers-alds-run-scoring/
-
-**Penguins' Erik Karlsson to play in season opener vs. Rangers**\
-`Karlsson, 34, had 11 goals and 35 assists last season.`\
-https://nytimes.com/athletic/5820524/2024/10/05/penguins-erik-karlsson-season-opener/
-
-**Security Is Tighter for Trump Rally at Site of July Assassination Attempt**\
-`The Secret Service has deployed large forces to protect former President Donald J. Trump as he prepares to hold a rally in Butler, Pa., where a gunman attacked him in July.`\
-https://nytimes.com/2024/10/05/us/politics/trump-butler-security-assassination-attempt.html
-
-**Wrexham 4 Northampton 1: McClean sets the tone, unflappable Okonkwo and wing-back union flourishes**\
-`Phil Parkinson's side moved to within two points of leaders Birmingham City after a thumping victory at the Racecourse Ground`\
-https://nytimes.com/athletic/5818204/2024/10/05/wrexham-northampton-mcclean-barnett-okonkwo/
 
