@@ -1,3 +1,7 @@
+**Yankees announce ALDS roster vs. Royals: Marcus Stroman out, Duke Ellis in**\
+`NEW YORK — The New York Yankees announced their 26-man roster against the Kansas City Royals in the American League Division Series hours before Game 1 on Saturday.`\
+https://nytimes.com/athletic/5819172/2024/10/05/yankees-alds-roster-stroman-ellis/
+
 **Hundreds of Storm-Ravaged Roads, and No Timeline for Fixing Them**\
 `Repairing the roads in the region near the North Carolina-Tennessee border could take months. Some residents worry about the impact on the local economy.`\
 https://nytimes.com/2024/10/05/us/politics/north-carolina-helene-recovery-roads-damage.html
