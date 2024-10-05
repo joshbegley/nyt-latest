@@ -2,8 +2,8 @@
 `Grocery-store ice cream makes the list.`\
 https://nytimes.com/2024/10/05/dining/my-go-to-weeknight-dinners.html
 
-**‘Stop the Steal’ Is About Not Trusting Voters**\
-`Trump did nothing to stop the mob.`\
+**Trump Did Nothing to Stop the Mob**\
+`“Stop the Steal” is about not trusting voters.`\
 https://nytimes.com/2024/10/05/opinion/jan-6-trump-jack-smith.html
 
 **The historic stat that illustrates the Broncos' dramatic special teams turnaround**\
