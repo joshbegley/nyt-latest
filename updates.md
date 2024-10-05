@@ -1,3 +1,7 @@
+**Aces dominate Liberty in second half to force Game 4**\
+`Jackie Young led the way with 24 points and four assists, as five Aces finished the game in double digits.`\
+https://nytimes.com/athletic/5819657/2024/10/04/liberty-aces-game-3-result-takeaways/
+
 **Wild takeaways: Special teams elite, Liam Ohgren impresses in preseason finale**\
 `Jonas Brodin scored one of the sneakiest goals as Minnesota closed the preseason with a 6-1 victory against the Blackhawks.`\
 https://nytimes.com/athletic/5819732/2024/10/04/wild-blackhawks-takeaways-nhl-preseason/

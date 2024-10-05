@@ -1,3 +1,7 @@
+**Aces dominate Liberty in second half to force Game 4**\
+`Jackie Young led the way with 24 points and four assists, as five Aces finished the game in double digits.`\
+https://nytimes.com/athletic/5819657/2024/10/04/liberty-aces-game-3-result-takeaways/
+
 **Wild takeaways: Special teams elite, Liam Ohgren impresses in preseason finale**\
 `Jonas Brodin scored one of the sneakiest goals as Minnesota closed the preseason with a 6-1 victory against the Blackhawks.`\
 https://nytimes.com/athletic/5819732/2024/10/04/wild-blackhawks-takeaways-nhl-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819716/2024/10/04/lynx-sun-result-takeaways/
 **The Mets issued an early Game 1 surprise. The Phillies are crafting their plan to respond**\
 `Since Kodai Senga's current capabilities are a mystery, the Phillies spent Friday discussing what to expect from him in the series opener.`\
 https://nytimes.com/athletic/5819704/2024/10/04/phillies-hitters-mets-kodai-senga-nlds/
-
-**A Deluge of Rain Poured Out of the Heavens. But There’s Still No Drinking Water.**\
-`City officials have refused to provide estimates of when the devastated water system in Asheville, N.C., will be back in operation.`\
-https://nytimes.com/2024/10/04/us/hurricane-helene-asheville-water.html
 
