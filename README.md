@@ -1,3 +1,7 @@
+**Former Gov. David Paterson of New York Assaulted in Manhattan**\
+`Mr. Paterson and his stepson suffered minor injuries in a street attack on Friday. The former governor was not believed to have been targeted in the assault, the police said.`\
+https://nytimes.com/2024/10/05/nyregion/david-paterson-governor-new-york-attack.html
+
 **Russini’s what I’m hearing: Davante Adams trade race, why Cowboys are out, Adams' worries about Jets**\
 `Plus, Chiefs’ receiver plans, Diggs vs. Bills, Browns’ woes beyond Watson, Flacco puts Indy in a spot, Titans’ potential QB quandary.`\
 https://nytimes.com/athletic/5819826/2024/10/05/davante-adams-trade-jets-saints-steelers-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820101/2024/10/05/ousmane-dembele-dropped-psg-luis
 **What an Escalating Middle East Conflict Could Mean for the Global Economy**\
 `The biggest risk is a sustained increase in oil prices.`\
 https://nytimes.com/2024/10/05/business/dealbook/israel-iran-global-economy.html
-
-**Cooper Flagg's Duke debut just the beginning in season full of highly anticipated steps**\
-`“I liked seeing him in a Duke uniform tonight,” coach Jon Scheyer said. “I know that much.”`\
-https://nytimes.com/athletic/5820093/2024/10/05/cooper-flagg-duke-basketball-countdown-craziness/
 
