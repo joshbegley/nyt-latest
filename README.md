@@ -1,3 +1,7 @@
+**Yankees announce ALDS roster vs. Royals: Marcus Stroman out, Duke Ellis in**\
+`NEW YORK — The New York Yankees announced their 26-man roster against the Kansas City Royals in the American League Division Series hours before Game 1 on Saturday.`\
+https://nytimes.com/athletic/5819172/2024/10/05/yankees-alds-roster-stroman-ellis/
+
 **Hundreds of Storm-Ravaged Roads, and No Timeline for Fixing Them**\
 `Repairing the roads in the region near the North Carolina-Tennessee border could take months. Some residents worry about the impact on the local economy.`\
 https://nytimes.com/2024/10/05/us/politics/north-carolina-helene-recovery-roads-damage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820123/2024/10/05/paul-pogba-juventus-future-thiag
 **Election Live Updates: Trump to Return to Site of July Assassination Attempt**\
 `Former President Donald J. Trump is heading back to Butler, Pa., to rally supporters, while Vice President Kamala Harris plans to visit parts of North Carolina that were ravaged by Hurricane Helene.`\
 https://nytimes.com/live/2024/10/05/us/trump-harris-election
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/10/05/us/trump-harris-election/heres-the-latest-on-the-presidential-race
 
