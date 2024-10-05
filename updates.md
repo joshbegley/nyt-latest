@@ -1,3 +1,7 @@
+**‘Nobody Wants This’ Pits Jewish Women Against ‘Shiksas.’ Nobody Wins.**\
+`Except maybe Jewish men.`\
+https://nytimes.com/2024/10/05/opinion/nobody-wants-this-jewish-gender.html
+
 **Luis Enrique defends dropping Dembele after not 'meeting obligations'**\
 `Paris Saint-Germain head coach Luis Enrique has said he has no regrets over dropping Ousmane Dembele from his squad after &#8220;not meeting obligations&#8221;.`\
 https://nytimes.com/athletic/5820101/2024/10/05/ousmane-dembele-dropped-psg-luis-enrique/
