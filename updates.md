@@ -1,3 +1,15 @@
+**How a Gardener at a Brooklyn Park Spends Her Sundays**\
+`Eve Brooks, the gardener at Herbert Von King Park, spends her day tending to her pet turtle, listening to Sam Cooke and getting down in the dirt at the park.`\
+https://nytimes.com/2024/10/05/nyregion/herbert-von-king-park-brooklyn.html
+
+**Big Business Saw an Ally in Eric Adams, and Overlooked His Issues**\
+`New York’s business community threw its support behind Mr. Adams, and continued backing him even as his legal problems began to threaten the governance of the city.`\
+https://nytimes.com/2024/10/05/nyregion/eric-adams-indictment-nyc-business.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/05/crosswords/spelling-bee-forum.html
+
 **How the Las Vegas Aces guards came to life to stave off elimination**\
 `"We're the Aces. We're not going to fold." Las Vegas ensured Game 4 against the Liberty on Sunday.`\
 https://nytimes.com/athletic/5819969/2024/10/05/las-vegas-aces-game-three-win/
