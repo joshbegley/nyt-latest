@@ -1,3 +1,7 @@
+**David Burnham, Times Reporter Who Exposed Police Graft, Dies at 91**\
+`Tipped off by the detective Frank Serpico, he wrote an explosive series on police corruption in New York City, sparking an investigation by the Knapp commission.`\
+https://nytimes.com/2024/10/05/nyregion/david-burnham-dead.html
+
 **Glimpses of border towns and villages offer a window into Israel’s invasion.**\
 `By Natan Odenheimer`\
 https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/glimpses-of-border-towns-and-villages-offer-a-window-into-israels-invasion
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818999/2024/10/05/manchester-city-3-fulham-2-resul
 **The Problem With the Hurricane Category Rating**\
 `After Helene, it may be time to rethink how to communicate the risks posed by storms, especially extreme rain.`\
 https://nytimes.com/2024/10/05/upshot/hurricane-category-ratings-helene.html
-
-**Yankees announce ALDS roster vs. Royals: Marcus Stroman out, Duke Ellis in**\
-`NEW YORK — The New York Yankees announced their 26-man roster against the Kansas City Royals in the American League Division Series hours before Game 1 on Saturday.`\
-https://nytimes.com/athletic/5819172/2024/10/05/yankees-alds-roster-stroman-ellis/
 
