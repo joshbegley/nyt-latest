@@ -1,3 +1,11 @@
+**Everton 0 Newcastle 0: Gordon misses penalty in scrappy game - but clean sheet at last**\
+`Newcastle United drew 0-0 with Everton at Goodison Park, taking them to sixth in the Premier League table. Here are the key talking points.`\
+https://nytimes.com/athletic/5819000/2024/10/05/everton-0-newcastle-0-gordon-penalty/
+
+**James Magee, Creator of a Mysterious Desert Monument, Dies at 79**\
+`For 40 years, he built a group of stone and steel buildings in the West Texas desert to house his own monumental work. Only a few have been lucky enough to see it.`\
+https://nytimes.com/2024/10/05/arts/james-magee-dead.html
+
 **Man United sign youth striker Obi-Martin after Arsenal exit**\
 `Manchester United have confirmed the signing of Denmark youth international striker Chido Obi-Martin following the expiration of his schoolboy terms at Arsenal.`\
 https://nytimes.com/athletic/5661203/2024/10/05/chido-obi-martin-manchester-united-transfer-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5820521/2024/10/05/gary-oneil-wolves-brentford/
 **Marvin Schlachter, Record Executive Who Championed Disco, Dies at 90**\
 `In the 1960s, he helped get wide exposure for Black artists like Dionne Warwick. A decade later, he brought dance music from the clubs to radio success.`\
 https://nytimes.com/2024/10/05/arts/music/marvin-schlachter-dead.html
-
-**NC State QB Grayson McCall carted off field on stretcher**\
-`McCall showed movement in his arms, hugging his parents and signaling to the crowd with his hand, before being taken off the field. `\
-https://nytimes.com/athletic/5820495/2024/10/05/nc-state-grayson-mccall-injury-wake-forest/
-
-**David Burnham, Times Reporter Who Exposed Police Graft, Dies at 91**\
-`Tipped off by the detective Frank Serpico, he wrote an explosive series on police corruption in New York City, sparking an investigation by the Knapp commission.`\
-https://nytimes.com/2024/10/05/nyregion/david-burnham-dead.html
 
