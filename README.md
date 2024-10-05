@@ -1,3 +1,7 @@
+**Raiders' Maxx Crosby expected to return vs. Broncos**\
+`Crosby practiced Friday and was in good spirits.`\
+https://nytimes.com/athletic/5820998/2024/10/05/maxx-crosby-raiders-broncos-injury-update/
+
 **Kamala Harris Visits North Carolina to Check on Hurricane Response**\
 `The vice president visited Charlotte, N.C., for an update on relief efforts after Hurricane Helene ravaged wide swaths of the Southeast.`\
 https://nytimes.com/2024/10/05/us/politics/kamala-harris-north-carolina-hurricane-helene.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820877/2024/10/05/mets-kodai-senga-leadoff-hr-nlds
 **NASCAR garage reacts to lawsuit: 'It's another edition of the soap opera'**\
 `"It's another edition of the 'As The World Turns: NASCAR' soap opera," RFK Racing owner/driver Brad Keselowski said of Wednesday's news.`\
 https://nytimes.com/athletic/5820663/2024/10/05/nascar-michael-jordan-lawsuit-denny-hamlin-garage-reaction/
-
-**What we know about the first attempted assassination of Trump in Butler, Pa.**\
-`By Kate Kelly`\
-https://nytimes.com/live/2024/10/05/us/trump-harris-election/what-we-know-about-the-first-attempted-assassination-of-trump-in-butler-pa
 
