@@ -1,3 +1,7 @@
+**What in the world happened with Meslier - and how does Leeds goalkeeper recover?**\
+`Leeds were on the cusp of beating Sunderland before a bizarre error from Illan Meslier cost them the game`\
+https://nytimes.com/athletic/5818781/2024/10/05/illan-meslier-leeds-sunderland-analysis/
+
 **Fear Factors**\
 `Sometimes the scariest movies are the ones that depict the ordinary horrors of life.`\
 https://nytimes.com/2024/10/05/briefing/fear-factors.html
