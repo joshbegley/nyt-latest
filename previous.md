@@ -1,3 +1,7 @@
+**Russini’s what I’m hearing: Davante Adams trade race, why Cowboys are out, Adams' worries about Jets**\
+`Plus, Chiefs’ receiver plans, Diggs vs. Bills, Browns’ woes beyond Watson, Flacco puts Indy in a spot, Titans’ potential QB quandary.`\
+https://nytimes.com/athletic/5819826/2024/10/05/davante-adams-trade-jets-saints-steelers-chiefs/
+
 **Juventus to 'evaluate' Pogba future after doping ban reduced - Motta**\
 `Juventus head coach Thiago Motta says the club will &#8220;evaluate&#8221; the future of Paul Pogba after the midfielder&#8217;s four-year ban for failing an anti-doping test was reduced to 18 months on Friday.`\
 https://nytimes.com/athletic/5820123/2024/10/05/paul-pogba-juventus-future-thiago-motta/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/05/business/dealbook/israel-iran-global-economy.html
 **Cooper Flagg's Duke debut just the beginning in season full of highly anticipated steps**\
 `“I liked seeing him in a Duke uniform tonight,” coach Jon Scheyer said. “I know that much.”`\
 https://nytimes.com/athletic/5820093/2024/10/05/cooper-flagg-duke-basketball-countdown-craziness/
-
-**Subscriber bold predictions for the Blues' 2024-25 season: From wacky to fun to unlikely**\
-`Subscribers sent in their bold predictions for the 2024-25 season and I responded to each with my thoughts.`\
-https://nytimes.com/athletic/5817128/2024/10/05/blues-2024-25-season-bold-predictions/
 
