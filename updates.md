@@ -1,3 +1,11 @@
+**Everton 0 Newcastle 0: Gordon misses penalty in scrappy game - but clean sheet at last**\
+`Newcastle United drew 0-0 with Everton at Goodison Park, taking them to sixth in the Premier League table. Here are the key talking points.`\
+https://nytimes.com/athletic/5819000/2024/10/05/everton-0-newcastle-0-gordon-penalty/
+
+**James Magee, Creator of a Mysterious Desert Monument, Dies at 79**\
+`For 40 years, he built a group of stone and steel buildings in the West Texas desert to house his own monumental work. Only a few have been lucky enough to see it.`\
+https://nytimes.com/2024/10/05/arts/james-magee-dead.html
+
 **Man United sign youth striker Obi-Martin after Arsenal exit**\
 `Manchester United have confirmed the signing of Denmark youth international striker Chido Obi-Martin following the expiration of his schoolboy terms at Arsenal.`\
 https://nytimes.com/athletic/5661203/2024/10/05/chido-obi-martin-manchester-united-transfer-arsenal/
