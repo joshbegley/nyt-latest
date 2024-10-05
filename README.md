@@ -1,3 +1,7 @@
+**Yankees' Alex Verdugo to start in LF; Jasson Domínguez still unsure of postseason role**\
+`The Yankees will go with the player with more experience in Yankee Stadium's cavernous left field, according to a team source.`\
+https://nytimes.com/athletic/5819652/2024/10/04/yankees-alex-verdugo-jasson-dominguez-left-field-alds/
+
 **There Are Layers to This**\
 `Natan Last goes toe to toe with us in this challenging puzzle.`\
 https://nytimes.com/2024/10/04/crosswords/daily-puzzle-2024-10-05.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/us/politics/trump-wildfire-aid-california.html
 **Lynx's Cheryl Reeve confronted Sun players after Game 1**\
 `Reeve had an issue with how Connecticut celebrated its series-opening victory, league sources said.`\
 https://nytimes.com/athletic/5819599/2024/10/04/cheryl-reeve-lynx-sun-game-1/
-
-**2 Men Sentenced to Prison for Attacking Officers at Jan. 6 Riot**\
-`One of the men, from New Jersey, referred to lawmakers as “traitors” and encouraged other rioters to drag them out of the building by their hair, prosecutors said.`\
-https://nytimes.com/2024/10/04/nyregion/january-6-riot-prison-sentences.html
 
