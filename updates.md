@@ -1,3 +1,11 @@
+**Marvin Schlachter, Record Executive Who Championed Disco, Dies at 90**\
+`In the 1960s, he helped get wide exposure for Black artists like Dionne Warwick. A decade later, he brought dance music from the clubs to radio success.`\
+https://nytimes.com/2024/10/05/arts/music/marvin-schlachter-dead.html
+
+**Tracking Tropical Storm Milton**\
+`See the likely path and wind arrival times for Milton.`\
+https://nytimes.com/interactive/2024/weather/fourteen-map-path-tracker.html
+
 **NC State QB Grayson McCall carted off field on stretcher**\
 `McCall showed movement in his arms, hugging his parents and signaling to the crowd with his hand, before being taken off the field. `\
 https://nytimes.com/athletic/5820495/2024/10/05/nc-state-grayson-mccall-injury-wake-forest/

@@ -1,3 +1,7 @@
+**Marvin Schlachter, Record Executive Who Championed Disco, Dies at 90**\
+`In the 1960s, he helped get wide exposure for Black artists like Dionne Warwick. A decade later, he brought dance music from the clubs to radio success.`\
+https://nytimes.com/2024/10/05/arts/music/marvin-schlachter-dead.html
+
 **NC State QB Grayson McCall carted off field on stretcher**\
 `McCall showed movement in his arms, hugging his parents and signaling to the crowd with his hand, before being taken off the field. `\
 https://nytimes.com/athletic/5820495/2024/10/05/nc-state-grayson-mccall-injury-wake-forest/
@@ -27,14 +31,10 @@ https://nytimes.com/live/2024/10/05/weather/tropical-storm-gulf-florida-hurrican
 https://nytimes.com/athletic/5819849/2024/10/05/la-lakers-bronny-james-nba-preseason-takeaways/
 
 **Tracking Tropical Storm Milton**\
-`See the likely path and wind arrival times for the tropical storm.`\
+`See the likely path and wind arrival times for Milton.`\
 https://nytimes.com/interactive/2024/weather/fourteen-map-path-tracker.html
 
 **The Briefing: Arsenal 3 Southampton 1 - Resillience, Havertz eclipses Jesus, and how was Ramsdale received?**\
 `Mikel Arteta's side came from behind to beat Southampton and maintain momentum in pursuit of Liverpool at the top of the Premier League`\
 https://nytimes.com/athletic/5818998/2024/10/05/arsenal-southampton-saka-partey-ramsdale-briefing/
-
-**The Briefing: Man City 3 Fulham 2 - Kovacic and Doku seal win after Traore's dangerous breaks**\
-`Manchester City beat Fulham 3-2 after a double from Kovacic and a late strike from Doku - but the visitors made it nervy…`\
-https://nytimes.com/athletic/5818999/2024/10/05/manchester-city-3-fulham-2-result-kovacic/
 
