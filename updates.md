@@ -1,3 +1,7 @@
+**Former Gov. David Paterson of New York Assaulted in Manhattan**\
+`Mr. Paterson and his stepson suffered minor injuries in a street attack on Friday. The former governor was not believed to have been targeted in the assault, the police said.`\
+https://nytimes.com/2024/10/05/nyregion/david-paterson-governor-new-york-attack.html
+
 **QB collectability power rankings: Whose trading cards are hottest right now**\
 `Our rankings of who's hot right now in the trading card world `\
 https://nytimes.com/athletic/5818826/2024/10/05/quarterback-cards-brady-mahomes-stroud/
