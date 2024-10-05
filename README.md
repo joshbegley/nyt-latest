@@ -11,7 +11,7 @@ https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/iranian-
 https://nytimes.com/athletic/5820965/2024/10/05/mets-phillies-score-takeaways-zack-wheeler/
 
 **Georgia looks less inspired and more methodical against Auburn**\
-`Georgia did beat Auburn, but the Bulldogs didn't rack up many style points in the rivalry victory.`\
+`Georgia beat Auburn, but the Bulldogs didn't rack up many style points in the rivalry victory.`\
 https://nytimes.com/athletic/5820334/2024/10/05/georgia-auburn-football-score-results-takeaways/
 
 **Is Ohio State ready for Oregon? Buckeyes passed test against risk-averse Iowa**\
