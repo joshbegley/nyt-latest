@@ -1,3 +1,7 @@
+**Dodgers' Freddie Freeman says ankle 'good enough' to play in NLDS**\
+`Dodgers manager Dave Roberts expressed confidence that Freeman would be in the lineup on Saturday.`\
+https://nytimes.com/athletic/5819667/2024/10/04/dodgers-freddie-freeman-ankle-nlds/
+
 **Braves' Alex Anthopoulos on Max Fried, Ronald Acuña Jr. and more**\
 `Anthopoulos fielded questions about a wide range of topics, including the Braves' offseason priorities. `\
 https://nytimes.com/athletic/5819568/2024/10/04/braves-mlb-max-free-offseason-needs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/04/us/oklahoma-schools-trump-bible.html
 **Israel Expands Attacks on Hezbollah as Iran Warns of Retaliation**\
 `Israel is drastically widening its fight against the Lebanese militant group that is backed by Iran, whose supreme leader said that “any strike on the Zionist regime is a service to humanity.”`\
 https://nytimes.com/2024/10/04/world/middleeast/israel-hezbollah-lebanon.html
-
-**Packers' Keisean Nixon's three-peat bid in jeopardy since nobody will kick to him**\
-`The Packers' back-to-back first-team All-Pro kick returner has been back for 17 kickoffs and 16 have gone for touchbacks.`\
-https://nytimes.com/athletic/5819357/2024/10/04/packers-keisean-nixon-kickoff-return/
 
