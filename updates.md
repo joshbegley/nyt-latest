@@ -1,3 +1,19 @@
+**What's going on with Jude Bellingham's shoulder?**\
+`The 21-year-old dislocated his shoulder with Real Madrid last year and concerns remain over potential future recurrences`\
+https://nytimes.com/athletic/5818033/2024/10/05/jude-bellingham-real-madrid-la-liga-shoulder-injury/
+
+**Should we be concerned about the Blackhawks' 'embarrassing' preseason?**\
+`The Blackhawks' 0-5 mark with seven goals in the preseason is disconcerting no matter the time of year, no matter the lineup.`\
+https://nytimes.com/athletic/5819872/2024/10/05/blackhawks-wild-nhl-preseason/
+
+**Battle of the high lines: How Brighton and Tottenham's defences compare**\
+`What are the strengths and weaknesses of Fabian Hurzeler and Ange Postecoglou's defensive setups?`\
+https://nytimes.com/athletic/5812688/2024/10/05/brighton-tottenham-high-line-tactical-analysis/
+
+**13 insights fantasy football managers need to know ahead of Week 5**\
+`Theo Gremminger highlights the emergence of yet another 2023 rookie, Brian Thomas Jr., as he shares insights on 13 players ahead of Week 5.`\
+https://nytimes.com/athletic/5818715/2024/10/05/13-insights-fantasy-football-week-5/
+
 **Iowa at Ohio State picks, odds, how to watch: Can Hawkeyes defense contain the Buckeyes?**\
 `Ohio State has blown away the opposition so far, but gets a different kind of test in Iowa and the Hawkeyes' stout defense.`\
 https://nytimes.com/athletic/5816752/2024/10/05/iowa-ohio-state-picks-odds-how-to-watch/
