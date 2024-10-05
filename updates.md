@@ -1,3 +1,7 @@
+**5 Takeaways From Melania Trump’s Book**\
+`Shining a little more light on her mysterious life, her memoir details her support for abortion rights, her doubts about the 2020 election and her explanation for that “I really don’t care” jacket.`\
+https://nytimes.com/2024/10/04/us/politics/melania-trump-book-abortion-2020-election.html
+
 **Aaron Boone says Juan Soto 'loving' time with Yankees as free agency looms before ALDS**\
 `Soto's future was the biggest topic as the Yankees prepared to start their postseason series against the Royals.`\
 https://nytimes.com/athletic/5819706/2024/10/04/aaron-boone-juan-soto-loving-yankees-free-agency-alds/
