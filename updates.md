@@ -1,3 +1,7 @@
+**Subscriber bold predictions for the Blues' 2024-25 season: From wacky to fun to unlikely**\
+`Subscribers sent in their bold predictions for the 2024-25 season and I responded to each with my thoughts.`\
+https://nytimes.com/athletic/5817128/2024/10/05/blues-2024-25-season-bold-predictions/
+
 **What to Know: How Israel Could Retaliate Against Iran**\
 `Iran has a number of sensitive sites, including oil infrastructure, military installations and nuclear facilities.`\
 https://nytimes.com/2024/10/05/world/middleeast/israel-iran-retaliation.html
