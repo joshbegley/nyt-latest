@@ -1,3 +1,7 @@
+**Deadly Marburg Virus Hits Rwanda’s Doctors and Nurses Hard**\
+`The health ministry has reported that 80 percent of the infected are health care professionals.`\
+https://nytimes.com/2024/10/05/world/africa/rwanda-marburg-doctors-and-nurses.html
+
 **Michigan Father Dies in Israeli Airstrike in Lebanon, Family Says**\
 `Kamel Ahmad Jawad, a U.S. citizen, was remembered by friends and relatives as someone who chose to stay behind to help others who couldn’t flee.`\
 https://nytimes.com/2024/10/05/world/middleeast/michigan-father-lebanon-airstrike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819969/2024/10/05/las-vegas-aces-game-three-win/
 **Josh Minott shines in Timberwolves' preseason opener, validating his approach to the game**\
 `Minott scored 22 points and grabbed eight rebounds in Minnesota's 124-107 victory over the Los Angeles Lakers on Friday.`\
 https://nytimes.com/athletic/5819908/2024/10/05/timberwolves-preseason-opener-josh-minott/
-
-**Marcus Rashford's 45 minutes vs Porto: What worked and what didn't?**\
-`Analysis of a mixed night for the United forward in the Europa League. Plenty of dangerous attacking endeavour, but some defensive lapses`\
-https://nytimes.com/athletic/5818402/2024/10/05/marcus-rashford-porto-performance-analysis/
 

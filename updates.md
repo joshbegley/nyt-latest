@@ -1,3 +1,7 @@
+**Deadly Marburg Virus Hits Rwanda’s Doctors and Nurses Hard**\
+`The health ministry has reported that 80 percent of the infected are health care professionals.`\
+https://nytimes.com/2024/10/05/world/africa/rwanda-marburg-doctors-and-nurses.html
+
 **Michigan Father Dies in Israeli Airstrike in Lebanon, Family Says**\
 `Kamel Ahmad Jawad, a U.S. citizen, was remembered by friends and relatives as someone who chose to stay behind to help others who couldn’t flee.`\
 https://nytimes.com/2024/10/05/world/middleeast/michigan-father-lebanon-airstrike.html
