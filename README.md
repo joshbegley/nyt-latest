@@ -1,3 +1,7 @@
+**Israel Steps Up Attacks in Gaza and Lebanon Ahead of Oct. 7 Anniversary**\
+`Israel appeared to label much of northern Gaza as an evacuation zone and in Lebanon, Israeli airstrikes targeted Hezbollah strongholds, as the region also braced for Israel to hit back at Iran.`\
+https://nytimes.com/2024/10/06/world/middleeast/israel-gaza-lebanon-attacks.html
+
 **Liberty topple Aces, advance to WNBA Finals**\
 `The Liberty went on a 16-2 run in the fourth quarter to beat the Aces 76-62 and take the semifinal series.`\
 https://nytimes.com/athletic/5823098/2024/10/06/liberty-aces-wnba-result-game-4/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823096/2024/10/06/vanderbilt-arkansas-storm-field-
 **Jayden Daniels shines as Commanders beat Browns 34-13: Takeaways**\
 `The rookie quarterback became the first player in NFL history to put up 1,000 passing yards and 250 rushing yards through five games.`\
 https://nytimes.com/athletic/5822640/2024/10/06/browns-commanders-score-jayden-daniels-results-takeaways/
-
-**Submit your questions for Andrew Baggarly's next Giants Mailbagg!**\
-`The Giants 2024 season has ended but the team has dominated the news this week, as they moved on from president of baseball operations Farhan Zaidi and have turned the role over to franchise hero Buster Posey.`\
-https://nytimes.com/athletic/5823131/2024/10/06/sf-giants-mailbagg-question-submission/
 
