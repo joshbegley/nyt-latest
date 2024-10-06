@@ -1,3 +1,7 @@
+**NFL Week 5 takeaways: Can Bills get right? Does a Davante Adams-Jets trade still make sense?**\
+`Plus, is there any saving the Brown’s 2024 season?`\
+https://nytimes.com/athletic/5823194/2024/10/06/nfl-week-5-takeaways-buffalo-bills-offense-problems-jets-davante-adams-trade/
+
 **SEC fines Vanderbilt $100,000, Arkansas $250,000 for storming field**\
 `The fines will be paid to Alabama and Tennessee, respectively, a new wrinkle in the penalties adopted at the league’s 2023 spring meetings.`\
 https://nytimes.com/athletic/5823096/2024/10/06/vanderbilt-arkansas-storm-field-sec-fines/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822955/2024/10/06/jeff-mcneil-mets-return-nlcs/
 **A ‘Hallowed Place,’ With a Whiff of Onion Rings and Sun Block**\
 `Donald Trump returned to the site where he was shot in the ear. For some of his supporters, it was a religious event as much as a campaign rally.`\
 https://nytimes.com/2024/10/06/us/elections/trump-butler-religion.html
-
-**Antisemitic Incidents Reach New High in the U.S., Report Finds**\
-`The Anti-Defamation League has found that cases of antisemitism have surged in the wake of the Oct. 7 attack by Hamas against Israel last year.`\
-https://nytimes.com/2024/10/06/us/antisemitic-incidents-us-adl-report.html
 
