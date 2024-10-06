@@ -1,3 +1,15 @@
+**Morales: USC isn't ready to contend with Big Ten heavyweights**\
+`USC is not ready to contend at the highest levels of the Big Ten yet. And it won’t until it’s built to properly withstand the grind.`\
+https://nytimes.com/athletic/5821739/2024/10/06/usc-minnesota-big-ten-lincoln-riley/
+
+**10 bold Oilers predictions: Why this season will end with a Stanley Cup win**\
+`The Oilers came up just short of lifting the Cup a few months ago. This year will be different.`\
+https://nytimes.com/athletic/5819525/2024/10/06/edmonton-oilers-bold-predictions-2024/
+
+**Kyle Kuzma on the Mavericks trade that never happened**\
+`What does Kuzma think about the Wizards' direction? And does he regret staying in Washington last February instead of going to Dallas?`\
+https://nytimes.com/athletic/5821200/2024/10/06/kyle-kuzma-interview-wizards-mavericks/
+
 **Five lessons for the CFP race after the season's wildest weekend yet**\
 `Thanks to the 12-team College Football Playoff, no one gets eliminated by Week 6, but much was revealed on a chaotic Saturday.`\
 https://nytimes.com/athletic/5821623/2024/10/06/college-football-playoff-race-upsets-rankings/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5819897/2024/10/06/red-wings-roster-marco-kasper/
 **For Tarik Skubal and Matthew Boyd, ALDS Game 2 is more than just a meeting between rivals**\
 `When Game 2 of the ALDS kicks off, it'll be mentor against mentee as Matthew Boyd and Tarik Skubal face off. `\
 https://nytimes.com/athletic/5821187/2024/10/06/matthew-boyd-tarik-skubal-tigers-guardians-alds/
-
-**The Sunday Read: ‘The Blind Side’ Made Him Famous. But He Has a Different Story to Tell.**\
-`The football player Michael Oher believes his early life was misrepresented by the Oscar-winning movie and the book it was based on.`\
-https://nytimes.com/2024/10/06/podcasts/the-daily/blind-side.html
-
-**Kamala Harris Is Turning a Trump Tactic on Its Head**\
-`Trump wants to position himself as the nation’s protector. But Harris is offering real-world, practical protection on the issues that matter.`\
-https://nytimes.com/2024/10/06/opinion/kamala-harris-donald-trump-security.html
-
-**The Connections Companion No. 484**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 7, 2024.`\
-https://nytimes.com/2024/10/06/crosswords/connections-companion-484.html
 
