@@ -1,3 +1,7 @@
+**A new Israeli map labels nearly all of northern Gaza ‘new evacuation zones.’**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/a-new-israeli-map-labels-all-of-northern-gaza-new-evacuation-zones
+
 **The Pulse: Does this stunning upset even matter?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5822089/2024/10/06/vanderbilt-alabama-college-football-nfl-the-pulse/
