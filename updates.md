@@ -1,3 +1,7 @@
+**'You could see the daylight': Royals left puzzled by replay decision in loss to Yankees**\
+`It was a familiar October play, leaving viewers studying pixelated close-ups of multiple angles and coming up with their own opinions. `\
+https://nytimes.com/athletic/5821503/2024/10/06/royals-yankees-replay-decision/
+
 **Blackhawks observations: How much patience will Chicago have with Lukas Reichel?**\
 `The Blackhawks want more from Reichel — more assertiveness, more selfishness and more like the player they envision him to be.`\
 https://nytimes.com/athletic/5821434/2024/10/06/blackhawks-observations-lukas-reichel/
