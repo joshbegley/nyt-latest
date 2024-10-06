@@ -1,3 +1,15 @@
+**Live Q&A: Week 5 fantasy football start/sit chat with Jay Felicio, Sunday, 10/6 at 11 a.m. ET**\
+`Submit your Week 5 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5819260/2024/10/06/live-qa-week-5-fantasy-football-start-sit-chat-with-jay-felicio-sunday-10-6-at-11-a-m-et/
+
+**Tacita Dean Draws Her Way Into the Menil**\
+`In the artist’s first major U.S. museum survey, she bonds with Cy Twombly through works on paper, films and photographs.`\
+https://nytimes.com/2024/10/06/arts/design/tacita-dean-drawings-twombly-menil.html
+
+**Pope Names 21 New Cardinals, Reaching Far Beyond Europe**\
+`The appointments cement Francis’ imprint on the group that will choose his successor, and reflect his vision of a more truly global Roman Catholic Church.`\
+https://nytimes.com/2024/10/06/world/europe/pope-francis-cardinals.html
+
 **Coco Gauff wins China Open the old way, with a new team**\
 `Change coach.`\
 https://nytimes.com/athletic/5821988/2024/10/06/coco-gauff-china-open-result-analysis/
