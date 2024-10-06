@@ -1,3 +1,7 @@
+**Peter Jay, Headline-Making British Ambassador to the U.S., Dies at 87**\
+`His appointment sparked criticism and charges of nepotism. He later achieved unwanted attention as a character in the novel “Heartburn.”`\
+https://nytimes.com/2024/10/06/world/europe/peter-jay-dead.html
+
 **Blue Jackets Sunday Gathering: Jenner, Voronkov injuries cause ripple effect**\
 `Will the Blue Jackets fill out their roster with an addition from the waiver wire?`\
 https://nytimes.com/athletic/5820315/2024/10/06/blue-jackets-jenner-voronkov/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820410/2024/10/06/oilers-drafts-ken-holland-era/
 **A new Israeli map labels nearly all of northern Gaza ‘new evacuation zones.’**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/a-new-israeli-map-labels-all-of-northern-gaza-new-evacuation-zones
-
-**The Pulse: Does this stunning upset even matter?**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/5822089/2024/10/06/vanderbilt-alabama-college-football-nfl-the-pulse/
 
