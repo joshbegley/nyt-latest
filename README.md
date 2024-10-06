@@ -1,3 +1,7 @@
+**2 Boys Charged in Manhattan Assault on Former Gov. David Paterson**\
+`The boys, 12 and 13, were charged with gang assault, according to the police. Two adults who were involved in the attack have not been caught, the police said.`\
+https://nytimes.com/2024/10/06/nyregion/david-paterson-attack-boys-charged.html
+
 **The Briefing: Brighton 3 Spurs 2: An incredible collapse and where the defence went wrong**\
 `Our writers break down the action from an incredible game at the Amex Stadium.`\
 https://nytimes.com/athletic/5819063/2024/10/06/tottenham-brighton-comeback-solanke/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822460/2024/10/06/falorin-balogun-injury-usmnt-upd
 **Phillies bench Alec Bohm for Game 2 vs. Mets**\
 `"He's scuffling a little bit," Rob Thomson said. The manager known for his steadiness has decided to sit Bohm in favor of Edmundo Sosa. `\
 https://nytimes.com/athletic/5822461/2024/10/06/alec-bohm-benched-phillies-mets/
-
-**What's 'Calgorithm?' Cal football fans bask in limelight of satirical, self-aware social media**\
-`Behold, the ballooning cultural clout of the Calgorithm, a guerilla-like social media movement that leans into sarcasm and stereotypes.`\
-https://nytimes.com/athletic/5822321/2024/10/06/cal-football-calgorithm-college-gameday-espn/
 
