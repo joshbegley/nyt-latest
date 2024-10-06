@@ -1,3 +1,11 @@
+**USC's sloppy loss to Minnesota puts CFP talk on the shelf**\
+`If USC can lose to Minnesota, it can lose to almost anybody else remaining on the schedule.`\
+https://nytimes.com/athletic/5821432/2024/10/05/usc-trojans-minnesota-big-ten/
+
+**Arkansas upsets No. 4 Tennessee: What it means for Vols' Playoff hopes**\
+`Arkansas upset No.`\
+https://nytimes.com/athletic/5821435/2024/10/05/arkansas-tennessee-upset-sec-college-football/
+
 **Ravens at Bengals odds, picks, how to watch: A clash of two Super Bowl hopefuls**\
 `Two Super Bowl contenders are hoping to leave slow starts behind them as the Ravens are narrowly favored in Cincinnati.`\
 https://nytimes.com/athletic/5818594/2024/10/05/ravens-bengals-odds-expert-picks-how-to-watch-predictions-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5821312/2024/10/05/phillies-hitters-struggle-game-1
 **Yankees outlast Royals to win Game 1: Takeaways**\
 `Alex Verdugo knocked in the go-ahead run to give the Yankees a 6-5 win in Game 1 of the ALDS. `\
 https://nytimes.com/athletic/5821231/2024/10/05/yankees-royals-game-1-alds-takeaways/
-
-**Mets steal Game 1 with makeshift pitching plan: 'It went about perfect'**\
-`Of the 27 outs the Mets recorded in Game 1, zero came from pitchers on their Opening Day roster.`\
-https://nytimes.com/athletic/5821267/2024/10/05/mets-phillies-nlds-kodai-senga/
-
-**Elon Musk Leaps to Trump’s Side in Rally Appearance**\
-`Mr. Musk, the world’s richest man and the leader of Tesla and X, endorsed the former president after the attempted assassination in July. On Saturday, he returned to the scene and made a spirited rally appearance.`\
-https://nytimes.com/2024/10/05/us/politics/elon-musk-trump-butler-rally.html
 
