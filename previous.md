@@ -1,3 +1,11 @@
+**Maguire and Evans start for Man Utd against Aston Villa**\
+`Manchester United manager Erik ten Hag has selected Harry Maguire and Jonny Evans to start at centre-back against Aston Villa in place of Matthijs de Ligt and Lisandro Martinez.`\
+https://nytimes.com/athletic/5821921/2024/10/06/maguire-evans-manchester-united-aston-villa/
+
+**Ship in Need of Repairs Has Explosive Cargo, but No Dock**\
+`The MV Ruby has meandered around Europe’s northwestern coastline under a cloud of suspicion over its thousands of tons of Russian fertilizer.`\
+https://nytimes.com/2024/10/06/world/europe/ship-explosives.html
+
 **Rosenthal: How Freddie Freeman went from 'one percent chance' of playing in Game 1 to starring in it**\
 `The veteran first baseman has been dealing with an ankle injury, as well as soreness in his side.`\
 https://nytimes.com/athletic/5821912/2024/10/06/freddie-freeman-nlds-dodgers-padres/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5821788/2024/10/06/mets-comebacks-ohtani-debut-yank
 **Why Matt Quatraro is the perfect fit for the new Kansas City Royals**\
 `Every game is a chess match, and Quatraro relishes the strategic element in outmaneuvering opponents. `\
 https://nytimes.com/athletic/5820525/2024/10/06/matt-quatraro-kansas-city-royals-2024-playoffs/
-
-**Inside the unique way the Flyers are trying to fix their biggest problem**\
-`Flyers assistant coach Rocky Thompson is tasked with fixing the power play, which finished with a 12.2 percent success rate last season.`\
-https://nytimes.com/athletic/5819296/2024/10/06/flyers-power-play-problems/
-
-**Jets depth chart: Analyzing Winnipeg's strengths and weaknesses**\
-`On paper, the Jets are a probable playoff team without an inside track to Stanley Cup contention.`\
-https://nytimes.com/athletic/5818674/2024/10/06/winnipeg-jets-depth-chart-2024/
 

@@ -1,3 +1,11 @@
+**Maguire and Evans start for Man Utd against Aston Villa**\
+`Manchester United manager Erik ten Hag has selected Harry Maguire and Jonny Evans to start at centre-back against Aston Villa in place of Matthijs de Ligt and Lisandro Martinez.`\
+https://nytimes.com/athletic/5821921/2024/10/06/maguire-evans-manchester-united-aston-villa/
+
+**Ship in Need of Repairs Has Explosive Cargo, but No Dock**\
+`The MV Ruby has meandered around Europe’s northwestern coastline under a cloud of suspicion over its thousands of tons of Russian fertilizer.`\
+https://nytimes.com/2024/10/06/world/europe/ship-explosives.html
+
 **Rosenthal: How Freddie Freeman went from 'one percent chance' of playing in Game 1 to starring in it**\
 `The veteran first baseman has been dealing with an ankle injury, as well as soreness in his side.`\
 https://nytimes.com/athletic/5821912/2024/10/06/freddie-freeman-nlds-dodgers-padres/
