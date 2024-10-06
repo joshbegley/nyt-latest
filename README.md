@@ -1,7 +1,3 @@
-**Greenberg: And in their fifth game, Caleb Williams and the Bears offense showed up**\
-`Chicago compiled 424 net yards and had a 3-0 turnover edge in its 36-10 win vs. Carolina. "That should be the standard," Kevin Byars said.`\
-https://nytimes.com/athletic/5823471/2024/10/06/bears-panthers-caleb-williams-offense/
-
 **Evacuation Orders Posted as Florida Braces for Hurricane Milton**\
 `The powerful, life-threatening hurricane is expected to make landfall on Wednesday even as residents continue to recover from Hurricane Helene.`\
 https://nytimes.com/2024/10/06/weather/florida-storm-milton-preparation.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5823394/2024/10/06/jets-vikings-brian-flores-defens
 **Lloyd: Browns need a QB change to salvage what's left of their season**\
 `Deshaun Watson is an infection with no known cure. The Browns can’t cut or trade him, and they refuse let to him cash checks from the bench.`\
 https://nytimes.com/athletic/5823426/2024/10/06/cleveland-browns-deshaun-watson-commanders/
+
+**Raiders bench Gardner Minshew for Aidan O'Connell after 2 INT day vs. Broncos**\
+`O'Connell went 5-5 as the Raiders starter during his rookie season in 2023. `\
+https://nytimes.com/athletic/5823421/2024/10/06/gardner-minshew-benched-aidan-oconnell-raiders/
 
