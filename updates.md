@@ -1,3 +1,7 @@
+**Gaza’s Schools Are for Learning, Not for Dying**\
+`Schools across Gaza have turned into refugee centers, and Israeli attacks on them have killed hundreds.`\
+https://nytimes.com/2024/10/06/opinion/schools-shelters-gaza-israel.html
+
 **Can Alabama recover after Vandy upset? Fate of Kalen DeBoer's debut rests with leaders**\
 `What exactly went wrong for Alabama on Saturday? Previous areas of concern came back to bit the Tide at Vanderbilt.`\
 https://nytimes.com/athletic/5821420/2024/10/06/alabama-vanderbilt-loss-playoff/

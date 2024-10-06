@@ -1,3 +1,7 @@
+**Gaza’s Schools Are for Learning, Not for Dying**\
+`Schools across Gaza have turned into refugee centers, and Israeli attacks on them have killed hundreds.`\
+https://nytimes.com/2024/10/06/opinion/schools-shelters-gaza-israel.html
+
 **Buffalo Bills at Houston Texans odds, expert picks, how to watch: Star matchup between Josh Allen and C.J. Stroud**\
 `The 3-1 Texans host the 3-1 Buffalo Bills on Sunday afternoon with the odds putting this game as a virtual toss-up.`\
 https://nytimes.com/athletic/5818725/2024/10/06/bills-texans-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818685/2024/10/06/browns-commanders-odds-expert-pi
 **An absurd preseason game provides precious few answers to Canadiens and Senators**\
 `The Canadiens and Senators entered their final game before the start of the regular season needing answers and essentially got none.`\
 https://nytimes.com/athletic/5821449/2024/10/06/canadiens-senators-arber-xhekaj-nhl-preseason/
-
-**Sickle cell and football: Why the disease that mainly affects Black people needs more research**\
-`Black people are at a much higher risk of being affected by sickle cell — and the effects can be fatal. More research is needed to combat it`\
-https://nytimes.com/athletic/5102814/2024/10/06/sickle-cell-research-lassana-diarra/
 
