@@ -1,3 +1,7 @@
+**Weird & Wild: 'Mission Improbable' Mets, Ohtani's Oct-oh-ber debut, Yanks-Royals lead way**\
+`Weird and Wild watched 11 hours and six minutes of baseball Saturday — with 43 pitchers firing 1,466 pitches. Here are the highlights. `\
+https://nytimes.com/athletic/5821788/2024/10/06/mets-comebacks-ohtani-debut-yankees-royals-lead-changes/
+
 **Why Matt Quatraro is the perfect fit for the new Kansas City Royals**\
 `Every game is a chess match, and Quatraro relishes the strategic element in outmaneuvering opponents. `\
 https://nytimes.com/athletic/5820525/2024/10/06/matt-quatraro-kansas-city-royals-2024-playoffs/
