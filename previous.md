@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Neil Vigdor`\
+https://nytimes.com/live/2024/10/06/us/election-trump-harris/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Trump Heads to Wisconsin as Harris Plans Media Blitz**\
+`The former president will hold a rally in another Midwest battleground that flipped away from him in 2020. Vice President Kamala Harris, who largely avoided interviews as her campaign began, now has several lined up.`\
+https://nytimes.com/live/2024/10/06/us/election-trump-harris
+
 **Maguire and Evans start for Man Utd against Aston Villa**\
 `Manchester United manager Erik ten Hag has selected Harry Maguire and Jonny Evans to start at centre-back against Aston Villa in place of Matthijs de Ligt and Lisandro Martinez.`\
 https://nytimes.com/athletic/5821921/2024/10/06/maguire-evans-manchester-united-aston-villa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5821200/2024/10/06/kyle-kuzma-interview-wizards-mav
 **Five lessons for the CFP race after the season's wildest weekend yet**\
 `Thanks to the 12-team College Football Playoff, no one gets eliminated by Week 6, but much was revealed on a chaotic Saturday.`\
 https://nytimes.com/athletic/5821623/2024/10/06/college-football-playoff-race-upsets-rankings/
-
-**Weird & Wild: 'Mission Improbable' Mets, Ohtani's Oct-Oh-ber debut, Yanks-Royals lead way**\
-`Weird and Wild watched 11 hours and six minutes of baseball Saturday — with 43 pitchers firing 1,466 pitches. Here are the highlights. `\
-https://nytimes.com/athletic/5821788/2024/10/06/mets-comebacks-ohtani-debut-yankees-royals-lead-changes/
-
-**Why Matt Quatraro is the perfect fit for the new Kansas City Royals**\
-`Every game is a chess match, and Quatraro relishes the strategic element in outmaneuvering opponents. `\
-https://nytimes.com/athletic/5820525/2024/10/06/matt-quatraro-kansas-city-royals-2024-playoffs/
 

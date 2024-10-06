@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Neil Vigdor`\
+https://nytimes.com/live/2024/10/06/us/election-trump-harris/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Trump Heads to Wisconsin as Harris Plans Media Blitz**\
+`The former president will hold a rally in another Midwest battleground that flipped away from him in 2020. Vice President Kamala Harris, who largely avoided interviews as her campaign began, now has several lined up.`\
+https://nytimes.com/live/2024/10/06/us/election-trump-harris
+
 **Maguire and Evans start for Man Utd against Aston Villa**\
 `Manchester United manager Erik ten Hag has selected Harry Maguire and Jonny Evans to start at centre-back against Aston Villa in place of Matthijs de Ligt and Lisandro Martinez.`\
 https://nytimes.com/athletic/5821921/2024/10/06/maguire-evans-manchester-united-aston-villa/
