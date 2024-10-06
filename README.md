@@ -1,3 +1,7 @@
+**How does Vanderbilt's upset over Alabama impact the College Football Playoff?**\
+`The beauty of college football is you never truly know what’s going to happen, and the race for the CFP looks completely wide open.`\
+https://nytimes.com/athletic/5821180/2024/10/05/vanderbilt-alabama-college-football-playoff-upset-impact/
+
 **Vanderbilt knocks off No. 1 Bama. Is this the biggest upset in SEC history?**\
 `Vandy got its first-ever win over an AP top-five team behind star QB Diego Pavia, a strong running game and Alabama mistakes.`\
 https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820965/2024/10/05/mets-phillies-score-takeaways-za
 **Georgia looks less inspired and more methodical against Auburn**\
 `Georgia beat Auburn, but the Bulldogs didn't rack up many style points in the rivalry victory.`\
 https://nytimes.com/athletic/5820334/2024/10/05/georgia-auburn-football-score-results-takeaways/
-
-**Is Ohio State ready for Oregon? Buckeyes passed test against risk-averse Iowa**\
-`After a sluggish first half, No. 3 Ohio State pulled away for a dominant 35-7 win against Iowa. Here's what we learned.`\
-https://nytimes.com/athletic/5820976/2024/10/05/ohio-state-iowa-football-score-recap/
 
