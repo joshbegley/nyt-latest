@@ -1,3 +1,7 @@
+**With one swing, Shohei Ohtani ignites the Dodgers in Game 1 win**\
+`As one Dodgers player said, Ohtani "injected an absolute lightning bolt into the stadium.”`\
+https://nytimes.com/athletic/5821661/2024/10/06/dodgers-padres-shoei-ohtani-homer/
+
 **‘Saturday Night Live’ Revisits the Vice-Presidential Debate**\
 `The comic Nate Bargatze hosted an episode that opened with another political sketch featuring the guest stars Dana Carvey, Jim Gaffigan, Maya Rudolph and Andy Samberg.`\
 https://nytimes.com/2024/10/06/arts/television/saturday-night-live-recap.html
