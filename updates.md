@@ -1,3 +1,7 @@
+**Vanderbilt knocks off No. 1 Bama. Is this the biggest upset in SEC history?**\
+`Vandy got its first-ever win over an AP top-five team behind star QB Diego Pavia, a strong running game and Alabama mistakes.`\
+https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
+
 **Vanderbilt knocks off No. 1 Alabama. Is this the biggest upset in SEC history?**\
 `Vandy got its first-ever win over an AP top-five team behind star QB Diego Pavia, a strong running game and Alabama mistakes.`\
 https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
