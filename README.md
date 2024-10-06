@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Revisits the Vice-Presidential Debate**\
+`The comic Nate Bargatze hosted an episode that opened with another political sketch featuring the guest stars Dana Carvey, Jim Gaffigan, Maya Rudolph and Andy Samberg.`\
+https://nytimes.com/2024/10/06/arts/television/saturday-night-live-recap.html
+
 **Blackhawks observations: How much patience will Chicago have with Lukas Reichel?**\
 `The Blackhawks want more from Reichel — more assertiveness, more selfishness and more like the player they envision him to be.`\
 https://nytimes.com/athletic/5821434/2024/10/06/blackhawks-observations-lukas-reichel/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5821503/2024/10/06/royals-yankees-replay-decision/
 **Gaza’s Schools Are for Learning, Not for Dying**\
 `Schools across Gaza have turned into refugee centers, and Israeli attacks on them have killed hundreds.`\
 https://nytimes.com/2024/10/06/opinion/schools-shelters-gaza-israel.html
-
-**Buffalo Bills at Houston Texans odds, expert picks, how to watch: Star matchup between Josh Allen and C.J. Stroud**\
-`The 3-1 Texans host the 3-1 Buffalo Bills on Sunday afternoon with the odds putting this game as a virtual toss-up.`\
-https://nytimes.com/athletic/5818725/2024/10/06/bills-texans-odds-expert-picks-how-to-watch-predictions-betting/
 
