@@ -1,3 +1,7 @@
+**‘Hallowed Ground,’ With a Whiff of Onion Rings and Sun Block**\
+`Donald Trump returned to the site where he was shot in the ear. For some of his supporters, it was a religious event as much as a campaign rally.`\
+https://nytimes.com/2024/10/06/us/elections/trump-butler-religion.html
+
 **Antisemitic Incidents Reach New High in the U.S., Report Finds**\
 `The Anti-Defamation League has found that cases of antisemitism have surged in the wake of the Oct. 7 attack by Hamas against Israel last year.`\
 https://nytimes.com/2024/10/06/us/antisemitic-incidents-us-adl-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822176/2024/10/06/bills-texans-takeaways-result/
 **Stewart Mandel's 12-team Playoff projections after Week 6**\
 `Stunning losses by Alabama and Tennessee change up this week's projections with Notre Dame returning and Boise State rolling.`\
 https://nytimes.com/athletic/5822721/2024/10/06/college-football-playoff-bracket-projections-week-6/
-
-**Michael Jordan confident in outcome of lawsuit against NASCAR**\
-`"I didn't just file it for me. It's for everyone,” Jordan told The Athletic on Sunday about the antitrust suit.`\
-https://nytimes.com/athletic/5822733/2024/10/06/michael-jordan-nascar-lawsuit/
 
