@@ -1,3 +1,7 @@
+**The Briefing: Brighton 3 Spurs 2: An incredible collapse and where the defence went wrong**\
+`Our writers break down the action from an incredible game at the Amex Stadium.`\
+https://nytimes.com/athletic/5819063/2024/10/06/tottenham-brighton-comeback-solanke/
+
 **Susie Maxwell Berning, Hall of Fame Golfer, Is Dead at 83**\
 `She often took time away from the tour for her family. But she tallied 11 championships, including three in the U.S. Women’s Open.`\
 https://nytimes.com/2024/10/06/sports/golf/susie-maxwell-berning-deas.html

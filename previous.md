@@ -1,3 +1,7 @@
+**The Briefing: Brighton 3 Spurs 2: An incredible collapse and where the defence went wrong**\
+`Our writers break down the action from an incredible game at the Amex Stadium.`\
+https://nytimes.com/athletic/5819063/2024/10/06/tottenham-brighton-comeback-solanke/
+
 **Susie Maxwell Berning, Hall of Fame Golfer, Is Dead at 83**\
 `She often took time away from the tour for her family. But she tallied 11 championships, including three in the U.S. Women’s Open.`\
 https://nytimes.com/2024/10/06/sports/golf/susie-maxwell-berning-deas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822461/2024/10/06/alec-bohm-benched-phillies-mets/
 **What's 'Calgorithm?' Cal football fans bask in limelight of satirical, self-aware social media**\
 `Behold, the ballooning cultural clout of the Calgorithm, a guerilla-like social media movement that leans into sarcasm and stereotypes.`\
 https://nytimes.com/athletic/5822321/2024/10/06/cal-football-calgorithm-college-gameday-espn/
-
-**Espirito Santo 'worried' about Forest midfielder Gibbs-White's ankle injury**\
-`Nottingham Forest’s Morgan Gibbs-White will have a scan on an ankle injury tomorrow before it is decided whether he will join up with the England squad.`\
-https://nytimes.com/athletic/5822403/2024/10/06/morgan-gibbs-white-injury-update/
 
