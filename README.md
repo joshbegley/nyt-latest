@@ -6,8 +6,8 @@ https://nytimes.com/athletic/5821434/2024/10/06/blackhawks-observations-lukas-re
 `Golden State also showed a bigger frontcourt, but Moses Moody is still looking for a defined rotation role.`\
 https://nytimes.com/athletic/5821199/2024/10/06/golden-state-lindy-waters-game-winner/
 
-**Yankees’ Alex Verdugo gets revenge and silences haters in Game 1 win**\
-`After a disappointing regular season for the Yankees, Verdugo came up big in the Yankees' first playoff game.`\
+**Yankees' Alex Verdugo gets revenge and silences haters in Game 1 win**\
+`After a disappointing regular season for the Yankees, Verdugo came up big in their first playoff game.`\
 https://nytimes.com/athletic/5821335/2024/10/06/yankees-alex-verdugo-revenge-game/
 
 **Reverting Royals pitchers' walk issues give Yankees an edge in Game 1 of ALDS**\
