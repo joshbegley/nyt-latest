@@ -1,4 +1,4 @@
-**Raiders bench Gardner Minshew for Aidan O'Connell in third quarter vs. Broncos**\
+**Raiders bench Gardner Minshew for Aidan O'Connell after 2 INT day vs. Broncos**\
 `O'Connell went 5-5 as the Raiders starter during his rookie season in 2023. `\
 https://nytimes.com/athletic/5823421/2024/10/06/gardner-minshew-benched-aidan-oconnell-raiders/
 
