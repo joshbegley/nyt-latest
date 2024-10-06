@@ -1,3 +1,11 @@
+**Do Careerism and College Mix?**\
+`Readers respond to a guest essay by a recent college graduate. Also: New York City’s new outdoor dining program; how immigrants built America.`\
+https://nytimes.com/2024/10/06/opinion/careers-college.html
+
+**Mississippi Roast Two Ways**\
+`Go with the internet-famous version, or make our from-scratch recipe. Both are objectively fantastic.`\
+https://nytimes.com/2024/10/06/dining/mississippi-roast-two-ways.html
+
 **Lowetide: Why the Oilers' drafts during Ken Holland era will forever be a disappointment**\
 `The Holland years were defined by aggressive usage of prime draft picks as assets for trades.`\
 https://nytimes.com/athletic/5820410/2024/10/06/oilers-drafts-ken-holland-era/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/06/world/europe/pope-francis-cardinals.html
 **Coco Gauff wins China Open the old way, with a new team**\
 `Change coach.`\
 https://nytimes.com/athletic/5821988/2024/10/06/coco-gauff-china-open-result-analysis/
-
-**Bruins sign Jeremy Swayman to 8-year, $8.25 million AAV extension**\
-`The agreement defines Swayman, for the first time in his career, as the Bruins’ No. 1 goaltender — for today and tomorrow.`\
-https://nytimes.com/athletic/5765319/2024/10/06/bruins-jeremy-swayman-contract-extension/
-
-**An Artist Rethinks Climate Change in Words and Pictures**\
-`We need to act as a single unified force to find ways to strike a lasting balance with our natural world.`\
-https://nytimes.com/2024/10/06/opinion/climate-change-solutions.html
 
