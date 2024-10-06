@@ -1,3 +1,7 @@
+**Caleb Williams leads Bears to 36-10 win over Panthers: Takeaways**\
+`The Bears rookie quarterback's second 300-yard passing game powers Chicago offense to victory.`\
+https://nytimes.com/athletic/5822161/2024/10/06/bears-panthers-score-caleb-williams-results-takeaways/
+
 **At North Carolina Churches After Helene, a Time to Grieve and a Time to Hope**\
 `Worshipers gathered on Sunday, many for the first time since the storm decimated their communities, “to cry and pray and process.”`\
 https://nytimes.com/2024/10/06/us/north-carolina-churches-helene.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822798/2024/10/06/yankees-giancarlo-stanton-speed-
 **Israeli troops have set up near U.N. peacekeepers in Lebanon, satellite images show.**\
 `By Malachy Browne and Natan Odenheimer`\
 https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/israeli-troops-have-set-up-near-un-peacekeepers-in-lebanon-satellite-images-show
-
-**NHL waiver targets: The 10 biggest names available after final roster cuts**\
-`Monday is the deadline for NHL teams to submit their cap-compliant, opening-night rosters.`\
-https://nytimes.com/athletic/5822713/2024/10/06/nhl-waivers-2024-season-engvall/
 

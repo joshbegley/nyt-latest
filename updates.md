@@ -1,3 +1,7 @@
+**Caleb Williams leads Bears to 36-10 win over Panthers: Takeaways**\
+`The Bears rookie quarterback's second 300-yard passing game powers Chicago offense to victory.`\
+https://nytimes.com/athletic/5822161/2024/10/06/bears-panthers-score-caleb-williams-results-takeaways/
+
 **At North Carolina Churches After Helene, a Time to Grieve and a Time to Hope**\
 `Worshipers gathered on Sunday, many for the first time since the storm decimated their communities, “to cry and pray and process.”`\
 https://nytimes.com/2024/10/06/us/north-carolina-churches-helene.html
