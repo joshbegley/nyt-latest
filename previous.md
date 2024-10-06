@@ -1,3 +1,7 @@
+**Lamar Jackson dazzles; Ravens top Bengals in 41-38 barnburner**\
+`Ravens QB Lamar Jackson orchestrated a 10-point fourth-quarter comeback to force overtime and eventually beat the Bengals.`\
+https://nytimes.com/athletic/5822171/2024/10/06/bengals-ravens-score-lamar-jackson-takeaways/
+
 **Harris Hits Back at Republican Criticism of Childless Women**\
 `“All of us understand that this is not the 1950s anymore,” Vice President Kamala Harris told the host of the podcast “Call Her Daddy,” a platform popular with millennial and Gen Z women.`\
 https://nytimes.com/2024/10/06/us/politics/kamala-harris-podcast-call-her-daddy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823131/2024/10/06/sf-giants-mailbagg-question-subm
 **Monday Briefing: Reflecting on a Year of War**\
 `Plus, Paris Fashion Week’s closing fantasia.`\
 https://nytimes.com/2024/10/06/briefing/oct-7-anniversary-trump-age-amazon.html
-
-**Caleb Williams leads Bears to 36-10 win over Panthers: Takeaways**\
-`The Bears rookie quarterback's second 300-yard passing game powers Chicago offense to victory.`\
-https://nytimes.com/athletic/5822161/2024/10/06/bears-panthers-score-caleb-williams-results-takeaways/
 

@@ -1,3 +1,7 @@
+**Lamar Jackson dazzles; Ravens top Bengals in 41-38 barnburner**\
+`Ravens QB Lamar Jackson orchestrated a 10-point fourth-quarter comeback to force overtime and eventually beat the Bengals.`\
+https://nytimes.com/athletic/5822171/2024/10/06/bengals-ravens-score-lamar-jackson-takeaways/
+
 **Harris Hits Back at Republican Criticism of Childless Women**\
 `“All of us understand that this is not the 1950s anymore,” Vice President Kamala Harris told the host of the podcast “Call Her Daddy,” a platform popular with millennial and Gen Z women.`\
 https://nytimes.com/2024/10/06/us/politics/kamala-harris-podcast-call-her-daddy.html
