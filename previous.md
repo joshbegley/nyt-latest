@@ -1,3 +1,7 @@
+**Espirito Santo 'worried' about Forest midfielder Gibbs-White's ankle injury**\
+`Nottingham Forest’s Morgan Gibbs-White will have a scan on an ankle injury tomorrow before it is decided whether he will join up with the England squad.`\
+https://nytimes.com/athletic/5822403/2024/10/06/morgan-gibbs-white-injury-update/
+
 **Peter Jay, Headline-Making British Ambassador to the U.S., Dies at 87**\
 `His appointment sparked criticism and charges of nepotism. He later achieved unwanted attention as a character in the novel “Heartburn.”`\
 https://nytimes.com/2024/10/06/world/europe/peter-jay-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/dining/mississippi-roast-two-ways.html
 **Lowetide: Why the Oilers' drafts during Ken Holland era will forever be a disappointment**\
 `The Holland years were defined by aggressive usage of prime draft picks as assets for trades.`\
 https://nytimes.com/athletic/5820410/2024/10/06/oilers-drafts-ken-holland-era/
-
-**A new Israeli map labels nearly all of northern Gaza ‘new evacuation zones.’**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/a-new-israeli-map-labels-all-of-northern-gaza-new-evacuation-zones
 

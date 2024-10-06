@@ -1,3 +1,7 @@
+**Espirito Santo 'worried' about Forest midfielder Gibbs-White's ankle injury**\
+`Nottingham Forest’s Morgan Gibbs-White will have a scan on an ankle injury tomorrow before it is decided whether he will join up with the England squad.`\
+https://nytimes.com/athletic/5822403/2024/10/06/morgan-gibbs-white-injury-update/
+
 **Peter Jay, Headline-Making British Ambassador to the U.S., Dies at 87**\
 `His appointment sparked criticism and charges of nepotism. He later achieved unwanted attention as a character in the novel “Heartburn.”`\
 https://nytimes.com/2024/10/06/world/europe/peter-jay-dead.html
