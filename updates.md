@@ -1,3 +1,7 @@
+**Michael Jordan confident in outcome of lawsuit against NASCAR**\
+`"I didn't just file it for me. It's for everyone,” Jordan told The Athletic on Sunday about the antitrust suit.`\
+https://nytimes.com/athletic/5822733/2024/10/06/michael-jordan-nascar-lawsuit/
+
 **Canucks trade Poolman, draft pick to Avalanche**\
 `This is a shrewd, creative trade by the Canucks to open up in-season cap flexibility.`\
 https://nytimes.com/athletic/5822673/2024/10/06/canucks-avalanche-trade-poolman-brannstrom/
