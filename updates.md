@@ -1,3 +1,7 @@
+**Liberty topple Aces, advance to WNBA Finals**\
+`The Liberty went on a 16-2 run in the fourth quarter to beat the Aces 76-62 and take the semifinal series.`\
+https://nytimes.com/athletic/5823098/2024/10/06/liberty-aces-wnba-result-game-4/
+
 **Lamar Jackson dazzles; Ravens top Bengals in 41-38 barnburner**\
 `Ravens QB Lamar Jackson orchestrated a 10-point fourth-quarter comeback to force overtime and eventually beat the Bengals.`\
 https://nytimes.com/athletic/5822171/2024/10/06/bengals-ravens-score-lamar-jackson-takeaways/
