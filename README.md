@@ -1,3 +1,7 @@
+**Ravens at Bengals odds, picks, how to watch: A clash of two Super Bowl hopefuls**\
+`Two Super Bowl contenders are hoping to leave slow starts behind them as the Ravens are narrowly favored in Cincinnati.`\
+https://nytimes.com/athletic/5818594/2024/10/05/ravens-bengals-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Panthers vs. Bears odds, picks, how to watch: A golden opportunity for Caleb Williams?**\
 `No. 1 draft pick Caleb Williams is getting better each week. Now he faces a former Bears QB in Andy Dalton.`\
 https://nytimes.com/athletic/5818570/2024/10/05/panthers-bears-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5821267/2024/10/05/mets-phillies-nlds-kodai-senga/
 **Elon Musk Leaps to Trump’s Side in Rally Appearance**\
 `Mr. Musk, the world’s richest man and the leader of Tesla and X, endorsed the former president after the attempted assassination in July. On Saturday, he returned to the scene and made a spirited rally appearance.`\
 https://nytimes.com/2024/10/05/us/politics/elon-musk-trump-butler-rally.html
-
-**When was the last time Vanderbilt beat Alabama?**\
-`The last time the Commodores won, the MTV Video Music Awards had recently debuted and the Ghostbusters were new to the streets of NYC.`\
-https://nytimes.com/athletic/5821124/2024/10/05/when-is-last-time-vanderbilt-beat-alabama/
 
