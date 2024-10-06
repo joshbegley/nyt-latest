@@ -1,3 +1,11 @@
+**At North Carolina Churches After Helene, a Time to Grieve and a Time to Hope**\
+`Worshipers gathered on Sunday, many for the first time since the storm decimated their communities, “to cry and pray and process.”`\
+https://nytimes.com/2024/10/06/us/north-carolina-churches-helene.html
+
+**Balogun, Weah and Cardoso to miss USMNT's October fixtures due to injuries**\
+`Folarin Balogun, Johnny Cardoso, and Tim Weah have withdrawn from the USMNT squad due to injury.`\
+https://nytimes.com/athletic/5822921/2024/10/06/usmnt-balogun-weah-cardoso/
+
 **Jeff McNeil works out with Mets after his own wild week: When could he play again?**\
 `The Met having the wildest week wasn’t even with the team until Sunday.`\
 https://nytimes.com/athletic/5822955/2024/10/06/jeff-mcneil-mets-return-nlcs/

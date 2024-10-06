@@ -1,3 +1,11 @@
+**At North Carolina Churches After Helene, a Time to Grieve and a Time to Hope**\
+`Worshipers gathered on Sunday, many for the first time since the storm decimated their communities, “to cry and pray and process.”`\
+https://nytimes.com/2024/10/06/us/north-carolina-churches-helene.html
+
+**Balogun, Weah and Cardoso to miss USMNT's October fixtures due to injuries**\
+`Folarin Balogun, Johnny Cardoso, and Tim Weah have withdrawn from the USMNT squad due to injury.`\
+https://nytimes.com/athletic/5822921/2024/10/06/usmnt-balogun-weah-cardoso/
+
 **Jeff McNeil works out with Mets after his own wild week: When could he play again?**\
 `The Met having the wildest week wasn’t even with the team until Sunday.`\
 https://nytimes.com/athletic/5822955/2024/10/06/jeff-mcneil-mets-return-nlcs/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/israeli-
 **NHL waiver targets: The 10 biggest names available after final roster cuts**\
 `Monday is the deadline for NHL teams to submit their cap-compliant, opening-night rosters.`\
 https://nytimes.com/athletic/5822713/2024/10/06/nhl-waivers-2024-season-engvall/
-
-**Christopher Ciccone, Who Dished About His Sister Madonna, Dies at 63**\
-`An artist, designer, choreographer and dancer, he was best known for writing a grudge-settling memoir about his formerly close bond with the pop star.`\
-https://nytimes.com/2024/10/06/obituaries/christopher-ciccone-dead.html
-
-**Texans WR Nico Collins out vs. Bills with hamstring injury**\
-`Collins caught both of his targets for 78 yards, including a 67-yard touchdown in which he limped as he jogged into the end zone.`\
-https://nytimes.com/athletic/5822176/2024/10/06/bills-texans-takeaways-result/
 
