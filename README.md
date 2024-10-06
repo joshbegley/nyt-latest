@@ -1,3 +1,15 @@
+**An absurd preseason game provides precious few answers to both Canadiens and Senators**\
+`The Canadiens and Senators entered their final game before the start of the regular season needing answers, and essentially got none.`\
+https://nytimes.com/athletic/5821449/2024/10/06/canadiens-senators-arber-xhekaj-nhl-preseason/
+
+**Sickle cell and football: Why the disease that mainly affects Black people needs more research**\
+`Black people are at a much higher risk of being affected by sickle cell — and the effects can be fatal. More research is needed to combat it`\
+https://nytimes.com/athletic/5102814/2024/10/06/sickle-cell-research-lassana-diarra/
+
+**Jaros steps up as Alisson injury means another twist in Liverpool's goalkeeper situation**\
+`With Liverpool 1-0 up away at Palace and 10 minutes to play, a signal was sent to a previously unused goalkeeper sat on the sidelines`\
+https://nytimes.com/athletic/5820611/2024/10/06/liverpool-palace-jaros-alisson-injury/
+
 **What Szczesny's Barca signing means for Inaki Pena?**\
 `Barca's reserve 'keeper had been told he would be No 1 in Ter Stegen's absence, but Szczesny coming out of retirement could change things`\
 https://nytimes.com/athletic/5818443/2024/10/06/szczesny-pena-ter-stegen-barcelona/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5816313/2024/10/06/nfl-week-5-storylines-jets-vikin
 **Dolphins vs. Patriots odds, picks, how to watch: Who will break their losing streak?**\
 `The Dolphins are 0-3 since losing Tua Tagovailoa and the Patriots, too, haven't won since Week 1.`\
 https://nytimes.com/athletic/5818604/2024/10/06/dolphins-patriots-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Aston Villa-Manchester United preview: Villa favoured against struggling Red Devils**\
-`Aston Villa are flying and Manchester United are in the bottom half of the table. Can the Villains get the win and deepen United's misery?`\
-https://nytimes.com/athletic/5818804/2024/10/06/aston-villa-manchester-united-preview-odds-prediction/
-
-**USC's sloppy loss to Minnesota puts CFP talk on the shelf**\
-`If USC can lose to Minnesota, it can lose to almost anybody else remaining on the schedule.`\
-https://nytimes.com/athletic/5821432/2024/10/05/usc-trojans-minnesota-big-ten/
-
-**Arkansas upsets No. 4 Tennessee: What it means for Vols' Playoff hopes**\
-`Arkansas upset No.`\
-https://nytimes.com/athletic/5821435/2024/10/05/arkansas-tennessee-upset-sec-college-football/
 
