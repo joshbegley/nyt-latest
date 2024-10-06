@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Jenner, Voronkov injuries cause ripple effect**\
+`Will the Blue Jackets fill out their roster with an addition from the waiver wire?`\
+https://nytimes.com/athletic/5820315/2024/10/06/blue-jackets-jenner-voronkov/
+
 **The Briefing: Chelsea 1-1 Nottingham Forest - Madueke's threat, centre-half promise but was Maresca proved right?**\
 `Chelsea, one of the division's form teams, found Forest a difficult nut to crack at Stamford Bridge in an ill-tempered contest`\
 https://nytimes.com/athletic/5819061/2024/10/06/chelsea-forest-madueke-maresca-colwill-fofana/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/5819061/2024/10/06/chelsea-forest-madueke-maresca-c
 `A woman known as Chef Hala, who has had to evacuate three times since Israel invaded Gaza, is among those offering practical tips and messages of solidarity.`\
 https://nytimes.com/2024/10/06/world/middleeast/gaza-lebanon-tiktok-advice.html
 
-**The Briefing: Aston Villa 0 Man Utd 0: Evans gamble, lucky Rashford, what now for Ten Hag?**\
-`Manchester United drew at Aston Villa in a gritty display from Erik ten Hag's reorganised team. Here are the talking points...`\
+**The Briefing: Aston Villa 0 Man Utd 0 - Evans gamble, lucky Rashford, what now for Ten Hag?**\
+`Manchester United drew at Aston Villa in a gritty display from Erik ten Hag's reorganised team. Here are the talking points…`\
 https://nytimes.com/athletic/5819060/2024/10/06/aston-villa-0-manchester-united-0-result-tan-hag-rashford/
 
 **Jets' Aaron Rodgers throws 2 INTs in first quarter vs. Vikings**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/a-new-is
 **The Pulse: Does this stunning upset even matter?**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5822089/2024/10/06/vanderbilt-alabama-college-football-nfl-the-pulse/
-
-**A Cryptic Letter With a Clear Warning**\
-`A domestic terrorist group sent a note to The New York Times admitting to detonating a bomb in Queens.`\
-https://nytimes.com/2024/10/06/insider/weather-underground.html
 

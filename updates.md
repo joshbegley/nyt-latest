@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: Jenner, Voronkov injuries cause ripple effect**\
+`Will the Blue Jackets fill out their roster with an addition from the waiver wire?`\
+https://nytimes.com/athletic/5820315/2024/10/06/blue-jackets-jenner-voronkov/
+
+**The Briefing: Aston Villa 0 Man Utd 0 - Evans gamble, lucky Rashford, what now for Ten Hag?**\
+`Manchester United drew at Aston Villa in a gritty display from Erik ten Hag's reorganised team. Here are the talking points…`\
+https://nytimes.com/athletic/5819060/2024/10/06/aston-villa-0-manchester-united-0-result-tan-hag-rashford/
+
 **The Briefing: Chelsea 1-1 Nottingham Forest - Madueke's threat, centre-half promise but was Maresca proved right?**\
 `Chelsea, one of the division's form teams, found Forest a difficult nut to crack at Stamford Bridge in an ill-tempered contest`\
 https://nytimes.com/athletic/5819061/2024/10/06/chelsea-forest-madueke-maresca-colwill-fofana/
