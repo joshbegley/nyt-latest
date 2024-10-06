@@ -1,3 +1,7 @@
+**Jayden Daniels shines as Commanders beat Browns 34-13: Takeaways**\
+`The rookie quarterback became the first player in NFL history to put up 1,000 passing yards and 250 rushing yards through five games.`\
+https://nytimes.com/athletic/5822640/2024/10/06/browns-commanders-score-jayden-daniels-results-takeaways/
+
 **Submit your questions for Andrew Baggarly's next Giants Mailbagg!**\
 `The Giants 2024 season has ended but the team has dominated the news this week, as they moved on from president of baseball operations Farhan Zaidi and have turned the role over to franchise hero Buster Posey.`\
 https://nytimes.com/athletic/5823131/2024/10/06/sf-giants-mailbagg-question-submission/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/us/antisemitic-incidents-us-adl-report.html
 **Pakistan Bans Protest Movement in Renewed Crackdown on Dissent**\
 `Analysts say the military is expanding its efforts to squash opposition.`\
 https://nytimes.com/2024/10/06/world/asia/pakistan-dissent-crackdown.html
-
-**Engvall on waivers, Wahlstrom on the roster: What Islanders' final cuts mean**\
-`A look at what's next for Engvall, Wahlstrom's potential, and who the Islanders could possibly pick up to upgrade their No. 7 D spot.`\
-https://nytimes.com/athletic/5822695/2024/10/06/islanders-pierre-engvall-waivers-oliver-wahlstrom/
 
