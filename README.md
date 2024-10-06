@@ -1,3 +1,11 @@
+**Maresca unconcerned by Chelsea discipline in ill-tempered Forest draw**\
+`Enzo Maresca insists he likes the spirit of his Chelsea team after their indiscipline was on show again in a feisty 1-1 draw with Nottingham Forest at Stamford Bridge.`\
+https://nytimes.com/athletic/5822500/2024/10/06/chelsea-nottingham-forest-maresca/
+
+**Police officer is killed in a shooting attack in southern Israel, the emergency service says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/police-officer-is-killed-in-a-shooting-attack-in-southern-israel-the-emergency-service-says
+
 **In Talking About ‘Freedom,’ Harris Hopes She Has a Winning Message on Guns**\
 `The vice president is talking about firearms in a new way for a Democrat — by co-opting the language of Republicans.`\
 https://nytimes.com/2024/10/06/us/politics/harris-guns-campaign.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5820315/2024/10/06/blue-jackets-jenner-voronkov/
 **The Briefing: Chelsea 1-1 Nottingham Forest - Madueke's threat, centre-half promise but was Maresca proved right?**\
 `Chelsea, one of the division's form teams, found Forest a difficult nut to crack at Stamford Bridge in an ill-tempered contest`\
 https://nytimes.com/athletic/5819061/2024/10/06/chelsea-forest-madueke-maresca-colwill-fofana/
-
-**On Social Media, Gazans Share Advice for Those Under Fire in Lebanon**\
-`A woman known as Chef Hala, who has had to evacuate three times since Israel invaded Gaza, is among those offering practical tips and messages of solidarity.`\
-https://nytimes.com/2024/10/06/world/middleeast/gaza-lebanon-tiktok-advice.html
-
-**The Briefing: Aston Villa 0 Man Utd 0 - Evans gamble, lucky Rashford, what now for Ten Hag?**\
-`Manchester United drew at Aston Villa in a gritty display from Erik ten Hag's reorganised team. Here are the talking points…`\
-https://nytimes.com/athletic/5819060/2024/10/06/aston-villa-0-manchester-united-0-result-tan-hag-rashford/
 
