@@ -1,3 +1,11 @@
+**Until Saturday: Vandy’s historic day, plus it's spooky season**\
+`Welcome to Until Saturday, the five-star college football newsletter: Vanderbilt made history on a spooky first Saturday in October.`\
+https://nytimes.com/athletic/5821818/2024/10/06/vanderbilt-alabama-college-football-week-6-until-saturday/
+
+**Vinicius Junior set to miss Brazil's October fixtures with neck injury**\
+`Real Madrid forward Vinicius Junior is set to miss Brazil&#8217;s October international fixtures after sustaining a neck injury during Saturday&#8217;s La Liga victory over Villarreal.`\
+https://nytimes.com/athletic/5821871/2024/10/06/vinicius-junior-injury-update-brazil/
+
 **U.K. Prime Minister’s Chief of Staff, Sue Gray, Resigns**\
 `Ms. Gray, chief of staff to Prime Minister Keir Starmer, said she was stepping down after sustained news media attention over her pay and status.`\
 https://nytimes.com/2024/10/06/world/europe/uk-pm-sue-gray-resigns.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/06/world/europe/ship-explosives.html
 **Rosenthal: How Freddie Freeman went from 'one percent chance' of playing in Game 1 to starring in it**\
 `The veteran first baseman has been dealing with an ankle injury, as well as soreness in his side.`\
 https://nytimes.com/athletic/5821912/2024/10/06/freddie-freeman-nlds-dodgers-padres/
-
-**The Robotic Future of Pro Sports**\
-`We explore a looming change in sports officiating.`\
-https://nytimes.com/2024/10/06/briefing/pro-sports-robo-refs.html
-
-**Morales: USC isn't ready to contend with Big Ten heavyweights**\
-`USC is not ready to contend at the highest levels of the Big Ten yet. And it won’t until it’s built to properly withstand the grind.`\
-https://nytimes.com/athletic/5821739/2024/10/06/usc-minnesota-big-ten-lincoln-riley/
 
