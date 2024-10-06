@@ -1,3 +1,19 @@
+**City fans' banner urges Guardiola to stay next season… but there are pressing issues too**\
+`While the big dilemma is whether Guardiola will stay on, the smaller problem is whether City will be able to give him a fitting send-off`\
+https://nytimes.com/athletic/5820516/2024/10/06/guardiola-banner-contract-manchester-city/
+
+**Shohei Ohtani sets tone for Dodgers, Padres' move backfires: Takeaways**\
+`Ohtani said he wasn't nervous about the postseason spotlight, then gave the Padres a reason to be on edge.`\
+https://nytimes.com/athletic/5821256/2024/10/06/dodgers-padres-shohei-ohtani-takeaways/
+
+**Smith: Alabama will rely on leadership to regroup and address penalties, defensive lapses**\
+`It’s no surprise team captains and veterans spoke after Saturday's tough loss. "We have to learn from it, get better," Deontae Lawson said.`\
+https://nytimes.com/athletic/5821420/2024/10/06/alabama-vanderbilt-loss-playoff/
+
+**Browns at Commanders odds, picks, how to watch: Jayden Daniels faces Cleveland front**\
+`The Browns and Commanders are two teams headed in opposite directions, but Cleveland's defense should be a test for Jayden Daniels.`\
+https://nytimes.com/athletic/5818685/2024/10/06/browns-commanders-odds-expert-picks-how-to-watch-predictions-betting/
+
 **An absurd preseason game provides precious few answers to both Canadiens and Senators**\
 `The Canadiens and Senators entered their final game before the start of the regular season needing answers, and essentially got none.`\
 https://nytimes.com/athletic/5821449/2024/10/06/canadiens-senators-arber-xhekaj-nhl-preseason/
