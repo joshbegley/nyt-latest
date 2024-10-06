@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5821572/2024/10/06/yankees-nestor-cortes-to-throw-s
 `Just about every decision Boone made paid off as the top-seeded Yankees squeezed out a huge 6-5 win.`\
 https://nytimes.com/athletic/5821500/2024/10/06/yankees-aaron-boone-game-1-alds/
 
-**Royals left puzzled by replay decision in loss to Yankees: 'You could see the daylight'**\
+**'You could see the daylight': Royals left puzzled by replay decision in loss to Yankees**\
 `It was a familiar October play, leaving viewers studying pixelated close-ups of multiple angles and coming up with their own opinions. `\
 https://nytimes.com/athletic/5821503/2024/10/06/royals-yankees-replay-decision/
 
