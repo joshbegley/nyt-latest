@@ -1,3 +1,7 @@
+**Peter Jay, Headline-Making British Ambassador to the U.S., Dies at 87**\
+`His appointment sparked criticism and charges of nepotism. He later achieved unwanted attention as a character in the novel “Heartburn.”`\
+https://nytimes.com/2024/10/06/world/europe/peter-jay-dead.html
+
 **Blue Jackets Sunday Gathering: Jenner, Voronkov injuries cause ripple effect**\
 `Will the Blue Jackets fill out their roster with an addition from the waiver wire?`\
 https://nytimes.com/athletic/5820315/2024/10/06/blue-jackets-jenner-voronkov/
