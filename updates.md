@@ -1,3 +1,15 @@
+**2024 MLB Division Series: Mets rally past Phillies, Yankees survive, Ohtani homers**\
+` Go around the the horn, three up and three down, a look at what's on deck and our picks to click`\
+https://nytimes.com/athletic/5821100/2024/10/06/mlb-2024-playoffs-mets-phillies-yankees-dodgers/
+
+**Colts at Jaguars odds, picks, how to watch: Do or die for Jacksonville**\
+`The Jaguars are the only winless team left in the league, and face a hobbled Indianapolis team at home. They're slight favorites.`\
+https://nytimes.com/athletic/5818709/2024/10/06/colts-jaguars-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Dissecting Manchester United's 'game model': What is Erik Ten Hag hoping to achieve?**\
+`An underwhelming start to the new campaign has left those around the club trying to ascertain what Erik ten Hag wants from his squad`\
+https://nytimes.com/athletic/5794187/2024/10/06/manchester-united-ten-hag-game-model/
+
 **City fans' banner urges Guardiola to stay next season… but there are pressing issues too**\
 `While the big dilemma is whether Guardiola will stay on, the smaller problem is whether City will be able to give him a fitting send-off`\
 https://nytimes.com/athletic/5820516/2024/10/06/guardiola-banner-contract-manchester-city/
