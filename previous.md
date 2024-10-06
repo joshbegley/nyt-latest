@@ -1,3 +1,11 @@
+**Caleb Williams-DJ Moore connection clicks, showing what Bears offense can be**\
+`Williams had another impressive game, going 20-for-29 passing for 304 yards, two touchdowns and a 126.2 passer rating.`\
+https://nytimes.com/athletic/5823469/2024/10/06/bears-caleb-williams-dj-moore-panthers/
+
+**No. 1 pick Caleb Williams stood out, but when will Panthers give Bryce Young another shot?**\
+`Bryce Young played for the first time since Week 2 and got in one series late in the game and completed four passes for 58 yards.`\
+https://nytimes.com/athletic/5823536/2024/10/06/panthers-bryce-young-quarterback-dave-canales/
+
 **Jacoby Brissett, Patriots offense remain historically bad in tough loss to Dolphins**\
 `Through five games, the Patriots offense has been absolutely dreadful. And if Brissett remains the starter, it might not get any better.`\
 https://nytimes.com/athletic/5823409/2024/10/06/patriots-jacoby-brissett-bad-offense-dolphins/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5822402/2024/10/06/raiders-broncos-score-sean-payto
 **Nick Castellanos, Phillies walk off Mets, win wild Game 2 to even NLDS: Takeaways**\
 `Castellanos came through in the ninth as the Phillies bested the Mets in a back-and-forth Game 2, sending the series back to Queens tied. `\
 https://nytimes.com/athletic/5823349/2024/10/06/phillies-mets-score-nick-castellanos-nlds-takeaways/
-
-**Aldridge: Hey, Commanders fans, it's OK to believe. For real**\
-`At 4-1 and in first place in the NFC East, Washington and Jayden Daniels are bringing back long-lost hope.`\
-https://nytimes.com/athletic/5822252/2024/10/06/washington-commanders-jayden-daniels-believe/
-
-**Canucks sign Nils Höglander to 3-year extension**\
-`The Canucks extending Höglander a full season before his contract expires as an RFA is a huge vote of confidence.`\
-https://nytimes.com/athletic/5823480/2024/10/06/canucks-nils-hoglander-contract-extension/
 

@@ -1,3 +1,11 @@
+**Caleb Williams-DJ Moore connection clicks, showing what Bears offense can be**\
+`Williams had another impressive game, going 20-for-29 passing for 304 yards, two touchdowns and a 126.2 passer rating.`\
+https://nytimes.com/athletic/5823469/2024/10/06/bears-caleb-williams-dj-moore-panthers/
+
+**No. 1 pick Caleb Williams stood out, but when will Panthers give Bryce Young another shot?**\
+`Bryce Young played for the first time since Week 2 and got in one series late in the game and completed four passes for 58 yards.`\
+https://nytimes.com/athletic/5823536/2024/10/06/panthers-bryce-young-quarterback-dave-canales/
+
 **Greenberg: And in their fifth game, Caleb Williams and the Bears offense showed up**\
 `Chicago compiled 424 net yards and had a 3-0 turnover edge in its 36-10 win vs. Carolina. "That should be the standard," Kevin Byard said.`\
 https://nytimes.com/athletic/5823471/2024/10/06/bears-panthers-caleb-williams-offense/
