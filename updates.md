@@ -1,3 +1,7 @@
+**Jeff McNeil works out with Mets after his own wild week: When could he play again?**\
+`The Met having the wildest week wasn’t even with the team until Sunday.`\
+https://nytimes.com/athletic/5822955/2024/10/06/jeff-mcneil-mets-return-nlcs/
+
 **‘Hallowed Ground,’ With a Whiff of Onion Rings and Sun Block**\
 `Donald Trump returned to the site where he was shot in the ear. For some of his supporters, it was a religious event as much as a campaign rally.`\
 https://nytimes.com/2024/10/06/us/elections/trump-butler-religion.html
