@@ -1,4 +1,8 @@
-**Pride win NWSL Shield with win over Spirit**\
+**'Desperate' Sun top Lynx to force Game 5 behind strong team defense**\
+`The winner will take on the New York Liberty in Game 1 of the 2024 WNBA Finals, which begins Thursday.`\
+https://nytimes.com/athletic/5823547/2024/10/06/connecticut-sun-minnesota-lynx-game-four-score-takeaways/
+
+**Pride win first-ever NWSL Shield with win over Spirit**\
 `The Orlando Pride won their first-ever NWSL Shield with a 2-0 defeat of the Washington Spirit on Sunday.`\
 https://nytimes.com/athletic/5823517/2024/10/06/orlando-pride-win-nwsl-shield/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/world/middleeast/israel-gaza-lebanon-attacks.html
 **Liberty topple Aces, advance to WNBA Finals**\
 `The Liberty went on a 16-2 run in the fourth quarter to beat the Aces 76-62 and take the semifinal series.`\
 https://nytimes.com/athletic/5823098/2024/10/06/liberty-aces-wnba-result-game-4/
-
-**Lamar Jackson dazzles; Ravens top Bengals in 41-38 barnburner**\
-`Ravens QB Lamar Jackson orchestrated a 10-point fourth-quarter comeback to force overtime and eventually beat the Bengals.`\
-https://nytimes.com/athletic/5822171/2024/10/06/bengals-ravens-score-lamar-jackson-takeaways/
 
