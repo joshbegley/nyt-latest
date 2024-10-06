@@ -1,3 +1,11 @@
+**Raiders bench Gardner Minshew for Aidan O'Connell in third quarter vs. Broncos**\
+`O'Connell went 5-5 as the Raiders starter during his rookie season in 2023. `\
+https://nytimes.com/athletic/5823421/2024/10/06/gardner-minshew-benched-aidan-oconnell-raiders/
+
+**Aaron Rodgers almost had a moment against the Vikings — and then it fell apart**\
+`The Jets fell behind early in London and came away with nothing more than a moral victory.`\
+https://nytimes.com/athletic/5823049/2024/10/06/jets-loss-vikings-london-aaron-rodgers-interceptions/
+
 **49ers Moody out after suffering ankle injury on kickoff**\
 `The dynamic kickoff made its debut this season and one of the concerns was having kickers more involved in tackling.`\
 https://nytimes.com/athletic/5823350/2024/10/06/49ers-kyle-juszczyk-jake-moody-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5823011/2024/10/06/liverpool-quansah-new-contract-k
 **Jaguars collect first win, 37-34, over Colts: Takeaways**\
 `Trevor Lawrence threw two touchdown passes, and Tank Bigsby rushed for two more as the Jaguars earned their first win of 2024.`\
 https://nytimes.com/athletic/5822182/2024/10/06/colts-jaguars-score-joe-flacco-results-takeaways/
-
-**How Jeremy Swayman got the best of the Bruins and an extension to set a new bar**\
-`The standoff is over. The 25-year-old without a single regular season as a full-time NHL puckstopper won, to the tune of a $66 million deal.`\
-https://nytimes.com/athletic/5823082/2024/10/06/jeremy-swayman-bruins-extension-cap/
-
-**NFL Week 5 takeaways: Can Bills get right? Does a Davante Adams-Jets trade still make sense?**\
-`Plus, is there any saving the Brown’s 2024 season?`\
-https://nytimes.com/athletic/5823194/2024/10/06/nfl-week-5-takeaways-buffalo-bills-offense-problems-jets-davante-adams-trade/
 
