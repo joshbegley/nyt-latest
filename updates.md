@@ -1,3 +1,11 @@
+**Cowboys at Steelers odds, expert picks, how to watch: Marquee teams meet on Sunday night**\
+`The Steelers are favored in prime time against the Cowboys in a meeting of two of the NFL's most storied teams.`\
+https://nytimes.com/athletic/5819235/2024/10/06/cowboys-steelers-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Is Vanderbilt over Alabama college football's most shocking No. 1 loss? Not quite**\
+`Vanderbilt became the 40th unranked team to beat the No. 1 team in the AP poll by upsetting Alabama. How stunning was it?`\
+https://nytimes.com/athletic/5821605/2024/10/06/alabama-vanderbilt-number-one-upset-rankings/
+
 **Ohio State made a statement against Iowa: These Buckeyes aren't going to be called 'soft'**\
 `Ohio State has been criticized for a lack of physicality in big games in recent years, but it owned Iowa at the line of scrimmage Saturday.`\
 https://nytimes.com/athletic/5821385/2024/10/06/ohio-state-iowa-offensive-defensive-line/

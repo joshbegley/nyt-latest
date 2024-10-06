@@ -1,3 +1,11 @@
+**Cowboys at Steelers odds, expert picks, how to watch: Marquee teams meet on Sunday night**\
+`The Steelers are favored in prime time against the Cowboys in a meeting of two of the NFL's most storied teams.`\
+https://nytimes.com/athletic/5819235/2024/10/06/cowboys-steelers-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Is Vanderbilt over Alabama college football's most shocking No. 1 loss? Not quite**\
+`Vanderbilt became the 40th unranked team to beat the No. 1 team in the AP poll by upsetting Alabama. How stunning was it?`\
+https://nytimes.com/athletic/5821605/2024/10/06/alabama-vanderbilt-number-one-upset-rankings/
+
 **Ohio State made a statement against Iowa: These Buckeyes aren't going to be called 'soft'**\
 `Ohio State has been criticized for a lack of physicality in big games in recent years, but it owned Iowa at the line of scrimmage Saturday.`\
 https://nytimes.com/athletic/5821385/2024/10/06/ohio-state-iowa-offensive-defensive-line/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000009739814/how-trumps-speeches-raise-
 **Trump’s Speeches, Increasingly Angry and Rambling, Reignite the Question of Age**\
 `With the passage of time, the 78-year-old former president’s speeches have grown darker, harsher, longer, angrier, less focused, more profane and increasingly fixated on the past, according to a review of his public appearances over the years.`\
 https://nytimes.com/2024/10/06/us/politics/trump-speeches-age-cognitive-decline.html
-
-**The Fight for Rural America**\
-`One in five Americans identifies as rural, and since the 1960s, their votes have become increasingly Republican.`\
-https://nytimes.com/video/us/elections/100000009739377/the-fight-for-rural-america.html
-
-**A Year After Feinstein’s Death, Her Life’s Belongings Are for Sale**\
-`Senator Dianne Feinstein collected fine jewelry, paintings and a trove of political mementos. Because of her trust, many of those items are available for public inspection — and purchase.`\
-https://nytimes.com/2024/10/06/us/dianne-feinstein-estate-auction.html
 
