@@ -1,3 +1,7 @@
+**Can Alabama recover after Vandy upset? Fate of Kalen DeBoer's debut rests with leaders**\
+`What exactly went wrong for Alabama on Saturday? Previous areas of concern came back to bit the Tide at Vanderbilt.`\
+https://nytimes.com/athletic/5821420/2024/10/06/alabama-vanderbilt-loss-playoff/
+
 **Buffalo Bills at Houston Texans odds, expert picks, how to watch: Star matchup between Josh Allen and C.J. Stroud**\
 `The 3-1 Texans host the 3-1 Buffalo Bills on Sunday afternoon with the odds putting this game as a virtual toss-up.`\
 https://nytimes.com/athletic/5818725/2024/10/06/bills-texans-odds-expert-picks-how-to-watch-predictions-betting/

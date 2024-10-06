@@ -22,8 +22,8 @@ https://nytimes.com/athletic/5820516/2024/10/06/guardiola-banner-contract-manche
 `Ohtani said he wasn't nervous about the postseason spotlight, then gave the Padres a reason to be on edge.`\
 https://nytimes.com/athletic/5821256/2024/10/06/dodgers-padres-shohei-ohtani-takeaways/
 
-**Smith: Alabama will rely on leadership to regroup and address penalties, defensive lapses**\
-`It’s no surprise team captains and veterans spoke after Saturday's tough loss. "We have to learn from it, get better," Deontae Lawson said.`\
+**Can Alabama recover after Vandy upset? Fate of Kalen DeBoer's debut rests with leaders**\
+`What exactly went wrong for Alabama on Saturday? Previous areas of concern came back to bit the Tide at Vanderbilt.`\
 https://nytimes.com/athletic/5821420/2024/10/06/alabama-vanderbilt-loss-playoff/
 
 **Browns at Commanders odds, picks, how to watch: Jayden Daniels faces Cleveland front**\
