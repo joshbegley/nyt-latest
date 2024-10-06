@@ -1,3 +1,7 @@
+**Texans WR Nico Collins out vs. Bills with hamstring injury**\
+`Collins caught both of his targets for 78 yards, including a 67-yard touchdown in which he limped as he jogged into the end zone.`\
+https://nytimes.com/athletic/5822176/2024/10/06/bills-texans-takeaways-result/
+
 **Stewart Mandel's 12-team Playoff projections after Week 6**\
 `Stunning losses by Alabama and Tennessee change up this week's projections with Notre Dame returning and Boise State rolling.`\
 https://nytimes.com/athletic/5822721/2024/10/06/college-football-playoff-bracket-projections-week-6/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/us/politics/tim-walz-fox-news-sunday.html
 **Dolphins' Achane ruled out with concussion vs. Patriots**\
 `Achane, 22, entered Sunday as Miami's leading rusher with 165 yards on 53 carries. He had 18 yards on three carries against New England.`\
 https://nytimes.com/athletic/5822191/2024/10/06/dolphins-patriots-takeaways-result/
-
-**Review: Philharmonic Returns to Classics, at Its Own Expense**\
-`Led by Manfred Honeck, the orchestra all too quickly revisited Beethoven’s Seventh Symphony and, with Vikingur Olafsson, Brahms’s Piano Concerto No. 1.`\
-https://nytimes.com/2024/10/06/arts/new-york-philharmonic-honeck-beethoven-brahms.html
 

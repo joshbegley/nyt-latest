@@ -1,3 +1,7 @@
+**Texans WR Nico Collins out vs. Bills with hamstring injury**\
+`Collins caught both of his targets for 78 yards, including a 67-yard touchdown in which he limped as he jogged into the end zone.`\
+https://nytimes.com/athletic/5822176/2024/10/06/bills-texans-takeaways-result/
+
 **Stewart Mandel's 12-team Playoff projections after Week 6**\
 `Stunning losses by Alabama and Tennessee change up this week's projections with Notre Dame returning and Boise State rolling.`\
 https://nytimes.com/athletic/5822721/2024/10/06/college-football-playoff-bracket-projections-week-6/
