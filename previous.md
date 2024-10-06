@@ -1,3 +1,7 @@
+**A Cryptic Letter With a Clear Warning**\
+`A domestic terrorist group sent a note to The New York Times admitting to detonating a bomb in Queens.`\
+https://nytimes.com/2024/10/06/insider/weather-underground.html
+
 **Live Q&A: Week 5 fantasy football start/sit chat with Jay Felicio, Sunday, 10/6 at 11 a.m. ET**\
 `Submit your Week 5 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5819260/2024/10/06/live-qa-week-5-fantasy-football-start-sit-chat-with-jay-felicio-sunday-10-6-at-11-a-m-et/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5821818/2024/10/06/vanderbilt-alabama-college-footb
 **Vinicius Junior set to miss Brazil's October fixtures with neck injury**\
 `Real Madrid forward Vinicius Junior is set to miss Brazil&#8217;s October international fixtures after sustaining a neck injury during Saturday&#8217;s La Liga victory over Villarreal.`\
 https://nytimes.com/athletic/5821871/2024/10/06/vinicius-junior-injury-update-brazil/
-
-**U.K. Prime Minister’s Chief of Staff, Sue Gray, Resigns**\
-`Ms. Gray, chief of staff to Prime Minister Keir Starmer, said she was stepping down after sustained news media attention over her pay and status.`\
-https://nytimes.com/2024/10/06/world/europe/uk-pm-sue-gray-resigns.html
 

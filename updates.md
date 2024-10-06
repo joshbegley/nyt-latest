@@ -1,3 +1,7 @@
+**A Cryptic Letter With a Clear Warning**\
+`A domestic terrorist group sent a note to The New York Times admitting to detonating a bomb in Queens.`\
+https://nytimes.com/2024/10/06/insider/weather-underground.html
+
 **Live Q&A: Week 5 fantasy football start/sit chat with Jay Felicio, Sunday, 10/6 at 11 a.m. ET**\
 `Submit your Week 5 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5819260/2024/10/06/live-qa-week-5-fantasy-football-start-sit-chat-with-jay-felicio-sunday-10-6-at-11-a-m-et/
