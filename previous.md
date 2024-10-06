@@ -1,3 +1,7 @@
+**Israel Was Prepared for a Fight With Hezbollah. Ending It Will Be Harder.**\
+`Lessons learned from a 2006 invasion of Lebanon have guided Israel in its current one. Security experts say a political deal is needed to restore calm.`\
+https://nytimes.com/2024/10/06/world/middleeast/israel-military-hezbollah.html
+
 **The Briefing: Real Madrid 2 Villarreal 0 - Valverde and Vinicius Jr excel, but Carvajal injury a blow**\
 `Madrid's right-back suffers a serious knee ligament injury and will undergo surgery, but Kylian Mbappe is a surprise starter in victory`\
 https://nytimes.com/athletic/5821086/2024/10/06/real-madrid-carvajal-valverde-vinicius-mbappe-villarreal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/nyregion/banks-david-philip-adams-investigation.h
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/06/crosswords/spelling-bee-forum.html
-
-**‘I Was on an Uptown 1 Coming Home From My Job at a SoHo Restaurant’**\
-`A briny snack on the subway, love in the air in Park Slope and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/10/06/nyregion/metropolitan-diary.html
 

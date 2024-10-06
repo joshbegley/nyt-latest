@@ -1,3 +1,7 @@
+**Israel Was Prepared for a Fight With Hezbollah. Ending It Will Be Harder.**\
+`Lessons learned from a 2006 invasion of Lebanon have guided Israel in its current one. Security experts say a political deal is needed to restore calm.`\
+https://nytimes.com/2024/10/06/world/middleeast/israel-military-hezbollah.html
+
 **The Briefing: Real Madrid 2 Villarreal 0 - Valverde and Vinicius Jr excel, but Carvajal injury a blow**\
 `Madrid's right-back suffers a serious knee ligament injury and will undergo surgery, but Kylian Mbappe is a surprise starter in victory`\
 https://nytimes.com/athletic/5821086/2024/10/06/real-madrid-carvajal-valverde-vinicius-mbappe-villarreal/
