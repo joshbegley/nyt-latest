@@ -1,3 +1,7 @@
+**Michigan fizzles in loss to Washington while Huskies show Big Ten potential**\
+`Michigan QB Jack Tuttle saw his first game action of the season against Washington. But his spark quickly fizzled in the 27-17 loss.`\
+https://nytimes.com/athletic/5821394/2024/10/05/michigan-washington-final-score-analysis-college-football/
+
 **Trump’s Return to Scene of Attack Is a Do-Over in More Ways Than One**\
 `The former president returned to the stage where a gunman tried to kill him in July and tried to recapture some of the momentum he had before President Biden dropped out.`\
 https://nytimes.com/2024/10/05/us/politics/trump-butler-rally-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5821124/2024/10/05/when-is-last-time-vanderbilt-bea
 **How does Vanderbilt's upset over Alabama impact the College Football Playoff?**\
 `The beauty of college football is you never truly know what’s going to happen, and the race for the CFP looks completely wide open.`\
 https://nytimes.com/athletic/5821180/2024/10/05/vanderbilt-alabama-college-football-playoff-upset-impact/
-
-**Vanderbilt knocks off No. 1 Bama. Is this the biggest upset in SEC history?**\
-`Vandy got its first-ever win over an AP top-five team, and first over the Tide since 1984, relying on QB Diego Pavia and Bama's mistakes.`\
-https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
 
