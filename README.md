@@ -1,3 +1,15 @@
+**In Talking About ‘Freedom,’ Harris Hopes She Has a Winning Message on Guns**\
+`The vice president is talking about firearms in a new way for a Democrat — by co-opting the language of Republicans.`\
+https://nytimes.com/2024/10/06/us/politics/harris-guns-campaign.html
+
+**USMNT striker Balogun dislocates shoulder in Monaco win**\
+`USMNT striker Folarin Balogun dislocated his left shoulder during AS Monaco&#8217;s victory over Rennes on Saturday.`\
+https://nytimes.com/athletic/5822460/2024/10/06/falorin-balogun-injury-usmnt-update/
+
+**Phillies bench Alec Bohm for Game 2 vs. Mets**\
+`"He's scuffling a little bit," Rob Thomson said. The manager known for his steadiness has decided to sit Bohm in favor of Edmundo Sosa. `\
+https://nytimes.com/athletic/5822461/2024/10/06/alec-bohm-benched-phillies-mets/
+
 **What's 'Calgorithm?' Cal football fans bask in limelight of satirical, self-aware social media**\
 `Behold, the ballooning cultural clout of the Calgorithm, a guerilla-like social media movement that leans into sarcasm and stereotypes.`\
 https://nytimes.com/athletic/5822321/2024/10/06/cal-football-calgorithm-college-gameday-espn/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/06/world/middleeast/gaza-lebanon-tiktok-advice.html
 **The Briefing: Aston Villa 0 Man Utd 0 - Evans gamble, lucky Rashford, what now for Ten Hag?**\
 `Manchester United drew at Aston Villa in a gritty display from Erik ten Hag's reorganised team. Here are the talking points…`\
 https://nytimes.com/athletic/5819060/2024/10/06/aston-villa-0-manchester-united-0-result-tan-hag-rashford/
-
-**Jets' Aaron Rodgers throws 2 INTs in first quarter vs. Vikings**\
-`Rodgers threw a pick-six that Minnesota linebacker Andrew Van Ginkel took 63 yards for a touchdown.`\
-https://nytimes.com/athletic/5822128/2024/10/06/vikings-vs-jets-takeaways-aaron-rodgers/
-
-**Do Careerism and College Mix?**\
-`Readers respond to a guest essay by a recent college graduate. Also: New York City’s new outdoor dining program; how immigrants built America.`\
-https://nytimes.com/2024/10/06/opinion/careers-college.html
-
-**Mississippi Roast Two Ways**\
-`Go with the internet-famous version, or make our from-scratch recipe. Both are objectively fantastic.`\
-https://nytimes.com/2024/10/06/dining/mississippi-roast-two-ways.html
 
