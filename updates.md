@@ -1,3 +1,11 @@
+**Trump’s Return to Scene of Attack Is a Do-Over in More Ways Than One**\
+`The former president returned to the stage where a gunman tried to kill him in July and tried to recapture some of the momentum he had before President Biden dropped out.`\
+https://nytimes.com/2024/10/05/us/politics/trump-butler-rally-musk.html
+
+**Iowa is losing ground on the Big Ten and CFB's serious contenders**\
+`Beginning with a 42-3 loss to Michigan in 2021, the Hawkeyes have been outscored 270-51 by their last eight ranked opponents.`\
+https://nytimes.com/athletic/5821319/2024/10/05/iowa-ohio-state-ranked-opponents-record/
+
 **Vanderbilt knocks off No. 1 Bama. Is this the biggest upset in SEC history?**\
 `Vandy got its first-ever win over an AP top-five team, and first over the Tide since 1984, relying on QB Diego Pavia and Bama's mistakes.`\
 https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/

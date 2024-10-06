@@ -1,3 +1,11 @@
+**Trump’s Return to Scene of Attack Is a Do-Over in More Ways Than One**\
+`The former president returned to the stage where a gunman tried to kill him in July and tried to recapture some of the momentum he had before President Biden dropped out.`\
+https://nytimes.com/2024/10/05/us/politics/trump-butler-rally-musk.html
+
+**Iowa is losing ground on the Big Ten and CFB's serious contenders**\
+`Beginning with a 42-3 loss to Michigan in 2021, the Hawkeyes have been outscored 270-51 by their last eight ranked opponents.`\
+https://nytimes.com/athletic/5821319/2024/10/05/iowa-ohio-state-ranked-opponents-record/
+
 **How the Mets stormed back against Phillies: Anatomy of another crazy inning**\
 `Players, coaches and scouts help analyze the Mets' dramatic comeback in Game 1.`\
 https://nytimes.com/athletic/5821310/2024/10/05/mets-phillies-nlds-game-1-mark-vientos/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5821180/2024/10/05/vanderbilt-alabama-college-footb
 **Vanderbilt knocks off No. 1 Bama. Is this the biggest upset in SEC history?**\
 `Vandy got its first-ever win over an AP top-five team, and first over the Tide since 1984, relying on QB Diego Pavia and Bama's mistakes.`\
 https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
-
-**Cleveland Guardians ride electric bullpen, early runs to ALDS Game 1 win**\
-`Baseball rarely goes according to script, but the Guardians couldn’t have asked for Game 1 to go any smoother. `\
-https://nytimes.com/athletic/5821134/2024/10/05/cleveland-guardians-bullpen-excels-alds-game-1/
-
-**Can Nebraska win close games? Result against Rutgers showed progress**\
-`Nebraska is 5-1 after beating Rutgers 14-7.`\
-https://nytimes.com/athletic/5820330/2024/10/05/nebraska-football-rutgers-big-ten-dylan-raiola-matt-rhule/
 
