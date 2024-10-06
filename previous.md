@@ -2,7 +2,7 @@
 `The boys, 12 and 13, were charged with gang assault, according to the police. Two adults who were involved in the attack have not been caught, the police said.`\
 https://nytimes.com/2024/10/06/nyregion/david-paterson-attack-boys-charged.html
 
-**The Briefing: Brighton 3 Spurs 2: An incredible collapse and where the defence went wrong**\
+**The Briefing: Brighton 3 Spurs 2 - An incredible collapse and where the defence went wrong**\
 `Our writers break down the action from an incredible game at the Amex Stadium.`\
 https://nytimes.com/athletic/5819063/2024/10/06/tottenham-brighton-comeback-solanke/
 
