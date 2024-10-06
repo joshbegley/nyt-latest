@@ -1,3 +1,7 @@
+**The Robotic Future of Pro Sports**\
+`We explore a looming change in sports officiating.`\
+https://nytimes.com/2024/10/06/briefing/pro-sports-robo-refs.html
+
 **Morales: USC isn't ready to contend with Big Ten heavyweights**\
 `USC is not ready to contend at the highest levels of the Big Ten yet. And it won’t until it’s built to properly withstand the grind.`\
 https://nytimes.com/athletic/5821739/2024/10/06/usc-minnesota-big-ten-lincoln-riley/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/5821200/2024/10/06/kyle-kuzma-interview-wizards-mav
 `Thanks to the 12-team College Football Playoff, no one gets eliminated by Week 6, but much was revealed on a chaotic Saturday.`\
 https://nytimes.com/athletic/5821623/2024/10/06/college-football-playoff-race-upsets-rankings/
 
-**Weird & Wild: 'Mission Improbable' Mets, Ohtani's Oct-oh-ber debut, Yanks-Royals lead way**\
+**Weird & Wild: 'Mission Improbable' Mets, Ohtani's Oct-Oh-ber debut, Yanks-Royals lead way**\
 `Weird and Wild watched 11 hours and six minutes of baseball Saturday — with 43 pitchers firing 1,466 pitches. Here are the highlights. `\
 https://nytimes.com/athletic/5821788/2024/10/06/mets-comebacks-ohtani-debut-yankees-royals-lead-changes/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818674/2024/10/06/winnipeg-jets-depth-chart-2024/
 **Final Red Wings preseason thoughts: Why Marco Kasper deserves an NHL roster spot**\
 `Kasper made a strong statement this preseason, looking like one of Detroit's 12 best forwards. But there are other factors in play.`\
 https://nytimes.com/athletic/5819897/2024/10/06/red-wings-roster-marco-kasper/
-
-**For Tarik Skubal and Matthew Boyd, ALDS Game 2 is more than just a meeting between rivals**\
-`When Game 2 of the ALDS kicks off, it'll be mentor against mentee as Matthew Boyd and Tarik Skubal face off. `\
-https://nytimes.com/athletic/5821187/2024/10/06/matthew-boyd-tarik-skubal-tigers-guardians-alds/
 
