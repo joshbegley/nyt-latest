@@ -1,3 +1,11 @@
+**Buffalo Bills at Houston Texans odds, expert picks, how to watch: Star matchup between Josh Allen and C.J. Stroud**\
+`The 3-1 Texans host the 3-1 Buffalo Bills on Sunday afternoon with the odds putting this game as a virtual toss-up.`\
+https://nytimes.com/athletic/5818725/2024/10/06/bills-texans-odds-expert-picks-how-to-watch-predictions-betting/
+
+**An absurd preseason game provides precious few answers to Canadiens and Senators**\
+`The Canadiens and Senators entered their final game before the start of the regular season needing answers and essentially got none.`\
+https://nytimes.com/athletic/5821449/2024/10/06/canadiens-senators-arber-xhekaj-nhl-preseason/
+
 **2024 MLB Division Series: Mets rally past Phillies, Yankees survive, Ohtani homers**\
 ` Go around the the horn, three up and three down, a look at what's on deck and our picks to click`\
 https://nytimes.com/athletic/5821100/2024/10/06/mlb-2024-playoffs-mets-phillies-yankees-dodgers/
