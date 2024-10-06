@@ -1,3 +1,7 @@
+**Spotlight finds Padres’ Mike Shildt as bullpen moves backfire in NLDS opener**\
+`Shildt ordered Betts intentionally walked to get to ailing Freddie Freeman for a potential double play. Instead, the inning unraveled.`\
+https://nytimes.com/athletic/5820837/2024/10/06/spotlight-finds-padres-mike-shildt-as-bullpen-moves-backfire-in-nlds-opener/
+
 **Is Yoshinobu Yamamoto tipping his pitches?**\
 `LOS ANGELES — Yoshinobu Yamamoto’s first taste of pitching in the postseason was accompanied by what surely was something resembling deja vu from his disastrous big-league debut nearly seven months ago.`\
 https://nytimes.com/athletic/5821710/2024/10/06/dodgers-yoshinobu-yamamoto-tipping-2/

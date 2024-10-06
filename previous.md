@@ -1,3 +1,7 @@
+**Spotlight finds Padres’ Mike Shildt as bullpen moves backfire in NLDS opener**\
+`Shildt ordered Betts intentionally walked to get to ailing Freddie Freeman for a potential double play. Instead, the inning unraveled.`\
+https://nytimes.com/athletic/5820837/2024/10/06/spotlight-finds-padres-mike-shildt-as-bullpen-moves-backfire-in-nlds-opener/
+
 **Is Yoshinobu Yamamoto tipping his pitches?**\
 `LOS ANGELES — Yoshinobu Yamamoto’s first taste of pitching in the postseason was accompanied by what surely was something resembling deja vu from his disastrous big-league debut nearly seven months ago.`\
 https://nytimes.com/athletic/5821710/2024/10/06/dodgers-yoshinobu-yamamoto-tipping-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5821661/2024/10/06/dodgers-padres-shoei-ohtani-home
 **‘Saturday Night Live’ Revisits the Vice-Presidential Debate**\
 `The comic Nate Bargatze hosted an episode that opened with another political sketch featuring the guest stars Dana Carvey, Jim Gaffigan, Maya Rudolph and Andy Samberg.`\
 https://nytimes.com/2024/10/06/arts/television/saturday-night-live-recap.html
-
-**Blackhawks observations: How much patience will Chicago have with Lukas Reichel?**\
-`The Blackhawks want more from Reichel — more assertiveness, more selfishness and more like the player they envision him to be.`\
-https://nytimes.com/athletic/5821434/2024/10/06/blackhawks-observations-lukas-reichel/
 
