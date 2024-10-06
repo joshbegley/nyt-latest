@@ -1,3 +1,7 @@
+**Barcelona 3 Alaves 0: Lewandowski hat-trick, Raphinha displays show Flick is working magic**\
+`Barcelona strolled past Alaves after a Lewandowski hat-trick to keep their spot at the top of La Liga. Here are the key talking points...`\
+https://nytimes.com/athletic/5822567/2024/10/06/alaves-0-barcelona-3-lewandowski-hat-trick-raphinha-flick/
+
 **Tim Walz Makes First Sunday Show Appearance Since Joining Ticket**\
 `Mr. Walz, who has kept a relatively low profile since becoming Vice President Kamala Harris’s running mate, appeared on Fox News Sunday.`\
 https://nytimes.com/2024/10/06/us/politics/tim-walz-fox-news-sunday.html

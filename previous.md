@@ -1,3 +1,7 @@
+**Barcelona 3 Alaves 0: Lewandowski hat-trick, Raphinha displays show Flick is working magic**\
+`Barcelona strolled past Alaves after a Lewandowski hat-trick to keep their spot at the top of La Liga. Here are the key talking points...`\
+https://nytimes.com/athletic/5822567/2024/10/06/alaves-0-barcelona-3-lewandowski-hat-trick-raphinha-flick/
+
 **Tim Walz Makes First Sunday Show Appearance Since Joining Ticket**\
 `Mr. Walz, who has kept a relatively low profile since becoming Vice President Kamala Harris’s running mate, appeared on Fox News Sunday.`\
 https://nytimes.com/2024/10/06/us/politics/tim-walz-fox-news-sunday.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822128/2024/10/06/vikings-vs-jets-takeaways-aaron-
 **Maresca unconcerned by Chelsea discipline in ill-tempered Forest draw**\
 `Enzo Maresca insists he likes the spirit of his Chelsea team after their indiscipline was on show again in a feisty 1-1 draw with Nottingham Forest at Stamford Bridge.`\
 https://nytimes.com/athletic/5822500/2024/10/06/chelsea-nottingham-forest-maresca/
-
-**Police officer is killed in a shooting attack in southern Israel, the emergency service says.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/police-officer-is-killed-in-a-shooting-attack-in-southern-israel-the-emergency-service-says
 
