@@ -1,3 +1,7 @@
+**Weird & Wild: 'Mission Improbable' Mets, Ohtani's Oct-oh-ber debut, Yanks-Royals lead way**\
+`Weird and Wild watched 11 hours and six minutes of baseball Saturday — with 43 pitchers firing 1,466 pitches. Here are the highlights. `\
+https://nytimes.com/athletic/5821788/2024/10/06/mets-comebacks-ohtani-debut-yankees-royals-lead-changes/
+
 **Why Matt Quatraro is the perfect fit for the new Kansas City Royals**\
 `Every game is a chess match, and Quatraro relishes the strategic element in outmaneuvering opponents. `\
 https://nytimes.com/athletic/5820525/2024/10/06/matt-quatraro-kansas-city-royals-2024-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/crosswords/connections-companion-484.html
 **JD Vance and the Prophets of Trumpism**\
 `For this group of Christians, “Trump is good. He’s been baptized by their theology.”`\
 https://nytimes.com/2024/10/06/opinion/jd-vance-lance-wallnau-seven-mountains.html
-
-**The Chicago Cubs will once again search for the right bullpen pieces**\
-`It will be paramount for the Cubs to build a bullpen that can last a full 162-game season without dishing out hefty contracts.`\
-https://nytimes.com/athletic/5820343/2024/10/06/chicago-cubs-bullpen-productivity/
 
