@@ -1,3 +1,7 @@
+**Five lessons for the CFP race after the season's wildest weekend yet**\
+`Thanks to the 12-team College Football Playoff, no one gets eliminated by Week 6, but much was revealed on a chaotic Saturday.`\
+https://nytimes.com/athletic/5821623/2024/10/06/college-football-playoff-race-upsets-rankings/
+
 **Weird & Wild: 'Mission Improbable' Mets, Ohtani's Oct-oh-ber debut, Yanks-Royals lead way**\
 `Weird and Wild watched 11 hours and six minutes of baseball Saturday — with 43 pitchers firing 1,466 pitches. Here are the highlights. `\
 https://nytimes.com/athletic/5821788/2024/10/06/mets-comebacks-ohtani-debut-yankees-royals-lead-changes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/opinion/kamala-harris-donald-trump-security.html
 **The Connections Companion No. 484**\
 `Scroll down for hints and conversation about the puzzle for Monday, Oct. 7, 2024.`\
 https://nytimes.com/2024/10/06/crosswords/connections-companion-484.html
-
-**JD Vance and the Prophets of Trumpism**\
-`For this group of Christians, “Trump is good. He’s been baptized by their theology.”`\
-https://nytimes.com/2024/10/06/opinion/jd-vance-lance-wallnau-seven-mountains.html
 

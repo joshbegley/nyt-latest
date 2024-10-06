@@ -1,3 +1,7 @@
+**Five lessons for the CFP race after the season's wildest weekend yet**\
+`Thanks to the 12-team College Football Playoff, no one gets eliminated by Week 6, but much was revealed on a chaotic Saturday.`\
+https://nytimes.com/athletic/5821623/2024/10/06/college-football-playoff-race-upsets-rankings/
+
 **Weird & Wild: 'Mission Improbable' Mets, Ohtani's Oct-oh-ber debut, Yanks-Royals lead way**\
 `Weird and Wild watched 11 hours and six minutes of baseball Saturday — with 43 pitchers firing 1,466 pitches. Here are the highlights. `\
 https://nytimes.com/athletic/5821788/2024/10/06/mets-comebacks-ohtani-debut-yankees-royals-lead-changes/
