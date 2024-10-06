@@ -1,3 +1,11 @@
+**SEC fines Vanderbilt $100,000, Arkansas $250,000 for storming field**\
+`The fines will be paid to Alabama and Tennessee, respectively, a new wrinkle in the penalties adopted at the league’s 2023 spring meetings.`\
+https://nytimes.com/athletic/5823096/2024/10/06/vanderbilt-arkansas-storm-field-sec-fines/
+
+**A ‘Hallowed Place,’ With a Whiff of Onion Rings and Sun Block**\
+`Donald Trump returned to the site where he was shot in the ear. For some of his supporters, it was a religious event as much as a campaign rally.`\
+https://nytimes.com/2024/10/06/us/elections/trump-butler-religion.html
+
 **Jayden Daniels shines as Commanders beat Browns 34-13: Takeaways**\
 `The rookie quarterback became the first player in NFL history to put up 1,000 passing yards and 250 rushing yards through five games.`\
 https://nytimes.com/athletic/5822640/2024/10/06/browns-commanders-score-jayden-daniels-results-takeaways/

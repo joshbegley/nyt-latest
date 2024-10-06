@@ -1,3 +1,7 @@
+**SEC fines Vanderbilt $100,000, Arkansas $250,000 for storming field**\
+`The fines will be paid to Alabama and Tennessee, respectively, a new wrinkle in the penalties adopted at the league’s 2023 spring meetings.`\
+https://nytimes.com/athletic/5823096/2024/10/06/vanderbilt-arkansas-storm-field-sec-fines/
+
 **Jayden Daniels shines as Commanders beat Browns 34-13: Takeaways**\
 `The rookie quarterback became the first player in NFL history to put up 1,000 passing yards and 250 rushing yards through five games.`\
 https://nytimes.com/athletic/5822640/2024/10/06/browns-commanders-score-jayden-daniels-results-takeaways/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/5822921/2024/10/06/usmnt-balogun-weah-cardoso/
 `The Met having the wildest week wasn’t even with the team until Sunday.`\
 https://nytimes.com/athletic/5822955/2024/10/06/jeff-mcneil-mets-return-nlcs/
 
-**‘Hallowed Ground,’ With a Whiff of Onion Rings and Sun Block**\
+**A ‘Hallowed Place,’ With a Whiff of Onion Rings and Sun Block**\
 `Donald Trump returned to the site where he was shot in the ear. For some of his supporters, it was a religious event as much as a campaign rally.`\
 https://nytimes.com/2024/10/06/us/elections/trump-butler-religion.html
 
 **Antisemitic Incidents Reach New High in the U.S., Report Finds**\
 `The Anti-Defamation League has found that cases of antisemitism have surged in the wake of the Oct. 7 attack by Hamas against Israel last year.`\
 https://nytimes.com/2024/10/06/us/antisemitic-incidents-us-adl-report.html
-
-**Pakistan Bans Protest Movement in Renewed Crackdown on Dissent**\
-`Analysts say the military is expanding its efforts to squash opposition.`\
-https://nytimes.com/2024/10/06/world/asia/pakistan-dissent-crackdown.html
 
