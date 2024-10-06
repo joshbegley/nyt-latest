@@ -1,3 +1,7 @@
+**AP Top 25: Texas back at No. 1; Alabama falls to 7th**\
+`Texas returned to the top of the AP Top 25 college football — ahead of Ohio State and Oregon, who meet next week. Alabama dropped to No. 7.`\
+https://nytimes.com/athletic/5822585/2024/10/06/ap-top-25-alabama-texas-rankings/
+
 **Barcelona 3 Alaves 0: Lewandowski hat-trick, Raphinha displays show Flick is working magic**\
 `Barcelona strolled past Alaves after a Lewandowski hat-trick to keep their spot at the top of La Liga. Here are the key talking points...`\
 https://nytimes.com/athletic/5822567/2024/10/06/alaves-0-barcelona-3-lewandowski-hat-trick-raphinha-flick/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/us/hurricane-helene-north-carolina-misinformation
 **Vikings hold off Jets 23-17, improve to 5-0 as Rodgers struggles: Takeaways**\
 `It was Rodgers' worst game in a Jets uniform as he threw three interceptions.`\
 https://nytimes.com/athletic/5822128/2024/10/06/vikings-vs-jets-takeaways-aaron-rodgers/
-
-**Maresca unconcerned by Chelsea discipline in ill-tempered Forest draw**\
-`Enzo Maresca insists he likes the spirit of his Chelsea team after their indiscipline was on show again in a feisty 1-1 draw with Nottingham Forest at Stamford Bridge.`\
-https://nytimes.com/athletic/5822500/2024/10/06/chelsea-nottingham-forest-maresca/
 

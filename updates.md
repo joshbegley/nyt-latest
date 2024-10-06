@@ -1,3 +1,7 @@
+**AP Top 25: Texas back at No. 1; Alabama falls to 7th**\
+`Texas returned to the top of the AP Top 25 college football — ahead of Ohio State and Oregon, who meet next week. Alabama dropped to No. 7.`\
+https://nytimes.com/athletic/5822585/2024/10/06/ap-top-25-alabama-texas-rankings/
+
 **Barcelona 3 Alaves 0: Lewandowski hat-trick, Raphinha displays show Flick is working magic**\
 `Barcelona strolled past Alaves after a Lewandowski hat-trick to keep their spot at the top of La Liga. Here are the key talking points...`\
 https://nytimes.com/athletic/5822567/2024/10/06/alaves-0-barcelona-3-lewandowski-hat-trick-raphinha-flick/
