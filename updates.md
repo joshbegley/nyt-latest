@@ -1,3 +1,7 @@
+**What's 'Calgorithm?' Cal football fans bask in limelight of satirical, self-aware social media**\
+`Behold, the ballooning cultural clout of the Calgorithm, a guerilla-like social media movement that leans into sarcasm and stereotypes.`\
+https://nytimes.com/athletic/5822321/2024/10/06/cal-football-calgorithm-college-gameday-espn/
+
 **Espirito Santo 'worried' about Forest midfielder Gibbs-White's ankle injury**\
 `Nottingham Forest’s Morgan Gibbs-White will have a scan on an ankle injury tomorrow before it is decided whether he will join up with the England squad.`\
 https://nytimes.com/athletic/5822403/2024/10/06/morgan-gibbs-white-injury-update/
