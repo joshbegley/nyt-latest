@@ -1,3 +1,15 @@
+**Diego Pavia is a Bama-slaying Vanderbilt legend, and Vandy is a college football lesson**\
+`Don’t put limits on what Pavia can do, and don't count out Clark Lea and Commodores when they decide to get creative.`\
+https://nytimes.com/athletic/5821562/2024/10/06/vanderbilt-diego-pavia-alabama-upset/
+
+**Yankees' Nestor Cortes to face big test Sunday in long-shot playoff return**\
+`The 29-year-old southpaw will make between 20 and 30 throws during the off day following the Yankees' Game 1 win over the Royals.`\
+https://nytimes.com/athletic/5821572/2024/10/06/yankees-nestor-cortes-to-throw-sunday/
+
+**Yankees’ Aaron Boone out-manages Royals to tense Game 1 win**\
+`Just about every decision Boone made paid off as the top-seeded Yankees squeezed out a huge 6-5 win.`\
+https://nytimes.com/athletic/5821500/2024/10/06/yankees-aaron-boone-game-1-alds/
+
 **Gaza’s Schools Are for Learning, Not for Dying**\
 `Schools across Gaza have turned into refugee centers, and Israeli attacks on them have killed hundreds.`\
 https://nytimes.com/2024/10/06/opinion/schools-shelters-gaza-israel.html
