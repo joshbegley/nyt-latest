@@ -1,9 +1,17 @@
+**Dolphins' Achane ruled out with concussion vs. Patriots**\
+`Achane, 22, entered Sunday as Miami's leading rusher with 165 yards on 53 carries. He had 18 yards on three carries against New England.`\
+https://nytimes.com/athletic/5822191/2024/10/06/dolphins-patriots-takeaways-result/
+
+**Review: Philharmonic Returns to Classics, at Its Own Expense**\
+`Led by Manfred Honeck, the orchestra all too quickly revisited Beethoven’s Seventh Symphony and, with Vikingur Olafsson, Brahms’s Piano Concerto No. 1.`\
+https://nytimes.com/2024/10/06/arts/new-york-philharmonic-honeck-beethoven-brahms.html
+
 **2 Boys Charged in Manhattan Assault on Former Gov. David Paterson**\
 `The boys, 12 and 13, were charged with gang assault, according to the police. Two adults who were involved in the attack have not been caught, the police said.`\
 https://nytimes.com/2024/10/06/nyregion/david-paterson-attack-boys-charged.html
 
 **The Briefing: Brighton 3 Spurs 2 - An incredible collapse and where the defence went wrong**\
-`Our writers break down the action from an incredible game at the Amex Stadium.`\
+`Our writers break down the action from an incredible game at the Amex Stadium`\
 https://nytimes.com/athletic/5819063/2024/10/06/tottenham-brighton-comeback-solanke/
 
 **Susie Maxwell Berning, Hall of Fame Golfer, Is Dead at 83**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/police-o
 **In Talking About ‘Freedom,’ Harris Hopes She Has a Winning Message on Guns**\
 `The vice president is talking about firearms in a new way for a Democrat — by co-opting the language of Republicans.`\
 https://nytimes.com/2024/10/06/us/politics/harris-guns-campaign.html
-
-**USMNT striker Balogun dislocates shoulder in Monaco win**\
-`USMNT striker Folarin Balogun dislocated his left shoulder during AS Monaco&#8217;s victory over Rennes on Saturday.`\
-https://nytimes.com/athletic/5822460/2024/10/06/falorin-balogun-injury-usmnt-update/
-
-**Phillies bench Alec Bohm for Game 2 vs. Mets**\
-`"He's scuffling a little bit," Rob Thomson said. The manager known for his steadiness has decided to sit Bohm in favor of Edmundo Sosa. `\
-https://nytimes.com/athletic/5822461/2024/10/06/alec-bohm-benched-phillies-mets/
 

@@ -1,3 +1,15 @@
+**Dolphins' Achane ruled out with concussion vs. Patriots**\
+`Achane, 22, entered Sunday as Miami's leading rusher with 165 yards on 53 carries. He had 18 yards on three carries against New England.`\
+https://nytimes.com/athletic/5822191/2024/10/06/dolphins-patriots-takeaways-result/
+
+**Review: Philharmonic Returns to Classics, at Its Own Expense**\
+`Led by Manfred Honeck, the orchestra all too quickly revisited Beethoven’s Seventh Symphony and, with Vikingur Olafsson, Brahms’s Piano Concerto No. 1.`\
+https://nytimes.com/2024/10/06/arts/new-york-philharmonic-honeck-beethoven-brahms.html
+
+**The Briefing: Brighton 3 Spurs 2 - An incredible collapse and where the defence went wrong**\
+`Our writers break down the action from an incredible game at the Amex Stadium`\
+https://nytimes.com/athletic/5819063/2024/10/06/tottenham-brighton-comeback-solanke/
+
 **The Briefing: Brighton 3 Spurs 2 - An incredible collapse and where the defence went wrong**\
 `Our writers break down the action from an incredible game at the Amex Stadium.`\
 https://nytimes.com/athletic/5819063/2024/10/06/tottenham-brighton-comeback-solanke/
