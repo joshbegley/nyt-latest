@@ -1,3 +1,7 @@
+**Panthers vs. Bears odds, picks, how to watch: A golden opportunity for Caleb Williams?**\
+`No. 1 draft pick Caleb Williams is getting better each week. Now he faces a former Bears QB in Andy Dalton.`\
+https://nytimes.com/athletic/5818570/2024/10/05/panthers-bears-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Michigan fizzles in loss to Washington while Huskies show Big Ten potential**\
 `Michigan QB Jack Tuttle saw his first game action of the season against Washington. But his spark quickly fizzled in the 27-17 loss.`\
 https://nytimes.com/athletic/5821394/2024/10/05/michigan-washington-final-score-analysis-college-football/
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/5821231/2024/10/05/yankees-royals-game-1-alds-takea
 https://nytimes.com/athletic/5821267/2024/10/05/mets-phillies-nlds-kodai-senga/
 
 **Elon Musk Leaps to Trump’s Side in Rally Appearance**\
-`Mr. Musk, the world’s richest man and the owner of Tesla and X, endorsed the former president after the attempted assassination in July. On Saturday, he returned to the scene and made a spirited rally appearance.`\
+`Mr. Musk, the world’s richest man and the leader of Tesla and X, endorsed the former president after the attempted assassination in July. On Saturday, he returned to the scene and made a spirited rally appearance.`\
 https://nytimes.com/2024/10/05/us/politics/elon-musk-trump-butler-rally.html
 
 **When was the last time Vanderbilt beat Alabama?**\
 `The last time the Commodores won, the MTV Video Music Awards had recently debuted and the Ghostbusters were new to the streets of NYC.`\
 https://nytimes.com/athletic/5821124/2024/10/05/when-is-last-time-vanderbilt-beat-alabama/
-
-**How does Vanderbilt's upset over Alabama impact the College Football Playoff?**\
-`The beauty of college football is you never truly know what’s going to happen, and the race for the CFP looks completely wide open.`\
-https://nytimes.com/athletic/5821180/2024/10/05/vanderbilt-alabama-college-football-playoff-upset-impact/
 
