@@ -1,3 +1,15 @@
+**Evacuation Orders Posted as Florida Braces for Hurricane Milton**\
+`The powerful, life-threatening hurricane is expected to make landfall on Wednesday even as residents continue to recover from Hurricane Helene.`\
+https://nytimes.com/2024/10/06/weather/florida-storm-milton-preparation.html
+
+**Bo Nix, secondary shine in Broncos' 34-18 win vs. Raiders: Takeaways**\
+`The Broncos' win over Las Vegas snaps an eight-game losing streak against their divisional opponent dating back to 2020.`\
+https://nytimes.com/athletic/5822402/2024/10/06/raiders-broncos-score-sean-payton-takeaways/
+
+**Nick Castellanos, Phillies walk off Mets, win wild Game 2 to even NLDS: Takeaways**\
+`Castellanos came through in the ninth as the Phillies bested the Mets in a back-and-forth Game 2, sending the series back to Queens tied. `\
+https://nytimes.com/athletic/5823349/2024/10/06/phillies-mets-score-nick-castellanos-nlds-takeaways/
+
 **Sun top Lynx to force Game 5 behind strong team defense**\
 `The winner will take on the New York Liberty in Game 1 of the 2024 WNBA Finals, which begins Thursday.`\
 https://nytimes.com/athletic/5823547/2024/10/06/connecticut-sun-minnesota-lynx-game-four-score-takeaways/
