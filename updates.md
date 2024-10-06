@@ -1,3 +1,7 @@
+**‘Saturday Night Live’ Revisits the Vice-Presidential Debate**\
+`The comic Nate Bargatze hosted an episode that opened with another political sketch featuring the guest stars Dana Carvey, Jim Gaffigan, Maya Rudolph and Andy Samberg.`\
+https://nytimes.com/2024/10/06/arts/television/saturday-night-live-recap.html
+
 **Yankees' Alex Verdugo gets revenge and silences haters in Game 1 win**\
 `After a disappointing regular season for the Yankees, Verdugo came up big in their first playoff game.`\
 https://nytimes.com/athletic/5821335/2024/10/06/yankees-alex-verdugo-revenge-game/
