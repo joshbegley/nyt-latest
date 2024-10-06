@@ -1,3 +1,7 @@
+**Aldridge: Hey, Commanders fans, it's OK to believe. For real**\
+`At 4-1 and in first place in the NFC East, Washington and Jayden Daniels are bringing back long-lost hope.`\
+https://nytimes.com/athletic/5822252/2024/10/06/washington-commanders-jayden-daniels-believe/
+
 **Canucks sign Nils Höglander to 3-year extension**\
 `The Canucks extending Höglander a full season before his contract expires as an RFA is a huge vote of confidence.`\
 https://nytimes.com/athletic/5823480/2024/10/06/canucks-nils-hoglander-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823350/2024/10/06/49ers-kyle-juszczyk-jake-moody-i
 **Blueprint Detail**\
 `While away the hours with Desirée Penner and Jeff Sinnock.`\
 https://nytimes.com/2024/10/06/crosswords/daily-puzzle-2024-10-07.html
-
-**Israel Steps Up Attacks in Gaza and Lebanon Ahead of Oct. 7 Anniversary**\
-`Israel appeared to label much of northern Gaza as an evacuation zone and in Lebanon, Israeli airstrikes targeted Hezbollah strongholds, as the region also braced for Israel to hit back at Iran.`\
-https://nytimes.com/2024/10/06/world/middleeast/israel-gaza-lebanon-attacks.html
 
