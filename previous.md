@@ -1,3 +1,7 @@
+**Leafs place Matt Murray on waivers: Is a signing bonus enough to keep him in Toronto?**\
+`Could a signing bonus serve as a disincentive for another team to put a claim on the 30-year-old goaltender with a history of health issues?`\
+https://nytimes.com/athletic/5822622/2024/10/06/maple-leafs-matt-murray-waivers/
+
 **AP Top 25: Texas back at No. 1; Alabama falls to 7th**\
 `Texas returned to the top of the AP Top 25 college football — ahead of Ohio State and Oregon, who meet next week. Alabama dropped to No. 7.`\
 https://nytimes.com/athletic/5822585/2024/10/06/ap-top-25-alabama-texas-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/sports/golf/susie-maxwell-berning-deas.html
 **Another Hurdle in Recovery From Helene: Misinformation Is Getting in the Way**\
 `In North Carolina and other states, a barrage of conspiracy theories and false claims over efforts to bring relief after Hurricane Helene is alarming and disheartening officials and workers.`\
 https://nytimes.com/2024/10/06/us/hurricane-helene-north-carolina-misinformation.html
-
-**Vikings hold off Jets 23-17, improve to 5-0 as Rodgers struggles: Takeaways**\
-`It was Rodgers' worst game in a Jets uniform as he threw three interceptions.`\
-https://nytimes.com/athletic/5822128/2024/10/06/vikings-vs-jets-takeaways-aaron-rodgers/
 
