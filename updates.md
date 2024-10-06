@@ -1,3 +1,7 @@
+**The Pulse: Does this stunning upset even matter?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5822089/2024/10/06/vanderbilt-alabama-college-football-nfl-the-pulse/
+
 **A Cryptic Letter With a Clear Warning**\
 `A domestic terrorist group sent a note to The New York Times admitting to detonating a bomb in Queens.`\
 https://nytimes.com/2024/10/06/insider/weather-underground.html

@@ -1,3 +1,7 @@
+**The Pulse: Does this stunning upset even matter?**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5822089/2024/10/06/vanderbilt-alabama-college-football-nfl-the-pulse/
+
 **A Cryptic Letter With a Clear Warning**\
 `A domestic terrorist group sent a note to The New York Times admitting to detonating a bomb in Queens.`\
 https://nytimes.com/2024/10/06/insider/weather-underground.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5821984/2024/10/06/kai-havertz-germany-knee-injury/
 **Until Saturday: Vandy’s historic day, plus it's spooky season**\
 `Welcome to Until Saturday, the five-star college football newsletter: Vanderbilt made history on a spooky first Saturday in October.`\
 https://nytimes.com/athletic/5821818/2024/10/06/vanderbilt-alabama-college-football-week-6-until-saturday/
-
-**Vinicius Junior set to miss Brazil's October fixtures with neck injury**\
-`Real Madrid forward Vinicius Junior is set to miss Brazil&#8217;s October international fixtures after sustaining a neck injury during Saturday&#8217;s La Liga victory over Villarreal.`\
-https://nytimes.com/athletic/5821871/2024/10/06/vinicius-junior-injury-update-brazil/
 
