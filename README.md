@@ -1,3 +1,15 @@
+**Israeli troops have set up near U.N. peacekeepers in Lebanon, satellite images show.**\
+`By Malachy Browne, Natan Odenheimer and Euan Ward`\
+https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/israeli-troops-have-set-up-near-un-peacekeepers-in-lebanon-satellite-images-show
+
+**NHL waiver targets: The 10 biggest names available after final roster cuts**\
+`Monday is the deadline for NHL teams to submit their cap-compliant, opening-night rosters.`\
+https://nytimes.com/athletic/5822713/2024/10/06/nhl-waivers-2024-season-engvall/
+
+**Christopher Ciccone, Who Dished About His Sister Madonna, Dies at 63**\
+`An artist, designer, choreographer and dancer, he was best known for writing a grudge-settling memoir about his formerly close bond with the pop star.`\
+https://nytimes.com/2024/10/06/obituaries/christopher-ciccone-who-dished-about-his-sister-madonna-dies-at-63.html
+
 **Texans WR Nico Collins out vs. Bills with hamstring injury**\
 `Collins caught both of his targets for 78 yards, including a 67-yard touchdown in which he limped as he jogged into the end zone.`\
 https://nytimes.com/athletic/5822176/2024/10/06/bills-texans-takeaways-result/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5822622/2024/10/06/maple-leafs-matt-murray-waivers/
 **AP Top 25: Texas back at No. 1; Alabama falls to 7th**\
 `Texas returned to the top of the AP Top 25 college football — ahead of Ohio State and Oregon, who meet next week. Alabama dropped to No. 7.`\
 https://nytimes.com/athletic/5822585/2024/10/06/ap-top-25-alabama-texas-rankings/
-
-**Barcelona 3 Alaves 0: Lewandowski hat-trick, Raphinha displays show Flick is working magic**\
-`Barcelona strolled past Alaves after a Lewandowski hat-trick to keep their spot at the top of La Liga. Here are the key talking points...`\
-https://nytimes.com/athletic/5822567/2024/10/06/alaves-0-barcelona-3-lewandowski-hat-trick-raphinha-flick/
-
-**Tim Walz Makes First Sunday Show Appearance Since Joining Ticket**\
-`Mr. Walz, who has kept a relatively low profile since becoming Vice President Kamala Harris’s running mate, appeared on Fox News Sunday.`\
-https://nytimes.com/2024/10/06/us/politics/tim-walz-fox-news-sunday.html
-
-**Dolphins' Achane ruled out with concussion vs. Patriots**\
-`Achane, 22, entered Sunday as Miami's leading rusher with 165 yards on 53 carries. He had 18 yards on three carries against New England.`\
-https://nytimes.com/athletic/5822191/2024/10/06/dolphins-patriots-takeaways-result/
 
