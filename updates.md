@@ -1,3 +1,7 @@
+**Jayden Daniels shines as Commanders beat Browns 34-13: Takeaways**\
+`The rookie quarterback became the first player in NFL history to put up 1,000 passing yards and 250 rushing yards through five games.`\
+https://nytimes.com/athletic/5822640/2024/10/06/browns-commanders-score-jayden-daniels-results-takeaways/
+
 **Submit your questions for Andrew Baggarly's next Giants Mailbagg!**\
 `The Giants 2024 season has ended but the team has dominated the news this week, as they moved on from president of baseball operations Farhan Zaidi and have turned the role over to franchise hero Buster Posey.`\
 https://nytimes.com/athletic/5823131/2024/10/06/sf-giants-mailbagg-question-submission/
