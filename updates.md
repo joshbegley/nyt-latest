@@ -1,3 +1,15 @@
+**U.K. Prime Minister’s Chief of Staff, Sue Gray, Resigns**\
+`Ms. Gray, chief of staff to Prime Minister Keir Starmer, said she was stepping down after sustained news media attention over her pay and status.`\
+https://nytimes.com/2024/10/06/world/europe/uk-pm-sue-gray-resigns.html
+
+**Fear and Uncertainty Overshadow Oct. 7 Memorial Preparations**\
+`Amid the chaos and the war that followed the Hamas-led assault, Israel has not yet held a national day of mourning for the 1,200 people who were killed.`\
+https://nytimes.com/2024/10/06/world/middleeast/israel-oct-7-memorial-preparations.html
+
+**Carvajal renews Real Madrid contract after suffering long-term knee injury**\
+`Real Madrid have extended defender Dani Carvajal&#8217;s contract by a further year until 2026.`\
+https://nytimes.com/athletic/5821957/2024/10/06/dani-carvajal-real-madrid-contract/
+
 **Here’s the latest on the presidential race.**\
 `By Neil Vigdor`\
 https://nytimes.com/live/2024/10/06/us/election-trump-harris/heres-the-latest-on-the-presidential-race
