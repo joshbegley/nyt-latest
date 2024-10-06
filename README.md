@@ -1,3 +1,7 @@
+**Michael Jordan confident in outcome of lawsuit against NASCAR**\
+`"I didn't just file it for me. It's for everyone,” Jordan told The Athletic on Sunday about the antitrust suit.`\
+https://nytimes.com/athletic/5822733/2024/10/06/michael-jordan-nascar-lawsuit/
+
 **Canucks trade Poolman, draft pick to Avalanche**\
 `This is a shrewd, creative trade by the Canucks to open up in-season cap flexibility.`\
 https://nytimes.com/athletic/5822673/2024/10/06/canucks-avalanche-trade-poolman-brannstrom/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/arts/new-york-philharmonic-honeck-beethoven-brahm
 **2 Boys Charged in Manhattan Assault on Former Gov. David Paterson**\
 `The boys, 12 and 13, were charged with gang assault, according to the police. Two adults who were involved in the attack have not been caught, the police said.`\
 https://nytimes.com/2024/10/06/nyregion/david-paterson-attack-boys-charged.html
-
-**The Briefing: Brighton 3 Spurs 2 - An incredible collapse and where the defence went wrong**\
-`Our writers break down the action from an incredible game at the Amex Stadium`\
-https://nytimes.com/athletic/5819063/2024/10/06/tottenham-brighton-comeback-solanke/
 
