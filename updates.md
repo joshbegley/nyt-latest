@@ -1,3 +1,7 @@
+**When was the last time Vanderbilt beat Alabama?**\
+`The last time the Commodores won, the MTV Video Music Awards had recently debuted and the Ghostbusters were new to the streets of NYC.`\
+https://nytimes.com/athletic/5821124/2024/10/05/when-is-last-time-vanderbilt-beat-alabama/
+
 **How does Vanderbilt's upset over Alabama impact the College Football Playoff?**\
 `The beauty of college football is you never truly know what’s going to happen, and the race for the CFP looks completely wide open.`\
 https://nytimes.com/athletic/5821180/2024/10/05/vanderbilt-alabama-college-football-playoff-upset-impact/

@@ -1,3 +1,7 @@
+**When was the last time Vanderbilt beat Alabama?**\
+`The last time the Commodores won, the MTV Video Music Awards had recently debuted and the Ghostbusters were new to the streets of NYC.`\
+https://nytimes.com/athletic/5821124/2024/10/05/when-is-last-time-vanderbilt-beat-alabama/
+
 **How does Vanderbilt's upset over Alabama impact the College Football Playoff?**\
 `The beauty of college football is you never truly know what’s going to happen, and the race for the CFP looks completely wide open.`\
 https://nytimes.com/athletic/5821180/2024/10/05/vanderbilt-alabama-college-football-playoff-upset-impact/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/iranian-
 **Mets wait out Wheeler, rock Phillies with 5-run 8th inning to win Game 1: Takeaways**\
 `After Wheeler held them to no runs and one hit in seven innings, the Mets unloaded against the Phillies' vaunted bullpen to win Game 1, 6-2.`\
 https://nytimes.com/athletic/5820965/2024/10/05/mets-phillies-score-takeaways-zack-wheeler/
-
-**Georgia looks less inspired and more methodical against Auburn**\
-`Georgia beat Auburn, but the Bulldogs didn't rack up many style points in the rivalry victory.`\
-https://nytimes.com/athletic/5820334/2024/10/05/georgia-auburn-football-score-results-takeaways/
 
