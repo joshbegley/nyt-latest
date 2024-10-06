@@ -1,3 +1,11 @@
+**Coco Gauff wins China Open the old way, with a new team**\
+`Change coach.`\
+https://nytimes.com/athletic/5821988/2024/10/06/coco-gauff-china-open-result-analysis/
+
+**Bruins sign Jeremy Swayman to 8-year, $8.25 million AAV extension**\
+`The agreement defines Swayman, for the first time in his career, as the Bruins’ No. 1 goaltender — for today and tomorrow.`\
+https://nytimes.com/athletic/5765319/2024/10/06/bruins-jeremy-swayman-contract-extension/
+
 **Bruins’ Jeremy Swayman signs 8-year, $8.25 million AAV extension**\
 `The agreement defines Swayman, for the first time in his career, as the Bruins’ No. 1 goaltender — for today and tomorrow.`\
 https://nytimes.com/athletic/5765319/2024/10/06/bruins-jeremy-swayman-contract-extension/
