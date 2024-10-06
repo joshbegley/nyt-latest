@@ -1,3 +1,7 @@
+**Cardinals at 49ers odds, expert picks, how to watch: Niners heavily favored**\
+`In an NFC West matchup, the banged-up 2-2 49ers are slowly getting healthy as they host the struggling (1-3) Cardinals.`\
+https://nytimes.com/athletic/5818932/2024/10/06/cardinals-49ers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Israel Was Prepared for a Fight With Hezbollah. Ending It Will Be Harder.**\
 `Lessons learned from a 2006 invasion of Lebanon have guided Israel in its current one. Security experts say a political deal is needed to restore calm.`\
 https://nytimes.com/2024/10/06/world/middleeast/israel-military-hezbollah.html
