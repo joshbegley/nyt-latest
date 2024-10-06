@@ -1,3 +1,11 @@
+**USC's sloppy loss to Minnesota puts CFP talk on the shelf**\
+`If USC can lose to Minnesota, it can lose to almost anybody else remaining on the schedule.`\
+https://nytimes.com/athletic/5821432/2024/10/05/usc-trojans-minnesota-big-ten/
+
+**Arkansas upsets No. 4 Tennessee: What it means for Vols' Playoff hopes**\
+`Arkansas upset No.`\
+https://nytimes.com/athletic/5821435/2024/10/05/arkansas-tennessee-upset-sec-college-football/
+
 **Ravens at Bengals odds, picks, how to watch: A clash of two Super Bowl hopefuls**\
 `Two Super Bowl contenders are hoping to leave slow starts behind them as the Ravens are narrowly favored in Cincinnati.`\
 https://nytimes.com/athletic/5818594/2024/10/05/ravens-bengals-odds-expert-picks-how-to-watch-predictions-betting/
