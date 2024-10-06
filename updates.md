@@ -1,3 +1,11 @@
+**Elon Musk Leaps to Trump’s Side in Rally Appearance**\
+`Mr. Musk, the world’s richest man and the owner of Tesla and X, endorsed the former president after the attempted assassination in July. On Saturday, he returned to the scene and made a spirited rally appearance.`\
+https://nytimes.com/2024/10/05/us/politics/elon-musk-trump-butler-rally.html
+
+**Israel Steps Up Attacks in Lebanon as Fighting Spreads**\
+`With the region on edge about a possible Israeli retaliatory strike on Iran, U.S. Central Command hit targets in Yemen, and Israel ordered evacuations in Gaza.`\
+https://nytimes.com/2024/10/05/world/middleeast/israel-lebanon-hezbollah-iran.html
+
 **When was the last time Vanderbilt beat Alabama?**\
 `The last time the Commodores won, the MTV Video Music Awards had recently debuted and the Ghostbusters were new to the streets of NYC.`\
 https://nytimes.com/athletic/5821124/2024/10/05/when-is-last-time-vanderbilt-beat-alabama/
