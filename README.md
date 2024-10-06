@@ -1,4 +1,4 @@
-**Bruins’ Jeremy Swayman signs 8-year, $8.25 million AAV extension**\
+**Bruins sign Jeremy Swayman to 8-year, $8.25 million AAV extension**\
 `The agreement defines Swayman, for the first time in his career, as the Bruins’ No. 1 goaltender — for today and tomorrow.`\
 https://nytimes.com/athletic/5765319/2024/10/06/bruins-jeremy-swayman-contract-extension/
 
