@@ -1,3 +1,7 @@
+**NFL Week 5 takeaways: Can Bills get right? Does a Davante Adams-Jets trade still make sense?**\
+`Plus, is there any saving the Brown’s 2024 season?`\
+https://nytimes.com/athletic/5823194/2024/10/06/nfl-week-5-takeaways-buffalo-bills-offense-problems-jets-davante-adams-trade/
+
 **SEC fines Vanderbilt $100,000, Arkansas $250,000 for storming field**\
 `The fines will be paid to Alabama and Tennessee, respectively, a new wrinkle in the penalties adopted at the league’s 2023 spring meetings.`\
 https://nytimes.com/athletic/5823096/2024/10/06/vanderbilt-arkansas-storm-field-sec-fines/
