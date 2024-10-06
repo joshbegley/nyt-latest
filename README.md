@@ -1,3 +1,23 @@
+**Jacoby Brissett, Patriots offense remain historically bad in tough loss to Dolphins**\
+`Through five games, the Patriots offense has been absolutely dreadful. And if Brissett remains the starter, it might not get any better.`\
+https://nytimes.com/athletic/5823409/2024/10/06/patriots-jacoby-brissett-bad-offense-dolphins/
+
+**A Year Later**\
+`Chen Almog-Goldstein was kidnapped along with her three youngest children on October 7, 2023. She tells the story of life as a hostage in Gaza.`\
+https://nytimes.com/2024/10/06/podcasts/a-year-later.html
+
+**Murray leads Cardinals' late comeback to upend 49ers 24-23: Takeaways**\
+`Arizona shuts down San Francisco in second half to stage late rally after trailing by as much as 13 points on the road. `\
+https://nytimes.com/athletic/5822420/2024/10/06/cardinals-49ers-takeaways-result/
+
+**Packers' dominant third quarter fuels victory over Rams: Key takeaways**\
+`The Packers improved to 3-2 and the Rams fell to 1-4.`\
+https://nytimes.com/athletic/5822206/2024/10/06/packers-rams-score-results-takeaways/
+
+**Greenberg: And in their fifth game, Caleb Williams and the Bears offense showed up**\
+`Chicago compiled 424 net yards and had a 3-0 turnover edge in its 36-10 win vs. Carolina. "That should be the standard," Kevin Byars said.`\
+https://nytimes.com/athletic/5823471/2024/10/06/bears-panthers-caleb-williams-offense/
+
 **Evacuation Orders Posted as Florida Braces for Hurricane Milton**\
 `The powerful, life-threatening hurricane is expected to make landfall on Wednesday even as residents continue to recover from Hurricane Helene.`\
 https://nytimes.com/2024/10/06/weather/florida-storm-milton-preparation.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5822252/2024/10/06/washington-commanders-jayden-dan
 **Canucks sign Nils Höglander to 3-year extension**\
 `The Canucks extending Höglander a full season before his contract expires as an RFA is a huge vote of confidence.`\
 https://nytimes.com/athletic/5823480/2024/10/06/canucks-nils-hoglander-contract-extension/
-
-**Sun top Lynx to force Game 5 behind strong team defense**\
-`The winner will take on the New York Liberty in Game 1 of the 2024 WNBA Finals, which begins Thursday.`\
-https://nytimes.com/athletic/5823547/2024/10/06/connecticut-sun-minnesota-lynx-game-four-score-takeaways/
-
-**Pride win first-ever NWSL Shield with win over Spirit**\
-`The Orlando Pride won their first-ever NWSL Shield with a 2-0 defeat of the Washington Spirit on Sunday.`\
-https://nytimes.com/athletic/5823517/2024/10/06/orlando-pride-win-nwsl-shield/
-
-**Brian Flores' defense saves Vikings again, this time vs. Aaron Rodgers and Jets in London**\
-`Flores' defense came up big again, offsetting a quiet day from the Vikings offense and helping Minnesota win in London to move to 5-0.`\
-https://nytimes.com/athletic/5823394/2024/10/06/jets-vikings-brian-flores-defense-aaron-rodgers/
-
-**Lloyd: Browns need a QB change to salvage what's left of their season**\
-`Deshaun Watson is an infection with no known cure. The Browns can’t cut or trade him, and they refuse let to him cash checks from the bench.`\
-https://nytimes.com/athletic/5823426/2024/10/06/cleveland-browns-deshaun-watson-commanders/
-
-**Raiders bench Gardner Minshew for Aidan O'Connell after 2 INT day vs. Broncos**\
-`O'Connell went 5-5 as the Raiders starter during his rookie season in 2023. `\
-https://nytimes.com/athletic/5823421/2024/10/06/gardner-minshew-benched-aidan-oconnell-raiders/
 
