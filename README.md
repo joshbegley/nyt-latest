@@ -1,3 +1,7 @@
+**Susie Maxwell Berning, Hall of Fame Golfer, Is Dead at 83**\
+`She often took time away from the tour for her family. But she tallied 11 championships, including three in the U.S. Women’s Open.`\
+https://nytimes.com/2024/10/06/sports/golf/susie-maxwell-berning-deas.html
+
 **Another Hurdle in Recovery From Helene: Misinformation Is Getting in the Way**\
 `In North Carolina and other states, a barrage of conspiracy theories and false claims over efforts to bring relief after Hurricane Helene is alarming and disheartening officials and workers.`\
 https://nytimes.com/2024/10/06/us/hurricane-helene-north-carolina-misinformation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822321/2024/10/06/cal-football-calgorithm-college-
 **Espirito Santo 'worried' about Forest midfielder Gibbs-White's ankle injury**\
 `Nottingham Forest’s Morgan Gibbs-White will have a scan on an ankle injury tomorrow before it is decided whether he will join up with the England squad.`\
 https://nytimes.com/athletic/5822403/2024/10/06/morgan-gibbs-white-injury-update/
-
-**Peter Jay, Headline-Making British Ambassador to the U.S., Dies at 87**\
-`His appointment sparked criticism and charges of nepotism. He later achieved unwanted attention as a character in the novel “Heartburn.”`\
-https://nytimes.com/2024/10/06/world/europe/peter-jay-dead.html
 
