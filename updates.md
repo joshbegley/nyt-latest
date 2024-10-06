@@ -1,3 +1,11 @@
+**An Artist Rethinks Climate Change in Words and Pictures**\
+`We need to act as a single unified force to find ways to strike a lasting balance with our natural world.`\
+https://nytimes.com/2024/10/06/opinion/climate-change-solutions.html
+
+**Havertz out of Germany squad with knee problem**\
+`Arsenal forward Kai Havertz has been ruled out of Germany&#8217;s October Nations League fixtures due to a knee problem.`\
+https://nytimes.com/athletic/5821984/2024/10/06/kai-havertz-germany-knee-injury/
+
 **Until Saturday: Vandy’s historic day, plus it's spooky season**\
 `Welcome to Until Saturday, the five-star college football newsletter: Vanderbilt made history on a spooky first Saturday in October.`\
 https://nytimes.com/athletic/5821818/2024/10/06/vanderbilt-alabama-college-football-week-6-until-saturday/
