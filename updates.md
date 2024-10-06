@@ -1,3 +1,7 @@
+**Rosenthal: How Freddie Freeman went from 'one percent chance' of playing in Game 1 to starring in it**\
+`The veteran first baseman has been dealing with an ankle injury, as well as soreness in his side.`\
+https://nytimes.com/athletic/5821912/2024/10/06/freddie-freeman-nlds-dodgers-padres/
+
 **The Robotic Future of Pro Sports**\
 `We explore a looming change in sports officiating.`\
 https://nytimes.com/2024/10/06/briefing/pro-sports-robo-refs.html
