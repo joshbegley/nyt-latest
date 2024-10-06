@@ -1,3 +1,7 @@
+**The Briefing: Real Madrid 2 Villarreal 0 - Valverde and Vinicius Jr excel, but Carvajal injury a blow**\
+`Madrid's right-back suffers a serious knee ligament injury and will undergo surgery, but Kylian Mbappe is a surprise starter in victory`\
+https://nytimes.com/athletic/5821086/2024/10/06/real-madrid-carvajal-valverde-vinicius-mbappe-villarreal/
+
 **Here are the latest developments.**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/crosswords/spelling-bee-forum.html
 **‘I Was on an Uptown 1 Coming Home From My Job at a SoHo Restaurant’**\
 `A briny snack on the subway, love in the air in Park Slope and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/10/06/nyregion/metropolitan-diary.html
-
-**Five of AP poll's top 11 fall in Week 6, most in eight years**\
-`The last time two AP top-five teams lost to unranked teams on the same day was Nov. 12, 2016.`\
-https://nytimes.com/athletic/5821565/2024/10/06/college-football-top-25-scores-upsets/
 
