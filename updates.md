@@ -1,3 +1,7 @@
+**Yankees outlast Royals to win Game 1: Takeaways**\
+`Alex Verdugo knocked in the go-ahead run to give the Yankees a 6-5 win in Game 1 of the ALDS. `\
+https://nytimes.com/athletic/5821231/2024/10/05/yankees-royals-game-1-alds-takeaways/
+
 **Mets steal Game 1 with makeshift pitching plan: 'It went about perfect'**\
 `Of the 27 outs the Mets recorded in Game 1, zero came from pitchers on their Opening Day roster.`\
 https://nytimes.com/athletic/5821267/2024/10/05/mets-phillies-nlds-kodai-senga/

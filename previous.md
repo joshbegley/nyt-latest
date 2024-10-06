@@ -1,3 +1,7 @@
+**Yankees outlast Royals to win Game 1: Takeaways**\
+`Alex Verdugo knocked in the go-ahead run to give the Yankees a 6-5 win in Game 1 of the ALDS. `\
+https://nytimes.com/athletic/5821231/2024/10/05/yankees-royals-game-1-alds-takeaways/
+
 **Mets steal Game 1 with makeshift pitching plan: 'It went about perfect'**\
 `Of the 27 outs the Mets recorded in Game 1, zero came from pitchers on their Opening Day roster.`\
 https://nytimes.com/athletic/5821267/2024/10/05/mets-phillies-nlds-kodai-senga/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5821036/2024/10/05/guardians-alds-game-1-win/
 **Harris Meets With Arab and Muslim Leaders in Michigan**\
 `The meeting, which took place backstage, came as Vice President Kamala Harris’s campaign ramped up efforts to appeal directly to Arab and Muslim voters in the final weeks before the election.`\
 https://nytimes.com/2024/10/05/us/politics/harris-arab-muslim-meeting-michigan.html
-
-**Israel Steps Up Attacks in Lebanon as Fighting Spreads**\
-`With the region on edge about a possible Israeli retaliatory strike on Iran, U.S. Central Command hit targets in Yemen, and Israel ordered evacuations in Gaza.`\
-https://nytimes.com/2024/10/05/world/middleeast/israel-lebanon-hezbollah-iran.html
 
