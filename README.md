@@ -1,3 +1,15 @@
+**U.K. Prime Minister’s Chief of Staff, Sue Gray, Resigns**\
+`Ms. Gray, chief of staff to Prime Minister Keir Starmer, said she was stepping down after sustained news media attention over her pay and status.`\
+https://nytimes.com/2024/10/06/world/europe/uk-pm-sue-gray-resigns.html
+
+**Fear and Uncertainty Overshadow Oct. 7 Memorial Preparations**\
+`Amid the chaos and the war that followed the Hamas-led assault, Israel has not yet held a national day of mourning for the 1,200 people who were killed.`\
+https://nytimes.com/2024/10/06/world/middleeast/israel-oct-7-memorial-preparations.html
+
+**Carvajal renews Real Madrid contract after suffering long-term knee injury**\
+`Real Madrid have extended defender Dani Carvajal&#8217;s contract by a further year until 2026.`\
+https://nytimes.com/athletic/5821957/2024/10/06/dani-carvajal-real-madrid-contract/
+
 **Here’s the latest on the presidential race.**\
 `By Neil Vigdor`\
 https://nytimes.com/live/2024/10/06/us/election-trump-harris/heres-the-latest-on-the-presidential-race
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/06/briefing/pro-sports-robo-refs.html
 **Morales: USC isn't ready to contend with Big Ten heavyweights**\
 `USC is not ready to contend at the highest levels of the Big Ten yet. And it won’t until it’s built to properly withstand the grind.`\
 https://nytimes.com/athletic/5821739/2024/10/06/usc-minnesota-big-ten-lincoln-riley/
-
-**10 bold Oilers predictions: Why this season will end with a Stanley Cup win**\
-`The Oilers came up just short of lifting the Cup a few months ago. This year will be different.`\
-https://nytimes.com/athletic/5819525/2024/10/06/edmonton-oilers-bold-predictions-2024/
-
-**Kyle Kuzma on the Mavericks trade that never happened**\
-`What does Kuzma think about the Wizards' direction? And does he regret staying in Washington last February instead of going to Dallas?`\
-https://nytimes.com/athletic/5821200/2024/10/06/kyle-kuzma-interview-wizards-mavericks/
-
-**Five lessons for the CFP race after the season's wildest weekend yet**\
-`Thanks to the 12-team College Football Playoff, no one gets eliminated by Week 6, but much was revealed on a chaotic Saturday.`\
-https://nytimes.com/athletic/5821623/2024/10/06/college-football-playoff-race-upsets-rankings/
 
