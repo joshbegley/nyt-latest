@@ -1,3 +1,19 @@
+**Harris Hits Back at Republican Criticism of Childless Women**\
+`“All of us understand that this is not the 1950s anymore,” Vice President Kamala Harris told the host of the podcast “Call Her Daddy,” a platform popular with millennial and Gen Z women.`\
+https://nytimes.com/2024/10/06/us/politics/kamala-harris-podcast-call-her-daddy.html
+
+**Liverpool's Quansah set to sign new long-term deal, Konate in talks**\
+`Jarell Quansah is set to sign a new long-term contract as Liverpool open preliminary discussions with fellow defender Ibrahima Konate over his future.`\
+https://nytimes.com/athletic/5823011/2024/10/06/liverpool-quansah-new-contract-konate/
+
+**Jaguars collect first win, 37-34, over Colts: Takeaways**\
+`Trevor Lawrence threw two touchdown passes, and Tank Bigsby rushed for two more as the Jaguars earned their first win of 2024.`\
+https://nytimes.com/athletic/5822182/2024/10/06/colts-jaguars-score-joe-flacco-results-takeaways/
+
+**How Jeremy Swayman got the best of the Bruins and an extension to set a new bar**\
+`The standoff is over. The 25-year-old without a single regular season as a full-time NHL puckstopper won, to the tune of a $66 million deal.`\
+https://nytimes.com/athletic/5823082/2024/10/06/jeremy-swayman-bruins-extension-cap/
+
 **NFL Week 5 takeaways: Can Bills get right? Does a Davante Adams-Jets trade still make sense?**\
 `Plus, is there any saving the Brown’s 2024 season?`\
 https://nytimes.com/athletic/5823194/2024/10/06/nfl-week-5-takeaways-buffalo-bills-offense-problems-jets-davante-adams-trade/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/06/briefing/oct-7-anniversary-trump-age-amazon.html
 **Caleb Williams leads Bears to 36-10 win over Panthers: Takeaways**\
 `The Bears rookie quarterback's second 300-yard passing game powers Chicago offense to victory.`\
 https://nytimes.com/athletic/5822161/2024/10/06/bears-panthers-score-caleb-williams-results-takeaways/
-
-**At North Carolina Churches After Helene, a Time to Grieve and a Time to Hope**\
-`Worshipers gathered on Sunday, many for the first time since the storm decimated their communities, “to cry and pray and process.”`\
-https://nytimes.com/2024/10/06/us/north-carolina-churches-helene.html
-
-**Balogun, Weah and Cardoso to miss USMNT's October fixtures due to injuries**\
-`Folarin Balogun, Johnny Cardoso, and Tim Weah have withdrawn from the USMNT squad due to injury.`\
-https://nytimes.com/athletic/5822921/2024/10/06/usmnt-balogun-weah-cardoso/
-
-**Jeff McNeil works out with Mets after his own wild week: When could he play again?**\
-`The Met having the wildest week wasn’t even with the team until Sunday.`\
-https://nytimes.com/athletic/5822955/2024/10/06/jeff-mcneil-mets-return-nlcs/
-
-**A ‘Hallowed Place,’ With a Whiff of Onion Rings and Sun Block**\
-`Donald Trump returned to the site where he was shot in the ear. For some of his supporters, it was a religious event as much as a campaign rally.`\
-https://nytimes.com/2024/10/06/us/elections/trump-butler-religion.html
 
