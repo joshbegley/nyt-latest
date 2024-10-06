@@ -1,3 +1,15 @@
+**Blackhawks observations: How much patience will Chicago have with Lukas Reichel?**\
+`The Blackhawks want more from Reichel — more assertiveness, more selfishness and more like the player they envision him to be.`\
+https://nytimes.com/athletic/5821434/2024/10/06/blackhawks-observations-lukas-reichel/
+
+**Five Warriors observations: Lindy Waters III hits game winner to beat Clippers**\
+`Golden State also showed a bigger frontcourt, but Moses Moody is still looking for a defined rotation role.`\
+https://nytimes.com/athletic/5821199/2024/10/06/golden-state-lindy-waters-game-winner/
+
+**Royals left puzzled by replay decision in loss to Yankees: 'You could see the daylight'**\
+`It was a familiar October play, leaving viewers studying pixelated close-ups of multiple angles and coming up with their own opinions. `\
+https://nytimes.com/athletic/5821503/2024/10/06/royals-yankees-replay-decision/
+
 **Yankees’ Alex Verdugo gets revenge and silences haters in Game 1 win**\
 `After a disappointing regular season for the Yankees, Verdugo came up big in the Yankees' first playoff game.`\
 https://nytimes.com/athletic/5821335/2024/10/06/yankees-alex-verdugo-revenge-game/
