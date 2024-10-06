@@ -1,3 +1,11 @@
+**An Artist Rethinks Climate Change in Words and Pictures**\
+`We need to act as a single unified force to find ways to strike a lasting balance with our natural world.`\
+https://nytimes.com/2024/10/06/opinion/climate-change-solutions.html
+
+**Havertz out of Germany squad with knee problem**\
+`Arsenal forward Kai Havertz has been ruled out of Germany&#8217;s October Nations League fixtures due to a knee problem.`\
+https://nytimes.com/athletic/5821984/2024/10/06/kai-havertz-germany-knee-injury/
+
 **Until Saturday: Vandy’s historic day, plus it's spooky season**\
 `Welcome to Until Saturday, the five-star college football newsletter: Vanderbilt made history on a spooky first Saturday in October.`\
 https://nytimes.com/athletic/5821818/2024/10/06/vanderbilt-alabama-college-football-week-6-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/06/us/election-trump-harris
 **Maguire and Evans start for Man Utd against Aston Villa**\
 `Manchester United manager Erik ten Hag has selected Harry Maguire and Jonny Evans to start at centre-back against Aston Villa in place of Matthijs de Ligt and Lisandro Martinez.`\
 https://nytimes.com/athletic/5821921/2024/10/06/maguire-evans-manchester-united-aston-villa/
-
-**Ship in Need of Repairs Has Explosive Cargo, but No Dock**\
-`The MV Ruby has meandered around Europe’s northwestern coastline under a cloud of suspicion over its thousands of tons of Russian fertilizer.`\
-https://nytimes.com/2024/10/06/world/europe/ship-explosives.html
-
-**Rosenthal: How Freddie Freeman went from 'one percent chance' of playing in Game 1 to starring in it**\
-`The veteran first baseman has been dealing with an ankle injury, as well as soreness in his side.`\
-https://nytimes.com/athletic/5821912/2024/10/06/freddie-freeman-nlds-dodgers-padres/
 
