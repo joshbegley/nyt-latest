@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5822420/2024/10/06/cardinals-49ers-takeaways-result
 https://nytimes.com/athletic/5822206/2024/10/06/packers-rams-score-results-takeaways/
 
 **Greenberg: And in their fifth game, Caleb Williams and the Bears offense showed up**\
-`Chicago compiled 424 net yards and had a 3-0 turnover edge in its 36-10 win vs. Carolina. "That should be the standard," Kevin Byars said.`\
+`Chicago compiled 424 net yards and had a 3-0 turnover edge in its 36-10 win vs. Carolina. "That should be the standard," Kevin Byard said.`\
 https://nytimes.com/athletic/5823471/2024/10/06/bears-panthers-caleb-williams-offense/
 
 **Evacuation Orders Posted as Florida Braces for Hurricane Milton**\

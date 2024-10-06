@@ -1,3 +1,7 @@
+**Greenberg: And in their fifth game, Caleb Williams and the Bears offense showed up**\
+`Chicago compiled 424 net yards and had a 3-0 turnover edge in its 36-10 win vs. Carolina. "That should be the standard," Kevin Byard said.`\
+https://nytimes.com/athletic/5823471/2024/10/06/bears-panthers-caleb-williams-offense/
+
 **Jacoby Brissett, Patriots offense remain historically bad in tough loss to Dolphins**\
 `Through five games, the Patriots offense has been absolutely dreadful. And if Brissett remains the starter, it might not get any better.`\
 https://nytimes.com/athletic/5823409/2024/10/06/patriots-jacoby-brissett-bad-offense-dolphins/
