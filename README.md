@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5821124/2024/10/05/when-is-last-time-vanderbilt-bea
 https://nytimes.com/athletic/5821180/2024/10/05/vanderbilt-alabama-college-football-playoff-upset-impact/
 
 **Vanderbilt knocks off No. 1 Bama. Is this the biggest upset in SEC history?**\
-`Vandy got its first-ever win over an AP top-five team, and first over the Tide since 1984, relying on star QB Diego Pavia and Bama mistakes.`\
+`Vandy got its first-ever win over an AP top-five team, and first over the Tide since 1984, relying on QB Diego Pavia and Bama's mistakes.`\
 https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
 
 **Cleveland Guardians ride electric bullpen, early runs to ALDS Game 1 win**\
