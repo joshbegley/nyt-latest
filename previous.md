@@ -1,3 +1,11 @@
+**Canucks trade Poolman, draft pick to Avalanche**\
+`This is a shrewd, creative trade by the Canucks to open up in-season cap flexibility.`\
+https://nytimes.com/athletic/5822673/2024/10/06/canucks-avalanche-trade-poolman-brannstrom/
+
+**Brighton defeat 'the worst since I've been here' says Postecoglou**\
+`Ange Postecoglou described Tottenham Hotspur&#8217;s 3-2 defeat to Brighton and Hove Albion as &#8220;the worst&#8221; since he took charge of the club in 2023.`\
+https://nytimes.com/athletic/5822711/2024/10/06/tottenham-brighton-ange-postecoglou/
+
 **Leafs place Matt Murray on waivers: Is a signing bonus enough to keep him in Toronto?**\
 `Could a signing bonus serve as a disincentive for another team to put a claim on the 30-year-old goaltender with a history of health issues?`\
 https://nytimes.com/athletic/5822622/2024/10/06/maple-leafs-matt-murray-waivers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/06/nyregion/david-paterson-attack-boys-charged.html
 **The Briefing: Brighton 3 Spurs 2 - An incredible collapse and where the defence went wrong**\
 `Our writers break down the action from an incredible game at the Amex Stadium`\
 https://nytimes.com/athletic/5819063/2024/10/06/tottenham-brighton-comeback-solanke/
-
-**Susie Maxwell Berning, Hall of Fame Golfer, Is Dead at 83**\
-`She often took time away from the tour for her family. But she tallied 11 championships, including three in the U.S. Women’s Open.`\
-https://nytimes.com/2024/10/06/sports/golf/susie-maxwell-berning-deas.html
-
-**Another Hurdle in Recovery From Helene: Misinformation Is Getting in the Way**\
-`In North Carolina and other states, a barrage of conspiracy theories and false claims over efforts to bring relief after Hurricane Helene is alarming and disheartening officials and workers.`\
-https://nytimes.com/2024/10/06/us/hurricane-helene-north-carolina-misinformation.html
 

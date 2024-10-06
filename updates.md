@@ -1,3 +1,11 @@
+**Canucks trade Poolman, draft pick to Avalanche**\
+`This is a shrewd, creative trade by the Canucks to open up in-season cap flexibility.`\
+https://nytimes.com/athletic/5822673/2024/10/06/canucks-avalanche-trade-poolman-brannstrom/
+
+**Brighton defeat 'the worst since I've been here' says Postecoglou**\
+`Ange Postecoglou described Tottenham Hotspur&#8217;s 3-2 defeat to Brighton and Hove Albion as &#8220;the worst&#8221; since he took charge of the club in 2023.`\
+https://nytimes.com/athletic/5822711/2024/10/06/tottenham-brighton-ange-postecoglou/
+
 **Leafs place Matt Murray on waivers: Is a signing bonus enough to keep him in Toronto?**\
 `Could a signing bonus serve as a disincentive for another team to put a claim on the 30-year-old goaltender with a history of health issues?`\
 https://nytimes.com/athletic/5822622/2024/10/06/maple-leafs-matt-murray-waivers/
