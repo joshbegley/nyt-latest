@@ -1,3 +1,11 @@
+**Mets steal Game 1 with makeshift pitching plan: 'It went about perfect'**\
+`Of the 27 outs the Mets recorded in Game 1, zero came from pitchers on their Opening Day roster.`\
+https://nytimes.com/athletic/5821267/2024/10/05/mets-phillies-nlds-kodai-senga/
+
+**Elon Musk Leaps to Trump’s Side in Rally Appearance**\
+`Mr. Musk, the world’s richest man and the owner of Tesla and X, endorsed the former president after the attempted assassination in July. On Saturday, he returned to the scene and made a spirited rally appearance.`\
+https://nytimes.com/2024/10/05/us/politics/elon-musk-trump-butler-rally.html
+
 **Mets wait out Wheeler, rock Phillies with 5-run 8th inning to win Game 1: Takeaways**\
 `After Wheeler held them to no runs and one hit in seven innings, the Mets unloaded against the Phillies' vaunted bullpen to win Game 1, 6-2.`\
 https://nytimes.com/athletic/5820965/2024/10/05/mets-phillies-score-takeaways-zack-wheeler/

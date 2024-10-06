@@ -1,3 +1,11 @@
+**Mets steal Game 1 with makeshift pitching plan: 'It went about perfect'**\
+`Of the 27 outs the Mets recorded in Game 1, zero came from pitchers on their Opening Day roster.`\
+https://nytimes.com/athletic/5821267/2024/10/05/mets-phillies-nlds-kodai-senga/
+
+**Elon Musk Leaps to Trump’s Side in Rally Appearance**\
+`Mr. Musk, the world’s richest man and the owner of Tesla and X, endorsed the former president after the attempted assassination in July. On Saturday, he returned to the scene and made a spirited rally appearance.`\
+https://nytimes.com/2024/10/05/us/politics/elon-musk-trump-butler-rally.html
+
 **When was the last time Vanderbilt beat Alabama?**\
 `The last time the Commodores won, the MTV Video Music Awards had recently debuted and the Ghostbusters were new to the streets of NYC.`\
 https://nytimes.com/athletic/5821124/2024/10/05/when-is-last-time-vanderbilt-beat-alabama/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/05/us/politics/harris-arab-muslim-meeting-michigan.h
 **Israel Steps Up Attacks in Lebanon as Fighting Spreads**\
 `With the region on edge about a possible Israeli retaliatory strike on Iran, U.S. Central Command hit targets in Yemen, and Israel ordered evacuations in Gaza.`\
 https://nytimes.com/2024/10/05/world/middleeast/israel-lebanon-hezbollah-iran.html
-
-**Iranian news media asks: Where is top Quds Forces commander General Esmail Ghaani?**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/10/05/world/israel-iran-hezbollah-lebanon/iranian-news-media-asks-where-is-top-quds-forces-commander-general-esmail-ghaani
-
-**Mets wait out Wheeler, rock Phillies with 5-run 8th inning to win Game 1: Takeaways**\
-`After Wheeler held them to no runs and one hit in seven innings, the Mets unloaded against the Phillies' vaunted bullpen to win Game 1, 6-2.`\
-https://nytimes.com/athletic/5820965/2024/10/05/mets-phillies-score-takeaways-zack-wheeler/
 
