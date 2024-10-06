@@ -1,3 +1,11 @@
+**Submit your questions for Andrew Baggarly's next Giants Mailbagg!**\
+`The Giants 2024 season has ended but the team has dominated the news this week, as they moved on from president of baseball operations Farhan Zaidi and have turned the role over to franchise hero Buster Posey.`\
+https://nytimes.com/athletic/5823131/2024/10/06/sf-giants-mailbagg-question-submission/
+
+**Monday Briefing: Reflecting on a Year of War**\
+`Plus, Paris Fashion Week’s closing fantasia.`\
+https://nytimes.com/2024/10/06/briefing/oct-7-anniversary-trump-age-amazon.html
+
 **Caleb Williams leads Bears to 36-10 win over Panthers: Takeaways**\
 `The Bears rookie quarterback's second 300-yard passing game powers Chicago offense to victory.`\
 https://nytimes.com/athletic/5822161/2024/10/06/bears-panthers-score-caleb-williams-results-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/06/world/asia/pakistan-dissent-crackdown.html
 **Engvall on waivers, Wahlstrom on the roster: What Islanders' final cuts mean**\
 `A look at what's next for Engvall, Wahlstrom's potential, and who the Islanders could possibly pick up to upgrade their No. 7 D spot.`\
 https://nytimes.com/athletic/5822695/2024/10/06/islanders-pierre-engvall-waivers-oliver-wahlstrom/
-
-**Why Yankees’ Giancarlo Stanton can’t run faster, plus more ALDS notes**\
-`Here's why he can't kick it into another gear on the bases, plus notes on Alex Verdugo and Game 2 starter Carlos Rodón.`\
-https://nytimes.com/athletic/5822798/2024/10/06/yankees-giancarlo-stanton-speed-alds/
-
-**Israeli troops have set up near U.N. peacekeepers in Lebanon, satellite images show.**\
-`By Malachy Browne and Natan Odenheimer`\
-https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/israeli-troops-have-set-up-near-un-peacekeepers-in-lebanon-satellite-images-show
 
