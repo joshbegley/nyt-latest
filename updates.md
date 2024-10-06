@@ -1,3 +1,7 @@
+**Yankees' Alex Verdugo gets revenge and silences haters in Game 1 win**\
+`After a disappointing regular season for the Yankees, Verdugo came up big in their first playoff game.`\
+https://nytimes.com/athletic/5821335/2024/10/06/yankees-alex-verdugo-revenge-game/
+
 **'You could see the daylight': Royals left puzzled by replay decision in loss to Yankees**\
 `It was a familiar October play, leaving viewers studying pixelated close-ups of multiple angles and coming up with their own opinions. `\
 https://nytimes.com/athletic/5821503/2024/10/06/royals-yankees-replay-decision/
