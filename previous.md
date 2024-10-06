@@ -1,3 +1,7 @@
+**Bruins’ Jeremy Swayman agrees to 8-year, $8.25 million AAV contract extension**\
+`The agreement defines Swayman, for the first time in his career, as the Bruins’ No. 1 goaltender — for today and tomorrow.`\
+https://nytimes.com/athletic/5765319/2024/10/06/bruins-jeremy-swayman-contract-extension/
+
 **An Artist Rethinks Climate Change in Words and Pictures**\
 `We need to act as a single unified force to find ways to strike a lasting balance with our natural world.`\
 https://nytimes.com/2024/10/06/opinion/climate-change-solutions.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/06/us/election-trump-harris/heres-the-latest-on
 **Live Election Updates: Trump Heads to Wisconsin as Harris Plans Media Blitz**\
 `The former president will hold a rally in another Midwest battleground that flipped away from him in 2020. Vice President Kamala Harris, who largely avoided interviews as her campaign began, now has several lined up.`\
 https://nytimes.com/live/2024/10/06/us/election-trump-harris
-
-**Maguire and Evans start for Man Utd against Aston Villa**\
-`Manchester United manager Erik ten Hag has selected Harry Maguire and Jonny Evans to start at centre-back against Aston Villa in place of Matthijs de Ligt and Lisandro Martinez.`\
-https://nytimes.com/athletic/5821921/2024/10/06/maguire-evans-manchester-united-aston-villa/
 

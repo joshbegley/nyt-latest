@@ -1,3 +1,7 @@
+**Bruins’ Jeremy Swayman agrees to 8-year, $8.25 million AAV contract extension**\
+`The agreement defines Swayman, for the first time in his career, as the Bruins’ No. 1 goaltender — for today and tomorrow.`\
+https://nytimes.com/athletic/5765319/2024/10/06/bruins-jeremy-swayman-contract-extension/
+
 **An Artist Rethinks Climate Change in Words and Pictures**\
 `We need to act as a single unified force to find ways to strike a lasting balance with our natural world.`\
 https://nytimes.com/2024/10/06/opinion/climate-change-solutions.html
