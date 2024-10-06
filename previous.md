@@ -1,3 +1,11 @@
+**Pride win NWSL Shield with win over Spirit**\
+`The Orlando Pride won their first-ever NWSL Shield with a 2-0 defeat of the Washington Spirit on Sunday.`\
+https://nytimes.com/athletic/5823517/2024/10/06/orlando-pride-win-nwsl-shield/
+
+**Brian Flores' defense saves Vikings again, this time vs. Aaron Rodgers and Jets in London**\
+`Flores' defense came up big again, offsetting a quiet day from the Vikings offense and helping Minnesota win in London to move to 5-0.`\
+https://nytimes.com/athletic/5823394/2024/10/06/jets-vikings-brian-flores-defense-aaron-rodgers/
+
 **Lloyd: Browns need a QB change to salvage what's left of their season**\
 `Deshaun Watson is an infection with no known cure. The Browns can’t cut or trade him, and they refuse let to him cash checks from the bench.`\
 https://nytimes.com/athletic/5823426/2024/10/06/cleveland-browns-deshaun-watson-commanders/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5823098/2024/10/06/liberty-aces-wnba-result-game-4/
 **Lamar Jackson dazzles; Ravens top Bengals in 41-38 barnburner**\
 `Ravens QB Lamar Jackson orchestrated a 10-point fourth-quarter comeback to force overtime and eventually beat the Bengals.`\
 https://nytimes.com/athletic/5822171/2024/10/06/bengals-ravens-score-lamar-jackson-takeaways/
-
-**Harris Hits Back at Republican Criticism of Childless Women**\
-`“All of us understand that this is not the 1950s anymore,” Vice President Kamala Harris told the host of the podcast “Call Her Daddy,” a platform popular with millennial and Gen Z women.`\
-https://nytimes.com/2024/10/06/us/politics/kamala-harris-podcast-call-her-daddy.html
-
-**Liverpool's Quansah set to sign new long-term deal, Konate in talks**\
-`Jarell Quansah is set to sign a new long-term contract as Liverpool open preliminary discussions with fellow defender Ibrahima Konate over his future.`\
-https://nytimes.com/athletic/5823011/2024/10/06/liverpool-quansah-new-contract-konate/
 
