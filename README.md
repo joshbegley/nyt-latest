@@ -1,3 +1,11 @@
+**Another Hurdle in Recovery From Helene: Misinformation Is Getting in the Way**\
+`In North Carolina and other states, a barrage of conspiracy theories and false claims over efforts to bring relief after Hurricane Helene is alarming and disheartening officials and workers.`\
+https://nytimes.com/2024/10/06/us/hurricane-helene-north-carolina-misinformation.html
+
+**Vikings hold off Jets 23-17, improve to 5-0 as Rodgers struggles: Takeaways**\
+`It was Rodgers' worst game in a Jets uniform as he threw three interceptions.`\
+https://nytimes.com/athletic/5822128/2024/10/06/vikings-vs-jets-takeaways-aaron-rodgers/
+
 **Maresca unconcerned by Chelsea discipline in ill-tempered Forest draw**\
 `Enzo Maresca insists he likes the spirit of his Chelsea team after their indiscipline was on show again in a feisty 1-1 draw with Nottingham Forest at Stamford Bridge.`\
 https://nytimes.com/athletic/5822500/2024/10/06/chelsea-nottingham-forest-maresca/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5822403/2024/10/06/morgan-gibbs-white-injury-update
 **Peter Jay, Headline-Making British Ambassador to the U.S., Dies at 87**\
 `His appointment sparked criticism and charges of nepotism. He later achieved unwanted attention as a character in the novel “Heartburn.”`\
 https://nytimes.com/2024/10/06/world/europe/peter-jay-dead.html
-
-**Blue Jackets Sunday Gathering: Jenner, Voronkov injuries cause ripple effect**\
-`Will the Blue Jackets fill out their roster with an addition from the waiver wire?`\
-https://nytimes.com/athletic/5820315/2024/10/06/blue-jackets-jenner-voronkov/
-
-**The Briefing: Chelsea 1-1 Nottingham Forest - Madueke's threat, centre-half promise but was Maresca proved right?**\
-`Chelsea, one of the division's form teams, found Forest a difficult nut to crack at Stamford Bridge in an ill-tempered contest`\
-https://nytimes.com/athletic/5819061/2024/10/06/chelsea-forest-madueke-maresca-colwill-fofana/
 
