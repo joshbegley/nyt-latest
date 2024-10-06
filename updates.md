@@ -1,3 +1,7 @@
+**Cleveland Guardians ride electric bullpen, early runs to ALDS Game 1 win**\
+`Baseball rarely goes according to script, but the Guardians couldn’t have asked for Game 1 to go any smoother. `\
+https://nytimes.com/athletic/5821134/2024/10/05/cleveland-guardians-bullpen-excels-alds-game-1/
+
 **Can Nebraska win close games? Result against Rutgers showed progress**\
 `Nebraska is 5-1 after beating Rutgers 14-7.`\
 https://nytimes.com/athletic/5820330/2024/10/05/nebraska-football-rutgers-big-ten-dylan-raiola-matt-rhule/
