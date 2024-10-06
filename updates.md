@@ -1,3 +1,11 @@
+**Panthers vs. Bears odds, picks, how to watch: A golden opportunity for Caleb Williams?**\
+`No. 1 draft pick Caleb Williams is getting better each week. Now he faces a former Bears QB in Andy Dalton.`\
+https://nytimes.com/athletic/5818570/2024/10/05/panthers-bears-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Elon Musk Leaps to Trump’s Side in Rally Appearance**\
+`Mr. Musk, the world’s richest man and the leader of Tesla and X, endorsed the former president after the attempted assassination in July. On Saturday, he returned to the scene and made a spirited rally appearance.`\
+https://nytimes.com/2024/10/05/us/politics/elon-musk-trump-butler-rally.html
+
 **Michigan fizzles in loss to Washington while Huskies show Big Ten potential**\
 `Michigan QB Jack Tuttle saw his first game action of the season against Washington. But his spark quickly fizzled in the 27-17 loss.`\
 https://nytimes.com/athletic/5821394/2024/10/05/michigan-washington-final-score-analysis-college-football/
