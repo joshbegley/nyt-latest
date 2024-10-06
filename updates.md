@@ -1,3 +1,11 @@
+**'Desperate' Sun top Lynx to force Game 5 behind strong team defense**\
+`The winner will take on the New York Liberty in Game 1 of the 2024 WNBA Finals, which begins Thursday.`\
+https://nytimes.com/athletic/5823547/2024/10/06/connecticut-sun-minnesota-lynx-game-four-score-takeaways/
+
+**Pride win first-ever NWSL Shield with win over Spirit**\
+`The Orlando Pride won their first-ever NWSL Shield with a 2-0 defeat of the Washington Spirit on Sunday.`\
+https://nytimes.com/athletic/5823517/2024/10/06/orlando-pride-win-nwsl-shield/
+
 **Pride win NWSL Shield with win over Spirit**\
 `The Orlando Pride won their first-ever NWSL Shield with a 2-0 defeat of the Washington Spirit on Sunday.`\
 https://nytimes.com/athletic/5823517/2024/10/06/orlando-pride-win-nwsl-shield/
