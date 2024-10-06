@@ -1,3 +1,7 @@
+**Tim Walz Makes First Sunday Show Appearance Since Joining Ticket**\
+`Mr. Walz, who has kept a relatively low profile since becoming Vice President Kamala Harris’s running mate, appeared on Fox News Sunday.`\
+https://nytimes.com/2024/10/06/us/politics/tim-walz-fox-news-sunday.html
+
 **Dolphins' Achane ruled out with concussion vs. Patriots**\
 `Achane, 22, entered Sunday as Miami's leading rusher with 165 yards on 53 carries. He had 18 yards on three carries against New England.`\
 https://nytimes.com/athletic/5822191/2024/10/06/dolphins-patriots-takeaways-result/
