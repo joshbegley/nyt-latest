@@ -1,3 +1,7 @@
+**Lloyd: Browns need a QB change to salvage what's left of their season**\
+`Deshaun Watson is an infection with no known cure. The Browns can’t cut or trade him, and they refuse let to him cash checks from the bench.`\
+https://nytimes.com/athletic/5823426/2024/10/06/cleveland-browns-deshaun-watson-commanders/
+
 **Raiders bench Gardner Minshew for Aidan O'Connell after 2 INT day vs. Broncos**\
 `O'Connell went 5-5 as the Raiders starter during his rookie season in 2023. `\
 https://nytimes.com/athletic/5823421/2024/10/06/gardner-minshew-benched-aidan-oconnell-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/us/politics/kamala-harris-podcast-call-her-daddy.
 **Liverpool's Quansah set to sign new long-term deal, Konate in talks**\
 `Jarell Quansah is set to sign a new long-term contract as Liverpool open preliminary discussions with fellow defender Ibrahima Konate over his future.`\
 https://nytimes.com/athletic/5823011/2024/10/06/liverpool-quansah-new-contract-konate/
-
-**Jaguars collect first win, 37-34, over Colts: Takeaways**\
-`Trevor Lawrence threw two touchdown passes, and Tank Bigsby rushed for two more as the Jaguars earned their first win of 2024.`\
-https://nytimes.com/athletic/5822182/2024/10/06/colts-jaguars-score-joe-flacco-results-takeaways/
 

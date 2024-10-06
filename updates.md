@@ -1,3 +1,7 @@
+**Lloyd: Browns need a QB change to salvage what's left of their season**\
+`Deshaun Watson is an infection with no known cure. The Browns can’t cut or trade him, and they refuse let to him cash checks from the bench.`\
+https://nytimes.com/athletic/5823426/2024/10/06/cleveland-browns-deshaun-watson-commanders/
+
 **49ers' Moody out after suffering ankle injury on kickoff**\
 `The dynamic kickoff made its debut this season and one of the concerns was having kickers more involved in tackling.`\
 https://nytimes.com/athletic/5823350/2024/10/06/49ers-kyle-juszczyk-jake-moody-injury/
