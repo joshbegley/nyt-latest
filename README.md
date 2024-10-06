@@ -1,3 +1,15 @@
+**What Szczesny's Barca signing means for Inaki Pena?**\
+`Barca's reserve 'keeper had been told he would be No 1 in Ter Stegen's absence, but Szczesny coming out of retirement could change things`\
+https://nytimes.com/athletic/5818443/2024/10/06/szczesny-pena-ter-stegen-barcelona/
+
+**Clemson's Dabo Swinney becomes winningest head coach in ACC history**\
+`Swinney, who has spent his entire head-coaching career with the Tigers, won his 174th game Saturday.`\
+https://nytimes.com/athletic/5821419/2024/10/06/dabo-swinney-winningest-coach-acc/
+
+**Chelsea vs Forest preview: Storylines, odds, prediction as Blues try to keep rolling**\
+`Chelsea have gotten off to a strong start to the season, but have a tricky match against a Forest squad that have been a tough out so far.`\
+https://nytimes.com/athletic/5818906/2024/10/06/chelsea-nottingham-forest-preview-odds-prediction/
+
 **Quote of the Day: After Helene’s Deluge, Ashville’s Water Crisis Has No End in Sight**\
 `Quotation of the Day for Sunday, October 6, 2024.`\
 https://nytimes.com/2024/10/06/pageoneplus/quote-of-the-day-after-helenes-deluge-ashvilles-water-crisis-has-no-end-in-sight.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5821432/2024/10/05/usc-trojans-minnesota-big-ten/
 **Arkansas upsets No. 4 Tennessee: What it means for Vols' Playoff hopes**\
 `Arkansas upset No.`\
 https://nytimes.com/athletic/5821435/2024/10/05/arkansas-tennessee-upset-sec-college-football/
-
-**Ravens at Bengals odds, picks, how to watch: A clash of two Super Bowl hopefuls**\
-`Two Super Bowl contenders are hoping to leave slow starts behind them as the Ravens are narrowly favored in Cincinnati.`\
-https://nytimes.com/athletic/5818594/2024/10/05/ravens-bengals-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Panthers vs. Bears odds, picks, how to watch: A golden opportunity for Caleb Williams?**\
-`No. 1 draft pick Caleb Williams is getting better each week. Now he faces a former Bears QB in Andy Dalton.`\
-https://nytimes.com/athletic/5818570/2024/10/05/panthers-bears-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Michigan fizzles in loss to Washington while Huskies show Big Ten potential**\
-`Michigan QB Jack Tuttle saw his first game action of the season against Washington. But his spark quickly fizzled in the 27-17 loss.`\
-https://nytimes.com/athletic/5821394/2024/10/05/michigan-washington-final-score-analysis-college-football/
 
