@@ -1,3 +1,11 @@
+**Another Hurdle in Recovery From Helene: Misinformation Is Getting in the Way**\
+`In North Carolina and other states, a barrage of conspiracy theories and false claims over efforts to bring relief after Hurricane Helene is alarming and disheartening officials and workers.`\
+https://nytimes.com/2024/10/06/us/hurricane-helene-north-carolina-misinformation.html
+
+**Vikings hold off Jets 23-17, improve to 5-0 as Rodgers struggles: Takeaways**\
+`It was Rodgers' worst game in a Jets uniform as he threw three interceptions.`\
+https://nytimes.com/athletic/5822128/2024/10/06/vikings-vs-jets-takeaways-aaron-rodgers/
+
 **Maresca unconcerned by Chelsea discipline in ill-tempered Forest draw**\
 `Enzo Maresca insists he likes the spirit of his Chelsea team after their indiscipline was on show again in a feisty 1-1 draw with Nottingham Forest at Stamford Bridge.`\
 https://nytimes.com/athletic/5822500/2024/10/06/chelsea-nottingham-forest-maresca/
