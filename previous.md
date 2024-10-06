@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/heres-the-latest
+
+**Live Updates: Israel Signals an Escalation of Military Activity in Gaza**\
+`Israel has also broadened its attacks in Lebanon in recent days, expanding its campaign against Hezbollah, an Iranian-backed ally of Hamas.`\
+https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon
+
 **Spotlight finds Padres’ Mike Shildt as bullpen moves backfire in NLDS opener**\
 `Shildt ordered Betts intentionally walked to get to ailing Freddie Freeman for a potential double play. Instead, the inning unraveled.`\
 https://nytimes.com/athletic/5820837/2024/10/06/padres-mike-shildt-strategy/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/06/nyregion/metropolitan-diary.html
 **Five of AP poll's top 11 fall in Week 6, most in eight years**\
 `The last time two AP top-five teams lost to unranked teams on the same day was Nov. 12, 2016.`\
 https://nytimes.com/athletic/5821565/2024/10/06/college-football-top-25-scores-upsets/
-
-**With one swing, Shohei Ohtani ignites the Dodgers in Game 1 win**\
-`As one Dodgers player said, Ohtani "injected an absolute lightning bolt into the stadium.”`\
-https://nytimes.com/athletic/5821661/2024/10/06/dodgers-padres-shohei-ohtani-homer/
-
-**‘Saturday Night Live’ Revisits the Vice-Presidential Debate**\
-`The comic Nate Bargatze hosted an episode that opened with another political sketch featuring the guest stars Dana Carvey, Jim Gaffigan, Maya Rudolph and Andy Samberg.`\
-https://nytimes.com/2024/10/06/arts/television/saturday-night-live-recap.html
 

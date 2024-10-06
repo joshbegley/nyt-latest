@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/heres-the-latest
+
+**Live Updates: Israel Signals an Escalation of Military Activity in Gaza**\
+`Israel has also broadened its attacks in Lebanon in recent days, expanding its campaign against Hezbollah, an Iranian-backed ally of Hamas.`\
+https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon
+
 **Spotlight finds Padres’ Mike Shildt as bullpen moves backfire in NLDS opener**\
 `Shildt ordered Betts intentionally walked to get to ailing Freddie Freeman for a potential double play. Instead, the inning unraveled.`\
 https://nytimes.com/athletic/5820837/2024/10/06/padres-mike-shildt-strategy/
