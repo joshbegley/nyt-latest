@@ -1,3 +1,7 @@
+**Rosenthal: How Freddie Freeman went from 'one percent chance' of playing in Game 1 to starring in it**\
+`The veteran first baseman has been dealing with an ankle injury, as well as soreness in his side.`\
+https://nytimes.com/athletic/5821912/2024/10/06/freddie-freeman-nlds-dodgers-padres/
+
 **The Robotic Future of Pro Sports**\
 `We explore a looming change in sports officiating.`\
 https://nytimes.com/2024/10/06/briefing/pro-sports-robo-refs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5819296/2024/10/06/flyers-power-play-problems/
 **Jets depth chart: Analyzing Winnipeg's strengths and weaknesses**\
 `On paper, the Jets are a probable playoff team without an inside track to Stanley Cup contention.`\
 https://nytimes.com/athletic/5818674/2024/10/06/winnipeg-jets-depth-chart-2024/
-
-**Final Red Wings preseason thoughts: Why Marco Kasper deserves an NHL roster spot**\
-`Kasper made a strong statement this preseason, looking like one of Detroit's 12 best forwards. But there are other factors in play.`\
-https://nytimes.com/athletic/5819897/2024/10/06/red-wings-roster-marco-kasper/
 
