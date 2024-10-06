@@ -1,3 +1,7 @@
+**Vanderbilt knocks off No. 1 Alabama. Is this the biggest upset in SEC history?**\
+`Vandy got its first-ever win over an AP top-five team behind star QB Diego Pavia, a strong running game and Alabama mistakes.`\
+https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
+
 **Cleveland Guardians ride electric bullpen, early runs to ALDS Game 1 win**\
 `Baseball rarely goes according to script, but the Guardians couldn’t have asked for Game 1 to go any smoother. `\
 https://nytimes.com/athletic/5821134/2024/10/05/cleveland-guardians-bullpen-excels-alds-game-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820334/2024/10/05/georgia-auburn-football-score-re
 **Is Ohio State ready for Oregon? Buckeyes passed test against risk-averse Iowa**\
 `After a sluggish first half, No. 3 Ohio State pulled away for a dominant 35-7 win against Iowa. Here's what we learned.`\
 https://nytimes.com/athletic/5820976/2024/10/05/ohio-state-iowa-football-score-recap/
-
-**Raiders' Maxx Crosby expected to return vs. Broncos**\
-`Crosby practiced Friday and was in good spirits.`\
-https://nytimes.com/athletic/5820998/2024/10/05/maxx-crosby-raiders-broncos-injury-update/
 
