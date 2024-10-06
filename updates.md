@@ -1,3 +1,7 @@
+**Kalen DeBoer's Alabama is mortal in a way Nick Saban's never was**\
+`Walking into almost every game with at least an ounce of doubt is the new normal for Alabama fans.`\
+https://nytimes.com/athletic/5821472/2024/10/06/alabama-vanderbilt-kalen-deboer-nick-saban/
+
 **Cowboys at Steelers odds, expert picks, how to watch: Marquee teams meet on Sunday night**\
 `The Steelers are favored in prime time against the Cowboys in a meeting of two of the NFL's most storied teams.`\
 https://nytimes.com/athletic/5819235/2024/10/06/cowboys-steelers-odds-expert-picks-how-to-watch-predictions-betting/
