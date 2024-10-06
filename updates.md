@@ -1,3 +1,7 @@
+**Canucks sign Nils Höglander to 3-year extension**\
+`The Canucks extending Höglander a full season before his contract expires as an RFA is a huge vote of confidence.`\
+https://nytimes.com/athletic/5823480/2024/10/06/canucks-nils-hoglander-contract-extension/
+
 **'Desperate' Sun top Lynx to force Game 5 behind strong team defense**\
 `The winner will take on the New York Liberty in Game 1 of the 2024 WNBA Finals, which begins Thursday.`\
 https://nytimes.com/athletic/5823547/2024/10/06/connecticut-sun-minnesota-lynx-game-four-score-takeaways/
