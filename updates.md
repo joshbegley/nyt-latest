@@ -1,3 +1,11 @@
+**Blueprint Detail**\
+`While away the hours with Desirée Penner and Jeff Sinnock.`\
+https://nytimes.com/2024/10/06/crosswords/daily-puzzle-2024-10-07.html
+
+**Israel Steps Up Attacks in Gaza and Lebanon Ahead of Oct. 7 Anniversary**\
+`Israel appeared to label much of northern Gaza as an evacuation zone and in Lebanon, Israeli airstrikes targeted Hezbollah strongholds, as the region also braced for Israel to hit back at Iran.`\
+https://nytimes.com/2024/10/06/world/middleeast/israel-gaza-lebanon-attacks.html
+
 **Liberty topple Aces, advance to WNBA Finals**\
 `The Liberty went on a 16-2 run in the fourth quarter to beat the Aces 76-62 and take the semifinal series.`\
 https://nytimes.com/athletic/5823098/2024/10/06/liberty-aces-wnba-result-game-4/
