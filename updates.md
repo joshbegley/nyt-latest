@@ -1,3 +1,7 @@
+**Ravens at Bengals odds, picks, how to watch: A clash of two Super Bowl hopefuls**\
+`Two Super Bowl contenders are hoping to leave slow starts behind them as the Ravens are narrowly favored in Cincinnati.`\
+https://nytimes.com/athletic/5818594/2024/10/05/ravens-bengals-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Panthers vs. Bears odds, picks, how to watch: A golden opportunity for Caleb Williams?**\
 `No. 1 draft pick Caleb Williams is getting better each week. Now he faces a former Bears QB in Andy Dalton.`\
 https://nytimes.com/athletic/5818570/2024/10/05/panthers-bears-odds-expert-picks-how-to-watch-predictions-betting/
