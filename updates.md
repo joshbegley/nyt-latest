@@ -1,3 +1,7 @@
+**Lowetide: Why the Oilers' drafts during Ken Holland era will forever be a disappointment**\
+`The Holland years were defined by aggressive usage of prime draft picks as assets for trades.`\
+https://nytimes.com/athletic/5820410/2024/10/06/oilers-drafts-ken-holland-era/
+
 **A new Israeli map labels nearly all of northern Gaza ‘new evacuation zones.’**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/a-new-israeli-map-labels-all-of-northern-gaza-new-evacuation-zones

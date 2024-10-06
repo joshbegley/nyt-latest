@@ -1,3 +1,7 @@
+**Lowetide: Why the Oilers' drafts during Ken Holland era will forever be a disappointment**\
+`The Holland years were defined by aggressive usage of prime draft picks as assets for trades.`\
+https://nytimes.com/athletic/5820410/2024/10/06/oilers-drafts-ken-holland-era/
+
 **A new Israeli map labels nearly all of northern Gaza ‘new evacuation zones.’**\
 `By Adam Rasgon`\
 https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/a-new-israeli-map-labels-all-of-northern-gaza-new-evacuation-zones
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5765319/2024/10/06/bruins-jeremy-swayman-contract-e
 **An Artist Rethinks Climate Change in Words and Pictures**\
 `We need to act as a single unified force to find ways to strike a lasting balance with our natural world.`\
 https://nytimes.com/2024/10/06/opinion/climate-change-solutions.html
-
-**Havertz out of Germany squad with knee problem**\
-`Arsenal forward Kai Havertz has been ruled out of Germany&#8217;s October Nations League fixtures due to a knee problem.`\
-https://nytimes.com/athletic/5821984/2024/10/06/kai-havertz-germany-knee-injury/
 
