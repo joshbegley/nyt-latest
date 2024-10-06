@@ -1,3 +1,15 @@
+**2024 MLB Division Series: Mets rally past Phillies, Yankees survive, Ohtani homers**\
+` Go around the the horn, three up and three down, a look at what's on deck and our picks to click`\
+https://nytimes.com/athletic/5821100/2024/10/06/mlb-2024-playoffs-mets-phillies-yankees-dodgers/
+
+**Colts at Jaguars odds, picks, how to watch: Do or die for Jacksonville**\
+`The Jaguars are the only winless team left in the league, and face a hobbled Indianapolis team at home. They're slight favorites.`\
+https://nytimes.com/athletic/5818709/2024/10/06/colts-jaguars-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Dissecting Manchester United's 'game model': What is Erik Ten Hag hoping to achieve?**\
+`An underwhelming start to the new campaign has left those around the club trying to ascertain what Erik ten Hag wants from his squad`\
+https://nytimes.com/athletic/5794187/2024/10/06/manchester-united-ten-hag-game-model/
+
 **City fans' banner urges Guardiola to stay next season… but there are pressing issues too**\
 `While the big dilemma is whether Guardiola will stay on, the smaller problem is whether City will be able to give him a fitting send-off`\
 https://nytimes.com/athletic/5820516/2024/10/06/guardiola-banner-contract-manchester-city/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5102814/2024/10/06/sickle-cell-research-lassana-dia
 **Jaros steps up as Alisson injury means another twist in Liverpool's goalkeeper situation**\
 `With Liverpool 1-0 up away at Palace and 10 minutes to play, a signal was sent to a previously unused goalkeeper sat on the sidelines`\
 https://nytimes.com/athletic/5820611/2024/10/06/liverpool-palace-jaros-alisson-injury/
-
-**What Szczesny's Barca signing means for Inaki Pena?**\
-`Barca's reserve 'keeper had been told he would be No 1 in Ter Stegen's absence, but Szczesny coming out of retirement could change things`\
-https://nytimes.com/athletic/5818443/2024/10/06/szczesny-pena-ter-stegen-barcelona/
-
-**Clemson's Dabo Swinney becomes winningest head coach in ACC history**\
-`Swinney, who has spent his entire head-coaching career with the Tigers, won his 174th game Saturday.`\
-https://nytimes.com/athletic/5821419/2024/10/06/dabo-swinney-winningest-coach-acc/
-
-**Chelsea vs Forest preview: Storylines, odds, prediction as Blues try to keep rolling**\
-`Chelsea have gotten off to a strong start to the season, but have a tricky match against a Forest squad that have been a tough out so far.`\
-https://nytimes.com/athletic/5818906/2024/10/06/chelsea-nottingham-forest-preview-odds-prediction/
 
