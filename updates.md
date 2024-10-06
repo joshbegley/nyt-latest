@@ -1,3 +1,11 @@
+**Maresca unconcerned by Chelsea discipline in ill-tempered Forest draw**\
+`Enzo Maresca insists he likes the spirit of his Chelsea team after their indiscipline was on show again in a feisty 1-1 draw with Nottingham Forest at Stamford Bridge.`\
+https://nytimes.com/athletic/5822500/2024/10/06/chelsea-nottingham-forest-maresca/
+
+**Police officer is killed in a shooting attack in southern Israel, the emergency service says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/police-officer-is-killed-in-a-shooting-attack-in-southern-israel-the-emergency-service-says
+
 **In Talking About ‘Freedom,’ Harris Hopes She Has a Winning Message on Guns**\
 `The vice president is talking about firearms in a new way for a Democrat — by co-opting the language of Republicans.`\
 https://nytimes.com/2024/10/06/us/politics/harris-guns-campaign.html
