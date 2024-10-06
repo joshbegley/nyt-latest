@@ -1,3 +1,7 @@
+**With one swing, Shohei Ohtani ignites the Dodgers in Game 1 win**\
+`As one Dodgers player said, Ohtani "injected an absolute lightning bolt into the stadium.”`\
+https://nytimes.com/athletic/5821661/2024/10/06/dodgers-padres-shoei-ohtani-homer/
+
 **‘Saturday Night Live’ Revisits the Vice-Presidential Debate**\
 `The comic Nate Bargatze hosted an episode that opened with another political sketch featuring the guest stars Dana Carvey, Jim Gaffigan, Maya Rudolph and Andy Samberg.`\
 https://nytimes.com/2024/10/06/arts/television/saturday-night-live-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5821500/2024/10/06/yankees-aaron-boone-game-1-alds/
 **'You could see the daylight': Royals left puzzled by replay decision in loss to Yankees**\
 `It was a familiar October play, leaving viewers studying pixelated close-ups of multiple angles and coming up with their own opinions. `\
 https://nytimes.com/athletic/5821503/2024/10/06/royals-yankees-replay-decision/
-
-**Gaza’s Schools Are for Learning, Not for Dying**\
-`Schools across Gaza have turned into refugee centers, and Israeli attacks on them have killed hundreds.`\
-https://nytimes.com/2024/10/06/opinion/schools-shelters-gaza-israel.html
 
