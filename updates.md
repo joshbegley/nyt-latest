@@ -1,3 +1,11 @@
+**Do Careerism and College Mix?**\
+`Readers respond to a guest essay by a recent college graduate. Also: New York City’s new outdoor dining program; how immigrants built America.`\
+https://nytimes.com/2024/10/06/opinion/careers-college.html
+
+**Mississippi Roast Two Ways**\
+`Go with the internet-famous version, or make our from-scratch recipe. Both are objectively fantastic.`\
+https://nytimes.com/2024/10/06/dining/mississippi-roast-two-ways.html
+
 **Lowetide: Why the Oilers' drafts during Ken Holland era will forever be a disappointment**\
 `The Holland years were defined by aggressive usage of prime draft picks as assets for trades.`\
 https://nytimes.com/athletic/5820410/2024/10/06/oilers-drafts-ken-holland-era/
