@@ -1,3 +1,7 @@
+**Kalen DeBoer's Alabama is mortal in a way Nick Saban's never was**\
+`Walking into almost every game with at least an ounce of doubt is the new normal for Alabama fans.`\
+https://nytimes.com/athletic/5821472/2024/10/06/alabama-vanderbilt-kalen-deboer-nick-saban/
+
 **Cowboys at Steelers odds, expert picks, how to watch: Marquee teams meet on Sunday night**\
 `The Steelers are favored in prime time against the Cowboys in a meeting of two of the NFL's most storied teams.`\
 https://nytimes.com/athletic/5819235/2024/10/06/cowboys-steelers-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/upshot/polling-methods-election.html
 **How Trump’s Speeches Raise Questions About Age**\
 `With President Biden out of the 2024 election, former President Donald J.`\
 https://nytimes.com/video/us/politics/100000009739814/how-trumps-speeches-raise-questions-about-age.html
-
-**Trump’s Speeches, Increasingly Angry and Rambling, Reignite the Question of Age**\
-`With the passage of time, the 78-year-old former president’s speeches have grown darker, harsher, longer, angrier, less focused, more profane and increasingly fixated on the past, according to a review of his public appearances over the years.`\
-https://nytimes.com/2024/10/06/us/politics/trump-speeches-age-cognitive-decline.html
 
