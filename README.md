@@ -26,8 +26,8 @@ https://nytimes.com/athletic/5821420/2024/10/06/alabama-vanderbilt-loss-playoff/
 `The Browns and Commanders are two teams headed in opposite directions, but Cleveland's defense should be a test for Jayden Daniels.`\
 https://nytimes.com/athletic/5818685/2024/10/06/browns-commanders-odds-expert-picks-how-to-watch-predictions-betting/
 
-**An absurd preseason game provides precious few answers to both Canadiens and Senators**\
-`The Canadiens and Senators entered their final game before the start of the regular season needing answers, and essentially got none.`\
+**An absurd preseason game provides precious few answers to Canadiens and Senators**\
+`The Canadiens and Senators entered their final game before the start of the regular season needing answers and essentially got none.`\
 https://nytimes.com/athletic/5821449/2024/10/06/canadiens-senators-arber-xhekaj-nhl-preseason/
 
 **Sickle cell and football: Why the disease that mainly affects Black people needs more research**\
