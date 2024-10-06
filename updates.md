@@ -1,3 +1,7 @@
+**Spotlight finds Padres’ Mike Shildt as bullpen moves backfire in NLDS opener**\
+`Shildt ordered Betts intentionally walked to get to ailing Freddie Freeman for a potential double play. Instead, the inning unraveled.`\
+https://nytimes.com/athletic/5820837/2024/10/06/padres-mike-shildt-strategy/
+
 **With one swing, Shohei Ohtani ignites the Dodgers in Game 1 win**\
 `As one Dodgers player said, Ohtani "injected an absolute lightning bolt into the stadium.”`\
 https://nytimes.com/athletic/5821661/2024/10/06/dodgers-padres-shohei-ohtani-homer/
