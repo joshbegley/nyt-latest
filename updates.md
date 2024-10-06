@@ -1,3 +1,11 @@
+**The Robotic Future of Pro Sports**\
+`We explore a looming change in sports officiating.`\
+https://nytimes.com/2024/10/06/briefing/pro-sports-robo-refs.html
+
+**Weird & Wild: 'Mission Improbable' Mets, Ohtani's Oct-Oh-ber debut, Yanks-Royals lead way**\
+`Weird and Wild watched 11 hours and six minutes of baseball Saturday — with 43 pitchers firing 1,466 pitches. Here are the highlights. `\
+https://nytimes.com/athletic/5821788/2024/10/06/mets-comebacks-ohtani-debut-yankees-royals-lead-changes/
+
 **Morales: USC isn't ready to contend with Big Ten heavyweights**\
 `USC is not ready to contend at the highest levels of the Big Ten yet. And it won’t until it’s built to properly withstand the grind.`\
 https://nytimes.com/athletic/5821739/2024/10/06/usc-minnesota-big-ten-lincoln-riley/
