@@ -1,3 +1,11 @@
+**Ohio State made a statement against Iowa: These Buckeyes aren't going to be called 'soft'**\
+`Ohio State has been criticized for a lack of physicality in big games in recent years, but it owned Iowa at the line of scrimmage Saturday.`\
+https://nytimes.com/athletic/5821385/2024/10/06/ohio-state-iowa-offensive-defensive-line/
+
+**Giants at Seahawks odds, expert picks, how to watch: Seattle heavily favored**\
+`Seattle is favored by a touchdown against the struggling Giants. Can Geno Smith gets his team to bounce back from last week's loss?`\
+https://nytimes.com/athletic/5819264/2024/10/06/giants-seahawks-odds-expert-picks-how-to-watch-predictions-betting/
+
 **‘Joker’ Sequel Falls Far Short of Original at the Box Office**\
 `The bleak musical drama is on track to open to around $45 million, less than half of what the 2019 version made on its first weekend.`\
 https://nytimes.com/2024/10/06/business/media/joker-folie-a-deux-box-office.html
