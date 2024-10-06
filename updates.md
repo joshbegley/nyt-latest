@@ -1,3 +1,7 @@
+**Vanderbilt knocks off No. 1 Bama. Is this the biggest upset in SEC history?**\
+`Vandy got its first-ever win over an AP top-five team, and first over the Tide since 1984, relying on QB Diego Pavia and Bama's mistakes.`\
+https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
+
 **How the Mets stormed back against Phillies: Anatomy of another crazy inning**\
 `Players, coaches and scouts help analyze the Mets' dramatic comeback in Game 1.`\
 https://nytimes.com/athletic/5821310/2024/10/05/mets-phillies-nlds-game-1-mark-vientos/
