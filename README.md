@@ -1,3 +1,7 @@
+**Blueprint Detail**\
+`While away the hours with Desirée Penner and Jeff Sinnock.`\
+https://nytimes.com/2024/10/06/crosswords/daily-puzzle-2024-10-07.html
+
 **Israel Steps Up Attacks in Gaza and Lebanon Ahead of Oct. 7 Anniversary**\
 `Israel appeared to label much of northern Gaza as an evacuation zone and in Lebanon, Israeli airstrikes targeted Hezbollah strongholds, as the region also braced for Israel to hit back at Iran.`\
 https://nytimes.com/2024/10/06/world/middleeast/israel-gaza-lebanon-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823194/2024/10/06/nfl-week-5-takeaways-buffalo-bil
 **SEC fines Vanderbilt $100,000, Arkansas $250,000 for storming field**\
 `The fines will be paid to Alabama and Tennessee, respectively, a new wrinkle in the penalties adopted at the league’s 2023 spring meetings.`\
 https://nytimes.com/athletic/5823096/2024/10/06/vanderbilt-arkansas-storm-field-sec-fines/
-
-**Jayden Daniels shines as Commanders beat Browns 34-13: Takeaways**\
-`The rookie quarterback became the first player in NFL history to put up 1,000 passing yards and 250 rushing yards through five games.`\
-https://nytimes.com/athletic/5822640/2024/10/06/browns-commanders-score-jayden-daniels-results-takeaways/
 
