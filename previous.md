@@ -1,3 +1,7 @@
+**Reverting Royals pitchers' walk issues give Yankees an edge in Game 1 of ALDS**\
+`The Royals walked eight Yankees hitters, including two with the bases loaded, in the 6-5 loss. `\
+https://nytimes.com/athletic/5821523/2024/10/06/royals-yankees-alds-walks/
+
 **Diego Pavia is a Bama-slaying Vanderbilt legend, and Vandy is a college football lesson**\
 `Don’t put limits on what Pavia can do, and don't count out Clark Lea and Commodores when they decide to get creative.`\
 https://nytimes.com/athletic/5821562/2024/10/06/vanderbilt-diego-pavia-alabama-upset/
@@ -19,7 +23,7 @@ https://nytimes.com/2024/10/06/opinion/schools-shelters-gaza-israel.html
 https://nytimes.com/athletic/5818725/2024/10/06/bills-texans-odds-expert-picks-how-to-watch-predictions-betting/
 
 **2024 MLB Division Series: Mets rally past Phillies, Yankees survive, Ohtani homers**\
-` Go around the the horn, three up and three down, a look at what's on deck and our picks to click`\
+`Go around the the horn, three up and three down, a look at what's on deck and our picks to click.`\
 https://nytimes.com/athletic/5821100/2024/10/06/mlb-2024-playoffs-mets-phillies-yankees-dodgers/
 
 **Colts at Jaguars odds, picks, how to watch: Do or die for Jacksonville**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5794187/2024/10/06/manchester-united-ten-hag-game-m
 **City fans' banner urges Guardiola to stay next season… but there are pressing issues too**\
 `While the big dilemma is whether Guardiola will stay on, the smaller problem is whether City will be able to give him a fitting send-off`\
 https://nytimes.com/athletic/5820516/2024/10/06/guardiola-banner-contract-manchester-city/
-
-**Shohei Ohtani sets tone for Dodgers, Padres' move backfires: Takeaways**\
-`Ohtani said he wasn't nervous about the postseason spotlight, then gave the Padres a reason to be on edge.`\
-https://nytimes.com/athletic/5821256/2024/10/06/dodgers-padres-shohei-ohtani-takeaways/
 

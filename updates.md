@@ -1,3 +1,11 @@
+**Reverting Royals pitchers' walk issues give Yankees an edge in Game 1 of ALDS**\
+`The Royals walked eight Yankees hitters, including two with the bases loaded, in the 6-5 loss. `\
+https://nytimes.com/athletic/5821523/2024/10/06/royals-yankees-alds-walks/
+
+**2024 MLB Division Series: Mets rally past Phillies, Yankees survive, Ohtani homers**\
+`Go around the the horn, three up and three down, a look at what's on deck and our picks to click.`\
+https://nytimes.com/athletic/5821100/2024/10/06/mlb-2024-playoffs-mets-phillies-yankees-dodgers/
+
 **Diego Pavia is a Bama-slaying Vanderbilt legend, and Vandy is a college football lesson**\
 `Don’t put limits on what Pavia can do, and don't count out Clark Lea and Commodores when they decide to get creative.`\
 https://nytimes.com/athletic/5821562/2024/10/06/vanderbilt-diego-pavia-alabama-upset/
