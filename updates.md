@@ -1,3 +1,11 @@
+**Raiders bench Gardner Minshew for Aidan O'Connell after 2 INT day vs. Broncos**\
+`O'Connell went 5-5 as the Raiders starter during his rookie season in 2023. `\
+https://nytimes.com/athletic/5823421/2024/10/06/gardner-minshew-benched-aidan-oconnell-raiders/
+
+**Aaron Rodgers almost had a moment against the Vikings — and then it fell apart**\
+`The Jets fell behind early in London and came away with nothing more than a moral victory.`\
+https://nytimes.com/athletic/5823049/2024/10/06/jets-loss-vikings-london-aaron-rodgers-interceptions/
+
 **49ers Moody out after suffering ankle injury on kickoff**\
 `The dynamic kickoff made its debut this season and one of the concerns was having kickers more involved in tackling.`\
 https://nytimes.com/athletic/5823350/2024/10/06/49ers-kyle-juszczyk-jake-moody-injury/
