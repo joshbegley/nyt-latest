@@ -1,3 +1,15 @@
+**Live Q&A: Week 5 fantasy football start/sit chat with Jay Felicio, Sunday, 10/6 at 11 a.m. ET**\
+`Submit your Week 5 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5819260/2024/10/06/live-qa-week-5-fantasy-football-start-sit-chat-with-jay-felicio-sunday-10-6-at-11-a-m-et/
+
+**Tacita Dean Draws Her Way Into the Menil**\
+`In the artist’s first major U.S. museum survey, she bonds with Cy Twombly through works on paper, films and photographs.`\
+https://nytimes.com/2024/10/06/arts/design/tacita-dean-drawings-twombly-menil.html
+
+**Pope Names 21 New Cardinals, Reaching Far Beyond Europe**\
+`The appointments cement Francis’ imprint on the group that will choose his successor, and reflect his vision of a more truly global Roman Catholic Church.`\
+https://nytimes.com/2024/10/06/world/europe/pope-francis-cardinals.html
+
 **Coco Gauff wins China Open the old way, with a new team**\
 `Change coach.`\
 https://nytimes.com/athletic/5821988/2024/10/06/coco-gauff-china-open-result-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5821871/2024/10/06/vinicius-junior-injury-update-br
 **U.K. Prime Minister’s Chief of Staff, Sue Gray, Resigns**\
 `Ms. Gray, chief of staff to Prime Minister Keir Starmer, said she was stepping down after sustained news media attention over her pay and status.`\
 https://nytimes.com/2024/10/06/world/europe/uk-pm-sue-gray-resigns.html
-
-**Fear and Uncertainty Overshadow Oct. 7 Memorial Preparations**\
-`Amid the chaos and the war that followed the Hamas-led assault, Israel has not yet held a national day of mourning for the 1,200 people who were killed.`\
-https://nytimes.com/2024/10/06/world/middleeast/israel-oct-7-memorial-preparations.html
-
-**Carvajal renews Real Madrid contract after suffering long-term knee injury**\
-`Real Madrid have extended defender Dani Carvajal&#8217;s contract by a further year until 2026.`\
-https://nytimes.com/athletic/5821957/2024/10/06/dani-carvajal-real-madrid-contract/
-
-**Here’s the latest on the presidential race.**\
-`By Neil Vigdor`\
-https://nytimes.com/live/2024/10/06/us/election-trump-harris/heres-the-latest-on-the-presidential-race
 
