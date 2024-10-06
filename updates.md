@@ -1,3 +1,23 @@
+**Jacoby Brissett, Patriots offense remain historically bad in tough loss to Dolphins**\
+`Through five games, the Patriots offense has been absolutely dreadful. And if Brissett remains the starter, it might not get any better.`\
+https://nytimes.com/athletic/5823409/2024/10/06/patriots-jacoby-brissett-bad-offense-dolphins/
+
+**A Year Later**\
+`Chen Almog-Goldstein was kidnapped along with her three youngest children on October 7, 2023. She tells the story of life as a hostage in Gaza.`\
+https://nytimes.com/2024/10/06/podcasts/a-year-later.html
+
+**Murray leads Cardinals' late comeback to upend 49ers 24-23: Takeaways**\
+`Arizona shuts down San Francisco in second half to stage late rally after trailing by as much as 13 points on the road. `\
+https://nytimes.com/athletic/5822420/2024/10/06/cardinals-49ers-takeaways-result/
+
+**Packers' dominant third quarter fuels victory over Rams: Key takeaways**\
+`The Packers improved to 3-2 and the Rams fell to 1-4.`\
+https://nytimes.com/athletic/5822206/2024/10/06/packers-rams-score-results-takeaways/
+
+**Greenberg: And in their fifth game, Caleb Williams and the Bears offense showed up**\
+`Chicago compiled 424 net yards and had a 3-0 turnover edge in its 36-10 win vs. Carolina. "That should be the standard," Kevin Byars said.`\
+https://nytimes.com/athletic/5823471/2024/10/06/bears-panthers-caleb-williams-offense/
+
 **Evacuation Orders Posted as Florida Braces for Hurricane Milton**\
 `The powerful, life-threatening hurricane is expected to make landfall on Wednesday even as residents continue to recover from Hurricane Helene.`\
 https://nytimes.com/2024/10/06/weather/florida-storm-milton-preparation.html
