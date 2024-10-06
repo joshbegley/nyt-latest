@@ -1,3 +1,7 @@
+**Susie Maxwell Berning, Hall of Fame Golfer, Is Dead at 83**\
+`She often took time away from the tour for her family. But she tallied 11 championships, including three in the U.S. Women’s Open.`\
+https://nytimes.com/2024/10/06/sports/golf/susie-maxwell-berning-deas.html
+
 **Another Hurdle in Recovery From Helene: Misinformation Is Getting in the Way**\
 `In North Carolina and other states, a barrage of conspiracy theories and false claims over efforts to bring relief after Hurricane Helene is alarming and disheartening officials and workers.`\
 https://nytimes.com/2024/10/06/us/hurricane-helene-north-carolina-misinformation.html
