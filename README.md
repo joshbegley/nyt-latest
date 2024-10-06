@@ -1,40 +1,40 @@
-**Cardinals at 49ers odds, expert picks, how to watch: Niners heavily favored**\
-`In an NFC West matchup, the banged-up 2-2 49ers are slowly getting healthy as they host the struggling (1-3) Cardinals.`\
-https://nytimes.com/athletic/5818932/2024/10/06/cardinals-49ers-odds-expert-picks-how-to-watch-predictions-betting/
+**‘Joker’ Sequel Falls Far Short of Original at the Box Office**\
+`The bleak musical drama is on track to open to around $45 million, less than half of what the 2019 version made on its first weekend.`\
+https://nytimes.com/2024/10/06/business/media/joker-folie-a-deux-box-office.html
 
-**Israel Was Prepared for a Fight With Hezbollah. Ending It Will Be Harder.**\
-`Lessons learned from a 2006 invasion of Lebanon have guided Israel in its current one. Security experts say a political deal is needed to restore calm.`\
-https://nytimes.com/2024/10/06/world/middleeast/israel-military-hezbollah.html
+**Harris Will Appear in a Whirlwind of Interviews, Most of Them Friendly**\
+`After mostly avoiding interviews as her campaign began, the vice president will hold several this week, including with Howard Stern, Stephen Colbert and the hosts of “The View.”`\
+https://nytimes.com/2024/10/06/us/politics/kamala-harris-interviews-the-view-stern-stephen-colbert.html
 
-**The Briefing: Real Madrid 2 Villarreal 0 - Valverde and Vinicius Jr excel, but Carvajal injury a blow**\
-`Madrid's right-back suffers a serious knee ligament injury and will undergo surgery, but Kylian Mbappe is a surprise starter in victory`\
-https://nytimes.com/athletic/5821086/2024/10/06/real-madrid-carvajal-valverde-vinicius-mbappe-villarreal/
+**At a Tennessee Plastics Plant, Sorrow and Uncertainty in Helene’s Wake**\
+`More than a week after workers fled flooding outside their factory, much remains unclear, including how many died.`\
+https://nytimes.com/2024/10/06/us/helene-tennessee-factory-deaths.html
 
-**Here are the latest developments.**\
-`By Vivek Shankar`\
-https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/heres-the-latest
+**How One Polling Decision Is Leading to Two Distinct Stories of the Election**\
+`A methodological choice has created divergent paths of polling results. Is this election more like 2020 or 2022?`\
+https://nytimes.com/2024/10/06/upshot/polling-methods-election.html
 
-**Live Updates: Israel Signals an Escalation of Military Activity in Gaza**\
-`Israel has also broadened its attacks in Lebanon in recent days, expanding its campaign against Hezbollah, an Iranian-backed ally of Hamas.`\
-https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon
+**How Trump’s Speeches Raise Questions About Age**\
+`With President Biden out of the 2024 election, former President Donald J.`\
+https://nytimes.com/video/us/politics/100000009739814/how-trumps-speeches-raise-questions-about-age.html
 
-**Spotlight finds Padres’ Mike Shildt as bullpen moves backfire in NLDS opener**\
-`Shildt ordered Betts intentionally walked to get to ailing Freddie Freeman for a potential double play. Instead, the inning unraveled.`\
-https://nytimes.com/athletic/5820837/2024/10/06/padres-mike-shildt-strategy/
+**Trump’s Speeches, Increasingly Angry and Rambling, Reignite the Question of Age**\
+`With the passage of time, the 78-year-old former president’s speeches have grown darker, harsher, longer, angrier, less focused, more profane and increasingly fixated on the past, according to a review of his public appearances over the years.`\
+https://nytimes.com/2024/10/06/us/politics/trump-speeches-age-cognitive-decline.html
 
-**Is Yoshinobu Yamamoto tipping his pitches?**\
-`LOS ANGELES — Yoshinobu Yamamoto’s first taste of pitching in the postseason was accompanied by what surely was something resembling deja vu from his disastrous big-league debut nearly seven months ago.`\
-https://nytimes.com/athletic/5821710/2024/10/06/dodgers-yoshinobu-yamamoto-tipping-2/
+**The Fight for Rural America**\
+`One in five Americans identifies as rural, and since the 1960s, their votes have become increasingly Republican.`\
+https://nytimes.com/video/us/elections/100000009739377/the-fight-for-rural-america.html
 
-**How Hedi Slimane Changed Fashion**\
-`He has just left his fourth job at a big brand. Maybe it’s time he start one of his own. Would you buy that?`\
-https://nytimes.com/2024/10/06/style/hedi-slimane-celine-chanel.html
+**A Year After Feinstein’s Death, Her Life’s Belongings Are for Sale**\
+`Senator Dianne Feinstein collected fine jewelry, paintings and a trove of political mementos. Because of her trust, many of those items are available for public inspection — and purchase.`\
+https://nytimes.com/2024/10/06/us/dianne-feinstein-estate-auction.html
 
-**From the Sidelines, Joy and Empowerment on Full Display**\
-`Sui-Lee Wee, the Southeast Asia bureau chief, reported on women who had fled Myanmar and found refuge — and the delight of soccer — in Thailand.`\
-https://nytimes.com/2024/10/06/insider/soccer-in-thailand.html
+**Some Scientists May Never Win a Nobel, but They Still Deserve These Prizes**\
+`The Nobel Foundation offers prizes in only three disciplines, but other awards have been created to honor scientists in different fields.`\
+https://nytimes.com/2024/10/06/science/awards-prizes.html
 
-**The 3 Brothers at the Center of the Bribery Inquiry Rocking City Hall**\
-`David Banks and Philip Banks III eclipsed their younger brother by rising to help run New York City. Then federal prosecutors seized the phones of all three men.`\
-https://nytimes.com/2024/10/06/nyregion/banks-david-philip-adams-investigation.html
+**How the Push to Avert a Broader War in Lebanon Fell Apart**\
+`Diplomats thought both Israel and Hezbollah supported a call for a temporary cease-fire. Then Israel killed Hezbollah’s leader.`\
+https://nytimes.com/2024/10/06/world/middleeast/israel-hezbollah-ceasefire-talks.html
 
