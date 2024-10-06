@@ -1,3 +1,27 @@
+**How Hedi Slimane Changed Fashion**\
+`He has just left his fourth job at a big brand. Maybe it’s time he start one of his own. Would you buy that?`\
+https://nytimes.com/2024/10/06/style/hedi-slimane-celine-chanel.html
+
+**From the Sidelines, Joy and Empowerment on Full Display**\
+`Sui-Lee Wee, the Southeast Asia bureau chief, reported on women who had fled Myanmar and found refuge — and the delight of soccer — in Thailand.`\
+https://nytimes.com/2024/10/06/insider/soccer-in-thailand.html
+
+**The 3 Brothers at the Center of the Bribery Inquiry Rocking City Hall**\
+`David Banks and Philip Banks III eclipsed their younger brother by rising to help run New York City. Then federal prosecutors seized the phones of all three men.`\
+https://nytimes.com/2024/10/06/nyregion/banks-david-philip-adams-investigation.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/06/crosswords/spelling-bee-forum.html
+
+**‘I Was on an Uptown 1 Coming Home From My Job at a SoHo Restaurant’**\
+`A briny snack on the subway, love in the air in Park Slope and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/10/06/nyregion/metropolitan-diary.html
+
+**Five of AP poll's top 11 fall in Week 6, most in eight years**\
+`The last time two AP top-five teams lost to unranked teams on the same day was Nov. 12, 2016.`\
+https://nytimes.com/athletic/5821565/2024/10/06/college-football-top-25-scores-upsets/
+
 **With one swing, Shohei Ohtani ignites the Dodgers in Game 1 win**\
 `As one Dodgers player said, Ohtani "injected an absolute lightning bolt into the stadium.”`\
 https://nytimes.com/athletic/5821661/2024/10/06/dodgers-padres-shoei-ohtani-homer/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5821434/2024/10/06/blackhawks-observations-lukas-re
 **Five Warriors observations: Lindy Waters III hits game winner to beat Clippers**\
 `Golden State also showed a bigger frontcourt, but Moses Moody is still looking for a defined rotation role.`\
 https://nytimes.com/athletic/5821199/2024/10/06/golden-state-lindy-waters-game-winner/
-
-**Yankees' Alex Verdugo gets revenge and silences haters in Game 1 win**\
-`After a disappointing regular season for the Yankees, Verdugo came up big in their first playoff game.`\
-https://nytimes.com/athletic/5821335/2024/10/06/yankees-alex-verdugo-revenge-game/
-
-**Reverting Royals pitchers' walk issues give Yankees an edge in Game 1 of ALDS**\
-`The Royals walked eight Yankees hitters, including two with the bases loaded, in the 6-5 loss. `\
-https://nytimes.com/athletic/5821523/2024/10/06/royals-yankees-alds-walks/
-
-**Diego Pavia is a Bama-slaying Vanderbilt legend, and Vandy is a college football lesson**\
-`Don’t put limits on what Pavia can do, and don't count out Clark Lea and Commodores when they decide to get creative.`\
-https://nytimes.com/athletic/5821562/2024/10/06/vanderbilt-diego-pavia-alabama-upset/
-
-**Yankees' Nestor Cortes to face big test Sunday in long-shot playoff return**\
-`The 29-year-old southpaw will make between 20 and 30 throws during the off day following the Yankees' Game 1 win over the Royals.`\
-https://nytimes.com/athletic/5821572/2024/10/06/yankees-nestor-cortes-to-throw-sunday/
-
-**Yankees’ Aaron Boone out-manages Royals to tense Game 1 win**\
-`Just about every decision Boone made paid off as the top-seeded Yankees squeezed out a huge 6-5 win.`\
-https://nytimes.com/athletic/5821500/2024/10/06/yankees-aaron-boone-game-1-alds/
-
-**'You could see the daylight': Royals left puzzled by replay decision in loss to Yankees**\
-`It was a familiar October play, leaving viewers studying pixelated close-ups of multiple angles and coming up with their own opinions. `\
-https://nytimes.com/athletic/5821503/2024/10/06/royals-yankees-replay-decision/
 
