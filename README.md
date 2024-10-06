@@ -1,3 +1,7 @@
+**Liberty topple Aces, advance to WNBA Finals**\
+`The Liberty went on a 16-2 run in the fourth quarter to beat the Aces 76-62 and take the semifinal series.`\
+https://nytimes.com/athletic/5823098/2024/10/06/liberty-aces-wnba-result-game-4/
+
 **Lamar Jackson dazzles; Ravens top Bengals in 41-38 barnburner**\
 `Ravens QB Lamar Jackson orchestrated a 10-point fourth-quarter comeback to force overtime and eventually beat the Bengals.`\
 https://nytimes.com/athletic/5822171/2024/10/06/bengals-ravens-score-lamar-jackson-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822640/2024/10/06/browns-commanders-score-jayden-d
 **Submit your questions for Andrew Baggarly's next Giants Mailbagg!**\
 `The Giants 2024 season has ended but the team has dominated the news this week, as they moved on from president of baseball operations Farhan Zaidi and have turned the role over to franchise hero Buster Posey.`\
 https://nytimes.com/athletic/5823131/2024/10/06/sf-giants-mailbagg-question-submission/
-
-**Monday Briefing: Reflecting on a Year of War**\
-`Plus, Paris Fashion Week’s closing fantasia.`\
-https://nytimes.com/2024/10/06/briefing/oct-7-anniversary-trump-age-amazon.html
 
