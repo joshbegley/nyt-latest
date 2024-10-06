@@ -1,3 +1,7 @@
+**Juszczyk serves as replacement holder after Moody injured on kickoff**\
+`The dynamic kickoff made its debut this season and one of the concerns was having kickers more involved in tackling.`\
+https://nytimes.com/athletic/5823350/2024/10/06/49ers-kyle-juszczyk-jake-moody-injury/
+
 **Blueprint Detail**\
 `While away the hours with Desirée Penner and Jeff Sinnock.`\
 https://nytimes.com/2024/10/06/crosswords/daily-puzzle-2024-10-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823082/2024/10/06/jeremy-swayman-bruins-extension-
 **NFL Week 5 takeaways: Can Bills get right? Does a Davante Adams-Jets trade still make sense?**\
 `Plus, is there any saving the Brown’s 2024 season?`\
 https://nytimes.com/athletic/5823194/2024/10/06/nfl-week-5-takeaways-buffalo-bills-offense-problems-jets-davante-adams-trade/
-
-**SEC fines Vanderbilt $100,000, Arkansas $250,000 for storming field**\
-`The fines will be paid to Alabama and Tennessee, respectively, a new wrinkle in the penalties adopted at the league’s 2023 spring meetings.`\
-https://nytimes.com/athletic/5823096/2024/10/06/vanderbilt-arkansas-storm-field-sec-fines/
 
