@@ -1,3 +1,7 @@
+**Yankees’ Alex Verdugo gets revenge and silences haters in Game 1 win**\
+`After a disappointing regular season for the Yankees, Verdugo came up big in the Yankees' first playoff game.`\
+https://nytimes.com/athletic/5821335/2024/10/06/yankees-alex-verdugo-revenge-game/
+
 **Reverting Royals pitchers' walk issues give Yankees an edge in Game 1 of ALDS**\
 `The Royals walked eight Yankees hitters, including two with the bases loaded, in the 6-5 loss. `\
 https://nytimes.com/athletic/5821523/2024/10/06/royals-yankees-alds-walks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5818709/2024/10/06/colts-jaguars-odds-expert-picks-
 **Dissecting Manchester United's 'game model': What is Erik Ten Hag hoping to achieve?**\
 `An underwhelming start to the new campaign has left those around the club trying to ascertain what Erik ten Hag wants from his squad`\
 https://nytimes.com/athletic/5794187/2024/10/06/manchester-united-ten-hag-game-model/
-
-**City fans' banner urges Guardiola to stay next season… but there are pressing issues too**\
-`While the big dilemma is whether Guardiola will stay on, the smaller problem is whether City will be able to give him a fitting send-off`\
-https://nytimes.com/athletic/5820516/2024/10/06/guardiola-banner-contract-manchester-city/
 

@@ -1,3 +1,7 @@
+**Yankees’ Alex Verdugo gets revenge and silences haters in Game 1 win**\
+`After a disappointing regular season for the Yankees, Verdugo came up big in the Yankees' first playoff game.`\
+https://nytimes.com/athletic/5821335/2024/10/06/yankees-alex-verdugo-revenge-game/
+
 **Reverting Royals pitchers' walk issues give Yankees an edge in Game 1 of ALDS**\
 `The Royals walked eight Yankees hitters, including two with the bases loaded, in the 6-5 loss. `\
 https://nytimes.com/athletic/5821523/2024/10/06/royals-yankees-alds-walks/
