@@ -1,3 +1,7 @@
+**Vanderbilt knocks off No. 1 Alabama. Is this the biggest upset in SEC history?**\
+`Vandy got its first-ever win over an AP top-five team behind star QB Diego Pavia, a strong running game and Alabama mistakes.`\
+https://nytimes.com/athletic/5820966/2024/10/05/alabama-football-vanderbilt-analysis/
+
 **Cleveland Guardians ride electric bullpen, early runs to ALDS Game 1 win**\
 `Baseball rarely goes according to script, but the Guardians couldn’t have asked for Game 1 to go any smoother. `\
 https://nytimes.com/athletic/5821134/2024/10/05/cleveland-guardians-bullpen-excels-alds-game-1/
