@@ -1,3 +1,7 @@
+**Evacuation Orders Posted as Florida Braces for Hurricane Milton**\
+`The powerful, life-threatening hurricane is expected to make landfall on Wednesday even as residents continue to recover from Hurricane Helene.`\
+https://nytimes.com/2024/10/06/weather/florida-storm-milton-preparation.html
+
 **Bo Nix, secondary shine in Broncos' 34-18 win vs. Raiders: Takeaways**\
 `The Broncos' win over Las Vegas snaps an eight-game losing streak against their divisional opponent dating back to 2020.`\
 https://nytimes.com/athletic/5822402/2024/10/06/raiders-broncos-score-sean-payton-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823426/2024/10/06/cleveland-browns-deshaun-watson-
 **Raiders bench Gardner Minshew for Aidan O'Connell after 2 INT day vs. Broncos**\
 `O'Connell went 5-5 as the Raiders starter during his rookie season in 2023. `\
 https://nytimes.com/athletic/5823421/2024/10/06/gardner-minshew-benched-aidan-oconnell-raiders/
-
-**Aaron Rodgers almost had a moment against the Vikings — and then it fell apart**\
-`The Jets fell behind early in London and came away with nothing more than a moral victory.`\
-https://nytimes.com/athletic/5823049/2024/10/06/jets-loss-vikings-london-aaron-rodgers-interceptions/
 
