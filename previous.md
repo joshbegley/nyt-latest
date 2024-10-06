@@ -1,3 +1,7 @@
+**Stewart Mandel's 12-team Playoff projections after Week 6**\
+`Stunning losses by Alabama and Tennessee change up this week's projections with Notre Dame returning and Boise State rolling.`\
+https://nytimes.com/athletic/5822721/2024/10/06/college-football-playoff-bracket-projections-week-6/
+
 **Michael Jordan confident in outcome of lawsuit against NASCAR**\
 `"I didn't just file it for me. It's for everyone,” Jordan told The Athletic on Sunday about the antitrust suit.`\
 https://nytimes.com/athletic/5822733/2024/10/06/michael-jordan-nascar-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822191/2024/10/06/dolphins-patriots-takeaways-resu
 **Review: Philharmonic Returns to Classics, at Its Own Expense**\
 `Led by Manfred Honeck, the orchestra all too quickly revisited Beethoven’s Seventh Symphony and, with Vikingur Olafsson, Brahms’s Piano Concerto No. 1.`\
 https://nytimes.com/2024/10/06/arts/new-york-philharmonic-honeck-beethoven-brahms.html
-
-**2 Boys Charged in Manhattan Assault on Former Gov. David Paterson**\
-`The boys, 12 and 13, were charged with gang assault, according to the police. Two adults who were involved in the attack have not been caught, the police said.`\
-https://nytimes.com/2024/10/06/nyregion/david-paterson-attack-boys-charged.html
 

@@ -1,3 +1,7 @@
+**Stewart Mandel's 12-team Playoff projections after Week 6**\
+`Stunning losses by Alabama and Tennessee change up this week's projections with Notre Dame returning and Boise State rolling.`\
+https://nytimes.com/athletic/5822721/2024/10/06/college-football-playoff-bracket-projections-week-6/
+
 **Michael Jordan confident in outcome of lawsuit against NASCAR**\
 `"I didn't just file it for me. It's for everyone,” Jordan told The Athletic on Sunday about the antitrust suit.`\
 https://nytimes.com/athletic/5822733/2024/10/06/michael-jordan-nascar-lawsuit/
