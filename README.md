@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5823421/2024/10/06/gardner-minshew-benched-aidan-oc
 `The Jets fell behind early in London and came away with nothing more than a moral victory.`\
 https://nytimes.com/athletic/5823049/2024/10/06/jets-loss-vikings-london-aaron-rodgers-interceptions/
 
-**49ers Moody out after suffering ankle injury on kickoff**\
+**49ers' Moody out after suffering ankle injury on kickoff**\
 `The dynamic kickoff made its debut this season and one of the concerns was having kickers more involved in tackling.`\
 https://nytimes.com/athletic/5823350/2024/10/06/49ers-kyle-juszczyk-jake-moody-injury/
 
