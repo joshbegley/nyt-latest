@@ -1,3 +1,15 @@
+**Sun top Lynx to force Game 5 behind strong team defense**\
+`The winner will take on the New York Liberty in Game 1 of the 2024 WNBA Finals, which begins Thursday.`\
+https://nytimes.com/athletic/5823547/2024/10/06/connecticut-sun-minnesota-lynx-game-four-score-takeaways/
+
+**49ers' Moody out after suffering ankle injury on kickoff**\
+`The dynamic kickoff made its debut this season and one of the concerns was having kickers more involved in tackling.`\
+https://nytimes.com/athletic/5823350/2024/10/06/49ers-kyle-juszczyk-jake-moody-injury/
+
+**Blueprint Detail**\
+`While away the hours with Desirée Penner and Jeff Sinnock.`\
+https://nytimes.com/2024/10/06/crosswords/daily-puzzle-2024-10-07.html
+
 **Bo Nix, secondary shine in Broncos' 34-18 win vs. Raiders: Takeaways**\
 `The Broncos' win over Las Vegas snaps an eight-game losing streak against their divisional opponent dating back to 2020.`\
 https://nytimes.com/athletic/5822402/2024/10/06/raiders-broncos-score-sean-payton-takeaways/

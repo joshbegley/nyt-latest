@@ -1,3 +1,19 @@
+**Greenberg: And in their fifth game, Caleb Williams and the Bears offense showed up**\
+`Chicago compiled 424 net yards and had a 3-0 turnover edge in its 36-10 win vs. Carolina. "That should be the standard," Kevin Byars said.`\
+https://nytimes.com/athletic/5823471/2024/10/06/bears-panthers-caleb-williams-offense/
+
+**Evacuation Orders Posted as Florida Braces for Hurricane Milton**\
+`The powerful, life-threatening hurricane is expected to make landfall on Wednesday even as residents continue to recover from Hurricane Helene.`\
+https://nytimes.com/2024/10/06/weather/florida-storm-milton-preparation.html
+
+**Bo Nix, secondary shine in Broncos' 34-18 win vs. Raiders: Takeaways**\
+`The Broncos' win over Las Vegas snaps an eight-game losing streak against their divisional opponent dating back to 2020.`\
+https://nytimes.com/athletic/5822402/2024/10/06/raiders-broncos-score-sean-payton-takeaways/
+
+**Nick Castellanos, Phillies walk off Mets, win wild Game 2 to even NLDS: Takeaways**\
+`Castellanos came through in the ninth as the Phillies bested the Mets in a back-and-forth Game 2, sending the series back to Queens tied. `\
+https://nytimes.com/athletic/5823349/2024/10/06/phillies-mets-score-nick-castellanos-nlds-takeaways/
+
 **Aldridge: Hey, Commanders fans, it's OK to believe. For real**\
 `At 4-1 and in first place in the NFC East, Washington and Jayden Daniels are bringing back long-lost hope.`\
 https://nytimes.com/athletic/5822252/2024/10/06/washington-commanders-jayden-daniels-believe/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5823394/2024/10/06/jets-vikings-brian-flores-defens
 **Lloyd: Browns need a QB change to salvage what's left of their season**\
 `Deshaun Watson is an infection with no known cure. The Browns can’t cut or trade him, and they refuse let to him cash checks from the bench.`\
 https://nytimes.com/athletic/5823426/2024/10/06/cleveland-browns-deshaun-watson-commanders/
-
-**Raiders bench Gardner Minshew for Aidan O'Connell after 2 INT day vs. Broncos**\
-`O'Connell went 5-5 as the Raiders starter during his rookie season in 2023. `\
-https://nytimes.com/athletic/5823421/2024/10/06/gardner-minshew-benched-aidan-oconnell-raiders/
-
-**Aaron Rodgers almost had a moment against the Vikings — and then it fell apart**\
-`The Jets fell behind early in London and came away with nothing more than a moral victory.`\
-https://nytimes.com/athletic/5823049/2024/10/06/jets-loss-vikings-london-aaron-rodgers-interceptions/
-
-**49ers' Moody out after suffering ankle injury on kickoff**\
-`The dynamic kickoff made its debut this season and one of the concerns was having kickers more involved in tackling.`\
-https://nytimes.com/athletic/5823350/2024/10/06/49ers-kyle-juszczyk-jake-moody-injury/
-
-**Blueprint Detail**\
-`While away the hours with Desirée Penner and Jeff Sinnock.`\
-https://nytimes.com/2024/10/06/crosswords/daily-puzzle-2024-10-07.html
 
