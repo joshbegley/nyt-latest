@@ -1,3 +1,7 @@
+**Review: Philharmonic Returns to Classics, at Its Own Expense**\
+`Led by Manfred Honeck, the orchestra all too quickly revisited Beethoven’s Seventh Symphony and, with Vikingur Olafsson, Brahms’s Piano Concerto No. 1.`\
+https://nytimes.com/2024/10/06/arts/new-york-philharmonic-honeck-beethoven-brahms.html
+
 **2 Boys Charged in Manhattan Assault on Former Gov. David Paterson**\
 `The boys, 12 and 13, were charged with gang assault, according to the police. Two adults who were involved in the attack have not been caught, the police said.`\
 https://nytimes.com/2024/10/06/nyregion/david-paterson-attack-boys-charged.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/us/politics/harris-guns-campaign.html
 **USMNT striker Balogun dislocates shoulder in Monaco win**\
 `USMNT striker Folarin Balogun dislocated his left shoulder during AS Monaco&#8217;s victory over Rennes on Saturday.`\
 https://nytimes.com/athletic/5822460/2024/10/06/falorin-balogun-injury-usmnt-update/
-
-**Phillies bench Alec Bohm for Game 2 vs. Mets**\
-`"He's scuffling a little bit," Rob Thomson said. The manager known for his steadiness has decided to sit Bohm in favor of Edmundo Sosa. `\
-https://nytimes.com/athletic/5822461/2024/10/06/alec-bohm-benched-phillies-mets/
 
