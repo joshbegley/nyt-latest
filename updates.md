@@ -1,3 +1,7 @@
+**49ers Moody out after suffering ankle injury on kickoff**\
+`The dynamic kickoff made its debut this season and one of the concerns was having kickers more involved in tackling.`\
+https://nytimes.com/athletic/5823350/2024/10/06/49ers-kyle-juszczyk-jake-moody-injury/
+
 **Juszczyk serves as replacement holder after Moody injured on kickoff**\
 `The dynamic kickoff made its debut this season and one of the concerns was having kickers more involved in tackling.`\
 https://nytimes.com/athletic/5823350/2024/10/06/49ers-kyle-juszczyk-jake-moody-injury/
