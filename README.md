@@ -1,3 +1,7 @@
+**Why Yankees’ Giancarlo Stanton can’t run faster, plus more ALDS notes**\
+`Here's why he can't kick it into another gear on the bases, plus notes on Alex Verdugo and Game 2 starter Carlos Rodón.`\
+https://nytimes.com/athletic/5822798/2024/10/06/yankees-giancarlo-stanton-speed-alds/
+
 **Israeli troops have set up near U.N. peacekeepers in Lebanon, satellite images show.**\
 `By Malachy Browne, Natan Odenheimer and Euan Ward`\
 https://nytimes.com/live/2024/10/06/world/israel-iran-hezbollah-lebanon/israeli-troops-have-set-up-near-un-peacekeepers-in-lebanon-satellite-images-show
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822711/2024/10/06/tottenham-brighton-ange-postecog
 **Leafs place Matt Murray on waivers: Is a signing bonus enough to keep him in Toronto?**\
 `Could a signing bonus serve as a disincentive for another team to put a claim on the 30-year-old goaltender with a history of health issues?`\
 https://nytimes.com/athletic/5822622/2024/10/06/maple-leafs-matt-murray-waivers/
-
-**AP Top 25: Texas back at No. 1; Alabama falls to 7th**\
-`Texas returned to the top of the AP Top 25 college football — ahead of Ohio State and Oregon, who meet next week. Alabama dropped to No. 7.`\
-https://nytimes.com/athletic/5822585/2024/10/06/ap-top-25-alabama-texas-rankings/
 
