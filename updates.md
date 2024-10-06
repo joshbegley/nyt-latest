@@ -1,3 +1,11 @@
+**‘Hallowed Ground,’ With a Whiff of Onion Rings and Sun Block**\
+`Donald Trump returned to the site where he was shot in the ear. For some of his supporters, it was a religious event as much as a campaign rally.`\
+https://nytimes.com/2024/10/06/us/elections/trump-butler-religion.html
+
+**Antisemitic Incidents Reach New High in the U.S., Report Finds**\
+`The Anti-Defamation League has found that cases of antisemitism have surged in the wake of the Oct. 7 attack by Hamas against Israel last year.`\
+https://nytimes.com/2024/10/06/us/antisemitic-incidents-us-adl-report.html
+
 **Pakistan Bans Protest Movement in Renewed Crackdown on Dissent**\
 `Analysts say the military is expanding its efforts to squash opposition.`\
 https://nytimes.com/2024/10/06/world/asia/pakistan-dissent-crackdown.html
