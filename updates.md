@@ -1,3 +1,11 @@
+**Musk’s Super PAC Offers $47 to Those Who Help It Find Trump Voters**\
+`Musk’s group wants registered voters to sign a petition that it can use to target potential supporters of Donald Trump’s presidential campaign. It’s offering a cash reward for referrals.`\
+https://nytimes.com/2024/10/07/us/politics/elon-musk-47-dollars-petition.html
+
+**Ashton Jeanty new favorite to win Heisman, Travis Hunter moves up**\
+`Boise State's Ashton Jeanty has been a dynamic runner this season and he is now the new favorite to win the Heisman Trophy.`\
+https://nytimes.com/athletic/5825834/2024/10/07/heisman-trophy-odds-ashton-jeanty-travis-hunter-jalen-milroe/
+
 **Pro-Israel and pro-Palestinian students hold side-by-side demonstrations at Columbia.**\
 `During tense but somber vigils on the university library steps, students and their supporters expressed outrage and sorrow.`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/pro-israel-and-pro-palestinian-students-hold-side-by-side-demonstrations-at-columbia
