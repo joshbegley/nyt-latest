@@ -1,3 +1,7 @@
+**Gaza in Ruins After a Year of War**\
+`Much of Gaza has been destroyed by Israel’s relentless military campaign.`\
+https://nytimes.com/interactive/2024/10/07/world/middleeast/israel-gaza-destruction-hamas-war.html
+
 **Jewish students find solace and a place to mourn with campus Hillel groups.**\
 `Commemorative events marking the anniversary of the Hamas attack on Israel drew Jewish students at campuses around the country.`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/jewish-students-find-solace-and-a-place-to-mourn-with-campus-hillel-groups
