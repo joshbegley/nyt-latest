@@ -1,3 +1,11 @@
+**Missile Hits Near Ukrainian Air Base as Russia Expands Air Attacks**\
+`The strike is part of a broader campaign of air assaults by Moscow aimed at degrading Ukraine’s military infrastructure and wearing down its air defenses.`\
+https://nytimes.com/2024/10/07/world/europe/missile-hits-near-ukrainian-air-base-as-russia-expands-air-attacks.html
+
+**U.S. imposes new sanctions to cut off Hamas funds.**\
+`The Treasury Department is targ`\
+https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/us-imposes-new-sanctions-to-cut-off-hamas-funds
+
 **USMNT Player Tracker: Unlucky Balogun, Tillman has no equals and Pulisic to step up?**\
 `It was a huge weekend for Jonathan Gomez and Cole Campbell in Greece and Germany respectively, while Paxten Aaronson continued his fine form`\
 https://nytimes.com/athletic/5825192/2024/10/07/usmnt-balogun-pulisic-tillman-tracker/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/07/world/middleeast/emirates-bans-pagers-and-walkie-
 **Maple Leafs sign Max Pacioretty, Steven Lorentz and get to within $1 of cap limit**\
 `Pacioretty spent the majority of camp on a third line playing with John Tavares and Nick Robertson`\
 https://nytimes.com/athletic/5822699/2024/10/07/maple-leafs-max-pacioretty-contract/
-
-**In London, a Pro-Palestinian Protest Disrupts the Launch of an American Mural**\
-`The U.S. ambassador Jane Hartley was en route to the dedication of a climate-themed mural in London by Shepard Fairey, who created the iconic Obama ‘Hope’ poster. But then a protest began.`\
-https://nytimes.com/2024/10/07/world/europe/london-pro-palestinian-protest-mural.html
-
-**Ray Ferraro busy NHL day, ESPN's viral Vandy QB interview, and more: Media Circus**\
-`Ray Ferraro has some rare double duty Tuesday, ESPN's Alyssa Lang had to sprint to find Vanderbilt QB Diego Pavia, and the Mets' TV impact.`\
-https://nytimes.com/athletic/5818223/2024/10/07/ray-ferraro-to-call-two-nhl-games-in-one-day-how-espn-got-the-viral-vandy-qb-interview-and-more-media-circus/
 
