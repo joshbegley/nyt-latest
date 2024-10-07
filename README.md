@@ -1,3 +1,11 @@
+**Musk’s Super PAC Offers $47 to Those Who Help It Find Trump Voters**\
+`Musk’s group wants registered voters to sign a petition that it can use to target potential supporters of Donald Trump’s presidential campaign. It’s offering a cash reward for referrals.`\
+https://nytimes.com/2024/10/07/us/politics/elon-musk-47-dollars-petition.html
+
+**Ashton Jeanty new favorite to win Heisman, Travis Hunter moves up**\
+`Boise State's Ashton Jeanty has been a dynamic runner this season and he is now the new favorite to win the Heisman Trophy.`\
+https://nytimes.com/athletic/5825834/2024/10/07/heisman-trophy-odds-ashton-jeanty-travis-hunter-jalen-milroe/
+
 **Pro-Israel and pro-Palestinian students hold side-by-side demonstrations at Columbia.**\
 `During tense but somber vigils on the university library steps, students and their supporters expressed outrage and sorrow.`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/pro-israel-and-pro-palestinian-students-hold-side-by-side-demonstrations-at-columbia
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/07/world/middleeast/israel-hostage-families-hamas-at
 **In Mexico, a Mayor Is Brutally Killed Just Days After Taking Office**\
 `The gruesome killing represents yet another challenge for the country’s new president, who faces increasing pressure to show progress in the fight against violent cartels.`\
 https://nytimes.com/2024/10/07/world/americas/mexico-mayor-murder.html
-
-**Why Israel’s Hostage Families Are Turning on Their Government**\
-`Family members of hostages held in Gaza are escalating their tactics to push for a cease-fire deal. They say the government is dragging out the war in Gaza for political reasons, and putting their family members’ lives at risk.`\
-https://nytimes.com/video/world/middleeast/100000009691035/israel-hostages-families.html
-
-**Manchester City vs the Premier League - explaining the 115* charges and what happens next**\
-`The APT dispute between Manchester City and the Premier League has reached a verdict but a far bigger case continues`\
-https://nytimes.com/athletic/5824730/2024/10/07/manchester-city-115/
 
