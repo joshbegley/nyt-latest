@@ -1,3 +1,11 @@
+**Oilers depth chart: Josh Brown loses a job, Noah Philp on the verge and more**\
+`It was going to take something drastic for the Oilers roster to change entering training camp. That's exactly what happened.`\
+https://nytimes.com/athletic/5824537/2024/10/07/oilers-depth-chart-josh-brown/
+
+**Two Americans Are Awarded the Nobel Prize for Medicine**\
+`Victor Ambros and Gary Ruvkun were awarded the Nobel Prize in Physiology or Medicine for their discovery of microRNA, which plays a role in organism development and gene regulation.`\
+https://nytimes.com/video/science/100000009745828/nobel-prize-medicine-2024.html
+
 **Barcelona's Torres out for at least three weeks with hamstring injury**\
 `Barcelona forward Ferran Torres will be out for at least three weeks after sustaining a right hamstring injury.`\
 https://nytimes.com/athletic/5824816/2024/10/07/ferran-torres-injury-barcelona/

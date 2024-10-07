@@ -1,3 +1,7 @@
+**Oilers depth chart: Josh Brown loses a job, Noah Philp on the verge and more**\
+`It was going to take something drastic for the Oilers roster to change entering training camp. That's exactly what happened.`\
+https://nytimes.com/athletic/5824537/2024/10/07/oilers-depth-chart-josh-brown/
+
 **Barcelona's Torres out for at least three weeks with hamstring injury**\
 `Barcelona forward Ferran Torres will be out for at least three weeks after sustaining a right hamstring injury.`\
 https://nytimes.com/athletic/5824816/2024/10/07/ferran-torres-injury-barcelona/
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/5822487/2024/10/07/oilers-roster-ranking-team-histo
 `"We’re focused on who’s here now and we’re focused on winning," Crosby said. "So, we gotta find ways to do that.”`\
 https://nytimes.com/athletic/5824108/2024/10/07/maxx-crosby-raiders-loss-davante-adams/
 
-**Two Americans Jointly Awarded The Nobel Prize for Medicine**\
-`Victor Ambros and Gary Ruvkun were awarded the prize for their discovery of microRNA and its role in post transcription gene regulation.`\
+**Two Americans Are Awarded the Nobel Prize for Medicine**\
+`Victor Ambros and Gary Ruvkun were awarded the Nobel Prize in Physiology or Medicine for their discovery of microRNA, which plays a role in organism development and gene regulation.`\
 https://nytimes.com/video/science/100000009745828/nobel-prize-medicine-2024.html
 
 **WSL Briefing: Arsenal lacking 'intent', Man City must rotate, a worry for Villa**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823385/2024/10/07/wsl-arsenal-man-city-villa/
 **Arab countries are still trying to maintain a balancing act.**\
 `By Ismaeel Naar`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mideast-arab-countries-gaza-israel
-
-**Villa striker Duran signs new contract until 2030**\
-`Aston Villa striker Jhon Duran has signed a new contract with the club until 2030.`\
-https://nytimes.com/athletic/5824791/2024/10/07/jhon-duran-aston-villa-contract/
 
