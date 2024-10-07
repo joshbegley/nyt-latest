@@ -1,3 +1,7 @@
+**Bengals' overtime defeat vs. Ravens their latest instance of losing at winning time**\
+`Joe Burrow: "I know exactly how we are 1-4. We are not making the plays at the end of the game to go and win it."`\
+https://nytimes.com/athletic/5823615/2024/10/06/bengals-ravens-overtime-loss/
+
 **Caleb Williams-DJ Moore connection clicks, showing what Bears offense can be**\
 `Williams had another impressive game, going 20-for-29 passing for 304 yards, two touchdowns and a 126.2 passer rating.`\
 https://nytimes.com/athletic/5823469/2024/10/06/bears-caleb-williams-dj-moore-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/06/weather/florida-storm-milton-preparation.html
 **Bo Nix, secondary shine in Broncos' 34-18 win vs. Raiders: Takeaways**\
 `The Broncos' win over Las Vegas snaps an eight-game losing streak against their divisional opponent dating back to 2020.`\
 https://nytimes.com/athletic/5822402/2024/10/06/raiders-broncos-score-sean-payton-takeaways/
-
-**Nick Castellanos, Phillies walk off Mets, win wild Game 2 to even NLDS: Takeaways**\
-`Castellanos came through in the ninth as the Phillies bested the Mets in a back-and-forth Game 2, sending the series back to Queens tied. `\
-https://nytimes.com/athletic/5823349/2024/10/06/phillies-mets-score-nick-castellanos-nlds-takeaways/
 
