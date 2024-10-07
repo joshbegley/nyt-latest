@@ -1,3 +1,7 @@
+**Cowboys beat Steelers with Dak's go-ahead TD throw**\
+`Dak Prescott found wide receiver Jalen Tolbert for a 4-yard touchdown pass to take the lead with 20 seconds to play.`\
+https://nytimes.com/athletic/5824306/2024/10/07/cowboys-steelers-score-results-takeaways/
+
 **What’s on TV This Week: ‘Below Deck Sailing Yacht’ and ‘Abbott Elementary’**\
 `Bravo airs its reality show about “yachties,” and ABC is back with its Emmy-winning sitcom.`\
 https://nytimes.com/2024/10/07/arts/television/whats-on-tv-below-deck-sailing-yacht-abbott-elementary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820187/2024/10/07/west-ham-ipswich-result-kudus-bo
 **The Newcastle United project: How is it progressing, three years on?**\
 `Three years on from Newcastle United’s Saudi Arabian-led takeover, we assess how the big project is progressing.`\
 https://nytimes.com/athletic/5814857/2024/10/07/the-newcastle-united-project-how-is-it-progressing-three-years-on/
-
-**Buonanotte’s industry gives Leicester their first win - and Cooper his new direction**\
-`He may not turn 20 until December, but Buonanotte is already blossoming in England and he is becoming an important figure for Leicester`\
-https://nytimes.com/athletic/5821783/2024/10/07/buonanotte-leicester-match-winner/
 
