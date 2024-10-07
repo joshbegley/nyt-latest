@@ -1,3 +1,11 @@
+**Cowboys-Steelers in weather delay due to lightning**\
+`The Steelers announced the start of the game was delayed "until further notice" and allowed fans to stay in the seating bowl.`\
+https://nytimes.com/athletic/5823811/2024/10/06/cowboys-steelers-weather-delay-lightning/
+
+**Jurickson Profar trolls fans after robbing HR**\
+`Mookie Betts thought it was out, as he rounded the bases in a home run trot.`\
+https://nytimes.com/athletic/5823803/2024/10/06/padres-jurickson-profar-trolls-dodgers-fans-after-robbing-a-home-run-in-game-2/
+
 **The Las Vegas Aces let the rest of the WNBA catch up. Now their three-peat quest is over**\
 `Will the Aces be able to keep their talented core together for the 2025 season?`\
 https://nytimes.com/athletic/5823797/2024/10/06/las-vegas-aces-loss-wnba-semifinals-liberty/

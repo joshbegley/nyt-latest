@@ -1,3 +1,11 @@
+**Cowboys-Steelers in weather delay due to lightning**\
+`The Steelers announced the start of the game was delayed "until further notice" and allowed fans to stay in the seating bowl.`\
+https://nytimes.com/athletic/5823811/2024/10/06/cowboys-steelers-weather-delay-lightning/
+
+**Jurickson Profar trolls fans after robbing HR**\
+`Mookie Betts thought it was out, as he rounded the bases in a home run trot.`\
+https://nytimes.com/athletic/5823803/2024/10/06/padres-jurickson-profar-trolls-dodgers-fans-after-robbing-a-home-run-in-game-2/
+
 **The Las Vegas Aces let the rest of the WNBA catch up. Now their three-peat quest is over**\
 `Will the Aces be able to keep their talented core together for the 2025 season?`\
 https://nytimes.com/athletic/5823797/2024/10/06/las-vegas-aces-loss-wnba-semifinals-liberty/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/06/podcasts/a-year-later.html
 **Murray leads Cardinals' late comeback to upend 49ers 24-23: Takeaways**\
 `Arizona shuts down San Francisco in second half to stage late rally after trailing by as much as 13 points on the road. `\
 https://nytimes.com/athletic/5822420/2024/10/06/cardinals-49ers-takeaways-result/
-
-**Packers' dominant third quarter fuels victory over Rams: Key takeaways**\
-`The Packers improved to 3-2 and the Rams fell to 1-4.`\
-https://nytimes.com/athletic/5822206/2024/10/06/packers-rams-score-results-takeaways/
-
-**Greenberg: And in their fifth game, Caleb Williams and the Bears offense showed up**\
-`Chicago compiled 424 net yards and had a 3-0 turnover edge in its 36-10 win vs. Carolina. "That should be the standard," Kevin Byard said.`\
-https://nytimes.com/athletic/5823471/2024/10/06/bears-panthers-caleb-williams-offense/
 
