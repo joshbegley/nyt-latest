@@ -1,3 +1,7 @@
+**Palestinians in Gaza Reflect on One Year of Israel’s War With Hamas**\
+`The war has killed tens of thousands and devastated entire cities, leaving many in Gaza without a home and fueling a humanitarian catastrophe.`\
+https://nytimes.com/2024/10/07/world/middleeast/palestinians-gaza-one-year-war-israel.html
+
 **How Bears defense responded to early TD with dominant performance against Panthers**\
 `The Bears gave up a long touchdown run in the first quarter but buckled down after that and took the ball away three times in the win.`\
 https://nytimes.com/athletic/5823528/2024/10/07/bears-defense-dominates-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/podcasts/israel-anniversary-strikes-gaza-lebanon.
 **Bills' alleged blunder wasn't so bad, but they need help (Davante Adams?): Sando's Pick Six**\
 `The Bills' loss to the Texans was painful, but Sean McDermott's game management wasn't felonious. In fact, his demeanor was encouraging.`\
 https://nytimes.com/athletic/5821304/2024/10/07/bills-sean-mcdermott-texans-josh-allen/
-
-**For Mets, getting to 27 outs a daily challenge of creativity**\
-`An off-day allows the Mets to reset their pen, so expect everyone except maybe David Peterson and Tylor Megill to be available for Game 3.`\
-https://nytimes.com/athletic/5824028/2024/10/07/mets-bullpen-phillies-nlds/
 
