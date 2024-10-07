@@ -1,3 +1,11 @@
+**Chiefs' Rashee Rice to undergo knee surgery**\
+`Rice is expected to miss the remainder of the season, according to multiple reports.`\
+https://nytimes.com/athletic/5826912/2024/10/07/rashee-rice-chiefs-injury-update-surgery/
+
+**Russia, China and Iran Intend to Stoke False Election Claims, Officials Warn**\
+`Intelligence officials said that foreign adversaries were planning to take advantage of another close U.S. election to undermine trust in the country’s democratic process.`\
+https://nytimes.com/2024/10/07/us/politics/russia-china-iran-false-election-claims.html
+
 **While Disney Remains Open, Other Florida Parks Announce Closures**\
 `All of the major theme parks said they were closely monitoring Hurricane Milton and would be updating their closure plans as needed.`\
 https://nytimes.com/2024/10/07/weather/hurricane-milton-walt-disney-world.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5826763/2024/10/07/tigers-guardians-score-mlb-playo
 **Ex-Rangers reliever, No. 1 pick Bush charged with DWI**\
 `Bush fled from the scene on foot before he was chased down and detained by a group of bystanders until officers arrived.`\
 https://nytimes.com/athletic/5825721/2024/10/07/matt-bush-arrest-dwi-rangers/
-
-**A Year Later, Biden Faces the Limits of U.S. Influence in the Mideast**\
-`In the immediate aftermath of the Hamas-led attacks on Oct. 7, the president stepped in to support Israel, counsel moderation and seek a lasting peace.`\
-https://nytimes.com/2024/10/07/us/politics/biden-israel-oct-7-gaza-hamas.html
-
-**Inside a Trump Ad Attacking Harris on Energy and the Environment**\
-`An ad in Michigan and Pennsylvania revives the vice president’s past positions on climate change and the environment.`\
-https://nytimes.com/2024/10/07/us/politics/trump-ad-harris-green-new-deal.html
 
