@@ -1,3 +1,7 @@
+**Cissy Houston Dies at 91; Gospel Singer Guided Daughter Whitney to Stardom**\
+`Hailing from a musical family, she won Grammys, sang backup to Elvis Presley and Aretha Franklin and helped shepherd Whitney Houston’s rise to fame.`\
+https://nytimes.com/2024/10/07/arts/music/cissy-houston-dead.html
+
 **In Gaza’s shadow, West Bank Palestinians fear even more destruction.**\
 `Israeli mi`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/in-gazas-shadow-west-bank-palestinians-fear-even-more-destruction
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5825681/2024/10/07/premier-league-manchester-city-a
 **Shams Charania leaving The Athletic to join ESPN as senior NBA insider**\
 `Charania's move comes after longtime NBA insider Adrian Wojnarowski retired from his role with ESPN in September. `\
 https://nytimes.com/athletic/5826084/2024/10/07/shams-charania-espn-the-athletic/
-
-**Musk’s Super PAC Offers $47 to Those Who Help It Find Trump Voters**\
-`Musk’s group wants registered voters to sign a petition that it can use to target potential supporters of Donald Trump’s presidential campaign. It’s offering a cash reward for referrals.`\
-https://nytimes.com/2024/10/07/us/politics/elon-musk-47-dollars-petition.html
 
