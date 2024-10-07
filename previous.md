@@ -1,3 +1,7 @@
+**In Gaza’s shadow, West Bank Palestinians fear even more destruction.**\
+`Israeli mi`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/in-gazas-shadow-west-bank-palestinians-fear-even-more-destruction
+
 **See the Ocean Heat Fueling Hurricane Milton, in One Chart**\
 `The waters of the Atlantic Ocean have been abnormally warm, providing copious amounts of energy that can intensify storms.`\
 https://nytimes.com/interactive/2024/10/07/climate/gulf-mexico-ocean-temperature.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5826084/2024/10/07/shams-charania-espn-the-athletic
 **Musk’s Super PAC Offers $47 to Those Who Help It Find Trump Voters**\
 `Musk’s group wants registered voters to sign a petition that it can use to target potential supporters of Donald Trump’s presidential campaign. It’s offering a cash reward for referrals.`\
 https://nytimes.com/2024/10/07/us/politics/elon-musk-47-dollars-petition.html
-
-**Ashton Jeanty new favorite to win Heisman, Travis Hunter moves up**\
-`Boise State's Ashton Jeanty has been a dynamic runner this season and he is now the new favorite to win the Heisman Trophy.`\
-https://nytimes.com/athletic/5825834/2024/10/07/heisman-trophy-odds-ashton-jeanty-travis-hunter-jalen-milroe/
 

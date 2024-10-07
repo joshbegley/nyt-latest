@@ -1,3 +1,7 @@
+**In Gaza’s shadow, West Bank Palestinians fear even more destruction.**\
+`Israeli mi`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/in-gazas-shadow-west-bank-palestinians-fear-even-more-destruction
+
 **See the Ocean Heat Fueling Hurricane Milton, in One Chart**\
 `The waters of the Atlantic Ocean have been abnormally warm, providing copious amounts of energy that can intensify storms.`\
 https://nytimes.com/interactive/2024/10/07/climate/gulf-mexico-ocean-temperature.html
