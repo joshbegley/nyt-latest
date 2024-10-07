@@ -1,11 +1,3 @@
-**Mets' Edwin Díaz struggles in Game 2 but 'feeling fine' after recent heavy usage**\
-`Díaz barely used his fastball in blowing the Mets' lead Sunday.`\
-https://nytimes.com/athletic/5824243/2024/10/06/mets-edwin-diaz-struggles-nlds-phillies/
-
-**Epic Phillies win had the full Nick Castellanos experience, from boos to backstop bliss**\
-`For the first 14 1/2 innings of the NLDS, they looked overwhelmed. Now, it's a series again. Castellanos was in the middle of it all.`\
-https://nytimes.com/athletic/5824085/2024/10/06/phillies-nick-castellanos-nlds-game-2/
-
 **'We kind of underestimated them': Seahawks seeking answers after flopping vs. Giants**\
 `The Seahawks were supposed to beat the short-handed Giants and get to 4-1. Perhaps those expectations were part of the problem.`\
 https://nytimes.com/athletic/5824065/2024/10/06/seahawks-giants-geno-smith-blocked-kick/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5823932/2024/10/06/raiders-broncos-quarterback-gard
 **Dodgers' Freddie Freeman departs Game 2 with ankle discomfort**\
 `LOS ANGELES — Freddie Freeman, who gutted through a sprained right ankle to star in the Los Angeles Dodgers’ Game 1 victory on Saturday night, exited Sunday’s Game 2 in the sixth inning with continued discomfort in that ankle.`\
 https://nytimes.com/athletic/5824104/2024/10/06/dodgers-freddie-freeman-injury-nlds/
+
+**Pat Surtain's DPOY case is real — and so is the defense fueling the Broncos**\
+`Surtain had already shut down the opponent's top wide receivers regularly this season. But his play Sunday hit a new level.`\
+https://nytimes.com/athletic/5823877/2024/10/06/pat-surtain-pick-6-broncos-beat-raiders/
+
+**Frankie Luvu, Commanders defense feeding off Jayden Daniels' infectious play**\
+`Washington's linebacker corps, led by Luvu and Bobby Wagner, helped set the tone on defense in the team's domination of the Browns.`\
+https://nytimes.com/athletic/5823602/2024/10/06/commanders-defense-browns-frankie-luvu-jayden-daniels/
 
