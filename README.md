@@ -1,6 +1,6 @@
 **Manchester City vs the Premier League - explaining the 115* charges and what happens next**\
 `The APT dispute between Manchester City and the Premier League has reached a verdict but a far bigger case continues`\
-https://nytimes.com/athletic/5824730/2024/10/07/manchester-city-vs-the-premier-league-explaining-the-115-charges-and-what-happens-next/
+https://nytimes.com/athletic/5824730/2024/10/07/manchester-city-115/
 
 **Looking at Bills' trade options to fill the wide receiver void**\
 `The Bills could need a trade to aid their remade WR room. Could Davante Adams, Amari Cooper and others be options?`\
