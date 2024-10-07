@@ -1,3 +1,7 @@
+**World leaders mark the anniversary with solemn words.**\
+`By Aryn Baker`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/world-leaders-mark-the-anniversary-with-solemn-words
+
 **Trump’s increasingly angry and rambling speeches reignite the question of age in the election.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/10/07/us/harris-trump-election/trumps-increasingly-angry-and-rambling-speeches-reignite-the-question-of-age-in-the-election
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817454/2024/10/07/sf-giants-arbitration-eligibles-
 **Can Giants QB Daniel Jones change narrative around him? Maybe not, but wins will help**\
 `Jones and the Giants played their most complete game of the year en route to a 29-20 upset victory over the Seahawks.`\
 https://nytimes.com/athletic/5824190/2024/10/07/daniel-jones-new-york-giants-narrative/
-
-**Tennis Briefing: Players complain about balls, rain rules Shanghai, Davis Cup shakeup**\
-`Recapping the Shanghai Masters and China Open, as well as all the off-court stories from the last week in tennis.`\
-https://nytimes.com/athletic/5824671/2024/10/07/tennis-analysis-news-china-open-shanghai-masters/
 
