@@ -20,7 +20,7 @@ https://nytimes.com/2024/10/07/world/middleeast/israel-rejects-un-courts-jurisdi
 
 **Viktor Bout Is Trying to Sell Weapons to the Houthis, Western Officials Say**\
 `The Russian arms dealer, who was freed in a prisoner exchange with the United States, is negotiating with the militant group in Yemen.`\
-https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/viktor-bout-houthis-weapons
+https://nytimes.com/2024/10/07/us/politics/viktor-bout-houthis-weapons.html
 
 **France Has Made Itself Irrelevant on the World Stage**\
 `If you don’t play the game, you don’t make the rules.`\

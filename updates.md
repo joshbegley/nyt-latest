@@ -1,3 +1,7 @@
+**Viktor Bout Is Trying to Sell Weapons to the Houthis, Western Officials Say**\
+`The Russian arms dealer, who was freed in a prisoner exchange with the United States, is negotiating with the militant group in Yemen.`\
+https://nytimes.com/2024/10/07/us/politics/viktor-bout-houthis-weapons.html
+
 **Tuesday Briefing: Israelis and Palestinians Mourn a Year of Loss**\
 `Plus, Chappell Roan navigates the demands of fame.`\
 https://nytimes.com/2024/10/07/briefing/oct-7-anniversary-harris-lifespan.html
