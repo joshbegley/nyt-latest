@@ -1,3 +1,11 @@
+**A Hundred Years’ War for Our Time**\
+`Peace in the Middle East seems more elusive than ever, with Oct. 7 setting off a battle over not just land but the narrative itself.`\
+https://nytimes.com/2024/10/07/world/middleeast/israel-palestinians-war.html
+
+**For Hornets coach Charles Lee, it's about building culture, togetherness**\
+`After years of chasing a head coaching job, Lee has finally landed in Charlotte. Can he help the Hornets finally get on track?`\
+https://nytimes.com/athletic/5823175/2024/10/07/charles-lee-hornets-building-culture-togetherness/
+
 **What Michigan's QB flip-flopping says about 2024 and beyond**\
 `Michigan is on its third QB of the season, switching from Davis Warren to Alex Orji to now Jack Tuttle during Saturday's loss at Washington.`\
 https://nytimes.com/athletic/5822847/2024/10/07/jack-tuttle-michigan-football-qb-washington/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/07/movies/new-york-film-festival-documentaries-nonfi
 **Trump’s Plans Could Increase U.S. Debt While Raising Costs for Most Americans**\
 `A new analysis estimates that the former president’s proposals could grow deficits by as much as $15 trillion over a decade.`\
 https://nytimes.com/2024/10/07/us/politics/trumps-plans-could-increase-us-debt-while-raising-costs-for-most-americans.html
-
-**Is Trump Trying to Blow It?**\
-`He seems to have given up trying to broaden his share of the vote.`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/trump-share-vote-base
-
-**No One Said It Was Going to Be Easy for Kamala Harris**\
-`But tell me again why she isn’t running away with this election?`\
-https://nytimes.com/2024/10/07/opinion/harris-walz-trump-vance.html
 
