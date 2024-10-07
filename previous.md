@@ -1,3 +1,7 @@
+**Villa striker Duran signs new contract until 2030**\
+`Aston Villa striker Jhon Duran has signed a new contract with the club until 2030.`\
+https://nytimes.com/athletic/5824791/2024/10/07/jhon-duran-aston-villa-contract/
+
 **Dak Prescott: 'Never a doubt' Cowboys were going to score touchdown on final drive**\
 `For three and a half quarters, it looked like Dak Prescott would be the reason the Cowboys would lose in prime time against the Steelers.`\
 https://nytimes.com/athletic/5824698/2024/10/07/dak-prescott-cowboys-comeback-steelers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824635/2024/10/07/deshaun-watson-kevin-stefanski-b
 **Former Broncos coach Vance Joseph is doing a solid for current Broncos coach Sean Payton**\
 `Joseph's defense allowed 70 points in one game just 379 days ago. Now, that unit is carrying the team and its young offense.`\
 https://nytimes.com/athletic/5824652/2024/10/07/sean-payton-broncos-vance-joseph/
-
-**Padres rookie Jackson Merrill keeps playing, keeps starring: ‘He’s a bad dude’**\
-`Merrill became the youngest Padre to ever homer in the postseason.`\
-https://nytimes.com/athletic/5824575/2024/10/07/padres-nlds-jackson-merrill/
 
