@@ -1,3 +1,15 @@
+**Addressing a Silent Epidemic**\
+`Why oral health is the next logical step in self-care.`\
+https://nytimes.com/paidpost/proclaim/addressing-a-silent-epidemic.html
+
+**FIFA suspend Como's Curto for 10 games after racially abusing Wolves' Hwang**\
+`Como&#8217;s Marco Curto has been banned for 10 matches &#8211; five of them suspended &#8211; by FIFA after being found guilty of racially abusing Wolverhampton Wanderers forward Hwang Hee-chan in a pre-season friendly.`\
+https://nytimes.com/athletic/5826267/2024/10/07/hwang-wolves-racist-suspesnsion-fifa-como-curto/
+
+**What Are Your Thoughts About a Year of War in Israel, Gaza and the Middle East?**\
+`A year into this devastating war, what are you feeling and thinking? How have your feelings changed over the course of the year?`\
+https://nytimes.com/2024/10/07/learning/israel-gaza-war-anniversary.html
+
 **4 Takeaways From ‘The Menendez Brothers,’ on Netflix**\
 `The documentary, based on extensive new interviews with Lyle and Erik Menendez, adds fresh nuance and details about their parents’ murders and the aftermath.`\
 https://nytimes.com/2024/10/07/arts/television/the-menendez-brothers-netflix.html
