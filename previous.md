@@ -1,3 +1,11 @@
+**New dad Ryan Hartman's offseason provided perspective on Wild, fatherhood: 'You want him to be proud'**\
+`The veteran forward enters his sixth season in Minnesota with a bigger role and a greater purpose.`\
+https://nytimes.com/athletic/5824736/2024/10/07/minnesota-wild-ryan-hartman-father/
+
+**Russia Sentences 72-Year-Old American on Charges of Fighting for Ukraine**\
+`Stephen James Hubbard, a native of Big Rapids, Mich., whose family says is an English teacher, was sentenced to six years and 10 months in a penal colony.`\
+https://nytimes.com/2024/10/07/world/europe/russia-american-ukraine.html
+
 **Garnacho withdraws from Argentina squad with knee injury**\
 `Manchester United winger Alejandro Garnacho has withdrawn from Argentina&#8217;s squad for their October World Cup qualifiers due to a knee injury.`\
 https://nytimes.com/athletic/5825166/2024/10/07/alejandro-garnacho-argentina-injury-manchester-united/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5824852/2024/10/07/manchester-united-tactics-aston-
 **Fantasy Week 5 recap: Buy or sell struggling Breece Hall, Bijan Robinson?**\
 `The Jets' and Falcons' starting RBs have scuffled early. Is it time to sell them off before their stock dips any lower?`\
 https://nytimes.com/athletic/5825099/2024/10/07/fantasy-football-week-5-recap-breece-hall-bijan-robinson/
-
-**What went wrong in USC's loss to Minnesota?**\
-`Until Lincoln Riley and USC get the small things cleaned up, there will be more frustrating losses like Saturday’s at Minnesota.`\
-https://nytimes.com/athletic/5824971/2024/10/07/usc-football-lincoln-riley-minnesota-loss/
-
-**A simple video of a child’s grave speaks volumes about Gazans’ loss.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/a-simple-video-of-a-childs-grave-speaks-volumes-about-gazans-loss
 

@@ -1,3 +1,11 @@
+**New dad Ryan Hartman's offseason provided perspective on Wild, fatherhood: 'You want him to be proud'**\
+`The veteran forward enters his sixth season in Minnesota with a bigger role and a greater purpose.`\
+https://nytimes.com/athletic/5824736/2024/10/07/minnesota-wild-ryan-hartman-father/
+
+**Russia Sentences 72-Year-Old American on Charges of Fighting for Ukraine**\
+`Stephen James Hubbard, a native of Big Rapids, Mich., whose family says is an English teacher, was sentenced to six years and 10 months in a penal colony.`\
+https://nytimes.com/2024/10/07/world/europe/russia-american-ukraine.html
+
 **Garnacho withdraws from Argentina squad with knee injury**\
 `Manchester United winger Alejandro Garnacho has withdrawn from Argentina&#8217;s squad for their October World Cup qualifiers due to a knee injury.`\
 https://nytimes.com/athletic/5825166/2024/10/07/alejandro-garnacho-argentina-injury-manchester-united/
