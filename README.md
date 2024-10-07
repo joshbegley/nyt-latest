@@ -1,3 +1,7 @@
+**Jewish students find solace and a place to mourn with campus Hillel groups.**\
+`Commemorative events marking the anniversary of the Hamas attack on Israel drew Jewish students at campuses around the country.`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/jewish-students-find-solace-and-a-place-to-mourn-with-campus-hillel-groups
+
 **The Price of a Mega Millions Ticket Will More Than Double to $5**\
 `Mega Millions officials said players’ odds would be increased and jackpot sizes would be bigger after the price increase next April.`\
 https://nytimes.com/2024/10/07/us/mega-millions-ticket-price-increase.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/us/politics/israel-iran-nuclear-facilities-strike
 **New York Times reporters share stories of the war that they cannot forget.**\
 `By Isabel Kershner, Raja Abdulrahim and Adam Rasgon`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/new-york-times-reporters-share-stories-of-the-war-that-they-cannot-forget
-
-**Rams target potential Kupp return for Week 7**\
-`Rams star receiver Cooper Kupp injured his ankle in Week 2 against the Cardinals and has not played since.`\
-https://nytimes.com/athletic/5826668/2024/10/07/cooper-kupp-injury-update-return-rams/
 
