@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Matthew Mpoke Bigg, Liam Stack and Natan Odenheimer`\
+https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/here-are-the-latest-developments
+
 **Nutter Butter, Are You Good? An Investigation.**\
 `The cookie sandwich brand’s videos — funny, disturbing, fever-dreamlike — rack up tens of millions of views. The secret is lots of lore without much sense, the campaign’s strategists explain.`\
 https://nytimes.com/2024/10/07/style/nutter-butter-social-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822847/2024/10/07/jack-tuttle-michigan-football-qb
 **Weird & Wild: Phillies-Mets Game 2 was an October classic with so many memorable moments**\
 `An October classic was unfolding around them. And they knew it when they saw it. They felt it as they lived it. `\
 https://nytimes.com/athletic/5824406/2024/10/07/phillies-mets-game-2-moments-harper-castellanos/
-
-**Celtics'Jaylen Brown finds connections in beating Nuggets: Preseason stock report**\
-`The Celtics handled the Denver Nuggets rather easily during their second meeting in Abu Dhabi. `\
-https://nytimes.com/athletic/5822605/2024/10/07/celtics-jaylen-brown-preseason-win-nuggets/
 

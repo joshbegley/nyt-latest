@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Matthew Mpoke Bigg, Liam Stack and Natan Odenheimer`\
+https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/here-are-the-latest-developments
+
 **Nutter Butter, Are You Good? An Investigation.**\
 `The cookie sandwich brand’s videos — funny, disturbing, fever-dreamlike — rack up tens of millions of views. The secret is lots of lore without much sense, the campaign’s strategists explain.`\
 https://nytimes.com/2024/10/07/style/nutter-butter-social-media.html
