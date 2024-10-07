@@ -1,3 +1,15 @@
+**Chelsea's chief marketing officer leaves club after 15 months in role**\
+`Chief marketing officer Claire Cronin has become the latest senior executive to leave Chelsea after 15 months at the club.`\
+https://nytimes.com/athletic/5824647/2024/10/07/chelsea-chief-marketing-officer/
+
+**‘The Big Gay Jamboree’ Review: A Golden-Age Fantasia on Steroids**\
+`The goofball spirit that made Marla Mindelle’s “Titaníque” a hit is missing from her equally campy new show drenched in pop-culture references.`\
+https://nytimes.com/2024/10/07/theater/big-gay-jamboree-review-marla-mindelle.html
+
+**How a lack of overlaps undermined Manchester United against Aston Villa**\
+`Ten Hag's side desperately need to evolve in attack, otherwise their record-breaking bad start to the season is only going to get worse`\
+https://nytimes.com/athletic/5824852/2024/10/07/manchester-united-tactics-aston-villa-overlaps/
+
 **Fantasy Week 5 recap: Buy or sell struggling Breece Hall, Bijan Robinson?**\
 `The Jets' and Falcons' starting RBs have scuffled early. Is it time to sell them off before their stock dips any lower?`\
 https://nytimes.com/athletic/5825099/2024/10/07/fantasy-football-week-5-recap-breece-hall-bijan-robinson/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/07/business/economy/electric-vehicle-tax-credits-stu
 **Mind games and a wry smile: How Gazzaniga saved three penalties in one game**\
 `After his error against PSG in the Champions League, Girona's goalkeeper has gone from zero to hero after a remarkable performance on Sunday`\
 https://nytimes.com/athletic/5824626/2024/10/07/paulo-gazzaniga-three-penalty-saves/
-
-**Philip Banks, Embattled Top Adams Aide, Resigns**\
-`Mr. Banks, the deputy mayor for public safety and a close friend of Mayor Eric Adams, is among the administration officials whose phones were seized by investigators.`\
-https://nytimes.com/2024/10/07/nyregion/phil-banks-resigns-eric-adams.html
-
-**World leaders mark the anniversary with solemn words.**\
-`By Aryn Baker`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/world-leaders-mark-the-anniversary-with-solemn-words
-
-**Trump’s increasingly angry and rambling speeches reignite the question of age in the election.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/10/07/us/harris-trump-election/trumps-increasingly-angry-and-rambling-speeches-reignite-the-question-of-age-in-the-election
 
