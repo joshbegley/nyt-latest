@@ -1,3 +1,7 @@
+**Johan Neeskens, Ajax and Barcelona legend, dies at 73**\
+`Former Netherlands midfielder Johan Neeskens, best known for his time at Ajax and Barcelona, has died at the age of 73.`\
+https://nytimes.com/athletic/5825302/2024/10/07/johan-neeskens-death-ajax-barcelona/
+
 **Pats' Peppers will be charged with strangulation, drug possession**\
 `Peppers is scheduled to be arraigned in court Monday. Patriots coach Jerod Mayo said the team informed the NFL of what was going on.`\
 https://nytimes.com/athletic/5825188/2024/10/07/jabrill-peppers-arrested-patriots/

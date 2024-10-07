@@ -1,3 +1,7 @@
+**Johan Neeskens, Ajax and Barcelona legend, dies at 73**\
+`Former Netherlands midfielder Johan Neeskens, best known for his time at Ajax and Barcelona, has died at the age of 73.`\
+https://nytimes.com/athletic/5825302/2024/10/07/johan-neeskens-death-ajax-barcelona/
+
 **Pats' Peppers will be charged with strangulation, drug possession**\
 `Peppers is scheduled to be arraigned in court Monday. Patriots coach Jerod Mayo said the team informed the NFL of what was going on.`\
 https://nytimes.com/athletic/5825188/2024/10/07/jabrill-peppers-arrested-patriots/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824647/2024/10/07/chelsea-chief-marketing-officer/
 **‘The Big Gay Jamboree’ Review: A Golden-Age Fantasia on Steroids**\
 `The goofball spirit that made Marla Mindelle’s “Titaníque” a hit is missing from her equally campy new show drenched in pop-culture references.`\
 https://nytimes.com/2024/10/07/theater/big-gay-jamboree-review-marla-mindelle.html
-
-**How a lack of overlaps undermined Manchester United against Aston Villa**\
-`Ten Hag's side desperately need to evolve in attack, otherwise their record-breaking bad start to the season is only going to get worse`\
-https://nytimes.com/athletic/5824852/2024/10/07/manchester-united-tactics-aston-villa-overlaps/
 
