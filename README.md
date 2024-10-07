@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5824086/2024/10/06/49ers-loss-cardinals-thursday-ni
 https://nytimes.com/athletic/5823803/2024/10/06/padres-dodgers-jurickson-profar-mookie-betts/
 
 **Raiders’ issues run much deeper than quarterback in loss to Broncos**\
-`Between O-line struggles, injuries on defense and the lack of a vertical passing game without Davante Adams, Las Vegas isn't in great shape.`\
+`With O-line struggles, injuries on defense and the lack of a vertical passing game without Davante Adams, Las Vegas isn't in great shape.`\
 https://nytimes.com/athletic/5823932/2024/10/06/raiders-broncos-quarterback-gardner-minshew/
 
 **Dodgers' Freddie Freeman departs Game 2 with ankle discomfort**\
