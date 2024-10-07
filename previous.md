@@ -1,3 +1,7 @@
+**Gulf Coast States Have Been Battered by Hurricanes This Year**\
+`Here’s a look at the storms that have hit the area.`\
+https://nytimes.com/live/2024/10/05/weather/milton-hurricane-florida/gulf-coast-states-have-been-battered-by-hurricanes-this-year
+
 **Colts defense looks broken in loss that spoiled heroic efforts of Joe Flacco, Alec Pierce**\
 `Colts LB Zaire Franklin: “The defense, we gotta do our part. We ain’t do our part (Sunday). That’s the moral of the story.”`\
 https://nytimes.com/athletic/5823738/2024/10/06/colts-defense-gus-bradley-jaguars-joe-flacco-alec-pierce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823803/2024/10/06/padres-jurickson-profar-trolls-d
 **The Las Vegas Aces let the rest of the WNBA catch up. Now their three-peat quest is over**\
 `Will the Aces be able to keep their talented core together for the 2025 season?`\
 https://nytimes.com/athletic/5823797/2024/10/06/las-vegas-aces-loss-wnba-semifinals-liberty/
-
-**Bills clearly lacked player like Stefon Diggs in loss to Texans**\
-`The Bills felt they needed to trade Diggs, but they haven't replaced his production.`\
-https://nytimes.com/athletic/5823596/2024/10/06/buffalo-bills-stefon-diggs-houston-texans/
 

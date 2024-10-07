@@ -1,3 +1,7 @@
+**Gulf Coast States Have Been Battered by Hurricanes This Year**\
+`Here’s a look at the storms that have hit the area.`\
+https://nytimes.com/live/2024/10/05/weather/milton-hurricane-florida/gulf-coast-states-have-been-battered-by-hurricanes-this-year
+
 **Colts defense looks broken in loss that spoiled heroic efforts of Joe Flacco, Alec Pierce**\
 `Colts LB Zaire Franklin: “The defense, we gotta do our part. We ain’t do our part (Sunday). That’s the moral of the story.”`\
 https://nytimes.com/athletic/5823738/2024/10/06/colts-defense-gus-bradley-jaguars-joe-flacco-alec-pierce/
