@@ -1,3 +1,7 @@
+**The Athletic FC: Pogba 'nightmare' over - but what now? Plus: PL manager pressure gauge**\
+`Today in TAFC: Pogba's drug ban reduced so what does it mean for the midfielder? Plus: Checking the EPL pressure gauge for managers...`\
+https://nytimes.com/athletic/5824670/2024/10/07/pogba-drugs-ban-premier-league-manager-sack-race/
+
 **Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
 `Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
 https://nytimes.com/athletic/5824714/2024/10/07/newcastle-howe-strikers-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822039/2024/10/07/bruins-mason-lohrei-evolution/
 **What is the Utah Hockey Club, and how did the NHL get here?**\
 `It’s been a wild six months for owner Ryan Smith and the Utah Hockey Club, and it’s all led up to Tuesday's season opener against Chicago.`\
 https://nytimes.com/athletic/5822556/2024/10/07/utah-hockey-club-nhl-arizona-coyotes-move/
-
-**Where does the 2024-25 Oilers opening-night roster rank in team history?**\
-`For the Oilers, the competition is incredible in a race for all-time opening-night lineups.`\
-https://nytimes.com/athletic/5822487/2024/10/07/oilers-roster-ranking-team-history/
 

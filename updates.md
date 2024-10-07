@@ -1,3 +1,7 @@
+**The Athletic FC: Pogba 'nightmare' over - but what now? Plus: PL manager pressure gauge**\
+`Today in TAFC: Pogba's drug ban reduced so what does it mean for the midfielder? Plus: Checking the EPL pressure gauge for managers...`\
+https://nytimes.com/athletic/5824670/2024/10/07/pogba-drugs-ban-premier-league-manager-sack-race/
+
 **Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
 `Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
 https://nytimes.com/athletic/5824714/2024/10/07/newcastle-howe-strikers-injuries/
