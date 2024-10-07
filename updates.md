@@ -1,3 +1,7 @@
+**Garnacho withdraws from Argentina squad with knee injury**\
+`Manchester United winger Alejandro Garnacho has withdrawn from Argentina&#8217;s squad for their October World Cup qualifiers due to a knee injury.`\
+https://nytimes.com/athletic/5825166/2024/10/07/alejandro-garnacho-argentina-injury-manchester-united/
+
 **Porn Industry Jumps Into the Presidential Campaign, Targeting Project 2025**\
 `In seven swing states, the industry’s websites will feature ads decrying the conservative policy blueprint’s proposed ban on pornography.`\
 https://nytimes.com/2024/10/07/us/politics/porn-actors-project-2025-ad.html

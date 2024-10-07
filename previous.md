@@ -1,3 +1,7 @@
+**Garnacho withdraws from Argentina squad with knee injury**\
+`Manchester United winger Alejandro Garnacho has withdrawn from Argentina&#8217;s squad for their October World Cup qualifiers due to a knee injury.`\
+https://nytimes.com/athletic/5825166/2024/10/07/alejandro-garnacho-argentina-injury-manchester-united/
+
 **Porn Industry Jumps Into the Presidential Campaign, Targeting Project 2025**\
 `In seven swing states, the industry’s websites will feature ads decrying the conservative policy blueprint’s proposed ban on pornography.`\
 https://nytimes.com/2024/10/07/us/politics/porn-actors-project-2025-ad.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824971/2024/10/07/usc-football-lincoln-riley-minne
 **A simple video of a child’s grave speaks volumes about Gazans’ loss.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/a-simple-video-of-a-childs-grave-speaks-volumes-about-gazans-loss
-
-**Denny Hamlin, still chasing his first Cup title, finally got some playoff luck**\
-`Denny Hamlin is famous for his playoff misfortunes. On Sunday at Talladega, he was finally on the other end, setting him up well in Round 2.`\
-https://nytimes.com/athletic/5824571/2024/10/07/denny-hamlin-talladega-nascar-playoffs-luck/
 
