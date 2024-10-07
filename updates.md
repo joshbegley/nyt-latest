@@ -1,3 +1,11 @@
+**In Gaza’s shadow, West Bank Palestinians fear even more destruction.**\
+`Israeli mi`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/in-gazas-shadow-west-bank-palestinians-fear-even-more-destruction
+
+**See the Ocean Heat Fueling Hurricane Milton, in One Chart**\
+`The waters of the Atlantic Ocean have been abnormally warm, providing copious amounts of energy that can intensify storms.`\
+https://nytimes.com/interactive/2024/10/07/climate/gulf-mexico-ocean-temperature.html
+
 **NFL Week 6 odds, schedule: Josh Allen vs. Aaron Rodgers caps a week of tough reckonings**\
 `A look at the odds for NFL Week 6 helps us frame the field of risers and fallers heading into a new week. `\
 https://nytimes.com/athletic/5825358/2024/10/07/nfl-week-6-odds-spreads-schedule-bills-jets/
