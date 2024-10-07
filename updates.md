@@ -1,3 +1,7 @@
+**Fantasy football Week 5 takeaways: Brian Thomas looks like a steal, Tyrone Tracy seizes the day and more**\
+`Michael Salfino shares his takeaways from Week 5, including that Tyrone Tracy's outing could spell trouble for Devin Singletary managers.`\
+https://nytimes.com/athletic/5824347/2024/10/07/fantasy-football-week-5-takeaways-brian-thomas-tyrone-tracy/
+
 **Everton still undermined by upheaval as Sean Dyche strives to find balance**\
 `The drama around the penalty decisions, one given and one not, drew the focus but Everton were disrupted and disjointed against Newcastle`\
 https://nytimes.com/athletic/5820894/2024/10/07/everton-dyche-doucoure-mcneil-pickford/
