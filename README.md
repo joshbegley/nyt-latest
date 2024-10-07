@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5824086/2024/10/06/49ers-loss-cardinals-thursday-ni
 `There was light-hearted trolling, which turned into sharper chirping, which devolved into at least one baseball being fired from the stands in the direction of the primary antagonist — or protagonist — depending on your perspective.`\
 https://nytimes.com/athletic/5823803/2024/10/06/padres-dodgers-jurickson-profar-mookie-betts/
 
-**Raiders' quarterback issue is far from their only problem after loss to Broncos**\
+**Raiders’ issues run much deeper than quarterback in loss to Broncos**\
 `Between O-line struggles, injuries on defense and the lack of a vertical passing game without Davante Adams, Las Vegas isn't in great shape.`\
 https://nytimes.com/athletic/5823932/2024/10/06/raiders-broncos-quarterback-gardner-minshew/
 
