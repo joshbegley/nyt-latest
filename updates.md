@@ -1,3 +1,11 @@
+**A Year Later, Biden Faces the Limits of U.S. Influence in the Mideast**\
+`In the immediate aftermath of the Hamas-led attacks on Oct. 7, the president stepped in to support Israel, counsel moderation and seek a lasting peace.`\
+https://nytimes.com/2024/10/07/us/politics/biden-israel-oct-7-gaza-hamas.html
+
+**Inside a Trump Ad Attacking Harris on Energy and the Environment**\
+`An ad in Michigan and Pennsylvania revives the vice president’s past positions on climate change and the environment.`\
+https://nytimes.com/2024/10/07/us/politics/trump-ad-harris-green-new-deal.html
+
 **Washington Worries the Israelis Will Bomb Iran’s Nuclear Sites. But Can They?**\
 `For 22 years, Israeli forces have planned for this moment. But it seems unlikely that they will strike Iran’s nuclear facilities in the next round of retaliation, or that they would be successful without American help.`\
 https://nytimes.com/2024/10/07/us/politics/israel-iran-nuclear-facilities-strikes.html
