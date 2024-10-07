@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/07/crosswords/spelling-bee-forum.html
+
 **China Calls for Tighter Security After Workers Are Killed in Pakistan**\
 `Two Chinese nationals were killed and another was injured after a convoy was attacked in Karachi on Sunday. A separatist group claimed responsibility.`\
 https://nytimes.com/2024/10/07/world/asia/pakistan-chinese-workers.html
