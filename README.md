@@ -1,3 +1,7 @@
+**Trump’s increasingly angry and rambling speeches reignite the question of age in the election.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/10/07/us/harris-trump-election/trumps-increasingly-angry-and-rambling-speeches-reignite-the-question-of-age-in-the-election
+
 **Here’s the latest on the 2024 race.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/10/07/us/harris-trump-election/heres-the-latest-on-the-2024-race
@@ -14,6 +18,10 @@ https://nytimes.com/athletic/5823963/2024/10/07/nfl-week-5-dak-prescott-steelers
 `Rodrigo Duterte, who retired in 2022 after a six-year term as president, filed papers to run for mayor of Davao, his family’s political stronghold.`\
 https://nytimes.com/2024/10/07/world/asia/rodrigo-duterte-mayor-philippines.html
 
+**Inside Jalen Tolbert's ‘miraculous’ game-winning touchdown for Cowboys: ‘It was special’**\
+`Jalen Tolbert shook off an uncomfortable injury on third down, returned and caught the biggest pass of his young career with the Cowboys.`\
+https://nytimes.com/athletic/5824614/2024/10/07/cowboys-jalen-tolbert-game-winning-touchdown/
+
 **Is the Golden Knights' golden era ending? Not so fast — 'We still expect to win'**\
 `Outside expectation might be lower after offseason moves, but Vegas should be strong again.`\
 https://nytimes.com/athletic/5823191/2024/10/07/golden-knights-stanley-cup-offseason/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5824190/2024/10/07/daniel-jones-new-york-giants-nar
 **Tennis Briefing: Players complain about balls, rain rules Shanghai, Davis Cup shakeup**\
 `Recapping the Shanghai Masters and China Open, as well as all the off-court stories from the last week in tennis.`\
 https://nytimes.com/athletic/5824671/2024/10/07/tennis-analysis-news-china-open-shanghai-masters/
-
-**Israel’s global standing has deteriorated since Oct. 7, analysts say.**\
-`By Lara Jakes`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/israels-global-standing-has-deteriorated-since-oct-7-analysts-say
-
-**The Athletic FC: Pogba 'nightmare' over - but what now? Plus: PL manager pressure gauge**\
-`Today in TAFC: Pogba's drug ban reduced so what does it mean for the midfielder? Plus: Checking the EPL pressure gauge for managers...`\
-https://nytimes.com/athletic/5824670/2024/10/07/pogba-drugs-ban-premier-league-manager-sack-race/
 
