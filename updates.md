@@ -1,3 +1,7 @@
+**Dire Warnings for Storm-Weary Floridians as Hurricane Milton Approaches**\
+`Officials urged residents in the expected path of the hurricane to heed evacuation orders as the state mobilizes resources to respond to the storm.`\
+https://nytimes.com/2024/10/07/us/florida-evacuations-hurricane-milton.html
+
 **LeBrun rumblings: Jeremy Swayman's agent on Bruins negotiations, plus 4 Nations deadline, 2025 Cup pick**\
 `Swayman's agent, Lewis Gross, takes The Athletic inside a "difficult negotiation" and what "helped us get it to the finish line."`\
 https://nytimes.com/athletic/5825587/2024/10/07/lewis-gross-jeremy-swayman-lebrun/
