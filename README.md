@@ -1,3 +1,7 @@
+**What Michigan's QB flip-flopping says about 2024 and beyond**\
+`Michigan is on its third QB of the season, switching from Davis Warren to Alex Orji to now Jack Tuttle during Saturday's loss at Washington.`\
+https://nytimes.com/athletic/5822847/2024/10/07/jack-tuttle-michigan-football-qb-washington/
+
 **Weird & Wild: Phillies-Mets Game 2 was an October classic with so many memorable moments**\
 `An October classic was unfolding around them. And they knew it when they saw it. They felt it as they lived it. `\
 https://nytimes.com/athletic/5824406/2024/10/07/phillies-mets-game-2-moments-harper-castellanos/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/02/opinion/thepoint/trump-share-vote-base
 **No One Said It Was Going to Be Easy for Kamala Harris**\
 `But tell me again why she isn’t running away with this election?`\
 https://nytimes.com/2024/10/07/opinion/harris-walz-trump-vance.html
-
-**A Year After Oct. 7 Massacre, Jewish Anxiety Peaks in Pennsylvania**\
-`Jewish voters in Pittsburgh feel squeezed by intolerance on the left and the right, and torn by presidential candidates seeking their support in a vital battleground state.`\
-https://nytimes.com/2024/10/07/us/politics/jewish-voters.html
 
