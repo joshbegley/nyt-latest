@@ -1,3 +1,11 @@
+**Tunisia’s President Cruises to a Victory That Critics Say He Engineered**\
+`President Kais Saied’s apparent landslide re-election is the latest sign that authoritarianism has returned to the birthplace of the Arab Spring.`\
+https://nytimes.com/2024/10/07/world/middleeast/tunisia-election-saied.html
+
+**The Bounce: Your NBA predictions season are here**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5824922/2024/10/07/nba-predictions-jeff-teague-desean-jackson-new-york-liberty-wnba-finals-nba-the-bounce/
+
 **Let’s Do a Donabe**\
 `Kay Chun’s chicken and vegetable donabe is soothing and mellow, ready to be perked up with citrusy ponzu and yuzu kosho.`\
 https://nytimes.com/2024/10/07/dining/lets-do-a-donabe.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/10/07/books/review/novel-musical-flops.html
 **Scoop City: Week 5 risers and fallers**\
 `A quick look at the best and worst performances from Week 5, including the upward trending Caleb Williams and questions in Buffalo.`\
 https://nytimes.com/athletic/5825384/2024/10/07/scoop-city-week-5-risers-and-fallers/
-
-**Manchester City, Premier League both claim victories after APT ruling delivered**\
-`Manchester City and the Premier League are both claiming victories after a ruling regarding the league’s Associated Party Transaction (APT) regulations was published.`\
-https://nytimes.com/athletic/5739266/2024/10/07/manchester-city-premier-league-apt-case/
-
-**How Ohio State's offense passed a true test: Iowa film review**\
-`Before we get into Ohio State vs. Oregon, let's take one more look back at the Buckeyes' win over Iowa.`\
-https://nytimes.com/athletic/5825175/2024/10/07/ohio-state-football-chip-kelly-offense-iowa/
 
