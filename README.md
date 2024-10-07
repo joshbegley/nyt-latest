@@ -1,3 +1,7 @@
+**When Ravens needed it most vs. Bengals, Lamar Jackson was at his best: 'That man is different'**\
+`As Joe Burrow and the Bengals kept applying pressure, the two-time MVP answered the call again and again to lead Baltimore to victory. `\
+https://nytimes.com/athletic/5823685/2024/10/06/ravens-win-bengals-lamar-jackson/
+
 **LeBron, Bronny share court as first father-son duo in NBA history**\
 `The moment came in the second quarter of the Los Angeles Lakers preseason game against the Phoenix Suns.`\
 https://nytimes.com/athletic/5824199/2024/10/06/lakers-vs-suns-lebron-bronny-james/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823986/2024/10/06/sun-lynx-wnba-semifinals-game-fi
 **Gulf Coast States Have Been Battered by Hurricanes This Year**\
 `Here’s a look at the storms that have hit the area.`\
 https://nytimes.com/live/2024/10/05/weather/milton-hurricane-florida/gulf-coast-states-have-been-battered-by-hurricanes-this-year
-
-**Colts defense looks broken in loss that spoiled heroic efforts of Joe Flacco, Alec Pierce**\
-`Colts LB Zaire Franklin: “The defense, we gotta do our part. We ain’t do our part (Sunday). That’s the moral of the story.”`\
-https://nytimes.com/athletic/5823738/2024/10/06/colts-defense-gus-bradley-jaguars-joe-flacco-alec-pierce/
 
