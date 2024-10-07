@@ -1,3 +1,7 @@
+**What went wrong in USC's loss to Minnesota?**\
+`Until Lincoln Riley and USC get the small things cleaned up, there will be more frustrating losses like Saturday’s at Minnesota.`\
+https://nytimes.com/athletic/5824971/2024/10/07/usc-football-lincoln-riley-minnesota-loss/
+
 **A simple video of a child’s grave speaks volumes about Gazans’ loss.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/a-simple-video-of-a-childs-grave-speaks-volumes-about-gazans-loss
