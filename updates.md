@@ -1,3 +1,7 @@
+**See the Ocean Heat Fueling Hurricane Milton, in One Chart**\
+`The waters of the Atlantic Ocean have been abnormally warm, providing copious amounts of energy that can intensify storms.`\
+https://nytimes.com/interactive/2024/10/07/climate/gulf-mexico-ocean-temperature.html
+
 **Mainoo, Gibbs-White, Konsa pull out of England duty**\
 `Kobbie Mainoo, Morgan Gibbs-White and Ezri Konsa have been ruled out of England&#8217;s upcoming Nations League games against Greece and Finland through injury.`\
 https://nytimes.com/athletic/5826142/2024/10/07/england-nations-league-injuries/
