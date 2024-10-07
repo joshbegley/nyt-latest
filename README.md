@@ -1,7 +1,3 @@
-**Jurickson Profar takes center stage as Padres even NLDS: takeaways**\
-`LOS ANGELES — The Los Angeles Dodgers are in some trouble.`\
-https://nytimes.com/athletic/5823617/2024/10/06/dodgers-vs-padres-score-jurickson-profar-takeaways/
-
 **Here is what to know on the anniversary of the Oct. 7 attacks.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/here-is-what-to-know-on-the-anniversary-of-the-oct-7-attacks
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5824199/2024/10/06/lakers-vs-suns-lebron-bronny-jam
 **49ers eager for quick turnaround as red-zone woes continue: 'A blessing in disguise'**\
 `The 49ers' biggest issue was something that's plagued them all season: They had six trips to the red zone and scored just one touchdown.`\
 https://nytimes.com/athletic/5824086/2024/10/06/49ers-loss-cardinals-thursday-night-football/
+
+**Jurickson Profar trolls fans as Dodgers and Padres get chippy in Game 2**\
+`There was light-hearted trolling, which turned into sharper chirping, which devolved into at least one baseball being fired from the stands in the direction of the primary antagonist — or protagonist — depending on your perspective.`\
+https://nytimes.com/athletic/5823803/2024/10/06/padres-dodgers-jurickson-profar-mookie-betts/
 
