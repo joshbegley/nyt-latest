@@ -1,3 +1,19 @@
+**A simple video of a child’s grave speaks volumes about Gazans’ loss.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/a-simple-video-of-a-childs-grave-speaks-volumes-about-gazans-loss
+
+**Denny Hamlin, still chasing his first Cup title, finally got some playoff luck**\
+`Denny Hamlin is famous for his playoff misfortunes. On Sunday at Talladega, he was finally on the other end, setting him up well in Round 2.`\
+https://nytimes.com/athletic/5824571/2024/10/07/denny-hamlin-talladega-nascar-playoffs-luck/
+
+**Two Tech Moguls Split on Trump**\
+`Elon Musk appeared onstage at a rally for the former president this weekend, but Silicon Valley was abuzz about Ben Horowitz’s U-turn on backing the Republican candidate.`\
+https://nytimes.com/2024/10/07/business/dealbook/trump-harris-musk-horowitz.html
+
+**Electric Car Subsidies Are a Plus, but Could Be Improved, Study Finds**\
+`The Inflation Reduction Act was a compromise between competing priorities. Evaluating the law on the effectiveness of the $7,500 tax credit for E.V.s is tricky.`\
+https://nytimes.com/2024/10/07/business/economy/electric-vehicle-tax-credits-study.html
+
 **Mind games and a wry smile: How Gazzaniga saved three penalties in one game**\
 `After his error against PSG in the Champions League, Girona's goalkeeper has gone from zero to hero after a remarkable performance on Sunday`\
 https://nytimes.com/athletic/5824626/2024/10/07/paulo-gazzaniga-three-penalty-saves/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/10/07/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Harris to Appear on ‘60 Minutes’ With Just 1 Month Left in Race**\
 `A busy week is on tap for Vice President Kamala Harris and former President Donald J. Trump, with town hall events, interviews and more.`\
 https://nytimes.com/live/2024/10/07/us/harris-trump-election
-
-**The Pulse: Are we sure these NFL teams are good?**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5823963/2024/10/07/nfl-week-5-dak-prescott-steelers-the-pulse/
-
-**Ex-Philippine President, Under Investigation for War on Drugs, Returns to Politics**\
-`Rodrigo Duterte, who retired in 2022 after a six-year term as president, filed papers to run for mayor of Davao, his family’s political stronghold.`\
-https://nytimes.com/2024/10/07/world/asia/rodrigo-duterte-mayor-philippines.html
-
-**Inside Jalen Tolbert's ‘miraculous’ game-winning touchdown for Cowboys: ‘It was special’**\
-`Jalen Tolbert shook off an uncomfortable injury on third down, returned and caught the biggest pass of his young career with the Cowboys.`\
-https://nytimes.com/athletic/5824614/2024/10/07/cowboys-jalen-tolbert-game-winning-touchdown/
-
-**Is the Golden Knights' golden era ending? Not so fast — 'We still expect to win'**\
-`Outside expectation might be lower after offseason moves, but Vegas should be strong again.`\
-https://nytimes.com/athletic/5823191/2024/10/07/golden-knights-stanley-cup-offseason/
 
