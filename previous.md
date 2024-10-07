@@ -1,3 +1,7 @@
+**Revised House v. NCAA settlement granted preliminary approval**\
+`The settlement is not yet finalized, but it can now progress to next steps, which includes notifying class members.`\
+https://nytimes.com/athletic/5826004/2024/10/07/house-ncaa-settlement-approval-claudia-wilken/
+
 **One Year on, Israel’s Hostage Families Vow to Keep Fighting as War Escalates**\
 `Family members of hostages held in Gaza are escalating their tactics to push for a cease-fire deal. `\
 https://nytimes.com/2024/10/07/world/middleeast/israel-hostage-families-hamas-attacks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/us/georgia-supreme-court-abortion-ban.html
 **Tampa Residents Warned to Expect ‘Worst Hurricane in Their Lifetime’**\
 `The Tampa Bay area, long used to relative safety from big storms, faces what could be its first direct hit by a major hurricane in a century.`\
 https://nytimes.com/2024/10/07/weather/tampa-hurricane-history.html
-
-**Here’s How Fast Hurricane Milton Intensified**\
-`On Monday morning, the storm was a Category 1. It became a Category 5 by noon.`\
-https://nytimes.com/2024/10/07/weather/hurricane-milton-intensity-speed.html
 

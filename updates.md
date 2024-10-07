@@ -1,3 +1,7 @@
+**Revised House v. NCAA settlement granted preliminary approval**\
+`The settlement is not yet finalized, but it can now progress to next steps, which includes notifying class members.`\
+https://nytimes.com/athletic/5826004/2024/10/07/house-ncaa-settlement-approval-claudia-wilken/
+
 **One Year on, Israel’s Hostage Families Vow to Keep Fighting as War Escalates**\
 `Family members of hostages held in Gaza are escalating their tactics to push for a cease-fire deal. `\
 https://nytimes.com/2024/10/07/world/middleeast/israel-hostage-families-hamas-attacks.html
