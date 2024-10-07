@@ -1,3 +1,7 @@
+**Bucks' preseason opener observations: Damian Lillard looks good, Gary Trent Jr.'s injury**\
+`Giannis Antetokounmpo and Khris Middleton didn't play, but Lillard, who said the Bucks will get "the real version of me," looked great.`\
+https://nytimes.com/athletic/5824047/2024/10/07/damian-lillard-gary-trent-jr-bucks-preseason/
+
 **Chelsea's chief marketing officer leaves club after 15 months in role**\
 `Chief marketing officer Claire Cronin has become the latest senior executive to leave Chelsea after 15 months at the club.`\
 https://nytimes.com/athletic/5824647/2024/10/07/chelsea-chief-marketing-officer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/business/dealbook/trump-harris-musk-horowitz.html
 **Electric Car Subsidies Are a Plus, but Could Be Improved, Study Finds**\
 `The Inflation Reduction Act was a compromise between competing priorities. Evaluating the law on the effectiveness of the $7,500 tax credit for E.V.s is tricky.`\
 https://nytimes.com/2024/10/07/business/economy/electric-vehicle-tax-credits-study.html
-
-**Mind games and a wry smile: How Gazzaniga saved three penalties in one game**\
-`After his error against PSG in the Champions League, Girona's goalkeeper has gone from zero to hero after a remarkable performance on Sunday`\
-https://nytimes.com/athletic/5824626/2024/10/07/paulo-gazzaniga-three-penalty-saves/
 

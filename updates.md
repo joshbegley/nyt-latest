@@ -1,3 +1,7 @@
+**Bucks' preseason opener observations: Damian Lillard looks good, Gary Trent Jr.'s injury**\
+`Giannis Antetokounmpo and Khris Middleton didn't play, but Lillard, who said the Bucks will get "the real version of me," looked great.`\
+https://nytimes.com/athletic/5824047/2024/10/07/damian-lillard-gary-trent-jr-bucks-preseason/
+
 **Chelsea's chief marketing officer leaves club after 15 months in role**\
 `Chief marketing officer Claire Cronin has become the latest senior executive to leave Chelsea after 15 months at the club.`\
 https://nytimes.com/athletic/5824647/2024/10/07/chelsea-chief-marketing-officer/
