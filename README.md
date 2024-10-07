@@ -1,3 +1,7 @@
+**P.J. Tucker away from LA Clippers while team figures out veteran forward's future**\
+`Tucker and the Clippers have been a poor fit since last year's trade with the 76ers.`\
+https://nytimes.com/athletic/5824584/2024/10/07/clippers-p-j-tucker-away-trade/
+
 **The contrast between the Commanders and Browns could not be clearer**\
 `The Jayden Daniels-Kliff Kingsbury marriage looks perfect. The Deshaun Watson-Kevin Stefanski marriage is decidedly not.`\
 https://nytimes.com/athletic/5824635/2024/10/07/deshaun-watson-kevin-stefanski-browns-commanders/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/5824575/2024/10/07/padres-nlds-jackson-merrill/
 `Two men in Israel and Gaza talk about how their lives have changed.`\
 https://nytimes.com/2024/10/07/podcasts/the-daily/oct-7-anniversary.html
 
-**Israel Commemorates Oct. 7 Anniversary, amid Strikes on Gaza and Lebanon**\
+**Israel Commemorates Oct. 7 Anniversary, and Strikes on Gaza and Lebanon**\
 `Plus, misinformation is hampering the Helene aid effort.`\
 https://nytimes.com/2024/10/07/podcasts/israel-anniversary-strikes-gaza-lebanon.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/science/hera-asteroid-launch-spacex.html
 **The Connections Companion No. 485**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 8, 2024.`\
 https://nytimes.com/2024/10/07/crosswords/connections-companion-485.html
-
-**The moment that sparked the Penguins' optimism and resolve**\
-`Six months later, a Penguins team meeting is having an impact that many believe will be the foundation of this season's success.`\
-https://nytimes.com/athletic/5807755/2024/10/07/penguins-2024-25-nhl-season/
 
