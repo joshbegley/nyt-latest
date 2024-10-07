@@ -1,3 +1,15 @@
+**Maple Leafs sign Max Pacioretty, Steven Lorentz and get to within $1 of cap limit**\
+`Pacioretty spent the majority of camp on a third line playing with John Tavares and Nick Robertson`\
+https://nytimes.com/athletic/5822699/2024/10/07/maple-leafs-max-pacioretty-contract/
+
+**In London, a Pro-Palestinian Protest Disrupts the Launch of an American Mural**\
+`The U.S. ambassador Jane Hartley was en route to the dedication of a climate-themed mural in London by Shepard Fairey, who created the iconic Obama ‘Hope’ poster. But then a protest began.`\
+https://nytimes.com/2024/10/07/world/europe/london-pro-palestinian-protest-mural.html
+
+**Ray Ferraro busy NHL day, ESPN's viral Vandy QB interview, and more: Media Circus**\
+`Ray Ferraro has some rare double duty Tuesday, ESPN's Alyssa Lang had to sprint to find Vanderbilt QB Diego Pavia, and the Mets' TV impact.`\
+https://nytimes.com/athletic/5818223/2024/10/07/ray-ferraro-to-call-two-nhl-games-in-one-day-how-espn-got-the-viral-vandy-qb-interview-and-more-media-circus/
+
 **Tunisia’s President Cruises to a Victory That Critics Say He Engineered**\
 `President Kais Saied’s apparent landslide re-election is the latest sign that authoritarianism has returned to the birthplace of the Arab Spring.`\
 https://nytimes.com/2024/10/07/world/middleeast/tunisia-election-saied.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/07/opinion/jews-antisemitism-oct7.html
 **Buccaneers rearranging travel plans as Hurricane Milton approaches**\
 `Milton intensified into a Category 4 hurricane Monday with sustained winds estimated to be around 150 mph, according to the NWS.`\
 https://nytimes.com/athletic/5825407/2024/10/07/buccaneers-new-orleans-hurricane-milton/
-
-**Lore Segal, Mordant Memoirist of Émigré Life, Dies at 96**\
-`One of thousands of Jewish children transported to England at the dawn of World War II, she explored themes of displacement with penetrating wit in novel-memoirs like “Other People’s Houses.”`\
-https://nytimes.com/2024/10/07/books/lore-segal-dead.html
-
-**Do You Know These Books That Were Adapted Into Broadway Flops?**\
-`Popular literature has often been the source of a big-budget musical, but not every show is a hit. Can you identify these five short-lived productions?`\
-https://nytimes.com/interactive/2024/10/07/books/review/novel-musical-flops.html
-
-**Scoop City: Week 5 risers and fallers**\
-`A quick look at the best and worst performances from Week 5, including the upward trending Caleb Williams and questions in Buffalo.`\
-https://nytimes.com/athletic/5825384/2024/10/07/scoop-city-week-5-risers-and-fallers/
 
