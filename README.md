@@ -1,3 +1,7 @@
+**Looking at Bills' trade options to fill the wide receiver void**\
+`The Bills could need a trade to aid their remade WR room. Could Davante Adams, Amari Cooper and others be options?`\
+https://nytimes.com/athletic/5825498/2024/10/07/bills-wide-receiver-trade-cases-deadline/
+
 **Barcelona unable to put exact date on Camp Nou return**\
 `Barcelona vice-president Elena Fort says there is still no agreed date for the club&#8217;s return to the Camp Nou, despite previous plans to play there before the end of 2024.`\
 https://nytimes.com/athletic/5825150/2024/10/07/barcelona-camp-nou-return-date/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/us/politics/michigan-harris-arab-muslim-jewish-vo
 **Review: An Ambitious Work, as Flimsy as a House of Cards**\
 `Robert Lepage’s latest play, “Faith, Money, War and Love,” runs for five hours, and aims to depict Germany since the end of World War II.`\
 https://nytimes.com/2024/10/07/theater/robert-lepage-faith-money-war-and-love-review.html
-
-**The Cases Against Sean Combs**\
-`A discussion of the accusations the music mogul faces, the court of public opinion and how the entertainment press covers morally complicated figures.`\
-https://nytimes.com/2024/10/07/arts/music/popcast-sean-combs-diddy.html
 
