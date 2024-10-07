@@ -1,3 +1,27 @@
+**NFL Week 6 odds, schedule: Josh Allen vs. Aaron Rodgers caps a week of tough reckonings**\
+`A look at the odds for NFL Week 6 helps us frame the field of risers and fallers heading into a new week. `\
+https://nytimes.com/athletic/5825358/2024/10/07/nfl-week-6-odds-spreads-schedule-bills-jets/
+
+**49ers minutia minute: Shoddy tackling and ineffective blitzes stood out vs. Cardinals**\
+`Who's Brock Purdy targeting in the red zone without Christian McCaffrey? On Sunday it was George Kittle and Jauan Jennings.`\
+https://nytimes.com/athletic/5826201/2024/10/07/49ers-missed-tackles-blitzes-snap-counts-cardinals/
+
+**Why Flyers' Jett Luchanko is about to become the youngest player in franchise history**\
+`The question now is, will Luchanko stay with the Flyers beyond nine games?`\
+https://nytimes.com/athletic/5826242/2024/10/07/jett-luchanko-flyers-roster/
+
+**Tim Sheehy was recorded saying young people were ‘indoctrinated’ to support liberal causes.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/10/07/us/harris-trump-election/tim-sheehy-was-recorded-saying-young-people-were-indoctrinated-to-support-liberal-causes
+
+**How Jesper Wallstedt and Liam Ohgren made the Wild cut, plus lines take shape, and is Declan Chisholm out?**\
+`ST.`\
+https://nytimes.com/athletic/5826309/2024/10/07/wild-lineup-wallstedt-ohgren-chisholm/
+
+**Cissy Houston Dies at 91; Gospel Star Guided Daughter Whitney’s Rise**\
+`Hailing from a musical family, she won Grammys, sang backup to Elvis Presley and Aretha Franklin and helped shepherd Whitney Houston to superstardom.`\
+https://nytimes.com/2024/10/07/arts/music/cissy-houston-dead.html
+
 **Elon Musk’s Giant Leap**\
 `When one of the richest men in the world made a surprise cameo at a Trump rally in Butler, Pa., he did so with the gusto of a meme exploding.`\
 https://nytimes.com/2024/10/07/style/elon-musk-donald-trump-campaign-rally.html
