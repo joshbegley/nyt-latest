@@ -1,3 +1,7 @@
+**Viktor Bout Is Trying to Sell Weapons to the Houthis, Western Officials Say**\
+`The Russian arms dealer, who was freed in a prisoner exchange with the United States, is negotiating with the militant group in Yemen.`\
+https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/viktor-bout-houthis-weapons
+
 **Texans' Nico Collins considered 'week to week' with hamstring injury**\
 `NFL's leader in receiving yards has been a key to Houston's fast start in 2024.`\
 https://nytimes.com/athletic/5826408/2024/10/07/nico-collins-injury-texans-hamstring/
