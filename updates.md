@@ -1,3 +1,7 @@
+**Chappell Roan Seeks the Line Between IRL and URL**\
+`The rising pop singer has been transparently navigating the demands of fame — onstage and online — as she’s grown from cult queer-pop hero to zeitgeist-shaping star.`\
+https://nytimes.com/2024/10/07/arts/music/chappell-roan-live-fans.html
+
 **Georgia Supreme Court Restores State’s 6-Week Abortion Ban**\
 `The ban will resume while the court considers an appeal to a decision that had briefly restored greater access to abortions in the state.`\
 https://nytimes.com/2024/10/07/us/georgia-supreme-court-abortion-ban.html
