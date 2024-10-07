@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5823617/2024/10/06/dodgers-vs-padres-score-jurickso
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/here-is-what-to-know-on-the-anniversary-of-the-oct-7-attacks
 
-**Live Updates: Memorials Mark Anniversary of Hamas-Led Attack on Israel**\
+**Live Updates: Memorials Commemorate Anniversary of Hamas-Led Attack on Israel**\
 `A year after the killings, Israelis are holding memorials and rallies for those killed and abducted. For Palestinians in Gaza, there is no reprieve from a war that has killed tens of thousands.`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war
 
