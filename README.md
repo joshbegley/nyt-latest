@@ -1,3 +1,11 @@
+**China Calls for Tighter Security After Workers Are Killed in Pakistan**\
+`Two Chinese nationals were killed and another was injured after a convoy was attacked in Karachi on Sunday. A separatist group claimed responsibility.`\
+https://nytimes.com/2024/10/07/world/asia/pakistan-chinese-workers.html
+
+**Convoy Carrying Chinese Workers Is Attacked in Pakistan**\
+`Emergency workers tended to the injured after the attack near an airport in Karachi. At least two Chinese nationals were killed.`\
+https://nytimes.com/video/world/asia/100000009745552/karachi-pakistan-explosion-china.html
+
 **Word of the Day: initiative**\
 `This word has appeared in 1,445 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/07/learning/word-of-the-day-initiative.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/07/opinion/novelist-back-to-school-behavioral-scienc
 **Fantasy football Week 5 takeaways: Brian Thomas looks like a steal, Tyrone Tracy seizes the day and more**\
 `Michael Salfino shares his takeaways from Week 5, including that Tyrone Tracy's outing could spell trouble for Devin Singletary managers.`\
 https://nytimes.com/athletic/5824347/2024/10/07/fantasy-football-week-5-takeaways-brian-thomas-tyrone-tracy/
-
-**Everton still undermined by upheaval as Sean Dyche strives to find balance**\
-`The drama around the penalty decisions, one given and one not, drew the focus but Everton were disrupted and disjointed against Newcastle`\
-https://nytimes.com/athletic/5820894/2024/10/07/everton-dyche-doucoure-mcneil-pickford/
-
-**Nottingham Forest's new-found belief on the road epitomised by Matz Sels' brilliance**\
-`Forest have scoured the market for senior goalkeepers in the last two transfer windows, but Sels is starting to justify his inclusion `\
-https://nytimes.com/athletic/5822564/2024/10/07/forest-sels-chelsea-gibbs-white/
 
