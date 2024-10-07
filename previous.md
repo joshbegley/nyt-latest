@@ -1,3 +1,7 @@
+**How The New York Times uses A.I. for journalism**\
+`We don’t use A.I. to write articles, and journalists are ultimately responsible for everything that we publish.`\
+https://nytimes.com/2024/10/07/reader-center/how-new-york-times-uses-ai-journalism.html
+
 **Full Time: Orlando's long road to the NWSL Shield**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5826560/2024/10/07/orlando-pride-nwsl-shield-temwa-chawinga-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/world/middleeast/israel-rejects-un-courts-jurisdi
 **Viktor Bout Is Trying to Sell Weapons to the Houthis, Western Officials Say**\
 `The Russian arms dealer, who was freed in a prisoner exchange with the United States, is negotiating with the militant group in Yemen.`\
 https://nytimes.com/2024/10/07/us/politics/viktor-bout-houthis-weapons.html
-
-**France Has Made Itself Irrelevant on the World Stage**\
-`If you don’t play the game, you don’t make the rules.`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/macron-israel-weapons-ban
 
