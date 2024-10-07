@@ -1,3 +1,11 @@
+**A Year Later, Biden Faces the Limits of U.S. Influence in the Mideast**\
+`In the immediate aftermath of the Hamas-led attacks on Oct. 7, the president stepped in to support Israel, counsel moderation and seek a lasting peace.`\
+https://nytimes.com/2024/10/07/us/politics/biden-israel-oct-7-gaza-hamas.html
+
+**Inside a Trump Ad Attacking Harris on Energy and the Environment**\
+`An ad in Michigan and Pennsylvania revives the vice president’s past positions on climate change and the environment.`\
+https://nytimes.com/2024/10/07/us/politics/trump-ad-harris-green-new-deal.html
+
 **Washington Worries the Israelis Will Bomb Iran’s Nuclear Sites. But Can They?**\
 `For 22 years, Israeli forces have planned for this moment. But it seems unlikely that they will strike Iran’s nuclear facilities in the next round of retaliation, or that they would be successful without American help.`\
 https://nytimes.com/2024/10/07/us/politics/israel-iran-nuclear-facilities-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/07/us/politics/harris-israel-oct-7.html
 **Terry Francona introduced as Reds manager: 'It just felt right' to return to Cincinnati**\
 `“It just felt right,” Francona said Monday as he was introduced as the Reds’ manager. `\
 https://nytimes.com/athletic/5826388/2024/10/07/terry-francona-reds-manager-conference/
-
-**One Year After Oct. 7, Peace Seems More Elusive Than Ever**\
-`Also, Hurricane Milton heads toward Florida as a Category 5 storm. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/10/07/briefing/october-7-middle-east-hurricane-milton.html
-
-**On Oct. 7 Anniversary, Vigils and Hope for ‘an End to This Horrible War’**\
-`Israelis gathered on Monday to mourn those killed or abducted on the deadliest day in the country’s history.`\
-https://nytimes.com/2024/10/07/world/middleeast/israel-hamas-oct-7-anniversary-vigils.html
 
