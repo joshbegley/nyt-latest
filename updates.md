@@ -1,3 +1,11 @@
+**New York Times reporters share stories of the war that they cannot forget.**\
+`By Isabel Kershner, Raja Abdulrahim and Adam Rasgon`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/new-york-times-reporters-share-stories-of-the-war-that-they-cannot-forget
+
+**Phillies' Andrew Painter to pitch in fall league. What scenarios are in play for 2025?**\
+`Painter is taking a big step forward by pitching in the Arizona Fall League. He's expected to reach 20 innings in fall ball. Then what?`\
+https://nytimes.com/athletic/5826685/2024/10/07/andrew-painter-phillies-prospect-2025-season/
+
 **Phillies prospect Andrew Painter to pitch in fall league. What scenarios are in play for 2025?**\
 `Painter is taking a big step forward by pitching in the Arizona Fall League. He's expected to reach 20 innings in fall ball. Then what?`\
 https://nytimes.com/athletic/5826685/2024/10/07/andrew-painter-phillies-prospect-2025-season/
