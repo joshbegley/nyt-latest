@@ -1,3 +1,7 @@
+**Browns' nightmare season takes another hit following blowout loss to Commanders**\
+`Deshaun Watson and the offense continue to struggle as Cleveland loses its third straight game and falls to 1-4. `\
+https://nytimes.com/athletic/5823554/2024/10/06/browns-loss-commanders-deshaun-watson/
+
 **Bo Nix, Sean Payton get into heated discussion after botched play**\
 `Payton said afterward that Nix “flipped” the play that resulted in a third-down incompletion.`\
 https://nytimes.com/athletic/5823603/2024/10/06/bo-nix-sean-payton-sideline-altercation/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/5823803/2024/10/06/padres-jurickson-profar-trolls-d
 https://nytimes.com/athletic/5823797/2024/10/06/las-vegas-aces-loss-wnba-semifinals-liberty/
 
 **Bills clearly lacked player like Stefon Diggs in loss to Texans**\
-`The Bills felt they needed to trade Stefon Diggs, but they haven't replaced his production.`\
+`The Bills felt they needed to trade Diggs, but they haven't replaced his production.`\
 https://nytimes.com/athletic/5823596/2024/10/06/buffalo-bills-stefon-diggs-houston-texans/
 
 **Bengals' overtime defeat vs. Ravens their latest instance of losing at winning time**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823536/2024/10/06/panthers-bryce-young-quarterback
 **Jacoby Brissett, Patriots offense remain historically bad in tough loss to Dolphins**\
 `Through five games, the Patriots offense has been absolutely dreadful. And if Brissett remains the starter, it might not get any better.`\
 https://nytimes.com/athletic/5823409/2024/10/06/patriots-jacoby-brissett-bad-offense-dolphins/
-
-**A Year Later**\
-`Chen Almog-Goldstein was kidnapped along with her three youngest children on October 7, 2023. She tells the story of life as a hostage in Gaza.`\
-https://nytimes.com/2024/10/06/podcasts/a-year-later.html
 

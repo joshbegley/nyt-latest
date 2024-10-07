@@ -1,3 +1,11 @@
+**Browns' nightmare season takes another hit following blowout loss to Commanders**\
+`Deshaun Watson and the offense continue to struggle as Cleveland loses its third straight game and falls to 1-4. `\
+https://nytimes.com/athletic/5823554/2024/10/06/browns-loss-commanders-deshaun-watson/
+
+**Bills clearly lacked player like Stefon Diggs in loss to Texans**\
+`The Bills felt they needed to trade Diggs, but they haven't replaced his production.`\
+https://nytimes.com/athletic/5823596/2024/10/06/buffalo-bills-stefon-diggs-houston-texans/
+
 **Bo Nix, Sean Payton get into heated discussion after botched play**\
 `Payton said afterward that Nix “flipped” the play that resulted in a third-down incompletion.`\
 https://nytimes.com/athletic/5823603/2024/10/06/bo-nix-sean-payton-sideline-altercation/
