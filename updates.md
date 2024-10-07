@@ -1,3 +1,11 @@
+**Packers' Xavier McKinney makes history with NFL-high 5th INT: 'I'm on a mission'**\
+`McKinney is the first player since the 1970 merger with an interception in each of a player's first five games with his new team.`\
+https://nytimes.com/athletic/5824152/2024/10/06/xavier-mckinney-packers-win-fifth-interception/
+
+**When Ravens needed it most vs. Bengals, Lamar Jackson was at his best: 'That man is different'**\
+`As Joe Burrow and the Bengals kept applying pressure, the two-time MVP answered the call again and again to lead Baltimore to victory. `\
+https://nytimes.com/athletic/5823685/2024/10/06/ravens-win-bengals-lamar-jackson/
+
 **LeBron, Bronny share court as first father-son duo in NBA history**\
 `The moment came in the second quarter of the Los Angeles Lakers preseason game against the Phoenix Suns.`\
 https://nytimes.com/athletic/5824199/2024/10/06/lakers-vs-suns-lebron-bronny-james/
