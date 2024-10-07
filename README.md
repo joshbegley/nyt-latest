@@ -1,3 +1,11 @@
+**Alabama's Malachi Moore to play vs. South Carolina, Jaheim Oatis to redshirt**\
+`Moore will start against South Carolina and won't be suspended after his late-game outburst against Vanderbilt.`\
+https://nytimes.com/athletic/5825892/2024/10/07/malachi-moore-alabama-football-vanderbilt/
+
+**Kamala Harris Should Think Twice About Touting This Economy**\
+`The labor market isn’t as healthy as the September jobs report suggests. And Americans know it.`\
+https://nytimes.com/2024/10/07/opinion/jobs-report-economy-harris.html
+
 **Hurricane Milton: Where People Are Evacuating in Florida**\
 `Updates on how the state is preparing for the storm’s arrival.`\
 https://nytimes.com/2024/10/07/weather/florida-evacuations-list-hurricane-milton.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/science/100000009746940/hera-launch-asteroid-spacex-es
 **As Major Hurricane Approaches Florida, FEMA Faces Severe Staffing Shortage**\
 `Fewer than 10 percent of the agency’s disaster workers are available to respond to Hurricane Milton and other calamities.`\
 https://nytimes.com/2024/10/07/climate/hurricane-milton-fema-staff-shortage.html
-
-**Back on the Bench, the Supreme Court Is Diligent and Dour**\
-`The justices considered a routine case on unemployment benefits in characteristic style, peppering the lawyers with questions and dropping hints about their views.`\
-https://nytimes.com/2024/10/07/us/supreme-court-oral-argument.html
-
-**Georgia election officials see no significant disruptions in voting after Hurricane Helene.**\
-`A top official nevertheless suggested that people in storm-affected areas consider returning absentee ballots in person.`\
-https://nytimes.com/live/2024/10/07/us/harris-trump-election/georgia-election-officials-see-no-significant-disruptions-in-voting-after-hurricane-helene
 
