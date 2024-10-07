@@ -1,3 +1,15 @@
+**Pro-Israel and pro-Palestinian students hold side-by-side demonstrations at Columbia.**\
+`During tense but somber vigils on the university library steps, students and their supporters expressed outrage and sorrow.`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/pro-israel-and-pro-palestinian-students-hold-side-by-side-demonstrations-at-columbia
+
+**SpaceX Launches ESA’s Hera Asteroid Mission**\
+`The European Space Agency’s Hera mission will investigate an asteroid that NASA deliberately struck with another spacecraft in a previous test of humanity’s planetary defense readiness.`\
+https://nytimes.com/video/science/100000009746940/hera-launch-asteroid-spacex-esa.html
+
+**As Major Hurricane Approaches Florida, FEMA Faces Severe Staffing Shortage**\
+`Fewer than 10 percent of the agency’s disaster workers are available to respond to Hurricane Milton and other calamities.`\
+https://nytimes.com/2024/10/07/climate/hurricane-milton-fema-staff-shortage.html
+
 **Back on the Bench, the Supreme Court Is Diligent and Dour**\
 `The justices considered a routine case on unemployment benefits in characteristic style, peppering the lawyers with questions and dropping hints about their views.`\
 https://nytimes.com/2024/10/07/us/supreme-court-oral-argument.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009691035/israel-hostages-famil
 **Manchester City vs the Premier League - explaining the 115* charges and what happens next**\
 `The APT dispute between Manchester City and the Premier League has reached a verdict but a far bigger case continues`\
 https://nytimes.com/athletic/5824730/2024/10/07/manchester-city-115/
-
-**Looking at Bills' trade options to fill the wide receiver void**\
-`The Bills could need a trade to aid their remade WR room. Could Davante Adams, Amari Cooper and others be options?`\
-https://nytimes.com/athletic/5825498/2024/10/07/bills-wide-receiver-trade-cases-deadline/
-
-**Barcelona unable to put exact date on Camp Nou return**\
-`Barcelona vice-president Elena Fort says there is still no agreed date for the club&#8217;s return to the Camp Nou, despite previous plans to play there before the end of 2024.`\
-https://nytimes.com/athletic/5825150/2024/10/07/barcelona-camp-nou-return-date/
-
-**Chappell Roan Seeks the Line Between IRL and URL**\
-`The rising pop singer has been transparently navigating the demands of fame — onstage and online — as she’s grown from cult queer-pop hero to zeitgeist-shaping star.`\
-https://nytimes.com/2024/10/07/arts/music/chappell-roan-live-fans.html
 
