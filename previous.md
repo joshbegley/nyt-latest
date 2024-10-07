@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5822223/2024/10/06/seahawks-ny-giants-score-results
 `Once called “probably the funniest and most malicious” of the postmodernists, his books reflected a career-long interest in reimagining folk stories, fairy tales and political myths.`\
 https://nytimes.com/2024/10/06/books/robert-coover-dead.html
 
-**Josh Allen and the Bills’ offense are in peril. Don’t be fooled by close loss to Texans**\
+**Josh Allen and the Bills offense are in peril. Don’t be fooled by close loss to Texans**\
 `There was plenty of blame to go around in the Bills' second straight loss.`\
 https://nytimes.com/athletic/5823729/2024/10/06/buffalo-bills-josh-allen-texans/
 

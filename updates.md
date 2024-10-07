@@ -1,3 +1,7 @@
+**Josh Allen and the Bills offense are in peril. Don’t be fooled by close loss to Texans**\
+`There was plenty of blame to go around in the Bills' second straight loss.`\
+https://nytimes.com/athletic/5823729/2024/10/06/buffalo-bills-josh-allen-texans/
+
 **Giants return blocked field goal for TD, beat Seahawks**\
 `Giants' Daniel Jones tossed two touchdowns, defense added seven sacks and blocked field goal touchdown in 29-20 win over the Seahawks.`\
 https://nytimes.com/athletic/5822223/2024/10/06/seahawks-ny-giants-score-results-takeaways/
