@@ -1,3 +1,15 @@
+**49ers eager for quick turnaround as red-zone woes continue: 'A blessing in disguise'**\
+`The 49ers' biggest issue was something that's plagued them all season: They had six trips to the red zone and scored just one touchdown.`\
+https://nytimes.com/athletic/5824086/2024/10/06/49ers-loss-cardinals-thursday-night-football/
+
+**Jurickson Profar trolls fans as Dodgers and Padres get chippy in Game 2**\
+`There was light-hearted trolling, which turned into sharper chirping, which devolved into at least one baseball being fired from the stands in the direction of the primary antagonist — or protagonist — depending on your perspective.`\
+https://nytimes.com/athletic/5823803/2024/10/06/padres-dodgers-jurickson-profar-mookie-betts/
+
+**Raiders’ issues run much deeper than quarterback in loss to Broncos**\
+`With O-line struggles, injuries on defense and the lack of a vertical passing game without Davante Adams, Las Vegas isn't in great shape.`\
+https://nytimes.com/athletic/5823932/2024/10/06/raiders-broncos-quarterback-gardner-minshew/
+
 **Raiders' quarterback issue is far from their only problem after loss to Broncos**\
 `Between O-line struggles, injuries on defense and the lack of a vertical passing game without Davante Adams, Las Vegas isn't in great shape.`\
 https://nytimes.com/athletic/5823932/2024/10/06/raiders-broncos-quarterback-gardner-minshew/
