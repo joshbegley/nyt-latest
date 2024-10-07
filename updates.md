@@ -1,3 +1,11 @@
+**Tunisia’s President Cruises to a Victory That Critics Say He Engineered**\
+`President Kais Saied’s apparent landslide re-election is the latest sign that authoritarianism has returned to the birthplace of the Arab Spring.`\
+https://nytimes.com/2024/10/07/world/middleeast/tunisia-election-saied.html
+
+**The Bounce: Your NBA predictions season are here**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5824922/2024/10/07/nba-predictions-jeff-teague-desean-jackson-new-york-liberty-wnba-finals-nba-the-bounce/
+
 **Let’s Do a Donabe**\
 `Kay Chun’s chicken and vegetable donabe is soothing and mellow, ready to be perked up with citrusy ponzu and yuzu kosho.`\
 https://nytimes.com/2024/10/07/dining/lets-do-a-donabe.html
