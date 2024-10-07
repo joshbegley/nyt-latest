@@ -1,3 +1,27 @@
+**Monday Briefing**\
+`Reflecting on a year of war in the Middle East.`\
+https://nytimes.com/2024/10/07/briefing/war-anniversary-gaza-israel.html
+
+**The day the conversation changed for Gary O'Neil**\
+`There is a growing number of Wolves supporters who cannot buy into the plan either on the pitch or off it.`\
+https://nytimes.com/athletic/5820801/2024/10/07/wolves-oneil-brentford-future/
+
+**The War That Won’t End: How Oct. 7 Sparked a Year of Conflict**\
+`As war in the Middle East spreads, the original conflict between Israel and Hamas has persisted. This is why.`\
+https://nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html
+
+**Quote of the Day: A Changing Climate Is Scorching the World’s Biggest River**\
+`Quotation of the Day for Monday, October 7, 2024.`\
+https://nytimes.com/2024/10/07/pageoneplus/quote-of-the-day-a-changing-climate-is-scorching-the-worlds-biggest-river.html
+
+**Our Photographers in Israel and Gaza on the Images They Can’t Forget**\
+`Seven New York Times photojournalists describe moments that have defined a year of war.`\
+https://nytimes.com/2024/10/07/world/middleeast/israel-gaza-war-photos.html
+
+**How E-Commerce Is Making China’s Deflation Worse**\
+`The push by Pinduoduo to lower prices has helped it become one of China’s fastest-growing e-commerce apps, and epitomizes a broader force plaguing the economy.`\
+https://nytimes.com/2024/10/07/business/china-pinduoduo-ecommerce.html
+
 **Fighting Myanmar’s Patriarchy, One All-Male Panel at a Time**\
 `Ying Lao has called out the pro-democracy movement for its frequent “manels,” arguing that the exclusion of women from such discussions is hurting the cause.`\
 https://nytimes.com/2024/10/07/world/asia/myanmar-women-manels-patriarchy.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5824374/2024/10/06/mlb-2024-playoffs-mets-phillies-
 **Jurickson Profar takes center stage as Padres even NLDS: takeaways**\
 `LOS ANGELES — The Los Angeles Dodgers are in some trouble.`\
 https://nytimes.com/athletic/5823617/2024/10/06/dodgers-vs-padres-score-jurickson-profar-takeaways/
-
-**Here is what to know on the anniversary of the Oct. 7 attacks.**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/here-is-what-to-know-on-the-anniversary-of-the-oct-7-attacks
-
-**Live Updates: Memorials Commemorate Anniversary of Hamas-Led Attack on Israel**\
-`A year after the killings, Israelis are holding memorials and rallies for those killed and abducted. For Palestinians in Gaza, there is no reprieve from a war that has killed tens of thousands.`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war
-
-**Mets' Edwin Díaz struggles in Game 2 but 'feeling fine' after recent heavy usage**\
-`Díaz barely used his fastball in blowing the Mets' lead Sunday.`\
-https://nytimes.com/athletic/5824243/2024/10/06/mets-edwin-diaz-struggles-nlds-phillies/
-
-**Epic Phillies win had the full Nick Castellanos experience, from boos to backstop bliss**\
-`For the first 14 1/2 innings of the NLDS, they looked overwhelmed. Now, it's a series again. Castellanos was in the middle of it all.`\
-https://nytimes.com/athletic/5824085/2024/10/06/phillies-nick-castellanos-nlds-game-2/
-
-**'We kind of underestimated them': Seahawks seeking answers after flopping vs. Giants**\
-`The Seahawks were supposed to beat the short-handed Giants and get to 4-1. Perhaps those expectations were part of the problem.`\
-https://nytimes.com/athletic/5824065/2024/10/06/seahawks-giants-geno-smith-blocked-kick/
-
-**Packers' Xavier McKinney makes history with NFL-high fifth INT: 'I'm on a mission'**\
-`McKinney is the first player since the 1970 merger with an interception in each of a player's first five games with his new team.`\
-https://nytimes.com/athletic/5824152/2024/10/06/xavier-mckinney-packers-win-fifth-interception/
 
