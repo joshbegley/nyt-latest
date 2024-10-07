@@ -1,3 +1,7 @@
+**McDaniel offers update on Dolphins QB Tagovailoa: 'So far so good'**\
+`Dolphins starting quarterback has been out with a concussion since Week 2.`\
+https://nytimes.com/athletic/5826183/2024/10/07/dolphins-tua-tagovailoa-concussion-update/
+
 **Cissy Houston Dies at 91; Gospel Singer Guided Daughter Whitney to Stardom**\
 `Hailing from a musical family, she won Grammys, sang backup to Elvis Presley and Aretha Franklin and helped shepherd Whitney Houston’s rise to fame.`\
 https://nytimes.com/2024/10/07/arts/music/cissy-houston-dead.html
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/5826142/2024/10/07/england-nations-league-injuries/
 `Vice President Kamala Harris rarely points out the fact that she would be the first female president or the first Black or Indian woman to hold the job. Her running mate embraces it.`\
 https://nytimes.com/2024/10/07/us/politics/harris-often-sidesteps-her-history-making-potential-walz-doesnt.html
 
-**Alabama's Malachi Moore to play vs. South Carolina, Jaheim Oatis to redshirt**\
+**Alabama's Malachi Moore to play vs. South Carolina, Jehiem Oatis to redshirt**\
 `Moore will start against South Carolina and won't be suspended after his late-game outburst against Vanderbilt.`\
 https://nytimes.com/athletic/5825892/2024/10/07/malachi-moore-alabama-football-vanderbilt/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/weather/florida-evacuations-list-hurricane-milton
 **Manchester City vs the Premier League: The APT verdict (briefly) explained**\
 `As the fall-out from the APT legal case continues, we analyse who won what - and what could happen next`\
 https://nytimes.com/athletic/5825681/2024/10/07/premier-league-manchester-city-apt-explained/
-
-**Shams Charania leaving The Athletic to join ESPN as senior NBA insider**\
-`Charania's move comes after longtime NBA insider Adrian Wojnarowski retired from his role with ESPN in September. `\
-https://nytimes.com/athletic/5826084/2024/10/07/shams-charania-espn-the-athletic/
 
