@@ -1,3 +1,7 @@
+**Tennis Briefing: Players complain about balls, rain rules Shanghai, Davis Cup shakeup**\
+`Recapping the Shanghai Masters and China Open, as well as all the off-court stories from the last week in tennis.`\
+https://nytimes.com/athletic/5824671/2024/10/07/tennis-analysis-news-china-open-shanghai-masters/
+
 **Israel’s global standing has deteriorated since Oct. 7, analysts say.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/israels-global-standing-has-deteriorated-since-oct-7-analysts-say
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824816/2024/10/07/ferran-torres-injury-barcelona/
 **Gleeman: My Twins MVP ballot — ranking the 10 best players on a team that needed more**\
 `The same injuries and second-half fades that wrecked the Twins' season make it tricky to choose a clear team MVP. Here's my annual ballot. `\
 https://nytimes.com/athletic/5815448/2024/10/07/minnesota-twins-2024-mvp-ballot/
-
-**‘I want to be great’: How a forward-to-defense switch unlocked Bruins' Mason Lohrei**\
-`The Bruins are excited about 23-year-old Lohrei, who could be on his way to becoming one of the NHL's elite defensemen. `\
-https://nytimes.com/athletic/5822039/2024/10/07/bruins-mason-lohrei-evolution/
 
