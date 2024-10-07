@@ -1,3 +1,7 @@
+**Tennis Briefing: Players complain about balls, rain rules Shanghai, Davis Cup shakeup**\
+`Recapping the Shanghai Masters and China Open, as well as all the off-court stories from the last week in tennis.`\
+https://nytimes.com/athletic/5824671/2024/10/07/tennis-analysis-news-china-open-shanghai-masters/
+
 **Israel’s global standing has deteriorated since Oct. 7, analysts say.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/israels-global-standing-has-deteriorated-since-oct-7-analysts-say
