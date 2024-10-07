@@ -1,3 +1,11 @@
+**Back on the Bench, the Supreme Court Is Diligent and Dour**\
+`The justices considered a routine case on unemployment benefits in characteristic style, peppering the lawyers with questions and dropping hints about their views.`\
+https://nytimes.com/2024/10/07/us/supreme-court-oral-argument.html
+
+**Georgia election officials see no significant disruptions in voting after Hurricane Helene.**\
+`A top official nevertheless suggested that people in storm-affected areas consider returning absentee ballots in person.`\
+https://nytimes.com/live/2024/10/07/us/harris-trump-election/georgia-election-officials-see-no-significant-disruptions-in-voting-after-hurricane-helene
+
 **Revised House v. NCAA settlement granted preliminary approval**\
 `The settlement is not yet finalized, but it can now progress to next steps, which includes notifying class members.`\
 https://nytimes.com/athletic/5826004/2024/10/07/house-ncaa-settlement-approval-claudia-wilken/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5825150/2024/10/07/barcelona-camp-nou-return-date/
 **Chappell Roan Seeks the Line Between IRL and URL**\
 `The rising pop singer has been transparently navigating the demands of fame — onstage and online — as she’s grown from cult queer-pop hero to zeitgeist-shaping star.`\
 https://nytimes.com/2024/10/07/arts/music/chappell-roan-live-fans.html
-
-**Georgia Supreme Court Restores State’s 6-Week Abortion Ban**\
-`The ban will resume while the court considers an appeal to a decision that had briefly allowed greater access to abortions in the state.`\
-https://nytimes.com/2024/10/07/us/georgia-supreme-court-abortion-ban.html
-
-**Tampa Residents Warned to Expect ‘Worst Hurricane in Their Lifetime’**\
-`The Tampa Bay area, long used to relative safety from big storms, faces what could be its first direct hit by a major hurricane in a century.`\
-https://nytimes.com/2024/10/07/weather/tampa-hurricane-history.html
 

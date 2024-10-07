@@ -1,3 +1,11 @@
+**Back on the Bench, the Supreme Court Is Diligent and Dour**\
+`The justices considered a routine case on unemployment benefits in characteristic style, peppering the lawyers with questions and dropping hints about their views.`\
+https://nytimes.com/2024/10/07/us/supreme-court-oral-argument.html
+
+**Georgia election officials see no significant disruptions in voting after Hurricane Helene.**\
+`A top official nevertheless suggested that people in storm-affected areas consider returning absentee ballots in person.`\
+https://nytimes.com/live/2024/10/07/us/harris-trump-election/georgia-election-officials-see-no-significant-disruptions-in-voting-after-hurricane-helene
+
 **Revised House v. NCAA settlement granted preliminary approval**\
 `The settlement is not yet finalized, but it can now progress to next steps, which includes notifying class members.`\
 https://nytimes.com/athletic/5826004/2024/10/07/house-ncaa-settlement-approval-claudia-wilken/
