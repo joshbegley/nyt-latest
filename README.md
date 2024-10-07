@@ -1,3 +1,15 @@
+**College football Week 7 odds, schedule: Red River, Ohio State-Oregon headline loaded week**\
+`The top two teams in the AP Top 25 are playing away from home against ranked opponents. Texas and Ohio State face tough tests in Week 7.`\
+https://nytimes.com/athletic/5825402/2024/10/07/college-football-week-7-odds-schedule-texas-oklahoma-ohio-state-oregon/
+
+**As desperation grows in Gaza, food aid remains out of reach.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/gaza-food-aid
+
+**Watching the Vikings go 5-0 with the voice of Minnesota, Paul Allen**\
+`The Athletic watched Sunday's game at Tottenham Hotspur stadium with Paul Allen`\
+https://nytimes.com/athletic/5825503/2024/10/07/paul-allen-minnesota-vikings-london/
+
 **Shopping for a Hard-to-Please Loved One? Ask T for Help.**\
 `Send us a question about a picky person on your holiday gift list and we’ll respond to the most intriguing ones with suggestions.`\
 https://nytimes.com/2024/10/07/t-magazine/holiday-gift-suggestions-questions.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/02/opinion/carolina-helene-misinformation-trump.html
 **Israel strikes southern Gaza after Hamas fires rockets.**\
 `By Matthew Mpoke Bigg, Bilal Shbair and Euan Ward`\
 https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/israel-strikes-southern-gaza-after-hamas-fires-rockets
-
-**How Christian Braun and Julian Strawther can fill the Nuggets' hole at shooting guard**\
-`Whoever starts between Braun and Strawther will need to plug a significant hole left by Kentavious Caldwell-Pope, who left in free agency.`\
-https://nytimes.com/athletic/5824348/2024/10/07/christian-braun-julian-strawther-nuggets/
-
-**What the Poolman trade, Höglander extension reveal about Canucks' plans: 3 thoughts**\
-`Where Erik Brännström will fit and other thoughts on a busy weekend of Canucks news.`\
-https://nytimes.com/athletic/5824545/2024/10/07/tucker-poolman-trade-nils-hoglander-extension-canucks/
-
-**Mourners gather in Nir Oz, a symbol of Israel’s security failures.**\
-`By Sergey Ponomarev and Aaron Boxerman`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mourners-gather-in-nir-oz-an-emblem-of-israels-security-failures
 
