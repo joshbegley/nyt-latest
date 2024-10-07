@@ -1,3 +1,7 @@
+**Is the Election Affecting Your Relationships?**\
+`If this political season is influencing your marriage, friendships or dating life, for better or worse, we want to hear about it.`\
+https://nytimes.com/2024/10/07/well/family/politics-election-relationships-callout.html
+
 **Missile Hits Near Ukrainian Air Base as Russia Expands Air Attacks**\
 `The strike is part of a broader campaign of air assaults by Moscow aimed at degrading Ukraine’s military infrastructure and wearing down its air defenses.`\
 https://nytimes.com/2024/10/07/world/europe/ukraine-russia-missile-attack.html
@@ -11,8 +15,8 @@ https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/us-impos
 https://nytimes.com/athletic/5825192/2024/10/07/usmnt-balogun-pulisic-tillman-tracker/
 
 **The Casualties in North Carolina Include the Truth**\
-`By Frank Bruni`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/carolina-helene-misinformation-trump
+`An overflow of Trump-inspired misinformation on the disaster of Helene has impeded the recovery.`\
+https://nytimes.com/2024/10/02/opinion/carolina-helene-misinformation-trump.html
 
 **Israel strikes southern Gaza after Hamas fires rockets.**\
 `By Matthew Mpoke Bigg, Bilal Shbair and Euan Ward`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mourne
 **Emirates bans pagers and walkie-talkies on flights after attacks.**\
 `The move comes after communication devices used by Hezbollah members exploded last month, killing dozens of people.`\
 https://nytimes.com/2024/10/07/world/middleeast/emirates-bans-pagers-and-walkie-talkies-on-flights-after-attacks.html
-
-**Maple Leafs sign Max Pacioretty, Steven Lorentz and get to within $1 of cap limit**\
-`Pacioretty spent the majority of camp on a third line playing with John Tavares and Nick Robertson`\
-https://nytimes.com/athletic/5822699/2024/10/07/maple-leafs-max-pacioretty-contract/
 

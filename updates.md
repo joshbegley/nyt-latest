@@ -1,3 +1,11 @@
+**Is the Election Affecting Your Relationships?**\
+`If this political season is influencing your marriage, friendships or dating life, for better or worse, we want to hear about it.`\
+https://nytimes.com/2024/10/07/well/family/politics-election-relationships-callout.html
+
+**The Casualties in North Carolina Include the Truth**\
+`An overflow of Trump-inspired misinformation on the disaster of Helene has impeded the recovery.`\
+https://nytimes.com/2024/10/02/opinion/carolina-helene-misinformation-trump.html
+
 **Missile Hits Near Ukrainian Air Base as Russia Expands Air Attacks**\
 `The strike is part of a broader campaign of air assaults by Moscow aimed at degrading Ukraine’s military infrastructure and wearing down its air defenses.`\
 https://nytimes.com/2024/10/07/world/europe/ukraine-russia-missile-attack.html
