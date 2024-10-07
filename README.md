@@ -1,3 +1,7 @@
+**Tigers pierce stellar Guardians bullpen to tie up ALDS: Takeaways**\
+`Emmanuel Clase is the best closer in baseball. Kerry Carpenter and the Tigers got to him in the biggest of moments. `\
+https://nytimes.com/athletic/5826763/2024/10/07/tigers-guardians-score-mlb-playoffs-takeaways/
+
 **Ex-Rangers reliever, No. 1 pick Bush charged with DWI**\
 `Bush fled from the scene on foot before he was chased down and detained by a group of bystanders until officers arrived.`\
 https://nytimes.com/athletic/5825721/2024/10/07/matt-bush-arrest-dwi-rangers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/movies/the-menendez-brothers-review.html
 **Supreme Court Turns Down Biden’s Appeal in Texas Abortion Case**\
 `The administration said a state abortion law conflicted with a federal law requiring emergency care. The court similarly sidestepped a case from Idaho in June.`\
 https://nytimes.com/2024/10/07/us/politics/supreme-court-texas-abortion-biden.html
-
-**Harris Honors Oct. 7 Dead as Victims of ‘Pure Evil’ and Vows to Defend Israel**\
-`Condemning the Hamas-led attacks a year ago and calling again for the release of hostages in Gaza, Vice President Kamala Harris also spoke of “the immense suffering of innocent Palestinians.”`\
-https://nytimes.com/2024/10/07/us/politics/harris-israel-oct-7.html
 
