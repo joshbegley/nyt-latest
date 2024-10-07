@@ -1,3 +1,7 @@
+**World leaders mark the anniversary with solemn words.**\
+`By Aryn Baker`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/world-leaders-mark-the-anniversary-with-solemn-words
+
 **Trump’s increasingly angry and rambling speeches reignite the question of age in the election.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/10/07/us/harris-trump-election/trumps-increasingly-angry-and-rambling-speeches-reignite-the-question-of-age-in-the-election
