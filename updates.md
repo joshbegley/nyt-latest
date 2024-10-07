@@ -1,3 +1,7 @@
+**Dueling Oct. 7 memorials reflect deep fissures among Israelis.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/dueling-oct-7-memorials-reflect-deep-fissures-among-israelis
+
 **Tigers pierce stellar Guardians bullpen to tie up ALDS: Takeaways**\
 `Emmanuel Clase is the best closer in baseball. Kerry Carpenter and the Tigers got to him in the biggest of moments. `\
 https://nytimes.com/athletic/5826763/2024/10/07/tigers-guardians-score-mlb-playoffs-takeaways/

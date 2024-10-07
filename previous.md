@@ -1,3 +1,7 @@
+**Dueling Oct. 7 memorials reflect deep fissures among Israelis.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/dueling-oct-7-memorials-reflect-deep-fissures-among-israelis
+
 **Tigers pierce stellar Guardians bullpen to tie up ALDS: Takeaways**\
 `Emmanuel Clase is the best closer in baseball. Kerry Carpenter and the Tigers got to him in the biggest of moments. `\
 https://nytimes.com/athletic/5826763/2024/10/07/tigers-guardians-score-mlb-playoffs-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5826685/2024/10/07/andrew-painter-phillies-prospect
 **‘The Menendez Brothers’ Review: Reframing a Case**\
 `To the extent this documentary about Lyle and Erik Menendez has appeal, it is of the tabloid variety.`\
 https://nytimes.com/2024/10/07/movies/the-menendez-brothers-review.html
-
-**Supreme Court Turns Down Biden’s Appeal in Texas Abortion Case**\
-`The administration said a state abortion law conflicted with a federal law requiring emergency care. The court similarly sidestepped a case from Idaho in June.`\
-https://nytimes.com/2024/10/07/us/politics/supreme-court-texas-abortion-biden.html
 
