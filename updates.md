@@ -1,3 +1,11 @@
+**Takeaways from Raptors' preseason debut: Absences mount while Jamal Shead impresses**\
+`The recognizable names dwindled at the Raptors’ preseason opener against the Washington Wizards on Sunday night, a 125-98 win.`\
+https://nytimes.com/athletic/5824344/2024/10/06/raptors-preseason-debut-jamal-shead/
+
+**2024 MLB Division Series: Instant classic for Phillies and Mets; instant irritation for Padres and Dodgers**\
+`Go around the the horn, three up and three down, a look at what's on deck and our picks to click.`\
+https://nytimes.com/athletic/5824374/2024/10/06/mlb-2024-playoffs-mets-phillies-dodgers-padres/
+
 **49ers eager for quick turnaround as red-zone woes continue: 'A blessing in disguise'**\
 `The 49ers' biggest issue was something that's plagued them all season: They had six trips to the red zone and scored just one touchdown.`\
 https://nytimes.com/athletic/5824086/2024/10/06/49ers-loss-cardinals-thursday-night-football/

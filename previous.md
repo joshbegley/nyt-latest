@@ -1,3 +1,11 @@
+**Takeaways from Raptors' preseason debut: Absences mount while Jamal Shead impresses**\
+`The recognizable names dwindled at the Raptors’ preseason opener against the Washington Wizards on Sunday night, a 125-98 win.`\
+https://nytimes.com/athletic/5824344/2024/10/06/raptors-preseason-debut-jamal-shead/
+
+**2024 MLB Division Series: Instant classic for Phillies and Mets; instant irritation for Padres and Dodgers**\
+`Go around the the horn, three up and three down, a look at what's on deck and our picks to click.`\
+https://nytimes.com/athletic/5824374/2024/10/06/mlb-2024-playoffs-mets-phillies-dodgers-padres/
+
 **Jurickson Profar takes center stage as Padres even NLDS: takeaways**\
 `LOS ANGELES — The Los Angeles Dodgers are in some trouble.`\
 https://nytimes.com/athletic/5823617/2024/10/06/dodgers-vs-padres-score-jurickson-profar-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5824152/2024/10/06/xavier-mckinney-packers-win-fift
 **When Ravens needed it most vs. Bengals, Lamar Jackson was at his best: 'That man is different'**\
 `As Joe Burrow and the Bengals kept applying pressure, the two-time MVP answered the call again and again to lead Baltimore to victory. `\
 https://nytimes.com/athletic/5823685/2024/10/06/ravens-win-bengals-lamar-jackson/
-
-**LeBron, Bronny first father-son duo to share court in NBA history**\
-`The Jameses opened the second quarter of the Lakers’ preseason matchup against the Suns together`\
-https://nytimes.com/athletic/5824199/2024/10/06/lakers-vs-suns-lebron-bronny-james/
-
-**49ers eager for quick turnaround as red-zone woes continue: 'A blessing in disguise'**\
-`The 49ers' biggest issue was something that's plagued them all season: They had six trips to the red zone and scored just one touchdown.`\
-https://nytimes.com/athletic/5824086/2024/10/06/49ers-loss-cardinals-thursday-night-football/
 
