@@ -1,3 +1,7 @@
+**Pats' Peppers will be charged with strangulation, drug possession**\
+`Peppers is scheduled to be arraigned in court Monday. Patriots coach Jerod Mayo said the team informed the NFL of what was going on.`\
+https://nytimes.com/athletic/5825188/2024/10/07/jabrill-peppers-arrested-patriots/
+
 **New dad Ryan Hartman's offseason provided perspective on Wild, fatherhood: 'You want him to be proud'**\
 `The veteran forward enters his sixth season in Minnesota with a bigger role and a greater purpose.`\
 https://nytimes.com/athletic/5824736/2024/10/07/minnesota-wild-ryan-hartman-father/

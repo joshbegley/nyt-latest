@@ -1,3 +1,7 @@
+**Pats' Peppers will be charged with strangulation, drug possession**\
+`Peppers is scheduled to be arraigned in court Monday. Patriots coach Jerod Mayo said the team informed the NFL of what was going on.`\
+https://nytimes.com/athletic/5825188/2024/10/07/jabrill-peppers-arrested-patriots/
+
 **New dad Ryan Hartman's offseason provided perspective on Wild, fatherhood: 'You want him to be proud'**\
 `The veteran forward enters his sixth season in Minnesota with a bigger role and a greater purpose.`\
 https://nytimes.com/athletic/5824736/2024/10/07/minnesota-wild-ryan-hartman-father/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/theater/big-gay-jamboree-review-marla-mindelle.ht
 **How a lack of overlaps undermined Manchester United against Aston Villa**\
 `Ten Hag's side desperately need to evolve in attack, otherwise their record-breaking bad start to the season is only going to get worse`\
 https://nytimes.com/athletic/5824852/2024/10/07/manchester-united-tactics-aston-villa-overlaps/
-
-**Fantasy Week 5 recap: Buy or sell struggling Breece Hall, Bijan Robinson?**\
-`The Jets' and Falcons' starting RBs have scuffled early. Is it time to sell them off before their stock dips any lower?`\
-https://nytimes.com/athletic/5825099/2024/10/07/fantasy-football-week-5-recap-breece-hall-bijan-robinson/
 
