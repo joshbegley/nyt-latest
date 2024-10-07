@@ -1,6 +1,6 @@
 **Missile Hits Near Ukrainian Air Base as Russia Expands Air Attacks**\
 `The strike is part of a broader campaign of air assaults by Moscow aimed at degrading Ukraine’s military infrastructure and wearing down its air defenses.`\
-https://nytimes.com/2024/10/07/world/europe/missile-hits-near-ukrainian-air-base-as-russia-expands-air-attacks.html
+https://nytimes.com/2024/10/07/world/europe/ukraine-russia-missile-attack.html
 
 **U.S. imposes new sanctions to cut off Hamas funds.**\
 `The Treasury Department is targ`\
