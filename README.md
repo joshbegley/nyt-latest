@@ -1,3 +1,7 @@
+**France Has Made Itself Irrelevant on the World Stage**\
+`If you don’t play the game, you don’t make the rules.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/macron-israel-weapons-ban
+
 **Addressing a Silent Epidemic**\
 `Why oral health is the next logical step in self-care.`\
 https://nytimes.com/paidpost/proclaim/addressing-a-silent-epidemic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5826242/2024/10/07/jett-luchanko-flyers-roster/
 **Tim Sheehy was recorded saying young people were ‘indoctrinated’ to support liberal causes.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/10/07/us/harris-trump-election/tim-sheehy-was-recorded-saying-young-people-were-indoctrinated-to-support-liberal-causes
-
-**How Jesper Wallstedt and Liam Ohgren made the Wild cut, plus lines take shape, and is Declan Chisholm out?**\
-`ST.`\
-https://nytimes.com/athletic/5826309/2024/10/07/wild-lineup-wallstedt-ohgren-chisholm/
 
