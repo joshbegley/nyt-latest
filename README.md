@@ -1,3 +1,7 @@
+**Bills clearly lacked player like Stefon Diggs in loss to Texans**\
+`The Bills felt they needed to trade Stefon Diggs, but they haven't replaced his production.`\
+https://nytimes.com/athletic/5823596/2024/10/06/buffalo-bills-stefon-diggs-houston-texans/
+
 **Bengals' overtime defeat vs. Ravens their latest instance of losing at winning time**\
 `Joe Burrow: "I know exactly how we are 1-4. We are not making the plays at the end of the game to go and win it."`\
 https://nytimes.com/athletic/5823615/2024/10/06/bengals-ravens-overtime-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823471/2024/10/06/bears-panthers-caleb-williams-of
 **Evacuation Orders Posted as Florida Braces for Hurricane Milton**\
 `The powerful, life-threatening hurricane is expected to make landfall on Wednesday even as residents continue to recover from Hurricane Helene.`\
 https://nytimes.com/2024/10/06/weather/florida-storm-milton-preparation.html
-
-**Bo Nix, secondary shine in Broncos' 34-18 win vs. Raiders: Takeaways**\
-`The Broncos' win over Las Vegas snaps an eight-game losing streak against their divisional opponent dating back to 2020.`\
-https://nytimes.com/athletic/5822402/2024/10/06/raiders-broncos-score-sean-payton-takeaways/
 
