@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/07/crosswords/spelling-bee-forum.html
+
 **China Calls for Tighter Security After Workers Are Killed in Pakistan**\
 `Two Chinese nationals were killed and another was injured after a convoy was attacked in Karachi on Sunday. A separatist group claimed responsibility.`\
 https://nytimes.com/2024/10/07/world/asia/pakistan-chinese-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/opinion/my-heart-remains-captive-in-gaza.html
 **I Was a Best-Seller. Then I Went Back to School.**\
 `A writer reconsiders the value of literature and goes back to school to study behavioral change — and maybe change himself.`\
 https://nytimes.com/2024/10/07/opinion/novelist-back-to-school-behavioral-science-identity.html
-
-**Fantasy football Week 5 takeaways: Brian Thomas looks like a steal, Tyrone Tracy seizes the day and more**\
-`Michael Salfino shares his takeaways from Week 5, including that Tyrone Tracy's outing could spell trouble for Devin Singletary managers.`\
-https://nytimes.com/athletic/5824347/2024/10/07/fantasy-football-week-5-takeaways-brian-thomas-tyrone-tracy/
 
