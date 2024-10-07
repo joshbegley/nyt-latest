@@ -1,3 +1,11 @@
+**Porn Industry Jumps Into the Presidential Campaign, Targeting Project 2025**\
+`In seven swing states, the industry’s websites will feature ads decrying the conservative policy blueprint’s proposed ban on pornography.`\
+https://nytimes.com/2024/10/07/us/politics/porn-actors-project-2025-ad.html
+
+**In a square in Tel Aviv, hostage families and supporters seek some comfort.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/in-a-square-in-tel-aviv-hostage-families-and-supporters-seek-some-comfort
+
 **Bucks' preseason opener observations: Damian Lillard looks good, Gary Trent Jr.'s injury**\
 `Giannis Antetokounmpo and Khris Middleton didn't play, but Lillard, who said the Bucks will get "the real version of me," looked great.`\
 https://nytimes.com/athletic/5824047/2024/10/07/damian-lillard-gary-trent-jr-bucks-preseason/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/a-simp
 **Denny Hamlin, still chasing his first Cup title, finally got some playoff luck**\
 `Denny Hamlin is famous for his playoff misfortunes. On Sunday at Talladega, he was finally on the other end, setting him up well in Round 2.`\
 https://nytimes.com/athletic/5824571/2024/10/07/denny-hamlin-talladega-nascar-playoffs-luck/
-
-**Two Tech Moguls Split on Trump**\
-`Elon Musk appeared onstage at a rally for the former president this weekend, but Silicon Valley was abuzz about Ben Horowitz’s U-turn on backing the Republican candidate.`\
-https://nytimes.com/2024/10/07/business/dealbook/trump-harris-musk-horowitz.html
-
-**Electric Car Subsidies Are a Plus, but Could Be Improved, Study Finds**\
-`The Inflation Reduction Act was a compromise between competing priorities. Evaluating the law on the effectiveness of the $7,500 tax credit for E.V.s is tricky.`\
-https://nytimes.com/2024/10/07/business/economy/electric-vehicle-tax-credits-study.html
 
