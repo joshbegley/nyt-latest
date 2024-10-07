@@ -1,3 +1,7 @@
+**Shopping for a Hard-to-Please Loved One? Ask T for Help.**\
+`Send us a question about a picky person on your holiday gift list and we’ll respond to the most intriguing ones with suggestions.`\
+https://nytimes.com/2024/10/07/t-magazine/holiday-gift-suggestions-questions.html
+
 **Is the Election Affecting Your Relationships?**\
 `If this political season is influencing your marriage, friendships or dating life, for better or worse, we want to hear about it.`\
 https://nytimes.com/2024/10/07/well/family/politics-election-relationships-callout.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824545/2024/10/07/tucker-poolman-trade-nils-hoglan
 **Mourners gather in Nir Oz, a symbol of Israel’s security failures.**\
 `By Sergey Ponomarev and Aaron Boxerman`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mourners-gather-in-nir-oz-an-emblem-of-israels-security-failures
-
-**Emirates bans pagers and walkie-talkies on flights after attacks.**\
-`The move comes after communication devices used by Hezbollah members exploded last month, killing dozens of people.`\
-https://nytimes.com/2024/10/07/world/middleeast/emirates-bans-pagers-and-walkie-talkies-on-flights-after-attacks.html
 

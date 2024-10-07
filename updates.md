@@ -1,3 +1,7 @@
+**Shopping for a Hard-to-Please Loved One? Ask T for Help.**\
+`Send us a question about a picky person on your holiday gift list and we’ll respond to the most intriguing ones with suggestions.`\
+https://nytimes.com/2024/10/07/t-magazine/holiday-gift-suggestions-questions.html
+
 **Is the Election Affecting Your Relationships?**\
 `If this political season is influencing your marriage, friendships or dating life, for better or worse, we want to hear about it.`\
 https://nytimes.com/2024/10/07/well/family/politics-election-relationships-callout.html
