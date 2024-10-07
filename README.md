@@ -1,3 +1,7 @@
+**Trump’s Ugly Closing Argument**\
+`He delivers a mix of disinformation, false claims about cheating in elections, and personal attacks.`\
+https://nytimes.com/2024/10/07/us/politics/trump-harris-fema-funding.html
+
 **Dueling Oct. 7 memorials reflect deep fissures among Israelis.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/dueling-oct-7-memorials-reflect-deep-fissures-among-israelis
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5826668/2024/10/07/cooper-kupp-injury-update-return
 **Phillies' Andrew Painter to pitch in fall league. What scenarios are in play for 2025?**\
 `Painter is taking a big step forward by pitching in the Arizona Fall League. He's expected to reach 20 innings in fall ball. Then what?`\
 https://nytimes.com/athletic/5826685/2024/10/07/andrew-painter-phillies-prospect-2025-season/
-
-**‘The Menendez Brothers’ Review: Reframing a Case**\
-`To the extent this documentary about Lyle and Erik Menendez has appeal, it is of the tabloid variety.`\
-https://nytimes.com/2024/10/07/movies/the-menendez-brothers-review.html
 
