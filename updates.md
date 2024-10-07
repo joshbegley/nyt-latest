@@ -1,3 +1,17 @@
+**NASCAR Talladega takeaways: Ignorance is bliss, an all-time what-if and more**\
+`We know too much to have enjoyed that race Sunday, plus Denny Hamlin's what-if, Bubba Wallace's baby and more from Talladega.`\
+https://nytimes.com/athletic/5825137/2024/10/07/nascar-talladega-takeaways-denny-hamlin-bubba-wallace/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Wow. Just wow. Did Vanderbilt-Alabama really happen? Did Miami really come back from 35-10 in the middle of the night?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/5826368/2024/10/07/submit-a-question-for-stewart-mandels-college-football-mailbag-276/
+
+**Elon Musk’s Giant Leap**\
+`When one of the richest men in the world made a surprise cameo at a Trump rally in Butler, Pa., he did so with the gusto of a meme exploding.`\
+https://nytimes.com/2024/10/07/style/elon-musk-donald-trump-butler-pa.html
+
 **McDaniel offers update on Dolphins QB Tagovailoa: 'So far so good'**\
 `Dolphins starting quarterback has been out with a concussion since Week 2.`\
 https://nytimes.com/athletic/5826183/2024/10/07/dolphins-tua-tagovailoa-concussion-update/
