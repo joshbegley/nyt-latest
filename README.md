@@ -1,3 +1,11 @@
+**How Christian Braun and Julian Strawther can fill the Nuggets' hole at shooting guard**\
+`Whoever starts between Braun and Strawther will need to plug a significant hole left by Kentavious Caldwell-Pope, who left in free agency.`\
+https://nytimes.com/athletic/5824348/2024/10/07/christian-braun-julian-strawther-nuggets/
+
+**What the Poolman trade, Höglander extension reveal about Canucks' plans: 3 thoughts**\
+`Where Erik Brännström will fit and other thoughts on a busy weekend of Canucks news.`\
+https://nytimes.com/athletic/5824545/2024/10/07/tucker-poolman-trade-nils-hoglander-extension-canucks/
+
 **Mourners gather in Nir Oz, an emblem of Israel’s security failures.**\
 `By Sergey Ponomarev and Aaron Boxerman`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mourners-gather-in-nir-oz-an-emblem-of-israels-security-failures
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5824922/2024/10/07/nba-predictions-jeff-teague-dese
 **Let’s Do a Donabe**\
 `Kay Chun’s chicken and vegetable donabe is soothing and mellow, ready to be perked up with citrusy ponzu and yuzu kosho.`\
 https://nytimes.com/2024/10/07/dining/lets-do-a-donabe.html
-
-**When Two Sea Aliens Become One**\
-`Primitive animals called comb jellies can fuse their bodies and nervous systems together.`\
-https://nytimes.com/2024/10/07/science/comb-jellies-fusing-bodies.html
-
-**Have We Reached Peak Human Life Span?**\
-`After decades of rising life expectancy, the increases appear to be slowing. A new study calls into question how long even the healthiest of populations can live.`\
-https://nytimes.com/2024/10/07/well/live/average-human-life-span.html
 
