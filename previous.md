@@ -1,3 +1,7 @@
+**Arab countries are still trying to maintain a balancing act.**\
+`By Ismaeel Naar`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mideast-arab-countries-gaza-israel
+
 **Villa striker Duran signs new contract until 2030**\
 `Aston Villa striker Jhon Duran has signed a new contract with the club until 2030.`\
 https://nytimes.com/athletic/5824791/2024/10/07/jhon-duran-aston-villa-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5816662/2024/10/07/cam-whitmore-houston-rockets-def
 **The contrast between the Commanders and Browns could not be clearer**\
 `The Jayden Daniels-Kliff Kingsbury marriage looks perfect. The Deshaun Watson-Kevin Stefanski marriage is decidedly not.`\
 https://nytimes.com/athletic/5824635/2024/10/07/deshaun-watson-kevin-stefanski-browns-commanders/
-
-**Former Broncos coach Vance Joseph is doing a solid for current Broncos coach Sean Payton**\
-`Joseph's defense allowed 70 points in one game just 379 days ago. Now, that unit is carrying the team and its young offense.`\
-https://nytimes.com/athletic/5824652/2024/10/07/sean-payton-broncos-vance-joseph/
 

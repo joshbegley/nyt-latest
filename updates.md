@@ -1,3 +1,7 @@
+**Arab countries are still trying to maintain a balancing act.**\
+`By Ismaeel Naar`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mideast-arab-countries-gaza-israel
+
 **Villa striker Duran signs new contract until 2030**\
 `Aston Villa striker Jhon Duran has signed a new contract with the club until 2030.`\
 https://nytimes.com/athletic/5824791/2024/10/07/jhon-duran-aston-villa-contract/
