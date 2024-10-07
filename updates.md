@@ -1,3 +1,15 @@
+**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
+`Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
+https://nytimes.com/athletic/5824714/2024/10/07/newcastle-howe-strikers-injuries/
+
+**FPL: What we learned from Gameweek 7 – Spurs stars and Brentford bolters**\
+`Abdul Rehman reviews the talking points from Gameweek 7, including the possible knock-on effects of Alisson's suspected hamstring injury `\
+https://nytimes.com/athletic/5822823/2024/10/07/fantasy-premier-league-gw7-alisson-maddison-johnson/
+
+**Biden condemns the ‘unspeakable brutality’ of last October’s attack.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/biden-condemns-the-unspeakable-brutality-of-last-octobers-attack
+
 **Hostages’ Families Endure Surreal Wait on Anniversary of Oct. 7 Attacks**\
 `More than 60 living hostages, and the bodies of about 35 others who are believed to be dead, are still in Gaza, according to the Israeli authorities.`\
 https://nytimes.com/2024/10/07/world/middleeast/october-7-hostages.html
