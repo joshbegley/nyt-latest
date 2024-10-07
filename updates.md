@@ -1,3 +1,7 @@
+**LeBrun rumblings: Jeremy Swayman's agent on Bruins negotiations, plus 4 Nations deadline, 2025 Cup pick**\
+`Swayman's agent, Lewis Gross, takes The Athletic inside a "difficult negotiation" and what "helped us get it to the finish line."`\
+https://nytimes.com/athletic/5825587/2024/10/07/lewis-gross-jeremy-swayman-lebrun/
+
 **College football Week 7 odds, schedule: Red River, Ohio State-Oregon headline loaded week**\
 `The top two teams in the AP Top 25 are playing away from home against ranked opponents. Texas and Ohio State face tough tests in Week 7.`\
 https://nytimes.com/athletic/5825402/2024/10/07/college-football-week-7-odds-schedule-texas-oklahoma-ohio-state-oregon/
