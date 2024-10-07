@@ -1,3 +1,11 @@
+**Wolves part ways with set-piece coach**\
+`Wolverhampton Wanderers have parted company with set-piece coach Jack Wilson after just seven league games at Molineux.`\
+https://nytimes.com/athletic/5825811/2024/10/07/wolves-set-piece-coach-sacked/
+
+**Umpire Bernades makes critical error in Wawrinka defeat**\
+`Cobolli broke Wawrinka's serve in the third set with the help of a scoring error — and it was the only break of serve in the match.`\
+https://nytimes.com/athletic/5825678/2024/10/07/cobolli-wawrinka-score-umpire-error-carlos-bernardes/
+
 **The Windup: How Profar embodies these Padres**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter. `\
 https://nytimes.com/athletic/5825841/2024/10/07/jurickson-profar-padres-mlb-playoffs-the-windup/
