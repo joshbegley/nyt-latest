@@ -1,3 +1,11 @@
+**Alabama's Malachi Moore to play vs. South Carolina, Jaheim Oatis to redshirt**\
+`Moore will start against South Carolina and won't be suspended after his late-game outburst against Vanderbilt.`\
+https://nytimes.com/athletic/5825892/2024/10/07/malachi-moore-alabama-football-vanderbilt/
+
+**Kamala Harris Should Think Twice About Touting This Economy**\
+`The labor market isn’t as healthy as the September jobs report suggests. And Americans know it.`\
+https://nytimes.com/2024/10/07/opinion/jobs-report-economy-harris.html
+
 **Hurricane Milton: Where People Are Evacuating in Florida**\
 `Updates on how the state is preparing for the storm’s arrival.`\
 https://nytimes.com/2024/10/07/weather/florida-evacuations-list-hurricane-milton.html
