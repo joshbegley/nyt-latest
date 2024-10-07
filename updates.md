@@ -1,3 +1,11 @@
+**Google Must Open Android to Other App Stores and Billing Options, Judge Rules**\
+`The internet giant was ordered by a federal judge to make a series of changes to address its anticompetitive conduct.`\
+https://nytimes.com/2024/10/07/technology/google-app-store-epic-games-anticompetitive.html
+
+**USMNT's Pochettino opens door to managing Argentina in the future**\
+`USMNT manager Mauricio Pochettino has opened the door to possibly managing the Argentina national team in the future.`\
+https://nytimes.com/athletic/5826607/2024/10/07/pochetinno-argentina-messi-usmnt/
+
 **How The New York Times uses A.I. for journalism**\
 `We don’t use A.I. to write articles, and journalists are ultimately responsible for everything that we publish.`\
 https://nytimes.com/2024/10/07/reader-center/how-new-york-times-uses-ai-journalism.html
