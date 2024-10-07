@@ -1,3 +1,7 @@
+**A visit to a hostages’ cell revealed a glimpse of their trauma.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/a-visit-to-a-hostages-cell-revealed-a-glimpse-of-their-trauma
+
 **Here are the latest developments.**\
 `By Matthew Mpoke Bigg, Liam Stack and Natan Odenheimer`\
 https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/here-are-the-latest-developments
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823175/2024/10/07/charles-lee-hornets-building-cul
 **What Michigan's QB flip-flopping says about 2024 and beyond**\
 `Michigan is on its third QB of the season, switching from Davis Warren to Alex Orji to now Jack Tuttle during Saturday's loss at Washington.`\
 https://nytimes.com/athletic/5822847/2024/10/07/jack-tuttle-michigan-football-qb-washington/
-
-**Weird & Wild: Phillies-Mets Game 2 was an October classic with so many memorable moments**\
-`An October classic was unfolding around them. And they knew it when they saw it. They felt it as they lived it. `\
-https://nytimes.com/athletic/5824406/2024/10/07/phillies-mets-game-2-moments-harper-castellanos/
 

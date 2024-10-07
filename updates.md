@@ -1,3 +1,7 @@
+**A visit to a hostages’ cell revealed a glimpse of their trauma.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/a-visit-to-a-hostages-cell-revealed-a-glimpse-of-their-trauma
+
 **Here are the latest developments.**\
 `By Matthew Mpoke Bigg, Liam Stack and Natan Odenheimer`\
 https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/here-are-the-latest-developments
