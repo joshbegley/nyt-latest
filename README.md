@@ -1,3 +1,7 @@
+**Tuesday Briefing: Israelis and Palestinians Mourn a Year of Loss**\
+`Plus, Chappell Roan navigates the demands of fame.`\
+https://nytimes.com/2024/10/07/briefing/oct-7-anniversary-harris-lifespan.html
+
 **Blues roster projection 3.0: Analyzing the potential Game 1 lineup after final cuts**\
 `The Blues are keeping 12 forwards and eight defensemen on the roster at the start of the 2024-25 season.`\
 https://nytimes.com/athletic/5825243/2024/10/07/blues-opening-night-lineup-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5826267/2024/10/07/hwang-wolves-racist-suspesnsion-
 **What Are Your Thoughts About a Year of War in Israel, Gaza and the Middle East?**\
 `A year into this devastating war, what are you feeling and thinking? How have your feelings changed over the course of the year?`\
 https://nytimes.com/2024/10/07/learning/israel-gaza-war-anniversary.html
-
-**4 Takeaways From ‘The Menendez Brothers,’ on Netflix**\
-`The documentary, based on extensive new interviews with Lyle and Erik Menendez, adds fresh nuance and details about their parents’ murders and the aftermath.`\
-https://nytimes.com/2024/10/07/arts/television/menendez-brothers-netflix-takeaways.html
 
