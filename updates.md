@@ -1,3 +1,15 @@
+**Do You Know These Books That Were Adapted Into Broadway Flops?**\
+`Popular literature has often been the source of a big-budget musical, but not every show is a hit. Can you identify these five short-lived productions?`\
+https://nytimes.com/interactive/2024/10/07/books/review/novel-musical-flops.html
+
+**Scoop City: Week 5 risers and fallers**\
+`A quick look at the best and worst performances from Week 5, including the upward trending Caleb Williams and questions in Buffalo.`\
+https://nytimes.com/athletic/5825384/2024/10/07/scoop-city-week-5-risers-and-fallers/
+
+**Manchester City, Premier League both claim victories after APT ruling delivered**\
+`Manchester City and the Premier League are both claiming victories after a ruling regarding the league’s Associated Party Transaction (APT) regulations was published.`\
+https://nytimes.com/athletic/5739266/2024/10/07/manchester-city-premier-league-apt-case/
+
 **How Ohio State's offense passed a true test: Iowa film review**\
 `Before we get into Ohio State vs. Oregon, let's take one more look back at the Buckeyes' win over Iowa.`\
 https://nytimes.com/athletic/5825175/2024/10/07/ohio-state-football-chip-kelly-offense-iowa/
