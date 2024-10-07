@@ -1,4 +1,4 @@
-**Dodgers must hit their way through October, as Game 2 beatdown makes clear**\
+**Dodgers must hit their way through NLDS, as Game 2 beatdown makes clear**\
 `Max Muncy appears poised to step in for injured Freddie Freeman in a Dodgers lineup that could change the tone of the NLDS by scoring first.`\
 https://nytimes.com/athletic/5824496/2024/10/07/dodgers-must-hit-their-way-through-october-as-game-2-beatdown-makes-clear/
 
