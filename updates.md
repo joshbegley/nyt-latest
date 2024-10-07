@@ -1,3 +1,7 @@
+**Porto's Nico hands MOTM award to ball boy for role in winning goal**\
+`Porto midfielder Nico Gonzalez donated his man of the match award in Sunday&#8217;s league victory over Braga to the ball boy who started the move for the side&#8217;s winning goal.`\
+https://nytimes.com/athletic/5824631/2024/10/07/porto-ball-boy-mvp-award/
+
 **Climbers Are Rescued After Three Nights at 20,000 Feet**\
 `The two women, one American and one British, became stranded on a Himalayan mountain when their food and equipment fell into a ravine, Indian officials said.`\
 https://nytimes.com/2024/10/07/world/asia/climbers-rescued-india-mountain.html

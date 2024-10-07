@@ -1,3 +1,7 @@
+**Porto's Nico hands MOTM award to ball boy for role in winning goal**\
+`Porto midfielder Nico Gonzalez donated his man of the match award in Sunday&#8217;s league victory over Braga to the ball boy who started the move for the side&#8217;s winning goal.`\
+https://nytimes.com/athletic/5824631/2024/10/07/porto-ball-boy-mvp-award/
+
 **Climbers Are Rescued After Three Nights at 20,000 Feet**\
 `The two women, one American and one British, became stranded on a Himalayan mountain when their food and equipment fell into a ravine, Indian officials said.`\
 https://nytimes.com/2024/10/07/world/asia/climbers-rescued-india-mountain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/arts/television/whats-on-tv-below-deck-sailing-ya
 **What I’m Thinking About on the First Anniversary of the War**\
 `One year after being attacked, Israel has not won the battle on the ground or the battle for a good story to tell about itself and this war.`\
 https://nytimes.com/2024/10/07/opinion/oct-7-anniversary-israel-hamas.html
-
-**My Heart Remains Captive in Gaza**\
-`My name is Yaffa Adar. I’m 86 years old. I was a hostage of Hamas.`\
-https://nytimes.com/2024/10/07/opinion/my-heart-remains-captive-in-gaza.html
 
