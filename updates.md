@@ -1,3 +1,19 @@
+**Let’s Do a Donabe**\
+`Kay Chun’s chicken and vegetable donabe is soothing and mellow, ready to be perked up with citrusy ponzu and yuzu kosho.`\
+https://nytimes.com/2024/10/07/dining/lets-do-a-donabe.html
+
+**When Two Sea Aliens Become One**\
+`Primitive animals called comb jellies can fuse their bodies and nervous systems together.`\
+https://nytimes.com/2024/10/07/science/comb-jellies-fusing-bodies.html
+
+**Have We Reached Peak Human Life Span?**\
+`After decades of rising life expectancy, the increases appear to be slowing. A new study calls into question how long even the healthiest of populations can live.`\
+https://nytimes.com/2024/10/07/well/live/average-human-life-span.html
+
+**Oct. 7: For Jews in America, a Time of Reflection**\
+`Readers respond to a column by Bret Stephens. Also: Republicans’ plans to challenge the election; Vanderbilt’s leader, on flawed college rankings.`\
+https://nytimes.com/2024/10/07/opinion/jews-antisemitism-oct7.html
+
 **Buccaneers rearranging travel plans as Hurricane Milton approaches**\
 `Milton intensified into a Category 4 hurricane Monday with sustained winds estimated to be around 150 mph, according to the NWS.`\
 https://nytimes.com/athletic/5825407/2024/10/07/buccaneers-new-orleans-hurricane-milton/
