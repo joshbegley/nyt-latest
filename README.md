@@ -1,40 +1,40 @@
-**The ‘Crypto Punks’ Behind Trump’s Murky New Business Venture**\
-`The serial entrepreneurs behind Donald J. Trump’s new cryptocurrency project have left a trail of lawsuits, unpaid debt and tax liens.`\
-https://nytimes.com/2024/10/07/us/politics/donald-trump-crypto-2024-campaign.html
+**Weird & Wild: Phillies-Mets Game 2 was an October classic with so many memorable moments**\
+`An October classic was unfolding around them. And they knew it when they saw it. They felt it as they lived it. `\
+https://nytimes.com/athletic/5824406/2024/10/07/phillies-mets-game-2-moments-harper-castellanos/
 
-**On Israeli Apathy**\
-`The lawlessness and state violence directed at Palestinians for so long has at last started to seep into Jewish Israeli society.`\
-https://nytimes.com/2024/10/07/opinion/on-israeli-apathy.html
+**Celtics'Jaylen Brown finds connections in beating Nuggets: Preseason stock report**\
+`The Celtics handled the Denver Nuggets rather easily during their second meeting in Abu Dhabi. `\
+https://nytimes.com/athletic/5822605/2024/10/07/celtics-jaylen-brown-preseason-win-nuggets/
 
-**The Tech Lobbying Group Helping to Broaden the First Amendment’s Reach**\
-`NetChoice, backed by tech giants including Meta and Google, has successfully argued in court that Big Tech hosts protected speech.`\
-https://nytimes.com/2024/10/07/technology/netchoice-free-speech-meta-google.html
+**Rodrigue: Rams head into their bye week planted firmly in their own way**\
+`The Rams enter their bye week 1-4 and coach Sean McVay said they have to start learning how to not beat themselves.`\
+https://nytimes.com/athletic/5823253/2024/10/07/la-rams-loss-mistakes-packers/
 
-**Add ‘I’m Getting a Little Older’ to the Challenges of Apartment Hunting**\
-`Finding a rental is one thing, but moving into it is no picnic either. These days, a “senior move manager” can help streamline the process.`\
-https://nytimes.com/2024/10/07/realestate/senior-move-managers-relocation.html
+**Campuses Are Calmer, but They Are Not Normal, Students and Faculty Say**\
+`A year of war in Gaza has left college students and faculty feeling shaken and angry, with the world and with each other.`\
+https://nytimes.com/2024/10/07/us/campus-climate-israel-hamas-war.html
 
-**To Really See Peru, Hop on (and Off) the Bus**\
-`Most travelers fly between cities like Lima, Cuzco and Arequipa, but if you want to explore beaches, deserts and mountains at your own pace, try a hop-on, hop-off bus.`\
-https://nytimes.com/2024/10/07/travel/peru-hop-bus-tour.html
+**I Live in Israel. I Never Hear About What My Country Is Doing to Gaza.**\
+`Mairav Zonszein argues there will be a cost to her country’s “indifference” toward Palestinians.`\
+https://nytimes.com/2024/10/07/opinion/israel-gaza-apathy-indiference.html
 
-**Can a Vegetarian Dine Well in New York? We Put Some Top Menus to the Test.**\
-`Even the city’s best restaurants deal with meat-averse customers in a variety of ways, from discouraging them to welcoming them.`\
-https://nytimes.com/2024/10/07/dining/vegetarian-restaurants-nyc.html
+**At the New York Film Festival, the Most Innovative Work Is Nonfiction**\
+`In epic takes like “My Undesirable Friends” and playful biopics like “Pavements,” the vital art of the documentary is on full display.`\
+https://nytimes.com/2024/10/07/movies/new-york-film-festival-documentaries-nonfiction.html
 
-**How Cannabis and Opium Poppies Became National Security Issues**\
-`After supply chain disruptions that made critical medicines scarce, a federal effort is underway to ensure domestic stocks of pharmaceutical ingredients.`\
-https://nytimes.com/2024/10/07/business/bright-green-pharmaceutical-supply-chain.html
+**Trump’s Plans Could Increase U.S. Debt While Raising Costs for Most Americans**\
+`A new analysis estimates that the former president’s proposals could grow deficits by as much as $15 trillion over a decade.`\
+https://nytimes.com/2024/10/07/us/politics/trumps-plans-could-increase-us-debt-while-raising-costs-for-most-americans.html
 
-**How Can I Get ‘Forever Chemicals’ Out of My Life?**\
-`They’re almost everywhere. And they’re bad. But there are some things you can do to avoid them.`\
-https://nytimes.com/2024/10/07/climate/how-to-reduce-pfas-forever-chemicals.html
+**Is Trump Trying to Blow It?**\
+`He seems to have given up trying to broaden his share of the vote.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/trump-share-vote-base
 
-**'The sun will rise': Connor McDavid's summer of healing**\
-`The Oilers star is ready to move on from the Game 7 loss in the Stanley Cup Final and rejoin the struggle for another championship shot.`\
-https://nytimes.com/athletic/5816498/2024/10/07/connor-mcdavid-stanley-cup-game-7-disappointment-oilers/
+**No One Said It Was Going to Be Easy for Kamala Harris**\
+`But tell me again why she isn’t running away with this election?`\
+https://nytimes.com/2024/10/07/opinion/harris-walz-trump-vance.html
 
-**Isaiah Simmons' game-winning block shows resilient Giants aren't going away without a fight**\
-`After dominating most of Sunday’s game, a loss would have been devastating, but Simmons helped the Giants prevail to improve to 2-3.`\
-https://nytimes.com/athletic/5824296/2024/10/07/isaiah-simmons-new-york-giants-seahawks-block/
+**A Year After Oct. 7 Massacre, Jewish Anxiety Peaks in Pennsylvania**\
+`Jewish voters in Pittsburgh feel squeezed by intolerance on the left and the right, and torn by presidential candidates seeking their support in a vital battleground state.`\
+https://nytimes.com/2024/10/07/us/politics/jewish-voters.html
 
