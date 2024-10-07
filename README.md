@@ -1,3 +1,7 @@
+**Fantasy football Week 5 takeaways: Brian Thomas looks like a steal, Tyrone Tracy seizes the day and more**\
+`Michael Salfino shares his takeaways from Week 5, including that Tyrone Tracy's outing could spell trouble for Devin Singletary managers.`\
+https://nytimes.com/athletic/5824347/2024/10/07/fantasy-football-week-5-takeaways-brian-thomas-tyrone-tracy/
+
 **Everton still undermined by upheaval as Sean Dyche strives to find balance**\
 `The drama around the penalty decisions, one given and one not, drew the focus but Everton were disrupted and disjointed against Newcastle`\
 https://nytimes.com/athletic/5820894/2024/10/07/everton-dyche-doucoure-mcneil-pickford/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822305/2024/10/07/aston-villa-manchester-united-em
 **Is 'Angeball' inherently fragile or were Tottenham punished by calamitous mistakes?**\
 `A devastated Postecoglou was at a loss to explain his side's collapse against Brighton — but he must address what went wrong. Fast`\
 https://nytimes.com/athletic/5810906/2024/10/07/tottenham-angeball-calamitous-mistakes/
-
-**Oliver Glasner targets international break as chance to coax consistency from winless Palace**\
-`The wait for a Premier League victory will extend into mid-October, though Palace drew encouragement from Saturday's second-half showing`\
-https://nytimes.com/athletic/5821018/2024/10/07/palace-glasner-international-liverpool/
 
