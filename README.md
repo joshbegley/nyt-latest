@@ -1,3 +1,11 @@
+**Mainoo, Gibbs-White, Konsa pull out of England duty**\
+`Kobbie Mainoo, Morgan Gibbs-White and Ezri Konsa have been ruled out of England&#8217;s upcoming Nations League games against Greece and Finland through injury.`\
+https://nytimes.com/athletic/5826142/2024/10/07/england-nations-league-injuries/
+
+**Harris Often Sidesteps Her History-Making Potential. Walz Doesn’t.**\
+`Vice President Kamala Harris rarely points out the fact that she would be the first female president or the first Black or Indian woman to hold the job. Her running mate embraces it.`\
+https://nytimes.com/2024/10/07/us/politics/harris-often-sidesteps-her-history-making-potential-walz-doesnt.html
+
 **Alabama's Malachi Moore to play vs. South Carolina, Jaheim Oatis to redshirt**\
 `Moore will start against South Carolina and won't be suspended after his late-game outburst against Vanderbilt.`\
 https://nytimes.com/athletic/5825892/2024/10/07/malachi-moore-alabama-football-vanderbilt/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5825834/2024/10/07/heisman-trophy-odds-ashton-jeant
 **Pro-Israel and pro-Palestinian students hold side-by-side demonstrations at Columbia.**\
 `During tense but somber vigils on the university library steps, students and their supporters expressed outrage and sorrow.`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/pro-israel-and-pro-palestinian-students-hold-side-by-side-demonstrations-at-columbia
-
-**SpaceX Launches ESA’s Hera Asteroid Mission**\
-`The European Space Agency’s Hera mission will investigate an asteroid that NASA deliberately struck with another spacecraft in a previous test of humanity’s planetary defense readiness.`\
-https://nytimes.com/video/science/100000009746940/hera-launch-asteroid-spacex-esa.html
-
-**As Major Hurricane Approaches Florida, FEMA Faces Severe Staffing Shortage**\
-`Fewer than 10 percent of the agency’s disaster workers are available to respond to Hurricane Milton and other calamities.`\
-https://nytimes.com/2024/10/07/climate/hurricane-milton-fema-staff-shortage.html
 
