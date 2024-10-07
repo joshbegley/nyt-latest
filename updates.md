@@ -1,3 +1,7 @@
+**Remembering the Nova Festival Victims, With the Sounds of War as a Backdrop**\
+`After hearing the dance track that was playing a year ago when the Hamas-led assault began, the hundreds who had gathered stood for a minute of silence, broken by a bereaved mother’s cries.`\
+https://nytimes.com/2024/10/07/world/middleeast/october-7-nova-festival-victims.html
+
 **A Hundred Years’ War for Our Time**\
 `Peace in the Middle East seems more elusive than ever, with Oct. 7 setting off a battle over not just land but the narrative itself.`\
 https://nytimes.com/2024/10/07/world/middleeast/israel-palestinians-war.html
