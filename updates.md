@@ -1,3 +1,15 @@
+**One Year Later**\
+`We’re covering the anniversary of the Oct. 7 attack — and how it has reshaped the Middle East.`\
+https://nytimes.com/2024/10/07/briefing/oct-7-attack-anniversary-israel-hamas-gaza.html
+
+**Why Jeremiah Smith, Ryan Williams' early dominance is product of growing trend at WR**\
+`High school football has become much more pass-happy in recent years, and college teams are benefiting from plug-and-play receivers. `\
+https://nytimes.com/athletic/5822362/2024/10/07/jeremiah-smith-ryan-williams-scouting-nfl-draft/
+
+**Palestinians in Gaza Reflect on One Year of Israel’s War With Hamas**\
+`The war has killed tens of thousands and devastated entire cities, leaving many in Gaza without a home and fueling a humanitarian catastrophe.`\
+https://nytimes.com/2024/10/07/world/middleeast/palestinians-gaza-one-year-war-israel.html
+
 **How Bears defense responded to early TD with dominant performance against Panthers**\
 `The Bears gave up a long touchdown run in the first quarter but buckled down after that and took the ball away three times in the win.`\
 https://nytimes.com/athletic/5823528/2024/10/07/bears-defense-dominates-panthers/
