@@ -1,3 +1,15 @@
+**College football Week 7 odds, schedule: Red River, Ohio State-Oregon headline loaded week**\
+`The top two teams in the AP Top 25 are playing away from home against ranked opponents. Texas and Ohio State face tough tests in Week 7.`\
+https://nytimes.com/athletic/5825402/2024/10/07/college-football-week-7-odds-schedule-texas-oklahoma-ohio-state-oregon/
+
+**As desperation grows in Gaza, food aid remains out of reach.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/gaza-food-aid
+
+**Watching the Vikings go 5-0 with the voice of Minnesota, Paul Allen**\
+`The Athletic watched Sunday's game at Tottenham Hotspur stadium with Paul Allen`\
+https://nytimes.com/athletic/5825503/2024/10/07/paul-allen-minnesota-vikings-london/
+
 **Shopping for a Hard-to-Please Loved One? Ask T for Help.**\
 `Send us a question about a picky person on your holiday gift list and we’ll respond to the most intriguing ones with suggestions.`\
 https://nytimes.com/2024/10/07/t-magazine/holiday-gift-suggestions-questions.html
