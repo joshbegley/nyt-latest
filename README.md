@@ -1,3 +1,7 @@
+**Israel’s global standing has deteriorated since Oct. 7, analysts say.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/israels-global-standing-has-deteriorated-since-oct-7-analysts-say
+
 **The Athletic FC: Pogba 'nightmare' over - but what now? Plus: PL manager pressure gauge**\
 `Today in TAFC: Pogba's drug ban reduced so what does it mean for the midfielder? Plus: Checking the EPL pressure gauge for managers...`\
 https://nytimes.com/athletic/5824670/2024/10/07/pogba-drugs-ban-premier-league-manager-sack-race/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5815448/2024/10/07/minnesota-twins-2024-mvp-ballot/
 **‘I want to be great’: How a forward-to-defense switch unlocked Bruins' Mason Lohrei**\
 `The Bruins are excited about 23-year-old Lohrei, who could be on his way to becoming one of the NHL's elite defensemen. `\
 https://nytimes.com/athletic/5822039/2024/10/07/bruins-mason-lohrei-evolution/
-
-**What is the Utah Hockey Club, and how did the NHL get here?**\
-`It’s been a wild six months for owner Ryan Smith and the Utah Hockey Club, and it’s all led up to Tuesday's season opener against Chicago.`\
-https://nytimes.com/athletic/5822556/2024/10/07/utah-hockey-club-nhl-arizona-coyotes-move/
 
