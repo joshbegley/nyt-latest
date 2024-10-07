@@ -1,3 +1,11 @@
+**USMNT Player Tracker: Unlucky Balogun, Tillman has no equals and Pulisic to step up?**\
+`It was a huge weekend for Jonathan Gomez and Cole Campbell in Greece and Germany respectively, while Paxten Aaronson continued his fine form`\
+https://nytimes.com/athletic/5825192/2024/10/07/usmnt-balogun-pulisic-tillman-tracker/
+
+**The Casualties in North Carolina Include the Truth**\
+`By Frank Bruni`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/carolina-helene-misinformation-trump
+
 **Israel strikes southern Gaza after Hamas fires rockets.**\
 `By Matthew Mpoke Bigg, Bilal Shbair and Euan Ward`\
 https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/israel-strikes-southern-gaza-after-hamas-fires-rockets
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/07/world/europe/london-pro-palestinian-protest-mural
 **Ray Ferraro busy NHL day, ESPN's viral Vandy QB interview, and more: Media Circus**\
 `Ray Ferraro has some rare double duty Tuesday, ESPN's Alyssa Lang had to sprint to find Vanderbilt QB Diego Pavia, and the Mets' TV impact.`\
 https://nytimes.com/athletic/5818223/2024/10/07/ray-ferraro-to-call-two-nhl-games-in-one-day-how-espn-got-the-viral-vandy-qb-interview-and-more-media-circus/
-
-**Tunisia’s President Cruises to a Victory That Critics Say He Engineered**\
-`President Kais Saied’s apparent landslide re-election is the latest sign that authoritarianism has returned to the birthplace of the Arab Spring.`\
-https://nytimes.com/2024/10/07/world/middleeast/tunisia-election-saied.html
-
-**The Bounce: Your NBA predictions season are here**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5824922/2024/10/07/nba-predictions-jeff-teague-desean-jackson-new-york-liberty-wnba-finals-nba-the-bounce/
 

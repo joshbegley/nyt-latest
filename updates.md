@@ -1,3 +1,11 @@
+**USMNT Player Tracker: Unlucky Balogun, Tillman has no equals and Pulisic to step up?**\
+`It was a huge weekend for Jonathan Gomez and Cole Campbell in Greece and Germany respectively, while Paxten Aaronson continued his fine form`\
+https://nytimes.com/athletic/5825192/2024/10/07/usmnt-balogun-pulisic-tillman-tracker/
+
+**The Casualties in North Carolina Include the Truth**\
+`By Frank Bruni`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/carolina-helene-misinformation-trump
+
 **Israel strikes southern Gaza after Hamas fires rockets.**\
 `By Matthew Mpoke Bigg, Bilal Shbair and Euan Ward`\
 https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/israel-strikes-southern-gaza-after-hamas-fires-rockets
