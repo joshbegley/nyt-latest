@@ -1,3 +1,7 @@
+**Buccaneers rearranging travel plans as Hurricane Milton approaches**\
+`Milton intensified into a Category 4 hurricane Monday with sustained winds estimated to be around 150 mph, according to the NWS.`\
+https://nytimes.com/athletic/5825407/2024/10/07/buccaneers-new-orleans-hurricane-milton/
+
 **Lore Segal, Mordant Memoirist of Émigré Life, Dies at 96**\
 `One of thousands of Jewish children transported to England at the dawn of World War II, she explored themes of displacement with penetrating wit in novel-memoirs like “Other People’s Houses.”`\
 https://nytimes.com/2024/10/07/books/lore-segal-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/business/stanford-financial-fraud-victims-paid.ht
 **Rob Blake has the Kings playing bigger and tougher. Will it work this time?**\
 `In what could be his last stand as Kings GM, Blake's latest bid to unlock playoff success is centered around more brawn.`\
 https://nytimes.com/athletic/5824542/2024/10/07/la-kings-rob-blake-2024-25-season/
-
-**Fears of a Global Oil Shock if the Mideast Crisis Intensifies**\
-`The threat of an escalating conflict between Israel and Iran has created an “extraordinarily precarious” global situation, sowing alarm about the potential economic fallout.`\
-https://nytimes.com/2024/10/07/business/middle-east-conflict-economic-risks.html
 

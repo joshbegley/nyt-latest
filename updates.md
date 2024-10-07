@@ -1,3 +1,7 @@
+**Buccaneers rearranging travel plans as Hurricane Milton approaches**\
+`Milton intensified into a Category 4 hurricane Monday with sustained winds estimated to be around 150 mph, according to the NWS.`\
+https://nytimes.com/athletic/5825407/2024/10/07/buccaneers-new-orleans-hurricane-milton/
+
 **Lore Segal, Mordant Memoirist of Émigré Life, Dies at 96**\
 `One of thousands of Jewish children transported to England at the dawn of World War II, she explored themes of displacement with penetrating wit in novel-memoirs like “Other People’s Houses.”`\
 https://nytimes.com/2024/10/07/books/lore-segal-dead.html

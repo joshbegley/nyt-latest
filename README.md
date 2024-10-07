@@ -1,3 +1,7 @@
+**Oct. 7: For Jews in America, a Time of Reflection**\
+`Readers respond to a column by Bret Stephens. Also: Republicans’ plans to challenge the election; Vanderbilt’s leader, on flawed college rankings.`\
+https://nytimes.com/2024/10/07/opinion/jews-antisemitism-oct7.html
+
 **Buccaneers rearranging travel plans as Hurricane Milton approaches**\
 `Milton intensified into a Category 4 hurricane Monday with sustained winds estimated to be around 150 mph, according to the NWS.`\
 https://nytimes.com/athletic/5825407/2024/10/07/buccaneers-new-orleans-hurricane-milton/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/world/middleeast/israel-hamas-war-middle-east-tim
 **Victims of a $7 Billion Fraud May Soon Be Paid. For Some, It’s Too Late.**\
 `Not having much insight into what may happen next in the case of a fraud orchestrated by Robert Allen Stanford, many of the victims sold the rights to any future payout.`\
 https://nytimes.com/2024/10/07/business/stanford-financial-fraud-victims-paid.html
-
-**Rob Blake has the Kings playing bigger and tougher. Will it work this time?**\
-`In what could be his last stand as Kings GM, Blake's latest bid to unlock playoff success is centered around more brawn.`\
-https://nytimes.com/athletic/5824542/2024/10/07/la-kings-rob-blake-2024-25-season/
 
