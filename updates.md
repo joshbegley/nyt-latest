@@ -1,3 +1,11 @@
+**The Price of a Mega Millions Ticket Will More Than Double to $5**\
+`Mega Millions officials said players’ odds would be increased and jackpot sizes would be bigger after the price increase next April.`\
+https://nytimes.com/2024/10/07/us/mega-millions-ticket-price-increase.html
+
+**Trump’s Ugly Closing Argument**\
+`He delivers a mix of disinformation, false claims about cheating in elections, and personal attacks.`\
+https://nytimes.com/2024/10/07/us/politics/trump-harris-fema-funding.html
+
 **Dueling Oct. 7 memorials reflect deep fissures among Israelis.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/dueling-oct-7-memorials-reflect-deep-fissures-among-israelis
