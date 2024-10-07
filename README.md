@@ -1,3 +1,15 @@
+**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
+`Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
+https://nytimes.com/athletic/5824714/2024/10/07/newcastle-howe-strikers-injuries/
+
+**FPL: What we learned from Gameweek 7 – Spurs stars and Brentford bolters**\
+`Abdul Rehman reviews the talking points from Gameweek 7, including the possible knock-on effects of Alisson's suspected hamstring injury `\
+https://nytimes.com/athletic/5822823/2024/10/07/fantasy-premier-league-gw7-alisson-maddison-johnson/
+
+**Biden condemns the ‘unspeakable brutality’ of last October’s attack.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/biden-condemns-the-unspeakable-brutality-of-last-octobers-attack
+
 **Hostages’ Families Endure Surreal Wait on Anniversary of Oct. 7 Attacks**\
 `More than 60 living hostages, and the bodies of about 35 others who are believed to be dead, are still in Gaza, according to the Israeli authorities.`\
 https://nytimes.com/2024/10/07/world/middleeast/october-7-hostages.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5822556/2024/10/07/utah-hockey-club-nhl-arizona-coy
 **Where does the 2024-25 Oilers opening-night roster rank in team history?**\
 `For the Oilers, the competition is incredible in a race for all-time opening-night lineups.`\
 https://nytimes.com/athletic/5822487/2024/10/07/oilers-roster-ranking-team-history/
-
-**Maxx Crosby, Raiders fighting a familiar feeling: 'Been dealing with it my whole career'**\
-`"We’re focused on who’s here now and we’re focused on winning," Crosby said. "So, we gotta find ways to do that.”`\
-https://nytimes.com/athletic/5824108/2024/10/07/maxx-crosby-raiders-loss-davante-adams/
-
-**Two Americans Are Awarded the Nobel Prize for Medicine**\
-`Victor Ambros and Gary Ruvkun were awarded the Nobel Prize in Physiology or Medicine for their discovery of microRNA, which plays a role in organism development and gene regulation.`\
-https://nytimes.com/video/science/100000009745828/nobel-prize-medicine-2024.html
-
-**WSL Briefing: Arsenal lacking 'intent', Man City must rotate, a worry for Villa**\
-`Even without Chelsea's postponed game against Manchester United, there were plenty of fireworks this weekend`\
-https://nytimes.com/athletic/5823385/2024/10/07/wsl-arsenal-man-city-villa/
 
