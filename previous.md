@@ -1,3 +1,7 @@
+**Word of the Day: initiative**\
+`This word has appeared in 1,445 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/07/learning/word-of-the-day-initiative.html
+
 **Dodgers must hit their way through NLDS, as Game 2 beatdown makes clear**\
 `Max Muncy appears poised to step in for injured Freddie Freeman in a Dodgers lineup that could change the tone of the NLDS by scoring first.`\
 https://nytimes.com/athletic/5824496/2024/10/07/dodgers-padres-nlds-lineup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5820894/2024/10/07/everton-dyche-doucoure-mcneil-pi
 **Nottingham Forest's new-found belief on the road epitomised by Matz Sels' brilliance**\
 `Forest have scoured the market for senior goalkeepers in the last two transfer windows, but Sels is starting to justify his inclusion `\
 https://nytimes.com/athletic/5822564/2024/10/07/forest-sels-chelsea-gibbs-white/
-
-**What changed as West Ham finally clicked? Is this just the 'beginning' under Lopetegui?**\
-`All of Lopetegui's methods belatedly came together in a goal splurge against Ipswich`\
-https://nytimes.com/athletic/5820187/2024/10/07/west-ham-ipswich-result-kudus-bowen/
 
