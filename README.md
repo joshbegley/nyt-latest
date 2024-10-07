@@ -1,3 +1,7 @@
+**While Disney Remains Open, Other Florida Parks Announce Closures**\
+`All of the major theme parks said they were closely monitoring Hurricane Milton and would be updating their closure plans as needed.`\
+https://nytimes.com/2024/10/07/weather/hurricane-milton-walt-disney-world.html
+
 **Gaza in Ruins After a Year of War**\
 `Much of Gaza has been destroyed by Israel’s relentless military campaign.`\
 https://nytimes.com/interactive/2024/10/07/world/middleeast/israel-gaza-destruction-hamas-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/us/politics/biden-israel-oct-7-gaza-hamas.html
 **Inside a Trump Ad Attacking Harris on Energy and the Environment**\
 `An ad in Michigan and Pennsylvania revives the vice president’s past positions on climate change and the environment.`\
 https://nytimes.com/2024/10/07/us/politics/trump-ad-harris-green-new-deal.html
-
-**Washington Worries the Israelis Will Bomb Iran’s Nuclear Sites. But Can They?**\
-`For 22 years, Israeli forces have planned for this moment. But it seems unlikely that they will strike Iran’s nuclear facilities in the next round of retaliation, or that they would be successful without American help.`\
-https://nytimes.com/2024/10/07/us/politics/israel-iran-nuclear-facilities-strikes.html
 
