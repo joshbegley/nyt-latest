@@ -1,3 +1,7 @@
+**Dodgers must hit their way through NLDS, as Game 2 beatdown makes clear**\
+`Max Muncy appears poised to step in for injured Freddie Freeman in a Dodgers lineup that could change the tone of the NLDS by scoring first.`\
+https://nytimes.com/athletic/5824496/2024/10/07/dodgers-must-hit-their-way-through-october-as-game-2-beatdown-makes-clear/
+
 **Cowboys beat Steelers with Dak's go-ahead TD throw**\
 `Dak Prescott found wide receiver Jalen Tolbert for a 4-yard touchdown pass to take the lead with 20 seconds to play.`\
 https://nytimes.com/athletic/5824306/2024/10/07/cowboys-steelers-score-results-takeaways/
