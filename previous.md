@@ -1,3 +1,7 @@
+**The Las Vegas Aces let the rest of the WNBA catch up. Now their three-peat quest is over**\
+`Will the Aces be able to keep their talented core together for the 2025 season?`\
+https://nytimes.com/athletic/5823797/2024/10/06/las-vegas-aces-loss-wnba-semifinals-liberty/
+
 **Bills clearly lacked player like Stefon Diggs in loss to Texans**\
 `The Bills felt they needed to trade Stefon Diggs, but they haven't replaced his production.`\
 https://nytimes.com/athletic/5823596/2024/10/06/buffalo-bills-stefon-diggs-houston-texans/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/5823615/2024/10/06/bengals-ravens-overtime-loss/
 https://nytimes.com/athletic/5823469/2024/10/06/bears-caleb-williams-dj-moore-panthers/
 
 **No. 1 pick Caleb Williams stood out, but when will Panthers give Bryce Young another shot?**\
-`Bryce Young played for the first time since Week 2 and got in one series late in the game and completed four passes for 58 yards.`\
+`Young played for the first time since Week 2 and got in one series late in the game and completed four passes for 58 yards.`\
 https://nytimes.com/athletic/5823536/2024/10/06/panthers-bryce-young-quarterback-dave-canales/
 
 **Jacoby Brissett, Patriots offense remain historically bad in tough loss to Dolphins**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822206/2024/10/06/packers-rams-score-results-takea
 **Greenberg: And in their fifth game, Caleb Williams and the Bears offense showed up**\
 `Chicago compiled 424 net yards and had a 3-0 turnover edge in its 36-10 win vs. Carolina. "That should be the standard," Kevin Byard said.`\
 https://nytimes.com/athletic/5823471/2024/10/06/bears-panthers-caleb-williams-offense/
-
-**Evacuation Orders Posted as Florida Braces for Hurricane Milton**\
-`The powerful, life-threatening hurricane is expected to make landfall on Wednesday even as residents continue to recover from Hurricane Helene.`\
-https://nytimes.com/2024/10/06/weather/florida-storm-milton-preparation.html
 

@@ -1,3 +1,11 @@
+**The Las Vegas Aces let the rest of the WNBA catch up. Now their three-peat quest is over**\
+`Will the Aces be able to keep their talented core together for the 2025 season?`\
+https://nytimes.com/athletic/5823797/2024/10/06/las-vegas-aces-loss-wnba-semifinals-liberty/
+
+**No. 1 pick Caleb Williams stood out, but when will Panthers give Bryce Young another shot?**\
+`Young played for the first time since Week 2 and got in one series late in the game and completed four passes for 58 yards.`\
+https://nytimes.com/athletic/5823536/2024/10/06/panthers-bryce-young-quarterback-dave-canales/
+
 **Bills clearly lacked player like Stefon Diggs in loss to Texans**\
 `The Bills felt they needed to trade Stefon Diggs, but they haven't replaced his production.`\
 https://nytimes.com/athletic/5823596/2024/10/06/buffalo-bills-stefon-diggs-houston-texans/
