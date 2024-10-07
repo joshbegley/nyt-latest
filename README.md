@@ -1,3 +1,15 @@
+**Let’s Do a Donabe**\
+`Kay Chun’s chicken and vegetable donabe is soothing and mellow, ready to be perked up with citrusy ponzu and yuzu kosho.`\
+https://nytimes.com/2024/10/07/dining/lets-do-a-donabe.html
+
+**When Two Sea Aliens Become One**\
+`Primitive animals called comb jellies can fuse their bodies and nervous systems together.`\
+https://nytimes.com/2024/10/07/science/comb-jellies-fusing-bodies.html
+
+**Have We Reached Peak Human Life Span?**\
+`After decades of rising life expectancy, the increases appear to be slowing. A new study calls into question how long even the healthiest of populations can live.`\
+https://nytimes.com/2024/10/07/well/live/average-human-life-span.html
+
 **Oct. 7: For Jews in America, a Time of Reflection**\
 `Readers respond to a column by Bret Stephens. Also: Republicans’ plans to challenge the election; Vanderbilt’s leader, on flawed college rankings.`\
 https://nytimes.com/2024/10/07/opinion/jews-antisemitism-oct7.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5739266/2024/10/07/manchester-city-premier-league-a
 **How Ohio State's offense passed a true test: Iowa film review**\
 `Before we get into Ohio State vs. Oregon, let's take one more look back at the Buckeyes' win over Iowa.`\
 https://nytimes.com/athletic/5825175/2024/10/07/ohio-state-football-chip-kelly-offense-iowa/
-
-**New York marks the Oct. 7 anniversary with vigils and protests.**\
-`By Michael Rothfeld`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/new-york-marks-the-oct-7-anniversary-with-vigils-and-protests
-
-**Key Events During a Year of Middle East War**\
-`Hamas’s Oct. 7 attack on Israel and the 12 months of conflagration that has followed.`\
-https://nytimes.com/2024/10/07/world/middleeast/israel-hamas-war-middle-east-timeline.html
-
-**Victims of a $7 Billion Fraud May Soon Be Paid. For Some, It’s Too Late.**\
-`Not having much insight into what may happen next in the case of a fraud orchestrated by Robert Allen Stanford, many of the victims sold the rights to any future payout.`\
-https://nytimes.com/2024/10/07/business/stanford-financial-fraud-victims-paid.html
 
