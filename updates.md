@@ -1,3 +1,7 @@
+**Trump Says He’s Visited Gaza, but No Record of Such a Trip Exists**\
+`An aide, speaking on the condition of anonymity, pointed to the former president’s trip to Israel. But Gaza is not in Israel.`\
+https://nytimes.com/2024/10/07/us/politics/trump-gaza-israel.html
+
 **Chiefs' Rashee Rice to undergo knee surgery**\
 `Rice is expected to miss the remainder of the season, according to multiple reports.`\
 https://nytimes.com/athletic/5826912/2024/10/07/rashee-rice-chiefs-injury-update-surgery/
