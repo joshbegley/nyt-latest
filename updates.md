@@ -1,3 +1,11 @@
+**The Windup: How Profar embodies these Padres**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter. `\
+https://nytimes.com/athletic/5825841/2024/10/07/jurickson-profar-padres-mlb-playoffs-the-windup/
+
+**Maggie Smith’s Face Has Something to Teach Us**\
+`Age is the ultimate luxury.`\
+https://nytimes.com/2024/10/07/style/maggie-smith-loewe.html
+
 **Dire Warnings for Storm-Weary Floridians as Hurricane Milton Approaches**\
 `Officials urged residents in the expected path of the hurricane to heed evacuation orders as the state mobilizes resources to respond to the storm.`\
 https://nytimes.com/2024/10/07/us/florida-evacuations-hurricane-milton.html

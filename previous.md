@@ -1,3 +1,11 @@
+**The Windup: How Profar embodies these Padres**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter. `\
+https://nytimes.com/athletic/5825841/2024/10/07/jurickson-profar-padres-mlb-playoffs-the-windup/
+
+**Maggie Smith’s Face Has Something to Teach Us**\
+`Age is the ultimate luxury.`\
+https://nytimes.com/2024/10/07/style/maggie-smith-loewe.html
+
 **Dire Warnings for Storm-Weary Floridians as Hurricane Milton Approaches**\
 `Officials urged residents in the expected path of the hurricane to heed evacuation orders as the state mobilizes resources to respond to the storm.`\
 https://nytimes.com/2024/10/07/us/florida-evacuations-hurricane-milton.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/07/well/family/politics-election-relationships-callo
 **Missile Hits Near Ukrainian Air Base as Russia Expands Air Attacks**\
 `The strike is part of a broader campaign of air assaults by Moscow aimed at degrading Ukraine’s military infrastructure and wearing down its air defenses.`\
 https://nytimes.com/2024/10/07/world/europe/ukraine-russia-missile-attack.html
-
-**U.S. imposes new sanctions to cut off Hamas funds.**\
-`The Treasury Department is targ`\
-https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/us-imposes-new-sanctions-to-cut-off-hamas-funds
-
-**USMNT Player Tracker: Unlucky Balogun, Tillman has no equals and Pulisic to step up?**\
-`It was a huge weekend for Jonathan Gomez and Cole Campbell in Greece and Germany respectively, while Paxten Aaronson continued his fine form`\
-https://nytimes.com/athletic/5825192/2024/10/07/usmnt-balogun-pulisic-tillman-tracker/
 
