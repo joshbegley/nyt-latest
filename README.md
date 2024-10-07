@@ -1,3 +1,7 @@
+**Trump Says He’s Visited Gaza, but No Record of Such a Trip Exists**\
+`An aide, speaking on the condition of anonymity, pointed to the former president’s trip to Israel. But Gaza is not in Israel.`\
+https://nytimes.com/2024/10/07/us/politics/trump-gaza-israel.html
+
 **Chiefs' Rashee Rice to undergo knee surgery**\
 `Rice is expected to miss the remainder of the season, according to multiple reports.`\
 https://nytimes.com/athletic/5826912/2024/10/07/rashee-rice-chiefs-injury-update-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/duelin
 **Tigers pierce stellar Guardians bullpen to tie up ALDS: Takeaways**\
 `Emmanuel Clase is the best closer in baseball. Kerry Carpenter and the Tigers got to him in the biggest of moments. `\
 https://nytimes.com/athletic/5826763/2024/10/07/tigers-guardians-score-mlb-playoffs-takeaways/
-
-**Ex-Rangers reliever, No. 1 pick Bush charged with DWI**\
-`Bush fled from the scene on foot before he was chased down and detained by a group of bystanders until officers arrived.`\
-https://nytimes.com/athletic/5825721/2024/10/07/matt-bush-arrest-dwi-rangers/
 
