@@ -1,3 +1,19 @@
+**Texans' Nico Collins considered 'week to week' with hamstring injury**\
+`NFL's leader in receiving yards has been a key to Houston's fast start in 2024.`\
+https://nytimes.com/athletic/5826408/2024/10/07/nico-collins-injury-texans-hamstring/
+
+**Israel rejects U.N. court’s jurisdiction to issue a warrant for Netanyahu’s arrest.**\
+`By Ephrat Livni`\
+https://nytimes.com/2024/10/07/world/middleeast/israel-rejects-un-courts-jurisdiction-to-issue-a-warrant-for-netanyahus-arrest.html
+
+**Viktor Bout Is Trying to Sell Weapons to the Houthis, Western Officials Say**\
+`The Russian arms dealer, who was freed in a prisoner exchange with the United States, is negotiating with the militant group in Yemen.`\
+https://nytimes.com/2024/10/07/us/politics/viktor-bout-houthis-weapons.html
+
+**4 Takeaways From ‘The Menendez Brothers,’ on Netflix**\
+`The documentary, based on extensive new interviews with Lyle and Erik Menendez, adds fresh nuance and details about their parents’ murders and the aftermath.`\
+https://nytimes.com/2024/10/07/arts/television/menendez-brothers-netflix-takeaways.html
+
 **France Has Made Itself Irrelevant on the World Stage**\
 `If you don’t play the game, you don’t make the rules.`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/macron-israel-weapons-ban
