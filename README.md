@@ -1,8 +1,12 @@
+**New York Times reporters share stories of the war that they cannot forget.**\
+`By Isabel Kershner, Raja Abdulrahim and Adam Rasgon`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/new-york-times-reporters-share-stories-of-the-war-that-they-cannot-forget
+
 **Rams target potential Kupp return for Week 7**\
 `Rams star receiver Cooper Kupp injured his ankle in Week 2 against the Cardinals and has not played since.`\
 https://nytimes.com/athletic/5826668/2024/10/07/cooper-kupp-injury-update-return-rams/
 
-**Phillies prospect Andrew Painter to pitch in fall league. What scenarios are in play for 2025?**\
+**Phillies' Andrew Painter to pitch in fall league. What scenarios are in play for 2025?**\
 `Painter is taking a big step forward by pitching in the Arizona Fall League. He's expected to reach 20 innings in fall ball. Then what?`\
 https://nytimes.com/athletic/5826685/2024/10/07/andrew-painter-phillies-prospect-2025-season/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/world/middleeast/israel-hamas-oct-7-anniversary-v
 **Year After Oct. 7 Attack, Israel Faces 4-Front War**\
 `Gaza, Lebanon, Iran and Yemen: Israeli forces exchanged fire with militants backed by Tehran on Monday.`\
 https://nytimes.com/2024/10/07/world/middleeast/israel-war-four-fronts.html
-
-**The great experiment begins as Lane Hutson officially reaches NHL with Canadiens**\
-`Lane Hutson making the Canadiens' opening roster was a foregone conclusion, but the role he will be given should allow him to thrive.`\
-https://nytimes.com/athletic/5826564/2024/10/07/lane-hutson-canadiens-roster-dream/
 
