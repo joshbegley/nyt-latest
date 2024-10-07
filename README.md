@@ -1,3 +1,7 @@
+**Barcelona's Torres out for at least three weeks with hamstring injury**\
+`Barcelona forward Ferran Torres will be out for at least three weeks after sustaining a right hamstring injury.`\
+https://nytimes.com/athletic/5824816/2024/10/07/ferran-torres-injury-barcelona/
+
 **Gleeman: My Twins MVP ballot — ranking the 10 best players on a team that needed more**\
 `The same injuries and second-half fades that wrecked the Twins' season make it tricky to choose a clear team MVP. Here's my annual ballot. `\
 https://nytimes.com/athletic/5815448/2024/10/07/minnesota-twins-2024-mvp-ballot/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mideas
 **Villa striker Duran signs new contract until 2030**\
 `Aston Villa striker Jhon Duran has signed a new contract with the club until 2030.`\
 https://nytimes.com/athletic/5824791/2024/10/07/jhon-duran-aston-villa-contract/
-
-**Dak Prescott: 'Never a doubt' Cowboys were going to score touchdown on final drive**\
-`For three and a half quarters, it looked like Dak Prescott would be the reason the Cowboys would lose in prime time against the Steelers.`\
-https://nytimes.com/athletic/5824698/2024/10/07/dak-prescott-cowboys-comeback-steelers/
 
