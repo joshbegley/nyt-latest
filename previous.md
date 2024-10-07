@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5824348/2024/10/07/christian-braun-julian-strawther
 `Where Erik Brännström will fit and other thoughts on a busy weekend of Canucks news.`\
 https://nytimes.com/athletic/5824545/2024/10/07/tucker-poolman-trade-nils-hoglander-extension-canucks/
 
-**Mourners gather in Nir Oz, an emblem of Israel’s security failures.**\
+**Mourners gather in Nir Oz, a symbol of Israel’s security failures.**\
 `By Sergey Ponomarev and Aaron Boxerman`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mourners-gather-in-nir-oz-an-emblem-of-israels-security-failures
 

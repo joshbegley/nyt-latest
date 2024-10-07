@@ -1,3 +1,7 @@
+**Mourners gather in Nir Oz, a symbol of Israel’s security failures.**\
+`By Sergey Ponomarev and Aaron Boxerman`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mourners-gather-in-nir-oz-an-emblem-of-israels-security-failures
+
 **How Christian Braun and Julian Strawther can fill the Nuggets' hole at shooting guard**\
 `Whoever starts between Braun and Strawther will need to plug a significant hole left by Kentavious Caldwell-Pope, who left in free agency.`\
 https://nytimes.com/athletic/5824348/2024/10/07/christian-braun-julian-strawther-nuggets/
