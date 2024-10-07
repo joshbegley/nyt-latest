@@ -1,3 +1,7 @@
+**One Year After Oct. 7, Peace Seems More Elusive Than Ever**\
+`Also, Hurricane Milton heads toward Florida as a Category 5 storm. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/10/07/briefing/october-7-middle-east-hurricane-milton.html
+
 **On Oct. 7 Anniversary, Vigils and Hope for ‘an End to This Horrible War’**\
 `Israelis gathered on Monday to mourn those killed or abducted on the deadliest day in the country’s history.`\
 https://nytimes.com/2024/10/07/world/middleeast/israel-hamas-oct-7-anniversary-vigils.html
