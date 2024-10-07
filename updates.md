@@ -1,3 +1,7 @@
+**Terry Francona introduced as Reds manager: 'It just felt right' to return to Cincinnati**\
+`“It just felt right,” Francona said Monday as he was introduced as the Reds’ manager. `\
+https://nytimes.com/athletic/5826388/2024/10/07/terry-francona-reds-manager-conference/
+
 **One Year After Oct. 7, Peace Seems More Elusive Than Ever**\
 `Also, Hurricane Milton heads toward Florida as a Category 5 storm. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/10/07/briefing/october-7-middle-east-hurricane-milton.html
