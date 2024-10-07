@@ -1,3 +1,11 @@
+**Fears of a Global Oil Shock if the Mideast Crisis Intensifies**\
+`The threat of an escalating conflict between Israel and Iran has created an “extraordinarily precarious” global situation, sowing alarm about the potential economic fallout.`\
+https://nytimes.com/2024/10/07/business/middle-east-conflict-economic-risks.html
+
+**Bilal Coulibaly and Johnny Davis have more in common than you might expect**\
+`Coulibaly is more confident, more skilled and stronger. Davis has rediscovered his shooting stroke.`\
+https://nytimes.com/athletic/5824442/2024/10/07/bilal-coulibaly-johnny-davis-washington-wizards/
+
 **Johan Neeskens, Ajax and Barcelona legend, dies at 73**\
 `Former Netherlands midfielder Johan Neeskens, best known for his time at Ajax and Barcelona, has died at the age of 73.`\
 https://nytimes.com/athletic/5825302/2024/10/07/johan-neeskens-death-ajax-barcelona/
