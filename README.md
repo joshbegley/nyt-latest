@@ -1,3 +1,7 @@
+**Colts defense looks broken in loss that spoiled heroic efforts of Joe Flacco, Alec Pierce**\
+`Colts LB Zaire Franklin: “The defense, we gotta do our part. We ain’t do our part (Sunday). That’s the moral of the story.”`\
+https://nytimes.com/athletic/5823738/2024/10/06/colts-defense-gus-bradley-jaguars-joe-flacco-alec-pierce/
+
 **Giants return blocked field goal for TD, beat Seahawks**\
 `Giants' Daniel Jones tossed two touchdowns, defense added seven sacks and blocked field goal touchdown in 29-20 win over the Seahawks.`\
 https://nytimes.com/athletic/5822223/2024/10/06/seahawks-ny-giants-score-results-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823797/2024/10/06/las-vegas-aces-loss-wnba-semifin
 **Bills clearly lacked player like Stefon Diggs in loss to Texans**\
 `The Bills felt they needed to trade Diggs, but they haven't replaced his production.`\
 https://nytimes.com/athletic/5823596/2024/10/06/buffalo-bills-stefon-diggs-houston-texans/
-
-**Bengals' overtime defeat vs. Ravens their latest instance of losing at winning time**\
-`Joe Burrow: "I know exactly how we are 1-4. We are not making the plays at the end of the game to go and win it."`\
-https://nytimes.com/athletic/5823615/2024/10/06/bengals-ravens-overtime-loss/
 
