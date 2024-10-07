@@ -1,3 +1,11 @@
+**Bills clearly lacked player like Stefon Diggs in loss to Texans**\
+`The Bills felt they needed to trade Stefon Diggs, but they haven't replaced his production.`\
+https://nytimes.com/athletic/5823596/2024/10/06/buffalo-bills-stefon-diggs-houston-texans/
+
+**Bengals' overtime defeat vs. Ravens their latest instance of losing at winning time**\
+`Joe Burrow: "I know exactly how we are 1-4. We are not making the plays at the end of the game to go and win it."`\
+https://nytimes.com/athletic/5823615/2024/10/06/bengals-ravens-overtime-loss/
+
 **Caleb Williams-DJ Moore connection clicks, showing what Bears offense can be**\
 `Williams had another impressive game, going 20-for-29 passing for 304 yards, two touchdowns and a 126.2 passer rating.`\
 https://nytimes.com/athletic/5823469/2024/10/06/bears-caleb-williams-dj-moore-panthers/
