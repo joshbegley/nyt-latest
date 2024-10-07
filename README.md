@@ -1,3 +1,7 @@
+**Fantasy Week 5 recap: Buy or sell struggling Breece Hall, Bijan Robinson?**\
+`The Jets' and Falcons' starting RBs have scuffled early. Is it time to sell them off before their stock dips any lower?`\
+https://nytimes.com/athletic/5825099/2024/10/07/fantasy-football-week-5-recap-breece-hall-bijan-robinson/
+
 **What went wrong in USC's loss to Minnesota?**\
 `Until Lincoln Riley and USC get the small things cleaned up, there will be more frustrating losses like Saturday’s at Minnesota.`\
 https://nytimes.com/athletic/5824971/2024/10/07/usc-football-lincoln-riley-minnesota-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/world-
 **Trump’s increasingly angry and rambling speeches reignite the question of age in the election.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/10/07/us/harris-trump-election/trumps-increasingly-angry-and-rambling-speeches-reignite-the-question-of-age-in-the-election
-
-**Here’s the latest on the 2024 race.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/10/07/us/harris-trump-election/heres-the-latest-on-the-2024-race
 
