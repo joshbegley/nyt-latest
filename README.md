@@ -1,3 +1,7 @@
+**LeBron, Bronny share court as first father-son duo in NBA history**\
+`The moment came in the second quarter of the Los Angeles Lakers preseason game against the Phoenix Suns.`\
+https://nytimes.com/athletic/5824199/2024/10/06/lakers-vs-suns-lebron-bronny-james/
+
 **49ers eager for quick turnaround as red-zone woes continue: 'A blessing in disguise'**\
 `The 49ers' biggest issue was something that's plagued them all season: They had six trips to the red zone and scored just one touchdown.`\
 https://nytimes.com/athletic/5824086/2024/10/06/49ers-loss-cardinals-thursday-night-football/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/05/weather/milton-hurricane-florida/gulf-coast-
 **Colts defense looks broken in loss that spoiled heroic efforts of Joe Flacco, Alec Pierce**\
 `Colts LB Zaire Franklin: “The defense, we gotta do our part. We ain’t do our part (Sunday). That’s the moral of the story.”`\
 https://nytimes.com/athletic/5823738/2024/10/06/colts-defense-gus-bradley-jaguars-joe-flacco-alec-pierce/
-
-**Giants return blocked field goal for TD, beat Seahawks**\
-`Giants' Daniel Jones tossed two touchdowns, defense added seven sacks and blocked field goal touchdown in 29-20 win over the Seahawks.`\
-https://nytimes.com/athletic/5822223/2024/10/06/seahawks-ny-giants-score-results-takeaways/
 
