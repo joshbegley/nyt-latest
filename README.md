@@ -1,3 +1,7 @@
+**Chappell Roan Seeks the Line Between IRL and URL**\
+`The rising pop singer has been transparently navigating the demands of fame — onstage and online — as she’s grown from cult queer-pop hero to zeitgeist-shaping star.`\
+https://nytimes.com/2024/10/07/arts/music/chappell-roan-live-fans.html
+
 **Georgia Supreme Court Restores State’s 6-Week Abortion Ban**\
 `The ban will resume while the court considers an appeal to a decision that had briefly restored greater access to abortions in the state.`\
 https://nytimes.com/2024/10/07/us/georgia-supreme-court-abortion-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/arts/music/popcast-sean-combs-diddy.html
 **Before making NHL comeback, Dan Bylsma looked inward while going backward**\
 `Bylsma points to his recent minor-league coaching stints as opportunities to apply the lessons he's learned through his many ups and downs.`\
 https://nytimes.com/athletic/5823044/2024/10/07/seattle-kraken-dan-bylsma-nhl/
-
-**Wolves part ways with set-piece coach**\
-`Wolverhampton Wanderers have parted company with set-piece coach Jack Wilson after just seven league games at Molineux.`\
-https://nytimes.com/athletic/5825811/2024/10/07/wolves-set-piece-coach-sacked/
 
