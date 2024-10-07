@@ -1,3 +1,7 @@
+**The Price of a Mega Millions Ticket Will More Than Double to $5**\
+`Mega Millions officials said players’ odds would be increased and jackpot sizes would be bigger after the price increase next April.`\
+https://nytimes.com/2024/10/07/us/mega-millions-ticket-price-increase.html
+
 **Trump’s Ugly Closing Argument**\
 `He delivers a mix of disinformation, false claims about cheating in elections, and personal attacks.`\
 https://nytimes.com/2024/10/07/us/politics/trump-harris-fema-funding.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/new-yo
 **Rams target potential Kupp return for Week 7**\
 `Rams star receiver Cooper Kupp injured his ankle in Week 2 against the Cardinals and has not played since.`\
 https://nytimes.com/athletic/5826668/2024/10/07/cooper-kupp-injury-update-return-rams/
-
-**Phillies' Andrew Painter to pitch in fall league. What scenarios are in play for 2025?**\
-`Painter is taking a big step forward by pitching in the Arizona Fall League. He's expected to reach 20 innings in fall ball. Then what?`\
-https://nytimes.com/athletic/5826685/2024/10/07/andrew-painter-phillies-prospect-2025-season/
 
