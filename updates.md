@@ -1,3 +1,11 @@
+**Frankie Luvu, Commanders defense feeding off Jayden Daniels' infectious play**\
+`Washington's linebacker corps, led by Luvu and Bobby Wagner, helped set the tone on defense in the team's domination of the Browns.`\
+https://nytimes.com/athletic/5823602/2024/10/06/commanders-defense-browns-frankie-luvu-jayden-daniels/
+
+**Fittingly, Sun and Lynx prepare for Game 5 WNBA semifinals showdown**\
+`Through an evenly matched series, lineup tweaks and adjustments will make all the difference.`\
+https://nytimes.com/athletic/5823986/2024/10/06/sun-lynx-wnba-semifinals-game-five/
+
 **Gulf Coast States Have Been Battered by Hurricanes This Year**\
 `Here’s a look at the storms that have hit the area.`\
 https://nytimes.com/live/2024/10/05/weather/milton-hurricane-florida/gulf-coast-states-have-been-battered-by-hurricanes-this-year
