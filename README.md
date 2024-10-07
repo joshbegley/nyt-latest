@@ -1,3 +1,7 @@
+**The great experiment begins as Lane Hutson officially reaches NHL with Canadiens**\
+`Lane Hutson making the Canadiens' opening roster was a foregone conclusion, but the role he will be given should allow him to thrive.`\
+https://nytimes.com/athletic/5826564/2024/10/07/lane-hutson-canadiens-roster-dream/
+
 **As a Massacre Unfolded, a Frantic Call: ‘Send for Help’**\
 `When a gang assaulted a town in central Haiti last week, one woman called a local community leader begging for assistance. The massacre left at least 78 civilians dead.`\
 https://nytimes.com/2024/10/07/world/americas/haiti-gang-massacre-pont-sonde.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/briefing/oct-7-anniversary-harris-lifespan.html
 **Blues roster projection 3.0: Analyzing the potential Game 1 lineup after final cuts**\
 `The Blues are keeping 12 forwards and eight defensemen on the roster at the start of the 2024-25 season.`\
 https://nytimes.com/athletic/5825243/2024/10/07/blues-opening-night-lineup-analysis/
-
-**Behind the War of Words Between Macron and Netanyahu**\
-`The French leader said countries should stop supplying weapons to Israel, arguing that providing arms while demanding a cease-fire is inconsistent. That drew the Israeli leader’s fury.`\
-https://nytimes.com/2024/10/07/world/europe/macron-netanyahu-weapons.html
 
