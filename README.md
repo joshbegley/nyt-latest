@@ -1,3 +1,11 @@
+**On Oct. 7 Anniversary, Vigils and Hope for ‘an End to This Horrible War’**\
+`Israelis gathered on Monday to mourn those killed or abducted on the deadliest day in the country’s history.`\
+https://nytimes.com/2024/10/07/world/middleeast/israel-hamas-oct-7-anniversary-vigils.html
+
+**Year After Oct. 7 Attack, Israel Faces 4-Front War**\
+`Gaza, Lebanon, Iran and Yemen: Israeli forces exchanged fire with militants backed by Tehran on Monday.`\
+https://nytimes.com/2024/10/07/world/middleeast/israel-war-four-fronts.html
+
 **The great experiment begins as Lane Hutson officially reaches NHL with Canadiens**\
 `Lane Hutson making the Canadiens' opening roster was a foregone conclusion, but the role he will be given should allow him to thrive.`\
 https://nytimes.com/athletic/5826564/2024/10/07/lane-hutson-canadiens-roster-dream/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/a-doct
 **All the Good Economic News Vindicates Bidenomics**\
 `But not quite in the way you may think.`\
 https://nytimes.com/2024/10/07/opinion/biden-trump-harris-economy.html
-
-**Tuesday Briefing: Israelis and Palestinians Mourn a Year of Loss**\
-`Plus, Chappell Roan navigates the demands of fame.`\
-https://nytimes.com/2024/10/07/briefing/oct-7-anniversary-harris-lifespan.html
-
-**Blues roster projection 3.0: Analyzing the potential Game 1 lineup after final cuts**\
-`The Blues are keeping 12 forwards and eight defensemen on the roster at the start of the 2024-25 season.`\
-https://nytimes.com/athletic/5825243/2024/10/07/blues-opening-night-lineup-analysis/
 
