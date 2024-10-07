@@ -1,3 +1,11 @@
+**49ers eager for quick turnaround as red-zone woes continue: 'A blessing in disguise'**\
+`The 49ers' biggest issue was something that's plagued them all season: They had six trips to the red zone and scored just one touchdown.`\
+https://nytimes.com/athletic/5824086/2024/10/06/49ers-loss-cardinals-thursday-night-football/
+
+**Jurickson Profar trolls fans as Dodgers and Padres get chippy in Game 2**\
+`There was light-hearted trolling, which turned into sharper chirping, which devolved into at least one baseball being fired from the stands in the direction of the primary antagonist — or protagonist — depending on your perspective.`\
+https://nytimes.com/athletic/5823803/2024/10/06/padres-dodgers-jurickson-profar-mookie-betts/
+
 **Raiders' quarterback issue is far from their only problem after loss to Broncos**\
 `Between O-line struggles, injuries on defense and the lack of a vertical passing game without Davante Adams, Las Vegas isn't in great shape.`\
 https://nytimes.com/athletic/5823932/2024/10/06/raiders-broncos-quarterback-gardner-minshew/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5823738/2024/10/06/colts-defense-gus-bradley-jaguar
 **Giants return blocked field goal for TD, beat Seahawks**\
 `Giants' Daniel Jones tossed two touchdowns, defense added seven sacks and blocked field goal touchdown in 29-20 win over the Seahawks.`\
 https://nytimes.com/athletic/5822223/2024/10/06/seahawks-ny-giants-score-results-takeaways/
-
-**Robert Coover, Inventive Novelist in Iconoclastic Era, Dies at 92**\
-`Once called “probably the funniest and most malicious” of the postmodernists, his books reflected a career-long interest in reimagining folk stories, fairy tales and political myths.`\
-https://nytimes.com/2024/10/06/books/robert-coover-dead.html
-
-**Josh Allen and the Bills offense are in peril. Don’t be fooled by close loss to Texans**\
-`There was plenty of blame to go around in the Bills' second straight loss.`\
-https://nytimes.com/athletic/5823729/2024/10/06/buffalo-bills-josh-allen-texans/
 
