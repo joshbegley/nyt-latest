@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5826668/2024/10/07/cooper-kupp-injury-update-return-rams/
 
 **Phillies prospect Andrew Painter to pitch in fall league. What scenarios are in play for 2025?**\
-`Painter is taking a significant step forward by pitching in the Arizona Fall League. He's reach 20 innings in fall ball. What comes next?`\
+`Painter is taking a big step forward by pitching in the Arizona Fall League. He's expected to reach 20 innings in fall ball. Then what?`\
 https://nytimes.com/athletic/5826685/2024/10/07/andrew-painter-phillies-prospect-2025-season/
 
 **‘The Menendez Brothers’ Review: Reframing a Case**\
