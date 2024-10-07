@@ -1,3 +1,7 @@
+**Lore Segal, Mordant Memoirist of Émigré Life, Dies at 96**\
+`One of thousands of Jewish children transported to England at the dawn of World War II, she explored themes of displacement with penetrating wit in novel-memoirs like “Other People’s Houses.”`\
+https://nytimes.com/2024/10/07/books/lore-segal-dead.html
+
 **Do You Know These Books That Were Adapted Into Broadway Flops?**\
 `Popular literature has often been the source of a big-budget musical, but not every show is a hit. Can you identify these five short-lived productions?`\
 https://nytimes.com/interactive/2024/10/07/books/review/novel-musical-flops.html

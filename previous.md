@@ -1,3 +1,7 @@
+**Lore Segal, Mordant Memoirist of Émigré Life, Dies at 96**\
+`One of thousands of Jewish children transported to England at the dawn of World War II, she explored themes of displacement with penetrating wit in novel-memoirs like “Other People’s Houses.”`\
+https://nytimes.com/2024/10/07/books/lore-segal-dead.html
+
 **Do You Know These Books That Were Adapted Into Broadway Flops?**\
 `Popular literature has often been the source of a big-budget musical, but not every show is a hit. Can you identify these five short-lived productions?`\
 https://nytimes.com/interactive/2024/10/07/books/review/novel-musical-flops.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824542/2024/10/07/la-kings-rob-blake-2024-25-seaso
 **Fears of a Global Oil Shock if the Mideast Crisis Intensifies**\
 `The threat of an escalating conflict between Israel and Iran has created an “extraordinarily precarious” global situation, sowing alarm about the potential economic fallout.`\
 https://nytimes.com/2024/10/07/business/middle-east-conflict-economic-risks.html
-
-**Bilal Coulibaly and Johnny Davis have more in common than you might expect**\
-`Coulibaly is more confident, more skilled and stronger. Davis has rediscovered his shooting stroke.`\
-https://nytimes.com/athletic/5824442/2024/10/07/bilal-coulibaly-johnny-davis-washington-wizards/
 
