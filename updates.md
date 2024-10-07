@@ -1,3 +1,7 @@
+**The great experiment begins as Lane Hutson officially reaches NHL with Canadiens**\
+`Lane Hutson making the Canadiens' opening roster was a foregone conclusion, but the role he will be given should allow him to thrive.`\
+https://nytimes.com/athletic/5826564/2024/10/07/lane-hutson-canadiens-roster-dream/
+
 **As a Massacre Unfolded, a Frantic Call: ‘Send for Help’**\
 `When a gang assaulted a town in central Haiti last week, one woman called a local community leader begging for assistance. The massacre left at least 78 civilians dead.`\
 https://nytimes.com/2024/10/07/world/americas/haiti-gang-massacre-pont-sonde.html
