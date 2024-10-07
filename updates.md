@@ -1,3 +1,15 @@
+**Pro-Israel and pro-Palestinian students hold side-by-side demonstrations at Columbia.**\
+`During tense but somber vigils on the university library steps, students and their supporters expressed outrage and sorrow.`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/pro-israel-and-pro-palestinian-students-hold-side-by-side-demonstrations-at-columbia
+
+**SpaceX Launches ESA’s Hera Asteroid Mission**\
+`The European Space Agency’s Hera mission will investigate an asteroid that NASA deliberately struck with another spacecraft in a previous test of humanity’s planetary defense readiness.`\
+https://nytimes.com/video/science/100000009746940/hera-launch-asteroid-spacex-esa.html
+
+**As Major Hurricane Approaches Florida, FEMA Faces Severe Staffing Shortage**\
+`Fewer than 10 percent of the agency’s disaster workers are available to respond to Hurricane Milton and other calamities.`\
+https://nytimes.com/2024/10/07/climate/hurricane-milton-fema-staff-shortage.html
+
 **Back on the Bench, the Supreme Court Is Diligent and Dour**\
 `The justices considered a routine case on unemployment benefits in characteristic style, peppering the lawyers with questions and dropping hints about their views.`\
 https://nytimes.com/2024/10/07/us/supreme-court-oral-argument.html
