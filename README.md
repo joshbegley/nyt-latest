@@ -1,3 +1,11 @@
+**Giants return blocked field goal for TD, beat Seahawks**\
+`Giants' Daniel Jones tossed two touchdowns, defense added seven sacks and blocked field goal touchdown in 29-20 win over the Seahawks.`\
+https://nytimes.com/athletic/5822223/2024/10/06/seahawks-ny-giants-score-results-takeaways/
+
+**Robert Coover, Inventive Novelist in Iconoclastic Era, Dies at 92**\
+`Once called “probably the funniest and most malicious” of the postmodernists, his books reflected a career-long interest in reimagining folk stories, fairy tales and political myths.`\
+https://nytimes.com/2024/10/06/books/robert-coover-dead.html
+
 **Josh Allen and the Bills offense are in peril. Don’t be fooled by close loss to Texans**\
 `There was plenty of blame to go around in the Bills' second straight loss.`\
 https://nytimes.com/athletic/5823729/2024/10/06/buffalo-bills-josh-allen-texans/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5823596/2024/10/06/buffalo-bills-stefon-diggs-houst
 **Bengals' overtime defeat vs. Ravens their latest instance of losing at winning time**\
 `Joe Burrow: "I know exactly how we are 1-4. We are not making the plays at the end of the game to go and win it."`\
 https://nytimes.com/athletic/5823615/2024/10/06/bengals-ravens-overtime-loss/
-
-**Caleb Williams-DJ Moore connection clicks, showing what Bears offense can be**\
-`Williams had another impressive game, going 20-for-29 passing for 304 yards, two touchdowns and a 126.2 passer rating.`\
-https://nytimes.com/athletic/5823469/2024/10/06/bears-caleb-williams-dj-moore-panthers/
-
-**No. 1 pick Caleb Williams stood out, but when will Panthers give Bryce Young another shot?**\
-`Young played for the first time since Week 2 and got in one series late in the game and completed four passes for 58 yards.`\
-https://nytimes.com/athletic/5823536/2024/10/06/panthers-bryce-young-quarterback-dave-canales/
 
