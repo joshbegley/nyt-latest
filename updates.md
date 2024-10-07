@@ -1,3 +1,7 @@
+**Yankees' diehard fans plea for Juan Soto to stay: 'Why would you want to leave this?'**\
+`The Bleacher Creatures hope the love they've shown Soto helps tip the scales in the Yankees' favor when he's considering free-agent offers.`\
+https://nytimes.com/athletic/5823680/2024/10/07/yankees-bleacher-creatures-juan-soto-relationship/
+
 **Remembering the Nova Festival Victims, With the Sounds of War as a Backdrop**\
 `After hearing the dance track that was playing a year ago when the Hamas-led assault began, the hundreds who had gathered stood for a minute of silence, broken by a bereaved mother’s cries.`\
 https://nytimes.com/2024/10/07/world/middleeast/october-7-nova-festival-victims.html
