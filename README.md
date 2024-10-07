@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5823729/2024/10/06/buffalo-bills-josh-allen-texans/
 
 **Browns' nightmare season takes another hit following blowout loss to Commanders**\
-`Deshaun Watson and the offense continue to struggle as Cleveland loses its third straight game and falls to 1-4. `\
+`Deshaun Watson and the offense continued to struggle as Cleveland lost its third straight game and fell to 1-4. `\
 https://nytimes.com/athletic/5823554/2024/10/06/browns-loss-commanders-deshaun-watson/
 
 **Bo Nix, Sean Payton get into heated discussion after botched play**\
