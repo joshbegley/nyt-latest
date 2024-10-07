@@ -1,3 +1,11 @@
+**'We kind of underestimated them': Seahawks seeking answers after flopping vs. Giants**\
+`The Seahawks were supposed to beat the short-handed Giants and get to 4-1. Perhaps those expectations were part of the problem.`\
+https://nytimes.com/athletic/5824065/2024/10/06/seahawks-giants-geno-smith-blocked-kick/
+
+**LeBron, Bronny first father-son duo to share court in NBA history**\
+`The Jameses opened the second quarter of the Lakers’ preseason matchup against the Suns together`\
+https://nytimes.com/athletic/5824199/2024/10/06/lakers-vs-suns-lebron-bronny-james/
+
 **Packers' Xavier McKinney makes history with NFL-high 5th INT: 'I'm on a mission'**\
 `McKinney is the first player since the 1970 merger with an interception in each of a player's first five games with his new team.`\
 https://nytimes.com/athletic/5824152/2024/10/06/xavier-mckinney-packers-win-fifth-interception/

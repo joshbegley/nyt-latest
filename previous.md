@@ -1,3 +1,7 @@
+**'We kind of underestimated them': Seahawks seeking answers after flopping vs. Giants**\
+`The Seahawks were supposed to beat the short-handed Giants and get to 4-1. Perhaps those expectations were part of the problem.`\
+https://nytimes.com/athletic/5824065/2024/10/06/seahawks-giants-geno-smith-blocked-kick/
+
 **Packers' Xavier McKinney makes history with NFL-high 5th INT: 'I'm on a mission'**\
 `McKinney is the first player since the 1970 merger with an interception in each of a player's first five games with his new team.`\
 https://nytimes.com/athletic/5824152/2024/10/06/xavier-mckinney-packers-win-fifth-interception/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/5824152/2024/10/06/xavier-mckinney-packers-win-fift
 `As Joe Burrow and the Bengals kept applying pressure, the two-time MVP answered the call again and again to lead Baltimore to victory. `\
 https://nytimes.com/athletic/5823685/2024/10/06/ravens-win-bengals-lamar-jackson/
 
-**LeBron, Bronny share court as first father-son duo in NBA history**\
-`The moment came in the second quarter of the Los Angeles Lakers preseason game against the Phoenix Suns.`\
+**LeBron, Bronny first father-son duo to share court in NBA history**\
+`The Jameses opened the second quarter of the Lakers’ preseason matchup against the Suns together`\
 https://nytimes.com/athletic/5824199/2024/10/06/lakers-vs-suns-lebron-bronny-james/
 
 **49ers eager for quick turnaround as red-zone woes continue: 'A blessing in disguise'**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823877/2024/10/06/pat-surtain-pick-6-broncos-beat-
 **Frankie Luvu, Commanders defense feeding off Jayden Daniels' infectious play**\
 `Washington's linebacker corps, led by Luvu and Bobby Wagner, helped set the tone on defense in the team's domination of the Browns.`\
 https://nytimes.com/athletic/5823602/2024/10/06/commanders-defense-browns-frankie-luvu-jayden-daniels/
-
-**Fittingly, Sun and Lynx prepare for Game 5 WNBA semifinals showdown**\
-`Through an evenly matched series, lineup tweaks and adjustments will make all the difference.`\
-https://nytimes.com/athletic/5823986/2024/10/06/sun-lynx-wnba-semifinals-game-five/
 
