@@ -1,3 +1,7 @@
+**The Brighton widemen who overran Tottenham - and their importance to Hurzeler**\
+`They are a key aspect of the attacking philosophy of head coach Fabian Hurzeler and they were instrumental in the turnaround against Spurs.`\
+https://nytimes.com/athletic/5764715/2024/10/07/brighton-tottenham-rutter-mitoma-minteh/
+
 **Monday Briefing**\
 `Reflecting on a year of war in the Middle East.`\
 https://nytimes.com/2024/10/07/briefing/war-anniversary-gaza-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824344/2024/10/06/raptors-preseason-debut-jamal-sh
 **2024 MLB Division Series: Instant classic for Phillies and Mets; instant irritation for Padres and Dodgers**\
 `Go around the the horn, three up and three down, a look at what's on deck and our picks to click.`\
 https://nytimes.com/athletic/5824374/2024/10/06/mlb-2024-playoffs-mets-phillies-dodgers-padres/
-
-**Jurickson Profar takes center stage as Padres even NLDS: takeaways**\
-`LOS ANGELES — The Los Angeles Dodgers are in some trouble.`\
-https://nytimes.com/athletic/5823617/2024/10/06/dodgers-vs-padres-score-jurickson-profar-takeaways/
 
