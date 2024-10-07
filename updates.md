@@ -1,3 +1,11 @@
+**Ten Hag's big calls staved off the worst but a sense of flux remains at United**\
+`United should be achieving more than salvation from a 0-0 draw at Villa, but Ten Hag made some unexpected decisions that paid off`\
+https://nytimes.com/athletic/5822751/2024/10/07/erik-ten-hag-man-united-decisions/
+
+**Paul Pogba spies light at the end of the tunnel and a chance to play again - but where?**\
+`The France midfielder was euphoric when the appeal verdict came through, but whether his return comes back with Juventus remains to be seen`\
+https://nytimes.com/athletic/5822266/2024/10/07/pogba-juventus-dhea-cas/
+
 **The Brighton widemen who overran Tottenham - and their importance to Hurzeler**\
 `They are a key aspect of the attacking philosophy of head coach Fabian Hurzeler and they were instrumental in the turnaround against Spurs.`\
 https://nytimes.com/athletic/5764715/2024/10/07/brighton-tottenham-rutter-mitoma-minteh/
