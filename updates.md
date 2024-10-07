@@ -1,3 +1,19 @@
+**How Ohio State's offense passed a true test: Iowa film review**\
+`Before we get into Ohio State vs. Oregon, let's take one more look back at the Buckeyes' win over Iowa.`\
+https://nytimes.com/athletic/5825175/2024/10/07/ohio-state-football-chip-kelly-offense-iowa/
+
+**New York marks the Oct. 7 anniversary with vigils and protests.**\
+`By Michael Rothfeld`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/new-york-marks-the-oct-7-anniversary-with-vigils-and-protests
+
+**Key Events During a Year of Middle East War**\
+`Hamas’s Oct. 7 attack on Israel and the 12 months of conflagration that has followed.`\
+https://nytimes.com/2024/10/07/world/middleeast/israel-hamas-war-middle-east-timeline.html
+
+**Victims of a $7 Billion Fraud May Soon Be Paid. For Some, It’s Too Late.**\
+`Not having much insight into what may happen next in the case of a fraud orchestrated by Robert Allen Stanford, many of the victims sold the rights to any future payout.`\
+https://nytimes.com/2024/10/07/business/stanford-financial-fraud-victims-paid.html
+
 **Rob Blake has the Kings playing bigger and tougher. Will it work this time?**\
 `In what could be his last stand as Kings GM, Blake's latest bid to unlock playoff success is centered around more brawn.`\
 https://nytimes.com/athletic/5824542/2024/10/07/la-kings-rob-blake-2024-25-season/
