@@ -1,3 +1,7 @@
+**LeBron, Bronny share court as first father-son duo in NBA history**\
+`The moment came in the second quarter of the Los Angeles Lakers preseason game against the Phoenix Suns.`\
+https://nytimes.com/athletic/5824199/2024/10/06/lakers-vs-suns-lebron-bronny-james/
+
 **49ers eager for quick turnaround as red-zone woes continue: 'A blessing in disguise'**\
 `The 49ers' biggest issue was something that's plagued them all season: They had six trips to the red zone and scored just one touchdown.`\
 https://nytimes.com/athletic/5824086/2024/10/06/49ers-loss-cardinals-thursday-night-football/
