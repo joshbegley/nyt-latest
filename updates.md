@@ -1,3 +1,11 @@
+**Rams target potential Kupp return for Week 7**\
+`Rams star receiver Cooper Kupp injured his ankle in Week 2 against the Cardinals and has not played since.`\
+https://nytimes.com/athletic/5826668/2024/10/07/cooper-kupp-injury-update-return-rams/
+
+**Phillies prospect Andrew Painter to pitch in fall league. What scenarios are in play for 2025?**\
+`Painter is taking a significant step forward by pitching in the Arizona Fall League. He's reach 20 innings in fall ball. What comes next?`\
+https://nytimes.com/athletic/5826685/2024/10/07/andrew-painter-phillies-prospect-2025-season/
+
 **‘The Menendez Brothers’ Review: Reframing a Case**\
 `To the extent this documentary about Lyle and Erik Menendez has appeal, it is of the tabloid variety.`\
 https://nytimes.com/2024/10/07/movies/the-menendez-brothers-review.html

@@ -1,3 +1,11 @@
+**Rams target potential Kupp return for Week 7**\
+`Rams star receiver Cooper Kupp injured his ankle in Week 2 against the Cardinals and has not played since.`\
+https://nytimes.com/athletic/5826668/2024/10/07/cooper-kupp-injury-update-return-rams/
+
+**Phillies prospect Andrew Painter to pitch in fall league. What scenarios are in play for 2025?**\
+`Painter is taking a significant step forward by pitching in the Arizona Fall League. He's reach 20 innings in fall ball. What comes next?`\
+https://nytimes.com/athletic/5826685/2024/10/07/andrew-painter-phillies-prospect-2025-season/
+
 **‘The Menendez Brothers’ Review: Reframing a Case**\
 `To the extent this documentary about Lyle and Erik Menendez has appeal, it is of the tabloid variety.`\
 https://nytimes.com/2024/10/07/movies/the-menendez-brothers-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/07/world/middleeast/israel-war-four-fronts.html
 **The great experiment begins as Lane Hutson officially reaches NHL with Canadiens**\
 `Lane Hutson making the Canadiens' opening roster was a foregone conclusion, but the role he will be given should allow him to thrive.`\
 https://nytimes.com/athletic/5826564/2024/10/07/lane-hutson-canadiens-roster-dream/
-
-**As a Massacre Unfolded, a Frantic Call: ‘Send for Help’**\
-`When a gang assaulted a town in central Haiti last week, one woman called a local community leader begging for assistance. The massacre left at least 78 civilians dead.`\
-https://nytimes.com/2024/10/07/world/americas/haiti-gang-massacre-pont-sonde.html
-
-**Google Must Open Android to Other App Stores and Billing Options, Judge Rules**\
-`The internet giant was ordered by a federal judge to make a series of changes to address its anticompetitive conduct.`\
-https://nytimes.com/2024/10/07/technology/google-app-store-epic-games-anticompetitive.html
 
