@@ -1,3 +1,15 @@
+**Raiders' quarterback issue is far from their only problem after loss to Broncos**\
+`Between O-line struggles, injuries on defense and the lack of a vertical passing game without Davante Adams, Las Vegas isn't in great shape.`\
+https://nytimes.com/athletic/5823932/2024/10/06/raiders-broncos-quarterback-gardner-minshew/
+
+**Dodgers' Freddie Freeman departs Game 2 with ankle discomfort**\
+`LOS ANGELES — Freddie Freeman, who gutted through a sprained right ankle to star in the Los Angeles Dodgers’ Game 1 victory on Saturday night, exited Sunday’s Game 2 in the sixth inning with continued discomfort in that ankle.`\
+https://nytimes.com/athletic/5824104/2024/10/06/dodgers-freddie-freeman-injury-nlds/
+
+**Pat Surtain's DPOY case is real — and so is the defense fueling the Broncos**\
+`Surtain had already shut down the opponent's top wide receivers regularly this season. But his play Sunday hit a new level.`\
+https://nytimes.com/athletic/5823877/2024/10/06/pat-surtain-pick-6-broncos-beat-raiders/
+
 **Frankie Luvu, Commanders defense feeding off Jayden Daniels' infectious play**\
 `Washington's linebacker corps, led by Luvu and Bobby Wagner, helped set the tone on defense in the team's domination of the Browns.`\
 https://nytimes.com/athletic/5823602/2024/10/06/commanders-defense-browns-frankie-luvu-jayden-daniels/
