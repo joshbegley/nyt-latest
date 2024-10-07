@@ -1,3 +1,11 @@
+**Nobel Prize in Physiology or Medicine Is Awarded to Victor Ambros and Gary Ruvkun**\
+`The physiology or medicine prize was awarded for the two men’s discovery of microRNA and its role in post-transcriptional gene regulation.`\
+https://nytimes.com/2024/10/07/health/nobel-prize-medicine.html
+
+**Connor Bedard lived up to the hype as a rookie. What now?**\
+`Here's why Bedard could be primed for a second-year leap like Connor McDavid and Sidney Crosby once made.`\
+https://nytimes.com/athletic/5816259/2024/10/07/connor-bedard-year-two-blackhawks-nhl/
+
 **Yankees' diehard fans plea for Juan Soto to stay: 'Why would you want to leave this?'**\
 `The Bleacher Creatures hope the love they've shown Soto helps tip the scales in the Yankees' favor when he's considering free-agent offers.`\
 https://nytimes.com/athletic/5823680/2024/10/07/yankees-bleacher-creatures-juan-soto-relationship/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5822605/2024/10/07/celtics-jaylen-brown-preseason-w
 **Rodrigue: Rams head into their bye week planted firmly in their own way**\
 `The Rams enter their bye week 1-4 and coach Sean McVay said they have to start learning how to not beat themselves.`\
 https://nytimes.com/athletic/5823253/2024/10/07/la-rams-loss-mistakes-packers/
-
-**Campuses Are Calmer, but They Are Not Normal, Students and Faculty Say**\
-`A year of war in Gaza has left college students and faculty feeling shaken and angry, with the world and with each other.`\
-https://nytimes.com/2024/10/07/us/campus-climate-israel-hamas-war.html
-
-**I Live in Israel. I Never Hear About What My Country Is Doing to Gaza.**\
-`Mairav Zonszein argues there will be a cost to her country’s “indifference” toward Palestinians.`\
-https://nytimes.com/2024/10/07/opinion/israel-gaza-apathy-indiference.html
 
