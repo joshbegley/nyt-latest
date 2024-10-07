@@ -1,5 +1,9 @@
+**Nutter Butter, Are You Good? An Investigation.**\
+`The cookie sandwich brand’s videos — funny, disturbing, fever-dreamlike — rack up tens of millions of views. The secret is lots of lore without much sense, the campaign’s strategists explain.`\
+https://nytimes.com/2024/10/07/style/nutter-butter-social-media.html
+
 **Nobel Prize in Physiology or Medicine Is Awarded to Victor Ambros and Gary Ruvkun**\
-`The physiology or medicine prize was awarded for the two men’s discovery of microRNA and its role in post-transcriptional gene regulation.`\
+`The prize was awarded for their discovery of microRNA and its role in post-transcriptional gene regulation.`\
 https://nytimes.com/2024/10/07/health/nobel-prize-medicine.html
 
 **Connor Bedard lived up to the hype as a rookie. What now?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824406/2024/10/07/phillies-mets-game-2-moments-har
 **Celtics'Jaylen Brown finds connections in beating Nuggets: Preseason stock report**\
 `The Celtics handled the Denver Nuggets rather easily during their second meeting in Abu Dhabi. `\
 https://nytimes.com/athletic/5822605/2024/10/07/celtics-jaylen-brown-preseason-win-nuggets/
-
-**Rodrigue: Rams head into their bye week planted firmly in their own way**\
-`The Rams enter their bye week 1-4 and coach Sean McVay said they have to start learning how to not beat themselves.`\
-https://nytimes.com/athletic/5823253/2024/10/07/la-rams-loss-mistakes-packers/
 

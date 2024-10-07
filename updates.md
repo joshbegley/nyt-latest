@@ -1,3 +1,11 @@
+**Nutter Butter, Are You Good? An Investigation.**\
+`The cookie sandwich brand’s videos — funny, disturbing, fever-dreamlike — rack up tens of millions of views. The secret is lots of lore without much sense, the campaign’s strategists explain.`\
+https://nytimes.com/2024/10/07/style/nutter-butter-social-media.html
+
+**Nobel Prize in Physiology or Medicine Is Awarded to Victor Ambros and Gary Ruvkun**\
+`The prize was awarded for their discovery of microRNA and its role in post-transcriptional gene regulation.`\
+https://nytimes.com/2024/10/07/health/nobel-prize-medicine.html
+
 **Nobel Prize in Physiology or Medicine Is Awarded to Victor Ambros and Gary Ruvkun**\
 `The physiology or medicine prize was awarded for the two men’s discovery of microRNA and its role in post-transcriptional gene regulation.`\
 https://nytimes.com/2024/10/07/health/nobel-prize-medicine.html
