@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5826368/2024/10/07/submit-a-question-for-stewart-ma
 
 **Elon Musk’s Giant Leap**\
 `When one of the richest men in the world made a surprise cameo at a Trump rally in Butler, Pa., he did so with the gusto of a meme exploding.`\
-https://nytimes.com/2024/10/07/style/elon-musk-donald-trump-butler-pa.html
+https://nytimes.com/2024/10/07/style/elon-musk-donald-trump-campaign-rally.html
 
 **McDaniel offers update on Dolphins QB Tagovailoa: 'So far so good'**\
 `Dolphins starting quarterback has been out with a concussion since Week 2.`\

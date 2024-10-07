@@ -1,3 +1,7 @@
+**Elon Musk’s Giant Leap**\
+`When one of the richest men in the world made a surprise cameo at a Trump rally in Butler, Pa., he did so with the gusto of a meme exploding.`\
+https://nytimes.com/2024/10/07/style/elon-musk-donald-trump-campaign-rally.html
+
 **NASCAR Talladega takeaways: Ignorance is bliss, an all-time what-if and more**\
 `We know too much to have enjoyed that race Sunday, plus Denny Hamlin's what-if, Bubba Wallace's baby and more from Talladega.`\
 https://nytimes.com/athletic/5825137/2024/10/07/nascar-talladega-takeaways-denny-hamlin-bubba-wallace/
