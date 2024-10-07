@@ -1,7 +1,3 @@
-**Electric Car Subsidies Are a Plus, but Could Be Improved, Study Finds**\
-`The Inflation Reduction Act was a compromise between competing priorities. Evaluating the law on the effectiveness of the $7,500 tax credit for E.V.s is tricky.`\
-https://nytimes.com/2024/10/07/business/economy/electric-vehicle-tax-credits-study.html
-
 **Mind games and a wry smile: How Gazzaniga saved three penalties in one game**\
 `After his error against PSG in the Champions League, Girona's goalkeeper has gone from zero to hero after a remarkable performance on Sunday`\
 https://nytimes.com/athletic/5824626/2024/10/07/paulo-gazzaniga-three-penalty-saves/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/10/07/world/asia/rodrigo-duterte-mayor-philippines.html
 **Inside Jalen Tolbert's ‘miraculous’ game-winning touchdown for Cowboys: ‘It was special’**\
 `Jalen Tolbert shook off an uncomfortable injury on third down, returned and caught the biggest pass of his young career with the Cowboys.`\
 https://nytimes.com/athletic/5824614/2024/10/07/cowboys-jalen-tolbert-game-winning-touchdown/
+
+**Is the Golden Knights' golden era ending? Not so fast — 'We still expect to win'**\
+`Outside expectation might be lower after offseason moves, but Vegas should be strong again.`\
+https://nytimes.com/athletic/5823191/2024/10/07/golden-knights-stanley-cup-offseason/
 
