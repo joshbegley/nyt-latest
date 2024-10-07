@@ -1,3 +1,7 @@
+**What went wrong in USC's loss to Minnesota?**\
+`Until Lincoln Riley and USC get the small things cleaned up, there will be more frustrating losses like Saturday’s at Minnesota.`\
+https://nytimes.com/athletic/5824971/2024/10/07/usc-football-lincoln-riley-minnesota-loss/
+
 **A simple video of a child’s grave speaks volumes about Gazans’ loss.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/a-simple-video-of-a-childs-grave-speaks-volumes-about-gazans-loss
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/07/us/harris-trump-election/trumps-increasingly
 **Here’s the latest on the 2024 race.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/10/07/us/harris-trump-election/heres-the-latest-on-the-2024-race
-
-**Election Live Updates: Harris to Appear on ‘60 Minutes’ With Just 1 Month Left in Race**\
-`A busy week is on tap for Vice President Kamala Harris and former President Donald J. Trump, with town hall events, interviews and more.`\
-https://nytimes.com/live/2024/10/07/us/harris-trump-election
 
