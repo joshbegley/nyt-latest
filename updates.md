@@ -1,3 +1,7 @@
+**As a Massacre Unfolded, a Frantic Call: ‘Send for Help’**\
+`When a gang assaulted a town in central Haiti last week, one woman called a local community leader begging for assistance. The massacre left at least 78 civilians dead.`\
+https://nytimes.com/2024/10/07/world/americas/haiti-gang-massacre-pont-sonde.html
+
 **Google Must Open Android to Other App Stores and Billing Options, Judge Rules**\
 `The internet giant was ordered by a federal judge to make a series of changes to address its anticompetitive conduct.`\
 https://nytimes.com/2024/10/07/technology/google-app-store-epic-games-anticompetitive.html
