@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5826142/2024/10/07/england-nations-league-injuries/
 `Vice President Kamala Harris rarely points out the fact that she would be the first female president or the first Black or Indian woman to hold the job. Her running mate embraces it.`\
 https://nytimes.com/2024/10/07/us/politics/harris-often-sidesteps-her-history-making-potential-walz-doesnt.html
 
-**Alabama's Malachi Moore to play vs. South Carolina, Jaheim Oatis to redshirt**\
+**Alabama's Malachi Moore to play vs. South Carolina, Jehiem Oatis to redshirt**\
 `Moore will start against South Carolina and won't be suspended after his late-game outburst against Vanderbilt.`\
 https://nytimes.com/athletic/5825892/2024/10/07/malachi-moore-alabama-football-vanderbilt/
 
