@@ -1,3 +1,27 @@
+**Bukayo Saka's clarity of thought sets a standard Arsenal team-mates must follow**\
+`The England winger took the captain's armband for the last half-hour with his contribution vital as Southampton were eventually dispatched`\
+https://nytimes.com/athletic/5820709/2024/10/07/arsenal-saka-havertz-southampton/
+
+**Enzo Maresca left searching for new solutions as injuries and bans threaten Chelsea progress**\
+`The Italian will be without the suspended Marc Cucurella and Wesley Fofana at Liverpool, with fitness concerns also over Levi Colwill`\
+https://nytimes.com/athletic/5822645/2024/10/07/chelsea-forest-maresca-fofana-colwill-cucurella-liverpool/
+
+**Disappointment after drawing with Manchester United? Emery has changed everything**\
+`Picking up a point against United would have been cause for celebration a few years ago, but not now. Villa are a completely different beast`\
+https://nytimes.com/athletic/5822305/2024/10/07/aston-villa-manchester-united-emery/
+
+**Is 'Angeball' inherently fragile or were Tottenham punished by calamitous mistakes?**\
+`A devastated Postecoglou was at a loss to explain his side's collapse against Brighton — but he must address what went wrong. Fast`\
+https://nytimes.com/athletic/5810906/2024/10/07/tottenham-angeball-calamitous-mistakes/
+
+**Oliver Glasner targets international break as chance to coax consistency from winless Palace**\
+`The wait for a Premier League victory will extend into mid-October, though Palace drew encouragement from Saturday's second-half showing`\
+https://nytimes.com/athletic/5821018/2024/10/07/palace-glasner-international-liverpool/
+
+**The Briefing: Can Liverpool really challenge City? Can the real Spurs please stand up?**\
+`In this week's briefing, we look at Arne Slot's seamless transition into the Liverpool job, a strange Spurs display and reliable Antonio`\
+https://nytimes.com/athletic/5822913/2024/10/07/liverpool-manchester-city-premier-league-title-challenge/
+
 **Ten Hag's big calls staved off the worst but a sense of flux remains at United**\
 `United should be achieving more than salvation from a 0-0 draw at Villa, but Ten Hag made some unexpected decisions that paid off`\
 https://nytimes.com/athletic/5822751/2024/10/07/erik-ten-hag-man-united-decisions/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5764715/2024/10/07/brighton-tottenham-rutter-mitoma
 **Monday Briefing**\
 `Reflecting on a year of war in the Middle East.`\
 https://nytimes.com/2024/10/07/briefing/war-anniversary-gaza-israel.html
-
-**The day the conversation changed for Gary O'Neil**\
-`There is a growing number of Wolves supporters who cannot buy into the plan either on the pitch or off it.`\
-https://nytimes.com/athletic/5820801/2024/10/07/wolves-oneil-brentford-future/
-
-**The War That Won’t End: How Oct. 7 Sparked a Year of Conflict**\
-`As war in the Middle East spreads, the original conflict between Israel and Hamas has persisted. This is why.`\
-https://nytimes.com/2024/10/07/world/middleeast/israel-gaza-oct-7-year-of-war.html
-
-**Quote of the Day: A Changing Climate Is Scorching the World’s Biggest River**\
-`Quotation of the Day for Monday, October 7, 2024.`\
-https://nytimes.com/2024/10/07/pageoneplus/quote-of-the-day-a-changing-climate-is-scorching-the-worlds-biggest-river.html
-
-**Our Photographers in Israel and Gaza on the Images They Can’t Forget**\
-`Seven New York Times photojournalists describe moments that have defined a year of war.`\
-https://nytimes.com/2024/10/07/world/middleeast/israel-gaza-war-photos.html
-
-**How E-Commerce Is Making China’s Deflation Worse**\
-`The push by Pinduoduo to lower prices has helped it become one of China’s fastest-growing e-commerce apps, and epitomizes a broader force plaguing the economy.`\
-https://nytimes.com/2024/10/07/business/china-pinduoduo-ecommerce.html
-
-**Fighting Myanmar’s Patriarchy, One All-Male Panel at a Time**\
-`Ying Lao has called out the pro-democracy movement for its frequent “manels,” arguing that the exclusion of women from such discussions is hurting the cause.`\
-https://nytimes.com/2024/10/07/world/asia/myanmar-women-manels-patriarchy.html
 
