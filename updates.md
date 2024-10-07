@@ -1,3 +1,7 @@
+**Fighting Myanmar’s Patriarchy, One All-Male Panel at a Time**\
+`Ying Lao has called out the pro-democracy movement for its frequent “manels,” arguing that the exclusion of women from such discussions is hurting the cause.`\
+https://nytimes.com/2024/10/07/world/asia/myanmar-women-manels-patriarchy.html
+
 **Takeaways from Raptors' preseason debut: Absences mount while Jamal Shead impresses**\
 `The recognizable names dwindled at the Raptors’ preseason opener against the Washington Wizards on Sunday night, a 125-98 win.`\
 https://nytimes.com/athletic/5824344/2024/10/06/raptors-preseason-debut-jamal-shead/
