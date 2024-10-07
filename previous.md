@@ -1,3 +1,7 @@
+**Lando Norris talks F1 title bid: Pressure, mistakes and Max Verstappen's friendship**\
+`In one season, Norris has gone from F1 hunter to hunted. The McLaren driver sat down with The Athletic to discuss how he's changed. `\
+https://nytimes.com/athletic/5823399/2024/10/07/lando-norris-f1-title-bid-max-verstappen-friendship/
+
 **Porto's Nico hands MOTM award to ball boy for role in winning goal**\
 `Porto midfielder Nico Gonzalez donated his man of the match award in Sunday&#8217;s league victory over Braga to the ball boy who started the move for the side&#8217;s winning goal.`\
 https://nytimes.com/athletic/5824631/2024/10/07/porto-ball-boy-mvp-award/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824306/2024/10/07/cowboys-steelers-score-results-t
 **What’s on TV This Week: ‘Below Deck Sailing Yacht’ and ‘Abbott Elementary’**\
 `Bravo airs its reality show about “yachties,” and ABC is back with its Emmy-winning sitcom.`\
 https://nytimes.com/2024/10/07/arts/television/whats-on-tv-below-deck-sailing-yacht-abbott-elementary.html
-
-**What I’m Thinking About on the First Anniversary of the War**\
-`One year after being attacked, Israel has not won the battle on the ground or the battle for a good story to tell about itself and this war.`\
-https://nytimes.com/2024/10/07/opinion/oct-7-anniversary-israel-hamas.html
 

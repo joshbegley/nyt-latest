@@ -1,3 +1,7 @@
+**Lando Norris talks F1 title bid: Pressure, mistakes and Max Verstappen's friendship**\
+`In one season, Norris has gone from F1 hunter to hunted. The McLaren driver sat down with The Athletic to discuss how he's changed. `\
+https://nytimes.com/athletic/5823399/2024/10/07/lando-norris-f1-title-bid-max-verstappen-friendship/
+
 **Porto's Nico hands MOTM award to ball boy for role in winning goal**\
 `Porto midfielder Nico Gonzalez donated his man of the match award in Sunday&#8217;s league victory over Braga to the ball boy who started the move for the side&#8217;s winning goal.`\
 https://nytimes.com/athletic/5824631/2024/10/07/porto-ball-boy-mvp-award/
