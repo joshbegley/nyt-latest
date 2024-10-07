@@ -1,3 +1,11 @@
+**Wolves part ways with set-piece coach**\
+`Wolverhampton Wanderers have parted company with set-piece coach Jack Wilson after just seven league games at Molineux.`\
+https://nytimes.com/athletic/5825811/2024/10/07/wolves-set-piece-coach-sacked/
+
+**Umpire Bernades makes critical error in Wawrinka defeat**\
+`Cobolli broke Wawrinka's serve in the third set with the help of a scoring error — and it was the only break of serve in the match.`\
+https://nytimes.com/athletic/5825678/2024/10/07/cobolli-wawrinka-score-umpire-error-carlos-bernardes/
+
 **The Windup: How Profar embodies these Padres**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter. `\
 https://nytimes.com/athletic/5825841/2024/10/07/jurickson-profar-padres-mlb-playoffs-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5825503/2024/10/07/paul-allen-minnesota-vikings-lon
 **Shopping for a Hard-to-Please Loved One? Ask T for Help.**\
 `Send us a question about a picky person on your holiday gift list and we’ll respond to the most intriguing ones with suggestions.`\
 https://nytimes.com/2024/10/07/t-magazine/holiday-gift-suggestions-questions.html
-
-**Is the Election Affecting Your Relationships?**\
-`If this political season is influencing your marriage, friendships or dating life, for better or worse, we want to hear about it.`\
-https://nytimes.com/2024/10/07/well/family/politics-election-relationships-callout.html
-
-**Missile Hits Near Ukrainian Air Base as Russia Expands Air Attacks**\
-`The strike is part of a broader campaign of air assaults by Moscow aimed at degrading Ukraine’s military infrastructure and wearing down its air defenses.`\
-https://nytimes.com/2024/10/07/world/europe/ukraine-russia-missile-attack.html
 
