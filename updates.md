@@ -1,3 +1,7 @@
+**Washington Worries the Israelis Will Bomb Iran’s Nuclear Sites. But Can They?**\
+`For 22 years, Israeli forces have planned for this moment. But it seems unlikely that they will strike Iran’s nuclear facilities in the next round of retaliation, or that they would be successful without American help.`\
+https://nytimes.com/2024/10/07/us/politics/israel-iran-nuclear-facilities-strikes.html
+
 **New York Times reporters share stories of the war that they cannot forget.**\
 `By Isabel Kershner, Raja Abdulrahim and Adam Rasgon`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/new-york-times-reporters-share-stories-of-the-war-that-they-cannot-forget

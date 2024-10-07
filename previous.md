@@ -1,3 +1,7 @@
+**Washington Worries the Israelis Will Bomb Iran’s Nuclear Sites. But Can They?**\
+`For 22 years, Israeli forces have planned for this moment. But it seems unlikely that they will strike Iran’s nuclear facilities in the next round of retaliation, or that they would be successful without American help.`\
+https://nytimes.com/2024/10/07/us/politics/israel-iran-nuclear-facilities-strikes.html
+
 **New York Times reporters share stories of the war that they cannot forget.**\
 `By Isabel Kershner, Raja Abdulrahim and Adam Rasgon`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/new-york-times-reporters-share-stories-of-the-war-that-they-cannot-forget
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/briefing/october-7-middle-east-hurricane-milton.h
 **On Oct. 7 Anniversary, Vigils and Hope for ‘an End to This Horrible War’**\
 `Israelis gathered on Monday to mourn those killed or abducted on the deadliest day in the country’s history.`\
 https://nytimes.com/2024/10/07/world/middleeast/israel-hamas-oct-7-anniversary-vigils.html
-
-**Year After Oct. 7 Attack, Israel Faces 4-Front War**\
-`Gaza, Lebanon, Iran and Yemen: Israeli forces exchanged fire with militants backed by Tehran on Monday.`\
-https://nytimes.com/2024/10/07/world/middleeast/israel-war-four-fronts.html
 
