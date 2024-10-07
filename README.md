@@ -1,3 +1,7 @@
+**Gaza in Ruins After a Year of War**\
+`Much of Gaza has been destroyed by Israel’s relentless military campaign.`\
+https://nytimes.com/interactive/2024/10/07/world/middleeast/israel-gaza-destruction-hamas-war.html
+
 **Jewish students find solace and a place to mourn with campus Hillel groups.**\
 `Commemorative events marking the anniversary of the Hamas attack on Israel drew Jewish students at campuses around the country.`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/jewish-students-find-solace-and-a-place-to-mourn-with-campus-hillel-groups
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/us/politics/trump-ad-harris-green-new-deal.html
 **Washington Worries the Israelis Will Bomb Iran’s Nuclear Sites. But Can They?**\
 `For 22 years, Israeli forces have planned for this moment. But it seems unlikely that they will strike Iran’s nuclear facilities in the next round of retaliation, or that they would be successful without American help.`\
 https://nytimes.com/2024/10/07/us/politics/israel-iran-nuclear-facilities-strikes.html
-
-**New York Times reporters share stories of the war that they cannot forget.**\
-`By Isabel Kershner, Raja Abdulrahim and Adam Rasgon`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/new-york-times-reporters-share-stories-of-the-war-that-they-cannot-forget
 
