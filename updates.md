@@ -1,3 +1,15 @@
+**Full Time: Orlando's long road to the NWSL Shield**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5826560/2024/10/07/orlando-pride-nwsl-shield-temwa-chawinga-full-time/
+
+**A doctor fled Gaza but can’t leave it behind.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/a-doctor-fled-gaza-but-cant-leave-it-behind
+
+**All the Good Economic News Vindicates Bidenomics**\
+`But not quite in the way you may think.`\
+https://nytimes.com/2024/10/07/opinion/biden-trump-harris-economy.html
+
 **Viktor Bout Is Trying to Sell Weapons to the Houthis, Western Officials Say**\
 `The Russian arms dealer, who was freed in a prisoner exchange with the United States, is negotiating with the militant group in Yemen.`\
 https://nytimes.com/2024/10/07/us/politics/viktor-bout-houthis-weapons.html

@@ -1,3 +1,15 @@
+**Full Time: Orlando's long road to the NWSL Shield**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5826560/2024/10/07/orlando-pride-nwsl-shield-temwa-chawinga-full-time/
+
+**A doctor fled Gaza but can’t leave it behind.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/a-doctor-fled-gaza-but-cant-leave-it-behind
+
+**All the Good Economic News Vindicates Bidenomics**\
+`But not quite in the way you may think.`\
+https://nytimes.com/2024/10/07/opinion/biden-trump-harris-economy.html
+
 **Tuesday Briefing: Israelis and Palestinians Mourn a Year of Loss**\
 `Plus, Chappell Roan navigates the demands of fame.`\
 https://nytimes.com/2024/10/07/briefing/oct-7-anniversary-harris-lifespan.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/07/us/politics/viktor-bout-houthis-weapons.html
 **France Has Made Itself Irrelevant on the World Stage**\
 `If you don’t play the game, you don’t make the rules.`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/macron-israel-weapons-ban
-
-**Addressing a Silent Epidemic**\
-`Why oral health is the next logical step in self-care.`\
-https://nytimes.com/paidpost/proclaim/addressing-a-silent-epidemic.html
-
-**FIFA suspend Como's Curto for 10 games after racially abusing Wolves' Hwang**\
-`Como&#8217;s Marco Curto has been banned for 10 matches &#8211; five of them suspended &#8211; by FIFA after being found guilty of racially abusing Wolverhampton Wanderers forward Hwang Hee-chan in a pre-season friendly.`\
-https://nytimes.com/athletic/5826267/2024/10/07/hwang-wolves-racist-suspesnsion-fifa-como-curto/
-
-**What Are Your Thoughts About a Year of War in Israel, Gaza and the Middle East?**\
-`A year into this devastating war, what are you feeling and thinking? How have your feelings changed over the course of the year?`\
-https://nytimes.com/2024/10/07/learning/israel-gaza-war-anniversary.html
 
