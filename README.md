@@ -1,3 +1,7 @@
+**Remembering the Nova Festival Victims, With the Sounds of War as a Backdrop**\
+`After hearing the dance track that was playing a year ago when the Hamas-led assault began, the hundreds who had gathered stood for a minute of silence, broken by a bereaved mother’s cries.`\
+https://nytimes.com/2024/10/07/world/middleeast/october-7-nova-festival-victims.html
+
 **A Hundred Years’ War for Our Time**\
 `Peace in the Middle East seems more elusive than ever, with Oct. 7 setting off a battle over not just land but the narrative itself.`\
 https://nytimes.com/2024/10/07/world/middleeast/israel-palestinians-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/opinion/israel-gaza-apathy-indiference.html
 **At the New York Film Festival, the Most Innovative Work Is Nonfiction**\
 `In epic takes like “My Undesirable Friends” and playful biopics like “Pavements,” the vital art of the documentary is on full display.`\
 https://nytimes.com/2024/10/07/movies/new-york-film-festival-documentaries-nonfiction.html
-
-**Trump’s Plans Could Increase U.S. Debt While Raising Costs for Most Americans**\
-`A new analysis estimates that the former president’s proposals could grow deficits by as much as $15 trillion over a decade.`\
-https://nytimes.com/2024/10/07/us/politics/trumps-plans-could-increase-us-debt-while-raising-costs-for-most-americans.html
 
