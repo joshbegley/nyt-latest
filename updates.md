@@ -1,3 +1,7 @@
+**Bo Nix, Sean Payton get into heated discussion after botched play**\
+`Payton said afterward that Nix “flipped” the play that resulted in a third-down incompletion.`\
+https://nytimes.com/athletic/5823603/2024/10/06/bo-nix-sean-payton-sideline-altercation/
+
 **Cowboys-Steelers in weather delay due to lightning**\
 `The Steelers announced the start of the game was delayed "until further notice" and allowed fans to stay in the seating bowl.`\
 https://nytimes.com/athletic/5823811/2024/10/06/cowboys-steelers-weather-delay-lightning/
