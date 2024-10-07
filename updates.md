@@ -1,3 +1,7 @@
+**Tigers pierce stellar Guardians bullpen to tie up ALDS: Takeaways**\
+`Emmanuel Clase is the best closer in baseball. Kerry Carpenter and the Tigers got to him in the biggest of moments. `\
+https://nytimes.com/athletic/5826763/2024/10/07/tigers-guardians-score-mlb-playoffs-takeaways/
+
 **Ex-Rangers reliever, No. 1 pick Bush charged with DWI**\
 `Bush fled from the scene on foot before he was chased down and detained by a group of bystanders until officers arrived.`\
 https://nytimes.com/athletic/5825721/2024/10/07/matt-bush-arrest-dwi-rangers/
