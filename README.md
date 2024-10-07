@@ -1,3 +1,17 @@
+**NASCAR Talladega takeaways: Ignorance is bliss, an all-time what-if and more**\
+`We know too much to have enjoyed that race Sunday, plus Denny Hamlin's what-if, Bubba Wallace's baby and more from Talladega.`\
+https://nytimes.com/athletic/5825137/2024/10/07/nascar-talladega-takeaways-denny-hamlin-bubba-wallace/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Wow. Just wow. Did Vanderbilt-Alabama really happen? Did Miami really come back from 35-10 in the middle of the night?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/5826368/2024/10/07/submit-a-question-for-stewart-mandels-college-football-mailbag-276/
+
+**Elon Musk’s Giant Leap**\
+`When one of the richest men in the world made a surprise cameo at a Trump rally in Butler, Pa., he did so with the gusto of a meme exploding.`\
+https://nytimes.com/2024/10/07/style/elon-musk-donald-trump-butler-pa.html
+
 **McDaniel offers update on Dolphins QB Tagovailoa: 'So far so good'**\
 `Dolphins starting quarterback has been out with a concussion since Week 2.`\
 https://nytimes.com/athletic/5826183/2024/10/07/dolphins-tua-tagovailoa-concussion-update/
@@ -25,16 +39,4 @@ https://nytimes.com/2024/10/07/us/politics/harris-often-sidesteps-her-history-ma
 **Alabama's Malachi Moore to play vs. South Carolina, Jehiem Oatis to redshirt**\
 `Moore will start against South Carolina and won't be suspended after his late-game outburst against Vanderbilt.`\
 https://nytimes.com/athletic/5825892/2024/10/07/malachi-moore-alabama-football-vanderbilt/
-
-**Kamala Harris Should Think Twice About Touting This Economy**\
-`The labor market isn’t as healthy as the September jobs report suggests. And Americans know it.`\
-https://nytimes.com/2024/10/07/opinion/jobs-report-economy-harris.html
-
-**Hurricane Milton: Where People Are Evacuating in Florida**\
-`Updates on how the state is preparing for the storm’s arrival.`\
-https://nytimes.com/2024/10/07/weather/florida-evacuations-list-hurricane-milton.html
-
-**Manchester City vs the Premier League: The APT verdict (briefly) explained**\
-`As the fall-out from the APT legal case continues, we analyse who won what - and what could happen next`\
-https://nytimes.com/athletic/5825681/2024/10/07/premier-league-manchester-city-apt-explained/
 
