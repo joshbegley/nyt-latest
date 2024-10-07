@@ -1,3 +1,11 @@
+**China Calls for Tighter Security After Workers Are Killed in Pakistan**\
+`Two Chinese nationals were killed and another was injured after a convoy was attacked in Karachi on Sunday. A separatist group claimed responsibility.`\
+https://nytimes.com/2024/10/07/world/asia/pakistan-chinese-workers.html
+
+**Convoy Carrying Chinese Workers Is Attacked in Pakistan**\
+`Emergency workers tended to the injured after the attack near an airport in Karachi. At least two Chinese nationals were killed.`\
+https://nytimes.com/video/world/asia/100000009745552/karachi-pakistan-explosion-china.html
+
 **Word of the Day: initiative**\
 `This word has appeared in 1,445 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/07/learning/word-of-the-day-initiative.html
