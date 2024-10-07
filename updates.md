@@ -1,3 +1,7 @@
+**Phillies prospect Andrew Painter to pitch in fall league. What scenarios are in play for 2025?**\
+`Painter is taking a big step forward by pitching in the Arizona Fall League. He's expected to reach 20 innings in fall ball. Then what?`\
+https://nytimes.com/athletic/5826685/2024/10/07/andrew-painter-phillies-prospect-2025-season/
+
 **Rams target potential Kupp return for Week 7**\
 `Rams star receiver Cooper Kupp injured his ankle in Week 2 against the Cardinals and has not played since.`\
 https://nytimes.com/athletic/5826668/2024/10/07/cooper-kupp-injury-update-return-rams/
