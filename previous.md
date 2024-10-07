@@ -1,4 +1,4 @@
-**One Year On, Israel’s Hostage Families Vow to Keep Fighting as War Escalates**\
+**One Year on, Israel’s Hostage Families Vow to Keep Fighting as War Escalates**\
 `Family members of hostages held in Gaza are escalating their tactics to push for a cease-fire deal. `\
 https://nytimes.com/2024/10/07/world/middleeast/israel-hostage-families-hamas-attacks.html
 
