@@ -1,3 +1,11 @@
+**Mourners gather in Nir Oz, an emblem of Israel’s security failures.**\
+`By Sergey Ponomarev and Aaron Boxerman`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mourners-gather-in-nir-oz-an-emblem-of-israels-security-failures
+
+**Emirates Bans Pagers and Walkie-Talkies on Flights After Attacks**\
+`The move comes after communication devices used by Hezbollah members exploded last month, killing dozens of people.`\
+https://nytimes.com/2024/10/07/world/middleeast/emirates-bans-pagers-and-walkie-talkies-on-flights-after-attacks.html
+
 **Maple Leafs sign Max Pacioretty, Steven Lorentz and get to within $1 of cap limit**\
 `Pacioretty spent the majority of camp on a third line playing with John Tavares and Nick Robertson`\
 https://nytimes.com/athletic/5822699/2024/10/07/maple-leafs-max-pacioretty-contract/
