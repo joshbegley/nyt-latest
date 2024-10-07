@@ -1,3 +1,11 @@
+**Georgia Supreme Court Restores State’s 6-Week Abortion Ban**\
+`The ban will resume while the court considers an appeal to a decision that had briefly restored greater access to abortions in the state.`\
+https://nytimes.com/2024/10/07/us/georgia-supreme-court-abortion-ban.html
+
+**Tampa Residents Warned to Expect ‘Worst Hurricane in Their Lifetime’**\
+`The Tampa Bay area, long used to relative safety from big storms, faces what could be its first direct hit by a major hurricane in a century.`\
+https://nytimes.com/2024/10/07/weather/tampa-hurricane-history.html
+
 **Here’s How Fast Hurricane Milton Intensified**\
 `On Monday morning, the storm was a Category 1. It became a Category 5 by noon.`\
 https://nytimes.com/2024/10/07/weather/hurricane-milton-intensity-speed.html

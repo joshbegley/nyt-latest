@@ -1,3 +1,11 @@
+**Georgia Supreme Court Restores State’s 6-Week Abortion Ban**\
+`The ban will resume while the court considers an appeal to a decision that had briefly restored greater access to abortions in the state.`\
+https://nytimes.com/2024/10/07/us/georgia-supreme-court-abortion-ban.html
+
+**Tampa Residents Warned to Expect ‘Worst Hurricane in Their Lifetime’**\
+`The Tampa Bay area, long used to relative safety from big storms, faces what could be its first direct hit by a major hurricane in a century.`\
+https://nytimes.com/2024/10/07/weather/tampa-hurricane-history.html
+
 **Here’s How Fast Hurricane Milton Intensified**\
 `On Monday morning, the storm was a Category 1. It became a Category 5 by noon.`\
 https://nytimes.com/2024/10/07/weather/hurricane-milton-intensity-speed.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5823044/2024/10/07/seattle-kraken-dan-bylsma-nhl/
 **Wolves part ways with set-piece coach**\
 `Wolverhampton Wanderers have parted company with set-piece coach Jack Wilson after just seven league games at Molineux.`\
 https://nytimes.com/athletic/5825811/2024/10/07/wolves-set-piece-coach-sacked/
-
-**Umpire Bernardes makes critical error in Wawrinka defeat**\
-`Cobolli broke Wawrinka's serve in the third set with the help of a scoring error — and it was the only break of serve in the match.`\
-https://nytimes.com/athletic/5825678/2024/10/07/cobolli-wawrinka-score-umpire-error-carlos-bernardes/
-
-**The Windup: How Profar embodies these Padres**\
-`Welcome to The Windup, The Athletic's daily MLB newsletter. `\
-https://nytimes.com/athletic/5825841/2024/10/07/jurickson-profar-padres-mlb-playoffs-the-windup/
 
