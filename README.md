@@ -1,3 +1,11 @@
+**Frankie Luvu, Commanders defense feeding off Jayden Daniels' infectious play**\
+`Washington's linebacker corps, led by Luvu and Bobby Wagner, helped set the tone on defense in the team's domination of the Browns.`\
+https://nytimes.com/athletic/5823602/2024/10/06/commanders-defense-browns-frankie-luvu-jayden-daniels/
+
+**Fittingly, Sun and Lynx prepare for Game 5 WNBA semifinals showdown**\
+`Through an evenly matched series, lineup tweaks and adjustments will make all the difference.`\
+https://nytimes.com/athletic/5823986/2024/10/06/sun-lynx-wnba-semifinals-game-five/
+
 **Gulf Coast States Have Been Battered by Hurricanes This Year**\
 `Here’s a look at the storms that have hit the area.`\
 https://nytimes.com/live/2024/10/05/weather/milton-hurricane-florida/gulf-coast-states-have-been-battered-by-hurricanes-this-year
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5823603/2024/10/06/bo-nix-sean-payton-sideline-alte
 **Cowboys-Steelers in weather delay due to lightning**\
 `The Steelers announced the start of the game was delayed "until further notice" and allowed fans to stay in the seating bowl.`\
 https://nytimes.com/athletic/5823811/2024/10/06/cowboys-steelers-weather-delay-lightning/
-
-**Jurickson Profar trolls fans after robbing HR**\
-`Mookie Betts thought it was out, as he rounded the bases in a home run trot.`\
-https://nytimes.com/athletic/5823803/2024/10/06/padres-jurickson-profar-trolls-dodgers-fans-after-robbing-a-home-run-in-game-2/
-
-**The Las Vegas Aces let the rest of the WNBA catch up. Now their three-peat quest is over**\
-`Will the Aces be able to keep their talented core together for the 2025 season?`\
-https://nytimes.com/athletic/5823797/2024/10/06/las-vegas-aces-loss-wnba-semifinals-liberty/
 
