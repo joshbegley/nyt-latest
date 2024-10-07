@@ -1,3 +1,11 @@
+**How Bears defense responded to early TD with dominant performance against Panthers**\
+`The Bears gave up a long touchdown run in the first quarter but buckled down after that and took the ball away three times in the win.`\
+https://nytimes.com/athletic/5823528/2024/10/07/bears-defense-dominates-panthers/
+
+**The Rockets' plan for a top-5 defense: Cam Whitmore, 'inch outs' and restraint**\
+`"I think his on-ball defense is really good already," says coach Ime Udoka of Whitmore. `\
+https://nytimes.com/athletic/5816662/2024/10/07/cam-whitmore-houston-rockets-defense/
+
 **P.J. Tucker away from LA Clippers while team figures out veteran forward's future**\
 `Tucker and the Clippers have been a poor fit since last year's trade with the 76ers.`\
 https://nytimes.com/athletic/5824584/2024/10/07/clippers-p-j-tucker-away-trade/
