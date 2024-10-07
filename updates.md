@@ -1,3 +1,15 @@
+**Hurricane Milton: Where People Are Evacuating in Florida**\
+`Updates on how the state is preparing for the storm’s arrival.`\
+https://nytimes.com/2024/10/07/weather/florida-evacuations-list-hurricane-milton.html
+
+**Manchester City vs the Premier League: The APT verdict (briefly) explained**\
+`As the fall-out from the APT legal case continues, we analyse who won what - and what could happen next`\
+https://nytimes.com/athletic/5825681/2024/10/07/premier-league-manchester-city-apt-explained/
+
+**Shams Charania leaving The Athletic to join ESPN as senior NBA insider**\
+`Charania's move comes after longtime NBA insider Adrian Wojnarowski retired from his role with ESPN in September. `\
+https://nytimes.com/athletic/5826084/2024/10/07/shams-charania-espn-the-athletic/
+
 **Musk’s Super PAC Offers $47 to Those Who Help It Find Trump Voters**\
 `Musk’s group wants registered voters to sign a petition that it can use to target potential supporters of Donald Trump’s presidential campaign. It’s offering a cash reward for referrals.`\
 https://nytimes.com/2024/10/07/us/politics/elon-musk-47-dollars-petition.html

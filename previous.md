@@ -1,3 +1,15 @@
+**Hurricane Milton: Where People Are Evacuating in Florida**\
+`Updates on how the state is preparing for the storm’s arrival.`\
+https://nytimes.com/2024/10/07/weather/florida-evacuations-list-hurricane-milton.html
+
+**Manchester City vs the Premier League: The APT verdict (briefly) explained**\
+`As the fall-out from the APT legal case continues, we analyse who won what - and what could happen next`\
+https://nytimes.com/athletic/5825681/2024/10/07/premier-league-manchester-city-apt-explained/
+
+**Shams Charania leaving The Athletic to join ESPN as senior NBA insider**\
+`Charania's move comes after longtime NBA insider Adrian Wojnarowski retired from his role with ESPN in September. `\
+https://nytimes.com/athletic/5826084/2024/10/07/shams-charania-espn-the-athletic/
+
 **Musk’s Super PAC Offers $47 to Those Who Help It Find Trump Voters**\
 `Musk’s group wants registered voters to sign a petition that it can use to target potential supporters of Donald Trump’s presidential campaign. It’s offering a cash reward for referrals.`\
 https://nytimes.com/2024/10/07/us/politics/elon-musk-47-dollars-petition.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/07/us/supreme-court-oral-argument.html
 **Georgia election officials see no significant disruptions in voting after Hurricane Helene.**\
 `A top official nevertheless suggested that people in storm-affected areas consider returning absentee ballots in person.`\
 https://nytimes.com/live/2024/10/07/us/harris-trump-election/georgia-election-officials-see-no-significant-disruptions-in-voting-after-hurricane-helene
-
-**Revised House v. NCAA settlement granted preliminary approval**\
-`The settlement is not yet finalized, but it can now progress to next steps, which includes notifying class members.`\
-https://nytimes.com/athletic/5826004/2024/10/07/house-ncaa-settlement-approval-claudia-wilken/
-
-**One Year on, Israel’s Hostage Families Vow to Keep Fighting as War Escalates**\
-`Family members of hostages held in Gaza are escalating their tactics to push for a cease-fire deal. `\
-https://nytimes.com/2024/10/07/world/middleeast/israel-hostage-families-hamas-attacks.html
-
-**In Mexico, a Mayor Is Brutally Killed Just Days After Taking Office**\
-`The gruesome killing represents yet another challenge for the country’s new president, who faces increasing pressure to show progress in the fight against violent cartels.`\
-https://nytimes.com/2024/10/07/world/americas/mexico-mayor-murder.html
 
