@@ -1,3 +1,11 @@
+**Israel strikes southern Gaza after Hamas fires rockets.**\
+`By Matthew Mpoke Bigg, Bilal Shbair and Euan Ward`\
+https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/israel-strikes-southern-gaza-after-hamas-fires-rockets
+
+**Emirates bans pagers and walkie-talkies on flights after attacks.**\
+`The move comes after communication devices used by Hezbollah members exploded last month, killing dozens of people.`\
+https://nytimes.com/2024/10/07/world/middleeast/emirates-bans-pagers-and-walkie-talkies-on-flights-after-attacks.html
+
 **Mourners gather in Nir Oz, a symbol of Israel’s security failures.**\
 `By Sergey Ponomarev and Aaron Boxerman`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mourners-gather-in-nir-oz-an-emblem-of-israels-security-failures
