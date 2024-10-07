@@ -1,3 +1,7 @@
+**As a Massacre Unfolded, a Frantic Call: ‘Send for Help’**\
+`When a gang assaulted a town in central Haiti last week, one woman called a local community leader begging for assistance. The massacre left at least 78 civilians dead.`\
+https://nytimes.com/2024/10/07/world/americas/haiti-gang-massacre-pont-sonde.html
+
 **Google Must Open Android to Other App Stores and Billing Options, Judge Rules**\
 `The internet giant was ordered by a federal judge to make a series of changes to address its anticompetitive conduct.`\
 https://nytimes.com/2024/10/07/technology/google-app-store-epic-games-anticompetitive.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5825243/2024/10/07/blues-opening-night-lineup-analy
 **Behind the War of Words Between Macron and Netanyahu**\
 `The French leader said countries should stop supplying weapons to Israel, arguing that providing arms while demanding a cease-fire is inconsistent. That drew the Israeli leader’s fury.`\
 https://nytimes.com/2024/10/07/world/europe/macron-netanyahu-weapons.html
-
-**Texans' Nico Collins considered 'week to week' with hamstring injury**\
-`NFL's leader in receiving yards has been a key to Houston's fast start in 2024.`\
-https://nytimes.com/athletic/5826408/2024/10/07/nico-collins-injury-texans-hamstring/
 
