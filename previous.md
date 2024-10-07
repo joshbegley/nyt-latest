@@ -1,3 +1,11 @@
+**Blues roster projection 3.0: Analyzing the potential Game 1 lineup after final cuts**\
+`The Blues are keeping 12 forwards and eight defensemen on the roster at the start of the 2024-25 season.`\
+https://nytimes.com/athletic/5825243/2024/10/07/blues-opening-night-lineup-analysis/
+
+**Behind the War of Words Between Macron and Netanyahu**\
+`The French leader said countries should stop supplying weapons to Israel, arguing that providing arms while demanding a cease-fire is inconsistent. That drew the Israeli leader’s fury.`\
+https://nytimes.com/2024/10/07/world/europe/macron-netanyahu-weapons.html
+
 **Texans' Nico Collins considered 'week to week' with hamstring injury**\
 `NFL's leader in receiving yards has been a key to Houston's fast start in 2024.`\
 https://nytimes.com/athletic/5826408/2024/10/07/nico-collins-injury-texans-hamstring/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/07/learning/israel-gaza-war-anniversary.html
 **4 Takeaways From ‘The Menendez Brothers,’ on Netflix**\
 `The documentary, based on extensive new interviews with Lyle and Erik Menendez, adds fresh nuance and details about their parents’ murders and the aftermath.`\
 https://nytimes.com/2024/10/07/arts/television/menendez-brothers-netflix-takeaways.html
-
-**College football best bets Week 7: Oregon to cover vs. Ohio State plus five other bets**\
-`Austin Mock's projection model has identified six spreads to bet for Week 7 of college football, including the marquee matchup.`\
-https://nytimes.com/athletic/5826073/2024/10/07/college-football-best-bets-week-7-oregon-ohio-state/
-
-**NFL Week 6 odds, schedule: Josh Allen vs. Aaron Rodgers caps a week of tough reckonings**\
-`A look at the odds for NFL Week 6 helps us frame the field of risers and fallers heading into a new week. `\
-https://nytimes.com/athletic/5825358/2024/10/07/nfl-week-6-odds-spreads-schedule-bills-jets/
 

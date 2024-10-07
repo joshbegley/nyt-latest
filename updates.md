@@ -1,3 +1,11 @@
+**Blues roster projection 3.0: Analyzing the potential Game 1 lineup after final cuts**\
+`The Blues are keeping 12 forwards and eight defensemen on the roster at the start of the 2024-25 season.`\
+https://nytimes.com/athletic/5825243/2024/10/07/blues-opening-night-lineup-analysis/
+
+**Behind the War of Words Between Macron and Netanyahu**\
+`The French leader said countries should stop supplying weapons to Israel, arguing that providing arms while demanding a cease-fire is inconsistent. That drew the Israeli leader’s fury.`\
+https://nytimes.com/2024/10/07/world/europe/macron-netanyahu-weapons.html
+
 **Viktor Bout Is Trying to Sell Weapons to the Houthis, Western Officials Say**\
 `The Russian arms dealer, who was freed in a prisoner exchange with the United States, is negotiating with the militant group in Yemen.`\
 https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/viktor-bout-houthis-weapons
