@@ -1,3 +1,15 @@
+**The Mideast War Threatens Harris in Michigan as Arab Voters Reject Her**\
+`A year after the Oct. 7 attacks, Kamala Harris faces deepening Democratic fractures in a crucial state. Interviews suggest that her support from Muslim and Arab Americans is drying up.`\
+https://nytimes.com/2024/10/07/us/politics/michigan-harris-arab-muslim-jewish-voters.html
+
+**Review: An Ambitious Work, as Flimsy as a House of Cards**\
+`Robert Lepage’s latest play, “Faith, Money, War and Love,” runs for five hours, and aims to depict Germany since the end of World War II.`\
+https://nytimes.com/2024/10/07/theater/robert-lepage-faith-money-war-and-love-review.html
+
+**The Cases Against Sean Combs**\
+`A discussion of the accusations the music mogul faces, the court of public opinion and how the entertainment press covers morally complicated figures.`\
+https://nytimes.com/2024/10/07/arts/music/popcast-sean-combs-diddy.html
+
 **Wolves part ways with set-piece coach**\
 `Wolverhampton Wanderers have parted company with set-piece coach Jack Wilson after just seven league games at Molineux.`\
 https://nytimes.com/athletic/5825811/2024/10/07/wolves-set-piece-coach-sacked/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5825587/2024/10/07/lewis-gross-jeremy-swayman-lebru
 **College football Week 7 odds, schedule: Red River, Ohio State-Oregon headline loaded week**\
 `The top two teams in the AP Top 25 are playing away from home against ranked opponents. Texas and Ohio State face tough tests in Week 7.`\
 https://nytimes.com/athletic/5825402/2024/10/07/college-football-week-7-odds-schedule-texas-oklahoma-ohio-state-oregon/
-
-**As desperation grows in Gaza, food aid remains out of reach.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/gaza-food-aid
-
-**Watching the Vikings go 5-0 with the voice of Minnesota, Paul Allen**\
-`The Athletic watched Sunday's game at Tottenham Hotspur stadium with Paul Allen`\
-https://nytimes.com/athletic/5825503/2024/10/07/paul-allen-minnesota-vikings-london/
-
-**Shopping for a Hard-to-Please Loved One? Ask T for Help.**\
-`Send us a question about a picky person on your holiday gift list and we’ll respond to the most intriguing ones with suggestions.`\
-https://nytimes.com/2024/10/07/t-magazine/holiday-gift-suggestions-questions.html
 

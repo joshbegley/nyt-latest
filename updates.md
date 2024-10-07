@@ -1,3 +1,15 @@
+**The Mideast War Threatens Harris in Michigan as Arab Voters Reject Her**\
+`A year after the Oct. 7 attacks, Kamala Harris faces deepening Democratic fractures in a crucial state. Interviews suggest that her support from Muslim and Arab Americans is drying up.`\
+https://nytimes.com/2024/10/07/us/politics/michigan-harris-arab-muslim-jewish-voters.html
+
+**Review: An Ambitious Work, as Flimsy as a House of Cards**\
+`Robert Lepage’s latest play, “Faith, Money, War and Love,” runs for five hours, and aims to depict Germany since the end of World War II.`\
+https://nytimes.com/2024/10/07/theater/robert-lepage-faith-money-war-and-love-review.html
+
+**The Cases Against Sean Combs**\
+`A discussion of the accusations the music mogul faces, the court of public opinion and how the entertainment press covers morally complicated figures.`\
+https://nytimes.com/2024/10/07/arts/music/popcast-sean-combs-diddy.html
+
 **Wolves part ways with set-piece coach**\
 `Wolverhampton Wanderers have parted company with set-piece coach Jack Wilson after just seven league games at Molineux.`\
 https://nytimes.com/athletic/5825811/2024/10/07/wolves-set-piece-coach-sacked/
