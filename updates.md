@@ -1,3 +1,7 @@
+**Barcelona unable to put exact date on Camp Nou return**\
+`Barcelona vice-president Elena Fort says there is still no agreed date for the club&#8217;s return to the Camp Nou, despite previous plans to play there before the end of 2024.`\
+https://nytimes.com/athletic/5825150/2024/10/07/barcelona-camp-nou-return-date/
+
 **Chappell Roan Seeks the Line Between IRL and URL**\
 `The rising pop singer has been transparently navigating the demands of fame — onstage and online — as she’s grown from cult queer-pop hero to zeitgeist-shaping star.`\
 https://nytimes.com/2024/10/07/arts/music/chappell-roan-live-fans.html
