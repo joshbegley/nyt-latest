@@ -1,3 +1,7 @@
+**See the Ocean Heat Fueling Hurricane Milton, in One Chart**\
+`The waters of the Atlantic Ocean have been abnormally warm, providing copious amounts of energy that can intensify storms.`\
+https://nytimes.com/interactive/2024/10/07/climate/gulf-mexico-ocean-temperature.html
+
 **Mainoo, Gibbs-White, Konsa pull out of England duty**\
 `Kobbie Mainoo, Morgan Gibbs-White and Ezri Konsa have been ruled out of England&#8217;s upcoming Nations League games against Greece and Finland through injury.`\
 https://nytimes.com/athletic/5826142/2024/10/07/england-nations-league-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/us/politics/elon-musk-47-dollars-petition.html
 **Ashton Jeanty new favorite to win Heisman, Travis Hunter moves up**\
 `Boise State's Ashton Jeanty has been a dynamic runner this season and he is now the new favorite to win the Heisman Trophy.`\
 https://nytimes.com/athletic/5825834/2024/10/07/heisman-trophy-odds-ashton-jeanty-travis-hunter-jalen-milroe/
-
-**Pro-Israel and pro-Palestinian students hold side-by-side demonstrations at Columbia.**\
-`During tense but somber vigils on the university library steps, students and their supporters expressed outrage and sorrow.`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/pro-israel-and-pro-palestinian-students-hold-side-by-side-demonstrations-at-columbia
 
