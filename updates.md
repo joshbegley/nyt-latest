@@ -1,3 +1,11 @@
+**Nobel Prize in Physiology or Medicine Is Awarded to Victor Ambros and Gary Ruvkun**\
+`The physiology or medicine prize was awarded for the two men’s discovery of microRNA and its role in post-transcriptional gene regulation.`\
+https://nytimes.com/2024/10/07/health/nobel-prize-medicine.html
+
+**Connor Bedard lived up to the hype as a rookie. What now?**\
+`Here's why Bedard could be primed for a second-year leap like Connor McDavid and Sidney Crosby once made.`\
+https://nytimes.com/athletic/5816259/2024/10/07/connor-bedard-year-two-blackhawks-nhl/
+
 **Yankees' diehard fans plea for Juan Soto to stay: 'Why would you want to leave this?'**\
 `The Bleacher Creatures hope the love they've shown Soto helps tip the scales in the Yankees' favor when he's considering free-agent offers.`\
 https://nytimes.com/athletic/5823680/2024/10/07/yankees-bleacher-creatures-juan-soto-relationship/
