@@ -1,3 +1,7 @@
+**Climbers Are Rescued After Three Nights at 20,000 Feet**\
+`The two women, one American and one British, became stranded on a Himalayan mountain when their food and equipment fell into a ravine, Indian officials said.`\
+https://nytimes.com/2024/10/07/world/asia/climbers-rescued-india-mountain.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/07/crosswords/spelling-bee-forum.html

@@ -1,3 +1,7 @@
+**Climbers Are Rescued After Three Nights at 20,000 Feet**\
+`The two women, one American and one British, became stranded on a Himalayan mountain when their food and equipment fell into a ravine, Indian officials said.`\
+https://nytimes.com/2024/10/07/world/asia/climbers-rescued-india-mountain.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/07/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/opinion/oct-7-anniversary-israel-hamas.html
 **My Heart Remains Captive in Gaza**\
 `My name is Yaffa Adar. I’m 86 years old. I was a hostage of Hamas.`\
 https://nytimes.com/2024/10/07/opinion/my-heart-remains-captive-in-gaza.html
-
-**I Was a Best-Seller. Then I Went Back to School.**\
-`A writer reconsiders the value of literature and goes back to school to study behavioral change — and maybe change himself.`\
-https://nytimes.com/2024/10/07/opinion/novelist-back-to-school-behavioral-science-identity.html
 
