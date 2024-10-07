@@ -1,3 +1,19 @@
+**One Year On, Israel’s Hostage Families Vow to Keep Fighting as War Escalates**\
+`Family members of hostages held in Gaza are escalating their tactics to push for a cease-fire deal. `\
+https://nytimes.com/2024/10/07/world/middleeast/israel-hostage-families-hamas-attacks.html
+
+**In Mexico, a Mayor Is Brutally Killed Just Days After Taking Office**\
+`The gruesome killing represents yet another challenge for the country’s new president, who faces increasing pressure to show progress in the fight against violent cartels.`\
+https://nytimes.com/2024/10/07/world/americas/mexico-mayor-murder.html
+
+**Why Israel’s Hostage Families Are Turning on Their Government**\
+`Family members of hostages held in Gaza are escalating their tactics to push for a cease-fire deal. They say the government is dragging out the war in Gaza for political reasons, and putting their family members’ lives at risk.`\
+https://nytimes.com/video/world/middleeast/100000009691035/israel-hostages-families.html
+
+**Georgia Supreme Court Restores State’s 6-Week Abortion Ban**\
+`The ban will resume while the court considers an appeal to a decision that had briefly allowed greater access to abortions in the state.`\
+https://nytimes.com/2024/10/07/us/georgia-supreme-court-abortion-ban.html
+
 **Manchester City vs the Premier League - explaining the 115* charges and what happens next**\
 `The APT dispute between Manchester City and the Premier League has reached a verdict but a far bigger case continues`\
 https://nytimes.com/athletic/5824730/2024/10/07/manchester-city-115/
