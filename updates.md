@@ -1,3 +1,7 @@
+**France Has Made Itself Irrelevant on the World Stage**\
+`If you don’t play the game, you don’t make the rules.`\
+https://nytimes.com/live/2024/10/02/opinion/thepoint/macron-israel-weapons-ban
+
 **Addressing a Silent Epidemic**\
 `Why oral health is the next logical step in self-care.`\
 https://nytimes.com/paidpost/proclaim/addressing-a-silent-epidemic.html
