@@ -1,3 +1,11 @@
+**Here is what to know on the anniversary of the Oct. 7 attacks.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/here-is-what-to-know-on-the-anniversary-of-the-oct-7-attacks
+
+**Live Updates: Memorials Mark Anniversary of Hamas-Led Attack on Israel**\
+`A year after the killings, Israelis are holding memorials and rallies for those killed and abducted. For Palestinians in Gaza, there is no reprieve from a war that has killed tens of thousands.`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war
+
 **Mets' Edwin Díaz struggles in Game 2 but 'feeling fine' after recent heavy usage**\
 `Díaz barely used his fastball in blowing the Mets' lead Sunday.`\
 https://nytimes.com/athletic/5824243/2024/10/06/mets-edwin-diaz-struggles-nlds-phillies/
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/5824085/2024/10/06/phillies-nick-castellanos-nlds-g
 `The Seahawks were supposed to beat the short-handed Giants and get to 4-1. Perhaps those expectations were part of the problem.`\
 https://nytimes.com/athletic/5824065/2024/10/06/seahawks-giants-geno-smith-blocked-kick/
 
-**Packers' Xavier McKinney makes history with NFL-high 5th INT: 'I'm on a mission'**\
+**Packers' Xavier McKinney makes history with NFL-high fifth INT: 'I'm on a mission'**\
 `McKinney is the first player since the 1970 merger with an interception in each of a player's first five games with his new team.`\
 https://nytimes.com/athletic/5824152/2024/10/06/xavier-mckinney-packers-win-fifth-interception/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5824086/2024/10/06/49ers-loss-cardinals-thursday-ni
 **Jurickson Profar trolls fans as Dodgers and Padres get chippy in Game 2**\
 `There was light-hearted trolling, which turned into sharper chirping, which devolved into at least one baseball being fired from the stands in the direction of the primary antagonist — or protagonist — depending on your perspective.`\
 https://nytimes.com/athletic/5823803/2024/10/06/padres-dodgers-jurickson-profar-mookie-betts/
-
-**Raiders’ issues run much deeper than quarterback in loss to Broncos**\
-`With O-line struggles, injuries on defense and the lack of a vertical passing game without Davante Adams, Las Vegas isn't in great shape.`\
-https://nytimes.com/athletic/5823932/2024/10/06/raiders-broncos-quarterback-gardner-minshew/
-
-**Dodgers' Freddie Freeman departs Game 2 with ankle discomfort**\
-`LOS ANGELES — Freddie Freeman, who gutted through a sprained right ankle to star in the Los Angeles Dodgers’ Game 1 victory on Saturday night, exited Sunday’s Game 2 in the sixth inning with continued discomfort in that ankle.`\
-https://nytimes.com/athletic/5824104/2024/10/06/dodgers-freddie-freeman-injury-nlds/
 
