@@ -1,3 +1,7 @@
+**Rob Blake has the Kings playing bigger and tougher. Will it work this time?**\
+`In what could be his last stand as Kings GM, Blake's latest bid to unlock playoff success is centered around more brawn.`\
+https://nytimes.com/athletic/5824542/2024/10/07/la-kings-rob-blake-2024-25-season/
+
 **Fears of a Global Oil Shock if the Mideast Crisis Intensifies**\
 `The threat of an escalating conflict between Israel and Iran has created an “extraordinarily precarious” global situation, sowing alarm about the potential economic fallout.`\
 https://nytimes.com/2024/10/07/business/middle-east-conflict-economic-risks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/us/politics/porn-actors-project-2025-ad.html
 **In a square in Tel Aviv, hostage families and supporters seek some comfort.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/in-a-square-in-tel-aviv-hostage-families-and-supporters-seek-some-comfort
-
-**Bucks' preseason opener observations: Damian Lillard looks good, Gary Trent Jr.'s injury**\
-`Giannis Antetokounmpo and Khris Middleton didn't play, but Lillard, who said the Bucks will get "the real version of me," looked great.`\
-https://nytimes.com/athletic/5824047/2024/10/07/damian-lillard-gary-trent-jr-bucks-preseason/
 
