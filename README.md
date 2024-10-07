@@ -1,3 +1,7 @@
+**Fighting Myanmar’s Patriarchy, One All-Male Panel at a Time**\
+`Ying Lao has called out the pro-democracy movement for its frequent “manels,” arguing that the exclusion of women from such discussions is hurting the cause.`\
+https://nytimes.com/2024/10/07/world/asia/myanmar-women-manels-patriarchy.html
+
 **Takeaways from Raptors' preseason debut: Absences mount while Jamal Shead impresses**\
 `The recognizable names dwindled at the Raptors’ preseason opener against the Washington Wizards on Sunday night, a 125-98 win.`\
 https://nytimes.com/athletic/5824344/2024/10/06/raptors-preseason-debut-jamal-shead/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824065/2024/10/06/seahawks-giants-geno-smith-block
 **Packers' Xavier McKinney makes history with NFL-high fifth INT: 'I'm on a mission'**\
 `McKinney is the first player since the 1970 merger with an interception in each of a player's first five games with his new team.`\
 https://nytimes.com/athletic/5824152/2024/10/06/xavier-mckinney-packers-win-fifth-interception/
-
-**When Ravens needed it most vs. Bengals, Lamar Jackson was at his best: 'That man is different'**\
-`As Joe Burrow and the Bengals kept applying pressure, the two-time MVP answered the call again and again to lead Baltimore to victory. `\
-https://nytimes.com/athletic/5823685/2024/10/06/ravens-win-bengals-lamar-jackson/
 
