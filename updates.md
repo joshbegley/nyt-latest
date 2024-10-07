@@ -1,3 +1,7 @@
+**Colts defense looks broken in loss that spoiled heroic efforts of Joe Flacco, Alec Pierce**\
+`Colts LB Zaire Franklin: “The defense, we gotta do our part. We ain’t do our part (Sunday). That’s the moral of the story.”`\
+https://nytimes.com/athletic/5823738/2024/10/06/colts-defense-gus-bradley-jaguars-joe-flacco-alec-pierce/
+
 **Josh Allen and the Bills offense are in peril. Don’t be fooled by close loss to Texans**\
 `There was plenty of blame to go around in the Bills' second straight loss.`\
 https://nytimes.com/athletic/5823729/2024/10/06/buffalo-bills-josh-allen-texans/
