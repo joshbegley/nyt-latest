@@ -1,3 +1,7 @@
+**Dak Prescott: 'Never a doubt' Cowboys were going to score touchdown on final drive**\
+`For three and a half quarters, it looked like Dak Prescott would be the reason the Cowboys would lose in prime time against the Steelers.`\
+https://nytimes.com/athletic/5824698/2024/10/07/dak-prescott-cowboys-comeback-steelers/
+
 **One Year Later**\
 `We’re covering the anniversary of the Oct. 7 attack — and how it has reshaped the Middle East.`\
 https://nytimes.com/2024/10/07/briefing/oct-7-attack-anniversary-israel-hamas-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824652/2024/10/07/sean-payton-broncos-vance-joseph
 **Padres rookie Jackson Merrill keeps playing, keeps starring: ‘He’s a bad dude’**\
 `Merrill became the youngest Padre to ever homer in the postseason.`\
 https://nytimes.com/athletic/5824575/2024/10/07/padres-nlds-jackson-merrill/
-
-**The Year Since Oct. 7**\
-`Two men in Israel and Gaza talk about how their lives have changed.`\
-https://nytimes.com/2024/10/07/podcasts/the-daily/oct-7-anniversary.html
 
