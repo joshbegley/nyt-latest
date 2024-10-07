@@ -1,3 +1,15 @@
+**Here is what to know on the anniversary of the Oct. 7 attacks.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/here-is-what-to-know-on-the-anniversary-of-the-oct-7-attacks
+
+**Live Updates: Memorials Mark Anniversary of Hamas-Led Attack on Israel**\
+`A year after the killings, Israelis are holding memorials and rallies for those killed and abducted. For Palestinians in Gaza, there is no reprieve from a war that has killed tens of thousands.`\
+https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war
+
+**Packers' Xavier McKinney makes history with NFL-high fifth INT: 'I'm on a mission'**\
+`McKinney is the first player since the 1970 merger with an interception in each of a player's first five games with his new team.`\
+https://nytimes.com/athletic/5824152/2024/10/06/xavier-mckinney-packers-win-fifth-interception/
+
 **Mets' Edwin Díaz struggles in Game 2 but 'feeling fine' after recent heavy usage**\
 `Díaz barely used his fastball in blowing the Mets' lead Sunday.`\
 https://nytimes.com/athletic/5824243/2024/10/06/mets-edwin-diaz-struggles-nlds-phillies/
