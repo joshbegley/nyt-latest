@@ -1,3 +1,7 @@
+**Israel strikes southern Gaza after Hamas fires rockets.**\
+`By Matthew Mpoke Bigg, Bilal Shbair and Euan Ward`\
+https://nytimes.com/live/2024/10/07/world/israel-iran-hezbollah-lebanon/israel-strikes-southern-gaza-after-hamas-fires-rockets
+
 **How Christian Braun and Julian Strawther can fill the Nuggets' hole at shooting guard**\
 `Whoever starts between Braun and Strawther will need to plug a significant hole left by Kentavious Caldwell-Pope, who left in free agency.`\
 https://nytimes.com/athletic/5824348/2024/10/07/christian-braun-julian-strawther-nuggets/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5824545/2024/10/07/tucker-poolman-trade-nils-hoglan
 `By Sergey Ponomarev and Aaron Boxerman`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mourners-gather-in-nir-oz-an-emblem-of-israels-security-failures
 
-**Emirates Bans Pagers and Walkie-Talkies on Flights After Attacks**\
+**Emirates bans pagers and walkie-talkies on flights after attacks.**\
 `The move comes after communication devices used by Hezbollah members exploded last month, killing dozens of people.`\
 https://nytimes.com/2024/10/07/world/middleeast/emirates-bans-pagers-and-walkie-talkies-on-flights-after-attacks.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/world/middleeast/tunisia-election-saied.html
 **The Bounce: Your NBA predictions season are here**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5824922/2024/10/07/nba-predictions-jeff-teague-desean-jackson-new-york-liberty-wnba-finals-nba-the-bounce/
-
-**Let’s Do a Donabe**\
-`Kay Chun’s chicken and vegetable donabe is soothing and mellow, ready to be perked up with citrusy ponzu and yuzu kosho.`\
-https://nytimes.com/2024/10/07/dining/lets-do-a-donabe.html
 
