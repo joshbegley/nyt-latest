@@ -1,3 +1,11 @@
+**Mind games and a wry smile: How Gazzaniga saved three penalties in one game**\
+`After his error against PSG in the Champions League, Girona's goalkeeper has gone from zero to hero after a remarkable performance on Sunday`\
+https://nytimes.com/athletic/5824626/2024/10/07/paulo-gazzaniga-three-penalty-saves/
+
+**Philip Banks, Embattled Top Adams Aide, Resigns**\
+`Mr. Banks, the deputy mayor for public safety and a close friend of Mayor Eric Adams, is among the administration officials whose phones were seized by investigators.`\
+https://nytimes.com/2024/10/07/nyregion/phil-banks-resigns-eric-adams.html
+
 **World leaders mark the anniversary with solemn words.**\
 `By Aryn Baker`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/world-leaders-mark-the-anniversary-with-solemn-words

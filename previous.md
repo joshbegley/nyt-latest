@@ -1,3 +1,11 @@
+**Mind games and a wry smile: How Gazzaniga saved three penalties in one game**\
+`After his error against PSG in the Champions League, Girona's goalkeeper has gone from zero to hero after a remarkable performance on Sunday`\
+https://nytimes.com/athletic/5824626/2024/10/07/paulo-gazzaniga-three-penalty-saves/
+
+**Philip Banks, Embattled Top Adams Aide, Resigns**\
+`Mr. Banks, the deputy mayor for public safety and a close friend of Mayor Eric Adams, is among the administration officials whose phones were seized by investigators.`\
+https://nytimes.com/2024/10/07/nyregion/phil-banks-resigns-eric-adams.html
+
 **World leaders mark the anniversary with solemn words.**\
 `By Aryn Baker`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/world-leaders-mark-the-anniversary-with-solemn-words
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5824614/2024/10/07/cowboys-jalen-tolbert-game-winni
 **Is the Golden Knights' golden era ending? Not so fast — 'We still expect to win'**\
 `Outside expectation might be lower after offseason moves, but Vegas should be strong again.`\
 https://nytimes.com/athletic/5823191/2024/10/07/golden-knights-stanley-cup-offseason/
-
-**The Giants have 4 arbitration-eligible players. Here's what they should do with them**\
-`Will the Giants tender contracts to Camilo Doval, Tyler Rogers, LaMonte Wade, Jr. and Mike Yastrzemski?`\
-https://nytimes.com/athletic/5817454/2024/10/07/sf-giants-arbitration-eligibles-camilo-doval/
-
-**Can Giants QB Daniel Jones change narrative around him? Maybe not, but wins will help**\
-`Jones and the Giants played their most complete game of the year en route to a 29-20 upset victory over the Seahawks.`\
-https://nytimes.com/athletic/5824190/2024/10/07/daniel-jones-new-york-giants-narrative/
 
