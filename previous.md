@@ -1,3 +1,7 @@
+**Hostages’ Families Endure Surreal Wait on Anniversary of Oct. 7 Attacks**\
+`More than 60 living hostages, and the bodies of about 35 others who are believed to be dead, are still in Gaza, according to the Israeli authorities.`\
+https://nytimes.com/2024/10/07/world/middleeast/october-7-hostages.html
+
 **Oilers depth chart: Josh Brown loses a job, Noah Philp on the verge and more**\
 `It was going to take something drastic for the Oilers roster to change entering training camp. That's exactly what happened.`\
 https://nytimes.com/athletic/5824537/2024/10/07/oilers-depth-chart-josh-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/video/science/100000009745828/nobel-prize-medicine-2024.html
 **WSL Briefing: Arsenal lacking 'intent', Man City must rotate, a worry for Villa**\
 `Even without Chelsea's postponed game against Manchester United, there were plenty of fireworks this weekend`\
 https://nytimes.com/athletic/5823385/2024/10/07/wsl-arsenal-man-city-villa/
-
-**Arab countries are still trying to maintain a balancing act.**\
-`By Ismaeel Naar`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/mideast-arab-countries-gaza-israel
 
