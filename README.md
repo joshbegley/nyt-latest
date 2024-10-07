@@ -1,3 +1,7 @@
+**Bo Nix, Sean Payton get into heated discussion after botched play**\
+`Payton said afterward that Nix “flipped” the play that resulted in a third-down incompletion.`\
+https://nytimes.com/athletic/5823603/2024/10/06/bo-nix-sean-payton-sideline-altercation/
+
 **Cowboys-Steelers in weather delay due to lightning**\
 `The Steelers announced the start of the game was delayed "until further notice" and allowed fans to stay in the seating bowl.`\
 https://nytimes.com/athletic/5823811/2024/10/06/cowboys-steelers-weather-delay-lightning/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823409/2024/10/06/patriots-jacoby-brissett-bad-off
 **A Year Later**\
 `Chen Almog-Goldstein was kidnapped along with her three youngest children on October 7, 2023. She tells the story of life as a hostage in Gaza.`\
 https://nytimes.com/2024/10/06/podcasts/a-year-later.html
-
-**Murray leads Cardinals' late comeback to upend 49ers 24-23: Takeaways**\
-`Arizona shuts down San Francisco in second half to stage late rally after trailing by as much as 13 points on the road. `\
-https://nytimes.com/athletic/5822420/2024/10/06/cardinals-49ers-takeaways-result/
 
