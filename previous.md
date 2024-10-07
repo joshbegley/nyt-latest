@@ -1,3 +1,7 @@
+**Ex-Rangers reliever, No. 1 pick Bush charged with DWI**\
+`Bush fled from the scene on foot before he was chased down and detained by a group of bystanders until officers arrived.`\
+https://nytimes.com/athletic/5825721/2024/10/07/matt-bush-arrest-dwi-rangers/
+
 **A Year Later, Biden Faces the Limits of U.S. Influence in the Mideast**\
 `In the immediate aftermath of the Hamas-led attacks on Oct. 7, the president stepped in to support Israel, counsel moderation and seek a lasting peace.`\
 https://nytimes.com/2024/10/07/us/politics/biden-israel-oct-7-gaza-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/us/politics/supreme-court-texas-abortion-biden.ht
 **Harris Honors Oct. 7 Dead as Victims of ‘Pure Evil’ and Vows to Defend Israel**\
 `Condemning the Hamas-led attacks a year ago and calling again for the release of hostages in Gaza, Vice President Kamala Harris also spoke of “the immense suffering of innocent Palestinians.”`\
 https://nytimes.com/2024/10/07/us/politics/harris-israel-oct-7.html
-
-**Terry Francona introduced as Reds manager: 'It just felt right' to return to Cincinnati**\
-`“It just felt right,” Francona said Monday as he was introduced as the Reds’ manager. `\
-https://nytimes.com/athletic/5826388/2024/10/07/terry-francona-reds-manager-conference/
 

@@ -1,3 +1,7 @@
+**Ex-Rangers reliever, No. 1 pick Bush charged with DWI**\
+`Bush fled from the scene on foot before he was chased down and detained by a group of bystanders until officers arrived.`\
+https://nytimes.com/athletic/5825721/2024/10/07/matt-bush-arrest-dwi-rangers/
+
 **A Year Later, Biden Faces the Limits of U.S. Influence in the Mideast**\
 `In the immediate aftermath of the Hamas-led attacks on Oct. 7, the president stepped in to support Israel, counsel moderation and seek a lasting peace.`\
 https://nytimes.com/2024/10/07/us/politics/biden-israel-oct-7-gaza-hamas.html
