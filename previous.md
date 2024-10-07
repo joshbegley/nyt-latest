@@ -1,3 +1,7 @@
+**Ranking 134 college football teams after Week 6: Untangling the SEC's Chaos Week**\
+`Is the SEC good because it beats up on itself, or is that potential parity actually a sign of weakness?`\
+https://nytimes.com/athletic/5823863/2024/10/07/college-football-rankings-fbs-teams-sec/
+
 **Lando Norris talks F1 title bid: Pressure, mistakes and Max Verstappen's friendship**\
 `In one season, Norris has gone from F1 hunter to hunted. The McLaren driver sat down with The Athletic to discuss how he's changed. `\
 https://nytimes.com/athletic/5823399/2024/10/07/lando-norris-f1-title-bid-max-verstappen-friendship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824496/2024/10/07/dodgers-padres-nlds-lineup/
 **Cowboys beat Steelers with Dak's go-ahead TD throw**\
 `Dak Prescott found wide receiver Jalen Tolbert for a 4-yard touchdown pass to take the lead with 20 seconds to play.`\
 https://nytimes.com/athletic/5824306/2024/10/07/cowboys-steelers-score-results-takeaways/
-
-**What’s on TV This Week: ‘Below Deck Sailing Yacht’ and ‘Abbott Elementary’**\
-`Bravo airs its reality show about “yachties,” and ABC is back with its Emmy-winning sitcom.`\
-https://nytimes.com/2024/10/07/arts/television/whats-on-tv-below-deck-sailing-yacht-abbott-elementary.html
 
