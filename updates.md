@@ -1,3 +1,7 @@
+**Dak Prescott: 'Never a doubt' Cowboys were going to score touchdown on final drive**\
+`For three and a half quarters, it looked like Dak Prescott would be the reason the Cowboys would lose in prime time against the Steelers.`\
+https://nytimes.com/athletic/5824698/2024/10/07/dak-prescott-cowboys-comeback-steelers/
+
 **One Year Later**\
 `We’re covering the anniversary of the Oct. 7 attack — and how it has reshaped the Middle East.`\
 https://nytimes.com/2024/10/07/briefing/oct-7-attack-anniversary-israel-hamas-gaza.html
