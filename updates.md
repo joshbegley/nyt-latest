@@ -1,3 +1,7 @@
+**‘Evacuate Now’: Biden Urges Floridians to Flee Hurricane Milton**\
+`President Biden called Hurricane Milton “a matter of life and death” for Florida residents.`\
+https://nytimes.com/video/weather/100000009749472/biden-hurricane-milton.html
+
 **Ipswich's Tuanzebe sidelined with washing up injury**\
 `Ipswich Town right-back Axel Tuanzebe is facing at least a month out after sustaining a hand injury while doing the washing up.`\
 https://nytimes.com/athletic/5828803/2024/10/08/axel-tuanzebe-washing-up-injury/

@@ -1,3 +1,7 @@
+**‘Evacuate Now’: Biden Urges Floridians to Flee Hurricane Milton**\
+`President Biden called Hurricane Milton “a matter of life and death” for Florida residents.`\
+https://nytimes.com/video/weather/100000009749472/biden-hurricane-milton.html
+
 **Ipswich's Tuanzebe sidelined with washing up injury**\
 `Ipswich Town right-back Axel Tuanzebe is facing at least a month out after sustaining a hand injury while doing the washing up.`\
 https://nytimes.com/athletic/5828803/2024/10/08/axel-tuanzebe-washing-up-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/health/transgender-teenagers-cdc-survey.html
 **How to Let People Down and Be OK With It**\
 `Setting boundaries often means disappointing others. We asked therapists for advice on how to do it — without feeling guilty.`\
 https://nytimes.com/2024/10/08/well/mind/boundaries-self-care-advice.html
-
-**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
-`With the NHL season underway, what's on your mind? Ask your questions here, and The Athletic will answer a selection in an upcoming mailbag.`\
-https://nytimes.com/athletic/5828807/2024/10/08/nhl-mailbag-trades-cap-chris-johnston/
 
