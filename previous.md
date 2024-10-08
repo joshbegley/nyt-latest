@@ -1,7 +1,3 @@
-**Harris Should Offer to Debate Trump Again — on Fox**\
-`There’s only one venue where Harris would have another opportunity to speak to 67 million people at once.`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/kamala-debate-fox-news
-
 **Wizards' Brogdon undergoes thumb surgery**\
 `The 31-year-old former Rookie of the Year and Sixth Man award winner was expected to provide stability to a young Wizards' roster. `\
 https://nytimes.com/athletic/5828076/2024/10/08/malcolm-brogdon-injury-wizards-status/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/10/08/dining/nyc-restaurant-news.html
 **Art or Trash? It Can Be a Fine Line.**\
 `Two beer cans were displayed in a Dutch museum. Then they were accidentally thrown out.`\
 https://nytimes.com/2024/10/08/arts/beer-can-art-lam-museum-thrown-out.html
+
+**Hurricane Milton's impact on sports: South Florida CFB game postponed**\
+`The storm is expected to hit Florida as a major hurricane Wednesday or Thursday.`\
+https://nytimes.com/athletic/5828288/2024/10/08/hurricane-milton-college-football/
 

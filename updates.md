@@ -1,3 +1,7 @@
+**Hurricane Milton's impact on sports: South Florida CFB game postponed**\
+`The storm is expected to hit Florida as a major hurricane Wednesday or Thursday.`\
+https://nytimes.com/athletic/5828288/2024/10/08/hurricane-milton-college-football/
+
 **Harris Should Offer to Debate Trump Again — on Fox**\
 `There’s only one venue where Harris would have another opportunity to speak to 67 million people at once.`\
 https://nytimes.com/live/2024/10/02/opinion/thepoint/kamala-debate-fox-news
