@@ -1,3 +1,15 @@
+**Palestinian officials say an Israeli strike on central Gaza hit a home and tents, killing 12.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/palestinian-officials-say-an-israeli-strike-on-central-gaza-hit-a-home-and-tents-killing-12
+
+**France’s Government Survives a No-Confidence Vote**\
+`The outcome was not a surprise, but signals a treacherous road ahead for the country’s divided legislature.`\
+https://nytimes.com/2024/10/08/world/europe/michel-barnier-france-no-confidence-vote.html
+
+**‘La Máquina’ Is a Starry Mexican Boxing Drama**\
+`The Spanish-language Hulu drama, starring Diego Luna and Gael García Bernal, skews more loopy and mysterious than gritty.`\
+https://nytimes.com/2024/10/08/arts/television/la-maquina-hulu.html
+
 **‘Evacuate Now’: Biden Urges Floridians to Flee Hurricane Milton**\
 `President Biden called Hurricane Milton “a matter of life and death” for Florida residents.`\
 https://nytimes.com/video/weather/100000009749472/biden-hurricane-milton.html

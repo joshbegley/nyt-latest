@@ -1,3 +1,15 @@
+**Palestinian officials say an Israeli strike on central Gaza hit a home and tents, killing 12.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/palestinian-officials-say-an-israeli-strike-on-central-gaza-hit-a-home-and-tents-killing-12
+
+**France’s Government Survives a No-Confidence Vote**\
+`The outcome was not a surprise, but signals a treacherous road ahead for the country’s divided legislature.`\
+https://nytimes.com/2024/10/08/world/europe/michel-barnier-france-no-confidence-vote.html
+
+**‘La Máquina’ Is a Starry Mexican Boxing Drama**\
+`The Spanish-language Hulu drama, starring Diego Luna and Gael García Bernal, skews more loopy and mysterious than gritty.`\
+https://nytimes.com/2024/10/08/arts/television/la-maquina-hulu.html
+
 **‘Evacuate Now’: Biden Urges Floridians to Flee Hurricane Milton**\
 `President Biden called Hurricane Milton “a matter of life and death” for Florida residents.`\
 https://nytimes.com/video/weather/100000009749472/biden-hurricane-milton.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/08/health/drug-prices-kamala-harris-donald-trump.htm
 **Harris Should Offer to Debate Trump Again — on Fox**\
 `There’s only one venue where Harris would have another opportunity to speak to 67 million people at once.`\
 https://nytimes.com/2024/10/02/opinion/kamala-debate-fox-news.html
-
-**Wizards' Brogdon undergoes thumb surgery**\
-`The 31-year-old former Rookie of the Year and Sixth Man award winner was expected to provide stability to a young Wizards roster. `\
-https://nytimes.com/athletic/5828076/2024/10/08/malcolm-brogdon-injury-wizards-status/
-
-**3% of American High Schoolers Identify as Transgender, First National Survey Finds**\
-`A survey by the C.D.C. found high rates of sadness, bullying and suicide attempts among transgender and gender-questioning teenagers.`\
-https://nytimes.com/2024/10/08/health/transgender-teenagers-cdc-survey.html
-
-**How to Let People Down and Be OK With It**\
-`Setting boundaries often means disappointing others. We asked therapists for advice on how to do it — without feeling guilty.`\
-https://nytimes.com/2024/10/08/well/mind/boundaries-self-care-advice.html
 
