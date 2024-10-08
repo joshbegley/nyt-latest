@@ -1,3 +1,7 @@
+**Arrest made in shooting death of former Clemson WR Diondre Overton**\
+`A month after former Clemson receiver Diondre Overton was shot and killed at a party in Greensboro, N.C., authorities have made an arrest.`\
+https://nytimes.com/athletic/5829512/2024/10/08/clemson-diondre-overton-death-arrest/
+
 **NCAA D-1 Council shortens CFB, CBB transfer window from 45 to 30 days**\
 `The NCAA Division I Council did not take the step of removing the spring football portal window.`\
 https://nytimes.com/athletic/5829716/2024/10/08/ncaa-division-i-council-college-football-basketball-transfer-window-shortened/
