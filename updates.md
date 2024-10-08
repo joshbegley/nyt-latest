@@ -1,3 +1,7 @@
+**City director of football Txiki Begiristain set to leave at the end of the season**\
+`Manchester City director of football Txiki Begiristain is expected to leave the club at end of this season.`\
+https://nytimes.com/athletic/5828809/2024/10/08/txiki-begiristain-man-city-exit/
+
 **Luis Tiant, Crowd-Pleasing Pitcher Who Baffled Hitters, Dies at 83**\
 `Cuban-born and charismatic, with a personal tale caught up in politics, he was a dominant hurler with a quirky windup who helped lead the Red Sox to a pennant in 1975.`\
 https://nytimes.com/2024/10/08/sports/baseball/luis-tiant-dead.html
