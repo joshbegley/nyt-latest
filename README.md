@@ -1,3 +1,7 @@
+**Grealish explains issue with Euro 2024 snub under Southgate**\
+`Jack Grealish has explained why he did not agree with Gareth Southgate’s controversial call to cut him from the England squad for this summer’s European Championship.`\
+https://nytimes.com/athletic/5829014/2024/10/08/jack-grealish-england-gareth-southgate/
+
 **Qantas Apologizes for Showing R-Rated Film With Nudity to Entire Flight**\
 `The scenes played on every screen, according to comments from social media users. The airlines has since said the movie “was clearly not suitable.”`\
 https://nytimes.com/2024/10/08/business/qantas-airlines-australia-r-rated-movie.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828932/2024/10/08/jeff-ulbrich-jets-new-york-inter
 **U.S. Budget Deficit Rises to $1.8 Trillion in 2024**\
 `New estimates from the Congressional Budget Office show continuing fiscal strain, despite steady economic growth.`\
 https://nytimes.com/2024/10/08/us/politics/us-budget-deficit-2024.html
-
-**Russian Spies Seeking to ‘Generate Mayhem’ in Europe, MI5 Chief Says**\
-`The head of Britain’s domestic security service said Russia’s military intelligence service was pursuing “dangerous actions conducted with increasing recklessness.”`\
-https://nytimes.com/2024/10/08/world/europe/russian-spies-mi5-uk.html
 
