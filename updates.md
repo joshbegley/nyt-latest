@@ -1,3 +1,11 @@
+**Iniesta retires from football, plans to move into coaching**\
+`Former Barcelona and Spain midfielder Andres Iniesta has announced his retirement from professional football.`\
+https://nytimes.com/athletic/5808745/2024/10/08/andres-iniesta-retires-barcelona/
+
+**How Google Was Forced to Open Up**\
+`A federal judge ordered the tech giant to let rival app stores onto its Android smartphone platform, adding to its growing list of legal headaches .`\
+https://nytimes.com/2024/10/08/business/dealbook/google-epic-app-store.html
+
 **Militao expected to play in El Clasico despite thigh injury**\
 `Real Madrid defender Eder Militao is expected to be fit for El Clasico later this month, despite being being forced to withdraw from Brazil duty with a thigh injury.`\
 https://nytimes.com/athletic/5827890/2024/10/08/eder-militao-real-madrid-injury/
