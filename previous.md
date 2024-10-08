@@ -1,3 +1,11 @@
+**Chiefs move to 5-0 as Saints' offensive woes continue**\
+`The Chiefs and the Vikings are the only remaining undefeated teams in the NFL.`\
+https://nytimes.com/athletic/5827127/2024/10/07/chiefs-saints-score-monday-night-football-takeaways/
+
+**What you need to know from the MLB playoffs: Tigers stun Guardians bullpen, Royals even with Yankees**\
+`Stock up and stock down following Monday's games, and players to watch when the National League takes the stage of Tuesday`\
+https://nytimes.com/athletic/5827420/2024/10/07/what-you-need-to-know-from-the-mlb-playoffs-tigers-stun-guardians-bullpen-yankees-fall/
+
 **Trump Sees Antisemitism in Only One Direction: On the Left**\
 `At an event marking the anniversary of Hamas’s Oct. 7 attack on Israel, Donald Trump claimed that antisemitism existed within the Democratic Party but not the Republican Party.`\
 https://nytimes.com/2024/10/07/us/politics/trump-antisemitism-oct7.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/07/world/elections-democracy-threats.html
 **After Her Arrest, a Young Activist Holds Onto Her ‘Why’**\
 `Namatai Kwekweza said she remained committed to her advocacy for change in Africa, despite a harrowing experience in Zimbabwe.`\
 https://nytimes.com/2024/10/07/world/africa/zimbabwe-activist-arrest.html
-
-**Seeking the Road to Peace in the Middle East**\
-`Panelists at the Athens Democracy Forum discussed the widening conflict and the challenge of getting the warring parties to a consensus.`\
-https://nytimes.com/2024/10/07/world/middleeast/israel-hamas-gaza-peace.html
-
-**Does India Offer a Glimmer of Hope for Democracy?**\
-`Prime Minister Modi was re-elected, but his party fell short in dominating Parliament. Was that an inflection point for the world’s largest democracy?`\
-https://nytimes.com/2024/10/07/world/asia/democracy-india-modi.html
 
