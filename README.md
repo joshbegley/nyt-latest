@@ -1,3 +1,7 @@
+**MLB to take over TV broadcasts of three teams**\
+`The takeovers come after the bankruptcy of Diamond Sports Group, and brings the number of team broadcasts MLB operates to six. `\
+https://nytimes.com/athletic/5829378/2024/10/08/mlb-tv-broadcast-takeovers/
+
 **Rashee Rice undergoes surgery; what does it mean for the Chiefs?**\
 `Rice finished the year with 24 catches, 288 yards and two touchdowns.`\
 https://nytimes.com/athletic/5829234/2024/10/08/rashee-rice-chiefs-injury-update-surgery-timeline/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/weather/hurricane-milton-planes-disney-world-hote
 **Jets’ Saleh third NFL coach fired after London loss**\
 `The Jets are 2-3 following a 23-17 loss to the Vikings on Sunday at Tottenham Hotspur Stadium in London.`\
 https://nytimes.com/athletic/5829127/2024/10/08/jets-saleh-fired-london/
-
-**Thompson: The 49ers are in save-the-season mode already, and a familiar foe is next up**\
-`It's early October and the 49ers are already in trouble, heading into a daunting stretch of the schedule with more questions than answers.`\
-https://nytimes.com/athletic/5828997/2024/10/08/san-francisco-49ers-season-seattle-seahawks/
 
