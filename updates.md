@@ -1,3 +1,7 @@
+**Liverpool's season so far: Slot's surprise and new-found control - but bigger tests await**\
+`How big a surprise is Slot's flying start at Anfield, who has impressed - and what could be achieved? Our experts have their say`\
+https://nytimes.com/athletic/5825095/2024/10/08/liverpool-season-report-card/
+
 **Inside Newcastle Q&A: January transfer priorities? Howe's position? St James' Park plans?**\
 `Which first-team players are for sale? What is the time scale for Lewis Miley's return? Chris Waugh answers your questions`\
 https://nytimes.com/athletic/5824662/2024/10/08/newcastle-transfers-eddie-howe-2/
