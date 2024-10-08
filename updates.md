@@ -1,3 +1,7 @@
+**Georgia WR Colbie Young arrested on charges of battery, assault on an unborn child**\
+`Young was booked at 4:18 a.m., with bond set at $2,500, and remained in jail as of four hours later.`\
+https://nytimes.com/athletic/5828097/2024/10/08/georgia-football-colbie-young-arrested/
+
 **Adams’s Top Deputy Mayor Resigns, Intensifying Wave of Departures**\
 `Sheena Wright, the first deputy mayor of New York City, became the seventh senior leader to leave the administration in the past few weeks.`\
 https://nytimes.com/2024/10/08/nyregion/sheena-wright-resigns-eric-adams.html
