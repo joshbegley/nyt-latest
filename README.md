@@ -1,3 +1,7 @@
+**China’s Policy Reversal Sparks ‘Mind Boggling’ Stock Rally**\
+`The government has fired up investors by encouraging banks to lend more to buyers of stock and real estate, but economists say more stimulus is needed.`\
+https://nytimes.com/2024/10/07/business/china-stocks-csi-300.html
+
 **Latest Deshaun Watson lawsuit settled confidentially: Lawyer**\
 `The lawsuit was filed against Watson in September and accused him of sexual assault and battery.`\
 https://nytimes.com/athletic/5827065/2024/10/07/deshaun-watson-lawsuit-resolved/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/us/politics/harris-gun-glock-60-minutes.html
 **Can Money Help Save Democracy?**\
 `Experts on a panel in Athens last week debated how a growth in organizations aimed at countering a rise in autocracies could help turn the tide.`\
 https://nytimes.com/2024/10/07/world/democracy-philanthropy.html
-
-**Democracy at the World’s Ballot Boxes**\
-`Much of Earth’s population has been voting this year. Where democracies are strained and stressed, is there room for optimism?`\
-https://nytimes.com/2024/10/07/world/democracy-voting-ballot-boxes.html
 
