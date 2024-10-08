@@ -1,3 +1,7 @@
+**Small Business Administration Will Soon Exhaust Disaster Loan Funds**\
+`The agency has less than $100 million for new loans, according to officials, while Hurricane Milton is headed toward Florida and after Hurricane Helene devastated much of the Southeast.`\
+https://nytimes.com/2024/10/08/us/politics/milton-helene-small-business-administration-fema.html
+
 **In Florida, Day Laborers Have Become the Backbone of Hurricane Cleanup**\
 `While they work, they face many risks, like wage theft or breathing in harmful dust and mold. Sleeping in a vehicle for weeks at a time is not uncommon, either.`\
 https://nytimes.com/2024/10/08/weather/florida-laborers-hurricane-helene-milton.html
