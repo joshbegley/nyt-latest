@@ -1,3 +1,7 @@
+**Jenna Fischer, ‘The Office’ Star, Reveals Breast Cancer Diagnosis**\
+`“I am now cancer free,’’ the actress announced on Instagram, noting that she was diagnosed with Stage 1 cancer in December and that early detection had played a key role in her successful treatment.`\
+https://nytimes.com/2024/10/08/arts/television/jenna-fischer-the-office-breast-cancer.html
+
 **We Should Want Israel to Win**\
 `Even supporters of Palestinian statehood should want Hamas and Hezbollah to lose.`\
 https://nytimes.com/2024/10/08/opinion/israel-lebanon-iran-gaza.html

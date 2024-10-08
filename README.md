@@ -1,3 +1,7 @@
+**Tracking Hurricane Milton’s Storm Surge Risk Across Florida**\
+`Updates with maps of the storm’s path, highlighting potential storm surge flooding across the coastline.`\
+https://nytimes.com/interactive/2024/10/08/weather/hurricane-milton-storm-surge.html
+
 **Jenna Fischer, ‘The Office’ Star, Reveals Breast Cancer Diagnosis**\
 `“I am now cancer free,’’ the actress announced on Instagram, noting that she was diagnosed with Stage 1 cancer in December and that early detection had played a key role in her successful treatment.`\
 https://nytimes.com/2024/10/08/arts/television/jenna-fischer-the-office-breast-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/uns-lead
 **Padres manager Mike Shildt defends Manny Machado amid commotion over dugout throw**\
 `Said Shildt, “I thought Manny’s exhibition of professionalism and leadership were on display the other night in a very tough environment.”`\
 https://nytimes.com/athletic/5829665/2024/10/08/padres-mike-shildt-defends-manny-machado-throw/
-
-**Illness forces Hampton out of Chelsea starting XI minutes before kick off**\
-`Sonia Bompastor explained goalkeeper Hannah Hampton dropped out of the Chelsea starting XI against Real Madrid shortly before kick-off due to illness.`\
-https://nytimes.com/athletic/5829613/2024/10/08/hannah-hampton-chelsea-illness/
 
