@@ -1,3 +1,7 @@
+**China to Penalize European Brandy Imports, Striking Back at Car Tariffs**\
+`Beijing’s action came days after European nations moved toward tariffs on electric vehicles from China, and it included a threat to also hit pork and car imports.`\
+https://nytimes.com/2024/10/08/business/china-europe-brandy.html
+
 **Why the Wild and Brock Faber aren't worried about a sophomore slump: 'I don’t think that’ll happen'**\
 `Faber, who finished second in Calder voting: "I'm confident that I'm able to be a better hockey player this year."`\
 https://nytimes.com/athletic/5827003/2024/10/08/wild-brock-faber-sophomore-slump/

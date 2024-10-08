@@ -1,3 +1,7 @@
+**China to Penalize European Brandy Imports, Striking Back at Car Tariffs**\
+`Beijing’s action came days after European nations moved toward tariffs on electric vehicles from China, and it included a threat to also hit pork and car imports.`\
+https://nytimes.com/2024/10/08/business/china-europe-brandy.html
+
 **Why the Wild and Brock Faber aren't worried about a sophomore slump: 'I don’t think that’ll happen'**\
 `Faber, who finished second in Calder voting: "I'm confident that I'm able to be a better hockey player this year."`\
 https://nytimes.com/athletic/5827003/2024/10/08/wild-brock-faber-sophomore-slump/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5827890/2024/10/08/eder-militao-real-madrid-injury/
 **The Athletic FC: City vs Premier League and APTs explained; Brazil's big betting question**\
 `Today in TAFC: The verdict on Manchester City's APT case is in, so who won the scuffle? Plus: Brazil's dilemma and an apology for Gazzaniga.`\
 https://nytimes.com/athletic/5827833/2024/10/08/man-city-premier-league-apts-brazil-betting-paqueta/
-
-**Israel strikes an area south of Beirut, as Hezbollah launches another rocket barrage.**\
-`By Aryn Baker, Gabby Sobelman and Euan Ward`\
-https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/israel-strikes-an-area-south-of-beirut-as-hezbollah-launches-another-rocket-barrage
 
