@@ -1,3 +1,7 @@
+**Drake Maye to get first career start as Patriots bench Brissett**\
+`Brissett has completed 58.5 percent of his passes for 696 yards and two touchdowns with one interception, while taking 17 sacks.`\
+https://nytimes.com/athletic/5829278/2024/10/08/patriots-drake-maye-starting-jacoby-brissett/
+
 **Davante Adams trade request: Latest on Jets, Saints, Steelers interest**\
 `Antonio Pierce was surprised when Adams called a meeting with the Raiders coach last Monday morning, per league sources.`\
 https://nytimes.com/athletic/5829120/2024/10/08/davante-adams-trade-raiders-jets-saints-steelers/
