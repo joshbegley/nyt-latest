@@ -1,3 +1,7 @@
+**Does Taylor Swift impact the Chiefs' betting odds? It's a silly question but we asked**\
+`Taylor Swift has attended three Chiefs games so far this year, and many more since last season. Does her presence impact the betting odds?`\
+https://nytimes.com/athletic/5828242/2024/10/08/kansas-city-chiefs-odds-taylor-swift/
+
 **Palestinian officials say an Israeli strike on central Gaza hit a home and tents, killing 12.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/palestinian-officials-say-an-israeli-strike-on-central-gaza-hit-a-home-and-tents-killing-12
