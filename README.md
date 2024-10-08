@@ -1,9 +1,13 @@
+**Kawhi Leonard is still figuring these Clippers out, just like all of us**\
+`Leonard's health and usage remain questions as he enters the sixth year in Los Angeles. Patience will be key.`\
+https://nytimes.com/athletic/5824592/2024/10/08/kawhi-leonard-clippers-changes/
+
 **Milton poses an ‘extremely serious threat’ to Florida. Here’s the latest.**\
 `By Claire Moses`\
 https://nytimes.com/live/2024/10/08/weather/hurricane-milton-florida/milton-poses-an-extremely-serious-threat-to-florida-heres-the-latest
 
 **Nobel Prize in Physics Is Awarded to 2 Scientists for Work on Machine Learning**\
-`The prize is the second 2024 science Nobel to be announced this week.`\
+`John J. Hopfield and Geoffrey E. Hinton have “showed a completely new way for us to use computers to aid and to guide us” in solving problems, the committee said.`\
 https://nytimes.com/2024/10/08/science/nobel-prize-physics.html
 
 **Live Updates: Florida Braces for Another Major Storm as Milton Approaches**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5825534/2024/10/08/mlbs-best-playoff-ballparks-2024
 **With other stars stifled, how far can Shohei Ohtani take the Dodgers?**\
 `With Freddie Freeman hurt and Mookie Betts slumping, all eyes are on Ohtani as usual: "Probably the best in the game."`\
 https://nytimes.com/athletic/5827135/2024/10/08/dodgers-mlb-shohei-ohtani-nlds/
-
-**Why the Bengals' dire situation has glimmer of hope as defense seeks answers**\
-`Cincinnati's potent offense combined with a favorable stretch of opponents could be the recipe for a turnaround.`\
-https://nytimes.com/athletic/5827176/2024/10/08/bengals-playoff-chances-defense/
 
