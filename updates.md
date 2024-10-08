@@ -1,3 +1,19 @@
+**That Gun Harris Told Oprah Winfrey About? It’s a Glock.**\
+`“And I’ve had it for quite some time,” Vice President Kamala Harris said on “60 Minutes.”`\
+https://nytimes.com/2024/10/07/us/politics/harris-gun-glock-60-minutes.html
+
+**Can Money Help Save Democracy?**\
+`Experts on a panel in Athens last week debated how a growth in organizations aimed at countering a rise in autocracies could help turn the tide.`\
+https://nytimes.com/2024/10/07/world/democracy-philanthropy.html
+
+**Democracy at the World’s Ballot Boxes**\
+`Much of Earth’s population has been voting this year. Where democracies are strained and stressed, is there room for optimism?`\
+https://nytimes.com/2024/10/07/world/democracy-voting-ballot-boxes.html
+
+**Athens Democracy Forum: Rethinking Journalism**\
+`In a time when social media tends to rule the day, what can traditional news organizations to do regain trust?`\
+https://nytimes.com/2024/10/07/business/media/athens-democracy-forum-journalism.html
+
 **In New York on Oct. 7, Honoring the Dead and Calling for an End to War**\
 `In the city, which is home both to the largest Jewish population outside Israel and to thousands of Palestinians, some gathered in protest and others in solemn remembrance.`\
 https://nytimes.com/2024/10/07/nyregion/oct-7-nyc-protest-vigil.html
