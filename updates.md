@@ -1,3 +1,11 @@
+**Welcome to Mike Kelley’s World: Beautiful, Ugly, Funny and Dumb**\
+`The American artist died in 2012, but a new exhibition in London shows how his deadpan-weirdo works continue to resonate today.`\
+https://nytimes.com/2024/10/08/arts/design/mike-kelly-tate-modern.html
+
+**Derek Carr: 'Not good' after oblique injury in Saints loss**\
+`"I'm going to do anything I can to be there," Carr said about Sunday's game against the Tampa Bay Buccaneers.`\
+https://nytimes.com/athletic/5828064/2024/10/08/derek-carr-injury-saints/
+
 **Georgia WR Colbie Young arrested on charges of battery, assault on an unborn child**\
 `Young was booked at 4:18 a.m., with bond set at $2,500, and remained in jail as of four hours later.`\
 https://nytimes.com/athletic/5828097/2024/10/08/georgia-football-colbie-young-arrested/
