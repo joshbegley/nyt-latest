@@ -1,3 +1,11 @@
+**Scoop City: Week 6 fantasy must-adds and Bijan Robinson, RB2?**\
+`A look at four must-add players after hitting on Kareem Hunt, Trey Sermon and Tank Bigsby last week. `\
+https://nytimes.com/athletic/5828469/2024/10/08/scoop-city-week-6-fantasy-must-adds-and-bijan-robinson-rb2/
+
+**Tiafoe tells umpire he 'f***** the match up' after contentious time violation**\
+`Tiafie launched into an f-bomb laden rant against umpire Jimmy Pinoargote after losing to Safiullin in Shanghai.`\
+https://nytimes.com/athletic/5828088/2024/10/08/frances-tiafoe-umpire-shanghai/
+
 **Panthers receive Stanley Cup rings in private ceremony**\
 `The ring includes 554 diamonds and depictions of the state of Florida, palm trees and a rat.`\
 https://nytimes.com/athletic/5828261/2024/10/08/florida-panthers-stanley-cup-championship-rings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5828229/2024/10/08/gregg-berhalter-chicago-fire-coa
 **Luis Tiant, Boston Red Sox legend known as ‘El Tiante,’ dies at 83**\
 `In an 18-year career, Luis Tiant won 229 games with six teams, though his greatest success came during eight seasons with the Boston Red Sox`\
 https://nytimes.com/athletic/5828260/2024/10/08/luis-tiant-obituary-red-sox/
-
-**Submit your questions for Austin Meek's Michigan football mailbag**\
-`What's on your mind about the Wolverines? Submit your Michigan mailbag questions here.`\
-https://nytimes.com/athletic/5828365/2024/10/08/michigan-football-mailbag-questions-2/
-
-**Jets fire Robert Saleh after 2-3 start to season**\
-`Saleh, 45, was hired in 2021 after a four-year stint as defensive coordinator with the San Francisco 49ers.`\
-https://nytimes.com/athletic/5828326/2024/10/08/robert-saleh-fired-jets-coach/
 

@@ -1,3 +1,11 @@
+**Scoop City: Week 6 fantasy must-adds and Bijan Robinson, RB2?**\
+`A look at four must-add players after hitting on Kareem Hunt, Trey Sermon and Tank Bigsby last week. `\
+https://nytimes.com/athletic/5828469/2024/10/08/scoop-city-week-6-fantasy-must-adds-and-bijan-robinson-rb2/
+
+**Tiafoe tells umpire he 'f***** the match up' after contentious time violation**\
+`Tiafie launched into an f-bomb laden rant against umpire Jimmy Pinoargote after losing to Safiullin in Shanghai.`\
+https://nytimes.com/athletic/5828088/2024/10/08/frances-tiafoe-umpire-shanghai/
+
 **Panthers receive Stanley Cup rings in private ceremony**\
 `The ring includes 554 diamonds and depictions of the state of Florida, palm trees and a rat.`\
 https://nytimes.com/athletic/5828261/2024/10/08/florida-panthers-stanley-cup-championship-rings/
