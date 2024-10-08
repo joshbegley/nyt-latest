@@ -1,3 +1,15 @@
+**What We Know About the Israeli Forces Fighting in Lebanon**\
+`The Israeli military has sent troops from four divisions across the border into Lebanon, but has not publicly disclosed how many.`\
+https://nytimes.com/2024/10/08/world/middleeast/israel-military-lebanon.html
+
+**Our Planet’s Twin Crises**\
+`In her last newsletter for the Times, a Climate Forward reporter reflects on the intertwined problems of climate change and biodiversity loss.`\
+https://nytimes.com/2024/10/08/climate/our-planets-twin-crises.html
+
+**49ers sign new kicker to replace injured Moody: Source**\
+`Moody went down with a high-ankle sprain during Sunday's loss to the Arizona Cardinals.`\
+https://nytimes.com/athletic/5829077/2024/10/08/49ers-jake-moody-matthew-wright/
+
 **Submit questions for Jordan Bianchi's latest NASCAR mailbag**\
 `If you have a question about anything NASCAR-related, submit it here for Jordan Bianchi's mailbag.`\
 https://nytimes.com/athletic/5829070/2024/10/08/submit-questions-for-jordan-bianchis-latest-nascar-mailbag/

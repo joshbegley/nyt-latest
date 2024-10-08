@@ -1,3 +1,15 @@
+**What We Know About the Israeli Forces Fighting in Lebanon**\
+`The Israeli military has sent troops from four divisions across the border into Lebanon, but has not publicly disclosed how many.`\
+https://nytimes.com/2024/10/08/world/middleeast/israel-military-lebanon.html
+
+**Our Planet’s Twin Crises**\
+`In her last newsletter for the Times, a Climate Forward reporter reflects on the intertwined problems of climate change and biodiversity loss.`\
+https://nytimes.com/2024/10/08/climate/our-planets-twin-crises.html
+
+**49ers sign new kicker to replace injured Moody: Source**\
+`Moody went down with a high-ankle sprain during Sunday's loss to the Arizona Cardinals.`\
+https://nytimes.com/athletic/5829077/2024/10/08/49ers-jake-moody-matthew-wright/
+
 **Submit questions for Jordan Bianchi's latest NASCAR mailbag**\
 `If you have a question about anything NASCAR-related, submit it here for Jordan Bianchi's mailbag.`\
 https://nytimes.com/athletic/5829070/2024/10/08/submit-questions-for-jordan-bianchis-latest-nascar-mailbag/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/08/us/gerald-goines-houston-officer-guilty-murder.ht
 **Netanyahu suggests Israel killed potential replacements for Hezbollah’s leaders.**\
 `Hashem Safieddine had been expected to succeed Hassan Nasrallah, his cousin. It was not immediately clear who “the replacement of the replacement” was.`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/netanyahu-hezbollah-nasrallah-replacement
-
-**Russell Wilson to ramp up practice workload, Fields remains starter**\
-`Wilson suited up as the emergency third quarterback for the first five weeks. Through four weeks, he was limited to 7-on-7 drills.`\
-https://nytimes.com/athletic/5828946/2024/10/08/russell-wilson-full-practice-participant-steelers/
-
-**Williams withdraws from Spain squad, replaced by Gomez**\
-`Nico Williams has been forced to withdraw from the Spain squad for their upcoming Nations League games.`\
-https://nytimes.com/athletic/5828804/2024/10/08/nico-williams-withdraws-spain/
-
-**Record Hot Water Is Fueling Hurricane Milton**\
-`Milton grew into a Category 5 hurricane in less than a day as it crossed warm oceans across the Gulf of Mexico.`\
-https://nytimes.com/2024/10/08/climate/hurricane-milton-ocean-temperature.html
 
