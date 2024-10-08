@@ -1,3 +1,7 @@
+**‘This Issue Is Not Going Away’: Why These Undecided Voters Are Wary of Trump**\
+`The participants discuss the vice-presidential debate and if and how it influenced their vote for president.`\
+https://nytimes.com/interactive/2024/10/08/opinion/undecided-voters-harris-trump-focus-group.html
+
 **Liverpool's season so far: Slot's surprise and new-found control - but bigger tests await**\
 `How big a surprise is Slot's flying start at Anfield, who has impressed - and what could be achieved? Our experts have their say`\
 https://nytimes.com/athletic/5825095/2024/10/08/liverpool-season-report-card/
