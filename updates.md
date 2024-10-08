@@ -1,3 +1,11 @@
+**Tracking Hurricane Milton’s Storm Surge Risk Across Florida**\
+`Updates with maps of the storm’s path, highlighting potential storm surge flooding across the coastline.`\
+https://nytimes.com/interactive/2024/10/08/weather/hurricane-milton-storm-surge.html
+
+**Ryan Fitzpatrick inks 3-year extension with Amazon to remain 'TNF' analyst**\
+`"Before the season I re-signed for three more years," Fitzpatrick told The Athletic. "I love the process of this and I love the team."`\
+https://nytimes.com/athletic/5829666/2024/10/08/ryan-fitzpatrick-contract-extension-amazon-prime-video-thursday-night-football/
+
 **Jenna Fischer, ‘The Office’ Star, Reveals Breast Cancer Diagnosis**\
 `“I am now cancer free,’’ the actress announced on Instagram, noting that she was diagnosed with Stage 1 cancer in December and that early detection had played a key role in her successful treatment.`\
 https://nytimes.com/2024/10/08/arts/television/jenna-fischer-the-office-breast-cancer.html
