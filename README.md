@@ -1,3 +1,11 @@
+**India’s Political Carnival Is Back in Season, With Mixed Results for Modi**\
+`Two closely watched elections, in Haryana and the turbulent Jammu and Kashmir, kept the surprises coming after this summer’s shocking national outcome.`\
+https://nytimes.com/2024/10/08/world/asia/india-elections-haryana-jammu-kashmir.html
+
+**Maguire out 'a few weeks' after sustaining injury against Villa**\
+`Manchester United defender Harry Maguire says he will be out for &#8220;a few weeks&#8221; after sustaining an injury during their goalless draw at Aston Villa on Sunday.`\
+https://nytimes.com/athletic/5822830/2024/10/08/harry-maguire-injury-manchester-united/
+
 **Russian Forces Push Forward in Ukraine’s East After Fall of Key Town**\
 `Russian troops have now entered Toretsk, a strategic hilltop city, and are pressing with assaults elsewhere in the Donetsk region.`\
 https://nytimes.com/2024/10/08/world/europe/russia-eastern-ukraine-toretsk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5811899/2024/10/08/tyrrell-hatton-liverpool-golf/
 **How Jesse Minter has led Chargers to a defensive transformation through 4 weeks**\
 `Minter's Chargers have been one of the best defenses in football, ranking second in EPA per play and first in success rate.`\
 https://nytimes.com/athletic/5826838/2024/10/08/jesse-minter-chargers-defensive-improvement/
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/10/08/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Final Ducks preseason observations: Lineup set, player added, Carlsson's next step**\
-`Which young defenseman looked solid in camp, and how did Cutter Gauthier fare?`\
-https://nytimes.com/athletic/5827389/2024/10/08/anaheim-ducks-opener-lineup-carlsson/
 
