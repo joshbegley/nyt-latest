@@ -1,4 +1,4 @@
-**Inside A Field Hospital in a North Carolina Mountain Town**\
+**Inside a Field Hospital in a North Carolina Mountain Town**\
 `After Hurricane Helene hit, a group of doctors and nurses quickly built a field hospital in Burnsville, N.C., to tend to patients and provide them with medical care.`\
 https://nytimes.com/video/world/americas/100000009744007/hurricane-helene-north-carolina-video.html
 
