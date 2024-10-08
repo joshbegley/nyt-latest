@@ -1,3 +1,7 @@
+**Inside Newcastle Q&A: January transfer priorities? Howe's position? St James' Park plans?**\
+`Which first-team players are for sale? What is the time scale for Lewis Miley's return? Chris Waugh answers your questions`\
+https://nytimes.com/athletic/5824662/2024/10/08/newcastle-transfers-eddie-howe-2/
+
 **Why can't English teams win the Champions League – and what does it tell us about the WSL?**\
 `An English team hasn't won the Women's Champions League since 2007. What's going wrong?`\
 https://nytimes.com/athletic/5825251/2024/10/08/english-teams-champions-league-wsl/

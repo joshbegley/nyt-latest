@@ -1,3 +1,7 @@
+**Liverpool's season so far: Slot's surprise and new-found control - but bigger tests await**\
+`How big a surprise is Slot's flying start at Anfield, who has impressed - and what could be achieved? Our experts have their say`\
+https://nytimes.com/athletic/5825095/2024/10/08/liverpool-season-report-card/
+
 **Inside Newcastle Q&A: January transfer priorities? Howe's position? St James' Park plans?**\
 `Which first-team players are for sale? What is the time scale for Lewis Miley's return? Chris Waugh answers your questions`\
 https://nytimes.com/athletic/5824662/2024/10/08/newcastle-transfers-eddie-howe-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5825183/2024/10/08/international-break-what-to-look
 **Lisa Marie Presley Makes Her Voice Heard, Once and For All**\
 `In a new memoir, “From Here to the Great Unknown,” Elvis Presley’s daughter and granddaughter take turns exploring a messy legacy.`\
 https://nytimes.com/2024/10/08/books/review/from-here-to-the-great-unknown-lisa-marie-presley-riley-keough.html
-
-**Should Lucas Paqueta and Luiz Henrique be playing for Brazil?**\
-`Lucas Paqueta and Luiz Henrique have both been called up for Brazil's national team`\
-https://nytimes.com/athletic/5824685/2024/10/08/lucas-paqueta-luiz-henrique-brazil/
 
