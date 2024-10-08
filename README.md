@@ -1,3 +1,7 @@
+**Wednesday Briefing: An Israeli Airstrike in Syria**\
+`Plus, revisiting Oppenheimer’s Communist ties.`\
+https://nytimes.com/2024/10/08/briefing/israel-syria-trump-putin-india.html
+
 **Reds notes: Terry Francona's coaching staff, front office moves and more**\
 `The Reds retained pitching coach Derek Johnson but will be adding new faces alongside Terry Francona. `\
 https://nytimes.com/athletic/5829237/2024/10/08/reds-terry-francona-coaching-staff-offseason-moves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829311/2024/10/08/bruno-fernandes-red-card-var-spu
 **Israel’s Defense Minister Postpones Trip to Washington, U.S. Says**\
 `Yoav Gallant and Defense Secretary Lloyd J. Austin III were expected to discuss Israel’s response to the Iranian missile assault on Israel last week.`\
 https://nytimes.com/2024/10/08/world/middleeast/gallant-austin-washington-visit-postponed.html
-
-**13 Things We Learned From Harris’s Interview With Howard Stern**\
-`In a lengthy sit-down, the veteran radio host extracted an array of new details about Kamala Harris’s life.`\
-https://nytimes.com/2024/10/08/us/politics/harris-howard-stern-interview.html
 
