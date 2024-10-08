@@ -1,3 +1,7 @@
+**Panthers receive Stanley Cup rings in private ceremony**\
+`The ring includes 554 diamonds and depictions of the state of Florida, palm trees and a rat.`\
+https://nytimes.com/athletic/5828261/2024/10/08/florida-panthers-stanley-cup-championship-rings/
+
 **Our Book Is Here!**\
 `The cover star: Melissa Clark’s five-star skillet chicken with tomatoes, pancetta and mozzarella (a.k.a. pizza chicken).`\
 https://nytimes.com/2024/10/08/dining/our-book-is-here.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828365/2024/10/08/michigan-football-mailbag-questi
 **Jets fire Robert Saleh after 2-3 start to season**\
 `Saleh, 45, was hired in 2021 after a four-year stint as defensive coordinator with the San Francisco 49ers.`\
 https://nytimes.com/athletic/5828326/2024/10/08/robert-saleh-fired-jets-coach/
-
-**The C.I.A. director says the risk of further escalation between Israel and Iran remains.**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/cia-director-iran-israel
 

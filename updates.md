@@ -1,3 +1,7 @@
+**Panthers receive Stanley Cup rings in private ceremony**\
+`The ring includes 554 diamonds and depictions of the state of Florida, palm trees and a rat.`\
+https://nytimes.com/athletic/5828261/2024/10/08/florida-panthers-stanley-cup-championship-rings/
+
 **Our Book Is Here!**\
 `The cover star: Melissa Clark’s five-star skillet chicken with tomatoes, pancetta and mozzarella (a.k.a. pizza chicken).`\
 https://nytimes.com/2024/10/08/dining/our-book-is-here.html
