@@ -1,3 +1,23 @@
+**The Bounce: Five NBA players due for rookie-scale extensions**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5827935/2024/10/08/jalen-green-rockets-kawhi-leonard-clippers-nba-the-bounce/
+
+**Super Bowl odds: Saleh's firing doesn't move Jets odds, Chiefs consolidate power**\
+`The Kansas City Chiefs continue to separate themselves in the odds. The Jets are still where they were before firing Robert Saleh.`\
+https://nytimes.com/athletic/5828477/2024/10/08/super-bowl-odds-jets-saleh-chiefs/
+
+**On ‘The View,’ Harris Hits at Trump’s ‘Callousness’ in His Storm Response**\
+`In a wide-ranging interview, the vice president also she could not think of a way she would act differently from President Biden, and laid out a plan to help Americans take care of aging loved ones.`\
+https://nytimes.com/2024/10/08/us/politics/harris-the-view-howard-stern-interviews.html
+
+**On Drug Prices, Harris Pushes for Deeper Cuts While Trump Offers Few Specifics**\
+`Both have campaigned for lower prescription costs. Kamala Harris has promised to expand President Biden’s policies. Donald Trump is a wild card.`\
+https://nytimes.com/2024/10/08/health/drug-prices-kamala-harris-donald-trump.html
+
+**Harris Should Offer to Debate Trump Again — on Fox**\
+`There’s only one venue where Harris would have another opportunity to speak to 67 million people at once.`\
+https://nytimes.com/2024/10/02/opinion/kamala-debate-fox-news.html
+
 **Wizards' Brogdon undergoes thumb surgery**\
 `The 31-year-old former Rookie of the Year and Sixth Man award winner was expected to provide stability to a young Wizards' roster. `\
 https://nytimes.com/athletic/5828076/2024/10/08/malcolm-brogdon-injury-wizards-status/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5828807/2024/10/08/nhl-mailbag-trades-cap-chris-joh
 **Top Musk Lieutenant Joins Trump Super PAC for Final Push**\
 `Steve Davis is often called upon by Mr. Musk to help in all-hands-on-deck situations, such as after Mr. Musk’s purchase of Twitter.`\
 https://nytimes.com/2024/10/08/us/politics/elon-musk-steve-davis-trump-super-pac.html
-
-**City director of football Txiki Begiristain set to leave at the end of the season**\
-`Manchester City director of football Txiki Begiristain is expected to leave the club at end of this season.`\
-https://nytimes.com/athletic/5828809/2024/10/08/txiki-begiristain-man-city-exit/
-
-**Luis Tiant, Crowd-Pleasing Pitcher Who Baffled Hitters, Dies at 83**\
-`Cuban-born and charismatic, with a personal tale caught up in politics, he was a dominant hurler with a quirky windup who helped lead the Red Sox to a pennant in 1975.`\
-https://nytimes.com/2024/10/08/sports/baseball/luis-tiant-dead.html
-
-**Acru, From the Atomix Team, Serves a Tasting Menu With an Australian Twang**\
-`Grand Army sets up shop in Threes Brewing, Ánimo! brings all-day Mexican breakfast to Midtown and more restaurant news.`\
-https://nytimes.com/2024/10/08/dining/nyc-restaurant-news.html
-
-**Art or Trash? It Can Be a Fine Line.**\
-`Two beer cans were displayed in a Dutch museum. Then they were accidentally thrown out.`\
-https://nytimes.com/2024/10/08/arts/beer-can-art-lam-museum-thrown-out.html
-
-**Hurricane Milton's impact on sports: South Florida CFB game postponed**\
-`The storm is expected to hit Florida as a major hurricane Wednesday or Thursday.`\
-https://nytimes.com/athletic/5828288/2024/10/08/hurricane-milton-college-football/
 
