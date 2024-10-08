@@ -1,7 +1,3 @@
-**Drake Maye to get first career start as Patriots bench Brissett**\
-`Brissett has completed 58.5 percent of his passes for 696 yards and two touchdowns with one interception, while taking 17 sacks.`\
-https://nytimes.com/athletic/5829278/2024/10/08/patriots-drake-maye-starting-jacoby-brissett/
-
 **Davante Adams trade request: Latest on Jets, Saints, Steelers interest**\
 `Antonio Pierce was surprised when Adams called a meeting with the Raiders coach last Monday morning, per league sources.`\
 https://nytimes.com/athletic/5829120/2024/10/08/davante-adams-trade-raiders-jets-saints-steelers/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/10/08/sports/football/greg-landry-dead.html
 **Poll Finds Support for Florida’s Abortion Ballot Measure Is Falling Short**\
 `Earlier surveys have shown higher support, but the state’s Republican governor is working hard to defeat the initiative.`\
 https://nytimes.com/2024/10/08/us/politics/florida-abortion-ballot-measure-poll.html
+
+**Yankees' Boone walks back Chisholm's 'lucky' comment about Royals**\
+`The Yankees and Royals split the first two games of the ALDS before heading to Kansas City for Game 3 on Wednesday.`\
+https://nytimes.com/athletic/5829215/2024/10/08/yankees-aaron-boone-jazz-chisholm-royals-lucky/
 
