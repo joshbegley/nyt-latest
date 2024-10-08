@@ -1,3 +1,7 @@
+**Rosenthal: The ‘Sinister Sling’ and the multitudes of Manny Machado**\
+`On the same night that he rallied his team in the dugout, Manny Machado instigated trouble by throwing a ball toward the Dodger dugout`\
+https://nytimes.com/athletic/5828048/2024/10/08/manny-machado-dugout-throw-dodgers-padres/
+
 **School Absences Rise as Special Education Fails Students, Suit Says**\
 `A class-action lawsuit argues that the New York City school system falls short in helping students with emotional disabilities, leaving them to miss too many school days.`\
 https://nytimes.com/2024/10/08/us/nyc-schools-absences-special-education.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/arts/design/mike-kelly-tate-modern.html
 **Derek Carr: 'Not good' after oblique injury in Saints loss**\
 `"I'm going to do anything I can to be there," Carr said about Sunday's game against the Tampa Bay Buccaneers.`\
 https://nytimes.com/athletic/5828064/2024/10/08/derek-carr-injury-saints/
-
-**Georgia WR Colbie Young arrested on charges of battery, assault on an unborn child**\
-`Young was booked at 4:18 a.m., with bond set at $2,500, and remained in jail as of four hours later.`\
-https://nytimes.com/athletic/5828097/2024/10/08/georgia-football-colbie-young-arrested/
 
