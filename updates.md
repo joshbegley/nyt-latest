@@ -1,3 +1,11 @@
+**NFL MVP odds: Patrick Mahomes still favored, but C.J. Stroud, Lamar Jackson on the move**\
+`Patrick Mahomes is still favored to win NFL MVP, but there are a number of other quarterbacks who can realistically win the award.`\
+https://nytimes.com/athletic/5828536/2024/10/08/nfl-mvp-odds-mahomes-stroud-jackson/
+
+**Biden Postpones Foreign Trip to Oversee Hurricane Milton Response**\
+`President Biden had been scheduled to leave for Germany and Angola on Thursday.`\
+https://nytimes.com/2024/10/08/us/politics/biden-trip-hurricane-milton.html
+
 **Does My Home Have Lead Pipes? And What Can I Do About Them?**\
 `New rules will require utilities to replace lead pipes nationwide. That will take time, but you can protect yourself by taking these steps.`\
 https://nytimes.com/2024/10/08/climate/lead-pipes-water-testing-filter-protection.html
