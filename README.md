@@ -1,3 +1,27 @@
+**Davante Adams trade request: Latest on Jets, Saints, Steelers interest**\
+`Antonio Pierce was surprised when Adams called a meeting with the Raiders coach last Monday morning, per league sources.`\
+https://nytimes.com/athletic/5829120/2024/10/08/davante-adams-trade-raiders-jets-saints-steelers/
+
+**On Florida’s West Coast, Airports, Amusement Parks and Hotels Announce Closures**\
+`Visit Florida, the state’s official tourism organization, warned that Hurricane Milton is expected to grow and remain “extremely dangerous.” The travel industry is taking extreme precautions.`\
+https://nytimes.com/2024/10/08/weather/hurricane-milton-planes-disney-world-hotels.html
+
+**Jets’ Saleh third NFL coach fired after London loss**\
+`The Jets are 2-3 following a 23-17 loss to the Vikings on Sunday at Tottenham Hotspur Stadium in London.`\
+https://nytimes.com/athletic/5829127/2024/10/08/jets-saleh-fired-london/
+
+**Thompson: The 49ers are in save-the-season mode already, and a familiar foe is next up**\
+`It's early October and the 49ers are already in trouble, heading into a daunting stretch of the schedule with more questions than answers.`\
+https://nytimes.com/athletic/5828997/2024/10/08/san-francisco-49ers-season-seattle-seahawks/
+
+**Biden Excoriated Netanyahu on Israel’s Conduct in the War, Woodward Book Says**\
+`The book, “War,” lays bare just how frustrated the president has become with Prime Minister Benjamin Netanyahu since the war in Gaza began.`\
+https://nytimes.com/2024/10/08/world/middleeast/biden-netanyahu-israel-woodward-book.html
+
+**Florida Rushes to Clear Helene Debris Before Milton Hits**\
+`Worried about flying wreckage, Governor Ron DeSantis said that the state was trying to clear as much debris from Hurricane Helene as possible before Hurricane Milton strikes.`\
+https://nytimes.com/2024/10/08/weather/florida-rushes-to-clear-helene-debris-before-milton-hits.html
+
 **Market share report: Kyle Pitts isn't out of the woods yet, Kareem Hunt is 'the man' and more**\
 `Despite strong fantasy football production in Week 5, Michael Salfino says Atlanta tight end Kyle Pitts has turned the corner just yet.`\
 https://nytimes.com/athletic/5828737/2024/10/08/fantasy-football-targets-touches-week-5-pitts-hunt/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/08/us/politics/florida-abortion-ballot-measure-poll.
 **Yankees' Boone walks back Chisholm's 'lucky' comment about Royals**\
 `The Yankees and Royals split the first two games of the ALDS before heading to Kansas City for Game 3 on Wednesday.`\
 https://nytimes.com/athletic/5829215/2024/10/08/yankees-aaron-boone-jazz-chisholm-royals-lucky/
-
-**Conversations and insights about the moment.**\
-``\
-https://nytimes.com/live/2024/10/08/opinion/thepoint
-
-**How Helene Has Upended North Carolina’s Election Plans**\
-`With 13 counties devastated by flooding, the state is trying to make sure that residents can still vote. Candidates have been forced to abandon door-knocking and phone banks.`\
-https://nytimes.com/2024/10/08/us/north-carolina-election-hurricane-helene.html
-
-**An A.I. Pioneer Reflects on His Nobel Moment in an Interview**\
-`The computer scientist Geoffrey Hinton spoke with The Times shortly after learning he had won the Nobel Prize for Physics.`\
-https://nytimes.com/2024/10/08/technology/nobel-prize-geoffrey-hinton-ai.html
-
-**Luis Tiant gave Red Sox great pitching and a very funky windup. His joy was just a bonus**\
-`The popular "El Tiante" was one of the best things to happen in Boston in the 70s, and Boston was one of the best things to happen to him.`\
-https://nytimes.com/athletic/5828978/2024/10/08/luis-tiant-boston-red-sox/
-
-**Fears of Hurricane Milton Drive Millions From Their Homes in Florida**\
-`More than 5.5 million people were urged to leave Florida’s western coast, one of the largest evacuations in state history. Some who have stayed for previous storms decided to go this time.`\
-https://nytimes.com/2024/10/08/weather/hurricane-milton-florida-evacuations.html
-
-**Harris Spends an Hour in the Warm Embrace of Howard Stern**\
-`The shock jock has become a required stop for Democratic politicians.`\
-https://nytimes.com/2024/10/02/opinion/harris-howard-stern.html
 
