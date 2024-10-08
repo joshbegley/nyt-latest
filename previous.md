@@ -1,3 +1,7 @@
+**Trump Sees Antisemitism in Only One Direction: On the Left**\
+`At an event marking the anniversary of Hamas’s Oct. 7 attack on Israel, Donald Trump claimed that antisemitism existed within the Democratic Party but not the Republican Party.`\
+https://nytimes.com/2024/10/07/us/politics/trump-antisemitism-oct7.html
+
 **Mirtle: Maple Leafs' overstuffed roster will make first month of season extra intriguing**\
 `Leave it to Toronto to find a way to start the season with 28 players on the roster and more than $4.3 million over the cap.`\
 https://nytimes.com/athletic/5827104/2024/10/07/maple-leafs-overstuffed-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/world/middleeast/israel-hamas-gaza-peace.html
 **Does India Offer a Glimmer of Hope for Democracy?**\
 `Prime Minister Modi was re-elected, but his party fell short in dominating Parliament. Was that an inflection point for the world’s largest democracy?`\
 https://nytimes.com/2024/10/07/world/asia/democracy-india-modi.html
-
-**Youth Leaders Make Democracy Their Focus**\
-`Six young people from around the world who attended the Athens Democracy Forum spoke about what drives them and the challenges they face.`\
-https://nytimes.com/2024/10/07/world/youth-leaders-democracy.html
 
