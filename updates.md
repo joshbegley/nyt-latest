@@ -1,3 +1,7 @@
+**Jobs and Housing Help Fuel Rapid Growth in Tampa**\
+`The region has been transformed by a number of economic and environmental factors, including its reputation for relatively few major storms.`\
+https://nytimes.com/2024/10/08/weather/tampa-florida-population-boom.html
+
 **Minshew, O'Connell to compete for Raiders' QB job in practice**\
 `Minshew has started the first five games this season but was benched in the third quarter of Sunday's loss to the Broncos.`\
 https://nytimes.com/athletic/5829375/2024/10/08/raiders-gardner-minshew-aidan-oconnell-qb-competition/

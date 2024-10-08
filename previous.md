@@ -1,3 +1,7 @@
+**Jobs and Housing Help Fuel Rapid Growth in Tampa**\
+`The region has been transformed by a number of economic and environmental factors, including its reputation for relatively few major storms.`\
+https://nytimes.com/2024/10/08/weather/tampa-florida-population-boom.html
+
 **Minshew, O'Connell to compete for Raiders' QB job in practice**\
 `Minshew has started the first five games this season but was benched in the third quarter of Sunday's loss to the Broncos.`\
 https://nytimes.com/athletic/5829375/2024/10/08/raiders-gardner-minshew-aidan-oconnell-qb-competition/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829278/2024/10/08/patriots-drake-maye-starting-jac
 **Davante Adams trade request: Latest on Jets, Saints, Steelers interest**\
 `Antonio Pierce was surprised when Adams called a meeting with the Raiders coach last Monday morning, per league sources.`\
 https://nytimes.com/athletic/5829120/2024/10/08/davante-adams-trade-raiders-jets-saints-steelers/
-
-**On Florida’s West Coast, Airports, Amusement Parks and Hotels Announce Closures**\
-`Visit Florida, the state’s official tourism organization, warned that Hurricane Milton is expected to grow and remain “extremely dangerous.” The travel industry is taking extreme precautions.`\
-https://nytimes.com/2024/10/08/weather/hurricane-milton-planes-disney-world-hotels.html
 
