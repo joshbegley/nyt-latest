@@ -1,3 +1,7 @@
+**Wizards' Brogdon undergoes thumb surgery**\
+`The 31-year-old former Rookie of the Year and Sixth Man award winner was expected to provide stability to a young Wizards roster. `\
+https://nytimes.com/athletic/5828076/2024/10/08/malcolm-brogdon-injury-wizards-status/
+
 **The Bounce: Five NBA players due for rookie-scale extensions**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5827935/2024/10/08/jalen-green-rockets-kawhi-leonard-clippers-nba-the-bounce/
