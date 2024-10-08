@@ -1,3 +1,15 @@
+**Why can't English teams win the Champions League – and what does it tell us about the WSL?**\
+`An English team hasn't won the Women's Champions League since 2007. What's going wrong?`\
+https://nytimes.com/athletic/5825251/2024/10/08/english-teams-champions-league-wsl/
+
+**The Premier League season so far: Our writers' verdicts**\
+`As many Premier League's players head off on international duty, our writers take stock of the Premier League season so far`\
+https://nytimes.com/athletic/5825397/2024/10/08/premier-league-roundtable-october/
+
+**Explained: the Manchester United meeting where Erik ten Hag's role as manager will be discussed**\
+`Erik ten Hag's role as Manchester United manager will be scrutinised today at a planned meeting of the club's leadership in London`\
+https://nytimes.com/athletic/5826317/2024/10/08/erik-ten-hag-future-manchester-united-meeting/
+
 **Analysing Man United manager alternatives to Erik ten Hag: Hoeness, Van Nistelrooy, Tuchel and more**\
 `The Manchester United manager is under pressure again — but who are the realistic contenders to replace him if he leaves the club?`\
 https://nytimes.com/athletic/5815401/2024/10/08/manchester-united-manager-shortlist/
