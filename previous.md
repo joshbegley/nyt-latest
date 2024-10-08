@@ -1,3 +1,7 @@
+**Spurs assistant coach Mason in talks with Anderlecht to become new manager**\
+`Tottenham Hotspur assistant coach Ryan Mason is in talks with Anderlecht about their vacant manager&#8217;s position.`\
+https://nytimes.com/athletic/5828311/2024/10/08/tottenham-ryan-mason-anderlecht-talks/
+
 **City Hall Official Charged With Witness Tampering in Adams Inquiry**\
 `Mohamed Bahi, who worked in the mayor’s office of community affairs, was accused of instructing witnesses to lie to federal authorities.`\
 https://nytimes.com/2024/10/08/nyregion/mohamed-bahi-arrested-adams.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/cia-dire
 **Rosenthal: The ‘Sinister Sling’ and the multitudes of Manny Machado**\
 `On the same night that he rallied his team in the dugout, Manny Machado instigated trouble by throwing a ball toward the Dodger dugout`\
 https://nytimes.com/athletic/5828048/2024/10/08/manny-machado-dugout-throw-dodgers-padres/
-
-**School Absences Rise as Special Education Fails Students, Suit Says**\
-`A class-action lawsuit argues that the New York City school system falls short in helping students with emotional disabilities, leaving them to miss too many school days.`\
-https://nytimes.com/2024/10/08/us/nyc-schools-absences-special-education.html
 
