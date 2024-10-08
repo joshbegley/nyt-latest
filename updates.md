@@ -1,3 +1,11 @@
+**MLB's best playoff ballparks: Ranking the best environments for postseason madness**\
+`Some ballparks get loud, some parks get crazy, some have storied traditions and some are genuinely intimidating. `\
+https://nytimes.com/athletic/5825534/2024/10/08/mlbs-best-playoff-ballparks-2024/
+
+**With other stars stifled, how far can Shohei Ohtani take the Dodgers?**\
+`With Freddie Freeman hurt and Mookie Betts slumping, all eyes are on Ohtani as usual: "Probably the best in the game."`\
+https://nytimes.com/athletic/5827135/2024/10/08/dodgers-mlb-shohei-ohtani-nlds/
+
 **Why the Bengals' dire situation has glimmer of hope as defense seeks answers**\
 `Cincinnati's potent offense combined with a favorable stretch of opponents could be the recipe for a turnaround.`\
 https://nytimes.com/athletic/5827176/2024/10/08/bengals-playoff-chances-defense/
