@@ -1,3 +1,11 @@
+**Vandals Deface Harvard Statue and U. of Michigan Leaders’ Homes**\
+`It was not clear who was responsible for the broken windows, fake blood and pro-Palestinian slogans.`\
+https://nytimes.com/2024/10/08/us/oct-7-pro-palestinian-protests-vandalism.html
+
+**Inside a Harris Ad in Which Ex-Trump Aides Blast Him as Unfit for Office**\
+`An attack ad from Kamala Harris’s campaign uses denunciations of Donald Trump by his own former top security lieutenants to portray him as too risky to restore to power.`\
+https://nytimes.com/2024/10/08/us/politics/harris-ad-former-trump-aides-unfit.html
+
 **With Txiki Begiristain leaving Man City, what might that mean for Pep Guardiola's future?**\
 `Begiristain's successes are inextricably linked to those of Guardiola. City fans will hope that that is not the case for their futures too..`\
 https://nytimes.com/athletic/5828979/2024/10/08/txiki-begiristain-man-city-guardiola-future/

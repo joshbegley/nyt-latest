@@ -1,3 +1,11 @@
+**Vandals Deface Harvard Statue and U. of Michigan Leaders’ Homes**\
+`It was not clear who was responsible for the broken windows, fake blood and pro-Palestinian slogans.`\
+https://nytimes.com/2024/10/08/us/oct-7-pro-palestinian-protests-vandalism.html
+
+**Inside a Harris Ad in Which Ex-Trump Aides Blast Him as Unfit for Office**\
+`An attack ad from Kamala Harris’s campaign uses denunciations of Donald Trump by his own former top security lieutenants to portray him as too risky to restore to power.`\
+https://nytimes.com/2024/10/08/us/politics/harris-ad-former-trump-aides-unfit.html
+
 **With Txiki Begiristain leaving Man City, what might that mean for Pep Guardiola's future?**\
 `Begiristain's successes are inextricably linked to those of Guardiola. City fans will hope that that is not the case for their futures too..`\
 https://nytimes.com/athletic/5828979/2024/10/08/txiki-begiristain-man-city-guardiola-future/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/business/qantas-airlines-australia-r-rated-movie.
 **Valencia fans on honeymoon in Singapore held by police over Peter Lim protest**\
 `Valencia's mayor has said Spanish government officials are now seeking a resolution with counterparts in the Asian country`\
 https://nytimes.com/athletic/5828986/2024/10/08/valencia-peter-lim-singapore-protest-honeymoon/
-
-**What We Know About the Israeli Forces Fighting in Lebanon**\
-`The Israeli military has sent troops from four divisions across the border into Lebanon, but has not publicly disclosed how many.`\
-https://nytimes.com/2024/10/08/world/middleeast/israel-military-lebanon.html
-
-**Our Planet’s Twin Crises**\
-`In her last newsletter for the Times, a Climate Forward reporter reflects on the intertwined problems of climate change and biodiversity loss.`\
-https://nytimes.com/2024/10/08/climate/our-planets-twin-crises.html
 
