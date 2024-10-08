@@ -1,3 +1,7 @@
+**CBS Rebukes Anchor Over Tense Interview With Ta-Nehisi Coates**\
+`Executives said the interview, conducted by the morning show anchor Tony Dokoupil, had fallen short of network editorial standards.`\
+https://nytimes.com/2024/10/07/business/media/coates-dokoupil-cbs-mornings.html
+
 **Trump Says He’s Visited Gaza, but No Record of Such a Trip Exists**\
 `An aide, speaking on the condition of anonymity, pointed to the former president’s trip to Israel. But Gaza is not in Israel.`\
 https://nytimes.com/2024/10/07/us/politics/trump-gaza-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/us/politics/trump-harris-fema-funding.html
 **Dueling Oct. 7 memorials reflect deep fissures among Israelis.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/dueling-oct-7-memorials-reflect-deep-fissures-among-israelis
-
-**Tigers pierce stellar Guardians bullpen to tie up ALDS: Takeaways**\
-`Emmanuel Clase is the best closer in baseball. Kerry Carpenter and the Tigers got to him in the biggest of moments. `\
-https://nytimes.com/athletic/5826763/2024/10/07/tigers-guardians-score-mlb-playoffs-takeaways/
 

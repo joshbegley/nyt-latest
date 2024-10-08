@@ -1,3 +1,7 @@
+**CBS Rebukes Anchor Over Tense Interview With Ta-Nehisi Coates**\
+`Executives said the interview, conducted by the morning show anchor Tony Dokoupil, had fallen short of network editorial standards.`\
+https://nytimes.com/2024/10/07/business/media/coates-dokoupil-cbs-mornings.html
+
 **Trump Says He’s Visited Gaza, but No Record of Such a Trip Exists**\
 `An aide, speaking on the condition of anonymity, pointed to the former president’s trip to Israel. But Gaza is not in Israel.`\
 https://nytimes.com/2024/10/07/us/politics/trump-gaza-israel.html
