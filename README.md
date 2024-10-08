@@ -1,3 +1,11 @@
+**Reds notes: Terry Francona's coaching staff, front office moves and more**\
+`The Reds retained pitching coach Derek Johnson but will be adding new faces alongside Terry Francona. `\
+https://nytimes.com/athletic/5829237/2024/10/08/reds-terry-francona-coaching-staff-offseason-moves/
+
+**Will the Big Ten and SEC be part of a super league, or simply become one?**\
+`Many in and around college football are trying to determine what comes next. One question hovers over all of it: Who will be in charge?`\
+https://nytimes.com/athletic/5829079/2024/10/08/college-football-super-league-big-ten-sec/
+
 **Jobs and Housing Help Fuel Rapid Growth in Tampa**\
 `The region has been transformed by a number of economic and environmental factors, including its reputation for relatively few major storms.`\
 https://nytimes.com/2024/10/08/weather/tampa-florida-population-boom.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/world/middleeast/gallant-austin-washington-visit-
 **13 Things We Learned From Harris’s Interview With Howard Stern**\
 `In a lengthy sit-down, the veteran radio host extracted an array of new details about Kamala Harris’s life.`\
 https://nytimes.com/2024/10/08/us/politics/harris-howard-stern-interview.html
-
-**Drake Maye to get first career start as Patriots bench Brissett**\
-`Brissett has completed 58.5 percent of his passes for 696 yards and two touchdowns with one interception, while taking 17 sacks.`\
-https://nytimes.com/athletic/5829278/2024/10/08/patriots-drake-maye-starting-jacoby-brissett/
-
-**Davante Adams trade request: Latest on Jets, Saints, Steelers interest**\
-`Antonio Pierce was surprised when Adams called a meeting with the Raiders coach last Monday morning, per league sources.`\
-https://nytimes.com/athletic/5829120/2024/10/08/davante-adams-trade-raiders-jets-saints-steelers/
 
