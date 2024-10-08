@@ -1,3 +1,7 @@
+**In Florida, day laborers have become the backbone of hurricane cleanup.**\
+`By Christina Morales`\
+https://nytimes.com/2024/10/08/weather/florida-day-laborers-have-become-the-backbone-of-hurricane-cleanup.html
+
 **Raiders DL Christian Wilkins out indefinitely after foot surgery**\
 `Wilkins sustained the injury in Sunday's 34-18 loss to the Denver Broncos that dropped the Raiders to 2-3 on the season.`\
 https://nytimes.com/athletic/5829681/2024/10/08/christian-wilkins-foot-injury-surgery-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829666/2024/10/08/ryan-fitzpatrick-contract-extens
 **Israel Sends More Soldiers Into Lebanon as Strikes Hit Beirut and Damascus**\
 `In an attack of its own, Hezbollah fired 180 “projectiles” into Israel, according to the Israeli military, which said most were intercepted.`\
 https://nytimes.com/2024/10/08/world/middleeast/israel-lebanon-gaza-syria.html
-
-**U.N.’s leader warned that the loss of the agency that supports Palestinians would be a ‘catastrophe.’**\
-`António Guterres, the U.N. secretary general, was responding to the Israeli Parliament advancing two bills that would effectively ban the work of the U.N. office.`\
-https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/uns-leader-warned-that-the-loss-of-the-agency-that-supports-palestinians-would-be-a-catastrophe
 
