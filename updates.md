@@ -1,3 +1,11 @@
+**The Israeli defense minister postponed a visit to Washington to meet with the Pentagon chief, U.S. says.**\
+`The military leaders were expected to discuss Israel’s response to the Iranian missile assault on Israel last week.`\
+https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/gallant-austin-washington-visit-postponed
+
+**13 Things We Learned From Harris’s Interview With Howard Stern**\
+`In a lengthy sit-down, the veteran radio host extracted an array of new details about Kamala Harris’s life.`\
+https://nytimes.com/2024/10/08/us/politics/harris-howard-stern-interview.html
+
 **Drake Maye to get first career start as Patriots bench Brissett**\
 `Brissett has completed 58.5 percent of his passes for 696 yards and two touchdowns with one interception, while taking 17 sacks.`\
 https://nytimes.com/athletic/5829278/2024/10/08/patriots-drake-maye-starting-jacoby-brissett/
