@@ -1,9 +1,13 @@
+**Israel strikes an area south of Beirut, as Hezbollah launches another rocket barrage.**\
+`By Aryn Baker, Gabby Sobelman and Euan Ward`\
+https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/israel-strikes-an-area-south-of-beirut-as-hezbollah-launches-another-rocket-barrage
+
 **Two Scientists Awarded 2024 Nobel Prize in Physics**\
 `John J. Hopfield and Geoffrey E. Hinton were awarded the prize “for foundational discoveries and inventions that enable machine learning with artificial neural networks.”`\
 https://nytimes.com/video/science/100000009748476/2024-nobel-prize-physics-.html
 
-**City accuse Premier League of being 'misleading' in letter to other 19 clubs**\
-`Manchester City have accused the Premier League of being &#8220;misleading&#8221; following the fallout from a ruling on the league’s regulations on Associated Party Transactions (APT).`\
+**Premier League clubs to meet next week to discuss APT case fallout**\
+`Premier League clubs will meet next Thursday to discuss the league&#8217;s Associated Party Transaction regulations following Monday&#8217;s ruling on the case.`\
 https://nytimes.com/athletic/5827852/2024/10/08/manchester-city-letter-premier-league/
 
 **Faith in Drew Bannister? Why those who worked with the Blues coach closely expect success**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5827745/2024/10/08/angel-city-salary-cap-violation-
 **'I've got one job to do': Stuart Skinner on the offseason, new faces and perspective**\
 `Fresh off a trip to Game 7 of the Stanley Cup Final, Stuart Skinner enters an NHL season as the starting goaltender for the first time.`\
 https://nytimes.com/athletic/5826956/2024/10/08/oilers-stuart-skinner-interview/
-
-**The Pulse: The Super Bowl favorites are back**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5826419/2024/10/08/chiefs-saints-the-pulse/
 
