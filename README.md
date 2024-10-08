@@ -1,3 +1,7 @@
+**Canucks notebook: Patrik Allvin speaks, accruing cap space and the 3 goaltenders**\
+`Key takeaways from the Canucks GM's season-opening commentary fresh off of a whirlwind weekend that featured a trade and an extension.`\
+https://nytimes.com/athletic/5827713/2024/10/08/canucks-patrik-allvin-salary-cap-goalies/
+
 **A U.N. Official’s Payments: Zero Interest Loans, a Mercedes and a Tennis Sponsorship**\
 `The official secretly took $3 million in gifts from a businessman to whom he steered the organization’s funds, a court ruled. The U.N. got a song about the ocean.`\
 https://nytimes.com/2024/10/08/us/un-official-gifts-fraud.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5822830/2024/10/08/harry-maguire-injury-manchester-
 **Russian Forces Push Forward in Ukraine’s East After Fall of Key Town**\
 `Russian troops have now entered Toretsk, a strategic hilltop city, and are pressing with assaults elsewhere in the Donetsk region.`\
 https://nytimes.com/2024/10/08/world/europe/russia-eastern-ukraine-toretsk.html
-
-**Iniesta retires from football, plans to move into coaching**\
-`Former Barcelona and Spain midfielder Andres Iniesta has announced his retirement from professional football.`\
-https://nytimes.com/athletic/5808745/2024/10/08/andres-iniesta-retires-barcelona/
 
