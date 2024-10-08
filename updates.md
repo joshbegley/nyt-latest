@@ -1,3 +1,7 @@
+**Top Musk Lieutenant Joins Trump Super PAC for Final Push**\
+`Steve Davis is often called upon by Mr. Musk to help in all-hands-on-deck situations, such as after Mr. Musk’s purchase of Twitter.`\
+https://nytimes.com/2024/10/08/us/politics/elon-musk-steve-davis-trump-super-pac.html
+
 **City director of football Txiki Begiristain set to leave at the end of the season**\
 `Manchester City director of football Txiki Begiristain is expected to leave the club at end of this season.`\
 https://nytimes.com/athletic/5828809/2024/10/08/txiki-begiristain-man-city-exit/

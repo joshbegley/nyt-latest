@@ -1,3 +1,7 @@
+**Top Musk Lieutenant Joins Trump Super PAC for Final Push**\
+`Steve Davis is often called upon by Mr. Musk to help in all-hands-on-deck situations, such as after Mr. Musk’s purchase of Twitter.`\
+https://nytimes.com/2024/10/08/us/politics/elon-musk-steve-davis-trump-super-pac.html
+
 **City director of football Txiki Begiristain set to leave at the end of the season**\
 `Manchester City director of football Txiki Begiristain is expected to leave the club at end of this season.`\
 https://nytimes.com/athletic/5828809/2024/10/08/txiki-begiristain-man-city-exit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828536/2024/10/08/nfl-mvp-odds-mahomes-stroud-jack
 **Biden Postpones Foreign Trip to Oversee Hurricane Milton Response**\
 `President Biden had been scheduled to leave for Germany and Angola on Thursday.`\
 https://nytimes.com/2024/10/08/us/politics/biden-trip-hurricane-milton.html
-
-**Does My Home Have Lead Pipes? And What Can I Do About Them?**\
-`New rules will require utilities to replace lead pipes nationwide. That will take time, but you can protect yourself by taking these steps.`\
-https://nytimes.com/2024/10/08/climate/lead-pipes-water-testing-filter-protection.html
 
