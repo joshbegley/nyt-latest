@@ -1,3 +1,7 @@
+**‘This Issue Is Not Going Away’: Why These Undecided Voters Are Wary of Trump**\
+`The participants discuss the vice-presidential debate and if and how it influenced their vote for president.`\
+https://nytimes.com/interactive/2024/10/08/opinion/undecided-voters-harris-trump-focus-group.html
+
 **Liverpool's season so far: Slot's surprise and new-found control - but bigger tests await**\
 `How big a surprise is Slot's flying start at Anfield, who has impressed - and what could be achieved? Our experts have their say`\
 https://nytimes.com/athletic/5825095/2024/10/08/liverpool-season-report-card/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5825650/2024/10/08/postecoglou-entertainment-defini
 **Brazilian struggles and a new era for USMNT: What to look out for this international break**\
 `It'd be easy to think of the international break as a time to ignore football and enjoy other pursuits. But that would be wrong. This is why`\
 https://nytimes.com/athletic/5825183/2024/10/08/international-break-what-to-look-out-for/
-
-**Lisa Marie Presley Makes Her Voice Heard, Once and For All**\
-`In a new memoir, “From Here to the Great Unknown,” Elvis Presley’s daughter and granddaughter take turns exploring a messy legacy.`\
-https://nytimes.com/2024/10/08/books/review/from-here-to-the-great-unknown-lisa-marie-presley-riley-keough.html
 
