@@ -1,3 +1,7 @@
+**Slowly but surely, the Kyle Dubas plan in Pittsburgh is becoming clearer**\
+`The Penguins are beginning to mold the old with the young, hoping it's a plan that produces short- and long-term success.`\
+https://nytimes.com/athletic/5826816/2024/10/07/penguins-kyle-dubas-plan-prospects/
+
 **Protest That the University of Maryland Sought to Prevent Goes On**\
 `The school, citing safety, had said no to an event planned on the anniversary of the Oct. 7 attack by a chapter of Students for Justice in Palestine, but a judge’s ruling last week allowed it to go ahead.`\
 https://nytimes.com/2024/10/07/us/umd-pro-palestinian-protest-oct-7.html

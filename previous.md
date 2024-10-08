@@ -6,7 +6,7 @@ https://nytimes.com/2024/10/07/us/umd-pro-palestinian-protest-oct-7.html
 `The storm has rapidly intensified over the last few days.`\
 https://nytimes.com/2024/10/07/weather/hurricane-milton-forecast-path.html
 
-**Slowly but surely, the Kyle Dubas plan in Pittsburgh is looking a little more clear**\
+**Slowly but surely, the Kyle Dubas plan in Pittsburgh is becoming clearer**\
 `The Penguins are beginning to mold the old with the young, hoping it's a plan that produces short- and long-term success.`\
 https://nytimes.com/athletic/5826816/2024/10/07/penguins-kyle-dubas-plan-prospects/
 
