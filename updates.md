@@ -1,3 +1,7 @@
+**A U.N. Official’s Payments: Zero Interest Loans, a Mercedes and a Tennis Sponsorship**\
+`The official secretly took $3 million in gifts from a businessman to whom he steered the organization’s funds, a court ruled. The U.N. got a song about the ocean.`\
+https://nytimes.com/2024/10/08/us/un-official-gifts-fraud.html
+
 **Welcome to Mike Kelley’s World: Beautiful, Ugly, Funny and Dumb**\
 `The American artist died in 2012, but a new exhibition in London shows how his deadpan-weirdo works continue to resonate today.`\
 https://nytimes.com/2024/10/08/arts/design/mike-kelly-tate-modern.html
