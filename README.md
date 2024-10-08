@@ -1,3 +1,11 @@
+**Israel Sends More Soldiers Into Lebanon as Strikes Hit Beirut and Damascus**\
+`In an attack of its own, Hezbollah fired 180 “projectiles” into Israel, according to the Israeli military, which said most were intercepted.`\
+https://nytimes.com/2024/10/08/world/middleeast/israel-lebanon-gaza-syria.html
+
+**U.N.’s leader warned that the loss of the agency that supports Palestinians would be a ‘catastrophe.’**\
+`António Guterres, the U.N. secretary general, was responding to the Israeli Parliament advancing two bills that would effectively ban the work of the U.N. office.`\
+https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/uns-leader-warned-that-the-loss-of-the-agency-that-supports-palestinians-would-be-a-catastrophe
+
 **Padres manager Mike Shildt defends Manny Machado amid commotion over dugout throw**\
 `Said Shildt, “I thought Manny’s exhibition of professionalism and leadership were on display the other night in a very tough environment.”`\
 https://nytimes.com/athletic/5829665/2024/10/08/padres-mike-shildt-defends-manny-machado-throw/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5829430/2024/10/08/nhl-youngest-players-roster-2024
 **Volunteers Aid Those Displaced by Israeli Attacks in Lebanon**\
 `Amid Israel’s offensive and Hezbollah’s decision to continue fighting, many have found themselves caught in the middle. In the southern coastal city of Sidon, young volunteers of diverse religious backgrounds have come together to help those affected by the conflict.`\
 https://nytimes.com/video/world/middleeast/100000009749780/lebanon-war-israel-displaced.html
-
-**Millions Are Fleeing Florida’s Gulf Coast Ahead of Milton**\
-`Also, the Supreme Court appeared open to limits on “ghost guns.” Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/10/08/briefing/hurricane-milton-supreme-court-ghost-guns.html
-
-**Israeli strikes in Syria targeted a Hezbollah official involved in weapons smuggling, officials say.**\
-`Missiles fired in the attack hit a residential building in a highly fortified neighborhood in the Syrian capital of Damascus that houses embassies, according to Syria’s Defense Ministry.`\
-https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/airstrikes-damascus-hezbollah-weapons-smuggling
 
