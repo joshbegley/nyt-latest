@@ -1,3 +1,7 @@
+**Illness forces Hampton out of Chelsea starting XI minutes before kick off**\
+`Sonia Bompastor explained goalkeeper Hannah Hampton dropped out of the Chelsea starting XI against Real Madrid shortly before kick-off due to illness.`\
+https://nytimes.com/athletic/5829613/2024/10/08/hannah-hampton-chelsea-illness/
+
 **What Omarosa, John Kerry and Michael Cohen Have in Common**\
 `And why it matters in 2024.`\
 https://nytimes.com/2024/10/08/us/politics/trump-2024-election-democracy.html
