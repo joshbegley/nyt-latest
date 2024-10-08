@@ -1,3 +1,7 @@
+**The Windup: That HR was beyond a miracle**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5828708/2024/10/08/tigers-guardians-the-windup/
+
 **NFL MVP odds: Patrick Mahomes still favored, but C.J. Stroud, Lamar Jackson on the move**\
 `Patrick Mahomes is still favored to win NFL MVP, but there are a number of other quarterbacks who can realistically win the award.`\
 https://nytimes.com/athletic/5828536/2024/10/08/nfl-mvp-odds-mahomes-stroud-jackson/
