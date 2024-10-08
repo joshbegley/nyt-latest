@@ -1,40 +1,40 @@
-**Kawhi Leonard is still figuring these Clippers out, just like all of us**\
-`Leonard's health and usage remain questions as he enters the sixth year in Los Angeles. Patience will be key.`\
-https://nytimes.com/athletic/5824592/2024/10/08/kawhi-leonard-clippers-changes/
+**Vikings offense weathers off day from Sam Darnold, but does he remain a concern?**\
+`Darnold's struggles were not the only factor in Minnesota's middling offensive performance in London. Yet the Vikings escaped with a win.`\
+https://nytimes.com/athletic/5826116/2024/10/08/sam-darnold-vikings-offense-jets-london/
 
-**Milton poses an ‘extremely serious threat’ to Florida. Here’s the latest.**\
-`By Claire Moses`\
-https://nytimes.com/live/2024/10/08/weather/hurricane-milton-florida/milton-poses-an-extremely-serious-threat-to-florida-heres-the-latest
+**How Max Pacioretty's career was saved from the nightmare that nearly ended it**\
+`Max Pacioretty has been on a harrowing comeback journey after three Achilles injuries, one he hasn’t talked about in detail until now.`\
+https://nytimes.com/athletic/5825156/2024/10/08/maple-leafs-max-pacioretty/
 
-**Nobel Prize in Physics Is Awarded to 2 Scientists for Work on Machine Learning**\
-`John J. Hopfield and Geoffrey E. Hinton have “showed a completely new way for us to use computers to aid and to guide us” in solving problems, the committee said.`\
-https://nytimes.com/2024/10/08/science/nobel-prize-physics.html
+**How Brian Daboll is scheming around Giants' talent deficit, finding groove as play caller**\
+`Except for in Week 1, Daboll and the Giants have had an effective game plan for every defense they’ve faced this season. `\
+https://nytimes.com/athletic/5827106/2024/10/08/new-york-giants-brian-daboll-play-caller/
 
-**Live Updates: Florida Braces for Another Major Storm as Milton Approaches**\
-`Hurricane Milton is expected to make landfall in Tampa, Fla., on Wednesday, bringing potentially life-threatening hazards.`\
-https://nytimes.com/live/2024/10/08/weather/hurricane-milton-florida
+**Adam Fantilli, set for a relaunch, represents the Blue Jackets' greatest hope**\
+`In training camp and preseason, Fantilli looked completely healthy, plus bigger, stronger and faster than in his rookie season.`\
+https://nytimes.com/athletic/5823868/2024/10/08/fantilli-blue-jackets-injury/
 
-**How soon could Spurs taste postseason with Victor Wembanyama?**\
-`One day, Wemby's presence alone will guarantee the Spurs 35 or 40 wins. Could today be that day?`\
-https://nytimes.com/athletic/5827436/2024/10/08/victor-wembanyama-spurs-playoffs/
+**Ten bold 2024-25 Rangers predictions: A trophy, a rebound, a departure and more**\
+`With cap housekeeping done and Panarin scheduled to play Wednesday's season opener, here's where we think the Rangers' season may lead.`\
+https://nytimes.com/athletic/5826898/2024/10/08/rangers-bold-predictions-2024-25/
 
-**Japan Says It Manipulated a Photo of (Slightly) Unkempt Cabinet Ministers**\
-`The episode provided political fodder for Prime Minister Shigeru Ishiba’s critics and highlighted the country’s generally high standard of dress.`\
-https://nytimes.com/2024/10/08/world/asia/japan-doctored-cabinet-photo.html
+**Tarik Skubal, a Jobu doll and the Tigers' latest dose of October magic**\
+`What's the key to Tarik Skubal's success? His ferocious pitch mix, sure, but according to his Mom, perhaps also a famed movie prop?`\
+https://nytimes.com/athletic/5827230/2024/10/08/tarik-skubal-jobu-tigers-playoff-win/
 
-**NFL Week 5 best and worst coaching decisions: Aaron Rodgers' influence hurts Jets**\
-`The veteran QB's desired approach isn't working in New York, and a Ravens-Bengals classic saw good and bad coaching.`\
-https://nytimes.com/athletic/5822917/2024/10/08/nfl-week-5-worst-best-coaching-decisions-nguyen/
+**St. Louis Cardinals offseason primer: Early winter expectations**\
+`In his final offseason as president of baseball operations, John Mozeliak will be tasked with navigating a unique offseason strategy.`\
+https://nytimes.com/athletic/5825693/2024/10/08/st-louis-cardinals-2024-offseason-primer/
 
-**Canadiens' Juraj Slafkovský faces the weight of a nation**\
-`Slafkovský, the Canadiens' next big hope, navigates intense pressure and a lack of privacy in his native Slovakia.`\
-https://nytimes.com/athletic/5825751/2024/10/08/canadiens-juraj-slafkovsky-slovakia/
+**How NAFTA Broke American Politics**\
+`Since its passage in 1993, the trade agreement has played an outsize role in presidential elections.`\
+https://nytimes.com/2024/10/08/podcasts/the-daily/american-politics-trade.html
 
-**MLB's best playoff ballparks: Ranking the best environments for postseason madness**\
-`Some ballparks get loud, some parks get crazy, some have storied traditions and some are genuinely intimidating. `\
-https://nytimes.com/athletic/5825534/2024/10/08/mlbs-best-playoff-ballparks-2024/
+**Poll Finds Harris Rising, and Florida Braces for Hurricane Milton**\
+`Plus, have we reached peak human life span?`\
+https://nytimes.com/2024/10/08/podcasts/harris-trump-poll-milton.html
 
-**With other stars stifled, how far can Shohei Ohtani take the Dodgers?**\
-`With Freddie Freeman hurt and Mookie Betts slumping, all eyes are on Ohtani as usual: "Probably the best in the game."`\
-https://nytimes.com/athletic/5827135/2024/10/08/dodgers-mlb-shohei-ohtani-nlds/
+**What Tristan Jarry wants you to know**\
+`Jarry sees the public perception of him and is ready to start to show a different side.`\
+https://nytimes.com/athletic/5826049/2024/10/08/penguins-tristan-jarry-perception/
 
