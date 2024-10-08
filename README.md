@@ -1,3 +1,27 @@
+**Athens Democracy Forum: Where Is Global Politics Headed?**\
+`Voters have more opportunities than ever in 2024 to shape history in their countries, but war, technology and other forces pose a powerful threat, experts said.`\
+https://nytimes.com/2024/10/07/world/elections-democracy-threats.html
+
+**After Her Arrest, a Young Activist Holds Onto Her ‘Why’**\
+`Namatai Kwekweza said she remained committed to her advocacy for change in Africa, despite a harrowing experience in Zimbabwe.`\
+https://nytimes.com/2024/10/07/world/africa/zimbabwe-activist-arrest.html
+
+**Seeking the Road to Peace in the Middle East**\
+`Panelists at the Athens Democracy Forum discussed the widening conflict and the challenge of getting the warring parties to a consensus.`\
+https://nytimes.com/2024/10/07/world/middleeast/israel-hamas-gaza-peace.html
+
+**Does India Offer a Glimmer of Hope for Democracy?**\
+`Prime Minister Modi was re-elected, but his party fell short in dominating Parliament. Was that an inflection point for the world’s largest democracy?`\
+https://nytimes.com/2024/10/07/world/asia/democracy-india-modi.html
+
+**Youth Leaders Make Democracy Their Focus**\
+`Six young people from around the world who attended the Athens Democracy Forum spoke about what drives them and the challenges they face.`\
+https://nytimes.com/2024/10/07/world/youth-leaders-democracy.html
+
+**Give Some Lip**\
+`Justin Werfel edges toward the endgame.`\
+https://nytimes.com/2024/10/07/crosswords/daily-puzzle-10-08.html
+
 **That Gun Harris Told Oprah Winfrey About? It’s a Glock.**\
 `“And I’ve had it for quite some time,” Vice President Kamala Harris said on “60 Minutes.”`\
 https://nytimes.com/2024/10/07/us/politics/harris-gun-glock-60-minutes.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/07/world/democracy-voting-ballot-boxes.html
 **Athens Democracy Forum: Rethinking Journalism**\
 `In a time when social media tends to rule the day, what can traditional news organizations to do regain trust?`\
 https://nytimes.com/2024/10/07/business/media/athens-democracy-forum-journalism.html
-
-**In New York on Oct. 7, Honoring the Dead and Calling for an End to War**\
-`In the city, which is home both to the largest Jewish population outside Israel and to thousands of Palestinians, some gathered in protest and others in solemn remembrance.`\
-https://nytimes.com/2024/10/07/nyregion/oct-7-nyc-protest-vigil.html
-
-**Dodgers' Dave Roberts says Manny Machado threw at him**\
-`Roberts said: “Clearly that team over there, they like the villain-type kind of role and they feed off of that."`\
-https://nytimes.com/athletic/5827152/2024/10/07/dodgers-dave-roberts-manny-machado/
-
-**Protest That the University of Maryland Sought to Prevent Goes On**\
-`The school, citing safety, had said no to an event planned on the anniversary of the Oct. 7 attack by a chapter of Students for Justice in Palestine, but a judge’s ruling last week allowed it to go ahead.`\
-https://nytimes.com/2024/10/07/us/umd-pro-palestinian-protest-oct-7.html
-
-**Milton Is Already a Storm for the Record Books. Here’s What May Come Next.**\
-`The storm has rapidly intensified over the last few days.`\
-https://nytimes.com/2024/10/07/weather/hurricane-milton-forecast-path.html
-
-**Slowly but surely, the Kyle Dubas plan in Pittsburgh is becoming clearer**\
-`The Penguins are beginning to mold the old with the young, hoping it's a plan that produces short- and long-term success.`\
-https://nytimes.com/athletic/5826816/2024/10/07/penguins-kyle-dubas-plan-prospects/
-
-**CBS Rebukes Anchor Over Tense Interview With Ta-Nehisi Coates**\
-`Executives said the interview, conducted by the morning show anchor Tony Dokoupil, had fallen short of network editorial standards.`\
-https://nytimes.com/2024/10/07/business/media/coates-dokoupil-cbs-mornings.html
 
