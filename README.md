@@ -1,3 +1,11 @@
+**NFL MVP odds: Patrick Mahomes still favored, but C.J. Stroud, Lamar Jackson on the move**\
+`Patrick Mahomes is still favored to win NFL MVP, but there are a number of other quarterbacks who can realistically win the award.`\
+https://nytimes.com/athletic/5828536/2024/10/08/nfl-mvp-odds-mahomes-stroud-jackson/
+
+**Biden Postpones Foreign Trip to Oversee Hurricane Milton Response**\
+`President Biden had been scheduled to leave for Germany and Angola on Thursday.`\
+https://nytimes.com/2024/10/08/us/politics/biden-trip-hurricane-milton.html
+
 **Does My Home Have Lead Pipes? And What Can I Do About Them?**\
 `New rules will require utilities to replace lead pipes nationwide. That will take time, but you can protect yourself by taking these steps.`\
 https://nytimes.com/2024/10/08/climate/lead-pipes-water-testing-filter-protection.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5828092/2024/10/08/fantasy-football-who-to-drop-wee
 **Scoop City: Week 6 fantasy must-adds and Bijan Robinson, RB2?**\
 `A look at four must-add players after hitting on Kareem Hunt, Trey Sermon and Tank Bigsby last week. `\
 https://nytimes.com/athletic/5828469/2024/10/08/scoop-city-week-6-fantasy-must-adds-and-bijan-robinson-rb2/
-
-**Tiafoe tells umpire he 'f***** the match up' after contentious time violation**\
-`Tiafie launched into an f-bomb laden rant against umpire Jimmy Pinoargote after losing to Safiullin in Shanghai.`\
-https://nytimes.com/athletic/5828088/2024/10/08/frances-tiafoe-umpire-shanghai/
-
-**Panthers receive Stanley Cup rings in private ceremony**\
-`The ring includes 554 diamonds and depictions of the state of Florida, palm trees and a rat.`\
-https://nytimes.com/athletic/5828261/2024/10/08/florida-panthers-stanley-cup-championship-rings/
 
