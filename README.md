@@ -1,3 +1,7 @@
+**Padres manager Mike Shildt defends Manny Machado amid commotion over dugout throw**\
+`Said Shildt, “I thought Manny’s exhibition of professionalism and leadership were on display the other night in a very tough environment.”`\
+https://nytimes.com/athletic/5829665/2024/10/08/padres-mike-shildt-defends-manny-machado-throw/
+
 **Illness forces Hampton out of Chelsea starting XI minutes before kick off**\
 `Sonia Bompastor explained goalkeeper Hannah Hampton dropped out of the Chelsea starting XI against Real Madrid shortly before kick-off due to illness.`\
 https://nytimes.com/athletic/5829613/2024/10/08/hannah-hampton-chelsea-illness/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/briefing/hurricane-milton-supreme-court-ghost-gun
 **Israeli strikes in Syria targeted a Hezbollah official involved in weapons smuggling, officials say.**\
 `Missiles fired in the attack hit a residential building in a highly fortified neighborhood in the Syrian capital of Damascus that houses embassies, according to Syria’s Defense Ministry.`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/airstrikes-damascus-hezbollah-weapons-smuggling
-
-**FEMA Chief: Hurricane Misinformation Is ‘Worst That I Have Ever Seen’**\
-`Deanne Criswell, who heads the agency, said the circulating falsehoods were hampering its work.`\
-https://nytimes.com/2024/10/08/weather/hurricane-milton-disinformation-fema.html
 
