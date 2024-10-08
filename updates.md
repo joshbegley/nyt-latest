@@ -1,3 +1,7 @@
+**Padres manager Mike Shildt defends Manny Machado amid commotion over dugout throw**\
+`Said Shildt, “I thought Manny’s exhibition of professionalism and leadership were on display the other night in a very tough environment.”`\
+https://nytimes.com/athletic/5829665/2024/10/08/padres-mike-shildt-defends-manny-machado-throw/
+
 **Illness forces Hampton out of Chelsea starting XI minutes before kick off**\
 `Sonia Bompastor explained goalkeeper Hannah Hampton dropped out of the Chelsea starting XI against Real Madrid shortly before kick-off due to illness.`\
 https://nytimes.com/athletic/5829613/2024/10/08/hannah-hampton-chelsea-illness/
