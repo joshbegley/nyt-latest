@@ -1,3 +1,11 @@
+**NFL Week 5 best and worst coaching decisions: Aaron Rodgers' influence hurts Jets**\
+`The veteran QB's desired approach isn't working in New York, and a Ravens-Bengals classic saw good and bad coaching.`\
+https://nytimes.com/athletic/5822917/2024/10/08/nfl-week-5-worst-best-coaching-decisions-nguyen/
+
+**Canadiens' Juraj Slafkovský faces the weight of a nation**\
+`Slafkovský, the Canadiens' next big hope, navigates intense pressure and a lack of privacy in his native Slovakia.`\
+https://nytimes.com/athletic/5825751/2024/10/08/canadiens-juraj-slafkovsky-slovakia/
+
 **MLB's best playoff ballparks: Ranking the best environments for postseason madness**\
 `Some ballparks get loud, some parks get crazy, some have storied traditions and some are genuinely intimidating. `\
 https://nytimes.com/athletic/5825534/2024/10/08/mlbs-best-playoff-ballparks-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/world/americas/mexico-sinaloa-cartel-war.html
 **The Role of New York’s Lauded Looted Art Unit Is Challenged in Court**\
 `The fight is over an Egon Schiele drawing held by the Art Institute of Chicago that the Manhattan district attorney’s office seized as Nazi loot. But it has wider implications.`\
 https://nytimes.com/2024/10/08/arts/the-role-of-new-yorks-lauded-looted-art-unit-is-challenged-in-court.html
-
-**Supreme Court Will Hear Challenge to Biden Administration’s Limits on ‘Ghost Guns’**\
-`On the second day of the new term, the justices will wrestle with whether the federal government can regulate kits that can be assembled into untraceable homemade guns.`\
-https://nytimes.com/2024/10/08/us/ghost-guns-supreme-court.html
-
-**What Trump and Vance Want From Hurricane Helene**\
-`Trump has successfully trained millions of Americans to think of the truth as an obstacle to winning power.`\
-https://nytimes.com/2024/10/08/opinion/helene-trump-vance-fema.html
 
