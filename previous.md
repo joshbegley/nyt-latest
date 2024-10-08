@@ -1,3 +1,15 @@
+**Grealish explains issue with Euro 2024 snub under Southgate**\
+`Jack Grealish has explained why he did not agree with Gareth Southgate’s controversial call to cut him from the England squad for this summer’s European Championship.`\
+https://nytimes.com/athletic/5829014/2024/10/08/jack-grealish-england-gareth-southgate/
+
+**Qantas Apologizes for Showing R-Rated Film With Nudity to Entire Flight**\
+`The scenes played on every screen, according to comments from social media users. The airlines has since said the movie “was clearly not suitable.”`\
+https://nytimes.com/2024/10/08/business/qantas-airlines-australia-r-rated-movie.html
+
+**Valencia fans on honeymoon in Singapore held by police over Peter Lim protest**\
+`Valencia's mayor has said Spanish government officials are now seeking a resolution with counterparts in the Asian country`\
+https://nytimes.com/athletic/5828986/2024/10/08/valencia-peter-lim-singapore-protest-honeymoon/
+
 **What We Know About the Israeli Forces Fighting in Lebanon**\
 `The Israeli military has sent troops from four divisions across the border into Lebanon, but has not publicly disclosed how many.`\
 https://nytimes.com/2024/10/08/world/middleeast/israel-military-lebanon.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5828932/2024/10/08/jeff-ulbrich-jets-new-york-inter
 **U.S. Budget Deficit Rises to $1.8 Trillion in 2024**\
 `New estimates from the Congressional Budget Office show continuing fiscal strain, despite steady economic growth.`\
 https://nytimes.com/2024/10/08/us/politics/us-budget-deficit-2024.html
-
-**Russian Spies Seeking to ‘Generate Mayhem’ in Europe, MI5 Chief Says**\
-`The head of Britain’s domestic security service said Russia’s military intelligence service was pursuing “dangerous actions conducted with increasing recklessness.”`\
-https://nytimes.com/2024/10/08/world/europe/russian-spies-mi5-uk.html
-
-**Ex-Houston Police Officer Gets 60 Years in Prison in Drug Raid Killings**\
-`A jury had found Gerald Goines guilty of felony murder in the deaths of two people who were fatally shot during a botched drug raid in 2019.`\
-https://nytimes.com/2024/10/08/us/gerald-goines-houston-officer-guilty-murder.html
-
-**Netanyahu suggests Israel killed potential replacements for Hezbollah’s leaders.**\
-`Hashem Safieddine had been expected to succeed Hassan Nasrallah, his cousin. It was not immediately clear who “the replacement of the replacement” was.`\
-https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/netanyahu-hezbollah-nasrallah-replacement
 

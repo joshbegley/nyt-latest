@@ -1,3 +1,15 @@
+**Grealish explains issue with Euro 2024 snub under Southgate**\
+`Jack Grealish has explained why he did not agree with Gareth Southgate’s controversial call to cut him from the England squad for this summer’s European Championship.`\
+https://nytimes.com/athletic/5829014/2024/10/08/jack-grealish-england-gareth-southgate/
+
+**Qantas Apologizes for Showing R-Rated Film With Nudity to Entire Flight**\
+`The scenes played on every screen, according to comments from social media users. The airlines has since said the movie “was clearly not suitable.”`\
+https://nytimes.com/2024/10/08/business/qantas-airlines-australia-r-rated-movie.html
+
+**Valencia fans on honeymoon in Singapore held by police over Peter Lim protest**\
+`Valencia's mayor has said Spanish government officials are now seeking a resolution with counterparts in the Asian country`\
+https://nytimes.com/athletic/5828986/2024/10/08/valencia-peter-lim-singapore-protest-honeymoon/
+
 **What We Know About the Israeli Forces Fighting in Lebanon**\
 `The Israeli military has sent troops from four divisions across the border into Lebanon, but has not publicly disclosed how many.`\
 https://nytimes.com/2024/10/08/world/middleeast/israel-military-lebanon.html
