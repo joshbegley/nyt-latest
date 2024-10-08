@@ -1,3 +1,7 @@
+**Small Business Administration Will Soon Exhaust Disaster Loan Funds**\
+`The agency has less than $100 million for new loans, according to officials, while Hurricane Milton is headed toward Florida and after Hurricane Helene devastated much of the Southeast.`\
+https://nytimes.com/2024/10/08/us/politics/milton-helene-small-business-administration-fema.html
+
 **In Florida, Day Laborers Have Become the Backbone of Hurricane Cleanup**\
 `While they work, they face many risks, like wage theft or breathing in harmful dust and mold. Sleeping in a vehicle for weeks at a time is not uncommon, either.`\
 https://nytimes.com/2024/10/08/weather/florida-laborers-hurricane-helene-milton.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829716/2024/10/08/ncaa-division-i-council-college-
 **Ryan Fitzpatrick inks 3-year extension with Amazon to remain 'TNF' analyst**\
 `"Before the season I re-signed for three more years," Fitzpatrick told The Athletic. "I love the process of this and I love the team."`\
 https://nytimes.com/athletic/5829666/2024/10/08/ryan-fitzpatrick-contract-extension-amazon-prime-video-thursday-night-football/
-
-**Israel Sends More Soldiers Into Lebanon as Strikes Hit Beirut and Damascus**\
-`In an attack of its own, Hezbollah fired 180 “projectiles” into Israel, according to the Israeli military, which said most were intercepted.`\
-https://nytimes.com/2024/10/08/world/middleeast/israel-lebanon-gaza-syria.html
 
