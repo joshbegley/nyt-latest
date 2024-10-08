@@ -1,3 +1,7 @@
+**‘They just got lucky’: Why Yankees aren’t freaking out going into Game 3**\
+`“Still feels the same that we're going to win it,” Jazz Chisholm Jr. said despite a loss to the Royals on Monday.`\
+https://nytimes.com/athletic/5827585/2024/10/08/yankees-royals-alds-lucky-jazz-chisholm/
+
 **How Arsenal's rapport with Black identity resonates and endures**\
 `Through visibility and authenticity, Arsenal have normalised diversity in a way unique to their club and its supporter base`\
 https://nytimes.com/athletic/5739350/2024/10/08/black-arsenal-culture-fans-players-saka-wright/
