@@ -1,3 +1,7 @@
+**The Athletic FC: City vs Premier League and APTs explained; Brazil's big betting question**\
+`Today in TAFC: The verdict on Manchester City's APT case is in, so who won the scuffle? Plus: Brazil's dilemma and an apology for Gazzaniga.`\
+https://nytimes.com/athletic/5827833/2024/10/08/man-city-premier-league-apts-brazil-betting-paqueta/
+
 **Israel strikes an area south of Beirut, as Hezbollah launches another rocket barrage.**\
 `By Aryn Baker, Gabby Sobelman and Euan Ward`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/israel-strikes-an-area-south-of-beirut-as-hezbollah-launches-another-rocket-barrage
