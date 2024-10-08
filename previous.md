@@ -1,3 +1,27 @@
+**Why the Wild and Brock Faber aren't worried about a sophomore slump: 'I don’t think that’ll happen'**\
+`Faber, who finished second in Calder voting: "I'm confident that I'm able to be a better hockey player this year."`\
+https://nytimes.com/athletic/5827003/2024/10/08/wild-brock-faber-sophomore-slump/
+
+**Tyrrell Hatton: My Liverpool obsession - and what I learned from James Milner**\
+`The British golfer on what sparked his lifelong love for Liverpool and his Ryder Cup ambitions`\
+https://nytimes.com/athletic/5811899/2024/10/08/tyrrell-hatton-liverpool-golf/
+
+**How Jesse Minter has led Chargers to a defensive transformation through 4 weeks**\
+`Minter's Chargers have been one of the best defenses in football, ranking second in EPA per play and first in success rate.`\
+https://nytimes.com/athletic/5826838/2024/10/08/jesse-minter-chargers-defensive-improvement/
+
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/08/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Final Ducks preseason observations: Lineup set, player added, Carlsson's next step**\
+`Which young defenseman looked solid in camp, and how did Cutter Gauthier fare?`\
+https://nytimes.com/athletic/5827389/2024/10/08/anaheim-ducks-opener-lineup-carlsson/
+
+**Election Live Updates: Harris Keeps Up Media Push After ‘60 Minutes’ Interview**\
+`Vice President Kamala Harris will appear today on “The View,” Howard Stern’s radio show and “The Late Show With Stephen Colbert.” Former President Donald J. Trump has a virtual town-hall event.`\
+https://nytimes.com/live/2024/10/08/us/harris-trump-election
+
 **Why the Senators were right to send Carter Yakemchuk back to junior**\
 `The Senators sent their 2024 first-round pick back to the WHL Monday. There are two key things he'll focus on this season.`\
 https://nytimes.com/athletic/5826373/2024/10/08/senators-carter-yakemchuk-whl-nhl/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5827833/2024/10/08/man-city-premier-league-apts-bra
 **Israel strikes an area south of Beirut, as Hezbollah launches another rocket barrage.**\
 `By Aryn Baker, Gabby Sobelman and Euan Ward`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/israel-strikes-an-area-south-of-beirut-as-hezbollah-launches-another-rocket-barrage
-
-**Two Scientists Awarded 2024 Nobel Prize in Physics**\
-`John J. Hopfield and Geoffrey E. Hinton were awarded the prize “for foundational discoveries and inventions that enable machine learning with artificial neural networks.”`\
-https://nytimes.com/video/science/100000009748476/2024-nobel-prize-physics-.html
-
-**Premier League clubs to meet next week to discuss APT case fallout**\
-`Premier League clubs will meet next Thursday to discuss the league&#8217;s Associated Party Transaction regulations following Monday&#8217;s ruling on the case.`\
-https://nytimes.com/athletic/5827852/2024/10/08/manchester-city-letter-premier-league/
-
-**Faith in Drew Bannister? Why those who worked with the Blues coach closely expect success**\
-`One former colleague of Bannister as he enters his first full Blues season: "He was super prepared … and there was always a plan in place."`\
-https://nytimes.com/athletic/5820802/2024/10/08/drew-bannister-blues-coach-faith/
-
-**10 bold Bruins predictions: Swayman’s slow start, Coyle’s 30-goal year**\
-`Plus predictions for Fabian Lysell, Justin Brazeau, Mason Lohrei, Brad Marchand, Matt Poitras, both Lindholms and more.`\
-https://nytimes.com/athletic/5826602/2024/10/08/bruins-bold-predictions-swayman-coyle/
-
-**Here's what matters for the Blackhawks' 2024-25 season**\
-`The past two seasons, the goal for Chicago was clear. This season, it's not as clear-cut.`\
-https://nytimes.com/athletic/5826749/2024/10/08/blackhawks-what-matters-this-season/
-
-**Javonte Williams' usage, Bo Nix vs. blitz and more thoughts on Broncos offense**\
-`The Broncos showed signs of progress while scoring three second-half touchdowns, but they now face offensive line questions.`\
-https://nytimes.com/athletic/5825738/2024/10/08/broncos-offense-javonte-williams-bo-nix/
 
