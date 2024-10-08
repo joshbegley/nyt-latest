@@ -1,3 +1,11 @@
+**Live Q&A: Week 6 fantasy football add/drop chat with Jay Felicio, Tuesday 10/8 at 5 p.m. ET**\
+`Jay Felicio answers your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5829212/2024/10/08/live-qa-week-6-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-10-8-at-5-p-m-et/
+
+**Toronto Woman Is Accused of Murdering 3 in Serial Killings**\
+`The woman’s victims, found in a span of three days in Canada last week, included two men whom the police said she had attacked at random.`\
+https://nytimes.com/2024/10/08/world/canada/toronto-woman-murder-serial-killer.html
+
 **Vandals Deface Harvard Statue and U. of Michigan Leaders’ Homes**\
 `It was not clear who was responsible for the broken windows, fake blood and pro-Palestinian slogans.`\
 https://nytimes.com/2024/10/08/us/oct-7-pro-palestinian-protests-vandalism.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/weather/hurricane-milton-helene-evacuations.html
 **Grealish explains issue with Euro 2024 snub under Southgate**\
 `Jack Grealish has explained why he did not agree with Gareth Southgate’s controversial call to cut him from the England squad for this summer’s European Championship.`\
 https://nytimes.com/athletic/5829014/2024/10/08/jack-grealish-england-gareth-southgate/
-
-**Qantas Apologizes for Showing R-Rated Film With Nudity to Entire Flight**\
-`The scenes played on every screen, according to comments from social media users. The airlines has since said the movie “was clearly not suitable.”`\
-https://nytimes.com/2024/10/08/business/qantas-airlines-australia-r-rated-movie.html
-
-**Valencia fans on honeymoon in Singapore held by police over Peter Lim protest**\
-`Valencia's mayor has said Spanish government officials are now seeking a resolution with counterparts in the Asian country`\
-https://nytimes.com/athletic/5828986/2024/10/08/valencia-peter-lim-singapore-protest-honeymoon/
 
