@@ -1,3 +1,11 @@
+**Adams’s Top Deputy Mayor Resigns, Intensifying Wave of Departures**\
+`Sheena Wright, the first deputy mayor of New York City, became the seventh senior leader to leave the administration in the past few weeks.`\
+https://nytimes.com/2024/10/08/nyregion/sheena-wright-resigns-eric-adams.html
+
+**An Exquisite Queer Odyssey by a Literary Master**\
+`In Alan Hollinghurst’s new novel, “Our Evenings,” a Burmese English actor grapples with race and ambition, sexuality and love in a bigoted world.`\
+https://nytimes.com/2024/10/08/books/review/our-evenings-alan-hollinghurst.html
+
 **India’s Political Carnival Is Back in Season, With Mixed Results for Modi**\
 `Two closely watched elections, in Haryana and the turbulent Jammu and Kashmir, kept the surprises coming after this summer’s shocking national outcome.`\
 https://nytimes.com/2024/10/08/world/asia/india-elections-haryana-jammu-kashmir.html
