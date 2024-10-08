@@ -1,3 +1,7 @@
+**The C.I.A. director says the risk of further escalation between Israel and Iran remains.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/cia-director-iran-israel
+
 **Rosenthal: The ‘Sinister Sling’ and the multitudes of Manny Machado**\
 `On the same night that he rallied his team in the dugout, Manny Machado instigated trouble by throwing a ball toward the Dodger dugout`\
 https://nytimes.com/athletic/5828048/2024/10/08/manny-machado-dugout-throw-dodgers-padres/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/us/un-official-gifts-fraud.html
 **Welcome to Mike Kelley’s World: Beautiful, Ugly, Funny and Dumb**\
 `The American artist died in 2012, but a new exhibition in London shows how his deadpan-weirdo works continue to resonate today.`\
 https://nytimes.com/2024/10/08/arts/design/mike-kelly-tate-modern.html
-
-**Derek Carr: 'Not good' after oblique injury in Saints loss**\
-`"I'm going to do anything I can to be there," Carr said about Sunday's game against the Tampa Bay Buccaneers.`\
-https://nytimes.com/athletic/5828064/2024/10/08/derek-carr-injury-saints/
 
