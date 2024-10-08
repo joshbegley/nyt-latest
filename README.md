@@ -1,3 +1,7 @@
+**In New York on Oct. 7, Honoring the Dead and Calling for an End to War**\
+`In the city, which is home both to the largest Jewish population outside Israel and to thousands of Palestinians, some gathered in protest and others in solemn remembrance.`\
+https://nytimes.com/2024/10/07/nyregion/oct-7-nyc-protest-vigil.html
+
 **Dodgers' Dave Roberts says Manny Machado threw at him**\
 `Roberts said: “Clearly that team over there, they like the villain-type kind of role and they feed off of that."`\
 https://nytimes.com/athletic/5827152/2024/10/07/dodgers-dave-roberts-manny-machado/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/us/politics/russia-china-iran-false-election-clai
 **While Disney Remains Open, Other Florida Parks Announce Closures**\
 `All of the major theme parks said they were closely monitoring Hurricane Milton and would be updating their closure plans as needed.`\
 https://nytimes.com/2024/10/07/weather/hurricane-milton-walt-disney-world.html
-
-**Gaza in Ruins After a Year of War**\
-`Much of Gaza has been destroyed by Israel’s relentless military campaign.`\
-https://nytimes.com/interactive/2024/10/07/world/middleeast/israel-gaza-destruction-hamas-war.html
 
