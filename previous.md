@@ -1,3 +1,7 @@
+**Art or Trash? It Can Be a Fine Line.**\
+`Two beer cans were displayed in a Dutch museum. Then they were accidentally thrown out.`\
+https://nytimes.com/2024/10/08/arts/beer-can-art-lam-museum-thrown-out.html
+
 **Hurricane Milton's impact on sports: South Florida CFB game postponed**\
 `The storm is expected to hit Florida as a major hurricane Wednesday or Thursday.`\
 https://nytimes.com/athletic/5828288/2024/10/08/hurricane-milton-college-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828439/2024/10/08/kyler-murray-call-of-duty/
 **Inside a Field Hospital in a North Carolina Mountain Town**\
 `After Hurricane Helene hit, a group of doctors and nurses quickly built a field hospital in Burnsville, N.C., to tend to patients and provide them with medical care.`\
 https://nytimes.com/video/world/americas/100000009744007/hurricane-helene-north-carolina-video.html
-
-**Asheville, Tampa and Lessons From Hurricane Helene**\
-`Readers reflect on the devastation, the recovery and climate havens. Also: An ex-hostage’s plea; the women who accuse Donald Trump; a Trump rally.`\
-https://nytimes.com/2024/10/08/opinion/hurricane-helene.html
 
