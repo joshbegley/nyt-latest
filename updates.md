@@ -1,3 +1,7 @@
+**Twins say bye to blackouts, agree to TV deal with MLB: What you need to know**\
+`Following a year of turmoil surrounding their television broadcast rights, the Twins agreed to a new deal to be to be broadcast by MLB. `\
+https://nytimes.com/athletic/5829504/2024/10/08/minnesota-twins-mlb-tv-deal/
+
 **With Kennedy on the Ballot, Vance Talks Public Health in Michigan**\
 `Senator JD Vance of Ohio spoke of the occurrence of “weird childhood diseases” that may be caused by “weird stuff” in the food and water supply.`\
 https://nytimes.com/2024/10/08/us/politics/vance-rfk-jr-public-health.html
