@@ -1,3 +1,7 @@
+**China’s Policy Reversal Sparks ‘Mind Boggling’ Stock Rally**\
+`The government has fired up investors by encouraging banks to lend more to buyers of stock and real estate, but economists say more stimulus is needed.`\
+https://nytimes.com/2024/10/07/business/china-stocks-csi-300.html
+
 **Latest Deshaun Watson lawsuit settled confidentially: Lawyer**\
 `The lawsuit was filed against Watson in September and accused him of sexual assault and battery.`\
 https://nytimes.com/athletic/5827065/2024/10/07/deshaun-watson-lawsuit-resolved/
