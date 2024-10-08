@@ -1,3 +1,7 @@
+**Dodgers' Dave Roberts says Manny Machado threw at him**\
+`Roberts said: “Clearly that team over there, they like the villain-type kind of role and they feed off of that."`\
+https://nytimes.com/athletic/5827152/2024/10/07/dodgers-dave-roberts-manny-machado/
+
 **Slowly but surely, the Kyle Dubas plan in Pittsburgh is becoming clearer**\
 `The Penguins are beginning to mold the old with the young, hoping it's a plan that produces short- and long-term success.`\
 https://nytimes.com/athletic/5826816/2024/10/07/penguins-kyle-dubas-plan-prospects/

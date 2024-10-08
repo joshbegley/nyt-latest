@@ -1,3 +1,7 @@
+**Dodgers' Dave Roberts says Manny Machado threw at him**\
+`Roberts said: “Clearly that team over there, they like the villain-type kind of role and they feed off of that."`\
+https://nytimes.com/athletic/5827152/2024/10/07/dodgers-dave-roberts-manny-machado/
+
 **Protest That the University of Maryland Sought to Prevent Goes On**\
 `The school, citing safety, had said no to an event planned on the anniversary of the Oct. 7 attack by a chapter of Students for Justice in Palestine, but a judge’s ruling last week allowed it to go ahead.`\
 https://nytimes.com/2024/10/07/us/umd-pro-palestinian-protest-oct-7.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/weather/hurricane-milton-walt-disney-world.html
 **Gaza in Ruins After a Year of War**\
 `Much of Gaza has been destroyed by Israel’s relentless military campaign.`\
 https://nytimes.com/interactive/2024/10/07/world/middleeast/israel-gaza-destruction-hamas-war.html
-
-**Jewish students find solace and a place to mourn with campus Hillel groups.**\
-`Commemorative events marking the anniversary of the Hamas attack on Israel drew Jewish students at campuses around the country.`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/jewish-students-find-solace-and-a-place-to-mourn-with-campus-hillel-groups
 
