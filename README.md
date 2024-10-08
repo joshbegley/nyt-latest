@@ -1,6 +1,6 @@
 **Harris Should Offer to Debate Trump Again — on Fox**\
 `There’s only one venue where Harris would have another opportunity to speak to 67 million people at once.`\
-https://nytimes.com/live/2024/10/02/opinion/thepoint/kamala-debate-fox-news
+https://nytimes.com/2024/10/02/opinion/kamala-debate-fox-news.html
 
 **Wizards' Brogdon undergoes thumb surgery**\
 `The 31-year-old former Rookie of the Year and Sixth Man award winner was expected to provide stability to a young Wizards' roster. `\
