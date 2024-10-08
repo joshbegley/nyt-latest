@@ -1,3 +1,7 @@
+**Will Trump Get Jail Time? We Looked at Similar Cases to Find Out.**\
+`Donald J. Trump faces sentencing on Nov. 26. The election three weeks earlier may determine not only if he returns to the presidency, but if he ends up behind bars.`\
+https://nytimes.com/2024/10/08/nyregion/donald-trump-merchan-sentencing-jail.html
+
 **Former USMNT manager Berhalter to coach Chicago Fire**\
 `Berhalter will try to turn around a Fire team that has been one of the worst in the league over the last 15 years.`\
 https://nytimes.com/athletic/5828229/2024/10/08/gregg-berhalter-chicago-fire-coach-usmnt/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/business/tiktok-lawsuits-us-states-teens-mental-h
 **Trump Secretly Stayed in Touch With Putin After Leaving Office, Book Says**\
 `A new book by the journalist Bob Woodward also reports that Donald J. Trump, while still in office, secretly sent Vladimir Putin what were then rare Covid-19 tests for the Russian’s leader’s personal use.`\
 https://nytimes.com/2024/10/08/us/politics/trump-putin-woodward-book.html
-
-**Studio Museum in Harlem to Open New Building in Fall 2025**\
-`The 82,000-square-foot structure on 125th Street will open with a show featuring the artist Tom Lloyd.`\
-https://nytimes.com/2024/10/08/arts/design/studio-museum-in-harlem-new-building-2025.html
 
