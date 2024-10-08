@@ -1,3 +1,7 @@
+**Will Trump Get Jail Time? We Looked at Similar Cases to Find Out.**\
+`Donald J. Trump faces sentencing on Nov. 26. The election three weeks earlier may determine not only if he returns to the presidency, but if he ends up behind bars.`\
+https://nytimes.com/2024/10/08/nyregion/donald-trump-merchan-sentencing-jail.html
+
 **Former USMNT manager Berhalter to coach Chicago Fire**\
 `Berhalter will try to turn around a Fire team that has been one of the worst in the league over the last 15 years.`\
 https://nytimes.com/athletic/5828229/2024/10/08/gregg-berhalter-chicago-fire-coach-usmnt/
