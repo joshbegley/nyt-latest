@@ -1,7 +1,3 @@
-**How Google Was Forced to Open Up**\
-`A federal judge ordered the tech giant to let rival app stores onto its Android smartphone platform, adding to its growing list of legal headaches .`\
-https://nytimes.com/2024/10/08/business/dealbook/google-epic-app-store.html
-
 **Weekly Student News Quiz: V.P. Debate, Middle East, Nibi the Beaver**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2024/10/08/learning/08StudentNewsQuiz.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/10/08/us/harris-trump-election
 **Why the Senators were right to send Carter Yakemchuk back to junior**\
 `The Senators sent their 2024 first-round pick back to the WHL Monday. There are two key things he'll focus on this season.`\
 https://nytimes.com/athletic/5826373/2024/10/08/senators-carter-yakemchuk-whl-nhl/
+
+**Militao expected to play in El Clasico despite thigh injury**\
+`Real Madrid defender Eder Militao is expected to be fit for El Clasico later this month, despite being being forced to withdraw from Brazil duty with a thigh injury.`\
+https://nytimes.com/athletic/5827890/2024/10/08/eder-militao-real-madrid-injury/
 
