@@ -1,3 +1,11 @@
+**NCAA D-1 Council shortens CFB, CBB transfer window from 45 to 30 days**\
+`The NCAA Division I Council did not take the step of removing the spring football portal window.`\
+https://nytimes.com/athletic/5829716/2024/10/08/ncaa-division-i-council-college-football-basketball-transfer-window-shortened/
+
+**Ryan Fitzpatrick inks 3-year extension with Amazon to remain TNF analyst**\
+`"Before the season I re-signed for three more years," Fitzpatrick told The Athletic. "I love the process of this and I love the team."`\
+https://nytimes.com/athletic/5829666/2024/10/08/ryan-fitzpatrick-contract-extension-amazon-prime-video-thursday-night-football/
+
 **Israel Sends More Soldiers Into Lebanon as Strikes Hit Beirut and Damascus**\
 `In an attack of its own, Hezbollah fired 180 “projectiles” into Israel, according to the Israeli military, which said most were intercepted.`\
 https://nytimes.com/2024/10/08/world/middleeast/israel-lebanon-gaza-syria.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/us/politics/vance-rfk-jr-public-health.html
 **When a Television Meteorologist Breaks Down on Air and Admits Fear**\
 `John Morales, who has forecast weather for decades, went viral after choking up on air while discussing Hurricane Milton.`\
 https://nytimes.com/2024/10/08/climate/john-morales-weatherman-hurricane.html
-
-**How the NHL's 10 youngest players made the cut for the 2024-25 season — and will they stick?**\
-`Only 10 teenagers are active members of an NHL roster to start 2024-25 — just 1.4 percent of the league. Here's the scoop on each.`\
-https://nytimes.com/athletic/5829430/2024/10/08/nhl-youngest-players-roster-2024-25-season/
-
-**Volunteers Aid Those Displaced by Israeli Attacks in Lebanon**\
-`Amid Israel’s offensive and Hezbollah’s decision to continue fighting, many have found themselves caught in the middle. In the southern coastal city of Sidon, young volunteers of diverse religious backgrounds have come together to help those affected by the conflict.`\
-https://nytimes.com/video/world/middleeast/100000009749780/lebanon-war-israel-displaced.html
 
