@@ -1,3 +1,7 @@
+**Jets fire Robert Saleh after 2-3 start to season**\
+`Saleh, 45, was hired in 2021 after a four-year stint as defensive coordinator with the San Francisco 49ers.`\
+https://nytimes.com/athletic/5828326/2024/10/08/robert-saleh-fired-jets-coach/
+
 **The C.I.A. director says the risk of further escalation between Israel and Iran remains.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/cia-director-iran-israel
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5827713/2024/10/08/canucks-patrik-allvin-salary-cap
 **A U.N. Official’s Payments: Zero Interest Loans, a Mercedes and a Tennis Sponsorship**\
 `The official secretly took $3 million in gifts from a businessman to whom he steered the organization’s funds, a court ruled. The U.N. got a song about the ocean.`\
 https://nytimes.com/2024/10/08/us/un-official-gifts-fraud.html
-
-**Welcome to Mike Kelley’s World: Beautiful, Ugly, Funny and Dumb**\
-`The American artist died in 2012, but a new exhibition in London shows how his deadpan-weirdo works continue to resonate today.`\
-https://nytimes.com/2024/10/08/arts/design/mike-kelly-tate-modern.html
 
