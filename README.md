@@ -1,3 +1,7 @@
+**The Athletic FC: City vs Premier League and APTs explained; Brazil's big betting question**\
+`Today in TAFC: The verdict on Manchester City's APT case is in, so who won the scuffle? Plus: Brazil's dilemma and an apology for Gazzaniga.`\
+https://nytimes.com/athletic/5827833/2024/10/08/man-city-premier-league-apts-brazil-betting-paqueta/
+
 **Israel strikes an area south of Beirut, as Hezbollah launches another rocket barrage.**\
 `By Aryn Baker, Gabby Sobelman and Euan Ward`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/israel-strikes-an-area-south-of-beirut-as-hezbollah-launches-another-rocket-barrage
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5825720/2024/10/08/aidan-morris-pochettino-usmnt-mi
 **Angel City salary-cap violation was revealed by former player, says NWSL commissioner**\
 `NWSL commissioner Jessica Berman discusses Angel City's salary-cap violation and what happens next`\
 https://nytimes.com/athletic/5827745/2024/10/08/angel-city-salary-cap-violation-was-revealed-by-former-player-nwsl-commissioner/
-
-**'I've got one job to do': Stuart Skinner on the offseason, new faces and perspective**\
-`Fresh off a trip to Game 7 of the Stanley Cup Final, Stuart Skinner enters an NHL season as the starting goaltender for the first time.`\
-https://nytimes.com/athletic/5826956/2024/10/08/oilers-stuart-skinner-interview/
 
