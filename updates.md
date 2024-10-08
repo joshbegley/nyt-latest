@@ -1,3 +1,7 @@
+**Russian Forces Push Forward in Ukraine’s East After Fall of Key Town**\
+`Russian troops have now entered Toretsk, a strategic hilltop city, and are pressing with assaults elsewhere in the Donetsk region.`\
+https://nytimes.com/2024/10/08/world/europe/russia-eastern-ukraine-toretsk.html
+
 **Iniesta retires from football, plans to move into coaching**\
 `Former Barcelona and Spain midfielder Andres Iniesta has announced his retirement from professional football.`\
 https://nytimes.com/athletic/5808745/2024/10/08/andres-iniesta-retires-barcelona/
