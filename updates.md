@@ -1,3 +1,11 @@
+**Fantasy football: Who to drop in Week 6? Aaron Rodgers, Mark Andrews are cuttable**\
+`Is Aaron Rodgers washed? Is there no hope for Mark Andrews managers or are we just trying to conjure another reverse-jinx?`\
+https://nytimes.com/athletic/5828092/2024/10/08/fantasy-football-who-to-drop-week-6-aaron-rodgers-mark-andrews/
+
+**Venezuela and the Vinotinto: How sport and politics intertwine**\
+`Fernando Batista’s side were Copa America quarterfinalists in July. Three weeks later, their country was engulfed in political protests`\
+https://nytimes.com/athletic/5819420/2024/10/08/venezuela-vinotinto-politics-sport-maduro/
+
 **Scoop City: Week 6 fantasy must-adds and Bijan Robinson, RB2?**\
 `A look at four must-add players after hitting on Kareem Hunt, Trey Sermon and Tank Bigsby last week. `\
 https://nytimes.com/athletic/5828469/2024/10/08/scoop-city-week-6-fantasy-must-adds-and-bijan-robinson-rb2/
