@@ -1,3 +1,7 @@
+**Word of the Day: debacle**\
+`This word has appeared in 259 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/08/learning/word-of-the-day-debacle.html
+
 **‘They just got lucky’: Why Yankees aren’t freaking out going into Game 3**\
 `“Still feels the same that we're going to win it,” Jazz Chisholm Jr. said despite a loss to the Royals on Monday.`\
 https://nytimes.com/athletic/5827585/2024/10/08/yankees-royals-alds-lucky-jazz-chisholm/

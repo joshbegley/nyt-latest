@@ -1,3 +1,7 @@
+**Word of the Day: debacle**\
+`This word has appeared in 259 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/08/learning/word-of-the-day-debacle.html
+
 **‘They just got lucky’: Why Yankees aren’t freaking out going into Game 3**\
 `“Still feels the same that we're going to win it,” Jazz Chisholm Jr. said despite a loss to the Royals on Monday.`\
 https://nytimes.com/athletic/5827585/2024/10/08/yankees-royals-alds-lucky-jazz-chisholm/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5826317/2024/10/08/erik-ten-hag-future-manchester-u
 **Analysing Man United manager alternatives to Erik ten Hag: Hoeness, Van Nistelrooy, Tuchel and more**\
 `The Manchester United manager is under pressure again — but who are the realistic contenders to replace him if he leaves the club?`\
 https://nytimes.com/athletic/5815401/2024/10/08/manchester-united-manager-shortlist/
-
-**Barca need to keep their wages down - but Araujo, Pedri, Yamal and others need renewing**\
-`Barca are taking steps to address their financial problems. These players' contracts could be a stumbling block`\
-https://nytimes.com/athletic/5824901/2024/10/08/barcelona-contracts-araujo-pedri-yamal/
 
