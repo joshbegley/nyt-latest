@@ -1,3 +1,11 @@
+**Seth Meyers: Trump Rallies Are Like an Escape Room**\
+`“Generally speaking, if you’re at an event and the host of that event keeps insisting no one is going to leave, it is time to start worrying,” Meyers said on Monday.`\
+https://nytimes.com/2024/10/08/arts/television/seth-meyers-trump-rallies.html
+
+**With Patrick Mahomes on board, the Royals are in position to shock the Yankees**\
+`Mahomes, a minority owner of the Royals, was busy himself on Monday night, but one can assume he was thrilled when he heard the final score.`\
+https://nytimes.com/athletic/5827621/2024/10/08/royals-game-2-patrick-mahomes/
+
 **Word of the Day: debacle**\
 `This word has appeared in 259 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/08/learning/word-of-the-day-debacle.html

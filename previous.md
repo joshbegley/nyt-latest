@@ -1,3 +1,11 @@
+**Seth Meyers: Trump Rallies Are Like an Escape Room**\
+`“Generally speaking, if you’re at an event and the host of that event keeps insisting no one is going to leave, it is time to start worrying,” Meyers said on Monday.`\
+https://nytimes.com/2024/10/08/arts/television/seth-meyers-trump-rallies.html
+
+**With Patrick Mahomes on board, the Royals are in position to shock the Yankees**\
+`Mahomes, a minority owner of the Royals, was busy himself on Monday night, but one can assume he was thrilled when he heard the final score.`\
+https://nytimes.com/athletic/5827621/2024/10/08/royals-game-2-patrick-mahomes/
+
 **Word of the Day: debacle**\
 `This word has appeared in 259 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/08/learning/word-of-the-day-debacle.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5825251/2024/10/08/english-teams-champions-league-w
 **The Premier League season so far: Our writers' verdicts**\
 `As many Premier League's players head off on international duty, our writers take stock of the Premier League season so far`\
 https://nytimes.com/athletic/5825397/2024/10/08/premier-league-roundtable-october/
-
-**Explained: the Manchester United meeting where Erik ten Hag's role as manager will be discussed**\
-`Erik ten Hag's role as Manchester United manager will be scrutinised today at a planned meeting of the club's leadership in London`\
-https://nytimes.com/athletic/5826317/2024/10/08/erik-ten-hag-future-manchester-united-meeting/
-
-**Analysing Man United manager alternatives to Erik ten Hag: Hoeness, Van Nistelrooy, Tuchel and more**\
-`The Manchester United manager is under pressure again — but who are the realistic contenders to replace him if he leaves the club?`\
-https://nytimes.com/athletic/5815401/2024/10/08/manchester-united-manager-shortlist/
 
