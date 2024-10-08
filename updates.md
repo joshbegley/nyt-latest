@@ -1,3 +1,7 @@
+**How Arsenal's rapport with Black identity resonates and endures**\
+`Through visibility and authenticity, Arsenal have normalised diversity in a way unique to their club and its supporter base`\
+https://nytimes.com/athletic/5739350/2024/10/08/black-arsenal-culture-fans-players-saka-wright/
+
 **‘This Issue Is Not Going Away’: Why These Undecided Voters Are Wary of Trump**\
 `The participants discuss the vice-presidential debate and if and how it influenced their vote for president.`\
 https://nytimes.com/interactive/2024/10/08/opinion/undecided-voters-harris-trump-focus-group.html

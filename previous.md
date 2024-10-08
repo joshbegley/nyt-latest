@@ -10,6 +10,10 @@ https://nytimes.com/athletic/5825095/2024/10/08/liverpool-season-report-card/
 `Which first-team players are for sale? What is the time scale for Lewis Miley's return? Chris Waugh answers your questions`\
 https://nytimes.com/athletic/5824662/2024/10/08/newcastle-transfers-eddie-howe-2/
 
+**How Arsenal's rapport with Black identity resonates and endures**\
+`Through visibility and authenticity, Arsenal have normalised diversity in a way unique to their club and its supporter base`\
+https://nytimes.com/athletic/5739350/2024/10/08/black-arsenal-culture-fans-players-saka-wright/
+
 **Why can't English teams win the Champions League – and what does it tell us about the WSL?**\
 `An English team hasn't won the Women's Champions League since 2007. What's going wrong?`\
 https://nytimes.com/athletic/5825251/2024/10/08/english-teams-champions-league-wsl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824901/2024/10/08/barcelona-contracts-araujo-pedri
 **Are you entertained? Ange Postecoglou and the contradictory nature of football fandom**\
 `The Tottenham manager's philosophy prioritises 'entertainment' but what does that mean? And is it what fans really want?`\
 https://nytimes.com/athletic/5825650/2024/10/08/postecoglou-entertainment-definition/
-
-**Brazilian struggles and a new era for USMNT: What to look out for this international break**\
-`It'd be easy to think of the international break as a time to ignore football and enjoy other pursuits. But that would be wrong. This is why`\
-https://nytimes.com/athletic/5825183/2024/10/08/international-break-what-to-look-out-for/
 
