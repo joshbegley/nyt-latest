@@ -1,3 +1,7 @@
+**Does Taylor Swift impact the Chiefs' betting odds? It's a silly question but we asked**\
+`Taylor Swift has attended three Chiefs games so far this year, and many more since last season. Does her presence impact the betting odds?`\
+https://nytimes.com/athletic/5828242/2024/10/08/kansas-city-chiefs-odds-taylor-swift/
+
 **Palestinian officials say an Israeli strike on central Gaza hit a home and tents, killing 12.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/palestinian-officials-say-an-israeli-strike-on-central-gaza-hit-a-home-and-tents-killing-12
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/us/politics/harris-the-view-howard-stern-intervie
 **On Drug Prices, Harris Pushes for Deeper Cuts While Trump Offers Few Specifics**\
 `Both have campaigned for lower prescription costs. Kamala Harris has promised to expand President Biden’s policies. Donald Trump is a wild card.`\
 https://nytimes.com/2024/10/08/health/drug-prices-kamala-harris-donald-trump.html
-
-**Harris Should Offer to Debate Trump Again — on Fox**\
-`There’s only one venue where Harris would have another opportunity to speak to 67 million people at once.`\
-https://nytimes.com/2024/10/02/opinion/kamala-debate-fox-news.html
 
