@@ -1,3 +1,11 @@
+**Ex-Houston Police Officer Gets 60 Years in Prison in Drug Raid Killings**\
+`A jury had found Gerald Goines guilty of felony murder in the deaths of two people who were fatally shot during a botched drug raid in 2019.`\
+https://nytimes.com/2024/10/08/us/gerald-goines-houston-officer-guilty-murder.html
+
+**Netanyahu says Israel killed Hezbollah’s leader, his replacement and ‘the replacement of the replacement.’**\
+`Hashem Safieddine had been expected to succeed Hassan Nasrallah, his cousin. It was not immediately clear who “the replacement of the replacement” was.`\
+https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/netanyahu-hezbollah-nasrallah-replacement
+
 **Russell Wilson to ramp up practice workload, Fields remains starter**\
 `Wilson suited up as the emergency third quarterback for the first five weeks. Through four weeks, he was limited to 7-on-7 drills.`\
 https://nytimes.com/athletic/5828946/2024/10/08/russell-wilson-full-practice-participant-steelers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/world/europe/michel-barnier-france-no-confidence-
 **‘La Máquina’ Is a Starry Mexican Boxing Drama**\
 `The Spanish-language Hulu drama, starring Diego Luna and Gael García Bernal, skews more loopy and mysterious than gritty.`\
 https://nytimes.com/2024/10/08/arts/television/la-maquina-hulu.html
-
-**‘Evacuate Now’: Biden Urges Floridians to Flee Hurricane Milton**\
-`President Biden called Hurricane Milton “a matter of life and death” for Florida residents.`\
-https://nytimes.com/video/weather/100000009749472/biden-hurricane-milton.html
-
-**Ipswich's Tuanzebe sidelined with washing up injury**\
-`Ipswich Town right-back Axel Tuanzebe is facing at least a month out after sustaining a hand injury while doing the washing up.`\
-https://nytimes.com/athletic/5828803/2024/10/08/axel-tuanzebe-washing-up-injury/
 
