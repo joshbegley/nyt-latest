@@ -1,40 +1,40 @@
-**Still Recovering From Helene, Florida Braces for Milton**\
-`Florida residents are preparing for Hurricane Milton while still cleaning up debris from Helene that some worry could get whipped up in strong winds.`\
-https://nytimes.com/video/weather/100000009748294/hurricane-milton-forecast-path.html
+**What We’ve Heard From Teens About the 2024 Election**\
+`Since September, the Headway team has been asking teenagers across the country for their thoughts on the election. Here’s what we’ve heard so far.`\
+https://nytimes.com/2024/10/08/headway/teens-2024-election-review.html
 
-**An Artists’ Squat Fought New York City for Decades. Did It Just Win?**\
-`ABC No Rio was a vital, dangerous and confrontational art space on the Lower East Side. Decades after it opened, it has made a deal with the city for a new building of its own.`\
-https://nytimes.com/2024/10/08/nyregion/abc-no-rio-gentrification-nyc.html
+**The 10 Most Common Questions Teenagers Asked About the Election**\
+`Headway has received more than 500 questions from teens about this year’s presidential election. Here are their most frequently asked questions — and our answers.`\
+https://nytimes.com/2024/10/08/headway/teen-2024-election-faq.html
 
-**Fall Video Games**\
-`What new games are you playing?`\
-https://nytimes.com/2024/10/08/learning/fall-video-games.html
+**Why France’s Most Controversial Novelist Is Also Its Most Celebrated**\
+`Reviled as much as he is lauded, Michel Houellebecq holds up a mirror to a world we would rather not see.`\
+https://nytimes.com/2024/10/08/magazine/michel-houellebecq-france-profile.html
 
-**Why a Measure to Protect Abortion Rights in New York May Be in Trouble**\
-`The statewide ballot measure, known as the Equal Rights Amendment, has become a target for Republican opponents who have cast it as an attack on family values.`\
-https://nytimes.com/2024/10/08/nyregion/abortion-ballot-measure-ny.html
+**Exposing the Violence of Empire in the Novels It Left Behind**\
+`For her new book, “Salvage,” the Trinidadian-born writer Dionne Brand rereads classic English novels, teasing out evidence of the ravages of colonialism.`\
+https://nytimes.com/2024/10/08/books/review/salvage-dionne-brand.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/08/crosswords/spelling-bee-forum.html
+**Grappling With the Talmud in the Midst of Crisis**\
+`What the words of ancient rabbis could and couldn’t teach me.`\
+https://nytimes.com/2024/10/08/magazine/talmud-rabbis.html
 
-**An Old Clash Heats Up Over Oppenheimer’s Red Ties**\
-`As Harvard and a top biographer square off, proponents of a middle path see a tangled life in which the superstar of science was, and was not, a true Communist at the same time.`\
-https://nytimes.com/2024/10/08/science/oppenheimer-communism-history-nuclear-bomb.html
+**For Many Israelis, Oct. 7 Never Ended**\
+`The Hamas-led attacks that day shattered Israelis’ faith in the state, and the year of war that followed has deepened society’s divisions. Yet many find hope in the people’s resilience.`\
+https://nytimes.com/2024/10/08/world/middleeast/oct-7-israel.html
 
-**How to See the ‘Once-in-a-Lifetime’ Comet Flaring in Our Night Skies**\
-`Comet Tsuchinshan-ATLAS is nearing Earth and getting brighter.`\
-https://nytimes.com/2024/10/08/science/comet-tsuchinshan-atlas.html
+**Biden’s Moral Failure in Israel**\
+`The American president promised equality. He didn’t deliver.`\
+https://nytimes.com/2024/10/08/opinion/bidens-moral-failure-in-israel.html
 
-**Seth Meyers: Trump Rallies Are Like an Escape Room**\
-`“Generally speaking, if you’re at an event and the host of that event keeps insisting no one is going to leave, it is time to start worrying,” Meyers said on Monday.`\
-https://nytimes.com/2024/10/08/arts/television/seth-meyers-trump-rallies.html
+**The Quick-Witted, Self-Lacerating James Blunt Would Like a Word**\
+`Twenty years after his hit “You’re Beautiful” turned him into an overnight star, the British singer and songwriter takes his music — and his haters — to task.`\
+https://nytimes.com/2024/10/08/arts/music/james-blunt-youre-beautiful-back-to-bedlam-anniversary.html
 
-**With Patrick Mahomes on board, the Royals are in position to shock the Yankees**\
-`Mahomes, a minority owner of the Royals, was busy himself Monday night, but one can assume he was thrilled when he heard the final score.`\
-https://nytimes.com/athletic/5827621/2024/10/08/royals-game-2-patrick-mahomes/
+**What Does Utopia Look Like for Black Americans?**\
+`Aaron Robertson’s grandparents had a farm in Promise Land, Tenn. In a new book, he explores the history and meaning of such utopian communities for African Americans.`\
+https://nytimes.com/2024/10/08/books/review/the-black-utopians-aaron-robertson.html
 
-**Word of the Day: debacle**\
-`This word has appeared in 259 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/08/learning/word-of-the-day-debacle.html
+**Shaker Cradles for Adults? They Rocked Frances McDormand’s Mind**\
+`A soulful exhibition curated by the actress and her friend Suzanne Bocanegra, an artist, explores caregiving and community.`\
+https://nytimes.com/2024/10/08/arts/design/shakers-cradles-mcdormand-museum.html
 
