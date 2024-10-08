@@ -1,3 +1,7 @@
+**‘They just got lucky’: Why Yankees aren’t freaking out going into Game 3**\
+`“Still feels the same that we're going to win it,” Jazz Chisholm Jr. said despite a loss to the Royals on Monday.`\
+https://nytimes.com/athletic/5827585/2024/10/08/yankees-royals-alds-lucky-jazz-chisholm/
+
 **‘This Issue Is Not Going Away’: Why These Undecided Voters Are Wary of Trump**\
 `The participants discuss the vice-presidential debate and if and how it influenced their vote for president.`\
 https://nytimes.com/interactive/2024/10/08/opinion/undecided-voters-harris-trump-focus-group.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5815401/2024/10/08/manchester-united-manager-shortl
 **Barca need to keep their wages down - but Araujo, Pedri, Yamal and others need renewing**\
 `Barca are taking steps to address their financial problems. These players' contracts could be a stumbling block`\
 https://nytimes.com/athletic/5824901/2024/10/08/barcelona-contracts-araujo-pedri-yamal/
-
-**Are you entertained? Ange Postecoglou and the contradictory nature of football fandom**\
-`The Tottenham manager's philosophy prioritises 'entertainment' but what does that mean? And is it what fans really want?`\
-https://nytimes.com/athletic/5825650/2024/10/08/postecoglou-entertainment-definition/
 
