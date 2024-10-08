@@ -1,3 +1,7 @@
+**Romney Won’t Endorse Harris, Saying He Wants to Keep His Voice in the Party**\
+`Senator Mitt Romney of Utah, the 2012 Republican nominee for president, says the party may need to be rebuilt.`\
+https://nytimes.com/2024/10/08/us/politics/mitt-romney-trump-harris.html
+
 **Until Saturday: Hunter's Heisman competition, plus rankings review**\
 `Welcome to Until Saturday, the five-star college football newsletter: Who can challenge Hunter in our weekly Heisman straw poll?`\
 https://nytimes.com/athletic/5829195/2024/10/08/travis-hunter-heisman-trophy-college-football-rankings-until-saturday/
