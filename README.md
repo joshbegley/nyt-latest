@@ -1,3 +1,11 @@
+**Hurricane Milton's impact on sports: South Florida CFB game postponed**\
+`The storm is expected to hit Florida as a major hurricane Wednesday or Thursday.`\
+https://nytimes.com/athletic/5828288/2024/10/08/hurricane-milton-college-football/
+
+**Pro-Palestinian ‘Uncommitted’ Group Comes Out Firmly Against Trump**\
+`The organization that emerged from protests against the Biden administration’s Middle East policies now says a second Trump term would be far worse.`\
+https://nytimes.com/2024/10/08/us/politics/palestine-uncommitted-trump.html
+
 **The Windup: That HR was beyond a miracle**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5828708/2024/10/08/tigers-guardians-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/americas/100000009744007/hurricane-helene-north-
 **Asheville, Tampa and Lessons From Hurricane Helene**\
 `Readers reflect on the devastation, the recovery and climate havens. Also: An ex-hostage’s plea; the women who accuse Donald Trump; a Trump rally.`\
 https://nytimes.com/2024/10/08/opinion/hurricane-helene.html
-
-**Harris Proposes a Medicare Plan to Provide Home Care for Seniors**\
-`The vice president’s latest health care plan is meant to help Americans who are struggling to find affordable home care for themselves or their aging loved ones.`\
-https://nytimes.com/2024/10/08/us/politics/harris-medicare-home-health-care.html
-
-**Fantasy football: Who to drop in Week 6? Aaron Rodgers, Mark Andrews are cuttable**\
-`Is Aaron Rodgers washed? Is there no hope for Mark Andrews managers or are we just trying to conjure another reverse-jinx?`\
-https://nytimes.com/athletic/5828092/2024/10/08/fantasy-football-who-to-drop-week-6-aaron-rodgers-mark-andrews/
 
