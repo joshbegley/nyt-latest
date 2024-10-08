@@ -1,3 +1,11 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/10/08/opinion/thepoint
+
+**How Helene Has Upended North Carolina’s Election Plans**\
+`With 13 counties devastated by flooding, the state is trying to make sure that residents can still vote. Candidates have been forced to abandon door-knocking and phone banks.`\
+https://nytimes.com/2024/10/08/us/north-carolina-election-hurricane-helene.html
+
 **An A.I. Pioneer Reflects on His Nobel Moment in an Interview**\
 `The computer scientist Geoffrey Hinton spoke with The Times shortly after learning he had won the Nobel Prize for Physics.`\
 https://nytimes.com/2024/10/08/technology/nobel-prize-geoffrey-hinton-ai.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/us/oct-7-pro-palestinian-protests-vandalism.html
 **Inside a Harris Ad in Which Ex-Trump Aides Blast Him as Unfit for Office**\
 `An attack ad from Kamala Harris’s campaign uses denunciations of Donald Trump by his own former top security lieutenants to portray him as too risky to restore to power.`\
 https://nytimes.com/2024/10/08/us/politics/harris-ad-former-trump-aides-unfit.html
-
-**With Txiki Begiristain leaving Man City, what might that mean for Pep Guardiola's future?**\
-`Begiristain's successes are inextricably linked to those of Guardiola. City fans will hope that that is not the case for their futures too..`\
-https://nytimes.com/athletic/5828979/2024/10/08/txiki-begiristain-man-city-guardiola-future/
-
-**Cissy Houston Saw Music’s Peaks and Life’s Valleys**\
-`The singer, who died this week, was the mother of Whitney Houston and a contender for the greatest voice of the country, our critic says.`\
-https://nytimes.com/2024/10/08/arts/music/cissy-houston-whitney-appraisal.html
 
