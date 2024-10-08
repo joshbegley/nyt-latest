@@ -1,3 +1,7 @@
+**In New York on Oct. 7, Honoring the Dead and Calling for an End to War**\
+`In the city, which is home both to the largest Jewish population outside Israel and to thousands of Palestinians, some gathered in protest and others in solemn remembrance.`\
+https://nytimes.com/2024/10/07/nyregion/oct-7-nyc-protest-vigil.html
+
 **Dodgers' Dave Roberts says Manny Machado threw at him**\
 `Roberts said: “Clearly that team over there, they like the villain-type kind of role and they feed off of that."`\
 https://nytimes.com/athletic/5827152/2024/10/07/dodgers-dave-roberts-manny-machado/
