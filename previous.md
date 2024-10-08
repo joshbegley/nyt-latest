@@ -1,3 +1,15 @@
+**Former USMNT manager Berhalter to coach Chicago Fire**\
+`Berhalter will try to turn around a Fire team that has been one of the worst in the league over the last 15 years.`\
+https://nytimes.com/athletic/5828229/2024/10/08/gregg-berhalter-chicago-fire-coach-usmnt/
+
+**Luis Tiant, Boston Red Sox legend known as ‘El Tiante,’ dies at 83**\
+`In an 18-year career, Luis Tiant won 229 games with six teams, though his greatest success came during eight seasons with the Boston Red Sox`\
+https://nytimes.com/athletic/5828260/2024/10/08/luis-tiant-obituary-red-sox/
+
+**Submit your questions for Austin Meek's Michigan football mailbag**\
+`What's on your mind about the Wolverines? Submit your Michigan mailbag questions here.`\
+https://nytimes.com/athletic/5828365/2024/10/08/michigan-football-mailbag-questions-2/
+
 **Jets fire Robert Saleh after 2-3 start to season**\
 `Saleh, 45, was hired in 2021 after a four-year stint as defensive coordinator with the San Francisco 49ers.`\
 https://nytimes.com/athletic/5828326/2024/10/08/robert-saleh-fired-jets-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/08/us/politics/trump-putin-woodward-book.html
 **Studio Museum in Harlem to Open New Building in Fall 2025**\
 `The 82,000-square-foot structure on 125th Street will open with a show featuring the artist Tom Lloyd.`\
 https://nytimes.com/2024/10/08/arts/design/studio-museum-in-harlem-new-building-2025.html
-
-**Real Madrid's options to replace Carvajal - and the state of play on transfers**\
-`Veteran right-back Dani Carvajal will miss the rest of the season after an ACL injury. Here's how Real Madrid plan to respond`\
-https://nytimes.com/athletic/5828059/2024/10/08/real-madrid-carvajal-transfers-injury-ancelotti/
-
-**Canucks notebook: Patrik Allvin speaks, accruing cap space and the 3 goaltenders**\
-`Key takeaways from the Canucks GM's season-opening commentary fresh off of a whirlwind weekend that featured a trade and an extension.`\
-https://nytimes.com/athletic/5827713/2024/10/08/canucks-patrik-allvin-salary-cap-goalies/
-
-**A U.N. Official’s Payments: Zero Interest Loans, a Mercedes and a Tennis Sponsorship**\
-`The official secretly took $3 million in gifts from a businessman to whom he steered the organization’s funds, a court ruled. The U.N. got a song about the ocean.`\
-https://nytimes.com/2024/10/08/us/un-official-gifts-fraud.html
 

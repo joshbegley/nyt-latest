@@ -1,3 +1,15 @@
+**Former USMNT manager Berhalter to coach Chicago Fire**\
+`Berhalter will try to turn around a Fire team that has been one of the worst in the league over the last 15 years.`\
+https://nytimes.com/athletic/5828229/2024/10/08/gregg-berhalter-chicago-fire-coach-usmnt/
+
+**Luis Tiant, Boston Red Sox legend known as ‘El Tiante,’ dies at 83**\
+`In an 18-year career, Luis Tiant won 229 games with six teams, though his greatest success came during eight seasons with the Boston Red Sox`\
+https://nytimes.com/athletic/5828260/2024/10/08/luis-tiant-obituary-red-sox/
+
+**Submit your questions for Austin Meek's Michigan football mailbag**\
+`What's on your mind about the Wolverines? Submit your Michigan mailbag questions here.`\
+https://nytimes.com/athletic/5828365/2024/10/08/michigan-football-mailbag-questions-2/
+
 **Jets fire Robert Saleh after 2-3 start to season**\
 `Saleh, 45, was hired in 2021 after a four-year stint as defensive coordinator with the San Francisco 49ers.`\
 https://nytimes.com/athletic/5828326/2024/10/08/robert-saleh-fired-jets-coach/
