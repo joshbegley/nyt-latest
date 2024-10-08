@@ -1,3 +1,11 @@
+**Why the Senators were right to send Carter Yakemchuk back to junior**\
+`The Senators sent their 2024 first-round pick back to the WHL Monday. There are two key things he'll focus on this season.`\
+https://nytimes.com/athletic/5826373/2024/10/08/senators-carter-yakemchuk-whl-nhl/
+
+**Militao expected to play in El Clasico despite thigh injury**\
+`Real Madrid defender Eder Militao is expected to be fit for El Clasico later this month, despite being being forced to withdraw from Brazil duty with a thigh injury.`\
+https://nytimes.com/athletic/5827890/2024/10/08/eder-militao-real-madrid-injury/
+
 **The Athletic FC: City vs Premier League and APTs explained; Brazil's big betting question**\
 `Today in TAFC: The verdict on Manchester City's APT case is in, so who won the scuffle? Plus: Brazil's dilemma and an apology for Gazzaniga.`\
 https://nytimes.com/athletic/5827833/2024/10/08/man-city-premier-league-apts-brazil-betting-paqueta/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5826749/2024/10/08/blackhawks-what-matters-this-sea
 **Javonte Williams' usage, Bo Nix vs. blitz and more thoughts on Broncos offense**\
 `The Broncos showed signs of progress while scoring three second-half touchdowns, but they now face offensive line questions.`\
 https://nytimes.com/athletic/5825738/2024/10/08/broncos-offense-javonte-williams-bo-nix/
-
-**Aidan Morris's path to Pochettino's USMNT: Embracing the uncomfortable and building relationships**\
-`How Aidan Morris earned his spot on the USMNT roster`\
-https://nytimes.com/athletic/5825720/2024/10/08/aidan-morris-pochettino-usmnt-middlesbrough/
-
-**Angel City salary-cap violation was revealed by former player, says NWSL commissioner**\
-`NWSL commissioner Jessica Berman discusses Angel City's salary-cap violation and what happens next`\
-https://nytimes.com/athletic/5827745/2024/10/08/angel-city-salary-cap-violation-was-revealed-by-former-player-nwsl-commissioner/
 

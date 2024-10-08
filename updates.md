@@ -1,3 +1,11 @@
+**Why the Senators were right to send Carter Yakemchuk back to junior**\
+`The Senators sent their 2024 first-round pick back to the WHL Monday. There are two key things he'll focus on this season.`\
+https://nytimes.com/athletic/5826373/2024/10/08/senators-carter-yakemchuk-whl-nhl/
+
+**Militao expected to play in El Clasico despite thigh injury**\
+`Real Madrid defender Eder Militao is expected to be fit for El Clasico later this month, despite being being forced to withdraw from Brazil duty with a thigh injury.`\
+https://nytimes.com/athletic/5827890/2024/10/08/eder-militao-real-madrid-injury/
+
 **The Athletic FC: City vs Premier League and APTs explained; Brazil's big betting question**\
 `Today in TAFC: The verdict on Manchester City's APT case is in, so who won the scuffle? Plus: Brazil's dilemma and an apology for Gazzaniga.`\
 https://nytimes.com/athletic/5827833/2024/10/08/man-city-premier-league-apts-brazil-betting-paqueta/
