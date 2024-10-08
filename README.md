@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5827127/2024/10/07/chiefs-saints-score-monday-night
 
 **What you need to know from the MLB playoffs: Tigers stun Guardians bullpen, Royals even with Yankees**\
 `Stock up and stock down following Monday's games, and players to watch when the National League takes the stage of Tuesday`\
-https://nytimes.com/athletic/5827420/2024/10/07/what-you-need-to-know-from-the-mlb-playoffs-tigers-stun-guardians-bullpen-yankees-fall/
+https://nytimes.com/athletic/5827420/2024/10/07/mlb-playoffs-2024-yankees-royals-tigers-guardians/
 
 **Trump Sees Antisemitism in Only One Direction: On the Left**\
 `At an event marking the anniversary of Hamas’s Oct. 7 attack on Israel, Donald Trump claimed that antisemitism existed within the Democratic Party but not the Republican Party.`\
