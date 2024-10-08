@@ -1,3 +1,7 @@
+**Our Book Is Here!**\
+`The cover star: Melissa Clark’s five-star skillet chicken with tomatoes, pancetta and mozzarella (a.k.a. pizza chicken).`\
+https://nytimes.com/2024/10/08/dining/our-book-is-here.html
+
 **Spurs assistant coach Mason in talks with Anderlecht to become new manager**\
 `Tottenham Hotspur assistant coach Ryan Mason is in talks with Anderlecht about their vacant manager&#8217;s position.`\
 https://nytimes.com/athletic/5828311/2024/10/08/tottenham-ryan-mason-anderlecht-talks/
