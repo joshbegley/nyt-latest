@@ -1,3 +1,7 @@
+**Brazil Unblocks X After Musk Backs Down**\
+`Brazil’s Supreme Court said Tuesday that Elon Musk’s social network could return in the country after a monthlong ban because the company had complied with the court’s orders.`\
+https://nytimes.com/2024/10/08/world/americas/brazil-x-ban-musk.html
+
 **Wednesday Briefing: An Israeli Airstrike in Syria**\
 `Plus, revisiting Oppenheimer’s Communist ties.`\
 https://nytimes.com/2024/10/08/briefing/israel-syria-trump-putin-india.html
