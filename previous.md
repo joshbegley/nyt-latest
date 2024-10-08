@@ -1,3 +1,11 @@
+**We Should Want Israel to Win**\
+`Even supporters of Palestinian statehood should want Hamas and Hezbollah to lose.`\
+https://nytimes.com/2024/10/08/opinion/israel-lebanon-iran-gaza.html
+
+**NHL rumblings: Rangers up their offer to Shesterkin, plus latest on Oettinger-Stars and Tavares-Maple Leafs**\
+`League sources confirmed that the Rangers have offered to top Carey Price's deal and make Shesterkin the NHL's all-time highest-paid goalie.`\
+https://nytimes.com/athletic/5829659/2024/10/08/shesterkin-oettinger-tavares-lebrun-rumblings/
+
 **Arrest made in shooting death of former Clemson WR Diondre Overton**\
 `A month after former Clemson receiver Diondre Overton was shot and killed at a party in Greensboro, N.C., authorities have made an arrest.`\
 https://nytimes.com/athletic/5829512/2024/10/08/clemson-diondre-overton-death-arrest/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5829613/2024/10/08/hannah-hampton-chelsea-illness/
 **What Omarosa, John Kerry and Michael Cohen Have in Common**\
 `And why it matters in 2024.`\
 https://nytimes.com/2024/10/08/us/politics/trump-2024-election-democracy.html
-
-**Twins say bye to blackouts, agree to TV deal with MLB: What you need to know**\
-`Following a year of turmoil surrounding their television broadcast rights, the Twins agreed to a new deal to be to be broadcast by MLB. `\
-https://nytimes.com/athletic/5829504/2024/10/08/minnesota-twins-mlb-tv-deal/
-
-**With Kennedy on the Ballot, Vance Talks Public Health in Michigan**\
-`Senator JD Vance of Ohio spoke of the occurrence of “weird childhood diseases” that may be caused by “weird stuff” in the food and water supply.`\
-https://nytimes.com/2024/10/08/us/politics/vance-rfk-jr-public-health.html
 

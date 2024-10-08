@@ -1,3 +1,11 @@
+**We Should Want Israel to Win**\
+`Even supporters of Palestinian statehood should want Hamas and Hezbollah to lose.`\
+https://nytimes.com/2024/10/08/opinion/israel-lebanon-iran-gaza.html
+
+**NHL rumblings: Rangers up their offer to Shesterkin, plus latest on Oettinger-Stars and Tavares-Maple Leafs**\
+`League sources confirmed that the Rangers have offered to top Carey Price's deal and make Shesterkin the NHL's all-time highest-paid goalie.`\
+https://nytimes.com/athletic/5829659/2024/10/08/shesterkin-oettinger-tavares-lebrun-rumblings/
+
 **Arrest made in shooting death of former Clemson WR Diondre Overton**\
 `A month after former Clemson receiver Diondre Overton was shot and killed at a party in Greensboro, N.C., authorities have made an arrest.`\
 https://nytimes.com/athletic/5829512/2024/10/08/clemson-diondre-overton-death-arrest/

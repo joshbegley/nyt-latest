@@ -1,3 +1,7 @@
+**Jenna Fischer, ‘The Office’ Star, Reveals Breast Cancer Diagnosis**\
+`“I am now cancer free,’’ the actress announced on Instagram, noting that she was diagnosed with Stage 1 cancer in December and that early detection had played a key role in her successful treatment.`\
+https://nytimes.com/2024/10/08/arts/television/jenna-fischer-the-office-breast-cancer.html
+
 **We Should Want Israel to Win**\
 `Even supporters of Palestinian statehood should want Hamas and Hezbollah to lose.`\
 https://nytimes.com/2024/10/08/opinion/israel-lebanon-iran-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829665/2024/10/08/padres-mike-shildt-defends-manny
 **Illness forces Hampton out of Chelsea starting XI minutes before kick off**\
 `Sonia Bompastor explained goalkeeper Hannah Hampton dropped out of the Chelsea starting XI against Real Madrid shortly before kick-off due to illness.`\
 https://nytimes.com/athletic/5829613/2024/10/08/hannah-hampton-chelsea-illness/
-
-**What Omarosa, John Kerry and Michael Cohen Have in Common**\
-`And why it matters in 2024.`\
-https://nytimes.com/2024/10/08/us/politics/trump-2024-election-democracy.html
 
