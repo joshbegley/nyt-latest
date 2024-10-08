@@ -1,3 +1,7 @@
+**Japan Says It Manipulated a Photo of (Slightly) Unkempt Cabinet Ministers**\
+`The episode provided political fodder for Prime Minister Shigeru Ishiba’s critics and highlighted the country’s generally high standard of dress.`\
+https://nytimes.com/2024/10/08/world/asia/japan-doctored-cabinet-photo.html
+
 **NFL Week 5 best and worst coaching decisions: Aaron Rodgers' influence hurts Jets**\
 `The veteran QB's desired approach isn't working in New York, and a Ravens-Bengals classic saw good and bad coaching.`\
 https://nytimes.com/athletic/5822917/2024/10/08/nfl-week-5-worst-best-coaching-decisions-nguyen/
