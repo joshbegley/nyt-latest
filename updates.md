@@ -1,3 +1,11 @@
+**NFL Week 5 best and worst coaching decisions: Aaron Rodgers' influence hurts Jets**\
+`The veteran QB's desired approach isn't working in New York, and a Ravens-Bengals classic saw good and bad coaching.`\
+https://nytimes.com/athletic/5822917/2024/10/08/nfl-week-5-worst-best-coaching-decisions-nguyen/
+
+**Canadiens' Juraj Slafkovský faces the weight of a nation**\
+`Slafkovský, the Canadiens' next big hope, navigates intense pressure and a lack of privacy in his native Slovakia.`\
+https://nytimes.com/athletic/5825751/2024/10/08/canadiens-juraj-slafkovsky-slovakia/
+
 **MLB's best playoff ballparks: Ranking the best environments for postseason madness**\
 `Some ballparks get loud, some parks get crazy, some have storied traditions and some are genuinely intimidating. `\
 https://nytimes.com/athletic/5825534/2024/10/08/mlbs-best-playoff-ballparks-2024/
