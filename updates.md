@@ -1,3 +1,7 @@
+**Rashee Rice undergoes surgery; what does it mean for the Chiefs?**\
+`In the season's first four games, Rice led the Chiefs with 24 catches, 288 yards and two touchdowns.`\
+https://nytimes.com/athletic/5829234/2024/10/08/rashee-rice-chiefs-injury-update-surgery-timeline/
+
 **Reds notes: Terry Francona's coaching staff, front office moves and more**\
 `The Reds retained pitching coach Derek Johnson but will be adding new faces alongside Terry Francona. `\
 https://nytimes.com/athletic/5829237/2024/10/08/reds-terry-francona-coaching-staff-offseason-moves/

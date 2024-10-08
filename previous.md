@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5829375/2024/10/08/raiders-gardner-minshew-aidan-oc
 https://nytimes.com/athletic/5829378/2024/10/08/mlb-tv-broadcast-takeovers/
 
 **Rashee Rice undergoes surgery; what does it mean for the Chiefs?**\
-`Rice finished the year with 24 catches, 288 yards and two touchdowns.`\
+`In the season's first four games, Rice led the Chiefs with 24 catches, 288 yards and two touchdowns.`\
 https://nytimes.com/athletic/5829234/2024/10/08/rashee-rice-chiefs-injury-update-surgery-timeline/
 
 **Giants Mailbagg, part 1: What went into the transition from Zaidi to Posey**\
