@@ -1,3 +1,7 @@
+**In Florida, Day Laborers Have Become the Backbone of Hurricane Cleanup**\
+`While they work, they face many risks, like wage theft or breathing in harmful dust and mold. Sleeping in a vehicle for weeks at a time is not uncommon, either.`\
+https://nytimes.com/2024/10/08/weather/florida-laborers-hurricane-helene-milton.html
+
 **Raiders DL Christian Wilkins out indefinitely after foot surgery**\
 `Wilkins sustained the injury in Sunday's 34-18 loss to the Denver Broncos that dropped the Raiders to 2-3 on the season.`\
 https://nytimes.com/athletic/5829681/2024/10/08/christian-wilkins-foot-injury-surgery-raiders/
