@@ -1,3 +1,11 @@
+**Reds notes: Terry Francona's coaching staff, front office moves and more**\
+`The Reds retained pitching coach Derek Johnson but will be adding new faces alongside Terry Francona. `\
+https://nytimes.com/athletic/5829237/2024/10/08/reds-terry-francona-coaching-staff-offseason-moves/
+
+**Will the Big Ten and SEC be part of a super league, or simply become one?**\
+`Many in and around college football are trying to determine what comes next. One question hovers over all of it: Who will be in charge?`\
+https://nytimes.com/athletic/5829079/2024/10/08/college-football-super-league-big-ten-sec/
+
 **Jobs and Housing Help Fuel Rapid Growth in Tampa**\
 `The region has been transformed by a number of economic and environmental factors, including its reputation for relatively few major storms.`\
 https://nytimes.com/2024/10/08/weather/tampa-florida-population-boom.html
