@@ -1,3 +1,7 @@
+**Our Book Is Here!**\
+`The cover star: Melissa Clark’s five-star skillet chicken with tomatoes, pancetta and mozzarella (a.k.a. pizza chicken).`\
+https://nytimes.com/2024/10/08/dining/our-book-is-here.html
+
 **Spurs assistant coach Mason in talks with Anderlecht to become new manager**\
 `Tottenham Hotspur assistant coach Ryan Mason is in talks with Anderlecht about their vacant manager&#8217;s position.`\
 https://nytimes.com/athletic/5828311/2024/10/08/tottenham-ryan-mason-anderlecht-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828326/2024/10/08/robert-saleh-fired-jets-coach/
 **The C.I.A. director says the risk of further escalation between Israel and Iran remains.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/cia-director-iran-israel
-
-**Rosenthal: The ‘Sinister Sling’ and the multitudes of Manny Machado**\
-`On the same night that he rallied his team in the dugout, Manny Machado instigated trouble by throwing a ball toward the Dodger dugout`\
-https://nytimes.com/athletic/5828048/2024/10/08/manny-machado-dugout-throw-dodgers-padres/
 
