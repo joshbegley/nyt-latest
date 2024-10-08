@@ -1,3 +1,11 @@
+**How Google Was Forced to Open Up**\
+`A federal judge ordered the tech giant to let rival app stores onto its Android smartphone platform, adding to its growing list of legal headaches .`\
+https://nytimes.com/2024/10/08/business/dealbook/google-epic-app-store.html
+
+**Weekly Student News Quiz: V.P. Debate, Middle East, Nibi the Beaver**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/10/08/learning/08StudentNewsQuiz.html
+
 **China to Penalize European Brandy Imports, Striking Back at Car Tariffs**\
 `Beijing’s action came days after European nations moved toward tariffs on electric vehicles from China, and it included a threat to also hit pork and car imports.`\
 https://nytimes.com/2024/10/08/business/china-europe-brandy.html
