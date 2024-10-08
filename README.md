@@ -1,3 +1,7 @@
+**Slowly but surely, the Dubas plan in Pittsburgh is looking a little more clear**\
+`The Penguins are beginning to mold the old with the young, hoping it's a plan that produces short- and long-term success.`\
+https://nytimes.com/athletic/5826816/2024/10/07/penguins-kyle-dubas-plan-prospects/
+
 **CBS Rebukes Anchor Over Tense Interview With Ta-Nehisi Coates**\
 `Executives said the interview, conducted by the morning show anchor Tony Dokoupil, had fallen short of network editorial standards.`\
 https://nytimes.com/2024/10/07/business/media/coates-dokoupil-cbs-mornings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/us/mega-millions-ticket-price-increase.html
 **Trump’s Ugly Closing Argument**\
 `He delivers a mix of disinformation, false claims about cheating in elections, and personal attacks.`\
 https://nytimes.com/2024/10/07/us/politics/trump-harris-fema-funding.html
-
-**Dueling Oct. 7 memorials reflect deep fissures among Israelis.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/dueling-oct-7-memorials-reflect-deep-fissures-among-israelis
 
