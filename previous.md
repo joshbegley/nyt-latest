@@ -1,3 +1,15 @@
+**The Pulse: The Super Bowl favorites are back**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5826419/2024/10/08/chiefs-saints-the-pulse/
+
+**Federal Debt and the Election**\
+`National debt may soon exceed G.D.P. We explore the causes — and possible solutions.`\
+https://nytimes.com/2024/10/08/briefing/federal-debt-election-harris-trump.html
+
+**What Is Hamas Capable of After a Year of War?**\
+`The Palestinian militant group fired rockets at Israel on the anniversary of its Oct. 7, 2023, attacks.`\
+https://nytimes.com/2024/10/08/world/middleeast/oct-7-anniversary-israel-hamas-capabilities.html
+
 **Bears QB Caleb Williams vs. a bad team, the blitz and the wind: 5 takeaways**\
 `The Bears did what they needed to do against the Panthers, and Shane Waldron deserves some credit for the offense's big day.`\
 https://nytimes.com/athletic/5826639/2024/10/08/bears-caleb-williams-panthers-blitz-wind/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5826898/2024/10/08/rangers-bold-predictions-2024-25
 **Tarik Skubal, a Jobu doll and the Tigers' latest dose of October magic**\
 `What's the key to Tarik Skubal's success? His ferocious pitch mix, sure, but according to his Mom, perhaps also a famed movie prop?`\
 https://nytimes.com/athletic/5827230/2024/10/08/tarik-skubal-jobu-tigers-playoff-win/
-
-**St. Louis Cardinals offseason primer: Early winter expectations**\
-`In his final offseason as president of baseball operations, John Mozeliak will be tasked with navigating a unique offseason strategy.`\
-https://nytimes.com/athletic/5825693/2024/10/08/st-louis-cardinals-2024-offseason-primer/
-
-**How NAFTA Broke American Politics**\
-`Since its passage in 1993, the trade agreement has played an outsize role in presidential elections.`\
-https://nytimes.com/2024/10/08/podcasts/the-daily/american-politics-trade.html
-
-**Poll Finds Harris Rising, and Florida Braces for Hurricane Milton**\
-`Plus, have we reached peak human life span?`\
-https://nytimes.com/2024/10/08/podcasts/harris-trump-poll-milton.html
 
