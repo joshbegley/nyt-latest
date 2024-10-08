@@ -1,3 +1,11 @@
+**Israel strikes an area south of Beirut, as Hezbollah launches another rocket barrage.**\
+`By Aryn Baker, Gabby Sobelman and Euan Ward`\
+https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/israel-strikes-an-area-south-of-beirut-as-hezbollah-launches-another-rocket-barrage
+
+**Premier League clubs to meet next week to discuss APT case fallout**\
+`Premier League clubs will meet next Thursday to discuss the league&#8217;s Associated Party Transaction regulations following Monday&#8217;s ruling on the case.`\
+https://nytimes.com/athletic/5827852/2024/10/08/manchester-city-letter-premier-league/
+
 **Two Scientists Awarded 2024 Nobel Prize in Physics**\
 `John J. Hopfield and Geoffrey E. Hinton were awarded the prize “for foundational discoveries and inventions that enable machine learning with artificial neural networks.”`\
 https://nytimes.com/video/science/100000009748476/2024-nobel-prize-physics-.html
