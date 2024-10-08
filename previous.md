@@ -1,3 +1,7 @@
+**Ipswich's Tuanzebe sidelined with washing up injury**\
+`Ipswich Town right-back Axel Tuanzebe is facing at least a month out after sustaining a hand injury while doing the washing up.`\
+https://nytimes.com/athletic/5828803/2024/10/08/axel-tuanzebe-washing-up-injury/
+
 **The Bounce: Five NBA players due for rookie-scale extensions**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5827935/2024/10/08/jalen-green-rockets-kawhi-leonard-clippers-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/well/mind/boundaries-self-care-advice.html
 **Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
 `With the NHL season underway, what's on your mind? Ask your questions here, and The Athletic will answer a selection in an upcoming mailbag.`\
 https://nytimes.com/athletic/5828807/2024/10/08/nhl-mailbag-trades-cap-chris-johnston/
-
-**Top Musk Lieutenant Joins Trump Super PAC for Final Push**\
-`Steve Davis is often called upon by Mr. Musk to help in all-hands-on-deck situations, such as after Mr. Musk’s purchase of Twitter.`\
-https://nytimes.com/2024/10/08/us/politics/elon-musk-steve-davis-trump-super-pac.html
 

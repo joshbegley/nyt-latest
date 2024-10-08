@@ -1,3 +1,7 @@
+**Ipswich's Tuanzebe sidelined with washing up injury**\
+`Ipswich Town right-back Axel Tuanzebe is facing at least a month out after sustaining a hand injury while doing the washing up.`\
+https://nytimes.com/athletic/5828803/2024/10/08/axel-tuanzebe-washing-up-injury/
+
 **Wizards' Brogdon undergoes thumb surgery**\
 `The 31-year-old former Rookie of the Year and Sixth Man award winner was expected to provide stability to a young Wizards roster. `\
 https://nytimes.com/athletic/5828076/2024/10/08/malcolm-brogdon-injury-wizards-status/
