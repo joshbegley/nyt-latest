@@ -1,3 +1,7 @@
+**Antisemitism and Threats Directed at Officials Over Storm Response**\
+`Some online posts have threatened violence against FEMA officials. A research group found that the X platform has been one of the main drivers of misinformation.`\
+https://nytimes.com/2024/10/08/us/north-carolina-floods-antisemitic-social-media.html
+
 **Small Business Administration Will Soon Exhaust Disaster Loan Funds**\
 `The agency has less than $100 million for new loans, according to officials, while Hurricane Milton is headed toward Florida and after Hurricane Helene devastated much of the Southeast.`\
 https://nytimes.com/2024/10/08/us/politics/milton-helene-small-business-administration-fema.html

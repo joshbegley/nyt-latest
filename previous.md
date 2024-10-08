@@ -1,3 +1,7 @@
+**Antisemitism and Threats Directed at Officials Over Storm Response**\
+`Some online posts have threatened violence against FEMA officials. A research group found that the X platform has been one of the main drivers of misinformation.`\
+https://nytimes.com/2024/10/08/us/north-carolina-floods-antisemitic-social-media.html
+
 **Small Business Administration Will Soon Exhaust Disaster Loan Funds**\
 `The agency has less than $100 million for new loans, according to officials, while Hurricane Milton is headed toward Florida and after Hurricane Helene devastated much of the Southeast.`\
 https://nytimes.com/2024/10/08/us/politics/milton-helene-small-business-administration-fema.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829512/2024/10/08/clemson-diondre-overton-death-ar
 **NCAA D-1 Council shortens CFB, CBB transfer window from 45 to 30 days**\
 `The NCAA Division I Council did not take the step of removing the spring football portal window.`\
 https://nytimes.com/athletic/5829716/2024/10/08/ncaa-division-i-council-college-football-basketball-transfer-window-shortened/
-
-**Ryan Fitzpatrick inks 3-year extension with Amazon to remain 'TNF' analyst**\
-`"Before the season I re-signed for three more years," Fitzpatrick told The Athletic. "I love the process of this and I love the team."`\
-https://nytimes.com/athletic/5829666/2024/10/08/ryan-fitzpatrick-contract-extension-amazon-prime-video-thursday-night-football/
 
