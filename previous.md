@@ -1,3 +1,7 @@
+**What Omarosa, John Kerry and Michael Cohen Have in Common**\
+`And why it matters in 2024.`\
+https://nytimes.com/2024/10/08/us/politics/trump-2024-election-democracy.html
+
 **Twins say bye to blackouts, agree to TV deal with MLB: What you need to know**\
 `Following a year of turmoil surrounding their television broadcast rights, the Twins agreed to a new deal to be to be broadcast by MLB. `\
 https://nytimes.com/athletic/5829504/2024/10/08/minnesota-twins-mlb-tv-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/weather/hurricane-milton-disinformation-fema.html
 **Romney Won’t Endorse Harris, Saying He Wants to Keep His Voice in the Party**\
 `Senator Mitt Romney of Utah, the 2012 Republican nominee for president, says the party may need to be rebuilt.`\
 https://nytimes.com/2024/10/08/us/politics/mitt-romney-trump-harris.html
-
-**Until Saturday: Hunter's Heisman competition, plus rankings review**\
-`Welcome to Until Saturday, the five-star college football newsletter: Who can challenge Hunter in our weekly Heisman straw poll?`\
-https://nytimes.com/athletic/5829195/2024/10/08/travis-hunter-heisman-trophy-college-football-rankings-until-saturday/
 

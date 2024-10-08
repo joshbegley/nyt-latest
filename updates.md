@@ -1,3 +1,7 @@
+**What Omarosa, John Kerry and Michael Cohen Have in Common**\
+`And why it matters in 2024.`\
+https://nytimes.com/2024/10/08/us/politics/trump-2024-election-democracy.html
+
 **Twins say bye to blackouts, agree to TV deal with MLB: What you need to know**\
 `Following a year of turmoil surrounding their television broadcast rights, the Twins agreed to a new deal to be to be broadcast by MLB. `\
 https://nytimes.com/athletic/5829504/2024/10/08/minnesota-twins-mlb-tv-deal/
