@@ -1,3 +1,7 @@
+**With Kennedy on the Ballot, Vance Talks Public Health in Michigan**\
+`Senator JD Vance of Ohio spoke of the occurrence of “weird childhood diseases” that may be caused by “weird stuff” in the food and water supply.`\
+https://nytimes.com/2024/10/08/us/politics/vance-rfk-jr-public-health.html
+
 **When a Television Meteorologist Breaks Down on Air and Admits Fear**\
 `John Morales, who has forecast weather for decades, went viral after choking up on air while discussing Hurricane Milton.`\
 https://nytimes.com/2024/10/08/climate/john-morales-weatherman-hurricane.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829195/2024/10/08/travis-hunter-heisman-trophy-col
 **Brazil Unblocks X After Musk Backs Down**\
 `Brazil’s Supreme Court said Tuesday that Elon Musk’s social network could return in the country after a monthlong ban because the company had complied with the court’s orders.`\
 https://nytimes.com/2024/10/08/world/americas/brazil-x-ban-musk.html
-
-**Wednesday Briefing: An Israeli Airstrike in Syria**\
-`Plus, revisiting Oppenheimer’s Communist ties.`\
-https://nytimes.com/2024/10/08/briefing/israel-syria-trump-putin-india.html
 
