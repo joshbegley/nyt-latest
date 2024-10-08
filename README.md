@@ -1,3 +1,11 @@
+**MLB's best playoff ballparks: Ranking the best environments for postseason madness**\
+`Some ballparks get loud, some parks get crazy, some have storied traditions and some are genuinely intimidating. `\
+https://nytimes.com/athletic/5825534/2024/10/08/mlbs-best-playoff-ballparks-2024/
+
+**With other stars stifled, how far can Shohei Ohtani take the Dodgers?**\
+`With Freddie Freeman hurt and Mookie Betts slumping, all eyes are on Ohtani as usual: "Probably the best in the game."`\
+https://nytimes.com/athletic/5827135/2024/10/08/dodgers-mlb-shohei-ohtani-nlds/
+
 **Why the Bengals' dire situation has glimmer of hope as defense seeks answers**\
 `Cincinnati's potent offense combined with a favorable stretch of opponents could be the recipe for a turnaround.`\
 https://nytimes.com/athletic/5827176/2024/10/08/bengals-playoff-chances-defense/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/us/ghost-guns-supreme-court.html
 **What Trump and Vance Want From Hurricane Helene**\
 `Trump has successfully trained millions of Americans to think of the truth as an obstacle to winning power.`\
 https://nytimes.com/2024/10/08/opinion/helene-trump-vance-fema.html
-
-**A Florida Poll That Should Change the Way You Look at the Election**\
-`A big Trump lead in the state paradoxically adds to evidence of a smaller Electoral College edge for him. And a choice by pollsters may cause them to miss state shifts.`\
-https://nytimes.com/2024/10/08/upshot/florida-poll-harris-trump.html
-
-**This Year’s October Surprise May Be That There Isn’t One**\
-`The polls are very, very stable in spite of events.`\
-https://nytimes.com/2024/10/08/opinion/harris-trump-polls-hurricane.html
 
