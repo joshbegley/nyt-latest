@@ -1,3 +1,15 @@
+**Audience Report: Gongs and Goodbyes as the Rubin Museum Shuts Its Doors**\
+`After 20 years, a beloved home for Himalayan art enters the void.`\
+https://nytimes.com/card/2024/10/09/arts/design/rubin-museum-closed
+
+**In High Mountain Alaska, a Glacier’s Deep Secret Is Revealed at Last**\
+`A famed explorer was sure the ice hid something profound. Ninety years later, scientists have put forth the strongest evidence yet that he was right.`\
+https://nytimes.com/2024/10/08/climate/alaska-great-gorge-deepest.html
+
+**Sean Manaea deals, Phillies reel as Mets seize lead in NLDS: Takeaways**\
+`Behind a commanding performance by Manaea and timely hitting in Game 3, the New York Mets are one win away from reaching the NLCS. `\
+https://nytimes.com/athletic/5829709/2024/10/08/phillies-mets-score-sean-manaea-takeaways/
+
 **Antisemitism and Threats Directed at Officials Over Storm Response**\
 `Some online posts have threatened violence against FEMA officials. A research group found that the X platform has been one of the main drivers of misinformation.`\
 https://nytimes.com/2024/10/08/us/north-carolina-floods-antisemitic-social-media.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/08/arts/television/jenna-fischer-the-office-breast-c
 **We Should Want Israel to Win**\
 `Even supporters of Palestinian statehood should want Hamas and Hezbollah to lose.`\
 https://nytimes.com/2024/10/08/opinion/israel-lebanon-iran-gaza.html
-
-**NHL rumblings: Rangers up their offer to Shesterkin, plus latest on Oettinger-Stars and Tavares-Maple Leafs**\
-`League sources confirmed that the Rangers have offered to top Carey Price's deal and make Shesterkin the NHL's all-time highest-paid goalie.`\
-https://nytimes.com/athletic/5829659/2024/10/08/shesterkin-oettinger-tavares-lebrun-rumblings/
-
-**Arrest made in shooting death of former Clemson WR Diondre Overton**\
-`A month after former Clemson receiver Diondre Overton was shot and killed at a party in Greensboro, N.C., authorities have made an arrest.`\
-https://nytimes.com/athletic/5829512/2024/10/08/clemson-diondre-overton-death-arrest/
-
-**NCAA D-1 Council shortens CFB, CBB transfer window from 45 to 30 days**\
-`The NCAA Division I Council did not take the step of removing the spring football portal window.`\
-https://nytimes.com/athletic/5829716/2024/10/08/ncaa-division-i-council-college-football-basketball-transfer-window-shortened/
 
