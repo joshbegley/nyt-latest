@@ -3,7 +3,7 @@
 https://nytimes.com/2024/10/08/arts/television/seth-meyers-trump-rallies.html
 
 **With Patrick Mahomes on board, the Royals are in position to shock the Yankees**\
-`Mahomes, a minority owner of the Royals, was busy himself on Monday night, but one can assume he was thrilled when he heard the final score.`\
+`Mahomes, a minority owner of the Royals, was busy himself Monday night, but one can assume he was thrilled when he heard the final score.`\
 https://nytimes.com/athletic/5827621/2024/10/08/royals-game-2-patrick-mahomes/
 
 **Word of the Day: debacle**\
