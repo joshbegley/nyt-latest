@@ -1,40 +1,40 @@
+**Two Scientists Awarded 2024 Nobel Prize in Physics**\
+`John J. Hopfield and Geoffrey E. Hinton were awarded the prize “for foundational discoveries and inventions that enable machine learning with artificial neural networks.”`\
+https://nytimes.com/video/science/100000009748476/2024-nobel-prize-physics-.html
+
+**City accuse Premier League of being 'misleading' in letter to other 19 clubs**\
+`Manchester City have accused the Premier League of being &#8220;misleading&#8221; following the fallout from a ruling on the league’s regulations on Associated Party Transactions (APT).`\
+https://nytimes.com/athletic/5827852/2024/10/08/manchester-city-letter-premier-league/
+
+**Faith in Drew Bannister? Why those who worked with the Blues coach closely expect success**\
+`One former colleague of Bannister as he enters his first full Blues season: "He was super prepared … and there was always a plan in place."`\
+https://nytimes.com/athletic/5820802/2024/10/08/drew-bannister-blues-coach-faith/
+
+**10 bold Bruins predictions: Swayman’s slow start, Coyle’s 30-goal year**\
+`Plus predictions for Fabian Lysell, Justin Brazeau, Mason Lohrei, Brad Marchand, Matt Poitras, both Lindholms and more.`\
+https://nytimes.com/athletic/5826602/2024/10/08/bruins-bold-predictions-swayman-coyle/
+
+**Here's what matters for the Blackhawks' 2024-25 season**\
+`The past two seasons, the goal for Chicago was clear. This season, it's not as clear-cut.`\
+https://nytimes.com/athletic/5826749/2024/10/08/blackhawks-what-matters-this-season/
+
+**Javonte Williams' usage, Bo Nix vs. blitz and more thoughts on Broncos offense**\
+`The Broncos showed signs of progress while scoring three second-half touchdowns, but they now face offensive line questions.`\
+https://nytimes.com/athletic/5825738/2024/10/08/broncos-offense-javonte-williams-bo-nix/
+
+**Aidan Morris's path to Pochettino's USMNT: Embracing the uncomfortable and building relationships**\
+`How Aidan Morris earned his spot on the USMNT roster`\
+https://nytimes.com/athletic/5825720/2024/10/08/aidan-morris-pochettino-usmnt-middlesbrough/
+
+**Angel City salary-cap violation was revealed by former player, says NWSL commissioner**\
+`NWSL commissioner Jessica Berman discusses Angel City's salary-cap violation and what happens next`\
+https://nytimes.com/athletic/5827745/2024/10/08/angel-city-salary-cap-violation-was-revealed-by-former-player-nwsl-commissioner/
+
+**'I've got one job to do': Stuart Skinner on the offseason, new faces and perspective**\
+`Fresh off a trip to Game 7 of the Stanley Cup Final, Stuart Skinner enters an NHL season as the starting goaltender for the first time.`\
+https://nytimes.com/athletic/5826956/2024/10/08/oilers-stuart-skinner-interview/
+
 **The Pulse: The Super Bowl favorites are back**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5826419/2024/10/08/chiefs-saints-the-pulse/
-
-**Federal Debt and the Election**\
-`National debt may soon exceed G.D.P. We explore the causes — and possible solutions.`\
-https://nytimes.com/2024/10/08/briefing/federal-debt-election-harris-trump.html
-
-**What Is Hamas Capable of After a Year of War?**\
-`The Palestinian militant group fired rockets at Israel on the anniversary of its Oct. 7, 2023, attacks.`\
-https://nytimes.com/2024/10/08/world/middleeast/oct-7-anniversary-israel-hamas-capabilities.html
-
-**Bears QB Caleb Williams vs. a bad team, the blitz and the wind: 5 takeaways**\
-`The Bears did what they needed to do against the Panthers, and Shane Waldron deserves some credit for the offense's big day.`\
-https://nytimes.com/athletic/5826639/2024/10/08/bears-caleb-williams-panthers-blitz-wind/
-
-**Vikings offense weathers off day from Sam Darnold, but does he remain a concern?**\
-`Darnold's struggles were not the only factor in Minnesota's middling offensive performance in London. Yet the Vikings escaped with a win.`\
-https://nytimes.com/athletic/5826116/2024/10/08/sam-darnold-vikings-offense-jets-london/
-
-**How Max Pacioretty's career was saved from the nightmare that nearly ended it**\
-`Max Pacioretty has been on a harrowing comeback journey after three Achilles injuries, one he hasn’t talked about in detail until now.`\
-https://nytimes.com/athletic/5825156/2024/10/08/maple-leafs-max-pacioretty/
-
-**How Brian Daboll is scheming around Giants' talent deficit, finding groove as play caller**\
-`Except for in Week 1, Daboll and the Giants have had an effective game plan for every defense they’ve faced this season. `\
-https://nytimes.com/athletic/5827106/2024/10/08/new-york-giants-brian-daboll-play-caller/
-
-**Adam Fantilli, set for a relaunch, represents the Blue Jackets' greatest hope**\
-`In training camp and preseason, Fantilli looked completely healthy, plus bigger, stronger and faster than in his rookie season.`\
-https://nytimes.com/athletic/5823868/2024/10/08/fantilli-blue-jackets-injury/
-
-**Ten bold 2024-25 Rangers predictions: A trophy, a rebound, a departure and more**\
-`With cap housekeeping done and Panarin scheduled to play Wednesday's season opener, here's where we think the Rangers' season may lead.`\
-https://nytimes.com/athletic/5826898/2024/10/08/rangers-bold-predictions-2024-25/
-
-**Tarik Skubal, a Jobu doll and the Tigers' latest dose of October magic**\
-`What's the key to Tarik Skubal's success? His ferocious pitch mix, sure, but according to his Mom, perhaps also a famed movie prop?`\
-https://nytimes.com/athletic/5827230/2024/10/08/tarik-skubal-jobu-tigers-playoff-win/
 
