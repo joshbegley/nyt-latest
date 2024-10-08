@@ -1,3 +1,11 @@
+**Dodgers' Mookie Betts fighting to snap out of epic postseason funk**\
+`Manager Dave Roberts can see Betts searching but keeps the faith: "I know he has the talent."`\
+https://nytimes.com/athletic/5827401/2024/10/07/dodgers-mookie-betts-nlds-slump/
+
+**What you need to know from the MLB playoffs: Tigers stun Guardians bullpen, Royals even with Yankees**\
+`Stock up and stock down following Monday's games, and players to watch when the National League takes the stage of Tuesday`\
+https://nytimes.com/athletic/5827420/2024/10/07/mlb-playoffs-2024-yankees-royals-tigers-guardians/
+
 **Chiefs move to 5-0 as Saints' offensive woes continue**\
 `The Chiefs and the Vikings are the only remaining undefeated teams in the NFL.`\
 https://nytimes.com/athletic/5827127/2024/10/07/chiefs-saints-score-monday-night-football-takeaways/
