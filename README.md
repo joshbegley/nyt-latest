@@ -2,7 +2,7 @@
 `A jury had found Gerald Goines guilty of felony murder in the deaths of two people who were fatally shot during a botched drug raid in 2019.`\
 https://nytimes.com/2024/10/08/us/gerald-goines-houston-officer-guilty-murder.html
 
-**Netanyahu says Israel killed Hezbollah’s leader, his replacement and ‘the replacement of the replacement.’**\
+**Netanyahu suggests Israel killed potential replacements for Hezbollah’s leaders.**\
 `Hashem Safieddine had been expected to succeed Hassan Nasrallah, his cousin. It was not immediately clear who “the replacement of the replacement” was.`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/netanyahu-hezbollah-nasrallah-replacement
 
