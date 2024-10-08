@@ -1,3 +1,15 @@
+**Does My Home Have Lead Pipes? And What Can I Do About Them?**\
+`New rules will require utilities to replace lead pipes nationwide. That will take time, but you can protect yourself by taking these steps.`\
+https://nytimes.com/2024/10/08/climate/lead-pipes-water-testing-filter-protection.html
+
+**Iran Crisis Ignites New Debate About Trump’s Nuclear Deal Exit**\
+`President Donald J. Trump labeled it “the worst deal in history.” But critics of the withdrawal say it prompted Iran to accelerate its nuclear program.`\
+https://nytimes.com/2024/10/08/us/politics/iran-nuclear-deal-trump.html
+
+**Kyler Murray announces CoD partnership, plays off past criticism**\
+`In the past, Murray has faced criticism for his love of video games from fans and pundits, who have called them a distraction.`\
+https://nytimes.com/athletic/5828439/2024/10/08/kyler-murray-call-of-duty/
+
 **Inside a Field Hospital in a North Carolina Mountain Town**\
 `After Hurricane Helene hit, a group of doctors and nurses quickly built a field hospital in Burnsville, N.C., to tend to patients and provide them with medical care.`\
 https://nytimes.com/video/world/americas/100000009744007/hurricane-helene-north-carolina-video.html
