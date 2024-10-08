@@ -1,3 +1,23 @@
+**School Absences Rise as Special Education Fails Students, Suit Says**\
+`A class-action lawsuit argues that the New York City school system falls short in helping students with emotional disabilities, leaving them to miss too many school days.`\
+https://nytimes.com/2024/10/08/us/nyc-schools-absences-special-education.html
+
+**TikTok Faces Barrage of Lawsuits Around Teens and Mental Health**\
+`More than a dozen states sued TikTok on Tuesday for creating an app designed to be addictive to children and teens.`\
+https://nytimes.com/2024/10/08/business/tiktok-lawsuits-us-states-teens-mental-health.html
+
+**Trump Secretly Stayed in Touch With Putin After Leaving Office, Book Says**\
+`A new book by the journalist Bob Woodward also reports that Donald J. Trump, while still in office, secretly sent Vladimir Putin what were then rare Covid-19 tests for the Russian’s leader’s personal use.`\
+https://nytimes.com/2024/10/08/us/politics/trump-putin-woodward-book.html
+
+**Studio Museum in Harlem to Open New Building in Fall 2025**\
+`The 82,000-square-foot structure on 125th Street will open with a show featuring the artist Tom Lloyd.`\
+https://nytimes.com/2024/10/08/arts/design/studio-museum-in-harlem-new-building-2025.html
+
+**Real Madrid's options to replace Carvajal - and the state of play on transfers**\
+`Veteran right-back Dani Carvajal will miss the rest of the season after an ACL injury. Here's how Real Madrid plan to respond`\
+https://nytimes.com/athletic/5828059/2024/10/08/real-madrid-carvajal-transfers-injury-ancelotti/
+
 **Canucks notebook: Patrik Allvin speaks, accruing cap space and the 3 goaltenders**\
 `Key takeaways from the Canucks GM's season-opening commentary fresh off of a whirlwind weekend that featured a trade and an extension.`\
 https://nytimes.com/athletic/5827713/2024/10/08/canucks-patrik-allvin-salary-cap-goalies/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5828064/2024/10/08/derek-carr-injury-saints/
 **Georgia WR Colbie Young arrested on charges of battery, assault on an unborn child**\
 `Young was booked at 4:18 a.m., with bond set at $2,500, and remained in jail as of four hours later.`\
 https://nytimes.com/athletic/5828097/2024/10/08/georgia-football-colbie-young-arrested/
-
-**Adams’s Top Deputy Mayor Resigns, Intensifying Wave of Departures**\
-`Sheena Wright, the first deputy mayor of New York City, became the seventh senior leader to leave the administration in the past few weeks.`\
-https://nytimes.com/2024/10/08/nyregion/sheena-wright-resigns-eric-adams.html
-
-**An Exquisite Queer Odyssey by a Literary Master**\
-`In Alan Hollinghurst’s new novel, “Our Evenings,” a Burmese English actor grapples with race and ambition, sexuality and love in a bigoted world.`\
-https://nytimes.com/2024/10/08/books/review/our-evenings-alan-hollinghurst.html
-
-**India’s Political Carnival Is Back in Season, With Mixed Results for Modi**\
-`Two closely watched elections, in Haryana and the turbulent Jammu and Kashmir, kept the surprises coming after this summer’s shocking national outcome.`\
-https://nytimes.com/2024/10/08/world/asia/india-elections-haryana-jammu-kashmir.html
-
-**Maguire out 'a few weeks' after sustaining injury against Villa**\
-`Manchester United defender Harry Maguire says he will be out for &#8220;a few weeks&#8221; after sustaining an injury during their goalless draw at Aston Villa on Sunday.`\
-https://nytimes.com/athletic/5822830/2024/10/08/harry-maguire-injury-manchester-united/
-
-**Russian Forces Push Forward in Ukraine’s East After Fall of Key Town**\
-`Russian troops have now entered Toretsk, a strategic hilltop city, and are pressing with assaults elsewhere in the Donetsk region.`\
-https://nytimes.com/2024/10/08/world/europe/russia-eastern-ukraine-toretsk.html
 
