@@ -1,3 +1,11 @@
+**Poll Finds Support for Florida’s Abortion Ballot Measure Is Falling Short**\
+`Earlier surveys have shown higher support, but the state’s Republican governor is working hard to defeat the initiative.`\
+https://nytimes.com/2024/10/08/us/politics/florida-abortion-ballot-measure-poll.html
+
+**Yankees' Boone walks back Chisholm's 'lucky' comment about Royals**\
+`The Yankees and Royals split the first two games of the ALDS before heading to Kansas City for Game 3 on Wednesday.`\
+https://nytimes.com/athletic/5829215/2024/10/08/yankees-aaron-boone-jazz-chisholm-royals-lucky/
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/10/08/opinion/thepoint

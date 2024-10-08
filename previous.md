@@ -1,3 +1,11 @@
+**Poll Finds Support for Florida’s Abortion Ballot Measure Is Falling Short**\
+`Earlier surveys have shown higher support, but the state’s Republican governor is working hard to defeat the initiative.`\
+https://nytimes.com/2024/10/08/us/politics/florida-abortion-ballot-measure-poll.html
+
+**Yankees' Boone walks back Chisholm's 'lucky' comment about Royals**\
+`The Yankees and Royals split the first two games of the ALDS before heading to Kansas City for Game 3 on Wednesday.`\
+https://nytimes.com/athletic/5829215/2024/10/08/yankees-aaron-boone-jazz-chisholm-royals-lucky/
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/10/08/opinion/thepoint
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5829212/2024/10/08/live-qa-week-6-fantasy-football-
 **Toronto Woman Is Accused of Murdering 3 in Serial Killings**\
 `The woman’s victims, found in a span of three days in Canada last week, included two men whom the police said she had attacked at random.`\
 https://nytimes.com/2024/10/08/world/canada/toronto-woman-murder-serial-killer.html
-
-**Vandals Deface Harvard Statue and U. of Michigan Leaders’ Homes**\
-`It was not clear who was responsible for the broken windows, fake blood and pro-Palestinian slogans.`\
-https://nytimes.com/2024/10/08/us/oct-7-pro-palestinian-protests-vandalism.html
-
-**Inside a Harris Ad in Which Ex-Trump Aides Blast Him as Unfit for Office**\
-`An attack ad from Kamala Harris’s campaign uses denunciations of Donald Trump by his own former top security lieutenants to portray him as too risky to restore to power.`\
-https://nytimes.com/2024/10/08/us/politics/harris-ad-former-trump-aides-unfit.html
 
