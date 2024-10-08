@@ -1,40 +1,40 @@
-**What We’ve Heard From Teens About the 2024 Election**\
-`Since September, the Headway team has been asking teenagers across the country for their thoughts on the election. Here’s what we’ve heard so far.`\
-https://nytimes.com/2024/10/08/headway/teens-2024-election-review.html
+**Why the Bengals' dire situation has glimmer of hope as defense seeks answers**\
+`Cincinnati's potent offense combined with a favorable stretch of opponents could be the recipe for a turnaround.`\
+https://nytimes.com/athletic/5827176/2024/10/08/bengals-playoff-chances-defense/
 
-**The 10 Most Common Questions Teenagers Asked About the Election**\
-`Headway has received more than 500 questions from teens about this year’s presidential election. Here are their most frequently asked questions — and our answers.`\
-https://nytimes.com/2024/10/08/headway/teen-2024-election-faq.html
+**Chiefs QB Patrick Mahomes gets the results he wanted on rare night for Kansas City sports**\
+`Without three of his best skill-position players, Mahomes threw for 331 yards by completing at least one pass to eight teammates.`\
+https://nytimes.com/athletic/5827664/2024/10/08/chiefs-patrick-mahomes-saints-royals/
 
-**Why France’s Most Controversial Novelist Is Also Its Most Celebrated**\
-`Reviled as much as he is lauded, Michel Houellebecq holds up a mirror to a world we would rather not see.`\
-https://nytimes.com/2024/10/08/magazine/michel-houellebecq-france-profile.html
+**Market movers: Josh Hart, Kawhi Leonard and more ADP risers, fallers over the past month**\
+`Eric Wong looks at the notable players in fantasy basketball, like Kawhi Leonard, who have seen significant ADP movement in the past month. `\
+https://nytimes.com/athletic/5826892/2024/10/08/fantasy-basketball-adp-watch-kawhi-leonard-market-movers-past-month/
 
-**Exposing the Violence of Empire in the Novels It Left Behind**\
-`For her new book, “Salvage,” the Trinidadian-born writer Dionne Brand rereads classic English novels, teasing out evidence of the ravages of colonialism.`\
-https://nytimes.com/2024/10/08/books/review/salvage-dionne-brand.html
+**QB switch coming for the Patriots? Weighing the pros and cons of going to Drake Maye**\
+`It feels like just a matter of time before the Patriots switch to Maye in the midst of their terrible 1-4 start under Jacoby Brissett.`\
+https://nytimes.com/athletic/5826103/2024/10/08/patriots-qb-controversy-drake-maye-jacoby-brissett/
 
-**Grappling With the Talmud in the Midst of Crisis**\
-`What the words of ancient rabbis could and couldn’t teach me.`\
-https://nytimes.com/2024/10/08/magazine/talmud-rabbis.html
+**After a Betrayal, a Fractured Cartel Turns Its Hometown Into a War Zone**\
+`An explosive deception has ripped apart one of Mexico’s most powerful criminal groups, the Sinaloa cartel, and ignited a war between the rival factions.`\
+https://nytimes.com/2024/10/08/world/americas/mexico-sinaloa-cartel-war.html
 
-**For Many Israelis, Oct. 7 Never Ended**\
-`The Hamas-led attacks that day shattered Israelis’ faith in the state, and the year of war that followed has deepened society’s divisions. Yet many find hope in the people’s resilience.`\
-https://nytimes.com/2024/10/08/world/middleeast/oct-7-israel.html
+**The Role of New York’s Lauded Looted Art Unit Is Challenged in Court**\
+`The fight is over an Egon Schiele drawing held by the Art Institute of Chicago that the Manhattan district attorney’s office seized as Nazi loot. But it has wider implications.`\
+https://nytimes.com/2024/10/08/arts/the-role-of-new-yorks-lauded-looted-art-unit-is-challenged-in-court.html
 
-**Biden’s Moral Failure in Israel**\
-`The American president promised equality. He didn’t deliver.`\
-https://nytimes.com/2024/10/08/opinion/bidens-moral-failure-in-israel.html
+**Supreme Court Will Hear Challenge to Biden Administration’s Limits on ‘Ghost Guns’**\
+`On the second day of the new term, the justices will wrestle with whether the federal government can regulate kits that can be assembled into untraceable homemade guns.`\
+https://nytimes.com/2024/10/08/us/ghost-guns-supreme-court.html
 
-**The Quick-Witted, Self-Lacerating James Blunt Would Like a Word**\
-`Twenty years after his hit “You’re Beautiful” turned him into an overnight star, the British singer and songwriter takes his music — and his haters — to task.`\
-https://nytimes.com/2024/10/08/arts/music/james-blunt-youre-beautiful-back-to-bedlam-anniversary.html
+**What Trump and Vance Want From Hurricane Helene**\
+`Trump has successfully trained millions of Americans to think of the truth as an obstacle to winning power.`\
+https://nytimes.com/2024/10/08/opinion/helene-trump-vance-fema.html
 
-**What Does Utopia Look Like for Black Americans?**\
-`Aaron Robertson’s grandparents had a farm in Promise Land, Tenn. In a new book, he explores the history and meaning of such utopian communities for African Americans.`\
-https://nytimes.com/2024/10/08/books/review/the-black-utopians-aaron-robertson.html
+**A Florida Poll That Should Change the Way You Look at the Election**\
+`A big Trump lead in the state paradoxically adds to evidence of a smaller Electoral College edge for him. And a choice by pollsters may cause them to miss state shifts.`\
+https://nytimes.com/2024/10/08/upshot/florida-poll-harris-trump.html
 
-**Shaker Cradles for Adults? They Rocked Frances McDormand’s Mind**\
-`A soulful exhibition curated by the actress and her friend Suzanne Bocanegra, an artist, explores caregiving and community.`\
-https://nytimes.com/2024/10/08/arts/design/shakers-cradles-mcdormand-museum.html
+**This Year’s October Surprise May Be That There Isn’t One**\
+`The polls are very, very stable in spite of events.`\
+https://nytimes.com/2024/10/08/opinion/harris-trump-polls-hurricane.html
 
