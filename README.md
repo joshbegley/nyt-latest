@@ -1,3 +1,7 @@
+**Harris Proposes a Medicare Plan to Provide Home Care for Seniors**\
+`The vice president’s latest health care plan is meant to help Americans who are struggling to find affordable home care for themselves or their aging loved ones.`\
+https://nytimes.com/2024/10/08/us/politics/harris-medicare-home-health-care.html
+
 **Fantasy football: Who to drop in Week 6? Aaron Rodgers, Mark Andrews are cuttable**\
 `Is Aaron Rodgers washed? Is there no hope for Mark Andrews managers or are we just trying to conjure another reverse-jinx?`\
 https://nytimes.com/athletic/5828092/2024/10/08/fantasy-football-who-to-drop-week-6-aaron-rodgers-mark-andrews/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/nyregion/mohamed-bahi-arrested-adams.html
 **Chelsea and Forest charged for failing to control players in melee**\
 `The Football Association (FA) has charged Chelsea and Nottingham Forest with failing to control their players following a mass confrontation during their Premier League match at Stamford Bridge on Sunday.`\
 https://nytimes.com/athletic/5828330/2024/10/08/chelsea-nottingham-forest-fa-charges/
-
-**Will Trump Get Jail Time? We Looked at Similar Cases to Find Out.**\
-`Donald J. Trump faces sentencing on Nov. 26. The election three weeks earlier may determine not only if he returns to the presidency, but if he ends up behind bars.`\
-https://nytimes.com/2024/10/08/nyregion/donald-trump-merchan-sentencing-jail.html
 
