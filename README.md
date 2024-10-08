@@ -1,3 +1,7 @@
+**Japan Says It Manipulated a Photo of (Slightly) Unkempt Cabinet Ministers**\
+`The episode provided political fodder for Prime Minister Shigeru Ishiba’s critics and highlighted the country’s generally high standard of dress.`\
+https://nytimes.com/2024/10/08/world/asia/japan-doctored-cabinet-photo.html
+
 **NFL Week 5 best and worst coaching decisions: Aaron Rodgers' influence hurts Jets**\
 `The veteran QB's desired approach isn't working in New York, and a Ravens-Bengals classic saw good and bad coaching.`\
 https://nytimes.com/athletic/5822917/2024/10/08/nfl-week-5-worst-best-coaching-decisions-nguyen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5826103/2024/10/08/patriots-qb-controversy-drake-ma
 **After a Betrayal, a Fractured Cartel Turns Its Hometown Into a War Zone**\
 `An explosive deception has ripped apart one of Mexico’s most powerful criminal groups, the Sinaloa cartel, and ignited a war between the rival factions.`\
 https://nytimes.com/2024/10/08/world/americas/mexico-sinaloa-cartel-war.html
-
-**The Role of New York’s Lauded Looted Art Unit Is Challenged in Court**\
-`The fight is over an Egon Schiele drawing held by the Art Institute of Chicago that the Manhattan district attorney’s office seized as Nazi loot. But it has wider implications.`\
-https://nytimes.com/2024/10/08/arts/the-role-of-new-yorks-lauded-looted-art-unit-is-challenged-in-court.html
 
