@@ -1,3 +1,7 @@
+**Wednesday Briefing: An Israeli Airstrike in Syria**\
+`Plus, revisiting Oppenheimer’s Communist ties.`\
+https://nytimes.com/2024/10/08/briefing/israel-syria-trump-putin-india.html
+
 **Rashee Rice undergoes surgery; what does it mean for the Chiefs?**\
 `In the season's first four games, Rice led the Chiefs with 24 catches, 288 yards and two touchdowns.`\
 https://nytimes.com/athletic/5829234/2024/10/08/rashee-rice-chiefs-injury-update-surgery-timeline/
