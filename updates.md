@@ -1,3 +1,7 @@
+**Slowly but surely, the Dubas plan in Pittsburgh is looking a little more clear**\
+`The Penguins are beginning to mold the old with the young, hoping it's a plan that produces short- and long-term success.`\
+https://nytimes.com/athletic/5826816/2024/10/07/penguins-kyle-dubas-plan-prospects/
+
 **CBS Rebukes Anchor Over Tense Interview With Ta-Nehisi Coates**\
 `Executives said the interview, conducted by the morning show anchor Tony Dokoupil, had fallen short of network editorial standards.`\
 https://nytimes.com/2024/10/07/business/media/coates-dokoupil-cbs-mornings.html
