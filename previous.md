@@ -1,3 +1,7 @@
+**7 Takeaways From Harris’s Interview on ‘60 Minutes’**\
+`Pressed repeatedly, Kamala Harris stayed focused on the points she wanted to make. She also spoke about owning a Glock, and Tim Walz revealed she had told him to be a “little more careful” speaking.`\
+https://nytimes.com/2024/10/07/us/politics/kamala-harris-60-minutes-interview-takeaways.html
+
 **China’s Policy Reversal Sparks ‘Mind Boggling’ Stock Rally**\
 `The government has fired up investors by encouraging banks to lend more to buyers of stock and real estate, but economists say more stimulus is needed.`\
 https://nytimes.com/2024/10/07/business/china-stocks-csi-300.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/crosswords/daily-puzzle-10-08.html
 **That Gun Harris Told Oprah Winfrey About? It’s a Glock.**\
 `“And I’ve had it for quite some time,” Vice President Kamala Harris said on “60 Minutes.”`\
 https://nytimes.com/2024/10/07/us/politics/harris-gun-glock-60-minutes.html
-
-**Can Money Help Save Democracy?**\
-`Experts on a panel in Athens last week debated how a growth in organizations aimed at countering a rise in autocracies could help turn the tide.`\
-https://nytimes.com/2024/10/07/world/democracy-philanthropy.html
 
