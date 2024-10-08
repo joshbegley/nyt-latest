@@ -1,3 +1,19 @@
+**Rashee Rice undergoes surgery; what does it mean for the Chiefs?**\
+`Rice finished the year with 24 catches, 288 yards and two touchdowns.`\
+https://nytimes.com/athletic/5829234/2024/10/08/rashee-rice-chiefs-injury-update-surgery-timeline/
+
+**Giants Mailbagg, part 1: What went into the transition from Zaidi to Posey**\
+`Was the Matt Chapman negotiation the final straw for the Giants' ownership in regards to Zaidi? Who are the top GM candidates? `\
+https://nytimes.com/athletic/5827696/2024/10/08/sf-giants-mailbag-buster-posey-farhan-zaidi-gm-job/
+
+**Webb explains VAR process behind incorrect Fernandes red card against Spurs**\
+`English football&#8217;s refereeing chief Howard Webb says Bruno Fernandes&#8217; incorrect red card against Tottenham Hotspur was not overturned on the day because the video assistant referee (VAR) mistakenly thought the decision did not meet the threshold for an on-field review.`\
+https://nytimes.com/athletic/5829311/2024/10/08/bruno-fernandes-red-card-var-spurs/
+
+**Israel’s Defense Minister Postpones Trip to Washington, U.S. Says**\
+`Yoav Gallant and Defense Secretary Lloyd J. Austin III were expected to discuss Israel’s response to the Iranian missile assault on Israel last week.`\
+https://nytimes.com/2024/10/08/world/middleeast/gallant-austin-washington-visit-postponed.html
+
 **Greg Landry, Scrambling All-Pro Quarterback, Dies at 77**\
 `Known for his legs as well as for his arm, he was the last Detroit Lions quarterback to make the Pro Bowl for more than 40 years.`\
 https://nytimes.com/2024/10/08/sports/football/greg-landry-dead.html
