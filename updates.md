@@ -1,3 +1,7 @@
+**Guardians needed Emmanuel Clase to be super again in Game 2, but it turns out he's human**\
+`It was a record-scratch moment. Kerry Carpenter's three-run homer off Clase in ninth was quite a jolt, setting up two big games in Detroit.`\
+https://nytimes.com/athletic/5827403/2024/10/07/cleveland-guardians-emmanuel-clase-alds-game-2/
+
 **Dodgers' Mookie Betts fighting to snap out of epic postseason funk**\
 `Manager Dave Roberts can see Betts searching but keeps the faith: "I know he has the talent."`\
 https://nytimes.com/athletic/5827401/2024/10/07/dodgers-mookie-betts-nlds-slump/

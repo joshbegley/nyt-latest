@@ -1,3 +1,7 @@
+**Guardians needed Emmanuel Clase to be super again in Game 2, but it turns out he's human**\
+`It was a record-scratch moment. Kerry Carpenter's three-run homer off Clase in ninth was quite a jolt, setting up two big games in Detroit.`\
+https://nytimes.com/athletic/5827403/2024/10/07/cleveland-guardians-emmanuel-clase-alds-game-2/
+
 **Dodgers' Mookie Betts fighting to snap out of epic postseason funk**\
 `Manager Dave Roberts can see Betts searching but keeps the faith: "I know he has the talent."`\
 https://nytimes.com/athletic/5827401/2024/10/07/dodgers-mookie-betts-nlds-slump/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/07/business/china-stocks-csi-300.html
 **Latest Deshaun Watson lawsuit settled confidentially: Lawyer**\
 `The lawsuit was filed against Watson in September and accused him of sexual assault and battery.`\
 https://nytimes.com/athletic/5827065/2024/10/07/deshaun-watson-lawsuit-resolved/
-
-**Athens Democracy Forum: Where Is Global Politics Headed?**\
-`Voters have more opportunities than ever in 2024 to shape history in their countries, but war, technology and other forces pose a powerful threat, experts said.`\
-https://nytimes.com/2024/10/07/world/elections-democracy-threats.html
 
