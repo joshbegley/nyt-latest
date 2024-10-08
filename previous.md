@@ -1,3 +1,7 @@
+**Minshew, O'Connell to compete for Raiders' QB job in practice**\
+`Minshew has started the first five games this season but was benched in the third quarter of Sunday's loss to the Broncos.`\
+https://nytimes.com/athletic/5829375/2024/10/08/raiders-gardner-minshew-aidan-oconnell-qb-competition/
+
 **MLB to take over TV broadcasts of three teams**\
 `The takeovers come after the bankruptcy of Diamond Sports Group, and brings the number of team broadcasts MLB operates to six. `\
 https://nytimes.com/athletic/5829378/2024/10/08/mlb-tv-broadcast-takeovers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829120/2024/10/08/davante-adams-trade-raiders-jets
 **On Florida’s West Coast, Airports, Amusement Parks and Hotels Announce Closures**\
 `Visit Florida, the state’s official tourism organization, warned that Hurricane Milton is expected to grow and remain “extremely dangerous.” The travel industry is taking extreme precautions.`\
 https://nytimes.com/2024/10/08/weather/hurricane-milton-planes-disney-world-hotels.html
-
-**Jets’ Saleh third NFL coach fired after London loss**\
-`The Jets are 2-3 following a 23-17 loss to the Vikings on Sunday at Tottenham Hotspur Stadium in London.`\
-https://nytimes.com/athletic/5829127/2024/10/08/jets-saleh-fired-london/
 

@@ -1,3 +1,7 @@
+**Minshew, O'Connell to compete for Raiders' QB job in practice**\
+`Minshew has started the first five games this season but was benched in the third quarter of Sunday's loss to the Broncos.`\
+https://nytimes.com/athletic/5829375/2024/10/08/raiders-gardner-minshew-aidan-oconnell-qb-competition/
+
 **MLB to take over TV broadcasts of three teams**\
 `The takeovers come after the bankruptcy of Diamond Sports Group, and brings the number of team broadcasts MLB operates to six. `\
 https://nytimes.com/athletic/5829378/2024/10/08/mlb-tv-broadcast-takeovers/
