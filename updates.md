@@ -1,3 +1,7 @@
+**Raiders DL Christian Wilkins out indefinitely after foot surgery**\
+`Wilkins sustained the injury in Sunday's 34-18 loss to the Denver Broncos that dropped the Raiders to 2-3 on the season.`\
+https://nytimes.com/athletic/5829681/2024/10/08/christian-wilkins-foot-injury-surgery-raiders/
+
 **Tracking Hurricane Milton’s Storm Surge Risk Across Florida**\
 `Updates with maps of the storm’s path, highlighting potential storm surge flooding across the coastline.`\
 https://nytimes.com/interactive/2024/10/08/weather/hurricane-milton-storm-surge.html

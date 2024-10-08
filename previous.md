@@ -1,3 +1,7 @@
+**Raiders DL Christian Wilkins out indefinitely after foot surgery**\
+`Wilkins sustained the injury in Sunday's 34-18 loss to the Denver Broncos that dropped the Raiders to 2-3 on the season.`\
+https://nytimes.com/athletic/5829681/2024/10/08/christian-wilkins-foot-injury-surgery-raiders/
+
 **Tracking Hurricane Milton’s Storm Surge Risk Across Florida**\
 `Updates with maps of the storm’s path, highlighting potential storm surge flooding across the coastline.`\
 https://nytimes.com/interactive/2024/10/08/weather/hurricane-milton-storm-surge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/world/middleeast/israel-lebanon-gaza-syria.html
 **U.N.’s leader warned that the loss of the agency that supports Palestinians would be a ‘catastrophe.’**\
 `António Guterres, the U.N. secretary general, was responding to the Israeli Parliament advancing two bills that would effectively ban the work of the U.N. office.`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/uns-leader-warned-that-the-loss-of-the-agency-that-supports-palestinians-would-be-a-catastrophe
-
-**Padres manager Mike Shildt defends Manny Machado amid commotion over dugout throw**\
-`Said Shildt, “I thought Manny’s exhibition of professionalism and leadership were on display the other night in a very tough environment.”`\
-https://nytimes.com/athletic/5829665/2024/10/08/padres-mike-shildt-defends-manny-machado-throw/
 
