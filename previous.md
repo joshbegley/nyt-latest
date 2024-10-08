@@ -1,3 +1,19 @@
+**Milton poses an ‘extremely serious threat’ to Florida. Here’s the latest.**\
+`By Claire Moses`\
+https://nytimes.com/live/2024/10/08/weather/hurricane-milton-florida/milton-poses-an-extremely-serious-threat-to-florida-heres-the-latest
+
+**Nobel Prize in Physics Is Awarded to 2 Scientists for Work on Machine Learning**\
+`The prize is the second 2024 science Nobel to be announced this week.`\
+https://nytimes.com/2024/10/08/science/nobel-prize-physics.html
+
+**Live Updates: Florida Braces for Another Major Storm as Milton Approaches**\
+`Hurricane Milton is expected to make landfall in Tampa, Fla., on Wednesday, bringing potentially life-threatening hazards.`\
+https://nytimes.com/live/2024/10/08/weather/hurricane-milton-florida
+
+**How soon could Spurs taste postseason with Victor Wembanyama?**\
+`One day, Wemby's presence alone will guarantee the Spurs 35 or 40 wins. Could today be that day?`\
+https://nytimes.com/athletic/5827436/2024/10/08/victor-wembanyama-spurs-playoffs/
+
 **Japan Says It Manipulated a Photo of (Slightly) Unkempt Cabinet Ministers**\
 `The episode provided political fodder for Prime Minister Shigeru Ishiba’s critics and highlighted the country’s generally high standard of dress.`\
 https://nytimes.com/2024/10/08/world/asia/japan-doctored-cabinet-photo.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5827135/2024/10/08/dodgers-mlb-shohei-ohtani-nlds/
 **Why the Bengals' dire situation has glimmer of hope as defense seeks answers**\
 `Cincinnati's potent offense combined with a favorable stretch of opponents could be the recipe for a turnaround.`\
 https://nytimes.com/athletic/5827176/2024/10/08/bengals-playoff-chances-defense/
-
-**Chiefs QB Patrick Mahomes gets the results he wanted on rare night for Kansas City sports**\
-`Without three of his best skill-position players, Mahomes threw for 331 yards by completing at least one pass to eight teammates.`\
-https://nytimes.com/athletic/5827664/2024/10/08/chiefs-patrick-mahomes-saints-royals/
-
-**Market movers: Josh Hart, Kawhi Leonard and more ADP risers, fallers over the past month**\
-`Eric Wong looks at the notable players in fantasy basketball, like Kawhi Leonard, who have seen significant ADP movement in the past month. `\
-https://nytimes.com/athletic/5826892/2024/10/08/fantasy-basketball-adp-watch-kawhi-leonard-market-movers-past-month/
-
-**QB switch coming for the Patriots? Weighing the pros and cons of going to Drake Maye**\
-`It feels like just a matter of time before the Patriots switch to Maye in the midst of their terrible 1-4 start under Jacoby Brissett.`\
-https://nytimes.com/athletic/5826103/2024/10/08/patriots-qb-controversy-drake-maye-jacoby-brissett/
-
-**After a Betrayal, a Fractured Cartel Turns Its Hometown Into a War Zone**\
-`An explosive deception has ripped apart one of Mexico’s most powerful criminal groups, the Sinaloa cartel, and ignited a war between the rival factions.`\
-https://nytimes.com/2024/10/08/world/americas/mexico-sinaloa-cartel-war.html
 
