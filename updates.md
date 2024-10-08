@@ -1,5 +1,9 @@
 **City Hall Official Charged With Witness Tampering in Adams Inquiry**\
 `Mohamed Bahi, who worked in the mayor’s office of community affairs, was accused of instructing witnesses to lie to federal authorities.`\
+https://nytimes.com/2024/10/08/nyregion/mohamed-bahi-arrested-adams.html
+
+**City Hall Official Charged With Witness Tampering in Adams Inquiry**\
+`Mohamed Bahi, who worked in the mayor’s office of community affairs, was accused of instructing witnesses to lie to federal authorities.`\
 https://nytimes.com/2024/10/08/nyregion/adams-corruption-employee-arrested.html
 
 **Chelsea and Forest charged for failing to control players in melee**\
