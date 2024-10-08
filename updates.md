@@ -1,3 +1,11 @@
+**Hurricane Milton's impact on sports: South Florida CFB game postponed**\
+`The storm is expected to hit Florida as a major hurricane Wednesday or Thursday.`\
+https://nytimes.com/athletic/5828288/2024/10/08/hurricane-milton-college-football/
+
+**Pro-Palestinian ‘Uncommitted’ Group Comes Out Firmly Against Trump**\
+`The organization that emerged from protests against the Biden administration’s Middle East policies now says a second Trump term would be far worse.`\
+https://nytimes.com/2024/10/08/us/politics/palestine-uncommitted-trump.html
+
 **The Windup: That HR was beyond a miracle**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5828708/2024/10/08/tigers-guardians-the-windup/
