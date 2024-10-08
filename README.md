@@ -1,3 +1,7 @@
+**City director of football Txiki Begiristain set to leave at the end of the season**\
+`Manchester City director of football Txiki Begiristain is expected to leave the club at end of this season.`\
+https://nytimes.com/athletic/5828809/2024/10/08/txiki-begiristain-man-city-exit/
+
 **Luis Tiant, Crowd-Pleasing Pitcher Who Baffled Hitters, Dies at 83**\
 `Cuban-born and charismatic, with a personal tale caught up in politics, he was a dominant hurler with a quirky windup who helped lead the Red Sox to a pennant in 1975.`\
 https://nytimes.com/2024/10/08/sports/baseball/luis-tiant-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/us/politics/biden-trip-hurricane-milton.html
 **Does My Home Have Lead Pipes? And What Can I Do About Them?**\
 `New rules will require utilities to replace lead pipes nationwide. That will take time, but you can protect yourself by taking these steps.`\
 https://nytimes.com/2024/10/08/climate/lead-pipes-water-testing-filter-protection.html
-
-**Iran Crisis Ignites New Debate About Trump’s Nuclear Deal Exit**\
-`President Donald J. Trump labeled it “the worst deal in history.” But critics of the withdrawal say it prompted Iran to accelerate its nuclear program.`\
-https://nytimes.com/2024/10/08/us/politics/iran-nuclear-deal-trump.html
 
