@@ -1,3 +1,11 @@
+**Adams’s Top Deputy Mayor Resigns, Intensifying Wave of Departures**\
+`Sheena Wright, the first deputy mayor of New York City, became the seventh senior leader to leave the administration in the past few weeks.`\
+https://nytimes.com/2024/10/08/nyregion/sheena-wright-resigns-eric-adams.html
+
+**An Exquisite Queer Odyssey by a Literary Master**\
+`In Alan Hollinghurst’s new novel, “Our Evenings,” a Burmese English actor grapples with race and ambition, sexuality and love in a bigoted world.`\
+https://nytimes.com/2024/10/08/books/review/our-evenings-alan-hollinghurst.html
+
 **India’s Political Carnival Is Back in Season, With Mixed Results for Modi**\
 `Two closely watched elections, in Haryana and the turbulent Jammu and Kashmir, kept the surprises coming after this summer’s shocking national outcome.`\
 https://nytimes.com/2024/10/08/world/asia/india-elections-haryana-jammu-kashmir.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/business/china-europe-brandy.html
 **Why the Wild and Brock Faber aren't worried about a sophomore slump: 'I don’t think that’ll happen'**\
 `Faber, who finished second in Calder voting: "I'm confident that I'm able to be a better hockey player this year."`\
 https://nytimes.com/athletic/5827003/2024/10/08/wild-brock-faber-sophomore-slump/
-
-**Tyrrell Hatton: My Liverpool obsession - and what I learned from James Milner**\
-`The British golfer on what sparked his lifelong love for Liverpool and his Ryder Cup ambitions`\
-https://nytimes.com/athletic/5811899/2024/10/08/tyrrell-hatton-liverpool-golf/
-
-**How Jesse Minter has led Chargers to a defensive transformation through 4 weeks**\
-`Minter's Chargers have been one of the best defenses in football, ranking second in EPA per play and first in success rate.`\
-https://nytimes.com/athletic/5826838/2024/10/08/jesse-minter-chargers-defensive-improvement/
 
