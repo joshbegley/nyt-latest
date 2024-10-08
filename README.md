@@ -1,6 +1,6 @@
 **City Hall Official Charged With Witness Tampering in Adams Inquiry**\
 `Mohamed Bahi, who worked in the mayor’s office of community affairs, was accused of instructing witnesses to lie to federal authorities.`\
-https://nytimes.com/2024/10/08/nyregion/adams-corruption-employee-arrested.html
+https://nytimes.com/2024/10/08/nyregion/mohamed-bahi-arrested-adams.html
 
 **Chelsea and Forest charged for failing to control players in melee**\
 `The Football Association (FA) has charged Chelsea and Nottingham Forest with failing to control their players following a mass confrontation during their Premier League match at Stamford Bridge on Sunday.`\
