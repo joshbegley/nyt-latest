@@ -1,3 +1,11 @@
+**Market share report: Kyle Pitts isn't out of the woods yet, Kareem Hunt is 'the man' and more**\
+`Despite strong fantasy football production in Week 5, Michael Salfino says Atlanta tight end Kyle Pitts has turned the corner just yet.`\
+https://nytimes.com/athletic/5828737/2024/10/08/fantasy-football-targets-touches-week-5-pitts-hunt/
+
+**Greg Landry, Scrambling All-Pro Quarterback, Dies at 77**\
+`Known for his legs as well as for his arm, he was the last Detroit Lions quarterback to make the Pro Bowl for more than 40 years.`\
+https://nytimes.com/2024/10/08/sports/football/greg-landry-dead.html
+
 **Poll Finds Support for Florida’s Abortion Ballot Measure Is Falling Short**\
 `Earlier surveys have shown higher support, but the state’s Republican governor is working hard to defeat the initiative.`\
 https://nytimes.com/2024/10/08/us/politics/florida-abortion-ballot-measure-poll.html
