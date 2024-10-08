@@ -1,3 +1,11 @@
+**When a Television Meteorologist Breaks Down on Air and Admits Fear**\
+`John Morales, who has forecast weather for decades, went viral after choking up on air while discussing Hurricane Milton.`\
+https://nytimes.com/2024/10/08/climate/john-morales-weatherman-hurricane.html
+
+**How the NHL's 10 youngest players made the cut for the 2024-25 season — and will they stick?**\
+`Only 10 teenagers are active members of an NHL roster to start 2024-25 — just 1.4 percent of the league. Here's the scoop on each.`\
+https://nytimes.com/athletic/5829430/2024/10/08/nhl-youngest-players-roster-2024-25-season/
+
 **Volunteers Aid Those Displaced by Israeli Attacks in Lebanon**\
 `Amid Israel’s offensive and Hezbollah’s decision to continue fighting, many have found themselves caught in the middle. In the southern coastal city of Sidon, young volunteers of diverse religious backgrounds have come together to help those affected by the conflict.`\
 https://nytimes.com/video/world/middleeast/100000009749780/lebanon-war-israel-displaced.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/world/americas/brazil-x-ban-musk.html
 **Wednesday Briefing: An Israeli Airstrike in Syria**\
 `Plus, revisiting Oppenheimer’s Communist ties.`\
 https://nytimes.com/2024/10/08/briefing/israel-syria-trump-putin-india.html
-
-**Reds notes: Terry Francona's coaching staff, front office moves and more**\
-`The Reds retained pitching coach Derek Johnson but will be adding new faces alongside Terry Francona. `\
-https://nytimes.com/athletic/5829237/2024/10/08/reds-terry-francona-coaching-staff-offseason-moves/
-
-**Will the Big Ten and SEC be part of a super league, or simply become one?**\
-`Many in and around college football are trying to determine what comes next. One question hovers over all of it: Who will be in charge?`\
-https://nytimes.com/athletic/5829079/2024/10/08/college-football-super-league-big-ten-sec/
 
