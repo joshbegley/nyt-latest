@@ -1,3 +1,11 @@
+**NCAA D-1 Council shortens CFB, CBB transfer window from 45 to 30 days**\
+`The NCAA Division I Council did not take the step of removing the spring football portal window.`\
+https://nytimes.com/athletic/5829716/2024/10/08/ncaa-division-i-council-college-football-basketball-transfer-window-shortened/
+
+**Ryan Fitzpatrick inks 3-year extension with Amazon to remain TNF analyst**\
+`"Before the season I re-signed for three more years," Fitzpatrick told The Athletic. "I love the process of this and I love the team."`\
+https://nytimes.com/athletic/5829666/2024/10/08/ryan-fitzpatrick-contract-extension-amazon-prime-video-thursday-night-football/
+
 **Israel Sends More Soldiers Into Lebanon as Strikes Hit Beirut and Damascus**\
 `In an attack of its own, Hezbollah fired 180 “projectiles” into Israel, according to the Israeli military, which said most were intercepted.`\
 https://nytimes.com/2024/10/08/world/middleeast/israel-lebanon-gaza-syria.html
