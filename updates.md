@@ -1,3 +1,15 @@
+**Audience Report: Gongs and Goodbyes as the Rubin Museum Shuts Its Doors**\
+`After 20 years, a beloved home for Himalayan art enters the void.`\
+https://nytimes.com/card/2024/10/09/arts/design/rubin-museum-closed
+
+**In High Mountain Alaska, a Glacier’s Deep Secret Is Revealed at Last**\
+`A famed explorer was sure the ice hid something profound. Ninety years later, scientists have put forth the strongest evidence yet that he was right.`\
+https://nytimes.com/2024/10/08/climate/alaska-great-gorge-deepest.html
+
+**Sean Manaea deals, Phillies reel as Mets seize lead in NLDS: Takeaways**\
+`Behind a commanding performance by Manaea and timely hitting in Game 3, the New York Mets are one win away from reaching the NLCS. `\
+https://nytimes.com/athletic/5829709/2024/10/08/phillies-mets-score-sean-manaea-takeaways/
+
 **Antisemitism and Threats Directed at Officials Over Storm Response**\
 `Some online posts have threatened violence against FEMA officials. A research group found that the X platform has been one of the main drivers of misinformation.`\
 https://nytimes.com/2024/10/08/us/north-carolina-floods-antisemitic-social-media.html
