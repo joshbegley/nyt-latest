@@ -1,3 +1,7 @@
+**Canucks notebook: Patrik Allvin speaks, accruing cap space and the 3 goaltenders**\
+`Key takeaways from the Canucks GM's season-opening commentary fresh off of a whirlwind weekend that featured a trade and an extension.`\
+https://nytimes.com/athletic/5827713/2024/10/08/canucks-patrik-allvin-salary-cap-goalies/
+
 **A U.N. Official’s Payments: Zero Interest Loans, a Mercedes and a Tennis Sponsorship**\
 `The official secretly took $3 million in gifts from a businessman to whom he steered the organization’s funds, a court ruled. The U.N. got a song about the ocean.`\
 https://nytimes.com/2024/10/08/us/un-official-gifts-fraud.html
