@@ -1,3 +1,11 @@
+**Luis Tiant, Crowd-Pleasing Pitcher Who Baffled Hitters, Dies at 83**\
+`Cuban-born and charismatic, with a personal tale caught up in politics, he was a dominant hurler with a quirky windup who helped lead the Red Sox to a pennant in 1975.`\
+https://nytimes.com/2024/10/08/sports/baseball/luis-tiant-dead.html
+
+**Acru, From the Atomix Team, Serves a Tasting Menu With an Australian Twang**\
+`Grand Army sets up shop in Threes Brewing, Ánimo! brings all-day Mexican breakfast to Midtown and more restaurant news.`\
+https://nytimes.com/2024/10/08/dining/nyc-restaurant-news.html
+
 **Art or Trash? It Can Be a Fine Line.**\
 `Two beer cans were displayed in a Dutch museum. Then they were accidentally thrown out.`\
 https://nytimes.com/2024/10/08/arts/beer-can-art-lam-museum-thrown-out.html

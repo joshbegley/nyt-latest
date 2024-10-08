@@ -1,3 +1,11 @@
+**Luis Tiant, Crowd-Pleasing Pitcher Who Baffled Hitters, Dies at 83**\
+`Cuban-born and charismatic, with a personal tale caught up in politics, he was a dominant hurler with a quirky windup who helped lead the Red Sox to a pennant in 1975.`\
+https://nytimes.com/2024/10/08/sports/baseball/luis-tiant-dead.html
+
+**Acru, From the Atomix Team, Serves a Tasting Menu With an Australian Twang**\
+`Grand Army sets up shop in Threes Brewing, Ánimo! brings all-day Mexican breakfast to Midtown and more restaurant news.`\
+https://nytimes.com/2024/10/08/dining/nyc-restaurant-news.html
+
 **Art or Trash? It Can Be a Fine Line.**\
 `Two beer cans were displayed in a Dutch museum. Then they were accidentally thrown out.`\
 https://nytimes.com/2024/10/08/arts/beer-can-art-lam-museum-thrown-out.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/climate/lead-pipes-water-testing-filter-protectio
 **Iran Crisis Ignites New Debate About Trump’s Nuclear Deal Exit**\
 `President Donald J. Trump labeled it “the worst deal in history.” But critics of the withdrawal say it prompted Iran to accelerate its nuclear program.`\
 https://nytimes.com/2024/10/08/us/politics/iran-nuclear-deal-trump.html
-
-**Kyler Murray announces CoD partnership, plays off past criticism**\
-`In the past, Murray has faced criticism for his love of video games from fans and pundits, who have called them a distraction.`\
-https://nytimes.com/athletic/5828439/2024/10/08/kyler-murray-call-of-duty/
-
-**Inside a Field Hospital in a North Carolina Mountain Town**\
-`After Hurricane Helene hit, a group of doctors and nurses quickly built a field hospital in Burnsville, N.C., to tend to patients and provide them with medical care.`\
-https://nytimes.com/video/world/americas/100000009744007/hurricane-helene-north-carolina-video.html
 
