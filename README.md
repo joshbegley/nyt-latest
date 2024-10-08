@@ -1,3 +1,7 @@
+**The Windup: That HR was beyond a miracle**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5828708/2024/10/08/tigers-guardians-the-windup/
+
 **NFL MVP odds: Patrick Mahomes still favored, but C.J. Stroud, Lamar Jackson on the move**\
 `Patrick Mahomes is still favored to win NFL MVP, but there are a number of other quarterbacks who can realistically win the award.`\
 https://nytimes.com/athletic/5828536/2024/10/08/nfl-mvp-odds-mahomes-stroud-jackson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/us/politics/harris-medicare-home-health-care.html
 **Fantasy football: Who to drop in Week 6? Aaron Rodgers, Mark Andrews are cuttable**\
 `Is Aaron Rodgers washed? Is there no hope for Mark Andrews managers or are we just trying to conjure another reverse-jinx?`\
 https://nytimes.com/athletic/5828092/2024/10/08/fantasy-football-who-to-drop-week-6-aaron-rodgers-mark-andrews/
-
-**Scoop City: Week 6 fantasy must-adds and Bijan Robinson, RB2?**\
-`A look at four must-add players after hitting on Kareem Hunt, Trey Sermon and Tank Bigsby last week. `\
-https://nytimes.com/athletic/5828469/2024/10/08/scoop-city-week-6-fantasy-must-adds-and-bijan-robinson-rb2/
 
