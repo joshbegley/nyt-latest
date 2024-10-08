@@ -1,3 +1,11 @@
+**City Hall Official Charged With Witness Tampering in Adams Inquiry**\
+`Mohamed Bahi, who worked in the mayor’s office of community affairs, was accused of instructing witnesses to lie to federal authorities.`\
+https://nytimes.com/2024/10/08/nyregion/adams-corruption-employee-arrested.html
+
+**Chelsea and Forest charged for failing to control players in melee**\
+`The Football Association (FA) has charged Chelsea and Nottingham Forest with failing to control their players following a mass confrontation during their Premier League match at Stamford Bridge on Sunday.`\
+https://nytimes.com/athletic/5828330/2024/10/08/chelsea-nottingham-forest-fa-charges/
+
 **Will Trump Get Jail Time? We Looked at Similar Cases to Find Out.**\
 `Donald J. Trump faces sentencing on Nov. 26. The election three weeks earlier may determine not only if he returns to the presidency, but if he ends up behind bars.`\
 https://nytimes.com/2024/10/08/nyregion/donald-trump-merchan-sentencing-jail.html
