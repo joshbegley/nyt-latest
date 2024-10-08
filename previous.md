@@ -1,4 +1,12 @@
-**Slowly but surely, the Dubas plan in Pittsburgh is looking a little more clear**\
+**Protest That the University of Maryland Sought to Prevent Goes On**\
+`The school, citing safety, had said no to an event planned on the anniversary of the Oct. 7 attack by a chapter of Students for Justice in Palestine, but a judge’s ruling last week allowed it to go ahead.`\
+https://nytimes.com/2024/10/07/us/umd-pro-palestinian-protest-oct-7.html
+
+**Milton Is Already a Storm for the Record Books. Here’s What May Come Next.**\
+`The storm has rapidly intensified over the last few days.`\
+https://nytimes.com/2024/10/07/weather/hurricane-milton-forecast-path.html
+
+**Slowly but surely, the Kyle Dubas plan in Pittsburgh is looking a little more clear**\
 `The Penguins are beginning to mold the old with the young, hoping it's a plan that produces short- and long-term success.`\
 https://nytimes.com/athletic/5826816/2024/10/07/penguins-kyle-dubas-plan-prospects/
 
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/10/07/world/middleeast/israel-gaza-destruct
 **Jewish students find solace and a place to mourn with campus Hillel groups.**\
 `Commemorative events marking the anniversary of the Hamas attack on Israel drew Jewish students at campuses around the country.`\
 https://nytimes.com/live/2024/10/06/world/israel-hamas-october-7-gaza-war/jewish-students-find-solace-and-a-place-to-mourn-with-campus-hillel-groups
-
-**The Price of a Mega Millions Ticket Will More Than Double to $5**\
-`Mega Millions officials said players’ odds would be increased and jackpot sizes would be bigger after the price increase next April.`\
-https://nytimes.com/2024/10/07/us/mega-millions-ticket-price-increase.html
-
-**Trump’s Ugly Closing Argument**\
-`He delivers a mix of disinformation, false claims about cheating in elections, and personal attacks.`\
-https://nytimes.com/2024/10/07/us/politics/trump-harris-fema-funding.html
 
