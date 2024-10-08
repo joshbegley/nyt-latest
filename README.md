@@ -1,3 +1,7 @@
+**Russian Forces Push Forward in Ukraine’s East After Fall of Key Town**\
+`Russian troops have now entered Toretsk, a strategic hilltop city, and are pressing with assaults elsewhere in the Donetsk region.`\
+https://nytimes.com/2024/10/08/world/europe/russia-eastern-ukraine-toretsk.html
+
 **Iniesta retires from football, plans to move into coaching**\
 `Former Barcelona and Spain midfielder Andres Iniesta has announced his retirement from professional football.`\
 https://nytimes.com/athletic/5808745/2024/10/08/andres-iniesta-retires-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/08/us/harris-trump-election/heres-the-latest-on
 **Final Ducks preseason observations: Lineup set, player added, Carlsson's next step**\
 `Which young defenseman looked solid in camp, and how did Cutter Gauthier fare?`\
 https://nytimes.com/athletic/5827389/2024/10/08/anaheim-ducks-opener-lineup-carlsson/
-
-**Election Live Updates: Harris Keeps Up Media Push After ‘60 Minutes’ Interview**\
-`Vice President Kamala Harris will appear today on “The View,” Howard Stern’s radio show and “The Late Show With Stephen Colbert.” Former President Donald J. Trump has a virtual town-hall event.`\
-https://nytimes.com/live/2024/10/08/us/harris-trump-election
 
