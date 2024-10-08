@@ -1,3 +1,11 @@
+**Trump and Republicans Bet Big on Anti-Trans Ads Across the Country**\
+`Republicans have spent tens of millions of dollars on the ads, part of an attempt to help them win over suburban female voters.`\
+https://nytimes.com/2024/10/08/us/politics/trump-republican-transgender-ads.html
+
+**Residents Flee Milton From Beach Towns Still Cleaning Up From Helene**\
+`A one-two punch along Florida’s Gulf Coast is confronting some residents with hard decisions, like whether to pack up for good.`\
+https://nytimes.com/2024/10/08/weather/hurricane-milton-helene-evacuations.html
+
 **Grealish explains issue with Euro 2024 snub under Southgate**\
 `Jack Grealish has explained why he did not agree with Gareth Southgate’s controversial call to cut him from the England squad for this summer’s European Championship.`\
 https://nytimes.com/athletic/5829014/2024/10/08/jack-grealish-england-gareth-southgate/
