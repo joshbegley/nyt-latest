@@ -1,3 +1,7 @@
+**Bears QB Caleb Williams vs. a bad team, the blitz and the wind: 5 takeaways**\
+`The Bears did what they needed to do against the Panthers, and Shane Waldron deserves some credit for the offense's big day.`\
+https://nytimes.com/athletic/5826639/2024/10/08/bears-caleb-williams-panthers-blitz-wind/
+
 **Vikings offense weathers off day from Sam Darnold, but does he remain a concern?**\
 `Darnold's struggles were not the only factor in Minnesota's middling offensive performance in London. Yet the Vikings escaped with a win.`\
 https://nytimes.com/athletic/5826116/2024/10/08/sam-darnold-vikings-offense-jets-london/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/podcasts/the-daily/american-politics-trade.html
 **Poll Finds Harris Rising, and Florida Braces for Hurricane Milton**\
 `Plus, have we reached peak human life span?`\
 https://nytimes.com/2024/10/08/podcasts/harris-trump-poll-milton.html
-
-**What Tristan Jarry wants you to know**\
-`Jarry sees the public perception of him and is ready to start to show a different side.`\
-https://nytimes.com/athletic/5826049/2024/10/08/penguins-tristan-jarry-perception/
 

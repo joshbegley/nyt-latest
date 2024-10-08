@@ -1,3 +1,43 @@
+**Vikings offense weathers off day from Sam Darnold, but does he remain a concern?**\
+`Darnold's struggles were not the only factor in Minnesota's middling offensive performance in London. Yet the Vikings escaped with a win.`\
+https://nytimes.com/athletic/5826116/2024/10/08/sam-darnold-vikings-offense-jets-london/
+
+**How Max Pacioretty's career was saved from the nightmare that nearly ended it**\
+`Max Pacioretty has been on a harrowing comeback journey after three Achilles injuries, one he hasn’t talked about in detail until now.`\
+https://nytimes.com/athletic/5825156/2024/10/08/maple-leafs-max-pacioretty/
+
+**How Brian Daboll is scheming around Giants' talent deficit, finding groove as play caller**\
+`Except for in Week 1, Daboll and the Giants have had an effective game plan for every defense they’ve faced this season. `\
+https://nytimes.com/athletic/5827106/2024/10/08/new-york-giants-brian-daboll-play-caller/
+
+**Adam Fantilli, set for a relaunch, represents the Blue Jackets' greatest hope**\
+`In training camp and preseason, Fantilli looked completely healthy, plus bigger, stronger and faster than in his rookie season.`\
+https://nytimes.com/athletic/5823868/2024/10/08/fantilli-blue-jackets-injury/
+
+**Ten bold 2024-25 Rangers predictions: A trophy, a rebound, a departure and more**\
+`With cap housekeeping done and Panarin scheduled to play Wednesday's season opener, here's where we think the Rangers' season may lead.`\
+https://nytimes.com/athletic/5826898/2024/10/08/rangers-bold-predictions-2024-25/
+
+**Tarik Skubal, a Jobu doll and the Tigers' latest dose of October magic**\
+`What's the key to Tarik Skubal's success? His ferocious pitch mix, sure, but according to his Mom, perhaps also a famed movie prop?`\
+https://nytimes.com/athletic/5827230/2024/10/08/tarik-skubal-jobu-tigers-playoff-win/
+
+**St. Louis Cardinals offseason primer: Early winter expectations**\
+`In his final offseason as president of baseball operations, John Mozeliak will be tasked with navigating a unique offseason strategy.`\
+https://nytimes.com/athletic/5825693/2024/10/08/st-louis-cardinals-2024-offseason-primer/
+
+**How NAFTA Broke American Politics**\
+`Since its passage in 1993, the trade agreement has played an outsize role in presidential elections.`\
+https://nytimes.com/2024/10/08/podcasts/the-daily/american-politics-trade.html
+
+**Poll Finds Harris Rising, and Florida Braces for Hurricane Milton**\
+`Plus, have we reached peak human life span?`\
+https://nytimes.com/2024/10/08/podcasts/harris-trump-poll-milton.html
+
+**What Tristan Jarry wants you to know**\
+`Jarry sees the public perception of him and is ready to start to show a different side.`\
+https://nytimes.com/athletic/5826049/2024/10/08/penguins-tristan-jarry-perception/
+
 **Kawhi Leonard is still figuring these Clippers out, just like all of us**\
 `Leonard's health and usage remain questions as he enters the sixth year in Los Angeles. Patience will be key.`\
 https://nytimes.com/athletic/5824592/2024/10/08/kawhi-leonard-clippers-changes/
