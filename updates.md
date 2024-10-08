@@ -1,3 +1,7 @@
+**MLB to take over TV broadcasts of three teams**\
+`The takeovers come after the bankruptcy of Diamond Sports Group, and brings the number of team broadcasts MLB operates to six. `\
+https://nytimes.com/athletic/5829378/2024/10/08/mlb-tv-broadcast-takeovers/
+
 **Rashee Rice undergoes surgery; what does it mean for the Chiefs?**\
 `Rice finished the year with 24 catches, 288 yards and two touchdowns.`\
 https://nytimes.com/athletic/5829234/2024/10/08/rashee-rice-chiefs-injury-update-surgery-timeline/
