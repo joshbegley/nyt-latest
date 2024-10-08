@@ -1,3 +1,11 @@
+**U.S. Budget Deficit Rises to $1.8 Trillion in 2024**\
+`New estimates from the Congressional Budget Office show continuing fiscal strain, despite steady economic growth.`\
+https://nytimes.com/2024/10/08/us/politics/us-budget-deficit-2024.html
+
+**Russian Spies Seeking to ‘Generate Mayhem’ in Europe, MI5 Chief Says**\
+`The head of Britain’s domestic security service said Russia’s military intelligence service was pursuing “dangerous actions conducted with increasing recklessness.”`\
+https://nytimes.com/2024/10/08/world/europe/russian-spies-mi5-uk.html
+
 **Ex-Houston Police Officer Gets 60 Years in Prison in Drug Raid Killings**\
 `A jury had found Gerald Goines guilty of felony murder in the deaths of two people who were fatally shot during a botched drug raid in 2019.`\
 https://nytimes.com/2024/10/08/us/gerald-goines-houston-officer-guilty-murder.html

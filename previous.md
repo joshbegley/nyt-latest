@@ -1,3 +1,11 @@
+**U.S. Budget Deficit Rises to $1.8 Trillion in 2024**\
+`New estimates from the Congressional Budget Office show continuing fiscal strain, despite steady economic growth.`\
+https://nytimes.com/2024/10/08/us/politics/us-budget-deficit-2024.html
+
+**Russian Spies Seeking to ‘Generate Mayhem’ in Europe, MI5 Chief Says**\
+`The head of Britain’s domestic security service said Russia’s military intelligence service was pursuing “dangerous actions conducted with increasing recklessness.”`\
+https://nytimes.com/2024/10/08/world/europe/russian-spies-mi5-uk.html
+
 **Ex-Houston Police Officer Gets 60 Years in Prison in Drug Raid Killings**\
 `A jury had found Gerald Goines guilty of felony murder in the deaths of two people who were fatally shot during a botched drug raid in 2019.`\
 https://nytimes.com/2024/10/08/us/gerald-goines-houston-officer-guilty-murder.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5828242/2024/10/08/kansas-city-chiefs-odds-taylor-s
 **Palestinian officials say an Israeli strike on central Gaza hit a home and tents, killing 12.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/palestinian-officials-say-an-israeli-strike-on-central-gaza-hit-a-home-and-tents-killing-12
-
-**France’s Government Survives a No-Confidence Vote**\
-`The outcome was not a surprise, but signals a treacherous road ahead for the country’s divided legislature.`\
-https://nytimes.com/2024/10/08/world/europe/michel-barnier-france-no-confidence-vote.html
-
-**‘La Máquina’ Is a Starry Mexican Boxing Drama**\
-`The Spanish-language Hulu drama, starring Diego Luna and Gael García Bernal, skews more loopy and mysterious than gritty.`\
-https://nytimes.com/2024/10/08/arts/television/la-maquina-hulu.html
 
