@@ -1,3 +1,15 @@
+**With Txiki Begiristain leaving Man City, what might that mean for Pep Guardiola's future?**\
+`Begiristain's successes are inextricably linked to those of Guardiola. City fans will hope that that is not the case for their futures too..`\
+https://nytimes.com/athletic/5828979/2024/10/08/txiki-begiristain-man-city-guardiola-future/
+
+**Cissy Houston Saw Music’s Peaks and Life’s Valleys**\
+`The singer, who died this week, was the mother of Whitney Houston and a contender for the greatest voice of the country, our critic says.`\
+https://nytimes.com/2024/10/08/arts/music/cissy-houston-whitney-appraisal.html
+
+**Voting Wars Open a New Front: Which Mail Ballots Should Count?**\
+`Voting by mail is increasingly popular, but mail ballots are rejected far more often than in-person ones. In Pennsylvania and elsewhere, parties are battling over which ones to count — or not.`\
+https://nytimes.com/2024/10/08/us/election-mail-in-ballot-rejection.html
+
 **Trump and Republicans Bet Big on Anti-Trans Ads Across the Country**\
 `Republicans have spent tens of millions of dollars on the ads, part of an attempt to help them win over suburban female voters.`\
 https://nytimes.com/2024/10/08/us/politics/trump-republican-transgender-ads.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/08/world/middleeast/israel-military-lebanon.html
 **Our Planet’s Twin Crises**\
 `In her last newsletter for the Times, a Climate Forward reporter reflects on the intertwined problems of climate change and biodiversity loss.`\
 https://nytimes.com/2024/10/08/climate/our-planets-twin-crises.html
-
-**49ers sign new kicker to replace injured Moody: Source**\
-`Moody went down with a high-ankle sprain during Sunday's loss to the Arizona Cardinals.`\
-https://nytimes.com/athletic/5829077/2024/10/08/49ers-jake-moody-matthew-wright/
-
-**Submit questions for Jordan Bianchi's latest NASCAR mailbag**\
-`If you have a question about anything NASCAR-related, submit it here for Jordan Bianchi's mailbag.`\
-https://nytimes.com/athletic/5829070/2024/10/08/submit-questions-for-jordan-bianchis-latest-nascar-mailbag/
-
-**Raptors' RJ Barrett to miss rest of preseason with shoulder injury**\
-`Barrett averaged 20.2 points, 5.4 rebounds and 3.3 assists across 58 games last season.`\
-https://nytimes.com/athletic/5829001/2024/10/08/rj-barrett-shoulder-injury-preseason/
 
