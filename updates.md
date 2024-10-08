@@ -1,3 +1,7 @@
+**Jets fire Robert Saleh after 2-3 start to season**\
+`Saleh, 45, was hired in 2021 after a four-year stint as defensive coordinator with the San Francisco 49ers.`\
+https://nytimes.com/athletic/5828326/2024/10/08/robert-saleh-fired-jets-coach/
+
 **The C.I.A. director says the risk of further escalation between Israel and Iran remains.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/cia-director-iran-israel
