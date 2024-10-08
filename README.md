@@ -1,3 +1,7 @@
+**Dodgers' Mookie Betts fighting to snap out of epic postseason funk**\
+`Manager Dave Roberts can see Betts searching but keeps the faith: "I know he has the talent."`\
+https://nytimes.com/athletic/5827401/2024/10/07/dodgers-mookie-betts-nlds-slump/
+
 **Chiefs move to 5-0 as Saints' offensive woes continue**\
 `The Chiefs and the Vikings are the only remaining undefeated teams in the NFL.`\
 https://nytimes.com/athletic/5827127/2024/10/07/chiefs-saints-score-monday-night-football-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5827065/2024/10/07/deshaun-watson-lawsuit-resolved/
 **Athens Democracy Forum: Where Is Global Politics Headed?**\
 `Voters have more opportunities than ever in 2024 to shape history in their countries, but war, technology and other forces pose a powerful threat, experts said.`\
 https://nytimes.com/2024/10/07/world/elections-democracy-threats.html
-
-**After Her Arrest, a Young Activist Holds Onto Her ‘Why’**\
-`Namatai Kwekweza said she remained committed to her advocacy for change in Africa, despite a harrowing experience in Zimbabwe.`\
-https://nytimes.com/2024/10/07/world/africa/zimbabwe-activist-arrest.html
 
