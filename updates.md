@@ -1,3 +1,7 @@
+**Greg Landry, Scrambling All-Pro Quarterback, Dies at 77**\
+`Known for his legs as well as for his arm, he was the last Detroit Lions quarterback to make the Pro Bowl for more than 40 years.`\
+https://nytimes.com/2024/10/08/sports/football/greg-landry-dead.html
+
 **The Israeli defense minister postponed a visit to Washington to meet with the Pentagon chief, U.S. says.**\
 `The military leaders were expected to discuss Israel’s response to the Iranian missile assault on Israel last week.`\
 https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/gallant-austin-washington-visit-postponed

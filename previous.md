@@ -1,7 +1,3 @@
-**The Israeli defense minister postponed a visit to Washington to meet with the Pentagon chief, U.S. says.**\
-`The military leaders were expected to discuss Israel’s response to the Iranian missile assault on Israel last week.`\
-https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/gallant-austin-washington-visit-postponed
-
 **13 Things We Learned From Harris’s Interview With Howard Stern**\
 `In a lengthy sit-down, the veteran radio host extracted an array of new details about Kamala Harris’s life.`\
 https://nytimes.com/2024/10/08/us/politics/harris-howard-stern-interview.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/10/08/weather/florida-rushes-to-clear-helene-debris-bef
 **Market share report: Kyle Pitts isn't out of the woods yet, Kareem Hunt is 'the man' and more**\
 `Despite strong fantasy football production in Week 5, Michael Salfino says Atlanta tight end Kyle Pitts has turned the corner just yet.`\
 https://nytimes.com/athletic/5828737/2024/10/08/fantasy-football-targets-touches-week-5-pitts-hunt/
+
+**Greg Landry, Scrambling All-Pro Quarterback, Dies at 77**\
+`Known for his legs as well as for his arm, he was the last Detroit Lions quarterback to make the Pro Bowl for more than 40 years.`\
+https://nytimes.com/2024/10/08/sports/football/greg-landry-dead.html
 
