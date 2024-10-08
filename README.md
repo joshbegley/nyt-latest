@@ -1,3 +1,7 @@
+**Romney Won’t Endorse Harris, Saying He Wants to Keep His Voice in the Party**\
+`Senator Mitt Romney of Utah, the 2012 Republican nominee for president, says the party may need to be rebuilt.`\
+https://nytimes.com/2024/10/08/us/politics/mitt-romney-trump-harris.html
+
 **Until Saturday: Hunter's Heisman competition, plus rankings review**\
 `Welcome to Until Saturday, the five-star college football newsletter: Who can challenge Hunter in our weekly Heisman straw poll?`\
 https://nytimes.com/athletic/5829195/2024/10/08/travis-hunter-heisman-trophy-college-football-rankings-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829378/2024/10/08/mlb-tv-broadcast-takeovers/
 **Rashee Rice undergoes surgery; what does it mean for the Chiefs?**\
 `In the season's first four games, Rice led the Chiefs with 24 catches, 288 yards and two touchdowns.`\
 https://nytimes.com/athletic/5829234/2024/10/08/rashee-rice-chiefs-injury-update-surgery-timeline/
-
-**Giants Mailbagg, part 1: What went into the transition from Zaidi to Posey**\
-`Was the Matt Chapman negotiation the final straw for the Giants' ownership in regards to Zaidi? Who are the top GM candidates? `\
-https://nytimes.com/athletic/5827696/2024/10/08/sf-giants-mailbag-buster-posey-farhan-zaidi-gm-job/
 
