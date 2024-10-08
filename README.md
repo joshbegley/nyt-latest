@@ -1,3 +1,7 @@
+**A U.N. Official’s Payments: Zero Interest Loans, a Mercedes and a Tennis Sponsorship**\
+`The official secretly took $3 million in gifts from a businessman to whom he steered the organization’s funds, a court ruled. The U.N. got a song about the ocean.`\
+https://nytimes.com/2024/10/08/us/un-official-gifts-fraud.html
+
 **Welcome to Mike Kelley’s World: Beautiful, Ugly, Funny and Dumb**\
 `The American artist died in 2012, but a new exhibition in London shows how his deadpan-weirdo works continue to resonate today.`\
 https://nytimes.com/2024/10/08/arts/design/mike-kelly-tate-modern.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/world/europe/russia-eastern-ukraine-toretsk.html
 **Iniesta retires from football, plans to move into coaching**\
 `Former Barcelona and Spain midfielder Andres Iniesta has announced his retirement from professional football.`\
 https://nytimes.com/athletic/5808745/2024/10/08/andres-iniesta-retires-barcelona/
-
-**How Google Was Forced to Open Up**\
-`A federal judge ordered the tech giant to let rival app stores onto its Android smartphone platform, adding to its growing list of legal headaches .`\
-https://nytimes.com/2024/10/08/business/dealbook/google-epic-app-store.html
 
