@@ -1,3 +1,7 @@
+**Mirtle: Maple Leafs' overstuffed roster will make first month of season extra intriguing**\
+`Leave it to Toronto to find a way to start the season with 28 players on the roster and more than $4.3 million over the cap.`\
+https://nytimes.com/athletic/5827104/2024/10/07/maple-leafs-overstuffed-roster/
+
 **Yankees can't capitalize as Royals even ALDS in Game 2: Takeaways**\
 `Through two games, the Yankees have left 19 runners on base and are 3-for-19 with runners in scoring position.`\
 https://nytimes.com/athletic/5827037/2024/10/07/yankees-royals-score-mlb-playoffs-takeaways/
