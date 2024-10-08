@@ -19,7 +19,7 @@ https://nytimes.com/2024/10/08/health/drug-prices-kamala-harris-donald-trump.htm
 https://nytimes.com/2024/10/02/opinion/kamala-debate-fox-news.html
 
 **Wizards' Brogdon undergoes thumb surgery**\
-`The 31-year-old former Rookie of the Year and Sixth Man award winner was expected to provide stability to a young Wizards' roster. `\
+`The 31-year-old former Rookie of the Year and Sixth Man award winner was expected to provide stability to a young Wizards roster. `\
 https://nytimes.com/athletic/5828076/2024/10/08/malcolm-brogdon-injury-wizards-status/
 
 **3% of American High Schoolers Identify as Transgender, First National Survey Finds**\
