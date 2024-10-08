@@ -1,3 +1,11 @@
+**Inside a Field Hospital in a North Carolina Mountain Town**\
+`After Hurricane Helene hit, a group of doctors and nurses quickly built a field hospital in Burnsville, N.C., to tend to patients and provide them with medical care.`\
+https://nytimes.com/video/world/americas/100000009744007/hurricane-helene-north-carolina-video.html
+
+**Asheville, Tampa and Lessons From Hurricane Helene**\
+`Readers reflect on the devastation, the recovery and climate havens. Also: An ex-hostage’s plea; the women who accuse Donald Trump; a Trump rally.`\
+https://nytimes.com/2024/10/08/opinion/hurricane-helene.html
+
 **Harris Proposes a Medicare Plan to Provide Home Care for Seniors**\
 `The vice president’s latest health care plan is meant to help Americans who are struggling to find affordable home care for themselves or their aging loved ones.`\
 https://nytimes.com/2024/10/08/us/politics/harris-medicare-home-health-care.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/dining/our-book-is-here.html
 **Spurs assistant coach Mason in talks with Anderlecht to become new manager**\
 `Tottenham Hotspur assistant coach Ryan Mason is in talks with Anderlecht about their vacant manager&#8217;s position.`\
 https://nytimes.com/athletic/5828311/2024/10/08/tottenham-ryan-mason-anderlecht-talks/
-
-**City Hall Official Charged With Witness Tampering in Adams Inquiry**\
-`Mohamed Bahi, who worked in the mayor’s office of community affairs, was accused of instructing witnesses to lie to federal authorities.`\
-https://nytimes.com/2024/10/08/nyregion/mohamed-bahi-arrested-adams.html
-
-**Chelsea and Forest charged for failing to control players in melee**\
-`The Football Association (FA) has charged Chelsea and Nottingham Forest with failing to control their players following a mass confrontation during their Premier League match at Stamford Bridge on Sunday.`\
-https://nytimes.com/athletic/5828330/2024/10/08/chelsea-nottingham-forest-fa-charges/
 
