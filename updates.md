@@ -1,3 +1,7 @@
+**Until Saturday: Hunter's Heisman competition, plus rankings review**\
+`Welcome to Until Saturday, the five-star college football newsletter: Who can challenge Hunter in our weekly Heisman straw poll?`\
+https://nytimes.com/athletic/5829195/2024/10/08/travis-hunter-heisman-trophy-college-football-rankings-until-saturday/
+
 **Brazil Unblocks X After Musk Backs Down**\
 `Brazil’s Supreme Court said Tuesday that Elon Musk’s social network could return in the country after a monthlong ban because the company had complied with the court’s orders.`\
 https://nytimes.com/2024/10/08/world/americas/brazil-x-ban-musk.html

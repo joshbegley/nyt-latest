@@ -1,3 +1,7 @@
+**Until Saturday: Hunter's Heisman competition, plus rankings review**\
+`Welcome to Until Saturday, the five-star college football newsletter: Who can challenge Hunter in our weekly Heisman straw poll?`\
+https://nytimes.com/athletic/5829195/2024/10/08/travis-hunter-heisman-trophy-college-football-rankings-until-saturday/
+
 **Brazil Unblocks X After Musk Backs Down**\
 `Brazil’s Supreme Court said Tuesday that Elon Musk’s social network could return in the country after a monthlong ban because the company had complied with the court’s orders.`\
 https://nytimes.com/2024/10/08/world/americas/brazil-x-ban-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829234/2024/10/08/rashee-rice-chiefs-injury-update
 **Giants Mailbagg, part 1: What went into the transition from Zaidi to Posey**\
 `Was the Matt Chapman negotiation the final straw for the Giants' ownership in regards to Zaidi? Who are the top GM candidates? `\
 https://nytimes.com/athletic/5827696/2024/10/08/sf-giants-mailbag-buster-posey-farhan-zaidi-gm-job/
-
-**Webb explains VAR process behind incorrect Fernandes red card against Spurs**\
-`English football&#8217;s refereeing chief Howard Webb says Bruno Fernandes&#8217; incorrect red card against Tottenham Hotspur was not overturned on the day because the video assistant referee (VAR) mistakenly thought the decision did not meet the threshold for an on-field review.`\
-https://nytimes.com/athletic/5829311/2024/10/08/bruno-fernandes-red-card-var-spurs/
 
