@@ -1,3 +1,7 @@
+**Brazil Unblocks X After Musk Backs Down**\
+`Brazil’s Supreme Court said Tuesday that Elon Musk’s social network could return in the country after a monthlong ban because the company had complied with the court’s orders.`\
+https://nytimes.com/2024/10/08/world/americas/brazil-x-ban-musk.html
+
 **Wednesday Briefing: An Israeli Airstrike in Syria**\
 `Plus, revisiting Oppenheimer’s Communist ties.`\
 https://nytimes.com/2024/10/08/briefing/israel-syria-trump-putin-india.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5827696/2024/10/08/sf-giants-mailbag-buster-posey-f
 **Webb explains VAR process behind incorrect Fernandes red card against Spurs**\
 `English football&#8217;s refereeing chief Howard Webb says Bruno Fernandes&#8217; incorrect red card against Tottenham Hotspur was not overturned on the day because the video assistant referee (VAR) mistakenly thought the decision did not meet the threshold for an on-field review.`\
 https://nytimes.com/athletic/5829311/2024/10/08/bruno-fernandes-red-card-var-spurs/
-
-**Israel’s Defense Minister Postpones Trip to Washington, U.S. Says**\
-`Yoav Gallant and Defense Secretary Lloyd J. Austin III were expected to discuss Israel’s response to the Iranian missile assault on Israel last week.`\
-https://nytimes.com/2024/10/08/world/middleeast/gallant-austin-washington-visit-postponed.html
 
