@@ -1,3 +1,7 @@
+**Illness forces Hampton out of Chelsea starting XI minutes before kick off**\
+`Sonia Bompastor explained goalkeeper Hannah Hampton dropped out of the Chelsea starting XI against Real Madrid shortly before kick-off due to illness.`\
+https://nytimes.com/athletic/5829613/2024/10/08/hannah-hampton-chelsea-illness/
+
 **What Omarosa, John Kerry and Michael Cohen Have in Common**\
 `And why it matters in 2024.`\
 https://nytimes.com/2024/10/08/us/politics/trump-2024-election-democracy.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/08/world/israel-iran-lebanon-hezbollah/airstrik
 **FEMA Chief: Hurricane Misinformation Is ‘Worst That I Have Ever Seen’**\
 `Deanne Criswell, who heads the agency, said the circulating falsehoods were hampering its work.`\
 https://nytimes.com/2024/10/08/weather/hurricane-milton-disinformation-fema.html
-
-**Romney Won’t Endorse Harris, Saying He Wants to Keep His Voice in the Party**\
-`Senator Mitt Romney of Utah, the 2012 Republican nominee for president, says the party may need to be rebuilt.`\
-https://nytimes.com/2024/10/08/us/politics/mitt-romney-trump-harris.html
 
