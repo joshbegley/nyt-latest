@@ -1,3 +1,7 @@
+**Bears CEO says team not currently exploring private equity as funding source for new stadium**\
+`NFL owners voted to allow private equity firms to buy limited stakes in teams, up to 10 per cent, in August`\
+https://nytimes.com/athletic/5831320/2024/10/09/chicago-bears-equity-stadium-warren/
+
 **Biden and Netanyahu Speak for First Time Since August**\
 `Ties between the U.S. and Israeli leaders have been strained over Israel’s conduct in Gaza. The Israeli defense minister delayed a much-anticipated trip to the U.S. at Mr. Netanyahu’s request.`\
 https://nytimes.com/2024/10/09/world/middleeast/biden-netanyahu-gallant-visit.html
