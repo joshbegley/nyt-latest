@@ -1,3 +1,11 @@
+**Both sides are claiming victory, but the Manchester City APT verdict hasn't changed anyone's mind**\
+`There is still room for claim and counter-claim from both sides but the wait for the big decision goes on`\
+https://nytimes.com/athletic/5826502/2024/10/09/manchester-city-apt-decision-verdict/
+
+**Raul is still coaching Real Madrid's 'B' team. Will their legendary striker ever make the step up?**\
+`Madrid's relationship with their record appearance maker is complicated. After five years managing the reserves, his future appears unclear`\
+https://nytimes.com/athletic/5828428/2024/10/09/raul-real-madrid-castilla-future/
+
 **Alfie Devine, My Football Journey: Relegation scraps, online abuse and Tottenham's development path**\
 `Devine has enjoyed loan spells at Port Vale in League One and Plymouth in the Championship, and is now developing in Belgium at Westerlo`\
 https://nytimes.com/athletic/5817771/2024/10/09/devine-tottenham-vale-plymouth-journey/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/09/world/europe/harrods-sexual-abuse-scandal-mohamed
 **Global Warming Made Helene More Menacing, Researchers Say**\
 `In cooler times, a similarly rare storm over the Southeast would have delivered less rain and weaker winds, a team of scientists concluded in an analysis.`\
 https://nytimes.com/2024/10/09/climate/hurricane-helene-climate-change.html
-
-**Fantasy football rankings Week 6: Sleepers, projections, starts**\
-`Jake Ciely has what you need to set your fantasy football lineup, breaking down the sleepers and need-to-know stats for the Week 6 slate.`\
-https://nytimes.com/athletic/5829747/2024/10/09/fantasy-football-rankings-week-6-sleepers-projections-starts-jalen-tolbert-chase-brown/
-
-**Volkswagen’s Woes Reflect a Stagnant German Economy**\
-`Germany’s largest automaker rode a wave of strong sales for years, but lagging demand and pressure from China are forcing it to consider layoffs.`\
-https://nytimes.com/2024/10/09/world/europe/volkswagen-german-economy.html
 
