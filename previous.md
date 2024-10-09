@@ -1,3 +1,11 @@
+**Ten bold (and not so bold) Canucks predictions for the 2024-25 season**\
+`Will Elias Pettersson bounce back? Can Quinn Hughes score 20 goals? How active will Patrik Allvin be on the trade market?`\
+https://nytimes.com/athletic/5830416/2024/10/09/canucks-predictions-2024-25-pettersson-hughes/
+
+**Corrections: Oct. 9, 2024**\
+`Corrections that appeared in print on Wednesday, Oct. 9, 2024.`\
+https://nytimes.com/2024/10/09/pageoneplus/corrections-oct-9-2024.html
+
 **Jonathan Groff, Fresh Off Tony Win, Will Return to Broadway as Bobby Darin**\
 `“Just in Time,” a new musical about the “Mack the Knife” pop singer, will open next spring at Circle in the Square in Manhattan.`\
 https://nytimes.com/2024/10/09/theater/jonathan-groff-bobby-darin-broadway.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/09/business/dealbook/google-breakup-antitrust.html
 **New Images Show Lebanese Border Villages Flattened in Israeli Invasion**\
 `Satellite images and videos offer an early glimpse of the devastation in southern Lebanon a week after Israeli ground troops moved in to confront Hezbollah militants.`\
 https://nytimes.com/interactive/2024/10/09/world/middleeast/lebanon-destruction.html
-
-**The U.N. says a quarter of Lebanese territory is under Israeli evacuation warnings.**\
-`By Aryn Baker`\
-https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/the-un-says-a-quarter-of-lebanese-territory-is-under-israeli-evacuation-warnings
-
-**Here are the latest developments.**\
-`By Aryn Baker, Ben Hubbard and Aaron Boxerman`\
-https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
 
