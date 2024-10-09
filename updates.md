@@ -1,3 +1,11 @@
+**Trump Plans Rally at Madison Square Garden**\
+`The rally, reportedly set for late October, is part of a series of Trump campaign events planned for blue states.`\
+https://nytimes.com/2024/10/09/us/politics/trump-madison-square-garden-msg.html
+
+**Brett Favre, a Personal Injury Lawyer and a 30-Second Pitch for Trump**\
+`Needs a summary here.`\
+https://nytimes.com/2024/10/09/us/politics/brett-favre-donald-trump-ad.html
+
 **With Medicare, Harris Sees a Potential Last-Minute Appeal to Voters**\
 `Kamala Harris’s campaign proposal to add home health care to Medicare was a sign of the program’s growing power in American politics.`\
 https://nytimes.com/2024/10/09/us/politics/medicare-harris-home-health-care.html

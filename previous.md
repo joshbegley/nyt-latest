@@ -1,3 +1,11 @@
+**Trump Plans Rally at Madison Square Garden**\
+`The rally, reportedly set for late October, is part of a series of Trump campaign events planned for blue states.`\
+https://nytimes.com/2024/10/09/us/politics/trump-madison-square-garden-msg.html
+
+**Brett Favre, a Personal Injury Lawyer and a 30-Second Pitch for Trump**\
+`Needs a summary here.`\
+https://nytimes.com/2024/10/09/us/politics/brett-favre-donald-trump-ad.html
+
 **With Medicare, Harris Sees a Potential Last-Minute Appeal to Voters**\
 `Kamala Harris’s campaign proposal to add home health care to Medicare was a sign of the program’s growing power in American politics.`\
 https://nytimes.com/2024/10/09/us/politics/medicare-harris-home-health-care.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/09/world/middleeast/israel-hezbollah-lebanon.html
 **Stay or Go? With Milton Closing In, Some in Florida Make Last-Minute Decisions.**\
 `Those who had not yet evacuated reconsidered as the winds and rains from the incoming hurricane began to pick up on Wednesday.`\
 https://nytimes.com/2024/10/09/us/hurricane-milton-florida-evacuation-last-minute.html
-
-**Ratan Tata, Whose Indian Business Empire Went Global, Dies at 86**\
-`The patriarch of a powerful family, his Tata Group put an indelible stamp on Indian life while acquiring British brand names like Tetley Tea and Jaguar.`\
-https://nytimes.com/2024/10/09/business/ratan-tata-dead.html
-
-**Stones 'speechless' after being named England captain**\
-`John Stones will lead England out for the first time at Wembley on Thursday, as he captains England in the absence of Harry Kane.`\
-https://nytimes.com/athletic/5831944/2024/10/09/john-stones-england-captain-greece/
 
