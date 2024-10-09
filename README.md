@@ -1,3 +1,7 @@
+**Flooding Ravages Thai District Known for Elephant Parks**\
+`Two people have died following the intense rains that inundated the city of Chiang Mai and surrounding areas that are popular with tourists.`\
+https://nytimes.com/2024/10/09/world/asia/thailand-flooding-elephants.html
+
 **Why Breaking Up Google Would Be Hard to Do**\
 `The Justice Department could push for the tech giant to sell off a business to end its lock on online search. But a move would be tough to pull off.`\
 https://nytimes.com/2024/10/09/business/dealbook/google-breakup-antitrust.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828743/2024/10/09/sf-giants-mailbag-offseason-move
 **How Golden Knights' Adin Hill got ready for the biggest season of his life**\
 `Hill's season might propel him to a big contract — or create more doubts about his future.`\
 https://nytimes.com/athletic/5830083/2024/10/09/golden-knights-adin-hill-contract/
-
-**Kyle Busch on maintaining NASCAR success, son Brexton's racing and more: 12 Questions**\
-`Kyle Busch on longevity in the sport, dabbling in NASCAR media, what's next for his son Brexton's career and much more.`\
-https://nytimes.com/athletic/5828220/2024/10/09/kyle-busch-nascar-12-questions/
 
