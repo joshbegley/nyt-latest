@@ -1,3 +1,15 @@
+**Some Florida Inmates Will Not Evacuate as Milton Approaches, Officials Say**\
+`Manatee County, just south of Tampa, has ordered residents in three evacuation zones to get out. But the inmates and staff of the county jail will stay put.`\
+https://nytimes.com/2024/10/09/weather/florida-milton-evacuations-jail.html
+
+**The Windup: Two teams could go home today**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5831315/2024/10/09/dodgers-padres-mlb-playoffs-the-windup/
+
+**Very Versatile Vegetable Pajeon**\
+`These crispy Korean scallion pancakes can be made with pretty much whatever vegetables you have on hand.`\
+https://nytimes.com/2024/10/09/dining/very-versatile-vegetable-pajeon.html
+
 **How Will Howard's big-game experience helps Ohio State in its biggest test yet**\
 `Howard has played in big games before. How will his experience help as No. 2 Ohio State visits No. 3 Oregon in his biggest game yet?`\
 https://nytimes.com/athletic/5831214/2024/10/09/will-howard-ohio-state-football-oregon-ducks/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5831199/2024/10/09/23xi-racing-front-row-nascar-inj
 **Prestigious U.S.-Ireland Scholarship Paused Amid Funding Woes**\
 `More than 300 American students have benefited from the George J. Mitchell program, founded after the Good Friday Agreement, but it has been halted indefinitely.`\
 https://nytimes.com/2024/10/09/world/europe/us-ireland-mitchell-scholarship-paused.html
-
-**The Bounce: NBA general managers answer questions in new survey.**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5830725/2024/10/09/victor-wembanyama-spurs-nba-the-bounce/
-
-**Texans place Nico Collins, NFL's leading receiver, on IR**\
-`Collins leads the league in receiving yards (567), is tied for third in receptions (32) and fifth in targets (45).`\
-https://nytimes.com/athletic/5831234/2024/10/09/texans-nico-collins-injured-reserve/
-
-**League execs, coaches react to Jets firing Robert Saleh: 'It doesn’t seem well-thought out'**\
-`"It was probably inevitable, but it's more of the Jets not being able to get out of their own way. I’m not sure what firing (him) now does."`\
-https://nytimes.com/athletic/5829329/2024/10/09/new-york-jets-fired-robert-saleh/
 

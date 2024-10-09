@@ -1,3 +1,15 @@
+**Some Florida Inmates Will Not Evacuate as Milton Approaches, Officials Say**\
+`Manatee County, just south of Tampa, has ordered residents in three evacuation zones to get out. But the inmates and staff of the county jail will stay put.`\
+https://nytimes.com/2024/10/09/weather/florida-milton-evacuations-jail.html
+
+**The Windup: Two teams could go home today**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5831315/2024/10/09/dodgers-padres-mlb-playoffs-the-windup/
+
+**Very Versatile Vegetable Pajeon**\
+`These crispy Korean scallion pancakes can be made with pretty much whatever vegetables you have on hand.`\
+https://nytimes.com/2024/10/09/dining/very-versatile-vegetable-pajeon.html
+
 **How Will Howard's big-game experience helps Ohio State in its biggest test yet**\
 `Howard has played in big games before. How will his experience help as No. 2 Ohio State visits No. 3 Oregon in his biggest game yet?`\
 https://nytimes.com/athletic/5831214/2024/10/09/will-howard-ohio-state-football-oregon-ducks/
