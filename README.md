@@ -1,4 +1,4 @@
-**Wimbledon line judges to be replaced by electronic line calling from 2025**\
+**Wimbledon jettisons line judges for electronic line calling from 2025**\
 `It leaves the French Open as the only Grand Slam tournament not to use electronic line calling`\
 https://nytimes.com/athletic/5830648/2024/10/09/wimbledon-line-judges-electronic-line-calling/
 
