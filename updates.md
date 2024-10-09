@@ -1,3 +1,11 @@
+**Eric Adams Was Never the Future of the Democratic Party**\
+`The real lesson of Adams’s mayoralty has nothing to do with corruption.`\
+https://nytimes.com/2024/10/09/opinion/eric-adams-democrats.html
+
+**As Milton Bears Down, the Entire State of Florida is on High Alert**\
+`It is an extraordinary circumstance for the nation’s third most populous state to find itself in, as it attracts more newcomers and sees no end to development.`\
+https://nytimes.com/2024/10/09/us/hurricane-milton-florida-high-alert.html
+
 **Here’s How to Send Texts on an iPhone Even if You Lose Cellular Service**\
 `All iPhone 14 and later models can connect via satellite, but your phone must be updated to the latest software, iOS 18. Recipients of the messages must also have the latest iOS. Android users with Pixel 9 phones also have some options.`\
 https://nytimes.com/2024/10/09/us/milton-iphone-texts-satellite-emergency.html
