@@ -1,3 +1,7 @@
+**'Come to the New York Jets': Johnson urges Reddick to end holdout**\
+`Reddick — who lives in Camden, N.J., roughly 80 miles southwest of the Jets' training facility — is holding out for a new deal.`\
+https://nytimes.com/athletic/5829932/2024/10/08/woody-johnsons-haason-reddick-jets-holdout-comments/
+
 **Talanoa Hufanga's injury puts 49ers rookie Malik Mustapha in starting role**\
 `Mustapha and the rest of the 49ers defense are hoping to cure their missed-tackle woes against Kenneth Walker III on Thursday.`\
 https://nytimes.com/athletic/5829803/2024/10/08/talanoa-hufanga-injury-malik-mustapha-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/us/north-carolina-floods-antisemitic-social-media
 **Small Business Administration Will Soon Exhaust Disaster Loan Funds**\
 `The agency has less than $100 million for new loans, according to officials, while Hurricane Milton is headed toward Florida and after Hurricane Helene devastated much of the Southeast.`\
 https://nytimes.com/2024/10/08/us/politics/milton-helene-small-business-administration-fema.html
-
-**In Florida, Day Laborers Have Become the Backbone of Hurricane Cleanup**\
-`While they work, they face many risks, like wage theft or breathing in harmful dust and mold. Sleeping in a vehicle for weeks at a time is not uncommon, either.`\
-https://nytimes.com/2024/10/08/weather/florida-laborers-hurricane-helene-milton.html
 
