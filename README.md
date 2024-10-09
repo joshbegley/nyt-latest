@@ -1,3 +1,7 @@
+**With Biden Absent, Meeting of Western Leaders on Ukraine Is Postponed**\
+`A gathering in Germany intended to show support for Ukraine was put off after President Biden canceled his trip to deal with Hurricane Milton.`\
+https://nytimes.com/2024/10/09/world/europe/us-ukraine-biden-ramstein.html
+
 **Rosenthal: Fernando Tatis Jr. meets the moment in spectacular October so far**\
 `In five games this postseason, Tatis is 10-for-18 with four homers, including his two-run shot in the second inning on Tuesday.`\
 https://nytimes.com/athletic/5830708/2024/10/09/padres-fernando-tatis-nlds-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5808985/2024/10/09/manchester-city-legal-case-releg
 **Inside the French coaching course that could propel U.S. soccer into a new stratosphere**\
 `The Athletic went to Clairefontaine, French football’s famed training centre, to see the latest set of MLS coaches take 'the French Course'`\
 https://nytimes.com/athletic/5762494/2024/10/09/usmnt-uswnt-mls-coaching-france-clairefontaine/
-
-**What's at stake for the Rangers in '24-25: 'A little bit of Stanley Cup or bust'**\
-`Between Igor Shesterkin's contract and a core that can't last forever, New York is at a crossroads. Adam Fox: “Teams don’t get any younger."`\
-https://nytimes.com/athletic/5829604/2024/10/09/rangers-stanley-cup-or-bust/
 
