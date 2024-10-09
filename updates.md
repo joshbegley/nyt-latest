@@ -1,3 +1,7 @@
+**‘Weren’t good in so many areas’: 7 Bruins shortcomings in season-opening rout**\
+`The Bruins only lost by two goals against the Florida Panthers. It's proof sometimes the score means nothing.`\
+https://nytimes.com/athletic/5830228/2024/10/08/bruins-season-opener-panthers-shortcomings/
+
 **Mets' Sean Manaea delivers sparkling performance with a heavy heart**\
 `Mets manager Carlos Mendoza said: 'His mound presence, his demeanor, like there was something different about him today."`\
 https://nytimes.com/athletic/5830130/2024/10/08/mets-sean-manaea-nlds/

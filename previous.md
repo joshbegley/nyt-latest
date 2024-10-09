@@ -1,3 +1,7 @@
+**‘Weren’t good in so many areas’: 7 Bruins shortcomings in season-opening rout**\
+`The Bruins only lost by two goals against the Florida Panthers. It's proof sometimes the score means nothing.`\
+https://nytimes.com/athletic/5830228/2024/10/08/bruins-season-opener-panthers-shortcomings/
+
 **Mets' Sean Manaea delivers sparkling performance with a heavy heart**\
 `Mets manager Carlos Mendoza said: 'His mound presence, his demeanor, like there was something different about him today."`\
 https://nytimes.com/athletic/5830130/2024/10/08/mets-sean-manaea-nlds/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/08/us/politics/trump-rally.html
 **Episode Interruptions**\
 `Jeffrey Lease is struck by inspiration.`\
 https://nytimes.com/2024/10/08/crosswords/daily-puzzle-2024-10-09.html
-
-**Walz Says the Electoral College ‘Needs to Go’**\
-`Gov. Tim Walz of Minnesota suggested at fund-raisers that he backed switching to a national popular vote. His spokesman clarified that this was not the position of Kamala Harris’s campaign.`\
-https://nytimes.com/2024/10/08/us/politics/tim-walz-electoral-college.html
 
