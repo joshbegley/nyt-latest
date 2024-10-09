@@ -1,3 +1,7 @@
+**Fantasy basketball sleeper watch: Walker Kessler, Naz Reid, and more late-round targets**\
+`Stan Son breaks down late-round sleepers for the 2024-25 NBA fantasy basketball season, targeting players ranked outside the Top 100.`\
+https://nytimes.com/athletic/5828998/2024/10/09/fantasy-basketball-sleeper-watch-late-round-targets/
+
 **Vikings mailbag: Submit your bye week questions now for reporter Alec Lewis**\
 `Welcome to the Vikings' bye week! Like the team, you are free to take a breather. What questions do you have about the rest of the season?`\
 https://nytimes.com/athletic/5830974/2024/10/09/vikings-mailbag-submit-your-bye-week-questions-now-for-reporter-alec-lewis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5823954/2024/10/09/lakers-depth-chart-rotation-redi
 **Flooding Ravages Thai District Known for Elephant Parks**\
 `Two people have died following the intense rains that inundated the city of Chiang Mai and surrounding areas that are popular with tourists.`\
 https://nytimes.com/2024/10/09/world/asia/thailand-flooding-elephants.html
-
-**Why Breaking Up Google Would Be Hard to Do**\
-`The Justice Department could push for the tech giant to sell off a business to end its lock on online search. But a move would be tough to pull off.`\
-https://nytimes.com/2024/10/09/business/dealbook/google-breakup-antitrust.html
 

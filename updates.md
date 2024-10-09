@@ -1,3 +1,7 @@
+**Fantasy basketball sleeper watch: Walker Kessler, Naz Reid, and more late-round targets**\
+`Stan Son breaks down late-round sleepers for the 2024-25 NBA fantasy basketball season, targeting players ranked outside the Top 100.`\
+https://nytimes.com/athletic/5828998/2024/10/09/fantasy-basketball-sleeper-watch-late-round-targets/
+
 **Vikings mailbag: Submit your bye week questions now for reporter Alec Lewis**\
 `Welcome to the Vikings' bye week! Like the team, you are free to take a breather. What questions do you have about the rest of the season?`\
 https://nytimes.com/athletic/5830974/2024/10/09/vikings-mailbag-submit-your-bye-week-questions-now-for-reporter-alec-lewis/
