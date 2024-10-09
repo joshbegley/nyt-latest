@@ -1,3 +1,11 @@
+**Phillies on the brink: They know it. The Mets smell it. Their legacy is on the line**\
+`It’s just one baseball game. But we all know it’s more than that. It is the game that will define the legacy of the 2024 Phillies.`\
+https://nytimes.com/athletic/5830528/2024/10/09/phillies-mets-nlds-elimination-game-4/
+
+**Jake Rogers has emerged as a cult hero in the Tigers’ postseason run **\
+`Rogers may be the Tigers’ most important behind-the-scenes player. "Without him, I really don't think we’re here right now.”`\
+https://nytimes.com/athletic/5829100/2024/10/09/tigers-jake-rogers-leadership/
+
 **Willing his team to the playoffs, one "Don't let the Tigers get hot" sign at a time**\
 `Tigers superfan Josh Tebeau and his signs have become part of the fabric of this Tigers season, and he's not done yet. `\
 https://nytimes.com/athletic/5829997/2024/10/09/detroit-fan-josh-tebeau-dont-let-tigers-get-hot/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/09/learning/what-do-celebrities-owe-their-fans.html
 **The ‘Goth’ Volleyball Player Was Actually Toning Things Down**\
 `“I just wanted to look as much like myself as I could,” Nora Hayd said of the team headshot that made her an online sensation.`\
 https://nytimes.com/2024/10/09/style/goth-volleyball-player-nora-hayd.html
-
-**Drake London lets his personality show as his numbers rise for Falcons offense**\
-`The third-year receiver decided to "talk my talk" and "play my game" this season, and he's off to a strong start with Kirk Cousins.`\
-https://nytimes.com/athletic/5828277/2024/10/09/drake-london-personality-falcons-offense/
-
-**Could Bill Belichick coach the Jets? It feels unlikely thanks to 25 years of bitterness**\
-`After a quarter-century of success in New England, it's fun to consider Belichick coaching the rival Jets. But it doesn't seem like a fit.`\
-https://nytimes.com/athletic/5829059/2024/10/09/bill-belichick-ny-jets-coaching-job/
 
