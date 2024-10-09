@@ -1,3 +1,15 @@
+**Colts' Michael Pittman Jr. to miss extended time with back injury**\
+`Indianapolis is still weighing whether or not Pittman will head to injured reserve, per league sources.`\
+https://nytimes.com/athletic/5832329/2024/10/09/michael-pittman-jr-out-back-injury/
+
+**New Adams Administration Inquiry Focuses on City Leases**\
+`The Manhattan district attorney’s office seized phones from five people, including aides to Mayor Eric Adams, as they returned from a vacation together.`\
+https://nytimes.com/2024/10/09/nyregion/nyc-aides-bribery-investigation-bragg.html
+
+**Grimace Is So Regular Season. Meet the Mets’ Playoff Pumpkin.**\
+`First baseman Pete Alonso picked up a cute and carvable souvenir on a recent trip to Milwaukee. Fans are pinning their postseason hopes on the lucky gourd.`\
+https://nytimes.com/2024/10/09/style/mets-phillies-pete-alonso-pumpkin.html
+
 **Arts groups in Sarasota scramble to protect collections.**\
 `By Javier C. Hernández and Geraldine Fabrikant`\
 https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/arts-groups-in-sarasota-scramble-to-protect-collections
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5831354/2024/10/09/pfa-survey-injury-mental-health/
 **Here’s What a Shocking New Number on Wildlife Declines Really Means**\
 `The results from an important ongoing assessment look grim. But the survey is often misunderstood.`\
 https://nytimes.com/2024/10/09/climate/wildlife-survey-population-declines-wwf.html
-
-**Star Maestro Dazzles Fans at Carnegie Hall**\
-`The conductor Gustavo Dudamel performed with the Los Angeles Philharmonic at the opening of Carnegie Hall’s fall season.`\
-https://nytimes.com/2024/10/09/style/gustavo-dudamel-la-philharmonic-carnegie-hall.html
-
-**At Tampa’s Zoo, Some Workers Will Stay Behind During Milton**\
-`A team at ZooTampa is staying put to keep its 1,000 animals safe as Hurricane Milton arrives.`\
-https://nytimes.com/2024/10/09/us/milton-tampa-zoo-animals-aquarium.html
-
-**Packers welcome Romeo Doubs back from suspension, but how open are their arms?**\
-`Doubs returned to practice on Wednesday after skipping last Thursday and Friday, which led to his one-game suspension last weekend.`\
-https://nytimes.com/athletic/5832266/2024/10/09/romeo-doubs-packers-return-to-practice/
 
