@@ -1,3 +1,7 @@
+**Aren’t I Entitled to Know Why My Husband Is on a Drug for H.I.V. Risk?**\
+`The magazine’s Ethicist columnist on medical secrecy within a marriage.`\
+https://nytimes.com/2024/10/09/magazine/husband-antivirals-secrecy-ethics.html
+
 **Shari Redstone Says CBS News ‘Made a Mistake’ in Rebuking Anchor**\
 `CBS News executives had said that Tony Dokoupil’s interview with the writer Ta-Nehisi Coates fell short of editorial standards.`\
 https://nytimes.com/2024/10/09/business/media/ta-nehisi-coates-cbs-interview-shari-redstone.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5831328/2024/10/09/joseph-wolls-maple-leafs-injury/
 **Some Florida Inmates Will Not Evacuate as Milton Approaches, Officials Say**\
 `Manatee County, just south of Tampa, has ordered residents in three evacuation zones to get out. But the inmates and staff of the county jail will stay put.`\
 https://nytimes.com/2024/10/09/weather/florida-milton-evacuations-jail.html
-
-**The Windup: Two teams could go home today**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5831315/2024/10/09/dodgers-padres-mlb-playoffs-the-windup/
 
