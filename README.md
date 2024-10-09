@@ -1,3 +1,11 @@
+**Episode Interruptions**\
+`Jeffrey Lease is struck by inspiration.`\
+https://nytimes.com/2024/10/08/crosswords/daily-puzzle-2024-10-09.html
+
+**Walz Says the Electoral College ‘Needs to Go’**\
+`Gov. Tim Walz of Minnesota suggested at fund-raisers that he backed switching to a national popular vote. His spokesman clarified that this was not the position of Kamala Harris’s campaign.`\
+https://nytimes.com/2024/10/08/us/politics/tim-walz-electoral-college.html
+
 **Seeking Release on Bail, Sean Combs Downplays Risk of Witness Tampering**\
 `In an appeal, lawyers for Mr. Combs wrote that a judge’s decision to withhold bail was not based on evidence that he had sought to interfere with the sex trafficking investigation.`\
 https://nytimes.com/2024/10/08/arts/music/sean-combs-bail-appeal.html
@@ -29,12 +37,4 @@ https://nytimes.com/card/2024/10/09/arts/design/rubin-museum-closed
 **In High Mountain Alaska, a Glacier’s Deep Secret Is Revealed at Last**\
 `A famed explorer was sure the ice hid something profound. Ninety years later, scientists have put forth the strongest evidence yet that he was right.`\
 https://nytimes.com/2024/10/08/climate/alaska-great-gorge-deepest.html
-
-**Sean Manaea deals, Phillies reel as Mets seize lead in NLDS: Takeaways**\
-`Behind a commanding performance by Manaea and timely hitting in Game 3, the New York Mets are one win away from reaching the NLCS. `\
-https://nytimes.com/athletic/5829709/2024/10/08/phillies-mets-score-sean-manaea-takeaways/
-
-**Antisemitism and Threats Directed at Officials Over Storm Response**\
-`Some online posts have threatened violence against FEMA officials. A research group found that the X platform has been one of the main drivers of misinformation.`\
-https://nytimes.com/2024/10/08/us/north-carolina-floods-antisemitic-social-media.html
 
