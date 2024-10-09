@@ -1,3 +1,15 @@
+**Alabama notebook: Avoiding a Vanderbilt hangover, injury updates and more**\
+`Alabama coach Kalen DeBoer has historically thrived in weeks after losses. Plus, injuries are thinning the Tide's receiver depth chart.`\
+https://nytimes.com/athletic/5832023/2024/10/09/alabama-crimson-tide-south-carolina-vanderbilt/
+
+**A gun control group’s ads pair firearm restrictions and abortion as public health matters.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/10/09/us/harris-trump-election/a-gun-control-groups-ads-pair-firearm-restrictions-and-abortion-as-public-health-matters
+
+**The Many Meanings of Kamala Harris’s Glock**\
+`In a “60 Minutes” interview this week, the vice president shared the kind of gun she owns. Its associations with law enforcement and pop culture make it a potent symbol.`\
+https://nytimes.com/2024/10/09/style/kamala-harris-glock-guns.html
+
 **Jeff Ulbrich's to-do list: From Nathaniel Hackett and Aaron Rodgers to (possibly) Davante Adams**\
 `The New York Jets' interim coach faces a half-dozen challenges as he tries to get the season back on track.`\
 https://nytimes.com/athletic/5831973/2024/10/09/jeff-ulbrich-new-york-jets-interim-coach-robert-saleh-firing/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/10/10/us/politics/trump-campaign-donations-
 **Thursday Briefing: Florida Braces for Hurricane Milton**\
 `Plus, literature’s greatest prize.`\
 https://nytimes.com/2024/10/09/briefing/hurricane-milton-harris-lebanon.html
-
-**‘Joy’ Is Working for Harris, but Can It Close the Deal?**\
-`The vice president needs to speak with voters directly.`\
-https://nytimes.com/2024/10/09/opinion/harriss-trump-joy-polls.html
-
-**MLB, broadcaster near clarity on team fates**\
-`The broadcast futures of at least eight clubs are still uncertain, but that could be changing soon. `\
-https://nytimes.com/athletic/5832030/2024/10/09/mlb-diamond-team-broadcast-futures/
-
-**Nearly a Million Civilians Flee War in Lebanon, U.N. Says**\
-`A week into the ground war between Israel and Hezbollah, shelters in Lebanon are filling up beyond capacity, humanitarian officials warned.`\
-https://nytimes.com/2024/10/09/world/middleeast/israel-hezbollah-lebanon.html
 
