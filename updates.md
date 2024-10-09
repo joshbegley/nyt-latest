@@ -1,3 +1,11 @@
+**Evgeni Malkin is aging, changing and not done yet**\
+`Malkin, who has been looking to Alex Ovechkin for ways to stay competitive, says he won't retire until the Penguins make the playoffs again.`\
+https://nytimes.com/athletic/5826029/2024/10/09/penguins-evgeni-malkin-nhl-retirement/
+
+**In a new era for the Royals, Salvador Pérez remains the one constant**\
+`In 2015, the last time the Royals were in the postseason, their gregarious catcher brought home the World Series MVP trophy. `\
+https://nytimes.com/athletic/5829398/2024/10/09/salvador-perez-royals-leader-playoffs/
+
 **Phillies on the brink: They know it. The Mets smell it. Their legacy is on the line**\
 `It’s just one baseball game. But we all know it’s more than that. It is the game that will define the legacy of the 2024 Phillies.`\
 https://nytimes.com/athletic/5830528/2024/10/09/phillies-mets-nlds-elimination-game-4/

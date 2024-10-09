@@ -1,3 +1,11 @@
+**Evgeni Malkin is aging, changing and not done yet**\
+`Malkin, who has been looking to Alex Ovechkin for ways to stay competitive, says he won't retire until the Penguins make the playoffs again.`\
+https://nytimes.com/athletic/5826029/2024/10/09/penguins-evgeni-malkin-nhl-retirement/
+
+**In a new era for the Royals, Salvador Pérez remains the one constant**\
+`In 2015, the last time the Royals were in the postseason, their gregarious catcher brought home the World Series MVP trophy. `\
+https://nytimes.com/athletic/5829398/2024/10/09/salvador-perez-royals-leader-playoffs/
+
 **Phillies on the brink: They know it. The Mets smell it. Their legacy is on the line**\
 `It’s just one baseball game. But we all know it’s more than that. It is the game that will define the legacy of the 2024 Phillies.`\
 https://nytimes.com/athletic/5830528/2024/10/09/phillies-mets-nlds-elimination-game-4/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/09/technology/personaltech/turn-off-ai-overviews-goo
 **Republicans Hate Tech’s Influence on Politics. Unless It Comes From Elon Musk.**\
 `The G.O.P.’s deep hypocrisy about X’s owner.`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/musk-trump-influence
-
-**What Do Celebrities Owe Their Fans?**\
-`Many stars have long accepted fan misbehavior, intense pressure and intrusions into their personal lives as the price of fame. Should they?`\
-https://nytimes.com/2024/10/09/learning/what-do-celebrities-owe-their-fans.html
-
-**The ‘Goth’ Volleyball Player Was Actually Toning Things Down**\
-`“I just wanted to look as much like myself as I could,” Nora Hayd said of the team headshot that made her an online sensation.`\
-https://nytimes.com/2024/10/09/style/goth-volleyball-player-nora-hayd.html
 
