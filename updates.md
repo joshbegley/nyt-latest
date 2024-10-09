@@ -1,3 +1,15 @@
+**The Met’s Next Fashion Blockbuster Takes On the Politics of Race**\
+`With support from LeBron James, ASAP Rocky, Pharrell Williams and more.`\
+https://nytimes.com/2024/10/09/style/met-gala-lebron-james-asap-rocky-pharrell-williams.html
+
+**Senators sign Linus Ullmark to 4-year, $33 million extension**\
+`The Senators acquired Ullmark in June in exchange for Joonas Korpisalo, Mark Kastelic and a 2024 first-round pick.`\
+https://nytimes.com/athletic/5831028/2024/10/09/senators-ottawa-linus-ullmark-extension-salary/
+
+**Turkish Airlines Flight Makes Emergency Landing After Pilot Dies**\
+`The airline said the pilot had lost consciousness during the flight, which was headed to Istanbul from Seattle.`\
+https://nytimes.com/2024/10/09/us/turkish-airlines-emergency-landing-jfk.html
+
 **Hamptons Town Accused of Illegally Blocking Affordable Housing Plan**\
 `The Town of Southampton, an affluent Long Island enclave, violated housing laws by rejecting the project, which would have helped veterans and disabled people, the suit says.`\
 https://nytimes.com/2024/10/09/nyregion/southampton-affordable-housing.html

@@ -1,3 +1,15 @@
+**The Met’s Next Fashion Blockbuster Takes On the Politics of Race**\
+`With support from LeBron James, ASAP Rocky, Pharrell Williams and more.`\
+https://nytimes.com/2024/10/09/style/met-gala-lebron-james-asap-rocky-pharrell-williams.html
+
+**Senators sign Linus Ullmark to 4-year, $33 million extension**\
+`The Senators acquired Ullmark in June in exchange for Joonas Korpisalo, Mark Kastelic and a 2024 first-round pick.`\
+https://nytimes.com/athletic/5831028/2024/10/09/senators-ottawa-linus-ullmark-extension-salary/
+
+**Turkish Airlines Flight Makes Emergency Landing After Pilot Dies**\
+`The airline said the pilot had lost consciousness during the flight, which was headed to Istanbul from Seattle.`\
+https://nytimes.com/2024/10/09/us/turkish-airlines-emergency-landing-jfk.html
+
 **Hamptons Town Accused of Illegally Blocking Affordable Housing Plan**\
 `The Town of Southampton, an affluent Long Island enclave, violated housing laws by rejecting the project, which would have helped veterans and disabled people, the suit says.`\
 https://nytimes.com/2024/10/09/nyregion/southampton-affordable-housing.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5829478/2024/10/09/philadelphia-eagles-linebackers-
 **Klopp's move to Red Bull seems surprising – but it shouldn't be**\
 `A man who was tipped to be a company CEO should thrive at Red Bull – but it's not without controversy`\
 https://nytimes.com/athletic/5830802/2024/10/09/red-bull-jurgen-klopp-soccer/
-
-**Five People Die in Plane Crash on Catalina Island, Near Los Angeles**\
-`The wreckage of a twin-engine plane was found Tuesday night after the authorities received an emergency notification and GPS coordinates from a cellphone.`\
-https://nytimes.com/2024/10/09/us/catalina-island-california-plane-crash.html
-
-**Fantasy basketball sleeper watch: Walker Kessler, Naz Reid, and more late-round targets**\
-`Stan Son breaks down late-round sleepers for the 2024-25 NBA fantasy basketball season, targeting players ranked outside the Top 100.`\
-https://nytimes.com/athletic/5828998/2024/10/09/fantasy-basketball-sleeper-watch-late-round-targets/
-
-**Vikings mailbag: Submit your bye week questions now for reporter Alec Lewis**\
-`Welcome to the Vikings' bye week! Like the team, you are free to take a breather. What questions do you have about the rest of the season?`\
-https://nytimes.com/athletic/5830974/2024/10/09/vikings-mailbag-submit-your-bye-week-questions-now-for-reporter-alec-lewis/
 
