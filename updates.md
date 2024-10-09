@@ -1,3 +1,7 @@
+**Inside Donald Trump’s Rallies**\
+`We explain the nine main things that happen at each rally.`\
+https://nytimes.com/2024/10/09/briefing/inside-donald-trumps-rallies.html
+
 **Uncapped Jones and Livramento called up to England squad**\
 `The uncapped Curtis Jones and Tino Livramento have been called up to the England senior squad ahead of October&#8217;s Nations League fixtures against Greece and Finland.`\
 https://nytimes.com/athletic/5830624/2024/10/09/curtis-jones-tino-livramento-england/
