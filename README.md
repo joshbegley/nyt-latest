@@ -1,3 +1,11 @@
+**'I could never play for another English club - I'm a cockney now, West Ham means too much'**\
+`The Spanish winger fell in love with London so much he calls himself 'a cockney' - despite leaving he's still playing a part for West Ham`\
+https://nytimes.com/athletic/5781922/2024/10/09/pablo-fornals-west-ham-real-betis-interview/
+
+**How Pau Torres helps conduct Aston Villa's attack**\
+`The Spanish central defender has become crucial to Aston Villa's build-up play through his positioning and his vision on the ball`\
+https://nytimes.com/athletic/5394057/2024/10/09/pau-torres-analysis-aston-villa-passing/
+
 **Armando Broja has a point to prove at Everton**\
 `The on-loan Chelsea striker is aiming to return to action next month - Everton are confident he has the ability to succeed when he does`\
 https://nytimes.com/athletic/5817945/2024/10/09/armando-broja-everton-loan-return/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5828428/2024/10/09/raul-real-madrid-castilla-future
 **Alfie Devine, My Football Journey: Relegation scraps, online abuse and Tottenham's development path**\
 `Devine has enjoyed loan spells at Port Vale in League One and Plymouth in the Championship, and is now developing in Belgium at Westerlo`\
 https://nytimes.com/athletic/5817771/2024/10/09/devine-tottenham-vale-plymouth-journey/
-
-**Which signing went on to exceed expectations at each Premier League club?**\
-`From forwards who became world stars to loyal club men who were brought in for next to nothing, our writers make their choices`\
-https://nytimes.com/athletic/5825106/2024/10/09/premier-league-transfers-exceed-expectations/
-
-**Wednesday Briefing**\
-`An Israeli airstrike in Syria.`\
-https://nytimes.com/2024/10/09/briefing/israel-syria-lebanon.html
 
