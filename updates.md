@@ -1,3 +1,11 @@
+**Uncapped Jones and Livramento called up to England squad**\
+`The uncapped Curtis Jones and Tino Livramento have been called up to the England senior squad ahead of October&#8217;s Nations League fixtures against Greece and Finland.`\
+https://nytimes.com/athletic/5830624/2024/10/09/curtis-jones-tino-livramento-england/
+
+**The Pulse: MLB juggernauts on the brink**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5829343/2024/10/09/dodgers-padres-phillies-mets-upsets-the-pulse/
+
 **How Roger Bennett fell in love with the Bears, and the lessons of being a sports fan**\
 `Roger Bennett from "Men in Blazers" became a fan of the Bears growing up in Liverpool and still reveres the team that changed his life.`\
 https://nytimes.com/athletic/5829225/2024/10/09/chicago-bears-roger-bennett-men-in-blazers/

@@ -1,3 +1,11 @@
+**Uncapped Jones and Livramento called up to England squad**\
+`The uncapped Curtis Jones and Tino Livramento have been called up to the England senior squad ahead of October&#8217;s Nations League fixtures against Greece and Finland.`\
+https://nytimes.com/athletic/5830624/2024/10/09/curtis-jones-tino-livramento-england/
+
+**The Pulse: MLB juggernauts on the brink**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5829343/2024/10/09/dodgers-padres-phillies-mets-upsets-the-pulse/
+
 **How Roger Bennett fell in love with the Bears, and the lessons of being a sports fan**\
 `Roger Bennett from "Men in Blazers" became a fan of the Bears growing up in Liverpool and still reveres the team that changed his life.`\
 https://nytimes.com/athletic/5829225/2024/10/09/chicago-bears-roger-bennett-men-in-blazers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5826673/2024/10/09/easton-cowan-maple-leafs-london-
 **Bultman: Red Wings have to do it the hard way. And that's OK**\
 `The Red Wings came up just short of the playoffs in 2024. That's the best thing they have going for them as a new season begins.`\
 https://nytimes.com/athletic/5818914/2024/10/09/red-wings-playoffs-route-nhl/
-
-**As Canadiens kick off the season, a reminder to resist premature outrage**\
-`There has been a misplaced debate raging over Lane Hutson's usage on the power play when the Canadiens season hasn't even begun.`\
-https://nytimes.com/athletic/5830252/2024/10/09/canadiens-power-play-matheson-hutson-outrage/
-
-**What we learned at Jets camp: Captain conversation, special teams revolution, more**\
-`Adam Lowry isn't unaware of where Winnipeg can improve, but he's more interested in what happens on the ice than on paper.`\
-https://nytimes.com/athletic/5820367/2024/10/09/winnipeg-jets-camp-captain-special-teams/
 
