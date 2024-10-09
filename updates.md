@@ -1,3 +1,11 @@
+**Migrant Shelter on Randall’s Island Will Close in February, Adams Says**\
+`The shelter complex, which was built atop recreational fields, will be gradually emptied and the fields restored for public use, the mayor’s office said.`\
+https://nytimes.com/2024/10/09/nyregion/randalls-island-nyc-migrant-shelter-closing.html
+
+**Tom Brady's ownership bid for Raiders to be discussed at owners meeting next week**\
+`If Brady's bid proceeds to a vote, he'll need the approval of 24 of the NFL's 32 owners.`\
+https://nytimes.com/athletic/5831941/2024/10/09/tom-brady-raiders-bid-owners-meeting/
+
 **Pristine Beaches, Art and Retirees Dot Stretch of Coast in Milton’s Path**\
 `The area of Florida from Tampa Bay to Fort Myers is home to millions of people who flock to its museums and barrier islands.`\
 https://nytimes.com/2024/10/09/us/florida-gulf-coast-milton.html
