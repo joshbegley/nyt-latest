@@ -1,3 +1,7 @@
+**League execs, coaches react to Jets firing Robert Saleh: 'It doesn’t seem well-thought out'**\
+`"It was probably inevitable, but it's more of the Jets not being able to get out of their own way. I’m not sure what firing (him) now does."`\
+https://nytimes.com/athletic/5829329/2024/10/09/new-york-jets-fired-robert-saleh/
+
 **Silent Hill 2 Was Clumsy, Brutal and Brilliant**\
 `A remake of the 2001 survival horror game sands down the unwieldy combat that made it a powerful, disturbing classic.`\
 https://nytimes.com/2024/10/09/arts/silent-hill-2.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5831129/2024/10/09/carter-verhaeghe-extension-panth
 `After an epic election defeat in July, opposition lawmakers have presented their party’s paying members with an unexpected choice of two candidates from the right.`\
 https://nytimes.com/2024/10/09/world/europe/uk-conservative-leadership-contest.html
 
-**Scoop City: How Saleh failed the Jets**\
+**Scoop City: Saleh failed, but Jets share blame**\
 `Robert Saleh was hired to be a CEO-type leader in New York. It's why he had to go, despite the Jets defensive prowess.`\
 https://nytimes.com/athletic/5831204/2024/10/09/scoop-city-how-saleh-failed-the-jets/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/weather/florida-hospitals-storm-closures-preparat
 **After Floods, Soaring Insurance Rates Become a Hot Election Issue**\
 `Few states elect their insurance commissioners. But in North Carolina, a proposed 42 percent rate hike and Hurricane Helene have raised the stakes in the upcoming election.`\
 https://nytimes.com/2024/10/09/us/insurance-commissioner-hurricane-north-carolina.html
-
-**How Roger Bennett fell in love with the Bears, and the lessons of being a sports fan**\
-`Roger Bennett from "Men in Blazers" became a fan of the Bears growing up in Liverpool and still reveres the team that changed his life.`\
-https://nytimes.com/athletic/5829225/2024/10/09/chicago-bears-roger-bennett-men-in-blazers/
 
