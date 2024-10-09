@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5832089/2024/10/09/george-baldock-dies-sheffield-un
 
 **Here’s why forecasters still don’t know where exactly Milton will hit.**\
 `By Judson Jones`\
-https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/hurricane-milton-landfall-florida
+https://nytimes.com/2024/10/09/weather/hurricane-milton-landfall-florida.html
 
 **Hurricane Milton Began Thrashing Florida’s West Coast**\
 `Also, Kamala Harris has already raised more than $1 billion. Here’s the latest at the end of Wednesday.`\
