@@ -1,3 +1,7 @@
+**Rodgers denies having input on Jets firing Saleh**\
+`The four-time NFL MVP is in his second season with the Jets, but played just six games for Saleh.`\
+https://nytimes.com/athletic/5828608/2024/10/09/aaron-rodgers-robert-saleh-firing-jets/
+
 **Letitia James vs. Andrew Cuomo for New York City Mayor? It Could Happen.**\
 `With Mayor Eric Adams’s future in doubt, former Gov. Andrew Cuomo and his adversary Letitia James, the state attorney general, could find themselves in a battle for the city’s top job.`\
 https://nytimes.com/2024/10/09/nyregion/tish-james-cuomo-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5831267/2024/10/09/bears-london-ryan-poles-caleb-wi
 **Trump Repeatedly Referred to Maine’s Female Governor as a Man**\
 `On a call with supporters, the former president incorrectly used masculine pronouns six times while referring to Janet Mills.`\
 https://nytimes.com/2024/10/09/us/politics/trump-maine-governor-gender.html
-
-**Kraken sign Daccord to 5-year extension: What it means**\
-`The 28-year-old goalie had a breakout year last season, his first as a full-time NHL goalie.`\
-https://nytimes.com/athletic/5831303/2024/10/09/seattle-kraken-joey-daccord-extension-salary/
 
