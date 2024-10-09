@@ -1,3 +1,7 @@
+**Texans place Nico Collins, NFL's leading receiver, on IR**\
+`Collins leads the league in receiving yards (567), is tied for third in receptions (32) and fifth in targets (45).`\
+https://nytimes.com/athletic/5831234/2024/10/09/texans-nico-collins-injured-reserve/
+
 **League execs, coaches react to Jets firing Robert Saleh: 'It doesn’t seem well-thought out'**\
 `"It was probably inevitable, but it's more of the Jets not being able to get out of their own way. I’m not sure what firing (him) now does."`\
 https://nytimes.com/athletic/5829329/2024/10/09/new-york-jets-fired-robert-saleh/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5830461/2024/10/09/macklin-celebrini-debut-sharks/
 **Medical Facilities in Milton’s Path Are Preparing With Closures and Barricades**\
 `Hospitals and nursing homes in Florida have plenty of experience with hurricanes, but officials are aware that Milton may bring more damage than past storms.`\
 https://nytimes.com/2024/10/09/weather/florida-hospitals-storm-closures-preparations.html
-
-**After Floods, Soaring Insurance Rates Become a Hot Election Issue**\
-`Few states elect their insurance commissioners. But in North Carolina, a proposed 42 percent rate hike and Hurricane Helene have raised the stakes in the upcoming election.`\
-https://nytimes.com/2024/10/09/us/insurance-commissioner-hurricane-north-carolina.html
 
