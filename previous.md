@@ -1,3 +1,7 @@
+**Talanoa Hufanga's injury puts 49ers rookie Malik Mustapha in starting role**\
+`Mustapha and the rest of the 49ers defense are hoping to cure their missed-tackle woes against Kenneth Walker III on Thursday.`\
+https://nytimes.com/athletic/5829803/2024/10/08/talanoa-hufanga-injury-malik-mustapha-49ers/
+
 **Harris Cracks a Beer With Colbert and Talks Gaza, Trump and Putin**\
 `In a chat with Stephen Colbert, Kamala Harris suggested the Gaza war was unlikely to end soon, even as she urged optimism. And she condemned Donald Trump over reports that he sent rare Covid test machines to Russia.`\
 https://nytimes.com/2024/10/08/us/politics/kamala-harris-colbert-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/us/politics/milton-helene-small-business-administ
 **In Florida, Day Laborers Have Become the Backbone of Hurricane Cleanup**\
 `While they work, they face many risks, like wage theft or breathing in harmful dust and mold. Sleeping in a vehicle for weeks at a time is not uncommon, either.`\
 https://nytimes.com/2024/10/08/weather/florida-laborers-hurricane-helene-milton.html
-
-**Raiders DL Christian Wilkins out indefinitely after foot surgery**\
-`Wilkins sustained the injury in Sunday's 34-18 loss to the Denver Broncos that dropped the Raiders to 2-3 on the season.`\
-https://nytimes.com/athletic/5829681/2024/10/08/christian-wilkins-foot-injury-surgery-raiders/
 

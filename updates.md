@@ -1,3 +1,7 @@
+**Talanoa Hufanga's injury puts 49ers rookie Malik Mustapha in starting role**\
+`Mustapha and the rest of the 49ers defense are hoping to cure their missed-tackle woes against Kenneth Walker III on Thursday.`\
+https://nytimes.com/athletic/5829803/2024/10/08/talanoa-hufanga-injury-malik-mustapha-49ers/
+
 **Harris Cracks a Beer With Colbert and Talks Gaza, Trump and Putin**\
 `In a chat with Stephen Colbert, Kamala Harris suggested the Gaza war was unlikely to end soon, even as she urged optimism. And she condemned Donald Trump over reports that he sent rare Covid test machines to Russia.`\
 https://nytimes.com/2024/10/08/us/politics/kamala-harris-colbert-report.html
