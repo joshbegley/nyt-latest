@@ -1,3 +1,7 @@
+**Biden and Netanyahu Speak for First Time Since August**\
+`Ties between the U.S. and Israeli leaders have been strained over Israel’s conduct in Gaza. The Israeli defense minister delayed a much-anticipated trip to the U.S. at Mr. Netanyahu’s request.`\
+https://nytimes.com/2024/10/09/world/middleeast/biden-netanyahu-gallant-visit.html
+
 **‘The Wind and the Rain’ Review: How Sunny’s Bar Weathered the Storm**\
 `On a barge in Brooklyn, the story of a beloved watering hole and a neighborhood’s recovery after Hurricane Sandy.`\
 https://nytimes.com/2024/10/09/theater/the-wind-and-the-rain-review-sunnys-bar.html

@@ -1,3 +1,7 @@
+**Biden and Netanyahu Speak for First Time Since August**\
+`Ties between the U.S. and Israeli leaders have been strained over Israel’s conduct in Gaza. The Israeli defense minister delayed a much-anticipated trip to the U.S. at Mr. Netanyahu’s request.`\
+https://nytimes.com/2024/10/09/world/middleeast/biden-netanyahu-gallant-visit.html
+
 **‘The Wind and the Rain’ Review: How Sunny’s Bar Weathered the Storm**\
 `On a barge in Brooklyn, the story of a beloved watering hole and a neighborhood’s recovery after Hurricane Sandy.`\
 https://nytimes.com/2024/10/09/theater/the-wind-and-the-rain-review-sunnys-bar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/well/postpartum-psychosis-health-pregnancy-women.
 **U.S. Races to Replenish Storm-Battered Supplies of IV Fluids at Hospitals**\
 `Officials are looking to foreign sources to ease shortages of IV bags caused by Hurricane Helene as hospitals begin rationing fluids to protect the sickest patients.`\
 https://nytimes.com/2024/10/09/health/hurricane-helene-iv-shortages.html
-
-**‘The Bachelor’ Is Shattering Its Own Fairy Tale**\
-`Recent revelations about contestants’ troubling backgrounds have punctured the franchise’s fantasy — that reality TV is a secure place to look for love.`\
-https://nytimes.com/2024/10/09/arts/television/bachelor-gerry-turner-jenn-tran-devin-strader.html
 
