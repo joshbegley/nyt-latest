@@ -1,3 +1,15 @@
+**The U.N. says a quarter of Lebanese territory is under Israeli evacuation warnings.**\
+`By Aryn Baker`\
+https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/the-un-says-a-quarter-of-lebanese-territory-is-under-israeli-evacuation-warnings
+
+**Here are the latest developments.**\
+`By Aryn Baker, Ben Hubbard and Aaron Boxerman`\
+https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
+
+**Pelicans pushing 3-point increase as most viable path to improved offense**\
+`Coach Willie Green wants New Orleans to shoot 40 3s per game — which should open up more space for Zion Williamson.`\
+https://nytimes.com/athletic/5830576/2024/10/09/pelicans-offense-3-pointers-zion/
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/09/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/09/world/europe/us-ukraine-biden-ramstein.html
 **Rosenthal: Fernando Tatis Jr. meets the moment in spectacular October so far**\
 `In five games this postseason, Tatis is 10-for-18 with four homers, including his two-run shot in the second inning on Tuesday.`\
 https://nytimes.com/athletic/5830708/2024/10/09/padres-fernando-tatis-nlds-mlb/
-
-**Ranking the 18 MLB teams that didn't make the playoffs: Who is best-positioned for 2025?**\
-`Power-ranking the non-playoff teams: A lot will change, but here’s where these clubs stand and how quickly I think they can improve.`\
-https://nytimes.com/athletic/5829389/2024/10/09/mlb-teams-missed-playoffs-ranking-2025/
-
-**Bucks camp notebook: Key health updates, 'Camp Connect' and Taurean Prince at power forward**\
-`Bucks coach Doc Rivers said the team expects Gary Trent Jr. to return without missing an extended period after hyperextending his elbow.`\
-https://nytimes.com/athletic/5829169/2024/10/09/milwaukee-bucks-camp-notebook/
-
-**The Athletic FC: Pep Guardiola ally leaving Manchester City. Plus: Jurgen Klopp's new role**\
-`The Premier League champions are facing upheaval, so what next for their manager?`\
-https://nytimes.com/athletic/5830637/2024/10/09/pep-guardiola-jurgen-klopp-red-bull-tafc/
 
