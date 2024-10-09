@@ -1,3 +1,11 @@
+**Spirit's Andi Sullivan out for season with torn ACL**\
+`Sullivan has been a central leader and the heart of the team for multiple seasons.`\
+https://nytimes.com/athletic/5831720/2024/10/09/andi-sullivan-spirit-acl-injury/
+
+**Israeli strikes in Lebanon are driving widespread displacement and a humanitarian crisis, the U.N. says.**\
+`More than 600,000 people have fled their homes in Lebanon, and over 300,000 others have left the country since the war broke out, the U.N. said.`\
+https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/airstrikes-displacement-iebanon-un
+
 **Splintered Supreme Court Wrestles With Case of Oklahoma Death Row Inmate**\
 `Some justices said the court was powerless to grant relief to the inmate, Richard Glossip. Others seemed ready to order a new trial or at least an evidentiary hearing.`\
 https://nytimes.com/2024/10/09/us/supreme-court-richard-glossip-death-row-oklahoma.html
