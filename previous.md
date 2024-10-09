@@ -1,3 +1,15 @@
+**‘The Wind and the Rain’ Review: How Sunny’s Bar Weathered the Storm**\
+`On a barge in Brooklyn, the story of a beloved watering hole and a neighborhood’s recovery after Hurricane Sandy.`\
+https://nytimes.com/2024/10/09/theater/the-wind-and-the-rain-review-sunnys-bar.html
+
+**At Michigan, Pro-Palestinian Activists Lose, and Money for Student Clubs Is Restored**\
+`In a fraught meeting, the student government rejected a plan to redirect its budget from campus activities to aid for Gaza. But the fight is not over.`\
+https://nytimes.com/2024/10/09/us/umich-pro-palestinian-funding-student-clubs.html
+
+**Joseph Woll’s season is off to a troubling start for the Maple Leafs**\
+`The Toronto Maple Leafs haven’t even played a game yet and already Woll is hurt.`\
+https://nytimes.com/athletic/5831328/2024/10/09/joseph-wolls-maple-leafs-injury/
+
 **Some Florida Inmates Will Not Evacuate as Milton Approaches, Officials Say**\
 `Manatee County, just south of Tampa, has ordered residents in three evacuation zones to get out. But the inmates and staff of the county jail will stay put.`\
 https://nytimes.com/2024/10/09/weather/florida-milton-evacuations-jail.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/09/health/hurricane-helene-iv-shortages.html
 **‘The Bachelor’ Is Shattering Its Own Fairy Tale**\
 `Recent revelations about contestants’ troubling backgrounds have punctured the franchise’s fantasy — that reality TV is a secure place to look for love.`\
 https://nytimes.com/2024/10/09/arts/television/bachelor-gerry-turner-jenn-tran-devin-strader.html
-
-**What to Know about Postpartum Psychosis**\
-`The rare condition can cause hallucinations and delusional thoughts in expecting or new mothers. But it is treatable.`\
-https://nytimes.com/2024/10/09/well/postpartum-psychosis-pregnancy-what-symptoms-treatment.html
-
-**23XI, FRM request injunction to remain racing amid NASCAR suit**\
-`The attorney for the two teams, Jeffrey Kessler, told The Athletic they were asking for “very modest relief” from the judge.`\
-https://nytimes.com/athletic/5831199/2024/10/09/23xi-racing-front-row-nascar-injunction/
-
-**Prestigious U.S.-Ireland Scholarship Paused Amid Funding Woes**\
-`More than 300 American students have benefited from the George J. Mitchell program, founded after the Good Friday Agreement, but it has been halted indefinitely.`\
-https://nytimes.com/2024/10/09/world/europe/us-ireland-mitchell-scholarship-paused.html
 
