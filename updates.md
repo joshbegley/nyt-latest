@@ -1,3 +1,7 @@
+**Bompastor's Chelsea UWCL introduction - and why Stamford Bridge was nearly empty**\
+`Chelsea overcame Real Madrid 3-2 on Tuesday night, but Stamford Bridge was sparsely attended`\
+https://nytimes.com/athletic/5828740/2024/10/09/chelsea-sonia-bompastor-stamford-bridge/
+
 **Mozambique’s 2024 National Elections: What to Know**\
 `Four candidates are vying for the presidency in a country that has faced a yearslong ISIS-backed insurgency. The election is also a test of the sway of former independence movements.`\
 https://nytimes.com/2024/10/09/world/africa/mozambique-elections-what-to-know.html
