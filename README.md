@@ -1,3 +1,7 @@
+**Spirit's Andi Sullivan out for season with torn ACL**\
+`Sullivan has been a central leader and the heart of the team for multiple seasons.`\
+https://nytimes.com/athletic/5831720/2024/10/09/andi-sullivan-spirit-acl-injury/
+
 **Maryland Senate Race Becomes a Slugfest as Both Parties Eye High Stakes**\
 `Larry Hogan, the popular former Republican governor, and Angela Alsobrooks, the Prince George’s County executive, both describe their race as critical to the future of the Senate.`\
 https://nytimes.com/2024/10/09/us/politics/maryland-senate-hogan-alsobrooks.html

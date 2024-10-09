@@ -1,3 +1,7 @@
+**Splintered Supreme Court Wrestles With Case of Oklahoma Death Row Inmate**\
+`Some justices said the court was powerless to grant relief to the inmate, Richard Glossip. Others seemed ready to order a new trial or at least an evidentiary hearing.`\
+https://nytimes.com/2024/10/09/us/supreme-court-richard-glossip-death-row-oklahoma.html
+
 **Maryland Senate Race Becomes a Slugfest as Both Parties Eye High Stakes**\
 `Larry Hogan, the popular former Republican governor, and Angela Alsobrooks, the Prince George’s County executive, both describe their race as critical to the future of the Senate.`\
 https://nytimes.com/2024/10/09/us/politics/maryland-senate-hogan-alsobrooks.html
