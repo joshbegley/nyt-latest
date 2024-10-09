@@ -1,3 +1,7 @@
+**What you need to know from the MLB playoffs: Mets win, Dodgers on the brink**\
+`Sean Manaea dazzled for the Mets, and the Padres' bullpen shoved against the Dodgers. Here's everything that happened on Tuesday. `\
+https://nytimes.com/athletic/5830267/2024/10/09/mlb-postseason-2024-what-you-need-to-know/
+
 **'I could never play for another English club - I'm a cockney now, West Ham means too much'**\
 `The Spanish winger fell in love with London so much he calls himself 'a cockney' - despite leaving he's still playing a part for West Ham`\
 https://nytimes.com/athletic/5781922/2024/10/09/pablo-fornals-west-ham-real-betis-interview/

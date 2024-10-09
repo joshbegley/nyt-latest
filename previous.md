@@ -1,3 +1,7 @@
+**What you need to know from the MLB playoffs: Mets win, Dodgers on the brink**\
+`Sean Manaea dazzled for the Mets, and the Padres' bullpen shoved against the Dodgers. Here's everything that happened on Tuesday. `\
+https://nytimes.com/athletic/5830267/2024/10/09/mlb-postseason-2024-what-you-need-to-know/
+
 **'I could never play for another English club - I'm a cockney now, West Ham means too much'**\
 `The Spanish winger fell in love with London so much he calls himself 'a cockney' - despite leaving he's still playing a part for West Ham`\
 https://nytimes.com/athletic/5781922/2024/10/09/pablo-fornals-west-ham-real-betis-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5826502/2024/10/09/manchester-city-apt-decision-ver
 **Raul is still coaching Real Madrid's 'B' team. Will their legendary striker ever make the step up?**\
 `Madrid's relationship with their record appearance maker is complicated. After five years managing the reserves, his future appears unclear`\
 https://nytimes.com/athletic/5828428/2024/10/09/raul-real-madrid-castilla-future/
-
-**Alfie Devine, My Football Journey: Relegation scraps, online abuse and Tottenham's development path**\
-`Devine has enjoyed loan spells at Port Vale in League One and Plymouth in the Championship, and is now developing in Belgium at Westerlo`\
-https://nytimes.com/athletic/5817771/2024/10/09/devine-tottenham-vale-plymouth-journey/
 
