@@ -1,3 +1,11 @@
+**Inside Biden’s ‘War’ Room: Heads of State and Heads of Hair**\
+`Bob Woodward doesn’t know which story he wants to tell in his latest presidential chronicle.`\
+https://nytimes.com/2024/10/09/books/review/war-bob-woodward.html
+
+**Here's what we learned from the memo keeping the new Mountain West together**\
+`The memorandum of understanding obtained this week helped keep UNLV and Air Force from exiting the conference in September.`\
+https://nytimes.com/athletic/5831275/2024/10/09/mountain-west-memo-realignment-unlv/
+
 **Lowetide: Making sense of the Oilers' last-minute roster decisons**\
 `Expect fluidity on the Oilers roster this season, both in shuffling of lines and pairings and in recalls.`\
 https://nytimes.com/athletic/5828138/2024/10/09/edmonton-oilers-roster-decisions-2024/
