@@ -1,3 +1,7 @@
+**U.S. Outlines Google Search Changes It’s Weighing in Antitrust Case**\
+`They include making Google’s data available to rivals and forcing it to break off parts of the company, the Justice Department said in a court filing.`\
+https://nytimes.com/2024/10/08/technology/google-search-antitrust.html
+
 **What we learned from the Blues' season-opening win over Seattle: Momentum matters**\
 `Here's a few early observations from the Blues' 3-2 come-from-behind win over the Seattle Kraken in the season opener.`\
 https://nytimes.com/athletic/5829884/2024/10/08/blues-season-opener-seattle-kyrou/

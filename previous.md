@@ -1,3 +1,7 @@
+**U.S. Outlines Google Search Changes It’s Weighing in Antitrust Case**\
+`They include making Google’s data available to rivals and forcing it to break off parts of the company, the Justice Department said in a court filing.`\
+https://nytimes.com/2024/10/08/technology/google-search-antitrust.html
+
 **What we learned from the Blues' season-opening win over Seattle: Momentum matters**\
 `Here's a few early observations from the Blues' 3-2 come-from-behind win over the Seattle Kraken in the season opener.`\
 https://nytimes.com/athletic/5829884/2024/10/08/blues-season-opener-seattle-kyrou/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/arts/music/sean-combs-bail-appeal.html
 **'Come to the New York Jets': Johnson urges Reddick to end holdout**\
 `Reddick — who lives in Camden, N.J., roughly 80 miles southwest of the Jets' training facility — is holding out for a new deal.`\
 https://nytimes.com/athletic/5829932/2024/10/08/woody-johnsons-haason-reddick-jets-holdout-comments/
-
-**Talanoa Hufanga's injury puts 49ers rookie Malik Mustapha in starting role**\
-`Mustapha and the rest of the 49ers defense are hoping to cure their missed-tackle woes against Kenneth Walker III on Thursday.`\
-https://nytimes.com/athletic/5829803/2024/10/08/talanoa-hufanga-injury-malik-mustapha-49ers/
 
