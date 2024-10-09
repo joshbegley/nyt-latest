@@ -1,3 +1,7 @@
+**Willing his team to the playoffs, one "Don't let the Tigers get hot" sign at a time**\
+`Tigers superfan Josh Tebeau and his signs have become part of the fabric of this Tigers season, and he's not done yet. `\
+https://nytimes.com/athletic/5829997/2024/10/09/detroit-fan-josh-tebeau-dont-let-tigers-get-hot/
+
 **As Anthony Edwards rises to stardom, he has a tight-knit crew always by his side**\
 `Everything is falling into place for Edwards and his group right now. He wants to chase LeBron James and Michael Jordan.`\
 https://nytimes.com/athletic/5824291/2024/10/09/anthony-edwards-timberwolves-netflix-starting-5/

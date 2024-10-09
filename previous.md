@@ -1,3 +1,7 @@
+**Willing his team to the playoffs, one "Don't let the Tigers get hot" sign at a time**\
+`Tigers superfan Josh Tebeau and his signs have become part of the fabric of this Tigers season, and he's not done yet. `\
+https://nytimes.com/athletic/5829997/2024/10/09/detroit-fan-josh-tebeau-dont-let-tigers-get-hot/
+
 **As Anthony Edwards rises to stardom, he has a tight-knit crew always by his side**\
 `Everything is falling into place for Edwards and his group right now. He wants to chase LeBron James and Michael Jordan.`\
 https://nytimes.com/athletic/5824291/2024/10/09/anthony-edwards-timberwolves-netflix-starting-5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828277/2024/10/09/drake-london-personality-falcons
 **Could Bill Belichick coach the Jets? It feels unlikely thanks to 25 years of bitterness**\
 `After a quarter-century of success in New England, it's fun to consider Belichick coaching the rival Jets. But it doesn't seem like a fit.`\
 https://nytimes.com/athletic/5829059/2024/10/09/bill-belichick-ny-jets-coaching-job/
-
-**Pop quiz! Knicks veteran Josh Hart attempts to answer questions about his career**\
-`How much does Josh Hart remember about his seven-year NBA career? Let's find out.`\
-https://nytimes.com/athletic/5827013/2024/10/09/josh-hart-knicks-pop-quiz-nba/
 
