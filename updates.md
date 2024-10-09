@@ -1,3 +1,19 @@
+**New Images Show Lebanese Border Villages Flattened in Israeli Invasion**\
+`Satellite images and videos offer an early glimpse of the devastation in southern Lebanon a week after Israeli ground troops moved in to confront Hezbollah militants.`\
+https://nytimes.com/interactive/2024/10/09/world/middleeast/lebanon-destruction.html
+
+**The U.N. says a quarter of Lebanese territory is under Israeli evacuation warnings.**\
+`By Aryn Baker`\
+https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/the-un-says-a-quarter-of-lebanese-territory-is-under-israeli-evacuation-warnings
+
+**Here are the latest developments.**\
+`By Aryn Baker, Ben Hubbard and Aaron Boxerman`\
+https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
+
+**Pelicans pushing 3-point increase as most viable path to improved offense**\
+`Coach Willie Green wants New Orleans to shoot 40 3s per game — which should open up more space for Zion Williamson.`\
+https://nytimes.com/athletic/5830576/2024/10/09/pelicans-offense-3-pointers-zion/
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/09/us/harris-trump-election/heres-the-latest-on-the-presidential-race
