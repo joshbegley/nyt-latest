@@ -1,3 +1,7 @@
+**Flash Floods in Northern Thailand Force Elephant Park Evacuation**\
+`A flash flood forced the Elephant Nature Park, the biggest elephant sanctuary in Chiang Mai, Thailand, to evacuate its 126 elephants and hundreds of other animals.`\
+https://nytimes.com/video/world/asia/100000009751477/floods-thailand-elephant-parks.html
+
 **Aren’t I Entitled to Know Why My Husband Is on a Drug for H.I.V. Risk?**\
 `The magazine’s Ethicist columnist on medical secrecy within a marriage.`\
 https://nytimes.com/2024/10/09/magazine/husband-antivirals-secrecy-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/us/umich-pro-palestinian-funding-student-clubs.ht
 **Joseph Woll’s season is off to a troubling start for the Maple Leafs**\
 `The Toronto Maple Leafs haven’t even played a game yet and already Woll is hurt.`\
 https://nytimes.com/athletic/5831328/2024/10/09/joseph-wolls-maple-leafs-injury/
-
-**Some Florida Inmates Will Not Evacuate as Milton Approaches, Officials Say**\
-`Manatee County, just south of Tampa, has ordered residents in three evacuation zones to get out. But the inmates and staff of the county jail will stay put.`\
-https://nytimes.com/2024/10/09/weather/florida-milton-evacuations-jail.html
 
