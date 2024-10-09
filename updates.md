@@ -1,3 +1,11 @@
+**A Gaza Family Separated by a Few Miles, and the War**\
+`Najia and Hammam Malaka have been stuck at opposite ends of the Gaza Strip, with their young children, for most of the yearlong conflict. The emotional toll has been devastating.`\
+https://nytimes.com/2024/10/09/world/middleeast/gaza-family-separation.html
+
+**Can a Start-Up Help Authors Get Paid by A.I. Companies?**\
+`Created by Humans, a company that aims to help writers license their works for use by A.I. companies, has struck a partnership with the Authors Guild.`\
+https://nytimes.com/2024/10/09/books/authors-guild-created-by-humans-artificial-intelligence.html
+
 **Lily Ebert, Holocaust Survivor, Author and TikTok Star, Dies at 100**\
 `She survived Auschwitz, wrote a best-selling memoir, “Lily’s Promise,” and spoke to a following of 2 million fans on TikTok.`\
 https://nytimes.com/2024/10/09/books/lily-ebert-dead.html
