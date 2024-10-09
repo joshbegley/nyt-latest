@@ -1,3 +1,7 @@
+**Kyle Busch on maintaining NASCAR success, son Brexton's racing and more: 12 Questions**\
+`Kyle Busch on longevity in the sport, dabbling in NASCAR media, what's next for his son Brexton's career and much more.`\
+https://nytimes.com/athletic/5828220/2024/10/09/kyle-busch-nascar-12-questions/
+
 **With Biden Absent, Meeting of Western Leaders on Ukraine Is Postponed**\
 `A gathering in Germany intended to show support for Ukraine was put off after President Biden canceled his trip to deal with Hurricane Milton.`\
 https://nytimes.com/2024/10/09/world/europe/us-ukraine-biden-ramstein.html
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/5830637/2024/10/09/pep-guardiola-jurgen-klopp-red-b
 https://nytimes.com/athletic/5829517/2024/10/09/nhl-goalie-salary-contract-swayman-shesterkin/
 
 **Wimbledon jettisons line judges for electronic line calling from 2025**\
-`It leaves the French Open as the only Grand Slam tournament not to use electronic line calling`\
+`It leaves the French Open as the only Grand Slam tournament using human eyes to determine whether a ball is in or out.`\
 https://nytimes.com/athletic/5830648/2024/10/09/wimbledon-line-judges-electronic-line-calling/
 
 **Chemistry Nobel Prize Recognizes Three Protein Researchers**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009751157/chemistry-nobel-prize-rec
 **Why Man City's legal case means they have incredibly strange relegation odds**\
 `Manchester City have odds of just 12/1 while Liverpool and Arsenal are 2000/1 — this is an odd season for bookmakers`\
 https://nytimes.com/athletic/5808985/2024/10/09/manchester-city-legal-case-relegation-odds/
-
-**Inside the French coaching course that could propel U.S. soccer into a new stratosphere**\
-`The Athletic went to Clairefontaine, French football’s famed training centre, to see the latest set of MLS coaches take 'the French Course'`\
-https://nytimes.com/athletic/5762494/2024/10/09/usmnt-uswnt-mls-coaching-france-clairefontaine/
 
