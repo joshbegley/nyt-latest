@@ -1,3 +1,11 @@
+**Mets' Sean Manaea delivers sparkling performance with a heavy heart**\
+`Mets manager Carlos Mendoza said: 'His mound presence, his demeanor, like there was something different about him today."`\
+https://nytimes.com/athletic/5830130/2024/10/08/mets-sean-manaea-nlds/
+
+**The Phillies look beatable. Everything they've built is teetering on the edge. Now what?**\
+`The Phillies have to win two games in three days or it's over a round earlier than it was in 2023, which ended a round earlier than 2022.`\
+https://nytimes.com/athletic/5830161/2024/10/08/phillies-playoffs-elimination-mets/
+
 **U.S. Outlines Google Search Changes It’s Weighing in Antitrust Case**\
 `They include making Google’s data available to rivals and forcing it to break off parts of the company, the Justice Department said in a court filing.`\
 https://nytimes.com/2024/10/08/technology/google-search-antitrust.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/crosswords/daily-puzzle-2024-10-09.html
 **Walz Says the Electoral College ‘Needs to Go’**\
 `Gov. Tim Walz of Minnesota suggested at fund-raisers that he backed switching to a national popular vote. His spokesman clarified that this was not the position of Kamala Harris’s campaign.`\
 https://nytimes.com/2024/10/08/us/politics/tim-walz-electoral-college.html
-
-**Seeking Release on Bail, Sean Combs Downplays Risk of Witness Tampering**\
-`In an appeal, lawyers for Mr. Combs wrote that a judge’s decision to withhold bail was not based on evidence that he had sought to interfere with the sex trafficking investigation.`\
-https://nytimes.com/2024/10/08/arts/music/sean-combs-bail-appeal.html
-
-**'Come to the New York Jets': Johnson urges Reddick to end holdout**\
-`Reddick — who lives in Camden, N.J., roughly 80 miles southwest of the Jets' training facility — is holding out for a new deal.`\
-https://nytimes.com/athletic/5829932/2024/10/08/woody-johnsons-haason-reddick-jets-holdout-comments/
 
