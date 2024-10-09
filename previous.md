@@ -1,3 +1,7 @@
+**They Fled North Carolina After Helene. Now They’re in Another Storm’s Cross Hairs.**\
+`“This dumb luck,” said one man who had just escaped the devastating post-Helene conditions in western North Carolina to stay at a friend’s house in Venice, Fla.`\
+https://nytimes.com/2024/10/09/us/hurricane-milton-helene-north-carolina.html
+
 **Colts' Michael Pittman Jr. to miss extended time with back injury**\
 `Indianapolis is still weighing whether or not Pittman will head to injured reserve, per league sources.`\
 https://nytimes.com/athletic/5832329/2024/10/09/michael-pittman-jr-out-back-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832297/2024/10/09/brian-cashman-yankees-aaron-boon
 **Injury fear affects player mental health, PFA survey finds**\
 `The majority of footballers say their mental health is impacted by fear of injury, according to latest research from the Professional Footballers&#8217; Association.`\
 https://nytimes.com/athletic/5831354/2024/10/09/pfa-survey-injury-mental-health/
-
-**Here’s What a Shocking New Number on Wildlife Declines Really Means**\
-`The results from an important ongoing assessment look grim. But the survey is often misunderstood.`\
-https://nytimes.com/2024/10/09/climate/wildlife-survey-population-declines-wwf.html
 

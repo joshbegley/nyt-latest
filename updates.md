@@ -1,3 +1,7 @@
+**They Fled North Carolina After Helene. Now They’re in Another Storm’s Cross Hairs.**\
+`“This dumb luck,” said one man who had just escaped the devastating post-Helene conditions in western North Carolina to stay at a friend’s house in Venice, Fla.`\
+https://nytimes.com/2024/10/09/us/hurricane-milton-helene-north-carolina.html
+
 **Colts' Michael Pittman Jr. to miss extended time with back injury**\
 `Indianapolis is still weighing whether or not Pittman will head to injured reserve, per league sources.`\
 https://nytimes.com/athletic/5832329/2024/10/09/michael-pittman-jr-out-back-injury/
