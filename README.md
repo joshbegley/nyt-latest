@@ -1,3 +1,15 @@
+**With Medicare, Harris Sees a Potential Last-Minute Appeal to Voters**\
+`Vice President Kamala Harris’s campaign proposal to add home health care to Medicare was a sign of the program’s growing power in American politics.`\
+https://nytimes.com/2024/10/09/us/politics/medicare-harris-home-health-care.html
+
+**Conviction in Girl’s 1975 Murder Offers Sister Some Solace**\
+`Laurel Jean Mitchell’s killing in Indiana went unsolved for decades until DNA testing revealed a match. Her sister, Sarah Knisley, never stopped looking for answers.`\
+https://nytimes.com/2024/10/09/us/laurel-mitchell-verdict.html
+
+**The Contests, Clubs and Big Promises of Trump’s Fund-Raising Emails**\
+`A review of some 7,400 emails sent by the Trump campaign turned up dozens of sweepstakes, advisory councils and other opportunities of access to Mr. Trump — and very little evidence anyone has gotten it.`\
+https://nytimes.com/interactive/2024/10/10/us/politics/trump-campaign-donations-merch.html
+
 **Thursday Briefing: Florida Braces for Hurricane Milton**\
 `Plus, literature’s greatest prize.`\
 https://nytimes.com/2024/10/09/briefing/hurricane-milton-harris-lebanon.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/09/business/ratan-tata-dead.html
 **Stones 'speechless' after being named England captain**\
 `John Stones will lead England out for the first time at Wembley on Thursday, as he captains England in the absence of Harry Kane.`\
 https://nytimes.com/athletic/5831944/2024/10/09/john-stones-england-captain-greece/
-
-**In an Era of Mistrust and Upheaval, Democracy Seeks a Path Forward**\
-`The Athens Democracy Forum last week explored the world’s schisms in the face of threats from technology and shifts in the world order.`\
-https://nytimes.com/2024/10/09/world/athens-democracy-forum-analysis.html
-
-**Migrant Shelter on Randall’s Island Will Close in February, Adams Says**\
-`The shelter complex, which was built atop recreational fields, will be gradually emptied and the fields restored for public use, the mayor’s office said.`\
-https://nytimes.com/2024/10/09/nyregion/randalls-island-nyc-migrant-shelter-closing.html
-
-**Tom Brady's ownership bid for Raiders to be discussed at owners meeting next week**\
-`If Brady's bid proceeds to a vote, he'll need the approval of 24 of the NFL's 32 owners.`\
-https://nytimes.com/athletic/5831941/2024/10/09/tom-brady-raiders-bid-owners-meeting/
 

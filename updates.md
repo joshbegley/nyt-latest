@@ -1,3 +1,15 @@
+**Thursday Briefing: Florida Braces for Hurricane Milton**\
+`Plus, literature’s greatest prize.`\
+https://nytimes.com/2024/10/09/briefing/hurricane-milton-harris-lebanon.html
+
+**‘Joy’ Is Working for Harris, but Can It Close the Deal?**\
+`The vice president needs to speak with voters directly.`\
+https://nytimes.com/2024/10/09/opinion/harriss-trump-joy-polls.html
+
+**MLB, broadcaster near clarity on team fates**\
+`The broadcast futures of at least eight clubs are still uncertain, but that could be changing soon. `\
+https://nytimes.com/athletic/5832030/2024/10/09/mlb-diamond-team-broadcast-futures/
+
 **Nearly a Million Civilians Flee War in Lebanon, U.N. Says**\
 `A week into the ground war between Israel and Hezbollah, shelters in Lebanon are filling up beyond capacity, humanitarian officials warned.`\
 https://nytimes.com/2024/10/09/world/middleeast/israel-hezbollah-lebanon.html
