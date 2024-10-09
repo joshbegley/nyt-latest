@@ -1,3 +1,7 @@
+**Flash Floods in Northern Thailand Force Elephant Park Evacuation**\
+`A flash flood forced the Elephant Nature Park, the biggest elephant sanctuary in Chiang Mai, Thailand, to evacuate its 126 elephants and hundreds of other animals.`\
+https://nytimes.com/video/world/asia/100000009751477/floods-thailand-elephant-parks.html
+
 **Aren’t I Entitled to Know Why My Husband Is on a Drug for H.I.V. Risk?**\
 `The magazine’s Ethicist columnist on medical secrecy within a marriage.`\
 https://nytimes.com/2024/10/09/magazine/husband-antivirals-secrecy-ethics.html
