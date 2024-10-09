@@ -1,3 +1,7 @@
+**Mets take advantage of raucous atmosphere to move within one win of NLCS**\
+`Pete Alonso hit his third homer in four games, all of them the other way: “He’s a different kind of strong.”`\
+https://nytimes.com/athletic/5830118/2024/10/08/mets-nlds-pete-alonso-sean-manaea/
+
 **Courtney Williams leads Lynx past Sun to reach WNBA Finals**\
 `It’s Minnesota's first trip to the finals since 2017 when the Lynx won their fourth WNBA title in seven seasons.`\
 https://nytimes.com/athletic/5830134/2024/10/08/lynx-sun-game-5-result-score/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829803/2024/10/08/talanoa-hufanga-injury-malik-mus
 **Harris Cracks a Beer With Colbert and Talks Foreign Policy and Trump**\
 `In a chat with Stephen Colbert, Kamala Harris suggested the Gaza war was unlikely to end soon, even as she urged optimism. And she condemned Donald Trump over reports that he sent rare Covid test machines to Russia.`\
 https://nytimes.com/2024/10/08/us/politics/kamala-harris-colbert-report.html
-
-**Afghan Man Arrested on Charges of Plotting Election Day Attack**\
-`It is not clear where the man intended to stage the attack, though the criminal complaint said he sought to inflict mass casualties on behalf of the Islamic State.`\
-https://nytimes.com/2024/10/08/us/politics/election-day-attack-afghanistan-isis.html
 
