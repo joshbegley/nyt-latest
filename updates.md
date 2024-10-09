@@ -1,3 +1,7 @@
+**Here’s Why Forecasters Still Don’t Know Where Exactly Milton Will Hit**\
+`The National Hurricane Center urged Florida resident not to fixate on the exact location because the dangers will be widespread.`\
+https://nytimes.com/2024/10/09/weather/hurricane-milton-landfall-florida.html
+
 **George Baldock found dead, aged 31**\
 `Former Sheffield United defender George Baldock has been found dead at his home in Athens, Greece, at the age of 31.`\
 https://nytimes.com/athletic/5832089/2024/10/09/george-baldock-dies-sheffield-united/
