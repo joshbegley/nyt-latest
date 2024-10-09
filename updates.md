@@ -1,3 +1,15 @@
+**With Medicare, Harris Sees a Potential Last-Minute Appeal to Voters**\
+`Kamala Harris’s campaign proposal to add home health care to Medicare was a sign of the program’s growing power in American politics.`\
+https://nytimes.com/2024/10/09/us/politics/medicare-harris-home-health-care.html
+
+**Conviction in Girl’s 1975 Murder Offers Sister Some Solace**\
+`Laurel Jean Mitchell’s killing in Indiana went unsolved for decades until DNA testing revealed a match. Her sister, Sarah Knisley, never stopped looking for answers.`\
+https://nytimes.com/2024/10/09/us/laurel-mitchell-verdict.html
+
+**The Contests, Clubs and Big Promises of Trump’s Fund-Raising Emails**\
+`A review of some 7,400 emails sent by the Trump campaign turned up dozens of sweepstakes, advisory councils and other opportunities of access to Mr. Trump — and very little evidence anyone has gotten it.`\
+https://nytimes.com/interactive/2024/10/10/us/politics/trump-campaign-donations-merch.html
+
 **Thursday Briefing: Florida Braces for Hurricane Milton**\
 `Plus, literature’s greatest prize.`\
 https://nytimes.com/2024/10/09/briefing/hurricane-milton-harris-lebanon.html
