@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5828740/2024/10/09/chelsea-sonia-bompastor-stamford
 https://nytimes.com/2024/10/09/arts/television/kimmel-putin-is-trumps-kgbf.html
 
 **Blackhawks observations: Chicago finally shows life in season-opening loss to Utah**\
-`Chicago showed more fight, structure and offense as the game went along and arguably outplayed Utah in the final half of the game.`\
+`Chicago showed more fight, structure and offense as the game went along and arguably outplayed Utah in the final half.`\
 https://nytimes.com/athletic/5830214/2024/10/09/blackhawks-season-opening-loss-to-utah/
 
 **As I Am: L.G.B.T.Q. in Japan**\
