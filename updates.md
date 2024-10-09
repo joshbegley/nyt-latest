@@ -1,3 +1,11 @@
+**Milton will bring destruction across Florida, officials warn. Here’s the latest.**\
+`By Yan Zhuang`\
+https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/milton-will-bring-destruction-across-florida-officials-warn-heres-the-latest
+
+**Live Updates: As Milton Barrels Toward Florida, Time Is Running Out for Evacuations**\
+`The Category 5 storm is expected to strike the Gulf Coast late Wednesday, and officials warn of devastation across the state. Millions have been urged to leave the coasts.`\
+https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida
+
 **Evgeni Malkin is aging, changing and not done yet**\
 `Malkin, who has been looking to Alex Ovechkin for ways to stay competitive, says he won't retire until the Penguins make the playoffs again.`\
 https://nytimes.com/athletic/5826029/2024/10/09/penguins-evgeni-malkin-nhl-retirement/
