@@ -1,3 +1,11 @@
+**Afghan Man Arrested on Charges of Plotting Election Day Attack**\
+`It is not clear where the man intended to stage the attack, though the criminal complaint said he sought to inflict mass casualties on behalf of the Islamic State.`\
+https://nytimes.com/2024/10/08/us/politics/election-day-attack-afghanistan-isis.html
+
+**A New Bitcoin Documentary Reopens the Search for Satoshi Nakamoto**\
+`The identity of the pseudonymous Bitcoin creator has eluded sleuths for years. But does finding the real Mr. Nakamoto really matter?`\
+https://nytimes.com/2024/10/08/technology/money-electric-bitcoin-satoshi-nakamoto.html
+
 **Audience Report: Gongs and Goodbyes as the Rubin Museum Shuts Its Doors**\
 `After 20 years, a beloved home for Himalayan art enters the void.`\
 https://nytimes.com/card/2024/10/09/arts/design/rubin-museum-closed
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5829681/2024/10/08/christian-wilkins-foot-injury-su
 **Tracking Hurricane Milton’s Storm Surge Risk Across Florida**\
 `Updates with maps of the storm’s path, highlighting potential storm surge flooding across the coastline.`\
 https://nytimes.com/interactive/2024/10/08/weather/hurricane-milton-storm-surge.html
-
-**Jenna Fischer, ‘The Office’ Star, Reveals Breast Cancer Diagnosis**\
-`“I am now cancer free,’’ the actress announced on Instagram, noting that she was diagnosed with Stage 1 cancer in December and that early detection had played a key role in her successful treatment.`\
-https://nytimes.com/2024/10/08/arts/television/jenna-fischer-the-office-breast-cancer.html
-
-**We Should Want Israel to Win**\
-`Even supporters of Palestinian statehood should want Hamas and Hezbollah to lose.`\
-https://nytimes.com/2024/10/08/opinion/israel-lebanon-iran-gaza.html
 
