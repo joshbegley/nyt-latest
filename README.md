@@ -1,3 +1,7 @@
+**Inside Donald Trump’s Rallies**\
+`We explain the nine main things that happen at each rally.`\
+https://nytimes.com/2024/10/09/briefing/inside-donald-trumps-rallies.html
+
 **Uncapped Jones and Livramento called up to England squad**\
 `The uncapped Curtis Jones and Tino Livramento have been called up to the England senior squad ahead of October&#8217;s Nations League fixtures against Greece and Finland.`\
 https://nytimes.com/athletic/5830624/2024/10/09/curtis-jones-tino-livramento-england/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828227/2024/10/09/nfl-draft-order-2025-projections
 **Easton Cowan and others like him deserve to grow their games somewhere other than junior**\
 `Easton Cowan has nothing left to prove in junior hockey and should be allowed to spread his wings in a league with men.`\
 https://nytimes.com/athletic/5826673/2024/10/09/easton-cowan-maple-leafs-london-knights/
-
-**Bultman: Red Wings have to do it the hard way. And that's OK**\
-`The Red Wings came up just short of the playoffs in 2024. That's the best thing they have going for them as a new season begins.`\
-https://nytimes.com/athletic/5818914/2024/10/09/red-wings-playoffs-route-nhl/
 
