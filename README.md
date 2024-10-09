@@ -1,5 +1,5 @@
 **The Minnesota Lynx return to the WNBA Finals. Can they play up to their legacy?**\
-`MINNEAPOLIS — As Lindsay Whalen&#8217;s face appeared on the Jumbotron in Target Center on Tuesday night to a raucous reception, the Minnesota Lynx PA announcer took some liberties with her introduction.`\
+`"We're happy that we're going to the finals," Cheryl Reeve said. "But we're not going to be just happy to be there."`\
 https://nytimes.com/athletic/5830299/2024/10/09/minnesota-lynx-wnba-finals-legacy/
 
 **Madueke on Palmer partnership: 'He's got a killer pass, I'm very dynamic'**\
