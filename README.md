@@ -1,3 +1,7 @@
+**Tigers ride 'pitching chaos' to ALDS edge**\
+`Pitching changes in the second inning, pinch hitters in the second and third — it's not a standard series, but it's going well for Detroit.`\
+https://nytimes.com/athletic/5832165/2024/10/09/tigers-guardians-score-game-3-mlb-playoffs-takeaways/
+
 **Former Sheffield United defender Baldock found dead, aged 31**\
 `Former Sheffield United defender George Baldock has been found dead at his home in Athens, Greece, at the age of 31.`\
 https://nytimes.com/athletic/5832089/2024/10/09/george-baldock-dies-sheffield-united/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/us/politics/trump-madison-square-garden-msg.html
 **Brett Favre, a Personal Injury Lawyer and a 30-Second Pitch for Trump**\
 `Needs a summary here.`\
 https://nytimes.com/2024/10/09/us/politics/brett-favre-donald-trump-ad.html
-
-**With Medicare, Harris Sees a Potential Last-Minute Appeal to Voters**\
-`Kamala Harris’s campaign proposal to add home health care to Medicare was a sign of the program’s growing power in American politics.`\
-https://nytimes.com/2024/10/09/us/politics/medicare-harris-home-health-care.html
 
