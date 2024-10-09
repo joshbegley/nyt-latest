@@ -1,3 +1,7 @@
+**‘Daytime Revolution’ Review: Coffee and Counterculture**\
+`John Lennon and Yoko Ono invade middle-American living rooms in this cute but shallow documentary.`\
+https://nytimes.com/2024/10/09/movies/daytime-revolution-review.html
+
 **Inside Donald Trump’s Rallies**\
 `We explain the nine main things that happen at each rally.`\
 https://nytimes.com/2024/10/09/briefing/inside-donald-trumps-rallies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829066/2024/10/09/philadelphia-flyers-john-tortore
 **NFL Draft order 2025 projections: Pressing needs for teams stumbling toward top 5 picks**\
 `How did Week 5 shake up the potential 2025 draft order? Check out the latest projected top 10 for April's draft.`\
 https://nytimes.com/athletic/5828227/2024/10/09/nfl-draft-order-2025-projections-week-5/
-
-**Easton Cowan and others like him deserve to grow their games somewhere other than junior**\
-`Easton Cowan has nothing left to prove in junior hockey and should be allowed to spread his wings in a league with men.`\
-https://nytimes.com/athletic/5826673/2024/10/09/easton-cowan-maple-leafs-london-knights/
 
