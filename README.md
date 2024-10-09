@@ -1,3 +1,11 @@
+**Milton will bring destruction across Florida, officials warn. Here’s the latest.**\
+`By Yan Zhuang`\
+https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/milton-will-bring-destruction-across-florida-officials-warn-heres-the-latest
+
+**Live Updates: As Milton Barrels Toward Florida, Time Is Running Out for Evacuations**\
+`The Category 5 storm is expected to strike the Gulf Coast late Wednesday, and officials warn of devastation across the state. Millions have been urged to leave the coasts.`\
+https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida
+
 **Evgeni Malkin is aging, changing and not done yet**\
 `Malkin, who has been looking to Alex Ovechkin for ways to stay competitive, says he won't retire until the Penguins make the playoffs again.`\
 https://nytimes.com/athletic/5826029/2024/10/09/penguins-evgeni-malkin-nhl-retirement/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5829050/2024/10/09/fantasy-football-trade-advice-bu
 **NFL head coaches on hot seat may include Browns' Kevin Stefanski, Eagles' Nick Sirianni**\
 `The Jets made Robert Saleh the first head coach firing of the 2024 NFL season. Six others may need strong showings to keep their jobs.`\
 https://nytimes.com/athletic/5829655/2024/10/09/nfl-coaches-hot-seat-stefanski-sirianni/
-
-**How to Say No to Our A.I. Overlords**\
-`Google, Microsoft and Meta are shoving A.I. chatbots into our faces. Sometimes, there’s a way out.`\
-https://nytimes.com/2024/10/09/technology/personaltech/turn-off-ai-overviews-google-meta.html
-
-**Republicans Hate Tech’s Influence on Politics. Unless It Comes From Elon Musk.**\
-`The G.O.P.’s deep hypocrisy about X’s owner.`\
-https://nytimes.com/live/2024/10/08/opinion/thepoint/musk-trump-influence
 
