@@ -1,3 +1,23 @@
+**She Had Thoughts of Harming Her Baby. To Treat Her, Doctors Kept Them Together.**\
+`In specialized wards called mother-and-baby units, doctors treat postpartum psychosis while allowing women to keep caring for their children.`\
+https://nytimes.com/2024/10/09/well/postpartum-psychosis-health-pregnancy-women.html
+
+**U.S. Races to Replenish Storm-Battered Supplies of IV Fluids at Hospitals**\
+`Officials are looking to foreign sources to ease shortages of IV bags caused by Hurricane Helene as hospitals begin rationing fluids to protect the sickest patients.`\
+https://nytimes.com/2024/10/09/health/hurricane-helene-iv-shortages.html
+
+**‘The Bachelor’ Is Shattering Its Own Fairy Tale**\
+`Recent revelations about contestants’ troubling backgrounds have punctured the franchise’s fantasy — that reality TV is a secure place to look for love.`\
+https://nytimes.com/2024/10/09/arts/television/bachelor-gerry-turner-jenn-tran-devin-strader.html
+
+**What to Know about Postpartum Psychosis**\
+`The rare condition can cause hallucinations and delusional thoughts in expecting or new mothers. But it is treatable.`\
+https://nytimes.com/2024/10/09/well/postpartum-psychosis-pregnancy-what-symptoms-treatment.html
+
+**23XI, FRM request injunction to remain racing amid NASCAR suit**\
+`The attorney for the two teams, Jeffrey Kessler, told The Athletic they were asking for “very modest relief” from the judge.`\
+https://nytimes.com/athletic/5831199/2024/10/09/23xi-racing-front-row-nascar-injunction/
+
 **Prestigious U.S.-Ireland Scholarship Paused Amid Funding Woes**\
 `More than 300 American students have benefited from the George J. Mitchell program, founded after the Good Friday Agreement, but it has been halted indefinitely.`\
 https://nytimes.com/2024/10/09/world/europe/us-ireland-mitchell-scholarship-paused.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5829329/2024/10/09/new-york-jets-fired-robert-saleh
 **Silent Hill 2 Was Clumsy, Brutal and Brilliant**\
 `A remake of the 2001 survival horror game sands down the unwieldy combat that made it a powerful, disturbing classic.`\
 https://nytimes.com/2024/10/09/arts/silent-hill-2.html
-
-**LeBrun: Panthers continue to lock up core with Carter Verhaeghe extension — and another Florida discount**\
-`GM Bill Zito on Verhaeghe's new 8-year, $56 million extension: "He kind of embodies what we’ve started to build here."`\
-https://nytimes.com/athletic/5831129/2024/10/09/carter-verhaeghe-extension-panthers-lebrun/
-
-**Who Will Lead Britain’s Conservatives? The Finalists Are a Surprise.**\
-`After an epic election defeat in July, opposition lawmakers have presented their party’s paying members with an unexpected choice of two candidates from the right.`\
-https://nytimes.com/2024/10/09/world/europe/uk-conservative-leadership-contest.html
-
-**Scoop City: Saleh failed, but Jets share blame**\
-`Robert Saleh was hired to be a CEO-type leader in New York. It's why he had to go, despite the Jets defensive prowess.`\
-https://nytimes.com/athletic/5831204/2024/10/09/scoop-city-how-saleh-failed-the-jets/
-
-**Tiny Love Stories: ‘Filled With Warm, Sugary Feelings’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/10/09/style/tiny-modern-love-stories-filled-with-warm-sugary-feelings.html
-
-**Does Your School Use Suicide Prevention Software? We Want to Hear From You.**\
-`Concerned about anxiety and depression among students, some schools are monitoring what children type into their devices to detect suicidal thinking or self-harm.`\
-https://nytimes.com/2024/10/09/health/suicide-prevention-software-monitoring.html
 
