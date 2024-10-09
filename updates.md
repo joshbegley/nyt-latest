@@ -1,3 +1,7 @@
+**The Minnesota Lynx return to the WNBA Finals. Can they play up to their legacy?**\
+`MINNEAPOLIS — As Lindsay Whalen&#8217;s face appeared on the Jumbotron in Target Center on Tuesday night to a raucous reception, the Minnesota Lynx PA announcer took some liberties with her introduction.`\
+https://nytimes.com/athletic/5830299/2024/10/09/minnesota-lynx-wnba-finals-legacy/
+
 **Madueke on Palmer partnership: 'He's got a killer pass, I'm very dynamic'**\
 `Noni Madueke believes “the sky is the limit” for his close friend and Chelsea team-mate Cole Palmer as they prepare to play for the England senior side together for the first time.`\
 https://nytimes.com/athletic/5829128/2024/10/09/noni-madueke-cole-palmer-england/
