@@ -1,3 +1,11 @@
+**Slotkin and Rogers Attack Each Other’s Records in Michigan Senate Debate**\
+`Representative Elissa Slotkin, a Democrat, and former Representative Mike Rogers, a Republican, had bitter exchanges over abortion, war and China.`\
+https://nytimes.com/2024/10/08/us/slotkin-rogers-michigan-debate.html
+
+**The 9 Elements of a Trump Rally**\
+`The themes Donald Trump returns to again and again at his rallies`\
+https://nytimes.com/interactive/2024/10/08/us/politics/trump-rally.html
+
 **Episode Interruptions**\
 `Jeffrey Lease is struck by inspiration.`\
 https://nytimes.com/2024/10/08/crosswords/daily-puzzle-2024-10-09.html
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/5829932/2024/10/08/woody-johnsons-haason-reddick-je
 `Mustapha and the rest of the 49ers defense are hoping to cure their missed-tackle woes against Kenneth Walker III on Thursday.`\
 https://nytimes.com/athletic/5829803/2024/10/08/talanoa-hufanga-injury-malik-mustapha-49ers/
 
-**Harris Cracks a Beer With Colbert and Talks Gaza, Trump and Putin**\
+**Harris Cracks a Beer With Colbert and Talks Foreign Policy and Trump**\
 `In a chat with Stephen Colbert, Kamala Harris suggested the Gaza war was unlikely to end soon, even as she urged optimism. And she condemned Donald Trump over reports that he sent rare Covid test machines to Russia.`\
 https://nytimes.com/2024/10/08/us/politics/kamala-harris-colbert-report.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/08/us/politics/election-day-attack-afghanistan-isis.
 **A New Bitcoin Documentary Reopens the Search for Satoshi Nakamoto**\
 `The identity of the pseudonymous Bitcoin creator has eluded sleuths for years. But does finding the real Mr. Nakamoto really matter?`\
 https://nytimes.com/2024/10/08/technology/money-electric-bitcoin-satoshi-nakamoto.html
-
-**Audience Report: Gongs and Goodbyes as the Rubin Museum Shuts Its Doors**\
-`After 20 years, a beloved home for Himalayan art enters the void.`\
-https://nytimes.com/card/2024/10/09/arts/design/rubin-museum-closed
-
-**In High Mountain Alaska, a Glacier’s Deep Secret Is Revealed at Last**\
-`A famed explorer was sure the ice hid something profound. Ninety years later, scientists have put forth the strongest evidence yet that he was right.`\
-https://nytimes.com/2024/10/08/climate/alaska-great-gorge-deepest.html
 
