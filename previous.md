@@ -1,3 +1,7 @@
+**Courtney Williams leads Lynx past Sun to reach WNBA Finals**\
+`It’s Minnesota's first trip to the finals since 2017 when the Lynx won their fourth WNBA title in seven seasons.`\
+https://nytimes.com/athletic/5830134/2024/10/08/lynx-sun-game-5-result-score/
+
 **Slotkin and Rogers Attack Each Other’s Records in Michigan Senate Debate**\
 `Representative Elissa Slotkin, a Democrat, and former Representative Mike Rogers, a Republican, had bitter exchanges over abortion, war and China.`\
 https://nytimes.com/2024/10/08/us/slotkin-rogers-michigan-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/us/politics/kamala-harris-colbert-report.html
 **Afghan Man Arrested on Charges of Plotting Election Day Attack**\
 `It is not clear where the man intended to stage the attack, though the criminal complaint said he sought to inflict mass casualties on behalf of the Islamic State.`\
 https://nytimes.com/2024/10/08/us/politics/election-day-attack-afghanistan-isis.html
-
-**A New Bitcoin Documentary Reopens the Search for Satoshi Nakamoto**\
-`The identity of the pseudonymous Bitcoin creator has eluded sleuths for years. But does finding the real Mr. Nakamoto really matter?`\
-https://nytimes.com/2024/10/08/technology/money-electric-bitcoin-satoshi-nakamoto.html
 
