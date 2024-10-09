@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5831275/2024/10/09/mountain-west-memo-realignment-u
 https://nytimes.com/athletic/5828138/2024/10/09/edmonton-oilers-roster-decisions-2024/
 
 **What’s in Our Queue? Brandy Clarke and More**\
-`I’m a national correspondent covering the American South. Here are five things I’ve been listening to, reading and watching.`\
+`I’m a national correspondent covering the American South. Here are five things I’ve been listening to, reading and watching. `\
 https://nytimes.com/interactive/2024/10/09/arts/editors-recommendations-brandyclarke.html
 
 **‘This Is Not the Eurovision.’ Orban Gets a Hostile Serenade**\
