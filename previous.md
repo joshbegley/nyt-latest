@@ -1,3 +1,7 @@
+**Blackhawks observations: Chicago finally shows life in season-opening loss to Utah**\
+`Chicago showed more fight, structure and offense as the game went along and arguably outplayed Utah in the final half of the game.`\
+https://nytimes.com/athletic/5830214/2024/10/09/blackhawks-season-opening-loss-to-utah/
+
 **As I Am: L.G.B.T.Q. in Japan**\
 `‘We don’t want to send the message to the younger generation that we’re people who have to hide ourselves.’`\
 https://nytimes.com/2024/10/09/world/asia/lgbtq-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828113/2024/10/09/wolves-oneil-tactical-tweaks-to-
 **Does Enzo Fernandez fit into this Chelsea team?**\
 `Enzo Fernandez divides opinion like nobody else in the Chelsea squad on the pitch`\
 https://nytimes.com/athletic/5828173/2024/10/09/enzo-fernandez-chelsea-enzo-maresca-analysis/
-
-**Callum Gribbin interview: 'I needed the lesson of being released by Manchester United'**\
-`Gribbin was tipped for greatness but is now in England's seventh tier. This is his journey - and why he still believes he can reach the top`\
-https://nytimes.com/athletic/5820105/2024/10/09/callum-gribbin-man-united-intervew/
 
