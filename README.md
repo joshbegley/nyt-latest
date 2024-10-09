@@ -1,3 +1,19 @@
+**Biden and Netanyahu Speak for the First Time in Months as Mideast Crisis Deepens**\
+`The conversation carried the weight of the worst relationship between the United States and Israel in years.`\
+https://nytimes.com/2024/10/09/us/politics/biden-netanyahu-israel.html
+
+**Bears in London: GM Ryan Poles impressed with Caleb Williams' progress**\
+`Poles and Bears president and CEO Kevin Warren addressed the media Wednesday in England, where the Bears are preparing to play the Jaguars.`\
+https://nytimes.com/athletic/5831267/2024/10/09/bears-london-ryan-poles-caleb-williams/
+
+**Trump Repeatedly Referred to Maine’s Female Governor as a Man**\
+`On a call with supporters, the former president incorrectly used masculine pronouns six times while referring to Janet Mills.`\
+https://nytimes.com/2024/10/09/us/politics/trump-maine-governor-gender.html
+
+**Kraken sign Daccord to 5-year extension: What it means**\
+`The 28-year-old goalie had a breakout year last season, his first as a full-time NHL goalie.`\
+https://nytimes.com/athletic/5831303/2024/10/09/seattle-kraken-joey-daccord-extension-salary/
+
 **Where will Drake Maye rank? From Plunkett to Zappe, here's how Patriots' QB starters fared**\
 `A quarterback’s first start is always big news. Sometimes, the debuts are launching pads to long, storied careers. Other times, they aren't.`\
 https://nytimes.com/athletic/5830329/2024/10/09/patriots-drake-maye-starting-quarterbacks/
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/asia/100000009751477/floods-thailand-elephant-pa
 **Aren’t I Entitled to Know Why My Husband Is on a Drug for H.I.V. Risk?**\
 `The magazine’s Ethicist columnist on medical secrecy within a marriage.`\
 https://nytimes.com/2024/10/09/magazine/husband-antivirals-secrecy-ethics.html
-
-**Shari Redstone Says CBS News ‘Made a Mistake’ in Rebuking Anchor**\
-`CBS News executives had said that Tony Dokoupil’s interview with the writer Ta-Nehisi Coates fell short of editorial standards.`\
-https://nytimes.com/2024/10/09/business/media/ta-nehisi-coates-cbs-interview-shari-redstone.html
-
-**Inter Miami's Gomez named No 1 in MLS's 22 Under-22 list**\
-`Inter Miami midfielder Diego Gomez has been named No 1 in Major League Soccer&#8217;s (MLS) 22 Under-22 series.`\
-https://nytimes.com/athletic/5830870/2024/10/09/diego-gomez-inter-miami-mls-under-22/
-
-**NFL places Patriots' Jabrill Peppers on commissioner exempt list**\
-`As long as Peppers is on the commissioners' list, he is not allowed to practice with the team or attend games, but he will still be paid.`\
-https://nytimes.com/athletic/5831325/2024/10/09/nfl-patriots-jabrill-peppers-commissioners-list/
-
-**Bears CEO says team not currently exploring private equity as funding source for new stadium**\
-`NFL owners voted to allow private equity firms to buy limited stakes in teams, up to 10 per cent, in August`\
-https://nytimes.com/athletic/5831320/2024/10/09/chicago-bears-equity-stadium-warren/
 
