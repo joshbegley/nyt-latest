@@ -1,3 +1,7 @@
+**Former Sheffield United defender Baldock found dead, aged 31**\
+`Former Sheffield United defender George Baldock has been found dead at his home in Athens, Greece, at the age of 31.`\
+https://nytimes.com/athletic/5832089/2024/10/09/george-baldock-dies-sheffield-united/
+
 **Here’s why forecasters still don’t know where exactly Milton will hit.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/hurricane-milton-landfall-florida
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/us/politics/brett-favre-donald-trump-ad.html
 **With Medicare, Harris Sees a Potential Last-Minute Appeal to Voters**\
 `Kamala Harris’s campaign proposal to add home health care to Medicare was a sign of the program’s growing power in American politics.`\
 https://nytimes.com/2024/10/09/us/politics/medicare-harris-home-health-care.html
-
-**Conviction in Girl’s 1975 Murder Offers Sister Some Solace**\
-`Laurel Jean Mitchell’s killing in Indiana went unsolved for decades until DNA testing revealed a match. Her sister, Sarah Knisley, never stopped looking for answers.`\
-https://nytimes.com/2024/10/09/us/laurel-mitchell-verdict.html
 
