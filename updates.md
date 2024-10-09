@@ -1,3 +1,11 @@
+**Here’s why forecasters still don’t know where exactly Milton will hit.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/hurricane-milton-landfall-florida
+
+**Hurricane Milton Began Thrashing Florida’s West Coast**\
+`Also, Kamala Harris has already raised more than $1 billion. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/10/09/briefing/hurricane-milton-florida-harris-billion-fund-raising.html
+
 **Alabama notebook: Avoiding a Vanderbilt hangover, injury updates and more**\
 `Alabama coach Kalen DeBoer has historically thrived in weeks after losses. Plus, injuries are thinning the Tide's receiver depth chart.`\
 https://nytimes.com/athletic/5832023/2024/10/09/alabama-crimson-tide-south-carolina-vanderbilt/
