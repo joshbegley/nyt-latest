@@ -1,3 +1,7 @@
+**Hurricanes and War Force Harris to Share the Spotlight With Biden**\
+`Vice President Kamala Harris has become the Democratic Party’s main focus of attention. But events at home and abroad are pushing President Biden back to the forefront.`\
+https://nytimes.com/2024/10/09/us/politics/harris-biden-trump-hurricanes-war.html
+
 **Biden and Netanyahu Speak for the First Time in Months as Mideast Crisis Deepens**\
 `The conversation carried the weight of the worst relationship between the United States and Israel in years.`\
 https://nytimes.com/2024/10/09/us/politics/biden-netanyahu-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/us/politics/medical-freedom-public-health-rfk-tru
 **Flash Floods in Northern Thailand Force Elephant Park Evacuation**\
 `A flash flood forced the Elephant Nature Park, the biggest elephant sanctuary in Chiang Mai, Thailand, to evacuate its 126 elephants and hundreds of other animals.`\
 https://nytimes.com/video/world/asia/100000009751477/floods-thailand-elephant-parks.html
-
-**Aren’t I Entitled to Know Why My Husband Is on a Drug for H.I.V. Risk?**\
-`The magazine’s Ethicist columnist on medical secrecy within a marriage.`\
-https://nytimes.com/2024/10/09/magazine/husband-antivirals-secrecy-ethics.html
 
