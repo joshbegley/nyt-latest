@@ -1,3 +1,11 @@
+**Nobel Prize in Chemistry Is Awarded to 3 Scientists for Work With Proteins**\
+`The award is the third 2024 sciences Nobel to be announced this week.`\
+https://nytimes.com/2024/10/09/science/nobel-prize-chemistry.html
+
+**Iranian Official Heads to Saudi Arabia as Israel Postpones U.S. Meeting**\
+`The Biden administration is dealing with complex dynamics in the Middle East as it tries to keep conflicts involving Israel from escalating further.`\
+https://nytimes.com/2024/10/09/world/middleeast/iran-saudi-arabia-israel.html
+
 **No Lie: George Washington Is Funny Now**\
 `The first president is usually at the margins of popular culture. As a recurring character on “Saturday Night Live” and a trend on TikTok, is he finally having a moment?`\
 https://nytimes.com/2024/10/09/arts/television/snl-nate-bargatze-washingtons-dream.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5829100/2024/10/09/tigers-jake-rogers-leadership/
 **Willing his team to the playoffs, one "Don't let the Tigers get hot" sign at a time**\
 `Tigers superfan Josh Tebeau and his signs have become part of the fabric of this Tigers season, and he's not done yet. `\
 https://nytimes.com/athletic/5829997/2024/10/09/detroit-fan-josh-tebeau-dont-let-tigers-get-hot/
-
-**As Anthony Edwards rises to stardom, he has a tight-knit crew always by his side**\
-`Everything is falling into place for Edwards and his group right now. He wants to chase LeBron James and Michael Jordan.`\
-https://nytimes.com/athletic/5824291/2024/10/09/anthony-edwards-timberwolves-netflix-starting-5/
-
-**Fantasy football trade advice: Buy Jalen Hurts, sell Chuba Hubbard and other insights**\
-`Dane Martinez provides fantasy football trade advice for fantasy managers looking toward the playoffs, with insights on Jalen Hurts. `\
-https://nytimes.com/athletic/5829050/2024/10/09/fantasy-football-trade-advice-buy-jalen-hurts/
 
