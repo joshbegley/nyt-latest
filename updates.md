@@ -1,3 +1,7 @@
+**What Devin White's release says about the Eagles linebackers room**\
+`Devin White had high hopes for his time with the Eagles.`\
+https://nytimes.com/athletic/5829478/2024/10/09/philadelphia-eagles-linebackers-devin-white-release/
+
 **Klopp's move to Red Bull seems surprising – but it shouldn't be**\
 `A man who was tipped to be a company CEO should thrive at Red Bull – but it's not without controversy`\
 https://nytimes.com/athletic/5830802/2024/10/09/red-bull-jurgen-klopp-soccer/
