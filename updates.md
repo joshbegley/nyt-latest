@@ -1,3 +1,11 @@
+**A Brioche That Will Make a Believer Out of You**\
+`You don’t have to dedicate your life to the ancient practice of baking to yield a stunning loaf. You may just find you want to.`\
+https://nytimes.com/2024/10/09/magazine/best-brioche-recipe.html
+
+**Raiders name Aidan O'Connell starting quarterback for Week 6**\
+`The second-year quarterback will replace Gardner Minshew under center for Las Vegas.`\
+https://nytimes.com/athletic/5826104/2024/10/09/raiders-aidan-oconnell-starting-quarterback/
+
 **Eric Adams Was Never the Future of the Democratic Party**\
 `The real lesson of Adams’s mayoralty has nothing to do with corruption.`\
 https://nytimes.com/2024/10/09/opinion/eric-adams-democrats.html

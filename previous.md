@@ -1,3 +1,7 @@
+**A Brioche That Will Make a Believer Out of You**\
+`You don’t have to dedicate your life to the ancient practice of baking to yield a stunning loaf. You may just find you want to.`\
+https://nytimes.com/2024/10/09/magazine/best-brioche-recipe.html
+
 **Eric Adams Was Never the Future of the Democratic Party**\
 `The real lesson of Adams’s mayoralty has nothing to do with corruption.`\
 https://nytimes.com/2024/10/09/opinion/eric-adams-democrats.html
@@ -18,6 +22,10 @@ https://nytimes.com/2024/10/09/us/hurricane-milton-tornadoes.html
 `Sullivan has been a central leader and the heart of the team for multiple seasons.`\
 https://nytimes.com/athletic/5831720/2024/10/09/andi-sullivan-spirit-acl-injury/
 
+**Raiders name Aidan O'Connell starting quarterback for Week 6**\
+`The second-year quarterback will replace Gardner Minshew under center for Las Vegas.`\
+https://nytimes.com/athletic/5826104/2024/10/09/raiders-aidan-oconnell-starting-quarterback/
+
 **Maryland Senate Race Becomes a Slugfest as Both Parties Eye High Stakes**\
 `Larry Hogan, the popular former Republican governor, and Angela Alsobrooks, the Prince George’s County executive, both describe their race as critical to the future of the Senate.`\
 https://nytimes.com/2024/10/09/us/politics/maryland-senate-hogan-alsobrooks.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/airstrik
 **Splintered Supreme Court Wrestles With Case of Oklahoma Death Row Inmate**\
 `Some justices said the court was powerless to grant relief to the inmate, Richard Glossip. Others seemed ready to order a new trial or at least an evidentiary hearing.`\
 https://nytimes.com/2024/10/09/us/supreme-court-richard-glossip-death-row-oklahoma.html
-
-**Biden Accuses Trump of ‘Outright Lies’ About Hurricane Response**\
-`President Biden expressed concern that misinformation would undermine confidence in the response to Hurricane Milton.`\
-https://nytimes.com/2024/10/09/us/politics/biden-trump-hurricane-response.html
-
-**When Harlem Was ‘as Gay as It Was Black’**\
-`Mapping the people, homes and hot spots that transformed Harlem during its Renaissance.`\
-https://nytimes.com/interactive/2024/10/09/realestate/harlem-renaissance-lgbtq.html
 
