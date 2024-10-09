@@ -1,3 +1,15 @@
+**Lowetide: Making sense of the Oilers' last-minute roster decisons**\
+`Expect fluidity on the Oilers roster this season, both in shuffling of lines and pairings and in recalls.`\
+https://nytimes.com/athletic/5828138/2024/10/09/edmonton-oilers-roster-decisions-2024/
+
+**What’s in Our Queue? Brandy Clarke and More**\
+`I’m a national correspondent covering the American South. Here are five things I’ve been listening to, reading and watching.`\
+https://nytimes.com/interactive/2024/10/09/arts/editors-recommendations-brandyclarke.html
+
+**‘This Is Not the Eurovision.’ Orban Gets a Hostile Serenade**\
+`Some European Parliament members sang “Bella Ciao,” a song associated with antifascism, for Prime Minister Viktor Orban of Hungary until ordered to stop.`\
+https://nytimes.com/2024/10/09/world/europe/eu-hungary-orban-ukraine-russia-china.html
+
 **Thomas Rockwell, 91, Dies; Taught Children ‘How to Eat Fried Worms’**\
 `His father, Norman Rockwell, depicted his childhood on covers of The Saturday Evening Post. The worms came later.`\
 https://nytimes.com/2024/10/09/books/thomas-rockwell-dead.html
