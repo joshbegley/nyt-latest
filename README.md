@@ -1,3 +1,15 @@
+**Lowetide: Making sense of the Oilers' last-minute roster decisons**\
+`Expect fluidity on the Oilers roster this season, both in shuffling of lines and pairings and in recalls.`\
+https://nytimes.com/athletic/5828138/2024/10/09/edmonton-oilers-roster-decisions-2024/
+
+**What’s in Our Queue? Brandy Clarke and More**\
+`I’m a national correspondent covering the American South. Here are five things I’ve been listening to, reading and watching.`\
+https://nytimes.com/interactive/2024/10/09/arts/editors-recommendations-brandyclarke.html
+
+**‘This Is Not the Eurovision.’ Orban Gets a Hostile Serenade**\
+`Some European Parliament members sang “Bella Ciao,” a song associated with antifascism, for Prime Minister Viktor Orban of Hungary until ordered to stop.`\
+https://nytimes.com/2024/10/09/world/europe/eu-hungary-orban-ukraine-russia-china.html
+
 **Thomas Rockwell, 91, Dies; Taught Children ‘How to Eat Fried Worms’**\
 `His father, Norman Rockwell, depicted his childhood on covers of The Saturday Evening Post. The worms came later.`\
 https://nytimes.com/2024/10/09/books/thomas-rockwell-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009751935/israel-strike-jabaliy
 **LIV Golf vs. PGA Tour exhibition set for Dec. 17 in Las Vegas**\
 `The Scheffler/Rory versus Koepka/DeChambeau event has been dubbed “The Showdown.”`\
 https://nytimes.com/athletic/5831488/2024/10/09/dechambeau-koepka-mcilroy-scheffler-the-showdown/
-
-**Submit your questions for Kaitlyn McGrath's next Blue Jays mailbag!**\
-`<p>The Blue Jays&#8217; disappointing season is over and the organization is ready to turn the page, though they are moving forward with the same folks in charge.`\
-https://nytimes.com/athletic/5831530/2024/10/09/blue-jays-mailbag-submission/
-
-**Harris Awkwardly Shares the Spotlight With Biden Amid Crises**\
-`Vice President Kamala Harris has become the Democratic Party’s main focus of attention. But storms at home and conflict abroad are pushing President Biden back to the forefront.`\
-https://nytimes.com/2024/10/09/us/politics/harris-biden-trump-hurricanes-war.html
-
-**Biden and Netanyahu Speak for the First Time in Months as Mideast Crisis Deepens**\
-`The conversation carried the weight of the worst relationship between the United States and Israel in years.`\
-https://nytimes.com/2024/10/09/us/politics/biden-netanyahu-israel.html
 
