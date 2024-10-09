@@ -1,3 +1,11 @@
+**Hamptons Town Accused of Illegally Blocking Affordable Housing Plan**\
+`The Town of Southampton, an affluent Long Island enclave, violated housing laws by rejecting the project, which would have helped veterans and disabled people, the suit says.`\
+https://nytimes.com/2024/10/09/nyregion/southampton-affordable-housing.html
+
+**A major U.S. military base is in harm’s way.**\
+`MacDill Air Force Base south of Tampa was swamped by Helene’s storm surge, and may see worse flooding from Milton.`\
+https://nytimes.com/2024/10/09/weather/a-major-us-military-base-is-in-harms-way.html
+
 **A Gaza Family Separated by a Few Miles, and the War**\
 `Najia and Hammam Malaka have been stuck at opposite ends of the Gaza Strip, with their young children, for most of the yearlong conflict. The emotional toll has been devastating.`\
 https://nytimes.com/2024/10/09/world/middleeast/gaza-family-separation.html
