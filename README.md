@@ -2,6 +2,10 @@
 `Few states elect their insurance commissioners. But in North Carolina, a proposed 42 percent rate hike and Hurricane Helene have raised the stakes in the upcoming election.`\
 https://nytimes.com/2024/10/09/us/insurance-commissioner-hurricane-north-carolina.html
 
+**How Roger Bennett fell in love with the Bears, and the lessons of being a sports fan**\
+`Roger Bennett from "Men in Blazers" became a fan of the Bears growing up in Liverpool and still reveres the team that changed his life.`\
+https://nytimes.com/athletic/5829225/2024/10/09/chicago-bears-roger-bennett-men-in-blazers/
+
 **A Filmmaker Explores Climate and Democracy**\
 `In his next documentary, Michael P. Nash takes on A.I. and how it might be used to address environmental issues.`\
 https://nytimes.com/2024/10/09/world/democracy-film-climate-nash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/us/turkish-airlines-emergency-landing-jfk.html
 **Hamptons Town Accused of Illegally Blocking Affordable Housing Plan**\
 `The Town of Southampton, an affluent Long Island enclave, violated housing laws by rejecting the project, which would have helped veterans and disabled people, the suit says.`\
 https://nytimes.com/2024/10/09/nyregion/southampton-affordable-housing.html
-
-**MacDill Air Force Base in Tampa Region Braces for Milton Flooding**\
-`MacDill Air Force Base south of Tampa was swamped by Helene’s storm surge, and may see worse flooding from Milton.`\
-https://nytimes.com/2024/10/09/weather/macdill-air-force-base-milton.html
 
