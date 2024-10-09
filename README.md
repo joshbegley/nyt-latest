@@ -1,40 +1,40 @@
-**Nobel Prize in Chemistry Is Awarded to 3 Scientists for Work With Proteins**\
-`The award is the third 2024 sciences Nobel to be announced this week.`\
-https://nytimes.com/2024/10/09/science/nobel-prize-chemistry.html
+**Why it might be time for Browns to consider trading WR Amari Cooper**\
+`Following its most embarrassing offensive performance yet, Cleveland has to begin evaluating what it thinks its future might hold. `\
+https://nytimes.com/athletic/5829271/2024/10/09/browns-amari-cooper-trade-options/
 
-**Iranian Official Heads to Saudi Arabia as Israel Postpones U.S. Meeting**\
-`The Biden administration is dealing with complex dynamics in the Middle East as it tries to keep conflicts involving Israel from escalating further.`\
-https://nytimes.com/2024/10/09/world/middleeast/iran-saudi-arabia-israel.html
+**Astros' Mauricio Dubón to undergo surgery on torn thumb ligament: Source**\
+`Dubón played in 18 regular-season games after his injury, slashing .291/.322/.346 across 59 plate appearances. He went 2-for-5 in the WCS.`\
+https://nytimes.com/athletic/5825739/2024/10/09/astros-mauricio-dubon-thumb-surgery/
 
-**No Lie: George Washington Is Funny Now**\
-`The first president is usually at the margins of popular culture. As a recurring character on “Saturday Night Live” and a trend on TikTok, is he finally having a moment?`\
-https://nytimes.com/2024/10/09/arts/television/snl-nate-bargatze-washingtons-dream.html
+**Ravens' offense shows its versatility after passing the test of winning a shootout**\
+`After leaning on Derrick Henry and the run game in its two previous wins, Baltimore proved it can air it out when needed vs. Cincinnati.  `\
+https://nytimes.com/athletic/5829089/2024/10/09/ravens-passing-offense-lamar-jackson/
 
-**Milton will bring destruction across Florida, officials warn. Here’s the latest.**\
-`By Yan Zhuang`\
-https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/milton-will-bring-destruction-across-florida-officials-warn-heres-the-latest
+**What changes will Year 3 of the John Tortorella era bring to the Flyers?**\
+`Tortorella's approach might be altered, with more of a two-way street in terms of how players are handled.`\
+https://nytimes.com/athletic/5829066/2024/10/09/philadelphia-flyers-john-tortorella-coach/
 
-**Live Updates: As Milton Barrels Toward Florida, Time Is Running Out for Evacuations**\
-`The Category 5 storm is expected to strike the Gulf Coast late Wednesday, and officials warn of devastation across the state. Millions have been urged to leave the coasts.`\
-https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida
+**NFL Draft order 2025 projections: Pressing needs for teams stumbling toward top 5 picks**\
+`How did Week 5 shake up the potential 2025 draft order? Check out the latest projected top 10 for April's draft.`\
+https://nytimes.com/athletic/5828227/2024/10/09/nfl-draft-order-2025-projections-week-5/
 
-**Evgeni Malkin is aging, changing and not done yet**\
-`Malkin, who has been looking to Alex Ovechkin for ways to stay competitive, says he won't retire until the Penguins make the playoffs again.`\
-https://nytimes.com/athletic/5826029/2024/10/09/penguins-evgeni-malkin-nhl-retirement/
+**Easton Cowan and others like him deserve to grow their games somewhere other than junior**\
+`Easton Cowan has nothing left to prove in junior hockey and should be allowed to spread his wings in a league with men.`\
+https://nytimes.com/athletic/5826673/2024/10/09/easton-cowan-maple-leafs-london-knights/
 
-**In a new era for the Royals, Salvador Pérez remains the one constant**\
-`In 2015, the last time the Royals were in the postseason, their gregarious catcher brought home the World Series MVP trophy. `\
-https://nytimes.com/athletic/5829398/2024/10/09/salvador-perez-royals-leader-playoffs/
+**Bultman: Red Wings have to do it the hard way. And that's OK**\
+`The Red Wings came up just short of the playoffs in 2024. That's the best thing they have going for them as a new season begins.`\
+https://nytimes.com/athletic/5818914/2024/10/09/red-wings-playoffs-route-nhl/
 
-**Phillies on the brink: They know it. The Mets smell it. Their legacy is on the line**\
-`It’s just one baseball game. But we all know it’s more than that. It is the game that will define the legacy of the 2024 Phillies.`\
-https://nytimes.com/athletic/5830528/2024/10/09/phillies-mets-nlds-elimination-game-4/
+**As Canadiens kick off the season, a reminder to resist premature outrage**\
+`There has been a misplaced debate raging over Lane Hutson's usage on the power play when the Canadiens season hasn't even begun.`\
+https://nytimes.com/athletic/5830252/2024/10/09/canadiens-power-play-matheson-hutson-outrage/
 
-**Jake Rogers has emerged as a cult hero in the Tigers’ postseason run **\
-`Rogers may be the Tigers’ most important behind-the-scenes player. "Without him, I really don't think we’re here right now.”`\
-https://nytimes.com/athletic/5829100/2024/10/09/tigers-jake-rogers-leadership/
+**What we learned at Jets camp: Captain conversation, special teams revolution, more**\
+`Adam Lowry isn't unaware of where Winnipeg can improve, but he's more interested in what happens on the ice than on paper.`\
+https://nytimes.com/athletic/5820367/2024/10/09/winnipeg-jets-camp-captain-special-teams/
 
-**Willing his team to the playoffs, one "Don't let the Tigers get hot" sign at a time**\
-`Tigers superfan Josh Tebeau and his signs have become part of the fabric of this Tigers season, and he's not done yet. `\
-https://nytimes.com/athletic/5829997/2024/10/09/detroit-fan-josh-tebeau-dont-let-tigers-get-hot/
+**Blue Jackets' Dean Evason goes deep on his background — and his appreciation for live theater**\
+`How did Evason's background and upbringing influence him, and what style will he bring to Columbus?`\
+https://nytimes.com/athletic/5828025/2024/10/09/dean-evason-columbus-blue-jackets/
 
