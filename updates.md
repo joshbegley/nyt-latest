@@ -1,3 +1,11 @@
+**Nearly a Million Civilians Flee War in Lebanon, U.N. Says**\
+`A week into the ground war between Israel and Hezbollah, shelters in Lebanon are filling up beyond capacity, humanitarian officials warned.`\
+https://nytimes.com/2024/10/09/world/middleeast/israel-hezbollah-lebanon.html
+
+**Stay or Go? With Milton Closing In, Some in Florida Make Last-Minute Decisions.**\
+`Those who had not yet evacuated reconsidered as the winds and rains from the incoming hurricane began to pick up on Wednesday.`\
+https://nytimes.com/2024/10/09/us/hurricane-milton-florida-evacuation-last-minute.html
+
 **Ratan Tata, Whose Indian Business Empire Went Global, Dies at 86**\
 `The patriarch of a powerful family, his Tata Group put an indelible stamp on Indian life while acquiring British brand names like Tetley Tea and Jaguar.`\
 https://nytimes.com/2024/10/09/business/ratan-tata-dead.html
