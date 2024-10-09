@@ -31,7 +31,7 @@ https://nytimes.com/2024/10/09/nyregion/nyc-soft-gel-nail-extensions-price.html
 https://nytimes.com/athletic/5830431/2024/10/09/dodgers-nlds-padres-game-3-analysis/
 
 **Andrew Garfield Believes Hearts Are Meant to Break**\
-`The actor speaks to Anna Martin, host of the Modern Love Podcast, about his new movie “ We Live in Time,” and why heartbreak is a path to vitality.`\
+`The actor speaks to Anna Martin, host of the Modern Love Podcast, about his new movie “We Live in Time,” and why heartbreak is a path to vitality.`\
 https://nytimes.com/video/podcasts/100000009750796/modern-love-andrew-garfield.html
 
 **Word of the Day: exorbitant**\

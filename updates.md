@@ -1,3 +1,7 @@
+**Andrew Garfield Believes Hearts Are Meant to Break**\
+`The actor speaks to Anna Martin, host of the Modern Love Podcast, about his new movie “We Live in Time,” and why heartbreak is a path to vitality.`\
+https://nytimes.com/video/podcasts/100000009750796/modern-love-andrew-garfield.html
+
 **Manny Machado's heads-up play helps spark Padres in NLDS Game 3**\
 `Machado instigated a rare six-run inning. Yet, afterward, there was little surprise among San Diego's players.`\
 https://nytimes.com/athletic/5829878/2024/10/09/manny-machado-sparks-padres-nlds-game-3/
