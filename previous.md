@@ -1,3 +1,7 @@
+**Jayden Daniels dismisses Lamar Jackson comparisons: 'We're 2 different players'**\
+`“I don't like when people really try to compare me to Lamar and vice versa,” Daniels said following Wednesday's practice.`\
+https://nytimes.com/athletic/5832255/2024/10/09/jayden-daniels-lamar-jackson-comparison-comments/
+
 **U.S. Issues Solar Storm Watch After Large Outburst From the Sun**\
 `An explosion of particles is expected to reach Earth on Thursday, and could lead to visible Northern Lights in much of the country while also raising power grid concerns.`\
 https://nytimes.com/2024/10/09/science/solar-storm-sun-aurora.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832266/2024/10/09/romeo-doubs-packers-return-to-pr
 **Why Republicans Are Muddling Their Early Voting Message**\
 `Republicans are encouraging people to vote early but, in some cases, making it harder to do so.`\
 https://nytimes.com/2024/10/09/us/politics/early-voting-republicans.html
-
-**In Interviews, Kamala Harris Continues to Bob and Weave**\
-`Her media swing showed how she often responds to uncomfortable questions by acknowledging them, yet not fully answering them.`\
-https://nytimes.com/2024/10/09/us/politics/harris-interviews-analysis.html
 

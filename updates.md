@@ -1,3 +1,7 @@
+**Jayden Daniels dismisses Lamar Jackson comparisons: 'We're 2 different players'**\
+`“I don't like when people really try to compare me to Lamar and vice versa,” Daniels said following Wednesday's practice.`\
+https://nytimes.com/athletic/5832255/2024/10/09/jayden-daniels-lamar-jackson-comparison-comments/
+
 **Sean Combs Lawyers Accuse Government of Leaking Cassie Assault Video**\
 `The hip-hop mogul’s legal team said in a filing on Wednesday that it may ask for the widely published video to be barred from his trial.`\
 https://nytimes.com/2024/10/09/arts/music/sean-combs-diddy-cassie-assault-video-leak.html
