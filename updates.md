@@ -1,3 +1,11 @@
+**Submit your questions for Kaitlyn McGrath's next Blue Jays mailbag!**\
+`<p>The Blue Jays&#8217; disappointing season is over and the organization is ready to turn the page, though they are moving forward with the same folks in charge.`\
+https://nytimes.com/athletic/5831530/2024/10/09/blue-jays-mailbag-submission/
+
+**Harris Awkwardly Shares the Spotlight With Biden Amid Crises**\
+`Vice President Kamala Harris has become the Democratic Party’s main focus of attention. But storms at home and conflict abroad are pushing President Biden back to the forefront.`\
+https://nytimes.com/2024/10/09/us/politics/harris-biden-trump-hurricanes-war.html
+
 **Biden and Netanyahu Speak for the First Time in Months as Mideast Crisis Deepens**\
 `The conversation carried the weight of the worst relationship between the United States and Israel in years.`\
 https://nytimes.com/2024/10/09/us/politics/biden-netanyahu-israel.html
