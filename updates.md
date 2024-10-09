@@ -1,3 +1,11 @@
+**Thomas Rockwell, 91, Dies; Taught Children ‘How to Eat Fried Worms’**\
+`His father, Norman Rockwell, depicted his childhood on covers of The Saturday Evening Post. The worms came later.`\
+https://nytimes.com/2024/10/09/books/thomas-rockwell-dead.html
+
+**Kamala Harris Has Raised $1 Billion Since Entering 2024 Presidential Race**\
+`No presidential candidate is believed to have ever raised so much money so fast. The campaign has stopped trumpeting its fund-raising totals to keep Democrats from becoming complacent.`\
+https://nytimes.com/2024/10/09/us/politics/harris-billion-dollar-fundraising.html
+
 **Rodgers denies having input on Jets firing Saleh**\
 `The four-time NFL MVP is in his second season with the Jets, but played just six games for Saleh.`\
 https://nytimes.com/athletic/5828608/2024/10/09/aaron-rodgers-robert-saleh-firing-jets/

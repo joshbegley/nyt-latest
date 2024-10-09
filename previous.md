@@ -1,3 +1,11 @@
+**Thomas Rockwell, 91, Dies; Taught Children ‘How to Eat Fried Worms’**\
+`His father, Norman Rockwell, depicted his childhood on covers of The Saturday Evening Post. The worms came later.`\
+https://nytimes.com/2024/10/09/books/thomas-rockwell-dead.html
+
+**Kamala Harris Has Raised $1 Billion Since Entering 2024 Presidential Race**\
+`No presidential candidate is believed to have ever raised so much money so fast. The campaign has stopped trumpeting its fund-raising totals to keep Democrats from becoming complacent.`\
+https://nytimes.com/2024/10/09/us/politics/harris-billion-dollar-fundraising.html
+
 **Rodgers denies having input on Jets firing Saleh**\
 `The four-time NFL MVP is in his second season with the Jets, but played just six games for Saleh.`\
 https://nytimes.com/athletic/5828608/2024/10/09/aaron-rodgers-robert-saleh-firing-jets/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/09/us/politics/harris-biden-trump-hurricanes-war.htm
 **Biden and Netanyahu Speak for the First Time in Months as Mideast Crisis Deepens**\
 `The conversation carried the weight of the worst relationship between the United States and Israel in years.`\
 https://nytimes.com/2024/10/09/us/politics/biden-netanyahu-israel.html
-
-**Bears in London: GM Ryan Poles impressed with Caleb Williams' progress**\
-`Poles and Bears president and CEO Kevin Warren addressed the media Wednesday in England, where the Bears are preparing to play the Jaguars.`\
-https://nytimes.com/athletic/5831267/2024/10/09/bears-london-ryan-poles-caleb-williams/
-
-**Trump Repeatedly Referred to Maine’s Female Governor as a Man**\
-`On a call with supporters, the former president incorrectly used masculine pronouns six times while referring to Janet Mills.`\
-https://nytimes.com/2024/10/09/us/politics/trump-maine-governor-gender.html
 
