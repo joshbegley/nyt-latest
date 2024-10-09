@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5830469/2024/10/09/jurgen-klopp-red-bull/
 
 **Manny Machado's heads-up play helps spark Padres in NLDS Game 3**\
-`Machado had instigated a rare six-run inning. Yet, afterward, there was little surprise among San Diego's players.`\
+`Machado instigated a rare six-run inning. Yet, afterward, there was little surprise among San Diego's players.`\
 https://nytimes.com/athletic/5829878/2024/10/09/manny-machado-sparks-padres-nlds-game-3/
 
 **Mozambique’s 2024 National Elections: What to Know**\
