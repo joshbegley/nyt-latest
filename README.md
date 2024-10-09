@@ -1,3 +1,15 @@
+**Jonathan Groff, Fresh Off Tony Win, Will Return to Broadway as Bobby Darin**\
+`“Just in Time,” a new musical about the “Mack the Knife” pop singer, will open next spring at Circle in the Square in Manhattan.`\
+https://nytimes.com/2024/10/09/theater/jonathan-groff-bobby-darin-broadway.html
+
+**The Education Crisis Neither Candidate Will Address**\
+`Covid learning loss and chronic absenteeism aren’t going to fix themselves`\
+https://nytimes.com/2024/10/09/opinion/covid-education-crisis-election.html
+
+**My Grandmother Paid for My Sister’s I.V.F. I Feel Ripped Off!**\
+`A reader is miffed to learn that $13,000 was earmarked in her grandmother’s will for a younger sister’s fertility treatments. Should the sister reimburse her siblings?`\
+https://nytimes.com/2024/10/09/style/grandparents-wills-unequal-bequests.html
+
 **How Josh Allen got forced into pressing and how to fix it**\
 `The Texans defense caused an all-time poor performance from Josh Allen.`\
 https://nytimes.com/athletic/5829886/2024/10/09/bills-josh-allen-offense-receivers/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/the-un-s
 **Here are the latest developments.**\
 `By Aryn Baker, Ben Hubbard and Aaron Boxerman`\
 https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/here-are-the-latest-developments
-
-**Pelicans pushing 3-point increase as most viable path to improved offense**\
-`Coach Willie Green wants New Orleans to shoot 40 3s per game — which should open up more space for Zion Williamson.`\
-https://nytimes.com/athletic/5830576/2024/10/09/pelicans-offense-3-pointers-zion/
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/10/09/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Campaigns Swarm Sun Belt, With Early Voting Starting in Arizona**\
-`Senator JD Vance and Gov. Tim Walz are both in Arizona today. Former President Donald J. Trump will be in Pennsylvania, a state both campaigns see as crucial to winning the election.`\
-https://nytimes.com/live/2024/10/09/us/harris-trump-election
 
