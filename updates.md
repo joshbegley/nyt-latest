@@ -1,3 +1,5 @@
+**Kyoto from the Water: Sacred Sites and Sun-Dappled Canals**\
+
 **Boeing Labor Talks Stall as Strike Nears One-Month Mark**\
 `The aerospace manufacturer withdrew its latest offer to a union whose more than 33,000 members went on strike last month and both sides exchanged blame for the breakdown.`\
 https://nytimes.com/2024/10/09/business/boeing-strike-machinists-union.html
