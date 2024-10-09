@@ -1,3 +1,7 @@
+**How Will Howard's big-game experience helps Ohio State in its biggest test yet**\
+`Howard has played in big games before. How will his experience help as No. 2 Ohio State visits No. 3 Oregon in his biggest game yet?`\
+https://nytimes.com/athletic/5831214/2024/10/09/will-howard-ohio-state-football-oregon-ducks/
+
 **She Had Thoughts of Harming Her Baby. To Treat Her, Doctors Kept Them Together.**\
 `In specialized wards called mother-and-baby units, doctors treat postpartum psychosis while allowing women to keep caring for their children.`\
 https://nytimes.com/2024/10/09/well/postpartum-psychosis-health-pregnancy-women.html

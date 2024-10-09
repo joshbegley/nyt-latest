@@ -1,3 +1,7 @@
+**How Will Howard's big-game experience helps Ohio State in its biggest test yet**\
+`Howard has played in big games before. How will his experience help as No. 2 Ohio State visits No. 3 Oregon in his biggest game yet?`\
+https://nytimes.com/athletic/5831214/2024/10/09/will-howard-ohio-state-football-oregon-ducks/
+
 **She Had Thoughts of Harming Her Baby. To Treat Her, Doctors Kept Them Together.**\
 `In specialized wards called mother-and-baby units, doctors treat postpartum psychosis while allowing women to keep caring for their children.`\
 https://nytimes.com/2024/10/09/well/postpartum-psychosis-health-pregnancy-women.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5831234/2024/10/09/texans-nico-collins-injured-rese
 **League execs, coaches react to Jets firing Robert Saleh: 'It doesn’t seem well-thought out'**\
 `"It was probably inevitable, but it's more of the Jets not being able to get out of their own way. I’m not sure what firing (him) now does."`\
 https://nytimes.com/athletic/5829329/2024/10/09/new-york-jets-fired-robert-saleh/
-
-**Silent Hill 2 Was Clumsy, Brutal and Brilliant**\
-`A remake of the 2001 survival horror game sands down the unwieldy combat that made it a powerful, disturbing classic.`\
-https://nytimes.com/2024/10/09/arts/silent-hill-2.html
 
