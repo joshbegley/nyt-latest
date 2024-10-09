@@ -1,3 +1,19 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/09/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Campaigns Swarm Sun Belt, With Early Voting Starting in Arizona**\
+`Senator JD Vance and Gov. Tim Walz are both in Arizona today. Former President Donald J. Trump will be in Pennsylvania, a state both campaigns see as crucial to winning the election.`\
+https://nytimes.com/live/2024/10/09/us/harris-trump-election
+
+**Giants Mailbagg, part 2: What immediate moves will Posey make? Can he improve the farm?**\
+`Who might the Giants protect in the Rule 5 draft? Will there be significant shifts in how they approach player development under Posey?`\
+https://nytimes.com/athletic/5828743/2024/10/09/sf-giants-mailbag-offseason-moves-farm-system/
+
+**How Golden Knights' Adin Hill got ready for the biggest season of his life**\
+`Hill's season might propel him to a big contract — or create more doubts about his future.`\
+https://nytimes.com/athletic/5830083/2024/10/09/golden-knights-adin-hill-contract/
+
 **Kyle Busch on maintaining NASCAR success, son Brexton's racing and more: 12 Questions**\
 `Kyle Busch on longevity in the sport, dabbling in NASCAR media, what's next for his son Brexton's career and much more.`\
 https://nytimes.com/athletic/5828220/2024/10/09/kyle-busch-nascar-12-questions/
