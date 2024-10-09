@@ -1,3 +1,15 @@
+**Patrick Summers, Veteran Opera Conductor, to Step Down in Houston**\
+`Summers, who has helped introduce new operas into the American canon, will leave his role at Houston Grand Opera in 2026.`\
+https://nytimes.com/2024/10/09/arts/music/patrick-summers-opera-conductor-houston-stepping-down.html
+
+**U.S. Soccer lays off up to 30 staff - despite surging revenue**\
+`Around nine per cent of workforce to leave as federation prepares to relocate to Georgia`\
+https://nytimes.com/athletic/5831618/2024/10/09/us-soccer-staff-cuts/
+
+**‘No One Has Any Idea’: Why the Election Has Wall Street Frozen**\
+`Among deal makers with fortunes at stake, the consequences of a Harris or a Trump win are increasingly murky.`\
+https://nytimes.com/2024/10/09/business/wall-street-trump-harris-election.html
+
 **Ravens hire Dean Pees in senior advisor role to Zach Orr's staff**\
 `Pees, who coached Orr as a player and was the Ravens defensive coordinator from 2012 to 2017, will start this week.`\
 https://nytimes.com/athletic/5831574/2024/10/09/dean-pees-ravens-senior-advisor-zach-orr/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/09/world/europe/eu-hungary-orban-ukraine-russia-chin
 **Thomas Rockwell, 91, Dies; Taught Children ‘How to Eat Fried Worms’**\
 `His father, Norman Rockwell, depicted his childhood on covers of The Saturday Evening Post. The worms came later.`\
 https://nytimes.com/2024/10/09/books/thomas-rockwell-dead.html
-
-**Kamala Harris Has Raised $1 Billion Since Entering 2024 Presidential Race**\
-`No presidential candidate is believed to have ever raised so much money so fast. The campaign has stopped trumpeting its fund-raising totals to keep Democrats from becoming complacent.`\
-https://nytimes.com/2024/10/09/us/politics/harris-billion-dollar-fundraising.html
-
-**Rodgers denies having input on Jets firing Saleh**\
-`The four-time NFL MVP is in his second season with the Jets, but played just six games for Saleh.`\
-https://nytimes.com/athletic/5828608/2024/10/09/aaron-rodgers-robert-saleh-firing-jets/
-
-**Letitia James vs. Andrew Cuomo for New York City Mayor? It Could Happen.**\
-`With Mayor Eric Adams’s future in doubt, former Gov. Andrew Cuomo and his adversary Letitia James, the state attorney general, could find themselves in a battle for the city’s top job.`\
-https://nytimes.com/2024/10/09/nyregion/tish-james-cuomo-mayor.html
 
