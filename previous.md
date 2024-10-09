@@ -1,3 +1,7 @@
+**No Lie: George Washington Is Funny Now**\
+`The first president is usually at the margins of popular culture. As a recurring character on “Saturday Night Live” and a trend on TikTok, is he finally having a moment?`\
+https://nytimes.com/2024/10/09/arts/television/snl-nate-bargatze-washingtons-dream.html
+
 **Milton will bring destruction across Florida, officials warn. Here’s the latest.**\
 `By Yan Zhuang`\
 https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/milton-will-bring-destruction-across-florida-officials-warn-heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824291/2024/10/09/anthony-edwards-timberwolves-net
 **Fantasy football trade advice: Buy Jalen Hurts, sell Chuba Hubbard and other insights**\
 `Dane Martinez provides fantasy football trade advice for fantasy managers looking toward the playoffs, with insights on Jalen Hurts. `\
 https://nytimes.com/athletic/5829050/2024/10/09/fantasy-football-trade-advice-buy-jalen-hurts/
-
-**NFL head coaches on hot seat may include Browns' Kevin Stefanski, Eagles' Nick Sirianni**\
-`The Jets made Robert Saleh the first head coach firing of the 2024 NFL season. Six others may need strong showings to keep their jobs.`\
-https://nytimes.com/athletic/5829655/2024/10/09/nfl-coaches-hot-seat-stefanski-sirianni/
 

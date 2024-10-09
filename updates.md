@@ -1,3 +1,7 @@
+**No Lie: George Washington Is Funny Now**\
+`The first president is usually at the margins of popular culture. As a recurring character on “Saturday Night Live” and a trend on TikTok, is he finally having a moment?`\
+https://nytimes.com/2024/10/09/arts/television/snl-nate-bargatze-washingtons-dream.html
+
 **Milton will bring destruction across Florida, officials warn. Here’s the latest.**\
 `By Yan Zhuang`\
 https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/milton-will-bring-destruction-across-florida-officials-warn-heres-the-latest
