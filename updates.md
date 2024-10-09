@@ -1,3 +1,19 @@
+**Man Charged in South Africa Mass Shooting That Left 18 Dead**\
+`The killings of 18 members of one family assembled for a gathering last month are among an increasing number of mass shootings in South Africa.`\
+https://nytimes.com/2024/10/09/world/africa/mass-shooting-south-africa-charges.html
+
+**Wolfsburg suspend striker Behrens over homophobic comments**\
+`Wolfsburg have suspended striker Kevin Behrens for making a homophobic comment during an autograph-signing session.`\
+https://nytimes.com/athletic/5831728/2024/10/09/wolfsburg-suspend-striker-kevin-behrens-homophobic/
+
+**Giants' Kayvon Thibodeaux out after undergoing wrist surgery**\
+`Giants coach Brian Daboll declined to offer a timeline on Thibodeaux's injury status or whether he was being considered for injured reserve.`\
+https://nytimes.com/athletic/5831783/2024/10/09/kayvon-thibodeaux-out-wrist-surgery/
+
+**Scenes From Florida as Residents Prepare for Milton**\
+`The storm is expected to make landfall around midnight, devastating an area still recovering from Hurricane Helene, which tore through Florida’s western coast two weeks ago.`\
+https://nytimes.com/2024/10/09/us/hurricane-milton-photos-videos.html
+
 **The Viral Choreographer Changing the Way Women Move**\
 `Parris Goebel's muscular, surreal dances are transforming the way that Rihanna, SZA and others move.`\
 https://nytimes.com/interactive/2024/10/09/magazine/parris-goebel-dance.html
