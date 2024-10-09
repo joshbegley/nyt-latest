@@ -1,3 +1,19 @@
+**Misreading the Moment, a Bra Empire Goes Bust**\
+`In “Selling Sexy,” two veteran fashion journalists examine how Victoria’s Secret fell from grace.`\
+https://nytimes.com/2024/10/09/books/review/selling-sexy-lauren-sherman-chantal-fernandez.html
+
+**In ‘The Witches of El Paso,’ Magic Is a Blessing and a Curse**\
+`In this family saga, a floundering lawyer must tap into her supernatural heritage to help her family in the past and present.`\
+https://nytimes.com/2024/10/09/books/review/the-witches-of-el-paso-luis-jaramillo.html
+
+**Trump Family Business Eyes Hotel Deals in Israel**\
+`The Trump Organization was in talks about Israeli hotels before the Hamas attack last year. It says it wants to resume them in the future, raising questions about the mingling of politics and money in the event of a second Trump term.`\
+https://nytimes.com/2024/10/09/us/politics/trump-organization-israel-hotels.html
+
+**Alisson out until after November international break with hamstring injury**\
+`Liverpool goalkeeper Alisson has been ruled out until after the November international break.`\
+https://nytimes.com/athletic/5824726/2024/10/09/alisson-hamstring-injury-liverpool/
+
 **Andrew Garfield Believes Hearts Are Meant to Break**\
 `The actor speaks to Anna Martin, host of the Modern Love Podcast, about his new movie “We Live in Time,” and why heartbreak is a path to vitality.`\
 https://nytimes.com/video/podcasts/100000009750796/modern-love-andrew-garfield.html

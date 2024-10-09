@@ -1,3 +1,19 @@
+**Misreading the Moment, a Bra Empire Goes Bust**\
+`In “Selling Sexy,” two veteran fashion journalists examine how Victoria’s Secret fell from grace.`\
+https://nytimes.com/2024/10/09/books/review/selling-sexy-lauren-sherman-chantal-fernandez.html
+
+**In ‘The Witches of El Paso,’ Magic Is a Blessing and a Curse**\
+`In this family saga, a floundering lawyer must tap into her supernatural heritage to help her family in the past and present.`\
+https://nytimes.com/2024/10/09/books/review/the-witches-of-el-paso-luis-jaramillo.html
+
+**Trump Family Business Eyes Hotel Deals in Israel**\
+`The Trump Organization was in talks about Israeli hotels before the Hamas attack last year. It says it wants to resume them in the future, raising questions about the mingling of politics and money in the event of a second Trump term.`\
+https://nytimes.com/2024/10/09/us/politics/trump-organization-israel-hotels.html
+
+**Alisson out until after November international break with hamstring injury**\
+`Liverpool goalkeeper Alisson has been ruled out until after the November international break.`\
+https://nytimes.com/athletic/5824726/2024/10/09/alisson-hamstring-injury-liverpool/
+
 **Jurgen Klopp to become head of global soccer at Red Bull**\
 `Jurgen Klopp is to become the new head of global soccer at Red Bull.`\
 https://nytimes.com/athletic/5830469/2024/10/09/jurgen-klopp-red-bull/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/09/crosswords/spelling-bee-forum.html
 **$160 Million Later, New Pool and Rink Will Replace Central Park Eyesore**\
 `The new Harlem Meer Center, opening early next year, will serve the largely Black and Latino communities surrounding the northern end of the park.`\
 https://nytimes.com/2024/10/09/nyregion/central-park-harlem-meer-center.html
-
-**Why This Rainbow Gel Manicure (With Chrome!) Costs $255**\
-`Pricing for soft gel nail extensions depends on the length, size and brand, as well as any nail art. In New York City, soft gels can start between $100 and $400.`\
-https://nytimes.com/2024/10/09/nyregion/nyc-soft-gel-nail-extensions-price.html
-
-**Dodgers again on the brink after disastrous second inning in Game 3**\
-`After squandering a brief lead, the Dodgers are at risk of an early exit for the third consecutive season: "Not a great situation."`\
-https://nytimes.com/athletic/5830431/2024/10/09/dodgers-nlds-padres-game-3-analysis/
-
-**Andrew Garfield Believes Hearts Are Meant to Break**\
-`The actor speaks to Anna Martin, host of the Modern Love Podcast, about his new movie “We Live in Time,” and why heartbreak is a path to vitality.`\
-https://nytimes.com/video/podcasts/100000009750796/modern-love-andrew-garfield.html
-
-**Word of the Day: exorbitant**\
-`This word has appeared in 158 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/09/learning/word-of-the-day-exorbitant.html
 
