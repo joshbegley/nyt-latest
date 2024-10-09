@@ -1,3 +1,7 @@
+**Mirtle: The 3 big problems with giving a goalie a superstar salary in the NHL**\
+`The goalies of the league may hate to hear it, but there are good reasons they aren't paid like other stars on the ice.`\
+https://nytimes.com/athletic/5829517/2024/10/09/nhl-goalie-salary-contract-swayman-shesterkin/
+
 **Wimbledon jettisons line judges for electronic line calling from 2025**\
 `It leaves the French Open as the only Grand Slam tournament not to use electronic line calling`\
 https://nytimes.com/athletic/5830648/2024/10/09/wimbledon-line-judges-electronic-line-calling/

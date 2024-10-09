@@ -1,3 +1,7 @@
+**Mirtle: The 3 big problems with giving a goalie a superstar salary in the NHL**\
+`The goalies of the league may hate to hear it, but there are good reasons they aren't paid like other stars on the ice.`\
+https://nytimes.com/athletic/5829517/2024/10/09/nhl-goalie-salary-contract-swayman-shesterkin/
+
 **Wimbledon jettisons line judges for electronic line calling from 2025**\
 `It leaves the French Open as the only Grand Slam tournament not to use electronic line calling`\
 https://nytimes.com/athletic/5830648/2024/10/09/wimbledon-line-judges-electronic-line-calling/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/movies/daytime-revolution-review.html
 **Inside Donald Trump’s Rallies**\
 `We explain the nine main things that happen at each rally.`\
 https://nytimes.com/2024/10/09/briefing/inside-donald-trumps-rallies.html
-
-**Uncapped Jones and Livramento called up to England squad**\
-`The uncapped Curtis Jones and Tino Livramento have been called up to the England senior squad ahead of October&#8217;s Nations League fixtures against Greece and Finland.`\
-https://nytimes.com/athletic/5830624/2024/10/09/curtis-jones-tino-livramento-england/
 
