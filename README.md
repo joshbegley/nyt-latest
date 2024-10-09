@@ -1,5 +1,5 @@
 **With Medicare, Harris Sees a Potential Last-Minute Appeal to Voters**\
-`Vice President Kamala Harris’s campaign proposal to add home health care to Medicare was a sign of the program’s growing power in American politics.`\
+`Kamala Harris’s campaign proposal to add home health care to Medicare was a sign of the program’s growing power in American politics.`\
 https://nytimes.com/2024/10/09/us/politics/medicare-harris-home-health-care.html
 
 **Conviction in Girl’s 1975 Murder Offers Sister Some Solace**\
