@@ -1,5 +1,9 @@
+**Broadway Theater Owners, Facing Backlash, to Dim All Lights for Gavin Creel**\
+`The landlords also said they would reconsider their process for determining who to honor with full and partial dimmings.`\
+https://nytimes.com/2024/10/09/theater/broadway-lights-dim-gavin-creel.html
+
 **Voices from the Swing States**\
-`In the months leading up to the 2024 election, we traveled to the seven states most likely to decide the election to talk to voters.`\
+`In the months leading up to the 2024 election, we traveled to the seven states most likely to decide the election. We talked to voters about the rising cost of housing, immigration, abortion and more.`\
 https://nytimes.com/interactive/2024/10/09/us/elections/swing-states-voters.html
 
 **Google Triumphs on the Nobel Stage as Tough Antitrust Fight Looms**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/us/hurricane-milton-tornadoes.html
 **Spirit's Andi Sullivan out for season with torn ACL**\
 `Sullivan has been a central leader and the heart of the team for multiple seasons.`\
 https://nytimes.com/athletic/5831720/2024/10/09/andi-sullivan-spirit-acl-injury/
-
-**Raiders name Aidan O'Connell starting quarterback for Week 6**\
-`The second-year quarterback will replace Gardner Minshew under center for Las Vegas.`\
-https://nytimes.com/athletic/5826104/2024/10/09/raiders-aidan-oconnell-starting-quarterback/
 
