@@ -14,7 +14,7 @@ https://nytimes.com/2024/10/08/technology/google-search-antitrust.html
 `Here's a few early observations from the Blues' 3-2 come-from-behind win over the Seattle Kraken in the season opener.`\
 https://nytimes.com/athletic/5829884/2024/10/08/blues-season-opener-seattle-kyrou/
 
-**Mets take advantage of raucous atmosphere to move within one win of NLCS**\
+**Mets take advantage of raucous atmosphere to move within 1 win of NLCS**\
 `Pete Alonso hit his third homer in four games, all of them the other way: “He’s a different kind of strong.”`\
 https://nytimes.com/athletic/5830118/2024/10/08/mets-nlds-pete-alonso-sean-manaea/
 
