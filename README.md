@@ -1,3 +1,7 @@
+**Jeff Ulbrich's to-do list: From Nathaniel Hackett and Aaron Rodgers to (possibly) Davante Adams**\
+`The New York Jets' interim coach faces a half-dozen challenges as he tries to get the season back on track.`\
+https://nytimes.com/athletic/5831973/2024/10/09/jeff-ulbrich-new-york-jets-interim-coach-robert-saleh-firing/
+
 **Trump Plans Rally at Madison Square Garden**\
 `The rally, reportedly set for late October, is part of a series of Trump campaign events planned for blue states.`\
 https://nytimes.com/2024/10/09/us/politics/trump-madison-square-garden-msg.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832030/2024/10/09/mlb-diamond-team-broadcast-futur
 **Nearly a Million Civilians Flee War in Lebanon, U.N. Says**\
 `A week into the ground war between Israel and Hezbollah, shelters in Lebanon are filling up beyond capacity, humanitarian officials warned.`\
 https://nytimes.com/2024/10/09/world/middleeast/israel-hezbollah-lebanon.html
-
-**Stay or Go? With Milton Closing In, Some in Florida Make Last-Minute Decisions.**\
-`Those who had not yet evacuated reconsidered as the winds and rains from the incoming hurricane began to pick up on Wednesday.`\
-https://nytimes.com/2024/10/09/us/hurricane-milton-florida-evacuation-last-minute.html
 
