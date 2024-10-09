@@ -1,3 +1,11 @@
+**Shari Redstone Says CBS News ‘Made a Mistake’ in Rebuking Anchor**\
+`CBS News executives had said that Tony Dokoupil’s interview with the writer Ta-Nehisi Coates fell short of editorial standards.`\
+https://nytimes.com/2024/10/09/business/media/ta-nehisi-coates-cbs-interview-shari-redstone.html
+
+**Inter Miami's Gomez named No 1 in MLS's 22 Under-22 list**\
+`Inter Miami midfielder Diego Gomez has been named No 1 in Major League Soccer&#8217;s (MLS) 22 Under-22 series.`\
+https://nytimes.com/athletic/5830870/2024/10/09/diego-gomez-inter-miami-mls-under-22/
+
 **NFL places Patriots' Jabrill Peppers on commissioner exempt list**\
 `As long as Peppers is on the commissioners' list, he is not allowed to practice with the team or attend games, but he will still be paid.`\
 https://nytimes.com/athletic/5831325/2024/10/09/nfl-patriots-jabrill-peppers-commissioners-list/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/09/weather/florida-milton-evacuations-jail.html
 **The Windup: Two teams could go home today**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5831315/2024/10/09/dodgers-padres-mlb-playoffs-the-windup/
-
-**Very Versatile Vegetable Pajeon**\
-`These crispy Korean scallion pancakes can be made with pretty much whatever vegetables you have on hand.`\
-https://nytimes.com/2024/10/09/dining/very-versatile-vegetable-pajeon.html
-
-**How Will Howard's big-game experience helps Ohio State in its biggest test yet**\
-`Howard has played in big games before. How will his experience help as No. 2 Ohio State visits No. 3 Oregon in his biggest game yet?`\
-https://nytimes.com/athletic/5831214/2024/10/09/will-howard-ohio-state-football-oregon-ducks/
 
