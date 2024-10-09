@@ -30,7 +30,7 @@ https://nytimes.com/2024/10/09/us/peter-dodge-ashes-hurricane-milton.html
 `Pitching changes in the second inning, pinch hitters in the second and third — it's not a standard series, but it's going well for Detroit.`\
 https://nytimes.com/athletic/5832165/2024/10/09/tigers-guardians-score-game-3-mlb-playoffs-takeaways/
 
-**Former Sheffield United defender Baldock found dead, aged 31**\
+**George Baldock found dead, aged 31**\
 `Former Sheffield United defender George Baldock has been found dead at his home in Athens, Greece, at the age of 31.`\
 https://nytimes.com/athletic/5832089/2024/10/09/george-baldock-dies-sheffield-united/
 
