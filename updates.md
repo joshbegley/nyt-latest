@@ -1,3 +1,15 @@
+**Mets' Sean Manaea delivers sparkling performance with a heavy heart**\
+`Mets manager Carlos Mendoza said: 'His mound presence, his demeanor, like there was something different about him today."`\
+https://nytimes.com/athletic/5830130/2024/10/08/mets-sean-manaea-nlds/
+
+**The Phillies look beatable. Everything they've built is teetering on the edge. Now what?**\
+`The Phillies have to win two games in three days or it's over a round earlier than it was in 2023, which ended a round earlier than 2022.`\
+https://nytimes.com/athletic/5830161/2024/10/08/phillies-playoffs-elimination-mets/
+
+**Mets take advantage of raucous atmosphere to move within 1 win of NLCS**\
+`Pete Alonso hit his third homer in four games, all of them the other way: “He’s a different kind of strong.”`\
+https://nytimes.com/athletic/5830118/2024/10/08/mets-nlds-pete-alonso-sean-manaea/
+
 **U.S. Outlines Google Search Changes It’s Weighing in Antitrust Case**\
 `They include making Google’s data available to rivals and forcing it to break off parts of the company, the Justice Department said in a court filing.`\
 https://nytimes.com/2024/10/08/technology/google-search-antitrust.html
