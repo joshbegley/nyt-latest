@@ -1,3 +1,7 @@
+**LIV Golf vs. PGA Tour exhibition set for Dec. 17 in Las Vegas**\
+`The Scheffler/Rory versus Koepka/DeChambeau event has been dubbed “The Showdown.”`\
+https://nytimes.com/athletic/5831488/2024/10/09/dechambeau-koepka-mcilroy-scheffler-the-showdown/
+
 **Submit your questions for Kaitlyn McGrath's next Blue Jays mailbag!**\
 `<p>The Blue Jays&#8217; disappointing season is over and the organization is ready to turn the page, though they are moving forward with the same folks in charge.`\
 https://nytimes.com/athletic/5831530/2024/10/09/blue-jays-mailbag-submission/

@@ -1,3 +1,7 @@
+**LIV Golf vs. PGA Tour exhibition set for Dec. 17 in Las Vegas**\
+`The Scheffler/Rory versus Koepka/DeChambeau event has been dubbed “The Showdown.”`\
+https://nytimes.com/athletic/5831488/2024/10/09/dechambeau-koepka-mcilroy-scheffler-the-showdown/
+
 **Submit your questions for Kaitlyn McGrath's next Blue Jays mailbag!**\
 `<p>The Blue Jays&#8217; disappointing season is over and the organization is ready to turn the page, though they are moving forward with the same folks in charge.`\
 https://nytimes.com/athletic/5831530/2024/10/09/blue-jays-mailbag-submission/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/opinion/donald-trump-cognitive-impairment.html
 **NFL settles racial discrimination lawsuit with reporter Jim Trotter**\
 `Terms of the settlement are not publicly known. The NFL did not immediately respond to a request for comment.`\
 https://nytimes.com/athletic/5831176/2024/10/09/nfl-jim-trotter-lawsuit-settlement/
-
-**Resistance to Public Health, No Longer Fringe, Gains Foothold in G.O.P. Politics**\
-`The merger of the Robert F. Kennedy Jr. and Donald J. Trump campaigns puts the so-called medical freedom movement on the cusp of real power in Washington, with a new slogan: “Make America Healthy Again.”`\
-https://nytimes.com/2024/10/09/us/politics/medical-freedom-public-health-rfk-trump.html
 
