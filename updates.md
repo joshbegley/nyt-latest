@@ -1,3 +1,19 @@
+**Biden and Netanyahu Speak for the First Time in Months as Mideast Crisis Deepens**\
+`The conversation carried the weight of the worst relationship between the United States and Israel in years.`\
+https://nytimes.com/2024/10/09/us/politics/biden-netanyahu-israel.html
+
+**Bears in London: GM Ryan Poles impressed with Caleb Williams' progress**\
+`Poles and Bears president and CEO Kevin Warren addressed the media Wednesday in England, where the Bears are preparing to play the Jaguars.`\
+https://nytimes.com/athletic/5831267/2024/10/09/bears-london-ryan-poles-caleb-williams/
+
+**Trump Repeatedly Referred to Maine’s Female Governor as a Man**\
+`On a call with supporters, the former president incorrectly used masculine pronouns six times while referring to Janet Mills.`\
+https://nytimes.com/2024/10/09/us/politics/trump-maine-governor-gender.html
+
+**Kraken sign Daccord to 5-year extension: What it means**\
+`The 28-year-old goalie had a breakout year last season, his first as a full-time NHL goalie.`\
+https://nytimes.com/athletic/5831303/2024/10/09/seattle-kraken-joey-daccord-extension-salary/
+
 **Where will Drake Maye rank? From Plunkett to Zappe, here's how Patriots' QB starters fared**\
 `A quarterback’s first start is always big news. Sometimes, the debuts are launching pads to long, storied careers. Other times, they aren't.`\
 https://nytimes.com/athletic/5830329/2024/10/09/patriots-drake-maye-starting-quarterbacks/
