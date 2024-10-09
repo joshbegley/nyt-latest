@@ -1,3 +1,11 @@
+**Episode Interruptions**\
+`Jeffrey Lease is struck by inspiration.`\
+https://nytimes.com/2024/10/08/crosswords/daily-puzzle-2024-10-09.html
+
+**Walz Says the Electoral College ‘Needs to Go’**\
+`Gov. Tim Walz of Minnesota suggested at fund-raisers that he backed switching to a national popular vote. His spokesman clarified that this was not the position of Kamala Harris’s campaign.`\
+https://nytimes.com/2024/10/08/us/politics/tim-walz-electoral-college.html
+
 **Seeking Release on Bail, Sean Combs Downplays Risk of Witness Tampering**\
 `In an appeal, lawyers for Mr. Combs wrote that a judge’s decision to withhold bail was not based on evidence that he had sought to interfere with the sex trafficking investigation.`\
 https://nytimes.com/2024/10/08/arts/music/sean-combs-bail-appeal.html
