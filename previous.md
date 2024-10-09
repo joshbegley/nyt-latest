@@ -1,3 +1,7 @@
+**Lakers depth chart and rotation: Who’s in the top 9?**\
+`JJ Redick's starting five is clear, but there is competition — along with injury concerns — among the reserves. `\
+https://nytimes.com/athletic/5823954/2024/10/09/lakers-depth-chart-rotation-redick/
+
 **Flooding Ravages Thai District Known for Elephant Parks**\
 `Two people have died following the intense rains that inundated the city of Chiang Mai and surrounding areas that are popular with tourists.`\
 https://nytimes.com/2024/10/09/world/asia/thailand-flooding-elephants.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/09/us/harris-trump-election
 **Giants Mailbagg, part 2: What immediate moves will Posey make? Can he improve the farm?**\
 `Who might the Giants protect in the Rule 5 draft? Will there be significant shifts in how they approach player development under Posey?`\
 https://nytimes.com/athletic/5828743/2024/10/09/sf-giants-mailbag-offseason-moves-farm-system/
-
-**How Golden Knights' Adin Hill got ready for the biggest season of his life**\
-`Hill's season might propel him to a big contract — or create more doubts about his future.`\
-https://nytimes.com/athletic/5830083/2024/10/09/golden-knights-adin-hill-contract/
 

@@ -1,3 +1,7 @@
+**Lakers depth chart and rotation: Who’s in the top 9?**\
+`JJ Redick's starting five is clear, but there is competition — along with injury concerns — among the reserves. `\
+https://nytimes.com/athletic/5823954/2024/10/09/lakers-depth-chart-rotation-redick/
+
 **Flooding Ravages Thai District Known for Elephant Parks**\
 `Two people have died following the intense rains that inundated the city of Chiang Mai and surrounding areas that are popular with tourists.`\
 https://nytimes.com/2024/10/09/world/asia/thailand-flooding-elephants.html
