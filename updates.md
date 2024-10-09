@@ -1,3 +1,11 @@
+**Bucks camp notebook: Key health updates, 'Camp Connect' and Taurean Prince at power forward**\
+`Bucks coach Doc Rivers said the team expects Gary Trent Jr. to return without missing an extended period after hyperextending his elbow.`\
+https://nytimes.com/athletic/5829169/2024/10/09/milwaukee-bucks-camp-notebook/
+
+**The Athletic FC: Pep Guardiola ally leaving Manchester City. Plus: Jurgen Klopp's new role**\
+`The Premier League champions are facing upheaval, so what next for their manager?`\
+https://nytimes.com/athletic/5830637/2024/10/09/pep-guardiola-jurgen-klopp-red-bull-tafc/
+
 **Mirtle: The 3 big problems with giving a goalie a superstar salary in the NHL**\
 `The goalies of the league may hate to hear it, but there are good reasons they aren't paid like other stars on the ice.`\
 https://nytimes.com/athletic/5829517/2024/10/09/nhl-goalie-salary-contract-swayman-shesterkin/
