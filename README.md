@@ -1,4 +1,4 @@
-**Jimmy Kimmel: Putin is Trump’s ‘KGBFF’**\
+**Jimmy Kimmel: Putin Is Trump’s ‘KGBFF’**\
 `Kimmel shared tidbits from Bob Woodward’s new book, including that Donald Trump had spoken with Vladimir Putin seven times since leaving office — “which is less than Ivanka, but more than Tiffany.”`\
 https://nytimes.com/2024/10/09/arts/television/kimmel-putin-is-trumps-kgbf.html
 
