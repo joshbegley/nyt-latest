@@ -1,3 +1,15 @@
+**Colts' Michael Pittman Jr. to miss extended time with back injury**\
+`Indianapolis is still weighing whether or not Pittman will head to injured reserve, per league sources.`\
+https://nytimes.com/athletic/5832329/2024/10/09/michael-pittman-jr-out-back-injury/
+
+**New Adams Administration Inquiry Focuses on City Leases**\
+`The Manhattan district attorney’s office seized phones from five people, including aides to Mayor Eric Adams, as they returned from a vacation together.`\
+https://nytimes.com/2024/10/09/nyregion/nyc-aides-bribery-investigation-bragg.html
+
+**Grimace Is So Regular Season. Meet the Mets’ Playoff Pumpkin.**\
+`First baseman Pete Alonso picked up a cute and carvable souvenir on a recent trip to Milwaukee. Fans are pinning their postseason hopes on the lucky gourd.`\
+https://nytimes.com/2024/10/09/style/mets-phillies-pete-alonso-pumpkin.html
+
 **Arts groups in Sarasota scramble to protect collections.**\
 `By Javier C. Hernández and Geraldine Fabrikant`\
 https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/arts-groups-in-sarasota-scramble-to-protect-collections
