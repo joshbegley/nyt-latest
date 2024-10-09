@@ -1,3 +1,7 @@
+**Mets take advantage of raucous atmosphere to move within one win of NLCS**\
+`Pete Alonso hit his third homer in four games, all of them the other way: “He’s a different kind of strong.”`\
+https://nytimes.com/athletic/5830118/2024/10/08/mets-nlds-pete-alonso-sean-manaea/
+
 **Courtney Williams leads Lynx past Sun to reach WNBA Finals**\
 `It’s Minnesota's first trip to the finals since 2017 when the Lynx won their fourth WNBA title in seven seasons.`\
 https://nytimes.com/athletic/5830134/2024/10/08/lynx-sun-game-5-result-score/
