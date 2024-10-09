@@ -1,3 +1,15 @@
+**Thursday Briefing: Florida Braces for Hurricane Milton**\
+`Plus, literature’s greatest prize.`\
+https://nytimes.com/2024/10/09/briefing/hurricane-milton-harris-lebanon.html
+
+**‘Joy’ Is Working for Harris, but Can It Close the Deal?**\
+`The vice president needs to speak with voters directly.`\
+https://nytimes.com/2024/10/09/opinion/harriss-trump-joy-polls.html
+
+**MLB, broadcaster near clarity on team fates**\
+`The broadcast futures of at least eight clubs are still uncertain, but that could be changing soon. `\
+https://nytimes.com/athletic/5832030/2024/10/09/mlb-diamond-team-broadcast-futures/
+
 **Nearly a Million Civilians Flee War in Lebanon, U.N. Says**\
 `A week into the ground war between Israel and Hezbollah, shelters in Lebanon are filling up beyond capacity, humanitarian officials warned.`\
 https://nytimes.com/2024/10/09/world/middleeast/israel-hezbollah-lebanon.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/09/nyregion/randalls-island-nyc-migrant-shelter-clos
 **Tom Brady's ownership bid for Raiders to be discussed at owners meeting next week**\
 `If Brady's bid proceeds to a vote, he'll need the approval of 24 of the NFL's 32 owners.`\
 https://nytimes.com/athletic/5831941/2024/10/09/tom-brady-raiders-bid-owners-meeting/
-
-**Pristine Beaches, Art and Retirees Dot Stretch of Coast in Milton’s Path**\
-`The area of Florida from Tampa Bay to Fort Myers is home to millions of people who flock to its museums and barrier islands.`\
-https://nytimes.com/2024/10/09/us/florida-gulf-coast-milton.html
-
-**Colombia 'spied' on before Bolivia match - Lorenzo**\
-`Colombia head coach Nestor Lorenzo claims his side have been &#8220;spied&#8221; on in the build up to their World Cup 2026 qualifier against Bolivia on Thursday.`\
-https://nytimes.com/athletic/5831583/2024/10/09/colomobia-spying-bolivia/
-
-**Brown Rejects Protesters’ Push to Divest Over Israel Ties**\
-`The university made a deal with pro-Palestinian students last spring to consider their demands if they ended a protest encampment. But the university board voted against divestment.`\
-https://nytimes.com/2024/10/09/us/brown-university-divestment-israel-hamas-war.html
 
