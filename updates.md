@@ -1,3 +1,7 @@
+**Seeking Release on Bail, Sean Combs Downplays Risk of Witness Tampering**\
+`In an appeal, lawyers for Mr. Combs wrote that a judge’s decision to withhold bail was not based on evidence that he had sought to interfere with the sex trafficking investigation.`\
+https://nytimes.com/2024/10/08/arts/music/sean-combs-bail-appeal.html
+
 **'Come to the New York Jets': Johnson urges Reddick to end holdout**\
 `Reddick — who lives in Camden, N.J., roughly 80 miles southwest of the Jets' training facility — is holding out for a new deal.`\
 https://nytimes.com/athletic/5829932/2024/10/08/woody-johnsons-haason-reddick-jets-holdout-comments/
