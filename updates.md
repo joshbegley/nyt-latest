@@ -1,3 +1,23 @@
+**Texans place Nico Collins, NFL's leading receiver, on IR**\
+`Collins leads the league in receiving yards (567), is tied for third in receptions (32) and fifth in targets (45).`\
+https://nytimes.com/athletic/5831234/2024/10/09/texans-nico-collins-injured-reserve/
+
+**League execs, coaches react to Jets firing Robert Saleh: 'It doesn’t seem well-thought out'**\
+`"It was probably inevitable, but it's more of the Jets not being able to get out of their own way. I’m not sure what firing (him) now does."`\
+https://nytimes.com/athletic/5829329/2024/10/09/new-york-jets-fired-robert-saleh/
+
+**Silent Hill 2 Was Clumsy, Brutal and Brilliant**\
+`A remake of the 2001 survival horror game sands down the unwieldy combat that made it a powerful, disturbing classic.`\
+https://nytimes.com/2024/10/09/arts/silent-hill-2.html
+
+**LeBrun: Panthers continue to lock up core with Carter Verhaeghe extension — and another Florida discount**\
+`GM Bill Zito on Verhaeghe's new 8-year, $56 million extension: "He kind of embodies what we’ve started to build here."`\
+https://nytimes.com/athletic/5831129/2024/10/09/carter-verhaeghe-extension-panthers-lebrun/
+
+**Scoop City: Saleh failed, but Jets share blame**\
+`Robert Saleh was hired to be a CEO-type leader in New York. It's why he had to go, despite the Jets defensive prowess.`\
+https://nytimes.com/athletic/5831204/2024/10/09/scoop-city-how-saleh-failed-the-jets/
+
 **Who Will Lead Britain’s Conservatives? The Finalists Are a Surprise.**\
 `After an epic election defeat in July, opposition lawmakers have presented their party’s paying members with an unexpected choice of two candidates from the right.`\
 https://nytimes.com/2024/10/09/world/europe/uk-conservative-leadership-contest.html

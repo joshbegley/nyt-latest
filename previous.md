@@ -1,8 +1,24 @@
+**Texans place Nico Collins, NFL's leading receiver, on IR**\
+`Collins leads the league in receiving yards (567), is tied for third in receptions (32) and fifth in targets (45).`\
+https://nytimes.com/athletic/5831234/2024/10/09/texans-nico-collins-injured-reserve/
+
+**League execs, coaches react to Jets firing Robert Saleh: 'It doesn’t seem well-thought out'**\
+`"It was probably inevitable, but it's more of the Jets not being able to get out of their own way. I’m not sure what firing (him) now does."`\
+https://nytimes.com/athletic/5829329/2024/10/09/new-york-jets-fired-robert-saleh/
+
+**Silent Hill 2 Was Clumsy, Brutal and Brilliant**\
+`A remake of the 2001 survival horror game sands down the unwieldy combat that made it a powerful, disturbing classic.`\
+https://nytimes.com/2024/10/09/arts/silent-hill-2.html
+
+**LeBrun: Panthers continue to lock up core with Carter Verhaeghe extension — and another Florida discount**\
+`GM Bill Zito on Verhaeghe's new 8-year, $56 million extension: "He kind of embodies what we’ve started to build here."`\
+https://nytimes.com/athletic/5831129/2024/10/09/carter-verhaeghe-extension-panthers-lebrun/
+
 **Who Will Lead Britain’s Conservatives? The Finalists Are a Surprise.**\
 `After an epic election defeat in July, opposition lawmakers have presented their party’s paying members with an unexpected choice of two candidates from the right.`\
 https://nytimes.com/2024/10/09/world/europe/uk-conservative-leadership-contest.html
 
-**Scoop City: How Saleh failed the Jets**\
+**Scoop City: Saleh failed, but Jets share blame**\
 `Robert Saleh was hired to be a CEO-type leader in New York. It's why he had to go, despite the Jets defensive prowess.`\
 https://nytimes.com/athletic/5831204/2024/10/09/scoop-city-how-saleh-failed-the-jets/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5830461/2024/10/09/macklin-celebrini-debut-sharks/
 **Medical Facilities in Milton’s Path Are Preparing With Closures and Barricades**\
 `Hospitals and nursing homes in Florida have plenty of experience with hurricanes, but officials are aware that Milton may bring more damage than past storms.`\
 https://nytimes.com/2024/10/09/weather/florida-hospitals-storm-closures-preparations.html
-
-**After Floods, Soaring Insurance Rates Become a Hot Election Issue**\
-`Few states elect their insurance commissioners. But in North Carolina, a proposed 42 percent rate hike and Hurricane Helene have raised the stakes in the upcoming election.`\
-https://nytimes.com/2024/10/09/us/insurance-commissioner-hurricane-north-carolina.html
-
-**How Roger Bennett fell in love with the Bears, and the lessons of being a sports fan**\
-`Roger Bennett from "Men in Blazers" became a fan of the Bears growing up in Liverpool and still reveres the team that changed his life.`\
-https://nytimes.com/athletic/5829225/2024/10/09/chicago-bears-roger-bennett-men-in-blazers/
-
-**A Filmmaker Explores Climate and Democracy**\
-`In his next documentary, Michael P. Nash takes on A.I. and how it might be used to address environmental issues.`\
-https://nytimes.com/2024/10/09/world/democracy-film-climate-nash.html
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears have won two in a row ahead of Sunday's game against the Jaguars in London. Share your questions here.`\
-https://nytimes.com/athletic/5831156/2024/10/09/bears-mailbag-questions-35/
 
