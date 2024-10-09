@@ -1,3 +1,7 @@
+**Dodgers again on the brink after disastrous second inning in Game 3**\
+`After squandering a brief lead, the Dodgers are at risk of an early exit for the third consecutive season: "Not a great situation."`\
+https://nytimes.com/athletic/5830431/2024/10/09/dodgers-nlds-padres-game-3-analysis/
+
 **Blackhawks observations: Chicago finally shows life in season-opening loss to Utah**\
 `Chicago showed more fight, structure and offense as the game went along and arguably outplayed Utah in the final half.`\
 https://nytimes.com/athletic/5830214/2024/10/09/blackhawks-season-opening-loss-to-utah/
