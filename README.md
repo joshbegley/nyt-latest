@@ -11,7 +11,7 @@ https://nytimes.com/2024/10/09/opinion/eric-adams-democrats.html
 https://nytimes.com/2024/10/09/us/milton-iphone-texts-satellite-emergency.html
 
 **As Milton Bears Down, the Entire State of Florida is on High Alert**\
-`It is an extraordinary circumstance for the nation’s third most populous state to find itself in, as it attracts more newcomers and sees no end to development.`\
+`Despite repeated tropical storms, the nation’s third most populous state continues to attract more newcomers and sees no end to development.`\
 https://nytimes.com/2024/10/09/us/hurricane-milton-florida-high-alert.html
 
 **Why Hurricane Milton Is Also Causing Tornadoes**\
