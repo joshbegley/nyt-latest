@@ -1,3 +1,11 @@
+**Nobel Prize in Chemistry Is Awarded to 3 Scientists for Work With Proteins**\
+`The award is the third 2024 sciences Nobel to be announced this week.`\
+https://nytimes.com/2024/10/09/science/nobel-prize-chemistry.html
+
+**Iranian Official Heads to Saudi Arabia as Israel Postpones U.S. Meeting**\
+`The Biden administration is dealing with complex dynamics in the Middle East as it tries to keep conflicts involving Israel from escalating further.`\
+https://nytimes.com/2024/10/09/world/middleeast/iran-saudi-arabia-israel.html
+
 **No Lie: George Washington Is Funny Now**\
 `The first president is usually at the margins of popular culture. As a recurring character on “Saturday Night Live” and a trend on TikTok, is he finally having a moment?`\
 https://nytimes.com/2024/10/09/arts/television/snl-nate-bargatze-washingtons-dream.html
