@@ -1,3 +1,19 @@
+**Jonathan Groff, Fresh Off Tony Win, Will Return to Broadway as Bobby Darin**\
+`“Just in Time,” a new musical about the “Mack the Knife” pop singer, will open next spring at Circle in the Square in Manhattan.`\
+https://nytimes.com/2024/10/09/theater/jonathan-groff-bobby-darin-broadway.html
+
+**The Education Crisis Neither Candidate Will Address**\
+`Covid learning loss and chronic absenteeism aren’t going to fix themselves`\
+https://nytimes.com/2024/10/09/opinion/covid-education-crisis-election.html
+
+**My Grandmother Paid for My Sister’s I.V.F. I Feel Ripped Off!**\
+`A reader is miffed to learn that $13,000 was earmarked in her grandmother’s will for a younger sister’s fertility treatments. Should the sister reimburse her siblings?`\
+https://nytimes.com/2024/10/09/style/grandparents-wills-unequal-bequests.html
+
+**How Josh Allen got forced into pressing and how to fix it**\
+`The Texans defense caused an all-time poor performance from Josh Allen.`\
+https://nytimes.com/athletic/5829886/2024/10/09/bills-josh-allen-offense-receivers/
+
 **Lakers depth chart and rotation: Who’s in the top 9?**\
 `JJ Redick's starting five is clear, but there is competition — along with injury concerns — among the reserves. `\
 https://nytimes.com/athletic/5823954/2024/10/09/lakers-depth-chart-rotation-redick/
