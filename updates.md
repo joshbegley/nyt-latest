@@ -1,3 +1,11 @@
+**It’s Crunchtime for Kari Lake in Arizona’s Senate Race**\
+`The Republican firebrand trails in the polls and faces a big financial disadvantage. Wednesday night’s debate may be her last big chance to land a blow against her Democratic opponent.`\
+https://nytimes.com/2024/10/09/us/politics/kari-lake-ruben-gallego-arizona-senate.html
+
+**As Milton Bears Down, the Entire State of Florida is on High Alert**\
+`Despite repeated tropical storms, the nation’s third most populous state continues to attract more newcomers and sees no end to development.`\
+https://nytimes.com/2024/10/09/us/hurricane-milton-florida-high-alert.html
+
 **A Brioche That Will Make a Believer Out of You**\
 `You don’t have to dedicate your life to the ancient practice of baking to yield a stunning loaf. You may just find you want to.`\
 https://nytimes.com/2024/10/09/magazine/best-brioche-recipe.html

@@ -1,3 +1,7 @@
+**It’s Crunchtime for Kari Lake in Arizona’s Senate Race**\
+`The Republican firebrand trails in the polls and faces a big financial disadvantage. Wednesday night’s debate may be her last big chance to land a blow against her Democratic opponent.`\
+https://nytimes.com/2024/10/09/us/politics/kari-lake-ruben-gallego-arizona-senate.html
+
 **A Brioche That Will Make a Believer Out of You**\
 `You don’t have to dedicate your life to the ancient practice of baking to yield a stunning loaf. You may just find you want to.`\
 https://nytimes.com/2024/10/09/magazine/best-brioche-recipe.html
@@ -11,7 +15,7 @@ https://nytimes.com/2024/10/09/opinion/eric-adams-democrats.html
 https://nytimes.com/2024/10/09/us/milton-iphone-texts-satellite-emergency.html
 
 **As Milton Bears Down, the Entire State of Florida is on High Alert**\
-`It is an extraordinary circumstance for the nation’s third most populous state to find itself in, as it attracts more newcomers and sees no end to development.`\
+`Despite repeated tropical storms, the nation’s third most populous state continues to attract more newcomers and sees no end to development.`\
 https://nytimes.com/2024/10/09/us/hurricane-milton-florida-high-alert.html
 
 **Why Hurricane Milton Is Also Causing Tornadoes**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/us/politics/maryland-senate-hogan-alsobrooks.html
 **Israeli strikes in Lebanon are driving widespread displacement and a humanitarian crisis, the U.N. says.**\
 `More than 600,000 people have fled their homes in Lebanon, and over 300,000 others have left the country since the war broke out, the U.N. said.`\
 https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/airstrikes-displacement-iebanon-un
-
-**Splintered Supreme Court Wrestles With Case of Oklahoma Death Row Inmate**\
-`Some justices said the court was powerless to grant relief to the inmate, Richard Glossip. Others seemed ready to order a new trial or at least an evidentiary hearing.`\
-https://nytimes.com/2024/10/09/us/supreme-court-richard-glossip-death-row-oklahoma.html
 
