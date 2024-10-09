@@ -1,3 +1,7 @@
+**A Meteorologist’s Ashes Took a Final Mission Into Hurricane Milton**\
+`Peter Dodge, who was involved in research as a NOAA Hurricane Hunter, died last year. On Tuesday, as a tribute to his life’s work, his ashes were deposited in the eye of the hurricane.`\
+https://nytimes.com/2024/10/09/us/peter-dodge-ashes-hurricane-milton.html
+
 **Tigers ride 'pitching chaos' to ALDS edge**\
 `Pitching changes in the second inning, pinch hitters in the second and third — it's not a standard series, but it's going well for Detroit.`\
 https://nytimes.com/athletic/5832165/2024/10/09/tigers-guardians-score-game-3-mlb-playoffs-takeaways/
