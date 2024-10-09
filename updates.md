@@ -1,3 +1,7 @@
+**How Roger Bennett fell in love with the Bears, and the lessons of being a sports fan**\
+`Roger Bennett from "Men in Blazers" became a fan of the Bears growing up in Liverpool and still reveres the team that changed his life.`\
+https://nytimes.com/athletic/5829225/2024/10/09/chicago-bears-roger-bennett-men-in-blazers/
+
 **After Floods, Soaring Insurance Rates Become a Hot Election Issue**\
 `Few states elect their insurance commissioners. But in North Carolina, a proposed 42 percent rate hike and Hurricane Helene have raised the stakes in the upcoming election.`\
 https://nytimes.com/2024/10/09/us/insurance-commissioner-hurricane-north-carolina.html
