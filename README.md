@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5831720/2024/10/09/andi-sullivan-spirit-acl-injury/
 `Larry Hogan, the popular former Republican governor, and Angela Alsobrooks, the Prince George’s County executive, both describe their race as critical to the future of the Senate.`\
 https://nytimes.com/2024/10/09/us/politics/maryland-senate-hogan-alsobrooks.html
 
-**Israeli strikes in Lebanon have displaced over 900,000 people and are fueling a humanitarian crisis, the U.N. says.**\
+**Israeli strikes in Lebanon are driving widespread displacement and a humanitarian crisis, the U.N. says.**\
 `More than 600,000 people have fled their homes in Lebanon, and over 300,000 others have left the country since the war broke out, the U.N. said.`\
 https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/airstrikes-displacement-iebanon-un
 
