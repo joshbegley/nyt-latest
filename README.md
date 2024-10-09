@@ -1,3 +1,11 @@
+**Nearly a Million Civilians Flee War in Lebanon, U.N. Says**\
+`A week into the ground war between Israel and Hezbollah, shelters in Lebanon are filling up beyond capacity, humanitarian officials warned.`\
+https://nytimes.com/2024/10/09/world/middleeast/israel-hezbollah-lebanon.html
+
+**Stay or Go? With Milton Closing In, Some in Florida Make Last-Minute Decisions.**\
+`Those who had not yet evacuated reconsidered as the winds and rains from the incoming hurricane began to pick up on Wednesday.`\
+https://nytimes.com/2024/10/09/us/hurricane-milton-florida-evacuation-last-minute.html
+
 **Ratan Tata, Whose Indian Business Empire Went Global, Dies at 86**\
 `The patriarch of a powerful family, his Tata Group put an indelible stamp on Indian life while acquiring British brand names like Tetley Tea and Jaguar.`\
 https://nytimes.com/2024/10/09/business/ratan-tata-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5831583/2024/10/09/colomobia-spying-bolivia/
 **Brown Rejects Protesters’ Push to Divest Over Israel Ties**\
 `The university made a deal with pro-Palestinian students last spring to consider their demands if they ended a protest encampment. But the university board voted against divestment.`\
 https://nytimes.com/2024/10/09/us/brown-university-divestment-israel-hamas-war.html
-
-**49ers mailbag: A (different) Jets coach to watch and the most obvious trade target**\
-`Among this week's questions: Did Ricky Pearsall have a setback and why Brock Purdy and the 49ers are using play action less this season?`\
-https://nytimes.com/athletic/5831717/2024/10/09/49ers-trade-targets-haason-reddick/
-
-**Davante Adams likely out in Week 6 vs. Steelers but 'is still a Raider'**\
-`The hamstring injury has kept Adams off the field since Week 3 and trade discussions have ramped up since then.`\
-https://nytimes.com/athletic/5831870/2024/10/09/davante-adams-raiders-injury-trade/
 
