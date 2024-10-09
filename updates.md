@@ -1,3 +1,7 @@
+**Arts groups in Sarasota scramble to protect collections.**\
+`By Javier C. Hernández and Geraldine Fabrikant`\
+https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/arts-groups-in-sarasota-scramble-to-protect-collections
+
 **Jayden Daniels dismisses Lamar Jackson comparisons: 'We're 2 different players'**\
 `“I don't like when people really try to compare me to Lamar and vice versa,” Daniels said following Wednesday's practice.`\
 https://nytimes.com/athletic/5832255/2024/10/09/jayden-daniels-lamar-jackson-comparison-comments/
