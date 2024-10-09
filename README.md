@@ -1,3 +1,7 @@
+**How Josh Allen got forced into pressing and how to fix it**\
+`The Texans defense caused an all-time poor performance from Josh Allen.`\
+https://nytimes.com/athletic/5829886/2024/10/09/bills-josh-allen-offense-receivers/
+
 **Lakers depth chart and rotation: Who’s in the top 9?**\
 `JJ Redick's starting five is clear, but there is competition — along with injury concerns — among the reserves. `\
 https://nytimes.com/athletic/5823954/2024/10/09/lakers-depth-chart-rotation-redick/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/09/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Campaigns Swarm Sun Belt, With Early Voting Starting in Arizona**\
 `Senator JD Vance and Gov. Tim Walz are both in Arizona today. Former President Donald J. Trump will be in Pennsylvania, a state both campaigns see as crucial to winning the election.`\
 https://nytimes.com/live/2024/10/09/us/harris-trump-election
-
-**Giants Mailbagg, part 2: What immediate moves will Posey make? Can he improve the farm?**\
-`Who might the Giants protect in the Rule 5 draft? Will there be significant shifts in how they approach player development under Posey?`\
-https://nytimes.com/athletic/5828743/2024/10/09/sf-giants-mailbag-offseason-moves-farm-system/
 
