@@ -1,3 +1,7 @@
+**Ravens hire Dean Pees in senior advisor role to Zach Orr's staff**\
+`Pees, who coached Orr as a player and was the Ravens defensive coordinator from 2012 to 2017, will start this week.`\
+https://nytimes.com/athletic/5831574/2024/10/09/dean-pees-ravens-senior-advisor-zach-orr/
+
 **Inside Biden’s ‘War’ Room: Heads of State and Heads of Hair**\
 `Bob Woodward doesn’t know which story he wants to tell in his latest presidential chronicle.`\
 https://nytimes.com/2024/10/09/books/review/war-bob-woodward.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828608/2024/10/09/aaron-rodgers-robert-saleh-firin
 **Letitia James vs. Andrew Cuomo for New York City Mayor? It Could Happen.**\
 `With Mayor Eric Adams’s future in doubt, former Gov. Andrew Cuomo and his adversary Letitia James, the state attorney general, could find themselves in a battle for the city’s top job.`\
 https://nytimes.com/2024/10/09/nyregion/tish-james-cuomo-mayor.html
-
-**NFL best bets Week 6: Commanders cover train keeps rolling**\
-`Austin Mock has a few bets for NFL Week 6 action, including going with the Washington Commanders for another week.`\
-https://nytimes.com/athletic/5831493/2024/10/09/nfl-best-bets-week-6-commanders-patriots-jets/
 
