@@ -1,3 +1,15 @@
+**Why Kennedy Is Useful to Trump’s Strategy**\
+`It’s a bid for a specific kind of persuadable voter.`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/kennedy-trump-strategy
+
+**Donald L. Barlett, 88, Dies; Prize Winning Reporter Bared Corruption**\
+`Over four decades, he and his colleague James B. Steele at The Philadelphia Inquirer gained renown for resourceful, often explosive investigative journalism.`\
+https://nytimes.com/2024/10/09/business/media/donald-l-barlett-dead.html
+
+**Pro-Palestinian Group at Columbia Now Backs ‘Armed Resistance’ by Hamas**\
+`Columbia University Apartheid Divest has withdrawn an apology it made last spring for a member who said “Zionists don’t deserve to live.”`\
+https://nytimes.com/2024/10/09/nyregion/columbia-pro-palestinian-group-hamas.html
+
 **Saints QB Spencer Rattler starting vs. Buccaneers**\
 `"We talked a lot as a staff about what we felt like was the best thing for us, to give us the best chance to win," Dennis Allen said.`\
 https://nytimes.com/athletic/5832210/2024/10/09/spencer-rattler-saints-starting-quarterback/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/09/briefing/hurricane-milton-florida-harris-billion-
 **Alabama notebook: Avoiding a Vanderbilt hangover, injury updates and more**\
 `Alabama coach Kalen DeBoer has historically thrived in weeks after losses. Plus, injuries are thinning the Tide's receiver depth chart.`\
 https://nytimes.com/athletic/5832023/2024/10/09/alabama-crimson-tide-south-carolina-vanderbilt/
-
-**A gun control group’s ads pair firearm restrictions and abortion as public health matters.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/10/09/us/harris-trump-election/a-gun-control-groups-ads-pair-firearm-restrictions-and-abortion-as-public-health-matters
-
-**The Many Meanings of Kamala Harris’s Glock**\
-`In a “60 Minutes” interview this week, the vice president shared the kind of gun she owns. Its associations with law enforcement and pop culture make it a potent symbol.`\
-https://nytimes.com/2024/10/09/style/kamala-harris-glock-guns.html
-
-**Jeff Ulbrich's to-do list: From Nathaniel Hackett and Aaron Rodgers to (possibly) Davante Adams**\
-`The New York Jets' interim coach faces a half-dozen challenges as he tries to get the season back on track.`\
-https://nytimes.com/athletic/5831973/2024/10/09/jeff-ulbrich-new-york-jets-interim-coach-robert-saleh-firing/
 

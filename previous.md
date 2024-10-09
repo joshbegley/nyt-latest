@@ -1,3 +1,7 @@
+**Saints QB Spencer Rattler starting vs. Buccaneers**\
+`"We talked a lot as a staff about what we felt like was the best thing for us, to give us the best chance to win," Dennis Allen said.`\
+https://nytimes.com/athletic/5832210/2024/10/09/spencer-rattler-saints-starting-quarterback/
+
 **A Meteorologist’s Ashes Took a Final Mission Into Hurricane Milton**\
 `Peter Dodge, who was involved in research as a NOAA Hurricane Hunter, died last year. On Tuesday, as a tribute to his life’s work, his ashes were deposited in the eye of the hurricane.`\
 https://nytimes.com/2024/10/09/us/peter-dodge-ashes-hurricane-milton.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/style/kamala-harris-glock-guns.html
 **Jeff Ulbrich's to-do list: From Nathaniel Hackett and Aaron Rodgers to (possibly) Davante Adams**\
 `The New York Jets' interim coach faces a half-dozen challenges as he tries to get the season back on track.`\
 https://nytimes.com/athletic/5831973/2024/10/09/jeff-ulbrich-new-york-jets-interim-coach-robert-saleh-firing/
-
-**Trump Plans Rally at Madison Square Garden**\
-`The rally, reportedly set for late October, is part of a series of Trump campaign events planned for blue states.`\
-https://nytimes.com/2024/10/09/us/politics/trump-madison-square-garden-msg.html
 

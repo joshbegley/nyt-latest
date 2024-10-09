@@ -1,3 +1,7 @@
+**Saints QB Spencer Rattler starting vs. Buccaneers**\
+`"We talked a lot as a staff about what we felt like was the best thing for us, to give us the best chance to win," Dennis Allen said.`\
+https://nytimes.com/athletic/5832210/2024/10/09/spencer-rattler-saints-starting-quarterback/
+
 **A Meteorologist’s Ashes Took a Final Mission Into Hurricane Milton**\
 `Peter Dodge, who was involved in research as a NOAA Hurricane Hunter, died last year. On Tuesday, as a tribute to his life’s work, his ashes were deposited in the eye of the hurricane.`\
 https://nytimes.com/2024/10/09/us/peter-dodge-ashes-hurricane-milton.html
