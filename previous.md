@@ -1,3 +1,7 @@
+**Madueke on Palmer partnership: 'He's got a killer pass, I'm very dynamic'**\
+`Noni Madueke believes “the sky is the limit” for his close friend and Chelsea team-mate Cole Palmer as they prepare to play for the England senior side together for the first time.`\
+https://nytimes.com/athletic/5829128/2024/10/09/noni-madueke-cole-palmer-england/
+
 **What you need to know from the MLB playoffs: Mets win, Dodgers on the brink**\
 `Sean Manaea dazzled for the Mets, and the Padres' bullpen shoved against the Dodgers. Here's everything that happened on Tuesday. `\
 https://nytimes.com/athletic/5830267/2024/10/09/mlb-postseason-2024-what-you-need-to-know/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5812319/2024/10/09/chris-kirkland-england-goalkeepe
 **Both sides are claiming victory, but the Manchester City APT verdict hasn't changed anyone's mind**\
 `There is still room for claim and counter-claim from both sides but the wait for the big decision goes on`\
 https://nytimes.com/athletic/5826502/2024/10/09/manchester-city-apt-decision-verdict/
-
-**Raul is still coaching Real Madrid's 'B' team. Will their legendary striker ever make the step up?**\
-`Madrid's relationship with their record appearance maker is complicated. After five years managing the reserves, his future appears unclear`\
-https://nytimes.com/athletic/5828428/2024/10/09/raul-real-madrid-castilla-future/
 

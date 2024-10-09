@@ -1,3 +1,7 @@
+**Madueke on Palmer partnership: 'He's got a killer pass, I'm very dynamic'**\
+`Noni Madueke believes “the sky is the limit” for his close friend and Chelsea team-mate Cole Palmer as they prepare to play for the England senior side together for the first time.`\
+https://nytimes.com/athletic/5829128/2024/10/09/noni-madueke-cole-palmer-england/
+
 **What you need to know from the MLB playoffs: Mets win, Dodgers on the brink**\
 `Sean Manaea dazzled for the Mets, and the Padres' bullpen shoved against the Dodgers. Here's everything that happened on Tuesday. `\
 https://nytimes.com/athletic/5830267/2024/10/09/mlb-postseason-2024-what-you-need-to-know/
