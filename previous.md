@@ -1,3 +1,11 @@
+**Stones 'speechless' after being named England captain**\
+`John Stones will lead England out for the first time at Wembley on Thursday, as he captains England in the absence of Harry Kane.`\
+https://nytimes.com/athletic/5831944/2024/10/09/john-stones-england-captain-greece/
+
+**In an Era of Mistrust and Upheaval, Democracy Seeks a Path Forward**\
+`The Athens Democracy Forum last week explored the world’s schisms in the face of threats from technology and shifts in the world order.`\
+https://nytimes.com/2024/10/09/world/athens-democracy-forum-analysis.html
+
 **Migrant Shelter on Randall’s Island Will Close in February, Adams Says**\
 `The shelter complex, which was built atop recreational fields, will be gradually emptied and the fields restored for public use, the mayor’s office said.`\
 https://nytimes.com/2024/10/09/nyregion/randalls-island-nyc-migrant-shelter-closing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5831870/2024/10/09/davante-adams-raiders-injury-tra
 **David Anfam, Leading Scholar of Abstract Expressionism, Dies at 69**\
 `He wrote seminal texts on the artists Clyfford Still and Mark Rothko, in a jargon-free style that won him readers far outside the art world.`\
 https://nytimes.com/2024/10/09/arts/david-anfam-dead.html
-
-**Man Charged in South Africa Mass Shooting That Left 18 Dead**\
-`The killings of 18 members of one family assembled for a gathering last month are among an increasing number of mass shootings in South Africa.`\
-https://nytimes.com/2024/10/09/world/africa/mass-shooting-south-africa-charges.html
-
-**Wolfsburg suspend striker Behrens over homophobic comments**\
-`Wolfsburg have suspended striker Kevin Behrens for making a homophobic comment during an autograph-signing session.`\
-https://nytimes.com/athletic/5831728/2024/10/09/wolfsburg-suspend-striker-kevin-behrens-homophobic/
 

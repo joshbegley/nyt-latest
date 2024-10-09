@@ -1,3 +1,11 @@
+**Stones 'speechless' after being named England captain**\
+`John Stones will lead England out for the first time at Wembley on Thursday, as he captains England in the absence of Harry Kane.`\
+https://nytimes.com/athletic/5831944/2024/10/09/john-stones-england-captain-greece/
+
+**In an Era of Mistrust and Upheaval, Democracy Seeks a Path Forward**\
+`The Athens Democracy Forum last week explored the world’s schisms in the face of threats from technology and shifts in the world order.`\
+https://nytimes.com/2024/10/09/world/athens-democracy-forum-analysis.html
+
 **Migrant Shelter on Randall’s Island Will Close in February, Adams Says**\
 `The shelter complex, which was built atop recreational fields, will be gradually emptied and the fields restored for public use, the mayor’s office said.`\
 https://nytimes.com/2024/10/09/nyregion/randalls-island-nyc-migrant-shelter-closing.html
