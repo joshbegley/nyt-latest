@@ -1,3 +1,7 @@
+**Packers welcome Romeo Doubs back from suspension, but how open are their arms?**\
+`Doubs returned to practice on Wednesday after skipping last Thursday and Friday, which led to his one-game suspension last weekend.`\
+https://nytimes.com/athletic/5832266/2024/10/09/romeo-doubs-packers-return-to-practice/
+
 **Here’s Why Forecasters Still Don’t Know Where Exactly Milton Will Hit**\
 `The National Hurricane Center urged Florida resident not to fixate on the exact location because the dangers will be widespread.`\
 https://nytimes.com/2024/10/09/weather/hurricane-milton-landfall-florida.html
