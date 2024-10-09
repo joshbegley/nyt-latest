@@ -1,3 +1,7 @@
+**Dodgers again on the brink after disastrous second inning in Game 3**\
+`After squandering a brief lead, the Dodgers are at risk of an early exit for the third consecutive season: "Not a great situation."`\
+https://nytimes.com/athletic/5830431/2024/10/09/dodgers-nlds-padres-game-3-analysis/
+
 **Andrew Garfield Believes Hearts Are Meant to Break**\
 `The actor speaks to Anna Martin, host of the Modern Love Podcast, about his new movie “ We Live in Time,” and why heartbreak is a path to vitality.`\
 https://nytimes.com/video/podcasts/100000009750796/modern-love-andrew-garfield.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829128/2024/10/09/noni-madueke-cole-palmer-england
 **What you need to know from the MLB playoffs: Mets win, Dodgers on the brink**\
 `Sean Manaea dazzled for the Mets, and the Padres' bullpen shoved against the Dodgers. Here's everything that happened on Tuesday. `\
 https://nytimes.com/athletic/5830267/2024/10/09/mlb-postseason-2024-what-you-need-to-know/
-
-**'I could never play for another English club - I'm a cockney now, West Ham means too much'**\
-`The Spanish winger fell in love with London so much he calls himself 'a cockney' - despite leaving he's still playing a part for West Ham`\
-https://nytimes.com/athletic/5781922/2024/10/09/pablo-fornals-west-ham-real-betis-interview/
 
