@@ -1,3 +1,7 @@
+**‘Daytime Revolution’ Review: Coffee and Counterculture**\
+`John Lennon and Yoko Ono invade middle-American living rooms in this cute but shallow documentary.`\
+https://nytimes.com/2024/10/09/movies/daytime-revolution-review.html
+
 **Inside Donald Trump’s Rallies**\
 `We explain the nine main things that happen at each rally.`\
 https://nytimes.com/2024/10/09/briefing/inside-donald-trumps-rallies.html
