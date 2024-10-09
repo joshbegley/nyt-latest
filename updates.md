@@ -1,3 +1,15 @@
+**Broadway Theater Owners, Facing Backlash, to Dim All Lights for Gavin Creel**\
+`The landlords also said they would reconsider their process for determining who to honor with full and partial dimmings.`\
+https://nytimes.com/2024/10/09/theater/broadway-lights-dim-gavin-creel.html
+
+**Voices from the Swing States**\
+`In the months leading up to the 2024 election, we traveled to the seven states most likely to decide the election. We talked to voters about the rising cost of housing, immigration, abortion and more.`\
+https://nytimes.com/interactive/2024/10/09/us/elections/swing-states-voters.html
+
+**Google Triumphs on the Nobel Stage as Tough Antitrust Fight Looms**\
+`Two of the company’s A.I. researchers shared the Nobel Prize in Chemistry, just hours after the Justice Department started spelling out plans that could lead to its break up.`\
+https://nytimes.com/2024/10/09/technology/google-nobel-prize-antitrust.html
+
 **It’s Crunchtime for Kari Lake in Arizona’s Senate Race**\
 `The Republican firebrand trails in the polls and faces a big financial disadvantage. Wednesday night’s debate may be her last big chance to land a blow against her Democratic opponent.`\
 https://nytimes.com/2024/10/09/us/politics/kari-lake-ruben-gallego-arizona-senate.html
