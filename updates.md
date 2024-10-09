@@ -1,3 +1,11 @@
+**Kyle Busch on maintaining NASCAR success, son Brexton's racing and more: 12 Questions**\
+`Kyle Busch on longevity in the sport, dabbling in NASCAR media, what's next for his son Brexton's career and much more.`\
+https://nytimes.com/athletic/5828220/2024/10/09/kyle-busch-nascar-12-questions/
+
+**Wimbledon jettisons line judges for electronic line calling from 2025**\
+`It leaves the French Open as the only Grand Slam tournament using human eyes to determine whether a ball is in or out.`\
+https://nytimes.com/athletic/5830648/2024/10/09/wimbledon-line-judges-electronic-line-calling/
+
 **With Biden Absent, Meeting of Western Leaders on Ukraine Is Postponed**\
 `A gathering in Germany intended to show support for Ukraine was put off after President Biden canceled his trip to deal with Hurricane Milton.`\
 https://nytimes.com/2024/10/09/world/europe/us-ukraine-biden-ramstein.html
