@@ -1,3 +1,7 @@
+**Lily Ebert, Holocaust Survivor, Author and TikTok Star, Dies at 100**\
+`She survived Auschwitz, wrote a best-selling memoir, “Lily’s Promise,” and spoke to a following of 2 million fans on TikTok.`\
+https://nytimes.com/2024/10/09/books/lily-ebert-dead.html
+
 **What Devin White's release says about the Eagles linebackers room**\
 `Devin White had high hopes for his time with the Eagles.`\
 https://nytimes.com/athletic/5829478/2024/10/09/philadelphia-eagles-linebackers-devin-white-release/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/theater/jonathan-groff-bobby-darin-broadway.html
 **The Education Crisis Neither Candidate Will Address**\
 `Covid learning loss and chronic absenteeism aren’t going to fix themselves`\
 https://nytimes.com/2024/10/09/opinion/covid-education-crisis-election.html
-
-**My Grandmother Paid for My Sister’s I.V.F. I Feel Ripped Off!**\
-`A reader is miffed to learn that $13,000 was earmarked in her grandmother’s will for a younger sister’s fertility treatments. Should the sister reimburse her siblings?`\
-https://nytimes.com/2024/10/09/style/grandparents-wills-unequal-bequests.html
 
