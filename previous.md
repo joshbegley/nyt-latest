@@ -1,3 +1,23 @@
+**Mozambique’s 2024 National Elections: What to Know**\
+`Four candidates are vying for the presidency in a country that has faced a yearslong ISIS-backed insurgency. The election is also a test of the sway of former independence movements.`\
+https://nytimes.com/2024/10/09/world/africa/mozambique-elections-what-to-know.html
+
+**Designer Dorm Rooms**\
+`What do you think of a new trend in which college students are hiring interior designers to makeover their dorm rooms?`\
+https://nytimes.com/2024/10/09/learning/designer-dorm-rooms.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/09/crosswords/spelling-bee-forum.html
+
+**$160 Million Later, New Pool and Rink Will Replace Central Park Eyesore**\
+`The new Harlem Meer Center, opening early next year, will serve the largely Black and Latino communities surrounding the northern end of the park.`\
+https://nytimes.com/2024/10/09/nyregion/central-park-harlem-meer-center.html
+
+**Why This Rainbow Gel Manicure (With Chrome!) Costs $255**\
+`Pricing for soft gel nail extensions depends on the length, size and brand, as well as any nail art. In New York City, soft gels can start between $100 and $400.`\
+https://nytimes.com/2024/10/09/nyregion/nyc-soft-gel-nail-extensions-price.html
+
 **Dodgers again on the brink after disastrous second inning in Game 3**\
 `After squandering a brief lead, the Dodgers are at risk of an early exit for the third consecutive season: "Not a great situation."`\
 https://nytimes.com/athletic/5830431/2024/10/09/dodgers-nlds-padres-game-3-analysis/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5828740/2024/10/09/chelsea-sonia-bompastor-stamford
 **Jimmy Kimmel: Putin Is Trump’s ‘KGBFF’**\
 `Kimmel shared tidbits from Bob Woodward’s new book, including that Donald Trump had spoken with Vladimir Putin seven times since leaving office — “which is less than Ivanka, but more than Tiffany.”`\
 https://nytimes.com/2024/10/09/arts/television/kimmel-putin-is-trumps-kgbf.html
-
-**Blackhawks observations: Chicago finally shows life in season-opening loss to Utah**\
-`Chicago showed more fight, structure and offense as the game went along and arguably outplayed Utah in the final half.`\
-https://nytimes.com/athletic/5830214/2024/10/09/blackhawks-season-opening-loss-to-utah/
-
-**As I Am: L.G.B.T.Q. in Japan**\
-`‘We don’t want to send the message to the younger generation that we’re people who have to hide ourselves.’`\
-https://nytimes.com/2024/10/09/world/asia/lgbtq-japan.html
-
-**The Minnesota Lynx return to the WNBA Finals. Can they play up to their legacy?**\
-`"We're happy that we're going to the finals," Cheryl Reeve said. "But we're not going to be just happy to be there."`\
-https://nytimes.com/athletic/5830299/2024/10/09/minnesota-lynx-wnba-finals-legacy/
-
-**Madueke on Palmer partnership: 'He's got a killer pass, I'm very dynamic'**\
-`Noni Madueke believes “the sky is the limit” for his close friend and Chelsea team-mate Cole Palmer as they prepare to play for the England senior side together for the first time.`\
-https://nytimes.com/athletic/5829128/2024/10/09/noni-madueke-cole-palmer-england/
-
-**What you need to know from the MLB playoffs: Mets win, Dodgers on the brink**\
-`Sean Manaea dazzled for the Mets, and the Padres' bullpen shoved against the Dodgers. Here's everything that happened on Tuesday. `\
-https://nytimes.com/athletic/5830267/2024/10/09/mlb-postseason-2024-what-you-need-to-know/
 
