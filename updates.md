@@ -1,3 +1,15 @@
+**Why Kennedy Is Useful to Trump’s Strategy**\
+`It’s a bid for a specific kind of persuadable voter.`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/kennedy-trump-strategy
+
+**Donald L. Barlett, 88, Dies; Prize Winning Reporter Bared Corruption**\
+`Over four decades, he and his colleague James B. Steele at The Philadelphia Inquirer gained renown for resourceful, often explosive investigative journalism.`\
+https://nytimes.com/2024/10/09/business/media/donald-l-barlett-dead.html
+
+**Pro-Palestinian Group at Columbia Now Backs ‘Armed Resistance’ by Hamas**\
+`Columbia University Apartheid Divest has withdrawn an apology it made last spring for a member who said “Zionists don’t deserve to live.”`\
+https://nytimes.com/2024/10/09/nyregion/columbia-pro-palestinian-group-hamas.html
+
 **Saints QB Spencer Rattler starting vs. Buccaneers**\
 `"We talked a lot as a staff about what we felt like was the best thing for us, to give us the best chance to win," Dennis Allen said.`\
 https://nytimes.com/athletic/5832210/2024/10/09/spencer-rattler-saints-starting-quarterback/
