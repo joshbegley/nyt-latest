@@ -1,3 +1,11 @@
+**Jurgen Klopp to become head of global soccer at Red Bull**\
+`Jurgen Klopp is to become the new head of global soccer at Red Bull.`\
+https://nytimes.com/athletic/5830469/2024/10/09/jurgen-klopp-red-bull/
+
+**Manny Machado's heads-up play helps spark Padres in NLDS Game 3**\
+`Machado had instigated a rare six-run inning. Yet, afterward, there was little surprise among San Diego's players.`\
+https://nytimes.com/athletic/5829878/2024/10/09/manny-machado-sparks-padres-nlds-game-3/
+
 **Mozambique’s 2024 National Elections: What to Know**\
 `Four candidates are vying for the presidency in a country that has faced a yearslong ISIS-backed insurgency. The election is also a test of the sway of former independence movements.`\
 https://nytimes.com/2024/10/09/world/africa/mozambique-elections-what-to-know.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000009750796/modern-love-andrew-garfield.h
 **Word of the Day: exorbitant**\
 `This word has appeared in 158 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/09/learning/word-of-the-day-exorbitant.html
-
-**Bompastor's Chelsea UWCL introduction - and why Stamford Bridge was nearly empty**\
-`Chelsea overcame Real Madrid 3-2 on Tuesday night, but Stamford Bridge was sparsely attended`\
-https://nytimes.com/athletic/5828740/2024/10/09/chelsea-sonia-bompastor-stamford-bridge/
-
-**Jimmy Kimmel: Putin Is Trump’s ‘KGBFF’**\
-`Kimmel shared tidbits from Bob Woodward’s new book, including that Donald Trump had spoken with Vladimir Putin seven times since leaving office — “which is less than Ivanka, but more than Tiffany.”`\
-https://nytimes.com/2024/10/09/arts/television/kimmel-putin-is-trumps-kgbf.html
 
