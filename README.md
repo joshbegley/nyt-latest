@@ -1,3 +1,11 @@
+**Hamptons Town Accused of Illegally Blocking Affordable Housing Plan**\
+`The Town of Southampton, an affluent Long Island enclave, violated housing laws by rejecting the project, which would have helped veterans and disabled people, the suit says.`\
+https://nytimes.com/2024/10/09/nyregion/southampton-affordable-housing.html
+
+**A major U.S. military base is in harm’s way.**\
+`MacDill Air Force Base south of Tampa was swamped by Helene’s storm surge, and may see worse flooding from Milton.`\
+https://nytimes.com/2024/10/09/weather/a-major-us-military-base-is-in-harms-way.html
+
 **A Gaza Family Separated by a Few Miles, and the War**\
 `Najia and Hammam Malaka have been stuck at opposite ends of the Gaza Strip, with their young children, for most of the yearlong conflict. The emotional toll has been devastating.`\
 https://nytimes.com/2024/10/09/world/middleeast/gaza-family-separation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5828998/2024/10/09/fantasy-basketball-sleeper-watch
 **Vikings mailbag: Submit your bye week questions now for reporter Alec Lewis**\
 `Welcome to the Vikings' bye week! Like the team, you are free to take a breather. What questions do you have about the rest of the season?`\
 https://nytimes.com/athletic/5830974/2024/10/09/vikings-mailbag-submit-your-bye-week-questions-now-for-reporter-alec-lewis/
-
-**Ten bold (and not so bold) Canucks predictions for the 2024-25 season**\
-`Will Elias Pettersson bounce back? Can Quinn Hughes score 20 goals? How active will Patrik Allvin be on the trade market?`\
-https://nytimes.com/athletic/5830416/2024/10/09/canucks-predictions-2024-25-pettersson-hughes/
-
-**Corrections: Oct. 9, 2024**\
-`Corrections that appeared in print on Wednesday, Oct. 9, 2024.`\
-https://nytimes.com/2024/10/09/pageoneplus/corrections-oct-9-2024.html
 
