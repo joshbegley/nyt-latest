@@ -1,3 +1,7 @@
+**Pristine Beaches, Art and Retirees Dot Stretch of Coast in Milton’s Path**\
+`The area of Florida from Tampa Bay to Fort Myers is home to millions of people who flock to its museums and barrier islands.`\
+https://nytimes.com/2024/10/09/us/florida-gulf-coast-milton.html
+
 **Colombia 'spied' on before Bolivia match - Lorenzo**\
 `Colombia head coach Nestor Lorenzo claims his side have been &#8220;spied&#8221; on in the build up to their World Cup 2026 qualifier against Bolivia on Thursday.`\
 https://nytimes.com/athletic/5831583/2024/10/09/colomobia-spying-bolivia/

@@ -1,3 +1,7 @@
+**Pristine Beaches, Art and Retirees Dot Stretch of Coast in Milton’s Path**\
+`The area of Florida from Tampa Bay to Fort Myers is home to millions of people who flock to its museums and barrier islands.`\
+https://nytimes.com/2024/10/09/us/florida-gulf-coast-milton.html
+
 **Colombia 'spied' on before Bolivia match - Lorenzo**\
 `Colombia head coach Nestor Lorenzo claims his side have been &#8220;spied&#8221; on in the build up to their World Cup 2026 qualifier against Bolivia on Thursday.`\
 https://nytimes.com/athletic/5831583/2024/10/09/colomobia-spying-bolivia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5831783/2024/10/09/kayvon-thibodeaux-out-wrist-surg
 **Scenes From Florida as Residents Prepare for Milton**\
 `The storm is expected to make landfall around midnight, devastating an area still recovering from Hurricane Helene, which tore through Florida’s western coast two weeks ago.`\
 https://nytimes.com/2024/10/09/us/hurricane-milton-photos-videos.html
-
-**The Viral Choreographer Changing the Way Women Move**\
-`Parris Goebel's muscular, surreal dances are transforming the way that Rihanna, SZA and others move.`\
-https://nytimes.com/interactive/2024/10/09/magazine/parris-goebel-dance.html
 
