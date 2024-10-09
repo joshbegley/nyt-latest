@@ -1,3 +1,15 @@
+**Slotkin and Rogers Attack Each Other’s Records in Michigan Senate Debate**\
+`Representative Elissa Slotkin, a Democrat, and former Representative Mike Rogers, a Republican, had bitter exchanges over abortion, war and China.`\
+https://nytimes.com/2024/10/08/us/slotkin-rogers-michigan-debate.html
+
+**The 9 Elements of a Trump Rally**\
+`The themes Donald Trump returns to again and again at his rallies`\
+https://nytimes.com/interactive/2024/10/08/us/politics/trump-rally.html
+
+**Harris Cracks a Beer With Colbert and Talks Foreign Policy and Trump**\
+`In a chat with Stephen Colbert, Kamala Harris suggested the Gaza war was unlikely to end soon, even as she urged optimism. And she condemned Donald Trump over reports that he sent rare Covid test machines to Russia.`\
+https://nytimes.com/2024/10/08/us/politics/kamala-harris-colbert-report.html
+
 **Episode Interruptions**\
 `Jeffrey Lease is struck by inspiration.`\
 https://nytimes.com/2024/10/08/crosswords/daily-puzzle-2024-10-09.html
