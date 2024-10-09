@@ -1,3 +1,11 @@
+**Ravens hire Dean Pees in senior advisor role to Zach Orr's staff**\
+`Pees, who coached Orr as a player and was the Ravens defensive coordinator from 2012 to 2017, will start this week.`\
+https://nytimes.com/athletic/5831574/2024/10/09/dean-pees-ravens-senior-advisor-zach-orr/
+
+**What’s in Our Queue? Brandy Clarke and More**\
+`I’m a national correspondent covering the American South. Here are five things I’ve been listening to, reading and watching. `\
+https://nytimes.com/interactive/2024/10/09/arts/editors-recommendations-brandyclarke.html
+
 **Inside Biden’s ‘War’ Room: Heads of State and Heads of Hair**\
 `Bob Woodward doesn’t know which story he wants to tell in his latest presidential chronicle.`\
 https://nytimes.com/2024/10/09/books/review/war-bob-woodward.html
