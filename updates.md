@@ -1,3 +1,7 @@
+**Jeff Ulbrich's to-do list: From Nathaniel Hackett and Aaron Rodgers to (possibly) Davante Adams**\
+`The New York Jets' interim coach faces a half-dozen challenges as he tries to get the season back on track.`\
+https://nytimes.com/athletic/5831973/2024/10/09/jeff-ulbrich-new-york-jets-interim-coach-robert-saleh-firing/
+
 **Trump Plans Rally at Madison Square Garden**\
 `The rally, reportedly set for late October, is part of a series of Trump campaign events planned for blue states.`\
 https://nytimes.com/2024/10/09/us/politics/trump-madison-square-garden-msg.html
