@@ -1,3 +1,7 @@
+**How Roger Bennett fell in love with the Bears, and the lessons of being a sports fan**\
+`Roger Bennett from "Men in Blazers" became a fan of the Bears growing up in Liverpool and still reveres the team that changed his life.`\
+https://nytimes.com/athletic/5829225/2024/10/09/chicago-bears-roger-bennett-men-in-blazers/
+
 **Why it might be time for Browns to consider trading WR Amari Cooper**\
 `Following its most embarrassing offensive performance yet, Cleveland has to begin evaluating what it thinks its future might hold. `\
 https://nytimes.com/athletic/5829271/2024/10/09/browns-amari-cooper-trade-options/

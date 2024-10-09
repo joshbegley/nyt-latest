@@ -1,3 +1,7 @@
+**How Roger Bennett fell in love with the Bears, and the lessons of being a sports fan**\
+`Roger Bennett from "Men in Blazers" became a fan of the Bears growing up in Liverpool and still reveres the team that changed his life.`\
+https://nytimes.com/athletic/5829225/2024/10/09/chicago-bears-roger-bennett-men-in-blazers/
+
 **Why it might be time for Browns to consider trading WR Amari Cooper**\
 `Following its most embarrassing offensive performance yet, Cleveland has to begin evaluating what it thinks its future might hold. `\
 https://nytimes.com/athletic/5829271/2024/10/09/browns-amari-cooper-trade-options/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5830252/2024/10/09/canadiens-power-play-matheson-hu
 **What we learned at Jets camp: Captain conversation, special teams revolution, more**\
 `Adam Lowry isn't unaware of where Winnipeg can improve, but he's more interested in what happens on the ice than on paper.`\
 https://nytimes.com/athletic/5820367/2024/10/09/winnipeg-jets-camp-captain-special-teams/
-
-**Blue Jackets' Dean Evason goes deep on his background — and his appreciation for live theater**\
-`How did Evason's background and upbringing influence him, and what style will he bring to Columbus?`\
-https://nytimes.com/athletic/5828025/2024/10/09/dean-evason-columbus-blue-jackets/
 
