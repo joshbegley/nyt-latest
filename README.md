@@ -1,3 +1,11 @@
+**Here’s why forecasters still don’t know where exactly Milton will hit.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/hurricane-milton-landfall-florida
+
+**Hurricane Milton Began Thrashing Florida’s West Coast**\
+`Also, Kamala Harris has already raised more than $1 billion. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/10/09/briefing/hurricane-milton-florida-harris-billion-fund-raising.html
+
 **Alabama notebook: Avoiding a Vanderbilt hangover, injury updates and more**\
 `Alabama coach Kalen DeBoer has historically thrived in weeks after losses. Plus, injuries are thinning the Tide's receiver depth chart.`\
 https://nytimes.com/athletic/5832023/2024/10/09/alabama-crimson-tide-south-carolina-vanderbilt/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/09/us/politics/medicare-harris-home-health-care.html
 **Conviction in Girl’s 1975 Murder Offers Sister Some Solace**\
 `Laurel Jean Mitchell’s killing in Indiana went unsolved for decades until DNA testing revealed a match. Her sister, Sarah Knisley, never stopped looking for answers.`\
 https://nytimes.com/2024/10/09/us/laurel-mitchell-verdict.html
-
-**The Contests, Clubs and Big Promises of Trump’s Fund-Raising Emails**\
-`A review of some 7,400 emails sent by the Trump campaign turned up dozens of sweepstakes, advisory councils and other opportunities of access to Mr. Trump — and very little evidence anyone has gotten it.`\
-https://nytimes.com/interactive/2024/10/10/us/politics/trump-campaign-donations-merch.html
-
-**Thursday Briefing: Florida Braces for Hurricane Milton**\
-`Plus, literature’s greatest prize.`\
-https://nytimes.com/2024/10/09/briefing/hurricane-milton-harris-lebanon.html
 
