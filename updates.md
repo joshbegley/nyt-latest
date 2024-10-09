@@ -1,3 +1,7 @@
+**As I Am: L.G.B.T.Q. in Japan**\
+`‘We don’t want to send the message to the younger generation that we’re people who have to hide ourselves.’`\
+https://nytimes.com/2024/10/09/world/asia/lgbtq-japan.html
+
 **The Minnesota Lynx return to the WNBA Finals. Can they play up to their legacy?**\
 `"We're happy that we're going to the finals," Cheryl Reeve said. "But we're not going to be just happy to be there."`\
 https://nytimes.com/athletic/5830299/2024/10/09/minnesota-lynx-wnba-finals-legacy/
