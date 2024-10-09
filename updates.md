@@ -1,3 +1,7 @@
+**Ratan Tata, Whose Indian Business Empire Went Global, Dies at 86**\
+`The patriarch of a powerful family, his Tata Group put an indelible stamp on Indian life while acquiring British brand names like Tetley Tea and Jaguar.`\
+https://nytimes.com/2024/10/09/business/ratan-tata-dead.html
+
 **Stones 'speechless' after being named England captain**\
 `John Stones will lead England out for the first time at Wembley on Thursday, as he captains England in the absence of Harry Kane.`\
 https://nytimes.com/athletic/5831944/2024/10/09/john-stones-england-captain-greece/

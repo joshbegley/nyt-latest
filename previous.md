@@ -1,3 +1,7 @@
+**Ratan Tata, Whose Indian Business Empire Went Global, Dies at 86**\
+`The patriarch of a powerful family, his Tata Group put an indelible stamp on Indian life while acquiring British brand names like Tetley Tea and Jaguar.`\
+https://nytimes.com/2024/10/09/business/ratan-tata-dead.html
+
 **Stones 'speechless' after being named England captain**\
 `John Stones will lead England out for the first time at Wembley on Thursday, as he captains England in the absence of Harry Kane.`\
 https://nytimes.com/athletic/5831944/2024/10/09/john-stones-england-captain-greece/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5831717/2024/10/09/49ers-trade-targets-haason-reddi
 **Davante Adams likely out in Week 6 vs. Steelers but 'is still a Raider'**\
 `The hamstring injury has kept Adams off the field since Week 3 and trade discussions have ramped up since then.`\
 https://nytimes.com/athletic/5831870/2024/10/09/davante-adams-raiders-injury-trade/
-
-**David Anfam, Leading Scholar of Abstract Expressionism, Dies at 69**\
-`He wrote seminal texts on the artists Clyfford Still and Mark Rothko, in a jargon-free style that won him readers far outside the art world.`\
-https://nytimes.com/2024/10/09/arts/david-anfam-dead.html
 
