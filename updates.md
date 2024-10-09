@@ -1,3 +1,11 @@
+**Alfie Devine, My Football Journey: Relegation scraps, online abuse and Tottenham's development path**\
+`Devine has enjoyed loan spells at Port Vale in League One and Plymouth in the Championship, and is now developing in Belgium at Westerlo`\
+https://nytimes.com/athletic/5817771/2024/10/09/devine-tottenham-vale-plymouth-journey/
+
+**Which signing went on to exceed expectations at each Premier League club?**\
+`From forwards who became world stars to loyal club men who were brought in for next to nothing, our writers make their choices`\
+https://nytimes.com/athletic/5825106/2024/10/09/premier-league-transfers-exceed-expectations/
+
 **Wednesday Briefing**\
 `An Israeli airstrike in Syria.`\
 https://nytimes.com/2024/10/09/briefing/israel-syria-lebanon.html

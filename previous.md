@@ -1,3 +1,11 @@
+**Alfie Devine, My Football Journey: Relegation scraps, online abuse and Tottenham's development path**\
+`Devine has enjoyed loan spells at Port Vale in League One and Plymouth in the Championship, and is now developing in Belgium at Westerlo`\
+https://nytimes.com/athletic/5817771/2024/10/09/devine-tottenham-vale-plymouth-journey/
+
+**Which signing went on to exceed expectations at each Premier League club?**\
+`From forwards who became world stars to loyal club men who were brought in for next to nothing, our writers make their choices`\
+https://nytimes.com/athletic/5825106/2024/10/09/premier-league-transfers-exceed-expectations/
+
 **Wednesday Briefing**\
 `An Israeli airstrike in Syria.`\
 https://nytimes.com/2024/10/09/briefing/israel-syria-lebanon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5829747/2024/10/09/fantasy-football-rankings-week-6
 **Volkswagen’s Woes Reflect a Stagnant German Economy**\
 `Germany’s largest automaker rode a wave of strong sales for years, but lagging demand and pressure from China are forcing it to consider layoffs.`\
 https://nytimes.com/2024/10/09/world/europe/volkswagen-german-economy.html
-
-**Quote of the Day: Study of Life Spans Suggests Humans May Be at Their Peak**\
-`Quotation of the Day for Wednesday, October 9, 2024`\
-https://nytimes.com/2024/10/08/pageoneplus/quote-of-the-day-study-of-life-spans-suggests-humans-may-be-at-their-peak.html
-
-**Fernando Tatis Jr. caps big inning, Padres hold on to capture NLDS edge: Takeaways**\
-`SAN DIEGO — Behind a 6-5 victory, the San Diego Padres are a win away from ending the Los Angeles Dodgers’ season again, and they’ll get a chance on Wednesday to do it at home, which just might be the most raucous ballpark of the postseason.`\
-https://nytimes.com/athletic/5829981/2024/10/08/padres-dodgers-nlds-fernando-tatis/
 
