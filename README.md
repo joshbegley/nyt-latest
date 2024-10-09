@@ -1,3 +1,11 @@
+**Voices from the Swing States**\
+`In the months leading up to the 2024 election, we traveled to the seven states most likely to decide the election to talk to voters.`\
+https://nytimes.com/interactive/2024/10/09/us/elections/swing-states-voters.html
+
+**Google Triumphs on the Nobel Stage as Tough Antitrust Fight Looms**\
+`Two of the company’s A.I. researchers shared the Nobel Prize in Chemistry, just hours after the Justice Department started spelling out plans that could lead to its break up.`\
+https://nytimes.com/2024/10/09/technology/google-nobel-prize-antitrust.html
+
 **It’s Crunchtime for Kari Lake in Arizona’s Senate Race**\
 `The Republican firebrand trails in the polls and faces a big financial disadvantage. Wednesday night’s debate may be her last big chance to land a blow against her Democratic opponent.`\
 https://nytimes.com/2024/10/09/us/politics/kari-lake-ruben-gallego-arizona-senate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5831720/2024/10/09/andi-sullivan-spirit-acl-injury/
 **Raiders name Aidan O'Connell starting quarterback for Week 6**\
 `The second-year quarterback will replace Gardner Minshew under center for Las Vegas.`\
 https://nytimes.com/athletic/5826104/2024/10/09/raiders-aidan-oconnell-starting-quarterback/
-
-**Maryland Senate Race Becomes a Slugfest as Both Parties Eye High Stakes**\
-`Larry Hogan, the popular former Republican governor, and Angela Alsobrooks, the Prince George’s County executive, both describe their race as critical to the future of the Senate.`\
-https://nytimes.com/2024/10/09/us/politics/maryland-senate-hogan-alsobrooks.html
-
-**Israeli strikes in Lebanon are driving widespread displacement and a humanitarian crisis, the U.N. says.**\
-`More than 600,000 people have fled their homes in Lebanon, and over 300,000 others have left the country since the war broke out, the U.N. said.`\
-https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/airstrikes-displacement-iebanon-un
 
