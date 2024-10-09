@@ -1,3 +1,11 @@
+**Boeing Labor Talks Stall as Strike Nears One-Month Mark**\
+`The aerospace manufacturer withdrew its latest offer to a union whose more than 33,000 members went on strike last month and both sides exchanged blame for the breakdown.`\
+https://nytimes.com/2024/10/09/business/boeing-strike-machinists-union.html
+
+**Portland Thorns' Karina LeBlanc leaving GM role**\
+`LeBlanc will depart her role at the team following the conclusion of the 2024 season and transition to a new role with RAJ Sports.`\
+https://nytimes.com/athletic/5829832/2024/10/09/portland-thorns-general-manager-karina-leblanc/
+
 **Patrick Summers, Veteran Opera Conductor, to Step Down in Houston**\
 `Summers, who has helped introduce new operas into the American canon, will leave his role at Houston Grand Opera in 2026.`\
 https://nytimes.com/2024/10/09/arts/music/patrick-summers-opera-conductor-houston-stepping-down.html
