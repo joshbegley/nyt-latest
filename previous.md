@@ -1,3 +1,11 @@
+**Zantac’s Developer Settles Lawsuits Claiming Cancer Link**\
+`GSK, which developed and sold versions of the now-discontinued blockbuster heartburn drug, agreed to pay up to $2.2 billion.`\
+https://nytimes.com/2024/10/09/business/zantac-settlement-gsk.html
+
+**Riding Out the Storm Means Making New Friends in the Hotel Lobby**\
+`Evacuees seeking shelter and safety from Milton find camaraderie at hotels across Florida.`\
+https://nytimes.com/2024/10/09/us/hotel-lobby-milton-wesley-chapel.html
+
 **They Fled North Carolina After Helene. Now They’re in Another Storm’s Cross Hairs.**\
 `“This dumb luck,” said one man who had just escaped the devastating post-Helene conditions in western North Carolina to stay at a friend’s house in Venice, Fla.`\
 https://nytimes.com/2024/10/09/us/hurricane-milton-helene-north-carolina.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/09/science/solar-storm-sun-aurora.html
 **Sean Combs Lawyers Accuse Government of Leaking Cassie Assault Video**\
 `The hip-hop mogul’s legal team said in a filing on Wednesday that it may ask for the widely published video to be barred from his trial.`\
 https://nytimes.com/2024/10/09/arts/music/sean-combs-diddy-cassie-assault-video-leak.html
-
-**Cashman: Yankees are 'happy' to have Aaron Boone**\
-`Cashman said he'll 'deal with the winter when we need to deal with it' in regards to the manager, who has a team option for 2025.`\
-https://nytimes.com/athletic/5832297/2024/10/09/brian-cashman-yankees-aaron-boone-manager/
-
-**Injury fear affects player mental health, PFA survey finds**\
-`The majority of footballers say their mental health is impacted by fear of injury, according to latest research from the Professional Footballers&#8217; Association.`\
-https://nytimes.com/athletic/5831354/2024/10/09/pfa-survey-injury-mental-health/
 

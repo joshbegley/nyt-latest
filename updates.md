@@ -1,3 +1,11 @@
+**Zantac’s Developer Settles Lawsuits Claiming Cancer Link**\
+`GSK, which developed and sold versions of the now-discontinued blockbuster heartburn drug, agreed to pay up to $2.2 billion.`\
+https://nytimes.com/2024/10/09/business/zantac-settlement-gsk.html
+
+**Riding Out the Storm Means Making New Friends in the Hotel Lobby**\
+`Evacuees seeking shelter and safety from Milton find camaraderie at hotels across Florida.`\
+https://nytimes.com/2024/10/09/us/hotel-lobby-milton-wesley-chapel.html
+
 **They Fled North Carolina After Helene. Now They’re in Another Storm’s Cross Hairs.**\
 `“This dumb luck,” said one man who had just escaped the devastating post-Helene conditions in western North Carolina to stay at a friend’s house in Venice, Fla.`\
 https://nytimes.com/2024/10/09/us/hurricane-milton-helene-north-carolina.html
