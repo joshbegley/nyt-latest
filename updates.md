@@ -1,3 +1,15 @@
+**Letitia James vs. Andrew Cuomo for New York City Mayor? It Could Happen.**\
+`With Mayor Eric Adams’s future in doubt, former Gov. Andrew Cuomo and his adversary Letitia James, the state attorney general, could find themselves in a battle for the city’s top job.`\
+https://nytimes.com/2024/10/09/nyregion/tish-james-cuomo-mayor.html
+
+**NFL best bets Week 6: Commanders cover train keeps rolling**\
+`Austin Mock has a few bets for NFL Week 6 action, including going with the Washington Commanders for another week.`\
+https://nytimes.com/athletic/5831493/2024/10/09/nfl-best-bets-week-6-commanders-patriots-jets/
+
+**Deadly Israeli Strike in Northern Gaza**\
+`Footage obtained by Reuters shows a burned-out ambulance and dark smoke rising on the grounds of a hospital in Jabaliya, Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009751935/israel-strike-jabaliya-gaza.html
+
 **LIV Golf vs. PGA Tour exhibition set for Dec. 17 in Las Vegas**\
 `The Scheffler/Rory versus Koepka/DeChambeau event has been dubbed “The Showdown.”`\
 https://nytimes.com/athletic/5831488/2024/10/09/dechambeau-koepka-mcilroy-scheffler-the-showdown/
