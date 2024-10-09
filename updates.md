@@ -1,3 +1,7 @@
+**'Come to the New York Jets': Johnson urges Reddick to end holdout**\
+`Reddick — who lives in Camden, N.J., roughly 80 miles southwest of the Jets' training facility — is holding out for a new deal.`\
+https://nytimes.com/athletic/5829932/2024/10/08/woody-johnsons-haason-reddick-jets-holdout-comments/
+
 **Talanoa Hufanga's injury puts 49ers rookie Malik Mustapha in starting role**\
 `Mustapha and the rest of the 49ers defense are hoping to cure their missed-tackle woes against Kenneth Walker III on Thursday.`\
 https://nytimes.com/athletic/5829803/2024/10/08/talanoa-hufanga-injury-malik-mustapha-49ers/
