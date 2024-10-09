@@ -1,3 +1,19 @@
+**A Filmmaker Explores Climate and Democracy**\
+`In his next documentary, Michael P. Nash takes on A.I. and how it might be used to address environmental issues.`\
+https://nytimes.com/2024/10/09/world/democracy-film-climate-nash.html
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears have won two in a row ahead of Sunday's game against the Jaguars in London. Share your questions here.`\
+https://nytimes.com/athletic/5831156/2024/10/09/bears-mailbag-questions-35/
+
+**"We’ve got things to clean up": Lions emphasize improving with tough stretch out of bye week**\
+`The Lions know they haven't played their best football yet this season.`\
+https://nytimes.com/athletic/5829996/2024/10/09/detroit-lions-dan-campbell-jared-goff-bye-week/
+
+**Garth Brooks Names Woman Who Accused Him of Rape**\
+`In a court filing, lawyers for the country superstar portrayed him as “the victim of a shakedown” and asked for compensatory and punitive damages.`\
+https://nytimes.com/2024/10/09/arts/music/garth-brooks-names-rape-accuser.html
+
 **The Met’s Next Fashion Blockbuster Takes On the Politics of Race**\
 `With support from LeBron James, ASAP Rocky, Pharrell Williams and more.`\
 https://nytimes.com/2024/10/09/style/met-gala-lebron-james-asap-rocky-pharrell-williams.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/09/weather/a-major-us-military-base-is-in-harms-way.
 **A Gaza Family Separated by a Few Miles, and the War**\
 `Najia and Hammam Malaka have been stuck at opposite ends of the Gaza Strip, with their young children, for most of the yearlong conflict. The emotional toll has been devastating.`\
 https://nytimes.com/2024/10/09/world/middleeast/gaza-family-separation.html
-
-**Can a Start-Up Help Authors Get Paid by A.I. Companies?**\
-`Created by Humans, a company that aims to help writers license their works for use by A.I. companies, has struck a partnership with the Authors Guild.`\
-https://nytimes.com/2024/10/09/books/authors-guild-created-by-humans-artificial-intelligence.html
-
-**Lily Ebert, Holocaust Survivor, Author and TikTok Star, Dies at 100**\
-`She survived Auschwitz, wrote a best-selling memoir, “Lily’s Promise,” and spoke to a following of 2 million fans on TikTok.`\
-https://nytimes.com/2024/10/09/books/lily-ebert-dead.html
-
-**What Devin White's release says about the Eagles linebackers room**\
-`Devin White had high hopes for his time with the Eagles.`\
-https://nytimes.com/athletic/5829478/2024/10/09/philadelphia-eagles-linebackers-devin-white-release/
-
-**Klopp's move to Red Bull seems surprising – but it shouldn't be**\
-`A man who was tipped to be a company CEO should thrive at Red Bull – but it's not without controversy`\
-https://nytimes.com/athletic/5830802/2024/10/09/red-bull-jurgen-klopp-soccer/
 
