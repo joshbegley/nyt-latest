@@ -1,3 +1,19 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/09/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Campaigns Swarm Sun Belt, With Early Voting Starting in Arizona**\
+`Senator JD Vance and Gov. Tim Walz are both in Arizona today. Former President Donald J. Trump will be in Pennsylvania, a state both campaigns see as crucial to winning the election.`\
+https://nytimes.com/live/2024/10/09/us/harris-trump-election
+
+**Giants Mailbagg, part 2: What immediate moves will Posey make? Can he improve the farm?**\
+`Who might the Giants protect in the Rule 5 draft? Will there be significant shifts in how they approach player development under Posey?`\
+https://nytimes.com/athletic/5828743/2024/10/09/sf-giants-mailbag-offseason-moves-farm-system/
+
+**How Golden Knights' Adin Hill got ready for the biggest season of his life**\
+`Hill's season might propel him to a big contract — or create more doubts about his future.`\
+https://nytimes.com/athletic/5830083/2024/10/09/golden-knights-adin-hill-contract/
+
 **Kyle Busch on maintaining NASCAR success, son Brexton's racing and more: 12 Questions**\
 `Kyle Busch on longevity in the sport, dabbling in NASCAR media, what's next for his son Brexton's career and much more.`\
 https://nytimes.com/athletic/5828220/2024/10/09/kyle-busch-nascar-12-questions/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5829169/2024/10/09/milwaukee-bucks-camp-notebook/
 **The Athletic FC: Pep Guardiola ally leaving Manchester City. Plus: Jurgen Klopp's new role**\
 `The Premier League champions are facing upheaval, so what next for their manager?`\
 https://nytimes.com/athletic/5830637/2024/10/09/pep-guardiola-jurgen-klopp-red-bull-tafc/
-
-**Mirtle: The 3 big problems with giving a goalie a superstar salary in the NHL**\
-`The goalies of the league may hate to hear it, but there are good reasons they aren't paid like other stars on the ice.`\
-https://nytimes.com/athletic/5829517/2024/10/09/nhl-goalie-salary-contract-swayman-shesterkin/
-
-**Wimbledon jettisons line judges for electronic line calling from 2025**\
-`It leaves the French Open as the only Grand Slam tournament using human eyes to determine whether a ball is in or out.`\
-https://nytimes.com/athletic/5830648/2024/10/09/wimbledon-line-judges-electronic-line-calling/
-
-**Chemistry Nobel Prize Recognizes Three Protein Researchers**\
-`Demis Hassabis and John M. Jumper were part of a Google DeepMind team whose A.I. technology predicts protein shapes. The University of Washington’s David Baker designed “a new protein that was unlike any other,” the Nobel committee said.`\
-https://nytimes.com/video/world/europe/100000009751157/chemistry-nobel-prize-recognizes-three-protein-researchers.html
-
-**Why Man City's legal case means they have incredibly strange relegation odds**\
-`Manchester City have odds of just 12/1 while Liverpool and Arsenal are 2000/1 — this is an odd season for bookmakers`\
-https://nytimes.com/athletic/5808985/2024/10/09/manchester-city-legal-case-relegation-odds/
 
