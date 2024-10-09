@@ -1,3 +1,11 @@
+**Where will Drake Maye rank? From Plunkett to Zappe, here's how Patriots' QB starters fared**\
+`A quarterback’s first start is always big news. Sometimes, the debuts are launching pads to long, storied careers. Other times, they aren't.`\
+https://nytimes.com/athletic/5830329/2024/10/09/patriots-drake-maye-starting-quarterbacks/
+
+**In Trump’s Speeches, Signs of Cognitive Impairment**\
+`Readers discuss Donald Trump’s age and cognitive patterns. Also: A traumatized Israel; the “ghost guns” case; Eric Adams; A.I. and nuclear power.`\
+https://nytimes.com/2024/10/09/opinion/donald-trump-cognitive-impairment.html
+
 **NFL settles racial discrimination lawsuit with reporter Jim Trotter**\
 `Terms of the settlement are not publicly known. The NFL did not immediately respond to a request for comment.`\
 https://nytimes.com/athletic/5831176/2024/10/09/nfl-jim-trotter-lawsuit-settlement/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5831325/2024/10/09/nfl-patriots-jabrill-peppers-com
 **Bears CEO says team not currently exploring private equity as funding source for new stadium**\
 `NFL owners voted to allow private equity firms to buy limited stakes in teams, up to 10 per cent, in August`\
 https://nytimes.com/athletic/5831320/2024/10/09/chicago-bears-equity-stadium-warren/
-
-**Biden and Netanyahu Speak for First Time Since August**\
-`Ties between the U.S. and Israeli leaders have been strained over Israel’s conduct in Gaza. The Israeli defense minister delayed a much-anticipated trip to the U.S. at Mr. Netanyahu’s request.`\
-https://nytimes.com/2024/10/09/world/middleeast/biden-netanyahu-gallant-visit.html
-
-**‘The Wind and the Rain’ Review: How Sunny’s Bar Weathered the Storm**\
-`On a barge in Brooklyn, the story of a beloved watering hole and a neighborhood’s recovery after Hurricane Sandy.`\
-https://nytimes.com/2024/10/09/theater/the-wind-and-the-rain-review-sunnys-bar.html
 

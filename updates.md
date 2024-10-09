@@ -1,3 +1,11 @@
+**Where will Drake Maye rank? From Plunkett to Zappe, here's how Patriots' QB starters fared**\
+`A quarterback’s first start is always big news. Sometimes, the debuts are launching pads to long, storied careers. Other times, they aren't.`\
+https://nytimes.com/athletic/5830329/2024/10/09/patriots-drake-maye-starting-quarterbacks/
+
+**In Trump’s Speeches, Signs of Cognitive Impairment**\
+`Readers discuss Donald Trump’s age and cognitive patterns. Also: A traumatized Israel; the “ghost guns” case; Eric Adams; A.I. and nuclear power.`\
+https://nytimes.com/2024/10/09/opinion/donald-trump-cognitive-impairment.html
+
 **NFL settles racial discrimination lawsuit with reporter Jim Trotter**\
 `Terms of the settlement are not publicly known. The NFL did not immediately respond to a request for comment.`\
 https://nytimes.com/athletic/5831176/2024/10/09/nfl-jim-trotter-lawsuit-settlement/
