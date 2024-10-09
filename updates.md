@@ -1,3 +1,11 @@
+**Flooding Ravages Thai District Known for Elephant Parks**\
+`Two people have died following the intense rains that inundated the city of Chiang Mai and surrounding areas that are popular with tourists.`\
+https://nytimes.com/2024/10/09/world/asia/thailand-flooding-elephants.html
+
+**Why Breaking Up Google Would Be Hard to Do**\
+`The Justice Department could push for the tech giant to sell off a business to end its lock on online search. But a move would be tough to pull off.`\
+https://nytimes.com/2024/10/09/business/dealbook/google-breakup-antitrust.html
+
 **New Images Show Lebanese Border Villages Flattened in Israeli Invasion**\
 `Satellite images and videos offer an early glimpse of the devastation in southern Lebanon a week after Israeli ground troops moved in to confront Hezbollah militants.`\
 https://nytimes.com/interactive/2024/10/09/world/middleeast/lebanon-destruction.html
