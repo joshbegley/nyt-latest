@@ -1,3 +1,7 @@
+**Rosenthal: Fernando Tatis Jr. meets the moment in spectacular October so far**\
+`In five games this postseason, Tatis is 10-for-18 with four homers, including his two-run shot in the second inning on Tuesday.`\
+https://nytimes.com/athletic/5830708/2024/10/09/padres-fernando-tatis-nlds-mlb/
+
 **Ranking the 18 MLB teams that didn't make the playoffs: Who is best-positioned for 2025?**\
 `Power-ranking the non-playoff teams: A lot will change, but here’s where these clubs stand and how quickly I think they can improve.`\
 https://nytimes.com/athletic/5829389/2024/10/09/mlb-teams-missed-playoffs-ranking-2025/

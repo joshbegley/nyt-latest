@@ -1,3 +1,7 @@
+**Rosenthal: Fernando Tatis Jr. meets the moment in spectacular October so far**\
+`In five games this postseason, Tatis is 10-for-18 with four homers, including his two-run shot in the second inning on Tuesday.`\
+https://nytimes.com/athletic/5830708/2024/10/09/padres-fernando-tatis-nlds-mlb/
+
 **Ranking the 18 MLB teams that didn't make the playoffs: Who is best-positioned for 2025?**\
 `Power-ranking the non-playoff teams: A lot will change, but here’s where these clubs stand and how quickly I think they can improve.`\
 https://nytimes.com/athletic/5829389/2024/10/09/mlb-teams-missed-playoffs-ranking-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762494/2024/10/09/usmnt-uswnt-mls-coaching-france-
 **What's at stake for the Rangers in '24-25: 'A little bit of Stanley Cup or bust'**\
 `Between Igor Shesterkin's contract and a core that can't last forever, New York is at a crossroads. Adam Fox: “Teams don’t get any younger."`\
 https://nytimes.com/athletic/5829604/2024/10/09/rangers-stanley-cup-or-bust/
-
-**'No secret that our goal is to win': Empty space fuels Oilers' Stanley Cup chase**\
-`The Oilers don't need any reminders of what's at stake this season, but an empty space in their dressing room provides plenty of motivation.`\
-https://nytimes.com/athletic/5829625/2024/10/09/oilers-stanley-cup-empty-space/
 
