@@ -1,3 +1,7 @@
+**Vikings mailbag: Submit your bye week questions now for reporter Alec Lewis**\
+`Welcome to the Vikings' bye week! Like the team, you are free to take a breather. What questions do you have about the rest of the season?`\
+https://nytimes.com/athletic/5830974/2024/10/09/vikings-mailbag-submit-your-bye-week-questions-now-for-reporter-alec-lewis/
+
 **Ten bold (and not so bold) Canucks predictions for the 2024-25 season**\
 `Will Elias Pettersson bounce back? Can Quinn Hughes score 20 goals? How active will Patrik Allvin be on the trade market?`\
 https://nytimes.com/athletic/5830416/2024/10/09/canucks-predictions-2024-25-pettersson-hughes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/world/asia/thailand-flooding-elephants.html
 **Why Breaking Up Google Would Be Hard to Do**\
 `The Justice Department could push for the tech giant to sell off a business to end its lock on online search. But a move would be tough to pull off.`\
 https://nytimes.com/2024/10/09/business/dealbook/google-breakup-antitrust.html
-
-**New Images Show Lebanese Border Villages Flattened in Israeli Invasion**\
-`Satellite images and videos offer an early glimpse of the devastation in southern Lebanon a week after Israeli ground troops moved in to confront Hezbollah militants.`\
-https://nytimes.com/interactive/2024/10/09/world/middleeast/lebanon-destruction.html
 
