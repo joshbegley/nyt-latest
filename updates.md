@@ -1,3 +1,7 @@
+**George Baldock found dead, aged 31**\
+`Former Sheffield United defender George Baldock has been found dead at his home in Athens, Greece, at the age of 31.`\
+https://nytimes.com/athletic/5832089/2024/10/09/george-baldock-dies-sheffield-united/
+
 **Why Republicans Are Muddling Their Early Voting Message**\
 `Republicans are encouraging people to vote early but, in some cases, making it harder to do so.`\
 https://nytimes.com/2024/10/09/us/politics/early-voting-republicans.html
