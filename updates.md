@@ -1,3 +1,7 @@
+**Harris Cracks a Beer With Colbert and Talks Gaza, Trump and Putin**\
+`In a chat with Stephen Colbert, Kamala Harris suggested the Gaza war was unlikely to end soon, even as she urged optimism. And she condemned Donald Trump over reports that he sent rare Covid test machines to Russia.`\
+https://nytimes.com/2024/10/08/us/politics/kamala-harris-colbert-report.html
+
 **Afghan Man Arrested on Charges of Plotting Election Day Attack**\
 `It is not clear where the man intended to stage the attack, though the criminal complaint said he sought to inflict mass casualties on behalf of the Islamic State.`\
 https://nytimes.com/2024/10/08/us/politics/election-day-attack-afghanistan-isis.html
