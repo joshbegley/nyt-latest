@@ -1,3 +1,7 @@
+**Jimmy Kimmel: Putin is Trump’s ‘KGBFF’**\
+`Kimmel shared tidbits from Bob Woodward’s new book, including that Donald Trump had spoken with Vladimir Putin seven times since leaving office — “which is less than Ivanka, but more than Tiffany.”`\
+https://nytimes.com/2024/10/09/arts/television/kimmel-putin-is-trumps-kgbf.html
+
 **Blackhawks observations: Chicago finally shows life in season-opening loss to Utah**\
 `Chicago showed more fight, structure and offense as the game went along and arguably outplayed Utah in the final half of the game.`\
 https://nytimes.com/athletic/5830214/2024/10/09/blackhawks-season-opening-loss-to-utah/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5817945/2024/10/09/armando-broja-everton-loan-retur
 **How can Gary O'Neil fix bottom-of-the-table Wolves - three at the back? Revamp midfield?**\
 `The three issues Gary O'Neil must make a decision about if they are to avoid the season drifting towards catastrophe`\
 https://nytimes.com/athletic/5828113/2024/10/09/wolves-oneil-tactical-tweaks-to-fix-things/
-
-**Does Enzo Fernandez fit into this Chelsea team?**\
-`Enzo Fernandez divides opinion like nobody else in the Chelsea squad on the pitch`\
-https://nytimes.com/athletic/5828173/2024/10/09/enzo-fernandez-chelsea-enzo-maresca-analysis/
 

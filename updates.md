@@ -1,3 +1,7 @@
+**Jimmy Kimmel: Putin is Trump’s ‘KGBFF’**\
+`Kimmel shared tidbits from Bob Woodward’s new book, including that Donald Trump had spoken with Vladimir Putin seven times since leaving office — “which is less than Ivanka, but more than Tiffany.”`\
+https://nytimes.com/2024/10/09/arts/television/kimmel-putin-is-trumps-kgbf.html
+
 **Blackhawks observations: Chicago finally shows life in season-opening loss to Utah**\
 `Chicago showed more fight, structure and offense as the game went along and arguably outplayed Utah in the final half of the game.`\
 https://nytimes.com/athletic/5830214/2024/10/09/blackhawks-season-opening-loss-to-utah/
