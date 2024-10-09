@@ -1,3 +1,15 @@
+**Does Your School Use Suicide Prevention Software? We Want to Hear From You.**\
+`Concerned about anxiety and depression among students, some schools are monitoring what children type into their devices to detect suicidal thinking or self-harm.`\
+https://nytimes.com/2024/10/09/health/suicide-prevention-software-monitoring.html
+
+**Sharks are eager for Macklin Celebrini to shine, and here's how they're supporting him**\
+`The Sharks have high hopes for Celebrini, but are trying to support him so he isn't overwhelmed early.`\
+https://nytimes.com/athletic/5830461/2024/10/09/macklin-celebrini-debut-sharks/
+
+**Medical Facilities in Milton’s Path Are Preparing With Closures and Barricades**\
+`Hospitals and nursing homes in Florida have plenty of experience with hurricanes, but officials are aware that Milton may bring more damage than past storms.`\
+https://nytimes.com/2024/10/09/weather/florida-hospitals-storm-closures-preparations.html
+
 **After Floods, Soaring Insurance Rates Become a Hot Election Issue**\
 `Few states elect their insurance commissioners. But in North Carolina, a proposed 42 percent rate hike and Hurricane Helene have raised the stakes in the upcoming election.`\
 https://nytimes.com/2024/10/09/us/insurance-commissioner-hurricane-north-carolina.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/09/arts/music/garth-brooks-names-rape-accuser.html
 **The Met’s Next Fashion Blockbuster Takes On the Politics of Race**\
 `With support from LeBron James, ASAP Rocky, Pharrell Williams and more.`\
 https://nytimes.com/2024/10/09/style/met-gala-lebron-james-asap-rocky-pharrell-williams.html
-
-**Senators sign Linus Ullmark to 4-year, $33 million extension**\
-`The Senators acquired Ullmark in June in exchange for Joonas Korpisalo, Mark Kastelic and a 2024 first-round pick.`\
-https://nytimes.com/athletic/5831028/2024/10/09/senators-ottawa-linus-ullmark-extension-salary/
-
-**Turkish Airlines Flight Makes Emergency Landing After Pilot Dies**\
-`The airline said the pilot had lost consciousness during the flight, which was headed to Istanbul from Seattle.`\
-https://nytimes.com/2024/10/09/us/turkish-airlines-emergency-landing-jfk.html
-
-**Hamptons Town Accused of Illegally Blocking Affordable Housing Plan**\
-`The Town of Southampton, an affluent Long Island enclave, violated housing laws by rejecting the project, which would have helped veterans and disabled people, the suit says.`\
-https://nytimes.com/2024/10/09/nyregion/southampton-affordable-housing.html
 
