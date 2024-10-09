@@ -1,3 +1,7 @@
+**Harris Cracks a Beer With Colbert and Talks Gaza, Trump and Putin**\
+`In a chat with Stephen Colbert, Kamala Harris suggested the Gaza war was unlikely to end soon, even as she urged optimism. And she condemned Donald Trump over reports that he sent rare Covid test machines to Russia.`\
+https://nytimes.com/2024/10/08/us/politics/kamala-harris-colbert-report.html
+
 **Afghan Man Arrested on Charges of Plotting Election Day Attack**\
 `It is not clear where the man intended to stage the attack, though the criminal complaint said he sought to inflict mass casualties on behalf of the Islamic State.`\
 https://nytimes.com/2024/10/08/us/politics/election-day-attack-afghanistan-isis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/08/weather/florida-laborers-hurricane-helene-milton.
 **Raiders DL Christian Wilkins out indefinitely after foot surgery**\
 `Wilkins sustained the injury in Sunday's 34-18 loss to the Denver Broncos that dropped the Raiders to 2-3 on the season.`\
 https://nytimes.com/athletic/5829681/2024/10/08/christian-wilkins-foot-injury-surgery-raiders/
-
-**Tracking Hurricane Milton’s Storm Surge Risk Across Florida**\
-`Updates with maps of the storm’s path, highlighting potential storm surge flooding across the coastline.`\
-https://nytimes.com/interactive/2024/10/08/weather/hurricane-milton-storm-surge.html
 
