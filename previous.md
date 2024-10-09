@@ -1,3 +1,11 @@
+**Andrew Garfield Believes Hearts Are Meant to Break**\
+`The actor speaks to Anna Martin, host of the Modern Love Podcast, about his new movie “ We Live in Time,” and why heartbreak is a path to vitality.`\
+https://nytimes.com/video/podcasts/100000009750796/modern-love-andrew-garfield.html
+
+**Word of the Day: exorbitant**\
+`This word has appeared in 158 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/09/learning/word-of-the-day-exorbitant.html
+
 **Bompaster's Chelsea UWCL introduction - and why Stamford Bridge was nearly empty**\
 `Chelsea overcame Real Madrid 3-2 on Tuesday night, but Stamford Bridge was sparsely attended`\
 https://nytimes.com/athletic/5828740/2024/10/09/chelsea-sonia-bompastor-stamford-bridge/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5830267/2024/10/09/mlb-postseason-2024-what-you-nee
 **'I could never play for another English club - I'm a cockney now, West Ham means too much'**\
 `The Spanish winger fell in love with London so much he calls himself 'a cockney' - despite leaving he's still playing a part for West Ham`\
 https://nytimes.com/athletic/5781922/2024/10/09/pablo-fornals-west-ham-real-betis-interview/
-
-**How Pau Torres helps conduct Aston Villa's attack**\
-`The Spanish central defender has become crucial to Aston Villa's build-up play through his positioning and his vision on the ball`\
-https://nytimes.com/athletic/5394057/2024/10/09/pau-torres-analysis-aston-villa-passing/
-
-**Armando Broja has a point to prove at Everton**\
-`The on-loan Chelsea striker is aiming to return to action next month - Everton are confident he has the ability to succeed when he does`\
-https://nytimes.com/athletic/5817945/2024/10/09/armando-broja-everton-loan-return/
 

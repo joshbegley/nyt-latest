@@ -1,3 +1,11 @@
+**Andrew Garfield Believes Hearts Are Meant to Break**\
+`The actor speaks to Anna Martin, host of the Modern Love Podcast, about his new movie “ We Live in Time,” and why heartbreak is a path to vitality.`\
+https://nytimes.com/video/podcasts/100000009750796/modern-love-andrew-garfield.html
+
+**Word of the Day: exorbitant**\
+`This word has appeared in 158 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/09/learning/word-of-the-day-exorbitant.html
+
 **Bompaster's Chelsea UWCL introduction - and why Stamford Bridge was nearly empty**\
 `Chelsea overcame Real Madrid 3-2 on Tuesday night, but Stamford Bridge was sparsely attended`\
 https://nytimes.com/athletic/5828740/2024/10/09/chelsea-sonia-bompastor-stamford-bridge/
