@@ -1,3 +1,7 @@
+**Blackhawks observations: Chicago finally shows life in season-opening loss to Utah**\
+`Chicago showed more fight, structure and offense as the game went along and arguably outplayed Utah in the final half.`\
+https://nytimes.com/athletic/5830214/2024/10/09/blackhawks-season-opening-loss-to-utah/
+
 **Andrew Garfield Believes Hearts Are Meant to Break**\
 `The actor speaks to Anna Martin, host of the Modern Love Podcast, about his new movie “ We Live in Time,” and why heartbreak is a path to vitality.`\
 https://nytimes.com/video/podcasts/100000009750796/modern-love-andrew-garfield.html
