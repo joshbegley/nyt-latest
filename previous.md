@@ -30,9 +30,9 @@ https://nytimes.com/2024/10/09/us/turkish-airlines-emergency-landing-jfk.html
 `The Town of Southampton, an affluent Long Island enclave, violated housing laws by rejecting the project, which would have helped veterans and disabled people, the suit says.`\
 https://nytimes.com/2024/10/09/nyregion/southampton-affordable-housing.html
 
-**A major U.S. military base is in harm’s way.**\
+**MacDill Air Force Base in Tampa Region Braces for Milton Flooding**\
 `MacDill Air Force Base south of Tampa was swamped by Helene’s storm surge, and may see worse flooding from Milton.`\
-https://nytimes.com/2024/10/09/weather/a-major-us-military-base-is-in-harms-way.html
+https://nytimes.com/2024/10/09/weather/macdill-air-force-base-milton.html
 
 **A Gaza Family Separated by a Few Miles, and the War**\
 `Najia and Hammam Malaka have been stuck at opposite ends of the Gaza Strip, with their young children, for most of the yearlong conflict. The emotional toll has been devastating.`\

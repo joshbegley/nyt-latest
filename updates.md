@@ -1,3 +1,7 @@
+**MacDill Air Force Base in Tampa Region Braces for Milton Flooding**\
+`MacDill Air Force Base south of Tampa was swamped by Helene’s storm surge, and may see worse flooding from Milton.`\
+https://nytimes.com/2024/10/09/weather/macdill-air-force-base-milton.html
+
 **A Filmmaker Explores Climate and Democracy**\
 `In his next documentary, Michael P. Nash takes on A.I. and how it might be used to address environmental issues.`\
 https://nytimes.com/2024/10/09/world/democracy-film-climate-nash.html
