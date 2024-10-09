@@ -1,3 +1,11 @@
+**Klopp's move to Red Bull seems surprising – but it shouldn't be**\
+`A man who was tipped to be a company CEO should thrive at Red Bull – but it's not without controversy`\
+https://nytimes.com/athletic/5830802/2024/10/09/red-bull-jurgen-klopp-soccer/
+
+**Five People Die in Plane Crash on Catalina Island, Near Los Angeles**\
+`The wreckage of a twin-engine plane was found Tuesday night after the authorities received an emergency notification and GPS coordinates from a cellphone.`\
+https://nytimes.com/2024/10/09/us/catalina-island-california-plane-crash.html
+
 **Fantasy basketball sleeper watch: Walker Kessler, Naz Reid, and more late-round targets**\
 `Stan Son breaks down late-round sleepers for the 2024-25 NBA fantasy basketball season, targeting players ranked outside the Top 100.`\
 https://nytimes.com/athletic/5828998/2024/10/09/fantasy-basketball-sleeper-watch-late-round-targets/
