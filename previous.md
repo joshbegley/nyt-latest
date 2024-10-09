@@ -1,3 +1,15 @@
+**The Viral Choreographer Changing the Way Women Move**\
+`Parris Goebel's muscular, surreal dances are transforming the way that Rihanna, SZA and others move.`\
+https://nytimes.com/interactive/2024/10/09/magazine/parris-goebel-dance.html
+
+**Why the ACC-ESPN 'look-in' period isn't the pivot point it may seem to be**\
+`The February 2025 'look-in' period has been seen as an inflection point for the ACC's deal with ESPN, but a new detail changes the picture.`\
+https://nytimes.com/athletic/5831153/2024/10/09/jim-phillips-acc-espn-deal-realignment/
+
+**Former Exeter City manager Tisdale to take up Celtic role**\
+`Celtic are set to appoint former Exeter City manager Paul Tisdale to a senior football operations role.`\
+https://nytimes.com/athletic/5831858/2024/10/09/celtic-paul-tisdale/
+
 **Broadway Theater Owners, Facing Backlash, to Dim All Lights for Gavin Creel**\
 `The landlords also said they would reconsider their process for determining who to honor with full and partial dimmings.`\
 https://nytimes.com/2024/10/09/theater/broadway-lights-dim-gavin-creel.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/09/opinion/eric-adams-democrats.html
 **Here’s How to Send Texts on an iPhone Even if You Lose Cellular Service**\
 `All iPhone 14 and later models can connect via satellite, but your phone must be updated to the latest software, iOS 18. Recipients of the messages must also have the latest iOS. Android users with Pixel 9 phones also have some options.`\
 https://nytimes.com/2024/10/09/us/milton-iphone-texts-satellite-emergency.html
-
-**As Milton Bears Down, the Entire State of Florida is on High Alert**\
-`Despite repeated tropical storms, the nation’s third most populous state continues to attract more newcomers and sees no end to development.`\
-https://nytimes.com/2024/10/09/us/hurricane-milton-florida-high-alert.html
-
-**Why Hurricane Milton Is Also Causing Tornadoes**\
-`Tornadoes can start in the outer edges of hurricanes. Once a storm is over land, the increase in surface friction can make them touch down.`\
-https://nytimes.com/2024/10/09/us/hurricane-milton-tornadoes.html
-
-**Spirit's Andi Sullivan out for season with torn ACL**\
-`Sullivan has been a central leader and the heart of the team for multiple seasons.`\
-https://nytimes.com/athletic/5831720/2024/10/09/andi-sullivan-spirit-acl-injury/
 

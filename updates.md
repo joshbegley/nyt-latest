@@ -1,3 +1,15 @@
+**The Viral Choreographer Changing the Way Women Move**\
+`Parris Goebel's muscular, surreal dances are transforming the way that Rihanna, SZA and others move.`\
+https://nytimes.com/interactive/2024/10/09/magazine/parris-goebel-dance.html
+
+**Why the ACC-ESPN 'look-in' period isn't the pivot point it may seem to be**\
+`The February 2025 'look-in' period has been seen as an inflection point for the ACC's deal with ESPN, but a new detail changes the picture.`\
+https://nytimes.com/athletic/5831153/2024/10/09/jim-phillips-acc-espn-deal-realignment/
+
+**Former Exeter City manager Tisdale to take up Celtic role**\
+`Celtic are set to appoint former Exeter City manager Paul Tisdale to a senior football operations role.`\
+https://nytimes.com/athletic/5831858/2024/10/09/celtic-paul-tisdale/
+
 **Broadway Theater Owners, Facing Backlash, to Dim All Lights for Gavin Creel**\
 `The landlords also said they would reconsider their process for determining who to honor with full and partial dimmings.`\
 https://nytimes.com/2024/10/09/theater/broadway-lights-dim-gavin-creel.html
