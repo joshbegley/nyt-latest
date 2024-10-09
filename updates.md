@@ -1,3 +1,11 @@
+**Why Republicans Are Muddling Their Early Voting Message**\
+`Republicans are encouraging people to vote early but, in some cases, making it harder to do so.`\
+https://nytimes.com/2024/10/09/us/politics/early-voting-republicans.html
+
+**In Interviews, Kamala Harris Continues to Bob and Weave**\
+`Her media swing showed how she often responds to uncomfortable questions by acknowledging them, yet not fully answering them.`\
+https://nytimes.com/2024/10/09/us/politics/harris-interviews-analysis.html
+
 **Why Kennedy Is Useful to Trump’s Strategy**\
 `It’s a bid for a specific kind of persuadable voter.`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/kennedy-trump-strategy

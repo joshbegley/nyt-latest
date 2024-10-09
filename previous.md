@@ -1,3 +1,11 @@
+**Why Republicans Are Muddling Their Early Voting Message**\
+`Republicans are encouraging people to vote early but, in some cases, making it harder to do so.`\
+https://nytimes.com/2024/10/09/us/politics/early-voting-republicans.html
+
+**In Interviews, Kamala Harris Continues to Bob and Weave**\
+`Her media swing showed how she often responds to uncomfortable questions by acknowledging them, yet not fully answering them.`\
+https://nytimes.com/2024/10/09/us/politics/harris-interviews-analysis.html
+
 **Why Kennedy Is Useful to Trump’s Strategy**\
 `It’s a bid for a specific kind of persuadable voter.`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/kennedy-trump-strategy
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5832089/2024/10/09/george-baldock-dies-sheffield-un
 **Where Will Hurricane Milton Make Landfall? Forecasters Still Don’t Know.**\
 `The National Hurricane Center urged Florida resident not to fixate on the exact location because the dangers will be widespread.`\
 https://nytimes.com/2024/10/09/weather/hurricane-milton-landfall-florida.html
-
-**Hurricane Milton Began Thrashing Florida’s West Coast**\
-`Also, Kamala Harris has already raised more than $1 billion. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/10/09/briefing/hurricane-milton-florida-harris-billion-fund-raising.html
-
-**Alabama notebook: Avoiding a Vanderbilt hangover, injury updates and more**\
-`Alabama coach Kalen DeBoer has historically thrived in weeks after losses. Plus, injuries are thinning the Tide's receiver depth chart.`\
-https://nytimes.com/athletic/5832023/2024/10/09/alabama-crimson-tide-south-carolina-vanderbilt/
 
