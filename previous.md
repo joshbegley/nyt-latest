@@ -1,3 +1,7 @@
+**What we learned from the Blues' season-opening win over Seattle: Momentum matters**\
+`Here's a few early observations from the Blues' 3-2 come-from-behind win over the Seattle Kraken in the season opener.`\
+https://nytimes.com/athletic/5829884/2024/10/08/blues-season-opener-seattle-kyrou/
+
 **Mets take advantage of raucous atmosphere to move within one win of NLCS**\
 `Pete Alonso hit his third homer in four games, all of them the other way: “He’s a different kind of strong.”`\
 https://nytimes.com/athletic/5830118/2024/10/08/mets-nlds-pete-alonso-sean-manaea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829932/2024/10/08/woody-johnsons-haason-reddick-je
 **Talanoa Hufanga's injury puts 49ers rookie Malik Mustapha in starting role**\
 `Mustapha and the rest of the 49ers defense are hoping to cure their missed-tackle woes against Kenneth Walker III on Thursday.`\
 https://nytimes.com/athletic/5829803/2024/10/08/talanoa-hufanga-injury-malik-mustapha-49ers/
-
-**Harris Cracks a Beer With Colbert and Talks Foreign Policy and Trump**\
-`In a chat with Stephen Colbert, Kamala Harris suggested the Gaza war was unlikely to end soon, even as she urged optimism. And she condemned Donald Trump over reports that he sent rare Covid test machines to Russia.`\
-https://nytimes.com/2024/10/08/us/politics/kamala-harris-colbert-report.html
 
