@@ -1,3 +1,15 @@
+**Does Your School Use Suicide Prevention Software? We Want to Hear From You.**\
+`Concerned about anxiety and depression among students, some schools are monitoring what children type into their devices to detect suicidal thinking or self-harm.`\
+https://nytimes.com/2024/10/09/health/suicide-prevention-software-monitoring.html
+
+**Sharks are eager for Macklin Celebrini to shine, and here's how they're supporting him**\
+`The Sharks have high hopes for Celebrini, but are trying to support him so he isn't overwhelmed early.`\
+https://nytimes.com/athletic/5830461/2024/10/09/macklin-celebrini-debut-sharks/
+
+**Medical Facilities in Milton’s Path Are Preparing With Closures and Barricades**\
+`Hospitals and nursing homes in Florida have plenty of experience with hurricanes, but officials are aware that Milton may bring more damage than past storms.`\
+https://nytimes.com/2024/10/09/weather/florida-hospitals-storm-closures-preparations.html
+
 **How Roger Bennett fell in love with the Bears, and the lessons of being a sports fan**\
 `Roger Bennett from "Men in Blazers" became a fan of the Bears growing up in Liverpool and still reveres the team that changed his life.`\
 https://nytimes.com/athletic/5829225/2024/10/09/chicago-bears-roger-bennett-men-in-blazers/
