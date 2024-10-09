@@ -1,3 +1,7 @@
+**Sean Combs Lawyers Accuse Government of Leaking Cassie Assault Video**\
+`The hip-hop mogul’s legal team said in a filing on Wednesday that it may ask for the widely published video to be barred from his trial.`\
+https://nytimes.com/2024/10/09/arts/music/sean-combs-diddy-cassie-assault-video-leak.html
+
 **U.S. Issues Solar Storm Watch After Large Outburst From the Sun**\
 `An explosion of particles is expected to reach Earth on Thursday, and could lead to visible Northern Lights in much of the country while also raising power grid concerns.`\
 https://nytimes.com/2024/10/09/science/solar-storm-sun-aurora.html

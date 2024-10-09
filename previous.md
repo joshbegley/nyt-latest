@@ -3,7 +3,7 @@
 https://nytimes.com/2024/10/09/science/solar-storm-sun-aurora.html
 
 **Sean Combs Lawyers Accuse Government of Leaking Cassie Assault Video**\
-`The hip-hop mogul’s legal team suggested in a filing on Wednesday that it may ask for the widely published video to be barred from his trial.`\
+`The hip-hop mogul’s legal team said in a filing on Wednesday that it may ask for the widely published video to be barred from his trial.`\
 https://nytimes.com/2024/10/09/arts/music/sean-combs-diddy-cassie-assault-video-leak.html
 
 **Cashman: Yankees are 'happy' to have Aaron Boone**\
