@@ -1,3 +1,7 @@
+**Bompaster's Chelsea UWCL introduction - and why Stamford Bridge was nearly empty**\
+`Chelsea overcame Real Madrid 3-2 on Tuesday night, but Stamford Bridge was sparsely attended`\
+https://nytimes.com/athletic/5828740/2024/10/09/chelsea-sonia-bompastor-stamford-bridge/
+
 **Jimmy Kimmel: Putin Is Trump’s ‘KGBFF’**\
 `Kimmel shared tidbits from Bob Woodward’s new book, including that Donald Trump had spoken with Vladimir Putin seven times since leaving office — “which is less than Ivanka, but more than Tiffany.”`\
 https://nytimes.com/2024/10/09/arts/television/kimmel-putin-is-trumps-kgbf.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5394057/2024/10/09/pau-torres-analysis-aston-villa-
 **Armando Broja has a point to prove at Everton**\
 `The on-loan Chelsea striker is aiming to return to action next month - Everton are confident he has the ability to succeed when he does`\
 https://nytimes.com/athletic/5817945/2024/10/09/armando-broja-everton-loan-return/
-
-**How can Gary O'Neil fix bottom-of-the-table Wolves - three at the back? Revamp midfield?**\
-`The three issues Gary O'Neil must make a decision about if they are to avoid the season drifting towards catastrophe`\
-https://nytimes.com/athletic/5828113/2024/10/09/wolves-oneil-tactical-tweaks-to-fix-things/
 

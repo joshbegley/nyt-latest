@@ -1,3 +1,7 @@
+**Bompaster's Chelsea UWCL introduction - and why Stamford Bridge was nearly empty**\
+`Chelsea overcame Real Madrid 3-2 on Tuesday night, but Stamford Bridge was sparsely attended`\
+https://nytimes.com/athletic/5828740/2024/10/09/chelsea-sonia-bompastor-stamford-bridge/
+
 **Jimmy Kimmel: Putin Is Trump’s ‘KGBFF’**\
 `Kimmel shared tidbits from Bob Woodward’s new book, including that Donald Trump had spoken with Vladimir Putin seven times since leaving office — “which is less than Ivanka, but more than Tiffany.”`\
 https://nytimes.com/2024/10/09/arts/television/kimmel-putin-is-trumps-kgbf.html
