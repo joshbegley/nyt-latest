@@ -1,3 +1,15 @@
+**Armando Broja has a point to prove at Everton**\
+`The on-loan Chelsea striker is aiming to return to action next month - Everton are confident he has the ability to succeed when he does`\
+https://nytimes.com/athletic/5817945/2024/10/09/armando-broja-everton-loan-return/
+
+**How can Gary O'Neil fix bottom-of-the-table Wolves - three at the back? Revamp midfield?**\
+`The three issues Gary O'Neil must make a decision about if they are to avoid the season drifting towards catastrophe`\
+https://nytimes.com/athletic/5828113/2024/10/09/wolves-oneil-tactical-tweaks-to-fix-things/
+
+**Does Enzo Fernandez fit into this Chelsea team?**\
+`Enzo Fernandez divides opinion like nobody else in the Chelsea squad on the pitch`\
+https://nytimes.com/athletic/5828173/2024/10/09/enzo-fernandez-chelsea-enzo-maresca-analysis/
+
 **Callum Gribbin interview: 'I needed the lesson of being released by Manchester United'**\
 `Gribbin was tipped for greatness but is now in England's seventh tier. This is his journey - and why he still believes he can reach the top`\
 https://nytimes.com/athletic/5820105/2024/10/09/callum-gribbin-man-united-intervew/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5825106/2024/10/09/premier-league-transfers-exceed-
 **Wednesday Briefing**\
 `An Israeli airstrike in Syria.`\
 https://nytimes.com/2024/10/09/briefing/israel-syria-lebanon.html
-
-**Inside Nottingham Forest's academy: Handshakes, Oura rings and finding the next Brennan Johnson**\
-`The Athletic went behind the scenes at the redeveloped Forest academy to get an insight into how they develop the next generation of talents`\
-https://nytimes.com/athletic/5808999/2024/10/09/nottingham-forest-academy-brennan-johnson/
-
-**In This Office, the Fading Dream of a Unified Korea Lives On**\
-`On paper, five South Korean officials are the governors of North Korean provinces. Their goal is reunification, but fewer and fewer Koreans share it.`\
-https://nytimes.com/2024/10/09/world/asia/korea-reunification.html
-
-**‘I’m Not Going to Wait’: Young Chinese Jump Into Stock Frenzy**\
-`Despite the risks of investing at a volatile time, investors see the recent stock rally as a rare opportunity to make money when China’s economy is sluggish.`\
-https://nytimes.com/2024/10/09/business/china-stocks-young-investors.html
 

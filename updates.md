@@ -1,3 +1,15 @@
+**Armando Broja has a point to prove at Everton**\
+`The on-loan Chelsea striker is aiming to return to action next month - Everton are confident he has the ability to succeed when he does`\
+https://nytimes.com/athletic/5817945/2024/10/09/armando-broja-everton-loan-return/
+
+**How can Gary O'Neil fix bottom-of-the-table Wolves - three at the back? Revamp midfield?**\
+`The three issues Gary O'Neil must make a decision about if they are to avoid the season drifting towards catastrophe`\
+https://nytimes.com/athletic/5828113/2024/10/09/wolves-oneil-tactical-tweaks-to-fix-things/
+
+**Does Enzo Fernandez fit into this Chelsea team?**\
+`Enzo Fernandez divides opinion like nobody else in the Chelsea squad on the pitch`\
+https://nytimes.com/athletic/5828173/2024/10/09/enzo-fernandez-chelsea-enzo-maresca-analysis/
+
 **Callum Gribbin interview: 'I needed the lesson of being released by Manchester United'**\
 `Gribbin was tipped for greatness but is now in England's seventh tier. This is his journey - and why he still believes he can reach the top`\
 https://nytimes.com/athletic/5820105/2024/10/09/callum-gribbin-man-united-intervew/
