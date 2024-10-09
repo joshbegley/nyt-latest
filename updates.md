@@ -1,3 +1,7 @@
+**Fernando Tatis Jr. caps big inning, Padres hold on to capture NLDS edge: Takeaways**\
+`SAN DIEGO — Behind a 6-5 victory, the San Diego Padres are a win away from ending the Los Angeles Dodgers’ season again, and they’ll get a chance on Wednesday to do it at home, which just might be the most raucous ballpark of the postseason.`\
+https://nytimes.com/athletic/5829981/2024/10/08/padres-dodgers-nlds-fernando-tatis/
+
 **‘Weren’t good in so many areas’: 7 Bruins shortcomings in season-opening rout**\
 `The Bruins only lost by two goals against the Florida Panthers. It's proof sometimes the score means nothing.`\
 https://nytimes.com/athletic/5830228/2024/10/08/bruins-season-opener-panthers-shortcomings/
