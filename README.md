@@ -1,3 +1,11 @@
+**Klopp's move to Red Bull seems surprising – but it shouldn't be**\
+`A man who was tipped to be a company CEO should thrive at Red Bull – but it's not without controversy`\
+https://nytimes.com/athletic/5830802/2024/10/09/red-bull-jurgen-klopp-soccer/
+
+**Five People Die in Plane Crash on Catalina Island, Near Los Angeles**\
+`The wreckage of a twin-engine plane was found Tuesday night after the authorities received an emergency notification and GPS coordinates from a cellphone.`\
+https://nytimes.com/2024/10/09/us/catalina-island-california-plane-crash.html
+
 **Fantasy basketball sleeper watch: Walker Kessler, Naz Reid, and more late-round targets**\
 `Stan Son breaks down late-round sleepers for the 2024-25 NBA fantasy basketball season, targeting players ranked outside the Top 100.`\
 https://nytimes.com/athletic/5828998/2024/10/09/fantasy-basketball-sleeper-watch-late-round-targets/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/09/style/grandparents-wills-unequal-bequests.html
 **How Josh Allen got forced into pressing and how to fix it**\
 `The Texans defense caused an all-time poor performance from Josh Allen.`\
 https://nytimes.com/athletic/5829886/2024/10/09/bills-josh-allen-offense-receivers/
-
-**Lakers depth chart and rotation: Who’s in the top 9?**\
-`JJ Redick's starting five is clear, but there is competition — along with injury concerns — among the reserves. `\
-https://nytimes.com/athletic/5823954/2024/10/09/lakers-depth-chart-rotation-redick/
-
-**Flooding Ravages Thai District Known for Elephant Parks**\
-`Two people have died following the intense rains that inundated the city of Chiang Mai and surrounding areas that are popular with tourists.`\
-https://nytimes.com/2024/10/09/world/asia/thailand-flooding-elephants.html
 
