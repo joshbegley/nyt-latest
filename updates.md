@@ -1,3 +1,7 @@
+**After Floods, Soaring Insurance Rates Become a Hot Election Issue**\
+`Few states elect their insurance commissioners. But in North Carolina, a proposed 42 percent rate hike and Hurricane Helene have raised the stakes in the upcoming election.`\
+https://nytimes.com/2024/10/09/us/insurance-commissioner-hurricane-north-carolina.html
+
 **MacDill Air Force Base in Tampa Region Braces for Milton Flooding**\
 `MacDill Air Force Base south of Tampa was swamped by Helene’s storm surge, and may see worse flooding from Milton.`\
 https://nytimes.com/2024/10/09/weather/macdill-air-force-base-milton.html

@@ -1,3 +1,7 @@
+**After Floods, Soaring Insurance Rates Become a Hot Election Issue**\
+`Few states elect their insurance commissioners. But in North Carolina, a proposed 42 percent rate hike and Hurricane Helene have raised the stakes in the upcoming election.`\
+https://nytimes.com/2024/10/09/us/insurance-commissioner-hurricane-north-carolina.html
+
 **A Filmmaker Explores Climate and Democracy**\
 `In his next documentary, Michael P. Nash takes on A.I. and how it might be used to address environmental issues.`\
 https://nytimes.com/2024/10/09/world/democracy-film-climate-nash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/nyregion/southampton-affordable-housing.html
 **MacDill Air Force Base in Tampa Region Braces for Milton Flooding**\
 `MacDill Air Force Base south of Tampa was swamped by Helene’s storm surge, and may see worse flooding from Milton.`\
 https://nytimes.com/2024/10/09/weather/macdill-air-force-base-milton.html
-
-**A Gaza Family Separated by a Few Miles, and the War**\
-`Najia and Hammam Malaka have been stuck at opposite ends of the Gaza Strip, with their young children, for most of the yearlong conflict. The emotional toll has been devastating.`\
-https://nytimes.com/2024/10/09/world/middleeast/gaza-family-separation.html
 
