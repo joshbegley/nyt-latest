@@ -1,3 +1,7 @@
+**David Anfam, Leading Scholar of Abstract Expressionism, Dies at 69**\
+`He wrote seminal texts on the artists Clyfford Still and Mark Rothko, in a jargon-free style that won him readers far outside the art world.`\
+https://nytimes.com/2024/10/09/arts/david-anfam-dead.html
+
 **Man Charged in South Africa Mass Shooting That Left 18 Dead**\
 `The killings of 18 members of one family assembled for a gathering last month are among an increasing number of mass shootings in South Africa.`\
 https://nytimes.com/2024/10/09/world/africa/mass-shooting-south-africa-charges.html
