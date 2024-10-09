@@ -1,3 +1,11 @@
+**Afghan Man Arrested on Charges of Plotting Election Day Attack**\
+`It is not clear where the man intended to stage the attack, though the criminal complaint said he sought to inflict mass casualties on behalf of the Islamic State.`\
+https://nytimes.com/2024/10/08/us/politics/election-day-attack-afghanistan-isis.html
+
+**A New Bitcoin Documentary Reopens the Search for Satoshi Nakamoto**\
+`The identity of the pseudonymous Bitcoin creator has eluded sleuths for years. But does finding the real Mr. Nakamoto really matter?`\
+https://nytimes.com/2024/10/08/technology/money-electric-bitcoin-satoshi-nakamoto.html
+
 **Audience Report: Gongs and Goodbyes as the Rubin Museum Shuts Its Doors**\
 `After 20 years, a beloved home for Himalayan art enters the void.`\
 https://nytimes.com/card/2024/10/09/arts/design/rubin-museum-closed
