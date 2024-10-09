@@ -1,3 +1,11 @@
+**Tigers ride 'pitching chaos' to ALDS edge**\
+`Pitching changes in the second inning, pinch hitters in the second and third — it's not a standard series, but it's going well for Detroit.`\
+https://nytimes.com/athletic/5832165/2024/10/09/tigers-guardians-score-game-3-mlb-playoffs-takeaways/
+
+**Where Will Hurricane Milton Make Landfall? Forecasters Still Don’t Know.**\
+`The National Hurricane Center urged Florida resident not to fixate on the exact location because the dangers will be widespread.`\
+https://nytimes.com/2024/10/09/weather/hurricane-milton-landfall-florida.html
+
 **Here’s why forecasters still don’t know where exactly Milton will hit.**\
 `By Judson Jones`\
 https://nytimes.com/2024/10/09/weather/hurricane-milton-landfall-florida.html
