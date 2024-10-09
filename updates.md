@@ -1,3 +1,7 @@
+**With Biden Absent, Meeting of Western Leaders on Ukraine Is Postponed**\
+`A gathering in Germany intended to show support for Ukraine was put off after President Biden canceled his trip to deal with Hurricane Milton.`\
+https://nytimes.com/2024/10/09/world/europe/us-ukraine-biden-ramstein.html
+
 **Rosenthal: Fernando Tatis Jr. meets the moment in spectacular October so far**\
 `In five games this postseason, Tatis is 10-for-18 with four homers, including his two-run shot in the second inning on Tuesday.`\
 https://nytimes.com/athletic/5830708/2024/10/09/padres-fernando-tatis-nlds-mlb/
