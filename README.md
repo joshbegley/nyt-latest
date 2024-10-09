@@ -1,3 +1,11 @@
+**Bucks camp notebook: Key health updates, 'Camp Connect' and Taurean Prince at power forward**\
+`Bucks coach Doc Rivers said the team expects Gary Trent Jr. to return without missing an extended period after hyperextending his elbow.`\
+https://nytimes.com/athletic/5829169/2024/10/09/milwaukee-bucks-camp-notebook/
+
+**The Athletic FC: Pep Guardiola ally leaving Manchester City. Plus: Jurgen Klopp's new role**\
+`The Premier League champions are facing upheaval, so what next for their manager?`\
+https://nytimes.com/athletic/5830637/2024/10/09/pep-guardiola-jurgen-klopp-red-bull-tafc/
+
 **Mirtle: The 3 big problems with giving a goalie a superstar salary in the NHL**\
 `The goalies of the league may hate to hear it, but there are good reasons they aren't paid like other stars on the ice.`\
 https://nytimes.com/athletic/5829517/2024/10/09/nhl-goalie-salary-contract-swayman-shesterkin/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5829625/2024/10/09/oilers-stanley-cup-empty-space/
 **Villa minority shareholder Atairos increases stake in club with £50m equity injection**\
 `Aston Villa minority stakeholder Atairos injected £50million in equity into the club last week, increasing its overall stake to 31.`\
 https://nytimes.com/athletic/5830662/2024/10/09/aston-villa-atairos-stake/
-
-**‘Daytime Revolution’ Review: Coffee and Counterculture**\
-`John Lennon and Yoko Ono invade middle-American living rooms in this cute but shallow documentary.`\
-https://nytimes.com/2024/10/09/movies/daytime-revolution-review.html
-
-**Inside Donald Trump’s Rallies**\
-`We explain the nine main things that happen at each rally.`\
-https://nytimes.com/2024/10/09/briefing/inside-donald-trumps-rallies.html
 
