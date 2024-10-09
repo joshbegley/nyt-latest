@@ -1,3 +1,15 @@
+**Here’s How to Send Texts on an iPhone Even if You Lose Cellular Service**\
+`All iPhone 14 and later models can connect via satellite, but your phone must be updated to the latest software, iOS 18. Recipients of the messages must also have the latest iOS. Android users with Pixel 9 phones also have some options.`\
+https://nytimes.com/2024/10/09/us/milton-iphone-texts-satellite-emergency.html
+
+**As Milton bears down, the entire state of Florida is on high alert.**\
+`It is an extraordinary circumstance for the nation’s third most populous state to find itself in, as it attracts more newcomers and sees no end to development.`\
+https://nytimes.com/2024/10/09/us/as-milton-bears-down-the-entire-state-of-florida-is-on-high-alert.html
+
+**Why Hurricane Milton Is Also Causing Tornadoes**\
+`Tornadoes can start in the outer edges of hurricanes. Once a storm is over land, the increase in surface friction can make them touch down.`\
+https://nytimes.com/2024/10/09/us/hurricane-milton-tornadoes.html
+
 **Spirit's Andi Sullivan out for season with torn ACL**\
 `Sullivan has been a central leader and the heart of the team for multiple seasons.`\
 https://nytimes.com/athletic/5831720/2024/10/09/andi-sullivan-spirit-acl-injury/
