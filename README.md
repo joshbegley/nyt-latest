@@ -1,3 +1,11 @@
+**Prestigious U.S.-Ireland Scholarship Paused Amid Funding Woes**\
+`More than 300 American students have benefited from the George J. Mitchell program, founded after the Good Friday Agreement, but it has been halted indefinitely.`\
+https://nytimes.com/2024/10/09/world/europe/us-ireland-mitchell-scholarship-paused.html
+
+**The Bounce: NBA general managers answer questions in new survey.**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5830725/2024/10/09/victor-wembanyama-spurs-nba-the-bounce/
+
 **Texans place Nico Collins, NFL's leading receiver, on IR**\
 `Collins leads the league in receiving yards (567), is tied for third in receptions (32) and fifth in targets (45).`\
 https://nytimes.com/athletic/5831234/2024/10/09/texans-nico-collins-injured-reserve/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/09/style/tiny-modern-love-stories-filled-with-warm-s
 **Does Your School Use Suicide Prevention Software? We Want to Hear From You.**\
 `Concerned about anxiety and depression among students, some schools are monitoring what children type into their devices to detect suicidal thinking or self-harm.`\
 https://nytimes.com/2024/10/09/health/suicide-prevention-software-monitoring.html
-
-**Sharks are eager for Macklin Celebrini to shine, and here's how they're supporting him**\
-`The Sharks have high hopes for Celebrini, but are trying to support him so he isn't overwhelmed early.`\
-https://nytimes.com/athletic/5830461/2024/10/09/macklin-celebrini-debut-sharks/
-
-**Medical Facilities in Milton’s Path Are Preparing With Closures and Barricades**\
-`Hospitals and nursing homes in Florida have plenty of experience with hurricanes, but officials are aware that Milton may bring more damage than past storms.`\
-https://nytimes.com/2024/10/09/weather/florida-hospitals-storm-closures-preparations.html
 
