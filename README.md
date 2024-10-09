@@ -1,3 +1,19 @@
+**Man Charged in South Africa Mass Shooting That Left 18 Dead**\
+`The killings of 18 members of one family assembled for a gathering last month are among an increasing number of mass shootings in South Africa.`\
+https://nytimes.com/2024/10/09/world/africa/mass-shooting-south-africa-charges.html
+
+**Wolfsburg suspend striker Behrens over homophobic comments**\
+`Wolfsburg have suspended striker Kevin Behrens for making a homophobic comment during an autograph-signing session.`\
+https://nytimes.com/athletic/5831728/2024/10/09/wolfsburg-suspend-striker-kevin-behrens-homophobic/
+
+**Giants' Kayvon Thibodeaux out after undergoing wrist surgery**\
+`Giants coach Brian Daboll declined to offer a timeline on Thibodeaux's injury status or whether he was being considered for injured reserve.`\
+https://nytimes.com/athletic/5831783/2024/10/09/kayvon-thibodeaux-out-wrist-surgery/
+
+**Scenes From Florida as Residents Prepare for Milton**\
+`The storm is expected to make landfall around midnight, devastating an area still recovering from Hurricane Helene, which tore through Florida’s western coast two weeks ago.`\
+https://nytimes.com/2024/10/09/us/hurricane-milton-photos-videos.html
+
 **The Viral Choreographer Changing the Way Women Move**\
 `Parris Goebel's muscular, surreal dances are transforming the way that Rihanna, SZA and others move.`\
 https://nytimes.com/interactive/2024/10/09/magazine/parris-goebel-dance.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/10/09/us/elections/swing-states-voters.html
 **Google Triumphs on the Nobel Stage as Tough Antitrust Fight Looms**\
 `Two of the company’s A.I. researchers shared the Nobel Prize in Chemistry, just hours after the Justice Department started spelling out plans that could lead to its break up.`\
 https://nytimes.com/2024/10/09/technology/google-nobel-prize-antitrust.html
-
-**It’s Crunchtime for Kari Lake in Arizona’s Senate Race**\
-`The Republican firebrand trails in the polls and faces a big financial disadvantage. Wednesday night’s debate may be her last big chance to land a blow against her Democratic opponent.`\
-https://nytimes.com/2024/10/09/us/politics/kari-lake-ruben-gallego-arizona-senate.html
-
-**A Brioche That Will Make a Believer Out of You**\
-`You don’t have to dedicate your life to the ancient practice of baking to yield a stunning loaf. You may just find you want to.`\
-https://nytimes.com/2024/10/09/magazine/best-brioche-recipe.html
-
-**Eric Adams Was Never the Future of the Democratic Party**\
-`The real lesson of Adams’s mayoralty has nothing to do with corruption.`\
-https://nytimes.com/2024/10/09/opinion/eric-adams-democrats.html
-
-**Here’s How to Send Texts on an iPhone Even if You Lose Cellular Service**\
-`All iPhone 14 and later models can connect via satellite, but your phone must be updated to the latest software, iOS 18. Recipients of the messages must also have the latest iOS. Android users with Pixel 9 phones also have some options.`\
-https://nytimes.com/2024/10/09/us/milton-iphone-texts-satellite-emergency.html
 
