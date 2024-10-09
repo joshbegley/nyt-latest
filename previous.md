@@ -1,40 +1,40 @@
+**Wednesday Briefing**\
+`An Israeli airstrike in Syria.`\
+https://nytimes.com/2024/10/09/briefing/israel-syria-lebanon.html
+
+**Inside Nottingham Forest's academy: Handshakes, Oura rings and finding the next Brennan Johnson**\
+`The Athletic went behind the scenes at the redeveloped Forest academy to get an insight into how they develop the next generation of talents`\
+https://nytimes.com/athletic/5808999/2024/10/09/nottingham-forest-academy-brennan-johnson/
+
+**In This Office, the Fading Dream of a Unified Korea Lives On**\
+`On paper, five South Korean officials are the governors of North Korean provinces. Their goal is reunification, but fewer and fewer Koreans share it.`\
+https://nytimes.com/2024/10/09/world/asia/korea-reunification.html
+
+**‘I’m Not Going to Wait’: Young Chinese Jump Into Stock Frenzy**\
+`Despite the risks of investing at a volatile time, investors see the recent stock rally as a rare opportunity to make money when China’s economy is sluggish.`\
+https://nytimes.com/2024/10/09/business/china-stocks-young-investors.html
+
+**How Harrods, London’s Luxury Emporium, Is Dealing With a Sexual Abuse Scandal**\
+`The 175-year-old department store is trying to make amends for alleged abuse by its former owner, Mohamed Al Fayed, even while shoppers seem undeterred.`\
+https://nytimes.com/2024/10/09/world/europe/harrods-sexual-abuse-scandal-mohamed-al-fayed.html
+
+**Global Warming Made Helene More Menacing, Researchers Say**\
+`In cooler times, a similarly rare storm over the Southeast would have delivered less rain and weaker winds, a team of scientists concluded in an analysis.`\
+https://nytimes.com/2024/10/09/climate/hurricane-helene-climate-change.html
+
+**Fantasy football rankings Week 6: Sleepers, projections, starts**\
+`Jake Ciely has what you need to set your fantasy football lineup, breaking down the sleepers and need-to-know stats for the Week 6 slate.`\
+https://nytimes.com/athletic/5829747/2024/10/09/fantasy-football-rankings-week-6-sleepers-projections-starts-jalen-tolbert-chase-brown/
+
+**Volkswagen’s Woes Reflect a Stagnant German Economy**\
+`Germany’s largest automaker rode a wave of strong sales for years, but lagging demand and pressure from China are forcing it to consider layoffs.`\
+https://nytimes.com/2024/10/09/world/europe/volkswagen-german-economy.html
+
+**Quote of the Day: Study of Life Spans Suggests Humans May Be at Their Peak**\
+`Quotation of the Day for Wednesday, October 9, 2024`\
+https://nytimes.com/2024/10/08/pageoneplus/quote-of-the-day-study-of-life-spans-suggests-humans-may-be-at-their-peak.html
+
 **Fernando Tatis Jr. caps big inning, Padres hold on to capture NLDS edge: Takeaways**\
 `SAN DIEGO — Behind a 6-5 victory, the San Diego Padres are a win away from ending the Los Angeles Dodgers’ season again, and they’ll get a chance on Wednesday to do it at home, which just might be the most raucous ballpark of the postseason.`\
 https://nytimes.com/athletic/5829981/2024/10/08/padres-dodgers-nlds-fernando-tatis/
-
-**‘Weren’t good in so many areas’: 7 Bruins shortcomings in season-opening rout**\
-`The Bruins only lost by two goals against the Florida Panthers. It's proof sometimes the score means nothing.`\
-https://nytimes.com/athletic/5830228/2024/10/08/bruins-season-opener-panthers-shortcomings/
-
-**Mets' Sean Manaea delivers sparkling performance with a heavy heart**\
-`Mets manager Carlos Mendoza said: 'His mound presence, his demeanor, like there was something different about him today."`\
-https://nytimes.com/athletic/5830130/2024/10/08/mets-sean-manaea-nlds/
-
-**The Phillies look beatable. Everything they've built is teetering on the edge. Now what?**\
-`The Phillies have to win two games in three days or it's over a round earlier than it was in 2023, which ended a round earlier than 2022.`\
-https://nytimes.com/athletic/5830161/2024/10/08/phillies-playoffs-elimination-mets/
-
-**U.S. Outlines Google Search Changes It’s Weighing in Antitrust Case**\
-`They include making Google’s data available to rivals and forcing it to break off parts of the company, the Justice Department said in a court filing.`\
-https://nytimes.com/2024/10/08/technology/google-search-antitrust.html
-
-**What we learned from the Blues' season-opening win over Seattle: Momentum matters**\
-`Here's a few early observations from the Blues' 3-2 come-from-behind win over the Seattle Kraken in the season opener.`\
-https://nytimes.com/athletic/5829884/2024/10/08/blues-season-opener-seattle-kyrou/
-
-**Mets take advantage of raucous atmosphere to move within 1 win of NLCS**\
-`Pete Alonso hit his third homer in four games, all of them the other way: “He’s a different kind of strong.”`\
-https://nytimes.com/athletic/5830118/2024/10/08/mets-nlds-pete-alonso-sean-manaea/
-
-**Courtney Williams leads Lynx past Sun to reach WNBA Finals**\
-`It’s Minnesota's first trip to the finals since 2017 when the Lynx won their fourth WNBA title in seven seasons.`\
-https://nytimes.com/athletic/5830134/2024/10/08/lynx-sun-game-5-result-score/
-
-**Slotkin and Rogers Attack Each Other’s Records in Michigan Senate Debate**\
-`Representative Elissa Slotkin, a Democrat, and former Representative Mike Rogers, a Republican, had bitter exchanges over abortion, war and China.`\
-https://nytimes.com/2024/10/08/us/slotkin-rogers-michigan-debate.html
-
-**The 9 Elements of a Trump Rally**\
-`The themes Donald Trump returns to again and again at his rallies`\
-https://nytimes.com/interactive/2024/10/08/us/politics/trump-rally.html
 
