@@ -1,3 +1,15 @@
+**Who Will Lead Britain’s Conservatives? The Finalists Are a Surprise.**\
+`After an epic election defeat in July, opposition lawmakers have presented their party’s paying members with an unexpected choice of two candidates from the right.`\
+https://nytimes.com/2024/10/09/world/europe/uk-conservative-leadership-contest.html
+
+**Scoop City: How Saleh failed the Jets**\
+`Robert Saleh was hired to be a CEO-type leader in New York. It's why he had to go, despite the Jets defensive prowess.`\
+https://nytimes.com/athletic/5831204/2024/10/09/scoop-city-how-saleh-failed-the-jets/
+
+**Tiny Love Stories: ‘Filled With Warm, Sugary Feelings’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/10/09/style/tiny-modern-love-stories-filled-with-warm-sugary-feelings.html
+
 **Does Your School Use Suicide Prevention Software? We Want to Hear From You.**\
 `Concerned about anxiety and depression among students, some schools are monitoring what children type into their devices to detect suicidal thinking or self-harm.`\
 https://nytimes.com/2024/10/09/health/suicide-prevention-software-monitoring.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/09/world/democracy-film-climate-nash.html
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears have won two in a row ahead of Sunday's game against the Jaguars in London. Share your questions here.`\
 https://nytimes.com/athletic/5831156/2024/10/09/bears-mailbag-questions-35/
-
-**"We’ve got things to clean up": Lions emphasize improving with tough stretch out of bye week**\
-`The Lions know they haven't played their best football yet this season.`\
-https://nytimes.com/athletic/5829996/2024/10/09/detroit-lions-dan-campbell-jared-goff-bye-week/
-
-**Garth Brooks Names Woman Who Accused Him of Rape**\
-`In a court filing, lawyers for the country superstar portrayed him as “the victim of a shakedown” and asked for compensatory and punitive damages.`\
-https://nytimes.com/2024/10/09/arts/music/garth-brooks-names-rape-accuser.html
-
-**The Met’s Next Fashion Blockbuster Takes On the Politics of Race**\
-`With support from LeBron James, ASAP Rocky, Pharrell Williams and more.`\
-https://nytimes.com/2024/10/09/style/met-gala-lebron-james-asap-rocky-pharrell-williams.html
 
