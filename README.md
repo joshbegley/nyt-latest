@@ -1,5 +1,5 @@
 **Colombia 'spied' on before Bolivia match - Lorenzo**\
-`Colombia head coach Nestor Lorenzo claims his side have been &#8220;spied&#8221; on in the build up to their World Cup 2025 qualifier against Bolivia on Thursday.`\
+`Colombia head coach Nestor Lorenzo claims his side have been &#8220;spied&#8221; on in the build up to their World Cup 2026 qualifier against Bolivia on Thursday.`\
 https://nytimes.com/athletic/5831583/2024/10/09/colomobia-spying-bolivia/
 
 **Brown Rejects Protesters’ Push to Divest Over Israel Ties**\
