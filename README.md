@@ -1,3 +1,15 @@
+**Letitia James vs. Andrew Cuomo for New York City Mayor? It Could Happen.**\
+`With Mayor Eric Adams’s future in doubt, former Gov. Andrew Cuomo and his adversary Letitia James, the state attorney general, could find themselves in a battle for the city’s top job.`\
+https://nytimes.com/2024/10/09/nyregion/tish-james-cuomo-mayor.html
+
+**NFL best bets Week 6: Commanders cover train keeps rolling**\
+`Austin Mock has a few bets for NFL Week 6 action, including going with the Washington Commanders for another week.`\
+https://nytimes.com/athletic/5831493/2024/10/09/nfl-best-bets-week-6-commanders-patriots-jets/
+
+**Deadly Israeli Strike in Northern Gaza**\
+`Footage obtained by Reuters shows a burned-out ambulance and dark smoke rising on the grounds of a hospital in Jabaliya, Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009751935/israel-strike-jabaliya-gaza.html
+
 **LIV Golf vs. PGA Tour exhibition set for Dec. 17 in Las Vegas**\
 `The Scheffler/Rory versus Koepka/DeChambeau event has been dubbed “The Showdown.”`\
 https://nytimes.com/athletic/5831488/2024/10/09/dechambeau-koepka-mcilroy-scheffler-the-showdown/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/09/us/politics/trump-maine-governor-gender.html
 **Kraken sign Daccord to 5-year extension: What it means**\
 `The 28-year-old goalie had a breakout year last season, his first as a full-time NHL goalie.`\
 https://nytimes.com/athletic/5831303/2024/10/09/seattle-kraken-joey-daccord-extension-salary/
-
-**Where will Drake Maye rank? From Plunkett to Zappe, here's how Patriots' QB starters fared**\
-`A quarterback’s first start is always big news. Sometimes, the debuts are launching pads to long, storied careers. Other times, they aren't.`\
-https://nytimes.com/athletic/5830329/2024/10/09/patriots-drake-maye-starting-quarterbacks/
-
-**In Trump’s Speeches, Signs of Cognitive Impairment**\
-`Readers discuss Donald Trump’s age and cognitive patterns. Also: A traumatized Israel; the “ghost guns” case; Eric Adams; A.I. and nuclear power.`\
-https://nytimes.com/2024/10/09/opinion/donald-trump-cognitive-impairment.html
-
-**NFL settles racial discrimination lawsuit with reporter Jim Trotter**\
-`Terms of the settlement are not publicly known. The NFL did not immediately respond to a request for comment.`\
-https://nytimes.com/athletic/5831176/2024/10/09/nfl-jim-trotter-lawsuit-settlement/
 
