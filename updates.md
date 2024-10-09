@@ -1,3 +1,7 @@
+**Lily Ebert, Holocaust Survivor, Author and TikTok Star, Dies at 100**\
+`She survived Auschwitz, wrote a best-selling memoir, “Lily’s Promise,” and spoke to a following of 2 million fans on TikTok.`\
+https://nytimes.com/2024/10/09/books/lily-ebert-dead.html
+
 **What Devin White's release says about the Eagles linebackers room**\
 `Devin White had high hopes for his time with the Eagles.`\
 https://nytimes.com/athletic/5829478/2024/10/09/philadelphia-eagles-linebackers-devin-white-release/
