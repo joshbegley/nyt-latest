@@ -1,3 +1,7 @@
+**New Images Show Lebanese Border Villages Flattened in Israeli Invasion**\
+`Satellite images and videos offer an early glimpse of the devastation in southern Lebanon a week after Israeli ground troops moved in to confront Hezbollah militants.`\
+https://nytimes.com/interactive/2024/10/09/world/middleeast/lebanon-destruction.html
+
 **The U.N. says a quarter of Lebanese territory is under Israeli evacuation warnings.**\
 `By Aryn Baker`\
 https://nytimes.com/live/2024/10/09/world/israel-iran-lebanon-hezbollah/the-un-says-a-quarter-of-lebanese-territory-is-under-israeli-evacuation-warnings
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828220/2024/10/09/kyle-busch-nascar-12-questions/
 **With Biden Absent, Meeting of Western Leaders on Ukraine Is Postponed**\
 `A gathering in Germany intended to show support for Ukraine was put off after President Biden canceled his trip to deal with Hurricane Milton.`\
 https://nytimes.com/2024/10/09/world/europe/us-ukraine-biden-ramstein.html
-
-**Rosenthal: Fernando Tatis Jr. meets the moment in spectacular October so far**\
-`In five games this postseason, Tatis is 10-for-18 with four homers, including his two-run shot in the second inning on Tuesday.`\
-https://nytimes.com/athletic/5830708/2024/10/09/padres-fernando-tatis-nlds-mlb/
 
