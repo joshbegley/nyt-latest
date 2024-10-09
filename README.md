@@ -1,40 +1,40 @@
-**Misreading the Moment, a Bra Empire Goes Bust**\
-`In “Selling Sexy,” two veteran fashion journalists examine how Victoria’s Secret fell from grace.`\
-https://nytimes.com/2024/10/09/books/review/selling-sexy-lauren-sherman-chantal-fernandez.html
+**How to Say No to Our A.I. Overlords**\
+`Google, Microsoft and Meta are shoving A.I. chatbots into our faces. Sometimes, there’s a way out.`\
+https://nytimes.com/2024/10/09/technology/personaltech/turn-off-ai-overviews-google-meta.html
 
-**In ‘The Witches of El Paso,’ Magic Is a Blessing and a Curse**\
-`In this family saga, a floundering lawyer must tap into her supernatural heritage to help her family in the past and present.`\
-https://nytimes.com/2024/10/09/books/review/the-witches-of-el-paso-luis-jaramillo.html
+**Republicans Hate Tech’s Influence on Politics. Unless It Comes From Elon Musk.**\
+`The G.O.P.’s deep hypocrisy about X’s owner.`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/musk-trump-influence
 
-**Trump Family Business Eyes Hotel Deals in Israel**\
-`The Trump Organization was in talks about Israeli hotels before the Hamas attack last year. It says it wants to resume them in the future, raising questions about the mingling of politics and money in the event of a second Trump term.`\
-https://nytimes.com/2024/10/09/us/politics/trump-organization-israel-hotels.html
+**What Do Celebrities Owe Their Fans?**\
+`Many stars have long accepted fan misbehavior, intense pressure and intrusions into their personal lives as the price of fame. Should they?`\
+https://nytimes.com/2024/10/09/learning/what-do-celebrities-owe-their-fans.html
 
-**Alisson out until after November international break with hamstring injury**\
-`Liverpool goalkeeper Alisson has been ruled out until after the November international break.`\
-https://nytimes.com/athletic/5824726/2024/10/09/alisson-hamstring-injury-liverpool/
+**The ‘Goth’ Volleyball Player Was Actually Toning Things Down**\
+`“I just wanted to look as much like myself as I could,” Nora Hayd said of the team headshot that made her an online sensation.`\
+https://nytimes.com/2024/10/09/style/goth-volleyball-player-nora-hayd.html
 
-**Jurgen Klopp to become head of global soccer at Red Bull**\
-`Jurgen Klopp is to become the new head of global soccer at Red Bull.`\
-https://nytimes.com/athletic/5830469/2024/10/09/jurgen-klopp-red-bull/
+**Months Before Ethiopian Crash, Boeing Turned Aside Carrier’s Questions**\
+`Ethiopian Airlines appeared to foresee the deadly confusion its pilots would face if flawed software in the Boeing 737 Max failed. Boeing chose not to provide the guidance that the carrier was seeking.`\
+https://nytimes.com/2024/10/09/us/politics/months-before-ethiopian-crash-boeing-turned-aside-carriers-questions.html
 
-**Manny Machado's heads-up play helps spark Padres in NLDS Game 3**\
-`Machado instigated a rare six-run inning. Yet, afterward, there was little surprise among San Diego's players.`\
-https://nytimes.com/athletic/5829878/2024/10/09/manny-machado-sparks-padres-nlds-game-3/
+**152 Years Ago, This Woman Ran for President**\
+`An opera looks at Victoria Woodhull, whose story centered on politics, sex and scandal.`\
+https://nytimes.com/2024/10/09/nyregion/victoria-woodhull-president-opera.html
 
-**Mozambique’s 2024 National Elections: What to Know**\
-`Four candidates are vying for the presidency in a country that has faced a yearslong ISIS-backed insurgency. The election is also a test of the sway of former independence movements.`\
-https://nytimes.com/2024/10/09/world/africa/mozambique-elections-what-to-know.html
+**Jack Smith Owes Us an Explanation**\
+`The Justice Department should not have allowed revelations about the Trump Jan. 6 case to be disclosed so close to Election Day.`\
+https://nytimes.com/2024/10/09/opinion/jack-smith-trump-biden.html
 
-**Designer Dorm Rooms**\
-`What do you think of a new trend in which college students are hiring interior designers to makeover their dorm rooms?`\
-https://nytimes.com/2024/10/09/learning/designer-dorm-rooms.html
+**We Live in the Era of Nightmare Hurricanes Now**\
+`We need to be honest about what has become the most expensive and deadly kind of natural disaster in the United States.`\
+https://nytimes.com/2024/10/09/opinion/hurricane-milton-florida-storm-surge-climate-change.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/09/crosswords/spelling-bee-forum.html
+**Trump Has Something He’d Like to Sell You**\
+`The former president’s history of merchandising himself may be broadly revealing in unexpected ways.`\
+https://nytimes.com/2024/10/09/opinion/trump-salesman-apprentice-winning-losing.html
 
-**$160 Million Later, New Pool and Rink Will Replace Central Park Eyesore**\
-`The new Harlem Meer Center, opening early next year, will serve the largely Black and Latino communities surrounding the northern end of the park.`\
-https://nytimes.com/2024/10/09/nyregion/central-park-harlem-meer-center.html
+**Trump Holds Up Transition Process, Skirting Ethics and Fund-Raising Rules**\
+`Donald J. Trump has so far opted out of the official planning for a government handover, a move that allows him to avoid disclosing his donors to his transition effort.`\
+https://nytimes.com/2024/10/09/us/politics/trump-presidential-transition.html
 
