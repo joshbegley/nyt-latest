@@ -1,3 +1,7 @@
+**Maple Leafs report cards: An opening night dud in Montreal**\
+`The Leafs were shutout for the first time since Nov. 20, 2021 in a 1-0 loss to the Montreal Canadiens.`\
+https://nytimes.com/athletic/5832638/2024/10/09/maple-leafs-report-cards-canadiens-3/
+
 **What Makes a Sticker Stickier**\
 `Choose your battles carefully while solving Grant Boroughs’s puzzle.`\
 https://nytimes.com/2024/10/09/crosswords/daily-puzzle-2024-10-10.html

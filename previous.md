@@ -1,3 +1,7 @@
+**Maple Leafs report cards: An opening night dud in Montreal**\
+`The Leafs were shutout for the first time since Nov. 20, 2021 in a 1-0 loss to the Montreal Canadiens.`\
+https://nytimes.com/athletic/5832638/2024/10/09/maple-leafs-report-cards-canadiens-3/
+
 **What Makes a Sticker Stickier**\
 `Choose your battles carefully while solving Grant Boroughs’s puzzle.`\
 https://nytimes.com/2024/10/09/crosswords/daily-puzzle-2024-10-10.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832486/2024/10/09/red-sox-coaches-fired-andy-fox-k
 **Trump’s Remarks on Migrants Illustrate His Obsession With Genes**\
 `In discussing migrants and genes, the former president used language that reflected his decades-long belief that bloodlines determine a person’s capacity for success or violence.`\
 https://nytimes.com/2024/10/09/us/politics/trump-migrants-genes.html
-
-**Francisco Lindor blasts Mets past Phillies and into NLCS: Takeaways**\
-`It was only fitting that Lindor came through with the hit that sent the Mets to the NLCS, which they reached for the first time since 2015. `\
-https://nytimes.com/athletic/5832377/2024/10/09/mets-phillies-score-lindor-game-4-takeaways/
 
