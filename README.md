@@ -1,3 +1,7 @@
+**Review: In ‘The Counter,’ a Cup of Joe and an Off-the-Menu Order**\
+`A diner patron asks a waitress for an extraordinary side dish in Meghan Kennedy’s sweet but shaggy new play.`\
+https://nytimes.com/2024/10/09/theater/the-counter-review-edward-flood.html
+
 **Trump Keeps the Tax Cut Promises Coming, Now for Americans Abroad**\
 `Former President Donald J. Trump said in a statement that he would seek to end the “double taxation” of Americans overseas.`\
 https://nytimes.com/2024/10/09/business/trump-tax-cut-promise-overseas.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/5832486/2024/10/09/red-sox-coaches-fired-andy-fox-k
 https://nytimes.com/2024/10/09/us/politics/trump-migrants-genes.html
 
 **Francisco Lindor blasts Mets past Phillies and into NLCS: Takeaways**\
-`It was only fitting that Lindor came through with the hit that sent the Mets to the NLCS for the first time since 2015. `\
+`It was only fitting that Lindor came through with the hit that sent the Mets to the NLCS, which they reached for the first time since 2015. `\
 https://nytimes.com/athletic/5832377/2024/10/09/mets-phillies-score-lindor-game-4-takeaways/
 
 **Cards Against Humanity says it will pay Trump critics to prepare to vote.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/business/zantac-settlement-gsk.html
 **Riding Out the Storm Means Making New Friends in the Hotel Lobby**\
 `Evacuees seeking shelter and safety from Milton find camaraderie at hotels across Florida.`\
 https://nytimes.com/2024/10/09/us/hotel-lobby-milton-wesley-chapel.html
-
-**They Fled North Carolina After Helene. Now They’re in Another Storm’s Cross Hairs.**\
-`“This dumb luck,” said one man who had just escaped the devastating post-Helene conditions in western North Carolina to stay at a friend’s house in Venice, Fla.`\
-https://nytimes.com/2024/10/09/us/hurricane-milton-helene-north-carolina.html
 
