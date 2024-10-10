@@ -1,3 +1,7 @@
+**The Warriors are talking like they want to lead the NBA in attempted 3s**\
+`“What I like about this team is that, even though we lost Klay (Thompson), we have more shooting depth,” coach Steve Kerr said.`\
+https://nytimes.com/athletic/5832749/2024/10/10/golden-state-warriors-3-point-shooting/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/10/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000009753486/hurricane-milton-landfall-flor
 **Word of the Day: synthesize**\
 `This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/10/learning/word-of-the-day-synthesize.html
-
-**Faced With Regional Setbacks, India Flexes Its New Economic Muscle**\
-`Tapping into a fast-growing economy, Prime Minister Narendra Modi has been offering financial help to India’s neighbors as he tries to counter China’s influence.`\
-https://nytimes.com/2024/10/10/world/asia/india-economy-modi-maldives.html
 
