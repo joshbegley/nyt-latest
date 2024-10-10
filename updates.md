@@ -1,3 +1,15 @@
+**Phil Kessel, 3-time Stanley Cup champion, joins World Poker Tour**\
+`An avid poker player, Kessel was known to frequent competitive games at casinos in cities where he played in the NHL.`\
+https://nytimes.com/athletic/5835211/2024/10/10/phil-kessel-world-poker-tour/
+
+**In the Middle (Class) of It All**\
+`Voters in Wisconsin are weighing which candidate better understands their economic anxieties.`\
+https://nytimes.com/2024/10/10/us/politics/voters-economy-trump-harris.html
+
+**Malfunction at Historic Gold Mine in Colorado Leaves 1 Dead and a Dozen Trapped**\
+`An equipment failure at the Mollie Kathleen Gold Mine near Cripple Creek stranded 12 people underground during a tour.`\
+https://nytimes.com/2024/10/10/us/gold-mine-colorado-rescue.html
+
 **Judge Approves Limited Further Release of Evidence in Trump Election Case**\
 `An appendix to a high-profile prosecutorial brief, released last week, could become public next week. But much of it would be redacted.`\
 https://nytimes.com/2024/10/10/us/politics/judge-evidence-trump-election-case.html
