@@ -1,3 +1,7 @@
+**Johnston and Lebrun: What we're hearing about 4 veteran UFA defensemen looking for another shot**\
+`With the NHL season off and running, there are still a number of veteran defensemen who hope the game hasn't completely passed them by.`\
+https://nytimes.com/athletic/5834923/2024/10/10/nhl-free-agents-giordano-shattenkirk-schultz-klingberg/
+
 **Saka being assessed after sustaining injury in England's defeat vs Greece**\
 `Lee Carsley says Bukayo Saka is being assessed after the Arsenal winger sustained an injury in England’s Nations League loss against Greece.`\
 https://nytimes.com/athletic/5834898/2024/10/10/bukayo-saka-injury-england-greece/
