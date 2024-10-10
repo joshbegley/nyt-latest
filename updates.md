@@ -1,3 +1,11 @@
+**Jets shift Downing to offensive play-caller, strip Hackett from role**\
+`Jets interim coach Jeff Ulbrich said Aaron Rodgers was supportive of the decision to turn to Downing.`\
+https://nytimes.com/athletic/5833874/2024/10/10/todd-downing-jets-nathaniel-hackett/
+
+**The Windup: Major damage to Tropicana Field**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5833988/2024/10/10/mets-dodgers-tropicana-field-the-windup/
+
 **Bring on the Butternuts**\
 `Fall’s star squash shines in an adaptable pasta with kale and brown butter, roasted with an onion gravy or puréed into a soft velvety soup.`\
 https://nytimes.com/2024/10/10/dining/butternut-squash-dishes.html

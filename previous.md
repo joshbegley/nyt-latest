@@ -1,3 +1,11 @@
+**Jets shift Downing to offensive play-caller, strip Hackett from role**\
+`Jets interim coach Jeff Ulbrich said Aaron Rodgers was supportive of the decision to turn to Downing.`\
+https://nytimes.com/athletic/5833874/2024/10/10/todd-downing-jets-nathaniel-hackett/
+
+**The Windup: Major damage to Tropicana Field**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5833988/2024/10/10/mets-dodgers-tropicana-field-the-windup/
+
 **Bring on the Butternuts**\
 `Fall’s star squash shines in an adaptable pasta with kale and brown butter, roasted with an onion gravy or puréed into a soft velvety soup.`\
 https://nytimes.com/2024/10/10/dining/butternut-squash-dishes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5833027/2024/10/10/phillies-offseason-questions-tra
 **What to know about the report.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/what-to-know-about-the-report
-
-**How to fix Notre Dame's offense: 4 objectives for the Irish**\
-`As the second half of the season approaches, OC Mike Denbrock needs to correct the shortcomings on Notre Dame's offense soon.`\
-https://nytimes.com/athletic/5833732/2024/10/10/notre-dame-offense-college-football-riley-leonard-jeremiyah-love/
-
-**Here’s What It Was Like as Milton’s Eye Came Ashore**\
-`Our reporter’s account of a harrowing night in Sarasota, Fla. — different from anything she has experienced as a native of New England.`\
-https://nytimes.com/2024/10/10/weather/hurricane-milton-eye-sarasota.html
 
