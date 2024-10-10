@@ -1,3 +1,11 @@
+**Is a $910 Fleece Actually Worth It?**\
+`Camping’s favorite material gets a luxury overhaul.`\
+https://nytimes.com/2024/10/10/style/rier-fleece-luxury-pullovers.html
+
+**Who’s in Charge at City Hall?**\
+`A few dedicated public servants are carrying the load left by the exodus of Mayor Adams’s cronies.`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/adams-city-hall-resignations
+
 **The Briefing: England 1-2 Greece - Carsley's wake-up call, defensive jitters and a fitting tribute to Baldock**\
 `Greece secured their first ever win over England to bring Lee Carsley and his team back down to earth with a bump`\
 https://nytimes.com/athletic/5830927/2024/10/10/england-bellingham-stones-greece-baldock/
