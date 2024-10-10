@@ -1,3 +1,19 @@
+**Jupiter’s Great Red Spot Moves Like the Solar System’s Biggest Kickball**\
+`A sequence of images captured by NASA’s Hubble Space Telescope showed how much the giant storm changed shape as it traveled within the planet’s atmosphere.`\
+https://nytimes.com/2024/10/10/science/jupiter-great-red-spot-hubble.html
+
+**Milton Was an Impressive Storm. Here Are 5 Things Our Meteorologist Noticed.**\
+`Last month’s Hurricane Helene will be widely remembered for the rainfall in the Appalachians and the surge along Florida’s west shore. Milton will stand out for other reasons.`\
+https://nytimes.com/2024/10/10/weather/milton-forecast-meteorologists.html
+
+**Airstrikes in Beirut Kill at Least 22 and Injure Over 100, Lebanon Says**\
+`The attack, for which Lebanese officials blamed Israel, appeared to be the deadliest in the Lebanese capital in more than a year of fighting between the Israeli military and Hezbollah.`\
+https://nytimes.com/2024/10/10/world/middleeast/israel-strike-beirut-lebanon.html
+
+**In Punta Gorda, homes are flooded and the boats are not where people left them.**\
+`By Audra D. S. Burch and Kate Selig`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/in-punta-gorda-homes-are-flooded-and-the-boats-are-not-where-people-left-them
+
 **Hurricane Milton’s Impacts: What We Know**\
 `Flooding, wind damage and power outages affected areas throughout Florida. At least seven people were killed.`\
 https://nytimes.com/2024/10/10/weather/hurricane-milton-damage-florida.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/10/style/rier-fleece-luxury-pullovers.html
 **Who’s in Charge at City Hall?**\
 `A few dedicated public servants are carrying the load left by the exodus of Mayor Adams’s cronies.`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/adams-city-hall-resignations
-
-**The Briefing: England 1-2 Greece - Carsley's wake-up call, defensive jitters and a fitting tribute to Baldock**\
-`Greece secured their first ever win over England to bring Lee Carsley and his team back down to earth with a bump`\
-https://nytimes.com/athletic/5830927/2024/10/10/england-bellingham-stones-greece-baldock/
-
-**Russell Wilson: 'Confident I'd be ready to play' if needed Sunday**\
-`Wilson was noncommittal about making his Steelers debut or what his role will be, but signs point to him backing up Justin Fields.`\
-https://nytimes.com/athletic/5834761/2024/10/10/russell-wilson-injury-steelers-raiders/
-
-**Tim Johnson, Senator Who Came Back From an Aneurysm, Dies at 77**\
-`One of the last Democrats from the Great Plains to be elected to national office, he built his career on delivering benefits to his home state, South Dakota.`\
-https://nytimes.com/2024/10/10/us/politics/tim-johnson-dead.html
-
-**Man Pleads Guilty to Hate Crime for Vandalizing Rutgers Islamic Center**\
-`Officials said the man caused thousands of dollars’ worth of damage to religious artifacts after breaking into the New Jersey university’s Center for Islamic Life in April.`\
-https://nytimes.com/2024/10/10/nyregion/rutgers-hate-crime-muslim.html
 
