@@ -1,3 +1,7 @@
+**Hurricane Milton’s Destruction**\
+`We cover the latest on the storm.`\
+https://nytimes.com/2024/10/10/briefing/hurricane-milton-florida-latest.html
+
 **'Always another level': Donovan Mitchell believes Cavs are ready to take next step**\
 `With a new coach and his teammates signed to new deals, Mitchell, who signed an extension himself, is ready to help the Cavs become elite.`\
 https://nytimes.com/athletic/5831907/2024/10/10/donovan-mitchell-cleveland-cavaliers-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5831567/2024/10/10/nfl-projection-jets-bengals-dolp
 **How the Hurricanes masterfully execute the salary cap dance**\
 `Get out your calculators, because it's time to make sense of the Hurricanes' recent roster moves.`\
 https://nytimes.com/athletic/5832760/2024/10/10/carolina-hurricanes-salary-cap-roster/
-
-**Which NFL coaches are on the hot seat? As the Jets showed, it's about the owners**\
-`After Woody Johnson's firing of Robert Saleh, we take a closer look at the owners who could be most inclined to make a change next.`\
-https://nytimes.com/athletic/5832473/2024/10/10/nfl-coach-firings-owners-woody-johnson-jets/
 
