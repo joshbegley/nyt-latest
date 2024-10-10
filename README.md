@@ -1,4 +1,4 @@
-**Stanton's homer gives Yankees' ALDS edge over Royals: Takeaways**\
+**Stanton's homer gives Yankees ALDS edge over Royals: Takeaways**\
 `The Yankees took a 2-1 lead in the series, with ace Gerrit Cole set to take the mound against Michael Wacha in Game 4 on Thursday.`\
 https://nytimes.com/athletic/5832524/2024/10/09/yankees-royals-score-stanton-game-4-takeaways/
 
