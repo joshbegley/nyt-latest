@@ -1,3 +1,11 @@
+**September Was Deadly Month for Russian Troops in Ukraine, U.S. Says**\
+`More than 600,000 Russian troops have been killed or wounded since the war began in 2022.`\
+https://nytimes.com/2024/10/10/us/politics/russia-casualties-ukraine-war.html
+
+**‘Separated’ Review: Interrogating a Policy**\
+`The latest documentary from Errol Morris looks at the Trump administration’s practice of taking children from their parents at the southern border.`\
+https://nytimes.com/2024/10/10/movies/separated-review.html
+
 **Kaprizov joins 50-50 club, Boldy 40-40: 7 bold predictions for the Wild in 2024-25**\
 `Who will get the most starts in net? Will Marco Rossi take another step? Where will the Wild finish in the division? Bold prediction time.`\
 https://nytimes.com/athletic/5829231/2024/10/10/wild-bold-predictions-kaprizov-boldy/
