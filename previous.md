@@ -1,3 +1,7 @@
+**Milton’s Storm Surge Threatens Destruction in the Dark**\
+`A combination of unrelenting rains and strong storm surge prompted officials to issue flash flood warnings in western and Central Florida.`\
+https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida-landfall/miltons-storm-surge-threatens-destruction-in-the-dark
+
 **How Rangers, Igor Shesterkin ignored distractions in opening-night win: Takeaways**\
 `Shesterkin made 29 saves and earned the shutout in the Rangers' 6-0 win over the Penguins. `\
 https://nytimes.com/athletic/5832602/2024/10/09/rangers-penguins-takeaways-igor-shesterkin/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/us/politics/trump-tax-cut-promise-overseas.html
 **Stephen Vogt's decisions didn't pan out for Guardians. Now they face elimination**\
 `The Tigers flipped the script on the Guardians, forcing Vogt to make decisions that ultimately didn't pan out. `\
 https://nytimes.com/athletic/5832414/2024/10/09/cleveland-guardians-alds-game-3-decisions/
-
-**Welcome to Detroit, where the Tigers brought playoff baseball back in full force**\
-`The Tigers are a win away from the ALCS after their "pitching chaos" helped lead them to a Game 3 win in front of an electric home crowd.`\
-https://nytimes.com/athletic/5832437/2024/10/09/tigers-alds-game-3-win-atmosphere/
 
