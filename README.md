@@ -16,7 +16,7 @@ https://nytimes.com/2024/10/10/weather/hurricane-milton-eye-sarasota.html
 
 **Bolivia, altitude and 1,840 steps up from La Paz to their new home 4,150m above sea level**\
 `Bolivia host the Copa America finalists Colombia in a ground way above an altitude that was previously deemed unsafe by FIFA`\
-https://nytimes.com/athletic/5746338/2024/10/10/bolivia-altitude-el-alto-venezuela/
+https://nytimes.com/athletic/5746338/2024/10/10/bolivia-altitude-el-alto-colombia/
 
 **4 Novels Deliver a Heady Mix of Fact and Fiction**\
 `In the hands of skilled novelists, the stories of an  heiress, a prime minister and a literary mystery woman are brought to life.`\
