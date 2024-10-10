@@ -1,3 +1,7 @@
+**After a Harrowing Night, Clearwater, Fla., Faces Severe Flooding**\
+`Residents of one apartment building described fleeing a second-floor unit as water rose around them. After the storm, they are worried about those who lived below them.`\
+https://nytimes.com/2024/10/10/weather/clearwater-florida-severe-flooding.html
+
 **What’s on the Menu? These Restaurants Aren’t Telling.**\
 `Some fine-dining establishments are sharing as few details as possible online in hopes that diners will let go and trust their chefs.`\
 https://nytimes.com/2024/10/10/dining/mysterious-restaurants.html

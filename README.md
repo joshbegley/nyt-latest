@@ -1,3 +1,7 @@
+**Scoop City: Broncos, Commanders and two others on 3-0 streaks**\
+`A look at the new starter in New Orleans, as well as how the Broncos, Commanders, Chiefs and Vikings are 3-0 since Week 2.`\
+https://nytimes.com/athletic/5834215/2024/10/10/scoop-city-the-4-teams-on-3-0-streaks/
+
 **After a Harrowing Night, Clearwater, Fla., Faces Severe Flooding**\
 `Residents of one apartment building described fleeing a second-floor unit as water rose around them. After the storm, they are worried about those who lived below them.`\
 https://nytimes.com/2024/10/10/weather/clearwater-florida-severe-flooding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/magazine/judge-john-hodgman-on-gen-alpha-slang.ht
 **Democrats Seize on Trump’s ‘You’re Rich as Hell’ Remarks to Donors**\
 `An ad from the main super PAC backing Kamala Harris casts Donald Trump as a tycoon who will give handouts to the rich, and the vice president as the candidate of working people.`\
 https://nytimes.com/2024/10/10/us/politics/harris-trump-ad-donors.html
-
-**Rafael Nadal's 20-year tennis symphony surpasses its halting coda**\
-`A difficult path to the end of Nadal's career will be a footnote in a story of sporting greatness`\
-https://nytimes.com/athletic/5833670/2024/10/10/rafael-nadal-career-tennis/
 
