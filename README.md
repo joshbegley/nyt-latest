@@ -1,3 +1,7 @@
+**Ukraine’s Parliament Approves Biggest Tax Hike of War to Support the Army**\
+`The authorities are resorting to a politically unpopular move as they scramble to raise funds for the grueling military effort against Russia.`\
+https://nytimes.com/2024/10/10/world/europe/ukraine-tax-hike-war.html
+
 **Jaguars' flight to London delayed due to Hurricane Milton**\
 `Hurricane Milton made landfall near Sarasota, Fla., as a Category 3 storm on Wednesday and has weakened to a Category 1 hurricane.`\
 https://nytimes.com/athletic/5833596/2024/10/10/hurricane-milton-florida-jaguars-travel-delay/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5833404/2024/10/10/rafael-nadal-retirement-best-ten
 **Social Security Benefits to Climb 2.5% in 2025**\
 `The annual cost-of-living adjustment will increase monthly checks for millions of beneficiaries, including retirees and disabled workers.`\
 https://nytimes.com/2024/10/10/business/social-security-benefits-increase-2025.html
-
-**With 100-Foot-Wide Trump Sign, a Sticker Company Dives Into Politics**\
-`The chief executive of Sticker Mule in Amsterdam, N.Y., set off a debate by displaying his support for Donald J. Trump in a massive sign atop the company’s headquarters.`\
-https://nytimes.com/2024/10/10/nyregion/sticker-mule-trump-sign.html
 
