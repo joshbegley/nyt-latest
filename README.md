@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5831721/2024/10/10/chiefs-defense-running-backs/
 `With Election Day less than a month away, the Times journalists Michael Barbaro, Nate Cohn, Maggie Haberman and Astead Herndon discuss some of the most pressing issues for undecided voters.`\
 https://nytimes.com/video/podcasts/the-daily/100000009752702/election-media-polling-clip.html
 
-**Jets, Bengals or Dolphins? Picking one sub-.500 team to make the playoffs in AFC:**\
+**Jets, Bengals or Dolphins? Picking one sub-.500 team to make the playoffs in AFC**\
 `The New York Jets are in turmoil after firing coach Robert Saleh. But Aaron Rodgers & Co. are still a decent bet to make the playoffs. `\
 https://nytimes.com/athletic/5831567/2024/10/10/nfl-projection-jets-bengals-dolphins-playoffs/
 
