@@ -1,3 +1,7 @@
+**Here’s What It Was Like as Milton’s Eye Came Ashore**\
+`Our reporter’s account of a harrowing night in Sarasota, Fla. — different from anything she has experienced as a native of New England.`\
+https://nytimes.com/2024/10/10/weather/hurricane-milton-eye-sarasota.html
+
 **4 Novels Deliver a Heady Mix of Fact and Fiction**\
 `In the hands of skilled novelists, the stories of an  heiress, a prime minister and a literary mystery woman are brought to life.`\
 https://nytimes.com/2024/10/10/books/review/4-novels-deliver-a-heady-mix-of-fact-and-fiction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/world/europe/ukraine-tax-hike-war.html
 **Jaguars' flight to London delayed due to Hurricane Milton**\
 `Hurricane Milton made landfall near Sarasota, Fla., as a Category 3 storm on Wednesday and has weakened to a Category 1 hurricane.`\
 https://nytimes.com/athletic/5833596/2024/10/10/hurricane-milton-florida-jaguars-travel-delay/
-
-**Food inflation sped up in September.**\
-`By Madeleine Ngo`\
-https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/food-prices-increases-accelerated-in-september
 
