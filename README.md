@@ -1,3 +1,15 @@
+**Dodgers pummel Padres early to force NLDS Game 5: Takeaways**\
+`Mookie Betts set the tone early against Dylan Cease and the Dodgers never looked back in Game 4. `\
+https://nytimes.com/athletic/5832698/2024/10/10/dodgers-padres-mookie-betts-mlb-playoffs/
+
+**How Pervis Estupinan's return is changing Brighton**\
+`The left-back did as much as anyone to change the narrative against Spurs. He brings another dimension to the team`\
+https://nytimes.com/athletic/5784979/2024/10/10/how-pervis-estupinans-return-is-changing-brighton/
+
+**Bukayo Saka has passed one Marcus Rashford milestone. Can he reach a different level?**\
+`At this juncture, Saka’s trajectory is similar to the arc Rashford was on when he was a winger-cum-striker who was gliding past defenders`\
+https://nytimes.com/athletic/5829602/2024/10/10/bukayo-saka-arsenal-marcus-rashford-lessons/
+
 **Do Tottenham have a problem with Cristian Romero?**\
 `A crucial lapse of concentration against Brighton has left some Spurs fans questioning the Argentine’s place in the starting XI`\
 https://nytimes.com/athletic/5825272/2024/10/10/cristiano-romero-form/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5830512/2024/10/10/newcastle-apt-manchester-city/
 **Six possible replacements if Premier League clubs want to make a change in the break**\
 `We are not yet at the quarter-mark of this Premier League season, but the prospect of managerial sackings is already in the air…`\
 https://nytimes.com/athletic/5825107/2024/10/10/managers-premier-league-replacements-sack/
-
-**How Cardiff, Newport, Swansea and Wrexham could return to European football**\
-`New plan for Wales' League Cup could offer a path back into Europe for its four clubs who compete in England rather than their home nation`\
-https://nytimes.com/athletic/5814882/2024/10/10/why-cardiff-newport-swansea-and-wrexham-could-return-to-european-football/
-
-**Mets' longest-tenured players celebrate breakthrough: 'A dream come true'**\
-`Brandon Nimmo and other core players clinched the Mets' first playoff series victory at Citi Field.`\
-https://nytimes.com/athletic/5832830/2024/10/10/mets-nlds-brandon-nimmo-core/
-
-**Kane's successor, Palmer's role and the defensive setup - what to look out for with England**\
-`England's interim manager has several key decisions to make for this week's games as he works to get the job on a full-time basis`\
-https://nytimes.com/athletic/5830932/2024/10/10/england-carsley-things-to-look-out-for/
 

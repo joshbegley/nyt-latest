@@ -1,3 +1,7 @@
+**Do Tottenham have a problem with Cristian Romero?**\
+`A crucial lapse of concentration against Brighton has left some Spurs fans questioning the Argentine’s place in the starting XI`\
+https://nytimes.com/athletic/5825272/2024/10/10/cristiano-romero-form/
+
 **Why international football is under threat like never before**\
 `With the sport's calendar more packed than ever, something has to give - and international fixtures are in danger of falling victim`\
 https://nytimes.com/athletic/5830990/2024/10/10/international-football-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832830/2024/10/10/mets-nlds-brandon-nimmo-core/
 **Kane's successor, Palmer's role and the defensive setup - what to look out for with England**\
 `England's interim manager has several key decisions to make for this week's games as he works to get the job on a full-time basis`\
 https://nytimes.com/athletic/5830932/2024/10/10/england-carsley-things-to-look-out-for/
-
-**England have used 13 strikers since Solanke's last game in 2017 - this is how they got on**\
-`Dominic Solanke could play for England for the first time since 2017 on Thursday — here are the men who have played up front since then`\
-https://nytimes.com/athletic/5825886/2024/10/10/england-dominic-solanke-strikers/
 
