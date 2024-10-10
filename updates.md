@@ -1,3 +1,19 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/10/crosswords/spelling-bee-forum.html
+
+**Before and After**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/10/10/learning/before-and-after.html
+
+**Covering All the Corners of a Warming World**\
+`Travel is an opportunity. It’s an economic driver. But it also contributes to global warming. So a Travel editor went back to school to explore the moral dilemma it poses.`\
+https://nytimes.com/2024/10/10/insider/covering-all-the-corners-of-a-warming-world.html
+
+**The Life-or-Death Consequences of Killing Congestion Pricing**\
+`Increased 911 call volume in New York and the city’s unwieldy traffic have led to slower response times for ambulances on their way to save lives.`\
+https://nytimes.com/2024/10/10/nyregion/new-york-fire-department-response-times.html
+
 **Seth Meyers Is Starting to Wonder About Trump and Putin**\
 `A book says Donald Trump sent Covid testing equipment to the Russian leader. Meyers suspects he threw in “some snacks, a bath bomb and a CD.”`\
 https://nytimes.com/2024/10/10/arts/television/seth-meyers-trump-putin.html
