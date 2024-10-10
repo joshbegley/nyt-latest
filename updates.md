@@ -1,3 +1,7 @@
+**How to Help Victims of Hurricane Milton**\
+`Here’s how to connect with verified aid groups working in the areas affected by the storm.`\
+https://nytimes.com/2024/10/10/weather/hurricane-milton-victims-aid.html
+
 **Tornadoes Kill at Least 5 Near Fort Pierce, Some in a Retirement Community**\
 `The authorities said “more than one” victim resided in Spanish Lakes Country Club Village, a community of older mobile homes.`\
 https://nytimes.com/2024/10/10/weather/tornado-death-spanish-lakes-fort-pierce.html
