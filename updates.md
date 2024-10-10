@@ -1,3 +1,15 @@
+**Israel’s Security Cabinet to Meet to Discuss Response to Iran Attack**\
+`The cabinet was expected to authorize Prime Minister Benjamin Netanyahu and Yoav Gallant, the defense minister, to initiate a retaliatory attack at their discretion, officials said.`\
+https://nytimes.com/2024/10/10/world/middleeast/israel-iran-attack-response-security-cabinet-meeting.html
+
+**Tesla to Offer First Glimpse of a ‘Robotaxi’ That Drives Itself**\
+`Elon Musk has said that the vehicle will add trillions to Tesla’s stock market value and that those who don’t believe him should sell their shares.`\
+https://nytimes.com/2024/10/10/business/tesla-robotaxi-elon-musk.html
+
+**Four key takeaways from Jets' stunning season-opening win over Oilers**\
+`The Jets went toe-to-toe with the Stanley Cup favourites and kept Connor McDavid, Leon Draisaitl and company on their back foot.`\
+https://nytimes.com/athletic/5832692/2024/10/10/winnipeg-jets-oilers-score-hellebuyck/
+
 **Bolivia, altitude and 1,840 steps up from La Paz to their new home 4,150m above sea level**\
 `Bolivia host the Copa America finalists Colombia in a ground way above an altitude that was previously deemed unsafe by FIFA`\
 https://nytimes.com/athletic/5746338/2024/10/10/bolivia-altitude-el-alto-colombia/
