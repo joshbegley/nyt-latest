@@ -1,40 +1,40 @@
-**Rafael Nadal will retire from tennis after Davis Cup Finals in November**\
-`A 22-time Grand Slam champion, Nadal will bow out as one of the greatest male players of all time`\
-https://nytimes.com/athletic/5833311/2024/10/10/rafael-nadal-retires-tennis/
+**Jets, Bengals or Dolphins? Picking one sub-.500 team to make the playoffs in AFC:**\
+`The New York Jets are in turmoil after firing coach Robert Saleh. But Aaron Rodgers & Co. are still a decent bet to make the playoffs. `\
+https://nytimes.com/athletic/5831567/2024/10/10/nfl-projection-jets-bengals-dolphins-playoffs/
 
-**Spain captain Morata says he experienced depression months before Euro 2024 win**\
-`AC Milan and Spain striker Alvaro Morata has spoken about experiencing depression months before his country&#8217;s 2024 European Championship win and his concerns it would force him to retire from football.`\
-https://nytimes.com/athletic/5833269/2024/10/10/alvaro-morata-depression-retirement-milan/
+**How the Hurricanes masterfully execute the salary cap dance**\
+`Get out your calculators, because it's time to make sense of the Hurricanes' recent roster moves.`\
+https://nytimes.com/athletic/5832760/2024/10/10/carolina-hurricanes-salary-cap-roster/
 
-**Crane Collapses in Downtown St. Petersburg as Milton Batters Florida**\
-`City officials said the crane had collapsed onto a neighboring building, which houses the Tampa Bay Times newspaper offices.`\
-https://nytimes.com/2024/10/10/weather/st-petersburg-building-crane-hurricane-milton.html
+**Which NFL coaches are on the hot seat? As the Jets showed, it's about the owners**\
+`After Woody Johnson's firing of Robert Saleh, we take a closer look at the owners who could be most inclined to make a change next.`\
+https://nytimes.com/athletic/5832473/2024/10/10/nfl-coach-firings-owners-woody-johnson-jets/
 
-**Atletico appeal partial stadium closure for crowd trouble during Madrid derby**\
-`Atletico Madrid have appealed the partial stadium closure imposed upon them for the crowd trouble at last month’s derby against Real Madrid.`\
-https://nytimes.com/athletic/5833321/2024/10/10/atletico-madrid-stadium-ban-appeal/
+**Do players support a shorter preseason and longer regular season in the NHL?**\
+`As the NHL considers a shorter preseason and longer regular season, we asked more than a dozen players and coaches for their opinions.`\
+https://nytimes.com/athletic/5818115/2024/10/10/nhl-players-regular-season-preseason/
 
-**Mason to stay at Spurs despite Anderlecht talks**\
-`Ryan Mason will be staying at Tottenham Hotspur following talks with Anderlecht about becoming their new manager.`\
-https://nytimes.com/athletic/5833298/2024/10/10/ryan-mason-spurs-anderlecht/
+**25 Days to Go**\
+`In the final sprint to Election Day, which voters matter most to the Harris and Trump campaigns? Watch or listen to our political round table.`\
+https://nytimes.com/2024/10/10/podcasts/the-daily/election-roundtable.html
 
-**Rubble, and Defiance**\
-`Once lively and densely packed, the area on the edges of Beirut that was hit by an Israeli strike is now vacant.`\
-https://nytimes.com/2024/10/10/world/europe/lebanon-hezbollah-israel.html
+**Milton’s Path of Destruction, and a First Biden-Netanyahu Call in Months**\
+`Plus, the Kenyan police battle gangs in Haiti.`\
+https://nytimes.com/2024/10/10/podcasts/milton-florida-biden-netanyahu.html
 
-**Can Offshore Wind Energy Lead the Charge to a Net-Zero World?**\
-`A powerful new wind farm off the coast of France is setting the pace. But what did it take to make it happen?`\
-https://nytimes.com/paidpost/iberdrola/can-offshore-wind-energy-lead-the-charge-to-a-net-zero-world.html
+**Kyrie Irving has something to say: On ‘accountability,’ Mavs' mission, Olympic absence and more**\
+`In a wide-ranging interview with The Athletic, the 32-year-old gets candid about the past few years, on and off the court.`\
+https://nytimes.com/athletic/5831971/2024/10/10/kyrie-irving-mavericks-interview/
 
-**How much should the Maple Leafs lean on Anthony Stolarz?**\
-`With starting goalie Joseph Woll already injured, the Leafs have to be careful with how they handle their relatively untested backup.`\
-https://nytimes.com/athletic/5832797/2024/10/10/maple-leafs-goaltending-stolarz-woll-hildeby/
+**Blue Jackets youngster Yegor Chinakhov lands big role following Boone Jenner's injury**\
+`With ripple effects across the forwards and defense, here's where strengths and struggles might arise in the Blue Jackets lineup.`\
+https://nytimes.com/athletic/5832336/2024/10/10/blue-jackets-roster-analysis-chinakhov-jenner/
 
-**Hollinger: Get ready for the return of the tank across the NBA**\
-`After a year-long layoff, expect the “T” word to be back with a vengeance in the next few months.`\
-https://nytimes.com/athletic/5820364/2024/10/10/nba-season-tanking-cooper-flagg-duke/
+**The Connections Companion No. 488**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 11, 2024.`\
+https://nytimes.com/2024/10/10/crosswords/connections-companion-488.html
 
-**2025 NBA mock draft: Cooper Flagg leads strong group. But is it a 'superclass'?**\
-`Freshmen at Duke and Rutgers lead Sam Vecenie's latest projections entering the 2024-2025 season. `\
-https://nytimes.com/athletic/5827570/2024/10/10/2025-nba-mock-draft-cooper-flagg-duke-rutgers-uconn/
+**Wordle Review No. 1,210**\
+`Scroll down for hints and conversation about the puzzle for Friday, Oct. 11, 2024.`\
+https://nytimes.com/2024/10/10/crosswords/wordle-review-1210.html
 
