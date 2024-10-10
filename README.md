@@ -1,3 +1,11 @@
+**Review: A Fall Gala Where Women Led the Way**\
+`New York City Ballet dressed up its fall fashion gala with a program of female choreographers. This was history, even if the results were mixed.`\
+https://nytimes.com/2024/10/10/arts/dance/review-new-york-city-ballet-fashion-gala.html
+
+**Pohlads announce they will explore selling the Minnesota Twins**\
+`The Pohlad family announced in a press release Thursday morning their intention to explore selling the Minnesota Twins.`\
+https://nytimes.com/athletic/5834140/2024/10/10/minnesota-twins-sale-pohlad-family/
+
 **Judge John Hodgman on Gen Alpha Slang**\
 `Is it low-key kinda bussin’ to use your teen’s slang? Or is it Ohio and cringe?`\
 https://nytimes.com/2024/10/10/magazine/judge-john-hodgman-on-gen-alpha-slang.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5833890/2024/10/10/football-manager-2025-release-da
 **Residents of a Mobile Home Park Join Forces to Buy Their Community**\
 `The residents are the first in the state of Maine to successfully utilize a new law making it easier for them to compete with investors and gain ownership of the land their homes sit on.`\
 https://nytimes.com/2024/10/10/realestate/brunswick-mobile-home-sale-maine.html
-
-**Barbara Lynch, a Top Boston Chef, Will Close All Her Restaurants**\
-`She helped put her city on the modern culinary map, but many employees said they paid a price in workplace abuse.`\
-https://nytimes.com/2024/10/10/dining/boston-chef-barbara-lynch-closes-restaurants.html
-
-**Jets shift Downing to offensive play-caller, strip role from Hackett**\
-`Jets interim coach Jeff Ulbrich said Aaron Rodgers was supportive of the decision to turn to Downing.`\
-https://nytimes.com/athletic/5833874/2024/10/10/todd-downing-jets-nathaniel-hackett/
 

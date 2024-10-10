@@ -1,3 +1,15 @@
+**Judge John Hodgman on Gen Alpha Slang**\
+`Is it low-key kinda bussin’ to use your teen’s slang? Or is it Ohio and cringe?`\
+https://nytimes.com/2024/10/10/magazine/judge-john-hodgman-on-gen-alpha-slang.html
+
+**Democrats Seize on Trump’s ‘You’re Rich as Hell’ Remarks to Donors**\
+`An ad from the main super PAC backing Kamala Harris casts Donald Trump as a tycoon who will give handouts to the rich, and the vice president as the candidate of working people.`\
+https://nytimes.com/2024/10/10/us/politics/harris-trump-ad-donors.html
+
+**Rafael Nadal's 20-year tennis symphony surpasses its halting coda**\
+`A difficult path to the end of Nadal's career will be a footnote in a story of sporting greatness`\
+https://nytimes.com/athletic/5833670/2024/10/10/rafael-nadal-career-tennis/
+
 **Ethel Kennedy, Passionate Supporter of the Family Legacy, Dies at 96**\
 `She never remarried after the assassination of her husband, Senator Robert F. Kennedy, and she devoted herself to working on behalf of the causes he had championed.`\
 https://nytimes.com/2024/10/10/us/politics/ethel-kennedy-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/10/dining/boston-chef-barbara-lynch-closes-restauran
 **Jets shift Downing to offensive play-caller, strip role from Hackett**\
 `Jets interim coach Jeff Ulbrich said Aaron Rodgers was supportive of the decision to turn to Downing.`\
 https://nytimes.com/athletic/5833874/2024/10/10/todd-downing-jets-nathaniel-hackett/
-
-**The Windup: Major damage to Tropicana Field**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5833988/2024/10/10/mets-dodgers-tropicana-field-the-windup/
-
-**Bring on the Butternuts**\
-`Fall’s star squash shines in an adaptable pasta with kale and brown butter, roasted with an onion gravy or puréed into a soft velvety soup.`\
-https://nytimes.com/2024/10/10/dining/butternut-squash-dishes.html
-
-**What, Exactly, Is ‘Moderate Drinking’?**\
-`That depends on whom you ask, and what country you live in. Here’s what the research suggests and how to think about it.`\
-https://nytimes.com/2024/10/10/well/eat/moderate-alcohol-drinking-definition.html
 
