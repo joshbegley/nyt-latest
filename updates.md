@@ -1,3 +1,23 @@
+**Francisco Lindor's poetic series-clinching slam for Mets soars into October history**\
+`It was one of those rare sporting moments that allow you to tell people you didn’t just watch it. You felt it.`\
+https://nytimes.com/athletic/5833251/2024/10/10/francisco-lindor-grand-slam-mets-phillies-history/
+
+**Inflation Is Expected to Cool Further in a Fresh Report**\
+`The Consumer Price Index has been gradually easing, a trend that is expected to persist in September data.`\
+https://nytimes.com/2024/10/10/business/inflation-cpi-report.html
+
+**Rafael Nadal to retire from tennis after Davis Cup Finals in November**\
+`A 22-time Grand Slam champion, Nadal will bow out as one of the greatest male players of all time`\
+https://nytimes.com/athletic/5833311/2024/10/10/rafael-nadal-retires-tennis/
+
+**Spain captain Morata says he experienced depression months before Euro 2024 win**\
+`AC Milan and Spain striker Alvaro Morata has spoken about experiencing depression months before his country&#8217;s 2024 European Championship win and his concerns it would force him to retire from football.`\
+https://nytimes.com/athletic/5833269/2024/10/10/alvaro-morata-depression-retirement-milan/
+
+**Crane Collapses in Downtown St. Petersburg as Milton Batters Florida**\
+`City officials said the crane had collapsed onto a neighboring building, which houses the Tampa Bay Times newspaper offices.`\
+https://nytimes.com/2024/10/10/weather/st-petersburg-building-crane-hurricane-milton.html
+
 **Jets, Bengals or Dolphins? Picking one sub-.500 team to make the playoffs in AFC:**\
 `The New York Jets are in turmoil after firing coach Robert Saleh. But Aaron Rodgers & Co. are still a decent bet to make the playoffs. `\
 https://nytimes.com/athletic/5831567/2024/10/10/nfl-projection-jets-bengals-dolphins-playoffs/
