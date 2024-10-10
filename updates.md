@@ -1,3 +1,11 @@
+**Saka being assessed after sustaining injury in England's defeat vs Greece**\
+`Lee Carsley says Bukayo Saka is being assessed after the Arsenal winger sustained an injury in England’s Nations League loss against Greece.`\
+https://nytimes.com/athletic/5834898/2024/10/10/bukayo-saka-injury-england-greece/
+
+**Candidates Square Off on Courts, Policy and Party in Maryland Senate Debate**\
+`Larry Hogan, the Republican former governor, and Angela Alsobrooks, the Democratic Prince George’s County executive, sparred over whether to expand the Supreme Court and overhaul the legislative filibuster.`\
+https://nytimes.com/2024/10/10/us/politics/candidates-maryland-senate-debate.html
+
 **Frances Conley, Neurosurgeon Who Protested Sexism, Dies at 83**\
 `She was the rare woman in her field, and a tenured professor. But when a sexist colleague was promoted, she quit, forcing a reckoning in her profession.`\
 https://nytimes.com/2024/10/10/us/frances-conley-dead.html
