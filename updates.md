@@ -1,3 +1,11 @@
+**Tropicana Field, Already Obsolete, Now Needs a New Roof**\
+`The home of the Tampa Bay Rays, generally disdained by players, was built to take the elements out of baseball. The elements struck back.`\
+https://nytimes.com/2024/10/10/weather/tropicana-field-roof-hurricane-florida.html
+
+**While Others Fled, These TikTokers Posted Through Hurricane Milton**\
+`Millions waited for streams of updates from TikTok users in Florida, who broadcast from their damaged homes and neighborhoods and shared their evacuation journeys.`\
+https://nytimes.com/2024/10/10/us/tiktok-creators-hurricane-milton.html
+
 **In a Rambling Speech, Trump Offers Gripes and Yet Another Tax Cut**\
 `Even before this latest proposal, aimed at promoting car sales, an analysis found that the former president’s economic agenda could add $15 trillion to the nation’s debt over a decade.`\
 https://nytimes.com/2024/10/10/us/politics/trump-detroit-car-loans-deductible.html
