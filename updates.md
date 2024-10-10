@@ -1,3 +1,11 @@
+**Lake and Gallego Spar Over Immigration and Abortion in Arizona Senate Debate**\
+`At times, Kari Lake, the Republican candidate and close ally of Donald Trump, veered into personal attacks. Ruben Gallego, the Democrat, needled her over frequent visits to Mar-a-Lago.`\
+https://nytimes.com/2024/10/09/us/politics/lake-gallego-debate-arizona-senate.html
+
+**Francisco Lindor's swing of a lifetime lifts the Mets into the NLCS**\
+`Of course it was Lindor at the center of it all, propelling the Mets to the NLCS with his grand slam. `\
+https://nytimes.com/athletic/5832810/2024/10/09/francisco-lindor-lifts-mets-national-league-championship-series/
+
 **Tropicana Field sustains roof damage amid Hurricane Milton**\
 `The roof of the domed stadium located in St. Petersburg, Fla., is seemingly shredded hours after Milton made landfall.`\
 https://nytimes.com/athletic/5832803/2024/10/09/hurricane-milton-tropicana-field-roof-damage/
