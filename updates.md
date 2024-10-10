@@ -1,3 +1,11 @@
+**Judge Approves Limited Further Release of Evidence in Trump Election Case**\
+`An appendix to a high-profile prosecutorial brief, released last week, could become public next week. But much of it would be redacted.`\
+https://nytimes.com/2024/10/10/us/politics/judge-evidence-trump-election-case.html
+
+**Conservative States Seek to End Protections for Immigrant ‘Dreamers’**\
+`An appeals court is considering a challenge that could end DACA, which has allowed hundreds of thousands of young undocumented immigrants to live and work in the United States.`\
+https://nytimes.com/2024/10/10/us/daca-dreamers-fifth-circuit-appeals-court-hearing.html
+
 **SEC, Big Ten rail against private equity proposals**\
 `SEC and Big Ten officials and athletic directors met Thursday to discuss the House settlement, NCAA governance issues, the CFP and more.`\
 https://nytimes.com/athletic/5835115/2024/10/10/sec-big-ten-college-football-investments/
