@@ -1,3 +1,7 @@
+**Postseason baseball returned to Kansas City. Now the Royals must win to survive**\
+`The mission is simple: The Royals must win on Thursday night at Kauffman Stadium against Gerrit Cole and the Yankees. `\
+https://nytimes.com/athletic/5833018/2024/10/10/kansas-city-royals-postseason-baseball-alds/
+
 **How Canucks squandered 20 dominant minutes in opening-night collapse: 3 takeaways**\
 `The opening of the Vancouver Canucks season — a loss to the Calgary Flames — was defined by chaos.`\
 https://nytimes.com/athletic/5832681/2024/10/10/canucks-opening-night-loss/
