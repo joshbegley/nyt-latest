@@ -1,3 +1,7 @@
+**Reasons to Vote for Harris, Not Trump**\
+`Readers respond to an editorial and critiques of the former president by those who have worked with him. Also: young voter outreach; L.G.B.T.Q. Jews; the war in Gaza; Robert Moses.`\
+https://nytimes.com/2024/10/10/opinion/election-harris-trump.html
+
 **Florida IV Fluid Plant Spared From Storm, Company Says**\
 `Milton threatened a Daytona Beach site that produces one-fourth of the nation’s IV medical solutions, which were already in short supply because of storm damage in North Carolina.`\
 https://nytimes.com/2024/10/10/health/florida-iv-bags-shortages.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832699/2024/10/10/golden-state-valkyries-natalie-n
 **Five years after fallout, Adam Silver believes NBA will return to China**\
 `NEW YORK — Five years after the NBA&#8217;s last game in China, commissioner Adam Silver believes the league will return to the country at some point.`\
 https://nytimes.com/athletic/5834219/2024/10/10/china-nba-games-adam-silver/
-
-**Chile Crisp Everything**\
-`By Mia Leimkuhler`\
-https://nytimes.com/2024/10/10/dining/chile-crisp-recipes.html
 
