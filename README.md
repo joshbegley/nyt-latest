@@ -1,3 +1,7 @@
+**Tim Walz Takes His Folksiness on the Road, Trying Not to Say ‘Stupid Things’**\
+`On a swing through the Southwest, the Democratic vice-presidential candidate received a warm welcome — and had to clean up his remarks about the Electoral College.`\
+https://nytimes.com/2024/10/10/us/elections/tim-walz-southwest-tour.html
+
 **How Harris Can Finish Strong**\
 `Some tips from novelists and screenwriters on how to keep audiences’ attention.`\
 https://nytimes.com/2024/10/10/opinion/kamala-harris-election-attention.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/h
 **Tropicana Field, Already Obsolete, Now Needs a New Roof**\
 `The home of the Tampa Bay Rays, generally disdained by players, was built to take the elements out of baseball. The elements struck back.`\
 https://nytimes.com/2024/10/10/weather/tropicana-field-roof-hurricane-florida.html
-
-**While Others Fled, These TikTokers Posted Through Hurricane Milton**\
-`Millions waited for streams of updates from TikTok users in Florida, who broadcast from their damaged homes and neighborhoods and shared their evacuation journeys.`\
-https://nytimes.com/2024/10/10/us/tiktok-creators-hurricane-milton.html
 
