@@ -1,3 +1,7 @@
+**Food inflation sped up in September.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/food-prices-increases-accelerated-in-september
+
 **Jaguars' flight to London delayed due to Hurricane Milton**\
 `Hurricane Milton made landfall near Sarasota, Fla., as a Category 3 storm on Wednesday and has weakened to a Category 1 hurricane.`\
 https://nytimes.com/athletic/5833596/2024/10/10/hurricane-milton-florida-jaguars-travel-delay/
