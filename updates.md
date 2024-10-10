@@ -1,3 +1,15 @@
+**Sean Combs’s Sex Trafficking Trial Is Set for May 5**\
+`The music mogul, wearing tan jail clothes at a court hearing, waved and smiled at six of his children and his mother in the gallery.`\
+https://nytimes.com/2024/10/10/arts/music/sean-combs-diddy-trial-date.html
+
+**Baldock died while swimming at home in pool, family say**\
+`Former Sheffield United defender George Baldock drowned while swimming in the pool at his home in Athens, his family said in a statement.`\
+https://nytimes.com/athletic/5834595/2024/10/10/george-baldock-death-family-statement/
+
+**Hurricane Milton spawned dozens of tornadoes, one of them deadly.**\
+`The violent winds can start in the outer edges of hurricanes. Milton spawned more than usual.`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/milton-torandoes-climate-change
+
 **What’s Going On in This Picture? | Oct. 21, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/10/10/learning/whats-going-on-in-this-picture-oct-21-2024.html
