@@ -1,3 +1,7 @@
+**49ers at Seahawks odds, expert picks, how to watch: An NFC West showdown on TNF**\
+`Seattle leads the division as both teams are looking for a bounce-back after surprise Week 5 losses. `\
+https://nytimes.com/athletic/5831736/2024/10/10/49ers-seahawks-odds-expert-picks-how-to-watch-predictions-betting/
+
 **MLB Playoffs odds, projections, schedule for ALDS Game 4s: CLE, KC face elimination**\
 `ALDS Game 4s are Thursday with the Yankees and Tigers looking at a chance to clinch their spot in the next round.`\
 https://nytimes.com/athletic/5831873/2024/10/10/mlb-playoffs-odds-projections-schedule-for-thursday-alds-game-4/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832921/2024/10/10/big-12-chaos-meter-iowa-state-by
 **The Cipher at the Center of a Brilliant Spy Series**\
 `Gary Oldman’s performance as Jackson Lamb is both essential and unknowable.`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/slow-horses-gary-oldman
-
-**Bears in London: Caleb Williams asserts himself; Matt Eberflus all-business**\
-`DJ Moore jokingly calls his quarterback "bossy," plus Williams on loud environments and an injury update.`\
-https://nytimes.com/athletic/5831685/2024/10/10/bears-caleb-williams-matt-eberflus-london/
 

@@ -1,3 +1,7 @@
+**49ers at Seahawks odds, expert picks, how to watch: An NFC West showdown on TNF**\
+`Seattle leads the division as both teams are looking for a bounce-back after surprise Week 5 losses. `\
+https://nytimes.com/athletic/5831736/2024/10/10/49ers-seahawks-odds-expert-picks-how-to-watch-predictions-betting/
+
 **MLB Playoffs odds, projections, schedule for ALDS Game 4s: CLE, KC face elimination**\
 `ALDS Game 4s are Thursday with the Yankees and Tigers looking at a chance to clinch their spot in the next round.`\
 https://nytimes.com/athletic/5831873/2024/10/10/mlb-playoffs-odds-projections-schedule-for-thursday-alds-game-4/
