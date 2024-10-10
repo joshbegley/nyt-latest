@@ -1,3 +1,11 @@
+**What Makes a Sticker Stickier**\
+`Choose your battles carefully while solving Grant Boroughs’s puzzle.`\
+https://nytimes.com/2024/10/09/crosswords/daily-puzzle-2024-10-10.html
+
+**Trump Keeps the Tax Cut Promises Coming, Now for Americans Abroad**\
+`Former President Donald J. Trump said in a statement that he would seek to end the “double taxation” of Americans overseas.`\
+https://nytimes.com/2024/10/09/us/politics/trump-tax-cut-promise-overseas.html
+
 **Here’s Why Hurricane Milton Is Sucking Water Out of Tampa Bay**\
 `The effect is called a reverse storm surge, but it won’t last, and the water could come rushing back.`\
 https://nytimes.com/2024/10/09/weather/milton-reverse-surge-tampa.html
