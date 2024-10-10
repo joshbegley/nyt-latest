@@ -1,3 +1,7 @@
+**Tropicana Field sustains roof damage amid Hurricane Milton**\
+`The roof of the domed stadium located in St. Petersburg, Fla., is seemingly shredded hours after Milton made landfall.`\
+https://nytimes.com/athletic/5832803/2024/10/09/hurricane-milton-tropicana-field-roof-damage/
+
 **Vance and Walz Make Dueling Appearances, as Voting Begins in Arizona**\
 `The two vice-presidential candidates crisscrossed the state on the first day of early voting, saying little of each other after their debate last week.`\
 https://nytimes.com/2024/10/09/us/politics/vance-walz-arizona-voting.html
