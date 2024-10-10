@@ -1,3 +1,7 @@
+**In a pitch to young voters, Tim Walz appears via a videogame livestream.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/09/us/harris-trump-election/tim-walz-twitch-stream
+
 **Review: In ‘The Counter,’ a Cup of Joe and an Off-the-Menu Order**\
 `A diner patron asks a waitress for an extraordinary side dish in Meghan Kennedy’s sweet but shaggy new play.`\
 https://nytimes.com/2024/10/09/theater/the-counter-review-edward-flood.html
