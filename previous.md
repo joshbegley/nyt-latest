@@ -1,3 +1,7 @@
+**Frances Conley, Neurosurgeon Who Protested Sexism, Dies at 83**\
+`She was the rare woman in her field, and a tenured professor. But when a sexist colleague was promoted, she quit, forcing a reckoning in her profession.`\
+https://nytimes.com/2024/10/10/us/frances-conley-dead.html
+
 **They left the island where Milton made landfall. Would their home survive?**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/they-left-the-island-where-milton-made-landfall-would-their-home-survive
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/i
 **Hurricane Milton’s Impacts: What We Know**\
 `Flooding, wind damage and power outages affected areas throughout Florida. At least seven people were killed.`\
 https://nytimes.com/2024/10/10/weather/hurricane-milton-damage-florida.html
-
-**Going to Paris? Along With Art Basel, Don’t Miss These Shows.**\
-`There is no shortage of museums and art foundations to visit for those attending Art Basel Paris.`\
-https://nytimes.com/2024/10/10/arts/design/art-basel-paris-museums-exhibitions.html
 

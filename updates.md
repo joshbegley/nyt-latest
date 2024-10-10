@@ -1,3 +1,7 @@
+**Frances Conley, Neurosurgeon Who Protested Sexism, Dies at 83**\
+`She was the rare woman in her field, and a tenured professor. But when a sexist colleague was promoted, she quit, forcing a reckoning in her profession.`\
+https://nytimes.com/2024/10/10/us/frances-conley-dead.html
+
 **They left the island where Milton made landfall. Would their home survive?**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/they-left-the-island-where-milton-made-landfall-would-their-home-survive
