@@ -1,3 +1,7 @@
+**Will Climate Change Transform the Florida Dream?**\
+`Millions of Americans have moved to the Sunshine State over the last several decades, only to see Florida’s future collide with climate change.`\
+https://nytimes.com/2024/10/10/climate/will-climate-change-transform-the-florida-dream.html
+
 **France Unveils Tough Austerity Budget to Mend Its Finances**\
 `The French government is seeking deep spending cuts and higher taxes in an effort to tame its ballooning debt and deficit.`\
 https://nytimes.com/2024/10/10/business/france-budget-debt-deficit-macron.html
