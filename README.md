@@ -1,3 +1,7 @@
+**Garvey’s M.L.B. Teams Are Contenders. His Senate Campaign? Not So Much.**\
+`As his old teams — the Los Angeles Dodgers and the San Diego Padres — battle in the playoffs, the onetime all-star Steve Garvey finds himself an underdog in his Senate race against Adam Schiff.`\
+https://nytimes.com/2024/10/10/us/politics/steve-garvey-senate-padres-dodgers.html
+
 **NASCAR at Charlotte Road Course odds, predictions for playoff race: Who will survive the cut?**\
 `It's time for another elimination race in the Cup Series Playoffs, but a non-playoff driver is favored to win at the Charlotte Road Course.`\
 https://nytimes.com/athletic/5834237/2024/10/10/nascar-cup-series-charlotte-road-course-bank-of-america-roval-400-odds-expert-predictions/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/dining/chile-crisp-recipes.html
 **How Back-to-Back Hurricanes Harm Mental Health**\
 `Research shows that experiencing repeated disasters makes people more vulnerable to mental health issues, and prolongs the time it takes to recover.`\
 https://nytimes.com/2024/10/10/well/hurricane-milton-helene-mental-health.html
-
-**Texas to start Quinn Ewers vs. Oklahoma**\
-`Ewers missed the Longhorns’ last two games after suffering a strained oblique on Sept. 14.`\
-https://nytimes.com/athletic/5834242/2024/10/10/texas-quinn-ewers-starting-oklahoma/
 
