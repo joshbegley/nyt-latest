@@ -1,3 +1,11 @@
+**What Students Are Saying About the Demands of High School**\
+`We asked teenagers if they were overscheduled, and how it would feel if they were able to slow down and do less.`\
+https://nytimes.com/2024/10/10/learning/what-students-are-saying-about-the-demands-of-high-school.html
+
+**College football Week 7 model projected point differentials and totals for every game**\
+`Austin Mock's projection model has predicted point differentials and totals for every FBS vs. FBS Week 7 college football game.`\
+https://nytimes.com/athletic/5834480/2024/10/10/college-football-week-7-model-projections-predicted-scores/
+
 **‘The Confidante’ Is a Layered French Drama About a Heartbreaking Scam**\
 `Streaming on Max, the series tells the story of woman who lies to a grief support group about her connection to the Paris terrorist attacks of 2015.`\
 https://nytimes.com/2024/10/10/arts/television/the-confidante-max-french.html
