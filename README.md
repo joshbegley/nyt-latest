@@ -1,3 +1,7 @@
+**Will Climate Change Transform the Florida Dream?**\
+`Millions of Americans have moved to the Sunshine State over the last several decades, only to see Florida’s future collide with climate change.`\
+https://nytimes.com/2024/10/10/climate/will-climate-change-transform-the-florida-dream.html
+
 **France Unveils Tough Austerity Budget to Mend Its Finances**\
 `The French government is seeking deep spending cuts and higher taxes in an effort to tame its ballooning debt and deficit.`\
 https://nytimes.com/2024/10/10/business/france-budget-debt-deficit-macron.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5829231/2024/10/10/wild-bold-predictions-kaprizov-b
 **A Hurricane’s Lasting Death Toll Is Always Much Larger Than It Seems**\
 `The full impact may not be known for years.`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/hurricane-lasting-death-toll
-
-**Reasons to Vote for Harris, Not Trump**\
-`Readers respond to an editorial and critiques of the former president by those who have worked with him. Also: young voter outreach; L.G.B.T.Q. Jews; the war in Gaza; Robert Moses.`\
-https://nytimes.com/2024/10/10/opinion/election-harris-trump.html
 
