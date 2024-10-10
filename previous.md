@@ -1,3 +1,11 @@
+**SEC, Big Ten rail against private equity proposals**\
+`SEC and Big Ten officials and athletic directors met Thursday to discuss the House settlement, NCAA governance issues, the CFP and more.`\
+https://nytimes.com/athletic/5835115/2024/10/10/sec-big-ten-college-football-investments/
+
+**Tim Walz Takes His Folksiness on the Road, Trying Not to Say ‘Stupid Things’**\
+`On a swing through the Southwest, the Democratic vice-presidential candidate received a warm welcome — and had to clean up his remarks about the Electoral College.`\
+https://nytimes.com/2024/10/10/us/elections/tim-walz-southwest-tour.html
+
 **How Harris Can Finish Strong**\
 `Some tips from novelists and screenwriters on how to keep audiences’ attention.`\
 https://nytimes.com/2024/10/10/opinion/kamala-harris-election-attention.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5834988/2024/10/10/braves-kevin-seitzer-fired-react
 **Hurricanes are a growing threat. But Florida is more prepared.**\
 `The state’s strong building code, which has made newer construction remarkably resistant to even fierce storms, most likely had a mitigating effect as Hurricane Milton swept through.`\
 https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/hurricanes-are-a-growing-threat-but-florida-is-more-prepared
-
-**Tropicana Field, Already Obsolete, Now Needs a New Roof**\
-`The home of the Tampa Bay Rays, generally disdained by players, was built to take the elements out of baseball. The elements struck back.`\
-https://nytimes.com/2024/10/10/weather/tropicana-field-roof-hurricane-florida.html
-
-**While Others Fled, These TikTokers Posted Through Hurricane Milton**\
-`Millions waited for streams of updates from TikTok users in Florida, who broadcast from their damaged homes and neighborhoods and shared their evacuation journeys.`\
-https://nytimes.com/2024/10/10/us/tiktok-creators-hurricane-milton.html
 

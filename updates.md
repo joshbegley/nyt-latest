@@ -1,3 +1,11 @@
+**SEC, Big Ten rail against private equity proposals**\
+`SEC and Big Ten officials and athletic directors met Thursday to discuss the House settlement, NCAA governance issues, the CFP and more.`\
+https://nytimes.com/athletic/5835115/2024/10/10/sec-big-ten-college-football-investments/
+
+**Tim Walz Takes His Folksiness on the Road, Trying Not to Say ‘Stupid Things’**\
+`On a swing through the Southwest, the Democratic vice-presidential candidate received a warm welcome — and had to clean up his remarks about the Electoral College.`\
+https://nytimes.com/2024/10/10/us/elections/tim-walz-southwest-tour.html
+
 **How Harris Can Finish Strong**\
 `Some tips from novelists and screenwriters on how to keep audiences’ attention.`\
 https://nytimes.com/2024/10/10/opinion/kamala-harris-election-attention.html
