@@ -1,3 +1,11 @@
+**Francisco Lindor blasts Mets past Phillies and into NLCS: Takeaways**\
+`It was only fitting that Lindor came through with the hit that sent the Mets to the NLCS for the first time since 2015. `\
+https://nytimes.com/athletic/5832377/2024/10/09/mets-phillies-score-lindor-game-4-takeaways/
+
+**Cards Against Humanity says it will pay Trump critics to prepare to vote.**\
+`Experts were divided on the legality of the program, which does not require participants to prove they voted for Vice President Kamala Harris.`\
+https://nytimes.com/live/2024/10/09/us/harris-trump-election/cards-against-humanity-says-it-will-pay-trump-critics-to-prepare-to-vote
+
 **Zantac’s Developer Settles Lawsuits Claiming Cancer Link**\
 `GSK, which developed and sold versions of the now-discontinued blockbuster heartburn drug, agreed to pay up to $2.2 billion.`\
 https://nytimes.com/2024/10/09/business/zantac-settlement-gsk.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/arts-groups-in-s
 **Jayden Daniels dismisses Lamar Jackson comparisons: 'We're 2 different players'**\
 `“I don't like when people really try to compare me to Lamar and vice versa,” Daniels said following Wednesday's practice.`\
 https://nytimes.com/athletic/5832255/2024/10/09/jayden-daniels-lamar-jackson-comparison-comments/
-
-**U.S. Issues Solar Storm Watch After Large Outburst From the Sun**\
-`An explosion of particles is expected to reach Earth on Thursday, and could lead to visible Northern Lights in much of the country while also raising power grid concerns.`\
-https://nytimes.com/2024/10/09/science/solar-storm-sun-aurora.html
-
-**Sean Combs Lawyers Accuse Government of Leaking Cassie Assault Video**\
-`The hip-hop mogul’s legal team said in a filing on Wednesday that it may ask for the widely published video to be barred from his trial.`\
-https://nytimes.com/2024/10/09/arts/music/sean-combs-diddy-cassie-assault-video-leak.html
 
