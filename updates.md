@@ -1,3 +1,7 @@
+**Hurricane Milton and the Economy**\
+`The superstorm is expected to inflict costly and lasting damage in Florida, as the Federal Reserve is already keeping an eye on upcoming inflation data.`\
+https://nytimes.com/2024/10/10/business/dealbook/milton-cpi-inflation-economy.html
+
 **Rafael Nadal will retire from tennis: Tell us your favorite Rafa tennis moment**\
 `The Slams, the 'Big Three,' the headband, the forehand...`\
 https://nytimes.com/athletic/5833404/2024/10/10/rafael-nadal-retirement-best-tennis-moment/

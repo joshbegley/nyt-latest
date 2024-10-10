@@ -1,3 +1,7 @@
+**Hurricane Milton and the Economy**\
+`The superstorm is expected to inflict costly and lasting damage in Florida, as the Federal Reserve is already keeping an eye on upcoming inflation data.`\
+https://nytimes.com/2024/10/10/business/dealbook/milton-cpi-inflation-economy.html
+
 **Rafael Nadal will retire from tennis: Tell us your favorite Rafa tennis moment**\
 `The Slams, the 'Big Three,' the headband, the forehand...`\
 https://nytimes.com/athletic/5833404/2024/10/10/rafael-nadal-retirement-best-tennis-moment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5831859/2024/10/10/justin-strnad-broncos-hurricane-
 **Let’s Discuss: ‘Don’t Call It an “Ethnic” Grocery Store’**\
 `How can food feel like home? Read the article and post your comments and questions for our journalist Priya Krishna by Oct. 17.`\
 https://nytimes.com/2024/10/10/learning/lesson-plans/lets-discuss-dont-call-it-an-ethnic-grocery-store.html
-
-**‘Mad About the Boy: The Noël Coward Story’ Review: In Blithe Spirits**\
-`A brisk documentary by Barnaby Thompson counters that the tuxedo-wearing playwright hid his insecurities under a platinum-plated veneer.`\
-https://nytimes.com/2024/10/10/movies/mad-about-the-boy-the-noel-coward-story-review.html
 
