@@ -1,3 +1,7 @@
+**As Deadline for Another Debate Looms, Trump Again Rejects a Rematch**\
+`CNN said the former president had until noon on Thursday to accept an invitation to an Oct. 23 showdown with Vice President Kamala Harris, who already accepted.`\
+https://nytimes.com/2024/10/10/us/politics/debate-trump-harris-deadline.html
+
 **Bournemouth owner Foley in talks to buy Moreirense**\
 `Bournemouth owner Bill Foley is in talks to buy Portuguese club Moreirense.`\
 https://nytimes.com/athletic/5833330/2024/10/10/bournemouth-bill-foley-moreirense/
