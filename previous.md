@@ -1,3 +1,19 @@
+**Valencia fans detained in Singapore set to return home after protest against Lim**\
+`The family of two Valencia fans who were detained in Singapore after protesting against Peter Lim’s ownership say they are now set to return to Spain.`\
+https://nytimes.com/athletic/5834069/2024/10/10/valencia-fans-peter-lim-return/
+
+**He Evacuated Gulfport but Wondered: Would His Houseboat Survive?**\
+`Thomas Kerschen’s boat had survived several storms the last three years. But after Milton swept through, he wasn’t sure he would have a home to return to.`\
+https://nytimes.com/2024/10/10/weather/gulfport-florida-damage.html
+
+**London Hosts Its Frieze Week in the Shadow of Paris**\
+`Plenty of business was done on the first day of the London fair, but much of the chatter was about the upcoming presentations at Art Basel Paris.`\
+https://nytimes.com/2024/10/10/arts/design/london-frieze-week.html
+
+**An Artist Inspired by Angels and Mary Oliver**\
+`By Kin Woo`\
+https://nytimes.com/card/2024/10/10/t-magazine/art/dominic-chambers-lehman-maupin
+
 **Scoop City: Broncos, Commanders and two others on 3-0 streaks**\
 `A look at the new starter in New Orleans, as well as how the Broncos, Commanders, Chiefs and Vikings are 3-0 since Week 2.`\
 https://nytimes.com/athletic/5834215/2024/10/10/scoop-city-the-4-teams-on-3-0-streaks/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/10/opinion/sarah-huckabee-sanders-harris.html
 **Review: Trust ‘Disclaimer’ When It Tells You Not to Trust It**\
 `The seven-part series from Alfonso Cuarón, about a familiar theme of the treachery of narratives, is easier to admire than to enjoy.`\
 https://nytimes.com/2024/10/10/arts/television/disclaimer-review-apple.html
-
-**Review: A Fall Gala Where Women Led the Way**\
-`New York City Ballet dressed up its fall fashion gala with a program of female choreographers. This was history, even if the results were mixed.`\
-https://nytimes.com/2024/10/10/arts/dance/review-new-york-city-ballet-fashion-gala.html
-
-**Pohlads announce they will explore selling the Minnesota Twins**\
-`The Pohlad family announced in a press release Thursday morning their intention to explore selling the Minnesota Twins.`\
-https://nytimes.com/athletic/5834140/2024/10/10/minnesota-twins-sale-pohlad-family/
-
-**Judge John Hodgman on Gen Alpha Slang**\
-`Is it low-key kinda bussin’ to use your teen’s slang? Or is it Ohio and cringe?`\
-https://nytimes.com/2024/10/10/magazine/judge-john-hodgman-on-gen-alpha-slang.html
-
-**Democrats Seize on Trump’s ‘You’re Rich as Hell’ Remarks to Donors**\
-`An ad from the main super PAC backing Kamala Harris casts Donald Trump as a tycoon who will give handouts to the rich, and the vice president as the candidate of working people.`\
-https://nytimes.com/2024/10/10/us/politics/harris-trump-ad-donors.html
 
