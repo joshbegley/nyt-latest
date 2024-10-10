@@ -1,3 +1,7 @@
+**George Baldock - the Steel City's adopted son - epitomised the Sheffield United fairytale**\
+`The boy who grew up in Buckinghamshire became a hero at Bramall Lane - his death has left a club and city in shock`\
+https://nytimes.com/athletic/5833248/2024/10/10/george-baldock-sheffield-united-obituary/
+
 **The Pulse: OMG, Mets**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5831572/2024/10/10/mets-phillies-nlcs-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/movies/mad-about-the-boy-the-noel-coward-story-re
 **‘Terrifier 3’ Review: Still Clowning Around**\
 `The deaths remain grisly, but the pacing uneven in this new installment in Damien Leone’s horror franchise.`\
 https://nytimes.com/2024/10/10/movies/terrifier-3-review.html
-
-**More Than 3 Million Are Without Power in Florida**\
-`Downed power lines and scattered debris from Hurricane Milton caused widespread power outages that may prove difficult for utility companies to repair.`\
-https://nytimes.com/2024/10/10/weather/hurricane-milton-power-outages-map-florida.html
 
