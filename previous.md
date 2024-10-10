@@ -1,3 +1,7 @@
+**Seth Meyers Is Starting to Wonder About Trump and Putin**\
+`A book says Donald Trump sent Covid testing equipment to the Russian leader. Meyers suspects he threw in “some snacks, a bath bomb and a CD.”`\
+https://nytimes.com/2024/10/10/arts/television/seth-meyers-trump-putin.html
+
 **How aggressive Manchester City followed tactical masterplan to beat Barcelona**\
 `Gareth Taylor wanted his City side to go on the front foot against the holders - his team did not disappoint in recording a stunning win`\
 https://nytimes.com/athletic/5832735/2024/10/10/manchester-city-barcelona-champions-league-gareth-taylor/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832681/2024/10/10/canucks-opening-night-loss/
 **Why Yankees say Aaron Judge is showing signs of snapping playoff slump**\
 `Despite hitting several balls hard in Game 3, Judge is 1 for 11 with three walks in the ALDS versus the Royals.`\
 https://nytimes.com/athletic/5833007/2024/10/10/aaron-judge-yankees-playoff-slump/
-
-**What you need to know from the MLB playoffs: Mets to NLCS, Dodgers force Game 5**\
-`The Mets have ousted the Phillies, while the Dodgers roared back against the Padres. Meanwhile, the Yankees and Tigers are one step closer.`\
-https://nytimes.com/athletic/5832889/2024/10/10/mlb-postseason-2024-what-you-need-to-know-2/
 

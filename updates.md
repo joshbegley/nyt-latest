@@ -1,3 +1,7 @@
+**Seth Meyers Is Starting to Wonder About Trump and Putin**\
+`A book says Donald Trump sent Covid testing equipment to the Russian leader. Meyers suspects he threw in “some snacks, a bath bomb and a CD.”`\
+https://nytimes.com/2024/10/10/arts/television/seth-meyers-trump-putin.html
+
 **How aggressive Manchester City followed tactical masterplan to beat Barcelona**\
 `Gareth Taylor wanted his City side to go on the front foot against the holders - his team did not disappoint in recording a stunning win`\
 https://nytimes.com/athletic/5832735/2024/10/10/manchester-city-barcelona-champions-league-gareth-taylor/
