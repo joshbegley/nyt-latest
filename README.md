@@ -1,3 +1,7 @@
+**Rafael Nadal will retire from tennis: Tell us your favorite Rafa tennis moment**\
+`The Slams, the 'Big Three,' the headband, the forehand...`\
+https://nytimes.com/athletic/5833404/2024/10/10/rafael-nadal-retirement-best-tennis-moment/
+
 **George Baldock - the Steel City's adopted son - epitomised the Sheffield United fairytale**\
 `The boy who grew up in Buckinghamshire became a hero at Bramall Lane - his death has left a club and city in shock`\
 https://nytimes.com/athletic/5833248/2024/10/10/george-baldock-sheffield-united-obituary/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/learning/lesson-plans/lets-discuss-dont-call-it-a
 **‘Mad About the Boy: The Noël Coward Story’ Review: In Blithe Spirits**\
 `A brisk documentary by Barnaby Thompson counters that the tuxedo-wearing playwright hid his insecurities under a platinum-plated veneer.`\
 https://nytimes.com/2024/10/10/movies/mad-about-the-boy-the-noel-coward-story-review.html
-
-**‘Terrifier 3’ Review: Still Clowning Around**\
-`The deaths remain grisly, but the pacing uneven in this new installment in Damien Leone’s horror franchise.`\
-https://nytimes.com/2024/10/10/movies/terrifier-3-review.html
 
