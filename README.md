@@ -1,3 +1,7 @@
+**What Makes a Sticker Stickier**\
+`Choose your battles carefully while solving Grant Boroughs’s puzzle.`\
+https://nytimes.com/2024/10/09/crosswords/daily-puzzle-2024-10-10.html
+
 **Here’s Why Hurricane Milton Is Sucking Water Out of Tampa Bay**\
 `The effect is called a reverse storm surge, but it won’t last, and the water could come rushing back.`\
 https://nytimes.com/2024/10/09/weather/milton-reverse-surge-tampa.html
@@ -12,7 +16,7 @@ https://nytimes.com/2024/10/09/theater/the-counter-review-edward-flood.html
 
 **Trump Keeps the Tax Cut Promises Coming, Now for Americans Abroad**\
 `Former President Donald J. Trump said in a statement that he would seek to end the “double taxation” of Americans overseas.`\
-https://nytimes.com/2024/10/09/business/trump-tax-cut-promise-overseas.html
+https://nytimes.com/2024/10/09/us/politics/trump-tax-cut-promise-overseas.html
 
 **Stephen Vogt's decisions didn't pan out for Guardians. Now they face elimination**\
 `The Tigers flipped the script on the Guardians, forcing Vogt to make decisions that ultimately didn't pan out. `\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/us/politics/trump-migrants-genes.html
 **Francisco Lindor blasts Mets past Phillies and into NLCS: Takeaways**\
 `It was only fitting that Lindor came through with the hit that sent the Mets to the NLCS, which they reached for the first time since 2015. `\
 https://nytimes.com/athletic/5832377/2024/10/09/mets-phillies-score-lindor-game-4-takeaways/
-
-**Cards Against Humanity says it will pay Trump critics to prepare to vote.**\
-`Experts were divided on the legality of the program, which does not require participants to prove they voted for Vice President Kamala Harris.`\
-https://nytimes.com/live/2024/10/09/us/harris-trump-election/cards-against-humanity-says-it-will-pay-trump-critics-to-prepare-to-vote
 
