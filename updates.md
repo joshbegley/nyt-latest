@@ -1,3 +1,11 @@
+**With 100-Foot-Wide Trump Sign, a Sticker Company Dives Into Politics**\
+`The chief executive of Sticker Mule in Amsterdam, N.Y., set off a debate by displaying his support for Donald J. Trump in a massive sign atop the company’s headquarters.`\
+https://nytimes.com/2024/10/10/nyregion/sticker-mule-trump-sign.html
+
+**Drance: How the Canucks got 'away from our identity' in season-opening collapse**\
+`The Canucks lost their season opener in baffling fashion Wednesday, underlining the difficulty of the identity the club is trying to forge.`\
+https://nytimes.com/athletic/5833171/2024/10/10/canucks-flames-loss-2024-25-season-opener/
+
 **St. Petersburg is battered by wind and rain, but escapes the worst storm surge.**\
 `Trees and power lines were down across downtown St. Petersburg and surrounding neighborhoods after Hurricane Milton.`\
 https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida/milton-st-petersburg-florida
