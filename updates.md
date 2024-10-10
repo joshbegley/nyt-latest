@@ -1,3 +1,15 @@
+**With their season on the line, the Padres will turn to Yu Darvish**\
+`The Padres will need the Game 2 version of the 38-year-old Darvish on Friday, with their season on the line.`\
+https://nytimes.com/athletic/5832804/2024/10/10/san-diego-padres-yu-darvish-nlds-game-5/
+
+**Dodgers combine for 'complete' offensive effort to stave off elimination**\
+`Will Smith hit a 432-foot home run to expand the Dodgers' lead and help ease the absence of Freddie Freeman.`\
+https://nytimes.com/athletic/5833150/2024/10/10/dodgers-padres-nlds-gavin-lux-will-smith/
+
+**How aggressive Manchester City followed tactical masterplan to beat Barcelona**\
+`Gareth Taylor wanted his City side to go on the front foot against the holders - they did not disappoint in recording a stunning 2-0 win`\
+https://nytimes.com/athletic/5832735/2024/10/10/manchester-city-barcelona-champions-league-gareth-taylor/
+
 **The Warriors are talking like they want to lead the NBA in attempted 3s**\
 `“What I like about this team is that, even though we lost Klay (Thompson), we have more shooting depth,” coach Steve Kerr said.`\
 https://nytimes.com/athletic/5832749/2024/10/10/golden-state-warriors-3-point-shooting/
