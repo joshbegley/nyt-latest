@@ -1,3 +1,7 @@
+**As Deadline for Another Debate Looms, Trump Again Rejects a Rematch**\
+`CNN said the former president had until noon on Thursday to accept an invitation to an Oct. 23 showdown with Vice President Kamala Harris, who already accepted.`\
+https://nytimes.com/2024/10/10/us/politics/debate-trump-harris-deadline.html
+
 **Bournemouth owner Foley in talks to buy Moreirense**\
 `Bournemouth owner Bill Foley is in talks to buy Portuguese club Moreirense.`\
 https://nytimes.com/athletic/5833330/2024/10/10/bournemouth-bill-foley-moreirense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832863/2024/10/10/michael-jordan-jersey-dream-team
 **One-Stop Shop, From Scary to Merry**\
 `Known for its pop-up stores — and its army of seasonal workers — Spirit Halloween will try its hand at a longer run and a bigger holiday.`\
 https://nytimes.com/2024/10/10/style/spirit-halloween-christmas.html
-
-**She’s Only Playing a Therapist, but the Revelations Are Real**\
-`The designer Bella Freud — a great-granddaughter of Sigmund Freud — is using her podcast to “learn vicariously all the things I’ve secretly wanted to know” about celebrities.`\
-https://nytimes.com/2024/10/10/style/bella-freud-fashion-neurosis-podcast.html
 
