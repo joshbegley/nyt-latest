@@ -1,3 +1,11 @@
+**Dodgers bullpen turns up aces against Padres to keep season alive**\
+`Against a parade of Dodgers relievers, San Diego did not advance a runner beyond second base.`\
+https://nytimes.com/athletic/5833051/2024/10/10/dodgers-padres-nlds-bullpen/
+
+**Hurricane Milton Makes Landfall in Florida**\
+`The storm hit Florida’s Gulf Coast as a Category 3 hurricane, bringing floods and tornadoes, cutting power for millions and blowing off the roof of a stadium.`\
+https://nytimes.com/video/weather/100000009753486/hurricane-milton-landfall-florida.html
+
 **Word of the Day: synthesize**\
 `This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/10/learning/word-of-the-day-synthesize.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5832889/2024/10/10/mlb-postseason-2024-what-you-nee
 **Thursday Briefing**\
 `Hurricane Milton made landfall in Florida.`\
 https://nytimes.com/2024/10/10/briefing/hurricane-milton-florida.html
-
-**A Phillies season with high hopes ends too soon. All that's certain is the hurt**\
-`It was hard, as the Phillies departed Citi Field, to not feel as if an opportunity had passed. It was supposed to be this team's time. `\
-https://nytimes.com/athletic/5832857/2024/10/10/phillies-eliminated-nlds-2024-season/
-
-**'I love it': Yankees' Jazz Chisholm Jr. relishes booing from Royals fans**\
-`The third baseman drew the ire of fans in Kansas City after his comments about the Royals' getting 'lucky' in Game 2 on Monday. `\
-https://nytimes.com/athletic/5832911/2024/10/10/yankees-jazz-chisholm-royals-boos/
 

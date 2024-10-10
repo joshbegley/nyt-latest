@@ -1,3 +1,11 @@
+**Dodgers bullpen turns up aces against Padres to keep season alive**\
+`Against a parade of Dodgers relievers, San Diego did not advance a runner beyond second base.`\
+https://nytimes.com/athletic/5833051/2024/10/10/dodgers-padres-nlds-bullpen/
+
+**Hurricane Milton Makes Landfall in Florida**\
+`The storm hit Florida’s Gulf Coast as a Category 3 hurricane, bringing floods and tornadoes, cutting power for millions and blowing off the roof of a stadium.`\
+https://nytimes.com/video/weather/100000009753486/hurricane-milton-landfall-florida.html
+
 **Word of the Day: synthesize**\
 `This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/10/learning/word-of-the-day-synthesize.html
