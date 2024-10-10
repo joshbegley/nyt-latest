@@ -1,3 +1,11 @@
+**With 100-Foot-Wide Trump Sign, a Sticker Company Dives Into Politics**\
+`The chief executive of Sticker Mule in Amsterdam, N.Y., set off a debate by displaying his support for Donald J. Trump in a massive sign atop the company’s headquarters.`\
+https://nytimes.com/2024/10/10/nyregion/sticker-mule-trump-sign.html
+
+**Drance: How the Canucks got 'away from our identity' in season-opening collapse**\
+`The Canucks lost their season opener in baffling fashion Wednesday, underlining the difficulty of the identity the club is trying to forge.`\
+https://nytimes.com/athletic/5833171/2024/10/10/canucks-flames-loss-2024-25-season-opener/
+
 **St. Petersburg is battered by wind and rain, but escapes the worst storm surge.**\
 `Trees and power lines were down across downtown St. Petersburg and surrounding neighborhoods after Hurricane Milton.`\
 https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida/milton-st-petersburg-florida
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/business/dealbook/milton-cpi-inflation-economy.ht
 **Rafael Nadal will retire from tennis: Tell us your favorite Rafa tennis moment**\
 `The Slams, the 'Big Three,' the headband, the forehand...`\
 https://nytimes.com/athletic/5833404/2024/10/10/rafael-nadal-retirement-best-tennis-moment/
-
-**George Baldock - the Steel City's adopted son - epitomised the Sheffield United fairytale**\
-`The boy who grew up in Buckinghamshire became a hero at Bramall Lane - his death has left a club and city in shock`\
-https://nytimes.com/athletic/5833248/2024/10/10/george-baldock-sheffield-united-obituary/
-
-**The Pulse: OMG, Mets**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5831572/2024/10/10/mets-phillies-nlcs-the-pulse/
 
