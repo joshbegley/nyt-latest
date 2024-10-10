@@ -1,3 +1,7 @@
+**Jaguars' flight to London delayed due to Hurricane Milton**\
+`Hurricane Milton made landfall near Sarasota, Fla., as a Category 3 storm on Wednesday and has weakened to a Category 1 hurricane.`\
+https://nytimes.com/athletic/5833596/2024/10/10/hurricane-milton-florida-jaguars-travel-delay/
+
 **Food inflation sped up in September.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/food-prices-increases-accelerated-in-september
@@ -14,13 +18,13 @@ https://nytimes.com/athletic/5832863/2024/10/10/michael-jordan-jersey-dream-team
 `Known for its pop-up stores — and its army of seasonal workers — Spirit Halloween will try its hand at a longer run and a bigger holiday.`\
 https://nytimes.com/2024/10/10/style/spirit-halloween-christmas.html
 
-**Global Trade Grows but Remains Vulnerable to War and Geopolitics**\
-`New reports from the World Trade Organization and a Washington think tank showed how robust global trade could quickly be derailed by violence.`\
-https://nytimes.com/2024/10/10/business/economy/global-trade-china-taiwan-middle-east.html
-
 **She’s Only Playing a Therapist, but the Revelations Are Real**\
 `The designer Bella Freud — a great-granddaughter of Sigmund Freud — is using her podcast to “learn vicariously all the things I’ve secretly wanted to know” about celebrities.`\
 https://nytimes.com/2024/10/10/style/bella-freud-fashion-neurosis-podcast.html
+
+**Global Trade Grows but Remains Vulnerable to War and Geopolitics**\
+`New reports from the World Trade Organization and a Washington think tank showed how robust global trade could quickly be derailed by violence.`\
+https://nytimes.com/2024/10/10/business/economy/global-trade-china-taiwan-middle-east.html
 
 **Tell us your favorite Rafa tennis moment**\
 `The Slams, the 'Big Three,' the headband, the forehand...`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/business/social-security-benefits-increase-2025.h
 **With 100-Foot-Wide Trump Sign, a Sticker Company Dives Into Politics**\
 `The chief executive of Sticker Mule in Amsterdam, N.Y., set off a debate by displaying his support for Donald J. Trump in a massive sign atop the company’s headquarters.`\
 https://nytimes.com/2024/10/10/nyregion/sticker-mule-trump-sign.html
-
-**Drance: How the Canucks got 'away from our identity' in season-opening collapse**\
-`The Canucks lost their season opener in baffling fashion Wednesday, underlining the difficulty of the identity the club is trying to forge.`\
-https://nytimes.com/athletic/5833171/2024/10/10/canucks-flames-loss-2024-25-season-opener/
 
