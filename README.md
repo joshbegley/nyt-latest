@@ -20,7 +20,7 @@ https://nytimes.com/athletic/5746338/2024/10/10/bolivia-altitude-el-alto-venezue
 
 **4 Novels Deliver a Heady Mix of Fact and Fiction**\
 `In the hands of skilled novelists, the stories of an  heiress, a prime minister and a literary mystery woman are brought to life.`\
-https://nytimes.com/2024/10/10/books/review/4-novels-deliver-a-heady-mix-of-fact-and-fiction.html
+https://nytimes.com/2024/10/10/books/review/historical-fiction.html
 
 **Sinner will be year-end world No. 1 after Alcaraz's Shanghai defeat**\
 `Sinner is the third different male player to end the year as number one in the ATP rankings in three seasons`\
