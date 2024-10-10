@@ -1,3 +1,15 @@
+**Going to Paris? Along With Art Basel, Don’t Miss These Shows.**\
+`There is no shortage of museums and art foundations to visit for those attending Art Basel Paris.`\
+https://nytimes.com/2024/10/10/arts/design/art-basel-paris-museums-exhibitions.html
+
+**Glitch on BBC Weather App Shows Outlandish Forecasts**\
+`No, it will not actually reach 832 degrees in Brazil’s capital this weekend.`\
+https://nytimes.com/2024/10/10/world/bbc-weather-app-glitch-hurricane.html
+
+**Illustrating Modern Love**\
+`Brian Rea has illustrated more than 700 Modern Love essays. Here is a look at his process.`\
+https://nytimes.com/card/2024/10/10/style/brian-rea-modern-love-illustrator
+
 **Is a $910 Fleece Actually Worth It?**\
 `Camping’s favorite material gets a luxury overhaul.`\
 https://nytimes.com/2024/10/10/style/rier-fleece-luxury-pullovers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/10/nyregion/rutgers-hate-crime-muslim.html
 **Biden Again Criticizes Trump Over Hurricane Misinformation: ‘Get a Life, Man’**\
 `The White House is juggling the response to two devastating storms in the past two weeks while trying to rebut false information from the former president.`\
 https://nytimes.com/2024/10/10/us/politics/biden-trump-hurricane-misinformation.html
-
-**NCAA describes 'jarring findings' in study of online harassment**\
-`Online harassment peaked during March Madness.`\
-https://nytimes.com/athletic/5834305/2024/10/10/ncaa-harassment-social-media-fans/
-
-**Alexander-Arnold: 'I don't want to be the player who only won trophies young'**\
-`Trent Alexander-Arnold says he does not want to remembered as &#8220;the player who only won trophies when he was young&#8221;.`\
-https://nytimes.com/athletic/5834724/2024/10/10/trent-alexander-arnold-ambitions-liverpool/
-
-**Braves fire three coaches, including hitting coach Kevin Seitzer**\
-`The Atlanta Braves have fired hitting coach Kevin Seitzer, assistant hitting coach Bobby Magallanes and catching coach Sal Fasano, a source confirmed to The Athletic on Thursday.`\
-https://nytimes.com/athletic/5834687/2024/10/10/braves-fire-kevin-seitzer/
 

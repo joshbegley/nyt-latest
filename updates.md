@@ -1,3 +1,15 @@
+**Going to Paris? Along With Art Basel, Don’t Miss These Shows.**\
+`There is no shortage of museums and art foundations to visit for those attending Art Basel Paris.`\
+https://nytimes.com/2024/10/10/arts/design/art-basel-paris-museums-exhibitions.html
+
+**Glitch on BBC Weather App Shows Outlandish Forecasts**\
+`No, it will not actually reach 832 degrees in Brazil’s capital this weekend.`\
+https://nytimes.com/2024/10/10/world/bbc-weather-app-glitch-hurricane.html
+
+**Illustrating Modern Love**\
+`Brian Rea has illustrated more than 700 Modern Love essays. Here is a look at his process.`\
+https://nytimes.com/card/2024/10/10/style/brian-rea-modern-love-illustrator
+
 **Is a $910 Fleece Actually Worth It?**\
 `Camping’s favorite material gets a luxury overhaul.`\
 https://nytimes.com/2024/10/10/style/rier-fleece-luxury-pullovers.html
