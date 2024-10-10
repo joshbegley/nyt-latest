@@ -1,3 +1,7 @@
+**Scoop City: Broncos, Commanders and two others on 3-0 streaks**\
+`A look at the new starter in New Orleans, as well as how the Broncos, Commanders, Chiefs and Vikings are 3-0 since Week 2.`\
+https://nytimes.com/athletic/5834215/2024/10/10/scoop-city-the-4-teams-on-3-0-streaks/
+
 **After a Harrowing Night, Clearwater, Fla., Faces Severe Flooding**\
 `Residents of one apartment building described fleeing a second-floor unit as water rose around them. After the storm, they are worried about those who lived below them.`\
 https://nytimes.com/2024/10/10/weather/clearwater-florida-severe-flooding.html
