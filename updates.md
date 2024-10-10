@@ -1,3 +1,7 @@
+**Garvey’s M.L.B. Teams Are Contenders. His Senate Campaign? Not So Much.**\
+`As his old teams — the Los Angeles Dodgers and the San Diego Padres — battle in the playoffs, the onetime all-star Steve Garvey finds himself an underdog in his Senate race against Adam Schiff.`\
+https://nytimes.com/2024/10/10/us/politics/steve-garvey-senate-padres-dodgers.html
+
 **NASCAR at Charlotte Road Course odds, predictions for playoff race: Who will survive the cut?**\
 `It's time for another elimination race in the Cup Series Playoffs, but a non-playoff driver is favored to win at the Charlotte Road Course.`\
 https://nytimes.com/athletic/5834237/2024/10/10/nascar-cup-series-charlotte-road-course-bank-of-america-roval-400-odds-expert-predictions/
