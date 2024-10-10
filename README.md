@@ -1,3 +1,11 @@
+**What Students Are Saying About the Demands of High School**\
+`We asked teenagers if they were overscheduled, and how it would feel if they were able to slow down and do less.`\
+https://nytimes.com/2024/10/10/learning/what-students-are-saying-about-the-demands-of-high-school.html
+
+**College football Week 7 model projected point differentials and totals for every game**\
+`Austin Mock's projection model has predicted point differentials and totals for every FBS vs. FBS Week 7 college football game.`\
+https://nytimes.com/athletic/5834480/2024/10/10/college-football-week-7-model-projections-predicted-scores/
+
 **‘The Confidante’ Is a Layered French Drama About a Heartbreaking Scam**\
 `Streaming on Max, the series tells the story of woman who lies to a grief support group about her connection to the Paris terrorist attacks of 2015.`\
 https://nytimes.com/2024/10/10/arts/television/the-confidante-max-french.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/opinion/election-harris-trump.html
 **Florida IV Fluid Plant Spared From Storm, Company Says**\
 `Milton threatened a Daytona Beach site that produces one-fourth of the nation’s IV medical solutions, which were already in short supply because of storm damage in North Carolina.`\
 https://nytimes.com/2024/10/10/health/florida-iv-bags-shortages.html
-
-**Garvey’s M.L.B. Teams Are Contenders. His Senate Campaign? Not So Much.**\
-`As his old teams — the Los Angeles Dodgers and the San Diego Padres — battle in the playoffs, the onetime all-star Steve Garvey finds himself an underdog in his Senate race against Adam Schiff.`\
-https://nytimes.com/2024/10/10/us/politics/steve-garvey-senate-padres-dodgers.html
-
-**NASCAR at Charlotte Road Course odds, predictions for playoff race: Who will survive the cut?**\
-`It's time for another elimination race in the Cup Series Playoffs, but a non-playoff driver is favored to win at the Charlotte Road Course.`\
-https://nytimes.com/athletic/5834237/2024/10/10/nascar-cup-series-charlotte-road-course-bank-of-america-roval-400-odds-expert-predictions/
 
