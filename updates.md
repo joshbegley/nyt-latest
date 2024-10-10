@@ -1,3 +1,11 @@
+**Review: A Fall Gala Where Women Led the Way**\
+`New York City Ballet dressed up its fall fashion gala with a program of female choreographers. This was history, even if the results were mixed.`\
+https://nytimes.com/2024/10/10/arts/dance/review-new-york-city-ballet-fashion-gala.html
+
+**Pohlads announce they will explore selling the Minnesota Twins**\
+`The Pohlad family announced in a press release Thursday morning their intention to explore selling the Minnesota Twins.`\
+https://nytimes.com/athletic/5834140/2024/10/10/minnesota-twins-sale-pohlad-family/
+
 **Judge John Hodgman on Gen Alpha Slang**\
 `Is it low-key kinda bussin’ to use your teen’s slang? Or is it Ohio and cringe?`\
 https://nytimes.com/2024/10/10/magazine/judge-john-hodgman-on-gen-alpha-slang.html
