@@ -1,40 +1,40 @@
-**WNBA Finals odds, expert picks, schedule: Can Lynx stop Liberty?**\
-`The New York Liberty and Minnesota Lynx face off Thursday for Game 1 of the WNBA Finals. New York is favored in that game and the series.`\
-https://nytimes.com/athletic/5831195/2024/10/10/wnba-finals-odds-expert-picks-schedule-lynx-liberty/
+**Supreme Court Reform Is in the Air**\
+`Say no to court packing — and yes to term limits.`\
+https://nytimes.com/2024/10/10/opinion/harris-supreme-court.html
 
-**With their season on the line, the Padres will turn to Yu Darvish**\
-`The Padres will need the Game 2 version of the 38-year-old Darvish on Friday, with their season on the line.`\
-https://nytimes.com/athletic/5832804/2024/10/10/san-diego-padres-yu-darvish-nlds-game-5/
+**Why Democratic Senate Control Seems to Be Slipping Away**\
+`A Times/Siena poll shows Jon Tester behind by seven points in Montana, while Colin Allred trails Ted Cruz by four in Texas.`\
+https://nytimes.com/2024/10/10/upshot/senate-elections-montana-tester.html
 
-**Dodgers combine for 'complete' offensive effort to stave off elimination**\
-`Will Smith hit a 432-foot home run to expand the Dodgers' lead and help ease the absence of Freddie Freeman.`\
-https://nytimes.com/athletic/5833150/2024/10/10/dodgers-padres-nlds-gavin-lux-will-smith/
+**A New California Hotel, Perched Above the Beach**\
+`Plus: a collection of glass jewelry, an exhibition of Olga de Amaral’s sculptures and more recommendations from T Magazine.`\
+https://nytimes.com/2024/10/10/t-magazine/laguna-beach-hotel.html
 
-**The Warriors are talking like they want to lead the NBA in attempted 3s**\
-`“What I like about this team is that, even though we lost Klay (Thompson), we have more shooting depth,” coach Steve Kerr said.`\
-https://nytimes.com/athletic/5832749/2024/10/10/golden-state-warriors-3-point-shooting/
+**The Cipher at the Center of a Brilliant Spy Series**\
+`Gary Oldman’s performance as Jackson Lamb is both essential and unknowable.`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/slow-horses-gary-oldman
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/10/crosswords/spelling-bee-forum.html
+**Republicans Appear Poised to Take Control of Senate, New Poll Shows**\
+`The latest polling from The New York Times and Siena College shows Republicans leading in key Senate races in Montana, Texas and Florida.`\
+https://nytimes.com/2024/10/10/us/politics/senate-polls-montana-florida-texas.html
 
-**Before and After**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/10/10/learning/before-and-after.html
+**In London, He and his Roommate Became Co-Owners. What Did They Find for Under £1 Million?**\
+`Unable to afford an apartment of his own in England’s pricey capital, a longtime renter and his friend decided to pool their resources for a two-bedroom flat.`\
+https://nytimes.com/interactive/2024/10/10/realestate/london-apartment-home-sale.html
 
-**Covering All the Corners of a Warming World**\
-`Travel is an opportunity. It’s an economic driver. But it also contributes to global warming. So a Travel editor went back to school to explore the moral dilemma it poses.`\
-https://nytimes.com/2024/10/10/insider/covering-all-the-corners-of-a-warming-world.html
+**In a First, a Gas Utility Is Sued Over Its Role in Global Warming**\
+`The Oregon lawsuit alleges that the utility knew of the dangers of burning fossil fuels and misled its customers.`\
+https://nytimes.com/2024/10/10/climate/natural-gas-utility-climate-change-lawsuit.html
 
-**The Life-or-Death Consequences of Killing Congestion Pricing**\
-`Increased 911 call volume in New York and the city’s unwieldy traffic have led to slower response times for ambulances on their way to save lives.`\
-https://nytimes.com/2024/10/10/nyregion/new-york-fire-department-response-times.html
+**Obama Heads to Pennsylvania to Give Harris a Jolt of Democratic Energy**\
+`The former president, one of the party’s most popular figures, will rally in Pittsburgh for Kamala Harris, as her campaign deploys its most influential surrogates in a push to get out the vote.`\
+https://nytimes.com/2024/10/10/us/politics/obama-pittsburgh-rally-harris.html
 
-**Seth Meyers Is Starting to Wonder About Trump and Putin**\
-`A book says Donald Trump sent Covid testing equipment to the Russian leader. Meyers suspects he threw in “some snacks, a bath bomb and a CD.”`\
-https://nytimes.com/2024/10/10/arts/television/seth-meyers-trump-putin.html
+**Introducing the Dachshund Bag**\
+`A growing number of brands have embraced a new handbag shape that evokes the skinny, elongated bodies of wiener dogs.`\
+https://nytimes.com/2024/10/10/style/handbag-shape-trend-dachshund-bag.html
 
-**How aggressive Manchester City followed tactical masterplan to beat Barcelona**\
-`Gareth Taylor wanted his City side to go on the front foot against the holders - they did not disappoint in recording a stunning 2-0 win`\
-https://nytimes.com/athletic/5832735/2024/10/10/manchester-city-barcelona-champions-league-gareth-taylor/
+**36 Hours in the Berkshires**\
+`Take a road trip across this mountainous region of western Massachusetts, popping into breweries, art galleries and pizzerias, as its landscape erupts in autumnal glory.`\
+https://nytimes.com/interactive/2024/10/10/travel/things-to-do-berkshires.html
 
