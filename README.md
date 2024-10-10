@@ -1,3 +1,7 @@
+**NCAA describes 'jarring findings' in study of online harassment**\
+`Online harassment peaked during March Madness.`\
+https://nytimes.com/athletic/5834305/2024/10/10/ncaa-harassment-social-media-fans/
+
 **Alexander-Arnold: 'I don't want to be the player who only won trophies young'**\
 `Trent Alexander-Arnold says he does not want to remembered as &#8220;the player who only won trophies when he was young&#8221;.`\
 https://nytimes.com/athletic/5834724/2024/10/10/trent-alexander-arnold-ambitions-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/style/time100-next-sabrina-carpenter.html
 **Claudia Conway Declares Her Independence**\
 `The scion and sometimes antagonist of two figures in Republican politics has re-emerged as an independent aiming to sway her fellow Gen-Z voters.`\
 https://nytimes.com/2024/10/10/style/claudia-conway-gen-z-voters-politics.html
-
-**How to Help Victims of Hurricane Milton**\
-`Here’s how to connect with verified aid groups working in the areas affected by the storm.`\
-https://nytimes.com/2024/10/10/weather/hurricane-milton-victims-aid.html
 
