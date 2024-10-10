@@ -1,3 +1,11 @@
+**How Harris Can Finish Strong**\
+`Some tips from novelists and screenwriters on how to keep audiences’ attention.`\
+https://nytimes.com/2024/10/10/opinion/kamala-harris-election-attention.html
+
+**‘Lonely Planet’ Review: Leaving Home to Find Yourself**\
+`Laura Dern and Liam Hemsworth star in a muddled romance without much to say.`\
+https://nytimes.com/2024/10/10/movies/lonely-planet-review.html
+
 **Ethel Kennedy: A Life in Pictures**\
 `Her life took a tragic turn when her husband, Senator Robert F. Kennedy, was assassinated, but she continued to engage in social advocacy and was recognized for her devotion to her family and nation.`\
 https://nytimes.com/2024/10/10/us/ethel-kennedy-life-photos.html
