@@ -1,3 +1,15 @@
+**Five years after fallout, Adam Silver believes NBA will return to China**\
+`NEW YORK — Five years after the NBA&#8217;s last game in China, commissioner Adam Silver believes the league will return to the country at some point.`\
+https://nytimes.com/athletic/5834219/2024/10/10/china-nba-games-adam-silver/
+
+**Chile Crisp Everything**\
+`By Mia Leimkuhler`\
+https://nytimes.com/2024/10/10/dining/chile-crisp-recipes.html
+
+**How Back-to-Back Hurricanes Harm Mental Health**\
+`Research shows that experiencing repeated disasters makes people more vulnerable to mental health issues, and prolongs the time it takes to recover.`\
+https://nytimes.com/2024/10/10/well/hurricane-milton-helene-mental-health.html
+
 **Texas to start Quinn Ewers vs. Oklahoma**\
 `Ewers missed the Longhorns’ last two games after suffering a strained oblique on Sept. 14.`\
 https://nytimes.com/athletic/5834242/2024/10/10/texas-quinn-ewers-starting-oklahoma/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5834069/2024/10/10/valencia-fans-peter-lim-return/
 **He Evacuated Gulfport but Wondered: Would His Houseboat Survive?**\
 `Thomas Kerschen’s boat had survived several storms the last three years. But after Milton swept through, he wasn’t sure he would have a home to return to.`\
 https://nytimes.com/2024/10/10/weather/gulfport-florida-damage.html
-
-**London Hosts Its Frieze Week in the Shadow of Paris**\
-`Plenty of business was done on the first day of the London fair, but much of the chatter was about the upcoming presentations at Art Basel Paris.`\
-https://nytimes.com/2024/10/10/arts/design/london-frieze-week.html
-
-**An Artist Inspired by Angels and Mary Oliver**\
-`By Kin Woo`\
-https://nytimes.com/card/2024/10/10/t-magazine/art/dominic-chambers-lehman-maupin
-
-**Scoop City: Broncos, Commanders and two others on 3-0 streaks**\
-`A look at the new starter in New Orleans, as well as how the Broncos, Commanders, Chiefs and Vikings are 3-0 since Week 2.`\
-https://nytimes.com/athletic/5834215/2024/10/10/scoop-city-the-4-teams-on-3-0-streaks/
 

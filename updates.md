@@ -1,3 +1,15 @@
+**Five years after fallout, Adam Silver believes NBA will return to China**\
+`NEW YORK — Five years after the NBA&#8217;s last game in China, commissioner Adam Silver believes the league will return to the country at some point.`\
+https://nytimes.com/athletic/5834219/2024/10/10/china-nba-games-adam-silver/
+
+**Chile Crisp Everything**\
+`By Mia Leimkuhler`\
+https://nytimes.com/2024/10/10/dining/chile-crisp-recipes.html
+
+**How Back-to-Back Hurricanes Harm Mental Health**\
+`Research shows that experiencing repeated disasters makes people more vulnerable to mental health issues, and prolongs the time it takes to recover.`\
+https://nytimes.com/2024/10/10/well/hurricane-milton-helene-mental-health.html
+
 **Texas to start Quinn Ewers vs. Oklahoma**\
 `Ewers missed the Longhorns’ last two games after suffering a strained oblique on Sept. 14.`\
 https://nytimes.com/athletic/5834242/2024/10/10/texas-quinn-ewers-starting-oklahoma/
