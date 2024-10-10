@@ -1,3 +1,7 @@
+**Stanton's homer gives Yankees' ALDS edge over Royals: Takeaways**\
+`The Yankees took a 2-1 lead in the series, with ace Gerrit Cole set to take the mound against Michael Wacha in Game 4 on Thursday.`\
+https://nytimes.com/athletic/5832524/2024/10/09/yankees-royals-score-stanton-game-4-takeaways/
+
 **Maple Leafs report cards: An opening night dud in Montreal**\
 `The Leafs were shutout for the first time since Nov. 20, 2021 in a 1-0 loss to the Montreal Canadiens.`\
 https://nytimes.com/athletic/5832638/2024/10/09/maple-leafs-report-cards-canadiens-3/

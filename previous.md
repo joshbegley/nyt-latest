@@ -1,3 +1,7 @@
+**Stanton's homer gives Yankees' ALDS edge over Royals: Takeaways**\
+`The Yankees took a 2-1 lead in the series, with ace Gerrit Cole set to take the mound against Michael Wacha in Game 4 on Thursday.`\
+https://nytimes.com/athletic/5832524/2024/10/09/yankees-royals-score-stanton-game-4-takeaways/
+
 **Maple Leafs report cards: An opening night dud in Montreal**\
 `The Leafs were shutout for the first time since Nov. 20, 2021 in a 1-0 loss to the Montreal Canadiens.`\
 https://nytimes.com/athletic/5832638/2024/10/09/maple-leafs-report-cards-canadiens-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832437/2024/10/09/tigers-alds-game-3-win-atmospher
 **Red Sox fire 6 coaches, including first base coach Andy Fox, bullpen coach Kevin Walker**\
 `The Red Sox let go six coaches, including Mani Martinez, who had been the team's bullpen catcher for more than a decade.`\
 https://nytimes.com/athletic/5832486/2024/10/09/red-sox-coaches-fired-andy-fox-kevin-walker/
-
-**Trump’s Remarks on Migrants Illustrate His Obsession With Genes**\
-`In discussing migrants and genes, the former president used language that reflected his decades-long belief that bloodlines determine a person’s capacity for success or violence.`\
-https://nytimes.com/2024/10/09/us/politics/trump-migrants-genes.html
 
