@@ -1,3 +1,11 @@
+**Braves hitting coach Kevin Seitzer opens about getting fired: 'I don’t blame Alex'**\
+`Seitzer's season was difficult on the field and off but said: "I couldn’t be more thankful."`\
+https://nytimes.com/athletic/5834988/2024/10/10/braves-kevin-seitzer-fired-reaction/
+
+**Hurricanes are a growing threat. But Florida is more prepared.**\
+`The state’s strong building code, which has made newer construction remarkably resistant to even fierce storms, most likely had a mitigating effect as Hurricane Milton swept through.`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/hurricanes-are-a-growing-threat-but-florida-is-more-prepared
+
 **Tropicana Field, Already Obsolete, Now Needs a New Roof**\
 `The home of the Tampa Bay Rays, generally disdained by players, was built to take the elements out of baseball. The elements struck back.`\
 https://nytimes.com/2024/10/10/weather/tropicana-field-roof-hurricane-florida.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5834270/2024/10/10/tropicana-field-roof-damage-hurr
 **In flooded Lakeland, the police rescued a woman, her dog and her cats.**\
 `By Nicole Craine`\
 https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/in-flooded-lakeland-the-police-rescued-a-woman-her-dog-and-her-cats
-
-**Millions Are Without Power After Milton Tore Through Florida**\
-`Also, Republicans appear poised to win control of the Senate. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/10/10/briefing/hurricane-milton-damage-senate-polls.html
-
-**‘Relentless’ Israeli Attacks on Gaza Medical Workers Are War Crime, U.N. Panel Says**\
-`The report, which does not have the force of law, found that the Israeli military has engaged in deliberate assaults on hospitals and other health care providers.`\
-https://nytimes.com/2024/10/10/world/middleeast/israel-gaza-war-un-report.html
 
