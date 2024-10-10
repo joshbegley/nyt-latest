@@ -1,3 +1,7 @@
+**‘The Apprentice’ Review: An Origin Story for Donald J. Trump**\
+`In this ribald fictional telling of a young Trump’s rise, the man responsible is the lawyer Roy Cohn, played to sleazy perfection by Jeremy Strong.`\
+https://nytimes.com/2024/10/10/movies/the-apprentice-review-donald-trump-roy-cohn.html
+
 **NFL Week 6 fantasy football, betting cheat sheet: Texans without Collins, Kittle likely to play**\
 `How will Houston's offense adapt without Nico Collins? Monitoring injuries on Malik Nabers, Anthony Richardson and more.`\
 https://nytimes.com/athletic/5832171/2024/10/10/week-6-fantasy-football-betting-cheat-sheet-injuries-weather-previews/
