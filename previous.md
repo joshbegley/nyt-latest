@@ -34,7 +34,7 @@ https://nytimes.com/video/podcasts/the-daily/100000009752702/election-media-poll
 `The New York Jets are in turmoil after firing coach Robert Saleh. But Aaron Rodgers & Co. are still a decent bet to make the playoffs. `\
 https://nytimes.com/athletic/5831567/2024/10/10/nfl-projection-jets-bengals-dolphins-playoffs/
 
-**How the Hurricanes masterfully execute the salary cap dance**\
-`Get out your calculators, because it's time to make sense of the Hurricanes' recent roster moves.`\
-https://nytimes.com/athletic/5832760/2024/10/10/carolina-hurricanes-salary-cap-roster/
+**What's it like to play Rafael Nadal on clay? We asked the players**\
+`"It was no fun. No fun at all." Rafael Nadal is the ultimate clay-court player. This is what facing him on his favorite surface feels like`\
+https://nytimes.com/athletic/5500866/2024/10/10/rafael-nadal-clay-opponent-experience/
 

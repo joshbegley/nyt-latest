@@ -1,3 +1,7 @@
+**What's it like to play Rafael Nadal on clay? We asked the players**\
+`"It was no fun. No fun at all." Rafael Nadal is the ultimate clay-court player. This is what facing him on his favorite surface feels like`\
+https://nytimes.com/athletic/5500866/2024/10/10/rafael-nadal-clay-opponent-experience/
+
 **Hurricane Milton’s Destruction**\
 `We cover the latest on the storm.`\
 https://nytimes.com/2024/10/10/briefing/hurricane-milton-florida-latest.html
