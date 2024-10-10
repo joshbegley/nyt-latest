@@ -1,3 +1,7 @@
+**Bournemouth owner Foley in talks to buy Moreirense**\
+`Bournemouth owner Bill Foley is in talks to buy Portuguese club Moreirense.`\
+https://nytimes.com/athletic/5833330/2024/10/10/bournemouth-bill-foley-moreirense/
+
 **Doc Rivers turns to Greg Buckner for a new direction to help revive the Bucks defense**\
 `Last year, the Bucks struggled to defend and Rivers knew they needed to improve. Enter Buckner as Milwaukee's defensive coordinator.`\
 https://nytimes.com/athletic/5831860/2024/10/10/doc-rivers-greg-buckner-bucks-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/style/spirit-halloween-christmas.html
 **She’s Only Playing a Therapist, but the Revelations Are Real**\
 `The designer Bella Freud — a great-granddaughter of Sigmund Freud — is using her podcast to “learn vicariously all the things I’ve secretly wanted to know” about celebrities.`\
 https://nytimes.com/2024/10/10/style/bella-freud-fashion-neurosis-podcast.html
-
-**Global Trade Grows but Remains Vulnerable to War and Geopolitics**\
-`New reports from the World Trade Organization and a Washington think tank showed how robust global trade could quickly be derailed by violence.`\
-https://nytimes.com/2024/10/10/business/economy/global-trade-china-taiwan-middle-east.html
 
