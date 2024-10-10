@@ -1,3 +1,11 @@
+**Texas to start Quinn Ewers vs. Oklahoma**\
+`Ewers missed the Longhorns’ last two games after suffering a strained oblique on Sept. 14.`\
+https://nytimes.com/athletic/5834242/2024/10/10/texas-quinn-ewers-starting-oklahoma/
+
+**A Crane Hit Their Building, but the Journalists Were Out Reporting**\
+`Reporters at The Tampa Bay Times are covering their second hurricane in a month.`\
+https://nytimes.com/2024/10/10/business/media/tampa-bay-times-crane-hurricane.html
+
 **‘The Apprentice’ Review: An Origin Story for Donald J. Trump**\
 `In this ribald fictional telling of a young Trump’s rise, the man responsible is the lawyer Roy Cohn, played to sleazy perfection by Jeremy Strong.`\
 https://nytimes.com/2024/10/10/movies/the-apprentice-review-donald-trump-roy-cohn.html
