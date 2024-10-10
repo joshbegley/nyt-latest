@@ -1,3 +1,7 @@
+**NCAA describes 'jarring findings' in study of online harassment**\
+`Online harassment peaked during March Madness.`\
+https://nytimes.com/athletic/5834305/2024/10/10/ncaa-harassment-social-media-fans/
+
 **Claudia Conway Declares Her Independence**\
 `The scion and sometimes antagonist of two figures in Republican politics has re-emerged as an independent aiming to sway her fellow Gen-Z voters.`\
 https://nytimes.com/2024/10/10/style/claudia-conway-gen-z-voters-politics.html
