@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5832448/2024/10/10/yankees-giancarlo-stanton-october/
 
 **Postseason baseball returned to Kansas City. Now the Royals must win to survive**\
-`The mission is simple: The Royals must win on Thursday night at Kauffman Stadium against Gerrit Cole and the Yankees. `\
+`The mission is simple: The Royals must win Thursday night at Kauffman Stadium against Gerrit Cole and the Yankees. `\
 https://nytimes.com/athletic/5833018/2024/10/10/kansas-city-royals-postseason-baseball-alds/
 
 **How Canucks squandered 20 dominant minutes in opening-night collapse: 3 takeaways**\
