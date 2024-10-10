@@ -1,3 +1,7 @@
+**Mazraoui has surgery after heart palpitations, hopes to be available in next few weeks**\
+`Manchester United defender Noussair Mazraoui has had minor surgery after experiencing heart palpitations and hopes to be available to play in the next few weeks.`\
+https://nytimes.com/athletic/5833772/2024/10/10/noussair-mazraoui-man-utd-heart-palpitations/
+
 **As Deadline for Another Debate Looms, Trump Again Rejects a Rematch**\
 `CNN said the former president had until noon on Thursday to accept an invitation to an Oct. 23 showdown with Vice President Kamala Harris, who already accepted.`\
 https://nytimes.com/2024/10/10/us/politics/debate-trump-harris-deadline.html
