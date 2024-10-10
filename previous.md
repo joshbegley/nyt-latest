@@ -1,6 +1,6 @@
 **Milton’s Storm Surge Threatens Destruction in the Dark**\
 `A combination of unrelenting rains and strong storm surge prompted officials to issue flash flood warnings in western and Central Florida.`\
-https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida-landfall/miltons-storm-surge-threatens-destruction-in-the-dark
+https://nytimes.com/2024/10/09/us/miltons-storm-surge-threatens-destruction-in-the-dark.html
 
 **How Rangers, Igor Shesterkin ignored distractions in opening-night win: Takeaways**\
 `Shesterkin made 29 saves and earned the shutout in the Rangers' 6-0 win over the Penguins. `\
