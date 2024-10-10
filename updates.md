@@ -1,3 +1,7 @@
+**The Warriors are talking like they want to lead the NBA in attempted 3s**\
+`“What I like about this team is that, even though we lost Klay (Thompson), we have more shooting depth,” coach Steve Kerr said.`\
+https://nytimes.com/athletic/5832749/2024/10/10/golden-state-warriors-3-point-shooting/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/10/crosswords/spelling-bee-forum.html
