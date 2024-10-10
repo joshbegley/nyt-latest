@@ -1,3 +1,19 @@
+**Let’s Discuss: ‘Don’t Call It an “Ethnic” Grocery Store’**\
+`How can food feel like home? Read the article and post your comments and questions for our journalist Priya Krishna by Oct. 17.`\
+https://nytimes.com/2024/10/10/learning/lesson-plans/lets-discuss-dont-call-it-an-ethnic-grocery-store.html
+
+**‘Mad About the Boy: The Noël Coward Story’ Review: In Blithe Spirits**\
+`A brisk documentary by Barnaby Thompson counters that the tuxedo-wearing playwright hid his insecurities under a platinum-plated veneer.`\
+https://nytimes.com/2024/10/10/movies/mad-about-the-boy-the-noel-coward-story-review.html
+
+**‘Terrifier 3’ Review: Still Clowning Around**\
+`The deaths remain grisly, but the pacing uneven in this new installment in Damien Leone’s horror franchise.`\
+https://nytimes.com/2024/10/10/movies/terrifier-3-review.html
+
+**More Than 3 Million Are Without Power in Florida**\
+`Downed power lines and scattered debris from Hurricane Milton caused widespread power outages that may prove difficult for utility companies to repair.`\
+https://nytimes.com/2024/10/10/weather/hurricane-milton-power-outages-map-florida.html
+
 **What's it like to play Rafael Nadal on clay? We asked the players**\
 `"It was no fun. No fun at all." Rafael Nadal is the ultimate clay-court player. This is what facing him on his favorite surface feels like`\
 https://nytimes.com/athletic/5500866/2024/10/10/rafael-nadal-clay-opponent-experience/
