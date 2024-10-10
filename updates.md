@@ -1,3 +1,15 @@
+**It’s Indoor Dining Season In New York City**\
+`These are the kind of restaurant spaces you won’t want to leave.`\
+https://nytimes.com/2024/10/10/dining/its-indoor-dining-season-in-new-york-city.html
+
+**Sabrina Carpenter Had Her Fellow Honorees Talking at Time100 Next**\
+`The singer stayed out of sight before performing at a party celebrating young actors, musicians, politicians, doctors and more.`\
+https://nytimes.com/2024/10/10/style/time100-next-sabrina-carpenter.html
+
+**Claudia Conway Declares Her Independence**\
+`The scion and sometimes antagonist of two prominent Republicans has rejoined the political discourse as an independent aiming to sway her fellow Gen-Z voters.`\
+https://nytimes.com/2024/10/10/style/claudia-conway-gen-z-voters-politics.html
+
 **How to Help Victims of Hurricane Milton**\
 `Here’s how to connect with verified aid groups working in the areas affected by the storm.`\
 https://nytimes.com/2024/10/10/weather/hurricane-milton-victims-aid.html

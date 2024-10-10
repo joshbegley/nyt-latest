@@ -1,3 +1,15 @@
+**It’s Indoor Dining Season In New York City**\
+`These are the kind of restaurant spaces you won’t want to leave.`\
+https://nytimes.com/2024/10/10/dining/its-indoor-dining-season-in-new-york-city.html
+
+**Sabrina Carpenter Had Her Fellow Honorees Talking at Time100 Next**\
+`The singer stayed out of sight before performing at a party celebrating young actors, musicians, politicians, doctors and more.`\
+https://nytimes.com/2024/10/10/style/time100-next-sabrina-carpenter.html
+
+**Claudia Conway Declares Her Independence**\
+`The scion and sometimes antagonist of two prominent Republicans has rejoined the political discourse as an independent aiming to sway her fellow Gen-Z voters.`\
+https://nytimes.com/2024/10/10/style/claudia-conway-gen-z-voters-politics.html
+
 **How to Help Victims of Hurricane Milton**\
 `Here’s how to connect with verified aid groups working in the areas affected by the storm.`\
 https://nytimes.com/2024/10/10/weather/hurricane-milton-victims-aid.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/m
 **Will Climate Change Transform the Florida Dream?**\
 `Millions of Americans have moved to the Sunshine State over the last several decades, only to see Florida’s future collide with climate change.`\
 https://nytimes.com/2024/10/10/climate/will-climate-change-transform-the-florida-dream.html
-
-**France Unveils Tough Austerity Budget to Mend Its Finances**\
-`The French government is seeking deep spending cuts and higher taxes in an effort to tame its ballooning debt and deficit.`\
-https://nytimes.com/2024/10/10/business/france-budget-debt-deficit-macron.html
-
-**What Students Are Saying About the Demands of High School**\
-`We asked teenagers if they were overscheduled, and how it would feel if they were able to slow down and do less.`\
-https://nytimes.com/2024/10/10/learning/what-students-are-saying-about-the-demands-of-high-school.html
-
-**College football Week 7 model projected point differentials and totals for every game**\
-`Austin Mock's projection model has predicted point differentials and totals for every FBS vs. FBS Week 7 college football game.`\
-https://nytimes.com/athletic/5834480/2024/10/10/college-football-week-7-model-projections-predicted-scores/
 
