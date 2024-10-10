@@ -1,3 +1,7 @@
+**How aggressive Manchester City followed tactical masterplan to beat Barcelona**\
+`Gareth Taylor wanted his City side to go on the front foot against the holders - his team did not disappoint in recording a stunning win`\
+https://nytimes.com/athletic/5832735/2024/10/10/manchester-city-barcelona-champions-league-gareth-taylor/
+
 **Dodgers bullpen turns up aces against Padres to keep season alive**\
 `Against a parade of Dodgers relievers, San Diego did not advance a runner beyond second base.`\
 https://nytimes.com/athletic/5833051/2024/10/10/dodgers-padres-nlds-bullpen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5833007/2024/10/10/aaron-judge-yankees-playoff-slum
 **What you need to know from the MLB playoffs: Mets to NLCS, Dodgers force Game 5**\
 `The Mets have ousted the Phillies, while the Dodgers roared back against the Padres. Meanwhile, the Yankees and Tigers are one step closer.`\
 https://nytimes.com/athletic/5832889/2024/10/10/mlb-postseason-2024-what-you-need-to-know-2/
-
-**Thursday Briefing**\
-`Hurricane Milton made landfall in Florida.`\
-https://nytimes.com/2024/10/10/briefing/hurricane-milton-florida.html
 
