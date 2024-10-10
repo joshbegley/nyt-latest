@@ -1,3 +1,15 @@
+**Billy Shaw, a Singular Hall of Fame Lineman, Dies at 85**\
+`He was the only inductee to play his entire career in the American Football League, where he helped the Buffalo Bills win two championships in the 1960s.`\
+https://nytimes.com/2024/10/10/sports/football/billy-shaw-a-singular-hall-of-fame-lineman-dies-at-85.html
+
+**What’s Going On in This Graph? | Oct. 23, 2024**\
+`Two powerful hurricanes recently spun up in the Gulf of Mexico.  How has ocean heat in the Gulf changed over time?`\
+https://nytimes.com/2024/10/10/learning/whats-going-on-in-this-graph-oct-23-2024.html
+
+**Bizarre Falsehoods About Hurricanes Helene and Milton Disrupt Recovery Efforts**\
+`Experts warn that weather-related disinformation can rapidly escalate into real-world risks and distract from aid.`\
+https://nytimes.com/2024/10/10/business/media/hurricane-milton-helene-conspiracy-theories.html
+
 **It’s Indoor Dining Season In New York City**\
 `These are the kind of restaurant spaces you won’t want to leave.`\
 https://nytimes.com/2024/10/10/dining/its-indoor-dining-season-in-new-york-city.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/10/arts/music/sean-combs-diddy-trial-date.html
 **Baldock died while swimming at home in pool, family say**\
 `Former Sheffield United defender George Baldock drowned while swimming in the pool at his home in Athens, his family said in a statement.`\
 https://nytimes.com/athletic/5834595/2024/10/10/george-baldock-death-family-statement/
-
-**What’s Going On in This Picture? | Oct. 21, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/10/10/learning/whats-going-on-in-this-picture-oct-21-2024.html
-
-**Hurricane Milton spawned dozens of tornadoes, one of them deadly.**\
-`The violent winds can start in the outer edges of hurricanes. Milton spawned more than usual.`\
-https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/milton-torandoes-climate-change
-
-**Will Climate Change Transform the Florida Dream?**\
-`Millions of Americans have moved to the Sunshine State over the last several decades, only to see Florida’s future collide with climate change.`\
-https://nytimes.com/2024/10/10/climate/will-climate-change-transform-the-florida-dream.html
 
