@@ -31,7 +31,7 @@ https://nytimes.com/2024/10/10/nyregion/new-york-fire-department-response-times.
 https://nytimes.com/2024/10/10/arts/television/seth-meyers-trump-putin.html
 
 **How aggressive Manchester City followed tactical masterplan to beat Barcelona**\
-`Gareth Taylor wanted his City side to go on the front foot against the holders - his team did not disappoint in recording a stunning win`\
+`Gareth Taylor wanted his City side to go on the front foot against the holders - they did not disappoint in recording a stunning 2-0 win`\
 https://nytimes.com/athletic/5832735/2024/10/10/manchester-city-barcelona-champions-league-gareth-taylor/
 
 **Dodgers bullpen turns up aces against Padres to keep season alive**\
