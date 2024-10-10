@@ -1,3 +1,15 @@
+**Israel’s Security Cabinet to Meet to Discuss Response to Iran Attack**\
+`The cabinet was expected to authorize Prime Minister Benjamin Netanyahu and Yoav Gallant, the defense minister, to initiate a retaliatory attack at their discretion, officials said.`\
+https://nytimes.com/2024/10/10/world/middleeast/israels-security-cabinet-to-meet-to-discuss-response-to-iran-attack.html
+
+**Tesla to Offer First Glimpse of a ‘Robotaxi’ That Drives Itself**\
+`Elon Musk has said that the vehicle will add trillions to Tesla’s stock market value and that those who don’t believe him should sell their shares.`\
+https://nytimes.com/2024/10/10/business/tesla-robotaxi-elon-musk.html
+
+**Four key takeaways from Jets' stunning season-opening win over Oilers**\
+`The Jets went toe-to-toe with the Stanley Cup favourites and kept Connor McDavid, Leon Draisaitl and company on their back foot.`\
+https://nytimes.com/athletic/5832692/2024/10/10/winnipeg-jets-oilers-score-hellebuyck/
+
 **Three key questions facing the Phillies in a critical offseason**\
 `As the Phillies begin to survey the wreckage, Dave Dombrowski has avenues to remake the outfield and bullpen. `\
 https://nytimes.com/athletic/5833027/2024/10/10/phillies-offseason-questions-trades-free-agency/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/10/books/review/historical-fiction.html
 **Sinner will be year-end world No. 1 after Alcaraz's Shanghai defeat**\
 `Sinner is the third different male player to end the year as number one in the ATP rankings in three seasons`\
 https://nytimes.com/athletic/5833662/2024/10/10/sinner-world-number-one-atp-alcaraz-2024/
-
-**Mazraoui has surgery after heart palpitations, hopes to be available in next few weeks**\
-`Manchester United defender Noussair Mazraoui has had minor surgery after experiencing heart palpitations and hopes to be available to play in the next few weeks.`\
-https://nytimes.com/athletic/5833772/2024/10/10/noussair-mazraoui-man-utd-heart-palpitations/
-
-**As Deadline for Another Debate Looms, Trump Again Rejects a Rematch**\
-`CNN said the former president had until noon on Thursday to accept an invitation to an Oct. 23 showdown with Vice President Kamala Harris, who already accepted.`\
-https://nytimes.com/2024/10/10/us/politics/debate-trump-harris-deadline.html
-
-**Bournemouth owner Foley in talks to buy Moreirense**\
-`Bournemouth owner Bill Foley is in talks to buy Portuguese club Moreirense.`\
-https://nytimes.com/athletic/5833330/2024/10/10/bournemouth-bill-foley-moreirense/
 
