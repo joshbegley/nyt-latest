@@ -1,3 +1,7 @@
+**Quote of the Day: The Subject That Matters: Football 101**\
+`Quotation of the Day for Thursday, October 10, 2024`\
+https://nytimes.com/2024/10/09/pageoneplus/quote-of-the-day-the-subject-that-matters-football-101.html
+
 **Tropicana Field sustains major roof damage amid Hurricane Milton**\
 `The roof of the domed stadium located in St. Petersburg, Fla., is seemingly shredded hours after Milton made landfall.`\
 https://nytimes.com/athletic/5832803/2024/10/09/hurricane-milton-tropicana-field-roof-damage/
