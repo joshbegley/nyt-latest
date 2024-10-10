@@ -1,3 +1,7 @@
+**A Phillies season with high hopes ends too soon and all that's certain is the hurt**\
+`It was hard, as the Phillies departed Citi Field, to not feel as if an opportunity had passed. It was supposed to be this team's time. `\
+https://nytimes.com/athletic/5832857/2024/10/10/phillies-eliminated-nlds-2024-season/
+
 **'I love it': Yankees' Jazz Chisholm Jr. relishes booing from Royals fans**\
 `The third baseman drew the ire of fans in Kansas City after his comments about the Royals' getting 'lucky' in Game 2 on Monday. `\
 https://nytimes.com/athletic/5832911/2024/10/10/yankees-jazz-chisholm-royals-boos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5825272/2024/10/10/cristiano-romero-form/
 **Why international football is under threat like never before**\
 `With the sport's calendar more packed than ever, something has to give - and international fixtures are in danger of falling victim`\
 https://nytimes.com/athletic/5830990/2024/10/10/international-football-future/
-
-**18-Year-Old Sherpa Becomes Youngest Climber to Summit 14 Highest Mountains**\
-`Nima Rinji Sherpa’s achievement highlights the role of Sherpas in an activity where they shoulder much of the risk but receive little glory.`\
-https://nytimes.com/2024/10/10/world/asia/highest-mountains-sherpa-tibet.html
 

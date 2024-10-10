@@ -1,3 +1,7 @@
+**A Phillies season with high hopes ends too soon and all that's certain is the hurt**\
+`It was hard, as the Phillies departed Citi Field, to not feel as if an opportunity had passed. It was supposed to be this team's time. `\
+https://nytimes.com/athletic/5832857/2024/10/10/phillies-eliminated-nlds-2024-season/
+
 **'I love it': Yankees' Jazz Chisholm Jr. relishes booing from Royals fans**\
 `The third baseman drew the ire of fans in Kansas City after his comments about the Royals' getting 'lucky' in Game 2 on Monday. `\
 https://nytimes.com/athletic/5832911/2024/10/10/yankees-jazz-chisholm-royals-boos/
