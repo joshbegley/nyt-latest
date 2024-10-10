@@ -1,3 +1,7 @@
+**What to know about the report.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/what-to-know-about-the-report
+
 **How to fix Notre Dame's offense: 4 objectives for the Irish**\
 `As the second half of the season approaches, OC Mike Denbrock needs to correct the shortcomings on Notre Dame's offense soon.`\
 https://nytimes.com/athletic/5833732/2024/10/10/notre-dame-offense-college-football-riley-leonard-jeremiyah-love/

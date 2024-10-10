@@ -1,3 +1,7 @@
+**What to know about the report.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/what-to-know-about-the-report
+
 **How to fix Notre Dame's offense: 4 objectives for the Irish**\
 `As the second half of the season approaches, OC Mike Denbrock needs to correct the shortcomings on Notre Dame's offense soon.`\
 https://nytimes.com/athletic/5833732/2024/10/10/notre-dame-offense-college-football-riley-leonard-jeremiyah-love/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5831860/2024/10/10/doc-rivers-greg-buckner-bucks-de
 **New York Jets next coach odds: Ben Johnson favored, Bill Belichick a long shot**\
 `Will the Jets look to hire a new head coach after the season? Here's what the betting odds reveal about the list of potential candidates.`\
 https://nytimes.com/athletic/5832658/2024/10/10/ny-jets-coach-bill-belichick-johnson-rodgers/
-
-**Ukraine’s Parliament Approves Biggest Tax Hike of War to Support the Army**\
-`The authorities are resorting to a politically unpopular move as they scramble to raise funds for the grueling military effort against Russia.`\
-https://nytimes.com/2024/10/10/world/europe/ukraine-tax-hike-war.html
 
