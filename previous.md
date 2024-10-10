@@ -1,3 +1,11 @@
+**Why Yankees say Judge is about to snap slump**\
+`Despite hitting several balls hard in Game 3, Judge is 1 for 11 with three walks in the ALDS versus the Royals.`\
+https://nytimes.com/athletic/5833007/2024/10/10/aaron-judge-yankees-playoff-slump/
+
+**What you need to know from the MLB playoffs: Mets to NLCS, Dodgers force Game 5**\
+`The Mets have ousted the Phillies, while the Dodgers roared back against the Padres. Meanwhile, the Yankees and Tigers are one step closer.`\
+https://nytimes.com/athletic/5832889/2024/10/10/mlb-postseason-2024-what-you-need-to-know-2/
+
 **Thursday Briefing**\
 `Hurricane Milton made landfall in Florida.`\
 https://nytimes.com/2024/10/10/briefing/hurricane-milton-florida.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5832698/2024/10/10/dodgers-padres-mookie-betts-mlb-
 **How Pervis Estupinan's return is changing Brighton**\
 `The left-back did as much as anyone to change the narrative against Spurs. He brings another dimension to the team`\
 https://nytimes.com/athletic/5784979/2024/10/10/how-pervis-estupinans-return-is-changing-brighton/
-
-**Bukayo Saka has passed one Marcus Rashford milestone. Can he reach a different level?**\
-`At this juncture, Saka’s trajectory is similar to the arc Rashford was on when he was a winger-cum-striker who was gliding past defenders`\
-https://nytimes.com/athletic/5829602/2024/10/10/bukayo-saka-arsenal-marcus-rashford-lessons/
-
-**Do Tottenham have a problem with Cristian Romero?**\
-`A crucial lapse of concentration against Brighton has left some Spurs fans questioning the Argentine’s place in the starting XI`\
-https://nytimes.com/athletic/5825272/2024/10/10/cristiano-romero-form/
 

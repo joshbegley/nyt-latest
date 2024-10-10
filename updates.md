@@ -1,3 +1,11 @@
+**Why Yankees say Judge is about to snap slump**\
+`Despite hitting several balls hard in Game 3, Judge is 1 for 11 with three walks in the ALDS versus the Royals.`\
+https://nytimes.com/athletic/5833007/2024/10/10/aaron-judge-yankees-playoff-slump/
+
+**What you need to know from the MLB playoffs: Mets to NLCS, Dodgers force Game 5**\
+`The Mets have ousted the Phillies, while the Dodgers roared back against the Padres. Meanwhile, the Yankees and Tigers are one step closer.`\
+https://nytimes.com/athletic/5832889/2024/10/10/mlb-postseason-2024-what-you-need-to-know-2/
+
 **Thursday Briefing**\
 `Hurricane Milton made landfall in Florida.`\
 https://nytimes.com/2024/10/10/briefing/hurricane-milton-florida.html
