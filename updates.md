@@ -1,3 +1,7 @@
+**Tornadoes Kill at Least 5 Near Fort Pierce, Some in a Retirement Community**\
+`The authorities said “more than one” victim resided in Spanish Lakes Country Club Village, a community of older mobile homes.`\
+https://nytimes.com/2024/10/10/weather/tornado-death-spanish-lakes-fort-pierce.html
+
 **Sean Combs’s Sex Trafficking Trial Is Set for May 5**\
 `The music mogul, wearing tan jail clothes at a court hearing, waved and smiled at six of his children and his mother in the gallery.`\
 https://nytimes.com/2024/10/10/arts/music/sean-combs-diddy-trial-date.html

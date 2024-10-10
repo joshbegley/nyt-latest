@@ -1,3 +1,7 @@
+**Tornadoes Kill at Least 5 Near Fort Pierce, Some in a Retirement Community**\
+`The authorities said “more than one” victim resided in Spanish Lakes Country Club Village, a community of older mobile homes.`\
+https://nytimes.com/2024/10/10/weather/tornado-death-spanish-lakes-fort-pierce.html
+
 **Sean Combs’s Sex Trafficking Trial Is Set for May 5**\
 `The music mogul, wearing tan jail clothes at a court hearing, waved and smiled at six of his children and his mother in the gallery.`\
 https://nytimes.com/2024/10/10/arts/music/sean-combs-diddy-trial-date.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5834480/2024/10/10/college-football-week-7-model-pr
 **‘The Confidante’ Is a Layered French Drama About a Heartbreaking Scam**\
 `Streaming on Max, the series tells the story of woman who lies to a grief support group about her connection to the Paris terrorist attacks of 2015.`\
 https://nytimes.com/2024/10/10/arts/television/the-confidante-max-french.html
-
-**Who Are the U.N. Peacekeepers at Lebanon’s Border With Israel?**\
-`Established to maintain peace in southern Lebanon, the UNIFIL forces have been increasingly caught in the middle of the Israeli-Hezbollah war.`\
-https://nytimes.com/2024/10/10/world/middleeast/unifil-un-peacekeepers-lebanon.html
 
