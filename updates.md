@@ -1,3 +1,7 @@
+**WNBA Finals odds, expert picks, schedule: Can Lynx stop Liberty?**\
+`The New York Liberty and Minnesota Lynx face off Thursday for Game 1 of the WNBA Finals. New York is favored in that game and the series.`\
+https://nytimes.com/athletic/5831195/2024/10/10/wnba-finals-odds-expert-picks-schedule-lynx-liberty/
+
 **With their season on the line, the Padres will turn to Yu Darvish**\
 `The Padres will need the Game 2 version of the 38-year-old Darvish on Friday, with their season on the line.`\
 https://nytimes.com/athletic/5832804/2024/10/10/san-diego-padres-yu-darvish-nlds-game-5/
