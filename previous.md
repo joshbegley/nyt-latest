@@ -1,3 +1,11 @@
+**What’s Going On in This Picture? | Oct. 21, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/10/10/learning/whats-going-on-in-this-picture-oct-21-2024.html
+
+**Hurricane Milton Spawned Dozens of Tornadoes, One of Them Deadly**\
+`The violent winds can start in the outer edges of hurricanes. Milton spawned more than usual.`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/milton-torandoes-climate-change
+
 **Will Climate Change Transform the Florida Dream?**\
 `Millions of Americans have moved to the Sunshine State over the last several decades, only to see Florida’s future collide with climate change.`\
 https://nytimes.com/2024/10/10/climate/will-climate-change-transform-the-florida-dream.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/us/politics/russia-casualties-ukraine-war.html
 **‘Separated’ Review: Interrogating a Policy**\
 `The latest documentary from Errol Morris looks at the Trump administration’s practice of taking children from their parents at the southern border.`\
 https://nytimes.com/2024/10/10/movies/separated-review.html
-
-**Kaprizov joins 50-50 club, Boldy 40-40: 7 bold predictions for the Wild in 2024-25**\
-`Who will get the most starts in net? Will Marco Rossi take another step? Where will the Wild finish in the division? Bold prediction time.`\
-https://nytimes.com/athletic/5829231/2024/10/10/wild-bold-predictions-kaprizov-boldy/
-
-**A Hurricane’s Lasting Death Toll Is Always Much Larger Than It Seems**\
-`The full impact may not be known for years.`\
-https://nytimes.com/live/2024/10/08/opinion/thepoint/hurricane-lasting-death-toll
 

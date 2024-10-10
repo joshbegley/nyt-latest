@@ -1,8 +1,16 @@
+**Sean Combs’s Sex Trafficking Trial Is Set for May 5**\
+`The music mogul, wearing tan jail clothes at a court hearing, waved and smiled at six of his children and his mother in the gallery.`\
+https://nytimes.com/2024/10/10/arts/music/sean-combs-diddy-trial-date.html
+
+**Baldock died while swimming at home in pool, family say**\
+`Former Sheffield United defender George Baldock drowned while swimming in the pool at his home in Athens, his family said in a statement.`\
+https://nytimes.com/athletic/5834595/2024/10/10/george-baldock-death-family-statement/
+
 **What’s Going On in This Picture? | Oct. 21, 2024**\
 `Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
 https://nytimes.com/2024/10/10/learning/whats-going-on-in-this-picture-oct-21-2024.html
 
-**Hurricane Milton Spawned Dozens of Tornadoes, One of Them Deadly**\
+**Hurricane Milton spawned dozens of tornadoes, one of them deadly.**\
 `The violent winds can start in the outer edges of hurricanes. Milton spawned more than usual.`\
 https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/milton-torandoes-climate-change
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/arts/television/the-confidante-max-french.html
 **Who Are the U.N. Peacekeepers at Lebanon’s Border With Israel?**\
 `Established to maintain peace in southern Lebanon, the UNIFIL forces have been increasingly caught in the middle of the Israeli-Hezbollah war.`\
 https://nytimes.com/2024/10/10/world/middleeast/unifil-un-peacekeepers-lebanon.html
-
-**September Was Deadly Month for Russian Troops in Ukraine, U.S. Says**\
-`More than 600,000 Russian troops have been killed or wounded since the war began in 2022.`\
-https://nytimes.com/2024/10/10/us/politics/russia-casualties-ukraine-war.html
-
-**‘Separated’ Review: Interrogating a Policy**\
-`The latest documentary from Errol Morris looks at the Trump administration’s practice of taking children from their parents at the southern border.`\
-https://nytimes.com/2024/10/10/movies/separated-review.html
 

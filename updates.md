@@ -1,3 +1,11 @@
+**What’s Going On in This Picture? | Oct. 21, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/10/10/learning/whats-going-on-in-this-picture-oct-21-2024.html
+
+**Hurricane Milton Spawned Dozens of Tornadoes, One of Them Deadly**\
+`The violent winds can start in the outer edges of hurricanes. Milton spawned more than usual.`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/milton-torandoes-climate-change
+
 **Will Climate Change Transform the Florida Dream?**\
 `Millions of Americans have moved to the Sunshine State over the last several decades, only to see Florida’s future collide with climate change.`\
 https://nytimes.com/2024/10/10/climate/will-climate-change-transform-the-florida-dream.html
