@@ -1,3 +1,27 @@
+**Rubble, and Defiance**\
+`Once lively and densely packed, the area on the edges of Beirut that was hit by an Israeli strike is now vacant.`\
+https://nytimes.com/2024/10/10/world/europe/lebanon-hezbollah-israel.html
+
+**Can Offshore Wind Energy Lead the Charge to a Net-Zero World?**\
+`A powerful new wind farm off the coast of France is setting the pace. But what did it take to make it happen?`\
+https://nytimes.com/paidpost/iberdrola/can-offshore-wind-energy-lead-the-charge-to-a-net-zero-world.html
+
+**How much should the Maple Leafs lean on Anthony Stolarz?**\
+`With starting goalie Joseph Woll already injured, the Leafs have to be careful with how they handle their relatively untested backup.`\
+https://nytimes.com/athletic/5832797/2024/10/10/maple-leafs-goaltending-stolarz-woll-hildeby/
+
+**Hollinger: Get ready for the return of the tank across the NBA**\
+`After a year-long layoff, expect the “T” word to be back with a vengeance in the next few months.`\
+https://nytimes.com/athletic/5820364/2024/10/10/nba-season-tanking-cooper-flagg-duke/
+
+**2025 NBA mock draft: Cooper Flagg leads strong group. But is it a 'superclass'?**\
+`Freshmen at Duke and Rutgers lead Sam Vecenie's latest projections entering the 2024-2025 season. `\
+https://nytimes.com/athletic/5827570/2024/10/10/2025-nba-mock-draft-cooper-flagg-duke-rutgers-uconn/
+
+**Jeremiah Smith's rise started with a cut: Inside the making of a freshman phenom**\
+`Inside the making of Ohio State freshman Jeremiah Smith, who is already one of the best players in college football. `\
+https://nytimes.com/athletic/5832452/2024/10/10/jeremiah-smith-ohio-state-football-background/
+
 **Watch: ‘How Tennessee Keeps Nearly Half a Million People From Voting’**\
 `Should former felons have their right to vote restored?`\
 https://nytimes.com/2024/10/10/learning/watch-how-tennessee-keeps-nearly-half-a-million-people-from-voting.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5831873/2024/10/10/mlb-playoffs-odds-projections-sc
 **Michigan mailbag: How does Sherrone Moore need to change? Can O-line be fixed?**\
 `Answering your Michigan football questions about what Moore needs to fix, what's gone wrong up front, Wink Martindale and more.`\
 https://nytimes.com/athletic/5831596/2024/10/10/sherrone-moore-michigan-coach-first-year/
-
-**Snyder: It's the perfect week to play the what-if game, but most important is what's ahead**\
-`Penn State and James Franklin are in it for the long haul, now. But are the Nittany Lions ready to win on the road as a top-five team?`\
-https://nytimes.com/athletic/5832730/2024/10/10/penn-state-football-james-franklin-usc/
-
-**The NHL Contention Cycle: Where does each team stand now and in the future?**\
-`A deep dive into each team’s current place in the league, future trajectory and projected upside over the next five years.`\
-https://nytimes.com/athletic/5815613/2024/10/10/nhl-contention-cycle-player-tiers/
-
-**Supreme Court Reform Is in the Air**\
-`Say no to court packing — and yes to term limits.`\
-https://nytimes.com/2024/10/10/opinion/harris-supreme-court.html
-
-**Why Democratic Senate Control Seems to Be Slipping Away**\
-`A Times/Siena poll shows Jon Tester behind by seven points in Montana, while Colin Allred trails Ted Cruz by four in Texas.`\
-https://nytimes.com/2024/10/10/upshot/senate-elections-montana-tester.html
-
-**A New California Hotel, Perched Above the Beach**\
-`Plus: a collection of glass jewelry, an exhibition of Olga de Amaral’s sculptures and more recommendations from T Magazine.`\
-https://nytimes.com/2024/10/10/t-magazine/laguna-beach-hotel.html
-
-**Can Iowa State, BYU get to midseason unbeaten? Big 12 Chaos Meter**\
-`Is Colorado a real contender in the league race? Will Iowa State face resistance on the road at West Virginia? `\
-https://nytimes.com/athletic/5832921/2024/10/10/big-12-chaos-meter-iowa-state-byu/
 
