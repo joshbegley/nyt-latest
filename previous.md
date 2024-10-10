@@ -1,3 +1,19 @@
+**Rosenthal: Mookie Betts breaks out of his postseason slump just in time for the Dodgers**\
+`Betts, who is 4 for 9 with two homers in his past two games, came into Game 3 hitless in his previous 22 playoff at-bats.`\
+https://nytimes.com/athletic/5833486/2024/10/10/mookie-betts-dodgers-playoff-hitting/
+
+**The Athletic FC: Are international matches under threat? Plus: US Soccer lay off staff**\
+`Today in TAFC: Why international games face an uncertain future, U.S. Soccer's staff lay off and a possible shortcut to Europe for Wrexham?`\
+https://nytimes.com/athletic/5833378/2024/10/10/international-matches-threat-u-s-soccer-staff/
+
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/10/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**The Giants' best home runs of the 2024 season**\
+`These remarkable home runs are a reminder that even in the most annoying seasons, there's always something fun about baseball.`\
+https://nytimes.com/athletic/5828945/2024/10/10/sf-giants-home-runs-2024-ranked/
+
 **Arizona Fall League notables, from Ethan Salas to Jac Caglianone: Players to watch from each MLB team**\
 `Every player in the AFL is there for a reason, but some will draw more attention from scouts. Here are more than 30 names to watch.`\
 https://nytimes.com/athletic/5830395/2024/10/10/arizona-fall-league-preview-ethan-salas-jac-caglianone/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5831572/2024/10/10/mets-phillies-nlcs-the-pulse/
 **With inflation ‘still somewhat elevated,’ Fed officials were divided on how much to cut rates.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/with-inflation-still-somewhat-elevated-fed-officials-were-divided-on-how-much-to-cut-rates
-
-**Han Kang Is Awarded Nobel Prize in Literature**\
-`The South Korean author, best known for “The Vegetarian,” is the first writer from her country to receive the prestigious award.`\
-https://nytimes.com/2024/10/10/arts/nobel-prize-literature.html
-
-**Twins' departing free agents: Should they try to re-sign Kepler, Santana, Thielbar?**\
-`With a payroll crunch and six departing free agents, including several prominent names, the Twins will have some tough decisions to make.`\
-https://nytimes.com/athletic/5822071/2024/10/10/twins-free-agents-max-kepler-carlos-santana-caleb-thielbar/
-
-**Ex-Wild coach Dean Evason returns to Minnesota, ready to move on and embrace his new challenge**\
-`Evason and the Blue Jackets come to St. Paul for the season opener Thursday. "I can't wait to take it all in," the former Wild coach says.`\
-https://nytimes.com/athletic/5831693/2024/10/10/dean-evason-wild-return/
-
-**Broncos LB Justin Strnad's rise tempered by concerns over Hurricane Milton**\
-`Strnad hadn't played defensive snaps for three years, but he's impressed while filling in for injured linebacker Alex Singleton.`\
-https://nytimes.com/athletic/5831859/2024/10/10/justin-strnad-broncos-hurricane-milton/
 
