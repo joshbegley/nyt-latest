@@ -1,3 +1,7 @@
+**Vance and Walz Make Dueling Appearances, as Voting Begins in Arizona**\
+`The two vice-presidential candidates crisscrossed the state on the first day of early voting, saying little of each other after their debate last week.`\
+https://nytimes.com/2024/10/09/us/politics/vance-walz-arizona-voting.html
+
 **Milton’s Storm Surge Threatens Destruction in the Dark**\
 `A combination of unrelenting rains and strong storm surge prompted officials to issue flash flood warnings in western and Central Florida.`\
 https://nytimes.com/2024/10/09/us/hurricane-milton-flood-storm-surge.html

@@ -1,3 +1,7 @@
+**Vance and Walz Make Dueling Appearances, as Voting Begins in Arizona**\
+`The two vice-presidential candidates crisscrossed the state on the first day of early voting, saying little of each other after their debate last week.`\
+https://nytimes.com/2024/10/09/us/politics/vance-walz-arizona-voting.html
+
 **Milton’s Storm Surge Threatens Destruction in the Dark**\
 `A combination of unrelenting rains and strong storm surge prompted officials to issue flash flood warnings in western and Central Florida.`\
 https://nytimes.com/2024/10/09/us/hurricane-milton-flood-storm-surge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/theater/the-counter-review-edward-flood.html
 **Trump Keeps the Tax Cut Promises Coming, Now for Americans Abroad**\
 `Former President Donald J. Trump said in a statement that he would seek to end the “double taxation” of Americans overseas.`\
 https://nytimes.com/2024/10/09/us/politics/trump-tax-cut-promise-overseas.html
-
-**Stephen Vogt's decisions didn't pan out for Guardians. Now they face elimination**\
-`The Tigers flipped the script on the Guardians, forcing Vogt to make decisions that ultimately didn't pan out. `\
-https://nytimes.com/athletic/5832414/2024/10/09/cleveland-guardians-alds-game-3-decisions/
 
