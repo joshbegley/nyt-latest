@@ -1,3 +1,11 @@
+**Rafael Nadal will retire from tennis after Davis Cup Finals in November**\
+`A 22-time Grand Slam champion, Nadal will bow out as one of the greatest male players of all time`\
+https://nytimes.com/athletic/5833311/2024/10/10/rafael-nadal-retires-tennis/
+
+**Spain captain Morata says he experienced depression months before Euro 2024 win**\
+`AC Milan and Spain striker Alvaro Morata has spoken about experiencing depression months before his country&#8217;s 2024 European Championship win and his concerns it would force him to retire from football.`\
+https://nytimes.com/athletic/5833269/2024/10/10/alvaro-morata-depression-retirement-milan/
+
 **Crane Collapses in Downtown St. Petersburg as Milton Batters Florida**\
 `City officials said the crane had collapsed onto a neighboring building, which houses the Tampa Bay Times newspaper offices.`\
 https://nytimes.com/2024/10/10/weather/st-petersburg-building-crane-hurricane-milton.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5820364/2024/10/10/nba-season-tanking-cooper-flagg-
 **2025 NBA mock draft: Cooper Flagg leads strong group. But is it a 'superclass'?**\
 `Freshmen at Duke and Rutgers lead Sam Vecenie's latest projections entering the 2024-2025 season. `\
 https://nytimes.com/athletic/5827570/2024/10/10/2025-nba-mock-draft-cooper-flagg-duke-rutgers-uconn/
-
-**Jeremiah Smith's rise started with a cut: Inside the making of a freshman phenom**\
-`Inside the making of Ohio State freshman Jeremiah Smith, who is already one of the best players in college football. `\
-https://nytimes.com/athletic/5832452/2024/10/10/jeremiah-smith-ohio-state-football-background/
-
-**Watch: ‘How Tennessee Keeps Nearly Half a Million People From Voting’**\
-`Should former felons have their right to vote restored?`\
-https://nytimes.com/2024/10/10/learning/watch-how-tennessee-keeps-nearly-half-a-million-people-from-voting.html
 
