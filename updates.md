@@ -1,3 +1,19 @@
+**What’s on the Menu? These Restaurants Aren’t Telling.**\
+`Some fine-dining establishments are sharing as few details as possible online in hopes that diners will let go and trust their chefs.`\
+https://nytimes.com/2024/10/10/dining/mysterious-restaurants.html
+
+**This Designer Turns ‘Trash’ Into Eccentric Bridal Looks**\
+`Timothy Westbrook, a former “Project Runway” contestant, who incorporates repurposed materials into his collection, wants to make wedding fashion more enjoyable and unique.`\
+https://nytimes.com/2024/10/10/fashion/weddings/designer-timothy-westbrook-bridal.html
+
+**Kamala Harris Puts Sarah Huckabee Sanders in Her Unhumble Place**\
+`Parents have no monopoly on modesty.`\
+https://nytimes.com/2024/10/10/opinion/sarah-huckabee-sanders-harris.html
+
+**Review: Trust ‘Disclaimer’ When It Tells You Not to Trust It**\
+`The seven-part series from Alfonso Cuarón, about a familiar theme of the treachery of narratives, is easier to admire than to enjoy.`\
+https://nytimes.com/2024/10/10/arts/television/disclaimer-review-apple.html
+
 **Review: A Fall Gala Where Women Led the Way**\
 `New York City Ballet dressed up its fall fashion gala with a program of female choreographers. This was history, even if the results were mixed.`\
 https://nytimes.com/2024/10/10/arts/dance/review-new-york-city-ballet-fashion-gala.html
