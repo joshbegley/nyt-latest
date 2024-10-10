@@ -1,3 +1,7 @@
+**Arizona Fall League notables, from Ethan Salas to Jac Caglianone: Players to watch from each MLB team**\
+`Every player in the AFL is there for a reason, but some will draw more attention from scouts. Here are more than 30 names to watch.`\
+https://nytimes.com/athletic/5830395/2024/10/10/arizona-fall-league-preview-ethan-salas-jac-caglianone/
+
 **Hurricane Milton and the Economy**\
 `The superstorm is expected to inflict costly and lasting damage in Florida, as the Federal Reserve is already keeping an eye on upcoming inflation data.`\
 https://nytimes.com/2024/10/10/business/dealbook/milton-cpi-inflation-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5831693/2024/10/10/dean-evason-wild-return/
 **Broncos LB Justin Strnad's rise tempered by concerns over Hurricane Milton**\
 `Strnad hadn't played defensive snaps for three years, but he's impressed while filling in for injured linebacker Alex Singleton.`\
 https://nytimes.com/athletic/5831859/2024/10/10/justin-strnad-broncos-hurricane-milton/
-
-**Let’s Discuss: ‘Don’t Call It an “Ethnic” Grocery Store’**\
-`How can food feel like home? Read the article and post your comments and questions for our journalist Priya Krishna by Oct. 17.`\
-https://nytimes.com/2024/10/10/learning/lesson-plans/lets-discuss-dont-call-it-an-ethnic-grocery-store.html
 

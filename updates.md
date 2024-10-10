@@ -1,3 +1,7 @@
+**Arizona Fall League notables, from Ethan Salas to Jac Caglianone: Players to watch from each MLB team**\
+`Every player in the AFL is there for a reason, but some will draw more attention from scouts. Here are more than 30 names to watch.`\
+https://nytimes.com/athletic/5830395/2024/10/10/arizona-fall-league-preview-ethan-salas-jac-caglianone/
+
 **Hurricane Milton and the Economy**\
 `The superstorm is expected to inflict costly and lasting damage in Florida, as the Federal Reserve is already keeping an eye on upcoming inflation data.`\
 https://nytimes.com/2024/10/10/business/dealbook/milton-cpi-inflation-economy.html
