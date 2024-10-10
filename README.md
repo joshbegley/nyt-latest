@@ -1,3 +1,7 @@
+**Trump’s Remarks on Migrants Illustrate His Obsession With Genes**\
+`In discussing migrants and genes, the former president used language that reflected his decades-long belief that bloodlines determine a person’s capacity for success or violence.`\
+https://nytimes.com/2024/10/09/us/politics/trump-migrants-genes.html
+
 **Francisco Lindor blasts Mets past Phillies and into NLCS: Takeaways**\
 `It was only fitting that Lindor came through with the hit that sent the Mets to the NLCS for the first time since 2015. `\
 https://nytimes.com/athletic/5832377/2024/10/09/mets-phillies-score-lindor-game-4-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/09/style/mets-phillies-pete-alonso-pumpkin.html
 **Arts groups in Sarasota scramble to protect collections.**\
 `By Javier C. Hernández and Geraldine Fabrikant`\
 https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida/arts-groups-in-sarasota-scramble-to-protect-collections
-
-**Jayden Daniels dismisses Lamar Jackson comparisons: 'We're 2 different players'**\
-`“I don't like when people really try to compare me to Lamar and vice versa,” Daniels said following Wednesday's practice.`\
-https://nytimes.com/athletic/5832255/2024/10/09/jayden-daniels-lamar-jackson-comparison-comments/
 
