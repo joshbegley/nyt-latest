@@ -1,3 +1,19 @@
+**They left the island where Milton made landfall. Would their home survive?**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/they-left-the-island-where-milton-made-landfall-would-their-home-survive
+
+**Trump Says He Was ‘Man of the Year.’ His Source Says It Isn’t True.**\
+`Fact-checkers have found no evidence over the years that former President Donald J. Trump once received the honor in Michigan.`\
+https://nytimes.com/2024/10/10/us/politics/trump-man-of-year.html
+
+**Friday Briefing: Florida Hurricane Kills at Least 7**\
+`Plus, Han Kang receives the Nobel Prize in Literature.`\
+https://nytimes.com/2024/10/10/briefing/hurricane-beirut-senate.html
+
+**Mets NLCS roster decisions: Bringing back Jeff McNeil, setting up the rotation**\
+`McNeil’s versatility and his left-handed bat give Carlos Mendoza several ways to work him back into the mix.`\
+https://nytimes.com/athletic/5834759/2024/10/10/mets-nlcs-roster-prediction/
+
 **Jupiter’s Great Red Spot Moves Like the Solar System’s Biggest Kickball**\
 `A sequence of images captured by NASA’s Hubble Space Telescope showed how much the giant storm changed shape as it traveled within the planet’s atmosphere.`\
 https://nytimes.com/2024/10/10/science/jupiter-great-red-spot-hubble.html

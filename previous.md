@@ -1,3 +1,19 @@
+**They left the island where Milton made landfall. Would their home survive?**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/they-left-the-island-where-milton-made-landfall-would-their-home-survive
+
+**Trump Says He Was ‘Man of the Year.’ His Source Says It Isn’t True.**\
+`Fact-checkers have found no evidence over the years that former President Donald J. Trump once received the honor in Michigan.`\
+https://nytimes.com/2024/10/10/us/politics/trump-man-of-year.html
+
+**Friday Briefing: Florida Hurricane Kills at Least 7**\
+`Plus, Han Kang receives the Nobel Prize in Literature.`\
+https://nytimes.com/2024/10/10/briefing/hurricane-beirut-senate.html
+
+**Mets NLCS roster decisions: Bringing back Jeff McNeil, setting up the rotation**\
+`McNeil’s versatility and his left-handed bat give Carlos Mendoza several ways to work him back into the mix.`\
+https://nytimes.com/athletic/5834759/2024/10/10/mets-nlcs-roster-prediction/
+
 **Jupiter’s Great Red Spot Moves Like the Solar System’s Biggest Kickball**\
 `A sequence of images captured by NASA’s Hubble Space Telescope showed how much the giant storm changed shape as it traveled within the planet’s atmosphere.`\
 https://nytimes.com/2024/10/10/science/jupiter-great-red-spot-hubble.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/10/weather/hurricane-milton-damage-florida.html
 **Going to Paris? Along With Art Basel, Don’t Miss These Shows.**\
 `There is no shortage of museums and art foundations to visit for those attending Art Basel Paris.`\
 https://nytimes.com/2024/10/10/arts/design/art-basel-paris-museums-exhibitions.html
-
-**Glitch on BBC Weather App Shows Outlandish Forecasts**\
-`No, it will not actually reach 832 degrees in Brazil’s capital this weekend.`\
-https://nytimes.com/2024/10/10/world/bbc-weather-app-glitch-hurricane.html
-
-**Illustrating Modern Love**\
-`Brian Rea has illustrated more than 700 Modern Love essays. Here is a look at his process.`\
-https://nytimes.com/card/2024/10/10/style/brian-rea-modern-love-illustrator
-
-**Is a $910 Fleece Actually Worth It?**\
-`Camping’s favorite material gets a luxury overhaul.`\
-https://nytimes.com/2024/10/10/style/rier-fleece-luxury-pullovers.html
-
-**Who’s in Charge at City Hall?**\
-`A few dedicated public servants are carrying the load left by the exodus of Mayor Adams’s cronies.`\
-https://nytimes.com/live/2024/10/08/opinion/thepoint/adams-city-hall-resignations
 
