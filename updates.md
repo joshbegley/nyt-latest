@@ -1,3 +1,7 @@
+**In a Rambling Speech, Trump Offers Gripes and Yet Another Tax Cut**\
+`Even before this latest proposal, aimed at promoting car sales, an analysis found that the former president’s economic agenda could add $15 trillion to the nation’s debt over a decade.`\
+https://nytimes.com/2024/10/10/us/politics/trump-detroit-car-loans-deductible.html
+
 **Warren Wilson, Pioneering Los Angeles TV Reporter, Dies at 90**\
 `In addition to covering the 1992 riots and other historically significant events, he helped facilitate the surrenders of 22 fugitives.`\
 https://nytimes.com/2024/10/10/business/media/warren-wilson-dead.html

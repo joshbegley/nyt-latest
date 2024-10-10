@@ -1,3 +1,11 @@
+**Tropicana Field, Already Obsolete, Now Needs a New Roof**\
+`The home of the Tampa Bay Rays, generally disdained by players, was built to take the elements out of baseball. The elements struck back.`\
+https://nytimes.com/2024/10/10/weather/tropicana-field-roof-hurricane-florida.html
+
+**While Others Fled, These TikTokers Posted Through Hurricane Milton**\
+`Millions waited for streams of updates from TikTok users in Florida, who broadcast from their damaged homes and neighborhoods and shared their evacuation journeys.`\
+https://nytimes.com/2024/10/10/us/tiktok-creators-hurricane-milton.html
+
 **In a Rambling Speech, Trump Offers Gripes and Yet Another Tax Cut**\
 `Even before this latest proposal, aimed at promoting car sales, an analysis found that the former president’s economic agenda could add $15 trillion to the nation’s debt over a decade.`\
 https://nytimes.com/2024/10/10/us/politics/trump-detroit-car-loans-deductible.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/briefing/hurricane-milton-damage-senate-polls.htm
 **‘Relentless’ Israeli Attacks on Gaza Medical Workers Are War Crime, U.N. Panel Says**\
 `The report, which does not have the force of law, found that the Israeli military has engaged in deliberate assaults on hospitals and other health care providers.`\
 https://nytimes.com/2024/10/10/world/middleeast/israel-gaza-war-un-report.html
-
-**Johnston and LeBrun: What we're hearing about 4 veteran UFA defensemen looking for another shot**\
-`With the NHL season off and running, there are still a number of veteran defensemen who hope the game hasn't completely passed them by.`\
-https://nytimes.com/athletic/5834923/2024/10/10/nhl-free-agents-giordano-shattenkirk-schultz-klingberg/
-
-**Saka being assessed after sustaining injury in England's defeat vs Greece**\
-`Lee Carsley says Bukayo Saka is being assessed after the Arsenal winger sustained an injury in England’s Nations League loss against Greece.`\
-https://nytimes.com/athletic/5834898/2024/10/10/bukayo-saka-injury-england-greece/
 
