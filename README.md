@@ -1,3 +1,11 @@
+**Saka being assessed after sustaining injury in England's defeat vs Greece**\
+`Lee Carsley says Bukayo Saka is being assessed after the Arsenal winger sustained an injury in England’s Nations League loss against Greece.`\
+https://nytimes.com/athletic/5834898/2024/10/10/bukayo-saka-injury-england-greece/
+
+**Candidates Square Off on Courts, Policy and Party in Maryland Senate Debate**\
+`Larry Hogan, the Republican former governor, and Angela Alsobrooks, the Democratic Prince George’s County executive, sparred over whether to expand the Supreme Court and overhaul the legislative filibuster.`\
+https://nytimes.com/2024/10/10/us/politics/candidates-maryland-senate-debate.html
+
 **Frances Conley, Neurosurgeon Who Protested Sexism, Dies at 83**\
 `She was the rare woman in her field, and a tenured professor. But when a sexist colleague was promoted, she quit, forcing a reckoning in her profession.`\
 https://nytimes.com/2024/10/10/us/frances-conley-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/weather/milton-forecast-meteorologists.html
 **Airstrikes in Beirut Kill at Least 22 and Injure Over 100, Lebanon Says**\
 `The attack, for which Lebanese officials blamed Israel, appeared to be the deadliest in the Lebanese capital in more than a year of fighting between the Israeli military and Hezbollah.`\
 https://nytimes.com/2024/10/10/world/middleeast/israel-strike-beirut-lebanon.html
-
-**In Punta Gorda, homes are flooded and the boats are not where people left them.**\
-`By Audra D. S. Burch and Kate Selig`\
-https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/in-punta-gorda-homes-are-flooded-and-the-boats-are-not-where-people-left-them
-
-**Hurricane Milton’s Impacts: What We Know**\
-`Flooding, wind damage and power outages affected areas throughout Florida. At least seven people were killed.`\
-https://nytimes.com/2024/10/10/weather/hurricane-milton-damage-florida.html
 
