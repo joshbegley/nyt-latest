@@ -1,3 +1,15 @@
+**Alexander-Arnold: 'I don't want to be the player who only won trophies young'**\
+`Trent Alexander-Arnold says he does not want to remembered as &#8220;the player who only won trophies when he was young&#8221;.`\
+https://nytimes.com/athletic/5834724/2024/10/10/trent-alexander-arnold-ambitions-liverpool/
+
+**Braves fire three coaches, including hitting coach Kevin Seitzer**\
+`The Atlanta Braves have fired hitting coach Kevin Seitzer, assistant hitting coach Bobby Magallanes and catching coach Sal Fasano, a source confirmed to The Athletic on Thursday.`\
+https://nytimes.com/athletic/5834687/2024/10/10/braves-fire-kevin-seitzer/
+
+**Billy Shaw, a Singular Hall of Fame Lineman, Dies at 85**\
+`He was the only inductee to play his entire career in the American Football League, where he helped the Buffalo Bills win two championships in the 1960s.`\
+https://nytimes.com/2024/10/10/sports/football/billy-shaw-dead.html
+
 **Hurricane Milton: Images From Florida, Before and After the Storm**\
 `See some of the wind and flood damage from the second major storm to hit Florida in the last two weeks.`\
 https://nytimes.com/2024/10/10/us/hurricane-milton-photos-tropicana-field-siesta-key.html
