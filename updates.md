@@ -1,3 +1,7 @@
+**Rafael Nadal will retire from tennis: Tell us your favorite Rafa tennis moment**\
+`The Slams, the 'Big Three,' the headband, the forehand...`\
+https://nytimes.com/athletic/5833404/2024/10/10/rafael-nadal-retirement-best-tennis-moment/
+
 **George Baldock - the Steel City's adopted son - epitomised the Sheffield United fairytale**\
 `The boy who grew up in Buckinghamshire became a hero at Bramall Lane - his death has left a club and city in shock`\
 https://nytimes.com/athletic/5833248/2024/10/10/george-baldock-sheffield-united-obituary/
