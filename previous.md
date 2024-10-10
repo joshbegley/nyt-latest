@@ -1,3 +1,11 @@
+**Man Pleads Guilty to Hate Crime for Vandalizing Rutgers Islamic Center**\
+`Officials said the man caused thousands of dollars’ worth of damage to religious artifacts after breaking into the New Jersey university’s Center for Islamic Life in April.`\
+https://nytimes.com/2024/10/10/nyregion/rutgers-hate-crime-muslim.html
+
+**Biden Again Criticizes Trump Over Hurricane Misinformation: ‘Get a Life, Man’**\
+`The White House is juggling the response to two devastating storms in the past two weeks while trying to rebut false information from the former president.`\
+https://nytimes.com/2024/10/10/us/politics/biden-trump-hurricane-misinformation.html
+
 **NCAA describes 'jarring findings' in study of online harassment**\
 `Online harassment peaked during March Madness.`\
 https://nytimes.com/athletic/5834305/2024/10/10/ncaa-harassment-social-media-fans/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/business/media/hurricane-milton-helene-conspiracy
 **It’s Indoor Dining Season In New York City**\
 `These are the kind of restaurant spaces you won’t want to leave.`\
 https://nytimes.com/2024/10/10/dining/its-indoor-dining-season-in-new-york-city.html
-
-**Sabrina Carpenter Had Her Fellow Honorees Talking at Time100 Next**\
-`The singer stayed out of sight before performing at a party celebrating young actors, musicians, politicians, doctors and more.`\
-https://nytimes.com/2024/10/10/style/time100-next-sabrina-carpenter.html
-
-**Claudia Conway Declares Her Independence**\
-`The scion and sometimes antagonist of two figures in Republican politics has re-emerged as an independent aiming to sway her fellow Gen-Z voters.`\
-https://nytimes.com/2024/10/10/style/claudia-conway-gen-z-voters-politics.html
 

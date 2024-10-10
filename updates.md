@@ -1,3 +1,11 @@
+**Man Pleads Guilty to Hate Crime for Vandalizing Rutgers Islamic Center**\
+`Officials said the man caused thousands of dollars’ worth of damage to religious artifacts after breaking into the New Jersey university’s Center for Islamic Life in April.`\
+https://nytimes.com/2024/10/10/nyregion/rutgers-hate-crime-muslim.html
+
+**Biden Again Criticizes Trump Over Hurricane Misinformation: ‘Get a Life, Man’**\
+`The White House is juggling the response to two devastating storms in the past two weeks while trying to rebut false information from the former president.`\
+https://nytimes.com/2024/10/10/us/politics/biden-trump-hurricane-misinformation.html
+
 **NCAA describes 'jarring findings' in study of online harassment**\
 `Online harassment peaked during March Madness.`\
 https://nytimes.com/athletic/5834305/2024/10/10/ncaa-harassment-social-media-fans/
