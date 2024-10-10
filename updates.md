@@ -1,3 +1,7 @@
+**How to fix Notre Dame's offense: 4 objectives for the Irish**\
+`As the second half of the season approaches, OC Mike Denbrock needs to correct the shortcomings on Notre Dame's offense soon.`\
+https://nytimes.com/athletic/5833732/2024/10/10/notre-dame-offense-college-football-riley-leonard-jeremiyah-love/
+
 **Here’s What It Was Like as Milton’s Eye Came Ashore**\
 `Our reporter’s account of a harrowing night in Sarasota, Fla. — different from anything she has experienced as a native of New England.`\
 https://nytimes.com/2024/10/10/weather/hurricane-milton-eye-sarasota.html
