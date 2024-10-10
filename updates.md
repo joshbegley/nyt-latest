@@ -1,3 +1,19 @@
+**Former NFL MVP QB Cam Newton joins ESPN's 'First Take'**\
+`Newton's first appearance will be Friday at Tennessee State University as part of the show's HBCU roadshow.`\
+https://nytimes.com/athletic/5833899/2024/10/10/cam-newton-espn-first-take/
+
+**Betting for (by) dummies: Fading Trent Dilfer's UAB, how far can Kent State fall and more**\
+`Army is laying a lot of points against UAB, but both Jon Greenberg and Zac Jackson like the play anyway. Plus more bets for the weekend.`\
+https://nytimes.com/athletic/5833620/2024/10/10/betting-for-by-dummies-uab-ball-state-kent/
+
+**Football Manager 2025 release date delayed until next March**\
+`The release of Football Manager 2025 has been delayed until March 2025.`\
+https://nytimes.com/athletic/5833890/2024/10/10/football-manager-2025-release-date-delay/
+
+**Jets shift Downing to offensive play-caller, strip role from Hackett**\
+`Jets interim coach Jeff Ulbrich said Aaron Rodgers was supportive of the decision to turn to Downing.`\
+https://nytimes.com/athletic/5833874/2024/10/10/todd-downing-jets-nathaniel-hackett/
+
 **Residents of a Mobile Home Park Join Forces to Buy Their Community**\
 `The residents are the first in the state of Maine to successfully utilize a new law making it easier for them to compete with investors and gain ownership of the land their homes sit on.`\
 https://nytimes.com/2024/10/10/realestate/brunswick-mobile-home-sale-maine.html
