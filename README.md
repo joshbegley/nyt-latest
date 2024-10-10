@@ -1,3 +1,11 @@
+**Is a $910 Fleece Actually Worth It?**\
+`Camping’s favorite material gets a luxury overhaul.`\
+https://nytimes.com/2024/10/10/style/rier-fleece-luxury-pullovers.html
+
+**Who’s in Charge at City Hall?**\
+`A few dedicated public servants are carrying the load left by the exodus of Mayor Adams’s cronies.`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/adams-city-hall-resignations
+
 **The Briefing: England 1-2 Greece - Carsley's wake-up call, defensive jitters and a fitting tribute to Baldock**\
 `Greece secured their first ever win over England to bring Lee Carsley and his team back down to earth with a bump`\
 https://nytimes.com/athletic/5830927/2024/10/10/england-bellingham-stones-greece-baldock/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5834724/2024/10/10/trent-alexander-arnold-ambitions
 **Braves fire three coaches, including hitting coach Kevin Seitzer**\
 `The Atlanta Braves have fired hitting coach Kevin Seitzer, assistant hitting coach Bobby Magallanes and catching coach Sal Fasano, a source confirmed to The Athletic on Thursday.`\
 https://nytimes.com/athletic/5834687/2024/10/10/braves-fire-kevin-seitzer/
-
-**Hurricane Milton: Images From Florida, Before and After the Storm**\
-`See some of the wind and flood damage from the second major storm to hit Florida in the last two weeks.`\
-https://nytimes.com/2024/10/10/us/hurricane-milton-photos-tropicana-field-siesta-key.html
-
-**Billy Shaw, a Singular Hall of Fame Lineman, Dies at 85**\
-`He was the only inductee to play his entire career in the American Football League, where he helped the Buffalo Bills win two championships in the 1960s.`\
-https://nytimes.com/2024/10/10/sports/football/billy-shaw-dead.html
 
