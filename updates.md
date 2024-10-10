@@ -1,3 +1,11 @@
+**4 Novels Deliver a Heady Mix of Fact and Fiction**\
+`In the hands of skilled novelists, the stories of an  heiress, a prime minister and a literary mystery woman are brought to life.`\
+https://nytimes.com/2024/10/10/books/review/4-novels-deliver-a-heady-mix-of-fact-and-fiction.html
+
+**Sinner will be year-end world No. 1 after Alcaraz's Shanghai defeat**\
+`Sinner is the third different male player to end the year as number one in the ATP rankings in three seasons`\
+https://nytimes.com/athletic/5833662/2024/10/10/sinner-world-number-one-atp-alcaraz-2024/
+
 **Mazraoui has surgery after heart palpitations, hopes to be available in next few weeks**\
 `Manchester United defender Noussair Mazraoui has had minor surgery after experiencing heart palpitations and hopes to be available to play in the next few weeks.`\
 https://nytimes.com/athletic/5833772/2024/10/10/noussair-mazraoui-man-utd-heart-palpitations/
