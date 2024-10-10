@@ -1,3 +1,19 @@
+**MLB Playoffs odds, projections, schedule for ALDS Game 4s: CLE, KC face elimination**\
+`ALDS Game 4s are Thursday with the Yankees and Tigers looking at a chance to clinch their spot in the next round.`\
+https://nytimes.com/athletic/5831873/2024/10/10/mlb-playoffs-odds-projections-schedule-for-thursday-alds-game-4/
+
+**Michigan mailbag: How does Sherrone Moore need to change? Can O-line be fixed?**\
+`Answering your Michigan football questions about what Moore needs to fix, what's gone wrong up front, Wink Martindale and more.`\
+https://nytimes.com/athletic/5831596/2024/10/10/sherrone-moore-michigan-coach-first-year/
+
+**Snyder: It's the perfect week to play the what-if game, but most important is what's ahead**\
+`Penn State and James Franklin are in it for the long haul, now. But are the Nittany Lions ready to win on the road as a top-five team?`\
+https://nytimes.com/athletic/5832730/2024/10/10/penn-state-football-james-franklin-usc/
+
+**The NHL Contention Cycle: Where does each team stand now and in the future?**\
+`A deep dive into each team’s current place in the league, future trajectory and projected upside over the next five years.`\
+https://nytimes.com/athletic/5815613/2024/10/10/nhl-contention-cycle-player-tiers/
+
 **Supreme Court Reform Is in the Air**\
 `Say no to court packing — and yes to term limits.`\
 https://nytimes.com/2024/10/10/opinion/harris-supreme-court.html
@@ -10,31 +26,15 @@ https://nytimes.com/2024/10/10/upshot/senate-elections-montana-tester.html
 `Plus: a collection of glass jewelry, an exhibition of Olga de Amaral’s sculptures and more recommendations from T Magazine.`\
 https://nytimes.com/2024/10/10/t-magazine/laguna-beach-hotel.html
 
+**Can Iowa State, BYU get to midseason unbeaten? Big 12 Chaos Meter**\
+`Is Colorado a real contender in the league race? Will Iowa State face resistance on the road at West Virginia? `\
+https://nytimes.com/athletic/5832921/2024/10/10/big-12-chaos-meter-iowa-state-byu/
+
 **The Cipher at the Center of a Brilliant Spy Series**\
 `Gary Oldman’s performance as Jackson Lamb is both essential and unknowable.`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/slow-horses-gary-oldman
 
-**Republicans Appear Poised to Take Control of Senate, New Poll Shows**\
-`The latest polling from The New York Times and Siena College shows Republicans leading in key Senate races in Montana, Texas and Florida.`\
-https://nytimes.com/2024/10/10/us/politics/senate-polls-montana-florida-texas.html
-
-**In London, He and his Roommate Became Co-Owners. What Did They Find for Under £1 Million?**\
-`Unable to afford an apartment of his own in England’s pricey capital, a longtime renter and his friend decided to pool their resources for a two-bedroom flat.`\
-https://nytimes.com/interactive/2024/10/10/realestate/london-apartment-home-sale.html
-
-**In a First, a Gas Utility Is Sued Over Its Role in Global Warming**\
-`The Oregon lawsuit alleges that the utility knew of the dangers of burning fossil fuels and misled its customers.`\
-https://nytimes.com/2024/10/10/climate/natural-gas-utility-climate-change-lawsuit.html
-
-**Obama Heads to Pennsylvania to Give Harris a Jolt of Democratic Energy**\
-`The former president, one of the party’s most popular figures, will rally in Pittsburgh for Kamala Harris, as her campaign deploys its most influential surrogates in a push to get out the vote.`\
-https://nytimes.com/2024/10/10/us/politics/obama-pittsburgh-rally-harris.html
-
-**Introducing the Dachshund Bag**\
-`A growing number of brands have embraced a new handbag shape that evokes the skinny, elongated bodies of wiener dogs.`\
-https://nytimes.com/2024/10/10/style/handbag-shape-trend-dachshund-bag.html
-
-**36 Hours in the Berkshires**\
-`Take a road trip across this mountainous region of western Massachusetts, popping into breweries, art galleries and pizzerias, as its landscape erupts in autumnal glory.`\
-https://nytimes.com/interactive/2024/10/10/travel/things-to-do-berkshires.html
+**Bears in London: Caleb Williams asserts himself; Matt Eberflus all-business**\
+`DJ Moore jokingly calls his quarterback "bossy," plus Williams on loud environments and an injury update.`\
+https://nytimes.com/athletic/5831685/2024/10/10/bears-caleb-williams-matt-eberflus-london/
 
