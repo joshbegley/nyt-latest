@@ -1,3 +1,15 @@
+**'Always another level': Donovan Mitchell believes Cavs are ready to take next step**\
+`With a new coach and his teammates signed to new deals, Mitchell, who signed an extension himself, is ready to help the Cavs become elite.`\
+https://nytimes.com/athletic/5831907/2024/10/10/donovan-mitchell-cleveland-cavaliers-2024/
+
+**Southgate to take a year out from coaching, national team role 'unlikely'**\
+`Gareth Southgate says he intends to have one year away from coaching after leaving his role as England manager in July.`\
+https://nytimes.com/athletic/5833360/2024/10/10/gareth-southgate-manager-next/
+
+**Haaland 'does not regret much' after throwing ball at Gabriel’s head**\
+`Manchester City striker Erling Haaland has said he &#8220;does not regret much in life&#8221; after throwing the ball at Arsenal defender Gabriel&#8217;s head during their Premier League encounter last month.`\
+https://nytimes.com/athletic/5833285/2024/10/10/erling-haaland-gabriel-manchester-city-arsenal/
+
 **In an offseason filled with choices, the Cubs will have prospects to trade**\
 `Balancing the present and the future is a constant challenge for any organization. The Cubs are at a moment when that tension is acute.`\
 https://nytimes.com/athletic/5832248/2024/10/10/cubs-offseason-prospect-trades-moves/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5832760/2024/10/10/carolina-hurricanes-salary-cap-r
 **Which NFL coaches are on the hot seat? As the Jets showed, it's about the owners**\
 `After Woody Johnson's firing of Robert Saleh, we take a closer look at the owners who could be most inclined to make a change next.`\
 https://nytimes.com/athletic/5832473/2024/10/10/nfl-coach-firings-owners-woody-johnson-jets/
-
-**Do players support a shorter preseason and longer regular season in the NHL?**\
-`As the NHL considers a shorter preseason and longer regular season, we asked more than a dozen players and coaches for their opinions.`\
-https://nytimes.com/athletic/5818115/2024/10/10/nhl-players-regular-season-preseason/
-
-**25 Days to Go**\
-`In the final sprint to Election Day, which voters matter most to the Harris and Trump campaigns? Watch or listen to our political round table.`\
-https://nytimes.com/2024/10/10/podcasts/the-daily/election-roundtable.html
-
-**Milton’s Path of Destruction, and a First Biden-Netanyahu Call in Months**\
-`Plus, the Kenyan police battle gangs in Haiti.`\
-https://nytimes.com/2024/10/10/podcasts/milton-florida-biden-netanyahu.html
 
