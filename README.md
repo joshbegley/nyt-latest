@@ -1,3 +1,11 @@
+**Judge Approves Limited Further Release of Evidence in Trump Election Case**\
+`An appendix to a high-profile prosecutorial brief, released last week, could become public next week. But much of it would be redacted.`\
+https://nytimes.com/2024/10/10/us/politics/judge-evidence-trump-election-case.html
+
+**Conservative States Seek to End Protections for Immigrant ‘Dreamers’**\
+`An appeals court is considering a challenge that could end DACA, which has allowed hundreds of thousands of young undocumented immigrants to live and work in the United States.`\
+https://nytimes.com/2024/10/10/us/daca-dreamers-fifth-circuit-appeals-court-hearing.html
+
 **SEC, Big Ten rail against private equity proposals**\
 `SEC and Big Ten officials and athletic directors met Thursday to discuss the House settlement, NCAA governance issues, the CFP and more.`\
 https://nytimes.com/athletic/5835115/2024/10/10/sec-big-ten-college-football-investments/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5835071/2024/10/10/lee-carsley-england-under-21-ret
 **Until Saturday: Who can pull off the upsets this week? Plus our weekly viewer guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: Mapping out Week 7 of the college football season.`\
 https://nytimes.com/athletic/5834659/2024/10/10/college-football-week-7-until-saturday/
-
-**Braves hitting coach Kevin Seitzer opens about getting fired: 'I don’t blame Alex'**\
-`Seitzer's season was difficult on the field and off but said: "I couldn’t be more thankful."`\
-https://nytimes.com/athletic/5834988/2024/10/10/braves-kevin-seitzer-fired-reaction/
-
-**Hurricanes are a growing threat. But Florida is more prepared.**\
-`The state’s strong building code, which has made newer construction remarkably resistant to even fierce storms, most likely had a mitigating effect as Hurricane Milton swept through.`\
-https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/hurricanes-are-a-growing-threat-but-florida-is-more-prepared
 
