@@ -1,3 +1,7 @@
+**Jets, Bengals or Dolphins? Picking one sub-.500 team to make the playoffs in AFC**\
+`The New York Jets are in turmoil after firing coach Robert Saleh. But Aaron Rodgers & Co. are still a decent bet to make the playoffs. `\
+https://nytimes.com/athletic/5831567/2024/10/10/nfl-projection-jets-bengals-dolphins-playoffs/
+
 **In an offseason filled with choices, the Cubs will have prospects to trade**\
 `Balancing the present and the future is a constant challenge for any organization. The Cubs are at a moment when that tension is acute.`\
 https://nytimes.com/athletic/5832248/2024/10/10/cubs-offseason-prospect-trades-moves/
