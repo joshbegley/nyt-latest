@@ -1,3 +1,19 @@
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/10/10/books/review/new-books-recommendations.html
+
+**Daytona Beach and surrounding areas bore the brunt of Milton’s back end. Rescuers are rushing to help.**\
+`By Abigail Geiger`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/daytona-beach-and-surrounding-areas-bore-the-brunt-of-miltons-back-end-rescuers-are-rushing-to-help
+
+**TD Bank Pleads Guilty and Pays $3 Billion to Settle Money-Laundering Case**\
+`The penalty was the largest ever imposed by U.S. officials on a bank for violating anti-money laundering laws, and regulators imposed a cap on TD’s ability to accept new deposits.`\
+https://nytimes.com/2024/10/10/business/td-bank-fine.html
+
+**Woman Calls 911 When 100 Aggressive Raccoons Show Up in Her Yard**\
+`The Washington State resident fed some friendly critters for years. Then, their mean friends turned up.`\
+https://nytimes.com/2024/10/10/us/raccoons-washington-home.html
+
 **Golden State Valkyries tab Natalie Nakase as first head coach**\
 `Nakase just completed her third season as an assistant coach of the Las Vegas Aces.`\
 https://nytimes.com/athletic/5832699/2024/10/10/golden-state-valkyries-natalie-nakase-head-coach/
