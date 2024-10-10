@@ -1,3 +1,7 @@
+**Jeff Ulbrich's early days as interim coach, and the word every Jets player can't stop saying**\
+`Scenes from the first days of a new Jets era.`\
+https://nytimes.com/athletic/5835125/2024/10/10/jeff-ulbrichs-new-york-jets-interim-coach-first-week/
+
 **Phil Kessel, 3-time Stanley Cup champion, joins World Poker Tour**\
 `An avid poker player, Kessel was known to frequent competitive games at casinos in cities where he played in the NHL.`\
 https://nytimes.com/athletic/5835211/2024/10/10/phil-kessel-world-poker-tour/
