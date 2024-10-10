@@ -1,3 +1,11 @@
+**How Harris Can Finish Strong**\
+`Some tips from novelists and screenwriters on how to keep audiences’ attention.`\
+https://nytimes.com/2024/10/10/opinion/kamala-harris-election-attention.html
+
+**‘Lonely Planet’ Review: Leaving Home to Find Yourself**\
+`Laura Dern and Liam Hemsworth star in a muddled romance without much to say.`\
+https://nytimes.com/2024/10/10/movies/lonely-planet-review.html
+
 **Ethel Kennedy: A Life in Pictures**\
 `Her life took a tragic turn when her husband, Senator Robert F. Kennedy, was assassinated, but she continued to engage in social advocacy and was recognized for her devotion to her family and nation.`\
 https://nytimes.com/2024/10/10/us/ethel-kennedy-life-photos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/weather/tropicana-field-roof-hurricane-florida.ht
 **While Others Fled, These TikTokers Posted Through Hurricane Milton**\
 `Millions waited for streams of updates from TikTok users in Florida, who broadcast from their damaged homes and neighborhoods and shared their evacuation journeys.`\
 https://nytimes.com/2024/10/10/us/tiktok-creators-hurricane-milton.html
-
-**In a Rambling Speech, Trump Offers Gripes and Yet Another Tax Cut**\
-`Even before this latest proposal, aimed at promoting car sales, an analysis found that the former president’s economic agenda could add $15 trillion to the nation’s debt over a decade.`\
-https://nytimes.com/2024/10/10/us/politics/trump-detroit-car-loans-deductible.html
-
-**Warren Wilson, Pioneering Los Angeles TV Reporter, Dies at 90**\
-`In addition to covering the 1992 riots and other historically significant events, he helped facilitate the surrenders of 22 fugitives.`\
-https://nytimes.com/2024/10/10/business/media/warren-wilson-dead.html
 
