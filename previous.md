@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5831572/2024/10/10/mets-phillies-nlcs-the-pulse/
 https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/with-inflation-still-somewhat-elevated-fed-officials-were-divided-on-how-much-to-cut-rates
 
 **Han Kang Is Awarded Nobel Prize in Literature**\
-`The South Korean author, best known for “The Vegetarian,” was announced as the latest recipient of literature’s pre-eminent award.`\
+`The South Korean author, best known for “The Vegetarian,” is the first writer from her country to receive the prestigious award.`\
 https://nytimes.com/2024/10/10/arts/nobel-prize-literature.html
 
 **Twins' departing free agents: Should they try to re-sign Kepler, Santana, Thielbar?**\

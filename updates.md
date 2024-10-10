@@ -1,3 +1,7 @@
+**Han Kang Is Awarded Nobel Prize in Literature**\
+`The South Korean author, best known for “The Vegetarian,” is the first writer from her country to receive the prestigious award.`\
+https://nytimes.com/2024/10/10/arts/nobel-prize-literature.html
+
 **The Pulse: OMG, Mets**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5831572/2024/10/10/mets-phillies-nlcs-the-pulse/
