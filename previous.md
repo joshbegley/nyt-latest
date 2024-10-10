@@ -1,3 +1,7 @@
+**A Modern Love Essay Moved Andrew Garfield**\
+`“Learning to Measure Time in Love and Loss,” by Chris Huntington, caused the actor Andrew Garfield to reflect on a universal longing for life. Garfield’s most recent film, “We Live in Time,” is also about love and loss.`\
+https://nytimes.com/video/podcasts/100000009755596/modern-love-andrew-garfield-we-live-in-time.html
+
 **Age of Tropicana Field roof played role in Hurricane Milton damage, stadium engineer says**\
 `“It’s well past its intended service life,” said David Campbell, who worked on the team that installed the roof for the dome's 1990 opening.`\
 https://nytimes.com/athletic/5834270/2024/10/10/tropicana-field-roof-damage-hurricane-milton-engineer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/us/frances-conley-dead.html
 **They left the island where Milton made landfall. Would their home survive?**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/they-left-the-island-where-milton-made-landfall-would-their-home-survive
-
-**Trump Says He Was ‘Man of the Year.’ His Source Says It Isn’t True.**\
-`Fact-checkers have found no evidence over the years that former President Donald J. Trump once received the honor in Michigan.`\
-https://nytimes.com/2024/10/10/us/politics/trump-man-of-year.html
 
