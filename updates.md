@@ -1,3 +1,15 @@
+**'Always another level': Donovan Mitchell believes Cavs are ready to take next step**\
+`With a new coach and his teammates signed to new deals, Mitchell, who signed an extension himself, is ready to help the Cavs become elite.`\
+https://nytimes.com/athletic/5831907/2024/10/10/donovan-mitchell-cleveland-cavaliers-2024/
+
+**Southgate to take a year out from coaching, national team role 'unlikely'**\
+`Gareth Southgate says he intends to have one year away from coaching after leaving his role as England manager in July.`\
+https://nytimes.com/athletic/5833360/2024/10/10/gareth-southgate-manager-next/
+
+**Haaland 'does not regret much' after throwing ball at Gabriel’s head**\
+`Manchester City striker Erling Haaland has said he &#8220;does not regret much in life&#8221; after throwing the ball at Arsenal defender Gabriel&#8217;s head during their Premier League encounter last month.`\
+https://nytimes.com/athletic/5833285/2024/10/10/erling-haaland-gabriel-manchester-city-arsenal/
+
 **Jets, Bengals or Dolphins? Picking one sub-.500 team to make the playoffs in AFC**\
 `The New York Jets are in turmoil after firing coach Robert Saleh. But Aaron Rodgers & Co. are still a decent bet to make the playoffs. `\
 https://nytimes.com/athletic/5831567/2024/10/10/nfl-projection-jets-bengals-dolphins-playoffs/
