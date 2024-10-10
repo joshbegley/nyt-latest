@@ -1,3 +1,7 @@
+**Watch: ‘How Tennessee Keeps Nearly Half a Million People From Voting’**\
+`Should former felons have their right to vote restored?`\
+https://nytimes.com/2024/10/10/learning/watch-how-tennessee-keeps-nearly-half-a-million-people-from-voting.html
+
 **49ers at Seahawks odds, expert picks, how to watch: An NFC West showdown on TNF**\
 `Seattle leads the division as both teams are looking for a bounce-back after surprise Week 5 losses. `\
 https://nytimes.com/athletic/5831736/2024/10/10/49ers-seahawks-odds-expert-picks-how-to-watch-predictions-betting/

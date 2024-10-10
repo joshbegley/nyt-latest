@@ -1,3 +1,7 @@
+**Watch: ‘How Tennessee Keeps Nearly Half a Million People From Voting’**\
+`Should former felons have their right to vote restored?`\
+https://nytimes.com/2024/10/10/learning/watch-how-tennessee-keeps-nearly-half-a-million-people-from-voting.html
+
 **49ers at Seahawks odds, expert picks, how to watch: An NFC West showdown on TNF**\
 `Seattle leads the division as both teams are looking for a bounce-back after surprise Week 5 losses. `\
 https://nytimes.com/athletic/5831736/2024/10/10/49ers-seahawks-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/t-magazine/laguna-beach-hotel.html
 **Can Iowa State, BYU get to midseason unbeaten? Big 12 Chaos Meter**\
 `Is Colorado a real contender in the league race? Will Iowa State face resistance on the road at West Virginia? `\
 https://nytimes.com/athletic/5832921/2024/10/10/big-12-chaos-meter-iowa-state-byu/
-
-**The Cipher at the Center of a Brilliant Spy Series**\
-`Gary Oldman’s performance as Jackson Lamb is both essential and unknowable.`\
-https://nytimes.com/live/2024/10/08/opinion/thepoint/slow-horses-gary-oldman
 
