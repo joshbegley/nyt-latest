@@ -1,3 +1,19 @@
+**Age of Tropicana Field roof played role in Hurricane Milton damage, stadium engineer says**\
+`“It’s well past its intended service life,” said David Campbell, who worked on the team that installed the roof for the dome's 1990 opening.`\
+https://nytimes.com/athletic/5834270/2024/10/10/tropicana-field-roof-damage-hurricane-milton-engineer/
+
+**In flooded Lakeland, the police rescued a woman, her dog and her cats.**\
+`By Nicole Craine`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/in-flooded-lakeland-the-police-rescued-a-woman-her-dog-and-her-cats
+
+**Millions Are Without Power After Milton Tore Through Florida**\
+`Also, Republicans appear poised to win control of the Senate. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/10/10/briefing/hurricane-milton-damage-senate-polls.html
+
+**‘Relentless’ Israeli Attacks on Gaza Medical Workers Are War Crime, U.N. Panel Says**\
+`The report, which does not have the force of law, found that the Israeli military has engaged in deliberate assaults on hospitals and other health care providers.`\
+https://nytimes.com/2024/10/10/world/middleeast/israel-gaza-war-un-report.html
+
 **Johnston and LeBrun: What we're hearing about 4 veteran UFA defensemen looking for another shot**\
 `With the NHL season off and running, there are still a number of veteran defensemen who hope the game hasn't completely passed them by.`\
 https://nytimes.com/athletic/5834923/2024/10/10/nhl-free-agents-giordano-shattenkirk-schultz-klingberg/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/t
 **Trump Says He Was ‘Man of the Year.’ His Source Says It Isn’t True.**\
 `Fact-checkers have found no evidence over the years that former President Donald J. Trump once received the honor in Michigan.`\
 https://nytimes.com/2024/10/10/us/politics/trump-man-of-year.html
-
-**Friday Briefing: Florida Hurricane Kills at Least 7**\
-`Plus, Han Kang receives the Nobel Prize in Literature.`\
-https://nytimes.com/2024/10/10/briefing/hurricane-beirut-senate.html
-
-**Mets NLCS roster decisions: Bringing back Jeff McNeil, setting up the rotation**\
-`McNeil’s versatility and his left-handed bat give Carlos Mendoza several ways to work him back into the mix.`\
-https://nytimes.com/athletic/5834759/2024/10/10/mets-nlcs-roster-prediction/
-
-**Jupiter’s Great Red Spot Moves Like the Solar System’s Biggest Kickball**\
-`A sequence of images captured by NASA’s Hubble Space Telescope showed how much the giant storm changed shape as it traveled within the planet’s atmosphere.`\
-https://nytimes.com/2024/10/10/science/jupiter-great-red-spot-hubble.html
-
-**Milton Was an Impressive Storm. Here Are 5 Things Our Meteorologist Noticed.**\
-`Last month’s Hurricane Helene will be widely remembered for the rainfall in the Appalachians and the surge along Florida’s west shore. Milton will stand out for other reasons.`\
-https://nytimes.com/2024/10/10/weather/milton-forecast-meteorologists.html
 
