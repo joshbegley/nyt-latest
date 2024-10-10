@@ -1,3 +1,11 @@
+**A Stern Obama Tells Black Men to Drop ‘Excuses’ and Support Harris**\
+`Before speaking at a rally for Vice President Kamala Harris in Pittsburgh, the former president spoke directly to Black male voters in an effort to bolster flagging support.`\
+https://nytimes.com/2024/10/10/us/politics/obama-harris-pittsburgh-democrats.html
+
+**WNBA Finals moving to best-of-seven format in 2025**\
+`The finals will have a 2-2-1-1-1 structure where the higher seed will host Games 1, 2, 5 and 7, and its opponent will host Games 3, 4 and 6.`\
+https://nytimes.com/athletic/5835242/2024/10/10/wnba-finals-best-of-seven-format/
+
 **Jeff Ulbrich's early days as interim coach, and the word every Jets player can't stop saying**\
 `Scenes from the first days of a new Jets era.`\
 https://nytimes.com/athletic/5835125/2024/10/10/jeff-ulbrichs-new-york-jets-interim-coach-first-week/
