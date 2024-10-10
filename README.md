@@ -1,3 +1,19 @@
+**What’s on the Menu? These Restaurants Aren’t Telling.**\
+`Some fine-dining establishments are sharing as few details as possible online in hopes that diners will let go and trust their chefs.`\
+https://nytimes.com/2024/10/10/dining/mysterious-restaurants.html
+
+**This Designer Turns ‘Trash’ Into Eccentric Bridal Looks**\
+`Timothy Westbrook, a former “Project Runway” contestant, who incorporates repurposed materials into his collection, wants to make wedding fashion more enjoyable and unique.`\
+https://nytimes.com/2024/10/10/fashion/weddings/designer-timothy-westbrook-bridal.html
+
+**Kamala Harris Puts Sarah Huckabee Sanders in Her Unhumble Place**\
+`Parents have no monopoly on modesty.`\
+https://nytimes.com/2024/10/10/opinion/sarah-huckabee-sanders-harris.html
+
+**Review: Trust ‘Disclaimer’ When It Tells You Not to Trust It**\
+`The seven-part series from Alfonso Cuarón, about a familiar theme of the treachery of narratives, is easier to admire than to enjoy.`\
+https://nytimes.com/2024/10/10/arts/television/disclaimer-review-apple.html
+
 **Review: A Fall Gala Where Women Led the Way**\
 `New York City Ballet dressed up its fall fashion gala with a program of female choreographers. This was history, even if the results were mixed.`\
 https://nytimes.com/2024/10/10/arts/dance/review-new-york-city-ballet-fashion-gala.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5833670/2024/10/10/rafael-nadal-career-tennis/
 **Ethel Kennedy, Passionate Supporter of the Family Legacy, Dies at 96**\
 `She never remarried after the assassination of her husband, Senator Robert F. Kennedy, and she devoted herself to working on behalf of the causes he had championed.`\
 https://nytimes.com/2024/10/10/us/politics/ethel-kennedy-dead.html
-
-**Former NFL MVP QB Cam Newton joins ESPN's 'First Take'**\
-`Newton's first appearance will be Friday at Tennessee State University as part of the show's HBCU roadshow.`\
-https://nytimes.com/athletic/5833899/2024/10/10/cam-newton-espn-first-take/
-
-**Betting for (by) dummies: Fading Trent Dilfer's UAB, how far can Kent State fall and more**\
-`Army is laying a lot of points against UAB, but both Jon Greenberg and Zac Jackson like the play anyway. Plus more bets for the weekend.`\
-https://nytimes.com/athletic/5833620/2024/10/10/betting-for-by-dummies-uab-ball-state-kent/
-
-**Football Manager 2025 release date delayed until next March**\
-`The release of Football Manager 2025 has been delayed until March 2025.`\
-https://nytimes.com/athletic/5833890/2024/10/10/football-manager-2025-release-date-delay/
-
-**Residents of a Mobile Home Park Join Forces to Buy Their Community**\
-`The residents are the first in the state of Maine to successfully utilize a new law making it easier for them to compete with investors and gain ownership of the land their homes sit on.`\
-https://nytimes.com/2024/10/10/realestate/brunswick-mobile-home-sale-maine.html
 
