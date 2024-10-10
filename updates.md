@@ -1,3 +1,7 @@
+**Postseason baseball returned to Kansas City. Now the Royals must win to survive**\
+`The mission is simple: The Royals must win Thursday night at Kauffman Stadium against Gerrit Cole and the Yankees. `\
+https://nytimes.com/athletic/5833018/2024/10/10/kansas-city-royals-postseason-baseball-alds/
+
 **With clutch home run, Giancarlo Stanton once again shows he's built for October**\
 `Among all Yankees with at least 30 postseason games in franchise history, Stanton's .964 OPS ranks fourth all time.`\
 https://nytimes.com/athletic/5832448/2024/10/10/yankees-giancarlo-stanton-october/
