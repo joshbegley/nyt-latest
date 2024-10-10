@@ -1,3 +1,7 @@
+**Former NFL MVP QB Cam Newton joins ESPN's 'First Take'**\
+`Newton's first appearance will be Friday at Tennessee State University as part of the show's HBCU roadshow.`\
+https://nytimes.com/athletic/5833899/2024/10/10/cam-newton-espn-first-take/
+
 **Betting for (by) dummies: Fading Trent Dilfer's UAB, how far can Kent State fall and more**\
 `Army is laying a lot of points against UAB, but both Jon Greenberg and Zac Jackson like the play anyway. Plus more bets for the weekend.`\
 https://nytimes.com/athletic/5833620/2024/10/10/betting-for-by-dummies-uab-ball-state-kent/
@@ -14,7 +18,7 @@ https://nytimes.com/2024/10/10/realestate/brunswick-mobile-home-sale-maine.html
 `She helped put her city on the modern culinary map, but many employees said they paid a price in workplace abuse.`\
 https://nytimes.com/2024/10/10/dining/boston-chef-barbara-lynch-closes-restaurants.html
 
-**Jets shift Downing to offensive play-caller, strip Hackett from role**\
+**Jets shift Downing to offensive play-caller, strip role from Hackett**\
 `Jets interim coach Jeff Ulbrich said Aaron Rodgers was supportive of the decision to turn to Downing.`\
 https://nytimes.com/athletic/5833874/2024/10/10/todd-downing-jets-nathaniel-hackett/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/well/eat/moderate-alcohol-drinking-definition.htm
 **‘Not a problem tonight’: Analyzing Korpisalo’s two tough goals, four no-chancers**\
 `A breakdown of the six goals against and how the Bruins made life difficult for Korpisalo in their season opener on Tuesday. `\
 https://nytimes.com/athletic/5833748/2024/10/10/joonas-korpisalo-bruins-panthers-loss/
-
-**Israel’s Security Cabinet to Meet to Discuss Response to Iran Attack**\
-`The cabinet was expected to authorize Prime Minister Benjamin Netanyahu and Yoav Gallant, the defense minister, to initiate a retaliatory attack at their discretion, officials said.`\
-https://nytimes.com/2024/10/10/world/middleeast/israel-iran-attack-response-security-cabinet-meeting.html
 
