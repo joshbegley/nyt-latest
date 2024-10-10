@@ -1,3 +1,7 @@
+**Kaprizov joins 50-50 club, Boldy 40-40: 7 bold predictions for the Wild in 2024-25**\
+`Who will get the most starts in net? Will Marco Rossi take another step? Where will the Wild finish in the division? Bold prediction time.`\
+https://nytimes.com/athletic/5829231/2024/10/10/wild-bold-predictions-kaprizov-boldy/
+
 **A Hurricane’s Lasting Death Toll Is Always Much Larger Than It Seems**\
 `The full impact may not be known for years.`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/hurricane-lasting-death-toll
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/business/td-bank-fine.html
 **Woman Calls 911 When 100 Aggressive Raccoons Show Up in Her Yard**\
 `The Washington State resident fed some friendly critters for years. Then, their mean friends turned up.`\
 https://nytimes.com/2024/10/10/us/raccoons-washington-home.html
-
-**Golden State Valkyries tab Natalie Nakase as first head coach**\
-`Nakase just completed her third season as an assistant coach of the Las Vegas Aces.`\
-https://nytimes.com/athletic/5832699/2024/10/10/golden-state-valkyries-natalie-nakase-head-coach/
 
