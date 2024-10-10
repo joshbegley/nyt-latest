@@ -1,3 +1,15 @@
+**Three key questions facing the Phillies in a critical offseason**\
+`As the Phillies begin to survey the wreckage, Dave Dombrowski has avenues to remake the outfield and bullpen. `\
+https://nytimes.com/athletic/5833027/2024/10/10/phillies-offseason-questions-trades-free-agency/
+
+**Bolivia, altitude and 1,840 steps up from La Paz to their new home 4,150m above sea level**\
+`Bolivia host the Copa America finalists Colombia in a ground way above an altitude that was previously deemed unsafe by FIFA`\
+https://nytimes.com/athletic/5746338/2024/10/10/bolivia-altitude-el-alto-venezuela/
+
+**4 Novels Deliver a Heady Mix of Fact and Fiction**\
+`In the hands of skilled novelists, the stories of an  heiress, a prime minister and a literary mystery woman are brought to life.`\
+https://nytimes.com/2024/10/10/books/review/historical-fiction.html
+
 **What to know about the report.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/what-to-know-about-the-report

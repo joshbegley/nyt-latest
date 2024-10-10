@@ -1,3 +1,7 @@
+**Three key questions facing the Phillies in a critical offseason**\
+`As the Phillies begin to survey the wreckage, Dave Dombrowski has avenues to remake the outfield and bullpen. `\
+https://nytimes.com/athletic/5833027/2024/10/10/phillies-offseason-questions-trades-free-agency/
+
 **What to know about the report.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/what-to-know-about-the-report
@@ -10,9 +14,13 @@ https://nytimes.com/athletic/5833732/2024/10/10/notre-dame-offense-college-footb
 `Our reporter’s account of a harrowing night in Sarasota, Fla. — different from anything she has experienced as a native of New England.`\
 https://nytimes.com/2024/10/10/weather/hurricane-milton-eye-sarasota.html
 
+**Bolivia, altitude and 1,840 steps up from La Paz to their new home 4,150m above sea level**\
+`Bolivia host the Copa America finalists Colombia in a ground way above an altitude that was previously deemed unsafe by FIFA`\
+https://nytimes.com/athletic/5746338/2024/10/10/bolivia-altitude-el-alto-venezuela/
+
 **4 Novels Deliver a Heady Mix of Fact and Fiction**\
 `In the hands of skilled novelists, the stories of an  heiress, a prime minister and a literary mystery woman are brought to life.`\
-https://nytimes.com/2024/10/10/books/review/4-novels-deliver-a-heady-mix-of-fact-and-fiction.html
+https://nytimes.com/2024/10/10/books/review/historical-fiction.html
 
 **Sinner will be year-end world No. 1 after Alcaraz's Shanghai defeat**\
 `Sinner is the third different male player to end the year as number one in the ATP rankings in three seasons`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/us/politics/debate-trump-harris-deadline.html
 **Bournemouth owner Foley in talks to buy Moreirense**\
 `Bournemouth owner Bill Foley is in talks to buy Portuguese club Moreirense.`\
 https://nytimes.com/athletic/5833330/2024/10/10/bournemouth-bill-foley-moreirense/
-
-**Doc Rivers turns to Greg Buckner for a new direction to help revive the Bucks defense**\
-`Last year, the Bucks struggled to defend and Rivers knew they needed to improve. Enter Buckner as Milwaukee's defensive coordinator.`\
-https://nytimes.com/athletic/5831860/2024/10/10/doc-rivers-greg-buckner-bucks-defense/
-
-**New York Jets next coach odds: Ben Johnson favored, Bill Belichick a long shot**\
-`Will the Jets look to hire a new head coach after the season? Here's what the betting odds reveal about the list of potential candidates.`\
-https://nytimes.com/athletic/5832658/2024/10/10/ny-jets-coach-bill-belichick-johnson-rodgers/
 
