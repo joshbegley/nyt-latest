@@ -1,3 +1,7 @@
+**Officials and Residents Credit Hurricane Warnings With Saving Lives**\
+`The warnings from officials were dire, and they appear to have been effective.`\
+https://nytimes.com/2024/10/10/weather/hurricane-warnings-milton-florida.html
+
 **A Stern Obama Tells Black Men to Drop ‘Excuses’ and Support Harris**\
 `Before speaking at a rally for Vice President Kamala Harris in Pittsburgh, the former president spoke directly to Black male voters in an effort to bolster flagging support.`\
 https://nytimes.com/2024/10/10/us/politics/obama-harris-pittsburgh-democrats.html
