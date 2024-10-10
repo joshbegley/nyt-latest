@@ -1,3 +1,15 @@
+**The Briefing: England 1-2 Greece - Carsley's wake-up call, defensive jitters and a fitting tribute to Baldock**\
+`Greece secured their first ever win over England to bring Lee Carsley and his team back down to earth with a bump`\
+https://nytimes.com/athletic/5830927/2024/10/10/england-bellingham-stones-greece-baldock/
+
+**Russell Wilson: 'Confident I'd be ready to play' if needed Sunday**\
+`Wilson was noncommittal about making his Steelers debut or what his role will be, but signs point to him backing up Justin Fields.`\
+https://nytimes.com/athletic/5834761/2024/10/10/russell-wilson-injury-steelers-raiders/
+
+**Tim Johnson, Senator Who Came Back From an Aneurysm, Dies at 77**\
+`One of the last Democrats from the Great Plains to be elected to national office, he built his career on delivering benefits to his home state, South Dakota.`\
+https://nytimes.com/2024/10/10/us/politics/tim-johnson-dead.html
+
 **Man Pleads Guilty to Hate Crime for Vandalizing Rutgers Islamic Center**\
 `Officials said the man caused thousands of dollars’ worth of damage to religious artifacts after breaking into the New Jersey university’s Center for Islamic Life in April.`\
 https://nytimes.com/2024/10/10/nyregion/rutgers-hate-crime-muslim.html
