@@ -1,3 +1,11 @@
+**How Canucks squandered 20 dominant minutes in opening night collapse: 3 takeaways**\
+`The opening of the Vancouver Canucks season — a loss to the Calgary Flames — was defined by chaos.`\
+https://nytimes.com/athletic/5832681/2024/10/10/canucks-opening-night-loss/
+
+**Why Yankees say Aaron Judge is showing signs of snapping playoff slump**\
+`Despite hitting several balls hard in Game 3, Judge is 1 for 11 with three walks in the ALDS versus the Royals.`\
+https://nytimes.com/athletic/5833007/2024/10/10/aaron-judge-yankees-playoff-slump/
+
 **Why Yankees say Judge is about to snap slump**\
 `Despite hitting several balls hard in Game 3, Judge is 1 for 11 with three walks in the ALDS versus the Royals.`\
 https://nytimes.com/athletic/5833007/2024/10/10/aaron-judge-yankees-playoff-slump/
