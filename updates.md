@@ -1,3 +1,31 @@
+**How the Chiefs defense is shutting down opposing running backs**\
+`The Chiefs' defensive motto for 2024 is "Demanding better," and it has been just that, holding running backs to 52.6 rushing yards per game.`\
+https://nytimes.com/athletic/5831721/2024/10/10/chiefs-defense-running-backs/
+
+**For Undecided Voters, What Will It Come Down To?**\
+`With Election Day less than a month away, the Times journalists Michael Barbaro, Nate Cohn, Maggie Haberman and Astead Herndon discuss some of the most pressing issues for undecided voters.`\
+https://nytimes.com/video/podcasts/the-daily/100000009752702/election-media-polling-clip.html
+
+**Jets, Bengals or Dolphins? Picking one sub-.500 team to make the playoffs in AFC:**\
+`The New York Jets are in turmoil after firing coach Robert Saleh. But Aaron Rodgers & Co. are still a decent bet to make the playoffs. `\
+https://nytimes.com/athletic/5831567/2024/10/10/nfl-projection-jets-bengals-dolphins-playoffs/
+
+**How the Hurricanes masterfully execute the salary cap dance**\
+`Get out your calculators, because it's time to make sense of the Hurricanes' recent roster moves.`\
+https://nytimes.com/athletic/5832760/2024/10/10/carolina-hurricanes-salary-cap-roster/
+
+**Which NFL coaches are on the hot seat? As the Jets showed, it's about the owners**\
+`After Woody Johnson's firing of Robert Saleh, we take a closer look at the owners who could be most inclined to make a change next.`\
+https://nytimes.com/athletic/5832473/2024/10/10/nfl-coach-firings-owners-woody-johnson-jets/
+
+**Do players support a shorter preseason and longer regular season in the NHL?**\
+`As the NHL considers a shorter preseason and longer regular season, we asked more than a dozen players and coaches for their opinions.`\
+https://nytimes.com/athletic/5818115/2024/10/10/nhl-players-regular-season-preseason/
+
+**Kyrie Irving has something to say: On ‘accountability,’ Mavs' mission, Olympic absence and more**\
+`In a wide-ranging interview with The Athletic, the 32-year-old gets candid about the past few years, on and off the court.`\
+https://nytimes.com/athletic/5831971/2024/10/10/kyrie-irving-mavericks-interview/
+
 **Francisco Lindor's poetic series-clinching slam for Mets soars into October history**\
 `It was one of those rare sporting moments that allow you to tell people you didn’t just watch it. You felt it.`\
 https://nytimes.com/athletic/5833251/2024/10/10/francisco-lindor-grand-slam-mets-phillies-history/

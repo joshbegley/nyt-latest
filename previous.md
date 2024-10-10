@@ -1,3 +1,27 @@
+**How the Chiefs defense is shutting down opposing running backs**\
+`The Chiefs' defensive motto for 2024 is "Demanding better," and it has been just that, holding running backs to 52.6 rushing yards per game.`\
+https://nytimes.com/athletic/5831721/2024/10/10/chiefs-defense-running-backs/
+
+**For Undecided Voters, What Will It Come Down To?**\
+`With Election Day less than a month away, the Times journalists Michael Barbaro, Nate Cohn, Maggie Haberman and Astead Herndon discuss some of the most pressing issues for undecided voters.`\
+https://nytimes.com/video/podcasts/the-daily/100000009752702/election-media-polling-clip.html
+
+**Jets, Bengals or Dolphins? Picking one sub-.500 team to make the playoffs in AFC:**\
+`The New York Jets are in turmoil after firing coach Robert Saleh. But Aaron Rodgers & Co. are still a decent bet to make the playoffs. `\
+https://nytimes.com/athletic/5831567/2024/10/10/nfl-projection-jets-bengals-dolphins-playoffs/
+
+**How the Hurricanes masterfully execute the salary cap dance**\
+`Get out your calculators, because it's time to make sense of the Hurricanes' recent roster moves.`\
+https://nytimes.com/athletic/5832760/2024/10/10/carolina-hurricanes-salary-cap-roster/
+
+**Which NFL coaches are on the hot seat? As the Jets showed, it's about the owners**\
+`After Woody Johnson's firing of Robert Saleh, we take a closer look at the owners who could be most inclined to make a change next.`\
+https://nytimes.com/athletic/5832473/2024/10/10/nfl-coach-firings-owners-woody-johnson-jets/
+
+**Do players support a shorter preseason and longer regular season in the NHL?**\
+`As the NHL considers a shorter preseason and longer regular season, we asked more than a dozen players and coaches for their opinions.`\
+https://nytimes.com/athletic/5818115/2024/10/10/nhl-players-regular-season-preseason/
+
 **25 Days to Go**\
 `In the final sprint to Election Day, which voters matter most to the Harris and Trump campaigns? Watch or listen to our political round table.`\
 https://nytimes.com/2024/10/10/podcasts/the-daily/election-roundtable.html
@@ -6,35 +30,11 @@ https://nytimes.com/2024/10/10/podcasts/the-daily/election-roundtable.html
 `Plus, the Kenyan police battle gangs in Haiti.`\
 https://nytimes.com/2024/10/10/podcasts/milton-florida-biden-netanyahu.html
 
+**Kyrie Irving has something to say: On ‘accountability,’ Mavs' mission, Olympic absence and more**\
+`In a wide-ranging interview with The Athletic, the 32-year-old gets candid about the past few years, on and off the court.`\
+https://nytimes.com/athletic/5831971/2024/10/10/kyrie-irving-mavericks-interview/
+
 **Blue Jackets youngster Yegor Chinakhov lands big role following Boone Jenner's injury**\
 `With ripple effects across the forwards and defense, here's where strengths and struggles might arise in the Blue Jackets lineup.`\
 https://nytimes.com/athletic/5832336/2024/10/10/blue-jackets-roster-analysis-chinakhov-jenner/
-
-**The Connections Companion No. 488**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 11, 2024.`\
-https://nytimes.com/2024/10/10/crosswords/connections-companion-488.html
-
-**Wordle Review No. 1,210**\
-`Scroll down for hints and conversation about the puzzle for Friday, Oct. 11, 2024.`\
-https://nytimes.com/2024/10/10/crosswords/wordle-review-1210.html
-
-**Francisco Lindor's poetic series-clinching slam for Mets soars into October history**\
-`It was one of those rare sporting moments that allow you to tell people you didn’t just watch it. You felt it.`\
-https://nytimes.com/athletic/5833251/2024/10/10/francisco-lindor-grand-slam-mets-phillies-history/
-
-**Inflation Is Expected to Cool Further in a Fresh Report**\
-`The Consumer Price Index has been gradually easing, a trend that is expected to persist in September data.`\
-https://nytimes.com/2024/10/10/business/inflation-cpi-report.html
-
-**Rafael Nadal to retire from tennis after Davis Cup Finals in November**\
-`A 22-time Grand Slam champion, Nadal will bow out as one of the greatest male players of all time`\
-https://nytimes.com/athletic/5833311/2024/10/10/rafael-nadal-retires-tennis/
-
-**Spain captain Morata says he experienced depression months before Euro 2024 win**\
-`AC Milan and Spain striker Alvaro Morata has spoken about experiencing depression months before his country&#8217;s 2024 European Championship win and his concerns it would force him to retire from football.`\
-https://nytimes.com/athletic/5833269/2024/10/10/alvaro-morata-depression-retirement-milan/
-
-**Crane Collapses in Downtown St. Petersburg as Milton Batters Florida**\
-`City officials said the crane had collapsed onto a neighboring building, which houses the Tampa Bay Times newspaper offices.`\
-https://nytimes.com/2024/10/10/weather/st-petersburg-building-crane-hurricane-milton.html
 
