@@ -1,3 +1,7 @@
+**How to Help Victims of Hurricane Milton**\
+`Here’s how to connect with verified aid groups working in the areas affected by the storm.`\
+https://nytimes.com/2024/10/10/weather/hurricane-milton-victims-aid.html
+
 **Tornadoes Kill at Least 5 Near Fort Pierce, Some in a Retirement Community**\
 `The authorities said “more than one” victim resided in Spanish Lakes Country Club Village, a community of older mobile homes.`\
 https://nytimes.com/2024/10/10/weather/tornado-death-spanish-lakes-fort-pierce.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/learning/what-students-are-saying-about-the-deman
 **College football Week 7 model projected point differentials and totals for every game**\
 `Austin Mock's projection model has predicted point differentials and totals for every FBS vs. FBS Week 7 college football game.`\
 https://nytimes.com/athletic/5834480/2024/10/10/college-football-week-7-model-projections-predicted-scores/
-
-**‘The Confidante’ Is a Layered French Drama About a Heartbreaking Scam**\
-`Streaming on Max, the series tells the story of woman who lies to a grief support group about her connection to the Paris terrorist attacks of 2015.`\
-https://nytimes.com/2024/10/10/arts/television/the-confidante-max-french.html
 
