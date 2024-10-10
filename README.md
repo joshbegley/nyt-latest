@@ -1,3 +1,7 @@
+**St. Petersburg is battered by wind and rain, but escapes the worst storm surge.**\
+`Trees and power lines were down across downtown St. Petersburg and surrounding neighborhoods after Hurricane Milton.`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida/milton-st-petersburg-florida
+
 **Rosenthal: Mookie Betts breaks out of his postseason slump just in time for the Dodgers**\
 `Betts, who is 4 for 9 with two homers in his past two games, came into Game 3 hitless in his previous 22 playoff at-bats.`\
 https://nytimes.com/athletic/5833486/2024/10/10/mookie-betts-dodgers-playoff-hitting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5833248/2024/10/10/george-baldock-sheffield-united-
 **The Pulse: OMG, Mets**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5831572/2024/10/10/mets-phillies-nlcs-the-pulse/
-
-**With inflation ‘still somewhat elevated,’ Fed officials were divided on how much to cut rates.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/with-inflation-still-somewhat-elevated-fed-officials-were-divided-on-how-much-to-cut-rates
 
