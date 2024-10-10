@@ -1,3 +1,19 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/10/crosswords/spelling-bee-forum.html
+
+**Before and After**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/10/10/learning/before-and-after.html
+
+**Covering All the Corners of a Warming World**\
+`Travel is an opportunity. It’s an economic driver. But it also contributes to global warming. So a Travel editor went back to school to explore the moral dilemma it poses.`\
+https://nytimes.com/2024/10/10/insider/covering-all-the-corners-of-a-warming-world.html
+
+**The Life-or-Death Consequences of Killing Congestion Pricing**\
+`Increased 911 call volume in New York and the city’s unwieldy traffic have led to slower response times for ambulances on their way to save lives.`\
+https://nytimes.com/2024/10/10/nyregion/new-york-fire-department-response-times.html
+
 **Seth Meyers Is Starting to Wonder About Trump and Putin**\
 `A book says Donald Trump sent Covid testing equipment to the Russian leader. Meyers suspects he threw in “some snacks, a bath bomb and a CD.”`\
 https://nytimes.com/2024/10/10/arts/television/seth-meyers-trump-putin.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/10/learning/word-of-the-day-synthesize.html
 **Faced With Regional Setbacks, India Flexes Its New Economic Muscle**\
 `Tapping into a fast-growing economy, Prime Minister Narendra Modi has been offering financial help to India’s neighbors as he tries to counter China’s influence.`\
 https://nytimes.com/2024/10/10/world/asia/india-economy-modi-maldives.html
-
-**With clutch home run, Giancarlo Stanton once again shows he's built for October**\
-`Among all Yankees with at least 30 postseason games in franchise history, Stanton's .964 OPS ranks fourth all time.`\
-https://nytimes.com/athletic/5832448/2024/10/10/yankees-giancarlo-stanton-october/
-
-**Postseason baseball returned to Kansas City. Now the Royals must win to survive**\
-`The mission is simple: The Royals must win Thursday night at Kauffman Stadium against Gerrit Cole and the Yankees. `\
-https://nytimes.com/athletic/5833018/2024/10/10/kansas-city-royals-postseason-baseball-alds/
-
-**How Canucks squandered 20 dominant minutes in opening-night collapse: 3 takeaways**\
-`The opening of the Vancouver Canucks season — a loss to the Calgary Flames — was defined by chaos.`\
-https://nytimes.com/athletic/5832681/2024/10/10/canucks-opening-night-loss/
-
-**Why Yankees say Aaron Judge is showing signs of snapping playoff slump**\
-`Despite hitting several balls hard in Game 3, Judge is 1 for 11 with three walks in the ALDS versus the Royals.`\
-https://nytimes.com/athletic/5833007/2024/10/10/aaron-judge-yankees-playoff-slump/
 
