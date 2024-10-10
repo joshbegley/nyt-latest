@@ -1,3 +1,11 @@
+**Rafael Nadal will retire from tennis: Tell us your favorite Rafa tennis moment**\
+`The Slams, the 'Big Three,' the headband, the forehand...`\
+https://nytimes.com/athletic/5833404/2024/10/10/rafael-nadal-retirement-best-tennis-moment/
+
+**Social Security Benefits to Climb 2.5% in 2025**\
+`The annual cost-of-living adjustment will increase monthly checks for millions of beneficiaries, including retirees and disabled workers.`\
+https://nytimes.com/2024/10/10/business/social-security-benefits-increase-2025.html
+
 **With 100-Foot-Wide Trump Sign, a Sticker Company Dives Into Politics**\
 `The chief executive of Sticker Mule in Amsterdam, N.Y., set off a debate by displaying his support for Donald J. Trump in a massive sign atop the company’s headquarters.`\
 https://nytimes.com/2024/10/10/nyregion/sticker-mule-trump-sign.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5828945/2024/10/10/sf-giants-home-runs-2024-ranked/
 **Arizona Fall League notables, from Ethan Salas to Jac Caglianone: Players to watch from each MLB team**\
 `Every player in the AFL is there for a reason, but some will draw more attention from scouts. Here are more than 30 names to watch.`\
 https://nytimes.com/athletic/5830395/2024/10/10/arizona-fall-league-preview-ethan-salas-jac-caglianone/
-
-**Hurricane Milton and the Economy**\
-`The superstorm is expected to inflict costly and lasting damage in Florida, as the Federal Reserve is already keeping an eye on upcoming inflation data.`\
-https://nytimes.com/2024/10/10/business/dealbook/milton-cpi-inflation-economy.html
-
-**Rafael Nadal will retire from tennis: Tell us your favorite Rafa tennis moment**\
-`The Slams, the 'Big Three,' the headband, the forehand...`\
-https://nytimes.com/athletic/5833404/2024/10/10/rafael-nadal-retirement-best-tennis-moment/
 
