@@ -1,3 +1,7 @@
+**France Unveils Tough Austerity Budget to Mend Its Finances**\
+`The French government is seeking deep spending cuts and higher taxes in an effort to tame its ballooning debt and deficit.`\
+https://nytimes.com/2024/10/10/business/france-budget-debt-deficit-macron.html
+
 **What Students Are Saying About the Demands of High School**\
 `We asked teenagers if they were overscheduled, and how it would feel if they were able to slow down and do less.`\
 https://nytimes.com/2024/10/10/learning/what-students-are-saying-about-the-demands-of-high-school.html

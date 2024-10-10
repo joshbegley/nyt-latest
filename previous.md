@@ -1,3 +1,7 @@
+**France Unveils Tough Austerity Budget to Mend Its Finances**\
+`The French government is seeking deep spending cuts and higher taxes in an effort to tame its ballooning debt and deficit.`\
+https://nytimes.com/2024/10/10/business/france-budget-debt-deficit-macron.html
+
 **What Students Are Saying About the Demands of High School**\
 `We asked teenagers if they were overscheduled, and how it would feel if they were able to slow down and do less.`\
 https://nytimes.com/2024/10/10/learning/what-students-are-saying-about-the-demands-of-high-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/08/opinion/thepoint/hurricane-lasting-death-tol
 **Reasons to Vote for Harris, Not Trump**\
 `Readers respond to an editorial and critiques of the former president by those who have worked with him. Also: young voter outreach; L.G.B.T.Q. Jews; the war in Gaza; Robert Moses.`\
 https://nytimes.com/2024/10/10/opinion/election-harris-trump.html
-
-**Florida IV Fluid Plant Spared From Storm, Company Says**\
-`Milton threatened a Daytona Beach site that produces one-fourth of the nation’s IV medical solutions, which were already in short supply because of storm damage in North Carolina.`\
-https://nytimes.com/2024/10/10/health/florida-iv-bags-shortages.html
 
