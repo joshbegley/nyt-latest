@@ -1,3 +1,11 @@
+**Word of the Day: synthesize**\
+`This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/10/learning/word-of-the-day-synthesize.html
+
+**Faced With Regional Setbacks, India Flexes Its New Economic Muscle**\
+`Tapping into a fast-growing economy, Prime Minister Narendra Modi has been offering financial help to India’s neighbors as he tries to counter China’s influence.`\
+https://nytimes.com/2024/10/10/world/asia/india-economy-modi-maldives.html
+
 **With clutch home run, Giancarlo Stanton once again shows he's built for October**\
 `Among all Yankees with at least 30 postseason games in franchise history, Stanton's .964 OPS ranks fourth all time.`\
 https://nytimes.com/athletic/5832448/2024/10/10/yankees-giancarlo-stanton-october/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5832857/2024/10/10/phillies-eliminated-nlds-2024-se
 **'I love it': Yankees' Jazz Chisholm Jr. relishes booing from Royals fans**\
 `The third baseman drew the ire of fans in Kansas City after his comments about the Royals' getting 'lucky' in Game 2 on Monday. `\
 https://nytimes.com/athletic/5832911/2024/10/10/yankees-jazz-chisholm-royals-boos/
-
-**Deadly Tornadoes Spawned by Milton Tear Across Florida**\
-`In St. Lucie County on the state’s Atlantic Coast, far from where the hurricane made landfall, one sheriff confirmed some loss of life in his county without providing further details after a tornado struck.`\
-https://nytimes.com/2024/10/10/us/tornadoes-milton-florida-desantis.html
-
-**The Gravenberch Turn - Liverpool's midfield escape clause**\
-`A patented trick has transformed the way Liverpool play through midfield and underlines Dutchman's new-found confidence`\
-https://nytimes.com/athletic/5826272/2024/10/10/ryan-gravenberch-liverpool-turn/
 

@@ -1,3 +1,11 @@
+**Word of the Day: synthesize**\
+`This word has appeared in 40 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/10/learning/word-of-the-day-synthesize.html
+
+**Faced With Regional Setbacks, India Flexes Its New Economic Muscle**\
+`Tapping into a fast-growing economy, Prime Minister Narendra Modi has been offering financial help to India’s neighbors as he tries to counter China’s influence.`\
+https://nytimes.com/2024/10/10/world/asia/india-economy-modi-maldives.html
+
 **Postseason baseball returned to Kansas City. Now the Royals must win to survive**\
 `The mission is simple: The Royals must win Thursday night at Kauffman Stadium against Gerrit Cole and the Yankees. `\
 https://nytimes.com/athletic/5833018/2024/10/10/kansas-city-royals-postseason-baseball-alds/
