@@ -1,3 +1,11 @@
+**Bring on the Butternuts**\
+`Fall’s star squash shines in an adaptable pasta with kale and brown butter, roasted with an onion gravy or puréed into a soft velvety soup.`\
+https://nytimes.com/2024/10/10/dining/butternut-squash-dishes.html
+
+**What, Exactly, Is ‘Moderate Drinking’?**\
+`That depends on whom you ask, and what country you live in. Here’s what the research suggests and how to think about it.`\
+https://nytimes.com/2024/10/10/well/eat/moderate-alcohol-drinking-definition.html
+
 **‘Not a problem tonight’: Analyzing Korpisalo’s two tough goals, four no-chancers**\
 `A breakdown of the six goals against and how the Bruins made life difficult for Korpisalo in their season opener on Tuesday. `\
 https://nytimes.com/athletic/5833748/2024/10/10/joonas-korpisalo-bruins-panthers-loss/
