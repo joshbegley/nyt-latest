@@ -1,3 +1,19 @@
+**'I love it': Yankees' Jazz Chisholm Jr. relishes booing from Royals fans**\
+`The third baseman drew the ire of fans in Kansas City after his comments about the Royals' getting 'lucky' in Game 2 on Monday. `\
+https://nytimes.com/athletic/5832911/2024/10/10/yankees-jazz-chisholm-royals-boos/
+
+**Deadly Tornadoes Spawned by Milton Tear Across Florida**\
+`In St. Lucie County on the state’s Atlantic Coast, far from where the hurricane made landfall, one sheriff confirmed some loss of life in his county without providing further details after a tornado struck.`\
+https://nytimes.com/2024/10/10/us/tornadoes-milton-florida-desantis.html
+
+**The Gravenberch Turn - Liverpool's midfield escape clause**\
+`A patented trick has transformed the way Liverpool play through midfield and underlines Dutchman's new-found confidence`\
+https://nytimes.com/athletic/5826272/2024/10/10/ryan-gravenberch-liverpool-turn/
+
+**Everton's international break: Recruitment staff added, injuries easing, social media row**\
+`With a takeover continuing, injury issues to solve and a stadium to finish, there is lots going on at Everton as the Premier League pauses`\
+https://nytimes.com/athletic/5831170/2024/10/10/everton-international-break-friedkin-takeover/
+
 **Dodgers pummel Padres early to force NLDS Game 5: Takeaways**\
 `Mookie Betts set the tone early against Dylan Cease and the Dodgers never looked back in Game 4. `\
 https://nytimes.com/athletic/5832698/2024/10/10/dodgers-padres-mookie-betts-mlb-playoffs/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5830990/2024/10/10/international-football-future/
 **18-Year-Old Sherpa Becomes Youngest Climber to Summit 14 Highest Mountains**\
 `Nima Rinji Sherpa’s achievement highlights the role of Sherpas in an activity where they shoulder much of the risk but receive little glory.`\
 https://nytimes.com/2024/10/10/world/asia/highest-mountains-sherpa-tibet.html
-
-**Hurricane Milton Destroys Roof of Tropicana Field Stadium**\
-`The St. Petersburg stadium, home to M.L.B.’s Tampa Bay Rays, was being used to house emergency workers. Video showed parts of the fiberglass roof blowing in the wind.`\
-https://nytimes.com/2024/10/10/us/tropicana-field-milton-tampa-bay.html
-
-**Holding in the penalty area: What are the Premier League's rules and how are they applied?**\
-`Some Premier League teams are thriving in penalty areas while some are committing costly fouls, so what are the rules surrounding holding?`\
-https://nytimes.com/athletic/5830879/2024/10/10/premier-league-refereeing-rules-holding-penalty-area/
-
-**What are the implications of Man City’s APT case for Newcastle?**\
-`After both sides claimed victories in the case about associated party transactions, what are the implications for Newcastle?`\
-https://nytimes.com/athletic/5830512/2024/10/10/newcastle-apt-manchester-city/
-
-**Six possible replacements if Premier League clubs want to make a change in the break**\
-`We are not yet at the quarter-mark of this Premier League season, but the prospect of managerial sackings is already in the air…`\
-https://nytimes.com/athletic/5825107/2024/10/10/managers-premier-league-replacements-sack/
 
