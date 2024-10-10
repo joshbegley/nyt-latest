@@ -1,3 +1,7 @@
+**How Rangers, Igor Shesterkin ignored distractions in opening-night win: Takeaways**\
+`Shesterkin made 29 saves and earned the shutout in the Rangers' 6-0 win over the Penguins. `\
+https://nytimes.com/athletic/5832602/2024/10/09/rangers-penguins-takeaways-igor-shesterkin/
+
 **Stanton's homer gives Yankees ALDS edge over Royals: Takeaways**\
 `The Yankees took a 2-1 lead in the series, with ace Gerrit Cole set to take the mound against Michael Wacha in Game 4 on Thursday.`\
 https://nytimes.com/athletic/5832524/2024/10/09/yankees-royals-score-stanton-game-4-takeaways/
@@ -14,8 +18,8 @@ https://nytimes.com/2024/10/09/crosswords/daily-puzzle-2024-10-10.html
 `The effect is called a reverse storm surge, but it won’t last, and the water could come rushing back.`\
 https://nytimes.com/2024/10/09/weather/milton-reverse-surge-tampa.html
 
-**In a pitch to young voters, Tim Walz appears via a videogame livestream.**\
-`By Simon J. Levien`\
+**Tim Walz Rally Is Livestreamed on Twitch in Pitch to Young Voters**\
+`A streamer played World of Warcraft while commenting on the Democratic nominee’s rally speech. At one point he criticized Project 2025 and at another mused about his character: “Wait, am I dying?”`\
 https://nytimes.com/2024/10/09/us/politics/tim-walz-twitch-stream.html
 
 **Review: In ‘The Counter,’ a Cup of Joe and an Off-the-Menu Order**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832414/2024/10/09/cleveland-guardians-alds-game-3-
 **Welcome to Detroit, where the Tigers brought playoff baseball back in full force**\
 `The Tigers are a win away from the ALCS after their "pitching chaos" helped lead them to a Game 3 win in front of an electric home crowd.`\
 https://nytimes.com/athletic/5832437/2024/10/09/tigers-alds-game-3-win-atmosphere/
-
-**Red Sox fire 6 coaches, including first base coach Andy Fox, bullpen coach Kevin Walker**\
-`The Red Sox let go six coaches, including Mani Martinez, who had been the team's bullpen catcher for more than a decade.`\
-https://nytimes.com/athletic/5832486/2024/10/09/red-sox-coaches-fired-andy-fox-kevin-walker/
 
