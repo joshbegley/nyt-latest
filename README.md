@@ -1,3 +1,7 @@
+**Hurricane Milton is sucking water out of Tampa Bay. Here’s why.**\
+`The effect is called a reverse storm surge, but it won’t last, and the water could come rushing back.`\
+https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida-landfall/milton-reverse-surge-tampa
+
 **In a pitch to young voters, Tim Walz appears via a videogame livestream.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/09/us/harris-trump-election/tim-walz-twitch-stream
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832377/2024/10/09/mets-phillies-score-lindor-game-
 **Cards Against Humanity says it will pay Trump critics to prepare to vote.**\
 `Experts were divided on the legality of the program, which does not require participants to prove they voted for Vice President Kamala Harris.`\
 https://nytimes.com/live/2024/10/09/us/harris-trump-election/cards-against-humanity-says-it-will-pay-trump-critics-to-prepare-to-vote
-
-**Zantac’s Developer Settles Lawsuits Claiming Cancer Link**\
-`GSK, which developed and sold versions of the now-discontinued blockbuster heartburn drug, agreed to pay up to $2.2 billion.`\
-https://nytimes.com/2024/10/09/business/zantac-settlement-gsk.html
 
