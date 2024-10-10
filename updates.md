@@ -1,3 +1,11 @@
+**In an offseason filled with choices, the Cubs will have prospects to trade**\
+`Balancing the present and the future is a constant challenge for any organization. The Cubs are at a moment when that tension is acute.`\
+https://nytimes.com/athletic/5832248/2024/10/10/cubs-offseason-prospect-trades-moves/
+
+**Israeli Strike Kills 5 Emergency Workers in Southern Lebanon**\
+`As the Israeli military pounded Hezbollah targets, Lebanon’s caretaker prime minister said that diplomatic efforts to secure a pause in the fighting had “intensified.”`\
+https://nytimes.com/2024/10/10/world/middleeast/lebanon-israel-hezbollah.html
+
 **How the Chiefs defense is shutting down opposing running backs**\
 `The Chiefs' defensive motto for 2024 is "Demanding better," and it has been just that, holding running backs to 52.6 rushing yards per game.`\
 https://nytimes.com/athletic/5831721/2024/10/10/chiefs-defense-running-backs/
