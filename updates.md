@@ -1,3 +1,11 @@
+**Corrections: Oct. 10, 2024**\
+`Corrections that appeared in print on Thursday, Oct. 10, 2024.`\
+https://nytimes.com/2024/10/10/pageoneplus/corrections-oct-10-2024.html
+
+**Sotheby's to sell rare Michael Jordan jerseys, Dream Team medal ceremony flag**\
+`The Jordan jerseys in the auction are expected to sell for millions`\
+https://nytimes.com/athletic/5832863/2024/10/10/michael-jordan-jersey-dream-team-flag/
+
 **One-Stop Shop, From Scary to Merry**\
 `Known for its pop-up stores — and its army of seasonal workers — Spirit Halloween will try its hand at a longer run and a bigger holiday.`\
 https://nytimes.com/2024/10/10/style/spirit-halloween-christmas.html

@@ -1,3 +1,11 @@
+**Corrections: Oct. 10, 2024**\
+`Corrections that appeared in print on Thursday, Oct. 10, 2024.`\
+https://nytimes.com/2024/10/10/pageoneplus/corrections-oct-10-2024.html
+
+**Sotheby's to sell rare Michael Jordan jerseys, Dream Team medal ceremony flag**\
+`The Jordan jerseys in the auction are expected to sell for millions`\
+https://nytimes.com/athletic/5832863/2024/10/10/michael-jordan-jersey-dream-team-flag/
+
 **One-Stop Shop, From Scary to Merry**\
 `Known for its pop-up stores — and its army of seasonal workers — Spirit Halloween will try its hand at a longer run and a bigger holiday.`\
 https://nytimes.com/2024/10/10/style/spirit-halloween-christmas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5833171/2024/10/10/canucks-flames-loss-2024-25-seas
 **St. Petersburg, 30 miles from landfall, escapes the worst storm surge.**\
 `Trees and power lines were down across downtown St. Petersburg and surrounding neighborhoods after Hurricane Milton.`\
 https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/milton-st-petersburg-florida
-
-**Rosenthal: Mookie Betts breaks out of his postseason slump just in time for the Dodgers**\
-`Betts, who is 4 for 9 with two homers in his past two games, came into Game 3 hitless in his previous 22 playoff at-bats.`\
-https://nytimes.com/athletic/5833486/2024/10/10/mookie-betts-dodgers-playoff-hitting/
-
-**The Athletic FC: Are international matches under threat? Plus: US Soccer lay off staff**\
-`Today in TAFC: Why international games face an uncertain future, U.S. Soccer's staff lay off and a possible shortcut to Europe for Wrexham?`\
-https://nytimes.com/athletic/5833378/2024/10/10/international-matches-threat-u-s-soccer-staff/
 
