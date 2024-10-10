@@ -1,3 +1,7 @@
+**‘Not a problem tonight’: Analyzing Korpisalo’s two tough goals, four no-chancers**\
+`A breakdown of the six goals against and how the Bruins made life difficult for Korpisalo in their season opener on Tuesday. `\
+https://nytimes.com/athletic/5833748/2024/10/10/joonas-korpisalo-bruins-panthers-loss/
+
 **Israel’s Security Cabinet to Meet to Discuss Response to Iran Attack**\
 `The cabinet was expected to authorize Prime Minister Benjamin Netanyahu and Yoav Gallant, the defense minister, to initiate a retaliatory attack at their discretion, officials said.`\
 https://nytimes.com/2024/10/10/world/middleeast/israel-iran-attack-response-security-cabinet-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5746338/2024/10/10/bolivia-altitude-el-alto-colombi
 **4 Novels Deliver a Heady Mix of Fact and Fiction**\
 `In the hands of skilled novelists, the stories of an  heiress, a prime minister and a literary mystery woman are brought to life.`\
 https://nytimes.com/2024/10/10/books/review/historical-fiction.html
-
-**Sinner will be year-end world No. 1 after Alcaraz's Shanghai defeat**\
-`Sinner is the third different male player to end the year as number one in the ATP rankings in three seasons`\
-https://nytimes.com/athletic/5833662/2024/10/10/sinner-world-number-one-atp-alcaraz-2024/
 
