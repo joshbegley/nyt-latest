@@ -1,3 +1,15 @@
+**Billy Shaw, a Singular Hall of Fame Lineman, Dies at 85**\
+`He was the only inductee to play his entire career in the American Football League, where he helped the Buffalo Bills win two championships in the 1960s.`\
+https://nytimes.com/2024/10/10/sports/football/billy-shaw-a-singular-hall-of-fame-lineman-dies-at-85.html
+
+**What’s Going On in This Graph? | Oct. 23, 2024**\
+`Two powerful hurricanes recently spun up in the Gulf of Mexico.  How has ocean heat in the Gulf changed over time?`\
+https://nytimes.com/2024/10/10/learning/whats-going-on-in-this-graph-oct-23-2024.html
+
+**Bizarre Falsehoods About Hurricanes Helene and Milton Disrupt Recovery Efforts**\
+`Experts warn that weather-related disinformation can rapidly escalate into real-world risks and distract from aid.`\
+https://nytimes.com/2024/10/10/business/media/hurricane-milton-helene-conspiracy-theories.html
+
 **It’s Indoor Dining Season In New York City**\
 `These are the kind of restaurant spaces you won’t want to leave.`\
 https://nytimes.com/2024/10/10/dining/its-indoor-dining-season-in-new-york-city.html
