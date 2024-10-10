@@ -1,3 +1,11 @@
+**Warren Wilson, Pioneering Los Angeles TV Reporter, Dies at 90**\
+`In addition to covering the 1992 riots and other historically significant events, he helped facilitate the surrenders of 22 fugitives.`\
+https://nytimes.com/2024/10/10/business/media/warren-wilson-dead.html
+
+**Billy Joel Is Selling the Mansion He First Saw While Dredging Oysters**\
+`The celebrated musician has decided to part with the house of his wildest childhood dreams.`\
+https://nytimes.com/2024/10/10/realestate/billy-joel-mansion-long-island.html
+
 **A Modern Love Essay Moved Andrew Garfield**\
 `“Learning to Measure Time in Love and Loss,” by Chris Huntington, caused the actor Andrew Garfield to reflect on a universal longing for life. Garfield’s most recent film, “We Live in Time,” is also about love and loss.`\
 https://nytimes.com/video/podcasts/100000009755596/modern-love-andrew-garfield-we-live-in-time.html

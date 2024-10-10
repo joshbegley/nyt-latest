@@ -1,3 +1,7 @@
+**In a Rambling Speech, Trump Offers Gripes and Yet Another Tax Cut**\
+`Even before this latest proposal, aimed at promoting car sales, an analysis found that the former president’s economic agenda could add $15 trillion to the nation’s debt over a decade.`\
+https://nytimes.com/2024/10/10/us/politics/trump-detroit-car-loans-deductible.html
+
 **Warren Wilson, Pioneering Los Angeles TV Reporter, Dies at 90**\
 `In addition to covering the 1992 riots and other historically significant events, he helped facilitate the surrenders of 22 fugitives.`\
 https://nytimes.com/2024/10/10/business/media/warren-wilson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5834923/2024/10/10/nhl-free-agents-giordano-shatten
 **Saka being assessed after sustaining injury in England's defeat vs Greece**\
 `Lee Carsley says Bukayo Saka is being assessed after the Arsenal winger sustained an injury in England’s Nations League loss against Greece.`\
 https://nytimes.com/athletic/5834898/2024/10/10/bukayo-saka-injury-england-greece/
-
-**Candidates Square Off on Courts, Policy and Party in Maryland Senate Debate**\
-`Larry Hogan, the Republican former governor, and Angela Alsobrooks, the Democratic Prince George’s County executive, sparred over whether to expand the Supreme Court and overhaul the legislative filibuster.`\
-https://nytimes.com/2024/10/10/us/politics/candidates-maryland-senate-debate.html
 

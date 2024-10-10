@@ -1,3 +1,11 @@
+**Warren Wilson, Pioneering Los Angeles TV Reporter, Dies at 90**\
+`In addition to covering the 1992 riots and other historically significant events, he helped facilitate the surrenders of 22 fugitives.`\
+https://nytimes.com/2024/10/10/business/media/warren-wilson-dead.html
+
+**Billy Joel Is Selling the Mansion He First Saw While Dredging Oysters**\
+`The celebrated musician has decided to part with the house of his wildest childhood dreams.`\
+https://nytimes.com/2024/10/10/realestate/billy-joel-mansion-long-island.html
+
 **A Modern Love Essay Moved Andrew Garfield**\
 `“Learning to Measure Time in Love and Loss,” by Chris Huntington, caused the actor Andrew Garfield to reflect on a universal longing for life. Garfield’s most recent film, “We Live in Time,” is also about love and loss.`\
 https://nytimes.com/video/podcasts/100000009755596/modern-love-andrew-garfield-we-live-in-time.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5834898/2024/10/10/bukayo-saka-injury-england-greec
 **Candidates Square Off on Courts, Policy and Party in Maryland Senate Debate**\
 `Larry Hogan, the Republican former governor, and Angela Alsobrooks, the Democratic Prince George’s County executive, sparred over whether to expand the Supreme Court and overhaul the legislative filibuster.`\
 https://nytimes.com/2024/10/10/us/politics/candidates-maryland-senate-debate.html
-
-**Frances Conley, Neurosurgeon Who Protested Sexism, Dies at 83**\
-`She was the rare woman in her field, and a tenured professor. But when a sexist colleague was promoted, she quit, forcing a reckoning in her profession.`\
-https://nytimes.com/2024/10/10/us/frances-conley-dead.html
-
-**They left the island where Milton made landfall. Would their home survive?**\
-`By Patricia Mazzei`\
-https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/they-left-the-island-where-milton-made-landfall-would-their-home-survive
 
