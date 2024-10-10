@@ -1,3 +1,11 @@
+**‘The Confidante’ Is a Layered French Drama About a Heartbreaking Scam**\
+`Streaming on Max, the series tells the story of woman who lies to a grief support group about her connection to the Paris terrorist attacks of 2015.`\
+https://nytimes.com/2024/10/10/arts/television/the-confidante-max-french.html
+
+**Who Are the U.N. Peacekeepers at Lebanon’s Border With Israel?**\
+`Established to maintain peace in southern Lebanon, the UNIFIL forces have been increasingly caught in the middle of the Israeli-Hezbollah war.`\
+https://nytimes.com/2024/10/10/world/middleeast/unifil-un-peacekeepers-lebanon.html
+
 **September Was Deadly Month for Russian Troops in Ukraine, U.S. Says**\
 `More than 600,000 Russian troops have been killed or wounded since the war began in 2022.`\
 https://nytimes.com/2024/10/10/us/politics/russia-casualties-ukraine-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/us/politics/steve-garvey-senate-padres-dodgers.ht
 **NASCAR at Charlotte Road Course odds, predictions for playoff race: Who will survive the cut?**\
 `It's time for another elimination race in the Cup Series Playoffs, but a non-playoff driver is favored to win at the Charlotte Road Course.`\
 https://nytimes.com/athletic/5834237/2024/10/10/nascar-cup-series-charlotte-road-course-bank-of-america-roval-400-odds-expert-predictions/
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/10/10/books/review/new-books-recommendations.html
-
-**Daytona Beach and surrounding areas bore the brunt of Milton’s back end. Rescuers are rushing to help.**\
-`By Abigail Geiger`\
-https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/daytona-beach-and-surrounding-areas-bore-the-brunt-of-miltons-back-end-rescuers-are-rushing-to-help
 

@@ -1,3 +1,11 @@
+**‘The Confidante’ Is a Layered French Drama About a Heartbreaking Scam**\
+`Streaming on Max, the series tells the story of woman who lies to a grief support group about her connection to the Paris terrorist attacks of 2015.`\
+https://nytimes.com/2024/10/10/arts/television/the-confidante-max-french.html
+
+**Who Are the U.N. Peacekeepers at Lebanon’s Border With Israel?**\
+`Established to maintain peace in southern Lebanon, the UNIFIL forces have been increasingly caught in the middle of the Israeli-Hezbollah war.`\
+https://nytimes.com/2024/10/10/world/middleeast/unifil-un-peacekeepers-lebanon.html
+
 **September Was Deadly Month for Russian Troops in Ukraine, U.S. Says**\
 `More than 600,000 Russian troops have been killed or wounded since the war began in 2022.`\
 https://nytimes.com/2024/10/10/us/politics/russia-casualties-ukraine-war.html
