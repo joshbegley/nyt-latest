@@ -1,3 +1,7 @@
+**Hurricane Milton is sucking water out of Tampa Bay. Here’s why.**\
+`The effect is called a reverse storm surge, but it won’t last, and the water could come rushing back.`\
+https://nytimes.com/live/2024/10/09/us/hurricane-milton-florida-landfall/milton-reverse-surge-tampa
+
 **In a pitch to young voters, Tim Walz appears via a videogame livestream.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/09/us/harris-trump-election/tim-walz-twitch-stream
