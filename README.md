@@ -1,3 +1,27 @@
+**The Pulse: OMG, Mets**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5831572/2024/10/10/mets-phillies-nlcs-the-pulse/
+
+**With inflation ‘still somewhat elevated,’ Fed officials were divided on how much to cut rates.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/with-inflation-still-somewhat-elevated-fed-officials-were-divided-on-how-much-to-cut-rates
+
+**Han Kang Is Awarded Nobel Prize in Literature**\
+`The South Korean author, best known for “The Vegetarian,” was announced as the latest recipient of literature’s pre-eminent award.`\
+https://nytimes.com/2024/10/10/arts/nobel-prize-literature.html
+
+**Twins' departing free agents: Should they try to re-sign Kepler, Santana, Thielbar?**\
+`With a payroll crunch and six departing free agents, including several prominent names, the Twins will have some tough decisions to make.`\
+https://nytimes.com/athletic/5822071/2024/10/10/twins-free-agents-max-kepler-carlos-santana-caleb-thielbar/
+
+**Ex-Wild coach Dean Evason returns to Minnesota, ready to move on and embrace his new challenge**\
+`Evason and the Blue Jackets come to St. Paul for the season opener Thursday. "I can't wait to take it all in," the former Wild coach says.`\
+https://nytimes.com/athletic/5831693/2024/10/10/dean-evason-wild-return/
+
+**Broncos LB Justin Strnad's rise tempered by concerns over Hurricane Milton**\
+`Strnad hadn't played defensive snaps for three years, but he's impressed while filling in for injured linebacker Alex Singleton.`\
+https://nytimes.com/athletic/5831859/2024/10/10/justin-strnad-broncos-hurricane-milton/
+
 **Let’s Discuss: ‘Don’t Call It an “Ethnic” Grocery Store’**\
 `How can food feel like home? Read the article and post your comments and questions for our journalist Priya Krishna by Oct. 17.`\
 https://nytimes.com/2024/10/10/learning/lesson-plans/lets-discuss-dont-call-it-an-ethnic-grocery-store.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/10/10/movies/terrifier-3-review.html
 **More Than 3 Million Are Without Power in Florida**\
 `Downed power lines and scattered debris from Hurricane Milton caused widespread power outages that may prove difficult for utility companies to repair.`\
 https://nytimes.com/2024/10/10/weather/hurricane-milton-power-outages-map-florida.html
-
-**Hurricane Milton’s Destruction**\
-`We cover the latest on the storm.`\
-https://nytimes.com/2024/10/10/briefing/hurricane-milton-florida-latest.html
-
-**'Always another level': Donovan Mitchell believes Cavs are ready to take next step**\
-`With a new coach and his teammates signed to new deals, Mitchell, who signed an extension himself, is ready to help the Cavs become elite.`\
-https://nytimes.com/athletic/5831907/2024/10/10/donovan-mitchell-cleveland-cavaliers-2024/
-
-**Southgate to take a year out from coaching, national team role 'unlikely'**\
-`Gareth Southgate says he intends to have one year away from coaching after leaving his role as England manager in July.`\
-https://nytimes.com/athletic/5833360/2024/10/10/gareth-southgate-manager-next/
-
-**Haaland 'does not regret much' after throwing ball at Gabriel’s head**\
-`Manchester City striker Erling Haaland has said he &#8220;does not regret much in life&#8221; after throwing the ball at Arsenal defender Gabriel&#8217;s head during their Premier League encounter last month.`\
-https://nytimes.com/athletic/5833285/2024/10/10/erling-haaland-gabriel-manchester-city-arsenal/
-
-**In an offseason filled with choices, the Cubs will have prospects to trade**\
-`Balancing the present and the future is a constant challenge for any organization. The Cubs are at a moment when that tension is acute.`\
-https://nytimes.com/athletic/5832248/2024/10/10/cubs-offseason-prospect-trades-moves/
-
-**Israeli Strike Kills 5 Emergency Workers in Southern Lebanon**\
-`As the Israeli military pounded Hezbollah targets, Lebanon’s caretaker prime minister said that diplomatic efforts to secure a pause in the fighting had “intensified.”`\
-https://nytimes.com/2024/10/10/world/middleeast/lebanon-israel-hezbollah.html
 
