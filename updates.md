@@ -1,3 +1,15 @@
+**Crane Collapses in Downtown St. Petersburg as Milton Batters Florida**\
+`City officials said the crane had collapsed onto a neighboring building, which houses the Tampa Bay Times newspaper offices.`\
+https://nytimes.com/2024/10/10/weather/st-petersburg-building-crane-hurricane-milton.html
+
+**Atletico appeal partial stadium closure for crowd trouble during Madrid derby**\
+`Atletico Madrid have appealed the partial stadium closure imposed upon them for the crowd trouble at last month’s derby against Real Madrid.`\
+https://nytimes.com/athletic/5833321/2024/10/10/atletico-madrid-stadium-ban-appeal/
+
+**Mason to stay at Spurs despite Anderlecht talks**\
+`Ryan Mason will be staying at Tottenham Hotspur following talks with Anderlecht about becoming their new manager.`\
+https://nytimes.com/athletic/5833298/2024/10/10/ryan-mason-spurs-anderlecht/
+
 **Rubble, and Defiance**\
 `Once lively and densely packed, the area on the edges of Beirut that was hit by an Israeli strike is now vacant.`\
 https://nytimes.com/2024/10/10/world/europe/lebanon-hezbollah-israel.html

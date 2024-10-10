@@ -1,3 +1,15 @@
+**Crane Collapses in Downtown St. Petersburg as Milton Batters Florida**\
+`City officials said the crane had collapsed onto a neighboring building, which houses the Tampa Bay Times newspaper offices.`\
+https://nytimes.com/2024/10/10/weather/st-petersburg-building-crane-hurricane-milton.html
+
+**Atletico appeal partial stadium closure for crowd trouble during Madrid derby**\
+`Atletico Madrid have appealed the partial stadium closure imposed upon them for the crowd trouble at last month’s derby against Real Madrid.`\
+https://nytimes.com/athletic/5833321/2024/10/10/atletico-madrid-stadium-ban-appeal/
+
+**Mason to stay at Spurs despite Anderlecht talks**\
+`Ryan Mason will be staying at Tottenham Hotspur following talks with Anderlecht about becoming their new manager.`\
+https://nytimes.com/athletic/5833298/2024/10/10/ryan-mason-spurs-anderlecht/
+
 **Rubble, and Defiance**\
 `Once lively and densely packed, the area on the edges of Beirut that was hit by an Israeli strike is now vacant.`\
 https://nytimes.com/2024/10/10/world/europe/lebanon-hezbollah-israel.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5832452/2024/10/10/jeremiah-smith-ohio-state-footba
 **Watch: ‘How Tennessee Keeps Nearly Half a Million People From Voting’**\
 `Should former felons have their right to vote restored?`\
 https://nytimes.com/2024/10/10/learning/watch-how-tennessee-keeps-nearly-half-a-million-people-from-voting.html
-
-**49ers at Seahawks odds, expert picks, how to watch: An NFC West showdown on TNF**\
-`Seattle leads the division as both teams are looking for a bounce-back after surprise Week 5 losses. `\
-https://nytimes.com/athletic/5831736/2024/10/10/49ers-seahawks-odds-expert-picks-how-to-watch-predictions-betting/
-
-**MLB Playoffs odds, projections, schedule for ALDS Game 4s: CLE, KC face elimination**\
-`ALDS Game 4s are Thursday with the Yankees and Tigers looking at a chance to clinch their spot in the next round.`\
-https://nytimes.com/athletic/5831873/2024/10/10/mlb-playoffs-odds-projections-schedule-for-thursday-alds-game-4/
-
-**Michigan mailbag: How does Sherrone Moore need to change? Can O-line be fixed?**\
-`Answering your Michigan football questions about what Moore needs to fix, what's gone wrong up front, Wink Martindale and more.`\
-https://nytimes.com/athletic/5831596/2024/10/10/sherrone-moore-michigan-coach-first-year/
 
