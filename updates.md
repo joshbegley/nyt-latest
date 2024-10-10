@@ -1,3 +1,7 @@
+**George Baldock - the Steel City's adopted son - epitomised the Sheffield United fairytale**\
+`The boy who grew up in Buckinghamshire became a hero at Bramall Lane - his death has left a club and city in shock`\
+https://nytimes.com/athletic/5833248/2024/10/10/george-baldock-sheffield-united-obituary/
+
 **Han Kang Is Awarded Nobel Prize in Literature**\
 `The South Korean author, best known for “The Vegetarian,” is the first writer from her country to receive the prestigious award.`\
 https://nytimes.com/2024/10/10/arts/nobel-prize-literature.html
