@@ -1,3 +1,7 @@
+**Johnston and LeBrun: What we're hearing about 4 veteran UFA defensemen looking for another shot**\
+`With the NHL season off and running, there are still a number of veteran defensemen who hope the game hasn't completely passed them by.`\
+https://nytimes.com/athletic/5834923/2024/10/10/nhl-free-agents-giordano-shattenkirk-schultz-klingberg/
+
 **Johnston and Lebrun: What we're hearing about 4 veteran UFA defensemen looking for another shot**\
 `With the NHL season off and running, there are still a number of veteran defensemen who hope the game hasn't completely passed them by.`\
 https://nytimes.com/athletic/5834923/2024/10/10/nhl-free-agents-giordano-shattenkirk-schultz-klingberg/
