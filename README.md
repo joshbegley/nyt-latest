@@ -1,3 +1,11 @@
+**Hurricane Milton Destroys Roof of Tropicana Field Stadium**\
+`The St. Petersburg stadium, home to M.L.B.’s Tampa Bay Rays, was being used to house emergency workers. Video showed parts of the fiberglass roof blowing in the wind.`\
+https://nytimes.com/2024/10/10/us/tropicana-field-milton-tampa-bay.html
+
+**Holding in the penalty area: What are the Premier League's rules and how are they applied?**\
+`Some Premier League teams are thriving in penalty areas while some are committing costly fouls, so what are the rules surrounding holding?`\
+https://nytimes.com/athletic/5830879/2024/10/10/premier-league-refereeing-rules-holding-penalty-area/
+
 **What are the implications of Man City’s APT case for Newcastle?**\
 `After both sides claimed victories in the case about associated party transactions, what are the implications for Newcastle?`\
 https://nytimes.com/athletic/5830512/2024/10/10/newcastle-apt-manchester-city/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5831490/2024/10/10/italy-belgium-preview-odds-predi
 **England vs Greece preview, odds, prediction: Three Lions look for third straight win**\
 `England and Greece both won their first two matches in the UEFA Nations League and now meet in Wembley.`\
 https://nytimes.com/athletic/5831362/2024/10/10/england-greece-preview-odds-prediction/
-
-**Is UEFA Nations League performance predictive or a mostly random set of results?**\
-`Spain won the UEFA Nations League and then Euro 2024. Is the Nations League at all predictive toward future success or is it a lot of noise?`\
-https://nytimes.com/athletic/5832105/2024/10/10/uefa-nations-league-predictive-or-random/
-
-**Quote of the Day: The Subject That Matters: Football 101**\
-`Quotation of the Day for Thursday, October 10, 2024`\
-https://nytimes.com/2024/10/09/pageoneplus/quote-of-the-day-the-subject-that-matters-football-101.html
 
