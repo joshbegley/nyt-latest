@@ -1,3 +1,11 @@
+**Review: In ‘The Counter,’ a Cup of Joe and an Off-the-Menu Order**\
+`A diner patron asks a waitress for an extraordinary side dish in Meghan Kennedy’s sweet but shaggy new play.`\
+https://nytimes.com/2024/10/09/theater/the-counter-review-edward-flood.html
+
+**Francisco Lindor blasts Mets past Phillies and into NLCS: Takeaways**\
+`It was only fitting that Lindor came through with the hit that sent the Mets to the NLCS, which they reached for the first time since 2015. `\
+https://nytimes.com/athletic/5832377/2024/10/09/mets-phillies-score-lindor-game-4-takeaways/
+
 **Stephen Vogt's decisions didn't pan out for Guardians. Now they face elimination**\
 `The Tigers flipped the script on the Guardians, forcing Vogt to make decisions that ultimately didn't pan out. `\
 https://nytimes.com/athletic/5832414/2024/10/09/cleveland-guardians-alds-game-3-decisions/
