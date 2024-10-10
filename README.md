@@ -1,4 +1,4 @@
-**How Canucks squandered 20 dominant minutes in opening night collapse: 3 takeaways**\
+**How Canucks squandered 20 dominant minutes in opening-night collapse: 3 takeaways**\
 `The opening of the Vancouver Canucks season — a loss to the Calgary Flames — was defined by chaos.`\
 https://nytimes.com/athletic/5832681/2024/10/10/canucks-opening-night-loss/
 
