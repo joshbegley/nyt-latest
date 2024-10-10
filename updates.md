@@ -1,3 +1,15 @@
+**Dodgers pummel Padres early to force NLDS Game 5: Takeaways**\
+`Mookie Betts set the tone early against Dylan Cease and the Dodgers never looked back in Game 4. `\
+https://nytimes.com/athletic/5832698/2024/10/10/dodgers-padres-mookie-betts-mlb-playoffs/
+
+**How Pervis Estupinan's return is changing Brighton**\
+`The left-back did as much as anyone to change the narrative against Spurs. He brings another dimension to the team`\
+https://nytimes.com/athletic/5784979/2024/10/10/how-pervis-estupinans-return-is-changing-brighton/
+
+**Bukayo Saka has passed one Marcus Rashford milestone. Can he reach a different level?**\
+`At this juncture, Saka’s trajectory is similar to the arc Rashford was on when he was a winger-cum-striker who was gliding past defenders`\
+https://nytimes.com/athletic/5829602/2024/10/10/bukayo-saka-arsenal-marcus-rashford-lessons/
+
 **Do Tottenham have a problem with Cristian Romero?**\
 `A crucial lapse of concentration against Brighton has left some Spurs fans questioning the Argentine’s place in the starting XI`\
 https://nytimes.com/athletic/5825272/2024/10/10/cristiano-romero-form/
