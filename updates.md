@@ -1,3 +1,7 @@
+**St. Petersburg, 30 miles from landfall, escapes the worst storm surge.**\
+`Trees and power lines were down across downtown St. Petersburg and surrounding neighborhoods after Hurricane Milton.`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida/milton-st-petersburg-florida
+
 **With 100-Foot-Wide Trump Sign, a Sticker Company Dives Into Politics**\
 `The chief executive of Sticker Mule in Amsterdam, N.Y., set off a debate by displaying his support for Donald J. Trump in a massive sign atop the company’s headquarters.`\
 https://nytimes.com/2024/10/10/nyregion/sticker-mule-trump-sign.html

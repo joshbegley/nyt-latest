@@ -6,7 +6,7 @@ https://nytimes.com/2024/10/10/nyregion/sticker-mule-trump-sign.html
 `The Canucks lost their season opener in baffling fashion Wednesday, underlining the difficulty of the identity the club is trying to forge.`\
 https://nytimes.com/athletic/5833171/2024/10/10/canucks-flames-loss-2024-25-season-opener/
 
-**St. Petersburg is battered by wind and rain, but escapes the worst storm surge.**\
+**St. Petersburg, 30 miles from landfall, escapes the worst storm surge.**\
 `Trees and power lines were down across downtown St. Petersburg and surrounding neighborhoods after Hurricane Milton.`\
 https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida/milton-st-petersburg-florida
 
