@@ -1,3 +1,7 @@
+**The Bounce: These 5 NBA teams should shoot more 3s**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5833498/2024/10/10/nba-3-lebron-james-lakers-lynx-liberty-wnba-the-bounce/
+
 **Valencia fans detained in Singapore set to return home after protest against Lim**\
 `The family of two Valencia fans who were detained in Singapore after protesting against Peter Lim’s ownership say they are now set to return to Spain.`\
 https://nytimes.com/athletic/5834069/2024/10/10/valencia-fans-peter-lim-return/
