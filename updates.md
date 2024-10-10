@@ -1,3 +1,7 @@
+**Hurricane Milton’s Impacts: What We Know**\
+`Flooding, wind damage and power outages affected areas throughout Florida. At least seven people were killed.`\
+https://nytimes.com/2024/10/10/weather/hurricane-miltons-impacts-what-we-know.html
+
 **Going to Paris? Along With Art Basel, Don’t Miss These Shows.**\
 `There is no shortage of museums and art foundations to visit for those attending Art Basel Paris.`\
 https://nytimes.com/2024/10/10/arts/design/art-basel-paris-museums-exhibitions.html
