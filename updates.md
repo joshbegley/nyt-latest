@@ -1,3 +1,7 @@
+**Hurricane Milton’s Destruction**\
+`We cover the latest on the storm.`\
+https://nytimes.com/2024/10/10/briefing/hurricane-milton-florida-latest.html
+
 **'Always another level': Donovan Mitchell believes Cavs are ready to take next step**\
 `With a new coach and his teammates signed to new deals, Mitchell, who signed an extension himself, is ready to help the Cavs become elite.`\
 https://nytimes.com/athletic/5831907/2024/10/10/donovan-mitchell-cleveland-cavaliers-2024/
