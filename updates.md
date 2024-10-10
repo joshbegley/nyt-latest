@@ -1,3 +1,11 @@
+**Residents of a Mobile Home Park Join Forces to Buy Their Community**\
+`The residents are the first in the state of Maine to successfully utilize a new law making it easier for them to compete with investors and gain ownership of the land their homes sit on.`\
+https://nytimes.com/2024/10/10/realestate/brunswick-mobile-home-sale-maine.html
+
+**Barbara Lynch, a Top Boston Chef, Will Close All Her Restaurants**\
+`She helped put her city on the modern culinary map, but many employees said they paid a price in workplace abuse.`\
+https://nytimes.com/2024/10/10/dining/boston-chef-barbara-lynch-closes-restaurants.html
+
 **Jets shift Downing to offensive play-caller, strip Hackett from role**\
 `Jets interim coach Jeff Ulbrich said Aaron Rodgers was supportive of the decision to turn to Downing.`\
 https://nytimes.com/athletic/5833874/2024/10/10/todd-downing-jets-nathaniel-hackett/
