@@ -1,3 +1,11 @@
+**Ethel Kennedy: A Life in Pictures**\
+`Her life took a tragic turn when her husband, Senator Robert F. Kennedy, was assassinated, but she continued to engage in social advocacy and was recognized for her devotion to her family and nation.`\
+https://nytimes.com/2024/10/10/us/ethel-kennedy-life-photos.html
+
+**Haaland becomes Norway’s all-time leading scorer**\
+`Erling Haaland made history on Thursday by becoming Norway&#8217;s all-time leading goalscorer, netting twice in a 3-0 Nations League victory over Slovenia.`\
+https://nytimes.com/athletic/5835114/2024/10/10/erling-haaland-norway-leading-scorer/
+
 **Lee Carsley open to England Under-21 return**\
 `Lee Carsley said he would be happy to return to his old job as England Under-21s manager after a chastening 2-1 defeat to Greece at Wembley Stadium.`\
 https://nytimes.com/athletic/5835071/2024/10/10/lee-carsley-england-under-21-return/

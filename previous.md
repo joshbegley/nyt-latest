@@ -1,3 +1,11 @@
+**Ethel Kennedy: A Life in Pictures**\
+`Her life took a tragic turn when her husband, Senator Robert F. Kennedy, was assassinated, but she continued to engage in social advocacy and was recognized for her devotion to her family and nation.`\
+https://nytimes.com/2024/10/10/us/ethel-kennedy-life-photos.html
+
+**Haaland becomes Norway’s all-time leading scorer**\
+`Erling Haaland made history on Thursday by becoming Norway&#8217;s all-time leading goalscorer, netting twice in a 3-0 Nations League victory over Slovenia.`\
+https://nytimes.com/athletic/5835114/2024/10/10/erling-haaland-norway-leading-scorer/
+
 **Lee Carsley open to England Under-21 return**\
 `Lee Carsley said he would be happy to return to his old job as England Under-21s manager after a chastening 2-1 defeat to Greece at Wembley Stadium.`\
 https://nytimes.com/athletic/5835071/2024/10/10/lee-carsley-england-under-21-return/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/us/politics/trump-detroit-car-loans-deductible.ht
 **Warren Wilson, Pioneering Los Angeles TV Reporter, Dies at 90**\
 `In addition to covering the 1992 riots and other historically significant events, he helped facilitate the surrenders of 22 fugitives.`\
 https://nytimes.com/2024/10/10/business/media/warren-wilson-dead.html
-
-**Billy Joel Is Selling the Mansion He First Saw While Dredging Oysters**\
-`The celebrated musician has decided to part with the house of his wildest childhood dreams.`\
-https://nytimes.com/2024/10/10/realestate/billy-joel-mansion-long-island.html
-
-**A Modern Love Essay Moved Andrew Garfield**\
-`“Learning to Measure Time in Love and Loss,” by Chris Huntington, caused the actor Andrew Garfield to reflect on a universal longing for life. Garfield’s most recent film, “We Live in Time,” is also about love and loss.`\
-https://nytimes.com/video/podcasts/100000009755596/modern-love-andrew-garfield-we-live-in-time.html
 
