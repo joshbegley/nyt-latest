@@ -1,3 +1,7 @@
+**Stephen Vogt's decisions didn't pan out for Guardians. Now they face elimination**\
+`The Tigers flipped the script on the Guardians, forcing Vogt to make decisions that ultimately didn't pan out. `\
+https://nytimes.com/athletic/5832414/2024/10/09/cleveland-guardians-alds-game-3-decisions/
+
 **Trump Keeps the Tax Cut Promises Coming, Now for Americans Abroad**\
 `Former President Donald J. Trump said in a statement that he would seek to end the “double taxation” of Americans overseas.`\
 https://nytimes.com/2024/10/09/business/trump-tax-cut-promise-overseas.html
