@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5833171/2024/10/10/canucks-flames-loss-2024-25-seas
 
 **St. Petersburg, 30 miles from landfall, escapes the worst storm surge.**\
 `Trees and power lines were down across downtown St. Petersburg and surrounding neighborhoods after Hurricane Milton.`\
-https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida/milton-st-petersburg-florida
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/milton-st-petersburg-florida
 
 **Rosenthal: Mookie Betts breaks out of his postseason slump just in time for the Dodgers**\
 `Betts, who is 4 for 9 with two homers in his past two games, came into Game 3 hitless in his previous 22 playoff at-bats.`\
