@@ -1,3 +1,11 @@
+**Residents of a Mobile Home Park Join Forces to Buy Their Community**\
+`The residents are the first in the state of Maine to successfully utilize a new law making it easier for them to compete with investors and gain ownership of the land their homes sit on.`\
+https://nytimes.com/2024/10/10/realestate/brunswick-mobile-home-sale-maine.html
+
+**Barbara Lynch, a Top Boston Chef, Will Close All Her Restaurants**\
+`She helped put her city on the modern culinary map, but many employees said they paid a price in workplace abuse.`\
+https://nytimes.com/2024/10/10/dining/boston-chef-barbara-lynch-closes-restaurants.html
+
 **Jets shift Downing to offensive play-caller, strip Hackett from role**\
 `Jets interim coach Jeff Ulbrich said Aaron Rodgers was supportive of the decision to turn to Downing.`\
 https://nytimes.com/athletic/5833874/2024/10/10/todd-downing-jets-nathaniel-hackett/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/business/tesla-robotaxi-elon-musk.html
 **Four key takeaways from Jets' stunning season-opening win over Oilers**\
 `The Jets went toe-to-toe with the Stanley Cup favourites and kept Connor McDavid, Leon Draisaitl and company on their back foot.`\
 https://nytimes.com/athletic/5832692/2024/10/10/winnipeg-jets-oilers-score-hellebuyck/
-
-**Three key questions facing the Phillies in a critical offseason**\
-`As the Phillies begin to survey the wreckage, Dave Dombrowski has avenues to remake the outfield and bullpen. `\
-https://nytimes.com/athletic/5833027/2024/10/10/phillies-offseason-questions-trades-free-agency/
-
-**What to know about the report.**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/what-to-know-about-the-report
 
