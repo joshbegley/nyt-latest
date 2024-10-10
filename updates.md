@@ -1,3 +1,7 @@
+**‘Not a problem tonight’: Analyzing Korpisalo’s two tough goals, four no-chancers**\
+`A breakdown of the six goals against and how the Bruins made life difficult for Korpisalo in their season opener on Tuesday. `\
+https://nytimes.com/athletic/5833748/2024/10/10/joonas-korpisalo-bruins-panthers-loss/
+
 **Israel’s Security Cabinet to Meet to Discuss Response to Iran Attack**\
 `The cabinet was expected to authorize Prime Minister Benjamin Netanyahu and Yoav Gallant, the defense minister, to initiate a retaliatory attack at their discretion, officials said.`\
 https://nytimes.com/2024/10/10/world/middleeast/israel-iran-attack-response-security-cabinet-meeting.html
