@@ -1,3 +1,19 @@
+**Let’s Discuss: ‘Don’t Call It an “Ethnic” Grocery Store’**\
+`How can food feel like home? Read the article and post your comments and questions for our journalist Priya Krishna by Oct. 17.`\
+https://nytimes.com/2024/10/10/learning/lesson-plans/lets-discuss-dont-call-it-an-ethnic-grocery-store.html
+
+**‘Mad About the Boy: The Noël Coward Story’ Review: In Blithe Spirits**\
+`A brisk documentary by Barnaby Thompson counters that the tuxedo-wearing playwright hid his insecurities under a platinum-plated veneer.`\
+https://nytimes.com/2024/10/10/movies/mad-about-the-boy-the-noel-coward-story-review.html
+
+**‘Terrifier 3’ Review: Still Clowning Around**\
+`The deaths remain grisly, but the pacing uneven in this new installment in Damien Leone’s horror franchise.`\
+https://nytimes.com/2024/10/10/movies/terrifier-3-review.html
+
+**More Than 3 Million Are Without Power in Florida**\
+`Downed power lines and scattered debris from Hurricane Milton caused widespread power outages that may prove difficult for utility companies to repair.`\
+https://nytimes.com/2024/10/10/weather/hurricane-milton-power-outages-map-florida.html
+
 **Hurricane Milton’s Destruction**\
 `We cover the latest on the storm.`\
 https://nytimes.com/2024/10/10/briefing/hurricane-milton-florida-latest.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5832248/2024/10/10/cubs-offseason-prospect-trades-m
 **Israeli Strike Kills 5 Emergency Workers in Southern Lebanon**\
 `As the Israeli military pounded Hezbollah targets, Lebanon’s caretaker prime minister said that diplomatic efforts to secure a pause in the fighting had “intensified.”`\
 https://nytimes.com/2024/10/10/world/middleeast/lebanon-israel-hezbollah.html
-
-**How the Chiefs defense is shutting down opposing running backs**\
-`The Chiefs' defensive motto for 2024 is "Demanding better," and it has been just that, holding running backs to 52.6 rushing yards per game.`\
-https://nytimes.com/athletic/5831721/2024/10/10/chiefs-defense-running-backs/
-
-**For Undecided Voters, What Will It Come Down To?**\
-`With Election Day less than a month away, the Times journalists Michael Barbaro, Nate Cohn, Maggie Haberman and Astead Herndon discuss some of the most pressing issues for undecided voters.`\
-https://nytimes.com/video/podcasts/the-daily/100000009752702/election-media-polling-clip.html
-
-**Jets, Bengals or Dolphins? Picking one sub-.500 team to make the playoffs in AFC**\
-`The New York Jets are in turmoil after firing coach Robert Saleh. But Aaron Rodgers & Co. are still a decent bet to make the playoffs. `\
-https://nytimes.com/athletic/5831567/2024/10/10/nfl-projection-jets-bengals-dolphins-playoffs/
-
-**What's it like to play Rafael Nadal on clay? We asked the players**\
-`"It was no fun. No fun at all." Rafael Nadal is the ultimate clay-court player. This is what facing him on his favorite surface feels like`\
-https://nytimes.com/athletic/5500866/2024/10/10/rafael-nadal-clay-opponent-experience/
 
