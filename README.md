@@ -1,3 +1,7 @@
+**Hurricane Milton: Images From Florida, Before and After the Storm**\
+`See some of the wind and flood damage from the second major storm to hit Florida in the last two weeks.`\
+https://nytimes.com/2024/10/10/us/hurricane-milton-photos-tropicana-field-siesta-key.html
+
 **Billy Shaw, a Singular Hall of Fame Lineman, Dies at 85**\
 `He was the only inductee to play his entire career in the American Football League, where he helped the Buffalo Bills win two championships in the 1960s.`\
 https://nytimes.com/2024/10/10/sports/football/billy-shaw-a-singular-hall-of-fame-lineman-dies-at-85.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/weather/tornado-death-spanish-lakes-fort-pierce.h
 **Sean Combs’s Sex Trafficking Trial Is Set for May 5**\
 `The music mogul, wearing tan jail clothes at a court hearing, waved and smiled at six of his children and his mother in the gallery.`\
 https://nytimes.com/2024/10/10/arts/music/sean-combs-diddy-trial-date.html
-
-**Baldock died while swimming at home in pool, family say**\
-`Former Sheffield United defender George Baldock drowned while swimming in the pool at his home in Athens, his family said in a statement.`\
-https://nytimes.com/athletic/5834595/2024/10/10/george-baldock-death-family-statement/
 
