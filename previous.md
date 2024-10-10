@@ -1,3 +1,7 @@
+**Golden State Valkyries tab Natalie Nakase as first head coach**\
+`Nakase just completed her third season as an assistant coach of the Las Vegas Aces.`\
+https://nytimes.com/athletic/5832699/2024/10/10/golden-state-valkyries-natalie-nakase-head-coach/
+
 **Five years after fallout, Adam Silver believes NBA will return to China**\
 `NEW YORK — Five years after the NBA&#8217;s last game in China, commissioner Adam Silver believes the league will return to the country at some point.`\
 https://nytimes.com/athletic/5834219/2024/10/10/china-nba-games-adam-silver/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5833498/2024/10/10/nba-3-lebron-james-lakers-lynx-l
 **Valencia fans detained in Singapore set to return home after protest against Lim**\
 `The family of two Valencia fans who were detained in Singapore after protesting against Peter Lim’s ownership say they are now set to return to Spain.`\
 https://nytimes.com/athletic/5834069/2024/10/10/valencia-fans-peter-lim-return/
-
-**He Evacuated Gulfport but Wondered: Would His Houseboat Survive?**\
-`Thomas Kerschen’s boat had survived several storms the last three years. But after Milton swept through, he wasn’t sure he would have a home to return to.`\
-https://nytimes.com/2024/10/10/weather/gulfport-florida-damage.html
 
