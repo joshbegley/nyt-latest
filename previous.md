@@ -1,4 +1,4 @@
-**A Phillies season with high hopes ends too soon and all that's certain is the hurt**\
+**A Phillies season with high hopes ends too soon. All that's certain is the hurt**\
 `It was hard, as the Phillies departed Citi Field, to not feel as if an opportunity had passed. It was supposed to be this team's time. `\
 https://nytimes.com/athletic/5832857/2024/10/10/phillies-eliminated-nlds-2024-season/
 
