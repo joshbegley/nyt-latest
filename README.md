@@ -1,4 +1,8 @@
-**Why Yankees say Judge is about to snap slump**\
+**How Canucks squandered 20 dominant minutes in opening night collapse: 3 takeaways**\
+`The opening of the Vancouver Canucks season — a loss to the Calgary Flames — was defined by chaos.`\
+https://nytimes.com/athletic/5832681/2024/10/10/canucks-opening-night-loss/
+
+**Why Yankees say Aaron Judge is showing signs of snapping playoff slump**\
 `Despite hitting several balls hard in Game 3, Judge is 1 for 11 with three walks in the ALDS versus the Royals.`\
 https://nytimes.com/athletic/5833007/2024/10/10/aaron-judge-yankees-playoff-slump/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5831170/2024/10/10/everton-international-break-frie
 **Dodgers pummel Padres early to force NLDS Game 5: Takeaways**\
 `Mookie Betts set the tone early against Dylan Cease and the Dodgers never looked back in Game 4. `\
 https://nytimes.com/athletic/5832698/2024/10/10/dodgers-padres-mookie-betts-mlb-playoffs/
-
-**How Pervis Estupinan's return is changing Brighton**\
-`The left-back did as much as anyone to change the narrative against Spurs. He brings another dimension to the team`\
-https://nytimes.com/athletic/5784979/2024/10/10/how-pervis-estupinans-return-is-changing-brighton/
 
