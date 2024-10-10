@@ -1,3 +1,11 @@
+**Lake and Gallego Spar Over Immigration and Abortion in Arizona Senate Debate**\
+`At times, Kari Lake, the Republican candidate and close ally of Donald Trump, veered into personal attacks. Ruben Gallego, the Democrat, needled her over frequent visits to Mar-a-Lago.`\
+https://nytimes.com/2024/10/09/us/politics/lake-gallego-debate-arizona-senate.html
+
+**Francisco Lindor's swing of a lifetime lifts the Mets into the NLCS**\
+`Of course it was Lindor at the center of it all, propelling the Mets to the NLCS with his grand slam. `\
+https://nytimes.com/athletic/5832810/2024/10/09/francisco-lindor-lifts-mets-national-league-championship-series/
+
 **Tropicana Field sustains roof damage amid Hurricane Milton**\
 `The roof of the domed stadium located in St. Petersburg, Fla., is seemingly shredded hours after Milton made landfall.`\
 https://nytimes.com/athletic/5832803/2024/10/09/hurricane-milton-tropicana-field-roof-damage/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/09/crosswords/daily-puzzle-2024-10-10.html
 **Here’s Why Hurricane Milton Is Sucking Water Out of Tampa Bay**\
 `The effect is called a reverse storm surge, but it won’t last, and the water could come rushing back.`\
 https://nytimes.com/2024/10/09/weather/milton-reverse-surge-tampa.html
-
-**Tim Walz Rally Is Livestreamed on Twitch in Pitch to Young Voters**\
-`A streamer played World of Warcraft while commenting on the Democratic nominee’s rally speech. At one point he criticized Project 2025 and at another mused about his character: “Wait, am I dying?”`\
-https://nytimes.com/2024/10/09/us/politics/tim-walz-twitch-stream.html
-
-**Review: In ‘The Counter,’ a Cup of Joe and an Off-the-Menu Order**\
-`A diner patron asks a waitress for an extraordinary side dish in Meghan Kennedy’s sweet but shaggy new play.`\
-https://nytimes.com/2024/10/09/theater/the-counter-review-edward-flood.html
 
