@@ -1,3 +1,11 @@
+**Why international football is under threat like never before**\
+`With the sport's calendar more packed than ever, something has to give - and international fixtures are in danger of falling victim`\
+https://nytimes.com/athletic/5830990/2024/10/10/international-football-future/
+
+**18-Year-Old Sherpa Becomes Youngest Climber to Summit 14 Highest Mountains**\
+`Nima Rinji Sherpa’s achievement highlights the role of Sherpas in an activity where they shoulder much of the risk but receive little glory.`\
+https://nytimes.com/2024/10/10/world/asia/highest-mountains-sherpa-tibet.html
+
 **Hurricane Milton Destroys Roof of Tropicana Field Stadium**\
 `The St. Petersburg stadium, home to M.L.B.’s Tampa Bay Rays, was being used to house emergency workers. Video showed parts of the fiberglass roof blowing in the wind.`\
 https://nytimes.com/2024/10/10/us/tropicana-field-milton-tampa-bay.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5830932/2024/10/10/england-carsley-things-to-look-o
 **England have used 13 strikers since Solanke's last game in 2017 - this is how they got on**\
 `Dominic Solanke could play for England for the first time since 2017 on Thursday — here are the men who have played up front since then`\
 https://nytimes.com/athletic/5825886/2024/10/10/england-dominic-solanke-strikers/
-
-**Italy vs Belgium preview: Storylines, odds, prediction as powers meet in Nations League**\
-`Italy and Belgium are both coming off disappointing Euro campaigns but the Italians have had a strong start in the Nations League.`\
-https://nytimes.com/athletic/5831490/2024/10/10/italy-belgium-preview-odds-prediction/
-
-**England vs Greece preview, odds, prediction: Three Lions look for third straight win**\
-`England and Greece both won their first two matches in the UEFA Nations League and now meet in Wembley.`\
-https://nytimes.com/athletic/5831362/2024/10/10/england-greece-preview-odds-prediction/
 

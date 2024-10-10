@@ -1,3 +1,11 @@
+**Why international football is under threat like never before**\
+`With the sport's calendar more packed than ever, something has to give - and international fixtures are in danger of falling victim`\
+https://nytimes.com/athletic/5830990/2024/10/10/international-football-future/
+
+**18-Year-Old Sherpa Becomes Youngest Climber to Summit 14 Highest Mountains**\
+`Nima Rinji Sherpa’s achievement highlights the role of Sherpas in an activity where they shoulder much of the risk but receive little glory.`\
+https://nytimes.com/2024/10/10/world/asia/highest-mountains-sherpa-tibet.html
+
 **Hurricane Milton Destroys Roof of Tropicana Field Stadium**\
 `The St. Petersburg stadium, home to M.L.B.’s Tampa Bay Rays, was being used to house emergency workers. Video showed parts of the fiberglass roof blowing in the wind.`\
 https://nytimes.com/2024/10/10/us/tropicana-field-milton-tampa-bay.html
