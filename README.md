@@ -1,3 +1,15 @@
+**The Briefing: England 1-2 Greece - Carsley's wake-up call, defensive jitters and a fitting tribute to Baldock**\
+`Greece secured their first ever win over England to bring Lee Carsley and his team back down to earth with a bump`\
+https://nytimes.com/athletic/5830927/2024/10/10/england-bellingham-stones-greece-baldock/
+
+**Russell Wilson: 'Confident I'd be ready to play' if needed Sunday**\
+`Wilson was noncommittal about making his Steelers debut or what his role will be, but signs point to him backing up Justin Fields.`\
+https://nytimes.com/athletic/5834761/2024/10/10/russell-wilson-injury-steelers-raiders/
+
+**Tim Johnson, Senator Who Came Back From an Aneurysm, Dies at 77**\
+`One of the last Democrats from the Great Plains to be elected to national office, he built his career on delivering benefits to his home state, South Dakota.`\
+https://nytimes.com/2024/10/10/us/politics/tim-johnson-dead.html
+
 **Man Pleads Guilty to Hate Crime for Vandalizing Rutgers Islamic Center**\
 `Officials said the man caused thousands of dollars’ worth of damage to religious artifacts after breaking into the New Jersey university’s Center for Islamic Life in April.`\
 https://nytimes.com/2024/10/10/nyregion/rutgers-hate-crime-muslim.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/10/us/hurricane-milton-photos-tropicana-field-siesta
 **Billy Shaw, a Singular Hall of Fame Lineman, Dies at 85**\
 `He was the only inductee to play his entire career in the American Football League, where he helped the Buffalo Bills win two championships in the 1960s.`\
 https://nytimes.com/2024/10/10/sports/football/billy-shaw-dead.html
-
-**What’s Going On in This Graph? | Oct. 23, 2024**\
-`Two powerful hurricanes recently spun up in the Gulf of Mexico.  How has ocean heat in the Gulf changed over time?`\
-https://nytimes.com/2024/10/10/learning/whats-going-on-in-this-graph-oct-23-2024.html
-
-**Bizarre Falsehoods About Hurricanes Helene and Milton Disrupt Recovery Efforts**\
-`Experts warn that weather-related disinformation can rapidly escalate into real-world risks and distract from aid.`\
-https://nytimes.com/2024/10/10/business/media/hurricane-milton-helene-conspiracy-theories.html
-
-**It’s Indoor Dining Season In New York City**\
-`These are the kind of restaurant spaces you won’t want to leave.`\
-https://nytimes.com/2024/10/10/dining/its-indoor-dining-season-in-new-york-city.html
 
