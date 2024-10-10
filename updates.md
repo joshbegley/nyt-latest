@@ -1,3 +1,7 @@
+**Claudia Conway Declares Her Independence**\
+`The scion and sometimes antagonist of two figures in Republican politics has re-emerged as an independent aiming to sway her fellow Gen-Z voters.`\
+https://nytimes.com/2024/10/10/style/claudia-conway-gen-z-voters-politics.html
+
 **Alexander-Arnold: 'I don't want to be the player who only won trophies young'**\
 `Trent Alexander-Arnold says he does not want to remembered as &#8220;the player who only won trophies when he was young&#8221;.`\
 https://nytimes.com/athletic/5834724/2024/10/10/trent-alexander-arnold-ambitions-liverpool/

@@ -31,7 +31,7 @@ https://nytimes.com/2024/10/10/dining/its-indoor-dining-season-in-new-york-city.
 https://nytimes.com/2024/10/10/style/time100-next-sabrina-carpenter.html
 
 **Claudia Conway Declares Her Independence**\
-`The scion and sometimes antagonist of two prominent Republicans has rejoined the political discourse as an independent aiming to sway her fellow Gen-Z voters.`\
+`The scion and sometimes antagonist of two figures in Republican politics has re-emerged as an independent aiming to sway her fellow Gen-Z voters.`\
 https://nytimes.com/2024/10/10/style/claudia-conway-gen-z-voters-politics.html
 
 **How to Help Victims of Hurricane Milton**\
