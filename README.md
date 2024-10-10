@@ -1,3 +1,11 @@
+**Age of Tropicana Field roof played role in Hurricane Milton damage, stadium engineer says**\
+`“It’s well past its intended service life,” said David Campbell, who worked on the team that installed the roof for the dome's 1990 opening.`\
+https://nytimes.com/athletic/5834270/2024/10/10/tropicana-field-roof-damage-hurricane-milton-engineer/
+
+**In flooded Lakeland, the police rescued a woman, her dog and her cats.**\
+`By Nicole Craine`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/in-flooded-lakeland-the-police-rescued-a-woman-her-dog-and-her-cats
+
 **Millions Are Without Power After Milton Tore Through Florida**\
 `Also, Republicans appear poised to win control of the Senate. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/10/10/briefing/hurricane-milton-damage-senate-polls.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/t
 **Trump Says He Was ‘Man of the Year.’ His Source Says It Isn’t True.**\
 `Fact-checkers have found no evidence over the years that former President Donald J. Trump once received the honor in Michigan.`\
 https://nytimes.com/2024/10/10/us/politics/trump-man-of-year.html
-
-**Friday Briefing: Florida Hurricane Kills at Least 7**\
-`Plus, Han Kang receives the Nobel Prize in Literature.`\
-https://nytimes.com/2024/10/10/briefing/hurricane-beirut-senate.html
-
-**Mets NLCS roster decisions: Bringing back Jeff McNeil, setting up the rotation**\
-`McNeil’s versatility and his left-handed bat give Carlos Mendoza several ways to work him back into the mix.`\
-https://nytimes.com/athletic/5834759/2024/10/10/mets-nlcs-roster-prediction/
 
