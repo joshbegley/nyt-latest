@@ -1,3 +1,7 @@
+**NASCAR at Charlotte Road Course odds, predictions for playoff race: Who will survive the cut?**\
+`It's time for another elimination race in the Cup Series Playoffs, but a non-playoff driver is favored to win at the Charlotte Road Course.`\
+https://nytimes.com/athletic/5834237/2024/10/10/nascar-cup-series-charlotte-road-course-bank-of-america-roval-400-odds-expert-predictions/
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/10/10/books/review/new-books-recommendations.html
