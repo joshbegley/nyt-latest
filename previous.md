@@ -1,3 +1,7 @@
+**Florida IV Fluid Plant Spared From Storm, Company Says**\
+`Milton threatened a Daytona Beach site that produces one-fourth of the nation’s IV medical solutions, which were already in short supply because of storm damage in North Carolina.`\
+https://nytimes.com/2024/10/10/health/florida-iv-bags-shortages.html
+
 **Garvey’s M.L.B. Teams Are Contenders. His Senate Campaign? Not So Much.**\
 `As his old teams — the Los Angeles Dodgers and the San Diego Padres — battle in the playoffs, the onetime all-star Steve Garvey finds himself an underdog in his Senate race against Adam Schiff.`\
 https://nytimes.com/2024/10/10/us/politics/steve-garvey-senate-padres-dodgers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5834219/2024/10/10/china-nba-games-adam-silver/
 **Chile Crisp Everything**\
 `By Mia Leimkuhler`\
 https://nytimes.com/2024/10/10/dining/chile-crisp-recipes.html
-
-**How Back-to-Back Hurricanes Harm Mental Health**\
-`Research shows that experiencing repeated disasters makes people more vulnerable to mental health issues, and prolongs the time it takes to recover.`\
-https://nytimes.com/2024/10/10/well/hurricane-milton-helene-mental-health.html
 
