@@ -1,3 +1,7 @@
+**Hurricane Milton’s Impacts: What We Know**\
+`Flooding, wind damage and power outages affected areas throughout Florida. At least seven people were killed.`\
+https://nytimes.com/live/2024/10/10/weather/hurricane-milton-florida-live-news/hurricane-miltons-impacts-what-we-know
+
 **Going to Paris? Along With Art Basel, Don’t Miss These Shows.**\
 `There is no shortage of museums and art foundations to visit for those attending Art Basel Paris.`\
 https://nytimes.com/2024/10/10/arts/design/art-basel-paris-museums-exhibitions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/us/politics/tim-johnson-dead.html
 **Man Pleads Guilty to Hate Crime for Vandalizing Rutgers Islamic Center**\
 `Officials said the man caused thousands of dollars’ worth of damage to religious artifacts after breaking into the New Jersey university’s Center for Islamic Life in April.`\
 https://nytimes.com/2024/10/10/nyregion/rutgers-hate-crime-muslim.html
-
-**Biden Again Criticizes Trump Over Hurricane Misinformation: ‘Get a Life, Man’**\
-`The White House is juggling the response to two devastating storms in the past two weeks while trying to rebut false information from the former president.`\
-https://nytimes.com/2024/10/10/us/politics/biden-trump-hurricane-misinformation.html
 
