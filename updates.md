@@ -1,5 +1,9 @@
 **Hurricane Milton’s Impacts: What We Know**\
 `Flooding, wind damage and power outages affected areas throughout Florida. At least seven people were killed.`\
+https://nytimes.com/2024/10/10/weather/hurricane-milton-damage-florida.html
+
+**Hurricane Milton’s Impacts: What We Know**\
+`Flooding, wind damage and power outages affected areas throughout Florida. At least seven people were killed.`\
 https://nytimes.com/2024/10/10/weather/hurricane-miltons-impacts-what-we-know.html
 
 **Going to Paris? Along With Art Basel, Don’t Miss These Shows.**\
