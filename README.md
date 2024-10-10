@@ -1,4 +1,4 @@
-**After a Harrowing Night, Clearwater, Fla. Faces Severe Flooding**\
+**After a Harrowing Night, Clearwater, Fla., Faces Severe Flooding**\
 `Residents of one apartment building described fleeing a second-floor unit as water rose around them. After the storm, they are worried about those who lived below them.`\
 https://nytimes.com/2024/10/10/weather/clearwater-florida-severe-flooding.html
 
