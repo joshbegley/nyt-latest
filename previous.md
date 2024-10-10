@@ -1,4 +1,4 @@
-**Stanton's homer gives Yankees' ALDS edge over Royals: Takeaways**\
+**Stanton's homer gives Yankees ALDS edge over Royals: Takeaways**\
 `The Yankees took a 2-1 lead in the series, with ace Gerrit Cole set to take the mound against Michael Wacha in Game 4 on Thursday.`\
 https://nytimes.com/athletic/5832524/2024/10/09/yankees-royals-score-stanton-game-4-takeaways/
 
@@ -16,7 +16,7 @@ https://nytimes.com/2024/10/09/weather/milton-reverse-surge-tampa.html
 
 **In a pitch to young voters, Tim Walz appears via a videogame livestream.**\
 `By Simon J. Levien`\
-https://nytimes.com/live/2024/10/09/us/harris-trump-election/tim-walz-twitch-stream
+https://nytimes.com/2024/10/09/us/politics/tim-walz-twitch-stream.html
 
 **Review: In ‘The Counter,’ a Cup of Joe and an Off-the-Menu Order**\
 `A diner patron asks a waitress for an extraordinary side dish in Meghan Kennedy’s sweet but shaggy new play.`\
