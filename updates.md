@@ -1,3 +1,15 @@
+**Bournemouth owner Foley in talks to buy Moreirense**\
+`Bournemouth owner Bill Foley is in talks to buy Portuguese club Moreirense.`\
+https://nytimes.com/athletic/5833330/2024/10/10/bournemouth-bill-foley-moreirense/
+
+**Doc Rivers turns to Greg Buckner for a new direction to help revive the Bucks defense**\
+`Last year, the Bucks struggled to defend and Rivers knew they needed to improve. Enter Buckner as Milwaukee's defensive coordinator.`\
+https://nytimes.com/athletic/5831860/2024/10/10/doc-rivers-greg-buckner-bucks-defense/
+
+**New York Jets next coach odds: Ben Johnson favored, Bill Belichick a long shot**\
+`Will the Jets look to hire a new head coach after the season? Here's what the betting odds reveal about the list of potential candidates.`\
+https://nytimes.com/athletic/5832658/2024/10/10/ny-jets-coach-bill-belichick-johnson-rodgers/
+
 **Ukraine’s Parliament Approves Biggest Tax Hike of War to Support the Army**\
 `The authorities are resorting to a politically unpopular move as they scramble to raise funds for the grueling military effort against Russia.`\
 https://nytimes.com/2024/10/10/world/europe/ukraine-tax-hike-war.html
