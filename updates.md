@@ -1,3 +1,7 @@
+**Ukraine’s Parliament Approves Biggest Tax Hike of War to Support the Army**\
+`The authorities are resorting to a politically unpopular move as they scramble to raise funds for the grueling military effort against Russia.`\
+https://nytimes.com/2024/10/10/world/europe/ukraine-tax-hike-war.html
+
 **Food inflation sped up in September.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2024/10/10/business/cpi-inflation-fed/food-prices-increases-accelerated-in-september
