@@ -1,3 +1,7 @@
+**A Hurricane’s Lasting Death Toll Is Always Much Larger Than It Seems**\
+`The full impact may not be known for years.`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/hurricane-lasting-death-toll
+
 **Reasons to Vote for Harris, Not Trump**\
 `Readers respond to an editorial and critiques of the former president by those who have worked with him. Also: young voter outreach; L.G.B.T.Q. Jews; the war in Gaza; Robert Moses.`\
 https://nytimes.com/2024/10/10/opinion/election-harris-trump.html

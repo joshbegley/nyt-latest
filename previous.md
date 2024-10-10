@@ -1,3 +1,7 @@
+**A Hurricane’s Lasting Death Toll Is Always Much Larger Than It Seems**\
+`The full impact may not be known for years.`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/hurricane-lasting-death-toll
+
 **Reasons to Vote for Harris, Not Trump**\
 `Readers respond to an editorial and critiques of the former president by those who have worked with him. Also: young voter outreach; L.G.B.T.Q. Jews; the war in Gaza; Robert Moses.`\
 https://nytimes.com/2024/10/10/opinion/election-harris-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/us/raccoons-washington-home.html
 **Golden State Valkyries tab Natalie Nakase as first head coach**\
 `Nakase just completed her third season as an assistant coach of the Las Vegas Aces.`\
 https://nytimes.com/athletic/5832699/2024/10/10/golden-state-valkyries-natalie-nakase-head-coach/
-
-**Five years after fallout, Adam Silver believes NBA will return to China**\
-`NEW YORK — Five years after the NBA&#8217;s last game in China, commissioner Adam Silver believes the league will return to the country at some point.`\
-https://nytimes.com/athletic/5834219/2024/10/10/china-nba-games-adam-silver/
 
