@@ -1,3 +1,7 @@
+**Hurricane Milton: Images From Florida, Before and After the Storm**\
+`See some of the wind and flood damage from the second major storm to hit Florida in the last two weeks.`\
+https://nytimes.com/2024/10/10/us/hurricane-milton-photos-tropicana-field-siesta-key.html
+
 **Billy Shaw, a Singular Hall of Fame Lineman, Dies at 85**\
 `He was the only inductee to play his entire career in the American Football League, where he helped the Buffalo Bills win two championships in the 1960s.`\
 https://nytimes.com/2024/10/10/sports/football/billy-shaw-a-singular-hall-of-fame-lineman-dies-at-85.html
