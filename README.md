@@ -1,3 +1,7 @@
+**Officials and Residents Credit Hurricane Warnings With Saving Lives**\
+`The warnings from officials were dire, and they appear to have been effective.`\
+https://nytimes.com/2024/10/10/weather/hurricane-warnings-milton-florida.html
+
 **A Stern Obama Tells Black Men to Drop ‘Excuses’ and Support Harris**\
 `Before speaking at a rally for Vice President Kamala Harris in Pittsburgh, the former president spoke directly to Black male voters in an effort to bolster flagging support.`\
 https://nytimes.com/2024/10/10/us/politics/obama-harris-pittsburgh-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/us/daca-dreamers-fifth-circuit-appeals-court-hear
 **SEC, Big Ten rail against private equity proposals**\
 `SEC and Big Ten officials and athletic directors met Thursday to discuss the House settlement, NCAA governance issues, the CFP and more.`\
 https://nytimes.com/athletic/5835115/2024/10/10/sec-big-ten-college-football-investments/
-
-**Tim Walz Takes His Folksiness on the Road, Trying Not to Say ‘Stupid Things’**\
-`On a swing through the Southwest, the Democratic vice-presidential candidate received a warm welcome — and had to clean up his remarks about the Electoral College.`\
-https://nytimes.com/2024/10/10/us/elections/tim-walz-southwest-tour.html
 
