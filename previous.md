@@ -6,7 +6,7 @@ https://nytimes.com/2024/10/09/us/politics/lake-gallego-debate-arizona-senate.ht
 `Of course it was Lindor at the center of it all, propelling the Mets to the NLCS with his grand slam. `\
 https://nytimes.com/athletic/5832810/2024/10/09/francisco-lindor-lifts-mets-national-league-championship-series/
 
-**Tropicana Field sustains roof damage amid Hurricane Milton**\
+**Tropicana Field sustains major roof damage amid Hurricane Milton**\
 `The roof of the domed stadium located in St. Petersburg, Fla., is seemingly shredded hours after Milton made landfall.`\
 https://nytimes.com/athletic/5832803/2024/10/09/hurricane-milton-tropicana-field-roof-damage/
 

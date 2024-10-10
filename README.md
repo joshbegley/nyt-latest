@@ -1,3 +1,7 @@
+**Quote of the Day: The Subject That Matters: Football 101**\
+`Quotation of the Day for Thursday, October 10, 2024`\
+https://nytimes.com/2024/10/09/pageoneplus/quote-of-the-day-the-subject-that-matters-football-101.html
+
 **Lake and Gallego Spar Over Immigration and Abortion in Arizona Senate Debate**\
 `At times, Kari Lake, the Republican candidate and close ally of Donald Trump, veered into personal attacks. Ruben Gallego, the Democrat, needled her over frequent visits to Mar-a-Lago.`\
 https://nytimes.com/2024/10/09/us/politics/lake-gallego-debate-arizona-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832638/2024/10/09/maple-leafs-report-cards-canadie
 **What Makes a Sticker Stickier**\
 `Choose your battles carefully while solving Grant Boroughs’s puzzle.`\
 https://nytimes.com/2024/10/09/crosswords/daily-puzzle-2024-10-10.html
-
-**Here’s Why Hurricane Milton Is Sucking Water Out of Tampa Bay**\
-`The effect is called a reverse storm surge, but it won’t last, and the water could come rushing back.`\
-https://nytimes.com/2024/10/09/weather/milton-reverse-surge-tampa.html
 
