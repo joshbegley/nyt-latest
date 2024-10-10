@@ -1,6 +1,10 @@
+**Five years after fallout, Adam Silver believes NBA will return to China**\
+`NEW YORK — Five years after the NBA&#8217;s last game in China, commissioner Adam Silver believes the league will return to the country at some point.`\
+https://nytimes.com/athletic/5834219/2024/10/10/china-nba-games-adam-silver/
+
 **Chile Crisp Everything**\
 `By Mia Leimkuhler`\
-https://nytimes.com/2024/10/10/dining/chile-crisp-everything.html
+https://nytimes.com/2024/10/10/dining/chile-crisp-recipes.html
 
 **How Back-to-Back Hurricanes Harm Mental Health**\
 `Research shows that experiencing repeated disasters makes people more vulnerable to mental health issues, and prolongs the time it takes to recover.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5834069/2024/10/10/valencia-fans-peter-lim-return/
 **He Evacuated Gulfport but Wondered: Would His Houseboat Survive?**\
 `Thomas Kerschen’s boat had survived several storms the last three years. But after Milton swept through, he wasn’t sure he would have a home to return to.`\
 https://nytimes.com/2024/10/10/weather/gulfport-florida-damage.html
-
-**London Hosts Its Frieze Week in the Shadow of Paris**\
-`Plenty of business was done on the first day of the London fair, but much of the chatter was about the upcoming presentations at Art Basel Paris.`\
-https://nytimes.com/2024/10/10/arts/design/london-frieze-week.html
 
