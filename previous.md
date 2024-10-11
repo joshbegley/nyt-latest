@@ -1,3 +1,11 @@
+**Linus Ullmark shows why the Senators' investment in him was necessary: 5 takeaways**\
+`Ottawa fans have $33 million reasons to smile at new goalie Ullmark, and the good times started in the opener.`\
+https://nytimes.com/athletic/5835030/2024/10/11/senators-takeaways-stutzle-pinto-ullmark/
+
+**As the Yankees move past the Royals on way to the ALCS, Jazz Chisholm gets the final word**\
+`The third baseman, who was in the middle of a sixth inning dust-up, heaped praises on his teammates after a deciding Game 4.`\
+https://nytimes.com/athletic/5835892/2024/10/11/yankees-royals-alds-jazz-chisholm/
+
 **One year after an opening-night healthy scratch, Kent Johnson stands out for Blue Jackets**\
 `Johnson was the most noticeable player on both ends of the ice in a 3-2 season-opening loss to the Minnesota Wild.`\
 https://nytimes.com/athletic/5835838/2024/10/11/blue-jackets-opening-night-kent-johnson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5805969/2024/10/11/manchester-city-oasis-kit-noel-g
 **Liverpool's one-game wonders: 'I understood the magnitude of it and I kind of choked'**\
 `From a match in Macedonia to having their family put up in a box by Trent Alexander-Arnold, these are their memories of the big day`\
 https://nytimes.com/athletic/5805469/2024/10/11/liverpool-one-game-wonders/
-
-**Matthew Hudson-Smith: The 2024 Olympic medallist who dreamed of Wolves career**\
-`Matthew Hudson-Smith speaks about the Olympics, his childhood dream of being a footballer and the future`\
-https://nytimes.com/athletic/5833343/2024/10/11/matthew-hudson-smith-wolves-interview/
-
-**A window onto Barcelona's chaotic world, as Sergio Aguero claims club owes him €3m**\
-`Barcelona released a financial summary document to club members this week. It makes for interesting reading`\
-https://nytimes.com/athletic/5833924/2024/10/11/barcelona-aguero-dembele-transfers-negreira-laporta/
 

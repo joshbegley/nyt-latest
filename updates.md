@@ -1,3 +1,11 @@
+**Linus Ullmark shows why the Senators' investment in him was necessary: 5 takeaways**\
+`Ottawa fans have $33 million reasons to smile at new goalie Ullmark, and the good times started in the opener.`\
+https://nytimes.com/athletic/5835030/2024/10/11/senators-takeaways-stutzle-pinto-ullmark/
+
+**As the Yankees move past the Royals on way to the ALCS, Jazz Chisholm gets the final word**\
+`The third baseman, who was in the middle of a sixth inning dust-up, heaped praises on his teammates after a deciding Game 4.`\
+https://nytimes.com/athletic/5835892/2024/10/11/yankees-royals-alds-jazz-chisholm/
+
 **One year after an opening-night healthy scratch, Kent Johnson stands out for Blue Jackets**\
 `Johnson was the most noticeable player on both ends of the ice in a 3-2 season-opening loss to the Minnesota Wild.`\
 https://nytimes.com/athletic/5835838/2024/10/11/blue-jackets-opening-night-kent-johnson/
