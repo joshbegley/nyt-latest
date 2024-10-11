@@ -1,3 +1,7 @@
+**Harris Town Hall Shows Her Straining for a Tough Empathy on Immigration**\
+`The Univision event in Las Vegas featured emotional questions from voters on health care, the economy and the border — and displayed the fine lines Kamala Harris is trying to walk.`\
+https://nytimes.com/2024/10/10/us/politics/harris-univision-town-hall-immigration.html
+
 **Officials and Residents Credit Hurricane Warnings With Saving Lives**\
 `The warnings from officials were dire, and they appear to have been effective.`\
 https://nytimes.com/2024/10/10/weather/hurricane-warnings-milton-florida.html
