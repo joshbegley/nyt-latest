@@ -1,3 +1,7 @@
+**Trump Is Said to Consider Brooke Rollins for White House Chief of Staff**\
+`Ms. Rollins, a conservative lawyer who ran domestic policy in the Trump administration, is said to be under consideration for the role should Donald J. Trump win the election.`\
+https://nytimes.com/2024/10/11/us/politics/trump-brooke-rollins-chief-of-staff.html
+
 **Fears rise the conflict may mar the rollout of a vital 2nd dose of the polio vaccine to Gaza children.**\
 `By Ephrat Livni and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/fears-rise-over-rollout-of-vital-second-dose-of-polio-vaccine-to-gaza-children
