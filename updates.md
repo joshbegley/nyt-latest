@@ -1,3 +1,15 @@
+**Here are the latest developments on Milton.**\
+`By John Yoon`\
+https://nytimes.com/live/2024/10/11/weather/hurricane-milton-florida-news/here-are-the-latest-developments-on-milton
+
+**Can Bengals defense be salvaged? Canvassing those in the know for thoughts, solutions**\
+`From wrapping up tackles to getting pressure on the quarterback, the consensus is that all hope is not lost for Cincinnati's defense.`\
+https://nytimes.com/athletic/5835035/2024/10/11/bengals-defense-week-6-anarumo/
+
+**Live Updates: Millions Remain Without Power as Florida Begins Recovery From Hurricane Milton**\
+`The state’s preparations probably limited the impact of the storm, one of the strongest to ever hit the state. At least 12 deaths were tied to the hurricane.`\
+https://nytimes.com/live/2024/10/11/weather/hurricane-milton-florida-news
+
 **Your Favorite Horror Movie Was a Much Scarier True Story**\
 `From “The Exorcist” to “The Lighthouse,” many lauded scary movies were based on terrifying true stories. Here’s what really happened.`\
 https://nytimes.com/2024/10/11/arts/halloween-movies-true-stories.html

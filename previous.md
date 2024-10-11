@@ -1,3 +1,15 @@
+**Here are the latest developments on Milton.**\
+`By John Yoon`\
+https://nytimes.com/live/2024/10/11/weather/hurricane-milton-florida-news/here-are-the-latest-developments-on-milton
+
+**Can Bengals defense be salvaged? Canvassing those in the know for thoughts, solutions**\
+`From wrapping up tackles to getting pressure on the quarterback, the consensus is that all hope is not lost for Cincinnati's defense.`\
+https://nytimes.com/athletic/5835035/2024/10/11/bengals-defense-week-6-anarumo/
+
+**Live Updates: Millions Remain Without Power as Florida Begins Recovery From Hurricane Milton**\
+`The state’s preparations probably limited the impact of the storm, one of the strongest to ever hit the state. At least 12 deaths were tied to the hurricane.`\
+https://nytimes.com/live/2024/10/11/weather/hurricane-milton-florida-news
+
 **Your Favorite Horror Movie Was a Much Scarier True Story**\
 `From “The Exorcist” to “The Lighthouse,” many lauded scary movies were based on terrifying true stories. Here’s what really happened.`\
 https://nytimes.com/2024/10/11/arts/halloween-movies-true-stories.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/08/opinion/thepoint/weather-fema-floods-behavio
 **The New York Times News Quiz, Oct. 11, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/10/11/briefing/quiz-hurricane-trump-harris-nobel.html
-
-**5 Things to Do This Weekend**\
-`Selections from the Weekend section, including a review of “Disclaimer,” Alfonso Cuarón’s limited series for Apple TV+.`\
-https://nytimes.com/interactive/2024/10/11/arts/weekend-editors-picks-disclaimer.html
-
-**‘No One’s Life Is More Important to Him Than His’: Chris Christie on Trump and the Politicization of Disaster Relief**\
-`How did we get here?`\
-https://nytimes.com/2024/10/11/opinion/hurricane-milton-helene-florida-chris-christie.html
-
-**One Thing Never to Say to a Grieving Friend**\
-`Some words hurt more than they help.`\
-https://nytimes.com/2024/10/11/well/grief-condolences-what-not-to-say.html
 
