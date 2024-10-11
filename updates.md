@@ -1,3 +1,11 @@
+**Stanley Tucci on His New Book, ‘What I Ate in One Year’**\
+`The actor and renowned foodie talks about his eating habits and his food diary, and we look at the fiction and nonfiction titles up for the National Book Award.`\
+https://nytimes.com/2024/10/11/books/review/stanley-tucci-what-i-ate-in-one-year-interview.html
+
+**Evan Gershkovich, U.S. Journalist Imprisoned in Russia, Will Publish a Memoir**\
+`The memoir, which will cover his time in prison and Russia’s move toward autocracy, will be published by Crown, an imprint of Penguin Random House.`\
+https://nytimes.com/2024/10/11/books/evan-gershkovich-memoir.html
+
 **The Latest Hurricanes Are Creating as Much Delusion as Damage**\
 `By David Wallace-Wells`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/hurricane-milton-misinformation-denialism
