@@ -1,3 +1,7 @@
+**How to Make Dinner Out of Anything in Your Pantry**\
+`Make those everyday staples anything but boring with these expert tips.`\
+https://nytimes.com/article/pantry-ingredient-dinner-ideas.html
+
 **6 New Shows Our Theater Critics Are Talking About**\
 `The fall season is underway, and our reviewers think these productions are worth knowing about, even if you’re not planning to see them.`\
 https://nytimes.com/2024/10/11/theater/new-shows-theater-broadway.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/dining/what-to-do-with-that-apple-picking-haul.ht
 **Scared of the Dentist? Here’s How to Cope.**\
 `Don’t skip appointments and risk your oral health. Try these strategies instead.`\
 https://nytimes.com/2024/10/11/well/mind/dental-fear-anxiety.html
-
-**Harvey Awards Inducts 5 Comic Creators to Hall of Fame**\
-`The inductees are being recognized for work on G.I. Joe, Mad magazine, manga and mutants. They will be honored at New York Comic Con.`\
-https://nytimes.com/2024/10/11/arts/harvey-awards-hall-of-fame.html
 
