@@ -1,3 +1,7 @@
+**Five-star Boozer twins pick Duke over Miami**\
+`The brothers will continue the family legacy that their father, Carlos, began 25 years ago.`\
+https://nytimes.com/athletic/5827067/2024/10/11/boozer-brothers-duke-basketball/
+
 **Democrats roll out an ad attacking Jill Stein, the Green Party candidate for president.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/11/us/harris-trump-election/democrats-roll-out-an-ad-attacking-jill-stein-the-green-party-candidate-for-president

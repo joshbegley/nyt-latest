@@ -1,3 +1,7 @@
+**Five-star Boozer twins pick Duke over Miami**\
+`The brothers will continue the family legacy that their father, Carlos, began 25 years ago.`\
+https://nytimes.com/athletic/5827067/2024/10/11/boozer-brothers-duke-basketball/
+
 **Democrats roll out an ad attacking Jill Stein, the Green Party candidate for president.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/11/us/harris-trump-election/democrats-roll-out-an-ad-attacking-jill-stein-the-green-party-candidate-for-president
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5835330/2024/10/11/chargers-trade-deadline-amari-co
 **Raiders' QB situation comes full circle when Steelers, Justin Fields face Aidan O'Connell**\
 `The Raiders went with Gardner Minshew and coordinator Luke Getsy this offseason over Fields. Minshew has already been benched. `\
 https://nytimes.com/athletic/5835087/2024/10/11/raiders-quarterback-getsy-fields-oconnell/
-
-**An award for Japanese survivors reflects new global concerns.**\
-`By Steven Erlanger`\
-https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/an-award-for-japanese-survivors-reflects-new-global-concerns
 
