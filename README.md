@@ -6,7 +6,7 @@ https://nytimes.com/2024/10/10/nyregion/eric-adams-bribery-inquiry-school-safety
 `Chamberlain said he decided on a whim to make the three-hour drive to Game 4 of the ALDS from his home in Lincoln, Neb.`\
 https://nytimes.com/athletic/5835378/2024/10/10/joba-chamberlain-yankees-royals-world-series-rings-alds/
 
-**Jets' Haason Reddick, agency part ways amid holdout**\
+**ason Reddick's agency parts ways with him amid Jets holdout**\
 `The Jets traded for Reddick this offseason but he hasn't reported to the team and has racked up more than $8 million in fines.`\
 https://nytimes.com/athletic/5835356/2024/10/10/haason-reddick-agency-part-ways-jets/
 
