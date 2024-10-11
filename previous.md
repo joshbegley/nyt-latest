@@ -4,7 +4,7 @@ https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/nobel-peace-p
 
 **Israeli and U.S. Defense Ministers Discuss Israel’s Expanding Conflicts in Mideast**\
 `Defense Secretary Lloyd J. Austin III spoke with his Israeli counterpart, Yoav Gallant, on Thursday, the Pentagon said.`\
-https://nytimes.com/2024/10/11/world/middleeast/israeli-and-us-defense-ministers-discuss-israels-expanding-conflicts-in-mideast.html
+https://nytimes.com/2024/10/11/world/middleeast/gallant-austin-israel-war.html
 
 **The Aftermath of Thursday’s Deadly Strikes in Beirut**\
 `By David Guttenfelder and Diego Ibarra Sanchez`\
