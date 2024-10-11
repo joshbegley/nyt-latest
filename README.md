@@ -1,4 +1,4 @@
-**The U.S. imposes sanctions on Iran’s “ghost fleet” of oil tankers.**\
+**The U.S. imposes sanctions on Iran’s ‘ghost fleet’ of oil tankers.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/the-us-imposes-sanctions-on-irans-ghost-fleet-of-oil-tankers
 
