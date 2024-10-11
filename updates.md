@@ -1,3 +1,7 @@
+**The Best of Late Night This Week**\
+`With the general election just weeks away, the hosts spent much of the week discussing former President Trump’s rallies, Trump’s ties to President Putin of Russia, and Vice President Harris’s media blitz.`\
+https://nytimes.com/interactive/2024/10/11/arts/television/best-of-late-night-trump-putin.html
+
 **SailGP Is Becoming All Grown Up**\
 `There are new teams, new events and higher team valuations. And last season had a different champion when Spain dethroned Australia.`\
 https://nytimes.com/2024/10/11/sports/sailing/sailgp-series-growth.html
