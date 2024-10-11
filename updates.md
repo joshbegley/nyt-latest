@@ -1,3 +1,7 @@
+**Here’s how the Peace Prize nomination process works.**\
+`By Megan Specia`\
+https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/heres-how-the-peace-prize-nomination-process-works
+
 **What Is Nihon Hidankyo, the Japanese Group Awarded the Nobel Peace Prize?**\
 `Those who lived through the nuclear attacks of 1945 have dedicated their lives to recounting their experiences of loss and the physical and emotional toll.`\
 https://nytimes.com/2024/10/11/world/asia/what-is-nihon-hidankyo-hibakusha-japan.html
