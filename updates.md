@@ -1,3 +1,15 @@
+**Two Trickster Artists Provide New Perspective at Musée d’Orsay**\
+`This fall, the duo behind ‘Prada Marfa’ bring their playfulness to Paris, turning a venerable museum on its head.`\
+https://nytimes.com/2024/10/11/arts/design/musee-dorsay-elmgreen-dragset.html
+
+**Giannis dominates in preseason debut, Bobby Portis stays hot and AJ Jackson impresses**\
+`Thunderous dunks. A chase-down block. The Bucks' two-time NBA MVP looked great in his preseason debut against the Lakers on Thursday.`\
+https://nytimes.com/athletic/5835524/2024/10/11/giannis-antetokounmpo-bucks-lakers/
+
+**It’s Been 38 Years. Mark Manders is Still Working on His ‘Self-Portrait.’**\
+`The artist, whose work is being shown across Europe this month, reflected on fictional spaces, semi-truths and hidden losses.`\
+https://nytimes.com/2024/10/11/arts/design/mark-manders-art-basel-paris.html
+
 **What we saw in Macklin Celebrini's big NHL debut — beyond a goal and an assist**\
 `Macklin Celebrini made his NHL debut to great fanfare. A shift-by-shift breakdown reveals the teenager's potential.`\
 https://nytimes.com/athletic/5836398/2024/10/11/macklin-celebrini-sharks-nhl-blues/
