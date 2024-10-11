@@ -1,3 +1,7 @@
+**Here’s how the Peace Prize nomination process works.**\
+`By Megan Specia`\
+https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/heres-how-the-peace-prize-nomination-process-works
+
 **What Is Nihon Hidankyo, the Japanese Group Awarded the Nobel Peace Prize?**\
 `Those who lived through the nuclear attacks of 1945 have dedicated their lives to recounting their experiences of loss and the physical and emotional toll.`\
 https://nytimes.com/2024/10/11/world/asia/what-is-nihon-hidankyo-hibakusha-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/11/world/middleeast/israel-strikes-beirut-lebanon.ht
 **Vikings mailbag: Trade deadline thoughts, Dallas Turner's start, special teams and more**\
 `After their bye week, the Vikings will face an NFC North showdown against the Lions. In the meantime, we answer your mailbag questions.`\
 https://nytimes.com/athletic/5833972/2024/10/11/vikings-trade-deadline-dallas-turner/
-
-**The Maple Leafs crease finds early (and unlikely) signs of hope**\
-`For Toronto, goaltending will be a season-long storyline with no clear answer until the finish line. But Hildeby's start is encouraging.`\
-https://nytimes.com/athletic/5835720/2024/10/11/maple-leafs-dennis-hildeby-devils/
 
