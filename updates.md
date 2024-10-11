@@ -1,3 +1,7 @@
+**SailGP Is Becoming All Grown Up**\
+`There are new teams, new events and higher team valuations. And last season had a different champion when Spain dethroned Australia.`\
+https://nytimes.com/2024/10/11/sports/sailing/sailgp-series-growth.html
+
 **Giants' Malik Nabers ruled out vs. Bengals**\
 `New York Giants rookie wide receiver Malik Nabers has been ruled out for Sunday night's game against the Cincinnati Bengals.`\
 https://nytimes.com/athletic/5837144/2024/10/11/ny-giants-malik-nabers-concussion-injury/
