@@ -1,3 +1,7 @@
+**49ers minutia minute: Nick Bosa finishes with career-best pressures, but sacks elusive**\
+`Bosa matched a career high with 14 quarterback pressures, but he didn't finish any of them for sacks. `\
+https://nytimes.com/athletic/5837802/2024/10/11/49ers-seahawks-snap-counts-nick-bosa/
+
 **Mauricio Pochettino sees 'massive responsibility' in USMNT job ahead of first game**\
 `The Argentinian on his tactics, his adaptability and how both MLS and European-based players can play a role in his team`\
 https://nytimes.com/athletic/5837952/2024/10/11/mauricio-pochettino-usmnt-interview-first-game/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/10/11/weather/hurricane-milton-florida-news/some-f
 **How Does Florida Insure Itself Against Hurricanes Like These?**\
 `The state has taken steps to shore up its insurance market, but researchers warn of looming risks.`\
 https://nytimes.com/2024/10/11/opinion/florida-hurricane-insurance-flood.html
-
-**Iran warns Arab allies not to assist Israel with any retaliation efforts, officials say.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/iran-warns-arab-allies-not-assist-israel-with-any-retaliation-efforts-officials-say
 
