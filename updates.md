@@ -1,3 +1,11 @@
+**Review: An ‘Our Town’ for All of Us, Starring Jim Parsons**\
+`The Thornton Wilder classic returns to Broadway, still brutal and avant-garde after 86 years.`\
+https://nytimes.com/2024/10/10/theater/our-town-review-jim-parsons.html
+
+**Johansson-Eriksson Ek-Boldy line delivers in Wild's season-opening win: 3 takeaways**\
+`Matt Boldy had a hand in all three Minnesota goals in Dean Evason's return to Xcel Energy Center.`\
+https://nytimes.com/athletic/5835442/2024/10/10/wild-season-opener-blue-jackets-boldy/
+
 **Penguins' Evgeni Malkin records 800th assist**\
 `Malkin is one of only 34 players in NHL history with at least 800 assists and is only the third active player to hit that mark.`\
 https://nytimes.com/athletic/5835637/2024/10/10/evgeni-malkin-penguins-800-assists/
