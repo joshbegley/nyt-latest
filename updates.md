@@ -1,3 +1,7 @@
+**Art Basel Paris Returns Larger, and More French, Than Ever**\
+`The fair will open in a freshly redone space with a new name. ‘In a way, it’s year zero,’ explained Art Basel’s chief executive.`\
+https://nytimes.com/2024/10/11/arts/design/art-basel-paris.html
+
 **It’s Touring Season: Chappell, Sabrina and Mk.gee Hit the Stage**\
 `A roundup of some of the biggest and most impactful shows on the road this fall, and how live performances can shift the audience’s perception of an artist.`\
 https://nytimes.com/2024/10/11/arts/music/popcast-tours-sabrina-carpenter-chappell-roan-mkgee.html

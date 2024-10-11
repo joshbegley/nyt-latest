@@ -1,3 +1,7 @@
+**Art Basel Paris Returns Larger, and More French, Than Ever**\
+`The fair will open in a freshly redone space with a new name. ‘In a way, it’s year zero,’ explained Art Basel’s chief executive.`\
+https://nytimes.com/2024/10/11/arts/design/art-basel-paris.html
+
 **It’s Touring Season: Chappell, Sabrina and Mk.gee Hit the Stage**\
 `A roundup of some of the biggest and most impactful shows on the road this fall, and how live performances can shift the audience’s perception of an artist.`\
 https://nytimes.com/2024/10/11/arts/music/popcast-tours-sabrina-carpenter-chappell-roan-mkgee.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/arts/design/asia-now-tenth-anniversary.html
 **Scoop City: Where rookie QBs rank against prior first-rounders**\
 `A brief look into where Caleb Williams, Jayden Daniels and Bo Nix land against prior first-round rookies at this stage in their career.`\
 https://nytimes.com/athletic/5836665/2024/10/11/how-rookie-quarterbacks-stack-up-plus-a-jets-update-and-ashton-jeantys-prospects/
-
-**They were bombed, and then shunned. Now the nuclear survivors are being honored.**\
-`By Hannah Beech, Hisako Ueno and Kiuko Notoya`\
-https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/they-were-bombed-and-then-shunned-now-the-nuclear-survivors-are-being-honored
 

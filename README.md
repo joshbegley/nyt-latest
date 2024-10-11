@@ -1,3 +1,11 @@
+**How Haas’s F1 partnership with Toyota will work: ‘It’s not to replace Ferrari’**\
+`Haas announced a new partnership with Toyota, but that doesn't mean Toyota is nearing an F1 return. `\
+https://nytimes.com/athletic/5836865/2024/10/11/haas-f1-toyota-partnership-ferrari/
+
+**The Bounce: Napheesa Collier, Lynx cap all-time WNBA Finals comeback.**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5836482/2024/10/11/napheesa-collier-wnba-finals-lynx-liberty-nba-the-bounce/
+
 **Art Basel Paris Returns Larger, and More French, Than Ever**\
 `The fair will open in a freshly redone space with a new name. ‘In a way, it’s year zero,’ explained Art Basel’s chief executive.`\
 https://nytimes.com/2024/10/11/arts/design/art-basel-paris.html
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/10/11/weather/hurricane-milton-florida-news/milton
 **The Monument Where Fauvism was Born, Prince Sang and Models Strutted**\
 `Next week, art lovers will descend upon the Grand Palais for Art Basel Paris. But it’s hardly the building’s first turn in the spotlight.`\
 https://nytimes.com/2024/10/11/arts/design/grand-palais-paris-history.html
-
-**The Asia Now Fair Marks 10 Years in Paris**\
-`This year the event will feature odes to fire, water and homeland, with live performances, elegiac paeans and an eye to the idea of ceremony.`\
-https://nytimes.com/2024/10/11/arts/design/asia-now-tenth-anniversary.html
-
-**Scoop City: Where rookie QBs rank against prior first-rounders**\
-`A brief look into where Caleb Williams, Jayden Daniels and Bo Nix land against prior first-round rookies at this stage in their career.`\
-https://nytimes.com/athletic/5836665/2024/10/11/how-rookie-quarterbacks-stack-up-plus-a-jets-update-and-ashton-jeantys-prospects/
 
