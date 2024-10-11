@@ -2,7 +2,7 @@
 `MIT Sloan faculty members have been leaders in artificial intelligence for decades. Here’s a look at their new projects and what they see as the most exciting—and concerning—aspects of the AI boom.`\
 https://nytimes.com/paidpost/mit-sloan/ai/8-mit-ai-experts-to-know-now.html
 
-**Fears rise over the rollout of a vital second dose of the polio vaccine to Gaza children.**\
+**Fears rise the conflict may mar the rollout of a vital 2nd dose of the polio vaccine to Gaza children.**\
 `By Ephrat Livni and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/fears-rise-over-rollout-of-vital-second-dose-of-polio-vaccine-to-gaza-children
 

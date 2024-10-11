@@ -1,3 +1,7 @@
+**Fears rise the conflict may mar the rollout of a vital 2nd dose of the polio vaccine to Gaza children.**\
+`By Ephrat Livni and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/fears-rise-over-rollout-of-vital-second-dose-of-polio-vaccine-to-gaza-children
+
 **Are They Not Famous, or Are You in a Bubble?**\
 `A social media post about the Hollywood Reporter’s “A-List” of influencers inspired quite a few jokes online. But part of that was a misunderstanding.`\
 https://nytimes.com/2024/10/11/style/hollywood-reporter-influencers-a-list.html

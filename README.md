@@ -1,3 +1,7 @@
+**Trump Is Said to Consider Brooke Rollins for White House Chief of Staff**\
+`Ms. Rollins, a conservative lawyer who ran domestic policy in the Trump administration, is said to be under consideration for the role should Donald J. Trump win the election.`\
+https://nytimes.com/2024/10/11/us/politics/trump-brooke-rollins-chief-of-staff.html
+
 **8 MIT AI Experts To Know Now**\
 `MIT Sloan faculty members have been leaders in artificial intelligence for decades. Here’s a look at their new projects and what they see as the most exciting—and concerning—aspects of the AI boom.`\
 https://nytimes.com/paidpost/mit-sloan/ai/8-mit-ai-experts-to-know-now.html
@@ -29,8 +33,4 @@ https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-don-mcguire.html
 **Are They Not Famous, or Are You in a Bubble?**\
 `A social media post about the Hollywood Reporter’s “A-List” of influencers inspired quite a few jokes online. But part of that was a misunderstanding.`\
 https://nytimes.com/2024/10/11/style/hollywood-reporter-influencers-a-list.html
-
-**My Son Has a Gambling Problem. Do I Tell His Partner?**\
-`The magazine’s Ethicist columnist on the risks of divulging a loved one’s addiction to someone who ought to know.`\
-https://nytimes.com/2024/10/11/magazine/son-gambling-girlfriend-ethics.html
 
