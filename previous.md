@@ -2,7 +2,7 @@
 `David Fry put the Guardians on his back to force a winner-take-all Game 5, while the Yankees ousted the Royals to move onto the ALCS.`\
 https://nytimes.com/athletic/5835629/2024/10/10/mlb-postseason-2024-what-you-need-to-know-3/
 
-**Courtney Williams, Lynx rally to beat Liberty in Game 1**\
+**Courtney Williams, Lynx rally to beat Liberty in OT thriller**\
 `Williams led the way with 23 points, followed closely by Kayla McBride’s 22 and Napheesa Collier’s 21.`\
 https://nytimes.com/athletic/5835642/2024/10/10/lynx-liberty-wnba-finals-game-1-score-takeaways/
 
