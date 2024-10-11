@@ -1,3 +1,7 @@
+**David Fry's pinch hit heroics send Guardians-Tigers to climactic Game 5: Takeaways**\
+`With the Cleveland Guardians trailing, Fry came off the bench to deliver exactly what his team needed. `\
+https://nytimes.com/athletic/5835459/2024/10/10/tigers-guardians-score-mlb-playoffs-game-4-takeaways/
+
 **Benches clear in ALDS Game 4 as Volpe, Garcia exchange words**\
 `Royals’ Maikel Garcia took offense to a tag applied by Yankees shortstop Anthony Volpe on a sixth-inning double play.`\
 https://nytimes.com/athletic/5835577/2024/10/10/yankees-royals-benches-clear-alds-game-4/

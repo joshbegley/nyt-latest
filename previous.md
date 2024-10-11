@@ -10,7 +10,7 @@ https://nytimes.com/2024/10/10/crosswords/daily-puzzle-2024-10-11.html
 `Initial reports on the condition of several spring training facilities around Florida were not as bad as initially feared. `\
 https://nytimes.com/athletic/5835092/2024/10/10/florida-spring-training-sites-hurricane-milton/
 
-**David Fry's pinch-hit heroics send Guardians-Tigers to climactic Game 5: Takeaways**\
+**David Fry's pinch hit heroics send Guardians-Tigers to climactic Game 5: Takeaways**\
 `With the Cleveland Guardians trailing, Fry came off the bench to deliver exactly what his team needed. `\
 https://nytimes.com/athletic/5835459/2024/10/10/tigers-guardians-score-mlb-playoffs-game-4-takeaways/
 
