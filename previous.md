@@ -1,3 +1,15 @@
+**Federal Judge Questions Justice Department on Boeing Guilty Plea**\
+`After objections from the families of the victims of the two 737 MAX plane crashes, a federal judge will rule whether to accept a plea agreement reached by the Justice Department and Boeing.`\
+https://nytimes.com/2024/10/11/us/politics/federal-judge-questions-justice-department-on-boeing-guilty-plea.html
+
+**Obama’s Admonishing Tone to Black Men Presents a Risk for Democrats**\
+`The former president’s remarks that some Black men are not “feeling the idea” of a female president were blunt and urgent, but also potentially alienating for a vital group of Democratic voters.`\
+https://nytimes.com/2024/10/11/us/politics/obama-harris-trump-speech.html
+
+**Swing State Voters: What’s in Your Mailbox?**\
+`Share images of your political correspondence with the On Politics newsletter.`\
+https://nytimes.com/2024/10/11/us/political-advertising-mail.html
+
 **Raiders place TE Michael Mayer on NFI due to personal issue**\
 `Mayer has only played in the Raiders' first three games due to the personal issue.`\
 https://nytimes.com/athletic/5837877/2024/10/11/michael-mayer-raiders-nfi/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/11/briefing/trump-immigration-speech-florida-hurrica
 **Lebanon’s Leader Calls on U.N. for Cease-Fire Amid Search for Airstrike Survivors**\
 `Rescuers dug through rubble in Beirut as the caretaker prime minister implored the United Nations to adopt a resolution calling for an “immediate” truce between Israel and Hezbollah.`\
 https://nytimes.com/2024/10/11/world/middleeast/lebanon-ceasefire-israel-beirut-strike.html
-
-**Packers' Doubs breaks silence after suspension**\
-`Romeo Doubs said wanting a bigger role in Green Bay’s offense had nothing to do with not attending practice last week.`\
-https://nytimes.com/athletic/5837834/2024/10/11/packers-romeo-doubs-breaks-silence-suspension/
-
-**The U.S. imposes sanctions on Iran’s ‘ghost fleet’ of oil tankers.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/the-us-imposes-sanctions-on-irans-ghost-fleet-of-oil-tankers
-
-**Bills followed concussion protocol with Josh Allen, per NFL, NFLPA**\
-`Allen briefly exited Sunday's game after his head slammed into the turf following a low tackle.`\
-https://nytimes.com/athletic/5837891/2024/10/11/bills-josh-allen-nfl-nflpa-concussion-protocol/
 
