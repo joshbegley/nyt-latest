@@ -1,40 +1,40 @@
-**Here are the latest developments on Milton.**\
-`By John Yoon`\
-https://nytimes.com/live/2024/10/11/weather/hurricane-milton-florida-news/here-are-the-latest-developments-on-milton
+**Israeli Airstrikes Kill at Least 22 in Central Beirut, Lebanon Says**\
+`The attack spread fear among residents of a largely Sunni neighborhood of Lebanon’s capital as Israel’s bombing campaign against Hezbollah continued.`\
+https://nytimes.com/2024/10/11/world/middleeast/israel-strikes-beirut-lebanon.html
 
-**Can Bengals defense be salvaged? Canvassing those in the know for thoughts, solutions**\
-`From wrapping up tackles to getting pressure on the quarterback, the consensus is that all hope is not lost for Cincinnati's defense.`\
-https://nytimes.com/athletic/5835035/2024/10/11/bengals-defense-week-6-anarumo/
+**Vikings mailbag: Trade deadline thoughts, Dallas Turner's start, special teams and more**\
+`After their bye week, the Vikings will face an NFC North showdown against the Lions. In the meantime, we answer your mailbag questions.`\
+https://nytimes.com/athletic/5833972/2024/10/11/vikings-trade-deadline-dallas-turner/
 
-**Live Updates: Millions Remain Without Power as Florida Begins Recovery From Hurricane Milton**\
-`The state’s preparations probably limited the impact of the storm, one of the strongest to ever hit the state. At least 12 deaths were tied to the hurricane.`\
-https://nytimes.com/live/2024/10/11/weather/hurricane-milton-florida-news
+**The Maple Leafs crease finds early (and unlikely) signs of hope**\
+`For Toronto, goaltending will be a season-long storyline with no clear answer until the finish line. But Hildeby's start is encouraging.`\
+https://nytimes.com/athletic/5835720/2024/10/11/maple-leafs-dennis-hildeby-devils/
 
-**Your Favorite Horror Movie Was a Much Scarier True Story**\
-`From “The Exorcist” to “The Lighthouse,” many lauded scary movies were based on terrifying true stories. Here’s what really happened.`\
-https://nytimes.com/2024/10/11/arts/halloween-movies-true-stories.html
+**Johnny Gaudreau was in Matt Boldy's heart during Wild star's 3-point night**\
+`Growing up outside Boston and dreaming of playing hockey for Boston College, Boldy idolized Gaudreau.`\
+https://nytimes.com/athletic/5835993/2024/10/11/johnny-gaudreau-matt-boldy-wild-boston-college/
 
-**Aryna Sabalenka wanted to overtake Iga Swiatek - to do it, she had to slow down**\
-`On the eve of Wimbledon, the world No. 2 forced herself to miss a tournament for which she was favorite. Three months on, that looks smart.`\
-https://nytimes.com/athletic/5819344/2024/10/11/sabalenka-wta-race-swiatek-world-number-one/
+**The new Brampton: How Montreal became the place for Canada's young talent**\
+`The emergence of leading players from Montreal could be the start of a larger shift away from the country's traditional hotbeds`\
+https://nytimes.com/athletic/5832800/2024/10/11/montreal-canada-mens-national-team/
 
-**Nguyen: Can Jets offense improve without Aaron Rodgers ceding preferences?**\
-`The Jets are similar to the Packers offense in 2018, when Rodgers avoided motion and had control at the line of scrimmage.`\
-https://nytimes.com/athletic/5830404/2024/10/11/jets-offense-aaron-rodgers-motion/
+**Why the Blackhawks wear their numbers**\
+`Some players have their reasons, and others are forced. Here are the stories behind the Blackhawks' numbers.`\
+https://nytimes.com/athletic/5806405/2024/10/11/blackhawks-jersey-numbers/
 
-**Ben Simmons is taking things one day at a time on the new-look Nets**\
-`The 28-year-old regularly invites scrutiny, but it's clear he and his new coach have high expectations.`\
-https://nytimes.com/athletic/5831437/2024/10/11/ben-simmons-nets-rebuild-brooklyn/
+**Packers mailbag: Defense grade, Xavier McKinney's success, case for open locker room**\
+`The Packers will be without IR-bound Luke Musgrave at the tight end position on Sunday against the Cardinals.`\
+https://nytimes.com/athletic/5834838/2024/10/11/packers-mailbag-week-6-cardinals/
 
-**AFC North Whiparound: Are Browns, Bengals done? What's each team's main weakness?**\
-`Our writers also talk about whether any division coaches are on the hot seat and give thoughts on this weekend's matchups.`\
-https://nytimes.com/athletic/5834617/2024/10/11/afc-north-whiparound-week-6-2024/
+**Dane Brugler's NFL Draft watch: Ranking top 30 prospects in Oregon-Ohio State showdown**\
+`Saturday's matchup is loaded with potential NFL talent. Which prospects will be the most highly coveted come April?`\
+https://nytimes.com/athletic/5833637/2024/10/11/nfl-draft-2025-oregon-ohio-state/
 
-**If ‘They’ Can Control the Weather, They’re Doing a Lousy Job**\
-`By Michelle Cottle`\
-https://nytimes.com/live/2024/10/08/opinion/thepoint/weather-fema-floods-behavior
+**Trump 2.0: A Presidency Driven by Revenge**\
+`As president, Donald Trump repeatedly tried to use his powers to penalize his enemies. What might a second term mean for American democracy?`\
+https://nytimes.com/2024/10/11/podcasts/the-daily/trump-revenge.html
 
-**The New York Times News Quiz, Oct. 11, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/10/11/briefing/quiz-hurricane-trump-harris-nobel.html
+**Agony and Relief After Milton, and the Nobel Peace Prize Is Awarded**\
+`Plus, the W.N.B.A.’s record-breaking season.`\
+https://nytimes.com/2024/10/11/podcasts/milton-florida-trump-car-loan-tax-break.html
 
