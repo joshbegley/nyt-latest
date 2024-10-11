@@ -1,3 +1,7 @@
+**49ers minutia minute: Nick Bosa finishes with career-best pressures, but sacks elusive**\
+`Bosa matched a career high with 14 quarterback pressures, but he didn't finish any of them for sacks. `\
+https://nytimes.com/athletic/5837802/2024/10/11/49ers-seahawks-snap-counts-nick-bosa/
+
 **Federal Judge Questions Justice Department on Boeing Guilty Plea**\
 `After objections from the families of the victims of the two 737 MAX plane crashes, a federal judge will rule whether to accept a plea agreement reached by the Justice Department and Boeing.`\
 https://nytimes.com/2024/10/11/us/politics/boeing-plea-deal.html
