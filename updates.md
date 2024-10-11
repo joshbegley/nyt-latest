@@ -1,3 +1,7 @@
+**The Monument Where Fauvism was Born, Prince Sang and Models Strutted**\
+`Next week, art lovers will descend upon the Grand Palais for Art Basel Paris. But it’s hardly the building’s first turn in the spotlight.`\
+https://nytimes.com/2024/10/11/arts/design/grand-palais-paris-history.html
+
 **Scoop City: Where rookie QBs rank against prior first-rounders**\
 `A brief look into where Caleb Williams, Jayden Daniels and Bo Nix land against prior first-round rookies at this stage in their career.`\
 https://nytimes.com/athletic/5836665/2024/10/11/how-rookie-quarterbacks-stack-up-plus-a-jets-update-and-ashton-jeantys-prospects/

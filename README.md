@@ -1,3 +1,11 @@
+**The Artist Who Helped Bring Trans Visibility to Comic Books**\
+`An exhibition at Art Basel Paris will showcase the work of Nazario Luque Vera, whose comic about a transgender detective made him a major countercultural figure in Spain.`\
+https://nytimes.com/2024/10/11/arts/design/12sp-art-basel-vera-inyt.html
+
+**Thousands of hospital and nursing home patients were displaced.**\
+`But overall, health care facilities have fared better than expected.`\
+https://nytimes.com/live/2024/10/11/weather/hurricane-milton-florida-news/milton-hospitals-nursing-homes
+
 **The Monument Where Fauvism was Born, Prince Sang and Models Strutted**\
 `Next week, art lovers will descend upon the Grand Palais for Art Basel Paris. But it’s hardly the building’s first turn in the spotlight.`\
 https://nytimes.com/2024/10/11/arts/design/grand-palais-paris-history.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/11/us/politics/vance-trump-2020-election-results.htm
 **Vance Refuses to Acknowledge That Trump Lost the 2020 Election**\
 `During an interview with Lulu Garcia-Navarro, host of “The Interview,” Senator JD Vance of Ohio repeatedly dodged a question on whether he believed Donald J. Trump lost the 2020 election.`\
 https://nytimes.com/video/us/politics/100000009755918/vance-garcia-navarro-election-trump.html
-
-**Two Trickster Artists Provide New Perspective at Musée d’Orsay**\
-`This fall, the duo behind ‘Prada Marfa’ bring their playfulness to Paris, turning a venerable museum on its head.`\
-https://nytimes.com/2024/10/11/arts/design/musee-dorsay-elmgreen-dragset.html
-
-**Giannis dominates in preseason debut, Bobby Portis stays hot and AJ Jackson impresses**\
-`Thunderous dunks. A chase-down block. The Bucks' two-time NBA MVP looked great in his preseason debut against the Lakers on Thursday.`\
-https://nytimes.com/athletic/5835524/2024/10/11/giannis-antetokounmpo-bucks-lakers/
 
