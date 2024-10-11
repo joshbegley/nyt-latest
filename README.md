@@ -1,3 +1,7 @@
+**A Woman Won South Korea’s First Literature Nobel. That Says a Lot.**\
+`While Han Kang’s victory was celebrated as a crowning cultural achievement for her country, her work also represents a form of rebellion against its culture.`\
+https://nytimes.com/2024/10/11/world/asia/han-kang-nobel-south-korea.html
+
 **Courtney Williams was becoming a journeywoman. Now she's a WNBA Finals heroine for the Lynx**\
 `Williams' 4-point play near the end of regulation was pivotal in the Lynx's historic finals comeback.`\
 https://nytimes.com/athletic/5836149/2024/10/11/courtney-williams-wnba-finals-heroine-minnesota-lynx/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5833674/2024/10/11/nfl-rich-eisen-interview/
 **Word of the Day: robust**\
 `This word has appeared in 1,321 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/11/learning/word-of-the-day-robust.html
-
-**Carsley's England future no longer looks secure after confusing moments on the pitch and off it**\
-`England lost 2-1 to Greece on Thursday night, with Carsley's management and post-match comments leaving his future up in the air`\
-https://nytimes.com/athletic/5822832/2024/10/11/england-lee-carsley-greece-analysis/
 
