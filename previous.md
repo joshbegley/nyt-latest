@@ -1,3 +1,31 @@
+**How Arteta is using 'sequences' of matches to make Arsenal more effective**\
+`Arsenal's manager is breaking their season down into blocks of games to try to manage the challenges of competing on multiple fronts`\
+https://nytimes.com/athletic/5827893/2024/10/11/mikel-arteta-sequences-arsenal/
+
+**Manchester City and Oasis: The story behind the best-selling Noel Gallagher-designed kit**\
+`The story behind the new City kit - one of the fastest-selling jerseys in the club's history `\
+https://nytimes.com/athletic/5805969/2024/10/11/manchester-city-oasis-kit-noel-gallagher/
+
+**Liverpool's one-game wonders: 'I understood the magnitude of it and I kind of choked'**\
+`From a match in Macedonia to having their family put up in a box by Trent Alexander-Arnold, these are their memories of the big day`\
+https://nytimes.com/athletic/5805469/2024/10/11/liverpool-one-game-wonders/
+
+**Matthew Hudson-Smith: The 2024 Olympic medallist who dreamed of Wolves career**\
+`Matthew Hudson-Smith speaks about the Olympics, his childhood dream of being a footballer and the future`\
+https://nytimes.com/athletic/5833343/2024/10/11/matthew-hudson-smith-wolves-interview/
+
+**A window onto Barcelona's chaotic world, as Sergio Aguero claims club owes him €3m**\
+`Barcelona released a financial summary document to club members this week. It makes for interesting reading`\
+https://nytimes.com/athletic/5833924/2024/10/11/barcelona-aguero-dembele-transfers-negreira-laporta/
+
+**Milenkovic epitomises what Nuno demands - he's added steel and intensity**\
+`It is early days, but the summer signing has been crucial to Forest's improved defensive record this season - he is an intimidating presence`\
+https://nytimes.com/athletic/5833289/2024/10/11/nikola-milenkovic-nottingham-forest/
+
+**Cooper, his Leicester substitutions and why he makes them later than anyone else**\
+`Cooper effectively makes two-thirds of his substitutions after the 75th minute, but will this change as he gets used to his squad?`\
+https://nytimes.com/athletic/5828127/2024/10/11/leicester-cooper-late-substitutions/
+
 **Football and CBD: A complicated relationship**\
 `Former footballers have been at the forefront of marketing CBD, particularly on social media`\
 https://nytimes.com/athletic/5828179/2024/10/11/football-cbd-oil/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5833854/2024/10/11/next-weeks-waiver-wire-blake-cor
 **Row Z: Klopp as a Red Bull romantic, bushtucker trials imagined and taking it on the chins**\
 `Your weekly look at the more curious side of football - also featuring Roberto Mancini's gripes and bushtucker trials imagined`\
 https://nytimes.com/athletic/5830641/2024/10/11/klopp-red-bull-mccoist-mancini-row-z/
-
-**Mary Phillip on being England Women's first Black captain, managing a men's team and living with MS**\
-`There are trailblazers and then there's Phillip, the former England captain now winning silverware managing her hometown men's team`\
-https://nytimes.com/athletic/5831522/2024/10/11/mary-phillip-england-women-peckham/
-
-**49ers overcome injuries, get ground game going to beat Seahawks**\
-`The 49ers offense made sure it was a busy night for the Seahawks defense in their 36-24 win.`\
-https://nytimes.com/athletic/5835599/2024/10/11/49ers-seahawks-score-result-takeaways/
-
-**Arsenal versus Chelsea will be spiky - but can the Eidevall-Bompastor rivalry bloom?**\
-`This was supposed to be the WSL's new managerial head to head, but pressure is mounting on the Arsenal boss with each stuttering performance`\
-https://nytimes.com/athletic/5833428/2024/10/11/arsenal-chelsea-eidevall-bompastor/
-
-**Fantasy trends and hidden gems: Eyeing schedule advantages from October through January**\
-`Shayna Goldman lays out the weekly schedule grid through January to help fantasy managers know when the waiver wire pickings will be ripe.`\
-https://nytimes.com/athletic/5834942/2024/10/11/fantasy-trends-and-hidden-gems-eyeing-schedule-advantages-from-october-through-january/
-
-**Words of Wisdom**\
-`Selected quotes from 20 Years of Modern Love.`\
-https://nytimes.com/interactive/2024/10/11/style/words-of-wisdom.html
-
-**Friday Briefing**\
-`The aftermath of Hurricane Milton.`\
-https://nytimes.com/2024/10/11/briefing/hurricane-milton-lebanon-israel.html
-
-**David Fry's heroics for the Cleveland Guardians are a script made for October**\
-`This was the night a PTBNL-turned-All-Star rescued his team from elimination. This was David Fry's coming out moment. This is October.`\
-https://nytimes.com/athletic/5835817/2024/10/11/david-fry-october-heroics-2024-mlb-postseason/
 
