@@ -1,3 +1,7 @@
+**These earlier Peace Prize recipients also campaigned against the use of nuclear weapons.**\
+`Nihon Hidankyo, the Japanese Group of Atomic Bomb Survivors, joins a list of laureates who opposed nuclear weapons.`\
+https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/these-earlier-peace-prize-recipients-also-campaigned-against-the-use-of-nuclear-weapons
+
 **Pelicans preview: 4 looming questions, including small ball and Zion's 'vengeance'**\
 `Few teams are bigger NBA mysteries than New Orleans this season. These issues will determine the team's ceiling.`\
 https://nytimes.com/athletic/5836278/2024/10/11/pelicans-zion-williamson-brandon-ingram-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5832383/2024/10/11/paul-george-jared-mccain-sixers/
 **The Blues don't have a Celebrini to celebrate, but comebacks show they can compete**\
 `The St. Louis Blues rallied for three goals in the third period and then won 5-4 in overtime over the San Jose Sharks.`\
 https://nytimes.com/athletic/5835932/2024/10/11/blues-sharks-nhl-comeback/
-
-**Israel Orders Gazans to Leave the North, but Most Are Staying Put**\
-`A woman in a town surrounded by Israeli troops said she and her family stayed away from the windows and prayed for relief: “That’s how we survive these dark days.”`\
-https://nytimes.com/2024/10/11/world/middleeast/gaza-israel-north-evacuations.html
 
