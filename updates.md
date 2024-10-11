@@ -1,3 +1,11 @@
+**One year after an opening-night healthy scratch, Kent Johnson stands out for Blue Jackets**\
+`Johnson was the most noticeable player on both ends of the ice in a 3-2 season-opening loss to the Minnesota Wild.`\
+https://nytimes.com/athletic/5835838/2024/10/11/blue-jackets-opening-night-kent-johnson/
+
+**Sharks' Macklin Celebrini notches first goal, assist in NHL debut**\
+`It didn’t take long for Celebrini to put his fingerprints on his first game before a sellout SAP Center crowd.`\
+https://nytimes.com/athletic/5835906/2024/10/11/macklin-celebrini-sharks-debut/
+
 **NFL injury report: James Cook iffy for Week 6 and beyond; checking in on CMC, Cooper Kupp**\
 `Greg Scholz of Inside Injuries offers updates on CMC and Cooper Kupp, and surmises that Buffalo's James Cook could be out Week 6 and beyond.`\
 https://nytimes.com/athletic/5835632/2024/10/11/nfl-injury-report-week-6-james-cook-cmc-kupp/

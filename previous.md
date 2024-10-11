@@ -1,3 +1,11 @@
+**One year after an opening-night healthy scratch, Kent Johnson stands out for Blue Jackets**\
+`Johnson was the most noticeable player on both ends of the ice in a 3-2 season-opening loss to the Minnesota Wild.`\
+https://nytimes.com/athletic/5835838/2024/10/11/blue-jackets-opening-night-kent-johnson/
+
+**Sharks' Macklin Celebrini notches first goal, assist in NHL debut**\
+`It didn’t take long for Celebrini to put his fingerprints on his first game before a sellout SAP Center crowd.`\
+https://nytimes.com/athletic/5835906/2024/10/11/macklin-celebrini-sharks-debut/
+
 **NFL injury report: James Cook iffy for Week 6 and beyond; checking in on CMC, Cooper Kupp**\
 `Greg Scholz of Inside Injuries offers updates on CMC and Cooper Kupp, and surmises that Buffalo's James Cook could be out Week 6 and beyond.`\
 https://nytimes.com/athletic/5835632/2024/10/11/nfl-injury-report-week-6-james-cook-cmc-kupp/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5833343/2024/10/11/matthew-hudson-smith-wolves-inte
 **A window onto Barcelona's chaotic world, as Sergio Aguero claims club owes him €3m**\
 `Barcelona released a financial summary document to club members this week. It makes for interesting reading`\
 https://nytimes.com/athletic/5833924/2024/10/11/barcelona-aguero-dembele-transfers-negreira-laporta/
-
-**Milenkovic epitomises what Nuno demands - he's added steel and intensity**\
-`It is early days, but the summer signing has been crucial to Forest's improved defensive record this season - he is an intimidating presence`\
-https://nytimes.com/athletic/5833289/2024/10/11/nikola-milenkovic-nottingham-forest/
-
-**Cooper, his Leicester substitutions and why he makes them later than anyone else**\
-`Cooper effectively makes two-thirds of his substitutions after the 75th minute, but will this change as he gets used to his squad?`\
-https://nytimes.com/athletic/5828127/2024/10/11/leicester-cooper-late-substitutions/
 
