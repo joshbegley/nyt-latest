@@ -1,3 +1,11 @@
+**NFL injury report: James Cook iffy for Week 6 and beyond; checking in on CMC, Cooper Kupp**\
+`Greg Scholz of Inside Injuries offers updates on CMC and Cooper Kupp, and surmises that Buffalo's James Cook could be out Week 6 and beyond.`\
+https://nytimes.com/athletic/5835632/2024/10/11/nfl-injury-report-week-6-james-cook-cmc-kupp/
+
+**Give Ukraine NATO Membership. Peace Depends on It.**\
+`Europe will not be secure — and will not be whole and free — until Ukraine is in NATO. Ukraine will not agree to end the war without it.`\
+https://nytimes.com/2024/10/11/opinion/ukraine-nato-membership-russia.html
+
 **Why are Wrexham not playing during the international break? Are other League One games off?**\
 `Wrexham's game with Lincoln is postponed this weekend. Should League One close down during international breaks?`\
 https://nytimes.com/athletic/5827844/2024/10/11/wrexham-not-playing-international-break/
