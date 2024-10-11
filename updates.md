@@ -1,3 +1,11 @@
+**A Rare Sighting of Northern Lights Entrances Viewers in New York Area**\
+`The aurora borealis, which transformed the sky with startling streaks of pink and purple, arose from a magnetic storm.`\
+https://nytimes.com/2024/10/10/nyregion/northern-lights-new-york.html
+
+**Maple Leafs report cards: Dennis Hildeby shines in debut win**\
+`The 2022 draft pick's NHL debut was nothing short of a success, getting the win in a 4-2 victory over New Jersey.`\
+https://nytimes.com/athletic/5835603/2024/10/10/maple-leafs-devils-dennis-hildeby/
+
 **David Fry's pinch hit heroics send Guardians-Tigers to climactic Game 5: Takeaways**\
 `With the Cleveland Guardians trailing, Fry came off the bench to deliver exactly what his team needed. `\
 https://nytimes.com/athletic/5835459/2024/10/10/tigers-guardians-score-mlb-playoffs-game-4-takeaways/

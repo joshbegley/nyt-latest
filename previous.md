@@ -1,3 +1,11 @@
+**A Rare Sighting of Northern Lights Entrances Viewers in New York Area**\
+`The aurora borealis, which transformed the sky with startling streaks of pink and purple, arose from a magnetic storm.`\
+https://nytimes.com/2024/10/10/nyregion/northern-lights-new-york.html
+
+**Maple Leafs report cards: Dennis Hildeby shines in debut win**\
+`The 2022 draft pick's NHL debut was nothing short of a success, getting the win in a 4-2 victory over New Jersey.`\
+https://nytimes.com/athletic/5835603/2024/10/10/maple-leafs-devils-dennis-hildeby/
+
 **Benches clear in ALDS Game 4 as Volpe, Garcia exchange words**\
 `Royals’ Maikel Garcia took offense to a tag applied by Yankees shortstop Anthony Volpe on a sixth-inning double play.`\
 https://nytimes.com/athletic/5835577/2024/10/10/yankees-royals-benches-clear-alds-game-4/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/nyregion/eric-adams-bribery-inquiry-school-safety
 **Joba Chamberlain wears Yankees, Royals World Series rings to ALDS, has ‘goose bumps’**\
 `Chamberlain said he decided on a whim to make the three-hour drive to Game 4 of the ALDS from his home in Lincoln, Neb.`\
 https://nytimes.com/athletic/5835378/2024/10/10/joba-chamberlain-yankees-royals-world-series-rings-alds/
-
-**ason Reddick's agency parts ways with him amid Jets holdout**\
-`The Jets traded for Reddick this offseason but he hasn't reported to the team and has racked up more than $8 million in fines.`\
-https://nytimes.com/athletic/5835356/2024/10/10/haason-reddick-agency-part-ways-jets/
-
-**What's impressed the Flyers about Matvei Michkov? So far, everything**\
-`The Flyers are trying not to put too much pressure on their young star, but Michkov is earning praise left and right.`\
-https://nytimes.com/athletic/5835296/2024/10/10/flyers-matvei-michkov-impressive-briere-tortorella/
 
