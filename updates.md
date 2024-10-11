@@ -1,3 +1,7 @@
+**Yankees, Cole advance to ALCS over Royals: Takeaways**\
+`The Yankees will host Game 1 of the American League Championship Series on Monday night.`\
+https://nytimes.com/athletic/5835573/2024/10/10/yankees-royals-score-mlb-playoffs-game-4-takeaways/
+
 **A Rare Sighting of Northern Lights Entrances Viewers in New York Area**\
 `The aurora borealis, which transformed the sky with startling streaks of pink and purple, arose from a magnetic storm.`\
 https://nytimes.com/2024/10/10/nyregion/northern-lights-new-york.html
