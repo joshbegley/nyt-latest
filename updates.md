@@ -73,6 +73,11 @@ https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david
 `\
 https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
 
+**Mirtle: 6 way-too-early observations on the new-look Maple Leafs**\
+`With several new key pieces in place this season, we'll try and discern as much as we can from Toronto's two games.
+`\
+https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
+
 **As Floridians Return, Officials Size Up Milton’s Uneven Trail of Destruction**\
 `Power outages, gas shortages and pockets of flooding were among the lingering issues. But Gov. Ron DeSantis said the damage could have been worse.`\
 https://nytimes.com/2024/10/11/weather/hurricane-milton-damage.html
