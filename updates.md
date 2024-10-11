@@ -1,3 +1,7 @@
+**For Atomic Bomb Survivors, a Nobel Prize and a Reckoning, 80 Years Later**\
+`Toshiyuki Mimaki, the chairman of Nihon Hidankyo, which was awarded the Nobel Peace Prize, said his foremost wish was to “please abolish nuclear weapons while we are alive.”`\
+https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/nobel-peace-prize-nihon-hidanyuo-atomic-bomb
+
 **Israeli and U.S. Defense Ministers Discuss Israel’s Expanding Conflicts in Mideast**\
 `Defense Secretary Lloyd J. Austin III spoke with his Israeli counterpart, Yoav Gallant, on Thursday, the Pentagon said.`\
 https://nytimes.com/2024/10/11/world/middleeast/israeli-and-us-defense-ministers-discuss-israels-expanding-conflicts-in-mideast.html
