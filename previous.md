@@ -1,3 +1,15 @@
+**A Night of Love and Mischief With Stevie Wonder**\
+`At 74, the singer and songwriter returns to arenas with a message of healing and understanding. He’s using trademark exuberance and joy to deliver it.`\
+https://nytimes.com/2024/10/11/arts/music/stevie-wonder-sing-your-song-as-we-fix-our-nations-broken-heart-review.html
+
+**The Athletic FC answers your questions: What do you want to know about the game?**\
+`What do you want to know about the game? Phil Hay is here to answer your questions, big and small`\
+https://nytimes.com/athletic/5836931/2024/10/11/the-athletic-fc-answers-your-questions-what-do-you-want-to-know-about-the-game/
+
+**How Global Warming Made Hurricane Milton More Intense and Destructive**\
+`Greenhouse gas emissions added rain, intensified winds and doubled the storm’s potential property damage, scientists estimated.`\
+https://nytimes.com/2024/10/11/climate/milton-climate-change.html
+
 **What we're seeing: Canucks lineup tweaks, Kiefer Sherwood's grit and the breakout problem**\
 `Vancouver's season-opening loss was just one game but it provided an unusual amount of grist for the mill.`\
 https://nytimes.com/athletic/5836190/2024/10/11/canucks-lineup-kiefer-sherwood/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/11/arts/music/gustavo-dudamel-los-angeles-philharmon
 **The Windup: So far, it's New York and New York**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5836925/2024/10/11/yankees-royals-mlb-playoffs-the-windup/
-
-**Hairballs Shed Light on Man-Eating Lions’ Menu**\
-`The Tsavo man-eaters terrorized railroad workers in British East Africa in the 19th century, but their tastes went well beyond human flesh.`\
-https://nytimes.com/2024/10/11/science/tsavo-lions-man-eating-dna.html
-
-**Five Horror Movies to Stream Now**\
-`Just in time for Halloween are new scary movies about a demon daddy, evil in the woods and ’90s television hell.`\
-https://nytimes.com/2024/10/11/movies/best-new-horror-movies-streaming.html
-
-**What to Do With That Apple-Picking Haul**\
-`Both the fruit and cider go into this supremely seasonal recipe for apple cider chicken with apples and parsnips.`\
-https://nytimes.com/2024/10/11/dining/what-to-do-with-that-apple-picking-haul.html
 
