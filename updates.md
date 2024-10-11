@@ -1,3 +1,7 @@
+**Courtney Williams, Lynx rally to beat Liberty in Game 1**\
+`Williams led the way with 23 points, followed closely by Kayla McBride’s 22 and Napheesa Collier’s 21.`\
+https://nytimes.com/athletic/5835642/2024/10/10/lynx-liberty-wnba-finals-game-1-score-takeaways/
+
 **Review: An ‘Our Town’ for All of Us, Starring Jim Parsons**\
 `The Thornton Wilder classic returns to Broadway, still brutal and avant-garde after 86 years.`\
 https://nytimes.com/2024/10/10/theater/our-town-review-jim-parsons.html
