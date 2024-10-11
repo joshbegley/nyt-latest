@@ -1,3 +1,7 @@
+**The Monument Where Fauvism was Born, Prince Sang and Models Strutted**\
+`Next week, art lovers will descend upon the Grand Palais for Art Basel Paris. But it’s hardly the building’s first turn in the spotlight.`\
+https://nytimes.com/2024/10/11/arts/design/grand-palais-paris-history.html
+
 **The Asia Now Fair Marks 10 Years in Paris**\
 `This year the event will feature odes to fire, water and homeland, with live performances, elegiac paeans and an eye to the idea of ceremony.`\
 https://nytimes.com/2024/10/11/arts/design/asia-now-tenth-anniversary.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/arts/design/musee-dorsay-elmgreen-dragset.html
 **Giannis dominates in preseason debut, Bobby Portis stays hot and AJ Jackson impresses**\
 `Thunderous dunks. A chase-down block. The Bucks' two-time NBA MVP looked great in his preseason debut against the Lakers on Thursday.`\
 https://nytimes.com/athletic/5835524/2024/10/11/giannis-antetokounmpo-bucks-lakers/
-
-**It’s Been 38 Years. Mark Manders is Still Working on His ‘Self-Portrait.’**\
-`The artist, whose work is being shown across Europe this month, reflected on fictional spaces, semi-truths and hidden losses.`\
-https://nytimes.com/2024/10/11/arts/design/mark-manders-art-basel-paris.html
 
