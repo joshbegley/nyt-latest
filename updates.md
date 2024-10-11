@@ -1,3 +1,7 @@
+**Agony, and Relief, for Island Residents Who Were Hit Hard 2 Years Ago**\
+`Residents of Sanibel Island, Fla., feared the worst when they evacuated to safer ground before Hurricane Milton arrived.`\
+https://nytimes.com/2024/10/10/weather/sanibel-island-hurricane-milton.html
+
 **Investigators Search N.Y.P.D. School Safety Offices in Bribery Inquiry**\
 `The search, and the seizure of a police official’s phone, were part of a welter of federal investigations into Mayor Eric Adams and his inner circle.`\
 https://nytimes.com/2024/10/10/nyregion/eric-adams-bribery-inquiry-school-safety.html
