@@ -1,3 +1,7 @@
+**How a dark memory motivated Yankees, Aaron Judge to ALDS glory**\
+`A season ago at Kauffman Stadium, the Yankees' season ended. A year later, it was the sight of celebration as New York advanced to the ALCS.`\
+https://nytimes.com/athletic/5836089/2024/10/11/aaron-judge-new-york-yankees-alds-winners/
+
 **Jimmy Kimmel Debunks the Government-Hurricane-Control Theory**\
 `“The only person who can control the weather is Beyoncé,” Kimmel said on Thursday.`\
 https://nytimes.com/2024/10/11/arts/television/jimmy-kimmel-hurricane.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5835906/2024/10/11/macklin-celebrini-sharks-debut/
 **NFL injury report: James Cook iffy for Week 6 and beyond; checking in on CMC, Cooper Kupp**\
 `Greg Scholz of Inside Injuries offers updates on CMC and Cooper Kupp, and surmises that Buffalo's James Cook could be out Week 6 and beyond.`\
 https://nytimes.com/athletic/5835632/2024/10/11/nfl-injury-report-week-6-james-cook-cmc-kupp/
-
-**Give Ukraine NATO Membership. Peace Depends on It.**\
-`Europe will not be secure — and will not be whole and free — until Ukraine is in NATO. Ukraine will not agree to end the war without it.`\
-https://nytimes.com/2024/10/11/opinion/ukraine-nato-membership-russia.html
 
