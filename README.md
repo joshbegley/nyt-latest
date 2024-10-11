@@ -1,3 +1,19 @@
+**A Choreographer’s Errands Into the Wilderness**\
+`The Greek-born choreographer Lenio Kaklea made her American debut at Governors Island, a fitting spot for work about the boundaries between nature and culture.`\
+https://nytimes.com/2024/10/11/arts/dance/lenio-kaklea-crossing-the-line.html
+
+**Searching for homes, and the neighbors who once lived in them, at a demolished building in Beirut.**\
+`By Christina Goldbaum, Hwaida Saad and David Guttenfelder`\
+https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/searching-for-homes-and-the-neighbors-who-once-lived-in-them-at-a-demolished-building-in-beirut
+
+**Want Your Jack-o’-lantern to Last Longer? Stop Cutting a Hole in the Top.**\
+`By Rose Maura Lorre`\
+https://nytimes.com/card/2024/10/11/smarter-living/wirecutter/how-to-make-your-pumpkins-last-longer
+
+**In Florida, Yom Kippur Services Adjust After Hurricane Milton**\
+`Some Rabbis are altering tradition slightly to account for dispersed congregations, power outages and flooded temples. For others, it’s business as usual.`\
+https://nytimes.com/2024/10/11/weather/yom-kippur-florida-hurricane-milton.html
+
 **Football Parlay Friday Week 7: Trying to stay hot with five underdog picks**\
 `Austin Mock has five college football underdogs for a round robin parlay for Saturday's Week 7 action, including USC and Oregon.`\
 https://nytimes.com/athletic/5837255/2024/10/11/football-parlay-friday-week-7-trying-to-stay-hot-with-five-underdog-picks/
@@ -17,20 +33,4 @@ https://nytimes.com/interactive/2024/10/11/arts/television/best-of-late-night-tr
 **SailGP Is Becoming All Grown Up**\
 `There are new teams, new events and higher team valuations. And last season had a different champion when Spain dethroned Australia.`\
 https://nytimes.com/2024/10/11/sports/sailing/sailgp-series-growth.html
-
-**Giants' Malik Nabers ruled out vs. Bengals**\
-`New York Giants rookie wide receiver Malik Nabers has been ruled out for Sunday night's game against the Cincinnati Bengals.`\
-https://nytimes.com/athletic/5837144/2024/10/11/ny-giants-malik-nabers-concussion-injury/
-
-**Trump Agrees to a ‘Women’s Issues’ Event on Fox News, but Shuns Debate**\
-`The audience will be made up of women at the event, a town hall in Georgia to be taped on Tuesday and aired on Wednesday, the network said.`\
-https://nytimes.com/2024/10/11/business/media/trump-fox-women-town-hall.html
-
-**The Premier League’s Fight With Manchester City Won’t End Well for Anyone**\
-`A decision about rules that left both sides claiming victory revealed the broken reality of the world’s richest competition.`\
-https://nytimes.com/2024/10/11/world/europe/manchester-city-premier-league.html
-
-**Social media brings tennis players and fans closer, for better and for worse**\
-`As the cross-cultural tennis star power of the 2000s fades, the best players of the 2020s are using off-court avenues to engage with fans.`\
-https://nytimes.com/athletic/5732937/2024/10/11/tennis-social-media-player-accounts-abuse/
 
