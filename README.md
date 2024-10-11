@@ -1,4 +1,4 @@
-**How Haas’s F1 partnership with Toyota will work: ‘It’s not to replace Ferrari’**\
+**How Haas’ F1 partnership with Toyota will work: ‘It’s not to replace Ferrari’**\
 `Haas announced a new partnership with Toyota, but that doesn't mean Toyota is nearing an F1 return. `\
 https://nytimes.com/athletic/5836865/2024/10/11/haas-f1-toyota-partnership-ferrari/
 
