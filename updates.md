@@ -1,3 +1,7 @@
+**The Aftermath of Thursday’s Deadly Strikes in Beirut**\
+`By David Guttenfelder and Diego Ibarra Sanchez`\
+https://nytimes.com/card/2024/10/11/world/middleeast/the-aftermath-of-thursdays-deadly-strikes-in-beirut
+
 **‘Who Is That? What’s Happening?’: Decoding the Art World at Frieze**\
 `The London art fair can be a bewildering spectacle, where even the insiders are sometimes scrambling to keep up.`\
 https://nytimes.com/2024/10/11/arts/design/frieze-london.html
