@@ -1,3 +1,23 @@
+**Social media brings tennis players and fans closer, for better and for worse**\
+`As the cross-cultural tennis star power of the 2000s fades, the best players of the 2020s are using off-court avenues to engage with fans.`\
+https://nytimes.com/athletic/5732937/2024/10/11/tennis-social-media-player-accounts-abuse/
+
+**Social Security: Why It Matters for Young People, Not Just Retirees**\
+`Despite fears about long-term solvency, millennials and Gen Z workers have a major stake in the program.`\
+https://nytimes.com/2024/10/11/business/social-security-millennials-gen-z.html
+
+**Fantasy football flex fliers: Jalen Tolbert, Alec Pierce and other under-the-radar options for Week 6**\
+`Scott Engel gives his top fantasy football picks for flex position fliers heading into Week 6.`\
+https://nytimes.com/athletic/5836798/2024/10/11/fantasy-football-fliers-week-6-jalen-tolbert/
+
+**Madrid prospect Martinez signs new contract through to 2027**\
+`Real Madrid centre-back Joan Martinez has signed a new contract with the club through to 2027.`\
+https://nytimes.com/athletic/5818018/2024/10/11/joan-martinez-contract-real-madrid/
+
+**How to Prepare for SailGP? Inhale the Data, Practice and Study More Data.**\
+`Information is vital, as is simulator training and time on the water. It is up to each team to sort out what is useful.`\
+https://nytimes.com/2024/10/11/sports/sailing/sailgp-training-data.html
+
 **Kim Jones Leaving Fendi**\
 `From fashion world rumor to reality, another industry shake-up.`\
 https://nytimes.com/2024/10/11/style/kim-jones-fendi-dior-lvmh.html
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/5836521/2024/10/11/joe-thompson-cancer-charity-walk
 **These Arizona Women Are Keeping Kamala Harris’s Hopes Alive**\
 `A conversation among “mom friends” in suburban Phoenix shows the depths of Donald J. Trump’s trouble with a key slice of female voters.`\
 https://nytimes.com/2024/10/11/us/politics/harris-trump-women-voters.html
-
-**Athlos tops 3 million viewers, plans 'annual event'**\
-`Reddit founder Alexis Ohanian's women’s track event late last month drew some 3 million viewers across its non-exclusive platforms.`\
-https://nytimes.com/athletic/5834472/2024/10/11/athlos-womens-track-viewership/
-
-**Martine Grael Makes Her Mark in SailGP**\
-`Her Brazilian family has been racing for years. She is now set to become the first woman to drive in the series.`\
-https://nytimes.com/2024/10/11/sports/sailing/martine-grael-sailgp.html
-
-**‘Brat’ Autumn Has Begun**\
-`A performance and art installation by Charli XCX lured her fans out of the club and into nature.`\
-https://nytimes.com/2024/10/11/style/brat-charli-xcx-storm-king.html
-
-**Destruction and disbelief in a Beirut neighborhood that residents thought was safe.**\
-`By Christina Goldbaum and Jacob Roubai`\
-https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/destruction-and-disbelief-in-a-beirut-neighborhood-that-residents-thought-was-safe
-
-**Harris to Appear on ‘The Breakfast Club’ With Charlamagne Tha God**\
-`The radio show hosted by the entertainer and author has long been a venue for candidates to appeal to Black voters.`\
-https://nytimes.com/2024/10/11/us/politics/harris-breakfast-club-charlamagne-tha-god.html
 
