@@ -1,3 +1,15 @@
+**It’s Touring Season: Chappell, Sabrina and Mk.gee Hit the Stage**\
+`A roundup of some of the biggest and most impactful shows on the road this fall, and how live performances can shift the audience’s perception of an artist.`\
+https://nytimes.com/2024/10/11/arts/music/popcast-tours-sabrina-carpenter-chappell-roan-mkgee.html
+
+**If You Care About the Supreme Court, Care About the Senate**\
+`Republican control of the chamber will consolidate conservative domination of the court.`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/supreme-court-senate-polls
+
+**The Art is Dark, but the Artist Sees Layers of Light**\
+`Ali Cherri, whose work deals with death and other serious undertones, will have four shows at various locations during Art Basel Paris.`\
+https://nytimes.com/2024/10/11/arts/design/ali-cherri-art-basel-paris.html
+
 **The Artist Who Helped Bring Trans Visibility to Comic Books**\
 `An exhibition at Art Basel Paris will showcase the work of Nazario Luque Vera, whose comic about a transgender detective made him a major countercultural figure in Spain.`\
 https://nytimes.com/2024/10/11/arts/design/12sp-art-basel-vera-inyt.html
