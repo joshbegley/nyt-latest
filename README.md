@@ -1,3 +1,15 @@
+**Obama Rallies for Harris in Pittsburgh**\
+`The former president made the case for Vice President Kamala Harris’s bid for the White House by delivering a takedown of Donald Trump as unable to relate to everyday Americans.`\
+https://nytimes.com/video/us/elections/100000009756115/obama-harris-pittsburgh-democrats.html
+
+**The Tigers have their backs against the wall, and they wouldn’t have it any other way**\
+`After letting a lead slip, the Tigers enter ALDS Game 5 with Kerry Carpenter hurt, their season on the line and Tarik Skubal on the mound.`\
+https://nytimes.com/athletic/5835738/2024/10/10/tigers-alds-game-4-loss/
+
+**Dodgers weigh pitching options for winner-take-all Game 5 against Padres**\
+`Beyond Yoshinobu Yamamoto, the Dodgers appear to be discussing running back the same formula that worked in Game 4.`\
+https://nytimes.com/athletic/5835530/2024/10/10/dodgers-game-5-pitching-plans/
+
 **What you need to know from the MLB playoffs: Yankees await Tigers or Guardians**\
 `David Fry put the Guardians on his back to force a winner-take-all Game 5, while the Yankees ousted the Royals to move onto the ALCS.`\
 https://nytimes.com/athletic/5835629/2024/10/10/mlb-postseason-2024-what-you-need-to-know-3/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5835573/2024/10/10/yankees-royals-score-mlb-playoff
 **A Rare Sighting of Northern Lights Entrances Viewers in New York Area**\
 `The aurora borealis, which transformed the sky with startling streaks of pink and purple, arose from a magnetic storm.`\
 https://nytimes.com/2024/10/10/nyregion/northern-lights-new-york.html
-
-**Maple Leafs report cards: Dennis Hildeby shines in debut win**\
-`The 2022 draft pick's NHL debut was nothing short of a success, getting the win in a 4-2 victory over New Jersey.`\
-https://nytimes.com/athletic/5835603/2024/10/10/maple-leafs-devils-dennis-hildeby/
-
-**Benches clear in ALDS Game 4 as Volpe, Garcia exchange words**\
-`Royals’ Maikel Garcia took offense to a tag applied by Yankees shortstop Anthony Volpe on a sixth-inning double play.`\
-https://nytimes.com/athletic/5835577/2024/10/10/yankees-royals-benches-clear-alds-game-4/
-
-**What Hilarity Often Does**\
-`Billy Bratton opens our solving weekend.`\
-https://nytimes.com/2024/10/10/crosswords/daily-puzzle-2024-10-11.html
 
