@@ -1,8 +1,4 @@
-**What you need to know from the MLB playoffs: Yankees await Tigers or Guardians**\
-`David Fry put the Guardians on his back to force a winner-take-all Game 5, while the Yankees ousted the Royals to move onto the ALCS.`\
-https://nytimes.com/athletic/5835629/2024/10/10/mlb-postseason-2024-what-you-need-to-know-3/
-
-**Courtney Williams, Lynx rally to beat Liberty in Game 1**\
+**Courtney Williams, Lynx rally to beat Liberty in OT thriller**\
 `Williams led the way with 23 points, followed closely by Kayla McBride’s 22 and Napheesa Collier’s 21.`\
 https://nytimes.com/athletic/5835642/2024/10/10/lynx-liberty-wnba-finals-game-1-score-takeaways/
 
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5835577/2024/10/10/yankees-royals-benches-clear-ald
 **What Hilarity Often Does**\
 `Billy Bratton opens our solving weekend.`\
 https://nytimes.com/2024/10/10/crosswords/daily-puzzle-2024-10-11.html
+
+**Florida spring training sites appear to avoid serious damage from Hurricane Milton**\
+`Initial reports on the condition of several spring training facilities around Florida were not as bad as initially feared. `\
+https://nytimes.com/athletic/5835092/2024/10/10/florida-spring-training-sites-hurricane-milton/
 
