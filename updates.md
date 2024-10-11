@@ -1,3 +1,7 @@
+**As Guardians prepare for Game 5, emotions are running high: 'This is what you dream of'**\
+`Michael Boyd was moved to tears when he allowed himself to think about his upcoming Game 5 start and the road he took to get there.`\
+https://nytimes.com/athletic/5837667/2024/10/11/cleveland-guardians-emotions-alds-game-5/
+
 **Joseph H. Reich, Charter School Pioneer, Dies at 89**\
 `When he and his wife opened the Beginning With Children school in Brooklyn to offer more educational opportunities to children, they set off a national trend.`\
 https://nytimes.com/2024/10/11/nyregion/joseph-h-reich-dead.html
