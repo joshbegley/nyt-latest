@@ -1,3 +1,15 @@
+**Quote of the Day: Lindor’s Heroics: Feeling Is Believing**\
+`Quotation of the Day for Friday, October 11, 2024`\
+https://nytimes.com/2024/10/10/pageoneplus/quote-of-the-day-lindors-heroics-feeling-is-believing.html
+
+**NFL misses potential muffed punt call in 49ers vs. Seahawks TNF game**\
+`The NFL's replay review room apparently didn't have access to the same enhanced video that was showing on the Prime Video broadcast.`\
+https://nytimes.com/athletic/5835795/2024/10/10/nfl-misses-potential-muffed-punt-call-in-49ers-vs-seahawks-tnf-game/
+
+**José Ramírez and Emmanuel Clase's resurgence has Guardians flying high**\
+`Ramírez slugged a fifth inning solo homer, while Clase got a five-out save to force a deciding fifth game. `\
+https://nytimes.com/athletic/5835737/2024/10/10/jose-ramirez-emmanuel-clase-lift-cleveland-guardians-alds/
+
 **‘That’s an overpay’: Jeremy Swayman smashed the goalie market, and he’s not sorry about it**\
 `In his first appearance since he signed his contract, Swayman was "not satisfied" with his performance despite earning the win. `\
 https://nytimes.com/athletic/5835466/2024/10/10/bruins-jeremy-swayman-contract-goalie/
