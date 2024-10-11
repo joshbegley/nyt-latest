@@ -1,9 +1,13 @@
+**Leeds considering move to sign free agent Kouyate**\
+`Leeds United are weighing up a move to sign free agent Cheikhou Kouyate on a short-term deal for the remainder of the 2024-25 campaign.`\
+https://nytimes.com/athletic/5837661/2024/10/11/cheikhou-kouyate-leeds-united-transfer/
+
 **Colts' Pittman makes surprise return, Taylor out**\
 `Colts starting quarterback Anthony Richardson is also questionable to play at Tennessee in Week 6.`\
 https://nytimes.com/athletic/5837294/2024/10/11/michael-pittman-jr-surprise-return-jonathan-taylor-out/
 
 **Inside Donald Trump’s Shadow Presidency**\
-`In the years since he left the White House, former President Donald J. Trump has acted as something of a shadow president, operating out of his Mar-a-Lago estate in Florida.`\
+`In the years since he left the White House, former President Donald J. Trump has remained a force in international politics, meeting with a number of foreign leaders and operating out of his Mar-a-Lago estate in Florida.`\
 https://nytimes.com/2024/10/11/us/politics/inside-donald-trumps-shadow-presidency.html
 
 **Stanley Tucci on His New Book, ‘What I Ate in One Year’**\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/science/northern-lights-world-photos.html
 **49ers' Ricky Pearsall to return to practice next week**\
 `San Francisco's first-round draft pick will return to practice this week ahead of the 49ers' Super Bowl rematch with the Chiefs.`\
 https://nytimes.com/athletic/5807275/2024/10/11/49ers-ricky-pearsall-to-return-to-practice-6-weeks-after-shooting-incident/
-
-**Trump Is Said to Consider Brooke Rollins for White House Chief of Staff**\
-`Ms. Rollins, a conservative lawyer who ran domestic policy in the Trump administration, is said to be under consideration for the role should Donald J. Trump win the election.`\
-https://nytimes.com/2024/10/11/us/politics/trump-brooke-rollins-chief-of-staff.html
 

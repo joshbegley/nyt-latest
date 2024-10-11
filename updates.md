@@ -1,3 +1,11 @@
+**Leeds considering move to sign free agent Kouyate**\
+`Leeds United are weighing up a move to sign free agent Cheikhou Kouyate on a short-term deal for the remainder of the 2024-25 campaign.`\
+https://nytimes.com/athletic/5837661/2024/10/11/cheikhou-kouyate-leeds-united-transfer/
+
+**Inside Donald Trump’s Shadow Presidency**\
+`In the years since he left the White House, former President Donald J. Trump has remained a force in international politics, meeting with a number of foreign leaders and operating out of his Mar-a-Lago estate in Florida.`\
+https://nytimes.com/2024/10/11/us/politics/inside-donald-trumps-shadow-presidency.html
+
 **Colts' Pittman makes surprise return, Taylor out**\
 `Colts starting quarterback Anthony Richardson is also questionable to play at Tennessee in Week 6.`\
 https://nytimes.com/athletic/5837294/2024/10/11/michael-pittman-jr-surprise-return-jonathan-taylor-out/
