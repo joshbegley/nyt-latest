@@ -1,3 +1,7 @@
+**How to Make Dinner Out of Anything in Your Pantry**\
+`Make those everyday staples anything but boring with these expert tips.`\
+https://nytimes.com/article/pantry-ingredient-dinner-ideas.html
+
 **6 New Shows Our Theater Critics Are Talking About**\
 `The fall season is underway, and our reviewers think these productions are worth knowing about, even if you’re not planning to see them.`\
 https://nytimes.com/2024/10/11/theater/new-shows-theater-broadway.html
