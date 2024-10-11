@@ -1,3 +1,11 @@
+**Word of the Day: robust**\
+`This word has appeared in 1,321 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/11/learning/word-of-the-day-robust.html
+
+**Carsley's England future no longer looks secure after confusing moments on the pitch and off it**\
+`England lost 2-1 to Greece on Thursday night, with Carsley's management and post-match comments leaving his future up in the air`\
+https://nytimes.com/athletic/5822832/2024/10/11/england-lee-carsley-greece-analysis/
+
 **Linus Ullmark shows why the Senators' investment in him was necessary: 5 takeaways**\
 `Ottawa fans have $33 million reasons to smile at new goalie Ullmark, and the good times started in the opener.`\
 https://nytimes.com/athletic/5835030/2024/10/11/senators-takeaways-stutzle-pinto-ullmark/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5827844/2024/10/11/wrexham-not-playing-internationa
 **How Arteta is using 'sequences' of matches to make Arsenal more effective**\
 `Arsenal's manager is breaking their season down into blocks of games to try to manage the challenges of competing on multiple fronts`\
 https://nytimes.com/athletic/5827893/2024/10/11/mikel-arteta-sequences-arsenal/
-
-**Manchester City and Oasis: The story behind the best-selling Noel Gallagher-designed kit**\
-`The story behind the new City kit - one of the fastest-selling jerseys in the club's history `\
-https://nytimes.com/athletic/5805969/2024/10/11/manchester-city-oasis-kit-noel-gallagher/
-
-**Liverpool's one-game wonders: 'I understood the magnitude of it and I kind of choked'**\
-`From a match in Macedonia to having their family put up in a box by Trent Alexander-Arnold, these are their memories of the big day`\
-https://nytimes.com/athletic/5805469/2024/10/11/liverpool-one-game-wonders/
 

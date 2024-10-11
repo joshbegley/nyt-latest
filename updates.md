@@ -1,3 +1,11 @@
+**Word of the Day: robust**\
+`This word has appeared in 1,321 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/11/learning/word-of-the-day-robust.html
+
+**Carsley's England future no longer looks secure after confusing moments on the pitch and off it**\
+`England lost 2-1 to Greece on Thursday night, with Carsley's management and post-match comments leaving his future up in the air`\
+https://nytimes.com/athletic/5822832/2024/10/11/england-lee-carsley-greece-analysis/
+
 **Linus Ullmark shows why the Senators' investment in him was necessary: 5 takeaways**\
 `Ottawa fans have $33 million reasons to smile at new goalie Ullmark, and the good times started in the opener.`\
 https://nytimes.com/athletic/5835030/2024/10/11/senators-takeaways-stutzle-pinto-ullmark/
