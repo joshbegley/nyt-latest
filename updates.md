@@ -1,3 +1,19 @@
+**Inside the rebirth of the Orlando Pride**\
+`The Pride have gone from floundering to in the NWSL to chasing an unbeaten season - this is how they did it`\
+https://nytimes.com/athletic/5837184/2024/10/11/orlando-pride-nwsl-shield-unbeaten/
+
+**Mark Makers – Kofi Amoo-Gottfried**\
+`The Moment Lessons From Africa Helped Businesses in America`\
+https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-kofi-amoo-gottfried.html
+
+**In Michigan, Walz Assails Trump’s Record on Manufacturing**\
+`The Minnesota governor running for vice president on the Democratic ticket also had strong words for Elon Musk, the billionaire businessman who is working to get former President Donald J. Trump elected.`\
+https://nytimes.com/2024/10/11/us/politics/walz-trump-michigan.html
+
+**Mark Makers – Don McGuire**\
+`The Moment I Turned Losing Into a Launchpad`\
+https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-don-mcguire.html
+
 **Are They Not Famous, or Are You in a Bubble?**\
 `The Hollywood Reporter’s “A-List” of influencers inspired quite a few jokes online, but the creators who made the cut have millions of followers. In 2024, fame is evolving.`\
 https://nytimes.com/2024/10/11/style/hollywood-reporter-influencers-a-list.html
