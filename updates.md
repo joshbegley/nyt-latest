@@ -1,3 +1,11 @@
+**Trump Agrees to a ‘Women’s Issues’ Event on Fox News, but Shuns Debate**\
+`The audience will be made up of women at the event, a town hall in Georgia to be taped on Tuesday and aired on Wednesday, the network said.`\
+https://nytimes.com/2024/10/11/business/media/trump-fox-women-town-hall.html
+
+**The Premier League’s Fight With Manchester City Won’t End Well for Anyone**\
+`A decision about rules that left both sides claiming victory revealed the broken reality of the world’s richest competition.`\
+https://nytimes.com/2024/10/11/world/europe/manchester-city-premier-league.html
+
 **Social media brings tennis players and fans closer, for better and for worse**\
 `As the cross-cultural tennis star power of the 2000s fades, the best players of the 2020s are using off-court avenues to engage with fans.`\
 https://nytimes.com/athletic/5732937/2024/10/11/tennis-social-media-player-accounts-abuse/
