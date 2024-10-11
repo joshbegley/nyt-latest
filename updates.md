@@ -1,3 +1,15 @@
+**Real Madrid's right-back search is speeding up. Who should they sign?**\
+`Even before Dani Carvajal's long-term injury, Real Madrid were looking for right-backs. Here are five possible targets`\
+https://nytimes.com/athletic/5834401/2024/10/11/real-madrid-right-back-alexander-arnold-frimpong-porro-carvajal/
+
+**Japanese Atomic Bomb Survivors Awarded Nobel Peace Prize**\
+`The Nobel committee said that Nihon Hidankyo, the Japanese grass-roots movement of “hibakusha,” or atomic bombing survivors, have demonstrated that “nuclear weapons must never be used again.”`\
+https://nytimes.com/video/world/europe/100000009756407/japanese-atomic-bomb-survivors-awarded-nobel-peace-prize.html
+
+**City to hire Sporting's Hugo Viana to replace Txiki Begiristain**\
+`Manchester City are set to hire Sporting Lisbon&#8217;s Hugo Viana to replace the outgoing Txiki Begiristain as their new sporting director.`\
+https://nytimes.com/athletic/5830446/2024/10/11/hugo-viana-manchester-city-who/
+
 **Rescuers Search for Survivors After Israel Strikes Central Beirut**\
 `At least 22 people were killed in the attack, Lebanese officials said, as Israel’s bombing campaign against Hezbollah militants continued.`\
 https://nytimes.com/2024/10/11/world/middleeast/israel-strikes-beirut-lebanon.html
