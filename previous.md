@@ -1,3 +1,7 @@
+**Benches clear in ALDS Game 4 as Volpe, Garcia exchange words**\
+`Royals’ Maikel Garcia took offense to a tag applied by Yankees shortstop Anthony Volpe on a sixth-inning double play.`\
+https://nytimes.com/athletic/5835577/2024/10/10/yankees-royals-benches-clear-alds-game-4/
+
 **What Hilarity Often Does**\
 `Billy Bratton opens our solving weekend.`\
 https://nytimes.com/2024/10/10/crosswords/daily-puzzle-2024-10-11.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5835356/2024/10/10/haason-reddick-agency-part-ways-
 **What's impressed the Flyers about Matvei Michkov? So far, everything**\
 `The Flyers are trying not to put too much pressure on their young star, but Michkov is earning praise left and right.`\
 https://nytimes.com/athletic/5835296/2024/10/10/flyers-matvei-michkov-impressive-briere-tortorella/
-
-**Airstrikes in Central Beirut Kill at Least 22 People**\
-`The attack appeared to be the deadliest in Beirut in more than a year of fighting between Israel and Hezbollah.`\
-https://nytimes.com/video/world/middleeast/100000009755984/lebanon-israel-hezbollah.html
 

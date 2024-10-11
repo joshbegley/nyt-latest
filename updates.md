@@ -1,3 +1,7 @@
+**Benches clear in ALDS Game 4 as Volpe, Garcia exchange words**\
+`Royals’ Maikel Garcia took offense to a tag applied by Yankees shortstop Anthony Volpe on a sixth-inning double play.`\
+https://nytimes.com/athletic/5835577/2024/10/10/yankees-royals-benches-clear-alds-game-4/
+
 **What Hilarity Often Does**\
 `Billy Bratton opens our solving weekend.`\
 https://nytimes.com/2024/10/10/crosswords/daily-puzzle-2024-10-11.html
