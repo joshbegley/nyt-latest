@@ -1,3 +1,7 @@
+**The U.S. imposes sanctions on Iran’s ‘ghost fleet’ of oil tankers.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/the-us-imposes-sanctions-on-irans-ghost-fleet-of-oil-tankers
+
 **Why Nevada Latinos Are Losing Faith in Government**\
 `Democrats have found their popularity with the Nevada electorate slipping. The fallout from the pandemic, including a struggling economy, has fostered mistrust in the government.`\
 https://nytimes.com/interactive/2024/10/11/us/elections/nevada-latino-voters.html
