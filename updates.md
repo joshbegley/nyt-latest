@@ -1,3 +1,11 @@
+**Kamala Harris Made the Political Personal on Her Media Tour**\
+`The vice president’s whirlwind tour of talk shows and interviews revealed the kind of persona she wants to present as she seeks to become the election’s main character.`\
+https://nytimes.com/2024/10/11/arts/television/kamala-harris-colbert-view.html
+
+**Big Banks Steer Through ‘Treacherous’ Conditions**\
+`Profits fell at JPMorgan and Wells Fargo, but the lenders reported results that were largely better than had been expected, a sign that the economy remained solid — for now.`\
+https://nytimes.com/2024/10/11/business/jpmorgan-banks-earnings.html
+
 **Are Giants actually a 'good team'? A prime-time win vs. Bengals would prove they're for real**\
 `Last Sunday’s win at Seattle prevented the Giants’ season from sliding off the tracks. But was the win a fluke or a sign of things to come?`\
 https://nytimes.com/athletic/5835578/2024/10/11/new-york-giants-bengals-preview-snf-dexter-lawrence/
