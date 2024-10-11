@@ -98,6 +98,11 @@ https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david
 `\
 https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
 
+**Mirtle: 6 way-too-early observations on the new-look Maple Leafs**\
+`With several new key pieces in place this season, we'll try and discern as much as we can from Toronto's two games.
+`\
+https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
+
 **A Retirement Community Prepared for a Hurricane. Tornadoes Came Instead.**\
 `Hurricane Milton’s death toll was highest far from the coast where it made landfall, in a retirement community where few were braced for destructive tornadoes.`\
 https://nytimes.com/2024/10/11/us/hurricane-milton-tornado-florida-deaths.html
