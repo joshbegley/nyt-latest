@@ -1,3 +1,7 @@
+**How a dark memory motivated Yankees, Aaron Judge to ALDS glory**\
+`A season ago at Kauffman Stadium, the Yankees' season ended. A year later, it was the sight of celebration as New York advanced to the ALCS.`\
+https://nytimes.com/athletic/5836089/2024/10/11/aaron-judge-new-york-yankees-alds-winners/
+
 **Jimmy Kimmel Debunks the Government-Hurricane-Control Theory**\
 `“The only person who can control the weather is Beyoncé,” Kimmel said on Thursday.`\
 https://nytimes.com/2024/10/11/arts/television/jimmy-kimmel-hurricane.html
