@@ -1,3 +1,15 @@
+**Row Z: Klopp as a Red Bull romantic, bushtucker trials imagined and taking it on the chins**\
+`Your weekly look at the more curious side of football - also featuring Roberto Mancini's gripes and bushtucker trials imagined`\
+https://nytimes.com/athletic/5830641/2024/10/11/klopp-red-bull-mccoist-mancini-row-z/
+
+**Mary Phillip on being England Women's first Black captain, managing a men's team and living with MS**\
+`There are trailblazers and then there's Phillip, the former England captain now winning silverware managing her hometown men's team`\
+https://nytimes.com/athletic/5831522/2024/10/11/mary-phillip-england-women-peckham/
+
+**Arsenal versus Chelsea will be spiky - but can the Eidevall-Bompastor rivalry bloom?**\
+`This was supposed to be the WSL's new managerial head to head, but pressure is mounting on the Arsenal boss with each stuttering performance`\
+https://nytimes.com/athletic/5833428/2024/10/11/arsenal-chelsea-eidevall-bompastor/
+
 **49ers overcome injuries, get ground game going to beat Seahawks**\
 `The 49ers offense made sure it was a busy night for the Seahawks defense in their 36-24 win.`\
 https://nytimes.com/athletic/5835599/2024/10/11/49ers-seahawks-score-result-takeaways/
