@@ -1,3 +1,7 @@
+**Patriots' RB Rhamondre Stevenson ruled out vs. Texans**\
+`The 1-2 Patriots will host the 4-1 Texans Sunday at Gillette Stadium.`\
+https://nytimes.com/athletic/5837735/2024/10/11/patriots-rhamondre-stevenson-ruled-out-injury/
+
 **Boeing Will Cut 17,000 Jobs in Bid to Slash Costs**\
 `A new chief executive is restructuring the aerospace manufacturer, which has been losing money for several years while struggling to improve production quality.`\
 https://nytimes.com/2024/10/11/business/boeing-job-cuts.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/10/08/opinion/thepoint/hurricane-milton-misinforma
 **FSU lawyer: Every conference needs answers on ACC contract**\
 `Friday’s ruling allows for the Florida case to proceed, for now, pending one of two reviews by Florida’s First District Court of Appeal.`\
 https://nytimes.com/athletic/5837502/2024/10/11/fsu-acc-lawsuit-contracts/
-
-**Northern Lights Animate Night Skies Around the Globe**\
-`An outburst from elevated solar activity created conditions on Thursday that kept people’s eyes glued to evening views all over the Northern Hemisphere.`\
-https://nytimes.com/2024/10/11/science/northern-lights-world-photos.html
 
