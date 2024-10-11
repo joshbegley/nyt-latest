@@ -1,4 +1,12 @@
-**How a dark memory motivated Yankees, Aaron Judge to ALDS glory**\
+**Breanna Stewart had two key chances ... and fell short in the Liberty's Game 1 WNBA Finals loss**\
+`Stewart and the Liberty need to bounce back in Game 2 on Sunday in New York.`\
+https://nytimes.com/athletic/5836061/2024/10/11/breanna-stewart-wnba-finals-game-1-loss/
+
+**Why the Royals' Bobby Witt Jr. sat alone, watching the Yankees celebrate in the ALDS**\
+`“That’s where I wanna be,” Witt said, as he watched his team's ALDS opponents rejoice on the field at Kauffman Stadium. `\
+https://nytimes.com/athletic/5836115/2024/10/11/bobby-witt-jr-royals-yankees-alds/
+
+**How a dark memory from the end of last season motivated Yankees, Aaron Judge to ALDS glory**\
 `A season ago at Kauffman Stadium, the Yankees' season ended. A year later, it was the sight of celebration as New York advanced to the ALCS.`\
 https://nytimes.com/athletic/5836089/2024/10/11/aaron-judge-new-york-yankees-alds-winners/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5835892/2024/10/11/yankees-royals-alds-jazz-chishol
 **One year after an opening-night healthy scratch, Kent Johnson stands out for Blue Jackets**\
 `Johnson was the most noticeable player on both ends of the ice in a 3-2 season-opening loss to the Minnesota Wild.`\
 https://nytimes.com/athletic/5835838/2024/10/11/blue-jackets-opening-night-kent-johnson/
-
-**Sharks' Macklin Celebrini notches first goal, assist in NHL debut**\
-`It didn’t take long for Celebrini to put his fingerprints on his first game before a sellout SAP Center crowd.`\
-https://nytimes.com/athletic/5835906/2024/10/11/macklin-celebrini-sharks-debut/
-
-**NFL injury report: James Cook iffy for Week 6 and beyond; checking in on CMC, Cooper Kupp**\
-`Greg Scholz of Inside Injuries offers updates on CMC and Cooper Kupp, and surmises that Buffalo's James Cook could be out Week 6 and beyond.`\
-https://nytimes.com/athletic/5835632/2024/10/11/nfl-injury-report-week-6-james-cook-cmc-kupp/
 
