@@ -1,3 +1,7 @@
+**Boeing Will Cut 17,000 Jobs in Bid to Slash Costs**\
+`A new chief executive is restructuring the aerospace manufacturer, which has been losing money for several years while struggling to improve production quality.`\
+https://nytimes.com/2024/10/11/business/boeing-job-cuts.html
+
 **Leeds considering move to sign free agent Kouyate**\
 `Leeds United are weighing up a move to sign free agent Cheikhou Kouyate on a short-term deal for the remainder of the 2024-25 campaign.`\
 https://nytimes.com/athletic/5837661/2024/10/11/cheikhou-kouyate-leeds-united-transfer/

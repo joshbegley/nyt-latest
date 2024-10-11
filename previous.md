@@ -1,3 +1,7 @@
+**Boeing Will Cut 17,000 Jobs in Bid to Slash Costs**\
+`A new chief executive is restructuring the aerospace manufacturer, which has been losing money for several years while struggling to improve production quality.`\
+https://nytimes.com/2024/10/11/business/boeing-job-cuts.html
+
 **Leeds considering move to sign free agent Kouyate**\
 `Leeds United are weighing up a move to sign free agent Cheikhou Kouyate on a short-term deal for the remainder of the 2024-25 campaign.`\
 https://nytimes.com/athletic/5837661/2024/10/11/cheikhou-kouyate-leeds-united-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5837502/2024/10/11/fsu-acc-lawsuit-contracts/
 **Northern Lights Animate Night Skies Around the Globe**\
 `An outburst from elevated solar activity created conditions on Thursday that kept people’s eyes glued to evening views all over the Northern Hemisphere.`\
 https://nytimes.com/2024/10/11/science/northern-lights-world-photos.html
-
-**49ers' Ricky Pearsall to return to practice next week**\
-`San Francisco's first-round draft pick will return to practice this week ahead of the 49ers' Super Bowl rematch with the Chiefs.`\
-https://nytimes.com/athletic/5807275/2024/10/11/49ers-ricky-pearsall-to-return-to-practice-6-weeks-after-shooting-incident/
 
