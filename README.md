@@ -1,3 +1,19 @@
+**Athlos tops 3 million viewers, plans 'annual event'**\
+`Reddit founder Alexis Ohanian's women’s track event late last month drew some 3 million viewers across its non-exclusive platforms.`\
+https://nytimes.com/athletic/5834472/2024/10/11/athlos-womens-track-viewership/
+
+**Martine Grael Makes Her Mark in SailGP**\
+`Her Brazilian family has been racing for years. She is now set to become the first woman to drive in the series.`\
+https://nytimes.com/2024/10/11/sports/sailing/martine-grael-sailgp.html
+
+**‘Brat’ Autumn Has Begun**\
+`A performance and art installation by Charli XCX lured her fans out of the club and into nature.`\
+https://nytimes.com/2024/10/11/style/brat-charli-xcx-storm-king.html
+
+**Destruction and disbelief in a Beirut neighborhood that residents thought was safe.**\
+`By Christina Goldbaum and Jacob Roubai`\
+https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/destruction-and-disbelief-in-a-beirut-neighborhood-that-residents-thought-was-safe
+
 **Harris to Appear on ‘The Breakfast Club’ With Charlamagne Tha God**\
 `The radio show hosted by the entertainer and author has long been a venue for candidates to appeal to Black voters.`\
 https://nytimes.com/2024/10/11/us/politics/harris-breakfast-club-charlamagne-tha-god.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/10/11/climate/milton-climate-change.html
 **What we're seeing: Canucks lineup tweaks, Kiefer Sherwood's grit and the breakout problem**\
 `Vancouver's season-opening loss was just one game but it provided an unusual amount of grist for the mill.`\
 https://nytimes.com/athletic/5836190/2024/10/11/canucks-lineup-kiefer-sherwood/
-
-**How to Make Dinner Out of Anything in Your Pantry**\
-`Make those everyday staples anything but boring with these expert tips.`\
-https://nytimes.com/article/pantry-ingredient-dinner-ideas.html
-
-**6 New Shows Our Theater Critics Are Talking About**\
-`The fall season is underway, and our reviewers think these productions are worth knowing about, even if you’re not planning to see them.`\
-https://nytimes.com/2024/10/11/theater/new-shows-theater-broadway.html
-
-**North Korea Accuses the South of Sending Leaflet-Scattering Drones**\
-`Pyongyang threatened military action if the provocations continued, while the South advised its angry neighbor not to act “rashly.”`\
-https://nytimes.com/2024/10/11/world/asia/north-korea-unmanned-drones-leaflets.html
-
-**Gustavo Dudamel Visits New York With Promise, and a Warning**\
-`The superstar conductor will take over the New York Philharmonic in 2026. Is his tour with the Los Angeles Philharmonic a preview?`\
-https://nytimes.com/2024/10/11/arts/music/gustavo-dudamel-los-angeles-philharmonic-carnegie.html
 
