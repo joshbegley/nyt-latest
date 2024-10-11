@@ -1,3 +1,11 @@
+**A Nebraska Senate Ad Lets One Mechanic Throw a Wrench at Another**\
+`Deb Fischer, the Republican incumbent, faces a stiff challenge from a union leader, Dan Osborn, running as an independent. Her latest ad calls him a “Democrat in disguise.”`\
+https://nytimes.com/2024/10/11/us/politics/fischer-osborn-nebraska-senate-ad.html
+
+**When Your Partner’s Ex Is Your Biggest Fan**\
+`Doug Emhoff’s ex-wife is one of Kamala Harris’s most vocal supporters. Their relationship has brought new attention to blended families, but mutual admiration isn’t always a given.`\
+https://nytimes.com/2024/10/11/style/kamala-harris-kerstin-emhoff.html
+
 **Patriots' RB Rhamondre Stevenson ruled out vs. Texans**\
 `The 1-2 Patriots will host the 4-1 Texans Sunday at Gillette Stadium.`\
 https://nytimes.com/athletic/5837735/2024/10/11/patriots-rhamondre-stevenson-ruled-out-injury/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/11/books/review/stanley-tucci-what-i-ate-in-one-year
 **Evan Gershkovich, U.S. Journalist Imprisoned in Russia, Will Publish a Memoir**\
 `The memoir, which will cover his time in prison and Russia’s move toward autocracy, will be published by Crown, an imprint of Penguin Random House.`\
 https://nytimes.com/2024/10/11/books/evan-gershkovich-memoir.html
-
-**The Latest Hurricanes Are Creating as Much Delusion as Damage**\
-`By David Wallace-Wells`\
-https://nytimes.com/live/2024/10/08/opinion/thepoint/hurricane-milton-misinformation-denialism
-
-**FSU lawyer: Every conference needs answers on ACC contract**\
-`Friday’s ruling allows for the Florida case to proceed, for now, pending one of two reviews by Florida’s First District Court of Appeal.`\
-https://nytimes.com/athletic/5837502/2024/10/11/fsu-acc-lawsuit-contracts/
 

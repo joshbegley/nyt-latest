@@ -1,3 +1,11 @@
+**A Nebraska Senate Ad Lets One Mechanic Throw a Wrench at Another**\
+`Deb Fischer, the Republican incumbent, faces a stiff challenge from a union leader, Dan Osborn, running as an independent. Her latest ad calls him a “Democrat in disguise.”`\
+https://nytimes.com/2024/10/11/us/politics/fischer-osborn-nebraska-senate-ad.html
+
+**When Your Partner’s Ex Is Your Biggest Fan**\
+`Doug Emhoff’s ex-wife is one of Kamala Harris’s most vocal supporters. Their relationship has brought new attention to blended families, but mutual admiration isn’t always a given.`\
+https://nytimes.com/2024/10/11/style/kamala-harris-kerstin-emhoff.html
+
 **Patriots' RB Rhamondre Stevenson ruled out vs. Texans**\
 `The 1-2 Patriots will host the 4-1 Texans Sunday at Gillette Stadium.`\
 https://nytimes.com/athletic/5837735/2024/10/11/patriots-rhamondre-stevenson-ruled-out-injury/
