@@ -34,7 +34,7 @@ https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/these-earlier
 `Few teams are bigger NBA mysteries than New Orleans this season. These issues will determine the team's ceiling.`\
 https://nytimes.com/athletic/5836278/2024/10/11/pelicans-zion-williamson-brandon-ingram-preseason/
 
-**Big Banks Open Their Books for First Test After Rate Cuts**\
-`Profits fell at JPMorgan and Wells Fargo, but the lenders reported results that were largely better than had been expected, a sign that the economy remained solid.`\
+**Big Banks Steer Through ‘Treacherous’ Conditions**\
+`Profits fell at JPMorgan and Wells Fargo, but the lenders reported results that were largely better than had been expected, a sign that the economy remained solid — for now.`\
 https://nytimes.com/2024/10/11/business/jpmorgan-banks-earnings.html
 
