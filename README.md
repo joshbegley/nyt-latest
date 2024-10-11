@@ -1,3 +1,7 @@
+**Giants' Malik Nabers ruled out vs. Bengals**\
+`New York Giants rookie wide receiver Malik Nabers has been ruled out for Sunday night's game against the Cincinnati Bengals.`\
+https://nytimes.com/athletic/5837144/2024/10/11/ny-giants-malik-nabers-concussion-injury/
+
 **Trump Agrees to a ‘Women’s Issues’ Event on Fox News, but Shuns Debate**\
 `The audience will be made up of women at the event, a town hall in Georgia to be taped on Tuesday and aired on Wednesday, the network said.`\
 https://nytimes.com/2024/10/11/business/media/trump-fox-women-town-hall.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/sports/sailing/sailgp-training-data.html
 **Kim Jones Leaving Fendi**\
 `From fashion world rumor to reality, another industry shake-up.`\
 https://nytimes.com/2024/10/11/style/kim-jones-fendi-dior-lvmh.html
-
-**A Trump Fix for the Housing Crisis Could Actually Make It Worse**\
-`The former president often implies that deportations will bring down housing costs. Reality is more complicated.`\
-https://nytimes.com/2024/10/11/business/economy/trump-housing-crisis-deportations.html
 
