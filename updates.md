@@ -1,3 +1,11 @@
+**Jimmy Kimmel Debunks the Government-Hurricane-Control Theory**\
+`“The only person who can control the weather is Beyoncé,” Kimmel said on Thursday.`\
+https://nytimes.com/2024/10/11/arts/television/jimmy-kimmel-hurricane.html
+
+**Eisen interview: His travel bug, dreams of NFL games in Paris and Dublin - and dismissing Jets bias**\
+`Rich Eisen has spoken to The Athletic about his experiences around the NFL London Games`\
+https://nytimes.com/athletic/5833674/2024/10/11/nfl-rich-eisen-interview/
+
 **Word of the Day: robust**\
 `This word has appeared in 1,321 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/11/learning/word-of-the-day-robust.html

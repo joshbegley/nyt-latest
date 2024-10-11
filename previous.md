@@ -1,3 +1,11 @@
+**Jimmy Kimmel Debunks the Government-Hurricane-Control Theory**\
+`“The only person who can control the weather is Beyoncé,” Kimmel said on Thursday.`\
+https://nytimes.com/2024/10/11/arts/television/jimmy-kimmel-hurricane.html
+
+**Eisen interview: His travel bug, dreams of NFL games in Paris and Dublin - and dismissing Jets bias**\
+`Rich Eisen has spoken to The Athletic about his experiences around the NFL London Games`\
+https://nytimes.com/athletic/5833674/2024/10/11/nfl-rich-eisen-interview/
+
 **Word of the Day: robust**\
 `This word has appeared in 1,321 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/10/11/learning/word-of-the-day-robust.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5835632/2024/10/11/nfl-injury-report-week-6-james-c
 **Give Ukraine NATO Membership. Peace Depends on It.**\
 `Europe will not be secure — and will not be whole and free — until Ukraine is in NATO. Ukraine will not agree to end the war without it.`\
 https://nytimes.com/2024/10/11/opinion/ukraine-nato-membership-russia.html
-
-**Why are Wrexham not playing during the international break? Are other League One games off?**\
-`Wrexham's game with Lincoln is postponed this weekend. Should League One close down during international breaks?`\
-https://nytimes.com/athletic/5827844/2024/10/11/wrexham-not-playing-international-break/
-
-**How Arteta is using 'sequences' of matches to make Arsenal more effective**\
-`Arsenal's manager is breaking their season down into blocks of games to try to manage the challenges of competing on multiple fronts`\
-https://nytimes.com/athletic/5827893/2024/10/11/mikel-arteta-sequences-arsenal/
 
