@@ -1,3 +1,15 @@
+**James Carville on Aging, Edibles and His Anxieties About Harris**\
+`At 79, the Democratic commentator is the subject of a documentary that captures his musings — and his warning to President Biden — about the toils of age.`\
+https://nytimes.com/2024/10/11/us/politics/james-carville-harris-biden-trump.html
+
+**Vance, Given 5 Chances to Say Trump Lost in 2020, Takes None**\
+`In an interview with The New York Times, Senator JD Vance repeatedly refused to acknowledge Donald J. Trump’s defeat and said he would not have certified the 2020 results.`\
+https://nytimes.com/2024/10/11/us/politics/vance-trump-2020-election-results.html
+
+**Vance Refuses to Acknowledge That Trump Lost the 2020 Election**\
+`During an interview with Lulu Garcia-Navarro, host of “The Interview,” Senator JD Vance of Ohio repeatedly dodged a question on whether he believed Donald J. Trump lost the 2020 election.`\
+https://nytimes.com/video/us/politics/100000009755918/vance-garcia-navarro-election-trump.html
+
 **Two Trickster Artists Provide New Perspective at Musée d’Orsay**\
 `This fall, the duo behind ‘Prada Marfa’ bring their playfulness to Paris, turning a venerable museum on its head.`\
 https://nytimes.com/2024/10/11/arts/design/musee-dorsay-elmgreen-dragset.html
@@ -21,20 +33,4 @@ https://nytimes.com/2024/10/11/arts/design/place-vendome-art-basel-paris.html
 **Trump Aides Sought Enhanced Security for Closing Stages of Campaign**\
 `Susie Wiles, a top Trump campaign adviser, was in contact with the White House chief of staff and the head of the Secret Service seeking military assets and other steps.`\
 https://nytimes.com/2024/10/11/us/politics/trump-campaign-security.html
-
-**Kamala Harris Made the Political Personal on Her Media Tour**\
-`The vice president’s whirlwind tour of talk shows and interviews revealed the kind of persona she wants to present as she seeks to become the election’s main character.`\
-https://nytimes.com/2024/10/11/arts/television/kamala-harris-colbert-view.html
-
-**Are Giants actually a 'good team'? A prime-time win vs. Bengals would prove they're for real**\
-`Last Sunday’s win at Seattle prevented the Giants’ season from sliding off the tracks. But was the win a fluke or a sign of things to come?`\
-https://nytimes.com/athletic/5835578/2024/10/11/new-york-giants-bengals-preview-snf-dexter-lawrence/
-
-**For Atomic Bomb Survivors, Nobel Peace Prize Is a Bittersweet Victory**\
-`Many survivors of the Hiroshima and Nagasaki attacks have dedicated their lives to campaigning for nuclear disarmament. Their mission has grown more urgent as the number of living witnesses to the bombings has dwindled.`\
-https://nytimes.com/2024/10/11/world/asia/japan-atomic-bomb-survivors-nobel-peace-prize.html
-
-**Five-star Boozer twins pick Duke over Miami**\
-`The brothers will continue the family legacy that their father, Carlos, began 25 years ago.`\
-https://nytimes.com/athletic/5827067/2024/10/11/boozer-brothers-duke-basketball/
 

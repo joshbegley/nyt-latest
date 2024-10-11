@@ -1,3 +1,15 @@
+**James Carville on Aging, Edibles and His Anxieties About Harris**\
+`At 79, the Democratic commentator is the subject of a documentary that captures his musings — and his warning to President Biden — about the toils of age.`\
+https://nytimes.com/2024/10/11/us/politics/james-carville-harris-biden-trump.html
+
+**Vance, Given 5 Chances to Say Trump Lost in 2020, Takes None**\
+`In an interview with The New York Times, Senator JD Vance repeatedly refused to acknowledge Donald J. Trump’s defeat and said he would not have certified the 2020 results.`\
+https://nytimes.com/2024/10/11/us/politics/vance-trump-2020-election-results.html
+
+**Vance Refuses to Acknowledge That Trump Lost the 2020 Election**\
+`During an interview with Lulu Garcia-Navarro, host of “The Interview,” Senator JD Vance of Ohio repeatedly dodged a question on whether he believed Donald J. Trump lost the 2020 election.`\
+https://nytimes.com/video/us/politics/100000009755918/vance-garcia-navarro-election-trump.html
+
 **Two Trickster Artists Provide New Perspective at Musée d’Orsay**\
 `This fall, the duo behind ‘Prada Marfa’ bring their playfulness to Paris, turning a venerable museum on its head.`\
 https://nytimes.com/2024/10/11/arts/design/musee-dorsay-elmgreen-dragset.html
