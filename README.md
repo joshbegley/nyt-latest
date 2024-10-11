@@ -1,3 +1,7 @@
+**Fantasy football rankings Week 6: Sleepers, projections, starts**\
+`Jake Ciely has what you need to set your fantasy football lineup, breaking down the sleepers and need-to-know stats for the Week 6 slate.`\
+https://nytimes.com/athletic/5829747/2024/10/11/fantasy-football-rankings-week-6-sleepers-projections-starts-jalen-tolbert-chase-brown/
+
 **Milton Leaves Many Florida Animals in Limbo**\
 `Florida’s shelters are overburdened after the storm and faced with an influx of animals. Organizations are helping to relocate them.`\
 https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-pets-animals.html
@@ -29,9 +33,4 @@ https://nytimes.com/2024/10/11/obituaries/mariama-ba-overlooked.html
 **San Diego Wave and NWSL face discrimination lawsuit filed by five former club employees**\
 `Five former San Diego Wave employees have filed a lawsuit against the club and the National Women’s Soccer League (NWSL), alleging multiple claims of discrimination, retaliation, wrongful termination and sexual harassment.`\
 https://nytimes.com/athletic/5837948/2024/10/11/san-diego-wave-discrimination-lawsuit-nwsl/
-
-**Mirtle: 6 way-too-early observations on the new-look Maple Leafs**\
-`With several new key pieces in place this season, we'll try and discern as much as we can from Toronto's two games.
-`\
-https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
 
