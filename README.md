@@ -1,3 +1,7 @@
+**Yankees, Cole advance to ALCS over Royals: Takeaways**\
+`The Yankees will host Game 1 of the American League Championship Series on Monday night.`\
+https://nytimes.com/athletic/5835573/2024/10/10/yankees-royals-score-mlb-playoffs-game-4-takeaways/
+
 **A Rare Sighting of Northern Lights Entrances Viewers in New York Area**\
 `The aurora borealis, which transformed the sky with startling streaks of pink and purple, arose from a magnetic storm.`\
 https://nytimes.com/2024/10/10/nyregion/northern-lights-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/weather/sanibel-island-hurricane-milton.html
 **Investigators Search N.Y.P.D. School Safety Offices in Bribery Inquiry**\
 `The search, and the seizure of a police official’s phone, were part of a welter of federal investigations into Mayor Eric Adams and his inner circle.`\
 https://nytimes.com/2024/10/10/nyregion/eric-adams-bribery-inquiry-school-safety.html
-
-**Joba Chamberlain wears Yankees, Royals World Series rings to ALDS, has ‘goose bumps’**\
-`Chamberlain said he decided on a whim to make the three-hour drive to Game 4 of the ALDS from his home in Lincoln, Neb.`\
-https://nytimes.com/athletic/5835378/2024/10/10/joba-chamberlain-yankees-royals-world-series-rings-alds/
 
