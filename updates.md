@@ -23,6 +23,11 @@ https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david
 `\
 https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
 
+**Mirtle: 6 way-too-early observations on the new-look Maple Leafs**\
+`With several new key pieces in place this season, we'll try and discern as much as we can from Toronto's two games.
+`\
+https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
+
 **Scared by Helene, Everyone in This Florida Beach Town Evacuated for Milton**\
 `Over time, the question of whether to stay or go will likely become a question of whether to keep living in coastal or low-lying areas at all.`\
 https://nytimes.com/2024/10/11/us/hurricane-helene-milton-florida-evacuations.html
