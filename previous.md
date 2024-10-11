@@ -1,3 +1,11 @@
+**Your Favorite Horror Movie Was a Much Scarier True Story**\
+`From “The Exorcist” to “The Lighthouse,” many lauded scary movies were based on terrifying true stories. Here’s what really happened.`\
+https://nytimes.com/2024/10/11/arts/halloween-movies-true-stories.html
+
+**Aryna Sabalenka wanted to overtake Iga Swiatek - to do it, she had to slow down**\
+`On the eve of Wimbledon, the world No. 2 forced herself to miss a tournament for which she was favorite. Three months on, that looks smart.`\
+https://nytimes.com/athletic/5819344/2024/10/11/sabalenka-wta-race-swiatek-world-number-one/
+
 **Nguyen: Can Jets offense improve without Aaron Rodgers ceding preferences?**\
 `The Jets are similar to the Packers offense in 2018, when Rodgers avoided motion and had control at the line of scrimmage.`\
 https://nytimes.com/athletic/5830404/2024/10/11/jets-offense-aaron-rodgers-motion/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/11/opinion/hurricane-milton-helene-florida-chris-chr
 **One Thing Never to Say to a Grieving Friend**\
 `Some words hurt more than they help.`\
 https://nytimes.com/2024/10/11/well/grief-condolences-what-not-to-say.html
-
-**In Battered Lebanon, a Lone Gas Station Is a Lifeline in the East**\
-`Thousands have fled the town of Baalbek amid a barrage of Israeli airstrikes. For those who remain, Ali Jawad’s business is a critical piece of an informal safety net.`\
-https://nytimes.com/2024/10/11/world/middleeast/israel-lebanon-baalbek-gas-station.html
-
-**How a Fox News host’s misleading question about migrant children morphed into a Trump talking point**\
-`The evolution of a misleading claim shows Mr. Trump’s penchant for exaggeration as well as his symbiotic relationship with Fox News.`\
-https://nytimes.com/interactive/2024/10/11/us/trump-migrant-children.html
 
