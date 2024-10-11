@@ -1,3 +1,7 @@
+**Salman Rushdie Will Testify at Trial of Man Accused of Stabbing Him**\
+`Hadi Matar is charged with attempted murder and assault in connection with an attack in western New York that left the author blind in one eye.`\
+https://nytimes.com/2024/10/11/nyregion/salman-rushdie-stabbing-trial-testify.html
+
 **Tesla Loses Court Battle in Swedish Labor Dispute**\
 `A district court ruled that Sweden’s constitution prevented it from taking a side in a labor dispute between Tesla and local unions that has dragged on for 11 months.`\
 https://nytimes.com/2024/10/11/business/tesla-sweden-labor-dispute.html

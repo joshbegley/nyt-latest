@@ -1,3 +1,7 @@
+**Salman Rushdie Will Testify at Trial of Man Accused of Stabbing Him**\
+`Hadi Matar is charged with attempted murder and assault in connection with an attack in western New York that left the author blind in one eye.`\
+https://nytimes.com/2024/10/11/nyregion/salman-rushdie-stabbing-trial-testify.html
+
 **Tesla Loses Court Battle in Swedish Labor Dispute**\
 `A district court ruled that Sweden’s constitution prevented it from taking a side in a labor dispute between Tesla and local unions that has dragged on for 11 months.`\
 https://nytimes.com/2024/10/11/business/tesla-sweden-labor-dispute.html
@@ -29,8 +33,4 @@ https://nytimes.com/card/2024/10/11/world/middleeast/the-aftermath-of-thursdays-
 **‘Who Is That? What’s Happening?’: Decoding the Art World at Frieze**\
 `The London art fair can be a bewildering spectacle, where even the insiders are sometimes scrambling to keep up.`\
 https://nytimes.com/2024/10/11/arts/design/frieze-london.html
-
-**Lebanon’s Prime Minister Calls for U.N. Resolution on an ‘Immediate’ Cease-Fire**\
-`It was the latest attempt by Najib Mikati’s embattled government to bring an end to the violence that has killed thousands and displaced nearly one million.`\
-https://nytimes.com/2024/10/11/world/middleeast/lebanon-prime-minister-un-resolution-cease-fire.html
 
