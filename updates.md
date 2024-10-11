@@ -1,3 +1,19 @@
+**6 New Shows Our Theater Critics Are Talking About**\
+`The fall season is underway, and our reviewers think these productions are worth knowing about, even if you’re not planning to see them.`\
+https://nytimes.com/2024/10/11/theater/new-shows-theater-broadway.html
+
+**North Korea Accuses the South of Sending Leaflet-Scattering Drones**\
+`Pyongyang threatened military action if the provocations continued, while the South advised its angry neighbor not to act “rashly.”`\
+https://nytimes.com/2024/10/11/world/asia/north-korea-unmanned-drones-leaflets.html
+
+**Gustavo Dudamel Visits New York With Promise, and a Warning**\
+`The superstar conductor will take over the New York Philharmonic in 2026. Is his tour with the Los Angeles Philharmonic a preview?`\
+https://nytimes.com/2024/10/11/arts/music/gustavo-dudamel-los-angeles-philharmonic-carnegie.html
+
+**The Windup: So far, it's New York and New York**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5836925/2024/10/11/yankees-royals-mlb-playoffs-the-windup/
+
 **Hairballs Shed Light on Man-Eating Lions’ Menu**\
 `The Tsavo man-eaters terrorized railroad workers in British East Africa in the 19th century, but their tastes went well beyond human flesh.`\
 https://nytimes.com/2024/10/11/science/tsavo-lions-man-eating-dna.html
