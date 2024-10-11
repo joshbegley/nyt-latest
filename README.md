@@ -8,7 +8,7 @@ https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-gas-power.html
 
 **Federal Judge Questions Justice Department on Boeing Guilty Plea**\
 `After objections from the families of the victims of the two 737 MAX plane crashes, a federal judge will rule whether to accept a plea agreement reached by the Justice Department and Boeing.`\
-https://nytimes.com/2024/10/11/us/politics/federal-judge-questions-justice-department-on-boeing-guilty-plea.html
+https://nytimes.com/2024/10/11/us/politics/boeing-plea-deal.html
 
 **Obama’s Admonishing Tone to Black Men Presents a Risk for Democrats**\
 `The former president’s remarks that some Black men are not “feeling the idea” of a female president were blunt and urgent, but also potentially alienating for a vital group of Democratic voters.`\
