@@ -1,3 +1,7 @@
+**Linus Ullmark shows why Senators' investment in him was necessary: 5 takeaways**\
+`Ottawa fans have $33 million reasons to smile at new goalie Ullmark, and the good times started in the opener.`\
+https://nytimes.com/athletic/5835030/2024/10/11/senators-takeaways-stutzle-pinto-ullmark/
+
 **Aurora Borealis Lights Skies**\
 `The northern lights spread an ethereal smear across the sky in parts of the United States and Britain.`\
 https://nytimes.com/video/us/100000009756324/northern-lights.html
