@@ -1,3 +1,7 @@
+**6 Takeaways From the Christopher Reeve Documentary ‘Super/Man’**\
+`The new film chronicles the life of the paralyzed star, covering his friendship with Robin Williams and gut-wrenching details about his care and family.`\
+https://nytimes.com/2024/10/11/movies/superman-christopher-reeve-robin-williams.html
+
 **5 Cities. 13 Schools. 47 First-Day Looks.**\
 `To find out what’s trending now, The New York Times for Kids visited middle schools across the country.`\
 https://nytimes.com/2024/10/11/magazine/kids-first-day-school-style.html
@@ -29,8 +33,4 @@ https://nytimes.com/card/2024/10/11/smarter-living/wirecutter/how-to-make-your-p
 **In Florida, Yom Kippur Services Adjust After Hurricane Milton**\
 `Some Rabbis are altering tradition slightly to account for dispersed congregations, power outages and flooded temples. For others, it’s business as usual.`\
 https://nytimes.com/2024/10/11/weather/yom-kippur-florida-hurricane-milton.html
-
-**Football Parlay Friday Week 7: Trying to stay hot with five underdog picks**\
-`Austin Mock has five college football underdogs for a round robin parlay for Saturday's Week 7 action, including USC and Oregon.`\
-https://nytimes.com/athletic/5837255/2024/10/11/football-parlay-friday-week-7-trying-to-stay-hot-with-five-underdog-picks/
 

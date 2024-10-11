@@ -1,3 +1,7 @@
+**6 Takeaways From the Christopher Reeve Documentary ‘Super/Man’**\
+`The new film chronicles the life of the paralyzed star, covering his friendship with Robin Williams and gut-wrenching details about his care and family.`\
+https://nytimes.com/2024/10/11/movies/superman-christopher-reeve-robin-williams.html
+
 **5 Cities. 13 Schools. 47 First-Day Looks.**\
 `To find out what’s trending now, The New York Times for Kids visited middle schools across the country.`\
 https://nytimes.com/2024/10/11/magazine/kids-first-day-school-style.html
