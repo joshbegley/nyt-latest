@@ -1,3 +1,11 @@
+**Joseph H. Reich, Charter School Pioneer, Dies at 89**\
+`When he and his wife opened the Beginning With Children school in Brooklyn to offer more educational opportunities to children, they set off a national trend.`\
+https://nytimes.com/2024/10/11/nyregion/joseph-h-reich-dead.html
+
+**Funeral Home Sent a Grandmother’s Body to the Wrong Country, Suit Claims**\
+`Carmen Maldonado, 96, of Queens, died on May 18. She was supposed to be buried in Ecuador, but her body was sent to Guatemala, a lawsuit contends.`\
+https://nytimes.com/2024/10/11/nyregion/queens-funeral-home-lawsuit.html
+
 **A Nebraska Senate Ad Lets One Mechanic Throw a Wrench at Another**\
 `Deb Fischer, the Republican incumbent, faces a stiff challenge from a union leader, Dan Osborn, running as an independent. Her latest ad calls him a “Democrat in disguise.”`\
 https://nytimes.com/2024/10/11/us/politics/fischer-osborn-nebraska-senate-ad.html

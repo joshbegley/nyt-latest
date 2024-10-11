@@ -1,3 +1,11 @@
+**Joseph H. Reich, Charter School Pioneer, Dies at 89**\
+`When he and his wife opened the Beginning With Children school in Brooklyn to offer more educational opportunities to children, they set off a national trend.`\
+https://nytimes.com/2024/10/11/nyregion/joseph-h-reich-dead.html
+
+**Funeral Home Sent a Grandmother’s Body to the Wrong Country, Suit Claims**\
+`Carmen Maldonado, 96, of Queens, died on May 18. She was supposed to be buried in Ecuador, but her body was sent to Guatemala, a lawsuit contends.`\
+https://nytimes.com/2024/10/11/nyregion/queens-funeral-home-lawsuit.html
+
 **A Nebraska Senate Ad Lets One Mechanic Throw a Wrench at Another**\
 `Deb Fischer, the Republican incumbent, faces a stiff challenge from a union leader, Dan Osborn, running as an independent. Her latest ad calls him a “Democrat in disguise.”`\
 https://nytimes.com/2024/10/11/us/politics/fischer-osborn-nebraska-senate-ad.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5837294/2024/10/11/michael-pittman-jr-surprise-retu
 **Inside Donald Trump’s Shadow Presidency**\
 `In the years since he left the White House, former President Donald J. Trump has remained a force in international politics, meeting with a number of foreign leaders and operating out of his Mar-a-Lago estate in Florida.`\
 https://nytimes.com/2024/10/11/us/politics/inside-donald-trumps-shadow-presidency.html
-
-**Stanley Tucci on His New Book, ‘What I Ate in One Year’**\
-`The actor and renowned foodie talks about his eating habits and his food diary, and we look at the fiction and nonfiction titles up for the National Book Award.`\
-https://nytimes.com/2024/10/11/books/review/stanley-tucci-what-i-ate-in-one-year-interview.html
-
-**Evan Gershkovich, U.S. Journalist Imprisoned in Russia, Will Publish a Memoir**\
-`The memoir, which will cover his time in prison and Russia’s move toward autocracy, will be published by Crown, an imprint of Penguin Random House.`\
-https://nytimes.com/2024/10/11/books/evan-gershkovich-memoir.html
 
