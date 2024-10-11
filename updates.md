@@ -1,3 +1,7 @@
+**AFC North Whiparound: Are Browns, Bengals done? What's each team's main weakness?**\
+`Our writers also talk about whether any division coaches are on the hot seat and give thoughts on this weekend's matchups.`\
+https://nytimes.com/athletic/5834617/2024/10/11/afc-north-whiparound-week-6-2024/
+
 **If ‘They’ Can Control the Weather, They’re Doing a Lousy Job**\
 `By Michelle Cottle`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/weather-fema-floods-behavior

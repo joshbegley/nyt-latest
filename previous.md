@@ -1,3 +1,7 @@
+**AFC North Whiparound: Are Browns, Bengals done? What's each team's main weakness?**\
+`Our writers also talk about whether any division coaches are on the hot seat and give thoughts on this weekend's matchups.`\
+https://nytimes.com/athletic/5834617/2024/10/11/afc-north-whiparound-week-6-2024/
+
 **If ‘They’ Can Control the Weather, They’re Doing a Lousy Job**\
 `By Michelle Cottle`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/weather-fema-floods-behavior
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/11/us/politics/wisconsin-election.html
 **What’s Your Favorite Hate-Watch?**\
 `Do you ever watch, read or listen to content that you think is bad? Why do so many of us do this?`\
 https://nytimes.com/2024/10/11/learning/whats-your-favorite-hate-watch.html
-
-**Bears run 'D' concerns? Potential for Caleb Williams, passing game? Mailbag, Week 6 picks**\
-`Would moving Teven Jenkins back to right guard help the offensive line? Is Jenkins going to get a contract extension? Plus Bears-Jags picks.`\
-https://nytimes.com/athletic/5834245/2024/10/11/bears-mailbag-jaguars-caleb-williams/
 
