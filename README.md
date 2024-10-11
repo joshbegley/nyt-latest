@@ -1,5 +1,5 @@
-**Israeli Airstrikes Kill at Least 22 in Central Beirut, Lebanon Says**\
-`The attack spread fear among residents of a largely Sunni neighborhood of Lebanon’s capital as Israel’s bombing campaign against Hezbollah continued.`\
+**Rescuers Search for Survivors After Israel Strikes Central Beirut**\
+`At least 22 people were killed in the attack, Lebanese officials said, as Israel’s bombing campaign against Hezbollah militants continued.`\
 https://nytimes.com/2024/10/11/world/middleeast/israel-strikes-beirut-lebanon.html
 
 **Vikings mailbag: Trade deadline thoughts, Dallas Turner's start, special teams and more**\
