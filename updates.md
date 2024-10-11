@@ -1,3 +1,15 @@
+**Mauricio Pochettino sees 'massive responsibility' in USMNT job ahead of first game**\
+`The Argentinian on his tactics, his adaptability and how both MLS and European-based players can play a role in his team`\
+https://nytimes.com/athletic/5837952/2024/10/11/mauricio-pochettino-usmnt-interview-first-game/
+
+**‘Why Are We Out of Gas?’ A Fuel Crisis Leads to Long Lines in Florida.**\
+`Hurricane Milton left many gas stations without power and disrupted deliveries at ports. Mass evacuations before the storm also drained supplies.`\
+https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-gas-power.html
+
+**Raiders place TE Michael Mayer on NFI due to personal issue**\
+`Mayer played in the first three games of the season, catching four passes for 21 yards.`\
+https://nytimes.com/athletic/5837877/2024/10/11/michael-mayer-raiders-nfi/
+
 **Federal Judge Questions Justice Department on Boeing Guilty Plea**\
 `After objections from the families of the victims of the two 737 MAX plane crashes, a federal judge will rule whether to accept a plea agreement reached by the Justice Department and Boeing.`\
 https://nytimes.com/2024/10/11/us/politics/federal-judge-questions-justice-department-on-boeing-guilty-plea.html
