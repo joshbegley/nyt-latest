@@ -1,3 +1,11 @@
+**Investigators Search N.Y.P.D. School Safety Offices in Bribery Inquiry**\
+`The search, and the seizure of a police official’s phone, were part of a welter of federal investigations into Mayor Eric Adams and his inner circle.`\
+https://nytimes.com/2024/10/10/nyregion/eric-adams-bribery-inquiry-school-safety.html
+
+**ason Reddick's agency parts ways with him amid Jets holdout**\
+`The Jets traded for Reddick this offseason but he hasn't reported to the team and has racked up more than $8 million in fines.`\
+https://nytimes.com/athletic/5835356/2024/10/10/haason-reddick-agency-part-ways-jets/
+
 **Harris Walks Fine Line on Immigration at Univision Town Hall**\
 `The event in Las Vegas featured emotional questions from voters on health care and the economy — and displayed the balance Kamala Harris is seeking on tough border rules and paths to citizenship.`\
 https://nytimes.com/2024/10/10/us/politics/harris-univision-town-hall-immigration.html
