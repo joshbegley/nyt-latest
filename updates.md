@@ -1,3 +1,11 @@
+**Tesla Loses Court Battle in Swedish Labor Dispute**\
+`A district court ruled that Sweden’s constitution prevented it from taking a side in a labor dispute between Tesla and local unions that has dragged on for 11 months.`\
+https://nytimes.com/2024/10/11/business/tesla-sweden-labor-dispute.html
+
+**CHSN, Comcast yet to reach agreement as time ticks**\
+`The Blackhawks are set to play the Jets on Friday. Will Chicagoans who subscribe to Comcast be able to watch?`\
+https://nytimes.com/athletic/5836914/2024/10/11/chsn-comcast-tv-network-agreement/
+
 **In Texas Senate Race, Cruz and Allred Duel Over Youth Sports Without Saying ‘Trans.’**\
 `Ted Cruz’s re-election campaign has poured resources into attack ads that focus on transgender participation in youth sports. His Democratic opponent, Representative Chris Allred, responded with his own ad.`\
 https://nytimes.com/2024/10/11/us/politics/texas-senate-cruz-allred-transsexual.html
