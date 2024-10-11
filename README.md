@@ -1,3 +1,11 @@
+**Nguyen: Can Jets offense improve without Aaron Rodgers ceding preferences?**\
+`The Jets are similar to the Packers offense in 2018, when Rodgers avoided motion and had control at the line of scrimmage.`\
+https://nytimes.com/athletic/5830404/2024/10/11/jets-offense-aaron-rodgers-motion/
+
+**Ben Simmons is taking things one day at a time on the new-look Nets**\
+`The 28-year-old regularly invites scrutiny, but it's clear he and his new coach have high expectations.`\
+https://nytimes.com/athletic/5831437/2024/10/11/ben-simmons-nets-rebuild-brooklyn/
+
 **AFC North Whiparound: Are Browns, Bengals done? What's each team's main weakness?**\
 `Our writers also talk about whether any division coaches are on the hot seat and give thoughts on this weekend's matchups.`\
 https://nytimes.com/athletic/5834617/2024/10/11/afc-north-whiparound-week-6-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/11/world/middleeast/israel-lebanon-baalbek-gas-stati
 **How a Fox News host’s misleading question about migrant children morphed into a Trump talking point**\
 `The evolution of a misleading claim shows Mr. Trump’s penchant for exaggeration as well as his symbiotic relationship with Fox News.`\
 https://nytimes.com/interactive/2024/10/11/us/trump-migrant-children.html
-
-**In Wisconsin, Democrats Hope Competing Down Ballot Helps Harris, Too**\
-`For the first time in 13 years, Wisconsin Democrats are contesting a number of local races. Even a few thousand voters energized by the candidates at their door could make a difference in a tight presidential contest.`\
-https://nytimes.com/2024/10/11/us/politics/wisconsin-election.html
-
-**What’s Your Favorite Hate-Watch?**\
-`Do you ever watch, read or listen to content that you think is bad? Why do so many of us do this?`\
-https://nytimes.com/2024/10/11/learning/whats-your-favorite-hate-watch.html
 
