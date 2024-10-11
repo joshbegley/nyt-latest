@@ -1,3 +1,7 @@
+**Live Updates: Nobel Peace Prize Is Set to Be Awarded**\
+`The recipient is being announced Friday morning. One of the world’s most prestigious honors, the prize could also be a contentious one as wars rage on multiple continents.`\
+https://nytimes.com/live/2024/10/11/world/nobel-peace-prize
+
 **Tennis plays to no clock, but Rafael Nadal knew it was time**\
 `Though his fitness caught up with him, he kept his pride and legacy as best he could, even in sobering defeats.`\
 https://nytimes.com/athletic/5834500/2024/10/11/rafael-nadal-retirement-date-plan/
