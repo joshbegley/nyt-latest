@@ -1,3 +1,11 @@
+**Aurora Borealis Lights Skies**\
+`The northern lights spread an ethereal smear across the sky in parts of the United States and Britain.`\
+https://nytimes.com/video/us/100000009756324/northern-lights.html
+
+**Taiwanese Employees of Apple Supplier Detained in China**\
+`Taiwan’s government said that they had been accused of a breach of trust, but that their employer, Foxconn, had denied the company suffered any losses.`\
+https://nytimes.com/2024/10/11/business/foxconn-zhengzhou-china-detentions.html
+
 **Breanna Stewart had two key chances ... and fell short in the Liberty's Game 1 WNBA Finals loss**\
 `Stewart and the Liberty need to bounce back in Game 2 on Sunday in New York.`\
 https://nytimes.com/athletic/5836061/2024/10/11/breanna-stewart-wnba-finals-game-1-loss/

@@ -1,3 +1,11 @@
+**Aurora Borealis Lights Skies**\
+`The northern lights spread an ethereal smear across the sky in parts of the United States and Britain.`\
+https://nytimes.com/video/us/100000009756324/northern-lights.html
+
+**Taiwanese Employees of Apple Supplier Detained in China**\
+`Taiwan’s government said that they had been accused of a breach of trust, but that their employer, Foxconn, had denied the company suffered any losses.`\
+https://nytimes.com/2024/10/11/business/foxconn-zhengzhou-china-detentions.html
+
 **Breanna Stewart had two key chances ... and fell short in the Liberty's Game 1 WNBA Finals loss**\
 `Stewart and the Liberty need to bounce back in Game 2 on Sunday in New York.`\
 https://nytimes.com/athletic/5836061/2024/10/11/breanna-stewart-wnba-finals-game-1-loss/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5822832/2024/10/11/england-lee-carsley-greece-analy
 **Linus Ullmark shows why the Senators' investment in him was necessary: 5 takeaways**\
 `Ottawa fans have $33 million reasons to smile at new goalie Ullmark, and the good times started in the opener.`\
 https://nytimes.com/athletic/5835030/2024/10/11/senators-takeaways-stutzle-pinto-ullmark/
-
-**As the Yankees move past the Royals on way to the ALCS, Jazz Chisholm gets the final word**\
-`The third baseman, who was in the middle of a sixth inning dust-up, heaped praises on his teammates after a deciding Game 4.`\
-https://nytimes.com/athletic/5835892/2024/10/11/yankees-royals-alds-jazz-chisholm/
-
-**One year after an opening-night healthy scratch, Kent Johnson stands out for Blue Jackets**\
-`Johnson was the most noticeable player on both ends of the ice in a 3-2 season-opening loss to the Minnesota Wild.`\
-https://nytimes.com/athletic/5835838/2024/10/11/blue-jackets-opening-night-kent-johnson/
 
