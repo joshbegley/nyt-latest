@@ -1,3 +1,9 @@
+**This Is Not a Beauty Podcast: The Lipstick Effect
+**\
+`Beauty is sometimes seen as niche and frivolous, but it’s big business. In this episode, we’ll explore how lipstick became a key economic indicator, how Paris became the beauty capital of the world and the changing face of the male beauty consumer.
+`\
+https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast/the-lipstick-effect.html
+
 **The Athletic’s Friday football quiz question #25**\
 `Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/5834073/2024/10/11/the-athletics-friday-football-quiz-question-25/
