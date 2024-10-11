@@ -1,3 +1,15 @@
+**Witnesses Describe Chaotic Scenes After Strikes on Central Beirut**\
+`Lebanese officials said Israeli airstrikes killed at least 22 people and wounded more than 100. The Israeli military did not confirm the strikes.`\
+https://nytimes.com/video/world/middleeast/100000009756372/witnesses-describe-chaotic-scenes-after-strikes-on-central-beirut.html
+
+**Why a Chargers trade deadline deal could be realistic — and a target: Mailbag**\
+`The Los Angeles Chargers will resume their season Sunday when they face the Denver Broncos at Empower Field at Mile High.`\
+https://nytimes.com/athletic/5835330/2024/10/11/chargers-trade-deadline-amari-cooper/
+
+**Raiders' QB situation comes full circle when Steelers, Justin Fields face Aidan O'Connell**\
+`The Raiders went with Gardner Minshew and coordinator Luke Getsy this offseason over Fields. Minshew has already been benched. `\
+https://nytimes.com/athletic/5835087/2024/10/11/raiders-quarterback-getsy-fields-oconnell/
+
 **An award for Japanese survivors reflects new global concerns.**\
 `By Steven Erlanger`\
 https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/an-award-for-japanese-survivors-reflects-new-global-concerns
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/11/business/dealbook/wall-street-earnings-economy.ht
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/11/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Trump Heads West for a Pair of Rallies**\
-`While former President Donald J. Trump crisscrosses the battlegrounds, his first stop is Aurora, Colo., a city where he has tried to stoke fear about immigration. On Thursday, Kamala Harris hit two key Sun Belt states.`\
-https://nytimes.com/live/2024/10/11/us/harris-trump-election
-
-**What NBA scouts are saying about rookie Alex Sarr and his future**\
-`Will the No. 2 pick in this year's draft pick pan out for the Wizards? `\
-https://nytimes.com/athletic/5835490/2024/10/11/alex-sarr-nba-scouts-evaluation/
-
-**Thompson: George Kittle — who else — exorcises 49ers' red zone demons**\
-`When the 49ers really need it, George Kittle is always a good option. On Thursday in Seattle, he proved it again.`\
-https://nytimes.com/athletic/5836198/2024/10/11/george-kittle-49ers-seahawks-red-zone-touchdowns/
 
