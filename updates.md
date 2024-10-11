@@ -28,6 +28,11 @@ https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david
 `\
 https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
 
+**Mirtle: 6 way-too-early observations on the new-look Maple Leafs**\
+`With several new key pieces in place this season, we'll try and discern as much as we can from Toronto's two games.
+`\
+https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
+
 **49ers minutia minute: Nick Bosa finishes with career-best pressures, but sacks elusive**\
 `Bosa matched a career high with 14 quarterback pressures, but he didn't finish any of them for sacks. `\
 https://nytimes.com/athletic/5837802/2024/10/11/49ers-seahawks-snap-counts-nick-bosa/
