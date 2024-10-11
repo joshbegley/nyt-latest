@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Christina Goldbaum, Euan Ward and Liam Stack`\
+https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/here-are-the-latest-developments
+
+**Live Updates: Rescuers Search for Survivors After Strikes Rock Central Beirut**\
+`At least 22 people were killed and more than 100 injured in the overnight attack, Lebanese officials said. The Israeli military, which has been targeting Hezbollah militants, did not comment.`\
+https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news
+
 **Here’s how the Peace Prize nomination process works.**\
 `By Megan Specia`\
 https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/heres-how-the-peace-prize-nomination-process-works
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000009756407/japanese-atomic-bomb-surv
 **City to hire Sporting's Hugo Viana to replace Txiki Begiristain**\
 `Manchester City are set to hire Sporting Lisbon&#8217;s Hugo Viana to replace the outgoing Txiki Begiristain as their new sporting director.`\
 https://nytimes.com/athletic/5830446/2024/10/11/hugo-viana-manchester-city-who/
-
-**Rescuers Search for Survivors After Israel Strikes Central Beirut**\
-`At least 22 people were killed in the attack, Lebanese officials said, as Israel’s bombing campaign against Hezbollah militants continued.`\
-https://nytimes.com/2024/10/11/world/middleeast/israel-strikes-beirut-lebanon.html
-
-**Vikings mailbag: Trade deadline thoughts, Dallas Turner's start, special teams and more**\
-`After their bye week, the Vikings will face an NFC North showdown against the Lions. In the meantime, we answer your mailbag questions.`\
-https://nytimes.com/athletic/5833972/2024/10/11/vikings-trade-deadline-dallas-turner/
 
