@@ -1,3 +1,7 @@
+**Penguins' Evgeni Malkin records 800th assist**\
+`Malkin is one of only 34 players in NHL history with at least 800 assists and is only the third active player to hit that mark.`\
+https://nytimes.com/athletic/5835637/2024/10/10/evgeni-malkin-penguins-800-assists/
+
 **Yankees, Cole advance to ALCS over Royals: Takeaways**\
 `The Yankees will host Game 1 of the American League Championship Series on Monday night.`\
 https://nytimes.com/athletic/5835573/2024/10/10/yankees-royals-score-mlb-playoffs-game-4-takeaways/
