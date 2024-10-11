@@ -1,3 +1,7 @@
+**Scared by Helene, Everyone in This Florida Beach Town Evacuated for Milton**\
+`Over time, the question of whether to stay or go will likely become a question of whether to keep living in coastal or low-lying areas at all.`\
+https://nytimes.com/2024/10/11/us/hurricane-helene-milton-florida-evacuations.html
+
 **Arizona Democrats Shut Down a Phoenix Campaign Office After Shootings**\
 `The office was hit three times after hours, once with a BB gun and twice with a firearm. No one was hurt, the authorities said.`\
 https://nytimes.com/2024/10/11/us/politics/arizona-democrats-shut-down-a-phoenix-campaign-office-after-shootings.html
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5837802/2024/10/11/49ers-seahawks-snap-counts-nick-
 **Mauricio Pochettino sees 'massive responsibility' in USMNT job ahead of first game**\
 `The Argentinian on his tactics, his adaptability and how both MLS and European-based players can play a role in his team`\
 https://nytimes.com/athletic/5837952/2024/10/11/mauricio-pochettino-usmnt-interview-first-game/
-
-**‘Why Are We Out of Gas?’ A Fuel Crisis Leads to Long Lines in Florida.**\
-`Hurricane Milton left many gas stations without power and disrupted deliveries at ports. Mass evacuations before the storm also drained supplies.`\
-https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-gas-power.html
 
