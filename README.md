@@ -11,7 +11,7 @@ https://nytimes.com/2024/10/11/arts/television/nobuyo-oyama-dead-doraemon.html
 https://nytimes.com/live/2024/10/11/world/nobel-peace-prize/here-is-what-to-know-about-this-years-award
 
 **Live Updates: Nobel Peace Prize Is Set to Be Awarded**\
-`The recipient will be announced Friday morning. One of the world’s most prestigious honors, the prize could also be a contentious one as wars rage on multiple continents.`\
+`The recipient is being announced Friday morning. One of the world’s most prestigious honors, the prize could also be a contentious one as wars rage on multiple continents.`\
 https://nytimes.com/live/2024/10/11/world/nobel-peace-prize
 
 **Elon Musk Unveils Tesla ‘Robotaxi’**\
