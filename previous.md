@@ -1,3 +1,7 @@
+**Big Banks Open Their Books for First Test After Rate Cuts**\
+`Profits fell at JPMorgan and Wells Fargo, but the lenders reported results that were largely better than had been expected, a sign that the economy remained solid.`\
+https://nytimes.com/2024/10/11/business/jpmorgan-banks-earnings.html
+
 **Witnesses Describe Chaotic Scenes After Strikes on Central Beirut**\
 `Lebanese officials said Israeli airstrikes killed at least 22 people and wounded more than 100. The Israeli military did not confirm the strikes.`\
 https://nytimes.com/video/world/middleeast/100000009756372/witnesses-describe-chaotic-scenes-after-strikes-on-central-beirut.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/11/world/middleeast/gaza-israel-north-evacuations.ht
 **Wall St. Profits Surge Despite Questions About the Economy**\
 `JPMorgan Chase, Wells Fargo and BlackRock reported strong quarterly results to kick off earnings season, but concerns linger about the strength of the consumer.`\
 https://nytimes.com/2024/10/11/business/dealbook/wall-street-earnings-economy.html
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/10/11/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
