@@ -1,3 +1,7 @@
+**The Latest Hurricanes Are Creating as Much Delusion as Damage**\
+`By David Wallace-Wells`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/hurricane-milton-misinformation-denialism
+
 **FSU lawyer: Every conference needs answers on ACC contract**\
 `Friday’s ruling allows for the Florida case to proceed, for now, pending one of two reviews by Florida’s First District Court of Appeal.`\
 https://nytimes.com/athletic/5837502/2024/10/11/fsu-acc-lawsuit-contracts/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/opinion/harris-walz-trump-abortion.html
 **Inside the rebirth of the Orlando Pride**\
 `The Pride have gone from floundering to in the NWSL to chasing an unbeaten season - this is how they did it`\
 https://nytimes.com/athletic/5837184/2024/10/11/orlando-pride-nwsl-shield-unbeaten/
-
-**Mark Makers – Kofi Amoo-Gottfried**\
-`The Moment Lessons From Africa Helped Businesses in America`\
-https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-kofi-amoo-gottfried.html
 
