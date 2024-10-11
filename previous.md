@@ -1,3 +1,7 @@
+**Thompson: George Kittle — who else — exorcises 49ers' red zone demons**\
+`When the 49ers really need it, George Kittle is always a good option. On Thursday in Seattle, he proved it again.`\
+https://nytimes.com/athletic/5836198/2024/10/11/george-kittle-49ers-seahawks-red-zone-touchdowns/
+
 **This Is Not a Beauty Podcast: The Lipstick Effect
 **\
 `Beauty is sometimes seen as niche and frivolous, but it’s big business. In this episode, we’ll explore how lipstick became a key economic indicator, how Paris became the beauty capital of the world and the changing face of the male beauty consumer.
@@ -35,8 +39,4 @@ https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/here-are
 **Live Updates: Rescuers Search for Survivors After Strikes Rock Central Beirut**\
 `At least 22 people were killed and more than 100 injured in the overnight attack, Lebanese officials said. The Israeli military, which has been targeting Hezbollah militants, did not comment.`\
 https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news
-
-**Here’s how the Peace Prize nomination process works.**\
-`By Megan Specia`\
-https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/heres-how-the-peace-prize-nomination-process-works
 

@@ -1,3 +1,7 @@
+**Thompson: George Kittle — who else — exorcises 49ers' red zone demons**\
+`When the 49ers really need it, George Kittle is always a good option. On Thursday in Seattle, he proved it again.`\
+https://nytimes.com/athletic/5836198/2024/10/11/george-kittle-49ers-seahawks-red-zone-touchdowns/
+
 **This Is Not a Beauty Podcast: The Lipstick Effect
 **\
 `Beauty is sometimes seen as niche and frivolous, but it’s big business. In this episode, we’ll explore how lipstick became a key economic indicator, how Paris became the beauty capital of the world and the changing face of the male beauty consumer.
