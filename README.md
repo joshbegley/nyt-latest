@@ -1,3 +1,11 @@
+**Joba Chamberlain wears Yankees, Royals World Series rings to ALDS, has ‘goosebumps’**\
+`Chamberlain said he decided on a whim to make the three-hour drive to Game 4 of the ALDS from his home in Lincoln, Neb.`\
+https://nytimes.com/athletic/5835378/2024/10/10/joba-chamberlain-yankees-royals-world-series-rings-alds/
+
+**Jets' Haason Reddick, agency part ways amid holdout**\
+`The Jets traded for Reddick this offseason but he hasn't reported to the team and has racked up more than $8 million in fines.`\
+https://nytimes.com/athletic/5835356/2024/10/10/haason-reddick-agency-part-ways-jets/
+
 **What's impressed the Flyers about Matvei Michkov? So far, everything**\
 `The Flyers are trying not to put too much pressure on their young star, but Michkov is earning praise left and right.`\
 https://nytimes.com/athletic/5835296/2024/10/10/flyers-matvei-michkov-impressive-briere-tortorella/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5835125/2024/10/10/jeff-ulbrichs-new-york-jets-inte
 **Phil Kessel, 3-time Stanley Cup champion, joins World Poker Tour**\
 `An avid poker player, Kessel was known to frequent competitive games at casinos in cities where he played in the NHL.`\
 https://nytimes.com/athletic/5835211/2024/10/10/phil-kessel-world-poker-tour/
-
-**In the Middle (Class) of It All**\
-`Voters in Wisconsin are weighing which candidate better understands their economic anxieties.`\
-https://nytimes.com/2024/10/10/us/politics/voters-economy-trump-harris.html
-
-**Malfunction at Historic Gold Mine in Colorado Leaves 1 Dead and a Dozen Trapped**\
-`An equipment failure at the Mollie Kathleen Gold Mine near Cripple Creek stranded 12 people underground during a tour.`\
-https://nytimes.com/2024/10/10/us/gold-mine-colorado-rescue.html
 
