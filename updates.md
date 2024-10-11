@@ -1,3 +1,7 @@
+**Guardians-Tigers ALDS Game 5 moved up**\
+`Instead of starting at 8:08 p.m. ET, first pitch at Progressive Field in Cleveland will be at 1:08 p.m. ET.`\
+https://nytimes.com/athletic/5837451/2024/10/11/guardians-tigers-alds-game-5-moved-up-to-saturday-afternoon/
+
 **Israeli and U.S. Defense Ministers Discuss Israel’s Expanding Conflicts in Mideast**\
 `Defense Secretary Lloyd J. Austin III spoke with his Israeli counterpart, Yoav Gallant, on Thursday, the Pentagon said.`\
 https://nytimes.com/2024/10/11/world/middleeast/gallant-austin-israel-war.html

@@ -1,3 +1,7 @@
+**Guardians-Tigers ALDS Game 5 moved up**\
+`Instead of starting at 8:08 p.m. ET, first pitch at Progressive Field in Cleveland will be at 1:08 p.m. ET.`\
+https://nytimes.com/athletic/5837451/2024/10/11/guardians-tigers-alds-game-5-moved-up-to-saturday-afternoon/
+
 **For Atomic Bomb Survivors, a Nobel Prize and a Reckoning, 80 Years Later**\
 `Toshiyuki Mimaki, the chairman of Nihon Hidankyo, which was awarded the Nobel Peace Prize, said his foremost wish was to “please abolish nuclear weapons while we are alive.”`\
 https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/nobel-peace-prize-nihon-hidanyuo-atomic-bomb
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/movies/superman-christopher-reeve-robin-williams.
 **5 Cities. 13 Schools. 47 First-Day Looks.**\
 `To find out what’s trending now, The New York Times for Kids visited middle schools across the country.`\
 https://nytimes.com/2024/10/11/magazine/kids-first-day-school-style.html
-
-**Hurricanes, Climate Change and the 2024 Election**\
-`Readers discuss recent hurricanes and actions that citizens can take. Also: Jack Smith’s timing; the Supreme Court and the campaign; therapy as health care; a Trumpian character.`\
-https://nytimes.com/2024/10/11/opinion/letters/hurricanes-climate-change-election.html
 
