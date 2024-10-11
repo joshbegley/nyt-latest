@@ -1,3 +1,11 @@
+**Charli XCX’s Starry ‘Brat’ Remixes, and 9 More New Songs**\
+`Hear tracks by Victoria Monét, Samara Joy, the Linda Lindas and others.`\
+https://nytimes.com/2024/10/11/arts/music/playlist-charli-xcx-ariana-grande-halsey.html
+
+**An Award for the Vital Message of Nuclear Survivors**\
+`The Nobel Peace Prize recognized the dangerous path humanity is taking.`\
+https://nytimes.com/2024/10/08/opinion/nobel-peace-nuclear-survivors.html
+
 **A Choreographer’s Errands Into the Wilderness**\
 `The Greek-born choreographer Lenio Kaklea made her American debut at Governors Island, a fitting spot for work about the boundaries between nature and culture.`\
 https://nytimes.com/2024/10/11/arts/dance/lenio-kaklea-crossing-the-line.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5835287/2024/10/11/vanderbilt-alabama-goalposts-auc
 **As Trump Arrives, Aurora Insists It’s Not the ‘War Zone’ He Sees**\
 `The former president is holding a rally in a Colorado city he falsely claims was overtaken by violent immigrants from Venezuela. The city’s leaders, Republicans and Democrats alike, tried to pre-emptively fact-check him.`\
 https://nytimes.com/2024/10/11/us/politics/trump-aurora-colorado.html
-
-**The Best of Late Night This Week**\
-`With the general election just weeks away, the hosts spent much of the week discussing former President Trump’s rallies, Trump’s ties to President Putin of Russia, and Vice President Harris’s media blitz.`\
-https://nytimes.com/interactive/2024/10/11/arts/television/best-of-late-night-trump-putin.html
-
-**SailGP Is Becoming All Grown Up**\
-`There are new teams, new events and higher team valuations. And last season had a different champion when Spain dethroned Australia.`\
-https://nytimes.com/2024/10/11/sports/sailing/sailgp-series-growth.html
 

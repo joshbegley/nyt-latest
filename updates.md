@@ -1,3 +1,11 @@
+**Charli XCX’s Starry ‘Brat’ Remixes, and 9 More New Songs**\
+`Hear tracks by Victoria Monét, Samara Joy, the Linda Lindas and others.`\
+https://nytimes.com/2024/10/11/arts/music/playlist-charli-xcx-ariana-grande-halsey.html
+
+**An Award for the Vital Message of Nuclear Survivors**\
+`The Nobel Peace Prize recognized the dangerous path humanity is taking.`\
+https://nytimes.com/2024/10/08/opinion/nobel-peace-nuclear-survivors.html
+
 **A Choreographer’s Errands Into the Wilderness**\
 `The Greek-born choreographer Lenio Kaklea made her American debut at Governors Island, a fitting spot for work about the boundaries between nature and culture.`\
 https://nytimes.com/2024/10/11/arts/dance/lenio-kaklea-crossing-the-line.html
