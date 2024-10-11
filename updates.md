@@ -1,3 +1,7 @@
+**Why are Wrexham not playing during the international break? Are other League One games off?**\
+`Wrexham's game with Lincoln is postponed this weekend. Should League One close down during international breaks?`\
+https://nytimes.com/athletic/5827844/2024/10/11/wrexham-not-playing-international-break/
+
 **How Arteta is using 'sequences' of matches to make Arsenal more effective**\
 `Arsenal's manager is breaking their season down into blocks of games to try to manage the challenges of competing on multiple fronts`\
 https://nytimes.com/athletic/5827893/2024/10/11/mikel-arteta-sequences-arsenal/

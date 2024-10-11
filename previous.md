@@ -1,3 +1,7 @@
+**Why are Wrexham not playing during the international break? Are other League One games off?**\
+`Wrexham's game with Lincoln is postponed this weekend. Should League One close down during international breaks?`\
+https://nytimes.com/athletic/5827844/2024/10/11/wrexham-not-playing-international-break/
+
 **How Arteta is using 'sequences' of matches to make Arsenal more effective**\
 `Arsenal's manager is breaking their season down into blocks of games to try to manage the challenges of competing on multiple fronts`\
 https://nytimes.com/athletic/5827893/2024/10/11/mikel-arteta-sequences-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828179/2024/10/11/football-cbd-oil/
 **Next week’s waiver wire: Blake Corum, Ladd McConkey and more players to add now — before the Week 7 rush**\
 `John Laghezza points you towards his top expected future waiver wire plays, including a couple of Los Angeles-based rookies.`\
 https://nytimes.com/athletic/5833854/2024/10/11/next-weeks-waiver-wire-blake-corum-ladd-mcconkey-and-more-players-to-add-now-before-the-week-7-rush/
-
-**Row Z: Klopp as a Red Bull romantic, bushtucker trials imagined and taking it on the chins**\
-`Your weekly look at the more curious side of football - also featuring Roberto Mancini's gripes and bushtucker trials imagined`\
-https://nytimes.com/athletic/5830641/2024/10/11/klopp-red-bull-mccoist-mancini-row-z/
 
