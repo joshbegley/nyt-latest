@@ -1,3 +1,7 @@
+**What Is Nihon Hidankyo, the Japanese Group Awarded the Nobel Peace Prize?**\
+`Those who lived through the nuclear attacks of 1945 have dedicated their lives to recounting their experiences of loss and the physical and emotional toll.`\
+https://nytimes.com/2024/10/11/world/asia/what-is-nihon-hidankyo-hibakusha-japan.html
+
 **The Stakes on Climate**\
 `We cover each presidential candidate’s climate policies.`\
 https://nytimes.com/2024/10/11/briefing/the-stakes-on-climate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5833972/2024/10/11/vikings-trade-deadline-dallas-tu
 **The Maple Leafs crease finds early (and unlikely) signs of hope**\
 `For Toronto, goaltending will be a season-long storyline with no clear answer until the finish line. But Hildeby's start is encouraging.`\
 https://nytimes.com/athletic/5835720/2024/10/11/maple-leafs-dennis-hildeby-devils/
-
-**Johnny Gaudreau was in Matt Boldy's heart during Wild star's 3-point night**\
-`Growing up outside Boston and dreaming of playing hockey for Boston College, Boldy idolized Gaudreau.`\
-https://nytimes.com/athletic/5835993/2024/10/11/johnny-gaudreau-matt-boldy-wild-boston-college/
 
