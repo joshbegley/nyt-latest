@@ -1,3 +1,8 @@
+**Mirtle: 6 way-too-early observations on the new-look Maple Leafs**\
+`With several new key pieces in place this season, we'll try and discern as much as we can from Toronto's two games.
+`\
+https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
+
 **49ers minutia minute: Nick Bosa finishes with career-best pressures, but sacks elusive**\
 `Bosa matched a career high with 14 quarterback pressures, but he didn't finish any of them for sacks. `\
 https://nytimes.com/athletic/5837802/2024/10/11/49ers-seahawks-snap-counts-nick-bosa/
@@ -29,8 +34,4 @@ https://nytimes.com/athletic/5837877/2024/10/11/michael-mayer-raiders-nfi/
 **Some Florida areas see flashes of normal life after Milton.**\
 `Major airports, theme parks and restaurants were returning to business in some parts of the state that were affected by the hurricane.`\
 https://nytimes.com/live/2024/10/11/weather/hurricane-milton-florida-news/some-florida-areas-see-flashes-of-normal-life-after-milton
-
-**How Does Florida Insure Itself Against Hurricanes Like These?**\
-`The state has taken steps to shore up its insurance market, but researchers warn of looming risks.`\
-https://nytimes.com/2024/10/11/opinion/florida-hurricane-insurance-flood.html
 
