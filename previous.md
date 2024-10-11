@@ -1,40 +1,40 @@
-**Who Said Self-Care Was for Young People?**\
-`How aging has affected six older Americans’ view of wellness and staying healthy.`\
-https://nytimes.com/2024/10/11/style/self-care-beauty-aging.html
+**If ‘They’ Can Control the Weather, They’re Doing a Lousy Job**\
+`By Michelle Cottle`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/weather-fema-floods-behavior
 
-**The Supreme Court Has Grown Too Powerful. Congress Must Intervene.**\
-`Lawmakers must assert their power to reject the justices’ interpretations of the Constitution and enact their own.`\
-https://nytimes.com/2024/10/11/opinion/laws-congress-constitution-supreme-court.html
+**The New York Times News Quiz, Oct. 11, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/10/11/briefing/quiz-hurricane-trump-harris-nobel.html
 
-**Why Politicians Ignore Abuses in India’s Sugar Industry: They Run It**\
-`Politicians run most of the mills in the state of Maharashtra. They deny or downplay evidence of coerced hysterectomies, debt bondage and child labor in the fields.`\
-https://nytimes.com/2024/10/11/world/europe/india-sugar-worker-abuse-maharashtra-politicians.html
+**5 Things to Do This Weekend**\
+`Selections from the Weekend section, including a review of “Disclaimer,” Alfonso Cuarón’s limited series for Apple TV+.`\
+https://nytimes.com/interactive/2024/10/11/arts/weekend-editors-picks-disclaimer.html
 
-**Take Me Into the Ballgame**\
-`In Kwame Alexander’s new verse novel and Karen L. Swanson’s nonfiction picture book, Black girls pursue their dreams of playing big-league baseball.`\
-https://nytimes.com/2024/10/11/books/review/kwame-alexander-black-star.html
+**‘No One’s Life Is More Important to Him Than His’: Chris Christie on Trump and the Politicization of Disaster Relief**\
+`How did we get here?`\
+https://nytimes.com/2024/10/11/opinion/hurricane-milton-helene-florida-chris-christie.html
 
-**Tourism Has Rebounded Worldwide. But Not in Hong Kong.**\
-`In 2018, Hong Kong received a record 65 million tourists. In 2023, it welcomed a little more than half that.`\
-https://nytimes.com/2024/10/11/travel/hong-kong-tourism-pandemic.html
+**One Thing Never to Say to a Grieving Friend**\
+`Some words hurt more than they help.`\
+https://nytimes.com/2024/10/11/well/grief-condolences-what-not-to-say.html
 
-**SEC, Big Ten are poised to flex their muscle, looking to future**\
-`Neither Tony Petitti nor Greg Sankey shared an opinion on the College Football Playoff's future, but that doesn’t mean they don’t have one.`\
-https://nytimes.com/athletic/5835658/2024/10/11/college-football-playoff-future-big-ten-sec/
+**In Battered Lebanon, a Lone Gas Station Is a Lifeline in the East**\
+`Thousands have fled the town of Baalbek amid a barrage of Israeli airstrikes. For those who remain, Ali Jawad’s business is a critical piece of an informal safety net.`\
+https://nytimes.com/2024/10/11/world/middleeast/israel-lebanon-baalbek-gas-station.html
 
-**New-look Seahawks haunted by same old problems, outclassed yet again by 49ers**\
-`“We’re finding new ways to lose games," Mike Macdonald said. In reality, they’re losing in the same manner as before Macdonald arrived.`\
-https://nytimes.com/athletic/5836082/2024/10/11/seahawks-49ers-mike-macdonald-john-schneider/
+**How a Fox News host’s misleading question about migrant children morphed into a Trump talking point**\
+`The evolution of a misleading claim shows Mr. Trump’s penchant for exaggeration as well as his symbiotic relationship with Fox News.`\
+https://nytimes.com/interactive/2024/10/11/us/trump-migrant-children.html
 
-**How much does Oregon football still owe to Chip Kelly?**\
-`Kelly has now been gone for three times as long as he was Oregon’s head coach, but his fingerprints on the program are still visible.`\
-https://nytimes.com/athletic/5835867/2024/10/11/chip-kelly-oregon-ohio-state-career/
+**In Wisconsin, Democrats Hope Competing Down Ballot Helps Harris, Too**\
+`For the first time in 13 years, Wisconsin Democrats are contesting a number of local races. Even a few thousand voters energized by the candidates at their door could make a difference in a tight presidential contest.`\
+https://nytimes.com/2024/10/11/us/politics/wisconsin-election.html
 
-**Trippier set miss at least Brighton match with muscular injury**\
-`Kieran Trippier is set to miss Newcastle United&#8217;s Premier League match against Brighton &amp; Hove Albion and is a doubt for their remaining October fixtures.`\
-https://nytimes.com/athletic/5836298/2024/10/11/kieran-trippier-newcastle-injury-update/
+**What’s Your Favorite Hate-Watch?**\
+`Do you ever watch, read or listen to content that you think is bad? Why do so many of us do this?`\
+https://nytimes.com/2024/10/11/learning/whats-your-favorite-hate-watch.html
 
-**Tennis plays to no clock, but Rafael Nadal knew it was time**\
-`Though his fitness caught up with him, he kept his pride and legacy as best he could, even in sobering defeats.`\
-https://nytimes.com/athletic/5834500/2024/10/11/rafael-nadal-retirement-date-plan/
+**Bears run 'D' concerns? Potential for Caleb Williams, passing game? Mailbag, Week 6 picks**\
+`Would moving Teven Jenkins back to right guard help the offensive line? Is Jenkins going to get a contract extension? Plus Bears-Jags picks.`\
+https://nytimes.com/athletic/5834245/2024/10/11/bears-mailbag-jaguars-caleb-williams/
 
