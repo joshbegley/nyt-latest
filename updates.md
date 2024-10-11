@@ -1,3 +1,7 @@
+**Federal Judge Questions Justice Department on Boeing Guilty Plea**\
+`After objections from the families of the victims of the two 737 MAX plane crashes, a federal judge will rule whether to accept a plea agreement reached by the Justice Department and Boeing.`\
+https://nytimes.com/2024/10/11/us/politics/boeing-plea-deal.html
+
 **Mauricio Pochettino sees 'massive responsibility' in USMNT job ahead of first game**\
 `The Argentinian on his tactics, his adaptability and how both MLS and European-based players can play a role in his team`\
 https://nytimes.com/athletic/5837952/2024/10/11/mauricio-pochettino-usmnt-interview-first-game/
