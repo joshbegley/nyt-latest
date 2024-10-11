@@ -1,3 +1,7 @@
+**Scoop City: Where rookie QBs rank against prior first-rounders**\
+`A brief look into where Caleb Williams, Jayden Daniels and Bo Nix land against prior first-round rookies at this stage in their career.`\
+https://nytimes.com/athletic/5836665/2024/10/11/how-rookie-quarterbacks-stack-up-plus-a-jets-update-and-ashton-jeantys-prospects/
+
 **The Asia Now Fair Marks 10 Years in Paris**\
 `This year the event will feature odes to fire, water and homeland, with live performances, elegiac paeans and an eye to the idea of ceremony.`\
 https://nytimes.com/2024/10/11/arts/design/asia-now-tenth-anniversary.html
