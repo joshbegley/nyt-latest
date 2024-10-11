@@ -1,3 +1,19 @@
+**How Does Florida Insure Itself Against Hurricanes Like These?**\
+`The state has taken steps to shore up its insurance market, but researchers warn of looming risks.`\
+https://nytimes.com/2024/10/11/opinion/florida-hurricane-insurance-flood.html
+
+**Iran warns Arab allies not to assist Israel with any retaliation efforts, officials say.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/iran-warns-arab-allies-not-assist-israel-with-any-retaliation-efforts-officials-say
+
+**Trump Scaled Up His Efforts to Stoke Immigration Fears**\
+`Also, the Nobel Peace Prize went to Japanese atomic bomb survivors. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/10/11/briefing/trump-immigration-speech-florida-hurricane-damage.html
+
+**Lebanon’s Leader Calls on U.N. for Cease-Fire Amid Search for Airstrike Survivors**\
+`Rescuers dug through rubble in Beirut as the caretaker prime minister implored the United Nations to adopt a resolution calling for an “immediate” truce between Israel and Hezbollah.`\
+https://nytimes.com/2024/10/11/world/middleeast/lebanon-ceasefire-israel-beirut-strike.html
+
 **Packers' Doubs breaks silence after suspension**\
 `Romeo Doubs said wanting a bigger role in Green Bay’s offense had nothing to do with not attending practice last week.`\
 https://nytimes.com/athletic/5837834/2024/10/11/packers-romeo-doubs-breaks-silence-suspension/
@@ -17,20 +33,4 @@ https://nytimes.com/interactive/2024/10/11/us/elections/nevada-latino-voters.htm
 **Where ‘Saturday Night’ Meets ‘The Apprentice’**\
 `The two films have more in common than you may think.`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/saturday-night-apprentice-trump
-
-**As Guardians prepare for Game 5, emotions are running high: 'This is what you dream of'**\
-`Michael Boyd was moved to tears when he allowed himself to think about his upcoming Game 5 start and the road he took to get there.`\
-https://nytimes.com/athletic/5837667/2024/10/11/cleveland-guardians-emotions-alds-game-5/
-
-**Joseph H. Reich, Charter School Pioneer, Dies at 89**\
-`When he and his wife opened the Beginning With Children school in Brooklyn to offer more educational opportunities to children, they set off a national trend.`\
-https://nytimes.com/2024/10/11/nyregion/joseph-h-reich-dead.html
-
-**Funeral Home Sent a Grandmother’s Body to the Wrong Country, Suit Claims**\
-`Carmen Maldonado, 96, of Queens, died on May 18. She was supposed to be buried in Ecuador, but her body was sent to Guatemala, a lawsuit contends.`\
-https://nytimes.com/2024/10/11/nyregion/queens-funeral-home-lawsuit.html
-
-**A Nebraska Senate Ad Lets One Mechanic Throw a Wrench at Another**\
-`Deb Fischer, the Republican incumbent, faces a stiff challenge from a union leader, Dan Osborn, running as an independent. Her latest ad calls him a “Democrat in disguise.”`\
-https://nytimes.com/2024/10/11/us/politics/fischer-osborn-nebraska-senate-ad.html
 
