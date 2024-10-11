@@ -1,3 +1,15 @@
+**What's impressed the Flyers about Matvei Michkov? So far, everything**\
+`The Flyers are trying not to put too much pressure on their young star, but Michkov is earning praise left and right.`\
+https://nytimes.com/athletic/5835296/2024/10/10/flyers-matvei-michkov-impressive-briere-tortorella/
+
+**Airstrikes in Central Beirut Kill at Least 22 People**\
+`The attack appeared to be the deadliest in Beirut in more than a year of fighting between Israel and Hezbollah.`\
+https://nytimes.com/video/world/middleeast/100000009755984/lebanon-israel-hezbollah.html
+
+**Dire Hurricane Warnings Got Floridians’ Attention, Saving Lives**\
+`The warnings from officials were dire, and they appear to have been effective.`\
+https://nytimes.com/2024/10/10/weather/hurricane-warnings-milton-florida.html
+
 **Harris Town Hall Shows Her Straining for a Tough Empathy on Immigration**\
 `The Univision event in Las Vegas featured emotional questions from voters on health care, the economy and the border — and displayed the fine lines Kamala Harris is trying to walk.`\
 https://nytimes.com/2024/10/10/us/politics/harris-univision-town-hall-immigration.html
