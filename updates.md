@@ -1,3 +1,7 @@
+**These Arizona Women Are Keeping Kamala Harris’s Hopes Alive**\
+`A conversation among “mom friends” in suburban Phoenix shows the depths of Donald J. Trump’s trouble with a key slice of female voters.`\
+https://nytimes.com/2024/10/11/us/politics/harris-trump-women-voters.html
+
 **Athlos tops 3 million viewers, plans 'annual event'**\
 `Reddit founder Alexis Ohanian's women’s track event late last month drew some 3 million viewers across its non-exclusive platforms.`\
 https://nytimes.com/athletic/5834472/2024/10/11/athlos-womens-track-viewership/
