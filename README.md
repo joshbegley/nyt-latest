@@ -1,3 +1,7 @@
+**The Aftermath of Thursday’s Deadly Strikes in Beirut**\
+`By David Guttenfelder and Diego Ibarra Sanchez`\
+https://nytimes.com/card/2024/10/11/world/middleeast/the-aftermath-of-thursdays-deadly-strikes-in-beirut
+
 **‘Who Is That? What’s Happening?’: Decoding the Art World at Frieze**\
 `The London art fair can be a bewildering spectacle, where even the insiders are sometimes scrambling to keep up.`\
 https://nytimes.com/2024/10/11/arts/design/frieze-london.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/arts/music/playlist-charli-xcx-ariana-grande-hals
 **An Award for the Vital Message of Nuclear Survivors**\
 `The Nobel Peace Prize recognized the dangerous path humanity is taking.`\
 https://nytimes.com/2024/10/08/opinion/nobel-peace-nuclear-survivors.html
-
-**A Choreographer’s Errands Into the Wilderness**\
-`The Greek-born choreographer Lenio Kaklea made her American debut at Governors Island, a fitting spot for work about the boundaries between nature and culture.`\
-https://nytimes.com/2024/10/11/arts/dance/lenio-kaklea-crossing-the-line.html
 
