@@ -14,8 +14,8 @@ https://nytimes.com/athletic/5835296/2024/10/10/flyers-matvei-michkov-impressive
 `The attack appeared to be the deadliest in Beirut in more than a year of fighting between Israel and Hezbollah.`\
 https://nytimes.com/video/world/middleeast/100000009755984/lebanon-israel-hezbollah.html
 
-**Harris Town Hall Shows Her Straining for a Tough Empathy on Immigration**\
-`The Univision event in Las Vegas featured emotional questions from voters on health care, the economy and the border — and displayed the fine lines Kamala Harris is trying to walk.`\
+**Harris Walks Fine Line on Immigration at Univision Town Hall**\
+`The event in Las Vegas featured emotional questions from voters on health care and the economy — and displayed the balance Kamala Harris is seeking on tough border rules and paths to citizenship.`\
 https://nytimes.com/2024/10/10/us/politics/harris-univision-town-hall-immigration.html
 
 **Dire Hurricane Warnings Got Floridians’ Attention, Saving Lives**\

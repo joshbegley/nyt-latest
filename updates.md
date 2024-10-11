@@ -1,3 +1,7 @@
+**Harris Walks Fine Line on Immigration at Univision Town Hall**\
+`The event in Las Vegas featured emotional questions from voters on health care and the economy — and displayed the balance Kamala Harris is seeking on tough border rules and paths to citizenship.`\
+https://nytimes.com/2024/10/10/us/politics/harris-univision-town-hall-immigration.html
+
 **Joba Chamberlain wears Yankees, Royals World Series rings to ALDS, has ‘goosebumps’**\
 `Chamberlain said he decided on a whim to make the three-hour drive to Game 4 of the ALDS from his home in Lincoln, Neb.`\
 https://nytimes.com/athletic/5835378/2024/10/10/joba-chamberlain-yankees-royals-world-series-rings-alds/
