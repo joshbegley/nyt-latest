@@ -1,3 +1,11 @@
+**5 Cities. 13 Schools. 47 First-Day Looks.**\
+`To find out what’s trending now, The New York Times for Kids visited middle schools across the country.`\
+https://nytimes.com/2024/10/11/magazine/kids-first-day-school-style.html
+
+**Hurricanes, Climate Change and the 2024 Election**\
+`Readers discuss recent hurricanes and actions that citizens can take. Also: Jack Smith’s timing; the Supreme Court and the campaign; therapy as health care; a Trumpian character.`\
+https://nytimes.com/2024/10/11/opinion/letters/hurricanes-climate-change-election.html
+
 **Charli XCX’s Starry ‘Brat’ Remixes, and 9 More New Songs**\
 `Hear tracks by Victoria Monét, Samara Joy, the Linda Lindas and others.`\
 https://nytimes.com/2024/10/11/arts/music/playlist-charli-xcx-ariana-grande-halsey.html
