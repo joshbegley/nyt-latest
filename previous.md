@@ -1,3 +1,11 @@
+**FSU lawyer: Every conference needs answers on ACC contract**\
+`Friday’s ruling allows for the Florida case to proceed, for now, pending one of two reviews by Florida’s First District Court of Appeal.`\
+https://nytimes.com/athletic/5837502/2024/10/11/fsu-acc-lawsuit-contracts/
+
+**Northern Lights Animate Night Skies Around the Globe**\
+`An outburst from elevated solar activity created conditions on Thursday that kept people’s eyes glued to evening views all over the Northern Hemisphere.`\
+https://nytimes.com/2024/10/11/science/northern-lights-world-photos.html
+
 **49ers' Ricky Pearsall to return to practice next week**\
 `San Francisco's first-round draft pick will return to practice this week ahead of the 49ers' Super Bowl rematch with the Chiefs.`\
 https://nytimes.com/athletic/5807275/2024/10/11/49ers-ricky-pearsall-to-return-to-practice-6-weeks-after-shooting-incident/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5837184/2024/10/11/orlando-pride-nwsl-shield-unbeat
 **Mark Makers – Kofi Amoo-Gottfried**\
 `The Moment Lessons From Africa Helped Businesses in America`\
 https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-kofi-amoo-gottfried.html
-
-**In Michigan, Walz Assails Trump’s Record on Manufacturing**\
-`The Minnesota governor running for vice president on the Democratic ticket also had strong words for Elon Musk, the billionaire businessman who is working to get former President Donald J. Trump elected.`\
-https://nytimes.com/2024/10/11/us/politics/walz-trump-michigan.html
-
-**Mark Makers – Don McGuire**\
-`The Moment I Turned Losing Into a Launchpad`\
-https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-don-mcguire.html
 
