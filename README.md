@@ -1,3 +1,7 @@
+**As Guardians prepare for Game 5, emotions are running high: 'This is what you dream of'**\
+`Michael Boyd was moved to tears when he allowed himself to think about his upcoming Game 5 start and the road he took to get there.`\
+https://nytimes.com/athletic/5837667/2024/10/11/cleveland-guardians-emotions-alds-game-5/
+
 **Joseph H. Reich, Charter School Pioneer, Dies at 89**\
 `When he and his wife opened the Beginning With Children school in Brooklyn to offer more educational opportunities to children, they set off a national trend.`\
 https://nytimes.com/2024/10/11/nyregion/joseph-h-reich-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5837661/2024/10/11/cheikhou-kouyate-leeds-united-tr
 **Colts' Pittman makes surprise return, Taylor out**\
 `Colts starting quarterback Anthony Richardson is also questionable to play at Tennessee in Week 6.`\
 https://nytimes.com/athletic/5837294/2024/10/11/michael-pittman-jr-surprise-return-jonathan-taylor-out/
-
-**Inside Donald Trump’s Shadow Presidency**\
-`In the years since he left the White House, former President Donald J. Trump has remained a force in international politics, meeting with a number of foreign leaders and operating out of his Mar-a-Lago estate in Florida.`\
-https://nytimes.com/2024/10/11/us/politics/inside-donald-trumps-shadow-presidency.html
 
