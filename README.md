@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5837294/2024/10/11/michael-pittman-jr-surprise-return-jonathan-taylor-out/
 
 **Inside Donald Trump’s Shadow Presidency**\
-`In the years since he left the White House, former President Donald J. Trump has acted as something of a shadow president, operating out of his Mar-a-Lago estate in Florida.`\
+`In the years since he left the White House, former President Donald J. Trump has remained a force in international politics, meeting with a number of foreign leaders and operating out of his Mar-a-Lago estate in Florida.`\
 https://nytimes.com/2024/10/11/us/politics/inside-donald-trumps-shadow-presidency.html
 
 **Stanley Tucci on His New Book, ‘What I Ate in One Year’**\
