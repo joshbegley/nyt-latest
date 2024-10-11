@@ -1,3 +1,7 @@
+**What Hilarity Often Does**\
+`Billy Bratton opens our solving weekend.`\
+https://nytimes.com/2024/10/10/crosswords/daily-puzzle-2024-10-11.html
+
 **Florida spring training sites appear to avoid serious damage from Hurricane Milton**\
 `Initial reports on the condition of several spring training facilities around Florida were not as bad as initially feared. `\
 https://nytimes.com/athletic/5835092/2024/10/10/florida-spring-training-sites-hurricane-milton/
