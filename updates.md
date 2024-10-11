@@ -1,3 +1,11 @@
+**Colts' Pittman makes surprise return, Taylor out**\
+`Colts starting quarterback Anthony Richardson is also questionable to play at Tennessee in Week 6.`\
+https://nytimes.com/athletic/5837294/2024/10/11/michael-pittman-jr-surprise-return-jonathan-taylor-out/
+
+**Inside Donald Trump’s Shadow Presidency**\
+`In the years since he left the White House, former President Donald J. Trump has acted as something of a shadow president, operating out of his Mar-a-Lago estate in Florida.`\
+https://nytimes.com/2024/10/11/us/politics/inside-donald-trumps-shadow-presidency.html
+
 **Stanley Tucci on His New Book, ‘What I Ate in One Year’**\
 `The actor and renowned foodie talks about his eating habits and his food diary, and we look at the fiction and nonfiction titles up for the National Book Award.`\
 https://nytimes.com/2024/10/11/books/review/stanley-tucci-what-i-ate-in-one-year-interview.html
