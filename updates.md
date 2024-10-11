@@ -1,3 +1,15 @@
+**8 MIT AI Experts To Know Now**\
+`MIT Sloan faculty members have been leaders in artificial intelligence for decades. Here’s a look at their new projects and what they see as the most exciting—and concerning—aspects of the AI boom.`\
+https://nytimes.com/paidpost/mit-sloan/ai/8-mit-ai-experts-to-know-now.html
+
+**Fears rise over rollout of vital second dose of polio vaccine to Gaza children.**\
+`By Ephrat Livni and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/fears-rise-over-rollout-of-vital-second-dose-of-polio-vaccine-to-gaza-children
+
+**What Do Liberals Believe About Late-Term Abortion?**\
+`How cognitive dissonance shapes both sides of the abortion debate.`\
+https://nytimes.com/2024/10/11/opinion/harris-walz-trump-abortion.html
+
 **Inside the rebirth of the Orlando Pride**\
 `The Pride have gone from floundering to in the NWSL to chasing an unbeaten season - this is how they did it`\
 https://nytimes.com/athletic/5837184/2024/10/11/orlando-pride-nwsl-shield-unbeaten/
