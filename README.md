@@ -1,3 +1,7 @@
+**Milton Leaves Many Florida Animals in Limbo**\
+`Florida’s shelters are overburdened after the storm and faced with an influx of animals. Organizations are helping to relocate them.`\
+https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-pets-animals.html
+
 **A Retirement Community Prepared for a Hurricane. Tornadoes Came Instead.**\
 `Hurricane Milton’s death toll was highest far from the coast where it made landfall, in a retirement community where few were braced for destructive tornadoes.`\
 https://nytimes.com/2024/10/11/us/hurricane-milton-tornado-florida-deaths.html
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5837948/2024/10/11/san-diego-wave-discrimination-la
 `With several new key pieces in place this season, we'll try and discern as much as we can from Toronto's two games.
 `\
 https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
-
-**49ers minutia minute: Nick Bosa finishes with career-best pressures, but sacks elusive**\
-`Bosa matched a career high with 14 quarterback pressures, but he didn't finish any of them for sacks. `\
-https://nytimes.com/athletic/5837802/2024/10/11/49ers-seahawks-snap-counts-nick-bosa/
 
