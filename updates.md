@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david
 `\
 https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
 
+**Mirtle: 6 way-too-early observations on the new-look Maple Leafs**\
+`With several new key pieces in place this season, we'll try and discern as much as we can from Toronto's two games.
+`\
+https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david-kampf/
+
 **Arizona Democrats Shut Down a Phoenix Campaign Office After Shootings**\
 `The office was hit three times after hours, once with a BB gun and twice with a firearm. No one was hurt, the authorities said.`\
 https://nytimes.com/2024/10/11/us/politics/arizona-democrats-shut-down-a-phoenix-campaign-office-after-shootings.html
