@@ -1,3 +1,7 @@
+**Agony, and Relief, for Island Residents Who Were Hit Hard 2 Years Ago**\
+`Residents of Sanibel Island, Fla., feared the worst when they evacuated to safer ground before Hurricane Milton arrived.`\
+https://nytimes.com/2024/10/10/weather/sanibel-island-hurricane-milton.html
+
 **Investigators Search N.Y.P.D. School Safety Offices in Bribery Inquiry**\
 `The search, and the seizure of a police official’s phone, were part of a welter of federal investigations into Mayor Eric Adams and his inner circle.`\
 https://nytimes.com/2024/10/10/nyregion/eric-adams-bribery-inquiry-school-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/us/politics/obama-harris-pittsburgh-democrats.htm
 **WNBA Finals moving to best-of-seven format in 2025**\
 `The finals will have a 2-2-1-1-1 structure where the higher seed will host Games 1, 2, 5 and 7, and its opponent will host Games 3, 4 and 6.`\
 https://nytimes.com/athletic/5835242/2024/10/10/wnba-finals-best-of-seven-format/
-
-**Jeff Ulbrich's early days as interim coach, and the word every Jets player can't stop saying**\
-`Scenes from the first days of a new Jets era.`\
-https://nytimes.com/athletic/5835125/2024/10/10/jeff-ulbrichs-new-york-jets-interim-coach-first-week/
 
