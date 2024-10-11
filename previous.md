@@ -1,3 +1,15 @@
+**Why Nevada Latinos Are Losing Faith in Government**\
+`Democrats have found their popularity with the Nevada electorate slipping. The fallout from the pandemic, including a struggling economy, has fostered mistrust in the government.`\
+https://nytimes.com/interactive/2024/10/11/us/elections/nevada-latino-voters.html
+
+**Bills followed concussion protocol with Josh Allen, per NFL, NFLPA**\
+`Allen briefly exited Sunday's game after his head slammed into the turf following a low tackle.`\
+https://nytimes.com/athletic/5837891/2024/10/11/bills-josh-allen-nfl-nflpa-concussion-protocol/
+
+**Where ‘Saturday Night’ Meets ‘The Apprentice’**\
+`The two films have more in common than you may think.`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/saturday-night-apprentice-trump
+
 **As Guardians prepare for Game 5, emotions are running high: 'This is what you dream of'**\
 `Michael Boyd was moved to tears when he allowed himself to think about his upcoming Game 5 start and the road he took to get there.`\
 https://nytimes.com/athletic/5837667/2024/10/11/cleveland-guardians-emotions-alds-game-5/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/11/style/kamala-harris-kerstin-emhoff.html
 **Patriots' RB Rhamondre Stevenson ruled out vs. Texans**\
 `The 1-2 Patriots will host the 4-1 Texans Sunday at Gillette Stadium.`\
 https://nytimes.com/athletic/5837735/2024/10/11/patriots-rhamondre-stevenson-ruled-out-injury/
-
-**Boeing Will Cut 17,000 Jobs in Bid to Slash Costs**\
-`A new chief executive is restructuring the aerospace manufacturer, which has been losing money for several years while struggling to improve production quality.`\
-https://nytimes.com/2024/10/11/business/boeing-job-cuts.html
-
-**Leeds considering move to sign free agent Kouyate**\
-`Leeds United are weighing up a move to sign free agent Cheikhou Kouyate on a short-term deal for the remainder of the 2024-25 campaign.`\
-https://nytimes.com/athletic/5837661/2024/10/11/cheikhou-kouyate-leeds-united-transfer/
-
-**Colts' Pittman makes surprise return, Taylor out**\
-`Colts starting quarterback Anthony Richardson is also questionable to play at Tennessee in Week 6.`\
-https://nytimes.com/athletic/5837294/2024/10/11/michael-pittman-jr-surprise-return-jonathan-taylor-out/
 

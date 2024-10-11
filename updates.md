@@ -1,3 +1,15 @@
+**Why Nevada Latinos Are Losing Faith in Government**\
+`Democrats have found their popularity with the Nevada electorate slipping. The fallout from the pandemic, including a struggling economy, has fostered mistrust in the government.`\
+https://nytimes.com/interactive/2024/10/11/us/elections/nevada-latino-voters.html
+
+**Bills followed concussion protocol with Josh Allen, per NFL, NFLPA**\
+`Allen briefly exited Sunday's game after his head slammed into the turf following a low tackle.`\
+https://nytimes.com/athletic/5837891/2024/10/11/bills-josh-allen-nfl-nflpa-concussion-protocol/
+
+**Where ‘Saturday Night’ Meets ‘The Apprentice’**\
+`The two films have more in common than you may think.`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/saturday-night-apprentice-trump
+
 **As Guardians prepare for Game 5, emotions are running high: 'This is what you dream of'**\
 `Michael Boyd was moved to tears when he allowed himself to think about his upcoming Game 5 start and the road he took to get there.`\
 https://nytimes.com/athletic/5837667/2024/10/11/cleveland-guardians-emotions-alds-game-5/
