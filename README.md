@@ -1,3 +1,11 @@
+**Colts' Pittman makes surprise return, Taylor out**\
+`Colts starting quarterback Anthony Richardson is also questionable to play at Tennessee in Week 6.`\
+https://nytimes.com/athletic/5837294/2024/10/11/michael-pittman-jr-surprise-return-jonathan-taylor-out/
+
+**Inside Donald Trump’s Shadow Presidency**\
+`In the years since he left the White House, former President Donald J. Trump has acted as something of a shadow president, operating out of his Mar-a-Lago estate in Florida.`\
+https://nytimes.com/2024/10/11/us/politics/inside-donald-trumps-shadow-presidency.html
+
 **Stanley Tucci on His New Book, ‘What I Ate in One Year’**\
 `The actor and renowned foodie talks about his eating habits and his food diary, and we look at the fiction and nonfiction titles up for the National Book Award.`\
 https://nytimes.com/2024/10/11/books/review/stanley-tucci-what-i-ate-in-one-year-interview.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5807275/2024/10/11/49ers-ricky-pearsall-to-return-t
 **Trump Is Said to Consider Brooke Rollins for White House Chief of Staff**\
 `Ms. Rollins, a conservative lawyer who ran domestic policy in the Trump administration, is said to be under consideration for the role should Donald J. Trump win the election.`\
 https://nytimes.com/2024/10/11/us/politics/trump-brooke-rollins-chief-of-staff.html
-
-**8 MIT AI Experts To Know Now**\
-`MIT Sloan faculty members have been leaders in artificial intelligence for decades. Here’s a look at their new projects and what they see as the most exciting—and concerning—aspects of the AI boom.`\
-https://nytimes.com/paidpost/mit-sloan/ai/8-mit-ai-experts-to-know-now.html
-
-**Fears rise the conflict may mar the rollout of a vital 2nd dose of the polio vaccine to Gaza children.**\
-`By Ephrat Livni and Rawan Sheikh Ahmad`\
-https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/fears-rise-over-rollout-of-vital-second-dose-of-polio-vaccine-to-gaza-children
 
