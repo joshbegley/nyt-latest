@@ -1,3 +1,7 @@
+**In Texas Senate Race, Cruz and Allred Duel Over Youth Sports Without Saying ‘Trans.’**\
+`Ted Cruz’s re-election campaign has poured resources into attack ads that focus on transgender participation in youth sports. His Democratic opponent, Representative Colin Allred, responded with his own ad.`\
+https://nytimes.com/2024/10/11/us/politics/texas-senate-cruz-allred-transsexual.html
+
 **Nevada Asked A.I. Which Students Need Help. The Answer Caused an Outcry.**\
 `The new system cut the number of students deemed “at risk” in the state by 200,000, leading to tough moral and ethical questions over which children deserve extra assistance.`\
 https://nytimes.com/2024/10/11/us/nevada-ai-at-risk-students.html
