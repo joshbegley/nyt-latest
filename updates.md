@@ -1,3 +1,7 @@
+**David Fry's pinch-hit heroics send Guardians-Tigers to climactic Game 5: Takeaways**\
+`With the Cleveland Guardians trailing, Fry came off the bench to deliver exactly what his team needed. `\
+https://nytimes.com/athletic/5835459/2024/10/10/tigers-guardians-score-mlb-playoffs-game-4-takeaways/
+
 **Stranded Mariner Seemingly Floated in the Gulf for Hours After the Hurricane**\
 `The Coast Guard rescued a fishing boat captain Thursday afternoon and said he survived winds as fierce as 90 miles per hour.`\
 https://nytimes.com/2024/10/10/weather/captain-float-sea-stranded.html
