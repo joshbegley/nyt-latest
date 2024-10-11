@@ -1,3 +1,7 @@
+**49ers' Ricky Pearsall to return to practice next week**\
+`San Francisco's first-round draft pick will return to practice this week ahead of the 49ers' Super Bowl rematch with the Chiefs.`\
+https://nytimes.com/athletic/5807275/2024/10/11/49ers-ricky-pearsall-to-return-to-practice-6-weeks-after-shooting-incident/
+
 **Trump Is Said to Consider Brooke Rollins for White House Chief of Staff**\
 `Ms. Rollins, a conservative lawyer who ran domestic policy in the Trump administration, is said to be under consideration for the role should Donald J. Trump win the election.`\
 https://nytimes.com/2024/10/11/us/politics/trump-brooke-rollins-chief-of-staff.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/us/politics/walz-trump-michigan.html
 **Mark Makers – Don McGuire**\
 `The Moment I Turned Losing Into a Launchpad`\
 https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-don-mcguire.html
-
-**Are They Not Famous, or Are You in a Bubble?**\
-`A social media post about the Hollywood Reporter’s “A-List” of influencers inspired quite a few jokes online. But part of that was a misunderstanding.`\
-https://nytimes.com/2024/10/11/style/hollywood-reporter-influencers-a-list.html
 
