@@ -1,3 +1,7 @@
+**Packers' Doubs breaks silence after suspension**\
+`Romeo Doubs said wanting a bigger role in Green Bay’s offense had nothing to do with not attending practice last week.`\
+https://nytimes.com/athletic/5837834/2024/10/11/packers-romeo-doubs-breaks-silence-suspension/
+
 **The U.S. imposes sanctions on Iran’s ‘ghost fleet’ of oil tankers.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/the-us-imposes-sanctions-on-irans-ghost-fleet-of-oil-tankers
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/nyregion/queens-funeral-home-lawsuit.html
 **A Nebraska Senate Ad Lets One Mechanic Throw a Wrench at Another**\
 `Deb Fischer, the Republican incumbent, faces a stiff challenge from a union leader, Dan Osborn, running as an independent. Her latest ad calls him a “Democrat in disguise.”`\
 https://nytimes.com/2024/10/11/us/politics/fischer-osborn-nebraska-senate-ad.html
-
-**When Your Partner’s Ex Is Your Biggest Fan**\
-`Doug Emhoff’s ex-wife is one of Kamala Harris’s most vocal supporters. Their relationship has brought new attention to blended families, but mutual admiration isn’t always a given.`\
-https://nytimes.com/2024/10/11/style/kamala-harris-kerstin-emhoff.html
 
