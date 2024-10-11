@@ -1,3 +1,7 @@
+**Nobuyo Oyama, the Japanese Voice of Doraemon, Dies at 90**\
+`Her alto timbre and radiant laughter shaped how millions experienced the blue cartoon robot in the quintessential children’s anime of the same name.`\
+https://nytimes.com/2024/10/11/arts/television/nobuyo-oyama-dead-doraemon.html
+
 **Here is what to know about this year’s award.**\
 `By Megan Specia`\
 https://nytimes.com/live/2024/10/11/world/nobel-peace-prize/here-is-what-to-know-about-this-years-award
