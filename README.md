@@ -1,3 +1,11 @@
+**Trump Agrees to a ‘Women’s Issues’ Event on Fox News, but Shuns Debate**\
+`The audience will be made up of women at the event, a town hall in Georgia to be taped on Tuesday and aired on Wednesday, the network said.`\
+https://nytimes.com/2024/10/11/business/media/trump-fox-women-town-hall.html
+
+**The Premier League’s Fight With Manchester City Won’t End Well for Anyone**\
+`A decision about rules that left both sides claiming victory revealed the broken reality of the world’s richest competition.`\
+https://nytimes.com/2024/10/11/world/europe/manchester-city-premier-league.html
+
 **Social media brings tennis players and fans closer, for better and for worse**\
 `As the cross-cultural tennis star power of the 2000s fades, the best players of the 2020s are using off-court avenues to engage with fans.`\
 https://nytimes.com/athletic/5732937/2024/10/11/tennis-social-media-player-accounts-abuse/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/11/style/kim-jones-fendi-dior-lvmh.html
 **A Trump Fix for the Housing Crisis Could Actually Make It Worse**\
 `The former president often implies that deportations will bring down housing costs. Reality is more complicated.`\
 https://nytimes.com/2024/10/11/business/economy/trump-housing-crisis-deportations.html
-
-**Joe Thompson has cancer for the third time in 11 years. But he is not standing still**\
-`The former midfielder on being released by Manchester United, playing with cancer and why his struggles will not keep him down`\
-https://nytimes.com/athletic/5836521/2024/10/11/joe-thompson-cancer-charity-walk/
-
-**These Arizona Women Are Keeping Kamala Harris’s Hopes Alive**\
-`A conversation among “mom friends” in suburban Phoenix shows the depths of Donald J. Trump’s trouble with a key slice of female voters.`\
-https://nytimes.com/2024/10/11/us/politics/harris-trump-women-voters.html
 
