@@ -1,3 +1,7 @@
+**SailGP Is Becoming All Grown Up**\
+`There are new teams, new events and higher team valuations. And last season had a different champion when Spain dethroned Australia.`\
+https://nytimes.com/2024/10/11/sports/sailing/sailgp-series-growth.html
+
 **Giants' Malik Nabers ruled out vs. Bengals**\
 `New York Giants rookie wide receiver Malik Nabers has been ruled out for Sunday night's game against the Cincinnati Bengals.`\
 https://nytimes.com/athletic/5837144/2024/10/11/ny-giants-malik-nabers-concussion-injury/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5818018/2024/10/11/joan-martinez-contract-real-madr
 **How to Prepare for SailGP? Inhale the Data, Practice and Study More Data.**\
 `Information is vital, as is simulator training and time on the water. It is up to each team to sort out what is useful.`\
 https://nytimes.com/2024/10/11/sports/sailing/sailgp-training-data.html
-
-**Kim Jones Leaving Fendi**\
-`From fashion world rumor to reality, another industry shake-up.`\
-https://nytimes.com/2024/10/11/style/kim-jones-fendi-dior-lvmh.html
 
