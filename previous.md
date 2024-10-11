@@ -1,3 +1,11 @@
+**Are They Not Famous, or Are You in a Bubble?**\
+`The Hollywood Reporter’s “A-List” of influencers inspired quite a few jokes online, but the creators who made the cut have millions of followers. In 2024, fame is evolving.`\
+https://nytimes.com/2024/10/11/style/hollywood-reporter-influencers-a-list.html
+
+**My Son Has a Gambling Problem. Do I Tell His Partner?**\
+`The magazine’s Ethicist columnist on the risks of divulging a loved one’s addiction to someone who ought to know.`\
+https://nytimes.com/2024/10/11/magazine/son-gambling-girlfriend-ethics.html
+
 **Nevada Asked A.I. Which Students Need Help. The Answer Caused an Outcry.**\
 `The new system cut the number of students deemed “at risk” in the state by 200,000, leading to tough moral and ethical questions over which children deserve extra assistance.`\
 https://nytimes.com/2024/10/11/us/nevada-ai-at-risk-students.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5837451/2024/10/11/guardians-tigers-alds-game-5-mov
 **Wilson likely Steelers' No. 2 QB vs. Raiders**\
 `Wilson was noncommittal about making his Steelers debut or what his role will be, but signs point to him backing up Justin Fields.`\
 https://nytimes.com/athletic/5834761/2024/10/11/russell-wilson-injury-steelers-raiders/
-
-**For Atomic Bomb Survivors, a Nobel Prize and a Reckoning, 80 Years Later**\
-`Toshiyuki Mimaki, the chairman of Nihon Hidankyo, which was awarded the Nobel Peace Prize, said his foremost wish was to “please abolish nuclear weapons while we are alive.”`\
-https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/nobel-peace-prize-nihon-hidanyuo-atomic-bomb
-
-**Israeli and U.S. Defense Ministers Discuss Israel’s Expanding Conflicts in Mideast**\
-`Defense Secretary Lloyd J. Austin III spoke with his Israeli counterpart, Yoav Gallant, on Thursday, the Pentagon said.`\
-https://nytimes.com/2024/10/11/world/middleeast/gallant-austin-israel-war.html
 

@@ -1,3 +1,11 @@
+**Are They Not Famous, or Are You in a Bubble?**\
+`The Hollywood Reporter’s “A-List” of influencers inspired quite a few jokes online, but the creators who made the cut have millions of followers. In 2024, fame is evolving.`\
+https://nytimes.com/2024/10/11/style/hollywood-reporter-influencers-a-list.html
+
+**My Son Has a Gambling Problem. Do I Tell His Partner?**\
+`The magazine’s Ethicist columnist on the risks of divulging a loved one’s addiction to someone who ought to know.`\
+https://nytimes.com/2024/10/11/magazine/son-gambling-girlfriend-ethics.html
+
 **In Texas Senate Race, Cruz and Allred Duel Over Youth Sports Without Saying ‘Trans.’**\
 `Ted Cruz’s re-election campaign has poured resources into attack ads that focus on transgender participation in youth sports. His Democratic opponent, Representative Colin Allred, responded with his own ad.`\
 https://nytimes.com/2024/10/11/us/politics/texas-senate-cruz-allred-transsexual.html
