@@ -1,3 +1,7 @@
+**Are Giants actually a 'good team'? A prime-time win vs. Bengals would prove they're for real**\
+`Last Sunday’s win at Seattle prevented the Giants’ season from sliding off the tracks. But was the win a fluke or a sign of things to come?`\
+https://nytimes.com/athletic/5835578/2024/10/11/new-york-giants-bengals-preview-snf-dexter-lawrence/
+
 **For the atomic bomb survivors, the Nobel is a bittersweet victory.**\
 `By John Yoon, Hisako Ueno and Kiuko Notoya`\
 https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/for-the-atomic-bomb-survivors-the-nobel-is-a-bittersweet-victory
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/11/business/jpmorgan-banks-earnings.html
 **Witnesses Describe Chaotic Scenes After Strikes on Central Beirut**\
 `Lebanese officials said Israeli airstrikes killed at least 22 people and wounded more than 100. The Israeli military did not confirm the strikes.`\
 https://nytimes.com/video/world/middleeast/100000009756372/witnesses-describe-chaotic-scenes-after-strikes-on-central-beirut.html
-
-**Why a Chargers trade deadline deal could be realistic — and a target: Mailbag**\
-`The Los Angeles Chargers will resume their season Sunday when they face the Denver Broncos at Empower Field at Mile High.`\
-https://nytimes.com/athletic/5835330/2024/10/11/chargers-trade-deadline-amari-cooper/
 
