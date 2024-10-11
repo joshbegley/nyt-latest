@@ -1,3 +1,7 @@
+**Penguins' Evgeni Malkin records 800th assist**\
+`Malkin is one of only 34 players in NHL history with at least 800 assists and is only the third active player to hit that mark.`\
+https://nytimes.com/athletic/5835637/2024/10/10/evgeni-malkin-penguins-800-assists/
+
 **Yankees, Cole advance to ALCS over Royals: Takeaways**\
 `The Yankees will host Game 1 of the American League Championship Series on Monday night.`\
 https://nytimes.com/athletic/5835573/2024/10/10/yankees-royals-score-mlb-playoffs-game-4-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/weather/captain-float-sea-stranded.html
 **Agony, and Relief, for Island Residents Who Were Hit Hard 2 Years Ago**\
 `Residents of Sanibel Island, Fla., feared the worst when they evacuated to safer ground before Hurricane Milton arrived.`\
 https://nytimes.com/2024/10/10/weather/sanibel-island-hurricane-milton.html
-
-**Investigators Search N.Y.P.D. School Safety Offices in Bribery Inquiry**\
-`The search, and the seizure of a police official’s phone, were part of a welter of federal investigations into Mayor Eric Adams and his inner circle.`\
-https://nytimes.com/2024/10/10/nyregion/eric-adams-bribery-inquiry-school-safety.html
 
