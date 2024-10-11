@@ -1,11 +1,3 @@
-**Japanese Atomic Bomb Survivors Awarded Nobel Peace Prize**\
-`The Nobel committee said that Nihon Hidankyo, the Japanese grass-roots movement of “hibakusha,” or atomic bombing survivors, have demonstrated that “nuclear weapons must never be used again.”`\
-https://nytimes.com/video/world/europe/100000009756407/japanese-atomic-bomb-survivors-awarded-nobel-peace-prize.html
-
-**City to hire Sporting's Hugo Viana to replace Txiki Begiristain**\
-`Manchester City are set to hire Sporting Lisbon&#8217;s Hugo Viana to replace the outgoing Txiki Begiristain as their new sporting director.`\
-https://nytimes.com/athletic/5830446/2024/10/11/hugo-viana-manchester-city-who/
-
 **Rescuers Search for Survivors After Israel Strikes Central Beirut**\
 `At least 22 people were killed in the attack, Lebanese officials said, as Israel’s bombing campaign against Hezbollah militants continued.`\
 https://nytimes.com/2024/10/11/world/middleeast/israel-strikes-beirut-lebanon.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5834838/2024/10/11/packers-mailbag-week-6-cardinals
 **Dane Brugler's NFL Draft watch: Ranking top 30 prospects in Oregon-Ohio State showdown**\
 `Saturday's matchup is loaded with potential NFL talent. Which prospects will be the most highly coveted come April?`\
 https://nytimes.com/athletic/5833637/2024/10/11/nfl-draft-2025-oregon-ohio-state/
+
+**Trump 2.0: A Presidency Driven by Revenge**\
+`As president, Donald Trump repeatedly tried to use his powers to penalize his enemies. What might a second term mean for American democracy?`\
+https://nytimes.com/2024/10/11/podcasts/the-daily/trump-revenge.html
+
+**Agony and Relief After Milton, and the Nobel Peace Prize Is Awarded**\
+`Plus, the W.N.B.A.’s record-breaking season.`\
+https://nytimes.com/2024/10/11/podcasts/milton-florida-trump-car-loan-tax-break.html
 
