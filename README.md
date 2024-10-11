@@ -1,3 +1,7 @@
+**Give Ukraine NATO Membership. Peace Depends on It.**\
+`Europe will not be secure — and will not be whole and free — until Ukraine is in NATO. Ukraine will not agree to end the war without it.`\
+https://nytimes.com/2024/10/11/opinion/ukraine-nato-membership-russia.html
+
 **Why are Wrexham not playing during the international break? Are other League One games off?**\
 `Wrexham's game with Lincoln is postponed this weekend. Should League One close down during international breaks?`\
 https://nytimes.com/athletic/5827844/2024/10/11/wrexham-not-playing-international-break/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5828127/2024/10/11/leicester-cooper-late-substituti
 **Football and CBD: A complicated relationship**\
 `Former footballers have been at the forefront of marketing CBD, particularly on social media`\
 https://nytimes.com/athletic/5828179/2024/10/11/football-cbd-oil/
-
-**Next week’s waiver wire: Blake Corum, Ladd McConkey and more players to add now — before the Week 7 rush**\
-`John Laghezza points you towards his top expected future waiver wire plays, including a couple of Los Angeles-based rookies.`\
-https://nytimes.com/athletic/5833854/2024/10/11/next-weeks-waiver-wire-blake-corum-ladd-mcconkey-and-more-players-to-add-now-before-the-week-7-rush/
 
