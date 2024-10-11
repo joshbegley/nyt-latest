@@ -1,3 +1,11 @@
+**Here are the latest developments.**\
+`By Christina Goldbaum, Euan Ward and Liam Stack`\
+https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/here-are-the-latest-developments
+
+**Live Updates: Rescuers Search for Survivors After Strikes Rock Central Beirut**\
+`At least 22 people were killed and more than 100 injured in the overnight attack, Lebanese officials said. The Israeli military, which has been targeting Hezbollah militants, did not comment.`\
+https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news
+
 **Here’s how the Peace Prize nomination process works.**\
 `By Megan Specia`\
 https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/heres-how-the-peace-prize-nomination-process-works
