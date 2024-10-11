@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/11/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Heads West for a Pair of Rallies**\
+`While former President Donald J. Trump crisscrosses the battlegrounds, his first stop is Aurora, Colo., a city where he has tried to stoke fear about immigration. On Thursday, Kamala Harris hit two key Sun Belt states.`\
+https://nytimes.com/live/2024/10/11/us/harris-trump-election
+
+**What NBA scouts are saying about rookie Alex Sarr and his future**\
+`Will the No. 2 pick in this year's draft pick pan out for the Wizards? `\
+https://nytimes.com/athletic/5835490/2024/10/11/alex-sarr-nba-scouts-evaluation/
+
 **Thompson: George Kittle — who else — exorcises 49ers' red zone demons**\
 `When the 49ers really need it, George Kittle is always a good option. On Thursday in Seattle, he proved it again.`\
 https://nytimes.com/athletic/5836198/2024/10/11/george-kittle-49ers-seahawks-red-zone-touchdowns/

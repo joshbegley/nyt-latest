@@ -1,3 +1,15 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/11/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Heads West for a Pair of Rallies**\
+`While former President Donald J. Trump crisscrosses the battlegrounds, his first stop is Aurora, Colo., a city where he has tried to stoke fear about immigration. On Thursday, Kamala Harris hit two key Sun Belt states.`\
+https://nytimes.com/live/2024/10/11/us/harris-trump-election
+
+**What NBA scouts are saying about rookie Alex Sarr and his future**\
+`Will the No. 2 pick in this year's draft pick pan out for the Wizards? `\
+https://nytimes.com/athletic/5835490/2024/10/11/alex-sarr-nba-scouts-evaluation/
+
 **Thompson: George Kittle — who else — exorcises 49ers' red zone demons**\
 `When the 49ers really need it, George Kittle is always a good option. On Thursday in Seattle, he proved it again.`\
 https://nytimes.com/athletic/5836198/2024/10/11/george-kittle-49ers-seahawks-red-zone-touchdowns/
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/5828077/2024/10/11/josh-sargent-usmnt-norwich-strik
 **Lowetide: Why Oilers' issues in season-opening loss were predictable**\
 `The Oilers' loss to Winnipeg in the regular-season opener might be the worst Game 1 in team history.`\
 https://nytimes.com/athletic/5834019/2024/10/11/oilers-jets-loss-nurse/
-
-**FM2025 has been delayed until March - why? Is this a big deal? And has this happened before?**\
-`This is the first time the hugely popular game's release has been delayed for so long in the past 20 years`\
-https://nytimes.com/athletic/5836265/2024/10/11/football-manager-2025-delay-analysis/
-
-**Here are the latest developments.**\
-`By Christina Goldbaum, Euan Ward and Liam Stack`\
-https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/here-are-the-latest-developments
-
-**Live Updates: Rescuers Search for Survivors After Strikes Rock Central Beirut**\
-`At least 22 people were killed and more than 100 injured in the overnight attack, Lebanese officials said. The Israeli military, which has been targeting Hezbollah militants, did not comment.`\
-https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news
 
