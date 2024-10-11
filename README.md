@@ -1,3 +1,7 @@
+**Stranded Mariner Seemingly Floated in the Gulf for Hours After the Hurricane**\
+`The Coast Guard rescued a fishing boat captain Thursday afternoon and said he survived winds as fierce as 90 miles per hour.`\
+https://nytimes.com/2024/10/10/weather/captain-float-sea-stranded.html
+
 **Agony, and Relief, for Island Residents Who Were Hit Hard 2 Years Ago**\
 `Residents of Sanibel Island, Fla., feared the worst when they evacuated to safer ground before Hurricane Milton arrived.`\
 https://nytimes.com/2024/10/10/weather/sanibel-island-hurricane-milton.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/10/10/weather/sanibel-island-hurricane-milton.html
 `The search, and the seizure of a police official’s phone, were part of a welter of federal investigations into Mayor Eric Adams and his inner circle.`\
 https://nytimes.com/2024/10/10/nyregion/eric-adams-bribery-inquiry-school-safety.html
 
-**Joba Chamberlain wears Yankees, Royals World Series rings to ALDS, has ‘goosebumps’**\
+**Joba Chamberlain wears Yankees, Royals World Series rings to ALDS, has ‘goose bumps’**\
 `Chamberlain said he decided on a whim to make the three-hour drive to Game 4 of the ALDS from his home in Lincoln, Neb.`\
 https://nytimes.com/athletic/5835378/2024/10/10/joba-chamberlain-yankees-royals-world-series-rings-alds/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/weather/hurricane-warnings-milton-florida.html
 **A Stern Obama Tells Black Men to Drop ‘Excuses’ and Support Harris**\
 `Before speaking at a rally for Vice President Kamala Harris in Pittsburgh, the former president spoke directly to Black male voters in an effort to bolster flagging support.`\
 https://nytimes.com/2024/10/10/us/politics/obama-harris-pittsburgh-democrats.html
-
-**WNBA Finals moving to best-of-seven format in 2025**\
-`The finals will have a 2-2-1-1-1 structure where the higher seed will host Games 1, 2, 5 and 7, and its opponent will host Games 3, 4 and 6.`\
-https://nytimes.com/athletic/5835242/2024/10/10/wnba-finals-best-of-seven-format/
 
