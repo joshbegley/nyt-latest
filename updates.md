@@ -1,3 +1,11 @@
+**Raiders place TE Michael Mayer on NFI due to personal issue**\
+`Mayer has only played in the Raiders' first three games due to the personal issue.`\
+https://nytimes.com/athletic/5837877/2024/10/11/michael-mayer-raiders-nfi/
+
+**Some Florida areas see flashes of normal life after Milton.**\
+`Major airports, theme parks and restaurants were returning to business in some parts of the state that were affected by the hurricane.`\
+https://nytimes.com/live/2024/10/11/weather/hurricane-milton-florida-news/some-florida-areas-see-flashes-of-normal-life-after-milton
+
 **How Does Florida Insure Itself Against Hurricanes Like These?**\
 `The state has taken steps to shore up its insurance market, but researchers warn of looming risks.`\
 https://nytimes.com/2024/10/11/opinion/florida-hurricane-insurance-flood.html
