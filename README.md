@@ -1,3 +1,11 @@
+**‘That’s an overpay’: Jeremy Swayman smashed the goalie market, and he’s not sorry about it**\
+`In his first appearance since he signed his contract, Swayman was "not satisfied" with his performance despite earning the win. `\
+https://nytimes.com/athletic/5835466/2024/10/10/bruins-jeremy-swayman-contract-goalie/
+
+**José Ramírez and Emmanuel Clase's resurgence has Guardians flying high**\
+`Ramírez slugged a fifth inning solo homer, while Clase `\
+https://nytimes.com/athletic/5835737/2024/10/10/jose-ramirez-emmanuel-clase-lift-cleveland-guardians-alds/
+
 **Obama Rallies for Harris in Pittsburgh**\
 `The former president made the case for Vice President Kamala Harris’s bid for the White House by delivering a takedown of Donald Trump as unable to relate to everyday Americans.`\
 https://nytimes.com/video/us/elections/100000009756115/obama-harris-pittsburgh-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5835442/2024/10/10/wild-season-opener-blue-jackets-
 **Penguins' Evgeni Malkin records 800th assist**\
 `Malkin is one of only 34 players in NHL history with at least 800 assists and is only the third active player to hit that mark.`\
 https://nytimes.com/athletic/5835637/2024/10/10/evgeni-malkin-penguins-800-assists/
-
-**Yankees, Cole advance to ALCS over Royals: Takeaways**\
-`The Yankees will host Game 1 of the American League Championship Series on Monday night.`\
-https://nytimes.com/athletic/5835573/2024/10/10/yankees-royals-score-mlb-playoffs-game-4-takeaways/
-
-**A Rare Sighting of Northern Lights Entrances Viewers in New York Area**\
-`The aurora borealis, which transformed the sky with startling streaks of pink and purple, arose from a magnetic storm.`\
-https://nytimes.com/2024/10/10/nyregion/northern-lights-new-york.html
 
