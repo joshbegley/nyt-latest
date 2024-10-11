@@ -1,40 +1,40 @@
-**Quote of the Day: Lindor’s Heroics: Feeling Is Believing**\
-`Quotation of the Day for Friday, October 11, 2024`\
-https://nytimes.com/2024/10/10/pageoneplus/quote-of-the-day-lindors-heroics-feeling-is-believing.html
+**Friday Briefing**\
+`The aftermath of Hurricane Milton.`\
+https://nytimes.com/2024/10/11/briefing/hurricane-milton-lebanon-israel.html
 
-**NFL misses potential muffed punt call in 49ers vs. Seahawks TNF game**\
-`The NFL's replay review room apparently didn't have access to the same enhanced video that was showing on the Prime Video broadcast.`\
-https://nytimes.com/athletic/5835795/2024/10/10/nfl-misses-potential-muffed-punt-call-in-49ers-vs-seahawks-tnf-game/
+**David Fry's heroics for the Cleveland Guardians are a script made for October**\
+`This was the night a PTBNL-turned-All-Star rescued his team from elimination. This was David Fry's coming out moment. This is October.`\
+https://nytimes.com/athletic/5835817/2024/10/11/david-fry-october-heroics-2024-mlb-postseason/
 
-**‘That’s an overpay’: Jeremy Swayman smashed the goalie market, and he’s not sorry about it**\
-`In his first appearance since he signed his contract, Swayman was "not satisfied" with his performance despite earning the win. `\
-https://nytimes.com/athletic/5835466/2024/10/10/bruins-jeremy-swayman-contract-goalie/
+**In the Wake of Hurricane Helene, Still Saying ‘I Do’**\
+`Peter Batinski and Keri Terenzio, who met in April 2020, are no strangers to crisis. But the Asheville, N.C., residents couldn’t have anticipated the latest: planning a wedding with no running water.`\
+https://nytimes.com/2024/10/11/fashion/weddings/in-the-wake-of-hurricane-helene-still-saying-i-do.html
 
-**José Ramírez and Emmanuel Clase's resurgence has Guardians flying high**\
-`Ramírez slugged a fifth inning solo homer, while Clase got a five-out save to force a deciding fifth game. `\
-https://nytimes.com/athletic/5835737/2024/10/10/jose-ramirez-emmanuel-clase-lift-cleveland-guardians-alds/
+**My Body Doesn’t Belong to You**\
+`In this essay from 2017, a young woman offers powerful testimony about the damaging effects of men’s possessiveness over women’s bodies.`\
+https://nytimes.com/2024/10/11/style/modern-love-classic-my-body-doesnt-belong-to-you.html
 
-**Obama Rallies for Harris in Pittsburgh**\
-`The former president made the case for Vice President Kamala Harris’s bid for the White House by delivering a takedown of Donald Trump as unable to relate to everyday Americans.`\
-https://nytimes.com/video/us/elections/100000009756115/obama-harris-pittsburgh-democrats.html
+**From Wingman to Main Man**\
+`Wilson Payamps approached Cameron Kirk on behalf of a female friend. Lucky for him, she wasn’t Mr. Kirk’s type.`\
+https://nytimes.com/2024/10/11/style/wilson-payamps-cameron-kirk-wedding.html
 
-**The Tigers have their backs against the wall, and they wouldn’t have it any other way**\
-`After letting a lead slip, the Tigers enter ALDS Game 5 with Kerry Carpenter hurt, their season on the line and Tarik Skubal on the mound.`\
-https://nytimes.com/athletic/5835738/2024/10/10/tigers-alds-game-4-loss/
+**At 5:57 a.m., They Were Fighting. By 6 a.m., They Were Engaged.**\
+`Anthony Verderame and Julie Mollo had a deal to be engaged by the end of 2023. They made it — with a day to spare.`\
+https://nytimes.com/2024/10/11/style/julie-mollo-anthony-verderame-wedding.html
 
-**Dodgers weigh pitching options for winner-take-all Game 5 against Padres**\
-`Beyond Yoshinobu Yamamoto, the Dodgers appear to be discussing running back the same formula that worked in Game 4.`\
-https://nytimes.com/athletic/5835530/2024/10/10/dodgers-game-5-pitching-plans/
+**For Two Years, a Scent of Love Had Lingered**\
+`As colleagues, Ariana Silvestro and Nicholas Kluender developed feelings for each other in 2016, but waited to pursue them.`\
+https://nytimes.com/2024/10/11/style/for-two-years-a-scent-of-love-had-lingered.html
 
-**What you need to know from the MLB playoffs: Yankees await Tigers or Guardians**\
-`David Fry put the Guardians on his back to force a winner-take-all Game 5, while the Yankees ousted the Royals to move onto the ALCS.`\
-https://nytimes.com/athletic/5835629/2024/10/10/mlb-postseason-2024-what-you-need-to-know-3/
+**Finding More Than Produce at the Farmer’s Market**\
+`Jake Fohn and Grace Stearns met a year and a half ago after signing up for an analog dating experience at one of the market’s booths.`\
+https://nytimes.com/2024/10/11/style/grace-stearns-jake-fohn-wedding.html
 
-**Courtney Williams, Lynx rally to beat Liberty in OT thriller**\
-`Williams led the way with 23 points, followed closely by Kayla McBride’s 22 and Napheesa Collier’s 21.`\
-https://nytimes.com/athletic/5835642/2024/10/10/lynx-liberty-wnba-finals-game-1-score-takeaways/
+**Stories That Changed Lives**\
+`For 20 years, Modern Love has recorded peoples’ lives. The column has also had real-life reverberations on readers.`\
+https://nytimes.com/2024/10/11/style/modern-love-essays-readers-stories.html
 
-**Review: An ‘Our Town’ for All of Us, Starring Jim Parsons**\
-`The Thornton Wilder classic returns to Broadway, still brutal and avant-garde after 86 years.`\
-https://nytimes.com/2024/10/10/theater/our-town-review-jim-parsons.html
+**Seven Ways to Love Better**\
+`Reading some 200,000 love stories has taught me a few lessons about love and life. Here are the ones that help me most.`\
+https://nytimes.com/2024/10/11/style/modern-love-7-lessons.html
 
