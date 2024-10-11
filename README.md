@@ -1,3 +1,7 @@
+**For the atomic bomb survivors, the Nobel is a bittersweet victory.**\
+`By John Yoon, Hisako Ueno and Kiuko Notoya`\
+https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/for-the-atomic-bomb-survivors-the-nobel-is-a-bittersweet-victory
+
 **Five-star Boozer twins pick Duke over Miami**\
 `The brothers will continue the family legacy that their father, Carlos, began 25 years ago.`\
 https://nytimes.com/athletic/5827067/2024/10/11/boozer-brothers-duke-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009756372/witnesses-describe-ch
 **Why a Chargers trade deadline deal could be realistic — and a target: Mailbag**\
 `The Los Angeles Chargers will resume their season Sunday when they face the Denver Broncos at Empower Field at Mile High.`\
 https://nytimes.com/athletic/5835330/2024/10/11/chargers-trade-deadline-amari-cooper/
-
-**Raiders' QB situation comes full circle when Steelers, Justin Fields face Aidan O'Connell**\
-`The Raiders went with Gardner Minshew and coordinator Luke Getsy this offseason over Fields. Minshew has already been benched. `\
-https://nytimes.com/athletic/5835087/2024/10/11/raiders-quarterback-getsy-fields-oconnell/
 
