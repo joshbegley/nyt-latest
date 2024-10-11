@@ -1,3 +1,7 @@
+**The U.S. imposes sanctions on Iran’s “ghost fleet” of oil tankers.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/the-us-imposes-sanctions-on-irans-ghost-fleet-of-oil-tankers
+
 **Why Nevada Latinos Are Losing Faith in Government**\
 `Democrats have found their popularity with the Nevada electorate slipping. The fallout from the pandemic, including a struggling economy, has fostered mistrust in the government.`\
 https://nytimes.com/interactive/2024/10/11/us/elections/nevada-latino-voters.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/us/politics/fischer-osborn-nebraska-senate-ad.htm
 **When Your Partner’s Ex Is Your Biggest Fan**\
 `Doug Emhoff’s ex-wife is one of Kamala Harris’s most vocal supporters. Their relationship has brought new attention to blended families, but mutual admiration isn’t always a given.`\
 https://nytimes.com/2024/10/11/style/kamala-harris-kerstin-emhoff.html
-
-**Patriots' RB Rhamondre Stevenson ruled out vs. Texans**\
-`The 1-2 Patriots will host the 4-1 Texans Sunday at Gillette Stadium.`\
-https://nytimes.com/athletic/5837735/2024/10/11/patriots-rhamondre-stevenson-ruled-out-injury/
 
