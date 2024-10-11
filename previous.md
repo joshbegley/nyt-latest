@@ -1,3 +1,15 @@
+**Kim Jones Leaving Fendi**\
+`From fashion world rumor to reality, another industry shake-up.`\
+https://nytimes.com/2024/10/11/style/kim-jones-fendi-dior-lvmh.html
+
+**A Trump Fix for the Housing Crisis Could Actually Make It Worse**\
+`The former president often implies that deportations will bring down housing costs. Reality is more complicated.`\
+https://nytimes.com/2024/10/11/business/economy/trump-housing-crisis-deportations.html
+
+**Joe Thompson has cancer for the third time in 11 years. But he is not standing still**\
+`The former midfielder on being released by Manchester United, playing with cancer and why his struggles will not keep him down`\
+https://nytimes.com/athletic/5836521/2024/10/11/joe-thompson-cancer-charity-walk/
+
 **These Arizona Women Are Keeping Kamala Harris’s Hopes Alive**\
 `A conversation among “mom friends” in suburban Phoenix shows the depths of Donald J. Trump’s trouble with a key slice of female voters.`\
 https://nytimes.com/2024/10/11/us/politics/harris-trump-women-voters.html
@@ -21,16 +33,4 @@ https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/destruct
 **Harris to Appear on ‘The Breakfast Club’ With Charlamagne Tha God**\
 `The radio show hosted by the entertainer and author has long been a venue for candidates to appeal to Black voters.`\
 https://nytimes.com/2024/10/11/us/politics/harris-breakfast-club-charlamagne-tha-god.html
-
-**A Night of Love and Mischief With Stevie Wonder**\
-`At 74, the singer and songwriter returns to arenas with a message of healing and understanding. He’s using trademark exuberance and joy to deliver it.`\
-https://nytimes.com/2024/10/11/arts/music/stevie-wonder-sing-your-song-as-we-fix-our-nations-broken-heart-review.html
-
-**The Athletic FC answers your questions: What do you want to know about the game?**\
-`What do you want to know about the game? Phil Hay will answer questions - big and small - in the TAFC newsletter next week.`\
-https://nytimes.com/athletic/5836931/2024/10/11/tafc-questions-mailbag/
-
-**How Global Warming Made Hurricane Milton More Intense and Destructive**\
-`Greenhouse gas emissions added rain, intensified winds and doubled the storm’s potential property damage, scientists estimated.`\
-https://nytimes.com/2024/10/11/climate/milton-climate-change.html
 
