@@ -1,7 +1,3 @@
-**Destruction and disbelief in a Beirut neighborhood that residents thought was safe.**\
-`By Christina Goldbaum and Jacob Roubai`\
-https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/destruction-and-disbelief-in-a-beirut-neighborhood-that-residents-thought-was-safe
-
 **Harris to Appear on ‘The Breakfast Club’ With Charlamagne Tha God**\
 `The radio show hosted by the entertainer and author has long been a venue for candidates to appeal to Black voters.`\
 https://nytimes.com/2024/10/11/us/politics/harris-breakfast-club-charlamagne-tha-god.html
@@ -33,4 +29,8 @@ https://nytimes.com/2024/10/11/theater/new-shows-theater-broadway.html
 **North Korea Accuses the South of Sending Leaflet-Scattering Drones**\
 `Pyongyang threatened military action if the provocations continued, while the South advised its angry neighbor not to act “rashly.”`\
 https://nytimes.com/2024/10/11/world/asia/north-korea-unmanned-drones-leaflets.html
+
+**Gustavo Dudamel Visits New York With Promise, and a Warning**\
+`The superstar conductor will take over the New York Philharmonic in 2026. Is his tour with the Los Angeles Philharmonic a preview?`\
+https://nytimes.com/2024/10/11/arts/music/gustavo-dudamel-los-angeles-philharmonic-carnegie.html
 
