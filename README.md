@@ -1,3 +1,15 @@
+**8 MIT AI Experts To Know Now**\
+`MIT Sloan faculty members have been leaders in artificial intelligence for decades. Here’s a look at their new projects and what they see as the most exciting—and concerning—aspects of the AI boom.`\
+https://nytimes.com/paidpost/mit-sloan/ai/8-mit-ai-experts-to-know-now.html
+
+**Fears rise over rollout of vital second dose of polio vaccine to Gaza children.**\
+`By Ephrat Livni and Rawan Sheikh Ahmad`\
+https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/fears-rise-over-rollout-of-vital-second-dose-of-polio-vaccine-to-gaza-children
+
+**What Do Liberals Believe About Late-Term Abortion?**\
+`How cognitive dissonance shapes both sides of the abortion debate.`\
+https://nytimes.com/2024/10/11/opinion/harris-walz-trump-abortion.html
+
 **Inside the rebirth of the Orlando Pride**\
 `The Pride have gone from floundering to in the NWSL to chasing an unbeaten season - this is how they did it`\
 https://nytimes.com/athletic/5837184/2024/10/11/orlando-pride-nwsl-shield-unbeaten/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/11/style/hollywood-reporter-influencers-a-list.html
 **My Son Has a Gambling Problem. Do I Tell His Partner?**\
 `The magazine’s Ethicist columnist on the risks of divulging a loved one’s addiction to someone who ought to know.`\
 https://nytimes.com/2024/10/11/magazine/son-gambling-girlfriend-ethics.html
-
-**Nevada Asked A.I. Which Students Need Help. The Answer Caused an Outcry.**\
-`The new system cut the number of students deemed “at risk” in the state by 200,000, leading to tough moral and ethical questions over which children deserve extra assistance.`\
-https://nytimes.com/2024/10/11/us/nevada-ai-at-risk-students.html
-
-**Salman Rushdie Will Testify at Trial of Man Accused of Stabbing Him**\
-`Hadi Matar is charged with attempted murder and assault in connection with an attack in western New York that left the author blind in one eye.`\
-https://nytimes.com/2024/10/11/nyregion/salman-rushdie-stabbing-trial-testify.html
-
-**Tesla Loses Court Battle in Swedish Labor Dispute**\
-`A district court ruled that Sweden’s constitution prevented it from taking a side in a labor dispute between Tesla and local unions that has dragged on for 11 months.`\
-https://nytimes.com/2024/10/11/business/tesla-sweden-labor-dispute.html
 
