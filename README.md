@@ -1,3 +1,11 @@
+**5 Cities. 13 Schools. 47 First-Day Looks.**\
+`To find out what’s trending now, The New York Times for Kids visited middle schools across the country.`\
+https://nytimes.com/2024/10/11/magazine/kids-first-day-school-style.html
+
+**Hurricanes, Climate Change and the 2024 Election**\
+`Readers discuss recent hurricanes and actions that citizens can take. Also: Jack Smith’s timing; the Supreme Court and the campaign; therapy as health care; a Trumpian character.`\
+https://nytimes.com/2024/10/11/opinion/letters/hurricanes-climate-change-election.html
+
 **Charli XCX’s Starry ‘Brat’ Remixes, and 9 More New Songs**\
 `Hear tracks by Victoria Monét, Samara Joy, the Linda Lindas and others.`\
 https://nytimes.com/2024/10/11/arts/music/playlist-charli-xcx-ariana-grande-halsey.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/11/weather/yom-kippur-florida-hurricane-milton.html
 **Football Parlay Friday Week 7: Trying to stay hot with five underdog picks**\
 `Austin Mock has five college football underdogs for a round robin parlay for Saturday's Week 7 action, including USC and Oregon.`\
 https://nytimes.com/athletic/5837255/2024/10/11/football-parlay-friday-week-7-trying-to-stay-hot-with-five-underdog-picks/
-
-**How Vanderbilt cashed in on Alabama win by selling goalposts, pylons and more**\
-`Fined $100,000 by the SEC after its historic win last weekend, Vanderbilt then capitalized on the excitement in a unique way `\
-https://nytimes.com/athletic/5835287/2024/10/11/vanderbilt-alabama-goalposts-auction/
-
-**As Trump Arrives, Aurora Insists It’s Not the ‘War Zone’ He Sees**\
-`The former president is holding a rally in a Colorado city he falsely claims was overtaken by violent immigrants from Venezuela. The city’s leaders, Republicans and Democrats alike, tried to pre-emptively fact-check him.`\
-https://nytimes.com/2024/10/11/us/politics/trump-aurora-colorado.html
 
