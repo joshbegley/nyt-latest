@@ -1,3 +1,11 @@
+**How Haas’ F1 partnership with Toyota will work: ‘It’s not to replace Ferrari’**\
+`Haas announced a new partnership with Toyota, but that doesn't mean Toyota is nearing an F1 return. `\
+https://nytimes.com/athletic/5836865/2024/10/11/haas-f1-toyota-partnership-ferrari/
+
+**The Bounce: Napheesa Collier, Lynx cap all-time WNBA Finals comeback.**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5836482/2024/10/11/napheesa-collier-wnba-finals-lynx-liberty-nba-the-bounce/
+
 **Art Basel Paris Returns Larger, and More French, Than Ever**\
 `The fair will open in a freshly redone space with a new name. ‘In a way, it’s year zero,’ explained Art Basel’s chief executive.`\
 https://nytimes.com/2024/10/11/arts/design/art-basel-paris.html
