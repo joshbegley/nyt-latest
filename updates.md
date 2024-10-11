@@ -1,3 +1,7 @@
+**Fantasy football rankings Week 6: Sleepers, projections, starts**\
+`Jake Ciely has what you need to set your fantasy football lineup, breaking down the sleepers and need-to-know stats for the Week 6 slate.`\
+https://nytimes.com/athletic/5829747/2024/10/11/fantasy-football-rankings-week-6-sleepers-projections-starts-jalen-tolbert-chase-brown/
+
 **Mirtle: 6 way-too-early observations on the new-look Maple Leafs**\
 `With several new key pieces in place this season, we'll try and discern as much as we can from Toronto's two games.
 `\
