@@ -1,3 +1,7 @@
+**The Latest Hurricanes Are Creating as Much Delusion as Damage**\
+`By David Wallace-Wells`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/hurricane-milton-misinformation-denialism
+
 **FSU lawyer: Every conference needs answers on ACC contract**\
 `Friday’s ruling allows for the Florida case to proceed, for now, pending one of two reviews by Florida’s First District Court of Appeal.`\
 https://nytimes.com/athletic/5837502/2024/10/11/fsu-acc-lawsuit-contracts/
