@@ -1,3 +1,7 @@
+**Courtney Williams was becoming a journeywoman. Now she's a WNBA Finals heroine for the Lynx**\
+`Williams' 4-point play near the end of regulation was pivotal in the Lynx's historic finals comeback.`\
+https://nytimes.com/athletic/5836149/2024/10/11/courtney-williams-wnba-finals-heroine-minnesota-lynx/
+
 **Aurora Borealis Lights Skies**\
 `The northern lights spread an ethereal smear across the sky in parts of the United States and Britain.`\
 https://nytimes.com/video/us/100000009756324/northern-lights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/11/learning/word-of-the-day-robust.html
 **Carsley's England future no longer looks secure after confusing moments on the pitch and off it**\
 `England lost 2-1 to Greece on Thursday night, with Carsley's management and post-match comments leaving his future up in the air`\
 https://nytimes.com/athletic/5822832/2024/10/11/england-lee-carsley-greece-analysis/
-
-**Linus Ullmark shows why Senators' investment in him was necessary: 5 takeaways**\
-`Ottawa fans have $33 million reasons to smile at new goalie Ullmark, and the good times started in the opener.`\
-https://nytimes.com/athletic/5835030/2024/10/11/senators-takeaways-stutzle-pinto-ullmark/
 
