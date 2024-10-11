@@ -1,3 +1,15 @@
+**‘Who Is That? What’s Happening?’: Decoding the Art World at Frieze**\
+`The London art fair can be a bewildering spectacle, where even the insiders are sometimes scrambling to keep up.`\
+https://nytimes.com/2024/10/11/arts/design/frieze-london.html
+
+**Lebanon’s Prime Minister Calls for U.N. Resolution on an ‘Immediate’ Cease-Fire**\
+`It was the latest attempt by Najib Mikati’s embattled government to bring an end to the violence that has killed thousands and displaced nearly one million.`\
+https://nytimes.com/2024/10/11/world/middleeast/lebanon-prime-minister-un-resolution-cease-fire.html
+
+**‘Pod Save America’ Won’t Quit**\
+`The hosts of the political podcast have outlasted the wave of anti-Trump #Resistance that made it popular. That’s where things get complicated.`\
+https://nytimes.com/2024/10/11/style/pod-save-america-biden-trump-harris.html
+
 **6 Takeaways From the Christopher Reeve Documentary ‘Super/Man’**\
 `The new film chronicles the life of the paralyzed star, covering his friendship with Robin Williams and gut-wrenching details about his care and family.`\
 https://nytimes.com/2024/10/11/movies/superman-christopher-reeve-robin-williams.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/08/opinion/nobel-peace-nuclear-survivors.html
 **A Choreographer’s Errands Into the Wilderness**\
 `The Greek-born choreographer Lenio Kaklea made her American debut at Governors Island, a fitting spot for work about the boundaries between nature and culture.`\
 https://nytimes.com/2024/10/11/arts/dance/lenio-kaklea-crossing-the-line.html
-
-**Searching for homes, and the neighbors who once lived in them, at a demolished building in Beirut.**\
-`By Christina Goldbaum, Hwaida Saad and David Guttenfelder`\
-https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/searching-for-homes-and-the-neighbors-who-once-lived-in-them-at-a-demolished-building-in-beirut
-
-**Want Your Jack-o’-lantern to Last Longer? Stop Cutting a Hole in the Top.**\
-`By Rose Maura Lorre`\
-https://nytimes.com/card/2024/10/11/smarter-living/wirecutter/how-to-make-your-pumpkins-last-longer
-
-**In Florida, Yom Kippur Services Adjust After Hurricane Milton**\
-`Some Rabbis are altering tradition slightly to account for dispersed congregations, power outages and flooded temples. For others, it’s business as usual.`\
-https://nytimes.com/2024/10/11/weather/yom-kippur-florida-hurricane-milton.html
 
