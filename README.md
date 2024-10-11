@@ -1,3 +1,7 @@
+**Investigators Search N.Y.P.D. School Safety Offices in Bribery Inquiry**\
+`The search, and the seizure of a police official’s phone, were part of a welter of federal investigations into Mayor Eric Adams and his inner circle.`\
+https://nytimes.com/2024/10/10/nyregion/eric-adams-bribery-inquiry-school-safety.html
+
 **Joba Chamberlain wears Yankees, Royals World Series rings to ALDS, has ‘goosebumps’**\
 `Chamberlain said he decided on a whim to make the three-hour drive to Game 4 of the ALDS from his home in Lincoln, Neb.`\
 https://nytimes.com/athletic/5835378/2024/10/10/joba-chamberlain-yankees-royals-world-series-rings-alds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5835242/2024/10/10/wnba-finals-best-of-seven-format
 **Jeff Ulbrich's early days as interim coach, and the word every Jets player can't stop saying**\
 `Scenes from the first days of a new Jets era.`\
 https://nytimes.com/athletic/5835125/2024/10/10/jeff-ulbrichs-new-york-jets-interim-coach-first-week/
-
-**Phil Kessel, 3-time Stanley Cup champion, joins World Poker Tour**\
-`An avid poker player, Kessel was known to frequent competitive games at casinos in cities where he played in the NHL.`\
-https://nytimes.com/athletic/5835211/2024/10/10/phil-kessel-world-poker-tour/
 
