@@ -1,3 +1,15 @@
+**‘Who Is That? What’s Happening?’: Decoding the Art World at Frieze**\
+`The London art fair can be a bewildering spectacle, where even the insiders are sometimes scrambling to keep up.`\
+https://nytimes.com/2024/10/11/arts/design/frieze-london.html
+
+**Lebanon’s Prime Minister Calls for U.N. Resolution on an ‘Immediate’ Cease-Fire**\
+`It was the latest attempt by Najib Mikati’s embattled government to bring an end to the violence that has killed thousands and displaced nearly one million.`\
+https://nytimes.com/2024/10/11/world/middleeast/lebanon-prime-minister-un-resolution-cease-fire.html
+
+**‘Pod Save America’ Won’t Quit**\
+`The hosts of the political podcast have outlasted the wave of anti-Trump #Resistance that made it popular. That’s where things get complicated.`\
+https://nytimes.com/2024/10/11/style/pod-save-america-biden-trump-harris.html
+
 **6 Takeaways From the Christopher Reeve Documentary ‘Super/Man’**\
 `The new film chronicles the life of the paralyzed star, covering his friendship with Robin Williams and gut-wrenching details about his care and family.`\
 https://nytimes.com/2024/10/11/movies/superman-christopher-reeve-robin-williams.html
