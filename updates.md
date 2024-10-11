@@ -1,3 +1,7 @@
+**Courtney Williams was becoming a journeywoman. Now she's a WNBA Finals heroine for the Lynx**\
+`Williams' 4-point play near the end of regulation was pivotal in the Lynx's historic finals comeback.`\
+https://nytimes.com/athletic/5836149/2024/10/11/courtney-williams-wnba-finals-heroine-minnesota-lynx/
+
 **Linus Ullmark shows why Senators' investment in him was necessary: 5 takeaways**\
 `Ottawa fans have $33 million reasons to smile at new goalie Ullmark, and the good times started in the opener.`\
 https://nytimes.com/athletic/5835030/2024/10/11/senators-takeaways-stutzle-pinto-ullmark/
