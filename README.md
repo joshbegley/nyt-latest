@@ -1,3 +1,7 @@
+**NFL injury report: James Cook iffy for Week 6 and beyond; checking in on CMC, Cooper Kupp**\
+`Greg Scholz of Inside Injuries offers updates on CMC and Cooper Kupp, and surmises that Buffalo's James Cook could be out Week 6 and beyond.`\
+https://nytimes.com/athletic/5835632/2024/10/11/nfl-injury-report-week-6-james-cook-cmc-kupp/
+
 **Give Ukraine NATO Membership. Peace Depends on It.**\
 `Europe will not be secure — and will not be whole and free — until Ukraine is in NATO. Ukraine will not agree to end the war without it.`\
 https://nytimes.com/2024/10/11/opinion/ukraine-nato-membership-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5833289/2024/10/11/nikola-milenkovic-nottingham-for
 **Cooper, his Leicester substitutions and why he makes them later than anyone else**\
 `Cooper effectively makes two-thirds of his substitutions after the 75th minute, but will this change as he gets used to his squad?`\
 https://nytimes.com/athletic/5828127/2024/10/11/leicester-cooper-late-substitutions/
-
-**Football and CBD: A complicated relationship**\
-`Former footballers have been at the forefront of marketing CBD, particularly on social media`\
-https://nytimes.com/athletic/5828179/2024/10/11/football-cbd-oil/
 
