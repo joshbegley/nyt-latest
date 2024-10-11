@@ -1,3 +1,7 @@
+**Tennis plays to no clock, but Rafael Nadal knew it was time**\
+`Though his fitness caught up with him, he kept his pride and legacy as best he could, even in sobering defeats.`\
+https://nytimes.com/athletic/5834500/2024/10/11/rafael-nadal-retirement-date-plan/
+
 **Nobuyo Oyama, the Japanese Voice of Doraemon, Dies at 90**\
 `Her alto timbre and radiant laughter shaped how millions experienced the blue cartoon robot in the quintessential children’s anime of the same name.`\
 https://nytimes.com/2024/10/11/arts/television/nobuyo-oyama-dead-doraemon.html
