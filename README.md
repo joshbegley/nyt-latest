@@ -1,5 +1,5 @@
 **Big Banks Open Their Books for First Test After Rate Cuts**\
-`Profits fell at JPMorgan and Wells Fargo, but the lenders reported results that were largely better than expected, a sign that the economy remained solid.`\
+`Profits fell at JPMorgan and Wells Fargo, but the lenders reported results that were largely better than had been expected, a sign that the economy remained solid.`\
 https://nytimes.com/2024/10/11/business/jpmorgan-banks-earnings.html
 
 **Witnesses Describe Chaotic Scenes After Strikes on Central Beirut**\
