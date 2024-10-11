@@ -1,3 +1,7 @@
+**For the atomic bomb survivors, the Nobel is a bittersweet victory.**\
+`By John Yoon, Hisako Ueno and Kiuko Notoya`\
+https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/for-the-atomic-bomb-survivors-the-nobel-is-a-bittersweet-victory
+
 **Five-star Boozer twins pick Duke over Miami**\
 `The brothers will continue the family legacy that their father, Carlos, began 25 years ago.`\
 https://nytimes.com/athletic/5827067/2024/10/11/boozer-brothers-duke-basketball/
