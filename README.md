@@ -1,3 +1,7 @@
+**Arizona Democrats Shut Down a Phoenix Campaign Office After Shootings**\
+`The office was hit three times after hours, once with a BB gun and twice with a firearm. No one was hurt, the authorities said.`\
+https://nytimes.com/2024/10/11/us/politics/arizona-democrats-shut-down-a-phoenix-campaign-office-after-shootings.html
+
 **As Floridians Return, Officials Size Up Milton’s Uneven Trail of Destruction**\
 `Power outages, gas shortages and pockets of flooding were among the lingering issues. But Gov. Ron DeSantis said the damage could have been worse.`\
 https://nytimes.com/2024/10/11/weather/hurricane-milton-damage.html
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5837952/2024/10/11/mauricio-pochettino-usmnt-interv
 **‘Why Are We Out of Gas?’ A Fuel Crisis Leads to Long Lines in Florida.**\
 `Hurricane Milton left many gas stations without power and disrupted deliveries at ports. Mass evacuations before the storm also drained supplies.`\
 https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-gas-power.html
-
-**Federal Judge Questions Justice Department on Boeing Guilty Plea**\
-`After objections from the families of the victims of the two 737 MAX plane crashes, a federal judge will rule whether to accept a plea agreement reached by the Justice Department and Boeing.`\
-https://nytimes.com/2024/10/11/us/politics/boeing-plea-deal.html
 
