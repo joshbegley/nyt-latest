@@ -1,3 +1,7 @@
+**Quote of the Day: Lindor’s Heroics: Feeling Is Believing**\
+`Quotation of the Day for Friday, October 11, 2024`\
+https://nytimes.com/2024/10/10/pageoneplus/quote-of-the-day-lindors-heroics-feeling-is-believing.html
+
 **NFL misses potential muffed punt call in 49ers vs. Seahawks TNF game**\
 `The NFL's replay review room apparently didn't have access to the same enhanced video that was showing on the Prime Video broadcast.`\
 https://nytimes.com/athletic/5835795/2024/10/10/nfl-misses-potential-muffed-punt-call-in-49ers-vs-seahawks-tnf-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5835642/2024/10/10/lynx-liberty-wnba-finals-game-1-
 **Review: An ‘Our Town’ for All of Us, Starring Jim Parsons**\
 `The Thornton Wilder classic returns to Broadway, still brutal and avant-garde after 86 years.`\
 https://nytimes.com/2024/10/10/theater/our-town-review-jim-parsons.html
-
-**Johansson-Eriksson Ek-Boldy line delivers in Wild's season-opening win: 3 takeaways**\
-`Matt Boldy had a hand in all three Minnesota goals in Dean Evason's return to Xcel Energy Center.`\
-https://nytimes.com/athletic/5835442/2024/10/10/wild-season-opener-blue-jackets-boldy/
 
