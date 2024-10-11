@@ -1,3 +1,15 @@
+**49ers overcome injuries, get ground game going to beat Seahawks**\
+`The 49ers offense made sure it was a busy night for the Seahawks defense in their 36-24 win.`\
+https://nytimes.com/athletic/5835599/2024/10/11/49ers-seahawks-score-result-takeaways/
+
+**Fantasy trends and hidden gems: Eyeing schedule advantages from October through January**\
+`Shayna Goldman lays out the weekly schedule grid through January to help fantasy managers know when the waiver wire pickings will be ripe.`\
+https://nytimes.com/athletic/5834942/2024/10/11/fantasy-trends-and-hidden-gems-eyeing-schedule-advantages-from-october-through-january/
+
+**Words of Wisdom**\
+`Selected quotes from 20 Years of Modern Love.`\
+https://nytimes.com/interactive/2024/10/11/style/words-of-wisdom.html
+
 **Friday Briefing**\
 `The aftermath of Hurricane Milton.`\
 https://nytimes.com/2024/10/11/briefing/hurricane-milton-lebanon-israel.html
