@@ -1,3 +1,15 @@
+**Obama Rallies for Harris in Pittsburgh**\
+`The former president made the case for Vice President Kamala Harris’s bid for the White House by delivering a takedown of Donald Trump as unable to relate to everyday Americans.`\
+https://nytimes.com/video/us/elections/100000009756115/obama-harris-pittsburgh-democrats.html
+
+**The Tigers have their backs against the wall, and they wouldn’t have it any other way**\
+`After letting a lead slip, the Tigers enter ALDS Game 5 with Kerry Carpenter hurt, their season on the line and Tarik Skubal on the mound.`\
+https://nytimes.com/athletic/5835738/2024/10/10/tigers-alds-game-4-loss/
+
+**Dodgers weigh pitching options for winner-take-all Game 5 against Padres**\
+`Beyond Yoshinobu Yamamoto, the Dodgers appear to be discussing running back the same formula that worked in Game 4.`\
+https://nytimes.com/athletic/5835530/2024/10/10/dodgers-game-5-pitching-plans/
+
 **Courtney Williams, Lynx rally to beat Liberty in OT thriller**\
 `Williams led the way with 23 points, followed closely by Kayla McBride’s 22 and Napheesa Collier’s 21.`\
 https://nytimes.com/athletic/5835642/2024/10/10/lynx-liberty-wnba-finals-game-1-score-takeaways/
