@@ -1,3 +1,11 @@
+**6 New Shows Our Theater Critics Are Talking About**\
+`The fall season is underway, and our reviewers think these productions are worth knowing about, even if you’re not planning to see them.`\
+https://nytimes.com/2024/10/11/theater/new-shows-theater-broadway.html
+
+**North Korea Accuses the South of Sending Leaflet-Scattering Drones**\
+`Pyongyang threatened military action if the provocations continued, while the South advised its angry neighbor not to act “rashly.”`\
+https://nytimes.com/2024/10/11/world/asia/north-korea-unmanned-drones-leaflets.html
+
 **Gustavo Dudamel Visits New York With Promise, and a Warning**\
 `The superstar conductor will take over the New York Philharmonic in 2026. Is his tour with the Los Angeles Philharmonic a preview?`\
 https://nytimes.com/2024/10/11/arts/music/gustavo-dudamel-los-angeles-philharmonic-carnegie.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/11/well/mind/dental-fear-anxiety.html
 **Harvey Awards Inducts 5 Comic Creators to Hall of Fame**\
 `The inductees are being recognized for work on G.I. Joe, Mad magazine, manga and mutants. They will be honored at New York Comic Con.`\
 https://nytimes.com/2024/10/11/arts/harvey-awards-hall-of-fame.html
-
-**Advantage Amorim? How Viana appointment might influence City's Guardiola succession-planning**\
-`Why a tumultuous week at Manchester City doesn't necessarily mean manager Pep Guardiola is definitely on his way out of the club`\
-https://nytimes.com/athletic/5836505/2024/10/11/guardiola-future-manchester-city-amorim-viana/
-
-**U.S. Aims to Revive Failed U.N. Plan for Lebanon War**\
-`Biden administration officials are discussing whether a United Nations plan that ended Israel’s last invasion of Lebanon can be built to last this time.`\
-https://nytimes.com/2024/10/11/us/politics/us-diplomacy-israel-lebanon.html
 
