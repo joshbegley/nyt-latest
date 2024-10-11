@@ -1,3 +1,15 @@
+**The Blues don't have a Celebrini to celebrate, but comebacks show they can compete**\
+`The St. Louis Blues rallied for three goals in the third period and then won 5-4 in overtime over the San Jose Sharks.`\
+https://nytimes.com/athletic/5835932/2024/10/11/blues-sharks-nhl-comeback/
+
+**Israel Orders Gazans to Leave the North, but Most Are Staying Put**\
+`A woman in a town surrounded by Israeli troops said she and her family stayed away from the windows and prayed for relief: “That’s how we survive these dark days.”`\
+https://nytimes.com/2024/10/11/world/middleeast/gaza-israel-north-evacuations.html
+
+**Wall St. Profits Surge Despite Questions About the Economy**\
+`JPMorgan Chase, Wells Fargo and BlackRock reported strong quarterly results to kick off earnings season, but concerns linger about the strength of the consumer.`\
+https://nytimes.com/2024/10/11/business/dealbook/wall-street-earnings-economy.html
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/11/us/harris-trump-election/heres-the-latest-on-the-presidential-race
