@@ -1,3 +1,7 @@
+**These earlier Peace Prize recipients also campaigned against the use of nuclear weapons.**\
+`Nihon Hidankyo, the Japanese Group of Atomic Bomb Survivors, joins a list of laureates who opposed nuclear weapons.`\
+https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/these-earlier-peace-prize-recipients-also-campaigned-against-the-use-of-nuclear-weapons
+
 **Pelicans preview: 4 looming questions, including small ball and Zion's 'vengeance'**\
 `Few teams are bigger NBA mysteries than New Orleans this season. These issues will determine the team's ceiling.`\
 https://nytimes.com/athletic/5836278/2024/10/11/pelicans-zion-williamson-brandon-ingram-preseason/
