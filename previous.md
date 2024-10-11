@@ -1,3 +1,11 @@
+**Overlooked No More: Mariama Bâ, Voice of African Feminism**\
+`She became a literary star in Senegal with novels that addressed women’s issues as the country, newly free from French colonial rule, was discovering its identity.`\
+https://nytimes.com/2024/10/11/obituaries/mariama-ba-overlooked.html
+
+**San Diego Wave and NWSL face discrimination lawsuit filed by five former club employees**\
+`Five former San Diego Wave employees have filed a lawsuit against the club and the National Women’s Soccer League (NWSL), alleging multiple claims of discrimination, retaliation, wrongful termination and sexual harassment.`\
+https://nytimes.com/athletic/5837948/2024/10/11/san-diego-wave-discrimination-lawsuit-nwsl/
+
 **Mirtle: 6 way-too-early observations on the new-look Maple Leafs**\
 `With several new key pieces in place this season, we'll try and discern as much as we can from Toronto's two games.
 `\
@@ -26,12 +34,4 @@ https://nytimes.com/2024/10/11/us/politics/obama-harris-trump-speech.html
 **Swing State Voters: What’s in Your Mailbox?**\
 `Share images of your political correspondence with the On Politics newsletter.`\
 https://nytimes.com/2024/10/11/us/political-advertising-mail.html
-
-**Raiders place TE Michael Mayer on NFI due to personal issue**\
-`Mayer played in the first three games of the season, catching four passes for 21 yards.`\
-https://nytimes.com/athletic/5837877/2024/10/11/michael-mayer-raiders-nfi/
-
-**Some Florida areas see flashes of normal life after Milton.**\
-`Major airports, theme parks and restaurants were returning to business in some parts of the state that were affected by the hurricane.`\
-https://nytimes.com/live/2024/10/11/weather/hurricane-milton-florida-news/some-florida-areas-see-flashes-of-normal-life-after-milton
 
