@@ -1,3 +1,7 @@
+**Pelicans preview: 4 looming questions, including small ball and Zion's 'vengeance'**\
+`Few teams are bigger NBA mysteries than New Orleans this season. These issues will determine the team's ceiling.`\
+https://nytimes.com/athletic/5836278/2024/10/11/pelicans-zion-williamson-brandon-ingram-preseason/
+
 **Big Banks Open Their Books for First Test After Rate Cuts**\
 `Profits fell at JPMorgan and Wells Fargo, but the lenders reported results that were largely better than had been expected, a sign that the economy remained solid.`\
 https://nytimes.com/2024/10/11/business/jpmorgan-banks-earnings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5835932/2024/10/11/blues-sharks-nhl-comeback/
 **Israel Orders Gazans to Leave the North, but Most Are Staying Put**\
 `A woman in a town surrounded by Israeli troops said she and her family stayed away from the windows and prayed for relief: “That’s how we survive these dark days.”`\
 https://nytimes.com/2024/10/11/world/middleeast/gaza-israel-north-evacuations.html
-
-**Wall St. Profits Surge Despite Questions About the Economy**\
-`JPMorgan Chase, Wells Fargo and BlackRock reported strong quarterly results to kick off earnings season, but concerns linger about the strength of the consumer.`\
-https://nytimes.com/2024/10/11/business/dealbook/wall-street-earnings-economy.html
 
