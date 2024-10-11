@@ -27,7 +27,7 @@ https://nytimes.com/2024/10/11/us/politics/walz-trump-michigan.html
 https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-don-mcguire.html
 
 **Are They Not Famous, or Are You in a Bubble?**\
-`The Hollywood Reporter’s “A-List” of influencers inspired quite a few jokes online, but the creators who made the cut have millions of followers. In 2024, fame is evolving.`\
+`A social media post about the Hollywood Reporter’s “A-List” of influencers inspired quite a few jokes online. But part of that was a misunderstanding.`\
 https://nytimes.com/2024/10/11/style/hollywood-reporter-influencers-a-list.html
 
 **My Son Has a Gambling Problem. Do I Tell His Partner?**\
