@@ -1,3 +1,11 @@
+**As Floridians Return, Officials Size Up Milton’s Uneven Trail of Destruction**\
+`Power outages, gas shortages and pockets of flooding were among the lingering issues. But Gov. Ron DeSantis said the damage could have been worse.`\
+https://nytimes.com/2024/10/11/weather/hurricane-milton-damage.html
+
+**All the Presidents’ Books: 6,500 Best Sellers and 100 Years of Jimmy Carter**\
+`A reporter counted every best seller about U.S. presidents published since The Times started tracking book sales in 1931. The process took some patience.`\
+https://nytimes.com/2024/10/11/insider/best-sellers-jimmy-carter-books.html
+
 **Overlooked No More: Mariama Bâ, Voice of African Feminism**\
 `She became a literary star in Senegal with novels that addressed women’s issues as the country, newly free from French colonial rule, was discovering its identity.`\
 https://nytimes.com/2024/10/11/obituaries/mariama-ba-overlooked.html
@@ -26,12 +34,4 @@ https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-gas-power.html
 **Federal Judge Questions Justice Department on Boeing Guilty Plea**\
 `After objections from the families of the victims of the two 737 MAX plane crashes, a federal judge will rule whether to accept a plea agreement reached by the Justice Department and Boeing.`\
 https://nytimes.com/2024/10/11/us/politics/boeing-plea-deal.html
-
-**Obama’s Admonishing Tone to Black Men Presents a Risk for Democrats**\
-`The former president’s remarks that some Black men are not “feeling the idea” of a female president were blunt and urgent, but also potentially alienating for a vital group of Democratic voters.`\
-https://nytimes.com/2024/10/11/us/politics/obama-harris-trump-speech.html
-
-**Swing State Voters: What’s in Your Mailbox?**\
-`Share images of your political correspondence with the On Politics newsletter.`\
-https://nytimes.com/2024/10/11/us/political-advertising-mail.html
 
