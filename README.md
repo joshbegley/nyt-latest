@@ -15,7 +15,7 @@ https://nytimes.com/2024/10/11/business/tesla-sweden-labor-dispute.html
 https://nytimes.com/athletic/5836914/2024/10/11/chsn-comcast-tv-network-agreement/
 
 **In Texas Senate Race, Cruz and Allred Duel Over Youth Sports Without Saying ‘Trans.’**\
-`Ted Cruz’s re-election campaign has poured resources into attack ads that focus on transgender participation in youth sports. His Democratic opponent, Representative Chris Allred, responded with his own ad.`\
+`Ted Cruz’s re-election campaign has poured resources into attack ads that focus on transgender participation in youth sports. His Democratic opponent, Representative Colin Allred, responded with his own ad.`\
 https://nytimes.com/2024/10/11/us/politics/texas-senate-cruz-allred-transsexual.html
 
 **Guardians-Tigers ALDS Game 5 moved up**\
