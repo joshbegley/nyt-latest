@@ -1,3 +1,7 @@
+**Harris Town Hall Shows Her Straining for a Tough Empathy on Immigration**\
+`The Univision event in Las Vegas featured emotional questions from voters on health care, the economy and the border — and displayed the fine lines Kamala Harris is trying to walk.`\
+https://nytimes.com/2024/10/10/us/politics/harris-univision-town-hall-immigration.html
+
 **Officials and Residents Credit Hurricane Warnings With Saving Lives**\
 `The warnings from officials were dire, and they appear to have been effective.`\
 https://nytimes.com/2024/10/10/weather/hurricane-warnings-milton-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/us/politics/judge-evidence-trump-election-case.ht
 **Conservative States Seek to End Protections for Immigrant ‘Dreamers’**\
 `An appeals court is considering a challenge that could end DACA, which has allowed hundreds of thousands of young undocumented immigrants to live and work in the United States.`\
 https://nytimes.com/2024/10/10/us/daca-dreamers-fifth-circuit-appeals-court-hearing.html
-
-**SEC, Big Ten rail against private equity proposals**\
-`SEC and Big Ten officials and athletic directors met Thursday to discuss the House settlement, NCAA governance issues, the CFP and more.`\
-https://nytimes.com/athletic/5835115/2024/10/10/sec-big-ten-college-football-investments/
 
