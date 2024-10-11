@@ -1,3 +1,15 @@
+**The Stakes on Climate**\
+`We cover each presidential candidate’s climate policies.`\
+https://nytimes.com/2024/10/11/briefing/the-stakes-on-climate.html
+
+**Inside the Knicks' strategy that landed Karl-Anthony Towns in New York**\
+`Years of maneuvering set up the Knicks to take a major swing to further solidify their core.`\
+https://nytimes.com/athletic/5834911/2024/10/11/karl-anthony-towns-trade-how-it-happened/
+
+**Ukrainian Journalist Has Died in Russian Captivity, Ukraine Says**\
+`Viktoria Roshchina, a 27-year-old reporter, had been detained by the Russian authorities after reporting from occupied territories in Ukraine.`\
+https://nytimes.com/2024/10/11/world/europe/ukraine-journalist-viktoria-roshchina-dies-russia.html
+
 **Real Madrid's right-back search is speeding up. Who should they sign?**\
 `Even before Dani Carvajal's long-term injury, Real Madrid were looking for right-backs. Here are five possible targets`\
 https://nytimes.com/athletic/5834401/2024/10/11/real-madrid-right-back-alexander-arnold-frimpong-porro-carvajal/
