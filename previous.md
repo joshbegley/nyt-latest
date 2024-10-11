@@ -1,3 +1,11 @@
+**Football and CBD: A complicated relationship**\
+`Former footballers have been at the forefront of marketing CBD, particularly on social media`\
+https://nytimes.com/athletic/5828179/2024/10/11/football-cbd-oil/
+
+**Next week’s waiver wire: Blake Corum, Ladd McConkey and more players to add now — before the Week 7 rush**\
+`John Laghezza points you towards his top expected future waiver wire plays, including a couple of Los Angeles-based rookies.`\
+https://nytimes.com/athletic/5833854/2024/10/11/next-weeks-waiver-wire-blake-corum-ladd-mcconkey-and-more-players-to-add-now-before-the-week-7-rush/
+
 **Row Z: Klopp as a Red Bull romantic, bushtucker trials imagined and taking it on the chins**\
 `Your weekly look at the more curious side of football - also featuring Roberto Mancini's gripes and bushtucker trials imagined`\
 https://nytimes.com/athletic/5830641/2024/10/11/klopp-red-bull-mccoist-mancini-row-z/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/11/briefing/hurricane-milton-lebanon-israel.html
 **David Fry's heroics for the Cleveland Guardians are a script made for October**\
 `This was the night a PTBNL-turned-All-Star rescued his team from elimination. This was David Fry's coming out moment. This is October.`\
 https://nytimes.com/athletic/5835817/2024/10/11/david-fry-october-heroics-2024-mlb-postseason/
-
-**In the Wake of Hurricane Helene, Still Saying ‘I Do’**\
-`Peter Batinski and Keri Terenzio, who met in April 2020, are no strangers to crisis. But the Asheville, N.C., residents couldn’t have anticipated the latest: planning a wedding with no running water.`\
-https://nytimes.com/2024/10/11/fashion/weddings/in-the-wake-of-hurricane-helene-still-saying-i-do.html
-
-**My Body Doesn’t Belong to You**\
-`In this essay from 2017, a young woman offers powerful testimony about the damaging effects of men’s possessiveness over women’s bodies.`\
-https://nytimes.com/2024/10/11/style/modern-love-classic-my-body-doesnt-belong-to-you.html
 
