@@ -1,3 +1,11 @@
+**Stanley Tucci on His New Book, ‘What I Ate in One Year’**\
+`The actor and renowned foodie talks about his eating habits and his food diary, and we look at the fiction and nonfiction titles up for the National Book Award.`\
+https://nytimes.com/2024/10/11/books/review/stanley-tucci-what-i-ate-in-one-year-interview.html
+
+**Evan Gershkovich, U.S. Journalist Imprisoned in Russia, Will Publish a Memoir**\
+`The memoir, which will cover his time in prison and Russia’s move toward autocracy, will be published by Crown, an imprint of Penguin Random House.`\
+https://nytimes.com/2024/10/11/books/evan-gershkovich-memoir.html
+
 **The Latest Hurricanes Are Creating as Much Delusion as Damage**\
 `By David Wallace-Wells`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/hurricane-milton-misinformation-denialism
@@ -25,12 +33,4 @@ https://nytimes.com/paidpost/mit-sloan/ai/8-mit-ai-experts-to-know-now.html
 **Fears rise the conflict may mar the rollout of a vital 2nd dose of the polio vaccine to Gaza children.**\
 `By Ephrat Livni and Rawan Sheikh Ahmad`\
 https://nytimes.com/live/2024/10/11/world/israel-lebanon-hezbollah-news/fears-rise-over-rollout-of-vital-second-dose-of-polio-vaccine-to-gaza-children
-
-**What Do Liberals Believe About Late-Term Abortion?**\
-`How cognitive dissonance shapes both sides of the abortion debate.`\
-https://nytimes.com/2024/10/11/opinion/harris-walz-trump-abortion.html
-
-**Inside the rebirth of the Orlando Pride**\
-`The Pride have gone from floundering to in the NWSL to chasing an unbeaten season - this is how they did it`\
-https://nytimes.com/athletic/5837184/2024/10/11/orlando-pride-nwsl-shield-unbeaten/
 
