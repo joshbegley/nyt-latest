@@ -1,8 +1,16 @@
+**What's impressed the Flyers about Matvei Michkov? So far, everything**\
+`The Flyers are trying not to put too much pressure on their young star, but Michkov is earning praise left and right.`\
+https://nytimes.com/athletic/5835296/2024/10/10/flyers-matvei-michkov-impressive-briere-tortorella/
+
+**Airstrikes in Central Beirut Kill at Least 22 People**\
+`The attack appeared to be the deadliest in Beirut in more than a year of fighting between Israel and Hezbollah.`\
+https://nytimes.com/video/world/middleeast/100000009755984/lebanon-israel-hezbollah.html
+
 **Harris Town Hall Shows Her Straining for a Tough Empathy on Immigration**\
 `The Univision event in Las Vegas featured emotional questions from voters on health care, the economy and the border — and displayed the fine lines Kamala Harris is trying to walk.`\
 https://nytimes.com/2024/10/10/us/politics/harris-univision-town-hall-immigration.html
 
-**Officials and Residents Credit Hurricane Warnings With Saving Lives**\
+**Dire Hurricane Warnings Got Floridians’ Attention, Saving Lives**\
 `The warnings from officials were dire, and they appear to have been effective.`\
 https://nytimes.com/2024/10/10/weather/hurricane-warnings-milton-florida.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/10/us/politics/voters-economy-trump-harris.html
 **Malfunction at Historic Gold Mine in Colorado Leaves 1 Dead and a Dozen Trapped**\
 `An equipment failure at the Mollie Kathleen Gold Mine near Cripple Creek stranded 12 people underground during a tour.`\
 https://nytimes.com/2024/10/10/us/gold-mine-colorado-rescue.html
-
-**Judge Approves Limited Further Release of Evidence in Trump Election Case**\
-`An appendix to a high-profile prosecutorial brief, released last week, could become public next week. But much of it would be redacted.`\
-https://nytimes.com/2024/10/10/us/politics/judge-evidence-trump-election-case.html
-
-**Conservative States Seek to End Protections for Immigrant ‘Dreamers’**\
-`An appeals court is considering a challenge that could end DACA, which has allowed hundreds of thousands of young undocumented immigrants to live and work in the United States.`\
-https://nytimes.com/2024/10/10/us/daca-dreamers-fifth-circuit-appeals-court-hearing.html
 
