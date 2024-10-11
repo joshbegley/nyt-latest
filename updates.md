@@ -1,3 +1,7 @@
+**Israeli and U.S. Defense Ministers Discuss Israel’s Expanding Conflicts in Mideast**\
+`Defense Secretary Lloyd J. Austin III spoke with his Israeli counterpart, Yoav Gallant, on Thursday, the Pentagon said.`\
+https://nytimes.com/2024/10/11/world/middleeast/israeli-and-us-defense-ministers-discuss-israels-expanding-conflicts-in-mideast.html
+
 **The Aftermath of Thursday’s Deadly Strikes in Beirut**\
 `By David Guttenfelder and Diego Ibarra Sanchez`\
 https://nytimes.com/card/2024/10/11/world/middleeast/the-aftermath-of-thursdays-deadly-strikes-in-beirut
