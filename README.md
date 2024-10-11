@@ -1,3 +1,7 @@
+**A Retirement Community Prepared for a Hurricane. Tornadoes Came Instead.**\
+`Hurricane Milton’s death toll was highest far from the coast where it made landfall, in a retirement community where few were braced for destructive tornadoes.`\
+https://nytimes.com/2024/10/11/us/hurricane-milton-tornado-florida-deaths.html
+
 **Scared by Helene, Everyone in This Florida Beach Town Evacuated for Milton**\
 `Over time, the question of whether to stay or go will likely become a question of whether to keep living in coastal or low-lying areas at all.`\
 https://nytimes.com/2024/10/11/us/hurricane-helene-milton-florida-evacuations.html
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5837790/2024/10/11/maple-leafs-steven-lorentz-david
 **49ers minutia minute: Nick Bosa finishes with career-best pressures, but sacks elusive**\
 `Bosa matched a career high with 14 quarterback pressures, but he didn't finish any of them for sacks. `\
 https://nytimes.com/athletic/5837802/2024/10/11/49ers-seahawks-snap-counts-nick-bosa/
-
-**Mauricio Pochettino sees 'massive responsibility' in USMNT job ahead of first game**\
-`The Argentinian on his tactics, his adaptability and how both MLS and European-based players can play a role in his team`\
-https://nytimes.com/athletic/5837952/2024/10/11/mauricio-pochettino-usmnt-interview-first-game/
 
