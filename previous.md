@@ -1,3 +1,7 @@
+**Nevada Asked A.I. Which Students Need Help. The Answer Caused an Outcry.**\
+`The new system cut the number of students deemed “at risk” in the state by 200,000, leading to tough moral and ethical questions over which children deserve extra assistance.`\
+https://nytimes.com/2024/10/11/us/nevada-ai-at-risk-students.html
+
 **Salman Rushdie Will Testify at Trial of Man Accused of Stabbing Him**\
 `Hadi Matar is charged with attempted murder and assault in connection with an attack in western New York that left the author blind in one eye.`\
 https://nytimes.com/2024/10/11/nyregion/salman-rushdie-stabbing-trial-testify.html
@@ -18,6 +22,10 @@ https://nytimes.com/2024/10/11/us/politics/texas-senate-cruz-allred-transsexual.
 `Instead of starting at 8:08 p.m. ET, first pitch at Progressive Field in Cleveland will be at 1:08 p.m. ET.`\
 https://nytimes.com/athletic/5837451/2024/10/11/guardians-tigers-alds-game-5-moved-up-to-saturday-afternoon/
 
+**Wilson likely Steelers' No. 2 QB vs. Raiders**\
+`Wilson was noncommittal about making his Steelers debut or what his role will be, but signs point to him backing up Justin Fields.`\
+https://nytimes.com/athletic/5834761/2024/10/11/russell-wilson-injury-steelers-raiders/
+
 **For Atomic Bomb Survivors, a Nobel Prize and a Reckoning, 80 Years Later**\
 `Toshiyuki Mimaki, the chairman of Nihon Hidankyo, which was awarded the Nobel Peace Prize, said his foremost wish was to “please abolish nuclear weapons while we are alive.”`\
 https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/nobel-peace-prize-nihon-hidanyuo-atomic-bomb
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/nobel-peace-p
 **Israeli and U.S. Defense Ministers Discuss Israel’s Expanding Conflicts in Mideast**\
 `Defense Secretary Lloyd J. Austin III spoke with his Israeli counterpart, Yoav Gallant, on Thursday, the Pentagon said.`\
 https://nytimes.com/2024/10/11/world/middleeast/gallant-austin-israel-war.html
-
-**The Aftermath of Thursday’s Deadly Strikes in Beirut**\
-`By David Guttenfelder and Diego Ibarra Sanchez`\
-https://nytimes.com/card/2024/10/11/world/middleeast/the-aftermath-of-thursdays-deadly-strikes-in-beirut
-
-**‘Who Is That? What’s Happening?’: Decoding the Art World at Frieze**\
-`The London art fair can be a bewildering spectacle, where even the insiders are sometimes scrambling to keep up.`\
-https://nytimes.com/2024/10/11/arts/design/frieze-london.html
 

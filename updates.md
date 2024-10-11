@@ -1,3 +1,11 @@
+**Nevada Asked A.I. Which Students Need Help. The Answer Caused an Outcry.**\
+`The new system cut the number of students deemed “at risk” in the state by 200,000, leading to tough moral and ethical questions over which children deserve extra assistance.`\
+https://nytimes.com/2024/10/11/us/nevada-ai-at-risk-students.html
+
+**Wilson likely Steelers' No. 2 QB vs. Raiders**\
+`Wilson was noncommittal about making his Steelers debut or what his role will be, but signs point to him backing up Justin Fields.`\
+https://nytimes.com/athletic/5834761/2024/10/11/russell-wilson-injury-steelers-raiders/
+
 **Salman Rushdie Will Testify at Trial of Man Accused of Stabbing Him**\
 `Hadi Matar is charged with attempted murder and assault in connection with an attack in western New York that left the author blind in one eye.`\
 https://nytimes.com/2024/10/11/nyregion/salman-rushdie-stabbing-trial-testify.html
