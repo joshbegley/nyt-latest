@@ -1,3 +1,15 @@
+**Witnesses Describe Chaotic Scenes After Strikes on Central Beirut**\
+`Lebanese officials said Israeli airstrikes killed at least 22 people and wounded more than 100. The Israeli military did not confirm the strikes.`\
+https://nytimes.com/video/world/middleeast/100000009756372/witnesses-describe-chaotic-scenes-after-strikes-on-central-beirut.html
+
+**Why a Chargers trade deadline deal could be realistic — and a target: Mailbag**\
+`The Los Angeles Chargers will resume their season Sunday when they face the Denver Broncos at Empower Field at Mile High.`\
+https://nytimes.com/athletic/5835330/2024/10/11/chargers-trade-deadline-amari-cooper/
+
+**Raiders' QB situation comes full circle when Steelers, Justin Fields face Aidan O'Connell**\
+`The Raiders went with Gardner Minshew and coordinator Luke Getsy this offseason over Fields. Minshew has already been benched. `\
+https://nytimes.com/athletic/5835087/2024/10/11/raiders-quarterback-getsy-fields-oconnell/
+
 **An award for Japanese survivors reflects new global concerns.**\
 `By Steven Erlanger`\
 https://nytimes.com/live/2024/10/11/world/nobel-peace-prize-winner/an-award-for-japanese-survivors-reflects-new-global-concerns
