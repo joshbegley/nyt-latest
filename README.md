@@ -1,3 +1,7 @@
+**What we're seeing: Canucks lineup tweaks, Kiefer Sherwood's grit and the breakout problem**\
+`Vancouver's season-opening loss was just one game but it provided an unusual amount of grist for the mill.`\
+https://nytimes.com/athletic/5836190/2024/10/11/canucks-lineup-kiefer-sherwood/
+
 **How to Make Dinner Out of Anything in Your Pantry**\
 `Make those everyday staples anything but boring with these expert tips.`\
 https://nytimes.com/article/pantry-ingredient-dinner-ideas.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/movies/best-new-horror-movies-streaming.html
 **What to Do With That Apple-Picking Haul**\
 `Both the fruit and cider go into this supremely seasonal recipe for apple cider chicken with apples and parsnips.`\
 https://nytimes.com/2024/10/11/dining/what-to-do-with-that-apple-picking-haul.html
-
-**Scared of the Dentist? Here’s How to Cope.**\
-`Don’t skip appointments and risk your oral health. Try these strategies instead.`\
-https://nytimes.com/2024/10/11/well/mind/dental-fear-anxiety.html
 
