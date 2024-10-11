@@ -1,9 +1,13 @@
+**NFL misses potential muffed punt call in 49ers vs. Seahawks TNF game**\
+`The NFL's replay review room apparently didn't have access to the same enhanced video that was showing on the Prime Video broadcast.`\
+https://nytimes.com/athletic/5835795/2024/10/10/nfl-misses-potential-muffed-punt-call-in-49ers-vs-seahawks-tnf-game/
+
 **‘That’s an overpay’: Jeremy Swayman smashed the goalie market, and he’s not sorry about it**\
 `In his first appearance since he signed his contract, Swayman was "not satisfied" with his performance despite earning the win. `\
 https://nytimes.com/athletic/5835466/2024/10/10/bruins-jeremy-swayman-contract-goalie/
 
 **José Ramírez and Emmanuel Clase's resurgence has Guardians flying high**\
-`Ramírez slugged a fifth inning solo homer, while Clase `\
+`Ramírez slugged a fifth inning solo homer, while Clase got a five-out save to force a deciding fifth game. `\
 https://nytimes.com/athletic/5835737/2024/10/10/jose-ramirez-emmanuel-clase-lift-cleveland-guardians-alds/
 
 **Obama Rallies for Harris in Pittsburgh**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/10/theater/our-town-review-jim-parsons.html
 **Johansson-Eriksson Ek-Boldy line delivers in Wild's season-opening win: 3 takeaways**\
 `Matt Boldy had a hand in all three Minnesota goals in Dean Evason's return to Xcel Energy Center.`\
 https://nytimes.com/athletic/5835442/2024/10/10/wild-season-opener-blue-jackets-boldy/
-
-**Penguins' Evgeni Malkin records 800th assist**\
-`Malkin is one of only 34 players in NHL history with at least 800 assists and is only the third active player to hit that mark.`\
-https://nytimes.com/athletic/5835637/2024/10/10/evgeni-malkin-penguins-800-assists/
 
