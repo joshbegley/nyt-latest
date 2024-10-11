@@ -1,3 +1,7 @@
+**Patriots' RB Rhamondre Stevenson ruled out vs. Texans**\
+`The 1-2 Patriots will host the 4-1 Texans Sunday at Gillette Stadium.`\
+https://nytimes.com/athletic/5837735/2024/10/11/patriots-rhamondre-stevenson-ruled-out-injury/
+
 **Boeing Will Cut 17,000 Jobs in Bid to Slash Costs**\
 `A new chief executive is restructuring the aerospace manufacturer, which has been losing money for several years while struggling to improve production quality.`\
 https://nytimes.com/2024/10/11/business/boeing-job-cuts.html
