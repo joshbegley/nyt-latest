@@ -1,3 +1,11 @@
+**Stranded Mariner Seemingly Floated in the Gulf for Hours After the Hurricane**\
+`The Coast Guard rescued a fishing boat captain Thursday afternoon and said he survived winds as fierce as 90 miles per hour.`\
+https://nytimes.com/2024/10/10/weather/captain-float-sea-stranded.html
+
+**Joba Chamberlain wears Yankees, Royals World Series rings to ALDS, has ‘goose bumps’**\
+`Chamberlain said he decided on a whim to make the three-hour drive to Game 4 of the ALDS from his home in Lincoln, Neb.`\
+https://nytimes.com/athletic/5835378/2024/10/10/joba-chamberlain-yankees-royals-world-series-rings-alds/
+
 **Agony, and Relief, for Island Residents Who Were Hit Hard 2 Years Ago**\
 `Residents of Sanibel Island, Fla., feared the worst when they evacuated to safer ground before Hurricane Milton arrived.`\
 https://nytimes.com/2024/10/10/weather/sanibel-island-hurricane-milton.html
