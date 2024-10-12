@@ -1,3 +1,11 @@
+**Mayor Adams’s Rivals Reveal Fund-Raising Totals. Mr. Adams? Who Knows.**\
+`With Mayor Eric Adams’s future in flux as he faces federal bribery charges, his challengers prepare for the possibility of an election before the June primary.`\
+https://nytimes.com/2024/10/11/nyregion/mayor-adams-election-fund-raising.html
+
+**Blissful Stretch**\
+`Katie Hoody makes a New York Times Crossword debut with feeling.`\
+https://nytimes.com/2024/10/11/crosswords/daily-puzzle-2024-10-12.html
+
 **‘Suffs’ Won Tony Awards for Best Score and Book. Now It’s Closing.**\
 `The musical, created by Shaina Taub, announced that it will play its final performance on Jan. 5 and start a national tour next fall.`\
 https://nytimes.com/2024/10/11/theater/suffs-broadway-closing.html
