@@ -1,3 +1,11 @@
+**A Conversation With JD Vance**\
+`The Republican vice-presidential candidate rejects the idea that he’s changed, defends his rhetoric and still won’t say if Trump lost in 2020.`\
+https://nytimes.com/2024/10/12/magazine/jd-vance-interview.html
+
+**‘The Interview’: A Conversation With JD Vance**\
+`The Republican vice-presidential candidate rejects the idea that he’s changed, defends his rhetoric and still won’t say if Trump lost in 2020.`\
+https://nytimes.com/video/magazine/100000009758644/the-interview-a-conversation-with-jd-vance.html
+
 **Daring Trump, Harris’s Campaign Says It Will Release Her Medical Information**\
 `Vice President Kamala Harris’s campaign is trying to capitalize on a lack of health information shared by her rival. Candidates are often selective about what they choose to share.`\
 https://nytimes.com/2024/10/12/us/politics/harris-medical-records-trump.html
