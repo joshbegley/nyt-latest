@@ -1,3 +1,7 @@
+**A Mystery Repeats: Harris Up 4 in Pennsylvania, and Trump Up 6 in Arizona**\
+`Being uncertain about our earlier poll results but finding almost the same numbers the next time around.`\
+https://nytimes.com/2024/10/12/upshot/harris-trump-polls-election.html
+
 **For Trump and Harris, the Media Future Is Now**\
 `Who are these people, and why are they interviewing presidential candidates?`\
 https://nytimes.com/2024/10/12/opinion/harris-trump-interviews.html

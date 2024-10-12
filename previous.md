@@ -1,3 +1,7 @@
+**A Mystery Repeats: Harris Up 4 in Pennsylvania, and Trump Up 6 in Arizona**\
+`Being uncertain about our earlier poll results but finding almost the same numbers the next time around.`\
+https://nytimes.com/2024/10/12/upshot/harris-trump-polls-election.html
+
 **For Trump and Harris, the Media Future Is Now**\
 `Who are these people, and why are they interviewing presidential candidates?`\
 https://nytimes.com/2024/10/12/opinion/harris-trump-interviews.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/opinion/conservation-wilderness-biodiversity.html
 **Why I Changed My Birth Certificate 25 Years After I Transitioned**\
 `I’m taking steps to secure my future in an uncertain time for trans people in America.`\
 https://nytimes.com/2024/10/12/opinion/trans-birth-certificate-identity-america.html
-
-**Fernandes keen to rediscover goalscoring form for Manchester United**\
-`Manchester United captain Bruno Fernandes says he takes responsibility for his recent lack of goals and is determined to get back to his best form as quickly as possible.`\
-https://nytimes.com/athletic/5838291/2024/10/12/bruno-fernandes-manchester-united-goals/
 
