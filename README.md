@@ -1,3 +1,7 @@
+**England will be 'more conventional' against Finland after Greece defeat - Carsley**\
+`Lee Carsley has said that England will be &#8220;a little bit more conventional&#8221; against Finland on Sunday night than they were against Greece.`\
+https://nytimes.com/athletic/5838560/2024/10/12/lee-carsley-england-finland-nations-league/
+
 **How will the Bills respond to a desperate Jets team? Who could step up at WR?**\
 `Before the Bills trade for a wide receiver, perhaps they should see what they have in house, including from two talented speedsters.`\
 https://nytimes.com/athletic/5838460/2024/10/12/bills-jets-robert-saleh-khalil-shakir/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5835020/2024/10/12/jordan-burch-oregon-injury/
 **Allan Blye, 87, Dies; ‘Smothers Brothers’ Writer and ‘Super Dave’ Creator**\
 `In his wide-ranging career, he also helped write Elvis Presley’s comeback special and appeared on an early version of “Mister Rogers’ Neighborhood.”`\
 https://nytimes.com/2024/10/12/arts/television/allan-blye-dead.html
-
-**Salah returns to Liverpool early from Egypt international duty**\
-`Mohamed Salah will return to Liverpool after being released early from international duty with Egypt.`\
-https://nytimes.com/athletic/5838425/2024/10/12/mohamed-salah-liverpool-return-egypt/
 
