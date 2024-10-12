@@ -1,3 +1,7 @@
+**Rosenthal: Dave Roberts lands on one good outcome after another as Dodgers advance to NLCS**\
+`The Dodgers used 17 pitchers to cover 24 scoreless innings in closing out the series.`\
+https://nytimes.com/athletic/5838313/2024/10/12/dave-roberts-dodgers-nlcs-mlb-playoffs/
+
 **A Mystery Repeats: Harris Up 4 in Pennsylvania, and Trump Up 6 in Arizona**\
 `Being uncertain about our earlier poll results but finding almost the same numbers the next time around.`\
 https://nytimes.com/2024/10/12/upshot/harris-trump-polls-election.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/opinion/trump-second-term.html
 **For the Sake of the Planet, Nations Must Protect What Is Still Wild**\
 `Much of what’s still undeveloped offers some the best defenses against climate change.`\
 https://nytimes.com/2024/10/12/opinion/conservation-wilderness-biodiversity.html
-
-**Why I Changed My Birth Certificate 25 Years After I Transitioned**\
-`I’m taking steps to secure my future in an uncertain time for trans people in America.`\
-https://nytimes.com/2024/10/12/opinion/trans-birth-certificate-identity-america.html
 

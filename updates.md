@@ -1,3 +1,7 @@
+**Rosenthal: Dave Roberts lands on one good outcome after another as Dodgers advance to NLCS**\
+`The Dodgers used 17 pitchers to cover 24 scoreless innings in closing out the series.`\
+https://nytimes.com/athletic/5838313/2024/10/12/dave-roberts-dodgers-nlcs-mlb-playoffs/
+
 **A Mystery Repeats: Harris Up 4 in Pennsylvania, and Trump Up 6 in Arizona**\
 `Being uncertain about our earlier poll results but finding almost the same numbers the next time around.`\
 https://nytimes.com/2024/10/12/upshot/harris-trump-polls-election.html
