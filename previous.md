@@ -1,3 +1,7 @@
+**Former Liverpool defender Matip retires from football**\
+`Former Liverpool defender Joel Matip has retired from football at the age of 33.`\
+https://nytimes.com/athletic/5837230/2024/10/12/joel-matip-liverpool-retires/
+
 **A Conversation With JD Vance**\
 `The Republican vice-presidential candidate rejects the idea that he’s changed, defends his rhetoric and still won’t say if Trump lost in 2020.`\
 https://nytimes.com/2024/10/12/magazine/jd-vance-interview.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/us/politics/trump-gop-donors.html
 **Hurricanes Amplify Insurance Crisis in Riskiest Areas**\
 `After Helene and Milton, some small Florida companies risk bankruptcy. Larger ones will be in the hot seat with lawmakers and consumer groups.`\
 https://nytimes.com/2024/10/12/business/insurance-hurricane-milton-helene.html
-
-**Boris Johnson Makes a Case for Trump’s Return, and Perhaps, His Own**\
-`In his memoir, “Unleashed,” the former prime minister is “optimistic” about the possibility that Donald J. Trump could regain the White House.`\
-https://nytimes.com/2024/10/12/books/boris-johnson-unleashed-memoir.html
 

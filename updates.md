@@ -1,3 +1,7 @@
+**Former Liverpool defender Matip retires from football**\
+`Former Liverpool defender Joel Matip has retired from football at the age of 33.`\
+https://nytimes.com/athletic/5837230/2024/10/12/joel-matip-liverpool-retires/
+
 **A Conversation With JD Vance**\
 `The Republican vice-presidential candidate rejects the idea that he’s changed, defends his rhetoric and still won’t say if Trump lost in 2020.`\
 https://nytimes.com/2024/10/12/magazine/jd-vance-interview.html
