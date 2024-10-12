@@ -1,3 +1,11 @@
+**Ranking the 4 remaining possible World Series matchups, from least to most interesting**\
+`Now that we're down to MLB's final four, every matchup is fascinating in its own way.`\
+https://nytimes.com/athletic/5838628/2024/10/12/world-series-matchups-mlb-rankings-lcs/
+
+**Guardians grand slam their way to a Game 5 victory over Tigers, head to ALCS: Takeaways**\
+`This Game 5 had everything: Major momentum swings, a hit batter with the bases loaded and a go-ahead grand slam. `\
+https://nytimes.com/athletic/5838542/2024/10/12/guardians-tigers-mlb-game5-takeaways/
+
 **Sharks' Macklin Celebrini week to week with lower-body injury**\
 `The No. 1 pick in the 2024 NHL Draft scored a goal and an assist in his debut Thursday. `\
 https://nytimes.com/athletic/5838579/2024/10/12/sharks-macklin-celebrini-injury/
