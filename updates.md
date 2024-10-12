@@ -1,3 +1,7 @@
+**Guardians' Lane Thomas hits grand slam off Tarik Skubal in Game 5**\
+`Thomas saw just one pitch from Skubal — a 97 mph sinker — and blasted it out to left-center field.`\
+https://nytimes.com/athletic/5838595/2024/10/12/guardians-lane-thomas-grand-slam-tarik-skubal-game-5-nlds/
+
 **Alex Salmond, Scotland’s Former First Minister, Dies at 69**\
 `Mr. Salmond led the Scottish National Party twice, guiding it from a fringe political group into a powerful electoral force in Britain.`\
 https://nytimes.com/2024/10/12/world/europe/alex-salmond-scotland-dies.html

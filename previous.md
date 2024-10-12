@@ -1,3 +1,7 @@
+**Guardians' Lane Thomas hits grand slam off Tarik Skubal in Game 5**\
+`Thomas saw just one pitch from Skubal — a 97 mph sinker — and blasted it out to left-center field.`\
+https://nytimes.com/athletic/5838595/2024/10/12/guardians-lane-thomas-grand-slam-tarik-skubal-game-5-nlds/
+
 **Map: 6.2-Magnitude Earthquake Strikes Near Costa Rica**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/10/12/world/americas/quake-tracker-costa-rica.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/arts/david-garrard-lowe-dead.html
 **National League Championship Series predictions: Our experts make their picks**\
 `Dodgers. Mets. In a best-of-seven series, anything can happen. Who will emerge from the postseason's penultimate round? `\
 https://nytimes.com/athletic/5838097/2024/10/12/mlb-postseason-nlcs-predictions-dodgers-mets/
-
-**JD Vance’s Election Denialism Is Deepening**\
-`Fool me once? Shame on you. Fool me five times?`\
-https://nytimes.com/2024/10/12/opinion/jd-vance-election-denial.html
 
