@@ -1,3 +1,15 @@
+**Iowa coach Kirk Ferentz earns 200th career win as Big Ten coach**\
+`The earliest Ferentz could tie Hayes’ mark for most wins by a Big Ten head coach would be Nov. 23 at Maryland.`\
+https://nytimes.com/athletic/5838576/2024/10/12/iowa-kirk-ferentz-big-ten-wins-record/
+
+**Should we re-evaluate Wisconsin's ceiling? Takeaways from Badgers' rout at Rutgers**\
+`It was near perfection for the Badgers, who rolled to a 42-7 win at Rutgers on Saturday afternoon.`\
+https://nytimes.com/athletic/5838556/2024/10/12/wisconsin-rutgers-tawee-walker-big-ten/
+
+**Guardians' Lane Thomas hits grand slam off Tarik Skubal in Game 5**\
+`Thomas saw just one pitch from Skubal — a 97 mph sinker — and blasted it out to left-center field.`\
+https://nytimes.com/athletic/5838595/2024/10/12/guardians-lane-thomas-grand-slam-tarik-skubal-game-5-alds/
+
 **Guardians' Lane Thomas hits grand slam off Tarik Skubal in Game 5**\
 `Thomas saw just one pitch from Skubal — a 97 mph sinker — and blasted it out to left-center field.`\
 https://nytimes.com/athletic/5838595/2024/10/12/guardians-lane-thomas-grand-slam-tarik-skubal-game-5-nlds/

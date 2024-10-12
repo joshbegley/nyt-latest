@@ -1,6 +1,14 @@
+**Iowa coach Kirk Ferentz earns 200th career win as Big Ten coach**\
+`The earliest Ferentz could tie Hayes’ mark for most wins by a Big Ten head coach would be Nov. 23 at Maryland.`\
+https://nytimes.com/athletic/5838576/2024/10/12/iowa-kirk-ferentz-big-ten-wins-record/
+
+**Should we re-evaluate Wisconsin's ceiling? Takeaways from Badgers' rout at Rutgers**\
+`It was near perfection for the Badgers, who rolled to a 42-7 win at Rutgers on Saturday afternoon.`\
+https://nytimes.com/athletic/5838556/2024/10/12/wisconsin-rutgers-tawee-walker-big-ten/
+
 **Guardians' Lane Thomas hits grand slam off Tarik Skubal in Game 5**\
 `Thomas saw just one pitch from Skubal — a 97 mph sinker — and blasted it out to left-center field.`\
-https://nytimes.com/athletic/5838595/2024/10/12/guardians-lane-thomas-grand-slam-tarik-skubal-game-5-nlds/
+https://nytimes.com/athletic/5838595/2024/10/12/guardians-lane-thomas-grand-slam-tarik-skubal-game-5-alds/
 
 **Map: 6.2-Magnitude Earthquake Strikes Near Costa Rica**\
 `View the location of the quake’s epicenter and shake area.`\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5838067/2024/10/12/padres-jackson-merrill-extension
 **Alex Salmond, Scotland’s Former First Minister, Dies at 69**\
 `Mr. Salmond led the Scottish National Party twice, guiding it from a fringe political group into a powerful electoral force in Britain.`\
 https://nytimes.com/2024/10/12/world/europe/alex-salmond-scotland-dies.html
-
-**David Garrard Lowe, Defender of Historic Architecture, Dies at 91**\
-`For over 50 years, as a historian, lecturer and author, he fought to protect Beaux-Arts buildings in New York and Chicago from falling to the developer’s wrecking ball.`\
-https://nytimes.com/2024/10/12/arts/david-garrard-lowe-dead.html
-
-**National League Championship Series predictions: Our experts make their picks**\
-`Dodgers. Mets. In a best-of-seven series, anything can happen. Who will emerge from the postseason's penultimate round? `\
-https://nytimes.com/athletic/5838097/2024/10/12/mlb-postseason-nlcs-predictions-dodgers-mets/
 
