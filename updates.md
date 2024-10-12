@@ -1,3 +1,7 @@
+**‘Suffs’ Won Tony Awards for Best Score and Book. Now It’s Closing.**\
+`The musical, created by Shaina Taub, announced that it will play its final performance on Jan. 5 and start a national tour next fall.`\
+https://nytimes.com/2024/10/11/theater/suffs-broadway-closing.html
+
 **Milton Leaves Some Florida Animals in Limbo, Too**\
 `Florida’s animal shelters are struggling after the storm. Animal organizations are helping fly some pets to faraway shelters.`\
 https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-pets-animals.html
