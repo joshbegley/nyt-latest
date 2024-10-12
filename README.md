@@ -1,3 +1,7 @@
+**How will the Bills respond to a desperate Jets team? Who could step up at WR?**\
+`Before the Bills trade for a wide receiver, perhaps they should see what they have in house, including from two talented speedsters.`\
+https://nytimes.com/athletic/5838460/2024/10/12/bills-jets-robert-saleh-khalil-shakir/
+
 **Jackson Merrill and Padres talked extension in spring. Will talks be revived? 3 offseason questions**\
 `The price tag has gone up for Jackson Merrill since the Padres discussed an extension before he played his first big league game`\
 https://nytimes.com/athletic/5838067/2024/10/12/padres-jackson-merrill-extension-offseason/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/arts/television/allan-blye-dead.html
 **Salah returns to Liverpool early from Egypt international duty**\
 `Mohamed Salah will return to Liverpool after being released early from international duty with Egypt.`\
 https://nytimes.com/athletic/5838425/2024/10/12/mohamed-salah-liverpool-return-egypt/
-
-**Goodell sees 16 international NFL games if league expands season**\
-`"We want to get there quickly," Goodell said about increasing to eight international games.`\
-https://nytimes.com/athletic/5836968/2024/10/12/nfl-international-games-goodell/
 
