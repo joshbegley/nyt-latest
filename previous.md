@@ -1,4 +1,4 @@
-**Notre Dame takeaways: How good can Riley Leonard be? Win vs. Stanford a confidence boost**\
+**Notre Dame takeaways: Did Riley Leonard show Irish can win with offense?**\
 `Leonard delivered his best performance in a Notre Dame uniform in the Irish's 49-7 win against Stanford.`\
 https://nytimes.com/athletic/5838870/2024/10/12/notre-dame-stanford-score-riley-leonard/
 
