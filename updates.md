@@ -1,3 +1,7 @@
+**Alex Salmond, Scotland’s Former First Minister, Dies at 69**\
+`Mr. Salmond had led the Scottish National Party twice, guiding it from a fringe political group into a powerful electoral force in Britain.`\
+https://nytimes.com/2024/10/12/world/europe/alex-salmond-scotland-dies.html
+
 **David Garrard Lowe, Defender of Historic Architecture, Dies at 91**\
 `For over 50 years, as a historian, lecturer and author, he fought to protect Beaux-Arts buildings in New York and Chicago from falling to the developer’s wrecking ball.`\
 https://nytimes.com/2024/10/12/arts/david-garrard-lowe-dead.html
