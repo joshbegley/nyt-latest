@@ -1,3 +1,7 @@
+**Sharks' Macklin Celebrini week to week with lower-body injury**\
+`The No. 1 pick in the 2024 NHL Draft scored a goal and an assist in his debut Thursday. `\
+https://nytimes.com/athletic/5838579/2024/10/12/sharks-macklin-celebrini-injury/
+
 **Biden Declares Disaster From Milton Ahead of Florida Visit**\
 `The president will visit communities ravaged by Hurricane Milton on Sunday. The disaster declaration will enable funds for the state to be deployed.`\
 https://nytimes.com/2024/10/12/us/politics/biden-milton-florida-disaster.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/10/12/world/americas/quake-tracker-costa-ri
 **Former U.S. Soldier Is Sentenced to 14 Years for Planning to Help ISIS**\
 `Pvt. Cole Bridges pleaded guilty in 2023 to charges of attempting to provide material support to a foreign terrorist organization and attempting to murder U.S. military service members.`\
 https://nytimes.com/2024/10/12/us/cole-bridges-army-isis-sentencing.html
-
-**England will be 'more conventional' against Finland after Greece defeat - Carsley**\
-`Lee Carsley has said that England will be &#8220;a little bit more conventional&#8221; against Finland on Sunday night than they were against Greece.`\
-https://nytimes.com/athletic/5838560/2024/10/12/lee-carsley-england-finland-nations-league/
 

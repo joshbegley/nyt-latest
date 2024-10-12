@@ -1,3 +1,7 @@
+**Sharks' Macklin Celebrini week to week with lower-body injury**\
+`The No. 1 pick in the 2024 NHL Draft scored a goal and an assist in his debut Thursday. `\
+https://nytimes.com/athletic/5838579/2024/10/12/sharks-macklin-celebrini-injury/
+
 **Biden Declares Disaster From Milton Ahead of Florida Visit**\
 `The president will visit communities ravaged by Hurricane Milton on Sunday. The disaster declaration will enable funds for the state to be deployed.`\
 https://nytimes.com/2024/10/12/us/politics/biden-milton-florida-disaster.html
