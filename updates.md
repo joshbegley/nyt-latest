@@ -1,3 +1,11 @@
+**California Rejects Bid for More Frequent SpaceX Launches**\
+`A commission denied a request to increase the number of rocket launches on the state’s central coast, citing environmental concerns.`\
+https://nytimes.com/2024/10/12/us/spacex-launch-california.html
+
+**Tigers' season ends with piercing Game 5 loss: 'It's one pitch. I'd love to have it back'**\
+`Detroit went on an incredible run to finish out the season, but Tarik Skubal surrendered a grand slam: "It'll suck, and it should suck."`\
+https://nytimes.com/athletic/5838901/2024/10/12/detroit-tigers-alds-game-5-loss/
+
 **On the Trail, Vance Is Dogged by Questions About Trump’s Loss in 2020**\
 `Speaking at a factory for military vehicles in Johnstown, Pa., Senator JD Vance of Ohio again refused to acknowledge former President Donald J. Trump’s defeat in the 2020 election.`\
 https://nytimes.com/2024/10/12/us/politics/jd-vance-trump-2020.html
