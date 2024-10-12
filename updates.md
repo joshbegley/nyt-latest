@@ -1,3 +1,15 @@
+**Russini’s what I’m hearing: Saleh’s foiled plan to save Jets offense, Steelers’ Justin Fields feelings**\
+`Plus, two rookie QBs make their starting debuts, those aging Bengals, Mile High Ferris Bueller, and more. `\
+https://nytimes.com/athletic/5838071/2024/10/12/nfl-insider-jets-offensive-coordinator-justin-fields-russell-wilson-steelers-starter/
+
+**JD Vance: Not Having Kids Due to Climate Change Is ‘Crazy’**\
+`Senator JD Vance, the Republican vice-president nominee, said that considering climate change when deciding to have kids was a “bizarre way to think about the future.”`\
+https://nytimes.com/video/podcasts/100000009756770/jd-vance-not-having-kids-due-to-climate-change-is-crazy.html
+
+**Election Live Updates: Trump Heads to Coachella as Polls Find Tight Race in Two Battleground States**\
+`Vice President Kamala Harris was maintaining a slight lead in Pennsylvania, while Trump was still narrowly ahead in Arizona, according to a new pair of New York Times/Philadelphia Inquirer/Siena College polls released Saturday.`\
+https://nytimes.com/live/2024/10/12/us/trump-harris-election
+
 **Secret Documents Show Hamas Tried to Persuade Iran to Join Its Oct. 7 Attack**\
 `The Times reviewed the minutes of 10 meetings among Hamas’s top leaders. The records show the militant group avoided several escalations since 2021 to falsely imply it had been deterred — while seeking Iranian support for a major attack.`\
 https://nytimes.com/2024/10/12/world/middleeast/hamas-israel-war.html
