@@ -1,3 +1,7 @@
+**Salah returns to Liverpool early from Egypt international duty**\
+`Mohamed Salah will return to Liverpool after being released early from international duty with Egypt.`\
+https://nytimes.com/athletic/5838425/2024/10/12/mohamed-salah-liverpool-return-egypt/
+
 **Goodell sees 16 international NFL games if league expands season**\
 `"We want to get there quickly," Goodell said about increasing to eight international games.`\
 https://nytimes.com/athletic/5836968/2024/10/12/nfl-international-games-goodell/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/world/middleeast/hamas-israel-war.html
 **Political Uncertainty and Budget Reality Put France in a Financial Vise**\
 `A rating agency’s warning about the country’s ballooning debt comes as the prime minister tries to push an austerity budget through a divided Parliament.`\
 https://nytimes.com/2024/10/12/world/europe/france-budget-austerity-fitch-ratings.html
-
-**The Cutting-Edge Hearing Aids That You May Already Own**\
-`Apple is preparing to turn its AirPods Pro 2 into easy-to-use aids for people with mild to moderate hearing loss.`\
-https://nytimes.com/2024/10/12/health/apple-airpods-hearing-aids.html
 
