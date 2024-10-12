@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
 
+**Lowetide: The Oilers, Raphael Lavoie and signs of life in Bakersfield**\
+`The transactions involving the former top prospect don't reflect well on new Oilers GM Stan Bowman or his management team.
+`\
+https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
+
 **Andrew Painter pitches for first time since Tommy John surgery**\
 `The Phillies' first-round pick in 2021 allowed two earned runs over two innings in his first Arizona Fall League appearance.`\
 https://nytimes.com/athletic/5838956/2024/10/12/phillies-andrew-painter-return-arizona-fall-league/
