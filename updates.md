@@ -1,3 +1,7 @@
+**Salah returns to Liverpool early from Egypt international duty**\
+`Mohamed Salah will return to Liverpool after being released early from international duty with Egypt.`\
+https://nytimes.com/athletic/5838425/2024/10/12/mohamed-salah-liverpool-return-egypt/
+
 **Goodell sees 16 international NFL games if league expands season**\
 `"We want to get there quickly," Goodell said about increasing to eight international games.`\
 https://nytimes.com/athletic/5836968/2024/10/12/nfl-international-games-goodell/
