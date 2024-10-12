@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-ba
 `\
 https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
 
+**Lowetide: The Oilers, Raphael Lavoie and signs of life in Bakersfield**\
+`The transactions involving the former top prospect don't reflect well on new Oilers GM Stan Bowman or his management team.
+`\
+https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
+
 **Why CHSN, Comcast have yet to reach a carriage agreement**\
 `The lack of a deal with Comcast sparked disappointment from fans online Friday when the Blackhawks’ game wasn't available on cable TV.`\
 https://nytimes.com/athletic/5838839/2024/10/12/comcast-chsn-tv-network-agreement/
