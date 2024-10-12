@@ -1,3 +1,7 @@
+**Why CHSN, Comcast have yet to reach a carriage agreement**\
+`CHSN and Comcast have yet to reach a deal to televise the Blackhawks, Bulls and White Sox.`\
+https://nytimes.com/athletic/5838839/2024/10/12/comcast-chsn-tv-network-agreement/
+
 **Penn State strengthens Playoff chances, Trojans hopes all but dashed in overtime thriller**\
 `Led by tight end Tyler Warren and a defense that allowed only one TD in the second half, Penn State improved to 6-0 with a 33-30 win at USC.`\
 https://nytimes.com/athletic/5838721/2024/10/12/penn-state-usc-overtime-tyler-warren/
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-ba
 **California Rejects Bid for More Frequent SpaceX Launches**\
 `A commission denied a request to increase the number of rocket launches on the state’s central coast, citing environmental concerns.`\
 https://nytimes.com/2024/10/12/us/spacex-launch-california.html
-
-**Tigers' season ends with piercing Game 5 loss: 'It's one pitch. I'd love to have it back'**\
-`Detroit went on an incredible run to finish the season, but Tarik Skubal surrendered a grand slam: "It'll suck, and it should suck."`\
-https://nytimes.com/athletic/5838901/2024/10/12/detroit-tigers-alds-game-5-loss/
 
