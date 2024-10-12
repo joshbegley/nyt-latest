@@ -1,3 +1,11 @@
+**Penn State strengthens Playoff chances, Trojans hopes all but dashed in overtime thriller**\
+`Led by tight end Tyler Warren and a defense that allowed only one TD in the second half, Penn State improved to 6-0 with a 33-30 win at USC.`\
+https://nytimes.com/athletic/5838721/2024/10/12/penn-state-usc-overtime-tyler-warren/
+
+**NFL Draft: Penn State TE Tyler Warren has record-setting day, keeps rising in 2025 class**\
+`Tyler Warren continues to rise up NFL Draft boards and might be pushing for a spot in the top 50 picks.`\
+https://nytimes.com/athletic/5838909/2024/10/12/tyler-warren-nfl-draft-2025-woody-marks/
+
 **Andrew Painter pitches for first time since Tommy John surgery**\
 `The Phillies' first-round pick in 2021 allowed two earned runs over two innings in his first Arizona Fall League appearance.`\
 https://nytimes.com/athletic/5838956/2024/10/12/phillies-andrew-painter-return-arizona-fall-league/
@@ -26,12 +34,4 @@ https://nytimes.com/2024/10/12/us/spacex-launch-california.html
 **Tigers' season ends with piercing Game 5 loss: 'It's one pitch. I'd love to have it back'**\
 `Detroit went on an incredible run to finish the season, but Tarik Skubal surrendered a grand slam: "It'll suck, and it should suck."`\
 https://nytimes.com/athletic/5838901/2024/10/12/detroit-tigers-alds-game-5-loss/
-
-**On the Trail, Vance Is Dogged by Questions About Trump’s Loss in 2020**\
-`Speaking at a factory for military vehicles in Johnstown, Pa., Senator JD Vance of Ohio again refused to acknowledge former President Donald J. Trump’s defeat in the 2020 election.`\
-https://nytimes.com/2024/10/12/us/politics/jd-vance-trump-2020.html
-
-**Yankees vs. Guardians ALCS preview: Predictions, pitching matchups and more**\
-`The Yankees and Guardians are set to meet in an ALCS that's a rematch of the 2022 ALDS won by New York. Our writers preview the series. `\
-https://nytimes.com/athletic/5838737/2024/10/12/yankees-guardians-2024-alcs-preview-predictions/
 
