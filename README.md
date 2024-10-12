@@ -1,3 +1,7 @@
+**Dodgers vs. Mets NLCS preview: Predictions, pitching matchups and more**\
+`The Dodgers have the most talented player in the game. The Mets are riding an incredible wave of momentum. Our writers preview the NLCS. `\
+https://nytimes.com/athletic/5838100/2024/10/12/dodgers-mets-2024-nlcs-preview-predictions/
+
 **Canucks stars disappoint, Tyler Myers injured in loss to Flyers: 3 takeaways**\
 `Friday night, the Canucks’ best players didn’t move the needle for most of the game, allowing the Flyers to keep it close and win 3-2.
 `\
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5825102/2024/10/12/andy-irving-west-ham-scotland/
 **The death of Mark Townsend at Hillsborough - and the questions that remain**\
 `Serious concerns been raised over the time taken to provide medical assistance to Townsend, who died two weeks ago`\
 https://nytimes.com/athletic/5834184/2024/10/12/hillsborough-fan-death-mark-townsend-questions/
-
-**Why loading up the England team with star players is an approach that most managers avoid**\
-`The clamour to cram big names into the team will always be there, but a more cautious approach might remain the best route to success`\
-https://nytimes.com/athletic/5837176/2024/10/12/england-team-superstars-versus-pragmatism/
 
