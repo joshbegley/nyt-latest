@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5838870/2024/10/12/notre-dame-stanford-score-riley-leonard/
 
 **Why CHSN, Comcast have yet to reach a carriage agreement**\
-`CHSN and Comcast have yet to reach a deal to televise the Blackhawks, Bulls and White Sox.`\
+`The lack of a deal with Comcast sparked disappointment from fans online Friday when the Blackhawks’ game wasn't available on cable TV.`\
 https://nytimes.com/athletic/5838839/2024/10/12/comcast-chsn-tv-network-agreement/
 
 **Penn State strengthens Playoff chances, USC's hopes all but dashed in overtime thriller**\
