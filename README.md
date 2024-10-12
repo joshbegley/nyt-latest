@@ -1,3 +1,7 @@
+**Ranking the 4 remaining possible World Series matchups, from least to most interesting**\
+`Now that we're down to MLB's final four, every matchup is fascinating in its own way.`\
+https://nytimes.com/athletic/5838628/2024/10/12/world-series-matchups-mlb-rankings-lcs/
+
 **Sharks' Macklin Celebrini week to week with lower-body injury**\
 `The No. 1 pick in the 2024 NHL Draft scored a goal and an assist in his debut Thursday. `\
 https://nytimes.com/athletic/5838579/2024/10/12/sharks-macklin-celebrini-injury/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/5838579/2024/10/12/sharks-macklin-celebrini-injury/
 `The president will visit communities ravaged by Hurricane Milton on Sunday. The disaster declaration will enable funds for the state to be deployed.`\
 https://nytimes.com/2024/10/12/us/politics/biden-milton-florida-disaster.html
 
-**Guardians Grand Slam their way to a Game 5 victory over Tigers: Takeaways**\
-`This Game 5 had everything: Major momentum swings, a hit batter with the bases loaded and a go-ahead Grand Slam. `\
+**Guardians grand slam their way to a Game 5 victory over Tigers: Takeaways**\
+`This Game 5 had everything: Major momentum swings, a hit batter with the bases loaded and a go-ahead grand slam. `\
 https://nytimes.com/athletic/5838542/2024/10/12/guardians-tigers-mlb-game5-takeaways/
 
 **Alabama avoids another upset but raises more questions**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838595/2024/10/12/guardians-lane-thomas-grand-slam
 **Map: 6.2-Magnitude Earthquake Strikes Near Costa Rica**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/10/12/world/americas/quake-tracker-costa-rica.html
-
-**Former U.S. Soldier Is Sentenced to 14 Years for Planning to Help ISIS**\
-`Pvt. Cole Bridges pleaded guilty in 2023 to charges of attempting to provide material support to a foreign terrorist organization and attempting to murder U.S. military service members.`\
-https://nytimes.com/2024/10/12/us/cole-bridges-army-isis-sentencing.html
 
