@@ -1,3 +1,7 @@
+**Notre Dame takeaways: How good can Riley Leonard be? Win vs. Stanford a confidence boost**\
+`Leonard delivered his best performance in a Notre Dame uniform in the Irish's 49-7 win against Stanford.`\
+https://nytimes.com/athletic/5838870/2024/10/12/notre-dame-stanford-score-riley-leonard/
+
 **Why CHSN, Comcast have yet to reach a carriage agreement**\
 `CHSN and Comcast have yet to reach a deal to televise the Blackhawks, Bulls and White Sox.`\
 https://nytimes.com/athletic/5838839/2024/10/12/comcast-chsn-tv-network-agreement/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5838839/2024/10/12/comcast-chsn-tv-network-agreemen
 https://nytimes.com/athletic/5838721/2024/10/12/penn-state-usc-overtime-tyler-warren/
 
 **NFL Draft: Penn State TE Tyler Warren has record-setting day, keeps rising in 2025 class**\
-`Tyler Warren continues to rise up NFL Draft boards and might be pushing for a spot in the top 50 picks.`\
+`Warren continues to rise up NFL Draft boards and might be pushing for a spot in the top 50 picks.`\
 https://nytimes.com/athletic/5838909/2024/10/12/tyler-warren-nfl-draft-2025-woody-marks/
 
 **Andrew Painter pitches for first time since Tommy John surgery**\
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5836983/2024/10/12/jaguars-bears-odds-expert-picks-
 `The transactions involving the former top prospect don't reflect well on new Oilers GM Stan Bowman or his management team.
 `\
 https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
-
-**California Rejects Bid for More Frequent SpaceX Launches**\
-`A commission denied a request to increase the number of rocket launches on the state’s central coast, citing environmental concerns.`\
-https://nytimes.com/2024/10/12/us/spacex-launch-california.html
 
