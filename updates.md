@@ -1,3 +1,7 @@
+**National League Championship Series predictions: Our experts make their picks**\
+`Dodgers. Mets. In a best-of-seven series, anything can happen. Who will emerge from the postseason's penultimate round? `\
+https://nytimes.com/athletic/5838097/2024/10/12/mlb-postseason-nlcs-predictions-dodgers-mets/
+
 **JD Vance’s Election Denialism Is Deepening**\
 `Fool me once? Shame on you. Fool me five times?`\
 https://nytimes.com/2024/10/12/opinion/jd-vance-election-denial.html
