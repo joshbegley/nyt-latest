@@ -1,3 +1,7 @@
+**Guardians Grand Slam their way to a Game 5 victory over Tigers: Takeaways**\
+`This Game 5 had everything: Major momentum swings, a hit batter with the bases loaded and a go-ahead Grand Slam. `\
+https://nytimes.com/athletic/5838542/2024/10/12/guardians-tigers-mlb-game5-takeaways/
+
 **Alabama avoids another upset but raises more questions**\
 `No. 7 Alabama and first-year coach Kalen DeBoer avoided a second loss in as many weeks, hanging on against unranked South Carolina. `\
 https://nytimes.com/athletic/5838584/2024/10/12/alabama-south-carolina-score-results-takeaways/

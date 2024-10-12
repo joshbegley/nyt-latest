@@ -1,3 +1,7 @@
+**Guardians Grand Slam their way to a Game 5 victory over Tigers: Takeaways**\
+`This Game 5 had everything: Major momentum swings, a hit batter with the bases loaded and a go-ahead Grand Slam. `\
+https://nytimes.com/athletic/5838542/2024/10/12/guardians-tigers-mlb-game5-takeaways/
+
 **Alabama avoids another upset but raises more questions**\
 `No. 7 Alabama and first-year coach Kalen DeBoer avoided a second loss in as many weeks, hanging on against unranked South Carolina. `\
 https://nytimes.com/athletic/5838584/2024/10/12/alabama-south-carolina-score-results-takeaways/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838560/2024/10/12/lee-carsley-england-finland-nati
 **How will the Bills respond to a desperate Jets team? Who could step up at WR?**\
 `Before the Bills trade for a wide receiver, perhaps they should see what they have in house, including from two talented speedsters.`\
 https://nytimes.com/athletic/5838460/2024/10/12/bills-jets-robert-saleh-khalil-shakir/
-
-**Jackson Merrill and Padres talked extension in spring. Will talks be revived? 3 offseason questions**\
-`The price tag has gone up for Jackson Merrill since the Padres discussed an extension before he played his first big league game`\
-https://nytimes.com/athletic/5838067/2024/10/12/padres-jackson-merrill-extension-offseason/
 
