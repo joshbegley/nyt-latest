@@ -1,3 +1,7 @@
+**Yankees vs. Guardians ALCS preview: Predictions, pitching matchups and more**\
+`The Yankees and Guardians are set to meet in an ALCS that's a rematch of the 2022 ALDS won by New York. Our writers preview the series. `\
+https://nytimes.com/athletic/5838737/2024/10/12/yankees-guardians-2024-alcs-preview-predictions/
+
 **Manual Dexterity**\
 `Gary Larson and Doug Peterson’s puzzle already comes with instructions, but just in case. …`\
 https://nytimes.com/2024/10/12/crosswords/daily-puzzle-2024-10-13.html

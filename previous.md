@@ -1,3 +1,7 @@
+**Yankees vs. Guardians ALCS preview: Predictions, pitching matchups and more**\
+`The Yankees and Guardians are set to meet in an ALCS that's a rematch of the 2022 ALDS won by New York. Our writers preview the series. `\
+https://nytimes.com/athletic/5838737/2024/10/12/yankees-guardians-2024-alcs-preview-predictions/
+
 **Manual Dexterity**\
 `Gary Larson and Doug Peterson’s puzzle already comes with instructions, but just in case. …`\
 https://nytimes.com/2024/10/12/crosswords/daily-puzzle-2024-10-13.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838579/2024/10/12/sharks-macklin-celebrini-injury/
 **Biden Declares Disaster From Milton Ahead of Florida Visit**\
 `The president will visit communities ravaged by Hurricane Milton on Sunday. The disaster declaration will enable funds for the state to be deployed.`\
 https://nytimes.com/2024/10/12/us/politics/biden-milton-florida-disaster.html
-
-**Guardians grand slam their way to a Game 5 victory over Tigers, head to ALCS: Takeaways**\
-`This Game 5 had everything: Major momentum swings, a hit batter with the bases loaded and a go-ahead grand slam. `\
-https://nytimes.com/athletic/5838542/2024/10/12/guardians-tigers-mlb-game5-takeaways/
 
