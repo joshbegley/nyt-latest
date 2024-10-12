@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-ba
 `\
 https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
 
+**Lowetide: The Oilers, Raphael Lavoie and signs of life in Bakersfield**\
+`The transactions involving the former top prospect don't reflect well on new Oilers GM Stan Bowman or his management team.
+`\
+https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
+
 **Tigers' season ends with piercing Game 5 loss: 'It's one pitch. I'd love to have it back'**\
 `Detroit went on an incredible run to finish the season, but Tarik Skubal surrendered a grand slam: "It'll suck, and it should suck."`\
 https://nytimes.com/athletic/5838901/2024/10/12/detroit-tigers-alds-game-5-loss/
