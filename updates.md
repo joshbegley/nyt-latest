@@ -1,3 +1,11 @@
+**JD Vance’s Election Denialism Is Deepening**\
+`Fool me once? Shame on you. Fool me five times?`\
+https://nytimes.com/2024/10/12/opinion/jd-vance-election-denial.html
+
+**Oregon's Jordan Burch uncertain vs. Ohio State after injury in practice**\
+`Burch leads the Ducks with five sacks among his seven tackles for loss.`\
+https://nytimes.com/athletic/5835020/2024/10/12/jordan-burch-oregon-injury/
+
 **Allan Blye, 87, Dies; ‘Smothers Brothers’ Writer and ‘Super Dave’ Creator**\
 `In his wide-ranging career, he also helped write Elvis Presley’s comeback special and appeared on an early version of “Mister Rogers’ Neighborhood.”`\
 https://nytimes.com/2024/10/12/arts/television/allan-blye-dead.html
