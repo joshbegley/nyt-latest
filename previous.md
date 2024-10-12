@@ -1,3 +1,7 @@
+**The OB-GYN Running on Abortion Rights in Conservative Wisconsin**\
+`Dr. Kristin Lyerly is looking to make inroads in a heavily Catholic part of the state.`\
+https://nytimes.com/2024/10/11/us/politics/wisconsin-abortion-rights-kristin-lyerly.html
+
 **Trump Rally in Aurora, Colo., Is Marked by Nativist Attacks**\
 `The former president continued to make claims about the city that have been disputed by local officials, including its Republican mayor.`\
 https://nytimes.com/2024/10/11/us/politics/trump-aurora-nativist.html
@@ -10,8 +14,8 @@ https://nytimes.com/2024/10/11/theater/suffs-broadway-closing.html
 `Jake Ciely has what you need to set your fantasy football lineup, breaking down the sleepers and need-to-know stats for the Week 6 slate.`\
 https://nytimes.com/athletic/5829747/2024/10/11/fantasy-football-rankings-week-6-sleepers-projections-starts-jalen-tolbert-chase-brown/
 
-**Milton Leaves Many Florida Animals in Limbo**\
-`Florida’s shelters are overburdened after the storm and faced with an influx of animals. Organizations are helping to relocate them.`\
+**Florida Animals Evacuated, Too**\
+`As Milton approached, thousands of animals — from pitbulls to rare corals — were relocated to other places. Some are heading home.`\
 https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-pets-animals.html
 
 **A Retirement Community Prepared for a Hurricane. Tornadoes Came Instead.**\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/us/politics/arizona-democrats-shut-down-a-phoenix
 **As Floridians Return, Officials Size Up Milton’s Uneven Trail of Destruction**\
 `Power outages, gas shortages and pockets of flooding were among the lingering issues. But Gov. Ron DeSantis said the damage could have been worse.`\
 https://nytimes.com/2024/10/11/weather/hurricane-milton-damage.html
-
-**All the Presidents’ Books: 6,500 Best Sellers and 100 Years of Jimmy Carter**\
-`A reporter counted every best seller about U.S. presidents published since The Times started tracking book sales in 1931. The process took some patience.`\
-https://nytimes.com/2024/10/11/insider/best-sellers-jimmy-carter-books.html
 

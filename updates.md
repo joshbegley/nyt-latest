@@ -1,3 +1,11 @@
+**The OB-GYN Running on Abortion Rights in Conservative Wisconsin**\
+`Dr. Kristin Lyerly is looking to make inroads in a heavily Catholic part of the state.`\
+https://nytimes.com/2024/10/11/us/politics/wisconsin-abortion-rights-kristin-lyerly.html
+
+**Florida Animals Evacuated, Too**\
+`As Milton approached, thousands of animals — from pitbulls to rare corals — were relocated to other places. Some are heading home.`\
+https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-pets-animals.html
+
 **Trump Rally in Aurora, Colo., Is Marked by Nativist Attacks**\
 `The former president continued to make claims about the city that have been disputed by local officials, including its Republican mayor.`\
 https://nytimes.com/2024/10/11/us/politics/trump-aurora-nativist.html
