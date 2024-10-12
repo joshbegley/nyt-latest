@@ -1,3 +1,7 @@
+**JD Vance: Not Having Kids Due to Climate Change Is ‘Crazy’**\
+`Senator JD Vance, the Republican vice-president nominee, said that considering climate change when deciding to have kids was a “bizarre way to think about the future.”`\
+https://nytimes.com/video/podcasts/100000009756770/jd-vance-not-having-kids-due-to-climate-change-is-crazy.html
+
 **Secret Documents Show Hamas Tried to Persuade Iran to Join Its Oct. 7 Attack**\
 `The Times reviewed the minutes of 10 meetings among Hamas’s top leaders. The records show the militant group avoided several escalations since 2021 to falsely imply it had been deterred — while seeking Iranian support for a major attack.`\
 https://nytimes.com/2024/10/12/world/middleeast/hamas-israel-war.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5835245/2024/10/12/tennis-players-doping-itia-ptpa-
 **Are the Blackhawks disqualified from the NHL lottery? Will Igor Shesterkin hit free agency? Ask CJ**\
 `Also in Chris Johnston's mailbag: Will Amazon expand its NHL coverage? Is a Joel Quenneville return inevitable? Dark horse Cup pick?`\
 https://nytimes.com/athletic/5837362/2024/10/12/blackhawks-nhl-lottery-shesterkin-swayman/
-
-**Executives and Research Disagree About Hybrid Work. Why?**\
-`Companies like Amazon have required a return to the office five days a week despite findings showing benefits to employers that allow some remote days.`\
-https://nytimes.com/2024/10/12/business/dealbook/executives-and-research-disagree-about-hybrid-work.html
 
