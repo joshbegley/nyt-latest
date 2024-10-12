@@ -1,3 +1,7 @@
+**Secret Documents Show Hamas Tried to Persuade Iran to Join Its Oct. 7 Attack**\
+`The Times reviewed the minutes of 10 meetings among Hamas’s top leaders. The records show the militant group avoided several escalations since 2021 to falsely imply it had been deterred — while seeking Iranian support for a major attack.`\
+https://nytimes.com/2024/10/12/world/middleeast/hamas-israel-war.html
+
 **Political Uncertainty and Budget Reality Put France in a Financial Vise**\
 `A rating agency’s warning about the country’s ballooning debt comes as the prime minister tries to push an austerity budget through a divided Parliament.`\
 https://nytimes.com/2024/10/12/world/europe/france-budget-austerity-fitch-ratings.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5837362/2024/10/12/blackhawks-nhl-lottery-shesterki
 **Executives and Research Disagree About Hybrid Work. Why?**\
 `Companies like Amazon have required a return to the office five days a week despite findings showing benefits to employers that allow some remote days.`\
 https://nytimes.com/2024/10/12/business/dealbook/executives-and-research-disagree-about-hybrid-work.html
-
-**Rosenthal: Dave Roberts lands on one good outcome after another as Dodgers advance to NLCS**\
-`The Dodgers used 17 pitchers to cover 24 scoreless innings in closing out the series.`\
-https://nytimes.com/athletic/5838313/2024/10/12/dave-roberts-dodgers-nlcs-mlb-playoffs/
 
