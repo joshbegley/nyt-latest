@@ -1,8 +1,16 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/10/12/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Takes His Message to Coachella**\
+`California may be one of the nation’s bluest states, but the home of the popular music festival is in a competitive House district that could help decide who controls the next Congress.`\
+https://nytimes.com/live/2024/10/12/us/trump-harris-election
+
 **Arizona State's surprising surge continues, capped by an all-time postgame interview**\
 `After Friday night's win over No. 16 Utah, Arizona State stands 5-1 overall, 2-1 in the Big 12 and on the doorstep of the top 25.`\
 https://nytimes.com/athletic/5838298/2024/10/12/arizona-state-utah-kenny-dillingham-coach-interview-top-25/
 
-**Tennis player association led by Novak Djokovic questions methods of policing doping, corruption**\
+**Tennis player association led by Novak Djokovic calls anti-doping processes 'broken' in letter**\
 `A letter from the PTPA to the ITIA is the first of a series of maneuvers that could redraw the contract between players and their sport.`\
 https://nytimes.com/athletic/5835245/2024/10/12/tennis-players-doping-itia-ptpa-djokovic/
 
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/12/upshot/harris-trump-polls-election.html
 **For Trump and Harris, the Media Future Is Now**\
 `Who are these people, and why are they interviewing presidential candidates?`\
 https://nytimes.com/2024/10/12/opinion/harris-trump-interviews.html
-
-**Where Is the Fierce Urgency of Beating Trump?**\
-`The vice president needs to pull out all the stops to get out of her stall.`\
-https://nytimes.com/2024/10/12/opinion/trump-harris-election.html
-
-**‘Are We Not Humans?’**\
-`My attempt at explaining the murder, rape and famine in Sudan.`\
-https://nytimes.com/2024/10/12/opinion/sudan-famine-rape-murder.html
 
