@@ -1,3 +1,7 @@
+**Kiké Hernández delivers again as Dodgers advance: 'He's not afraid of the moment'**\
+`Hernández’ had a message for Andrew Friedman before the first pitch, telling the club’s architect, “I’m going to win you this game."`\
+https://nytimes.com/athletic/5838183/2024/10/12/dodgers-kike-hernandez-nlds-padres/
+
 **Dodgers vs. Mets NLCS preview: Predictions, pitching matchups and more**\
 `The Dodgers have the most talented player in the game. The Mets are riding an incredible wave of momentum. Our writers preview the NLCS. `\
 https://nytimes.com/athletic/5838100/2024/10/12/dodgers-mets-2024-nlcs-preview-predictions/
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5836330/2024/10/12/mateusz-klich-interview-leeds-un
 **Andy Irving, the Portobello Pirlo and his journey to Germany, West Ham and Scotland senior side**\
 `Andy Irving has been called up to the Scotland squad despite just 31 minutes for West Ham in the league — this is his story`\
 https://nytimes.com/athletic/5825102/2024/10/12/andy-irving-west-ham-scotland/
-
-**The death of Mark Townsend at Hillsborough - and the questions that remain**\
-`Serious concerns been raised over the time taken to provide medical assistance to Townsend, who died two weeks ago`\
-https://nytimes.com/athletic/5834184/2024/10/12/hillsborough-fan-death-mark-townsend-questions/
 
