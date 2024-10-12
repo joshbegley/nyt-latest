@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-ba
 `\
 https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
 
+**Lowetide: The Oilers, Raphael Lavoie and signs of life in Bakersfield**\
+`The transactions involving the former top prospect don't reflect well on new Oilers GM Stan Bowman or his management team.
+`\
+https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
+
 **Texas rolls in SEC Red River as Quinn Ewers returns. Oklahoma has no answers on offense**\
 `The top-ranked Longhorns improve to 6-0 (2-0 SEC) and host No. 5 Georgia next Saturday.`\
 https://nytimes.com/athletic/5838892/2024/10/12/texas-oklahoma-result-takeaways/
