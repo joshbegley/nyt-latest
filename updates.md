@@ -1,3 +1,7 @@
+**The death of Mark Townsend at Hillsborough - and the questions that remain**\
+`Serious concerns been raised over the time taken to provide medical assistance to Townsend, who died two weeks ago`\
+https://nytimes.com/athletic/5834184/2024/10/12/hillsborough-fan-death-mark-townsend-questions/
+
 **Why loading up the England team with star players is an approach that most managers avoid**\
 `The clamour to cram big names into the team will always be there, but a more cautious approach might remain the best route to success`\
 https://nytimes.com/athletic/5837176/2024/10/12/england-team-superstars-versus-pragmatism/

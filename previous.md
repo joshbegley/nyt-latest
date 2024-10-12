@@ -1,3 +1,7 @@
+**The death of Mark Townsend at Hillsborough - and the questions that remain**\
+`Serious concerns been raised over the time taken to provide medical assistance to Townsend, who died two weeks ago`\
+https://nytimes.com/athletic/5834184/2024/10/12/hillsborough-fan-death-mark-townsend-questions/
+
 **Why loading up the England team with star players is an approach that most managers avoid**\
 `The clamour to cram big names into the team will always be there, but a more cautious approach might remain the best route to success`\
 https://nytimes.com/athletic/5837176/2024/10/12/england-team-superstars-versus-pragmatism/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5834863/2024/10/12/penn-state-usc-picks-odds-how-to
 **Spain vs Denmark: How to watch, odds, prediction for meeting of Nations League contenders**\
 `Spain isn't far removed from winning Euro 2024, but faces a tough test from a Denmark team that is playing well in the Nations League.`\
 https://nytimes.com/athletic/5837286/2024/10/12/spain-denmark-preview-how-to-watch-odds-prediction/
-
-**Corrections: Oct. 12, 2024**\
-`Corrections that appeared in print on Saturday, Oct. 12, 2024.`\
-https://nytimes.com/2024/10/11/pageoneplus/corrections-oct-12-2024.html
 
