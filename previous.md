@@ -1,3 +1,7 @@
+**Padres envisioned bigger things, but bats went silent: 'It hurts a lot'**\
+`The Padres believed they had the pieces to win it all but finished with an epic scoreless streak: "I think ‘stunning’ is appropriate."`\
+https://nytimes.com/athletic/5837839/2024/10/12/padres-envisioned-bigger-things-but-bats-went-silent-it-hurts-a-lot/
+
 **City Hall Is in Crisis. Who’s Running New York?**\
 `Mayor Eric Adams is relying on a group of respected civil servants to run the city and a trio of advisers to salvage his political career. Some say it’s too late.`\
 https://nytimes.com/2024/10/12/nyregion/eric-adams-administration.html
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5838100/2024/10/12/dodgers-mets-2024-nlcs-preview-p
 `Friday night, the Canucks’ best players didn’t move the needle for most of the game, allowing the Flyers to keep it close and win 3-2.
 `\
 https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
-
-**Dodgers teammates supported Yoshinobu Yamamoto; he lifted them up in Game 5**\
-`Clayton Kershaw was among the Dodgers to give Yamamoto a pep talk: "You are a stud. You might be a rookie. But you are a stud.”`\
-https://nytimes.com/athletic/5838152/2024/10/12/dodgers-yoshinobu-yamamoto-padres/
 
