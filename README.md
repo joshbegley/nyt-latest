@@ -1,3 +1,7 @@
+**Allan Blye, 87, Dies; ‘Smothers Brothers’ Writer and ‘Super Dave’ Creator**\
+`In his wide-ranging career, he also helped write Elvis Presley’s comeback special and appeared on an early version of “Mister Rogers’ Neighborhood.”`\
+https://nytimes.com/2024/10/12/arts/television/allan-blye-dead.html
+
 **Salah returns to Liverpool early from Egypt international duty**\
 `Mohamed Salah will return to Liverpool after being released early from international duty with Egypt.`\
 https://nytimes.com/athletic/5838425/2024/10/12/mohamed-salah-liverpool-return-egypt/
@@ -29,8 +33,4 @@ https://nytimes.com/video/podcasts/100000009756770/jd-vance-not-having-kids-due-
 **Secret Documents Show Hamas Tried to Persuade Iran to Join Its Oct. 7 Attack**\
 `The Times reviewed the minutes of 10 meetings among Hamas’s top leaders. The records show the militant group avoided several escalations since 2021 to falsely imply it had been deterred — while seeking Iranian support for a major attack.`\
 https://nytimes.com/2024/10/12/world/middleeast/hamas-israel-war.html
-
-**Political Uncertainty and Budget Reality Put France in a Financial Vise**\
-`A rating agency’s warning about the country’s ballooning debt comes as the prime minister tries to push an austerity budget through a divided Parliament.`\
-https://nytimes.com/2024/10/12/world/europe/france-budget-austerity-fitch-ratings.html
 
