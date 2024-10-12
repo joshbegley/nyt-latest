@@ -1,3 +1,7 @@
+**Kiké Hernández powers Dodgers past Padres and into NLCS: Takeaways**\
+`LOS ANGELES — The Los Angeles Dodgers are returning to the National League Championship Series for the first time since 2021, taking Game 5 from the San Diego Padres, 2-0.`\
+https://nytimes.com/athletic/5838016/2024/10/11/dodgers-padres-nlds-kike-hernandez/
+
 **Mayor Adams’s Rivals Reveal Fund-Raising Totals. Mr. Adams? Who Knows.**\
 `With Mayor Eric Adams’s future in flux as he faces federal bribery charges, his challengers prepare for the possibility of an election before the June primary.`\
 https://nytimes.com/2024/10/11/nyregion/mayor-adams-election-fund-raising.html

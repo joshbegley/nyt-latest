@@ -1,3 +1,7 @@
+**Kiké Hernández powers Dodgers past Padres and into NLCS: Takeaways**\
+`LOS ANGELES — The Los Angeles Dodgers are returning to the National League Championship Series for the first time since 2021, taking Game 5 from the San Diego Padres, 2-0.`\
+https://nytimes.com/athletic/5838016/2024/10/11/dodgers-padres-nlds-kike-hernandez/
+
 **Mayor Adams’s Rivals Reveal Fund-Raising Totals. Mr. Adams? Who Knows.**\
 `With Mayor Eric Adams’s future in flux as he faces federal bribery charges, his challengers prepare for the possibility of an election before the June primary.`\
 https://nytimes.com/2024/10/11/nyregion/mayor-adams-election-fund-raising.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5829747/2024/10/11/fantasy-football-rankings-week-6
 **Milton Leaves Some Florida Animals in Limbo, Too**\
 `Florida’s animal shelters are struggling after the storm. Animal organizations are helping fly some pets to faraway shelters.`\
 https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-pets-animals.html
-
-**A Retirement Community Prepared for a Hurricane. Tornadoes Came Instead.**\
-`Hurricane Milton’s death toll was highest far from the coast where it made landfall, in a retirement community where few were braced for destructive tornadoes.`\
-https://nytimes.com/2024/10/11/us/hurricane-milton-tornado-florida-deaths.html
 
