@@ -1,6 +1,6 @@
 **Padres envisioned bigger things, but bats went silent: 'It hurts a lot'**\
 `The Padres believed they had the pieces to win it all but finished with an epic scoreless streak: "I think ‘stunning’ is appropriate."`\
-https://nytimes.com/athletic/5837839/2024/10/12/padres-envisioned-bigger-things-but-bats-went-silent-it-hurts-a-lot/
+https://nytimes.com/athletic/5837839/2024/10/12/padres-nlds-eliminated-dodgers/
 
 **City Hall Is in Crisis. Who’s Running New York?**\
 `Mayor Eric Adams is relying on a group of respected civil servants to run the city and a trio of advisers to salvage his political career. Some say it’s too late.`\
