@@ -1,3 +1,7 @@
+**Manual Dexterity**\
+`Gary Larson and Doug Peterson’s puzzle already comes with instructions, but just in case. …`\
+https://nytimes.com/2024/10/12/crosswords/daily-puzzle-2024-10-13.html
+
 **UNC football's Tylee Craft dies after lung cancer diagnosis**\
 `The Tar Heels honored Craft's family on the field at Kenan Memorial Stadium on Saturday.`\
 https://nytimes.com/athletic/5838694/2024/10/12/tylee-craft-unc-cancer-death/
