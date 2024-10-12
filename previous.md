@@ -1,3 +1,8 @@
+**Canucks stars disappoint, Tyler Myers injured in loss to Flyers: 3 takeaways**\
+`Friday night, the Canucks’ best players didn’t move the needle for most of the game, allowing the Flyers to keep it close and win 3-2.
+`\
+https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
+
 **Dodgers teammates supported Yoshinobu Yamamoto; he lifted them up in Game 5**\
 `Clayton Kershaw was among the Dodgers to give Yamamoto a pep talk: "You are a stud. You might be a rookie. But you are a stud.”`\
 https://nytimes.com/athletic/5838152/2024/10/12/dodgers-yoshinobu-yamamoto-padres/
@@ -29,8 +34,4 @@ https://nytimes.com/athletic/5834184/2024/10/12/hillsborough-fan-death-mark-town
 **Why loading up the England team with star players is an approach that most managers avoid**\
 `The clamour to cram big names into the team will always be there, but a more cautious approach might remain the best route to success`\
 https://nytimes.com/athletic/5837176/2024/10/12/england-team-superstars-versus-pragmatism/
-
-**13 insights fantasy football managers need to know ahead of Week 6**\
-`Theo Gremminger highlights the success of Chuba Hubbard in an Andy Dalton-led Carolina offense, as he shares 13 insights ahead of Week 6.`\
-https://nytimes.com/athletic/5837433/2024/10/12/13-insights-fantasy-football-week-6/
 
