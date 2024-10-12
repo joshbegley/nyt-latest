@@ -1,3 +1,7 @@
+**Jackson Merrill and Padres talked extension in spring. Will talks be revived? 3 offseason questions**\
+`The price tag has gone up for Jackson Merrill since the Padres discussed an extension before he played his first big league game`\
+https://nytimes.com/athletic/5838067/2024/10/12/padres-jackson-merrill-extension-offseason/
+
 **Alex Salmond, Scotland’s Former First Minister, Dies at 69**\
 `Mr. Salmond had led the Scottish National Party twice, guiding it from a fringe political group into a powerful electoral force in Britain.`\
 https://nytimes.com/2024/10/12/world/europe/alex-salmond-scotland-dies.html
