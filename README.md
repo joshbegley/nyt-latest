@@ -1,3 +1,11 @@
+**A Conversation With JD Vance**\
+`The Republican vice-presidential candidate rejects the idea that he’s changed, defends his rhetoric and still won’t say if Trump lost in 2020.`\
+https://nytimes.com/2024/10/12/magazine/jd-vance-interview.html
+
+**‘The Interview’: A Conversation With JD Vance**\
+`The Republican vice-presidential candidate rejects the idea that he’s changed, defends his rhetoric and still won’t say if Trump lost in 2020.`\
+https://nytimes.com/video/magazine/100000009758644/the-interview-a-conversation-with-jd-vance.html
+
 **Daring Trump, Harris’s Campaign Says It Will Release Her Medical Information**\
 `Vice President Kamala Harris’s campaign is trying to capitalize on a lack of health information shared by her rival. Candidates are often selective about what they choose to share.`\
 https://nytimes.com/2024/10/12/us/politics/harris-medical-records-trump.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/12/business/insurance-hurricane-milton-helene.html
 **Boris Johnson Makes a Case for Trump’s Return, and Perhaps, His Own**\
 `In his memoir, “Unleashed,” the former prime minister is “optimistic” about the possibility that Donald J. Trump could regain the White House.`\
 https://nytimes.com/2024/10/12/books/boris-johnson-unleashed-memoir.html
-
-**Christian Conservatives, Looking to Mobilize Women, Turn to a Biblical Queen**\
-`Alarmed by abortion and transgender rights, Christian activists are invoking the Old Testament story of Esther, the Jewish orphan who bravely saved her people.`\
-https://nytimes.com/2024/10/12/us/2024-election-conservative-christian-women.html
-
-**Black Voters Drift From Democrats, Imperiling Harris’s Bid, Poll Shows**\
-`Vice President Kamala Harris is on track to win a majority of Black voters, and has brought many back to her party since taking over for President Biden. Still, a significant gap in support persists.`\
-https://nytimes.com/2024/10/12/us/politics/poll-black-voters-harris-trump.html
 
