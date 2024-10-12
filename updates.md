@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
 
+**Lowetide: The Oilers, Raphael Lavoie and signs of life in Bakersfield**\
+`The transactions involving the former top prospect don't reflect well on new Oilers GM Stan Bowman or his management team.
+`\
+https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
+
 **Notre Dame takeaways: How good can Riley Leonard be? Win vs. Stanford a confidence boost**\
 `Leonard delivered his best performance in a Notre Dame uniform in the Irish's 49-7 win against Stanford.`\
 https://nytimes.com/athletic/5838870/2024/10/12/notre-dame-stanford-score-riley-leonard/
