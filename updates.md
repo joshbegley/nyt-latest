@@ -1,3 +1,7 @@
+**Dodgers teammates supported Yoshinobu Yamamoto; he lifted them up in Game 5**\
+`Clayton Kershaw was among the Dodgers to give Yamamoto a pep talk: "You are a stud. You might be a rookie. But you are a stud.”`\
+https://nytimes.com/athletic/5838152/2024/10/12/dodgers-yoshinobu-yamamoto-padres/
+
 **Blackhawks are weary of moral victories, but OT loss to Jets was a big one: Observations**\
 `The era of silver linings is over. The Blackhawks want gold: “We’re tired of taking moral victories at this point,” Seth Jones said.`\
 https://nytimes.com/athletic/5838127/2024/10/12/blackhawks-jets-nhl-observations/

@@ -1,3 +1,7 @@
+**Dodgers teammates supported Yoshinobu Yamamoto; he lifted them up in Game 5**\
+`Clayton Kershaw was among the Dodgers to give Yamamoto a pep talk: "You are a stud. You might be a rookie. But you are a stud.”`\
+https://nytimes.com/athletic/5838152/2024/10/12/dodgers-yoshinobu-yamamoto-padres/
+
 **Vinicius Jr's persecution reflects Spanish football's flawed reckoning with racism**\
 `The Real Madrid forward has been targeted for racial abuse at stadiums around the country in recent years`\
 https://nytimes.com/athletic/5836428/2024/10/12/vinicius-jr-real-madrid-racism-la-liga-brazil-spain/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5837176/2024/10/12/england-team-superstars-versus-p
 **13 insights fantasy football managers need to know ahead of Week 6**\
 `Theo Gremminger highlights the success of Chuba Hubbard in an Andy Dalton-led Carolina offense, as he shares 13 insights ahead of Week 6.`\
 https://nytimes.com/athletic/5837433/2024/10/12/13-insights-fantasy-football-week-6/
-
-**What International Law Says About Israel’s Invasion of Lebanon**\
-`Explaining the issues of sovereignty, self-defense and humanitarian safeguards.`\
-https://nytimes.com/2024/10/12/world/middleeast/israel-lebanon-invasion-international-law.html
 
