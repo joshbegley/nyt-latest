@@ -18,8 +18,8 @@ https://nytimes.com/2024/10/12/health/apple-airpods-hearing-aids.html
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/12/us/trump-harris-election/heres-the-latest-on-the-presidential-race
 
-**Election Live Updates: Trump Takes His Message to Coachella**\
-`California may be one of the nation’s bluest states, but the home of the popular music festival is in a competitive House district that could help decide who controls the next Congress.`\
+**Election Live Updates: Trump Heads to Coachella as Polls Find Tight Race in Two Battleground States**\
+`Vice President Kamala Harris was maintaining a slight lead in Pennsylvania, while Trump was still narrowly ahead in Arizona, according to a new pair of New York Times/Philadelphia Inquirer/Siena College polls released Saturday.`\
 https://nytimes.com/live/2024/10/12/us/trump-harris-election
 
 **Arizona State's surprising surge continues, capped by an all-time postgame interview**\
