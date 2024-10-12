@@ -1,3 +1,7 @@
+**How will the Bills respond to a desperate Jets team? Who could step up at WR?**\
+`Before the Bills trade for a wide receiver, perhaps they should see what they have in house, including from two talented speedsters.`\
+https://nytimes.com/athletic/5838460/2024/10/12/bills-jets-robert-saleh-khalil-shakir/
+
 **Jackson Merrill and Padres talked extension in spring. Will talks be revived? 3 offseason questions**\
 `The price tag has gone up for Jackson Merrill since the Padres discussed an extension before he played his first big league game`\
 https://nytimes.com/athletic/5838067/2024/10/12/padres-jackson-merrill-extension-offseason/
