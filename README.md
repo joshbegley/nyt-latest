@@ -1,3 +1,7 @@
+**Israeli Strikes on Northern Gaza Kill at Least 20, Aid Workers Say**\
+`Israel’s military said it was “operating with great force” against Hamas and allied groups and issued new evacuation orders, as it also continued its campaign in Lebanon.`\
+https://nytimes.com/2024/10/12/world/middleeast/israel-gaza-lebanon-attacks.html
+
 **Former Liverpool defender Matip retires from football**\
 `Former Liverpool defender Joel Matip has retired from football at the age of 33.`\
 https://nytimes.com/athletic/5837230/2024/10/12/joel-matip-liverpool-retires/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/us/politics/times-siena-arizona-pennsylvania-poll
 **A Frustrated Trump Lashes Out Behind Closed Doors Over Money**\
 `Donald J. Trump is feeling aggrieved, unappreciated by donors and fenced in by security concerns in the final stretch of the race.`\
 https://nytimes.com/2024/10/12/us/politics/trump-gop-donors.html
-
-**Hurricanes Amplify Insurance Crisis in Riskiest Areas**\
-`After Helene and Milton, some small Florida companies risk bankruptcy. Larger ones will be in the hot seat with lawmakers and consumer groups.`\
-https://nytimes.com/2024/10/12/business/insurance-hurricane-milton-helene.html
 
