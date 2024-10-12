@@ -1,3 +1,7 @@
+**Toplines: October 2024 Times/Siena Poll of Registered Voters in  Arizona**\
+`Results of a New York Times/Siena College poll conducted among 808 likely voters in Arizona from Oct. 7 to 10, 2024.`\
+https://nytimes.com/interactive/2024/10/12/us/elections/times-siena-poll-arizona-toplines.html
+
 **Russini’s what I’m hearing: Saleh’s foiled plan to save Jets offense, Steelers’ Justin Fields feelings**\
 `Plus, two rookie QBs make their starting debuts, those aging Bengals, Mile High Ferris Bueller, and more. `\
 https://nytimes.com/athletic/5838071/2024/10/12/nfl-insider-jets-offensive-coordinator-justin-fields-russell-wilson-steelers-starter/
