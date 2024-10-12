@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5838106/2024/10/12/nlds-alds-dodgers-bullpen-giancarlo-stanton-steven-kwan/
 
 **UNC football's Tylee Craft dies after lung cancer diagnosis**\
-`Craft was diagnosed with a rare form of cancer lung cancer in March 2022.`\
+`The Tar Heels honored Craft's family on the field at Kenan Memorial Stadium on Saturday.`\
 https://nytimes.com/athletic/5838694/2024/10/12/tylee-craft-unc-cancer-death/
 
 **'Best game he's played as an NHL player': Why Matt Poitras could be the difference-maker**\

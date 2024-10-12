@@ -1,3 +1,7 @@
+**UNC football's Tylee Craft dies after lung cancer diagnosis**\
+`The Tar Heels honored Craft's family on the field at Kenan Memorial Stadium on Saturday.`\
+https://nytimes.com/athletic/5838694/2024/10/12/tylee-craft-unc-cancer-death/
+
 **What we learned in the NLDS and ALDS: Bullpens, large sluggers, Steven Kwan is back**\
 `Here's what you need to know about each of the four teams that advanced to the League Championship Series.`\
 https://nytimes.com/athletic/5838106/2024/10/12/nlds-alds-dodgers-bullpen-giancarlo-stanton-steven-kwan/
