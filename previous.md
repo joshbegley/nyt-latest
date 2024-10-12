@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5838870/2024/10/12/notre-dame-stanford-score-riley-
 `CHSN and Comcast have yet to reach a deal to televise the Blackhawks, Bulls and White Sox.`\
 https://nytimes.com/athletic/5838839/2024/10/12/comcast-chsn-tv-network-agreement/
 
-**Penn State strengthens Playoff chances, Trojans hopes all but dashed in overtime thriller**\
+**Penn State strengthens Playoff chances, USC's hopes all but dashed in overtime thriller**\
 `Led by tight end Tyler Warren and a defense that allowed only one TD in the second half, Penn State improved to 6-0 with a 33-30 win at USC.`\
 https://nytimes.com/athletic/5838721/2024/10/12/penn-state-usc-overtime-tyler-warren/
 
