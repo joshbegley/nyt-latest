@@ -1,3 +1,23 @@
+**‘Are We Not Humans?’**\
+`My attempt at explaining the murder, rape and famine in Sudan.`\
+https://nytimes.com/2024/10/12/opinion/sudan-famine-rape-murder.html
+
+**This Election Will Need More Heroes**\
+`Honorable public servants of both parties upheld democracy after the 2020 election. America is counting on them again to do their duty.`\
+https://nytimes.com/2024/10/12/opinion/election-2024-voter-suppression.html
+
+**What if Trump Wins Like This?**\
+`The way he is now running is the best window we have into what kind of president he will be in a second term.`\
+https://nytimes.com/2024/10/12/opinion/trump-second-term.html
+
+**For the Sake of the Planet, Nations Must Protect What Is Still Wild**\
+`Much of what’s still undeveloped offers some the best defenses against climate change.`\
+https://nytimes.com/2024/10/12/opinion/conservation-wilderness-biodiversity.html
+
+**Why I Changed My Birth Certificate 25 Years After I Transitioned**\
+`I’m taking steps to secure my future in an uncertain time for trans people in America.`\
+https://nytimes.com/2024/10/12/opinion/trans-birth-certificate-identity-america.html
+
 **Fernandes keen to rediscover goalscoring form for Manchester United**\
 `Manchester United captain Bruno Fernandes says he takes responsibility for his recent lack of goals and is determined to get back to his best form as quickly as possible.`\
 https://nytimes.com/athletic/5838291/2024/10/12/bruno-fernandes-manchester-united-goals/
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/5829794/2024/10/12/desmond-bane-grizzlies-pace-alpe
 **How Eric Comrie returned to Jets and reclaimed backup goalie job**\
 `WINNIPEG — Eric Comrie left the Winnipeg Jets two seasons ago in search of opportunity — a starter&#8217;s net, in an ideal world, or a time share if he couldn&#8217;t manage that.`\
 https://nytimes.com/athletic/5837786/2024/10/12/eric-comrie-winnipeg-jets-kaapo-kahkonen/
-
-**Alphonso Davies interview: How a 'shy kid' became Canada captain - and what that means to him**\
-`At 16, Davies was Canada's youngest ever player. Now, at 23, he is their captain. He sits down with The Athletic ahead of a big two years`\
-https://nytimes.com/athletic/5836293/2024/10/12/alphonso-davies-canada-captain-interview/
-
-**Is this Christian Pulisic the best ever Christian Pulisic?**\
-`The USMNT forward joins up for Pochettino's first camp in arguably the best form of his career, having starred for Milan this season`\
-https://nytimes.com/athletic/5830720/2024/10/12/christian-pulisic-milan-form-usmnt-pochettino/
-
-**In British Columbia, a Political Party’s Collapse Echoes an Earlier Election**\
-`The end of a coalition of Conservatives and Liberals over 70 years ago led to a surprising election result and reshaped the province’s politics.`\
-https://nytimes.com/2024/10/12/world/canada/british-columbia-liberal-party-election.html
-
-**Wordle Review No. 1,212**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 13, 2024.`\
-https://nytimes.com/2024/10/12/crosswords/wordle-review-1212.html
-
-**The Connections Companion No. 490**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 13, 2024.`\
-https://nytimes.com/2024/10/12/crosswords/connections-companion-490.html
 
