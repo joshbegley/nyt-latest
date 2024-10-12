@@ -63,6 +63,11 @@ https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-ba
 `\
 https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
 
+**Lowetide: The Oilers, Raphael Lavoie and signs of life in Bakersfield**\
+`The transactions involving the former top prospect don't reflect well on new Oilers GM Stan Bowman or his management team.
+`\
+https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
+
 **Penn State strengthens Playoff chances, Trojans hopes all but dashed in overtime thriller**\
 `Led by tight end Tyler Warren and a defense that allowed only one TD in the second half, Penn State improved to 6-0 with a 33-30 win at USC.`\
 https://nytimes.com/athletic/5838721/2024/10/12/penn-state-usc-overtime-tyler-warren/
