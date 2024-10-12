@@ -1,3 +1,7 @@
+**Political Uncertainty and Budget Reality Put France in a Financial Vise**\
+`A rating agency’s warning about the country’s ballooning debt comes as the prime minister tries to push an austerity budget through a divided Parliament.`\
+https://nytimes.com/2024/10/12/world/europe/france-budget-austerity-fitch-ratings.html
+
 **The Cutting-Edge Hearing Aids That You May Already Own**\
 `Apple is preparing to turn its AirPods Pro 2 into easy-to-use aids for people with mild to moderate hearing loss.`\
 https://nytimes.com/2024/10/12/health/apple-airpods-hearing-aids.html
@@ -22,15 +26,11 @@ https://nytimes.com/athletic/5835245/2024/10/12/tennis-players-doping-itia-ptpa-
 `Also in Chris Johnston's mailbag: Will Amazon expand its NHL coverage? Is a Joel Quenneville return inevitable? Dark horse Cup pick?`\
 https://nytimes.com/athletic/5837362/2024/10/12/blackhawks-nhl-lottery-shesterkin-swayman/
 
-**Executives and Research Disagree About Hybrid Work’s Value. Why?**\
+**Executives and Research Disagree About Hybrid Work. Why?**\
 `Companies like Amazon have required a return to the office five days a week despite findings showing benefits to employers that allow some remote days.`\
 https://nytimes.com/2024/10/12/business/dealbook/executives-and-research-disagree-about-hybrid-work.html
 
 **Rosenthal: Dave Roberts lands on one good outcome after another as Dodgers advance to NLCS**\
 `The Dodgers used 17 pitchers to cover 24 scoreless innings in closing out the series.`\
 https://nytimes.com/athletic/5838313/2024/10/12/dave-roberts-dodgers-nlcs-mlb-playoffs/
-
-**A Mystery Repeats: Harris Up 4 in Pennsylvania, and Trump Up 6 in Arizona**\
-`Being uncertain about our earlier poll results but finding almost the same numbers the next time around.`\
-https://nytimes.com/2024/10/12/upshot/harris-trump-polls-election.html
 

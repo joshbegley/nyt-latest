@@ -1,3 +1,11 @@
+**Political Uncertainty and Budget Reality Put France in a Financial Vise**\
+`A rating agency’s warning about the country’s ballooning debt comes as the prime minister tries to push an austerity budget through a divided Parliament.`\
+https://nytimes.com/2024/10/12/world/europe/france-budget-austerity-fitch-ratings.html
+
+**Executives and Research Disagree About Hybrid Work. Why?**\
+`Companies like Amazon have required a return to the office five days a week despite findings showing benefits to employers that allow some remote days.`\
+https://nytimes.com/2024/10/12/business/dealbook/executives-and-research-disagree-about-hybrid-work.html
+
 **The Cutting-Edge Hearing Aids That You May Already Own**\
 `Apple is preparing to turn its AirPods Pro 2 into easy-to-use aids for people with mild to moderate hearing loss.`\
 https://nytimes.com/2024/10/12/health/apple-airpods-hearing-aids.html
