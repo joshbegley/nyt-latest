@@ -1,3 +1,7 @@
+**Andrew Painter pitches for first time since Tommy John surgery**\
+`The Phillies' first-round pick in 2021 allowed two earned runs over two innings in his first Arizona Fall League appearance.`\
+https://nytimes.com/athletic/5838956/2024/10/12/phillies-andrew-painter-return-arizona-fall-league/
+
 **Texas rolls in SEC Red River as Quinn Ewers returns. Oklahoma has no answers on offense**\
 `The top-ranked Longhorns improve to 6-0 (2-0 SEC) and host No. 5 Georgia next Saturday.`\
 https://nytimes.com/athletic/5838892/2024/10/12/texas-oklahoma-result-takeaways/
@@ -30,8 +34,4 @@ https://nytimes.com/2024/10/12/us/politics/jd-vance-trump-2020.html
 **Yankees vs. Guardians ALCS preview: Predictions, pitching matchups and more**\
 `The Yankees and Guardians are set to meet in an ALCS that's a rematch of the 2022 ALDS won by New York. Our writers preview the series. `\
 https://nytimes.com/athletic/5838737/2024/10/12/yankees-guardians-2024-alcs-preview-predictions/
-
-**Manual Dexterity**\
-`Gary Larson and Doug Peterson’s puzzle already comes with instructions, but just in case. …`\
-https://nytimes.com/2024/10/12/crosswords/daily-puzzle-2024-10-13.html
 
