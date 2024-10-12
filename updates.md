@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-
 `\
 https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
 
+**Canucks stars disappoint, Tyler Myers injured in loss to Flyers: 3 takeaways**\
+`Friday night, the Canucks’ best players didn’t move the needle for most of the game, allowing the Flyers to keep it close and win 3-2.
+`\
+https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
+
 **City Hall Is in Crisis. Who’s Running New York?**\
 `Mayor Eric Adams is relying on a group of respected civil servants to run the city and a trio of advisers to salvage his political career. Some say it’s too late.`\
 https://nytimes.com/2024/10/12/nyregion/eric-adams-administration.html
