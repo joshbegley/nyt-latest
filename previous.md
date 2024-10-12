@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5838460/2024/10/12/bills-jets-robert-saleh-khalil-s
 https://nytimes.com/athletic/5838067/2024/10/12/padres-jackson-merrill-extension-offseason/
 
 **Alex Salmond, Scotland’s Former First Minister, Dies at 69**\
-`Mr. Salmond had led the Scottish National Party twice, guiding it from a fringe political group into a powerful electoral force in Britain.`\
+`Mr. Salmond led the Scottish National Party twice, guiding it from a fringe political group into a powerful electoral force in Britain.`\
 https://nytimes.com/2024/10/12/world/europe/alex-salmond-scotland-dies.html
 
 **David Garrard Lowe, Defender of Historic Architecture, Dies at 91**\

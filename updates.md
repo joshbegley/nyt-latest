@@ -1,3 +1,7 @@
+**Alex Salmond, Scotland’s Former First Minister, Dies at 69**\
+`Mr. Salmond led the Scottish National Party twice, guiding it from a fringe political group into a powerful electoral force in Britain.`\
+https://nytimes.com/2024/10/12/world/europe/alex-salmond-scotland-dies.html
+
 **Map: 6.2-Magnitude Earthquake Strikes Near Costa Rica**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/10/12/world/americas/quake-tracker-costa-rica.html
