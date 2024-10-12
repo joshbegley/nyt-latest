@@ -11,7 +11,7 @@ https://nytimes.com/2024/10/11/us/politics/wisconsin-abortion-rights-kristin-lye
 https://nytimes.com/2024/10/11/us/politics/trump-aurora-nativist.html
 
 **‘Suffs’ Won Tony Awards for Best Score and Book. Now It’s Closing.**\
-`The musical, created by Shania Taub, announced that it will play its final performance on Jan. 5 and start a national tour next fall.`\
+`The musical, created by Shaina Taub, announced that it will play its final performance on Jan. 5 and start a national tour next fall.`\
 https://nytimes.com/2024/10/11/theater/suffs-broadway-closing.html
 
 **Fantasy football rankings Week 6: Sleepers, projections, starts**\
