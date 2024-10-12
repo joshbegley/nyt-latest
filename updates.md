@@ -1,3 +1,7 @@
+**Allan Blye, 87, Dies; ‘Smothers Brothers’ Writer and ‘Super Dave’ Creator**\
+`In his wide-ranging career, he also helped write Elvis Presley’s comeback special and appeared on an early version of “Mister Rogers’ Neighborhood.”`\
+https://nytimes.com/2024/10/12/arts/television/allan-blye-dead.html
+
 **Salah returns to Liverpool early from Egypt international duty**\
 `Mohamed Salah will return to Liverpool after being released early from international duty with Egypt.`\
 https://nytimes.com/athletic/5838425/2024/10/12/mohamed-salah-liverpool-return-egypt/
