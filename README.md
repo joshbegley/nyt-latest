@@ -1,3 +1,7 @@
+**Russini’s what I’m hearing: Saleh’s foiled plan to save Jets offense, Steelers’ Justin Fields feelings**\
+`Plus, two rookie QBs make their starting debuts, those aging Bengals, Mile High Ferris Bueller, and more. `\
+https://nytimes.com/athletic/5838071/2024/10/12/nfl-insider-jets-offensive-coordinator-justin-fields-russell-wilson-steelers-starter/
+
 **JD Vance: Not Having Kids Due to Climate Change Is ‘Crazy’**\
 `Senator JD Vance, the Republican vice-president nominee, said that considering climate change when deciding to have kids was a “bizarre way to think about the future.”`\
 https://nytimes.com/video/podcasts/100000009756770/jd-vance-not-having-kids-due-to-climate-change-is-crazy.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838298/2024/10/12/arizona-state-utah-kenny-dilling
 **Tennis player association led by Novak Djokovic calls anti-doping processes 'broken' in letter**\
 `A letter from the PTPA to the ITIA is the first of a series of maneuvers that could redraw the contract between players and their sport.`\
 https://nytimes.com/athletic/5835245/2024/10/12/tennis-players-doping-itia-ptpa-djokovic/
-
-**Are the Blackhawks disqualified from the NHL lottery? Will Igor Shesterkin hit free agency? Ask CJ**\
-`Also in Chris Johnston's mailbag: Will Amazon expand its NHL coverage? Is a Joel Quenneville return inevitable? Dark horse Cup pick?`\
-https://nytimes.com/athletic/5837362/2024/10/12/blackhawks-nhl-lottery-shesterkin-swayman/
 
