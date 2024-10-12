@@ -1,3 +1,7 @@
+**Texas rolls in SEC Red River as Quinn Ewers returns. Oklahoma has no answers on offense**\
+`The top-ranked Longhorns improve to 6-0 (2-0 SEC) and host No. 5 Georgia next Saturday.`\
+https://nytimes.com/athletic/5838892/2024/10/12/texas-oklahoma-result-takeaways/
+
 **Boot Found at Everest Could Be From Climber Who Vanished 100 Years Ago**\
 `When Sandy Irvine went on a pioneering expedition to Mount Everest’s summit in 1924, he and his partner vanished. The recent discovery may shed light on the ill-fated adventure.`\
 https://nytimes.com/2024/10/12/world/asia/sandy-irvine-remains-everest.html
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5838737/2024/10/12/yankees-guardians-2024-alcs-prev
 **Manual Dexterity**\
 `Gary Larson and Doug Peterson’s puzzle already comes with instructions, but just in case. …`\
 https://nytimes.com/2024/10/12/crosswords/daily-puzzle-2024-10-13.html
-
-**What we learned in the NLDS and ALDS: Bullpens, large sluggers, Steven Kwan is back**\
-`Here's what you need to know about each of the four teams that advanced to the League Championship Series.`\
-https://nytimes.com/athletic/5838106/2024/10/12/nlds-alds-dodgers-bullpen-giancarlo-stanton-steven-kwan/
 
