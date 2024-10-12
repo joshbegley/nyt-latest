@@ -1,3 +1,7 @@
+**Toplines: October 2024 Times/Siena Poll of Registered Voters in  Arizona**\
+`Results of a New York Times/Siena College poll conducted among 808 likely voters in Arizona from Oct. 7 to 10, 2024.`\
+https://nytimes.com/interactive/2024/10/12/us/elections/times-siena-poll-arizona-toplines.html
+
 **Russini’s what I’m hearing: Saleh’s foiled plan to save Jets offense, Steelers’ Justin Fields feelings**\
 `Plus, two rookie QBs make their starting debuts, those aging Bengals, Mile High Ferris Bueller, and more. `\
 https://nytimes.com/athletic/5838071/2024/10/12/nfl-insider-jets-offensive-coordinator-justin-fields-russell-wilson-steelers-starter/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/10/12/us/trump-harris-election
 **Arizona State's surprising surge continues, capped by an all-time postgame interview**\
 `After Friday night's win over No. 16 Utah, Arizona State stands 5-1 overall, 2-1 in the Big 12 and on the doorstep of the top 25.`\
 https://nytimes.com/athletic/5838298/2024/10/12/arizona-state-utah-kenny-dillingham-coach-interview-top-25/
-
-**Tennis player association led by Novak Djokovic calls anti-doping processes 'broken' in letter**\
-`A letter from the PTPA to the ITIA is the first of a series of maneuvers that could redraw the contract between players and their sport.`\
-https://nytimes.com/athletic/5835245/2024/10/12/tennis-players-doping-itia-ptpa-djokovic/
 
