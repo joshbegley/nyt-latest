@@ -1,3 +1,7 @@
+**Former U.S. Soldier Is Sentenced to 14 Years for Planning to Help ISIS**\
+`Pvt. Cole Bridges pleaded guilty in 2023 to charges of attempting to provide material support to a foreign terrorist organization and attempting to murder U.S. military service members.`\
+https://nytimes.com/2024/10/12/us/cole-bridges-army-isis-sentencing.html
+
 **England will be 'more conventional' against Finland after Greece defeat - Carsley**\
 `Lee Carsley has said that England will be &#8220;a little bit more conventional&#8221; against Finland on Sunday night than they were against Greece.`\
 https://nytimes.com/athletic/5838560/2024/10/12/lee-carsley-england-finland-nations-league/

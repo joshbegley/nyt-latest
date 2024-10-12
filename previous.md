@@ -1,3 +1,7 @@
+**Former U.S. Soldier Is Sentenced to 14 Years for Planning to Help ISIS**\
+`Pvt. Cole Bridges pleaded guilty in 2023 to charges of attempting to provide material support to a foreign terrorist organization and attempting to murder U.S. military service members.`\
+https://nytimes.com/2024/10/12/us/cole-bridges-army-isis-sentencing.html
+
 **England will be 'more conventional' against Finland after Greece defeat - Carsley**\
 `Lee Carsley has said that England will be &#8220;a little bit more conventional&#8221; against Finland on Sunday night than they were against Greece.`\
 https://nytimes.com/athletic/5838560/2024/10/12/lee-carsley-england-finland-nations-league/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/opinion/jd-vance-election-denial.html
 **Oregon's Jordan Burch uncertain vs. Ohio State after injury in practice**\
 `Burch leads the Ducks with five sacks among his seven tackles for loss.`\
 https://nytimes.com/athletic/5835020/2024/10/12/jordan-burch-oregon-injury/
-
-**Allan Blye, 87, Dies; ‘Smothers Brothers’ Writer and ‘Super Dave’ Creator**\
-`In his wide-ranging career, he also helped write Elvis Presley’s comeback special and appeared on an early version of “Mister Rogers’ Neighborhood.”`\
-https://nytimes.com/2024/10/12/arts/television/allan-blye-dead.html
 
