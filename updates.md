@@ -1,3 +1,7 @@
+**David Garrard Lowe, Defender of Historic Architecture, Dies at 91**\
+`For over 50 years, as a historian, lecturer and author, he fought to protect Beaux-Arts buildings in New York and Chicago from falling to the developer’s wrecking ball.`\
+https://nytimes.com/2024/10/12/arts/david-garrard-lowe-dead.html
+
 **National League Championship Series predictions: Our experts make their picks**\
 `Dodgers. Mets. In a best-of-seven series, anything can happen. Who will emerge from the postseason's penultimate round? `\
 https://nytimes.com/athletic/5838097/2024/10/12/mlb-postseason-nlcs-predictions-dodgers-mets/

@@ -1,3 +1,7 @@
+**David Garrard Lowe, Defender of Historic Architecture, Dies at 91**\
+`For over 50 years, as a historian, lecturer and author, he fought to protect Beaux-Arts buildings in New York and Chicago from falling to the developer’s wrecking ball.`\
+https://nytimes.com/2024/10/12/arts/david-garrard-lowe-dead.html
+
 **National League Championship Series predictions: Our experts make their picks**\
 `Dodgers. Mets. In a best-of-seven series, anything can happen. Who will emerge from the postseason's penultimate round? `\
 https://nytimes.com/athletic/5838097/2024/10/12/mlb-postseason-nlcs-predictions-dodgers-mets/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/dining/how-to-fall-in-love-with-lentils.html
 **Letters in Song Lyrics and Poetry**\
 `These are some of our favorites from among more than 800 submissions in response to our request for variations on traditional letters.`\
 https://nytimes.com/2024/10/12/opinion/letters/letters-in-song-lyrics-and-poetry.html
-
-**Toplines: October 2024 Times/Siena Poll of Registered Voters in  Arizona**\
-`Results of a New York Times/Siena College poll conducted among 808 likely voters in Arizona from Oct. 7 to 10, 2024.`\
-https://nytimes.com/interactive/2024/10/12/us/elections/times-siena-poll-arizona-toplines.html
 
