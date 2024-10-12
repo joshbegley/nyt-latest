@@ -1,3 +1,7 @@
+**Manual Dexterity**\
+`Gary Larson and Doug Peterson’s puzzle already comes with instructions, but just in case. …`\
+https://nytimes.com/2024/10/12/crosswords/daily-puzzle-2024-10-13.html
+
 **What we learned in the NLDS and ALDS: Bullpens, large sluggers, Steven Kwan is back**\
 `Here's what you need to know about each of the four teams that advanced to the League Championship Series.`\
 https://nytimes.com/athletic/5838106/2024/10/12/nlds-alds-dodgers-bullpen-giancarlo-stanton-steven-kwan/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/us/politics/biden-milton-florida-disaster.html
 **Guardians grand slam their way to a Game 5 victory over Tigers, head to ALCS: Takeaways**\
 `This Game 5 had everything: Major momentum swings, a hit batter with the bases loaded and a go-ahead grand slam. `\
 https://nytimes.com/athletic/5838542/2024/10/12/guardians-tigers-mlb-game5-takeaways/
-
-**Alabama avoids another upset but raises more questions**\
-`No. 7 Alabama and first-year coach Kalen DeBoer avoided a second loss in as many weeks, hanging on against unranked South Carolina. `\
-https://nytimes.com/athletic/5838584/2024/10/12/alabama-south-carolina-score-results-takeaways/
 
