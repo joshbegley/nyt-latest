@@ -1,3 +1,7 @@
+**Tennis player association led by Novak Djokovic questions methods of policing doping, corruption**\
+`A letter from the PTPA to the ITIA is the first of a series of maneuvers that could redraw the contract between players and their sport.`\
+https://nytimes.com/athletic/5835245/2024/10/12/tennis-players-doping-itia-ptpa-djokovic/
+
 **Are the Blackhawks disqualified from the NHL lottery? Will Igor Shesterkin hit free agency? Ask CJ**\
 `Also in Chris Johnston's mailbag: Will Amazon expand its NHL coverage? Is a Joel Quenneville return inevitable? Dark horse Cup pick?`\
 https://nytimes.com/athletic/5837362/2024/10/12/blackhawks-nhl-lottery-shesterkin-swayman/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/opinion/sudan-famine-rape-murder.html
 **One bold prediction for each NHL team in 2024-25: Breakouts, trades and offer sheets**\
 `Utah an offensive powerhouse? Pierre-Luc Dubois deal pays off? The Athletic asked its NHL staff for their 2024-25 bold predictions.`\
 https://nytimes.com/athletic/5835520/2024/10/12/nhl-2024-2025-season-predictions/
-
-**This Election Will Need More Heroes**\
-`Honorable public servants of both parties upheld democracy after the 2020 election. America is counting on them again to do their duty.`\
-https://nytimes.com/2024/10/12/opinion/election-2024-voter-suppression.html
 

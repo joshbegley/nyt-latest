@@ -1,3 +1,7 @@
+**Tennis player association led by Novak Djokovic questions methods of policing doping, corruption**\
+`A letter from the PTPA to the ITIA is the first of a series of maneuvers that could redraw the contract between players and their sport.`\
+https://nytimes.com/athletic/5835245/2024/10/12/tennis-players-doping-itia-ptpa-djokovic/
+
 **Are the Blackhawks disqualified from the NHL lottery? Will Igor Shesterkin hit free agency? Ask CJ**\
 `Also in Chris Johnston's mailbag: Will Amazon expand its NHL coverage? Is a Joel Quenneville return inevitable? Dark horse Cup pick?`\
 https://nytimes.com/athletic/5837362/2024/10/12/blackhawks-nhl-lottery-shesterkin-swayman/
