@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5838556/2024/10/12/wisconsin-rutgers-tawee-walker-b
 
 **Guardians' Lane Thomas hits grand slam off Tarik Skubal in Game 5**\
 `Thomas saw just one pitch from Skubal — a 97 mph sinker — and blasted it out to left-center field.`\
-https://nytimes.com/athletic/5838595/2024/10/12/guardians-lane-thomas-grand-slam-tarik-skubal-game-5-nlds/
+https://nytimes.com/athletic/5838595/2024/10/12/guardians-lane-thomas-grand-slam-tarik-skubal-game-5-alds/
 
 **Map: 6.2-Magnitude Earthquake Strikes Near Costa Rica**\
 `View the location of the quake’s epicenter and shake area.`\
