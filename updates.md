@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
 
+**Canucks stars disappoint, Tyler Myers injured in loss to Flyers: 3 takeaways**\
+`Friday night, the Canucks’ best players didn’t move the needle for most of the game, allowing the Flyers to keep it close and win 3-2.
+`\
+https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
+
 **76ers preseason: Take Paul George, add Tyrese Maxey and imagine Joel Embiid in the mix**\
 `George, in his first appearance as a Sixer, provided a glimpse of why Philadelphia was so excited about signing him in free agency.`\
 https://nytimes.com/athletic/5838149/2024/10/12/76ers-preseason-paul-george/
