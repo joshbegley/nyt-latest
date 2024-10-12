@@ -1,6 +1,18 @@
+**For Trump and Harris, the Media Future Is Now**\
+`Who are these people, and why are they interviewing presidential candidates?`\
+https://nytimes.com/2024/10/12/opinion/harris-trump-interviews.html
+
+**Where Is the Fierce Urgency of Beating Trump?**\
+`The vice president needs to pull out all the stops to get out of her stall.`\
+https://nytimes.com/2024/10/12/opinion/trump-harris-election.html
+
 **‘Are We Not Humans?’**\
 `My attempt at explaining the murder, rape and famine in Sudan.`\
 https://nytimes.com/2024/10/12/opinion/sudan-famine-rape-murder.html
+
+**One bold prediction for each NHL team in 2024-25: Breakouts, trades and offer sheets**\
+`Utah an offensive powerhouse? Pierre-Luc Dubois deal pays off? The Athletic asked its NHL staff for their 2024-25 bold predictions.`\
+https://nytimes.com/athletic/5835520/2024/10/12/nhl-2024-2025-season-predictions/
 
 **This Election Will Need More Heroes**\
 `Honorable public servants of both parties upheld democracy after the 2020 election. America is counting on them again to do their duty.`\
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/12/opinion/trans-birth-certificate-identity-america.
 **Fernandes keen to rediscover goalscoring form for Manchester United**\
 `Manchester United captain Bruno Fernandes says he takes responsibility for his recent lack of goals and is determined to get back to his best form as quickly as possible.`\
 https://nytimes.com/athletic/5838291/2024/10/12/bruno-fernandes-manchester-united-goals/
-
-**Love Lessons**\
-`The editor of the long-running Modern Love column reflects on two decades of working with people’s deeply personal stories.`\
-https://nytimes.com/2024/10/12/briefing/love-lessons.html
-
-**Southwest Division notes: Grizzlies' penchant for pace, Şengün's shooting and more**\
-`Also: Why Harrison Barnes could be the connector Victor Wembanyama and the Spurs need.`\
-https://nytimes.com/athletic/5829794/2024/10/12/desmond-bane-grizzlies-pace-alperen-sengun-rockets/
-
-**How Eric Comrie returned to Jets and reclaimed backup goalie job**\
-`WINNIPEG — Eric Comrie left the Winnipeg Jets two seasons ago in search of opportunity — a starter&#8217;s net, in an ideal world, or a time share if he couldn&#8217;t manage that.`\
-https://nytimes.com/athletic/5837786/2024/10/12/eric-comrie-winnipeg-jets-kaapo-kahkonen/
 
