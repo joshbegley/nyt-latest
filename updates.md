@@ -1,3 +1,7 @@
+**For These Americans, Mexico Is Their Country Too**\
+`More than 25 years after Mexico began recognizing dual nationals, some U.S.-born children of Mexican immigrants are claiming citizenship in the country that their parents once left.`\
+https://nytimes.com/2024/10/12/us/us-mexico-dual-citizenship.html
+
 **Israeli Strikes on Northern Gaza Kill at Least 20, Aid Workers Say**\
 `Israel’s military said it was “operating with great force” against Hamas and allied groups and issued new evacuation orders, as it also continued its campaign in Lebanon.`\
 https://nytimes.com/2024/10/12/world/middleeast/israel-gaza-lebanon-attacks.html
