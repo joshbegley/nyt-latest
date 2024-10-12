@@ -1,36 +1,36 @@
-**A Ravens defense searching for answers faces another big test in Jayden Daniels**\
-`The Ravens have been almost unbeatable against NFC teams with Lamar Jackson at QB. Could the Commanders and Jayden Daniels pull the upset?`\
-https://nytimes.com/athletic/5837704/2024/10/12/ravens-commanders-prediction-lamar-jackson-jayden-daniels/
+**Daring Trump, Harris’s Campaign Says It Will Release Her Medical Information**\
+`Vice President Kamala Harris’s campaign is trying to capitalize on a lack of health information shared by her rival. Candidates are often selective about what they choose to share.`\
+https://nytimes.com/2024/10/12/us/politics/harris-medical-records-trump.html
 
-**Scary Books for Scaredy-Cats**\
-`Looking to dip your toe into horror this Halloween season? Entry-level thrills by Shirley Jackson, Victor LaValle and T. Kingfisher are a good place to start.`\
-https://nytimes.com/2024/10/12/books/horror-books-beginners.html
+**How Does Glossier’s Founder Define Success?**\
+`Emily Weiss, whose company just turned 10, bases her definition on relationships. Plus, jewelry shopping from coast to coast and Wet Seal’s gilded age.`\
+https://nytimes.com/2024/10/12/style/glossier-emily-weiss.html
 
-**Tester’s Fight for Political Survival Is Democrats’ Last Stand on the Great Plains**\
-`Once able to win on the prairie, the Democratic Party sees the Senate race in Montana as a final test of whether it can still be successful in heavily rural states that have turned deep red.`\
-https://nytimes.com/2024/10/12/us/politics/jon-tester-democrats-great-plains.html
+**5 Takeaways From Vance’s Interview With The New York Times**\
+`Pressed to say if he thought the 2020 election was stolen, JD Vance repeatedly sidestepped. And he defended the sentiment behind his “childless cat ladies” comment, even as he regretted his word choice.`\
+https://nytimes.com/2024/10/12/us/politics/vance-interview-takeaways.html
 
-**A Twist on the Celebrity-Interview Podcast: Add Two Civilians**\
-`In a podcast landscape where famous people are always talking to each other, “Podcrushed” tweaks the formula and, for good measure, adds some adolescent angst.`\
-https://nytimes.com/2024/10/12/arts/podcrushed-podcast.html
+**Trump Leads in Arizona as Harris Holds an Edge in Pennsylvania, New Polls Show**\
+`The latest Times/Inquirer/Siena polls found Donald Trump with a six-point advantage in Arizona, and Kamala Harris with a four-point lead in Pennsylvania.`\
+https://nytimes.com/2024/10/12/us/politics/times-siena-arizona-pennsylvania-polls.html
 
-**The School for First Ladies Is Now in Session**\
-`It’s a highly visible role that usually comes with no job description or salary. This group aims to assist. (And yes, first gentlemen are welcome.)`\
-https://nytimes.com/2024/10/12/style/global-first-ladies-alliance.html
+**A Frustrated Trump Lashes Out Behind Closed Doors Over Money**\
+`Donald J. Trump is feeling aggrieved, unappreciated by donors and fenced in by security concerns in the final stretch of the race.`\
+https://nytimes.com/2024/10/12/us/politics/trump-gop-donors.html
 
-**An Oval Office — Right Across From the White House**\
-`The White House Historical Association has opened a new museum that aims to provide insight into the difficult choices that presidents face.`\
-https://nytimes.com/2024/10/12/us/politics/an-oval-office-right-across-from-the-white-house.html
+**Hurricanes Amplify Insurance Crisis in Riskiest Areas**\
+`After Helene and Milton, some small Florida companies risk bankruptcy. Larger ones will be in the hot seat with lawmakers and consumer groups.`\
+https://nytimes.com/2024/10/12/business/insurance-hurricane-milton-helene.html
 
-**Led by Believers in the City’s Future, Detroit Is on the Rebound**\
-`Once the largest city in the U.S. to declare bankruptcy, this Midwestern metropolis is now thriving. But some obstacles still remain.`\
-https://nytimes.com/2024/10/12/business/economy/detroit-economy-rebound.html
+**Boris Johnson Makes a Case for Trump’s Return, and Perhaps, His Own**\
+`In his memoir, “Unleashed,” the former prime minister is “optimistic” about the possibility that Donald J. Trump could regain the White House.`\
+https://nytimes.com/2024/10/12/books/boris-johnson-unleashed-memoir.html
 
-**Lee Minho Needs His Notes App**\
-`“Whenever I get inspiration or feel something,” the “Pachinko” star said, “I go to my Notes app and write it down.”`\
-https://nytimes.com/2024/10/12/arts/television/lee-minho-pachinko.html
+**Christian Conservatives, Looking to Mobilize Women, Turn to a Biblical Queen**\
+`Alarmed by abortion and transgender rights, Christian activists are invoking the Old Testament story of Esther, the Jewish orphan who bravely saved her people.`\
+https://nytimes.com/2024/10/12/us/2024-election-conservative-christian-women.html
 
-**Cowboys-Lions predictions and preview: Offsetting Detroit's strengths is big challenge**\
-`Can the Cowboys get CeeDee Lamb rolling Sunday versus the Lions, and if not, will others step up to help them get their first home win?`\
-https://nytimes.com/athletic/5829401/2024/10/12/lions-cowboys-prediction-preview-week-6/
+**Black Voters Drift From Democrats, Imperiling Harris’s Bid, Poll Shows**\
+`Vice President Kamala Harris is on track to win a majority of Black voters, and has brought many back to her party since taking over for President Biden. Still, a significant gap in support persists.`\
+https://nytimes.com/2024/10/12/us/politics/poll-black-voters-harris-trump.html
 
