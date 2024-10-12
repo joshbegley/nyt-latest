@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-ba
 https://nytimes.com/2024/10/12/us/spacex-launch-california.html
 
 **Tigers' season ends with piercing Game 5 loss: 'It's one pitch. I'd love to have it back'**\
-`Detroit went on an incredible run to finish out the season, but Tarik Skubal surrendered a grand slam: "It'll suck, and it should suck."`\
+`Detroit went on an incredible run to finish the season, but Tarik Skubal surrendered a grand slam: "It'll suck, and it should suck."`\
 https://nytimes.com/athletic/5838901/2024/10/12/detroit-tigers-alds-game-5-loss/
 
 **On the Trail, Vance Is Dogged by Questions About Trump’s Loss in 2020**\
