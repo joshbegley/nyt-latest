@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-ba
 `\
 https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
 
+**Lowetide: The Oilers, Raphael Lavoie and signs of life in Bakersfield**\
+`The transactions involving the former top prospect don't reflect well on new Oilers GM Stan Bowman or his management team.
+`\
+https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
+
 **Jaguars vs. Bears odds, picks, how to watch: Williams, Lawrence face off in London**\
 `The Jags make their 12th visit to London to face Caleb Williams and the Bears in a tight and unpredictable matchup.`\
 https://nytimes.com/athletic/5836983/2024/10/12/jaguars-bears-odds-expert-picks-how-to-watch-predictions-betting/
