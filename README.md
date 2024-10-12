@@ -1,3 +1,19 @@
+**Why loading up the England team with star players is an approach that most managers avoid**\
+`The clamour to cram big names into the team will always be there, but a more cautious approach might remain the best route to success`\
+https://nytimes.com/athletic/5837176/2024/10/12/england-team-superstars-versus-pragmatism/
+
+**13 insights fantasy football managers need to know ahead of Week 6**\
+`Theo Gremminger highlights the success of Chuba Hubbard in an Andy Dalton-led Carolina offense, as he shares 13 insights ahead of Week 6.`\
+https://nytimes.com/athletic/5837433/2024/10/12/13-insights-fantasy-football-week-6/
+
+**What International Law Says About Israel’s Invasion of Lebanon**\
+`Explaining the issues of sovereignty, self-defense and humanitarian safeguards.`\
+https://nytimes.com/2024/10/12/world/middleeast/israel-lebanon-invasion-international-law.html
+
+**One of the World’s Loneliest Countries Finds Companionship in Dogs**\
+`They have become pampered family members in South Korea, which has the world’s lowest birthrate and where much of the population lives alone.`\
+https://nytimes.com/2024/10/12/world/asia/south-korea-dogs-pet-popularity.html
+
 **Rise of the Dragons: Fire-Breathing Drones Duel in Ukraine**\
 `Drones are getting another new twist: Soldiers attach canisters to them to create weapons capable of spitting out molten metal that burns at 4,400 degrees.`\
 https://nytimes.com/2024/10/12/world/europe/ukraine-russia-dragon-drones.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5837286/2024/10/12/spain-denmark-preview-how-to-wat
 **Corrections: Oct. 12, 2024**\
 `Corrections that appeared in print on Saturday, Oct. 12, 2024.`\
 https://nytimes.com/2024/10/11/pageoneplus/corrections-oct-12-2024.html
-
-**Quote of the Day: A Nobel Honor To the Survivors Of Atom Bombs**\
-`Quotation of the Day for Saturday, October 12, 2024`\
-https://nytimes.com/2024/10/11/pageoneplus/quote-of-the-day-a-nobel-honor-to-the-survivors-of-atom-bombs.html
-
-**China Vows to Unleash More Borrowing to Spur Economy and Strengthen Banks**\
-`The finance minister said Beijing would sell bonds to supplement spending and help banks but did not detail how much.`\
-https://nytimes.com/2024/10/11/business/china-economy-finance-minister.html
-
-**Transcript: Ezra Klein Interviews Ta-Nehisi Coates**\
-`The Oct. 11, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/10/11/podcasts/transcript-ezra-klein-interviews-ta-nehisi-coates.html
-
-**Kiké Hernández powers Dodgers past Padres and into NLCS: Takeaways**\
-`LOS ANGELES — The Los Angeles Dodgers are returning to the National League Championship Series for the first time since 2021, taking Game 5 from the San Diego Padres, 2-0.`\
-https://nytimes.com/athletic/5838016/2024/10/11/dodgers-padres-nlds-kike-hernandez/
 
