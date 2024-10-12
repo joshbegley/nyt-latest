@@ -1,3 +1,7 @@
+**76ers preseason: Take Paul George, add Tyrese Maxey and imagine Joel Embiid in the mix**\
+`George, in his first appearance as a Sixer, provided a glimpse of why Philadelphia was so excited about signing him in free agency.`\
+https://nytimes.com/athletic/5838149/2024/10/12/76ers-preseason-paul-george/
+
 **Kiké Hernández delivers again as Dodgers advance: 'He's not afraid of the moment'**\
 `Hernández’ had a message for Andrew Friedman before the first pitch, telling the club’s architect, “I’m going to win you this game."`\
 https://nytimes.com/athletic/5838183/2024/10/12/dodgers-kike-hernandez-nlds-padres/
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5834953/2024/10/12/shoe-doping-marathon-times-kipch
 **Klich interview: 'My only regret at Leeds is getting promoted during Covid'**\
 `Klich reminisces about the six seasons he spent at Leeds United and reflects on his current spell at DC United in MLS`\
 https://nytimes.com/athletic/5836330/2024/10/12/mateusz-klich-interview-leeds-united/
-
-**Andy Irving, the Portobello Pirlo and his journey to Germany, West Ham and Scotland senior side**\
-`Andy Irving has been called up to the Scotland squad despite just 31 minutes for West Ham in the league — this is his story`\
-https://nytimes.com/athletic/5825102/2024/10/12/andy-irving-west-ham-scotland/
 
