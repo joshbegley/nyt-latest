@@ -1,3 +1,11 @@
+**Are the Blackhawks disqualified from the NHL lottery? Will Igor Shesterkin hit free agency? Ask CJ**\
+`Also in Chris Johnston's mailbag: Will Amazon expand its NHL coverage? Is a Joel Quenneville return inevitable? Dark horse Cup pick?`\
+https://nytimes.com/athletic/5837362/2024/10/12/blackhawks-nhl-lottery-shesterkin-swayman/
+
+**Executives and Research Disagree About Hybrid Work’s Value. Why?**\
+`Companies like Amazon have required a return to the office five days a week despite findings showing benefits to employers that allow some remote days.`\
+https://nytimes.com/2024/10/12/business/dealbook/executives-and-research-disagree-about-hybrid-work.html
+
 **Rosenthal: Dave Roberts lands on one good outcome after another as Dodgers advance to NLCS**\
 `The Dodgers used 17 pitchers to cover 24 scoreless innings in closing out the series.`\
 https://nytimes.com/athletic/5838313/2024/10/12/dave-roberts-dodgers-nlcs-mlb-playoffs/
