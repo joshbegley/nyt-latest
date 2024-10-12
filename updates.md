@@ -1,3 +1,7 @@
+**China Vows to Unleash More Borrowing to Spur Economy and Strengthen Banks**\
+`The finance minister said Beijing would sell bonds to supplement spending and help banks but did not detail how much.`\
+https://nytimes.com/2024/10/11/business/china-economy-finance-minister.html
+
 **Transcript: Ezra Klein Interviews Ta-Nehisi Coates**\
 `The Oct. 11, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/10/11/podcasts/transcript-ezra-klein-interviews-ta-nehisi-coates.html

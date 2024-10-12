@@ -1,3 +1,7 @@
+**China Vows to Unleash More Borrowing to Spur Economy and Strengthen Banks**\
+`The finance minister said Beijing would sell bonds to supplement spending and help banks but did not detail how much.`\
+https://nytimes.com/2024/10/11/business/china-economy-finance-minister.html
+
 **Transcript: Ezra Klein Interviews Ta-Nehisi Coates**\
 `The Oct. 11, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/10/11/podcasts/transcript-ezra-klein-interviews-ta-nehisi-coates.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/us/politics/trump-aurora-nativist.html
 **‘Suffs’ Won Tony Awards for Best Score and Book. Now It’s Closing.**\
 `The musical, created by Shaina Taub, announced that it will play its final performance on Jan. 5 and start a national tour next fall.`\
 https://nytimes.com/2024/10/11/theater/suffs-broadway-closing.html
-
-**Fantasy football rankings Week 6: Sleepers, projections, starts**\
-`Jake Ciely has what you need to set your fantasy football lineup, breaking down the sleepers and need-to-know stats for the Week 6 slate.`\
-https://nytimes.com/athletic/5829747/2024/10/11/fantasy-football-rankings-week-6-sleepers-projections-starts-jalen-tolbert-chase-brown/
 
