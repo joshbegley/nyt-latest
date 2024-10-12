@@ -258,6 +258,11 @@ https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-
 `\
 https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
 
+**Canucks stars disappoint, Tyler Myers injured in loss to Flyers: 3 takeaways**\
+`Friday night, the Canucks’ best players didn’t move the needle for most of the game, allowing the Flyers to keep it close and win 3-2.
+`\
+https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
+
 **Padres envisioned bigger things, but bats went silent: 'It hurts a lot'**\
 `The Padres believed they had the pieces to win it all but finished with an epic scoreless streak: "I think ‘stunning’ is appropriate."`\
 https://nytimes.com/athletic/5837839/2024/10/12/padres-nlds-eliminated-dodgers/
