@@ -1,3 +1,15 @@
+**Goodell sees 16 international NFL games if league expands season**\
+`"We want to get there quickly," Goodell said about increasing to eight international games.`\
+https://nytimes.com/athletic/5836968/2024/10/12/nfl-international-games-goodell/
+
+**How to Fall in Love With Lentils**\
+`By Mia Leimkuhler`\
+https://nytimes.com/2024/10/12/dining/how-to-fall-in-love-with-lentils.html
+
+**Letters in Song Lyrics and Poetry**\
+`These are some of our favorites from among more than 800 submissions in response to our request for variations on traditional letters.`\
+https://nytimes.com/2024/10/12/opinion/letters/letters-in-song-lyrics-and-poetry.html
+
 **Toplines: October 2024 Times/Siena Poll of Registered Voters in  Arizona**\
 `Results of a New York Times/Siena College poll conducted among 808 likely voters in Arizona from Oct. 7 to 10, 2024.`\
 https://nytimes.com/interactive/2024/10/12/us/elections/times-siena-poll-arizona-toplines.html
