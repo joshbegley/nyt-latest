@@ -1,3 +1,7 @@
+**Arizona State's surprising surge continues, capped by an all-time postgame interview**\
+`After Friday night's win over No. 16 Utah, Arizona State stands 5-1 overall, 2-1 in the Big 12 and on the doorstep of the top 25.`\
+https://nytimes.com/athletic/5838298/2024/10/12/arizona-state-utah-kenny-dillingham-coach-interview-top-25/
+
 **Tennis player association led by Novak Djokovic questions methods of policing doping, corruption**\
 `A letter from the PTPA to the ITIA is the first of a series of maneuvers that could redraw the contract between players and their sport.`\
 https://nytimes.com/athletic/5835245/2024/10/12/tennis-players-doping-itia-ptpa-djokovic/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/opinion/trump-harris-election.html
 **‘Are We Not Humans?’**\
 `My attempt at explaining the murder, rape and famine in Sudan.`\
 https://nytimes.com/2024/10/12/opinion/sudan-famine-rape-murder.html
-
-**One bold prediction for each NHL team in 2024-25: Breakouts, trades and offer sheets**\
-`Utah an offensive powerhouse? Pierre-Luc Dubois deal pays off? The Athletic asked its NHL staff for their 2024-25 bold predictions.`\
-https://nytimes.com/athletic/5835520/2024/10/12/nhl-2024-2025-season-predictions/
 
