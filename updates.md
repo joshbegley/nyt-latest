@@ -1,3 +1,11 @@
+**What we learned in the NLDS and ALDS: Bullpens, large sluggers, Steven Kwan is back**\
+`Here's what you need to know about each of the four teams that advanced to the League Championship Series.`\
+https://nytimes.com/athletic/5838106/2024/10/12/nlds-alds-dodgers-bullpen-giancarlo-stanton-steven-kwan/
+
+**UNC football's Tylee Craft dies after lung cancer diagnosis**\
+`Craft was diagnosed with a rare form of cancer lung cancer in March 2022.`\
+https://nytimes.com/athletic/5838694/2024/10/12/tylee-craft-unc-cancer-death/
+
 **'Best game he's played as an NHL player': Why Matt Poitras could be the difference-maker**\
 `Poitras is stronger, hungrier, just as skilled and far more confident than when he exited the lineup early last season.`\
 https://nytimes.com/athletic/5838749/2024/10/12/bruins-kings-matt-poitras-david-pastrnak/

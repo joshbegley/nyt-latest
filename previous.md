@@ -1,3 +1,11 @@
+**What we learned in the NLDS and ALDS: Bullpens, large sluggers, Steven Kwan is back**\
+`Here's what you need to know about each of the four teams that advanced to the League Championship Series.`\
+https://nytimes.com/athletic/5838106/2024/10/12/nlds-alds-dodgers-bullpen-giancarlo-stanton-steven-kwan/
+
+**UNC football's Tylee Craft dies after lung cancer diagnosis**\
+`Craft was diagnosed with a rare form of cancer lung cancer in March 2022.`\
+https://nytimes.com/athletic/5838694/2024/10/12/tylee-craft-unc-cancer-death/
+
 **'Best game he's played as an NHL player': Why Matt Poitras could be the difference-maker**\
 `Poitras is stronger, hungrier, just as skilled and far more confident than when he exited the lineup early last season.`\
 https://nytimes.com/athletic/5838749/2024/10/12/bruins-kings-matt-poitras-david-pastrnak/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5838542/2024/10/12/guardians-tigers-mlb-game5-takea
 **Alabama avoids another upset but raises more questions**\
 `No. 7 Alabama and first-year coach Kalen DeBoer avoided a second loss in as many weeks, hanging on against unranked South Carolina. `\
 https://nytimes.com/athletic/5838584/2024/10/12/alabama-south-carolina-score-results-takeaways/
-
-**Iowa coach Kirk Ferentz earns 200th career win as Big Ten coach**\
-`The earliest Ferentz could tie Hayes’ mark for most wins by a Big Ten head coach would be Nov. 23 at Maryland.`\
-https://nytimes.com/athletic/5838576/2024/10/12/iowa-kirk-ferentz-big-ten-wins-record/
-
-**Should we re-evaluate Wisconsin's ceiling? Takeaways from Badgers' rout at Rutgers**\
-`It was near perfection for the Badgers, who rolled to a 42-7 win at Rutgers on Saturday afternoon.`\
-https://nytimes.com/athletic/5838556/2024/10/12/wisconsin-rutgers-tawee-walker-big-ten/
 
