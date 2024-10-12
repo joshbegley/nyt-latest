@@ -1,3 +1,11 @@
+**Mayor Adams’s Rivals Reveal Fund-Raising Totals. Mr. Adams? Who Knows.**\
+`With Mayor Eric Adams’s future in flux as he faces federal bribery charges, his challengers prepare for the possibility of an election before the June primary.`\
+https://nytimes.com/2024/10/11/nyregion/mayor-adams-election-fund-raising.html
+
+**Blissful Stretch**\
+`Katie Hoody makes a New York Times Crossword debut with feeling.`\
+https://nytimes.com/2024/10/11/crosswords/daily-puzzle-2024-10-12.html
+
 **Harris Says She Would Form Bipartisan Council of Advisers**\
 `The stop in Arizona was part of the Harris campaign’s strategy to court Republicans disaffected with former President Donald J. Trump.`\
 https://nytimes.com/2024/10/11/us/politics/harris-bipartisan-council-of-advisers.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-pets-animals.htm
 **A Retirement Community Prepared for a Hurricane. Tornadoes Came Instead.**\
 `Hurricane Milton’s death toll was highest far from the coast where it made landfall, in a retirement community where few were braced for destructive tornadoes.`\
 https://nytimes.com/2024/10/11/us/hurricane-milton-tornado-florida-deaths.html
-
-**Scared by Helene, Everyone in This Florida Beach Town Evacuated for Milton**\
-`Over time, the question of whether to stay or go will likely become a question of whether to keep living in coastal or low-lying areas at all.`\
-https://nytimes.com/2024/10/11/us/hurricane-helene-milton-florida-evacuations.html
-
-**Arizona Democrats Shut Down a Phoenix Campaign Office After Shootings**\
-`The office was hit three times after hours, once with a BB gun and twice with a firearm. No one was hurt, the authorities said.`\
-https://nytimes.com/2024/10/11/us/politics/arizona-democrats-shut-down-a-phoenix-campaign-office-after-shootings.html
 
