@@ -18,8 +18,8 @@ https://nytimes.com/2024/10/11/theater/suffs-broadway-closing.html
 `Jake Ciely has what you need to set your fantasy football lineup, breaking down the sleepers and need-to-know stats for the Week 6 slate.`\
 https://nytimes.com/athletic/5829747/2024/10/11/fantasy-football-rankings-week-6-sleepers-projections-starts-jalen-tolbert-chase-brown/
 
-**Florida Animals Evacuated, Too**\
-`As Milton approached, thousands of animals — from pitbulls to rare corals — were relocated to other places. Some are heading home.`\
+**Milton Leaves Some Florida Animals in Limbo, Too**\
+`Florida’s animal shelters are struggling after the storm. Animal organizations are helping fly some pets to faraway shelters.`\
 https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-pets-animals.html
 
 **A Retirement Community Prepared for a Hurricane. Tornadoes Came Instead.**\
