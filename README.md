@@ -1,3 +1,7 @@
+**Saka, Jones to not travel with England for Finland clash**\
+`Bukayo Saka and Curtis Jones will not travel with England for their Nations League clash against Finland on Sunday.`\
+https://nytimes.com/athletic/5838280/2024/10/12/bukayo-saka-curtis-jones-england-finland/
+
 **For These Americans, Mexico Is Their Country Too**\
 `More than 25 years after Mexico began recognizing dual nationals, some U.S.-born children of Mexican immigrants are claiming citizenship in the country that their parents once left.`\
 https://nytimes.com/2024/10/12/us/us-mexico-dual-citizenship.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/style/glossier-emily-weiss.html
 **5 Takeaways From Vance’s Interview With The New York Times**\
 `Pressed to say if he thought the 2020 election was stolen, JD Vance repeatedly sidestepped. And he defended the sentiment behind his “childless cat ladies” comment, even as he regretted his word choice.`\
 https://nytimes.com/2024/10/12/us/politics/vance-interview-takeaways.html
-
-**Trump Leads in Arizona as Harris Holds an Edge in Pennsylvania, New Polls Show**\
-`The latest Times/Inquirer/Siena polls found Donald Trump with a six-point advantage in Arizona, and Kamala Harris with a four-point lead in Pennsylvania.`\
-https://nytimes.com/2024/10/12/us/politics/times-siena-arizona-pennsylvania-polls.html
 
