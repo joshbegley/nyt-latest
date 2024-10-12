@@ -1,3 +1,12 @@
+**Jaguars vs. Bears odds, picks, how to watch: Williams, Lawrence face off in London**\
+`The Jags make their 12th visit to London to face Caleb Williams and the Bears in a tight and unpredictable matchup.`\
+https://nytimes.com/athletic/5836983/2024/10/12/jaguars-bears-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Lowetide: The Oilers, Raphael Lavoie and signs of life in Bakersfield**\
+`The transactions involving the former top prospect don't reflect well on new Oilers GM Stan Bowman or his management team.
+`\
+https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
+
 **California Rejects Bid for More Frequent SpaceX Launches**\
 `A commission denied a request to increase the number of rocket launches on the state’s central coast, citing environmental concerns.`\
 https://nytimes.com/2024/10/12/us/spacex-launch-california.html
@@ -25,12 +34,4 @@ https://nytimes.com/athletic/5838106/2024/10/12/nlds-alds-dodgers-bullpen-gianca
 **UNC football's Tylee Craft dies after lung cancer diagnosis**\
 `The Tar Heels honored Craft's family on the field at Kenan Memorial Stadium on Saturday.`\
 https://nytimes.com/athletic/5838694/2024/10/12/tylee-craft-unc-cancer-death/
-
-**'Best game he's played as an NHL player': Why Matt Poitras could be the difference-maker**\
-`Poitras is stronger, hungrier, just as skilled and far more confident than when he exited the lineup early last season.`\
-https://nytimes.com/athletic/5838749/2024/10/12/bruins-kings-matt-poitras-david-pastrnak/
-
-**Carsley says he did not formally apply to become England manager**\
-`Lee Carsley has revealed that he did not formally apply to become the next England manager after Gareth Southgate’s resignation.`\
-https://nytimes.com/athletic/5838773/2024/10/12/lee-carsley-england-manager-next/
 
