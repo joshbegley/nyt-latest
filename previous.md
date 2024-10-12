@@ -1,3 +1,7 @@
+**Carsley says he did not formally apply to become England manager**\
+`Lee Carsley has revealed that he did not formally apply to become the next England manager after Gareth Southgate’s resignation.`\
+https://nytimes.com/athletic/5838773/2024/10/12/lee-carsley-england-manager-next/
+
 **Ranking the 4 remaining possible World Series matchups, from least to most interesting**\
 `Now that we're down to MLB's final four, every matchup is fascinating in its own way.`\
 https://nytimes.com/athletic/5838628/2024/10/12/world-series-matchups-mlb-rankings-lcs/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838556/2024/10/12/wisconsin-rutgers-tawee-walker-b
 **Guardians' Lane Thomas hits grand slam off Tarik Skubal in Game 5**\
 `Thomas saw just one pitch from Skubal — a 97 mph sinker — and blasted it out to left-center field.`\
 https://nytimes.com/athletic/5838595/2024/10/12/guardians-lane-thomas-grand-slam-tarik-skubal-game-5-alds/
-
-**Map: 6.2-Magnitude Earthquake Strikes Near Costa Rica**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2024/10/12/world/americas/quake-tracker-costa-rica.html
 

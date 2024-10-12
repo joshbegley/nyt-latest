@@ -1,3 +1,7 @@
+**Carsley says he did not formally apply to become England manager**\
+`Lee Carsley has revealed that he did not formally apply to become the next England manager after Gareth Southgate’s resignation.`\
+https://nytimes.com/athletic/5838773/2024/10/12/lee-carsley-england-manager-next/
+
 **Ranking the 4 remaining possible World Series matchups, from least to most interesting**\
 `Now that we're down to MLB's final four, every matchup is fascinating in its own way.`\
 https://nytimes.com/athletic/5838628/2024/10/12/world-series-matchups-mlb-rankings-lcs/
