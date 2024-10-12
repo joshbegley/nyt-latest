@@ -1,3 +1,7 @@
+**Biden Declares Disaster From Milton Ahead of Florida Visit**\
+`The president will visit communities ravaged by Hurricane Milton on Sunday. The disaster declaration will enable funds for the state to be deployed.`\
+https://nytimes.com/2024/10/12/us/politics/biden-milton-florida-disaster.html
+
 **Guardians Grand Slam their way to a Game 5 victory over Tigers: Takeaways**\
 `This Game 5 had everything: Major momentum swings, a hit batter with the bases loaded and a go-ahead Grand Slam. `\
 https://nytimes.com/athletic/5838542/2024/10/12/guardians-tigers-mlb-game5-takeaways/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/us/cole-bridges-army-isis-sentencing.html
 **England will be 'more conventional' against Finland after Greece defeat - Carsley**\
 `Lee Carsley has said that England will be &#8220;a little bit more conventional&#8221; against Finland on Sunday night than they were against Greece.`\
 https://nytimes.com/athletic/5838560/2024/10/12/lee-carsley-england-finland-nations-league/
-
-**How will the Bills respond to a desperate Jets team? Who could step up at WR?**\
-`Before the Bills trade for a wide receiver, perhaps they should see what they have in house, including from two talented speedsters.`\
-https://nytimes.com/athletic/5838460/2024/10/12/bills-jets-robert-saleh-khalil-shakir/
 

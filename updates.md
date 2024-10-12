@@ -1,3 +1,7 @@
+**Biden Declares Disaster From Milton Ahead of Florida Visit**\
+`The president will visit communities ravaged by Hurricane Milton on Sunday. The disaster declaration will enable funds for the state to be deployed.`\
+https://nytimes.com/2024/10/12/us/politics/biden-milton-florida-disaster.html
+
 **Guardians Grand Slam their way to a Game 5 victory over Tigers: Takeaways**\
 `This Game 5 had everything: Major momentum swings, a hit batter with the bases loaded and a go-ahead Grand Slam. `\
 https://nytimes.com/athletic/5838542/2024/10/12/guardians-tigers-mlb-game5-takeaways/
