@@ -1,3 +1,7 @@
+**Love Lessons**\
+`The editor of the long-running Modern Love column reflects on two decades of working with people’s deeply personal stories.`\
+https://nytimes.com/2024/10/12/briefing/love-lessons.html
+
 **Southwest Division notes: Grizzlies' penchant for pace, Şengün's shooting and more**\
 `Also: Why Harrison Barnes could be the connector Victor Wembanyama and the Spurs need.`\
 https://nytimes.com/athletic/5829794/2024/10/12/desmond-bane-grizzlies-pace-alperen-sengun-rockets/

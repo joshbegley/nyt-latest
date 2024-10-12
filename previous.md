@@ -1,3 +1,7 @@
+**Love Lessons**\
+`The editor of the long-running Modern Love column reflects on two decades of working with people’s deeply personal stories.`\
+https://nytimes.com/2024/10/12/briefing/love-lessons.html
+
 **Southwest Division notes: Grizzlies' penchant for pace, Şengün's shooting and more**\
 `Also: Why Harrison Barnes could be the connector Victor Wembanyama and the Spurs need.`\
 https://nytimes.com/athletic/5829794/2024/10/12/desmond-bane-grizzlies-pace-alperen-sengun-rockets/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/crosswords/connections-companion-490.html
 **Saka, Jones to not travel with England for Finland clash**\
 `Bukayo Saka and Curtis Jones will not travel with England for their Nations League clash against Finland on Sunday.`\
 https://nytimes.com/athletic/5838280/2024/10/12/bukayo-saka-curtis-jones-england-finland/
-
-**For These Americans, Mexico Is Their Country Too**\
-`More than 25 years after Mexico began recognizing dual nationals, some U.S.-born children of Mexican immigrants are claiming citizenship in the country that their parents once left.`\
-https://nytimes.com/2024/10/12/us/us-mexico-dual-citizenship.html
 
