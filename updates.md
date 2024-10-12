@@ -1,3 +1,7 @@
+**Saka, Jones to not travel with England for Finland clash**\
+`Bukayo Saka and Curtis Jones will not travel with England for their Nations League clash against Finland on Sunday.`\
+https://nytimes.com/athletic/5838280/2024/10/12/bukayo-saka-curtis-jones-england-finland/
+
 **For These Americans, Mexico Is Their Country Too**\
 `More than 25 years after Mexico began recognizing dual nationals, some U.S.-born children of Mexican immigrants are claiming citizenship in the country that their parents once left.`\
 https://nytimes.com/2024/10/12/us/us-mexico-dual-citizenship.html
