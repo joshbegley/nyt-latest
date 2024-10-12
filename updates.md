@@ -1,3 +1,7 @@
+**On the Trail, Vance Is Dogged by Questions About Trump’s Loss in 2020**\
+`Speaking at a factory for military vehicles in Johnstown, Pa., Senator JD Vance of Ohio again refused to acknowledge former President Donald J. Trump’s defeat in the 2020 election.`\
+https://nytimes.com/2024/10/12/us/politics/jd-vance-trump-2020.html
+
 **Yankees vs. Guardians ALCS preview: Predictions, pitching matchups and more**\
 `The Yankees and Guardians are set to meet in an ALCS that's a rematch of the 2022 ALDS won by New York. Our writers preview the series. `\
 https://nytimes.com/athletic/5838737/2024/10/12/yankees-guardians-2024-alcs-preview-predictions/
