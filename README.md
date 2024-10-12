@@ -1,3 +1,7 @@
+**Fernandes keen to rediscover goalscoring form for Manchester United**\
+`Manchester United captain Bruno Fernandes says he takes responsibility for his recent lack of goals and is determined to get back to his best form as quickly as possible.`\
+https://nytimes.com/athletic/5838291/2024/10/12/bruno-fernandes-manchester-united-goals/
+
 **Love Lessons**\
 `The editor of the long-running Modern Love column reflects on two decades of working with people’s deeply personal stories.`\
 https://nytimes.com/2024/10/12/briefing/love-lessons.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/crosswords/wordle-review-1212.html
 **The Connections Companion No. 490**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 13, 2024.`\
 https://nytimes.com/2024/10/12/crosswords/connections-companion-490.html
-
-**Saka, Jones to not travel with England for Finland clash**\
-`Bukayo Saka and Curtis Jones will not travel with England for their Nations League clash against Finland on Sunday.`\
-https://nytimes.com/athletic/5838280/2024/10/12/bukayo-saka-curtis-jones-england-finland/
 
