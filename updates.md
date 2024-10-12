@@ -63,6 +63,11 @@ https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-
 `\
 https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
 
+**Canucks stars disappoint, Tyler Myers injured in loss to Flyers: 3 takeaways**\
+`Friday night, the Canucks’ best players didn’t move the needle for most of the game, allowing the Flyers to keep it close and win 3-2.
+`\
+https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
+
 **Dodgers vs. Mets NLCS preview: Predictions, pitching matchups and more**\
 `The Dodgers have the most talented player in the game. The Mets are riding an incredible wave of momentum. Our writers preview the NLCS. `\
 https://nytimes.com/athletic/5838100/2024/10/12/dodgers-mets-2024-nlcs-preview-predictions/
