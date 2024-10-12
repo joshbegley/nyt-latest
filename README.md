@@ -1,3 +1,7 @@
+**'Best game he's played as an NHL player': Why Matt Poitras could be the difference-maker**\
+`Poitras is stronger, hungrier, just as skilled and far more confident than when he exited the lineup early last season.`\
+https://nytimes.com/athletic/5838749/2024/10/12/bruins-kings-matt-poitras-david-pastrnak/
+
 **Carsley says he did not formally apply to become England manager**\
 `Lee Carsley has revealed that he did not formally apply to become the next England manager after Gareth Southgate’s resignation.`\
 https://nytimes.com/athletic/5838773/2024/10/12/lee-carsley-england-manager-next/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838576/2024/10/12/iowa-kirk-ferentz-big-ten-wins-r
 **Should we re-evaluate Wisconsin's ceiling? Takeaways from Badgers' rout at Rutgers**\
 `It was near perfection for the Badgers, who rolled to a 42-7 win at Rutgers on Saturday afternoon.`\
 https://nytimes.com/athletic/5838556/2024/10/12/wisconsin-rutgers-tawee-walker-big-ten/
-
-**Guardians' Lane Thomas hits grand slam off Tarik Skubal in Game 5**\
-`Thomas saw just one pitch from Skubal — a 97 mph sinker — and blasted it out to left-center field.`\
-https://nytimes.com/athletic/5838595/2024/10/12/guardians-lane-thomas-grand-slam-tarik-skubal-game-5-alds/
 
