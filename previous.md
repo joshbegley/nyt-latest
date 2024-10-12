@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Ta-Nehisi Coates**\
+`The Oct. 11, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/10/11/podcasts/transcript-ezra-klein-interviews-ta-nehisi-coates.html
+
 **Kiké Hernández powers Dodgers past Padres and into NLCS: Takeaways**\
 `LOS ANGELES — The Los Angeles Dodgers are returning to the National League Championship Series for the first time since 2021, taking Game 5 from the San Diego Padres, 2-0.`\
 https://nytimes.com/athletic/5838016/2024/10/11/dodgers-padres-nlds-kike-hernandez/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/theater/suffs-broadway-closing.html
 **Fantasy football rankings Week 6: Sleepers, projections, starts**\
 `Jake Ciely has what you need to set your fantasy football lineup, breaking down the sleepers and need-to-know stats for the Week 6 slate.`\
 https://nytimes.com/athletic/5829747/2024/10/11/fantasy-football-rankings-week-6-sleepers-projections-starts-jalen-tolbert-chase-brown/
-
-**Milton Leaves Some Florida Animals in Limbo, Too**\
-`Florida’s animal shelters are struggling after the storm. Animal organizations are helping fly some pets to faraway shelters.`\
-https://nytimes.com/2024/10/11/weather/hurricane-milton-florida-pets-animals.html
 

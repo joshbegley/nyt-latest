@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein Interviews Ta-Nehisi Coates**\
+`The Oct. 11, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/10/11/podcasts/transcript-ezra-klein-interviews-ta-nehisi-coates.html
+
 **Kiké Hernández powers Dodgers past Padres and into NLCS: Takeaways**\
 `LOS ANGELES — The Los Angeles Dodgers are returning to the National League Championship Series for the first time since 2021, taking Game 5 from the San Diego Padres, 2-0.`\
 https://nytimes.com/athletic/5838016/2024/10/11/dodgers-padres-nlds-kike-hernandez/
