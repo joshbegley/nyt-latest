@@ -1,3 +1,7 @@
+**Map: 6.2-Magnitude Earthquake Strikes Near Costa Rica**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/10/12/world/americas/quake-tracker-costa-rica.html
+
 **Former U.S. Soldier Is Sentenced to 14 Years for Planning to Help ISIS**\
 `Pvt. Cole Bridges pleaded guilty in 2023 to charges of attempting to provide material support to a foreign terrorist organization and attempting to murder U.S. military service members.`\
 https://nytimes.com/2024/10/12/us/cole-bridges-army-isis-sentencing.html
