@@ -1,3 +1,7 @@
+**Boot Found at Everest Could Be From Climber Who Vanished 100 Years Ago**\
+`When Sandy Irvine went on a pioneering expedition to Mount Everest’s summit in 1924, he and his partner vanished. The recent discovery may shed light on the ill-fated adventure.`\
+https://nytimes.com/2024/10/12/world/asia/sandy-irvine-remains-everest.html
+
 **Jaguars vs. Bears odds, picks, how to watch: Williams, Lawrence face off in London**\
 `The Jags make their 12th visit to London to face Caleb Williams and the Bears in a tight and unpredictable matchup.`\
 https://nytimes.com/athletic/5836983/2024/10/12/jaguars-bears-odds-expert-picks-how-to-watch-predictions-betting/
@@ -30,8 +34,4 @@ https://nytimes.com/2024/10/12/crosswords/daily-puzzle-2024-10-13.html
 **What we learned in the NLDS and ALDS: Bullpens, large sluggers, Steven Kwan is back**\
 `Here's what you need to know about each of the four teams that advanced to the League Championship Series.`\
 https://nytimes.com/athletic/5838106/2024/10/12/nlds-alds-dodgers-bullpen-giancarlo-stanton-steven-kwan/
-
-**UNC football's Tylee Craft dies after lung cancer diagnosis**\
-`The Tar Heels honored Craft's family on the field at Kenan Memorial Stadium on Saturday.`\
-https://nytimes.com/athletic/5838694/2024/10/12/tylee-craft-unc-cancer-death/
 
