@@ -1,3 +1,11 @@
+**Are the Blackhawks disqualified from the NHL lottery? Will Igor Shesterkin hit free agency? Ask CJ**\
+`Also in Chris Johnston's mailbag: Will Amazon expand its NHL coverage? Is a Joel Quenneville return inevitable? Dark horse Cup pick?`\
+https://nytimes.com/athletic/5837362/2024/10/12/blackhawks-nhl-lottery-shesterkin-swayman/
+
+**Executives and Research Disagree About Hybrid Work’s Value. Why?**\
+`Companies like Amazon have required a return to the office five days a week despite findings showing benefits to employers that allow some remote days.`\
+https://nytimes.com/2024/10/12/business/dealbook/executives-and-research-disagree-about-hybrid-work.html
+
 **Rosenthal: Dave Roberts lands on one good outcome after another as Dodgers advance to NLCS**\
 `The Dodgers used 17 pitchers to cover 24 scoreless innings in closing out the series.`\
 https://nytimes.com/athletic/5838313/2024/10/12/dave-roberts-dodgers-nlcs-mlb-playoffs/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5835520/2024/10/12/nhl-2024-2025-season-predictions
 **This Election Will Need More Heroes**\
 `Honorable public servants of both parties upheld democracy after the 2020 election. America is counting on them again to do their duty.`\
 https://nytimes.com/2024/10/12/opinion/election-2024-voter-suppression.html
-
-**What if Trump Wins Like This?**\
-`The way he is now running is the best window we have into what kind of president he will be in a second term.`\
-https://nytimes.com/2024/10/12/opinion/trump-second-term.html
-
-**For the Sake of the Planet, Nations Must Protect What Is Still Wild**\
-`Much of what’s still undeveloped offers some the best defenses against climate change.`\
-https://nytimes.com/2024/10/12/opinion/conservation-wilderness-biodiversity.html
 
