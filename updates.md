@@ -43,6 +43,11 @@ https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-
 `\
 https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
 
+**Canucks stars disappoint, Tyler Myers injured in loss to Flyers: 3 takeaways**\
+`Friday night, the Canucks’ best players didn’t move the needle for most of the game, allowing the Flyers to keep it close and win 3-2.
+`\
+https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
+
 **Kiké Hernández delivers again as Dodgers advance: 'He's not afraid of the moment'**\
 `Hernández’ had a message for Andrew Friedman before the first pitch, telling the club’s architect, “I’m going to win you this game."`\
 https://nytimes.com/athletic/5838183/2024/10/12/dodgers-kike-hernandez-nlds-padres/
