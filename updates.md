@@ -1,3 +1,7 @@
+**The Cutting-Edge Hearing Aids That You May Already Own**\
+`Apple is preparing to turn its AirPods Pro 2 into easy-to-use aids for people with mild to moderate hearing loss.`\
+https://nytimes.com/2024/10/12/health/apple-airpods-hearing-aids.html
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/12/us/trump-harris-election/heres-the-latest-on-the-presidential-race

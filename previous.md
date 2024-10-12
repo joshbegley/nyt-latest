@@ -1,3 +1,7 @@
+**The Cutting-Edge Hearing Aids That You May Already Own**\
+`Apple is preparing to turn its AirPods Pro 2 into easy-to-use aids for people with mild to moderate hearing loss.`\
+https://nytimes.com/2024/10/12/health/apple-airpods-hearing-aids.html
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/10/12/us/trump-harris-election/heres-the-latest-on-the-presidential-race
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838313/2024/10/12/dave-roberts-dodgers-nlcs-mlb-pl
 **A Mystery Repeats: Harris Up 4 in Pennsylvania, and Trump Up 6 in Arizona**\
 `Being uncertain about our earlier poll results but finding almost the same numbers the next time around.`\
 https://nytimes.com/2024/10/12/upshot/harris-trump-polls-election.html
-
-**For Trump and Harris, the Media Future Is Now**\
-`Who are these people, and why are they interviewing presidential candidates?`\
-https://nytimes.com/2024/10/12/opinion/harris-trump-interviews.html
 
