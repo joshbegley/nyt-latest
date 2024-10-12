@@ -1,3 +1,7 @@
+**Lions, David Montgomery agree to 2-year contract extension**\
+`Montgomery, 27, rushed for 1,286 rushing yards and 17 touchdowns through the first 18 games of his Lions tenure.`\
+https://nytimes.com/athletic/5839019/2024/10/12/david-montgomery-lions-contract-extension/
+
 **Lowetide: The Oilers, Raphael Lavoie and signs of life in Bakersfield**\
 `The transactions involving the former top prospect don't reflect well on new Oilers GM Stan Bowman or his management team.
 `\

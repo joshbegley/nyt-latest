@@ -1,3 +1,7 @@
+**Lions, David Montgomery agree to 2-year contract extension**\
+`Montgomery, 27, rushed for 1,286 rushing yards and 17 touchdowns through the first 18 games of his Lions tenure.`\
+https://nytimes.com/athletic/5839019/2024/10/12/david-montgomery-lions-contract-extension/
+
 **Notre Dame takeaways: Did Riley Leonard show Irish can win with offense?**\
 `Leonard delivered his best performance in a Notre Dame uniform in the Irish's 49-7 win against Stanford.`\
 https://nytimes.com/athletic/5838870/2024/10/12/notre-dame-stanford-score-riley-leonard/
@@ -29,9 +33,4 @@ https://nytimes.com/2024/10/12/world/asia/sandy-irvine-remains-everest.html
 **Jaguars vs. Bears odds, picks, how to watch: Williams, Lawrence face off in London**\
 `The Jags make their 12th visit to London to face Caleb Williams and the Bears in a tight and unpredictable matchup.`\
 https://nytimes.com/athletic/5836983/2024/10/12/jaguars-bears-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Lowetide: The Oilers, Raphael Lavoie and signs of life in Bakersfield**\
-`The transactions involving the former top prospect don't reflect well on new Oilers GM Stan Bowman or his management team.
-`\
-https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
 
