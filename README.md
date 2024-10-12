@@ -1,3 +1,11 @@
+**JD Vance’s Election Denialism Is Deepening**\
+`Fool me once? Shame on you. Fool me five times?`\
+https://nytimes.com/2024/10/12/opinion/jd-vance-election-denial.html
+
+**Oregon's Jordan Burch uncertain vs. Ohio State after injury in practice**\
+`Burch leads the Ducks with five sacks among his seven tackles for loss.`\
+https://nytimes.com/athletic/5835020/2024/10/12/jordan-burch-oregon-injury/
+
 **Allan Blye, 87, Dies; ‘Smothers Brothers’ Writer and ‘Super Dave’ Creator**\
 `In his wide-ranging career, he also helped write Elvis Presley’s comeback special and appeared on an early version of “Mister Rogers’ Neighborhood.”`\
 https://nytimes.com/2024/10/12/arts/television/allan-blye-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2024/10/12/us/elections/times-siena-poll-arizona
 **Russini’s what I’m hearing: Saleh’s foiled plan to save Jets offense, Steelers’ Justin Fields feelings**\
 `Plus, two rookie QBs make their starting debuts, those aging Bengals, Mile High Ferris Bueller, and more. `\
 https://nytimes.com/athletic/5838071/2024/10/12/nfl-insider-jets-offensive-coordinator-justin-fields-russell-wilson-steelers-starter/
-
-**JD Vance: Not Having Kids Due to Climate Change Is ‘Crazy’**\
-`Senator JD Vance, the Republican vice-president nominee, said that considering climate change when deciding to have kids was a “bizarre way to think about the future.”`\
-https://nytimes.com/video/podcasts/100000009756770/jd-vance-not-having-kids-due-to-climate-change-is-crazy.html
-
-**Secret Documents Show Hamas Tried to Persuade Iran to Join Its Oct. 7 Attack**\
-`The Times reviewed the minutes of 10 meetings among Hamas’s top leaders. The records show the militant group avoided several escalations since 2021 to falsely imply it had been deterred — while seeking Iranian support for a major attack.`\
-https://nytimes.com/2024/10/12/world/middleeast/hamas-israel-war.html
 
