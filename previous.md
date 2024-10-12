@@ -1,3 +1,31 @@
+**Southwest Division notes: Grizzlies' penchant for pace, Şengün's shooting and more**\
+`Also: Why Harrison Barnes could be the connector Victor Wembanyama and the Spurs need.`\
+https://nytimes.com/athletic/5829794/2024/10/12/desmond-bane-grizzlies-pace-alperen-sengun-rockets/
+
+**How Eric Comrie returned to Jets and reclaimed backup goalie job**\
+`WINNIPEG — Eric Comrie left the Winnipeg Jets two seasons ago in search of opportunity — a starter&#8217;s net, in an ideal world, or a time share if he couldn&#8217;t manage that.`\
+https://nytimes.com/athletic/5837786/2024/10/12/eric-comrie-winnipeg-jets-kaapo-kahkonen/
+
+**Alphonso Davies interview: How a 'shy kid' became Canada captain - and what that means to him**\
+`At 16, Davies was Canada's youngest ever player. Now, at 23, he is their captain. He sits down with The Athletic ahead of a big two years`\
+https://nytimes.com/athletic/5836293/2024/10/12/alphonso-davies-canada-captain-interview/
+
+**Is this Christian Pulisic the best ever Christian Pulisic?**\
+`The USMNT forward joins up for Pochettino's first camp in arguably the best form of his career, having starred for Milan this season`\
+https://nytimes.com/athletic/5830720/2024/10/12/christian-pulisic-milan-form-usmnt-pochettino/
+
+**In British Columbia, a Political Party’s Collapse Echoes an Earlier Election**\
+`The end of a coalition of Conservatives and Liberals over 70 years ago led to a surprising election result and reshaped the province’s politics.`\
+https://nytimes.com/2024/10/12/world/canada/british-columbia-liberal-party-election.html
+
+**Wordle Review No. 1,212**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 13, 2024.`\
+https://nytimes.com/2024/10/12/crosswords/wordle-review-1212.html
+
+**The Connections Companion No. 490**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 13, 2024.`\
+https://nytimes.com/2024/10/12/crosswords/connections-companion-490.html
+
 **Saka, Jones to not travel with England for Finland clash**\
 `Bukayo Saka and Curtis Jones will not travel with England for their Nations League clash against Finland on Sunday.`\
 https://nytimes.com/athletic/5838280/2024/10/12/bukayo-saka-curtis-jones-england-finland/
@@ -5,32 +33,4 @@ https://nytimes.com/athletic/5838280/2024/10/12/bukayo-saka-curtis-jones-england
 **For These Americans, Mexico Is Their Country Too**\
 `More than 25 years after Mexico began recognizing dual nationals, some U.S.-born children of Mexican immigrants are claiming citizenship in the country that their parents once left.`\
 https://nytimes.com/2024/10/12/us/us-mexico-dual-citizenship.html
-
-**Israeli Strikes on Northern Gaza Kill at Least 20, Aid Workers Say**\
-`Israel’s military said it was “operating with great force” against Hamas and allied groups and issued new evacuation orders, as it also continued its campaign in Lebanon.`\
-https://nytimes.com/2024/10/12/world/middleeast/israel-gaza-lebanon-attacks.html
-
-**Former Liverpool defender Matip retires from football**\
-`Former Liverpool defender Joel Matip has retired from football at the age of 33.`\
-https://nytimes.com/athletic/5837230/2024/10/12/joel-matip-liverpool-retires/
-
-**A Conversation With JD Vance**\
-`The Republican vice-presidential candidate rejects the idea that he’s changed, defends his rhetoric and still won’t say if Trump lost in 2020.`\
-https://nytimes.com/2024/10/12/magazine/jd-vance-interview.html
-
-**‘The Interview’: A Conversation With JD Vance**\
-`The Republican vice-presidential candidate rejects the idea that he’s changed, defends his rhetoric and still won’t say if Trump lost in 2020.`\
-https://nytimes.com/video/magazine/100000009758644/the-interview-a-conversation-with-jd-vance.html
-
-**Daring Trump, Harris’s Campaign Says It Will Release Her Medical Information**\
-`Vice President Kamala Harris’s campaign is trying to capitalize on a lack of health information shared by her rival. Candidates are often selective about what they choose to share.`\
-https://nytimes.com/2024/10/12/us/politics/harris-medical-records-trump.html
-
-**How Does Glossier’s Founder Define Success?**\
-`Emily Weiss, whose company just turned 10, bases her definition on relationships. Plus, jewelry shopping from coast to coast and Wet Seal’s gilded age.`\
-https://nytimes.com/2024/10/12/style/glossier-emily-weiss.html
-
-**5 Takeaways From Vance’s Interview With The New York Times**\
-`Pressed to say if he thought the 2020 election was stolen, JD Vance repeatedly sidestepped. And he defended the sentiment behind his “childless cat ladies” comment, even as he regretted his word choice.`\
-https://nytimes.com/2024/10/12/us/politics/vance-interview-takeaways.html
 
