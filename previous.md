@@ -1,3 +1,19 @@
+**City Hall Is in Crisis. Who’s Running New York?**\
+`Mayor Eric Adams is relying on a group of respected civil servants to run the city and a trio of advisers to salvage his political career. Some say it’s too late.`\
+https://nytimes.com/2024/10/12/nyregion/eric-adams-administration.html
+
+**How Eric Adams Could Leave Office, and Who Hopes to Succeed Him**\
+`Mr. Adams’s political future is in doubt after federal prosecutors indicted him on corruption charges in one of several inquiries ensnaring City Hall.`\
+https://nytimes.com/interactive/2024/nyregion/eric-adams-nyc-mayor-succession.html
+
+**How Taryn Delanie Smith, TikTok’s Heaven Receptionist, Spends Sundays**\
+`Taryn Delanie Smith, a former Miss New York, takes a long stroll with her husband and Great Dane and cues up her Sunday playlist with an Ina Garten-inspired dinner.`\
+https://nytimes.com/2024/10/12/nyregion/taryn-delanie-smith-tiktok.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/12/crosswords/spelling-bee-forum.html
+
 **76ers preseason: Take Paul George, add Tyrese Maxey and imagine Joel Embiid in the mix**\
 `George, in his first appearance as a Sixer, provided a glimpse of why Philadelphia was so excited about signing him in free agency.`\
 https://nytimes.com/athletic/5838149/2024/10/12/76ers-preseason-paul-george/
@@ -18,20 +34,4 @@ https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-
 **Dodgers teammates supported Yoshinobu Yamamoto; he lifted them up in Game 5**\
 `Clayton Kershaw was among the Dodgers to give Yamamoto a pep talk: "You are a stud. You might be a rookie. But you are a stud.”`\
 https://nytimes.com/athletic/5838152/2024/10/12/dodgers-yoshinobu-yamamoto-padres/
-
-**Vinicius Jr's persecution reflects Spanish football's flawed reckoning with racism**\
-`The Real Madrid forward has been targeted for racial abuse at stadiums around the country in recent years`\
-https://nytimes.com/athletic/5836428/2024/10/12/vinicius-jr-real-madrid-racism-la-liga-brazil-spain/
-
-**Blackhawks are weary of moral victories, but OT loss to Jets was a big one: Observations**\
-`The era of silver linings is over. The Blackhawks want gold: “We’re tired of taking moral victories at this point,” Seth Jones said.`\
-https://nytimes.com/athletic/5838127/2024/10/12/blackhawks-jets-nhl-observations/
-
-**How 'shoe doping' changed marathon times forever - in ways we still don't fully understand**\
-`Technology is enabling increasingly fast times but how fair is it when it impacts marathon runners so differently?`\
-https://nytimes.com/athletic/5834953/2024/10/12/shoe-doping-marathon-times-kipchoge/
-
-**Klich interview: 'My only regret at Leeds is getting promoted during Covid'**\
-`Klich reminisces about the six seasons he spent at Leeds United and reflects on his current spell at DC United in MLS`\
-https://nytimes.com/athletic/5836330/2024/10/12/mateusz-klich-interview-leeds-united/
 

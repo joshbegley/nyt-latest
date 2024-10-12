@@ -1,3 +1,24 @@
+**City Hall Is in Crisis. Who’s Running New York?**\
+`Mayor Eric Adams is relying on a group of respected civil servants to run the city and a trio of advisers to salvage his political career. Some say it’s too late.`\
+https://nytimes.com/2024/10/12/nyregion/eric-adams-administration.html
+
+**How Eric Adams Could Leave Office, and Who Hopes to Succeed Him**\
+`Mr. Adams’s political future is in doubt after federal prosecutors indicted him on corruption charges in one of several inquiries ensnaring City Hall.`\
+https://nytimes.com/interactive/2024/nyregion/eric-adams-nyc-mayor-succession.html
+
+**How Taryn Delanie Smith, TikTok’s Heaven Receptionist, Spends Sundays**\
+`Taryn Delanie Smith, a former Miss New York, takes a long stroll with her husband and Great Dane and cues up her Sunday playlist with an Ina Garten-inspired dinner.`\
+https://nytimes.com/2024/10/12/nyregion/taryn-delanie-smith-tiktok.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/12/crosswords/spelling-bee-forum.html
+
+**Canucks stars disappoint, Tyler Myers injured in loss to Flyers: 3 takeaways**\
+`Friday night, the Canucks’ best players didn’t move the needle for most of the game, allowing the Flyers to keep it close and win 3-2.
+`\
+https://nytimes.com/athletic/5838129/2024/10/12/canucks-loss-flyers-tyler-myers-injured/
+
 **Canucks stars disappoint, Tyler Myers injured in loss to Flyers: 3 takeaways**\
 `Friday night, the Canucks’ best players didn’t move the needle for most of the game, allowing the Flyers to keep it close and win 3-2.
 `\
