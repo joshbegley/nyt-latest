@@ -1,3 +1,7 @@
+**Harris Says She Would Form Bipartisan Council of Advisers**\
+`The stop in Arizona was part of the Harris campaign’s strategy to court Republicans disaffected with former President Donald J. Trump.`\
+https://nytimes.com/2024/10/11/us/politics/harris-bipartisan-council-of-advisers.html
+
 **The OB-GYN Running on Abortion Rights in Conservative Wisconsin**\
 `Dr. Kristin Lyerly is looking to make inroads in a heavily Catholic part of the state.`\
 https://nytimes.com/2024/10/11/us/politics/wisconsin-abortion-rights-kristin-lyerly.html

@@ -1,3 +1,7 @@
+**Harris Says She Would Form Bipartisan Council of Advisers**\
+`The stop in Arizona was part of the Harris campaign’s strategy to court Republicans disaffected with former President Donald J. Trump.`\
+https://nytimes.com/2024/10/11/us/politics/harris-bipartisan-council-of-advisers.html
+
 **The OB-GYN Running on Abortion Rights in Conservative Wisconsin**\
 `Dr. Kristin Lyerly is looking to make inroads in a heavily Catholic part of the state.`\
 https://nytimes.com/2024/10/11/us/politics/wisconsin-abortion-rights-kristin-lyerly.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/11/us/hurricane-helene-milton-florida-evacuations.ht
 **Arizona Democrats Shut Down a Phoenix Campaign Office After Shootings**\
 `The office was hit three times after hours, once with a BB gun and twice with a firearm. No one was hurt, the authorities said.`\
 https://nytimes.com/2024/10/11/us/politics/arizona-democrats-shut-down-a-phoenix-campaign-office-after-shootings.html
-
-**As Floridians Return, Officials Size Up Milton’s Uneven Trail of Destruction**\
-`Power outages, gas shortages and pockets of flooding were among the lingering issues. But Gov. Ron DeSantis said the damage could have been worse.`\
-https://nytimes.com/2024/10/11/weather/hurricane-milton-damage.html
 
