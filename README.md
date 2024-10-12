@@ -2,7 +2,7 @@
 `The Real Madrid forward has been targeted for racial abuse at stadiums around the country in recent years`\
 https://nytimes.com/athletic/5836428/2024/10/12/vinicius-jr-real-madrid-racism-la-liga-brazil-spain/
 
-**Blackhawks are weary of moral victories, but overtime loss to Jets was a big one: Observations**\
+**Blackhawks are weary of moral victories, but OT loss to Jets was a big one: Observations**\
 `The era of silver linings is over. The Blackhawks want gold: “We’re tired of taking moral victories at this point,” Seth Jones said.`\
 https://nytimes.com/athletic/5838127/2024/10/12/blackhawks-jets-nhl-observations/
 
