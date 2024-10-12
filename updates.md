@@ -1,3 +1,7 @@
+**'Best game he's played as an NHL player': Why Matt Poitras could be the difference-maker**\
+`Poitras is stronger, hungrier, just as skilled and far more confident than when he exited the lineup early last season.`\
+https://nytimes.com/athletic/5838749/2024/10/12/bruins-kings-matt-poitras-david-pastrnak/
+
 **Carsley says he did not formally apply to become England manager**\
 `Lee Carsley has revealed that he did not formally apply to become the next England manager after Gareth Southgate’s resignation.`\
 https://nytimes.com/athletic/5838773/2024/10/12/lee-carsley-england-manager-next/
