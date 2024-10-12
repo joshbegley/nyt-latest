@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
 
+**Lowetide: The Oilers, Raphael Lavoie and signs of life in Bakersfield**\
+`The transactions involving the former top prospect don't reflect well on new Oilers GM Stan Bowman or his management team.
+`\
+https://nytimes.com/athletic/5838150/2024/10/12/oilers-raphael-lavoie-waivers-bakersfield/
+
 **Boot Found at Everest Could Be From Climber Who Vanished 100 Years Ago**\
 `When Sandy Irvine went on a pioneering expedition to Mount Everest’s summit in 1924, he and his partner vanished. The recent discovery may shed light on the ill-fated adventure.`\
 https://nytimes.com/2024/10/12/world/asia/sandy-irvine-remains-everest.html
