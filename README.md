@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Changes have Zach Werenski poised to reach a new level**\
+`The veteran defenseman scored in each of the Blue Jackets' first two games of the season, including a noteworthy power-play goal.`\
+https://nytimes.com/athletic/5839817/2024/10/13/blue-jackets-zach-werenski-nhl/
+
 **Review: Philharmonic Pays Tribute to Schoenberg**\
 `The New York Philharmonic under Matthias Pintscher brought dramatic urgency to “Pelleas und Melisande” in commemoration of the composer’s 150th birthday.`\
 https://nytimes.com/2024/10/13/arts/dance/review-new-york-philharmonic-matthias-pintscher.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5840031/2024/10/13/anthony-richardson-joe-flacco-st
 **Abdul Salaam, Quiet Member of the Jets’ ‘Sack Exchange,’ Dies at 71**\
 `A defensive tackle, he teamed with Joe Klecko, Mark Gastineau and Marty Lyons in the 1980s on a line that terrorized quarterbacks.`\
 https://nytimes.com/2024/10/13/sports/football/abdul-salaam-dead.html
-
-**The Pulse: Down goes Ohio State**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/5840024/2024/10/13/ohio-state-oregon-nfl-schedule-the-pulse/
 
