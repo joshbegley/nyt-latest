@@ -1,3 +1,7 @@
+**Oregon WR Holden ejected for spitting on Ohio State CB Ignoshobin**\
+`No. 3 Oregon now has to finish its tight matchup against No. 2 Ohio State without one of its top receivers.`\
+https://nytimes.com/athletic/5839101/2024/10/12/traeshon-holden-ejection-oregon-ohio-state/
+
 **Texas Man Drops Suit Against Women Who Helped Ex-Wife Get Abortion Pills**\
 `The suit had accused the three women of wrongful death. It was part of a heated battle over the use of such pills in states with abortion bans.`\
 https://nytimes.com/2024/10/12/us/texas-lawsuit-friends-abortion-pills.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5839019/2024/10/12/david-montgomery-lions-contract-
 **Notre Dame takeaways: Did Riley Leonard show Irish can win with offense?**\
 `Leonard delivered his best performance in a Notre Dame uniform in the Irish's 49-7 win against Stanford.`\
 https://nytimes.com/athletic/5838870/2024/10/12/notre-dame-stanford-score-riley-leonard/
-
-**Why CHSN, Comcast have yet to reach a carriage agreement**\
-`The lack of a deal with Comcast sparked disappointment from fans online Friday when the Blackhawks’ game wasn't available on cable TV.`\
-https://nytimes.com/athletic/5838839/2024/10/12/comcast-chsn-tv-network-agreement/
 
