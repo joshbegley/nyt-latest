@@ -1,3 +1,15 @@
+**There may never be a better time to ask Pep Guardiola if he wants the England job**\
+`Opportunity might not knock like this again with the man who would surely be the best manager England have ever had`\
+https://nytimes.com/athletic/5838293/2024/10/13/pep-guardiola-england-manager/
+
+**‘This is more than Subbuteo’: A day with the best table footballers in the world**\
+`Ever since the game was devised in 1946, a global community of deadly serious Subbuteo players has steadily grown...`\
+https://nytimes.com/athletic/5828167/2024/10/13/subbuteo-world-cup/
+
+**"I’ve realised how much I actually love football - I want to get back to the top"**\
+`Josh Onomah was tipped for the very top as a teenager - after a long search for a new club he is determined to prove himself once more`\
+https://nytimes.com/athletic/5831027/2024/10/13/josh-onomah-tottenham-fulham-blackpool-interview/
+
 **Hurt and boos mark end of awful week for Eidevall's Arsenal as 'bad start' gets worse**\
 `"We are really hurting. I’m hurting, the players are hurting" said Arsenal's head coach after a damaging week at home and in Europe `\
 https://nytimes.com/athletic/5838462/2024/10/13/eidevall-arsenal-boos/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/13/pageoneplus/quote-of-the-day-after-helene-bradent
 **Roadblocked**\
 `How you can get around the West Bank depends on who you are. We took two bus trips, one with Palestinians and one with Israelis, that tell a story of separate and unequal roadways.`\
 https://nytimes.com/interactive/2024/10/13/world/middleeast/west-bank-roads.html
-
-**How Palestinians Are Roadblocked in the West Bank**\
-`Driving in the Israeli-occupied West Bank is an incredibly different experience depending on who you are. Ben Hubbard, international correspondent for The New York Times, rode along on two bus trips, one for Israelis, the other for Palestinians, that tell a story of separate and unequal roadways.`\
-https://nytimes.com/video/world/middleeast/100000009749390/how-palestinians-are-roadblocked-in-the-west-bank.html
-
-**Texans at Patriots odds, picks, how to watch: Drake Maye's first start will be a challenge**\
-`The Patriots are entering their Drake Maye era against a strong Texans defense.`\
-https://nytimes.com/athletic/5837574/2024/10/13/texans-patriots-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Finland vs England: Storylines, odds, prediction as Three Lions look to bounce back**\
-`England returns to action after a shocking home loss to Greece. Finland are 0-3 in the Nations League so the Three Lions are favored.`\
-https://nytimes.com/athletic/5837423/2024/10/13/finland-england-preview-odds-prediction/
 

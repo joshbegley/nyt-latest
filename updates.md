@@ -1,3 +1,15 @@
+**There may never be a better time to ask Pep Guardiola if he wants the England job**\
+`Opportunity might not knock like this again with the man who would surely be the best manager England have ever had`\
+https://nytimes.com/athletic/5838293/2024/10/13/pep-guardiola-england-manager/
+
+**‘This is more than Subbuteo’: A day with the best table footballers in the world**\
+`Ever since the game was devised in 1946, a global community of deadly serious Subbuteo players has steadily grown...`\
+https://nytimes.com/athletic/5828167/2024/10/13/subbuteo-world-cup/
+
+**"I’ve realised how much I actually love football - I want to get back to the top"**\
+`Josh Onomah was tipped for the very top as a teenager - after a long search for a new club he is determined to prove himself once more`\
+https://nytimes.com/athletic/5831027/2024/10/13/josh-onomah-tottenham-fulham-blackpool-interview/
+
 **Hurt and boos mark end of awful week for Eidevall's Arsenal as 'bad start' gets worse**\
 `"We are really hurting. I’m hurting, the players are hurting" said Arsenal's head coach after a damaging week at home and in Europe `\
 https://nytimes.com/athletic/5838462/2024/10/13/eidevall-arsenal-boos/
