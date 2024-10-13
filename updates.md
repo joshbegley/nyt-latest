@@ -1,3 +1,15 @@
+**Hurt and boos mark end of awful week for Eidevall's Arsenal as 'bad start' gets worse**\
+`"We are really hurting. I’m hurting, the players are hurting" said Arsenal's head coach after a damaging week at home and in Europe `\
+https://nytimes.com/athletic/5838462/2024/10/13/eidevall-arsenal-boos/
+
+**Yohe's 10 observations: Penguins' decision to go with Joel Blomqvist overshadows loss**\
+`It took merely one start for Tristan Jarry to find himself on the bench for multiple games, and Alex Nedeljkovic is almost ready to play.`\
+https://nytimes.com/athletic/5838546/2024/10/13/penguins-maple-leafs-joel-blomqvist/
+
+**Why football's biggest stars are investing in esports**\
+`From Virgil van Dijk to Casemiro, footballers are backing teams in the world of competitive video games - so why are they doing it?`\
+https://nytimes.com/athletic/5739705/2024/10/13/footballers-esports-david-beckham-neymar-casemiro/
+
 **Silvio Berlusconi Died. But for Her, the ‘Bunga Bunga’ Scandal Lives On.**\
 `The woman at the center of revelations of bacchanals at the former Italian prime minister’s villa is still fighting a court case, and a negative public image, 14 years later.`\
 https://nytimes.com/2024/10/13/world/europe/berlusconi-bunga-bunga-scandal-italy.html
