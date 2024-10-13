@@ -1,3 +1,7 @@
+**The Ground Game: Harris’s Turnout Machine vs. Trump’s Unproven Alliance**\
+`Both parties are frenetically chasing votes in the counties that could very well decide the election. In many places, inexperienced conservative groups are going up against a more tightly organized Democratic operation.`\
+https://nytimes.com/2024/10/13/us/politics/trump-harris-campaign-ground-game.html
+
 **Woman Who Tried to Smuggle 29 Turtles Wrapped in Socks Pleads Guilty**\
 `A resident of Hong Kong was caught while paddling across a lake from Vermont to Canada in an inflatable kayak with the Eastern box turtles in a duffle bag, according to court records.`\
 https://nytimes.com/2024/10/13/us/eastern-box-turtle-smuggling.html
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5840166/2024/10/13/chicago-bears-caleb-williams-jag
 **The Painter Titus Kaphar Wanted a Bigger Canvas, so He Made a Film**\
 `His first feature, “Exhibiting Forgiveness,” which opens Oct. 18, features paintings now on view at Gagosian in Los Angeles.`\
 https://nytimes.com/2024/10/13/arts/design/titus-kaphar-gagosian.html
-
-**Fisher-Price Recalls 2 Million ‘Snuga Swings’ After Five Infant Deaths**\
-`The U.S. Consumer Product Safety Commission announced the recall, which one of its commissioners said was “doomed to fail.”`\
-https://nytimes.com/2024/10/13/business/fisher-price-snuga-swing-recall.html
 
