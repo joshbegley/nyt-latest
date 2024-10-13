@@ -22,7 +22,7 @@ https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/heres-why-spa
 `The victory cements Sabalenka's position in the race for year-end No. 1`\
 https://nytimes.com/athletic/5839818/2024/10/13/sabalenka-zheng-wuhan-final-result-analysis/
 
-**SpaceX returned a large rocket booster to its launch site and ‘caught’ it with mechanical arms.**\
+**SpaceX returned a large rocket booster to its launch site and caught it with mechanical arms.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/spacex-returned-a-large-rocket-booster-to-its-launch-site-and-caught-it-with-mechanical-arms
 
