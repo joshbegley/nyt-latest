@@ -1,3 +1,7 @@
+**American League Championship Series predictions: Our experts make their picks**\
+`Will the Yankees finally make it back to the World Series? Can the Guardians continue their Cinderella story? Our experts make their picks.`\
+https://nytimes.com/athletic/5839980/2024/10/13/mlb-postseason-alcs-predictions-yankees-guardians/
+
 **Blue Jackets Sunday Gathering: Changes have Zach Werenski poised to reach a new level**\
 `The veteran defenseman scored in each of the Blue Jackets' first two games of the season, including a noteworthy power-play goal.`\
 https://nytimes.com/athletic/5839817/2024/10/13/blue-jackets-zach-werenski-nhl/
