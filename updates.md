@@ -1,3 +1,11 @@
+**Derrick Henry, Ravens run over Commanders in 30-23: Takeaways**\
+`Derrick Henry finished the afternoon with 132 rushing yards and two touchdowns on 24 carries, his 20th career game with 100 yards and 2 TDs.`\
+https://nytimes.com/athletic/5838631/2024/10/13/commanders-ravens-score-takeaways-result/
+
+**Jordan Love bolsters Packers to 34-13 win over Cardinals: Takeaways**\
+`Bolstered by Love's 258 yards and four touchdown passes, the Packers (4-2) dominated the Cardinals wire-to-wire on both sides of the ball.`\
+https://nytimes.com/athletic/5838648/2024/10/13/cardinals-packers-takeaways-result/
+
 **Monday Briefing: The U.S. to Deploy Troops to Israel**\
 `Plus, 200,000 stories of Modern Love.`\
 https://nytimes.com/2024/10/13/briefing/us-troops-poll-ladakh.html
