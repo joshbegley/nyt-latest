@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-wil
 `\
 https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
 
+**Sideline worker at Titans-Colts carted off after Will Levis hit**\
+`The broadcast showed the worker's left leg in an air cast, and he gave a thumbs-up on his way off the field.
+`\
+https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
+
 **Mets bolster bench by adding Jeff McNeil to NLCS roster**\
 `In an expected move, the New York Mets added second baseman/outfielder Jeff McNeil to their roster for the National League Championship Series.`\
 https://nytimes.com/athletic/5840335/2024/10/13/mets-bolster-bench-by-adding-jeff-mcneil-to-nlcs-roster/
