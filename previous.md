@@ -1,3 +1,7 @@
+**If 'moral victories' make you cringe, Commanders still have much to learn**\
+`We can stop with all the rivalry talk between the Commanders and Ravens for a while because Washington clearly has more work to do.`\
+https://nytimes.com/athletic/5840158/2024/10/13/commanders-ravens-moral-victory-jayden-daniels/
+
 **Biden Announces $612 Million for Projects to Help Areas Hit by Storms**\
 `During his visit to Florida, President Biden announced $612 million for six Energy Department projects in areas hit by Hurricanes Milton and Helene to improve the region’s electric grid.`\
 https://nytimes.com/video/us/100000009759806/biden-florida-hurricane-aftermath.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5840769/2024/10/13/liberty-lynx-wnba-finals-game-2/
 **Wild lose Jared Spurgeon, Joel Eriksson Ek to injury ahead of Winnipeg matchup**\
 `Neither player traveled with the team to Winnipeg to kick off a seven-game road trip.`\
 https://nytimes.com/athletic/5840776/2024/10/13/wild-injury-jared-spurgeon-eriksson-ek/
-
-**NFL Week 6 takeaways: Another Lamar Jackson MVP season? How high can Bears climb?**\
-`Plus, assessing Sunday’s two rookie quarterback debuts and more from Week 6.`\
-https://nytimes.com/athletic/5840777/2024/10/13/nfl-week-6-takeaways-another-lamar-jackson-mvp-season-how-high-can-bears-climb/
 
