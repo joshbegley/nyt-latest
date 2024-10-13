@@ -1,3 +1,15 @@
+**Ruth Chepngetich smashes women's marathon world record**\
+`Chepngetich became the first woman to ever run under 2:10 at the full marathon distance.`\
+https://nytimes.com/athletic/5839988/2024/10/13/ruth-chepngetich-marathon-world-record/
+
+**Texas residents around the SpaceX launch site said they felt shaking during Sunday’s flight.**\
+`By Eric Lipton`\
+https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/texas-residents-around-the-spacex-launch-site-said-they-felt-shaking-during-sundays-flight
+
+**SpaceX Achieves Its First-Ever ‘Chopsticks’ Landing**\
+`SpaceX launched and returned a large rocket booster to its Texas site, catching it with mechanical arms in its first-ever “chopsticks” landing.`\
+https://nytimes.com/video/science/space/100000009759445/spacex-launch-starship-catch.html
+
 **I Write My Obituary, So I Can Live a Better Life**\
 `Readers offer their personal stories in response to a guest essay. Also: Trump and baseball; G.O.P. mirage machine; S.N.L. and Gerald Ford; unforeseen crises.`\
 https://nytimes.com/2024/10/13/opinion/letters/writing-own-obituary.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5839914/2024/10/13/lamine-yamal-injury-update-spain
 **Live Q&A: Week 6 fantasy football start/sit chat with Jay Felicio, Sunday, 10/13 at 11 a.m. ET**\
 `Jay Felicio answers your Week 6 fantasy football start/sit questions in a Sunday morning chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5837601/2024/10/13/live-qa-week-6-fantasy-football-start-sit-chat-with-jay-felicio-sunday-10-13-at-11-a-m-et/
-
-**Trump says SpaceX will reach Mars if he’s elected. Could that really happen?**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/trump-says-spacex-will-reach-mars-if-hes-elected-could-that-really-happen
-
-**Can We Please Just Find the Aliens Already?**\
-`NASA’s Europa Clipper mission represents something bigger than just the study of an icy moon of Jupiter.`\
-https://nytimes.com/2024/10/13/opinion/nasa-europa-clipper-extraterrestrials.html
-
-**It’s OK if You Haven’t Gotten Your Flu Shot Yet**\
-`Public health agencies are pushing us to get flu vaccines too far ahead of the winter flu season.`\
-https://nytimes.com/2024/10/13/opinion/when-to-get-your-flu-shot.html
 
