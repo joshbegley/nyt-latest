@@ -1,3 +1,7 @@
+**On ‘S.N.L.,’ Harris and Trump Take Their Contest to ‘Family Feud’**\
+`It was also an especially music-filled evening, with Stevie Nicks as the musical guest and Ariana Grande, as host, breaking often into song.`\
+https://nytimes.com/2024/10/13/arts/television/snl-harris-trump-ariana-grande-stevie-nicks.html
+
 **A Test of Knowledge and a Winning Entrant**\
 `Can you guess which former New York Times critic won the newspaper’s intercollegiate contest as a student?`\
 https://nytimes.com/2024/10/13/insider/a-test-of-knowledge-and-a-winning-entrant.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/crosswords/spelling-bee-forum.html
 **Filmed in New York, Hold the Taxis and Radiators**\
 `When independent movies like “Rosemead” travel to a state for tax incentives, they save money but add creative challenges.`\
 https://nytimes.com/2024/10/13/movies/rosemead-film-tax-credits.html
-
-**‘We Would Take the Bus to Her Home on East 37th Street After School’**\
-`Remembering a best friend, packed into a subway car and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/10/13/nyregion/metropolitan-diary.html
 
