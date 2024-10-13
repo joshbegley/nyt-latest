@@ -1,3 +1,11 @@
+**I Write My Obituary, So I Can Live a Better Life**\
+`Readers offer their personal stories in response to a guest essay. Also: Trump and baseball; G.O.P. mirage machine; S.N.L. and Gerald Ford; unforeseen crises.`\
+https://nytimes.com/2024/10/13/opinion/letters/writing-own-obituary.html
+
+**This ‘Fake Sauce’ Is Truly Good**\
+`For your Sunday supper: hearty pasta al sugo finto, a vegetarian ragù that’s flavorful and frugal.`\
+https://nytimes.com/2024/10/13/dining/this-fake-sauce-is-truly-good.html
+
 **Giant rockets other than Starship will be flying to orbit soon.**\
 `By Michael Roston and Kenneth Chang`\
 https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/giant-rockets-other-than-starship-will-be-flying-to-orbit-soon

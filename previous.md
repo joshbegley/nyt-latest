@@ -1,3 +1,11 @@
+**I Write My Obituary, So I Can Live a Better Life**\
+`Readers offer their personal stories in response to a guest essay. Also: Trump and baseball; G.O.P. mirage machine; S.N.L. and Gerald Ford; unforeseen crises.`\
+https://nytimes.com/2024/10/13/opinion/letters/writing-own-obituary.html
+
+**This ‘Fake Sauce’ Is Truly Good**\
+`For your Sunday supper: hearty pasta al sugo finto, a vegetarian ragù that’s flavorful and frugal.`\
+https://nytimes.com/2024/10/13/dining/this-fake-sauce-is-truly-good.html
+
 **Giant rockets other than Starship will be flying to orbit soon.**\
 `By Michael Roston and Kenneth Chang`\
 https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/giant-rockets-other-than-starship-will-be-flying-to-orbit-soon
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/13/opinion/nasa-europa-clipper-extraterrestrials.htm
 **It’s OK if You Haven’t Gotten Your Flu Shot Yet**\
 `Public health agencies are pushing us to get flu vaccines too far ahead of the winter flu season.`\
 https://nytimes.com/2024/10/13/opinion/when-to-get-your-flu-shot.html
-
-**New York Can Do Better Than Andrew Cuomo**\
-`Democrats should make it clear that Cuomo has no political future in New York, not in City Hall and not in Albany.`\
-https://nytimes.com/2024/10/13/opinion/andrew-cuomo-new-york-mayor.html
-
-**Until Saturday: We have 11 undefeated teams left in FBS play**\
-`Welcome to Until Saturday, the five-star college football newsletter: We are down to 11 undefeated teams in FBS play.`\
-https://nytimes.com/athletic/5838818/2024/10/13/college-football-undefeated-teams-penn-state-usc-until-saturday/
 
