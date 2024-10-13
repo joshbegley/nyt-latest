@@ -1,3 +1,7 @@
+**Blue Jackets Sunday Gathering: Changes have Zach Werenski poised to reach a new level**\
+`The veteran defenseman scored in each of the Blue Jackets' first two games of the season, including a noteworthy power-play goal.`\
+https://nytimes.com/athletic/5839817/2024/10/13/blue-jackets-zach-werenski-nhl/
+
 **‘I Didn’t Feel Connected to Florida. That Was Before Milton.’**\
 `I had only recently moved to Tampa and before the storm didn’t feel connected to the place.`\
 https://nytimes.com/2024/10/13/opinion/florida-hurricane-milton.html
