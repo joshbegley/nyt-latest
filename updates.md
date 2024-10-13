@@ -1,3 +1,11 @@
+**Eagles make big plays as Browns lose fourth straight: Key takeaways**\
+`Both A.J. Brown and DeVonta Smith made key plays on Sunday to help the Eagles seal a 20-16 victory.`\
+https://nytimes.com/athletic/5838692/2024/10/13/eagles-browns-score-results-takeaways/
+
+**Flacco, Colts come back to beat Titans, 20-17: Takeaways**\
+`Will Levis’ season of misery continues, and it may get worse soon for the Titans after falling to the Colts on Sunday.`\
+https://nytimes.com/athletic/5838701/2024/10/13/colts-titans-score-joe-flacco-results-takeaways/
+
 **Bucs spoil Rattler's debut with 51-27 win over Saints: Takeaways**\
 `Tampa Bay's defense shut out New Orleans in the second half a for big divisional win in Week 6.`\
 https://nytimes.com/athletic/5838679/2024/10/13/saints-buccaneers-score-results-takeaways/

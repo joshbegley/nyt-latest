@@ -1,3 +1,11 @@
+**Eagles make big plays as Browns lose fourth straight: Key takeaways**\
+`Both A.J. Brown and DeVonta Smith made key plays on Sunday to help the Eagles seal a 20-16 victory.`\
+https://nytimes.com/athletic/5838692/2024/10/13/eagles-browns-score-results-takeaways/
+
+**Flacco, Colts come back to beat Titans, 20-17: Takeaways**\
+`Will Levis’ season of misery continues, and it may get worse soon for the Titans after falling to the Colts on Sunday.`\
+https://nytimes.com/athletic/5838701/2024/10/13/colts-titans-score-joe-flacco-results-takeaways/
+
 **Bucs spoil Rattler's debut with 51-27 win over Saints: Takeaways**\
 `Tampa Bay's defense shut out New Orleans in the second half a for big divisional win in Week 6.`\
 https://nytimes.com/athletic/5838679/2024/10/13/saints-buccaneers-score-results-takeaways/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/13/us/politics/biden-hurricane-damage-florida.html
 **JD Vance defended his running mate and spoke about abortion in a pair of Sunday show appearances.**\
 `By Michael C. Bender`\
 https://nytimes.com/live/2024/10/13/us/harris-trump-election/jd-vance-defended-his-running-mate-and-spoke-about-abortion-in-a-pair-of-sunday-show-appearances
-
-**Carsley 'open minded' on England manager job after saying 'world-class coach' needed**\
-`England interim manager Lee Carsley has said he is &#8220;keeping an open mind&#8221; on taking the permanent position after stating that the role required a &#8220;world-class coach who has won trophies&#8221;.`\
-https://nytimes.com/athletic/5840467/2024/10/13/lee-carsley-england-manager-appointment/
-
-**Jordan Love bolsters Packers to 34-13 win over Cardinals: Takeaways**\
-`Bolstered by Love's 258 yards and four touchdown passes, the Packers (4-2) dominated the Cardinals wire-to-wire on both sides of the ball.`\
-https://nytimes.com/athletic/5838648/2024/10/13/cardinals-packers-takeaways-result/
 
