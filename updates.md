@@ -1,3 +1,7 @@
+**What Is SpaceX’s Starship? It’s really a Mars ship.**\
+`Bigger than the Statue of Liberty, the SpaceX vehicle is central to NASA’s plans to get to the moon and Elon Musk’s dreams of the red planet.`\
+https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/what-is-spacexs-starship-its-really-a-mars-ship
+
 **Robinson: Questions continue for Ryan Day after Ohio State comes up short at Oregon**\
 `The Buckeyes' goals remain, but they have to clean up the mistakes they made in their loss to Oregon on Saturday to reach them.`\
 https://nytimes.com/athletic/5839713/2024/10/13/ohio-state-football-ryan-day-oregon/
