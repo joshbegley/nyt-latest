@@ -1,3 +1,7 @@
+**Giant rockets other than Starship will be flying to orbit soon.**\
+`By Michael Roston and Kenneth Chang`\
+https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/giant-rockets-other-than-starship-will-be-flying-to-orbit-soon
+
 **SEC vibes rankings: How are teams feeling at midseason**\
 `We've reached the midpoint of the SEC season. It's the perfect time to check, once again, on the vibes around the conference.`\
 https://nytimes.com/athletic/5839840/2024/10/13/sec-football-week-7-rankings/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/opinion/andrew-cuomo-new-york-mayor.html
 **Until Saturday: We have 11 undefeated teams left in FBS play**\
 `Welcome to Until Saturday, the five-star college football newsletter: We are down to 11 undefeated teams in FBS play.`\
 https://nytimes.com/athletic/5838818/2024/10/13/college-football-undefeated-teams-penn-state-usc-until-saturday/
-
-**Here’s why SpaceX has been feuding with the F.A.A.**\
-`By Kenneth Chang and Eric Lipton`\
-https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/heres-why-spacex-has-been-feuding-with-the-faa
 

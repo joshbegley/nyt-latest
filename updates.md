@@ -1,3 +1,7 @@
+**Giant rockets other than Starship will be flying to orbit soon.**\
+`By Michael Roston and Kenneth Chang`\
+https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/giant-rockets-other-than-starship-will-be-flying-to-orbit-soon
+
 **SEC vibes rankings: How are teams feeling at midseason**\
 `We've reached the midpoint of the SEC season. It's the perfect time to check, once again, on the vibes around the conference.`\
 https://nytimes.com/athletic/5839840/2024/10/13/sec-football-week-7-rankings/
