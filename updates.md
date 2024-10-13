@@ -1,3 +1,7 @@
+**Corrections: Oct. 13, 2024**\
+`Corrections that appeared in print on Sunday, Oct. 13, 2024.`\
+https://nytimes.com/2024/10/13/pageoneplus/corrections-oct-13-2024.html
+
 **On ‘S.N.L.,’ Harris and Trump Take Their Contest to ‘Family Feud’**\
 `It was also an especially music-filled evening, with Stevie Nicks as the musical guest and Ariana Grande, as host, breaking often into song.`\
 https://nytimes.com/2024/10/13/arts/television/snl-harris-trump-ariana-grande-stevie-nicks.html
