@@ -28,7 +28,7 @@ https://nytimes.com/2024/10/13/arts/design/titus-kaphar-gagosian.html
 https://nytimes.com/2024/10/13/business/fisher-price-snuga-swing-recall.html
 
 **Finland 1 England 3: Gomes the conductor, Alexander-Arnold's brilliance, Foden's future**\
-`England secured victory over Finland in the Nations League after a disappointing defeat last week - our writers break down the action`\
+`England beat Finland in the Nations League after the disappointing defeat aganst Greece last week - our writers break down the action`\
 https://nytimes.com/athletic/5837311/2024/10/13/england-finland-gomes-carsley/
 
 **Dodgers leave Alex Vesia, Miguel Rojas off NLCS roster**\
