@@ -1,36 +1,36 @@
-**Lane Hutson predicted Canadiens wouldn’t care about his size. He’s proved himself right**\
-`Lane Hutson's first five NHL games have gone just about as well as anyone could have imagined. Anyone except Hutson himself. `\
-https://nytimes.com/athletic/5839563/2024/10/13/lane-hutson-size-canadiens/
+**A Test of Knowledge and a Winning Entrant**\
+`Can you guess which former New York Times critic won the newspaper’s intercollegiate contest as a student?`\
+https://nytimes.com/2024/10/13/insider/a-test-of-knowledge-and-a-winning-entrant.html
 
-**Travis Hunter tracker: Injury knocks Colorado star out of Kansas State game early**\
-`Hunter entered Saturday averaging around 120 snaps per game, but he played fewer than 50 snaps against Kansas State before exiting.`\
-https://nytimes.com/athletic/5839202/2024/10/13/travis-hunter-tracker-nfl-draft-2025-stats/
+**A Day in the Life of Tim Heidecker, Glendale Dad**\
+`Years after making his name with the sketch comedy series “Tim and Eric Awesome Show, Great Job!”, he’s singing wry ballads and watching the kids.`\
+https://nytimes.com/2024/10/13/style/tim-heidecker-glendale-dad-encounters.html
 
-**Blue Jackets' recently built No. 1 line unites, erupts in surprising win over Avalanche**\
-`"They've got a chemistry, a relationship, a bond in that room already," coach Dean Evason said after the Jackets' 6-4 win Saturday.`\
-https://nytimes.com/athletic/5838545/2024/10/13/blue-jackets-avalanche-no-1-line/
+**Can the New York Liberty, the Best in the W.N.B.A, Finally Win It All?**\
+`The Liberty, an original W.N.B.A. franchise, have been to the finals five times and lost each time. But their fans can’t help believing, again, this year.`\
+https://nytimes.com/2024/10/13/nyregion/new-york-liberty-finals.html
 
-**Russo: Carrying 3 goalies could be problematic for the Wild's roster**\
-`Rookie goalie Jesper Wallstedt might become a transaction ping-pong ball through no fault of his own.`\
-https://nytimes.com/athletic/5839494/2024/10/13/russo-wild-column-three-goalies/
+**How Can I Get My Boss to Notice Me?**\
+`When there are men in the room, a female colleague is made to feel invisible.`\
+https://nytimes.com/2024/10/13/business/work-advice-male-boss.html
 
-**Colorado's Travis Hunter exits with shoulder injury vs. Kansas State**\
-`Hunter caught three passes for 26 yards and a tackle before his early departure at Folsom Field.`\
-https://nytimes.com/athletic/5839521/2024/10/13/travis-hunter-colorado-shoulder-injury/
+**50 Years of Broccoli (and Mockery): A Co-op Co-Founder Calls It Quits**\
+`In 1973, Joe Holtz helped start the Park Slope Food Co-op, a Brooklyn institution that is equally loved and ridiculed. Will it survive his retirement?`\
+https://nytimes.com/2024/10/13/nyregion/park-slope-food-coop-joe-holtz.html
 
-**What Trump’s Hatred Taught Me**\
-`When the former president attacks immigrants, this is what I hear.`\
-https://nytimes.com/2024/10/13/opinion/trump-immigration-rhetoric-poisoning.html
+**She Was a Key Aide to Eric Adams. Her Ties to China Ran Deep.**\
+`Winnie Greco, a top fund-raiser and senior adviser for Mr. Adams, has long had dealings with people and groups connected to China’s communist regime. He kept her close even so.`\
+https://nytimes.com/2024/10/13/nyregion/adams-greco-china-influence-investigation.html
 
-**Why aren't the Senators winning high-danger chance battles? 4 Senators takeaways**\
-`It's only been two games, but the Senators' power play and lack of high-danger chances are causes for concern.`\
-https://nytimes.com/athletic/5839213/2024/10/13/senators-canadiens-takeaways-stutzle-tkachuk/
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/13/crosswords/spelling-bee-forum.html
 
-**Commanders vs. Ravens odds, picks, how to watch: Projected ROTY takes on reigning MVP**\
-`New kid Jayden Daniels and the Commanders look to upset the Lamar Jackson-led Ravens.`\
-https://nytimes.com/athletic/5837410/2024/10/13/commanders-ravens-odds-expert-picks-how-to-watch-predictions-betting/
+**Filmed in New York, Hold the Taxis and Radiators**\
+`When independent movies like “Rosemead” travel to a state for tax incentives, they save money but add creative challenges.`\
+https://nytimes.com/2024/10/13/movies/rosemead-film-tax-credits.html
 
-**Referee collapses, leaves in ambulance during Boise State-Hawai'i**\
-`The official was alert as he left the complex, according to the CBS broadcast.`\
-https://nytimes.com/athletic/5839482/2024/10/13/boise-state-hawaii-referee-collapse-ambulance/
+**‘We Would Take the Bus to Her Home on East 37th Street After School’**\
+`Remembering a best friend, packed into a subway car and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/10/13/nyregion/metropolitan-diary.html
 
