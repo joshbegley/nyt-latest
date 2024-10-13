@@ -1,3 +1,7 @@
+**Just Over the Border from Israel, a Hezbollah Cache of Explosives and Mines**\
+`Israel’s military showed journalists parts of what it said was Hezbollah’s deeply entrenched military infrastructure across the border in southern Lebanon.`\
+https://nytimes.com/2024/10/13/world/middleeast/israel-military-lebanon-embed.html
+
 **Derrick Henry, Ravens run over Commanders in 30-23: Takeaways**\
 `Derrick Henry finished the afternoon with 132 rushing yards and two touchdowns on 24 carries, his 20th career game with 100 yards and 2 TDs.`\
 https://nytimes.com/athletic/5838631/2024/10/13/commanders-ravens-score-takeaways-result/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838648/2024/10/13/cardinals-packers-takeaways-resu
 **Chargers' Jim Harbaugh returns to sideline vs. Broncos after early exit**\
 `Chargers defensive coordinator Jesse Minter served as the interim coach during Harbaugh's brief absence.`\
 https://nytimes.com/athletic/5840615/2024/10/13/jim-harbaugh-illness-chargers-broncos/
-
-**Guardians tap Alex Cobb, Tanner Bibee to start Games 1 and 2 of ALCS vs. Yankees**\
-`It'll be Cobb's second start of the postseason and Bibee's third. `\
-https://nytimes.com/athletic/5840582/2024/10/13/guardians-pitching-alcs-alex-cobb-tanner-bibee/
 
