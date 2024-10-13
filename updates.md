@@ -1,3 +1,7 @@
+**Browns vs. Eagles odds, expert picks, how to watch: A.J. Brown returns, Browns stick with Watson**\
+`The Philadelphia Eagles welcome the hapless Cleveland Browns and Deshaun Watson to Lincoln Financial Field Sunday afternoon.`\
+https://nytimes.com/athletic/5837309/2024/10/13/browns-eagles-odds-predictions-betting/
+
 **Three Red Wings takeaways after Cam Talbot's statement performance in rebound win**\
 `Talbot's 42-save shutout was the story of the night, and it countered some early doubts about how the goalie could fare in Detroit.`\
 https://nytimes.com/athletic/5839220/2024/10/13/cam-talbot-red-wings-takeaways/
