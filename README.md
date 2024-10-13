@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5837513/2024/10/12/colts-titans-odds-expert-picks-how-to-watch-predictions-betting/
 
 **How Dodgers found relief from tight-knit bullpen to advance: 'Kick our egos to the door'**\
-`The Dodgers head into the NLCS with a postseason record 24 consecutive scoreless innings from their pitching staff.`\
+`The Dodgers head into the NLCS with a postseason-record 24 consecutive scoreless innings from their pitching staff.`\
 https://nytimes.com/athletic/5839292/2024/10/12/dodgers-bullpen-relief-padres-nlds/
 
 **Cardinals vs. Packers odds, picks, how to watch: Can Kyler Murray pull off a road upset?**\
