@@ -1,3 +1,7 @@
+**Oklahoma has too many different problems for Brent Venables' third year**\
+`Oklahoma has a quarterback mess and a lack of answers for its various recurring problems, a stark contrast to its Red River rival.`\
+https://nytimes.com/athletic/5839104/2024/10/12/oklahoma-texas-brent-vaneables-michael-hawkins/
+
 **Jeff McNeil readies to rejoin Mets after second Arizona Fall League game**\
 `After 10 plate appearances in the Arizona Fall League, McNeil is likely to return to the Mets for the NLCS.`\
 https://nytimes.com/athletic/5839092/2024/10/12/mets-jeff-mcneil-arizona-fall-league/
