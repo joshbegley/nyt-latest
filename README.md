@@ -1,3 +1,7 @@
+**Browns vs. Eagles odds, expert picks, how to watch: A.J. Brown returns, Browns stick with Watson**\
+`The Philadelphia Eagles welcome the hapless Cleveland Browns and Deshaun Watson to Lincoln Financial Field Sunday afternoon.`\
+https://nytimes.com/athletic/5837309/2024/10/13/browns-eagles-odds-predictions-betting/
+
 **Three Red Wings takeaways after Cam Talbot's statement performance in rebound win**\
 `Talbot's 42-save shutout was the story of the night, and it countered some early doubts about how the goalie could fare in Detroit.`\
 https://nytimes.com/athletic/5839220/2024/10/13/cam-talbot-red-wings-takeaways/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5739705/2024/10/13/footballers-esports-david-beckha
 **Silvio Berlusconi Died. But for Her, the ‘Bunga Bunga’ Scandal Lives On.**\
 `The woman at the center of revelations of bacchanals at the former Italian prime minister’s villa is still fighting a court case, and a negative public image, 14 years later.`\
 https://nytimes.com/2024/10/13/world/europe/berlusconi-bunga-bunga-scandal-italy.html
-
-**Quote of the Day: After Helene, Bradenton Beach Residents Left Town for Milton**\
-`Quotation of the Day for October 13, 2024.`\
-https://nytimes.com/2024/10/13/pageoneplus/quote-of-the-day-after-helene-bradenton-beach-residents-left-town-for-milton.html
 
