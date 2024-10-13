@@ -1,3 +1,7 @@
+**Jeff McNeil readies to rejoin Mets after second Arizona Fall League game**\
+`After 10 plate appearances in the Arizona Fall League, McNeil is likely to return to the Mets for the NLCS.`\
+https://nytimes.com/athletic/5839092/2024/10/12/mets-jeff-mcneil-arizona-fall-league/
+
 **Oregon WR Holden ejected for spitting on Ohio State CB Igbinosun**\
 `No. 3 Oregon now has to finish its tight matchup against No. 2 Ohio State without one of its top receivers.`\
 https://nytimes.com/athletic/5839101/2024/10/12/traeshon-holden-ejection-oregon-ohio-state/

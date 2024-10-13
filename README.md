@@ -1,3 +1,7 @@
+**Oklahoma has too many different problems for Brent Venables' third year**\
+`Oklahoma has a quarterback mess and a lack of answers for its various recurring problems, a stark contrast to its Red River rival.`\
+https://nytimes.com/athletic/5839104/2024/10/12/oklahoma-texas-brent-vaneables-michael-hawkins/
+
 **Oregon WR Holden ejected for spitting on Ohio State CB Igbinosun**\
 `No. 3 Oregon now has to finish its tight matchup against No. 2 Ohio State without one of its top receivers.`\
 https://nytimes.com/athletic/5839101/2024/10/12/traeshon-holden-ejection-oregon-ohio-state/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5839043/2024/10/12/cleveland-guardians-alcs-cade-sm
 **Lions, David Montgomery agree to 2-year contract extension**\
 `Montgomery, 27, rushed for 1,286 rushing yards and 17 touchdowns through the first 18 games of his Lions tenure.`\
 https://nytimes.com/athletic/5839019/2024/10/12/david-montgomery-lions-contract-extension/
-
-**Notre Dame takeaways: Did Riley Leonard show Irish can win with offense?**\
-`Leonard delivered his best performance in a Notre Dame uniform in the Irish's 49-7 win against Stanford.`\
-https://nytimes.com/athletic/5838870/2024/10/12/notre-dame-stanford-score-riley-leonard/
 
