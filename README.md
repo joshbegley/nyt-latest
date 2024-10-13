@@ -1,6 +1,6 @@
 **Greenberg: Caleb Williams, Bears showing that a new day is dawning in Chicago**\
 `Sunday morning's 35-16 beatdown of the Jaguars in London was a most welcome sight for everyone whose happiness depends on the Bears (4-2).`\
-https://nytimes.com/athletic/5840166/2024/10/13/chicago-bears-caleb-williams-jaguars/
+https://nytimes.com/athletic/5840166/2024/10/13/chicago-bears-caleb-williams-jaguars-london/
 
 **The Painter Titus Kaphar Tackles His Personal History in Film**\
 `His first feature, “Exhibiting Forgiveness,” which opens Oct. 18, features paintings now on view at Gagosian in Los Angeles.`\
