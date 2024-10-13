@@ -1,3 +1,8 @@
+**Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
+`William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
+`\
+https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
+
 **Tennessee staves off Florida on RB Dylan Sampson's 3-TD rally**\
 `Volunteers running back Dylan Sampson has been the most consistent piece on offense the last three weeks, leading Saturday night’s comeback.`\
 https://nytimes.com/athletic/5839261/2024/10/12/tennessee-florida-overtime-results-analysis/
