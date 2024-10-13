@@ -1,3 +1,11 @@
+**Sinner beats Djokovic to win Shanghai Masters**\
+`World No.`\
+https://nytimes.com/athletic/5839743/2024/10/13/jannik-sinner-wins-shanghai-masters/
+
+**Five observations from the Oilers' dreadful 0-2 start**\
+`After reaching Game 7 of the Stanley Cup Final, Edmonton hasn't led for a single second this season.`\
+https://nytimes.com/athletic/5839644/2024/10/13/edmonton-oilers-five-observations/
+
 **Ignore the Polls**\
 `They can’t tell you what you want to know.`\
 https://nytimes.com/2024/10/13/opinion/polls-harris-trump.html
