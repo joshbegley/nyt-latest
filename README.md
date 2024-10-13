@@ -11,7 +11,7 @@ https://nytimes.com/2024/10/12/us/texas-lawsuit-friends-abortion-pills.html
 https://nytimes.com/athletic/5839090/2024/10/12/nick-chubb-browns-knee-injury-return-week-7/
 
 **Jeff McNeil readies to rejoin Mets after second Arizona Fall League game**\
-`After 10 plate appearances in the Arizona Fall League, McNeil is likely to rejoin his Mets for the NLCS.`\
+`After 10 plate appearances in the Arizona Fall League, McNeil is likely to return to the Mets for the NLCS.`\
 https://nytimes.com/athletic/5839092/2024/10/12/mets-jeff-mcneil-arizona-fall-league/
 
 **Trump Hits Coachella, Campaigning Once Again in a Blue State**\

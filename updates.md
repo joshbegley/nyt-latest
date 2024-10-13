@@ -1,3 +1,7 @@
+**Oregon WR Holden ejected for spitting on Ohio State CB Igbinosun**\
+`No. 3 Oregon now has to finish its tight matchup against No. 2 Ohio State without one of its top receivers.`\
+https://nytimes.com/athletic/5839101/2024/10/12/traeshon-holden-ejection-oregon-ohio-state/
+
 **Texas Man Drops Suit Against Women Who Helped Ex-Wife Get Abortion Pills**\
 `The suit had accused the three women of wrongful death. It was part of a heated battle over the use of such pills in states with abortion bans.`\
 https://nytimes.com/2024/10/12/us/texas-lawsuit-friends-abortion-pills.html
