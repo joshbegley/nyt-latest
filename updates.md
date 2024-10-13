@@ -1,3 +1,7 @@
+**Lane Hutson predicted Canadiens wouldn’t care about his size. He’s proved himself right**\
+`Lane Hutson's first five NHL games have gone just about as well as anyone could have imagined. Anyone except Hutson himself. `\
+https://nytimes.com/athletic/5839563/2024/10/13/lane-hutson-size-canadiens/
+
 **Russo: Carrying 3 goalies could be problematic for the Wild's roster**\
 `Rookie goalie Jesper Wallstedt might become a transaction ping-pong ball through no fault of his own.`\
 https://nytimes.com/athletic/5839494/2024/10/13/russo-wild-column-three-goalies/
