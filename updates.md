@@ -1,3 +1,7 @@
+**Caleb Williams shines as Bears beat Jaguars 35-16 in London: Takeaways**\
+`The Bears improve to 4-2 while the Jaguars sink to 1-5 and remain at the bottom of the AFC South.`\
+https://nytimes.com/athletic/5838618/2024/10/13/bears-jaguars-score-caleb-williams-takeaways-london/
+
 **Colts dub Richardson emergency QB, starting Flacco vs. Titans**\
 `Through two games this season, Flacco has thrown for 527 yards, five touchdowns and no interceptions on a 70 percent completion rate.`\
 https://nytimes.com/athletic/5840031/2024/10/13/anthony-richardson-joe-flacco-start-colts-titans/
