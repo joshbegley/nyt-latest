@@ -1,3 +1,7 @@
+**Buckley: Drake Maye, Patriots gave fans what they craved — a glimpse of the future**\
+`What Pats fans needed was quality time with Maye. He delivered with three TD passes, including his first: a perfectly thrown 40-yarder.`\
+https://nytimes.com/athletic/5840876/2024/10/13/drake-maye-debut-patriots-texans/
+
 **If 'moral victories' make you cringe, Commanders still have much to learn**\
 `We can stop with all the rivalry talk between the Commanders and Ravens for a while because Washington clearly has more work to do.`\
 https://nytimes.com/athletic/5840158/2024/10/13/commanders-ravens-moral-victory-jayden-daniels/
