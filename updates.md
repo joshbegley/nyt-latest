@@ -1,3 +1,7 @@
+**Harris Sends a Secret Weapon to a Georgia Fish Fry: Bill Clinton**\
+`With early voting set to begin in Georgia, the Harris campaign is sending the former president to get out the vote in rural areas.`\
+https://nytimes.com/2024/10/13/us/politics/bill-clinton-georgia-fish-fry.html
+
 **Jaguars' embarrassing loss in London turns up the heat on Doug Pederson**\
 `The Jaguars fell to 1-5 with a poor showing in their home away from home. Pederson acknowledged there's a lot of work to do.`\
 https://nytimes.com/athletic/5840781/2024/10/13/jaguars-doug-pederson-bears-london/
