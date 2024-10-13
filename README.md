@@ -2,7 +2,7 @@
 `Both A.J. Brown and DeVonta Smith made key plays on Sunday to help the Eagles seal a 20-16 victory.`\
 https://nytimes.com/athletic/5838692/2024/10/13/eagles-browns-score-results-takeaways/
 
-**Flacco, Colts come back to beat Titans, 20-17: Takeaways**\
+**Flacco, Colts come back to beat Titans 20-17: Takeaways**\
 `Will Levis’ season of misery continues, and it may get worse soon for the Titans after falling to the Colts on Sunday.`\
 https://nytimes.com/athletic/5838701/2024/10/13/colts-titans-score-joe-flacco-results-takeaways/
 
