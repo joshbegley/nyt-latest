@@ -1,3 +1,7 @@
+**Review: Philharmonic Pays Tribute to Schoenberg**\
+`The New York Philharmonic under Matthias Pintscher brought dramatic urgency to “Pelleas und Melisande” in commemoration of the composer’s 150th birthday.`\
+https://nytimes.com/2024/10/13/arts/dance/review-new-york-philharmonic-matthias-pintscher.html
+
 **Yankees announce Carlos Rodón as Game 1 starter in ALCS vs. Guardians**\
 `Rodón allowed four earned runs in 3 2/3 innings in a 1-0 loss to the Royals in Game 2 of the ALDS, his previous playoff start.`\
 https://nytimes.com/athletic/5840104/2024/10/13/yankees-carlos-rodon-alcs-starter-game-1/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/sports/football/abdul-salaam-dead.html
 **The Pulse: Down goes Ohio State**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5840024/2024/10/13/ohio-state-oregon-nfl-schedule-the-pulse/
-
-**Ruth Chepngetich smashes women's marathon world record**\
-`Chepngetich became the first woman to ever run under 2:10 at the full marathon distance.`\
-https://nytimes.com/athletic/5839988/2024/10/13/ruth-chepngetich-marathon-world-record/
 
