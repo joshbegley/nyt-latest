@@ -1,3 +1,7 @@
+**Israeli Jets Pummel Hezbollah Targets in Southern Lebanon**\
+`Sirens sounded in northern Israel, warning of incoming fire from Hezbollah.`\
+https://nytimes.com/2024/10/13/world/middleeast/lebanon-israel-hezbollah.html
+
 **Mandel's Final Thoughts: Dillon Gabriel's legend grows, and more from Week 7**\
 `It was a remarkable Saturday that saw three top-10 teams go to overtime and two others play an all-time classic.`\
 https://nytimes.com/athletic/5839701/2024/10/13/oregon-ohio-state-week-7-final-thoughts/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5837587/2024/10/13/falcons-panthers-odds-expert-pic
 **NFL Week 6 top storylines: Commanders-Ravens, rookie QBs in spotlight and Jets start over**\
 `This week's slate kicks off with Bears-Jaguars in London and ends Monday night with a Bills-Jets AFC East showdown.`\
 https://nytimes.com/athletic/5834799/2024/10/13/nfl-week-6-jets-ravens-commanders/
-
-**A Tale of Two Hurricanes Finds More That Differs Than Is the Same**\
-`Helene in North Carolina and Milton in Florida were very different storms in very different places.`\
-https://nytimes.com/2024/10/13/us/hurricane-milton-helene-florida-north-carolina.html
 

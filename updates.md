@@ -1,3 +1,7 @@
+**Israeli Jets Pummel Hezbollah Targets in Southern Lebanon**\
+`Sirens sounded in northern Israel, warning of incoming fire from Hezbollah.`\
+https://nytimes.com/2024/10/13/world/middleeast/lebanon-israel-hezbollah.html
+
 **Mandel's Final Thoughts: Dillon Gabriel's legend grows, and more from Week 7**\
 `It was a remarkable Saturday that saw three top-10 teams go to overtime and two others play an all-time classic.`\
 https://nytimes.com/athletic/5839701/2024/10/13/oregon-ohio-state-week-7-final-thoughts/
