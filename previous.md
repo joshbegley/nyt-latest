@@ -1,3 +1,11 @@
+**Browns RB Nick Chubb expected to return in Week 7**\
+`Chubb began the season on the PUP list after sustaining a torn MCL and damaged ACL in Week 2 of the 2023 season.`\
+https://nytimes.com/athletic/5839090/2024/10/12/nick-chubb-browns-knee-injury-return-week-7/
+
+**Jeff McNeil readies to rejoin Mets after second Arizona Fall League game**\
+`After 10 plate appearances in the Arizona Fall League, McNeil is likely to rejoin his Mets for the NLCS.`\
+https://nytimes.com/athletic/5839092/2024/10/12/mets-jeff-mcneil-arizona-fall-league/
+
 **Trump Hits Coachella, Campaigning Once Again in a Blue State**\
 `The former president took a detour from the battleground states to hold a rally in the California desert, where temperatures hovered near 100 degrees.`\
 https://nytimes.com/2024/10/12/us/politics/trump-rally-coachella-california.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5838839/2024/10/12/comcast-chsn-tv-network-agreemen
 **Penn State strengthens Playoff chances, USC's hopes all but dashed in overtime thriller**\
 `Led by tight end Tyler Warren and a defense that allowed only one TD in the second half, Penn State improved to 6-0 with a 33-30 win at USC.`\
 https://nytimes.com/athletic/5838721/2024/10/12/penn-state-usc-overtime-tyler-warren/
-
-**NFL Draft: Penn State TE Tyler Warren has record-setting day, keeps rising in 2025 class**\
-`Warren continues to rise up NFL Draft boards and might be pushing for a spot in the top 50 picks.`\
-https://nytimes.com/athletic/5838909/2024/10/12/tyler-warren-nfl-draft-2025-woody-marks/
-
-**Andrew Painter pitches for first time since Tommy John surgery**\
-`The Phillies' first-round pick in 2021 allowed two earned runs over two innings in his first Arizona Fall League appearance.`\
-https://nytimes.com/athletic/5838956/2024/10/12/phillies-andrew-painter-return-arizona-fall-league/
 

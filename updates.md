@@ -1,3 +1,11 @@
+**Browns RB Nick Chubb expected to return in Week 7**\
+`Chubb began the season on the PUP list after sustaining a torn MCL and damaged ACL in Week 2 of the 2023 season.`\
+https://nytimes.com/athletic/5839090/2024/10/12/nick-chubb-browns-knee-injury-return-week-7/
+
+**Jeff McNeil readies to rejoin Mets after second Arizona Fall League game**\
+`After 10 plate appearances in the Arizona Fall League, McNeil is likely to rejoin his Mets for the NLCS.`\
+https://nytimes.com/athletic/5839092/2024/10/12/mets-jeff-mcneil-arizona-fall-league/
+
 **Trump Hits Coachella, Campaigning Once Again in a Blue State**\
 `The former president took a detour from the battleground states to hold a rally in the California desert, where temperatures hovered near 100 degrees.`\
 https://nytimes.com/2024/10/12/us/politics/trump-rally-coachella-california.html
