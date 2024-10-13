@@ -1,3 +1,7 @@
+**Drake Maye shines, but another Patriots blowout loss shows rebuild has a long way to go**\
+`The rookie No. 3 pick fared well in his first NFL start, but the Patriots still have a long way to go. `\
+https://nytimes.com/athletic/5840925/2024/10/13/drake-maye-patriots-texans-debut/
+
 **A Little Bit of Power**\
 `With enough power to make a small difference, but only that, what do you do?`\
 https://nytimes.com/2024/10/13/podcasts/a-little-bit-of-power-this-american-life-nyt-audio.html

@@ -1,3 +1,7 @@
+**Drake Maye shines, but another Patriots blowout loss shows rebuild has a long way to go**\
+`The rookie No. 3 pick fared well in his first NFL start, but the Patriots still have a long way to go. `\
+https://nytimes.com/athletic/5840925/2024/10/13/drake-maye-patriots-texans-debut/
+
 **A Little Bit of Power**\
 `With enough power to make a small difference, but only that, what do you do?`\
 https://nytimes.com/2024/10/13/podcasts/a-little-bit-of-power-this-american-life-nyt-audio.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/100000009759806/biden-florida-hurricane-aftermath.h
 **Buckley: Drake Maye, Patriots gave fans what they craved — a glimpse of the future**\
 `What Pats fans needed was quality time with Maye. He delivered with three TD passes, including his first: a perfectly thrown 40-yarder.`\
 https://nytimes.com/athletic/5840876/2024/10/13/drake-maye-debut-patriots-texans/
-
-**Lions' Aidan Hutchinson carted off with leg injury vs. Cowboys**\
-`Since joining the Lions, Hutchinson's 27.5 sacks are the most among all Lions players.`\
-https://nytimes.com/athletic/5840914/2024/10/13/aidan-hutchinson-leg-injury-lions-cowboys/
 
