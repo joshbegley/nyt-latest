@@ -1,3 +1,11 @@
+**‘I Didn’t Feel Connected to Florida. That Was Before Milton.’**\
+`I had only recently moved to Tampa and before the storm didn’t feel connected to the place.`\
+https://nytimes.com/2024/10/13/opinion/i-didnt-feel-connected-to-florida-that-was-before-milton.html
+
+**Q&A recap: Week 6 fantasy football start/sit chat with Jay Felicio, Sunday, 10/13**\
+`Jay Felicio answers your Week 6 fantasy football start/sit questions in a Sunday morning chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5837601/2024/10/13/live-qa-week-6-fantasy-football-start-sit-chat-with-jay-felicio-sunday-10-13-at-11-a-m-et/
+
 **U.S. to Deploy Missile Defense System and About 100 Troops to Israel**\
 `The Pentagon announced it would send the Terminal High Altitude Area Defense battery and its crew as Israel considered retaliatory attacks against Iran.`\
 https://nytimes.com/2024/10/13/us/politics/us-missile-defense-iran-israel.html
