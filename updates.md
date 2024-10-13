@@ -68,6 +68,11 @@ https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-wil
 `\
 https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
 
+**Sideline worker at Titans-Colts carted off after Will Levis hit**\
+`The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
+`\
+https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
+
 **Cardinals' Marvin Harrison Jr. out with concussion vs. Packers**\
 `Harrison had no catches on two targets Sunday before leaving the game.`\
 https://nytimes.com/athletic/5838648/2024/10/13/cardinals-packers-takeaways-result/
