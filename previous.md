@@ -1,3 +1,7 @@
+**Colts dub Richardson emergency QB, starting Flacco vs. Titans**\
+`Through two games this season, Flacco has thrown for 527 yards, five touchdowns and no interceptions on a 70 percent completion rate.`\
+https://nytimes.com/athletic/5840031/2024/10/13/anthony-richardson-joe-flacco-start-colts-titans/
+
 **Abdul Salaam, Quiet Member of the Jets’ ‘Sack Exchange,’ Dies at 71**\
 `A defensive tackle, he teamed with Joe Klecko, Mark Gastineau and Marty Lyons in the 1980s on a line that terrorized quarterbacks.`\
 https://nytimes.com/2024/10/13/sports/football/abdul-salaam-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/dining/this-fake-sauce-is-truly-good.html
 **Giant rockets other than Starship will be flying to orbit soon.**\
 `By Michael Roston and Kenneth Chang`\
 https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/giant-rockets-other-than-starship-will-be-flying-to-orbit-soon
-
-**SEC vibes rankings: How are teams feeling at midseason**\
-`We've reached the midpoint of the SEC season. It's the perfect time to check, once again, on the vibes around the conference.`\
-https://nytimes.com/athletic/5839840/2024/10/13/sec-football-week-7-rankings/
 

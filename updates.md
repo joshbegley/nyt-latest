@@ -1,3 +1,7 @@
+**Colts dub Richardson emergency QB, starting Flacco vs. Titans**\
+`Through two games this season, Flacco has thrown for 527 yards, five touchdowns and no interceptions on a 70 percent completion rate.`\
+https://nytimes.com/athletic/5840031/2024/10/13/anthony-richardson-joe-flacco-start-colts-titans/
+
 **Abdul Salaam, Quiet Member of the Jets’ ‘Sack Exchange,’ Dies at 71**\
 `A defensive tackle, he teamed with Joe Klecko, Mark Gastineau and Marty Lyons in the 1980s on a line that terrorized quarterbacks.`\
 https://nytimes.com/2024/10/13/sports/football/abdul-salaam-dead.html
