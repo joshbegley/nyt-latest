@@ -1,3 +1,7 @@
+**Stewart Mandel's 12-team Playoff projections after Week 7**\
+`Ohio State's loss at Oregon isn't too damaging. The Buckeyes are still the projected Big Ten champs but have dropped to the No. 2 seed.`\
+https://nytimes.com/athletic/5840360/2024/10/13/college-football-playoff-bracket-projections-week-7/
+
 **The Ground Game: Harris’s Turnout Machine vs. Trump’s Unproven Alliance**\
 `Both parties are frenetically chasing votes in the counties that could very well decide the election. In many places, inexperienced conservative groups are going up against a more tightly organized Democratic operation.`\
 https://nytimes.com/2024/10/13/us/politics/trump-harris-campaign-ground-game.html
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5840348/2024/10/13/pulisic-mckennie-pepi-usmnt-mexi
 **Greenberg: Caleb Williams, Bears showing that a new day is dawning in Chicago**\
 `Sunday morning's 35-16 beatdown of the Jaguars in London was a most welcome sight for everyone whose happiness depends on the Bears (4-2).`\
 https://nytimes.com/athletic/5840166/2024/10/13/chicago-bears-caleb-williams-jaguars-london/
-
-**The Painter Titus Kaphar Wanted a Bigger Canvas, so He Made a Film**\
-`His first feature, “Exhibiting Forgiveness,” which opens Oct. 18, features paintings now on view at Gagosian in Los Angeles.`\
-https://nytimes.com/2024/10/13/arts/design/titus-kaphar-gagosian.html
 
