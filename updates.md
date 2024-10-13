@@ -1,3 +1,7 @@
+**No. 1 Texas hasn't peaked yet. What happens when it does?**\
+`This Texas team is loaded with speed, size, strength and depth. And it has yet to play its best football.`\
+https://nytimes.com/athletic/5839152/2024/10/12/texas-longhorns-oklahoma-quinn-ewers/
+
 **Tom Brady expected to be approved as Raiders minority owner**\
 `Brady needs 24 of the NFL's 32 owners to vote in his favor, but that's believed to be a formality.`\
 https://nytimes.com/athletic/5839160/2024/10/12/tom-brady-raiders-bid-review-nfl/
