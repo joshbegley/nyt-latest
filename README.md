@@ -1,3 +1,7 @@
+**No. 1 Texas hasn't peaked yet. What happens when it does?**\
+`This Texas team is loaded with speed, size, strength and depth. And it has yet to play its best football.`\
+https://nytimes.com/athletic/5839152/2024/10/12/texas-longhorns-oklahoma-quinn-ewers/
+
 **Tom Brady expected to be approved as Raiders minority owner**\
 `Brady needs 24 of the NFL's 32 owners to vote in his favor, but that's believed to be a formality.`\
 https://nytimes.com/athletic/5839160/2024/10/12/tom-brady-raiders-bid-review-nfl/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5839104/2024/10/12/oklahoma-texas-brent-vaneables-m
 **Oregon WR Holden ejected for spitting on Ohio State CB Igbinosun**\
 `No. 3 Oregon now has to finish its tight matchup against No. 2 Ohio State without one of its top receivers.`\
 https://nytimes.com/athletic/5839101/2024/10/12/traeshon-holden-ejection-oregon-ohio-state/
-
-**Texas Man Drops Suit Against Women Who Helped Ex-Wife Get Abortion Pills**\
-`The suit had accused the three women of wrongful death. It was part of a heated battle over the use of such pills in states with abortion bans.`\
-https://nytimes.com/2024/10/12/us/texas-lawsuit-friends-abortion-pills.html
 
