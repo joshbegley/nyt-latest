@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nyl
 `\
 https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
 
+**Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
+`William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
+`\
+https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
+
 **Colts at Titans odds, picks, how to watch: Can Colts avoid going 0-3 in division?**\
 `An AFC South matchup with both teams struggling at quarterback and looking for some much-needed momentum.`\
 https://nytimes.com/athletic/5837513/2024/10/12/colts-titans-odds-expert-picks-how-to-watch-predictions-betting/
