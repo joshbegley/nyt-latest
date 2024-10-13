@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-wil
 `\
 https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
 
+**Sideline worker at Titans-Colts carted off after Will Levis hit**\
+`The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
+`\
+https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
+
 **JD Vance defended his running mate and spoke about abortion in a pair of Sunday show appearances.**\
 `By Michael C. Bender`\
 https://nytimes.com/live/2024/10/13/us/harris-trump-election/jd-vance-defended-his-running-mate-and-spoke-about-abortion-in-a-pair-of-sunday-show-appearances
