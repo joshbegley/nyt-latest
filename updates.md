@@ -1,3 +1,11 @@
+**One Who Walks the Walk**\
+`Dana Edwards makes his New York Times Crossword debut, and it’s a slam dunk.`\
+https://nytimes.com/2024/10/13/crosswords/daily-puzzle-2024-10-14.html
+
+**Stewart, Liberty even WNBA Finals with Game 2 win over Lynx**\
+`Game 3 is Wednesday in Minneapolis at 8 p.m. ET. `\
+https://nytimes.com/athletic/5840769/2024/10/13/liberty-lynx-wnba-finals-game-2/
+
 **Wild lose Jared Spurgeon, Joel Eriksson Ek to injury ahead of Winnipeg matchup**\
 `Neither player traveled with the team to Winnipeg to kick off a seven-game road trip.`\
 https://nytimes.com/athletic/5840776/2024/10/13/wild-injury-jared-spurgeon-eriksson-ek/

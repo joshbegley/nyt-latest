@@ -1,3 +1,11 @@
+**One Who Walks the Walk**\
+`Dana Edwards makes his New York Times Crossword debut, and it’s a slam dunk.`\
+https://nytimes.com/2024/10/13/crosswords/daily-puzzle-2024-10-14.html
+
+**Stewart, Liberty even WNBA Finals with Game 2 win over Lynx**\
+`Game 3 is Wednesday in Minneapolis at 8 p.m. ET. `\
+https://nytimes.com/athletic/5840769/2024/10/13/liberty-lynx-wnba-finals-game-2/
+
 **Wild lose Jared Spurgeon, Joel Eriksson Ek to injury ahead of Winnipeg matchup**\
 `Neither player traveled with the team to Winnipeg to kick off a seven-game road trip.`\
 https://nytimes.com/athletic/5840776/2024/10/13/wild-injury-jared-spurgeon-eriksson-ek/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5838692/2024/10/13/eagles-browns-score-results-take
 **Flacco, Colts come back to beat Titans 20-17: Takeaways**\
 `Will Levis’ season of misery continues, and it may get worse soon for the Titans after falling to the Colts on Sunday.`\
 https://nytimes.com/athletic/5838701/2024/10/13/colts-titans-score-joe-flacco-results-takeaways/
-
-**Bucs spoil Rattler's debut with 51-27 win over Saints: Takeaways**\
-`Tampa Bay's defense shut out New Orleans in the second half for big divisional win in Week 6.`\
-https://nytimes.com/athletic/5838679/2024/10/13/saints-buccaneers-score-results-takeaways/
-
-**Stroud leads Texans past Pats in Maye's debut: Key takeaways**\
-`Stroud went 20-of-31 passing for 192 yards, three touchdowns and an interception.`\
-https://nytimes.com/athletic/5838667/2024/10/13/patriots-texans-score-drake-maye-takeaways/
 
