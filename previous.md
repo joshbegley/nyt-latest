@@ -1,3 +1,11 @@
+**Abdul Salaam, Quiet Member of the Jets’ ‘Sack Exchange,’ Dies at 71**\
+`A defensive tackle, he teamed with Joe Klecko, Mark Gastineau and Marty Lyons in the 1980s on a line that terrorized quarterbacks.`\
+https://nytimes.com/2024/10/13/sports/football/abdul-salaam-dead.html
+
+**The Pulse: Down goes Ohio State**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5840024/2024/10/13/ohio-state-oregon-nfl-schedule-the-pulse/
+
 **Ruth Chepngetich smashes women's marathon world record**\
 `Chepngetich became the first woman to ever run under 2:10 at the full marathon distance.`\
 https://nytimes.com/athletic/5839988/2024/10/13/ruth-chepngetich-marathon-world-record/
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/giant-rockets
 **SEC vibes rankings: How are teams feeling at midseason**\
 `We've reached the midpoint of the SEC season. It's the perfect time to check, once again, on the vibes around the conference.`\
 https://nytimes.com/athletic/5839840/2024/10/13/sec-football-week-7-rankings/
-
-**Lamine Yamal returns to Barcelona after suffering hamstring discomfort on Spain duty**\
-`Lamine Yamal has left the Spain squad to return to Barcelona after suffering minor hamstring discomfort in Saturday&#8217;s Nations League victory against Denmark.`\
-https://nytimes.com/athletic/5839914/2024/10/13/lamine-yamal-injury-update-spain-barcelona/
-
-**Live Q&A: Week 6 fantasy football start/sit chat with Jay Felicio, Sunday, 10/13 at 11 a.m. ET**\
-`Jay Felicio answers your Week 6 fantasy football start/sit questions in a Sunday morning chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5837601/2024/10/13/live-qa-week-6-fantasy-football-start-sit-chat-with-jay-felicio-sunday-10-13-at-11-a-m-et/
 

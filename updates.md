@@ -1,3 +1,11 @@
+**Abdul Salaam, Quiet Member of the Jets’ ‘Sack Exchange,’ Dies at 71**\
+`A defensive tackle, he teamed with Joe Klecko, Mark Gastineau and Marty Lyons in the 1980s on a line that terrorized quarterbacks.`\
+https://nytimes.com/2024/10/13/sports/football/abdul-salaam-dead.html
+
+**The Pulse: Down goes Ohio State**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5840024/2024/10/13/ohio-state-oregon-nfl-schedule-the-pulse/
+
 **Ruth Chepngetich smashes women's marathon world record**\
 `Chepngetich became the first woman to ever run under 2:10 at the full marathon distance.`\
 https://nytimes.com/athletic/5839988/2024/10/13/ruth-chepngetich-marathon-world-record/
