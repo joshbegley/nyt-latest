@@ -1,3 +1,7 @@
+**U.S. to Deploy Missile Defense System and About 100 Troops to Israel**\
+`The Pentagon announced it would send the Terminal High Altitude Area Defense battery and its crew as Israel considered retaliatory attacks against Iran.`\
+https://nytimes.com/2024/10/13/us/politics/us-missile-defense-iran-israel.html
+
 **Caleb Williams shines as Bears beat Jaguars 35-16 in London: Takeaways**\
 `The Bears improve to 4-2 while the Jaguars sink to 1-5 and remain at the bottom of the AFC South.`\
 https://nytimes.com/athletic/5838618/2024/10/13/bears-jaguars-score-caleb-williams-takeaways-london/
