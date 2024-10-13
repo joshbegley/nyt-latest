@@ -1,3 +1,7 @@
+**Guardians rely on 'calm heartbeat' of Cade Smith and Lane Thomas, advance to ALCS**\
+`Thomas, a midseason acquisition, hit the go-ahead grand slam in Game 5 that forced even the most stoic members of the team into a frenzy.`\
+https://nytimes.com/athletic/5839043/2024/10/12/cleveland-guardians-alcs-cade-smith-lane-thomas/
+
 **Lions, David Montgomery agree to 2-year contract extension**\
 `Montgomery, 27, rushed for 1,286 rushing yards and 17 touchdowns through the first 18 games of his Lions tenure.`\
 https://nytimes.com/athletic/5839019/2024/10/12/david-montgomery-lions-contract-extension/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838892/2024/10/12/texas-oklahoma-result-takeaways/
 **Boot Found at Everest Could Be From Climber Who Vanished 100 Years Ago**\
 `When Sandy Irvine went on a pioneering expedition to Mount Everest’s summit in 1924, he and his partner vanished. The recent discovery may shed light on the ill-fated adventure.`\
 https://nytimes.com/2024/10/12/world/asia/sandy-irvine-remains-everest.html
-
-**Jaguars vs. Bears odds, picks, how to watch: Williams, Lawrence face off in London**\
-`The Jags make their 12th visit to London to face Caleb Williams and the Bears in a tight and unpredictable matchup.`\
-https://nytimes.com/athletic/5836983/2024/10/12/jaguars-bears-odds-expert-picks-how-to-watch-predictions-betting/
 
