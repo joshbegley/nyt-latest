@@ -1,3 +1,7 @@
+**Colorado's Travis Hunter exits with shoulder injury vs. Kansas State**\
+`Hunter caught three passes for 26 yards and a tackle before his early departure at Folsom Field.`\
+https://nytimes.com/athletic/5839521/2024/10/13/travis-hunter-colorado-shoulder-injury/
+
 **What Trump’s Hatred Taught Me**\
 `When the former president attacks immigrants, this is what I hear.`\
 https://nytimes.com/2024/10/13/opinion/trump-immigration-rhetoric-poisoning.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838293/2024/10/13/pep-guardiola-england-manager/
 **‘This is more than Subbuteo’: A day with the best table footballers in the world**\
 `Ever since the game was devised in 1946, a global community of deadly serious Subbuteo players has steadily grown...`\
 https://nytimes.com/athletic/5828167/2024/10/13/subbuteo-world-cup/
-
-**"I’ve realised how much I actually love football - I want to get back to the top"**\
-`Josh Onomah was tipped for the very top as a teenager - after a long search for a new club he is determined to prove himself once more`\
-https://nytimes.com/athletic/5831027/2024/10/13/josh-onomah-tottenham-fulham-blackpool-interview/
 
