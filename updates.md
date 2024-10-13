@@ -1,3 +1,16 @@
+**Colts at Titans odds, picks, how to watch: Can Colts avoid going 0-3 in division?**\
+`An AFC South matchup with both teams struggling at quarterback and looking for some much-needed momentum.`\
+https://nytimes.com/athletic/5837513/2024/10/12/colts-titans-odds-expert-picks-how-to-watch-predictions-betting/
+
+**How Dodgers found relief from tight-knit bullpen to advance: 'Kick our egos to the door'**\
+`The Dodgers head into the NLCS with a postseason-record 24 consecutive scoreless innings from their pitching staff.`\
+https://nytimes.com/athletic/5839292/2024/10/12/dodgers-bullpen-relief-padres-nlds/
+
+**Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
+`William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
+`\
+https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
+
 **Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
 `William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
 `\
