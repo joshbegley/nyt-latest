@@ -1,3 +1,7 @@
+**Referee collapses, leaves in ambulance during Boise State-Hawai'i**\
+`The official was alert as he left the complex, according to the CBS broadcast.`\
+https://nytimes.com/athletic/5839482/2024/10/13/boise-state-hawaii-referee-collapse-ambulance/
+
 **Browns vs. Eagles odds, expert picks, how to watch: A.J. Brown returns, Browns stick with Watson**\
 `The Philadelphia Eagles welcome the hapless Cleveland Browns and Deshaun Watson to Lincoln Financial Field Sunday afternoon.`\
 https://nytimes.com/athletic/5837309/2024/10/13/browns-eagles-odds-predictions-betting/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838546/2024/10/13/penguins-maple-leafs-joel-blomqv
 **Why football's biggest stars are investing in esports**\
 `From Virgil van Dijk to Casemiro, footballers are backing teams in the world of competitive video games - so why are they doing it?`\
 https://nytimes.com/athletic/5739705/2024/10/13/footballers-esports-david-beckham-neymar-casemiro/
-
-**Silvio Berlusconi Died. But for Her, the ‘Bunga Bunga’ Scandal Lives On.**\
-`The woman at the center of revelations of bacchanals at the former Italian prime minister’s villa is still fighting a court case, and a negative public image, 14 years later.`\
-https://nytimes.com/2024/10/13/world/europe/berlusconi-bunga-bunga-scandal-italy.html
 

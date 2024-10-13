@@ -1,3 +1,7 @@
+**Referee collapses, leaves in ambulance during Boise State-Hawai'i**\
+`The official was alert as he left the complex, according to the CBS broadcast.`\
+https://nytimes.com/athletic/5839482/2024/10/13/boise-state-hawaii-referee-collapse-ambulance/
+
 **Browns vs. Eagles odds, expert picks, how to watch: A.J. Brown returns, Browns stick with Watson**\
 `The Philadelphia Eagles welcome the hapless Cleveland Browns and Deshaun Watson to Lincoln Financial Field Sunday afternoon.`\
 https://nytimes.com/athletic/5837309/2024/10/13/browns-eagles-odds-predictions-betting/
