@@ -1,3 +1,7 @@
+**What Trump’s Hatred Taught Me**\
+`When the former president attacks immigrants, this is what I hear.`\
+https://nytimes.com/2024/10/13/opinion/trump-immigration-rhetoric-poisoning.html
+
 **Why aren't the Senators winning high-danger chance battles? 4 Senators takeaways**\
 `It's only been two games, but the Senators' power play and lack of high-danger chances are causes for concern.`\
 https://nytimes.com/athletic/5839213/2024/10/13/senators-canadiens-takeaways-stutzle-tkachuk/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5828167/2024/10/13/subbuteo-world-cup/
 **"I’ve realised how much I actually love football - I want to get back to the top"**\
 `Josh Onomah was tipped for the very top as a teenager - after a long search for a new club he is determined to prove himself once more`\
 https://nytimes.com/athletic/5831027/2024/10/13/josh-onomah-tottenham-fulham-blackpool-interview/
-
-**Hurt and boos mark end of awful week for Eidevall's Arsenal as 'bad start' gets worse**\
-`"We are really hurting. I’m hurting, the players are hurting" said Arsenal's head coach after a damaging week at home and in Europe `\
-https://nytimes.com/athletic/5838462/2024/10/13/eidevall-arsenal-boos/
 
