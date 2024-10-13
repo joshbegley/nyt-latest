@@ -1,3 +1,11 @@
+**How Bears QB Caleb Williams bounced back from an early INT to put on a show in London**\
+`Williams threw four touchdown passes in a rout of the Jaguars as the Bears won their third straight and enter the bye week at 4-2.`\
+https://nytimes.com/athletic/5840484/2024/10/13/caleb-williams-bears-jaguars-london/
+
+**Biden Calls for Bipartisan Effort to Help Areas Hit by Storms**\
+`The president surveyed damage in Florida and announced $612 million for projects to help the electric grid in areas affected by Hurricanes Helene and Milton.`\
+https://nytimes.com/2024/10/13/us/politics/biden-hurricane-damage-florida.html
+
 **Sideline worker at Titans-Colts carted off after Will Levis hit**\
 `The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
 `\

@@ -1,3 +1,11 @@
+**How Bears QB Caleb Williams bounced back from an early INT to put on a show in London**\
+`Williams threw four touchdown passes in a rout of the Jaguars as the Bears won their third straight and enter the bye week at 4-2.`\
+https://nytimes.com/athletic/5840484/2024/10/13/caleb-williams-bears-jaguars-london/
+
+**Biden Calls for Bipartisan Effort to Help Areas Hit by Storms**\
+`The president surveyed damage in Florida and announced $612 million for projects to help the electric grid in areas affected by Hurricanes Helene and Milton.`\
+https://nytimes.com/2024/10/13/us/politics/biden-hurricane-damage-florida.html
+
 **JD Vance defended his running mate and spoke about abortion in a pair of Sunday show appearances.**\
 `By Michael C. Bender`\
 https://nytimes.com/live/2024/10/13/us/harris-trump-election/jd-vance-defended-his-running-mate-and-spoke-about-abortion-in-a-pair-of-sunday-show-appearances
@@ -25,13 +33,4 @@ https://nytimes.com/2024/10/13/us/eastern-box-turtle-smuggling.html
 **Riley Leonard is starting to look like the QB Notre Dame expected all along**\
 `Riley Leonard looks like a quarterback who gets it now, and Mike Denbrock looks like a coordinator who gets his quarterback.`\
 https://nytimes.com/athletic/5840285/2024/10/13/notre-dame-football-riley-leonard-stanford/
-
-**AP Top 25: Texas still No. 1 as Oregon jumps to No. 2**\
-`Texas is No. 1 heading into its showdown against No. 5 Georgia, with Oregon No. 2, Penn State No. 3 and Ohio State No. 4 in the AP poll.`\
-https://nytimes.com/athletic/5840342/2024/10/13/ap-top-25-rankings-texas-oregon/
-
-**Sideline worker at Titans-Colts carted off after Will Levis hit**\
-`The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
-`\
-https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
 
