@@ -1,3 +1,7 @@
+**Chargers' Jim Harbaugh returns to sideline vs. Broncos after early exit**\
+`Chargers defensive coordinator Jesse Minter served as the interim coach during Harbaugh's brief absence.`\
+https://nytimes.com/athletic/5840615/2024/10/13/jim-harbaugh-illness-chargers-broncos/
+
 **Guardians tap Alex Cobb, Tanner Bibee to start Games 1 and 2 of ALCS vs. Yankees**\
 `It'll be Cobb's second start of the postseason and Bibee's third. `\
 https://nytimes.com/athletic/5840582/2024/10/13/guardians-pitching-alcs-alex-cobb-tanner-bibee/

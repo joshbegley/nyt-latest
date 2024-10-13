@@ -1,3 +1,7 @@
+**Chargers' Jim Harbaugh returns to sideline vs. Broncos after early exit**\
+`Chargers defensive coordinator Jesse Minter served as the interim coach during Harbaugh's brief absence.`\
+https://nytimes.com/athletic/5840615/2024/10/13/jim-harbaugh-illness-chargers-broncos/
+
 **Guardians tap Alex Cobb, Tanner Bibee to start Games 1 and 2 of ALCS vs. Yankees**\
 `It'll be Cobb's second start of the postseason and Bibee's third. `\
 https://nytimes.com/athletic/5840582/2024/10/13/guardians-pitching-alcs-alex-cobb-tanner-bibee/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5840360/2024/10/13/college-football-playoff-bracket
 **The Ground Game: Harris’s Turnout Machine vs. Trump’s Unproven Alliance**\
 `Both parties are frenetically chasing votes in the counties that could very well decide the election. In many places, inexperienced conservative groups are going up against a more tightly organized Democratic operation.`\
 https://nytimes.com/2024/10/13/us/politics/trump-harris-campaign-ground-game.html
-
-**Woman Who Tried to Smuggle 29 Turtles Wrapped in Socks Pleads Guilty**\
-`A resident of Hong Kong was caught while paddling across a lake from Vermont to Canada in an inflatable kayak with the Eastern box turtles in a duffle bag, according to court records.`\
-https://nytimes.com/2024/10/13/us/eastern-box-turtle-smuggling.html
 
