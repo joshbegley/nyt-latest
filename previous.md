@@ -1,36 +1,36 @@
-**Steelers at Raiders odds, picks, how to watch: Offensive struggles cloud outlook for both**\
-`The Raiders are starting a new QB, and the Steelers have struggled to get their offense rolling. Will this be close?`\
-https://nytimes.com/athletic/5837610/2024/10/13/steelers-raiders-odds-expert-picks-how-to-watch-predictions-betting/
+**‘Saturday Night Live’ and the Underappreciated Influence of Carol Burnett**\
+`A new film about the show doesn’t mention her. But in many ways her hit sketch series helped define the early vision of Lorne Michaels.`\
+https://nytimes.com/2024/10/13/arts/television/saturday-night-carol-burnett-lorne-michaels.html
 
-**Russian Strikes on Ukrainian Ports Target Civilian Shipping**\
-`With the strikes in the Odesa region, Russia appears to be trying again to prevent Ukraine from exporting grain, harming its economy and pushing up world prices.`\
-https://nytimes.com/2024/10/13/world/europe/russia-ukraine-ports-odesa-grain.html
+**Who Is That You Are Chatting With? Oh, Just ChatGPT.**\
+`The artificial intelligence chatbot’s Advanced Voice Mode feature has delighted some users and weirded out others.`\
+https://nytimes.com/2024/10/13/style/chatgpt-voice-mode.html
 
-**Chargers vs. Broncos: odds, picks, how to watch: Harbaugh, Payton meet in coaching duel**\
-`Bo Nix and the Broncos try to extend a three-game winning streak against Jim Harbaugh's disciplined Chargers. `\
-https://nytimes.com/athletic/5837577/2024/10/13/chargers-broncos-odds-expert-picks-how-to-watch-predictions-betting/
+**Once Known for Death Row, San Quentin Hosts a Star-Studded Film Festival**\
+`The California prison used to house some of the state’s most violent criminals, but has become more known lately for creative pursuits.`\
+https://nytimes.com/2024/10/13/us/san-quentin-film-festival-prison.html
 
-**Ladakh’s Local Hero Wants India to Pay Attention to His People**\
-`The activist Sonam Wangchuk is leading protests to demand more autonomy for India’s remote Ladakh region, which shares borders with China and Pakistan.`\
-https://nytimes.com/2024/10/13/world/asia/ladakh-india-wangchuk.html
+**A Hedgehog, a Centrifuge and Other Millennial Life-Improvement Splurges**\
+`Placing a high value on personal growth, millennials and Gen Z appear more likely than older generations to make hobbies and nonessential purchases a spending priority.`\
+https://nytimes.com/2024/10/13/business/millennials-spending.html
 
-**Corrections: Oct. 13, 2024**\
-`Corrections that appeared in print on Sunday, Oct. 13, 2024.`\
-https://nytimes.com/2024/10/13/pageoneplus/corrections-oct-13-2024.html
+**A Birth Scene So Taxing, Andrew Garfield and Florence Pugh Needed to Rest**\
+`The stars and director of “We Live in Time” explain how a delivery became an action sequence, complete with a real baby and a few unwelcome surprises.`\
+https://nytimes.com/2024/10/13/movies/andrew-garfield-florence-pugh-we-live-in-time.html
 
-**On ‘S.N.L.,’ Harris and Trump Take Their Contest to ‘Family Feud’**\
-`It was also an especially music-filled evening, with Stevie Nicks as the musical guest and Ariana Grande, as host, breaking often into song.`\
-https://nytimes.com/2024/10/13/arts/television/snl-harris-trump-ariana-grande-stevie-nicks.html
+**On the Trail, Harris Turns to Her Experience Fighting Cross-Border Crime**\
+`As California’s attorney general, Kamala Harris prioritized the fight against traffickers of drugs and people. It’s a part of her biography she hasn’t always talked about.`\
+https://nytimes.com/2024/10/13/us/politics/harris-border-crime.html
 
-**A Test of Knowledge and a Winning Entrant**\
-`Can you guess which former New York Times critic won the newspaper’s intercollegiate contest as a student?`\
-https://nytimes.com/2024/10/13/insider/a-test-of-knowledge-and-a-winning-entrant.html
+**Oregon's epic win a testament to Dan Lanning's elite talent-stacking**\
+`Oregon beat Ohio State in the most uncomplicated way possible: with a loaded roster that went toe-to-toe with the blue-chip-laden Buckeyes.`\
+https://nytimes.com/athletic/5839631/2024/10/13/oregon-ohio-state-dan-lanning-recruiting/
 
-**A Day in the Life of Tim Heidecker, Glendale Dad**\
-`Years after making his name with the sketch comedy series “Tim and Eric Awesome Show, Great Job!”, he’s singing wry ballads and watching the kids.`\
-https://nytimes.com/2024/10/13/style/tim-heidecker-glendale-dad-encounters.html
+**Christopher Steele and the Mueller Team Are Still Trying to Set the Record Straight**\
+`Two new books explore the messy business of uncovering Russian interference in American elections.`\
+https://nytimes.com/2024/10/13/books/review/unredecated-christopher-steele-interference-aaron-zebley-james-quarles-andrew-goldstein.html
 
-**Can the New York Liberty, the Best in the W.N.B.A, Finally Win It All?**\
-`The Liberty, an original W.N.B.A. franchise, have been to the finals five times and lost each time. But their fans can’t help believing, again, this year.`\
-https://nytimes.com/2024/10/13/nyregion/new-york-liberty-finals.html
+**Snyder: Penn State's come-from-behind win proves these are not the same Nittany Lions**\
+`Just about everything that could have gone wrong did during the first half against USC, but Penn State showed a Playoff-caliber resiliency.`\
+https://nytimes.com/athletic/5839319/2024/10/13/penn-state-usc-college-football-playoff/
 
