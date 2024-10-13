@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Penguins' decision to go with Joel Blomqvist overshadows loss**\
+`It took merely one start for Tristan Jarry to find himself on the bench for multiple games. Alex Nedeljkovic is almost ready to play.`\
+https://nytimes.com/athletic/5838546/2024/10/13/penguins-maple-leafs-joel-blomqvist/
+
 **There may never be a better time to ask Pep Guardiola if he wants the England job**\
 `Opportunity might not knock like this again with the man who would surely be the best manager England have ever had`\
 https://nytimes.com/athletic/5838293/2024/10/13/pep-guardiola-england-manager/

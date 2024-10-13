@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5831027/2024/10/13/josh-onomah-tottenham-fulham-bla
 https://nytimes.com/athletic/5838462/2024/10/13/eidevall-arsenal-boos/
 
 **Yohe's 10 observations: Penguins' decision to go with Joel Blomqvist overshadows loss**\
-`It took merely one start for Tristan Jarry to find himself on the bench for multiple games, and Alex Nedeljkovic is almost ready to play.`\
+`It took merely one start for Tristan Jarry to find himself on the bench for multiple games. Alex Nedeljkovic is almost ready to play.`\
 https://nytimes.com/athletic/5838546/2024/10/13/penguins-maple-leafs-joel-blomqvist/
 
 **Why football's biggest stars are investing in esports**\
