@@ -1,7 +1,3 @@
-**Joel Eriksson Ek injured as Wild blow 3 leads in shootout loss to Kraken: 3 takeaways**\
-`The Wild blew a two-goal lead and a pair of one-goal leads en route to a 5-4 shootout loss.`\
-https://nytimes.com/athletic/5838982/2024/10/12/wild-joel-eriksson-ek-injury/
-
 **USMNT opens Pochettino era with 2-0 win over Panama: Takeaways**\
 `Yunus Musah’s 49th-minute goal and a late finish from Ricardo Pepi lifted the U.S. to a 2-0 victory over Panama in Austin, Texas.`\
 https://nytimes.com/athletic/5839295/2024/10/12/usmnt-vs-panama-pochettino-musah-takeaways/
@@ -34,4 +30,8 @@ https://nytimes.com/athletic/5838921/2024/10/12/penn-state-usc-big-ten-football-
 **Penguins' Malkin joins Crosby, Ovechkin as active NHL players with 1,300 points**\
 `With two assists Saturday, Malkin became one of only 37 players to score at least 1,300 points.`\
 https://nytimes.com/athletic/5837129/2024/10/12/penguins-evgeni-malkin-1300-nhl-points/
+
+**After Hurricane Milton, displaced USF tries to play on: 'Our whole community’s hurting'**\
+`USF lost to Memphis, but there was plenty more on the Bulls' minds as they played 80 miles away from home after a devastating storm.`\
+https://nytimes.com/athletic/5839125/2024/10/12/usf-football-hurricane-milton-memphis-orlando/
 
