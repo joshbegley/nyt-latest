@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5840348/2024/10/13/pulisic-mckennie-pepi-usmnt-mexi
 `Sunday morning's 35-16 beatdown of the Jaguars in London was a most welcome sight for everyone whose happiness depends on the Bears (4-2).`\
 https://nytimes.com/athletic/5840166/2024/10/13/chicago-bears-caleb-williams-jaguars-london/
 
-**The Painter Titus Kaphar Needed a Bigger Canvas, so He Made a Film**\
+**The Painter Titus Kaphar Wanted a Bigger Canvas, so He Made a Film**\
 `His first feature, “Exhibiting Forgiveness,” which opens Oct. 18, features paintings now on view at Gagosian in Los Angeles.`\
 https://nytimes.com/2024/10/13/arts/design/titus-kaphar-gagosian.html
 
