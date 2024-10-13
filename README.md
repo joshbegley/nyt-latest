@@ -1,3 +1,7 @@
+**Does cross-country travel in Big Ten matter? Breaking down results after Penn State-USC**\
+`Penn State and Indiana are the only two Big Ten teams that won on the road at least two time zones away.`\
+https://nytimes.com/athletic/5838921/2024/10/12/penn-state-usc-big-ten-football-record/
+
 **Penguins' Malkin joins Crosby, Ovechkin as active NHL players with 1,300 points**\
 `With two assists Saturday, Malkin became one of only 37 players to score at least 1,300 points.`\
 https://nytimes.com/athletic/5837129/2024/10/12/penguins-evgeni-malkin-1300-nhl-points/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5839090/2024/10/12/nick-chubb-browns-knee-injury-re
 **Jeff McNeil readies to rejoin Mets after second Arizona Fall League game**\
 `After 10 plate appearances in the Arizona Fall League, McNeil is likely to return to the Mets for the NLCS.`\
 https://nytimes.com/athletic/5839092/2024/10/12/mets-jeff-mcneil-arizona-fall-league/
-
-**Trump Hits Coachella, Campaigning Once Again in a Blue State**\
-`The former president took a detour from the battleground states to hold a rally in the California desert, where temperatures hovered near 100 degrees.`\
-https://nytimes.com/2024/10/12/us/politics/trump-rally-coachella-california.html
 
