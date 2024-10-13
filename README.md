@@ -1,3 +1,7 @@
+**Texas Man Drops Suit Against Women Who Helped Ex-Wife Get Abortion Pills**\
+`The suit had accused the three women of wrongful death. It was part of a heated battle over the use of such pills in states with abortion bans.`\
+https://nytimes.com/2024/10/12/us/texas-lawsuit-friends-abortion-pills.html
+
 **Browns RB Nick Chubb expected to return in Week 7**\
 `Chubb began the season on the physically unable to perform (PUP) list after sustaining a torn ACL, PCL and MCL in Week 2 of the 2023 season.`\
 https://nytimes.com/athletic/5839090/2024/10/12/nick-chubb-browns-knee-injury-return-week-7/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838870/2024/10/12/notre-dame-stanford-score-riley-
 **Why CHSN, Comcast have yet to reach a carriage agreement**\
 `The lack of a deal with Comcast sparked disappointment from fans online Friday when the Blackhawks’ game wasn't available on cable TV.`\
 https://nytimes.com/athletic/5838839/2024/10/12/comcast-chsn-tv-network-agreement/
-
-**Penn State strengthens Playoff chances, USC's hopes all but dashed in overtime thriller**\
-`Led by tight end Tyler Warren and a defense that allowed only one TD in the second half, Penn State improved to 6-0 with a 33-30 win at USC.`\
-https://nytimes.com/athletic/5838721/2024/10/12/penn-state-usc-overtime-tyler-warren/
 
