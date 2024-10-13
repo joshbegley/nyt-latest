@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nyl
 `\
 https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
 
+**Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
+`William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
+`\
+https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
+
 **No. 1 Texas hasn't peaked yet. What happens when it does?**\
 `This Texas team is loaded with speed, size, strength and depth. And it has yet to play its best football.`\
 https://nytimes.com/athletic/5839152/2024/10/12/texas-longhorns-oklahoma-quinn-ewers/

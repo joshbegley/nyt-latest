@@ -1,3 +1,7 @@
+**What Oregon's signature win vs. Ohio State in Big Ten classic means for Ducks, Buckeyes**\
+`Oregon toppled Ohio State 32-21 in a back-and-forth thriller at Autzen Stadium. Here's what it means for Dan Lanning and Ryan Day.`\
+https://nytimes.com/athletic/5839184/2024/10/12/ohio-state-oregon-score-recap-takeaways/
+
 **Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
 `William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
 `\
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5839125/2024/10/12/usf-football-hurricane-milton-me
 **Dodgers' Gavin Stone likely to miss all of 2025 after shoulder surgery**\
 `Dodgers manager Dave Roberts said the surgery Stone underwent this week "identified a lot of stuff that was going on in the shoulder."`\
 https://nytimes.com/athletic/5839159/2024/10/12/dodgers-gavin-stone-shoulder-surgery/
-
-**Oklahoma has too many different problems for Brent Venables' third year**\
-`Oklahoma has a quarterback mess and a lack of answers for its various recurring problems, a stark contrast to its Red River rival.`\
-https://nytimes.com/athletic/5839104/2024/10/12/oklahoma-texas-brent-vaneables-michael-hawkins/
 
