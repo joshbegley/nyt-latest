@@ -1,4 +1,8 @@
 **Browns RB Nick Chubb expected to return in Week 7**\
+`Chubb began the season on the physically unable to perform (PUP) list after sustaining a torn ACL, PCL and MCL in Week 2 of the 2023 season.`\
+https://nytimes.com/athletic/5839090/2024/10/12/nick-chubb-browns-knee-injury-return-week-7/
+
+**Browns RB Nick Chubb expected to return in Week 7**\
 `Chubb began the season on the PUP list after sustaining a torn MCL and damaged ACL in Week 2 of the 2023 season.`\
 https://nytimes.com/athletic/5839090/2024/10/12/nick-chubb-browns-knee-injury-return-week-7/
 
