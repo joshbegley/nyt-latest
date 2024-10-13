@@ -1,3 +1,11 @@
+**Why aren't the Senators winning high-danger chance battles? 4 Senators takeaways**\
+`It's only been two games, but the Senators' power play and lack of high-danger chances are causes for concern.`\
+https://nytimes.com/athletic/5839213/2024/10/13/senators-canadiens-takeaways-stutzle-tkachuk/
+
+**Commanders vs. Ravens odds, picks, how to watch: Projected ROTY takes on reigning MVP**\
+`New kid Jayden Daniels and the Commanders look to upset the Lamar Jackson-led Ravens.`\
+https://nytimes.com/athletic/5837410/2024/10/13/commanders-ravens-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Referee collapses, leaves in ambulance during Boise State-Hawai'i**\
 `The official was alert as he left the complex, according to the CBS broadcast.`\
 https://nytimes.com/athletic/5839482/2024/10/13/boise-state-hawaii-referee-collapse-ambulance/
