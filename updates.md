@@ -33,6 +33,11 @@ https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nyl
 `\
 https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
 
+**Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
+`William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
+`\
+https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
+
 **USMNT opens Pochettino era with 2-0 win over Panama: Takeaways**\
 `Yunus Musah’s 49th-minute goal and a late finish from Ricardo Pepi lifted the U.S. to a 2-0 victory over Panama in Austin, Texas.`\
 https://nytimes.com/athletic/5839295/2024/10/12/usmnt-vs-panama-pochettino-musah-takeaways/
