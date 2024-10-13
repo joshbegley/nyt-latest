@@ -1,3 +1,7 @@
+**Falcons at Panthers odds, expert picks, how to watch: Atlanta heavily favored on the road**\
+`The Falcons are favored by nearly a touchdown despite playing on the road. Confidence remains low in Carolina.`\
+https://nytimes.com/athletic/5837587/2024/10/13/falcons-panthers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **NFL Week 6 top storylines: Commanders-Ravens, rookie QBs in spotlight and Jets start over**\
 `This week's slate kicks off with Bears-Jaguars in London and ends Monday night with a Bills-Jets AFC East showdown.`\
 https://nytimes.com/athletic/5834799/2024/10/13/nfl-week-6-jets-ravens-commanders/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/arts/television/saturday-night-carol-burnett-lorn
 **Who Is That You Are Chatting With? Oh, Just ChatGPT.**\
 `The artificial intelligence chatbot’s Advanced Voice Mode feature has delighted some users and weirded out others.`\
 https://nytimes.com/2024/10/13/style/chatgpt-voice-mode.html
-
-**Once Known for Death Row, San Quentin Hosts a Star-Studded Film Festival**\
-`The California prison used to house some of the state’s most violent criminals, but has become more known lately for creative pursuits.`\
-https://nytimes.com/2024/10/13/us/san-quentin-film-festival-prison.html
 
