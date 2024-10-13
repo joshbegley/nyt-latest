@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5838692/2024/10/13/eagles-browns-score-results-take
 https://nytimes.com/athletic/5838701/2024/10/13/colts-titans-score-joe-flacco-results-takeaways/
 
 **Bucs spoil Rattler's debut with 51-27 win over Saints: Takeaways**\
-`Tampa Bay's defense shut out New Orleans in the second half a for big divisional win in Week 6.`\
+`Tampa Bay's defense shut out New Orleans in the second half for big divisional win in Week 6.`\
 https://nytimes.com/athletic/5838679/2024/10/13/saints-buccaneers-score-results-takeaways/
 
 **Stroud leads Texans past Pats in Maye's debut: Key takeaways**\
