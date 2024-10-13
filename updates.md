@@ -1,3 +1,7 @@
+**Jaguars' embarrassing loss in London turns up the heat on Doug Pederson**\
+`The Jaguars fell to 1-5 with a poor showing in their home away from home. Pederson acknowledged there's a lot of work to do.`\
+https://nytimes.com/athletic/5840781/2024/10/13/jaguars-doug-pederson-bears-london/
+
 **One Who Walks the Walk**\
 `Dana Edwards makes his New York Times Crossword debut, and it’s a slam dunk.`\
 https://nytimes.com/2024/10/13/crosswords/daily-puzzle-2024-10-14.html

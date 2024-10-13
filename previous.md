@@ -1,3 +1,7 @@
+**Jaguars' embarrassing loss in London turns up the heat on Doug Pederson**\
+`The Jaguars fell to 1-5 with a poor showing in their home away from home. Pederson acknowledged there's a lot of work to do.`\
+https://nytimes.com/athletic/5840781/2024/10/13/jaguars-doug-pederson-bears-london/
+
 **One Who Walks the Walk**\
 `Dana Edwards makes his New York Times Crossword debut, and it’s a slam dunk.`\
 https://nytimes.com/2024/10/13/crosswords/daily-puzzle-2024-10-14.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/briefing/us-troops-poll-ladakh.html
 **Eagles make big plays as Browns lose fourth straight: Key takeaways**\
 `Both A.J. Brown and DeVonta Smith made key plays on Sunday to help the Eagles seal a 20-16 victory.`\
 https://nytimes.com/athletic/5838692/2024/10/13/eagles-browns-score-results-takeaways/
-
-**Flacco, Colts come back to beat Titans 20-17: Takeaways**\
-`Will Levis’ season of misery continues, and it may get worse soon for the Titans after falling to the Colts on Sunday.`\
-https://nytimes.com/athletic/5838701/2024/10/13/colts-titans-score-joe-flacco-results-takeaways/
 
