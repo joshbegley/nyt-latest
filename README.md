@@ -1,3 +1,23 @@
+**Mandel's Final Thoughts: Dillon Gabriel's legend grows, and more from Week 7**\
+`It was a remarkable Saturday that saw three top-10 teams go to overtime and two others play an all-time classic.`\
+https://nytimes.com/athletic/5839701/2024/10/13/oregon-ohio-state-week-7-final-thoughts/
+
+**Wordle Review No. 1,213**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 14, 2024.`\
+https://nytimes.com/2024/10/13/crosswords/wordle-review-1213.html
+
+**The Connections Companion No. 491**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 14, 2024.`\
+https://nytimes.com/2024/10/13/crosswords/connections-companion-491.html
+
+**Here’s what to know about the fifth Starship test flight.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/heres-what-to-know-about-the-fifth-starship-test-flight
+
+**Live Updates: SpaceX Prepares for Launch and Landing of Starship Rocket**\
+`This is the fifth test flight of the vehicle, which could carry people to the moon and Mars. The company may attempt an unusual ‘chopsticks’ landing of the booster stage.`\
+https://nytimes.com/live/2024/10/13/science/spacex-starship-launch
+
 **Can Mets follow Padres’ blueprint to neutralize Dodgers star Shohei Ohtani?**\
 `The Padres did a good job minimizing the damage from Shohei Ohtani, though differences in personnel could keep the Mets from doing the same.`\
 https://nytimes.com/athletic/5839176/2024/10/13/mets-dodgers-shohei-ohtani/
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/5834799/2024/10/13/nfl-week-6-jets-ravens-commander
 **A Tale of Two Hurricanes Finds More That Differs Than Is the Same**\
 `Helene in North Carolina and Milton in Florida were very different storms in very different places.`\
 https://nytimes.com/2024/10/13/us/hurricane-milton-helene-florida-north-carolina.html
-
-**Why Is Trump Gaining With Black and Hispanic Voters?**\
-`Five possible explanations for the increases in support, particularly among young men.`\
-https://nytimes.com/2024/10/13/upshot/trump-black-hispanic-voters-harris.html
-
-**Harris Struggles to Win Over Latinos, While Trump Holds His Grip, Poll Shows**\
-`Latino voters said they were open to Donald J. Trump’s immigration policies and hungry for change. Many remain undecided.`\
-https://nytimes.com/2024/10/13/us/politics/latinos-trump-harris-poll.html
-
-**GOP Is Making Inroads With Black and Hispanic Voters**\
-`Former President Donald J. Trump has gained some ground since 2020 among Black and Hispanic voters, especially men. Ruth Igielnik, who conducts polls for The New York Times, explains.`\
-https://nytimes.com/video/us/elections/100000009755872/gop-is-making-inroads-with-black-and-hispanic-voters.html
-
-**Flyers having trouble finishing their chances; Jett Luchanko comes out of the lineup**\
-`Philadelphia dominated possession for the first half against Calgary, but too many scoring chances were squandered.`\
-https://nytimes.com/athletic/5839658/2024/10/13/philadelphia-flyers-jett-luchanko/
-
-**‘Saturday Night Live’ and the Underappreciated Influence of Carol Burnett**\
-`A new film about the show doesn’t mention her. But in many ways her hit sketch series helped define the early vision of Lorne Michaels.`\
-https://nytimes.com/2024/10/13/arts/television/saturday-night-carol-burnett-lorne-michaels.html
 
