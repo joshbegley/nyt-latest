@@ -1,3 +1,7 @@
+**Stroud leads Texans past Pats in Maye's debut: Key takeaways**\
+`Stroud went 20-of-31 passing for 192 yards, three touchdowns and an interception.`\
+https://nytimes.com/athletic/5838667/2024/10/13/patriots-texans-score-drake-maye-takeaways/
+
 **Chargers' Jim Harbaugh returns to sideline vs. Broncos after early exit**\
 `Chargers defensive coordinator Jesse Minter served as the interim coach during Harbaugh's brief absence.`\
 https://nytimes.com/athletic/5840615/2024/10/13/jim-harbaugh-illness-chargers-broncos/
@@ -22,15 +26,11 @@ https://nytimes.com/live/2024/10/13/us/harris-trump-election/jd-vance-defended-h
 `England interim manager Lee Carsley has said he is &#8220;keeping an open mind&#8221; on taking the permanent position after stating that the role required a &#8220;world-class coach who has won trophies&#8221;.`\
 https://nytimes.com/athletic/5840467/2024/10/13/lee-carsley-england-manager-appointment/
 
-**Cardinals' Marvin Harrison Jr. out with concussion vs. Packers**\
-`Harrison had no catches on two targets Sunday before leaving the game.`\
+**Jordan Love bolsters Packers to 34-13 win over Cardinals: Takeaways**\
+`Bolstered by Love's 258 yards and four touchdown passes, the Packers (4-2) dominated the Cardinals wire-to-wire on both sides of the ball.`\
 https://nytimes.com/athletic/5838648/2024/10/13/cardinals-packers-takeaways-result/
 
 **Stewart Mandel's 12-team Playoff projections after Week 7**\
 `Ohio State's loss at Oregon isn't too damaging. The Buckeyes are still the projected Big Ten champs but have dropped to the No. 2 seed.`\
 https://nytimes.com/athletic/5840360/2024/10/13/college-football-playoff-bracket-projections-week-7/
-
-**The Ground Game: Harris’s Turnout Machine vs. Trump’s Unproven Alliance**\
-`Both parties are frenetically chasing votes in the counties that could very well decide the election. In many places, inexperienced conservative groups are going up against a more tightly organized Democratic operation.`\
-https://nytimes.com/2024/10/13/us/politics/trump-harris-campaign-ground-game.html
 
