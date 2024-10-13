@@ -1,3 +1,7 @@
+**Just Over the Border from Israel, a Hezbollah Cache of Explosives and Mines**\
+`Israel’s military showed journalists parts of what it said was Hezbollah’s deeply entrenched military infrastructure across the border in southern Lebanon.`\
+https://nytimes.com/2024/10/13/world/middleeast/israel-military-lebanon-embed.html
+
 **Derrick Henry, Ravens run over Commanders in 30-23: Takeaways**\
 `Derrick Henry finished the afternoon with 132 rushing yards and two touchdowns on 24 carries, his 20th career game with 100 yards and 2 TDs.`\
 https://nytimes.com/athletic/5838631/2024/10/13/commanders-ravens-score-takeaways-result/
