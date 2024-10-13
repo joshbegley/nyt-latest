@@ -1,3 +1,15 @@
+**Penguins' Malkin joins Crosby, Ovechkin as active NHL players with 1,300 points**\
+`With two assists Saturday, Malkin became one of only 37 players to score at least 1,300 points.`\
+https://nytimes.com/athletic/5837129/2024/10/12/penguins-evgeni-malkin-1300-nhl-points/
+
+**After Hurricane Milton, displaced USF tries to play on: 'Our whole community’s hurting'**\
+`USF lost to Memphis, but there was plenty more on the Bulls' minds as they played 80 miles away from home after a devastating storm.`\
+https://nytimes.com/athletic/5839125/2024/10/12/usf-football-hurricane-milton-memphis-orlando/
+
+**Dodgers' Gavin Stone likely to miss all of 2025 after shoulder surgery**\
+`Dodgers manager Dave Roberts said the surgery Stone underwent this week "identified a lot of stuff that was going on in the shoulder."`\
+https://nytimes.com/athletic/5839159/2024/10/12/dodgers-gavin-stone-shoulder-surgery/
+
 **Oklahoma has too many different problems for Brent Venables' third year**\
 `Oklahoma has a quarterback mess and a lack of answers for its various recurring problems, a stark contrast to its Red River rival.`\
 https://nytimes.com/athletic/5839104/2024/10/12/oklahoma-texas-brent-vaneables-michael-hawkins/
