@@ -1,7 +1,3 @@
-**A Little Bit of Power**\
-`With enough power to make a small difference, but only that, what do you do?`\
-https://nytimes.com/2024/10/13/podcasts/a-little-bit-of-power-this-american-life-nyt-audio.html
-
 **Harris Suggests Trump Is ‘Weak and Unstable’ in Pointed Challenge**\
 `Kamala Harris asked why Donald J. Trump had not released his medical records, appeared on “60 Minutes” or agreed to a second debate.`\
 https://nytimes.com/2024/10/13/us/politics/harris-trump-weak-and-unstable.html
@@ -33,4 +29,8 @@ https://nytimes.com/athletic/5840876/2024/10/13/drake-maye-debut-patriots-texans
 **Lions' Aidan Hutchinson carted off with leg injury vs. Cowboys**\
 `Since joining the Lions, Hutchinson's 27.5 sacks are the most among all Lions players.`\
 https://nytimes.com/athletic/5840914/2024/10/13/aidan-hutchinson-leg-injury-lions-cowboys/
+
+**Harris Sends a Secret Weapon to a Georgia Fish Fry: Bill Clinton**\
+`With early voting set to begin in Georgia, the Harris campaign is sending the former president to get out the vote in rural areas.`\
+https://nytimes.com/2024/10/13/us/politics/bill-clinton-georgia-fish-fry.html
 
