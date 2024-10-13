@@ -1,3 +1,16 @@
+**Tennessee staves off Florida on RB Dylan Sampson's 3-TD rally**\
+`Volunteers running back Dylan Sampson has been the most consistent piece on offense the last three weeks, leading Saturday night’s comeback.`\
+https://nytimes.com/athletic/5839261/2024/10/12/tennessee-florida-overtime-results-analysis/
+
+**Joel Eriksson Ek injured as Wild blow 3 leads in shootout loss to Kraken: 3 takeaways**\
+`The Wild blew a two-goal lead and a pair of one-goal leads en route to a 5-4 shootout loss.`\
+https://nytimes.com/athletic/5838982/2024/10/12/wild-joel-eriksson-ek-injury/
+
+**Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
+`William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
+`\
+https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
+
 **Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
 `William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
 `\
