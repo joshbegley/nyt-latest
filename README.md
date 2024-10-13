@@ -1,3 +1,27 @@
+**Silvio Berlusconi Died. But for Her, the ‘Bunga Bunga’ Scandal Lives On.**\
+`The woman at the center of revelations of bacchanals at the former Italian prime minister’s villa is still fighting a court case, and a negative public image, 14 years later.`\
+https://nytimes.com/2024/10/13/world/europe/berlusconi-bunga-bunga-scandal-italy.html
+
+**Quote of the Day: After Helene, Bradenton Beach Residents Left Town for Milton**\
+`Quotation of the Day for October 13, 2024.`\
+https://nytimes.com/2024/10/13/pageoneplus/quote-of-the-day-after-helene-bradenton-beach-residents-left-town-for-milton.html
+
+**Roadblocked**\
+`How you can get around the West Bank depends on who you are. We took two bus trips, one with Palestinians and one with Israelis, that tell a story of separate and unequal roadways.`\
+https://nytimes.com/interactive/2024/10/13/world/middleeast/west-bank-roads.html
+
+**How Palestinians Are Roadblocked in the West Bank**\
+`Driving in the Israeli-occupied West Bank is an incredibly different experience depending on who you are. Ben Hubbard, international correspondent for The New York Times, rode along on two bus trips, one for Israelis, the other for Palestinians, that tell a story of separate and unequal roadways.`\
+https://nytimes.com/video/world/middleeast/100000009749390/how-palestinians-are-roadblocked-in-the-west-bank.html
+
+**Texans at Patriots odds, picks, how to watch: Drake Maye's first start will be a challenge**\
+`The Patriots are entering their Drake Maye era against a strong Texans defense.`\
+https://nytimes.com/athletic/5837574/2024/10/13/texans-patriots-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Finland vs England: Storylines, odds, prediction as Three Lions look to bounce back**\
+`England returns to action after a shocking home loss to Greece. Finland are 0-3 in the Nations League so the Three Lions are favored.`\
+https://nytimes.com/athletic/5837423/2024/10/13/finland-england-preview-odds-prediction/
+
 **Goaltender interference controversy, unexpected fighters: 5 Rangers takeaways**\
 `The Rangers participated in one of the strangest periods the NHL has seen in its young season en route to a 6-5 overtime loss to Utah. `\
 https://nytimes.com/athletic/5839276/2024/10/12/rangers-utah-nhl-goaltender-interference-controversy/
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/5837513/2024/10/12/colts-titans-odds-expert-picks-h
 **How Dodgers found relief from tight-knit bullpen to advance: 'Kick our egos to the door'**\
 `The Dodgers head into the NLCS with a postseason-record 24 consecutive scoreless innings from their pitching staff.`\
 https://nytimes.com/athletic/5839292/2024/10/12/dodgers-bullpen-relief-padres-nlds/
-
-**Cardinals vs. Packers odds, picks, how to watch: Can Kyler Murray pull off a road upset?**\
-`Jordan Love and the Packers are comfortable favorites at home, but Kyler Murray has produced some stunning plays.`\
-https://nytimes.com/athletic/5837488/2024/10/12/cardinals-packers-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Current's Chawinga sets NWSL single-season scoring record**\
-`Chawinga's 19 goals pass the previous record set by former Chicago Red Stars forward Sam Kerr (18) in the 2019 season.`\
-https://nytimes.com/athletic/5839291/2024/10/12/temwa-chawinga-nwsl-scoring-record/
-
-**Tennessee staves off Florida on RB Dylan Sampson's 3-TD rally**\
-`Volunteers running back Dylan Sampson has been the most consistent piece on offense the last three weeks, leading Saturday night’s comeback.`\
-https://nytimes.com/athletic/5839261/2024/10/12/tennessee-florida-overtime-results-analysis/
-
-**Joel Eriksson Ek injured as Wild blow 3 leads in shootout loss to Kraken: 3 takeaways**\
-`The Wild blew a two-goal lead and a pair of one-goal leads en route to a 5-4 shootout loss.`\
-https://nytimes.com/athletic/5838982/2024/10/12/wild-joel-eriksson-ek-injury/
-
-**USMNT opens Pochettino era with 2-0 win over Panama: Takeaways**\
-`Yunus Musah’s 49th-minute goal and a late finish from Ricardo Pepi lifted the U.S. to a 2-0 victory over Panama in Austin, Texas.`\
-https://nytimes.com/athletic/5839295/2024/10/12/usmnt-vs-panama-pochettino-musah-takeaways/
-
-**What Oregon's signature win vs. Ohio State in Big Ten classic means for Ducks, Buckeyes**\
-`Oregon toppled Ohio State 32-21 in a back-and-forth thriller at Autzen Stadium. Here's what it means for Dan Lanning and Ryan Day.`\
-https://nytimes.com/athletic/5839184/2024/10/12/ohio-state-oregon-score-recap-takeaways/
 
