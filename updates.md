@@ -1,3 +1,7 @@
+**Colorado's Travis Hunter exits with shoulder injury vs. Kansas State**\
+`Hunter caught three passes for 26 yards and a tackle before his early departure at Folsom Field.`\
+https://nytimes.com/athletic/5839521/2024/10/13/travis-hunter-colorado-shoulder-injury/
+
 **What Trump’s Hatred Taught Me**\
 `When the former president attacks immigrants, this is what I hear.`\
 https://nytimes.com/2024/10/13/opinion/trump-immigration-rhetoric-poisoning.html
