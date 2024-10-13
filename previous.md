@@ -1,3 +1,7 @@
+**Yankees announce Carlos Rodón as Game 1 starter in ALCS vs. Guardians**\
+`Rodón allowed four earned runs in 3 2/3 innings in a 1-0 loss to the Royals in Game 2 of the ALDS, his previous playoff start.`\
+https://nytimes.com/athletic/5840104/2024/10/13/yankees-carlos-rodon-alcs-starter-game-1/
+
 **‘I Didn’t Feel Connected to Florida. That Was Before Milton.’**\
 `I had only recently moved to Tampa and before the storm didn’t feel connected to the place.`\
 https://nytimes.com/2024/10/13/opinion/i-didnt-feel-connected-to-florida-that-was-before-milton.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5840024/2024/10/13/ohio-state-oregon-nfl-schedule-t
 **Ruth Chepngetich smashes women's marathon world record**\
 `Chepngetich became the first woman to ever run under 2:10 at the full marathon distance.`\
 https://nytimes.com/athletic/5839988/2024/10/13/ruth-chepngetich-marathon-world-record/
-
-**Texas residents around the SpaceX launch site said they felt shaking during Sunday’s flight.**\
-`By Eric Lipton`\
-https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/texas-residents-around-the-spacex-launch-site-said-they-felt-shaking-during-sundays-flight
 
