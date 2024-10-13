@@ -1,3 +1,7 @@
+**Three Red Wings takeaways after Cam Talbot's statement performance in rebound win**\
+`Talbot's 42-save shutout was the story of the night, and it countered some early doubts about how the goalie could fare in Detroit.`\
+https://nytimes.com/athletic/5839220/2024/10/13/cam-talbot-red-wings-takeaways/
+
 **There may never be a better time to ask Pep Guardiola if he wants the England job**\
 `Opportunity might not knock like this again with the man who would surely be the best manager England have ever had`\
 https://nytimes.com/athletic/5838293/2024/10/13/pep-guardiola-england-manager/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/world/europe/berlusconi-bunga-bunga-scandal-italy
 **Quote of the Day: After Helene, Bradenton Beach Residents Left Town for Milton**\
 `Quotation of the Day for October 13, 2024.`\
 https://nytimes.com/2024/10/13/pageoneplus/quote-of-the-day-after-helene-bradenton-beach-residents-left-town-for-milton.html
-
-**Roadblocked**\
-`How you can get around the West Bank depends on who you are. We took two bus trips, one with Palestinians and one with Israelis, that tell a story of separate and unequal roadways.`\
-https://nytimes.com/interactive/2024/10/13/world/middleeast/west-bank-roads.html
 

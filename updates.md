@@ -1,3 +1,7 @@
+**Three Red Wings takeaways after Cam Talbot's statement performance in rebound win**\
+`Talbot's 42-save shutout was the story of the night, and it countered some early doubts about how the goalie could fare in Detroit.`\
+https://nytimes.com/athletic/5839220/2024/10/13/cam-talbot-red-wings-takeaways/
+
 **Yohe's 10 observations: Penguins' decision to go with Joel Blomqvist overshadows loss**\
 `It took merely one start for Tristan Jarry to find himself on the bench for multiple games. Alex Nedeljkovic is almost ready to play.`\
 https://nytimes.com/athletic/5838546/2024/10/13/penguins-maple-leafs-joel-blomqvist/
