@@ -1,3 +1,15 @@
+**Hurt and boos mark end of awful week for Eidevall's Arsenal as 'bad start' gets worse**\
+`"We are really hurting. I’m hurting, the players are hurting" said Arsenal's head coach after a damaging week at home and in Europe `\
+https://nytimes.com/athletic/5838462/2024/10/13/eidevall-arsenal-boos/
+
+**Yohe's 10 observations: Penguins' decision to go with Joel Blomqvist overshadows loss**\
+`It took merely one start for Tristan Jarry to find himself on the bench for multiple games, and Alex Nedeljkovic is almost ready to play.`\
+https://nytimes.com/athletic/5838546/2024/10/13/penguins-maple-leafs-joel-blomqvist/
+
+**Why football's biggest stars are investing in esports**\
+`From Virgil van Dijk to Casemiro, footballers are backing teams in the world of competitive video games - so why are they doing it?`\
+https://nytimes.com/athletic/5739705/2024/10/13/footballers-esports-david-beckham-neymar-casemiro/
+
 **Silvio Berlusconi Died. But for Her, the ‘Bunga Bunga’ Scandal Lives On.**\
 `The woman at the center of revelations of bacchanals at the former Italian prime minister’s villa is still fighting a court case, and a negative public image, 14 years later.`\
 https://nytimes.com/2024/10/13/world/europe/berlusconi-bunga-bunga-scandal-italy.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5837574/2024/10/13/texans-patriots-odds-expert-pick
 **Finland vs England: Storylines, odds, prediction as Three Lions look to bounce back**\
 `England returns to action after a shocking home loss to Greece. Finland are 0-3 in the Nations League so the Three Lions are favored.`\
 https://nytimes.com/athletic/5837423/2024/10/13/finland-england-preview-odds-prediction/
-
-**Goaltender interference controversy, unexpected fighters: 5 Rangers takeaways**\
-`The Rangers participated in one of the strangest periods the NHL has seen in its young season en route to a 6-5 overtime loss to Utah. `\
-https://nytimes.com/athletic/5839276/2024/10/12/rangers-utah-nhl-goaltender-interference-controversy/
-
-**Colts at Titans odds, picks, how to watch: Can Colts avoid going 0-3 in division?**\
-`An AFC South matchup with both teams struggling at quarterback and looking for some much-needed momentum.`\
-https://nytimes.com/athletic/5837513/2024/10/12/colts-titans-odds-expert-picks-how-to-watch-predictions-betting/
-
-**How Dodgers found relief from tight-knit bullpen to advance: 'Kick our egos to the door'**\
-`The Dodgers head into the NLCS with a postseason-record 24 consecutive scoreless innings from their pitching staff.`\
-https://nytimes.com/athletic/5839292/2024/10/12/dodgers-bullpen-relief-padres-nlds/
 
