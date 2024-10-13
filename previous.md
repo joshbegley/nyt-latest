@@ -1,3 +1,11 @@
+**Greenberg: Caleb Williams, Bears showing that a new day is dawning in Chicago**\
+`Sunday morning's 35-16 beatdown of the Jaguars in London was a most welcome sight for everyone whose happiness depends on the Bears (4-2).`\
+https://nytimes.com/athletic/5840166/2024/10/13/chicago-bears-caleb-williams-jaguars-london/
+
+**The Painter Titus Kaphar Tackles His Personal History in Film**\
+`His first feature, “Exhibiting Forgiveness,” which opens Oct. 18, features paintings now on view at Gagosian in Los Angeles.`\
+https://nytimes.com/2024/10/13/arts/design/titus-kaphar-gagosian.html
+
 **Fisher-Price Recalls 2 Million ‘Snuga Swings’ After Five Infant Deaths**\
 `The U.S. Consumer Product Safety Commission announced the recall, which one of its commissioners said was “doomed to fail.”`\
 https://nytimes.com/2024/10/13/business/fisher-price-snuga-swing-recall.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/13/arts/dance/review-new-york-philharmonic-matthias-
 **Yankees announce Carlos Rodón as Game 1 starter in ALCS vs. Guardians**\
 `Rodón allowed four earned runs in 3 2/3 innings in a 1-0 loss to the Royals in Game 2 of the ALDS, his previous playoff start.`\
 https://nytimes.com/athletic/5840104/2024/10/13/yankees-carlos-rodon-alcs-starter-game-1/
-
-**‘I Didn’t Feel Connected to Florida. That Was Before Milton.’**\
-`I had only recently moved to Tampa and before the storm didn’t feel connected to the place.`\
-https://nytimes.com/2024/10/13/opinion/florida-hurricane-milton.html
-
-**U.S. to Deploy Missile Defense System and About 100 Troops to Israel**\
-`The Pentagon announced it would send the Terminal High Altitude Area Defense battery and its crew as Israel considered retaliatory attacks against Iran.`\
-https://nytimes.com/2024/10/13/us/politics/us-missile-defense-iran-israel.html
 
