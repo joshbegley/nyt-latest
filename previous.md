@@ -1,3 +1,7 @@
+**Here’s why SpaceX has been feuding with the F.A.A.**\
+`By Kenneth Chang and Eric Lipton`\
+https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/heres-why-spacex-has-been-feuding-with-the-faa
+
 **Aryna Sabalenka wins Wuhan Open after staving off Zheng Qinwen comeback**\
 `The victory cements Sabalenka's position in the race for year-end No. 1`\
 https://nytimes.com/athletic/5839818/2024/10/13/sabalenka-zheng-wuhan-final-result-analysis/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5839714/2024/10/13/alabama-football-national-champi
 **Four earlier Starship launches highlighted SpaceX’s “fail fast, learn faster” approach.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/four-earlier-starship-launches-highlighted-spacexs-fail-fast-learn-faster-approach
-
-**A Shift in the World of Science**\
-`What this year’s Nobels can teach us about science and humanity.`\
-https://nytimes.com/2024/10/13/briefing/nobel-prize-artificial-intelligence.html
 

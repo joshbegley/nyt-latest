@@ -1,3 +1,7 @@
+**Here’s why SpaceX has been feuding with the F.A.A.**\
+`By Kenneth Chang and Eric Lipton`\
+https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/heres-why-spacex-has-been-feuding-with-the-faa
+
 **Aryna Sabalenka wins Wuhan Open after staving off Zheng Qinwen comeback**\
 `The victory cements Sabalenka's position in the race for year-end No. 1`\
 https://nytimes.com/athletic/5839818/2024/10/13/sabalenka-zheng-wuhan-final-result-analysis/
