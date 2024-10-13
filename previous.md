@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/10/13/us/harris-trump-election/jd-vance-defended-his-running-mate-and-spoke-about-abortion-in-a-pair-of-sunday-show-appearances
 
 **Carsley 'open minded' on England manager job after saying 'world-class coach' needed**\
-`England interim manager Lee Carsley has said he is &#8220;keeping an open mind&#8221; on taking the permanent position after stating that the role required a &#8220;world-class coach who has won trophies.`\
+`England interim manager Lee Carsley has said he is &#8220;keeping an open mind&#8221; on taking the permanent position after stating that the role required a &#8220;world-class coach who has won trophies&#8221;.`\
 https://nytimes.com/athletic/5840467/2024/10/13/lee-carsley-england-manager-appointment/
 
 **Cardinals' Marvin Harrison Jr. out with concussion vs. Packers**\
