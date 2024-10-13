@@ -1,3 +1,16 @@
+**Sideline worker at Titans-Colts carted off after Will Levis hit**\
+`The broadcast showed the worker's left leg in an air cast, and he gave a thumbs-up on his way off the field.
+`\
+https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
+
+**Mets bolster bench by adding Jeff McNeil to NLCS roster**\
+`In an expected move, the New York Mets added second baseman/outfielder Jeff McNeil to their roster for the National League Championship Series.`\
+https://nytimes.com/athletic/5840335/2024/10/13/mets-bolster-bench-by-adding-jeff-mcneil-to-nlcs-roster/
+
+**Pulisic among five USMNT players to return to club and miss Mexico game**\
+`Christian Pulisic is one of five USMNT players to return to their club side early from international duty and will miss Tuesday night&#8217;s friendly against Mexico.`\
+https://nytimes.com/athletic/5840348/2024/10/13/pulisic-mckennie-pepi-usmnt-mexico/
+
 **Greenberg: Caleb Williams, Bears showing that a new day is dawning in Chicago**\
 `Sunday morning's 35-16 beatdown of the Jaguars in London was a most welcome sight for everyone whose happiness depends on the Bears (4-2).`\
 https://nytimes.com/athletic/5840166/2024/10/13/chicago-bears-caleb-williams-jaguars-london/
@@ -21,16 +34,4 @@ https://nytimes.com/athletic/5840301/2024/10/13/dodgers-leave-alex-vesia-miguel-
 **American League Championship Series predictions: Our experts make their picks**\
 `Will the Yankees finally make it back to the World Series? Can the Guardians continue their Cinderella story? Our experts make their picks.`\
 https://nytimes.com/athletic/5839980/2024/10/13/mlb-postseason-alcs-predictions-yankees-guardians/
-
-**Blue Jackets Sunday Gathering: Changes have Zach Werenski poised to reach a new level**\
-`The veteran defenseman scored in each of the Blue Jackets' first two games of the season, including a noteworthy power-play goal.`\
-https://nytimes.com/athletic/5839817/2024/10/13/blue-jackets-zach-werenski-nhl/
-
-**Review: Philharmonic Pays Tribute to Schoenberg**\
-`The New York Philharmonic under Matthias Pintscher brought dramatic urgency to “Pelleas und Melisande” in commemoration of the composer’s 150th birthday.`\
-https://nytimes.com/2024/10/13/arts/dance/review-new-york-philharmonic-matthias-pintscher.html
-
-**Yankees announce Carlos Rodón as Game 1 starter in ALCS vs. Guardians**\
-`Rodón allowed four earned runs in 3 2/3 innings in a 1-0 loss to the Royals in Game 2 of the ALDS, his previous playoff start.`\
-https://nytimes.com/athletic/5840104/2024/10/13/yankees-carlos-rodon-alcs-starter-game-1/
 
