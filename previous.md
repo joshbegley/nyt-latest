@@ -1,3 +1,7 @@
+**Russian Strikes on Ukrainian Ports Target Civilian Shipping**\
+`With the strikes in the Odesa region, Russia appears to be trying again to prevent Ukraine from exporting grain, harming its economy and pushing up world prices.`\
+https://nytimes.com/2024/10/13/world/europe/russia-ukraine-ports-odesa-grain.html
+
 **Chargers vs. Broncos: odds, picks, how to watch: Harbaugh, Payton meet in coaching duel**\
 `Bo Nix and the Broncos try to extend a three-game winning streak against Jim Harbaugh's disciplined Chargers. `\
 https://nytimes.com/athletic/5837577/2024/10/13/chargers-broncos-odds-expert-picks-how-to-watch-predictions-betting/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/nyregion/new-york-liberty-finals.html
 **How Can I Get My Boss to Notice Me?**\
 `When there are men in the room, a female colleague is made to feel invisible.`\
 https://nytimes.com/2024/10/13/business/work-advice-male-boss.html
-
-**50 Years of Broccoli (and Mockery): A Co-op Co-Founder Calls It Quits**\
-`In 1973, Joe Holtz helped start the Park Slope Food Co-op, a Brooklyn institution that is equally loved and ridiculed. Will it survive his retirement?`\
-https://nytimes.com/2024/10/13/nyregion/park-slope-food-coop-joe-holtz.html
 
