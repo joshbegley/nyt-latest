@@ -1,3 +1,7 @@
+**Wild lose Jared Spurgeon, Joel Eriksson Ek to injury ahead of Winnipeg matchup**\
+`Neither player traveled with the team to Winnipeg to kick off a seven-game road trip.`\
+https://nytimes.com/athletic/5840776/2024/10/13/wild-injury-jared-spurgeon-eriksson-ek/
+
 **NFL Week 6 takeaways: Another Lamar Jackson MVP season? How high can Bears climb?**\
 `Plus, assessing Sunday’s two rookie quarterback debuts and more from Week 6.`\
 https://nytimes.com/athletic/5840777/2024/10/13/nfl-week-6-takeaways-another-lamar-jackson-mvp-season-how-high-can-bears-climb/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838679/2024/10/13/saints-buccaneers-score-results-
 **Stroud leads Texans past Pats in Maye's debut: Key takeaways**\
 `Stroud went 20-of-31 passing for 192 yards, three touchdowns and an interception.`\
 https://nytimes.com/athletic/5838667/2024/10/13/patriots-texans-score-drake-maye-takeaways/
-
-**Jordan Love bolsters Packers to 34-13 win over Cardinals: Takeaways**\
-`Bolstered by Love's 258 yards and four touchdown passes, the Packers (4-2) dominated the Cardinals wire-to-wire on both sides of the ball.`\
-https://nytimes.com/athletic/5838648/2024/10/13/cardinals-packers-takeaways-result/
 
