@@ -1,3 +1,7 @@
+**Cousins, rushing attack powers Falcons past Panthers, 38-20: Takeaways**\
+`Atlanta's third straight win keeps the Falcons atop the NFC South.`\
+https://nytimes.com/athletic/5838752/2024/10/13/falcons-panthers-score-results-takeaways/
+
 **Drake Maye shines, but another Patriots blowout loss shows rebuild has a long way to go**\
 `The rookie No. 3 pick fared well in his first NFL start, but the Patriots still have a long way to go. `\
 https://nytimes.com/athletic/5840925/2024/10/13/drake-maye-patriots-texans-debut/

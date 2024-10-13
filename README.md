@@ -1,8 +1,4 @@
-**Cousins, rushing attack powers Falcons past Panthers, 38-20: Takeaways**\
-`Atlanta's third straight win keeps the Falcons atop the NFC South.`\
-https://nytimes.com/athletic/5838752/2024/10/13/falcons-panthers-score-results-takeaways/
-
-**Drake Maye shines, but another Patriots blowout loss shows rebuild has a long way to go**\
+**Drake Maye impresses, but another Patriots blowout loss shows rebuild has a long way to go**\
 `The rookie No. 3 pick fared well in his first NFL start, but the Patriots still have a long way to go. `\
 https://nytimes.com/athletic/5840925/2024/10/13/drake-maye-patriots-texans-debut/
 
@@ -33,4 +29,8 @@ https://nytimes.com/athletic/5840158/2024/10/13/commanders-ravens-moral-victory-
 **Biden Announces $612 Million for Projects to Help Areas Hit by Storms**\
 `During his visit to Florida, President Biden announced $612 million for six Energy Department projects in areas hit by Hurricanes Milton and Helene to improve the region’s electric grid.`\
 https://nytimes.com/video/us/100000009759806/biden-florida-hurricane-aftermath.html
+
+**Buckley: Drake Maye, Patriots gave fans what they craved — a glimpse of the future**\
+`What Pats fans needed was quality time with Maye. He delivered with three TD passes, including his first: a perfectly thrown 40-yarder.`\
+https://nytimes.com/athletic/5840876/2024/10/13/drake-maye-debut-patriots-texans/
 
