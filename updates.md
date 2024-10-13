@@ -1,3 +1,7 @@
+**‘I Didn’t Feel Connected to Florida. That Was Before Milton.’**\
+`I had only recently moved to Tampa and before the storm didn’t feel connected to the place.`\
+https://nytimes.com/2024/10/13/opinion/florida-hurricane-milton.html
+
 **Review: Philharmonic Pays Tribute to Schoenberg**\
 `The New York Philharmonic under Matthias Pintscher brought dramatic urgency to “Pelleas und Melisande” in commemoration of the composer’s 150th birthday.`\
 https://nytimes.com/2024/10/13/arts/dance/review-new-york-philharmonic-matthias-pintscher.html
