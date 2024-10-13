@@ -1,3 +1,7 @@
+**Travis Hunter tracker: Injury knocks Colorado star out of Kansas State game early**\
+`Hunter entered Saturday averaging around 120 snaps per game, but he played fewer than 50 snaps against Kansas State before exiting.`\
+https://nytimes.com/athletic/5839202/2024/10/13/travis-hunter-tracker-nfl-draft-2025-stats/
+
 **Blue Jackets' recently built No. 1 line unites, erupts in surprising win over Avalanche**\
 `"They've got a chemistry, a relationship, a bond in that room already," coach Dean Evason said after the Jackets' 6-4 win Saturday.`\
 https://nytimes.com/athletic/5838545/2024/10/13/blue-jackets-avalanche-no-1-line/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5839482/2024/10/13/boise-state-hawaii-referee-colla
 **Browns vs. Eagles odds, expert picks, how to watch: A.J. Brown returns, Browns stick with Watson**\
 `The Philadelphia Eagles welcome the hapless Cleveland Browns and Deshaun Watson to Lincoln Financial Field Sunday afternoon.`\
 https://nytimes.com/athletic/5837309/2024/10/13/browns-eagles-odds-predictions-betting/
-
-**Three Red Wings takeaways after Cam Talbot's statement performance in rebound win**\
-`Talbot's 42-save shutout was the story of the night, and it countered some early doubts about how the goalie could fare in Detroit.`\
-https://nytimes.com/athletic/5839220/2024/10/13/cam-talbot-red-wings-takeaways/
 

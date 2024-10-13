@@ -1,3 +1,7 @@
+**Travis Hunter tracker: Injury knocks Colorado star out of Kansas State game early**\
+`Hunter entered Saturday averaging around 120 snaps per game, but he played fewer than 50 snaps against Kansas State before exiting.`\
+https://nytimes.com/athletic/5839202/2024/10/13/travis-hunter-tracker-nfl-draft-2025-stats/
+
 **Blue Jackets' recently built No. 1 line unites, erupts in surprising win over Avalanche**\
 `"They've got a chemistry, a relationship, a bond in that room already," coach Dean Evason said after the Jackets' 6-4 win Saturday.`\
 https://nytimes.com/athletic/5838545/2024/10/13/blue-jackets-avalanche-no-1-line/
