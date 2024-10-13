@@ -1,3 +1,7 @@
+**SpaceX returned a large rocket booster to its launch site and caught it with mechanical arms.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/spacex-returned-a-large-rocket-booster-to-its-launch-site-and-caught-it-with-mechanical-arms
+
 **Can We Please Just Find the Aliens Already?**\
 `NASA’s Europa Clipper mission represents something bigger than just the study of an icy moon of Jupiter.`\
 https://nytimes.com/2024/10/13/opinion/nasa-europa-clipper-extraterrestrials.html
