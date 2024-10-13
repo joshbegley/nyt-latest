@@ -1,3 +1,11 @@
+**A Shift in the World of Science**\
+`What this year’s Nobels can teach us about science and humanity.`\
+https://nytimes.com/2024/10/13/briefing/nobel-prize-artificial-intelligence.html
+
+**Five things we learned about the CFP race after Big Ten's game of the year**\
+`Oregon and Ohio State could be headed for a rematch, while there's plenty of drama in the SEC, and things are looking up for the ACC.`\
+https://nytimes.com/athletic/5839736/2024/10/13/college-football-playoff-race-rankings-oregon-ohio-state/
+
 **Sinner beats Djokovic to win Shanghai Masters**\
 `World No.`\
 https://nytimes.com/athletic/5839743/2024/10/13/jannik-sinner-wins-shanghai-masters/
