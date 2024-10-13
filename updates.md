@@ -1,3 +1,24 @@
+**AP Top 25: Texas still No. 1 as Oregon jumps to No. 2**\
+`Texas is No. 1 heading into its showdown against No. 5 Georgia, with Oregon No. 2, Penn State No. 3 and Ohio State No. 4 in the AP poll.`\
+https://nytimes.com/athletic/5840342/2024/10/13/ap-top-25-rankings-texas-oregon/
+
+**Sideline worker at Titans-Colts carted off after Will Levis hit**\
+`The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
+`\
+https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
+
+**Mets bolster bench by adding Jeff McNeil to NLCS roster**\
+`In an expected move, the New York Mets added second baseman/outfielder Jeff McNeil to their roster for the National League Championship Series.`\
+https://nytimes.com/athletic/5840335/2024/10/13/mets-jeff-mcneil-nlcs-roster/
+
+**The Painter Titus Kaphar Needed a Bigger Canvas, so He Made a Film**\
+`His first feature, “Exhibiting Forgiveness,” which opens Oct. 18, features paintings now on view at Gagosian in Los Angeles.`\
+https://nytimes.com/2024/10/13/arts/design/titus-kaphar-gagosian.html
+
+**Finland 1 England 3: Gomes the conductor, Alexander-Arnold's brilliance, Foden's future**\
+`England beat Finland in the Nations League after the disappointing defeat aganst Greece last week - our writers break down the action`\
+https://nytimes.com/athletic/5837311/2024/10/13/england-finland-gomes-carsley/
+
 **Sideline worker at Titans-Colts carted off after Will Levis hit**\
 `The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
 `\
