@@ -1,3 +1,11 @@
+**Trump Hits Coachella, Campaigning Once Again in a Blue State**\
+`The former president took a detour from the battleground states to hold a rally in the California desert, where temperatures hovered near 100 degrees.`\
+https://nytimes.com/2024/10/12/us/politics/trump-rally-coachella-california.html
+
+**F.A.A. Clears the Way for SpaceX to Hold Starship Launch on Sunday**\
+`The agency said the company had agreed to study the environmental impact of its launches in South Texas and ways to mitigate harm to wildlife.`\
+https://nytimes.com/2024/10/12/us/politics/faa-spacex-starship-license.html
+
 **Guardians rely on 'calm heartbeat' of Cade Smith and Lane Thomas, advance to ALCS**\
 `Thomas, a midseason acquisition, hit the go-ahead grand slam in Game 5 that forced even the most stoic members of the team into a frenzy.`\
 https://nytimes.com/athletic/5839043/2024/10/12/cleveland-guardians-alcs-cade-smith-lane-thomas/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5838909/2024/10/12/tyler-warren-nfl-draft-2025-wood
 **Andrew Painter pitches for first time since Tommy John surgery**\
 `The Phillies' first-round pick in 2021 allowed two earned runs over two innings in his first Arizona Fall League appearance.`\
 https://nytimes.com/athletic/5838956/2024/10/12/phillies-andrew-painter-return-arizona-fall-league/
-
-**Texas rolls in SEC Red River as Quinn Ewers returns. Oklahoma has no answers on offense**\
-`The top-ranked Longhorns improve to 6-0 (2-0 SEC) and host No. 5 Georgia next Saturday.`\
-https://nytimes.com/athletic/5838892/2024/10/12/texas-oklahoma-result-takeaways/
-
-**Boot Found at Everest Could Be From Climber Who Vanished 100 Years Ago**\
-`When Sandy Irvine went on a pioneering expedition to Mount Everest’s summit in 1924, he and his partner vanished. The recent discovery may shed light on the ill-fated adventure.`\
-https://nytimes.com/2024/10/12/world/asia/sandy-irvine-remains-everest.html
 
