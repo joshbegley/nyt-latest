@@ -1,3 +1,7 @@
+**Blue Jackets' recently built No. 1 line unites, erupts in surprising win over Avalanche**\
+`"They've got a chemistry, a relationship, a bond in that room already," coach Dean Evason said after the Jackets' 6-4 win Saturday.`\
+https://nytimes.com/athletic/5838545/2024/10/13/blue-jackets-avalanche-no-1-line/
+
 **Carrying 3 goalies could be problematic for the Wild's roster: Russo**\
 `Rookie goalie Jesper Wallstedt might become a transaction ping-pong ball to no fault of his own.`\
 https://nytimes.com/athletic/5839494/2024/10/13/russo-wild-column-three-goalies/

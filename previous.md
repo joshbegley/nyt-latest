@@ -1,3 +1,7 @@
+**Blue Jackets' recently built No. 1 line unites, erupts in surprising win over Avalanche**\
+`"They've got a chemistry, a relationship, a bond in that room already," coach Dean Evason said after the Jackets' 6-4 win Saturday.`\
+https://nytimes.com/athletic/5838545/2024/10/13/blue-jackets-avalanche-no-1-line/
+
 **Carrying 3 goalies could be problematic for the Wild's roster: Russo**\
 `Rookie goalie Jesper Wallstedt might become a transaction ping-pong ball to no fault of his own.`\
 https://nytimes.com/athletic/5839494/2024/10/13/russo-wild-column-three-goalies/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5837309/2024/10/13/browns-eagles-odds-predictions-b
 **Three Red Wings takeaways after Cam Talbot's statement performance in rebound win**\
 `Talbot's 42-save shutout was the story of the night, and it countered some early doubts about how the goalie could fare in Detroit.`\
 https://nytimes.com/athletic/5839220/2024/10/13/cam-talbot-red-wings-takeaways/
-
-**There may never be a better time to ask Pep Guardiola if he wants the England job**\
-`Opportunity might not knock like this again with the man who would surely be the best manager England have ever had`\
-https://nytimes.com/athletic/5838293/2024/10/13/pep-guardiola-england-manager/
 
