@@ -1,4 +1,4 @@
-**Lane Hutson predicted Canadiens wouldn’t care about his size. He’s proven himself right**\
+**Lane Hutson predicted Canadiens wouldn’t care about his size. He’s proved himself right**\
 `Lane Hutson's first five NHL games have gone just about as well as anyone could have imagined. Anyone except Hutson himself. `\
 https://nytimes.com/athletic/5839563/2024/10/13/lane-hutson-size-canadiens/
 
