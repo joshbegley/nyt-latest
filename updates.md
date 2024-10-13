@@ -1,3 +1,7 @@
+**Chargers vs. Broncos: odds, picks, how to watch: Harbaugh, Payton meet in coaching duel**\
+`Bo Nix and the Broncos try to extend a three-game winning streak against Jim Harbaugh's disciplined Chargers. `\
+https://nytimes.com/athletic/5837577/2024/10/13/chargers-broncos-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Ladakh’s Local Hero Wants India to Pay Attention to His People**\
 `The activist Sonam Wangchuk is leading protests to demand more autonomy for India’s remote Ladakh region, which shares borders with China and Pakistan.`\
 https://nytimes.com/2024/10/13/world/asia/ladakh-india-wangchuk.html

@@ -1,3 +1,7 @@
+**Chargers vs. Broncos: odds, picks, how to watch: Harbaugh, Payton meet in coaching duel**\
+`Bo Nix and the Broncos try to extend a three-game winning streak against Jim Harbaugh's disciplined Chargers. `\
+https://nytimes.com/athletic/5837577/2024/10/13/chargers-broncos-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Ladakh’s Local Hero Wants India to Pay Attention to His People**\
 `The activist Sonam Wangchuk is leading protests to demand more autonomy for India’s remote Ladakh region, which shares borders with China and Pakistan.`\
 https://nytimes.com/2024/10/13/world/asia/ladakh-india-wangchuk.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/business/work-advice-male-boss.html
 **50 Years of Broccoli (and Mockery): A Co-op Co-Founder Calls It Quits**\
 `In 1973, Joe Holtz helped start the Park Slope Food Co-op, a Brooklyn institution that is equally loved and ridiculed. Will it survive his retirement?`\
 https://nytimes.com/2024/10/13/nyregion/park-slope-food-coop-joe-holtz.html
-
-**She Was a Key Aide to Eric Adams. Her Ties to China Ran Deep.**\
-`Winnie Greco, a top fund-raiser and senior adviser for Mr. Adams, has long had dealings with people and groups connected to China’s communist regime. He kept her close even so.`\
-https://nytimes.com/2024/10/13/nyregion/adams-greco-china-influence-investigation.html
 
