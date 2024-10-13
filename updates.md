@@ -1,3 +1,16 @@
+**Cardinals vs. Packers odds, picks, how to watch: Can Kyler Murray pull off a road upset?**\
+`Jordan Love and the Packers are comfortable favorites at home, but Kyler Murray has produced some stunning plays.`\
+https://nytimes.com/athletic/5837488/2024/10/12/cardinals-packers-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Current's Chawinga sets NWSL single-season scoring record**\
+`Chawinga's 19 goals pass the previous record set by former Chicago Red Stars forward Sam Kerr (18) in the 2019 season.`\
+https://nytimes.com/athletic/5839291/2024/10/12/temwa-chawinga-nwsl-scoring-record/
+
+**Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
+`William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
+`\
+https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
+
 **Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
 `William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
 `\

@@ -1,3 +1,11 @@
+**Cardinals vs. Packers odds, picks, how to watch: Can Kyler Murray pull off a road upset?**\
+`Jordan Love and the Packers are comfortable favorites at home, but Kyler Murray has produced some stunning plays.`\
+https://nytimes.com/athletic/5837488/2024/10/12/cardinals-packers-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Current's Chawinga sets NWSL single-season scoring record**\
+`Chawinga's 19 goals pass the previous record set by former Chicago Red Stars forward Sam Kerr (18) in the 2019 season.`\
+https://nytimes.com/athletic/5839291/2024/10/12/temwa-chawinga-nwsl-scoring-record/
+
 **Tennessee staves off Florida on RB Dylan Sampson's 3-TD rally**\
 `Volunteers running back Dylan Sampson has been the most consistent piece on offense the last three weeks, leading Saturday night’s comeback.`\
 https://nytimes.com/athletic/5839261/2024/10/12/tennessee-florida-overtime-results-analysis/
@@ -26,12 +34,4 @@ https://nytimes.com/athletic/5839152/2024/10/12/texas-longhorns-oklahoma-quinn-e
 **Tom Brady expected to be approved as Raiders minority owner**\
 `Brady needs 24 of the NFL's 32 owners to vote in his favor, but that's believed to be a formality.`\
 https://nytimes.com/athletic/5839160/2024/10/12/tom-brady-raiders-bid-review-nfl/
-
-**Dochterman: Kirk Ferentz's Iowa has done a lot with little, and 200 wins proves it**\
-`Kirk Ferentz's Iowa teams have focused on continual improvement year in and year out. The result? 200 wins for Ferentz. `\
-https://nytimes.com/athletic/5839066/2024/10/12/iowa-football-kirk-ferentz-washington/
-
-**Does cross-country travel in Big Ten matter? Breaking down results after Penn State-USC**\
-`Penn State and Indiana are the only two Big Ten teams that won on the road at least two time zones away.`\
-https://nytimes.com/athletic/5838921/2024/10/12/penn-state-usc-big-ten-football-record/
 
