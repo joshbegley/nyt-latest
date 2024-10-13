@@ -1,3 +1,8 @@
+**Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
+`William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
+`\
+https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
+
 **No. 1 Texas hasn't peaked yet. What happens when it does?**\
 `This Texas team is loaded with speed, size, strength and depth. And it has yet to play its best football.`\
 https://nytimes.com/athletic/5839152/2024/10/12/texas-longhorns-oklahoma-quinn-ewers/
@@ -29,8 +34,4 @@ https://nytimes.com/athletic/5839159/2024/10/12/dodgers-gavin-stone-shoulder-sur
 **Oklahoma has too many different problems for Brent Venables' third year**\
 `Oklahoma has a quarterback mess and a lack of answers for its various recurring problems, a stark contrast to its Red River rival.`\
 https://nytimes.com/athletic/5839104/2024/10/12/oklahoma-texas-brent-vaneables-michael-hawkins/
-
-**Oregon WR Holden ejected for spitting on Ohio State CB Igbinosun**\
-`No. 3 Oregon now has to finish its tight matchup against No. 2 Ohio State without one of its top receivers.`\
-https://nytimes.com/athletic/5839101/2024/10/12/traeshon-holden-ejection-oregon-ohio-state/
 
