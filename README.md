@@ -1,3 +1,7 @@
+**Biden Announces $612 Million for Projects to Help Areas Hit by Storms**\
+`During his visit to Florida, President Biden announced $612 million for six Energy Department projects in areas hit by Hurricanes Milton and Helene to improve the region’s electric grid.`\
+https://nytimes.com/video/us/100000009759806/biden-florida-hurricane-aftermath.html
+
 **Buckley: Drake Maye, Patriots gave fans what they craved — a glimpse of the future**\
 `What Pats fans needed was quality time with Maye. He delivered with three TD passes, including his first -- a perfectly thrown 40-yarder.`\
 https://nytimes.com/athletic/5840876/2024/10/13/drake-maye-debut-patriots-texans/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5840776/2024/10/13/wild-injury-jared-spurgeon-eriks
 **NFL Week 6 takeaways: Another Lamar Jackson MVP season? How high can Bears climb?**\
 `Plus, assessing Sunday’s two rookie quarterback debuts and more from Week 6.`\
 https://nytimes.com/athletic/5840777/2024/10/13/nfl-week-6-takeaways-another-lamar-jackson-mvp-season-how-high-can-bears-climb/
-
-**Just Over the Border from Israel, a Hezbollah Cache of Explosives and Mines**\
-`Israel’s military showed journalists parts of what it said was Hezbollah’s deeply entrenched military infrastructure across the border in southern Lebanon.`\
-https://nytimes.com/2024/10/13/world/middleeast/israel-military-lebanon-embed.html
 
