@@ -23,6 +23,11 @@ https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nyl
 `\
 https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
 
+**Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
+`William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
+`\
+https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
+
 **Cardinals vs. Packers odds, picks, how to watch: Can Kyler Murray pull off a road upset?**\
 `Jordan Love and the Packers are comfortable favorites at home, but Kyler Murray has produced some stunning plays.`\
 https://nytimes.com/athletic/5837488/2024/10/12/cardinals-packers-odds-expert-picks-how-to-watch-predictions-betting/
