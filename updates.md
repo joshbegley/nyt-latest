@@ -1,3 +1,7 @@
+**Robinson: Questions continue for Ryan Day after Ohio State comes up short at Oregon**\
+`The Buckeyes' goals remain, but they have to clean up the mistakes they made in their loss to Oregon on Saturday to reach them.`\
+https://nytimes.com/athletic/5839713/2024/10/13/ohio-state-football-ryan-day-oregon/
+
 **Israeli Jets Pummel Hezbollah Targets in Southern Lebanon**\
 `Sirens sounded in northern Israel, warning of incoming fire from Hezbollah.`\
 https://nytimes.com/2024/10/13/world/middleeast/lebanon-israel-hezbollah.html

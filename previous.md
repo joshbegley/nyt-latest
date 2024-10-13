@@ -1,3 +1,7 @@
+**Robinson: Questions continue for Ryan Day after Ohio State comes up short at Oregon**\
+`The Buckeyes' goals remain, but they have to clean up the mistakes they made in their loss to Oregon on Saturday to reach them.`\
+https://nytimes.com/athletic/5839713/2024/10/13/ohio-state-football-ryan-day-oregon/
+
 **Israeli Jets Pummel Hezbollah Targets in Southern Lebanon**\
 `Sirens sounded in northern Israel, warning of incoming fire from Hezbollah.`\
 https://nytimes.com/2024/10/13/world/middleeast/lebanon-israel-hezbollah.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5839176/2024/10/13/mets-dodgers-shohei-ohtani/
 **Falcons at Panthers odds, expert picks, how to watch: Atlanta heavily favored on the road**\
 `The Falcons are favored by nearly a touchdown despite playing on the road. Confidence remains low in Carolina.`\
 https://nytimes.com/athletic/5837587/2024/10/13/falcons-panthers-odds-expert-picks-how-to-watch-predictions-betting/
-
-**NFL Week 6 top storylines: Commanders-Ravens, rookie QBs in spotlight and Jets start over**\
-`This week's slate kicks off with Bears-Jaguars in London and ends Monday night with a Bills-Jets AFC East showdown.`\
-https://nytimes.com/athletic/5834799/2024/10/13/nfl-week-6-jets-ravens-commanders/
 
