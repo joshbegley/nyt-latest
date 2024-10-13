@@ -1,3 +1,7 @@
+**Buckley: Drake Maye, Patriots gave fans what they craved — a glimpse of the future**\
+`What Pats fans needed was quality time with Maye. He delivered with three TD passes, including his first -- a perfectly thrown 40-yarder.`\
+https://nytimes.com/athletic/5840876/2024/10/13/drake-maye-debut-patriots-texans/
+
 **Lions' Aidan Hutchinson carted off with leg injury vs. Cowboys**\
 `Since joining the Lions, Hutchinson's 27.5 sacks are the most among all Lions players.`\
 https://nytimes.com/athletic/5840914/2024/10/13/aidan-hutchinson-leg-injury-lions-cowboys/
