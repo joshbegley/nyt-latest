@@ -1,3 +1,15 @@
+**Ignore the Polls**\
+`They can’t tell you what you want to know.`\
+https://nytimes.com/2024/10/13/opinion/polls-harris-trump.html
+
+**November’s Second-Most-Important Election Is in Florida**\
+`The fate of Amendment 4 will tell us what the future of the pro-life movement holds.`\
+https://nytimes.com/2024/10/13/opinion/florida-amendment-4-abortion.html
+
+**Lawyers Should Not Assist Trump in a Potential Power Grab**\
+`Lawyers should remember what they were taught in ethics class.`\
+https://nytimes.com/2024/10/13/opinion/trump-lawyers-election.html
+
 **What Is SpaceX’s Starship? It’s really a Mars ship.**\
 `Bigger than the Statue of Liberty, the SpaceX vehicle is central to NASA’s plans to get to the moon and Elon Musk’s dreams of the red planet.`\
 https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/what-is-spacexs-starship-its-really-a-mars-ship
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/13/crosswords/wordle-review-1213.html
 **The Connections Companion No. 491**\
 `Scroll down for hints and conversation about the puzzle for Monday, Oct. 14, 2024.`\
 https://nytimes.com/2024/10/13/crosswords/connections-companion-491.html
-
-**Here’s what to know about the fifth Starship test flight.**\
-`By Kenneth Chang`\
-https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/heres-what-to-know-about-the-fifth-starship-test-flight
-
-**Live Updates: SpaceX Prepares for Launch and Landing of Starship Rocket**\
-`This is the fifth test flight of the vehicle, which could carry people to the moon and Mars. The company may attempt an unusual ‘chopsticks’ landing of the booster stage.`\
-https://nytimes.com/live/2024/10/13/science/spacex-starship-launch
-
-**Can Mets follow Padres’ blueprint to neutralize Dodgers star Shohei Ohtani?**\
-`The Padres did a good job minimizing the damage from Shohei Ohtani, though differences in personnel could keep the Mets from doing the same.`\
-https://nytimes.com/athletic/5839176/2024/10/13/mets-dodgers-shohei-ohtani/
 
