@@ -1,3 +1,20 @@
+**The Ground Game: Harris’s Turnout Machine vs. Trump’s Unproven Alliance**\
+`Both parties are frenetically chasing votes in the counties that could very well decide the election. In many places, inexperienced conservative groups are going up against a more tightly organized Democratic operation.`\
+https://nytimes.com/2024/10/13/us/politics/trump-harris-campaign-ground-game.html
+
+**Woman Who Tried to Smuggle 29 Turtles Wrapped in Socks Pleads Guilty**\
+`A resident of Hong Kong was caught while paddling across a lake from Vermont to Canada in an inflatable kayak with the Eastern box turtles in a duffle bag, according to court records.`\
+https://nytimes.com/2024/10/13/us/eastern-box-turtle-smuggling.html
+
+**Riley Leonard is starting to look like the QB Notre Dame expected all along**\
+`Riley Leonard looks like a quarterback who gets it now, and Mike Denbrock looks like a coordinator who gets his quarterback.`\
+https://nytimes.com/athletic/5840285/2024/10/13/notre-dame-football-riley-leonard-stanford/
+
+**Sideline worker at Titans-Colts carted off after Will Levis hit**\
+`The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
+`\
+https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
+
 **Sideline worker at Titans-Colts carted off after Will Levis hit**\
 `The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
 `\
