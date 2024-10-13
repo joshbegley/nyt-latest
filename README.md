@@ -1,3 +1,7 @@
+**USMNT opens Pochettino era with 2-0 win over Panama: Takeaways**\
+`Yunus Musah’s 49th-minute goal and a late finish from Ricardo Pepi lifted the U.S. to a 2-0 victory over Panama in Austin, Texas.`\
+https://nytimes.com/athletic/5839295/2024/10/12/usmnt-vs-panama-pochettino-musah-takeaways/
+
 **What Oregon's signature win vs. Ohio State in Big Ten classic means for Ducks, Buckeyes**\
 `Oregon toppled Ohio State 32-21 in a back-and-forth thriller at Autzen Stadium. Here's what it means for Dan Lanning and Ryan Day.`\
 https://nytimes.com/athletic/5839184/2024/10/12/ohio-state-oregon-score-recap-takeaways/
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5837129/2024/10/12/penguins-evgeni-malkin-1300-nhl-
 **After Hurricane Milton, displaced USF tries to play on: 'Our whole community’s hurting'**\
 `USF lost to Memphis, but there was plenty more on the Bulls' minds as they played 80 miles away from home after a devastating storm.`\
 https://nytimes.com/athletic/5839125/2024/10/12/usf-football-hurricane-milton-memphis-orlando/
-
-**Dodgers' Gavin Stone likely to miss all of 2025 after shoulder surgery**\
-`Dodgers manager Dave Roberts said the surgery Stone underwent this week "identified a lot of stuff that was going on in the shoulder."`\
-https://nytimes.com/athletic/5839159/2024/10/12/dodgers-gavin-stone-shoulder-surgery/
 
