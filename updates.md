@@ -1,3 +1,7 @@
+**Does cross-country travel in Big Ten matter? Breaking down results after Penn State-USC**\
+`Penn State and Indiana are the only two Big Ten teams that won on the road at least two time zones away.`\
+https://nytimes.com/athletic/5838921/2024/10/12/penn-state-usc-big-ten-football-record/
+
 **Penguins' Malkin joins Crosby, Ovechkin as active NHL players with 1,300 points**\
 `With two assists Saturday, Malkin became one of only 37 players to score at least 1,300 points.`\
 https://nytimes.com/athletic/5837129/2024/10/12/penguins-evgeni-malkin-1300-nhl-points/
