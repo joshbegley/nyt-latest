@@ -1,3 +1,8 @@
+**Sideline worker at Titans-Colts carted off after Will Levis hit**\
+`The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
+`\
+https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
+
 **AP Top 25: Texas still No. 1 as Oregon jumps to No. 2**\
 `Texas is No. 1 heading into its showdown against No. 5 Georgia, with Oregon No. 2, Penn State No. 3 and Ohio State No. 4 in the AP poll.`\
 https://nytimes.com/athletic/5840342/2024/10/13/ap-top-25-rankings-texas-oregon/
