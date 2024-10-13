@@ -1,3 +1,19 @@
+**Here’s the latest on the presidential race.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/10/13/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris to Make a Pitch to Black Voters in North Carolina, as Trump Hits Arizona**\
+`The two presidential nominees will campaign in key swing states on Sunday, a day after the former president took a detour to reliably blue California.`\
+https://nytimes.com/live/2024/10/13/us/harris-trump-election
+
+**Harris Campaign to Fly Ads Over N.F.L. Games in Swing States**\
+`Fans at games in four swing states will see skywriting or banners over their stadium on Sunday. The vice president’s campaign would like men in particular to look up.`\
+https://nytimes.com/2024/10/13/us/politics/harris-walz-nfl-ads-swing-states.html
+
+**Making the case for why Alabama is a contender and why it's not**\
+`How good is this Alabama team? There is reason for optimism and pessimism in the answer to that question.`\
+https://nytimes.com/athletic/5839714/2024/10/13/alabama-football-national-championship-kalen-deboer/
+
 **Four earlier Starship launches highlighted SpaceX’s “fail fast, learn faster” approach.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/four-earlier-starship-launches-highlighted-spacexs-fail-fast-learn-faster-approach
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5839743/2024/10/13/jannik-sinner-wins-shanghai-mast
 **Five observations from the Oilers' dreadful 0-2 start**\
 `After reaching Game 7 of the Stanley Cup Final, Edmonton hasn't led for a single second this season.`\
 https://nytimes.com/athletic/5839644/2024/10/13/edmonton-oilers-five-observations/
-
-**Ignore the Polls**\
-`They can’t tell you what you want to know.`\
-https://nytimes.com/2024/10/13/opinion/polls-harris-trump.html
-
-**November’s Second-Most-Important Election Is in Florida**\
-`The fate of Amendment 4 will tell us what the future of the pro-life movement holds.`\
-https://nytimes.com/2024/10/13/opinion/florida-amendment-4-abortion.html
-
-**Lawyers Should Not Assist Trump in a Potential Power Grab**\
-`Lawyers should remember what they were taught in ethics class.`\
-https://nytimes.com/2024/10/13/opinion/trump-lawyers-election.html
-
-**What Is SpaceX’s Starship? It’s really a Mars ship.**\
-`Bigger than the Statue of Liberty, the SpaceX vehicle is central to NASA’s plans to get to the moon and Elon Musk’s dreams of the red planet.`\
-https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/what-is-spacexs-starship-its-really-a-mars-ship
 
