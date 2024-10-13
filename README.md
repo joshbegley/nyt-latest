@@ -1,3 +1,7 @@
+**Monday Briefing: The U.S. to Deploy Troops to Israel**\
+`Plus, 200,000 stories of Modern Love.`\
+https://nytimes.com/2024/10/13/briefing/us-troops-poll-ladakh.html
+
 **Eagles make big plays as Browns lose fourth straight: Key takeaways**\
 `Both A.J. Brown and DeVonta Smith made key plays on Sunday to help the Eagles seal a 20-16 victory.`\
 https://nytimes.com/athletic/5838692/2024/10/13/eagles-browns-score-results-takeaways/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5840484/2024/10/13/caleb-williams-bears-jaguars-lon
 **Biden Calls for Bipartisan Effort to Help Areas Hit by Storms**\
 `The president surveyed damage in Florida and announced $612 million for projects to help the electric grid in areas affected by Hurricanes Helene and Milton.`\
 https://nytimes.com/2024/10/13/us/politics/biden-hurricane-damage-florida.html
-
-**JD Vance defended his running mate and spoke about abortion in a pair of Sunday show appearances.**\
-`By Michael C. Bender`\
-https://nytimes.com/live/2024/10/13/us/harris-trump-election/jd-vance-defended-his-running-mate-and-spoke-about-abortion-in-a-pair-of-sunday-show-appearances
 
