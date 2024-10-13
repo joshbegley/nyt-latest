@@ -1,3 +1,7 @@
+**Dochterman: Kirk Ferentz's Iowa has done a lot with little, and 200 wins proves it**\
+`Kirk Ferentz's Iowa teams have focused on continual improvement year in and year out. The result? 200 wins for Ferentz. `\
+https://nytimes.com/athletic/5839066/2024/10/12/iowa-football-kirk-ferentz-washington/
+
 **Does cross-country travel in Big Ten matter? Breaking down results after Penn State-USC**\
 `Penn State and Indiana are the only two Big Ten teams that won on the road at least two time zones away.`\
 https://nytimes.com/athletic/5838921/2024/10/12/penn-state-usc-big-ten-football-record/

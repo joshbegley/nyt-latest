@@ -1,3 +1,7 @@
+**Dochterman: Kirk Ferentz's Iowa has done a lot with little, and 200 wins proves it**\
+`Kirk Ferentz's Iowa teams have focused on continual improvement year in and year out. The result? 200 wins for Ferentz. `\
+https://nytimes.com/athletic/5839066/2024/10/12/iowa-football-kirk-ferentz-washington/
+
 **Does cross-country travel in Big Ten matter? Breaking down results after Penn State-USC**\
 `Penn State and Indiana are the only two Big Ten teams that won on the road at least two time zones away.`\
 https://nytimes.com/athletic/5838921/2024/10/12/penn-state-usc-big-ten-football-record/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/12/us/texas-lawsuit-friends-abortion-pills.html
 **Browns RB Nick Chubb expected to return in Week 7**\
 `Chubb began the season on the physically unable to perform (PUP) list after sustaining a torn ACL, PCL and MCL in Week 2 of the 2023 season.`\
 https://nytimes.com/athletic/5839090/2024/10/12/nick-chubb-browns-knee-injury-return-week-7/
-
-**Jeff McNeil readies to rejoin Mets after second Arizona Fall League game**\
-`After 10 plate appearances in the Arizona Fall League, McNeil is likely to return to the Mets for the NLCS.`\
-https://nytimes.com/athletic/5839092/2024/10/12/mets-jeff-mcneil-arizona-fall-league/
 
