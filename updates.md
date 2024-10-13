@@ -1,3 +1,11 @@
+**NFL Week 6 takeaways: Another Lamar Jackson MVP season? How high can Bears climb?**\
+`Plus, assessing Sunday’s two rookie quarterback debuts and more from Week 6.`\
+https://nytimes.com/athletic/5840777/2024/10/13/nfl-week-6-takeaways-another-lamar-jackson-mvp-season-how-high-can-bears-climb/
+
+**Derrick Henry, Ravens run over Commanders in 30-23 win: Takeaways**\
+`Derrick Henry finished the afternoon with 132 rushing yards and two touchdowns on 24 carries, his 20th career game with 100 yards and 2 TDs.`\
+https://nytimes.com/athletic/5838631/2024/10/13/commanders-ravens-score-takeaways-result/
+
 **Just Over the Border from Israel, a Hezbollah Cache of Explosives and Mines**\
 `Israel’s military showed journalists parts of what it said was Hezbollah’s deeply entrenched military infrastructure across the border in southern Lebanon.`\
 https://nytimes.com/2024/10/13/world/middleeast/israel-military-lebanon-embed.html
