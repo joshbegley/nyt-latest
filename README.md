@@ -1,7 +1,3 @@
-**American League Championship Series predictions: Our experts make their picks**\
-`Will the Yankees finally make it back to the World Series? Can the Guardians continue their Cinderella story? Our experts make their picks.`\
-https://nytimes.com/athletic/5839980/2024/10/13/mlb-postseason-alcs-predictions-yankees-guardians/
-
 **Blue Jackets Sunday Gathering: Changes have Zach Werenski poised to reach a new level**\
 `The veteran defenseman scored in each of the Blue Jackets' first two games of the season, including a noteworthy power-play goal.`\
 https://nytimes.com/athletic/5839817/2024/10/13/blue-jackets-zach-werenski-nhl/
@@ -33,4 +29,8 @@ https://nytimes.com/athletic/5838618/2024/10/13/bears-jaguars-score-caleb-willia
 **Colts dub Richardson emergency QB, starting Flacco vs. Titans**\
 `Through two games this season, Flacco has thrown for 527 yards, five touchdowns and no interceptions on a 70 percent completion rate.`\
 https://nytimes.com/athletic/5840031/2024/10/13/anthony-richardson-joe-flacco-start-colts-titans/
+
+**Abdul Salaam, Quiet Member of the Jets’ ‘Sack Exchange,’ Dies at 71**\
+`A defensive tackle, he teamed with Joe Klecko, Mark Gastineau and Marty Lyons in the 1980s on a line that terrorized quarterbacks.`\
+https://nytimes.com/2024/10/13/sports/football/abdul-salaam-dead.html
 
