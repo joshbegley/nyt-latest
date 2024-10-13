@@ -1,3 +1,11 @@
+**Sinner beats Djokovic to win Shanghai Masters**\
+`World No.`\
+https://nytimes.com/athletic/5839743/2024/10/13/jannik-sinner-wins-shanghai-masters/
+
+**Five observations from the Oilers' dreadful 0-2 start**\
+`After reaching Game 7 of the Stanley Cup Final, Edmonton hasn't led for a single second this season.`\
+https://nytimes.com/athletic/5839644/2024/10/13/edmonton-oilers-five-observations/
+
 **Ignore the Polls**\
 `They can’t tell you what you want to know.`\
 https://nytimes.com/2024/10/13/opinion/polls-harris-trump.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/13/world/middleeast/lebanon-israel-hezbollah.html
 **Mandel's Final Thoughts: Dillon Gabriel's legend grows, and more from Week 7**\
 `It was a remarkable Saturday that saw three top-10 teams go to overtime and two others play an all-time classic.`\
 https://nytimes.com/athletic/5839701/2024/10/13/oregon-ohio-state-week-7-final-thoughts/
-
-**Wordle Review No. 1,213**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 14, 2024.`\
-https://nytimes.com/2024/10/13/crosswords/wordle-review-1213.html
-
-**The Connections Companion No. 491**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 14, 2024.`\
-https://nytimes.com/2024/10/13/crosswords/connections-companion-491.html
 
