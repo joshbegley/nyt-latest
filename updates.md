@@ -1,3 +1,15 @@
+**Ignore the Polls**\
+`They can’t tell you what you want to know.`\
+https://nytimes.com/2024/10/13/opinion/polls-harris-trump.html
+
+**November’s Second-Most-Important Election Is in Florida**\
+`The fate of Amendment 4 will tell us what the future of the pro-life movement holds.`\
+https://nytimes.com/2024/10/13/opinion/florida-amendment-4-abortion.html
+
+**Lawyers Should Not Assist Trump in a Potential Power Grab**\
+`Lawyers should remember what they were taught in ethics class.`\
+https://nytimes.com/2024/10/13/opinion/trump-lawyers-election.html
+
 **What Is SpaceX’s Starship? It’s really a Mars ship.**\
 `Bigger than the Statue of Liberty, the SpaceX vehicle is central to NASA’s plans to get to the moon and Elon Musk’s dreams of the red planet.`\
 https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/what-is-spacexs-starship-its-really-a-mars-ship
