@@ -1,3 +1,7 @@
+**Cardinals' Marvin Harrison Jr. out with concussion vs. Packers**\
+`Harrison had no catches on two targets Sunday before leaving the game.`\
+https://nytimes.com/athletic/5838648/2024/10/13/cardinals-packers-takeaways-result/
+
 **Stewart Mandel's 12-team Playoff projections after Week 7**\
 `Ohio State's loss at Oregon isn't too damaging. The Buckeyes are still the projected Big Ten champs but have dropped to the No. 2 seed.`\
 https://nytimes.com/athletic/5840360/2024/10/13/college-football-playoff-bracket-projections-week-7/
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5840335/2024/10/13/mets-jeff-mcneil-nlcs-roster/
 **Pulisic among five USMNT players to return to club and miss Mexico game**\
 `Christian Pulisic is one of five USMNT players to return to their club side early from international duty and will miss Tuesday night&#8217;s friendly against Mexico.`\
 https://nytimes.com/athletic/5840348/2024/10/13/pulisic-mckennie-pepi-usmnt-mexico/
-
-**Greenberg: Caleb Williams, Bears showing that a new day is dawning in Chicago**\
-`Sunday morning's 35-16 beatdown of the Jaguars in London was a most welcome sight for everyone whose happiness depends on the Bears (4-2).`\
-https://nytimes.com/athletic/5840166/2024/10/13/chicago-bears-caleb-williams-jaguars-london/
 
