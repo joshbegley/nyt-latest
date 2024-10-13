@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
 
+**Sideline worker at Titans-Colts carted off after Will Levis hit**\
+`The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
+`\
+https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
+
 **The Ground Game: Harris’s Turnout Machine vs. Trump’s Unproven Alliance**\
 `Both parties are frenetically chasing votes in the counties that could very well decide the election. In many places, inexperienced conservative groups are going up against a more tightly organized Democratic operation.`\
 https://nytimes.com/2024/10/13/us/politics/trump-harris-campaign-ground-game.html
