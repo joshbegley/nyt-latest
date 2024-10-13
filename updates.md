@@ -43,6 +43,11 @@ https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-wil
 `\
 https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
 
+**Sideline worker at Titans-Colts carted off after Will Levis hit**\
+`The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
+`\
+https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
+
 **The Painter Titus Kaphar Wanted a Bigger Canvas, so He Made a Film**\
 `His first feature, “Exhibiting Forgiveness,” which opens Oct. 18, features paintings now on view at Gagosian in Los Angeles.`\
 https://nytimes.com/2024/10/13/arts/design/titus-kaphar-gagosian.html
