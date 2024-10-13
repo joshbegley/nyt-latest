@@ -1,3 +1,7 @@
+**Goaltender interference controversy, unexpected fighters: 5 Rangers takeaways**\
+`The Rangers participated in one of the strangest periods the NHL has seen in its young season en route to a 6-5 overtime loss to Utah. `\
+https://nytimes.com/athletic/5839276/2024/10/12/rangers-utah-nhl-goaltender-interference-controversy/
+
 **Colts at Titans odds, picks, how to watch: Can Colts avoid going 0-3 in division?**\
 `An AFC South matchup with both teams struggling at quarterback and looking for some much-needed momentum.`\
 https://nytimes.com/athletic/5837513/2024/10/12/colts-titans-odds-expert-picks-how-to-watch-predictions-betting/
@@ -29,9 +33,4 @@ https://nytimes.com/athletic/5839295/2024/10/12/usmnt-vs-panama-pochettino-musah
 **What Oregon's signature win vs. Ohio State in Big Ten classic means for Ducks, Buckeyes**\
 `Oregon toppled Ohio State 32-21 in a back-and-forth thriller at Autzen Stadium. Here's what it means for Dan Lanning and Ryan Day.`\
 https://nytimes.com/athletic/5839184/2024/10/12/ohio-state-oregon-score-recap-takeaways/
-
-**Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
-`William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
-`\
-https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
 

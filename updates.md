@@ -1,3 +1,7 @@
+**Goaltender interference controversy, unexpected fighters: 5 Rangers takeaways**\
+`The Rangers participated in one of the strangest periods the NHL has seen in its young season en route to a 6-5 overtime loss to Utah. `\
+https://nytimes.com/athletic/5839276/2024/10/12/rangers-utah-nhl-goaltender-interference-controversy/
+
 **Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
 `William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
 `\
