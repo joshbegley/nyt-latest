@@ -1,3 +1,7 @@
+**Buckley: Drake Maye, Patriots gave fans what they craved — a glimpse of the future**\
+`What Pats fans needed was quality time with Maye. He delivered with three TD passes, including his first -- a perfectly thrown 40-yarder.`\
+https://nytimes.com/athletic/5840876/2024/10/13/drake-maye-debut-patriots-texans/
+
 **Lions' Aidan Hutchinson carted off with leg injury vs. Cowboys**\
 `Since joining the Lions, Hutchinson's 27.5 sacks are the most among all Lions players.`\
 https://nytimes.com/athletic/5840914/2024/10/13/aidan-hutchinson-leg-injury-lions-cowboys/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5840777/2024/10/13/nfl-week-6-takeaways-another-lam
 **Just Over the Border from Israel, a Hezbollah Cache of Explosives and Mines**\
 `Israel’s military showed journalists parts of what it said was Hezbollah’s deeply entrenched military infrastructure across the border in southern Lebanon.`\
 https://nytimes.com/2024/10/13/world/middleeast/israel-military-lebanon-embed.html
-
-**Derrick Henry, Ravens run over Commanders in 30-23 win: Takeaways**\
-`Derrick Henry finished the afternoon with 132 rushing yards and two touchdowns on 24 carries, his 20th career game with 100 yards and 2 TDs.`\
-https://nytimes.com/athletic/5838631/2024/10/13/commanders-ravens-score-takeaways-result/
 
