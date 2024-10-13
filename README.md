@@ -1,3 +1,7 @@
+**Aryna Sabalenka wins Wuhan Open after staving off Zheng Qinwen comeback**\
+`The victory cements Sabalenka's position in the race for year-end No. 1`\
+https://nytimes.com/athletic/5839818/2024/10/13/sabalenka-zheng-wuhan-final-result-analysis/
+
 **SpaceX returned a large rocket booster to its launch site and ‘caught’ it with mechanical arms.**\
 `By Kenneth Chang`\
 https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/spacex-returned-a-large-rocket-booster-to-its-launch-site-and-caught-it-with-mechanical-arms
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/four-earlier-
 **A Shift in the World of Science**\
 `What this year’s Nobels can teach us about science and humanity.`\
 https://nytimes.com/2024/10/13/briefing/nobel-prize-artificial-intelligence.html
-
-**Five things we learned about the CFP race after Big Ten's game of the year**\
-`Oregon and Ohio State could be headed for a rematch, while there's plenty of drama in the SEC, and things are looking up for the ACC.`\
-https://nytimes.com/athletic/5839736/2024/10/13/college-football-playoff-race-rankings-oregon-ohio-state/
 
