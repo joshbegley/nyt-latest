@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
 
+**Sideline worker at Titans-Colts carted off after Will Levis hit**\
+`The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
+`\
+https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
+
 **Stewart Mandel's 12-team Playoff projections after Week 7**\
 `Ohio State's loss at Oregon isn't too damaging. The Buckeyes are still the projected Big Ten champs but have dropped to the No. 2 seed.`\
 https://nytimes.com/athletic/5840360/2024/10/13/college-football-playoff-bracket-projections-week-7/
