@@ -1,3 +1,7 @@
+**Tom Brady expected to be approved as Raiders minority owner**\
+`Brady needs 24 of the NFL's 32 owners to vote in his favor, but that's believed to be a formality.`\
+https://nytimes.com/athletic/5839160/2024/10/12/tom-brady-raiders-bid-review-nfl/
+
 **Dochterman: Kirk Ferentz's Iowa has done a lot with little, and 200 wins proves it**\
 `Kirk Ferentz's Iowa teams have focused on continual improvement year in and year out. The result? 200 wins for Ferentz. `\
 https://nytimes.com/athletic/5839066/2024/10/12/iowa-football-kirk-ferentz-washington/
