@@ -113,6 +113,11 @@ https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-wil
 `\
 https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
 
+**Sideline worker at Titans-Colts carted off after Will Levis hit**\
+`The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
+`\
+https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
+
 **Carsley 'open minded' on England manager job after saying 'world-class coach' needed**\
 `England interim manager Lee Carsley has said he is &#8220;keeping an open mind&#8221; on taking the permanent position after stating that the role required a &#8220;world-class coach who has won trophies&#8221;.`\
 https://nytimes.com/athletic/5840467/2024/10/13/lee-carsley-england-manager-appointment/
