@@ -1,3 +1,7 @@
+**Ladakh’s Local Hero Wants India to Pay Attention to His People**\
+`The activist Sonam Wangchuk is leading protests to demand more autonomy for India’s remote Ladakh region, which shares borders with China and Pakistan.`\
+https://nytimes.com/2024/10/13/world/asia/ladakh-india-wangchuk.html
+
 **Corrections: Oct. 13, 2024**\
 `Corrections that appeared in print on Sunday, Oct. 13, 2024.`\
 https://nytimes.com/2024/10/13/pageoneplus/corrections-oct-13-2024.html

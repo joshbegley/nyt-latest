@@ -1,3 +1,7 @@
+**Ladakh’s Local Hero Wants India to Pay Attention to His People**\
+`The activist Sonam Wangchuk is leading protests to demand more autonomy for India’s remote Ladakh region, which shares borders with China and Pakistan.`\
+https://nytimes.com/2024/10/13/world/asia/ladakh-india-wangchuk.html
+
 **Corrections: Oct. 13, 2024**\
 `Corrections that appeared in print on Sunday, Oct. 13, 2024.`\
 https://nytimes.com/2024/10/13/pageoneplus/corrections-oct-13-2024.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/nyregion/park-slope-food-coop-joe-holtz.html
 **She Was a Key Aide to Eric Adams. Her Ties to China Ran Deep.**\
 `Winnie Greco, a top fund-raiser and senior adviser for Mr. Adams, has long had dealings with people and groups connected to China’s communist regime. He kept her close even so.`\
 https://nytimes.com/2024/10/13/nyregion/adams-greco-china-influence-investigation.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/13/crosswords/spelling-bee-forum.html
 
