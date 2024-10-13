@@ -1,3 +1,15 @@
+**Fisher-Price Recalls 2 Million ‘Snuga Swings’ After Five Infant Deaths**\
+`The U.S. Consumer Product Safety Commission announced the recall, which one of its commissioners said was “doomed to fail.”`\
+https://nytimes.com/2024/10/13/business/fisher-price-snuga-swing-recall.html
+
+**Finland 1 England 3: Gomes the conductor, Alexander-Arnold's brilliance, Foden's future**\
+`England secured victory over Finland in the Nations League after a disappointing defeat last week - our writers break down the action`\
+https://nytimes.com/athletic/5837311/2024/10/13/england-finland-gomes-carsley/
+
+**Dodgers leave Alex Vesia, Miguel Rojas off NLCS roster**\
+`LOS ANGELES — The Dodgers, as expected, did not include left-handed reliever Alex Vesia or shortstop Miguel Rojas on the National League Championship Series roster they announced Sunday, as each continues to deal with injuries.`\
+https://nytimes.com/athletic/5840301/2024/10/13/dodgers-leave-alex-vesia-miguel-rojas-off-nlcs-roster/
+
 **American League Championship Series predictions: Our experts make their picks**\
 `Will the Yankees finally make it back to the World Series? Can the Guardians continue their Cinderella story? Our experts make their picks.`\
 https://nytimes.com/athletic/5839980/2024/10/13/mlb-postseason-alcs-predictions-yankees-guardians/

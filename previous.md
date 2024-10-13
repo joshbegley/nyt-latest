@@ -1,3 +1,15 @@
+**Fisher-Price Recalls 2 Million ‘Snuga Swings’ After Five Infant Deaths**\
+`The U.S. Consumer Product Safety Commission announced the recall, which one of its commissioners said was “doomed to fail.”`\
+https://nytimes.com/2024/10/13/business/fisher-price-snuga-swing-recall.html
+
+**Finland 1 England 3: Gomes the conductor, Alexander-Arnold's brilliance, Foden's future**\
+`England secured victory over Finland in the Nations League after a disappointing defeat last week - our writers break down the action`\
+https://nytimes.com/athletic/5837311/2024/10/13/england-finland-gomes-carsley/
+
+**Dodgers leave Alex Vesia, Miguel Rojas off NLCS roster**\
+`LOS ANGELES — The Dodgers, as expected, did not include left-handed reliever Alex Vesia or shortstop Miguel Rojas on the National League Championship Series roster they announced Sunday, as each continues to deal with injuries.`\
+https://nytimes.com/athletic/5840301/2024/10/13/dodgers-leave-alex-vesia-miguel-rojas-off-nlcs-roster/
+
 **American League Championship Series predictions: Our experts make their picks**\
 `Will the Yankees finally make it back to the World Series? Can the Guardians continue their Cinderella story? Our experts make their picks.`\
 https://nytimes.com/athletic/5839980/2024/10/13/mlb-postseason-alcs-predictions-yankees-guardians/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/13/opinion/florida-hurricane-milton.html
 **U.S. to Deploy Missile Defense System and About 100 Troops to Israel**\
 `The Pentagon announced it would send the Terminal High Altitude Area Defense battery and its crew as Israel considered retaliatory attacks against Iran.`\
 https://nytimes.com/2024/10/13/us/politics/us-missile-defense-iran-israel.html
-
-**Q&A recap: Week 6 fantasy football start/sit chat with Jay Felicio, Sunday, 10/13**\
-`Jay Felicio answers your Week 6 fantasy football start/sit questions in a Sunday morning chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5837601/2024/10/13/live-qa-week-6-fantasy-football-start-sit-chat-with-jay-felicio-sunday-10-13-at-11-a-m-et/
-
-**Caleb Williams shines as Bears beat Jaguars 35-16 in London: Takeaways**\
-`The Bears improve to 4-2 while the Jaguars sink to 1-5 and remain at the bottom of the AFC South.`\
-https://nytimes.com/athletic/5838618/2024/10/13/bears-jaguars-score-caleb-williams-takeaways-london/
-
-**Colts dub Richardson emergency QB, starting Flacco vs. Titans**\
-`Through two games this season, Flacco has thrown for 527 yards, five touchdowns and no interceptions on a 70 percent completion rate.`\
-https://nytimes.com/athletic/5840031/2024/10/13/anthony-richardson-joe-flacco-start-colts-titans/
 
