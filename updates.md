@@ -1,3 +1,7 @@
+**Four earlier Starship launches highlighted SpaceX’s “fail fast, learn faster” approach.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/four-earlier-starship-launches-highlighted-spacexs-fail-fast-learn-faster-approach
+
 **A Shift in the World of Science**\
 `What this year’s Nobels can teach us about science and humanity.`\
 https://nytimes.com/2024/10/13/briefing/nobel-prize-artificial-intelligence.html
