@@ -1,3 +1,7 @@
+**Lions' Aidan Hutchinson carted off with leg injury vs. Cowboys**\
+`Since joining the Lions, Hutchinson's 27.5 sacks are the most among all Lions players.`\
+https://nytimes.com/athletic/5840914/2024/10/13/aidan-hutchinson-leg-injury-lions-cowboys/
+
 **Harris Sends a Secret Weapon to a Georgia Fish Fry: Bill Clinton**\
 `With early voting set to begin in Georgia, the Harris campaign is sending the former president to get out the vote in rural areas.`\
 https://nytimes.com/2024/10/13/us/politics/bill-clinton-georgia-fish-fry.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/world/middleeast/israel-military-lebanon-embed.ht
 **Derrick Henry, Ravens run over Commanders in 30-23 win: Takeaways**\
 `Derrick Henry finished the afternoon with 132 rushing yards and two touchdowns on 24 carries, his 20th career game with 100 yards and 2 TDs.`\
 https://nytimes.com/athletic/5838631/2024/10/13/commanders-ravens-score-takeaways-result/
-
-**Monday Briefing: The U.S. to Deploy Troops to Israel**\
-`Plus, 200,000 stories of Modern Love.`\
-https://nytimes.com/2024/10/13/briefing/us-troops-poll-ladakh.html
 
