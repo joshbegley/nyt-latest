@@ -1,3 +1,7 @@
+**Lane Hutson predicted Canadiens wouldn’t care about his size. He’s proven himself right**\
+`Lane Hutson's first five NHL games have gone just about as well as anyone could have imagined. Anyone except Hutson himself. `\
+https://nytimes.com/athletic/5839563/2024/10/13/lane-hutson-size-canadiens/
+
 **Travis Hunter tracker: Injury knocks Colorado star out of Kansas State game early**\
 `Hunter entered Saturday averaging around 120 snaps per game, but he played fewer than 50 snaps against Kansas State before exiting.`\
 https://nytimes.com/athletic/5839202/2024/10/13/travis-hunter-tracker-nfl-draft-2025-stats/

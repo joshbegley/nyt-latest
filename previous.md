@@ -1,3 +1,7 @@
+**Lane Hutson predicted Canadiens wouldn’t care about his size. He’s proven himself right**\
+`Lane Hutson's first five NHL games have gone just about as well as anyone could have imagined. Anyone except Hutson himself. `\
+https://nytimes.com/athletic/5839563/2024/10/13/lane-hutson-size-canadiens/
+
 **Travis Hunter tracker: Injury knocks Colorado star out of Kansas State game early**\
 `Hunter entered Saturday averaging around 120 snaps per game, but he played fewer than 50 snaps against Kansas State before exiting.`\
 https://nytimes.com/athletic/5839202/2024/10/13/travis-hunter-tracker-nfl-draft-2025-stats/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5837410/2024/10/13/commanders-ravens-odds-expert-pi
 **Referee collapses, leaves in ambulance during Boise State-Hawai'i**\
 `The official was alert as he left the complex, according to the CBS broadcast.`\
 https://nytimes.com/athletic/5839482/2024/10/13/boise-state-hawaii-referee-collapse-ambulance/
-
-**Browns vs. Eagles odds, expert picks, how to watch: A.J. Brown returns, Browns stick with Watson**\
-`The Philadelphia Eagles welcome the hapless Cleveland Browns and Deshaun Watson to Lincoln Financial Field Sunday afternoon.`\
-https://nytimes.com/athletic/5837309/2024/10/13/browns-eagles-odds-predictions-betting/
 
