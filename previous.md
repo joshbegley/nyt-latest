@@ -1,3 +1,7 @@
+**Steelers at Raiders odds, picks, how to watch: Offensive struggles cloud outlook for both**\
+`The Raiders are starting a new QB, and the Steelers have struggled to get their offense rolling. Will this be close?`\
+https://nytimes.com/athletic/5837610/2024/10/13/steelers-raiders-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Russian Strikes on Ukrainian Ports Target Civilian Shipping**\
 `With the strikes in the Odesa region, Russia appears to be trying again to prevent Ukraine from exporting grain, harming its economy and pushing up world prices.`\
 https://nytimes.com/2024/10/13/world/europe/russia-ukraine-ports-odesa-grain.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/style/tim-heidecker-glendale-dad-encounters.html
 **Can the New York Liberty, the Best in the W.N.B.A, Finally Win It All?**\
 `The Liberty, an original W.N.B.A. franchise, have been to the finals five times and lost each time. But their fans can’t help believing, again, this year.`\
 https://nytimes.com/2024/10/13/nyregion/new-york-liberty-finals.html
-
-**How Can I Get My Boss to Notice Me?**\
-`When there are men in the room, a female colleague is made to feel invisible.`\
-https://nytimes.com/2024/10/13/business/work-advice-male-boss.html
 

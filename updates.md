@@ -1,3 +1,7 @@
+**Steelers at Raiders odds, picks, how to watch: Offensive struggles cloud outlook for both**\
+`The Raiders are starting a new QB, and the Steelers have struggled to get their offense rolling. Will this be close?`\
+https://nytimes.com/athletic/5837610/2024/10/13/steelers-raiders-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Russian Strikes on Ukrainian Ports Target Civilian Shipping**\
 `With the strikes in the Odesa region, Russia appears to be trying again to prevent Ukraine from exporting grain, harming its economy and pushing up world prices.`\
 https://nytimes.com/2024/10/13/world/europe/russia-ukraine-ports-odesa-grain.html
