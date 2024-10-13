@@ -1,3 +1,11 @@
+**JD Vance defended his running mate and spoke about abortion in a pair of Sunday show appearances.**\
+`By Michael C. Bender`\
+https://nytimes.com/live/2024/10/13/us/harris-trump-election/jd-vance-defended-his-running-mate-and-spoke-about-abortion-in-a-pair-of-sunday-show-appearances
+
+**Carsley 'open minded' on England manager job after saying 'world-class coach' needed**\
+`England interim manager Lee Carsley has said he is &#8220;keeping an open mind&#8221; on taking the permanent position after stating that the role required a &#8220;world-class coach who has won trophies.`\
+https://nytimes.com/athletic/5840467/2024/10/13/lee-carsley-england-manager-appointment/
+
 **Cardinals' Marvin Harrison Jr. out with concussion vs. Packers**\
 `Harrison had no catches on two targets Sunday before leaving the game.`\
 https://nytimes.com/athletic/5838648/2024/10/13/cardinals-packers-takeaways-result/
@@ -26,12 +34,4 @@ https://nytimes.com/athletic/5840342/2024/10/13/ap-top-25-rankings-texas-oregon/
 `The broadcast showed the worker's left leg in an air cast, and he gave a thumbs up on his way off the field.
 `\
 https://nytimes.com/athletic/5840298/2024/10/13/titans-colts-sideline-worker-will-levis/
-
-**Mets bolster bench by adding Jeff McNeil to NLCS roster**\
-`In an expected move, the New York Mets added second baseman/outfielder Jeff McNeil to their roster for the National League Championship Series.`\
-https://nytimes.com/athletic/5840335/2024/10/13/mets-jeff-mcneil-nlcs-roster/
-
-**Pulisic among five USMNT players to return to club and miss Mexico game**\
-`Christian Pulisic is one of five USMNT players to return to their club side early from international duty and will miss Tuesday night&#8217;s friendly against Mexico.`\
-https://nytimes.com/athletic/5840348/2024/10/13/pulisic-mckennie-pepi-usmnt-mexico/
 
