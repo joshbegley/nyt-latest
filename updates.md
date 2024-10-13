@@ -1,3 +1,7 @@
+**For Sunday’s flight, SpaceX may try an audacious “chopsticks” landing.**\
+`By Kenneth Chang`\
+https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/for-sundays-flight-spacex-may-try-an-audacious-chopsticks-landing
+
 **Here’s the latest on the presidential race.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/10/13/us/harris-trump-election/heres-the-latest-on-the-presidential-race
