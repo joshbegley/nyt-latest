@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nyl
 `\
 https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
 
+**Maple Leafs report cards: Not-so-dominant performance earns win vs. Penguins**\
+`William Nylander's two goals secured Toronto its ninth straight home-opener victory. 
+`\
+https://nytimes.com/athletic/5839057/2024/10/12/maple-leafs-penguins-william-nylander/
+
 **What Oregon's signature win vs. Ohio State in Big Ten classic means for Ducks, Buckeyes**\
 `Oregon toppled Ohio State 32-21 in a back-and-forth thriller at Autzen Stadium. Here's what it means for Dan Lanning and Ryan Day.`\
 https://nytimes.com/athletic/5839184/2024/10/12/ohio-state-oregon-score-recap-takeaways/
