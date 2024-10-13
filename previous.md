@@ -1,3 +1,7 @@
+**Guardians tap Alex Cobb, Tanner Bibee to start Games 1 and 2 of ALCS vs. Yankees**\
+`It'll be Cobb's second start of the postseason and Bibee's third. `\
+https://nytimes.com/athletic/5840582/2024/10/13/guardians-pitching-alcs-alex-cobb-tanner-bibee/
+
 **How Bears QB Caleb Williams bounced back from an early INT to put on a show in London**\
 `Williams threw four touchdown passes in a rout of the Jaguars as the Bears won their third straight and enter the bye week at 4-2.`\
 https://nytimes.com/athletic/5840484/2024/10/13/caleb-williams-bears-jaguars-london/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/us/politics/trump-harris-campaign-ground-game.htm
 **Woman Who Tried to Smuggle 29 Turtles Wrapped in Socks Pleads Guilty**\
 `A resident of Hong Kong was caught while paddling across a lake from Vermont to Canada in an inflatable kayak with the Eastern box turtles in a duffle bag, according to court records.`\
 https://nytimes.com/2024/10/13/us/eastern-box-turtle-smuggling.html
-
-**Riley Leonard is starting to look like the QB Notre Dame expected all along**\
-`Riley Leonard looks like a quarterback who gets it now, and Mike Denbrock looks like a coordinator who gets his quarterback.`\
-https://nytimes.com/athletic/5840285/2024/10/13/notre-dame-football-riley-leonard-stanford/
 
