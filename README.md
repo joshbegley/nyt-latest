@@ -1,3 +1,11 @@
+**A Shift in the World of Science**\
+`What this year’s Nobels can teach us about science and humanity.`\
+https://nytimes.com/2024/10/13/briefing/nobel-prize-artificial-intelligence.html
+
+**Five things we learned about the CFP race after Big Ten's game of the year**\
+`Oregon and Ohio State could be headed for a rematch, while there's plenty of drama in the SEC, and things are looking up for the ACC.`\
+https://nytimes.com/athletic/5839736/2024/10/13/college-football-playoff-race-rankings-oregon-ohio-state/
+
 **Sinner beats Djokovic to win Shanghai Masters**\
 `World No.`\
 https://nytimes.com/athletic/5839743/2024/10/13/jannik-sinner-wins-shanghai-masters/
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/10/13/science/spacex-starship-launch/what-is-space
 **Robinson: Questions continue for Ryan Day after Ohio State comes up short at Oregon**\
 `The Buckeyes' goals remain, but they have to clean up the mistakes they made in their loss to Oregon on Saturday to reach them.`\
 https://nytimes.com/athletic/5839713/2024/10/13/ohio-state-football-ryan-day-oregon/
-
-**Israeli Jets Pummel Hezbollah Targets in Southern Lebanon**\
-`Sirens sounded in northern Israel, warning of incoming fire from Hezbollah.`\
-https://nytimes.com/2024/10/13/world/middleeast/lebanon-israel-hezbollah.html
-
-**Mandel's Final Thoughts: Dillon Gabriel's legend grows, and more from Week 7**\
-`It was a remarkable Saturday that saw three top-10 teams go to overtime and two others play an all-time classic.`\
-https://nytimes.com/athletic/5839701/2024/10/13/oregon-ohio-state-week-7-final-thoughts/
 
