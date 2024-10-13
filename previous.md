@@ -1,3 +1,7 @@
+**Carrying 3 goalies could be problematic for the Wild's roster: Russo**\
+`Rookie goalie Jesper Wallstedt might become a transaction ping-pong ball to no fault of his own.`\
+https://nytimes.com/athletic/5839494/2024/10/13/russo-wild-column-three-goalies/
+
 **Colorado's Travis Hunter exits with shoulder injury vs. Kansas State**\
 `Hunter caught three passes for 26 yards and a tackle before his early departure at Folsom Field.`\
 https://nytimes.com/athletic/5839521/2024/10/13/travis-hunter-colorado-shoulder-injury/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5839220/2024/10/13/cam-talbot-red-wings-takeaways/
 **There may never be a better time to ask Pep Guardiola if he wants the England job**\
 `Opportunity might not knock like this again with the man who would surely be the best manager England have ever had`\
 https://nytimes.com/athletic/5838293/2024/10/13/pep-guardiola-england-manager/
-
-**‘This is more than Subbuteo’: A day with the best table footballers in the world**\
-`Ever since the game was devised in 1946, a global community of deadly serious Subbuteo players has steadily grown...`\
-https://nytimes.com/athletic/5828167/2024/10/13/subbuteo-world-cup/
 

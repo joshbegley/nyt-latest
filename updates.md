@@ -1,3 +1,7 @@
+**Carrying 3 goalies could be problematic for the Wild's roster: Russo**\
+`Rookie goalie Jesper Wallstedt might become a transaction ping-pong ball to no fault of his own.`\
+https://nytimes.com/athletic/5839494/2024/10/13/russo-wild-column-three-goalies/
+
 **Colorado's Travis Hunter exits with shoulder injury vs. Kansas State**\
 `Hunter caught three passes for 26 yards and a tackle before his early departure at Folsom Field.`\
 https://nytimes.com/athletic/5839521/2024/10/13/travis-hunter-colorado-shoulder-injury/
