@@ -1,3 +1,7 @@
+**Raiders' conservative approach doesn't do offense any favors in loss to Steelers**\
+`Antonio Pierce and Luke Getsy called the offense Sunday like they didn't trust QB Aidan O'Connell, who made his first start of the season.`\
+https://nytimes.com/athletic/5841200/2024/10/13/raiders-steelers-conservative-offense-aidan-oconnell/
+
 **New York Liberty found a key factor in Betnijah Laney-Hamilton for WNBA Finals win**\
 `"We believe in her. She knows that.”`\
 https://nytimes.com/athletic/5841306/2024/10/13/betnijah-laney-hamilton-ny-liberty-wnba-finals-win/

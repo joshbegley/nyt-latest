@@ -24,7 +24,7 @@ https://nytimes.com/live/2024/10/13/us/harris-trump-election/border-patrol-agent
 
 **Yankees' high-tech pitching robot might be key to cracking Guardians' elite bullpen**\
 `As the Yankees prepare to face the Guardians, a team with one of the game's best bullpens, they will look to a helpful machine.`\
-https://nytimes.com/athletic/5841288/2024/10/13/yankees-guardians-alcs-trajket/
+https://nytimes.com/athletic/5841288/2024/10/13/yankees-guardians-alcs-trajekt/
 
 **Eagles escape Browns as Nick Sirianni draws attention for being 'himself'**\
 `Nick Sirianni said the players wanted to see more energy from him.`\
