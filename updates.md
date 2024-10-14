@@ -1,3 +1,7 @@
+**How worried should Sixers fans be about Joel Embiid missing the preseason?**\
+`This could just be a way to keep Embiid healthy for when the games count. But his injury history makes the news a bit concerning. `\
+https://nytimes.com/athletic/5841800/2024/10/14/joel-embiid-sixers-knee-preseason/
+
 **Here’s the latest on the 2024 race.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/10/14/us/harris-trump-election/heres-the-latest-on-the-2024-race
