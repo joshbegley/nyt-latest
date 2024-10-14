@@ -1,3 +1,7 @@
+**Nigeria say they will forfeit AFCON qualifier after being stuck in Libyan airport for 12 hours**\
+`Nigeria captain William Troost-Ekong has said that his side will forfeit their game against Libya on Tuesday after being stranded at an airport in the North African country for 12 hours.`\
+https://nytimes.com/athletic/5842191/2024/10/14/nigeria-libya-airport-afcon/
+
 **Arsenal hopeful Saka will be fit to face Bournemouth**\
 `Bukayo Saka is hopeful he will be fit to face Bournemouth on Saturday after a hamstring issue saw him miss England&#8217;s Nations League match against Finland.`\
 https://nytimes.com/athletic/5836258/2024/10/14/bukayo-saka-injury-update-arsenal/
