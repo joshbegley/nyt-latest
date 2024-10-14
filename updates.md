@@ -1,3 +1,7 @@
+**Nobel Economics Prize Shared Among Three**\
+`Daron Acemoglu, Simon Johnson and James Robinson received the prize for their work on explaining inequality between countries.`\
+https://nytimes.com/video/business/100000009760178/nobel-economics.html
+
 **In Texas, Execution Looms Despite Questions in Shaken Baby Case**\
 `Robert Roberson could be the first person put to death in connection with shaken baby syndrome. The state’s highest criminal court ruled in another case that the science had changed.`\
 https://nytimes.com/2024/10/14/us/texas-execution-robert-roberson-shaken-baby.html
