@@ -1,3 +1,16 @@
+**Notre Dame loses All-American CB Morrison to injury**\
+`Morrison, a potential first-round NFL Draft pick, has likely played his final game in a Notre Dame uniform.`\
+https://nytimes.com/athletic/5842979/2024/10/14/benjamin-morrison-notre-dame-injury/
+
+**What is the THAAD Antimissile System the U.S. Is Giving to Israel?**\
+`It can intercept missiles above earth’s atmosphere, and is being deployed to defend against Iranian attacks.`\
+https://nytimes.com/2024/10/14/world/middleeast/israel-thaad-missile-defense.html
+
+**Bulls, Ball targeting return Wednesday, first game since Jan. 2022**\
+`Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
+`\
+https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseason/
+
 **Bulls, Ball targeting return Wednesday, first game since Jan. 2022**\
 `Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
 `\
