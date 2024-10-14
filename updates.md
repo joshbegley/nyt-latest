@@ -1,3 +1,7 @@
+**Man Is Arrested on Weapons Charges Heading to Trump Rally in Coachella, Officials Say**\
+`Law-enforcement officials said that former President Donald J. Trump was not in any danger, and the man was released on bail.`\
+https://nytimes.com/2024/10/13/us/politics/trump-rally-arrest-coachella.html
+
 **DiVincenzo, Rick Brunson have heated exchange during Knicks-Timberwolves**\
 `"I didn't see it," New York head coach Tom Thibodeau said after the game. "Two competitive guys. Stuff like that does happen."`\
 https://nytimes.com/athletic/5841314/2024/10/13/knicks-timberwolves-donte-divincenzo-rick-brunson-altercation/
