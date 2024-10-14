@@ -1,3 +1,7 @@
+**Kamala Harris Sets an Interview with a Not-So-Friendly Outlet: Fox News.**\
+`The interview, to be conducted by the anchor Bret Baier in Pennsylvania, will air Wednesday at 6 p.m. Eastern.`\
+https://nytimes.com/2024/10/14/business/media/fox-news-kamala-harris-interview.html
+
 **James returns to Chelsea training following hamstring injury**\
 `Chelsea captain Reece James has returned to training with team-mates following a hamstring injury.`\
 https://nytimes.com/athletic/5842756/2024/10/14/reece-james-injury-chelsea-training/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/us/politics/trump-harris-child-tax-credit.html
 **Yankees announce roster for ALCS vs. Guardians: Rizzo, Stroman return**\
 `The Yankees will carry 12 pitchers for the best-of-seven game ALCS versus Cleveland.`\
 https://nytimes.com/athletic/5841442/2024/10/14/yankees-alcs-roster-stroman-rizzo/
-
-**What I liked — and didn't like — after watching film of Ohio State's loss at Oregon**\
-`Ohio State's defense had trouble slowing down Oregon's speedy wide receivers. What can DC Jim Knowles do to fix the problem?`\
-https://nytimes.com/athletic/5842460/2024/10/14/ohio-state-oregon-film-defense-denzel-burke/
 
