@@ -1,3 +1,7 @@
+**York Theater Artistic Director Out After ‘Hurtful’ Diversity Comments**\
+`James Morgan, who has been with the small New York theater company for 50 years, blamed the effects of a stroke for his behavior.`\
+https://nytimes.com/2024/10/14/theater/james-morgan-york-theater.html
+
 **Eagles' Nick Sirianni apologizes for exchange with fans**\
 `Sirianni's exchange occurred shortly after Eagles receiver A.J. Brown hauled in a 40-yard pass from quarterback Jalen Hurts.`\
 https://nytimes.com/athletic/5841119/2024/10/14/eagles-nick-sirianni-exchange-browns-fans/

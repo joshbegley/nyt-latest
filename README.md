@@ -1,3 +1,7 @@
+**50 Years After Killing, a Berlin Court Convicts Stasi Officer of Murder**\
+`The court handed down a guilty verdict and a 10-year sentence to a former officer of East Germany’s dreaded secret police, in a case straight out of the Cold War.`\
+https://nytimes.com/2024/10/14/world/europe/stasi-murder-convicted-1974.html
+
 **York Theater Artistic Director Out After ‘Hurtful’ Diversity Comments**\
 `James Morgan, who has been with the small New York theater company for 50 years, blamed the effects of a stroke for his behavior.`\
 https://nytimes.com/2024/10/14/theater/james-morgan-york-theater.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/middleeast/100000009760700/gaza-school-vaccinati
 **Francisco Lindor's home run snaps Dodgers' scoreless streak at record-tying 33 innings**\
 `Despite a pitching staff decimated by injuries, the Dodgers tied a record that had stood for 57 years.`\
 https://nytimes.com/athletic/5843326/2024/10/14/francisco-lindor-breaks-dodgers-scoreless-streak/
-
-**Giants fan survey: How are you feeling about Saquon Barkley returning as an Eagle?**\
-`Here's your chance to let us know how you feel about Barkely going green. Is he a traitor? `\
-https://nytimes.com/athletic/5842723/2024/10/14/new-york-giants-fan-survey-saquon-barkley/
 
