@@ -1,3 +1,7 @@
+**After weeks of magical moments, the Mets have their first postseason dud**\
+`“The energy is still here,” said Starling Marte, despite the blowout loss, echoing a sentiment shared by his New York teammates.`\
+https://nytimes.com/athletic/5841803/2024/10/14/mets-postseason-dud/
+
 **Mets flattened in uncharacteristically sloppy Game 1 loss**\
 `Given how rough Kodai Senga's outing was, it’s reasonable to wonder if he deserves another one.`\
 https://nytimes.com/athletic/5841848/2024/10/14/mets-dodgers-nlcs-kodai-senga-loss/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841786/2024/10/14/mets-brandon-nimmo-plantar-fasci
 **'I want to get back to where I was': What next for Liverpool's Rhys Williams as he rebuilds in League Two?**\
 `The 23-year-old defender's career went from Champions League to tough lower-division loans. Is Morecambe the place where he can rebound?`\
 https://nytimes.com/athletic/5829581/2024/10/14/rhys-williams-interview-liverpool-morecambe/
-
-**There's an 'immense' Norwegian notching up goals in Manchester - her name is Elisabeth Terland**\
-`Manchester United have signed themselves an out-and-out No 9 with a proven WSL goalscoring track record`\
-https://nytimes.com/athletic/5840286/2024/10/14/elisabeth-terland-manchester-united-norway/
 

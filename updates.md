@@ -1,3 +1,7 @@
+**After weeks of magical moments, the Mets have their first postseason dud**\
+`“The energy is still here,” said Starling Marte, despite the blowout loss, echoing a sentiment shared by his New York teammates.`\
+https://nytimes.com/athletic/5841803/2024/10/14/mets-postseason-dud/
+
 **Mets flattened in uncharacteristically sloppy Game 1 loss**\
 `Given how rough Kodai Senga's outing was, it’s reasonable to wonder if he deserves another one.`\
 https://nytimes.com/athletic/5841848/2024/10/14/mets-dodgers-nlcs-kodai-senga-loss/
