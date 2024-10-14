@@ -1,3 +1,19 @@
+**Trump and Harris Both Like a Child Tax Credit, but With Different Aims**\
+`Kamala Harris’s campaign is pushing a version of the credit intended to fight child poverty, while Donald J. Trump sees the program primarily as a tax cut for people higher up the income scale.`\
+https://nytimes.com/2024/10/14/us/politics/trump-harris-child-tax-credit.html
+
+**Yankees announce roster for ALCS vs. Guardians: Rizzo, Stroman return**\
+`The Yankees will carry 12 pitchers for the best-of-seven game ALCS versus Cleveland.`\
+https://nytimes.com/athletic/5841442/2024/10/14/yankees-announce-roster-for-alcs-vs-guardians-marcus-stroman-anthony-rizzo-back/
+
+**What I liked — and didn't like — after watching film of Ohio State's loss at Oregon**\
+`Ohio State's defense had trouble slowing down Oregon's speedy wide receivers. What can DC Jim Knowles do to fix the problem?`\
+https://nytimes.com/athletic/5842460/2024/10/14/ohio-state-oregon-film-defense-denzel-burke/
+
+**Italian Court Overturns Womens’ Acquittals in ‘Bunga Bunga’ Legal Saga**\
+`The ruling sets the stage for yet another trial related to the scandal involving Silvio Berlusconi, the former prime minister of Italy who died last year.`\
+https://nytimes.com/2024/10/14/world/europe/berlusconi-bunga-bunga-women.html
+
 **McDaniel: Tua Tagovailoa expected to play football again in 2024**\
 `McDaniel told reporters Monday that Tagovailoa's return won't come in Week 7 against the Indianapolis Colts.`\
 https://nytimes.com/athletic/5842615/2024/10/14/tua-tagovailoa-return-mike-mcdaniel-dolphins/
@@ -17,20 +33,4 @@ https://nytimes.com/2024/10/14/dining/literally-the-quickest-dinner-ever.html
 **Harris’s ascent led 11 percent of women voters to switch from Trump, a survey finds.**\
 `By Ruth Igielnik`\
 https://nytimes.com/live/2024/10/14/us/harris-trump-election/harriss-ascent-led-11-percent-of-women-voters-to-switch-from-trump-a-survey-finds
-
-**Scoop City: Week 6 risers and fallers**\
-`A look at the risers and fallers after the 6th Sunday of the NFL season, from the Ravens to the Browns`\
-https://nytimes.com/athletic/5842623/2024/10/14/next-head-coach-to-be-fired-plus-deshaun-watson-ranks-590-592/
-
-**A school turned shelter is hit in a deadly strike, the U.N. says.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/a-school-turned-shelter-is-hit-in-a-deadly-strike-the-un-says
-
-**FIFPro and European Leagues file complaint against FIFA over calendar**\
-`Global players’ union FIFPro teamed up with Europe’s domestic leagues to file a formal complaint against FIFA at the European Commission in Brussels on Monday, as the struggle to control football&#8217;s calendar intensified.`\
-https://nytimes.com/athletic/5842533/2024/10/14/fifa-formal-complaint-football-calendar/
-
-**Fantasy football Week 6 recap: Can you trust Kyler Murray?**\
-`Kyler Murray is vexing fantasy owners with his inconsistency. Don't bet on him turning it around.`\
-https://nytimes.com/athletic/5842457/2024/10/14/fantasy-football-week-6-recap-can-you-trust-kyler-murray/
 
