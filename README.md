@@ -1,3 +1,7 @@
+**N.J. Transit Train Hits Tree on Track, Killing 1 and Injuring 23**\
+`A light rail train traveling south from Trenton collided with a chunk of tree, killing the train’s operator.`\
+https://nytimes.com/2024/10/14/us/nj-transit-train-crash.html
+
 **Sean Payton not expecting 'flowers and warm fuzzies' in return to New Orleans**\
 `Biggest focus for Broncos' coach vs. his former team is reviving a slow-starting offense that ranks 28th in points scored.`\
 https://nytimes.com/athletic/5842889/2024/10/14/sean-payton-broncos-new-orleans-return/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5842714/2024/10/14/chicago-cubs-tom-ricketts-letter
 **What is the THAAD Antimissile System the U.S. Is Giving to Israel?**\
 `It can intercept missiles above earth’s atmosphere, and is being deployed to defend against Iranian attacks.`\
 https://nytimes.com/2024/10/14/world/middleeast/israel-thaad-missile-defense.html
-
-**College football best bets Week 8: Georgia to cover in Texas and four more spread bets**\
-`Austin Mock uses his model to pick five spread bets for college football Week 8, including the game of the week.`\
-https://nytimes.com/athletic/5842470/2024/10/14/college-football-best-bets-week-8-georgia-texas-michigan/
 
