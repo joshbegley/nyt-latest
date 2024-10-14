@@ -1,3 +1,15 @@
+**New Jersey Transit Train Hits Tree on Track, Killing Train Operator**\
+`Nearly two dozen people were injured when the light rail train collided with a chunk of tree in South Jersey.`\
+https://nytimes.com/video/us/100000009760825/new-jersey-transit.html
+
+**Browns' Stefanski sticking with Watson at QB: 'Gives us the best chance to win'**\
+`Cleveland's offense ranks near the bottom in every major offensive category this season.`\
+https://nytimes.com/athletic/5843099/2024/10/14/browns-deshaun-watson-kevin-stefanski-quarterback-decision/
+
+**The U.N. says Israeli shells hit a food distribution center in northern Gaza.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/the-un-says-israeli-shells-hit-a-food-distribution-center-in-northern-gaza
+
 **Another Trump Clemency Recipient Faces Domestic Violence-Related Charges**\
 `Philip Esformes is at least the seventh person to be charged with new crimes after receiving a second chance in the last days of the Trump administration.`\
 https://nytimes.com/2024/10/14/us/politics/philip-esformes-trump-clemency-recipient-new-charges.html
