@@ -1,3 +1,7 @@
+**How Matas Buzelis has made Chicago Bulls teammates believers: 'He has tremendous upside'**\
+`Buzelis' coach has called him “fearless.” One teammate even described the rookie as the Bulls’ most athletic player. Expectations are high.`\
+https://nytimes.com/athletic/5841347/2024/10/14/matas-buzelis-chicago-bulls-nba/
+
 **Dak Prescott's mistakes took center stage in a game Cowboys needed his best**\
 `The Cowboys were shorthanded on defense entering the game, but Dak Prescott and company failed to pick up the slack vs. the Lions.`\
 https://nytimes.com/athletic/5841688/2024/10/14/dak-prescott-cowboys-bad-game-lions/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841380/2024/10/14/guardians-postseason-fans-mlb-pl
 **'That’s impossible': Louisiana high school QB throws for record 817 yards**\
 `Houston became the first quarterback to surpass 800 single-game passing yards in NFHS history.`\
 https://nytimes.com/athletic/5838524/2024/10/14/peyton-houston-qb-louisiana-record/
-
-**Everything you need to know about the Shohei Ohtani 50th home run ball auction**\
-`The bidding war is intensifying and lawsuits are still ongoing as a long-standing record is now within reach.`\
-https://nytimes.com/athletic/5838336/2024/10/14/shohei-ohtani-50-home-run-ball-lawsuits/
 
