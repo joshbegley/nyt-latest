@@ -1,3 +1,7 @@
+**Exclusive: Mets' Brandon Nimmo reveals he's dealing with plantar fasciitis**\
+`Nimmo believes he aggravated the injury in the sixth inning of Game 3 against the Phillies.`\
+https://nytimes.com/athletic/5841786/2024/10/14/mets-brandon-nimmo-plantar-fasciitis-nlcs/
+
 **'I want to get back to where I was': What next for Liverpool's Rhys Williams as he rebuilds in League Two?**\
 `The 23-year-old defender's career went from Champions League to tough lower-division loans. Is Morecambe the place where he can rebound?`\
 https://nytimes.com/athletic/5829581/2024/10/14/rhys-williams-interview-liverpool-morecambe/
