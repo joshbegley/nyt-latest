@@ -1,3 +1,11 @@
+**Election Live Updates: Pennsylvania Is Center of Attention With Trump and Harris Visits**\
+`Kamala Harris and Donald Trump will both campaign today in the state, seen as the most important battleground of 2024, with barely three weeks to go until Election Day.`\
+https://nytimes.com/live/2024/10/14/us/harris-trump-election
+
+**Most Voters Have Been Offended by Trump. It’s Not Always a Deal Breaker.**\
+`Voters who said they had been offended by Donald J. Trump, but not recently, supported him by a wide margin.`\
+https://nytimes.com/2024/10/14/us/politics/trump-voters-offensive.html
+
 **Giants defense deserved better fate after setting a new standard vs. Bengals**\
 `The Giants defense made a big statement Sunday by largely shutting down the Bengals' high-powered attack.`\
 https://nytimes.com/athletic/5841985/2024/10/14/new-york-giants-defense-bengals-azeez-ojulari/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/14/us/texas-execution-robert-roberson-shaken-baby.ht
 **Nigeria say they will forfeit AFCON qualifier after being stuck in Libyan airport for 12 hours**\
 `Nigeria captain William Troost-Ekong has said that his side will forfeit their game against Libya on Tuesday after being stranded at an airport in the North African country for 12 hours.`\
 https://nytimes.com/athletic/5842191/2024/10/14/nigeria-libya-airport-afcon/
-
-**Arsenal hopeful Saka will be fit to face Bournemouth**\
-`Bukayo Saka is hopeful he will be fit to face Bournemouth on Saturday after a hamstring issue saw him miss England&#8217;s Nations League match against Finland.`\
-https://nytimes.com/athletic/5836258/2024/10/14/bukayo-saka-injury-update-arsenal/
-
-**Gleeman: Pohlads selling Twins cause for fan excitement even as uncertainty looms**\
-`Forty years is enough. For Twins fans' sake, hopefully behind Door No. 2 is a new owner who doesn't view the team strictly as a business. `\
-https://nytimes.com/athletic/5836677/2024/10/14/minnesota-twins-fans-pohlads-selling-team/
 
