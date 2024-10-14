@@ -1,3 +1,12 @@
+**Bulls, Ball targeting return Wednesday, first game since Jan. 2022**\
+`Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
+`\
+https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseason/
+
+**Kansas, Bama, UConn top preseason men's hoops AP Top 25**\
+`Houston, Iowa State, Gonzaga, Duke, Baylor, North Carolina and Arizona rounded out the top 10.`\
+https://nytimes.com/athletic/5842547/2024/10/14/ap-top-25-mens-basketball-preseason-poll/
+
 **Astros part ways with third-base coach Gary Pettis: Source**\
 `Pettis was the longest-tenured member of Houston's coaching staff, having joined the club prior to the 2015 season.`\
 https://nytimes.com/athletic/5842852/2024/10/14/astros-gary-pettis-departure/
