@@ -1,3 +1,7 @@
+**Chargers' Jim Harbaugh to wear heart monitor, will keep coaching**\
+`The Los Angeles coach said a cardiologist confirmed that the condition that occurred is an "atrial flutter."`\
+https://nytimes.com/athletic/5843540/2024/10/14/chargers-jim-harbaugh-health-updates-heart-monitor/
+
 **Notre Dame flips 2025 QB recruit from Clemson**\
 `Blake Hebert, a four-star recruit, committed to Notre Dame on Monday, flipping from Clemson after the Irish lost Deuce Knight to Auburn.`\
 https://nytimes.com/athletic/5843539/2024/10/14/blake-hebert-notre-dame-clemson-flip/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/world/middleeast/gaza-aqsa-hospital-strike.html
 **Tuesday Briefing: India Accused of Homicide and Extortion**\
 `Plus, an artist sues to reclaim his work.`\
 https://nytimes.com/2024/10/14/briefing/canada-india-gaza-harris-trump.html
-
-**America Is on the Brink of a Great Political Realignment. It’s Already Visible in Arizona.**\
-`He and his acolytes purged the G.O.P. to make it smaller and more strident.`\
-https://nytimes.com/2024/10/14/opinion/trump-arizona-republican-party.html
 

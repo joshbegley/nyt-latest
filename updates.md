@@ -1,3 +1,7 @@
+**Chargers' Jim Harbaugh to wear heart monitor, will keep coaching**\
+`The Los Angeles coach said a cardiologist confirmed that the condition that occurred is an "atrial flutter."`\
+https://nytimes.com/athletic/5843540/2024/10/14/chargers-jim-harbaugh-health-updates-heart-monitor/
+
 **Notre Dame flips 2025 QB recruit from Clemson**\
 `Blake Hebert, a four-star recruit, committed to Notre Dame on Monday, flipping from Clemson after the Irish lost Deuce Knight to Auburn.`\
 https://nytimes.com/athletic/5843539/2024/10/14/blake-hebert-notre-dame-clemson-flip/
