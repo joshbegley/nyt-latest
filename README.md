@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5841251/2024/10/13/michael-pittman-jr-colts-back-in
 `Donald Trump said he would set a goal of hiring 10,000 new Border Patrol agents, significantly increasing the 18,000-member work force.`\
 https://nytimes.com/live/2024/10/13/us/harris-trump-election/border-patrol-agents-endorse-trump-at-an-arizona-rally-filled-with-attacks-on-harris
 
-**Yankees’ high-tech pitching robot may be key to cracking Guardians’ elite bullpen**\
+**Yankees' high-tech pitching robot might be key to cracking Guardians' elite bullpen**\
 `As the Yankees prepare to face the Guardians, a team with one of the game's best bullpens, they will look to a helpful machine.`\
 https://nytimes.com/athletic/5841288/2024/10/13/yankees-guardians-alcs-trajket/
 
