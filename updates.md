@@ -1,3 +1,7 @@
+**India Pulls Top Diplomat From Canada in Growing Spat Between the Countries**\
+`The move by the Indian government comes as the two countries have been locked in a dispute following the assassination of a Sikh separatist in Canada last year.`\
+https://nytimes.com/2024/10/14/world/canada/india-canada-ambassador-investigation.html
+
 **Cowboys owner Jerry Jones 'not considering' coaching change**\
 `Jones has traditionally not fired coaches during the season with the only instance being Wade Phillips' dismissal in 2010`\
 https://nytimes.com/athletic/5842519/2024/10/14/cowboys-jerry-jones-coaching/
