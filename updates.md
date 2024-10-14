@@ -1,3 +1,7 @@
+**Astros part ways with third-base coach Gary Pettis: Source**\
+`Pettis was the longest-tenured member of Houston's coaching staff, having joined the club prior to the 2015 season.`\
+https://nytimes.com/athletic/5842852/2024/10/14/astros-gary-pettis-departure/
+
 **Italy Sends Boat to Albania With Migrants Who Were Bound for Italian Shores**\
 `The plan was heralded by the Italian government as an innovative model to manage and deter immigration, and criticized by human rights groups.`\
 https://nytimes.com/2024/10/14/world/europe/italy-migrants-albania.html

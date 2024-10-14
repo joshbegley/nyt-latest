@@ -1,3 +1,7 @@
+**Astros part ways with third-base coach Gary Pettis: Source**\
+`Pettis was the longest-tenured member of Houston's coaching staff, having joined the club prior to the 2015 season.`\
+https://nytimes.com/athletic/5842852/2024/10/14/astros-gary-pettis-departure/
+
 **Italy Sends Boat to Albania With Migrants Who Were Bound for Italian Shores**\
 `The plan was heralded by the Italian government as an innovative model to manage and deter immigration, and criticized by human rights groups.`\
 https://nytimes.com/2024/10/14/world/europe/italy-migrants-albania.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/business/uk-thames-water-sewage-crisis.html
 **The Windup: Do the Mets have an answer for Ohtani?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5842745/2024/10/14/dodgers-mets-shohei-ohtani-the-windup/
-
-**Deadly Hezbollah Strike on Army Base Shows Israel’s Weakness Against Drones**\
-`Israel has one of the world’s best defenses against missiles and rockets, but struggles to detect slower-moving unmanned aircraft, experts said.`\
-https://nytimes.com/2024/10/14/world/middleeast/hezbollah-drone-attack-israel.html
 
