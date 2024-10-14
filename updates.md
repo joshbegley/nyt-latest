@@ -1,3 +1,7 @@
+**Daniel Jones, putrid Giants offense whiff on chance to inject hope into season**\
+`Sunday's loss to the Bengals dropped Jones to 1-14 in prime time and 0-5 at home over the past two seasons.`\
+https://nytimes.com/athletic/5841943/2024/10/14/new-york-giants-daniel-jones-offense-bengals/
+
 **State of the Race: A Close Race Gets Closer**\
 `There’s no sign that a deluge of surveys from Republican-aligned firms is meaningfully affecting the polling averages.`\
 https://nytimes.com/2024/10/14/upshot/polling-trump-harris-election.html

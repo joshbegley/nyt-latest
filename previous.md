@@ -1,3 +1,7 @@
+**Daniel Jones, putrid Giants offense whiff on chance to inject hope into season**\
+`Sunday's loss to the Bengals dropped Jones to 1-14 in prime time and 0-5 at home over the past two seasons.`\
+https://nytimes.com/athletic/5841943/2024/10/14/new-york-giants-daniel-jones-offense-bengals/
+
 **Attention Kmart Shoppers: It’s Closing Time**\
 `As the last full-size Kmart in the continental United States prepares to close, shoppers reminisced about the store that once sold everything, everywhere.`\
 https://nytimes.com/2024/10/14/business/kmart-closing-long-island.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5839194/2024/10/14/tom-brady-raiders-ownership-time
 **Meteorologists Face Harassment and Death Threats Amid Hurricane Disinformation**\
 `Weather experts say the spiraling falsehoods, especially claims that the government is creating or controlling storms, have gotten out of hand.`\
 https://nytimes.com/2024/10/14/us/meteorologists-threats-conspiracy-theories-hurricanes.html
-
-**State of the Race: A Close Race Gets Closer**\
-`There’s no sign that a deluge of surveys from Republican-aligned firms is meaningfully affecting the polling averages.`\
-https://nytimes.com/2024/10/14/upshot/polling-trump-harris-election.html
 
