@@ -1,3 +1,11 @@
+**Bills RB James Cook out with toe injury for divisional showdown with Jets**\
+`Rookie Ray Davis and veteran Ty Johnson are next up on the depth chart for Buffalo.`\
+https://nytimes.com/athletic/5843623/2024/10/14/bills-james-cook-inactive-against-jets/
+
+**Richard Seymour expected to be approved as minority owner of Raiders**\
+`The NFL finance committee has approved Seymour's bid and plans to submit it to league owners for a vote Tuesday.`\
+https://nytimes.com/athletic/5843604/2024/10/14/richard-seymour-raiders-minority-owner/
+
 **An Arab American group that backed Biden in 2020 won’t endorse in 2024.**\
 `By Charles Homans`\
 https://nytimes.com/live/2024/10/14/us/harris-trump-election/an-arab-american-group-that-backed-biden-in-2020-wont-endorse-in-2024
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5843539/2024/10/14/blake-hebert-notre-dame-clemson-
 **Canada Accuses Indian Diplomats of Criminal Activities**\
 `Prime Minister Justin Trudeau accused the Indian government of homicide and extortion intended to silence critics of India living in Canada. Canada expelled India’s top diplomat and five others. India denied the allegations.`\
 https://nytimes.com/video/world/americas/100000009761344/canada-india-diplomats.html
-
-**50 Years After Killing, a Berlin Court Convicts Stasi Officer of Murder**\
-`The court handed down a guilty verdict and a 10-year sentence to a former officer of East Germany’s dreaded secret police, in a case straight out of the Cold War.`\
-https://nytimes.com/2024/10/14/world/europe/stasi-murder-convicted-1974.html
-
-**York Theater Artistic Director Out After ‘Hurtful’ Diversity Comments**\
-`James Morgan, who has been with the small New York theater company for 50 years, blamed the effects of a stroke for his behavior.`\
-https://nytimes.com/2024/10/14/theater/james-morgan-york-theater.html
 
