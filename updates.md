@@ -1,3 +1,7 @@
+**A Political Misdiagnosis**\
+`Democrats imagined that they would become the majority party as America became more racially diverse. It’s not working out that way.`\
+https://nytimes.com/2024/10/14/briefing/hispanic-black-americans-election-poll.html
+
 **The Pulse: What a miserable NFL Sunday**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5841356/2024/10/14/dodgers-mets-bengals-giants-the-pulse/
