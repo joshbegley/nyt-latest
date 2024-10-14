@@ -1,3 +1,7 @@
+**Trump Has Become Unmoored in Time**\
+`His grim vision of America seems stuck in the past.`\
+https://nytimes.com/2024/10/14/opinion/trump-detroit-economic-club.html
+
 **Chargers' Jim Harbaugh to wear heart monitor, will keep coaching**\
 `The Los Angeles coach said a cardiologist confirmed that the condition that occurred is an "atrial flutter."`\
 https://nytimes.com/athletic/5843540/2024/10/14/chargers-jim-harbaugh-health-updates-heart-monitor/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5843396/2024/10/14/bruins-pastrnak-geekie-takeaways
 **Tent Camp in Gaza Engulfed by Flames After Israeli Strike**\
 `At least four Palestinians taking shelter by a hospital were killed in a strike Israeli officials said was targeting a Hamas command center.`\
 https://nytimes.com/2024/10/14/world/middleeast/gaza-aqsa-hospital-strike.html
-
-**Tuesday Briefing: India Accused of Homicide and Extortion**\
-`Plus, an artist sues to reclaim his work.`\
-https://nytimes.com/2024/10/14/briefing/canada-india-gaza-harris-trump.html
 
