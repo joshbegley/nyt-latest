@@ -1,3 +1,11 @@
+**Breanna Stewart scored 21 points but her disruptive defense sealed the Liberty's Game 2 victory**\
+`Stewart helped hold the Lynx to an unusually low point total.`\
+https://nytimes.com/athletic/5841183/2024/10/13/breanna-stewart-game-2-wnba-finals-defense/
+
+**Eagles' Sirianni downplays exchange with Browns fans: 'Just excited to get the win'**\
+`Sirianni's exchange occurred shortly after Eagles receiver A.J. Brown hauled in a 40-yard pass from quarterback Jalen Hurts.`\
+https://nytimes.com/athletic/5841119/2024/10/13/eagles-nick-sirianni-exchange-browns-fans/
+
 **Lions decimate Cowboys 47-9, lose Hutchinson to leg inury: Takeaways**\
 `Detroit sets season highs in total yards and turnovers, while Dallas suffers the fifth-largest loss in Cowboys franchise history.`\
 https://nytimes.com/athletic/5838758/2024/10/13/lions-cowboys-score-takeaways-result/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5838738/2024/10/13/steelers-raiders-score-results-t
 **Justin Herbert paces Chargers in 23-16 win vs. Broncos: Takeaways**\
 `Herbert threw for a season-high 237 yards Sunday in a 23-16 win over the Broncos. `\
 https://nytimes.com/athletic/5838732/2024/10/13/broncos-chargers-score-results-takeaways/
-
-**Packers' Romeo Doubs returns from suspension with 2 TDs: 'Back to my regular self'**\
-`Doubs caught two touchdowns in his first game back from suspension as the Packers breezed to a 34-13 win over the Cardinals.`\
-https://nytimes.com/athletic/5841017/2024/10/13/packers-romeo-doubs-returns-suspension/
-
-**If 'moral victories' make you cringe, Commanders still have much to learn**\
-`We can stop with all the rivalry talk between the Commanders and Ravens for a while because Washington clearly has more work to do.`\
-https://nytimes.com/athletic/5840158/2024/10/13/commanders-ravens-moral-victory-jayden-daniels/
 

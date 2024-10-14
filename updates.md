@@ -1,3 +1,11 @@
+**Breanna Stewart scored 21 points but her disruptive defense sealed the Liberty's Game 2 victory**\
+`Stewart helped hold the Lynx to an unusually low point total.`\
+https://nytimes.com/athletic/5841183/2024/10/13/breanna-stewart-game-2-wnba-finals-defense/
+
+**Eagles' Sirianni downplays exchange with Browns fans: 'Just excited to get the win'**\
+`Sirianni's exchange occurred shortly after Eagles receiver A.J. Brown hauled in a 40-yard pass from quarterback Jalen Hurts.`\
+https://nytimes.com/athletic/5841119/2024/10/13/eagles-nick-sirianni-exchange-browns-fans/
+
 **Lions decimate Cowboys 47-9, lose Hutchinson to leg inury: Takeaways**\
 `Detroit sets season highs in total yards and turnovers, while Dallas suffers the fifth-largest loss in Cowboys franchise history.`\
 https://nytimes.com/athletic/5838758/2024/10/13/lions-cowboys-score-takeaways-result/
