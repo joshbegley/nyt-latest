@@ -1,3 +1,11 @@
+**Francisco Lindor, Mark Vientos power Mets past Dodgers in Game 2: Takeaways**\
+`LOS ANGELES — The New York Mets flipped the Hollywood script on Monday and evened the National League Championship Series.`\
+https://nytimes.com/athletic/5843189/2024/10/14/mets-dodgers-nlcs-mark-vientos/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>We&#8217;ve barely had time to recover from Ohio State-Oregon and Ole Miss&#8211;LSU, and it&#8217;s already time for Alabama-Tennessee and Georgia-Texas.`\
+https://nytimes.com/athletic/5843689/2024/10/14/submit-a-question-for-stewart-mandels-college-football-mailbag-277/
+
 **Bills RB James Cook out with toe injury for divisional showdown with Jets**\
 `Rookie Ray Davis and veteran Ty Johnson are next up on the depth chart for Buffalo.`\
 https://nytimes.com/athletic/5843623/2024/10/14/bills-james-cook-inactive-against-jets/
