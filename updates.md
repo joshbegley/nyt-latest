@@ -1,3 +1,7 @@
+**50 Years After Killing, a Berlin Court Convicts Stasi Officer of Murder**\
+`The court handed down a guilty verdict and a 10-year sentence to a former officer of East Germany’s dreaded secret police, in a case straight out of the Cold War.`\
+https://nytimes.com/2024/10/14/world/europe/stasi-murder-convicted-1974.html
+
 **York Theater Artistic Director Out After ‘Hurtful’ Diversity Comments**\
 `James Morgan, who has been with the small New York theater company for 50 years, blamed the effects of a stroke for his behavior.`\
 https://nytimes.com/2024/10/14/theater/james-morgan-york-theater.html
