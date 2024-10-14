@@ -1,3 +1,7 @@
+**Giants fan survey: How are you feeling about Saquon Barkley returning as an Eagle?**\
+`Here's your chance to let us know how you feel about Barkely going green. Is he a traitor? `\
+https://nytimes.com/athletic/5842723/2024/10/14/new-york-giants-fan-survey-saquon-barkley/
+
 **Submit your Cowboys mailbag questions to Saad Yousuf**\
 `The Cowboys enter their bye week 3-3 after an ugly loss to the Lions. We know you have plenty of questions. `\
 https://nytimes.com/athletic/5843294/2024/10/14/submit-your-cowboys-mailbag-questions-to-saad-yousuf/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/world/middleeast/gaza-al-aqsa-hospital-israel.htm
 **A Harris Ad Uses the Hurricanes to Try to Inflict Damage on Trump**\
 `Two former homeland security officials under Donald J. Trump describe how he tried to withhold disaster aid from states that he hadn’t won.`\
 https://nytimes.com/2024/10/14/us/politics/a-harris-ad-uses-the-hurricanes-to-try-to-inflict-damage-on-trump.html
-
-**How Door Knocking Is Going in a Wisconsin Swing County**\
-`Door County, Wis., has picked the presidential winner since 1996. Last time, the margin was 292 votes, so the campaigns are trying to reach every household.`\
-https://nytimes.com/2024/10/14/us/door-county-wisconsin-election.html
 
