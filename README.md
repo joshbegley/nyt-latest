@@ -1,3 +1,7 @@
+**Philogene doubtful for Fulham clash after sustaining injury with England Under-21s**\
+`Aston Villa winger Jaden Philogene is a doubt for his side&#8217;s Premier League game against Fulham after sustaining an injury while playing for England&#8217;s Under-21s.`\
+https://nytimes.com/athletic/5841973/2024/10/14/jaden-philogene-injury-villa-england/
+
 **Brighton trio return to training before Newcastle match**\
 `Brighton &amp; Hove Albion have been given a triple boost by the returns to training of Georginio Rutter, Jan Paul van Hecke and Simon Adingra in preparation for Saturday&#8217;s trip to Newcastle United.`\
 https://nytimes.com/athletic/5843024/2024/10/14/brightons-injuries-rutter-van-hecke-adingra/
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseaso
 **Kansas, Bama, UConn top preseason men's hoops AP Top 25**\
 `Houston, Iowa State, Gonzaga, Duke, Baylor, North Carolina and Arizona rounded out the top 10.`\
 https://nytimes.com/athletic/5842547/2024/10/14/ap-top-25-mens-basketball-preseason-poll/
-
-**Astros part ways with third-base coach Gary Pettis: Source**\
-`Pettis was the longest-tenured member of Houston's coaching staff, having joined the club prior to the 2015 season.`\
-https://nytimes.com/athletic/5842852/2024/10/14/astros-gary-pettis-departure/
 
