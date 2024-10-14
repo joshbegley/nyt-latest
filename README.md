@@ -10,8 +10,8 @@ https://nytimes.com/2024/10/14/us/politics/a-harris-ad-uses-the-hurricanes-to-tr
 `Door County, Wis., has picked the presidential winner since 1996. Last time, the margin was 292 votes, so the campaigns are trying to reach every household.`\
 https://nytimes.com/2024/10/14/us/door-county-wisconsin-election.html
 
-**Colts' QB Anthony Richardson 'really close' to returning**\
-`Second-year quarterback has missed two games with hip injury.`\
+**Colts QB Anthony Richardson 'really close' to returning**\
+`Second-year quarterback has missed two games since suffering hip injury in Week 4.`\
 https://nytimes.com/athletic/5843171/2024/10/14/colts-anthony-richardson-injury-update/
 
 **Conservative Activist Seizes on Passages From Harris Book**\
