@@ -1,4 +1,4 @@
-**Eagles escape Browns as Nick Sirianni draws attention for being "himself"**\
+**Eagles escape Browns as Nick Sirianni draws attention for being 'himself'**\
 `Nick Sirianni said the players wanted to see more energy from him.`\
 https://nytimes.com/athletic/5840115/2024/10/13/nick-sirianni-eagles-win-browns/
 
