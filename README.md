@@ -1,3 +1,7 @@
+**Alex Bowman eliminated from NASCAR playoffs after Sunday's disqualification**\
+`Bowman's car did not meet the minimum weight requirement and he was stripped of his 18th-place finish at the Charlotte Motor Speedway Roval.`\
+https://nytimes.com/athletic/5841466/2024/10/13/alex-bowman-eliminated-nascar-playoffs/
+
 **Harris Rallies in North Carolina**\
 `The vice president criticized former President Donald J. Trump, calling him “weak and unstable.”`\
 https://nytimes.com/video/us/elections/100000009759898/harris-rallies-in-north-carolina.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841353/2024/10/13/mets-kodai-senga-dodgers-nlcs/
 **Michael Pittman Jr. puts Colts on his (bad) back: 'He's the toughest guy I’ve ever been around'**\
 `Pittman wasn't even supposed to play versus the Titans, but the veteran WR gutted through an injury to deliver the biggest play of the game.`\
 https://nytimes.com/athletic/5841251/2024/10/13/michael-pittman-jr-colts-back-injury-titans/
-
-**Border Patrol agents endorse Trump at an Arizona rally filled with attacks on Harris.**\
-`Donald Trump said he would set a goal of hiring 10,000 new Border Patrol agents, significantly increasing the 18,000-member work force.`\
-https://nytimes.com/live/2024/10/13/us/harris-trump-election/border-patrol-agents-endorse-trump-at-an-arizona-rally-filled-with-attacks-on-harris
 
