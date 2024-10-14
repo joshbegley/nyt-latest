@@ -1,3 +1,7 @@
+**Commanders' DT Jonathan Allen likely out for season**\
+`In six games, he tallied 15 tackles, two sacks and two tackles for loss.`\
+https://nytimes.com/athletic/5843146/2024/10/14/commanders-jonathan-allen-pectoral-injury/
+
 **Read the document**\
 `Here are the records from Miami-Dade jail where Mr. Esformes was held after his arrest.`\
 https://nytimes.com/interactive/2024/10/14/us/202410-esformes-arrest-domestic-related-incident.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/us/nj-transit-train-crash.html
 **Sean Payton not expecting 'flowers and warm fuzzies' in return to New Orleans**\
 `Biggest focus for Broncos' coach vs. his former team is reviving a slow-starting offense that ranks 28th in points scored.`\
 https://nytimes.com/athletic/5842889/2024/10/14/sean-payton-broncos-new-orleans-return/
-
-**Bill Clinton says his low-key Southern swing for Harris suits him just fine.**\
-`By Alan Blinder`\
-https://nytimes.com/live/2024/10/14/us/harris-trump-election/bill-clinton-says-his-low-key-southern-swing-for-harris-suits-him-just-fine
 
