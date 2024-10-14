@@ -1,3 +1,7 @@
+**State of the Race: A Close Race Gets Closer**\
+`There’s no sign that a deluge of surveys from Republican-aligned firms is meaningfully affecting the polling averages.`\
+https://nytimes.com/2024/10/14/upshot/polling-trump-harris-election.html
+
 **Attention Kmart Shoppers: It’s Closing Time**\
 `As the last full-size Kmart in the continental United States prepares to close, shoppers reminisced about the store that once sold everything, everywhere.`\
 https://nytimes.com/2024/10/14/business/kmart-closing-long-island.html

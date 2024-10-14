@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5839194/2024/10/14/tom-brady-raiders-ownership-time
 `Weather experts say the spiraling falsehoods, especially claims that the government is creating or controlling storms, have gotten out of hand.`\
 https://nytimes.com/2024/10/14/us/meteorologists-threats-conspiracy-theories-hurricanes.html
 
-**Bengals defense came in waves to beat Giants and change the conversation**\
-`A unit that's been Cincinnati's weakness, particularly the defensive line, stepped up on a night the high-octane offense struggled to score.`\
-https://nytimes.com/athletic/5841971/2024/10/14/bengals-defense-giants-week-6/
+**State of the Race: A Close Race Gets Closer**\
+`There’s no sign that a deluge of surveys from Republican-aligned firms is meaningfully affecting the polling averages.`\
+https://nytimes.com/2024/10/14/upshot/polling-trump-harris-election.html
 
