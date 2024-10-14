@@ -1,3 +1,7 @@
+**Giants defense deserved better fate after setting a new standard vs. Bengals**\
+`The Giants defense made a big statement Sunday by largely shutting down the Bengals' high-powered attack.`\
+https://nytimes.com/athletic/5841985/2024/10/14/new-york-giants-defense-bengals-azeez-ojulari/
+
 **Khris Middleton on Bucks' goals, 'injury prone' label and blocking outside noise**\
 `A couple other teams are on the rise in the East, but the 33-year-old doesn't care. His focus this season is internal.`\
 https://nytimes.com/athletic/5836938/2024/10/14/khris-middleton-milwaukee-bucks-interview/

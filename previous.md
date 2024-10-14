@@ -1,3 +1,7 @@
+**Giants defense deserved better fate after setting a new standard vs. Bengals**\
+`The Giants defense made a big statement Sunday by largely shutting down the Bengals' high-powered attack.`\
+https://nytimes.com/athletic/5841985/2024/10/14/new-york-giants-defense-bengals-azeez-ojulari/
+
 **Khris Middleton on Bucks' goals, 'injury prone' label and blocking outside noise**\
 `A couple other teams are on the rise in the East, but the 33-year-old doesn't care. His focus this season is internal.`\
 https://nytimes.com/athletic/5836938/2024/10/14/khris-middleton-milwaukee-bucks-interview/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5836258/2024/10/14/bukayo-saka-injury-update-arsena
 **Gleeman: Pohlads selling Twins cause for fan excitement even as uncertainty looms**\
 `Forty years is enough. For Twins fans' sake, hopefully behind Door No. 2 is a new owner who doesn't view the team strictly as a business. `\
 https://nytimes.com/athletic/5836677/2024/10/14/minnesota-twins-fans-pohlads-selling-team/
-
-**Michigan Republican Blames ‘Proofing Error’ for Misleading Ad in Black-Owned Newspaper**\
-`The state’s legislative Black caucus have asked the attorney general and a county prosecutor to investigate Tom Barrett’s congressional campaign for potential voter disenfranchisement.`\
-https://nytimes.com/2024/10/14/us/politics/michigan-republican-misleading-ad.html
 
