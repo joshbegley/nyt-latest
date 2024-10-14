@@ -1,3 +1,15 @@
+**New York Liberty found a key factor in Betnijah Laney-Hamilton for WNBA Finals win**\
+`"We believe in her. She knows that.”`\
+https://nytimes.com/athletic/5841306/2024/10/13/betnijah-laney-hamilton-ny-liberty-wnba-finals-win/
+
+**China Holds War Games in a Warning to Taiwan’s Leader**\
+`The drills were seen as a response to a speech by President Lai Ching-te of Taiwan, who said last week that China had “no right to represent” the island.`\
+https://nytimes.com/2024/10/13/world/asia/china-taiwan-war-games.html
+
+**Mets' Kodai Senga stumbles, Dodgers pounce early in NLCS Game 1**\
+`LOS ANGELES — The New York Mets’ risky play with Kodai Senga backfired tremendously in Game 1 of the National League Championship Series, and it’s imperiled their entire pitching plan for this best-of-seven series.`\
+https://nytimes.com/athletic/5841353/2024/10/13/mets-kodai-senga-dodgers-nlcs/
+
 **Michael Pittman Jr. puts Colts on his (bad) back: 'He's the toughest guy I’ve ever been around'**\
 `Pittman wasn't even supposed to play versus the Titans, but the veteran WR gutted through an injury to deliver the biggest play of the game.`\
 https://nytimes.com/athletic/5841251/2024/10/13/michael-pittman-jr-colts-back-injury-titans/
@@ -6,7 +18,7 @@ https://nytimes.com/athletic/5841251/2024/10/13/michael-pittman-jr-colts-back-in
 `Donald Trump said he would set a goal of hiring 10,000 new Border Patrol agents, significantly increasing the 18,000-member work force.`\
 https://nytimes.com/live/2024/10/13/us/harris-trump-election/border-patrol-agents-endorse-trump-at-an-arizona-rally-filled-with-attacks-on-harris
 
-**Yankees’ high-tech pitching robot may be key to cracking Guardians’ elite bullpen**\
+**Yankees' high-tech pitching robot might be key to cracking Guardians' elite bullpen**\
 `As the Yankees prepare to face the Guardians, a team with one of the game's best bullpens, they will look to a helpful machine.`\
 https://nytimes.com/athletic/5841288/2024/10/13/yankees-guardians-alcs-trajket/
 
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/13/us/politics/trump-rally-arrest-coachella.html
 **For Jayden Daniels' Commanders, a loss in Baltimore, but not a setback**\
 `Despite hype surrounding the QB matchup, Sunday was a reminder that the local rivals are in different places.`\
 https://nytimes.com/athletic/5841030/2024/10/13/commanders-loss-ravens-jayden-daniels-rebuild/
-
-**Filip Gustavsson steals a point, but Wild were on fumes in OT loss to Jets: 3 takeaways**\
-`Gustavsson's 33 saves kept the Wild in the game long enough to pick up a point against their Central Division rivals.`\
-https://nytimes.com/athletic/5840990/2024/10/13/wild-gustavsson-ohgren-winnipeg/
-
-**Browns continue to repeat the same mistakes as their season rapidly slips away**\
-`The Deshaun Watson experiment still shows no signs of working, but the Browns stubbornly plan to stay the course. `\
-https://nytimes.com/athletic/5841061/2024/10/13/browns-eagles-deshaun-watson-week-6/
-
-**Do Ravens have NFL's best offense? They made a case in win over Commanders**\
-`“Everything was working,” said RB Derrick Henry, who rushed for 132 yards and two touchdowns Sunday. “It was like, ‘Pick your poison.'”`\
-https://nytimes.com/athletic/5841034/2024/10/13/ravens-commanders-nfl-best-offense/
 
