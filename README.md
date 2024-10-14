@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5841442/2024/10/14/yankees-announce-roster-for-alcs
 `Ohio State's defense had trouble slowing down Oregon's speedy wide receivers. What can DC Jim Knowles do to fix the problem?`\
 https://nytimes.com/athletic/5842460/2024/10/14/ohio-state-oregon-film-defense-denzel-burke/
 
-**Italian Court Overturns Womens’ Acquittals in ‘Bunga Bunga’ Legal Saga**\
+**Italian Court Overturns Women’s Acquittals in ‘Bunga Bunga’ Legal Saga**\
 `The ruling sets the stage for yet another trial related to the scandal involving Silvio Berlusconi, the former prime minister of Italy who died last year.`\
 https://nytimes.com/2024/10/14/world/europe/berlusconi-bunga-bunga-women.html
 
