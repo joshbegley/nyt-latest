@@ -1,3 +1,7 @@
+**Tuesday Briefing: India Accused of Homicide and Extortion**\
+`Plus, an artist sues to reclaim his work.`\
+https://nytimes.com/2024/10/14/briefing/canada-india-gaza-harris-trump.html
+
 **How Trump Broke Arizona’s Republican Party**\
 `He and his acolytes purged the G.O.P. to make it smaller and more strident.`\
 https://nytimes.com/2024/10/14/opinion/trump-arizona-republican-party.html

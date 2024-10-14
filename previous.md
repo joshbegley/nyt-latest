@@ -1,3 +1,7 @@
+**Tuesday Briefing: India Accused of Homicide and Extortion**\
+`Plus, an artist sues to reclaim his work.`\
+https://nytimes.com/2024/10/14/briefing/canada-india-gaza-harris-trump.html
+
 **How Trump Broke Arizona’s Republican Party**\
 `He and his acolytes purged the G.O.P. to make it smaller and more strident.`\
 https://nytimes.com/2024/10/14/opinion/trump-arizona-republican-party.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/technology/lillian-schwartz-dead.html
 **Rams working out Kupp to determine his return**\
 `Kupp hasn't played since Week 2 when he injured his ankle against Arizona. It's possible he could return this week vs. Las Vegas.`\
 https://nytimes.com/athletic/5843222/2024/10/14/cooper-kupp-injury-update-rams/
-
-**Ethel Kennedy, Matriarch of Family Dynasty, Honored at Cape Cod Funeral**\
-`Several politicians and relatives, including her son Robert F. Kennedy Jr. and his wife, the actress Cheryl Hines, were in attendance.`\
-https://nytimes.com/2024/10/14/us/ethel-kennedy-funeral.html
 
