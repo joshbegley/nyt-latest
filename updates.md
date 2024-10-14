@@ -1,3 +1,7 @@
+**Next men up deliver for Bears in London: Cole Kmet at long snapper, backup DBs**\
+`The Bears lost their long snapper to injury Sunday and were further depleted in the secondary, but players across the roster stepped up.`\
+https://nytimes.com/athletic/5840668/2024/10/14/bears-cole-kmet-long-snapper-jaguars-london/
+
 **Grading every Michigan position group at midseason**\
 `Tight ends and the defensive line are among the Michigan position groups meeting expectations, but several have fallen short.`\
 https://nytimes.com/athletic/5840562/2024/10/14/michigan-wolverines-football-midseason-report-card/
