@@ -1,3 +1,7 @@
+**China’s Stock Markets Rebound on Promises to Help Businesses**\
+`Assurances from government officials on plans to strengthen the private sector offset a lack of specifics about economic stimulus.`\
+https://nytimes.com/2024/10/14/business/china-stocks-csi-300.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/14/crosswords/spelling-bee-forum.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841818/2024/10/14/jack-flaherty-dodgers-record-pla
 **Dodgers' Freddie Freeman will keep running until he can't: 'An absolute dog'**\
 `Freeman's injury prevents him from bending the joint at the top of his ankle and makes every step a challenge.`\
 https://nytimes.com/athletic/5841775/2024/10/14/dodgers-freddie-freeman-nlcs-ankle/
-
-**Monday Briefing**\
-`A Hezbollah attack on an Israeli military base.`\
-https://nytimes.com/2024/10/14/world/europe/hezbollah-israel-election-spacex.html
 

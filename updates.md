@@ -1,3 +1,7 @@
+**China’s Stock Markets Rebound on Promises to Help Businesses**\
+`Assurances from government officials on plans to strengthen the private sector offset a lack of specifics about economic stimulus.`\
+https://nytimes.com/2024/10/14/business/china-stocks-csi-300.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/14/crosswords/spelling-bee-forum.html
