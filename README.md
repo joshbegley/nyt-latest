@@ -1,3 +1,11 @@
+**Twins to name Matt Borgschulte as hitting coach: Source**\
+`Following their late-season collapse, the Twins want to alter their offensive philosophy and hope to do so by bringing back an old friend.`\
+https://nytimes.com/athletic/5843433/2024/10/14/twins-matt-borgschulte-hitting-coach/
+
+**What I saw in the Bruins' first homestand: Don’t touch Pastrnak, ghostly Geekie and one line shining**\
+`Coach Jim Montgomery on the Bruins' play so far this season: "“It’s just not disciplined. … Can’t win hockey games that way."`\
+https://nytimes.com/athletic/5843396/2024/10/14/bruins-pastrnak-geekie-takeaways/
+
 **Tent Camp in Gaza Engulfed by Flames After Israeli Strike**\
 `At least four Palestinians taking shelter by a hospital were killed in a strike Israeli officials said was targeting a Hamas command center.`\
 https://nytimes.com/2024/10/14/world/middleeast/gaza-aqsa-hospital-strike.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5842723/2024/10/14/new-york-giants-fan-survey-saquo
 **Eagles' Nick Sirianni apologizes for exchange with fans**\
 `Sirianni's exchange occurred shortly after Eagles receiver A.J. Brown hauled in a 40-yard pass from quarterback Jalen Hurts.`\
 https://nytimes.com/athletic/5841119/2024/10/14/eagles-nick-sirianni-exchange-browns-fans/
-
-**Submit your Cowboys mailbag questions to Saad Yousuf**\
-`The Cowboys enter their bye week 3-3 after an ugly loss to the Lions. We know you have plenty of questions. `\
-https://nytimes.com/athletic/5843294/2024/10/14/submit-your-cowboys-mailbag-questions-to-saad-yousuf/
-
-**Dodgers' Clayton Kershaw says he plans to pitch in 2025**\
-`“I had shoulder surgery last offseason, and my shoulder and elbow, everything, my arm, feels great," Kershaw said.`\
-https://nytimes.com/athletic/5843267/2024/10/14/dodgers-clayton-kershaw-2025/
 
