@@ -1,3 +1,12 @@
+**Bulls, Ball targeting return Wednesday, first game since Jan. 2022**\
+`Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
+`\
+https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseason/
+
+**Kansas, Bama, UConn top preseason men's hoops AP Top 25**\
+`Houston, Iowa State, Gonzaga, Duke, Baylor, North Carolina and Arizona rounded out the top 10.`\
+https://nytimes.com/athletic/5842547/2024/10/14/ap-top-25-mens-basketball-preseason-poll/
+
 **Astros part ways with third-base coach Gary Pettis: Source**\
 `Pettis was the longest-tenured member of Houston's coaching staff, having joined the club prior to the 2015 season.`\
 https://nytimes.com/athletic/5842852/2024/10/14/astros-gary-pettis-departure/
@@ -25,12 +34,4 @@ https://nytimes.com/athletic/5842756/2024/10/14/reece-james-injury-chelsea-train
 **At least 4 people are killed after Israel strikes a Gaza hospital compound.**\
 `By Aryn Baker`\
 https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/at-least-4-people-are-killed-after-israel-strikes-a-gaza-hospital-compound
-
-**Amid a Water Crisis, England Asks: Who Should Be in Charge?**\
-`Four decades after privatization, calls to nationalize the water industry have swept across England and Wales amid sewage spills and rising household bills.`\
-https://nytimes.com/2024/10/14/business/uk-thames-water-sewage-crisis.html
-
-**The Windup: Do the Mets have an answer for Ohtani?**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5842745/2024/10/14/dodgers-mets-shohei-ohtani-the-windup/
 
