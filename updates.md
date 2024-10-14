@@ -1,3 +1,7 @@
+**Canada Accuses Indian Diplomats of Criminal Activities**\
+`Prime Minister Justin Trudeau accused the Indian government of homicide and extortion intended to silence critics of India living in Canada. Canada expelled India’s top diplomat and five others. India denied the allegations.`\
+https://nytimes.com/video/world/americas/100000009761344/canada-india-diplomats.html
+
 **50 Years After Killing, a Berlin Court Convicts Stasi Officer of Murder**\
 `The court handed down a guilty verdict and a 10-year sentence to a former officer of East Germany’s dreaded secret police, in a case straight out of the Cold War.`\
 https://nytimes.com/2024/10/14/world/europe/stasi-murder-convicted-1974.html
