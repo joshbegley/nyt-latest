@@ -1,3 +1,7 @@
+**Dodgers' Freddie Freeman will keep running until he can't: 'An absolute dog'**\
+`Freeman's injury prevents him from bending the joint at the top of his ankle and makes every step a challenge.`\
+https://nytimes.com/athletic/5841775/2024/10/14/dodgers-freddie-freeman-nlcs-ankle/
+
 **Monday Briefing**\
 `A Hezbollah attack on an Israeli military base.`\
 https://nytimes.com/2024/10/14/world/europe/hezbollah-israel-election-spacex.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5825033/2024/10/14/lamare-bogarde-aston-villa-emery
 **Everton, Brighton, Arsenal and the Premier League clubs with the largest shareholder loans**\
 `Following the APT ruling last week, the Athletic analyses the long-term implications to shareholder loans and the benefits they bring.`\
 https://nytimes.com/athletic/5839766/2024/10/14/premier-league-shareholder-loans/
-
-**'Nobody can imagine the demands' - Marcelo Bielsa and the Uruguay culture Luis Suarez says will explode**\
-`The Uruguay head coach has conceded his 'authority' has been affected after criticisms of his methods and last week's loss to Peru`\
-https://nytimes.com/athletic/5839113/2024/10/14/bielsa-suarez-uruguay-leeds/
 
