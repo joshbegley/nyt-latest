@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`A Hezbollah attack on an Israeli military base.`\
+https://nytimes.com/2024/10/14/world/europe/hezbollah-israel-election-spacex.html
+
 **Another Trump Term Would Make China Great Again**\
 `Trump remains well outside a bipartisan consensus on competing with China.`\
 https://nytimes.com/2024/10/14/opinion/trump-china-election.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5839766/2024/10/14/premier-league-shareholder-loans
 **'Nobody can imagine the demands' - Marcelo Bielsa and the Uruguay culture Luis Suarez says will explode**\
 `The Uruguay head coach has conceded his 'authority' has been affected after criticisms of his methods and last week's loss to Peru`\
 https://nytimes.com/athletic/5839113/2024/10/14/bielsa-suarez-uruguay-leeds/
-
-**Introducing the Noble Prize winners, 1992-2024**\
-`Forget physics, medicine, peace and all that serious stuff - it's time to recognise the best uncapped players of each Premier League season`\
-https://nytimes.com/athletic/5830979/2024/10/14/mark-noble-prize-winners/
 
