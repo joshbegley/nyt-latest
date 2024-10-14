@@ -68,6 +68,11 @@ https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseaso
 `\
 https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseason/
 
+**Bulls, Ball targeting return Wednesday, first game since Jan. 2022**\
+`Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
+`\
+https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseason/
+
 **College football best bets Week 8: Georgia to cover in Texas and four more spread bets**\
 `Austin Mock uses his model to pick five spread bets for college football Week 8, including the game of the week.`\
 https://nytimes.com/athletic/5842470/2024/10/14/college-football-best-bets-week-8-georgia-texas-michigan/
