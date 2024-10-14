@@ -1,3 +1,8 @@
+**Bulls, Ball targeting return Wednesday, first game since Jan. 2022**\
+`Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
+`\
+https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseason/
+
 **Brighton trio return to training before Newcastle match**\
 `Brighton &amp; Hove Albion have been given a triple boost by the returns to training of Georginio Rutter, Jan Paul van Hecke and Simon Adingra in preparation for Saturday&#8217;s trip to Newcastle United.`\
 https://nytimes.com/athletic/5843024/2024/10/14/brightons-injuries-rutter-van-hecke-adingra/
