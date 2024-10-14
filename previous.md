@@ -1,3 +1,7 @@
+**The Windup: Do the Mets have an answer for Ohtani?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5842745/2024/10/14/dodgers-mets-shohei-ohtani-the-windup/
+
 **Deadly Hezbollah Strike on Army Base Shows Israel’s Weakness Against Drones**\
 `Israel has one of the world’s best defenses against missiles and rockets, but struggles to detect slower-moving unmanned aircraft, experts said.`\
 https://nytimes.com/2024/10/14/world/middleeast/hezbollah-drone-attack-israel.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5842615/2024/10/14/tua-tagovailoa-return-mike-mcdan
 **How to Apply Blush Like a Professional**\
 `Tips from a “Saturday Night Live” cast member, a ballet dancer and a makeup artist.`\
 https://nytimes.com/2024/10/14/t-magazine/blush-tips-recommendation.html
-
-**Doctors, A.I. and Empathy for Patients**\
-`Readers discuss a guest essay about ChatGPT’s bedside manner. Also: Breast cancer screenings; Walz’s missteps; supporting the mental health of schoolchildren.`\
-https://nytimes.com/2024/10/14/opinion/letters/doctors-ai-patients.html
 

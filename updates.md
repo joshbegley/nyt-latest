@@ -1,3 +1,7 @@
+**The Windup: Do the Mets have an answer for Ohtani?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5842745/2024/10/14/dodgers-mets-shohei-ohtani-the-windup/
+
 **Italian Court Overturns Women’s Acquittals in ‘Bunga Bunga’ Legal Saga**\
 `The ruling sets the stage for yet another trial related to the scandal involving Silvio Berlusconi, the former prime minister of Italy who died last year.`\
 https://nytimes.com/2024/10/14/world/europe/berlusconi-bunga-bunga-women.html
