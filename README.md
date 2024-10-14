@@ -1,3 +1,7 @@
+**The Pulse: What a miserable NFL Sunday**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5841356/2024/10/14/dodgers-mets-bengals-giants-the-pulse/
+
 **How Matas Buzelis has made Chicago Bulls teammates believers: 'He has tremendous upside'**\
 `Buzelis' coach has called him “fearless.” One teammate even described the rookie as the Bulls’ most athletic player. Expectations are high.`\
 https://nytimes.com/athletic/5841347/2024/10/14/matas-buzelis-chicago-bulls-nba/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5838119/2024/10/14/deshaun-watson-browns-contract-t
 **Life, death and Guardians postseason baseball: What this wild ride means to fans**\
 `This wild ride has meant a lot to a fan base that has waited 76 years for a World Series title.`\
 https://nytimes.com/athletic/5841380/2024/10/14/guardians-postseason-fans-mlb-playoffs-alcs/
-
-**'That’s impossible': Louisiana high school QB throws for record 817 yards**\
-`Houston became the first quarterback to surpass 800 single-game passing yards in NFHS history.`\
-https://nytimes.com/athletic/5838524/2024/10/14/peyton-houston-qb-louisiana-record/
 
