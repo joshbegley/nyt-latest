@@ -1,3 +1,7 @@
+**Notre Dame flips 2025 QB recruit from Clemson**\
+`Blake Hebert, a four-star recruit, committed to Notre Dame on Monday, flipping from Clemson after the Irish lost Deuce Knight to Auburn.`\
+https://nytimes.com/athletic/5843539/2024/10/14/blake-hebert-notre-dame-clemson-flip/
+
 **Canada Accuses Indian Diplomats of Criminal Activities**\
 `Prime Minister Justin Trudeau accused the Indian government of homicide and extortion intended to silence critics of India living in Canada. Canada expelled India’s top diplomat and five others. India denied the allegations.`\
 https://nytimes.com/video/world/americas/100000009761344/canada-india-diplomats.html

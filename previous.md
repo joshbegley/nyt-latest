@@ -1,3 +1,7 @@
+**Notre Dame flips 2025 QB recruit from Clemson**\
+`Blake Hebert, a four-star recruit, committed to Notre Dame on Monday, flipping from Clemson after the Irish lost Deuce Knight to Auburn.`\
+https://nytimes.com/athletic/5843539/2024/10/14/blake-hebert-notre-dame-clemson-flip/
+
 **Canada Accuses Indian Diplomats of Criminal Activities**\
 `Prime Minister Justin Trudeau accused the Indian government of homicide and extortion intended to silence critics of India living in Canada. Canada expelled India’s top diplomat and five others. India denied the allegations.`\
 https://nytimes.com/video/world/americas/100000009761344/canada-india-diplomats.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/briefing/canada-india-gaza-harris-trump.html
 **America Is on the Brink of a Great Political Realignment. It’s Already Visible in Arizona.**\
 `He and his acolytes purged the G.O.P. to make it smaller and more strident.`\
 https://nytimes.com/2024/10/14/opinion/trump-arizona-republican-party.html
-
-**Deadly Strike Hits Shelter in Central Gaza, U.N. Says**\
-`A school turned shelter was attacked late Sunday, a day before children were to receive their second dose of a polio vaccination.`\
-https://nytimes.com/video/world/middleeast/100000009760700/gaza-school-vaccination-site-attack.html
 
