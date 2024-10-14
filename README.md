@@ -1,3 +1,11 @@
+**Raiders' Crosby speaks to reporters following shove**\
+`Raiders' Maxx Crosby was shown on CBS broadcast shoving an assistant coach on the sideline during 32-13 loss to Steelers.`\
+https://nytimes.com/athletic/5841559/2024/10/13/raiders-maxx-crosby-sideline-shove/
+
+**Wild hope captain Jared Spurgeon's absence doesn't signal a repeat of last season**\
+`The Wild have yet to announce what's ailing their captain, but more than anything they'd like to avoid deja vu.`\
+https://nytimes.com/athletic/5841563/2024/10/13/wild-jared-spurgeon-injury-uncertainty-jets/
+
 **Trump Receives Endorsement from Border Patrol Union**\
 `The National Border Patrol Council formally pledged its support for the former president, appearing onstage with him during a rally in Arizona.`\
 https://nytimes.com/video/us/elections/100000009759918/trump-border-patrol-union-arizona.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5841200/2024/10/13/raiders-steelers-conservative-of
 **New York Liberty found a key factor in Betnijah Laney-Hamilton for WNBA Finals win**\
 `"We believe in her. She knows that.”`\
 https://nytimes.com/athletic/5841306/2024/10/13/betnijah-laney-hamilton-ny-liberty-wnba-finals-win/
-
-**China Holds War Games in a Warning to Taiwan’s Leader**\
-`The drills were seen as a response to a speech by President Lai Ching-te of Taiwan, who said last week that China had “no right to represent” the island.`\
-https://nytimes.com/2024/10/13/world/asia/china-taiwan-war-games.html
-
-**Mets' Kodai Senga stumbles, Dodgers pounce early in NLCS Game 1**\
-`LOS ANGELES — The New York Mets’ risky play with Kodai Senga backfired tremendously in Game 1 of the National League Championship Series, and it’s imperiled their entire pitching plan for this best-of-seven series.`\
-https://nytimes.com/athletic/5841353/2024/10/13/mets-kodai-senga-dodgers-nlcs/
 
