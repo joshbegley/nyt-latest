@@ -1,3 +1,7 @@
+**Lilly Ledbetter, Whose Fight for Equal Pay Changed U.S. Law, Dies at 86**\
+`Her lawsuit against Goodyear helped pave the way for the 2009 Fair Pay Act, which was signed into law by former President Barack Obama.`\
+https://nytimes.com/2024/10/14/obituaries/lilly-ledbetter-dead.html
+
 **Russia Is Clawing Back Land Taken by Ukraine This Summer**\
 `Moscow’s forces have been recapturing some villages and land taken in a Ukrainian incursion into Russia. The advances could undermine Kyiv’s hopes of pushing Russia to the negotiating table.`\
 https://nytimes.com/2024/10/14/world/europe/russia-is-clawing-back-land-taken-by-ukraine-this-summer.html
