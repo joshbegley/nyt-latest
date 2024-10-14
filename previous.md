@@ -1,36 +1,36 @@
-**Biggest winners and losers from college football's transfer QB carousel**\
-`Some transfer quarterbacks hit, and others don’t. The 2024 season has had plenty of both so far.`\
-https://nytimes.com/athletic/5841536/2024/10/14/college-football-best-transfer-quarterbacks/
+**Here are the latest developments.**\
+`By Jin Yu Young`\
+https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/here-are-the-latest-developments
 
-**The Athletic 134: Why Oregon's on top of our midseason FBS rankings**\
-`Who are the great, elite teams? I’m not sure there is one this season, but the Ducks fly to the top at Week 7 after an instant classic.`\
-https://nytimes.com/athletic/5840813/2024/10/14/college-football-fbs-team-rankings-midseason/
+**Harris’s Final Challenge: Restore a Splintering Democratic Coalition**\
+`Defections from Black and Latino voters are making Kamala Harris more dependent on white, suburban voters — and complicating her path to victory.`\
+https://nytimes.com/2024/10/14/us/politics/harris-democratic-coalition.html
 
-**Israel Attacks Tent Camp at Gaza Hospital**\
-`People worked through smoke and darkness to extinguish fires and look through debris following the deadly attack on Deir al-Balah.`\
-https://nytimes.com/video/world/middleeast/100000009760032/gaza-israel-hamas-deir-al-balah.html
+**Harris Campaign Unveils Policy Agenda Targeted at Black Men**\
+`The proposals include a new loan program and affordable banking options for entrepreneurs, apprenticeship and mentorship programs and expanded health screenings, too.`\
+https://nytimes.com/2024/10/14/us/politics/harris-policies-black-men.html
 
-**China’s Stock Markets Rebound on Promises to Help Businesses**\
-`Assurances from government officials on plans to strengthen the private sector offset a lack of specifics about economic stimulus.`\
-https://nytimes.com/2024/10/14/business/china-stocks-csi-300.html
+**Timeline of Tom Brady's bid to become part-owner of the Las Vegas Raiders**\
+`Ahead of Tuesday's expected vote, we look back on how we arrived at Brady closing in on buying a stake in the Raiders.`\
+https://nytimes.com/athletic/5839194/2024/10/14/tom-brady-raiders-ownership-timeline/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/14/crosswords/spelling-bee-forum.html
+**Meteorologists Face Harassment and Death Threats Amid Hurricane Disinformation**\
+`Weather experts say the spiraling falsehoods, especially claims that the government is creating or controlling storms, have gotten out of hand.`\
+https://nytimes.com/2024/10/14/us/meteorologists-threats-conspiracy-theories-hurricanes.html
 
-**An Artist Signed Over His Career to Investors. Now He Wants It Back.**\
-`Bjarne Melgaard’s rise in the art world came with strings attached and an unusual contract with investors. Now he’s suing to regain control of his artwork.`\
-https://nytimes.com/2024/10/14/arts/design/bjarne-melgaard-lawsuit-norway.html
+**State of the Race: A Close Race Gets Closer**\
+`There’s no sign that a deluge of surveys from Republican-aligned firms are meaningfully affecting the polling averages.`\
+https://nytimes.com/2024/10/14/upshot/polling-trump-harris-election.html
 
-**In Heated House Race, a Moderate Republican Goes Full Trump**\
-`Representative Marc Molinaro of New York, running against Josh Riley, a Democrat, has accused recent immigrants of committing violent crimes and killing pets.`\
-https://nytimes.com/2024/10/14/nyregion/marc-molinaro-josh-riley.html
+**Bengals defense came in waves to beat Giants and change the conversation**\
+`A unit that's been Cincinnati's weakness, particularly the defensive line, stepped up on a night the high-octane offense struggled to score.`\
+https://nytimes.com/athletic/5841971/2024/10/14/bengals-defense-giants-week-6/
 
-**Lonnie Walker, a former first-rounder, is grateful to compete for a spot on the Celtics**\
-`Rock bottom is bad, but Walker is trying to turn his into a positive. "I’ve finally found myself comfortable in an uncomfortable situation."`\
-https://nytimes.com/athletic/5841916/2024/10/14/celtics-lonnie-walker/
+**How the Falcons achieved 'the best feeling there is' by running over the Panthers**\
+`The Falcons rushed for 127 yards in the second half and 198 yards overall to win their third straight game and stay atop the AFC South.`\
+https://nytimes.com/athletic/5841438/2024/10/14/falcons-run-game-tyler-allgeier-panthers/
 
-**After weeks of magical moments, the Mets have their first postseason dud**\
-`“The energy is still here,” said Starling Marte, despite the blowout loss, echoing a sentiment shared by his New York teammates.`\
-https://nytimes.com/athletic/5841803/2024/10/14/mets-postseason-dud/
+**Oregon's win over Ohio State comes with a bonus: College Football Playoff Bubble Watch**\
+`Has Notre Dame moved back into the field? The full-of-surprises Big 12 is looking more and more like a two-bid league. `\
+https://nytimes.com/athletic/5840840/2024/10/14/college-football-playoff-bubble-watch-oregon-ohio-state/
 

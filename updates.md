@@ -1,3 +1,39 @@
+**Here are the latest developments.**\
+`By Jin Yu Young`\
+https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/here-are-the-latest-developments
+
+**Harris’s Final Challenge: Restore a Splintering Democratic Coalition**\
+`Defections from Black and Latino voters are making Kamala Harris more dependent on white, suburban voters — and complicating her path to victory.`\
+https://nytimes.com/2024/10/14/us/politics/harris-democratic-coalition.html
+
+**Harris Campaign Unveils Policy Agenda Targeted at Black Men**\
+`The proposals include a new loan program and affordable banking options for entrepreneurs, apprenticeship and mentorship programs and expanded health screenings, too.`\
+https://nytimes.com/2024/10/14/us/politics/harris-policies-black-men.html
+
+**Timeline of Tom Brady's bid to become part-owner of the Las Vegas Raiders**\
+`Ahead of Tuesday's expected vote, we look back on how we arrived at Brady closing in on buying a stake in the Raiders.`\
+https://nytimes.com/athletic/5839194/2024/10/14/tom-brady-raiders-ownership-timeline/
+
+**Meteorologists Face Harassment and Death Threats Amid Hurricane Disinformation**\
+`Weather experts say the spiraling falsehoods, especially claims that the government is creating or controlling storms, have gotten out of hand.`\
+https://nytimes.com/2024/10/14/us/meteorologists-threats-conspiracy-theories-hurricanes.html
+
+**State of the Race: A Close Race Gets Closer**\
+`There’s no sign that a deluge of surveys from Republican-aligned firms are meaningfully affecting the polling averages.`\
+https://nytimes.com/2024/10/14/upshot/polling-trump-harris-election.html
+
+**Bengals defense came in waves to beat Giants and change the conversation**\
+`A unit that's been Cincinnati's weakness, particularly the defensive line, stepped up on a night the high-octane offense struggled to score.`\
+https://nytimes.com/athletic/5841971/2024/10/14/bengals-defense-giants-week-6/
+
+**How the Falcons achieved 'the best feeling there is' by running over the Panthers**\
+`The Falcons rushed for 127 yards in the second half and 198 yards overall to win their third straight game and stay atop the AFC South.`\
+https://nytimes.com/athletic/5841438/2024/10/14/falcons-run-game-tyler-allgeier-panthers/
+
+**Oregon's win over Ohio State comes with a bonus: College Football Playoff Bubble Watch**\
+`Has Notre Dame moved back into the field? The full-of-surprises Big 12 is looking more and more like a two-bid league. `\
+https://nytimes.com/athletic/5840840/2024/10/14/college-football-playoff-bubble-watch-oregon-ohio-state/
+
 **Biggest winners and losers from college football's transfer QB carousel**\
 `Some transfer quarterbacks hit, and others don’t. The 2024 season has had plenty of both so far.`\
 https://nytimes.com/athletic/5841536/2024/10/14/college-football-best-transfer-quarterbacks/
