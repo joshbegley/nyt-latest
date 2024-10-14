@@ -1,3 +1,11 @@
+**Harris Rallies in North Carolina**\
+`The vice president criticized former President Donald J. Trump, calling him “weak and unstable.”`\
+https://nytimes.com/video/us/elections/100000009759898/harris-rallies-in-north-carolina.html
+
+**Should Broncos turn Bo Nix loose early to fix slow-starting offense?**\
+`The rookie QB has been the NFL's most inefficient signal-caller in the first half. Could more plays leaning on his athleticism be an answer?`\
+https://nytimes.com/athletic/5841148/2024/10/13/broncos-offense-bo-nix-chargers/
+
 **DiVincenzo, Rick Brunson have heated exchange during Knicks-Timberwolves**\
 `"I didn't see it," New York head coach Tom Thibodeau said after the game. "Two competitive guys. Stuff like that does happen."`\
 https://nytimes.com/athletic/5841314/2024/10/13/knicks-timberwolves-donte-divincenzo-rick-brunson-altercation/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5841251/2024/10/13/michael-pittman-jr-colts-back-in
 **Border Patrol agents endorse Trump at an Arizona rally filled with attacks on Harris.**\
 `Donald Trump said he would set a goal of hiring 10,000 new Border Patrol agents, significantly increasing the 18,000-member work force.`\
 https://nytimes.com/live/2024/10/13/us/harris-trump-election/border-patrol-agents-endorse-trump-at-an-arizona-rally-filled-with-attacks-on-harris
-
-**Yankees' high-tech pitching robot might be key to cracking Guardians' elite bullpen**\
-`As the Yankees prepare to face the Guardians, a team with one of the game's best bullpens, they will look to a helpful machine.`\
-https://nytimes.com/athletic/5841288/2024/10/13/yankees-guardians-alcs-trajekt/
-
-**Eagles escape Browns as Nick Sirianni draws attention for being 'himself'**\
-`Nick Sirianni said the players wanted to see more energy from him.`\
-https://nytimes.com/athletic/5840115/2024/10/13/nick-sirianni-eagles-win-browns/
 
