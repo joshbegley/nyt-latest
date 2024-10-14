@@ -1,3 +1,7 @@
+**Bengals beat Giants 17-7 in ugly win: Key takeaways**\
+`"Ugly, really ugly, but we got it done," Bengals quarterback Joe Burrow said of the victory postgame.`\
+https://nytimes.com/athletic/5841344/2024/10/13/bengals-giants-score-result-takeaways/
+
 **Justin Herbert is getting healthier, and that is great news for the Chargers**\
 `Herbert's increased mobility allowed the Chargers to lean more heavily into the passing game in Sunday's win over the Broncos.`\
 https://nytimes.com/athletic/5841581/2024/10/13/justin-herbert-chargers-healthy-broncos/
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/elections/100000009759898/harris-rallies-in-north-c
 **Should Broncos turn Bo Nix loose early to fix slow-starting offense?**\
 `The rookie QB has been the NFL's most inefficient signal caller in the first half. Could more plays leaning on his athleticism be an answer?`\
 https://nytimes.com/athletic/5841148/2024/10/13/broncos-offense-bo-nix-chargers/
-
-**DiVincenzo, Rick Brunson have heated exchange during Knicks-Timberwolves**\
-`"I didn't see it," New York head coach Tom Thibodeau said after the game. "Two competitive guys. Stuff like that does happen."`\
-https://nytimes.com/athletic/5841314/2024/10/13/knicks-timberwolves-donte-divincenzo-rick-brunson-altercation/
 
