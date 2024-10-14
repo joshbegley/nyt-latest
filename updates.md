@@ -1,3 +1,11 @@
+**Tent Camp in Gaza Engulfed by Flames After Israeli Strike**\
+`At least four Palestinians taking shelter by a hospital were killed in a strike Israeli officials said was targeting a Hamas command center.`\
+https://nytimes.com/2024/10/14/world/middleeast/gaza-aqsa-hospital-strike.html
+
+**Eagles' Nick Sirianni apologizes for exchange with fans**\
+`Sirianni's exchange occurred shortly after Eagles receiver A.J. Brown hauled in a 40-yard pass from quarterback Jalen Hurts.`\
+https://nytimes.com/athletic/5841119/2024/10/14/eagles-nick-sirianni-exchange-browns-fans/
+
 **Tuesday Briefing: India Accused of Homicide and Extortion**\
 `Plus, an artist sues to reclaim his work.`\
 https://nytimes.com/2024/10/14/briefing/canada-india-gaza-harris-trump.html
