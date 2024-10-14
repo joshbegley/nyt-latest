@@ -1,3 +1,7 @@
+**Trump Has Become Unmoored in Time**\
+`His grim vision of America seems stuck in the past.`\
+https://nytimes.com/2024/10/14/opinion/trump-detroit-economic-club.html
+
 **Chargers' Jim Harbaugh to wear heart monitor, will keep coaching**\
 `The Los Angeles coach said a cardiologist confirmed that the condition that occurred is an "atrial flutter."`\
 https://nytimes.com/athletic/5843540/2024/10/14/chargers-jim-harbaugh-health-updates-heart-monitor/
