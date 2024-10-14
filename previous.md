@@ -1,3 +1,7 @@
+**Riccardo Bigon appointed as CFG global technical director**\
+`Riccardo Bigon has been appointed City Football Group’s new global football technical director.`\
+https://nytimes.com/athletic/5842347/2024/10/14/riccardo-bigon-city-football-group/
+
 **Jets holdout Haason Reddick hires Drew Rosenhaus as new agent**\
 `Last week, CAA agent Tony Dandy parted ways from Reddick amid the contract dispute between the edge rusher and the Jets.`\
 https://nytimes.com/athletic/5842363/2024/10/14/haason-reddick-drew-rosenhaus-agent-jets/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/world/europe/russia-is-clawing-back-land-taken-by
 **Top high school QB recruits: How the nation’s elite prospects fared over the weekend**\
 `George MacIntyre, a Tennessee commit, threw for 246 yards to lead Brentwood (Tenn.) Academy to a big win over Knoxville Catholic. `\
 https://nytimes.com/athletic/5840238/2024/10/14/top-high-school-quarterbacks-class-2025-6/
-
-**How worried should Sixers fans be about Joel Embiid missing the preseason?**\
-`This could just be a way to keep Embiid healthy for when the games count. But his injury history makes the news a bit concerning. `\
-https://nytimes.com/athletic/5841800/2024/10/14/joel-embiid-sixers-knee-preseason/
 

@@ -1,3 +1,7 @@
+**Riccardo Bigon appointed as CFG global technical director**\
+`Riccardo Bigon has been appointed City Football Group’s new global football technical director.`\
+https://nytimes.com/athletic/5842347/2024/10/14/riccardo-bigon-city-football-group/
+
 **Jets holdout Haason Reddick hires Drew Rosenhaus as new agent**\
 `Last week, CAA agent Tony Dandy parted ways from Reddick amid the contract dispute between the edge rusher and the Jets.`\
 https://nytimes.com/athletic/5842363/2024/10/14/haason-reddick-drew-rosenhaus-agent-jets/
