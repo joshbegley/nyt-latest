@@ -1,3 +1,19 @@
+**Why I Joined: Distinctive content and storytelling like nowhere else**\
+`Aimee Lewis has joined The Athletic as a senior editor - this is why she's here and what she's looking to achieve...`\
+https://nytimes.com/athletic/5840018/2024/10/14/why-i-joined-distinctive-content-and-storytelling-like-nowhere-else/
+
+**Smith is spearheading Liverpool revolution, but Shaw shows how far they have to go**\
+`Despite the defeat, Liverpool's performance promises to be a place from which to grow into their high early-season expectations`\
+https://nytimes.com/athletic/5840520/2024/10/14/liverpool-smith-wsl-manchester-city-shaw/
+
+**How Israel’s Army Uses Palestinians as Human Shields in Gaza**\
+`Israeli soldiers and Palestinian former detainees say troops have regularly forced captured Gazans to carry out life-threatening tasks, including inside Hamas tunnels.`\
+https://nytimes.com/2024/10/14/world/middleeast/israel-gaza-military-human-shields.html
+
+**Belgium vs France preview: Storylines, odds, prediction as neighbors meet in Brussels**\
+`Belgium and France meet in Brussels for a UEFA Nations League showdown. The French are slight favorites away from home.`\
+https://nytimes.com/athletic/5837674/2024/10/14/belgium-france-preview-odds-prediction/
+
 **Bengals beat Giants 17-7 in ugly win: Key takeaways**\
 `"Ugly, really ugly, but we got it done," Bengals quarterback Joe Burrow said of the victory postgame.`\
 https://nytimes.com/athletic/5841344/2024/10/13/bengals-giants-score-result-takeaways/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5841559/2024/10/13/raiders-maxx-crosby-sideline-sho
 **Wild hope captain Jared Spurgeon's absence doesn't signal repeat of last season**\
 `The Wild have yet to announce what's ailing their captain, but more than anything they'd like to avoid déjà vu.`\
 https://nytimes.com/athletic/5841563/2024/10/13/wild-jared-spurgeon-injury-uncertainty-jets/
-
-**Trump Receives Endorsement from Border Patrol Union**\
-`The National Border Patrol Council formally pledged its support for the former president, appearing onstage with him during a rally in Arizona.`\
-https://nytimes.com/video/us/elections/100000009759918/trump-border-patrol-union-arizona.html
-
-**Alex Bowman eliminated from NASCAR playoffs after Sunday's disqualification**\
-`Bowman's car did not meet the minimum weight requirement and he was stripped of his 18th-place finish at the Charlotte Motor Speedway Roval.`\
-https://nytimes.com/athletic/5841466/2024/10/13/alex-bowman-eliminated-nascar-playoffs/
-
-**Harris Rallies in North Carolina**\
-`The vice president criticized former President Donald J. Trump, calling him “weak and unstable.”`\
-https://nytimes.com/video/us/elections/100000009759898/harris-rallies-in-north-carolina.html
-
-**Should Broncos turn Bo Nix loose early to fix slow-starting offense?**\
-`The rookie QB has been the NFL's most inefficient signal caller in the first half. Could more plays leaning on his athleticism be an answer?`\
-https://nytimes.com/athletic/5841148/2024/10/13/broncos-offense-bo-nix-chargers/
 
