@@ -1,3 +1,19 @@
+**'I want to get back to where I was': What next for Liverpool's Rhys Williams as he rebuilds in League Two?**\
+`The 23-year-old defender's career went from Champions League to tough lower-division loans. Is Morecambe the place where he can rebound?`\
+https://nytimes.com/athletic/5829581/2024/10/14/rhys-williams-interview-liverpool-morecambe/
+
+**There's an 'immense' Norwegian notching up goals in Manchester - her name is Elisabeth Terland**\
+`Manchester United have signed themselves an out-and-out No 9 with a proven WSL goalscoring track record`\
+https://nytimes.com/athletic/5840286/2024/10/14/elisabeth-terland-manchester-united-norway/
+
+**How Bogarde's versatility, composure and application have impressed Emery**\
+`The Dutch 20-year-old has jumped ahead of other academy players to the fringes of Aston Villa's first XI`\
+https://nytimes.com/athletic/5825033/2024/10/14/lamare-bogarde-aston-villa-emery/
+
+**Everton, Brighton, Arsenal and the Premier League clubs with the largest shareholder loans**\
+`Following the APT ruling last week, the Athletic analyses the long-term implications to shareholder loans and the benefits they bring.`\
+https://nytimes.com/athletic/5839766/2024/10/14/premier-league-shareholder-loans/
+
 **'Nobody can imagine the demands' - Marcelo Bielsa and the Uruguay culture Luis Suarez says will explode**\
 `The Uruguay head coach has conceded his 'authority' has been affected after criticisms of his methods and last week's loss to Peru`\
 https://nytimes.com/athletic/5839113/2024/10/14/bielsa-suarez-uruguay-leeds/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5836751/2024/10/14/aberdeen-best-team-in-europe/
 **Chelsea Pitch Owners: The unique organisation with the power to block Stamford Bridge move**\
 `Supporters are still waiting for Clearlake or Boehly to communicate a stadium plan but when they do CPO means they will have a big say`\
 https://nytimes.com/athletic/5839724/2024/10/14/chelsea-pitch-owners-power-stamford-bridge-move/
-
-**Germany vs Netherlands preview: How to watch, odds, prediction as historic rivals face off**\
-`Germany and Netherlands meet in the UEFA Nations League on Monday. They are the top two teams in the Group 3 table of League A.`\
-https://nytimes.com/athletic/5841547/2024/10/14/germany-netherlands-preview-how-to-watch-odds-prediction/
-
-**Fantasy football Week 6 takeaways: A reanimated D'Andre Swift, Mark Andrews' 'Tell-Tale Heart' and more**\
-`Michael Salfino shares his takeaways from Week 6, including Mark Andrews showing signs of life after being written off by many managers.`\
-https://nytimes.com/athletic/5840965/2024/10/14/fantasy-football-week-6-takeaways-swift-mark-andrews/
-
-**Why I Joined: Distinctive content and storytelling like nowhere else**\
-`Aimee Lewis has joined The Athletic as a senior editor - this is why she's here and what she's looking to achieve...`\
-https://nytimes.com/athletic/5840018/2024/10/14/why-i-joined-distinctive-content-and-storytelling-like-nowhere-else/
-
-**Smith is spearheading Liverpool revolution, but Shaw shows how far they have to go**\
-`Despite the defeat, Liverpool's performance promises to be a place from which to grow into their high early-season expectations`\
-https://nytimes.com/athletic/5840520/2024/10/14/liverpool-smith-wsl-manchester-city-shaw/
 
