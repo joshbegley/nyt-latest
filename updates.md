@@ -1,3 +1,7 @@
+**Lillian Schwartz, Pioneer in Computer-Generated Art, Dies at 97**\
+`Early in the digital era, she worked at Bell Labs on the intersection of art and technology, making films at one point arriving at a novel theory about the “Mona Lisa.”`\
+https://nytimes.com/2024/10/14/technology/lillian-schwartz-dead.html
+
 **Rams working out Kupp to determine his return**\
 `Kupp hasn't played since Week 2 when he injured his ankle against Arizona. It's possible he could return this week vs. Las Vegas.`\
 https://nytimes.com/athletic/5843222/2024/10/14/cooper-kupp-injury-update-rams/
