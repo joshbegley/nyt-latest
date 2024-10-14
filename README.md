@@ -1,3 +1,7 @@
+**How worried should Sixers fans be about Joel Embiid missing the preseason?**\
+`This could just be a way to keep Embiid healthy for when the games count. But his injury history makes the news a bit concerning. `\
+https://nytimes.com/athletic/5841800/2024/10/14/joel-embiid-sixers-knee-preseason/
+
 **Here’s the latest on the 2024 race.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/10/14/us/harris-trump-election/heres-the-latest-on-the-2024-race
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5842085/2024/10/14/hillsborough-more-questions-as-a
 **Nobel Economics Prize Shared Among Three**\
 `Daron Acemoglu, Simon Johnson and James Robinson received the prize for their work on explaining inequality between countries.`\
 https://nytimes.com/video/business/100000009760178/nobel-economics.html
-
-**In Texas, Execution Looms Despite Questions in Shaken Baby Case**\
-`Robert Roberson could be the first person put to death in connection with shaken baby syndrome. The state’s highest criminal court ruled in another case that the science had changed.`\
-https://nytimes.com/2024/10/14/us/texas-execution-robert-roberson-shaken-baby.html
 
