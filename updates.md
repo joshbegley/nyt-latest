@@ -1,3 +1,7 @@
+**In Texas, Execution Looms Despite Questions in Shaken Baby Case**\
+`Robert Roberson could be the first person put to death in connection with shaken baby syndrome. The state’s highest criminal court ruled in another case that the science had changed.`\
+https://nytimes.com/2024/10/14/us/texas-execution-robert-roberson-shaken-baby.html
+
 **Nigeria say they will forfeit AFCON qualifier after being stuck in Libyan airport for 12 hours**\
 `Nigeria captain William Troost-Ekong has said that his side will forfeit their game against Libya on Tuesday after being stranded at an airport in the North African country for 12 hours.`\
 https://nytimes.com/athletic/5842191/2024/10/14/nigeria-libya-airport-afcon/
