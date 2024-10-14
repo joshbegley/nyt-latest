@@ -1,3 +1,7 @@
+**Scoop City: Week 6 risers and fallers**\
+`A look at the risers and fallers after the 6th Sunday of the NFL season, from the Ravens to the Browns`\
+https://nytimes.com/athletic/5842623/2024/10/14/next-head-coach-to-be-fired-plus-deshaun-watson-ranks-590-592/
+
 **A school turned shelter is hit in a deadly strike, the U.N. says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/a-school-turned-shelter-is-hit-in-a-deadly-strike-the-un-says
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5842363/2024/10/14/haason-reddick-drew-rosenhaus-ag
 **The Bounce: Your quick NBA season previews begin now.**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5842275/2024/10/14/nba-season-previews-liberty-lynx-wnba-the-bounce/
-
-**Yohe: What I'm hearing about the Penguins through three games**\
-`Through their handling of Tristan Jarry, it's clear the Penguins have a goaltending competition on their hands.`\
-https://nytimes.com/athletic/5841672/2024/10/14/penguins-tristan-jarry-trade-rumors/
 
