@@ -1,3 +1,15 @@
+**Survivors of Gaza Hospital Blaze Say They Are Living a ‘Recurring Nightmare’**\
+`Scores of families sheltering outside Al Aqsa Martyrs Hospital say they have survived a string of Israeli strikes on the compound and feel trapped with nowhere to go.`\
+https://nytimes.com/2024/10/14/world/middleeast/gaza-al-aqsa-hospital-israel.html
+
+**A Harris Ad Uses the Hurricanes to Try to Inflict Damage on Trump**\
+`Two former homeland security officials under Donald J. Trump describe how he tried to withhold disaster aid from states that he hadn’t won.`\
+https://nytimes.com/2024/10/14/us/politics/a-harris-ad-uses-the-hurricanes-to-try-to-inflict-damage-on-trump.html
+
+**How Door Knocking Is Going in a Wisconsin Swing County**\
+`Door County, Wis., has picked the presidential winner since 1996. Last time, the margin was 292 votes, so the campaigns are trying to reach every household.`\
+https://nytimes.com/2024/10/14/us/door-county-wisconsin-election.html
+
 **Colts' QB Anthony Richardson 'really close' to returning**\
 `Second-year quarterback has missed two games with hip injury.`\
 https://nytimes.com/athletic/5843171/2024/10/14/colts-anthony-richardson-injury-update/
