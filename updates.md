@@ -1,3 +1,7 @@
+**An Arab American group that backed Biden in 2020 won’t endorse in 2024.**\
+`By Charles Homans`\
+https://nytimes.com/live/2024/10/14/us/harris-trump-election/an-arab-american-group-that-backed-biden-in-2020-wont-endorse-in-2024
+
 **49ers receiver Ricky Pearsall's return adds energy to the start of Chiefs week**\
 `Pearsall took part in his first practice since he was shot on Aug. 31. Several key 49ers who'd been battling injuries also participated.`\
 https://nytimes.com/athletic/5843592/2024/10/14/ricky-pearsall-49ers-practice-shooting-chiefs/
