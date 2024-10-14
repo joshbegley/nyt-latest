@@ -1,3 +1,11 @@
+**Amid a Water Crisis, England Asks: Who Should Be in Charge?**\
+`Four decades after privatization, calls to nationalize the water industry have swept across England and Wales amid sewage spills and rising household bills.`\
+https://nytimes.com/2024/10/14/business/uk-thames-water-sewage-crisis.html
+
+**Yankees announce roster for ALCS vs. Guardians: Rizzo, Stroman return**\
+`The Yankees will carry 12 pitchers for the best-of-seven game ALCS versus Cleveland.`\
+https://nytimes.com/athletic/5841442/2024/10/14/yankees-alcs-roster-stroman-rizzo/
+
 **The Windup: Do the Mets have an answer for Ohtani?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5842745/2024/10/14/dodgers-mets-shohei-ohtani-the-windup/
