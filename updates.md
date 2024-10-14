@@ -1,3 +1,7 @@
+**Kamala Harris Sets an Interview with a Not-So-Friendly Outlet: Fox News.**\
+`The interview, to be conducted by the anchor Bret Baier in Pennsylvania, will air Wednesday at 6 p.m. Eastern.`\
+https://nytimes.com/2024/10/14/business/media/fox-news-kamala-harris-interview.html
+
 **James returns to Chelsea training following hamstring injury**\
 `Chelsea captain Reece James has returned to training with team-mates following a hamstring injury.`\
 https://nytimes.com/athletic/5842756/2024/10/14/reece-james-injury-chelsea-training/
