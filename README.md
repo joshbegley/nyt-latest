@@ -1,3 +1,11 @@
+**Another Trump Term Would Make China Great Again**\
+`Trump remains well outside a bipartisan consensus on competing with China.`\
+https://nytimes.com/2024/10/14/opinion/trump-china-election.html
+
+**What’s on TV This Week: ‘The Wranglers’ and ‘Elsbeth’**\
+`A CW documentary, inspired by the series “Yellowstone,” shows what real life in ranch country looks like. And “The Good Wife” spinoff is back for a second season.`\
+https://nytimes.com/2024/10/14/arts/television/whats-on-tv-this-week-the-wranglers-and-elsbeth.html
+
 **Exclusive: Mets' Brandon Nimmo reveals he's dealing with plantar fasciitis**\
 `Nimmo believes he aggravated the injury in the sixth inning of Game 3 against the Phillies.`\
 https://nytimes.com/athletic/5841786/2024/10/14/mets-brandon-nimmo-plantar-fasciitis-nlcs/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5839113/2024/10/14/bielsa-suarez-uruguay-leeds/
 **Introducing the Noble Prize winners, 1992-2024**\
 `Forget physics, medicine, peace and all that serious stuff - it's time to recognise the best uncapped players of each Premier League season`\
 https://nytimes.com/athletic/5830979/2024/10/14/mark-noble-prize-winners/
-
-**Does the FA have a plan if Lee Carsley isn't the 'world-class coach' England need? Hopefully**\
-`Lee Carsley thinks England should appoint a “world-class coach” - but won't say if he wants it to be him and the FA isn't saying either`\
-https://nytimes.com/athletic/5835484/2024/10/14/england-world-class-coach-search/
-
-**How Aberdeen put together the best winning run in Europe's top 50 leagues**\
-`Aberdeen are the only team in UEFA’s top 50 ranked countries to have won every game they have played this season - how have they done it?`\
-https://nytimes.com/athletic/5836751/2024/10/14/aberdeen-best-team-in-europe/
 
