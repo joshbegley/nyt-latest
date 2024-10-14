@@ -1,3 +1,15 @@
+**Chelsea Pitch Owners: The unique organisation with the power to block Stamford Bridge move**\
+`Supporters are still waiting for Clearlake or Boehly to communicate a stadium plan but when they do CPO means they will have a big say`\
+https://nytimes.com/athletic/5839724/2024/10/14/chelsea-pitch-owners-power-stamford-bridge-move/
+
+**Germany vs Netherlands preview: How to watch, odds, prediction as historic rivals face off**\
+`Germany and Netherlands meet in the UEFA Nations League on Monday. They are the top two teams in the Group 3 table of League A.`\
+https://nytimes.com/athletic/5841547/2024/10/14/germany-netherlands-preview-how-to-watch-odds-prediction/
+
+**Fantasy football Week 6 takeaways: A reanimated D'Andre Swift, Mark Andrews' 'Tell-Tale Heart' and more**\
+`Michael Salfino shares his takeaways from Week 6, including Mark Andrews showing signs of life after being written off by many managers.`\
+https://nytimes.com/athletic/5840965/2024/10/14/fantasy-football-week-6-takeaways-swift-mark-andrews/
+
 **Why I Joined: Distinctive content and storytelling like nowhere else**\
 `Aimee Lewis has joined The Athletic as a senior editor - this is why she's here and what she's looking to achieve...`\
 https://nytimes.com/athletic/5840018/2024/10/14/why-i-joined-distinctive-content-and-storytelling-like-nowhere-else/
