@@ -1,3 +1,7 @@
+**Nobel Economics Prize Shared Among Three**\
+`Daron Acemoglu, Simon Johnson and James Robinson received the prize for their work on explaining inequality between countries.`\
+https://nytimes.com/video/business/100000009760178/nobel-economics.html
+
 **In Texas, Execution Looms Despite Questions in Shaken Baby Case**\
 `Robert Roberson could be the first person put to death in connection with shaken baby syndrome. The state’s highest criminal court ruled in another case that the science had changed.`\
 https://nytimes.com/2024/10/14/us/texas-execution-robert-roberson-shaken-baby.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841862/2024/10/14/edmonton-oilers-poor-start-to-se
 **WSL Briefing: Arsenal, 'Jonas Out' and how fandom is changing in the WSL**\
 `The huge investment made by supporters following their team both domestically and abroad is bringing new demands and expectations`\
 https://nytimes.com/athletic/5841114/2024/10/14/arsenal-jonas-eidevall-wsl-briefing/
-
-**A Political Misdiagnosis**\
-`Democrats imagined that they would become the majority party as America became more racially diverse. It’s not working out that way.`\
-https://nytimes.com/2024/10/14/briefing/hispanic-black-americans-election-poll.html
 
