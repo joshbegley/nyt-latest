@@ -1,3 +1,7 @@
+**The Pulse: What a miserable NFL Sunday**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5841356/2024/10/14/dodgers-mets-bengals-giants-the-pulse/
+
 **How Matas Buzelis has made Chicago Bulls teammates believers: 'He has tremendous upside'**\
 `Buzelis' coach has called him “fearless.” One teammate even described the rookie as the Bulls’ most athletic player. Expectations are high.`\
 https://nytimes.com/athletic/5841347/2024/10/14/matas-buzelis-chicago-bulls-nba/
