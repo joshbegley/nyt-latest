@@ -1,3 +1,7 @@
+**Cowboys owner Jerry Jones 'not considering' coaching change**\
+`Jones has traditionally not fired coaches during the season with the only instance being Wade Phillips' dismissal in 2010`\
+https://nytimes.com/athletic/5842519/2024/10/14/cowboys-jerry-jones-coaching/
+
 **Riccardo Bigon appointed as CFG global technical director**\
 `Riccardo Bigon has been appointed City Football Group’s new global football technical director.`\
 https://nytimes.com/athletic/5842347/2024/10/14/riccardo-bigon-city-football-group/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/obituaries/lilly-ledbetter-dead.html
 **Russia Is Clawing Back Land Taken by Ukraine This Summer**\
 `Moscow’s forces have been recapturing some villages and land taken in a Ukrainian incursion into Russia. The advances could undermine Kyiv’s hopes of pushing Russia to the negotiating table.`\
 https://nytimes.com/2024/10/14/world/europe/russia-is-clawing-back-land-taken-by-ukraine-this-summer.html
-
-**Top high school QB recruits: How the nation’s elite prospects fared over the weekend**\
-`George MacIntyre, a Tennessee commit, threw for 246 yards to lead Brentwood (Tenn.) Academy to a big win over Knoxville Catholic. `\
-https://nytimes.com/athletic/5840238/2024/10/14/top-high-school-quarterbacks-class-2025-6/
 

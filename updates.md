@@ -1,3 +1,7 @@
+**Cowboys owner Jerry Jones 'not considering' coaching change**\
+`Jones has traditionally not fired coaches during the season with the only instance being Wade Phillips' dismissal in 2010`\
+https://nytimes.com/athletic/5842519/2024/10/14/cowboys-jerry-jones-coaching/
+
 **Riccardo Bigon appointed as CFG global technical director**\
 `Riccardo Bigon has been appointed City Football Group’s new global football technical director.`\
 https://nytimes.com/athletic/5842347/2024/10/14/riccardo-bigon-city-football-group/
