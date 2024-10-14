@@ -1,3 +1,7 @@
+**Attention Kmart Shoppers: It’s Closing Time**\
+`As the last full-size Kmart in the continental United States prepares to close, shoppers reminisced about the store that once sold everything, everywhere.`\
+https://nytimes.com/2024/10/14/business/kmart-closing-long-island.html
+
 **Next men up deliver for Bears in London: Cole Kmet at long snapper, backup DBs**\
 `The Bears lost their long snapper to injury Sunday and were further depleted in the secondary, but players across the roster stepped up.`\
 https://nytimes.com/athletic/5840668/2024/10/14/bears-cole-kmet-long-snapper-jaguars-london/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/us/meteorologists-threats-conspiracy-theories-hur
 **Bengals defense came in waves to beat Giants and change the conversation**\
 `A unit that's been Cincinnati's weakness, particularly the defensive line, stepped up on a night the high-octane offense struggled to score.`\
 https://nytimes.com/athletic/5841971/2024/10/14/bengals-defense-giants-week-6/
-
-**State of the Race: A Close Race Gets Closer**\
-`There’s no sign that a deluge of surveys from Republican-aligned firms is meaningfully affecting the polling averages.`\
-https://nytimes.com/2024/10/14/upshot/polling-trump-harris-election.html
 
