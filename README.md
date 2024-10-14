@@ -1,3 +1,7 @@
+**Fantasy football Week 6 recap: Can you trust Kyler Murray?**\
+`Kyler Murray is vexing fantasy owners with his inconsistency. Don't bet on him turning it around.`\
+https://nytimes.com/athletic/5842457/2024/10/14/fantasy-football-week-6-recap-can-you-trust-kyler-murray/
+
 **India Pulls Top Diplomat From Canada in Growing Spat Between the Countries**\
 `The move by the Indian government comes as the two countries have been locked in a dispute following the assassination of a Sikh separatist in Canada last year.`\
 https://nytimes.com/2024/10/14/world/canada/india-canada-ambassador-investigation.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5829336/2024/10/14/nba-parity-salary-cap-rules-what
 **Donte DiVincenzo's toughness is making a strong first impression with Wolves**\
 `Sometimes a little scuffle is all it takes to cement the bond between new teammates.`\
 https://nytimes.com/athletic/5840861/2024/10/14/donte-divincenzo-timberwolves-rick-brunson-scuffle/
-
-**Lilly Ledbetter, Whose Fight for Equal Pay Changed U.S. Law, Dies at 86**\
-`Her lawsuit against Goodyear helped pave the way for the 2009 Fair Pay Act, which was signed into law by former President Barack Obama.`\
-https://nytimes.com/2024/10/14/obituaries/lilly-ledbetter-dead.html
 
