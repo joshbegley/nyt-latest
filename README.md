@@ -1,3 +1,7 @@
+**A Political Misdiagnosis**\
+`Democrats imagined that they would become the majority party as America became more racially diverse. It’s not working out that way.`\
+https://nytimes.com/2024/10/14/briefing/hispanic-black-americans-election-poll.html
+
 **The Pulse: What a miserable NFL Sunday**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5841356/2024/10/14/dodgers-mets-bengals-giants-the-pulse/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841495/2024/10/14/packers-jordan-loves-cardinals-w
 **Deshaun Watson and a Browns escape plan (once they finally admit it’s over): Sando’s Pick Six**\
 `The salary cap would make cutting Watson painful but not impossible. Could the Browns thread the tiniest needle with a trade?`\
 https://nytimes.com/athletic/5838119/2024/10/14/deshaun-watson-browns-contract-trade/
-
-**Life, death and Guardians postseason baseball: What this wild ride means to fans**\
-`This wild ride has meant a lot to a fan base that has waited 76 years for a World Series title.`\
-https://nytimes.com/athletic/5841380/2024/10/14/guardians-postseason-fans-mlb-playoffs-alcs/
 
