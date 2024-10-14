@@ -1,3 +1,7 @@
+**Exclusive: Mets' Brandon Nimmo reveals he's dealing with plantar fasciitis**\
+`Nimmo believes he aggravated the injury in the sixth inning of Game 3 against the Phillies.`\
+https://nytimes.com/athletic/5841786/2024/10/14/mets-brandon-nimmo-plantar-fasciitis-nlcs/
+
 **'I want to get back to where I was': What next for Liverpool's Rhys Williams as he rebuilds in League Two?**\
 `The 23-year-old defender's career went from Champions League to tough lower-division loans. Is Morecambe the place where he can rebound?`\
 https://nytimes.com/athletic/5829581/2024/10/14/rhys-williams-interview-liverpool-morecambe/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5835484/2024/10/14/england-world-class-coach-search
 **How Aberdeen put together the best winning run in Europe's top 50 leagues**\
 `Aberdeen are the only team in UEFA’s top 50 ranked countries to have won every game they have played this season - how have they done it?`\
 https://nytimes.com/athletic/5836751/2024/10/14/aberdeen-best-team-in-europe/
-
-**Chelsea Pitch Owners: The unique organisation with the power to block Stamford Bridge move**\
-`Supporters are still waiting for Clearlake or Boehly to communicate a stadium plan but when they do CPO means they will have a big say`\
-https://nytimes.com/athletic/5839724/2024/10/14/chelsea-pitch-owners-power-stamford-bridge-move/
 
