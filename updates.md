@@ -1,3 +1,7 @@
+**Wild hope captain Jared Spurgeon's absence doesn't signal repeat of last season**\
+`The Wild have yet to announce what's ailing their captain, but more than anything they'd like to avoid déjà vu.`\
+https://nytimes.com/athletic/5841563/2024/10/13/wild-jared-spurgeon-injury-uncertainty-jets/
+
 **Justin Herbert is getting healthier, and that is great news for the Chargers**\
 `Herbert's increased mobility allowed the Chargers to lean more heavily into the passing game in Sunday's win over the Broncos.`\
 https://nytimes.com/athletic/5841581/2024/10/13/justin-herbert-chargers-healthy-broncos/

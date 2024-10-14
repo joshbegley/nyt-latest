@@ -10,8 +10,8 @@ https://nytimes.com/athletic/5840991/2024/10/13/mets-padres-nlcs/
 `Raiders' Maxx Crosby was shown on CBS broadcast shoving an assistant coach on the sideline during 32-13 loss to Steelers.`\
 https://nytimes.com/athletic/5841559/2024/10/13/raiders-maxx-crosby-sideline-shove/
 
-**Wild hope captain Jared Spurgeon's absence doesn't signal a repeat of last season**\
-`The Wild have yet to announce what's ailing their captain, but more than anything they'd like to avoid deja vu.`\
+**Wild hope captain Jared Spurgeon's absence doesn't signal repeat of last season**\
+`The Wild have yet to announce what's ailing their captain, but more than anything they'd like to avoid déjà vu.`\
 https://nytimes.com/athletic/5841563/2024/10/13/wild-jared-spurgeon-injury-uncertainty-jets/
 
 **Trump Receives Endorsement from Border Patrol Union**\
