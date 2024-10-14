@@ -1,3 +1,7 @@
+**Francisco Lindor's home run snaps Dodgers' scoreless streak at record-tying 33 innings**\
+`Despite a pitching staff decimated by injuries, the Dodgers tied a record that had stood for 57 years.`\
+https://nytimes.com/athletic/5843326/2024/10/14/francisco-lindor-breaks-dodgers-scoreless-streak/
+
 **Giants fan survey: How are you feeling about Saquon Barkley returning as an Eagle?**\
 `Here's your chance to let us know how you feel about Barkely going green. Is he a traitor? `\
 https://nytimes.com/athletic/5842723/2024/10/14/new-york-giants-fan-survey-saquon-barkley/
