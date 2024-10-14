@@ -1,3 +1,7 @@
+**Trump Receives Endorsement from Border Patrol Union**\
+`The National Border Patrol Council formally pledged its support for the former president, appearing onstage with him during a rally in Arizona.`\
+https://nytimes.com/video/us/elections/100000009759918/trump-border-patrol-union-arizona.html
+
 **Alex Bowman eliminated from NASCAR playoffs after Sunday's disqualification**\
 `Bowman's car did not meet the minimum weight requirement and he was stripped of his 18th-place finish at the Charlotte Motor Speedway Roval.`\
 https://nytimes.com/athletic/5841466/2024/10/13/alex-bowman-eliminated-nascar-playoffs/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/13/world/asia/china-taiwan-war-games.html
 **Mets' Kodai Senga stumbles, Dodgers pounce early in NLCS Game 1**\
 `LOS ANGELES — The New York Mets’ risky play with Kodai Senga backfired tremendously in Game 1 of the National League Championship Series, and it’s imperiled their entire pitching plan for this best-of-seven series.`\
 https://nytimes.com/athletic/5841353/2024/10/13/mets-kodai-senga-dodgers-nlcs/
-
-**Michael Pittman Jr. puts Colts on his (bad) back: 'He's the toughest guy I’ve ever been around'**\
-`Pittman wasn't even supposed to play versus the Titans, but the veteran WR gutted through an injury to deliver the biggest play of the game.`\
-https://nytimes.com/athletic/5841251/2024/10/13/michael-pittman-jr-colts-back-injury-titans/
 

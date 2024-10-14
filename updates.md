@@ -1,3 +1,7 @@
+**Trump Receives Endorsement from Border Patrol Union**\
+`The National Border Patrol Council formally pledged its support for the former president, appearing onstage with him during a rally in Arizona.`\
+https://nytimes.com/video/us/elections/100000009759918/trump-border-patrol-union-arizona.html
+
 **Alex Bowman eliminated from NASCAR playoffs after Sunday's disqualification**\
 `Bowman's car did not meet the minimum weight requirement and he was stripped of his 18th-place finish at the Charlotte Motor Speedway Roval.`\
 https://nytimes.com/athletic/5841466/2024/10/13/alex-bowman-eliminated-nascar-playoffs/
