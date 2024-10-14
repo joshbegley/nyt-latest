@@ -1,3 +1,7 @@
+**Italian Court Overturns Women’s Acquittals in ‘Bunga Bunga’ Legal Saga**\
+`The ruling sets the stage for yet another trial related to the scandal involving Silvio Berlusconi, the former prime minister of Italy who died last year.`\
+https://nytimes.com/2024/10/14/world/europe/berlusconi-bunga-bunga-women.html
+
 **Deadly Hezbollah Strike on Army Base Shows Israel’s Weakness Against Drones**\
 `Israel has one of the world’s best defenses against missiles and rockets, but struggles to detect slower-moving unmanned aircraft, experts said.`\
 https://nytimes.com/2024/10/14/world/middleeast/hezbollah-drone-attack-israel.html
