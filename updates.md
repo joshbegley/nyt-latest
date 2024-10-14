@@ -1,3 +1,11 @@
+**Bill Clinton says his low-key Southern swing for Harris suits him just fine.**\
+`By Alan Blinder`\
+https://nytimes.com/live/2024/10/14/us/harris-trump-election/bill-clinton-says-his-low-key-southern-swing-for-harris-suits-him-just-fine
+
+**Tigers takeaways: Javier Báez, free-agent bats and more from Scott Harris' season wrap**\
+`The Tigers' president of baseball operations discussed the team's lineup, including Báez: "There’s a role for him on this team."`\
+https://nytimes.com/athletic/5842970/2024/10/14/detroit-tigers-javier-baez-free-agents-scott-harris/
+
 **Bulls, Ball targeting return Wednesday, first game since Jan. 2022**\
 `Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
 `\
