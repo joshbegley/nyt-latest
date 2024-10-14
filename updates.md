@@ -1,3 +1,7 @@
+**A school turned shelter is hit in a deadly strike, the U.N. says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/a-school-turned-shelter-is-hit-in-a-deadly-strike-the-un-says
+
 **FIFPro and European Leagues file complaint against FIFA over calendar**\
 `Global players’ union FIFPro teamed up with Europe’s domestic leagues to file a formal complaint against FIFA at the European Commission in Brussels on Monday, as the struggle to control football&#8217;s calendar intensified.`\
 https://nytimes.com/athletic/5842533/2024/10/14/fifa-formal-complaint-football-calendar/
