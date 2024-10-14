@@ -1,3 +1,7 @@
+**Donte DiVincenzo's toughness is making a strong first impression with Wolves**\
+`Sometimes a little scuffle is all it takes to cement the bond between new teammates.`\
+https://nytimes.com/athletic/5840861/2024/10/14/donte-divincenzo-timberwolves-rick-brunson-scuffle/
+
 **Lilly Ledbetter, Whose Fight for Equal Pay Changed U.S. Law, Dies at 86**\
 `Her lawsuit against Goodyear helped pave the way for the 2009 Fair Pay Act, which was signed into law by former President Barack Obama.`\
 https://nytimes.com/2024/10/14/obituaries/lilly-ledbetter-dead.html
