@@ -1,3 +1,7 @@
+**An Arab American group that backed Biden in 2020 won’t endorse in 2024.**\
+`By Charles Homans`\
+https://nytimes.com/live/2024/10/14/us/harris-trump-election/an-arab-american-group-that-backed-biden-in-2020-wont-endorse-in-2024
+
 **49ers receiver Ricky Pearsall's return adds energy to the start of Chiefs week**\
 `Pearsall took part in his first practice since he was shot on Aug. 31. Several key 49ers who'd been battling injuries also participated.`\
 https://nytimes.com/athletic/5843592/2024/10/14/ricky-pearsall-49ers-practice-shooting-chiefs/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/world/europe/stasi-murder-convicted-1974.html
 **York Theater Artistic Director Out After ‘Hurtful’ Diversity Comments**\
 `James Morgan, who has been with the small New York theater company for 50 years, blamed the effects of a stroke for his behavior.`\
 https://nytimes.com/2024/10/14/theater/james-morgan-york-theater.html
-
-**Twins to name Matt Borgschulte as hitting coach: Source**\
-`Following their late-season collapse, the Twins want to alter their offensive philosophy and hope to do so by bringing back an old friend.`\
-https://nytimes.com/athletic/5843433/2024/10/14/twins-matt-borgschulte-hitting-coach/
 
