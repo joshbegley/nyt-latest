@@ -1,3 +1,7 @@
+**Attention Kmart Shoppers: It’s Closing Time**\
+`As the last full-size Kmart in the continental United States prepares to close, shoppers reminisced about the store that once sold everything, everywhere.`\
+https://nytimes.com/2024/10/14/business/kmart-closing-long-island.html
+
 **Next men up deliver for Bears in London: Cole Kmet at long snapper, backup DBs**\
 `The Bears lost their long snapper to injury Sunday and were further depleted in the secondary, but players across the roster stepped up.`\
 https://nytimes.com/athletic/5840668/2024/10/14/bears-cole-kmet-long-snapper-jaguars-london/
