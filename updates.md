@@ -1,3 +1,7 @@
+**Deadly Strike Hits Shelter in Central Gaza, U.N. Says**\
+`A school turned shelter was attacked late Sunday, a day before children were to receive their second dose of a polio vaccination.`\
+https://nytimes.com/video/world/middleeast/100000009760700/gaza-school-vaccination-site-attack.html
+
 **Francisco Lindor's home run snaps Dodgers' scoreless streak at record-tying 33 innings**\
 `Despite a pitching staff decimated by injuries, the Dodgers tied a record that had stood for 57 years.`\
 https://nytimes.com/athletic/5843326/2024/10/14/francisco-lindor-breaks-dodgers-scoreless-streak/

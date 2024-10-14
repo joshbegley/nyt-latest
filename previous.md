@@ -1,3 +1,7 @@
+**Deadly Strike Hits Shelter in Central Gaza, U.N. Says**\
+`A school turned shelter was attacked late Sunday, a day before children were to receive their second dose of a polio vaccination.`\
+https://nytimes.com/video/world/middleeast/100000009760700/gaza-school-vaccination-site-attack.html
+
 **Francisco Lindor's home run snaps Dodgers' scoreless streak at record-tying 33 innings**\
 `Despite a pitching staff decimated by injuries, the Dodgers tied a record that had stood for 57 years.`\
 https://nytimes.com/athletic/5843326/2024/10/14/francisco-lindor-breaks-dodgers-scoreless-streak/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/us/ethel-kennedy-funeral.html
 **Armed Man Arrested After Reportedly Threatening FEMA Workers**\
 `William Jacob Parsons was arrested and charged in North Carolina after he was found with a handgun and a rifle at a supermarket where a federal aid vehicle was parked.`\
 https://nytimes.com/2024/10/14/us/fema-threats-arrest-north-carolina.html
-
-**Survivors of Gaza Hospital Blaze Say They Are Living a ‘Recurring Nightmare’**\
-`Scores of families sheltering outside Al Aqsa Martyrs Hospital say they have survived a string of Israeli strikes on the compound and feel trapped with nowhere to go.`\
-https://nytimes.com/2024/10/14/world/middleeast/gaza-al-aqsa-hospital-israel.html
 
