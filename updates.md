@@ -1,3 +1,20 @@
+**Brighton trio return to training before Newcastle match**\
+`Brighton &amp; Hove Albion have been given a triple boost by the returns to training of Georginio Rutter, Jan Paul van Hecke and Simon Adingra in preparation for Saturday&#8217;s trip to Newcastle United.`\
+https://nytimes.com/athletic/5843024/2024/10/14/brightons-injuries-rutter-van-hecke-adingra/
+
+**Greenberg: Cubs chairman Tom Ricketts' words ring hollow in latest letter to fans**\
+`Ricketts is trying to manifest the Cubs' return to the playoffs through his writing as fans wait for next chapter of "amazing story."`\
+https://nytimes.com/athletic/5842714/2024/10/14/chicago-cubs-tom-ricketts-letter-fans/
+
+**What to Know About the Antimissile System the U.S. Is Sending to Israel**\
+`The THAAD system, which can intercept missiles above earth’s atmosphere, is being deployed to defend against Iranian attacks.`\
+https://nytimes.com/2024/10/14/world/middleeast/israel-thaad-missile-defense.html
+
+**Bulls, Ball targeting return Wednesday, first game since Jan. 2022**\
+`Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
+`\
+https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseason/
+
 **Bulls, Ball targeting return Wednesday, first game since Jan. 2022**\
 `Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
 `\
