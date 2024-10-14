@@ -1,3 +1,7 @@
+**A school turned shelter is hit in a deadly strike, the U.N. says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/a-school-turned-shelter-is-hit-in-a-deadly-strike-the-un-says
+
 **FIFPro and European Leagues file complaint against FIFA over calendar**\
 `Global players’ union FIFPro teamed up with Europe’s domestic leagues to file a formal complaint against FIFA at the European Commission in Brussels on Monday, as the struggle to control football&#8217;s calendar intensified.`\
 https://nytimes.com/athletic/5842533/2024/10/14/fifa-formal-complaint-football-calendar/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5842275/2024/10/14/nba-season-previews-liberty-lynx
 **Yohe: What I'm hearing about the Penguins through three games**\
 `Through their handling of Tristan Jarry, it's clear the Penguins have a goaltending competition on their hands.`\
 https://nytimes.com/athletic/5841672/2024/10/14/penguins-tristan-jarry-trade-rumors/
-
-**The NBA has entered a new era of parity. How did we get here and what's next?**\
-`Last year, the Boston Celtics became the sixth different team to win a championship in the past six seasons. Is the era of parity upon us? `\
-https://nytimes.com/athletic/5829336/2024/10/14/nba-parity-salary-cap-rules-whats-next/
 
