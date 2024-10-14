@@ -1,3 +1,11 @@
+**49ers receiver Ricky Pearsall's return adds energy to the start of Chiefs week**\
+`Pearsall took part in his first practice since he was shot on Aug. 31. Several key 49ers who'd been battling injuries also participated.`\
+https://nytimes.com/athletic/5843592/2024/10/14/ricky-pearsall-49ers-practice-shooting-chiefs/
+
+**Ka, Lone Soldier of New York’s Underground Rap Scene, Dies at 52**\
+`The rapper, whose name was Kaseem Ryan, was known for self-producing 11 albums while also a maintaining a career with the New York Fire Department.`\
+https://nytimes.com/2024/10/14/us/ka-lone-soldier-of-new-yorks-underground-rap-scene-dies-at-52.html
+
 **Trump Has Become Unmoored in Time**\
 `His grim vision of America seems stuck in the past.`\
 https://nytimes.com/2024/10/14/opinion/trump-detroit-economic-club.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/14/theater/james-morgan-york-theater.html
 **Twins to name Matt Borgschulte as hitting coach: Source**\
 `Following their late-season collapse, the Twins want to alter their offensive philosophy and hope to do so by bringing back an old friend.`\
 https://nytimes.com/athletic/5843433/2024/10/14/twins-matt-borgschulte-hitting-coach/
-
-**What I saw in the Bruins' first homestand: Don’t touch Pastrnak, ghostly Geekie and one line shining**\
-`Coach Jim Montgomery on the Bruins' play so far this season: "“It’s just not disciplined. … Can’t win hockey games that way."`\
-https://nytimes.com/athletic/5843396/2024/10/14/bruins-pastrnak-geekie-takeaways/
-
-**Tent Camp in Gaza Engulfed by Flames After Israeli Strike**\
-`At least four Palestinians taking shelter by a hospital were killed in a strike Israeli officials said was targeting a Hamas command center.`\
-https://nytimes.com/2024/10/14/world/middleeast/gaza-aqsa-hospital-strike.html
 
