@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5841061/2024/10/13/browns-eagles-deshaun-watson-wee
 `“Everything was working,” said RB Derrick Henry, who rushed for 132 yards and two touchdowns Sunday. “It was like, ‘Pick your poison.'”`\
 https://nytimes.com/athletic/5841034/2024/10/13/ravens-commanders-nfl-best-offense/
 
-**Breanna Stewart scored 21 points but her disruptive defense sealed the Liberty's Game 2 victory**\
+**Breanna Stewart scored 21 points but her disruptive defense sealed the Liberty's Game 2 win**\
 `Stewart helped hold the Lynx to an unusually low point total.`\
 https://nytimes.com/athletic/5841183/2024/10/13/breanna-stewart-game-2-wnba-finals-defense/
 
