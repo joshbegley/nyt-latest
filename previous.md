@@ -1,3 +1,7 @@
+**The Athletic 134: Why Oregon's on top of our midseason FBS rankings**\
+`Who are the great, elite teams? I’m not sure there is one this season, but the Ducks fly to the top at Week 7 after an instant classic.`\
+https://nytimes.com/athletic/5840813/2024/10/14/college-football-fbs-team-rankings-midseason/
+
 **Israel Attacks Tent Camp at Gaza Hospital**\
 `People worked through smoke and darkness to extinguish fires and look through debris following the deadly attack on Deir al-Balah.`\
 https://nytimes.com/video/world/middleeast/100000009760032/gaza-israel-hamas-deir-al-balah.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841803/2024/10/14/mets-postseason-dud/
 **Mets flattened in uncharacteristically sloppy Game 1 loss**\
 `Given how rough Kodai Senga's outing was, it’s reasonable to wonder if he deserves another one.`\
 https://nytimes.com/athletic/5841848/2024/10/14/mets-dodgers-nlcs-kodai-senga-loss/
-
-**Jack Flaherty latest headliner in Dodgers' record playoff scoreless streak**\
-`Flaherty delivered seven scoreless innings in the Dodgers' 9-0 thumping of the Mets.`\
-https://nytimes.com/athletic/5841818/2024/10/14/jack-flaherty-dodgers-record-playoff-scoreless-streak-nlcs/
 

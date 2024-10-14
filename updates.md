@@ -1,3 +1,7 @@
+**The Athletic 134: Why Oregon's on top of our midseason FBS rankings**\
+`Who are the great, elite teams? I’m not sure there is one this season, but the Ducks fly to the top at Week 7 after an instant classic.`\
+https://nytimes.com/athletic/5840813/2024/10/14/college-football-fbs-team-rankings-midseason/
+
 **Israel Attacks Tent Camp at Gaza Hospital**\
 `People worked through smoke and darkness to extinguish fires and look through debris following the deadly attack on Deir al-Balah.`\
 https://nytimes.com/video/world/middleeast/100000009760032/gaza-israel-hamas-deir-al-balah.html
