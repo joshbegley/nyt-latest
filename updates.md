@@ -1,3 +1,19 @@
+**How to Apply Blush Like a Professional**\
+`Tips from a “Saturday Night Live” cast member, a ballet dancer and a makeup artist.`\
+https://nytimes.com/2024/10/14/t-magazine/blush-tips-recommendation.html
+
+**Doctors, A.I. and Empathy for Patients**\
+`Readers discuss a guest essay about ChatGPT’s bedside manner. Also: Breast cancer screenings; Walz’s missteps; supporting the mental health of schoolchildren.`\
+https://nytimes.com/2024/10/14/opinion/letters/doctors-ai-patients.html
+
+**‘Literally the Quickest Dinner Ever’**\
+`Yasmin Fahr’s five-star recipe features sweet shrimp, spicy ginger and creamy coconut milk — and has received rave reviews.`\
+https://nytimes.com/2024/10/14/dining/literally-the-quickest-dinner-ever.html
+
+**Harris’s ascent led 11 percent of women voters to switch from Trump, a survey finds.**\
+`By Ruth Igielnik`\
+https://nytimes.com/live/2024/10/14/us/harris-trump-election/harriss-ascent-led-11-percent-of-women-voters-to-switch-from-trump-a-survey-finds
+
 **Scoop City: Week 6 risers and fallers**\
 `A look at the risers and fallers after the 6th Sunday of the NFL season, from the Ravens to the Browns`\
 https://nytimes.com/athletic/5842623/2024/10/14/next-head-coach-to-be-fired-plus-deshaun-watson-ranks-590-592/
