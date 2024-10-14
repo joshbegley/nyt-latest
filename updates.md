@@ -1,3 +1,7 @@
+**Raiders' Maxx Crosby downplays sideline shove of coach: 'I love Mike Caldwell'**\
+`Raiders' Maxx Crosby was shown on CBS broadcast shoving an assistant coach on the sideline during 32-13 loss to Steelers.`\
+https://nytimes.com/athletic/5841559/2024/10/13/raiders-maxx-crosby-sideline-shove/
+
 **Bengals beat Giants 17-7 in ugly win: Key takeaways**\
 `"Ugly, really ugly, but we got it done," Bengals quarterback Joe Burrow said of the victory postgame.`\
 https://nytimes.com/athletic/5841344/2024/10/13/bengals-giants-score-result-takeaways/

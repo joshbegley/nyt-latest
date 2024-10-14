@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5841581/2024/10/13/justin-herbert-chargers-healthy-
 `LOS ANGELES — Much was made of how the cascade of injuries to Los Angeles Dodgers pitchers would present problems in October.`\
 https://nytimes.com/athletic/5840991/2024/10/13/mets-dodgers-nlcs-scoreless-record/
 
-**Raiders' Maxx Crosby downplays sideline shove of coach: I love Mike Caldwell'**\
+**Raiders' Maxx Crosby downplays sideline shove of coach: 'I love Mike Caldwell'**\
 `Raiders' Maxx Crosby was shown on CBS broadcast shoving an assistant coach on the sideline during 32-13 loss to Steelers.`\
 https://nytimes.com/athletic/5841559/2024/10/13/raiders-maxx-crosby-sideline-shove/
 
