@@ -1,3 +1,7 @@
+**Lloyd: Cleveland consumed by Guardians, Browns — teams on very different trajectories**\
+`The Browns are the toxic partner who takes and takes and never really loves the fans back. The Guardians have been stuck in the friend zone.`\
+https://nytimes.com/athletic/5842504/2024/10/14/browns-guardians-yankees-game-1-eagles/
+
 **Trump and Harris Both Like a Child Tax Credit, but With Different Aims**\
 `Kamala Harris’s campaign is pushing a version of the credit intended to fight child poverty, while Donald J. Trump sees the program primarily as a tax cut for people higher up the income scale.`\
 https://nytimes.com/2024/10/14/us/politics/trump-harris-child-tax-credit.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/opinion/letters/doctors-ai-patients.html
 **‘Literally the Quickest Dinner Ever’**\
 `Yasmin Fahr’s five-star recipe features sweet shrimp, spicy ginger and creamy coconut milk — and has received rave reviews.`\
 https://nytimes.com/2024/10/14/dining/literally-the-quickest-dinner-ever.html
-
-**Harris’s ascent led 11 percent of women voters to switch from Trump, a survey finds.**\
-`By Ruth Igielnik`\
-https://nytimes.com/live/2024/10/14/us/harris-trump-election/harriss-ascent-led-11-percent-of-women-voters-to-switch-from-trump-a-survey-finds
 
