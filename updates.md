@@ -1,3 +1,7 @@
+**Jets holdout Haason Reddick hires Drew Rosenhaus as new agent**\
+`Last week, CAA agent Tony Dandy parted ways from Reddick amid the contract dispute between the edge rusher and the Jets.`\
+https://nytimes.com/athletic/5842363/2024/10/14/haason-reddick-drew-rosenhaus-agent-jets/
+
 **The Bounce: Your quick NBA season previews begin now.**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5842275/2024/10/14/nba-season-previews-liberty-lynx-wnba-the-bounce/
