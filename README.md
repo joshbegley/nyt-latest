@@ -1,3 +1,11 @@
+**Mets flattened in uncharacteristically sloppy Game 1 loss**\
+`Given how rough Kodai Senga's outing was, it’s reasonable to wonder if he deserves another one.`\
+https://nytimes.com/athletic/5841848/2024/10/14/mets-dodgers-nlcs-kodai-senga-loss/
+
+**Jack Flaherty latest headliner in Dodgers' record playoff scoreless streak**\
+`Flaherty delivered seven scoreless innings in the Dodgers' 9-0 thumping of the Mets.`\
+https://nytimes.com/athletic/5841818/2024/10/14/jack-flaherty-dodgers-record-playoff-scoreless-streak-nlcs/
+
 **Dodgers' Freddie Freeman will keep running until he can't: 'An absolute dog'**\
 `Freeman's injury prevents him from bending the joint at the top of his ankle and makes every step a challenge.`\
 https://nytimes.com/athletic/5841775/2024/10/14/dodgers-freddie-freeman-nlcs-ankle/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5829581/2024/10/14/rhys-williams-interview-liverpoo
 **There's an 'immense' Norwegian notching up goals in Manchester - her name is Elisabeth Terland**\
 `Manchester United have signed themselves an out-and-out No 9 with a proven WSL goalscoring track record`\
 https://nytimes.com/athletic/5840286/2024/10/14/elisabeth-terland-manchester-united-norway/
-
-**How Bogarde's versatility, composure and application have impressed Emery**\
-`The Dutch 20-year-old has jumped ahead of other academy players to the fringes of Aston Villa's first XI`\
-https://nytimes.com/athletic/5825033/2024/10/14/lamare-bogarde-aston-villa-emery/
-
-**Everton, Brighton, Arsenal and the Premier League clubs with the largest shareholder loans**\
-`Following the APT ruling last week, the Athletic analyses the long-term implications to shareholder loans and the benefits they bring.`\
-https://nytimes.com/athletic/5839766/2024/10/14/premier-league-shareholder-loans/
 
