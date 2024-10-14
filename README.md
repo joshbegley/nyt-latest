@@ -1,3 +1,7 @@
+**Canada Accuses Indian Diplomats of Criminal Activities**\
+`Prime Minister Justin Trudeau accused the Indian government of homicide and extortion intended to silence critics of India living in Canada. Canada expelled India’s top diplomat and five others. India denied the allegations.`\
+https://nytimes.com/video/world/americas/100000009761344/canada-india-diplomats.html
+
 **50 Years After Killing, a Berlin Court Convicts Stasi Officer of Murder**\
 `The court handed down a guilty verdict and a 10-year sentence to a former officer of East Germany’s dreaded secret police, in a case straight out of the Cold War.`\
 https://nytimes.com/2024/10/14/world/europe/stasi-murder-convicted-1974.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/opinion/trump-arizona-republican-party.html
 **Deadly Strike Hits Shelter in Central Gaza, U.N. Says**\
 `A school turned shelter was attacked late Sunday, a day before children were to receive their second dose of a polio vaccination.`\
 https://nytimes.com/video/world/middleeast/100000009760700/gaza-school-vaccination-site-attack.html
-
-**Francisco Lindor's home run snaps Dodgers' scoreless streak at record-tying 33 innings**\
-`Despite a pitching staff decimated by injuries, the Dodgers tied a record that had stood for 57 years.`\
-https://nytimes.com/athletic/5843326/2024/10/14/francisco-lindor-breaks-dodgers-scoreless-streak/
 
