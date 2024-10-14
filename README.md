@@ -1,3 +1,7 @@
+**Raiders' conservative approach doesn't do offense any favors in loss to Steelers**\
+`Antonio Pierce and Luke Getsy called the offense Sunday like they didn't trust QB Aidan O'Connell, who made his first start of the season.`\
+https://nytimes.com/athletic/5841200/2024/10/13/raiders-steelers-conservative-offense-aidan-oconnell/
+
 **New York Liberty found a key factor in Betnijah Laney-Hamilton for WNBA Finals win**\
 `"We believe in her. She knows that.”`\
 https://nytimes.com/athletic/5841306/2024/10/13/betnijah-laney-hamilton-ny-liberty-wnba-finals-win/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5840115/2024/10/13/nick-sirianni-eagles-win-browns/
 **Man Is Arrested on Weapons Charges Heading to Trump Rally in Coachella, Officials Say**\
 `Law-enforcement officials said that former President Donald J. Trump was not in any danger, and the man was released on bail.`\
 https://nytimes.com/2024/10/13/us/politics/trump-rally-arrest-coachella.html
-
-**For Jayden Daniels' Commanders, a loss in Baltimore, but not a setback**\
-`Despite hype surrounding the QB matchup, Sunday was a reminder that the local rivals are in different places.`\
-https://nytimes.com/athletic/5841030/2024/10/13/commanders-loss-ravens-jayden-daniels-rebuild/
 
