@@ -1,3 +1,7 @@
+**Italy Sends Boat to Albania With Migrants Who Were Bound for Italian Shores**\
+`The plan was heralded by the Italian government as an innovative model to manage and deter immigration, and criticized by human rights groups.`\
+https://nytimes.com/2024/10/14/world/europe/italy-migrants-albania.html
+
 **In Jordan, a ‘Stunning’ Discovery Under Petra’s Ancient Stone**\
 `A recent excavation has unearthed 12 human skeletons and a chamber of grave offerings near Petra’s Treasury building, a UNESCO World Heritage site.`\
 https://nytimes.com/2024/10/14/world/petra-tomb-discovered-jordan.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5842745/2024/10/14/dodgers-mets-shohei-ohtani-the-w
 **Deadly Hezbollah Strike on Army Base Shows Israel’s Weakness Against Drones**\
 `Israel has one of the world’s best defenses against missiles and rockets, but struggles to detect slower-moving unmanned aircraft, experts said.`\
 https://nytimes.com/2024/10/14/world/middleeast/hezbollah-drone-attack-israel.html
-
-**Lloyd: Cleveland consumed by Guardians, Browns — teams on very different trajectories**\
-`The Browns are the toxic partner who takes and takes and never really loves the fans back. The Guardians have been stuck in the friend zone.`\
-https://nytimes.com/athletic/5842504/2024/10/14/browns-guardians-yankees-game-1-eagles/
 
