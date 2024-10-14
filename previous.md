@@ -1,3 +1,7 @@
+**Sean Payton not expecting 'flowers and warm fuzzies' in return to New Orleans**\
+`Biggest focus for Broncos' coach vs. his former team is reviving a slow-starting offense that ranks 28th in points scored.`\
+https://nytimes.com/athletic/5842889/2024/10/14/sean-payton-broncos-new-orleans-return/
+
 **Bill Clinton says his low-key Southern swing for Harris suits him just fine.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/10/14/us/harris-trump-election/bill-clinton-says-his-low-key-southern-swing-for-harris-suits-him-just-fine
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/world/middleeast/israel-thaad-missile-defense.htm
 **College football best bets Week 8: Georgia to cover in Texas and four more spread bets**\
 `Austin Mock uses his model to pick five spread bets for college football Week 8, including the game of the week.`\
 https://nytimes.com/athletic/5842470/2024/10/14/college-football-best-bets-week-8-georgia-texas-michigan/
-
-**NASCAR Charlotte Roval takeaways: Alex Bowman's DQ and a case for the oval**\
-`Even after the "wild-card" tracks, most of the favorites advanced Sunday. Plus, thoughts on Alex Bowman, the Roval vs. the oval, and more.`\
-https://nytimes.com/athletic/5840879/2024/10/14/nascar-charlotte-roval-takeaways-playoffs-alex-bowman/
 

@@ -1,3 +1,7 @@
+**Sean Payton not expecting 'flowers and warm fuzzies' in return to New Orleans**\
+`Biggest focus for Broncos' coach vs. his former team is reviving a slow-starting offense that ranks 28th in points scored.`\
+https://nytimes.com/athletic/5842889/2024/10/14/sean-payton-broncos-new-orleans-return/
+
 **Bill Clinton says his low-key Southern swing for Harris suits him just fine.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/10/14/us/harris-trump-election/bill-clinton-says-his-low-key-southern-swing-for-harris-suits-him-just-fine
