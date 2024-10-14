@@ -1,3 +1,7 @@
+**Scoop City: Week 6 risers and fallers**\
+`A look at the risers and fallers after the 6th Sunday of the NFL season, from the Ravens to the Browns`\
+https://nytimes.com/athletic/5842623/2024/10/14/next-head-coach-to-be-fired-plus-deshaun-watson-ranks-590-592/
+
 **A school turned shelter is hit in a deadly strike, the U.N. says.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/a-school-turned-shelter-is-hit-in-a-deadly-strike-the-un-says
