@@ -1,3 +1,7 @@
+**Commanders' DT Jonathan Allen likely out for season**\
+`In six games, he tallied 15 tackles, two sacks and two tackles for loss.`\
+https://nytimes.com/athletic/5843146/2024/10/14/commanders-jonathan-allen-pectoral-injury/
+
 **Read the document**\
 `Here are the records from Miami-Dade jail where Mr. Esformes was held after his arrest.`\
 https://nytimes.com/interactive/2024/10/14/us/202410-esformes-arrest-domestic-related-incident.html
