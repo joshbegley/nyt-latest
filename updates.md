@@ -1,3 +1,11 @@
+**Grading every Michigan position group at midseason**\
+`Tight ends and the defensive line are among the Michigan position groups meeting expectations, but several have fallen short.`\
+https://nytimes.com/athletic/5840562/2024/10/14/michigan-wolverines-football-midseason-report-card/
+
+**State of the Race: A Close Race Gets Closer**\
+`There’s no sign that a deluge of surveys from Republican-aligned firms is meaningfully affecting the polling averages.`\
+https://nytimes.com/2024/10/14/upshot/polling-trump-harris-election.html
+
 **Here are the latest developments.**\
 `By Jin Yu Young`\
 https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/here-are-the-latest-developments

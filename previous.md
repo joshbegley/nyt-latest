@@ -1,3 +1,7 @@
+**Grading every Michigan position group at midseason**\
+`Tight ends and the defensive line are among the Michigan position groups meeting expectations, but several have fallen short.`\
+https://nytimes.com/athletic/5840562/2024/10/14/michigan-wolverines-football-midseason-report-card/
+
 **Here are the latest developments.**\
 `By Jin Yu Young`\
 https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/here-are-the-latest-developments
@@ -18,19 +22,15 @@ https://nytimes.com/athletic/5839194/2024/10/14/tom-brady-raiders-ownership-time
 `Weather experts say the spiraling falsehoods, especially claims that the government is creating or controlling storms, have gotten out of hand.`\
 https://nytimes.com/2024/10/14/us/meteorologists-threats-conspiracy-theories-hurricanes.html
 
-**State of the Race: A Close Race Gets Closer**\
-`There’s no sign that a deluge of surveys from Republican-aligned firms are meaningfully affecting the polling averages.`\
-https://nytimes.com/2024/10/14/upshot/polling-trump-harris-election.html
-
 **Bengals defense came in waves to beat Giants and change the conversation**\
 `A unit that's been Cincinnati's weakness, particularly the defensive line, stepped up on a night the high-octane offense struggled to score.`\
 https://nytimes.com/athletic/5841971/2024/10/14/bengals-defense-giants-week-6/
 
+**State of the Race: A Close Race Gets Closer**\
+`There’s no sign that a deluge of surveys from Republican-aligned firms is meaningfully affecting the polling averages.`\
+https://nytimes.com/2024/10/14/upshot/polling-trump-harris-election.html
+
 **How the Falcons achieved 'the best feeling there is' by running over the Panthers**\
 `The Falcons rushed for 127 yards in the second half and 198 yards overall to win their third straight game and stay atop the AFC South.`\
 https://nytimes.com/athletic/5841438/2024/10/14/falcons-run-game-tyler-allgeier-panthers/
-
-**Oregon's win over Ohio State comes with a bonus: College Football Playoff Bubble Watch**\
-`Has Notre Dame moved back into the field? The full-of-surprises Big 12 is looking more and more like a two-bid league. `\
-https://nytimes.com/athletic/5840840/2024/10/14/college-football-playoff-bubble-watch-oregon-ohio-state/
 
