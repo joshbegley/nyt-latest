@@ -1,3 +1,7 @@
+**Gustavsson steals a point, but Wild were on fumes in OT loss to Jets: 3 takeaways**\
+`Filip Gustavsson's 33 saves kept the Wild in the game long enough to pick up a point against their Central Division rivals.`\
+https://nytimes.com/athletic/5840990/2024/10/13/wild-gustavsson-ohgren-winnipeg/
+
 **Browns continue to repeat same mistakes, as their season rapidly slips away**\
 `The Deshaun Watson experiment still shows no signs of working, but the Browns stubbornly plan to stay the course. `\
 https://nytimes.com/athletic/5841061/2024/10/13/browns-eagles-deshaun-watson-week-6/

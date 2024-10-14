@@ -1,3 +1,7 @@
+**Gustavsson steals a point, but Wild were on fumes in OT loss to Jets: 3 takeaways**\
+`Filip Gustavsson's 33 saves kept the Wild in the game long enough to pick up a point against their Central Division rivals.`\
+https://nytimes.com/athletic/5840990/2024/10/13/wild-gustavsson-ohgren-winnipeg/
+
 **Browns continue to repeat same mistakes, as their season rapidly slips away**\
 `The Deshaun Watson experiment still shows no signs of working, but the Browns stubbornly plan to stay the course. `\
 https://nytimes.com/athletic/5841061/2024/10/13/browns-eagles-deshaun-watson-week-6/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5840925/2024/10/13/drake-maye-patriots-texans-debut
 **A Little Bit of Power**\
 `With enough power to make a small difference, but only that, what do you do?`\
 https://nytimes.com/2024/10/13/podcasts/a-little-bit-of-power-this-american-life-nyt-audio.html
-
-**Harris Suggests Trump Is ‘Weak and Unstable’ in Pointed Challenge**\
-`Kamala Harris asked why Donald J. Trump had not released his medical records, appeared on “60 Minutes” or agreed to a second debate.`\
-https://nytimes.com/2024/10/13/us/politics/harris-trump-weak-and-unstable.html
 
