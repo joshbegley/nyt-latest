@@ -1,3 +1,7 @@
+**Israel Attacks Tent Camp at Gaza Hospital**\
+`People worked through smoke and darkness to extinguish fires and look through debris following the deadly attack on Deir al-Balah.`\
+https://nytimes.com/video/world/middleeast/100000009760032/gaza-israel-hamas-deir-al-balah.html
+
 **China’s Stock Markets Rebound on Promises to Help Businesses**\
 `Assurances from government officials on plans to strengthen the private sector offset a lack of specifics about economic stimulus.`\
 https://nytimes.com/2024/10/14/business/china-stocks-csi-300.html
