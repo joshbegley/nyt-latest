@@ -1,3 +1,7 @@
+**Next men up deliver for Bears in London: Cole Kmet at long snapper, backup DBs**\
+`The Bears lost their long snapper to injury Sunday and were further depleted in the secondary, but players across the roster stepped up.`\
+https://nytimes.com/athletic/5840668/2024/10/14/bears-cole-kmet-long-snapper-jaguars-london/
+
 **Grading every Michigan position group at midseason**\
 `Tight ends and the defensive line are among the Michigan position groups meeting expectations, but several have fallen short.`\
 https://nytimes.com/athletic/5840562/2024/10/14/michigan-wolverines-football-midseason-report-card/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841971/2024/10/14/bengals-defense-giants-week-6/
 **State of the Race: A Close Race Gets Closer**\
 `There’s no sign that a deluge of surveys from Republican-aligned firms is meaningfully affecting the polling averages.`\
 https://nytimes.com/2024/10/14/upshot/polling-trump-harris-election.html
-
-**How the Falcons achieved 'the best feeling there is' by running over the Panthers**\
-`The Falcons rushed for 127 yards in the second half and 198 yards overall to win their third straight game and stay atop the AFC South.`\
-https://nytimes.com/athletic/5841438/2024/10/14/falcons-run-game-tyler-allgeier-panthers/
 
