@@ -1,3 +1,11 @@
+**Rams working out Kupp to determine his return**\
+`Kupp hasn't played since Week 2 when he injured his ankle against Arizona. It's possible he could return this week vs. Las Vegas.`\
+https://nytimes.com/athletic/5843222/2024/10/14/cooper-kupp-injury-update-rams/
+
+**Ethel Kennedy, Matriarch of Family Dynasty, Honored at Cape Cod Funeral**\
+`Several politicians and relatives, including her son Robert F. Kennedy Jr. and his wife, the actress Cheryl Hines, were in attendance.`\
+https://nytimes.com/2024/10/14/us/ethel-kennedy-funeral.html
+
 **Armed Man Arrested After Reportedly Threatening FEMA Workers**\
 `William Jacob Parsons was arrested and charged in North Carolina after he was found with a handgun and a rifle at a supermarket where a federal aid vehicle was parked.`\
 https://nytimes.com/2024/10/14/us/fema-threats-arrest-north-carolina.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/14/us/christopher-rufo-kamala-harris-book.html
 **Commanders' DT Jonathan Allen likely out for season**\
 `In six games, he tallied 15 tackles, two sacks and two tackles for loss.`\
 https://nytimes.com/athletic/5843146/2024/10/14/commanders-jonathan-allen-pectoral-injury/
-
-**Read the document**\
-`Here are the records from Miami-Dade jail where Mr. Esformes was held after his arrest.`\
-https://nytimes.com/interactive/2024/10/14/us/202410-esformes-arrest-domestic-related-incident.html
-
-**Mendy, Manchester City and an explosive £11m tribunal claim**\
-`French defender's employment tribunal hearing with his former club contained some startling allegations`\
-https://nytimes.com/athletic/5830961/2024/10/14/benjamin-mendy-manchester-city-tribunal-wages/
 

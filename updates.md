@@ -1,3 +1,11 @@
+**Rams working out Kupp to determine his return**\
+`Kupp hasn't played since Week 2 when he injured his ankle against Arizona. It's possible he could return this week vs. Las Vegas.`\
+https://nytimes.com/athletic/5843222/2024/10/14/cooper-kupp-injury-update-rams/
+
+**Ethel Kennedy, Matriarch of Family Dynasty, Honored at Cape Cod Funeral**\
+`Several politicians and relatives, including her son Robert F. Kennedy Jr. and his wife, the actress Cheryl Hines, were in attendance.`\
+https://nytimes.com/2024/10/14/us/ethel-kennedy-funeral.html
+
 **Armed Man Arrested After Reportedly Threatening FEMA Workers**\
 `William Jacob Parsons was arrested and charged in North Carolina after he was found with a handgun and a rifle at a supermarket where a federal aid vehicle was parked.`\
 https://nytimes.com/2024/10/14/us/fema-threats-arrest-north-carolina.html
