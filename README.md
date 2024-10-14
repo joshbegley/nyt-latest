@@ -1,3 +1,15 @@
+**New Jersey Transit Train Hits Tree on Track, Killing Train Operator**\
+`Nearly two dozen people were injured when the light rail train collided with a chunk of tree in South Jersey.`\
+https://nytimes.com/video/us/100000009760825/new-jersey-transit.html
+
+**Browns' Stefanski sticking with Watson at QB: 'Gives us the best chance to win'**\
+`Cleveland's offense ranks near the bottom in every major offensive category this season.`\
+https://nytimes.com/athletic/5843099/2024/10/14/browns-deshaun-watson-kevin-stefanski-quarterback-decision/
+
+**The U.N. says Israeli shells hit a food distribution center in northern Gaza.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/the-un-says-israeli-shells-hit-a-food-distribution-center-in-northern-gaza
+
 **Another Trump Clemency Recipient Faces Domestic Violence-Related Charges**\
 `Philip Esformes is at least the seventh person to be charged with new crimes after receiving a second chance in the last days of the Trump administration.`\
 https://nytimes.com/2024/10/14/us/politics/philip-esformes-trump-clemency-recipient-new-charges.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5842970/2024/10/14/detroit-tigers-javier-baez-free-
 **Notre Dame loses All-American CB Morrison to injury**\
 `Morrison, a potential first-round NFL Draft pick, has likely played his final game in a Notre Dame uniform.`\
 https://nytimes.com/athletic/5842979/2024/10/14/benjamin-morrison-notre-dame-injury/
-
-**Philogene doubtful for Fulham clash after sustaining injury with England Under-21s**\
-`Aston Villa winger Jaden Philogene is a doubt for his side&#8217;s Premier League game against Fulham after sustaining an injury while playing for England&#8217;s Under-21s.`\
-https://nytimes.com/athletic/5841973/2024/10/14/jaden-philogene-injury-villa-england/
-
-**Brighton trio return to training before Newcastle match**\
-`Brighton &amp; Hove Albion have been given a triple boost by the returns to training of Georginio Rutter, Jan Paul van Hecke and Simon Adingra in preparation for Saturday&#8217;s trip to Newcastle United.`\
-https://nytimes.com/athletic/5843024/2024/10/14/brightons-injuries-rutter-van-hecke-adingra/
-
-**Greenberg: Cubs chairman Tom Ricketts' words ring hollow in latest letter to fans**\
-`Ricketts is trying to manifest the Cubs' return to the playoffs through his writing as fans wait for next chapter of "amazing story."`\
-https://nytimes.com/athletic/5842714/2024/10/14/chicago-cubs-tom-ricketts-letter-fans/
 
