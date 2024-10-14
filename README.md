@@ -1,3 +1,11 @@
+**In Jordan, a ‘Stunning’ Discovery Under Petra’s Ancient Stone**\
+`A recent excavation has unearthed 12 human skeletons and a chamber of grave offerings near Petra’s Treasury building, a UNESCO World Heritage site.`\
+https://nytimes.com/2024/10/14/world/petra-tomb-discovered-jordan.html
+
+**Florida turns to freshman DJ Lagway with Graham Mertz out for the season**\
+`Lagway, a former five-star recruit, has completed 47 of 72 passes (65.3 percent) for 765 yards, five touchdowns and four interceptions.`\
+https://nytimes.com/athletic/5842765/2024/10/14/florida-dj-lagway-graham-mertz-quarterback/
+
 **Kamala Harris Sets an Interview with a Not-So-Friendly Outlet: Fox News.**\
 `The interview, to be conducted by the anchor Bret Baier in Pennsylvania, will air Wednesday at 6 p.m. Eastern.`\
 https://nytimes.com/2024/10/14/business/media/fox-news-kamala-harris-interview.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/14/world/middleeast/hezbollah-drone-attack-israel.ht
 **Lloyd: Cleveland consumed by Guardians, Browns — teams on very different trajectories**\
 `The Browns are the toxic partner who takes and takes and never really loves the fans back. The Guardians have been stuck in the friend zone.`\
 https://nytimes.com/athletic/5842504/2024/10/14/browns-guardians-yankees-game-1-eagles/
-
-**Trump and Harris Both Like a Child Tax Credit, but With Different Aims**\
-`Kamala Harris’s campaign is pushing a version of the credit intended to fight child poverty, while Donald J. Trump sees the program primarily as a tax cut for people higher up the income scale.`\
-https://nytimes.com/2024/10/14/us/politics/trump-harris-child-tax-credit.html
-
-**Yankees announce roster for ALCS vs. Guardians: Rizzo, Stroman return**\
-`The Yankees will carry 12 pitchers for the best-of-seven game ALCS versus Cleveland.`\
-https://nytimes.com/athletic/5841442/2024/10/14/yankees-alcs-roster-stroman-rizzo/
 
