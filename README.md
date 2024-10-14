@@ -1,3 +1,7 @@
+**Dodgers' Clayton Kershaw says he plans to pitch in 2025**\
+`“I had shoulder surgery last offseason, and my shoulder and elbow, everything, my arm, feels great," Kershaw said.`\
+https://nytimes.com/athletic/5843267/2024/10/14/dodgers-clayton-kershaw-2025/
+
 **Lillian Schwartz, Pioneer in Computer-Generated Art, Dies at 97**\
 `Early in the digital era, she worked at Bell Labs on the intersection of art and technology, making films and at one point arriving at a novel theory about the “Mona Lisa.”`\
 https://nytimes.com/2024/10/14/technology/lillian-schwartz-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/us/door-county-wisconsin-election.html
 **Colts QB Anthony Richardson 'really close' to returning**\
 `Second-year quarterback has missed two games since suffering hip injury in Week 4.`\
 https://nytimes.com/athletic/5843171/2024/10/14/colts-anthony-richardson-injury-update/
-
-**Conservative Activist Seizes on Passages From Harris Book**\
-`A report by Christopher Rufo says the Democratic presidential nominee copied five short passages for her 2009 book on crime. A plagiarism expert said the lapses were not serious.`\
-https://nytimes.com/2024/10/14/us/christopher-rufo-kamala-harris-book.html
 
