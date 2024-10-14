@@ -1,3 +1,7 @@
+**Armed Man Arrested After Reportedly Threatening FEMA Workers**\
+`William Jacob Parsons was arrested and charged in North Carolina after he was found with a handgun and a rifle at a supermarket where a federal aid vehicle was parked.`\
+https://nytimes.com/2024/10/14/us/fema-threats-arrest-north-carolina.html
+
 **Survivors of Gaza Hospital Blaze Say They Are Living a ‘Recurring Nightmare’**\
 `Scores of families sheltering outside Al Aqsa Martyrs Hospital say they have survived a string of Israeli strikes on the compound and feel trapped with nowhere to go.`\
 https://nytimes.com/2024/10/14/world/middleeast/gaza-al-aqsa-hospital-israel.html
@@ -10,8 +14,8 @@ https://nytimes.com/2024/10/14/us/politics/a-harris-ad-uses-the-hurricanes-to-tr
 `Door County, Wis., has picked the presidential winner since 1996. Last time, the margin was 292 votes, so the campaigns are trying to reach every household.`\
 https://nytimes.com/2024/10/14/us/door-county-wisconsin-election.html
 
-**Colts' QB Anthony Richardson 'really close' to returning**\
-`Second-year quarterback has missed two games with hip injury.`\
+**Colts QB Anthony Richardson 'really close' to returning**\
+`Second-year quarterback has missed two games since suffering hip injury in Week 4.`\
 https://nytimes.com/athletic/5843171/2024/10/14/colts-anthony-richardson-injury-update/
 
 **Conservative Activist Seizes on Passages From Harris Book**\
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/10/14/us/202410-esformes-arrest-domestic-re
 **Mendy, Manchester City and an explosive £11m tribunal claim**\
 `French defender's employment tribunal hearing with his former club contained some startling allegations`\
 https://nytimes.com/athletic/5830961/2024/10/14/benjamin-mendy-manchester-city-tribunal-wages/
-
-**New Jersey Transit Train Hits Tree on Track, Killing Train Operator**\
-`Nearly two dozen people were injured when the light rail train collided with a chunk of tree in South Jersey.`\
-https://nytimes.com/video/us/100000009760825/new-jersey-transit.html
 

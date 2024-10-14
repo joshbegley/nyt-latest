@@ -1,3 +1,11 @@
+**Armed Man Arrested After Reportedly Threatening FEMA Workers**\
+`William Jacob Parsons was arrested and charged in North Carolina after he was found with a handgun and a rifle at a supermarket where a federal aid vehicle was parked.`\
+https://nytimes.com/2024/10/14/us/fema-threats-arrest-north-carolina.html
+
+**Colts QB Anthony Richardson 'really close' to returning**\
+`Second-year quarterback has missed two games since suffering hip injury in Week 4.`\
+https://nytimes.com/athletic/5843171/2024/10/14/colts-anthony-richardson-injury-update/
+
 **Survivors of Gaza Hospital Blaze Say They Are Living a ‘Recurring Nightmare’**\
 `Scores of families sheltering outside Al Aqsa Martyrs Hospital say they have survived a string of Israeli strikes on the compound and feel trapped with nowhere to go.`\
 https://nytimes.com/2024/10/14/world/middleeast/gaza-al-aqsa-hospital-israel.html
