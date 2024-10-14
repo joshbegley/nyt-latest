@@ -1,3 +1,11 @@
+**Raiders' Crosby speaks to reporters following shove**\
+`Raiders' Maxx Crosby was shown on CBS broadcast shoving an assistant coach on the sideline during 32-13 loss to Steelers.`\
+https://nytimes.com/athletic/5841559/2024/10/13/raiders-maxx-crosby-sideline-shove/
+
+**Wild hope captain Jared Spurgeon's absence doesn't signal a repeat of last season**\
+`The Wild have yet to announce what's ailing their captain, but more than anything they'd like to avoid deja vu.`\
+https://nytimes.com/athletic/5841563/2024/10/13/wild-jared-spurgeon-injury-uncertainty-jets/
+
 **Trump Receives Endorsement from Border Patrol Union**\
 `The National Border Patrol Council formally pledged its support for the former president, appearing onstage with him during a rally in Arizona.`\
 https://nytimes.com/video/us/elections/100000009759918/trump-border-patrol-union-arizona.html
