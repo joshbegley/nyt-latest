@@ -1,3 +1,7 @@
+**The NBA has entered a new era of parity. How did we get here and what's next?**\
+`Last year, the Boston Celtics became the sixth different team to win a championship in the past six seasons. Is the era of parity upon us? `\
+https://nytimes.com/athletic/5829336/2024/10/14/nba-parity-salary-cap-rules-whats-next/
+
 **Donte DiVincenzo's toughness is making a strong first impression with Wolves**\
 `Sometimes a little scuffle is all it takes to cement the bond between new teammates.`\
 https://nytimes.com/athletic/5840861/2024/10/14/donte-divincenzo-timberwolves-rick-brunson-scuffle/
