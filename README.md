@@ -1,3 +1,15 @@
+**Brighton trio return to training before Newcastle match**\
+`Brighton &amp; Hove Albion have been given a triple boost by the returns to training of Georginio Rutter, Jan Paul van Hecke and Simon Adingra in preparation for Saturday&#8217;s trip to Newcastle United.`\
+https://nytimes.com/athletic/5843024/2024/10/14/brightons-injuries-rutter-van-hecke-adingra/
+
+**Greenberg: Cubs chairman Tom Ricketts' words ring hollow in latest letter to fans**\
+`Ricketts is trying to manifest the Cubs' return to the playoffs through his writing as fans wait for next chapter of "amazing story."`\
+https://nytimes.com/athletic/5842714/2024/10/14/chicago-cubs-tom-ricketts-letter-fans/
+
+**What to Know About the Antimissile System the U.S. Is Sending to Israel**\
+`The THAAD system, which can intercept missiles above earth’s atmosphere, is being deployed to defend against Iranian attacks.`\
+https://nytimes.com/2024/10/14/world/middleeast/israel-thaad-missile-defense.html
+
 **College football best bets Week 8: Georgia to cover in Texas and four more spread bets**\
 `Austin Mock uses his model to pick five spread bets for college football Week 8, including the game of the week.`\
 https://nytimes.com/athletic/5842470/2024/10/14/college-football-best-bets-week-8-georgia-texas-michigan/
@@ -22,16 +34,4 @@ https://nytimes.com/athletic/5842547/2024/10/14/ap-top-25-mens-basketball-presea
 **Astros part ways with third-base coach Gary Pettis: Source**\
 `Pettis was the longest-tenured member of Houston's coaching staff, having joined the club prior to the 2015 season.`\
 https://nytimes.com/athletic/5842852/2024/10/14/astros-gary-pettis-departure/
-
-**Italy Sends Boat to Albania With Migrants Who Were Bound for Italian Shores**\
-`The plan was heralded by the Italian government as an innovative model to manage and deter immigration, and criticized by human rights groups.`\
-https://nytimes.com/2024/10/14/world/europe/italy-migrants-albania.html
-
-**In Jordan, a ‘Stunning’ Discovery Under Petra’s Ancient Stone**\
-`A recent excavation has unearthed 12 human skeletons and a chamber of grave offerings near Petra’s Treasury building, a UNESCO World Heritage site.`\
-https://nytimes.com/2024/10/14/world/petra-tomb-discovered-jordan.html
-
-**Florida turns to freshman DJ Lagway with Graham Mertz out for the season**\
-`Lagway, a former five-star recruit, has completed 47 of 72 passes (65.3 percent) for 765 yards, five touchdowns and four interceptions.`\
-https://nytimes.com/athletic/5842765/2024/10/14/florida-dj-lagway-graham-mertz-quarterback/
 
