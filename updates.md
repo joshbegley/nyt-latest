@@ -1,3 +1,7 @@
+**Why Two Million Children May Starve in Africa**\
+`Supplies of a highly nutritious treatment are running out, according to UNICEF.`\
+https://nytimes.com/2024/10/14/health/children-malnutrition-africa-unicef.html
+
 **Francisco Lindor, Mark Vientos power Mets past Dodgers in Game 2: Takeaways**\
 `LOS ANGELES — The New York Mets flipped the Hollywood script on Monday and evened the National League Championship Series.`\
 https://nytimes.com/athletic/5843189/2024/10/14/mets-dodgers-nlcs-mark-vientos/
