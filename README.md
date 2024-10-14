@@ -1,3 +1,7 @@
+**McDaniel: Tua Tagovailoa expected to play football again in 2024**\
+`McDaniel told reporters Monday that Tagovailoa's return won't come in Week 7 against the Indianapolis Colts.`\
+https://nytimes.com/athletic/5842615/2024/10/14/tua-tagovailoa-return-mike-mcdaniel-dolphins/
+
 **How to Apply Blush Like a Professional**\
 `Tips from a “Saturday Night Live” cast member, a ballet dancer and a makeup artist.`\
 https://nytimes.com/2024/10/14/t-magazine/blush-tips-recommendation.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5842533/2024/10/14/fifa-formal-complaint-football-c
 **Fantasy football Week 6 recap: Can you trust Kyler Murray?**\
 `Kyler Murray is vexing fantasy owners with his inconsistency. Don't bet on him turning it around.`\
 https://nytimes.com/athletic/5842457/2024/10/14/fantasy-football-week-6-recap-can-you-trust-kyler-murray/
-
-**India Pulls Top Diplomat From Canada in Growing Spat Between the Countries**\
-`The move by the Indian government comes as the two countries have been locked in a dispute following the assassination of a Sikh separatist in Canada last year.`\
-https://nytimes.com/2024/10/14/world/canada/india-canada-ambassador-investigation.html
 
