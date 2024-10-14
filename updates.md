@@ -1,3 +1,7 @@
+**Mendy, Manchester City and an explosive £11m tribunal claim**\
+`French defender's employment tribunal hearing with his former club contained some startling allegations`\
+https://nytimes.com/athletic/5830961/2024/10/14/benjamin-mendy-manchester-city-tribunal-wages/
+
 **New Jersey Transit Train Hits Tree on Track, Killing Train Operator**\
 `Nearly two dozen people were injured when the light rail train collided with a chunk of tree in South Jersey.`\
 https://nytimes.com/video/us/100000009760825/new-jersey-transit.html
