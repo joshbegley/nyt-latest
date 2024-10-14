@@ -1,3 +1,7 @@
+**Giants fan survey: How are you feeling about Saquon Barkley returning as an Eagle?**\
+`Here's your chance to let us know how you feel about Barkely going green. Is he a traitor? `\
+https://nytimes.com/athletic/5842723/2024/10/14/new-york-giants-fan-survey-saquon-barkley/
+
 **Submit your Cowboys mailbag questions to Saad Yousuf**\
 `The Cowboys enter their bye week 3-3 after an ugly loss to the Lions. We know you have plenty of questions. `\
 https://nytimes.com/athletic/5843294/2024/10/14/submit-your-cowboys-mailbag-questions-to-saad-yousuf/
