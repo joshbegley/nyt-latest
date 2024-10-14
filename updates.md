@@ -1,3 +1,19 @@
+**'Nobody can imagine the demands' - Marcelo Bielsa and the Uruguay culture Luis Suarez says will explode**\
+`The Uruguay head coach has conceded his 'authority' has been affected after criticisms of his methods and last week's loss to Peru`\
+https://nytimes.com/athletic/5839113/2024/10/14/bielsa-suarez-uruguay-leeds/
+
+**Introducing the Noble Prize winners, 1992-2024**\
+`Forget physics, medicine, peace and all that serious stuff - it's time to recognise the best uncapped players of each Premier League season`\
+https://nytimes.com/athletic/5830979/2024/10/14/mark-noble-prize-winners/
+
+**Does the FA have a plan if Lee Carsley isn't the 'world-class coach' England need? Hopefully**\
+`Lee Carsley thinks England should appoint a “world-class coach” - but won't say if he wants it to be him and the FA isn't saying either`\
+https://nytimes.com/athletic/5835484/2024/10/14/england-world-class-coach-search/
+
+**How Aberdeen put together the best winning run in Europe's top 50 leagues**\
+`Aberdeen are the only team in UEFA’s top 50 ranked countries to have won every game they have played this season - how have they done it?`\
+https://nytimes.com/athletic/5836751/2024/10/14/aberdeen-best-team-in-europe/
+
 **Chelsea Pitch Owners: The unique organisation with the power to block Stamford Bridge move**\
 `Supporters are still waiting for Clearlake or Boehly to communicate a stadium plan but when they do CPO means they will have a big say`\
 https://nytimes.com/athletic/5839724/2024/10/14/chelsea-pitch-owners-power-stamford-bridge-move/
