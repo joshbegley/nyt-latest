@@ -1,3 +1,7 @@
+**York Theater Artistic Director Out After ‘Hurtful’ Diversity Comments**\
+`James Morgan, who has been with the small New York theater company for 50 years, blamed the effects of a stroke for his behavior.`\
+https://nytimes.com/2024/10/14/theater/james-morgan-york-theater.html
+
 **Twins to name Matt Borgschulte as hitting coach: Source**\
 `Following their late-season collapse, the Twins want to alter their offensive philosophy and hope to do so by bringing back an old friend.`\
 https://nytimes.com/athletic/5843433/2024/10/14/twins-matt-borgschulte-hitting-coach/
@@ -14,7 +18,7 @@ https://nytimes.com/2024/10/14/world/middleeast/gaza-aqsa-hospital-strike.html
 `Plus, an artist sues to reclaim his work.`\
 https://nytimes.com/2024/10/14/briefing/canada-india-gaza-harris-trump.html
 
-**How Trump Broke Arizona’s Republican Party**\
+**America Is on the Brink of a Great Political Realignment. It’s Already Visible in Arizona.**\
 `He and his acolytes purged the G.O.P. to make it smaller and more strident.`\
 https://nytimes.com/2024/10/14/opinion/trump-arizona-republican-party.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5843326/2024/10/14/francisco-lindor-breaks-dodgers-
 **Giants fan survey: How are you feeling about Saquon Barkley returning as an Eagle?**\
 `Here's your chance to let us know how you feel about Barkely going green. Is he a traitor? `\
 https://nytimes.com/athletic/5842723/2024/10/14/new-york-giants-fan-survey-saquon-barkley/
-
-**Eagles' Nick Sirianni apologizes for exchange with fans**\
-`Sirianni's exchange occurred shortly after Eagles receiver A.J. Brown hauled in a 40-yard pass from quarterback Jalen Hurts.`\
-https://nytimes.com/athletic/5841119/2024/10/14/eagles-nick-sirianni-exchange-browns-fans/
 
