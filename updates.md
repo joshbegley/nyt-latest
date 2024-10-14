@@ -1,3 +1,15 @@
+**Justin Herbert is getting healthier, and that is great news for the Chargers**\
+`Herbert's increased mobility allowed the Chargers to lean more heavily into the passing game in Sunday's win over the Broncos.`\
+https://nytimes.com/athletic/5841581/2024/10/13/justin-herbert-chargers-healthy-broncos/
+
+**Dodgers' pitchers tie MLB record in NLCS Game 1 victory over Mets: Takeaways**\
+`LOS ANGELES — Much was made of how the cascade of injuries to Los Angeles Dodgers pitchers would present problems in October.`\
+https://nytimes.com/athletic/5840991/2024/10/13/mets-padres-nlcs/
+
+**Raiders' Maxx Crosby downplays sideline shove of coach: I love Mike Caldwell'**\
+`Raiders' Maxx Crosby was shown on CBS broadcast shoving an assistant coach on the sideline during 32-13 loss to Steelers.`\
+https://nytimes.com/athletic/5841559/2024/10/13/raiders-maxx-crosby-sideline-shove/
+
 **Raiders' Crosby speaks to reporters following shove**\
 `Raiders' Maxx Crosby was shown on CBS broadcast shoving an assistant coach on the sideline during 32-13 loss to Steelers.`\
 https://nytimes.com/athletic/5841559/2024/10/13/raiders-maxx-crosby-sideline-shove/
