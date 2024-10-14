@@ -8,6 +8,11 @@ https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseaso
 `\
 https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseason/
 
+**Bulls, Ball targeting return Wednesday, first game since Jan. 2022**\
+`Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
+`\
+https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseason/
+
 **Philogene doubtful for Fulham clash after sustaining injury with England Under-21s**\
 `Aston Villa winger Jaden Philogene is a doubt for his side&#8217;s Premier League game against Fulham after sustaining an injury while playing for England&#8217;s Under-21s.`\
 https://nytimes.com/athletic/5841973/2024/10/14/jaden-philogene-injury-villa-england/
