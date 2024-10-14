@@ -1,3 +1,23 @@
+**Eagles escape Browns as Nick Sirianni draws attention for being "himself"**\
+`Nick Sirianni said the players wanted to see more energy from him.`\
+https://nytimes.com/athletic/5840115/2024/10/13/nick-sirianni-eagles-win-browns/
+
+**Man Is Arrested on Weapons Charges Heading to Trump Rally in Coachella, Officials Say**\
+`Law-enforcement officials said that former President Donald J. Trump was not in any danger, and the man was released on bail.`\
+https://nytimes.com/2024/10/13/us/politics/trump-rally-arrest-coachella.html
+
+**For Jayden Daniels' Commanders, a loss in Baltimore, but not a setback**\
+`Despite hype surrounding the QB matchup, Sunday was a reminder that the local rivals are in different places.`\
+https://nytimes.com/athletic/5841030/2024/10/13/commanders-loss-ravens-jayden-daniels-rebuild/
+
+**Filip Gustavsson steals a point, but Wild were on fumes in OT loss to Jets: 3 takeaways**\
+`Filip Gustavsson's 33 saves kept the Wild in the game long enough to pick up a point against their Central Division rivals.`\
+https://nytimes.com/athletic/5840990/2024/10/13/wild-gustavsson-ohgren-winnipeg/
+
+**Browns continue to repeat the same mistakes as their season rapidly slips away**\
+`The Deshaun Watson experiment still shows no signs of working, but the Browns stubbornly plan to stay the course. `\
+https://nytimes.com/athletic/5841061/2024/10/13/browns-eagles-deshaun-watson-week-6/
+
 **Gustavsson steals a point, but Wild were on fumes in OT loss to Jets: 3 takeaways**\
 `Filip Gustavsson's 33 saves kept the Wild in the game long enough to pick up a point against their Central Division rivals.`\
 https://nytimes.com/athletic/5840990/2024/10/13/wild-gustavsson-ohgren-winnipeg/

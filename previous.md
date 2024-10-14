@@ -1,8 +1,20 @@
-**Gustavsson steals a point, but Wild were on fumes in OT loss to Jets: 3 takeaways**\
+**Eagles escape Browns as Nick Sirianni draws attention for being "himself"**\
+`Nick Sirianni said the players wanted to see more energy from him.`\
+https://nytimes.com/athletic/5840115/2024/10/13/nick-sirianni-eagles-win-browns/
+
+**Man Is Arrested on Weapons Charges Heading to Trump Rally in Coachella, Officials Say**\
+`Law-enforcement officials said that former President Donald J. Trump was not in any danger, and the man was released on bail.`\
+https://nytimes.com/2024/10/13/us/politics/trump-rally-arrest-coachella.html
+
+**For Jayden Daniels' Commanders, a loss in Baltimore, but not a setback**\
+`Despite hype surrounding the QB matchup, Sunday was a reminder that the local rivals are in different places.`\
+https://nytimes.com/athletic/5841030/2024/10/13/commanders-loss-ravens-jayden-daniels-rebuild/
+
+**Filip Gustavsson steals a point, but Wild were on fumes in OT loss to Jets: 3 takeaways**\
 `Filip Gustavsson's 33 saves kept the Wild in the game long enough to pick up a point against their Central Division rivals.`\
 https://nytimes.com/athletic/5840990/2024/10/13/wild-gustavsson-ohgren-winnipeg/
 
-**Browns continue to repeat same mistakes, as their season rapidly slips away**\
+**Browns continue to repeat the same mistakes as their season rapidly slips away**\
 `The Deshaun Watson experiment still shows no signs of working, but the Browns stubbornly plan to stay the course. `\
 https://nytimes.com/athletic/5841061/2024/10/13/browns-eagles-deshaun-watson-week-6/
 
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5841119/2024/10/13/eagles-nick-sirianni-exchange-br
 **Lions decimate Cowboys 47-9, lose Hutchinson to leg inury: Takeaways**\
 `Detroit sets season highs in total yards and turnovers, while Dallas suffers the fifth-largest loss in Cowboys franchise history.`\
 https://nytimes.com/athletic/5838758/2024/10/13/lions-cowboys-score-takeaways-result/
-
-**Cousins, rushing attack powers Falcons past Panthers, 38-20: Takeaways**\
-`Atlanta's third straight win keeps the Falcons atop the NFC South.`\
-https://nytimes.com/athletic/5838752/2024/10/13/falcons-panthers-score-results-takeaways/
-
-**Drake Maye impresses, but another Patriots blowout loss shows rebuild has a long way to go**\
-`The rookie No. 3 pick fared well in his first NFL start, but the Patriots still have a long way to go. `\
-https://nytimes.com/athletic/5840925/2024/10/13/drake-maye-patriots-texans-debut/
-
-**A Little Bit of Power**\
-`With enough power to make a small difference, but only that, what do you do?`\
-https://nytimes.com/2024/10/13/podcasts/a-little-bit-of-power-this-american-life-nyt-audio.html
 
