@@ -1,3 +1,7 @@
+**Fantasy football Week 6 recap: Can you trust Kyler Murray?**\
+`Kyler Murray is vexing fantasy owners with his inconsistency. Don't bet on him turning it around.`\
+https://nytimes.com/athletic/5842457/2024/10/14/fantasy-football-week-6-recap-can-you-trust-kyler-murray/
+
 **India Pulls Top Diplomat From Canada in Growing Spat Between the Countries**\
 `The move by the Indian government comes as the two countries have been locked in a dispute following the assassination of a Sikh separatist in Canada last year.`\
 https://nytimes.com/2024/10/14/world/canada/india-canada-ambassador-investigation.html
