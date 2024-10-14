@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`A Hezbollah attack on an Israeli military base.`\
+https://nytimes.com/2024/10/14/world/europe/hezbollah-israel-election-spacex.html
+
 **Another Trump Term Would Make China Great Again**\
 `Trump remains well outside a bipartisan consensus on competing with China.`\
 https://nytimes.com/2024/10/14/opinion/trump-china-election.html
