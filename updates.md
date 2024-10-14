@@ -1,3 +1,19 @@
+**Why I Joined: Distinctive content and storytelling like nowhere else**\
+`Aimee Lewis has joined The Athletic as a senior editor - this is why she's here and what she's looking to achieve...`\
+https://nytimes.com/athletic/5840018/2024/10/14/why-i-joined-distinctive-content-and-storytelling-like-nowhere-else/
+
+**Smith is spearheading Liverpool revolution, but Shaw shows how far they have to go**\
+`Despite the defeat, Liverpool's performance promises to be a place from which to grow into their high early-season expectations`\
+https://nytimes.com/athletic/5840520/2024/10/14/liverpool-smith-wsl-manchester-city-shaw/
+
+**How Israel’s Army Uses Palestinians as Human Shields in Gaza**\
+`Israeli soldiers and Palestinian former detainees say troops have regularly forced captured Gazans to carry out life-threatening tasks, including inside Hamas tunnels.`\
+https://nytimes.com/2024/10/14/world/middleeast/israel-gaza-military-human-shields.html
+
+**Belgium vs France preview: Storylines, odds, prediction as neighbors meet in Brussels**\
+`Belgium and France meet in Brussels for a UEFA Nations League showdown. The French are slight favorites away from home.`\
+https://nytimes.com/athletic/5837674/2024/10/14/belgium-france-preview-odds-prediction/
+
 **Raiders' Maxx Crosby downplays sideline shove of coach: 'I love Mike Caldwell'**\
 `Raiders' Maxx Crosby was shown on CBS broadcast shoving an assistant coach on the sideline during 32-13 loss to Steelers.`\
 https://nytimes.com/athletic/5841559/2024/10/13/raiders-maxx-crosby-sideline-shove/
