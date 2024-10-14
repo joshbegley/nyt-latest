@@ -1,3 +1,11 @@
+**Mets flattened in uncharacteristically sloppy Game 1 loss**\
+`Given how rough Kodai Senga's outing was, it’s reasonable to wonder if he deserves another one.`\
+https://nytimes.com/athletic/5841848/2024/10/14/mets-dodgers-nlcs-kodai-senga-loss/
+
+**Jack Flaherty latest headliner in Dodgers' record playoff scoreless streak**\
+`Flaherty delivered seven scoreless innings in the Dodgers' 9-0 thumping of the Mets.`\
+https://nytimes.com/athletic/5841818/2024/10/14/jack-flaherty-dodgers-record-playoff-scoreless-streak-nlcs/
+
 **Dodgers' Freddie Freeman will keep running until he can't: 'An absolute dog'**\
 `Freeman's injury prevents him from bending the joint at the top of his ankle and makes every step a challenge.`\
 https://nytimes.com/athletic/5841775/2024/10/14/dodgers-freddie-freeman-nlcs-ankle/
