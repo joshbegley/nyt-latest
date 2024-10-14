@@ -1,3 +1,7 @@
+**Lilly Ledbetter, Whose Fight for Equal Pay Changed U.S. Law, Dies at 86**\
+`Her lawsuit against Goodyear helped pave the way for the 2009 Fair Pay Act, which was signed into law by former President Barack Obama.`\
+https://nytimes.com/2024/10/14/obituaries/lilly-ledbetter-dead.html
+
 **Russia Is Clawing Back Land Taken by Ukraine This Summer**\
 `Moscow’s forces have been recapturing some villages and land taken in a Ukrainian incursion into Russia. The advances could undermine Kyiv’s hopes of pushing Russia to the negotiating table.`\
 https://nytimes.com/2024/10/14/world/europe/russia-is-clawing-back-land-taken-by-ukraine-this-summer.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841985/2024/10/14/new-york-giants-defense-bengals-
 **Khris Middleton on Bucks' goals, 'injury prone' label and blocking outside noise**\
 `A couple other teams are on the rise in the East, but the 33-year-old doesn't care. His focus this season is internal.`\
 https://nytimes.com/athletic/5836938/2024/10/14/khris-middleton-milwaukee-bucks-interview/
-
-**Can Wall St. Help Harris Win Pennsylvania?**\
-`The vice president has raised huge sums and has won over many business leaders. Despite that, the presidential race remains tight in battleground states.`\
-https://nytimes.com/2024/10/14/business/dealbook/wall-st-harris-support-election.html
 
