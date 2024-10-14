@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5843024/2024/10/14/brightons-injuries-rutter-van-he
 `Ricketts is trying to manifest the Cubs' return to the playoffs through his writing as fans wait for next chapter of "amazing story."`\
 https://nytimes.com/athletic/5842714/2024/10/14/chicago-cubs-tom-ricketts-letter-fans/
 
-**What to Know About the THAAD Missile Defense the U.S. Gave to Israel**\
+**What is the THAAD Antimissile System the U.S. Just Gave to Israel?**\
 `It can intercept missiles above earth’s atmosphere, and is being deployed to defend against Iranian attacks.`\
 https://nytimes.com/2024/10/14/world/middleeast/israel-thaad-missile-defense.html
 
