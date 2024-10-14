@@ -1,3 +1,7 @@
+**Amid a Water Crisis, England Asks: Who Should Be in Charge?**\
+`Four decades after privatization, calls to nationalize the water industry have swept across England and Wales amid sewage spills and rising household bills.`\
+https://nytimes.com/2024/10/14/business/uk-thames-water-sewage-crisis.html
+
 **The Windup: Do the Mets have an answer for Ohtani?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5842745/2024/10/14/dodgers-mets-shohei-ohtani-the-windup/
@@ -16,7 +20,7 @@ https://nytimes.com/2024/10/14/us/politics/trump-harris-child-tax-credit.html
 
 **Yankees announce roster for ALCS vs. Guardians: Rizzo, Stroman return**\
 `The Yankees will carry 12 pitchers for the best-of-seven game ALCS versus Cleveland.`\
-https://nytimes.com/athletic/5841442/2024/10/14/yankees-announce-roster-for-alcs-vs-guardians-marcus-stroman-anthony-rizzo-back/
+https://nytimes.com/athletic/5841442/2024/10/14/yankees-alcs-roster-stroman-rizzo/
 
 **What I liked — and didn't like — after watching film of Ohio State's loss at Oregon**\
 `Ohio State's defense had trouble slowing down Oregon's speedy wide receivers. What can DC Jim Knowles do to fix the problem?`\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/world/europe/berlusconi-bunga-bunga-women.html
 **McDaniel: Tua Tagovailoa expected to play football again in 2024**\
 `McDaniel told reporters Monday that Tagovailoa's return won't come in Week 7 against the Indianapolis Colts.`\
 https://nytimes.com/athletic/5842615/2024/10/14/tua-tagovailoa-return-mike-mcdaniel-dolphins/
-
-**How to Apply Blush Like a Professional**\
-`Tips from a “Saturday Night Live” cast member, a ballet dancer and a makeup artist.`\
-https://nytimes.com/2024/10/14/t-magazine/blush-tips-recommendation.html
 
