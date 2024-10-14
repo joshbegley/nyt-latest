@@ -1,3 +1,11 @@
+**Browns continue to repeat same mistakes, as their season rapidly slips away**\
+`The Deshaun Watson experiment still shows no signs of working, but the Browns stubbornly plan to stay the course. `\
+https://nytimes.com/athletic/5841061/2024/10/13/browns-eagles-deshaun-watson-week-6/
+
+**Do Ravens have NFL's best offense? They made a case in win over Commanders**\
+`“Everything was working,” said RB Derrick Henry, who rushed for 132 yards and two touchdowns Sunday. “It was like, ‘Pick your poison.'”`\
+https://nytimes.com/athletic/5841034/2024/10/13/ravens-commanders-nfl-best-offense/
+
 **Breanna Stewart scored 21 points but her disruptive defense sealed the Liberty's Game 2 victory**\
 `Stewart helped hold the Lynx to an unusually low point total.`\
 https://nytimes.com/athletic/5841183/2024/10/13/breanna-stewart-game-2-wnba-finals-defense/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/13/podcasts/a-little-bit-of-power-this-american-life
 **Harris Suggests Trump Is ‘Weak and Unstable’ in Pointed Challenge**\
 `Kamala Harris asked why Donald J. Trump had not released his medical records, appeared on “60 Minutes” or agreed to a second debate.`\
 https://nytimes.com/2024/10/13/us/politics/harris-trump-weak-and-unstable.html
-
-**Steelers run through Raiders for 32-13 win: Takeaways**\
-`The Raiders' QB switch didn't matter much on Sunday as the Steelers' defense and run game dominated.`\
-https://nytimes.com/athletic/5838738/2024/10/13/steelers-raiders-score-results-takeaways/
-
-**Justin Herbert paces Chargers in 23-16 win vs. Broncos: Takeaways**\
-`Herbert threw for a season-high 237 yards Sunday in a 23-16 win over the Broncos. `\
-https://nytimes.com/athletic/5838732/2024/10/13/broncos-chargers-score-results-takeaways/
 
