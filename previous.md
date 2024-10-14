@@ -1,3 +1,19 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/14/crosswords/spelling-bee-forum.html
+
+**An Artist Signed Over His Career to Investors. Now He Wants It Back.**\
+`Bjarne Melgaard’s rise in the art world came with strings attached and an unusual contract with investors. Now he’s suing to regain control of his artwork.`\
+https://nytimes.com/2024/10/14/arts/design/bjarne-melgaard-lawsuit-norway.html
+
+**In Heated House Race, a Moderate Republican Goes Full Trump**\
+`Representative Marc Molinaro of New York, running against Josh Riley, a Democrat, has accused recent immigrants of committing violent crimes and killing pets.`\
+https://nytimes.com/2024/10/14/nyregion/marc-molinaro-josh-riley.html
+
+**Lonnie Walker, a former first-rounder, is grateful to compete for a spot on the Celtics**\
+`Rock bottom is bad, but Walker is trying to turn his into a positive. "I’ve finally found myself comfortable in an uncomfortable situation."`\
+https://nytimes.com/athletic/5841916/2024/10/14/celtics-lonnie-walker/
+
 **After weeks of magical moments, the Mets have their first postseason dud**\
 `“The energy is still here,” said Starling Marte, despite the blowout loss, echoing a sentiment shared by his New York teammates.`\
 https://nytimes.com/athletic/5841803/2024/10/14/mets-postseason-dud/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5841775/2024/10/14/dodgers-freddie-freeman-nlcs-ank
 **Monday Briefing**\
 `A Hezbollah attack on an Israeli military base.`\
 https://nytimes.com/2024/10/14/world/europe/hezbollah-israel-election-spacex.html
-
-**Another Trump Term Would Make China Great Again**\
-`Trump remains well outside a bipartisan consensus on competing with China.`\
-https://nytimes.com/2024/10/14/opinion/trump-china-election.html
-
-**What’s on TV This Week: ‘The Wranglers’ and ‘Elsbeth’**\
-`A CW documentary, inspired by the series “Yellowstone,” shows what real life in ranch country looks like. And “The Good Wife” spinoff is back for a second season.`\
-https://nytimes.com/2024/10/14/arts/television/whats-on-tv-this-week-the-wranglers-and-elsbeth.html
-
-**Exclusive: Mets' Brandon Nimmo reveals he's dealing with plantar fasciitis**\
-`Nimmo believes he aggravated the injury in the sixth inning of Game 3 against the Phillies.`\
-https://nytimes.com/athletic/5841786/2024/10/14/mets-brandon-nimmo-plantar-fasciitis-nlcs/
-
-**'I want to get back to where I was': What next for Liverpool's Rhys Williams as he rebuilds in League Two?**\
-`The 23-year-old defender's career went from Champions League to tough lower-division loans. Is Morecambe the place where he can rebound?`\
-https://nytimes.com/athletic/5829581/2024/10/14/rhys-williams-interview-liverpool-morecambe/
 
