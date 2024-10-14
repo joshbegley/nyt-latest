@@ -1,3 +1,7 @@
+**Arsenal hopeful Saka will be fit to face Bournemouth**\
+`Bukayo Saka is hopeful he will be fit to face Bournemouth on Saturday after a hamstring issue saw him miss England&#8217;s Nations League match against Finland.`\
+https://nytimes.com/athletic/5836258/2024/10/14/bukayo-saka-injury-update-arsenal/
+
 **Gleeman: Pohlads selling Twins cause for fan excitement even as uncertainty looms**\
 `Forty years is enough. For Twins fans' sake, hopefully behind Door No. 2 is a new owner who doesn't view the team strictly as a business. `\
 https://nytimes.com/athletic/5836677/2024/10/14/minnesota-twins-fans-pohlads-selling-team/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841356/2024/10/14/dodgers-mets-bengals-giants-the-
 **How Matas Buzelis has made Chicago Bulls teammates believers: 'He has tremendous upside'**\
 `Buzelis' coach has called him “fearless.” One teammate even described the rookie as the Bulls’ most athletic player. Expectations are high.`\
 https://nytimes.com/athletic/5841347/2024/10/14/matas-buzelis-chicago-bulls-nba/
-
-**Dak Prescott's mistakes took center stage in a game Cowboys needed his best**\
-`The Cowboys were shorthanded on defense entering the game, but Dak Prescott and company failed to pick up the slack vs. the Lions.`\
-https://nytimes.com/athletic/5841688/2024/10/14/dak-prescott-cowboys-bad-game-lions/
 
