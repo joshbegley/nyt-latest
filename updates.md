@@ -1,3 +1,11 @@
+**DiVincenzo, Rick Brunson have heated exchange during Knicks-Timberwolves**\
+`"I didn't see it," New York head coach Tom Thibodeau said after the game. "Two competitive guys. Stuff like that does happen."`\
+https://nytimes.com/athletic/5841314/2024/10/13/knicks-timberwolves-donte-divincenzo-rick-brunson-altercation/
+
+**Yankees' high-tech pitching robot might be key to cracking Guardians' elite bullpen**\
+`As the Yankees prepare to face the Guardians, a team with one of the game's best bullpens, they will look to a helpful machine.`\
+https://nytimes.com/athletic/5841288/2024/10/13/yankees-guardians-alcs-trajekt/
+
 **Raiders' conservative approach doesn't do offense any favors in loss to Steelers**\
 `Antonio Pierce and Luke Getsy called the offense Sunday like they didn't trust QB Aidan O'Connell, who made his first start of the season.`\
 https://nytimes.com/athletic/5841200/2024/10/13/raiders-steelers-conservative-offense-aidan-oconnell/
