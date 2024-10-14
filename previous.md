@@ -1,3 +1,11 @@
+**College football best bets Week 8: Georgia to cover in Texas and four more spread bets**\
+`Austin Mock uses his model to pick five spread bets for college football Week 8, including the game of the week.`\
+https://nytimes.com/athletic/5842470/2024/10/14/college-football-best-bets-week-8-georgia-texas-michigan/
+
+**NASCAR Charlotte Roval takeaways: Alex Bowman's DQ and a case for the oval**\
+`Even after the "wild-card" tracks, most of the favorites advanced Sunday. Plus, thoughts on Alex Bowman, the Roval vs. the oval, and more.`\
+https://nytimes.com/athletic/5840879/2024/10/14/nascar-charlotte-roval-takeaways-playoffs-alex-bowman/
+
 **Kirby Smart said he didn't realize he shoved Michael Van Buren Jr. during Saturday's game**\
 `Smart said he spoke to Van Buren on Sunday after shoving the Mississippi State quarterback during Saturday's game.`\
 https://nytimes.com/athletic/5842891/2024/10/14/kirby-smart-michael-van-buren-jr-georgia-mississippi-state/
@@ -26,12 +34,4 @@ https://nytimes.com/2024/10/14/world/petra-tomb-discovered-jordan.html
 **Florida turns to freshman DJ Lagway with Graham Mertz out for the season**\
 `Lagway, a former five-star recruit, has completed 47 of 72 passes (65.3 percent) for 765 yards, five touchdowns and four interceptions.`\
 https://nytimes.com/athletic/5842765/2024/10/14/florida-dj-lagway-graham-mertz-quarterback/
-
-**Kamala Harris Sets an Interview with a Not-So-Friendly Outlet: Fox News.**\
-`The interview, to be conducted by the anchor Bret Baier in Pennsylvania, will air Wednesday at 6 p.m. Eastern.`\
-https://nytimes.com/2024/10/14/business/media/fox-news-kamala-harris-interview.html
-
-**James returns to Chelsea training following hamstring injury**\
-`Chelsea captain Reece James has returned to training with team-mates following a hamstring injury.`\
-https://nytimes.com/athletic/5842756/2024/10/14/reece-james-injury-chelsea-training/
 
