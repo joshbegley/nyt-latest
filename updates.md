@@ -1,3 +1,7 @@
+**How Matas Buzelis has made Chicago Bulls teammates believers: 'He has tremendous upside'**\
+`Buzelis' coach has called him “fearless.” One teammate even described the rookie as the Bulls’ most athletic player. Expectations are high.`\
+https://nytimes.com/athletic/5841347/2024/10/14/matas-buzelis-chicago-bulls-nba/
+
 **Dak Prescott's mistakes took center stage in a game Cowboys needed his best**\
 `The Cowboys were shorthanded on defense entering the game, but Dak Prescott and company failed to pick up the slack vs. the Lions.`\
 https://nytimes.com/athletic/5841688/2024/10/14/dak-prescott-cowboys-bad-game-lions/
