@@ -1,36 +1,36 @@
-**Biggest winners and losers from college football's transfer QB carousel**\
-`Some transfer quarterbacks hit, and others don’t. The 2024 season has had plenty of both so far.`\
-https://nytimes.com/athletic/5841536/2024/10/14/college-football-best-transfer-quarterbacks/
+**OpenAI Could Be a Force for Good if It Can Answer These Questions First**\
+`The artificial intelligence start-up behind ChatGPT needs a legal structure that ensures its commitments can be enforced.`\
+https://nytimes.com/2024/10/14/opinion/open-ai-chatgpt-investors.html
 
-**The Athletic 134: Why Oregon's on top of our midseason FBS rankings**\
-`Who are the great, elite teams? I’m not sure there is one this season, but the Ducks fly to the top at Week 7 after an instant classic.`\
-https://nytimes.com/athletic/5840813/2024/10/14/college-football-fbs-team-rankings-midseason/
+**How Climate Disasters and a Housing Crisis Are Shattering Lives**\
+`Millions of Americans, many poor and vulnerable, live in mobile homes. When catastrophe strikes, they’re often on their own.`\
+https://nytimes.com/2024/10/14/climate/mobile-homes-hurricanes.html
 
-**Israel Attacks Tent Camp at Gaza Hospital**\
-`People worked through smoke and darkness to extinguish fires and look through debris following the deadly attack on Deir al-Balah.`\
-https://nytimes.com/video/world/middleeast/100000009760032/gaza-israel-hamas-deir-al-balah.html
+**The Trump Voters Who Don’t Believe Trump**\
+`When the former president endorses violence and proposes using the government to attack his enemies, many of his supporters assume it’s just an act.`\
+https://nytimes.com/2024/10/14/us/elections/trump-promises-extreme-rhetoric.html
 
-**China’s Stock Markets Rebound on Promises to Help Businesses**\
-`Assurances from government officials on plans to strengthen the private sector offset a lack of specifics about economic stimulus.`\
-https://nytimes.com/2024/10/14/business/china-stocks-csi-300.html
+**Will Leopard Print Ever Go Out of Style?**\
+`A reader is puzzled by the popularity of animal print in women’s fashion. Our critic offers an explanation for its appeal.`\
+https://nytimes.com/2024/10/14/style/leopard-cheetah-print-fashion.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/14/crosswords/spelling-bee-forum.html
+**Three Weeks to Go, and That’s All Anyone Is Sure Of**\
+`It’s been a long year, but that won’t stop it from being a very long 22 days.`\
+https://nytimes.com/2024/10/14/opinion/trump-harris-guns-polls-senate.html
 
-**An Artist Signed Over His Career to Investors. Now He Wants It Back.**\
-`Bjarne Melgaard’s rise in the art world came with strings attached and an unusual contract with investors. Now he’s suing to regain control of his artwork.`\
-https://nytimes.com/2024/10/14/arts/design/bjarne-melgaard-lawsuit-norway.html
+**Growing Darkness, October Light: A Backyard Census**\
+`I wish you could see what happens to the magnificent colors of berry and bird and flower in the slanting autumn light.`\
+https://nytimes.com/2024/10/14/opinion/seasons-nature-fall.html
 
-**In Heated House Race, a Moderate Republican Goes Full Trump**\
-`Representative Marc Molinaro of New York, running against Josh Riley, a Democrat, has accused recent immigrants of committing violent crimes and killing pets.`\
-https://nytimes.com/2024/10/14/nyregion/marc-molinaro-josh-riley.html
+**They’re ‘Saturday Night Live’ … and You’re Not**\
+`With so many players involved in Jason Reitman’s new movie about “S.N.L.,” here’s a guide to the real-life personalities.`\
+https://nytimes.com/2024/10/14/movies/saturday-night-cast-guide.html
 
-**Lonnie Walker, a former first-rounder, is grateful to compete for a spot on the Celtics**\
-`Rock bottom is bad, but Walker is trying to turn his into a positive. "I’ve finally found myself comfortable in an uncomfortable situation."`\
-https://nytimes.com/athletic/5841916/2024/10/14/celtics-lonnie-walker/
+**$2 Million Homes in California**\
+`A 1924 Spanish Revival house in Los Angeles, a 1962 midcentury-modern house in San Rafael, and a recently remodeled 1916 house in Oakland.`\
+https://nytimes.com/2024/10/14/realestate/2-million-homes-in-california.html
 
-**After weeks of magical moments, the Mets have their first postseason dud**\
-`“The energy is still here,” said Starling Marte, despite the blowout loss, echoing a sentiment shared by his New York teammates.`\
-https://nytimes.com/athletic/5841803/2024/10/14/mets-postseason-dud/
+**Isaac Hernández Brings Leading-Man Vibes to Ballet Theater**\
+`“He has it all,” said Susan Jaffe, the artistic leader of American Ballet Theater. Hernández, already a veteran star, is joining the company as a principal.`\
+https://nytimes.com/2024/10/14/arts/dance/isaac-hernandez-american-ballet-theater.html
 

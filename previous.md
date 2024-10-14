@@ -1,3 +1,7 @@
+**Biggest winners and losers from college football's transfer QB carousel**\
+`Some transfer quarterbacks hit, and others don’t. The 2024 season has had plenty of both so far.`\
+https://nytimes.com/athletic/5841536/2024/10/14/college-football-best-transfer-quarterbacks/
+
 **The Athletic 134: Why Oregon's on top of our midseason FBS rankings**\
 `Who are the great, elite teams? I’m not sure there is one this season, but the Ducks fly to the top at Week 7 after an instant classic.`\
 https://nytimes.com/athletic/5840813/2024/10/14/college-football-fbs-team-rankings-midseason/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841916/2024/10/14/celtics-lonnie-walker/
 **After weeks of magical moments, the Mets have their first postseason dud**\
 `“The energy is still here,” said Starling Marte, despite the blowout loss, echoing a sentiment shared by his New York teammates.`\
 https://nytimes.com/athletic/5841803/2024/10/14/mets-postseason-dud/
-
-**Mets flattened in uncharacteristically sloppy Game 1 loss**\
-`Given how rough Kodai Senga's outing was, it’s reasonable to wonder if he deserves another one.`\
-https://nytimes.com/athletic/5841848/2024/10/14/mets-dodgers-nlcs-kodai-senga-loss/
 

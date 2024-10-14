@@ -1,3 +1,7 @@
+**Biggest winners and losers from college football's transfer QB carousel**\
+`Some transfer quarterbacks hit, and others don’t. The 2024 season has had plenty of both so far.`\
+https://nytimes.com/athletic/5841536/2024/10/14/college-football-best-transfer-quarterbacks/
+
 **The Athletic 134: Why Oregon's on top of our midseason FBS rankings**\
 `Who are the great, elite teams? I’m not sure there is one this season, but the Ducks fly to the top at Week 7 after an instant classic.`\
 https://nytimes.com/athletic/5840813/2024/10/14/college-football-fbs-team-rankings-midseason/
