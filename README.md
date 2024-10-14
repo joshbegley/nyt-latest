@@ -1,3 +1,7 @@
+**Notre Dame loses All-American CB Morrison to injury**\
+`Morrison, a potential first-round NFL Draft pick, has likely played his final game in a Notre Dame uniform.`\
+https://nytimes.com/athletic/5842979/2024/10/14/benjamin-morrison-notre-dame-injury/
+
 **Philogene doubtful for Fulham clash after sustaining injury with England Under-21s**\
 `Aston Villa winger Jaden Philogene is a doubt for his side&#8217;s Premier League game against Fulham after sustaining an injury while playing for England&#8217;s Under-21s.`\
 https://nytimes.com/athletic/5841973/2024/10/14/jaden-philogene-injury-villa-england/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5843024/2024/10/14/brightons-injuries-rutter-van-he
 `Ricketts is trying to manifest the Cubs' return to the playoffs through his writing as fans wait for next chapter of "amazing story."`\
 https://nytimes.com/athletic/5842714/2024/10/14/chicago-cubs-tom-ricketts-letter-fans/
 
-**What is the THAAD Antimissile System the U.S. Just Gave to Israel?**\
+**What is the THAAD Antimissile System the U.S. Is Giving to Israel?**\
 `It can intercept missiles above earth’s atmosphere, and is being deployed to defend against Iranian attacks.`\
 https://nytimes.com/2024/10/14/world/middleeast/israel-thaad-missile-defense.html
 
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5842891/2024/10/14/kirby-smart-michael-van-buren-jr
 `Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
 `\
 https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseason/
-
-**Kansas, Bama, UConn top preseason men's hoops AP Top 25**\
-`Houston, Iowa State, Gonzaga, Duke, Baylor, North Carolina and Arizona rounded out the top 10.`\
-https://nytimes.com/athletic/5842547/2024/10/14/ap-top-25-mens-basketball-preseason-poll/
 
