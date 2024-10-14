@@ -43,6 +43,11 @@ https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseaso
 `\
 https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseason/
 
+**Bulls, Ball targeting return Wednesday, first game since Jan. 2022**\
+`Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
+`\
+https://nytimes.com/athletic/5842857/2024/10/14/lonzo-ball-return-bulls-preseason/
+
 **Kirby Smart said he didn't realize he shoved Michael Van Buren Jr. during Saturday's game**\
 `Smart said he spoke to Van Buren on Sunday after shoving the Mississippi State quarterback during Saturday's game.`\
 https://nytimes.com/athletic/5842891/2024/10/14/kirby-smart-michael-van-buren-jr-georgia-mississippi-state/
