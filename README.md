@@ -1,3 +1,7 @@
+**Francisco Lindor's home run snaps Dodgers' scoreless streak at record-tying 33 innings**\
+`Despite a pitching staff decimated by injuries, the Dodgers tied a record that had stood for 57 years.`\
+https://nytimes.com/athletic/5843326/2024/10/14/francisco-lindor-breaks-dodgers-scoreless-streak/
+
 **Giants fan survey: How are you feeling about Saquon Barkley returning as an Eagle?**\
 `Here's your chance to let us know how you feel about Barkely going green. Is he a traitor? `\
 https://nytimes.com/athletic/5842723/2024/10/14/new-york-giants-fan-survey-saquon-barkley/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/14/us/fema-threats-arrest-north-carolina.html
 **Survivors of Gaza Hospital Blaze Say They Are Living a ‘Recurring Nightmare’**\
 `Scores of families sheltering outside Al Aqsa Martyrs Hospital say they have survived a string of Israeli strikes on the compound and feel trapped with nowhere to go.`\
 https://nytimes.com/2024/10/14/world/middleeast/gaza-al-aqsa-hospital-israel.html
-
-**A Harris Ad Uses the Hurricanes to Try to Inflict Damage on Trump**\
-`Two former homeland security officials under Donald J. Trump describe how he tried to withhold disaster aid from states that he hadn’t won.`\
-https://nytimes.com/2024/10/14/us/politics/a-harris-ad-uses-the-hurricanes-to-try-to-inflict-damage-on-trump.html
 
