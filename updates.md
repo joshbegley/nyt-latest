@@ -1,3 +1,7 @@
+**Submit your Cowboys mailbag questions to Saad Yousuf**\
+`The Cowboys enter their bye week 3-3 after an ugly loss to the Lions. We know you have plenty of questions. `\
+https://nytimes.com/athletic/5843294/2024/10/14/submit-your-cowboys-mailbag-questions-to-saad-yousuf/
+
 **Dodgers' Clayton Kershaw says he plans to pitch in 2025**\
 `“I had shoulder surgery last offseason, and my shoulder and elbow, everything, my arm, feels great," Kershaw said.`\
 https://nytimes.com/athletic/5843267/2024/10/14/dodgers-clayton-kershaw-2025/
