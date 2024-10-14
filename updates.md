@@ -1,3 +1,7 @@
+**Alex Bowman eliminated from NASCAR playoffs after Sunday's disqualification**\
+`Bowman's car did not meet the minimum weight requirement and he was stripped of his 18th-place finish at the Charlotte Motor Speedway Roval.`\
+https://nytimes.com/athletic/5841466/2024/10/13/alex-bowman-eliminated-nascar-playoffs/
+
 **Should Broncos turn Bo Nix loose early to fix slow-starting offense?**\
 `The rookie QB has been the NFL's most inefficient signal caller in the first half. Could more plays leaning on his athleticism be an answer?`\
 https://nytimes.com/athletic/5841148/2024/10/13/broncos-offense-bo-nix-chargers/
