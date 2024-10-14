@@ -1,3 +1,7 @@
+**Read the document**\
+`Here are the records from Miami-Dade jail where Mr. Esformes was held after his arrest.`\
+https://nytimes.com/interactive/2024/10/14/us/202410-esformes-arrest-domestic-related-incident.html
+
 **Mendy, Manchester City and an explosive £11m tribunal claim**\
 `French defender's employment tribunal hearing with his former club contained some startling allegations`\
 https://nytimes.com/athletic/5830961/2024/10/14/benjamin-mendy-manchester-city-tribunal-wages/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5842889/2024/10/14/sean-payton-broncos-new-orleans-
 **Bill Clinton says his low-key Southern swing for Harris suits him just fine.**\
 `By Alan Blinder`\
 https://nytimes.com/live/2024/10/14/us/harris-trump-election/bill-clinton-says-his-low-key-southern-swing-for-harris-suits-him-just-fine
-
-**Tigers takeaways: Javier Báez, free-agent bats and more from Scott Harris' season wrap**\
-`The Tigers' president of baseball operations discussed the team's lineup, including Báez: "There’s a role for him on this team."`\
-https://nytimes.com/athletic/5842970/2024/10/14/detroit-tigers-javier-baez-free-agents-scott-harris/
 

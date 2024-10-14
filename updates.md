@@ -1,3 +1,7 @@
+**Read the document**\
+`Here are the records from Miami-Dade jail where Mr. Esformes was held after his arrest.`\
+https://nytimes.com/interactive/2024/10/14/us/202410-esformes-arrest-domestic-related-incident.html
+
 **Mendy, Manchester City and an explosive £11m tribunal claim**\
 `French defender's employment tribunal hearing with his former club contained some startling allegations`\
 https://nytimes.com/athletic/5830961/2024/10/14/benjamin-mendy-manchester-city-tribunal-wages/
