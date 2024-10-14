@@ -1,4 +1,12 @@
-**Raiders' Crosby speaks to reporters following shove**\
+**Justin Herbert is getting healthier, and that is great news for the Chargers**\
+`Herbert's increased mobility allowed the Chargers to lean more heavily into the passing game in Sunday's win over the Broncos.`\
+https://nytimes.com/athletic/5841581/2024/10/13/justin-herbert-chargers-healthy-broncos/
+
+**Dodgers' pitchers tie MLB record in NLCS Game 1 victory over Mets: Takeaways**\
+`LOS ANGELES — Much was made of how the cascade of injuries to Los Angeles Dodgers pitchers would present problems in October.`\
+https://nytimes.com/athletic/5840991/2024/10/13/mets-padres-nlcs/
+
+**Raiders' Maxx Crosby downplays sideline shove of coach: I love Mike Caldwell'**\
 `Raiders' Maxx Crosby was shown on CBS broadcast shoving an assistant coach on the sideline during 32-13 loss to Steelers.`\
 https://nytimes.com/athletic/5841559/2024/10/13/raiders-maxx-crosby-sideline-shove/
 
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5841148/2024/10/13/broncos-offense-bo-nix-chargers/
 **DiVincenzo, Rick Brunson have heated exchange during Knicks-Timberwolves**\
 `"I didn't see it," New York head coach Tom Thibodeau said after the game. "Two competitive guys. Stuff like that does happen."`\
 https://nytimes.com/athletic/5841314/2024/10/13/knicks-timberwolves-donte-divincenzo-rick-brunson-altercation/
-
-**Raiders' conservative approach doesn't do offense any favors in loss to Steelers**\
-`Antonio Pierce and Luke Getsy called the offense Sunday like they didn't trust QB Aidan O'Connell, who made his first start of the season.`\
-https://nytimes.com/athletic/5841200/2024/10/13/raiders-steelers-conservative-offense-aidan-oconnell/
-
-**New York Liberty found a key factor in Betnijah Laney-Hamilton for WNBA Finals win**\
-`"We believe in her. She knows that.”`\
-https://nytimes.com/athletic/5841306/2024/10/13/betnijah-laney-hamilton-ny-liberty-wnba-finals-win/
 
