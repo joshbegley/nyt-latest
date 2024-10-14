@@ -1,3 +1,7 @@
+**Lloyd: Cleveland consumed by Guardians, Browns — teams on very different trajectories**\
+`The Browns are the toxic partner who takes and takes and never really loves the fans back. The Guardians have been stuck in the friend zone.`\
+https://nytimes.com/athletic/5842504/2024/10/14/browns-guardians-yankees-game-1-eagles/
+
 **Trump and Harris Both Like a Child Tax Credit, but With Different Aims**\
 `Kamala Harris’s campaign is pushing a version of the credit intended to fight child poverty, while Donald J. Trump sees the program primarily as a tax cut for people higher up the income scale.`\
 https://nytimes.com/2024/10/14/us/politics/trump-harris-child-tax-credit.html
