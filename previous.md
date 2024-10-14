@@ -1,3 +1,11 @@
+**The Bounce: Your quick NBA season previews begin now.**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5842275/2024/10/14/nba-season-previews-liberty-lynx-wnba-the-bounce/
+
+**Yohe: What I'm hearing about the Penguins through three games**\
+`Through their handling of Tristan Jarry, it's clear the Penguins have a goaltending competition on their hands.`\
+https://nytimes.com/athletic/5841672/2024/10/14/penguins-tristan-jarry-trade-rumors/
+
 **The NBA has entered a new era of parity. How did we get here and what's next?**\
 `Last year, the Boston Celtics became the sixth different team to win a championship in the past six seasons. Is the era of parity upon us? `\
 https://nytimes.com/athletic/5829336/2024/10/14/nba-parity-salary-cap-rules-whats-next/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5841800/2024/10/14/joel-embiid-sixers-knee-preseaso
 **Here’s the latest on the 2024 race.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/10/14/us/harris-trump-election/heres-the-latest-on-the-2024-race
-
-**Election Live Updates: Pennsylvania Is Center of Attention With Trump and Harris Visits**\
-`Kamala Harris and Donald Trump will both campaign today in the state, seen as the most important battleground of 2024, with barely three weeks to go until Election Day.`\
-https://nytimes.com/live/2024/10/14/us/harris-trump-election
-
-**Most Voters Have Been Offended by Trump. It’s Not Always a Deal Breaker.**\
-`Voters who said they had been offended by Donald J. Trump, but not recently, supported him by a wide margin.`\
-https://nytimes.com/2024/10/14/us/politics/trump-voters-offensive.html
 

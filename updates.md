@@ -1,3 +1,11 @@
+**The Bounce: Your quick NBA season previews begin now.**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5842275/2024/10/14/nba-season-previews-liberty-lynx-wnba-the-bounce/
+
+**Yohe: What I'm hearing about the Penguins through three games**\
+`Through their handling of Tristan Jarry, it's clear the Penguins have a goaltending competition on their hands.`\
+https://nytimes.com/athletic/5841672/2024/10/14/penguins-tristan-jarry-trade-rumors/
+
 **The NBA has entered a new era of parity. How did we get here and what's next?**\
 `Last year, the Boston Celtics became the sixth different team to win a championship in the past six seasons. Is the era of parity upon us? `\
 https://nytimes.com/athletic/5829336/2024/10/14/nba-parity-salary-cap-rules-whats-next/
