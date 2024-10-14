@@ -1,3 +1,15 @@
+**Khris Middleton on Bucks' goals, 'injury prone' label and blocking outside noise**\
+`A couple other teams are on the rise in the East, but the 33-year-old doesn't care. His focus this season is internal.`\
+https://nytimes.com/athletic/5836938/2024/10/14/khris-middleton-milwaukee-bucks-interview/
+
+**Can Wall St. Help Harris Win Pennsylvania?**\
+`The vice president has raised huge sums and has won over many business leaders. Despite that, the presidential race remains tight in battleground states.`\
+https://nytimes.com/2024/10/14/business/dealbook/wall-st-harris-support-election.html
+
+**The Athletic FC: Hillsborough - more questions as a fan dies**\
+`Today in TAFC: Questions remain after Mark Townsend's death at Hillsborough. Plus: Carsley wins but who'll coach England at the World Cup?`\
+https://nytimes.com/athletic/5842085/2024/10/14/hillsborough-more-questions-as-a-fan-dies/
+
 **Nobel Economics Prize Shared Among Three**\
 `Daron Acemoglu, Simon Johnson and James Robinson received the prize for their work on explaining inequality between countries.`\
 https://nytimes.com/video/business/100000009760178/nobel-economics.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5836677/2024/10/14/minnesota-twins-fans-pohlads-sel
 **Michigan Republican Blames ‘Proofing Error’ for Misleading Ad in Black-Owned Newspaper**\
 `The state’s legislative Black caucus have asked the attorney general and a county prosecutor to investigate Tom Barrett’s congressional campaign for potential voter disenfranchisement.`\
 https://nytimes.com/2024/10/14/us/politics/michigan-republican-misleading-ad.html
-
-**Raiders continue home misery with ugly loss to Steelers: 'It sucks for the fans'**\
-`Allegiant Stadium looked to be 70 percent filled with Steelers fans Sunday. At least they got to enjoy another rough Raiders performance.`\
-https://nytimes.com/athletic/5841451/2024/10/14/raiders-steelers-loss-fans-home-crowd/
-
-**Oilers searching for answers after a poor start they vowed wouldn't happen**\
-`Whether ill-prepared or just failing to execute, the first three games have left Edmonton with yet another early hole from which to recover.`\
-https://nytimes.com/athletic/5841862/2024/10/14/edmonton-oilers-poor-start-to-season-flames/
-
-**WSL Briefing: Arsenal, 'Jonas Out' and how fandom is changing in the WSL**\
-`The huge investment made by supporters following their team both domestically and abroad is bringing new demands and expectations`\
-https://nytimes.com/athletic/5841114/2024/10/14/arsenal-jonas-eidevall-wsl-briefing/
 
