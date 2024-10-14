@@ -1,3 +1,11 @@
+**Another Trump Term Would Make China Great Again**\
+`Trump remains well outside a bipartisan consensus on competing with China.`\
+https://nytimes.com/2024/10/14/opinion/trump-china-election.html
+
+**What’s on TV This Week: ‘The Wranglers’ and ‘Elsbeth’**\
+`A CW documentary, inspired by the series “Yellowstone,” shows what real life in ranch country looks like. And “The Good Wife” spinoff is back for a second season.`\
+https://nytimes.com/2024/10/14/arts/television/whats-on-tv-this-week-the-wranglers-and-elsbeth.html
+
 **Exclusive: Mets' Brandon Nimmo reveals he's dealing with plantar fasciitis**\
 `Nimmo believes he aggravated the injury in the sixth inning of Game 3 against the Phillies.`\
 https://nytimes.com/athletic/5841786/2024/10/14/mets-brandon-nimmo-plantar-fasciitis-nlcs/
