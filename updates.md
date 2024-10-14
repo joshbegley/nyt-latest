@@ -1,3 +1,7 @@
+**FIFPro and European Leagues file complaint against FIFA over calendar**\
+`Global players’ union FIFPro teamed up with Europe’s domestic leagues to file a formal complaint against FIFA at the European Commission in Brussels on Monday, as the struggle to control football&#8217;s calendar intensified.`\
+https://nytimes.com/athletic/5842533/2024/10/14/fifa-formal-complaint-football-calendar/
+
 **Fantasy football Week 6 recap: Can you trust Kyler Murray?**\
 `Kyler Murray is vexing fantasy owners with his inconsistency. Don't bet on him turning it around.`\
 https://nytimes.com/athletic/5842457/2024/10/14/fantasy-football-week-6-recap-can-you-trust-kyler-murray/

@@ -1,3 +1,7 @@
+**FIFPro and European Leagues file complaint against FIFA over calendar**\
+`Global players’ union FIFPro teamed up with Europe’s domestic leagues to file a formal complaint against FIFA at the European Commission in Brussels on Monday, as the struggle to control football&#8217;s calendar intensified.`\
+https://nytimes.com/athletic/5842533/2024/10/14/fifa-formal-complaint-football-calendar/
+
 **Fantasy football Week 6 recap: Can you trust Kyler Murray?**\
 `Kyler Murray is vexing fantasy owners with his inconsistency. Don't bet on him turning it around.`\
 https://nytimes.com/athletic/5842457/2024/10/14/fantasy-football-week-6-recap-can-you-trust-kyler-murray/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841672/2024/10/14/penguins-tristan-jarry-trade-rum
 **The NBA has entered a new era of parity. How did we get here and what's next?**\
 `Last year, the Boston Celtics became the sixth different team to win a championship in the past six seasons. Is the era of parity upon us? `\
 https://nytimes.com/athletic/5829336/2024/10/14/nba-parity-salary-cap-rules-whats-next/
-
-**Donte DiVincenzo's toughness is making a strong first impression with Wolves**\
-`Sometimes a little scuffle is all it takes to cement the bond between new teammates.`\
-https://nytimes.com/athletic/5840861/2024/10/14/donte-divincenzo-timberwolves-rick-brunson-scuffle/
 
