@@ -3,7 +3,7 @@
 https://nytimes.com/video/us/elections/100000009759898/harris-rallies-in-north-carolina.html
 
 **Should Broncos turn Bo Nix loose early to fix slow-starting offense?**\
-`The rookie QB has been the NFL's most inefficient signal-caller in the first half. Could more plays leaning on his athleticism be an answer?`\
+`The rookie QB has been the NFL's most inefficient signal caller in the first half. Could more plays leaning on his athleticism be an answer?`\
 https://nytimes.com/athletic/5841148/2024/10/13/broncos-offense-bo-nix-chargers/
 
 **DiVincenzo, Rick Brunson have heated exchange during Knicks-Timberwolves**\
