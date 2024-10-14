@@ -1,3 +1,7 @@
+**Kirby Smart said he didn't realize he shoved Michael Van Buren Jr. during Saturday's game**\
+`Smart said he spoke to Van Buren on Sunday after shoving the Mississippi State quarterback during Saturday's game.`\
+https://nytimes.com/athletic/5842891/2024/10/14/kirby-smart-michael-van-buren-jr-georgia-mississippi-state/
+
 **Bulls, Ball targeting return Wednesday, first game since Jan. 2022**\
 `Barring any setbacks or additional soreness, the Bulls and Ball expect Ball to appear in Chicago's final two preseason contests.
 `\
@@ -30,8 +34,4 @@ https://nytimes.com/2024/10/14/business/media/fox-news-kamala-harris-interview.h
 **James returns to Chelsea training following hamstring injury**\
 `Chelsea captain Reece James has returned to training with team-mates following a hamstring injury.`\
 https://nytimes.com/athletic/5842756/2024/10/14/reece-james-injury-chelsea-training/
-
-**At least 4 people are killed after Israel strikes a Gaza hospital compound.**\
-`By Aryn Baker`\
-https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/at-least-4-people-are-killed-after-israel-strikes-a-gaza-hospital-compound
 
