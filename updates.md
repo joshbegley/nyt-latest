@@ -1,3 +1,11 @@
+**Colts' QB Anthony Richardson 'really close' to returning**\
+`Second-year quarterback has missed two games with hip injury.`\
+https://nytimes.com/athletic/5843171/2024/10/14/colts-anthony-richardson-injury-update/
+
+**Conservative Activist Seizes on Passages From Harris Book**\
+`A report by Christopher Rufo says the Democratic presidential nominee copied five short passages for her 2009 book on crime. A plagiarism expert said the lapses were not serious.`\
+https://nytimes.com/2024/10/14/us/christopher-rufo-kamala-harris-book.html
+
 **Commanders' DT Jonathan Allen likely out for season**\
 `In six games, he tallied 15 tackles, two sacks and two tackles for loss.`\
 https://nytimes.com/athletic/5843146/2024/10/14/commanders-jonathan-allen-pectoral-injury/
