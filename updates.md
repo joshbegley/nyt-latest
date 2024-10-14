@@ -1,3 +1,15 @@
+**Here’s the latest on the 2024 race.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/10/14/us/harris-trump-election/heres-the-latest-on-the-2024-race
+
+**Election Live Updates: Pennsylvania Is Center of Attention With Trump and Harris Visits**\
+`Kamala Harris and Donald Trump will both campaign today in the state, seen as the most important battleground of 2024, with barely three weeks to go until Election Day.`\
+https://nytimes.com/live/2024/10/14/us/harris-trump-election
+
+**Most Voters Have Been Offended by Trump. It’s Not Always a Deal Breaker.**\
+`Voters who said they had been offended by Donald J. Trump, but not recently, supported him by a wide margin.`\
+https://nytimes.com/2024/10/14/us/politics/trump-voters-offensive.html
+
 **Giants defense deserved better fate after setting a new standard vs. Bengals**\
 `The Giants defense made a big statement Sunday by largely shutting down the Bengals' high-powered attack.`\
 https://nytimes.com/athletic/5841985/2024/10/14/new-york-giants-defense-bengals-azeez-ojulari/
