@@ -1,3 +1,11 @@
+**Russia Is Clawing Back Land Taken by Ukraine This Summer**\
+`Moscow’s forces have been recapturing some villages and land taken in a Ukrainian incursion into Russia. The advances could undermine Kyiv’s hopes of pushing Russia to the negotiating table.`\
+https://nytimes.com/2024/10/14/world/europe/russia-is-clawing-back-land-taken-by-ukraine-this-summer.html
+
+**Top high school QB recruits: How the nation’s elite prospects fared over the weekend**\
+`George MacIntyre, a Tennessee commit, threw for 246 yards to lead Brentwood (Tenn.) Academy to a big win over Knoxville Catholic. `\
+https://nytimes.com/athletic/5840238/2024/10/14/top-high-school-quarterbacks-class-2025-6/
+
 **How worried should Sixers fans be about Joel Embiid missing the preseason?**\
 `This could just be a way to keep Embiid healthy for when the games count. But his injury history makes the news a bit concerning. `\
 https://nytimes.com/athletic/5841800/2024/10/14/joel-embiid-sixers-knee-preseason/

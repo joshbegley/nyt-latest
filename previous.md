@@ -1,3 +1,11 @@
+**Russia Is Clawing Back Land Taken by Ukraine This Summer**\
+`Moscow’s forces have been recapturing some villages and land taken in a Ukrainian incursion into Russia. The advances could undermine Kyiv’s hopes of pushing Russia to the negotiating table.`\
+https://nytimes.com/2024/10/14/world/europe/russia-is-clawing-back-land-taken-by-ukraine-this-summer.html
+
+**Top high school QB recruits: How the nation’s elite prospects fared over the weekend**\
+`George MacIntyre, a Tennessee commit, threw for 246 yards to lead Brentwood (Tenn.) Academy to a big win over Knoxville Catholic. `\
+https://nytimes.com/athletic/5840238/2024/10/14/top-high-school-quarterbacks-class-2025-6/
+
 **How worried should Sixers fans be about Joel Embiid missing the preseason?**\
 `This could just be a way to keep Embiid healthy for when the games count. But his injury history makes the news a bit concerning. `\
 https://nytimes.com/athletic/5841800/2024/10/14/joel-embiid-sixers-knee-preseason/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5836938/2024/10/14/khris-middleton-milwaukee-bucks-
 **Can Wall St. Help Harris Win Pennsylvania?**\
 `The vice president has raised huge sums and has won over many business leaders. Despite that, the presidential race remains tight in battleground states.`\
 https://nytimes.com/2024/10/14/business/dealbook/wall-st-harris-support-election.html
-
-**The Athletic FC: Hillsborough - more questions as a fan dies**\
-`Today in TAFC: Questions remain after Mark Townsend's death at Hillsborough. Plus: Carsley wins but who'll coach England at the World Cup?`\
-https://nytimes.com/athletic/5842085/2024/10/14/hillsborough-more-questions-as-a-fan-dies/
-
-**Nobel Economics Prize Shared Among Three**\
-`Daron Acemoglu, Simon Johnson and James Robinson received the prize for their work on explaining inequality between countries.`\
-https://nytimes.com/video/business/100000009760178/nobel-economics.html
 
