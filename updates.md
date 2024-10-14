@@ -1,3 +1,7 @@
+**McDaniel: Tua Tagovailoa expected to play football again in 2024**\
+`McDaniel told reporters Monday that Tagovailoa's return won't come in Week 7 against the Indianapolis Colts.`\
+https://nytimes.com/athletic/5842615/2024/10/14/tua-tagovailoa-return-mike-mcdaniel-dolphins/
+
 **How to Apply Blush Like a Professional**\
 `Tips from a “Saturday Night Live” cast member, a ballet dancer and a makeup artist.`\
 https://nytimes.com/2024/10/14/t-magazine/blush-tips-recommendation.html
