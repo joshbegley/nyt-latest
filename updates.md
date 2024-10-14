@@ -1,3 +1,11 @@
+**Bengals beat Giants 17-7 in ugly win: Key takeaways**\
+`"Ugly, really ugly, but we got it done," Bengals quarterback Joe Burrow said of the victory postgame.`\
+https://nytimes.com/athletic/5841344/2024/10/13/bengals-giants-score-result-takeaways/
+
+**Dodgers' pitchers tie MLB record in NLCS Game 1 victory over Mets: Takeaways**\
+`LOS ANGELES — Much was made of how the cascade of injuries to Los Angeles Dodgers pitchers would present problems in October.`\
+https://nytimes.com/athletic/5840991/2024/10/13/mets-dodgers-nlcs-scoreless-record/
+
 **Wild hope captain Jared Spurgeon's absence doesn't signal repeat of last season**\
 `The Wild have yet to announce what's ailing their captain, but more than anything they'd like to avoid déjà vu.`\
 https://nytimes.com/athletic/5841563/2024/10/13/wild-jared-spurgeon-injury-uncertainty-jets/
