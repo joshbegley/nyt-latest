@@ -1,3 +1,7 @@
+**Lions decimate Cowboys 47-9, lose Hutchinson to leg inury: Takeaways**\
+`Detroit sets season highs in total yards and turnovers, while Dallas suffers the fifth-largest loss in Cowboys franchise history.`\
+https://nytimes.com/athletic/5838758/2024/10/13/lions-cowboys-score-takeaways-result/
+
 **Cousins, rushing attack powers Falcons past Panthers, 38-20: Takeaways**\
 `Atlanta's third straight win keeps the Falcons atop the NFC South.`\
 https://nytimes.com/athletic/5838752/2024/10/13/falcons-panthers-score-results-takeaways/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5841017/2024/10/13/packers-romeo-doubs-returns-susp
 **If 'moral victories' make you cringe, Commanders still have much to learn**\
 `We can stop with all the rivalry talk between the Commanders and Ravens for a while because Washington clearly has more work to do.`\
 https://nytimes.com/athletic/5840158/2024/10/13/commanders-ravens-moral-victory-jayden-daniels/
-
-**Biden Announces $612 Million for Projects to Help Areas Hit by Storms**\
-`During his visit to Florida, President Biden announced $612 million for six Energy Department projects in areas hit by Hurricanes Milton and Helene to improve the region’s electric grid.`\
-https://nytimes.com/video/us/100000009759806/biden-florida-hurricane-aftermath.html
 

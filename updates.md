@@ -1,3 +1,7 @@
+**Lions decimate Cowboys 47-9, lose Hutchinson to leg inury: Takeaways**\
+`Detroit sets season highs in total yards and turnovers, while Dallas suffers the fifth-largest loss in Cowboys franchise history.`\
+https://nytimes.com/athletic/5838758/2024/10/13/lions-cowboys-score-takeaways-result/
+
 **Drake Maye impresses, but another Patriots blowout loss shows rebuild has a long way to go**\
 `The rookie No. 3 pick fared well in his first NFL start, but the Patriots still have a long way to go. `\
 https://nytimes.com/athletic/5840925/2024/10/13/drake-maye-patriots-texans-debut/
