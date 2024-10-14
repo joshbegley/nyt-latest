@@ -1,3 +1,7 @@
+**How Trump Broke Arizona’s Republican Party**\
+`He and his acolytes purged the G.O.P. to make it smaller and more strident.`\
+https://nytimes.com/2024/10/14/opinion/trump-arizona-republican-party.html
+
 **Deadly Strike Hits Shelter in Central Gaza, U.N. Says**\
 `A school turned shelter was attacked late Sunday, a day before children were to receive their second dose of a polio vaccination.`\
 https://nytimes.com/video/world/middleeast/100000009760700/gaza-school-vaccination-site-attack.html

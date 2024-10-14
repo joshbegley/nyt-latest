@@ -1,3 +1,7 @@
+**How Trump Broke Arizona’s Republican Party**\
+`He and his acolytes purged the G.O.P. to make it smaller and more strident.`\
+https://nytimes.com/2024/10/14/opinion/trump-arizona-republican-party.html
+
 **Deadly Strike Hits Shelter in Central Gaza, U.N. Says**\
 `A school turned shelter was attacked late Sunday, a day before children were to receive their second dose of a polio vaccination.`\
 https://nytimes.com/video/world/middleeast/100000009760700/gaza-school-vaccination-site-attack.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5843222/2024/10/14/cooper-kupp-injury-update-rams/
 **Ethel Kennedy, Matriarch of Family Dynasty, Honored at Cape Cod Funeral**\
 `Several politicians and relatives, including her son Robert F. Kennedy Jr. and his wife, the actress Cheryl Hines, were in attendance.`\
 https://nytimes.com/2024/10/14/us/ethel-kennedy-funeral.html
-
-**Armed Man Arrested After Reportedly Threatening FEMA Workers**\
-`William Jacob Parsons was arrested and charged in North Carolina after he was found with a handgun and a rifle at a supermarket where a federal aid vehicle was parked.`\
-https://nytimes.com/2024/10/14/us/fema-threats-arrest-north-carolina.html
 
