@@ -1,3 +1,11 @@
+**James returns to Chelsea training following hamstring injury**\
+`Chelsea captain Reece James has returned to training with team-mates following a hamstring injury.`\
+https://nytimes.com/athletic/5842756/2024/10/14/reece-james-injury-chelsea-training/
+
+**At least 4 people are killed after Israel strikes a Gaza hospital compound.**\
+`By Aryn Baker`\
+https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/at-least-4-people-are-killed-after-israel-strikes-a-gaza-hospital-compound
+
 **Amid a Water Crisis, England Asks: Who Should Be in Charge?**\
 `Four decades after privatization, calls to nationalize the water industry have swept across England and Wales amid sewage spills and rising household bills.`\
 https://nytimes.com/2024/10/14/business/uk-thames-water-sewage-crisis.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5841442/2024/10/14/yankees-alcs-roster-stroman-rizz
 **What I liked — and didn't like — after watching film of Ohio State's loss at Oregon**\
 `Ohio State's defense had trouble slowing down Oregon's speedy wide receivers. What can DC Jim Knowles do to fix the problem?`\
 https://nytimes.com/athletic/5842460/2024/10/14/ohio-state-oregon-film-defense-denzel-burke/
-
-**Italian Court Overturns Women’s Acquittals in ‘Bunga Bunga’ Legal Saga**\
-`The ruling sets the stage for yet another trial related to the scandal involving Silvio Berlusconi, the former prime minister of Italy who died last year.`\
-https://nytimes.com/2024/10/14/world/europe/berlusconi-bunga-bunga-women.html
-
-**McDaniel: Tua Tagovailoa expected to play football again in 2024**\
-`McDaniel told reporters Monday that Tagovailoa's return won't come in Week 7 against the Indianapolis Colts.`\
-https://nytimes.com/athletic/5842615/2024/10/14/tua-tagovailoa-return-mike-mcdaniel-dolphins/
 

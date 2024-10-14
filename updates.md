@@ -1,3 +1,11 @@
+**James returns to Chelsea training following hamstring injury**\
+`Chelsea captain Reece James has returned to training with team-mates following a hamstring injury.`\
+https://nytimes.com/athletic/5842756/2024/10/14/reece-james-injury-chelsea-training/
+
+**At least 4 people are killed after Israel strikes a Gaza hospital compound.**\
+`By Aryn Baker`\
+https://nytimes.com/live/2024/10/14/world/israel-lebanon-hezbollah-news/at-least-4-people-are-killed-after-israel-strikes-a-gaza-hospital-compound
+
 **Amid a Water Crisis, England Asks: Who Should Be in Charge?**\
 `Four decades after privatization, calls to nationalize the water industry have swept across England and Wales amid sewage spills and rising household bills.`\
 https://nytimes.com/2024/10/14/business/uk-thames-water-sewage-crisis.html
