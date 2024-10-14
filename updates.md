@@ -1,3 +1,19 @@
+**York Theater Artistic Director Out After ‘Hurtful’ Diversity Comments**\
+`James Morgan, who has been with the small New York theater company for 50 years, blamed the effects of a stroke for his behavior.`\
+https://nytimes.com/2024/10/14/theater/james-morgan-york-theater.html
+
+**Twins to name Matt Borgschulte as hitting coach: Source**\
+`Following their late-season collapse, the Twins want to alter their offensive philosophy and hope to do so by bringing back an old friend.`\
+https://nytimes.com/athletic/5843433/2024/10/14/twins-matt-borgschulte-hitting-coach/
+
+**What I saw in the Bruins' first homestand: Don’t touch Pastrnak, ghostly Geekie and one line shining**\
+`Coach Jim Montgomery on the Bruins' play so far this season: "“It’s just not disciplined. … Can’t win hockey games that way."`\
+https://nytimes.com/athletic/5843396/2024/10/14/bruins-pastrnak-geekie-takeaways/
+
+**America Is on the Brink of a Great Political Realignment. It’s Already Visible in Arizona.**\
+`He and his acolytes purged the G.O.P. to make it smaller and more strident.`\
+https://nytimes.com/2024/10/14/opinion/trump-arizona-republican-party.html
+
 **Tent Camp in Gaza Engulfed by Flames After Israeli Strike**\
 `At least four Palestinians taking shelter by a hospital were killed in a strike Israeli officials said was targeting a Hamas command center.`\
 https://nytimes.com/2024/10/14/world/middleeast/gaza-aqsa-hospital-strike.html
