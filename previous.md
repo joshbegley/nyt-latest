@@ -1,3 +1,7 @@
+**Another Trump Clemency Recipient Faces Domestic Violence-Related Charges**\
+`Philip Esformes is at least the seventh person to be charged with new crimes after receiving a second chance in the last days of the Trump administration.`\
+https://nytimes.com/2024/10/14/us/politics/philip-esformes-trump-clemency-recipient-new-charges.html
+
 **N.J. Transit Train Hits Tree on Track, Killing 1 and Injuring 23**\
 `A light rail train traveling south from Trenton collided with a chunk of tree, killing the train’s operator.`\
 https://nytimes.com/2024/10/14/us/nj-transit-train-crash.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5843024/2024/10/14/brightons-injuries-rutter-van-he
 **Greenberg: Cubs chairman Tom Ricketts' words ring hollow in latest letter to fans**\
 `Ricketts is trying to manifest the Cubs' return to the playoffs through his writing as fans wait for next chapter of "amazing story."`\
 https://nytimes.com/athletic/5842714/2024/10/14/chicago-cubs-tom-ricketts-letter-fans/
-
-**What is the THAAD Antimissile System the U.S. Is Giving to Israel?**\
-`It can intercept missiles above earth’s atmosphere, and is being deployed to defend against Iranian attacks.`\
-https://nytimes.com/2024/10/14/world/middleeast/israel-thaad-missile-defense.html
 

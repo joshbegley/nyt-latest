@@ -1,3 +1,7 @@
+**Another Trump Clemency Recipient Faces Domestic Violence-Related Charges**\
+`Philip Esformes is at least the seventh person to be charged with new crimes after receiving a second chance in the last days of the Trump administration.`\
+https://nytimes.com/2024/10/14/us/politics/philip-esformes-trump-clemency-recipient-new-charges.html
+
 **N.J. Transit Train Hits Tree on Track, Killing 1 and Injuring 23**\
 `A light rail train traveling south from Trenton collided with a chunk of tree, killing the train’s operator.`\
 https://nytimes.com/2024/10/14/us/nj-transit-train-crash.html
