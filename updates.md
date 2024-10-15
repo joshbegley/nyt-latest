@@ -1,3 +1,11 @@
+**A Climate Resistant Community Passed Two Hurricane Test**\
+`On the west coast of Florida, a town built to weather hurricanes hosted more than 2,000 people during Hurricane Milton. Could communities like this help shape Florida’s future?`\
+https://nytimes.com/2024/10/15/climate/florida-climate-resilience-babcock-ranch.html
+
+**Live Q&A: Week 7 fantasy football add/drop chat with Dane Martinez, Tuesday 10/15 at 5 p.m. ET**\
+`Ask Dane Martinez your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5845546/2024/10/15/live-qa-week-7-fantasy-football-add-drop-chat-with-dane-martinez-tuesday-10-15/
+
 **La Liga president Tebas tells FIFA to 'scrap' expanded Club World Cup**\
 `La Liga boss Javier Tebas has told FIFA president Gianni Infantino to “scrap” next summer’s Club World Cup, claiming the expanded tournament is not wanted by broadcasters, clubs, players or sponsors.`\
 https://nytimes.com/athletic/5845608/2024/10/15/club-world-cup-fifa-criticism/
