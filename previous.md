@@ -1,3 +1,11 @@
+**How America Can Stop a Mideast Missile War That Everyone Will Lose**\
+`A real strategy for coercive U.S. diplomacy to change Iran’s behavior.`\
+https://nytimes.com/2024/10/15/opinion/iran-israel-war.html
+
+**Harris Needs a Closing Argument. Here’s One.**\
+`Trump turned us into a nation of haters. He’ll do it again if he wins next month.`\
+https://nytimes.com/2024/10/15/opinion/harris-kamala-trump-election.html
+
 **‘Thinking is overrated’: A fired coach and a blockbuster trade, as Woody Johnson’s Jets breed chaos**\
 `It's been a whirlwind week for the Jets, who made big moves in a season falling short of expectations.`\
 https://nytimes.com/athletic/5846096/2024/10/15/jets-davante-adams-trade-woody-johnson-comments/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/15/nyregion/eric-adams-deputy-mayor-public-safety.ht
 **Small Business Administration Depletes Disaster Loan Funds**\
 `Federal officials urged people to keep applying for the loans, which they said they would continue to process while awaiting more funding from Congress, which is not set to reconvene until Nov. 12.`\
 https://nytimes.com/2024/10/15/us/politics/small-business-administration-fema-helene-milton.html
-
-**49ers mailbag: Something's rotten on special teams; A homecoming for D.J. Jones?**\
-`Among this week's questions: Why can't Mitch Wishnowsky handle kickoffs and why was Brayden Willis promoted to the active roster?`\
-https://nytimes.com/athletic/5845851/2024/10/15/49ers-mailbag-special-teams-dj-jones/
-
-**Israel’s high court orders the state to explain its system for medical evacuations from Gaza.**\
-`By Ephrat Livni and Johnatan Reiss`\
-https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/israel-gaza-medical-evacuations
 
