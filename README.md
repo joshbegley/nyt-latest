@@ -1,3 +1,7 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/10/15/opinion/thepoint
+
 **A Lawyer Seeking Sean Combs Accusers via Hotline Files 6 Lawsuits**\
 `The Houston lawyer Tony Buzbee filed suits in New York with new allegations of rape and sexual assault from 1995 to 2021. Mr. Combs denied the accusations.`\
 https://nytimes.com/2024/10/15/arts/music/sean-combs-diddy-tony-buzbee-lawsuits.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/us/politics/harris-black-voters-trump.html
 **Jerry Jones snaps back at critics over Sunday's blowout loss**\
 `The Cowboys (3-3) are currently third in the NFC East.`\
 https://nytimes.com/athletic/5844999/2024/10/15/jerry-jones-the-fan-critics-cowboys/
-
-**What will NASCAR look like in five years? Could we see a splinter series? Mailbag**\
-`With NASCAR facing a lawsuit from Michael Jordan's 23XI Racing as well as Front Row Motorsports, it's time for our latest mailbag.`\
-https://nytimes.com/athletic/5844539/2024/10/15/nascar-michael-jordan-23xi-lawsuit-mailbag/
 
