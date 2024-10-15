@@ -1,3 +1,11 @@
+**Vikings acquire Cam Akers from Texans, reuniting RB with O'Connell**\
+`This is Akers' second time with the Vikings in the last two years. Minnesota explored re-signing him in the spring before going to Houston.`\
+https://nytimes.com/athletic/5846194/2024/10/15/vikings-rb-cam-akers-texans-trade/
+
+**‘Smart’ or Criminal? Trump’s Changing Views on Talking to Foreign Leaders.**\
+`The former president, who once pushed to prosecute a former secretary of state for talking with foreign officials, said that it would be “a good thing” for himself to have secretly kept in touch with President Vladimir V. Putin of Russia — if he did.`\
+https://nytimes.com/2024/10/15/us/politics/trump-putin-communication.html
+
 **Even Charlamagne Can’t Push Harris Off Message**\
 `It may not be great radio, but Harris made a solid case for why she’d be better for Black America.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/charlamagne-harris-interview-detroit
