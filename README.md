@@ -2,8 +2,8 @@
 `The commander of Iran’s Quds Force was shown in a broadcast by Iranian state news media on Tuesday.`\
 https://nytimes.com/video/world/middleeast/100000009761770/iran-general-esmail-ghaani.html
 
-**Eidevall to leave role as Arsenal Women head coach**\
-`Jonas Eidevall is to leave his role as head coach of Arsenal Women.`\
+**Eidevall leaves role as Arsenal Women head coach**\
+`Jonas Eidevall has left his role as head coach of Arsenal Women.`\
 https://nytimes.com/athletic/5838519/2024/10/15/jonas-eidevall-sacked-arsenal-next/
 
 **Matt Lloyd's journey: From mowing lawns at a pet cemetery to Timberwolves GM**\

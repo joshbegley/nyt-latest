@@ -1,3 +1,11 @@
+**Iranian General Seen in State Media After Whereabouts Questioned**\
+`The commander of Iran’s Quds Force was shown in a broadcast by Iranian state news media on Tuesday.`\
+https://nytimes.com/video/world/middleeast/100000009761770/iran-general-esmail-ghaani.html
+
+**Eidevall to leave role as Arsenal Women head coach**\
+`Jonas Eidevall is to leave his role as head coach of Arsenal Women.`\
+https://nytimes.com/athletic/5838519/2024/10/15/jonas-eidevall-sacked-arsenal-next/
+
 **Matt Lloyd's journey: From mowing lawns at a pet cemetery to Timberwolves GM**\
 `Lloyd has climbed the ranks and is playing an essential role in the turnaround of one of the league's long-struggling franchises.`\
 https://nytimes.com/athletic/5771971/2024/10/15/matt-lloyd-timberwolves-journey/
