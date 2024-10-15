@@ -1,3 +1,15 @@
+**NFL Week 7 odds, spreads, schedule: Chiefs-49ers and Vikings-Lions highlight exciting week**\
+`NFL Week 7 features some marquee matchups, including the Vikings against the Lions and the 49ers against the Chiefs.`\
+https://nytimes.com/athletic/5842560/2024/10/15/nfl-week-7-odds-spreads-schedule-chiefs-49ers-vikings-lions/
+
+**Mike Silver: The mission for covering the NFL has never been clearer**\
+`The longtime reporter and analyst joins The Athletic as an NFL senior writer.`\
+https://nytimes.com/athletic/5843764/2024/10/15/mike-silver-joins-the-athletic/
+
+**Hail, Salmon Caesar**\
+`This clever recipe from Jerrelle Guy comes with both a secret ingredient and a timesaving twist.`\
+https://nytimes.com/2024/10/15/dining/hail-salmon-caesar.html
+
 **What we're seeing with the Bucks: Gary Trent Jr.'s strong start at shooting guard**\
 `From a Damian Lillard-Giannis Antetokounmpo connection to getting beaten on the defensive glass, we look at what's happening with the Bucks.`\
 https://nytimes.com/athletic/5843923/2024/10/15/bucks-gary-trent-jr-giannis-damian-lillard/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5844926/2024/10/15/scoop-city-week-7-must-adds-and-
 **Trudeau’s Move Casts Light on the Reach of India’s Intelligence Agencies**\
 `The Canadian prime minster’s accusation of Indian government involvement in the killing of a Sikh nationalist signifies a sharp escalation in diplomatic tensions between India and Canada.`\
 https://nytimes.com/2024/10/15/world/asia/justin-trudeau-accusations-india-intelligence-agencies.html
-
-**Trump Leans On Creative Bookkeeping to Keep Up in Cash Race**\
-`Donald J. Trump’s official campaign committee has a payroll of fewer than a dozen and has found ways for another account to pick up the tab for his rallies.`\
-https://nytimes.com/2024/10/15/us/politics/trump-campaign-costs.html
-
-**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/5834883/2024/10/15/nhl-standings-playoffs-projections-odds/
-
-**The Bounce: Season previews and NBA TV's awkward moment**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5844633/2024/10/15/bucks-giannis-antetokounmpo-damian-lillard-nbatv-the-bounce/
 
