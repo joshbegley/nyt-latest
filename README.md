@@ -1,3 +1,7 @@
+**Mirtle: The Leafs' Liljegren vs. Timmins debate highlights trouble with depth defencemen**\
+`Healthy scratched through the first three games after losing his job to Timmins, Liljegren has become the Leafs' latest polarizing player.`\
+https://nytimes.com/athletic/5844914/2024/10/15/maple-leafs-liljegren-timmins-defense/
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/10/15/opinion/thepoint
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/business/economy/michelle-bowman-fed-trump.html
 **As Black Voters Hesitate on Harris, Democrats Race to Win Them Over**\
 `With a frenzy of activity, the vice president and her allies are trying to strengthen her support with Black voters, whose growing alienation the party’s leaders had not confronted directly until now.`\
 https://nytimes.com/2024/10/15/us/politics/harris-black-voters-trump.html
-
-**Jerry Jones snaps back at critics over Sunday's blowout loss**\
-`The Cowboys (3-3) are currently third in the NFC East.`\
-https://nytimes.com/athletic/5844999/2024/10/15/jerry-jones-the-fan-critics-cowboys/
 
