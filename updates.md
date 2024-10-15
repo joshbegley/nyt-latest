@@ -1,3 +1,11 @@
+**A Very English Sporting Scandal: Did a Steel Conker Taint a Title?**\
+`Conkers are buckeye chestnuts that are part of an annual championship. This year, there are accusations of cheating. And it’s all very serious.`\
+https://nytimes.com/2024/10/15/world/england-conkers-cheating.html
+
+**Ka Made Rap on His Own Terms. Hear How in 7 Songs.**\
+`Remembering the hip-hop artist (and New York City firefighter), who died over the weekend at 52.`\
+https://nytimes.com/2024/10/15/arts/music/amplifier-newsletter-ka-playlist.html
+
 **Davante Adams trade grades: Kudos to Jets for pushing all in; why did Raiders wait so long?**\
 `This was a deal both teams had to make, but the Raiders surely could have gotten a better deal if they had moved Adams sooner. `\
 https://nytimes.com/athletic/5844920/2024/10/15/davante-adams-trade-grades-jets-raiders/
