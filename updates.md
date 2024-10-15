@@ -1,3 +1,11 @@
+**There Is No Crying in Baseball (Except Over This Hat)**\
+`Mets and Yankees fans seem to agree: Mayor Eric Adams’s both-sides baseball cap struck out.`\
+https://nytimes.com/2024/10/15/style/mayor-adams-mets-yankees-hat.html
+
+**Trump Says ‘Growth’ and Tariffs Will Pay for $15 Trillion Agenda**\
+`In a combative interview, the former president hinted at even higher tariffs as an economic magic bullet.`\
+https://nytimes.com/2024/10/15/us/politics/trump-tariffs-economy-economy-club-chicago.html
+
 **Trump Says ’Growth’ and Tariffs Will Pay for $15 Trillion Agenda**\
 `In a combative interview, the former president hinted at even higher tariffs as an economic magic bullet.`\
 https://nytimes.com/2024/10/15/us/politics/trump-tariffs-economy-economy-club-chicago.html
