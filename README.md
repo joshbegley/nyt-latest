@@ -1,3 +1,11 @@
+**Even Charlamagne Can’t Push Harris Off Message**\
+`It may not be great radio, but Harris made a solid case for why she’d be better for Black America.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/charlamagne-harris-interview-detroit
+
+**Giants' Andrew Thomas out with potential season-ending foot injury**\
+`Thomas injured his foot on the Giants’ sole touchdown drive in Sunday’s loss to the Cincinnati Bengals.`\
+https://nytimes.com/athletic/5846159/2024/10/15/andrew-thomas-giants-foot-injury-update/
+
 **‘Smart’ or Criminal? Trump’s Changing Views on Talking to Foreign Leaders**\
 `The former president, who once pushed to prosecute a former secretary of state for talking with foreign officials, said that it would be “a good thing” for himself to have secretly kept in touch with President Vladimir V. Putin of Russia — if he did.`\
 https://nytimes.com/2024/10/15/us/politics/trump-putin-communication.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/15/business/media/washington-post-dealmaking-will-le
 **Tuchel's coaching playbook: Tennis balls, training 'problems' - and lots of conflict**\
 `The German has taken on one of the biggest challenges in football, but history suggests he will not be daunted`\
 https://nytimes.com/athletic/5845637/2024/10/15/thomas-tuchel-england-coach-profile/
-
-**Lufthansa Fined $4 Million for Stopping Jewish Passengers From Boarding Plane**\
-`The Transportation Department handed out a record fine after the airline prevented 128 travelers from making a connecting flight in 2022.`\
-https://nytimes.com/2024/10/15/us/politics/lufthansa-jewish-passengers-fine.html
-
-**Adams Chooses Ex-Prosecutor to Replace City Hall Official Who Resigned**\
-`Chauncey Parker will replace Philip B. Banks III, who last week resigned from his role as the deputy mayor for public safety.`\
-https://nytimes.com/2024/10/15/nyregion/eric-adams-deputy-mayor-public-safety.html
 
