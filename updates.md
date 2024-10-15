@@ -1,3 +1,7 @@
+**At a Trump Town Hall Cut Short, a D.J. Session Runs Long**\
+`After a second medical incident at Donald Trump’s event outside Philadelphia, the candidate stood on the stage bobbing for a half-hour as the crowd slowly filtered out.`\
+https://nytimes.com/2024/10/14/us/politics/trump-town-hall-dj-music.html
+
 **Igor Shesterkin's big night, Mika Zibanejad gets going, more: 4 Rangers takeaways**\
 `Mika Zibanejad finally got his first points of the season in a 4-1 home victory against the Red Wings.`\
 https://nytimes.com/athletic/5843962/2024/10/14/rangers-zibanejad-shesterkin-red-wings/
