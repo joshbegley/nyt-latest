@@ -1,3 +1,11 @@
+**Understanding Canada’s Fight With India Over a Murdered Sikh Activist**\
+`The diplomatic rift has suddenly grown more stark as Canada amplifies its accusations that India is directing lethal operations abroad.`\
+https://nytimes.com/2024/10/15/world/canada/canada-india-diplomats-explained.html
+
+**Late Night Is Still Waiting for Trump’s Medical Report**\
+`Kamala Harris’s health is said to be “excellent,” but the nation has yet to hear about Donald Trump’s. “Do you really want to see his X-rays?” said Stephen Colbert.`\
+https://nytimes.com/2024/10/15/arts/television/stephen-colbert-harris-trump-medical.html
+
 **Shopping trips, tours and dumplings in Chinatown: The NFL London Games experience for players**\
 `The NFL London Games are underway — and this is how players enjoy their time around the games`\
 https://nytimes.com/athletic/5834645/2024/10/15/nfl-london-games-player-experience/
