@@ -1,3 +1,7 @@
+**Ten Hag returns to Manchester United with plan for Brentford and scrutiny on his position**\
+`Erik ten Hag is back working on how to stop Brentford after a week in which scrutiny over his position filled the silence from the club`\
+https://nytimes.com/athletic/5843260/2024/10/15/ten-hag-returns-manchester-united/
+
 **Brighton and international breaks: How do you manage the Premier League's most cosmopolitan squad?**\
 `The lessons Fabian Hurzeler learned from his side's return to action after the September international break `\
 https://nytimes.com/athletic/5773290/2024/10/15/brighton-managing-international-breaks/
