@@ -1,3 +1,7 @@
+**Browns trade WR Amari Cooper to Bills: Source**\
+`Cooper is in his third season with Cleveland and was the team leader in receptions (24), yards (250) and receiving touchdowns.`\
+https://nytimes.com/athletic/5845532/2024/10/15/amari-cooper-trade-bills-browns/
+
 **The U.S. warns Israel to increase aid to Gaza or face penalties.**\
 `By Michael Crowley and Eric Schmitt`\
 https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/us-israel-military-aid-gaza-improvements
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/arts/music/amplifier-newsletter-ka-playlist.html
 **Davante Adams trade grades: Kudos to Jets for pushing all in; why did Raiders wait so long?**\
 `This was a deal both teams had to make, but the Raiders surely could have gotten a better deal if they had moved Adams sooner. `\
 https://nytimes.com/athletic/5844920/2024/10/15/davante-adams-trade-grades-jets-raiders/
-
-**Cantona questions 'scandalous' decision to end Ferguson's United role**\
-`Eric Cantona has called the decision to end Sir Alex Ferguson&#8217;s multi-million pound Manchester United ambassador contract &#8220;scandalous&#8221;.`\
-https://nytimes.com/athletic/5845360/2024/10/15/eric-cantona-ferguson-manchester-united/
 

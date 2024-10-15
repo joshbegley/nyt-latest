@@ -1,3 +1,7 @@
+**Browns trade WR Amari Cooper to Bills: Source**\
+`Cooper is in his third season with Cleveland and was the team leader in receptions (24), yards (250) and receiving touchdowns.`\
+https://nytimes.com/athletic/5845532/2024/10/15/amari-cooper-trade-bills-browns/
+
 **The U.S. warns Israel to increase aid to Gaza or face penalties.**\
 `By Michael Crowley and Eric Schmitt`\
 https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/us-israel-military-aid-gaza-improvements
