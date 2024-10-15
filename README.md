@@ -1,3 +1,7 @@
+**Amari Cooper trade grades: Bills load up; Browns try to make best of bad situation**\
+`This has the look of a win-win deal. Buffalo gives Josh Allen the playmaker he needs, while Cleveland maximized its return for an aging WR. `\
+https://nytimes.com/athletic/5845561/2024/10/15/amari-cooper-trade-grades-bills-browns/
+
 **Canadian Officials Testify on Foreign Meddling as Tensions with India Rise**\
 `Prime Minister Justin Trudeau’s top aides spoke at a public hearing a day after Canada accused Indian diplomats of orchestrating killings and extortions in the country.`\
 https://nytimes.com/2024/10/15/world/americas/trudeau-aides-india-foreign-interference.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-cognitive-decline
 **MLB Gold Glove Award finalists announced**\
 `Dansby Swanson, Matt Chapman ... and Juan Soto? The Gold Glove Award finalists are here.`\
 https://nytimes.com/athletic/5845733/2024/10/15/mlb-gold-glove-award-finalists/
-
-**A Distant Planet May Host a Moon That’s Spewing a Volcanic Cloud**\
-`Astronomers have yet to confirm the existence of exomoons, but a molecular signal around a far away star offers some of the best evidence yet.`\
-https://nytimes.com/2024/10/15/science/exomoon-volcanic-io-jupiter.html
 
