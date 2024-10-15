@@ -1,3 +1,7 @@
+**The Athletic FC: Bielsa, Suarez and trouble in Uruguay. Plus: Man United end Ferguson deal**\
+`The differences between managing South American stars and Leeds United and why INEOS are dicing with danger`\
+https://nytimes.com/athletic/5844408/2024/10/15/marcelo-bielsa-luis-suarez-and-trouble-in-uruguay-plus-man-united-end-ferguson-deal/
+
 **Everton mailbag: Send your questions to Patrick Boyland**\
 `Send us your questions and Patrick Boyland will respond to as many as he can in an article later this week`\
 https://nytimes.com/athletic/5842749/2024/10/15/everton-mailbag-friedkin-calvert-lewin-dyche/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/briefing/musk-social-media-regulation.html
 **K-Pop Star Testifies in South Korean Parliament About Bullying at Work**\
 `The appearance by Hanni, a member of NewJeans, was eagerly awaited, but she offered few revelations about her famously regimented industry.`\
 https://nytimes.com/2024/10/15/world/asia/newjeans-hanni-bullying-testimony.html
-
-**Pistons' changes range from staff to roster to wardrobe — all with one goal in mind**\
-`J.B. Bickerstaff helped turn around the Cavaliers. Can he find a formula that works for the Pistons and star guard Cade Cunningham?`\
-https://nytimes.com/athletic/5840953/2024/10/15/detroit-pistons-preview-cade-cunningham-jb-bickerstaff/
 
