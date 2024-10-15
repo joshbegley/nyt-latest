@@ -6,7 +6,7 @@ https://nytimes.com/2024/10/15/style/mayor-adams-mets-yankees-hat.html
 `In a combative interview, the former president hinted at even higher tariffs as an economic magic bullet.`\
 https://nytimes.com/2024/10/15/us/politics/trump-tariffs-economy-economy-club-chicago.html
 
-**Hollywood and Bollywood Kickoff Diwali in New York**\
+**Hollywood and Bollywood Kick Off Diwali in New York**\
 `Hasan Minhaj, Mira Nair and Nora Fatehi joined business and entertainment leaders of South Asian descent at the Pierre hotel in their most elegant attire.`\
 https://nytimes.com/2024/10/15/style/diwali-party-pierre-hotel.html
 
