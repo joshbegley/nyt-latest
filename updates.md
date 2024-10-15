@@ -1,3 +1,7 @@
+**Bill Belichick on ManningCast: 'I'm not a big fan of the Jets'**\
+`"They've barely won over 30 percent (of their games) in the last 10 years," Belichick said.`\
+https://nytimes.com/athletic/5844009/2024/10/15/bill-belichick-manningcast-jets-bills/
+
 **The Defendants in France’s Rape Trial Are Telling Us Something Horrifying**\
 `The past few weeks have been a brutal reminder that ignorance or the claiming of it can be a convenient tool of the powerful.`\
 https://nytimes.com/2024/10/15/opinion/france-rape-trial-pelicot.html

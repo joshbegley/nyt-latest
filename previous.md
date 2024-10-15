@@ -1,3 +1,7 @@
+**Bill Belichick on ManningCast: 'I'm not a big fan of the Jets'**\
+`"They've barely won over 30 percent (of their games) in the last 10 years," Belichick said.`\
+https://nytimes.com/athletic/5844009/2024/10/15/bill-belichick-manningcast-jets-bills/
+
 **The Defendants in France’s Rape Trial Are Telling Us Something Horrifying**\
 `The past few weeks have been a brutal reminder that ignorance or the claiming of it can be a convenient tool of the powerful.`\
 https://nytimes.com/2024/10/15/opinion/france-rape-trial-pelicot.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5839725/2024/10/15/manchester-city-vs-the-premier-l
 **Did Oregon, Dan Lanning intentionally commit illegal substitution penalty vs. Ohio State?**\
 `The illegal substitution call late in Oregon's 32-31 win against Ohio State burned critical seconds off the clock for the Buckeyes.`\
 https://nytimes.com/athletic/5844044/2024/10/15/oregon-ohio-state-final-play-dan-lanning-penalty/
-
-**Allyson and Chantelle Swaby: Sisters, team-mates and agents of change for Jamaica**\
-`The Swabys explain what it's like to make history with Jamaica while fighting for a brighter future - and doing it all alongside a sibling`\
-https://nytimes.com/athletic/5806843/2024/10/15/jamaica-allyson-chantelle-swaby-interview/
 
