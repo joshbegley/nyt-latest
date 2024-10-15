@@ -1,3 +1,7 @@
+**Corrections: Oct. 15, 2024**\
+`Corrections that appeared in print on Tuesday, Oct. 15, 2024.`\
+https://nytimes.com/2024/10/14/pageoneplus/corrections-oct-15-2024.html
+
 **Tyson Foerster continues to emerge as one of Flyers' most vital forwards**\
 `The center has earned more opportunities and more trust from his coach despite being just 22 years old.`\
 https://nytimes.com/athletic/5843716/2024/10/14/flyers-tyson-foerster-breakout-tortorella/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5843623/2024/10/14/bills-james-cook-inactive-agains
 **Richard Seymour expected to be approved as minority owner of Raiders**\
 `The NFL finance committee has approved Seymour's bid and plans to submit it to league owners for a vote Tuesday.`\
 https://nytimes.com/athletic/5843604/2024/10/14/richard-seymour-raiders-minority-owner/
-
-**An Arab American group that backed Biden in 2020 won’t endorse in 2024.**\
-`By Charles Homans`\
-https://nytimes.com/live/2024/10/14/us/harris-trump-election/an-arab-american-group-that-backed-biden-in-2020-wont-endorse-in-2024
 

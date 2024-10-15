@@ -1,3 +1,7 @@
+**Corrections: Oct. 15, 2024**\
+`Corrections that appeared in print on Tuesday, Oct. 15, 2024.`\
+https://nytimes.com/2024/10/14/pageoneplus/corrections-oct-15-2024.html
+
 **Tyson Foerster continues to emerge as one of Flyers' most vital forwards**\
 `The center has earned more opportunities and more trust from his coach despite being just 22 years old.`\
 https://nytimes.com/athletic/5843716/2024/10/14/flyers-tyson-foerster-breakout-tortorella/
