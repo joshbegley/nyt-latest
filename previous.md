@@ -1,3 +1,19 @@
+**Emerson: Georgia is still searching, on offense, defense and off the field**\
+`Saturday's game at Texas will tell us a lot about this Georgia team and what it can be the rest of the season.`\
+https://nytimes.com/athletic/5844513/2024/10/15/georgia-football-midseason-texas-kirby-smart/
+
+**Fantasy football impact: The Jets under Jeff Ulbrich**\
+`How did the coaching change impact Aaron Rodgers, Garrett Wilson, Allen Lazard and Breece Hall?`\
+https://nytimes.com/athletic/5844675/2024/10/15/fantasy-football-jets-ulbrich-takeaways-rodgers-hall-wilson-lazard/
+
+**Prediction markets tell a different story from the polls.**\
+`By Dealbook`\
+https://nytimes.com/live/2024/10/15/us/harris-trump-election/prediction-markets-tell-a-different-story-from-the-polls
+
+**Boeing Seeks to Line Up Billions in Financing as Strike Goes On**\
+`The aerospace giant said it could raise as much as $25 billion in debt or equity over the next three years, including a $10 billion line of credit.`\
+https://nytimes.com/2024/10/15/business/boeing-financing-strike.html
+
 **JJ Redick has the Lakers finally prioritizing shooting more 3-pointers**\
 `Los Angeles is averaging nearly 39 3s attempted through three preseason games. Will the increased volume last when games count?`\
 https://nytimes.com/athletic/5832451/2024/10/15/lakers-3-pointers-jj-redick-preseason/
@@ -17,20 +33,4 @@ https://nytimes.com/live/2024/10/15/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Trump to Rally in Georgia as Harris Ramps Up Attacks**\
 `After an event in Chicago, Donald Trump will head to Atlanta, near the site of his booking last year on charges related to his attempts to overturn the 2020 race. Kamala Harris is set to appear with Charlamagne Tha God.`\
 https://nytimes.com/live/2024/10/15/us/harris-trump-election
-
-**Israel tells the U.S. that it won’t target nuclear sites during its initial retaliation against Iran, officials say.**\
-`By Patrick Kingsley and Ronen Bergman`\
-https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/israel-tells-the-us-that-it-wont-target-nuclear-sites-during-its-initial-retaliation-against-iran-officials-say
-
-**Here are the latest developments.**\
-`By Patrick Kingsley and Ronen Bergman`\
-https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/here-are-the-latest-developments
-
-**Live Updates: Israel Tells U.S. It Won’t Hit Iran’s Oil or Nuclear Sites in Next Attack, Officials Say**\
-`The Israeli assurances come as the Biden administration tries to avert a bigger war in the Middle East. The region remained on edge as Israeli forces attacked Iranian proxies in Gaza and Lebanon.`\
-https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news
-
-**Four takeaways after 4 Canadiens games in 6 nights to start the season**\
-`After four games, some questions we had on the Canadiens remain unanswered, but some answers have already emerged.`\
-https://nytimes.com/athletic/5844236/2024/10/15/canadiens-takeaways-penguins/
 

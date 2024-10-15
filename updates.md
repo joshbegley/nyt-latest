@@ -1,3 +1,19 @@
+**Emerson: Georgia is still searching, on offense, defense and off the field**\
+`Saturday's game at Texas will tell us a lot about this Georgia team and what it can be the rest of the season.`\
+https://nytimes.com/athletic/5844513/2024/10/15/georgia-football-midseason-texas-kirby-smart/
+
+**Fantasy football impact: The Jets under Jeff Ulbrich**\
+`How did the coaching change impact Aaron Rodgers, Garrett Wilson, Allen Lazard and Breece Hall?`\
+https://nytimes.com/athletic/5844675/2024/10/15/fantasy-football-jets-ulbrich-takeaways-rodgers-hall-wilson-lazard/
+
+**Prediction markets tell a different story from the polls.**\
+`By Dealbook`\
+https://nytimes.com/live/2024/10/15/us/harris-trump-election/prediction-markets-tell-a-different-story-from-the-polls
+
+**Boeing Seeks to Line Up Billions in Financing as Strike Goes On**\
+`The aerospace giant said it could raise as much as $25 billion in debt or equity over the next three years, including a $10 billion line of credit.`\
+https://nytimes.com/2024/10/15/business/boeing-financing-strike.html
+
 **Who to drop ahead of Week 7? Time to cut Justin Herbert**\
 `Week 6 was the first time Herbert threw for more than 200 yards this season. It's not a sign of improvement. It's a sign to run away.`\
 https://nytimes.com/athletic/5844586/2024/10/15/fantasy-football-who-to-drop-ahead-of-week-7-time-to-cut-herbert/
