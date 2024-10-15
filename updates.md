@@ -1,3 +1,7 @@
+**The View of the Election from One Philly Barbershop**\
+`A round-table event offers a glimpse of the challenges Harris faces and the effort to overcome them.`\
+https://nytimes.com/2024/10/15/us/politics/trump-harris-black-male-voters.html
+
 **Vikings acquire Cam Akers from Texans, reuniting RB with O'Connell**\
 `This is Akers' second time with the Vikings in the last two years. Minnesota explored re-signing him in the spring before going to Houston.`\
 https://nytimes.com/athletic/5846194/2024/10/15/vikings-rb-cam-akers-texans-trade/
