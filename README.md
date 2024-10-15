@@ -22,7 +22,7 @@ https://nytimes.com/2024/10/15/us/abortion-could-decide-control-of-state-supreme
 `The candidates will meet in what will most likely be their only debate matchup on Tuesday night, as polls show Mr. Cruz with a slight lead.`\
 https://nytimes.com/2024/10/15/us/politics/cruz-allred-texas-senate-debate.html
 
-**Browns trade WR Amari Cooper to Bills: Source**\
+**Browns trade WR Amari Cooper to Bills**\
 `Cooper is in his third season with Cleveland and was the team leader in receptions (24), yards (250) and receiving touchdowns.`\
 https://nytimes.com/athletic/5845532/2024/10/15/amari-cooper-trade-bills-browns/
 
