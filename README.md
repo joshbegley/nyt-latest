@@ -1,3 +1,11 @@
+**Merritt Mathias will retire as a truly authentic NWSL original**\
+`Mathias, who played in the NWSL's inaugural season, will be calling it quits next month - she has some regrets but plenty to be content with`\
+https://nytimes.com/athletic/5844261/2024/10/15/merritt-mathias-retirement-angel-city-courage/
+
+**Steelers coach Mike Tomlin says Russell Wilson 'in consideration' to start Sunday**\
+`Pittsburgh will host the Jets for "Sunday Night Football" in Week 7.`\
+https://nytimes.com/athletic/5845418/2024/10/15/mike-tomlin-media-availability-steelers-fields-wilson/
+
 **Super Bowl 2025 odds: 49ers and Ravens rising, plus six dark-horse contenders**\
 `Breaking down the Super Bowl odds before Week 7 games, with favorites and dark horse contenders. `\
 https://nytimes.com/athletic/5845256/2024/10/15/super-bowl-odds-49ers-ravens-plus-dark-horse-contenders/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5845391/2024/10/15/bryan-price-sf-giants-pitching-c
 **Holiday Sales Growth Expected to Normalize in an Abnormal Year**\
 `Despite shoppers’ election-year concerns and worries about the economy, retail executives predict sales to increase as much as 3.5 percent over last year’s holiday season.`\
 https://nytimes.com/2024/10/15/business/holiday-sales-growth.html
-
-**Would a Strong Job Market Stop Fed Rate Cuts? This Official Says No.**\
-`Mary C. Daly, the president of the Federal Reserve Bank of San Francisco, said that the central bank shouldn’t act “out of fear.”`\
-https://nytimes.com/2024/10/15/business/economy/fed-mary-daly-jobs-inflation.html
-
-**Giant Pandas From China Return to National Zoo in Washington, D.C.**\
-`A motorcade through the capital revived “panda diplomacy” between Washington and Beijing for the first time in nearly a year.`\
-https://nytimes.com/2024/10/15/us/politics/pandas-china-national-zoo.html
 
