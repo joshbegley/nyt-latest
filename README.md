@@ -1,3 +1,11 @@
+**City Ballet Ends Its Season With a Prayer and a Romantic Romp**\
+`The fall season wrapped up with an excellent program featuring works by Balanchine and Ratmansky, as well as a celebration of Justin Peck’s 10th year as resident choreographer.`\
+https://nytimes.com/2024/10/15/arts/dance/new-york-city-ballet-mozartiana-mira-nadon.html
+
+**The Push for Minority Voters and the Undecided**\
+`Readers write about Black, Latino and undecided voters in the 2024 campaign. Also: Protection for health workers; a father’s books; Japan’s birthrate.`\
+https://nytimes.com/2024/10/15/opinion/black-latino-undecided-voters.html
+
 **Oil Prices Fall After Israel Reportedly Says It Won’t Target Iran’s Nuclear or Oil Facilities**\
 `Brent crude, the international benchmark, was trading at below $74 a barrel on Tuesday, a drop from the $80 range.`\
 https://nytimes.com/2024/10/15/world/middleeast/oil-prices-israel-iran-attacks.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/15/dining/nyc-restaurant-news.html
 **Trump Media Stock Surges, Nearly Tripling in Matter of Weeks**\
 `The sharp rise in the share price of the parent of Truth Social has added about $2 billion to the net worth of former President Donald J. Trump.`\
 https://nytimes.com/2024/10/15/business/trump-media-stock-price.html
-
-**Eidevall's Arsenal reign unravelled quickly but the writing was on the wall**\
-`The Arsenal manager's exit may hint at a more ruthless era in the WSL, with less tolerance for under-performance`\
-https://nytimes.com/athletic/5844796/2024/10/15/jonas-eidevall-arsenal-resignation/
-
-**PWHL releases full 90-game schedule for 2024-25 season**\
-`The PWHL will begin its second season Nov. 30 with a game between Toronto and Boston at Coca-Cola Coliseum.`\
-https://nytimes.com/athletic/5844981/2024/10/15/pwhl-2024-25-season-schedule/
 
