@@ -1,3 +1,11 @@
+**Golf mailbag: Submit a question for Gabby Herzig now**\
+`<p>Fall golf is upon us, with the colors popping on our home courses and the PGA Tour fall season underway.`\
+https://nytimes.com/athletic/5845168/2024/10/15/golf-mailbag-submit-a-question-for-gabby-herzig-now/
+
+**Georgia Tech, Georgia will face off in 2025 at Mercedes-Benz Stadium**\
+`The Georgia Tech-Georgia rivalry game will be played off campus for the first time since 1913.`\
+https://nytimes.com/athletic/5845130/2024/10/15/georgia-tech-georgia-2025-game-mercedes-benz-stadium/
+
 **The Windup: Yankees pounce as Mets rebound**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5845128/2024/10/15/mlb-playoffs-mets-dodgers-yankees-guardians-the-windup/
