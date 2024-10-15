@@ -1,3 +1,11 @@
+**Iranian General Seen in State Media After Whereabouts Questioned**\
+`The commander of Iran’s Quds Force was shown in a broadcast by Iranian state news media on Tuesday.`\
+https://nytimes.com/video/world/middleeast/100000009761770/iran-general-esmail-ghaani.html
+
+**Eidevall to leave role as Arsenal Women head coach**\
+`Jonas Eidevall is to leave his role as head coach of Arsenal Women.`\
+https://nytimes.com/athletic/5838519/2024/10/15/jonas-eidevall-sacked-arsenal-next/
+
 **Matt Lloyd's journey: From mowing lawns at a pet cemetery to Timberwolves GM**\
 `Lloyd has climbed the ranks and is playing an essential role in the turnaround of one of the league's long-struggling franchises.`\
 https://nytimes.com/athletic/5771971/2024/10/15/matt-lloyd-timberwolves-journey/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/15/arts/design/these-twin-marvels-of-art-conservatio
 **Kamala Harris Is Taking a Risk. Will It Pay Off?**\
 `An interview on Fox News could be adversarial, but it’s braver than anything Trump has done in the home stretch.`\
 https://nytimes.com/live/2024/10/08/opinion/thepoint/harris-fox-interview-tipsheet
-
-**As Harris Visits Detroit, Some Democrats See Ground To Be Made Up**\
-`Democrats have long won by wide margins in Detroit, but some party leaders said the vice president needed to do more to counter an assertive Trump campaign.`\
-https://nytimes.com/2024/10/15/us/detroit-harris-trump-michigan.html
-
-**Trump’s Border Plans Are Light on Details but Strong on Fury**\
-`The former president’s sweeping immigration proposals face daunting challenges, but voters still trust his positions more than his opponent’s.`\
-https://nytimes.com/2024/10/15/us/politics/trumps-immigration-plans.html
 
