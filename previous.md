@@ -1,3 +1,11 @@
+**Phillies extend manager Rob Thomson's contract through 2026**\
+`Thomson, whose contract was set to expire following the 2025 season, now has a deal through 2026. His coaching staff will return next year. `\
+https://nytimes.com/athletic/5845325/2024/10/15/rob-thomson-phillies-contract-extension/
+
+**Trump Plays Music After Medical Emergencies Derail Town Hall**\
+`Donald J. Trump cut questions short and started playing music after two medical emergencies in the crowd at his town-hall event in suburban Philadelphia.`\
+https://nytimes.com/video/us/politics/100000009761941/trump-town-hall-music.html
+
 **A Pro-Trump Ad Looks to Turn Harris’s Record as a Prosecutor Against Her**\
 `The spot from one of the biggest super PACs backing Donald Trump portrays Kamala Harris as a radical leftist, especially on crime — channeling a G.O.P. law-and-order message that dates back to Nixon.`\
 https://nytimes.com/2024/10/15/us/politics/trump-harris-ad-prosecutor.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5845235/2024/10/15/angel-city-nwsl-santions-salary-
 **City Ballet Ends Its Season With a Prayer and a Romantic Romp**\
 `The fall season wrapped up with an excellent program featuring works by Balanchine and Ratmansky, as well as a celebration of Justin Peck’s 10th year as resident choreographer.`\
 https://nytimes.com/2024/10/15/arts/dance/new-york-city-ballet-mozartiana-mira-nadon.html
-
-**The Push for Minority Voters and the Undecided**\
-`Readers write about Black, Latino and undecided voters in the 2024 campaign. Also: Protection for health workers; a father’s books; Japan’s birthrate.`\
-https://nytimes.com/2024/10/15/opinion/black-latino-undecided-voters.html
-
-**Oil Prices Fall After Israel Reportedly Says It Won’t Target Iran’s Nuclear or Oil Facilities**\
-`Brent crude, the international benchmark, was trading at below $74 a barrel on Tuesday, a drop from the $80 range.`\
-https://nytimes.com/2024/10/15/world/middleeast/oil-prices-israel-iran-attacks.html
 

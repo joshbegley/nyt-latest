@@ -1,3 +1,11 @@
+**Phillies extend manager Rob Thomson's contract through 2026**\
+`Thomson, whose contract was set to expire following the 2025 season, now has a deal through 2026. His coaching staff will return next year. `\
+https://nytimes.com/athletic/5845325/2024/10/15/rob-thomson-phillies-contract-extension/
+
+**Trump Plays Music After Medical Emergencies Derail Town Hall**\
+`Donald J. Trump cut questions short and started playing music after two medical emergencies in the crowd at his town-hall event in suburban Philadelphia.`\
+https://nytimes.com/video/us/politics/100000009761941/trump-town-hall-music.html
+
 **A Pro-Trump Ad Looks to Turn Harris’s Record as a Prosecutor Against Her**\
 `The spot from one of the biggest super PACs backing Donald Trump portrays Kamala Harris as a radical leftist, especially on crime — channeling a G.O.P. law-and-order message that dates back to Nixon.`\
 https://nytimes.com/2024/10/15/us/politics/trump-harris-ad-prosecutor.html
