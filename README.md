@@ -1,3 +1,7 @@
+**Ten Hag returns to Manchester United with plan for Brentford and scrutiny on his position**\
+`Erik ten Hag is back working on how to stop Brentford after a week in which scrutiny over his position filled the silence from the club`\
+https://nytimes.com/athletic/5843260/2024/10/15/ten-hag-returns-manchester-united/
+
 **Brighton and international breaks: How do you manage the Premier League's most cosmopolitan squad?**\
 `The lessons Fabian Hurzeler learned from his side's return to action after the September international break `\
 https://nytimes.com/athletic/5773290/2024/10/15/brighton-managing-international-breaks/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5806843/2024/10/15/jamaica-allyson-chantelle-swaby-
 **Hiring Guardiola would betray the Southgate era and risk turning England into just another club**\
 `Appointing a coach like Guardiola would transform the England team into just another club`\
 https://nytimes.com/athletic/5840772/2024/10/15/england-pep-guardiola-gareth-southgate/
-
-**Premier League managers' favourite words and phrases and why they use them**\
-`From various uses of the word 'mate' to a German acronym, our writers look at why managers say the things they say`\
-https://nytimes.com/athletic/5831439/2024/10/15/premier-league-manager-phrases/
 
