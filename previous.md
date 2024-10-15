@@ -1,3 +1,11 @@
+**Liberty-Lynx Game 2 draws largest WNBA Finals audience in 23 years**\
+`The game averaged 1.34 million viewers on ABC, marking it the most-viewed WNBA Finals game ever to air on the network.`\
+https://nytimes.com/athletic/5845578/2024/10/15/wnba-finals-viewership-game-2/
+
+**Atlanta named Super Bowl LXII host in 2028**\
+`Super Bowl LXII will mark Atlanta's fourth time as the host city of the NFL's championship.`\
+https://nytimes.com/athletic/5845537/2024/10/15/atlanta-host-super-bowl-lxii-2028/
+
 **Market share report: Adding Kimani Vidal is bad math, Evan Engram's productive return and more**\
 `Evan Engram made a strong return in Week 6, but Michael Salfino says his production comes at the expense of Jaguars rookie Brian Thomas Jr.`\
 https://nytimes.com/athletic/5845370/2024/10/15/fantasy-football-targets-touches-week-6-vidal-engram/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/15/us/politics/cruz-allred-texas-senate-debate.html
 **Browns trade WR Amari Cooper to Bills**\
 `Cooper is in his third season with Cleveland and was the team leader in receptions (24), yards (250) and receiving touchdowns.`\
 https://nytimes.com/athletic/5845532/2024/10/15/amari-cooper-trade-bills-browns/
-
-**The U.S. warns Israel to increase aid to Gaza or face penalties.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/us-israel-military-aid-gaza-improvements
-
-**‘We Are Not a Monolith’: Black Artists Gather at the Philharmonic**\
-`An Afromodernism festival at the New York Philharmonic shines a light on Black artists, who are vastly underrepresented in classical music.`\
-https://nytimes.com/2024/10/15/arts/music/afromoderism-festival-new-york-philharmonic.html
 
