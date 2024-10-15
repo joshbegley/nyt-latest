@@ -1,3 +1,7 @@
+**There’s No Hot Wing Like a Korean American Atlanta Hot Wing**\
+`Smaller, lighter and sharper than Buffalo wings, this interpretation of a classic has faded away over time. But you can make it at home.`\
+https://nytimes.com/2024/10/15/dining/atlanta-hot-wings.html
+
 **South Carolina tops AP Top 25 preseason women's hoops poll**\
 `South Carolina compiled a 38-0 record and beat Iowa in the national championship last season.`\
 https://nytimes.com/athletic/5844677/2024/10/15/ap-women-college-basketball-top-25-preseason/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint
 **A Lawyer Seeking Sean Combs Accusers via Hotline Files 6 Lawsuits**\
 `The Houston lawyer Tony Buzbee filed suits in New York with new allegations of rape and sexual assault from 1995 to 2021. Mr. Combs denied the accusations.`\
 https://nytimes.com/2024/10/15/arts/music/sean-combs-diddy-tony-buzbee-lawsuits.html
-
-**Angel City disputes part of NWSL sanctions for salary cap violations**\
-`The team said, based on its understanding of the rules, that childcare payments do not count against the salary cap.`\
-https://nytimes.com/athletic/5845235/2024/10/15/angel-city-nwsl-santions-salary-cap/
 
