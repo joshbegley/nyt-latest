@@ -23,8 +23,8 @@ https://nytimes.com/paidpost/grand-seiko/journey-to-harmony-in-watchmaking.html
 `Horton suffered an injury in the Rams' game against San Jose State. `\
 https://nytimes.com/athletic/5843896/2024/10/14/tory-horton-injury-colorado-state/
 
-**Paul George suffers left knee injury vs. Hawks**\
-`George left the game and did not return after taking an awkward step while defending a Hawks player.`\
+**76ers' Paul George suffers left knee injury vs. Hawks**\
+`George left the game and did not return after taking an awkward step while defending Hawks forward Jalen Johnson.`\
 https://nytimes.com/athletic/5843875/2024/10/14/paul-george-injury-76ers-knee/
 
 **Steely Determination**\
