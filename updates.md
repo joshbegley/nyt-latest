@@ -1,3 +1,11 @@
+**Mets relievers navigate nervous moments in Game 2, but is it sustainable?**\
+`While the Mets bullpen is a big part of this magical run, there are reasons for concern. `\
+https://nytimes.com/athletic/5843854/2024/10/14/mets-bullpen-dodgers-nlcs/
+
+**76ers' Paul George suffers left knee injury vs. Hawks**\
+`George left the game and did not return after taking an awkward step while defending Hawks forward Jalen Johnson.`\
+https://nytimes.com/athletic/5843875/2024/10/14/paul-george-injury-76ers-knee/
+
 **Yankees' Rodón delivers gem in Game 1 win over Guardians: Takeaways**\
 `The Yankees struck first in the ALCS, using a familiar formula in a 5-2 victory over the Guardians in the Bronx.`\
 https://nytimes.com/athletic/5843913/2024/10/14/guardians-yankees-alcs-game-1-takeaways/
