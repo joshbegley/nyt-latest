@@ -1,3 +1,15 @@
+**Guerschon Yabusele's journey back to NBA and why he’s ready to impact 76ers**\
+`After a strong Olympic performance, Yabusele is ready to stick around the NBA this time.`\
+https://nytimes.com/athletic/5842823/2024/10/15/guerschon-yabusele-journey-nba-olympics-76ers/
+
+**The Brutal Reality of Panda Breeding**\
+`Panda breeding has been highlighted as one of the big success stories in conservation: U.`\
+https://nytimes.com/video/world/asia/100000009561726/the-brutal-reality-of-panda-breeding.html
+
+**Iranian General Is Seen in State Media After Questions Over His Whereabouts**\
+`Brig. Gen. Esmail Ghaani, commander of the elite Quds Force, appeared in video footage on Tuesday as Tehran braces for a possible counterstrike by Israel.`\
+https://nytimes.com/2024/10/15/world/middleeast/iran-general-ghaani-hezbollah-israel.html
+
 **Ferguson's Man Utd ambassadorial contract ended by INEOS**\
 `Manchester United new part-owners INEOS has continued its cost-cutting programme by ending a multi-million pound annual commitment to Sir Alex Ferguson, the most successful manager in the club&#8217;s history.`\
 https://nytimes.com/athletic/5842096/2024/10/15/manchester-united-alex-ferguson-contract-ineos/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/15/learning/word-of-the-day-concurrent.html
 **They Were Driving Through a Tunnel. Then the Water Rushed In.**\
 `A leak in the Queens-Midtown Tunnel and the race to plug it revealed the fragility of New York City’s aging transportation network.`\
 https://nytimes.com/2024/10/15/nyregion/queens-midtown-tunnel-leak.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/15/crosswords/spelling-bee-forum.html
-
-**Understanding Canada’s Fight With India Over a Murdered Sikh Activist**\
-`The diplomatic rift has suddenly grown more stark as Canada amplifies its accusations that India is directing lethal operations abroad.`\
-https://nytimes.com/2024/10/15/world/canada/canada-india-diplomats-explained.html
-
-**Late Night Is Still Waiting for Trump’s Medical Report**\
-`Kamala Harris’s health is said to be “excellent,” but the nation has yet to hear about Donald Trump’s. “Do you really want to see his X-rays?” said Stephen Colbert.`\
-https://nytimes.com/2024/10/15/arts/television/stephen-colbert-harris-trump-medical.html
 

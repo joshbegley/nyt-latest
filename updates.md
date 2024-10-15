@@ -1,3 +1,15 @@
+**Guerschon Yabusele's journey back to NBA and why he’s ready to impact 76ers**\
+`After a strong Olympic performance, Yabusele is ready to stick around the NBA this time.`\
+https://nytimes.com/athletic/5842823/2024/10/15/guerschon-yabusele-journey-nba-olympics-76ers/
+
+**The Brutal Reality of Panda Breeding**\
+`Panda breeding has been highlighted as one of the big success stories in conservation: U.`\
+https://nytimes.com/video/world/asia/100000009561726/the-brutal-reality-of-panda-breeding.html
+
+**Iranian General Is Seen in State Media After Questions Over His Whereabouts**\
+`Brig. Gen. Esmail Ghaani, commander of the elite Quds Force, appeared in video footage on Tuesday as Tehran braces for a possible counterstrike by Israel.`\
+https://nytimes.com/2024/10/15/world/middleeast/iran-general-ghaani-hezbollah-israel.html
+
 **Ferguson's Man Utd ambassadorial contract ended by INEOS**\
 `Manchester United new part-owners INEOS has continued its cost-cutting programme by ending a multi-million pound annual commitment to Sir Alex Ferguson, the most successful manager in the club&#8217;s history.`\
 https://nytimes.com/athletic/5842096/2024/10/15/manchester-united-alex-ferguson-contract-ineos/
