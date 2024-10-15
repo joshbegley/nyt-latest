@@ -1,3 +1,7 @@
+**‘We Are Not a Monolith’: Black Artists Gather at the Philharmonic**\
+`An Afromodernism festival at the New York Philharmonic shines a light on Black artists, who are vastly underrepresented in classical music.`\
+https://nytimes.com/2024/10/15/arts/music/afromoderism-festival-new-york-philharmonic.html
+
 **Merritt Mathias will retire as a truly authentic NWSL original**\
 `Mathias, who played in the NWSL's inaugural season, will be calling it quits next month - she has some regrets but plenty to be content with`\
 https://nytimes.com/athletic/5844261/2024/10/15/merritt-mathias-retirement-angel-city-courage/
