@@ -1,3 +1,7 @@
+**College football Week 8 odds, schedule: Texas favored vs. Georgia in heavyweight matchup**\
+`Georgia at Texas is the clear marquee game of Week 8 in college football, but there are a few other games to keep an eye on.`\
+https://nytimes.com/athletic/5845087/2024/10/15/college-football-week-8-odds-schedule-texas-georgia/
+
 **Local Officials Cannot Refuse to Certify Election Results, Georgia Judge Rules**\
 `The ruling cuts at the heart of a key argument made by right-wing activists since the 2020 election, when Donald Trump sought to disrupt the certification process as part of his bid to subvert the results.`\
 https://nytimes.com/2024/10/15/us/elections/georgia-election-ruling.html
