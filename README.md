@@ -15,7 +15,7 @@ https://nytimes.com/2024/10/15/us/politics/trump-google-monopoly-china.html
 https://nytimes.com/2024/10/15/briefing/israel-aid-trump-security-canada-india.html
 
 **Tom Brady, Richard Seymour approved as part-owners of Raiders**\
-`Mark Davis remains the Raiders’ controlling owner.`\
+`Mark Davis remains the Raiders’ controlling owner, while Brady, Seymour and businessman Tom Wagner buy reported stake totaling 10.5 percent.`\
 https://nytimes.com/athletic/5845866/2024/10/15/tom-brady-las-vegas-raiders-sale-approved/
 
 **There Is No Crying in Baseball (Except Over This Hat)**\
