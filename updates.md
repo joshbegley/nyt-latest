@@ -1,3 +1,7 @@
+**JJ Redick has the Lakers finally prioritizing shooting more 3-pointers**\
+`Los Angeles is averaging nearly 39 3s attempted through three preseason games. Will the increased volume last when games count?`\
+https://nytimes.com/athletic/5832451/2024/10/15/lakers-3-pointers-jj-redick-preseason/
+
 **Who to drop ahead of Week 7? It's time to cut Justin Herbert**\
 `Week 6 was the first time Herbert threw for more than 200 yards this season. It's not a sign of improvement. It's a sign to run away.`\
 https://nytimes.com/athletic/5844586/2024/10/15/fantasy-football-who-to-drop-ahead-of-week-7-its-time-to-cut-justin-herbert/
