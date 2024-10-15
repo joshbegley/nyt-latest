@@ -1,3 +1,7 @@
+**'A lot to clean up': Bills escape Meadowlands in mistake-filled win over Jets**\
+`The Bills beat the Jets on the road in unimpressive fashion.`\
+https://nytimes.com/athletic/5844224/2024/10/15/bills-jets-win-mistakes/
+
 **Iranian General Seen in State Media After Whereabouts Questioned**\
 `The commander of Iran’s Quds Force was shown in a broadcast by Iranian state news media on Tuesday.`\
 https://nytimes.com/video/world/middleeast/100000009761770/iran-general-esmail-ghaani.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/world/middleeast/lebanon-hospitals-israel-offensi
 **These Twin Marvels of Art Conservation Are Now Seen as Looted Works**\
 `The Met Museum returned an ancient cup, assembled from fragments, to Italy in 2022 after investigators found it had been looted. Now a second has been returned after a similar determination.`\
 https://nytimes.com/2024/10/15/arts/design/these-twin-marvels-of-art-conservation-are-now-seen-as-looted-works.html
-
-**Kamala Harris Is Taking a Risk. Will It Pay Off?**\
-`An interview on Fox News could be adversarial, but it’s braver than anything Trump has done in the home stretch.`\
-https://nytimes.com/live/2024/10/08/opinion/thepoint/harris-fox-interview-tipsheet
 
