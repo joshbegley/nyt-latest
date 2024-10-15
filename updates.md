@@ -1,3 +1,7 @@
+**Igor Shesterkin's big night, Mika Zibanejad gets going, more: 4 Rangers takeaways**\
+`Mika Zibanejad finally got his first points of the season in a 4-1 home victory against the Red Wings.`\
+https://nytimes.com/athletic/5843962/2024/10/14/rangers-zibanejad-shesterkin-red-wings/
+
 **Mets relievers navigate nervous moments in Game 2, but is it sustainable?**\
 `While the Mets bullpen is a big part of this magical run, there are reasons for concern. `\
 https://nytimes.com/athletic/5843854/2024/10/14/mets-bullpen-dodgers-nlcs/
