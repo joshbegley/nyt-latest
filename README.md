@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5846194/2024/10/15/vikings-rb-cam-akers-texans-trad
 `It may not be great radio, but Harris made a solid case for why she’d be better for Black America.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/charlamagne-harris-interview-detroit
 
-**Giants' Andrew Thomas out with potential season-ending foot injury**\
+**Giants' Andrew Thomas out with potential season-ending foot injury: Source**\
 `Thomas injured his foot on the Giants’ sole touchdown drive in Sunday’s loss to the Cincinnati Bengals.`\
 https://nytimes.com/athletic/5846159/2024/10/15/andrew-thomas-giants-foot-injury-update/
 
