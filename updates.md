@@ -1,3 +1,7 @@
+**Tom Brady, Richard Seymour approved as part-owners of Raiders: Sources**\
+`Mark Davis remains the Raiders’ controlling owner, while Brady, Seymour and businessman Tom Wagner buy reported stake totaling 10.5 percent.`\
+https://nytimes.com/athletic/5845866/2024/10/15/tom-brady-las-vegas-raiders-sale-approved/
+
 **Breanna Stewart’s wife Marta Xargay Casademont received homophobic, violent email**\
 `The hateful comments come at a moment of increased negativity towards WNBA players online.`\
 https://nytimes.com/athletic/5845813/2024/10/15/breanna-stewart-wife-anti-gay-emails-wnba/
