@@ -1,3 +1,7 @@
+**The U.S. warns Israel to increase aid to Gaza or face penalties.**\
+`By Michael Crowley and Eric Schmitt`\
+https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/us-israel-military-aid-gaza-improvements
+
 **‘We Are Not a Monolith’: Black Artists Gather at the Philharmonic**\
 `An Afromodernism festival at the New York Philharmonic shines a light on Black artists, who are vastly underrepresented in classical music.`\
 https://nytimes.com/2024/10/15/arts/music/afromoderism-festival-new-york-philharmonic.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5844920/2024/10/15/davante-adams-trade-grades-jets-
 **Cantona questions 'scandalous' decision to end Ferguson's United role**\
 `Eric Cantona has called the decision to end Sir Alex Ferguson&#8217;s multi-million pound Manchester United ambassador contract &#8220;scandalous&#8221;.`\
 https://nytimes.com/athletic/5845360/2024/10/15/eric-cantona-ferguson-manchester-united/
-
-**Bryan Price to step aside as Giants' pitching coach**\
-`Price elected to sign a one-year deal last season. He wanted a chance to coach in San Francisco but is ready now to step away.`\
-https://nytimes.com/athletic/5845391/2024/10/15/bryan-price-sf-giants-pitching-coach-leaving/
 
