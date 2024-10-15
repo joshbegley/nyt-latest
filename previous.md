@@ -1,3 +1,7 @@
+**Behind Mark Vientos and Francisco Lindor, the Mets punch back to even the NLCS**\
+`Resilience is the animating impulse of this team, and its belief in its ability to rebound has only strengthened throughout the season.`\
+https://nytimes.com/athletic/5843816/2024/10/14/mark-vientos-francisco-lindor-nlcs-game-2/
+
 **Corrections: Oct. 15, 2024**\
 `Corrections that appeared in print on Tuesday, Oct. 15, 2024.`\
 https://nytimes.com/2024/10/14/pageoneplus/corrections-oct-15-2024.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5843689/2024/10/14/submit-a-question-for-stewart-ma
 **Bills RB James Cook out with toe injury for divisional showdown with Jets**\
 `Rookie Ray Davis and veteran Ty Johnson are next up on the depth chart for Buffalo.`\
 https://nytimes.com/athletic/5843623/2024/10/14/bills-james-cook-inactive-against-jets/
-
-**Richard Seymour expected to be approved as minority owner of Raiders**\
-`The NFL finance committee has approved Seymour's bid and plans to submit it to league owners for a vote Tuesday.`\
-https://nytimes.com/athletic/5843604/2024/10/14/richard-seymour-raiders-minority-owner/
 

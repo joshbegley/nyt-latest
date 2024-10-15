@@ -1,3 +1,7 @@
+**Behind Mark Vientos and Francisco Lindor, the Mets punch back to even the NLCS**\
+`Resilience is the animating impulse of this team, and its belief in its ability to rebound has only strengthened throughout the season.`\
+https://nytimes.com/athletic/5843816/2024/10/14/mark-vientos-francisco-lindor-nlcs-game-2/
+
 **Corrections: Oct. 15, 2024**\
 `Corrections that appeared in print on Tuesday, Oct. 15, 2024.`\
 https://nytimes.com/2024/10/14/pageoneplus/corrections-oct-15-2024.html
