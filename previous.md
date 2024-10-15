@@ -1,3 +1,7 @@
+**Harris Uses Trump’s Own Words to Attack Him as ‘Unhinged’: ‘Roll the Clip’**\
+`At a rally in Pennsylvania, in a swing county in a swing state, Vice President Kamala Harris played clips of Donald Trump describing critics as an “enemy from within,” drawing jeers from her crowd.`\
+https://nytimes.com/2024/10/14/us/politics/harris-trump-enemy-within.html
+
 **Rodgers connects with Lazard on fourth Hail Mary of QB's career**\
 `The TD brought New York within three points of Buffalo as the two battle for a grip on the AFC East.`\
 https://nytimes.com/athletic/5843885/2024/10/14/aaron-rodgers-allen-lazard-jets-bills-hail-mary/
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5843816/2024/10/14/mark-vientos-francisco-lindor-nl
 **Corrections: Oct. 15, 2024**\
 `Corrections that appeared in print on Tuesday, Oct. 15, 2024.`\
 https://nytimes.com/2024/10/14/pageoneplus/corrections-oct-15-2024.html
-
-**Tyson Foerster continues to emerge as one of Flyers' most vital forwards**\
-`The center has earned more opportunities and more trust from his coach despite being just 22 years old.`\
-https://nytimes.com/athletic/5843716/2024/10/14/flyers-tyson-foerster-breakout-tortorella/
 
