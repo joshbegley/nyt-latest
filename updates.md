@@ -1,4 +1,8 @@
 **Rodgers connects with Lazard on fourth Hail Mary of QB's career**\
+`The TD brought New York within three points of Buffalo as the two battle for a grip on the AFC East.`\
+https://nytimes.com/athletic/5843885/2024/10/14/aaron-rodgers-allen-lazard-jets-bills-hail-mary/
+
+**Rodgers connects with Lazard on fourth Hail Mary of QB's career**\
 `The TD brought New York within three points of Buffalo as the two battle for the grip on the AFC East.`\
 https://nytimes.com/athletic/5843885/2024/10/14/aaron-rodgers-allen-lazard-jets-bills-hail-mary/
 
