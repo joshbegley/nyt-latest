@@ -1,3 +1,7 @@
+**‘Smart’ or Criminal? Trump’s Changing Views on Talking to Foreign Leaders**\
+`The former president, who once pushed to prosecute a former secretary of state for talking with foreign officials, said that it would be “a good thing” for himself to have secretly kept in touch with President Vladimir V. Putin of Russia — if he did.`\
+https://nytimes.com/2024/10/15/us/politics/trump-putin-communication.html
+
 **How America Can Stop a Mideast Missile War That Everyone Will Lose**\
 `A real strategy for coercive U.S. diplomacy to change Iran’s behavior.`\
 https://nytimes.com/2024/10/15/opinion/iran-israel-war.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/us/politics/lufthansa-jewish-passengers-fine.html
 **Adams Chooses Ex-Prosecutor to Replace City Hall Official Who Resigned**\
 `Chauncey Parker will replace Philip B. Banks III, who last week resigned from his role as the deputy mayor for public safety.`\
 https://nytimes.com/2024/10/15/nyregion/eric-adams-deputy-mayor-public-safety.html
-
-**Small Business Administration Depletes Disaster Loan Funds**\
-`Federal officials urged people to keep applying for the loans, which they said they would continue to process while awaiting more funding from Congress, which is not set to reconvene until Nov. 12.`\
-https://nytimes.com/2024/10/15/us/politics/small-business-administration-fema-helene-milton.html
 
