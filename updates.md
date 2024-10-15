@@ -1,3 +1,5 @@
+**Our Best Apple Tart Recipe **\
+
 **A Philosophical Journey With Clicks of a Mouse**\
 `The writer of the game Phoenix Springs says it touches upon two questions at the heart of Buddhism: What is the nature of death, and what is the nature of perception?`\
 https://nytimes.com/2024/10/15/arts/phoenix-springs.html
