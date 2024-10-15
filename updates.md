@@ -1,3 +1,7 @@
+**Prediction Markets Tell a Different Story From the Polls**\
+`Supporters say the platforms are better at predicting the election. But questions have arisen about recent big bets, as they show a big lead for Donald Trump.`\
+https://nytimes.com/2024/10/15/business/dealbook/prediction-markets-trump-harris.html
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
