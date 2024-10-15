@@ -1,3 +1,19 @@
+**Lufthansa Fined $4 Million for Stopping Jewish Passengers From Boarding Plane**\
+`The Transportation Department handed out a record fine after the airline prevented 128 travelers from making a connecting flight in 2022.`\
+https://nytimes.com/2024/10/15/us/politics/lufthansa-jewish-passengers-fine.html
+
+**Adams Chooses Ex-Prosecutor to Replace City Hall Official Who Resigned**\
+`Chauncey Parker will replace Philip B. Banks III, who last week resigned from his role as the deputy mayor for public safety.`\
+https://nytimes.com/2024/10/15/nyregion/eric-adams-deputy-mayor-public-safety.html
+
+**Small Business Administration Depletes Disaster Loan Funds**\
+`Federal officials urged people to keep applying for the loans, which they said they would continue to process while awaiting more funding from Congress, which is not set to reconvene until Nov. 12.`\
+https://nytimes.com/2024/10/15/us/politics/small-business-administration-fema-helene-milton.html
+
+**49ers mailbag: Something's rotten on special teams; A homecoming for D.J. Jones?**\
+`Among this week's questions: Why can't Mitch Wishnowsky handle kickoffs and why was Brayden Willis promoted to the active roster?`\
+https://nytimes.com/athletic/5845851/2024/10/15/49ers-mailbag-special-teams-dj-jones/
+
 **Israel’s high court orders the state to explain its system for medical evacuations from Gaza.**\
 `By Ephrat Livni and Johnatan Reiss`\
 https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/israel-gaza-medical-evacuations
@@ -17,20 +33,4 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/biden-aid-weapons-restricti
 **Breanna Stewart’s wife Marta Xargay Casademont received homophobic, violent email**\
 `The hateful comments come at a moment of increased negativity towards WNBA players online.`\
 https://nytimes.com/athletic/5845813/2024/10/15/breanna-stewart-wife-anti-gay-emails-wnba/
-
-**Tuchel agrees deal to become new England manager**\
-`Thomas Tuchel has agreed to become the new England manager following successful talks with the Football Association (FA).`\
-https://nytimes.com/athletic/5844523/2024/10/15/thomas-tuchel-england-manager/
-
-**Officials discussing loophole behind Oregon's intentional too-many-men flag**\
-`The illegal substitution call late in Oregon's 32-31 win against Ohio State burned critical seconds off the clock for the Buckeyes.`\
-https://nytimes.com/athletic/5844044/2024/10/15/oregon-ohio-state-final-play-dan-lanning-penalty/
-
-**Georgia Officials Report Record Turnout on First Day of Early Voting**\
-`Democrats and Republicans alike have crusaded for residents to get to the polls early as Donald Trump and Kamala Harris aggressively seek the state’s 16 electoral votes.`\
-https://nytimes.com/2024/10/15/us/politics/georgia-early-voting.html
-
-**Meet the Election Denier Forecasting the 2024 Race**\
-`Seth Keshel has become a darling among election deniers by factoring widespread voter fraud — the existence of which has been widely debunked — into his election predictions.`\
-https://nytimes.com/2024/10/15/technology/seth-keshel-2024-election-trump.html
 
