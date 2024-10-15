@@ -1,3 +1,11 @@
+**Why WR coach Keenan McCardell is a key, unheralded figure in Vikings' 5-0 start**\
+`The longtime NFL receiver has worked wonders with Minnesota's wideouts, who have played a big role in the Vikings' offensive success. `\
+https://nytimes.com/athletic/5842683/2024/10/15/keenan-mccardell-vikings-wr-coach/
+
+**How will Novak Djokovic solve a problem like Jannik Sinner and Carlos Alcaraz?**\
+`The 24-time Grand Slam champion faces two rivals who are ahead of him — and the need to keep them both close`\
+https://nytimes.com/athletic/5842735/2024/10/15/novak-djokovic-results-ranking-sinner-alcaraz-rivalry/
+
 **NFL QB stock report, Week 7: No need to argue about Brock Purdy anymore. He's elite**\
 `Since 2022, Purdy has been just as good, if not better, than Bengals QB Joe Burrow. So why doesn't he get the same shine?`\
 https://nytimes.com/athletic/5843074/2024/10/15/nfl-qb-stock-report-rankings-brock-purdy-49ers/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5838101/2024/10/15/sabres-red-wings-senators-playof
 **Republican Operatives Function as Hidden Hand Behind Pro-Trump Efforts**\
 `A political nonprofit organization called Building America’s Future has raised and spent more than $100 million over the past four years.`\
 https://nytimes.com/2024/10/15/us/elections/trump-money-building-americas-future.html
-
-**Optimism on Wall Street, and Harris Agrees to a Fox News Interview**\
-`Plus, an investigation into China’s panda factories.`\
-https://nytimes.com/2024/10/15/podcasts/wall-street-harris-fox-news.html
-
-**Hollinger: Predicting the bottom of the NBA's Western Conference this season**\
-`Nearly every team in the West is out at least one future first-round pick as a result of a win-now move. But they all can't win.`\
-https://nytimes.com/athletic/5826537/2024/10/15/nba-predictions-western-conference-bottom-2024-25/
 
