@@ -1,3 +1,7 @@
+**Who to drop ahead of Week 7? It's time to cut Justin Herbert**\
+`Week 6 was the first time Herbert threw for more than 200 yards this season. It's not a sign of improvement. It's a sign to run away.`\
+https://nytimes.com/athletic/5844586/2024/10/15/fantasy-football-who-to-drop-ahead-of-week-7-its-time-to-cut-justin-herbert/
+
 **Prediction Markets Tell a Different Story From the Polls**\
 `Supporters say the platforms are better at predicting the election. But questions have arisen about recent big bets, as they show a big lead for Donald Trump.`\
 https://nytimes.com/2024/10/15/business/dealbook/prediction-markets-trump-harris.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5844236/2024/10/15/canadiens-takeaways-penguins/
 **Maligned Colts defense nearly broke vs. Titans, but bounced back with resilient finish**\
 `Tony Pollard's TD run on third-and-19 Sunday could have been a backbreaker, but the Colts defense never let the Titans score again.`\
 https://nytimes.com/athletic/5843707/2024/10/15/colts-defense-gus-bradley-titans/
-
-**Hollinger: How much parity is there in the NBA? Will it stick around?**\
-`Let's try to parse out what exactly is happening right now in the NBA, why it’s happening, and whether it’s likely to continue.`\
-https://nytimes.com/athletic/5825344/2024/10/15/nba-champions-playoffs-parity-causes/
 
