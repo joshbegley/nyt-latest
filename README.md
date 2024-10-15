@@ -1,3 +1,11 @@
+**La Liga president Tebas tells FIFA to 'scrap' expanded Club World Cup**\
+`La Liga boss Javier Tebas has told FIFA president Gianni Infantino to “scrap” next summer’s Club World Cup, claiming the expanded tournament is not wanted by broadcasters, clubs, players or sponsors.`\
+https://nytimes.com/athletic/5845608/2024/10/15/club-world-cup-fifa-criticism/
+
+**Davante Adams joins Aaron Rodgers on 'The Pat McAfee Show'**\
+`Rodgers said Adams is “right at the top of the list of guys that I really care about that are family to me” around the NFL.`\
+https://nytimes.com/athletic/5845406/2024/10/15/aaron-rodgers-davante-adams-pat-mcafee-show/
+
 **Until Saturday: Kirby Smart’s viral moment, plus Ashton Jeanty is an all-timer**\
 `Welcome to Until Saturday, the five-star college football newsletter: Our latest college football beef ... or is it?`\
 https://nytimes.com/athletic/5843400/2024/10/15/kirby-smart-michael-van-buren-ashton-jeanty-until-saturday/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/15/opinion/new-york-times-1851.html
 **Supreme Court Leans Toward Truck Driver Fired Over Drug Test**\
 `The driver, Douglas Horn, sued the maker of a product said to be free of THC under a federal racketeering law, saying he had suffered a business injury.`\
 https://nytimes.com/2024/10/15/us/supreme-court-thc-truck-driver-drug-test.html
-
-**Abortion Could Decide Control of State Supreme Courts**\
-`In Michigan, Ohio, Arizona and elsewhere, progressive court candidates are hoping that the abortion issue that helped conservatives remake the federal judiciary will work for them this time.`\
-https://nytimes.com/2024/10/15/us/abortion-could-decide-control-of-state-supreme-courts.html
-
-**Ted Cruz and Colin Allred to Face Off in Texas Senate Debate**\
-`The candidates will meet in what will most likely be their only debate matchup on Tuesday night, as polls show Mr. Cruz with a slight lead.`\
-https://nytimes.com/2024/10/15/us/politics/cruz-allred-texas-senate-debate.html
 
