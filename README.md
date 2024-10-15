@@ -1,3 +1,11 @@
+**Hawaii to join Mountain West for all sports, giving conference 8 full members**\
+`League sources said there is a preference from some to get to at least nine football members.`\
+https://nytimes.com/athletic/5844730/2024/10/15/hawaii-mountain-west-conference-realignment/
+
+**Jets give Haason Reddick window to seek trade: Sources**\
+`Reddick has not practiced or played since the Jets traded for him this offseason.`\
+https://nytimes.com/athletic/5844783/2024/10/15/haason-reddick-jets/
+
 **A Philosophical Journey With Clicks of a Mouse**\
 `The writer of the game Phoenix Springs says it touches upon two questions at the heart of Buddhism: What is the nature of death, and what is the nature of perception?`\
 https://nytimes.com/2024/10/15/arts/phoenix-springs.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/15/business/boeing-financing-strike.html
 **JJ Redick has the Lakers finally prioritizing shooting more 3-pointers**\
 `Los Angeles is averaging nearly 39 3s attempted through three preseason games. Will the increased volume last when games count?`\
 https://nytimes.com/athletic/5832451/2024/10/15/lakers-3-pointers-jj-redick-preseason/
-
-**Who to drop ahead of Week 7? Time to cut Justin Herbert**\
-`Week 6 was the first time Herbert threw for more than 200 yards this season. It's not a sign of improvement. It's a sign to run away.`\
-https://nytimes.com/athletic/5844586/2024/10/15/fantasy-football-who-to-drop-ahead-of-week-7-time-to-cut-herbert/
-
-**Prediction Markets Tell a Different Story From the Polls**\
-`Supporters say the platforms are better at predicting the election. But questions have arisen about recent big bets, as they show a big lead for Donald Trump.`\
-https://nytimes.com/2024/10/15/business/dealbook/prediction-markets-trump-harris.html
 
