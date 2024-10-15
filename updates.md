@@ -1,3 +1,11 @@
+**MLB Gold Glove Award finalists announced**\
+`Dansby Swanson, Matt Chapman ... and Juan Soto? The Gold Glove Award finalists are here.`\
+https://nytimes.com/athletic/5845733/2024/10/15/mlb-gold-glove-award-finalists/
+
+**A Distant Planet May Host a Moon That’s Spewing a Volcanic Cloud**\
+`Astronomers have yet to confirm the existence of exomoons, but molecular signal around a far away star offers some of the best evidence yet.`\
+https://nytimes.com/2024/10/15/science/exomoon-volcanic-io-jupiter.html
+
 **Mbappe's lawyer says he has ‘nothing to be reproached for’ amid rape investigation**\
 `Kylian Mbappe&#8217;s lawyer says the Real Madrid striker believes he has &#8220;nothing to be reproached for&#8221; after reports linking him to an alleged rape in Sweden on Thursday.`\
 https://nytimes.com/athletic/5845698/2024/10/15/kylian-mbappe-investigation-sweden/
