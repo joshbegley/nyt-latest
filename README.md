@@ -1,3 +1,11 @@
+**A Very English Sporting Scandal: Did a Steel Conker Taint a Title?**\
+`Conkers are buckeye chestnuts that are part of an annual championship. This year, there are accusations of cheating. And it’s all very serious.`\
+https://nytimes.com/2024/10/15/world/england-conkers-cheating.html
+
+**Ka Made Rap on His Own Terms. Hear How in 7 Songs.**\
+`Remembering the hip-hop artist (and New York City firefighter), who died over the weekend at 52.`\
+https://nytimes.com/2024/10/15/arts/music/amplifier-newsletter-ka-playlist.html
+
 **Davante Adams trade grades: Kudos to Jets for pushing all in; why did Raiders wait so long?**\
 `This was a deal both teams had to make, but the Raiders surely could have gotten a better deal if they had moved Adams sooner. `\
 https://nytimes.com/athletic/5844920/2024/10/15/davante-adams-trade-grades-jets-raiders/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/15/us/politics/pandas-china-national-zoo.html
 **In Embattled Gaza, a Woman Chooses Her Mother Over Evacuating**\
 `Amna Soliman says she can’t leave her mother, who is in a wheelchair, so she stays, despite heavy fighting and repeated warnings to leave.`\
 https://nytimes.com/2024/10/15/world/middleeast/gaza-jabaliya-evacuations.html
-
-**The Flood-Protection Rule That Trump Rolled Back**\
-`A Trump-era rollback of flood-protection rules has left critical infrastructure projects at higher risk, experts say.`\
-https://nytimes.com/2024/10/15/climate/trump-flood-protection-rules-infrastructure.html
-
-**Mark Robinson Sues CNN Over Report Linking Him to Lewd Comments on Porn Site**\
-`Mr. Robinson’s campaign for governor of North Carolina has been in crisis since the report, which the lawsuit calls “recklessly false.”`\
-https://nytimes.com/2024/10/15/us/mark-robinson-cnn-porn-lawsuit.html
 
