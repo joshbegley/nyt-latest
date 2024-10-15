@@ -1,3 +1,7 @@
+**Tuchel's coaching playbook: Tennis balls, training 'problems' - and lots of conflict**\
+`The German has taken on one of the biggest challenges in football, but history suggests he will not be daunted`\
+https://nytimes.com/athletic/5845637/2024/10/15/thomas-tuchel-england-coach-profile/
+
 **Lufthansa Fined $4 Million for Stopping Jewish Passengers From Boarding Plane**\
 `The Transportation Department handed out a record fine after the airline prevented 128 travelers from making a connecting flight in 2022.`\
 https://nytimes.com/2024/10/15/us/politics/lufthansa-jewish-passengers-fine.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/us/politics/megan-marshack-dead.html
 **Is Biden Really Ready to Stand Up for Gaza’s Children?**\
 `His weakness has made America complicit in humanitarian tragedy.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/biden-aid-weapons-restriction
-
-**Breanna Stewart’s wife Marta Xargay Casademont received homophobic, violent email**\
-`The hateful comments come at a moment of increased negativity towards WNBA players online.`\
-https://nytimes.com/athletic/5845813/2024/10/15/breanna-stewart-wife-anti-gay-emails-wnba/
 
