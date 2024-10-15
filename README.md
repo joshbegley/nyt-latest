@@ -1,3 +1,7 @@
+**What we're seeing with the Bucks: Gary Trent Jr.'s strong start at shooting guard**\
+`From a Damian Lillard-Giannis Antetokounmpo connection to getting beaten on the defensive glass, we look at what's happening with the Bucks.`\
+https://nytimes.com/athletic/5843923/2024/10/15/bucks-gary-trent-jr-giannis-damian-lillard/
+
 **Chinese Automakers Display Force at Paris Auto Show**\
 `Weeks after Europe imposed additional tariffs on electric vehicles made in China, the country’s car companies were defiant at France’s leading auto event.`\
 https://nytimes.com/2024/10/15/business/china-electric-vehicles-paris-auto-show.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5834883/2024/10/15/nhl-standings-playoffs-projectio
 **The Bounce: Season previews and NBA TV's awkward moment**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5844633/2024/10/15/bucks-giannis-antetokounmpo-damian-lillard-nbatv-the-bounce/
-
-**Jets trade for Davante Adams to reunite star WR with Aaron Rodgers**\
-`Adams doesn't fix all the Jets' problems, but reuniting him with Rodgers lifts the offense's potential.`\
-https://nytimes.com/athletic/5825297/2024/10/15/davante-adams-jets-raiders-trade-aaron-rodgers/
 
