@@ -1,36 +1,36 @@
-**What Should a Music Magazine Be in the TikTok Era? Pitchfork Alumni Have an Idea.**\
-`After the popular publication was folded into GQ, a group of them is striking out on its own. One of the first orders of business: doing away with album scores.`\
-https://nytimes.com/2024/10/15/business/media/pitchfork-hearing-things.html
+**A week in the life of Patriots lineman Mike Onwenu: Acupuncture, IVs and lots of soreness**\
+`A look at a (tiring) week in the life of the only Patriots player to play all of the team's offensive snaps this season. `\
+https://nytimes.com/athletic/5842326/2024/10/15/patriots-mike-onwenu-offensive-line/
 
-**The Mystery That’s Too Good to Solve**\
-`Who built the Shell Grotto, and why do we care so much?`\
-https://nytimes.com/2024/10/15/magazine/shell-groto-mystery.html
+**Michigan turns to veteran Jack Tuttle as search for offensive competence continues**\
+`Tuttle, now in his seventh season of college football, led Michigan to 17 unanswered points two weeks ago at Washington.`\
+https://nytimes.com/athletic/5843453/2024/10/15/michigan-offensive-competence-veteran-jack-tuttle/
 
-**Tim Berne, a D.I.Y. Jazz Institution**\
-`The saxophonist and composer has spent 50 years in the New York scene. As he turns 70, he’s commanding gigs at a Brooklyn bar and continuing to inspire.`\
-https://nytimes.com/2024/10/15/arts/music/tim-berne-jazz-new-york.html
+**Lebanon’s Hospitals Buckle Amid Israel’s Offensive Against Hezbollah**\
+`The United Nations says “the targeting of health and relief operations is broadening” in Lebanon. Hospitals say they have been forced to close or are struggling to operate.`\
+https://nytimes.com/2024/10/15/world/middleeast/lebanon-hospitals-israel-offensive.html
 
-**I Ate at Every Carbone in America. Was It Worth the Trip?**\
-`A decade after the first one opened, the Italian American juggernaut is still a celebrity magnet and impossible reservation. Take our red-sauce tour.`\
-https://nytimes.com/2024/10/15/dining/carbone-las-vegas-new-york-miami-dallas.html
+**These Twin Marvels of Art Conservation Are Now Seen as Looted Works**\
+`The Met Museum returned an ancient cup, assembled from fragments, to Italy in 2022 after investigators found it had been looted. Now a second has been returned after a similar determination.`\
+https://nytimes.com/2024/10/15/arts/design/these-twin-marvels-of-art-conservation-are-now-seen-as-looted-works.html
 
-**In These D.I.Y. Groups, ‘You Don’t Have to Prove That You Belong’**\
-`With help from online tutorials, Facebook groups and in-person workshops, home improvement is becoming far more inclusive to people beyond straight men.`\
-https://nytimes.com/2024/10/15/style/women-diy-groups.html
+**Kamala Harris Is Taking a Risk. Will It Pay Off?**\
+`An interview on Fox News could be adversarial, but it’s braver than anything Trump has done in the home stretch.`\
+https://nytimes.com/live/2024/10/08/opinion/thepoint/harris-fox-interview-tipsheet
 
-**Telling the Stories of Wrongful Convictions, One Painstaking Case at a Time**\
-`In “Framed,” an advocate for the wrongly accused joins forces with John Grisham to tell stories of justice denied.`\
-https://nytimes.com/2024/10/15/books/review/framed-john-grisham-jim-mccloskey.html
+**As Harris Visits Detroit, Some Democrats See Ground To Be Made Up**\
+`Democrats have long won by wide margins in Detroit, but some party leaders said the vice president needed to do more to counter an assertive Trump campaign.`\
+https://nytimes.com/2024/10/15/us/detroit-harris-trump-michigan.html
 
-**A Watch Took 6,000 Hours to Make. It’s Still Inspiring New Variations.**\
-`A new diamond-encrusted Vacheron Constantin timepiece is inspired by one of company’s most elaborate creations.`\
-https://nytimes.com/2024/10/15/t-magazine/vacheron-constantin-watch.html
+**Trump’s Border Plans Are Light on Details but Strong on Fury**\
+`The former president’s sweeping immigration proposals face daunting challenges, but voters still trust his positions more than his opponent’s.`\
+https://nytimes.com/2024/10/15/us/politics/trumps-immigration-plans.html
 
-**Need Help Understanding the Election? Try These Audiobooks**\
-`Gripping histories, cleareyed memoirs and satirical fiction can help you make sense of our political moment.`\
-https://nytimes.com/2024/10/15/books/audiobooks-elections-politics.html
+**Harris Has Raised $1 Billion. Can She Get Donors to Give More?**\
+`The sheer amount of money Kamala Harris has raised in her run for president has had unintended consequences.`\
+https://nytimes.com/2024/10/15/us/elections/kamala-harris-fund-raising.html
 
-**Caves, Waterfalls and Loretta Lynn’s Ranch: Three Day Trips From Nashville**\
-`Fall is the perfect time to take excursions from bustling Music City into the surrounding countryside, where a variety of natural and cultural adventures await.`\
-https://nytimes.com/2024/10/15/travel/day-trips-from-nashville.html
+**Two Opinion Columnists on Melania Trump’s Memoir**\
+`Pamela Paul and Carlos Lozada dig into the former first lady’s “book-adjacent object.”`\
+https://nytimes.com/2024/10/15/opinion/melania-trump-memoir.html
 
