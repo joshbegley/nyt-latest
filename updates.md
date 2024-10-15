@@ -1,3 +1,11 @@
+**Canadian Officials Testify on Foreign Meddling as Tensions with India Rise**\
+`Prime Minister Justin Trudeau’s top aides spoke at a public hearing a day after Canada accused Indian diplomats of orchestrating killings and extortions in the country.`\
+https://nytimes.com/2024/10/15/world/americas/trudeau-aides-india-foreign-interference.html
+
+**Guardians replace Alex Cobb on ALCS roster with Ben Lively**\
+`Cobb dealt with an acute lower back strain during his Game 1 start at Yankee Stadium.`\
+https://nytimes.com/athletic/5845858/2024/10/15/guardians-alcs-roster-change-alex-cobb/
+
 **NFL best bets Week 7: Patrick Mahomes is an underdog?!**\
 `Austin Mock has a pair of plays on Chiefs at 49ers among his best bets for NFL Week 7.`\
 https://nytimes.com/athletic/5845767/2024/10/15/nfl-best-bets-week-7-chiefs-seahawks/
