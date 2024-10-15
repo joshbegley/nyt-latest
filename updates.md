@@ -1,3 +1,7 @@
+**Harris Is Trying to Retain Black Voters’ Support**\
+`Also, the U.S. gave Israel an ultimatum on Gaza aid. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/10/15/briefing/harris-black-voters-israel-aid-gaza-violin-prodigy.html
+
 **Megan Marshack Dies at 70; Was With Nelson Rockefeller at His Death**\
 `She was at the center of rumors about the former vice president’s last moments, but she remained silent about their association until she wrote her own obituary.`\
 https://nytimes.com/2024/10/15/us/politics/megan-marshack-dead.html
