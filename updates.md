@@ -1,3 +1,11 @@
+**After the Steelers missed out on Davante Adams, where do they go from here at WR?**\
+`For the second time, the Steelers have struck out in pursuit of a star-level wide receiver. What are their options now?`\
+https://nytimes.com/athletic/5844062/2024/10/15/davante-adams-steelers-trade-deadline/
+
+**Scoop City: Week 7 fantasy must-adds and Nick Chubb, immediate start?**\
+`A look at five must-add players after last week's buy of Najee Harris, including updates on McCaffrey and Kupp.`\
+https://nytimes.com/athletic/5844926/2024/10/15/scoop-city-week-7-must-adds-and-nick-chubb-immediate-start/
+
 **Walgreens Says It Will Close 1,200 Stores**\
 `The pharmacy giant said it would close the stores over the next three years and plans to “redeploy” the majority of the workers at the closed stores.`\
 https://nytimes.com/2024/10/15/business/walgreens-store-closures-earnings.html

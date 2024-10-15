@@ -1,3 +1,7 @@
+**Chinese Automakers Display Force at Paris Auto Show**\
+`Weeks after Europe imposed additional tariffs on electric vehicles made in China, the country’s car companies were defiant at France’s leading auto event.`\
+https://nytimes.com/2024/10/15/business/china-electric-vehicles-paris-auto-show.html
+
 **After the Steelers missed out on Davante Adams, where do they go from here at WR?**\
 `For the second time, the Steelers have struck out in pursuit of a star-level wide receiver. What are their options now?`\
 https://nytimes.com/athletic/5844062/2024/10/15/davante-adams-steelers-trade-deadline/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5844633/2024/10/15/bucks-giannis-antetokounmpo-dami
 **Jets trade for Davante Adams to reunite star WR with Aaron Rodgers**\
 `Adams doesn't fix all the Jets' problems, but reuniting him with Rodgers lifts the offense's potential.`\
 https://nytimes.com/athletic/5825297/2024/10/15/davante-adams-jets-raiders-trade-aaron-rodgers/
-
-**15-day stadium closure recommended after Atletico crowd trouble**\
-`A Spanish sporting government body has recommended Atletico Madrid’s stadium be closed for 15 days over the crowd trouble that marred last month’s La Liga meeting with Real Madrid.`\
-https://nytimes.com/athletic/5844777/2024/10/15/atletico-madrid-stadium-closure/
 
