@@ -23,7 +23,7 @@ https://nytimes.com/2024/10/15/world/asia/hong-kong-zoo-monkeys-dead.html
 https://nytimes.com/athletic/5842683/2024/10/15/keenan-mccardell-vikings-wr-coach/
 
 **How will Novak Djokovic solve a problem like Jannik Sinner and Carlos Alcaraz?**\
-`The 24-time Grand Slam champion faces two rivals who are ahead of him — and the need to keep them both close`\
+`The 24-time Grand Slam champion faces two much-younger rivals who are ahead of him - and the need to keep them both close`\
 https://nytimes.com/athletic/5842735/2024/10/15/novak-djokovic-results-ranking-sinner-alcaraz-rivalry/
 
 **NFL QB stock report, Week 7: No need to argue about Brock Purdy anymore. He's elite**\
