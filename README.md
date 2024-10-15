@@ -1,3 +1,11 @@
+**Cantona questions 'scandalous' decision to end Ferguson's United role**\
+`Eric Cantona has called the decision to end Sir Alex Ferguson&#8217;s multi-million pound Manchester United ambassador contract &#8220;scandalous&#8221;.`\
+https://nytimes.com/athletic/5845360/2024/10/15/eric-cantona-ferguson-manchester-united/
+
+**Bryan Price to step aside as Giants' pitching coach**\
+`Price elected to sign a one-year deal last season. He wanted a chance to coach in San Francisco but is ready now to step away.`\
+https://nytimes.com/athletic/5845391/2024/10/15/bryan-price-sf-giants-pitching-coach-leaving/
+
 **Holiday Sales Growth Expected to Normalize in an Abnormal Year**\
 `Despite shoppers’ election-year concerns and worries about the economy, retail executives predict sales to increase as much as 3.5 percent over last year’s holiday season.`\
 https://nytimes.com/2024/10/15/business/holiday-sales-growth.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/15/us/mark-robinson-cnn-porn-lawsuit.html
 **There’s No Hot Wing Like a Korean American Atlanta Hot Wing**\
 `Smaller, lighter and sharper than Buffalo wings, this interpretation of a classic has faded away over time. But you can make it at home.`\
 https://nytimes.com/2024/10/15/dining/atlanta-hot-wings.html
-
-**South Carolina tops AP Top 25 preseason women's hoops poll**\
-`South Carolina compiled a 38-0 record and beat Iowa in the national championship last season.`\
-https://nytimes.com/athletic/5844677/2024/10/15/ap-women-college-basketball-top-25-preseason/
-
-**Phillies extend manager Rob Thomson's contract through 2026**\
-`Thomson, whose contract was set to expire following the 2025 season, now has a deal through 2026. His coaching staff will return next year. `\
-https://nytimes.com/athletic/5845325/2024/10/15/rob-thomson-phillies-contract-extension/
 

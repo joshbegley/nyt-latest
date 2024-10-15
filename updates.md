@@ -1,3 +1,7 @@
+**Holiday Sales Growth Expected to Normalize in an Abnormal Year**\
+`Despite shoppers’ election-year concerns and worries about the economy, retail executives predict sales to increase as much as 3.5 percent over last year’s holiday season.`\
+https://nytimes.com/2024/10/15/business/holiday-sales-growth.html
+
 **Would a Strong Job Market Stop Fed Rate Cuts? This Official Says No.**\
 `Mary C. Daly, the president of the Federal Reserve Bank of San Francisco, said that the central bank shouldn’t act “out of fear.”`\
 https://nytimes.com/2024/10/15/business/economy/fed-mary-daly-jobs-inflation.html
