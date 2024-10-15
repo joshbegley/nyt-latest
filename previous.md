@@ -1,3 +1,15 @@
+**Kraft suggests he should've given Belichick more 'checks and balances'**\
+`New England and Belichick parted ways after the 2023 season.`\
+https://nytimes.com/athletic/5845050/2024/10/15/patriots-bill-belichick-robert-kraft-2/
+
+**The Latest Hot Item on Wedding Registries? A New House.**\
+`More couples are asking their wedding guests to help them purchase a home, eschewing traditional gifts like small appliances and linens.`\
+https://nytimes.com/2024/10/15/realestate/wedding-registry-home-buying.html
+
+**With $32 Billion in Aid, Native Americans Push Against History of Neglect**\
+`A pandemic relief bill set aside long-term funds for tribal lands that have lacked the tax revenue, and infrastructure, to spur businesses and wealth.`\
+https://nytimes.com/2024/10/15/business/economy/native-american-tribal-lands-federal-aid.html
+
 **NFL Week 7 odds, spreads, schedule: Chiefs-49ers and Vikings-Lions highlight exciting week**\
 `NFL Week 7 features some marquee matchups, including the Vikings against the Lions and the 49ers against the Chiefs.`\
 https://nytimes.com/athletic/5842560/2024/10/15/nfl-week-7-odds-spreads-schedule-chiefs-49ers-vikings-lions/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/10/15/business/china-electric-vehicles-paris-auto-show.
 **After the Steelers missed out on Davante Adams, where do they go from here at WR?**\
 `For the second time, the Steelers have struck out in pursuit of a star-level wide receiver. What are their options now?`\
 https://nytimes.com/athletic/5844062/2024/10/15/davante-adams-steelers-trade-deadline/
-
-**Walgreens Says It Will Close 1,200 Stores**\
-`The pharmacy giant said it would close the stores over the next three years and plans to “redeploy” the majority of the workers at the closed stores.`\
-https://nytimes.com/2024/10/15/business/walgreens-store-closures-earnings.html
-
-**Scoop City: Week 7 fantasy must-adds and Nick Chubb, immediate start?**\
-`A look at five must-add players after last week's buy of Najee Harris, including updates on McCaffrey and Kupp.`\
-https://nytimes.com/athletic/5844926/2024/10/15/scoop-city-week-7-must-adds-and-nick-chubb-immediate-start/
-
-**Trudeau’s Move Casts Light on the Reach of India’s Intelligence Agencies**\
-`The Canadian prime minster’s accusation of Indian government involvement in the killing of a Sikh nationalist signifies a sharp escalation in diplomatic tensions between India and Canada.`\
-https://nytimes.com/2024/10/15/world/asia/justin-trudeau-accusations-india-intelligence-agencies.html
 

@@ -1,3 +1,15 @@
+**Kraft suggests he should've given Belichick more 'checks and balances'**\
+`New England and Belichick parted ways after the 2023 season.`\
+https://nytimes.com/athletic/5845050/2024/10/15/patriots-bill-belichick-robert-kraft-2/
+
+**The Latest Hot Item on Wedding Registries? A New House.**\
+`More couples are asking their wedding guests to help them purchase a home, eschewing traditional gifts like small appliances and linens.`\
+https://nytimes.com/2024/10/15/realestate/wedding-registry-home-buying.html
+
+**With $32 Billion in Aid, Native Americans Push Against History of Neglect**\
+`A pandemic relief bill set aside long-term funds for tribal lands that have lacked the tax revenue, and infrastructure, to spur businesses and wealth.`\
+https://nytimes.com/2024/10/15/business/economy/native-american-tribal-lands-federal-aid.html
+
 **NFL Week 7 odds, spreads, schedule: Chiefs-49ers and Vikings-Lions highlight exciting week**\
 `NFL Week 7 features some marquee matchups, including the Vikings against the Lions and the 49ers against the Chiefs.`\
 https://nytimes.com/athletic/5842560/2024/10/15/nfl-week-7-odds-spreads-schedule-chiefs-49ers-vikings-lions/
