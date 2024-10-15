@@ -1,3 +1,7 @@
+**Shopping trips, tours and dumplings in Chinatown: The NFL London Games experience for players**\
+`The NFL London Games are underway — and this is how players enjoy their time around the games`\
+https://nytimes.com/athletic/5834645/2024/10/15/nfl-london-games-player-experience/
+
 **Bill Belichick on ManningCast: 'I'm not a big fan of the Jets'**\
 `"They've barely won over 30 percent (of their games) in the last 10 years," Belichick said.`\
 https://nytimes.com/athletic/5844009/2024/10/15/bill-belichick-manningcast-jets-bills/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5818701/2024/10/15/diaz-premier-league-win-bale-bur
 **Man City vs the Premier League: Who do lawyers think won the APT case?**\
 `After each side claimed victory in legal dispute, how do the experts view the case - and what happens now?`\
 https://nytimes.com/athletic/5839725/2024/10/15/manchester-city-vs-the-premier-league-who-do-lawyers-think-won-the-apt-case/
-
-**Did Oregon, Dan Lanning intentionally commit illegal substitution penalty vs. Ohio State?**\
-`The illegal substitution call late in Oregon's 32-31 win against Ohio State burned critical seconds off the clock for the Buckeyes.`\
-https://nytimes.com/athletic/5844044/2024/10/15/oregon-ohio-state-final-play-dan-lanning-penalty/
 
