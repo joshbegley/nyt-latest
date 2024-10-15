@@ -1,3 +1,19 @@
+**Local Officials Cannot Refuse to Certify Election Results, Georgia Judge Rules**\
+`The ruling cuts at the heart of a key argument made by right-wing activists since the 2020 election, when Donald Trump sought to disrupt the certification process as part of his bid to subvert the results.`\
+https://nytimes.com/2024/10/15/us/elections/georgia-election-ruling.html
+
+**How Jets trade for Davante Adams impacts NFL Week 7, Super Bowl betting odds**\
+`News of the Jets' acquisition of Davante Adams shifted the teams' odds to win the Super Bowl and their Week 7 primetime game.`\
+https://nytimes.com/athletic/5845044/2024/10/15/davante-adams-trade-jets-odds-nfl-week-7-super-bowl/
+
+**Nyoni signs first pro contract at Liverpool**\
+`Liverpool midfielder Trey Nyoni has signed his first professional contract.`\
+https://nytimes.com/athletic/5845111/2024/10/15/trey-nyoni-liverpool-contract/
+
+**What's the biggest broadcast call of the season, who has the best booth chemistry?**\
+`The broadcast crews in charge of narrating college football's chaos for millions watching from home have risen to the occasion.`\
+https://nytimes.com/athletic/5844993/2024/10/15/college-football-broadcasts-midseason-espn-nbc-abc-cbs-fox/
+
 **Golf mailbag: Submit a question for Gabby Herzig now**\
 `<p>Fall golf is upon us, with the colors popping on our home courses and the PGA Tour fall season underway.`\
 https://nytimes.com/athletic/5845168/2024/10/15/golf-mailbag-submit-a-question-for-gabby-herzig-now/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5845050/2024/10/15/patriots-bill-belichick-robert-k
 **The Latest Hot Item on Wedding Registries? A New House.**\
 `More couples are asking their wedding guests to help them purchase a home, eschewing traditional gifts like small appliances and linens.`\
 https://nytimes.com/2024/10/15/realestate/wedding-registry-home-buying.html
-
-**With $32 Billion in Aid, Native Americans Push Against History of Neglect**\
-`A pandemic relief bill set aside long-term funds for tribal lands that have lacked the tax revenue, and infrastructure, to spur businesses and wealth.`\
-https://nytimes.com/2024/10/15/business/economy/native-american-tribal-lands-federal-aid.html
-
-**NFL Week 7 odds, spreads, schedule: Chiefs-49ers and Vikings-Lions highlight exciting week**\
-`NFL Week 7 features some marquee matchups, including the Vikings against the Lions and the 49ers against the Chiefs.`\
-https://nytimes.com/athletic/5842560/2024/10/15/nfl-week-7-odds-spreads-schedule-chiefs-49ers-vikings-lions/
-
-**Mike Silver: The mission for covering the NFL has never been clearer**\
-`The longtime reporter and analyst joins The Athletic as an NFL senior writer.`\
-https://nytimes.com/athletic/5843764/2024/10/15/mike-silver-joins-the-athletic/
-
-**Hail, Salmon Caesar**\
-`This clever recipe from Jerrelle Guy comes with both a secret ingredient and a timesaving twist.`\
-https://nytimes.com/2024/10/15/dining/hail-salmon-caesar.html
 
