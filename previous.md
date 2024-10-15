@@ -1,36 +1,36 @@
-**Guerschon Yabusele's journey back to NBA and why he’s ready to impact 76ers**\
-`After a strong Olympic performance, Yabusele is ready to stick around the NBA this time.`\
-https://nytimes.com/athletic/5842823/2024/10/15/guerschon-yabusele-journey-nba-olympics-76ers/
+**What Should a Music Magazine Be in the TikTok Era? Pitchfork Alumni Have an Idea.**\
+`After the popular publication was folded into GQ, a group of them is striking out on its own. One of the first orders of business: doing away with album scores.`\
+https://nytimes.com/2024/10/15/business/media/pitchfork-hearing-things.html
 
-**The Brutal Reality of Panda Breeding**\
-`Panda breeding has been highlighted as one of the big success stories in conservation: U.`\
-https://nytimes.com/video/world/asia/100000009561726/the-brutal-reality-of-panda-breeding.html
+**The Mystery That’s Too Good to Solve**\
+`Who built the Shell Grotto, and why do we care so much?`\
+https://nytimes.com/2024/10/15/magazine/shell-groto-mystery.html
 
-**Iranian General Is Seen in State Media After Questions Over His Whereabouts**\
-`Brig. Gen. Esmail Ghaani, commander of the elite Quds Force, appeared in video footage on Tuesday as Tehran braces for a possible counterstrike by Israel.`\
-https://nytimes.com/2024/10/15/world/middleeast/iran-general-ghaani-hezbollah-israel.html
+**Tim Berne, a D.I.Y. Jazz Institution**\
+`The saxophonist and composer has spent 50 years in the New York scene. As he turns 70, he’s commanding gigs at a Brooklyn bar and continuing to inspire.`\
+https://nytimes.com/2024/10/15/arts/music/tim-berne-jazz-new-york.html
 
-**Ferguson's Man Utd ambassadorial contract ended by INEOS**\
-`Manchester United new part-owners INEOS has continued its cost-cutting programme by ending a multi-million pound annual commitment to Sir Alex Ferguson, the most successful manager in the club&#8217;s history.`\
-https://nytimes.com/athletic/5842096/2024/10/15/manchester-united-alex-ferguson-contract-ineos/
+**I Ate at Every Carbone in America. Was It Worth the Trip?**\
+`A decade after the first one opened, the Italian American juggernaut is still a celebrity magnet and impossible reservation. Take our red-sauce tour.`\
+https://nytimes.com/2024/10/15/dining/carbone-las-vegas-new-york-miami-dallas.html
 
-**The Night Sky**\
-`What is the coolest thing you have seen in the night sky?`\
-https://nytimes.com/2024/10/15/learning/the-night-sky.html
+**In These D.I.Y. Groups, ‘You Don’t Have to Prove That You Belong’**\
+`With help from online tutorials, Facebook groups and in-person workshops, home improvement is becoming far more inclusive to people beyond straight men.`\
+https://nytimes.com/2024/10/15/style/women-diy-groups.html
 
-**Fanfare for a Common Building**\
-`An apartment house on the Upper West Side turns 100.`\
-https://nytimes.com/2024/10/15/nyregion/fanfare-for-a-common-building.html
+**Telling the Stories of Wrongful Convictions, One Painstaking Case at a Time**\
+`In “Framed,” an advocate for the wrongly accused joins forces with John Grisham to tell stories of justice denied.`\
+https://nytimes.com/2024/10/15/books/review/framed-john-grisham-jim-mccloskey.html
 
-**How a Man Imprisoned in New York Could Sway a Key House Race in Alaska**\
-`Eric Hafner, who is serving a 20-year sentence, is running to represent a state in which he has never set foot. He could play the spoiler under Alaska’s ranked-choice system.`\
-https://nytimes.com/2024/10/15/nyregion/alaska-house-race-eric-hafner.html
+**A Watch Took 6,000 Hours to Make. It’s Still Inspiring New Variations.**\
+`A new diamond-encrusted Vacheron Constantin timepiece is inspired by one of company’s most elaborate creations.`\
+https://nytimes.com/2024/10/15/t-magazine/vacheron-constantin-watch.html
 
-**Word of the Day: concurrent**\
-`This word has appeared in 83 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/15/learning/word-of-the-day-concurrent.html
+**Need Help Understanding the Election? Try These Audiobooks**\
+`Gripping histories, cleareyed memoirs and satirical fiction can help you make sense of our political moment.`\
+https://nytimes.com/2024/10/15/books/audiobooks-elections-politics.html
 
-**They Were Driving Through a Tunnel. Then the Water Rushed In.**\
-`A leak in the Queens-Midtown Tunnel and the race to plug it revealed the fragility of New York City’s aging transportation network.`\
-https://nytimes.com/2024/10/15/nyregion/queens-midtown-tunnel-leak.html
+**Caves, Waterfalls and Loretta Lynn’s Ranch: Three Day Trips From Nashville**\
+`Fall is the perfect time to take excursions from bustling Music City into the surrounding countryside, where a variety of natural and cultural adventures await.`\
+https://nytimes.com/2024/10/15/travel/day-trips-from-nashville.html
 
