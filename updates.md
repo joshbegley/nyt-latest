@@ -1,3 +1,11 @@
+**Merritt Mathias will retire as a truly authentic NWSL original**\
+`Mathias, who played in the NWSL's inaugural season, will be calling it quits next month - she has some regrets but plenty to be content with`\
+https://nytimes.com/athletic/5844261/2024/10/15/merritt-mathias-retirement-angel-city-courage/
+
+**Steelers coach Mike Tomlin says Russell Wilson 'in consideration' to start Sunday**\
+`Pittsburgh will host the Jets for "Sunday Night Football" in Week 7.`\
+https://nytimes.com/athletic/5845418/2024/10/15/mike-tomlin-media-availability-steelers-fields-wilson/
+
 **Super Bowl 2025 odds: 49ers and Ravens rising, plus six dark-horse contenders**\
 `Breaking down the Super Bowl odds before Week 7 games, with favorites and dark horse contenders. `\
 https://nytimes.com/athletic/5845256/2024/10/15/super-bowl-odds-49ers-ravens-plus-dark-horse-contenders/
