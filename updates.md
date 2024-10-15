@@ -1,3 +1,7 @@
+**Tuchel agrees deal to become new England manager**\
+`Thomas Tuchel has agreed to become the new England manager following successful talks with the Football Association (FA).`\
+https://nytimes.com/athletic/5844523/2024/10/15/thomas-tuchel-england-manager/
+
 **Georgia Officials Report Record Turnout on First Day of Early Voting**\
 `Democrats and Republicans alike have crusaded for residents to get to the polls early as Donald Trump and Kamala Harris aggressively seek the state’s 16 electoral votes.`\
 https://nytimes.com/2024/10/15/us/politics/georgia-early-voting.html

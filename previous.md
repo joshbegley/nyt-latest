@@ -1,3 +1,7 @@
+**Tuchel agrees deal to become new England manager**\
+`Thomas Tuchel has agreed to become the new England manager following successful talks with the Football Association (FA).`\
+https://nytimes.com/athletic/5844523/2024/10/15/thomas-tuchel-england-manager/
+
 **Georgia Officials Report Record Turnout on First Day of Early Voting**\
 `Democrats and Republicans alike have crusaded for residents to get to the polls early as Donald Trump and Kamala Harris aggressively seek the state’s 16 electoral votes.`\
 https://nytimes.com/2024/10/15/us/politics/georgia-early-voting.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/us/politics/trump-tariffs-economy-economy-club-ch
 **Hollywood and Bollywood Kick Off Diwali in New York**\
 `Hasan Minhaj, Mira Nair and Nora Fatehi joined business and entertainment leaders of South Asian descent at the Pierre hotel in their most elegant attire.`\
 https://nytimes.com/2024/10/15/style/diwali-party-pierre-hotel.html
-
-**Learning With: ‘Test Your Focus: Can You Spend 10 Minutes With One Painting?’**\
-`Are you easily distracted? If so, you’re in luck! This lesson will help you practice your ability to pay attention.`\
-https://nytimes.com/2024/10/15/learning/lesson-plans/learning-with-test-your-focus-can-you-spend-10-minutes-with-one-painting.html
 
