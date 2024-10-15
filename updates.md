@@ -1,3 +1,5 @@
+**I’m a Former Pastry Cook, and This $18 Cookie Scoop Is Worth Every Penny **\
+
 **Paris Is Rising as an Art Market Hub, With Some Way Left to Go**\
 `Sotheby’s opened a new salesroom and international collectors are arriving for the inaugural Art Basel Paris fair. But visiting is one thing; buying is another.`\
 https://nytimes.com/2024/10/15/arts/design/art-basel-paris-sothebys.html
