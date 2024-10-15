@@ -1,3 +1,11 @@
+**15-day stadium closure recommended after Atletico crowd trouble**\
+`A Spanish sporting government body has recommended Atletico Madrid’s stadium be closed for 15 days over the crowd trouble that marred last month’s La Liga meeting with Real Madrid.`\
+https://nytimes.com/athletic/5844777/2024/10/15/atletico-madrid-stadium-closure/
+
+**Profits Leap at Goldman Sachs as Banks See Steady Economy**\
+`The investment bank earned more than expected in the latest quarter, a theme for other big banks, too.`\
+https://nytimes.com/2024/10/15/business/goldman-sachs-citi-bank-of-america-profit.html
+
 **Do You Know Where These Memorable Detectives Live?**\
 `Many crime novels are known for their enduring characters who keep coming back for more adventures. Can you place these five sleuths on their home turf?`\
 https://nytimes.com/interactive/2024/10/15/books/review/crime-series-cities.html
