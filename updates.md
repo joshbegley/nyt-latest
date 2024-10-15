@@ -1,3 +1,15 @@
+**Walgreens Says It Will Close 1,200 Stores**\
+`The pharmacy giant said it would close the stores over the next three years and plans to “redeploy” the majority of the workers at the closed stores.`\
+https://nytimes.com/2024/10/15/business/walgreens-store-closures-earnings.html
+
+**Scoop City: Week 7 must-adds and Nick Chubb, immediate start?**\
+`A look at five must-add players after last week's buy of Najee Harris, including updates on McCaffrey and Kupp.`\
+https://nytimes.com/athletic/5844926/2024/10/15/scoop-city-week-7-must-adds-and-nick-chubb-immediate-start/
+
+**Jets trade for Davante Adams to reunite star WR with Aaron Rodgers**\
+`Adams doesn't fix all the Jets' problems, but reuniting him with Rodgers lifts the offense's potential.`\
+https://nytimes.com/athletic/5825297/2024/10/15/davante-adams-jets-raiders-trade-aaron-rodgers/
+
 **Trudeau’s Move Casts Light on the Reach of India’s Intelligence Agencies**\
 `The Canadian prime minster’s accusation of Indian government involvement in the killing of a Sikh nationalist signifies a sharp escalation in diplomatic tensions between India and Canada.`\
 https://nytimes.com/2024/10/15/world/asia/justin-trudeau-accusations-india-intelligence-agencies.html
