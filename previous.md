@@ -1,3 +1,20 @@
+**Dodgers' pitching plans falter, offense squanders chances as Mets even NLCS**\
+`The Dodgers' top five hitters combined to go 0-for-15 and Landon Knack's rough outing derailed the team's pitching plans.`\
+https://nytimes.com/athletic/5843853/2024/10/14/dodgers-mets-nlcs-split/
+
+**Journey to Harmony in Watchmaking**\
+`Light and shadow, past and present, craftsmanship and technology — Grand Seiko’s Evolution 9 Collection is a symphony of contrasts that embody the brand’s vision of horological mastery. 
+`\
+https://nytimes.com/paidpost/grand-seiko/journey-to-harmony-in-watchmaking.html
+
+**Colorado State WR Tory Horton out for season, expected to recover for NFL pursuit**\
+`Horton suffered an injury in the Rams' game against San Jose State. `\
+https://nytimes.com/athletic/5843896/2024/10/14/tory-horton-injury-colorado-state/
+
+**Paul George suffers left knee injury vs. Hawks**\
+`George left the game and did not return after taking an awkward step while defending a Hawks player.`\
+https://nytimes.com/athletic/5843875/2024/10/14/paul-george-injury-76ers-knee/
+
 **Steely Determination**\
 `Lindsay Rosenblum’s Crossword debut is a hit.`\
 https://nytimes.com/2024/10/14/crosswords/daily-puzzle-2024-10-15.html
@@ -14,23 +31,7 @@ https://nytimes.com/2024/10/14/pageoneplus/corrections-oct-15-2024.html
 `The center has earned more opportunities and more trust from his coach despite being just 22 years old.`\
 https://nytimes.com/athletic/5843716/2024/10/14/flyers-tyson-foerster-breakout-tortorella/
 
-**2 Men Posing as Utility Workers Are Arrested in Murder of 72-Year-Old**\
-`The men, who said they were looking for a gas leak, killed the man in his basement in suburban Detroit and bound his wife with duct tape before taking her watch and phone, prosecutors said.`\
+**2 Men Accused of Killing 72-Year-Old While Posing as Utility Workers**\
+`Two men who said they were looking for a gas leak killed the man in his basement in suburban Detroit and bound his wife with duct tape before taking her watch and phone, prosecutors said.`\
 https://nytimes.com/2024/10/14/us/utility-workers-posing-murder.html
-
-**Josh Norris and the Senators core needed an offensive game like the win vs. Kings**\
-`The Senators and Kings combined for 15 goals in an 8-7 OT victory for Ottawa. Josh Norris contributed three points in the win. `\
-https://nytimes.com/athletic/5843283/2024/10/14/norris-stutzle-tkachuk-senators-kings/
-
-**Why Two Million Children May Starve in Africa**\
-`Supplies of a highly nutritious treatment are running out, according to UNICEF.`\
-https://nytimes.com/2024/10/14/health/children-malnutrition-africa-unicef.html
-
-**Francisco Lindor, Mark Vientos power Mets past Dodgers in Game 2: Takeaways**\
-`LOS ANGELES — The New York Mets flipped the Hollywood script on Monday and evened the National League Championship Series.`\
-https://nytimes.com/athletic/5843189/2024/10/14/mets-dodgers-nlcs-mark-vientos/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>We&#8217;ve barely had time to recover from Ohio State-Oregon and Ole Miss&#8211;LSU, and it&#8217;s already time for Alabama-Tennessee and Georgia-Texas.`\
-https://nytimes.com/athletic/5843689/2024/10/14/submit-a-question-for-stewart-mandels-college-football-mailbag-277/
 
