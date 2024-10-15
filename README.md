@@ -1,14 +1,14 @@
 **Israel tells the U.S. that it won’t target nuclear sites during its initial retaliation against Iran, officials say.**\
 `By Patrick Kingsley and Ronen Bergman`\
-https://nytimes.com/live/2024/10/15/world/israel-lebanon-hezbollah-news/israel-tells-the-us-that-it-wont-target-nuclear-sites-during-its-initial-retaliation-against-iran-officials-say
+https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/israel-tells-the-us-that-it-wont-target-nuclear-sites-during-its-initial-retaliation-against-iran-officials-say
 
 **Here are the latest developments.**\
 `By Patrick Kingsley and Ronen Bergman`\
-https://nytimes.com/live/2024/10/15/world/israel-lebanon-hezbollah-news/here-are-the-latest-developments
+https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/here-are-the-latest-developments
 
 **Live Updates: Israel Tells U.S. It Won’t Hit Iran’s Oil or Nuclear Sites in Next Attack, Officials Say**\
 `The Israeli assurances come as the Biden administration tries to avert a bigger war in the Middle East. The region remained on edge as Israeli forces attacked Iranian proxies in Gaza and Lebanon.`\
-https://nytimes.com/live/2024/10/15/world/israel-lebanon-hezbollah-news
+https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news
 
 **Four takeaways after 4 Canadiens games in 6 nights to start the season**\
 `After four games, some questions we had on the Canadiens remain unanswered, but some answers have already emerged.`\
