@@ -1,3 +1,19 @@
+**Market share report: Adding Kimani Vidal is bad math, Evan Engram's productive return and more**\
+`Evan Engram made a strong return in Week 6, but Michael Salfino says his production comes at the expense of Jaguars rookie Brian Thomas Jr.`\
+https://nytimes.com/athletic/5845370/2024/10/15/fantasy-football-targets-touches-week-6-vidal-engram/
+
+**Underappreciated Sports**\
+`What athletic endeavors do you think deserve more respect?`\
+https://nytimes.com/2024/10/15/learning/underappreciated-sports.html
+
+**Let’s Take a Scroll Through the Home Page of 1851**\
+`The first edition of The New York Times reveals a world very foreign from ours.`\
+https://nytimes.com/2024/10/15/opinion/new-york-times-1851.html
+
+**Browns trade WR Amari Cooper to Bills**\
+`Cooper is in his third season with Cleveland and was the team leader in receptions (24), yards (250) and receiving touchdowns.`\
+https://nytimes.com/athletic/5845532/2024/10/15/amari-cooper-trade-bills-browns/
+
 **The U.S. warns Israel to increase aid to Gaza or face penalties.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/us-israel-military-aid-gaza-improvements
