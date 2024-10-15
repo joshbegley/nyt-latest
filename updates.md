@@ -1,3 +1,15 @@
+**Survivors of Maine Mass Shooting Take Step Toward Suing the Army**\
+`A group of survivors and relatives of victims said the military failed to respond to warning signs from the gunman, an Army Reserve grenade instructor, ahead of the shooting.`\
+https://nytimes.com/2024/10/15/us/maine-mass-shooting-survivors-lawsuit-army.html
+
+**Nearly 100 People Are Still Missing in North Carolina After Hurricane Helene**\
+`Search and rescue teams are still looking for the missing, officials said, with 95 deaths already attributed to the storm’s wrath in the state.`\
+https://nytimes.com/2024/10/15/us/hurricane-helene-north-carolina-missing-people.html
+
+**Amari Cooper trade grades: Bills load up; Browns try to make best of bad situation**\
+`This has the look of a win-win deal. Buffalo gives Josh Allen the playmaker he needs, while Cleveland maximized its return for an aging WR. `\
+https://nytimes.com/athletic/5845561/2024/10/15/amari-cooper-trade-grades-bills-browns/
+
 **Canadian Officials Testify on Foreign Meddling as Tensions with India Rise**\
 `Prime Minister Justin Trudeau’s top aides spoke at a public hearing a day after Canada accused Indian diplomats of orchestrating killings and extortions in the country.`\
 https://nytimes.com/2024/10/15/world/americas/trudeau-aides-india-foreign-interference.html
