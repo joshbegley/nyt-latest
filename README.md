@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump to Rally in Georgia as Harris Ramps Up Attacks**\
+`After an event in Chicago, Donald Trump will head to Atlanta, near the site of his booking last year on charges related to his attempts to overturn the 2020 race. Kamala Harris is set to appear with Charlamagne Tha God.`\
+https://nytimes.com/live/2024/10/15/us/harris-trump-election
+
 **Israel tells the U.S. that it won’t target nuclear sites during its initial retaliation against Iran, officials say.**\
 `By Patrick Kingsley and Ronen Bergman`\
 https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/israel-tells-the-us-that-it-wont-target-nuclear-sites-during-its-initial-retaliation-against-iran-officials-say
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5825344/2024/10/15/nba-champions-playoffs-parity-ca
 **For Guardians’ Joey Cantillo, an unsettling wild welcome to the ALCS**\
 `The 24-year-old lefty threw four wild pitches while facing just four batters in the third inning of Game 1.`\
 https://nytimes.com/athletic/5844516/2024/10/15/cleveland-guardians-joey-cantillo-wild-alcs/
-
-**The Athletic FC: Bielsa, Suarez and trouble in Uruguay. Plus: Man United end Ferguson deal**\
-`The differences between managing South American stars and Leeds United and why INEOS are dicing with danger`\
-https://nytimes.com/athletic/5844408/2024/10/15/marcelo-bielsa-luis-suarez-and-trouble-in-uruguay-plus-man-united-end-ferguson-deal/
-
-**Everton mailbag: Send your questions to Patrick Boyland**\
-`Send us your questions and Patrick Boyland will respond to as many as he can in an article later this week`\
-https://nytimes.com/athletic/5842749/2024/10/15/everton-mailbag-friedkin-calvert-lewin-dyche/
 
