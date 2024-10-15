@@ -1,3 +1,7 @@
+**The Pulse: A great night for New York sports***\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5843124/2024/10/15/jets-bills-yankees-mets-the-pulse/
+
 **INEOS ending Sir Alex Ferguson's ambassadorial role saves Man Utd money but also trims the club's soul**\
 `When cost cutting reaches the point where you’re cutting the man who invented the modern Man Utd, you have to ask if it is really worth it`\
 https://nytimes.com/athletic/5842244/2024/10/15/ineos-sir-alex-ferguson-manchester-united-soul/
