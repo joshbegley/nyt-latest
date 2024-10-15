@@ -1,3 +1,11 @@
+**'A lot to clean up': Bills escape Meadowlands in mistake-filled win over Jets**\
+`The Bills beat the Jets on the road in unimpressive fashion.`\
+https://nytimes.com/athletic/5844224/2024/10/15/bills-jets-win-mistakes/
+
+**Eidevall leaves role as Arsenal Women head coach**\
+`Jonas Eidevall has left his role as head coach of Arsenal Women.`\
+https://nytimes.com/athletic/5838519/2024/10/15/jonas-eidevall-sacked-arsenal-next/
+
 **Iranian General Seen in State Media After Whereabouts Questioned**\
 `The commander of Iran’s Quds Force was shown in a broadcast by Iranian state news media on Tuesday.`\
 https://nytimes.com/video/world/middleeast/100000009761770/iran-general-esmail-ghaani.html
