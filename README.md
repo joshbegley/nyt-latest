@@ -2,6 +2,10 @@
 `Thomas Tuchel has agreed to become the new England manager following successful talks with the Football Association (FA).`\
 https://nytimes.com/athletic/5844523/2024/10/15/thomas-tuchel-england-manager/
 
+**Officials discussing loophole behind Oregon's intentional too-many-men flag**\
+`The illegal substitution call late in Oregon's 32-31 win against Ohio State burned critical seconds off the clock for the Buckeyes.`\
+https://nytimes.com/athletic/5844044/2024/10/15/oregon-ohio-state-final-play-dan-lanning-penalty/
+
 **Georgia Officials Report Record Turnout on First Day of Early Voting**\
 `Democrats and Republicans alike have crusaded for residents to get to the polls early as Donald Trump and Kamala Harris aggressively seek the state’s 16 electoral votes.`\
 https://nytimes.com/2024/10/15/us/politics/georgia-early-voting.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/style/mayor-adams-mets-yankees-hat.html
 **Trump Says ‘Growth’ and Tariffs Will Pay for $15 Trillion Agenda**\
 `In a combative interview, the former president hinted at even higher tariffs as an economic magic bullet.`\
 https://nytimes.com/2024/10/15/us/politics/trump-tariffs-economy-economy-club-chicago.html
-
-**Hollywood and Bollywood Kick Off Diwali in New York**\
-`Hasan Minhaj, Mira Nair and Nora Fatehi joined business and entertainment leaders of South Asian descent at the Pierre hotel in their most elegant attire.`\
-https://nytimes.com/2024/10/15/style/diwali-party-pierre-hotel.html
 
