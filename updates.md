@@ -1,3 +1,5 @@
+**Panic Attacks: Causes, Symptoms and Coping Strategies**\
+
 **Our Best Apple Tart Recipe **\
 
 **A Philosophical Journey With Clicks of a Mouse**\
