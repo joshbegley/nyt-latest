@@ -1,3 +1,7 @@
+**The Night Sky**\
+`What is the coolest thing you have seen in the night sky?`\
+https://nytimes.com/2024/10/15/learning/the-night-sky.html
+
 **Fanfare for a Common Building**\
 `An apartment house on the Upper West Side turns 100.`\
 https://nytimes.com/2024/10/15/nyregion/fanfare-for-a-common-building.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/arts/television/stephen-colbert-harris-trump-medi
 **Shopping trips, tours and dumplings in Chinatown: The NFL London Games experience for players**\
 `The NFL London Games are underway — and this is how players enjoy their time around the games`\
 https://nytimes.com/athletic/5834645/2024/10/15/nfl-london-games-player-experience/
-
-**Bill Belichick on ManningCast: 'I'm not a big fan of the Jets'**\
-`"They've barely won over 30 percent (of their games) in the last 10 years," Belichick said.`\
-https://nytimes.com/athletic/5844009/2024/10/15/bill-belichick-manningcast-jets-bills/
 
