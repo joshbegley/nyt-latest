@@ -1,3 +1,11 @@
+**City Ballet Ends Its Season With a Prayer and a Romantic Romp**\
+`The fall season wrapped up with an excellent program featuring works by Balanchine and Ratmansky, as well as a celebration of Justin Peck’s 10th year as resident choreographer.`\
+https://nytimes.com/2024/10/15/arts/dance/new-york-city-ballet-mozartiana-mira-nadon.html
+
+**The Push for Minority Voters and the Undecided**\
+`Readers write about Black, Latino and undecided voters in the 2024 campaign. Also: Protection for health workers; a father’s books; Japan’s birthrate.`\
+https://nytimes.com/2024/10/15/opinion/black-latino-undecided-voters.html
+
 **Jerry Jones snaps back at critics over Sunday's blowout loss**\
 `The Cowboys (3-3) are currently third in the NFC East.`\
 https://nytimes.com/athletic/5844999/2024/10/15/jerry-jones-the-fan-critics-cowboys/
