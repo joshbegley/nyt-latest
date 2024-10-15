@@ -1,3 +1,7 @@
+**After the Steelers missed out on Davante Adams, where do they go from here at WR?**\
+`For the second time, the Steelers have struck out in pursuit of a star-level wide receiver. What are their options now?`\
+https://nytimes.com/athletic/5844062/2024/10/15/davante-adams-steelers-trade-deadline/
+
 **Walgreens Says It Will Close 1,200 Stores**\
 `The pharmacy giant said it would close the stores over the next three years and plans to “redeploy” the majority of the workers at the closed stores.`\
 https://nytimes.com/2024/10/15/business/walgreens-store-closures-earnings.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5825297/2024/10/15/davante-adams-jets-raiders-trade
 **15-day stadium closure recommended after Atletico crowd trouble**\
 `A Spanish sporting government body has recommended Atletico Madrid’s stadium be closed for 15 days over the crowd trouble that marred last month’s La Liga meeting with Real Madrid.`\
 https://nytimes.com/athletic/5844777/2024/10/15/atletico-madrid-stadium-closure/
-
-**Profits Leap at Goldman Sachs as Banks See Steady Economy**\
-`The investment bank earned more than expected in the latest quarter, a theme for other big banks, too.`\
-https://nytimes.com/2024/10/15/business/goldman-sachs-citi-bank-of-america-profit.html
 
