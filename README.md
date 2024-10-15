@@ -1,3 +1,7 @@
+**Prediction Markets Tell a Different Story From the Polls**\
+`Supporters say the platforms are better at predicting the election. But questions have arisen about recent big bets, as they show a big lead for Donald Trump.`\
+https://nytimes.com/2024/10/15/business/dealbook/prediction-markets-trump-harris.html
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5843707/2024/10/15/colts-defense-gus-bradley-titans
 **Hollinger: How much parity is there in the NBA? Will it stick around?**\
 `Let's try to parse out what exactly is happening right now in the NBA, why it’s happening, and whether it’s likely to continue.`\
 https://nytimes.com/athletic/5825344/2024/10/15/nba-champions-playoffs-parity-causes/
-
-**For Guardians’ Joey Cantillo, an unsettling wild welcome to the ALCS**\
-`The 24-year-old lefty threw four wild pitches while facing just four batters in the third inning of Game 1.`\
-https://nytimes.com/athletic/5844516/2024/10/15/cleveland-guardians-joey-cantillo-wild-alcs/
 
