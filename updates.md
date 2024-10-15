@@ -1,3 +1,7 @@
+**The Athletic FC: Bielsa, Suarez and trouble in Uruguay. Plus: Man United end Ferguson deal**\
+`The differences between managing South American stars and Leeds United and why INEOS are dicing with danger`\
+https://nytimes.com/athletic/5844408/2024/10/15/marcelo-bielsa-luis-suarez-and-trouble-in-uruguay-plus-man-united-end-ferguson-deal/
+
 **Everton mailbag: Send your questions to Patrick Boyland**\
 `Send us your questions and Patrick Boyland will respond to as many as he can in an article later this week`\
 https://nytimes.com/athletic/5842749/2024/10/15/everton-mailbag-friedkin-calvert-lewin-dyche/
