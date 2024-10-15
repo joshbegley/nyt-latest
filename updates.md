@@ -1,3 +1,7 @@
+**What we're seeing with the Bucks: Gary Trent Jr.'s strong start at shooting guard**\
+`From a Damian Lillard-Giannis Antetokounmpo connection to getting beaten on the defensive glass, we look at what's happening with the Bucks.`\
+https://nytimes.com/athletic/5843923/2024/10/15/bucks-gary-trent-jr-giannis-damian-lillard/
+
 **Chinese Automakers Display Force at Paris Auto Show**\
 `Weeks after Europe imposed additional tariffs on electric vehicles made in China, the country’s car companies were defiant at France’s leading auto event.`\
 https://nytimes.com/2024/10/15/business/china-electric-vehicles-paris-auto-show.html
