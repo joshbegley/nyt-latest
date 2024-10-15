@@ -1,3 +1,11 @@
+**NFL best bets Week 7: Patrick Mahomes is an underdog?!**\
+`Austin Mock has a pair of plays on Chiefs at 49ers among his best bets for NFL Week 7.`\
+https://nytimes.com/athletic/5845767/2024/10/15/nfl-best-bets-week-7-chiefs-seahawks/
+
+**U.S. Warns Israel of Military Aid Cut if Gazans Don’t Get More Supplies**\
+`The demand from Israel’s closest ally came amid reports that the humanitarian catastrophe in the Gaza Strip has grown still worse in recent weeks.`\
+https://nytimes.com/2024/10/15/world/middleeast/israel-gaza-us-military-aid.html
+
 **What now, Phillies? Reading between the lines on how they'll tweak roster, offensive approach**\
 `Dave Dombrowski talked about maintaining the status quo. So where can the Phillies upgrade this win-now roster? Reading between the lines. `\
 https://nytimes.com/athletic/5845678/2024/10/15/phillies-roster-offense-changes-dombrowski/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5845698/2024/10/15/kylian-mbappe-investigation-swed
 **The U.N. calls for an investigation into a deadly Israeli airstrike in northern Lebanon.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/un-calls-for-investigation-into-deadly-israeli-airstrike-in-northern-lebanon
-
-**Trump Says It Would Be a ‘Smart Thing’ if He Had Talked to Putin**\
-`Donald J. Trump declined to comment on whether he’d talked with the Russian president since leaving office. But he added, “If I have a relationship with people, that’s a good thing.”`\
-https://nytimes.com/2024/10/15/us/politics/trump-bloomberg-putin.html
-
-**Eric Adams’s Campaign Donations Plunge After Federal Indictment**\
-`Donations to the New York City mayor’s re-election campaign ceased after a five-count federal corruption indictment against him was unsealed last month.`\
-https://nytimes.com/2024/10/15/nyregion/eric-adams-donations-money.html
 
