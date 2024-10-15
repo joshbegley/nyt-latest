@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump to Rally in Georgia as Harris Ramps Up Attacks**\
+`After an event in Chicago, Donald Trump will head to Atlanta, near the site of his booking last year on charges related to his attempts to overturn the 2020 race. Kamala Harris is set to appear with Charlamagne Tha God.`\
+https://nytimes.com/live/2024/10/15/us/harris-trump-election
+
 **Israel tells the U.S. that it won’t target nuclear sites during its initial retaliation against Iran, officials say.**\
 `By Patrick Kingsley and Ronen Bergman`\
 https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/israel-tells-the-us-that-it-wont-target-nuclear-sites-during-its-initial-retaliation-against-iran-officials-say
