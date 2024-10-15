@@ -1,3 +1,7 @@
+**A Distant Planet May Host a Moon That’s Spewing a Volcanic Cloud**\
+`Astronomers have yet to confirm the existence of exomoons, but a molecular signal around a far away star offers some of the best evidence yet.`\
+https://nytimes.com/2024/10/15/science/exomoon-volcanic-io-jupiter.html
+
 **Has Trump Lost the Plot?**\
 `There have been too many recent times he has wandered away from his thoughts.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-cognitive-decline

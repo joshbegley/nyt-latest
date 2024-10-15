@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-cognitive-decline
 https://nytimes.com/athletic/5845733/2024/10/15/mlb-gold-glove-award-finalists/
 
 **A Distant Planet May Host a Moon That’s Spewing a Volcanic Cloud**\
-`Astronomers have yet to confirm the existence of exomoons, but molecular signal around a far away star offers some of the best evidence yet.`\
+`Astronomers have yet to confirm the existence of exomoons, but a molecular signal around a far away star offers some of the best evidence yet.`\
 https://nytimes.com/2024/10/15/science/exomoon-volcanic-io-jupiter.html
 
 **Mbappe's lawyer says he has ‘nothing to be reproached for’ amid rape investigation**\
