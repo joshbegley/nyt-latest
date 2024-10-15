@@ -1,3 +1,7 @@
+**Hong Kong Investigates After 9 Monkeys Die in a Zoo**\
+`The zoo partially closed after the deaths, which occurred over two days and included members of a critically endangered species.`\
+https://nytimes.com/2024/10/15/world/asia/hong-kong-zoo-monkeys-dead.html
+
 **Why WR coach Keenan McCardell is a key, unheralded figure in Vikings' 5-0 start**\
 `The longtime NFL receiver has worked wonders with Minnesota's wideouts, who have played a big role in the Vikings' offensive success. `\
 https://nytimes.com/athletic/5842683/2024/10/15/keenan-mccardell-vikings-wr-coach/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5839332/2024/10/15/ali-ahmed-canada-europe-toronto-
 **Why the Sabres, Red Wings and Senators will (and won't) make the playoffs**\
 `The Athletic's beat writers for Buffalo, Detroit and Ottawa make the case for the teams they cover.`\
 https://nytimes.com/athletic/5838101/2024/10/15/sabres-red-wings-senators-playoffs/
-
-**Republican Operatives Function as Hidden Hand Behind Pro-Trump Efforts**\
-`A political nonprofit organization called Building America’s Future has raised and spent more than $100 million over the past four years.`\
-https://nytimes.com/2024/10/15/us/elections/trump-money-building-americas-future.html
 
