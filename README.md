@@ -1,3 +1,11 @@
+**Meet the fan photographers signed up by Arsenal, players and the Premier League**\
+`Fan photography has evolved from taking pictures at a game, to being hired for official club images and going on holiday with players`\
+https://nytimes.com/athletic/5755284/2024/10/15/arsenal-photography-rice-smith-rowe/
+
+**Tuesday Briefing**\
+`Devastating Israeli strikes in Gaza.`\
+https://nytimes.com/2024/10/15/briefing/israel-strikes-gaza-election-canada-india.html
+
 **Fantasy football Week 7 waiver wire: Streamers, Kimani Vidal, Romeo Doubs and more**\
 `Jake Ciely runs through the best that this week's waiver wire has to offer, including redeemed Green Bay receiver Romeo Doubs.`\
 https://nytimes.com/athletic/5840917/2024/10/15/fantasy-football-week-7-waiver-wire-streamers-kimani-vidal-romeo-doubs-and-more/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5843962/2024/10/14/rangers-zibanejad-shesterkin-red
 **Mets relievers navigate nervous moments in Game 2, but is it sustainable?**\
 `While the Mets bullpen is a big part of this magical run, there are reasons for concern. `\
 https://nytimes.com/athletic/5843854/2024/10/14/mets-bullpen-dodgers-nlcs/
-
-**Yankees' Rodón delivers gem in Game 1 win over Guardians: Takeaways**\
-`The Yankees struck first in the ALCS, using a familiar formula in a 5-2 victory over the Guardians in the Bronx.`\
-https://nytimes.com/athletic/5843913/2024/10/14/guardians-yankees-alcs-game-1-takeaways/
-
-**Harris Uses Trump’s Own Words to Attack Him as ‘Unhinged’: ‘Roll the Clip’**\
-`At a rally in Pennsylvania, in a swing county in a swing state, Vice President Kamala Harris played clips of Donald Trump describing critics as an “enemy from within,” drawing jeers from her crowd.`\
-https://nytimes.com/2024/10/14/us/politics/harris-trump-enemy-within.html
 
