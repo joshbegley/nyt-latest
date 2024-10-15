@@ -1,3 +1,7 @@
+**Tyson Foerster continues to emerge as one of Flyers' most vital forwards**\
+`The center has earned more opportunities and more trust from his coach despite being just 22 years old.`\
+https://nytimes.com/athletic/5843716/2024/10/14/flyers-tyson-foerster-breakout-tortorella/
+
 **Josh Norris and the Senators core needed an offensive game like the win vs. Kings**\
 `The Senators and Kings combined for 15 goals in an 8-7 OT victory for Ottawa. Josh Norris contributed three points in the win. `\
 https://nytimes.com/athletic/5843283/2024/10/14/norris-stutzle-tkachuk-senators-kings/
