@@ -1,3 +1,11 @@
+**A Pro-Trump Ad Looks to Turn Harris’s Record as a Prosecutor Against Her**\
+`The spot from one of the biggest super PACs backing Donald Trump portrays Kamala Harris as a radical leftist, especially on crime — channeling a G.O.P. law-and-order message that dates back to Nixon.`\
+https://nytimes.com/2024/10/15/us/politics/trump-harris-ad-prosecutor.html
+
+**Could Weight-Loss Drugs Help Get People Back to Work? The U.K. Wants to Find Out.**\
+`The British government announced a multimillion dollar pharmaceutical partnership with Eli Lilly, including a trial that will study the impact of a weight-loss drug on work and productivity.`\
+https://nytimes.com/2024/10/15/world/europe/mounjaro-work-productivity-uk-study.html
+
 **Mirtle: The Leafs' Liljegren vs. Timmins debate highlights trouble with depth defencemen**\
 `Healthy scratched through the first three games after losing his job to Timmins, Liljegren has become the Leafs' latest polarizing player.`\
 https://nytimes.com/athletic/5844914/2024/10/15/maple-leafs-liljegren-timmins-defense/
