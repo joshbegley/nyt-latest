@@ -1,3 +1,7 @@
+**Giants' Andrew Thomas out with potential season-ending foot injury: Source**\
+`Thomas injured his foot on the Giants’ sole touchdown drive in Sunday’s loss to the Cincinnati Bengals.`\
+https://nytimes.com/athletic/5846159/2024/10/15/andrew-thomas-giants-foot-injury-update/
+
 **The View of the Election from One Philly Barbershop**\
 `A round-table event offers a glimpse of the challenges Harris faces and the effort to overcome them.`\
 https://nytimes.com/2024/10/15/us/politics/trump-harris-black-male-voters.html
