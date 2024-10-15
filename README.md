@@ -1,3 +1,11 @@
+**A Pro-Trump Ad Looks to Turn Harris’s Record as a Prosecutor Against Her**\
+`The spot from one of the biggest super PACs backing Donald Trump portrays Kamala Harris as a radical leftist, especially on crime — channeling a G.O.P. law-and-order message that dates back to Nixon.`\
+https://nytimes.com/2024/10/15/us/politics/trump-harris-ad-prosecutor.html
+
+**Could Weight-Loss Drugs Help Get People Back to Work? The U.K. Wants to Find Out.**\
+`The British government announced a multimillion dollar pharmaceutical partnership with Eli Lilly, including a trial that will study the impact of a weight-loss drug on work and productivity.`\
+https://nytimes.com/2024/10/15/world/europe/mounjaro-work-productivity-uk-study.html
+
 **Mirtle: The Leafs' Liljegren vs. Timmins debate highlights trouble with depth defencemen**\
 `Healthy scratched through the first three games after losing his job to Timmins, Liljegren has become the Leafs' latest polarizing player.`\
 https://nytimes.com/athletic/5844914/2024/10/15/maple-leafs-liljegren-timmins-defense/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/15/opinion/black-latino-undecided-voters.html
 **Oil Prices Fall After Israel Reportedly Says It Won’t Target Iran’s Nuclear or Oil Facilities**\
 `Brent crude, the international benchmark, was trading at below $74 a barrel on Tuesday, a drop from the $80 range.`\
 https://nytimes.com/2024/10/15/world/middleeast/oil-prices-israel-iran-attacks.html
-
-**Could the Lone Fed Dissenter Be in Line for a Powerful Role if Trump Wins?**\
-`Michelle Bowman, a Trump-appointed Fed official recently cited by JD Vance, has been gaining prominence.`\
-https://nytimes.com/2024/10/15/business/economy/michelle-bowman-fed-trump.html
-
-**As Black Voters Hesitate on Harris, Democrats Race to Win Them Over**\
-`With a frenzy of activity, the vice president and her allies are trying to strengthen her support with Black voters, whose growing alienation the party’s leaders had not confronted directly until now.`\
-https://nytimes.com/2024/10/15/us/politics/harris-black-voters-trump.html
 
