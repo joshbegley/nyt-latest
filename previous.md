@@ -1,3 +1,7 @@
+**Davante Adams trade grades: Kudos to Jets for pushing all in; why did Raiders wait so long?**\
+`This was a deal both teams had to make, but the Raiders surely could have gotten a better deal if they had moved Adams sooner. `\
+https://nytimes.com/athletic/5844920/2024/10/15/davante-adams-trade-grades-jets-raiders/
+
 **Cantona questions 'scandalous' decision to end Ferguson's United role**\
 `Eric Cantona has called the decision to end Sir Alex Ferguson&#8217;s multi-million pound Manchester United ambassador contract &#8220;scandalous&#8221;.`\
 https://nytimes.com/athletic/5845360/2024/10/15/eric-cantona-ferguson-manchester-united/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/climate/trump-flood-protection-rules-infrastructu
 **Mark Robinson Sues CNN Over Report Linking Him to Lewd Comments on Porn Site**\
 `Mr. Robinson’s campaign for governor of North Carolina has been in crisis since the report, which the lawsuit calls “recklessly false.”`\
 https://nytimes.com/2024/10/15/us/mark-robinson-cnn-porn-lawsuit.html
-
-**There’s No Hot Wing Like a Korean American Atlanta Hot Wing**\
-`Smaller, lighter and sharper than Buffalo wings, this interpretation of a classic has faded away over time. But you can make it at home.`\
-https://nytimes.com/2024/10/15/dining/atlanta-hot-wings.html
 
