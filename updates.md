@@ -1,3 +1,15 @@
+**INEOS ending Sir Alex Ferguson's ambassadorial role saves Man Utd money but also trims the club's soul**\
+`When cost cutting reaches the point where you’re cutting the man who invented the modern Man Utd, you have to ask if it is really worth it`\
+https://nytimes.com/athletic/5842244/2024/10/15/ineos-sir-alex-ferguson-manchester-united-soul/
+
+**The Battle Over Who Controls the Internet**\
+`We explore an important shift in the yearslong struggle.`\
+https://nytimes.com/2024/10/15/briefing/musk-social-media-regulation.html
+
+**How will Novak Djokovic solve a problem like Jannik Sinner and Carlos Alcaraz?**\
+`The 24-time Grand Slam champion faces two much-younger rivals who are ahead of him - and the need to keep them both close`\
+https://nytimes.com/athletic/5842735/2024/10/15/novak-djokovic-results-ranking-sinner-alcaraz-rivalry/
+
 **K-Pop Star Testifies in South Korean Parliament About Bullying at Work**\
 `The appearance by Hanni, a member of NewJeans, was eagerly awaited, but she offered few revelations about her famously regimented industry.`\
 https://nytimes.com/2024/10/15/world/asia/newjeans-hanni-bullying-testimony.html
