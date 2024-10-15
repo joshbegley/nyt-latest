@@ -1,5 +1,13 @@
+**Mbappe's lawyer says he has ‘nothing to be reproached for’ amid rape investigation**\
+`Kylian Mbappe&#8217;s lawyer says the Real Madrid striker believes he has &#8220;nothing to be reproached for&#8221; after reports linking him to an alleged rape in Sweden on Thursday.`\
+https://nytimes.com/athletic/5845698/2024/10/15/kylian-mbappe-investigation-sweden/
+
+**The U.N. calls for an investigation into a deadly Israeli airstrike in northern Lebanon.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/un-calls-for-investigation-into-deadly-israeli-airstrike-in-northern-lebanon
+
 **Trump Says It Would Be a ‘Smart Thing’ if He Had Talked to Putin**\
-`Donald J. Trump said he wouldn’t comment on whether he had conversations with the Russian president since leaving office. But he added, “If I have a relationship with people, that’s a good thing, not a bad thing.”`\
+`Donald J. Trump declined to comment on whether he’d talked with the Russian president since leaving office. But he added, “If I have a relationship with people, that’s a good thing.”`\
 https://nytimes.com/2024/10/15/us/politics/trump-bloomberg-putin.html
 
 **Eric Adams’s Campaign Donations Plunge After Federal Indictment**\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5845406/2024/10/15/aaron-rodgers-davante-adams-pat-
 **Until Saturday: Kirby Smart’s viral moment, plus Ashton Jeanty is an all-timer**\
 `Welcome to Until Saturday, the five-star college football newsletter: Our latest college football beef ... or is it?`\
 https://nytimes.com/athletic/5843400/2024/10/15/kirby-smart-michael-van-buren-ashton-jeanty-until-saturday/
-
-**Liberty-Lynx Game 2 draws largest WNBA Finals audience in 23 years**\
-`The game averaged 1.34 million viewers on ABC, marking it the most-viewed WNBA Finals game ever to air on the network.`\
-https://nytimes.com/athletic/5845578/2024/10/15/wnba-finals-viewership-game-2/
-
-**Atlanta named Super Bowl LXII host in 2028**\
-`Super Bowl LXII will mark Atlanta's fourth time as the host city of the NFL's championship.`\
-https://nytimes.com/athletic/5845537/2024/10/15/atlanta-host-super-bowl-lxii-2028/
 

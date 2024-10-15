@@ -1,3 +1,11 @@
+**MLB Gold Glove Award finalists announced**\
+`Dansby Swanson, Matt Chapman ... and Juan Soto? The Gold Glove Award finalists are here.`\
+https://nytimes.com/athletic/5845733/2024/10/15/mlb-gold-glove-award-finalists/
+
+**A Distant Planet May Host a Moon That’s Spewing a Volcanic Cloud**\
+`Astronomers have yet to confirm the existence of exomoons, but molecular signal around a far away star offers some of the best evidence yet.`\
+https://nytimes.com/2024/10/15/science/exomoon-volcanic-io-jupiter.html
+
 **Mbappe's lawyer says he has ‘nothing to be reproached for’ amid rape investigation**\
 `Kylian Mbappe&#8217;s lawyer says the Real Madrid striker believes he has &#8220;nothing to be reproached for&#8221; after reports linking him to an alleged rape in Sweden on Thursday.`\
 https://nytimes.com/athletic/5845698/2024/10/15/kylian-mbappe-investigation-sweden/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5845546/2024/10/15/live-qa-week-7-fantasy-football-
 **La Liga president Tebas tells FIFA to 'scrap' expanded Club World Cup**\
 `La Liga boss Javier Tebas has told FIFA president Gianni Infantino to “scrap” next summer’s Club World Cup, claiming the expanded tournament is not wanted by broadcasters, clubs, players or sponsors.`\
 https://nytimes.com/athletic/5845608/2024/10/15/club-world-cup-fifa-criticism/
-
-**Davante Adams joins Aaron Rodgers on 'The Pat McAfee Show'**\
-`Rodgers said Adams is “right at the top of the list of guys that I really care about that are family to me” around the NFL.`\
-https://nytimes.com/athletic/5845406/2024/10/15/aaron-rodgers-davante-adams-pat-mcafee-show/
-
-**Until Saturday: Kirby Smart’s viral moment, plus Ashton Jeanty is an all-timer**\
-`Welcome to Until Saturday, the five-star college football newsletter: Our latest college football beef ... or is it?`\
-https://nytimes.com/athletic/5843400/2024/10/15/kirby-smart-michael-van-buren-ashton-jeanty-until-saturday/
 

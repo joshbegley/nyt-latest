@@ -1,3 +1,15 @@
+**Mbappe's lawyer says he has ‘nothing to be reproached for’ amid rape investigation**\
+`Kylian Mbappe&#8217;s lawyer says the Real Madrid striker believes he has &#8220;nothing to be reproached for&#8221; after reports linking him to an alleged rape in Sweden on Thursday.`\
+https://nytimes.com/athletic/5845698/2024/10/15/kylian-mbappe-investigation-sweden/
+
+**The U.N. calls for an investigation into a deadly Israeli airstrike in northern Lebanon.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/un-calls-for-investigation-into-deadly-israeli-airstrike-in-northern-lebanon
+
+**Trump Says It Would Be a ‘Smart Thing’ if He Had Talked to Putin**\
+`Donald J. Trump declined to comment on whether he’d talked with the Russian president since leaving office. But he added, “If I have a relationship with people, that’s a good thing.”`\
+https://nytimes.com/2024/10/15/us/politics/trump-bloomberg-putin.html
+
 **Trump Says It Would Be a ‘Smart Thing’ if He Had Talked to Putin**\
 `Donald J. Trump said he wouldn’t comment on whether he had conversations with the Russian president since leaving office. But he added, “If I have a relationship with people, that’s a good thing, not a bad thing.”`\
 https://nytimes.com/2024/10/15/us/politics/trump-bloomberg-putin.html
