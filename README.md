@@ -1,3 +1,7 @@
+**Ferguson's Man United ambassadorial contract ended by INEOS**\
+`Manchester United new part-owners INEOS have continued their cost-cutting programme by axing a multi-million pound annual commitment to Sir Alex Ferguson, the most successful manager in the club&#8217;s history.`\
+https://nytimes.com/athletic/5842096/2024/10/15/manchester-united-alex-ferguson-contract-ineos/
+
 **The Night Sky**\
 `What is the coolest thing you have seen in the night sky?`\
 https://nytimes.com/2024/10/15/learning/the-night-sky.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/world/canada/canada-india-diplomats-explained.htm
 **Late Night Is Still Waiting for Trump’s Medical Report**\
 `Kamala Harris’s health is said to be “excellent,” but the nation has yet to hear about Donald Trump’s. “Do you really want to see his X-rays?” said Stephen Colbert.`\
 https://nytimes.com/2024/10/15/arts/television/stephen-colbert-harris-trump-medical.html
-
-**Shopping trips, tours and dumplings in Chinatown: The NFL London Games experience for players**\
-`The NFL London Games are underway — and this is how players enjoy their time around the games`\
-https://nytimes.com/athletic/5834645/2024/10/15/nfl-london-games-player-experience/
 
