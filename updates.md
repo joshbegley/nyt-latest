@@ -1,3 +1,11 @@
+**In Embattled Gaza, a Woman Chooses Her Mother Over Evacuating**\
+`Amna Soliman says she can’t leave her mother, who is in a wheelchair, so she stays, despite heavy fighting and repeated warnings to leave.`\
+https://nytimes.com/2024/10/15/world/middleeast/gaza-jabaliya-evacuations.html
+
+**The Flood-Protection Rule That Trump Rolled Back**\
+`A Trump-era rollback of flood-protection rules has left critical infrastructure projects at higher risk, experts say.`\
+https://nytimes.com/2024/10/15/climate/trump-flood-protection-rules-infrastructure.html
+
 **Mark Robinson Sues CNN Over Report Linking Him to Lewd Comments on Porn Site**\
 `Mr. Robinson’s campaign for governor of North Carolina has been in crisis since the report, which the lawsuit calls “recklessly false.”`\
 https://nytimes.com/2024/10/15/us/mark-robinson-cnn-porn-lawsuit.html
