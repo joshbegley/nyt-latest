@@ -1,5 +1,5 @@
-**Ferguson's Man United ambassadorial contract ended by INEOS**\
-`Manchester United new part-owners INEOS have continued their cost-cutting programme by ending a multi-million pound annual commitment to Sir Alex Ferguson, the most successful manager in the club&#8217;s history.`\
+**Ferguson's Man Utd ambassadorial contract ended by INEOS**\
+`Manchester United new part-owners INEOS has continued its cost-cutting programme by ending a multi-million pound annual commitment to Sir Alex Ferguson, the most successful manager in the club&#8217;s history.`\
 https://nytimes.com/athletic/5842096/2024/10/15/manchester-united-alex-ferguson-contract-ineos/
 
 **The Night Sky**\
