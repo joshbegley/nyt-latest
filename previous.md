@@ -1,3 +1,7 @@
+**Washington Post C.E.O. Elevates Deal-Making to a Top Priority**\
+`Will Lewis has said that he has a mandate from the paper’s owner, Jeff Bezos, to grow the business, including through acquisitions.`\
+https://nytimes.com/2024/10/15/business/media/washington-post-dealmaking-will-lewis.html
+
 **Tuchel's coaching playbook: Tennis balls, training 'problems' - and lots of conflict**\
 `The German has taken on one of the biggest challenges in football, but history suggests he will not be daunted`\
 https://nytimes.com/athletic/5845637/2024/10/15/thomas-tuchel-england-coach-profile/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/briefing/harris-black-voters-israel-aid-gaza-viol
 **Megan Marshack Dies at 70; Was With Nelson Rockefeller at His Death**\
 `She was at the center of rumors about the former vice president’s last moments, but she remained silent about their association until she wrote her own obituary.`\
 https://nytimes.com/2024/10/15/us/politics/megan-marshack-dead.html
-
-**Is Biden Really Ready to Stand Up for Gaza’s Children?**\
-`His weakness has made America complicit in humanitarian tragedy.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/biden-aid-weapons-restriction
 

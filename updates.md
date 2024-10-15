@@ -1,3 +1,7 @@
+**Washington Post C.E.O. Elevates Deal-Making to a Top Priority**\
+`Will Lewis has said that he has a mandate from the paper’s owner, Jeff Bezos, to grow the business, including through acquisitions.`\
+https://nytimes.com/2024/10/15/business/media/washington-post-dealmaking-will-lewis.html
+
 **Tuchel's coaching playbook: Tennis balls, training 'problems' - and lots of conflict**\
 `The German has taken on one of the biggest challenges in football, but history suggests he will not be daunted`\
 https://nytimes.com/athletic/5845637/2024/10/15/thomas-tuchel-england-coach-profile/
