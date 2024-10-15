@@ -1,7 +1,3 @@
-**The Flood-Protection Rule That Trump Rolled Back**\
-`A Trump-era rollback of flood-protection rules has left critical infrastructure projects at higher risk, experts say.`\
-https://nytimes.com/2024/10/15/climate/trump-flood-protection-rules-infrastructure.html
-
 **Mark Robinson Sues CNN Over Report Linking Him to Lewd Comments on Porn Site**\
 `Mr. Robinson’s campaign for governor of North Carolina has been in crisis since the report, which the lawsuit calls “recklessly false.”`\
 https://nytimes.com/2024/10/15/us/mark-robinson-cnn-porn-lawsuit.html
@@ -33,4 +29,8 @@ https://nytimes.com/2024/10/15/world/europe/mounjaro-work-productivity-uk-study.
 **Mirtle: The Leafs' Liljegren vs. Timmins debate highlights trouble with depth defencemen**\
 `Healthy scratched through the first three games after losing his job to Timmins, Liljegren has become the Leafs' latest polarizing player.`\
 https://nytimes.com/athletic/5844914/2024/10/15/maple-leafs-liljegren-timmins-defense/
+
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/10/15/opinion/thepoint
 
