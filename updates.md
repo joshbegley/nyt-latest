@@ -1,3 +1,7 @@
+**Hong Kong Investigates After 9 Monkeys Die in a Zoo**\
+`The zoo partially closed after the deaths, which occurred over two days and included members of a critically endangered species.`\
+https://nytimes.com/2024/10/15/world/asia/hong-kong-zoo-monkeys-dead.html
+
 **Why WR coach Keenan McCardell is a key, unheralded figure in Vikings' 5-0 start**\
 `The longtime NFL receiver has worked wonders with Minnesota's wideouts, who have played a big role in the Vikings' offensive success. `\
 https://nytimes.com/athletic/5842683/2024/10/15/keenan-mccardell-vikings-wr-coach/
