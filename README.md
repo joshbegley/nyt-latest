@@ -1,3 +1,7 @@
+**Guardians replace Alex Cobb on ALCS roster with Ben Lively**\
+`Cobb dealt with an acute lower back strain during his Game 1 start at Yankee Stadium.`\
+https://nytimes.com/athletic/5845858/2024/10/15/guardians-alcs-roster-change-alex-cobb/
+
 **NFL best bets Week 7: Patrick Mahomes is an underdog?!**\
 `Austin Mock has a pair of plays on Chiefs at 49ers among his best bets for NFL Week 7.`\
 https://nytimes.com/athletic/5845767/2024/10/15/nfl-best-bets-week-7-chiefs-seahawks/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/science/exomoon-volcanic-io-jupiter.html
 **Mbappe's lawyer says he has ‘nothing to be reproached for’ amid rape investigation**\
 `Kylian Mbappe&#8217;s lawyer says the Real Madrid striker believes he has &#8220;nothing to be reproached for&#8221; after reports linking him to an alleged rape in Sweden on Thursday.`\
 https://nytimes.com/athletic/5845698/2024/10/15/kylian-mbappe-investigation-sweden/
-
-**The U.N. calls for an investigation into a deadly Israeli airstrike in northern Lebanon.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/un-calls-for-investigation-into-deadly-israeli-airstrike-in-northern-lebanon
 

@@ -1,3 +1,19 @@
+**NFL best bets Week 7: Patrick Mahomes is an underdog?!**\
+`Austin Mock has a pair of plays on Chiefs at 49ers among his best bets for NFL Week 7.`\
+https://nytimes.com/athletic/5845767/2024/10/15/nfl-best-bets-week-7-chiefs-seahawks/
+
+**U.S. Warns Israel of Military Aid Cut if Gazans Don’t Get More Supplies**\
+`The demand from Israel’s closest ally came amid reports that the humanitarian catastrophe in the Gaza Strip has grown still worse in recent weeks.`\
+https://nytimes.com/2024/10/15/world/middleeast/israel-gaza-us-military-aid.html
+
+**What now, Phillies? Reading between the lines on how they'll tweak roster, offensive approach**\
+`Dave Dombrowski talked about maintaining the status quo. So where can the Phillies upgrade this win-now roster? Reading between the lines. `\
+https://nytimes.com/athletic/5845678/2024/10/15/phillies-roster-offense-changes-dombrowski/
+
+**Colorado WR Travis Hunter expected to play vs. Arizona**\
+`Hunter exited with the injury before the half in Saturday's 28-31 loss.`\
+https://nytimes.com/athletic/5845763/2024/10/15/travis-hunter-colorado-arizona-injury/
+
 **Has Trump Lost the Plot?**\
 `There have been too many recent times he has wandered away from his thoughts.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-cognitive-decline
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5845698/2024/10/15/kylian-mbappe-investigation-swed
 **The U.N. calls for an investigation into a deadly Israeli airstrike in northern Lebanon.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/un-calls-for-investigation-into-deadly-israeli-airstrike-in-northern-lebanon
-
-**Trump Says It Would Be a ‘Smart Thing’ if He Had Talked to Putin**\
-`Donald J. Trump declined to comment on whether he’d talked with the Russian president since leaving office. But he added, “If I have a relationship with people, that’s a good thing.”`\
-https://nytimes.com/2024/10/15/us/politics/trump-bloomberg-putin.html
-
-**Eric Adams’s Campaign Donations Plunge After Federal Indictment**\
-`Donations to the New York City mayor’s re-election campaign ceased after a five-count federal corruption indictment against him was unsealed last month.`\
-https://nytimes.com/2024/10/15/nyregion/eric-adams-donations-money.html
-
-**A Climate Resistant Community Passed Two Hurricane Tests**\
-`On the west coast of Florida, a town built to weather hurricanes hosted more than 2,000 people during Hurricane Milton. Could communities like this help shape Florida’s future?`\
-https://nytimes.com/2024/10/15/climate/florida-climate-resilience-babcock-ranch.html
-
-**Live Q&A: Week 7 fantasy football add/drop chat with Dane Martinez, Tuesday 10/15 at 5 p.m. ET**\
-`Ask Dane Martinez your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5845546/2024/10/15/live-qa-week-7-fantasy-football-add-drop-chat-with-dane-martinez-tuesday-10-15/
 
