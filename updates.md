@@ -1,3 +1,7 @@
+**Supreme Court Leans Toward Truck Driver Fired Over Drug Test**\
+`The driver, Douglas Horn, sued the maker of a product said to be free of THC under a federal racketeering law, saying he had suffered a business injury.`\
+https://nytimes.com/2024/10/15/us/supreme-court-thc-truck-driver-drug-test.html
+
 **Abortion Could Decide Control of State Supreme Courts**\
 `In Michigan, Ohio, Arizona and elsewhere, progressive court candidates are hoping that the abortion issue that helped conservatives remake the federal judiciary will work for them this time.`\
 https://nytimes.com/2024/10/15/us/abortion-could-decide-control-of-state-supreme-courts.html
