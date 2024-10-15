@@ -1,3 +1,7 @@
+**That Plastic Skeleton Can’t Be Your Plus 1, Police Tell Car Pool Lane Users**\
+`A California Highway Patrol officer in the San Jose area recently cited a driver who used a Halloween-themed ruse to drive in a high-occupancy-vehicle lane.`\
+https://nytimes.com/2024/10/15/us/carpool-lane-violation-skeleton.html
+
 **Washington Post C.E.O. Elevates Deal-Making to a Top Priority**\
 `Will Lewis has said he has a mandate from the paper’s owner, Jeff Bezos, to grow the business, including through acquisitions.`\
 https://nytimes.com/2024/10/15/business/media/washington-post-dealmaking-will-lewis.html
