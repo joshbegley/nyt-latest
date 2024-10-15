@@ -1,3 +1,19 @@
+**Everton mailbag: Send your questions to Patrick Boyland**\
+`Send us your questions and Patrick Boyland will respond to as many as he can in an article later this week`\
+https://nytimes.com/athletic/5842749/2024/10/15/everton-mailbag-friedkin-calvert-lewin-dyche/
+
+**LeBrun: What's behind the Flames' hot start? Catching up with Craig Conroy**\
+`Conroy: "It’s three games, but they’ve played well, they’ve stuck up for each other, they’ve competed hard. … It’s a good feeling."`\
+https://nytimes.com/athletic/5843209/2024/10/15/flames-nhl-craig-conroy-lebrun/
+
+**What went wrong in Norway for former UMSNT coach Bob Bradley**\
+`Why the 'legend' coach's attempt to save a cherished club didn't work out`\
+https://nytimes.com/athletic/5838281/2024/10/15/bob-bradley-stabaek-usmnt-norway/
+
+**Dylan Holloway's ceiling? NHL scout's evaluation, player comp for Blues' offer-sheet pickup**\
+`Holloway, 23, is looking forward to a possible top-six role with the Blues, along with time on special teams.`\
+https://nytimes.com/athletic/5806921/2024/10/15/dylan-holloway-scouting-report-blues/
+
 **The Pulse: A great night for New York sports***\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5843124/2024/10/15/jets-bills-yankees-mets-the-pulse/
@@ -17,20 +33,4 @@ https://nytimes.com/2024/10/15/world/asia/newjeans-hanni-bullying-testimony.html
 **Pistons' changes range from staff to roster to wardrobe — all with one goal in mind**\
 `J.B. Bickerstaff helped turn around the Cavaliers. Can he find a formula that works for the Pistons and star guard Cade Cunningham?`\
 https://nytimes.com/athletic/5840953/2024/10/15/detroit-pistons-preview-cade-cunningham-jb-bickerstaff/
-
-**Hong Kong Investigates After 9 Monkeys Die in a Zoo**\
-`The zoo partially closed after the deaths, which occurred over two days and included members of a critically endangered species.`\
-https://nytimes.com/2024/10/15/world/asia/hong-kong-zoo-monkeys-dead.html
-
-**Why WR coach Keenan McCardell is a key, unheralded figure in Vikings' 5-0 start**\
-`The longtime NFL receiver has worked wonders with Minnesota's wideouts, who have played a big role in the Vikings' offensive success. `\
-https://nytimes.com/athletic/5842683/2024/10/15/keenan-mccardell-vikings-wr-coach/
-
-**How will Novak Djokovic solve a problem like Jannik Sinner and Carlos Alcaraz?**\
-`The 24-time Grand Slam champion faces two much-younger rivals who are ahead of him - and the need to keep them both close`\
-https://nytimes.com/athletic/5842735/2024/10/15/novak-djokovic-results-ranking-sinner-alcaraz-rivalry/
-
-**NFL QB stock report, Week 7: No need to argue about Brock Purdy anymore. He's elite**\
-`Since 2022, Purdy has been just as good, if not better, than Bengals QB Joe Burrow. So why doesn't he get the same shine?`\
-https://nytimes.com/athletic/5843074/2024/10/15/nfl-qb-stock-report-rankings-brock-purdy-49ers/
 
