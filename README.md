@@ -1,3 +1,7 @@
+**Learning With: ‘Test Your Focus: Can You Spend 10 Minutes With One Painting?’**\
+`Are you easily distracted? If so, you’re in luck! This lesson will help you practice your ability to pay attention.`\
+https://nytimes.com/2024/10/15/learning/lesson-plans/learning-with-test-your-focus-can-you-spend-10-minutes-with-one-painting.html
+
 **Survivors of Maine Mass Shooting Take Step Toward Suing the Army**\
 `A group of survivors and relatives of victims said the military failed to respond to warning signs from the gunman, an Army Reserve grenade instructor, ahead of the shooting.`\
 https://nytimes.com/2024/10/15/us/maine-mass-shooting-survivors-lawsuit-army.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/world/middleeast/israel-gaza-us-military-aid.html
 **What now, Phillies? Reading between the lines on how they'll tweak roster, offensive approach**\
 `Dave Dombrowski talked about maintaining the status quo. So where can the Phillies upgrade this win-now roster? Reading between the lines. `\
 https://nytimes.com/athletic/5845678/2024/10/15/phillies-roster-offense-changes-dombrowski/
-
-**Colorado WR Travis Hunter expected to play vs. Arizona**\
-`Hunter exited with the injury before the half in Saturday's 28-31 loss.`\
-https://nytimes.com/athletic/5845763/2024/10/15/travis-hunter-colorado-arizona-injury/
 
