@@ -1,3 +1,7 @@
+**Chinese Automakers Display Force at Paris Auto Show**\
+`Weeks after Europe imposed additional tariffs on electric vehicles made in China, the country’s car companies were defiant at France’s leading auto event.`\
+https://nytimes.com/2024/10/15/business/china-electric-vehicles-paris-auto-show.html
+
 **After the Steelers missed out on Davante Adams, where do they go from here at WR?**\
 `For the second time, the Steelers have struck out in pursuit of a star-level wide receiver. What are their options now?`\
 https://nytimes.com/athletic/5844062/2024/10/15/davante-adams-steelers-trade-deadline/
