@@ -1,3 +1,7 @@
+**Pistons' changes range from staff to roster to wardrobe — all with one goal in mind**\
+`J.B. Bickerstaff helped turn around the Cavaliers. Can he find a formula that works for the Pistons and star guard Cade Cunningham?`\
+https://nytimes.com/athletic/5840953/2024/10/15/detroit-pistons-preview-cade-cunningham-jb-bickerstaff/
+
 **Hong Kong Investigates After 9 Monkeys Die in a Zoo**\
 `The zoo partially closed after the deaths, which occurred over two days and included members of a critically endangered species.`\
 https://nytimes.com/2024/10/15/world/asia/hong-kong-zoo-monkeys-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5837959/2024/10/15/inside-the-agonizing-decisions-t
 **Canada's Ali Ahmed on European ambitions and trespassing in Toronto: 'The TFC security guys are quick'**\
 `The young Canada international's story so far - from misery in Europe to a second chance in Vancouver`\
 https://nytimes.com/athletic/5839332/2024/10/15/ali-ahmed-canada-europe-toronto-vancouver/
-
-**Why the Sabres, Red Wings and Senators will (and won't) make the playoffs**\
-`The Athletic's beat writers for Buffalo, Detroit and Ottawa make the case for the teams they cover.`\
-https://nytimes.com/athletic/5838101/2024/10/15/sabres-red-wings-senators-playoffs/
 
