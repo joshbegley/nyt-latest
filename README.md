@@ -1,3 +1,7 @@
+**‘We Are Not a Monolith’: Black Artists Gather at the Philharmonic**\
+`An Afromodernism festival at the New York Philharmonic shines a light on Black artists, who are vastly underrepresented in classical music.`\
+https://nytimes.com/2024/10/15/arts/music/afromoderism-festival-new-york-philharmonic.html
+
 **Merritt Mathias will retire as a truly authentic NWSL original**\
 `Mathias, who played in the NWSL's inaugural season, will be calling it quits next month - she has some regrets but plenty to be content with`\
 https://nytimes.com/athletic/5844261/2024/10/15/merritt-mathias-retirement-angel-city-courage/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5845360/2024/10/15/eric-cantona-ferguson-manchester
 **Bryan Price to step aside as Giants' pitching coach**\
 `Price elected to sign a one-year deal last season. He wanted a chance to coach in San Francisco but is ready now to step away.`\
 https://nytimes.com/athletic/5845391/2024/10/15/bryan-price-sf-giants-pitching-coach-leaving/
-
-**Holiday Sales Growth Expected to Normalize in an Abnormal Year**\
-`Despite shoppers’ election-year concerns and worries about the economy, retail executives predict sales to increase as much as 3.5 percent over last year’s holiday season.`\
-https://nytimes.com/2024/10/15/business/holiday-sales-growth.html
 
