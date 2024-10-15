@@ -1,7 +1,3 @@
-**Yankees' Rodón delivers gem in Game 1 win over Guardians: Takeaways**\
-`The Yankees struck first in the ALCS, using a familiar formula in a 5-2 victory over the Guardians in the Bronx.`\
-https://nytimes.com/athletic/5843913/2024/10/14/guardians-yankees-alcs-game-1-takeaways/
-
 **Harris Uses Trump’s Own Words to Attack Him as ‘Unhinged’: ‘Roll the Clip’**\
 `At a rally in Pennsylvania, in a swing county in a swing state, Vice President Kamala Harris played clips of Donald Trump describing critics as an “enemy from within,” drawing jeers from her crowd.`\
 https://nytimes.com/2024/10/14/us/politics/harris-trump-enemy-within.html
@@ -34,4 +30,8 @@ https://nytimes.com/2024/10/14/crosswords/daily-puzzle-2024-10-15.html
 **Behind Mark Vientos and Francisco Lindor, the Mets punch back to even the NLCS**\
 `Resilience is the animating impulse of this team, and its belief in its ability to rebound has only strengthened throughout the season.`\
 https://nytimes.com/athletic/5843816/2024/10/14/mark-vientos-francisco-lindor-nlcs-game-2/
+
+**Corrections: Oct. 15, 2024**\
+`Corrections that appeared in print on Tuesday, Oct. 15, 2024.`\
+https://nytimes.com/2024/10/14/pageoneplus/corrections-oct-15-2024.html
 
