@@ -1,3 +1,7 @@
+**Arshdeep Bains' opportunity, good news on Tyler Myers and more: Canucks notebook**\
+`Plus some early season storylines that may influence the course of this season or turn out to be noise after two losses to start the year.`\
+https://nytimes.com/athletic/5844170/2024/10/15/canucks-arshdeep-bains-tyler-myers/
+
 **Emerson: Georgia is still searching, on offense, defense and off the field**\
 `Saturday's game at Texas will tell us a lot about this Georgia team and what it can be the rest of the season.`\
 https://nytimes.com/athletic/5844513/2024/10/15/georgia-football-midseason-texas-kirby-smart/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/business/dealbook/prediction-markets-trump-harris
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Trump to Rally in Georgia as Harris Ramps Up Attacks**\
-`After an event in Chicago, Donald Trump will head to Atlanta, near the site of his booking last year on charges related to his attempts to overturn the 2020 race. Kamala Harris is set to appear with Charlamagne Tha God.`\
-https://nytimes.com/live/2024/10/15/us/harris-trump-election
 
