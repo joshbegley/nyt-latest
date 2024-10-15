@@ -1,3 +1,7 @@
+**Steely Determination**\
+`Lindsay Rosenblum’s Crossword debut is a hit.`\
+https://nytimes.com/2024/10/14/crosswords/daily-puzzle-2024-10-15.html
+
 **Behind Mark Vientos and Francisco Lindor, the Mets punch back to even the NLCS**\
 `Resilience is the animating impulse of this team, and its belief in its ability to rebound has only strengthened throughout the season.`\
 https://nytimes.com/athletic/5843816/2024/10/14/mark-vientos-francisco-lindor-nlcs-game-2/

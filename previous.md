@@ -1,3 +1,7 @@
+**Steely Determination**\
+`Lindsay Rosenblum’s Crossword debut is a hit.`\
+https://nytimes.com/2024/10/14/crosswords/daily-puzzle-2024-10-15.html
+
 **Behind Mark Vientos and Francisco Lindor, the Mets punch back to even the NLCS**\
 `Resilience is the animating impulse of this team, and its belief in its ability to rebound has only strengthened throughout the season.`\
 https://nytimes.com/athletic/5843816/2024/10/14/mark-vientos-francisco-lindor-nlcs-game-2/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5843189/2024/10/14/mets-dodgers-nlcs-mark-vientos/
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>We&#8217;ve barely had time to recover from Ohio State-Oregon and Ole Miss&#8211;LSU, and it&#8217;s already time for Alabama-Tennessee and Georgia-Texas.`\
 https://nytimes.com/athletic/5843689/2024/10/14/submit-a-question-for-stewart-mandels-college-football-mailbag-277/
-
-**Bills RB James Cook out with toe injury for divisional showdown with Jets**\
-`Rookie Ray Davis and veteran Ty Johnson are next up on the depth chart for Buffalo.`\
-https://nytimes.com/athletic/5843623/2024/10/14/bills-james-cook-inactive-against-jets/
 
