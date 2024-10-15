@@ -1,3 +1,11 @@
+**Matt Lloyd's journey: From mowing lawns at a pet cemetery to Timberwolves GM**\
+`Lloyd has climbed the ranks and is playing an essential role in the turnaround of one of the league's long-struggling franchises.`\
+https://nytimes.com/athletic/5771971/2024/10/15/matt-lloyd-timberwolves-journey/
+
+**Keldon Johnson is reinvigorated and ready to be a leader for Spurs**\
+`Johnson is the longest-tenured Spurs player on the roster, and he could solidify himself as a key cog.`\
+https://nytimes.com/athletic/5825176/2024/10/15/keldon-johnson-spurs-leader/
+
 **A week in the life of Patriots lineman Mike Onwenu: Acupuncture, IVs and lots of soreness**\
 `A look at a (tiring) week in the life of the only Patriots player to play all of the team's offensive snaps this season. `\
 https://nytimes.com/athletic/5842326/2024/10/15/patriots-mike-onwenu-offensive-line/
