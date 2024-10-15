@@ -1,3 +1,7 @@
+**Breanna Stewart’s wife Marta Xargay Casademont received homophobic, violent email**\
+`The hateful comments come at a moment of increased negativity towards WNBA players online.`\
+https://nytimes.com/athletic/5845813/2024/10/15/breanna-stewart-wife-anti-gay-emails-wnba/
+
 **Officials discussing loophole behind Oregon's intentional too-many-men flag**\
 `The illegal substitution call late in Oregon's 32-31 win against Ohio State burned critical seconds off the clock for the Buckeyes.`\
 https://nytimes.com/athletic/5844044/2024/10/15/oregon-ohio-state-final-play-dan-lanning-penalty/

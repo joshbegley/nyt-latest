@@ -1,3 +1,7 @@
+**Breanna Stewart’s wife Marta Xargay Casademont received homophobic, violent email**\
+`The hateful comments come at a moment of increased negativity towards WNBA players online.`\
+https://nytimes.com/athletic/5845813/2024/10/15/breanna-stewart-wife-anti-gay-emails-wnba/
+
 **Tuchel agrees deal to become new England manager**\
 `Thomas Tuchel has agreed to become the new England manager following successful talks with the Football Association (FA).`\
 https://nytimes.com/athletic/5844523/2024/10/15/thomas-tuchel-england-manager/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5845866/2024/10/15/tom-brady-las-vegas-raiders-sale
 **There Is No Crying in Baseball (Except Over This Hat)**\
 `Mets and Yankees fans seem to agree: Mayor Eric Adams’s both-sides baseball cap struck out.`\
 https://nytimes.com/2024/10/15/style/mayor-adams-mets-yankees-hat.html
-
-**Trump Says ‘Growth’ and Tariffs Will Pay for $15 Trillion Agenda**\
-`In a combative interview, the former president hinted at even higher tariffs as an economic magic bullet.`\
-https://nytimes.com/2024/10/15/us/politics/trump-tariffs-economy-economy-club-chicago.html
 
