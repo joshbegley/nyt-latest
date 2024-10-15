@@ -1,3 +1,7 @@
+**The U.S. warns Israel to increase aid to Gaza or face penalties.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/us-israel-military-aid-gaza-improvements
+
 **Supreme Court Leans Toward Truck Driver Fired Over Drug Test**\
 `The driver, Douglas Horn, sued the maker of a product said to be free of THC under a federal racketeering law, saying he had suffered a business injury.`\
 https://nytimes.com/2024/10/15/us/supreme-court-thc-truck-driver-drug-test.html

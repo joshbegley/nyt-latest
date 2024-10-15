@@ -15,7 +15,7 @@ https://nytimes.com/2024/10/15/us/politics/cruz-allred-texas-senate-debate.html
 https://nytimes.com/athletic/5845532/2024/10/15/amari-cooper-trade-bills-browns/
 
 **The U.S. warns Israel to increase aid to Gaza or face penalties.**\
-`By Michael Crowley and Eric Schmitt`\
+`By Michael Crowley`\
 https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/us-israel-military-aid-gaza-improvements
 
 **‘We Are Not a Monolith’: Black Artists Gather at the Philharmonic**\
