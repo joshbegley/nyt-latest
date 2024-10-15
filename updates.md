@@ -1,3 +1,11 @@
+**Even Charlamagne Can’t Push Harris Off Message**\
+`It may not be great radio, but Harris made a solid case for why she’d be better for Black America.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/charlamagne-harris-interview-detroit
+
+**Giants' Andrew Thomas out with potential season-ending foot injury**\
+`Thomas injured his foot on the Giants’ sole touchdown drive in Sunday’s loss to the Cincinnati Bengals.`\
+https://nytimes.com/athletic/5846159/2024/10/15/andrew-thomas-giants-foot-injury-update/
+
 **‘Smart’ or Criminal? Trump’s Changing Views on Talking to Foreign Leaders**\
 `The former president, who once pushed to prosecute a former secretary of state for talking with foreign officials, said that it would be “a good thing” for himself to have secretly kept in touch with President Vladimir V. Putin of Russia — if he did.`\
 https://nytimes.com/2024/10/15/us/politics/trump-putin-communication.html
