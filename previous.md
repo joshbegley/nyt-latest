@@ -1,3 +1,7 @@
+**Weird & Wild: Mets' Grand Slam Fever, Dodgers' scoreless streak, Ohtani's latest oddity**\
+`The Mets and Dodgers have provided no shortage of Weird and Wild material during their NLCS matchup. `\
+https://nytimes.com/athletic/5844284/2024/10/15/mets-grand-slam-dodgers-nlcs-ohtani/
+
 **NFL Week 6 best and worst coaching decisions: Ben Johnson has Lions offense humming**\
 `Also, the Buccaneers OC Liam Coen keeps Baker Mayfield in check while the Browns and Raiders have big issues to address.`\
 https://nytimes.com/athletic/5841980/2024/10/15/nfl-week-6-worst-best-coaching-decisions-nguyen/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5842326/2024/10/15/patriots-mike-onwenu-offensive-l
 **Michigan turns to veteran Jack Tuttle as search for offensive competence continues**\
 `Tuttle, now in his seventh season of college football, led Michigan to 17 unanswered points two weeks ago at Washington.`\
 https://nytimes.com/athletic/5843453/2024/10/15/michigan-offensive-competence-veteran-jack-tuttle/
-
-**Lebanon’s Hospitals Buckle Amid Israel’s Offensive Against Hezbollah**\
-`The United Nations says “the targeting of health and relief operations is broadening” in Lebanon. Hospitals say they have been forced to close or are struggling to operate.`\
-https://nytimes.com/2024/10/15/world/middleeast/lebanon-hospitals-israel-offensive.html
 
