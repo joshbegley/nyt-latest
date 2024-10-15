@@ -1,3 +1,11 @@
+**Would a Strong Job Market Stop Fed Rate Cuts? This Official Says No.**\
+`Mary C. Daly, the president of the Federal Reserve Bank of San Francisco, said that the central bank shouldn’t act “out of fear.”`\
+https://nytimes.com/2024/10/15/business/economy/fed-mary-daly-jobs-inflation.html
+
+**Giant Pandas From China Return to National Zoo in Washington, D.C.**\
+`A motorcade through the capital revived “panda diplomacy” between Washington and Beijing for the first time in nearly a year.`\
+https://nytimes.com/2024/10/15/us/politics/pandas-china-national-zoo.html
+
 **In Embattled Gaza, a Woman Chooses Her Mother Over Evacuating**\
 `Amna Soliman says she can’t leave her mother, who is in a wheelchair, so she stays, despite heavy fighting and repeated warnings to leave.`\
 https://nytimes.com/2024/10/15/world/middleeast/gaza-jabaliya-evacuations.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5845325/2024/10/15/rob-thomson-phillies-contract-ex
 **Trump Plays Music After Medical Emergencies Derail Town Hall**\
 `Donald J. Trump cut questions short and started playing music after two medical emergencies in the crowd at his town-hall event in suburban Philadelphia.`\
 https://nytimes.com/video/us/politics/100000009761941/trump-town-hall-music.html
-
-**A Pro-Trump Ad Looks to Turn Harris’s Record as a Prosecutor Against Her**\
-`The spot from one of the biggest super PACs backing Donald Trump portrays Kamala Harris as a radical leftist, especially on crime — channeling a G.O.P. law-and-order message that dates back to Nixon.`\
-https://nytimes.com/2024/10/15/us/politics/trump-harris-ad-prosecutor.html
-
-**Could Weight-Loss Drugs Help Get People Back to Work? The U.K. Wants to Find Out.**\
-`The British government announced a multimillion dollar pharmaceutical partnership with Eli Lilly, including a trial that will study the impact of a weight-loss drug on work and productivity.`\
-https://nytimes.com/2024/10/15/world/europe/mounjaro-work-productivity-uk-study.html
 

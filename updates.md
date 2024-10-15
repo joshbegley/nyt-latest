@@ -1,3 +1,11 @@
+**Would a Strong Job Market Stop Fed Rate Cuts? This Official Says No.**\
+`Mary C. Daly, the president of the Federal Reserve Bank of San Francisco, said that the central bank shouldn’t act “out of fear.”`\
+https://nytimes.com/2024/10/15/business/economy/fed-mary-daly-jobs-inflation.html
+
+**Giant Pandas From China Return to National Zoo in Washington, D.C.**\
+`A motorcade through the capital revived “panda diplomacy” between Washington and Beijing for the first time in nearly a year.`\
+https://nytimes.com/2024/10/15/us/politics/pandas-china-national-zoo.html
+
 **In Embattled Gaza, a Woman Chooses Her Mother Over Evacuating**\
 `Amna Soliman says she can’t leave her mother, who is in a wheelchair, so she stays, despite heavy fighting and repeated warnings to leave.`\
 https://nytimes.com/2024/10/15/world/middleeast/gaza-jabaliya-evacuations.html
