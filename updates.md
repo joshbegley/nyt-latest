@@ -1,3 +1,7 @@
+**Officials discussing loophole behind Oregon's intentional too-many-men flag**\
+`The illegal substitution call late in Oregon's 32-31 win against Ohio State burned critical seconds off the clock for the Buckeyes.`\
+https://nytimes.com/athletic/5844044/2024/10/15/oregon-ohio-state-final-play-dan-lanning-penalty/
+
 **Tuchel agrees deal to become new England manager**\
 `Thomas Tuchel has agreed to become the new England manager following successful talks with the Football Association (FA).`\
 https://nytimes.com/athletic/5844523/2024/10/15/thomas-tuchel-england-manager/
