@@ -1,3 +1,7 @@
+**A Climate Resistant Community Passed Two Hurricane Tests**\
+`On the west coast of Florida, a town built to weather hurricanes hosted more than 2,000 people during Hurricane Milton. Could communities like this help shape Florida’s future?`\
+https://nytimes.com/2024/10/15/climate/florida-climate-resilience-babcock-ranch.html
+
 **A Climate Resistant Community Passed Two Hurricane Test**\
 `On the west coast of Florida, a town built to weather hurricanes hosted more than 2,000 people during Hurricane Milton. Could communities like this help shape Florida’s future?`\
 https://nytimes.com/2024/10/15/climate/florida-climate-resilience-babcock-ranch.html
