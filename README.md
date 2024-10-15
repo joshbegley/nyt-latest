@@ -1,3 +1,7 @@
+**Vikings acquire Cam Akers from Texans, reuniting RB with O'Connell**\
+`This is Akers' second time with the Vikings in the last two years. Minnesota explored re-signing him in the spring before going to Houston.`\
+https://nytimes.com/athletic/5846194/2024/10/15/vikings-rb-cam-akers-texans-trade/
+
 **Even Charlamagne Can’t Push Harris Off Message**\
 `It may not be great radio, but Harris made a solid case for why she’d be better for Black America.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/charlamagne-harris-interview-detroit
@@ -6,7 +10,7 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/charlamagne-harris-intervie
 `Thomas injured his foot on the Giants’ sole touchdown drive in Sunday’s loss to the Cincinnati Bengals.`\
 https://nytimes.com/athletic/5846159/2024/10/15/andrew-thomas-giants-foot-injury-update/
 
-**‘Smart’ or Criminal? Trump’s Changing Views on Talking to Foreign Leaders**\
+**‘Smart’ or Criminal? Trump’s Changing Views on Talking to Foreign Leaders.**\
 `The former president, who once pushed to prosecute a former secretary of state for talking with foreign officials, said that it would be “a good thing” for himself to have secretly kept in touch with President Vladimir V. Putin of Russia — if he did.`\
 https://nytimes.com/2024/10/15/us/politics/trump-putin-communication.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/us/carpool-lane-violation-skeleton.html
 **Washington Post C.E.O. Elevates Deal-Making to a Top Priority**\
 `Will Lewis has said he has a mandate from the paper’s owner, Jeff Bezos, to grow the business, including through acquisitions.`\
 https://nytimes.com/2024/10/15/business/media/washington-post-dealmaking-will-lewis.html
-
-**Tuchel's coaching playbook: Tennis balls, training 'problems' - and lots of conflict**\
-`The German has taken on one of the biggest challenges in football, but history suggests he will not be daunted`\
-https://nytimes.com/athletic/5845637/2024/10/15/thomas-tuchel-england-coach-profile/
 
