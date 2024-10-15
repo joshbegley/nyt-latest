@@ -1,3 +1,7 @@
+**College football Week 8 odds, schedule: Texas favored vs. Georgia in heavyweight matchup**\
+`Georgia at Texas is the clear marquee game of Week 8 in college football, but there are a few other games to keep an eye on.`\
+https://nytimes.com/athletic/5845087/2024/10/15/college-football-week-8-odds-schedule-texas-georgia/
+
 **Local Officials Cannot Refuse to Certify Election Results, Georgia Judge Rules**\
 `The ruling cuts at the heart of a key argument made by right-wing activists since the 2020 election, when Donald Trump sought to disrupt the certification process as part of his bid to subvert the results.`\
 https://nytimes.com/2024/10/15/us/elections/georgia-election-ruling.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5845128/2024/10/15/mlb-playoffs-mets-dodgers-yankee
 **Kraft suggests he should've given Belichick more 'checks and balances'**\
 `New England and Belichick parted ways after the 2023 season.`\
 https://nytimes.com/athletic/5845050/2024/10/15/patriots-bill-belichick-robert-kraft-2/
-
-**The Latest Hot Item on Wedding Registries? A New House.**\
-`More couples are asking their wedding guests to help them purchase a home, eschewing traditional gifts like small appliances and linens.`\
-https://nytimes.com/2024/10/15/realestate/wedding-registry-home-buying.html
 
