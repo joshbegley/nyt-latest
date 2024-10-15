@@ -1,6 +1,6 @@
 **Trump Says It Would Be a ‘Smart Thing’ if He Had Talked to Putin**\
 `Donald J. Trump said he wouldn’t comment on whether he had conversations with the Russian president since leaving office. But he added, “If I have a relationship with people, that’s a good thing, not a bad thing.”`\
-https://nytimes.com/live/2024/10/15/us/harris-trump-election/trump-bloomberg-putin
+https://nytimes.com/2024/10/15/us/politics/trump-bloomberg-putin.html
 
 **Eric Adams’s Campaign Donations Plunge After Federal Indictment**\
 `Donations to the New York City mayor’s re-election campaign ceased after a five-count federal corruption indictment against him was unsealed last month.`\

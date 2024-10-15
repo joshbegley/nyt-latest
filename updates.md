@@ -1,5 +1,9 @@
 **Trump Says It Would Be a ‘Smart Thing’ if He Had Talked to Putin**\
 `Donald J. Trump said he wouldn’t comment on whether he had conversations with the Russian president since leaving office. But he added, “If I have a relationship with people, that’s a good thing, not a bad thing.”`\
+https://nytimes.com/2024/10/15/us/politics/trump-bloomberg-putin.html
+
+**Trump Says It Would Be a ‘Smart Thing’ if He Had Talked to Putin**\
+`Donald J. Trump said he wouldn’t comment on whether he had conversations with the Russian president since leaving office. But he added, “If I have a relationship with people, that’s a good thing, not a bad thing.”`\
 https://nytimes.com/live/2024/10/15/us/harris-trump-election/trump-bloomberg-putin
 
 **Eric Adams’s Campaign Donations Plunge After Federal Indictment**\
