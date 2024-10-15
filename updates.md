@@ -1,3 +1,7 @@
+**Conversations and insights about the moment.**\
+``\
+https://nytimes.com/live/2024/10/15/opinion/thepoint
+
 **A Lawyer Seeking Sean Combs Accusers via Hotline Files 6 Lawsuits**\
 `The Houston lawyer Tony Buzbee filed suits in New York with new allegations of rape and sexual assault from 1995 to 2021. Mr. Combs denied the accusations.`\
 https://nytimes.com/2024/10/15/arts/music/sean-combs-diddy-tony-buzbee-lawsuits.html
