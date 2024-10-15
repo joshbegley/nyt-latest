@@ -1,3 +1,23 @@
+**Georgia Officials Report Record Turnout on First Day of Early Voting**\
+`Democrats and Republicans alike have crusaded for residents to get to the polls early as Donald Trump and Kamala Harris aggressively seek the state’s 16 electoral votes.`\
+https://nytimes.com/2024/10/15/us/politics/georgia-early-voting.html
+
+**Meet the Election Denier Forecasting the 2024 Race**\
+`Seth Keshel has become a darling among election deniers by factoring widespread voter fraud — the existence of which has been widely debunked — into his election predictions.`\
+https://nytimes.com/2024/10/15/technology/seth-keshel-2024-election-trump.html
+
+**Trump Signals Skepticism of Google Breakup, Citing Competition With China**\
+`The former president also said he would do “something” to make Google “more fair” if he regained the presidency.`\
+https://nytimes.com/2024/10/15/us/politics/trump-google-monopoly-china.html
+
+**Wednesday Briefing: U.S. Warns it May Cut Israel’s Military Aid**\
+`Plus, an investigation into China’s panda breeding program.`\
+https://nytimes.com/2024/10/15/briefing/israel-aid-trump-security-canada-india.html
+
+**Tom Brady, Richard Seymour approved as part-owners of Raiders**\
+`Mark Davis remains the Raiders’ controlling owner.`\
+https://nytimes.com/athletic/5845866/2024/10/15/tom-brady-las-vegas-raiders-sale-approved/
+
 **There Is No Crying in Baseball (Except Over This Hat)**\
 `Mets and Yankees fans seem to agree: Mayor Eric Adams’s both-sides baseball cap struck out.`\
 https://nytimes.com/2024/10/15/style/mayor-adams-mets-yankees-hat.html
@@ -13,24 +33,4 @@ https://nytimes.com/2024/10/15/style/diwali-party-pierre-hotel.html
 **Learning With: ‘Test Your Focus: Can You Spend 10 Minutes With One Painting?’**\
 `Are you easily distracted? If so, you’re in luck! This lesson will help you practice your ability to pay attention.`\
 https://nytimes.com/2024/10/15/learning/lesson-plans/learning-with-test-your-focus-can-you-spend-10-minutes-with-one-painting.html
-
-**Survivors of Maine Mass Shooting Take Step Toward Suing the Army**\
-`A group of survivors and relatives of victims said the military failed to respond to warning signs from the gunman, an Army Reserve grenade instructor, ahead of the shooting.`\
-https://nytimes.com/2024/10/15/us/maine-mass-shooting-survivors-lawsuit-army.html
-
-**Nearly 100 People Are Still Missing in North Carolina After Hurricane Helene**\
-`Search and rescue teams are still looking for the missing, officials said, with 95 deaths already attributed to the storm’s wrath in the state.`\
-https://nytimes.com/2024/10/15/us/hurricane-helene-north-carolina-missing-people.html
-
-**Amari Cooper trade grades: Bills load up; Browns try to make best of bad situation**\
-`This has the look of a win-win deal. Buffalo gives Josh Allen the playmaker he needs, while Cleveland maximized its return for an aging WR. `\
-https://nytimes.com/athletic/5845561/2024/10/15/amari-cooper-trade-grades-bills-browns/
-
-**Canadian Officials Testify on Foreign Meddling as Tensions with India Rise**\
-`Prime Minister Justin Trudeau’s top aides spoke at a public hearing a day after Canada accused Indian diplomats of orchestrating killings and extortions in the country.`\
-https://nytimes.com/2024/10/15/world/americas/trudeau-aides-india-foreign-interference.html
-
-**Guardians replace Alex Cobb on ALCS roster with Ben Lively**\
-`Cobb dealt with an acute lower back strain during his Game 1 start at Yankee Stadium.`\
-https://nytimes.com/athletic/5845858/2024/10/15/guardians-alcs-roster-change-alex-cobb/
 
