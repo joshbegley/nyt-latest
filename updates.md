@@ -1,3 +1,7 @@
+**Super Bowl 2025 odds: 49ers and Ravens rising, plus six dark-horse contenders**\
+`Breaking down the Super Bowl odds before Week 7 games, with favorites and dark horse contenders. `\
+https://nytimes.com/athletic/5845256/2024/10/15/super-bowl-odds-49ers-ravens-plus-dark-horse-contenders/
+
 **A Very English Sporting Scandal: Did a Steel Conker Taint a Title?**\
 `Conkers are buckeye chestnuts that are part of an annual championship. This year, there are accusations of cheating. And it’s all very serious.`\
 https://nytimes.com/2024/10/15/world/england-conkers-cheating.html
