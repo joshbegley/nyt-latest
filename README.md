@@ -1,3 +1,7 @@
+**The Defendants in France’s Rape Trial Are Telling Us Something Horrifying**\
+`The past few weeks have been a brutal reminder that ignorance or the claiming of it can be a convenient tool of the powerful.`\
+https://nytimes.com/2024/10/15/opinion/france-rape-trial-pelicot.html
+
 **Ten Hag returns to Manchester United with plan for Brentford and scrutiny on his position**\
 `Erik ten Hag is back working on how to stop Brentford after a week in which scrutiny over his position filled the silence from the club`\
 https://nytimes.com/athletic/5843260/2024/10/15/ten-hag-returns-manchester-united/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5844044/2024/10/15/oregon-ohio-state-final-play-dan
 **Allyson and Chantelle Swaby: Sisters, team-mates and agents of change for Jamaica**\
 `The Swabys explain what it's like to make history with Jamaica while fighting for a brighter future - and doing it all alongside a sibling`\
 https://nytimes.com/athletic/5806843/2024/10/15/jamaica-allyson-chantelle-swaby-interview/
-
-**Hiring Guardiola would betray the Southgate era and risk turning England into just another club**\
-`Appointing a coach like Guardiola would transform the England team into just another club`\
-https://nytimes.com/athletic/5840772/2024/10/15/england-pep-guardiola-gareth-southgate/
 
