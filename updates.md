@@ -1,3 +1,7 @@
+**The Defendants in France’s Rape Trial Are Telling Us Something Horrifying**\
+`The past few weeks have been a brutal reminder that ignorance or the claiming of it can be a convenient tool of the powerful.`\
+https://nytimes.com/2024/10/15/opinion/france-rape-trial-pelicot.html
+
 **Ten Hag returns to Manchester United with plan for Brentford and scrutiny on his position**\
 `Erik ten Hag is back working on how to stop Brentford after a week in which scrutiny over his position filled the silence from the club`\
 https://nytimes.com/athletic/5843260/2024/10/15/ten-hag-returns-manchester-united/
