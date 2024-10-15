@@ -1,3 +1,7 @@
+**The Windup: Yankees pounce as Mets rebound**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5845128/2024/10/15/mlb-playoffs-mets-dodgers-yankees-guardians-the-windup/
+
 **Kraft suggests he should've given Belichick more 'checks and balances'**\
 `New England and Belichick parted ways after the 2023 season.`\
 https://nytimes.com/athletic/5845050/2024/10/15/patriots-bill-belichick-robert-kraft-2/

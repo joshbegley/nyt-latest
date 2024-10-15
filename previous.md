@@ -1,3 +1,7 @@
+**The Windup: Yankees pounce as Mets rebound**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5845128/2024/10/15/mlb-playoffs-mets-dodgers-yankees-guardians-the-windup/
+
 **Kraft suggests he should've given Belichick more 'checks and balances'**\
 `New England and Belichick parted ways after the 2023 season.`\
 https://nytimes.com/athletic/5845050/2024/10/15/patriots-bill-belichick-robert-kraft-2/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5843923/2024/10/15/bucks-gary-trent-jr-giannis-dami
 **Chinese Automakers Display Force at Paris Auto Show**\
 `Weeks after Europe imposed additional tariffs on electric vehicles made in China, the country’s car companies were defiant at France’s leading auto event.`\
 https://nytimes.com/2024/10/15/business/china-electric-vehicles-paris-auto-show.html
-
-**After the Steelers missed out on Davante Adams, where do they go from here at WR?**\
-`For the second time, the Steelers have struck out in pursuit of a star-level wide receiver. What are their options now?`\
-https://nytimes.com/athletic/5844062/2024/10/15/davante-adams-steelers-trade-deadline/
 
