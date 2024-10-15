@@ -1,3 +1,11 @@
+**INEOS ending Sir Alex Ferguson's ambassadorial role saves Man Utd money but also trims the club's soul**\
+`When cost cutting reaches the point where you’re cutting the man who invented the modern Man Utd, you have to ask if it is really worth it`\
+https://nytimes.com/athletic/5842244/2024/10/15/ineos-sir-alex-ferguson-manchester-united-soul/
+
+**The Battle Over Who Controls the Internet**\
+`We explore an important shift in the yearslong struggle.`\
+https://nytimes.com/2024/10/15/briefing/musk-social-media-regulation.html
+
 **K-Pop Star Testifies in South Korean Parliament About Bullying at Work**\
 `The appearance by Hanni, a member of NewJeans, was eagerly awaited, but she offered few revelations about her famously regimented industry.`\
 https://nytimes.com/2024/10/15/world/asia/newjeans-hanni-bullying-testimony.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5843074/2024/10/15/nfl-qb-stock-report-rankings-bro
 **Victor Wembanyama, Jonathan Kuminga and more players primed to level up for fantasy basketball 2024-25**\
 `Eric Wong highlights 19 players who are poised to raise their game to another level in fantasy basketball 2024-25.`\
 https://nytimes.com/athletic/5843495/2024/10/15/fantasy-basketball-risers-wemby-kuminga/
-
-**Inside Blackhawks' plan to get Korchinski back on track: 'I want to get better'**\
-`Korchinski, who played in the NHL out of necessity last season, is working to improve while playing in a more comfortable AHL environment.`\
-https://nytimes.com/athletic/5842883/2024/10/15/blackhawks-kevin-korchinski/
-
-**Inside the agonizing decisions that shape NHL franchises: Excerpt**\
-`When Kyle Dubas faced a tough decision in Toronto, he once turned to Brian MacLellan for advice. This excerpt details what happened next.`\
-https://nytimes.com/athletic/5837959/2024/10/15/inside-the-agonizing-decisions-that-shape-nhl-franchises-excerpt/
 
