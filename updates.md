@@ -1,3 +1,7 @@
+**Josh Norris and the Senators core needed an offensive game like the win vs. Kings**\
+`The Senators and Kings combined for 15 goals in an 8-7 OT victory for Ottawa. Josh Norris contributed three points in the win. `\
+https://nytimes.com/athletic/5843283/2024/10/14/norris-stutzle-tkachuk-senators-kings/
+
 **2 Men Posing as Utility Workers Are Arrested in Murder of 72-Year-Old**\
 `The men, who said they were looking for a gas leak, killed the man in his basement in suburban Detroit and bound his wife with duct tape before taking her watch and phone, prosecutors said.`\
 https://nytimes.com/2024/10/14/us/utility-workers-posing-murder.html
