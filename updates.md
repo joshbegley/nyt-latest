@@ -1,3 +1,7 @@
+**Yankees' Rodón delivers gem in Game 1 win over Guardians: Takeaways**\
+`The Yankees struck first in the ALCS, using a familiar formula in a 5-2 victory over the Guardians in the Bronx.`\
+https://nytimes.com/athletic/5843913/2024/10/14/guardians-yankees-alcs-game-1-takeaways/
+
 **Harris Uses Trump’s Own Words to Attack Him as ‘Unhinged’: ‘Roll the Clip’**\
 `At a rally in Pennsylvania, in a swing county in a swing state, Vice President Kamala Harris played clips of Donald Trump describing critics as an “enemy from within,” drawing jeers from her crowd.`\
 https://nytimes.com/2024/10/14/us/politics/harris-trump-enemy-within.html
