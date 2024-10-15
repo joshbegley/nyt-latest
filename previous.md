@@ -1,3 +1,11 @@
+**A Lawyer Seeking Sean Combs Accusers via Hotline Files 6 Lawsuits**\
+`The Houston lawyer Tony Buzbee filed suits in New York with new allegations of rape and sexual assault from 1995 to 2021. Mr. Combs denied the accusations.`\
+https://nytimes.com/2024/10/15/arts/music/sean-combs-diddy-tony-buzbee-lawsuits.html
+
+**Angel City disputes part of NWSL sanctions for salary cap violations**\
+`The team said, based on its understanding of the rules, that childcare payments do not count against the salary cap.`\
+https://nytimes.com/athletic/5845235/2024/10/15/angel-city-nwsl-santions-salary-cap/
+
 **City Ballet Ends Its Season With a Prayer and a Romantic Romp**\
 `The fall season wrapped up with an excellent program featuring works by Balanchine and Ratmansky, as well as a celebration of Justin Peck’s 10th year as resident choreographer.`\
 https://nytimes.com/2024/10/15/arts/dance/new-york-city-ballet-mozartiana-mira-nadon.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5844999/2024/10/15/jerry-jones-the-fan-critics-cowb
 **What will NASCAR look like in five years? Could we see a splinter series? Mailbag**\
 `With NASCAR facing a lawsuit from Michael Jordan's 23XI Racing as well as Front Row Motorsports, it's time for our latest mailbag.`\
 https://nytimes.com/athletic/5844539/2024/10/15/nascar-michael-jordan-23xi-lawsuit-mailbag/
-
-**Clemente Bar Opens Above Eleven Madison Park With an Artistic Flourish**\
-`Bodai offers a Chinese vegetarian tasting menu, KF Seetoh’s Hainan Jones brings hawker food to DeKalb Market Hall and more restaurant news.`\
-https://nytimes.com/2024/10/15/dining/nyc-restaurant-news.html
-
-**Trump Media Stock Surges, Nearly Tripling in Matter of Weeks**\
-`The sharp rise in the share price of the parent of Truth Social has added about $2 billion to the net worth of former President Donald J. Trump.`\
-https://nytimes.com/2024/10/15/business/trump-media-stock-price.html
 
