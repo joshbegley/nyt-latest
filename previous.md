@@ -1,3 +1,7 @@
+**Jets acquire Davante Adams from Raiders: Sources**\
+`Adams doesn't fix all the Jets' problems, but reuniting him with Rodgers lifts the offense's potential.`\
+https://nytimes.com/athletic/5825297/2024/10/15/davante-adams-jets-raiders-trade-aaron-rodgers/
+
 **15-day stadium closure recommended after Atletico crowd trouble**\
 `A Spanish sporting government body has recommended Atletico Madrid’s stadium be closed for 15 days over the crowd trouble that marred last month’s La Liga meeting with Real Madrid.`\
 https://nytimes.com/athletic/5844777/2024/10/15/atletico-madrid-stadium-closure/
