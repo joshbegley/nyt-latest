@@ -1,3 +1,11 @@
+**Trump Says ’Growth’ and Tariffs Will Pay for $15 Trillion Agenda**\
+`In a combative interview, the former president hinted at even higher tariffs as an economic magic bullet.`\
+https://nytimes.com/2024/10/15/us/politics/trump-tariffs-economy-economy-club-chicago.html
+
+**Hollywood and Bollywood Kickoff Diwali in New York**\
+`Hasan Minhaj, Mira Nair and Nora Fatehi joined business and entertainment leaders of South Asian descent at the Pierre hotel in their most elegant attire.`\
+https://nytimes.com/2024/10/15/style/diwali-party-pierre-hotel.html
+
 **Learning With: ‘Test Your Focus: Can You Spend 10 Minutes With One Painting?’**\
 `Are you easily distracted? If so, you’re in luck! This lesson will help you practice your ability to pay attention.`\
 https://nytimes.com/2024/10/15/learning/lesson-plans/learning-with-test-your-focus-can-you-spend-10-minutes-with-one-painting.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5845858/2024/10/15/guardians-alcs-roster-change-ale
 **NFL best bets Week 7: Patrick Mahomes is an underdog?!**\
 `Austin Mock has a pair of plays on Chiefs at 49ers among his best bets for NFL Week 7.`\
 https://nytimes.com/athletic/5845767/2024/10/15/nfl-best-bets-week-7-chiefs-seahawks/
-
-**U.S. Warns Israel of Military Aid Cut if Gazans Don’t Get More Supplies**\
-`The demand from Israel’s closest ally came amid reports that the humanitarian catastrophe in the Gaza Strip has grown still worse in recent weeks.`\
-https://nytimes.com/2024/10/15/world/middleeast/israel-gaza-us-military-aid.html
-
-**What now, Phillies? Reading between the lines on how they'll tweak roster, offensive approach**\
-`Dave Dombrowski talked about maintaining the status quo. So where can the Phillies upgrade this win-now roster? Reading between the lines. `\
-https://nytimes.com/athletic/5845678/2024/10/15/phillies-roster-offense-changes-dombrowski/
 
