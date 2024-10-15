@@ -1,3 +1,23 @@
+**Oil Prices Fall After Israel Reportedly Says It Won’t Target Iran’s Nuclear or Oil Facilities**\
+`Brent crude, the international benchmark, was trading at below $74 a barrel on Tuesday, a drop from the $80 range.`\
+https://nytimes.com/2024/10/15/world/middleeast/oil-prices-israel-iran-attacks.html
+
+**Could the Lone Fed Dissenter Be in Line for a Powerful Role if Trump Wins?**\
+`Michelle Bowman, a Trump-appointed Fed official recently cited by JD Vance, has been gaining prominence.`\
+https://nytimes.com/2024/10/15/business/economy/michelle-bowman-fed-trump.html
+
+**As Black Voters Hesitate on Harris, Democrats Race to Win Them Over**\
+`With a frenzy of activity, the vice president and her allies are trying to strengthen her support with Black voters, whose growing alienation the party’s leaders had not confronted directly until now.`\
+https://nytimes.com/2024/10/15/us/politics/harris-black-voters-trump.html
+
+**Jerry Jones snaps back at critics over Sunday's blowout loss**\
+`Dallas Cowboys owner Jerry Jones was fired up Tuesday during an appearance on 105.`\
+https://nytimes.com/athletic/5844999/2024/10/15/jerry-jones-the-fan-critics-cowboys/
+
+**What will NASCAR look like in five years? Could we see a splinter series? Mailbag**\
+`With NASCAR facing a lawsuit from Michael Jordan's 23XI Racing as well as Front Row Motorsports, it's time for our latest mailbag.`\
+https://nytimes.com/athletic/5844539/2024/10/15/nascar-michael-jordan-23xi-lawsuit-mailbag/
+
 **Clemente Bar Opens Above Eleven Madison Park With an Artistic Flourish**\
 `Bodai offers a Chinese vegetarian tasting menu, KF Seetoh’s Hainan Jones brings hawker food to DeKalb Market Hall and more restaurant news.`\
 https://nytimes.com/2024/10/15/dining/nyc-restaurant-news.html
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/5844796/2024/10/15/jonas-eidevall-arsenal-resignati
 **PWHL releases full 90-game schedule for 2024-25 season**\
 `The PWHL will begin its second season Nov. 30 with a game between Toronto and Boston at Coca-Cola Coliseum.`\
 https://nytimes.com/athletic/5844981/2024/10/15/pwhl-2024-25-season-schedule/
-
-**College football Week 8 odds, schedule: Texas favored vs. Georgia in heavyweight matchup**\
-`Georgia at Texas is the clear marquee game of Week 8 in college football, but there are a few other games to keep an eye on.`\
-https://nytimes.com/athletic/5845087/2024/10/15/college-football-week-8-odds-schedule-texas-georgia/
-
-**Local Officials Cannot Refuse to Certify Election Results, Georgia Judge Rules**\
-`The ruling cuts at the heart of a key argument made by right-wing activists since the 2020 election, when Donald Trump sought to disrupt the certification process as part of his bid to subvert the results.`\
-https://nytimes.com/2024/10/15/us/elections/georgia-election-ruling.html
-
-**How Jets trade for Davante Adams impacts NFL Week 7, Super Bowl betting odds**\
-`News of the Jets' acquisition of Davante Adams shifted the teams' odds to win the Super Bowl and their Week 7 primetime game.`\
-https://nytimes.com/athletic/5845044/2024/10/15/davante-adams-trade-jets-odds-nfl-week-7-super-bowl/
-
-**Nyoni signs first pro contract at Liverpool**\
-`Liverpool midfielder Trey Nyoni has signed his first professional contract.`\
-https://nytimes.com/athletic/5845111/2024/10/15/trey-nyoni-liverpool-contract/
-
-**What's the biggest broadcast call of the season, who has the best booth chemistry?**\
-`The broadcast crews in charge of narrating college football's chaos for millions watching from home have risen to the occasion.`\
-https://nytimes.com/athletic/5844993/2024/10/15/college-football-broadcasts-midseason-espn-nbc-abc-cbs-fox/
 
