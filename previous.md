@@ -1,3 +1,7 @@
+**Until Saturday: Kirby Smart’s viral moment, plus Ashton Jeanty is an all-timer**\
+`Welcome to Until Saturday, the five-star college football newsletter: Our latest college football beef ... or is it?`\
+https://nytimes.com/athletic/5843400/2024/10/15/kirby-smart-michael-van-buren-ashton-jeanty-until-saturday/
+
 **Liberty-Lynx Game 2 draws largest WNBA Finals audience in 23 years**\
 `The game averaged 1.34 million viewers on ABC, marking it the most-viewed WNBA Finals game ever to air on the network.`\
 https://nytimes.com/athletic/5845578/2024/10/15/wnba-finals-viewership-game-2/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/us/abortion-could-decide-control-of-state-supreme
 **Ted Cruz and Colin Allred to Face Off in Texas Senate Debate**\
 `The candidates will meet in what will most likely be their only debate matchup on Tuesday night, as polls show Mr. Cruz with a slight lead.`\
 https://nytimes.com/2024/10/15/us/politics/cruz-allred-texas-senate-debate.html
-
-**Browns trade WR Amari Cooper to Bills**\
-`Cooper is in his third season with Cleveland and was the team leader in receptions (24), yards (250) and receiving touchdowns.`\
-https://nytimes.com/athletic/5845532/2024/10/15/amari-cooper-trade-bills-browns/
 
