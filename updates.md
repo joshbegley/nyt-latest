@@ -1,3 +1,7 @@
+**Mirtle: The Leafs' Liljegren vs. Timmins debate highlights trouble with depth defencemen**\
+`Healthy scratched through the first three games after losing his job to Timmins, Liljegren has become the Leafs' latest polarizing player.`\
+https://nytimes.com/athletic/5844914/2024/10/15/maple-leafs-liljegren-timmins-defense/
+
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/10/15/opinion/thepoint
