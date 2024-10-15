@@ -1,3 +1,11 @@
+**Meet the fan photographers signed up by Arsenal, players and the Premier League**\
+`Fan photography has evolved from taking pictures at a game, to being hired for official club images and going on holiday with players`\
+https://nytimes.com/athletic/5755284/2024/10/15/arsenal-photography-rice-smith-rowe/
+
+**Tuesday Briefing**\
+`Devastating Israeli strikes in Gaza.`\
+https://nytimes.com/2024/10/15/briefing/israel-strikes-gaza-election-canada-india.html
+
 **Fantasy football Week 7 waiver wire: Streamers, Kimani Vidal, Romeo Doubs and more**\
 `Jake Ciely runs through the best that this week's waiver wire has to offer, including redeemed Green Bay receiver Romeo Doubs.`\
 https://nytimes.com/athletic/5840917/2024/10/15/fantasy-football-week-7-waiver-wire-streamers-kimani-vidal-romeo-doubs-and-more/
