@@ -1,3 +1,7 @@
+**Hollywood and Bollywood Kick Off Diwali in New York**\
+`Hasan Minhaj, Mira Nair and Nora Fatehi joined business and entertainment leaders of South Asian descent at the Pierre hotel in their most elegant attire.`\
+https://nytimes.com/2024/10/15/style/diwali-party-pierre-hotel.html
+
 **There Is No Crying in Baseball (Except Over This Hat)**\
 `Mets and Yankees fans seem to agree: Mayor Eric Adams’s both-sides baseball cap struck out.`\
 https://nytimes.com/2024/10/15/style/mayor-adams-mets-yankees-hat.html
