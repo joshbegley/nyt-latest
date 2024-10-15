@@ -1,3 +1,7 @@
+**Arshdeep Bains' opportunity, good news on Tyler Myers and more: Canucks notebook**\
+`Plus some early season storylines that may influence the course of this season or turn out to be noise after two losses to start the year.`\
+https://nytimes.com/athletic/5844170/2024/10/15/canucks-arshdeep-bains-tyler-myers/
+
 **Emerson: Georgia is still searching, on offense, defense and off the field**\
 `Saturday's game at Texas will tell us a lot about this Georgia team and what it can be the rest of the season.`\
 https://nytimes.com/athletic/5844513/2024/10/15/georgia-football-midseason-texas-kirby-smart/
