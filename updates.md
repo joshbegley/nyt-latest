@@ -1,3 +1,7 @@
+**Has Trump Lost the Plot?**\
+`There have been too many recent times he has wandered away from his thoughts.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-cognitive-decline
+
 **MLB Gold Glove Award finalists announced**\
 `Dansby Swanson, Matt Chapman ... and Juan Soto? The Gold Glove Award finalists are here.`\
 https://nytimes.com/athletic/5845733/2024/10/15/mlb-gold-glove-award-finalists/
