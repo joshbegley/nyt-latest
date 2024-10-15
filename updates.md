@@ -1,3 +1,7 @@
+**‘Thinking is overrated’: A fired coach and a blockbuster trade, as Woody Johnson’s Jets breed chaos**\
+`It's been a whirlwind week for the Jets, who made big moves in a season falling short of expectations.`\
+https://nytimes.com/athletic/5846096/2024/10/15/jets-davante-adams-trade-woody-johnson-comments/
+
 **That Plastic Skeleton Can’t Be Your Plus 1, Police Tell Car Pool Lane Users**\
 `A California Highway Patrol officer in the San Jose area recently cited a driver who used a Halloween-themed ruse to drive in a high-occupancy-vehicle lane.`\
 https://nytimes.com/2024/10/15/us/carpool-lane-violation-skeleton.html

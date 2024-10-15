@@ -1,3 +1,7 @@
+**‘Thinking is overrated’: A fired coach and a blockbuster trade, as Woody Johnson’s Jets breed chaos**\
+`It's been a whirlwind week for the Jets, who made big moves in a season falling short of expectations.`\
+https://nytimes.com/athletic/5846096/2024/10/15/jets-davante-adams-trade-woody-johnson-comments/
+
 **That Plastic Skeleton Can’t Be Your Plus 1, Police Tell Car Pool Lane Users**\
 `A California Highway Patrol officer in the San Jose area recently cited a driver who used a Halloween-themed ruse to drive in a high-occupancy-vehicle lane.`\
 https://nytimes.com/2024/10/15/us/carpool-lane-violation-skeleton.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5845851/2024/10/15/49ers-mailbag-special-teams-dj-j
 **Israel’s high court orders the state to explain its system for medical evacuations from Gaza.**\
 `By Ephrat Livni and Johnatan Reiss`\
 https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/israel-gaza-medical-evacuations
-
-**Harris Is Trying to Retain Black Voters’ Support**\
-`Also, the U.S. gave Israel an ultimatum on Gaza aid. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/10/15/briefing/harris-black-voters-israel-aid-gaza-violin-prodigy.html
 
