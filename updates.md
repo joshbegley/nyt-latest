@@ -1,3 +1,7 @@
+**The Night Sky**\
+`What is the coolest thing you have seen in the night sky?`\
+https://nytimes.com/2024/10/15/learning/the-night-sky.html
+
 **Fanfare for a Common Building**\
 `An apartment house on the Upper West Side turns 100.`\
 https://nytimes.com/2024/10/15/nyregion/fanfare-for-a-common-building.html
