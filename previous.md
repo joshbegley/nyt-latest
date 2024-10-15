@@ -1,3 +1,7 @@
+**South Carolina tops AP Top 25 preseason women's hoops poll**\
+`South Carolina compiled a 38-0 record and beat Iowa in the national championship last season.`\
+https://nytimes.com/athletic/5844677/2024/10/15/ap-women-college-basketball-top-25-preseason/
+
 **Phillies extend manager Rob Thomson's contract through 2026**\
 `Thomson, whose contract was set to expire following the 2025 season, now has a deal through 2026. His coaching staff will return next year. `\
 https://nytimes.com/athletic/5845325/2024/10/15/rob-thomson-phillies-contract-extension/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/arts/music/sean-combs-diddy-tony-buzbee-lawsuits.
 **Angel City disputes part of NWSL sanctions for salary cap violations**\
 `The team said, based on its understanding of the rules, that childcare payments do not count against the salary cap.`\
 https://nytimes.com/athletic/5845235/2024/10/15/angel-city-nwsl-santions-salary-cap/
-
-**City Ballet Ends Its Season With a Prayer and a Romantic Romp**\
-`The fall season wrapped up with an excellent program featuring works by Balanchine and Ratmansky, as well as a celebration of Justin Peck’s 10th year as resident choreographer.`\
-https://nytimes.com/2024/10/15/arts/dance/new-york-city-ballet-mozartiana-mira-nadon.html
 
