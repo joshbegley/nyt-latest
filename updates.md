@@ -1,3 +1,7 @@
+**Israel’s high court orders the state to explain its system for medical evacuations from Gaza.**\
+`By Ephrat Livni and Johnatan Reiss`\
+https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/israel-gaza-medical-evacuations
+
 **Harris Is Trying to Retain Black Voters’ Support**\
 `Also, the U.S. gave Israel an ultimatum on Gaza aid. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/10/15/briefing/harris-black-voters-israel-aid-gaza-violin-prodigy.html

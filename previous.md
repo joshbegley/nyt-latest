@@ -1,3 +1,7 @@
+**Israel’s high court orders the state to explain its system for medical evacuations from Gaza.**\
+`By Ephrat Livni and Johnatan Reiss`\
+https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/israel-gaza-medical-evacuations
+
 **Harris Is Trying to Retain Black Voters’ Support**\
 `Also, the U.S. gave Israel an ultimatum on Gaza aid. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/10/15/briefing/harris-black-voters-israel-aid-gaza-violin-prodigy.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/us/politics/georgia-early-voting.html
 **Meet the Election Denier Forecasting the 2024 Race**\
 `Seth Keshel has become a darling among election deniers by factoring widespread voter fraud — the existence of which has been widely debunked — into his election predictions.`\
 https://nytimes.com/2024/10/15/technology/seth-keshel-2024-election-trump.html
-
-**Trump Signals Skepticism of Google Breakup, Citing Competition With China**\
-`The former president also said he would do “something” to make Google “more fair” if he regained the presidency.`\
-https://nytimes.com/2024/10/15/us/politics/trump-google-monopoly-china.html
 
