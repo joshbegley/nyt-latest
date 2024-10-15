@@ -1,3 +1,7 @@
+**Jerry Jones snaps back at critics over Sunday's blowout loss**\
+`The Cowboys (3-3) are currently third in the NFC East.`\
+https://nytimes.com/athletic/5844999/2024/10/15/jerry-jones-the-fan-critics-cowboys/
+
 **Oil Prices Fall After Israel Reportedly Says It Won’t Target Iran’s Nuclear or Oil Facilities**\
 `Brent crude, the international benchmark, was trading at below $74 a barrel on Tuesday, a drop from the $80 range.`\
 https://nytimes.com/2024/10/15/world/middleeast/oil-prices-israel-iran-attacks.html

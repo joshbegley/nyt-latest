@@ -11,7 +11,7 @@ https://nytimes.com/2024/10/15/business/economy/michelle-bowman-fed-trump.html
 https://nytimes.com/2024/10/15/us/politics/harris-black-voters-trump.html
 
 **Jerry Jones snaps back at critics over Sunday's blowout loss**\
-`Dallas Cowboys owner Jerry Jones was fired up Tuesday during an appearance on 105.`\
+`The Cowboys (3-3) are currently third in the NFC East.`\
 https://nytimes.com/athletic/5844999/2024/10/15/jerry-jones-the-fan-critics-cowboys/
 
 **What will NASCAR look like in five years? Could we see a splinter series? Mailbag**\
