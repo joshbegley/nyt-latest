@@ -1,3 +1,7 @@
+**Rodgers connects with Lazard on fourth Hail Mary of QB's career**\
+`The TD brought New York within three points of Buffalo as the two battle for the grip on the AFC East.`\
+https://nytimes.com/athletic/5843885/2024/10/14/aaron-rodgers-allen-lazard-jets-bills-hail-mary/
+
 **Dodgers' pitching plans falter, offense squanders chances as Mets even NLCS**\
 `The Dodgers' top five hitters combined to go 0-for-15 and Landon Knack's rough outing derailed the team's pitching plans.`\
 https://nytimes.com/athletic/5843853/2024/10/14/dodgers-mets-nlcs-split/
@@ -30,8 +34,4 @@ https://nytimes.com/2024/10/14/pageoneplus/corrections-oct-15-2024.html
 **Tyson Foerster continues to emerge as one of Flyers' most vital forwards**\
 `The center has earned more opportunities and more trust from his coach despite being just 22 years old.`\
 https://nytimes.com/athletic/5843716/2024/10/14/flyers-tyson-foerster-breakout-tortorella/
-
-**2 Men Accused of Killing 72-Year-Old While Posing as Utility Workers**\
-`Two men who said they were looking for a gas leak killed the man in his basement in suburban Detroit and bound his wife with duct tape before taking her watch and phone, prosecutors said.`\
-https://nytimes.com/2024/10/14/us/utility-workers-posing-murder.html
 
