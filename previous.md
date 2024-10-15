@@ -1,3 +1,7 @@
+**Mark Robinson Sues CNN Over Report Linking Him to Lewd Comments on Porn Site**\
+`Mr. Robinson’s campaign for governor of North Carolina has been in crisis since the report, which the lawsuit calls “recklessly false.”`\
+https://nytimes.com/2024/10/15/us/mark-robinson-cnn-porn-lawsuit.html
+
 **There’s No Hot Wing Like a Korean American Atlanta Hot Wing**\
 `Smaller, lighter and sharper than Buffalo wings, this interpretation of a classic has faded away over time. But you can make it at home.`\
 https://nytimes.com/2024/10/15/dining/atlanta-hot-wings.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5844914/2024/10/15/maple-leafs-liljegren-timmins-de
 **Conversations and insights about the moment.**\
 ``\
 https://nytimes.com/live/2024/10/15/opinion/thepoint
-
-**A Lawyer Seeking Sean Combs Accusers via Hotline Files 6 Lawsuits**\
-`The Houston lawyer Tony Buzbee filed suits in New York with new allegations of rape and sexual assault from 1995 to 2021. Mr. Combs denied the accusations.`\
-https://nytimes.com/2024/10/15/arts/music/sean-combs-diddy-tony-buzbee-lawsuits.html
 

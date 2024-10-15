@@ -1,3 +1,7 @@
+**Mark Robinson Sues CNN Over Report Linking Him to Lewd Comments on Porn Site**\
+`Mr. Robinson’s campaign for governor of North Carolina has been in crisis since the report, which the lawsuit calls “recklessly false.”`\
+https://nytimes.com/2024/10/15/us/mark-robinson-cnn-porn-lawsuit.html
+
 **There’s No Hot Wing Like a Korean American Atlanta Hot Wing**\
 `Smaller, lighter and sharper than Buffalo wings, this interpretation of a classic has faded away over time. But you can make it at home.`\
 https://nytimes.com/2024/10/15/dining/atlanta-hot-wings.html
