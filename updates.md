@@ -1,3 +1,7 @@
+**The U.S. warns Israel to increase aid to Gaza or face penalties.**\
+`By Michael Crowley and Eric Schmitt`\
+https://nytimes.com/live/2024/10/15/world/israel-lebanon-iran-hezbollah-news/us-israel-military-aid-gaza-improvements
+
 **‘We Are Not a Monolith’: Black Artists Gather at the Philharmonic**\
 `An Afromodernism festival at the New York Philharmonic shines a light on Black artists, who are vastly underrepresented in classical music.`\
 https://nytimes.com/2024/10/15/arts/music/afromoderism-festival-new-york-philharmonic.html
