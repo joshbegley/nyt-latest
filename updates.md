@@ -1,3 +1,11 @@
+**Abortion Could Decide Control of State Supreme Courts**\
+`In Michigan, Ohio, Arizona and elsewhere, progressive court candidates are hoping that the abortion issue that helped conservatives remake the federal judiciary will work for them this time.`\
+https://nytimes.com/2024/10/15/us/abortion-could-decide-control-of-state-supreme-courts.html
+
+**Ted Cruz and Colin Allred to Face Off in Texas Senate Debate**\
+`The candidates will meet in what will most likely be their only debate matchup on Tuesday night, as polls show Mr. Cruz with a slight lead.`\
+https://nytimes.com/2024/10/15/us/politics/cruz-allred-texas-senate-debate.html
+
 **Browns trade WR Amari Cooper to Bills: Source**\
 `Cooper is in his third season with Cleveland and was the team leader in receptions (24), yards (250) and receiving touchdowns.`\
 https://nytimes.com/athletic/5845532/2024/10/15/amari-cooper-trade-bills-browns/
