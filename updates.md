@@ -1,3 +1,7 @@
+**K-Pop Star Testifies in South Korean Parliament About Bullying at Work**\
+`The appearance by Hanni, a member of NewJeans, was eagerly awaited, but she offered few revelations about her famously regimented industry.`\
+https://nytimes.com/2024/10/15/world/asia/newjeans-hanni-bullying-testimony.html
+
 **Pistons' changes range from staff to roster to wardrobe — all with one goal in mind**\
 `J.B. Bickerstaff helped turn around the Cavaliers. Can he find a formula that works for the Pistons and star guard Cade Cunningham?`\
 https://nytimes.com/athletic/5840953/2024/10/15/detroit-pistons-preview-cade-cunningham-jb-bickerstaff/

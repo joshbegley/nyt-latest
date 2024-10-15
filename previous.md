@@ -1,3 +1,7 @@
+**K-Pop Star Testifies in South Korean Parliament About Bullying at Work**\
+`The appearance by Hanni, a member of NewJeans, was eagerly awaited, but she offered few revelations about her famously regimented industry.`\
+https://nytimes.com/2024/10/15/world/asia/newjeans-hanni-bullying-testimony.html
+
 **Pistons' changes range from staff to roster to wardrobe — all with one goal in mind**\
 `J.B. Bickerstaff helped turn around the Cavaliers. Can he find a formula that works for the Pistons and star guard Cade Cunningham?`\
 https://nytimes.com/athletic/5840953/2024/10/15/detroit-pistons-preview-cade-cunningham-jb-bickerstaff/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5842883/2024/10/15/blackhawks-kevin-korchinski/
 **Inside the agonizing decisions that shape NHL franchises: Excerpt**\
 `When Kyle Dubas faced a tough decision in Toronto, he once turned to Brian MacLellan for advice. This excerpt details what happened next.`\
 https://nytimes.com/athletic/5837959/2024/10/15/inside-the-agonizing-decisions-that-shape-nhl-franchises-excerpt/
-
-**Canada's Ali Ahmed on European ambitions and trespassing in Toronto: 'The TFC security guys are quick'**\
-`The young Canada international's story so far - from misery in Europe to a second chance in Vancouver`\
-https://nytimes.com/athletic/5839332/2024/10/15/ali-ahmed-canada-europe-toronto-vancouver/
 
