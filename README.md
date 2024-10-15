@@ -1,3 +1,11 @@
+**What now, Phillies? Reading between the lines on how they'll tweak roster, offensive approach**\
+`Dave Dombrowski talked about maintaining the status quo. So where can the Phillies upgrade this win-now roster? Reading between the lines. `\
+https://nytimes.com/athletic/5845678/2024/10/15/phillies-roster-offense-changes-dombrowski/
+
+**Colorado WR Travis Hunter expected to play vs. Arizona**\
+`Hunter exited with the injury before the half in Saturday's 28-31 loss.`\
+https://nytimes.com/athletic/5845763/2024/10/15/travis-hunter-colorado-arizona-injury/
+
 **Has Trump Lost the Plot?**\
 `There have been too many recent times he has wandered away from his thoughts.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-cognitive-decline
@@ -7,7 +15,7 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-cognitive-decline
 https://nytimes.com/athletic/5845733/2024/10/15/mlb-gold-glove-award-finalists/
 
 **A Distant Planet May Host a Moon That’s Spewing a Volcanic Cloud**\
-`Astronomers have yet to confirm the existence of exomoons, but molecular signal around a far away star offers some of the best evidence yet.`\
+`Astronomers have yet to confirm the existence of exomoons, but a molecular signal around a far away star offers some of the best evidence yet.`\
 https://nytimes.com/2024/10/15/science/exomoon-volcanic-io-jupiter.html
 
 **Mbappe's lawyer says he has ‘nothing to be reproached for’ amid rape investigation**\
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/15/us/politics/trump-bloomberg-putin.html
 **Eric Adams’s Campaign Donations Plunge After Federal Indictment**\
 `Donations to the New York City mayor’s re-election campaign ceased after a five-count federal corruption indictment against him was unsealed last month.`\
 https://nytimes.com/2024/10/15/nyregion/eric-adams-donations-money.html
-
-**A Climate Resistant Community Passed Two Hurricane Tests**\
-`On the west coast of Florida, a town built to weather hurricanes hosted more than 2,000 people during Hurricane Milton. Could communities like this help shape Florida’s future?`\
-https://nytimes.com/2024/10/15/climate/florida-climate-resilience-babcock-ranch.html
-
-**Live Q&A: Week 7 fantasy football add/drop chat with Dane Martinez, Tuesday 10/15 at 5 p.m. ET**\
-`Ask Dane Martinez your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5845546/2024/10/15/live-qa-week-7-fantasy-football-add-drop-chat-with-dane-martinez-tuesday-10-15/
 
