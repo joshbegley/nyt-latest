@@ -1,3 +1,7 @@
+**Supreme Court Leans Toward Truck Driver Fired Over Drug Test**\
+`The driver, Douglas Horn, sued the maker of a product said to be free of THC under a federal racketeering law, saying he had suffered a business injury.`\
+https://nytimes.com/2024/10/15/us/supreme-court-thc-truck-driver-drug-test.html
+
 **Abortion Could Decide Control of State Supreme Courts**\
 `In Michigan, Ohio, Arizona and elsewhere, progressive court candidates are hoping that the abortion issue that helped conservatives remake the federal judiciary will work for them this time.`\
 https://nytimes.com/2024/10/15/us/abortion-could-decide-control-of-state-supreme-courts.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5845418/2024/10/15/mike-tomlin-media-availability-s
 **Super Bowl 2025 odds: 49ers and Ravens rising, plus six dark-horse contenders**\
 `Breaking down the Super Bowl odds before Week 7 games, with favorites and dark horse contenders. `\
 https://nytimes.com/athletic/5845256/2024/10/15/super-bowl-odds-49ers-ravens-plus-dark-horse-contenders/
-
-**A Very English Sporting Scandal: Did a Steel Conker Taint a Title?**\
-`Conkers are buckeye chestnuts that are part of an annual championship. This year, there are accusations of cheating. And it’s all very serious.`\
-https://nytimes.com/2024/10/15/world/england-conkers-cheating.html
 
