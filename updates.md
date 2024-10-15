@@ -1,3 +1,15 @@
+**Trump Says ’Growth’ and Tariffs Will Pay for $15 Trillion Agenda**\
+`In a combative interview, the former president hinted at even higher tariffs as an economic magic bullet.`\
+https://nytimes.com/2024/10/15/us/politics/trump-tariffs-economy-economy-club-chicago.html
+
+**Hollywood and Bollywood Kickoff Diwali in New York**\
+`Hasan Minhaj, Mira Nair and Nora Fatehi joined business and entertainment leaders of South Asian descent at the Pierre hotel in their most elegant attire.`\
+https://nytimes.com/2024/10/15/style/diwali-party-pierre-hotel.html
+
+**Learning With: ‘Test Your Focus: Can You Spend 10 Minutes With One Painting?’**\
+`Are you easily distracted? If so, you’re in luck! This lesson will help you practice your ability to pay attention.`\
+https://nytimes.com/2024/10/15/learning/lesson-plans/learning-with-test-your-focus-can-you-spend-10-minutes-with-one-painting.html
+
 **Survivors of Maine Mass Shooting Take Step Toward Suing the Army**\
 `A group of survivors and relatives of victims said the military failed to respond to warning signs from the gunman, an Army Reserve grenade instructor, ahead of the shooting.`\
 https://nytimes.com/2024/10/15/us/maine-mass-shooting-survivors-lawsuit-army.html

@@ -1,4 +1,8 @@
-**Trump Says ’Growth’ and Tariffs Will Pay for $15 Trillion Agenda**\
+**There Is No Crying in Baseball (Except Over This Hat)**\
+`Mets and Yankees fans seem to agree: Mayor Eric Adams’s both-sides baseball cap struck out.`\
+https://nytimes.com/2024/10/15/style/mayor-adams-mets-yankees-hat.html
+
+**Trump Says ‘Growth’ and Tariffs Will Pay for $15 Trillion Agenda**\
 `In a combative interview, the former president hinted at even higher tariffs as an economic magic bullet.`\
 https://nytimes.com/2024/10/15/us/politics/trump-tariffs-economy-economy-club-chicago.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/world/americas/trudeau-aides-india-foreign-interf
 **Guardians replace Alex Cobb on ALCS roster with Ben Lively**\
 `Cobb dealt with an acute lower back strain during his Game 1 start at Yankee Stadium.`\
 https://nytimes.com/athletic/5845858/2024/10/15/guardians-alcs-roster-change-alex-cobb/
-
-**NFL best bets Week 7: Patrick Mahomes is an underdog?!**\
-`Austin Mock has a pair of plays on Chiefs at 49ers among his best bets for NFL Week 7.`\
-https://nytimes.com/athletic/5845767/2024/10/15/nfl-best-bets-week-7-chiefs-seahawks/
 
