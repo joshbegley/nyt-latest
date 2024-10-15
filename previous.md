@@ -1,3 +1,7 @@
+**NFL Week 6 best and worst coaching decisions: Ben Johnson has Lions offense humming**\
+`Also, the Buccaneers OC Liam Coen keeps Baker Mayfield in check while the Browns and Raiders have big issues to address.`\
+https://nytimes.com/athletic/5841980/2024/10/15/nfl-week-6-worst-best-coaching-decisions-nguyen/
+
 **'A lot to clean up': Bills escape Meadowlands in mistake-filled win over Jets**\
 `The Bills beat the Jets on the road in unimpressive fashion.`\
 https://nytimes.com/athletic/5844224/2024/10/15/bills-jets-win-mistakes/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5843453/2024/10/15/michigan-offensive-competence-ve
 **Lebanon’s Hospitals Buckle Amid Israel’s Offensive Against Hezbollah**\
 `The United Nations says “the targeting of health and relief operations is broadening” in Lebanon. Hospitals say they have been forced to close or are struggling to operate.`\
 https://nytimes.com/2024/10/15/world/middleeast/lebanon-hospitals-israel-offensive.html
-
-**These Twin Marvels of Art Conservation Are Now Seen as Looted Works**\
-`The Met Museum returned an ancient cup, assembled from fragments, to Italy in 2022 after investigators found it had been looted. Now a second has been returned after a similar determination.`\
-https://nytimes.com/2024/10/15/arts/design/these-twin-marvels-of-art-conservation-are-now-seen-as-looted-works.html
 

@@ -1,3 +1,7 @@
+**NFL Week 6 best and worst coaching decisions: Ben Johnson has Lions offense humming**\
+`Also, the Buccaneers OC Liam Coen keeps Baker Mayfield in check while the Browns and Raiders have big issues to address.`\
+https://nytimes.com/athletic/5841980/2024/10/15/nfl-week-6-worst-best-coaching-decisions-nguyen/
+
 **'A lot to clean up': Bills escape Meadowlands in mistake-filled win over Jets**\
 `The Bills beat the Jets on the road in unimpressive fashion.`\
 https://nytimes.com/athletic/5844224/2024/10/15/bills-jets-win-mistakes/
