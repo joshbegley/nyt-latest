@@ -1,3 +1,7 @@
+**A Philosophical Journey With Clicks of a Mouse**\
+`The writer of the game Phoenix Springs says it touches upon two questions at the heart of Buddhism: What is the nature of death, and what is the nature of perception?`\
+https://nytimes.com/2024/10/15/arts/phoenix-springs.html
+
 **Arshdeep Bains' opportunity, good news on Tyler Myers and more: Canucks notebook**\
 `Plus some early season storylines that may influence the course of this season or turn out to be noise after two losses to start the year.`\
 https://nytimes.com/athletic/5844170/2024/10/15/canucks-arshdeep-bains-tyler-myers/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5844586/2024/10/15/fantasy-football-who-to-drop-ahe
 **Prediction Markets Tell a Different Story From the Polls**\
 `Supporters say the platforms are better at predicting the election. But questions have arisen about recent big bets, as they show a big lead for Donald Trump.`\
 https://nytimes.com/2024/10/15/business/dealbook/prediction-markets-trump-harris.html
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/10/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
