@@ -1,3 +1,7 @@
+**The Athletic FC: England hire Tuchel - a good call? Plus: USMNT's wake-up call, Messi treble**\
+`Today in TAFC: England hire Thomas Tuchel as they change approach. Plus: USMNT get a wake-up call and Messi stars with a hat-trick.`\
+https://nytimes.com/athletic/5846888/2024/10/16/the-athletic-fc-england-hire-tuchel-a-good-call-plus-usmnts-wake-up-call-messi-treble/
+
 **How Kris Knoblauch sparked Leon Draisaitl with a new approach**\
 `Knoblauch had the guts to do what his predecessors either wouldn’t or felt they couldn’t, and it paid off with the Oilers' first win.`\
 https://nytimes.com/athletic/5846815/2024/10/16/leon-draisaitl-oilers-flyers-win/
