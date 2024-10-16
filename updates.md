@@ -1,3 +1,7 @@
+**Scoop City: The history of in-season WR trades**\
+`Of the 17 significant in-season receiver trades since 2000, only 5 were successes. Davante Adams and Amari Cooper might make it 7.`\
+https://nytimes.com/athletic/5845960/2024/10/16/scoop-city-the-history-of-in-season-wr-trades/
+
 **Tuchel addresses England doubters: 'I'm sorry I have a German passport'**\
 `Thomas Tuchel says the onus is on him to show supporters that he deserves a “fair chance” after becoming the new England head coach in light of the Football Association being criticised for appointing a German coach.`\
 https://nytimes.com/athletic/5847305/2024/10/16/thomas-tuchel-england-manager-german/
