@@ -1,3 +1,7 @@
+**Israel permits a small amount of aid into northern Gaza after the U.S. issues a warning.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/israel-permits-a-small-amount-of-aid-into-northern-gaza-after-the-us-issues-a-warning
+
 **The Athletic FC: England hire Tuchel - a good call? Plus: USMNT's wake-up call, Messi treble**\
 `Today in TAFC: England hire Thomas Tuchel as they change approach. Plus: USMNT get a wake-up call and Messi stars with a hat-trick.`\
 https://nytimes.com/athletic/5846888/2024/10/16/the-athletic-fc-england-hire-tuchel-a-good-call-plus-usmnts-wake-up-call-messi-treble/

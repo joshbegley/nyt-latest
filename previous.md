@@ -1,3 +1,7 @@
+**Israel permits a small amount of aid into northern Gaza after the U.S. issues a warning.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/israel-permits-a-small-amount-of-aid-into-northern-gaza-after-the-us-issues-a-warning
+
 **The Athletic FC: England hire Tuchel - a good call? Plus: USMNT's wake-up call, Messi treble**\
 `Today in TAFC: England hire Thomas Tuchel as they change approach. Plus: USMNT get a wake-up call and Messi stars with a hat-trick.`\
 https://nytimes.com/athletic/5846888/2024/10/16/the-athletic-fc-england-hire-tuchel-a-good-call-plus-usmnts-wake-up-call-messi-treble/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-ni
 **Broncos rookie report: Can Bo Nix improve accuracy? More carries for Audric Estimé?**\
 `The offense's struggles extend well beyond Nix, but the rookie quarterback has to complete more manageable throws.`\
 https://nytimes.com/athletic/5844903/2024/10/16/broncos-rookie-report-bo-nix-audric-estime/
-
-**Why Davante Adams’ breakup with Raiders felt inevitable ever since Derek Carr was released**\
-`The Raiders weren't winning enough for Adams and never delivered a satisfactory quarterback situation after moving on from Carr. `\
-https://nytimes.com/athletic/5845232/2024/10/16/raiders-davante-adams-trade-what-went-wrong/
 
