@@ -1,3 +1,15 @@
+**Trudeau Goes on Offensive Over Foreign Interference Claims**\
+`Facing a revolt in his own party, Prime Minister Justin attacked both the Conservative opposition and India’s government, which he said had made “a horrific mistake” in the killing of a Sikh activist.`\
+https://nytimes.com/2024/10/16/world/canada/trudeau-india-canada-sovereignty.html
+
+**Jerry Reinsdorf open to selling White Sox: Sources**\
+`The 88-year-old majority owner is in active discussions with a group led by former big leaguer Dave Stewart.`\
+https://nytimes.com/athletic/5848339/2024/10/16/jerry-reinsdorf-chicago-white-sox-sale/
+
+**Georgia Prosecutor Seeks to Reinstate Quashed Charges in Trump Elections Case**\
+`The appeal filed on Tuesday disputes a judge’s ruling that six of the charges brought against Donald J. Trump and his allies in Georgia were not specific enough.`\
+https://nytimes.com/2024/10/16/us/fani-willis-trump-georgia-charges-appeal.html
+
 **For Ruben Gallego, the Campaign Trail Runs Through the Grand Canyon**\
 `The Democratic congressman, who is running for Senate in Arizona, hiked thousands of feet down to meet the Havasupai, a Native tribe, on their land, part of an extensive outreach effort in a competitive race.`\
 https://nytimes.com/2024/10/16/us/politics/ruben-gallego-grand-canyon.html
