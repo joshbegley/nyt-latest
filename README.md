@@ -1,3 +1,7 @@
+**For Ruben Gallego, the Campaign Trail Runs Through the Grand Canyon**\
+`The Democratic congressman, who is running for Senate in Arizona, hiked thousands of feet down to meet the Havasupai, a Native tribe, on their land, part of an extensive outreach effort in a competitive race.`\
+https://nytimes.com/2024/10/16/us/politics/ruben-gallego-grand-canyon.html
+
 **Where Are Trump and Harris Campaigning?**\
 `Here’s where the candidates are spending their time in the final weeks of the 2024 presidential race.`\
 https://nytimes.com/interactive/2024/10/16/us/politics/harris-trump-2024-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/business/energy-environment/amazon-google-microso
 **Biden Announces $425 Million in Aid to Ukraine**\
 `President Biden spoke by telephone to President Volodymyr Zelensky of Ukraine about the security package, which includes munitions, armored vehicles and other weapons.`\
 https://nytimes.com/2024/10/16/us/politics/biden-ukraine-aid.html
-
-**Hurricane Helene Eroded Our Shared Reality**\
-`Climate misinformation isn’t new. But it’s getting worse.`\
-https://nytimes.com/2024/10/16/opinion/hurricane-helene-misinformation.html
 
