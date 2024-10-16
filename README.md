@@ -1,3 +1,7 @@
+**Substitute Teacher Reenacted George Floyd Murder at Minnesota High School**\
+`Students said the teacher, who claimed to be a police officer, also said “police brutality isn’t real.”`\
+https://nytimes.com/2024/10/16/us/teacher-reenacts-george-floyd-murder.html
+
 **Caitlin Clark becomes first rookie to make all-WNBA first-team since '08**\
 `Clark is the first rookie since Candace Parker in 2008 to be named to the first team, when Parker also won the MVP award.`\
 https://nytimes.com/athletic/5847809/2024/10/16/all-wnba-first-team-roster-awards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5844759/2024/10/16/chelsea-liverpool-man-utd-scouts
 **Columbia Bars Vocal Pro-Israel Professor From Campus**\
 `The university said that Shai Davidai has repeatedly harassed and intimidated employees. He said that the university has not done enough to crack down on pro-Palestinian protests.`\
 https://nytimes.com/2024/10/16/us/columbia-professor-shai-davidai-banned.html
-
-**Trump Raises Eyebrows by Proclaiming Himself the ‘Father of I.V.F.’**\
-`His campaign said the comment, which he said at an event focused on women’s issues, was “made in jest.” He has supported access to I.V.F. recently but didn’t promote it before this year.`\
-https://nytimes.com/2024/10/16/us/politics/trump-ivf-abortion.html
 
