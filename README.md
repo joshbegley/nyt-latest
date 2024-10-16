@@ -1,3 +1,7 @@
+**Space: The Final Fashion Frontier**\
+`Prada and Axiom Space unveiled their NASA spacesuits, in the most far-out collaboration yet.`\
+https://nytimes.com/2024/10/16/style/prada-axiom-space-suits.html
+
 **Matvei Michkov gets first two goals of his career in Flyers OT loss**\
 `Michkov, a native of Russia, may face a language barrier with his teammates, but not when the language is hockey.`\
 https://nytimes.com/athletic/5846792/2024/10/16/flyers-matvei-michkov-overtime-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-ni
 **These 9 Women Were Solidly With Trump. Here’s What Has Changed.**\
 `The participants discuss how Kamala Harris’s entry into the race changed — or didn’t change — their thinking about the election.`\
 https://nytimes.com/interactive/2024/10/16/opinion/16focus-group-women-trump-voters.html
-
-**How the Guardians can get back in the ALCS against the Yankees**\
-`With the ALCS shifting back to Progressive Field, how can the Guardians transform their postgame space into a party scene?`\
-https://nytimes.com/athletic/5846700/2024/10/16/cleveland-guardians-new-york-yankees-alcs-game-2-analysis/
 
