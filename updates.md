@@ -1,3 +1,7 @@
+**Corrections: Oct. 16, 2024**\
+`Corrections that appeared in print on Wednesday, Oct. 16, 2024.`\
+https://nytimes.com/2024/10/15/pageoneplus/corrections-oct-16-2024.html
+
 **Biden Takes On Campaign Duty in Pennsylvania, Celebrating Unions**\
 `As Jill Biden and JD Vance also made stops around Philadelphia, the president’s visit highlighted the intense struggle to persuade voters in what may be the most critical swing state.`\
 https://nytimes.com/2024/10/15/us/politics/biden-campaigning-philadelphia.html
