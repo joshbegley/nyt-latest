@@ -1,3 +1,19 @@
+**Nebraska Supreme Court Upholds Voting Rights for Felons**\
+`Legislators voted to restore voting rights to more people convicted of felonies, but a dispute over that law’s constitutionality created pre-election confusion.`\
+https://nytimes.com/2024/10/16/us/nebraska-felon-voting-rights.html
+
+**Michelle Obama to Host a Rally to Encourage Voter Turnout in Georgia**\
+`The former first lady, one of the Democratic Party’s most popular but most elusive figures, will appeal to younger, nonwhite voters.`\
+https://nytimes.com/2024/10/16/us/politics/michelle-obama-atlanta-rally.html
+
+**Barcelona and the Negreira case: What's the latest?**\
+`Charges were brought over a year and a half ago - but there is an expectation the case will drag on longer still`\
+https://nytimes.com/athletic/5846919/2024/10/16/barcelona-negreira-case-payments-update/
+
+**It’s Not Just Taylor Swift. Music Activism Gets Back on the Road.**\
+`Bands were sidelined by the Covid-19 pandemic during the 2020 campaign. This year, with increasing sophistication, they are encouraging political activism.`\
+https://nytimes.com/2024/10/16/us/politics/musicians-political-activism-kamala-harris.html
+
 **Shares of Louis Vuitton Owner Drop on Anxiety About Chinese Shoppers**\
 `Weak sales in China at LVMH, the owner of Dior, Tiffany and more, sent a shudder through the luxury sector.`\
 https://nytimes.com/2024/10/16/business/dealbook/lvmh-dior-louis-vuitton-china.html
