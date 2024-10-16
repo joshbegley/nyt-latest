@@ -1,3 +1,7 @@
+**Israeli Strike Hits Lebanese Municipal Building, Killing Mayor**\
+`The strike, in the south of Lebanon, killed at least 16 people, Lebanese officials said. Israel, which also struck near Beirut, said it was targeting Hezbollah militants.`\
+https://nytimes.com/2024/10/16/world/middleeast/israel-lebanon-war.html
+
 **Caitlin Clark becomes first rookie to make all-WNBA first-team since '08**\
 `Clark is the first rookie since Candace Parker in 2008 to be named to the first team, when Parker also won the MVP award.`\
 https://nytimes.com/athletic/5847911/2024/10/16/all-wnba-first-team-awards-caitlin-clark/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/opinion/scary-books-tv-movies.html
 **Richard V. Secord, Middleman in Iran-Contra Scandal, Dies at 92**\
 `A war hero and a former Air Force general, he denied wrongdoing for his role in the Reagan-era shipment of arms to Iran to support Nicaraguan rebels.`\
 https://nytimes.com/2024/10/16/us/politics/richard-v-secord-middleman-in-iran-contra-scandal-dies-at-92.html
-
-**Why an Interview on Fox News Made Sense for Kamala Harris**\
-`The vice president will take questions from Bret Baier in a session to be broadcast at 6 p.m. She joins a long line of Democratic candidates and elected officials who have ventured into hostile television territory.`\
-https://nytimes.com/2024/10/16/us/politics/harris-democrats-fox-interview.html
 

@@ -1,3 +1,7 @@
+**Israeli Strike Hits Lebanese Municipal Building, Killing Mayor**\
+`The strike, in the south of Lebanon, killed at least 16 people, Lebanese officials said. Israel, which also struck near Beirut, said it was targeting Hezbollah militants.`\
+https://nytimes.com/2024/10/16/world/middleeast/israel-lebanon-war.html
+
 **Caitlin Clark becomes first rookie to make all-WNBA first-team since '08**\
 `Clark is the first rookie since Candace Parker in 2008 to be named to the first team, when Parker also won the MVP award.`\
 https://nytimes.com/athletic/5847911/2024/10/16/all-wnba-first-team-awards-caitlin-clark/
