@@ -1,3 +1,7 @@
+**Trump Draws, and Repels, Nevada Latinos With His Anti-Immigrant Message**\
+`For some, Donald J. Trump’s incessant attacks on immigrants are too much. Still, many appear prepared to look past his escalations and back a candidate they believe will help their livelihoods.`\
+https://nytimes.com/2024/10/16/us/politics/trump-draws-and-repels-nevada-latinos-with-his-anti-immigrant-message.html
+
 **A Crowd of Republicans Will Join Harris at a Pennsylvania Stop**\
 `The visit will take place near the Revolutionary War site where George Washington crossed the Delaware.`\
 https://nytimes.com/2024/10/16/us/politics/republicans-harris-pennsylvania.html
@@ -9,6 +13,14 @@ https://nytimes.com/2024/10/16/opinion/affirmative-action-college-diversity.html
 **Why Us vs. Them Is Not Such a Bad Way to See the World**\
 `Two new books by psychologists explore the roots of group identity, arguing that it is natural and potentially useful — even in polarized times.`\
 https://nytimes.com/2024/10/16/books/review/good-reasonable-people-keith-payne-tribal-michael-morris.html
+
+**Drake Maye's first NFL start: Examining the good and the bad from the Patriots QB**\
+`Our Patriots beat writer and NFL Draft analyst got together to break down the positives and negatives of Maye's first NFL start.`\
+https://nytimes.com/athletic/5845135/2024/10/16/drake-maye-patriots-qb-first-nfl-start/
+
+**Can a safety win Defensive Player of the Year? Falcons say yes, tout Jessie Bates**\
+`Atlanta safety Jessie Bates should be a candidate for Defensive Player of the Year, his teammates say, but can a safety win it these days?`\
+https://nytimes.com/athletic/5845449/2024/10/16/falcons-jessie-bates-defensive-player-of-the-year/
 
 **Teens, Do You Feel Represented in This Election?**\
 `As the 2024 election heats up, Headway is asking teenagers to weigh in on whether today’s candidates are addressing their concerns.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/16/world/americas/brazil-chief-justice-supreme-court
 **A Fading Tree, Once Majestic, Had to Come Down. But It Wasn’t the End.**\
 `A beloved sugar maple slowly succumbed to disease. Today, it lives on in a new form.`\
 https://nytimes.com/2024/10/16/climate/sugar-maple-tree-pennsylvania.html
-
-**Paul Rudolph Was an Architectural Star. Now He’s a Cautionary Tale.**\
-`His Brutalist buildings, praised during the Kennedy era, are now being demolished. A new exhibition in Manhattan looks at the limits of genius.`\
-https://nytimes.com/2024/10/16/arts/design/paul-rudolph-architect-met.html
-
-**Presidents in Movies Always Seem to Know What They’re Doing. In Real Life …**\
-`Hollywood’s polished leaders and legible story arcs never quite imagined the places real-life American politics would go.`\
-https://nytimes.com/2024/10/16/magazine/movie-tv-presidents.html
-
-**The Trump Team Is Prepared to Bring Election Chaos. Here’s What Voters Need to Know.**\
-`We have just a short time to understand the challenges across state legislatures, Congress, executive branches and elected judges.`\
-https://nytimes.com/2024/10/16/opinion/trump-election-crisis.html
 
