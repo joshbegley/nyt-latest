@@ -1,3 +1,7 @@
+**In a Decade-long Caper, Criminals Cashed In on Fake Wine, Police Say**\
+`A criminal network was accused of selling bottles of fake French wine for as much as 15,000 euros. It’s the latest in a growing criminal trend: wine fraud.`\
+https://nytimes.com/2024/10/16/world/europe/wine-fraud-france-italy.html
+
 **In Race for Congress, Republican Election Deniers and Skeptics Seek Swing Seats**\
 `G.O.P. candidates in critical House districts have sought to moderate or gloss over their past questioning of the 2020 election results, as well as hard-right positions on social issues.`\
 https://nytimes.com/2024/10/16/us/politics/republicans-congress-election-denial.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5846740/2024/10/16/chsn-comcast-deal-blackhawks-bul
 **Two Key Prosecutors in Trump Documents Case Leave Special Counsel’s Office**\
 `The departures amount to a tacit acknowledgment that any trial in that case will not happen for many months, if not years.`\
 https://nytimes.com/2024/10/16/us/politics/trump-documents-case-prosecutors.html
-
-**In ‘Vladimir,’ a Russian Reporter’s Fight Is an Apt Election Season Tale**\
-`The writer Erika Sheffer takes a big swing in a Manhattan Theater Club production examining “the point at which a society finds itself on the brink.”`\
-https://nytimes.com/2024/10/16/theater/vladimir-russia-journalism-review-mtc.html
 
