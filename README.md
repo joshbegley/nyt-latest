@@ -18,8 +18,8 @@ https://nytimes.com/2024/10/16/us/politics/harris-democrats-fox-interview.html
 `Kirill Shevchenko, a grandmaster who represents Romania, has been accused of getting assistance from a computer in the middle of games.`\
 https://nytimes.com/2024/10/16/sports/kirill-shevchenko-chess-expelled-phone.html
 
-**Abortion-rights group sues the DeSantis administration, alleging a violation of free speech.**\
-`By Patricia Mazzei`\
+**Abortion-Rights Group Accuses DeSantis Administration of Stifling Free Speech**\
+`The group behind an ad in favor of enshrining abortion rights in Florida’s Constitution says the state is violating the First Amendment by threatening TV stations that ran the ad.`\
 https://nytimes.com/2024/10/16/us/politics/abortion-florida-desantis.html
 
 **Judge Extends Sentence for Former County Official Convicted in Las Vegas Journalist’s Murder**\
