@@ -1,3 +1,11 @@
+**A Top Chess Player Is Disqualified After a Phone Is Found in a Bathroom Stall**\
+`Kirill Shevchenko, a grandmaster who represents Romania, has been accused of getting assistance from a computer in the middle of games.`\
+https://nytimes.com/2024/10/16/sports/kirill-shevchenko-chess-expelled-phone.html
+
+**Abortion-rights group sues the DeSantis administration, alleging a violation of free speech.**\
+`By Patricia Mazzei`\
+https://nytimes.com/2024/10/16/us/politics/abortion-florida-desantis.html
+
 **Abortion-rights group sues the DeSantis administration, alleging a violation of free speech.**\
 `By Patricia Mazzei`\
 https://nytimes.com/live/2024/10/16/us/trump-harris-election/abortion-rights-group-sues-the-desantis-administration-alleging-a-violation-of-free-speech
