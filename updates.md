@@ -1,3 +1,15 @@
+**In ‘Sweet Bobby,’ Catfishing Is Even Worse Than You Might Think**\
+`A new Netflix documentary tells a sinister tale of a decade-long online romance scam, and the devastation that followed.`\
+https://nytimes.com/2024/10/16/style/sweet-bobby-netflix.html
+
+**Sex, Power, Money and ‘Mr. McMahon’**\
+`How decades of sexual assault allegations were swept under the rug in professional wrestling`\
+https://nytimes.com/2024/10/16/opinion/mcmahon-sexual-assault.html
+
+**My Male Partner Cheated on Me With My Gay Best Friend. Now What?**\
+`A reader is eager to patch things over with her best friend and her boyfriend after they had a tryst behind her back. But should she be?`\
+https://nytimes.com/2024/10/16/style/infidelity-best-friend-forgiveness.html
+
 **Female Mountain Bikers Backflip Their Way to Equality**\
 `Traditionally, only men were invited to the scariest and most lucrative event in mountain biking. This year, women shared equally in the adrenaline and the prizes.`\
 https://nytimes.com/2024/10/16/us/red-bull-rampage-women-mountain-biking.html
