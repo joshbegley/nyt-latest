@@ -1,3 +1,23 @@
+**Trump Tries Out ‘Father of I.V.F.’ Nickname in Pitch to Women Voters**\
+`His campaign said the comment, which he said at an event focused on women’s issues, was “made in jest.” He has supported access to I.V.F. recently but didn’t promote it before this year.`\
+https://nytimes.com/2024/10/16/us/politics/trump-ivf-abortion.html
+
+**Jimmy Carter Casts His Ballot for Harris in Georgia**\
+`The 39th president, who entered hospice care in February 2023, submitted an absentee ballot, according to a grandson. His family said he had been eager to vote for Vice President Kamala Harris.`\
+https://nytimes.com/2024/10/16/us/jimmy-carter-votes-georgia.html
+
+**Italian Senate Passes Law Banning People From Seeking Surrogacy Abroad**\
+`The new law was pushed by the party of Giorgia Meloni, Italy’s conservative prime minister.`\
+https://nytimes.com/2024/10/16/world/europe/italy-surrogacy-law.html
+
+**Thomas J. Donohue Dies at 86; Transformed Chamber of Commerce**\
+`Under his 24-year leadership, the lobbying group developed enormous clout in Washington, but he broke with the Trump administration over immigration and the 2020 election.`\
+https://nytimes.com/2024/10/16/business/thomas-j-donohue-dead.html
+
+**CHSN's Comcast negotiations present a dilemma as fans' wrath grows**\
+`Blackhawks owner Danny Wirtz and others will need to decide how much outrage is too much to stomach.`\
+https://nytimes.com/athletic/5846740/2024/10/16/chsn-comcast-deal-blackhawks-bulls-white-sox/
+
 **Two Key Prosecutors in Trump Documents Case Leave Special Counsel’s Office**\
 `The departures amount to a tacit acknowledgment that any trial in that case will not happen for many months, if not years.`\
 https://nytimes.com/2024/10/16/us/politics/trump-documents-case-prosecutors.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5847580/2024/10/16/twins-questions-submit-gleeman/
 **Lowetide: Resetting expectations for Oilers defenceman Ty Emberson**\
 `Entering the season, Emberson was thought to be the most likely second-pairing option with Darnell Nurse.`\
 https://nytimes.com/athletic/5844862/2024/10/16/oilers-ty-emberson-stats-nurse/
-
-**The Victoria’s Secret Fashion Show Returns. It Shouldn’t.**\
-`Despite the wings, the supermodels and Cher, there’s no going back.`\
-https://nytimes.com/2024/10/16/style/victorias-secret-fashion-show-return-hiatus.html
-
-**Tuchel's unveiling dissected: '10 interviews', national anthem and Kane's role**\
-`The former Bayern Munich and Chelsea manager answered questions alongside the Football Association's chief executive officer Mark Bullingham`\
-https://nytimes.com/athletic/5842767/2024/10/16/england-thomas-tuchel-fa-analysis/
-
-**How Media Outlets on the Left and Right Covered Trump’s Musical Town Hall**\
-`When former President Donald J. Trump played D.J. at a campaign event on Monday, both liberal and conservative media outlets described it as “surreal.”`\
-https://nytimes.com/2024/10/16/business/media/media-politics-trump-town-hall-philadelphia.html
-
-**Review: ‘Ainadamar’ Fills the Met Opera Stage With Flamenco**\
-`Osvaldo Golijov and David Henry Hwang’s opera, inspired by the life of Federico García Lorca, arrived at the Met with a dizzying blend of styles.`\
-https://nytimes.com/2024/10/16/arts/music/met-opera-ainadamar-review.html
-
-**The Killing and Suffering of Children in Gaza**\
-`Readers respond to a guest essay on what health workers found in Gaza. Also: A plea for Haiti; Donald Trump vs. the experts; many ways to be a man.`\
-https://nytimes.com/2024/10/16/opinion/gaza-children-deaths.html
 
