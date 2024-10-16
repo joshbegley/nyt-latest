@@ -1,3 +1,11 @@
+**Biden Takes On Campaign Duty in Pennsylvania, Celebrating Unions**\
+`As Jill Biden and JD Vance also made stops around Philadelphia, the president’s visit highlighted the intense struggle to persuade voters in what may be the most critical swing state.`\
+https://nytimes.com/2024/10/15/us/politics/biden-campaigning-philadelphia.html
+
+**Harris Agrees Trump Is a Fascist: 5 Charlamagne Interview Takeaways**\
+`During a free-flowing interview that was by turns friendly and pointed, the vice president went beyond her previous remarks in casting Donald Trump as an authoritarian.`\
+https://nytimes.com/2024/10/15/us/politics/kamala-harris-charlamagne-interview-trump.html
+
 **Pentagon to Give Honorable Discharges to Some Kicked Out Under ‘Don’t Ask, Don’t Tell’**\
 `More than 800 service members administratively separated from the military under the now-repealed policy will receive discharge upgrades.`\
 https://nytimes.com/2024/10/15/us/dont-ask-dont-tell.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/10/15/us/politics/trump-harris-black-male-voters.html
 **Vikings acquire Cam Akers from Texans, reuniting RB with O'Connell**\
 `This is Akers' second time with the Vikings in the last two years. Minnesota explored re-signing him in the spring before going to Houston.`\
 https://nytimes.com/athletic/5846194/2024/10/15/vikings-rb-cam-akers-texans-trade/
-
-**Even Charlamagne Can’t Push Harris Off Message**\
-`It may not be great radio, but Harris made a solid case for why she’d be better for Black America.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/charlamagne-harris-interview-detroit
-
-**Giants' Andrew Thomas out with potential season-ending foot injury: Source**\
-`Thomas injured his foot on the Giants’ sole touchdown drive in Sunday’s loss to the Cincinnati Bengals.`\
-https://nytimes.com/athletic/5846159/2024/10/15/andrew-thomas-giants-foot-injury-update/
 
