@@ -1,4 +1,8 @@
 **Trudeau Goes on Offensive Over Foreign Interference Claims**\
+`Facing a revolt in his own party, Prime Minister Justin Trudeau attacked both the Conservative opposition and India’s government, which he said had made “a horrific mistake” in the killing of a Sikh activist.`\
+https://nytimes.com/2024/10/16/world/canada/trudeau-india-canada-sovereignty.html
+
+**Trudeau Goes on Offensive Over Foreign Interference Claims**\
 `Facing a revolt in his own party, Prime Minister Justin attacked both the Conservative opposition and India’s government, which he said had made “a horrific mistake” in the killing of a Sikh activist.`\
 https://nytimes.com/2024/10/16/world/canada/trudeau-india-canada-sovereignty.html
 
