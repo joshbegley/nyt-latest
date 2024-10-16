@@ -1,3 +1,11 @@
+**A Top University Bet on D.E.I. What Went Wrong?**\
+`We cover the impact of college diversity programs.`\
+https://nytimes.com/2024/10/16/briefing/university-diversity-programs.html
+
+**Six kings, $15million and slow progress: How Saudi Arabia's push into tennis stalled**\
+`The kingdom is putting on the richest tennis exhibition in history, but its wider ambitions in the sport have stalled.`\
+https://nytimes.com/athletic/5826161/2024/10/16/saudi-arabia-tennis-money-six-kings-slam/
+
 **Amelia Dimoldenberg Never Waits to Text, Even on the Red Carpet**\
 `The host of the viral video series “Chicken Shop Date” explains why she always texts someone she’s interested in right away.`\
 https://nytimes.com/video/podcasts/100000009763833/amelia-dimoldenberg-modern-love-podcast.html
