@@ -1,3 +1,7 @@
+**Trudeau Goes on Offensive Over Foreign Interference Claims**\
+`Facing a revolt in his own party, Prime Minister Justin attacked both the Conservative opposition and India’s government, which he said had made “a horrific mistake” in the killing of a Sikh activist.`\
+https://nytimes.com/2024/10/16/world/canada/trudeau-india-canada-sovereignty.html
+
 **Jerry Reinsdorf open to selling White Sox: Sources**\
 `The 88-year-old majority owner is in active discussions with a group led by former big leaguer Dave Stewart.`\
 https://nytimes.com/athletic/5848339/2024/10/16/jerry-reinsdorf-chicago-white-sox-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5847911/2024/10/16/all-wnba-first-team-awards-caitl
 **Tiny Love Stories: ‘A Queer Kid in Appalachia’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/10/16/style/tiny-modern-love-stories-a-queer-kid-in-appalachia.html
-
-**In This Small Maine County, the Sheriff’s Race Is Haunted by a Mass Shooting**\
-`The race has become a referendum on what the Sagadahoc County Sheriff’s Office did, and failed to do, before a shooting that killed 18 people in Lewiston last fall.`\
-https://nytimes.com/2024/10/16/us/maine-county-sheriff-race-mass-shooting.html
 
