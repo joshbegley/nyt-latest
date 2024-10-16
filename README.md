@@ -1,3 +1,7 @@
+**Where Are Trump and Harris Campaigning?**\
+`Here’s where the candidates are spending their time in the final weeks of the 2024 presidential race.`\
+https://nytimes.com/interactive/2024/10/16/us/politics/harris-trump-2024-campaign.html
+
 **What’s in Our Queue? ‘Industry’ and More**\
 `I’m a national reporter, covering California. Here are five things I’ve recently enjoyed.`\
 https://nytimes.com/interactive/2024/10/16/arts/editors-recommendations-industry.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/us/politics/biden-ukraine-aid.html
 **Hurricane Helene Eroded Our Shared Reality**\
 `Climate misinformation isn’t new. But it’s getting worse.`\
 https://nytimes.com/2024/10/16/opinion/hurricane-helene-misinformation.html
-
-**A Weary Trump Whips Up Anger in Atlanta**\
-`At a rally in a state he lost in 2020, the former president considered the possibility of another defeat.`\
-https://nytimes.com/2024/10/16/us/elections/trump-georgia-rally.html
 
