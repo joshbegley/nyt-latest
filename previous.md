@@ -1,3 +1,7 @@
+**Hungry for Energy, Amazon, Google and Microsoft Turn to Nuclear Power**\
+`Large technology companies are investing billions of dollars in nuclear energy as an emissions-free source of electricity for artificial intelligence and other businesses.`\
+https://nytimes.com/2024/10/16/business/energy-environment/amazon-google-microsoft-nuclear-energy.html
+
 **Biden Announces $425 Million in Aid to Ukraine**\
 `President Biden spoke by telephone to President Volodymyr Zelensky of Ukraine about the security package, which includes munitions, armored vehicles and other weapons.`\
 https://nytimes.com/2024/10/16/us/politics/biden-ukraine-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/us/politics/abortion-florida-desantis.html
 **Judge Extends Sentence for Former County Official Convicted in Las Vegas Journalist’s Murder**\
 `Robert Telles was sentenced to life in prison with the possibility of parole after 20 years for the murder of Jeff German. On Wednesday, a judge added eight years to that minimum.`\
 https://nytimes.com/2024/10/16/us/vegas-official-sentenced-journalist-murder.html
-
-**Padres’ Luis Arraez undergoes thumb surgery, expected to be ready for spring training**\
-`Arraez originally injured his thumb June 25. He was advised during the All-Star break that he did not require in-season surgery.`\
-https://nytimes.com/athletic/5848029/2024/10/16/padres-luis-arraez-thumb-surgery/
 

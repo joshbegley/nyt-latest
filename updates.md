@@ -1,3 +1,7 @@
+**Hungry for Energy, Amazon, Google and Microsoft Turn to Nuclear Power**\
+`Large technology companies are investing billions of dollars in nuclear energy as an emissions-free source of electricity for artificial intelligence and other businesses.`\
+https://nytimes.com/2024/10/16/business/energy-environment/amazon-google-microsoft-nuclear-energy.html
+
 **Biden Announces $425 Million in Aid to Ukraine**\
 `President Biden spoke by telephone to President Volodymyr Zelensky of Ukraine about the security package, which includes munitions, armored vehicles and other weapons.`\
 https://nytimes.com/2024/10/16/us/politics/biden-ukraine-aid.html
