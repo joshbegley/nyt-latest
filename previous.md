@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Industry’ and More**\
+`I’m a national reporter, covering California. Here are five things I’ve recently enjoyed.`\
+https://nytimes.com/interactive/2024/10/16/arts/editors-recommendations-industry.html
+
 **Chris Olave, Rashid Shaheed both ruled out vs. Broncos**\
 `Allen stated that Olave has been ruled out of the game with a concussion, while Shaheed has undergone knee surgery to repair a meniscus.`\
 https://nytimes.com/athletic/5848146/2024/10/16/chris-olave-rashid-shaheed-out-saints/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/opinion/hurricane-helene-misinformation.html
 **A Weary Trump Whips Up Anger in Atlanta**\
 `At a rally in a state he lost in 2020, the former president considered the possibility of another defeat.`\
 https://nytimes.com/2024/10/16/us/elections/trump-georgia-rally.html
-
-**Antichrists, Chain Saws and Natalism: A Very ‘M.O.O.’ Halloween Episode**\
-`The hosts share their favorite scary movies, books and television series.`\
-https://nytimes.com/2024/10/16/opinion/scary-books-tv-movies.html
 

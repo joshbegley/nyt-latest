@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Industry’ and More**\
+`I’m a national reporter, covering California. Here are five things I’ve recently enjoyed.`\
+https://nytimes.com/interactive/2024/10/16/arts/editors-recommendations-industry.html
+
 **Chris Olave, Rashid Shaheed both ruled out vs. Broncos**\
 `Allen stated that Olave has been ruled out of the game with a concussion, while Shaheed has undergone knee surgery to repair a meniscus.`\
 https://nytimes.com/athletic/5848146/2024/10/16/chris-olave-rashid-shaheed-out-saints/
