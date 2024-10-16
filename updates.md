@@ -1,3 +1,7 @@
+**Two Giant Pandas Arrive at National Zoo in Washington**\
+`The 3-year-old giant pandas arrived from China in a revival of so-called panda diplomacy after the zoo had gone nearly a year without the animals.`\
+https://nytimes.com/video/us/100000009764002/two-giant-pandas-arrive-at-national-zoo-in-washington.html
+
 **Judge homers, Yankees take 2-0 ALCS lead on Guardians: Takeaways**\
 `The series will resume in Cleveland for Game 3 on Thursday. `\
 https://nytimes.com/athletic/5846495/2024/10/15/yankees-guardians-mlb-score-alcs-aaron-judge-takeaways/
