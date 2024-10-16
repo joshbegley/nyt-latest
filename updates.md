@@ -1,3 +1,7 @@
+**Mbappe, milk and mortality: What we learned from intriguing Luis Enrique documentary**\
+`A new documentary follows PSG manager Luis Enrique behind the scenes. Here's what we learned`\
+https://nytimes.com/athletic/5845127/2024/10/16/luis-enrique-documentary-psg-mbappe-barcelona-xavi/
+
 **Six kings, $15m and slow progress: How Saudi Arabia's push into tennis stalled**\
 `The kingdom is putting on the richest tennis exhibition in history, but its wider ambitions in the sport have contracted.`\
 https://nytimes.com/athletic/5826161/2024/10/16/saudi-arabia-tennis-money-six-kings-slam/

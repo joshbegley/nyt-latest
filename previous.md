@@ -1,3 +1,7 @@
+**Mbappe, milk and mortality: What we learned from intriguing Luis Enrique documentary**\
+`A new documentary follows PSG manager Luis Enrique behind the scenes. Here's what we learned`\
+https://nytimes.com/athletic/5845127/2024/10/16/luis-enrique-documentary-psg-mbappe-barcelona-xavi/
+
 **Drew Bannister has faith in Nick Leddy: 'He's going to be a better player for us'**\
 `The veteran defenseman had a costly turnover in Tuesday's 4-1 loss to the Minnesota Wild, but the Blues are sticking with him.`\
 https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-nick-leddy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5845761/2024/10/16/chiefs-leo-chenal-underrated-def
 **How D'Andre Swift and the Bears run game have 'come alive' during winning streak**\
 `Swift has been one of the best backs in the league since Week 4, and that's helping the Bears win games. An All-22 breakdown.`\
 https://nytimes.com/athletic/5846269/2024/10/16/bears-dandre-swift-run-game/
-
-**Early Votes Pour In, and a U.S. Warning to Israel Over Gaza**\
-`Plus, the new hot item on wedding registries.`\
-https://nytimes.com/2024/10/16/podcasts/early-votes-israel-gaza.html
 
