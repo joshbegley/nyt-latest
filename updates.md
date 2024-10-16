@@ -1,3 +1,11 @@
+**Leif Segerstam, Provocative Finnish Conductor and Composer, Dies at 80**\
+`He led his country’s principal orchestras and major orchestras elsewhere in Europe. He also mystified his countrymen with an unstoppable flow of symphonies.`\
+https://nytimes.com/2024/10/16/arts/music/leif-segerstam-dead.html
+
+**Tuchel, FA explain delayed start date as England manager**\
+`Thomas Tuchel has said that he wants to have a “clean start”, as he explained at his England unveiling why he is not starting the job until January 1.`\
+https://nytimes.com/athletic/5847791/2024/10/16/thomas-tuchel-england-manager-start-date/
+
 **Trump Faces Tough Questions From Hispanic Voters, but Largely Defends or Dodges**\
 `In a town hall that Univision will broadcast at 10 p.m. Eastern, Donald J. Trump did not directly answer many frank questions on climate change, immigration, abortion rights and other topics.`\
 https://nytimes.com/2024/10/16/us/politics/trump-univision-hispanic-voters.html

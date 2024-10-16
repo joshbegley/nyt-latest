@@ -1,3 +1,11 @@
+**Leif Segerstam, Provocative Finnish Conductor and Composer, Dies at 80**\
+`He led his country’s principal orchestras and major orchestras elsewhere in Europe. He also mystified his countrymen with an unstoppable flow of symphonies.`\
+https://nytimes.com/2024/10/16/arts/music/leif-segerstam-dead.html
+
+**Tuchel, FA explain delayed start date as England manager**\
+`Thomas Tuchel has said that he wants to have a “clean start”, as he explained at his England unveiling why he is not starting the job until January 1.`\
+https://nytimes.com/athletic/5847791/2024/10/16/thomas-tuchel-england-manager-start-date/
+
 **Trump Faces Tough Questions From Hispanic Voters, but Largely Defends or Dodges**\
 `In a town hall that Univision will broadcast at 10 p.m. Eastern, Donald J. Trump did not directly answer many frank questions on climate change, immigration, abortion rights and other topics.`\
 https://nytimes.com/2024/10/16/us/politics/trump-univision-hispanic-voters.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5848339/2024/10/16/jerry-reinsdorf-chicago-white-so
 **Georgia Prosecutor Seeks to Reinstate Quashed Charges in Trump Elections Case**\
 `The appeal filed on Tuesday disputes a judge’s ruling that six of the charges brought against Donald J. Trump and his allies in Georgia were not specific enough.`\
 https://nytimes.com/2024/10/16/us/fani-willis-trump-georgia-charges-appeal.html
-
-**For Ruben Gallego, the Campaign Trail Runs Through the Grand Canyon**\
-`The Democratic congressman, who is running for Senate in Arizona, hiked thousands of feet down to meet the Havasupai, a Native tribe, on their land, part of an extensive outreach effort in a competitive race.`\
-https://nytimes.com/2024/10/16/us/politics/ruben-gallego-grand-canyon.html
-
-**Where Are Trump and Harris Campaigning?**\
-`Here’s where the candidates are spending their time in the final weeks of the 2024 presidential race.`\
-https://nytimes.com/interactive/2024/10/16/us/politics/harris-trump-2024-campaign.html
 
