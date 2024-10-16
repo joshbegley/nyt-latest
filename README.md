@@ -1,3 +1,11 @@
+**With Jets and Ships, China Is Honing Its Ability to Choke Taiwan**\
+`China’s large-scale military exercises are encircling Taiwan and testing the island’s defenses. They also raise the risk of conflict, accidental or otherwise.`\
+https://nytimes.com/2024/10/16/world/asia/china-taiwan-blockade-drills.html
+
+**Hollinger: Predicting the top of NBA's Eastern Conference, with one big surprise**\
+`Boston stormed through the league last season, but its conference competition didn't stand pat this offseason.`\
+https://nytimes.com/athletic/5827516/2024/10/16/nba-season-predictions-best-eastern-conference-teams/
+
 **How are NBA GMs and execs trying to build teams and compete in the parity era?**\
 `The more teams spend on their roster, the harder it is to make transactions, especially ones involving players with big contracts.`\
 https://nytimes.com/athletic/5843850/2024/10/16/how-are-nba-gms-and-execs-trying-to-build-teams-and-compete-in-the-parity-era/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/opinion/affirmative-action-college-diversity.html
 **Why Us vs. Them Is Not Such a Bad Way to See the World**\
 `Two new books by psychologists explore the roots of group identity, arguing that it is natural and potentially useful — even in polarized times.`\
 https://nytimes.com/2024/10/16/books/review/good-reasonable-people-keith-payne-tribal-michael-morris.html
-
-**Drake Maye's first NFL start: Examining the good and the bad from the Patriots QB**\
-`Our Patriots beat writer and NFL Draft analyst got together to break down the positives and negatives of Maye's first NFL start.`\
-https://nytimes.com/athletic/5845135/2024/10/16/drake-maye-patriots-qb-first-nfl-start/
-
-**Can a safety win Defensive Player of the Year? Falcons say yes, tout Jessie Bates**\
-`Atlanta safety Jessie Bates should be a candidate for Defensive Player of the Year, his teammates say, but can a safety win it these days?`\
-https://nytimes.com/athletic/5845449/2024/10/16/falcons-jessie-bates-defensive-player-of-the-year/
 
