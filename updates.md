@@ -1,3 +1,7 @@
+**These 9 Women Were Solidly With Trump. Here’s What Has Changed.**\
+`The participants discuss how Kamala Harris’s entry into the race changed — or didn’t change — their thinking about the election.`\
+https://nytimes.com/interactive/2024/10/16/opinion/16focus-group-women-trump-voters.html
+
 **How the Guardians can get back in the ALCS against the Yankees**\
 `With the ALCS shifting back to Progressive Field, how can the Cleveland Guardians transform their postgame space into a party scene?`\
 https://nytimes.com/athletic/5846700/2024/10/16/cleveland-guardians-new-york-yankees-alcs-game-2-analysis/

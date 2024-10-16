@@ -1,3 +1,7 @@
+**These 9 Women Were Solidly With Trump. Here’s What Has Changed.**\
+`The participants discuss how Kamala Harris’s entry into the race changed — or didn’t change — their thinking about the election.`\
+https://nytimes.com/interactive/2024/10/16/opinion/16focus-group-women-trump-voters.html
+
 **How the Guardians can get back in the ALCS against the Yankees**\
 `With the ALCS shifting back to Progressive Field, how can the Cleveland Guardians transform their postgame space into a party scene?`\
 https://nytimes.com/athletic/5846700/2024/10/16/cleveland-guardians-new-york-yankees-alcs-game-2-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5842298/2024/10/16/jean-clair-todibo-maximilian-kil
 **Alan Kelly at Everton: Working with 'leader' Pickford, classy Coleman, Ancelotti's 'hope'**\
 `The former Everton goalkeeper coach left in the summer - he has nothing but fond memories of his time at Goodison Park`\
 https://nytimes.com/athletic/5836458/2024/10/16/alan-kelly-interview-everton-jordan-pickford-ancelotti/
-
-**A celebration of Ryan Yates, the Nottingham Forest player opposition fans love to hate**\
-`The midfielder's energy and attitude have ensured he remains a key part of Nuno Espirito Santo's first-team plans`\
-https://nytimes.com/athletic/5844655/2024/10/16/ryan-yates-workrate-celebration-forest/
 
