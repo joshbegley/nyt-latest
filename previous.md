@@ -1,3 +1,11 @@
+**Judge homers, Yankees take 2-0 ALCS lead on Guardians: Takeaways**\
+`The series will resume in Cleveland for Game 3 on Thursday. `\
+https://nytimes.com/athletic/5846495/2024/10/15/aaron-judge-hits-first-hr-of-postseason-as-yankees-take-2-0-alcs-lead-on-guardians-takeaways/
+
+**Scottie Barnes' growth as a leader will be measured by how he plays in the bad moments**\
+`In good moments and bad, Barnes kept his composure in an entertaining preseason game.`\
+https://nytimes.com/athletic/5846488/2024/10/15/scottie-barnes-growth-leader-raptors/
+
 **Filip Gustavsson scores Wild's first-ever goalie goal in win vs. Blues: 4 takeaways**\
 `Newcomer Jakub Lauko and goalie Filip Gustavsson both recorded a first as the Wild dispatched the Blues 4-1 at home.`\
 https://nytimes.com/athletic/5846267/2024/10/15/wild-goalie-goal-gustavsson-lauko/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/15/us/politics/trump-opponents-enemy-within.html
 **At Town Hall on Women’s Issues, Trump Renews ‘Enemy Within’ Talk**\
 `Donald Trump fielded questions from an audience of all women in Georgia for a Fox News event to be broadcast on Wednesday morning.`\
 https://nytimes.com/2024/10/15/us/politics/trump-fox-news-women-town-hall.html
-
-**Corrections: Oct. 16, 2024**\
-`Corrections that appeared in print on Wednesday, Oct. 16, 2024.`\
-https://nytimes.com/2024/10/15/pageoneplus/corrections-oct-16-2024.html
-
-**Biden Takes On Campaign Duty in Pennsylvania, Celebrating Unions**\
-`As Jill Biden and JD Vance also made stops around Philadelphia, the president’s visit highlighted the intense struggle to persuade voters in what may be the most critical swing state.`\
-https://nytimes.com/2024/10/15/us/politics/biden-campaigning-philadelphia.html
 
