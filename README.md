@@ -1,3 +1,7 @@
+**In Pennsylvania, Walz Blasts Trump and Vance as the Outsiders, Not Immigrants**\
+`The Democratic vice-presidential nominee unveiled his ticket’s plan targeted at rural voters — including those protesting his visit.`\
+https://nytimes.com/2024/10/15/us/politics/tim-walz-pennsylvania-trump-vance.html
+
 **Trump Escalates Threats to Political Opponents He Deems the ‘Enemy’**\
 `Never before has a presidential nominee openly suggested turning the military on Americans simply because they oppose his candidacy. With voting underway, Donald Trump has turned to dark vows of retribution.`\
 https://nytimes.com/2024/10/15/us/politics/trump-opponents-enemy-within.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/podcasts/100000009763558/amelia-dimoldenberg-modern-lo
 **Blue Jackets honor Gaudreau by playing 13 seconds without left winger**\
 `It was not the typical season opener for the Blue Jackets, who focused on remembering Johnny and Matthew Gaudreau.`\
 https://nytimes.com/athletic/5846346/2024/10/15/blue-jackets-johnny-gaudreau-honor-opening-night/
-
-**Jerry Jones explains himself to The Athletic after fired up comments**\
-`"The facts are that if I’m going to be grilled by the tribunal, I don’t need it to be by the guys I’m paying," Jones said.`\
-https://nytimes.com/athletic/5846247/2024/10/15/jerry-jones-radio-comments-exclusive/
 
