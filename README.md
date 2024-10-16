@@ -1,5 +1,5 @@
 **Is it time to worry about the Canucks after third consecutive loss? 3 takeaways**\
-`Vancouver picked up its first regulation loss against the Lightning, falling 4-1 on Tuesday night.`\
+`Vancouver picked up its first regulation loss against Tampa Bay, falling 4-1 on Tuesday night.`\
 https://nytimes.com/athletic/5846324/2024/10/15/canucks-third-consecutive-loss-lightning/
 
 **Airer of Hearings**\
