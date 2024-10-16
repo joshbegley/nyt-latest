@@ -1,3 +1,7 @@
+**In Pennsylvania, Walz Blasts Trump and Vance as the Outsiders, Not Immigrants**\
+`The Democratic vice-presidential nominee unveiled his ticket’s plan targeted at rural voters — including those protesting his visit.`\
+https://nytimes.com/2024/10/15/us/politics/tim-walz-pennsylvania-trump-vance.html
+
 **Trump Escalates Threats to Political Opponents He Deems the ‘Enemy’**\
 `Never before has a presidential nominee openly suggested turning the military on Americans simply because they oppose his candidacy. With voting underway, Donald Trump has turned to dark vows of retribution.`\
 https://nytimes.com/2024/10/15/us/politics/trump-opponents-enemy-within.html
