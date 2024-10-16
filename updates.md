@@ -1,3 +1,7 @@
+**Real Madrid make Alexander-Arnold a priority transfer target**\
+`Real Madrid have made Liverpool&#8217;s Trent Alexander-Arnold a priority target.`\
+https://nytimes.com/athletic/5847668/2024/10/16/trent-alexander-arnold-real-madrid-liverpool/
+
 **The Windup: Yankees win! But not any style points**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter.`\
 https://nytimes.com/athletic/5847754/2024/10/16/yankees-guardians-alcs-mlb-the-windup/
