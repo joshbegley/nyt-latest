@@ -1,3 +1,15 @@
+**Asked if He Thinks Trump Lost in 2020, Vance Finally Gives an Answer: No**\
+`Senator JD Vance, former President Donald J. Trump’s running mate, had spent weeks dodging questions about Mr. Trump’s false claims he won the 2020 election.`\
+https://nytimes.com/2024/10/16/us/politics/vance-trump-2020-election.html
+
+**When Patriarchy Trumps Race**\
+`Despite his flaws, the former president’s ideas and style appeal to some Black men.`\
+https://nytimes.com/2024/10/16/opinion/black-men-harris-trump.html
+
+**Packers 'comfortable' with K Brandon McManus after sexual assault lawsuit**\
+`McManus, who was accused of sexual assault, replaces Brayden Narveson after the rookie struggled through the first six weeks.`\
+https://nytimes.com/athletic/5848549/2024/10/16/packers-brandon-mcmanus-kicker-signed/
+
 **Ananda Lewis, Former MTV V.J., Says She Has Stage 4 Breast Cancer**\
 `Lewis, the host of the 1990s MTV show “Hot Zone,” tried to fight her illness without undergoing a double mastectomy. She says she is responding well after resuming treatment.`\
 https://nytimes.com/2024/10/16/arts/television/mtv-ananda-lewis-breast-cancer.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/16/us/politics/in-a-harris-ad-a-black-man-speaks-to-
 **Trump Faced Tough Questions From Hispanic Voters**\
 `Also, the Supreme Court suggested that U.S. water regulations are too vague. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/10/16/briefing/trump-hispanic-voters-tulsa-brain-drain.html
-
-**Liam Payne, 31, Former One Direction Singer, Dies in Fall in Argentina**\
-`Payne, who was one of the group’s standout singers, fell from the third floor of a hotel in Buenos Aires, emergency services officials said.`\
-https://nytimes.com/2024/10/16/arts/music/liam-payne-dead-one-direction.html
-
-**Water Crises Threaten the World’s Ability to Eat, Studies Show**\
-`Food production is concentrated in too few countries, many of which face water shortages, the researchers said.`\
-https://nytimes.com/2024/10/16/climate/water-shortages-global-food-supply.html
-
-**Trump’s Rallies Are a World Unto Themselves**\
-`But what is it about them that people remember?`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/trumps-rallies-are-a-world-unto-themselves
 
