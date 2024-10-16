@@ -1,3 +1,15 @@
+**Shares of Louis Vuitton Owner Drop on Anxiety About Chinese Shoppers**\
+`Weak sales in China at LVMH, the owner of Dior, Tiffany and more, sent a shudder through the luxury sector.`\
+https://nytimes.com/2024/10/16/business/dealbook/lvmh-dior-louis-vuitton-china.html
+
+**The Bounce: Are the Magic ready for another leap?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5847000/2024/10/16/magic-paolo-banchero-nba-the-bounce/
+
+**Fuel Tanker Explosion Leaves at Least 90 Dead in Nigeria**\
+`Residents of a nearby town came to scoop up the spilled gasoline, but then the tanker exploded, setting off an inferno — an echo of several similar disasters in recent years.`\
+https://nytimes.com/2024/10/16/world/africa/nigeria-fuel-tanker-explosion.html
+
 **Hurricanes Spur Pet Adoptions Nationwide. Should You Get a ‘Storm Dog’?**\
 `Amid major disasters, shelter animals are often sent to other states. And people are more likely to foster and adopt. Here’s what to know.`\
 https://nytimes.com/2024/10/16/us/hurricanes-shelters-pet-adoptions.html
