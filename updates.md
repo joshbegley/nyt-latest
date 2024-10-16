@@ -1,3 +1,7 @@
+**Messi feels 'like a kid' after Argentina hat-trick against Bolivia**\
+`Lionel Messi says he still feels &#8220;like a kid&#8221; playing for Argentina after scoring a hat-trick in his country&#8217;s 6-0 victory over Bolivia on Tuesday.`\
+https://nytimes.com/athletic/5846795/2024/10/16/lionel-messi-hat-trick-argentina-bolivia/
+
 **Push for High-Rise Next to Beloved Garden Becomes Battle Over Shadows**\
 `The Brooklyn Botanic Garden and its supporters are fighting a proposal to build a 14-story apartment building that would cast shadows on the garden.`\
 https://nytimes.com/2024/10/16/nyregion/brooklyn-botanic-garden-shadows.html
