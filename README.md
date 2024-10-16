@@ -1,3 +1,15 @@
+**In ‘Sweet Bobby,’ Catfishing Is Even Worse Than You Might Think**\
+`A new Netflix documentary tells a sinister tale of a decade-long online romance scam, and the devastation that followed.`\
+https://nytimes.com/2024/10/16/style/sweet-bobby-netflix.html
+
+**Sex, Power, Money and ‘Mr. McMahon’**\
+`How decades of sexual assault allegations were swept under the rug in professional wrestling`\
+https://nytimes.com/2024/10/16/opinion/mcmahon-sexual-assault.html
+
+**My Male Partner Cheated on Me With My Gay Best Friend. Now What?**\
+`A reader is eager to patch things over with her best friend and her boyfriend after they had a tryst behind her back. But should she be?`\
+https://nytimes.com/2024/10/16/style/infidelity-best-friend-forgiveness.html
+
 **Female Mountain Bikers Backflip Their Way to Equality**\
 `Traditionally, only men were invited to the scariest and most lucrative event in mountain biking. This year, women shared equally in the adrenaline and the prizes.`\
 https://nytimes.com/2024/10/16/us/red-bull-rampage-women-mountain-biking.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/16/us/trump-harris-election/heres-the-latest-on
 **Election Live Updates: Harris and Trump Blitz the Media With 20 Days to Go**\
 `Kamala Harris will appear on Fox News, while two town halls with Donald J. Trump will be broadcast on Wednesday.`\
 https://nytimes.com/live/2024/10/16/us/trump-harris-election
-
-**Israel permits a small amount of aid into northern Gaza after the U.S. issues a warning.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/israel-permits-a-small-amount-of-aid-into-northern-gaza-after-the-us-issues-a-warning
-
-**The Athletic FC: England hire Tuchel - a good call? Plus: USMNT's wake-up call, Messi treble**\
-`Today in TAFC: England hire Thomas Tuchel as they change approach. Plus: USMNT get a wake-up call and Messi stars with a hat-trick.`\
-https://nytimes.com/athletic/5846888/2024/10/16/the-athletic-fc-england-hire-tuchel-a-good-call-plus-usmnts-wake-up-call-messi-treble/
-
-**How Kris Knoblauch sparked Leon Draisaitl with a new approach**\
-`Knoblauch had the guts to do what his predecessors either wouldn’t or felt they couldn’t, and it paid off with the Oilers' first win.`\
-https://nytimes.com/athletic/5846815/2024/10/16/leon-draisaitl-oilers-flyers-win/
 
