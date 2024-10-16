@@ -1,3 +1,11 @@
+**Female Mountain Bikers Backflip Their Way to Equality**\
+`Traditionally, only men were invited to the scariest and most lucrative event in mountain biking. This year, women shared equally in the adrenaline and the prizes.`\
+https://nytimes.com/2024/10/16/us/red-bull-rampage-women-mountain-biking.html
+
+**Balogun set for two months out with dislocated shoulder**\
+`USMNT striker Folarin Balogun is expected to be sidelined for around two months with a dislocated shoulder.`\
+https://nytimes.com/athletic/5847109/2024/10/16/folarin-balogun-shoulder-injury-update/
+
 **Israeli Airstrikes Target Suburban Beirut and Southern Lebanon**\
 `The attacks came after the United States expressed concerns about the bombardment of the Lebanese capital.`\
 https://nytimes.com/video/world/middleeast/100000009764239/israel-lebanon-attack.html
