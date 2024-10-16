@@ -1,3 +1,7 @@
+**Columbia Bars Vocal Pro-Israel Professor From Campus**\
+`The university said that Shai Davidai has repeatedly harassed and intimidated employees. He said that the university has not done enough to crack down on pro-Palestinian protests.`\
+https://nytimes.com/2024/10/16/us/columbia-professor-shai-davidai-banned.html
+
 **Trump Tries Out ‘Father of I.V.F.’ Nickname in Pitch to Women Voters**\
 `His campaign said the comment, which he said at an event focused on women’s issues, was “made in jest.” He has supported access to I.V.F. recently but didn’t promote it before this year.`\
 https://nytimes.com/2024/10/16/us/politics/trump-ivf-abortion.html

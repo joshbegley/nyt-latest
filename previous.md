@@ -1,3 +1,7 @@
+**Columbia Bars Vocal Pro-Israel Professor From Campus**\
+`The university said that Shai Davidai has repeatedly harassed and intimidated employees. He said that the university has not done enough to crack down on pro-Palestinian protests.`\
+https://nytimes.com/2024/10/16/us/columbia-professor-shai-davidai-banned.html
+
 **Trump Tries Out ‘Father of I.V.F.’ Nickname in Pitch to Women Voters**\
 `His campaign said the comment, which he said at an event focused on women’s issues, was “made in jest.” He has supported access to I.V.F. recently but didn’t promote it before this year.`\
 https://nytimes.com/2024/10/16/us/politics/trump-ivf-abortion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5846360/2024/10/16/minnesota-twins-diamond-awards-2
 **Submit Twins questions for Aaron Gleeman's next mailbag**\
 `It's been a busy start to the Twins' offseason — to say the least. What questions do you have about the team?`\
 https://nytimes.com/athletic/5847580/2024/10/16/twins-questions-submit-gleeman/
-
-**Lowetide: Resetting expectations for Oilers defenceman Ty Emberson**\
-`Entering the season, Emberson was thought to be the most likely second-pairing option with Darnell Nurse.`\
-https://nytimes.com/athletic/5844862/2024/10/16/oilers-ty-emberson-stats-nurse/
 
