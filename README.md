@@ -1,3 +1,11 @@
+**Jerry Reinsdorf open to selling White Sox: Sources**\
+`The 88-year-old majority owner is in active discussions with a group led by former big leaguer Dave Stewart.`\
+https://nytimes.com/athletic/5848339/2024/10/16/jerry-reinsdorf-chicago-white-sox-sale/
+
+**Georgia Prosecutor Seeks to Reinstate Quashed Charges in Trump Elections Case**\
+`The appeal filed on Tuesday disputes a judge’s ruling that six of the charges brought against Donald J. Trump and his allies in Georgia were not specific enough.`\
+https://nytimes.com/2024/10/16/us/fani-willis-trump-georgia-charges-appeal.html
+
 **For Ruben Gallego, the Campaign Trail Runs Through the Grand Canyon**\
 `The Democratic congressman, who is running for Senate in Arizona, hiked thousands of feet down to meet the Havasupai, a Native tribe, on their land, part of an extensive outreach effort in a competitive race.`\
 https://nytimes.com/2024/10/16/us/politics/ruben-gallego-grand-canyon.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/style/tiny-modern-love-stories-a-queer-kid-in-app
 **In This Small Maine County, the Sheriff’s Race Is Haunted by a Mass Shooting**\
 `The race has become a referendum on what the Sagadahoc County Sheriff’s Office did, and failed to do, before a shooting that killed 18 people in Lewiston last fall.`\
 https://nytimes.com/2024/10/16/us/maine-county-sheriff-race-mass-shooting.html
-
-**Hungry for Energy, Amazon, Google and Microsoft Turn to Nuclear Power**\
-`Large technology companies are investing billions of dollars in nuclear energy as an emissions-free source of electricity for artificial intelligence and other businesses.`\
-https://nytimes.com/2024/10/16/business/energy-environment/amazon-google-microsoft-nuclear-energy.html
-
-**Biden Announces $425 Million in Aid to Ukraine**\
-`President Biden spoke by telephone to President Volodymyr Zelensky of Ukraine about the security package, which includes munitions, armored vehicles and other weapons.`\
-https://nytimes.com/2024/10/16/us/politics/biden-ukraine-aid.html
 
