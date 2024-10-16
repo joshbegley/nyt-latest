@@ -1,3 +1,7 @@
+**Amelia Dimoldenberg Never Waits to Text, Even on the Oscars Red Carpet**\
+`Amelia Dimoldeberg, the host of the viral video series “Chicken Shop Date,” sits down with Anna Martin, the host of The New York Times’s podcast “Modern Love,” to explain why she always texts someone she’s interested in right away.`\
+https://nytimes.com/video/podcasts/100000009763558/amelia-dimoldenberg-modern-love.html
+
 **Blue Jackets honor Gaudreau by playing 13 seconds without left winger**\
 `It was not the typical season opener for the Blue Jackets, who focused on remembering Johnny and Matthew Gaudreau.`\
 https://nytimes.com/athletic/5846346/2024/10/15/blue-jackets-johnny-gaudreau-honor-opening-night/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5846159/2024/10/15/andrew-thomas-giants-foot-injury
 **Asked About Conversations With Putin, Trump Dodges: ‘I Don’t Talk About That’**\
 `The former president, who once pushed to prosecute a former secretary of state for talking with foreign officials, said that it would be “a good thing” for himself to have secretly kept in touch with President Vladimir V. Putin of Russia — if he did.`\
 https://nytimes.com/2024/10/15/us/politics/trump-putin-communication.html
-
-**How America Can Stop a Mideast Missile War That Everyone Will Lose**\
-`A real strategy for coercive U.S. diplomacy to change Iran’s behavior.`\
-https://nytimes.com/2024/10/15/opinion/iran-israel-war.html
 
