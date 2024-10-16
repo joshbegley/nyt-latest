@@ -1,3 +1,7 @@
+**Judge Blocks Hand-Counting of Election Ballots in Georgia**\
+`The ruling was confined to the current election, halting the measure from going into effect for 2024 while the judge further weighs its merits in the future.`\
+https://nytimes.com/2024/10/15/us/elections/georgia-ballot-hand-count-ruling.html
+
 **Is it time to worry about the Canucks after third consecutive loss? 3 takeaways**\
 `Vancouver picked up its first regulation loss against Tampa Bay, falling 4-1 on Tuesday night.`\
 https://nytimes.com/athletic/5846324/2024/10/15/canucks-third-consecutive-loss-lightning/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/15/us/politics/kamala-harris-charlamagne-interview-t
 **Pentagon to Give Honorable Discharges to Some Kicked Out Under ‘Don’t Ask, Don’t Tell’**\
 `More than 800 service members administratively separated from the military under the now-repealed policy will receive discharge upgrades.`\
 https://nytimes.com/2024/10/15/us/dont-ask-dont-tell.html
-
-**Amelia Dimoldenberg Never Waits to Text, Even on the Oscars Red Carpet**\
-`Amelia Dimoldeberg, the host of the viral video series “Chicken Shop Date,” sits down with Anna Martin, the host of The New York Times’s podcast “Modern Love,” to explain why she always texts someone she’s interested in right away.`\
-https://nytimes.com/video/podcasts/100000009763558/amelia-dimoldenberg-modern-love.html
 
