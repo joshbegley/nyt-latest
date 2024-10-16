@@ -1,3 +1,7 @@
+**Self-belief, experience and support from the manager: How to bounce back from a howler**\
+`Rob Green and Matt Pyzdrowski explain how they dealt with errors during their careers and offer some advice to Leeds' Illan Meslier`\
+https://nytimes.com/athletic/5824763/2024/10/16/how-meslier-can-bounce-back/
+
 **Understanding Havertz: What makes him tick and how Arsenal are getting the best out of him**\
 `Havertz is a player transformed at Arsenal after a slow start - this is how manager Mikel Arteta is helping him to perform so well`\
 https://nytimes.com/athletic/5830675/2024/10/16/kai-havertz-mindset-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5846495/2024/10/15/yankees-guardians-mlb-score-alcs
 **Scottie Barnes' growth as a leader will be measured by how he plays in the bad moments**\
 `In good moments and bad, Barnes kept his composure in an entertaining preseason game.`\
 https://nytimes.com/athletic/5846488/2024/10/15/scottie-barnes-growth-leader-raptors/
-
-**Filip Gustavsson scores Wild's first-ever goalie goal in win vs. Blues: 4 takeaways**\
-`Newcomer Jakub Lauko and goalie Filip Gustavsson both recorded a first as the Wild dispatched the Blues 4-1 at home.`\
-https://nytimes.com/athletic/5846267/2024/10/15/wild-goalie-goal-gustavsson-lauko/
 

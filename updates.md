@@ -1,3 +1,7 @@
+**Self-belief, experience and support from the manager: How to bounce back from a howler**\
+`Rob Green and Matt Pyzdrowski explain how they dealt with errors during their careers and offer some advice to Leeds' Illan Meslier`\
+https://nytimes.com/athletic/5824763/2024/10/16/how-meslier-can-bounce-back/
+
 **Understanding Havertz: What makes him tick and how Arsenal are getting the best out of him**\
 `Havertz is a player transformed at Arsenal after a slow start - this is how manager Mikel Arteta is helping him to perform so well`\
 https://nytimes.com/athletic/5830675/2024/10/16/kai-havertz-mindset-arsenal/
