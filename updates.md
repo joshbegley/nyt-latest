@@ -1,3 +1,11 @@
+**Biden Announces $425 Million in Aid to Ukraine**\
+`President Biden spoke by telephone to President Volodymyr Zelensky of Ukraine about the security package, which includes munitions, armored vehicles and other weapons.`\
+https://nytimes.com/2024/10/16/us/politics/biden-ukraine-aid.html
+
+**Hurricane Helene Eroded Our Shared Reality**\
+`Climate misinformation isn’t new. But it’s getting worse.`\
+https://nytimes.com/2024/10/16/opinion/hurricane-helene-misinformation.html
+
 **A Weary Trump Whips Up Anger in Atlanta**\
 `At a rally in a state he lost in 2020, the former president considered the possibility of another defeat.`\
 https://nytimes.com/2024/10/16/us/elections/trump-georgia-rally.html
