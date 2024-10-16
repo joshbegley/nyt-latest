@@ -1,3 +1,7 @@
+**Trump’s Rallies Are a World Unto Themselves**\
+`But what is it about them that people remember?`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/trumps-rallies-are-a-world-unto-themselves
+
 **Conservative Justices Appear to Side With San Francisco in Water Quality Dispute**\
 `The justices heard arguments on Wednesday in a long-simmering dispute between San Francisco and the E.P.A. over regulation of water pollution.`\
 https://nytimes.com/2024/10/16/us/politics/supreme-court-san-francisco-water-pollution.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/us/supreme-court-epa-emissions.html
 **Trudeau Goes on Offensive Over Foreign Interference Claims**\
 `Facing a revolt in his own party, Prime Minister Justin Trudeau attacked both the Conservative opposition and India’s government, which he said had made “a horrific mistake” in the killing of a Sikh activist.`\
 https://nytimes.com/2024/10/16/world/canada/trudeau-india-canada-sovereignty.html
-
-**Jerry Reinsdorf open to selling White Sox: Sources**\
-`The 88-year-old majority owner is in active discussions with a group led by former big leaguer Dave Stewart.`\
-https://nytimes.com/athletic/5848339/2024/10/16/jerry-reinsdorf-chicago-white-sox-sale/
 
