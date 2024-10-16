@@ -1,3 +1,15 @@
+**Tuchel addresses England doubters: 'I'm sorry I have a German passport'**\
+`Thomas Tuchel says the onus is on him to show supporters that he deserves a “fair chance” after becoming the new England head coach in light of the Football Association being criticised for appointing a German coach.`\
+https://nytimes.com/athletic/5847305/2024/10/16/thomas-tuchel-england-manager-german/
+
+**Liz Cheney endorses Democrat Wild in competitive Pennsylvania House race.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/10/16/us/trump-harris-election/liz-cheney-endorses-democrat-wild-in-competitive-pennsylvania-house-race
+
+**Jamal Crawford to call Knicks games on MSG Network this season**\
+`This move comes as Crawford is a sought-after free agent on the national scene with interest from major networks.`\
+https://nytimes.com/athletic/5847318/2024/10/16/jamal-crawford-knicks-msg-network/
+
 **Nebraska Supreme Court Upholds Voting Rights for Felons**\
 `Legislators voted to restore voting rights to more people convicted of felonies, but a dispute over that law’s constitutionality created pre-election confusion.`\
 https://nytimes.com/2024/10/16/us/nebraska-felon-voting-rights.html

@@ -1,3 +1,15 @@
+**Tuchel addresses England doubters: 'I'm sorry I have a German passport'**\
+`Thomas Tuchel says the onus is on him to show supporters that he deserves a “fair chance” after becoming the new England head coach in light of the Football Association being criticised for appointing a German coach.`\
+https://nytimes.com/athletic/5847305/2024/10/16/thomas-tuchel-england-manager-german/
+
+**Liz Cheney endorses Democrat Wild in competitive Pennsylvania House race.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/10/16/us/trump-harris-election/liz-cheney-endorses-democrat-wild-in-competitive-pennsylvania-house-race
+
+**Jamal Crawford to call Knicks games on MSG Network this season**\
+`This move comes as Crawford is a sought-after free agent on the national scene with interest from major networks.`\
+https://nytimes.com/athletic/5847318/2024/10/16/jamal-crawford-knicks-msg-network/
+
 **Nebraska Supreme Court Upholds Voting Rights for Felons**\
 `Legislators voted to restore voting rights to more people convicted of felonies, but a dispute over that law’s constitutionality created pre-election confusion.`\
 https://nytimes.com/2024/10/16/us/nebraska-felon-voting-rights.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/16/world/africa/nigeria-fuel-tanker-explosion.html
 **Hurricanes Spur Pet Adoptions Nationwide. Should You Get a ‘Storm Dog’?**\
 `Amid major disasters, shelter animals are often sent to other states. And people are more likely to foster and adopt. Here’s what to know.`\
 https://nytimes.com/2024/10/16/us/hurricanes-shelters-pet-adoptions.html
-
-**Leeds duo James and Solomon return from absences**\
-`Leeds United have been handed a boost with the return of Daniel James (pictured) and Manor Solomon to first-team training.`\
-https://nytimes.com/athletic/5847248/2024/10/16/dan-james-manor-solomon-leeds-injury-update/
-
-**It’s Not Just Taylor Swift. Music Activism Gets Back on the Road.**\
-`Bands were sidelined by the Covid-19 pandemic during the 2020 campaign. This year, with increasing sophistication, they are encouraging political activism.`\
-https://nytimes.com/2024/10/16/us/politics/musicians-political-activism-kamala-harris.html
-
-**Derrick Henry has been a perfect fit for Ravens, embracing the role of closer**\
-`Henry, the NFL's leading rusher through six weeks, has been everything Baltimore was hoping for when it signed him in the offseason.`\
-https://nytimes.com/athletic/5846465/2024/10/16/baltimore-ravens-derrick-henry-closer/
 
