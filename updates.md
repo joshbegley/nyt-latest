@@ -1,3 +1,7 @@
+**For North Korea, War in Ukraine Is a Coveted Chance for Military Practice**\
+`North Korea is testing its new weapons on Russia’s side in the war, and Ukrainian officials say the North’s troops are also gaining direct battle experience.`\
+https://nytimes.com/2024/10/16/world/asia/north-korea-ukraine-russia.html
+
 **‘The guy can play whatever’: Inside the rise of Leo Chenal, the Chiefs’ most underrated defensive player**\
 `In his third season, Chenal has become the Chiefs’ most versatile defender. "The guy can play whatever."`\
 https://nytimes.com/athletic/5845761/2024/10/16/chiefs-leo-chenal-underrated-defensive-player/
