@@ -1,3 +1,15 @@
+**Top Black business leaders aim to motivate Black men to vote for Harris.**\
+`By Kate Kelly`\
+https://nytimes.com/live/2024/10/16/us/trump-harris-election/top-black-business-leaders-aim-to-motivate-black-men-to-vote-for-harris
+
+**Melissa Explains It All (About Pantry Dinners)**\
+`Keeping a well-stocked pantry is one thing; leveling up those convenient dinners is another. Here’s how to do it.`\
+https://nytimes.com/2024/10/16/dining/well-stocked-pantry.html
+
+**Spence signs new Spurs deal through to 2028**\
+`Tottenham Hotspur defender Djed Spence has signed a contract extension through to 2028.`\
+https://nytimes.com/athletic/5847418/2024/10/16/djed-spence-tottenham-contract-new/
+
 **How one training-camp decision opened a new path for Rangers' Chris Kreider**\
 `Since the Rangers put Kreider on the penalty kill ahead of the 2021-22 season, his engagement and production in all areas has taken off.`\
 https://nytimes.com/athletic/5847073/2024/10/16/chris-kreider-penalty-killing-breakout/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5846159/2024/10/16/andrew-thomas-giants-foot-injury
 **Tuchel addresses England doubters: 'I'm sorry I have a German passport'**\
 `Thomas Tuchel says the onus is on him to show supporters that he deserves a “fair chance” after becoming the new England head coach in light of the Football Association being criticised for appointing a German coach.`\
 https://nytimes.com/athletic/5847305/2024/10/16/thomas-tuchel-england-manager-german/
-
-**Liz Cheney endorses Democrat Wild in competitive Pennsylvania House race.**\
-`By Luke Broadwater`\
-https://nytimes.com/live/2024/10/16/us/trump-harris-election/liz-cheney-endorses-democrat-wild-in-competitive-pennsylvania-house-race
-
-**Jamal Crawford to call Knicks games on MSG Network this season**\
-`This move comes as Crawford is a sought-after free agent on the national scene with interest from major networks.`\
-https://nytimes.com/athletic/5847318/2024/10/16/jamal-crawford-knicks-msg-network/
-
-**Nebraska Supreme Court Upholds Voting Rights for Felons**\
-`Legislators voted to restore voting rights to more people convicted of felonies, but a dispute over that law’s constitutionality created pre-election confusion.`\
-https://nytimes.com/2024/10/16/us/nebraska-felon-voting-rights.html
 
