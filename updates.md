@@ -1,3 +1,7 @@
+**Pentagon to Give Honorable Discharges to Some Kicked Out Under ‘Don’t Ask, Don’t Tell’**\
+`More than 800 service members administratively separated from the military under the now-repealed policy will receive discharge upgrades.`\
+https://nytimes.com/2024/10/15/us/dont-ask-dont-tell.html
+
 **Amelia Dimoldenberg Never Waits to Text, Even on the Oscars Red Carpet**\
 `Amelia Dimoldeberg, the host of the viral video series “Chicken Shop Date,” sits down with Anna Martin, the host of The New York Times’s podcast “Modern Love,” to explain why she always texts someone she’s interested in right away.`\
 https://nytimes.com/video/podcasts/100000009763558/amelia-dimoldenberg-modern-love.html

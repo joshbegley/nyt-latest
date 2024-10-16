@@ -10,7 +10,7 @@ https://nytimes.com/video/podcasts/100000009763558/amelia-dimoldenberg-modern-lo
 `It was not the typical season opener for the Blue Jackets, who focused on remembering Johnny and Matthew Gaudreau.`\
 https://nytimes.com/athletic/5846346/2024/10/15/blue-jackets-johnny-gaudreau-honor-opening-night/
 
-**Jerry Jones defends himself to The Athletic after fired up comments**\
+**Jerry Jones explains himself to The Athletic after fired up comments**\
 `"The facts are that if I’m going to be grilled by the tribunal, I don’t need it to be by the guys I’m paying," Jones said.`\
 https://nytimes.com/athletic/5846247/2024/10/15/jerry-jones-radio-comments-exclusive/
 

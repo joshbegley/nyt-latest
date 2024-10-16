@@ -1,3 +1,7 @@
+**Pentagon to Give Honorable Discharges to Some Kicked Out Under ‘Don’t Ask, Don’t Tell’**\
+`More than 800 service members administratively separated from the military under the now-repealed policy will receive discharge upgrades.`\
+https://nytimes.com/2024/10/15/us/dont-ask-dont-tell.html
+
 **Amelia Dimoldenberg Never Waits to Text, Even on the Oscars Red Carpet**\
 `Amelia Dimoldeberg, the host of the viral video series “Chicken Shop Date,” sits down with Anna Martin, the host of The New York Times’s podcast “Modern Love,” to explain why she always texts someone she’s interested in right away.`\
 https://nytimes.com/video/podcasts/100000009763558/amelia-dimoldenberg-modern-love.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/charlamagne-harris-intervie
 **Giants' Andrew Thomas out with potential season-ending foot injury: Source**\
 `Thomas injured his foot on the Giants’ sole touchdown drive in Sunday’s loss to the Cincinnati Bengals.`\
 https://nytimes.com/athletic/5846159/2024/10/15/andrew-thomas-giants-foot-injury-update/
-
-**Asked About Conversations With Putin, Trump Dodges: ‘I Don’t Talk About That’**\
-`The former president, who once pushed to prosecute a former secretary of state for talking with foreign officials, said that it would be “a good thing” for himself to have secretly kept in touch with President Vladimir V. Putin of Russia — if he did.`\
-https://nytimes.com/2024/10/15/us/politics/trump-putin-communication.html
 
