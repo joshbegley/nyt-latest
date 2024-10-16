@@ -1,3 +1,15 @@
+**Biden Takes On Campaign Duty in Pennsylvania, Celebrating Unions**\
+`As Jill Biden and JD Vance also made stops around Philadelphia, the president’s visit highlighted the intense struggle to persuade voters in what may be the most critical swing state.`\
+https://nytimes.com/2024/10/15/us/politics/biden-campaigning-philadelphia.html
+
+**Harris Agrees Trump Is a Fascist: 5 Charlamagne Interview Takeaways**\
+`During a free-flowing interview that was by turns friendly and pointed, the vice president went beyond her previous remarks in casting Donald Trump as an authoritarian.`\
+https://nytimes.com/2024/10/15/us/politics/kamala-harris-charlamagne-interview-trump.html
+
+**Jerry Jones explains himself to The Athletic after fired up comments**\
+`"The facts are that if I’m going to be grilled by the tribunal, I don’t need it to be by the guys I’m paying," Jones said.`\
+https://nytimes.com/athletic/5846247/2024/10/15/jerry-jones-radio-comments-exclusive/
+
 **Pentagon to Give Honorable Discharges to Some Kicked Out Under ‘Don’t Ask, Don’t Tell’**\
 `More than 800 service members administratively separated from the military under the now-repealed policy will receive discharge upgrades.`\
 https://nytimes.com/2024/10/15/us/dont-ask-dont-tell.html
