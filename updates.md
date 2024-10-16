@@ -1,3 +1,15 @@
+**Antichrists, Chain Saws and Natalism: A Very ‘M.O.O.’ Halloween Episode**\
+`The hosts share their favorite scary movies, books and television series.`\
+https://nytimes.com/2024/10/16/opinion/scary-books-tv-movies.html
+
+**Richard V. Secord, Middleman in Iran-Contra Scandal, Dies at 92**\
+`A war hero and a former Air Force general, he denied wrongdoing for his role in the Reagan-era shipment of arms to Iran to support Nicaraguan rebels.`\
+https://nytimes.com/2024/10/16/us/politics/richard-v-secord-middleman-in-iran-contra-scandal-dies-at-92.html
+
+**Why an Interview on Fox News Made Sense for Kamala Harris**\
+`The vice president will take questions from Bret Baier in a session to be broadcast at 6 p.m. She joins a long line of Democratic candidates and elected officials who have ventured into hostile television territory.`\
+https://nytimes.com/2024/10/16/us/politics/harris-democrats-fox-interview.html
+
 **A Top Chess Player Is Disqualified After a Phone Is Found in a Bathroom Stall**\
 `Kirill Shevchenko, a grandmaster who represents Romania, has been accused of getting assistance from a computer in the middle of games.`\
 https://nytimes.com/2024/10/16/sports/kirill-shevchenko-chess-expelled-phone.html

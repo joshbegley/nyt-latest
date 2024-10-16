@@ -1,3 +1,15 @@
+**Antichrists, Chain Saws and Natalism: A Very ‘M.O.O.’ Halloween Episode**\
+`The hosts share their favorite scary movies, books and television series.`\
+https://nytimes.com/2024/10/16/opinion/scary-books-tv-movies.html
+
+**Richard V. Secord, Middleman in Iran-Contra Scandal, Dies at 92**\
+`A war hero and a former Air Force general, he denied wrongdoing for his role in the Reagan-era shipment of arms to Iran to support Nicaraguan rebels.`\
+https://nytimes.com/2024/10/16/us/politics/richard-v-secord-middleman-in-iran-contra-scandal-dies-at-92.html
+
+**Why an Interview on Fox News Made Sense for Kamala Harris**\
+`The vice president will take questions from Bret Baier in a session to be broadcast at 6 p.m. She joins a long line of Democratic candidates and elected officials who have ventured into hostile television territory.`\
+https://nytimes.com/2024/10/16/us/politics/harris-democrats-fox-interview.html
+
 **A Top Chess Player Is Disqualified After a Phone Is Found in a Bathroom Stall**\
 `Kirill Shevchenko, a grandmaster who represents Romania, has been accused of getting assistance from a computer in the middle of games.`\
 https://nytimes.com/2024/10/16/sports/kirill-shevchenko-chess-expelled-phone.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5847934/2024/10/16/jets-davante-adams-play-steelers
 **BOS Nation, a publicity campaign gone wrong and an apology for the hurt it caused**\
 `The launch of BOS Nation had the potential to be a really exciting moment but it was undermined by the campaign that accompanied it`\
 https://nytimes.com/athletic/5847932/2024/10/16/bos-nation-apology-hurt/
-
-**NCAA closes clock loophole behind Oregon illegal substitution penalty**\
-`Inside the two-minute timeout, officials will reset the game clock to its position at the snap if the defense commits a substitution foul.`\
-https://nytimes.com/athletic/5847940/2024/10/16/oregon-penalty-illegal-substitution-ncaa-rule/
-
-**Arizona State to start Jeff Sims vs. Cincinnati, Sam Leavitt out**\
-`Arizona State coach Kenny Dillingham said Leavitt might miss two to four weeks with a rib injury.`\
-https://nytimes.com/athletic/5847763/2024/10/16/arizona-state-jeff-sims-sam-leavitt-injury/
-
-**Read the Nebraska Supreme Court Ruling on Voting Rights for Felons**\
-`The decision affirmed a law passed by the Legislature this year clearing the way for people to cast ballots immediately after finishing prison and parole terms.`\
-https://nytimes.com/interactive/2024/10/16/us/16nat-nebraska-voting-ruling.html
 
