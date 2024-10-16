@@ -1,3 +1,7 @@
+**Conservative Justices Appear to Side With San Francisco in Water Quality Dispute**\
+`The justices heard arguments on Wednesday in a long-simmering dispute between San Francisco and the E.P.A. over regulation of water pollution.`\
+https://nytimes.com/2024/10/16/us/politics/supreme-court-san-francisco-water-pollution.html
+
 **Tuchel, FA explains delayed start date as England manager**\
 `Thomas Tuchel has said that he wants to have a “clean start”, as he explained at his England unveiling why he is not starting the job until January 1.`\
 https://nytimes.com/athletic/5847791/2024/10/16/thomas-tuchel-england-manager-start-date/

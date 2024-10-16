@@ -1,3 +1,7 @@
+**Conservative Justices Appear to Side With San Francisco in Water Quality Dispute**\
+`The justices heard arguments on Wednesday in a long-simmering dispute between San Francisco and the E.P.A. over regulation of water pollution.`\
+https://nytimes.com/2024/10/16/us/politics/supreme-court-san-francisco-water-pollution.html
+
 **Leif Segerstam, Provocative Finnish Conductor and Composer, Dies at 80**\
 `He led his country’s principal orchestras and major orchestras elsewhere in Europe. He also mystified his countrymen with an unstoppable flow of symphonies.`\
 https://nytimes.com/2024/10/16/arts/music/leif-segerstam-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/world/canada/trudeau-india-canada-sovereignty.htm
 **Jerry Reinsdorf open to selling White Sox: Sources**\
 `The 88-year-old majority owner is in active discussions with a group led by former big leaguer Dave Stewart.`\
 https://nytimes.com/athletic/5848339/2024/10/16/jerry-reinsdorf-chicago-white-sox-sale/
-
-**Georgia Prosecutor Seeks to Reinstate Quashed Charges in Trump Elections Case**\
-`The appeal filed on Tuesday disputes a judge’s ruling that six of the charges brought against Donald J. Trump and his allies in Georgia were not specific enough.`\
-https://nytimes.com/2024/10/16/us/fani-willis-trump-georgia-charges-appeal.html
 
