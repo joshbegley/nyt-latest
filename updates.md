@@ -1,3 +1,11 @@
+**Five necessary second-half risers and a prediction: Notre Dame at midseason**\
+`At mid-October, No. 12 Notre Dame (5-1) feels about where it wants to be. Even if the Irish haven’t been thrilled about how they got here.`\
+https://nytimes.com/athletic/5847392/2024/10/16/notre-dame-football-midseason-playoff/
+
+**2 Missing After Navy Fighter Jet Crashes Near Mount Rainier**\
+`The two crew members who were onboard the aircraft remain missing, Navy officials said, after it crashed during a routine training flight.`\
+https://nytimes.com/2024/10/16/us/navy-aircraft-crash-mt-rainier.html
+
 **Top Black business leaders aim to motivate Black men to vote for Harris.**\
 `By Kate Kelly`\
 https://nytimes.com/live/2024/10/16/us/trump-harris-election/top-black-business-leaders-aim-to-motivate-black-men-to-vote-for-harris
