@@ -1,5 +1,9 @@
 **Judge homers, Yankees take 2-0 ALCS lead on Guardians: Takeaways**\
 `The series will resume in Cleveland for Game 3 on Thursday. `\
+https://nytimes.com/athletic/5846495/2024/10/15/yankees-guardians-mlb-score-alcs-aaron-judge-takeaways/
+
+**Judge homers, Yankees take 2-0 ALCS lead on Guardians: Takeaways**\
+`The series will resume in Cleveland for Game 3 on Thursday. `\
 https://nytimes.com/athletic/5846495/2024/10/15/aaron-judge-hits-first-hr-of-postseason-as-yankees-take-2-0-alcs-lead-on-guardians-takeaways/
 
 **Scottie Barnes' growth as a leader will be measured by how he plays in the bad moments**\
