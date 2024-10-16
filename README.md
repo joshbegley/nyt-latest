@@ -1,3 +1,11 @@
+**6 Books About Nonmonogamy, Recommended by Therapists**\
+`These titles can offer insight, whether you’re polycurious or already exploring.`\
+https://nytimes.com/2024/10/16/well/live/nonmonogamy-books.html
+
+**England Entrusts a National Treasure to (Gasp!) a German**\
+`The appointment of Thomas Tuchel to coach the England men’s national soccer team has provoked, well, some strong feelings.`\
+https://nytimes.com/2024/10/16/world/europe/thomas-tuchel-england-soccer-reaction.html
+
 **More Research Links IUDs to Breast Cancer Risk**\
 `A new study adds to the evidence on hormonal contraceptives and breast cancer. But experts stressed the overall risk remains low.`\
 https://nytimes.com/2024/10/16/well/iud-breast-cancer-mirena-skyla.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/us/navy-aircraft-crash-mt-rainier.html
 **Top Black business leaders aim to motivate Black men to vote for Harris.**\
 `By Kate Kelly`\
 https://nytimes.com/live/2024/10/16/us/trump-harris-election/top-black-business-leaders-aim-to-motivate-black-men-to-vote-for-harris
-
-**Melissa Explains It All (About Pantry Dinners)**\
-`Keeping a well-stocked pantry is one thing; leveling up those convenient dinners is another. Here’s how to do it.`\
-https://nytimes.com/2024/10/16/dining/well-stocked-pantry.html
-
-**Spence signs new Spurs deal through to 2028**\
-`Tottenham Hotspur defender Djed Spence has signed a contract extension through to 2028.`\
-https://nytimes.com/athletic/5847418/2024/10/16/djed-spence-tottenham-contract-new/
 
