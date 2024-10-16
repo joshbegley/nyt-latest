@@ -1,3 +1,15 @@
+**Push for High-Rise Next to Beloved Garden Becomes Battle Over Shadows**\
+`The Brooklyn Botanic Garden and its supporters are fighting a proposal to build a 14-story apartment building that would cast shadows on the garden.`\
+https://nytimes.com/2024/10/16/nyregion/brooklyn-botanic-garden-shadows.html
+
+**Word of the Day: disseminate**\
+`This word has appeared in 50 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/16/learning/word-of-the-day-disseminate.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/16/crosswords/spelling-bee-forum.html
+
 **Jimmy Kimmel Bashes Trump’s Bizarre Town Hall**\
 `Kimmel joked on Tuesday that Trump “just said ‘To hell with it’ and started asking his tech guys to play songs off his iPad.”`\
 https://nytimes.com/2024/10/16/arts/television/late-night-kimmel-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5846676/2024/10/16/wild-filip-gustavsson-goalie-goa
 **Pochettino's USMNT loss to Mexico shows there's more work to be done**\
 `Pochettino was handed his first loss as the USMNT coach, and it wasn’t a pretty one.`\
 https://nytimes.com/athletic/5846694/2024/10/16/usmnt-mexico-friendly-result-takeaways/
-
-**Wednesday Briefing**\
-`A warning from the U.S. to Israel.`\
-https://nytimes.com/2024/10/16/briefing/israel-gaza-aid-trump-putin-canada.html
-
-**How Hermansen's role has changed under Cooper - and why he remains crucial**\
-`Goalkeeper has a crucial role to play as Leicester bid to retain their Premier League status - and he has made a superb start in a new style`\
-https://nytimes.com/athletic/5844565/2024/10/16/mads-hermansen-leicester-cooper/
-
-**Reece James is back in Chelsea training. Now he has to prove he can stay fit and find form**\
-`When Chelsea return to action against Liverpool, it will be 562 days since James last managed to play a full 90 minutes in the league`\
-https://nytimes.com/athletic/5844420/2024/10/16/reece-james-chelsea-training-return/
 

@@ -1,3 +1,15 @@
+**Push for High-Rise Next to Beloved Garden Becomes Battle Over Shadows**\
+`The Brooklyn Botanic Garden and its supporters are fighting a proposal to build a 14-story apartment building that would cast shadows on the garden.`\
+https://nytimes.com/2024/10/16/nyregion/brooklyn-botanic-garden-shadows.html
+
+**Word of the Day: disseminate**\
+`This word has appeared in 50 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/16/learning/word-of-the-day-disseminate.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/16/crosswords/spelling-bee-forum.html
+
 **Thomas Tuchel: England have hired a 'winner' but that is no guarantee in international football**\
 `England are set to appoint Thomas Tuchel as their new manager. This represents a real change from the Gareth Southgate era`\
 https://nytimes.com/athletic/5846569/2024/10/16/thomas-tuchel-england-appointment/
