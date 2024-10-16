@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5848029/2024/10/16/padres-luis-arraez-thumb-surgery
 https://nytimes.com/2024/10/15/opinion/trump-fox-news-town-hall.html
 
 **Davante Adams likely to make Jets debut Sunday vs. Steelers**\
-`Adams who was traded from the Las Vegas Raiders earlier this week hasn't played since Week 3 due to a hamstring injury.`\
+`Adams ,who was traded from the Las Vegas Raiders earlier this week, hasn't played since Week 3 due to a hamstring injury.`\
 https://nytimes.com/athletic/5847934/2024/10/16/jets-davante-adams-play-steelers/
 
 **BOS Nation, a publicity campaign gone wrong and an apology for the hurt it caused**\
