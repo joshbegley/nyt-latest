@@ -1,3 +1,15 @@
+**Drew Bannister has faith in Nick Leddy: 'He's going to be a better player for us'**\
+`The veteran defenseman had a costly turnover in Tuesday's 4-1 loss to the Minnesota Wild, but the Blues are sticking with him.`\
+https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-nick-leddy/
+
+**Broncos rookie report: Can Bo Nix improve accuracy? More carries for Audric Estimé?**\
+`The offense's struggles extend well beyond Nix, but the rookie quarterback has to complete more manageable throws.`\
+https://nytimes.com/athletic/5844903/2024/10/16/broncos-rookie-report-bo-nix-audric-estime/
+
+**Why Davante Adams’ breakup with Raiders felt inevitable ever since Derek Carr was released**\
+`The Raiders weren't winning enough for Adams and never delivered a satisfactory quarterback situation after moving on from Carr. `\
+https://nytimes.com/athletic/5845232/2024/10/16/raiders-davante-adams-trade-what-went-wrong/
+
 **Six kings, $15million and slow progress: How Saudi Arabia's push into tennis stalled**\
 `The kingdom is putting on the richest tennis exhibition in history, but its wider ambitions in the sport have contracted.`\
 https://nytimes.com/athletic/5826161/2024/10/16/saudi-arabia-tennis-money-six-kings-slam/

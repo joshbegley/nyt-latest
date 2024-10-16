@@ -1,3 +1,15 @@
+**Drew Bannister has faith in Nick Leddy: 'He's going to be a better player for us'**\
+`The veteran defenseman had a costly turnover in Tuesday's 4-1 loss to the Minnesota Wild, but the Blues are sticking with him.`\
+https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-nick-leddy/
+
+**Broncos rookie report: Can Bo Nix improve accuracy? More carries for Audric Estimé?**\
+`The offense's struggles extend well beyond Nix, but the rookie quarterback has to complete more manageable throws.`\
+https://nytimes.com/athletic/5844903/2024/10/16/broncos-rookie-report-bo-nix-audric-estime/
+
+**Why Davante Adams’ breakup with Raiders felt inevitable ever since Derek Carr was released**\
+`The Raiders weren't winning enough for Adams and never delivered a satisfactory quarterback situation after moving on from Carr. `\
+https://nytimes.com/athletic/5845232/2024/10/16/raiders-davante-adams-trade-what-went-wrong/
+
 **A Top University Bet on D.E.I. What Went Wrong?**\
 `We cover the impact of college diversity programs.`\
 https://nytimes.com/2024/10/16/briefing/university-diversity-programs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5846269/2024/10/16/bears-dandre-swift-run-game/
 **Early Votes Pour In, and a U.S. Warning to Israel Over Gaza**\
 `Plus, the new hot item on wedding registries.`\
 https://nytimes.com/2024/10/16/podcasts/early-votes-israel-gaza.html
-
-**Why the Bucks believe they'll be better: Motivation, peace and the power of Doc (and talk)**\
-`It's quite simple: Anything less than a deep playoff run will bring questions: "If you don't succeed, that might be it for us."`\
-https://nytimes.com/athletic/5837441/2024/10/16/milwaukee-bucks-season-preview-giannis-dame-doc-rivers/
-
-**Penguins' Jarry situation mimics Fleury, Murray — with a twist**\
-`The Penguins will be fortunate if Tristan Jarry can learn from Stanley Cup winners Marc-André Fleury and Matt Murray being benched.`\
-https://nytimes.com/athletic/5845465/2024/10/16/penguins-goaltending-jarry-nedeljkovic-blomqvist/
-
-**Three Bengals trends to monitor amid critical development of recent draft classes**\
-`Positive signs from the likes of Chase Brown, Andrei Iosivas and Tycen Anderson bring optimism for Cincinnati.`\
-https://nytimes.com/athletic/5846364/2024/10/16/bengals-trends-chase-brown-andrei-iosivas/
 
