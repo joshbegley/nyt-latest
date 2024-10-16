@@ -1,3 +1,11 @@
+**Paul Lowe, Award-Winning British Photojournalist, Dies at 60**\
+`He was killed in a stabbing near Los Angeles, and his 19-year-old son was arrested, the authorities said. Mr. Lowe earned acclaim for documenting the siege of Sarajevo and other conflicts.`\
+https://nytimes.com/2024/10/16/us/paul-lowe-dead.html
+
+**Ship-Free Saturdays? Juneau Votes Against Limiting Large Cruise Ships.**\
+`Some residents in the Alaskan capital, frustrated with cruise crowds, sought to limit ship traffic on Saturdays, despite the likely negative impact on local businesses.`\
+https://nytimes.com/2024/10/16/travel/juneau-cruise-ships-limits-vote.html
+
 **In ‘Sweet Bobby,’ Catfishing Is Even Worse Than You Might Think**\
 `A new Netflix documentary tells a sinister tale of a decade-long online romance scam, and the devastation that followed.`\
 https://nytimes.com/2024/10/16/style/sweet-bobby-netflix.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/business/dealbook/harris-trump-economy-tariffs.ht
 **Appreciating the best plays from the Giants' 3 Gold Glove finalists**\
 `The best plays from Matt Chapman, Patrick Bailey and Mike Yastrzemski, the Giants' Gold Glove finalists.`\
 https://nytimes.com/athletic/5843131/2024/10/16/sf-giants-gold-glove-finalists-2024/
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/10/16/us/trump-harris-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Harris and Trump Blitz the Media With 20 Days to Go**\
-`Kamala Harris will appear on Fox News, while two town halls with Donald J. Trump will be broadcast on Wednesday.`\
-https://nytimes.com/live/2024/10/16/us/trump-harris-election
 
