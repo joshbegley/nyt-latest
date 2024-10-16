@@ -1,3 +1,11 @@
+**For Ruben Gallego, the Campaign Trail Runs Through the Grand Canyon**\
+`The Democratic congressman, who is running for Senate in Arizona, hiked thousands of feet down to meet the Havasupai, a Native tribe, on their land, part of an extensive outreach effort in a competitive race.`\
+https://nytimes.com/2024/10/16/us/politics/ruben-gallego-grand-canyon.html
+
+**Where Are Trump and Harris Campaigning?**\
+`Here’s where the candidates are spending their time in the final weeks of the 2024 presidential race.`\
+https://nytimes.com/interactive/2024/10/16/us/politics/harris-trump-2024-campaign.html
+
 **What’s in Our Queue? ‘Industry’ and More**\
 `I’m a national reporter, covering California. Here are five things I’ve recently enjoyed.`\
 https://nytimes.com/interactive/2024/10/16/arts/editors-recommendations-industry.html
