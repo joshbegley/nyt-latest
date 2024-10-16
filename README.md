@@ -1,3 +1,11 @@
+**The Windup: Yankees win! But not any style points**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5847754/2024/10/16/yankees-guardians-alcs-mlb-the-windup/
+
+**Trump Wants Young Voters, but He’s Nowhere to Be Seen on Snapchat**\
+`The former president, whose personal account was banned after the Capitol riot, has refused to spend campaign money on Snapchat ads, effectively ceding the space to Kamala Harris.`\
+https://nytimes.com/2024/10/16/us/politics/trump-snapchat-harris.html
+
 **In a Decade-long Caper, Criminals Cashed In on Fake Wine, Police Say**\
 `A criminal network was accused of selling bottles of fake French wine for as much as 15,000 euros. It’s the latest in a growing criminal trend: wine fraud.`\
 https://nytimes.com/2024/10/16/world/europe/wine-fraud-france-italy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/world/europe/italy-surrogacy-law.html
 **Thomas J. Donohue Dies at 86; Transformed Chamber of Commerce**\
 `Under his 24-year leadership, the lobbying group developed enormous clout in Washington, but he broke with the Trump administration over immigration and the 2020 election.`\
 https://nytimes.com/2024/10/16/business/thomas-j-donohue-dead.html
-
-**CHSN's Comcast negotiations present a dilemma as fans' wrath grows**\
-`Blackhawks owner Danny Wirtz and others will need to decide how much outrage is too much to stomach.`\
-https://nytimes.com/athletic/5846740/2024/10/16/chsn-comcast-deal-blackhawks-bulls-white-sox/
-
-**Two Key Prosecutors in Trump Documents Case Leave Special Counsel’s Office**\
-`The departures amount to a tacit acknowledgment that any trial in that case will not happen for many months, if not years.`\
-https://nytimes.com/2024/10/16/us/politics/trump-documents-case-prosecutors.html
 
