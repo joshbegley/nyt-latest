@@ -1,3 +1,7 @@
+**Trump Preaches to His Women’s Choir**\
+`Remaining persuadable voters are unlikely to be swayed by this late-breaking swerve toward the center.`\
+https://nytimes.com/2024/10/15/opinion/trump-fox-news-town-hall.html
+
 **Davante Adams likely to make Jets debut Sunday vs. Steelers**\
 `Adams who was traded from the Las Vegas Raiders earlier this week hasn't played since Week 3 due to a hamstring injury.`\
 https://nytimes.com/athletic/5847934/2024/10/16/jets-davante-adams-play-steelers/
