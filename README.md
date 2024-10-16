@@ -1,40 +1,40 @@
-**5 NBA preseason themes that caught my eye: Suns' defense, Point DiVincenzo, more**\
-`NBA preseason stats are for the birds. But the trends, the style — that’s where NBA fans can learn about what’s to come.`\
-https://nytimes.com/athletic/5845061/2024/10/16/nba-preseason-themes-hawks-pistons-suns/
+**Early Votes Pour In, and a U.S. Warning to Israel Over Gaza**\
+`Plus, the new hot item on wedding registries.`\
+https://nytimes.com/2024/10/16/podcasts/early-votes-israel-gaza.html
 
-**Britain sanctions West Bank settlers and organizations amid rising violence.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/britain-sanctions-west-bank-settlers-and-organizations-amid-rising-violence
+**Why the Bucks believe they'll be better: Motivation, peace and the power of Doc (and talk)**\
+`It's quite simple: Anything less than a deep playoff run will bring questions: "If you don't succeed, that might be it for us."`\
+https://nytimes.com/athletic/5837441/2024/10/16/milwaukee-bucks-season-preview-giannis-dame-doc-rivers/
 
-**New York Liberty Fans Get Creative With Jerseys, Art and Cross Stitches**\
-`As their favorite team in the W.N.B.A. experiences a surge in popularity, fans are expressing their love creatively.`\
-https://nytimes.com/2024/10/16/sports/liberty-lynx-wnba-finals-fan-art.html
+**Penguins' Jarry situation mimics Fleury, Murray — with a twist**\
+`The Penguins will be fortunate if Tristan Jarry can learn from Stanley Cup winners Marc-André Fleury and Matt Murray being benched.`\
+https://nytimes.com/athletic/5845465/2024/10/16/penguins-goaltending-jarry-nedeljkovic-blomqvist/
 
-**Flying Into Storms Improves Forecasts, but It Is Rare in Asia’s Typhoon Alley**\
-`While observational flights have improved forecasts for many storms in the Americas, such flights have been far fewer for storms that have hit Asia.`\
-https://nytimes.com/2024/10/16/world/asia/typhoon-hurricane-forecast-accuracy.html
+**Three Bengals trends to monitor amid critical development of recent draft classes**\
+`Positive signs from the likes of Chase Brown, Andrei Iosivas and Tycen Anderson bring optimism for Cincinnati.`\
+https://nytimes.com/athletic/5846364/2024/10/16/bengals-trends-chase-brown-andrei-iosivas/
 
-**With Jets and Ships, China Is Honing Its Ability to Choke Taiwan**\
-`China’s large-scale military exercises are encircling Taiwan and testing the island’s defenses. They also raise the risk of conflict, accidental or otherwise.`\
-https://nytimes.com/2024/10/16/world/asia/china-taiwan-blockade-drills.html
+**Predicting 4 Nations goalies: Who will the U.S., Canada, Sweden and Finland choose?**\
+`Canada and the United States have different dilemmas when it comes to choosing netminders for the international tournament.`\
+https://nytimes.com/athletic/5843225/2024/10/16/goalies-4-nations-face-off-usa-canada/
 
-**Hollinger: Predicting the top of NBA's Eastern Conference, with one big surprise**\
-`Boston stormed through the league last season, but its conference competition didn't stand pat this offseason.`\
-https://nytimes.com/athletic/5827516/2024/10/16/nba-season-predictions-best-eastern-conference-teams/
+**How the Packers lead the NFL in takeaways with the help of 'Campy 3:16'**\
+`Green Bay had 18 takeaways all last season. Through six games in 2024, it already has 17.`\
+https://nytimes.com/athletic/5845309/2024/10/16/packers-defense-takeaways-hafley/
 
-**How are NBA GMs and execs trying to build teams and compete in the parity era?**\
-`The more teams spend on their roster, the harder it is to make transactions, especially ones involving players with big contracts.`\
-https://nytimes.com/athletic/5843850/2024/10/16/how-are-nba-gms-and-execs-trying-to-build-teams-and-compete-in-the-parity-era/
+**Linehan: Boston NWSL club misses the mark with BOS Nation FC and marketing campaign**\
+`The good news is that there's plenty of time for BOS Nation FC to course correct after its baffling launch.`\
+https://nytimes.com/athletic/5846075/2024/10/16/bos-nation-fc-boston-nwsl-linehan/
 
-**The lessons the Yankees, Guardians, Mets and Dodgers can teach the rest of baseball**\
-`Whether it is the way the Yankees and Dodgers added, or how the Guardians leaned on their strengths, these teams all have lessons to impart.`\
-https://nytimes.com/athletic/5844939/2024/10/16/mlb-final-four-teams-lessons/
+**The Race That Could Tip Control of the Senate**\
+`Montana’s three-term Democratic senator, Jon Tester, is facing a tough race with increasingly high stakes.`\
+https://nytimes.com/2024/10/16/podcasts/the-daily/senate-2024.html
 
-**Here are the latest developments.**\
-`By Euan Ward, Victoria Kim and Gabby Sobelman`\
-https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/here-are-the-latest-developments
+**Steven Lorentz is living his childhood dream with the Maple Leafs**\
+`Steven Lorentz still can’t believe that it’s happening, that he's in the NHL and now, suddenly, playing for the Leafs.`\
+https://nytimes.com/athletic/5845041/2024/10/16/steven-lorentz-maple-leafs/
 
-**Where a Million Desperate People Are Finding Shelter in Lebanon**\
-`Schools, clubs and parks have become places of refuge as the displaced seek safety amid Israeli bombings.`\
-https://nytimes.com/2024/10/16/world/middleeast/israel-lebanon-displaced-hezbollah.html
+**Evan Stewart, Emeka Egbuka, other NFL Draft prospects who stood out in Ohio State-Oregon game**\
+`Emeka Egbuka and Josh Conerly Jr. also put impressive performances on tape during Oregon's dramatic overtime win.`\
+https://nytimes.com/athletic/5842959/2024/10/16/oregon-ohio-state-nfl-draft-2025-prospects-evan-stewart/
 
