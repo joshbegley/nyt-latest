@@ -1,3 +1,19 @@
+**Global Electricity Demand Is Rising Faster Than Expected, I.E.A. Says**\
+`A surge in power use worldwide could make it harder for nations to slash emissions and keep global warming in check.`\
+https://nytimes.com/2024/10/16/climate/global-demand-electricity-rising.html
+
+**Fantasy football rankings Week 7: Sleepers, projections, starts, Josh Downs, JuJu Smith-Schuster**\
+`Jake Ciely has what you need to set your fantasy football lineup, sharing his sleepers, key stats and requisite game snacks for Week 7.`\
+https://nytimes.com/athletic/5846218/2024/10/16/fantasy-football-rankings-week-7-sleepers-projections-starts-josh-downs-juju-smith-schuster-and-more/
+
+**Exhibition Recreating Anne Frank’s Secret Annex to Open in New York**\
+`For the first time, the Anne Frank House in Amsterdam will replicate the cramped rooms where Frank and her family spent two years hiding to evade Nazi capture.`\
+https://nytimes.com/2024/10/16/arts/design/anne-frank-the-exhibition-annex-new-york.html
+
+**Quote of the Day: THEIR PASSION AND PAIN**\
+`Quotation of the Day for Wednesday, October 16, 2024`\
+https://nytimes.com/2024/10/15/pageoneplus/quote-of-the-day-their-passion-and-pain.html
+
 **Two Giant Pandas Arrive at National Zoo in Washington**\
 `The 3-year-old giant pandas arrived from China in a revival of so-called panda diplomacy after the zoo had gone nearly a year without the animals.`\
 https://nytimes.com/video/us/100000009764002/two-giant-pandas-arrive-at-national-zoo-in-washington.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/15/us/baltimore-men-charged-gang.html
 **Judge Blocks Hand-Counting of Election Ballots in Georgia**\
 `The ruling was confined to the current election, halting the measure from going into effect for 2024 while the judge further weighs its merits in the future.`\
 https://nytimes.com/2024/10/15/us/elections/georgia-ballot-hand-count-ruling.html
-
-**Is it time to worry about the Canucks after third consecutive loss? 3 takeaways**\
-`Vancouver picked up its first regulation loss against Tampa Bay, falling 4-1 on Tuesday night.`\
-https://nytimes.com/athletic/5846324/2024/10/15/canucks-third-consecutive-loss-lightning/
-
-**Airer of Hearings**\
-`Hanh Huynh’s puzzle is a lesson in patience.`\
-https://nytimes.com/2024/10/15/crosswords/daily-puzzle-2024-10-16.html
-
-**In Pennsylvania, Walz Says Immigrants Aren’t the Outsiders: Trump and Vance Are**\
-`The Democratic vice-presidential nominee unveiled his ticket’s plan targeted at rural voters — including those protesting his visit.`\
-https://nytimes.com/2024/10/15/us/politics/tim-walz-pennsylvania-trump-vance.html
-
-**Trump Escalates Threats to Political Opponents He Deems the ‘Enemy’**\
-`Never before has a presidential nominee openly suggested turning the military on Americans simply because they oppose his candidacy. With voting underway, Donald Trump has turned to dark vows of retribution.`\
-https://nytimes.com/2024/10/15/us/politics/trump-opponents-enemy-within.html
 
