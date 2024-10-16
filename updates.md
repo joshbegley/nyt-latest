@@ -1,3 +1,7 @@
+**Davante Adams likely to make Jets debut Sunday vs. Steelers**\
+`Adams who was traded from the Las Vegas Raiders earlier this week hasn't played since Week 3 due to a hamstring injury.`\
+https://nytimes.com/athletic/5847934/2024/10/16/jets-davante-adams-play-steelers/
+
 **BOS Nation, a publicity campaign gone wrong and an apology for the hurt it caused**\
 `The launch of BOS Nation had the potential to be a really exciting moment but it was undermined by the campaign that accompanied it`\
 https://nytimes.com/athletic/5847932/2024/10/16/bos-nation-apology-hurt/
