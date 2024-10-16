@@ -1,3 +1,7 @@
+**Penguins' Sidney Crosby becomes 10th NHL player with 1,600 points**\
+`Crosby is also creeping up on Mario Lemieux’s Penguins record for points (1,723).`\
+https://nytimes.com/athletic/5835486/2024/10/16/sidney-crosby-points-record-penguins/
+
 **Finnish hockey mourns first openly gay player in top league after his murder, partner's arrest**\
 `Puhakka, who spent two years with the QMJHL's Chicoutimi Sagueneens, was found shot to death in his home on Sunday night. He was 29.`\
 https://nytimes.com/athletic/5848409/2024/10/16/janne-puhakka-death-finland-hockey-player/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5848550/2024/10/16/aaron-rodgers-davante-adams-comm
 **New York Marathon Cracks Down on Cyclists’ Pre-Race Joyride**\
 `Last year, race officials say, a cyclist hit a pedestrian on the early-morning ride. This year, those attempting to ride the route will be removed.`\
 https://nytimes.com/2024/10/16/nyregion/nyc-marathon-bicycle-race.html
-
-**Mexico’s Ex-Security Chief Sentenced to 38 Years for Cartel Bribery**\
-`The stiff penalty was the potentially final step in the stunning downfall of the former official, Genaro García Luna, who has gone from the heights of power to imprisonment.`\
-https://nytimes.com/2024/10/16/world/americas/genaro-garcia-luna-sentencing.html
 
