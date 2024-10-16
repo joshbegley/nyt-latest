@@ -1,3 +1,11 @@
+**Israeli Airstrikes Target Suburban Beirut and Southern Lebanon**\
+`The attacks came after the United States expressed concerns about the bombardment of the Lebanese capital.`\
+https://nytimes.com/video/world/middleeast/100000009764239/israel-lebanon-attack.html
+
+**Trump and Harris Push Economic Plans to Woo Holdouts**\
+`The candidates provided more detail on how they would bolster the economy, with ideas ranging from tariffs to more assistance for Black entrepreneurs.`\
+https://nytimes.com/2024/10/16/business/dealbook/harris-trump-economy-tariffs.html
+
 **Appreciating the best plays from the Giants' 3 Gold Glove finalists**\
 `The best plays from Matt Chapman, Patrick Bailey and Mike Yastrzemski, the Giants' Gold Glove finalists.`\
 https://nytimes.com/athletic/5843131/2024/10/16/sf-giants-gold-glove-finalists-2024/

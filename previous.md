@@ -1,3 +1,11 @@
+**Israeli Airstrikes Target Suburban Beirut and Southern Lebanon**\
+`The attacks came after the United States expressed concerns about the bombardment of the Lebanese capital.`\
+https://nytimes.com/video/world/middleeast/100000009764239/israel-lebanon-attack.html
+
+**Trump and Harris Push Economic Plans to Woo Holdouts**\
+`The candidates provided more detail on how they would bolster the economy, with ideas ranging from tariffs to more assistance for Black entrepreneurs.`\
+https://nytimes.com/2024/10/16/business/dealbook/harris-trump-economy-tariffs.html
+
 **Appreciating the best plays from the Giants' 3 Gold Glove finalists**\
 `The best plays from Matt Chapman, Patrick Bailey and Mike Yastrzemski, the Giants' Gold Glove finalists.`\
 https://nytimes.com/athletic/5843131/2024/10/16/sf-giants-gold-glove-finalists-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5841544/2024/10/16/moses-moody-warriors-role-contra
 **Zelensky Pitches His ‘Victory Plan’ to Ukrainian Lawmakers**\
 `The proposal would rely heavily on increased Western assistance. So far, it has drawn a lukewarm response from Ukraine’s allies.`\
 https://nytimes.com/2024/10/16/world/europe/zelensky-ukraine-victory-plan-russia.html
-
-**Alex Bowman on having fun in NASCAR, getting stuck on a boat and more: 12 Questions**\
-`Alex Bowman talks about the challenge of finding time to enjoy himself, saving the day on a stranded boat and much more.`\
-https://nytimes.com/athletic/5834341/2024/10/16/alex-bowman-nascar-boat-12-questions/
-
-**Israel strikes dozens of targets in Lebanon.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/israel-strikes-dozens-of-targets-in-lebanon
 
