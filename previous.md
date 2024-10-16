@@ -2,6 +2,10 @@
 `Of the 17 significant in-season receiver trades since 2000, only 5 were successes. Davante Adams and Amari Cooper might make it 7.`\
 https://nytimes.com/athletic/5845960/2024/10/16/scoop-city-the-history-of-in-season-wr-trades/
 
+**Giants' Andrew Thomas expected to miss season after foot surgery**\
+`Thomas injured his foot on the Giants’ sole touchdown drive in Sunday’s loss to the Cincinnati Bengals.`\
+https://nytimes.com/athletic/5846159/2024/10/16/andrew-thomas-giants-foot-injury-update/
+
 **Tuchel addresses England doubters: 'I'm sorry I have a German passport'**\
 `Thomas Tuchel says the onus is on him to show supporters that he deserves a “fair chance” after becoming the new England head coach in light of the Football Association being criticised for appointing a German coach.`\
 https://nytimes.com/athletic/5847305/2024/10/16/thomas-tuchel-england-manager-german/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/business/dealbook/lvmh-dior-louis-vuitton-china.h
 **The Bounce: Are the Magic ready for another leap?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5847000/2024/10/16/magic-paolo-banchero-nba-the-bounce/
-
-**Fuel Tanker Explosion Leaves at Least 90 Dead in Nigeria**\
-`Residents of a nearby town came to scoop up the spilled gasoline, but then the tanker exploded, setting off an inferno — an echo of several similar disasters in recent years.`\
-https://nytimes.com/2024/10/16/world/africa/nigeria-fuel-tanker-explosion.html
 

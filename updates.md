@@ -1,3 +1,7 @@
+**Giants' Andrew Thomas expected to miss season after foot surgery**\
+`Thomas injured his foot on the Giants’ sole touchdown drive in Sunday’s loss to the Cincinnati Bengals.`\
+https://nytimes.com/athletic/5846159/2024/10/16/andrew-thomas-giants-foot-injury-update/
+
 **Scoop City: The history of in-season WR trades**\
 `Of the 17 significant in-season receiver trades since 2000, only 5 were successes. Davante Adams and Amari Cooper might make it 7.`\
 https://nytimes.com/athletic/5845960/2024/10/16/scoop-city-the-history-of-in-season-wr-trades/
