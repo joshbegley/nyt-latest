@@ -1,3 +1,11 @@
+**The Windup: Yankees win! But not any style points**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5847754/2024/10/16/yankees-guardians-alcs-mlb-the-windup/
+
+**Trump Wants Young Voters, but He’s Nowhere to Be Seen on Snapchat**\
+`The former president, whose personal account was banned after the Capitol riot, has refused to spend campaign money on Snapchat ads, effectively ceding the space to Kamala Harris.`\
+https://nytimes.com/2024/10/16/us/politics/trump-snapchat-harris.html
+
 **In a Decade-long Caper, Criminals Cashed In on Fake Wine, Police Say**\
 `A criminal network was accused of selling bottles of fake French wine for as much as 15,000 euros. It’s the latest in a growing criminal trend: wine fraud.`\
 https://nytimes.com/2024/10/16/world/europe/wine-fraud-france-italy.html
