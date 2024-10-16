@@ -1,3 +1,19 @@
+**How are NBA GMs and execs trying to build teams and compete in the parity era?**\
+`The more teams spend on their roster, the harder it is to make transactions, especially ones involving players with big contracts.`\
+https://nytimes.com/athletic/5843850/2024/10/16/how-are-nba-gms-and-execs-trying-to-build-teams-and-compete-in-the-parity-era/
+
+**The lessons the Yankees, Guardians, Mets and Dodgers can teach the rest of baseball**\
+`Whether it is the way the Yankees and Dodgers added, or how the Guardians leaned on their strengths, these teams all have lessons to impart.`\
+https://nytimes.com/athletic/5844939/2024/10/16/mlb-final-four-teams-lessons/
+
+**Here are the latest developments.**\
+`By Victoria Kim and Gabby Sobelman`\
+https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/here-are-the-latest-developments
+
+**Where a Million Desperate People Are Finding Shelter in Lebanon**\
+`Schools, clubs and parks have become places of refuge as the displaced seek safety amid Israeli bombings.`\
+https://nytimes.com/2024/10/16/world/middleeast/israel-lebanon-displaced-hezbollah.html
+
 **Trump Draws, and Repels, Nevada Latinos With His Anti-Immigrant Message**\
 `For some, Donald J. Trump’s incessant attacks on immigrants are too much. Still, many appear prepared to look past his escalations and back a candidate they believe will help their livelihoods.`\
 https://nytimes.com/2024/10/16/us/politics/trump-draws-and-repels-nevada-latinos-with-his-anti-immigrant-message.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5845135/2024/10/16/drake-maye-patriots-qb-first-nfl
 **Can a safety win Defensive Player of the Year? Falcons say yes, tout Jessie Bates**\
 `Atlanta safety Jessie Bates should be a candidate for Defensive Player of the Year, his teammates say, but can a safety win it these days?`\
 https://nytimes.com/athletic/5845449/2024/10/16/falcons-jessie-bates-defensive-player-of-the-year/
-
-**Teens, Do You Feel Represented in This Election?**\
-`As the 2024 election heats up, Headway is asking teenagers to weigh in on whether today’s candidates are addressing their concerns.`\
-https://nytimes.com/2024/10/16/headway/15-teen-2024-election-representation.html
-
-**In Dallas, an Entire Dance Troupe Was Fired. Now They’re Protesting.**\
-`Former artists of Dallas Black Dance Theater say they were dismissed in retaliation for forming a union. The company denies the accusation.`\
-https://nytimes.com/2024/10/16/arts/dance/dallas-black-dance-theater-company-fired-protesting.html
-
-**Brazil’s Chief Justice: We Are Saving Democracy.**\
-`The chief justice of Brazil’s Supreme Court, Luís Roberto Barroso, defended the court in the face of growing debate over its aggressive role in politics.`\
-https://nytimes.com/2024/10/16/world/americas/brazil-chief-justice-supreme-court-power.html
-
-**A Fading Tree, Once Majestic, Had to Come Down. But It Wasn’t the End.**\
-`A beloved sugar maple slowly succumbed to disease. Today, it lives on in a new form.`\
-https://nytimes.com/2024/10/16/climate/sugar-maple-tree-pennsylvania.html
 

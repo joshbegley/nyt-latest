@@ -1,3 +1,19 @@
+**How are NBA GMs and execs trying to build teams and compete in the parity era?**\
+`The more teams spend on their roster, the harder it is to make transactions, especially ones involving players with big contracts.`\
+https://nytimes.com/athletic/5843850/2024/10/16/how-are-nba-gms-and-execs-trying-to-build-teams-and-compete-in-the-parity-era/
+
+**The lessons the Yankees, Guardians, Mets and Dodgers can teach the rest of baseball**\
+`Whether it is the way the Yankees and Dodgers added, or how the Guardians leaned on their strengths, these teams all have lessons to impart.`\
+https://nytimes.com/athletic/5844939/2024/10/16/mlb-final-four-teams-lessons/
+
+**Here are the latest developments.**\
+`By Victoria Kim and Gabby Sobelman`\
+https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/here-are-the-latest-developments
+
+**Where a Million Desperate People Are Finding Shelter in Lebanon**\
+`Schools, clubs and parks have become places of refuge as the displaced seek safety amid Israeli bombings.`\
+https://nytimes.com/2024/10/16/world/middleeast/israel-lebanon-displaced-hezbollah.html
+
 **Trump Draws, and Repels, Nevada Latinos With His Anti-Immigrant Message**\
 `For some, Donald J. Trump’s incessant attacks on immigrants are too much. Still, many appear prepared to look past his escalations and back a candidate they believe will help their livelihoods.`\
 https://nytimes.com/2024/10/16/us/politics/trump-draws-and-repels-nevada-latinos-with-his-anti-immigrant-message.html
