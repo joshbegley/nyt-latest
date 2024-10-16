@@ -1,3 +1,7 @@
+**Davante Adams likely to make Jets debut Sunday vs. Steelers**\
+`Adams who was traded from the Las Vegas Raiders earlier this week hasn't played since Week 3 due to a hamstring injury.`\
+https://nytimes.com/athletic/5847934/2024/10/16/jets-davante-adams-play-steelers/
+
 **BOS Nation, a publicity campaign gone wrong and an apology for the hurt it caused**\
 `The launch of BOS Nation had the potential to be a really exciting moment but it was undermined by the campaign that accompanied it`\
 https://nytimes.com/athletic/5847932/2024/10/16/bos-nation-apology-hurt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5847786/2024/10/16/morgan-gibbs-white-injury-crysta
 **Substitute Teacher Reenacted George Floyd Murder at Minnesota High School**\
 `Students said the teacher, who claimed to be a police officer, also said “police brutality isn’t real.”`\
 https://nytimes.com/2024/10/16/us/teacher-reenacts-george-floyd-murder.html
-
-**Caitlin Clark becomes first rookie to make all-WNBA first-team since '08**\
-`Clark is the first rookie since Candace Parker in 2008 to be named to the first team, when Parker also won the MVP award.`\
-https://nytimes.com/athletic/5847809/2024/10/16/all-wnba-first-team-roster-awards/
 
