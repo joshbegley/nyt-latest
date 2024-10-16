@@ -1,3 +1,7 @@
+**In a Harris Ad, a Black Man Speaks to Black Men on Her Behalf**\
+`A commercial running in Philadelphia confronts the idea that some Black men might be hesitant to vote for Kamala Harris because she is a woman. “Women know how to make things happen,” a supporter says.`\
+https://nytimes.com/2024/10/16/us/politics/in-a-harris-ad-a-black-man-speaks-to-black-men-on-her-behalf.html
+
 **Trump Faced Tough Questions From Hispanic Voters**\
 `Also, the Supreme Court suggested that U.S. water regulations are too vague. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/10/16/briefing/trump-hispanic-voters-tulsa-brain-drain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/us/politics/trump-univision-hispanic-voters.html
 **As Eric Adams’s Problems Mount, His Legal Defense Fund Is Empty**\
 `Mayor Eric Adams has spent nearly all of the $1.8 million in donations to his legal defense fund, and the pace of contributions has nearly stopped.`\
 https://nytimes.com/2024/10/16/nyregion/eric-adams-legal-defense-fund.html
-
-**Thursday Briefing: Trump Threatens ‘the Enemy From Within’**\
-`Plus, the women of the world’s gnarliest mountain-bike competition.`\
-https://nytimes.com/2024/10/16/briefing/trump-israel-lebanon-italy-surrogacy.html
 

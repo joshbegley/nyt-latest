@@ -1,3 +1,7 @@
+**In a Harris Ad, a Black Man Speaks to Black Men on Her Behalf**\
+`A commercial running in Philadelphia confronts the idea that some Black men might be hesitant to vote for Kamala Harris because she is a woman. “Women know how to make things happen,” a supporter says.`\
+https://nytimes.com/2024/10/16/us/politics/in-a-harris-ad-a-black-man-speaks-to-black-men-on-her-behalf.html
+
 **Trump Faced Tough Questions From Hispanic Voters**\
 `Also, the Supreme Court suggested that U.S. water regulations are too vague. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/10/16/briefing/trump-hispanic-voters-tulsa-brain-drain.html
