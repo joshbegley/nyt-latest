@@ -1,3 +1,7 @@
+**For North Korea, War in Ukraine Is a Coveted Chance for Military Practice**\
+`Helping Russia in the war is an opportunity for North Korea to test its new weapons, and Ukrainian officials say the North’s troops are also gaining direct battle experience.`\
+https://nytimes.com/2024/10/16/world/asia/north-korea-ukraine-russia.html
+
 **A Top University Bet on D.E.I. What Went Wrong?**\
 `We cover the impact of college diversity programs.`\
 https://nytimes.com/2024/10/16/briefing/university-diversity-programs.html

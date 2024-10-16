@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5826161/2024/10/16/saudi-arabia-tennis-money-six-ki
 https://nytimes.com/video/podcasts/100000009763833/amelia-dimoldenberg-modern-love-podcast.html
 
 **For North Korea, War in Ukraine Is a Coveted Chance for Military Practice**\
-`North Korea is testing its new weapons on Russia’s side in the war, and Ukrainian officials say the North’s troops are also gaining direct battle experience.`\
+`Helping Russia in the war is an opportunity for North Korea to test its new weapons, and Ukrainian officials say the North’s troops are also gaining direct battle experience.`\
 https://nytimes.com/2024/10/16/world/asia/north-korea-ukraine-russia.html
 
 **‘The guy can play whatever’: Inside the rise of Leo Chenal, the Chiefs’ most underrated defensive player**\
