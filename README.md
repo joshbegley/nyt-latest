@@ -1,3 +1,7 @@
+**BOS Nation, a publicity campaign gone wrong and an apology for the hurt it caused**\
+`The launch of BOS Nation had the potential to be a really exciting moment but it was undermined by the campaign that accompanied it`\
+https://nytimes.com/athletic/5847932/2024/10/16/bos-nation-apology-hurt/
+
 **NCAA closes clock loophole behind Oregon illegal substitution penalty**\
 `Inside the two-minute timeout, officials will reset the game clock to its position at the snap if the defense commits a substitution foul.`\
 https://nytimes.com/athletic/5847940/2024/10/16/oregon-penalty-illegal-substitution-ncaa-rule/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/us/teacher-reenacts-george-floyd-murder.html
 **Caitlin Clark becomes first rookie to make all-WNBA first-team since '08**\
 `Clark is the first rookie since Candace Parker in 2008 to be named to the first team, when Parker also won the MVP award.`\
 https://nytimes.com/athletic/5847809/2024/10/16/all-wnba-first-team-roster-awards/
-
-**Bulls’ Lonzo Ball to return with 16-minute restriction Wednesday**\
-`“I’m going to have to manage it all year. That’s just the reality of it,” Ball said Wednesday following the team’s shootaround.`\
-https://nytimes.com/athletic/5847800/2024/10/16/bulls-lonzo-ball-return-minutes-restriction/
 
