@@ -1,3 +1,11 @@
+**Judge Strikes Down Multiple Georgia Election Rules**\
+`The measures had been promoted by the State Election Board. The judge called them “illegal, unconstitutional and void.”`\
+https://nytimes.com/2024/10/16/us/elections/georgia-election-rules-court-decision.html
+
+**4 Charged With Running Prostitution Ring on Long Island**\
+`A Suffolk County police officer and a high school teacher are among four people accused of operating brothels, prosecutors said.`\
+https://nytimes.com/2024/10/16/nyregion/prostitution-brothels-long-island-charges.html
+
 **Biden Memorializes Ethel Kennedy in Eulogy**\
 `President Biden on Wednesday delivered a eulogy for Ethel Kennedy, the widow of Senator Robert F. Kennedy and mother of the former presidential candidate Robert F. Kennedy Jr.`\
 https://nytimes.com/video/us/100000009766162/biden-ethel-kennedy-eulogy.html
