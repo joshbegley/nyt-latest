@@ -1,3 +1,11 @@
+**Filip Gustavsson scores Wild's first-ever goalie goal to defeat Blues: 4 takeaways**\
+`Newcomer Jakub Lauko and goalie Filip Gustavsson both recorded a first as the Wild dispatched the Blues 4-1 at home.`\
+https://nytimes.com/athletic/5846267/2024/10/15/wild-goalie-goal-gustavsson-lauko/
+
+**2 Men Charged in Killing of 7 People in Baltimore Gang Case**\
+`Prosecutors said Cornell Moore and Keith Russell were involved in a murder-for-hire enterprise with a gang operating in Baltimore City and elsewhere in Maryland.`\
+https://nytimes.com/2024/10/15/us/baltimore-men-charged-gang.html
+
 **Judge Blocks Hand-Counting of Election Ballots in Georgia**\
 `The ruling was confined to the current election, halting the measure from going into effect for 2024 while the judge further weighs its merits in the future.`\
 https://nytimes.com/2024/10/15/us/elections/georgia-ballot-hand-count-ruling.html

@@ -1,3 +1,11 @@
+**Filip Gustavsson scores Wild's first-ever goalie goal to defeat Blues: 4 takeaways**\
+`Newcomer Jakub Lauko and goalie Filip Gustavsson both recorded a first as the Wild dispatched the Blues 4-1 at home.`\
+https://nytimes.com/athletic/5846267/2024/10/15/wild-goalie-goal-gustavsson-lauko/
+
+**2 Men Charged in Killing of 7 People in Baltimore Gang Case**\
+`Prosecutors said Cornell Moore and Keith Russell were involved in a murder-for-hire enterprise with a gang operating in Baltimore City and elsewhere in Maryland.`\
+https://nytimes.com/2024/10/15/us/baltimore-men-charged-gang.html
+
 **Judge Blocks Hand-Counting of Election Ballots in Georgia**\
 `The ruling was confined to the current election, halting the measure from going into effect for 2024 while the judge further weighs its merits in the future.`\
 https://nytimes.com/2024/10/15/us/elections/georgia-ballot-hand-count-ruling.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/15/pageoneplus/corrections-oct-16-2024.html
 **Biden Takes On Campaign Duty in Pennsylvania, Celebrating Unions**\
 `As Jill Biden and JD Vance also made stops around Philadelphia, the president’s visit highlighted the intense struggle to persuade voters in what may be the most critical swing state.`\
 https://nytimes.com/2024/10/15/us/politics/biden-campaigning-philadelphia.html
-
-**Harris Agrees Trump Is a Fascist: 5 Charlamagne Interview Takeaways**\
-`During a free-flowing interview that was by turns friendly and pointed, the vice president went beyond her previous remarks in casting Donald Trump as an authoritarian.`\
-https://nytimes.com/2024/10/15/us/politics/kamala-harris-charlamagne-interview-trump.html
-
-**Pentagon to Give Honorable Discharges to Some Kicked Out Under ‘Don’t Ask, Don’t Tell’**\
-`More than 800 service members administratively separated from the military under the now-repealed policy will receive discharge upgrades.`\
-https://nytimes.com/2024/10/15/us/dont-ask-dont-tell.html
 
