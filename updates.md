@@ -1,3 +1,7 @@
+**Six kings, $15million and slow progress: How Saudi Arabia's push into tennis stalled**\
+`The kingdom is putting on the richest tennis exhibition in history, but its wider ambitions in the sport have contracted.`\
+https://nytimes.com/athletic/5826161/2024/10/16/saudi-arabia-tennis-money-six-kings-slam/
+
 **For North Korea, War in Ukraine Is a Coveted Chance for Military Practice**\
 `Helping Russia in the war is an opportunity for North Korea to test its new weapons, and Ukrainian officials say the North’s troops are also gaining direct battle experience.`\
 https://nytimes.com/2024/10/16/world/asia/north-korea-ukraine-russia.html

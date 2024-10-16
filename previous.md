@@ -3,7 +3,7 @@
 https://nytimes.com/2024/10/16/briefing/university-diversity-programs.html
 
 **Six kings, $15million and slow progress: How Saudi Arabia's push into tennis stalled**\
-`The kingdom is putting on the richest tennis exhibition in history, but its wider ambitions in the sport have stalled.`\
+`The kingdom is putting on the richest tennis exhibition in history, but its wider ambitions in the sport have contracted.`\
 https://nytimes.com/athletic/5826161/2024/10/16/saudi-arabia-tennis-money-six-kings-slam/
 
 **Amelia Dimoldenberg Never Waits to Text, Even on the Red Carpet**\
