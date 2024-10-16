@@ -1,3 +1,11 @@
+**6 Books About Nonmonogamy, Recommended by Therapists**\
+`These titles can offer insight, whether you’re polycurious or already exploring.`\
+https://nytimes.com/2024/10/16/well/live/nonmonogamy-books.html
+
+**England Entrusts a National Treasure to (Gasp!) a German**\
+`The appointment of Thomas Tuchel to coach the England men’s national soccer team has provoked, well, some strong feelings.`\
+https://nytimes.com/2024/10/16/world/europe/thomas-tuchel-england-soccer-reaction.html
+
 **More Research Links IUDs to Breast Cancer Risk**\
 `A new study adds to the evidence on hormonal contraceptives and breast cancer. But experts stressed the overall risk remains low.`\
 https://nytimes.com/2024/10/16/well/iud-breast-cancer-mirena-skyla.html
