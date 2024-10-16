@@ -1,3 +1,11 @@
+**Biden Announces $425 Million in Aid to Ukraine**\
+`President Biden spoke by telephone to President Volodymyr Zelensky of Ukraine about the security package, which includes munitions, armored vehicles and other weapons.`\
+https://nytimes.com/2024/10/16/us/politics/biden-ukraine-aid.html
+
+**Hurricane Helene Eroded Our Shared Reality**\
+`Climate misinformation isn’t new. But it’s getting worse.`\
+https://nytimes.com/2024/10/16/opinion/hurricane-helene-misinformation.html
+
 **A Weary Trump Whips Up Anger in Atlanta**\
 `At a rally in a state he lost in 2020, the former president considered the possibility of another defeat.`\
 https://nytimes.com/2024/10/16/us/elections/trump-georgia-rally.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/us/vegas-official-sentenced-journalist-murder.htm
 **Padres’ Luis Arraez undergoes thumb surgery, expected to be ready for spring training**\
 `Arraez originally injured his thumb June 25. He was advised during the All-Star break that he did not require in-season surgery.`\
 https://nytimes.com/athletic/5848029/2024/10/16/padres-luis-arraez-thumb-surgery/
-
-**Trump Preaches to His Women’s Choir**\
-`Remaining persuadable voters are unlikely to be swayed by this late-breaking swerve toward the center.`\
-https://nytimes.com/2024/10/15/opinion/trump-fox-news-town-hall.html
-
-**Davante Adams likely to make Jets debut Sunday vs. Steelers**\
-`Adams ,who was traded from the Las Vegas Raiders earlier this week, hasn't played since Week 3 due to a hamstring injury.`\
-https://nytimes.com/athletic/5847934/2024/10/16/jets-davante-adams-play-steelers/
 
