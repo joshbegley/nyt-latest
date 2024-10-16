@@ -1,3 +1,11 @@
+**Paul Lowe, Award-Winning British Photojournalist, Dies at 60**\
+`He was killed in a stabbing near Los Angeles, and his 19-year-old son was arrested, the authorities said. Mr. Lowe earned acclaim for documenting the siege of Sarajevo and other conflicts.`\
+https://nytimes.com/2024/10/16/us/paul-lowe-dead.html
+
+**Ship-Free Saturdays? Juneau Votes Against Limiting Large Cruise Ships.**\
+`Some residents in the Alaskan capital, frustrated with cruise crowds, sought to limit ship traffic on Saturdays, despite the likely negative impact on local businesses.`\
+https://nytimes.com/2024/10/16/travel/juneau-cruise-ships-limits-vote.html
+
 **In ‘Sweet Bobby,’ Catfishing Is Even Worse Than You Might Think**\
 `A new Netflix documentary tells a sinister tale of a decade-long online romance scam, and the devastation that followed.`\
 https://nytimes.com/2024/10/16/style/sweet-bobby-netflix.html
