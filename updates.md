@@ -1,3 +1,7 @@
+**Filip Gustavsson scores Wild's first-ever goalie goal in win vs. Blues: 4 takeaways**\
+`Newcomer Jakub Lauko and goalie Filip Gustavsson both recorded a first as the Wild dispatched the Blues 4-1 at home.`\
+https://nytimes.com/athletic/5846267/2024/10/15/wild-goalie-goal-gustavsson-lauko/
+
 **Filip Gustavsson scores Wild's first-ever goalie goal to defeat Blues: 4 takeaways**\
 `Newcomer Jakub Lauko and goalie Filip Gustavsson both recorded a first as the Wild dispatched the Blues 4-1 at home.`\
 https://nytimes.com/athletic/5846267/2024/10/15/wild-goalie-goal-gustavsson-lauko/
