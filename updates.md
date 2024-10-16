@@ -1,3 +1,15 @@
+**Abortion-rights group sues the DeSantis administration, alleging a violation of free speech.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2024/10/16/us/trump-harris-election/abortion-rights-group-sues-the-desantis-administration-alleging-a-violation-of-free-speech
+
+**Judge Extends Sentence for Former County Official Convicted in Las Vegas Journalist’s Murder**\
+`Robert Telles was sentenced to life in prison with the possibility of parole after 20 years for the murder of Jeff German. On Wednesday, a judge added eight years to that minimum.`\
+https://nytimes.com/2024/10/16/us/vegas-official-sentenced-journalist-murder.html
+
+**Davante Adams likely to make Jets debut Sunday vs. Steelers**\
+`Adams ,who was traded from the Las Vegas Raiders earlier this week, hasn't played since Week 3 due to a hamstring injury.`\
+https://nytimes.com/athletic/5847934/2024/10/16/jets-davante-adams-play-steelers/
+
 **Padres’ Luis Arraez undergoes thumb surgery, expected to be ready for spring training**\
 `Arraez originally injured his thumb June 25. He was advised during the All-Star break that he did not require in-season surgery.`\
 https://nytimes.com/athletic/5848029/2024/10/16/padres-luis-arraez-thumb-surgery/

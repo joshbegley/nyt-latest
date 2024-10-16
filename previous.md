@@ -1,3 +1,11 @@
+**Abortion-rights group sues the DeSantis administration, alleging a violation of free speech.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2024/10/16/us/trump-harris-election/abortion-rights-group-sues-the-desantis-administration-alleging-a-violation-of-free-speech
+
+**Judge Extends Sentence for Former County Official Convicted in Las Vegas Journalist’s Murder**\
+`Robert Telles was sentenced to life in prison with the possibility of parole after 20 years for the murder of Jeff German. On Wednesday, a judge added eight years to that minimum.`\
+https://nytimes.com/2024/10/16/us/vegas-official-sentenced-journalist-murder.html
+
 **Padres’ Luis Arraez undergoes thumb surgery, expected to be ready for spring training**\
 `Arraez originally injured his thumb June 25. He was advised during the All-Star break that he did not require in-season surgery.`\
 https://nytimes.com/athletic/5848029/2024/10/16/padres-luis-arraez-thumb-surgery/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/5848029/2024/10/16/padres-luis-arraez-thumb-surgery
 https://nytimes.com/2024/10/15/opinion/trump-fox-news-town-hall.html
 
 **Davante Adams likely to make Jets debut Sunday vs. Steelers**\
-`Adams who was traded from the Las Vegas Raiders earlier this week hasn't played since Week 3 due to a hamstring injury.`\
+`Adams ,who was traded from the Las Vegas Raiders earlier this week, hasn't played since Week 3 due to a hamstring injury.`\
 https://nytimes.com/athletic/5847934/2024/10/16/jets-davante-adams-play-steelers/
 
 **BOS Nation, a publicity campaign gone wrong and an apology for the hurt it caused**\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/10/16/us/16nat-nebraska-voting-ruling.html
 **Unrivaled, TNT reach multi-year broadcasting deal**\
 `Unrivaled is set to tip off on Jan. 17, 2025, and has already attracted some of the best women's basketball players in the world.`\
 https://nytimes.com/athletic/5847849/2024/10/16/unrivaled-tnt-broadcasting-deal/
-
-**Bumblebee Queens Prefer to Live in a Toxic Home**\
-`In an elaborate experiment, scientists discovered that the insects chose to hibernate in soil full of pesticides and other poisons.`\
-https://nytimes.com/2024/10/16/science/bumblebee-queens-pesticides-soil.html
-
-**How Pervasive Are Microplastics? Dolphins Are Exhaling Them.**\
-`Scientists studying bottlenose dolphins found polyester and other plastics in the breath of every animal they tested.`\
-https://nytimes.com/2024/10/16/climate/dolphin-plastic-breath.html
 
