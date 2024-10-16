@@ -2,7 +2,7 @@
 `Kimmel joked on Tuesday that Trump “just said ‘To hell with it’ and started asking his tech guys to play songs off his iPad.”`\
 https://nytimes.com/2024/10/16/arts/television/late-night-kimmel-trump.html
 
-**Tuchel: England have hired a 'winner' but does that guarantee anything in international game?**\
+**Thomas Tuchel: England have hired a 'winner' but that is no guarantee in international football**\
 `England are set to appoint Thomas Tuchel as their new manager. This represents a real change from the Gareth Southgate era`\
 https://nytimes.com/athletic/5846569/2024/10/16/thomas-tuchel-england-appointment/
 
