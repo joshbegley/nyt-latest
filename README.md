@@ -1,3 +1,7 @@
+**Blue Jackets honor Gaudreau by playing 13 seconds without left winger**\
+`It was not the typical season-opener for the Blue Jackets, but the focus was on remember Johnny and Matthew Gaudreau.`\
+https://nytimes.com/athletic/5846346/2024/10/15/blue-jackets-johnny-gaudrea-honor-opening-night/
+
 **Jerry Jones defends himself to The Athletic after fired up comments**\
 `"The facts are that if I’m going to be grilled by the tribunal, I don’t need it to be by the guys I’m paying," Jones said.`\
 https://nytimes.com/athletic/5846247/2024/10/15/jerry-jones-radio-comments-exclusive/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/10/15/us/politics/trump-putin-communication.html
 **How America Can Stop a Mideast Missile War That Everyone Will Lose**\
 `A real strategy for coercive U.S. diplomacy to change Iran’s behavior.`\
 https://nytimes.com/2024/10/15/opinion/iran-israel-war.html
-
-**Harris Needs a Closing Argument. Here’s One.**\
-`Trump turned us into a nation of haters. He’ll do it again if he wins next month.`\
-https://nytimes.com/2024/10/15/opinion/harris-kamala-trump-election.html
 
