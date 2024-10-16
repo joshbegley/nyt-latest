@@ -1,3 +1,7 @@
+**Zelensky Pitches His ‘Victory Plan’ to Ukrainian Lawmakers**\
+`The proposal would rely heavily on increased Western assistance. So far, it has drawn a lukewarm response from Ukraine’s allies.`\
+https://nytimes.com/2024/10/16/world/europe/zelensky-ukraine-victory-plan-russia.html
+
 **Alex Bowman on having fun in NASCAR, getting stuck on a boat and more: 12 Questions**\
 `Alex Bowman talks about the challenge of finding time to enjoy himself, saving the day on a stranded boat and much more.`\
 https://nytimes.com/athletic/5834341/2024/10/16/alex-bowman-nascar-boat-12-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5826161/2024/10/16/saudi-arabia-tennis-money-six-ki
 **Amelia Dimoldenberg Never Waits to Text, Even on the Red Carpet**\
 `The host of the viral video series “Chicken Shop Date” explains why she always texts someone she’s interested in right away.`\
 https://nytimes.com/video/podcasts/100000009763833/amelia-dimoldenberg-modern-love-podcast.html
-
-**For North Korea, War in Ukraine Is a Coveted Chance for Military Practice**\
-`Helping Russia in the war is an opportunity for North Korea to test its new weapons, and Ukrainian officials say the North’s troops are also gaining direct battle experience.`\
-https://nytimes.com/2024/10/16/world/asia/north-korea-ukraine-russia.html
 
