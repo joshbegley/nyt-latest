@@ -1,3 +1,15 @@
+**Appreciating the best plays from the Giants' 3 Gold Glove finalists**\
+`The best plays from Matt Chapman, Patrick Bailey and Mike Yastrzemski, the Giants' Gold Glove finalists.`\
+https://nytimes.com/athletic/5843131/2024/10/16/sf-giants-gold-glove-finalists-2024/
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/16/us/trump-harris-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris and Trump Blitz the Media With 20 Days to Go**\
+`Kamala Harris will appear on Fox News, while two town halls with Donald J. Trump will be broadcast on Wednesday.`\
+https://nytimes.com/live/2024/10/16/us/trump-harris-election
+
 **Israel permits a small amount of aid into northern Gaza after the U.S. issues a warning.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/israel-permits-a-small-amount-of-aid-into-northern-gaza-after-the-us-issues-a-warning
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5834341/2024/10/16/alex-bowman-nascar-boat-12-quest
 **Israel strikes dozens of targets in Lebanon.**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/israel-strikes-dozens-of-targets-in-lebanon
-
-**Mbappe, milk and mortality: What we learned from intriguing Luis Enrique documentary**\
-`A new documentary follows PSG manager Luis Enrique behind the scenes. Here's what we learned`\
-https://nytimes.com/athletic/5845127/2024/10/16/luis-enrique-documentary-psg-mbappe-barcelona-xavi/
-
-**Drew Bannister has faith in Nick Leddy: 'He's going to be a better player for us'**\
-`The veteran defenseman had a costly turnover in Tuesday's 4-1 loss to the Minnesota Wild, but the Blues are sticking with him.`\
-https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-nick-leddy/
-
-**Broncos rookie report: Can Bo Nix improve accuracy? More carries for Audric Estimé?**\
-`The offense's struggles extend well beyond Nix, but the rookie quarterback has to complete more manageable throws.`\
-https://nytimes.com/athletic/5844903/2024/10/16/broncos-rookie-report-bo-nix-audric-estime/
 
