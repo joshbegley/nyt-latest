@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-ni
 https://nytimes.com/interactive/2024/10/16/opinion/16focus-group-women-trump-voters.html
 
 **How the Guardians can get back in the ALCS against the Yankees**\
-`With the ALCS shifting back to Progressive Field, how can the Cleveland Guardians transform their postgame space into a party scene?`\
+`With the ALCS shifting back to Progressive Field, how can the Guardians transform their postgame space into a party scene?`\
 https://nytimes.com/athletic/5846700/2024/10/16/cleveland-guardians-new-york-yankees-alcs-game-2-analysis/
 
 **Inside the Wild's Filip Gustavsson's perfectly aimed goalie goal**\

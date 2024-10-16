@@ -1,3 +1,7 @@
+**How the Guardians can get back in the ALCS against the Yankees**\
+`With the ALCS shifting back to Progressive Field, how can the Guardians transform their postgame space into a party scene?`\
+https://nytimes.com/athletic/5846700/2024/10/16/cleveland-guardians-new-york-yankees-alcs-game-2-analysis/
+
 **Drew Bannister has faith in Nick Leddy: 'He's going to be a better player for us'**\
 `The veteran defenseman had a costly turnover in Tuesday's 4-1 loss to the Minnesota Wild, but the Blues are sticking with him.`\
 https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-nick-leddy/
