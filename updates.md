@@ -1,3 +1,7 @@
+**Aaron Rodgers and Davante Adams: Teammates — and housemates — try to bring Jets back from the brink**\
+`On Adams' first full day as a Jet, quarterback and star receiver discussed what it means to be back together.`\
+https://nytimes.com/athletic/5848550/2024/10/16/aaron-rodgers-davante-adams-comments-jets-raiders-trade/
+
 **New York Marathon Cracks Down on Cyclists’ Pre-Race Joyride**\
 `Last year, race officials say, a cyclist hit a pedestrian on the early-morning ride. This year, those attempting to ride the route will be removed.`\
 https://nytimes.com/2024/10/16/nyregion/nyc-marathon-bicycle-race.html

@@ -1,3 +1,7 @@
+**Aaron Rodgers and Davante Adams: Teammates — and housemates — try to bring Jets back from the brink**\
+`On Adams' first full day as a Jet, quarterback and star receiver discussed what it means to be back together.`\
+https://nytimes.com/athletic/5848550/2024/10/16/aaron-rodgers-davante-adams-comments-jets-raiders-trade/
+
 **New York Marathon Cracks Down on Cyclists’ Pre-Race Joyride**\
 `Last year, race officials say, a cyclist hit a pedestrian on the early-morning ride. This year, those attempting to ride the route will be removed.`\
 https://nytimes.com/2024/10/16/nyregion/nyc-marathon-bicycle-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/trumps-rallies-are-a-world-
 **Conservative Justices Appear to Side With San Francisco in Water Quality Dispute**\
 `The justices heard arguments on Wednesday in a long-simmering dispute between San Francisco and the E.P.A. over regulation of water pollution.`\
 https://nytimes.com/2024/10/16/us/politics/supreme-court-san-francisco-water-pollution.html
-
-**Leif Segerstam, Provocative Finnish Conductor and Composer, Dies at 80**\
-`He led his country’s principal orchestras and major orchestras elsewhere in Europe. He also mystified his countrymen with an unstoppable flow of symphonies.`\
-https://nytimes.com/2024/10/16/arts/music/leif-segerstam-dead.html
 
