@@ -1,3 +1,7 @@
+**Amelia Dimoldenberg Never Waits to Text, Even on the Red Carpet**\
+`The host of the viral video series “Chicken Shop Date” explains why she always texts someone she’s interested in right away.`\
+https://nytimes.com/video/podcasts/100000009763833/amelia-dimoldenberg-modern-love-podcast.html
+
 **For North Korea, War in Ukraine Is a Coveted Chance for Military Practice**\
 `North Korea is testing its new weapons on Russia’s side in the war, and Ukrainian officials say the North’s troops are also gaining direct battle experience.`\
 https://nytimes.com/2024/10/16/world/asia/north-korea-ukraine-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5843225/2024/10/16/goalies-4-nations-face-off-usa-c
 **How the Packers lead the NFL in takeaways with the help of 'Campy 3:16'**\
 `Green Bay had 18 takeaways all last season. Through six games in 2024, it already has 17.`\
 https://nytimes.com/athletic/5845309/2024/10/16/packers-defense-takeaways-hafley/
-
-**Linehan: Boston NWSL club misses the mark with BOS Nation FC and marketing campaign**\
-`The good news is that there's plenty of time for BOS Nation FC to course correct after its baffling launch.`\
-https://nytimes.com/athletic/5846075/2024/10/16/bos-nation-fc-boston-nwsl-linehan/
 

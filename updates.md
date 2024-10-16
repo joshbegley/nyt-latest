@@ -1,3 +1,7 @@
+**Amelia Dimoldenberg Never Waits to Text, Even on the Red Carpet**\
+`The host of the viral video series “Chicken Shop Date” explains why she always texts someone she’s interested in right away.`\
+https://nytimes.com/video/podcasts/100000009763833/amelia-dimoldenberg-modern-love-podcast.html
+
 **For North Korea, War in Ukraine Is a Coveted Chance for Military Practice**\
 `North Korea is testing its new weapons on Russia’s side in the war, and Ukrainian officials say the North’s troops are also gaining direct battle experience.`\
 https://nytimes.com/2024/10/16/world/asia/north-korea-ukraine-russia.html
