@@ -1,3 +1,7 @@
+**Grab Your Calculators. We’re Going to Jail.**\
+`Our criminal justice system is nickel-and-diming people at every turn, burying them in punishing debt.`\
+https://nytimes.com/video/opinion/100000009730762/jail-fees-mass-incarceration.html
+
 **Space: The Final Fashion Frontier**\
 `Prada and Axiom Space unveiled their NASA spacesuits, in the most far-out collaboration yet.`\
 https://nytimes.com/2024/10/16/style/prada-axiom-space-suits.html
