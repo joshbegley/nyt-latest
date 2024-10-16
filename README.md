@@ -1,3 +1,15 @@
+**The Victoria’s Secret Fashion Show Returns. It Shouldn’t.**\
+`Despite the wings, the supermodels and Cher, there’s no going back.`\
+https://nytimes.com/2024/10/16/style/victorias-secret-fashion-show-return-hiatus.html
+
+**Tuchel's unveiling dissected: '10 interviews', national anthem and Kane's role**\
+`The former Bayern Munich and Chelsea manager answered questions alongside the Football Association's chief executive officer Mark Bullingham`\
+https://nytimes.com/athletic/5842767/2024/10/16/england-thomas-tuchel-fa-analysis/
+
+**How Media Outlets on the Left and Right Covered Trump’s Musical Town Hall**\
+`When former President Donald J. Trump played D.J. at a campaign event on Monday, both liberal and conservative media outlets described it as “surreal.”`\
+https://nytimes.com/2024/10/16/business/media/media-politics-trump-town-hall-philadelphia.html
+
 **Review: ‘Ainadamar’ Fills the Met Opera Stage With Flamenco**\
 `Osvaldo Golijov and David Henry Hwang’s opera, inspired by the life of Federico García Lorca, arrived at the Met with a dizzying blend of styles.`\
 https://nytimes.com/2024/10/16/arts/music/met-opera-ainadamar-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/16/magazine/horse-stable-trump-supporter-ethics.html
 **NFL owners approve Jaguars' $1.4 billion stadium renovation project**\
 `Construction on the "Stadium of the Future" project is set to begin in February 2025 and is expected to be completed in 2028.`\
 https://nytimes.com/athletic/5847444/2024/10/16/jaguars-stadium-renovation/
-
-**2025 NFL Draft order projections: Saints tumble into top 10, Panthers hold at No. 1**\
-`How did Week 6 shake up the potential 2025 NFL Draft order?`\
-https://nytimes.com/athletic/5847200/2024/10/16/nfl-draft-order-2025-projections-saints-panthers/
-
-**Under Trump, U.S. Prisons Offered Gender-Affirming Care**\
-`The Trump administration’s approach is notable in light of a campaign ad that slams Vice President Kamala Harris for supporting taxpayer-funded transgender surgeries for prisoners and migrants.`\
-https://nytimes.com/2024/10/16/us/politics/trump-prisons-transgender-care-harris.html
-
-**Five necessary second-half risers and a prediction: Notre Dame at midseason**\
-`At mid-October, No. 12 Notre Dame (5-1) feels about where it wants to be. Even if the Irish haven’t been thrilled about how they got here.`\
-https://nytimes.com/athletic/5847392/2024/10/16/notre-dame-football-midseason-playoff/
 
