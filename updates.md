@@ -1,3 +1,7 @@
+**Water Crises Threaten the World’s Ability to Eat, Studies Show**\
+`Food production is concentrated in too few countries, many of which face water shortages, the researchers said.`\
+https://nytimes.com/2024/10/16/climate/water-shortages-global-food-supply.html
+
 **Trump’s Rallies Are a World Unto Themselves**\
 `But what is it about them that people remember?`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/trumps-rallies-are-a-world-unto-themselves

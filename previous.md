@@ -1,3 +1,7 @@
+**Water Crises Threaten the World’s Ability to Eat, Studies Show**\
+`Food production is concentrated in too few countries, many of which face water shortages, the researchers said.`\
+https://nytimes.com/2024/10/16/climate/water-shortages-global-food-supply.html
+
 **Trump’s Rallies Are a World Unto Themselves**\
 `But what is it about them that people remember?`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/trumps-rallies-are-a-world-unto-themselves
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/nyregion/fentanyl-bronx-day-care-deaths-sentencin
 **Supreme Court Paves Way, for Now, for E.P.A. Rule Limiting Power Plant Emissions**\
 `A group of states led by conservatives, along with industry players, challenged a Biden administration rule aimed at reducing power plant emissions.`\
 https://nytimes.com/2024/10/16/us/supreme-court-epa-emissions.html
-
-**Trudeau Goes on Offensive Over Foreign Interference Claims**\
-`Facing a revolt in his own party, Prime Minister Justin Trudeau attacked both the Conservative opposition and India’s government, which he said had made “a horrific mistake” in the killing of a Sikh activist.`\
-https://nytimes.com/2024/10/16/world/canada/trudeau-india-canada-sovereignty.html
 
