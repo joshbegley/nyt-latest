@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5846324/2024/10/15/canucks-third-consecutive-loss-l
 `Hanh Huynh’s puzzle is a lesson in patience.`\
 https://nytimes.com/2024/10/15/crosswords/daily-puzzle-2024-10-16.html
 
-**In Pennsylvania, Walz Blasts Trump and Vance as the Outsiders, Not Immigrants**\
+**In Pennsylvania, Walz Says Immigrants Aren’t the Outsiders: Trump and Vance Are**\
 `The Democratic vice-presidential nominee unveiled his ticket’s plan targeted at rural voters — including those protesting his visit.`\
 https://nytimes.com/2024/10/15/us/politics/tim-walz-pennsylvania-trump-vance.html
 
