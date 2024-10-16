@@ -1,3 +1,7 @@
+**Bulls’ Lonzo Ball to return with 16-minute restriction Wednesday**\
+`“I’m going to have to manage it all year. That’s just the reality of it,” Ball said Wednesday following the team’s shootaround.`\
+https://nytimes.com/athletic/5847800/2024/10/16/bulls-lonzo-ball-return-minutes-restriction/
+
 **Trump Raises Eyebrows by Proclaiming Himself the ‘Father of I.V.F.’**\
 `His campaign said the comment, which he said at an event focused on women’s issues, was “made in jest.” He has supported access to I.V.F. recently but didn’t promote it before this year.`\
 https://nytimes.com/2024/10/16/us/politics/trump-ivf-abortion.html
