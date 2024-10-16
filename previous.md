@@ -1,3 +1,7 @@
+**Tuchel: England have hired a 'winner' but does that guarantee anything in international game?**\
+`England are set to appoint Thomas Tuchel as their new manager. This represents a real change from the Gareth Southgate era`\
+https://nytimes.com/athletic/5846569/2024/10/16/thomas-tuchel-england-appointment/
+
 **Drew Bannister has faith in Nick Leddy: 'He's going to be a better player for us'**\
 `The veteran defenseman had a costly turnover in Tuesday's 4-1 loss to the Minnesota Wild, but the Blues are sticking with him.`\
 https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-nick-leddy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5844565/2024/10/16/mads-hermansen-leicester-cooper/
 **Reece James is back in Chelsea training. Now he has to prove he can stay fit and find form**\
 `When Chelsea return to action against Liverpool, it will be 562 days since James last managed to play a full 90 minutes in the league`\
 https://nytimes.com/athletic/5844420/2024/10/16/reece-james-chelsea-training-return/
-
-**Jean-Clair Todibo and Max Kilman look like a partnership - this can only help West Ham progress**\
-`Todibo and Kilman have clearly become West Ham's preferred defensive partnership in recent weeks`\
-https://nytimes.com/athletic/5842298/2024/10/16/jean-clair-todibo-maximilian-kilman-west-ham-analysis/
 

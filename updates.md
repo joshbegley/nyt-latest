@@ -1,3 +1,7 @@
+**Tuchel: England have hired a 'winner' but does that guarantee anything in international game?**\
+`England are set to appoint Thomas Tuchel as their new manager. This represents a real change from the Gareth Southgate era`\
+https://nytimes.com/athletic/5846569/2024/10/16/thomas-tuchel-england-appointment/
+
 **How the Guardians can get back in the ALCS against the Yankees**\
 `With the ALCS shifting back to Progressive Field, how can the Guardians transform their postgame space into a party scene?`\
 https://nytimes.com/athletic/5846700/2024/10/16/cleveland-guardians-new-york-yankees-alcs-game-2-analysis/
