@@ -1,3 +1,7 @@
+**Gibbs-White set to miss Palace match through injury**\
+`Morgan Gibbs-White is set to miss Nottingham Forest&#8217;s Premier League match against Crystal Palace on Monday with an ankle injury.`\
+https://nytimes.com/athletic/5847786/2024/10/16/morgan-gibbs-white-injury-crystal-palace/
+
 **Substitute Teacher Reenacted George Floyd Murder at Minnesota High School**\
 `Students said the teacher, who claimed to be a police officer, also said “police brutality isn’t real.”`\
 https://nytimes.com/2024/10/16/us/teacher-reenacts-george-floyd-murder.html

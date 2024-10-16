@@ -1,3 +1,7 @@
+**Gibbs-White set to miss Palace match through injury**\
+`Morgan Gibbs-White is set to miss Nottingham Forest&#8217;s Premier League match against Crystal Palace on Monday with an ankle injury.`\
+https://nytimes.com/athletic/5847786/2024/10/16/morgan-gibbs-white-injury-crystal-palace/
+
 **Substitute Teacher Reenacted George Floyd Murder at Minnesota High School**\
 `Students said the teacher, who claimed to be a police officer, also said “police brutality isn’t real.”`\
 https://nytimes.com/2024/10/16/us/teacher-reenacts-george-floyd-murder.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/us/politics/republicans-congress-election-denial.
 **Chelsea, Liverpool, Man Utd academy tensions see scouts denied access to youth games**\
 `Tensions at academy level between Chelsea, Liverpool and Manchester United have led to scouts being denied access to youth games.`\
 https://nytimes.com/athletic/5844759/2024/10/16/chelsea-liverpool-man-utd-scouts/
-
-**Columbia Bars Vocal Pro-Israel Professor From Campus**\
-`The university said that Shai Davidai has repeatedly harassed and intimidated employees. He said that the university has not done enough to crack down on pro-Palestinian protests.`\
-https://nytimes.com/2024/10/16/us/columbia-professor-shai-davidai-banned.html
 
