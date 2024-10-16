@@ -1,3 +1,7 @@
+**Scoop City: The history of in-season WR trades**\
+`Of the 17 significant in-season receiver trades since 2000, only 5 were successes. Davante Adams and Amari Cooper might make it 7.`\
+https://nytimes.com/athletic/5845960/2024/10/16/scoop-city-the-history-of-in-season-wr-trades/
+
 **Tuchel addresses England doubters: 'I'm sorry I have a German passport'**\
 `Thomas Tuchel says the onus is on him to show supporters that he deserves a “fair chance” after becoming the new England head coach in light of the Football Association being criticised for appointing a German coach.`\
 https://nytimes.com/athletic/5847305/2024/10/16/thomas-tuchel-england-manager-german/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5847000/2024/10/16/magic-paolo-banchero-nba-the-bou
 **Fuel Tanker Explosion Leaves at Least 90 Dead in Nigeria**\
 `Residents of a nearby town came to scoop up the spilled gasoline, but then the tanker exploded, setting off an inferno — an echo of several similar disasters in recent years.`\
 https://nytimes.com/2024/10/16/world/africa/nigeria-fuel-tanker-explosion.html
-
-**Hurricanes Spur Pet Adoptions Nationwide. Should You Get a ‘Storm Dog’?**\
-`Amid major disasters, shelter animals are often sent to other states. And people are more likely to foster and adopt. Here’s what to know.`\
-https://nytimes.com/2024/10/16/us/hurricanes-shelters-pet-adoptions.html
 
