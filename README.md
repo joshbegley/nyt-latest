@@ -1,3 +1,7 @@
+**NFL owners approve Jaguars' $1.4 billion stadium renovation project**\
+`Construction on the "Stadium of the Future" project is set to begin in February 2025 and is expected to be completed in 2028.`\
+https://nytimes.com/athletic/5847444/2024/10/16/jaguars-stadium-renovation/
+
 **2025 NFL Draft order projections: Saints tumble into top 10, Panthers hold at No. 1**\
 `How did Week 6 shake up the potential 2025 NFL Draft order?`\
 https://nytimes.com/athletic/5847200/2024/10/16/nfl-draft-order-2025-projections-saints-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5847073/2024/10/16/chris-kreider-penalty-killing-br
 **Eagles RB Saquon Barkley returns to New York, where the hard feelings remain fresh**\
 `Pride. Ego. Stubbornness. All of it prevented one last compromise from either side to achieve Barkley’s dream of being a "Giant for life."`\
 https://nytimes.com/athletic/5846051/2024/10/16/saquon-barkley-giants-joe-schoen-eagles/
-
-**With Amari Cooper, here's what the Bills are getting from their new receiver**\
-`Amari Cooper is a home run for the Bills, who needed to upgrade their receiver room.`\
-https://nytimes.com/athletic/5846503/2024/10/16/amari-cooper-trade-bills-analysis-receiver/
 
