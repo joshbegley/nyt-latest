@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`A warning from the U.S. to Israel.`\
+https://nytimes.com/2024/10/16/briefing/israel-gaza-aid-trump-putin-canada.html
+
 **Meet Sipke Hulshoff, Liverpool's clipboard-wielding 'field coach'**\
 `The Dutchman has developed a symbiotic bond with his compatriot after a relationship stretching back 10 years`\
 https://nytimes.com/athletic/5844715/2024/10/16/sipke-hulshoff-liverpool-assistant-profile/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5824763/2024/10/16/how-meslier-can-bounce-back/
 **Understanding Havertz: What makes him tick and how Arsenal are getting the best out of him**\
 `Havertz is a player transformed at Arsenal after a slow start - this is how manager Mikel Arteta is helping him to perform so well`\
 https://nytimes.com/athletic/5830675/2024/10/16/kai-havertz-mindset-arsenal/
-
-**Premier League shirt-front betting sponsorships will be banned from 2026. So what comes next?**\
-`Clubs will see their sponsorship revenue drop when gambling firms on players' chests are outlawed - how will they fill the financial void?`\
-https://nytimes.com/athletic/5839947/2024/10/16/premier-league-betting-what-next/
 
