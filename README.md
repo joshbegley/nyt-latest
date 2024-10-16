@@ -1,3 +1,11 @@
+**‘The guy can play whatever’: Inside the rise of Leo Chenal, the Chiefs’ most underrated defensive player**\
+`In his third season, Chenal has become the Chiefs’ most versatile defender. "The guy can play whatever."`\
+https://nytimes.com/athletic/5845761/2024/10/16/chiefs-leo-chenal-underrated-defensive-player/
+
+**How D'Andre Swift and the Bears run game have 'come alive' during winning streak**\
+`Swift has been one of the best backs in the league since Week 4, and that's helping the Bears win games. An All-22 breakdown.`\
+https://nytimes.com/athletic/5846269/2024/10/16/bears-dandre-swift-run-game/
+
 **Early Votes Pour In, and a U.S. Warning to Israel Over Gaza**\
 `Plus, the new hot item on wedding registries.`\
 https://nytimes.com/2024/10/16/podcasts/early-votes-israel-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5846075/2024/10/16/bos-nation-fc-boston-nwsl-lineha
 **The Race That Could Tip Control of the Senate**\
 `Montana’s three-term Democratic senator, Jon Tester, is facing a tough race with increasingly high stakes.`\
 https://nytimes.com/2024/10/16/podcasts/the-daily/senate-2024.html
-
-**Steven Lorentz is living his childhood dream with the Maple Leafs**\
-`Steven Lorentz still can’t believe that it’s happening, that he's in the NHL and now, suddenly, playing for the Leafs.`\
-https://nytimes.com/athletic/5845041/2024/10/16/steven-lorentz-maple-leafs/
-
-**Evan Stewart, Emeka Egbuka, other NFL Draft prospects who stood out in Ohio State-Oregon game**\
-`Emeka Egbuka and Josh Conerly Jr. also put impressive performances on tape during Oregon's dramatic overtime win.`\
-https://nytimes.com/athletic/5842959/2024/10/16/oregon-ohio-state-nfl-draft-2025-prospects-evan-stewart/
 
