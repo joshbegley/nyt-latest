@@ -1,3 +1,11 @@
+**In Race for Congress, Republican Election Deniers and Skeptics Seek Swing Seats**\
+`G.O.P. candidates in critical House districts have sought to moderate or gloss over their past questioning of the 2020 election results, as well as hard-right positions on social issues.`\
+https://nytimes.com/2024/10/16/us/politics/republicans-congress-election-denial.html
+
+**Chelsea, Liverpool, Man Utd academy tensions see scouts denied access to youth games**\
+`Tensions at academy level between Chelsea, Liverpool and Manchester United have led to scouts being denied access to youth games.`\
+https://nytimes.com/athletic/5844759/2024/10/16/chelsea-liverpool-man-utd-scouts/
+
 **Columbia Bars Vocal Pro-Israel Professor From Campus**\
 `The university said that Shai Davidai has repeatedly harassed and intimidated employees. He said that the university has not done enough to crack down on pro-Palestinian protests.`\
 https://nytimes.com/2024/10/16/us/columbia-professor-shai-davidai-banned.html
