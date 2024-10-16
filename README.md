@@ -1,3 +1,7 @@
+**The Athletic FC: England hire Tuchel - a good call? Plus: USMNT's wake-up call, Messi treble**\
+`Today in TAFC: England hire Thomas Tuchel as they change approach. Plus: USMNT get a wake-up call and Messi stars with a hat-trick.`\
+https://nytimes.com/athletic/5846888/2024/10/16/the-athletic-fc-england-hire-tuchel-a-good-call-plus-usmnts-wake-up-call-messi-treble/
+
 **How Kris Knoblauch sparked Leon Draisaitl with a new approach**\
 `Knoblauch had the guts to do what his predecessors either wouldn’t or felt they couldn’t, and it paid off with the Oilers' first win.`\
 https://nytimes.com/athletic/5846815/2024/10/16/leon-draisaitl-oilers-flyers-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5844903/2024/10/16/broncos-rookie-report-bo-nix-aud
 **Why Davante Adams’ breakup with Raiders felt inevitable ever since Derek Carr was released**\
 `The Raiders weren't winning enough for Adams and never delivered a satisfactory quarterback situation after moving on from Carr. `\
 https://nytimes.com/athletic/5845232/2024/10/16/raiders-davante-adams-trade-what-went-wrong/
-
-**A Top University Bet on D.E.I. What Went Wrong?**\
-`We cover the impact of college diversity programs.`\
-https://nytimes.com/2024/10/16/briefing/university-diversity-programs.html
 
