@@ -1,3 +1,15 @@
+**Trump Draws, and Repels, Nevada Latinos With His Anti-Immigrant Message**\
+`For some, Donald J. Trump’s incessant attacks on immigrants are too much. Still, many appear prepared to look past his escalations and back a candidate they believe will help their livelihoods.`\
+https://nytimes.com/2024/10/16/us/politics/trump-draws-and-repels-nevada-latinos-with-his-anti-immigrant-message.html
+
+**Drake Maye's first NFL start: Examining the good and the bad from the Patriots QB**\
+`Our Patriots beat writer and NFL Draft analyst got together to break down the positives and negatives of Maye's first NFL start.`\
+https://nytimes.com/athletic/5845135/2024/10/16/drake-maye-patriots-qb-first-nfl-start/
+
+**Can a safety win Defensive Player of the Year? Falcons say yes, tout Jessie Bates**\
+`Atlanta safety Jessie Bates should be a candidate for Defensive Player of the Year, his teammates say, but can a safety win it these days?`\
+https://nytimes.com/athletic/5845449/2024/10/16/falcons-jessie-bates-defensive-player-of-the-year/
+
 **A Crowd of Republicans Will Join Harris at a Pennsylvania Stop**\
 `The visit will take place near the Revolutionary War site where George Washington crossed the Delaware.`\
 https://nytimes.com/2024/10/16/us/politics/republicans-harris-pennsylvania.html
