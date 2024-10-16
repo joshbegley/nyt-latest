@@ -1,3 +1,7 @@
+**Wednesday Briefing**\
+`A warning from the U.S. to Israel.`\
+https://nytimes.com/2024/10/16/briefing/israel-gaza-aid-trump-putin-canada.html
+
 **Meet Sipke Hulshoff, Liverpool's clipboard-wielding 'field coach'**\
 `The Dutchman has developed a symbiotic bond with his compatriot after a relationship stretching back 10 years`\
 https://nytimes.com/athletic/5844715/2024/10/16/sipke-hulshoff-liverpool-assistant-profile/
