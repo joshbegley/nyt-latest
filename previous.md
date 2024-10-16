@@ -1,3 +1,15 @@
+**New York Marathon Cracks Down on Cyclists’ Pre-Race Joyride**\
+`Last year, race officials say, a cyclist hit a pedestrian on the early-morning ride. This year, those attempting to ride the route will be removed.`\
+https://nytimes.com/2024/10/16/nyregion/nyc-marathon-bicycle-race.html
+
+**Mexico’s Ex-Security Chief Sentenced to 38 Years for Cartel Bribery**\
+`The stiff penalty was the potentially final step in the stunning downfall of the former official, Genaro García Luna, who has gone from the heights of power to imprisonment.`\
+https://nytimes.com/2024/10/16/world/americas/genaro-garcia-luna-sentencing.html
+
+**Ethel Kennedy Is Eulogized by 3 Presidents, Celebrities and Grandchildren**\
+`The memorial service in Washington drew major names from the Democratic Party and celebrities, including Sting and Stevie Wonder.`\
+https://nytimes.com/2024/10/16/us/politics/ethel-kennedy-eulogy-biden.html
+
 **In a Harris Ad, a Black Man Speaks to Black Men on Her Behalf**\
 `A commercial running in Philadelphia confronts the idea that some Black men might be hesitant to vote for Kamala Harris because she is a woman. “Women know how to make things happen,” a supporter says.`\
 https://nytimes.com/2024/10/16/us/politics/in-a-harris-ad-a-black-man-speaks-to-black-men-on-her-behalf.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/16/us/politics/supreme-court-san-francisco-water-pol
 **Leif Segerstam, Provocative Finnish Conductor and Composer, Dies at 80**\
 `He led his country’s principal orchestras and major orchestras elsewhere in Europe. He also mystified his countrymen with an unstoppable flow of symphonies.`\
 https://nytimes.com/2024/10/16/arts/music/leif-segerstam-dead.html
-
-**Tuchel, FA explains delayed start date as England manager**\
-`Thomas Tuchel has said that he wants to have a “clean start”, as he explained at his England unveiling why he is not starting the job until January 1.`\
-https://nytimes.com/athletic/5847791/2024/10/16/thomas-tuchel-england-manager-start-date/
-
-**Trump Faces Tough Questions From Hispanic Voters, but Largely Defends or Dodges**\
-`In a town hall that Univision will broadcast at 10 p.m. Eastern, Donald J. Trump did not directly answer many frank questions on climate change, immigration, abortion rights and other topics.`\
-https://nytimes.com/2024/10/16/us/politics/trump-univision-hispanic-voters.html
-
-**As Eric Adams’s Problems Mount, His Legal Defense Fund Is Empty**\
-`Mayor Eric Adams has spent nearly all of the $1.8 million in donations to his legal defense fund, and the pace of contributions has nearly stopped.`\
-https://nytimes.com/2024/10/16/nyregion/eric-adams-legal-defense-fund.html
 
