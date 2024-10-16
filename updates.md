@@ -1,3 +1,11 @@
+**More Research Links IUDs to Breast Cancer Risk**\
+`A new study adds to the evidence on hormonal contraceptives and breast cancer. But experts stressed the overall risk remains low.`\
+https://nytimes.com/2024/10/16/well/iud-breast-cancer-mirena-skyla.html
+
+**Can I Patronize a Place Run by a Trump Supporter?**\
+`The magazine’s Ethicist columnist on what it means to be a customer of someone who espouses a radically different political perspective.`\
+https://nytimes.com/2024/10/16/magazine/horse-stable-trump-supporter-ethics.html
+
 **NFL owners approve Jaguars' $1.4 billion stadium renovation project**\
 `Construction on the "Stadium of the Future" project is set to begin in February 2025 and is expected to be completed in 2028.`\
 https://nytimes.com/athletic/5847444/2024/10/16/jaguars-stadium-renovation/

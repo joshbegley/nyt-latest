@@ -1,3 +1,11 @@
+**More Research Links IUDs to Breast Cancer Risk**\
+`A new study adds to the evidence on hormonal contraceptives and breast cancer. But experts stressed the overall risk remains low.`\
+https://nytimes.com/2024/10/16/well/iud-breast-cancer-mirena-skyla.html
+
+**Can I Patronize a Place Run by a Trump Supporter?**\
+`The magazine’s Ethicist columnist on what it means to be a customer of someone who espouses a radically different political perspective.`\
+https://nytimes.com/2024/10/16/magazine/horse-stable-trump-supporter-ethics.html
+
 **NFL owners approve Jaguars' $1.4 billion stadium renovation project**\
 `Construction on the "Stadium of the Future" project is set to begin in February 2025 and is expected to be completed in 2028.`\
 https://nytimes.com/athletic/5847444/2024/10/16/jaguars-stadium-renovation/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/dining/well-stocked-pantry.html
 **Spence signs new Spurs deal through to 2028**\
 `Tottenham Hotspur defender Djed Spence has signed a contract extension through to 2028.`\
 https://nytimes.com/athletic/5847418/2024/10/16/djed-spence-tottenham-contract-new/
-
-**How one training-camp decision opened a new path for Rangers' Chris Kreider**\
-`Since the Rangers put Kreider on the penalty kill ahead of the 2021-22 season, his engagement and production in all areas has taken off.`\
-https://nytimes.com/athletic/5847073/2024/10/16/chris-kreider-penalty-killing-breakout/
-
-**Eagles RB Saquon Barkley returns to New York, where the hard feelings remain fresh**\
-`Pride. Ego. Stubbornness. All of it prevented one last compromise from either side to achieve Barkley’s dream of being a "Giant for life."`\
-https://nytimes.com/athletic/5846051/2024/10/16/saquon-barkley-giants-joe-schoen-eagles/
 
