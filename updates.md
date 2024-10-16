@@ -1,3 +1,11 @@
+**Alex Bowman on having fun in NASCAR, getting stuck on a boat and more: 12 Questions**\
+`Alex Bowman talks about the challenge of finding time to enjoy himself, saving the day on a stranded boat and much more.`\
+https://nytimes.com/athletic/5834341/2024/10/16/alex-bowman-nascar-boat-12-questions/
+
+**Israel strikes dozens of targets in Lebanon.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/israel-strikes-dozens-of-targets-in-lebanon
+
 **Mbappe, milk and mortality: What we learned from intriguing Luis Enrique documentary**\
 `A new documentary follows PSG manager Luis Enrique behind the scenes. Here's what we learned`\
 https://nytimes.com/athletic/5845127/2024/10/16/luis-enrique-documentary-psg-mbappe-barcelona-xavi/

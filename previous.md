@@ -1,3 +1,11 @@
+**Alex Bowman on having fun in NASCAR, getting stuck on a boat and more: 12 Questions**\
+`Alex Bowman talks about the challenge of finding time to enjoy himself, saving the day on a stranded boat and much more.`\
+https://nytimes.com/athletic/5834341/2024/10/16/alex-bowman-nascar-boat-12-questions/
+
+**Israel strikes dozens of targets in Lebanon.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/israel-strikes-dozens-of-targets-in-lebanon
+
 **Mbappe, milk and mortality: What we learned from intriguing Luis Enrique documentary**\
 `A new documentary follows PSG manager Luis Enrique behind the scenes. Here's what we learned`\
 https://nytimes.com/athletic/5845127/2024/10/16/luis-enrique-documentary-psg-mbappe-barcelona-xavi/
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000009763833/amelia-dimoldenberg-modern-lo
 **For North Korea, War in Ukraine Is a Coveted Chance for Military Practice**\
 `Helping Russia in the war is an opportunity for North Korea to test its new weapons, and Ukrainian officials say the North’s troops are also gaining direct battle experience.`\
 https://nytimes.com/2024/10/16/world/asia/north-korea-ukraine-russia.html
-
-**‘The guy can play whatever’: Inside the rise of Leo Chenal, the Chiefs’ most underrated defensive player**\
-`In his third season, Chenal has become the Chiefs’ most versatile defender. "The guy can play whatever."`\
-https://nytimes.com/athletic/5845761/2024/10/16/chiefs-leo-chenal-underrated-defensive-player/
-
-**How D'Andre Swift and the Bears run game have 'come alive' during winning streak**\
-`Swift has been one of the best backs in the league since Week 4, and that's helping the Bears win games. An All-22 breakdown.`\
-https://nytimes.com/athletic/5846269/2024/10/16/bears-dandre-swift-run-game/
 
