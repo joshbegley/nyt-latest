@@ -1,3 +1,11 @@
+**Read the Nebraska Supreme Court Ruling on Voting Rights for Felons**\
+`The decision affirmed a law passed by the Legislature this year clearing the way for people to cast ballots immediately after finishing prison and parole terms.`\
+https://nytimes.com/interactive/2024/10/16/us/16nat-nebraska-voting-ruling.html
+
+**Unrivaled, TNT reach multi-year broadcasting deal**\
+`Unrivaled is set to tip off on Jan. 17, 2025, and has already attracted some of the best women's basketball players in the world.`\
+https://nytimes.com/athletic/5847849/2024/10/16/unrivaled-tnt-broadcasting-deal/
+
 **Bumblebee Queens Prefer to Live in a Toxic Home**\
 `In an elaborate experiment, scientists discovered that the insects chose to hibernate in soil full of pesticides and other poisons.`\
 https://nytimes.com/2024/10/16/science/bumblebee-queens-pesticides-soil.html

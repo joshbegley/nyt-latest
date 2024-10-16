@@ -1,3 +1,11 @@
+**Read the Nebraska Supreme Court Ruling on Voting Rights for Felons**\
+`The decision affirmed a law passed by the Legislature this year clearing the way for people to cast ballots immediately after finishing prison and parole terms.`\
+https://nytimes.com/interactive/2024/10/16/us/16nat-nebraska-voting-ruling.html
+
+**Unrivaled, TNT reach multi-year broadcasting deal**\
+`Unrivaled is set to tip off on Jan. 17, 2025, and has already attracted some of the best women's basketball players in the world.`\
+https://nytimes.com/athletic/5847849/2024/10/16/unrivaled-tnt-broadcasting-deal/
+
 **Bumblebee Queens Prefer to Live in a Toxic Home**\
 `In an elaborate experiment, scientists discovered that the insects chose to hibernate in soil full of pesticides and other poisons.`\
 https://nytimes.com/2024/10/16/science/bumblebee-queens-pesticides-soil.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5847668/2024/10/16/trent-alexander-arnold-real-madr
 **The Windup: Yankees win! But not any style points**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter.`\
 https://nytimes.com/athletic/5847754/2024/10/16/yankees-guardians-alcs-mlb-the-windup/
-
-**Trump Wants Young Voters, but He’s Nowhere to Be Seen on Snapchat**\
-`The former president, whose personal account was banned after the Capitol riot, has refused to spend campaign money on Snapchat ads, effectively ceding the space to Kamala Harris.`\
-https://nytimes.com/2024/10/16/us/politics/trump-snapchat-harris.html
-
-**In a Decade-long Caper, Criminals Cashed In on Fake Wine, Police Say**\
-`A criminal network was accused of selling bottles of fake French wine for as much as 15,000 euros. It’s the latest in a growing criminal trend: wine fraud.`\
-https://nytimes.com/2024/10/16/world/europe/wine-fraud-france-italy.html
 
