@@ -1,3 +1,7 @@
+**Finnish hockey mourns first openly gay player in top league after his murder, partner's arrest**\
+`Puhakka, who spent two years with the QMJHL's Chicoutimi Sagueneens, was found shot to death in his home on Sunday night. He was 29.`\
+https://nytimes.com/athletic/5848409/2024/10/16/janne-puhakka-death-finland-hockey-player/
+
 **Into the Gender Gap**\
 `Harris and Trump are trying to address the gender gap. Their approaches could not be more different.`\
 https://nytimes.com/2024/10/16/us/politics/into-the-gender-gap.html

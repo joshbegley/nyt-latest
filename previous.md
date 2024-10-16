@@ -1,3 +1,7 @@
+**Finnish hockey mourns first openly gay player in top league after his murder, partner's arrest**\
+`Puhakka, who spent two years with the QMJHL's Chicoutimi Sagueneens, was found shot to death in his home on Sunday night. He was 29.`\
+https://nytimes.com/athletic/5848409/2024/10/16/janne-puhakka-death-finland-hockey-player/
+
 **Into the Gender Gap**\
 `Harris and Trump are trying to address the gender gap. Their approaches could not be more different.`\
 https://nytimes.com/2024/10/16/us/politics/into-the-gender-gap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/nyregion/nyc-marathon-bicycle-race.html
 **Mexico’s Ex-Security Chief Sentenced to 38 Years for Cartel Bribery**\
 `The stiff penalty was the potentially final step in the stunning downfall of the former official, Genaro García Luna, who has gone from the heights of power to imprisonment.`\
 https://nytimes.com/2024/10/16/world/americas/genaro-garcia-luna-sentencing.html
-
-**Ethel Kennedy Is Eulogized by 3 Presidents, Celebrities and Grandchildren**\
-`The memorial service in Washington drew major names from the Democratic Party and celebrities, including Sting and Stevie Wonder.`\
-https://nytimes.com/2024/10/16/us/politics/ethel-kennedy-eulogy-biden.html
 
