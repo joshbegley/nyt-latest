@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5843850/2024/10/16/how-are-nba-gms-and-execs-trying
 https://nytimes.com/athletic/5844939/2024/10/16/mlb-final-four-teams-lessons/
 
 **Here are the latest developments.**\
-`By Victoria Kim and Gabby Sobelman`\
+`By Euan Ward, Victoria Kim and Gabby Sobelman`\
 https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/here-are-the-latest-developments
 
 **Where a Million Desperate People Are Finding Shelter in Lebanon**\

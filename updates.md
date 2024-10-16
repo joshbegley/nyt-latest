@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Euan Ward, Victoria Kim and Gabby Sobelman`\
+https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/here-are-the-latest-developments
+
 **With Jets and Ships, China Is Honing Its Ability to Choke Taiwan**\
 `China’s large-scale military exercises are encircling Taiwan and testing the island’s defenses. They also raise the risk of conflict, accidental or otherwise.`\
 https://nytimes.com/2024/10/16/world/asia/china-taiwan-blockade-drills.html
