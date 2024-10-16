@@ -1,3 +1,7 @@
+**Zelensky Pitches His ‘Victory Plan’ to Ukrainian Lawmakers**\
+`The proposal would rely heavily on increased Western assistance. So far, it has drawn a lukewarm response from Ukraine’s allies.`\
+https://nytimes.com/2024/10/16/world/europe/zelensky-ukraine-victory-plan-russia.html
+
 **Alex Bowman on having fun in NASCAR, getting stuck on a boat and more: 12 Questions**\
 `Alex Bowman talks about the challenge of finding time to enjoy himself, saving the day on a stranded boat and much more.`\
 https://nytimes.com/athletic/5834341/2024/10/16/alex-bowman-nascar-boat-12-questions/
