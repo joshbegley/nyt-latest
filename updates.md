@@ -1,3 +1,7 @@
+**Jean-Clair Todibo and Max Kilman look like a partnership - this can only help West Ham progress**\
+`Todibo and Kilman have clearly become West Ham's preferred defensive partnership in recent weeks`\
+https://nytimes.com/athletic/5842298/2024/10/16/jean-clair-todibo-maximilian-kilman-west-ham-analysis/
+
 **Tuchel: England have hired a 'winner' but does that guarantee anything in international game?**\
 `England are set to appoint Thomas Tuchel as their new manager. This represents a real change from the Gareth Southgate era`\
 https://nytimes.com/athletic/5846569/2024/10/16/thomas-tuchel-england-appointment/

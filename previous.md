@@ -26,10 +26,6 @@ https://nytimes.com/athletic/5846694/2024/10/16/usmnt-mexico-friendly-result-tak
 `A warning from the U.S. to Israel.`\
 https://nytimes.com/2024/10/16/briefing/israel-gaza-aid-trump-putin-canada.html
 
-**Meet Sipke Hulshoff, Liverpool's clipboard-wielding 'field coach'**\
-`The Dutchman has developed a symbiotic bond with his compatriot after a relationship stretching back 10 years`\
-https://nytimes.com/athletic/5844715/2024/10/16/sipke-hulshoff-liverpool-assistant-profile/
-
 **How Hermansen's role has changed under Cooper - and why he remains crucial**\
 `Goalkeeper has a crucial role to play as Leicester bid to retain their Premier League status - and he has made a superb start in a new style`\
 https://nytimes.com/athletic/5844565/2024/10/16/mads-hermansen-leicester-cooper/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5844565/2024/10/16/mads-hermansen-leicester-cooper/
 **Reece James is back in Chelsea training. Now he has to prove he can stay fit and find form**\
 `When Chelsea return to action against Liverpool, it will be 562 days since James last managed to play a full 90 minutes in the league`\
 https://nytimes.com/athletic/5844420/2024/10/16/reece-james-chelsea-training-return/
+
+**Jean-Clair Todibo and Max Kilman look like a partnership - this can only help West Ham progress**\
+`Todibo and Kilman have clearly become West Ham's preferred defensive partnership in recent weeks`\
+https://nytimes.com/athletic/5842298/2024/10/16/jean-clair-todibo-maximilian-kilman-west-ham-analysis/
 
