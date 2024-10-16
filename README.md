@@ -1,3 +1,7 @@
+**At Town Hall on Women’s Issues, Trump Renews ‘Enemy Within’ Talk**\
+`Donald Trump fielded questions from an audience of all women in Georgia for a Fox News event to be broadcast on Wednesday morning.`\
+https://nytimes.com/2024/10/15/us/politics/trump-fox-news-women-town-hall.html
+
 **Corrections: Oct. 16, 2024**\
 `Corrections that appeared in print on Wednesday, Oct. 16, 2024.`\
 https://nytimes.com/2024/10/15/pageoneplus/corrections-oct-16-2024.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5846247/2024/10/15/jerry-jones-radio-comments-exclu
 **Marking the Spot Where Desi Arnaz of ‘I Love Lucy’ Played the Conga**\
 `A new historical marker in Miami Beach pays tribute to his younger years, before Hollywood, when as a Cuban émigré he performed at a nightclub.`\
 https://nytimes.com/2024/10/15/arts/television/desi-arnaz-miami-beach-marker.html
-
-**The View of the Election from One Philly Barbershop**\
-`A round-table event offers a glimpse of the challenges Harris faces and the effort to overcome them.`\
-https://nytimes.com/2024/10/15/us/politics/trump-harris-black-male-voters.html
 
