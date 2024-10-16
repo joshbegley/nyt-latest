@@ -1,3 +1,11 @@
+**How Kris Knoblauch sparked Leon Draisaitl with a new approach**\
+`Knoblauch had the guts to do what his predecessors either wouldn’t or felt they couldn’t, and it paid off with the Oilers' first win.`\
+https://nytimes.com/athletic/5846815/2024/10/16/leon-draisaitl-oilers-flyers-win/
+
+**How Moses Moody is staking loud claim for Warriors' rotation role and new contract**\
+`Golden State has until Monday to decide whether to extend the fourth-year wing. Moody's strong preseason is helping his cause.`\
+https://nytimes.com/athletic/5841544/2024/10/16/moses-moody-warriors-role-contract/
+
 **Zelensky Pitches His ‘Victory Plan’ to Ukrainian Lawmakers**\
 `The proposal would rely heavily on increased Western assistance. So far, it has drawn a lukewarm response from Ukraine’s allies.`\
 https://nytimes.com/2024/10/16/world/europe/zelensky-ukraine-victory-plan-russia.html
