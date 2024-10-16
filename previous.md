@@ -1,3 +1,15 @@
+**How one training-camp decision opened a new path for Rangers' Chris Kreider**\
+`Since the Rangers put Kreider on the penalty kill ahead of the 2021-22 season, his engagement and production in all areas has taken off.`\
+https://nytimes.com/athletic/5847073/2024/10/16/chris-kreider-penalty-killing-breakout/
+
+**Eagles RB Saquon Barkley returns to New York, where the hard feelings remain fresh**\
+`Pride. Ego. Stubbornness. All of it prevented one last compromise from either side to achieve Barkley’s dream of being a "Giant for life."`\
+https://nytimes.com/athletic/5846051/2024/10/16/saquon-barkley-giants-joe-schoen-eagles/
+
+**With Amari Cooper, here's what the Bills are getting from their new receiver**\
+`Amari Cooper is a home run for the Bills, who needed to upgrade their receiver room.`\
+https://nytimes.com/athletic/5846503/2024/10/16/amari-cooper-trade-bills-analysis-receiver/
+
 **Harris Will Air Ad Hitting Trump on Abortion During His Fox News Event**\
 `The ad features a woman from Kentucky telling a harrowing story of being sexually assaulted and impregnated by her stepfather at the age of 12.`\
 https://nytimes.com/2024/10/16/us/politics/harris-ad-trump-abortion-fox-news.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5847318/2024/10/16/jamal-crawford-knicks-msg-networ
 **Nebraska Supreme Court Upholds Voting Rights for Felons**\
 `Legislators voted to restore voting rights to more people convicted of felonies, but a dispute over that law’s constitutionality created pre-election confusion.`\
 https://nytimes.com/2024/10/16/us/nebraska-felon-voting-rights.html
-
-**Michelle Obama to Host a Rally to Encourage Voter Turnout in Georgia**\
-`The former first lady, one of the Democratic Party’s most popular but most elusive figures, will appeal to younger, nonwhite voters.`\
-https://nytimes.com/2024/10/16/us/politics/michelle-obama-atlanta-rally.html
-
-**Barcelona and the Negreira case: What's the latest?**\
-`Charges were brought over a year and a half ago - but there is an expectation the case will drag on longer still`\
-https://nytimes.com/athletic/5846919/2024/10/16/barcelona-negreira-case-payments-update/
-
-**Shares of Louis Vuitton Owner Drop on Anxiety About Chinese Shoppers**\
-`Weak sales in China at LVMH, the owner of Dior, Tiffany and more, sent a shudder through the luxury sector.`\
-https://nytimes.com/2024/10/16/business/dealbook/lvmh-dior-louis-vuitton-china.html
 

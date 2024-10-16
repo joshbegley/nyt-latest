@@ -1,3 +1,15 @@
+**How one training-camp decision opened a new path for Rangers' Chris Kreider**\
+`Since the Rangers put Kreider on the penalty kill ahead of the 2021-22 season, his engagement and production in all areas has taken off.`\
+https://nytimes.com/athletic/5847073/2024/10/16/chris-kreider-penalty-killing-breakout/
+
+**Eagles RB Saquon Barkley returns to New York, where the hard feelings remain fresh**\
+`Pride. Ego. Stubbornness. All of it prevented one last compromise from either side to achieve Barkley’s dream of being a "Giant for life."`\
+https://nytimes.com/athletic/5846051/2024/10/16/saquon-barkley-giants-joe-schoen-eagles/
+
+**With Amari Cooper, here's what the Bills are getting from their new receiver**\
+`Amari Cooper is a home run for the Bills, who needed to upgrade their receiver room.`\
+https://nytimes.com/athletic/5846503/2024/10/16/amari-cooper-trade-bills-analysis-receiver/
+
 **Harris Will Air Ad Hitting Trump on Abortion During His Fox News Event**\
 `The ad features a woman from Kentucky telling a harrowing story of being sexually assaulted and impregnated by her stepfather at the age of 12.`\
 https://nytimes.com/2024/10/16/us/politics/harris-ad-trump-abortion-fox-news.html
