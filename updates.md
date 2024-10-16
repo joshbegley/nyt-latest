@@ -1,3 +1,11 @@
+**With Jets and Ships, China Is Honing Its Ability to Choke Taiwan**\
+`China’s large-scale military exercises are encircling Taiwan and testing the island’s defenses. They also raise the risk of conflict, accidental or otherwise.`\
+https://nytimes.com/2024/10/16/world/asia/china-taiwan-blockade-drills.html
+
+**Hollinger: Predicting the top of NBA's Eastern Conference, with one big surprise**\
+`Boston stormed through the league last season, but its conference competition didn't stand pat this offseason.`\
+https://nytimes.com/athletic/5827516/2024/10/16/nba-season-predictions-best-eastern-conference-teams/
+
 **How are NBA GMs and execs trying to build teams and compete in the parity era?**\
 `The more teams spend on their roster, the harder it is to make transactions, especially ones involving players with big contracts.`\
 https://nytimes.com/athletic/5843850/2024/10/16/how-are-nba-gms-and-execs-trying-to-build-teams-and-compete-in-the-parity-era/
