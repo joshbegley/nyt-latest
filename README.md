@@ -1,3 +1,11 @@
+**Female Mountain Bikers Backflip Their Way to Equality**\
+`Traditionally, only men were invited to the scariest and most lucrative event in mountain biking. This year, women shared equally in the adrenaline and the prizes.`\
+https://nytimes.com/2024/10/16/us/red-bull-rampage-women-mountain-biking.html
+
+**Balogun set for two months out with dislocated shoulder**\
+`USMNT striker Folarin Balogun is expected to be sidelined for around two months with a dislocated shoulder.`\
+https://nytimes.com/athletic/5847109/2024/10/16/folarin-balogun-shoulder-injury-update/
+
 **Israeli Airstrikes Target Suburban Beirut and Southern Lebanon**\
 `The attacks came after the United States expressed concerns about the bombardment of the Lebanese capital.`\
 https://nytimes.com/video/world/middleeast/100000009764239/israel-lebanon-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5846888/2024/10/16/the-athletic-fc-england-hire-tuc
 **How Kris Knoblauch sparked Leon Draisaitl with a new approach**\
 `Knoblauch had the guts to do what his predecessors either wouldn’t or felt they couldn’t, and it paid off with the Oilers' first win.`\
 https://nytimes.com/athletic/5846815/2024/10/16/leon-draisaitl-oilers-flyers-win/
-
-**How Moses Moody is staking loud claim for Warriors' rotation role and new contract**\
-`Golden State has until Monday to decide whether to extend the fourth-year wing. Moody's strong preseason is helping his cause.`\
-https://nytimes.com/athletic/5841544/2024/10/16/moses-moody-warriors-role-contract/
-
-**Zelensky Pitches His ‘Victory Plan’ to Ukrainian Lawmakers**\
-`The proposal would rely heavily on increased Western assistance. So far, it has drawn a lukewarm response from Ukraine’s allies.`\
-https://nytimes.com/2024/10/16/world/europe/zelensky-ukraine-victory-plan-russia.html
 
