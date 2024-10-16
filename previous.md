@@ -1,3 +1,11 @@
+**Review: ‘Ainadamar’ Fills the Met Opera Stage With Flamenco**\
+`Osvaldo Golijov and David Henry Hwang’s opera, inspired by the life of Federico García Lorca, arrived at the Met with a dizzying blend of styles.`\
+https://nytimes.com/2024/10/16/arts/music/met-opera-ainadamar-review.html
+
+**The Killing and Suffering of Children in Gaza**\
+`Readers respond to a guest essay on what health workers found in Gaza. Also: A plea for Haiti; Donald Trump vs. the experts; many ways to be a man.`\
+https://nytimes.com/2024/10/16/opinion/gaza-children-deaths.html
+
 **6 Books About Nonmonogamy, Recommended by Therapists**\
 `These titles can offer insight, whether you’re polycurious or already exploring.`\
 https://nytimes.com/2024/10/16/well/live/nonmonogamy-books.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/us/politics/trump-prisons-transgender-care-harris
 **Five necessary second-half risers and a prediction: Notre Dame at midseason**\
 `At mid-October, No. 12 Notre Dame (5-1) feels about where it wants to be. Even if the Irish haven’t been thrilled about how they got here.`\
 https://nytimes.com/athletic/5847392/2024/10/16/notre-dame-football-midseason-playoff/
-
-**2 Missing After Navy Fighter Jet Crashes Near Mount Rainier**\
-`The two crew members who were onboard the aircraft remain missing, Navy officials said, after it crashed during a routine training flight.`\
-https://nytimes.com/2024/10/16/us/navy-aircraft-crash-mt-rainier.html
-
-**Top Black business leaders aim to motivate Black men to vote for Harris.**\
-`By Kate Kelly`\
-https://nytimes.com/live/2024/10/16/us/trump-harris-election/top-black-business-leaders-aim-to-motivate-black-men-to-vote-for-harris
 

@@ -1,3 +1,11 @@
+**Review: ‘Ainadamar’ Fills the Met Opera Stage With Flamenco**\
+`Osvaldo Golijov and David Henry Hwang’s opera, inspired by the life of Federico García Lorca, arrived at the Met with a dizzying blend of styles.`\
+https://nytimes.com/2024/10/16/arts/music/met-opera-ainadamar-review.html
+
+**The Killing and Suffering of Children in Gaza**\
+`Readers respond to a guest essay on what health workers found in Gaza. Also: A plea for Haiti; Donald Trump vs. the experts; many ways to be a man.`\
+https://nytimes.com/2024/10/16/opinion/gaza-children-deaths.html
+
 **6 Books About Nonmonogamy, Recommended by Therapists**\
 `These titles can offer insight, whether you’re polycurious or already exploring.`\
 https://nytimes.com/2024/10/16/well/live/nonmonogamy-books.html
