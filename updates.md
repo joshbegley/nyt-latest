@@ -1,3 +1,7 @@
+**Trump’s Rallies Are a World Unto Themselves**\
+`But what is it about them that people remember?`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/trumps-rallies-are-a-world-unto-themselves
+
 **Conservative Justices Appear to Side With San Francisco in Water Quality Dispute**\
 `The justices heard arguments on Wednesday in a long-simmering dispute between San Francisco and the E.P.A. over regulation of water pollution.`\
 https://nytimes.com/2024/10/16/us/politics/supreme-court-san-francisco-water-pollution.html
