@@ -1,3 +1,7 @@
+**5 NBA preseason themes that caught my eye: Suns' defense, Point DiVincenzo, more**\
+`NBA preseason stats are for the birds. But the trends, the style — that’s where NBA fans can learn about what’s to come.`\
+https://nytimes.com/athletic/5845061/2024/10/16/nba-preseason-themes-hawks-pistons-suns/
+
 **Britain sanctions West Bank settlers and organizations amid rising violence.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/britain-sanctions-west-bank-settlers-and-organizations-amid-rising-violence
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/here-are
 **Where a Million Desperate People Are Finding Shelter in Lebanon**\
 `Schools, clubs and parks have become places of refuge as the displaced seek safety amid Israeli bombings.`\
 https://nytimes.com/2024/10/16/world/middleeast/israel-lebanon-displaced-hezbollah.html
-
-**Trump Draws, and Repels, Nevada Latinos With His Anti-Immigrant Message**\
-`For some, Donald J. Trump’s incessant attacks on immigrants are too much. Still, many appear prepared to look past his escalations and back a candidate they believe will help their livelihoods.`\
-https://nytimes.com/2024/10/16/us/politics/trump-draws-and-repels-nevada-latinos-with-his-anti-immigrant-message.html
 
