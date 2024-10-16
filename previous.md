@@ -1,3 +1,7 @@
+**Padres’ Luis Arraez undergoes thumb surgery, expected to be ready for spring training**\
+`Arraez originally injured his thumb June 25. He was advised during the All-Star break that he did not require in-season surgery.`\
+https://nytimes.com/athletic/5848029/2024/10/16/padres-luis-arraez-thumb-surgery/
+
 **Trump Preaches to His Women’s Choir**\
 `Remaining persuadable voters are unlikely to be swayed by this late-breaking swerve toward the center.`\
 https://nytimes.com/2024/10/15/opinion/trump-fox-news-town-hall.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/science/bumblebee-queens-pesticides-soil.html
 **How Pervasive Are Microplastics? Dolphins Are Exhaling Them.**\
 `Scientists studying bottlenose dolphins found polyester and other plastics in the breath of every animal they tested.`\
 https://nytimes.com/2024/10/16/climate/dolphin-plastic-breath.html
-
-**Gibbs-White set to miss Palace match through injury**\
-`Morgan Gibbs-White is set to miss Nottingham Forest&#8217;s Premier League match against Crystal Palace on Monday with an ankle injury.`\
-https://nytimes.com/athletic/5847786/2024/10/16/morgan-gibbs-white-injury-crystal-palace/
 

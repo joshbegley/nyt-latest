@@ -1,3 +1,7 @@
+**Padres’ Luis Arraez undergoes thumb surgery, expected to be ready for spring training**\
+`Arraez originally injured his thumb June 25. He was advised during the All-Star break that he did not require in-season surgery.`\
+https://nytimes.com/athletic/5848029/2024/10/16/padres-luis-arraez-thumb-surgery/
+
 **Trump Preaches to His Women’s Choir**\
 `Remaining persuadable voters are unlikely to be swayed by this late-breaking swerve toward the center.`\
 https://nytimes.com/2024/10/15/opinion/trump-fox-news-town-hall.html
