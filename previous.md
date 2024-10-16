@@ -1,3 +1,19 @@
+**Trump Faces Tough Questions From Hispanic Voters, but Largely Defends or Dodges**\
+`In a town hall that Univision will broadcast at 10 p.m. Eastern, Donald J. Trump did not directly answer many frank questions on climate change, immigration, abortion rights and other topics.`\
+https://nytimes.com/2024/10/16/us/politics/trump-univision-hispanic-voters.html
+
+**As Eric Adams’s Problems Mount, His Legal Defense Fund Is Empty**\
+`Mayor Eric Adams has spent nearly all of the $1.8 million in donations to his legal defense fund, and the pace of contributions has nearly stopped.`\
+https://nytimes.com/2024/10/16/nyregion/eric-adams-legal-defense-fund.html
+
+**Thursday Briefing: Trump Threatens ‘the Enemy From Within’**\
+`Plus, the women of the world’s gnarliest mountain-bike competition.`\
+https://nytimes.com/2024/10/16/briefing/trump-israel-lebanon-italy-surrogacy.html
+
+**Man Whose Fentanyl Stash Killed Child at Day Care Gets 45-Year Sentence**\
+`Felix Herrera Garcia stepped over the boy’s body before fleeing the Bronx day care center, prosecutors said. The same kitchen utensils used for snacks were used to package drugs, they said.`\
+https://nytimes.com/2024/10/16/nyregion/fentanyl-bronx-day-care-deaths-sentencing.html
+
 **Supreme Court Paves Way, for Now, for E.P.A. Rule Limiting Power Plant Emissions**\
 `A group of states led by conservatives, along with industry players, challenged a Biden administration rule aimed at reducing power plant emissions.`\
 https://nytimes.com/2024/10/16/us/supreme-court-epa-emissions.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/16/us/politics/ruben-gallego-grand-canyon.html
 **Where Are Trump and Harris Campaigning?**\
 `Here’s where the candidates are spending their time in the final weeks of the 2024 presidential race.`\
 https://nytimes.com/interactive/2024/10/16/us/politics/harris-trump-2024-campaign.html
-
-**What’s in Our Queue? ‘Industry’ and More**\
-`I’m a national reporter, covering California. Here are five things I’ve recently enjoyed.`\
-https://nytimes.com/interactive/2024/10/16/arts/editors-recommendations-industry.html
-
-**Chris Olave, Rashid Shaheed both ruled out vs. Broncos**\
-`Allen stated that Olave has been ruled out of the game with a concussion, while Shaheed has undergone knee surgery to repair a meniscus.`\
-https://nytimes.com/athletic/5848146/2024/10/16/chris-olave-rashid-shaheed-out-saints/
-
-**Israeli Strike Hits Lebanese Municipal Building, Killing Mayor**\
-`The strike, in the south of Lebanon, killed at least 16 people, Lebanese officials said. Israel, which also struck near Beirut, said it was targeting Hezbollah militants.`\
-https://nytimes.com/2024/10/16/world/middleeast/israel-lebanon-war.html
-
-**Caitlin Clark becomes first rookie to make all-WNBA first-team since '08**\
-`Clark is the first rookie since Candace Parker in 2008 to be named to the first team, when Parker also won the MVP award.`\
-https://nytimes.com/athletic/5847911/2024/10/16/all-wnba-first-team-awards-caitlin-clark/
 
