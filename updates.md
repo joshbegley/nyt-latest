@@ -1,3 +1,15 @@
+**Britain sanctions West Bank settlers and organizations amid rising violence.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/britain-sanctions-west-bank-settlers-and-organizations-amid-rising-violence
+
+**New York Liberty Fans Get Creative With Jerseys, Art and Cross Stitches**\
+`As their favorite team in the W.N.B.A. experiences a surge in popularity, fans are expressing their love creatively.`\
+https://nytimes.com/2024/10/16/sports/liberty-lynx-wnba-finals-fan-art.html
+
+**Flying Into Storms Improves Forecasts, but It Is Rare in Asia’s Typhoon Alley**\
+`While observational flights have improved forecasts for many storms in the Americas, such flights have been far fewer for storms that have hit Asia.`\
+https://nytimes.com/2024/10/16/world/asia/typhoon-hurricane-forecast-accuracy.html
+
 **Here are the latest developments.**\
 `By Euan Ward, Victoria Kim and Gabby Sobelman`\
 https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/here-are-the-latest-developments
