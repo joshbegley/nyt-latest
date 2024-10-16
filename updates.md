@@ -1,3 +1,7 @@
+**2025 NFL Draft order projections: Saints tumble into top 10, Panthers hold at No. 1**\
+`How did Week 6 shake up the potential 2025 NFL Draft order?`\
+https://nytimes.com/athletic/5847200/2024/10/16/nfl-draft-order-2025-projections-saints-panthers/
+
 **Under Trump, U.S. Prisons Offered Gender-Affirming Care**\
 `The Trump administration’s approach is notable in light of a campaign ad that slams Vice President Kamala Harris for supporting taxpayer-funded transgender surgeries for prisoners and migrants.`\
 https://nytimes.com/2024/10/16/us/politics/trump-prisons-transgender-care-harris.html
