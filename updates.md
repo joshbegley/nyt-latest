@@ -1,3 +1,11 @@
+**Judge Blocks Hand-Counting of Election Ballots in Georgia**\
+`The ruling was confined to the current election, halting the measure from going into effect for 2024 while the judge further weighs its merits in the future.`\
+https://nytimes.com/2024/10/15/us/elections/georgia-ballot-hand-count-ruling.html
+
+**Is it time to worry about the Canucks after third consecutive loss? 3 takeaways**\
+`Vancouver picked up its first regulation loss against Tampa Bay, falling 4-1 on Tuesday night.`\
+https://nytimes.com/athletic/5846324/2024/10/15/canucks-third-consecutive-loss-lightning/
+
 **In Pennsylvania, Walz Says Immigrants Aren’t the Outsiders: Trump and Vance Are**\
 `The Democratic vice-presidential nominee unveiled his ticket’s plan targeted at rural voters — including those protesting his visit.`\
 https://nytimes.com/2024/10/15/us/politics/tim-walz-pennsylvania-trump-vance.html
