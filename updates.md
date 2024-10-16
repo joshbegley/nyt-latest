@@ -1,3 +1,7 @@
+**Multiple People Killed and Injured in Mississippi Bridge Collapse**\
+`A bridge over the Strong River in Simpson County that was being demolished collapsed in a “work site accident,” the authorities said.`\
+https://nytimes.com/2024/10/16/us/mississippi-bridge-collapse.html
+
 **Judge Strikes Down Multiple Georgia Election Rules**\
 `The measures had been promoted by the State Election Board. The judge called them “illegal, unconstitutional and void.”`\
 https://nytimes.com/2024/10/16/us/elections/georgia-election-rules-court-decision.html

@@ -1,3 +1,7 @@
+**Multiple People Killed and Injured in Mississippi Bridge Collapse**\
+`A bridge over the Strong River in Simpson County that was being demolished collapsed in a “work site accident,” the authorities said.`\
+https://nytimes.com/2024/10/16/us/mississippi-bridge-collapse.html
+
 **Judge Strikes Down Multiple Georgia Election Rules**\
 `The measures had been promoted by the State Election Board. The judge called them “illegal, unconstitutional and void.”`\
 https://nytimes.com/2024/10/16/us/elections/georgia-election-rules-court-decision.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/us/politics/into-the-gender-gap.html
 **Columbia Cancer Surgeon Notches 5 More Retractions for Suspicious Data**\
 `Dr. Sam Yoon and a collaborator duplicated images across their research studies over many years. The collaborator has left Columbia.`\
 https://nytimes.com/2024/10/16/science/sam-yoon-columbia-cancer-surgeon-5-more-retractions.html
-
-**Asked if He Thinks Trump Lost in 2020, Vance Finally Gives an Answer: No**\
-`Senator JD Vance, former President Donald J. Trump’s running mate, had spent weeks dodging questions about Mr. Trump’s false claims he won the 2020 election.`\
-https://nytimes.com/2024/10/16/us/politics/vance-trump-2020-election.html
 
