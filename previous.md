@@ -1,3 +1,7 @@
+**Harris Will Air Ad Hitting Trump on Abortion During His Fox News Event**\
+`The ad features a woman from Kentucky telling a harrowing story of being sexually assaulted and impregnated by her stepfather at the age of 12.`\
+https://nytimes.com/2024/10/16/us/politics/harris-ad-trump-abortion-fox-news.html
+
 **Scoop City: The history of in-season WR trades**\
 `Of the 17 significant in-season receiver trades since 2000, only 5 were successes. Davante Adams and Amari Cooper might make it 7.`\
 https://nytimes.com/athletic/5845960/2024/10/16/scoop-city-the-history-of-in-season-wr-trades/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5846919/2024/10/16/barcelona-negreira-case-payments
 **Shares of Louis Vuitton Owner Drop on Anxiety About Chinese Shoppers**\
 `Weak sales in China at LVMH, the owner of Dior, Tiffany and more, sent a shudder through the luxury sector.`\
 https://nytimes.com/2024/10/16/business/dealbook/lvmh-dior-louis-vuitton-china.html
-
-**The Bounce: Are the Magic ready for another leap?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5847000/2024/10/16/magic-paolo-banchero-nba-the-bounce/
 

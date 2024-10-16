@@ -1,3 +1,7 @@
+**Harris Will Air Ad Hitting Trump on Abortion During His Fox News Event**\
+`The ad features a woman from Kentucky telling a harrowing story of being sexually assaulted and impregnated by her stepfather at the age of 12.`\
+https://nytimes.com/2024/10/16/us/politics/harris-ad-trump-abortion-fox-news.html
+
 **Giants' Andrew Thomas expected to miss season after foot surgery**\
 `Thomas injured his foot on the Giants’ sole touchdown drive in Sunday’s loss to the Cincinnati Bengals.`\
 https://nytimes.com/athletic/5846159/2024/10/16/andrew-thomas-giants-foot-injury-update/
