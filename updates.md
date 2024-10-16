@@ -1,3 +1,11 @@
+**Understanding Havertz: What makes him tick and how Arsenal are getting the best out of him**\
+`Havertz is a player transformed at Arsenal after a slow start - this is how manager Mikel Arteta is helping him to perform so well`\
+https://nytimes.com/athletic/5830675/2024/10/16/kai-havertz-mindset-arsenal/
+
+**Premier League shirt-front betting sponsorships will be banned from 2026. So what comes next?**\
+`Clubs will see their sponsorship revenue drop when gambling firms on players' chests are outlawed - how will they fill the financial void?`\
+https://nytimes.com/athletic/5839947/2024/10/16/premier-league-betting-what-next/
+
 **Global Electricity Demand Is Rising Faster Than Expected, I.E.A. Says**\
 `A surge in power use worldwide could make it harder for nations to slash emissions and keep global warming in check.`\
 https://nytimes.com/2024/10/16/climate/global-demand-electricity-rising.html
