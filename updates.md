@@ -1,3 +1,7 @@
+**BOS Nation, a publicity campaign gone wrong and an apology for the hurt it caused**\
+`The launch of BOS Nation had the potential to be a really exciting moment but it was undermined by the campaign that accompanied it`\
+https://nytimes.com/athletic/5847932/2024/10/16/bos-nation-apology-hurt/
+
 **NCAA closes clock loophole behind Oregon illegal substitution penalty**\
 `Inside the two-minute timeout, officials will reset the game clock to its position at the snap if the defense commits a substitution foul.`\
 https://nytimes.com/athletic/5847940/2024/10/16/oregon-penalty-illegal-substitution-ncaa-rule/
