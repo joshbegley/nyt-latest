@@ -1,3 +1,7 @@
+**The day F1 melted: Why the ill-fated Dallas Grand Prix left a searing impression**\
+`Texas' first attempt at hosting a grand prix became an infamous, if useful, lesson for the ever-expanding sport. `\
+https://nytimes.com/athletic/5696265/2024/10/16/f1-dallas-grand-prix-failure-heat/
+
 **Paul Lowe, Award-Winning British Photojournalist, Dies at 60**\
 `He was killed in a stabbing near Los Angeles, and his 19-year-old son was arrested, the authorities said. Mr. Lowe earned acclaim for documenting the siege of Sarajevo and other conflicts.`\
 https://nytimes.com/2024/10/16/us/paul-lowe-dead.html

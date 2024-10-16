@@ -1,3 +1,7 @@
+**The day F1 melted: Why the ill-fated Dallas Grand Prix left a searing impression**\
+`Texas' first attempt at hosting a grand prix became an infamous, if useful, lesson for the ever-expanding sport. `\
+https://nytimes.com/athletic/5696265/2024/10/16/f1-dallas-grand-prix-failure-heat/
+
 **Paul Lowe, Award-Winning British Photojournalist, Dies at 60**\
 `He was killed in a stabbing near Los Angeles, and his 19-year-old son was arrested, the authorities said. Mr. Lowe earned acclaim for documenting the siege of Sarajevo and other conflicts.`\
 https://nytimes.com/2024/10/16/us/paul-lowe-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009764239/israel-lebanon-attack
 **Trump and Harris Push Economic Plans to Woo Holdouts**\
 `The candidates provided more detail on how they would bolster the economy, with ideas ranging from tariffs to more assistance for Black entrepreneurs.`\
 https://nytimes.com/2024/10/16/business/dealbook/harris-trump-economy-tariffs.html
-
-**Appreciating the best plays from the Giants' 3 Gold Glove finalists**\
-`The best plays from Matt Chapman, Patrick Bailey and Mike Yastrzemski, the Giants' Gold Glove finalists.`\
-https://nytimes.com/athletic/5843131/2024/10/16/sf-giants-gold-glove-finalists-2024/
 
