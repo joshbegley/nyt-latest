@@ -1,3 +1,15 @@
+**How the Guardians can get back in the ALCS against the Yankees**\
+`With the ALCS shifting back to Progressive Field, how can the Cleveland Guardians transform their postgame space into a party scene?`\
+https://nytimes.com/athletic/5846700/2024/10/16/cleveland-guardians-new-york-yankees-alcs-game-2-analysis/
+
+**Inside the Wild's Filip Gustavsson's perfectly aimed goalie goal**\
+`“That was awesome,” general manager Bill Guerin said. “You don’t see a goalie goal every day.”`\
+https://nytimes.com/athletic/5846676/2024/10/16/wild-filip-gustavsson-goalie-goal/
+
+**Pochettino's USMNT loss to Mexico shows there's more work to be done**\
+`Pochettino was handed his first loss as the USMNT coach, and it wasn’t a pretty one.`\
+https://nytimes.com/athletic/5846694/2024/10/16/usmnt-mexico-friendly-result-takeaways/
+
 **Wednesday Briefing**\
 `A warning from the U.S. to Israel.`\
 https://nytimes.com/2024/10/16/briefing/israel-gaza-aid-trump-putin-canada.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5836458/2024/10/16/alan-kelly-interview-everton-jor
 **A celebration of Ryan Yates, the Nottingham Forest player opposition fans love to hate**\
 `The midfielder's energy and attitude have ensured he remains a key part of Nuno Espirito Santo's first-team plans`\
 https://nytimes.com/athletic/5844655/2024/10/16/ryan-yates-workrate-celebration-forest/
-
-**Wrexham's Ryan Barnett explains how he became an assists machine**\
-`The full-back explains his role as full-back under Phil Parkinson - and how it's led to so many chances`\
-https://nytimes.com/athletic/5836464/2024/10/16/wrexham-ryan-barnett-assists/
-
-**Self-belief, experience and support from the manager: How to bounce back from a howler**\
-`Rob Green and Matt Pyzdrowski explain how they dealt with errors during their careers and offer some advice to Leeds' Illan Meslier`\
-https://nytimes.com/athletic/5824763/2024/10/16/how-meslier-can-bounce-back/
-
-**Understanding Havertz: What makes him tick and how Arsenal are getting the best out of him**\
-`Havertz is a player transformed at Arsenal after a slow start - this is how manager Mikel Arteta is helping him to perform so well`\
-https://nytimes.com/athletic/5830675/2024/10/16/kai-havertz-mindset-arsenal/
 
