@@ -1,3 +1,7 @@
+**Jimmy Kimmel Bashes Trump’s Bizarre Town Hall**\
+`Kimmel joked on Tuesday that Trump “just said ‘To hell with it’ and started asking his tech guys to play songs off his iPad.”`\
+https://nytimes.com/2024/10/16/arts/television/late-night-kimmel-trump.html
+
 **Jean-Clair Todibo and Max Kilman look like a partnership - this can only help West Ham progress**\
 `Todibo and Kilman have clearly become West Ham's preferred defensive partnership in recent weeks`\
 https://nytimes.com/athletic/5842298/2024/10/16/jean-clair-todibo-maximilian-kilman-west-ham-analysis/
