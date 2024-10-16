@@ -1,3 +1,11 @@
+**Bumblebee Queens Prefer to Live in a Toxic Home**\
+`In an elaborate experiment, scientists discovered that the insects chose to hibernate in soil full of pesticides and other poisons.`\
+https://nytimes.com/2024/10/16/science/bumblebee-queens-pesticides-soil.html
+
+**How Pervasive Are Microplastics? Dolphins Are Exhaling Them.**\
+`Scientists studying bottlenose dolphins found polyester and other plastics in the breath of every animal they tested.`\
+https://nytimes.com/2024/10/16/climate/dolphin-plastic-breath.html
+
 **Gibbs-White set to miss Palace match through injury**\
 `Morgan Gibbs-White is set to miss Nottingham Forest&#8217;s Premier League match against Crystal Palace on Monday with an ankle injury.`\
 https://nytimes.com/athletic/5847786/2024/10/16/morgan-gibbs-white-injury-crystal-palace/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/us/politics/trump-snapchat-harris.html
 **In a Decade-long Caper, Criminals Cashed In on Fake Wine, Police Say**\
 `A criminal network was accused of selling bottles of fake French wine for as much as 15,000 euros. It’s the latest in a growing criminal trend: wine fraud.`\
 https://nytimes.com/2024/10/16/world/europe/wine-fraud-france-italy.html
-
-**In Race for Congress, Republican Election Deniers and Skeptics Seek Swing Seats**\
-`G.O.P. candidates in critical House districts have sought to moderate or gloss over their past questioning of the 2020 election results, as well as hard-right positions on social issues.`\
-https://nytimes.com/2024/10/16/us/politics/republicans-congress-election-denial.html
-
-**Chelsea, Liverpool, Man Utd academy tensions see scouts denied access to youth games**\
-`Tensions at academy level between Chelsea, Liverpool and Manchester United have led to scouts being denied access to youth games.`\
-https://nytimes.com/athletic/5844759/2024/10/16/chelsea-liverpool-man-utd-scouts/
 
