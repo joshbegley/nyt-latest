@@ -1,3 +1,7 @@
+**Six kings, $15m and slow progress: How Saudi Arabia's push into tennis stalled**\
+`The kingdom is putting on the richest tennis exhibition in history, but its wider ambitions in the sport have contracted.`\
+https://nytimes.com/athletic/5826161/2024/10/16/saudi-arabia-tennis-money-six-kings-slam/
+
 **Drew Bannister has faith in Nick Leddy: 'He's going to be a better player for us'**\
 `The veteran defenseman had a costly turnover in Tuesday's 4-1 loss to the Minnesota Wild, but the Blues are sticking with him.`\
 https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-nick-leddy/
