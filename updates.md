@@ -1,4 +1,8 @@
 **Blue Jackets honor Gaudreau by playing 13 seconds without left winger**\
+`It was not the typical season opener for the Blue Jackets, who focused on remembering Johnny and Matthew Gaudreau.`\
+https://nytimes.com/athletic/5846346/2024/10/15/blue-jackets-johnny-gaudrea-honor-opening-night/
+
+**Blue Jackets honor Gaudreau by playing 13 seconds without left winger**\
 `It was not the typical season-opener for the Blue Jackets, but the focus was on remember Johnny and Matthew Gaudreau.`\
 https://nytimes.com/athletic/5846346/2024/10/15/blue-jackets-johnny-gaudrea-honor-opening-night/
 
