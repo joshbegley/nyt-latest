@@ -1,3 +1,19 @@
+**Hurricanes Spur Pet Adoptions Nationwide. Should You Get a ‘Storm Dog’?**\
+`Amid major disasters, shelter animals are often sent to other states. And people are more likely to foster and adopt. Here’s what to know.`\
+https://nytimes.com/2024/10/16/us/hurricanes-shelters-pet-adoptions.html
+
+**Leeds duo James and Solomon return from absences**\
+`Leeds United have been handed a boost with the return of Daniel James (pictured) and Manor Solomon to first-team training.`\
+https://nytimes.com/athletic/5847248/2024/10/16/dan-james-manor-solomon-leeds-injury-update/
+
+**Music Activism Gets Back on the Road**\
+`Bands were sidelined by the Covid-19 pandemic during the 2020 campaign. This year, with increasing sophistication, they are encouraging political activism.`\
+https://nytimes.com/2024/10/16/us/politics/musicians-political-activism-kamala-harris.html
+
+**Derrick Henry has been a perfect fit for Ravens, embracing the role of closer**\
+`Henry, the NFL's leading rusher through six weeks, has been everything Baltimore was hoping for when it signed him in the offseason.`\
+https://nytimes.com/athletic/5846465/2024/10/16/baltimore-ravens-derrick-henry-closer/
+
 **The day F1 melted: Why the ill-fated Dallas Grand Prix left a searing impression**\
 `Texas' first attempt at hosting a grand prix became an infamous, if useful, lesson for the ever-expanding sport. `\
 https://nytimes.com/athletic/5696265/2024/10/16/f1-dallas-grand-prix-failure-heat/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/16/opinion/mcmahon-sexual-assault.html
 **My Male Partner Cheated on Me With My Gay Best Friend. Now What?**\
 `A reader is eager to patch things over with her best friend and her boyfriend after they had a tryst behind her back. But should she be?`\
 https://nytimes.com/2024/10/16/style/infidelity-best-friend-forgiveness.html
-
-**Female Mountain Bikers Backflip Their Way to Equality**\
-`Traditionally, only men were invited to the scariest and most lucrative event in mountain biking. This year, women shared equally in the adrenaline and the prizes.`\
-https://nytimes.com/2024/10/16/us/red-bull-rampage-women-mountain-biking.html
-
-**Balogun set for two months out with dislocated shoulder**\
-`USMNT striker Folarin Balogun is expected to be sidelined for around two months with a dislocated shoulder.`\
-https://nytimes.com/athletic/5847109/2024/10/16/folarin-balogun-shoulder-injury-update/
-
-**Israeli Airstrikes Target Suburban Beirut and Southern Lebanon**\
-`The attacks came after the United States expressed concerns about the bombardment of the Lebanese capital.`\
-https://nytimes.com/video/world/middleeast/100000009764239/israel-lebanon-attack.html
-
-**Trump and Harris Push Economic Plans to Woo Holdouts**\
-`The candidates provided more detail on how they would bolster the economy, with ideas ranging from tariffs to more assistance for Black entrepreneurs.`\
-https://nytimes.com/2024/10/16/business/dealbook/harris-trump-economy-tariffs.html
 
