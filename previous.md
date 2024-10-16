@@ -1,3 +1,11 @@
+**Two Key Prosecutors in Trump Documents Case Leave Special Counsel’s Office**\
+`The departures amount to a tacit acknowledgment that any trial in that case will not happen for many months, if not years.`\
+https://nytimes.com/2024/10/16/us/politics/trump-documents-case-prosecutors.html
+
+**In ‘Vladimir,’ a Russian Reporter’s Fight Is an Apt Election Season Tale**\
+`The writer Erika Sheffer takes a big swing in a Manhattan Theater Club production examining “the point at which a society finds itself on the brink.”`\
+https://nytimes.com/2024/10/16/theater/vladimir-russia-journalism-review-mtc.html
+
 **Castro, Jax among Twins' Diamond Award winners: Who I voted for and why**\
 `From MVP to most-improved player, the Twins' team awards were announced Wednesday. Here are the winners and the players for whom I voted.`\
 https://nytimes.com/athletic/5846360/2024/10/16/minnesota-twins-diamond-awards-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/arts/music/met-opera-ainadamar-review.html
 **The Killing and Suffering of Children in Gaza**\
 `Readers respond to a guest essay on what health workers found in Gaza. Also: A plea for Haiti; Donald Trump vs. the experts; many ways to be a man.`\
 https://nytimes.com/2024/10/16/opinion/gaza-children-deaths.html
-
-**6 Books About Nonmonogamy, Recommended by Therapists**\
-`These titles can offer insight, whether you’re polycurious or already exploring.`\
-https://nytimes.com/2024/10/16/well/live/nonmonogamy-books.html
-
-**England Entrusts a National Treasure to (Gasp!) a German**\
-`The appointment of Thomas Tuchel to coach the England men’s national soccer team has provoked, well, some strong feelings.`\
-https://nytimes.com/2024/10/16/world/europe/thomas-tuchel-england-soccer-reaction.html
 

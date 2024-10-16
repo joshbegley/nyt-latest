@@ -1,3 +1,11 @@
+**Two Key Prosecutors in Trump Documents Case Leave Special Counsel’s Office**\
+`The departures amount to a tacit acknowledgment that any trial in that case will not happen for many months, if not years.`\
+https://nytimes.com/2024/10/16/us/politics/trump-documents-case-prosecutors.html
+
+**In ‘Vladimir,’ a Russian Reporter’s Fight Is an Apt Election Season Tale**\
+`The writer Erika Sheffer takes a big swing in a Manhattan Theater Club production examining “the point at which a society finds itself on the brink.”`\
+https://nytimes.com/2024/10/16/theater/vladimir-russia-journalism-review-mtc.html
+
 **Castro, Jax among Twins' Diamond Award winners: Who I voted for and why**\
 `From MVP to most-improved player, the Twins' team awards were announced Wednesday. Here are the winners and the players for whom I voted.`\
 https://nytimes.com/athletic/5846360/2024/10/16/minnesota-twins-diamond-awards-2024/
