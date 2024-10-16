@@ -1,3 +1,7 @@
+**Substitute Teacher Reenacted George Floyd Murder at Minnesota High School**\
+`Students said the teacher, who claimed to be a police officer, also said “police brutality isn’t real.”`\
+https://nytimes.com/2024/10/16/us/teacher-reenacts-george-floyd-murder.html
+
 **Caitlin Clark becomes first rookie to make all-WNBA first-team since '08**\
 `Clark is the first rookie since Candace Parker in 2008 to be named to the first team, when Parker also won the MVP award.`\
 https://nytimes.com/athletic/5847809/2024/10/16/all-wnba-first-team-roster-awards/
