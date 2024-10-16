@@ -1,3 +1,7 @@
+**Ananda Lewis, Former MTV V.J., Says She Has Stage 4 Breast Cancer**\
+`Lewis, the host of the 1990s MTV show “Hot Zone,” tried to fight her illness without undergoing a double mastectomy. She says she is responding well after resuming treatment.`\
+https://nytimes.com/2024/10/16/arts/television/mtv-ananda-lewis-breast-cancer.html
+
 **Aaron Rodgers and Davante Adams: Teammates — and housemates — try to bring Jets back from the brink**\
 `On Adams' first full day as a Jet, quarterback and star receiver discussed what it means to be back together.`\
 https://nytimes.com/athletic/5848550/2024/10/16/aaron-rodgers-davante-adams-comments-jets-raiders-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/climate/water-shortages-global-food-supply.html
 **Trump’s Rallies Are a World Unto Themselves**\
 `But what is it about them that people remember?`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/trumps-rallies-are-a-world-unto-themselves
-
-**Conservative Justices Appear to Side With San Francisco in Water Quality Dispute**\
-`The justices heard arguments on Wednesday in a long-simmering dispute between San Francisco and the E.P.A. over regulation of water pollution.`\
-https://nytimes.com/2024/10/16/us/politics/supreme-court-san-francisco-water-pollution.html
 

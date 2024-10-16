@@ -1,3 +1,7 @@
+**Ananda Lewis, Former MTV V.J., Says She Has Stage 4 Breast Cancer**\
+`Lewis, the host of the 1990s MTV show “Hot Zone,” tried to fight her illness without undergoing a double mastectomy. She says she is responding well after resuming treatment.`\
+https://nytimes.com/2024/10/16/arts/television/mtv-ananda-lewis-breast-cancer.html
+
 **Aaron Rodgers and Davante Adams: Teammates — and housemates — try to bring Jets back from the brink**\
 `On Adams' first full day as a Jet, quarterback and star receiver discussed what it means to be back together.`\
 https://nytimes.com/athletic/5848550/2024/10/16/aaron-rodgers-davante-adams-comments-jets-raiders-trade/
