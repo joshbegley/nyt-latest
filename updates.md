@@ -1,3 +1,11 @@
+**Trump Faced Tough Questions From Hispanic Voters**\
+`Also, the Supreme Court suggested that U.S. water regulations are too vague. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/10/16/briefing/trump-hispanic-voters-tulsa-brain-drain.html
+
+**Liam Payne, 31, Former One Direction Singer, Dies in Fall in Argentina**\
+`Payne, who was one of the group’s standout singers, fell from the third floor of a hotel in Buenos Aires, emergency services officials said.`\
+https://nytimes.com/2024/10/16/arts/music/liam-payne-dead-one-direction.html
+
 **Water Crises Threaten the World’s Ability to Eat, Studies Show**\
 `Food production is concentrated in too few countries, many of which face water shortages, the researchers said.`\
 https://nytimes.com/2024/10/16/climate/water-shortages-global-food-supply.html
