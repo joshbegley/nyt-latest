@@ -1,3 +1,7 @@
+**Arizona State to start Jeff Sims vs. Cincinnati, Sam Leavitt out**\
+`Arizona State coach Kenny Dillingham said Leavitt might miss two to four weeks with a rib injury.`\
+https://nytimes.com/athletic/5847763/2024/10/16/arizona-state-jeff-sims-sam-leavitt-injury/
+
 **Read the Nebraska Supreme Court Ruling on Voting Rights for Felons**\
 `The decision affirmed a law passed by the Legislature this year clearing the way for people to cast ballots immediately after finishing prison and parole terms.`\
 https://nytimes.com/interactive/2024/10/16/us/16nat-nebraska-voting-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5847800/2024/10/16/bulls-lonzo-ball-return-minutes-
 **Real Madrid make Alexander-Arnold a priority transfer target**\
 `Real Madrid have made Liverpool&#8217;s Trent Alexander-Arnold a priority target.`\
 https://nytimes.com/athletic/5847668/2024/10/16/trent-alexander-arnold-real-madrid-liverpool/
-
-**The Windup: Yankees win! But not any style points**\
-`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
-https://nytimes.com/athletic/5847754/2024/10/16/yankees-guardians-alcs-mlb-the-windup/
 
