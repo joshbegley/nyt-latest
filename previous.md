@@ -1,3 +1,7 @@
+**Under Trump, U.S. Prisons Offered Gender-Affirming Care**\
+`The Trump administration’s approach is notable in light of a campaign ad that slams Vice President Kamala Harris for supporting taxpayer-funded transgender surgeries for prisoners and migrants.`\
+https://nytimes.com/2024/10/16/us/politics/trump-prisons-transgender-care-harris.html
+
 **Five necessary second-half risers and a prediction: Notre Dame at midseason**\
 `At mid-October, No. 12 Notre Dame (5-1) feels about where it wants to be. Even if the Irish haven’t been thrilled about how they got here.`\
 https://nytimes.com/athletic/5847392/2024/10/16/notre-dame-football-midseason-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5846503/2024/10/16/amari-cooper-trade-bills-analysi
 **Harris Will Air Ad Hitting Trump on Abortion During His Fox News Event**\
 `The ad features a woman from Kentucky telling a harrowing story of being sexually assaulted and impregnated by her stepfather at the age of 12.`\
 https://nytimes.com/2024/10/16/us/politics/harris-ad-trump-abortion-fox-news.html
-
-**Scoop City: The history of in-season WR trades**\
-`Of the 17 significant in-season receiver trades since 2000, only 5 were successes. Davante Adams and Amari Cooper might make it 7.`\
-https://nytimes.com/athletic/5845960/2024/10/16/scoop-city-the-history-of-in-season-wr-trades/
 
