@@ -1,3 +1,7 @@
+**NCAA closes clock loophole behind Oregon illegal substitution penalty**\
+`Inside the two-minute timeout, officials will reset the game clock to its position at the snap if the defense commits a substitution foul.`\
+https://nytimes.com/athletic/5847940/2024/10/16/oregon-penalty-illegal-substitution-ncaa-rule/
+
 **Arizona State to start Jeff Sims vs. Cincinnati, Sam Leavitt out**\
 `Arizona State coach Kenny Dillingham said Leavitt might miss two to four weeks with a rib injury.`\
 https://nytimes.com/athletic/5847763/2024/10/16/arizona-state-jeff-sims-sam-leavitt-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5847809/2024/10/16/all-wnba-first-team-roster-award
 **Bulls’ Lonzo Ball to return with 16-minute restriction Wednesday**\
 `“I’m going to have to manage it all year. That’s just the reality of it,” Ball said Wednesday following the team’s shootaround.`\
 https://nytimes.com/athletic/5847800/2024/10/16/bulls-lonzo-ball-return-minutes-restriction/
-
-**Real Madrid make Alexander-Arnold a priority transfer target**\
-`Real Madrid have made Liverpool&#8217;s Trent Alexander-Arnold a priority target.`\
-https://nytimes.com/athletic/5847668/2024/10/16/trent-alexander-arnold-real-madrid-liverpool/
 

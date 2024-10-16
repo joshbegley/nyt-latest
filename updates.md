@@ -1,3 +1,7 @@
+**NCAA closes clock loophole behind Oregon illegal substitution penalty**\
+`Inside the two-minute timeout, officials will reset the game clock to its position at the snap if the defense commits a substitution foul.`\
+https://nytimes.com/athletic/5847940/2024/10/16/oregon-penalty-illegal-substitution-ncaa-rule/
+
 **Arizona State to start Jeff Sims vs. Cincinnati, Sam Leavitt out**\
 `Arizona State coach Kenny Dillingham said Leavitt might miss two to four weeks with a rib injury.`\
 https://nytimes.com/athletic/5847763/2024/10/16/arizona-state-jeff-sims-sam-leavitt-injury/
