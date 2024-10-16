@@ -1,3 +1,15 @@
+**Castro, Jax among Twins' Diamond Award winners: Who I voted for and why**\
+`From MVP to most-improved player, the Twins' team awards were announced Wednesday. Here are the winners and the players for whom I voted.`\
+https://nytimes.com/athletic/5846360/2024/10/16/minnesota-twins-diamond-awards-2024/
+
+**Submit Twins questions for Aaron Gleeman's next mailbag**\
+`It's been a busy start to the Twins' offseason — to say the least. What questions do you have about the team?`\
+https://nytimes.com/athletic/5847580/2024/10/16/twins-questions-submit-gleeman/
+
+**Lowetide: Resetting expectations for Oilers defenceman Ty Emberson**\
+`Entering the season, Emberson was thought to be the most likely second-pairing option with Darnell Nurse.`\
+https://nytimes.com/athletic/5844862/2024/10/16/oilers-ty-emberson-stats-nurse/
+
 **The Victoria’s Secret Fashion Show Returns. It Shouldn’t.**\
 `Despite the wings, the supermodels and Cher, there’s no going back.`\
 https://nytimes.com/2024/10/16/style/victorias-secret-fashion-show-return-hiatus.html
