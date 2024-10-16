@@ -1,3 +1,7 @@
+**In Pennsylvania, Walz Says Immigrants Aren’t the Outsiders: Trump and Vance Are**\
+`The Democratic vice-presidential nominee unveiled his ticket’s plan targeted at rural voters — including those protesting his visit.`\
+https://nytimes.com/2024/10/15/us/politics/tim-walz-pennsylvania-trump-vance.html
+
 **Is it time to worry about the Canucks after third consecutive loss? 3 takeaways**\
 `Vancouver picked up its first regulation loss against the Lightning, falling 4-1 on Tuesday night.`\
 https://nytimes.com/athletic/5846324/2024/10/15/canucks-third-consecutive-loss-lightning/
