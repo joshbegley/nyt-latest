@@ -1,3 +1,11 @@
+**Into the Gender Gap**\
+`Harris and Trump are trying to address the gender gap. Their approaches could not be more different.`\
+https://nytimes.com/2024/10/16/us/politics/into-the-gender-gap.html
+
+**Columbia Cancer Surgeon Notches 5 More Retractions for Suspicious Data**\
+`Dr. Sam Yoon and a collaborator duplicated images across their research studies over many years. The collaborator has left Columbia.`\
+https://nytimes.com/2024/10/16/science/sam-yoon-columbia-cancer-surgeon-5-more-retractions.html
+
 **Asked if He Thinks Trump Lost in 2020, Vance Finally Gives an Answer: No**\
 `Senator JD Vance, former President Donald J. Trump’s running mate, had spent weeks dodging questions about Mr. Trump’s false claims he won the 2020 election.`\
 https://nytimes.com/2024/10/16/us/politics/vance-trump-2020-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/world/americas/genaro-garcia-luna-sentencing.html
 **Ethel Kennedy Is Eulogized by 3 Presidents, Celebrities and Grandchildren**\
 `The memorial service in Washington drew major names from the Democratic Party and celebrities, including Sting and Stevie Wonder.`\
 https://nytimes.com/2024/10/16/us/politics/ethel-kennedy-eulogy-biden.html
-
-**In a Harris Ad, a Black Man Speaks to Black Men on Her Behalf**\
-`A commercial running in Philadelphia confronts the idea that some Black men might be hesitant to vote for Kamala Harris because she is a woman. “Women know how to make things happen,” a supporter says.`\
-https://nytimes.com/2024/10/16/us/politics/in-a-harris-ad-a-black-man-speaks-to-black-men-on-her-behalf.html
-
-**Trump Faced Tough Questions From Hispanic Voters**\
-`Also, the Supreme Court suggested that U.S. water regulations are too vague. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/10/16/briefing/trump-hispanic-voters-tulsa-brain-drain.html
 

@@ -1,3 +1,11 @@
+**Into the Gender Gap**\
+`Harris and Trump are trying to address the gender gap. Their approaches could not be more different.`\
+https://nytimes.com/2024/10/16/us/politics/into-the-gender-gap.html
+
+**Columbia Cancer Surgeon Notches 5 More Retractions for Suspicious Data**\
+`Dr. Sam Yoon and a collaborator duplicated images across their research studies over many years. The collaborator has left Columbia.`\
+https://nytimes.com/2024/10/16/science/sam-yoon-columbia-cancer-surgeon-5-more-retractions.html
+
 **Asked if He Thinks Trump Lost in 2020, Vance Finally Gives an Answer: No**\
 `Senator JD Vance, former President Donald J. Trump’s running mate, had spent weeks dodging questions about Mr. Trump’s false claims he won the 2020 election.`\
 https://nytimes.com/2024/10/16/us/politics/vance-trump-2020-election.html
