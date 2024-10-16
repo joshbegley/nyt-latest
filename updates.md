@@ -1,3 +1,7 @@
+**In a Decade-long Caper, Criminals Cashed In on Fake Wine, Police Say**\
+`A criminal network was accused of selling bottles of fake French wine for as much as 15,000 euros. It’s the latest in a growing criminal trend: wine fraud.`\
+https://nytimes.com/2024/10/16/world/europe/wine-fraud-france-italy.html
+
 **In Race for Congress, Republican Election Deniers and Skeptics Seek Swing Seats**\
 `G.O.P. candidates in critical House districts have sought to moderate or gloss over their past questioning of the 2020 election results, as well as hard-right positions on social issues.`\
 https://nytimes.com/2024/10/16/us/politics/republicans-congress-election-denial.html
