@@ -1,6 +1,10 @@
+**A Top Chess Player Is Disqualified After a Phone Is Found in a Bathroom Stall**\
+`Kirill Shevchenko, a grandmaster who represents Romania, has been accused of getting assistance from a computer in the middle of games.`\
+https://nytimes.com/2024/10/16/sports/kirill-shevchenko-chess-expelled-phone.html
+
 **Abortion-rights group sues the DeSantis administration, alleging a violation of free speech.**\
 `By Patricia Mazzei`\
-https://nytimes.com/live/2024/10/16/us/trump-harris-election/abortion-rights-group-sues-the-desantis-administration-alleging-a-violation-of-free-speech
+https://nytimes.com/2024/10/16/us/politics/abortion-florida-desantis.html
 
 **Judge Extends Sentence for Former County Official Convicted in Las Vegas Journalist’s Murder**\
 `Robert Telles was sentenced to life in prison with the possibility of parole after 20 years for the murder of Jeff German. On Wednesday, a judge added eight years to that minimum.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5847763/2024/10/16/arizona-state-jeff-sims-sam-leav
 **Read the Nebraska Supreme Court Ruling on Voting Rights for Felons**\
 `The decision affirmed a law passed by the Legislature this year clearing the way for people to cast ballots immediately after finishing prison and parole terms.`\
 https://nytimes.com/interactive/2024/10/16/us/16nat-nebraska-voting-ruling.html
-
-**Unrivaled, TNT reach multi-year broadcasting deal**\
-`Unrivaled is set to tip off on Jan. 17, 2025, and has already attracted some of the best women's basketball players in the world.`\
-https://nytimes.com/athletic/5847849/2024/10/16/unrivaled-tnt-broadcasting-deal/
 
