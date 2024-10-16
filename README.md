@@ -1,3 +1,7 @@
+**Real Madrid make Alexander-Arnold a priority transfer target**\
+`Real Madrid have made Liverpool&#8217;s Trent Alexander-Arnold a priority target.`\
+https://nytimes.com/athletic/5847668/2024/10/16/trent-alexander-arnold-real-madrid-liverpool/
+
 **The Windup: Yankees win! But not any style points**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter.`\
 https://nytimes.com/athletic/5847754/2024/10/16/yankees-guardians-alcs-mlb-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/us/jimmy-carter-votes-georgia.html
 **Italian Senate Passes Law Banning People From Seeking Surrogacy Abroad**\
 `The new law was pushed by the party of Giorgia Meloni, Italy’s conservative prime minister.`\
 https://nytimes.com/2024/10/16/world/europe/italy-surrogacy-law.html
-
-**Thomas J. Donohue Dies at 86; Transformed Chamber of Commerce**\
-`Under his 24-year leadership, the lobbying group developed enormous clout in Washington, but he broke with the Trump administration over immigration and the 2020 election.`\
-https://nytimes.com/2024/10/16/business/thomas-j-donohue-dead.html
 
