@@ -1,3 +1,7 @@
+**Space: The Final Fashion Frontier**\
+`Prada and Axiom Space unveiled their NASA spacesuits, in the most far-out collaboration yet.`\
+https://nytimes.com/2024/10/16/style/prada-axiom-space-suits.html
+
 **Matvei Michkov gets first two goals of his career in Flyers OT loss**\
 `Michkov, a native of Russia, may face a language barrier with his teammates, but not when the language is hockey.`\
 https://nytimes.com/athletic/5846792/2024/10/16/flyers-matvei-michkov-overtime-loss/
