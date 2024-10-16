@@ -1,3 +1,11 @@
+**A Top University Bet on D.E.I. What Went Wrong?**\
+`We cover the impact of college diversity programs.`\
+https://nytimes.com/2024/10/16/briefing/university-diversity-programs.html
+
+**Six kings, $15million and slow progress: How Saudi Arabia's push into tennis stalled**\
+`The kingdom is putting on the richest tennis exhibition in history, but its wider ambitions in the sport have stalled.`\
+https://nytimes.com/athletic/5826161/2024/10/16/saudi-arabia-tennis-money-six-kings-slam/
+
 **Amelia Dimoldenberg Never Waits to Text, Even on the Red Carpet**\
 `The host of the viral video series “Chicken Shop Date” explains why she always texts someone she’s interested in right away.`\
 https://nytimes.com/video/podcasts/100000009763833/amelia-dimoldenberg-modern-love-podcast.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5845465/2024/10/16/penguins-goaltending-jarry-nedel
 **Three Bengals trends to monitor amid critical development of recent draft classes**\
 `Positive signs from the likes of Chase Brown, Andrei Iosivas and Tycen Anderson bring optimism for Cincinnati.`\
 https://nytimes.com/athletic/5846364/2024/10/16/bengals-trends-chase-brown-andrei-iosivas/
-
-**Predicting 4 Nations goalies: Who will the U.S., Canada, Sweden and Finland choose?**\
-`Canada and the United States have different dilemmas when it comes to choosing netminders for the international tournament.`\
-https://nytimes.com/athletic/5843225/2024/10/16/goalies-4-nations-face-off-usa-canada/
-
-**How the Packers lead the NFL in takeaways with the help of 'Campy 3:16'**\
-`Green Bay had 18 takeaways all last season. Through six games in 2024, it already has 17.`\
-https://nytimes.com/athletic/5845309/2024/10/16/packers-defense-takeaways-hafley/
 
