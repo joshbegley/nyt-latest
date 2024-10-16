@@ -1,3 +1,7 @@
+**Matvei Michkov gets first two goals of his career in Flyers OT loss**\
+`Michkov, a native of Russia, may face a language barrier with his teammates, but not when the language is hockey.`\
+https://nytimes.com/athletic/5846792/2024/10/16/flyers-matvei-michkov-overtime-loss/
+
 **Messi feels 'like a kid' after Argentina hat-trick against Bolivia**\
 `Lionel Messi says he still feels &#8220;like a kid&#8221; playing for Argentina after scoring a hat-trick in his country&#8217;s 6-0 victory over Bolivia on Tuesday.`\
 https://nytimes.com/athletic/5846795/2024/10/16/lionel-messi-hat-trick-argentina-bolivia/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/16/opinion/16focus-group-women-trump-vot
 **How the Guardians can get back in the ALCS against the Yankees**\
 `With the ALCS shifting back to Progressive Field, how can the Guardians transform their postgame space into a party scene?`\
 https://nytimes.com/athletic/5846700/2024/10/16/cleveland-guardians-new-york-yankees-alcs-game-2-analysis/
-
-**Inside the Wild's Filip Gustavsson's perfectly aimed goalie goal**\
-`“That was awesome,” general manager Bill Guerin said. “You don’t see a goalie goal every day.”`\
-https://nytimes.com/athletic/5846676/2024/10/16/wild-filip-gustavsson-goalie-goal/
 
