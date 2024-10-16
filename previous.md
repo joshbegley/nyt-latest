@@ -1,3 +1,7 @@
+**A Weary Trump Whips Up Anger in Atlanta**\
+`At a rally in a state he lost in 2020, the former president considered the possibility of another defeat.`\
+https://nytimes.com/2024/10/16/us/elections/trump-georgia-rally.html
+
 **Antichrists, Chain Saws and Natalism: A Very ‘M.O.O.’ Halloween Episode**\
 `The hosts share their favorite scary movies, books and television series.`\
 https://nytimes.com/2024/10/16/opinion/scary-books-tv-movies.html
@@ -14,8 +18,8 @@ https://nytimes.com/2024/10/16/us/politics/harris-democrats-fox-interview.html
 `Kirill Shevchenko, a grandmaster who represents Romania, has been accused of getting assistance from a computer in the middle of games.`\
 https://nytimes.com/2024/10/16/sports/kirill-shevchenko-chess-expelled-phone.html
 
-**Abortion-rights group sues the DeSantis administration, alleging a violation of free speech.**\
-`By Patricia Mazzei`\
+**Abortion-Rights Group Accuses DeSantis Administration of Stifling Free Speech**\
+`The group behind an ad in favor of enshrining abortion rights in Florida’s Constitution says the state is violating the First Amendment by threatening TV stations that ran the ad.`\
 https://nytimes.com/2024/10/16/us/politics/abortion-florida-desantis.html
 
 **Judge Extends Sentence for Former County Official Convicted in Las Vegas Journalist’s Murder**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/15/opinion/trump-fox-news-town-hall.html
 **Davante Adams likely to make Jets debut Sunday vs. Steelers**\
 `Adams ,who was traded from the Las Vegas Raiders earlier this week, hasn't played since Week 3 due to a hamstring injury.`\
 https://nytimes.com/athletic/5847934/2024/10/16/jets-davante-adams-play-steelers/
-
-**BOS Nation, a publicity campaign gone wrong and an apology for the hurt it caused**\
-`The launch of BOS Nation had the potential to be a really exciting moment but it was undermined by the campaign that accompanied it`\
-https://nytimes.com/athletic/5847932/2024/10/16/bos-nation-apology-hurt/
 

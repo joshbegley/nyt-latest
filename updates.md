@@ -1,3 +1,11 @@
+**A Weary Trump Whips Up Anger in Atlanta**\
+`At a rally in a state he lost in 2020, the former president considered the possibility of another defeat.`\
+https://nytimes.com/2024/10/16/us/elections/trump-georgia-rally.html
+
+**Abortion-Rights Group Accuses DeSantis Administration of Stifling Free Speech**\
+`The group behind an ad in favor of enshrining abortion rights in Florida’s Constitution says the state is violating the First Amendment by threatening TV stations that ran the ad.`\
+https://nytimes.com/2024/10/16/us/politics/abortion-florida-desantis.html
+
 **Antichrists, Chain Saws and Natalism: A Very ‘M.O.O.’ Halloween Episode**\
 `The hosts share their favorite scary movies, books and television series.`\
 https://nytimes.com/2024/10/16/opinion/scary-books-tv-movies.html
