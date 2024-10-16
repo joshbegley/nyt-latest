@@ -1,3 +1,7 @@
+**At Town Hall on Women’s Issues, Trump Renews ‘Enemy Within’ Talk**\
+`Donald Trump fielded questions from an audience of all women in Georgia for a Fox News event to be broadcast on Wednesday morning.`\
+https://nytimes.com/2024/10/15/us/politics/trump-fox-news-women-town-hall.html
+
 **Corrections: Oct. 16, 2024**\
 `Corrections that appeared in print on Wednesday, Oct. 16, 2024.`\
 https://nytimes.com/2024/10/15/pageoneplus/corrections-oct-16-2024.html
