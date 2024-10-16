@@ -1,3 +1,7 @@
+**Trump Raises Eyebrows by Proclaiming Himself the ‘Father of I.V.F.’**\
+`His campaign said the comment, which he said at an event focused on women’s issues, was “made in jest.” He has supported access to I.V.F. recently but didn’t promote it before this year.`\
+https://nytimes.com/2024/10/16/us/politics/trump-ivf-abortion.html
+
 **Real Madrid make Alexander-Arnold a priority transfer target**\
 `Real Madrid have made Liverpool&#8217;s Trent Alexander-Arnold a priority target.`\
 https://nytimes.com/athletic/5847668/2024/10/16/trent-alexander-arnold-real-madrid-liverpool/
