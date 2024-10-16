@@ -1,3 +1,11 @@
+**Five necessary second-half risers and a prediction: Notre Dame at midseason**\
+`At mid-October, No. 12 Notre Dame (5-1) feels about where it wants to be. Even if the Irish haven’t been thrilled about how they got here.`\
+https://nytimes.com/athletic/5847392/2024/10/16/notre-dame-football-midseason-playoff/
+
+**2 Missing After Navy Fighter Jet Crashes Near Mount Rainier**\
+`The two crew members who were onboard the aircraft remain missing, Navy officials said, after it crashed during a routine training flight.`\
+https://nytimes.com/2024/10/16/us/navy-aircraft-crash-mt-rainier.html
+
 **Top Black business leaders aim to motivate Black men to vote for Harris.**\
 `By Kate Kelly`\
 https://nytimes.com/live/2024/10/16/us/trump-harris-election/top-black-business-leaders-aim-to-motivate-black-men-to-vote-for-harris
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/us/politics/harris-ad-trump-abortion-fox-news.htm
 **Scoop City: The history of in-season WR trades**\
 `Of the 17 significant in-season receiver trades since 2000, only 5 were successes. Davante Adams and Amari Cooper might make it 7.`\
 https://nytimes.com/athletic/5845960/2024/10/16/scoop-city-the-history-of-in-season-wr-trades/
-
-**Giants' Andrew Thomas expected to miss season after foot surgery**\
-`Thomas injured his foot on the Giants’ sole touchdown drive in Sunday’s loss to the Cincinnati Bengals.`\
-https://nytimes.com/athletic/5846159/2024/10/16/andrew-thomas-giants-foot-injury-update/
-
-**Tuchel addresses England doubters: 'I'm sorry I have a German passport'**\
-`Thomas Tuchel says the onus is on him to show supporters that he deserves a “fair chance” after becoming the new England head coach in light of the Football Association being criticised for appointing a German coach.`\
-https://nytimes.com/athletic/5847305/2024/10/16/thomas-tuchel-england-manager-german/
 
