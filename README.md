@@ -2,7 +2,7 @@
 `He led his country’s principal orchestras and major orchestras elsewhere in Europe. He also mystified his countrymen with an unstoppable flow of symphonies.`\
 https://nytimes.com/2024/10/16/arts/music/leif-segerstam-dead.html
 
-**Tuchel, FA explain delayed start date as England manager**\
+**Tuchel, FA explains delayed start date as England manager**\
 `Thomas Tuchel has said that he wants to have a “clean start”, as he explained at his England unveiling why he is not starting the job until January 1.`\
 https://nytimes.com/athletic/5847791/2024/10/16/thomas-tuchel-england-manager-start-date/
 
