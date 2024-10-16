@@ -1,3 +1,15 @@
+**Britain sanctions West Bank settlers and organizations amid rising violence.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/16/world/israel-lebanon-iran-gaza-news/britain-sanctions-west-bank-settlers-and-organizations-amid-rising-violence
+
+**New York Liberty Fans Get Creative With Jerseys, Art and Cross Stitches**\
+`As their favorite team in the W.N.B.A. experiences a surge in popularity, fans are expressing their love creatively.`\
+https://nytimes.com/2024/10/16/sports/liberty-lynx-wnba-finals-fan-art.html
+
+**Flying Into Storms Improves Forecasts, but It Is Rare in Asia’s Typhoon Alley**\
+`While observational flights have improved forecasts for many storms in the Americas, such flights have been far fewer for storms that have hit Asia.`\
+https://nytimes.com/2024/10/16/world/asia/typhoon-hurricane-forecast-accuracy.html
+
 **With Jets and Ships, China Is Honing Its Ability to Choke Taiwan**\
 `China’s large-scale military exercises are encircling Taiwan and testing the island’s defenses. They also raise the risk of conflict, accidental or otherwise.`\
 https://nytimes.com/2024/10/16/world/asia/china-taiwan-blockade-drills.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/16/world/middleeast/israel-lebanon-displaced-hezboll
 **Trump Draws, and Repels, Nevada Latinos With His Anti-Immigrant Message**\
 `For some, Donald J. Trump’s incessant attacks on immigrants are too much. Still, many appear prepared to look past his escalations and back a candidate they believe will help their livelihoods.`\
 https://nytimes.com/2024/10/16/us/politics/trump-draws-and-repels-nevada-latinos-with-his-anti-immigrant-message.html
-
-**A Crowd of Republicans Will Join Harris at a Pennsylvania Stop**\
-`The visit will take place near the Revolutionary War site where George Washington crossed the Delaware.`\
-https://nytimes.com/2024/10/16/us/politics/republicans-harris-pennsylvania.html
-
-**When Colleges Maintain Racial Diversity, That’s Good News, Not Cause for Suspicion**\
-`There are perfectly legal explanations for why schools’ demographics might not change after the fall of affirmative action.`\
-https://nytimes.com/2024/10/16/opinion/affirmative-action-college-diversity.html
-
-**Why Us vs. Them Is Not Such a Bad Way to See the World**\
-`Two new books by psychologists explore the roots of group identity, arguing that it is natural and potentially useful — even in polarized times.`\
-https://nytimes.com/2024/10/16/books/review/good-reasonable-people-keith-payne-tribal-michael-morris.html
 
