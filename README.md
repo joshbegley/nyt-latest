@@ -1,3 +1,7 @@
+**Supreme Court Paves Way, for Now, for E.P.A. Rule Limiting Power Plant Emissions**\
+`A group of states led by conservatives, along with industry players, challenged a Biden administration rule aimed at reducing power plant emissions.`\
+https://nytimes.com/2024/10/16/us/supreme-court-epa-emissions.html
+
 **Trudeau Goes on Offensive Over Foreign Interference Claims**\
 `Facing a revolt in his own party, Prime Minister Justin Trudeau attacked both the Conservative opposition and India’s government, which he said had made “a horrific mistake” in the killing of a Sikh activist.`\
 https://nytimes.com/2024/10/16/world/canada/trudeau-india-canada-sovereignty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/world/middleeast/israel-lebanon-war.html
 **Caitlin Clark becomes first rookie to make all-WNBA first-team since '08**\
 `Clark is the first rookie since Candace Parker in 2008 to be named to the first team, when Parker also won the MVP award.`\
 https://nytimes.com/athletic/5847911/2024/10/16/all-wnba-first-team-awards-caitlin-clark/
-
-**Tiny Love Stories: ‘A Queer Kid in Appalachia’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/10/16/style/tiny-modern-love-stories-a-queer-kid-in-appalachia.html
 
