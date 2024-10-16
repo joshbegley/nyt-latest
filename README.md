@@ -1,3 +1,15 @@
+**Shares of Louis Vuitton Owner Drop on Anxiety About Chinese Shoppers**\
+`Weak sales in China at LVMH, the owner of Dior, Tiffany and more, sent a shudder through the luxury sector.`\
+https://nytimes.com/2024/10/16/business/dealbook/lvmh-dior-louis-vuitton-china.html
+
+**The Bounce: Are the Magic ready for another leap?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5847000/2024/10/16/magic-paolo-banchero-nba-the-bounce/
+
+**Fuel Tanker Explosion Leaves at Least 90 Dead in Nigeria**\
+`Residents of a nearby town came to scoop up the spilled gasoline, but then the tanker exploded, setting off an inferno — an echo of several similar disasters in recent years.`\
+https://nytimes.com/2024/10/16/world/africa/nigeria-fuel-tanker-explosion.html
+
 **Hurricanes Spur Pet Adoptions Nationwide. Should You Get a ‘Storm Dog’?**\
 `Amid major disasters, shelter animals are often sent to other states. And people are more likely to foster and adopt. Here’s what to know.`\
 https://nytimes.com/2024/10/16/us/hurricanes-shelters-pet-adoptions.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/16/us/paul-lowe-dead.html
 **Ship-Free Saturdays? Juneau Votes Against Limiting Large Cruise Ships.**\
 `Some residents in the Alaskan capital, frustrated with cruise crowds, sought to limit ship traffic on Saturdays, despite the likely negative impact on local businesses.`\
 https://nytimes.com/2024/10/16/travel/juneau-cruise-ships-limits-vote.html
-
-**In ‘Sweet Bobby,’ Catfishing Is Even Worse Than You Might Think**\
-`A new Netflix documentary tells a sinister tale of a decade-long online romance scam, and the devastation that followed.`\
-https://nytimes.com/2024/10/16/style/sweet-bobby-netflix.html
-
-**Sex, Power, Money and ‘Mr. McMahon’**\
-`How decades of sexual assault allegations were swept under the rug in professional wrestling`\
-https://nytimes.com/2024/10/16/opinion/mcmahon-sexual-assault.html
-
-**My Male Partner Cheated on Me With My Gay Best Friend. Now What?**\
-`A reader is eager to patch things over with her best friend and her boyfriend after they had a tryst behind her back. But should she be?`\
-https://nytimes.com/2024/10/16/style/infidelity-best-friend-forgiveness.html
 
