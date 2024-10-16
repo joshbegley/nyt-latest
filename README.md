@@ -1,3 +1,15 @@
+**Castro, Jax among Twins' Diamond Award winners: Who I voted for and why**\
+`From MVP to most-improved player, the Twins' team awards were announced Wednesday. Here are the winners and the players for whom I voted.`\
+https://nytimes.com/athletic/5846360/2024/10/16/minnesota-twins-diamond-awards-2024/
+
+**Submit Twins questions for Aaron Gleeman's next mailbag**\
+`It's been a busy start to the Twins' offseason — to say the least. What questions do you have about the team?`\
+https://nytimes.com/athletic/5847580/2024/10/16/twins-questions-submit-gleeman/
+
+**Lowetide: Resetting expectations for Oilers defenceman Ty Emberson**\
+`Entering the season, Emberson was thought to be the most likely second-pairing option with Darnell Nurse.`\
+https://nytimes.com/athletic/5844862/2024/10/16/oilers-ty-emberson-stats-nurse/
+
 **The Victoria’s Secret Fashion Show Returns. It Shouldn’t.**\
 `Despite the wings, the supermodels and Cher, there’s no going back.`\
 https://nytimes.com/2024/10/16/style/victorias-secret-fashion-show-return-hiatus.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/16/well/live/nonmonogamy-books.html
 **England Entrusts a National Treasure to (Gasp!) a German**\
 `The appointment of Thomas Tuchel to coach the England men’s national soccer team has provoked, well, some strong feelings.`\
 https://nytimes.com/2024/10/16/world/europe/thomas-tuchel-england-soccer-reaction.html
-
-**More Research Links IUDs to Breast Cancer Risk**\
-`A new study adds to the evidence on hormonal contraceptives and breast cancer. But experts stressed the overall risk remains low.`\
-https://nytimes.com/2024/10/16/well/iud-breast-cancer-mirena-skyla.html
-
-**Can I Patronize a Place Run by a Trump Supporter?**\
-`The magazine’s Ethicist columnist on what it means to be a customer of someone who espouses a radically different political perspective.`\
-https://nytimes.com/2024/10/16/magazine/horse-stable-trump-supporter-ethics.html
-
-**NFL owners approve Jaguars' $1.4 billion stadium renovation project**\
-`Construction on the "Stadium of the Future" project is set to begin in February 2025 and is expected to be completed in 2028.`\
-https://nytimes.com/athletic/5847444/2024/10/16/jaguars-stadium-renovation/
 
