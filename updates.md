@@ -1,3 +1,7 @@
+**Trump Escalates Threats to Political Opponents He Deems the ‘Enemy’**\
+`Never before has a presidential nominee openly suggested turning the military on Americans simply because they oppose his candidacy. With voting underway, Donald Trump has turned to dark vows of retribution.`\
+https://nytimes.com/2024/10/15/us/politics/trump-opponents-enemy-within.html
+
 **At Town Hall on Women’s Issues, Trump Renews ‘Enemy Within’ Talk**\
 `Donald Trump fielded questions from an audience of all women in Georgia for a Fox News event to be broadcast on Wednesday morning.`\
 https://nytimes.com/2024/10/15/us/politics/trump-fox-news-women-town-hall.html

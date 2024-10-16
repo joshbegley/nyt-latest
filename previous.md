@@ -1,3 +1,7 @@
+**Trump Escalates Threats to Political Opponents He Deems the ‘Enemy’**\
+`Never before has a presidential nominee openly suggested turning the military on Americans simply because they oppose his candidacy. With voting underway, Donald Trump has turned to dark vows of retribution.`\
+https://nytimes.com/2024/10/15/us/politics/trump-opponents-enemy-within.html
+
 **At Town Hall on Women’s Issues, Trump Renews ‘Enemy Within’ Talk**\
 `Donald Trump fielded questions from an audience of all women in Georgia for a Fox News event to be broadcast on Wednesday morning.`\
 https://nytimes.com/2024/10/15/us/politics/trump-fox-news-women-town-hall.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5846346/2024/10/15/blue-jackets-johnny-gaudreau-hon
 **Jerry Jones explains himself to The Athletic after fired up comments**\
 `"The facts are that if I’m going to be grilled by the tribunal, I don’t need it to be by the guys I’m paying," Jones said.`\
 https://nytimes.com/athletic/5846247/2024/10/15/jerry-jones-radio-comments-exclusive/
-
-**Marking the Spot Where Desi Arnaz of ‘I Love Lucy’ Played the Conga**\
-`A new historical marker in Miami Beach pays tribute to his younger years, before Hollywood, when as a Cuban émigré he performed at a nightclub.`\
-https://nytimes.com/2024/10/15/arts/television/desi-arnaz-miami-beach-marker.html
 
