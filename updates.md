@@ -1,3 +1,7 @@
+**Chris Olave, Rashid Shaheed both ruled out vs. Broncos**\
+`Allen stated that Olave has been ruled out of the game with a concussion, while Shaheed has undergone knee surgery to repair a meniscus.`\
+https://nytimes.com/athletic/5848146/2024/10/16/chris-olave-rashid-shaheed-out-saints/
+
 **Israeli Strike Hits Lebanese Municipal Building, Killing Mayor**\
 `The strike, in the south of Lebanon, killed at least 16 people, Lebanese officials said. Israel, which also struck near Beirut, said it was targeting Hezbollah militants.`\
 https://nytimes.com/2024/10/16/world/middleeast/israel-lebanon-war.html
