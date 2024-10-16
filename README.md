@@ -1,40 +1,40 @@
-**Grab Your Calculators. We’re Going to Jail.**\
-`Our criminal justice system is nickel-and-diming people at every turn, burying them in punishing debt.`\
-https://nytimes.com/video/opinion/100000009730762/jail-fees-mass-incarceration.html
+**A Crowd of Republicans Will Join Harris at a Pennsylvania Stop**\
+`The visit will take place near the Revolutionary War site where George Washington crossed the Delaware.`\
+https://nytimes.com/2024/10/16/us/politics/republicans-harris-pennsylvania.html
 
-**Space: The Final Fashion Frontier**\
-`Prada and Axiom Space unveiled their NASA spacesuits, in the most far-out collaboration yet.`\
-https://nytimes.com/2024/10/16/style/prada-axiom-space-suits.html
+**When Colleges Maintain Racial Diversity, That’s Good News, Not Cause for Suspicion**\
+`There are perfectly legal explanations for why schools’ demographics might not change after the fall of affirmative action.`\
+https://nytimes.com/2024/10/16/opinion/affirmative-action-college-diversity.html
 
-**Matvei Michkov gets first two goals of his career in Flyers OT loss**\
-`Michkov, a native of Russia, may face a language barrier with his teammates, but not when the language is hockey.`\
-https://nytimes.com/athletic/5846792/2024/10/16/flyers-matvei-michkov-overtime-loss/
+**Why Us vs. Them Is Not Such a Bad Way to See the World**\
+`Two new books by psychologists explore the roots of group identity, arguing that it is natural and potentially useful — even in polarized times.`\
+https://nytimes.com/2024/10/16/books/review/good-reasonable-people-keith-payne-tribal-michael-morris.html
 
-**Messi feels 'like a kid' after Argentina hat-trick against Bolivia**\
-`Lionel Messi says he still feels &#8220;like a kid&#8221; playing for Argentina after scoring a hat-trick in his country&#8217;s 6-0 victory over Bolivia on Tuesday.`\
-https://nytimes.com/athletic/5846795/2024/10/16/lionel-messi-hat-trick-argentina-bolivia/
+**Teens, Do You Feel Represented in This Election?**\
+`As the 2024 election heats up, Headway is asking teenagers to weigh in on whether today’s candidates are addressing their concerns.`\
+https://nytimes.com/2024/10/16/headway/15-teen-2024-election-representation.html
 
-**Push for High-Rise Next to Beloved Garden Becomes Battle Over Shadows**\
-`The Brooklyn Botanic Garden and its supporters are fighting a proposal to build a 14-story apartment building that would cast shadows on the garden.`\
-https://nytimes.com/2024/10/16/nyregion/brooklyn-botanic-garden-shadows.html
+**In Dallas, an Entire Dance Troupe Was Fired. Now They’re Protesting.**\
+`Former artists of Dallas Black Dance Theater say they were dismissed in retaliation for forming a union. The company denies the accusation.`\
+https://nytimes.com/2024/10/16/arts/dance/dallas-black-dance-theater-company-fired-protesting.html
 
-**Word of the Day: disseminate**\
-`This word has appeared in 50 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/16/learning/word-of-the-day-disseminate.html
+**Brazil’s Chief Justice: We Are Saving Democracy.**\
+`The chief justice of Brazil’s Supreme Court, Luís Roberto Barroso, defended the court in the face of growing debate over its aggressive role in politics.`\
+https://nytimes.com/2024/10/16/world/americas/brazil-chief-justice-supreme-court-power.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/16/crosswords/spelling-bee-forum.html
+**A Fading Tree, Once Majestic, Had to Come Down. But It Wasn’t the End.**\
+`A beloved sugar maple slowly succumbed to disease. Today, it lives on in a new form.`\
+https://nytimes.com/2024/10/16/climate/sugar-maple-tree-pennsylvania.html
 
-**Jimmy Kimmel Bashes Trump’s Bizarre Town Hall**\
-`Kimmel joked on Tuesday that Trump “just said ‘To hell with it’ and started asking his tech guys to play songs off his iPad.”`\
-https://nytimes.com/2024/10/16/arts/television/late-night-kimmel-trump.html
+**Paul Rudolph Was an Architectural Star. Now He’s a Cautionary Tale.**\
+`His Brutalist buildings, praised during the Kennedy era, are now being demolished. A new exhibition in Manhattan looks at the limits of genius.`\
+https://nytimes.com/2024/10/16/arts/design/paul-rudolph-architect-met.html
 
-**Thomas Tuchel: England have hired a 'winner' but that is no guarantee in international football**\
-`England are set to appoint Thomas Tuchel as their new manager. This represents a real change from the Gareth Southgate era`\
-https://nytimes.com/athletic/5846569/2024/10/16/thomas-tuchel-england-appointment/
+**Presidents in Movies Always Seem to Know What They’re Doing. In Real Life …**\
+`Hollywood’s polished leaders and legible story arcs never quite imagined the places real-life American politics would go.`\
+https://nytimes.com/2024/10/16/magazine/movie-tv-presidents.html
 
-**Drew Bannister has faith in Nick Leddy: 'He's going to be a better player for us'**\
-`The veteran defenseman had a costly turnover in Tuesday's 4-1 loss to the Minnesota Wild, but the Blues are sticking with him.`\
-https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-nick-leddy/
+**The Trump Team Is Prepared to Bring Election Chaos. Here’s What Voters Need to Know.**\
+`We have just a short time to understand the challenges across state legislatures, Congress, executive branches and elected judges.`\
+https://nytimes.com/2024/10/16/opinion/trump-election-crisis.html
 
