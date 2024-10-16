@@ -1,3 +1,7 @@
+**Caitlin Clark becomes first rookie to make all-WNBA first-team since '08**\
+`Clark is the first rookie since Candace Parker in 2008 to be named to the first team, when Parker also won the MVP award.`\
+https://nytimes.com/athletic/5847809/2024/10/16/all-wnba-first-team-roster-awards/
+
 **Bulls’ Lonzo Ball to return with 16-minute restriction Wednesday**\
 `“I’m going to have to manage it all year. That’s just the reality of it,” Ball said Wednesday following the team’s shootaround.`\
 https://nytimes.com/athletic/5847800/2024/10/16/bulls-lonzo-ball-return-minutes-restriction/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/us/columbia-professor-shai-davidai-banned.html
 **Trump Raises Eyebrows by Proclaiming Himself the ‘Father of I.V.F.’**\
 `His campaign said the comment, which he said at an event focused on women’s issues, was “made in jest.” He has supported access to I.V.F. recently but didn’t promote it before this year.`\
 https://nytimes.com/2024/10/16/us/politics/trump-ivf-abortion.html
-
-**Jimmy Carter Casts His Ballot for Harris in Georgia**\
-`The 39th president, who entered hospice care in February 2023, submitted an absentee ballot, according to a grandson. His family said he had been eager to vote for Vice President Kamala Harris.`\
-https://nytimes.com/2024/10/16/us/jimmy-carter-votes-georgia.html
 
