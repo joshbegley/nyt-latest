@@ -1,3 +1,15 @@
+**How the Guardians can get back in the ALCS against the Yankees**\
+`With the ALCS shifting back to Progressive Field, how can the Cleveland Guardians transform their postgame space into a party scene?`\
+https://nytimes.com/athletic/5846700/2024/10/16/cleveland-guardians-new-york-yankees-alcs-game-2-analysis/
+
+**Inside the Wild's Filip Gustavsson's perfectly aimed goalie goal**\
+`“That was awesome,” general manager Bill Guerin said. “You don’t see a goalie goal every day.”`\
+https://nytimes.com/athletic/5846676/2024/10/16/wild-filip-gustavsson-goalie-goal/
+
+**Pochettino's USMNT loss to Mexico shows there's more work to be done**\
+`Pochettino was handed his first loss as the USMNT coach, and it wasn’t a pretty one.`\
+https://nytimes.com/athletic/5846694/2024/10/16/usmnt-mexico-friendly-result-takeaways/
+
 **Wednesday Briefing**\
 `A warning from the U.S. to Israel.`\
 https://nytimes.com/2024/10/16/briefing/israel-gaza-aid-trump-putin-canada.html
