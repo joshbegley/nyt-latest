@@ -1,3 +1,11 @@
+**Is it time to worry about the Canucks after third consecutive loss? 3 takeaways**\
+`Vancouver picked up its first regulation loss against the Lightning, falling 4-1 on Tuesday night.`\
+https://nytimes.com/athletic/5846324/2024/10/15/canucks-third-consecutive-loss-lightning/
+
+**Airer of Hearings**\
+`Hanh Huynh’s puzzle is a lesson in patience.`\
+https://nytimes.com/2024/10/15/crosswords/daily-puzzle-2024-10-16.html
+
 **In Pennsylvania, Walz Blasts Trump and Vance as the Outsiders, Not Immigrants**\
 `The Democratic vice-presidential nominee unveiled his ticket’s plan targeted at rural voters — including those protesting his visit.`\
 https://nytimes.com/2024/10/15/us/politics/tim-walz-pennsylvania-trump-vance.html
@@ -29,8 +37,4 @@ https://nytimes.com/2024/10/15/us/dont-ask-dont-tell.html
 **Amelia Dimoldenberg Never Waits to Text, Even on the Oscars Red Carpet**\
 `Amelia Dimoldeberg, the host of the viral video series “Chicken Shop Date,” sits down with Anna Martin, the host of The New York Times’s podcast “Modern Love,” to explain why she always texts someone she’s interested in right away.`\
 https://nytimes.com/video/podcasts/100000009763558/amelia-dimoldenberg-modern-love.html
-
-**Blue Jackets honor Gaudreau by playing 13 seconds without left winger**\
-`It was not the typical season opener for the Blue Jackets, who focused on remembering Johnny and Matthew Gaudreau.`\
-https://nytimes.com/athletic/5846346/2024/10/15/blue-jackets-johnny-gaudreau-honor-opening-night/
 
