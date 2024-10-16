@@ -1,3 +1,7 @@
+**Grab Your Calculators. We’re Going to Jail.**\
+`Our criminal justice system is nickel-and-diming people at every turn, burying them in punishing debt.`\
+https://nytimes.com/video/opinion/100000009730762/jail-fees-mass-incarceration.html
+
 **Space: The Final Fashion Frontier**\
 `Prada and Axiom Space unveiled their NASA spacesuits, in the most far-out collaboration yet.`\
 https://nytimes.com/2024/10/16/style/prada-axiom-space-suits.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5846569/2024/10/16/thomas-tuchel-england-appointmen
 **Drew Bannister has faith in Nick Leddy: 'He's going to be a better player for us'**\
 `The veteran defenseman had a costly turnover in Tuesday's 4-1 loss to the Minnesota Wild, but the Blues are sticking with him.`\
 https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-nick-leddy/
-
-**These 9 Women Were Solidly With Trump. Here’s What Has Changed.**\
-`The participants discuss how Kamala Harris’s entry into the race changed — or didn’t change — their thinking about the election.`\
-https://nytimes.com/interactive/2024/10/16/opinion/16focus-group-women-trump-voters.html
 
