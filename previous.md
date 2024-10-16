@@ -1,3 +1,7 @@
+**Drew Bannister has faith in Nick Leddy: 'He's going to be a better player for us'**\
+`The veteran defenseman had a costly turnover in Tuesday's 4-1 loss to the Minnesota Wild, but the Blues are sticking with him.`\
+https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-nick-leddy/
+
 **These 9 Women Were Solidly With Trump. Here’s What Has Changed.**\
 `The participants discuss how Kamala Harris’s entry into the race changed — or didn’t change — their thinking about the election.`\
 https://nytimes.com/interactive/2024/10/16/opinion/16focus-group-women-trump-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5844420/2024/10/16/reece-james-chelsea-training-ret
 **Jean-Clair Todibo and Max Kilman look like a partnership - this can only help West Ham progress**\
 `Todibo and Kilman have clearly become West Ham's preferred defensive partnership in recent weeks`\
 https://nytimes.com/athletic/5842298/2024/10/16/jean-clair-todibo-maximilian-kilman-west-ham-analysis/
-
-**Alan Kelly at Everton: Working with 'leader' Pickford, classy Coleman, Ancelotti's 'hope'**\
-`The former Everton goalkeeper coach left in the summer - he has nothing but fond memories of his time at Goodison Park`\
-https://nytimes.com/athletic/5836458/2024/10/16/alan-kelly-interview-everton-jordan-pickford-ancelotti/
 

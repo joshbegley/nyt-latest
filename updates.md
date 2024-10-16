@@ -1,3 +1,7 @@
+**Drew Bannister has faith in Nick Leddy: 'He's going to be a better player for us'**\
+`The veteran defenseman had a costly turnover in Tuesday's 4-1 loss to the Minnesota Wild, but the Blues are sticking with him.`\
+https://nytimes.com/athletic/5846484/2024/10/16/blues-drew-bannister-faith-in-nick-leddy/
+
 **These 9 Women Were Solidly With Trump. Here’s What Has Changed.**\
 `The participants discuss how Kamala Harris’s entry into the race changed — or didn’t change — their thinking about the election.`\
 https://nytimes.com/interactive/2024/10/16/opinion/16focus-group-women-trump-voters.html
