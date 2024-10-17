@@ -1,3 +1,7 @@
+**Archdiocese of Los Angeles Agrees to Pay $880 Million to Settle Sex Abuse Claims**\
+`The settlement brings the archdiocese’s cumulative payout in sex abuse lawsuits to more than $1.5 billion.`\
+https://nytimes.com/2024/10/16/us/archidiocese-los-angeles-abuse-settlement.html
+
 **Maple Leafs report cards: Second line surges vs. Kings for third straight win**\
 `Bobby McMann, Max Domi and William Nylander were consistent threats all night in a 6-2 victory against the Kings.`\
 https://nytimes.com/athletic/5849118/2024/10/16/maple-leafs-report-cards-mcmann-nylander-domi/
