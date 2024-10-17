@@ -1,3 +1,7 @@
+**Lonzo Ball returns to Bulls after near 3-year absence**\
+`Ball logged 10 points on 4-of-6 shooting in 15 minutes played in Wednesday's preseason game against the Timberwolves.`\
+https://nytimes.com/athletic/5847800/2024/10/16/bulls-lonzo-ball-return-minutes-restriction/
+
 **Shohei Ohtani's blast helps Dodgers take 2-1 NLCS lead over Mets: Takeaways**\
 `NEW YORK — Shohei Ohtani hit his second postseason home run to give the Los Angeles Dodgers three late insurance runs in the 8-0 victory to give the Dodgers a 2-1 lead in the National League Championship Series.`\
 https://nytimes.com/athletic/5849108/2024/10/16/dodgers-mets-shohei-ohtani-nlcs/
