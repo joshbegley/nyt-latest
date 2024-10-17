@@ -1,3 +1,7 @@
+**Yamal, Neves, Garnacho on Golden Boy shortlist: What is the award and when will winner be announced?**\
+`With the Golden Boy shortlist revealed, we take a look at the award, when and how will it be decided and who could win it this year.`\
+https://nytimes.com/athletic/5790415/2024/10/17/golden-boy-award-yamal-neves-garnacho/
+
 **How the Biden Team Plans to Build Peace From Sinwar’s Death**\
 `Will Israel take steps toward a Palestinian state?`\
 https://nytimes.com/2024/10/17/opinion/israel-hamas-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/world/middleeast/sinwar-israeli-intelligence.html
 **The Exploitation of Liam Payne**\
 `The band he helped build will surely be remembered for the way its devoted audience became the architects of contemporary fandom.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/liam-payne-death-career
-
-**Arie Kopelman, Former President of Chanel Inc., Dies at 86**\
-`Arriving at the storied luxury house two years after Karl Lagerfeld, he helped guide a boom in both products and revenues.`\
-https://nytimes.com/2024/10/17/fashion/arie-kopelman-dead.html
 

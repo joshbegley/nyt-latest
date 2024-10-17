@@ -1,3 +1,7 @@
+**Yamal, Neves, Garnacho on Golden Boy shortlist: What is the award and when will winner be announced?**\
+`With the Golden Boy shortlist revealed, we take a look at the award, when and how will it be decided and who could win it this year.`\
+https://nytimes.com/athletic/5790415/2024/10/17/golden-boy-award-yamal-neves-garnacho/
+
 **Sinwar Evaded Israeli Intelligence for Years. Trainee Soldiers Came Upon Him.**\
 `A unit from the Israeli military encountered Yahya Sinwar, the leader of Hamas, while on an operation in southern Gaza, Israeli defense officials said.`\
 https://nytimes.com/2024/10/17/world/middleeast/sinwar-israeli-intelligence.html
