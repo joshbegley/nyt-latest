@@ -1,3 +1,11 @@
+**‘A Rip-Off’: Students Secure a Final Settlement Against Walden University**\
+`A $28.5 million settlement in a class-action lawsuit against the university helped create a fresh precedent for prosecuting predatory advertising in for-profit education.`\
+https://nytimes.com/2024/10/17/us/politics/walden-university-class-action-settlement.html
+
+**Ian and Noah Eagle to headline Netflix's Christmas Day NFL doubleheader: Sources**\
+`Netflix’s Christmas Day game broadcast will feature a family flair, sources briefed on the crews for the games told The Athletic.`\
+https://nytimes.com/athletic/5851521/2024/10/17/christmas-nfl-broadcast-netflix-noah-ian-eagle/
+
 **Netflix Adds 5 Million Subscriptions in Quarter**\
 `The additions helped lift revenue to $9.8 billion during the period, a 15 percent increase from the same period last year.`\
 https://nytimes.com/2024/10/17/business/media/netflix-quarterly-report.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/opinion/israel-hamas-war.html
 **College football super league proposals must first overcome Big Ten, SEC skepticism**\
 `The super league proposals intend to solve all of college football’s issues. The first challenge is convincing the Big Ten and SEC.`\
 https://nytimes.com/athletic/5851213/2024/10/17/college-football-super-league-project-rudy-big-ten-sec/
-
-**Ta-Nehisi Coates and the Myth of Black Fragility**\
-`The debate over his recent interview entirely misses the point`\
-https://nytimes.com/2024/10/17/opinion/ta-nehisi-coates-and-the-myth-of-black-fragility.html
-
-**Todd McFarlane on sports action figures and his interest in Ohtani's 50th home run ball**\
-`Plus what's holding McFarlane Toys back from making Caitlin Clark action figures `\
-https://nytimes.com/athletic/5850538/2024/10/17/todd-mcfarlane-ohtani-auction-action-figures/
 
