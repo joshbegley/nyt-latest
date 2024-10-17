@@ -1,3 +1,23 @@
+**Thursday Briefing**\
+`A heated interview with Fox News.`\
+https://nytimes.com/2024/10/17/briefing/harris-trump-fox-israel-lebanon.html
+
+**Inside Man City's behind the scenes changes - and what they mean for Guardiola's future**\
+`There have been changes behind the scenes at Manchester City during the October international break`\
+https://nytimes.com/athletic/5846804/2024/10/17/manchester-city-behind-the-scenes-pep-guardiola/
+
+**Lucy Bronze: My game in my words**\
+`Lucy Bronze on being a No 6 for Man City, Phil Neville's controversial plan, and how the WSL has changed while she was at Barcelona`\
+https://nytimes.com/athletic/5846022/2024/10/17/lucy-bronze-my-game-in-my-words/
+
+**Love, hate and fantasy basketball: Pros and cons of the Top 50 players for 2024-25**\
+`Eric Wong is the angel on one shoulder, and Stan Son is the devil on the other, selling the good, and bad, for the Top 50 fantasy players.`\
+https://nytimes.com/athletic/5847913/2024/10/17/love-hate-and-fantasy-basketball-pros-and-cons-of-the-top-50-players-for-2024-25/
+
+**This Is What It Takes to Get an Abortion in America**\
+`In text messages, videos, voice memos and pictures, we hear from the people at the frontlines of abortion access about how their worlds have changed.`\
+https://nytimes.com/interactive/2024/10/17/opinion/dobbs-roe-abortion-stories.html
+
 **Moscow Roils a Country on the Edge of Europe and Russia**\
 `Russia is behind a disinformation campaign in Moldova ahead of a presidential election and a referendum making E.U. membership a “strategic objective,” Moldovan officials and global media companies say.`\
 https://nytimes.com/2024/10/17/world/europe/moldova-russia-european-union-election.html
