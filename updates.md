@@ -1,3 +1,7 @@
+**‘I Cannot Believe He Is Gone’: Pop World Reacts to Liam Payne’s Death**\
+`Hours after news broke that Payne had fallen from a hotel balcony in Buenos Aires, his fans and collaborators shared their shock and grief.`\
+https://nytimes.com/2024/10/17/arts/music/liam-payne-one-direction-death-reactions.html
+
 **States Are Finally Giving Released Prisoners a Fundamental Right**\
 `But there are still too many millions who lack the right to vote.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/states-felony-disenfranchisement-nebraska
