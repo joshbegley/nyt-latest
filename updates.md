@@ -1,3 +1,11 @@
+**Real Madrid, Trent Alexander-Arnold and the methods of a 'market opportunity' signing**\
+`The Liverpool right-back's contract is due to expire next summer and Madrid have made him their priority target. What might come next?`\
+https://nytimes.com/athletic/5850290/2024/10/17/real-madrid-trent-alexander-arnold-liverpool-transfer-contract/
+
+**Meloni’s Balancing Act: Centrist Abroad, Right Wing at Home**\
+`New policies on surrogate births and the treatment of asylum seekers, while largely symbolic, are designed to shore up her right-wing flank in Italy, analysts say.`\
+https://nytimes.com/2024/10/17/world/europe/meloni-surrogacy-migrants-italy.html
+
 **Gazans react to reports that the leader of Hamas was killed.**\
 `Palestinians in the enclave were divided over whether the death of Yahya Sinwar, if confirmed, would bring the war in Gaza closer to an end.`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/gaza-sinwar-reaction-death

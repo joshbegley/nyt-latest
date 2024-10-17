@@ -1,3 +1,11 @@
+**Real Madrid, Trent Alexander-Arnold and the methods of a 'market opportunity' signing**\
+`The Liverpool right-back's contract is due to expire next summer and Madrid have made him their priority target. What might come next?`\
+https://nytimes.com/athletic/5850290/2024/10/17/real-madrid-trent-alexander-arnold-liverpool-transfer-contract/
+
+**Meloni’s Balancing Act: Centrist Abroad, Right Wing at Home**\
+`New policies on surrogate births and the treatment of asylum seekers, while largely symbolic, are designed to shore up her right-wing flank in Italy, analysts say.`\
+https://nytimes.com/2024/10/17/world/europe/meloni-surrogacy-migrants-italy.html
+
 **Gazans react to reports that the leader of Hamas was killed.**\
 `Palestinians in the enclave were divided over whether the death of Yahya Sinwar, if confirmed, would bring the war in Gaza closer to an end.`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/gaza-sinwar-reaction-death
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/arts/dance/review-ballet-theater-kyle-abraham-gem
 **Inside Victor Mancini's unlikely NHL path: Doubts, disappointments and a prospect with 'all the tools'**\
 `Mancini has become a surprise success story after going undrafted twice: “When this kid puts his mind to something, don’t bet against him.”`\
 https://nytimes.com/athletic/5848707/2024/10/17/victor-mancini-rangers-nhl-prospect-rise/
-
-**When God Gives You Mark Robinson, Make Lemonade**\
-`Josh Stein’s campaign in North Carolina is a master class in devastating campaign ads.`\
-https://nytimes.com/2024/10/17/opinion/mark-robinson-josh-stein.html
-
-**The Windup: Dodgers' relentless roster keeps delivering**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/5850688/2024/10/17/dodgers-mets-mlb-playoffs-the-windup/
 
