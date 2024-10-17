@@ -1,3 +1,7 @@
+**Knicks' new jersey patch to feature Experience Abu Dhabi logo**\
+`The deal between MSG and Experience Abu Dhabi will also include advertising for the company before, during and after Knicks games.`\
+https://nytimes.com/athletic/5850002/2024/10/17/knicks-jersey-patch-experience-abu-dhabi/
+
 **Jordan Kyrou, Robert Thomas back on Blues' No. 1 line: 'They need to be top players for us'**\
 `The Blues are reuniting Kyrou and Thomas to help spark an offense that has been forced to come from behind a lot this season.`\
 https://nytimes.com/athletic/5847999/2024/10/17/jordan-kyrou-robert-thomas-reunited-blues/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/business/ecb-interest-rate-cut-inflation.html
 **A breakdown of Erik Brännström's puck moving and why history is on Elias Pettersson's side**\
 `Plus Carson Soucy's sluggish start and his role in stabilizing the Canucks' bottom four.`\
 https://nytimes.com/athletic/5849564/2024/10/17/canucks-erik-brannstrom-elias-pettersson/
-
-**Is the Trump Trade Back?**\
-`Market observers see signs that investors increasingly believe Donald Trump will win the election, but there may be alternate explanations for a shift in sentiment.`\
-https://nytimes.com/2024/10/17/business/dealbook/trump-trade-stocks-crypto.html
 
