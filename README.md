@@ -1,3 +1,7 @@
+**Rosenthal: Kiké Hernández's playoff heroics are symbolic of Dodgers' next-man-up success**\
+`The veteran hit his 15th career postseason homer in Game 3 on the NLCS to extend the Dodgers' lead over the Mets.`\
+https://nytimes.com/athletic/5849783/2024/10/17/dodgers-nlcs-kike-hernandez-mlb/
+
 **Think BOS Nation launch was bad? Welcome to the worst rebrands in MLS history**\
 `The NWSL witnessed one of the great rebrand failures this week - but over in MLS, there is a long history of relaunches gone wrong.`\
 https://nytimes.com/athletic/5848002/2024/10/17/bos-nation-nwsl-worst-mls-rebrands/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/movies/high-tide-review.html
 **NFL panic meter: How worried should Cowboys, Browns and other struggling teams be?**\
 `Thirteen of the NFL's 32 teams have losing records. Five more are at .500. As Week 7 begins, who should be sweating the most?`\
 https://nytimes.com/athletic/5847620/2024/10/17/nfl-cowboys-browns-panthers-panic-meter/
-
-**‘Goodrich’ Review: Daddy Lessons**\
-`An art gallery owner (Michael Keaton) gets a shock when his second wife (Laura Benanti) goes to rehab and he has to take care of their twins.`\
-https://nytimes.com/2024/10/17/movies/goodrich-review.html
 
