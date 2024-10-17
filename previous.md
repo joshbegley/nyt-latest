@@ -1,6 +1,18 @@
+**Analysing Europe's top four leagues: How does football in England, Italy, Spain and Germany compare?**\
+`Is the Premier League's set-piece reputation deserved? How did Covid-19 impact the sport? And why are Spanish referees so busy?`\
+https://nytimes.com/athletic/5847564/2024/10/17/premier-league-serie-a-la-liga-bundesliga-comparison/
+
+**Mateo Joseph exclusive: Switching to Spain, idolising Torres, aiming for promotion with Leeds**\
+`Joseph is fast making a name for himself with Leeds and Spain's under-21s. He talks to us exclusively about his journey`\
+https://nytimes.com/athletic/5847146/2024/10/17/leeds-spain-mateo-joseph-interview/
+
 **Thursday Briefing**\
 `A heated interview with Fox News.`\
 https://nytimes.com/2024/10/17/briefing/harris-trump-fox-israel-lebanon.html
+
+**What the Premier League table does (and does not) tell us about each club**\
+`Are your club roughly where they should be in the table? Have injuries been an issue? Have they been unlucky? Our writers take a look...`\
+https://nytimes.com/athletic/5833243/2024/10/17/premier-league-table-latest/
 
 **Inside Man City's behind the scenes changes - and what they mean for Guardiola's future**\
 `There have been changes behind the scenes at Manchester City during the October international break`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/17/world/europe/moldova-russia-european-union-electi
 **Quote of the Day: Uncertainty Over Election Stirs Anxiety On Wall St.**\
 `Quotation of the Day for Thursday, October 17, 2024`\
 https://nytimes.com/2024/10/16/pageoneplus/quote-of-the-day-uncertainty-over-election-stirs-anxiety-on-wall-st.html
-
-**Lonzo Ball returns to Bulls after near 3-year absence**\
-`Ball logged 10 points on 4-of-6 shooting in 15 minutes played in Wednesday's preseason game against the Timberwolves.`\
-https://nytimes.com/athletic/5847800/2024/10/16/bulls-lonzo-ball-return-minutes-restriction/
-
-**Shohei Ohtani's blast helps Dodgers take 2-1 NLCS lead over Mets: Takeaways**\
-`NEW YORK — Shohei Ohtani hit his second postseason home run to give the Los Angeles Dodgers three late insurance runs in the 8-0 victory to give the Dodgers a 2-1 lead in the National League Championship Series.`\
-https://nytimes.com/athletic/5849108/2024/10/16/dodgers-mets-shohei-ohtani-nlcs/
-
-**Maple Leafs report cards: Second line surges vs. Kings for third straight win**\
-`Bobby McMann, Max Domi and William Nylander were consistent threats all night in a 6-2 victory against the Kings.`\
-https://nytimes.com/athletic/5849118/2024/10/16/maple-leafs-report-cards-mcmann-nylander-domi/
 

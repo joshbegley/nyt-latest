@@ -1,3 +1,15 @@
+**Analysing Europe's top four leagues: How does football in England, Italy, Spain and Germany compare?**\
+`Is the Premier League's set-piece reputation deserved? How did Covid-19 impact the sport? And why are Spanish referees so busy?`\
+https://nytimes.com/athletic/5847564/2024/10/17/premier-league-serie-a-la-liga-bundesliga-comparison/
+
+**Mateo Joseph exclusive: Switching to Spain, idolising Torres, aiming for promotion with Leeds**\
+`Joseph is fast making a name for himself with Leeds and Spain's under-21s. He talks to us exclusively about his journey`\
+https://nytimes.com/athletic/5847146/2024/10/17/leeds-spain-mateo-joseph-interview/
+
+**What the Premier League table does (and does not) tell us about each club**\
+`Are your club roughly where they should be in the table? Have injuries been an issue? Have they been unlucky? Our writers take a look...`\
+https://nytimes.com/athletic/5833243/2024/10/17/premier-league-table-latest/
+
 **Thursday Briefing**\
 `A heated interview with Fox News.`\
 https://nytimes.com/2024/10/17/briefing/harris-trump-fox-israel-lebanon.html
