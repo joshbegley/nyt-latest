@@ -1,3 +1,11 @@
+**Shohei Ohtani adds to Dodgers postseason highlight reel with late-game moonshot**\
+`With one swing, Ohtani boosted the Dodgers' lead and protected a bullpen.`\
+https://nytimes.com/athletic/5849330/2024/10/17/dogers-shohei-ohtani-mlb-nlcs/
+
+**In Lebanon, We Took Pride in Our Resilience. Not Anymore.**\
+`The Lebanese have held strong through many tragedies. But they are now at the end of their rope.`\
+https://nytimes.com/2024/10/17/opinion/lebanon-israel-gaza-war.html
+
 **Liam Payne of One Direction Dies in Buenos Aires**\
 `The police cordoned off the hotel where the 31-year-old singer of the British band died as fans gathered to mourn him.`\
 https://nytimes.com/video/arts/music/liam-payne-dead-one-direction.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5847535/2024/10/17/thomas-tuchel-england-tactics-an
 **Analysing Europe's top four leagues: How does football in England, Italy, Spain and Germany compare?**\
 `Is the Premier League's set-piece reputation deserved? How did Covid-19 impact the sport? And why are Spanish referees so busy?`\
 https://nytimes.com/athletic/5847564/2024/10/17/premier-league-serie-a-la-liga-bundesliga-comparison/
-
-**Mateo Joseph exclusive: Switching to Spain, idolising Torres, aiming for promotion with Leeds**\
-`Joseph is fast making a name for himself with Leeds and Spain's under-21s. He talks to us exclusively about his journey`\
-https://nytimes.com/athletic/5847146/2024/10/17/leeds-spain-mateo-joseph-interview/
-
-**Thursday Briefing**\
-`A heated interview with Fox News.`\
-https://nytimes.com/2024/10/17/briefing/harris-trump-fox-israel-lebanon.html
 
