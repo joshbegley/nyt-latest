@@ -1,3 +1,11 @@
+**Mitzi Gaynor, Leading Lady of Movie Musicals, Is Dead at 93**\
+`She was best known for starring in the 1958 screen version of “South Pacific.” But her Hollywood career was brief, and she soon shifted her focus to Las Vegas and TV.`\
+https://nytimes.com/2024/10/17/movies/mitzi-gaynor-dead.html
+
+**Paqueta asks FA to investigate alleged leaks from betting case**\
+`Lucas Paqueta has called for the Football Association (FA) to launch a &#8220;thorough investigation&#8221; into the disclosure of what he claims to be &#8220;false&#8221; information regarding his ongoing case on alleged breaches of betting rules.`\
+https://nytimes.com/athletic/5850696/2024/10/17/lucas-paqueta-fa-investigation/
+
 **For the families of hostages, a moment of satisfaction and fear.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/for-the-families-of-hostages-a-moment-of-satisfaction-and-fear
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/us/politics/trump-blue-collar-voters.html
 **Shoppers Spend More Freely Than Expected, Sign of Solid U.S. Economy**\
 `A new report showing a rise in retail sales in September indicates that consumer spending, a key engine of economic growth, remains robust.`\
 https://nytimes.com/2024/10/17/business/retail-sales-economy.html
-
-**NFL Week 7 fantasy football, betting cheat sheet: Saints without Chris Olave, Rashid Shaheed**\
-`How will Spencer Rattler and the Saints fare against the Broncos without Chris Olave and Rashid Shaheed? `\
-https://nytimes.com/athletic/5845492/2024/10/17/nfl-week-7-fantasy-football-betting-cheat-sheet-chris-olave-rashid-shaheed-out-for-saints/
-
-**Prosecutors Argue Sean Combs Can’t ‘Pay His Way Out of Detention’**\
-`In a new filing, the government said the music mogul, who has proposed a sizable bail package as part of his bid to be released, should remain incarcerated.`\
-https://nytimes.com/2024/10/17/arts/music/sean-combs-diddy-bail-appeal-private-security.html
 
