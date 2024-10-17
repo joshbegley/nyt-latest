@@ -1,3 +1,15 @@
+**Advice on a Speech That Harris Could Give**\
+`Responses to a column by Bret Stephens. Also: Donald Trump and the “enemy from within”; medicine for Gaza; A.I. and human voices; a new birth certificate.`\
+https://nytimes.com/2024/10/17/opinion/kamala-harris-speech.html
+
+**Electric Vehicles May Be Struggling. G.M.’s Leader Is Still a Believer.**\
+`Mary Barra, G.M.’s chief executive, said that the company had fixed battery-manufacturing problems and that its electric vehicles would soon be profitable.`\
+https://nytimes.com/2024/10/17/business/gm-electric-vehicles-mary-barra.html
+
+**Troy Aikman: Cowboys WRs 'run terrible routes'**\
+`"I think CeeDee (Lamb) has got to improve in his route running," Aikman said.`\
+https://nytimes.com/athletic/5850494/2024/10/17/troy-aikman-cowboys-receivers-route-running/
+
 **Egypt Replaces Its Powerful Spy Chief, a Key Gaza Mediator**\
 `Gen. Abbas Kamel, a longtime confidant of Egypt’s president, oversaw the country’s most important international relationships and helped maintain the president’s authoritarian grip.`\
 https://nytimes.com/2024/10/17/world/middleeast/egypt-replaces-spy-chief.html
