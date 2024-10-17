@@ -1,11 +1,3 @@
-**Ta-Nehisi Coates and the Myth of Black Fragility**\
-`The debate over his recent interview entirely misses the point`\
-https://nytimes.com/2024/10/17/opinion/ta-nehisi-coates-and-the-myth-of-black-fragility.html
-
-**Todd McFarlane on sports action figures and his interest in Ohtani's 50th home run ball**\
-`Plus what's holding McFarlane Toys back from making Caitlin Clark action figures `\
-https://nytimes.com/athletic/5850538/2024/10/17/todd-mcfarlane-ohtani-auction-action-figures/
-
 **How Times Readers Made the Switch to Heat Pumps**\
 `Hundreds of Times readers wrote to us and shared their experiences of installing heat pumps, including the good, the bad and the daunting.`\
 https://nytimes.com/2024/10/17/climate/switching-to-a-heat-pump.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/10/17/us/politics/harris-yahya-sinwar-hamas-israel-gaza
 **In Northern Gaza, Hunger Looms Over Daily Existence**\
 `Families say they are rationing what little food they can find while living under the constant threat of Israeli bombardment.`\
 https://nytimes.com/2024/10/17/world/middleeast/gaza-hunger-war-israel.html
+
+**Sinwar’s Death Could Unlock Stalled Gaza Truce Talks, but Barriers Remain**\
+`The killing of Hamas’s leader may allow Israel to claim victory and agree to a cease-fire, and new Hamas leadership could be more open to compromise. But neither side is likely to fold completely.`\
+https://nytimes.com/2024/10/17/world/middleeast/hamas-leader-sinwar-ceasefire-talks.html
+
+**A Little-Known Trump Relative Is Leading a Campaign for Arab American Voters**\
+`A Trump in-law, along with a former administration official, is on a mission to exploit Democrats’ new weakness with Arab American and Muslim voters.`\
+https://nytimes.com/2024/10/17/us/politics/donald-trump-campaign-michigan-arab-americans.html
 
