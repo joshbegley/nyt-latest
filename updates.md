@@ -1,3 +1,7 @@
+**States Are Finally Giving Released Prisoners a Fundamental Right**\
+`But there are still too many millions who lack the right to vote.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/states-felony-disenfranchisement-nebraska
+
 **In India, Some Doctors Go on Hunger Strike to Protest Killing of Colleague**\
 `Six were subsisting only on water and were admitted into the hospital after a multiday fast to demand justice for the brutal rape and killing of a medical resident.`\
 https://nytimes.com/2024/10/17/world/asia/india-doctors-hunger-strike.html

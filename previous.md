@@ -1,3 +1,7 @@
+**States Are Finally Giving Released Prisoners a Fundamental Right**\
+`But there are still too many millions who lack the right to vote.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/states-felony-disenfranchisement-nebraska
+
 **In India, Some Doctors Go on Hunger Strike to Protest Killing of Colleague**\
 `Six were subsisting only on water and were admitted into the hospital after a multiday fast to demand justice for the brutal rape and killing of a medical resident.`\
 https://nytimes.com/2024/10/17/world/asia/india-doctors-hunger-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/17/realestate/new-york-hudson-valley-hom
 **Mikey Madison Just Wanted to Break Out of Her Shell. Look at Her Now.**\
 `The soft-spoken actress is winning raves (and Oscar talk) for her turn as a feisty sex worker in the Palme d’Or-winning “Anora.”`\
 https://nytimes.com/2024/10/17/movies/mikey-madison-anora.html
-
-**White House, Used to Road Blocks on Student Debt, Finds Cause for Victory Lap**\
-`An effort to revive and maximize use of the Public Service Loan Forgiveness program has resulted in student loan forgiveness for over one million people.`\
-https://nytimes.com/2024/10/17/us/politics/student-loans-public-service.html
 
