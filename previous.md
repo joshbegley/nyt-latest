@@ -1,3 +1,7 @@
+**The U.S. military did not aid the Israeli operation that killed Sinwar, the Pentagon said.**\
+`By John Ismay and Eric Schmitt`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/the-us-military-did-not-aid-the-israeli-operation-that-killed-sinwar-the-pentagon-said
+
 **The Leader of Hamas Is Dead**\
 `Also, Biden traveled to Germany as the U.S. wrestles with military aid. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/10/17/briefing/hamas-leader-dead-us-military-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/weather/winter-weather-forecast.html
 **Virginia men's basketball coach Tony Bennett, 55, retires on cusp of season**\
 `Bennett, a three-time national coach of the year who led Virginia to the 2019 national title, went 364-136 in 15 seasons with the Cavaliers.`\
 https://nytimes.com/athletic/5851713/2024/10/17/tony-bennett-virginia-retirement/
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/10/17/books/review/new-books-recommendations.html
 

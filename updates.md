@@ -1,3 +1,7 @@
+**The U.S. military did not aid the Israeli operation that killed Sinwar, the Pentagon said.**\
+`By John Ismay and Eric Schmitt`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/the-us-military-did-not-aid-the-israeli-operation-that-killed-sinwar-the-pentagon-said
+
 **The Leader of Hamas Is Dead**\
 `Also, Biden traveled to Germany as the U.S. wrestles with military aid. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/10/17/briefing/hamas-leader-dead-us-military-aid.html
