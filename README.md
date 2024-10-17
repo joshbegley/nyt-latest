@@ -1,40 +1,40 @@
-**The Power of Government Policies**\
-`The U.S. has the capacity to address its biggest problems. Whether it does is a different matter.`\
-https://nytimes.com/2024/10/17/briefing/taxes-immigration-economy.html
+**Think BOS Nation launch was bad? Welcome to the worst rebrands in MLS history**\
+`The NWSL witnessed one of the great rebrand failures this week - but over in MLS, there is a long history of relaunches gone wrong.`\
+https://nytimes.com/athletic/5848002/2024/10/17/bos-nation-nwsl-worst-mls-rebrands/
 
-**Postecoglou hopeful of Son, Richarlison returns for West Ham**\
-`Ange Postecoglou says Tottenham Hotspur captain Son Heung-Min will &#8220;hopefully&#8221; be available for their game against West Ham United on Saturday lunchtime.`\
-https://nytimes.com/athletic/5849724/2024/10/17/son-heung-min-richarlison-injury-tottenham/
+**ESPN reaches extensions with 4 of its basketball voices: Sources**\
+`Earlier this week, ESPN announced its NBA play by play, analysts, reporters and studio commentators for the start of the 2024-2025 season.`\
+https://nytimes.com/athletic/5848039/2024/10/17/espn-nba-wnba-tim-legler-kendrick-perkins-monica-mcnutt-chiney-ogwumike/
 
-**Dansby Swanson's second-half surge with Cubs brings optimism for 2025**\
-`If the shortstop Jed Hoyer decided to invest so much into can be more consistent in 2025, it should bode well for the Cubs' overall chances.`\
-https://nytimes.com/athletic/5848166/2024/10/17/cubs-dansby-swanson-second-half-surge-optimism/
+**‘The Line’ Review: Greek Tragedy**\
+`The dark side of college fraternity life comes to light in this harrowing, well-acted campus drama.`\
+https://nytimes.com/2024/10/17/movies/the-line-review.html
 
-**What's going on with Alabama and Tennessee? Coaches who faced them weigh in**\
-`The Third Saturday in October rivalry is back, though both teams haven't played their best of late. What does it mean for Saturday?`\
-https://nytimes.com/athletic/5847923/2024/10/17/alabama-tennessee-football-sec-coaches/
+**‘Woman of the Hour’ Review: Who is Bachelor No. 3?**\
+`Anna Kendrick’s ably directed drama about a real-life serial killer focuses on his victims instead.`\
+https://nytimes.com/2024/10/17/movies/woman-of-the-hour-review.html
 
-**Big 12 Chaos Meter: Midseason contenders, upstarts and disappointments**\
-`The teams at the top of the Big 12 standings right now were picked sixth, ninth and 13th in the preseason Big 12 poll.`\
-https://nytimes.com/athletic/5848236/2024/10/17/big-12-chaos-meter-midseason-byu-iowa-state/
+**‘Union’ Review: A Labor Fight to the Finish at Amazon**\
+`As this documentary by Brett Story and Stephen Maing chronicles, the efforts to unionize a warehouse in New York were successful — but also a grind.`\
+https://nytimes.com/2024/10/17/movies/union-review.html
 
-**Here are the latest developments.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/here-are-the-latest-developments
+**‘Rumours’ Review: No One Will Save Us**\
+`Cate Blanchette stars as a lusty, preening stateswomen in a geopolitical satire from the experimental filmmaker Guy Maddin.`\
+https://nytimes.com/2024/10/17/movies/rumours-review.html
 
-**Hollinger: Expect Thunder to run away with West, but can Suns blaze a trail?**\
-`The standings traffic jam we saw last season might become even more pronounced in 2024-25.`\
-https://nytimes.com/athletic/5826609/2024/10/17/nba-season-predictions-best-western-conference-teams/
+**‘Nocturnes’ Review: They Come at Night**\
+`In the forests of northeast India, an ecologist tracking moths creates a tiny oasis of light in the darkness.`\
+https://nytimes.com/2024/10/17/movies/nocturnes-review.html
 
-**Nebraska at Indiana: Underdog Huskers see opportunity against undefeated Hoosiers**\
-`Nebraska has lost 25 games in a row against AP-ranked opponents, dating to 2016. It’s 1-15 on the road in Big Ten play against ranked teams.`\
-https://nytimes.com/athletic/5848050/2024/10/17/nebraska-football-indiana-matchup-preview/
+**‘High Tide’ Review: Between Two Worlds**\
+`Written and directed by Marco Calvani, this film follows a gay Brazilian man working under the table one summer in Provincetown, Mass.`\
+https://nytimes.com/2024/10/17/movies/high-tide-review.html
 
-**Chiefs are undefeated, but red zone failures are holding back the offense**\
-`The Chiefs have no problems moving the ball, but in 18 trips inside the red zone, they have scored only seven touchdowns.`\
-https://nytimes.com/athletic/5848626/2024/10/17/chiefs-patrick-mahomes-red-zone-offense/
+**NFL panic meter: How worried should Cowboys, Browns and other struggling teams be?**\
+`Thirteen of the NFL's 32 teams have losing records. Five more are at .500. As Week 7 begins, who should be sweating the most?`\
+https://nytimes.com/athletic/5847620/2024/10/17/nfl-cowboys-browns-panthers-panic-meter/
 
-**Shane Waldron got off to a shaky start but skipped no steps in turning around Bears offense**\
-`Waldron is open about the fact that conversations with Caleb Williams and other offensive leaders helped spark the Bears offense.`\
-https://nytimes.com/athletic/5847850/2024/10/17/bears-shane-waldron-offense/
+**‘Goodrich’ Review: Daddy Lessons**\
+`An art gallery owner (Michael Keaton) gets a shock when his second wife (Laura Benanti) goes to rehab and he has to take care of their twins.`\
+https://nytimes.com/2024/10/17/movies/goodrich-review.html
 
