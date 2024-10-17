@@ -1,3 +1,15 @@
+**U.S. Wrestles With Aiding Allies and Maintaining Its Own Weapons Supply**\
+`Pentagon officials discuss whether the flow of assistance could be hurting the military’s ability to respond to a new conflict.`\
+https://nytimes.com/2024/10/17/us/politics/us-weapons-israel-ukraine.html
+
+**Review: Mercurial Moves Take Over the Stage in a Stark, New Ballet**\
+`American Ballet Theater opened its fall season at Lincoln Center with premieres by Gemma Bond and Kyle Abraham in his most accomplished ballet yet.`\
+https://nytimes.com/2024/10/17/arts/dance/review-ballet-theater-kyle-abraham-gemma-bond.html
+
+**When God Gives You Mark Robinson, Make Lemonade**\
+`Josh Stein’s campaign in North Carolina is a master class in devastating campaign ads.`\
+https://nytimes.com/2024/10/17/opinion/mark-robinson-josh-stein.html
+
 **The Windup: Dodgers' relentless roster keeps delivering**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/5850688/2024/10/17/dodgers-mets-mlb-playoffs-the-windup/
