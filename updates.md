@@ -1,3 +1,11 @@
+**The Athletic FC: Raw Luis Enrique, first impressions of Tuchel, NWSL marketing shambles**\
+`Today in TAFC: Inside the mind of Luis Enrique, first impressions of Thomas Tuchel, Bos Nation's blunder, what makes a player 'world class'.`\
+https://nytimes.com/athletic/5849668/2024/10/17/enrique-documentary-tuchel-england-manager-bos-nation/
+
+**The Pulse: A stunning buzzer-beater**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5849367/2024/10/17/wnba-finals-sabrina-ionescu-the-pulse/
+
 **Rosenthal: Kiké Hernández's playoff heroics are symbolic of Dodgers' next-man-up success**\
 `The veteran hit his 15th career postseason homer in Game 3 on the NLCS to extend the Dodgers' lead over the Mets.`\
 https://nytimes.com/athletic/5849783/2024/10/17/dodgers-nlcs-kike-hernandez-mlb/
