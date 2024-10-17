@@ -1,3 +1,7 @@
+**Ionescu's buzzer-beating 3 gives Liberty 2-1 WNBA Finals edge over Lynx**\
+`Breanna Stewart led both teams with 30 points and 11 rebounds and Ionescu added 13 points.`\
+https://nytimes.com/athletic/5848703/2024/10/16/lynx-liberty-wnba-finals-game-3-result/
+
 **Adam Driver in ‘Hold On to Me Darling,’ a Satire of Sincerity**\
 `A country music star embodies the clichés of celebrity in an Off Broadway revival of Kenneth Lonergan’s 2016 comedy.`\
 https://nytimes.com/2024/10/16/theater/hold-on-to-me-darling-review-driver.html
