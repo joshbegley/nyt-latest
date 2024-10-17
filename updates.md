@@ -1,3 +1,11 @@
+**U.S. Charges Indian Official in New York Assassination Plot**\
+`The United States and Canada have worked together to investigate what they say is the Indian government’s campaign against Sikh separatists.`\
+https://nytimes.com/2024/10/17/us/politics/indian-intelligence-officer-assassination.html
+
+**Leonard to miss start of Clippers season, out indefinitely: Source**\
+`Leonard has not suffered a setback in his recovery, a team source said. But he has not been cleared to practice.`\
+https://nytimes.com/athletic/5851416/2024/10/17/kawhi-leonard-clippers-out-indefinitely/
+
 **Aaron Judge, Giancarlo Stanton hit back-to-back home runs off Emmanuel Clase**\
 `Whatever the postseason narrative about Aaron Judge might have been, he’s officially flipped it.`\
 https://nytimes.com/athletic/5852176/2024/10/17/aaron-judge-giancarlo-stanton-alcs-homers/

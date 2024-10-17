@@ -1,3 +1,11 @@
+**U.S. Charges Indian Official in New York Assassination Plot**\
+`The United States and Canada have worked together to investigate what they say is the Indian government’s campaign against Sikh separatists.`\
+https://nytimes.com/2024/10/17/us/politics/indian-intelligence-officer-assassination.html
+
+**Leonard to miss start of Clippers season, out indefinitely: Source**\
+`Leonard has not suffered a setback in his recovery, a team source said. But he has not been cleared to practice.`\
+https://nytimes.com/athletic/5851416/2024/10/17/kawhi-leonard-clippers-out-indefinitely/
+
 **Aaron Judge, Giancarlo Stanton hit back-to-back home runs off Emmanuel Clase**\
 `Whatever the postseason narrative about Aaron Judge might have been, he’s officially flipped it.`\
 https://nytimes.com/athletic/5852176/2024/10/17/aaron-judge-giancarlo-stanton-alcs-homers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5849922/2024/10/17/college-football-midseason-week-
 **Israeli Military Drone Footage Claims to Show Sinwar Shortly Before He Was Killed**\
 `The video shows a room that matches photographs obtained by The Times that show the corpse of a man closely resembling the Hamas leader.`\
 https://nytimes.com/2024/10/17/world/middleeast/yahya-sinwar-death-drone-footage.html
-
-**Ahead of U.S. GP, a new technical battle stokes Red Bull, McLaren title fight**\
-`Red Bull has now faced technical scrutiny from its rivals as it tries to arrest its points slide.`\
-https://nytimes.com/athletic/5851552/2024/10/17/f1-united-states-gp-red-bull-bib-mclaren/
-
-**Berhalter reflects on USMNT firing, endorses successor Pochettino**\
-`Berhalter also said Pochettino is "a great hire for U.S. Soccer."`\
-https://nytimes.com/athletic/5851976/2024/10/17/gregg-berhalter-usmnt-firing-chicago-pochettino/
 
