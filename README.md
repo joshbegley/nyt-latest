@@ -1,3 +1,11 @@
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/10/17/books/review/new-books-recommendations.html
+
+**Trump Picked the Wrong Moment to Complain About a Language Barrier**\
+`But his description of the problems he sees with Haitian immigrants helps explain his monochrome vision of American life.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-latino-haitian-language
+
 **Browns to pursue new domed stadium in Brook Park, Ohio**\
 `Cleveland mayor Justin Bibb called the Haslam's decision "profoundly disheartening."`\
 https://nytimes.com/athletic/5851407/2024/10/17/cleveland-browns-stadium-move/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/us/politics/walden-university-class-action-settle
 **Ian and Noah Eagle to headline Netflix's Christmas Day NFL doubleheader: Sources**\
 `Netflix’s Christmas Day game broadcast will feature a family flair, sources briefed on the crews for the games told The Athletic.`\
 https://nytimes.com/athletic/5851521/2024/10/17/christmas-nfl-broadcast-netflix-noah-ian-eagle/
-
-**Netflix Adds 5 Million Subscriptions in Quarter**\
-`The additions helped lift revenue to $9.8 billion during the period, a 15 percent increase from the same period last year.`\
-https://nytimes.com/2024/10/17/business/media/netflix-quarterly-report.html
-
-**It’s Soft Pretzel and Cider Doughnut Season**\
-`Let’s make some peak fall memories.`\
-https://nytimes.com/2024/10/17/dining/its-soft-pretzel-and-cider-doughnut-season.html
 
