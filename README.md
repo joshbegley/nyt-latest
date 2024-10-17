@@ -1,3 +1,7 @@
+**Sinwar had been a priority target for Israel since his release from prison in 2011.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/israel-military-hamas-sinwar-killing-attempts
+
 **Chicago Fire owner calls soccer-specific stadium the 'last piece of the puzzle'**\
 `Mansueto said the club has started to tour possible sites. `\
 https://nytimes.com/athletic/5851885/2024/10/17/chicago-fire-owner-soccer-stadium/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/briefing/hamas-leader-dead-us-military-aid.html
 **Harris Denounces Trump for Saying Jan. 6 Was a ‘Day of Love’**\
 `Campaigning in Wisconsin, the vice president said her Republican rival was “gaslighting” Americans with his effort to rewrite the history of Jan. 6, 2021.`\
 https://nytimes.com/2024/10/17/us/politics/harris-trump-jan-6-day-of-love.html
-
-**Man Who Sprayed Police With Wasp Killer Pleads Guilty to Jan. 6 Charges**\
-`Peter Moloney, who owned funeral homes on Long Island, struck a photojournalist and another man and pleaded guilty to assaulting police officers.`\
-https://nytimes.com/2024/10/17/nyregion/peter-moloney-jan-6-guilty.html
 
