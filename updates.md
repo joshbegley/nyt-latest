@@ -1,3 +1,7 @@
+**Zelensky Tries to Sell His ‘Victory Plan’ to European Leaders**\
+`President Volodymyr Zelensky of Ukraine made an urgent plea in Brussels, though it’s unclear to what extent the officials gathered there will go along with it.`\
+https://nytimes.com/2024/10/17/world/europe/zelensky-eu-victory-plan.html
+
 **Chiney Ogwumike signs 4-year extension with ESPN to remain as basketball analyst and host**\
 `Ogwumike is the rare ESPN talent with assignments in women's basketball and the NBA.`\
 https://nytimes.com/athletic/5846303/2024/10/17/chiney-ogwumike-espn-basketball/
