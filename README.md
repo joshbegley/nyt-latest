@@ -1,3 +1,7 @@
+**Betting for (by) dummies: Chiefs overdue for a loss and the over in Georgia vs. Texas**\
+`Picking Georgia and the over in Bulldogs vs. Longhorns for the week's marquee game, plus time for Chiefs to lose one?`\
+https://nytimes.com/athletic/5850152/2024/10/17/betting-for-by-dummies-chiefs-49ers-georgia-texas/
+
 **Trump Tests Republican Appetite for Tax Cuts**\
 `Former President Donald J. Trump’s costly tax agenda undermines the changes he signed into law in 2017. Some Republicans are wary.`\
 https://nytimes.com/2024/10/17/us/politics/trump-tax-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5850525/2024/10/17/uswnt-roster-emma-hayes/
 **Sperm Can’t Unlock an Egg Without This Ancient Molecular Key**\
 `Using Google’s AlphaFold, researchers identified the bundle of three sperm proteins that seem to make sexual reproduction possible.`\
 https://nytimes.com/2024/10/17/science/sperm-egg-proteins-key.html
-
-**The Great Pumpkin Dumplings**\
-`No fussy rolling or dough cutting required: Just scrape the soft batter into boiling, salted water with a spoon for perfect, pillowy free-form dumplings.`\
-https://nytimes.com/2024/10/17/dining/pumpkin-dumplings.html
 
