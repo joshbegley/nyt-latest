@@ -1,3 +1,7 @@
+**Sinwar Evaded Israeli Intelligence for Years. Trainee Officers Found Him.**\
+`A unit from the Israeli military encountered Yahya Sinwar, the leader of Hamas, while on an operation in southern Gaza, Israeli defense officials said.`\
+https://nytimes.com/2024/10/17/world/middleeast/sinwar-evaded-israeli-intelligence-for-years-trainee-soldiers-found-him.html
+
 **The Exploitation of Liam Payne**\
 `The band he helped build will surely be remembered for the way its devoted audience became the architects of contemporary fandom.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/liam-payne-death-career
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/climate/carbon-fires-forests-global-warming.html
 **How Early Humans Evolved to Eat Starch**\
 `Two new studies found that ancient human ancestors carried a surprising diversity of genes for amylase, an enzyme that breaks down starch.`\
 https://nytimes.com/2024/10/17/science/neanderthals-starch-amylase-genes.html
-
-**Mainoo set for weeks out with muscular injury**\
-`Manchester United midfielder Kobbie Mainoo is set to be sidelined for &#8220;a few weeks&#8221; with a muscular injury.`\
-https://nytimes.com/athletic/5851173/2024/10/17/kobbie-mainoo-injury-update/
 
