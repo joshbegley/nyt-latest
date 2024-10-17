@@ -1,3 +1,11 @@
+**Chicago Fire owner calls soccer-specific stadium the 'last piece of the puzzle'**\
+`Mansueto said the club has started to tour possible sites. `\
+https://nytimes.com/athletic/5851885/2024/10/17/chicago-fire-owner-soccer-stadium/
+
+**Groups That Run N.Y.C. Shelters Are Riddled With Problems, Report Finds**\
+`An extensive review by New York City’s Department of Investigation identified hundreds of issues, including financial mismanagement, nepotism and conflicts of interest.`\
+https://nytimes.com/2024/10/17/nyregion/nyc-homeless-shelters.html
+
 **Marvin Preston IV, 80, Dies; Saved the Martha Graham Dance Company**\
 `An expert at rescuing distressed companies, he took over the struggling organization in 2000, leading it through a painful restructuring and a lengthy legal battle.`\
 https://nytimes.com/2024/10/17/arts/dance/marvin-preston-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/us/politics/harris-trump-jan-6-day-of-love.html
 **Man Who Sprayed Police With Wasp Killer Pleads Guilty to Jan. 6 Charges**\
 `Peter Moloney, who owned funeral homes on Long Island, struck a photojournalist and another man and pleaded guilty to assaulting police officers.`\
 https://nytimes.com/2024/10/17/nyregion/peter-moloney-jan-6-guilty.html
-
-**Biden Talks to Netanyahu About Sinwar’s Death and Getting to a Cease-Fire**\
-`After arriving in Berlin for previously scheduled meetings, the president said he was sending the secretary of state to Israel in the coming days.`\
-https://nytimes.com/2024/10/17/world/middleeast/biden-netanyahu-israel-hamas-war.html
-
-**Father and Son Indicted on Murder Charges for Georgia School Shooting**\
-`A grand jury handed up charges against Colt Gray, 14, who is accused of killing four people at his high school. His father, Colin Gray, is accused of giving him access to the murder weapon.`\
-https://nytimes.com/2024/10/17/us/georgia-school-shooting-indictment.html
 
