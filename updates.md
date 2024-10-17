@@ -1,3 +1,7 @@
+**Yamamoto, Ohtani, Darvish showdown was Japan's most watched MLB playoff game**\
+`MLB said the game drew a 19.2 rating in Japan, which amounts to an estimated 12.9 million average viewers.`\
+https://nytimes.com/athletic/5851099/2024/10/17/japan-mlb-playoff-game-viewers-darvish-ohtani-yamamoto/
+
 **The World’s Carbon Sinks Are on Fire**\
 `Carbon emissions from forest fires increased more than 60 percent globally over the past two decades, according to a new study.`\
 https://nytimes.com/2024/10/17/climate/carbon-fires-forests-global-warming.html
