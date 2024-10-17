@@ -1,3 +1,7 @@
+**Corrections: Oct. 17, 2024**\
+`Corrections that appeared in print on Thursday, Oct. 17, 2024.`\
+https://nytimes.com/2024/10/16/pageoneplus/corrections-oct-17-2024.html
+
 **On Fox News, Harris Proves She’s Tough**\
 `It was a strong contrast to her interview-dodging opponent.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/kamala-harris-fox-news-interview
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/16/world/middleeast/un-gaza-aid-israel.html
 **Harris Makes a Broad Overture to Republican Voters, Citing the Constitution**\
 `Appearing in a competitive suburban area of southeastern Pennsylvania, the vice president tried to strike a unifying tone even as she warned that Donald Trump posed a threat to the country.`\
 https://nytimes.com/2024/10/16/us/politics/harris-republican-voters-pennsylvania.html
-
-**Penguins' Sidney Crosby becomes 10th NHL player with 1,600 points**\
-`Crosby is also creeping up on Mario Lemieux’s Penguins record for points (1,723).`\
-https://nytimes.com/athletic/5835486/2024/10/16/sidney-crosby-points-record-penguins/
 
