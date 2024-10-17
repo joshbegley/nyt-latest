@@ -1,3 +1,19 @@
+**A New Plan to Transform Newark Airport ‘From Worst to Best’**\
+`The plan, announced Thursday by the Port Authority of New York and New Jersey, includes replacing the rickety AirTrain network and the airport’s dilapidated Terminal B.`\
+https://nytimes.com/2024/10/17/nyregion/newark-airport-airtrain-renovation.html
+
+**Sam Brown, Republican Candidate for Senate in Nevada, Struggles for Traction**\
+`Mr. Brown, who has never held elected office, has found himself outpaced by Senator Jacky Rosen, the low-key and well-financed Democratic incumbent. A debate Thursday night presents a key test.`\
+https://nytimes.com/2024/10/17/us/politics/jacky-rosen-sam-brown-nevada-senate.html
+
+**Adam Abeshouse, Prolific Producer of Classical Music, Dies at 63**\
+`A trained violinist, he found his calling in the studio control room. He also started a foundation to help fund recordings that lack major-label support.`\
+https://nytimes.com/2024/10/17/arts/music/adam-abeshouse-dead.html
+
+**Raiders ready to move on, grateful for closure following Davante Adams' trade to Jets**\
+`Adams said he felt "helpless" in the Raiders offense. Las Vegas OC Luke Getsy “didn’t know the answer” to why it turned out that way.`\
+https://nytimes.com/athletic/5851385/2024/10/17/raiders-reaction-davante-adams-trade-jets/
+
 **Behind Nigeria’s Deadliest Road Incident in Years, a Quest for Cheap Fuel**\
 `More than 160 people died when an overturned fuel tanker in northern Nigeria exploded. Witnesses and relatives of victims said poverty had driven most to try to collect the spilled gas.`\
 https://nytimes.com/2024/10/17/world/africa/nigeria-fuel-tanker-explosion-jigawa.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/17/dining/its-soft-pretzel-and-cider-doughnut-season
 **Wild say captain Jared Spurgeon's absence related to surgeries but 'part of the healing process'**\
 `Also, Joel Eriksson Ek returned to practice Thursday, and John Hynes said he expects Eriksson Ek, Johansson and Brodin to play Saturday.`\
 https://nytimes.com/athletic/5851471/2024/10/17/wild-jared-spurgeon-healing-process/
-
-**The N.R.A. Again Cuts Back on Top Grades for Congressional Candidates**\
-`The group’s latest ratings show a decline in top marks for the seventh straight election cycle, suggesting its influence is waning.`\
-https://nytimes.com/2024/10/17/us/politics/nra-ratings-election.html
-
-**Could Chargers reunite with Mike Williams? Why it might make sense**\
-`The Chargers have struggled in the passing attack and need more receiving depth. Could Herbert's former favorite target be the answer?`\
-https://nytimes.com/athletic/5851248/2024/10/17/chargers-mike-williams-reunion-trade-jets/
-
-**Yamal, Neves, Garnacho on Golden Boy shortlist: What is the award and when will winner be announced?**\
-`With the Golden Boy shortlist revealed, we take a look at the award, when and how will it be decided and who could win it this year.`\
-https://nytimes.com/athletic/5790415/2024/10/17/golden-boy-award-yamal-neves-garnacho/
-
-**How the Biden Team Plans to Build Peace From Sinwar’s Death**\
-`Will Israel take steps toward a Palestinian state?`\
-https://nytimes.com/2024/10/17/opinion/israel-hamas-war.html
 
