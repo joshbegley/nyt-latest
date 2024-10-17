@@ -1,3 +1,7 @@
+**Corrections: Oct. 17, 2024**\
+`Corrections that appeared in print on Thursday, Oct. 17, 2024.`\
+https://nytimes.com/2024/10/16/pageoneplus/corrections-oct-17-2024.html
+
 **On Fox News, Harris Proves She’s Tough**\
 `It was a strong contrast to her interview-dodging opponent.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/kamala-harris-fox-news-interview
