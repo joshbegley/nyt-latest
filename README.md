@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/an-israe
 https://nytimes.com/athletic/5850437/2024/10/17/jack-wilshere-norwich-arsenal/
 
 **Fan Bingbing, Once China’s Top Actress, Returns to Film Years After Tax Scandal**\
-`Fan was a megastar until in 2018, when she was fined tens of millions of dollars over unpaid taxes and her career tanked. “Green Night” is her first film since the scandal.`\
+`Fan was a megastar until 2018, when she was fined tens of millions of dollars over unpaid taxes and her career tanked. “Green Night” is her first film since the scandal.`\
 https://nytimes.com/2024/10/17/world/asia/fan-bingbing-movie-star-returns.html
 
 **Ryder Cup ticket prices have never been higher. That's a real problem for golf**\
