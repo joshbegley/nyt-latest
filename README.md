@@ -1,3 +1,7 @@
+**What Keeps Latino Voting-Rights Activists Up at Night? Disinformation**\
+`Activists say the nefarious material is more widespread, sophisticated and complex than ever.`\
+https://nytimes.com/2024/10/17/us/politics/latino-voters-election-disinformation.html
+
 **Cher, Tyra Banks and Cara Delevingne Toast Burberry**\
 `The British brand hosted a starry cocktail party to celebrate a makeover of its flagship store.`\
 https://nytimes.com/2024/10/17/style/burberry-cher-tyra-banks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/arts/dance/marvin-preston-dead.html
 **The killing of Sinwar is another blow to Iran.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/sinwar-hamas-death-iran
-
-**Texas Attorney General Sues Doctor Over Treatment for Transgender Minors**\
-`Ken Paxton, the attorney general, said it was the first enforcement action under a state ban on treatment.`\
-https://nytimes.com/2024/10/17/us/texas-transgender-treatment-lawsuit.html
 
