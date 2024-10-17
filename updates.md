@@ -1,3 +1,11 @@
+**Brain Games: Backing Bucky Irving, tinkering with Jakobi Meyers and more Week 7 advice**\
+`Renee Miller strikes a positive note in offering her Week 7 players to consider for your fantasy lineups, including Bucs back Bucky Irving.`\
+https://nytimes.com/athletic/5848785/2024/10/17/brain-games-fantasy-football-week-7-irving-bigsby-meyers/
+
+**Donny van de Beek exclusive: Man Utd struggles, Girona hopes, and Erik ten Hag**\
+`This summer, the Dutchman moved on from Manchester United for a new start in Spain with Girona. Here, he looks back on the past four years`\
+https://nytimes.com/athletic/5849643/2024/10/17/van-de-beek-man-utd-girona-premier-league-la-liga/
+
 **Suns' Ryan Dunn, with an improved jump shot, could end up as the steal of the draft**\
 `Phoenix has lacked a strong 3-and-D player since trading Mikal Bridges in the 2023 Durant deal. Ryan Dunn might be the answer.`\
 https://nytimes.com/athletic/5849225/2024/10/17/ryan-dunn-phoenix-suns-jump-shot-3s/
