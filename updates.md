@@ -1,3 +1,7 @@
+**The World’s Carbon Sinks Are on Fire**\
+`Carbon emissions from forest fires increased more than 60 percent globally over the past two decades, according to a new study.`\
+https://nytimes.com/2024/10/17/climate/carbon-fires-forests-global-warming.html
+
 **How Early Humans Evolved to Eat Starch**\
 `Two new studies found that ancient human ancestors carried a surprising diversity of genes for amylase, an enzyme that breaks down starch.`\
 https://nytimes.com/2024/10/17/science/neanderthals-starch-amylase-genes.html
