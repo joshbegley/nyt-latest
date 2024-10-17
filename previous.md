@@ -1,3 +1,11 @@
+**Milner out for several more weeks after hamstring injury setback**\
+`Brighton &amp; Hove Albion will be without James Milner for several more weeks after a setback in his recovery from a hamstring injury.`\
+https://nytimes.com/athletic/5849648/2024/10/17/james-milner-brighton-injury-setback/
+
+**Let’s Take the Republican Policy Challenge**\
+`The former president’s actual plans are no better than his tweets.`\
+https://nytimes.com/2024/10/17/opinion/trump-policy-maga-republican.html
+
 **How Accurate, or Off-Target, Could the Polls Be This Year?**\
 `The polls can never perfectly predict election results. But an examination of three decades of polling helps put recent misses into context.`\
 https://nytimes.com/interactive/2024/10/17/us/politics/national-polls-election-results.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/us/politics/student-loans-public-service.html
 **Yellen to Warn Sweeping Tariffs Would Ignite Inflation**\
 `The Treasury secretary plans to criticize former President Donald J. Trump’s economic proposals in a speech.`\
 https://nytimes.com/2024/10/17/us/politics/janet-yellen-speech-tariffs-trump.html
-
-**My Patients Are Children. Dobbs Forced Me to Leave Them Behind.**\
-`The cruel realities of the Supreme Court’s decision through the eyes of one doctor.`\
-https://nytimes.com/2024/10/17/opinion/kristl-tomlin-dobbs-children.html
-
-**The Exquisite Fragility of Mark Andre’s Music**\
-`Andre’s family history is one of precarity and mutability. His works, vulnerable and intricate, aren’t so different.`\
-https://nytimes.com/2024/10/17/arts/music/mark-andre-music-selig-ist.html
 

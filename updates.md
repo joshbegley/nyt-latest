@@ -1,3 +1,11 @@
+**Milner out for several more weeks after hamstring injury setback**\
+`Brighton &amp; Hove Albion will be without James Milner for several more weeks after a setback in his recovery from a hamstring injury.`\
+https://nytimes.com/athletic/5849648/2024/10/17/james-milner-brighton-injury-setback/
+
+**Let’s Take the Republican Policy Challenge**\
+`The former president’s actual plans are no better than his tweets.`\
+https://nytimes.com/2024/10/17/opinion/trump-policy-maga-republican.html
+
 **How Accurate, or Off-Target, Could the Polls Be This Year?**\
 `The polls can never perfectly predict election results. But an examination of three decades of polling helps put recent misses into context.`\
 https://nytimes.com/interactive/2024/10/17/us/politics/national-polls-election-results.html
