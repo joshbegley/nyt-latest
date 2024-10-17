@@ -1,3 +1,7 @@
+**Marvin Preston IV, 80, Dies; Saved the Martha Graham Dance Company**\
+`An expert at rescuing distressed companies, he took over the struggling organization in 2000, leading it through a painful restructuring and a lengthy legal battle.`\
+https://nytimes.com/2024/10/17/arts/dance/marvin-preston-dead.html
+
 **The killing of Sinwar is another blow to Iran.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/sinwar-hamas-death-iran
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/world/middleeast/biden-netanyahu-israel-hamas-war
 **Father and Son Indicted on Murder Charges for Georgia School Shooting**\
 `A grand jury handed up charges against Colt Gray, 14, who is accused of killing four people at his high school. His father, Colin Gray, is accused of giving him access to the murder weapon.`\
 https://nytimes.com/2024/10/17/us/georgia-school-shooting-indictment.html
-
-**Friday Briefing: The Leader of Hamas is Dead**\
-`Plus, an interview with Hugh Grant.`\
-https://nytimes.com/2024/10/17/briefing/sinwar-killed-polling-bangladesh-secret-prison.html
 
