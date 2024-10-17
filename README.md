@@ -1,7 +1,3 @@
-**Behind Nigeria’s Deadliest Road Incident in Years, a Quest for Cheap Fuel**\
-`More than 160 people died when an overturned fuel tanker in northern Nigeria exploded. Witnesses and relatives of victims said poverty had driven most to try to collect the spilled gas.`\
-https://nytimes.com/2024/10/17/world/africa/nigeria-fuel-tanker-explosion-jigawa.html
-
 **‘A Rip-Off’: Students Secure a Final Settlement Against Walden University**\
 `A $28.5 million settlement in a class-action lawsuit against the university helped create a fresh precedent for prosecuting predatory advertising in for-profit education.`\
 https://nytimes.com/2024/10/17/us/politics/walden-university-class-action-settlement.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5790415/2024/10/17/golden-boy-award-yamal-neves-gar
 **How the Biden Team Plans to Build Peace From Sinwar’s Death**\
 `Will Israel take steps toward a Palestinian state?`\
 https://nytimes.com/2024/10/17/opinion/israel-hamas-war.html
+
+**College football super league proposals must first overcome Big Ten, SEC skepticism**\
+`The super league proposals intend to solve all of college football’s issues. The first challenge is convincing the Big Ten and SEC.`\
+https://nytimes.com/athletic/5851213/2024/10/17/college-football-super-league-project-rudy-big-ten-sec/
 
