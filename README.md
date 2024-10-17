@@ -1,3 +1,11 @@
+**The Athletic FC: Raw Luis Enrique, first impressions of Tuchel, NWSL marketing shambles**\
+`Today in TAFC: Inside the mind of Luis Enrique, first impressions of Thomas Tuchel, Bos Nation's blunder, what makes a player 'world class'.`\
+https://nytimes.com/athletic/5849668/2024/10/17/enrique-documentary-tuchel-england-manager-bos-nation/
+
+**The Pulse: A stunning buzzer-beater**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5849367/2024/10/17/wnba-finals-sabrina-ionescu-the-pulse/
+
 **Rosenthal: Kiké Hernández's playoff heroics are symbolic of Dodgers' next-man-up success**\
 `The veteran hit his 15th career postseason homer in Game 3 on the NLCS to extend the Dodgers' lead over the Mets.`\
 https://nytimes.com/athletic/5849783/2024/10/17/dodgers-nlcs-kike-hernandez-mlb/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/movies/rumours-review.html
 **‘Nocturnes’ Review: They Come at Night**\
 `In the forests of northeast India, an ecologist tracking moths creates a tiny oasis of light in the darkness.`\
 https://nytimes.com/2024/10/17/movies/nocturnes-review.html
-
-**‘High Tide’ Review: Between Two Worlds**\
-`Written and directed by Marco Calvani, this film follows a gay Brazilian man working under the table one summer in Provincetown, Mass.`\
-https://nytimes.com/2024/10/17/movies/high-tide-review.html
-
-**NFL panic meter: How worried should Cowboys, Browns and other struggling teams be?**\
-`Thirteen of the NFL's 32 teams have losing records. Five more are at .500. As Week 7 begins, who should be sweating the most?`\
-https://nytimes.com/athletic/5847620/2024/10/17/nfl-cowboys-browns-panthers-panic-meter/
 
