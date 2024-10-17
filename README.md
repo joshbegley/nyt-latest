@@ -1,3 +1,7 @@
+**In Rambling Interview, Trump Blames Zelensky, Not Putin, for Ukraine War**\
+`The war began when Russia invaded Ukraine, but Donald J. Trump said on a podcast that the Ukrainian president “should never have let that war start.”`\
+https://nytimes.com/2024/10/17/us/politics/trump-zelensky-putin-ukraine-war.html
+
 **The U.S. military did not aid the Israeli operation that killed Sinwar, the Pentagon said.**\
 `By John Ismay and Eric Schmitt`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/the-us-military-did-not-aid-the-israeli-operation-that-killed-sinwar-the-pentagon-said
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009766865/hamas-gaza-yahya-sinw
 **Weather Experts Offer a Peek at This Winter’s Forecast**\
 `Winter is coming. But will it bring snow? NOAA announced its annual winter outlook on Thursday.`\
 https://nytimes.com/2024/10/17/weather/winter-weather-forecast.html
-
-**Virginia men's basketball coach Tony Bennett, 55, retires on cusp of season**\
-`Bennett, a three-time national coach of the year who led Virginia to the 2019 national title, went 364-136 in 15 seasons with the Cavaliers.`\
-https://nytimes.com/athletic/5851713/2024/10/17/tony-bennett-virginia-retirement/
 
