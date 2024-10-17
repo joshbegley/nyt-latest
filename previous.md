@@ -1,40 +1,40 @@
-**Live Updates: U.S. Strikes Houthi Weapons Caches in Yemen**\
-`The attack on underground weapons facilities in areas of Yemen controlled by the Iranian-backed militia could also serve as a warning to Tehran.`\
-https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news
+**How Accurate, or Off-Target, Could the Polls Be This Year?**\
+`The polls can never perfectly predict election results. But an examination of three decades of polling helps put recent misses into context.`\
+https://nytimes.com/interactive/2024/10/17/us/politics/national-polls-election-results.html
 
-**Iga Swiatek hires Wim Fissette as new head coach**\
-`The world No. 1 has hired a coach with Grand-Slam-winning pedigree after splitting with Tomasz Wiktorowski.`\
-https://nytimes.com/athletic/5849568/2024/10/17/iga-swiatek-coach-team/
+**This Ring on Your Finger Tracks Your Sleep. Is It Worth the Splurge?**\
+`The $350 Oura Ring 4 looks sleek and cool, and it may be useful for data-hungry health enthusiasts. But it failed this sleep-deprived parent.`\
+https://nytimes.com/2024/10/17/technology/personaltech/oura-ring-sleep-tracker.html
 
-**A $350 Million Plan to Redesign 5th Avenue: Wider Sidewalks, Fewer Cars**\
-`New York City officials and business leaders plan to expand sidewalks, add seating areas and trees and remove two car lanes to create a pedestrian-friendly boulevard.`\
-https://nytimes.com/2024/10/17/nyregion/fifth-avenue-redesign-pedestrians.html
+**Once Upon a Time**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2024/10/17/learning/once-upon-a-time.html
 
-**Word of the Day: emblematic**\
-`This word has appeared in 274 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/17/learning/word-of-the-day-emblematic.html
+**A Pioneer in Metal Furniture Gets a New Exhibition**\
+`Plus: a seaside hotel in France, a book celebrating Atelier Vime and more recommendations from T Magazine.`\
+https://nytimes.com/2024/10/17/t-magazine/maria-pergay-demisch-danant-exhibition.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/17/crosswords/spelling-bee-forum.html
+**Heading North to Find a Hudson Valley Home for $500,000. But Which One?**\
+`Wishing to be closer to their children and grandchildren, a couple left Philadelphia to check out townhouse communities in Dutchess County. Here’s what they found.`\
+https://nytimes.com/interactive/2024/10/17/realestate/new-york-hudson-valley-home-sale.html
 
-**Scaring Halloween Trick-or-Treaters Is Free. But This Pumpkin? $13.50.**\
-`Americans spend billions on Halloween annually. But with every modestly priced pumpkin come behind-the-scenes costs that add up for the farms producing them, like seeds, fertilizer, irrigation and labor.`\
-https://nytimes.com/2024/10/17/nyregion/pumpkins-costs-halloween-ny.html
+**Mikey Madison Just Wanted to Break Out of Her Shell. Look at Her Now.**\
+`The soft-spoken actress is winning raves (and Oscar talk) for her turn as a feisty sex worker in the Palme d’Or-winning “Anora.”`\
+https://nytimes.com/2024/10/17/movies/mikey-madison-anora.html
 
-**Hard News and Honky-Tonks: How to Cover the American South**\
-`As a reporter responsible for region news in the South, Emily Cochrane covers hurricanes, trials, country music and more.`\
-https://nytimes.com/2024/10/17/insider/american-south.html
+**White House, Used to Road Blocks on Student Debt, Finds Cause for Victory Lap**\
+`An effort to revive and maximize use of the Public Service Loan Forgiveness program has resulted in student loan forgiveness for over one million people.`\
+https://nytimes.com/2024/10/17/us/politics/student-loans-public-service.html
 
-**Sabrina Ionescu hit the 'biggest shot of my career,' but the Liberty star isn't done yet**\
-`"Not everyone can take those big shots and make them. She can." Ionescu's timely 3 put the Liberty up 2-1 in the WNBA Finals.`\
-https://nytimes.com/athletic/5849513/2024/10/17/sabrina-ionescu-wnba-finals-3-pointer-new-york-liberty/
+**Yellen to Warn Sweeping Tariffs Would Ignite Inflation**\
+`The Treasury secretary plans to criticize former President Donald J. Trump’s economic proposals in a speech.`\
+https://nytimes.com/2024/10/17/us/politics/janet-yellen-speech-tariffs-trump.html
 
-**Jimmy Kimmel Slams Trump’s Women-Centered Town Hall**\
-`“This was the first time Groper Cleveland has been around this many women since they started padlocking the doors at Miss Teen USA,” Kimmel said on Wednesday.`\
-https://nytimes.com/2024/10/17/arts/television/latenight-trump-womens-town-hall.html
+**My Patients Are Children. Dobbs Forced Me to Leave Them Behind.**\
+`The cruel realities of the Supreme Court’s decision through the eyes of one doctor.`\
+https://nytimes.com/2024/10/17/opinion/kristl-tomlin-dobbs-children.html
 
-**With one pitch, Walker Buehler shows his evolution as Dodgers take NLCS Game 3**\
-`Max Muncy said: “There’s never a moment that gets too big for him. He was Walker Buehler tonight."`\
-https://nytimes.com/athletic/5849395/2024/10/17/dodgers-nlcs-walker-buehler/
+**The Exquisite Fragility of Mark Andre’s Music**\
+`Andre’s family history is one of precarity and mutability. His works, vulnerable and intricate, aren’t so different.`\
+https://nytimes.com/2024/10/17/arts/music/mark-andre-music-selig-ist.html
 
