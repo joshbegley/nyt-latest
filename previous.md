@@ -1,3 +1,7 @@
+**76ers' McCain hospitalized after 'rough' fall in Wednesday game**\
+`McCain, the No. 16 pick in April's draft, could be heard coughing and was seen clutching his chest as trainers attended to him.`\
+https://nytimes.com/athletic/5850156/2024/10/17/76ers-jared-mccain-concussion-hospitalized/
+
 **Fullkrug still out with calf injury, Lopetegui unsure on return date**\
 `West Ham United forward Niclas Fullkrug remains sidelined with a calf injury.`\
 https://nytimes.com/athletic/5850305/2024/10/17/niclas-fullkrug-injury-return-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/israel-i
 **Can Chargers defense sustain quality play amid secondary injuries?**\
 `Rookies Cam Hart and Tarheeb Still played well when pressed into action but their inexperience could lead to volatility. `\
 https://nytimes.com/athletic/5848983/2024/10/17/chargers-defense-injuries-rookies-still-hart/
-
-**City set to appoint Sjogran as women’s director of football**\
-`Manchester City are set to appoint Therese Sjogran as their new women’s director of football.`\
-https://nytimes.com/athletic/5849827/2024/10/17/man-city-women-therese-sjogran/
 

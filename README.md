@@ -1,3 +1,7 @@
+**France's richest man Arnault and Red Bull in exclusive negotiations to buy Paris FC**\
+`French billionaire and LVMH chairman Bernard Arnault has partnered with Red Bull to enter exclusive negotiations over buying Paris FC.`\
+https://nytimes.com/athletic/5850158/2024/10/17/paris-fc-takeover-arnault-red-bull/
+
 **76ers' McCain hospitalized after 'rough' fall in Wednesday game**\
 `McCain, the No. 16 pick in April's draft, could be heard coughing and was seen clutching his chest as trainers attended to him.`\
 https://nytimes.com/athletic/5850156/2024/10/17/76ers-jared-mccain-concussion-hospitalized/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5850072/2024/10/17/manchester-united-fans-1958/
 **Israel is assessing whether a slain militant is the Hamas leader Yahya Sinwar.**\
 `Israel will conduct DNA tests on the body of a militant shot and killed on Wednesday in southern Gaza, officials said. The body bears physical similarities with Yahya Sinwar, the leader of Hamas.`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/israel-is-assessing-whether-slain-militant-is-hamas-leader-yahya-sinwar
-
-**Can Chargers defense sustain quality play amid secondary injuries?**\
-`Rookies Cam Hart and Tarheeb Still played well when pressed into action but their inexperience could lead to volatility. `\
-https://nytimes.com/athletic/5848983/2024/10/17/chargers-defense-injuries-rookies-still-hart/
 

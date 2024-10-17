@@ -1,3 +1,7 @@
+**76ers' McCain hospitalized after 'rough' fall in Wednesday game**\
+`McCain, the No. 16 pick in April's draft, could be heard coughing and was seen clutching his chest as trainers attended to him.`\
+https://nytimes.com/athletic/5850156/2024/10/17/76ers-jared-mccain-concussion-hospitalized/
+
 **Fullkrug still out with calf injury, Lopetegui unsure on return date**\
 `West Ham United forward Niclas Fullkrug remains sidelined with a calf injury.`\
 https://nytimes.com/athletic/5850305/2024/10/17/niclas-fullkrug-injury-return-west-ham/
