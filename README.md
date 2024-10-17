@@ -1,3 +1,15 @@
+**Israeli Military Drone Footage Claims to Show Sinwar Shortly Before He Was Killed**\
+`The video shows a room that matches photographs obtained by The Times that show the corpse of a man closely resembling the Hamas leader.`\
+https://nytimes.com/2024/10/17/world/middleeast/yahya-sinwar-death-drone-footage.html
+
+**Ahead of U.S. GP, a new technical battle stokes Red Bull, McLaren title fight**\
+`Red Bull has now faced technical scrutiny from its rivals as it tries to arrest its points slide.`\
+https://nytimes.com/athletic/5851552/2024/10/17/f1-united-states-gp-red-bull-bib-mclaren/
+
+**Berhalter reflects on USMNT firing, endorses successor Pochettino**\
+`Berhalter also said Pochettino is "a great hire for U.S. Soccer."`\
+https://nytimes.com/athletic/5851976/2024/10/17/gregg-berhalter-usmnt-firing-chicago-pochettino/
+
 **What Keeps Latino Voting-Rights Activists Up at Night? Disinformation**\
 `Activists say the nefarious material is more widespread, sophisticated and complex than ever.`\
 https://nytimes.com/2024/10/17/us/politics/latino-voters-election-disinformation.html
@@ -15,7 +27,7 @@ https://nytimes.com/2024/10/17/opinion/harris-trump-close-race.html
 https://nytimes.com/2024/10/17/world/europe/david-lammy-uk-china-visit.html
 
 **Harris Slams Trump for Calling Jan. 6 a ‘Day of Love’**\
-`Speaking at a campaign rally, Vice President Kamala Harris said former President Donald J. Trump was “gaslighting” Americans with his effort to rewrite the history of Jan. 6, 2021.`\
+`Speaking at a campaign rally in La Crosse, Wis., Vice President Kamala Harris said former President Donald J. Trump was “gaslighting” Americans with his effort to rewrite the history of Jan. 6, 2021.`\
 https://nytimes.com/video/us/elections/100000009768581/harris-trump-jan6-capitol.html
 
 **Sinwar had been a priority target for Israel since his release from prison in 2011.**\
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/israel-m
 **Chicago Fire owner calls soccer-specific stadium the 'last piece of the puzzle'**\
 `Mansueto said the club has started to tour possible sites. `\
 https://nytimes.com/athletic/5851885/2024/10/17/chicago-fire-owner-soccer-stadium/
-
-**Groups That Run N.Y.C. Shelters Are Riddled With Problems, Report Finds**\
-`An extensive review by New York City’s Department of Investigation identified hundreds of issues, including financial mismanagement, nepotism and conflicts of interest.`\
-https://nytimes.com/2024/10/17/nyregion/nyc-homeless-shelters.html
-
-**Marvin Preston IV, 80, Dies; Saved the Martha Graham Dance Company**\
-`An expert at rescuing distressed companies, he took over the struggling organization in 2000, leading it through a painful restructuring and a lengthy legal battle.`\
-https://nytimes.com/2024/10/17/arts/dance/marvin-preston-dead.html
-
-**The killing of Sinwar is another blow to Iran.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/sinwar-hamas-death-iran
 

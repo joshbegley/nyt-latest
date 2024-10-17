@@ -1,3 +1,7 @@
+**What Keeps Latino Voting-Rights Activists Up at Night? Disinformation**\
+`Activists say the nefarious material is more widespread, sophisticated and complex than ever.`\
+https://nytimes.com/2024/10/17/us/politics/latino-voters-election-disinformation.html
+
 **Cher, Tyra Banks and Cara Delevingne Toast Burberry**\
 `The British brand hosted a starry cocktail party to celebrate a makeover of its flagship store.`\
 https://nytimes.com/2024/10/17/style/burberry-cher-tyra-banks.html
