@@ -1,3 +1,15 @@
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/10/17/nhl-standings-playoffs-projections-odds/
+
+**Ex-Police Chief of Seoul Cleared of Criminal Negligence Over Crowd Crush**\
+`Kim Kwang-ho, the former head of the Seoul Metropolitan Police Agency, was the most senior official to face criminal charges over the 2022 disaster that killed 159 people.`\
+https://nytimes.com/2024/10/17/world/asia/seoul-police-chief-acquitted-halloween.html
+
+**Shohei Ohtani adds to Dodgers postseason highlight reel with late-game moonshot**\
+`With one swing, Ohtani boosted the Dodgers' lead and protected a bullpen.`\
+https://nytimes.com/athletic/5849330/2024/10/17/dodgers-shohei-ohtani-mlb-nlcs/
+
 **Shohei Ohtani adds to Dodgers postseason highlight reel with late-game moonshot**\
 `With one swing, Ohtani boosted the Dodgers' lead and protected a bullpen.`\
 https://nytimes.com/athletic/5849330/2024/10/17/dogers-shohei-ohtani-mlb-nlcs/
