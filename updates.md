@@ -1,3 +1,11 @@
+**Shohei Ohtani adds to Dodgers postseason highlight reel with late-game moonshot**\
+`With one swing, Ohtani boosted the Dodgers' lead and protected a bullpen.`\
+https://nytimes.com/athletic/5849330/2024/10/17/dogers-shohei-ohtani-mlb-nlcs/
+
+**In Lebanon, We Took Pride in Our Resilience. Not Anymore.**\
+`The Lebanese have held strong through many tragedies. But they are now at the end of their rope.`\
+https://nytimes.com/2024/10/17/opinion/lebanon-israel-gaza-war.html
+
 **Liam Payne of One Direction Dies in Buenos Aires**\
 `The police cordoned off the hotel where the 31-year-old singer of the British band died as fans gathered to mourn him.`\
 https://nytimes.com/video/arts/music/liam-payne-dead-one-direction.html
