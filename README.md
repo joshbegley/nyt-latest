@@ -1,3 +1,7 @@
+**The Bounce: How many playoff teams are in the Southwest division?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5849878/2024/10/17/southwest-division-grizzlies-spurs-rockets-mavericks-pelicans-nba-the-bounce/
+
 **Knicks' new jersey patch to feature Experience Abu Dhabi logo**\
 `The deal between MSG and Experience Abu Dhabi will also include advertising for the company before, during and after Knicks games.`\
 https://nytimes.com/athletic/5850002/2024/10/17/knicks-jersey-patch-experience-abu-dhabi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5849956/2024/10/17/james-rowe-trial-verdict/
 **European Central Bank Cuts Rates Again as Inflation Cools**\
 `Policymakers who set interest rates for the 20 countries that use the euro have lowered rates in back-to-back meetings for the first time since 2011.`\
 https://nytimes.com/2024/10/17/business/ecb-interest-rate-cut-inflation.html
-
-**A breakdown of Erik Brännström's puck moving and why history is on Elias Pettersson's side**\
-`Plus Carson Soucy's sluggish start and his role in stabilizing the Canucks' bottom four.`\
-https://nytimes.com/athletic/5849564/2024/10/17/canucks-erik-brannstrom-elias-pettersson/
 
