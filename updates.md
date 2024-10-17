@@ -1,3 +1,11 @@
+**Mitzi Gaynor, Leading Lady of Movie Musicals, Is Dead at 93**\
+`She was best known for starring in the 1958 screen version of “South Pacific.” But her Hollywood career was brief, and she soon shifted her focus to Las Vegas and TV.`\
+https://nytimes.com/2024/10/17/movies/mitzi-gaynor-dead.html
+
+**Paqueta asks FA to investigate alleged leaks from betting case**\
+`Lucas Paqueta has called for the Football Association (FA) to launch a &#8220;thorough investigation&#8221; into the disclosure of what he claims to be &#8220;false&#8221; information regarding his ongoing case on alleged breaches of betting rules.`\
+https://nytimes.com/athletic/5850696/2024/10/17/lucas-paqueta-fa-investigation/
+
 **For the families of hostages, a moment of satisfaction and fear.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/for-the-families-of-hostages-a-moment-of-satisfaction-and-fear
