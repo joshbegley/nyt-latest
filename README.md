@@ -1,3 +1,11 @@
+**City set to appoint Sjogran as women’s director of football**\
+`Manchester City are set to appoint Therese Sjogran as their new women’s director of football.`\
+https://nytimes.com/athletic/5849827/2024/10/17/man-city-women-therese-sjogran/
+
+**Ex-Chesterfield manager James Rowe found not guilty of sexual assault**\
+`Former Chesterfield manager James Rowe has been found not guilty of sexual assault in a trial lasting seven days at Derby Crown Court.`\
+https://nytimes.com/athletic/5849956/2024/10/17/james-rowe-trial-verdict/
+
 **European Central Bank Cuts Rates Again as Inflation Cools**\
 `Policymakers who set interest rates for the 20 countries that use the euro have lowered rates in back-to-back meetings for the first time since 2011.`\
 https://nytimes.com/2024/10/17/business/ecb-interest-rate-cut-inflation.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/17/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Harris, Walz and Clinton Fan Out in 2 Battlegrounds**\
 `Kamala Harris was headed to Wisconsin, while Tim Walz and Bill Clinton were set to campaign together in North Carolina. Donald J. Trump will speak at a charity dinner in Manhattan.`\
 https://nytimes.com/live/2024/10/17/us/harris-trump-election
-
-**Inside Eidevall's Arsenal exit: Tension over style, farewell speech and succession planning**\
-`Jonas Eidevall's exit came quickly but was not a huge surprise. This is the story of his final few days in charge`\
-https://nytimes.com/athletic/5849520/2024/10/17/jonas-inside-arsenal-exit-inside/
-
-**Mauricio Pochettino's USMNT project will be judged in 2026 - ignore early stutters, for now**\
-`What transpires in 2026 will be how his success in the role will be determined — the 'golden generation' have to step up`\
-https://nytimes.com/athletic/5848085/2024/10/17/mauricio-pochettino-usmnt-world-cup-2026/
 
