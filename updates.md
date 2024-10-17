@@ -1,3 +1,11 @@
+**Shohei Ohtani's blast helps Dodgers take 2-1 NLCS lead over Mets: Takeaways**\
+`NEW YORK — Shohei Ohtani hit his second postseason home run to give the Los Angeles Dodgers three late insurance runs in the 8-0 victory to give the Dodgers a 2-1 lead in the National League Championship Series.`\
+https://nytimes.com/athletic/5849108/2024/10/16/dodgers-mets-shohei-ohtani-nlcs/
+
+**Ionescu's buzzer beater gives Liberty WNBA Finals edge over Lynx**\
+`Breanna Stewart led both teams with 30 points and 11 rebounds and Ionescu added 13 points.`\
+https://nytimes.com/athletic/5848703/2024/10/16/lynx-liberty-wnba-finals-game-3-result/
+
 **Archdiocese of Los Angeles Agrees to Pay $880 Million to Settle Sex Abuse Claims**\
 `The settlement brings the archdiocese’s cumulative payout in sex abuse lawsuits to more than $1.5 billion.`\
 https://nytimes.com/2024/10/16/us/archidiocese-los-angeles-abuse-settlement.html
