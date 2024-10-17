@@ -1,3 +1,7 @@
+**Ohtani, Kiké Hernández do it again: Dodgers teammates in awe of their amazing October feats**\
+`Ohtani and Hernández are having a heck of a postseason. Let's break down how great they've been.`\
+https://nytimes.com/athletic/5849907/2024/10/17/shohei-ohtani-kike-hernandez-dodgers-nlcs-game-3/
+
 **The Bounce: How many playoff teams are in the Southwest division?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5849878/2024/10/17/southwest-division-grizzlies-spurs-rockets-mavericks-pelicans-nba-the-bounce/
