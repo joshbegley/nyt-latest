@@ -1,3 +1,11 @@
+**Postecoglou hopeful of Son, Richarlison returns for West Ham**\
+`Ange Postecoglou says Tottenham Hotspur captain Son Heung-Min will &#8220;hopefully&#8221; be available for their game against West Ham United on Saturday lunchtime.`\
+https://nytimes.com/athletic/5849724/2024/10/17/son-heung-min-richarlison-injury-tottenham/
+
+**Dansby Swanson's second-half surge with Cubs brings optimism for 2025**\
+`If the shortstop Jed Hoyer decided to invest so much into can be more consistent in 2025, it should bode well for the Cubs' overall chances.`\
+https://nytimes.com/athletic/5848166/2024/10/17/cubs-dansby-swanson-second-half-surge-optimism/
+
 **What's going on with Alabama and Tennessee? Coaches who faced them weigh in**\
 `The Third Saturday in October rivalry is back, though both teams haven't played their best of late. What does it mean for Saturday?`\
 https://nytimes.com/athletic/5847923/2024/10/17/alabama-tennessee-football-sec-coaches/
