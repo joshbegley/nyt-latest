@@ -1,3 +1,7 @@
+**For the families of hostages, a moment of satisfaction and fear.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/for-the-families-of-hostages-a-moment-of-satisfaction-and-fear
+
 **Yahya Sinwar, Leader of Hamas in Gaza, Is Dead**\
 `Mr. Sinwar climbed the ranks of the Palestinian militant group to plot the deadliest attack on Israel in its history.`\
 https://nytimes.com/2024/10/17/world/middleeast/yahya-sinwar-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5845492/2024/10/17/nfl-week-7-fantasy-football-bett
 **Prosecutors Argue Sean Combs Can’t ‘Pay His Way Out of Detention’**\
 `In a new filing, the government said the music mogul, who has proposed a sizable bail package as part of his bid to be released, should remain incarcerated.`\
 https://nytimes.com/2024/10/17/arts/music/sean-combs-diddy-bail-appeal-private-security.html
-
-**Real Madrid, Trent Alexander-Arnold and the methods of a 'market opportunity' signing**\
-`The Liverpool right-back's contract is due to expire next summer and Madrid have made him their priority target. What might come next?`\
-https://nytimes.com/athletic/5850290/2024/10/17/real-madrid-trent-alexander-arnold-liverpool-transfer-contract/
 

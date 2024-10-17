@@ -1,3 +1,7 @@
+**For the families of hostages, a moment of satisfaction and fear.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/for-the-families-of-hostages-a-moment-of-satisfaction-and-fear
+
 **Yahya Sinwar, Leader of Hamas in Gaza, Is Dead**\
 `Mr. Sinwar climbed the ranks of the Palestinian militant group to plot the deadliest attack on Israel in its history.`\
 https://nytimes.com/2024/10/17/world/middleeast/yahya-sinwar-dead.html
