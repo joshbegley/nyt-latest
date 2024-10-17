@@ -1,3 +1,11 @@
+**Father and Son Indicted on Murder Charges for Georgia School Shooting**\
+`A grand jury handed up charges against Colt Gray, 14, who is accused of killing four people at his high school. His father, Colin Gray, is accused of giving him access to the murder weapon.`\
+https://nytimes.com/2024/10/17/us/georgia-school-shooting-indictment.html
+
+**Friday Briefing: The Leader of Hamas is Dead**\
+`Plus, an interview with Hugh Grant.`\
+https://nytimes.com/2024/10/17/briefing/sinwar-killed-polling-bangladesh-secret-prison.html
+
 **Yahya Sinwar, Hamas Leader, Was Killed, Israel Confirms**\
 `Yahya Sinwar has been the No. 1 target for Israel since the beginning of the war in Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009766865/hamas-gaza-yahya-sinwar-killed-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/nyregion/newark-airport-airtrain-renovation.html
 **Sam Brown, Republican Candidate for Senate in Nevada, Struggles for Traction**\
 `Mr. Brown, who has never held elected office, has found himself outpaced by Senator Jacky Rosen, the low-key and well-financed Democratic incumbent. A debate Thursday night presents a key test.`\
 https://nytimes.com/2024/10/17/us/politics/jacky-rosen-sam-brown-nevada-senate.html
-
-**Adam Abeshouse, Prolific Producer of Classical Music, Dies at 63**\
-`A trained violinist, he found his calling in the studio control room. He also started a foundation to help fund recordings that lack major-label support.`\
-https://nytimes.com/2024/10/17/arts/music/adam-abeshouse-dead.html
-
-**Raiders ready to move on, grateful for closure following Davante Adams' trade to Jets**\
-`Adams said he felt "helpless" in the Raiders offense. Las Vegas OC Luke Getsy “didn’t know the answer” to why it turned out that way.`\
-https://nytimes.com/athletic/5851385/2024/10/17/raiders-reaction-davante-adams-trade-jets/
 
