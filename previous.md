@@ -1,3 +1,7 @@
+**Pogba: I'd give up money to continue Juve career**\
+`Paul Pogba has said he would be &#8220;willing to give up money&#8221; to continue his career at Juventus.`\
+https://nytimes.com/athletic/5849626/2024/10/17/paul-pogba-juventus-return/
+
 **‘I Cannot Believe He Is Gone’: Pop World Reacts to Liam Payne’s Death**\
 `Hours after news broke that Payne had fallen from a hotel balcony in Buenos Aires, his fans and collaborators shared their shock and grief.`\
 https://nytimes.com/2024/10/17/arts/music/liam-payne-one-direction-death-reactions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/learning/once-upon-a-time.html
 **A Pioneer in Metal Furniture Gets a New Exhibition**\
 `Plus: a seaside hotel in France, a book celebrating Atelier Vime and more recommendations from T Magazine.`\
 https://nytimes.com/2024/10/17/t-magazine/maria-pergay-demisch-danant-exhibition.html
-
-**Heading North to Find a Hudson Valley Home for $500,000. But Which One?**\
-`Wishing to be closer to their children and grandchildren, a couple left Philadelphia to check out townhouse communities in Dutchess County. Here’s what they found.`\
-https://nytimes.com/interactive/2024/10/17/realestate/new-york-hudson-valley-home-sale.html
 

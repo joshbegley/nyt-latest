@@ -1,3 +1,7 @@
+**Pogba: I'd give up money to continue Juve career**\
+`Paul Pogba has said he would be &#8220;willing to give up money&#8221; to continue his career at Juventus.`\
+https://nytimes.com/athletic/5849626/2024/10/17/paul-pogba-juventus-return/
+
 **‘I Cannot Believe He Is Gone’: Pop World Reacts to Liam Payne’s Death**\
 `Hours after news broke that Payne had fallen from a hotel balcony in Buenos Aires, his fans and collaborators shared their shock and grief.`\
 https://nytimes.com/2024/10/17/arts/music/liam-payne-one-direction-death-reactions.html
