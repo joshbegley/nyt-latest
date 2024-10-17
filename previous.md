@@ -1,4 +1,12 @@
-**Israel is Assessing Whether Slain Militant is Hamas Leader Yahya Sinwar**\
+**Sadie Sink to Star in Broadway Play Inspired by ‘Crucible’ and #MeToo**\
+`Kimberly Belflower’s “John Proctor Is the Villain” will be directed by Danya Taymor, who won a Tony this year for “The Outsiders.”`\
+https://nytimes.com/2024/10/17/theater/sadie-sink-john-proctor-broadway.html
+
+**Man Utd officials meet fan protest group for first time**\
+`Senior Manchester United officials met members of The 1958 fan protest group for the first time at Old Trafford this week.`\
+https://nytimes.com/athletic/5850072/2024/10/17/manchester-united-fans-1958/
+
+**Israel is assessing whether a slain militant is the Hamas leader Yahya Sinwar.**\
 `Israel will conduct DNA tests on the body of a militant shot and killed on Wednesday in southern Gaza, officials said. The body bears physical similarities with Yahya Sinwar, the leader of Hamas.`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/israel-is-assessing-whether-slain-militant-is-hamas-leader-yahya-sinwar
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/business/dealbook/trump-trade-stocks-crypto.html
 **F1 United States GP circuit breakdown: COTA borrows from the greats to challenge drivers**\
 `The hilly Circuit of the Americas is a marquee venue on the 2024 F1 calendar, with a few minor changes this year.`\
 https://nytimes.com/athletic/5848043/2024/10/17/f1-united-states-gp-track-breakdown-austin-cota/
-
-**Zelensky Tries to Sell His ‘Victory Plan’ to European Leaders**\
-`President Volodymyr Zelensky of Ukraine made an urgent plea in Brussels, though it’s unclear to what extent the officials gathered there will go along with it.`\
-https://nytimes.com/2024/10/17/world/europe/zelensky-eu-victory-plan.html
-
-**Chiney Ogwumike signs 4-year extension with ESPN to remain as basketball analyst and host**\
-`Ogwumike is the rare ESPN talent with assignments in women's basketball and the NBA.`\
-https://nytimes.com/athletic/5846303/2024/10/17/chiney-ogwumike-espn-basketball/
 

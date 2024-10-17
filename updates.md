@@ -1,3 +1,15 @@
+**Sadie Sink to Star in Broadway Play Inspired by ‘Crucible’ and #MeToo**\
+`Kimberly Belflower’s “John Proctor Is the Villain” will be directed by Danya Taymor, who won a Tony this year for “The Outsiders.”`\
+https://nytimes.com/2024/10/17/theater/sadie-sink-john-proctor-broadway.html
+
+**Man Utd officials meet fan protest group for first time**\
+`Senior Manchester United officials met members of The 1958 fan protest group for the first time at Old Trafford this week.`\
+https://nytimes.com/athletic/5850072/2024/10/17/manchester-united-fans-1958/
+
+**Israel is assessing whether a slain militant is the Hamas leader Yahya Sinwar.**\
+`Israel will conduct DNA tests on the body of a militant shot and killed on Wednesday in southern Gaza, officials said. The body bears physical similarities with Yahya Sinwar, the leader of Hamas.`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/israel-is-assessing-whether-slain-militant-is-hamas-leader-yahya-sinwar
+
 **Israel is Assessing Whether Slain Militant is Hamas Leader Yahya Sinwar**\
 `Israel will conduct DNA tests on the body of a militant shot and killed on Wednesday in southern Gaza, officials said. The body bears physical similarities with Yahya Sinwar, the leader of Hamas.`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/israel-is-assessing-whether-slain-militant-is-hamas-leader-yahya-sinwar
