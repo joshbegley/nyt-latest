@@ -1,3 +1,11 @@
+**FPL: The international break injury doubts to be aware of for Gameweek 8**\
+`The week after an international break should always be approached with caution when it comes to Fantasy Premier League`\
+https://nytimes.com/athletic/5843154/2024/10/17/fantasy-premier-league-international-injuries-saka-havertz/
+
+**Are Liverpool and Chelsea about to revive an historic rivalry?**\
+`There is never any love lost when Liverpool meet Chelsea - will a row over attendance for scouts give it a greater edge again?`\
+https://nytimes.com/athletic/5846970/2024/10/17/liverpool-chelsea-rivalry-scouting/
+
 **How United's internationals performed in the October break: Eriksen 'hungry', De Ligt out of favour**\
 `Of the 12 United players who departed on international duty this month, seven featured for at least part of both games with their country`\
 https://nytimes.com/athletic/5842020/2024/10/17/manchester-united-international-break-players-report/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/briefing/harris-trump-fox-israel-lebanon.html
 **What the Premier League table does (and does not) tell us about each club**\
 `Are your club roughly where they should be in the table? Have injuries been an issue? Have they been unlucky? Our writers take a look...`\
 https://nytimes.com/athletic/5833243/2024/10/17/premier-league-table-latest/
-
-**Inside Man City's behind the scenes changes - and what they mean for Guardiola's future**\
-`There have been changes behind the scenes at Manchester City during the October international break`\
-https://nytimes.com/athletic/5846804/2024/10/17/manchester-city-behind-the-scenes-pep-guardiola/
-
-**Lucy Bronze: My game in my words**\
-`Lucy Bronze on being a No 6 for Man City, Phil Neville's controversial plan, and how the WSL has changed while she was at Barcelona`\
-https://nytimes.com/athletic/5846022/2024/10/17/lucy-bronze-my-game-in-my-words/
 
