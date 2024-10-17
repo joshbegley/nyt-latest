@@ -1,3 +1,15 @@
+**The Exploitation of Liam Payne**\
+`The band he helped build will surely be remembered for the way its devoted audience became the architects of contemporary fandom.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/liam-payne-death-career
+
+**Arie Kopelman, Former President of Chanel Inc., Dies at 86**\
+`Arriving at the storied luxury house two years after Karl Lagerfeld, he helped guide a boom in both products and revenues.`\
+https://nytimes.com/2024/10/17/fashion/arie-kopelman-dead.html
+
+**Harris Says Hamas Leader’s Killing Offers Chance to End Gaza War**\
+`“It is time for the day after to begin without Hamas in power,” the vice president said after the Israeli military confirmed that Yahya Sinwar, the leader of the militant group, had been killed.`\
+https://nytimes.com/2024/10/17/us/politics/harris-yahya-sinwar-hamas-israel-gaza.html
+
 **In Northern Gaza, Hunger Looms Over Daily Existence**\
 `Families say they are rationing what little food they can find while living under the constant threat of Israeli bombardment.`\
 https://nytimes.com/2024/10/17/world/middleeast/gaza-hunger-war-israel.html
