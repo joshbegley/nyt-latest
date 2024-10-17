@@ -1,3 +1,7 @@
+**Mets' struggles with bottom of Dodgers' lineup key to 2-1 NLCS deficit**\
+`Los Angeles’ seventh through ninth hitters have carried its offense against New York, and now own a 2-1 series lead.`\
+https://nytimes.com/athletic/5849392/2024/10/17/new-york-mets-nlcs-struggles/
+
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/10/17/nhl-standings-playoffs-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5842020/2024/10/17/manchester-united-international-
 **Arsenal's road to 2,000 top-flight wins - the history and the memories**\
 `We look at how Arsenal are on the brink of their 2,000th top-flight win`\
 https://nytimes.com/athletic/5836380/2024/10/17/arsenals-road-to-2000-top-flight-wins-the-history-and-the-memories/
-
-**Reach Barcelona - or die trying: The hope and abandon behind a famous rallying cry**\
-`'Barca ou Barzakh' was the phrase uttered by two Senegalese immigrants who are now making positive change in Spain`\
-https://nytimes.com/athletic/5847057/2024/10/17/barcelona-immigration-manteros-canary-islands/
 

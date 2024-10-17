@@ -1,3 +1,7 @@
+**Mets' struggles with bottom of Dodgers' lineup key to 2-1 NLCS deficit**\
+`Los Angeles’ seventh through ninth hitters have carried its offense against New York, and now own a 2-1 series lead.`\
+https://nytimes.com/athletic/5849392/2024/10/17/new-york-mets-nlcs-struggles/
+
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/10/17/nhl-standings-playoffs-projections-odds/
