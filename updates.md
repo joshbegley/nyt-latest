@@ -1,3 +1,7 @@
+**In Rambling Interview, Trump Blames Zelensky, Not Putin, for Ukraine War**\
+`The war began when Russia invaded Ukraine, but Donald J. Trump said on a podcast that the Ukrainian president “should never have let that war start.”`\
+https://nytimes.com/2024/10/17/us/politics/trump-zelensky-putin-ukraine-war.html
+
 **The U.S. military did not aid the Israeli operation that killed Sinwar, the Pentagon said.**\
 `By John Ismay and Eric Schmitt`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/the-us-military-did-not-aid-the-israeli-operation-that-killed-sinwar-the-pentagon-said
