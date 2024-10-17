@@ -1,3 +1,11 @@
+**Levine Leichtman family complete purchase of San Diego Wave**\
+`Former owner Ron Burkle agreed to sell the club to the Levine Leichtman family in March at a cash outlay of $113 million.`\
+https://nytimes.com/athletic/5849002/2024/10/17/san-diego-wave-sale-levine-leichtman-family/
+
+**It’s Fall. Do You Know Where Your Squash Is?**\
+`Put that kabocha, spaghetti, butternut and honey nut to good use in hearty salads, cozy pastas and a very photogenic galette.`\
+https://nytimes.com/2024/10/17/dining/squash-recipes-fall.html
+
 **Using Tax Cuts and Near-Assassination to Show Trump as a Fighter for Workers**\
 `A pro-Trump super PAC shows Donald Trump’s “Fight! Fight!” response in Butler, Pa., to portray him as a champion for blue-collar Americans.`\
 https://nytimes.com/2024/10/17/us/politics/trump-blue-collar-voters.html
