@@ -1,3 +1,15 @@
+**A breakdown of Erik Brännström's puck moving and why history is on Elias Pettersson's side**\
+`Plus Carson Soucy's sluggish start and his role in stabilizing the Canucks' bottom four.`\
+https://nytimes.com/athletic/5849564/2024/10/17/canucks-erik-brannstrom-elias-pettersson/
+
+**Is the Trump Trade Back?**\
+`Market observers see signs that investors increasingly believe Donald Trump will win the election, but there may be alternate explanations for a shift in sentiment.`\
+https://nytimes.com/2024/10/17/business/dealbook/trump-trade-stocks-crypto.html
+
+**F1 United States GP circuit breakdown: COTA borrows from the greats to challenge drivers**\
+`The hilly Circuit of the Americas is a marquee venue on the 2024 F1 calendar, with a few minor changes this year.`\
+https://nytimes.com/athletic/5848043/2024/10/17/f1-united-states-gp-track-breakdown-austin-cota/
+
 **Zelensky Tries to Sell His ‘Victory Plan’ to European Leaders**\
 `President Volodymyr Zelensky of Ukraine made an urgent plea in Brussels, though it’s unclear to what extent the officials gathered there will go along with it.`\
 https://nytimes.com/2024/10/17/world/europe/zelensky-eu-victory-plan.html

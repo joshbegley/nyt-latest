@@ -1,3 +1,7 @@
+**European Central Bank Cuts Rates Again as Inflation Cools**\
+`Policymakers who set interest rates for the 20 countries that use the euro have lowered rates in back-to-back meetings for the first time since 2011.`\
+https://nytimes.com/2024/10/17/business/ecb-interest-rate-cut-inflation.html
+
 **A breakdown of Erik Brännström's puck moving and why history is on Elias Pettersson's side**\
 `Plus Carson Soucy's sluggish start and his role in stabilizing the Canucks' bottom four.`\
 https://nytimes.com/athletic/5849564/2024/10/17/canucks-erik-brannstrom-elias-pettersson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5849520/2024/10/17/jonas-inside-arsenal-exit-inside
 **Mauricio Pochettino's USMNT project will be judged in 2026 - ignore early stutters, for now**\
 `What transpires in 2026 will be how his success in the role will be determined — the 'golden generation' have to step up`\
 https://nytimes.com/athletic/5848085/2024/10/17/mauricio-pochettino-usmnt-world-cup-2026/
-
-**Review Panel Calls for Overhaul of Secret Service Leadership**\
-`The findings of a review of the attempted assassination of Donald J. Trump in July are stark but familiar, underscoring the challenge of overhauling the agency.`\
-https://nytimes.com/2024/10/17/us/politics/secret-service-homeland-security-trump.html
 
