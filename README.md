@@ -1,3 +1,7 @@
+**College football Week 8 model-projected point differentials and totals for every game**\
+`Austin Mock's model has predicted point differentials and point totals for every FBS vs. FBS Week 8 college football game.`\
+https://nytimes.com/athletic/5851139/2024/10/17/college-football-week-8-model-projections-predicted-scores/
+
 **Amazon Enters News With Live Election Coverage From Brian Williams**\
 `The tech giant has been increasing live programming on its streaming service, but this will be its first test with news.`\
 https://nytimes.com/2024/10/17/business/media/amazon-brian-williams-election-special.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5850696/2024/10/17/lucas-paqueta-fa-investigation/
 **For the families of hostages, a moment of satisfaction and fear.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/for-the-families-of-hostages-a-moment-of-satisfaction-and-fear
-
-**Yahya Sinwar, Leader of Hamas, Is Dead**\
-`Mr. Sinwar climbed the ranks of the Palestinian militant group to plot the deadliest attack on Israel in its history.`\
-https://nytimes.com/2024/10/17/world/middleeast/yahya-sinwar-dead.html
 
