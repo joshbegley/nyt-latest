@@ -1,3 +1,11 @@
+**Using Tax Cuts and Near-Assassination to Show Trump as a Fighter for Workers**\
+`A pro-Trump super PAC shows Donald Trump’s “Fight! Fight!” response in Butler, Pa., to portray him as a champion for blue-collar Americans.`\
+https://nytimes.com/2024/10/17/us/politics/trump-blue-collar-voters.html
+
+**Shoppers Spend More Freely Than Expected, Sign of Solid U.S. Economy**\
+`A new report showing a rise in retail sales in September indicates that consumer spending, a key engine of economic growth, remains robust.`\
+https://nytimes.com/2024/10/17/business/retail-sales-economy.html
+
 **NFL Week 7 fantasy football, betting cheat sheet: Saints without Chris Olave, Rashid Shaheed**\
 `How will Spencer Rattler and the Saints fare against the Broncos without Chris Olave and Rashid Shaheed? `\
 https://nytimes.com/athletic/5845492/2024/10/17/nfl-week-7-fantasy-football-betting-cheat-sheet-chris-olave-rashid-shaheed-out-for-saints/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5850758/2024/10/17/brentford-wissa-injury-return-ma
 **The U.K. Will Debate Legalizing Assisted Dying. Here’s What to Know.**\
 `A bill introduced in the House of Commons could legalize assisted dying for the terminally ill, under strict conditions. A similar proposal was rejected in 2015.`\
 https://nytimes.com/2024/10/17/world/europe/uk-assisted-suicide-parliament.html
-
-**Steelers' Fields candid about performance: 'Don't think I played good enough'**\
-`"If I did play well enough, I don’t think there would be any sort of (question) who should be playing, who should not," Fields said.`\
-https://nytimes.com/athletic/5850762/2024/10/17/justin-fields-steelers-qb-russell-wilson/
-
-**U.S. Wrestles With Aiding Allies and Maintaining Its Own Weapons Supply**\
-`Pentagon officials discuss whether the flow of assistance could be hurting the military’s ability to respond to a new conflict.`\
-https://nytimes.com/2024/10/17/us/politics/us-weapons-israel-ukraine.html
 
