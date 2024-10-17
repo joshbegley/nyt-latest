@@ -1,3 +1,7 @@
+**The N.R.A. Again Cuts Back on Top Grades for Congressional Candidates**\
+`The group’s latest ratings show a decline in top marks for the seventh straight election cycle, suggesting its influence is waning.`\
+https://nytimes.com/2024/10/17/us/politics/nra-ratings-election.html
+
 **Could Chargers reunite with Mike Williams? Why it might make sense**\
 `The Chargers have struggled in the passing attack and need more receiving depth. Could Herbert's former favorite target be the answer?`\
 https://nytimes.com/athletic/5851248/2024/10/17/chargers-mike-williams-reunion-trade-jets/
