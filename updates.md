@@ -1,3 +1,11 @@
+**Bob Yerkes, Bruised but Durable Hollywood Stuntman, Dies at 92**\
+`A body double to the stars into his 80s, he performed sometimes bone-breaking feats of derring-do in movies like “Return of the Jedi” and “Back to the Future.”`\
+https://nytimes.com/2024/10/17/movies/bob-yerkes-dead.html
+
+**Sinwar Evaded Israeli Intelligence for Years. Trainee Soldiers Found Him.**\
+`A unit from the Israeli military encountered Yahya Sinwar, the leader of Hamas, while on an operation in southern Gaza, Israeli defense officials said.`\
+https://nytimes.com/2024/10/17/world/middleeast/sinwar-israeli-intelligence.html
+
 **Sinwar Evaded Israeli Intelligence for Years. Trainee Officers Found Him.**\
 `A unit from the Israeli military encountered Yahya Sinwar, the leader of Hamas, while on an operation in southern Gaza, Israeli defense officials said.`\
 https://nytimes.com/2024/10/17/world/middleeast/sinwar-evaded-israeli-intelligence-for-years-trainee-soldiers-found-him.html
