@@ -1,3 +1,11 @@
+**Father and Son Indicted on Murder Charges for Georgia School Shooting**\
+`A grand jury handed up charges against Colt Gray, 14, who is accused of killing four people at his high school. His father, Colin Gray, is accused of giving him access to the murder weapon.`\
+https://nytimes.com/2024/10/17/us/georgia-school-shooting-indictment.html
+
+**Friday Briefing: The Leader of Hamas is Dead**\
+`Plus, an interview with Hugh Grant.`\
+https://nytimes.com/2024/10/17/briefing/sinwar-killed-polling-bangladesh-secret-prison.html
+
 **Yahya Sinwar, Hamas Leader, Was Killed, Israel Confirms**\
 `Yahya Sinwar has been the No. 1 target for Israel since the beginning of the war in Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009766865/hamas-gaza-yahya-sinwar-killed-israel.html

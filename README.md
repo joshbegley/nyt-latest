@@ -27,7 +27,7 @@ https://nytimes.com/2024/10/17/books/review/new-books-recommendations.html
 https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-latino-haitian-language
 
 **Browns to pursue new domed stadium in Brook Park, Ohio**\
-`Cleveland mayor Justin Bibb called the Haslam's decision "profoundly disheartening."`\
+`Cleveland mayor Justin Bibb called the Haslams' decision "profoundly disheartening."`\
 https://nytimes.com/athletic/5851407/2024/10/17/cleveland-browns-stadium-move/
 
 **A New Plan to Transform Newark Airport ‘From Worst to Best’**\
