@@ -1,3 +1,15 @@
+**Nebraska at Indiana: Underdog Huskers see opportunity against undefeated Hoosiers**\
+`Nebraska has lost 25 games in a row against AP-ranked opponents, dating to 2016. It’s 1-15 on the road in Big Ten play against ranked teams.`\
+https://nytimes.com/athletic/5848050/2024/10/17/nebraska-football-indiana-matchup-preview/
+
+**Chiefs are undefeated, but red zone failures are holding back the offense**\
+`The Chiefs have no problems moving the ball, but in 18 trips inside the red zone, they have scored only seven touchdowns.`\
+https://nytimes.com/athletic/5848626/2024/10/17/chiefs-patrick-mahomes-red-zone-offense/
+
+**Shane Waldron got off to a shaky start but skipped no steps in turning around Bears offense**\
+`Waldron is open about the fact that conversations with Caleb Williams and other offensive leaders helped spark the Bears offense.`\
+https://nytimes.com/athletic/5847850/2024/10/17/bears-shane-waldron-offense/
+
 **The story behind the Vikings’ 5-0 start: Between chemistry and scheme, it's just 'different'**\
 `The undefeated Vikings are an amalgamation of creative coaching, versatile on-field talent and good vibes. Can they keep it rolling?`\
 https://nytimes.com/athletic/5847614/2024/10/17/minnesota-vikings-undefeated-chemistry-kevin-oconnell/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5848815/2024/10/17/ricky-pearson-49ers-practice/
 **In-season WR trades usually flop. Here's why Davante Adams, Amari Cooper could be different**\
 `Wide receiver trades during the season rarely work out, but rarely do players of Adams' and Cooper's pedigree get dealt in October.`\
 https://nytimes.com/athletic/5841528/2024/10/17/davante-adams-amari-cooper-trade-history/
-
-**19 Days to Go: Early Voting, Dance Parties and Third Parties**\
-`This week on the campaign trail, Donald Trump displayed bizarre town hall behavior, Kamala Harris pursued a strategy aimed at Black men, and the first wave of early voting offered a look at the energy of the electorate.`\
-https://nytimes.com/video/podcasts/the-daily/100000009764006/early-voting-2024-election.html
-
-**Growing trust: Evason's clean slate leads Kent Johnson to big role on penalty kill**\
-`Playmaking winger Kent Johnson earned his PK role after a strong showing in the preseason.`\
-https://nytimes.com/athletic/5848954/2024/10/17/blue-jackets-kent-johnson-penalty-kill/
-
-**Dane Brugler's NFL Draft watch: Have top-ranked prospects met expectations?**\
-`We revisit our preseason 2025 NFL Draft board to see how the top player at each position has performed so far this season.`\
-https://nytimes.com/athletic/5847273/2024/10/17/nfl-draft-2025-rankings-carson-beck/
 
