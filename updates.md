@@ -1,3 +1,7 @@
+**6 Takeaways From Harris’s Contentious Interview on Fox News**\
+`Pressed and often interrupted by Bret Baier, the vice president opened up a little more distance from President Biden and defended her position on immigration and border security.`\
+https://nytimes.com/2024/10/16/us/politics/kamala-harris-fox-news-interview.html
+
 **Ionescu's buzzer-beating 3 gives Liberty 2-1 WNBA Finals edge over Lynx**\
 `Breanna Stewart led both teams with 30 points and 11 rebounds and Ionescu added 13 points.`\
 https://nytimes.com/athletic/5848703/2024/10/16/lynx-liberty-wnba-finals-game-3-result/

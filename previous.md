@@ -34,7 +34,7 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/kamala-harris-fox-news-inte
 `The settlement is the highest single payout by an archdiocese, experts said, and brings Los Angeles’s cumulative payout in sex abuse lawsuits to more than $1.5 billion.`\
 https://nytimes.com/2024/10/16/us/archidiocese-los-angeles-abuse-settlement.html
 
-**6 Takeaways From Harris’s Combative Interview on Fox News**\
+**6 Takeaways From Harris’s Contentious Interview on Fox News**\
 `Pressed and often interrupted by Bret Baier, the vice president opened up a little more distance from President Biden and defended her position on immigration and border security.`\
 https://nytimes.com/2024/10/16/us/politics/kamala-harris-fox-news-interview.html
 
