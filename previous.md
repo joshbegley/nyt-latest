@@ -1,3 +1,7 @@
+**Thunder to begin season without Hartenstein after hand fracture**\
+`The 26-year-old suffered the injury during the second half of Tuesday's exhibition against the Denver Nuggets.`\
+https://nytimes.com/athletic/5850412/2024/10/17/thunder-isaiah-hartenstein-hand-injury/
+
 **An Israeli airstrike on a school in Gaza kills at least 24 people.**\
 `By Liam Stack and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/an-israeli-airstrike-on-a-school-in-gaza-kills-at-least-24-people
@@ -14,7 +18,7 @@ https://nytimes.com/2024/10/17/world/asia/fan-bingbing-movie-star-returns.html
 `It'll cost around $750 to attend the 2025 Ryder Cup at Bethpage Black in New York, another sign they don't care about normal golf fans.`\
 https://nytimes.com/athletic/5850366/2024/10/17/ryder-cup-ticket-prices-golf-bethpage-black-2025/
 
-**Universal Epic Orlando Theme Park Will Open in May**\
+**Universal’s Epic Orlando Theme Park Will Open in May**\
 `Initial ticket packages for the new area of Universal Orlando Resort, the first new Florida theme park in a generation, will cost as much as $521.`\
 https://nytimes.com/2024/10/17/business/media/universal-epic-universe-opening-date.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5850158/2024/10/17/paris-fc-takeover-arnault-red-bu
 **76ers' McCain hospitalized after 'rough' fall in Wednesday game**\
 `McCain, the No. 16 pick in April's draft, could be heard coughing and was seen clutching his chest as trainers attended to him.`\
 https://nytimes.com/athletic/5850156/2024/10/17/76ers-jared-mccain-concussion-hospitalized/
-
-**Fullkrug still out with calf injury, Lopetegui unsure on return date**\
-`West Ham United forward Niclas Fullkrug remains sidelined with a calf injury.`\
-https://nytimes.com/athletic/5850305/2024/10/17/niclas-fullkrug-injury-return-west-ham/
 

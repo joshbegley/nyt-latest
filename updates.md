@@ -1,3 +1,11 @@
+**Thunder to begin season without Hartenstein after hand fracture**\
+`The 26-year-old suffered the injury during the second half of Tuesday's exhibition against the Denver Nuggets.`\
+https://nytimes.com/athletic/5850412/2024/10/17/thunder-isaiah-hartenstein-hand-injury/
+
+**Universal’s Epic Orlando Theme Park Will Open in May**\
+`Initial ticket packages for the new area of Universal Orlando Resort, the first new Florida theme park in a generation, will cost as much as $521.`\
+https://nytimes.com/2024/10/17/business/media/universal-epic-universe-opening-date.html
+
 **An Israeli airstrike on a school in Gaza kills at least 24 people.**\
 `By Liam Stack and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/an-israeli-airstrike-on-a-school-in-gaza-kills-at-least-24-people
