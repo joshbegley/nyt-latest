@@ -26,13 +26,13 @@ https://nytimes.com/2024/10/16/nyregion/prostitution-brothels-long-island-charge
 `President Biden on Wednesday delivered a eulogy for Ethel Kennedy, the widow of Senator Robert F. Kennedy and mother of the former presidential candidate Robert F. Kennedy Jr.`\
 https://nytimes.com/video/us/100000009766162/biden-ethel-kennedy-eulogy.html
 
-**Harris Makes a Broad Overture to Republican Voters, Citing the Constitution**\
-`Appearing in a competitive suburban area of southeastern Pennsylvania, the vice president tried to strike a unifying tone even as she warned that Donald Trump posed a threat to the country.`\
-https://nytimes.com/2024/10/16/us/politics/harris-republican-voters-pennsylvania.html
-
 **U.N. Security Council Urges Israel to Increase Flow of Aid Into Gaza**\
 `Some of the sharpest criticism about a lack of sufficient assistance in the enclave came from Israel’s allies, including the United States.`\
 https://nytimes.com/2024/10/16/world/middleeast/un-gaza-aid-israel.html
+
+**Harris Makes a Broad Overture to Republican Voters, Citing the Constitution**\
+`Appearing in a competitive suburban area of southeastern Pennsylvania, the vice president tried to strike a unifying tone even as she warned that Donald Trump posed a threat to the country.`\
+https://nytimes.com/2024/10/16/us/politics/harris-republican-voters-pennsylvania.html
 
 **Penguins' Sidney Crosby becomes 10th NHL player with 1,600 points**\
 `Crosby is also creeping up on Mario Lemieux’s Penguins record for points (1,723).`\
