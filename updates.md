@@ -1,3 +1,11 @@
+**‘A Rip-Off’: Students Secure a Final Settlement Against Walden University**\
+`A $28.5 million settlement in a class-action lawsuit against the university helped create a fresh precedent for prosecuting predatory advertising in for-profit education.`\
+https://nytimes.com/2024/10/17/us/politics/walden-university-class-action-settlement.html
+
+**Ian and Noah Eagle to headline Netflix's Christmas Day NFL doubleheader: Sources**\
+`Netflix’s Christmas Day game broadcast will feature a family flair, sources briefed on the crews for the games told The Athletic.`\
+https://nytimes.com/athletic/5851521/2024/10/17/christmas-nfl-broadcast-netflix-noah-ian-eagle/
+
 **Netflix Adds 5 Million Subscriptions in Quarter**\
 `The additions helped lift revenue to $9.8 billion during the period, a 15 percent increase from the same period last year.`\
 https://nytimes.com/2024/10/17/business/media/netflix-quarterly-report.html
