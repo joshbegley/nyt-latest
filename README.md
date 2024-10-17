@@ -1,3 +1,15 @@
+**Netflix Adds 5 Million Subscriptions in Quarter**\
+`The additions helped lift revenue to $9.8 billion during the period, a 15 percent increase from the same period last year.`\
+https://nytimes.com/2024/10/17/business/media/netflix-quarterly-report.html
+
+**It’s Soft Pretzel and Cider Doughnut Season**\
+`Let’s make some peak fall memories.`\
+https://nytimes.com/2024/10/17/dining/its-soft-pretzel-and-cider-doughnut-season.html
+
+**Wild say captain Jared Spurgeon's absence related to surgeries but 'part of the healing process'**\
+`Also, Joel Eriksson Ek returned to practice Thursday, and John Hynes said he expects Eriksson Ek, Johansson and Brodin to play Saturday.`\
+https://nytimes.com/athletic/5851471/2024/10/17/wild-jared-spurgeon-healing-process/
+
 **The N.R.A. Again Cuts Back on Top Grades for Congressional Candidates**\
 `The group’s latest ratings show a decline in top marks for the seventh straight election cycle, suggesting its influence is waning.`\
 https://nytimes.com/2024/10/17/us/politics/nra-ratings-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/17/opinion/ta-nehisi-coates-and-the-myth-of-black-fr
 **Todd McFarlane on sports action figures and his interest in Ohtani's 50th home run ball**\
 `Plus what's holding McFarlane Toys back from making Caitlin Clark action figures `\
 https://nytimes.com/athletic/5850538/2024/10/17/todd-mcfarlane-ohtani-auction-action-figures/
-
-**How Times Readers Made the Switch to Heat Pumps**\
-`Hundreds of Times readers wrote to us and shared their experiences of installing heat pumps, including the good, the bad and the daunting.`\
-https://nytimes.com/2024/10/17/climate/switching-to-a-heat-pump.html
-
-**Trump’s Rambling Speeches Focus His Critics and Worry His Allies**\
-`Some advisers and allies of former President Donald J. Trump are concerned about his scattershot style on the campaign trail as he continues to veer off script.`\
-https://nytimes.com/2024/10/17/us/politics/trump-rally-speeches.html
-
-**Bob Yerkes, Bruised but Durable Hollywood Stuntman, Dies at 92**\
-`A body double to the stars, he performed sometimes bone-breaking feats in movies like “Return of the Jedi” and “Back to the Future.” And he was still at it in his 80s.`\
-https://nytimes.com/2024/10/17/movies/bob-yerkes-dead.html
 
