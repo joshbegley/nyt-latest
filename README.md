@@ -1,3 +1,11 @@
+**TMZ Criticized for Image Said to Be of Liam Payne, One Direction Singer**\
+`After a torrent of criticism, TMZ removed the image without explanation.`\
+https://nytimes.com/2024/10/16/business/media/tmz-liam-payne-body-image.html
+
+**Can Harris Really Build 3 Million New Housing Units?**\
+`By Conor Dougherty and Anna Watts`\
+https://nytimes.com/interactive/2024/10/16/us/elections/kamala-harris-housing-policy.html
+
 **Corrections: Oct. 17, 2024**\
 `Corrections that appeared in print on Thursday, Oct. 17, 2024.`\
 https://nytimes.com/2024/10/16/pageoneplus/corrections-oct-17-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/nyregion/prostitution-brothels-long-island-charge
 **Biden Memorializes Ethel Kennedy in Eulogy**\
 `President Biden on Wednesday delivered a eulogy for Ethel Kennedy, the widow of Senator Robert F. Kennedy and mother of the former presidential candidate Robert F. Kennedy Jr.`\
 https://nytimes.com/video/us/100000009766162/biden-ethel-kennedy-eulogy.html
-
-**U.N. Security Council Urges Israel to Increase Flow of Aid Into Gaza**\
-`Some of the sharpest criticism about a lack of sufficient assistance in the enclave came from Israel’s allies, including the United States.`\
-https://nytimes.com/2024/10/16/world/middleeast/un-gaza-aid-israel.html
-
-**Harris Makes a Broad Overture to Republican Voters, Citing the Constitution**\
-`Appearing in a competitive suburban area of southeastern Pennsylvania, the vice president tried to strike a unifying tone even as she warned that Donald Trump posed a threat to the country.`\
-https://nytimes.com/2024/10/16/us/politics/harris-republican-voters-pennsylvania.html
 
