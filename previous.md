@@ -1,3 +1,7 @@
+**The Windup: Dodgers' relentless roster keeps delivering**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/5850688/2024/10/17/dodgers-mets-mlb-playoffs-the-windup/
+
 **Gazans Are So Malnourished That They Could Face Famine, Report Warns**\
 `A hunger emergency has affected nearly all of Gaza, but the situation is worst for people in the north, where Israeli forces intensified operations this month, the report said.`\
 https://nytimes.com/2024/10/17/world/middleeast/gaza-malnourished-famine-warnings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/world/middleeast/egypt-replaces-spy-chief.html
 **Could Second-Home Owners Swing New York’s Swing Districts?**\
 `A group is pushing thousands of New Yorkers to vote from weekend homes in swing districts. Its pitch: “Your second home could determine the next speaker.”`\
 https://nytimes.com/2024/10/17/nyregion/voting-absentee-residence-ny.html
-
-**Hayes names 26-player USWNT roster for October friendlies**\
-`The U.`\
-https://nytimes.com/athletic/5850525/2024/10/17/uswnt-roster-emma-hayes/
 
