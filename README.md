@@ -1,6 +1,6 @@
 **On Fox News, Harris Proves She’s Tough**\
 `It was a strong contrast to her interview-dodging opponent.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/on-fox-news-harris-proves-shes-tough
+https://nytimes.com/live/2024/10/15/opinion/thepoint/kamala-harris-fox-news-interview
 
 **Archdiocese of Los Angeles Agrees to Pay $880 Million to Settle Sex Abuse Claims**\
 `The settlement brings the archdiocese’s cumulative payout in sex abuse lawsuits to more than $1.5 billion.`\
