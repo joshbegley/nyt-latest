@@ -1,3 +1,7 @@
+**Zelensky Tries to Sell His ‘Victory Plan’ to European Leaders**\
+`President Volodymyr Zelensky of Ukraine made an urgent plea in Brussels, though it’s unclear to what extent the officials gathered there will go along with it.`\
+https://nytimes.com/2024/10/17/world/europe/zelensky-eu-victory-plan.html
+
 **Chiney Ogwumike signs 4-year extension with ESPN to remain as basketball analyst and host**\
 `Ogwumike is the rare ESPN talent with assignments in women's basketball and the NBA.`\
 https://nytimes.com/athletic/5846303/2024/10/17/chiney-ogwumike-espn-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5848624/2024/10/17/49ers-chiefs-dominick-puni-chris
 **Parachutes Made of Mucus Change How Some Scientists See the Ocean**\
 `With a new kind of microscope, researchers got a different view of how marine snow falls to the seafloor.`\
 https://nytimes.com/2024/10/17/science/mucus-parachutes-ocean-marine-snow.html
-
-**Brain Games: Backing Bucky Irving, tinkering with Jakobi Meyers and more Week 7 advice**\
-`Renee Miller strikes a positive note in offering her Week 7 players to consider for your fantasy lineups, including Bucs back Bucky Irving.`\
-https://nytimes.com/athletic/5848785/2024/10/17/brain-games-fantasy-football-week-7-irving-bigsby-meyers/
 
