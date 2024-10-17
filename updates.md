@@ -1,3 +1,15 @@
+**Sperm Can’t Unlock an Egg Without This Ancient Molecular Key**\
+`Using Google’s AlphaFold, researchers identified the bundle of three sperm proteins that seem to make sexual reproduction possible.`\
+https://nytimes.com/2024/10/17/science/sperm-egg-proteins-key.html
+
+**The Great Pumpkin Dumplings**\
+`No fussy rolling or dough cutting required: Just scrape the soft batter into boiling, salted water with a spoon for perfect, pillowy free-form dumplings.`\
+https://nytimes.com/2024/10/17/dining/pumpkin-dumplings.html
+
+**Scoop City: The first rookie QB showdown**\
+`A look at the biggest questions facing Bo Nix and Spencer Rattler, plus insight from Detroit and Pittsburgh as they make major changes.`\
+https://nytimes.com/athletic/5850520/2024/10/17/scoop-city-the-first-rookie-qb-showdown/
+
 **Thunder to begin season without Hartenstein after hand fracture**\
 `The 26-year-old suffered the injury during the second half of Tuesday's exhibition against the Denver Nuggets.`\
 https://nytimes.com/athletic/5850412/2024/10/17/thunder-isaiah-hartenstein-hand-injury/

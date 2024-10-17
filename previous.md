@@ -1,3 +1,15 @@
+**Sperm Can’t Unlock an Egg Without This Ancient Molecular Key**\
+`Using Google’s AlphaFold, researchers identified the bundle of three sperm proteins that seem to make sexual reproduction possible.`\
+https://nytimes.com/2024/10/17/science/sperm-egg-proteins-key.html
+
+**The Great Pumpkin Dumplings**\
+`No fussy rolling or dough cutting required: Just scrape the soft batter into boiling, salted water with a spoon for perfect, pillowy free-form dumplings.`\
+https://nytimes.com/2024/10/17/dining/pumpkin-dumplings.html
+
+**Scoop City: The first rookie QB showdown**\
+`A look at the biggest questions facing Bo Nix and Spencer Rattler, plus insight from Detroit and Pittsburgh as they make major changes.`\
+https://nytimes.com/athletic/5850520/2024/10/17/scoop-city-the-first-rookie-qb-showdown/
+
 **Thunder to begin season without Hartenstein after hand fracture**\
 `The 26-year-old suffered the injury during the second half of Tuesday's exhibition against the Denver Nuggets.`\
 https://nytimes.com/athletic/5850412/2024/10/17/thunder-isaiah-hartenstein-hand-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/17/business/media/universal-epic-universe-opening-da
 **The Jets put Mike Williams on the trade block; the moment that sealed his fate is obvious**\
 `A mistake on Monday night and the arrival of Davante Adams likely spell the end of the receiver's brief Jets tenure.`\
 https://nytimes.com/athletic/5850223/2024/10/17/mike-williams-jets-trade-aaron-rodgers-comments/
-
-**Desiree Scott on retiring after six months of heartbreak: 'You kind of know it's coming'**\
-`The Kansas City Currrent player explains how events of recent months led her to decide that it is the right time to hang up her boots`\
-https://nytimes.com/athletic/5849637/2024/10/17/desiree-scott-retirement-kansas-city/
-
-**France's richest man Arnault and Red Bull in exclusive negotiations to buy Paris FC**\
-`French billionaire and LVMH chairman Bernard Arnault has partnered with Red Bull to enter exclusive negotiations over buying Paris FC.`\
-https://nytimes.com/athletic/5850158/2024/10/17/paris-fc-takeover-arnault-red-bull/
-
-**76ers' McCain hospitalized after 'rough' fall in Wednesday game**\
-`McCain, the No. 16 pick in April's draft, could be heard coughing and was seen clutching his chest as trainers attended to him.`\
-https://nytimes.com/athletic/5850156/2024/10/17/76ers-jared-mccain-concussion-hospitalized/
 
