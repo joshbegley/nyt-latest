@@ -1,5 +1,5 @@
 **TMZ Criticized for Image Said to Be of Liam Payne, One Direction Singer**\
-`After a torrent of criticism, TMZ removed the image without explanation.`\
+`After a torrent of criticism, TMZ removed the image of a body without explanation.`\
 https://nytimes.com/2024/10/16/business/media/tmz-liam-payne-body-image.html
 
 **Can Harris Really Build 3 Million New Housing Units?**\
