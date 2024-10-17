@@ -1,40 +1,40 @@
-**Live Updates: U.S. Strikes Houthi Weapons Caches in Yemen**\
-`The attack on underground weapons facilities in areas of Yemen controlled by the Iranian-backed militia could also serve as a warning to Tehran.`\
-https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news
+**The Greats**\
+`T celebrates four talents across music, art and fashion who, through patience and perseverance, have transformed the culture.`\
+https://nytimes.com/interactive/2024/10/17/t-magazine/greats-art-fashion-music.html
 
-**Iga Swiatek hires Wim Fissette as new head coach**\
-`The world No. 1 has hired a coach with Grand-Slam-winning pedigree after splitting with Tomasz Wiktorowski.`\
-https://nytimes.com/athletic/5849568/2024/10/17/iga-swiatek-coach-team/
+**Oliver Oakes Leads Big Changes at Alpine**\
+`The team first announced a new driver for 2025. Then its parent, Renault, said it would no longer be an F1 engine supplier. Oakes, the new team principal, called them “nice hot potato topics.”`\
+https://nytimes.com/2024/10/17/sports/autoracing/f1-oliver-oakes-alpine.html
 
-**A $350 Million Plan to Redesign 5th Avenue: Wider Sidewalks, Fewer Cars**\
-`New York City officials and business leaders plan to expand sidewalks, add seating areas and trees and remove two car lanes to create a pedestrian-friendly boulevard.`\
-https://nytimes.com/2024/10/17/nyregion/fifth-avenue-redesign-pedestrians.html
+**Should Parents Be Up Front About Ugliness in the World or Try to Hide It?**\
+`When it comes to natural disasters, wars and other tragedies, do you want your parents to be honest with you or to reassure you that everything is going to be OK?`\
+https://nytimes.com/2024/10/17/learning/should-parents-be-up-front-about-ugliness-in-the-world-or-try-to-hide-it.html
 
-**Word of the Day: emblematic**\
-`This word has appeared in 274 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/10/17/learning/word-of-the-day-emblematic.html
+**Will the Polls in 2024 Be More Accurate Than in 2016 and 2020?**\
+`Can you trust the polls this year? Kaleigh Rogers, a polling reporter at The New York Times, describes how pollsters have tried to fix past mistakes.`\
+https://nytimes.com/video/us/elections/100000009738440/will-the-polls-in-2024-be-more-accurate-than-in-2016-and-2020.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/10/17/crosswords/spelling-bee-forum.html
+**The Clothing Store Luring Women to Scranton**\
+`The British brand Boden offers sample-sale prices at an outlet on Biden Street in the industrial Pennsylvania city.`\
+https://nytimes.com/2024/10/17/style/boden-store-scranton.html
 
-**Scaring Halloween Trick-or-Treaters Is Free. But This Pumpkin? $13.50.**\
-`Americans spend billions on Halloween annually. But with every modestly priced pumpkin come behind-the-scenes costs that add up for the farms producing them, like seeds, fertilizer, irrigation and labor.`\
-https://nytimes.com/2024/10/17/nyregion/pumpkins-costs-halloween-ny.html
+**A Formula 1 Race in Texas, but Where Are the American Drivers?**\
+`Formula 1 is mostly a European sport, and contenders must climb the racing ladder through events there. That is difficult for Americans.`\
+https://nytimes.com/2024/10/17/sports/autoracing/f1-united-states-grand-prix-austin.html
 
-**Hard News and Honky-Tonks: How to Cover the American South**\
-`As a reporter responsible for region news in the South, Emily Cochrane covers hurricanes, trials, country music and more.`\
-https://nytimes.com/2024/10/17/insider/american-south.html
+**Sex, Horses and Stately Homes: Bringing a Naughty British Romance to TV**\
+`Jilly Cooper, 87, has written raunchy novels for decades. Adapting her 1988 novel “Rivals” for the streaming age meant tweaking some details.`\
+https://nytimes.com/2024/10/17/arts/television/rivals-jilly-cooper.html
 
-**Sabrina Ionescu hit the 'biggest shot of my career,' but the Liberty star isn't done yet**\
-`"Not everyone can take those big shots and make them. She can." Ionescu's timely 3 put the Liberty up 2-1 in the WNBA Finals.`\
-https://nytimes.com/athletic/5849513/2024/10/17/sabrina-ionescu-wnba-finals-3-pointer-new-york-liberty/
+**6 Vacations That Could Help You Live Longer and Healthier**\
+`All-inclusive retreats around the world aim to cultivate wellness and longevity though high-tech tests, “biohacking” treatments, meditation, breath work and more.`\
+https://nytimes.com/2024/10/17/travel/wellness-spa-retreats.html
 
-**Jimmy Kimmel Slams Trump’s Women-Centered Town Hall**\
-`“This was the first time Groper Cleveland has been around this many women since they started padlocking the doors at Miss Teen USA,” Kimmel said on Wednesday.`\
-https://nytimes.com/2024/10/17/arts/television/latenight-trump-womens-town-hall.html
+**The Hot New Thing In Vintage**\
+`Kathleen Sorbara founded the beloved vintage boutique Chickee’s, and she’s got a fresh idea for her devoted customer base.`\
+https://nytimes.com/2024/10/17/style/sorbara-vintage-shoppping-williamsburg.html
 
-**With one pitch, Walker Buehler shows his evolution as Dodgers take NLCS Game 3**\
-`Max Muncy said: “There’s never a moment that gets too big for him. He was Walker Buehler tonight."`\
-https://nytimes.com/athletic/5849395/2024/10/17/dodgers-nlcs-walker-buehler/
+**3 Psychological Thrillers That Will Creep You Out**\
+`Our critic on new books by Stephanie Wrobel, Lawrence Robbins and Hildur Knútsdóttir.`\
+https://nytimes.com/2024/10/17/books/review/new-thriller-novels.html
 
