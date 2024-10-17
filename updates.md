@@ -1,3 +1,7 @@
+**What sort of football will Thomas Tuchel's England play?**\
+`With Tuchel confirmed as England manager, there is a feeling that the FA have landed one of the most tactically astute coaches in the game`\
+https://nytimes.com/athletic/5847535/2024/10/17/thomas-tuchel-england-tactics-analysis/
+
 **Analysing Europe's top four leagues: How does football in England, Italy, Spain and Germany compare?**\
 `Is the Premier League's set-piece reputation deserved? How did Covid-19 impact the sport? And why are Spanish referees so busy?`\
 https://nytimes.com/athletic/5847564/2024/10/17/premier-league-serie-a-la-liga-bundesliga-comparison/
