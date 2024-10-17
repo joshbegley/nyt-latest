@@ -1,3 +1,19 @@
+**Amazon Enters News With Live Election Coverage From Brian Williams**\
+`The tech giant has been increasing live programming on its streaming service, but this will be its first test with news.`\
+https://nytimes.com/2024/10/17/business/media/amazon-brian-williams-election-special.html
+
+**2 Triathletes Dead at World Championships, Organizers Say**\
+`One athlete was from Mexico, and the other was from Britain. The circumstances around their deaths were not immediately clear.`\
+https://nytimes.com/2024/10/17/sports/world-triathlon-championship-deaths-spain.html
+
+**After Clemency Denial, Execution Moves Ahead in Shaken Baby Case**\
+`Barring a last-minute intervention, Robert Roberson was set to be executed on Thursday evening for the death of his 2-year-old child.`\
+https://nytimes.com/2024/10/17/us/texas-execution-robert-roberson.html
+
+**Harris and Democrats Lose Their Reluctance to Call Trump a Fascist**\
+`Since Gen. Mark Milley was quoted as saying Donald Trump is “fascist to the core,” a term avoided by top members of the Democratic Party is suddenly everywhere.`\
+https://nytimes.com/2024/10/17/us/politics/fascism.html
+
 **In Germany, Biden Prepares for a Farewell Visit to a Key Ally**\
 `The president’s hastily rescheduled trip to Berlin will last less than a day. The German government has trimmed back its celebrations accordingly.`\
 https://nytimes.com/2024/10/17/world/europe/biden-germany-visit-rescheduled.html
