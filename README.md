@@ -1,3 +1,15 @@
+**Advice on a Speech That Harris Could Give**\
+`Responses to a column by Bret Stephens. Also: Donald Trump and the “enemy from within”; medicine for Gaza; A.I. and human voices; a new birth certificate.`\
+https://nytimes.com/2024/10/17/opinion/kamala-harris-speech.html
+
+**Electric Vehicles May Be Struggling. G.M.’s Leader Is Still a Believer.**\
+`Mary Barra, G.M.’s chief executive, said that the company had fixed battery-manufacturing problems and that its electric vehicles would soon be profitable.`\
+https://nytimes.com/2024/10/17/business/gm-electric-vehicles-mary-barra.html
+
+**Troy Aikman: Cowboys WRs 'run terrible routes'**\
+`"I think CeeDee (Lamb) has got to improve in his route running," Aikman said.`\
+https://nytimes.com/athletic/5850494/2024/10/17/troy-aikman-cowboys-receivers-route-running/
+
 **Egypt Replaces Its Powerful Spy Chief, a Key Gaza Mediator**\
 `Gen. Abbas Kamel, a longtime confidant of Egypt’s president, oversaw the country’s most important international relationships and helped maintain the president’s authoritarian grip.`\
 https://nytimes.com/2024/10/17/world/middleeast/egypt-replaces-spy-chief.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5850520/2024/10/17/scoop-city-the-first-rookie-qb-s
 **Thunder to begin season without Hartenstein after hand fracture**\
 `The 26-year-old suffered the injury during the second half of Tuesday's exhibition against the Denver Nuggets.`\
 https://nytimes.com/athletic/5850412/2024/10/17/thunder-isaiah-hartenstein-hand-injury/
-
-**An Israeli airstrike on a school in Gaza kills at least 24 people.**\
-`By Liam Stack and Abu Bakr Bashir`\
-https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/an-israeli-airstrike-on-a-school-in-gaza-kills-at-least-24-people
-
-**Wilshere in advanced talks to join Norwich first-team coaching staff**\
-`Jack Wilshere is in advanced talks to leave his role as Arsenal Under-18 head coach to take up a first-team coaching role at Norwich City.`\
-https://nytimes.com/athletic/5850437/2024/10/17/jack-wilshere-norwich-arsenal/
-
-**Fan Bingbing, Once China’s Top Actress, Returns to Film Years After Tax Scandal**\
-`Fan was a megastar until 2018, when she was fined tens of millions of dollars over unpaid taxes and her career tanked. “Green Night” is her first film since the scandal.`\
-https://nytimes.com/2024/10/17/world/asia/fan-bingbing-movie-star-returns.html
 
