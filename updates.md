@@ -1,3 +1,11 @@
+**Suns' Ryan Dunn, with an improved jump shot, could end up as the steal of the draft**\
+`Phoenix has lacked a strong 3-and-D player since trading Mikal Bridges in the 2023 Durant deal. Ryan Dunn might be the answer.`\
+https://nytimes.com/athletic/5849225/2024/10/17/ryan-dunn-phoenix-suns-jump-shot-3s/
+
+**Donny van de Beek exclusive: Man Utd struggles, Girona hopes, and Erik Ten Hag**\
+`This summer the Dutchman moved on from Manchester United for a new start in Spain with Girona. Here, he looks back on the past four years`\
+https://nytimes.com/athletic/5849643/2024/10/17/van-de-beek-man-utd-girona-premier-league-la-liga/
+
 **The Athletic FC: Raw Luis Enrique, first impressions of Tuchel, NWSL marketing shambles**\
 `Today in TAFC: Inside the mind of Luis Enrique, first impressions of Thomas Tuchel, Bos Nation's blunder, what makes a player 'world class'.`\
 https://nytimes.com/athletic/5849668/2024/10/17/enrique-documentary-tuchel-england-manager-bos-nation/
