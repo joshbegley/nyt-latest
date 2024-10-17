@@ -1,3 +1,7 @@
+**Lonzo Ball returns to Bulls after near 3-year absence**\
+`Ball logged 10 points on 4-of-6 shooting in 15 minutes played in Wednesday's preseason game against the Timberwolves.`\
+https://nytimes.com/athletic/5847800/2024/10/16/bulls-lonzo-ball-return-minutes-restriction/
+
 **Shohei Ohtani's blast helps Dodgers take 2-1 NLCS lead over Mets: Takeaways**\
 `NEW YORK — Shohei Ohtani hit his second postseason home run to give the Los Angeles Dodgers three late insurance runs in the 8-0 victory to give the Dodgers a 2-1 lead in the National League Championship Series.`\
 https://nytimes.com/athletic/5849108/2024/10/16/dodgers-mets-shohei-ohtani-nlcs/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/16/us/elections/kamala-harris-housing-po
 **Corrections: Oct. 17, 2024**\
 `Corrections that appeared in print on Thursday, Oct. 17, 2024.`\
 https://nytimes.com/2024/10/16/pageoneplus/corrections-oct-17-2024.html
-
-**On Fox News, Harris Proves She’s Tough**\
-`It was a strong contrast to her interview-dodging opponent.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/kamala-harris-fox-news-interview
 
