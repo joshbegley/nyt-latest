@@ -1,3 +1,7 @@
+**Jordan Kyrou, Robert Thomas back on Blues' No. 1 line: 'They need to be top players for us'**\
+`The Blues are reuniting Kyrou and Thomas to help spark an offense that has been forced to come from behind a lot this season.`\
+https://nytimes.com/athletic/5847999/2024/10/17/jordan-kyrou-robert-thomas-reunited-blues/
+
 **Sadie Sink to Star in Broadway Play Inspired by ‘Crucible’ and #MeToo**\
 `Kimberly Belflower’s “John Proctor Is the Villain” will be directed by Danya Taymor, who won a Tony this year for “The Outsiders.”`\
 https://nytimes.com/2024/10/17/theater/sadie-sink-john-proctor-broadway.html
