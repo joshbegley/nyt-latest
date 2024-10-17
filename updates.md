@@ -1,3 +1,7 @@
+**With one pitch, Walker Buehler shows his evolution as Dodgers take NLCS Game 3**\
+`Max Muncy said: “There’s never a moment that gets too big for him. He was Walker Buehler tonight."`\
+https://nytimes.com/athletic/5849395/2024/10/17/dodgers-nlcs-walker-buehler/
+
 **A $350 Million Plan to Redesign 5th Avenue: Wider Sidewalks, Fewer Cars**\
 `New York City officials and business leaders plan to expand sidewalks, add seating areas and trees and remove two car lanes to create a pedestrian-friendly boulevard.`\
 https://nytimes.com/2024/10/17/nyregion/fifth-avenue-redesign-pedestrians.html
