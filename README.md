@@ -1,3 +1,7 @@
+**What sort of football will Thomas Tuchel's England play?**\
+`With Tuchel confirmed as England manager, there is a feeling that the FA have landed one of the most tactically astute coaches in the game`\
+https://nytimes.com/athletic/5847535/2024/10/17/thomas-tuchel-england-tactics-analysis/
+
 **Analysing Europe's top four leagues: How does football in England, Italy, Spain and Germany compare?**\
 `Is the Premier League's set-piece reputation deserved? How did Covid-19 impact the sport? And why are Spanish referees so busy?`\
 https://nytimes.com/athletic/5847564/2024/10/17/premier-league-serie-a-la-liga-bundesliga-comparison/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/17/opinion/dobbs-roe-abortion-stories.ht
 **Moscow Roils a Country on the Edge of Europe and Russia**\
 `Russia is behind a disinformation campaign in Moldova ahead of a presidential election and a referendum making E.U. membership a “strategic objective,” Moldovan officials and global media companies say.`\
 https://nytimes.com/2024/10/17/world/europe/moldova-russia-european-union-election.html
-
-**Quote of the Day: Uncertainty Over Election Stirs Anxiety On Wall St.**\
-`Quotation of the Day for Thursday, October 17, 2024`\
-https://nytimes.com/2024/10/16/pageoneplus/quote-of-the-day-uncertainty-over-election-stirs-anxiety-on-wall-st.html
 
