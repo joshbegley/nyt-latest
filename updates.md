@@ -1,3 +1,7 @@
+**Browns to pursue new domed stadium in Brook Park, Ohio**\
+`Cleveland mayor Justin Bibb called the Haslams' decision "profoundly disheartening."`\
+https://nytimes.com/athletic/5851407/2024/10/17/cleveland-browns-stadium-move/
+
 **Father and Son Indicted on Murder Charges for Georgia School Shooting**\
 `A grand jury handed up charges against Colt Gray, 14, who is accused of killing four people at his high school. His father, Colin Gray, is accused of giving him access to the murder weapon.`\
 https://nytimes.com/2024/10/17/us/georgia-school-shooting-indictment.html
