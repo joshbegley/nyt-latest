@@ -1,3 +1,7 @@
+**U.S. Stealth Bombers Attack Houthi Weapons Caches in Yemen**\
+`Air Force B-2 bombers struck five underground weapons facilities in what may be a signal from the Biden administration to Iran.`\
+https://nytimes.com/2024/10/17/us/politics/houthis-strike-stealth-bombers.html
+
 **Mets' struggles with bottom of Dodgers' lineup key to 2-1 NLCS deficit**\
 `Los Angeles’ seventh through ninth hitters have carried its offense against New York, and now own a 2-1 series lead.`\
 https://nytimes.com/athletic/5849392/2024/10/17/new-york-mets-nlcs-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5846970/2024/10/17/liverpool-chelsea-rivalry-scouti
 **How United's internationals performed in the October break: Eriksen 'hungry', De Ligt out of favour**\
 `Of the 12 United players who departed on international duty this month, seven featured for at least part of both games with their country`\
 https://nytimes.com/athletic/5842020/2024/10/17/manchester-united-international-break-players-report/
-
-**Arsenal's road to 2,000 top-flight wins - the history and the memories**\
-`We look at how Arsenal are on the brink of their 2,000th top-flight win`\
-https://nytimes.com/athletic/5836380/2024/10/17/arsenals-road-to-2000-top-flight-wins-the-history-and-the-memories/
 

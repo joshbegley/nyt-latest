@@ -1,3 +1,7 @@
+**U.S. Stealth Bombers Attack Houthi Weapons Caches in Yemen**\
+`Air Force B-2 bombers struck five underground weapons facilities in what may be a signal from the Biden administration to Iran.`\
+https://nytimes.com/2024/10/17/us/politics/houthis-strike-stealth-bombers.html
+
 **Mets' struggles with bottom of Dodgers' lineup key to 2-1 NLCS deficit**\
 `Los Angeles’ seventh through ninth hitters have carried its offense against New York, and now own a 2-1 series lead.`\
 https://nytimes.com/athletic/5849392/2024/10/17/new-york-mets-nlcs-struggles/
