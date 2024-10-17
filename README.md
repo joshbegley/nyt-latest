@@ -1,3 +1,7 @@
+**Liam Payne of One Direction Dies in Buenos Aires**\
+`The police cordoned off the hotel where the 31-year-old singer of the British band died as fans gathered to mourn him.`\
+https://nytimes.com/video/arts/music/liam-payne-dead-one-direction.html
+
 **FPL: The international break injury doubts to be aware of for Gameweek 8**\
 `The week after an international break should always be approached with caution when it comes to Fantasy Premier League`\
 https://nytimes.com/athletic/5843154/2024/10/17/fantasy-premier-league-international-injuries-saka-havertz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5847146/2024/10/17/leeds-spain-mateo-joseph-intervi
 **Thursday Briefing**\
 `A heated interview with Fox News.`\
 https://nytimes.com/2024/10/17/briefing/harris-trump-fox-israel-lebanon.html
-
-**What the Premier League table does (and does not) tell us about each club**\
-`Are your club roughly where they should be in the table? Have injuries been an issue? Have they been unlucky? Our writers take a look...`\
-https://nytimes.com/athletic/5833243/2024/10/17/premier-league-table-latest/
 
