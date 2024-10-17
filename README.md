@@ -1,3 +1,7 @@
+**Egypt Replaces Its Powerful Spy Chief, a Key Gaza Mediator**\
+`Gen. Abbas Kamel, a longtime confidant of Egypt’s president, oversaw the country’s most important international relationships and helped maintain the president’s authoritarian grip.`\
+https://nytimes.com/2024/10/17/world/middleeast/egypt-replaces-spy-chief.html
+
 **Could Second-Home Owners Swing New York’s Swing Districts?**\
 `A group is pushing thousands of New Yorkers to vote from weekend homes in swing districts. Its pitch: “Your second home could determine the next speaker.”`\
 https://nytimes.com/2024/10/17/nyregion/voting-absentee-residence-ny.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5850437/2024/10/17/jack-wilshere-norwich-arsenal/
 **Fan Bingbing, Once China’s Top Actress, Returns to Film Years After Tax Scandal**\
 `Fan was a megastar until 2018, when she was fined tens of millions of dollars over unpaid taxes and her career tanked. “Green Night” is her first film since the scandal.`\
 https://nytimes.com/2024/10/17/world/asia/fan-bingbing-movie-star-returns.html
-
-**Ryder Cup ticket prices have never been higher. That's a real problem for golf**\
-`It'll cost around $750 to attend the 2025 Ryder Cup at Bethpage Black in New York, another sign they don't care about normal golf fans.`\
-https://nytimes.com/athletic/5850366/2024/10/17/ryder-cup-ticket-prices-golf-bethpage-black-2025/
 
