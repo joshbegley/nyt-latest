@@ -1,7 +1,3 @@
-**Harris and Democrats Lose Their Reluctance to Call Trump a Fascist**\
-`Since Gen. Mark Milley was quoted as saying Donald Trump is “fascist to the core,” a term avoided by top members of the Democratic Party is suddenly everywhere.`\
-https://nytimes.com/2024/10/17/us/politics/fascism.html
-
 **In Germany, Biden Prepares for a Farewell Visit to a Key Ally**\
 `The president’s hastily rescheduled trip to Berlin will last less than a day. The German government has trimmed back its celebrations accordingly.`\
 https://nytimes.com/2024/10/17/world/europe/biden-germany-visit-rescheduled.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5850973/2024/10/17/jake-oettinger-dallas-stars-cont
 **Levine Leichtman family complete purchase of San Diego Wave**\
 `Former owner Ron Burkle agreed to sell the club to the Levine Leichtman family in March at a cash outlay of $113 million.`\
 https://nytimes.com/athletic/5849002/2024/10/17/san-diego-wave-sale-levine-leichtman-family/
+
+**It’s Fall. Do You Know Where Your Squash Is?**\
+`Put that kabocha, spaghetti, butternut and honey nut to good use in hearty salads, cozy pastas and a very photogenic galette.`\
+https://nytimes.com/2024/10/17/dining/squash-recipes-fall.html
 
