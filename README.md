@@ -1,3 +1,11 @@
+**Could Second-Home Owners Swing New York’s Swing Districts?**\
+`A group is pushing thousands of New Yorkers to vote from weekend homes in swing districts. Its pitch: “Your second home could determine the next speaker.”`\
+https://nytimes.com/2024/10/17/nyregion/voting-absentee-residence-ny.html
+
+**Hayes names 26-player USWNT roster for October friendlies**\
+`The U.`\
+https://nytimes.com/athletic/5850525/2024/10/17/uswnt-roster-emma-hayes/
+
 **Sperm Can’t Unlock an Egg Without This Ancient Molecular Key**\
 `Using Google’s AlphaFold, researchers identified the bundle of three sperm proteins that seem to make sexual reproduction possible.`\
 https://nytimes.com/2024/10/17/science/sperm-egg-proteins-key.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/world/asia/fan-bingbing-movie-star-returns.html
 **Ryder Cup ticket prices have never been higher. That's a real problem for golf**\
 `It'll cost around $750 to attend the 2025 Ryder Cup at Bethpage Black in New York, another sign they don't care about normal golf fans.`\
 https://nytimes.com/athletic/5850366/2024/10/17/ryder-cup-ticket-prices-golf-bethpage-black-2025/
-
-**Universal’s Epic Orlando Theme Park Will Open in May**\
-`Initial ticket packages for the new area of Universal Orlando Resort, the first new Florida theme park in a generation, will cost as much as $521.`\
-https://nytimes.com/2024/10/17/business/media/universal-epic-universe-opening-date.html
-
-**The Jets put Mike Williams on the trade block; the moment that sealed his fate is obvious**\
-`A mistake on Monday night and the arrival of Davante Adams likely spell the end of the receiver's brief Jets tenure.`\
-https://nytimes.com/athletic/5850223/2024/10/17/mike-williams-jets-trade-aaron-rodgers-comments/
 
