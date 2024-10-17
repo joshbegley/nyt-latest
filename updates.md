@@ -1,3 +1,11 @@
+**How Times Readers Made the Switch to Heat Pumps**\
+`Hundreds of Times readers wrote to us and shared their experiences of installing heat pumps, including the good, the bad and the daunting.`\
+https://nytimes.com/2024/10/17/climate/switching-to-a-heat-pump.html
+
+**Trump’s Rambling Speeches Focus His Critics and Worry His Allies**\
+`Some advisers and allies of former President Donald J. Trump are concerned about his scattershot style on the campaign trail as he continues to veer off script.`\
+https://nytimes.com/2024/10/17/us/politics/trump-rally-speeches.html
+
 **Bob Yerkes, Bruised but Durable Hollywood Stuntman, Dies at 92**\
 `A body double to the stars, he performed sometimes bone-breaking feats in movies like “Return of the Jedi” and “Back to the Future.” And he was still at it in his 80s.`\
 https://nytimes.com/2024/10/17/movies/bob-yerkes-dead.html

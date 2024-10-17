@@ -1,3 +1,11 @@
+**How Times Readers Made the Switch to Heat Pumps**\
+`Hundreds of Times readers wrote to us and shared their experiences of installing heat pumps, including the good, the bad and the daunting.`\
+https://nytimes.com/2024/10/17/climate/switching-to-a-heat-pump.html
+
+**Trump’s Rambling Speeches Focus His Critics and Worry His Allies**\
+`Some advisers and allies of former President Donald J. Trump are concerned about his scattershot style on the campaign trail as he continues to veer off script.`\
+https://nytimes.com/2024/10/17/us/politics/trump-rally-speeches.html
+
 **Bob Yerkes, Bruised but Durable Hollywood Stuntman, Dies at 92**\
 `A body double to the stars, he performed sometimes bone-breaking feats in movies like “Return of the Jedi” and “Back to the Future.” And he was still at it in his 80s.`\
 https://nytimes.com/2024/10/17/movies/bob-yerkes-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/world/middleeast/hamas-leader-sinwar-ceasefire-ta
 **A Little-Known Trump Relative Is Leading a Campaign for Arab American Voters**\
 `A Trump in-law, along with a former administration official, is on a mission to exploit Democrats’ new weakness with Arab American and Muslim voters.`\
 https://nytimes.com/2024/10/17/us/politics/donald-trump-campaign-michigan-arab-americans.html
-
-**Yamamoto, Ohtani, Darvish showdown was Japan's most watched MLB playoff game**\
-`MLB said the game drew a 19.2 rating in Japan, which amounts to an estimated 12.9 million average viewers.`\
-https://nytimes.com/athletic/5851099/2024/10/17/japan-mlb-playoff-game-viewers-darvish-ohtani-yamamoto/
-
-**The World’s Carbon Sinks Are on Fire**\
-`Carbon emissions from forest fires increased more than 60 percent globally over the past two decades, according to a new study.`\
-https://nytimes.com/2024/10/17/climate/carbon-fires-forests-global-warming.html
 
