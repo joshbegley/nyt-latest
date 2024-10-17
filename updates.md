@@ -1,3 +1,19 @@
+**Israeli Military Drone Footage Claims to Show Sinwar Shortly Before He Was Killed**\
+`The video shows a room that matches photographs obtained by The Times that show the corpse of a man closely resembling the Hamas leader.`\
+https://nytimes.com/2024/10/17/world/middleeast/yahya-sinwar-death-drone-footage.html
+
+**Ahead of U.S. GP, a new technical battle stokes Red Bull, McLaren title fight**\
+`Red Bull has now faced technical scrutiny from its rivals as it tries to arrest its points slide.`\
+https://nytimes.com/athletic/5851552/2024/10/17/f1-united-states-gp-red-bull-bib-mclaren/
+
+**Berhalter reflects on USMNT firing, endorses successor Pochettino**\
+`Berhalter also said Pochettino is "a great hire for U.S. Soccer."`\
+https://nytimes.com/athletic/5851976/2024/10/17/gregg-berhalter-usmnt-firing-chicago-pochettino/
+
+**Harris Slams Trump for Calling Jan. 6 a ‘Day of Love’**\
+`Speaking at a campaign rally in La Crosse, Wis., Vice President Kamala Harris said former President Donald J. Trump was “gaslighting” Americans with his effort to rewrite the history of Jan. 6, 2021.`\
+https://nytimes.com/video/us/elections/100000009768581/harris-trump-jan6-capitol.html
+
 **What Keeps Latino Voting-Rights Activists Up at Night? Disinformation**\
 `Activists say the nefarious material is more widespread, sophisticated and complex than ever.`\
 https://nytimes.com/2024/10/17/us/politics/latino-voters-election-disinformation.html
