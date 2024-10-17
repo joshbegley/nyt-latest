@@ -1,3 +1,7 @@
+**Gazans react to reports that the leader of Hamas was killed.**\
+`Palestinians in the enclave were divided over whether the death of Yahya Sinwar, if confirmed, would bring the war in Gaza closer to an end.`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/gaza-sinwar-reaction-death
+
 **Wissa could make injury return for Man Utd trip**\
 `Brentford manager Thomas Frank says forward Yoane Wissa could be fit for his side&#8217;s game against Manchester United on Saturday.`\
 https://nytimes.com/athletic/5850758/2024/10/17/brentford-wissa-injury-return-man-utd/
