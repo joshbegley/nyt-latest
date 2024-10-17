@@ -1,3 +1,11 @@
+**City set to appoint Sjogran as women’s director of football**\
+`Manchester City are set to appoint Therese Sjogran as their new women’s director of football.`\
+https://nytimes.com/athletic/5849827/2024/10/17/man-city-women-therese-sjogran/
+
+**Ex-Chesterfield manager James Rowe found not guilty of sexual assault**\
+`Former Chesterfield manager James Rowe has been found not guilty of sexual assault in a trial lasting seven days at Derby Crown Court.`\
+https://nytimes.com/athletic/5849956/2024/10/17/james-rowe-trial-verdict/
+
 **European Central Bank Cuts Rates Again as Inflation Cools**\
 `Policymakers who set interest rates for the 20 countries that use the euro have lowered rates in back-to-back meetings for the first time since 2011.`\
 https://nytimes.com/2024/10/17/business/ecb-interest-rate-cut-inflation.html
