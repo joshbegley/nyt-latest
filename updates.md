@@ -1,3 +1,7 @@
+**The Power of Government Policies**\
+`The U.S. has the capacity to address its biggest problems. Whether it does is a different matter.`\
+https://nytimes.com/2024/10/17/briefing/taxes-immigration-economy.html
+
 **Postecoglou hopeful of Son, Richarlison returns for West Ham**\
 `Ange Postecoglou says Tottenham Hotspur captain Son Heung-Min will &#8220;hopefully&#8221; be available for their game against West Ham United on Saturday lunchtime.`\
 https://nytimes.com/athletic/5849724/2024/10/17/son-heung-min-richarlison-injury-tottenham/
