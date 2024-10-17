@@ -1,3 +1,15 @@
+**An Israeli airstrike on a school in Gaza kills at least 24 people.**\
+`By Liam Stack and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/an-israeli-airstrike-on-a-school-in-gaza-kills-at-least-24-people
+
+**Wilshere in advanced talks to join Norwich first-team coaching staff**\
+`Jack Wilshere is in advanced talks to leave his role as Arsenal Under-18 head coach to take up a first-team coaching role at Norwich City.`\
+https://nytimes.com/athletic/5850437/2024/10/17/jack-wilshere-norwich-arsenal/
+
+**Fan Bingbing, Once China’s Top Actress, Returns to Film Years After Tax Scandal**\
+`Fan was a megastar until 2018, when she was fined tens of millions of dollars over unpaid taxes and her career tanked. “Green Night” is her first film since the scandal.`\
+https://nytimes.com/2024/10/17/world/asia/fan-bingbing-movie-star-returns.html
+
 **Fan Bingbing, Once China’s Top Actress, Returns to Film Years After Tax Scandal**\
 `Fan was a megastar until in 2018, when she was fined tens of millions of dollars over unpaid taxes and her career tanked. “Green Night” is her first film since the scandal.`\
 https://nytimes.com/2024/10/17/world/asia/fan-bingbing-movie-star-returns.html

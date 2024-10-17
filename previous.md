@@ -1,5 +1,13 @@
+**An Israeli airstrike on a school in Gaza kills at least 24 people.**\
+`By Liam Stack and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/an-israeli-airstrike-on-a-school-in-gaza-kills-at-least-24-people
+
+**Wilshere in advanced talks to join Norwich first-team coaching staff**\
+`Jack Wilshere is in advanced talks to leave his role as Arsenal Under-18 head coach to take up a first-team coaching role at Norwich City.`\
+https://nytimes.com/athletic/5850437/2024/10/17/jack-wilshere-norwich-arsenal/
+
 **Fan Bingbing, Once China’s Top Actress, Returns to Film Years After Tax Scandal**\
-`Fan was a megastar until in 2018, when she was fined tens of millions of dollars over unpaid taxes and her career tanked. “Green Night” is her first film since the scandal.`\
+`Fan was a megastar until 2018, when she was fined tens of millions of dollars over unpaid taxes and her career tanked. “Green Night” is her first film since the scandal.`\
 https://nytimes.com/2024/10/17/world/asia/fan-bingbing-movie-star-returns.html
 
 **Ryder Cup ticket prices have never been higher. That's a real problem for golf**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5850156/2024/10/17/76ers-jared-mccain-concussion-ho
 **Fullkrug still out with calf injury, Lopetegui unsure on return date**\
 `West Ham United forward Niclas Fullkrug remains sidelined with a calf injury.`\
 https://nytimes.com/athletic/5850305/2024/10/17/niclas-fullkrug-injury-return-west-ham/
-
-**Ohtani, Kiké Hernández do it again: Dodgers teammates in awe of their amazing October feats**\
-`Weird and Wild: Ohtani and Hernández are authoring new chapters in postseason lore. Let's break down how great they've been in October. `\
-https://nytimes.com/athletic/5849907/2024/10/17/shohei-ohtani-kike-hernandez-dodgers-nlcs-game-3/
-
-**The Bounce: How many playoff teams are in the Southwest division?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5849878/2024/10/17/southwest-division-grizzlies-spurs-rockets-mavericks-pelicans-nba-the-bounce/
 
