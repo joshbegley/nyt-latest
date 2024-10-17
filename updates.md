@@ -1,3 +1,7 @@
+**In Germany, Biden Prepares for a Farewell Visit to a Key Ally**\
+`The president’s hastily rescheduled trip to Berlin will last less than a day. The German government has trimmed back its celebrations accordingly.`\
+https://nytimes.com/2024/10/17/world/europe/biden-germany-visit-rescheduled.html
+
 **OHL aware of report alleging sexual assault by former players**\
 `The OHL is aware of a report alleging former players sexually assaulted a woman in 2014 and will cooperate if police pursue the incident.`\
 https://nytimes.com/athletic/5850773/2024/10/17/ohl-sexual-assault-allegation-2014-ctv-report/
