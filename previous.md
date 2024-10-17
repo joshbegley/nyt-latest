@@ -1,3 +1,15 @@
+**Adam Driver in ‘Hold On to Me Darling,’ a Satire of Sincerity**\
+`A country music star embodies the clichés of celebrity in an Off Broadway revival of Kenneth Lonergan’s 2016 comedy.`\
+https://nytimes.com/2024/10/16/theater/hold-on-to-me-darling-review-driver.html
+
+**The Battle Between Editor and Writer**\
+`August Lee-Kovach’s puzzle is very punny.`\
+https://nytimes.com/2024/10/16/crosswords/daily-puzzle-2024-10-17.html
+
+**Kamala Harris Arrived for a Fox Interview. She Got a Debate.**\
+`The vice president’s sit-down with Bret Baier was her most contentious meeting with a journalist since becoming the Democratic nominee.`\
+https://nytimes.com/2024/10/16/business/media/kamala-harris-bret-baier-fox.html
+
 **TMZ Criticized for Image Said to Be of Liam Payne, One Direction Singer**\
 `After a torrent of criticism, TMZ removed the image of a body without explanation.`\
 https://nytimes.com/2024/10/16/business/media/tmz-liam-payne-body-image.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/16/us/politics/kamala-harris-fox-news-interview.html
 **3 People Killed and 4 Injured in Mississippi Bridge Collapse**\
 `A bridge over the Strong River in Simpson County that was being demolished collapsed in a “work site accident,” the authorities said.`\
 https://nytimes.com/2024/10/16/us/mississippi-bridge-collapse.html
-
-**Judge Strikes Down Multiple Georgia Election Rules**\
-`The measures had been promoted by the State Election Board. The judge called them “illegal, unconstitutional and void.”`\
-https://nytimes.com/2024/10/16/us/elections/georgia-election-rules-court-decision.html
-
-**4 Charged With Running Prostitution Ring on Long Island**\
-`A Suffolk County police officer and a high school teacher are among four people accused of operating brothels, prosecutors said.`\
-https://nytimes.com/2024/10/16/nyregion/prostitution-brothels-long-island-charges.html
-
-**Biden Memorializes Ethel Kennedy in Eulogy**\
-`President Biden on Wednesday delivered a eulogy for Ethel Kennedy, the widow of Senator Robert F. Kennedy and mother of the former presidential candidate Robert F. Kennedy Jr.`\
-https://nytimes.com/video/us/100000009766162/biden-ethel-kennedy-eulogy.html
 
