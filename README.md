@@ -1,3 +1,15 @@
+**The Leader of Hamas Is Dead**\
+`Also, Biden traveled to Germany as the U.S. wrestles with military aid. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/10/17/briefing/hamas-leader-dead-us-military-aid.html
+
+**Harris Denounces Trump for Saying Jan. 6 Was a ‘Day of Love’**\
+`Campaigning in Wisconsin, the vice president said her Republican rival was “gaslighting” Americans with his effort to rewrite the history of Jan. 6, 2021.`\
+https://nytimes.com/2024/10/17/us/politics/harris-trump-jan-6-day-of-love.html
+
+**Man Who Sprayed Police With Wasp Killer Pleads Guilty to Jan. 6 Charges**\
+`Peter Moloney, who owned funeral homes on Long Island, struck a photojournalist and another man and pleaded guilty to assaulting police officers.`\
+https://nytimes.com/2024/10/17/nyregion/peter-moloney-jan-6-guilty.html
+
 **Biden Talks to Netanyahu About Sinwar’s Death and Getting to a Cease-Fire**\
 `After arriving in Berlin for previously scheduled meetings, the president said he was sending the secretary of state to Israel in the coming days.`\
 https://nytimes.com/2024/10/17/world/middleeast/biden-netanyahu-israel-hamas-war.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5851713/2024/10/17/tony-bennett-virginia-retirement
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/10/17/books/review/new-books-recommendations.html
-
-**Trump Picked the Wrong Moment to Complain About a Language Barrier**\
-`But his description of the problems he sees with Haitian immigrants helps explain his monochrome vision of American life.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-latino-haitian-language
-
-**Browns to pursue new domed stadium in Brook Park, Ohio**\
-`Cleveland mayor Justin Bibb called the Haslams' decision "profoundly disheartening."`\
-https://nytimes.com/athletic/5851407/2024/10/17/cleveland-browns-stadium-move/
-
-**A New Plan to Transform Newark Airport ‘From Worst to Best’**\
-`The plan, announced Thursday by the Port Authority of New York and New Jersey, includes replacing the rickety AirTrain network and the airport’s dilapidated Terminal B.`\
-https://nytimes.com/2024/10/17/nyregion/newark-airport-airtrain-renovation.html
 
