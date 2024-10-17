@@ -1,3 +1,11 @@
+**Could Second-Home Owners Swing New York’s Swing Districts?**\
+`A group is pushing thousands of New Yorkers to vote from weekend homes in swing districts. Its pitch: “Your second home could determine the next speaker.”`\
+https://nytimes.com/2024/10/17/nyregion/voting-absentee-residence-ny.html
+
+**Hayes names 26-player USWNT roster for October friendlies**\
+`The U.`\
+https://nytimes.com/athletic/5850525/2024/10/17/uswnt-roster-emma-hayes/
+
 **Sperm Can’t Unlock an Egg Without This Ancient Molecular Key**\
 `Using Google’s AlphaFold, researchers identified the bundle of three sperm proteins that seem to make sexual reproduction possible.`\
 https://nytimes.com/2024/10/17/science/sperm-egg-proteins-key.html
