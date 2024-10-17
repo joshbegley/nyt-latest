@@ -1,3 +1,7 @@
+**Fullkrug still out with calf injury, Lopetegui unsure on return date**\
+`West Ham United forward Niclas Fullkrug remains sidelined with a calf injury.`\
+https://nytimes.com/athletic/5850305/2024/10/17/niclas-fullkrug-injury-return-west-ham/
+
 **Ohtani, Kiké Hernández do it again: Dodgers teammates in awe of their amazing October feats**\
 `Ohtani and Hernández are having a heck of a postseason. Let's break down how great they've been.`\
 https://nytimes.com/athletic/5849907/2024/10/17/shohei-ohtani-kike-hernandez-dodgers-nlcs-game-3/

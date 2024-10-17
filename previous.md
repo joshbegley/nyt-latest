@@ -1,3 +1,7 @@
+**Fullkrug still out with calf injury, Lopetegui unsure on return date**\
+`West Ham United forward Niclas Fullkrug remains sidelined with a calf injury.`\
+https://nytimes.com/athletic/5850305/2024/10/17/niclas-fullkrug-injury-return-west-ham/
+
 **Ohtani, Kiké Hernández do it again: Dodgers teammates in awe of their amazing October feats**\
 `Ohtani and Hernández are having a heck of a postseason. Let's break down how great they've been.`\
 https://nytimes.com/athletic/5849907/2024/10/17/shohei-ohtani-kike-hernandez-dodgers-nlcs-game-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5848983/2024/10/17/chargers-defense-injuries-rookie
 **City set to appoint Sjogran as women’s director of football**\
 `Manchester City are set to appoint Therese Sjogran as their new women’s director of football.`\
 https://nytimes.com/athletic/5849827/2024/10/17/man-city-women-therese-sjogran/
-
-**Ex-Chesterfield manager James Rowe found not guilty of sexual assault**\
-`Former Chesterfield manager James Rowe has been found not guilty of sexual assault in a trial lasting seven days at Derby Crown Court.`\
-https://nytimes.com/athletic/5849956/2024/10/17/james-rowe-trial-verdict/
 
