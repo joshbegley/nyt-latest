@@ -1,3 +1,15 @@
+**Steelers' Fields candid about performance: 'Don't think I played good enough'**\
+`"If I did play well enough, I don’t think there would be any sort of (question) who should be playing, who should not," Fields said.`\
+https://nytimes.com/athletic/5850762/2024/10/17/justin-fields-steelers-qb-russell-wilson/
+
+**These Tiny Worms Account for at Least 4 Nobel Prizes**\
+`A staple in laboratories worldwide, C. elegans is “an experimental dream,” said one scientist.`\
+https://nytimes.com/2024/10/17/science/nobel-prizes-caenorhabditis-elegans.html
+
+**Inside Victor Mancini's unlikely NHL path: Doubts, disappointments and a prospect with 'all the tools'**\
+`Mancini has become a surprise success story after going undrafted twice: “When this kid puts his mind to something, don’t bet against him.”`\
+https://nytimes.com/athletic/5848707/2024/10/17/victor-mancini-rangers-nhl-prospect-rise/
+
 **U.S. Wrestles With Aiding Allies and Maintaining Its Own Weapons Supply**\
 `Pentagon officials discuss whether the flow of assistance could be hurting the military’s ability to respond to a new conflict.`\
 https://nytimes.com/2024/10/17/us/politics/us-weapons-israel-ukraine.html
