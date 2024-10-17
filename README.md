@@ -1,3 +1,11 @@
+**How the Biden Team Plans to Build Peace From Sinwar’s Death**\
+`Will Israel take steps toward a Palestinian state?`\
+https://nytimes.com/2024/10/17/opinion/israel-hamas-war.html
+
+**College football super league proposals must first overcome Big Ten, SEC skepticism**\
+`The super league proposals intend to solve all of college football’s issues. The first challenge is convincing the Big Ten and SEC.`\
+https://nytimes.com/athletic/5851213/2024/10/17/college-football-super-league-project-rudy-big-ten-sec/
+
 **Ta-Nehisi Coates and the Myth of Black Fragility**\
 `The debate over his recent interview entirely misses the point`\
 https://nytimes.com/2024/10/17/opinion/ta-nehisi-coates-and-the-myth-of-black-fragility.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/liam-payne-death-career
 **Arie Kopelman, Former President of Chanel Inc., Dies at 86**\
 `Arriving at the storied luxury house two years after Karl Lagerfeld, he helped guide a boom in both products and revenues.`\
 https://nytimes.com/2024/10/17/fashion/arie-kopelman-dead.html
-
-**Harris Says Hamas Leader’s Killing Offers Chance to End Gaza War**\
-`“It is time for the day after to begin without Hamas in power,” the vice president said after the Israeli military confirmed that Yahya Sinwar, the leader of the militant group, had been killed.`\
-https://nytimes.com/2024/10/17/us/politics/harris-yahya-sinwar-hamas-israel-gaza.html
-
-**In Northern Gaza, Hunger Looms Over Daily Existence**\
-`Families say they are rationing what little food they can find while living under the constant threat of Israeli bombardment.`\
-https://nytimes.com/2024/10/17/world/middleeast/gaza-hunger-war-israel.html
 
