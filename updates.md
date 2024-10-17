@@ -1,3 +1,15 @@
+**Nebraska at Indiana: Underdog Huskers see opportunity against undefeated Hoosiers**\
+`Nebraska has lost 25 games in a row against AP-ranked opponents, dating to 2016. It’s 1-15 on the road in Big Ten play against ranked teams.`\
+https://nytimes.com/athletic/5848050/2024/10/17/nebraska-football-indiana-matchup-preview/
+
+**Chiefs are undefeated, but red zone failures are holding back the offense**\
+`The Chiefs have no problems moving the ball, but in 18 trips inside the red zone, they have scored only seven touchdowns.`\
+https://nytimes.com/athletic/5848626/2024/10/17/chiefs-patrick-mahomes-red-zone-offense/
+
+**Shane Waldron got off to a shaky start but skipped no steps in turning around Bears offense**\
+`Waldron is open about the fact that conversations with Caleb Williams and other offensive leaders helped spark the Bears offense.`\
+https://nytimes.com/athletic/5847850/2024/10/17/bears-shane-waldron-offense/
+
 **The story behind the Vikings’ 5-0 start: Between chemistry and scheme, it's just 'different'**\
 `The undefeated Vikings are an amalgamation of creative coaching, versatile on-field talent and good vibes. Can they keep it rolling?`\
 https://nytimes.com/athletic/5847614/2024/10/17/minnesota-vikings-undefeated-chemistry-kevin-oconnell/

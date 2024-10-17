@@ -1,3 +1,19 @@
+**What's going on with Alabama and Tennessee? Coaches who faced them weigh in**\
+`The Third Saturday in October rivalry is back, though both teams haven't played their best of late. What does it mean for Saturday?`\
+https://nytimes.com/athletic/5847923/2024/10/17/alabama-tennessee-football-sec-coaches/
+
+**Big 12 Chaos Meter: Midseason contenders, upstarts and disappointments**\
+`The teams at the top of the Big 12 standings right now were picked sixth, ninth and 13th in the preseason Big 12 poll.`\
+https://nytimes.com/athletic/5848236/2024/10/17/big-12-chaos-meter-midseason-byu-iowa-state/
+
+**Here are the latest developments.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/here-are-the-latest-developments
+
+**Hollinger: Expect Thunder to run away with West, but can Suns blaze a trail?**\
+`The standings traffic jam we saw last season might become even more pronounced in 2024-25.`\
+https://nytimes.com/athletic/5826609/2024/10/17/nba-season-predictions-best-western-conference-teams/
+
 **Nebraska at Indiana: Underdog Huskers see opportunity against undefeated Hoosiers**\
 `Nebraska has lost 25 games in a row against AP-ranked opponents, dating to 2016. It’s 1-15 on the road in Big Ten play against ranked teams.`\
 https://nytimes.com/athletic/5848050/2024/10/17/nebraska-football-indiana-matchup-preview/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5845542/2024/10/17/sean-payton-broncos-saints-homec
 **A traitor or a treasure? How do Giants fans feel about Saquon Barkley's NY legacy?**\
 `Some fans miss him. Some fans despise him. One thing's for sure: Barkley's legacy with the New York Giants is complicated.  `\
 https://nytimes.com/athletic/5848305/2024/10/17/saquon-barkley-new-york-giants-legacy-traitor/
-
-**Q&A: Blackhawks president on tickets, United Center renovations**\
-`Faulkner dishes on changes for 2024-25, Connor Bedard, next year's Blackhawks centennial and much more in an interview with The Athletic.`\
-https://nytimes.com/athletic/5847714/2024/10/17/blackhawks-tickets-united-center-renovations/
-
-**Will special teams doom Sabres again? 7 takeaways from loss to Penguins**\
-`Special teams and situational hockey doomed Buffalo in an overtime loss to the Penguins on Wednesday night.`\
-https://nytimes.com/athletic/5849337/2024/10/17/sabres-special-teams-penguins-takeaways/
-
-**Silver: Ricky Pearsall's emotional return included a refreshing dose of levity**\
-`While the rest of the roster eased through Monday's 40-minute practice, Pearsall was breathless after going full speed the whole way.`\
-https://nytimes.com/athletic/5848815/2024/10/17/ricky-pearson-49ers-practice/
-
-**In-season WR trades usually flop. Here's why Davante Adams, Amari Cooper could be different**\
-`Wide receiver trades during the season rarely work out, but rarely do players of Adams' and Cooper's pedigree get dealt in October.`\
-https://nytimes.com/athletic/5841528/2024/10/17/davante-adams-amari-cooper-trade-history/
 
