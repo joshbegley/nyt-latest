@@ -1,3 +1,7 @@
+**The World’s Carbon Sinks Are on Fire**\
+`Carbon emissions from forest fires increased more than 60 percent globally over the past two decades, according to a new study.`\
+https://nytimes.com/2024/10/17/climate/carbon-fires-forests-global-warming.html
+
 **How Early Humans Evolved to Eat Starch**\
 `Two new studies found that ancient human ancestors carried a surprising diversity of genes for amylase, an enzyme that breaks down starch.`\
 https://nytimes.com/2024/10/17/science/neanderthals-starch-amylase-genes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/us/politics/harris-trump-fascism.html
 **In Germany, Biden Prepares for a Farewell Visit to a Key Ally**\
 `The president’s hastily rescheduled trip to Berlin will last less than a day. The German government has trimmed back its celebrations accordingly.`\
 https://nytimes.com/2024/10/17/world/europe/biden-germany-visit-rescheduled.html
-
-**OHL aware of report alleging sexual assault by former players**\
-`The OHL is aware of a report alleging former players sexually assaulted a woman in 2014 and will cooperate if police pursue the incident.`\
-https://nytimes.com/athletic/5850773/2024/10/17/ohl-sexual-assault-allegation-2014-ctv-report/
 
