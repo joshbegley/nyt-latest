@@ -1,3 +1,11 @@
+**Weather Experts Offer a Peek at This Winter’s Forecast**\
+`Winter is coming. But will it bring snow? NOAA announced its annual winter outlook on Thursday.`\
+https://nytimes.com/2024/10/17/weather/winter-weather-forecast.html
+
+**Virginia men's basketball coach Tony Bennett retiring after 18 years**\
+`Bennett, a three-time national coach of the year who went 433-169 in his 18-year career and 364-136 in 15 seasons with the Cavaliers.`\
+https://nytimes.com/athletic/5851713/2024/10/17/virginia-mens-basketball-coach-tony-bennett-announces-retirement/
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/10/17/books/review/new-books-recommendations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5851385/2024/10/17/raiders-reaction-davante-adams-t
 **Behind Nigeria’s Deadliest Road Incident in Years, a Quest for Cheap Fuel**\
 `More than 160 people died when an overturned fuel tanker in northern Nigeria exploded. Witnesses and relatives of victims said poverty had driven most to try to collect the spilled gas.`\
 https://nytimes.com/2024/10/17/world/africa/nigeria-fuel-tanker-explosion-jigawa.html
-
-**‘A Rip-Off’: Students Secure a Final Settlement Against Walden University**\
-`A $28.5 million settlement in a class-action lawsuit against the university helped create a fresh precedent for prosecuting predatory advertising in for-profit education.`\
-https://nytimes.com/2024/10/17/us/politics/walden-university-class-action-settlement.html
-
-**Ian and Noah Eagle to headline Netflix's Christmas Day NFL doubleheader: Sources**\
-`Netflix’s Christmas Day game broadcast will feature a family flair, sources briefed on the crews for the games told The Athletic.`\
-https://nytimes.com/athletic/5851521/2024/10/17/christmas-nfl-broadcast-netflix-noah-ian-eagle/
 
