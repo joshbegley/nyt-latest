@@ -1,3 +1,7 @@
+**Browns to pursue new domed stadium in Brook Park, Ohio**\
+`Cleveland mayor Justin Bibb called the Haslam's decision "profoundly disheartening."`\
+https://nytimes.com/athletic/5851407/2024/10/17/cleveland-browns-stadium-move/
+
 **A New Plan to Transform Newark Airport ‘From Worst to Best’**\
 `The plan, announced Thursday by the Port Authority of New York and New Jersey, includes replacing the rickety AirTrain network and the airport’s dilapidated Terminal B.`\
 https://nytimes.com/2024/10/17/nyregion/newark-airport-airtrain-renovation.html
