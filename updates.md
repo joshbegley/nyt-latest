@@ -1,3 +1,7 @@
+**Egypt Replaces Its Powerful Spy Chief, a Key Gaza Mediator**\
+`Gen. Abbas Kamel, a longtime confidant of Egypt’s president, oversaw the country’s most important international relationships and helped maintain the president’s authoritarian grip.`\
+https://nytimes.com/2024/10/17/world/middleeast/egypt-replaces-spy-chief.html
+
 **Could Second-Home Owners Swing New York’s Swing Districts?**\
 `A group is pushing thousands of New Yorkers to vote from weekend homes in swing districts. Its pitch: “Your second home could determine the next speaker.”`\
 https://nytimes.com/2024/10/17/nyregion/voting-absentee-residence-ny.html
