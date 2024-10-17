@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Second line surges vs. Kings for third straight win**\
+`Bobby McMann, Max Domi and William Nylander were consistent threats all night in a 6-2 victory against the Kings.`\
+https://nytimes.com/athletic/5849118/2024/10/16/maple-leafs-report-cards-mcmann-nylander-domi/
+
 **Ionescu's buzzer-beating 3 gives Liberty 2-1 WNBA Finals edge over Lynx**\
 `Breanna Stewart led both teams with 30 points and 11 rebounds and Ionescu added 13 points.`\
 https://nytimes.com/athletic/5848703/2024/10/16/lynx-liberty-wnba-finals-game-3-result/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/kamala-harris-fox-news-inte
 **Archdiocese of Los Angeles Agrees to Pay $880 Million to Settle Sex Abuse Claims**\
 `The settlement is the highest single payout by an archdiocese, experts said, and brings Los Angeles’s cumulative payout in sex abuse lawsuits to more than $1.5 billion.`\
 https://nytimes.com/2024/10/16/us/archidiocese-los-angeles-abuse-settlement.html
-
-**6 Takeaways From Harris’s Contentious Interview on Fox News**\
-`Pressed and often interrupted by Bret Baier, the vice president opened up a little more distance from President Biden and defended her position on immigration and border security.`\
-https://nytimes.com/2024/10/16/us/politics/kamala-harris-fox-news-interview.html
 
