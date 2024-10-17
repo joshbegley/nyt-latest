@@ -1,3 +1,11 @@
+**Using Tax Cuts and Near-Assassination to Show Trump as a Fighter for Workers**\
+`A pro-Trump super PAC shows Donald Trump’s “Fight! Fight!” response in Butler, Pa., to portray him as a champion for blue-collar Americans.`\
+https://nytimes.com/2024/10/17/us/politics/trump-blue-collar-voters.html
+
+**Shoppers Spend More Freely Than Expected, Sign of Solid U.S. Economy**\
+`A new report showing a rise in retail sales in September indicates that consumer spending, a key engine of economic growth, remains robust.`\
+https://nytimes.com/2024/10/17/business/retail-sales-economy.html
+
 **NFL Week 7 fantasy football, betting cheat sheet: Saints without Chris Olave, Rashid Shaheed**\
 `How will Spencer Rattler and the Saints fare against the Broncos without Chris Olave and Rashid Shaheed? `\
 https://nytimes.com/athletic/5845492/2024/10/17/nfl-week-7-fantasy-football-betting-cheat-sheet-chris-olave-rashid-shaheed-out-for-saints/
