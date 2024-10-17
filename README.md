@@ -1,3 +1,7 @@
+**Browns to pursue new domed stadium in Brook Park, Ohio**\
+`Cleveland mayor Justin Bibb called the Haslam's decision "profoundly disheartening."`\
+https://nytimes.com/athletic/5851407/2024/10/17/cleveland-browns-stadium-move/
+
 **A New Plan to Transform Newark Airport ‘From Worst to Best’**\
 `The plan, announced Thursday by the Port Authority of New York and New Jersey, includes replacing the rickety AirTrain network and the airport’s dilapidated Terminal B.`\
 https://nytimes.com/2024/10/17/nyregion/newark-airport-airtrain-renovation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/business/media/netflix-quarterly-report.html
 **It’s Soft Pretzel and Cider Doughnut Season**\
 `Let’s make some peak fall memories.`\
 https://nytimes.com/2024/10/17/dining/its-soft-pretzel-and-cider-doughnut-season.html
-
-**Wild say captain Jared Spurgeon's absence related to surgeries but 'part of the healing process'**\
-`Also, Joel Eriksson Ek returned to practice Thursday, and John Hynes said he expects Eriksson Ek, Johansson and Brodin to play Saturday.`\
-https://nytimes.com/athletic/5851471/2024/10/17/wild-jared-spurgeon-healing-process/
 
