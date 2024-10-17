@@ -1,3 +1,15 @@
+**On Fox News, Harris Proves She’s Tough**\
+`It was a strong contrast to her interview-dodging opponent.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/kamala-harris-fox-news-interview
+
+**Archdiocese of Los Angeles Agrees to Pay $880 Million to Settle Sex Abuse Claims**\
+`The settlement brings the archdiocese’s cumulative payout in sex abuse lawsuits to more than $1.5 billion.`\
+https://nytimes.com/2024/10/16/us/archidiocese-los-angeles-abuse-settlement.html
+
+**6 Takeaways From Harris’s Combative Interview on Fox News**\
+`Pressed and often interrupted by Bret Baier, the vice president opened up a little more distance from President Biden and defended her position on immigration and border security.`\
+https://nytimes.com/2024/10/16/us/politics/kamala-harris-fox-news-interview.html
+
 **3 People Killed and 4 Injured in Mississippi Bridge Collapse**\
 `A bridge over the Strong River in Simpson County that was being demolished collapsed in a “work site accident,” the authorities said.`\
 https://nytimes.com/2024/10/16/us/mississippi-bridge-collapse.html

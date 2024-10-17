@@ -1,3 +1,15 @@
+**On Fox News, Harris Proves She’s Tough**\
+`It was a strong contrast to her interview-dodging opponent.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/kamala-harris-fox-news-interview
+
+**Archdiocese of Los Angeles Agrees to Pay $880 Million to Settle Sex Abuse Claims**\
+`The settlement brings the archdiocese’s cumulative payout in sex abuse lawsuits to more than $1.5 billion.`\
+https://nytimes.com/2024/10/16/us/archidiocese-los-angeles-abuse-settlement.html
+
+**6 Takeaways From Harris’s Combative Interview on Fox News**\
+`Pressed and often interrupted by Bret Baier, the vice president opened up a little more distance from President Biden and defended her position on immigration and border security.`\
+https://nytimes.com/2024/10/16/us/politics/kamala-harris-fox-news-interview.html
+
 **3 People Killed and 4 Injured in Mississippi Bridge Collapse**\
 `A bridge over the Strong River in Simpson County that was being demolished collapsed in a “work site accident,” the authorities said.`\
 https://nytimes.com/2024/10/16/us/mississippi-bridge-collapse.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/16/world/middleeast/un-gaza-aid-israel.html
 **Penguins' Sidney Crosby becomes 10th NHL player with 1,600 points**\
 `Crosby is also creeping up on Mario Lemieux’s Penguins record for points (1,723).`\
 https://nytimes.com/athletic/5835486/2024/10/16/sidney-crosby-points-record-penguins/
-
-**Finnish hockey mourns first openly gay player in top league after his murder, partner's arrest**\
-`Puhakka, who spent two years with the QMJHL's Chicoutimi Sagueneens, was found shot to death in his home on Sunday night. He was 29.`\
-https://nytimes.com/athletic/5848409/2024/10/16/janne-puhakka-death-finland-hockey-player/
-
-**Into the Gender Gap**\
-`Harris and Trump are trying to address the gender gap. Their approaches could not be more different.`\
-https://nytimes.com/2024/10/16/us/politics/into-the-gender-gap.html
-
-**Columbia Cancer Surgeon Notches 5 More Retractions for Suspicious Data**\
-`Dr. Sam Yoon and a collaborator duplicated images across their research studies over many years. The collaborator has left Columbia.`\
-https://nytimes.com/2024/10/16/science/sam-yoon-columbia-cancer-surgeon-5-more-retractions.html
 
