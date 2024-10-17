@@ -1,3 +1,11 @@
+**In Northern Gaza, Hunger Looms Over Daily Existence**\
+`Families say they are rationing what little food they can find while living under the constant threat of Israeli bombardment.`\
+https://nytimes.com/2024/10/17/world/middleeast/gaza-hunger-war-israel.html
+
+**Sinwar’s Death Could Unlock Stalled Gaza Truce Talks, but Barriers Remain**\
+`The killing of Hamas’s leader may allow Israel to claim victory and agree to a cease-fire, and new Hamas leadership could be more open to compromise. But neither side is likely to fold completely.`\
+https://nytimes.com/2024/10/17/world/middleeast/hamas-leader-sinwar-ceasefire-talks.html
+
 **A Little-Known Trump Relative Is Leading a Campaign for Arab American Voters**\
 `A Trump in-law, along with a former administration official, is on a mission to exploit Democrats’ new weakness with Arab American and Muslim voters.`\
 https://nytimes.com/2024/10/17/us/politics/donald-trump-campaign-michigan-arab-americans.html

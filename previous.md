@@ -1,3 +1,11 @@
+**In Northern Gaza, Hunger Looms Over Daily Existence**\
+`Families say they are rationing what little food they can find while living under the constant threat of Israeli bombardment.`\
+https://nytimes.com/2024/10/17/world/middleeast/gaza-hunger-war-israel.html
+
+**Sinwar’s Death Could Unlock Stalled Gaza Truce Talks, but Barriers Remain**\
+`The killing of Hamas’s leader may allow Israel to claim victory and agree to a cease-fire, and new Hamas leadership could be more open to compromise. But neither side is likely to fold completely.`\
+https://nytimes.com/2024/10/17/world/middleeast/hamas-leader-sinwar-ceasefire-talks.html
+
 **A Little-Known Trump Relative Is Leading a Campaign for Arab American Voters**\
 `A Trump in-law, along with a former administration official, is on a mission to exploit Democrats’ new weakness with Arab American and Muslim voters.`\
 https://nytimes.com/2024/10/17/us/politics/donald-trump-campaign-michigan-arab-americans.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5851139/2024/10/17/college-football-week-8-model-pr
 **Amazon Enters News With Live Election Coverage From Brian Williams**\
 `The tech giant has been increasing live programming on its streaming service, but this will be its first test with news.`\
 https://nytimes.com/2024/10/17/business/media/amazon-brian-williams-election-special.html
-
-**2 Triathletes Dead at World Championships, Organizers Say**\
-`One athlete was from Mexico, and the other was from Britain. The circumstances around their deaths were not immediately clear.`\
-https://nytimes.com/2024/10/17/sports/world-triathlon-championship-deaths-spain.html
-
-**After Clemency Denial, Execution Moves Ahead in Shaken Baby Case**\
-`Barring a last-minute intervention, Robert Roberson was set to be executed on Thursday evening for the death of his 2-year-old child.`\
-https://nytimes.com/2024/10/17/us/texas-execution-robert-roberson.html
 
