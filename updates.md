@@ -1,3 +1,7 @@
+**In India, Some Doctors Go on Hunger Strike to Protest Killing of Colleague**\
+`Six were subsisting only on water and were admitted into the hospital after a multiday fast to demand justice for the brutal rape and killing of a medical resident.`\
+https://nytimes.com/2024/10/17/world/asia/india-doctors-hunger-strike.html
+
 **Milner out for several more weeks after hamstring injury setback**\
 `Brighton &amp; Hove Albion will be without James Milner for several more weeks after a setback in his recovery from a hamstring injury.`\
 https://nytimes.com/athletic/5849648/2024/10/17/james-milner-brighton-injury-setback/
