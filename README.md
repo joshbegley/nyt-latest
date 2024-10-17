@@ -1,3 +1,11 @@
+**Levine Leichtman family complete purchase of San Diego Wave**\
+`Former owner Ron Burkle agreed to sell the club to the Levine Leichtman family in March at a cash outlay of $113 million.`\
+https://nytimes.com/athletic/5849002/2024/10/17/san-diego-wave-sale-levine-leichtman-family/
+
+**It’s Fall. Do You Know Where Your Squash Is?**\
+`Put that kabocha, spaghetti, butternut and honey nut to good use in hearty salads, cozy pastas and a very photogenic galette.`\
+https://nytimes.com/2024/10/17/dining/squash-recipes-fall.html
+
 **Using Tax Cuts and Near-Assassination to Show Trump as a Fighter for Workers**\
 `A pro-Trump super PAC shows Donald Trump’s “Fight! Fight!” response in Butler, Pa., to portray him as a champion for blue-collar Americans.`\
 https://nytimes.com/2024/10/17/us/politics/trump-blue-collar-voters.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/gaza-sin
 **These Tiny Worms Account for at Least 4 Nobel Prizes**\
 `A staple in laboratories worldwide, C. elegans is “an experimental dream,” said one scientist.`\
 https://nytimes.com/2024/10/17/science/nobel-prizes-caenorhabditis-elegans.html
-
-**Wissa could make injury return for Man Utd trip**\
-`Brentford manager Thomas Frank says forward Yoane Wissa could be fit for his side&#8217;s game against Manchester United on Saturday.`\
-https://nytimes.com/athletic/5850758/2024/10/17/brentford-wissa-injury-return-man-utd/
-
-**The U.K. Will Debate Legalizing Assisted Dying. Here’s What to Know.**\
-`A bill introduced in the House of Commons could legalize assisted dying for the terminally ill, under strict conditions. A similar proposal was rejected in 2015.`\
-https://nytimes.com/2024/10/17/world/europe/uk-assisted-suicide-parliament.html
 
