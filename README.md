@@ -1,3 +1,7 @@
+**The Power of Government Policies**\
+`The U.S. has the capacity to address its biggest problems. Whether it does is a different matter.`\
+https://nytimes.com/2024/10/17/briefing/taxes-immigration-economy.html
+
 **Postecoglou hopeful of Son, Richarlison returns for West Ham**\
 `Ange Postecoglou says Tottenham Hotspur captain Son Heung-Min will &#8220;hopefully&#8221; be available for their game against West Ham United on Saturday lunchtime.`\
 https://nytimes.com/athletic/5849724/2024/10/17/son-heung-min-richarlison-injury-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5848626/2024/10/17/chiefs-patrick-mahomes-red-zone-
 **Shane Waldron got off to a shaky start but skipped no steps in turning around Bears offense**\
 `Waldron is open about the fact that conversations with Caleb Williams and other offensive leaders helped spark the Bears offense.`\
 https://nytimes.com/athletic/5847850/2024/10/17/bears-shane-waldron-offense/
-
-**The story behind the Vikings’ 5-0 start: Between chemistry and scheme, it's just 'different'**\
-`The undefeated Vikings are an amalgamation of creative coaching, versatile on-field talent and good vibes. Can they keep it rolling?`\
-https://nytimes.com/athletic/5847614/2024/10/17/minnesota-vikings-undefeated-chemistry-kevin-oconnell/
 
