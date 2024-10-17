@@ -1,3 +1,7 @@
+**OHL aware of report alleging sexual assault by former players**\
+`The OHL is aware of a report alleging former players sexually assaulted a woman in 2014 and will cooperate if police pursue the incident.`\
+https://nytimes.com/athletic/5850773/2024/10/17/ohl-sexual-assault-allegation-2014-ctv-report/
+
 **Mitzi Gaynor, Leading Lady of Movie Musicals, Is Dead at 93**\
 `She was best known for starring in the 1958 screen version of “South Pacific.” But her Hollywood career was brief, and she soon shifted her focus to Las Vegas and TV.`\
 https://nytimes.com/2024/10/17/movies/mitzi-gaynor-dead.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5850696/2024/10/17/lucas-paqueta-fa-investigation/
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/for-the-families-of-hostages-a-moment-of-satisfaction-and-fear
 
-**Yahya Sinwar, Leader of Hamas in Gaza, Is Dead**\
+**Yahya Sinwar, Leader of Hamas, Is Dead**\
 `Mr. Sinwar climbed the ranks of the Palestinian militant group to plot the deadliest attack on Israel in its history.`\
 https://nytimes.com/2024/10/17/world/middleeast/yahya-sinwar-dead.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/dining/squash-recipes-fall.html
 **Using Tax Cuts and Near-Assassination to Show Trump as a Fighter for Workers**\
 `A pro-Trump super PAC shows Donald Trump’s “Fight! Fight!” response in Butler, Pa., to portray him as a champion for blue-collar Americans.`\
 https://nytimes.com/2024/10/17/us/politics/trump-blue-collar-voters.html
-
-**Shoppers Spend More Freely Than Expected, Sign of Solid U.S. Economy**\
-`A new report showing a rise in retail sales in September indicates that consumer spending, a key engine of economic growth, remains robust.`\
-https://nytimes.com/2024/10/17/business/retail-sales-economy.html
 

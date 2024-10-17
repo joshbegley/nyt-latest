@@ -1,3 +1,11 @@
+**OHL aware of report alleging sexual assault by former players**\
+`The OHL is aware of a report alleging former players sexually assaulted a woman in 2014 and will cooperate if police pursue the incident.`\
+https://nytimes.com/athletic/5850773/2024/10/17/ohl-sexual-assault-allegation-2014-ctv-report/
+
+**Yahya Sinwar, Leader of Hamas, Is Dead**\
+`Mr. Sinwar climbed the ranks of the Palestinian militant group to plot the deadliest attack on Israel in its history.`\
+https://nytimes.com/2024/10/17/world/middleeast/yahya-sinwar-dead.html
+
 **Mitzi Gaynor, Leading Lady of Movie Musicals, Is Dead at 93**\
 `She was best known for starring in the 1958 screen version of “South Pacific.” But her Hollywood career was brief, and she soon shifted her focus to Las Vegas and TV.`\
 https://nytimes.com/2024/10/17/movies/mitzi-gaynor-dead.html
