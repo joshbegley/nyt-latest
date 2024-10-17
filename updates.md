@@ -1,4 +1,8 @@
 **Iga Swiatek hires Wim Fissette as new head coach**\
+`The world No. 1 has hired a coach with Grand-Slam-winning pedigree after splitting with Tomasz Wiktorowski.`\
+https://nytimes.com/athletic/5849568/2024/10/17/iga-swiatek-coach-team/
+
+**Iga Swiatek hires Wim Fissette as new head coach**\
 `The world No. 1 has hired a coach with Grand Slam-winning pedigree after splitting with Tomasz Wiktorowski.`\
 https://nytimes.com/athletic/5849568/2024/10/17/iga-swiatek-coach-team/
 
