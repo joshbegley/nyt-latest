@@ -1,3 +1,7 @@
+**Yahya Sinwar, Hamas Leader, Was Killed, Israel Confirms**\
+`Yahya Sinwar has been the No. 1 target for Israel since the beginning of the war in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009766865/hamas-gaza-yahya-sinwar-killed-israel.html
+
 **Weather Experts Offer a Peek at This Winter’s Forecast**\
 `Winter is coming. But will it bring snow? NOAA announced its annual winter outlook on Thursday.`\
 https://nytimes.com/2024/10/17/weather/winter-weather-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/arts/music/adam-abeshouse-dead.html
 **Raiders ready to move on, grateful for closure following Davante Adams' trade to Jets**\
 `Adams said he felt "helpless" in the Raiders offense. Las Vegas OC Luke Getsy “didn’t know the answer” to why it turned out that way.`\
 https://nytimes.com/athletic/5851385/2024/10/17/raiders-reaction-davante-adams-trade-jets/
-
-**Behind Nigeria’s Deadliest Road Incident in Years, a Quest for Cheap Fuel**\
-`More than 160 people died when an overturned fuel tanker in northern Nigeria exploded. Witnesses and relatives of victims said poverty had driven most to try to collect the spilled gas.`\
-https://nytimes.com/2024/10/17/world/africa/nigeria-fuel-tanker-explosion-jigawa.html
 

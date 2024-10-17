@@ -1,3 +1,7 @@
+**Yahya Sinwar, Hamas Leader, Was Killed, Israel Confirms**\
+`Yahya Sinwar has been the No. 1 target for Israel since the beginning of the war in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009766865/hamas-gaza-yahya-sinwar-killed-israel.html
+
 **Virginia men's basketball coach Tony Bennett retiring after 18 years**\
 `Bennett, a three-time national coach of the year who went 433-169 in his 18-year career, led the Cavaliers to the 2019 national championship`\
 https://nytimes.com/athletic/5851713/2024/10/17/virginia-mens-basketball-coach-tony-bennett-announces-retirement/
