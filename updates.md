@@ -1,3 +1,19 @@
+**How the Biden Team Plans to Build Peace From Sinwar’s Death**\
+`Will Israel take steps toward a Palestinian state?`\
+https://nytimes.com/2024/10/17/opinion/israel-hamas-war.html
+
+**College football super league proposals must first overcome Big Ten, SEC skepticism**\
+`The super league proposals intend to solve all of college football’s issues. The first challenge is convincing the Big Ten and SEC.`\
+https://nytimes.com/athletic/5851213/2024/10/17/college-football-super-league-project-rudy-big-ten-sec/
+
+**Ta-Nehisi Coates and the Myth of Black Fragility**\
+`The debate over his recent interview entirely misses the point`\
+https://nytimes.com/2024/10/17/opinion/ta-nehisi-coates-and-the-myth-of-black-fragility.html
+
+**Todd McFarlane on sports action figures and his interest in Ohtani's 50th home run ball**\
+`Plus what's holding McFarlane Toys back from making Caitlin Clark action figures `\
+https://nytimes.com/athletic/5850538/2024/10/17/todd-mcfarlane-ohtani-auction-action-figures/
+
 **How Times Readers Made the Switch to Heat Pumps**\
 `Hundreds of Times readers wrote to us and shared their experiences of installing heat pumps, including the good, the bad and the daunting.`\
 https://nytimes.com/2024/10/17/climate/switching-to-a-heat-pump.html
