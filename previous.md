@@ -1,3 +1,7 @@
+**Biden Talks to Netanyahu About Sinwar’s Death and Getting to a Cease-Fire**\
+`After arriving in Berlin for previously scheduled meetings, the president said he was sending the secretary of state to Israel in the coming days.`\
+https://nytimes.com/2024/10/17/world/middleeast/biden-netanyahu-israel-hamas-war.html
+
 **Father and Son Indicted on Murder Charges for Georgia School Shooting**\
 `A grand jury handed up charges against Colt Gray, 14, who is accused of killing four people at his high school. His father, Colin Gray, is accused of giving him access to the murder weapon.`\
 https://nytimes.com/2024/10/17/us/georgia-school-shooting-indictment.html
@@ -14,7 +18,7 @@ https://nytimes.com/video/world/middleeast/100000009766865/hamas-gaza-yahya-sinw
 `Winter is coming. But will it bring snow? NOAA announced its annual winter outlook on Thursday.`\
 https://nytimes.com/2024/10/17/weather/winter-weather-forecast.html
 
-**Virginia men's basketball coach Tony Bennett retires after 18 years**\
+**Virginia men's basketball coach Tony Bennett, 55, retires on cusp of season**\
 `Bennett, a three-time national coach of the year who led Virginia to the 2019 national title, went 364-136 in 15 seasons with the Cavaliers.`\
 https://nytimes.com/athletic/5851713/2024/10/17/tony-bennett-virginia-retirement/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5851407/2024/10/17/cleveland-browns-stadium-move/
 **A New Plan to Transform Newark Airport ‘From Worst to Best’**\
 `The plan, announced Thursday by the Port Authority of New York and New Jersey, includes replacing the rickety AirTrain network and the airport’s dilapidated Terminal B.`\
 https://nytimes.com/2024/10/17/nyregion/newark-airport-airtrain-renovation.html
-
-**Sam Brown, Republican Candidate for Senate in Nevada, Struggles for Traction**\
-`Mr. Brown, who has never held elected office, has found himself outpaced by Senator Jacky Rosen, the low-key and well-financed Democratic incumbent. A debate Thursday night presents a key test.`\
-https://nytimes.com/2024/10/17/us/politics/jacky-rosen-sam-brown-nevada-senate.html
 

@@ -1,3 +1,11 @@
+**Biden Talks to Netanyahu About Sinwar’s Death and Getting to a Cease-Fire**\
+`After arriving in Berlin for previously scheduled meetings, the president said he was sending the secretary of state to Israel in the coming days.`\
+https://nytimes.com/2024/10/17/world/middleeast/biden-netanyahu-israel-hamas-war.html
+
+**Virginia men's basketball coach Tony Bennett, 55, retires on cusp of season**\
+`Bennett, a three-time national coach of the year who led Virginia to the 2019 national title, went 364-136 in 15 seasons with the Cavaliers.`\
+https://nytimes.com/athletic/5851713/2024/10/17/tony-bennett-virginia-retirement/
+
 **Virginia men's basketball coach Tony Bennett retires after 18 years**\
 `Bennett, a three-time national coach of the year who led Virginia to the 2019 national title, went 364-136 in 15 seasons with the Cavaliers.`\
 https://nytimes.com/athletic/5851713/2024/10/17/tony-bennett-virginia-retirement/
