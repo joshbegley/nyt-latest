@@ -1,3 +1,7 @@
+**Sinwar Evaded Israeli Intelligence for Years. Trainee Soldiers Came Upon Him.**\
+`A unit from the Israeli military encountered Yahya Sinwar, the leader of Hamas, while on an operation in southern Gaza, Israeli defense officials said.`\
+https://nytimes.com/2024/10/17/world/middleeast/sinwar-israeli-intelligence.html
+
 **How the Biden Team Plans to Build Peace From Sinwar’s Death**\
 `Will Israel take steps toward a Palestinian state?`\
 https://nytimes.com/2024/10/17/opinion/israel-hamas-war.html

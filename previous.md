@@ -26,7 +26,7 @@ https://nytimes.com/2024/10/17/us/politics/trump-rally-speeches.html
 `A body double to the stars, he performed sometimes bone-breaking feats in movies like “Return of the Jedi” and “Back to the Future.” And he was still at it in his 80s.`\
 https://nytimes.com/2024/10/17/movies/bob-yerkes-dead.html
 
-**Sinwar Evaded Israeli Intelligence for Years. Trainee Soldiers Found Him.**\
+**Sinwar Evaded Israeli Intelligence for Years. Trainee Soldiers Came Upon Him.**\
 `A unit from the Israeli military encountered Yahya Sinwar, the leader of Hamas, while on an operation in southern Gaza, Israeli defense officials said.`\
 https://nytimes.com/2024/10/17/world/middleeast/sinwar-israeli-intelligence.html
 
