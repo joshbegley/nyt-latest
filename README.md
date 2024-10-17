@@ -1,3 +1,7 @@
+**Harris Says Hamas Leader’s Killing Offers Chance to End Gaza War**\
+`“It is time for the day after to begin without Hamas in power,” the vice president said after the Israeli military confirmed that Yahya Sinwar, the leader of the militant group, had been killed.`\
+https://nytimes.com/2024/10/17/us/politics/harris-yahya-sinwar-hamas-israel-gaza.html
+
 **In Northern Gaza, Hunger Looms Over Daily Existence**\
 `Families say they are rationing what little food they can find while living under the constant threat of Israeli bombardment.`\
 https://nytimes.com/2024/10/17/world/middleeast/gaza-hunger-war-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/arts/music/liam-payne-death-what-we-know.html
 **College football Week 8 model-projected point differentials and totals for every game**\
 `Austin Mock's model has predicted point differentials and point totals for every FBS vs. FBS Week 8 college football game.`\
 https://nytimes.com/athletic/5851139/2024/10/17/college-football-week-8-model-projections-predicted-scores/
-
-**Amazon Enters News With Live Election Coverage From Brian Williams**\
-`The tech giant has been increasing live programming on its streaming service, but this will be its first test with news.`\
-https://nytimes.com/2024/10/17/business/media/amazon-brian-williams-election-special.html
 
