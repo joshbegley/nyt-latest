@@ -1,3 +1,7 @@
+**The International Criminal Court’s chief prosecutor sought warrants for 3 Hamas leaders. All 3 are now dead.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/the-international-criminal-courts-chief-prosecutor-sought-warrants-for-3-hamas-leaders-all-3-are-now-dead
+
 **Surprise Battlefield Encounter Led to Hamas Leader’s Death**\
 `Although Yahya Sinwar was a major target of Israel’s military campaign in Gaza, the soldiers who killed the militant chief had not expected to run across him, Israeli officials said.`\
 https://nytimes.com/2024/10/17/world/middleeast/hamas-sinwar-gaza-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/us/politics/latino-voters-election-disinformation
 **Cher, Tyra Banks and Cara Delevingne Toast Burberry**\
 `The British brand hosted a starry cocktail party to celebrate a makeover of its flagship store.`\
 https://nytimes.com/2024/10/17/style/burberry-cher-tyra-banks.html
-
-**Why the Heck Isn’t She Running Away With This?**\
-`After huge shifts in the electorate, it’s baffling that the two parties are still almost exactly evenly matched.`\
-https://nytimes.com/2024/10/17/opinion/harris-trump-close-race.html
 
