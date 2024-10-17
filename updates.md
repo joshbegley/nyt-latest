@@ -1,3 +1,11 @@
+**Chicago Fire owner calls soccer-specific stadium the 'last piece of the puzzle'**\
+`Mansueto said the club has started to tour possible sites. `\
+https://nytimes.com/athletic/5851885/2024/10/17/chicago-fire-owner-soccer-stadium/
+
+**Groups That Run N.Y.C. Shelters Are Riddled With Problems, Report Finds**\
+`An extensive review by New York City’s Department of Investigation identified hundreds of issues, including financial mismanagement, nepotism and conflicts of interest.`\
+https://nytimes.com/2024/10/17/nyregion/nyc-homeless-shelters.html
+
 **Marvin Preston IV, 80, Dies; Saved the Martha Graham Dance Company**\
 `An expert at rescuing distressed companies, he took over the struggling organization in 2000, leading it through a painful restructuring and a lengthy legal battle.`\
 https://nytimes.com/2024/10/17/arts/dance/marvin-preston-dead.html
