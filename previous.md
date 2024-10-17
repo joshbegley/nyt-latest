@@ -1,3 +1,7 @@
+**Prosecutors Argue Sean Combs Can’t ‘Pay His Way Out of Detention’**\
+`In a new filing, the government said the music mogul, who has proposed a sizable bail package as part of his bid to be released, should remain incarcerated.`\
+https://nytimes.com/2024/10/17/arts/music/sean-combs-diddy-bail-appeal-private-security.html
+
 **Real Madrid, Trent Alexander-Arnold and the methods of a 'market opportunity' signing**\
 `The Liverpool right-back's contract is due to expire next summer and Madrid have made him their priority target. What might come next?`\
 https://nytimes.com/athletic/5850290/2024/10/17/real-madrid-trent-alexander-arnold-liverpool-transfer-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/us/politics/us-weapons-israel-ukraine.html
 **Review: Mercurial Moves Take Over the Stage in a Stark, New Ballet**\
 `American Ballet Theater opened its fall season at Lincoln Center with premieres by Gemma Bond and Kyle Abraham in his most accomplished ballet yet.`\
 https://nytimes.com/2024/10/17/arts/dance/review-ballet-theater-kyle-abraham-gemma-bond.html
-
-**Inside Victor Mancini's unlikely NHL path: Doubts, disappointments and a prospect with 'all the tools'**\
-`Mancini has become a surprise success story after going undrafted twice: “When this kid puts his mind to something, don’t bet against him.”`\
-https://nytimes.com/athletic/5848707/2024/10/17/victor-mancini-rangers-nhl-prospect-rise/
 

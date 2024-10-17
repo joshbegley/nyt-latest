@@ -1,3 +1,7 @@
+**Prosecutors Argue Sean Combs Can’t ‘Pay His Way Out of Detention’**\
+`In a new filing, the government said the music mogul, who has proposed a sizable bail package as part of his bid to be released, should remain incarcerated.`\
+https://nytimes.com/2024/10/17/arts/music/sean-combs-diddy-bail-appeal-private-security.html
+
 **Real Madrid, Trent Alexander-Arnold and the methods of a 'market opportunity' signing**\
 `The Liverpool right-back's contract is due to expire next summer and Madrid have made him their priority target. What might come next?`\
 https://nytimes.com/athletic/5850290/2024/10/17/real-madrid-trent-alexander-arnold-liverpool-transfer-contract/
