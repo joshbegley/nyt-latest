@@ -1,3 +1,7 @@
+**Sinwar had been a priority target for Israel since his release from prison in 2011.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/israel-military-hamas-sinwar-killing-attempts
+
 **Chicago Fire owner calls soccer-specific stadium the 'last piece of the puzzle'**\
 `Mansueto said the club has started to tour possible sites. `\
 https://nytimes.com/athletic/5851885/2024/10/17/chicago-fire-owner-soccer-stadium/
