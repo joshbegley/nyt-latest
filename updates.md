@@ -1,3 +1,11 @@
+**TMZ Criticized for Image Said to Be of Liam Payne, One Direction Singer**\
+`After a torrent of criticism, TMZ removed the image of a body without explanation.`\
+https://nytimes.com/2024/10/16/business/media/tmz-liam-payne-body-image.html
+
+**Can Harris Really Build 3 Million New Housing Units?**\
+`By Conor Dougherty and Anna Watts`\
+https://nytimes.com/interactive/2024/10/16/us/elections/kamala-harris-housing-policy.html
+
 **Archdiocese of Los Angeles Agrees to Pay $880 Million to Settle Sex Abuse Claims**\
 `The settlement is the highest single payout by an archdiocese, experts said, and brings Los Angeles’s cumulative payout in sex abuse lawsuits to more than $1.5 billion.`\
 https://nytimes.com/2024/10/16/us/archidiocese-los-angeles-abuse-settlement.html
