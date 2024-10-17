@@ -1,3 +1,7 @@
+**Fan Bingbing, Once China’s Top Actress, Returns to Film Years After Tax Scandal**\
+`Fan was a megastar until in 2018, when she was fined tens of millions of dollars over unpaid taxes and her career tanked. “Green Night” is her first film since the scandal.`\
+https://nytimes.com/2024/10/17/world/asia/fan-bingbing-movie-star-returns.html
+
 **Ryder Cup ticket prices have never been higher. That's a real problem for golf**\
 `It'll cost around $750 to attend the 2025 Ryder Cup at Bethpage Black in New York, another sign they don't care about normal golf fans.`\
 https://nytimes.com/athletic/5850366/2024/10/17/ryder-cup-ticket-prices-golf-bethpage-black-2025/

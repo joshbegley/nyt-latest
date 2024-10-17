@@ -1,3 +1,7 @@
+**Fan Bingbing, Once China’s Top Actress, Returns to Film Years After Tax Scandal**\
+`Fan was a megastar until in 2018, when she was fined tens of millions of dollars over unpaid taxes and her career tanked. “Green Night” is her first film since the scandal.`\
+https://nytimes.com/2024/10/17/world/asia/fan-bingbing-movie-star-returns.html
+
 **Ryder Cup ticket prices have never been higher. That's a real problem for golf**\
 `It'll cost around $750 to attend the 2025 Ryder Cup at Bethpage Black in New York, another sign they don't care about normal golf fans.`\
 https://nytimes.com/athletic/5850366/2024/10/17/ryder-cup-ticket-prices-golf-bethpage-black-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5849907/2024/10/17/shohei-ohtani-kike-hernandez-dod
 **The Bounce: How many playoff teams are in the Southwest division?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5849878/2024/10/17/southwest-division-grizzlies-spurs-rockets-mavericks-pelicans-nba-the-bounce/
-
-**Knicks' new jersey patch to feature Experience Abu Dhabi logo**\
-`The deal between MSG and Experience Abu Dhabi will also include advertising for the company before, during and after Knicks games.`\
-https://nytimes.com/athletic/5850002/2024/10/17/knicks-jersey-patch-experience-abu-dhabi/
 
