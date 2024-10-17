@@ -1,3 +1,7 @@
+**A Little-Known Trump Relative Is Leading a Campaign for Arab American Voters**\
+`A Trump in-law, along with a former administration official, is on a mission to exploit Democrats’ new weakness with Arab American and Muslim voters.`\
+https://nytimes.com/2024/10/17/us/politics/donald-trump-campaign-michigan-arab-americans.html
+
 **Yamamoto, Ohtani, Darvish showdown was Japan's most watched MLB playoff game**\
 `MLB said the game drew a 19.2 rating in Japan, which amounts to an estimated 12.9 million average viewers.`\
 https://nytimes.com/athletic/5851099/2024/10/17/japan-mlb-playoff-game-viewers-darvish-ohtani-yamamoto/
