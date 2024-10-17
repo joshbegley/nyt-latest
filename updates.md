@@ -1,3 +1,7 @@
+**Jimmy Kimmel Slams Trump’s Women-Centered Town Hall**\
+`“This was the first time Groper Cleveland has been around this many women since they started padlocking the doors at Miss Teen USA,” Kimmel said on Wednesday.`\
+https://nytimes.com/2024/10/17/arts/television/latenight-trump-womens-town-hall.html
+
 **With one pitch, Walker Buehler shows how much he's changed as Dodgers take Game 3**\
 `Max Muncy said: “There’s never a moment that gets too big for him. He was Walker Buehler tonight."`\
 https://nytimes.com/athletic/5849395/2024/10/17/dodgers-nlcs-walker-buehler/
