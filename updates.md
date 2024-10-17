@@ -1,3 +1,7 @@
+**Maple Leafs report cards: Second line surges vs. Kings for third straight win**\
+`Bobby McMann, Max Domi and William Nylander were consistent threats all night in a 6-2 victory against the Kings.`\
+https://nytimes.com/athletic/5849118/2024/10/16/maple-leafs-report-cards-mcmann-nylander-domi/
+
 **6 Takeaways From Harris’s Contentious Interview on Fox News**\
 `Pressed and often interrupted by Bret Baier, the vice president opened up a little more distance from President Biden and defended her position on immigration and border security.`\
 https://nytimes.com/2024/10/16/us/politics/kamala-harris-fox-news-interview.html
