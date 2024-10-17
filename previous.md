@@ -14,9 +14,9 @@ https://nytimes.com/video/world/middleeast/100000009766865/hamas-gaza-yahya-sinw
 `Winter is coming. But will it bring snow? NOAA announced its annual winter outlook on Thursday.`\
 https://nytimes.com/2024/10/17/weather/winter-weather-forecast.html
 
-**Virginia men's basketball coach Tony Bennett retiring after 18 years**\
+**Virginia men's basketball coach Tony Bennett retires after 18 years**\
 `Bennett, a three-time national coach of the year who went 433-169 in his 18-year career, led the Cavaliers to the 2019 national championship`\
-https://nytimes.com/athletic/5851713/2024/10/17/virginia-mens-basketball-coach-tony-bennett-announces-retirement/
+https://nytimes.com/athletic/5851713/2024/10/17/tony-bennett-virginia-retirement/
 
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\

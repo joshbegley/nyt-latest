@@ -1,3 +1,7 @@
+**Virginia men's basketball coach Tony Bennett retires after 18 years**\
+`Bennett, a three-time national coach of the year who went 433-169 in his 18-year career, led the Cavaliers to the 2019 national championship`\
+https://nytimes.com/athletic/5851713/2024/10/17/tony-bennett-virginia-retirement/
+
 **Browns to pursue new domed stadium in Brook Park, Ohio**\
 `Cleveland mayor Justin Bibb called the Haslams' decision "profoundly disheartening."`\
 https://nytimes.com/athletic/5851407/2024/10/17/cleveland-browns-stadium-move/
