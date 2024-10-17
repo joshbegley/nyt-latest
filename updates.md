@@ -1,3 +1,7 @@
+**Archdiocese of Los Angeles Agrees to Pay $880 Million to Settle Sex Abuse Claims**\
+`The settlement is the highest single payout by an archdiocese, experts said, and brings Los Angeles’s cumulative payout in sex abuse lawsuits to more than $1.5 billion.`\
+https://nytimes.com/2024/10/16/us/archidiocese-los-angeles-abuse-settlement.html
+
 **Corrections: Oct. 17, 2024**\
 `Corrections that appeared in print on Thursday, Oct. 17, 2024.`\
 https://nytimes.com/2024/10/16/pageoneplus/corrections-oct-17-2024.html
