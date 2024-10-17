@@ -1,3 +1,19 @@
+**Surprise Battlefield Encounter Led to Hamas Leader’s Death**\
+`Although Yahya Sinwar was a major target of Israel’s military campaign in Gaza, the soldiers who killed the militant chief had not expected to run across him, Israeli officials said.`\
+https://nytimes.com/2024/10/17/world/middleeast/hamas-sinwar-gaza-israel.html
+
+**How Trump’s Radical Tariff Plan Could Wreck Our Economy**\
+`There’s no upside to the former president’s pet economic plan.`\
+https://nytimes.com/2024/10/17/opinion/trump-tariffs-economy.html
+
+**With Sinwar Dead, We Must End the War in Gaza**\
+`Another opening for the U.S. to push for a cease-fire.`\
+https://nytimes.com/2024/10/17/opinion/yahya-sinwar-dead-hamas-gaza.html
+
+**Until Saturday: Midseason awards, plus Week 8 viewer guide**\
+`Welcome to Until Saturday, the five-star college football newsletter: Week 8's viewer guide.`\
+https://nytimes.com/athletic/5849922/2024/10/17/college-football-midseason-week-8-until-saturday/
+
 **Israeli Military Drone Footage Claims to Show Sinwar Shortly Before He Was Killed**\
 `The video shows a room that matches photographs obtained by The Times that show the corpse of a man closely resembling the Hamas leader.`\
 https://nytimes.com/2024/10/17/world/middleeast/yahya-sinwar-death-drone-footage.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/17/style/burberry-cher-tyra-banks.html
 **Why the Heck Isn’t She Running Away With This?**\
 `After huge shifts in the electorate, it’s baffling that the two parties are still almost exactly evenly matched.`\
 https://nytimes.com/2024/10/17/opinion/harris-trump-close-race.html
-
-**U.K. Foreign Secretary Visits China in Bid to Reset Relations**\
-`David Lammy is set to meet China’s foreign minister in Beijing on Friday, in a trip the British government said would acknowledge “areas of contention as well as areas for cooperation.”`\
-https://nytimes.com/2024/10/17/world/europe/david-lammy-uk-china-visit.html
-
-**Harris Slams Trump for Calling Jan. 6 a ‘Day of Love’**\
-`Speaking at a campaign rally in La Crosse, Wis., Vice President Kamala Harris said former President Donald J. Trump was “gaslighting” Americans with his effort to rewrite the history of Jan. 6, 2021.`\
-https://nytimes.com/video/us/elections/100000009768581/harris-trump-jan6-capitol.html
-
-**Sinwar had been a priority target for Israel since his release from prison in 2011.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/israel-military-hamas-sinwar-killing-attempts
-
-**Chicago Fire owner calls soccer-specific stadium the 'last piece of the puzzle'**\
-`Mansueto said the club has started to tour possible sites. `\
-https://nytimes.com/athletic/5851885/2024/10/17/chicago-fire-owner-soccer-stadium/
 
