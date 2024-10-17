@@ -1,3 +1,7 @@
+**Could Chargers reunite with Mike Williams? Why it might make sense**\
+`The Chargers have struggled in the passing attack and need more receiving depth. Could Herbert's former favorite target be the answer?`\
+https://nytimes.com/athletic/5851248/2024/10/17/chargers-mike-williams-reunion-trade-jets/
+
 **Yamal, Neves, Garnacho on Golden Boy shortlist: What is the award and when will winner be announced?**\
 `With the Golden Boy shortlist revealed, we take a look at the award, when and how will it be decided and who could win it this year.`\
 https://nytimes.com/athletic/5790415/2024/10/17/golden-boy-award-yamal-neves-garnacho/
