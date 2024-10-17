@@ -1,3 +1,7 @@
+**European Central Bank Cuts Rates Again as Inflation Cools**\
+`Policymakers who set interest rates for the 20 countries that use the euro have lowered rates in back-to-back meetings for the first time since 2011.`\
+https://nytimes.com/2024/10/17/business/ecb-interest-rate-cut-inflation.html
+
 **A breakdown of Erik Brännström's puck moving and why history is on Elias Pettersson's side**\
 `Plus Carson Soucy's sluggish start and his role in stabilizing the Canucks' bottom four.`\
 https://nytimes.com/athletic/5849564/2024/10/17/canucks-erik-brannstrom-elias-pettersson/
