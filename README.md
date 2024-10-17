@@ -1,3 +1,7 @@
+**Ohtani, Kiké Hernández do it again: Dodgers teammates in awe of their amazing October feats**\
+`Ohtani and Hernández are having a heck of a postseason. Let's break down how great they've been.`\
+https://nytimes.com/athletic/5849907/2024/10/17/shohei-ohtani-kike-hernandez-dodgers-nlcs-game-3/
+
 **The Bounce: How many playoff teams are in the Southwest division?**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5849878/2024/10/17/southwest-division-grizzlies-spurs-rockets-mavericks-pelicans-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5849827/2024/10/17/man-city-women-therese-sjogran/
 **Ex-Chesterfield manager James Rowe found not guilty of sexual assault**\
 `Former Chesterfield manager James Rowe has been found not guilty of sexual assault in a trial lasting seven days at Derby Crown Court.`\
 https://nytimes.com/athletic/5849956/2024/10/17/james-rowe-trial-verdict/
-
-**European Central Bank Cuts Rates Again as Inflation Cools**\
-`Policymakers who set interest rates for the 20 countries that use the euro have lowered rates in back-to-back meetings for the first time since 2011.`\
-https://nytimes.com/2024/10/17/business/ecb-interest-rate-cut-inflation.html
 
