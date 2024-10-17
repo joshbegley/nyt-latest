@@ -1,3 +1,11 @@
+**Wissa could make injury return for Man Utd trip**\
+`Brentford manager Thomas Frank says forward Yoane Wissa could be fit for his side&#8217;s game against Manchester United on Saturday.`\
+https://nytimes.com/athletic/5850758/2024/10/17/brentford-wissa-injury-return-man-utd/
+
+**The U.K. Will Debate Legalizing Assisted Dying. Here’s What to Know.**\
+`A bill introduced in the House of Commons could legalize assisted dying for the terminally ill, under strict conditions. A similar proposal was rejected in 2015.`\
+https://nytimes.com/2024/10/17/world/europe/uk-assisted-suicide-parliament.html
+
 **Steelers' Fields candid about performance: 'Don't think I played good enough'**\
 `"If I did play well enough, I don’t think there would be any sort of (question) who should be playing, who should not," Fields said.`\
 https://nytimes.com/athletic/5850762/2024/10/17/justin-fields-steelers-qb-russell-wilson/

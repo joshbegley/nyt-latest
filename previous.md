@@ -1,10 +1,18 @@
-**Steelers' Fields candid about performance: 'Don't think I played good enough'**\
-`"If I did play well enough, I don’t think there would be any sort of (question) who should be playing, who should not," Fields said.`\
-https://nytimes.com/athletic/5850762/2024/10/17/justin-fields-steelers-qb-russell-wilson/
-
 **These Tiny Worms Account for at Least 4 Nobel Prizes**\
 `A staple in laboratories worldwide, C. elegans is “an experimental dream,” said one scientist.`\
 https://nytimes.com/2024/10/17/science/nobel-prizes-caenorhabditis-elegans.html
+
+**Wissa could make injury return for Man Utd trip**\
+`Brentford manager Thomas Frank says forward Yoane Wissa could be fit for his side&#8217;s game against Manchester United on Saturday.`\
+https://nytimes.com/athletic/5850758/2024/10/17/brentford-wissa-injury-return-man-utd/
+
+**The U.K. Will Debate Legalizing Assisted Dying. Here’s What to Know.**\
+`A bill introduced in the House of Commons could legalize assisted dying for the terminally ill, under strict conditions. A similar proposal was rejected in 2015.`\
+https://nytimes.com/2024/10/17/world/europe/uk-assisted-suicide-parliament.html
+
+**Steelers' Fields candid about performance: 'Don't think I played good enough'**\
+`"If I did play well enough, I don’t think there would be any sort of (question) who should be playing, who should not," Fields said.`\
+https://nytimes.com/athletic/5850762/2024/10/17/justin-fields-steelers-qb-russell-wilson/
 
 **U.S. Wrestles With Aiding Allies and Maintaining Its Own Weapons Supply**\
 `Pentagon officials discuss whether the flow of assistance could be hurting the military’s ability to respond to a new conflict.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5850688/2024/10/17/dodgers-mets-mlb-playoffs-the-wi
 **Gazans Are So Malnourished That They Could Face Famine, Report Warns**\
 `A hunger emergency has affected nearly all of Gaza, but the situation is worst for people in the north, where Israeli forces intensified operations this month, the report said.`\
 https://nytimes.com/2024/10/17/world/middleeast/gaza-malnourished-famine-warnings.html
-
-**Betting for (by) dummies: Chiefs overdue for a loss and the over in Georgia vs. Texas**\
-`Picking Georgia and the over in Bulldogs vs. Longhorns for the week's marquee game, plus time for Chiefs to lose one?`\
-https://nytimes.com/athletic/5850152/2024/10/17/betting-for-by-dummies-chiefs-49ers-georgia-texas/
-
-**Trump Tests Republican Appetite for Tax Cuts**\
-`Former President Donald J. Trump’s costly tax agenda undermines the changes he signed into law in 2017. Some Republicans are wary.`\
-https://nytimes.com/2024/10/17/us/politics/trump-tax-cuts.html
 
