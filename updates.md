@@ -1,3 +1,7 @@
+**NFL Week 7 fantasy football, betting cheat sheet: Saints without Chris Olave, Rashid Shaheed**\
+`How will Spencer Rattler and the Saints fare against the Broncos without Chris Olave and Rashid Shaheed? `\
+https://nytimes.com/athletic/5845492/2024/10/17/nfl-week-7-fantasy-football-betting-cheat-sheet-chris-olave-rashid-shaheed-out-for-saints/
+
 **Prosecutors Argue Sean Combs Can’t ‘Pay His Way Out of Detention’**\
 `In a new filing, the government said the music mogul, who has proposed a sizable bail package as part of his bid to be released, should remain incarcerated.`\
 https://nytimes.com/2024/10/17/arts/music/sean-combs-diddy-bail-appeal-private-security.html

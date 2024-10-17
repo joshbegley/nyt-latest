@@ -1,3 +1,7 @@
+**NFL Week 7 fantasy football, betting cheat sheet: Saints without Chris Olave, Rashid Shaheed**\
+`How will Spencer Rattler and the Saints fare against the Broncos without Chris Olave and Rashid Shaheed? `\
+https://nytimes.com/athletic/5845492/2024/10/17/nfl-week-7-fantasy-football-betting-cheat-sheet-chris-olave-rashid-shaheed-out-for-saints/
+
 **Prosecutors Argue Sean Combs Can’t ‘Pay His Way Out of Detention’**\
 `In a new filing, the government said the music mogul, who has proposed a sizable bail package as part of his bid to be released, should remain incarcerated.`\
 https://nytimes.com/2024/10/17/arts/music/sean-combs-diddy-bail-appeal-private-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5850762/2024/10/17/justin-fields-steelers-qb-russel
 **U.S. Wrestles With Aiding Allies and Maintaining Its Own Weapons Supply**\
 `Pentagon officials discuss whether the flow of assistance could be hurting the military’s ability to respond to a new conflict.`\
 https://nytimes.com/2024/10/17/us/politics/us-weapons-israel-ukraine.html
-
-**Review: Mercurial Moves Take Over the Stage in a Stark, New Ballet**\
-`American Ballet Theater opened its fall season at Lincoln Center with premieres by Gemma Bond and Kyle Abraham in his most accomplished ballet yet.`\
-https://nytimes.com/2024/10/17/arts/dance/review-ballet-theater-kyle-abraham-gemma-bond.html
 
