@@ -1,3 +1,11 @@
+**The Bounce: How many playoff teams are in the Southwest division?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5849878/2024/10/17/southwest-division-grizzlies-spurs-rockets-mavericks-pelicans-nba-the-bounce/
+
+**Knicks' new jersey patch to feature Experience Abu Dhabi logo**\
+`The deal between MSG and Experience Abu Dhabi will also include advertising for the company before, during and after Knicks games.`\
+https://nytimes.com/athletic/5850002/2024/10/17/knicks-jersey-patch-experience-abu-dhabi/
+
 **Jordan Kyrou, Robert Thomas back on Blues' No. 1 line: 'They need to be top players for us'**\
 `The Blues are reuniting Kyrou and Thomas to help spark an offense that has been forced to come from behind a lot this season.`\
 https://nytimes.com/athletic/5847999/2024/10/17/jordan-kyrou-robert-thomas-reunited-blues/
