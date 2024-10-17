@@ -1,3 +1,7 @@
+**Alone in the Dark: The Nightmare of Bangladesh’s Secret Underground Prison**\
+`In the House of Mirrors, political captives were pushed to the brink of insanity and death. Some are telling their stories now that the woman who put them there, Sheikh Hasina, is gone.`\
+https://nytimes.com/2024/10/17/world/asia/bangladesh-disappeared.html
+
 **U.S. Stealth Bombers Attack Houthi Weapons Caches in Yemen**\
 `Air Force B-2 bombers struck five underground weapons facilities in what may be a signal from the Biden administration to Iran.`\
 https://nytimes.com/2024/10/17/us/politics/houthis-strike-stealth-bombers.html
