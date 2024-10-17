@@ -1,3 +1,7 @@
+**Art Adviser to the Elite Pleads Guilty to Wire Fraud**\
+`Lisa Schiff acknowledges stealing millions from major collectors who trusted her to buy them fashionable art.`\
+https://nytimes.com/2024/10/17/arts/design/art-adviser-wire-fraud-lisa-schiff.html
+
 **The International Criminal Court’s chief prosecutor sought warrants for 3 Hamas leaders. All 3 are now dead.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/the-international-criminal-courts-chief-prosecutor-sought-warrants-for-3-hamas-leaders-all-3-are-now-dead
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5851976/2024/10/17/gregg-berhalter-usmnt-firing-chi
 **What Keeps Latino Voting-Rights Activists Up at Night? Disinformation**\
 `Activists say the nefarious material is more widespread, sophisticated and complex than ever.`\
 https://nytimes.com/2024/10/17/us/politics/latino-voters-election-disinformation.html
-
-**Cher, Tyra Banks and Cara Delevingne Toast Burberry**\
-`The British brand hosted a starry cocktail party to celebrate a makeover of its flagship store.`\
-https://nytimes.com/2024/10/17/style/burberry-cher-tyra-banks.html
 
