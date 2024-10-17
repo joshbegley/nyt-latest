@@ -1,3 +1,11 @@
+**The killing of Sinwar is another blow to Iran.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/sinwar-hamas-death-iran
+
+**Texas Attorney General Sues Doctor Over Treatment for Transgender Minors**\
+`Ken Paxton, the attorney general, said it was the first enforcement action under a state ban on treatment.`\
+https://nytimes.com/2024/10/17/us/texas-transgender-treatment-lawsuit.html
+
 **In Rambling Interview, Trump Blames Zelensky, Not Putin, for Ukraine War**\
 `The war began when Russia invaded Ukraine, but Donald J. Trump said on a podcast that the Ukrainian president “should never have let that war start.”`\
 https://nytimes.com/2024/10/17/us/politics/trump-zelensky-putin-ukraine-war.html
