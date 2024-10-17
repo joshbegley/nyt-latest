@@ -1,3 +1,7 @@
+**Gazans Are So Malnourished That They Could Face Famine, Report Warns**\
+`A hunger emergency has affected nearly all of Gaza, but the situation is worst for people in the north, where Israeli forces intensified operations this month, the report said.`\
+https://nytimes.com/2024/10/17/world/middleeast/gaza-malnourished-famine-warnings.html
+
 **Betting for (by) dummies: Chiefs overdue for a loss and the over in Georgia vs. Texas**\
 `Picking Georgia and the over in Bulldogs vs. Longhorns for the week's marquee game, plus time for Chiefs to lose one?`\
 https://nytimes.com/athletic/5850152/2024/10/17/betting-for-by-dummies-chiefs-49ers-georgia-texas/
