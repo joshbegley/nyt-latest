@@ -1,3 +1,7 @@
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/10/17/nhl-standings-playoffs-projections-odds/
+
 **Ex-Police Chief of Seoul Cleared of Criminal Negligence Over Crowd Crush**\
 `Kim Kwang-ho, the former head of the Seoul Metropolitan Police Agency, was the most senior official to face criminal charges over the 2022 disaster that killed 159 people.`\
 https://nytimes.com/2024/10/17/world/asia/seoul-police-chief-acquitted-halloween.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5836380/2024/10/17/arsenals-road-to-2000-top-flight
 **Reach Barcelona - or die trying: The hope and abandon behind a famous rallying cry**\
 `'Barca ou Barzakh' was the phrase uttered by two Senegalese immigrants who are now making positive change in Spain`\
 https://nytimes.com/athletic/5847057/2024/10/17/barcelona-immigration-manteros-canary-islands/
-
-**What sort of football will Thomas Tuchel's England play?**\
-`With Tuchel confirmed as England manager, there is a feeling that the FA have landed one of the most tactically astute coaches in the game`\
-https://nytimes.com/athletic/5847535/2024/10/17/thomas-tuchel-england-tactics-analysis/
 
