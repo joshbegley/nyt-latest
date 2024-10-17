@@ -35,6 +35,6 @@ https://nytimes.com/2024/10/16/pageoneplus/corrections-oct-17-2024.html
 https://nytimes.com/live/2024/10/15/opinion/thepoint/kamala-harris-fox-news-interview
 
 **Archdiocese of Los Angeles Agrees to Pay $880 Million to Settle Sex Abuse Claims**\
-`The settlement is the highest single payout by an archdiocese, experts said, and brings Los Angeles’s cumulative payout in sex abuse lawsuits to more than $1.5 billion.`\
+`The settlement brings the archdiocese’s cumulative payout in sex abuse lawsuits to more than $1.5 billion.`\
 https://nytimes.com/2024/10/16/us/archidiocese-los-angeles-abuse-settlement.html
 
