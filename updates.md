@@ -1,3 +1,7 @@
+**Iga Swiatek hires Wim Fissette as new head coach**\
+`The world No. 1 has hired a coach with Grand Slam-winning pedigree after splitting with Tomasz Wiktorowski.`\
+https://nytimes.com/athletic/5849568/2024/10/17/iga-swiatek-coach-team/
+
 **With one pitch, Walker Buehler shows his evolution as Dodgers take NLCS Game 3**\
 `Max Muncy said: “There’s never a moment that gets too big for him. He was Walker Buehler tonight."`\
 https://nytimes.com/athletic/5849395/2024/10/17/dodgers-nlcs-walker-buehler/

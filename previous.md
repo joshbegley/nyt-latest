@@ -1,3 +1,7 @@
+**Iga Swiatek hires Wim Fissette as new head coach**\
+`The world No. 1 has hired a coach with Grand Slam-winning pedigree after splitting with Tomasz Wiktorowski.`\
+https://nytimes.com/athletic/5849568/2024/10/17/iga-swiatek-coach-team/
+
 **A $350 Million Plan to Redesign 5th Avenue: Wider Sidewalks, Fewer Cars**\
 `New York City officials and business leaders plan to expand sidewalks, add seating areas and trees and remove two car lanes to create a pedestrian-friendly boulevard.`\
 https://nytimes.com/2024/10/17/nyregion/fifth-avenue-redesign-pedestrians.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5849395/2024/10/17/dodgers-nlcs-walker-buehler/
 **He Didn’t See Daylight for Five Years**\
 `Here are some basics from the Times investigation into Bangladesh’s secret military prison, the “House of Mirrors.”`\
 https://nytimes.com/2024/10/17/world/asia/bangladesh-prison-takeaways.html
-
-**Alone in the Dark: The Nightmare of Bangladesh’s Secret Underground Prison**\
-`In the House of Mirrors, political captives were pushed to the brink of insanity and death. Some are telling their stories now that the woman who put them there, Sheikh Hasina, is gone.`\
-https://nytimes.com/2024/10/17/world/asia/bangladesh-disappeared.html
 
