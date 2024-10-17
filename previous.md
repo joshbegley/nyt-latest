@@ -1,3 +1,7 @@
+**He Didn’t See Daylight for Five Years**\
+`Here are some basics from the Times investigation into Bangladesh’s secret military prison, the “House of Mirrors.”`\
+https://nytimes.com/2024/10/17/world/asia/bangladesh-prison-takeaways.html
+
 **Alone in the Dark: The Nightmare of Bangladesh’s Secret Underground Prison**\
 `In the House of Mirrors, political captives were pushed to the brink of insanity and death. Some are telling their stories now that the woman who put them there, Sheikh Hasina, is gone.`\
 https://nytimes.com/2024/10/17/world/asia/bangladesh-disappeared.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/arts/music/liam-payne-dead-one-direction.html
 **FPL: The international break injury doubts to be aware of for Gameweek 8**\
 `The week after an international break should always be approached with caution when it comes to Fantasy Premier League`\
 https://nytimes.com/athletic/5843154/2024/10/17/fantasy-premier-league-international-injuries-saka-havertz/
-
-**Are Liverpool and Chelsea about to revive an historic rivalry?**\
-`There is never any love lost when Liverpool meet Chelsea - will a row over attendance for scouts give it a greater edge again?`\
-https://nytimes.com/athletic/5846970/2024/10/17/liverpool-chelsea-rivalry-scouting/
 

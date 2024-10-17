@@ -1,3 +1,7 @@
+**He Didn’t See Daylight for Five Years**\
+`Here are some basics from the Times investigation into Bangladesh’s secret military prison, the “House of Mirrors.”`\
+https://nytimes.com/2024/10/17/world/asia/bangladesh-prison-takeaways.html
+
 **Alone in the Dark: The Nightmare of Bangladesh’s Secret Underground Prison**\
 `In the House of Mirrors, political captives were pushed to the brink of insanity and death. Some are telling their stories now that the woman who put them there, Sheikh Hasina, is gone.`\
 https://nytimes.com/2024/10/17/world/asia/bangladesh-disappeared.html
