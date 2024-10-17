@@ -1,3 +1,15 @@
+**Betting for (by) dummies: Chiefs overdue for a loss and the over in Georgia vs. Texas**\
+`Picking Georgia and the over in Bulldogs vs. Longhorns for the week's marquee game, plus time for Chiefs to lose one?`\
+https://nytimes.com/athletic/5850152/2024/10/17/betting-for-by-dummies-chiefs-49ers-georgia-texas/
+
+**Trump Tests Republican Appetite for Tax Cuts**\
+`Former President Donald J. Trump’s costly tax agenda undermines the changes he signed into law in 2017. Some Republicans are wary.`\
+https://nytimes.com/2024/10/17/us/politics/trump-tax-cuts.html
+
+**How a Notre Dame transfer's walk-on bet paid off: 'I wanted to go big or go home'**\
+`Colgate transfer Max Hurleman may be an unlikely impact player at Notre Dame, but he's made the best of ample opportunities for the Irish.`\
+https://nytimes.com/athletic/5850556/2024/10/17/max-hurleman-notre-dame-walk-on-colgate/
+
 **Advice on a Speech That Harris Could Give**\
 `Responses to a column by Bret Stephens. Also: Donald Trump and the “enemy from within”; medicine for Gaza; A.I. and human voices; a new birth certificate.`\
 https://nytimes.com/2024/10/17/opinion/kamala-harris-speech.html
