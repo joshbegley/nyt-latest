@@ -1,3 +1,15 @@
+**Yahya Sinwar, Leader of Hamas in Gaza, Is Dead**\
+`Mr. Sinwar climbed the ranks of the Palestinian militant group to plot the deadliest attack on Israel in its history.`\
+https://nytimes.com/2024/10/17/world/middleeast/yahya-sinwar-dead.html
+
+**Here’s a look at the remaining leadership of Hamas, which has long been targeted by Israel.**\
+`By John Yoon and Aaron Boxerman`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/heres-a-look-at-the-remaining-leadership-of-hamas-which-has-long-been-targeted-by-israel
+
+**Stars sign Jake Oettinger to 8-year, $66 million extension**\
+`The contract runs through the 2032-33 season and carries an average annual value of $8.25 million.`\
+https://nytimes.com/athletic/5850973/2024/10/17/jake-oettinger-dallas-stars-contract-extension/
+
 **Levine Leichtman family complete purchase of San Diego Wave**\
 `Former owner Ron Burkle agreed to sell the club to the Levine Leichtman family in March at a cash outlay of $113 million.`\
 https://nytimes.com/athletic/5849002/2024/10/17/san-diego-wave-sale-levine-leichtman-family/
