@@ -1,3 +1,7 @@
+**Behind Nigeria’s Deadliest Road Incident in Years, a Quest for Cheap Fuel**\
+`More than 160 people died when an overturned fuel tanker in northern Nigeria exploded. Witnesses and relatives of victims said poverty had driven most to try to collect the spilled gas.`\
+https://nytimes.com/2024/10/17/world/africa/nigeria-fuel-tanker-explosion-jigawa.html
+
 **‘A Rip-Off’: Students Secure a Final Settlement Against Walden University**\
 `A $28.5 million settlement in a class-action lawsuit against the university helped create a fresh precedent for prosecuting predatory advertising in for-profit education.`\
 https://nytimes.com/2024/10/17/us/politics/walden-university-class-action-settlement.html
