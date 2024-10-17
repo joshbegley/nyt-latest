@@ -1,3 +1,15 @@
+**Netflix Adds 5 Million Subscriptions in Quarter**\
+`The additions helped lift revenue to $9.8 billion during the period, a 15 percent increase from the same period last year.`\
+https://nytimes.com/2024/10/17/business/media/netflix-quarterly-report.html
+
+**It’s Soft Pretzel and Cider Doughnut Season**\
+`Let’s make some peak fall memories.`\
+https://nytimes.com/2024/10/17/dining/its-soft-pretzel-and-cider-doughnut-season.html
+
+**Wild say captain Jared Spurgeon's absence related to surgeries but 'part of the healing process'**\
+`Also, Joel Eriksson Ek returned to practice Thursday, and John Hynes said he expects Eriksson Ek, Johansson and Brodin to play Saturday.`\
+https://nytimes.com/athletic/5851471/2024/10/17/wild-jared-spurgeon-healing-process/
+
 **The N.R.A. Again Cuts Back on Top Grades for Congressional Candidates**\
 `The group’s latest ratings show a decline in top marks for the seventh straight election cycle, suggesting its influence is waning.`\
 https://nytimes.com/2024/10/17/us/politics/nra-ratings-election.html
