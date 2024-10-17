@@ -1,3 +1,11 @@
+**Moscow Roils a Country on the Edge of Europe and Russia**\
+`Russia is behind a disinformation campaign in Moldova ahead of a presidential election and a referendum making E.U. membership a “strategic objective,” Moldovan officials and global media companies say.`\
+https://nytimes.com/2024/10/17/world/europe/moldova-russia-european-union-election.html
+
+**Quote of the Day: Uncertainty Over Election Stirs Anxiety On Wall St.**\
+`Quotation of the Day for Thursday, October 17, 2024`\
+https://nytimes.com/2024/10/16/pageoneplus/quote-of-the-day-uncertainty-over-election-stirs-anxiety-on-wall-st.html
+
 **Lonzo Ball returns to Bulls after near 3-year absence**\
 `Ball logged 10 points on 4-of-6 shooting in 15 minutes played in Wednesday's preseason game against the Timberwolves.`\
 https://nytimes.com/athletic/5847800/2024/10/16/bulls-lonzo-ball-return-minutes-restriction/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/16/business/media/kamala-harris-bret-baier-fox.html
 **TMZ Criticized for Image Said to Be of Liam Payne, One Direction Singer**\
 `After a torrent of criticism, TMZ removed the image of a body without explanation.`\
 https://nytimes.com/2024/10/16/business/media/tmz-liam-payne-body-image.html
-
-**Can Harris Really Build 3 Million New Housing Units?**\
-`By Conor Dougherty and Anna Watts`\
-https://nytimes.com/interactive/2024/10/16/us/elections/kamala-harris-housing-policy.html
-
-**Corrections: Oct. 17, 2024**\
-`Corrections that appeared in print on Thursday, Oct. 17, 2024.`\
-https://nytimes.com/2024/10/16/pageoneplus/corrections-oct-17-2024.html
 
