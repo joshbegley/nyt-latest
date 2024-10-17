@@ -1,3 +1,15 @@
+**How United's internationals performed in the October break: Eriksen 'hungry', De Ligt out of favour**\
+`Of the 12 United players who departed on international duty this month, seven featured for at least part of both games with their country`\
+https://nytimes.com/athletic/5842020/2024/10/17/manchester-united-international-break-players-report/
+
+**Arsenal's road to 2,000 top-flight wins - the history and the memories**\
+`We look at how Arsenal are on the brink of their 2,000th top-flight win`\
+https://nytimes.com/athletic/5836380/2024/10/17/arsenals-road-to-2000-top-flight-wins-the-history-and-the-memories/
+
+**Reach Barcelona - or die trying: The hope and abandon behind a famous rallying cry**\
+`'Barca ou Barzakh' was the phrase uttered by two Senegalese immigrants who are now making positive change in Spain`\
+https://nytimes.com/athletic/5847057/2024/10/17/barcelona-immigration-manteros-canary-islands/
+
 **What sort of football will Thomas Tuchel's England play?**\
 `With Tuchel confirmed as England manager, there is a feeling that the FA have landed one of the most tactically astute coaches in the game`\
 https://nytimes.com/athletic/5847535/2024/10/17/thomas-tuchel-england-tactics-analysis/
