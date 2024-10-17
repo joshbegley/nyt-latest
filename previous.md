@@ -1,3 +1,7 @@
+**Aaron Judge, Giancarlo Stanton hit back-to-back home runs off Emmanuel Clase**\
+`Whatever the postseason narrative about Aaron Judge might have been, he’s officially flipped it.`\
+https://nytimes.com/athletic/5852176/2024/10/17/aaron-judge-giancarlo-stanton-alcs-homers/
+
 **Art Adviser to the Elite Pleads Guilty to Wire Fraud**\
 `Lisa Schiff acknowledges stealing millions from major collectors who trusted her to buy them fashionable art.`\
 https://nytimes.com/2024/10/17/arts/design/art-adviser-wire-fraud-lisa-schiff.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5851552/2024/10/17/f1-united-states-gp-red-bull-bib
 **Berhalter reflects on USMNT firing, endorses successor Pochettino**\
 `Berhalter also said Pochettino is "a great hire for U.S. Soccer."`\
 https://nytimes.com/athletic/5851976/2024/10/17/gregg-berhalter-usmnt-firing-chicago-pochettino/
-
-**What Keeps Latino Voting-Rights Activists Up at Night? Disinformation**\
-`Activists say the nefarious material is more widespread, sophisticated and complex than ever.`\
-https://nytimes.com/2024/10/17/us/politics/latino-voters-election-disinformation.html
 
