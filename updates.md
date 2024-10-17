@@ -1,3 +1,7 @@
+**Rosenthal: Kiké Hernández's playoff heroics are symbolic of Dodgers' next-man-up success**\
+`The veteran hit his 15th career postseason homer in Game 3 on the NLCS to extend the Dodgers' lead over the Mets.`\
+https://nytimes.com/athletic/5849783/2024/10/17/dodgers-nlcs-kike-hernandez-mlb/
+
 **Think BOS Nation launch was bad? Welcome to the worst rebrands in MLS history**\
 `The NWSL witnessed one of the great rebrand failures this week - but over in MLS, there is a long history of relaunches gone wrong.`\
 https://nytimes.com/athletic/5848002/2024/10/17/bos-nation-nwsl-worst-mls-rebrands/
