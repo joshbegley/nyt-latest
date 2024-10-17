@@ -1,3 +1,7 @@
+**Sabrina Ionescu hit the 'biggest shot of my career,' but the New York Liberty star isn't done yet**\
+`“Not everyone can take those big shots and make them. She can.” Ionescu's timely 3 put Liberty up 2-1 in the WNBA Finals.`\
+https://nytimes.com/athletic/5849513/2024/10/17/sabrina-ionescu-wnba-finals-3-pointer-new-york-liberty/
+
 **Jimmy Kimmel Slams Trump’s Women-Centered Town Hall**\
 `“This was the first time Groper Cleveland has been around this many women since they started padlocking the doors at Miss Teen USA,” Kimmel said on Wednesday.`\
 https://nytimes.com/2024/10/17/arts/television/latenight-trump-womens-town-hall.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/world/asia/seoul-police-chief-acquitted-halloween
 **Shohei Ohtani adds to Dodgers postseason highlight reel with late-game moonshot**\
 `With one swing, Ohtani boosted the Dodgers' lead and protected a bullpen.`\
 https://nytimes.com/athletic/5849330/2024/10/17/dodgers-shohei-ohtani-mlb-nlcs/
-
-**In Lebanon, We Took Pride in Our Resilience. Not Anymore.**\
-`The Lebanese have held strong through many tragedies. But they are now at the end of their rope.`\
-https://nytimes.com/2024/10/17/opinion/lebanon-israel-gaza-war.html
 
