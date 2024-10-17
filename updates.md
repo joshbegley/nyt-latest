@@ -1,3 +1,7 @@
+**France's richest man Arnault and Red Bull in exclusive negotiations to buy Paris FC**\
+`French billionaire and LVMH chairman Bernard Arnault has partnered with Red Bull to enter exclusive negotiations over buying Paris FC.`\
+https://nytimes.com/athletic/5850158/2024/10/17/paris-fc-takeover-arnault-red-bull/
+
 **76ers' McCain hospitalized after 'rough' fall in Wednesday game**\
 `McCain, the No. 16 pick in April's draft, could be heard coughing and was seen clutching his chest as trainers attended to him.`\
 https://nytimes.com/athletic/5850156/2024/10/17/76ers-jared-mccain-concussion-hospitalized/

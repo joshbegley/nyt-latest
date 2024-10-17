@@ -1,3 +1,11 @@
+**Universal Epic Orlando Theme Park Will Open in May**\
+`Initial ticket packages for the new area of Universal Orlando Resort, the first new Florida theme park in a generation, will cost as much as $521.`\
+https://nytimes.com/2024/10/17/business/media/universal-epic-universe-opening-date.html
+
+**Desiree Scott on retiring after six months of heartbreak: 'You kind of know it's coming'**\
+`The Kansas City Currrent player explains how events of recent months led her to decide that it is the right time to hang up her boots`\
+https://nytimes.com/athletic/5849637/2024/10/17/desiree-scott-retirement-kansas-city/
+
 **France's richest man Arnault and Red Bull in exclusive negotiations to buy Paris FC**\
 `French billionaire and LVMH chairman Bernard Arnault has partnered with Red Bull to enter exclusive negotiations over buying Paris FC.`\
 https://nytimes.com/athletic/5850158/2024/10/17/paris-fc-takeover-arnault-red-bull/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5847999/2024/10/17/jordan-kyrou-robert-thomas-reuni
 **Sadie Sink to Star in Broadway Play Inspired by ‘Crucible’ and #MeToo**\
 `Kimberly Belflower’s “John Proctor Is the Villain” will be directed by Danya Taymor, who won a Tony this year for “The Outsiders.”`\
 https://nytimes.com/2024/10/17/theater/sadie-sink-john-proctor-broadway.html
-
-**Man Utd officials meet fan protest group for first time**\
-`Senior Manchester United officials met members of The 1958 fan protest group for the first time at Old Trafford this week.`\
-https://nytimes.com/athletic/5850072/2024/10/17/manchester-united-fans-1958/
-
-**Israel is assessing whether a slain militant is the Hamas leader Yahya Sinwar.**\
-`Israel will conduct DNA tests on the body of a militant shot and killed on Wednesday in southern Gaza, officials said. The body bears physical similarities with Yahya Sinwar, the leader of Hamas.`\
-https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/israel-is-assessing-whether-slain-militant-is-hamas-leader-yahya-sinwar
 
