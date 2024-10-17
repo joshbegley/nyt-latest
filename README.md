@@ -1,3 +1,11 @@
+**The killing of Sinwar is another blow to Iran.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/sinwar-hamas-death-iran
+
+**Texas Attorney General Sues Doctor Over Treatment for Transgender Minors**\
+`Ken Paxton, the attorney general, said it was the first enforcement action under a state ban on treatment.`\
+https://nytimes.com/2024/10/17/us/texas-transgender-treatment-lawsuit.html
+
 **In Rambling Interview, Trump Blames Zelensky, Not Putin, for Ukraine War**\
 `The war began when Russia invaded Ukraine, but Donald J. Trump said on a podcast that the Ukrainian president “should never have let that war start.”`\
 https://nytimes.com/2024/10/17/us/politics/trump-zelensky-putin-ukraine-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/us/georgia-school-shooting-indictment.html
 **Friday Briefing: The Leader of Hamas is Dead**\
 `Plus, an interview with Hugh Grant.`\
 https://nytimes.com/2024/10/17/briefing/sinwar-killed-polling-bangladesh-secret-prison.html
-
-**Yahya Sinwar, Hamas Leader, Was Killed, Israel Confirms**\
-`Yahya Sinwar has been the No. 1 target for Israel since the beginning of the war in Gaza.`\
-https://nytimes.com/video/world/middleeast/100000009766865/hamas-gaza-yahya-sinwar-killed-israel.html
-
-**Weather Experts Offer a Peek at This Winter’s Forecast**\
-`Winter is coming. But will it bring snow? NOAA announced its annual winter outlook on Thursday.`\
-https://nytimes.com/2024/10/17/weather/winter-weather-forecast.html
 
