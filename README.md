@@ -1,6 +1,6 @@
-**Sinwar Evaded Israeli Intelligence for Years. Trainee Officers Found Him.**\
+**Sinwar Evaded Israeli Intelligence for Years. Trainee Soldiers Found Him.**\
 `A unit from the Israeli military encountered Yahya Sinwar, the leader of Hamas, while on an operation in southern Gaza, Israeli defense officials said.`\
-https://nytimes.com/2024/10/17/world/middleeast/sinwar-evaded-israeli-intelligence-for-years-trainee-soldiers-found-him.html
+https://nytimes.com/2024/10/17/world/middleeast/sinwar-israeli-intelligence.html
 
 **The Exploitation of Liam Payne**\
 `The band he helped build will surely be remembered for the way its devoted audience became the architects of contemporary fandom.`\
