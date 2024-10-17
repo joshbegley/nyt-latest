@@ -1,3 +1,7 @@
+**Harris Slams Trump for Calling Jan. 6 a ‘Day of Love’**\
+`Speaking at a campaign rally, Vice President Kamala Harris said former President Donald J. Trump was “gaslighting” Americans with his effort to rewrite the history of Jan. 6, 2021.`\
+https://nytimes.com/video/us/elections/100000009768581/harris-trump-jan6-capitol.html
+
 **Sinwar had been a priority target for Israel since his release from prison in 2011.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/israel-military-hamas-sinwar-killing-attempts
