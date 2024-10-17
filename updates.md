@@ -1,3 +1,7 @@
+**Sabrina Ionescu hit the 'biggest shot of my career,' but the New York Liberty star isn't done yet**\
+`“Not everyone can take those big shots and make them. She can.” Ionescu's timely 3 put Liberty up 2-1 in the WNBA Finals.`\
+https://nytimes.com/athletic/5849513/2024/10/17/sabrina-ionescu-wnba-finals-3-pointer-new-york-liberty/
+
 **Jimmy Kimmel Slams Trump’s Women-Centered Town Hall**\
 `“This was the first time Groper Cleveland has been around this many women since they started padlocking the doors at Miss Teen USA,” Kimmel said on Wednesday.`\
 https://nytimes.com/2024/10/17/arts/television/latenight-trump-womens-town-hall.html
