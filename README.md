@@ -1,3 +1,15 @@
+**Cher, Tyra Banks and Cara Delevingne Toast Burberry**\
+`The British brand hosted a starry cocktail party to celebrate a makeover of its flagship store.`\
+https://nytimes.com/2024/10/17/style/burberry-cher-tyra-banks.html
+
+**Why the Heck Isn’t She Running Away With This?**\
+`After huge shifts in the electorate, it’s baffling that the two parties are still almost exactly evenly matched.`\
+https://nytimes.com/2024/10/17/opinion/harris-trump-close-race.html
+
+**U.K. Foreign Secretary Visits China in Bid to Reset Relations**\
+`David Lammy is set to meet China’s foreign minister in Beijing on Friday, in a trip the British government said would acknowledge “areas of contention as well as areas for cooperation.”`\
+https://nytimes.com/2024/10/17/world/europe/david-lammy-uk-china-visit.html
+
 **Harris Slams Trump for Calling Jan. 6 a ‘Day of Love’**\
 `Speaking at a campaign rally, Vice President Kamala Harris said former President Donald J. Trump was “gaslighting” Americans with his effort to rewrite the history of Jan. 6, 2021.`\
 https://nytimes.com/video/us/elections/100000009768581/harris-trump-jan6-capitol.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/sinwar-h
 **Texas Attorney General Sues Doctor Over Treatment for Transgender Minors**\
 `Ken Paxton, the attorney general, said it was the first enforcement action under a state ban on treatment.`\
 https://nytimes.com/2024/10/17/us/texas-transgender-treatment-lawsuit.html
-
-**In Rambling Interview, Trump Blames Zelensky, Not Putin, for Ukraine War**\
-`The war began when Russia invaded Ukraine, but Donald J. Trump said on a podcast that the Ukrainian president “should never have let that war start.”`\
-https://nytimes.com/2024/10/17/us/politics/trump-zelensky-putin-ukraine-war.html
-
-**The U.S. military did not aid the Israeli operation that killed Sinwar, the Pentagon said.**\
-`By John Ismay and Eric Schmitt`\
-https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/the-us-military-did-not-aid-the-israeli-operation-that-killed-sinwar-the-pentagon-said
-
-**The Leader of Hamas Is Dead**\
-`Also, Biden traveled to Germany as the U.S. wrestles with military aid. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/10/17/briefing/hamas-leader-dead-us-military-aid.html
 
