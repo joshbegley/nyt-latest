@@ -1,3 +1,7 @@
+**Israel is Assessing Whether Slain Militant is Hamas Leader Yahya Sinwar**\
+`Israel will conduct DNA tests on the body of a militant shot and killed on Wednesday in southern Gaza, officials said. The body bears physical similarities with Yahya Sinwar, the leader of Hamas.`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/israel-is-assessing-whether-slain-militant-is-hamas-leader-yahya-sinwar
+
 **Can Chargers defense sustain quality play amid secondary injuries?**\
 `Rookies Cam Hart and Tarheeb Still played well when pressed into action but their inexperience could lead to volatility. `\
 https://nytimes.com/athletic/5848983/2024/10/17/chargers-defense-injuries-rookies-still-hart/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/world/europe/zelensky-eu-victory-plan.html
 **Chiney Ogwumike signs 4-year extension with ESPN to remain as basketball analyst and host**\
 `Ogwumike is the rare ESPN talent with assignments in women's basketball and the NBA.`\
 https://nytimes.com/athletic/5846303/2024/10/17/chiney-ogwumike-espn-basketball/
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/10/17/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
