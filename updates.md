@@ -1,3 +1,7 @@
+**The International Criminal Court’s chief prosecutor sought warrants for 3 Hamas leaders. All 3 are now dead.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/the-international-criminal-courts-chief-prosecutor-sought-warrants-for-3-hamas-leaders-all-3-are-now-dead
+
 **Surprise Battlefield Encounter Led to Hamas Leader’s Death**\
 `Although Yahya Sinwar was a major target of Israel’s military campaign in Gaza, the soldiers who killed the militant chief had not expected to run across him, Israeli officials said.`\
 https://nytimes.com/2024/10/17/world/middleeast/hamas-sinwar-gaza-israel.html
