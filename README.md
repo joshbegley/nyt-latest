@@ -1,3 +1,15 @@
+**U.S. Wrestles With Aiding Allies and Maintaining Its Own Weapons Supply**\
+`Pentagon officials discuss whether the flow of assistance could be hurting the military’s ability to respond to a new conflict.`\
+https://nytimes.com/2024/10/17/us/politics/us-weapons-israel-ukraine.html
+
+**Review: Mercurial Moves Take Over the Stage in a Stark, New Ballet**\
+`American Ballet Theater opened its fall season at Lincoln Center with premieres by Gemma Bond and Kyle Abraham in his most accomplished ballet yet.`\
+https://nytimes.com/2024/10/17/arts/dance/review-ballet-theater-kyle-abraham-gemma-bond.html
+
+**When God Gives You Mark Robinson, Make Lemonade**\
+`Josh Stein’s campaign in North Carolina is a master class in devastating campaign ads.`\
+https://nytimes.com/2024/10/17/opinion/mark-robinson-josh-stein.html
+
 **The Windup: Dodgers' relentless roster keeps delivering**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/5850688/2024/10/17/dodgers-mets-mlb-playoffs-the-windup/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/17/opinion/kamala-harris-speech.html
 **Electric Vehicles May Be Struggling. G.M.’s Leader Is Still a Believer.**\
 `Mary Barra, G.M.’s chief executive, said that the company had fixed battery-manufacturing problems and that its electric vehicles would soon be profitable.`\
 https://nytimes.com/2024/10/17/business/gm-electric-vehicles-mary-barra.html
-
-**Troy Aikman: Cowboys WRs 'run terrible routes'**\
-`"I think CeeDee (Lamb) has got to improve in his route running," Aikman said.`\
-https://nytimes.com/athletic/5850494/2024/10/17/troy-aikman-cowboys-receivers-route-running/
-
-**Egypt Replaces Its Powerful Spy Chief, a Key Gaza Mediator**\
-`Gen. Abbas Kamel, a longtime confidant of Egypt’s president, oversaw the country’s most important international relationships and helped maintain the president’s authoritarian grip.`\
-https://nytimes.com/2024/10/17/world/middleeast/egypt-replaces-spy-chief.html
-
-**Could Second-Home Owners Swing New York’s Swing Districts?**\
-`A group is pushing thousands of New Yorkers to vote from weekend homes in swing districts. Its pitch: “Your second home could determine the next speaker.”`\
-https://nytimes.com/2024/10/17/nyregion/voting-absentee-residence-ny.html
 
