@@ -1,3 +1,7 @@
+**College football Week 8 model-projected point differentials and totals for every game**\
+`Austin Mock's model has predicted point differentials and point totals for every FBS vs. FBS Week 8 college football game.`\
+https://nytimes.com/athletic/5851139/2024/10/17/college-football-week-8-model-projections-predicted-scores/
+
 **Amazon Enters News With Live Election Coverage From Brian Williams**\
 `The tech giant has been increasing live programming on its streaming service, but this will be its first test with news.`\
 https://nytimes.com/2024/10/17/business/media/amazon-brian-williams-election-special.html
