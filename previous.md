@@ -1,3 +1,7 @@
+**Can Chargers defense sustain quality play amid secondary injuries?**\
+`Rookies Cam Hart and Tarheeb Still played well when pressed into action but their inexperience could lead to volatility. `\
+https://nytimes.com/athletic/5848983/2024/10/17/chargers-defense-injuries-rookies-still-hart/
+
 **City set to appoint Sjogran as women’s director of football**\
 `Manchester City are set to appoint Therese Sjogran as their new women’s director of football.`\
 https://nytimes.com/athletic/5849827/2024/10/17/man-city-women-therese-sjogran/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5846303/2024/10/17/chiney-ogwumike-espn-basketball/
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/10/17/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Harris, Walz and Clinton Fan Out in 2 Battlegrounds**\
-`Kamala Harris was headed to Wisconsin, while Tim Walz and Bill Clinton were set to campaign together in North Carolina. Donald J. Trump will speak at a charity dinner in Manhattan.`\
-https://nytimes.com/live/2024/10/17/us/harris-trump-election
 
