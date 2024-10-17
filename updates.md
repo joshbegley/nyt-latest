@@ -1,3 +1,7 @@
+**Live Updates: U.S. Strikes Houthi Weapons Caches in Yemen**\
+`The attack on underground weapons facilities in areas of Yemen controlled by the Iranian-backed militia could also serve as a warning to Tehran.`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news
+
 **Iga Swiatek hires Wim Fissette as new head coach**\
 `The world No. 1 has hired a coach with Grand-Slam-winning pedigree after splitting with Tomasz Wiktorowski.`\
 https://nytimes.com/athletic/5849568/2024/10/17/iga-swiatek-coach-team/

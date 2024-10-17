@@ -1,3 +1,7 @@
+**Live Updates: U.S. Strikes Houthi Weapons Caches in Yemen**\
+`The attack on underground weapons facilities in areas of Yemen controlled by the Iranian-backed militia could also serve as a warning to Tehran.`\
+https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news
+
 **Iga Swiatek hires Wim Fissette as new head coach**\
 `The world No. 1 has hired a coach with Grand-Slam-winning pedigree after splitting with Tomasz Wiktorowski.`\
 https://nytimes.com/athletic/5849568/2024/10/17/iga-swiatek-coach-team/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/arts/television/latenight-trump-womens-town-hall.
 **With one pitch, Walker Buehler shows his evolution as Dodgers take NLCS Game 3**\
 `Max Muncy said: “There’s never a moment that gets too big for him. He was Walker Buehler tonight."`\
 https://nytimes.com/athletic/5849395/2024/10/17/dodgers-nlcs-walker-buehler/
-
-**He Didn’t See Daylight for Five Years**\
-`Here are some basics from the Times investigation into Bangladesh’s secret military prison, the “House of Mirrors.”`\
-https://nytimes.com/2024/10/17/world/asia/bangladesh-prison-takeaways.html
 
