@@ -1,6 +1,10 @@
+**Ex-Police Chief of Seoul Cleared of Criminal Negligence Over Crowd Crush**\
+`Kim Kwang-ho, the former head of the Seoul Metropolitan Police Agency, was the most senior official to face criminal charges over the 2022 disaster that killed 159 people.`\
+https://nytimes.com/2024/10/17/world/asia/seoul-police-chief-acquitted-halloween.html
+
 **Shohei Ohtani adds to Dodgers postseason highlight reel with late-game moonshot**\
 `With one swing, Ohtani boosted the Dodgers' lead and protected a bullpen.`\
-https://nytimes.com/athletic/5849330/2024/10/17/dogers-shohei-ohtani-mlb-nlcs/
+https://nytimes.com/athletic/5849330/2024/10/17/dodgers-shohei-ohtani-mlb-nlcs/
 
 **In Lebanon, We Took Pride in Our Resilience. Not Anymore.**\
 `The Lebanese have held strong through many tragedies. But they are now at the end of their rope.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5847057/2024/10/17/barcelona-immigration-manteros-c
 **What sort of football will Thomas Tuchel's England play?**\
 `With Tuchel confirmed as England manager, there is a feeling that the FA have landed one of the most tactically astute coaches in the game`\
 https://nytimes.com/athletic/5847535/2024/10/17/thomas-tuchel-england-tactics-analysis/
-
-**Analysing Europe's top four leagues: How does football in England, Italy, Spain and Germany compare?**\
-`Is the Premier League's set-piece reputation deserved? How did Covid-19 impact the sport? And why are Spanish referees so busy?`\
-https://nytimes.com/athletic/5847564/2024/10/17/premier-league-serie-a-la-liga-bundesliga-comparison/
 
