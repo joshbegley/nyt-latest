@@ -1,3 +1,7 @@
+**With one pitch, Walker Buehler shows how much he's changed as Dodgers take Game 3**\
+`Max Muncy said: “There’s never a moment that gets too big for him. He was Walker Buehler tonight."`\
+https://nytimes.com/athletic/5849395/2024/10/17/dodgers-nlcs-walker-buehler/
+
 **He Didn’t See Daylight for Five Years**\
 `Here are some basics from the Times investigation into Bangladesh’s secret military prison, the “House of Mirrors.”`\
 https://nytimes.com/2024/10/17/world/asia/bangladesh-prison-takeaways.html

@@ -1,3 +1,7 @@
+**With one pitch, Walker Buehler shows how much he's changed as Dodgers take Game 3**\
+`Max Muncy said: “There’s never a moment that gets too big for him. He was Walker Buehler tonight."`\
+https://nytimes.com/athletic/5849395/2024/10/17/dodgers-nlcs-walker-buehler/
+
 **He Didn’t See Daylight for Five Years**\
 `Here are some basics from the Times investigation into Bangladesh’s secret military prison, the “House of Mirrors.”`\
 https://nytimes.com/2024/10/17/world/asia/bangladesh-prison-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/opinion/lebanon-israel-gaza-war.html
 **Liam Payne of One Direction Dies in Buenos Aires**\
 `The police cordoned off the hotel where the 31-year-old singer of the British band died as fans gathered to mourn him.`\
 https://nytimes.com/video/arts/music/liam-payne-dead-one-direction.html
-
-**FPL: The international break injury doubts to be aware of for Gameweek 8**\
-`The week after an international break should always be approached with caution when it comes to Fantasy Premier League`\
-https://nytimes.com/athletic/5843154/2024/10/17/fantasy-premier-league-international-injuries-saka-havertz/
 
