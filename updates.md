@@ -1,3 +1,7 @@
+**Marvin Preston IV, 80, Dies; Saved the Martha Graham Dance Company**\
+`An expert at rescuing distressed companies, he took over the struggling organization in 2000, leading it through a painful restructuring and a lengthy legal battle.`\
+https://nytimes.com/2024/10/17/arts/dance/marvin-preston-dead.html
+
 **The killing of Sinwar is another blow to Iran.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/sinwar-hamas-death-iran
