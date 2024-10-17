@@ -1,4 +1,4 @@
-**Multiple People Killed and Injured in Mississippi Bridge Collapse**\
+**3 People Killed and 4 Injured in Mississippi Bridge Collapse**\
 `A bridge over the Strong River in Simpson County that was being demolished collapsed in a “work site accident,” the authorities said.`\
 https://nytimes.com/2024/10/16/us/mississippi-bridge-collapse.html
 
