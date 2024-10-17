@@ -1,3 +1,19 @@
+**Surprise Battlefield Encounter Led to Hamas Leader’s Death**\
+`Although Yahya Sinwar was a major target of Israel’s military campaign in Gaza, the soldiers who killed the militant chief had not expected to run across him, Israeli officials said.`\
+https://nytimes.com/2024/10/17/world/middleeast/hamas-sinwar-gaza-israel.html
+
+**How Trump’s Radical Tariff Plan Could Wreck Our Economy**\
+`There’s no upside to the former president’s pet economic plan.`\
+https://nytimes.com/2024/10/17/opinion/trump-tariffs-economy.html
+
+**With Sinwar Dead, We Must End the War in Gaza**\
+`Another opening for the U.S. to push for a cease-fire.`\
+https://nytimes.com/2024/10/17/opinion/yahya-sinwar-dead-hamas-gaza.html
+
+**Until Saturday: Midseason awards, plus Week 8 viewer guide**\
+`Welcome to Until Saturday, the five-star college football newsletter: Week 8's viewer guide.`\
+https://nytimes.com/athletic/5849922/2024/10/17/college-football-midseason-week-8-until-saturday/
+
 **Israeli Military Drone Footage Claims to Show Sinwar Shortly Before He Was Killed**\
 `The video shows a room that matches photographs obtained by The Times that show the corpse of a man closely resembling the Hamas leader.`\
 https://nytimes.com/2024/10/17/world/middleeast/yahya-sinwar-death-drone-footage.html
