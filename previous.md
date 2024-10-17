@@ -1,5 +1,25 @@
-**Sabrina Ionescu hit the 'biggest shot of my career,' but the New York Liberty star isn't done yet**\
-`“Not everyone can take those big shots and make them. She can.” Ionescu's timely 3 put Liberty up 2-1 in the WNBA Finals.`\
+**A $350 Million Plan to Redesign 5th Avenue: Wider Sidewalks, Fewer Cars**\
+`New York City officials and business leaders plan to expand sidewalks, add seating areas and trees and remove two car lanes to create a pedestrian-friendly boulevard.`\
+https://nytimes.com/2024/10/17/nyregion/fifth-avenue-redesign-pedestrians.html
+
+**Word of the Day: emblematic**\
+`This word has appeared in 274 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/17/learning/word-of-the-day-emblematic.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/17/crosswords/spelling-bee-forum.html
+
+**Scaring Halloween Trick-or-Treaters Is Free. But This Pumpkin? $13.50.**\
+`Americans spend billions on Halloween annually. But with every modestly priced pumpkin come behind-the-scenes costs that add up for the farms producing them, like seeds, fertilizer, irrigation and labor.`\
+https://nytimes.com/2024/10/17/nyregion/pumpkins-costs-halloween-ny.html
+
+**Hard News and Honky-Tonks: How to Cover the American South**\
+`As a reporter responsible for region news in the South, Emily Cochrane covers hurricanes, trials, country music and more.`\
+https://nytimes.com/2024/10/17/insider/american-south.html
+
+**Sabrina Ionescu hit the 'biggest shot of my career,' but the Liberty star isn't done yet**\
+`"Not everyone can take those big shots and make them. She can." Ionescu's timely 3 put the Liberty up 2-1 in the WNBA Finals.`\
 https://nytimes.com/athletic/5849513/2024/10/17/sabrina-ionescu-wnba-finals-3-pointer-new-york-liberty/
 
 **Jimmy Kimmel Slams Trump’s Women-Centered Town Hall**\
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/17/world/asia/bangladesh-prison-takeaways.html
 **Alone in the Dark: The Nightmare of Bangladesh’s Secret Underground Prison**\
 `In the House of Mirrors, political captives were pushed to the brink of insanity and death. Some are telling their stories now that the woman who put them there, Sheikh Hasina, is gone.`\
 https://nytimes.com/2024/10/17/world/asia/bangladesh-disappeared.html
-
-**U.S. Stealth Bombers Attack Houthi Weapons Caches in Yemen**\
-`Air Force B-2 bombers struck five underground weapons facilities in what may be a signal from the Biden administration to Iran.`\
-https://nytimes.com/2024/10/17/us/politics/houthis-strike-stealth-bombers.html
-
-**Mets' struggles with bottom of Dodgers' lineup key to 2-1 NLCS deficit**\
-`Los Angeles’ seventh through ninth hitters have carried its offense against New York, and now own a 2-1 series lead.`\
-https://nytimes.com/athletic/5849392/2024/10/17/new-york-mets-nlcs-struggles/
-
-**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/5834883/2024/10/17/nhl-standings-playoffs-projections-odds/
-
-**Ex-Police Chief of Seoul Cleared of Criminal Negligence Over Crowd Crush**\
-`Kim Kwang-ho, the former head of the Seoul Metropolitan Police Agency, was the most senior official to face criminal charges over the 2022 disaster that killed 159 people.`\
-https://nytimes.com/2024/10/17/world/asia/seoul-police-chief-acquitted-halloween.html
-
-**Shohei Ohtani adds to Dodgers postseason highlight reel with late-game moonshot**\
-`With one swing, Ohtani boosted the Dodgers' lead and protected a bullpen.`\
-https://nytimes.com/athletic/5849330/2024/10/17/dodgers-shohei-ohtani-mlb-nlcs/
 
