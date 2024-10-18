@@ -1,4 +1,8 @@
 **How Quinn Hughes, J.T. Miller led Canucks to first victory: 3 takeaways**\
+`Vancouver came out on top 3-2 in overtime in a hard-fought, tightly contested game versus the Florida Panthers. `\
+https://nytimes.com/athletic/5852259/2024/10/17/canucks-panthers-jt-miller-quinn-hughes/
+
+**How Quinn Hughes, J.T. Miller led Canucks to first victory: 3 takeaways**\
 `Vancouver came out on top 3-2 in overtime in a hard-fought, tightly contested game vs. the Panthers. `\
 https://nytimes.com/athletic/5852259/2024/10/17/canucks-panthers-jt-miller-quinn-hughes/
 
