@@ -1,3 +1,7 @@
+**Aaron Judge, Giancarlo Stanton hit back-to-back home runs off Emmanuel Clase**\
+`Whatever the postseason narrative about Judge might have been, he’s officially flipped it with one swing of the bat.`\
+https://nytimes.com/athletic/5852176/2024/10/17/aaron-judge-giancarlo-stanton-alcs-homers/
+
 **Want to Understand America? Watch ‘Shark Tank.’**\
 `The show which premiered in the U.S. in 2009, has broadcast the stress of the Great Recession, the allure of Silicon Valley, the upheaval of the Covid pandemic and now, whatever this economy is.`\
 https://nytimes.com/interactive/2024/10/17/business/shark-tank-economy.html
