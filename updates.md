@@ -1,3 +1,11 @@
+**How England hired 'outstanding' Tuchel - and why not everyone is happy about it**\
+`The German's arrival is a major coup for the FA, but it does not come without controversy`\
+https://nytimes.com/athletic/5851079/2024/10/18/england-thomas-tuchel-how-hired-coach/
+
+**Rees-Zammit: Still waiting for NFL chance but his profile has never been higher**\
+`Rees-Zammit has spent time with Prince William during the Jaguars' trip to the UK for the NFL London Games`\
+https://nytimes.com/athletic/5849758/2024/10/18/louis-rees-zammit-nfl-rugby/
+
 **Mets manager Carlos Mendoza preached trust all year. Now it's time for urgency**\
 `The Mets have handed too many important at-bats to hitters in slumps and relied too often on lower-leverage relievers.`\
 https://nytimes.com/athletic/5852683/2024/10/18/mets-carlos-mendoza-dodgers-nlcs/
