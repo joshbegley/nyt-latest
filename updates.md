@@ -1,3 +1,7 @@
+**Giants name J.P. Martinez as their new pitching coach**\
+`Martinez had been an assistant pitching coach for the Giants since 2021. He takes over for Bryan Price, who stepped down from the role.`\
+https://nytimes.com/athletic/5854043/2024/10/18/jp-martinez-sf-giants-pitching-coach/
+
 **Major sports books to cease prop bets on lowest paid players**\
 `The NBA requested the change to "protect the integrity of our games," said a league spokesperson.`\
 https://nytimes.com/athletic/5854024/2024/10/18/nba-sports-betting-10-day-contract-players/
