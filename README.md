@@ -1,3 +1,7 @@
+**What Will Become of Yahya Sinwar’s Body?**\
+`Uncertainty surrounds the fate of the Hamas leader’s corpse as experts say Israel will likely try to avoid having his resting place become a shrine.`\
+https://nytimes.com/2024/10/18/world/middleeast/what-will-become-of-yahya-sinwars-body.html
+
 **California Man Is Charged With Drugging and Sexually Assaulting 9 Women**\
 `The man, Michael DiGiorgio, is also charged with murdering one of the women, who died after being drugged, prosecutors said.`\
 https://nytimes.com/2024/10/18/us/redondo-beach-sexual-assault-drugging-women-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009768679/who-was-yahya-sinwar.
 **These Americans Say They’ll Move Abroad if Their Candidate Loses**\
 `We spoke with Americans who are packing up and moving out.`\
 https://nytimes.com/2024/10/18/us/politics/these-americans-say-theyll-move-abroad-if-their-candidate-loses.html
-
-**How a Blouse, a Bandage or a Handshake Might Sway a Voter**\
-`Our critics decode the political subtexts that matter in 2024 — and beyond.`\
-https://nytimes.com/2024/10/18/podcasts/how-a-blouse-a-bandage-or-a-handshake-might-sway-a-voter.html
 
