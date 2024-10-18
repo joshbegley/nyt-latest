@@ -1,3 +1,11 @@
+**Mudslides, Misinformation and an Urgency to Vote in Western North Carolina**\
+`On the first day of early voting, residents of western North Carolina weighed which candidates would most help their yearslong recovery.`\
+https://nytimes.com/2024/10/18/us/western-north-carolina-election-helene.html
+
+**In Swing Districts, Republicans Lean Into Anti-Crime Message to Court the Center**\
+`Representative Lori Chavez-DeRemer, a Republican in a tough re-election race in Oregon, is using a law-and-order pitch to appeal to a broad swath of voters and blunt concerns about the G.O.P. agenda.`\
+https://nytimes.com/2024/10/18/us/politics/republicans-crime-2024-election.html
+
 **An emotional Tony Bennett explains his decision to retire from UVA**\
 `Bennett's philosophies didn’t always align with the name, image and likeness and transfer portal era of college athletics.`\
 https://nytimes.com/athletic/5853585/2024/10/18/tony-bennett-retires-ron-sanchez-uva/
