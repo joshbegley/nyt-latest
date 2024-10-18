@@ -1,4 +1,8 @@
 **Aston Villa's Kamara and Mings available ahead of trip to Fulham**\
+`Unai Emery has confirmed that Boubacar Kamara and Tyrone Mings have returned to full fitness and are available for Aston Villa&#8217;s trip to Fulham.`\
+https://nytimes.com/athletic/5853144/2024/10/18/aston-villa-mings-kamara-fulham/
+
+**Aston Villa's Kamara and Mings available ahead of trip to Fulham**\
 `Unai Emery has confirmed Boubacar Kamara and Tyrone Mings have returned to full fitness and are available for Aston Villa&#8217;s trip to Fulham.`\
 https://nytimes.com/athletic/5853144/2024/10/18/aston-villa-mings-kamara-fulham/
 
