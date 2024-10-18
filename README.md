@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5853292/2024/10/18/ange-postecoglou-tottenham-princ
 `"Just watching him makes you want to play with him," rookie guard Rob Dillingham said on Garza.`\
 https://nytimes.com/athletic/5852302/2024/10/18/timberwolves-luka-garza-playing-time/
 
-**Pitt finalizing deal to make Greene school's new athletic director: Source**\
+**Pitt finalizing deal to hire Allen Greene as AD**\
 `The 47-year-old Greene replaces Heather Lyke, who was fired last month after eight years at the school.`\
 https://nytimes.com/athletic/5853248/2024/10/18/allen-greene-pittsburgh-athletic-director/
 
