@@ -1,3 +1,11 @@
+**Why are Newcastle not using £10m striker Osula given other injuries and lack of goals?**\
+`Eddie Howe does not yet trust that the 21-year-old is ready to make an impact in the first team, but there are high hopes for Osula `\
+https://nytimes.com/athletic/5849325/2024/10/18/william-osula-newcastle-striker/
+
+**The 'Guardiac' kids keep finding ways to win, but they'll need their stars to step up soon**\
+`The Guardians are getting major contributions from the likes of Jhonkensy Noel and David Fry, though they'll need their stars to step up.`\
+https://nytimes.com/athletic/5852533/2024/10/18/cleveland-guardians-alcs-game-3-column/
+
 **Friday Briefing**\
 `The leader of Hamas is dead.`\
 https://nytimes.com/2024/10/18/briefing/hamas-leader-trump-election-zelensky.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5849721/2024/10/18/premier-league-la-liga-serie-a-b
 **'Feliz Navidad!' Jhonkensy Noel's Game 3 ALCS homer inspires epic Spanish radio call**\
 `With one swing of the bat, Noel sent Progressive Field into pandemonium, and Rafa Hernández-Brito was there to set the scene. `\
 https://nytimes.com/athletic/5852391/2024/10/18/jhonkensy-noel-alcs-game-3-homer-spanish-broadcast/
-
-**They Came for the Music. They Left With Draft Officers for Ukraine’s Army.**\
-`Men who attended the Kyiv concert of a popular rock band had their papers checked on the way out. Some were detained. Tickets to subsequent shows suddenly became available.`\
-https://nytimes.com/2024/10/18/world/europe/ukraine-draft-concert-army.html
-
-**Payton's Broncos dominate Saints in his return to New Orleans**\
-`Denver turned in one of its most dominant performances of coach Sean Payton's tenure in a 33-10 win against the Saints.`\
-https://nytimes.com/athletic/5852412/2024/10/18/saints-broncos-score-results-takeaways/
 

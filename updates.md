@@ -1,3 +1,11 @@
+**Why are Newcastle not using £10m striker Osula given other injuries and lack of goals?**\
+`Eddie Howe does not yet trust that the 21-year-old is ready to make an impact in the first team, but there are high hopes for Osula `\
+https://nytimes.com/athletic/5849325/2024/10/18/william-osula-newcastle-striker/
+
+**The 'Guardiac' kids keep finding ways to win, but they'll need their stars to step up soon**\
+`The Guardians are getting major contributions from the likes of Jhonkensy Noel and David Fry, though they'll need their stars to step up.`\
+https://nytimes.com/athletic/5852533/2024/10/18/cleveland-guardians-alcs-game-3-column/
+
 **Friday Briefing**\
 `The leader of Hamas is dead.`\
 https://nytimes.com/2024/10/18/briefing/hamas-leader-trump-election-zelensky.html
