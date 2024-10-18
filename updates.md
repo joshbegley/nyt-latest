@@ -1,3 +1,11 @@
+**West Bank violence spills into Palestinians’ crucial olive harvest.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/west-bank-violence-spills-into-palestinians-crucial-olive-harvest
+
+**Why Israel Targeted Yahya Sinwar**\
+`What does the killing of Yahya Sinwar, mastermind of the Oct. 7 attack, mean for Israel and Gaza? Ronen Bergman, a staff writer for The New York Times Magazine who is based in Tel Aviv, explains.`\
+https://nytimes.com/video/world/middleeast/100000009768679/who-was-yahya-sinwar.html
+
 **These Americans Say They’ll Move Abroad if Their Candidate Loses**\
 `We spoke with Americans who are packing up and moving out.`\
 https://nytimes.com/2024/10/18/us/politics/these-americans-say-theyll-move-abroad-if-their-candidate-loses.html

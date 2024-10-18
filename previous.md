@@ -1,3 +1,11 @@
+**West Bank violence spills into Palestinians’ crucial olive harvest.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/west-bank-violence-spills-into-palestinians-crucial-olive-harvest
+
+**Why Israel Targeted Yahya Sinwar**\
+`What does the killing of Yahya Sinwar, mastermind of the Oct. 7 attack, mean for Israel and Gaza? Ronen Bergman, a staff writer for The New York Times Magazine who is based in Tel Aviv, explains.`\
+https://nytimes.com/video/world/middleeast/100000009768679/who-was-yahya-sinwar.html
+
 **These Americans Say They’ll Move Abroad if Their Candidate Loses**\
 `We spoke with Americans who are packing up and moving out.`\
 https://nytimes.com/2024/10/18/us/politics/these-americans-say-theyll-move-abroad-if-their-candidate-loses.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5853458/2024/10/18/49ers-ricky-pearsall-return-chie
 **Eagles LT Jordan Mailata placed on injured reserve**\
 `Jordan Mailata has started 48 of the Eagles' last 50 games.`\
 https://nytimes.com/athletic/5854165/2024/10/18/eagles-jordan-mailata-injured-reserve/
-
-**Biden Renewed Efforts to Reach a Cease-Fire in Gaza**\
-`Also, a power outage plunged all of Cuba into darkness. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/10/18/briefing/biden-middle-east-cuba-power-outage.html
-
-**In a Swing County, Hidden Signs of Harris Support**\
-`A country road is crowded with Trump signs. But Harris supporters exist, quietly.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/luzerne-pennsylvania-harris-support
 
