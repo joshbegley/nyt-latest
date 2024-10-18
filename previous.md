@@ -1,8 +1,12 @@
+**The Pulse: Last night's swing that made it a series**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5851427/2024/10/18/guardians-yankees-walkoff-the-pulse/
+
 **Biden, in Germany, Urges Unwavering Support for Ukraine**\
 `The United States and its allies must work tirelessly, President Biden said, to “ensure that Ukraine prevails and Putin fails.”`\
 https://nytimes.com/2024/10/18/world/europe/biden-us-germany-ukraine-war-nato-russia.html
 
-**In Game 4, Dodgers' Ohtani and Betts deliver a 1-2 punch like no other — ever**\
+**Weird & Wild: In Game 4, Dodgers' Ohtani and Betts deliver a 1-2 punch like no other — ever**\
 `How good were the Dodgers' 1-2 hitters in Game 4? So good that they put on a performance unlike any other in 105 years of baseball history.`\
 https://nytimes.com/athletic/5852833/2024/10/18/ohtani-mookie-betts-dodgers-nlcs-game-4/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5851929/2024/10/18/packers-rookie-review-evan-willi
 **Israel Kills an Architect of the Oct. 7 Attacks**\
 `Yahya Sinwar, the leader of Hamas, was killed by Israeli forces in Gaza. What does that mean for cease-fire talks?`\
 https://nytimes.com/2024/10/18/podcasts/the-daily/israel-sinwar-oct-7.html
-
-**The Death of Yahya Sinwar, and Execution Halted in Shaken Baby Case**\
-`Plus, closing time for Kmart.`\
-https://nytimes.com/2024/10/18/podcasts/hamas-sinwar-texas-execution.html
 

@@ -1,3 +1,11 @@
+**The Pulse: Last night's swing that made it a series**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5851427/2024/10/18/guardians-yankees-walkoff-the-pulse/
+
+**Weird & Wild: In Game 4, Dodgers' Ohtani and Betts deliver a 1-2 punch like no other — ever**\
+`How good were the Dodgers' 1-2 hitters in Game 4? So good that they put on a performance unlike any other in 105 years of baseball history.`\
+https://nytimes.com/athletic/5852833/2024/10/18/ohtani-mookie-betts-dodgers-nlcs-game-4/
+
 **Biden, in Germany, Urges Unwavering Support for Ukraine**\
 `The United States and its allies must work tirelessly, President Biden said, to “ensure that Ukraine prevails and Putin fails.”`\
 https://nytimes.com/2024/10/18/world/europe/biden-us-germany-ukraine-war-nato-russia.html
