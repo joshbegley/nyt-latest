@@ -1,3 +1,11 @@
+**Premier League top 4 race: Breaking down the chances and odds for the top outsiders**\
+`Will the top four race in the Premier League be chalk or will any of the outsiders make a surprise run? Here's a look at the contenders.`\
+https://nytimes.com/athletic/5853608/2024/10/18/premier-league-top-4-odds-tottenham-aston-villa-manchester-united-newcastle/
+
+**Sinwar Killed by Gunshot, Israeli Autopsy Finds**\
+`The director of Israel’s national forensic institute, Dr. Chen Kugel, oversaw the autopsy and described its findings in an interview with The New York Times on Friday.`\
+https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-hamas-autopsy.html
+
 **Mudslides, Misinformation and an Urgency to Vote in Western North Carolina**\
 `On the first day of early voting, residents of western North Carolina weighed which candidates would most help their yearslong recovery.`\
 https://nytimes.com/2024/10/18/us/western-north-carolina-election-helene.html
