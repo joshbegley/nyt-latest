@@ -1,3 +1,11 @@
+**Hamas Says Its Demands Are Unchanged as Biden Pushes for Gaza Cease-Fire**\
+`A top deputy to the killed Hamas leader Yahya Sinwar vowed that his “banner will not fall” and that the group would hold to its cease-fire conditions.`\
+https://nytimes.com/2024/10/18/world/middleeast/hamas-sinwar-ceasefire-biden.html
+
+**Sinwar’s Final Moments: On the Run, Hurt, Alone, but Still Defiant**\
+`Israeli forces had been steadily closing in on Yahya Sinwar, the Hamas leader, for weeks before he was cornered and killed in a ruined house in the Gaza Strip.`\
+https://nytimes.com/2024/10/18/world/middleeast/sinwars-final-moments-gaza.html
+
 **Fire in Oakland Hills Prompts Evacuations as High Winds Threaten Spread**\
 `Firefighters in Northern California were responding to a blaze that burned at least four buildings and 13 acres.`\
 https://nytimes.com/2024/10/18/us/oakland-hills-fire-evacuation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/podcasts/how-a-blouse-a-bandage-or-a-handshake-mi
 **FIA calls Red Bull rules breach question a 'non-story' as Horner claims paddock 'paranoia'**\
 `Red Bull’s championship rival, McLaren, has raised concerns about a device on Red Bull's car. `\
 https://nytimes.com/athletic/5854256/2024/10/18/red-bull-f1-rules-christian-horner-us-gp/
-
-**What We Know About the Execution Pending in the Shaken Baby Case**\
-`With his execution on hold, Robert Roberson is set to testify at a Texas House hearing about his conviction, which was based in part on a questionable diagnosis of shaken baby syndrome.`\
-https://nytimes.com/2024/10/18/us/texas-robert-roberson-execution.html
-
-**Lebanon Issues Rare Criticism of Iran Over ‘Blatant Interference’**\
-`Lebanon’s caretaker prime minister, Najib Mikati, summoned Tehran’s envoy over reported comments by a senior Iranian official on a U.N. resolution deemed a precondition for a cease-fire.`\
-https://nytimes.com/2024/10/18/world/middleeast/lebanon-iran-interference.html
 
