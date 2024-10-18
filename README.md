@@ -1,3 +1,7 @@
+**Corrections: Oct. 18, 2024**\
+`Corrections that appeared in print on Friday, Oct. 18, 2024.`\
+https://nytimes.com/2024/10/17/pageoneplus/corrections-oct-18-2024.html
+
 **Fry, Noel power Guardians to Game 3 comeback over Yankees: Takeaways**\
 `The duo hit back-to-back homers in the eighth inning off Guardians closer Emmanuel Clase, as the Yankees rallied to a 5-3 Game 3 win. `\
 https://nytimes.com/athletic/5852037/2024/10/17/yankees-guardians-mlb-score-alcs-judge-fry-noel/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5852176/2024/10/17/aaron-judge-giancarlo-stanton-al
 **Art Adviser to the Elite Pleads Guilty to Wire Fraud**\
 `Lisa Schiff acknowledges stealing millions from major collectors who trusted her to buy them fashionable art.`\
 https://nytimes.com/2024/10/17/arts/design/art-adviser-wire-fraud-lisa-schiff.html
-
-**The International Criminal Court’s chief prosecutor sought warrants for 3 Hamas leaders. All 3 are now dead.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/10/17/world/israel-lebanon-iran-gaza-news/the-international-criminal-courts-chief-prosecutor-sought-warrants-for-3-hamas-leaders-all-3-are-now-dead
 
