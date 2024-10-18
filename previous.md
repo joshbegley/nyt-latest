@@ -1,3 +1,7 @@
+**Lebanon Issues Rare Criticism of Iran Over ‘Blatant Interference’**\
+`Lebanon’s caretaker prime minister, Najib Mikati, summoned Tehran’s envoy over reported comments by a senior Iranian official on a U.N. resolution deemed a precondition for a cease-fire.`\
+https://nytimes.com/2024/10/18/world/middleeast/lebanon-iran-interference.html
+
 **How Fugetsu-Do Survived the Evolution of Little Tokyo**\
 `Fugetsu-Do, a mochi store in the Little Tokyo neighborhood of Los Angeles, has existed for 121 years, with a lasting impact on its community.`\
 https://nytimes.com/2024/10/18/headway/how-fugetsu-do-survived-the-evolution-of-little-tokyo.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/capital-one-venture-x/experience-anguilla-with-vent
 **In Michigan, Harris Makes Blue-Collar Pitch and Needles Trump as ‘Exhausted’**\
 `As the candidates campaigned in the battleground on the same day, Kamala Harris promised to “work with unions to create good-paying jobs.” Donald Trump was set for several stops around Detroit.`\
 https://nytimes.com/2024/10/18/us/politics/trump-harris-michigan.html
-
-**Drone Captures Moment of Defiance, Which Israel Says Was Sinwar’s Last**\
-`In a war often seen from far away, the footage from an Israeli drone appears to capture a moment both pivotal and personal.`\
-https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-hamas-drone-video.html
 
