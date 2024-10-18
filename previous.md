@@ -1,3 +1,15 @@
+**Tee Higgins' game reaches new heights with 'oomph' and 'urgency' in contract season**\
+`The receiver is playing motivated as he's poised to enter free agency after the season with every catch helping determine his value.`\
+https://nytimes.com/athletic/5851915/2024/10/18/bengals-tee-higgins-contract-season/
+
+**Phillies notes: Managing J.T. Realmuto, rebuilding the bullpen, roster turnover**\
+`The Phillies want to manage Realmuto's workload better, but he will be playing for his next contract. It will be a difficult conversation.`\
+https://nytimes.com/athletic/5850790/2024/10/18/phillies-jt-realmuto-bullpen-roster/
+
+**Hollinger: SGA for MVP, Cavs' rare heights and more fearless season predictions**\
+`A Most Improved Player in Texas? Coach of the Year from the East? Let's take some swings at what will happen in 2024-25.`\
+https://nytimes.com/athletic/5825360/2024/10/18/nba-predictions-shai-gilgeous-alexander-mvp-wembanyama/
+
 **What does Michigan-Illinois mean? Previewing a sneaky big game for Wolverines, Illini**\
 `Two high-profile SEC games headline Week 8, but Michigan-Illinois gives Saturday three Top 25 matchups. Here's what to watch in Champaign.`\
 https://nytimes.com/athletic/5851273/2024/10/18/michigan-illinois-football-preview-prediction/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/10/18/arts/weekend-editors-picks-anora.html
 **The Hidden Politics of Disorder**\
 `The crime researcher Charles Fain Lehman discusses why people feel unsafe, even as violent crime rates have dropped.`\
 https://nytimes.com/2024/10/18/opinion/ezra-klein-podcast-charles-fain-lehman.html
-
-**USC football at midseason: A position-by-position analysis of the Trojans after 6 games**\
-`USC is a good team. Its shortcomings in late-game situations have prevented it from being a 5-1 or 6-0 team.`\
-https://nytimes.com/athletic/5852034/2024/10/18/usc-football-midseason-lincolln-riley-miller-moss/
-
-**Has Eric Trump Ever Held a ‘Real’ Job?**\
-`The week in bad public behavior and political nonsense.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/eric-trump-job-behavior
-
-**How to Stop Being a People Pleaser**\
-`We have some useful tips from experts. But no worries if you’re not ready!`\
-https://nytimes.com/2024/10/18/well/people-pleasing.html
 
