@@ -1,3 +1,11 @@
+**Dallas Wings fire coach Latricia Trammell**\
+`The Wings were without 2023 first-team All-WNBA selection Satou Sabally for 25 games, as well as two-time All-Star Natasha Howard.`\
+https://nytimes.com/athletic/5853879/2024/10/18/latricia-trammell-wings-firing/
+
+**Russell Wilson to make first Steelers start vs. Jets**\
+`George Pickens spilled the Steelers' QB news about 10 minutes after Mike Tomlin declined to make it official.`\
+https://nytimes.com/athletic/5853893/2024/10/18/steelers-russell-wilson-starting-jets/
+
 **Power Outage Plunges All of Cuba Into Darkness**\
 `The Cuban government had just announced emergency measures to reduce electricity use — then the power went out across the entire nation.`\
 https://nytimes.com/2024/10/18/world/americas/cuba-power-plant-blackout.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/world/middleeast/israel-military-sinwar-killing.h
 **Ex-NFL QB Jay Cutler charged with DUI, gun possession**\
 `Cutler played 12 seasons in the NFL with the Denver Broncos, Chicago Bears and Miami Dolphins.`\
 https://nytimes.com/athletic/5853417/2024/10/18/jay-cutler-dui-arrest-nfl/
-
-**Colts QB Richardson to start vs. Dolphins, RB Taylor out again**\
-`Jonathan Taylor has now missed 16 games due to injury over the last three years.`\
-https://nytimes.com/athletic/5853749/2024/10/18/colts-injury-updates-anthony-richardson-jonathan-taylor/
-
-**Who will replace Tony Bennett at Virginia? Interim coach Ron Sanchez isn't only candidate**\
-`Interim coach Ron Sanchez is the favorite to replace Tony Bennett at Virginia, but keep an eye on Ryan Odom, Mitch Henderson and more.`\
-https://nytimes.com/athletic/5853543/2024/10/18/virginia-basketball-coach-candidates-sanchez-bennett-retired/
 
