@@ -1,3 +1,11 @@
+**49ers GM says 'there's a chance' Pearsall plays**\
+`Asked on KNBR radio if Pearsall could be activated this week, Lynch said, “Absolutely there’s a chance. He’s had a good practice week."`\
+https://nytimes.com/athletic/5853458/2024/10/18/49ers-ricky-pearsall-return-chiefs/
+
+**Why tennis disruptors are waiting for the sport to disrupt itself**\
+`The current relationship between tennis, media, and the fan experience makes disruption necessary but difficult.`\
+https://nytimes.com/athletic/5852994/2024/10/18/tennis-future-growth-six-kings-slam-uts/
+
 **Judge Releases Redacted Trove of Evidence in Trump Election Case**\
 `The former president’s legal team had objected to any release of material, saying it would amount to election interference.`\
 https://nytimes.com/2024/10/18/us/politics/trump-election-case-evidence.html
