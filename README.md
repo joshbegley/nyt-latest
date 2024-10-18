@@ -1,3 +1,11 @@
+**These Americans Say They’ll Move Abroad if Their Candidate Loses**\
+`We spoke with Americans who are packing up and moving out.`\
+https://nytimes.com/2024/10/18/us/politics/these-americans-say-theyll-move-abroad-if-their-candidate-loses.html
+
+**How a Blouse, a Bandage or a Handshake Might Sway a Voter**\
+`Our critics decode the political subtexts that matter in 2024 — and beyond.`\
+https://nytimes.com/2024/10/18/podcasts/how-a-blouse-a-bandage-or-a-handshake-might-sway-a-voter.html
+
 **FIA calls Red Bull rules breach question a 'non-story' as Horner claims paddock 'paranoia'**\
 `Red Bull’s championship rival, McLaren, has raised concerns about a device on Red Bull's car. `\
 https://nytimes.com/athletic/5854256/2024/10/18/red-bull-f1-rules-christian-horner-us-gp/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/briefing/biden-middle-east-cuba-power-outage.html
 **In a Swing County, Hidden Signs of Harris Support**\
 `A country road is crowded with Trump signs. But Harris supporters exist, quietly.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/luzerne-pennsylvania-harris-support
-
-**Ten Hag: Ferguson 'always available' for advice despite contract ending**\
-`Erik ten Hag believes Sir Alex Ferguson will always be available for advice despite Manchester United removing him from the wage bill.`\
-https://nytimes.com/athletic/5854138/2024/10/18/ten-hag-ferguson-manchester-united/
-
-**Charges Against Deaf Black Man Punched by Phoenix Police Are Dropped**\
-`The man, Tyron Scott McAlpin, who also has cerebral palsy, was repeatedly punched and shocked with a Taser by the police during an arrest in August. The arrest is under investigation.`\
-https://nytimes.com/2024/10/18/us/tyron-mcalpin-charges-dropped-maricopa-arizona.html
 
