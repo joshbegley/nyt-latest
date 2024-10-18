@@ -1,3 +1,7 @@
+**Man Sent to Life in Prison for Transgender Woman’s Killing**\
+`The man, Daqua Lameek Ritter, was the first person in the country to be convicted of a federal hate crime based on gender identity.`\
+https://nytimes.com/2024/10/17/us/dime-doe-murder-south-carolina-hate-crime.html
+
 **Microsoft and OpenAI’s Close Partnership Shows Signs of Fraying**\
 `The “best bromance in tech” has had a reality check as OpenAI has tried to change its deal with Microsoft and the software maker has tried to hedge its bet on the start-up.`\
 https://nytimes.com/2024/10/17/technology/microsoft-openai-partnership-deal.html
