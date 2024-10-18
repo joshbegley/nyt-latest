@@ -1,3 +1,7 @@
+**Veterans Dept. Investigating Acadia Healthcare for Insurance Fraud**\
+`Several federal agencies are investigating whether the large chain of psychiatric hospitals held patients without medical justification.`\
+https://nytimes.com/2024/10/18/business/acadia-healthcare-veterans-affairs-investigation.html
+
 **Dallas Wings fire coach Latricia Trammell**\
 `The Wings were without 2023 first-team All-WNBA selection Satou Sabally for 25 games, as well as two-time All-Star Natasha Howard.`\
 https://nytimes.com/athletic/5853879/2024/10/18/latricia-trammell-wings-firing/

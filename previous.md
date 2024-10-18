@@ -1,3 +1,7 @@
+**Veterans Dept. Investigating Acadia Healthcare for Insurance Fraud**\
+`Several federal agencies are investigating whether the large chain of psychiatric hospitals held patients without medical justification.`\
+https://nytimes.com/2024/10/18/business/acadia-healthcare-veterans-affairs-investigation.html
+
 **Dallas Wings fire coach Latricia Trammell**\
 `The Wings were without 2023 first-team All-WNBA selection Satou Sabally for 25 games, as well as two-time All-Star Natasha Howard.`\
 https://nytimes.com/athletic/5853879/2024/10/18/latricia-trammell-wings-firing/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/climate/supreme-court-shadow-docket-environment.h
 **Sinwar’s Death Embodies Israel’s Long Quest for Deterrence**\
 `Israel’s killing of the Hamas leader Yahya Sinwar is the latest expression of Israel’s belief that regional acceptance will be achieved only through strength.`\
 https://nytimes.com/2024/10/18/world/middleeast/israel-military-sinwar-killing.html
-
-**Ex-NFL QB Jay Cutler charged with DUI, gun possession**\
-`Cutler played 12 seasons in the NFL with the Denver Broncos, Chicago Bears and Miami Dolphins.`\
-https://nytimes.com/athletic/5853417/2024/10/18/jay-cutler-dui-arrest-nfl/
 
