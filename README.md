@@ -1,3 +1,7 @@
+**A Sherrod Brown Ad Seizes on an Unwise Remark About Women and Abortion**\
+`Bernie Moreno, his Republican rival, said women older than 50 are “crazy” for caring about abortion rights. A series of Ohio women who fit that description have much to say in response.`\
+https://nytimes.com/2024/10/18/us/politics/ohio-abortion-bernie-moreno-sherrod-brown.html
+
 **Giants name J.P. Martinez as their new pitching coach**\
 `Martinez had been an assistant pitching coach for the Giants since 2021. He takes over for Bryan Price, who stepped down from the role.`\
 https://nytimes.com/athletic/5854043/2024/10/18/jp-martinez-sf-giants-pitching-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854000/2024/10/18/rams-cooper-kupp-injury-update-v
 **U.N. Peacekeeping Force in Southern Lebanon Will Remain, U.N. Official Says**\
 `Israel has demanded that the force, known as UNIFIL, pull out. But all the countries contributing troops and the U.N. Security Council decided unanimously that UNIFIL should stay.`\
 https://nytimes.com/2024/10/18/world/middleeast/un-peacekeepers-lebanon-israel.html
-
-**Review: An Invitation to the Dance, Simple and Subtle**\
-`DD Dorvillier’s solo at the Chocolate Factory evokes a dream state as it digs into the same river of dance twice.`\
-https://nytimes.com/2024/10/18/arts/dance/review-dd-dorvillier-chocolate-factory.html
 
