@@ -1,3 +1,11 @@
+**Much of the Emerald Isle Is an Ecological Desert. He’s Trying to Change That.**\
+`Eoghan Daltun rewilded his land in West Cork and wants more of Ireland to do the same.`\
+https://nytimes.com/2024/10/18/climate/ireland-ecological-desert-rewilding.html
+
+**What’s at Stake in a Strained Microsoft-OpenAI Partnership**\
+`The alliance between the technology giant and the company behind OpenAI has been hugely consequential — but a disruption could shake up the A.I. race.`\
+https://nytimes.com/2024/10/18/business/dealbook/microsoft-openai-ai.html
+
 **Impeachment of Kenya’s Deputy President Could Augur Further Turmoil**\
 `It’s the first impeachment under the country’s new Constitution, but some are now calling for a similar move against President William Ruto.`\
 https://nytimes.com/2024/10/18/world/africa/kenya-deputy-president-impeachment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5847491/2024/10/18/fantasy-premier-league-advice-in
 **Arteta says he would have played for England: 'I feel very proud about it'**\
 `Arsenal manager Mikel Arteta says he would have changed his international allegiance from Spain to England during his playing career.`\
 https://nytimes.com/athletic/5852970/2024/10/18/mikel-arteta-england-tuchel/
-
-**Sinwar’s Death Could Shake but Not Topple Hamas, Experts Say**\
-`Analysts call the killing of several Hamas leaders, including Yahya Sinwar, a deep blow to the Palestinian militant group, but expect it to keep fighting.`\
-https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-death-hamas.html
-
-**With Davante Adams gone, Tre Tucker aiming to step into bigger role with Raiders**\
-`Now that his mentor has been traded, it's time for Tucker to become a bigger part of the Raiders' passing game behind Aidan O'Connell.`\
-https://nytimes.com/athletic/5807316/2024/10/18/tre-tucker-raiders-davante-adams/
 
