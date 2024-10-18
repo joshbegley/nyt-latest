@@ -1,3 +1,11 @@
+**In huge season for Pelicans, coach Willie Green will be judged by how he adapts to his roster**\
+`The Pelicans coach faces new challenges on several fronts in 2024-25. How is he planning to navigate them?`\
+https://nytimes.com/athletic/5852336/2024/10/18/willie-green-pelicans-coach-roster-season/
+
+**A Local Hangout Dad and Daughter Found Special (for Different Reasons)**\
+`Jocelyn DeGroot-Lutzner grew up four blocks from Ephream Seyoum in West Philadelphia. But the two didn’t meet until she applied for a job at his family’s Eritrean restaurant.`\
+https://nytimes.com/2024/10/18/fashion/jocelyn-degroot-lutzner-ephream-seyoum-wedding.html
+
 **CVS Ousts C.E.O. as Sluggish Growth Spooks Investors**\
 `Shares of the health care conglomerate dropped after the sudden departure of Karen Lynch and a downbeat update on the state of the company’s finances.`\
 https://nytimes.com/2024/10/18/business/cvs-ceo-karen-lynch.html

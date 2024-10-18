@@ -1,3 +1,11 @@
+**In huge season for Pelicans, coach Willie Green will be judged by how he adapts to his roster**\
+`The Pelicans coach faces new challenges on several fronts in 2024-25. How is he planning to navigate them?`\
+https://nytimes.com/athletic/5852336/2024/10/18/willie-green-pelicans-coach-roster-season/
+
+**A Local Hangout Dad and Daughter Found Special (for Different Reasons)**\
+`Jocelyn DeGroot-Lutzner grew up four blocks from Ephream Seyoum in West Philadelphia. But the two didn’t meet until she applied for a job at his family’s Eritrean restaurant.`\
+https://nytimes.com/2024/10/18/fashion/jocelyn-degroot-lutzner-ephream-seyoum-wedding.html
+
 **CVS Ousts C.E.O. as Sluggish Growth Spooks Investors**\
 `Shares of the health care conglomerate dropped after the sudden departure of Karen Lynch and a downbeat update on the state of the company’s finances.`\
 https://nytimes.com/2024/10/18/business/cvs-ceo-karen-lynch.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5852477/2024/10/18/new-york-giants-andrew-thomas-ea
 **Tesla Self-Driving System Will Be Investigated by Safety Agency**\
 `The National Highway Transportation Safety Administration said it was looking into what Elon Musk’s electric car company called the full self-driving system.`\
 https://nytimes.com/2024/10/18/business/tesla-self-driving-investigation.html
-
-**Judge Orders DeSantis Administration to Stop Threats Over Abortion-Rights Ad**\
-`The organization behind a campaign for an abortion-rights ballot measure sued the Florida governor’s administration over its threats of criminal prosecution against TV stations.`\
-https://nytimes.com/2024/10/18/us/politics/abortion-florida-desantis.html
-
-**Plymouth coach Rooney given touchline ban and fine for misconduct**\
-`Wayne Rooney has been given a one-match touchline ban and a £5,500 fine by the Football Association (FA) for misconduct during Plymouth Argyle’s 2-1 victory over Blackburn Rovers on October 5.`\
-https://nytimes.com/athletic/5853203/2024/10/18/wayne-rooney-ban-plymouth/
 
