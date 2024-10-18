@@ -1,3 +1,7 @@
+**A Candidate for U.S. Senate Says He Was Shot in War. Was He?**\
+`Tim Sheehy, a Republican running for U.S. Senate in Montana, says he has a bullet in his arm from Afghanistan. But new questions have been raised about his account.`\
+https://nytimes.com/2024/10/18/us/tim-sheehy-gunshot-wound-montana-senate.html
+
 **‘A New Day’ at the Supreme Court? Justices Decline to Block an E.P.A. Rule.**\
 `The court’s decision was the third recent victory for regulators.`\
 https://nytimes.com/2024/10/18/climate/supreme-court-shadow-docket-environment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5853737/2024/10/18/miami-marlins-diamond-sports-ret
 **Italian Judges Strike Down Request to Hold Migrants in Albania**\
 `The ruling was a major blow to the conservative government’s plan to have asylum claims heard in Albania instead of Italy.`\
 https://nytimes.com/2024/10/18/world/europe/italy-albania-migrants-judge.html
-
-**Patriots in London: Jerod Mayo makes pitch for optimism during rebuild**\
-`The Patriots are optimistic as they arrive in London despite five straight losses.`\
-https://nytimes.com/athletic/5853610/2024/10/18/new-england-patriots-london-jacksonville-jaguars-drake-maye/
 

@@ -1,3 +1,7 @@
+**A Candidate for U.S. Senate Says He Was Shot in War. Was He?**\
+`Tim Sheehy, a Republican running for U.S. Senate in Montana, says he has a bullet in his arm from Afghanistan. But new questions have been raised about his account.`\
+https://nytimes.com/2024/10/18/us/tim-sheehy-gunshot-wound-montana-senate.html
+
 **‘A New Day’ at the Supreme Court? Justices Decline to Block an E.P.A. Rule.**\
 `The court’s decision was the third recent victory for regulators.`\
 https://nytimes.com/2024/10/18/climate/supreme-court-shadow-docket-environment.html
