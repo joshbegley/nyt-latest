@@ -1,3 +1,19 @@
+**It Is ‘All About the Fish’ on Park Ave.**\
+`Avid and influential anglers turned out to honor Bob Rich Jr. at the Bonefish & Tarpon Trust’s annual gala in Manhattan.`\
+https://nytimes.com/2024/10/18/style/bob-rich-bonefish-tarpon-trust-gala.html
+
+**The Orionids Meteor Shower Is Peaking. Here’s How to Watch.**\
+`This event is linked to Halley’s comet, and occurs as another comet, Tsuchinshan-ATLAS, remains visible. But a nearly full moon could interfere with some views.`\
+https://nytimes.com/2024/10/18/science/orionid-meteor-shower-how-to-watch.html
+
+**Fantasy football flex fliers: DeMario Douglas and Xavier Legette lead pack**\
+`Scott Engel gives his top fantasy football picks for flex position fliers heading into Week 7.`\
+https://nytimes.com/athletic/5853431/2024/10/18/fantasy-football-flex-fliers-week-7-demario-douglas/
+
+**Yes, Ambassadors Can Get Away With Murder**\
+`Diplomatic immunity is one of the oldest and most respected rules of international law.`\
+https://nytimes.com/2024/10/18/world/ambassadors-murder-india-sikh.html
+
 **Trump Defends Adams, Arguing Both Are Being ‘Persecuted’**\
 `Mayor Eric Adams, a Democrat, and Donald J. Trump, the Republican former president, are strange bedfellows as both face legal challenges.`\
 https://nytimes.com/2024/10/18/nyregion/trump-adams-smith-dinner.html
