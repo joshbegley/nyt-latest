@@ -1,3 +1,7 @@
+**What does Michigan-Illinois mean? Previewing a sneaky big game for Wolverines, Illini**\
+`Two high-profile SEC games headline Week 8, but Michigan-Illinois gives Saturday three Top 25 matchups. Here's what to watch in Champaign.`\
+https://nytimes.com/athletic/5851273/2024/10/18/michigan-illinois-football-preview-prediction/
+
 **Why a key part of the Falcons' offseason plan may already be out the window: 5 factors**\
 `The Falcons planned to run lots of 12 personnel this season, and they tried it in Week 1. Since then, they've changed direction.`\
 https://nytimes.com/athletic/5851156/2024/10/18/falcons-11-personnel-seahawks/
