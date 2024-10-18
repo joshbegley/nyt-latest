@@ -1,3 +1,11 @@
+**Fry, Noel power Guardians to Game 3 comeback over Yankees: Takeaways**\
+`The duo hit back-to-back homers in the eighth inning off Guardians closer Emmanuel Clase, as the Yankees rallied to a 5-3 Game 3 win. `\
+https://nytimes.com/athletic/5852037/2024/10/17/yankees-guardians-mlb-score-alcs-judge-fry-noel/
+
+**Man Sentenced to Life in Prison for Transgender Woman’s Killing**\
+`The man, Daqua Lameek Ritter, was the first person in the country to be convicted of a federal hate crime based on gender identity.`\
+https://nytimes.com/2024/10/17/us/dime-doe-murder-south-carolina-hate-crime.html
+
 **How Trump’s Radical Tariff Plan Could Wreck Our Economy**\
 `There’s no upside to the former president’s pet economic plan.`\
 https://nytimes.com/2024/10/17/opinion/trump-tariffs-economy.html
