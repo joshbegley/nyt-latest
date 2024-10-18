@@ -1,3 +1,7 @@
+**What Will Become of Yahya Sinwar’s Body?**\
+`Uncertainty surrounds the fate of the Hamas leader’s corpse as experts say Israel will likely try to avoid having his resting place become a shrine.`\
+https://nytimes.com/2024/10/18/world/middleeast/what-will-become-of-yahya-sinwars-body.html
+
 **California Man Is Charged With Drugging and Sexually Assaulting 9 Women**\
 `The man, Michael DiGiorgio, is also charged with murdering one of the women, who died after being drugged, prosecutors said.`\
 https://nytimes.com/2024/10/18/us/redondo-beach-sexual-assault-drugging-women-california.html
