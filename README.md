@@ -1,3 +1,15 @@
+**JD Vance and the Fight for Pennsylvania’s Catholic Voters**\
+`The Republican vice-presidential nominee is the only Catholic on either national ticket. His politics resonate with many white conservative Catholics.`\
+https://nytimes.com/2024/10/18/us/jd-vance-pennsylvania-catholic.html
+
+**Facing Murder Plot Accusations, India Aids U.S. but Is Stern With Canada**\
+`In both cases of plans targeting Sikh separatists, suspicions of New Delhi’s involvement have arisen. That has put India in a tight diplomatic position.`\
+https://nytimes.com/2024/10/18/world/asia/india-sikh-murder-plots-canada-us.html
+
+**The Bounce: Giannis' "trade" talk, in context**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5852324/2024/10/18/giannis-antetokounmpo-bucks-victor-wembanyama-dpoy-nba-the-bounce/
+
 **Scoop City: Building the NFL's two best units**\
 `Scoop City is The Athletic&#8217;s daily NFL newsletter.`\
 https://nytimes.com/athletic/5853451/2024/10/18/vikings-ravens-nfl-stats-scoop-city/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5842042/2024/10/18/premier-league-predicted-line-up
 **A Cowed Establishment Toasts Trump at a Manhattan Charity Dinner**\
 `There were grudge matches and sycophancy in equal measure at the Alfred E. Smith Memorial Foundation Dinner. “Isn’t it just exciting, what’s going on,” Donald Trump said.`\
 https://nytimes.com/2024/10/18/us/elections/donald-trump-al-smith-dinner-new-york.html
-
-**The Best of Late Night This Week**\
-`With the general election just weeks away, the hosts discussed former President Trump’s health and his bizarre town hall in Pennsylvania, as well as Vice President Harris’s appearance on Fox News.`\
-https://nytimes.com/interactive/2024/10/18/arts/television/best-of-late-night-harris-trump.html
-
-**How Quinn Hughes did it all in Canucks' first win, and why he shouldn't need to**\
-`If Hughes has to play this often and perform this well for Vancouver to win, what does that mean for the team over the rest of the season?`\
-https://nytimes.com/athletic/5852788/2024/10/18/canucks-victory-quinn-hughes/
-
-**For Trump, the ‘Enemies Within’ Are the Pelosis**\
-`He continues to fantasize about using the military to go after them.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-enemies-pelosis
 
