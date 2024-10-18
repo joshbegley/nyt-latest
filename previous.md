@@ -1,3 +1,7 @@
+**CVS Ousts C.E.O. as Sluggish Growth Spooks Investors**\
+`Shares of the health care conglomerate dropped after the sudden departure of Karen Lynch and a downbeat update on the state of the company’s finances.`\
+https://nytimes.com/2024/10/18/business/cvs-ceo-karen-lynch.html
+
 **Democrats’ Report Calls Trump Hotel Business Unethical and Unconstitutional**\
 `Democrats on the House Oversight Committee said the former president overcharged the Secret Service and accepted money from officials and people who were seeking pardons and appointments.`\
 https://nytimes.com/2024/10/18/us/politics/trump-hotel-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/us/politics/abortion-florida-desantis.html
 **Plymouth coach Rooney given touchline ban and fine for misconduct**\
 `Wayne Rooney has been given a one-match touchline ban and a £5,500 fine by the Football Association (FA) for misconduct during Plymouth Argyle’s 2-1 victory over Blackburn Rovers on October 5.`\
 https://nytimes.com/athletic/5853203/2024/10/18/wayne-rooney-ban-plymouth/
-
-**Silva saddened after former Fulham Ladies captain alleges sexual abuse against Al Fayed**\
-`Fulham head coach Marco Silva has expressed his sadness after his club&#8217;s former women&#8217;s captain, Ronnie Gibbons, came forward to allege she was sexually assaulted on two occasions by then-owner Mohamed Al Fayed, saying &#8220;our empathy is with the situation&#8221;.`\
-https://nytimes.com/athletic/5853214/2024/10/18/marco-silva-fulham-al-fayed/
 

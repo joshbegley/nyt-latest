@@ -1,3 +1,7 @@
+**CVS Ousts C.E.O. as Sluggish Growth Spooks Investors**\
+`Shares of the health care conglomerate dropped after the sudden departure of Karen Lynch and a downbeat update on the state of the company’s finances.`\
+https://nytimes.com/2024/10/18/business/cvs-ceo-karen-lynch.html
+
 **Democrats’ Report Calls Trump Hotel Business Unethical and Unconstitutional**\
 `Democrats on the House Oversight Committee said the former president overcharged the Secret Service and accepted money from officials and people who were seeking pardons and appointments.`\
 https://nytimes.com/2024/10/18/us/politics/trump-hotel-report.html
