@@ -1,3 +1,7 @@
+**Guardiola refuses to confirm FA approach over becoming England head coach**\
+`Pep Guardiola has refused to confirm an approach from the Football Association (FA) about him becoming England head coach.`\
+https://nytimes.com/athletic/5853173/2024/10/18/pep-guardiola-england-manager-tuchel/
+
 **Aston Villa's Kamara and Mings available ahead of trip to Fulham**\
 `Unai Emery has confirmed that Boubacar Kamara and Tyrone Mings have returned to full fitness and are available for Aston Villa&#8217;s trip to Fulham.`\
 https://nytimes.com/athletic/5853144/2024/10/18/aston-villa-mings-kamara-fulham/
