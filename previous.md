@@ -1,3 +1,7 @@
+**The Ultrarich Descend on Paris as Art Basel Comes to Town**\
+`The inaugural edition at the restored Grand Palais featured works at price levels never seen before at Paris’s fall art fair.`\
+https://nytimes.com/2024/10/18/arts/design/art-basel-paris.html
+
 **The Death of Hamas’s Leader**\
 `Yahya Sinwar is dead. Could this be a turning point?`\
 https://nytimes.com/2024/10/18/briefing/yahya-sinwar-hamas-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5848547/2024/10/18/maple-leafs-artur-akhtyamov/
 **AFC North Whiparound: Still bullish on division, trade winds swirling, contract regrets**\
 `Has the division underachieved compared to early-season expectations? Plus, how will the four teams fare in Week 7? `\
 https://nytimes.com/athletic/5851083/2024/10/18/ravens-browns-bengals-steelers-afc-north-whip/
-
-**Packers rookie review: Evan Williams impresses, Edgerrin Cooper rising through 6 games**\
-`The Packers' rookie class has been hurt by various injuries, but a couple are starting to produce at the season's six-week mark.`\
-https://nytimes.com/athletic/5851929/2024/10/18/packers-rookie-review-evan-williams/
 

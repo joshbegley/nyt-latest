@@ -1,3 +1,7 @@
+**The Ultrarich Descend on Paris as Art Basel Comes to Town**\
+`The inaugural edition at the restored Grand Palais featured works at price levels never seen before at Paris’s fall art fair.`\
+https://nytimes.com/2024/10/18/arts/design/art-basel-paris.html
+
 **The Death of Hamas’s Leader**\
 `Yahya Sinwar is dead. Could this be a turning point?`\
 https://nytimes.com/2024/10/18/briefing/yahya-sinwar-hamas-israel.html
