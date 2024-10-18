@@ -1,3 +1,7 @@
+**200 Years Later, Still Trying to Define the Midwest**\
+`From the geographic boundaries to the values and friendliness, people have debated what defines the region essentially since it was labeled the Midwest. It has taken on a renewed urgency this election year.`\
+https://nytimes.com/2024/10/18/us/midwest-states-harris-trump.html
+
 **Tony Bennett has nothing to apologize for in a legendary career, but he should answer for its ending**\
 `Bennett's coaching and his class, his contributions to the game, have been extraordinary. His departure needed to be a bit more ordinary. `\
 https://nytimes.com/athletic/5852414/2024/10/18/tony-bennett-retirement-virginia-ron-sanchez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5850790/2024/10/18/phillies-jt-realmuto-bullpen-ros
 **Hollinger: SGA for MVP, Cavs' rare heights and more fearless season predictions**\
 `A Most Improved Player in Texas? Coach of the Year from the East? Let's take some swings at what will happen in 2024-25.`\
 https://nytimes.com/athletic/5825360/2024/10/18/nba-predictions-shai-gilgeous-alexander-mvp-wembanyama/
-
-**What does Michigan-Illinois mean? Previewing a sneaky big game for Wolverines, Illini**\
-`Two high-profile SEC games headline Week 8, but Michigan-Illinois gives Saturday three Top 25 matchups. Here's what to watch in Champaign.`\
-https://nytimes.com/athletic/5851273/2024/10/18/michigan-illinois-football-preview-prediction/
 
