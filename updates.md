@@ -1,3 +1,7 @@
+**Mohamed Al Fayed accused of sexually assaulting Fulham Ladies captain at Harrods**\
+`Ronnie Gibbons was twice shut in a room on her own with the Fulham FC and Harrods owner - this is her story`\
+https://nytimes.com/athletic/5851577/2024/10/18/mohamed-al-fayed-harrods-fulham-ronnie-gibbons/
+
 **Late Night Recaps Harris’s Time on Fox News and Trump’s on Univision**\
 `“Yes, both Kamala and Trump went into ‘the lion’s den’ this week — although they only got Trump there by telling him it was the name of a strip club,” Desi Lydic said on “The Daily Show.”`\
 https://nytimes.com/2024/10/18/arts/television/late-night-harris-fox-trump-univision.html
