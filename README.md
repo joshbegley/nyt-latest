@@ -1,3 +1,11 @@
+**Midseason takeaways: Is college football's parity improving, or is it a mirage?**\
+`If the second half of the college football season can match the first, we should be in for quite a ride.`\
+https://nytimes.com/athletic/5850799/2024/10/18/college-football-midseason-rankings-upsets/
+
+**Danielle Collins postpones tennis retirement**\
+`World No.`\
+https://nytimes.com/athletic/5852834/2024/10/18/danielle-collins-postpones-tennis-retirement-plans-will-play-wta-tour-2025/
+
 **Kieran Trippier out for October fixtures with hamstring injury**\
 `Kieran Trippier will miss the remainder of Newcastle United&#8217;s October fixtures with a hamstring problem, but Alexander Isak is set to return against Brighton &amp; Hove Albion.`\
 https://nytimes.com/athletic/5852832/2024/10/18/kieran-trippier-injury-newcastle/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/insider/what-ive-learned-interviewing-more-than-2
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/10/18/crosswords/spelling-bee-forum.html
-
-**Mohamed Al Fayed accused of sexually assaulting Fulham Ladies captain at Harrods**\
-`Ronnie Gibbons was twice shut in a room on her own with the Fulham FC and Harrods owner - this is her story`\
-https://nytimes.com/athletic/5851577/2024/10/18/mohamed-al-fayed-harrods-fulham-ronnie-gibbons/
-
-**Late Night Recaps Harris’s Time on Fox News and Trump’s on Univision**\
-`“Yes, both Kamala and Trump went into ‘the lion’s den’ this week — although they only got Trump there by telling him it was the name of a strip club,” Desi Lydic said on “The Daily Show.”`\
-https://nytimes.com/2024/10/18/arts/television/late-night-harris-fox-trump-univision.html
 
