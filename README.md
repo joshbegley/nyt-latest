@@ -1,3 +1,11 @@
+**On an October night in Cleveland, the Guardians (and baseball gods) deliver an instant classic**\
+`The Guardians' wild 7-5 comeback win in Game 3 of the ALCS will be a moment Clevelanders won't forget. `\
+https://nytimes.com/athletic/5852374/2024/10/17/cleveland-guardians-new-york-yankees-game-3-alcs/
+
+**Dodgers' relentless lineup pummels Mets, takes control of NLCS: Takeaways**\
+`NEW YORK — The Los Angeles Dodgers are one victory away from returning to the World Series for the first time since winning it all in 2020 after a 10-2 drubbing of the New York Mets in Game 4 of the National League Championship Series.`\
+https://nytimes.com/athletic/5852154/2024/10/17/dodgers-mets-nlcs-game-4/
+
 **Kent Johnson joins growing early-season list of injured Blue Jackets**\
 `Johnson, who has been arguably one of the Blue Jackets' best players, left the game Thursday vs. the Sabres with an arm injury. `\
 https://nytimes.com/athletic/5852251/2024/10/17/blue-jackets-kent-johnson-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/17/us/olympic-snowboarder-ryan-wedding-cocaine.html
 **That Explains It**\
 `Jesse Cohn introduces six lively entries to the New York Times Crossword.`\
 https://nytimes.com/2024/10/17/crosswords/daily-puzzle-2024-10-18.html
-
-**Corrections: Oct. 18, 2024**\
-`Corrections that appeared in print on Friday, Oct. 18, 2024.`\
-https://nytimes.com/2024/10/17/pageoneplus/corrections-oct-18-2024.html
-
-**Fry, Noel power Guardians to Game 3 comeback over Yankees: Takeaways**\
-`Noel tied the game in the bottom of the ninth before Fry's walk-off blast in the tenth earned the Guardians their first win of the ALCS .`\
-https://nytimes.com/athletic/5852037/2024/10/17/yankees-guardians-mlb-score-alcs-judge-fry-noel/
 
