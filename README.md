@@ -15,7 +15,7 @@ https://nytimes.com/2024/10/17/us/politics/indian-intelligence-officer-assassina
 https://nytimes.com/athletic/5851416/2024/10/17/kawhi-leonard-clippers-out-indefinitely/
 
 **Aaron Judge, Giancarlo Stanton hit back-to-back home runs off Emmanuel Clase**\
-`Whatever the postseason narrative about Aaron Judge might have been, he’s officially flipped it.`\
+`Whatever the postseason narrative about Judge might have been, he’s officially flipped it with one swing of the bat.`\
 https://nytimes.com/athletic/5852176/2024/10/17/aaron-judge-giancarlo-stanton-alcs-homers/
 
 **Art Adviser to the Elite Pleads Guilty to Wire Fraud**\
