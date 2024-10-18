@@ -1,3 +1,7 @@
+**California Man Is Charged With Drugging and Sexually Assaulting 9 Women**\
+`The man, Michael DiGiorgio, is also charged with murdering one of the women, who died after being drugged, prosecutors said.`\
+https://nytimes.com/2024/10/18/us/redondo-beach-sexual-assault-drugging-women-california.html
+
 **Hamas Says Its Demands Are Unchanged as Biden Pushes for Gaza Cease-Fire**\
 `A top deputy to the killed Hamas leader Yahya Sinwar vowed that his “banner will not fall” and that the group would hold to its cease-fire conditions.`\
 https://nytimes.com/2024/10/18/world/middleeast/hamas-sinwar-ceasefire-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/us/politics/these-americans-say-theyll-move-abroa
 **How a Blouse, a Bandage or a Handshake Might Sway a Voter**\
 `Our critics decode the political subtexts that matter in 2024 — and beyond.`\
 https://nytimes.com/2024/10/18/podcasts/how-a-blouse-a-bandage-or-a-handshake-might-sway-a-voter.html
-
-**FIA calls Red Bull rules breach question a 'non-story' as Horner claims paddock 'paranoia'**\
-`Red Bull’s championship rival, McLaren, has raised concerns about a device on Red Bull's car. `\
-https://nytimes.com/athletic/5854256/2024/10/18/red-bull-f1-rules-christian-horner-us-gp/
 

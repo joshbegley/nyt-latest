@@ -1,3 +1,7 @@
+**California Man Is Charged With Drugging and Sexually Assaulting 9 Women**\
+`The man, Michael DiGiorgio, is also charged with murdering one of the women, who died after being drugged, prosecutors said.`\
+https://nytimes.com/2024/10/18/us/redondo-beach-sexual-assault-drugging-women-california.html
+
 **Hamas Says Its Demands Are Unchanged as Biden Pushes for Gaza Cease-Fire**\
 `A top deputy to the killed Hamas leader Yahya Sinwar vowed that his “banner will not fall” and that the group would hold to its cease-fire conditions.`\
 https://nytimes.com/2024/10/18/world/middleeast/hamas-sinwar-ceasefire-biden.html
