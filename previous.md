@@ -1,3 +1,7 @@
+**Patriots in London: Jerod Mayo makes pitch for optimism during rebuild**\
+`The Patriots are optimistic as they arrive in London despite five straight losses.`\
+https://nytimes.com/athletic/5853610/2024/10/18/new-england-patriots-london-jacksonville-jaguars-drake-maye/
+
 **Fantasy trends and hidden gems: Upcoming schedule puts a trio of Devils in the waiver wire spotlight**\
 `Shayna Goldman looks at the NHL slate for the week ahead and identifies top waiver wire targets, with a heavy emphasis on New Jersey Devils.`\
 https://nytimes.com/athletic/5852710/2024/10/18/fantasy-hockey-trends-hidden-gems-upcoming-schedule-waiver-wire-adds-cotter/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/world/asia/american-kidnapped-philippines.html
 **At Comic Con, Emergency Tailors Keep Cosplayers in Character**\
 `Armed with glue guns, Popsicle sticks, safety pins and more, a hub of costume repairers stands at the ready to make sure all goes according to fantasy.`\
 https://nytimes.com/2024/10/18/arts/new-york-comic-con-costume-cosplay-repairs.html
-
-**In Rare Move, Judge Changes Mind After 27 Years and Frees Brooklyn Man**\
-`Judge Frederic Block said his ideas about punishment had evolved since he sentenced Walter Johnson to five life terms in 1997. At age 90, he decided to take action.`\
-https://nytimes.com/2024/10/18/nyregion/life-sentence-walter-johnson-reversed.html
 

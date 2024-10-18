@@ -1,3 +1,7 @@
+**Patriots in London: Jerod Mayo makes pitch for optimism during rebuild**\
+`The Patriots are optimistic as they arrive in London despite five straight losses.`\
+https://nytimes.com/athletic/5853610/2024/10/18/new-england-patriots-london-jacksonville-jaguars-drake-maye/
+
 **Fantasy trends and hidden gems: Upcoming schedule puts a trio of Devils in the waiver wire spotlight**\
 `Shayna Goldman looks at the NHL slate for the week ahead and identifies top waiver wire targets, with a heavy emphasis on New Jersey Devils.`\
 https://nytimes.com/athletic/5852710/2024/10/18/fantasy-hockey-trends-hidden-gems-upcoming-schedule-waiver-wire-adds-cotter/

@@ -14,7 +14,7 @@ https://nytimes.com/2024/10/18/arts/music/playlist-fka-twigs-mc5-tom-morello.htm
 `Will the top four race in the Premier League be chalk or will any of the outsiders make a surprise run? Here's a look at the contenders.`\
 https://nytimes.com/athletic/5853608/2024/10/18/premier-league-top-4-odds-tottenham-aston-villa-manchester-united-newcastle/
 
-**Sinwar Killed by Gunshot, Israeli Autopsy Finds**\
+**Sinwar killed by gunshot to head, Israeli autopsy finds.**\
 `The director of Israel’s national forensic institute, Dr. Chen Kugel, oversaw the autopsy and described its findings in an interview with The New York Times on Friday.`\
 https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/yahya-sinwar-hamas-autopsy
 
