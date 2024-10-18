@@ -1,3 +1,15 @@
+**It’s Time for Tagine**\
+`Nargisse Benkabbou’s hearty and fragrant beef tagine with green beans, olives and preserved lemons, that is.`\
+https://nytimes.com/2024/10/18/dining/its-time-for-tagine.html
+
+**What, Exactly, Is Eczema?**\
+`Experts explain what causes the common skin condition and how to deal with it.`\
+https://nytimes.com/2024/10/18/well/live/eczema-atopic-dermatitis-causes-treatment.html
+
+**Premier League predicted line-ups: Who do our writers think will start in Gameweek 8?**\
+`As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for the upcoming games`\
+https://nytimes.com/athletic/5842042/2024/10/18/premier-league-predicted-line-ups-gameweek-8/
+
 **A Cowed Establishment Toasts Trump at a Manhattan Charity Dinner**\
 `There were grudge matches and sycophancy in equal measure at the Alfred E. Smith Memorial Foundation Dinner. “Isn’t it just exciting, what’s going on,” Donald Trump said.`\
 https://nytimes.com/2024/10/18/us/elections/donald-trump-al-smith-dinner-new-york.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5848810/2024/10/18/edmonton-oilers-flyers-predators
 **Forest owner Marinakis handed five-match stadium ban for misconduct**\
 `Nottingham Forest owner Evangelos Marinakis has been handed a five-match stadium ban by an independent regulatory commission following an incident after his side’s 1-0 defeat to Fulham on September 28.`\
 https://nytimes.com/athletic/5853347/2024/10/18/evangelos-marinakis-stadium-ban-nottingham-forest/
-
-**LeBrun: Behind the Predators' 0-4 start, and how the Jake Oettinger-Stars deal came together**\
-`The Predators were seen as winners of the offseason but haven't found their chemistry yet. Catching up with GM Barry Trotz on why.`\
-https://nytimes.com/athletic/5853213/2024/10/18/predators-trotz-stars-oettinger-lebrun/
-
-**In huge season for Pelicans, coach Willie Green will be judged by how he adapts to his roster**\
-`The Pelicans coach faces new challenges on several fronts in 2024-25. How is he planning to navigate them?`\
-https://nytimes.com/athletic/5852336/2024/10/18/willie-green-pelicans-coach-roster-season/
-
-**A Local Hangout Dad and Daughter Found Special (for Different Reasons)**\
-`Jocelyn DeGroot-Lutzner grew up four blocks from Ephream Seyoum in West Philadelphia. But the two didn’t meet until she applied for a job at his family’s Eritrean restaurant.`\
-https://nytimes.com/2024/10/18/fashion/jocelyn-degroot-lutzner-ephream-seyoum-wedding.html
 
