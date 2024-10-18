@@ -1,3 +1,19 @@
+**Thomas Tuchel and the Moral Maze**\
+`An outcry over the hiring of a German to lead England’s national team was predictable. But don’t dismiss every objection out of hand.`\
+https://nytimes.com/2024/10/18/world/europe/thomas-tuchel-england.html
+
+**Lowetide: What we've learned about the Oilers in week 1 of the NHL season**\
+`This season, the Oilers' early-season struggles were shorter and the recovery more immediate.`\
+https://nytimes.com/athletic/5848810/2024/10/18/edmonton-oilers-flyers-predators-standings/
+
+**Forest owner Marinakis handed five-match stadium ban for misconduct**\
+`Nottingham Forest owner Evangelos Marinakis has been handed a five-match stadium ban by an independent regulatory commission following an incident after his side’s 1-0 defeat to Fulham on September 28.`\
+https://nytimes.com/athletic/5853347/2024/10/18/evangelos-marinakis-stadium-ban-nottingham-forest/
+
+**LeBrun: Behind the Predators' 0-4 start, and how the Jake Oettinger-Stars deal came together**\
+`The Predators were seen as winners of the offseason but haven't found their chemistry yet. Catching up with GM Barry Trotz on why.`\
+https://nytimes.com/athletic/5853213/2024/10/18/predators-trotz-stars-oettinger-lebrun/
+
 **In huge season for Pelicans, coach Willie Green will be judged by how he adapts to his roster**\
 `The Pelicans coach faces new challenges on several fronts in 2024-25. How is he planning to navigate them?`\
 https://nytimes.com/athletic/5852336/2024/10/18/willie-green-pelicans-coach-roster-season/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5853292/2024/10/18/ange-postecoglou-tottenham-princ
 **Luka Garza is leaving his mark, but will it translate to playing time for Wolves?**\
 `"Just watching him makes you want to play with him," rookie guard Rob Dillingham said on Garza.`\
 https://nytimes.com/athletic/5852302/2024/10/18/timberwolves-luka-garza-playing-time/
-
-**Pitt finalizing deal to hire Allen Greene as AD**\
-`The 47-year-old Greene replaces Heather Lyke, who was fired last month after eight years at the school.`\
-https://nytimes.com/athletic/5853248/2024/10/18/allen-greene-pittsburgh-athletic-director/
-
-**Wolves’ Hwang Hee-chan could miss several weeks with ankle injury**\
-`Wolverhampton Wanderers striker Hwang Hee-chan could be missing for several weeks after suffering an ankle injury while playing for South Korea.`\
-https://nytimes.com/athletic/5853241/2024/10/18/hwang-wolves-injury-update/
-
-**Losing Andrew Thomas derailed Giants offense in 2023. Can they avoid same fate this year?**\
-`Can the Giants stop old friend Saquon Barkley and pull off the upset against the Philadelphia Eagles? `\
-https://nytimes.com/athletic/5852477/2024/10/18/new-york-giants-andrew-thomas-eagles-saquon-barkley/
-
-**Tesla Self-Driving System Will Be Investigated by Safety Agency**\
-`The National Highway Transportation Safety Administration said it was looking into what Elon Musk’s electric car company called the full self-driving system.`\
-https://nytimes.com/2024/10/18/business/tesla-self-driving-investigation.html
 
