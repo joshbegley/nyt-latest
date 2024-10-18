@@ -1,3 +1,7 @@
+**Ten Hag: Ferguson 'always available' for advise despite contract ending**\
+`Erik ten Hag believes Sir Alex Ferguson will always be available for advice despite Manchester United removing him from the wage bill.`\
+https://nytimes.com/athletic/5854138/2024/10/18/ten-hag-ferguson-manchester-united/
+
 **Charges Are Dropped Against Deaf Black Man Who Was Punched by Phoenix Police**\
 `The man, Tyron Scott McAlpin, who also has cerebral palsy, was repeatedly punched and shocked with a Taser by the police during an arrest in August. The arrest is under investigation.`\
 https://nytimes.com/2024/10/18/us/tyron-mcalpin-charges-dropped-maricopa-arizona.html
