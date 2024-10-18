@@ -1,3 +1,7 @@
+**Kent Johnson joins growing early-season list of injured Blue Jackets**\
+`Johnson, who has been arguably one of the Blue Jackets' best players, left the game Thursday vs. the Sabres with an arm injury. `\
+https://nytimes.com/athletic/5852251/2024/10/17/blue-jackets-kent-johnson-injury/
+
 **Panarin puts on 'fun display,' Quick's strong first start, more: 4 Rangers takeaways**\
 `Panarin finished his hat trick halfway through the second period in a 5-2 road win against Detroit.`\
 https://nytimes.com/athletic/5852417/2024/10/17/rangers-panarin-hat-trick-quick-mancini/

@@ -1,3 +1,7 @@
+**Kent Johnson joins growing early-season list of injured Blue Jackets**\
+`Johnson, who has been arguably one of the Blue Jackets' best players, left the game Thursday vs. the Sabres with an arm injury. `\
+https://nytimes.com/athletic/5852251/2024/10/17/blue-jackets-kent-johnson-injury/
+
 **Panarin puts on 'fun display,' Quick's strong first start, more: 4 Rangers takeaways**\
 `Panarin finished his hat trick halfway through the second period in a 5-2 road win against Detroit.`\
 https://nytimes.com/athletic/5852417/2024/10/17/rangers-panarin-hat-trick-quick-mancini/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/pageoneplus/corrections-oct-18-2024.html
 **Fry, Noel power Guardians to Game 3 comeback over Yankees: Takeaways**\
 `Noel tied the game in the bottom of the ninth before Fry's walk-off blast in the tenth earned the Guardians their first win of the ALCS .`\
 https://nytimes.com/athletic/5852037/2024/10/17/yankees-guardians-mlb-score-alcs-judge-fry-noel/
-
-**Man Sentenced to Life in Prison for Transgender Woman’s Killing**\
-`The man, Daqua Lameek Ritter, was the first person in the country to be convicted of a federal hate crime based on gender identity.`\
-https://nytimes.com/2024/10/17/us/dime-doe-murder-south-carolina-hate-crime.html
 
