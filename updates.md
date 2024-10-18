@@ -1,3 +1,11 @@
+**Scoop City: Building the NFL's two best units**\
+`Scoop City is The Athletic&#8217;s daily NFL newsletter.`\
+https://nytimes.com/athletic/5853451/2024/10/18/vikings-ravens-nfl-stats-scoop-city/
+
+**For the Israeli who once saved Sinwar’s life, there is no joy in his death.**\
+`By Adam Sella`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/for-the-israeli-who-once-saved-sinwars-life-there-is-no-joy-in-his-death
+
 **France Struggles to Dry Out From Flash Flooding**\
 `Heavy rainfall and swollen rivers unleashed torrents of brackish water that cut off roads, swept away cars and swamped buildings.`\
 https://nytimes.com/2024/10/18/world/europe/france-flash-flooding.html

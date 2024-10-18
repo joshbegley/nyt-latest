@@ -1,3 +1,11 @@
+**Scoop City: Building the NFL's two best units**\
+`Scoop City is The Athletic&#8217;s daily NFL newsletter.`\
+https://nytimes.com/athletic/5853451/2024/10/18/vikings-ravens-nfl-stats-scoop-city/
+
+**For the Israeli who once saved Sinwar’s life, there is no joy in his death.**\
+`By Adam Sella`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/for-the-israeli-who-once-saved-sinwars-life-there-is-no-joy-in-his-death
+
 **France Struggles to Dry Out From Flash Flooding**\
 `Heavy rainfall and swollen rivers unleashed torrents of brackish water that cut off roads, swept away cars and swamped buildings.`\
 https://nytimes.com/2024/10/18/world/europe/france-flash-flooding.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5852788/2024/10/18/canucks-victory-quinn-hughes/
 **For Trump, the ‘Enemies Within’ Are the Pelosis**\
 `He continues to fantasize about using the military to go after them.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-enemies-pelosis
-
-**Thomas Tuchel and the Moral Maze**\
-`An outcry over the hiring of a German to lead England’s national team was predictable. But don’t dismiss every objection out of hand.`\
-https://nytimes.com/2024/10/18/world/europe/thomas-tuchel-england.html
-
-**Lowetide: What we've learned about the Oilers in week 1 of the NHL season**\
-`This season, the Oilers' early-season struggles were shorter and the recovery more immediate.`\
-https://nytimes.com/athletic/5848810/2024/10/18/edmonton-oilers-flyers-predators-standings/
 
