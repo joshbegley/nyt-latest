@@ -1,3 +1,15 @@
+**Kieran Trippier out for October fixtures with hamstring injury**\
+`Kieran Trippier will miss the remainder of Newcastle United&#8217;s October fixtures with a hamstring problem, but Alexander Isak is set to return against Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/5852832/2024/10/18/kieran-trippier-injury-newcastle/
+
+**Here are the latest developments.**\
+`By Patrick Kingsley and Ephrat Livni`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-gaza-news/here-are-the-latest-developments
+
+**Live Updates: Biden Renews Cease-Fire Push After Hamas Leader Is Killed**\
+`President Biden congratulated Israel after the death of Yahya Sinwar and said he was sending the secretary of state to discuss plans for securing Gaza.`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-gaza-news
+
 **Mets and Yankees Fans Actually Getting Along? Say It Ain’t So.**\
 `Bitter rivals are suddenly paying each other compliments, at least until there’s a Subway Series, if that happens. “It’s weird,” said the longtime Yankees announcer.`\
 https://nytimes.com/2024/10/18/nyregion/yankees-mets-new-york-fans.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5851577/2024/10/18/mohamed-al-fayed-harrods-fulham-
 **Late Night Recaps Harris’s Time on Fox News and Trump’s on Univision**\
 `“Yes, both Kamala and Trump went into ‘the lion’s den’ this week — although they only got Trump there by telling him it was the name of a strip club,” Desi Lydic said on “The Daily Show.”`\
 https://nytimes.com/2024/10/18/arts/television/late-night-harris-fox-trump-univision.html
-
-**Dodgers dismantle Mets in NLCS Game 4 to move a win away from World Series**\
-`With one more win the Dodgers will have their first National League pennant since 2020 and fourth in the last eight years.`\
-https://nytimes.com/athletic/5852691/2024/10/18/dodgers-mets-nlcs-dave-roberts/
-
-**How England hired 'outstanding' Tuchel - and why not everyone is happy about it**\
-`The German's arrival is a major coup for the FA, but it does not come without controversy`\
-https://nytimes.com/athletic/5851079/2024/10/18/england-thomas-tuchel-how-hired-coach/
-
-**Rees-Zammit: Still waiting for NFL chance but his profile has never been higher**\
-`Rees-Zammit has spent time with Prince William during the Jaguars' trip to the UK for the NFL London Games`\
-https://nytimes.com/athletic/5849758/2024/10/18/louis-rees-zammit-nfl-rugby/
 
