@@ -1,3 +1,11 @@
+**FIA calls Red Bull rules breach question a 'non-story' as Horner claims paddock 'paranoia'**\
+`Red Bull’s championship rival, McLaren, has raised concerns about a device on Red Bull's car. `\
+https://nytimes.com/athletic/5854256/2024/10/18/red-bull-f1-rules-christian-horner-us-gp/
+
+**What We Know About the Execution Pending in the Shaken Baby Case**\
+`With his execution on hold, Robert Roberson is set to testify at a Texas House hearing about his conviction, which was based in part on a questionable diagnosis of shaken baby syndrome.`\
+https://nytimes.com/2024/10/18/us/texas-robert-roberson-execution.html
+
 **Lebanon Issues Rare Criticism of Iran Over ‘Blatant Interference’**\
 `Lebanon’s caretaker prime minister, Najib Mikati, summoned Tehran’s envoy over reported comments by a senior Iranian official on a U.N. resolution deemed a precondition for a cease-fire.`\
 https://nytimes.com/2024/10/18/world/middleeast/lebanon-iran-interference.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5854138/2024/10/18/ten-hag-ferguson-manchester-unit
 **Charges Against Deaf Black Man Punched by Phoenix Police Are Dropped**\
 `The man, Tyron Scott McAlpin, who also has cerebral palsy, was repeatedly punched and shocked with a Taser by the police during an arrest in August. The arrest is under investigation.`\
 https://nytimes.com/2024/10/18/us/tyron-mcalpin-charges-dropped-maricopa-arizona.html
-
-**Experience Anguilla with Venture X**\
-`At Belmond Cap Juluca, Anguilla, Capital One Venture X cardholders can expect an experience that is second to none.`\
-https://nytimes.com/paidpost/capital-one-venture-x/experience-anguilla-with-venture-x.html
-
-**In Michigan, Harris Makes Blue-Collar Pitch and Needles Trump as ‘Exhausted’**\
-`As the candidates campaigned in the battleground on the same day, Kamala Harris promised to “work with unions to create good-paying jobs.” Donald Trump was set for several stops around Detroit.`\
-https://nytimes.com/2024/10/18/us/politics/trump-harris-michigan.html
 
