@@ -1,3 +1,11 @@
+**Corrections: Oct. 18, 2024**\
+`Corrections that appeared in print on Friday, Oct. 18, 2024.`\
+https://nytimes.com/2024/10/17/pageoneplus/corrections-oct-18-2024.html
+
+**Fry, Noel power Guardians to Game 3 comeback over Yankees: Takeaways**\
+`Noel tied the game in the bottom of the ninth before Fry's walk-off blast in the tenth earned the Guardians their first win of the ALCS .`\
+https://nytimes.com/athletic/5852037/2024/10/17/yankees-guardians-mlb-score-alcs-judge-fry-noel/
+
 **Fry, Noel power Guardians to Game 3 comeback over Yankees: Takeaways**\
 `The duo hit back-to-back homers in the eighth inning off Guardians closer Emmanuel Clase, as the Yankees rallied to a 5-3 Game 3 win. `\
 https://nytimes.com/athletic/5852037/2024/10/17/yankees-guardians-mlb-score-alcs-judge-fry-noel/
