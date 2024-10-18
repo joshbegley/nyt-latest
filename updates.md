@@ -1,3 +1,11 @@
+**Live Q&A: FPL Gameweek 8 advice from Ben Dinnery**\
+`We did it — and we did it together.`\
+https://nytimes.com/athletic/5847491/2024/10/18/fantasy-premier-league-advice-injury-news-gw8/
+
+**Arteta says he would have played for England: 'I feel very proud about it'**\
+`Arsenal manager Mikel Arteta says he would have changed his international allegiance from Spain to England during his playing career.`\
+https://nytimes.com/athletic/5852970/2024/10/18/mikel-arteta-england-tuchel/
+
 **Sinwar’s Death Could Shake but Not Topple Hamas, Experts Say**\
 `Analysts call the killing of several Hamas leaders, including Yahya Sinwar, a deep blow to the Palestinian militant group, but expect it to keep fighting.`\
 https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-death-hamas.html
