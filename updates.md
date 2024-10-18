@@ -1,3 +1,15 @@
+**Judge Releases Redacted Trove of Evidence in Trump Election Case**\
+`The former president’s legal team had objected to any release of material, saying it would amount to election interference.`\
+https://nytimes.com/2024/10/18/us/politics/trump-election-case-evidence.html
+
+**Wiser, but still green: Alex Albon looks back ahead of his 100th GP**\
+`Albon jokingly calls himself “the late bloomer” of his friend groups since he’s the last to hit 100 races — a very exclusive F1 club.`\
+https://nytimes.com/athletic/5851166/2024/10/18/alex-albon-f1-100th-grand-prix-us-gp/
+
+**Football Parlay Friday Week 8: Georgia and four other underdogs that have a shot to win**\
+`Friday is here which means we get to dive into the college football board and see where the value lies for our Football Parlay Friday.`\
+https://nytimes.com/athletic/5853421/2024/10/18/football-parlay-friday-week-8-georgia/
+
 **It Is ‘All About the Fish’ on Park Ave.**\
 `Avid and influential anglers turned out to honor Bob Rich Jr. at the Bonefish & Tarpon Trust’s annual gala in Manhattan.`\
 https://nytimes.com/2024/10/18/style/bob-rich-bonefish-tarpon-trust-gala.html

@@ -1,3 +1,15 @@
+**Judge Releases Redacted Trove of Evidence in Trump Election Case**\
+`The former president’s legal team had objected to any release of material, saying it would amount to election interference.`\
+https://nytimes.com/2024/10/18/us/politics/trump-election-case-evidence.html
+
+**Wiser, but still green: Alex Albon looks back ahead of his 100th GP**\
+`Albon jokingly calls himself “the late bloomer” of his friend groups since he’s the last to hit 100 races — a very exclusive F1 club.`\
+https://nytimes.com/athletic/5851166/2024/10/18/alex-albon-f1-100th-grand-prix-us-gp/
+
+**Football Parlay Friday Week 8: Georgia and four other underdogs that have a shot to win**\
+`Friday is here which means we get to dive into the college football board and see where the value lies for our Football Parlay Friday.`\
+https://nytimes.com/athletic/5853421/2024/10/18/football-parlay-friday-week-8-georgia/
+
 **It Is ‘All About the Fish’ on Park Ave.**\
 `Avid and influential anglers turned out to honor Bob Rich Jr. at the Bonefish & Tarpon Trust’s annual gala in Manhattan.`\
 https://nytimes.com/2024/10/18/style/bob-rich-bonefish-tarpon-trust-gala.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5853514/2024/10/18/guardians-yankees-alcs-the-windu
 **Yes, Ambassadors Can Get Away With Murder**\
 `Diplomatic immunity is one of the oldest and most respected rules of international law.`\
 https://nytimes.com/2024/10/18/world/ambassadors-murder-india-sikh.html
-
-**After Sinwar: What Is the Future of Gaza?**\
-`Responses to the killing of the Hamas leader. Also: Guarding against authoritarianism; medical dramas; expressing sympathy to mourners; October light.`\
-https://nytimes.com/2024/10/18/opinion/yahya-sinwar-gaza.html
-
-**Chianti Classico Riservas to Find Right Now**\
-`These longer-aged wines were once notable for being too oaky and powerful. Now, producers are letting the gorgeous purity of the sangiovese grape shine through.`\
-https://nytimes.com/2024/10/18/dining/drinks/chianti-classico-riserva.html
-
-**JD Vance and the Fight for Pennsylvania’s Catholic Voters**\
-`The Republican vice-presidential nominee is the only Catholic on either national ticket. His politics resonate with many white conservative Catholics.`\
-https://nytimes.com/2024/10/18/us/jd-vance-pennsylvania-catholic.html
 
