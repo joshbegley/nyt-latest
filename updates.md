@@ -1,3 +1,7 @@
+**How Quinn Hughes, J.T. Miller led Canucks to first victory: 3 takeaways**\
+`Vancouver came out on top 3-2 in overtime in a hard-fought, tightly contested game vs. the Panthers. `\
+https://nytimes.com/athletic/5852259/2024/10/17/canucks-panthers-jt-miller-quinn-hughes/
+
 **Meet the Candidate: Elon Musk**\
 `The billionaire is spending a fortune to support former President Donald J. Trump. But at a town hall event in Pennsylvania, he looked an awful lot like a politician himself.`\
 https://nytimes.com/2024/10/17/us/elections/elon-musk-town-hall-pennsylvania.html
