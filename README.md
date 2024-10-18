@@ -1,3 +1,11 @@
+**Mudslides, Misinformation and an Urgency to Vote in Western North Carolina**\
+`On the first day of early voting, residents of western North Carolina weighed which candidates would most help their yearslong recovery.`\
+https://nytimes.com/2024/10/18/us/western-north-carolina-election-helene.html
+
+**In Swing Districts, Republicans Lean Into Anti-Crime Message to Court the Center**\
+`Representative Lori Chavez-DeRemer, a Republican in a tough re-election race in Oregon, is using a law-and-order pitch to appeal to a broad swath of voters and blunt concerns about the G.O.P. agenda.`\
+https://nytimes.com/2024/10/18/us/politics/republicans-crime-2024-election.html
+
 **An emotional Tony Bennett explains his decision to retire from UVA**\
 `Bennett's philosophies didn’t always align with the name, image and likeness and transfer portal era of college athletics.`\
 https://nytimes.com/athletic/5853585/2024/10/18/tony-bennett-retires-ron-sanchez-uva/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5852994/2024/10/18/tennis-future-growth-six-kings-s
 **Judge Releases Redacted Trove of Evidence in Trump Election Case**\
 `The former president’s legal team had objected to any release of material, saying it would amount to election interference.`\
 https://nytimes.com/2024/10/18/us/politics/trump-election-case-evidence.html
-
-**Wiser, but still green: Alex Albon looks back ahead of his 100th GP**\
-`Albon jokingly calls himself “the late bloomer” of his friend groups since he’s the last to hit 100 races — a very exclusive F1 club.`\
-https://nytimes.com/athletic/5851166/2024/10/18/alex-albon-f1-100th-grand-prix-us-gp/
-
-**Football Parlay Friday Week 8: Georgia and four other underdogs that have a shot to win**\
-`Friday is here which means we get to dive into the college football board and see where the value lies for our Football Parlay Friday.`\
-https://nytimes.com/athletic/5853421/2024/10/18/football-parlay-friday-week-8-georgia/
 
