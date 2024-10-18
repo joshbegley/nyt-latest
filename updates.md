@@ -1,3 +1,11 @@
+**A Cowed Establishment Toasts Trump at a Manhattan Charity Dinner**\
+`There were grudge matches and sycophancy in equal measure at the Alfred E. Smith Memorial Foundation Dinner. “Isn’t it just exciting, what’s going on,” Donald Trump said.`\
+https://nytimes.com/2024/10/18/us/elections/donald-trump-al-smith-dinner-new-york.html
+
+**The Best of Late Night This Week**\
+`With the general election just weeks away, the hosts discussed former President Trump’s health and his bizarre town hall in Pennsylvania, as well as Vice President Harris’s appearance on Fox News.`\
+https://nytimes.com/interactive/2024/10/18/arts/television/best-of-late-night-harris-trump.html
+
 **How Quinn Hughes did it all in Canucks' first win, and why he shouldn't need to**\
 `If Hughes has to play this often and perform this well for Vancouver to win, what does that mean for the team over the rest of the season?`\
 https://nytimes.com/athletic/5852788/2024/10/18/canucks-victory-quinn-hughes/
