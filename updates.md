@@ -1,3 +1,11 @@
+**Want to Understand America? Watch ‘Shark Tank.’**\
+`The show which premiered in the U.S. in 2009, has broadcast the stress of the Great Recession, the allure of Silicon Valley, the upheaval of the Covid pandemic and now, whatever this economy is.`\
+https://nytimes.com/interactive/2024/10/17/business/shark-tank-economy.html
+
+**Dodgers' Shohei Ohtani leads off NLCS Game 4 with a bang**\
+`NEW YORK — Turns out, Shohei Ohtani can hit with the bases empty, too.`\
+https://nytimes.com/athletic/5852195/2024/10/17/dodgers-shohei-ohtani-leadoff-nlcs/
+
 **U.S. Charges Indian Official in New York Assassination Plot**\
 `The United States and Canada have worked together to investigate what they say is the Indian government’s campaign against Sikh separatists.`\
 https://nytimes.com/2024/10/17/us/politics/indian-intelligence-officer-assassination.html
