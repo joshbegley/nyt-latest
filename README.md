@@ -1,3 +1,11 @@
+**49ers GM says 'there's a chance' Pearsall plays**\
+`Asked on KNBR radio if Pearsall could be activated this week, Lynch said, “Absolutely there’s a chance. He’s had a good practice week."`\
+https://nytimes.com/athletic/5853458/2024/10/18/49ers-ricky-pearsall/
+
+**Why tennis disruptors are waiting for the sport to disrupt itself**\
+`In seeking sweeping change, many would-be tennis disruptors find themselves cleaving both to and from its current power brokers`\
+https://nytimes.com/athletic/5852994/2024/10/18/tennis-future-growth-six-kings-slam-uts/
+
 **Judge Releases Redacted Trove of Evidence in Trump Election Case**\
 `The former president’s legal team had objected to any release of material, saying it would amount to election interference.`\
 https://nytimes.com/2024/10/18/us/politics/trump-election-case-evidence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/nyregion/trump-adams-smith-dinner.html
 **Five International Movies to Stream Now**\
 `In this month’s picks, a shy vampire in Canada comes of age, two men in India spar over a parking spot and a Chilean secretary dreams of life as a killer.`\
 https://nytimes.com/2024/10/18/movies/five-international-movies-to-stream-now.html
-
-**The Windup: Yankees lose in wild thriller**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5853514/2024/10/18/guardians-yankees-alcs-the-windup/
-
-**Yes, Ambassadors Can Get Away With Murder**\
-`Diplomatic immunity is one of the oldest and most respected rules of international law.`\
-https://nytimes.com/2024/10/18/world/ambassadors-murder-india-sikh.html
 
