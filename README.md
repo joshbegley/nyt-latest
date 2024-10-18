@@ -1,3 +1,11 @@
+**It Is ‘All About the Fish’ on Park Ave.**\
+`Avid and influential anglers turned out to honor Bob Rich Jr. at the Bonefish & Tarpon Trust’s annual gala in Manhattan.`\
+https://nytimes.com/2024/10/18/style/bob-rich-bonefish-tarpon-trust-gala.html
+
+**The Orionids Meteor Shower Is Peaking. Here’s How to Watch.**\
+`This event is linked to Halley’s comet, and occurs as another comet, Tsuchinshan-ATLAS, remains visible. But a nearly full moon could interfere with some views.`\
+https://nytimes.com/2024/10/18/science/orionid-meteor-shower-how-to-watch.html
+
 **Fantasy football flex fliers: DeMario Douglas and Xavier Legette lead pack**\
 `Scott Engel gives his top fantasy football picks for flex position fliers heading into Week 7.`\
 https://nytimes.com/athletic/5853431/2024/10/18/fantasy-football-flex-fliers-week-7-demario-douglas/
@@ -16,7 +24,7 @@ https://nytimes.com/athletic/5853514/2024/10/18/guardians-yankees-alcs-the-windu
 
 **Yes, Ambassadors Can Get Away With Murder**\
 `Diplomatic immunity is one of the oldest and most respected rules of international law.`\
-https://nytimes.com/2024/10/18/world/yes-ambassadors-can-get-away-with-murder.html
+https://nytimes.com/2024/10/18/world/ambassadors-murder-india-sikh.html
 
 **After Sinwar: What Is the Future of Gaza?**\
 `Responses to the killing of the Hamas leader. Also: Guarding against authoritarianism; medical dramas; expressing sympathy to mourners; October light.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/dining/drinks/chianti-classico-riserva.html
 **JD Vance and the Fight for Pennsylvania’s Catholic Voters**\
 `The Republican vice-presidential nominee is the only Catholic on either national ticket. His politics resonate with many white conservative Catholics.`\
 https://nytimes.com/2024/10/18/us/jd-vance-pennsylvania-catholic.html
-
-**Facing Murder Plot Accusations, India Aids U.S. but Is Stern With Canada**\
-`In both cases of plans targeting Sikh separatists, suspicions of New Delhi’s involvement have arisen. That has put India in a tight diplomatic position.`\
-https://nytimes.com/2024/10/18/world/asia/india-sikh-murder-plots-canada-us.html
-
-**The Bounce: Giannis' "trade" talk, in context**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5852324/2024/10/18/giannis-antetokounmpo-bucks-victor-wembanyama-dpoy-nba-the-bounce/
 
