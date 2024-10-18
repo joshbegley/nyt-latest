@@ -1,3 +1,7 @@
+**Which Premier League players are on the verge of a yellow-card suspension?**\
+`The first yellow-card suspensions of this season will be served this weekend, so we take a look at the other players at risk of a ban`\
+https://nytimes.com/athletic/5827989/2024/10/17/premier-league-yellow-cards-ban/
+
 **How Quinn Hughes, J.T. Miller led Canucks to first victory: 3 takeaways**\
 `Vancouver came out on top 3-2 in overtime in a hard-fought, tightly contested game versus the Florida Panthers. `\
 https://nytimes.com/athletic/5852259/2024/10/17/canucks-panthers-jt-miller-quinn-hughes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/us/dime-doe-murder-south-carolina-hate-crime.html
 **Microsoft and OpenAI’s Close Partnership Shows Signs of Fraying**\
 `The “best bromance in tech” has had a reality check as OpenAI has tried to change its deal with Microsoft and the software maker has tried to hedge its bet on the start-up.`\
 https://nytimes.com/2024/10/17/technology/microsoft-openai-partnership-deal.html
-
-**Want to Understand America? Watch ‘Shark Tank.’**\
-`The show which premiered in the U.S. in 2009, has broadcast the stress of the Great Recession, the allure of Silicon Valley, the upheaval of the Covid pandemic and now, whatever this economy is.`\
-https://nytimes.com/interactive/2024/10/17/business/shark-tank-economy.html
 

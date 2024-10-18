@@ -1,3 +1,7 @@
+**Which Premier League players are on the verge of a yellow-card suspension?**\
+`The first yellow-card suspensions of this season will be served this weekend, so we take a look at the other players at risk of a ban`\
+https://nytimes.com/athletic/5827989/2024/10/17/premier-league-yellow-cards-ban/
+
 **How Quinn Hughes, J.T. Miller led Canucks to first victory: 3 takeaways**\
 `Vancouver came out on top 3-2 in overtime in a hard-fought, tightly contested game versus the Florida Panthers. `\
 https://nytimes.com/athletic/5852259/2024/10/17/canucks-panthers-jt-miller-quinn-hughes/
