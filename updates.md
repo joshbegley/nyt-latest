@@ -1,3 +1,7 @@
+**Astros mailbag: Should Houston trade Framber Valdez or Kyle Tucker?**\
+`The Astros are at a crossroads. Could they trade one of their top players? And should players be willing to take a hometown discount?`\
+https://nytimes.com/athletic/5850977/2024/10/18/astros-framber-valdez-kyle-tucker-trade/
+
 **Arteta confident Odegaard will return before November break, Saka injury 'not serious'**\
 `Mikel Arteta has provided clarity on Martin Odegaard’s return to fitness, saying he is confident the Arsenal captain will be available for selection before the next international break.`\
 https://nytimes.com/athletic/5852881/2024/10/18/arsenal-odegaard-arteta-injury-update/
