@@ -1,3 +1,11 @@
+**Wolves’ Hwang Hee-chan could miss several weeks with ankle injury**\
+`Wolverhampton Wanderers striker Hwang Hee-chan could be missing for several weeks after suffering an ankle injury while playing for South Korea.`\
+https://nytimes.com/athletic/5853241/2024/10/18/hwang-wolves-injury-update/
+
+**Losing Andrew Thomas derailed Giants offense in 2023. Can they avoid same fate this year?**\
+`Can the Giants stop old friend Saquon Barkley and pull off the upset against the Philadelphia Eagles? `\
+https://nytimes.com/athletic/5852477/2024/10/18/new-york-giants-andrew-thomas-eagles-saquon-barkley/
+
 **Tesla Self-Driving System Will Be Investigated by Safety Agency**\
 `The National Highway Transportation Safety Administration said it was looking into what Elon Musk’s electric car company called the full self-driving system.`\
 https://nytimes.com/2024/10/18/business/tesla-self-driving-investigation.html
