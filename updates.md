@@ -1,3 +1,19 @@
+**Democrats’ Report Calls Trump Hotel Business Unethical and Unconstitutional**\
+`Democrats on the House Oversight Committee said the former president overcharged the Secret Service and accepted money from officials and people who were seeking pardons and appointments.`\
+https://nytimes.com/2024/10/18/us/politics/trump-hotel-report.html
+
+**Postecoglou reflects on Tottenham's Brighton loss as 'good lesson' in 'sticking to principles'**\
+`Ange Postecoglou says that Tottenham Hotspur’s defeat to Brighton &amp; Hove Albion before the October international break was a “good lesson” that they need to “stick to their core principles”.`\
+https://nytimes.com/athletic/5853292/2024/10/18/ange-postecoglou-tottenham-principles/
+
+**Luka Garza is leaving his mark, but will it translate to playing time for Wolves?**\
+`"Just watching him makes you want to play with him," rookie guard Rob Dillingham said on Garza.`\
+https://nytimes.com/athletic/5852302/2024/10/18/timberwolves-luka-garza-playing-time/
+
+**Pitt finalizing deal to hire Allen Greene as AD**\
+`The 47-year-old Greene replaces Heather Lyke, who was fired last month after eight years at the school.`\
+https://nytimes.com/athletic/5853248/2024/10/18/allen-greene-pittsburgh-athletic-director/
+
 **Wolves’ Hwang Hee-chan could miss several weeks with ankle injury**\
 `Wolverhampton Wanderers striker Hwang Hee-chan could be missing for several weeks after suffering an ankle injury while playing for South Korea.`\
 https://nytimes.com/athletic/5853241/2024/10/18/hwang-wolves-injury-update/
