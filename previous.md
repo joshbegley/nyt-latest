@@ -1,3 +1,7 @@
+**France Struggles to Dry Out From Flash Flooding**\
+`Heavy rainfall and swollen rivers unleashed torrents of brackish water that cut off roads, swept away cars and swamped buildings.`\
+https://nytimes.com/2024/10/18/world/europe/france-flash-flooding.html
+
 **It’s Time for Tagine**\
 `Nargisse Benkabbou’s hearty and fragrant beef tagine with green beans, olives and preserved lemons, that is.`\
 https://nytimes.com/2024/10/18/dining/its-time-for-tagine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/world/europe/thomas-tuchel-england.html
 **Lowetide: What we've learned about the Oilers in week 1 of the NHL season**\
 `This season, the Oilers' early-season struggles were shorter and the recovery more immediate.`\
 https://nytimes.com/athletic/5848810/2024/10/18/edmonton-oilers-flyers-predators-standings/
-
-**Forest owner Marinakis handed five-match stadium ban for misconduct**\
-`Nottingham Forest owner Evangelos Marinakis has been handed a five-match stadium ban by an independent regulatory commission following an incident after his side’s 1-0 defeat to Fulham on September 28.`\
-https://nytimes.com/athletic/5853347/2024/10/18/evangelos-marinakis-stadium-ban-nottingham-forest/
 

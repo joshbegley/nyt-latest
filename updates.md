@@ -1,3 +1,7 @@
+**France Struggles to Dry Out From Flash Flooding**\
+`Heavy rainfall and swollen rivers unleashed torrents of brackish water that cut off roads, swept away cars and swamped buildings.`\
+https://nytimes.com/2024/10/18/world/europe/france-flash-flooding.html
+
 **It’s Time for Tagine**\
 `Nargisse Benkabbou’s hearty and fragrant beef tagine with green beans, olives and preserved lemons, that is.`\
 https://nytimes.com/2024/10/18/dining/its-time-for-tagine.html
