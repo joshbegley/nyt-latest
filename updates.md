@@ -1,3 +1,7 @@
+**Arteta confident Odegaard will return before November break, Saka injury 'not serious'**\
+`Mikel Arteta has provided clarity on Martin Odegaard’s return to fitness, saying he is confident the Arsenal captain will be available for selection before the next international break.`\
+https://nytimes.com/athletic/5852881/2024/10/18/arsenal-odegaard-arteta-injury-update/
+
 **Meet Artur Akhtyamov: The Leafs prospect with a Lego obsession and a knack for stopping a lot of pucks**\
 `Akhtyamov hopes to follow in Woll’s footsteps by becoming the next Leafs goalie to first show his stuff in the AHL.`\
 https://nytimes.com/athletic/5848547/2024/10/18/maple-leafs-artur-akhtyamov/
