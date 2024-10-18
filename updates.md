@@ -1,3 +1,15 @@
+**Rams' Kupp ‘questionable’ vs. Raiders, per McVay**\
+`The Rams will make their final decision “closer to the game,” coach Sean McVay said.`\
+https://nytimes.com/athletic/5854000/2024/10/18/rams-cooper-kupp-injury-update-vs-raiders/
+
+**The U.N. peacekeeping force in southern Lebanon says it will remain, rejecting Israel’s demand to withdraw.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/the-un-peacekeeping-force-in-southern-lebanon-says-it-will-remain-rejecting-israels-demand-to-withdraw
+
+**Review: An Invitation to the Dance, Simple and Subtle**\
+`DD Dorvillier’s solo at the Chocolate Factory evokes a dream state as it digs into the same river of dance twice.`\
+https://nytimes.com/2024/10/18/arts/dance/review-dd-dorvillier-chocolate-factory.html
+
 **North Carolina officials report record turnout on the first day of early voting.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/10/18/us/harris-trump-election/north-carolina-officials-report-record-turnout-on-the-first-day-of-early-voting

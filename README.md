@@ -1,3 +1,7 @@
+**Suarez confirms Inter Miami contract talks**\
+`Uruguayan forward Luis Suarez confirmed on Friday he is in talks with Inter Miami over extending his contract.`\
+https://nytimes.com/athletic/5853964/2024/10/18/luis-suarez-inter-miami-contract/
+
 **Rams' Kupp ‘questionable’ vs. Raiders, per McVay**\
 `The Rams will make their final decision “closer to the game,” coach Sean McVay said.`\
 https://nytimes.com/athletic/5854000/2024/10/18/rams-cooper-kupp-injury-update-vs-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5853738/2024/10/18/giants-malik-nabers-injury-updat
 **Veterans Dept. Investigating Acadia Healthcare for Insurance Fraud**\
 `Several federal agencies are investigating whether the large chain of psychiatric hospitals held patients without medical justification.`\
 https://nytimes.com/2024/10/18/business/acadia-healthcare-veterans-affairs-investigation.html
-
-**Dallas Wings fire coach Latricia Trammell**\
-`The Wings were without 2023 first-team All-WNBA selection Satou Sabally for 25 games, as well as two-time All-Star Natasha Howard.`\
-https://nytimes.com/athletic/5853879/2024/10/18/latricia-trammell-wings-firing/
 
