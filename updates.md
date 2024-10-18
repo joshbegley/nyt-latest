@@ -1,3 +1,7 @@
+**U.N. Peacekeeping Force in Southern Lebanon Will Remain, U.N. Official Says**\
+`Israel has demanded that the force, known as UNIFIL, pull out. But all the countries contributing troops and the U.N. Security Council decided unanimously that UNIFIL should stay.`\
+https://nytimes.com/2024/10/18/world/middleeast/un-peacekeepers-lebanon-israel.html
+
 **There Is Overwhelming Proof That Texas Should Not Kill Robert Roberson**\
 `A murder conviction for shaken-baby syndrome may be groundless, and an execution should be stopped.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/texas-execution-innocence
