@@ -1,3 +1,11 @@
+**These Americans Say They’ll Move Abroad if Their Candidate Loses**\
+`We spoke with Americans who are packing up and moving out.`\
+https://nytimes.com/2024/10/18/us/politics/these-americans-say-theyll-move-abroad-if-their-candidate-loses.html
+
+**How a Blouse, a Bandage or a Handshake Might Sway a Voter**\
+`Our critics decode the political subtexts that matter in 2024 — and beyond.`\
+https://nytimes.com/2024/10/18/podcasts/how-a-blouse-a-bandage-or-a-handshake-might-sway-a-voter.html
+
 **FIA calls Red Bull rules breach question a 'non-story' as Horner claims paddock 'paranoia'**\
 `Red Bull’s championship rival, McLaren, has raised concerns about a device on Red Bull's car. `\
 https://nytimes.com/athletic/5854256/2024/10/18/red-bull-f1-rules-christian-horner-us-gp/
