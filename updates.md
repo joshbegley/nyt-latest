@@ -1,3 +1,7 @@
+**Fire in Oakland Hills Prompts Evacuations Under Gusty Conditions**\
+`Firefighters in Northern California were responding to a blaze that burned several buildings and 15 acres.`\
+https://nytimes.com/2024/10/18/us/oakland-hills-fire-evacuation.html
+
 **What Will Become of Yahya Sinwar’s Body?**\
 `Uncertainty surrounds the fate of the Hamas leader’s corpse as experts say Israel will likely try to avoid having his resting place become a shrine.`\
 https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-body.html

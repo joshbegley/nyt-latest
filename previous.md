@@ -14,8 +14,8 @@ https://nytimes.com/2024/10/18/world/middleeast/hamas-sinwar-ceasefire-biden.htm
 `Israeli forces had been steadily closing in on Yahya Sinwar, the Hamas leader, for weeks before he was cornered and killed in a ruined house in the Gaza Strip.`\
 https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-final-moments-gaza.html
 
-**Fire in Oakland Hills Prompts Evacuations as High Winds Threaten Spread**\
-`Firefighters in Northern California were responding to a blaze that burned at least four buildings and 13 acres.`\
+**Fire in Oakland Hills Prompts Evacuations Under Gusty Conditions**\
+`Firefighters in Northern California were responding to a blaze that burned several buildings and 15 acres.`\
 https://nytimes.com/2024/10/18/us/oakland-hills-fire-evacuation.html
 
 **Mentos, an expired passport and a map were some of the items Israel said it found near the slain Hamas leader.**\
