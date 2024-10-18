@@ -1,3 +1,15 @@
+**One word to describe each Hurricanes player so far this season**\
+`Is it too early to worry about Sebastian Aho?`\
+https://nytimes.com/athletic/5852699/2024/10/18/carolina-hurricanes-season-games/
+
+**Miami Marlins to return to Diamond Sports**\
+`MLB expressed concerns about the timing and nature of Diamond's partnership with FanDuel.`\
+https://nytimes.com/athletic/5853737/2024/10/18/miami-marlins-diamond-sports-return/
+
+**Italian Judges Strike Down Request to Hold Migrants in Albania**\
+`The ruling was a major blow to the conservative government’s plan to have asylum claims heard in Albania instead of Italy.`\
+https://nytimes.com/2024/10/18/world/europe/italy-albania-migrants-judge.html
+
 **Patriots in London: Jerod Mayo makes pitch for optimism during rebuild**\
 `The Patriots are optimistic as they arrive in London despite five straight losses.`\
 https://nytimes.com/athletic/5853610/2024/10/18/new-england-patriots-london-jacksonville-jaguars-drake-maye/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/18/us/western-north-carolina-election-helene.html
 **In Swing Districts, Republicans Lean Into Anti-Crime Message to Court the Center**\
 `Representative Lori Chavez-DeRemer, a Republican in a tough re-election race in Oregon, is using a law-and-order pitch to appeal to a broad swath of voters and blunt concerns about the G.O.P. agenda.`\
 https://nytimes.com/2024/10/18/us/politics/republicans-crime-2024-election.html
-
-**'It's time': Emotional Bennett explains his decision to retire from UVA**\
-`Bennett's philosophies didn’t always align with the name, image and likeness and transfer portal era of college athletics.`\
-https://nytimes.com/athletic/5853585/2024/10/18/tony-bennett-retires-ron-sanchez-uva/
-
-**American Man Is Kidnapped and Taken Away on a Boat in the Philippines, Police Say**\
-`Four armed men shot and kidnapped a 26-year-old from Vermont from western Mindanao, the police said. He had been living in the area since May.`\
-https://nytimes.com/2024/10/18/world/asia/american-kidnapped-philippines.html
-
-**At Comic Con, Emergency Tailors Keep Cosplayers in Character**\
-`Armed with glue guns, Popsicle sticks, safety pins and more, a hub of costume repairers stands at the ready to make sure all goes according to fantasy.`\
-https://nytimes.com/2024/10/18/arts/new-york-comic-con-costume-cosplay-repairs.html
 

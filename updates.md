@@ -1,3 +1,15 @@
+**One word to describe each Hurricanes player so far this season**\
+`Is it too early to worry about Sebastian Aho?`\
+https://nytimes.com/athletic/5852699/2024/10/18/carolina-hurricanes-season-games/
+
+**Miami Marlins to return to Diamond Sports**\
+`MLB expressed concerns about the timing and nature of Diamond's partnership with FanDuel.`\
+https://nytimes.com/athletic/5853737/2024/10/18/miami-marlins-diamond-sports-return/
+
+**Italian Judges Strike Down Request to Hold Migrants in Albania**\
+`The ruling was a major blow to the conservative government’s plan to have asylum claims heard in Albania instead of Italy.`\
+https://nytimes.com/2024/10/18/world/europe/italy-albania-migrants-judge.html
+
 **Sinwar killed by gunshot to head, Israeli autopsy finds.**\
 `The director of Israel’s national forensic institute, Dr. Chen Kugel, oversaw the autopsy and described its findings in an interview with The New York Times on Friday.`\
 https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/yahya-sinwar-hamas-autopsy
