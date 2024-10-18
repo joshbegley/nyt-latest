@@ -1,3 +1,7 @@
+**U.S. Indicts 2 Linked to Oct. 7 Cyberattack on Israeli Warning System**\
+`The Justice Department has accused two Sudanese brothers of cyberattacks on U.S. infrastructure as well as preventing possibly lifesaving alerts from reaching Israelis as the Hamas attack unfolded.`\
+https://nytimes.com/2024/10/18/world/middleeast/anonymous-sudan-cyberattack-indictment.html
+
 **Tee Higgins' game reaches new heights with 'oomph' and 'urgency' in contract season**\
 `The receiver is playing motivated as he's poised to enter free agency after the season with every catch helping determine his value.`\
 https://nytimes.com/athletic/5851915/2024/10/18/bengals-tee-higgins-contract-season/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/18/briefing/news-quiz-gaza-trump-harris-
 **5 Things to Do This Weekend**\
 `A selection of entertainment highlights this weekend, including Sean Baker’s latest film, “Anora.”`\
 https://nytimes.com/interactive/2024/10/18/arts/weekend-editors-picks-anora.html
-
-**The Hidden Politics of Disorder**\
-`The crime researcher Charles Fain Lehman discusses why people feel unsafe, even as violent crime rates have dropped.`\
-https://nytimes.com/2024/10/18/opinion/ezra-klein-podcast-charles-fain-lehman.html
 
