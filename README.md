@@ -1,7 +1,3 @@
-**Eagles LT Jordan Mailata sent to injured reserve**\
-`Jordan Mailata has started 48 of the Eagles' last 50 games.`\
-https://nytimes.com/athletic/5854165/2024/10/18/eagles-jordan-mailata-injured-reserve/
-
 **Biden Renewed Efforts to Reach a Cease-Fire in Gaza**\
 `Also, a power outage plunged all of Cuba into darkness. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/10/18/briefing/biden-middle-east-cuba-power-outage.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5854161/2024/10/18/yankees-ian-hamilton-injury-alcs
 **After Hush-Money Verdict, Trump Tried to Silence Stormy Daniels Again**\
 `Donald J. Trump was convicted in May of covering up a hush-money deal with Stormy Daniels. Just two months later, his lawyer offered another deal for her silence.`\
 https://nytimes.com/2024/10/18/nyregion/trump-stormy-daniels-hush-money.html
+
+**Israel Destroys Nearly All of a Lebanese Village, Photos and Videos Show**\
+`About two dozen buildings were demolished in the village, which The Times identified as Mhaibib, just over a mile from Israel’s northern border.`\
+https://nytimes.com/2024/10/18/world/middleeast/israel-lebanon-mhaibib-photo-video.html
 
