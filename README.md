@@ -1,3 +1,7 @@
+**What does Michigan-Illinois mean? Previewing a sneaky big game for Wolverines, Illini**\
+`Two high-profile SEC games headline Week 8, but Michigan-Illinois gives Saturday three Top 25 matchups. Here's what to watch in Champaign.`\
+https://nytimes.com/athletic/5851273/2024/10/18/michigan-illinois-football-preview-prediction/
+
 **Why a key part of the Falcons' offseason plan may already be out the window: 5 factors**\
 `The Falcons planned to run lots of 12 personnel this season, and they tried it in Week 1. Since then, they've changed direction.`\
 https://nytimes.com/athletic/5851156/2024/10/18/falcons-11-personnel-seahawks/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/eric-trump-job-behavior
 **How to Stop Being a People Pleaser**\
 `We have some useful tips from experts. But no worries if you’re not ready!`\
 https://nytimes.com/2024/10/18/well/people-pleasing.html
-
-**The Evidence for a Big Youth Gender Gap and a Right Turn for Young Men**\
-`Young men are much more Republican than young women, the best data suggests, and may wind up backing Donald Trump.`\
-https://nytimes.com/2024/10/18/upshot/polls-trump-harris-young-men.html
 
