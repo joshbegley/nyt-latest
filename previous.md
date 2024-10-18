@@ -1,3 +1,7 @@
+**The Death of Hamas’s Leader**\
+`Yahya Sinwar is dead. Could this be a turning point?`\
+https://nytimes.com/2024/10/18/briefing/yahya-sinwar-hamas-israel.html
+
 **The Pulse: Last night's swing that made it a series**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5851427/2024/10/18/guardians-yankees-walkoff-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5851083/2024/10/18/ravens-browns-bengals-steelers-a
 **Packers rookie review: Evan Williams impresses, Edgerrin Cooper rising through 6 games**\
 `The Packers' rookie class has been hurt by various injuries, but a couple are starting to produce at the season's six-week mark.`\
 https://nytimes.com/athletic/5851929/2024/10/18/packers-rookie-review-evan-williams/
-
-**Israel Kills an Architect of the Oct. 7 Attacks**\
-`Yahya Sinwar, the leader of Hamas, was killed by Israeli forces in Gaza. What does that mean for cease-fire talks?`\
-https://nytimes.com/2024/10/18/podcasts/the-daily/israel-sinwar-oct-7.html
 

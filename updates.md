@@ -1,3 +1,7 @@
+**The Death of Hamas’s Leader**\
+`Yahya Sinwar is dead. Could this be a turning point?`\
+https://nytimes.com/2024/10/18/briefing/yahya-sinwar-hamas-israel.html
+
 **The Pulse: Last night's swing that made it a series**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5851427/2024/10/18/guardians-yankees-walkoff-the-pulse/
