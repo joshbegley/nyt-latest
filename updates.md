@@ -1,3 +1,7 @@
+**Fire in Oakland Hills Prompts Evacuations as High Winds Threaten Spread**\
+`Firefighters in Northern California were responding to a blaze that burned at least four buildings and 13 acres.`\
+https://nytimes.com/2024/10/18/us/oakland-hills-fire-evacuation.html
+
 **Mentos, an expired passport and a map were some of the items Israel said it found near the slain Hamas leader.**\
 `By Aric Toler, Riley Mellen and Ronen Bergman`\
 https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/sinwar-hamas-killed-passport
