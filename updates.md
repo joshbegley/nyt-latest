@@ -1,5 +1,13 @@
 **What Will Become of Yahya Sinwar’s Body?**\
 `Uncertainty surrounds the fate of the Hamas leader’s corpse as experts say Israel will likely try to avoid having his resting place become a shrine.`\
+https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-body.html
+
+**Sinwar’s Final Moments: On the Run, Hurt, Alone, but Still Defiant**\
+`Israeli forces had been steadily closing in on Yahya Sinwar, the Hamas leader, for weeks before he was cornered and killed in a ruined house in the Gaza Strip.`\
+https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-final-moments-gaza.html
+
+**What Will Become of Yahya Sinwar’s Body?**\
+`Uncertainty surrounds the fate of the Hamas leader’s corpse as experts say Israel will likely try to avoid having his resting place become a shrine.`\
 https://nytimes.com/2024/10/18/world/middleeast/what-will-become-of-yahya-sinwars-body.html
 
 **California Man Is Charged With Drugging and Sexually Assaulting 9 Women**\
