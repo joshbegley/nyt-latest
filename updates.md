@@ -1,3 +1,7 @@
+**After Sinwar: What Is the Future of Gaza?**\
+`Responses to the killing of the Hamas leader. Also: Guarding against authoritarianism; medical dramas; expressing sympathy to mourners; October light.`\
+https://nytimes.com/2024/10/18/opinion/yahya-sinwar-gaza.html
+
 **Chianti Classico Riservas to Find Right Now**\
 `These longer-aged wines were once notable for being too oaky and powerful. Now, producers are letting the gorgeous purity of the sangiovese grape shine through.`\
 https://nytimes.com/2024/10/18/dining/drinks/chianti-classico-riserva.html

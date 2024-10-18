@@ -1,3 +1,7 @@
+**After Sinwar: What Is the Future of Gaza?**\
+`Responses to the killing of the Hamas leader. Also: Guarding against authoritarianism; medical dramas; expressing sympathy to mourners; October light.`\
+https://nytimes.com/2024/10/18/opinion/yahya-sinwar-gaza.html
+
 **Chianti Classico Riservas to Find Right Now**\
 `These longer-aged wines were once notable for being too oaky and powerful. Now, producers are letting the gorgeous purity of the sangiovese grape shine through.`\
 https://nytimes.com/2024/10/18/dining/drinks/chianti-classico-riserva.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/dining/its-time-for-tagine.html
 **What, Exactly, Is Eczema?**\
 `Experts explain what causes the common skin condition and how to deal with it.`\
 https://nytimes.com/2024/10/18/well/live/eczema-atopic-dermatitis-causes-treatment.html
-
-**Premier League predicted line-ups: Who do our writers think will start in Gameweek 8?**\
-`As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for the upcoming games`\
-https://nytimes.com/athletic/5842042/2024/10/18/premier-league-predicted-line-ups-gameweek-8/
 
