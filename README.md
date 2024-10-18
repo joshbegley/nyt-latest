@@ -1,3 +1,7 @@
+**Power Outage Plunges All of Cuba Into Darkness**\
+`The Cuban government had just announced emergency measures to reduce electricity use — then the power went out across the entire nation.`\
+https://nytimes.com/2024/10/18/world/americas/cuba-power-plant-blackout.html
+
 **Israelis and Palestinians React to Assassination of Hamas Leader**\
 `While some Israelis expressed hope that the war might end soon, many Palestinians were doubtful that the death of Yahya Sinwar would lead to a cease-fire.`\
 https://nytimes.com/video/world/middleeast/100000009769475/yahya-sinwar-death-reactions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5853749/2024/10/18/colts-injury-updates-anthony-ric
 **Who will replace Tony Bennett at Virginia? Interim coach Ron Sanchez isn't only candidate**\
 `Interim coach Ron Sanchez is the favorite to replace Tony Bennett at Virginia, but keep an eye on Ryan Odom, Mitch Henderson and more.`\
 https://nytimes.com/athletic/5853543/2024/10/18/virginia-basketball-coach-candidates-sanchez-bennett-retired/
-
-**When Grief Goes Viral**\
-`On TikTok, some users posted videos of themselves learning about Liam Payne’s death in real time. At a time when the cameras are always rolling, it’s not so unusual.`\
-https://nytimes.com/2024/10/18/style/liam-payne-death-tiktok-reaction.html
 
