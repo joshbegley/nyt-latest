@@ -1,3 +1,11 @@
+**At Comic Con, Emergency Tailors Keep Cosplayers in Character**\
+`Armed with glue guns, Popsicle sticks, safety pins and more, a hub of costume repairers stands at the ready to make sure all goes according to fantasy.`\
+https://nytimes.com/2024/10/18/arts/new-york-comic-con-costume-cosplay-repairs.html
+
+**In Rare Move, Judge Changes Mind After 27 Years and Frees Brooklyn Man**\
+`Judge Frederic Block said his ideas about punishment had evolved since he sentenced Walter Johnson to five life terms in 1997. At age 90, he decided to take action.`\
+https://nytimes.com/2024/10/18/nyregion/life-sentence-walter-johnson-reversed.html
+
 **Trump’s Claims That Blame Migrants: False or Misleading**\
 `The Trump campaign has consistently pointed to unauthorized immigration as the cause of a series of problems it says plagues the country. That is rarely actually the case.`\
 https://nytimes.com/2024/10/18/us/politics/trump-immigration-fact-check.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/style/bob-rich-bonefish-tarpon-trust-gala.html
 **The Orionids Meteor Shower Is Peaking. Here’s How to Watch.**\
 `This event is linked to Halley’s comet, and occurs as another comet, Tsuchinshan-ATLAS, remains visible. But a nearly full moon could interfere with some views.`\
 https://nytimes.com/2024/10/18/science/orionid-meteor-shower-how-to-watch.html
-
-**Fantasy football flex fliers: DeMario Douglas and Xavier Legette lead pack**\
-`Scott Engel gives his top fantasy football picks for flex position fliers heading into Week 7.`\
-https://nytimes.com/athletic/5853431/2024/10/18/fantasy-football-flex-fliers-week-7-demario-douglas/
-
-**Trump Defends Adams, Arguing Both Are Being ‘Persecuted’**\
-`Mayor Eric Adams, a Democrat, and Donald J. Trump, the Republican former president, are strange bedfellows as both face legal challenges.`\
-https://nytimes.com/2024/10/18/nyregion/trump-adams-smith-dinner.html
 

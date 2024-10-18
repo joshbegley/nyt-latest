@@ -1,3 +1,11 @@
+**At Comic Con, Emergency Tailors Keep Cosplayers in Character**\
+`Armed with glue guns, Popsicle sticks, safety pins and more, a hub of costume repairers stands at the ready to make sure all goes according to fantasy.`\
+https://nytimes.com/2024/10/18/arts/new-york-comic-con-costume-cosplay-repairs.html
+
+**In Rare Move, Judge Changes Mind After 27 Years and Frees Brooklyn Man**\
+`Judge Frederic Block said his ideas about punishment had evolved since he sentenced Walter Johnson to five life terms in 1997. At age 90, he decided to take action.`\
+https://nytimes.com/2024/10/18/nyregion/life-sentence-walter-johnson-reversed.html
+
 **Trump’s Claims That Blame Migrants: False or Misleading**\
 `The Trump campaign has consistently pointed to unauthorized immigration as the cause of a series of problems it says plagues the country. That is rarely actually the case.`\
 https://nytimes.com/2024/10/18/us/politics/trump-immigration-fact-check.html
