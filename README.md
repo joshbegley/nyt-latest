@@ -1,3 +1,19 @@
+**Democrats’ Report Calls Trump Hotel Business Unethical and Unconstitutional**\
+`Democrats on the House Oversight Committee said the former president overcharged the Secret Service and accepted money from officials and people who were seeking pardons and appointments.`\
+https://nytimes.com/2024/10/18/us/politics/trump-hotel-report.html
+
+**Postecoglou reflects on Tottenham's Brighton loss as 'good lesson' in 'sticking to principles'**\
+`Ange Postecoglou says that Tottenham Hotspur’s defeat to Brighton &amp; Hove Albion before the October international break was a “good lesson” that they need to “stick to their core principles”.`\
+https://nytimes.com/athletic/5853292/2024/10/18/ange-postecoglou-tottenham-principles/
+
+**Luka Garza is leaving his mark, but will it translate to playing time for Wolves?**\
+`"Just watching him makes you want to play with him," rookie guard Rob Dillingham said on Garza.`\
+https://nytimes.com/athletic/5852302/2024/10/18/timberwolves-luka-garza-playing-time/
+
+**Pitt finalizing deal to make Greene school's new athletic director: Source**\
+`The 47-year-old Greene replaces Heather Lyke, who was fired last month after eight years at the school.`\
+https://nytimes.com/athletic/5853248/2024/10/18/allen-greene-pittsburgh-athletic-director/
+
 **Wolves’ Hwang Hee-chan could miss several weeks with ankle injury**\
 `Wolverhampton Wanderers striker Hwang Hee-chan could be missing for several weeks after suffering an ankle injury while playing for South Korea.`\
 https://nytimes.com/athletic/5853241/2024/10/18/hwang-wolves-injury-update/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5853203/2024/10/18/wayne-rooney-ban-plymouth/
 **Silva saddened after former Fulham Ladies captain alleges sexual abuse against Al Fayed**\
 `Fulham head coach Marco Silva has expressed his sadness after his club&#8217;s former women&#8217;s captain, Ronnie Gibbons, came forward to allege she was sexually assaulted on two occasions by then-owner Mohamed Al Fayed, saying &#8220;our empathy is with the situation&#8221;.`\
 https://nytimes.com/athletic/5853214/2024/10/18/marco-silva-fulham-al-fayed/
-
-**In Gaza, Yahya Sinwar’s death brings relief and glimmers of hope.**\
-`By Bilal Shbair and Liam Stack`\
-https://nytimes.com/live/2024/10/18/world/israel-hamas-gaza-news/in-gaza-yahya-sinwars-death-brings-relief-and-glimmers-of-hope
-
-**Guardiola refuses to confirm FA approach over becoming England head coach**\
-`Pep Guardiola has refused to confirm an approach from the Football Association (FA) about him becoming England head coach.`\
-https://nytimes.com/athletic/5853173/2024/10/18/pep-guardiola-england-manager-tuchel/
-
-**Aston Villa's Kamara and Mings available ahead of trip to Fulham**\
-`Unai Emery has confirmed that Boubacar Kamara and Tyrone Mings have returned to full fitness and are available for Aston Villa&#8217;s trip to Fulham.`\
-https://nytimes.com/athletic/5853144/2024/10/18/aston-villa-mings-kamara-fulham/
-
-**‘It’s Florida, Man’ Reveals the Lives Behind Bizarre News Stories**\
-`The HBO series uses familiar comedic actors in cheeky re-enactments of real Florida events, most of them subjects of past viral news reports.`\
-https://nytimes.com/2024/10/18/arts/television/review-its-florida-man.html
 
