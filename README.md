@@ -1,3 +1,7 @@
+**Israelis and Palestinians React to Assassination of Hamas Leader**\
+`While some Israelis expressed hope that the war might end soon, many Palestinians were doubtful that the death of Yahya Sinwar would lead to a cease-fire.`\
+https://nytimes.com/video/world/middleeast/100000009769475/yahya-sinwar-death-reactions.html
+
 **Sinwar’s Death Is a (Tricky) Opportunity**\
 `A ceasefire is unlikely, but Israelis and Palestinians have new reasons for hope.`\
 https://nytimes.com/2024/10/18/opinion/yahya-sinwar-hamas-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5853543/2024/10/18/virginia-basketball-coach-candid
 **When Grief Goes Viral**\
 `On TikTok, some users posted videos of themselves learning about Liam Payne’s death in real time. At a time when the cameras are always rolling, it’s not so unusual.`\
 https://nytimes.com/2024/10/18/style/liam-payne-death-tiktok-reaction.html
-
-**One word to describe each Hurricanes player so far this season**\
-`Is it too early to worry about Sebastian Aho?`\
-https://nytimes.com/athletic/5852699/2024/10/18/carolina-hurricanes-season-games/
 
