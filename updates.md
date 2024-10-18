@@ -1,3 +1,7 @@
+**An emotional Tony Bennett explains his decision to retire from UVA**\
+`Bennett's philosophies didn’t always align with the name, image and likeness and transfer portal era of college athletics.`\
+https://nytimes.com/athletic/5853585/2024/10/18/tony-bennett-retires-ron-sanchez-uva/
+
 **American Man Is Kidnapped and Taken Away on a Boat in the Philippines, Police Say**\
 `Four armed men shot and kidnapped a 26-year-old from Vermont from western Mindanao, the police said. He had been living in the area since May.`\
 https://nytimes.com/2024/10/18/world/asia/american-kidnapped-philippines.html
