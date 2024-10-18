@@ -1,3 +1,7 @@
+**Late Night Recaps Harris’s Time on Fox News and Trump’s on Univision**\
+`“Yes, both Kamala and Trump went into ‘the lion’s den’ this week — although they only got Trump there by telling him it was the name of a strip club,” Desi Lydic said on “The Daily Show.”`\
+https://nytimes.com/2024/10/18/arts/television/late-night-harris-fox-trump-univision.html
+
 **Dodgers dismantle Mets in NLCS Game 4 to move a win away from World Series**\
 `With one more win the Dodgers will have their first National League pennant since 2020 and fourth in the last eight years.`\
 https://nytimes.com/athletic/5852691/2024/10/18/dodgers-mets-nlcs-dave-roberts/
