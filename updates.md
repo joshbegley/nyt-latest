@@ -1,3 +1,7 @@
+**Dodgers dismantle Mets in NLCS Game 4 to move a win away from World Series**\
+`With one more win the Dodgers will have their first National League pennant since 2020 and fourth in the last eight years.`\
+https://nytimes.com/athletic/5852691/2024/10/18/dodgers-mets-nlcs-dave-roberts/
+
 **How England hired 'outstanding' Tuchel - and why not everyone is happy about it**\
 `The German's arrival is a major coup for the FA, but it does not come without controversy`\
 https://nytimes.com/athletic/5851079/2024/10/18/england-thomas-tuchel-how-hired-coach/
