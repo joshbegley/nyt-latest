@@ -1,3 +1,7 @@
+**There Is Overwhelming Proof That Texas Should Not Kill Robert Roberson**\
+`A murder conviction for shaken-baby syndrome may be groundless, and an execution should be stopped.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/texas-execution-innocence
+
 **Ask Russo: Submit your questions for The Athletic’s Minnesota Wild mailbag**\
 `Have a question about the Wild? Ask here, and The Athletic’s Michael Russo will respond to a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/5854071/2024/10/18/minnesota-wild-mailbag-october-2024/
@@ -18,9 +22,9 @@ https://nytimes.com/athletic/5853964/2024/10/18/luis-suarez-inter-miami-contract
 `The Rams will make their final decision “closer to the game,” coach Sean McVay said.`\
 https://nytimes.com/athletic/5854000/2024/10/18/rams-cooper-kupp-injury-update-vs-raiders/
 
-**The U.N. peacekeeping force in southern Lebanon says it will remain, rejecting Israel’s demand to withdraw.**\
+**U.N. Peacekeeping Force in Southern Lebanon Will remain, U.N. Official Says**\
 `By Nick Cumming-Bruce`\
-https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/un-peacekeepers-lebanon-israel
+https://nytimes.com/2024/10/18/world/middleeast/un-peacekeepers-lebanon-israel.html
 
 **Review: An Invitation to the Dance, Simple and Subtle**\
 `DD Dorvillier’s solo at the Chocolate Factory evokes a dream state as it digs into the same river of dance twice.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/18/us/harris-trump-election/north-carolina-offi
 **The internal competition fueling Broncos' pass rush: 'It's a race to the quarterback'**\
 `Jonathon Cooper's preseason projection of "10 sacks across the room" for Denver's pass rushers seems less outlandish by the week.`\
 https://nytimes.com/athletic/5853287/2024/10/18/denver-broncos-new-orleans-saints-jonathon-cooper/
-
-**When Opportunity Leaves, the Government Has Two Choices**\
-`Like people, places can fall on hard times. Do they also deserve help?`\
-https://nytimes.com/2024/10/18/opinion/economics-place-public-private-taxes.html
 
