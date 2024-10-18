@@ -1,3 +1,11 @@
+**Beam Team Dreams: Why this season is so crucial for De’Aaron Fox, revamped Kings**\
+`The guard is in "no rush" to sign an extension, but there's urgency in Sacramento to evolve from playoff hopeful to mainstay.`\
+https://nytimes.com/athletic/5850966/2024/10/18/kings-deaaron-fox-demar-derozan-nba/
+
+**Fabian Hurzeler interview: 'I was honest with myself - I was not a top player so I became a coach'**\
+`The Brighton and Hove Albion manager discusses his playing career, his path to management, and his hatred of losing`\
+https://nytimes.com/athletic/5836248/2024/10/18/fabian-hurzeler-interview-brighton-bayern-munich/
+
 **The Ultrarich Descend on Paris as Art Basel Comes to Town**\
 `The inaugural edition at the restored Grand Palais featured works at price levels never seen before at Paris’s fall art fair.`\
 https://nytimes.com/2024/10/18/arts/design/art-basel-paris.html
