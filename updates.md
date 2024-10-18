@@ -1,3 +1,7 @@
+**After Hush-Money Verdict, Trump Tried to Silence Stormy Daniels Again**\
+`Donald J. Trump was convicted in May of covering up a hush-money deal with Stormy Daniels. Just two months later, his lawyer offered another deal for her silence.`\
+https://nytimes.com/2024/10/18/nyregion/trump-stormy-daniels-hush-money.html
+
 **Israel Destroys Nearly All of a Lebanese Village, Photos and Videos Show**\
 `About two dozen buildings were demolished in the village, which The Times identified as Mhaibib, just over a mile from Israel’s northern border.`\
 https://nytimes.com/2024/10/18/world/middleeast/israel-lebanon-mhaibib-photo-video.html
