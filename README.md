@@ -1,3 +1,7 @@
+**Giants name J.P. Martinez as their new pitching coach**\
+`Martinez had been an assistant pitching coach for the Giants since 2021. He takes over for Bryan Price, who stepped down from the role.`\
+https://nytimes.com/athletic/5854043/2024/10/18/jp-martinez-sf-giants-pitching-coach/
+
 **Major sports books to cease prop bets on lowest paid players**\
 `The NBA requested the change to "protect the integrity of our games," said a league spokesperson.`\
 https://nytimes.com/athletic/5854024/2024/10/18/nba-sports-betting-10-day-contract-players/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/world/middleeast/un-peacekeepers-lebanon-israel.h
 **Review: An Invitation to the Dance, Simple and Subtle**\
 `DD Dorvillier’s solo at the Chocolate Factory evokes a dream state as it digs into the same river of dance twice.`\
 https://nytimes.com/2024/10/18/arts/dance/review-dd-dorvillier-chocolate-factory.html
-
-**North Carolina officials report record turnout on the first day of early voting.**\
-`By Eduardo Medina`\
-https://nytimes.com/live/2024/10/18/us/harris-trump-election/north-carolina-officials-report-record-turnout-on-the-first-day-of-early-voting
 

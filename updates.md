@@ -1,3 +1,7 @@
+**Major sports books to cease prop bets on lowest paid players**\
+`The NBA requested the change to "protect the integrity of our games," said a league spokesperson.`\
+https://nytimes.com/athletic/5854024/2024/10/18/nba-sports-betting-10-day-contract-players/
+
 **U.N. Peacekeeping Force in Southern Lebanon Will Remain, U.N. Official Says**\
 `Israel has demanded that the force, known as UNIFIL, pull out. But all the countries contributing troops and the U.N. Security Council decided unanimously that UNIFIL should stay.`\
 https://nytimes.com/2024/10/18/world/middleeast/un-peacekeepers-lebanon-israel.html

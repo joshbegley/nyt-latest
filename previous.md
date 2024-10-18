@@ -1,3 +1,7 @@
+**Major sports books to cease prop bets on lowest paid players**\
+`The NBA requested the change to "protect the integrity of our games," said a league spokesperson.`\
+https://nytimes.com/athletic/5854024/2024/10/18/nba-sports-betting-10-day-contract-players/
+
 **There Is Overwhelming Proof That Texas Should Not Kill Robert Roberson**\
 `A murder conviction for shaken-baby syndrome may be groundless, and an execution should be stopped.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/texas-execution-innocence
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/arts/dance/review-dd-dorvillier-chocolate-factory
 **North Carolina officials report record turnout on the first day of early voting.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/10/18/us/harris-trump-election/north-carolina-officials-report-record-turnout-on-the-first-day-of-early-voting
-
-**The internal competition fueling Broncos' pass rush: 'It's a race to the quarterback'**\
-`Jonathon Cooper's preseason projection of "10 sacks across the room" for Denver's pass rushers seems less outlandish by the week.`\
-https://nytimes.com/athletic/5853287/2024/10/18/denver-broncos-new-orleans-saints-jonathon-cooper/
 
