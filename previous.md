@@ -1,3 +1,7 @@
+**Best, Worst and Most Awkward Lines at the Al Smith Dinner**\
+`Donald J. Trump and Kamala Harris both delivered remarks, Ms. Harris via taped video and Mr. Trump in person in a ballroom in Manhattan.`\
+https://nytimes.com/2024/10/18/us/politics/trump-harris-al-smith-dinner.html
+
 **Aaron Judge had his Yankees legacy moment in ALCS Game 3, until he didn't**\
 `With one swing, Judge cemented his legacy as a New York Yankee, but it was all for naught as the Guardians walked it off in Game 3. `\
 https://nytimes.com/athletic/5852215/2024/10/18/new-york-yankees-aaron-judge-legacy-alcs-game-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5849920/2024/10/18/liverpool-defence/
 **FPL: With Alisson injured, is it worth using a free transfer on a goalkeeper?**\
 `The best strategy for FPL goalkeepers and transfers explained`\
 https://nytimes.com/athletic/5846914/2024/10/18/fantasy-premier-league-with-alisson-injured-is-it-worth-using-a-free-transfer-on-a-goalkeeper/
-
-**Can Manchester United stop Brentford scoring at kick-off?**\
-`If anyone can stop Brentford's electric goalscoring starts it's Manchester United. Right?`\
-https://nytimes.com/athletic/5847993/2024/10/18/how-to-stop-brentford-scoring-at-kick-off/
 
