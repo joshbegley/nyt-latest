@@ -1,3 +1,7 @@
+**Experience Anguilla with Venture X**\
+`At Belmond Cap Juluca, Anguilla, Capital One Venture X cardholders can expect an experience that is second to none.`\
+https://nytimes.com/paidpost/capital-one-venture-x/experience-anguilla-with-venture-x.html
+
 **In Michigan, Harris Makes Blue-Collar Pitch and Needles Trump as ‘Exhausted’**\
 `As the candidates campaigned in the battleground on the same day, Kamala Harris promised to “work with unions to create good-paying jobs.” Donald Trump was set for several stops around Detroit.`\
 https://nytimes.com/2024/10/18/us/politics/trump-harris-michigan.html
