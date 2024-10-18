@@ -1,3 +1,7 @@
+**Trump Defends Adams, Arguing Both Are Being ‘Persecuted’**\
+`Mayor Eric Adams, a Democrat, and Donald J. Trump, the Republican former president, are strange bedfellows as both face legal challenges.`\
+https://nytimes.com/2024/10/18/nyregion/trump-adams-smith-dinner.html
+
 **Five International Movies to Stream Now**\
 `In this month’s picks, a shy vampire in Canada comes of age, two men in India spar over a parking spot and a Chilean secretary dreams of life as a killer.`\
 https://nytimes.com/2024/10/18/movies/five-international-movies-to-stream-now.html
