@@ -1,3 +1,7 @@
+**Panarin puts on 'fun display,' Quick's strong first start, more: 4 Rangers takeaways**\
+`Panarin finished his hat trick halfway through the second period in a 5-2 road win against Detroit.`\
+https://nytimes.com/athletic/5852417/2024/10/17/rangers-panarin-hat-trick-quick-mancini/
+
 **Which Premier League players are on the verge of a yellow-card suspension?**\
 `The first yellow-card suspensions of this season will be served this weekend, so we take a look at the other players at risk of a ban`\
 https://nytimes.com/athletic/5827989/2024/10/17/premier-league-yellow-cards-ban/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5852037/2024/10/17/yankees-guardians-mlb-score-alcs
 **Man Sentenced to Life in Prison for Transgender Woman’s Killing**\
 `The man, Daqua Lameek Ritter, was the first person in the country to be convicted of a federal hate crime based on gender identity.`\
 https://nytimes.com/2024/10/17/us/dime-doe-murder-south-carolina-hate-crime.html
-
-**Microsoft and OpenAI’s Close Partnership Shows Signs of Fraying**\
-`The “best bromance in tech” has had a reality check as OpenAI has tried to change its deal with Microsoft and the software maker has tried to hedge its bet on the start-up.`\
-https://nytimes.com/2024/10/17/technology/microsoft-openai-partnership-deal.html
 

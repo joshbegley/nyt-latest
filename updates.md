@@ -1,3 +1,7 @@
+**Panarin puts on 'fun display,' Quick's strong first start, more: 4 Rangers takeaways**\
+`Panarin finished his hat trick halfway through the second period in a 5-2 road win against Detroit.`\
+https://nytimes.com/athletic/5852417/2024/10/17/rangers-panarin-hat-trick-quick-mancini/
+
 **Which Premier League players are on the verge of a yellow-card suspension?**\
 `The first yellow-card suspensions of this season will be served this weekend, so we take a look at the other players at risk of a ban`\
 https://nytimes.com/athletic/5827989/2024/10/17/premier-league-yellow-cards-ban/
