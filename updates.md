@@ -1,3 +1,11 @@
+**Teräväinen, power play propel Blackhawks in home opener victory: Observations**\
+`The Blackhawks may not be contenders just yet, but their power play could push them higher than people might expect.`\
+https://nytimes.com/athletic/5852305/2024/10/18/blackhawks-home-opener-teravainen-power-play/
+
+**Aston Villa and a curious contract stand-off with Rory Wilson**\
+`The 18-year-old has turned down all contract offers to stay at Villa beyond the season — the prolific youth striker looks set to leave`\
+https://nytimes.com/athletic/5833315/2024/10/18/rory-wilson-aston-villa-transfer/
+
 **Niclas Fullkrug's ongoing injury absence is only exacerbating his slow start**\
 `The club's search for a consistent goalscorer led them to the German but his frustrating start to life at the club continues `\
 https://nytimes.com/athletic/5850370/2024/10/18/niklas-fullkrug-injury-concerns/
