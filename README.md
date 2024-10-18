@@ -1,3 +1,7 @@
+**Late Night Recaps Harris’s Time on Fox News and Trump’s on Univision**\
+`“Yes, both Kamala and Trump went into ‘the lion’s den’ this week — although they only got Trump there by telling him it was the name of a strip club,” Desi Lydic said on “The Daily Show.”`\
+https://nytimes.com/2024/10/18/arts/television/late-night-harris-fox-trump-univision.html
+
 **Dodgers dismantle Mets in NLCS Game 4 to move a win away from World Series**\
 `With one more win the Dodgers will have their first National League pennant since 2020 and fourth in the last eight years.`\
 https://nytimes.com/athletic/5852691/2024/10/18/dodgers-mets-nlcs-dave-roberts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5852564/2024/10/18/yankees-luke-weaver-guardians-al
 **NHL 2024-25 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/5834883/2024/10/18/nhl-standings-playoffs-projections-odds/
-
-**Trump Jabs Harris for Not Attending Al Smith Charity Dinner**\
-`The annual Catholic charity event is known for inviting presidential candidates to lightheartedly roast each other.`\
-https://nytimes.com/video/us/elections/100000009769036/trump-harris-al-smith-dinner.html
 
