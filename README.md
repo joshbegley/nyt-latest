@@ -1,3 +1,7 @@
+**Mohamed Al Fayed accused of sexually assaulting Fulham Ladies captain at Harrods**\
+`Ronnie Gibbons was twice shut in a room on her own with the Fulham FC and Harrods owner - this is her story`\
+https://nytimes.com/athletic/5851577/2024/10/18/mohamed-al-fayed-harrods-fulham-ronnie-gibbons/
+
 **Late Night Recaps Harris’s Time on Fox News and Trump’s on Univision**\
 `“Yes, both Kamala and Trump went into ‘the lion’s den’ this week — although they only got Trump there by telling him it was the name of a strip club,” Desi Lydic said on “The Daily Show.”`\
 https://nytimes.com/2024/10/18/arts/television/late-night-harris-fox-trump-univision.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5852215/2024/10/18/new-york-yankees-aaron-judge-leg
 **After late-inning meltdown, should the Yankees worry about Luke Weaver's heavy workload?**\
 `Weaver and teammate Clay Holmes, who have pitched in every playoff game, had been stellar until Thursday's extra-inning loss.`\
 https://nytimes.com/athletic/5852564/2024/10/18/yankees-luke-weaver-guardians-alcs-loss/
-
-**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/5834883/2024/10/18/nhl-standings-playoffs-projections-odds/
 
