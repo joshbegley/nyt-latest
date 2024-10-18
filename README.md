@@ -1,3 +1,7 @@
+**In Gaza, Yahya Sinwar’s death brings relief and glimmers of hope.**\
+`By Bilal Shbair and Liam Stack`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-gaza-news/in-gaza-yahya-sinwars-death-brings-relief-and-glimmers-of-hope
+
 **Guardiola refuses to confirm FA approach over becoming England head coach**\
 `Pep Guardiola has refused to confirm an approach from the Football Association (FA) about him becoming England head coach.`\
 https://nytimes.com/athletic/5853173/2024/10/18/pep-guardiola-england-manager-tuchel/
