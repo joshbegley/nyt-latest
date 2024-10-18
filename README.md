@@ -1,3 +1,11 @@
+**Live Q&A: FPL Gameweek 8 advice from Ben Dinnery**\
+`We did it — and we did it together.`\
+https://nytimes.com/athletic/5847491/2024/10/18/fantasy-premier-league-advice-injury-news-gw8/
+
+**Arteta says he would have played for England: 'I feel very proud about it'**\
+`Arsenal manager Mikel Arteta says he would have changed his international allegiance from Spain to England during his playing career.`\
+https://nytimes.com/athletic/5852970/2024/10/18/mikel-arteta-england-tuchel/
+
 **Sinwar’s Death Could Shake but Not Topple Hamas, Experts Say**\
 `Analysts call the killing of several Hamas leaders, including Yahya Sinwar, a deep blow to the Palestinian militant group, but expect it to keep fighting.`\
 https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-death-hamas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5850966/2024/10/18/kings-deaaron-fox-demar-derozan-
 **Fabian Hurzeler interview: 'I was honest with myself - I was not a top player so I became a coach'**\
 `The Brighton and Hove Albion manager discusses his playing career, his path to management, and his hatred of losing`\
 https://nytimes.com/athletic/5836248/2024/10/18/fabian-hurzeler-interview-brighton-bayern-munich/
-
-**The Ultrarich Descend on Paris as Art Basel Comes to Town**\
-`The inaugural edition at the restored Grand Palais featured works at price levels never seen before at Paris’s fall art fair.`\
-https://nytimes.com/2024/10/18/arts/design/art-basel-paris.html
-
-**The Death of Hamas’s Leader**\
-`Yahya Sinwar is dead. Could this be a turning point?`\
-https://nytimes.com/2024/10/18/briefing/yahya-sinwar-hamas-israel.html
 
