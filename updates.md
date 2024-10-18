@@ -1,3 +1,15 @@
+**Five International Movies to Stream Now**\
+`In this month’s picks, a shy vampire in Canada comes of age, two men in India spar over a parking spot and a Chilean secretary dreams of life as a killer.`\
+https://nytimes.com/2024/10/18/movies/five-international-movies-to-stream-now.html
+
+**The Windup: Yankees lose in wild thriller**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5853514/2024/10/18/guardians-yankees-alcs-the-windup/
+
+**Yes, Ambassadors Can Get Away With Murder**\
+`Diplomatic immunity is one of the oldest and most respected rules of international law.`\
+https://nytimes.com/2024/10/18/world/yes-ambassadors-can-get-away-with-murder.html
+
 **After Sinwar: What Is the Future of Gaza?**\
 `Responses to the killing of the Hamas leader. Also: Guarding against authoritarianism; medical dramas; expressing sympathy to mourners; October light.`\
 https://nytimes.com/2024/10/18/opinion/yahya-sinwar-gaza.html

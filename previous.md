@@ -1,3 +1,15 @@
+**Five International Movies to Stream Now**\
+`In this month’s picks, a shy vampire in Canada comes of age, two men in India spar over a parking spot and a Chilean secretary dreams of life as a killer.`\
+https://nytimes.com/2024/10/18/movies/five-international-movies-to-stream-now.html
+
+**The Windup: Yankees lose in wild thriller**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5853514/2024/10/18/guardians-yankees-alcs-the-windup/
+
+**Yes, Ambassadors Can Get Away With Murder**\
+`Diplomatic immunity is one of the oldest and most respected rules of international law.`\
+https://nytimes.com/2024/10/18/world/yes-ambassadors-can-get-away-with-murder.html
+
 **After Sinwar: What Is the Future of Gaza?**\
 `Responses to the killing of the Hamas leader. Also: Guarding against authoritarianism; medical dramas; expressing sympathy to mourners; October light.`\
 https://nytimes.com/2024/10/18/opinion/yahya-sinwar-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5853451/2024/10/18/vikings-ravens-nfl-stats-scoop-c
 **For the Israeli who once saved Sinwar’s life, there is no joy in his death.**\
 `By Adam Sella`\
 https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/for-the-israeli-who-once-saved-sinwars-life-there-is-no-joy-in-his-death
-
-**France Struggles to Dry Out From Flash Flooding**\
-`Heavy rainfall and swollen rivers unleashed torrents of brackish water that cut off roads, swept away cars and swamped buildings.`\
-https://nytimes.com/2024/10/18/world/europe/france-flash-flooding.html
-
-**It’s Time for Tagine**\
-`Nargisse Benkabbou’s hearty and fragrant beef tagine with green beans, olives and preserved lemons, that is.`\
-https://nytimes.com/2024/10/18/dining/its-time-for-tagine.html
-
-**What, Exactly, Is Eczema?**\
-`Experts explain what causes the common skin condition and how to deal with it.`\
-https://nytimes.com/2024/10/18/well/live/eczema-atopic-dermatitis-causes-treatment.html
 
