@@ -1,3 +1,11 @@
+**North Carolina officials report record turnout on the first day of early voting.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/10/18/us/harris-trump-election/north-carolina-officials-report-record-turnout-on-the-first-day-of-early-voting
+
+**The internal competition fueling Broncos' pass rush: 'It's a race to the quarterback'**\
+`Jonathon Cooper's preseason projection of "10 sacks across the room" for Denver's pass rushers seems less outlandish by the week.`\
+https://nytimes.com/athletic/5853287/2024/10/18/denver-broncos-new-orleans-saints-jonathon-cooper/
+
 **When Opportunity Leaves, the Government Has Two Choices**\
 `Like people, places can fall on hard times. Do they also deserve help?`\
 https://nytimes.com/2024/10/18/opinion/economics-place-public-private-taxes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/world/americas/cuba-power-plant-blackout.html
 **Israelis and Palestinians React to Assassination of Hamas Leader**\
 `While some Israelis expressed hope that the war might end soon, many Palestinians were doubtful that the death of Yahya Sinwar would lead to a cease-fire.`\
 https://nytimes.com/video/world/middleeast/100000009769475/yahya-sinwar-death-reactions.html
-
-**Sinwar’s Death Is a (Tricky) Opportunity**\
-`A ceasefire is unlikely, but Israelis and Palestinians have new reasons for hope.`\
-https://nytimes.com/2024/10/18/opinion/yahya-sinwar-hamas-death.html
-
-**Will Notre Dame avoid an upset trap against Georgia Tech? Irish keys and a prediction**\
-`Why Notre Dame's defensive line growth is key to a second-half run, plus more thoughts on Saturday's visit to Atlanta to meet Georgia Tech.`\
-https://nytimes.com/athletic/5853910/2024/10/18/notre-dame-georgia-tech-football-preview/
 
