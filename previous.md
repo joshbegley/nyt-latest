@@ -1,3 +1,7 @@
+**Israel Destroys Nearly All of a Lebanese Village, Photos and Videos Show**\
+`About two dozen buildings were demolished in the village, which The Times identified as Mhaibib, just over a mile from Israel’s northern border.`\
+https://nytimes.com/2024/10/18/world/middleeast/israel-lebanon-mhaibib-photo-video.html
+
 **Sinwar’s Death Was a Victory for Israel. But Can the U.S. Persuade It to ‘Take the Win’?**\
 `Assassinating Yahya Sinwar was Israel’s Osama bin Laden moment. But getting a cease-fire deal done in the last three months of the Biden presidency is a much bigger reach.`\
 https://nytimes.com/2024/10/18/us/politics/sinwar-israel-biden-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854072/2024/10/18/st-louis-blues-jeremy-rutherford
 **Why Harris Remains Unlikely to Break From Biden on Israel and Gaza**\
 `Her advisers say the empathy she has expressed for Palestinians as vice president should not be confused with any willingness to break from U.S. foreign policy toward Israel as a presidential candidate.`\
 https://nytimes.com/2024/10/18/us/politics/harris-israel-gaza-war-biden-trump.html
-
-**Suarez confirms Inter Miami contract talks**\
-`Uruguayan forward Luis Suarez confirmed on Friday he is in talks with Inter Miami over extending his contract.`\
-https://nytimes.com/athletic/5853964/2024/10/18/luis-suarez-inter-miami-contract/
 

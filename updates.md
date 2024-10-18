@@ -1,3 +1,7 @@
+**Israel Destroys Nearly All of a Lebanese Village, Photos and Videos Show**\
+`About two dozen buildings were demolished in the village, which The Times identified as Mhaibib, just over a mile from Israel’s northern border.`\
+https://nytimes.com/2024/10/18/world/middleeast/israel-lebanon-mhaibib-photo-video.html
+
 **Sinwar’s Death Was a Victory for Israel. But Can the U.S. Persuade It to ‘Take the Win’?**\
 `Assassinating Yahya Sinwar was Israel’s Osama bin Laden moment. But getting a cease-fire deal done in the last three months of the Biden presidency is a much bigger reach.`\
 https://nytimes.com/2024/10/18/us/politics/sinwar-israel-biden-harris.html
