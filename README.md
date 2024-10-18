@@ -1,3 +1,7 @@
+**Liverpool looking into Alisson injury issues as Arne Slot calls for scheduling rethink**\
+`Arne Slot says Liverpool are looking into Alisson&#8217;s fitness issues and the head coach has urged a rethink over fixture scheduling.`\
+https://nytimes.com/athletic/5852845/2024/10/18/alisson-injury-update-liverpool/
+
 **U.S. Indicts 2 Linked to Oct. 7 Cyberattack on Israeli Warning System**\
 `The Justice Department has accused two Sudanese brothers of cyberattacks on U.S. infrastructure as well as preventing possibly lifesaving alerts from reaching Israelis as the Hamas attack unfolded.`\
 https://nytimes.com/2024/10/18/world/middleeast/anonymous-sudan-cyberattack-indictment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/us/politics/kamala-harris-michelle-obama-barack-o
 **The New York Times News Quiz, Oct. 18, 2024**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2024/10/18/briefing/news-quiz-gaza-trump-harris-early-voting.html
-
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including Sean Baker’s latest film, “Anora.”`\
-https://nytimes.com/interactive/2024/10/18/arts/weekend-editors-picks-anora.html
 
