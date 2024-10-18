@@ -1,3 +1,19 @@
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/5854072/2024/10/18/st-louis-blues-jeremy-rutherford-mailbag-october-2024/
+
+**Why Harris Remains Unlikely to Break From Biden on Israel and Gaza**\
+`Her advisers say the empathy she has expressed for Palestinians as vice president should not be confused with any willingness to break from U.S. foreign policy toward Israel as a presidential candidate.`\
+https://nytimes.com/2024/10/18/us/politics/harris-israel-gaza-war-biden-trump.html
+
+**Suarez confirms Inter Miami contract talks**\
+`Uruguayan forward Luis Suarez confirmed on Friday he is in talks with Inter Miami over extending his contract.`\
+https://nytimes.com/athletic/5853964/2024/10/18/luis-suarez-inter-miami-contract/
+
+**The U.N. peacekeeping force in southern Lebanon says it will remain, rejecting Israel’s demand to withdraw.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/un-peacekeepers-lebanon-israel
+
 **Rams' Kupp ‘questionable’ vs. Raiders, per McVay**\
 `The Rams will make their final decision “closer to the game,” coach Sean McVay said.`\
 https://nytimes.com/athletic/5854000/2024/10/18/rams-cooper-kupp-injury-update-vs-raiders/
