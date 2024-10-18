@@ -1,3 +1,7 @@
+**Microsoft and OpenAI’s Close Partnership Shows Signs of Fraying**\
+`The “best bromance in tech” has had a reality check as OpenAI has tried to change its deal with Microsoft and the software maker has tried to hedge its bet on the start-up.`\
+https://nytimes.com/2024/10/17/technology/microsoft-openai-partnership-deal.html
+
 **Want to Understand America? Watch ‘Shark Tank.’**\
 `The show which premiered in the U.S. in 2009, has broadcast the stress of the Great Recession, the allure of Silicon Valley, the upheaval of the Covid pandemic and now, whatever this economy is.`\
 https://nytimes.com/interactive/2024/10/17/business/shark-tank-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/17/world/middleeast/hamas-sinwar-gaza-israel.html
 **How Trump’s Radical Tariff Plan Could Wreck Our Economy**\
 `There’s no upside to the former president’s pet economic plan.`\
 https://nytimes.com/2024/10/17/opinion/trump-tariffs-economy.html
-
-**With Sinwar Dead, We Must End the War in Gaza**\
-`Another opening for the U.S. to push for a cease-fire.`\
-https://nytimes.com/2024/10/17/opinion/yahya-sinwar-dead-hamas-gaza.html
 

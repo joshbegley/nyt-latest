@@ -1,3 +1,7 @@
+**Microsoft and OpenAI’s Close Partnership Shows Signs of Fraying**\
+`The “best bromance in tech” has had a reality check as OpenAI has tried to change its deal with Microsoft and the software maker has tried to hedge its bet on the start-up.`\
+https://nytimes.com/2024/10/17/technology/microsoft-openai-partnership-deal.html
+
 **Aaron Judge, Giancarlo Stanton hit back-to-back home runs off Emmanuel Clase**\
 `Whatever the postseason narrative about Judge might have been, he’s officially flipped it with one swing of the bat.`\
 https://nytimes.com/athletic/5852176/2024/10/17/aaron-judge-giancarlo-stanton-alcs-homers/
