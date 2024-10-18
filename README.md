@@ -1,3 +1,7 @@
+**Charges Are Dropped Against Deaf Black Man Who Was Punched by Phoenix Police**\
+`The man, Tyron Scott McAlpin, who also has cerebral palsy, was repeatedly punched and shocked with a Taser by the police during an arrest in August. The arrest is under investigation.`\
+https://nytimes.com/2024/10/18/us/tyron-mcalpin-charges-dropped-maricopa-arizona.html
+
 **Experience Anguilla with Venture X**\
 `At Belmond Cap Juluca, Anguilla, Capital One Venture X cardholders can expect an experience that is second to none.`\
 https://nytimes.com/paidpost/capital-one-venture-x/experience-anguilla-with-venture-x.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854001/2024/10/18/f1-red-bull-rules-breach-united-
 **A Sherrod Brown Ad Seizes on an Unwise Remark About Women and Abortion**\
 `Bernie Moreno, his Republican rival, said women older than 50 are “crazy” for caring about abortion rights. A series of Ohio women who fit that description have much to say in response.`\
 https://nytimes.com/2024/10/18/us/politics/ohio-abortion-bernie-moreno-sherrod-brown.html
-
-**Giants name J.P. Martinez as their new pitching coach**\
-`Martinez had been an assistant pitching coach for the Giants since 2021. He takes over for Bryan Price, who stepped down from the role.`\
-https://nytimes.com/athletic/5854043/2024/10/18/jp-martinez-sf-giants-pitching-coach/
 
