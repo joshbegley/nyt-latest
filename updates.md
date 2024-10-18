@@ -1,3 +1,7 @@
+**Ancelotti: Mbappe unaffected by reports linking him to alleged rape**\
+`Real Madrid head coach Carlo Ancelotti says Kylian Mbappe is “happy” and unaffected by reports linking him to an alleged rape in Sweden last week.`\
+https://nytimes.com/athletic/5852997/2024/10/18/mbappe-real-madrid-sweden-ancelotti/
+
 **Live Q&A: FPL Gameweek 8 advice from Ben Dinnery**\
 `We did it — and we did it together.`\
 https://nytimes.com/athletic/5847491/2024/10/18/fantasy-premier-league-advice-injury-news-gw8/

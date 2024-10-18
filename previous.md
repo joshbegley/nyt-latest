@@ -1,3 +1,7 @@
+**Ancelotti: Mbappe unaffected by reports linking him to alleged rape**\
+`Real Madrid head coach Carlo Ancelotti says Kylian Mbappe is “happy” and unaffected by reports linking him to an alleged rape in Sweden last week.`\
+https://nytimes.com/athletic/5852997/2024/10/18/mbappe-real-madrid-sweden-ancelotti/
+
 **Live Q&A: FPL Gameweek 8 advice from Ben Dinnery**\
 `We did it — and we did it together.`\
 https://nytimes.com/athletic/5847491/2024/10/18/fantasy-premier-league-advice-injury-news-gw8/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5850901/2024/10/18/inside-pochettinos-first-month-i
 **Beam Team Dreams: Why this season is so crucial for De’Aaron Fox, revamped Kings**\
 `The guard is in "no rush" to sign an extension, but there's urgency in Sacramento to evolve from playoff hopeful to mainstay.`\
 https://nytimes.com/athletic/5850966/2024/10/18/kings-deaaron-fox-demar-derozan-nba/
-
-**Fabian Hurzeler interview: 'I was honest with myself - I was not a top player so I became a coach'**\
-`The Brighton and Hove Albion manager discusses his playing career, his path to management, and his hatred of losing`\
-https://nytimes.com/athletic/5836248/2024/10/18/fabian-hurzeler-interview-brighton-bayern-munich/
 
