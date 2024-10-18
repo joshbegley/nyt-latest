@@ -1,3 +1,7 @@
+**200 Years Later, Still Trying to Define the Midwest**\
+`From the geographic boundaries to the values and friendliness, people have debated what defines the region essentially since it was labeled the Midwest. It has taken on a renewed urgency this election year.`\
+https://nytimes.com/2024/10/18/us/midwest-states-harris-trump.html
+
 **Tony Bennett has nothing to apologize for in a legendary career, but he should answer for its ending**\
 `Bennett's coaching and his class, his contributions to the game, have been extraordinary. His departure needed to be a bit more ordinary. `\
 https://nytimes.com/athletic/5852414/2024/10/18/tony-bennett-retirement-virginia-ron-sanchez/
