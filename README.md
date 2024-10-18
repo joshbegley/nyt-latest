@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5853964/2024/10/18/luis-suarez-inter-miami-contract
 https://nytimes.com/athletic/5854000/2024/10/18/rams-cooper-kupp-injury-update-vs-raiders/
 
 **U.N. Peacekeeping Force in Southern Lebanon Will remain, U.N. Official Says**\
-`By Nick Cumming-Bruce`\
+`Israel has demanded that the force, known as UNIFIL, pull out. But all the countries contributing troops and the U.N. Security Council decided unanimously that UNIFIL should remain.`\
 https://nytimes.com/2024/10/18/world/middleeast/un-peacekeepers-lebanon-israel.html
 
 **Review: An Invitation to the Dance, Simple and Subtle**\
