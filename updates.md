@@ -1,3 +1,7 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/18/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **Ancelotti: Mbappe unaffected by reports linking him to alleged rape**\
 `Real Madrid head coach Carlo Ancelotti says Kylian Mbappe is “happy” and unaffected by reports linking him to an alleged rape in Sweden last week.`\
 https://nytimes.com/athletic/5852997/2024/10/18/mbappe-real-madrid-sweden-ancelotti/

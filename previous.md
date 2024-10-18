@@ -1,3 +1,7 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/10/18/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **Ancelotti: Mbappe unaffected by reports linking him to alleged rape**\
 `Real Madrid head coach Carlo Ancelotti says Kylian Mbappe is “happy” and unaffected by reports linking him to an alleged rape in Sweden last week.`\
 https://nytimes.com/athletic/5852997/2024/10/18/mbappe-real-madrid-sweden-ancelotti/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5842287/2024/10/18/england-tuchel-salah-haaland/
 **Inside Pochettino's first month in charge of USMNT: Maté cups, meetings and a chance encounter**\
 `What the new coaching hierarchy's first few weeks reveals about their approach`\
 https://nytimes.com/athletic/5850901/2024/10/18/inside-pochettinos-first-month-in-charge-of-usmnt/
-
-**Beam Team Dreams: Why this season is so crucial for De’Aaron Fox, revamped Kings**\
-`The guard is in "no rush" to sign an extension, but there's urgency in Sacramento to evolve from playoff hopeful to mainstay.`\
-https://nytimes.com/athletic/5850966/2024/10/18/kings-deaaron-fox-demar-derozan-nba/
 
