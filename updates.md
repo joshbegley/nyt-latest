@@ -1,3 +1,5 @@
+**‘The Daily’ podcast covers Sinwar’s killing.**\
+
 **Five Things That April Greiman Wishes She’d Made**\
 
 **James fit for Liverpool trip but will only play once a week, says Maresca**\
