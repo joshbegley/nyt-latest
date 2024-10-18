@@ -1,3 +1,15 @@
+**Tesla Self-Driving System Will Be Investigated by Safety Agency**\
+`The National Highway Transportation Safety Administration said it was looking into what Elon Musk’s electric car company called the full self-driving system.`\
+https://nytimes.com/2024/10/18/business/tesla-self-driving-investigation.html
+
+**Judge Orders DeSantis Administration to Stop Threats Over Abortion-Rights Ad**\
+`The organization behind a campaign for an abortion-rights ballot measure sued the Florida governor’s administration over its threats of criminal prosecution against TV stations.`\
+https://nytimes.com/2024/10/18/us/politics/abortion-florida-desantis.html
+
+**Plymouth coach Rooney given touchline ban and fine for misconduct**\
+`Wayne Rooney has been given a one-match touchline ban and a £5,500 fine by the Football Association (FA) for misconduct during Plymouth Argyle’s 2-1 victory over Blackburn Rovers on October 5.`\
+https://nytimes.com/athletic/5853203/2024/10/18/wayne-rooney-ban-plymouth/
+
 **Silva saddened after former Fulham Ladies captain alleges sexual abuse against Al Fayed**\
 `Fulham head coach Marco Silva has expressed his sadness after his club&#8217;s former women&#8217;s captain, Ronnie Gibbons, came forward to allege she was sexually assaulted on two occasions by then-owner Mohamed Al Fayed, saying &#8220;our empathy is with the situation&#8221;.`\
 https://nytimes.com/athletic/5853214/2024/10/18/marco-silva-fulham-al-fayed/
