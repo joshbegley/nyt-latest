@@ -1,3 +1,7 @@
+**Liverpool looking into Alisson injury issues as Arne Slot calls for scheduling rethink**\
+`Arne Slot says Liverpool are looking into Alisson&#8217;s fitness issues and the head coach has urged a rethink over fixture scheduling.`\
+https://nytimes.com/athletic/5852845/2024/10/18/alisson-injury-update-liverpool/
+
 **U.S. Indicts 2 Linked to Oct. 7 Cyberattack on Israeli Warning System**\
 `The Justice Department has accused two Sudanese brothers of cyberattacks on U.S. infrastructure as well as preventing possibly lifesaving alerts from reaching Israelis as the Hamas attack unfolded.`\
 https://nytimes.com/2024/10/18/world/middleeast/anonymous-sudan-cyberattack-indictment.html
