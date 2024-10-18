@@ -1,3 +1,15 @@
+**Drone Captures Moment of Defiance, Which Israel Says Was Sinwar’s Last**\
+`In a war often seen from far away, the footage from an Israeli drone appears to capture a moment both pivotal and personal.`\
+https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-hamas-drone-video.html
+
+**Yankees' Ian Hamilton out for rest of ALCS**\
+`The Yankees replaced Hamilton with Mark Leiter Jr. on the ALCS roster.`\
+https://nytimes.com/athletic/5854161/2024/10/18/yankees-ian-hamilton-injury-alcs/
+
+**After Hush-Money Verdict, Trump Tried to Silence Stormy Daniels Again**\
+`Donald J. Trump was convicted in May of covering up a hush-money deal with Stormy Daniels. Just two months later, his lawyer offered another deal for her silence.`\
+https://nytimes.com/2024/10/18/nyregion/trump-stormy-daniels-hush-money.html
+
 **Why Harris Remains Unlikely to Break From Biden on Israel and Gaza**\
 `Her advisers say the empathy she has expressed for Palestinians as vice president should not be confused with any willingness to break from U.S. foreign policy toward Israel as a presidential candidate.`\
 https://nytimes.com/2024/10/18/us/politics/harris-israel-gaza-war-biden-trump.html

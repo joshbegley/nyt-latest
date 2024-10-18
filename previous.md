@@ -1,3 +1,15 @@
+**Drone Captures Moment of Defiance, Which Israel Says Was Sinwar’s Last**\
+`In a war often seen from far away, the footage from an Israeli drone appears to capture a moment both pivotal and personal.`\
+https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-hamas-drone-video.html
+
+**Yankees' Ian Hamilton out for rest of ALCS**\
+`The Yankees replaced Hamilton with Mark Leiter Jr. on the ALCS roster.`\
+https://nytimes.com/athletic/5854161/2024/10/18/yankees-ian-hamilton-injury-alcs/
+
+**After Hush-Money Verdict, Trump Tried to Silence Stormy Daniels Again**\
+`Donald J. Trump was convicted in May of covering up a hush-money deal with Stormy Daniels. Just two months later, his lawyer offered another deal for her silence.`\
+https://nytimes.com/2024/10/18/nyregion/trump-stormy-daniels-hush-money.html
+
 **Israel Destroys Nearly All of a Lebanese Village, Photos and Videos Show**\
 `About two dozen buildings were demolished in the village, which The Times identified as Mhaibib, just over a mile from Israel’s northern border.`\
 https://nytimes.com/2024/10/18/world/middleeast/israel-lebanon-mhaibib-photo-video.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5854024/2024/10/18/nba-sports-betting-10-day-contra
 **There Is Overwhelming Proof That Texas Should Not Kill Robert Roberson**\
 `A murder conviction for shaken-baby syndrome may be groundless, and an execution should be stopped.`\
 https://nytimes.com/live/2024/10/15/opinion/thepoint/texas-execution-innocence
-
-**Ask Russo: Submit your questions for The Athletic’s Minnesota Wild mailbag**\
-`Have a question about the Wild? Ask here, and The Athletic’s Michael Russo will respond to a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/5854071/2024/10/18/minnesota-wild-mailbag-october-2024/
-
-**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
-`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/5854072/2024/10/18/st-louis-blues-jeremy-rutherford-mailbag-october-2024/
-
-**Why Harris Remains Unlikely to Break From Biden on Israel and Gaza**\
-`Her advisers say the empathy she has expressed for Palestinians as vice president should not be confused with any willingness to break from U.S. foreign policy toward Israel as a presidential candidate.`\
-https://nytimes.com/2024/10/18/us/politics/harris-israel-gaza-war-biden-trump.html
 
