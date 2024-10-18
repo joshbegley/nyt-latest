@@ -1,3 +1,15 @@
+**Wordle Review No. 1,218**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 19, 2024.`\
+https://nytimes.com/2024/10/18/crosswords/wordle-review-1218.html
+
+**The Connections Companion No. 496**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 19, 2024`\
+https://nytimes.com/2024/10/18/crosswords/connections-companion-496.html
+
+**Newcastle trigger option to extend Dan Burn's contract**\
+`Newcastle United have triggered an extension in Dan Burn&#8217;s contract, meaning the defender will remain on Tyneside beyond the end of the season.`\
+https://nytimes.com/athletic/5852887/2024/10/18/dan-burn-newcastle-contract-extension/
+
 **200 Years Later, Still Trying to Define the Midwest**\
 `From the geographic boundaries to the values and friendliness, people have debated what defines the region essentially since it was labeled the Midwest. It has taken on a renewed urgency this election year.`\
 https://nytimes.com/2024/10/18/us/midwest-states-harris-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5852845/2024/10/18/alisson-injury-update-liverpool/
 **U.S. Indicts 2 Linked to Oct. 7 Cyberattack on Israeli Warning System**\
 `The Justice Department has accused two Sudanese brothers of cyberattacks on U.S. infrastructure as well as preventing possibly lifesaving alerts from reaching Israelis as the Hamas attack unfolded.`\
 https://nytimes.com/2024/10/18/world/middleeast/anonymous-sudan-cyberattack-indictment.html
-
-**Tee Higgins' game reaches new heights with 'oomph' and 'urgency' in contract season**\
-`The receiver is playing motivated as he's poised to enter free agency after the season with every catch helping determine his value.`\
-https://nytimes.com/athletic/5851915/2024/10/18/bengals-tee-higgins-contract-season/
-
-**Phillies notes: Managing J.T. Realmuto, rebuilding the bullpen, roster turnover**\
-`The Phillies want to manage Realmuto's workload better, but he will be playing for his next contract. It will be a difficult conversation.`\
-https://nytimes.com/athletic/5850790/2024/10/18/phillies-jt-realmuto-bullpen-roster/
-
-**Hollinger: SGA for MVP, Cavs' rare heights and more fearless season predictions**\
-`A Most Improved Player in Texas? Coach of the Year from the East? Let's take some swings at what will happen in 2024-25.`\
-https://nytimes.com/athletic/5825360/2024/10/18/nba-predictions-shai-gilgeous-alexander-mvp-wembanyama/
 
