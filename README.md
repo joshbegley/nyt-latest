@@ -1,3 +1,11 @@
+**Sinwar’s Death Is a (Tricky) Opportunity**\
+`A ceasefire is unlikely, but Israelis and Palestinians have new reasons for hope.`\
+https://nytimes.com/2024/10/18/opinion/yahya-sinwar-hamas-death.html
+
+**Will Notre Dame avoid an upset trap against Georgia Tech? Irish keys and a prediction**\
+`Why Notre Dame's defensive line growth is key to a second-half run, plus more thoughts on Saturday's visit to Atlanta to meet Georgia Tech.`\
+https://nytimes.com/athletic/5853910/2024/10/18/notre-dame-georgia-tech-football-preview/
+
 **A Candidate for U.S. Senate Says He Was Shot in War. Was He?**\
 `Tim Sheehy, a Republican running for U.S. Senate in Montana, says he has a bullet in his arm from Afghanistan. But new questions have been raised about his account.`\
 https://nytimes.com/2024/10/18/us/tim-sheehy-gunshot-wound-montana-senate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/style/liam-payne-death-tiktok-reaction.html
 **One word to describe each Hurricanes player so far this season**\
 `Is it too early to worry about Sebastian Aho?`\
 https://nytimes.com/athletic/5852699/2024/10/18/carolina-hurricanes-season-games/
-
-**Miami Marlins to return to Diamond Sports**\
-`MLB expressed concerns about the timing and nature of Diamond's partnership with FanDuel.`\
-https://nytimes.com/athletic/5853737/2024/10/18/miami-marlins-diamond-sports-return/
-
-**Italian Judges Strike Down Request to Hold Migrants in Albania**\
-`The ruling was a major blow to the conservative government’s plan to have asylum claims heard in Albania instead of Italy.`\
-https://nytimes.com/2024/10/18/world/europe/italy-albania-migrants-judge.html
 
