@@ -1,3 +1,7 @@
+**‘A New Day’ at the Supreme Court? Justices Decline to Block an E.P.A. Rule.**\
+`The court’s decision was the third recent victory for regulators.`\
+https://nytimes.com/2024/10/18/climate/supreme-court-shadow-docket-environment.html
+
 **Sinwar’s Death Embodies Israel’s Long Quest for Deterrence**\
 `Israel’s killing of the Hamas leader Yahya Sinwar is the latest expression of Israel’s belief that regional acceptance will be achieved only through strength.`\
 https://nytimes.com/2024/10/18/world/middleeast/israel-military-sinwar-killing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/world/europe/italy-albania-migrants-judge.html
 **Patriots in London: Jerod Mayo makes pitch for optimism during rebuild**\
 `The Patriots are optimistic as they arrive in London despite five straight losses.`\
 https://nytimes.com/athletic/5853610/2024/10/18/new-england-patriots-london-jacksonville-jaguars-drake-maye/
-
-**Fantasy trends and hidden gems: Upcoming schedule puts a trio of Devils in the waiver wire spotlight**\
-`Shayna Goldman looks at the NHL slate for the week ahead and identifies top waiver wire targets, with a heavy emphasis on New Jersey Devils.`\
-https://nytimes.com/athletic/5852710/2024/10/18/fantasy-hockey-trends-hidden-gems-upcoming-schedule-waiver-wire-adds-cotter/
 
