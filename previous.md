@@ -1,3 +1,7 @@
+**American Man Is Kidnapped and Taken Away on a Boat in the Philippines, Police Say**\
+`Four armed men shot and kidnapped a 26-year-old from Vermont from western Mindanao, the police said. He had been living in the area since May.`\
+https://nytimes.com/2024/10/18/world/asia/american-kidnapped-philippines.html
+
 **At Comic Con, Emergency Tailors Keep Cosplayers in Character**\
 `Armed with glue guns, Popsicle sticks, safety pins and more, a hub of costume repairers stands at the ready to make sure all goes according to fantasy.`\
 https://nytimes.com/2024/10/18/arts/new-york-comic-con-costume-cosplay-repairs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5853421/2024/10/18/football-parlay-friday-week-8-ge
 **It Is ‘All About the Fish’ on Park Ave.**\
 `Avid and influential anglers turned out to honor Bob Rich Jr. at the Bonefish & Tarpon Trust’s annual gala in Manhattan.`\
 https://nytimes.com/2024/10/18/style/bob-rich-bonefish-tarpon-trust-gala.html
-
-**The Orionids Meteor Shower Is Peaking. Here’s How to Watch.**\
-`This event is linked to Halley’s comet, and occurs as another comet, Tsuchinshan-ATLAS, remains visible. But a nearly full moon could interfere with some views.`\
-https://nytimes.com/2024/10/18/science/orionid-meteor-shower-how-to-watch.html
 

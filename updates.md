@@ -1,3 +1,7 @@
+**American Man Is Kidnapped and Taken Away on a Boat in the Philippines, Police Say**\
+`Four armed men shot and kidnapped a 26-year-old from Vermont from western Mindanao, the police said. He had been living in the area since May.`\
+https://nytimes.com/2024/10/18/world/asia/american-kidnapped-philippines.html
+
 **At Comic Con, Emergency Tailors Keep Cosplayers in Character**\
 `Armed with glue guns, Popsicle sticks, safety pins and more, a hub of costume repairers stands at the ready to make sure all goes according to fantasy.`\
 https://nytimes.com/2024/10/18/arts/new-york-comic-con-costume-cosplay-repairs.html
