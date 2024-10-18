@@ -1,3 +1,23 @@
+**With Davante Adams gone, Tre Tucker aiming to step into bigger role with Raiders**\
+`Now that his mentor has been traded, it's time for Tucker to become a bigger part of the Raiders' passing game behind Aidan O'Connell.`\
+https://nytimes.com/athletic/5807316/2024/10/18/tre-tucker-raiders-davante-adams/
+
+**The Athletic’s Friday football quiz question #26**\
+`Can you answer the weekly poser from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/5847533/2024/10/18/the-athletics-friday-football-quiz-question-26/
+
+**Chiefs-49ers Super Bowl rematch: What's changed, biggest surprises, X factors**\
+`A lot has changed for both teams since their overtime thriller in Las Vegas, including significant injuries. Our beat writers break it down.`\
+https://nytimes.com/athletic/5851497/2024/10/18/chiefs-49ers-super-bowl-rematch/
+
+**Row Z: England's 'dark day', Salah's maritime border and how Haaland's baby will affect FPL**\
+`Tim Spiers' weekly look at the more curious aspects of football`\
+https://nytimes.com/athletic/5842287/2024/10/18/england-tuchel-salah-haaland/
+
+**Inside Pochettino's first month in charge of USMNT: Maté cups, meetings and a chance encounter**\
+`What the new coaching hierarchy's first few weeks reveals about their approach`\
+https://nytimes.com/athletic/5850901/2024/10/18/inside-pochettinos-first-month-in-charge-of-usmnt/
+
 **Beam Team Dreams: Why this season is so crucial for De’Aaron Fox, revamped Kings**\
 `The guard is in "no rush" to sign an extension, but there's urgency in Sacramento to evolve from playoff hopeful to mainstay.`\
 https://nytimes.com/athletic/5850966/2024/10/18/kings-deaaron-fox-demar-derozan-nba/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/10/18/briefing/yahya-sinwar-hamas-israel.html
 **The Pulse: Last night's swing that made it a series**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5851427/2024/10/18/guardians-yankees-walkoff-the-pulse/
-
-**Biden, in Germany, Urges Unwavering Support for Ukraine**\
-`The United States and its allies must work tirelessly, President Biden said, to “ensure that Ukraine prevails and Putin fails.”`\
-https://nytimes.com/2024/10/18/world/europe/biden-us-germany-ukraine-war-nato-russia.html
-
-**Weird & Wild: In Game 4, Dodgers' Ohtani and Betts deliver a 1-2 punch like no other — ever**\
-`How good were the Dodgers' 1-2 hitters in Game 4? So good that they put on a performance unlike any other in 105 years of baseball history.`\
-https://nytimes.com/athletic/5852833/2024/10/18/ohtani-mookie-betts-dodgers-nlcs-game-4/
-
-**Twins mailbag: Pohlad predictions, fixing Royce Lewis, trade scenarios, starting Griffin Jax**\
-`Plus awaiting new Twins owners, payroll problems, Alex Kirilloff's future in Minnesota and new hitting coach Matt Borgschulte.`\
-https://nytimes.com/athletic/5848821/2024/10/18/twins-pohlad-predictions-trade-scenarios/
-
-**Astros mailbag: Should Houston trade Framber Valdez or Kyle Tucker?**\
-`The Astros are at a crossroads. Could they trade one of their top players? And should players be willing to take a hometown discount?`\
-https://nytimes.com/athletic/5850977/2024/10/18/astros-framber-valdez-kyle-tucker-trade/
-
-**Arteta confident Odegaard will return before November break, Saka injury 'not serious'**\
-`Mikel Arteta has provided clarity on Martin Odegaard’s return to fitness, saying he is confident the Arsenal captain will be available for selection before the next international break.`\
-https://nytimes.com/athletic/5852881/2024/10/18/arsenal-odegaard-arteta-injury-update/
 
