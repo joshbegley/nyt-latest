@@ -1,3 +1,7 @@
+**In Michigan, Harris Makes Blue-Collar Pitch and Needles Trump as ‘Exhausted’**\
+`As the candidates campaigned in the battleground on the same day, Kamala Harris promised to “work with unions to create good-paying jobs.” Donald Trump was set for several stops around Detroit.`\
+https://nytimes.com/2024/10/18/us/politics/trump-harris-michigan.html
+
 **Drone Captures Moment of Defiance, Which Israel Says Was Sinwar’s Last**\
 `In a war often seen from far away, the footage from an Israeli drone appears to capture a moment both pivotal and personal.`\
 https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-hamas-drone-video.html

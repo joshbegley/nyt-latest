@@ -1,3 +1,7 @@
+**In Michigan, Harris Makes Blue-Collar Pitch and Needles Trump as ‘Exhausted’**\
+`As the candidates campaigned in the battleground on the same day, Kamala Harris promised to “work with unions to create good-paying jobs.” Donald Trump was set for several stops around Detroit.`\
+https://nytimes.com/2024/10/18/us/politics/trump-harris-michigan.html
+
 **Drone Captures Moment of Defiance, Which Israel Says Was Sinwar’s Last**\
 `In a war often seen from far away, the footage from an Israeli drone appears to capture a moment both pivotal and personal.`\
 https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-hamas-drone-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5854043/2024/10/18/jp-martinez-sf-giants-pitching-c
 **Major sports books to cease under prop bets on lowest paid players**\
 `The NBA requested the change to "protect the integrity of our games," said a league spokesperson.`\
 https://nytimes.com/athletic/5854024/2024/10/18/nba-sports-betting-10-day-contract-players/
-
-**There Is Overwhelming Proof That Texas Should Not Kill Robert Roberson**\
-`A murder conviction for shaken-baby syndrome may be groundless, and an execution should be stopped.`\
-https://nytimes.com/live/2024/10/15/opinion/thepoint/texas-execution-innocence
 

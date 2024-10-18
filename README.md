@@ -1,3 +1,7 @@
+**Experience Anguilla with Venture X**\
+`At Belmond Cap Juluca, Anguilla, Capital One Venture X cardholders can expect an experience that is second to none.`\
+https://nytimes.com/paidpost/capital-one-venture-x/experience-anguilla-with-venture-x.html
+
 **In Michigan, Harris Makes Blue-Collar Pitch and Needles Trump as ‘Exhausted’**\
 `As the candidates campaigned in the battleground on the same day, Kamala Harris promised to “work with unions to create good-paying jobs.” Donald Trump was set for several stops around Detroit.`\
 https://nytimes.com/2024/10/18/us/politics/trump-harris-michigan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/us/politics/ohio-abortion-bernie-moreno-sherrod-b
 **Giants name J.P. Martinez as their new pitching coach**\
 `Martinez had been an assistant pitching coach for the Giants since 2021. He takes over for Bryan Price, who stepped down from the role.`\
 https://nytimes.com/athletic/5854043/2024/10/18/jp-martinez-sf-giants-pitching-coach/
-
-**Major sports books to cease under prop bets on lowest paid players**\
-`The NBA requested the change to "protect the integrity of our games," said a league spokesperson.`\
-https://nytimes.com/athletic/5854024/2024/10/18/nba-sports-betting-10-day-contract-players/
 
