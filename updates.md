@@ -1,3 +1,15 @@
+**Biden Renewed Efforts to Reach a Cease-Fire in Gaza**\
+`Also, a power outage plunged all of Cuba into darkness. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/10/18/briefing/biden-middle-east-cuba-power-outage.html
+
+**In a Swing County, Hidden Signs of Harris Support**\
+`A country road is crowded with Trump signs. But Harris supporters exist, quietly.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/luzerne-pennsylvania-harris-support
+
+**Ten Hag: Ferguson 'always available' for advice despite contract ending**\
+`Erik ten Hag believes Sir Alex Ferguson will always be available for advice despite Manchester United removing him from the wage bill.`\
+https://nytimes.com/athletic/5854138/2024/10/18/ten-hag-ferguson-manchester-united/
+
 **Ten Hag: Ferguson 'always available' for advise despite contract ending**\
 `Erik ten Hag believes Sir Alex Ferguson will always be available for advice despite Manchester United removing him from the wage bill.`\
 https://nytimes.com/athletic/5854138/2024/10/18/ten-hag-ferguson-manchester-united/

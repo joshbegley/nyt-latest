@@ -1,4 +1,12 @@
-**Ten Hag: Ferguson 'always available' for advise despite contract ending**\
+**Biden Renewed Efforts to Reach a Cease-Fire in Gaza**\
+`Also, a power outage plunged all of Cuba into darkness. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/10/18/briefing/biden-middle-east-cuba-power-outage.html
+
+**In a Swing County, Hidden Signs of Harris Support**\
+`A country road is crowded with Trump signs. But Harris supporters exist, quietly.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/luzerne-pennsylvania-harris-support
+
+**Ten Hag: Ferguson 'always available' for advice despite contract ending**\
 `Erik ten Hag believes Sir Alex Ferguson will always be available for advice despite Manchester United removing him from the wage bill.`\
 https://nytimes.com/athletic/5854138/2024/10/18/ten-hag-ferguson-manchester-united/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/nyregion/trump-stormy-daniels-hush-money.html
 **Israel Destroys Nearly All of a Lebanese Village, Photos and Videos Show**\
 `About two dozen buildings were demolished in the village, which The Times identified as Mhaibib, just over a mile from Israel’s northern border.`\
 https://nytimes.com/2024/10/18/world/middleeast/israel-lebanon-mhaibib-photo-video.html
-
-**Sinwar’s Death Was a Victory for Israel. But Can the U.S. Persuade It to ‘Take the Win’?**\
-`Assassinating Yahya Sinwar was Israel’s Osama bin Laden moment. But getting a cease-fire deal done in the last three months of the Biden presidency is a much bigger reach.`\
-https://nytimes.com/2024/10/18/us/politics/sinwar-israel-biden-harris.html
-
-**McLaren CEO: Red Bull should face ‘massive consequences’ if F1 parc fermé rules breached**\
-`McLaren is currently engaged in a close battle with Red Bull for both world championships.`\
-https://nytimes.com/athletic/5854001/2024/10/18/f1-red-bull-rules-breach-united-states-gp/
 
