@@ -1,3 +1,7 @@
+**Who will replace Tony Bennett at Virginia? Interim coach Ron Sanchez isn't only candidate**\
+`Interim coach Ron Sanchez is the favorite to replace Tony Bennett at Virginia, but keep an eye on Ryan Odom, Mitch Henderson and more.`\
+https://nytimes.com/athletic/5853543/2024/10/18/virginia-basketball-coach-candidates-sanchez-bennett-retired/
+
 **When Grief Goes Viral**\
 `On TikTok, some users posted videos of themselves learning about Liam Payne’s death in real time. At a time when the cameras are always rolling, it’s not so unusual.`\
 https://nytimes.com/2024/10/18/style/liam-payne-death-tiktok-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5853608/2024/10/18/premier-league-top-4-odds-totten
 **Sinwar killed by gunshot to head, Israeli autopsy finds.**\
 `The director of Israel’s national forensic institute, Dr. Chen Kugel, oversaw the autopsy and described its findings in an interview with The New York Times on Friday.`\
 https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/yahya-sinwar-hamas-autopsy
-
-**Mudslides, Misinformation and an Urgency to Vote in Western North Carolina**\
-`On the first day of early voting, residents of western North Carolina weighed which candidates would most help their yearslong recovery.`\
-https://nytimes.com/2024/10/18/us/western-north-carolina-election-helene.html
 
