@@ -22,7 +22,7 @@ https://nytimes.com/2024/10/18/us/western-north-carolina-election-helene.html
 `Representative Lori Chavez-DeRemer, a Republican in a tough re-election race in Oregon, is using a law-and-order pitch to appeal to a broad swath of voters and blunt concerns about the G.O.P. agenda.`\
 https://nytimes.com/2024/10/18/us/politics/republicans-crime-2024-election.html
 
-**An emotional Tony Bennett explains his decision to retire from UVA**\
+**'It's time': Emotional Bennett explains his decision to retire from UVA**\
 `Bennett's philosophies didn’t always align with the name, image and likeness and transfer portal era of college athletics.`\
 https://nytimes.com/athletic/5853585/2024/10/18/tony-bennett-retires-ron-sanchez-uva/
 
