@@ -2,7 +2,7 @@
 `Fugetsu-Do, a mochi store in the Little Tokyo neighborhood of Los Angeles, has existed for 121 years, with a lasting impact on its community.`\
 https://nytimes.com/2024/10/18/headway/how-fugetsu-do-survived-the-evolution-of-little-tokyo.html
 
-**Eagles LT Jordan Mailata sent to injured reserve**\
+**Eagles LT Jordan Mailata placed on injured reserve**\
 `Jordan Mailata has started 48 of the Eagles' last 50 games.`\
 https://nytimes.com/athletic/5854165/2024/10/18/eagles-jordan-mailata-injured-reserve/
 
