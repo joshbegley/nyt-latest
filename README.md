@@ -1,3 +1,11 @@
+**Wolves’ Hwang Hee-chan could miss several weeks with ankle injury**\
+`Wolverhampton Wanderers striker Hwang Hee-chan could be missing for several weeks after suffering an ankle injury while playing for South Korea.`\
+https://nytimes.com/athletic/5853241/2024/10/18/hwang-wolves-injury-update/
+
+**Losing Andrew Thomas derailed Giants offense in 2023. Can they avoid same fate this year?**\
+`Can the Giants stop old friend Saquon Barkley and pull off the upset against the Philadelphia Eagles? `\
+https://nytimes.com/athletic/5852477/2024/10/18/new-york-giants-andrew-thomas-eagles-saquon-barkley/
+
 **Tesla Self-Driving System Will Be Investigated by Safety Agency**\
 `The National Highway Transportation Safety Administration said it was looking into what Elon Musk’s electric car company called the full self-driving system.`\
 https://nytimes.com/2024/10/18/business/tesla-self-driving-investigation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5853144/2024/10/18/aston-villa-mings-kamara-fulham/
 **‘It’s Florida, Man’ Reveals the Lives Behind Bizarre News Stories**\
 `The HBO series uses familiar comedic actors in cheeky re-enactments of real Florida events, most of them subjects of past viral news reports.`\
 https://nytimes.com/2024/10/18/arts/television/review-its-florida-man.html
-
-**J. G. Ballard, Secret Agent in Suburbia**\
-`A graphic tribute to the British novelist who documented the blight and brutality of the sleepy London outskirts from the 1970s into the 2000s.`\
-https://nytimes.com/2024/10/18/books/review/j-g-ballard-koren-shadmi.html
-
-**Homeowners Tap Into Their Rising Home Equity**\
-`Balances on home equity lines of credit have risen along with home equity loans. Popular reasons for borrowing include home renovations and repairs and debt consolidation.`\
-https://nytimes.com/2024/10/18/your-money/homeowners-home-equity-loans.html
 
