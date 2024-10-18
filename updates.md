@@ -1,3 +1,11 @@
+**How Quinn Hughes did it all in Canucks' first win, and why he shouldn't need to**\
+`If Hughes has to play this often and perform this well for Vancouver to win, what does that mean for the team over the rest of the season?`\
+https://nytimes.com/athletic/5852788/2024/10/18/canucks-victory-quinn-hughes/
+
+**For Trump, the ‘Enemies Within’ Are the Pelosis**\
+`He continues to fantasize about using the military to go after them.`\
+https://nytimes.com/live/2024/10/15/opinion/thepoint/trump-enemies-pelosis
+
 **Thomas Tuchel and the Moral Maze**\
 `An outcry over the hiring of a German to lead England’s national team was predictable. But don’t dismiss every objection out of hand.`\
 https://nytimes.com/2024/10/18/world/europe/thomas-tuchel-england.html
