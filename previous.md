@@ -1,3 +1,19 @@
+**Friday Briefing**\
+`The leader of Hamas is dead.`\
+https://nytimes.com/2024/10/18/briefing/hamas-leader-trump-election-zelensky.html
+
+**Nevada’s Senate Rivals Spar in a Debate Heavy on Policy and Light on Fireworks**\
+`Senator Jacky Brown and her Republican challenger, Sam Brown, met for their only debate, focusing on the cost of living, abortion and other issues.`\
+https://nytimes.com/2024/10/18/us/politics/nevada-senate-debate.html
+
+**Russell Martin: Football fundamentalist**\
+`Martin's promoted Southampton are in the Premier League relegation zone. Yet he will not change his tactics. Why? And will they come good?`\
+https://nytimes.com/athletic/5850367/2024/10/18/russell-martin-southampton-fundamentalist-tactics/
+
+**How Arsenal have become the Premier League's most direct team from goal kicks**\
+`Arsenal rarely 'launched' the ball from goal kicks last season but now they are doing it far more than any other team`\
+https://nytimes.com/athletic/5844397/2024/10/18/arsenal-goal-kicks-david-raya/
+
 **A Premier League XI of players who have been deployed in different roles this season**\
 `As football becomes more universal, redeploying players in new positions has become increasingly common `\
 https://nytimes.com/athletic/5849697/2024/10/18/premier-league-player-new-roles/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/10/18/world/europe/ukraine-draft-concert-army.html
 **Payton's Broncos dominate Saints in his return to New Orleans**\
 `Denver turned in one of its most dominant performances of coach Sean Payton's tenure in a 33-10 win against the Saints.`\
 https://nytimes.com/athletic/5852412/2024/10/18/saints-broncos-score-results-takeaways/
-
-**Premier League Matchday 8 odds, schedule: Leaders Liverpool host Chelsea in top-four clash**\
-`Liverpool and Chelsea meet in a match between teams in top-four spots in the Premier League table. The league-leading Reds are favored.`\
-https://nytimes.com/athletic/5847619/2024/10/18/premier-league-matchday-8-odds-schedule-liverpool-chelsea/
-
-**Learning to Measure Time in Love and Loss**\
-`In this essay from 2013, a writer tries to appreciate the limits of his own life.`\
-https://nytimes.com/2024/10/18/style/modern-love-classic-learning-to-measure-time-in-love-and-loss.html
-
-**Finding a Few Good Waves, and ‘Everything I Wanted’**\
-`Laura Baroni and Paul Keating, both avid surfers, met in Costa Rica and felt immediately connected, if not through their native languages.`\
-https://nytimes.com/2024/10/18/fashion/laura-baroni-paul-keating-wedding.html
-
-**It Was Love After First Flight**\
-`Lindsay Bennie heeded Victoria Williams’s call for a Valentine’s date, but they were hundreds of miles apart. Once they finally met, “our connection was instantaneous,” Ms. Bennie said.`\
-https://nytimes.com/2024/10/18/fashion/weddings/lindsay-bennie-victoria-williams-wedding.html
 

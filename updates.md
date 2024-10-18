@@ -1,3 +1,19 @@
+**Friday Briefing**\
+`The leader of Hamas is dead.`\
+https://nytimes.com/2024/10/18/briefing/hamas-leader-trump-election-zelensky.html
+
+**Nevada’s Senate Rivals Spar in a Debate Heavy on Policy and Light on Fireworks**\
+`Senator Jacky Brown and her Republican challenger, Sam Brown, met for their only debate, focusing on the cost of living, abortion and other issues.`\
+https://nytimes.com/2024/10/18/us/politics/nevada-senate-debate.html
+
+**Russell Martin: Football fundamentalist**\
+`Martin's promoted Southampton are in the Premier League relegation zone. Yet he will not change his tactics. Why? And will they come good?`\
+https://nytimes.com/athletic/5850367/2024/10/18/russell-martin-southampton-fundamentalist-tactics/
+
+**How Arsenal have become the Premier League's most direct team from goal kicks**\
+`Arsenal rarely 'launched' the ball from goal kicks last season but now they are doing it far more than any other team`\
+https://nytimes.com/athletic/5844397/2024/10/18/arsenal-goal-kicks-david-raya/
+
 **A Premier League XI of players who have been deployed in different roles this season**\
 `As football becomes more universal, redeploying players in new positions has become increasingly common `\
 https://nytimes.com/athletic/5849697/2024/10/18/premier-league-player-new-roles/
