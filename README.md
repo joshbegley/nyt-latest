@@ -1,3 +1,7 @@
+**An emotional Tony Bennett explains his decision to retire from UVA**\
+`Bennett's philosophies didn’t always align with the name, image and likeness and transfer portal era of college athletics.`\
+https://nytimes.com/athletic/5853585/2024/10/18/tony-bennett-retires-ron-sanchez-uva/
+
 **American Man Is Kidnapped and Taken Away on a Boat in the Philippines, Police Say**\
 `Four armed men shot and kidnapped a 26-year-old from Vermont from western Mindanao, the police said. He had been living in the area since May.`\
 https://nytimes.com/2024/10/18/world/asia/american-kidnapped-philippines.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5851166/2024/10/18/alex-albon-f1-100th-grand-prix-u
 **Football Parlay Friday Week 8: Georgia and four other underdogs that have a shot to win**\
 `Friday is here which means we get to dive into the college football board and see where the value lies for our Football Parlay Friday.`\
 https://nytimes.com/athletic/5853421/2024/10/18/football-parlay-friday-week-8-georgia/
-
-**It Is ‘All About the Fish’ on Park Ave.**\
-`Avid and influential anglers turned out to honor Bob Rich Jr. at the Bonefish & Tarpon Trust’s annual gala in Manhattan.`\
-https://nytimes.com/2024/10/18/style/bob-rich-bonefish-tarpon-trust-gala.html
 
