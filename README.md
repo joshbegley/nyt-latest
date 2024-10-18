@@ -1,3 +1,7 @@
+**Fantasy football flex fliers: DeMario Douglas and Xavier Legette lead pack**\
+`Scott Engel gives his top fantasy football picks for flex position fliers heading into Week 7.`\
+https://nytimes.com/athletic/5853431/2024/10/18/fantasy-football-flex-fliers-week-7-demario-douglas/
+
 **Trump Defends Adams, Arguing Both Are Being ‘Persecuted’**\
 `Mayor Eric Adams, a Democrat, and Donald J. Trump, the Republican former president, are strange bedfellows as both face legal challenges.`\
 https://nytimes.com/2024/10/18/nyregion/trump-adams-smith-dinner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/world/asia/india-sikh-murder-plots-canada-us.html
 **The Bounce: Giannis' "trade" talk, in context**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/5852324/2024/10/18/giannis-antetokounmpo-bucks-victor-wembanyama-dpoy-nba-the-bounce/
-
-**Scoop City: Building the NFL's two best units**\
-`Scoop City is The Athletic&#8217;s daily NFL newsletter.`\
-https://nytimes.com/athletic/5853451/2024/10/18/vikings-ravens-nfl-stats-scoop-city/
 
