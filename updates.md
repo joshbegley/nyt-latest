@@ -1,3 +1,7 @@
+**‘A New Day’ at the Supreme Court? Justices Decline to Block an E.P.A. Rule.**\
+`The court’s decision was the third recent victory for regulators.`\
+https://nytimes.com/2024/10/18/climate/supreme-court-shadow-docket-environment.html
+
 **Sinwar’s Death Embodies Israel’s Long Quest for Deterrence**\
 `Israel’s killing of the Hamas leader Yahya Sinwar is the latest expression of Israel’s belief that regional acceptance will be achieved only through strength.`\
 https://nytimes.com/2024/10/18/world/middleeast/israel-military-sinwar-killing.html
