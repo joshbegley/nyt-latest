@@ -1,3 +1,11 @@
+**Much of the Emerald Isle Is an Ecological Desert. He’s Trying to Change That.**\
+`Eoghan Daltun rewilded his land in West Cork and wants more of Ireland to do the same.`\
+https://nytimes.com/2024/10/18/climate/ireland-ecological-desert-rewilding.html
+
+**What’s at Stake in a Strained Microsoft-OpenAI Partnership**\
+`The alliance between the technology giant and the company behind OpenAI has been hugely consequential — but a disruption could shake up the A.I. race.`\
+https://nytimes.com/2024/10/18/business/dealbook/microsoft-openai-ai.html
+
 **Impeachment of Kenya’s Deputy President Could Augur Further Turmoil**\
 `It’s the first impeachment under the country’s new Constitution, but some are now calling for a similar move against President William Ruto.`\
 https://nytimes.com/2024/10/18/world/africa/kenya-deputy-president-impeachment.html
