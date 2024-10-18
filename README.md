@@ -1,3 +1,11 @@
+**Teräväinen, power play propel Blackhawks in home opener victory: Observations**\
+`The Blackhawks may not be contenders just yet, but their power play could push them higher than people might expect.`\
+https://nytimes.com/athletic/5852305/2024/10/18/blackhawks-home-opener-teravainen-power-play/
+
+**Aston Villa and a curious contract stand-off with Rory Wilson**\
+`The 18-year-old has turned down all contract offers to stay at Villa beyond the season — the prolific youth striker looks set to leave`\
+https://nytimes.com/athletic/5833315/2024/10/18/rory-wilson-aston-villa-transfer/
+
 **Niclas Fullkrug's ongoing injury absence is only exacerbating his slow start**\
 `The club's search for a consistent goalscorer led them to the German but his frustrating start to life at the club continues `\
 https://nytimes.com/athletic/5850370/2024/10/18/niklas-fullkrug-injury-concerns/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5850206/2024/10/18/forest-home-form-premier-league/
 **Why are Newcastle not using £10m striker Osula given other injuries and lack of goals?**\
 `Eddie Howe does not yet trust that the 21-year-old is ready to make an impact in the first team, but there are high hopes for Osula `\
 https://nytimes.com/athletic/5849325/2024/10/18/william-osula-newcastle-striker/
-
-**The 'Guardiac' kids keep finding ways to win, but they'll need their stars to step up soon**\
-`The Guardians are getting major contributions from the likes of Jhonkensy Noel and David Fry, though they'll need their stars to step up.`\
-https://nytimes.com/athletic/5852533/2024/10/18/cleveland-guardians-alcs-game-3-column/
-
-**Friday Briefing**\
-`The leader of Hamas is dead.`\
-https://nytimes.com/2024/10/18/briefing/hamas-leader-trump-election-zelensky.html
 
