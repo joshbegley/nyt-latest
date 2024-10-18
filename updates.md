@@ -1,3 +1,7 @@
+**When Grief Goes Viral**\
+`On TikTok, some users posted videos of themselves learning about Liam Payne’s death in real time. At a time when the cameras are always rolling, it’s not so unusual.`\
+https://nytimes.com/2024/10/18/style/liam-payne-death-tiktok-reaction.html
+
 **One word to describe each Hurricanes player so far this season**\
 `Is it too early to worry about Sebastian Aho?`\
 https://nytimes.com/athletic/5852699/2024/10/18/carolina-hurricanes-season-games/
