@@ -1,3 +1,7 @@
+**Chianti Classico Riservas to Find Right Now**\
+`These longer-aged wines were once notable for being too oaky and powerful. Now, producers are letting the gorgeous purity of the sangiovese grape shine through.`\
+https://nytimes.com/2024/10/18/dining/drinks/chianti-classico-riserva.html
+
 **JD Vance and the Fight for Pennsylvania’s Catholic Voters**\
 `The Republican vice-presidential nominee is the only Catholic on either national ticket. His politics resonate with many white conservative Catholics.`\
 https://nytimes.com/2024/10/18/us/jd-vance-pennsylvania-catholic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/well/live/eczema-atopic-dermatitis-causes-treatme
 **Premier League predicted line-ups: Who do our writers think will start in Gameweek 8?**\
 `As we approach another weekend of action in the Premier League, our writers have had a go at predicting the line-ups for the upcoming games`\
 https://nytimes.com/athletic/5842042/2024/10/18/premier-league-predicted-line-ups-gameweek-8/
-
-**A Cowed Establishment Toasts Trump at a Manhattan Charity Dinner**\
-`There were grudge matches and sycophancy in equal measure at the Alfred E. Smith Memorial Foundation Dinner. “Isn’t it just exciting, what’s going on,” Donald Trump said.`\
-https://nytimes.com/2024/10/18/us/elections/donald-trump-al-smith-dinner-new-york.html
 
