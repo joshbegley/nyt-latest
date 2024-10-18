@@ -1,3 +1,7 @@
+**Ask Russo: Submit your questions for The Athletic’s Minnesota Wild mailbag**\
+`Have a question about the Wild? Ask here, and The Athletic’s Michael Russo will respond to a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/5854071/2024/10/18/minnesota-wild-mailbag-october-2024/
+
 **Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
 `Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/5854072/2024/10/18/st-louis-blues-jeremy-rutherford-mailbag-october-2024/
