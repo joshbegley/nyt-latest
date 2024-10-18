@@ -1,3 +1,19 @@
+**Chianti Classico Riservas to Find Right Now**\
+`These longer-aged wines were once notable for being too oaky and powerful. Now, producers are letting the gorgeous purity of the sangiovese grape shine through.`\
+https://nytimes.com/2024/10/18/dining/drinks/chianti-classico-riserva.html
+
+**JD Vance and the Fight for Pennsylvania’s Catholic Voters**\
+`The Republican vice-presidential nominee is the only Catholic on either national ticket. His politics resonate with many white conservative Catholics.`\
+https://nytimes.com/2024/10/18/us/jd-vance-pennsylvania-catholic.html
+
+**Facing Murder Plot Accusations, India Aids U.S. but Is Stern With Canada**\
+`In both cases of plans targeting Sikh separatists, suspicions of New Delhi’s involvement have arisen. That has put India in a tight diplomatic position.`\
+https://nytimes.com/2024/10/18/world/asia/india-sikh-murder-plots-canada-us.html
+
+**The Bounce: Giannis' "trade" talk, in context**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5852324/2024/10/18/giannis-antetokounmpo-bucks-victor-wembanyama-dpoy-nba-the-bounce/
+
 **Scoop City: Building the NFL's two best units**\
 `Scoop City is The Athletic&#8217;s daily NFL newsletter.`\
 https://nytimes.com/athletic/5853451/2024/10/18/vikings-ravens-nfl-stats-scoop-city/
