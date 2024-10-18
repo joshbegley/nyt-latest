@@ -10,8 +10,8 @@ https://nytimes.com/athletic/5834883/2024/10/18/nhl-standings-playoffs-projectio
 `The annual Catholic charity event is known for inviting presidential candidates to lightheartedly roast each other.`\
 https://nytimes.com/video/us/elections/100000009769036/trump-harris-al-smith-dinner.html
 
-**Teräväinen, power play propel Blackhawks in home opener victory: Observations**\
-`The Blackhawks may not be contenders just yet, but their power play could push them higher than people might expect.`\
+**Teuvo Teräväinen, power play propel Blackhawks in home-opener victory: Observations**\
+`The Blackhawks might not be contenders just yet, but their power play could push them higher than people expect.`\
 https://nytimes.com/athletic/5852305/2024/10/18/blackhawks-home-opener-teravainen-power-play/
 
 **Aston Villa and a curious contract stand-off with Rory Wilson**\

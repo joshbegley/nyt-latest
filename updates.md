@@ -1,3 +1,7 @@
+**Teuvo Teräväinen, power play propel Blackhawks in home-opener victory: Observations**\
+`The Blackhawks might not be contenders just yet, but their power play could push them higher than people expect.`\
+https://nytimes.com/athletic/5852305/2024/10/18/blackhawks-home-opener-teravainen-power-play/
+
 **After late-inning meltdown, should the Yankees worry about Luke Weaver's heavy workload?**\
 `Weaver and teammate Clay Holmes, who have pitched in every playoff game, had been stellar until Thursday's extra-inning loss.`\
 https://nytimes.com/athletic/5852564/2024/10/18/yankees-luke-weaver-guardians-alcs-loss/
