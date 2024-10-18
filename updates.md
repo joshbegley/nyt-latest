@@ -1,3 +1,7 @@
+**Nicholas Daniloff, 89, Dies; Reporter’s Arrest in Moscow Ignited a Firestorm**\
+`A veteran foreign correspondent during the Cold War, he was held on trumped-up espionage charges. He credited President Ronald Reagan with fighting for his release.`\
+https://nytimes.com/2024/10/18/business/media/nicholas-daniloff-dead.html
+
 **West Bank violence spills into Palestinians’ crucial olive harvest.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/west-bank-violence-spills-into-palestinians-crucial-olive-harvest

@@ -1,3 +1,7 @@
+**Nicholas Daniloff, 89, Dies; Reporter’s Arrest in Moscow Ignited a Firestorm**\
+`A veteran foreign correspondent during the Cold War, he was held on trumped-up espionage charges. He credited President Ronald Reagan with fighting for his release.`\
+https://nytimes.com/2024/10/18/business/media/nicholas-daniloff-dead.html
+
 **West Bank violence spills into Palestinians’ crucial olive harvest.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/west-bank-violence-spills-into-palestinians-crucial-olive-harvest
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/headway/how-fugetsu-do-survived-the-evolution-of-
 **49ers' Ricky Pearsall to make NFL debut vs. Chiefs**\
 `Asked on KNBR radio if Pearsall could be activated this week, Lynch said, “Absolutely there’s a chance. He’s had a good practice week."`\
 https://nytimes.com/athletic/5853458/2024/10/18/49ers-ricky-pearsall-return-chiefs/
-
-**Eagles LT Jordan Mailata placed on injured reserve**\
-`Jordan Mailata has started 48 of the Eagles' last 50 games.`\
-https://nytimes.com/athletic/5854165/2024/10/18/eagles-jordan-mailata-injured-reserve/
 
