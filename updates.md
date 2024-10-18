@@ -1,3 +1,7 @@
+**Eagles LT Jordan Mailata sent to injured reserve**\
+`Jordan Mailata has started 48 of the Eagles' last 50 games.`\
+https://nytimes.com/athletic/5854165/2024/10/18/eagles-jordan-mailata-injured-reserve/
+
 **Biden Renewed Efforts to Reach a Cease-Fire in Gaza**\
 `Also, a power outage plunged all of Cuba into darkness. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/10/18/briefing/biden-middle-east-cuba-power-outage.html
