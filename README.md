@@ -2,6 +2,10 @@
 `Fugetsu-Do, a mochi store in the Little Tokyo neighborhood of Los Angeles, has existed for 121 years, with a lasting impact on its community.`\
 https://nytimes.com/2024/10/18/headway/how-fugetsu-do-survived-the-evolution-of-little-tokyo.html
 
+**49ers' Ricky Pearsall to make NFL debut vs. Chiefs**\
+`Asked on KNBR radio if Pearsall could be activated this week, Lynch said, “Absolutely there’s a chance. He’s had a good practice week."`\
+https://nytimes.com/athletic/5853458/2024/10/18/49ers-ricky-pearsall-return-chiefs/
+
 **Eagles LT Jordan Mailata placed on injured reserve**\
 `Jordan Mailata has started 48 of the Eagles' last 50 games.`\
 https://nytimes.com/athletic/5854165/2024/10/18/eagles-jordan-mailata-injured-reserve/
@@ -18,7 +22,7 @@ https://nytimes.com/live/2024/10/15/opinion/thepoint/luzerne-pennsylvania-harris
 `Erik ten Hag believes Sir Alex Ferguson will always be available for advice despite Manchester United removing him from the wage bill.`\
 https://nytimes.com/athletic/5854138/2024/10/18/ten-hag-ferguson-manchester-united/
 
-**Charges Are Dropped Against Deaf Black Man Who Was Punched by Phoenix Police**\
+**Charges Against Deaf Black Man Punched by Phoenix Police Are Dropped**\
 `The man, Tyron Scott McAlpin, who also has cerebral palsy, was repeatedly punched and shocked with a Taser by the police during an arrest in August. The arrest is under investigation.`\
 https://nytimes.com/2024/10/18/us/tyron-mcalpin-charges-dropped-maricopa-arizona.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/us/politics/trump-harris-michigan.html
 **Drone Captures Moment of Defiance, Which Israel Says Was Sinwar’s Last**\
 `In a war often seen from far away, the footage from an Israeli drone appears to capture a moment both pivotal and personal.`\
 https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-hamas-drone-video.html
-
-**Yankees' Ian Hamilton out for rest of ALCS**\
-`The Yankees replaced Hamilton with Mark Leiter Jr. on the ALCS roster.`\
-https://nytimes.com/athletic/5854161/2024/10/18/yankees-ian-hamilton-injury-alcs/
 
