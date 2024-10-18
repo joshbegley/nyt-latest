@@ -1,3 +1,7 @@
+**Sinwar killed by gunshot to head, Israeli autopsy finds.**\
+`The director of Israel’s national forensic institute, Dr. Chen Kugel, oversaw the autopsy and described its findings in an interview with The New York Times on Friday.`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/yahya-sinwar-hamas-autopsy
+
 **Patriots in London: Jerod Mayo makes pitch for optimism during rebuild**\
 `The Patriots are optimistic as they arrive in London despite five straight losses.`\
 https://nytimes.com/athletic/5853610/2024/10/18/new-england-patriots-london-jacksonville-jaguars-drake-maye/
