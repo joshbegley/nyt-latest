@@ -1,3 +1,7 @@
+**Montana Camper Was the Victim of a Brutal Homicide, Not a Bear, Sheriff Says**\
+`Dustin Kjersem, 35, was found dead in his tent with “chop wounds” on Saturday, the authorities said. No arrests have been made.`\
+https://nytimes.com/2024/10/18/us/montana-murder-bear-attack-homicide.html
+
 **Fire in Oakland Hills Prompts Evacuations Under Gusty Conditions**\
 `Firefighters in Northern California were responding to a blaze that burned several buildings and 15 acres.`\
 https://nytimes.com/2024/10/18/us/oakland-hills-fire-evacuation.html

@@ -1,3 +1,7 @@
+**Montana Camper Was the Victim of a Brutal Homicide, Not a Bear, Sheriff Says**\
+`Dustin Kjersem, 35, was found dead in his tent with “chop wounds” on Saturday, the authorities said. No arrests have been made.`\
+https://nytimes.com/2024/10/18/us/montana-murder-bear-attack-homicide.html
+
 **What Will Become of Yahya Sinwar’s Body?**\
 `Uncertainty surrounds the fate of the Hamas leader’s corpse as experts say Israel will likely try to avoid having his resting place become a shrine.`\
 https://nytimes.com/2024/10/18/world/middleeast/yahya-sinwar-body.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/west-ba
 **Why Israel Targeted Yahya Sinwar**\
 `What does the killing of Yahya Sinwar, mastermind of the Oct. 7 attack, mean for Israel and Gaza? Ronen Bergman, a staff writer for The New York Times Magazine who is based in Tel Aviv, explains.`\
 https://nytimes.com/video/world/middleeast/100000009768679/who-was-yahya-sinwar.html
-
-**These Americans Say They’ll Move Abroad if Their Candidate Loses**\
-`We spoke with Americans who are packing up and moving out.`\
-https://nytimes.com/2024/10/18/us/politics/these-americans-say-theyll-move-abroad-if-their-candidate-loses.html
 
