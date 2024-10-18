@@ -1,3 +1,19 @@
+**Fantasy trends and hidden gems: Upcoming schedule puts a trio of Devils in the waiver wire spotlight**\
+`Shayna Goldman looks at the NHL slate for the week ahead and identifies top waiver wire targets, with a heavy emphasis on New Jersey Devils.`\
+https://nytimes.com/athletic/5852710/2024/10/18/fantasy-hockey-trends-hidden-gems-upcoming-schedule-waiver-wire-adds-cotter/
+
+**FKA twigs’s Electro-Pop Enticement, and 8 More New Songs**\
+`Hear tracks by Haley Heynderickx, Cymande, Bonzie and others.`\
+https://nytimes.com/2024/10/18/arts/music/playlist-fka-twigs-mc5-tom-morello.html
+
+**Sinwar Killed by Gunshot, Israeli Autopsy Finds**\
+`The director of Israel’s national forensic institute, Dr. Chen Kugel, oversaw the autopsy and described its findings in an interview with The New York Times on Friday.`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/yahya-sinwar-hamas-autopsy
+
+**'It's time': Emotional Bennett explains his decision to retire from UVA**\
+`Bennett's philosophies didn’t always align with the name, image and likeness and transfer portal era of college athletics.`\
+https://nytimes.com/athletic/5853585/2024/10/18/tony-bennett-retires-ron-sanchez-uva/
+
 **Premier League top 4 race: Breaking down the chances and odds for the top outsiders**\
 `Will the top four race in the Premier League be chalk or will any of the outsiders make a surprise run? Here's a look at the contenders.`\
 https://nytimes.com/athletic/5853608/2024/10/18/premier-league-top-4-odds-tottenham-aston-villa-manchester-united-newcastle/
