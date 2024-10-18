@@ -1,3 +1,7 @@
+**Mentos, an expired passport and a map were some of the items Israel said it found near the slain Hamas leader.**\
+`By Aric Toler, Riley Mellen and Ronen Bergman`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/sinwar-hamas-killed-passport
+
 **Nicholas Daniloff, 89, Dies; Reporter’s Arrest in Moscow Ignited a Firestorm**\
 `A veteran foreign correspondent during the Cold War, he was held on trumped-up espionage charges. He credited President Ronald Reagan with fighting for his release.`\
 https://nytimes.com/2024/10/18/business/media/nicholas-daniloff-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/10/18/world/middleeast/lebanon-iran-interference.html
 **How Fugetsu-Do Survived the Evolution of Little Tokyo**\
 `Fugetsu-Do, a mochi store in the Little Tokyo neighborhood of Los Angeles, has existed for 121 years, with a lasting impact on its community.`\
 https://nytimes.com/2024/10/18/headway/how-fugetsu-do-survived-the-evolution-of-little-tokyo.html
-
-**49ers' Ricky Pearsall to make NFL debut vs. Chiefs**\
-`Asked on KNBR radio if Pearsall could be activated this week, Lynch said, “Absolutely there’s a chance. He’s had a good practice week."`\
-https://nytimes.com/athletic/5853458/2024/10/18/49ers-ricky-pearsall-return-chiefs/
 
