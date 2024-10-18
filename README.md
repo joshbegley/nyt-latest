@@ -1,3 +1,15 @@
+**Rams' Kupp ‘questionable’ vs. Raiders, per McVay**\
+`The Rams will make their final decision “closer to the game,” coach Sean McVay said.`\
+https://nytimes.com/athletic/5854000/2024/10/18/rams-cooper-kupp-injury-update-vs-raiders/
+
+**The U.N. peacekeeping force in southern Lebanon says it will remain, rejecting Israel’s demand to withdraw.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2024/10/18/world/israel-hamas-yahya-sinwar-news/the-un-peacekeeping-force-in-southern-lebanon-says-it-will-remain-rejecting-israels-demand-to-withdraw
+
+**Review: An Invitation to the Dance, Simple and Subtle**\
+`DD Dorvillier’s solo at the Chocolate Factory evokes a dream state as it digs into the same river of dance twice.`\
+https://nytimes.com/2024/10/18/arts/dance/review-dd-dorvillier-chocolate-factory.html
+
 **North Carolina officials report record turnout on the first day of early voting.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/10/18/us/harris-trump-election/north-carolina-officials-report-record-turnout-on-the-first-day-of-early-voting
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/18/business/acadia-healthcare-veterans-affairs-inves
 **Dallas Wings fire coach Latricia Trammell**\
 `The Wings were without 2023 first-team All-WNBA selection Satou Sabally for 25 games, as well as two-time All-Star Natasha Howard.`\
 https://nytimes.com/athletic/5853879/2024/10/18/latricia-trammell-wings-firing/
-
-**Russell Wilson to make first Steelers start vs. Jets**\
-`George Pickens spilled the Steelers' QB news about 10 minutes after Mike Tomlin declined to make it official.`\
-https://nytimes.com/athletic/5853893/2024/10/18/steelers-russell-wilson-starting-jets/
-
-**Power Outage Plunges All of Cuba Into Darkness**\
-`The Cuban government had just announced emergency measures to reduce electricity use — then the power went out across the entire nation.`\
-https://nytimes.com/2024/10/18/world/americas/cuba-power-plant-blackout.html
-
-**Israelis and Palestinians React to Assassination of Hamas Leader**\
-`While some Israelis expressed hope that the war might end soon, many Palestinians were doubtful that the death of Yahya Sinwar would lead to a cease-fire.`\
-https://nytimes.com/video/world/middleeast/100000009769475/yahya-sinwar-death-reactions.html
 
