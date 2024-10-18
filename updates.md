@@ -1,3 +1,15 @@
+**Sinwar’s Death Was a Victory for Israel. But Can the U.S. Persuade It to ‘Take the Win’?**\
+`Assassinating Yahya Sinwar was Israel’s Osama bin Laden moment. But getting a cease-fire deal done in the last three months of the Biden presidency is a much bigger reach.`\
+https://nytimes.com/2024/10/18/us/politics/sinwar-israel-biden-harris.html
+
+**McLaren CEO: Red Bull should face ‘massive consequences’ if F1 parc fermé rules breached**\
+`McLaren is currently engaged in a close battle with Red Bull for both world championships.`\
+https://nytimes.com/athletic/5854001/2024/10/18/f1-red-bull-rules-breach-united-states-gp/
+
+**Major sports books to cease under prop bets on lowest paid players**\
+`The NBA requested the change to "protect the integrity of our games," said a league spokesperson.`\
+https://nytimes.com/athletic/5854024/2024/10/18/nba-sports-betting-10-day-contract-players/
+
 **A Sherrod Brown Ad Seizes on an Unwise Remark About Women and Abortion**\
 `Bernie Moreno, his Republican rival, said women older than 50 are “crazy” for caring about abortion rights. A series of Ohio women who fit that description have much to say in response.`\
 https://nytimes.com/2024/10/18/us/politics/ohio-abortion-bernie-moreno-sherrod-brown.html

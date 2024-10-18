@@ -1,3 +1,11 @@
+**Sinwar’s Death Was a Victory for Israel. But Can the U.S. Persuade It to ‘Take the Win’?**\
+`Assassinating Yahya Sinwar was Israel’s Osama bin Laden moment. But getting a cease-fire deal done in the last three months of the Biden presidency is a much bigger reach.`\
+https://nytimes.com/2024/10/18/us/politics/sinwar-israel-biden-harris.html
+
+**McLaren CEO: Red Bull should face ‘massive consequences’ if F1 parc fermé rules breached**\
+`McLaren is currently engaged in a close battle with Red Bull for both world championships.`\
+https://nytimes.com/athletic/5854001/2024/10/18/f1-red-bull-rules-breach-united-states-gp/
+
 **A Sherrod Brown Ad Seizes on an Unwise Remark About Women and Abortion**\
 `Bernie Moreno, his Republican rival, said women older than 50 are “crazy” for caring about abortion rights. A series of Ohio women who fit that description have much to say in response.`\
 https://nytimes.com/2024/10/18/us/politics/ohio-abortion-bernie-moreno-sherrod-brown.html
@@ -6,7 +14,7 @@ https://nytimes.com/2024/10/18/us/politics/ohio-abortion-bernie-moreno-sherrod-b
 `Martinez had been an assistant pitching coach for the Giants since 2021. He takes over for Bryan Price, who stepped down from the role.`\
 https://nytimes.com/athletic/5854043/2024/10/18/jp-martinez-sf-giants-pitching-coach/
 
-**Major sports books to cease prop bets on lowest paid players**\
+**Major sports books to cease under prop bets on lowest paid players**\
 `The NBA requested the change to "protect the integrity of our games," said a league spokesperson.`\
 https://nytimes.com/athletic/5854024/2024/10/18/nba-sports-betting-10-day-contract-players/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/10/18/us/politics/harris-israel-gaza-war-biden-trump.ht
 **Suarez confirms Inter Miami contract talks**\
 `Uruguayan forward Luis Suarez confirmed on Friday he is in talks with Inter Miami over extending his contract.`\
 https://nytimes.com/athletic/5853964/2024/10/18/luis-suarez-inter-miami-contract/
-
-**Rams' Kupp ‘questionable’ vs. Raiders, per McVay**\
-`The Rams will make their final decision “closer to the game,” coach Sean McVay said.`\
-https://nytimes.com/athletic/5854000/2024/10/18/rams-cooper-kupp-injury-update-vs-raiders/
-
-**U.N. Peacekeeping Force in Southern Lebanon Will Remain, U.N. Official Says**\
-`Israel has demanded that the force, known as UNIFIL, pull out. But all the countries contributing troops and the U.N. Security Council decided unanimously that UNIFIL should stay.`\
-https://nytimes.com/2024/10/18/world/middleeast/un-peacekeepers-lebanon-israel.html
 
