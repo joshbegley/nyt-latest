@@ -1,3 +1,7 @@
+**Meet the Candidate: Elon Musk**\
+`The billionaire is spending a fortune to support former President Donald J. Trump. But at a town hall event in Pennsylvania, he looked an awful lot like a politician himself.`\
+https://nytimes.com/2024/10/17/us/elections/elon-musk-town-hall-pennsylvania.html
+
 **China’s Lackluster Growth Continues, Signaling Why Beijing Acted on Economy**\
 `Falling prices, weak consumer spending and a housing market crash help to explain why the Chinese government is taking steps to stimulate the economy.`\
 https://nytimes.com/2024/10/17/business/china-gdp-third-quarter.html

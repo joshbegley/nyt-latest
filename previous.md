@@ -1,3 +1,7 @@
+**Meet the Candidate: Elon Musk**\
+`The billionaire is spending a fortune to support former President Donald J. Trump. But at a town hall event in Pennsylvania, he looked an awful lot like a politician himself.`\
+https://nytimes.com/2024/10/17/us/elections/elon-musk-town-hall-pennsylvania.html
+
 **China’s Lackluster Growth Continues, Signaling Why Beijing Acted on Economy**\
 `Falling prices, weak consumer spending and a housing market crash help to explain why the Chinese government is taking steps to stimulate the economy.`\
 https://nytimes.com/2024/10/17/business/china-gdp-third-quarter.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/10/17/business/shark-tank-economy.html
 **Dodgers' Shohei Ohtani leads off NLCS Game 4 with a bang**\
 `NEW YORK — Turns out, Shohei Ohtani can hit with the bases empty, too.`\
 https://nytimes.com/athletic/5852195/2024/10/17/dodgers-shohei-ohtani-leadoff-nlcs/
-
-**U.S. Charges Indian Official in New York Assassination Plot**\
-`The United States and Canada have worked together to investigate what they say is the Indian government’s campaign against Sikh separatists.`\
-https://nytimes.com/2024/10/17/us/politics/indian-intelligence-officer-assassination.html
 
