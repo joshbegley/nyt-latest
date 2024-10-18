@@ -1,3 +1,23 @@
+**Mets and Yankees Fans Actually Getting Along? Say It Ain’t So.**\
+`Bitter rivals are suddenly paying each other compliments, at least until there’s a Subway Series, if that happens. “It’s weird,” said the longtime Yankees announcer.`\
+https://nytimes.com/2024/10/18/nyregion/yankees-mets-new-york-fans.html
+
+**Left Out of Trump’s New York Myth: A Reliance on Big Tax Breaks**\
+`In the new biopic “The Apprentice,” much is made of Trump’s tutelage under the venal fixer Roy Cohn. But the film shrewdly locates the secret of his success: tax abatements.`\
+https://nytimes.com/2024/10/18/nyregion/the-apprentice-trump-nyc-tax-abatements.html
+
+**Word of the Day: arpeggio**\
+`This word has appeared in four articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/10/18/learning/word-of-the-day-arpeggio.html
+
+**What I’ve Learned Interviewing More Than 200 New York Times Journalists**\
+`Over the past four years, I’ve written more than 100 articles that explain our journalism. What I learned might surprise you.`\
+https://nytimes.com/2024/10/18/insider/what-ive-learned-interviewing-more-than-200-new-york-times-journalists.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/10/18/crosswords/spelling-bee-forum.html
+
 **Mohamed Al Fayed accused of sexually assaulting Fulham Ladies captain at Harrods**\
 `Ronnie Gibbons was twice shut in a room on her own with the Fulham FC and Harrods owner - this is her story`\
 https://nytimes.com/athletic/5851577/2024/10/18/mohamed-al-fayed-harrods-fulham-ronnie-gibbons/
