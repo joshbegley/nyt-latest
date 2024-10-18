@@ -1,3 +1,7 @@
+**Trump’s Claims That Blame Migrants: False or Misleading**\
+`The Trump campaign has consistently pointed to unauthorized immigration as the cause of a series of problems it says plagues the country. That is rarely actually the case.`\
+https://nytimes.com/2024/10/18/us/politics/trump-immigration-fact-check.html
+
 **49ers GM says 'there's a chance' Pearsall plays**\
 `Asked on KNBR radio if Pearsall could be activated this week, Lynch said, “Absolutely there’s a chance. He’s had a good practice week."`\
 https://nytimes.com/athletic/5853458/2024/10/18/49ers-ricky-pearsall-return-chiefs/

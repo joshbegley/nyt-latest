@@ -1,3 +1,7 @@
+**Trump’s Claims That Blame Migrants: False or Misleading**\
+`The Trump campaign has consistently pointed to unauthorized immigration as the cause of a series of problems it says plagues the country. That is rarely actually the case.`\
+https://nytimes.com/2024/10/18/us/politics/trump-immigration-fact-check.html
+
 **49ers GM says 'there's a chance' Pearsall plays**\
 `Asked on KNBR radio if Pearsall could be activated this week, Lynch said, “Absolutely there’s a chance. He’s had a good practice week."`\
 https://nytimes.com/athletic/5853458/2024/10/18/49ers-ricky-pearsall-return-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5853431/2024/10/18/fantasy-football-flex-fliers-wee
 **Trump Defends Adams, Arguing Both Are Being ‘Persecuted’**\
 `Mayor Eric Adams, a Democrat, and Donald J. Trump, the Republican former president, are strange bedfellows as both face legal challenges.`\
 https://nytimes.com/2024/10/18/nyregion/trump-adams-smith-dinner.html
-
-**Five International Movies to Stream Now**\
-`In this month’s picks, a shy vampire in Canada comes of age, two men in India spar over a parking spot and a Chilean secretary dreams of life as a killer.`\
-https://nytimes.com/2024/10/18/movies/five-international-movies-to-stream-now.html
 
