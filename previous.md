@@ -1,3 +1,15 @@
+**Biden, in Germany, Urges Unwavering Support for Ukraine**\
+`The United States and its allies must work tirelessly, President Biden said, to “ensure that Ukraine prevails and Putin fails.”`\
+https://nytimes.com/2024/10/18/world/europe/biden-us-germany-ukraine-war-nato-russia.html
+
+**In Game 4, Dodgers' Ohtani and Betts deliver a 1-2 punch like no other — ever**\
+`How good were the Dodgers' 1-2 hitters in Game 4? So good that they put on a performance unlike any other in 105 years of baseball history.`\
+https://nytimes.com/athletic/5852833/2024/10/18/ohtani-mookie-betts-dodgers-nlcs-game-4/
+
+**Twins mailbag: Pohlad predictions, fixing Royce Lewis, trade scenarios, starting Griffin Jax**\
+`Plus awaiting new Twins owners, payroll problems, Alex Kirilloff's future in Minnesota and new hitting coach Matt Borgschulte.`\
+https://nytimes.com/athletic/5848821/2024/10/18/twins-pohlad-predictions-trade-scenarios/
+
 **Astros mailbag: Should Houston trade Framber Valdez or Kyle Tucker?**\
 `The Astros are at a crossroads. Could they trade one of their top players? And should players be willing to take a hometown discount?`\
 https://nytimes.com/athletic/5850977/2024/10/18/astros-framber-valdez-kyle-tucker-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/10/18/podcasts/the-daily/israel-sinwar-oct-7.html
 **The Death of Yahya Sinwar, and Execution Halted in Shaken Baby Case**\
 `Plus, closing time for Kmart.`\
 https://nytimes.com/2024/10/18/podcasts/hamas-sinwar-texas-execution.html
-
-**Broncos' win in Sean Payton's emotional New Orleans return reveals building blocks**\
-`Bo Nix didn't have a banner night as a passer, but he was part of a dynamic rushing attack that is key to Denver's offensive growth.`\
-https://nytimes.com/athletic/5852628/2024/10/18/broncos-win-sean-payton-return-saints/
-
-**Yohe: Penguins need to move on from Jarry**\
-`The time has come for the Penguins to cut ties with Jarry. `\
-https://nytimes.com/athletic/5851157/2024/10/18/penguins-tristan-jarry-options/
-
-**Wordle Review No. 1,218**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Oct. 19, 2024.`\
-https://nytimes.com/2024/10/18/crosswords/wordle-review-1218.html
 

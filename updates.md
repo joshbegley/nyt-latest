@@ -1,3 +1,15 @@
+**Biden, in Germany, Urges Unwavering Support for Ukraine**\
+`The United States and its allies must work tirelessly, President Biden said, to “ensure that Ukraine prevails and Putin fails.”`\
+https://nytimes.com/2024/10/18/world/europe/biden-us-germany-ukraine-war-nato-russia.html
+
+**In Game 4, Dodgers' Ohtani and Betts deliver a 1-2 punch like no other — ever**\
+`How good were the Dodgers' 1-2 hitters in Game 4? So good that they put on a performance unlike any other in 105 years of baseball history.`\
+https://nytimes.com/athletic/5852833/2024/10/18/ohtani-mookie-betts-dodgers-nlcs-game-4/
+
+**Twins mailbag: Pohlad predictions, fixing Royce Lewis, trade scenarios, starting Griffin Jax**\
+`Plus awaiting new Twins owners, payroll problems, Alex Kirilloff's future in Minnesota and new hitting coach Matt Borgschulte.`\
+https://nytimes.com/athletic/5848821/2024/10/18/twins-pohlad-predictions-trade-scenarios/
+
 **Astros mailbag: Should Houston trade Framber Valdez or Kyle Tucker?**\
 `The Astros are at a crossroads. Could they trade one of their top players? And should players be willing to take a hometown discount?`\
 https://nytimes.com/athletic/5850977/2024/10/18/astros-framber-valdez-kyle-tucker-trade/
