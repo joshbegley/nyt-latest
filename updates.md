@@ -1,3 +1,7 @@
+**Trump Jabs Harris for Not Attending Al Smith Charity Dinner**\
+`The annual Catholic charity event is known for inviting presidential candidates to lightheartedly roast each other.`\
+https://nytimes.com/video/us/elections/100000009769036/trump-harris-al-smith-dinner.html
+
 **Teräväinen, power play propel Blackhawks in home opener victory: Observations**\
 `The Blackhawks may not be contenders just yet, but their power play could push them higher than people might expect.`\
 https://nytimes.com/athletic/5852305/2024/10/18/blackhawks-home-opener-teravainen-power-play/

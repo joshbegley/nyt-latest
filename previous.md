@@ -1,3 +1,7 @@
+**Trump Jabs Harris for Not Attending Al Smith Charity Dinner**\
+`The annual Catholic charity event is known for inviting presidential candidates to lightheartedly roast each other.`\
+https://nytimes.com/video/us/elections/100000009769036/trump-harris-al-smith-dinner.html
+
 **Teräväinen, power play propel Blackhawks in home opener victory: Observations**\
 `The Blackhawks may not be contenders just yet, but their power play could push them higher than people might expect.`\
 https://nytimes.com/athletic/5852305/2024/10/18/blackhawks-home-opener-teravainen-power-play/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5849601/2024/10/18/everton-calvert-lewin-takeover-p
 **If Forest can address their wobbly home form then this could be a hugely positive season**\
 `In a reversal from previous campaigns, Forest are performing well on the road but struggling to win games at the City Ground`\
 https://nytimes.com/athletic/5850206/2024/10/18/forest-home-form-premier-league/
-
-**Why are Newcastle not using £10m striker Osula given other injuries and lack of goals?**\
-`Eddie Howe does not yet trust that the 21-year-old is ready to make an impact in the first team, but there are high hopes for Osula `\
-https://nytimes.com/athletic/5849325/2024/10/18/william-osula-newcastle-striker/
 
