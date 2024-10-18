@@ -1,3 +1,7 @@
+**Silva saddened after former Fulham Ladies captain alleges sexual abuse against Al Fayed**\
+`Fulham head coach Marco Silva has expressed his sadness after his club&#8217;s former women&#8217;s captain, Ronnie Gibbons, came forward to allege she was sexually assaulted on two occasions by then-owner Mohamed Al Fayed, saying &#8220;our empathy is with the situation&#8221;.`\
+https://nytimes.com/athletic/5853214/2024/10/18/marco-silva-fulham-al-fayed/
+
 **In Gaza, Yahya Sinwar’s death brings relief and glimmers of hope.**\
 `By Bilal Shbair and Liam Stack`\
 https://nytimes.com/live/2024/10/18/world/israel-hamas-gaza-news/in-gaza-yahya-sinwars-death-brings-relief-and-glimmers-of-hope
