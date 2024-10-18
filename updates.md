@@ -1,3 +1,11 @@
+**After late-inning meltdown, should the Yankees worry about Luke Weaver's heavy workload?**\
+`Weaver and teammate Clay Holmes, who have pitched in every playoff game, had been stellar until Thursday's extra-inning loss.`\
+https://nytimes.com/athletic/5852564/2024/10/18/yankees-luke-weaver-guardians-alcs-loss/
+
+**NHL 2024-25 Stanley Cup playoff chances and projected standings**\
+`Welcome to our 2024-25 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
+https://nytimes.com/athletic/5834883/2024/10/18/nhl-standings-playoffs-projections-odds/
+
 **Trump Jabs Harris for Not Attending Al Smith Charity Dinner**\
 `The annual Catholic charity event is known for inviting presidential candidates to lightheartedly roast each other.`\
 https://nytimes.com/video/us/elections/100000009769036/trump-harris-al-smith-dinner.html
