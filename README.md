@@ -1,3 +1,11 @@
+**How England hired 'outstanding' Tuchel - and why not everyone is happy about it**\
+`The German's arrival is a major coup for the FA, but it does not come without controversy`\
+https://nytimes.com/athletic/5851079/2024/10/18/england-thomas-tuchel-how-hired-coach/
+
+**Rees-Zammit: Still waiting for NFL chance but his profile has never been higher**\
+`Rees-Zammit has spent time with Prince William during the Jaguars' trip to the UK for the NFL London Games`\
+https://nytimes.com/athletic/5849758/2024/10/18/louis-rees-zammit-nfl-rugby/
+
 **Mets manager Carlos Mendoza preached trust all year. Now it's time for urgency**\
 `The Mets have handed too many important at-bats to hitters in slumps and relied too often on lower-leverage relievers.`\
 https://nytimes.com/athletic/5852683/2024/10/18/mets-carlos-mendoza-dodgers-nlcs/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/elections/100000009769036/trump-harris-al-smith-din
 **Teuvo Teräväinen, power play propel Blackhawks in home-opener victory: Observations**\
 `The Blackhawks might not be contenders just yet, but their power play could push them higher than people expect.`\
 https://nytimes.com/athletic/5852305/2024/10/18/blackhawks-home-opener-teravainen-power-play/
-
-**Aston Villa and a curious contract stand-off with Rory Wilson**\
-`The 18-year-old has turned down all contract offers to stay at Villa beyond the season — the prolific youth striker looks set to leave`\
-https://nytimes.com/athletic/5833315/2024/10/18/rory-wilson-aston-villa-transfer/
-
-**Niclas Fullkrug's ongoing injury absence is only exacerbating his slow start**\
-`The club's search for a consistent goalscorer led them to the German but his frustrating start to life at the club continues `\
-https://nytimes.com/athletic/5850370/2024/10/18/niklas-fullkrug-injury-concerns/
 
